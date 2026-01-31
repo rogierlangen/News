@@ -1,10 +1,13 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-01-2026 om 22:52*
+*Laatst bijgewerkt: 31-01-2026 om 23:45*
 
 ---
 
 ## NOS
+
+### [Zeer grote brand in Alblasserdam, A15 afgesloten](https://nos.nl/l/2600473)
+> In Alblasserdam woedt een uitslaande brand in een cateringbedrijf op een industrieterrein. Brandweerkorpsen uit de hele regio zijn opgeroepen om het vuur te blussen. Het is te gevaarlijk om het...
 
 ### [Hond doodgeschoten door man in Wapse, politie doet onderzoek](https://nos.nl/l/2600454)
 > In het Drentse dorp Wapse is gisteravond een hond doodgeschoten. De politie bevestigt het incident tegen het Dagblad van het Noorden. De eigenaar van de hond zegt tegen de krant dat ze in een...
@@ -17,9 +20,6 @@
 
 ### [Vijf jaar na coup zijn honderdduizenden Myanmarezen naar Thailand gevlucht](https://nos.nl/l/2600444)
 > Het is niet lang geleden dat het verzet in Myanmar het leger aan het wankelen kreeg, maar vijf jaar na de staatsgreep lijkt het leger weer grip te krijgen op de burgeroorlog. Het boekt meer en meer...
-
-### [Internetblokkades komen wereldwijd vaker voor, meestal heel lokaal en kort](https://nos.nl/l/2600442)
-> Langzaam krijgen mensen in Iran weer toegang tot het internet na een van de grootste internetblokkades in de geschiedenis van het land. Die blokkade ontnam wereldwijd het zicht op de gruwelijkheden...
 
 
 ## AD
