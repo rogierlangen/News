@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-01-2026 om 17:57*
+*Laatst bijgewerkt: 31-01-2026 om 19:01*
 
 ---
 
@@ -26,20 +26,20 @@
 
 ## AD
 
-### [Taya kreeg door de oorlog een andere man: ‘Toen hij met verlof kwam, was hij 30 kilo afgevallen’](https://www.ad.nl/buitenland/taya-kreeg-door-de-oorlog-een-andere-man-toen-hij-met-verlof-kwam-was-hij-30-kilo-afgevallen~afda6412/)
-> Anna zou advocaat worden, Nikol lerares, Anastasia is haar halve wereld kwijtgeraakt en Taya kreeg een andere man terug van het front. Verslaggever Mark van Assen bezocht in Odesa vier vrouwen die...
+### [Niels (27) verloor beide benen, maar won een lade vol medailles: ‘Hoef mij niet te schamen’](https://www.ad.nl/binnenland/niels-27-verloor-beide-benen-maar-won-een-lade-vol-medailles-hoef-mij-niet-te-schamen~a02cd10e/)
+> Hij verloor als kind zijn benen, maar nooit zijn geloof in wat wél kan. Nu strijdt Niels de Langen (27) op de Paralympische Winterspelen om goud. „Ik heb mij nog nooit zo sterk gevoeld.”
 
-### [NEC overklast armoedig AZ in Alkmaar en klimt naar plek 3, gewilde Kodai Sano blinkt uit met wereldgoal](https://www.ad.nl/voetbal/nec-overklast-armoedig-az-in-alkmaar-en-klimt-naar-plek-3-gewilde-kodai-sano-blinkt-uit-met-wereldgoal~a694b210/)
-> NEC heeft AZ op overtuigende wijze verslagen. De Nijmegenaren, aangevoerd door een uitblinkende Kodai Sano, waren gedurende de hele wedstrijd de bovenliggende partij: 1-3. Daarmee klimt NEC naar de...
+### [Rechter weigert agenten van ICE per direct uit Minneapolis weg te laten sturen](https://www.ad.nl/buitenland/rechter-weigert-agenten-van-ice-per-direct-uit-minneapolis-weg-te-laten-sturen~a9a06edd/)
+> Een rechter in Minnesota heeft geweigerd een bevel te geven om agenten van de immigratiedienst ICE per direct uit Minneapolis weg te sturen. En Amerikaanse federale agenten hebben deze week te horen...
 
-### [Tientallen doden en gewonden bij Israëlische aanvallen op Gaza, ook kinderen](https://www.ad.nl/buitenland/tientallen-doden-en-gewonden-bij-israelische-aanvallen-op-gaza-ook-kinderen~a395cdaf/)
-> Bij nieuwe Israëlische luchtaanvallen op Gaza-Stad en Khan Younis zijn volgens plaatselijke gezondheidsautoriteiten zaterdag zeker 28 doden gevallen. Ook kinderen zijn getroffen. Volg alle...
+### [Slot kiest tegen Newcastle voor drie Nederlanders in de basis, Botman op de bank](https://www.ad.nl/voetbal/slot-kiest-tegen-newcastle-voor-drie-nederlanders-in-de-basis-botman-op-de-bank~a1043cca/)
+> Arne Slot heeft de goede vorm met Liverpool nog niet gevonden. De regerend landskampioen droomt nog altijd van een plekje bij de top vier, waardoor puntverlies niet veroorloofd is tegen Newcastle...
 
-### [Waterpolosters slepen moeizame zege uit het vuur tegen Hongarije en blijven op koers voor Europese titel](https://www.ad.nl/andere-sporten/waterpolosters-slepen-moeizame-zege-uit-het-vuur-tegen-hongarije-en-blijven-op-koers-voor-europese-titel~ae5e6671/)
-> De Nederlandse waterpolosters blijven op koers voor de titel op het Europees kampioenschap in het Portugese Funchal (Madeira). De ploeg van bondscoach Evangelos Doudesis boekte wel een moeizame zege...
+### [Engelenrel in Italië: hoe kan het dat fresco in Romeinse kerk ineens op premier Meloni lijkt?](https://www.ad.nl/buitenland/engelenrel-in-italie-hoe-kan-het-dat-fresco-in-romeinse-kerk-ineens-op-premier-meloni-lijkt~adaaba92/)
+> Na herstelwerkzaamheden in een Romeinse kerk, de Basiliek van San Lorenzo in Lucina, is een rel ontstaan over een afbeelding van een engel in een fresco. Het uiterlijk van een cherubijn in de...
 
-### [Spelersvakbond hekelt werkwijze AZ en NEC rond Portugese superagent: ‘Spelers worden gezien als pure handelswaar’](https://www.ad.nl/voetbal/spelersvakbond-hekelt-werkwijze-az-en-nec-rond-portugese-superagent-spelers-worden-gezien-als-pure-handelswaar~a9ae870f/)
-> Een artikel op deze site over de Portugese supermakelaar Jorge Mendes heeft in de voetbalwereld veel stof doen opwaaien. Spelersvakbond VVCS hekelt de handelswijze van AZ, NEC en tussenpersoon Guido...
+### [Wereldtitel voor Lucinda Brand (36) na loodzware winter: ‘Knap dat ze zelfs tijdens regelen van de uitvaart bleef trainen’](https://www.ad.nl/wielrennen/wereldtitel-voor-lucinda-brand-36-na-loodzware-winter-knap-dat-ze-zelfs-tijdens-regelen-van-de-uitvaart-bleef-trainen~a426868f/)
+> Jongere concurrenten die haar naar de kroon proberen te steken, het verlies van haar moeder: niets hield Lucinda Brand tegen. Op 36-jarige leeftijd zette ze de kroon op een droomseizoen:...
 
 
 ## FD
