@@ -1,45 +1,44 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-01-2026 om 19:01*
+*Laatst bijgewerkt: 31-01-2026 om 20:52*
 
 ---
 
 ## NOS
 
+### [Het coalitieakkoord en de Caribische eilanden: wat is echt nieuw?](https://nos.nl/l/2600448)
+> Het coalitieakkoord van D66, VVD en CDA zet de Caribische eilanden nadrukkelijk op de agenda. Aankomend premier Jetten spreekt over "grote stappen" voor Bonaire, Sint-Eustatius en Saba, met een...
+
+### [Vijf jaar na coup zijn honderdduizenden Myanmarezen naar Thailand gevlucht](https://nos.nl/l/2600444)
+> Het is niet lang geleden dat het verzet in Myanmar het leger aan het wankelen kreeg, maar vijf jaar na de staatsgreep lijkt het leger weer grip te krijgen op de burgeroorlog. Het boekt meer en meer...
+
+### [Internetblokkades komen wereldwijd vaker voor, meestal heel lokaal en kort](https://nos.nl/l/2600442)
+> Langzaam krijgen mensen in Iran weer toegang tot het internet na een van de grootste internetblokkades in de geschiedenis van het land. Die blokkade ontnam wereldwijd het zicht op de gruwelijkheden...
+
+### [Politie lost schot bij achtervolging in Sprang-Capelle, geen gewonden](https://nos.nl/l/2600441)
+> In het Brabantse Sprang-Capelle heeft de politie vanmiddag na een achtervolging een schot gelost. Dat gebeurde bij het aanhouden van een verdachte, die wordt verdacht van poging tot doodslag of...
+
 ### [Bloedige dag in Gaza, net voor heropening grens Rafah](https://nos.nl/l/2600430)
 > Vandaag was in de Gazastrook een van de dodelijkste dagen sinds oktober, toen een door de Verenigde Staten bemiddelde wapenstilstand inging. Zeker 31 Palestijnen werden gedood. 
         De...
 
-### ['Brave Democraat' Springsteen gaat met protestlied vol in aanval tegen Trump](https://nos.nl/l/2600415)
-> Voor een volgepakte zaal, in het hart van de stad waar het al weken rommelt in de VS, zong Bruce Springsteen gisteren zijn protestnummer Streets of Minneapolis. Het lied staat bol van de kritiek op...
-
-### [Iraanse oefening in Straat van Hormuz voedt vrees voor escalatie](https://nos.nl/l/2600402)
-> Iran begint dit weekend een maritieme oefening in de Straat van Hormuz, een van de belangrijkste scheepsroutes ter wereld. De Verenigde Staten hebben Teheran gewaarschuwd dat risicovol militair...
-
-### [Vogelgriep op pluimveebedrijf Dalen, 15.000 kippen geruimd](https://nos.nl/l/2600400)
-> In het Drentse dorp Dalen is vogelgriep vastgesteld op een leghennenbedrijf. De 15.000 kippen op het bedrijf worden geruimd, meldt het ministerie van Landbouw, Visserij, Voedselzekerheid en Natuur.
- ...
-
-### [CDA viert op congres kabinetsdeelname: 'We hebben onze partij opnieuw uitgevonden'](https://nos.nl/l/2600397)
-> De sfeer op het CDA-congres is, een dag na de presentatie van het coalitieakkoord, opgetogen. Na een moeilijke periode speelt de partij met achttien zetels weer een grote rol in de Tweede Kamer. Over...
-
 
 ## AD
 
-### [Niels (27) verloor beide benen, maar won een lade vol medailles: ‘Hoef mij niet te schamen’](https://www.ad.nl/binnenland/niels-27-verloor-beide-benen-maar-won-een-lade-vol-medailles-hoef-mij-niet-te-schamen~a02cd10e/)
-> Hij verloor als kind zijn benen, maar nooit zijn geloof in wat wél kan. Nu strijdt Niels de Langen (27) op de Paralympische Winterspelen om goud. „Ik heb mij nog nooit zo sterk gevoeld.”
+### [LIVE eredivisie | Groningse kaartenregen sluitstuk van doelpuntloze eerste helft tegen Sparta](https://www.ad.nl/voetbal/live-eredivisie-groningse-kaartenregen-sluitstuk-van-doelpuntloze-eerste-helft-tegen-sparta~a7bde46d/)
+> Sparta en FC Groningen staan beide op een positie die recht geeft op deelname aan de play-offs. Een overwinning in het onderlinge duel kan deze positie flink verstevigen. Volg de wedstrijd vanaf...
 
-### [Rechter weigert agenten van ICE per direct uit Minneapolis weg te laten sturen](https://www.ad.nl/buitenland/rechter-weigert-agenten-van-ice-per-direct-uit-minneapolis-weg-te-laten-sturen~a9a06edd/)
-> Een rechter in Minnesota heeft geweigerd een bevel te geven om agenten van de immigratiedienst ICE per direct uit Minneapolis weg te sturen. En Amerikaanse federale agenten hebben deze week te horen...
+### [‘The next world star’ Gradus Kraus heeft maar weinig tijd nodig om wéér te winnen: tiende bokszege is een feit](https://www.ad.nl/vechtsport/the-next-world-star-gradus-kraus-heeft-maar-weinig-tijd-nodig-om-weer-te-winnen-tiende-bokszege-is-een-feit~a773f438/)
+> Tien gevechten en tien overwinningen voor bokssensatie Gradus Kraus. De 24-jarige Nederlander vocht, twee maanden na het winnen van de Europese titel, zaterdagavond in Engeland en opnieuw was Kraus...
 
-### [Slot kiest tegen Newcastle voor drie Nederlanders in de basis, Botman op de bank](https://www.ad.nl/voetbal/slot-kiest-tegen-newcastle-voor-drie-nederlanders-in-de-basis-botman-op-de-bank~a1043cca/)
+### [Opluchting bij Slot: Liverpool draait binnen tien minuten stand volledig om tegen Newcastle](https://www.ad.nl/voetbal/opluchting-bij-slot-liverpool-draait-binnen-tien-minuten-stand-volledig-om-tegen-newcastle~a1043cca/)
 > Arne Slot heeft de goede vorm met Liverpool nog niet gevonden. De regerend landskampioen droomt nog altijd van een plekje bij de top vier, waardoor puntverlies niet veroorloofd is tegen Newcastle...
 
-### [Engelenrel in Italië: hoe kan het dat fresco in Romeinse kerk ineens op premier Meloni lijkt?](https://www.ad.nl/buitenland/engelenrel-in-italie-hoe-kan-het-dat-fresco-in-romeinse-kerk-ineens-op-premier-meloni-lijkt~adaaba92/)
-> Na herstelwerkzaamheden in een Romeinse kerk, de Basiliek van San Lorenzo in Lucina, is een rel ontstaan over een afbeelding van een engel in een fresco. Het uiterlijk van een cherubijn in de...
+### [LIVE La Liga | FC Barcelona herstelt voorsprong na assist Frenkie de Jong](https://www.ad.nl/voetbal/live-la-liga-fc-barcelona-herstelt-voorsprong-na-assist-frenkie-de-jong~a4a65035/)
+> FC Barcelona is verwikkeld in een spannende titelstrijd met Real Madrid. De volgende horde van de regerend landskampioen is Elche. Volg het duel vanaf 21.00 uur hier live!
 
-### [Wereldtitel voor Lucinda Brand (36) na loodzware winter: ‘Knap dat ze zelfs tijdens regelen van de uitvaart bleef trainen’](https://www.ad.nl/wielrennen/wereldtitel-voor-lucinda-brand-36-na-loodzware-winter-knap-dat-ze-zelfs-tijdens-regelen-van-de-uitvaart-bleef-trainen~a426868f/)
-> Jongere concurrenten die haar naar de kroon proberen te steken, het verlies van haar moeder: niets hield Lucinda Brand tegen. Op 36-jarige leeftijd zette ze de kroon op een droomseizoen:...
+### [Kristin (75) dacht de ‘liefste hond ooit’ te adopteren, maar na twee dagen sloeg pitbull Valerio toe](https://www.ad.nl/buitenland/kristin-75-dacht-de-liefste-hond-ooit-te-adopteren-maar-na-twee-dagen-sloeg-pitbull-valerio-toe~ae81e83a/)
+> Het moest de perfecte match zijn: pitbull Valerio en zijn nieuwe baasje Kristin Wright. Maar niets bleek minder waar, want nog geen twee dagen na de adoptie van het dier sloeg het noodlot toe....
 
 
 ## FD
