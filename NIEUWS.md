@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-01-2026 om 17:54*
+*Laatst bijgewerkt: 31-01-2026 om 17:57*
 
 ---
 
