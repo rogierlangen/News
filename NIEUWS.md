@@ -1,10 +1,13 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-01-2026 om 20:52*
+*Laatst bijgewerkt: 31-01-2026 om 21:42*
 
 ---
 
 ## NOS
+
+### [Engel in Romeinse kerk lijkt ineens op premier Meloni](https://nos.nl/l/2600450)
+> In Italië is ophef over een gerestaureerd fresco in een basiliek in Rome. Het gezicht van een engel op de muur lijkt sinds de restauratie opvallend veel op dat van premier Meloni. Het ministerie van...
 
 ### [Het coalitieakkoord en de Caribische eilanden: wat is echt nieuw?](https://nos.nl/l/2600448)
 > Het coalitieakkoord van D66, VVD en CDA zet de Caribische eilanden nadrukkelijk op de agenda. Aankomend premier Jetten spreekt over "grote stappen" voor Bonaire, Sint-Eustatius en Saba, met een...
@@ -18,27 +21,23 @@
 ### [Politie lost schot bij achtervolging in Sprang-Capelle, geen gewonden](https://nos.nl/l/2600441)
 > In het Brabantse Sprang-Capelle heeft de politie vanmiddag na een achtervolging een schot gelost. Dat gebeurde bij het aanhouden van een verdachte, die wordt verdacht van poging tot doodslag of...
 
-### [Bloedige dag in Gaza, net voor heropening grens Rafah](https://nos.nl/l/2600430)
-> Vandaag was in de Gazastrook een van de dodelijkste dagen sinds oktober, toen een door de Verenigde Staten bemiddelde wapenstilstand inging. Zeker 31 Palestijnen werden gedood. 
-        De...
-
 
 ## AD
 
-### [LIVE eredivisie | Groningse kaartenregen sluitstuk van doelpuntloze eerste helft tegen Sparta](https://www.ad.nl/voetbal/live-eredivisie-groningse-kaartenregen-sluitstuk-van-doelpuntloze-eerste-helft-tegen-sparta~a7bde46d/)
-> Sparta en FC Groningen staan beide op een positie die recht geeft op deelname aan de play-offs. Een overwinning in het onderlinge duel kan deze positie flink verstevigen. Volg de wedstrijd vanaf...
+### [Bruce Springsteen speelt protestlied voor het eerst live: ‘Soms moet je iemand een klap in z’n gezicht geven’](https://www.ad.nl/show/bruce-springsteen-speelt-protestlied-voor-het-eerst-live-soms-moet-je-iemand-een-klap-in-zn-gezicht-geven~adeb1ea4/)
+> Bruce Springsteen heeft vrijdagavond voor het eerst zijn protestlied Streets of Minneapolis live gespeeld, tijdens een protest in de gelijknamige stad. Duizenden mensen demonstreerden tegen...
 
-### [‘The next world star’ Gradus Kraus heeft maar weinig tijd nodig om wéér te winnen: tiende bokszege is een feit](https://www.ad.nl/vechtsport/the-next-world-star-gradus-kraus-heeft-maar-weinig-tijd-nodig-om-weer-te-winnen-tiende-bokszege-is-een-feit~a773f438/)
-> Tien gevechten en tien overwinningen voor bokssensatie Gradus Kraus. De 24-jarige Nederlander vocht, twee maanden na het winnen van de Europese titel, zaterdagavond in Engeland en opnieuw was Kraus...
-
-### [Opluchting bij Slot: Liverpool draait binnen tien minuten stand volledig om tegen Newcastle](https://www.ad.nl/voetbal/opluchting-bij-slot-liverpool-draait-binnen-tien-minuten-stand-volledig-om-tegen-newcastle~a1043cca/)
+### [Florian Wirtz is los bij Liverpool: ploeg van Slot op ruime voorsprong tegen Newcastle](https://www.ad.nl/voetbal/florian-wirtz-is-los-bij-liverpool-ploeg-van-slot-op-ruime-voorsprong-tegen-newcastle~a1043cca/)
 > Arne Slot heeft de goede vorm met Liverpool nog niet gevonden. De regerend landskampioen droomt nog altijd van een plekje bij de top vier, waardoor puntverlies niet veroorloofd is tegen Newcastle...
 
-### [LIVE La Liga | FC Barcelona herstelt voorsprong na assist Frenkie de Jong](https://www.ad.nl/voetbal/live-la-liga-fc-barcelona-herstelt-voorsprong-na-assist-frenkie-de-jong~a4a65035/)
-> FC Barcelona is verwikkeld in een spannende titelstrijd met Real Madrid. De volgende horde van de regerend landskampioen is Elche. Volg het duel vanaf 21.00 uur hier live!
+### [Mito doet het weer voor Sparta, met dank aan klungelende FC Groningen-doelman Vaessen](https://www.ad.nl/voetbal/mito-doet-het-weer-voor-sparta-met-dank-aan-klungelende-fc-groningen-doelman-vaessen~a7bde46d/)
+> Sparta en FC Groningen staan beide op een positie die recht geeft op deelname aan de play-offs. Een overwinning in het onderlinge duel kan deze positie flink verstevigen. Vallen er na een...
 
-### [Kristin (75) dacht de ‘liefste hond ooit’ te adopteren, maar na twee dagen sloeg pitbull Valerio toe](https://www.ad.nl/buitenland/kristin-75-dacht-de-liefste-hond-ooit-te-adopteren-maar-na-twee-dagen-sloeg-pitbull-valerio-toe~ae81e83a/)
-> Het moest de perfecte match zijn: pitbull Valerio en zijn nieuwe baasje Kristin Wright. Maar niets bleek minder waar, want nog geen twee dagen na de adoptie van het dier sloeg het noodlot toe....
+### [Iraniërs wachten elke nacht op nieuws over mogelijk ingrijpen door Amerika](https://www.ad.nl/buitenland/iraniers-wachten-elke-nacht-op-nieuws-over-mogelijk-ingrijpen-door-amerika~a075159e/)
+> Terwijl Donald Trump nog altijd de inzet van de Amerikaanse armada tegen Iran overweegt, wacht een groot deel van een getraumatiseerde bevolking in angst en stilte af op wat komen gaat. Drie weken na...
+
+### [Danny Noppert is oppermachtig tegen Bunting, ook Van Veen naar kwartfinale](https://www.ad.nl/darts/danny-noppert-is-oppermachtig-tegen-bunting-ook-van-veen-naar-kwartfinale~afd30ca8/)
+> Het eerste majortoernooi van de dartskalender in in volle gang: de Winmau World Masters. Michael van Gerwen is recordwinnaar, maar zal nog minstens een jaar moeten wachten op een zesde titel....
 
 
 ## FD
