@@ -3,96 +3,248 @@
 <head>
     <meta charset="UTF-8">
     <meta name="viewport" content="width=device-width, initial-scale=1.0">
-    <title>Mijn Nieuwsoverzicht</title>
+    <title>Nieuwsoverzicht - NOS, AD, FD</title>
     <style>
         * {
             margin: 0;
             padding: 0;
             box-sizing: border-box;
         }
+
         body {
-            font-family: -apple-system, BlinkMacSystemFont, 'Segoe UI', Roboto, sans-serif;
-            background: #f5f5f5;
-            color: #333;
-            line-height: 1.6;
-            padding: 20px;
+            font-family: 'Segoe UI', -apple-system, BlinkMacSystemFont, Roboto, 'Helvetica Neue', sans-serif;
+            background: #f0f2f5;
+            color: #1a1a1a;
+            line-height: 1.5;
         }
-        .container {
-            max-width: 800px;
-            margin: 0 auto;
-        }
-        header {
+
+        .header {
+            background: linear-gradient(135deg, #1a1a2e 0%, #16213e 100%);
+            color: white;
+            padding: 25px 20px;
             text-align: center;
-            padding: 30px 0;
-            border-bottom: 2px solid #ddd;
-            margin-bottom: 30px;
+            box-shadow: 0 2px 10px rgba(0,0,0,0.2);
         }
-        h1 {
-            font-size: 2em;
-            margin-bottom: 10px;
+
+        .header h1 {
+            font-size: 1.8em;
+            font-weight: 700;
+            margin-bottom: 8px;
+            letter-spacing: -0.5px;
         }
-        .update-tijd {
-            color: #666;
-            font-size: 0.9em;
+
+        .header .update-tijd {
+            font-size: 0.85em;
+            opacity: 0.8;
         }
-        .demo {
-            background: #fff3cd;
-            padding: 5px 10px;
-            border-radius: 4px;
-            display: inline-block;
-            margin-top: 10px;
+
+        .demo-badge {
+            background: #ffc107;
+            color: #000;
+            padding: 3px 10px;
+            border-radius: 12px;
+            font-size: 0.75em;
+            font-weight: 600;
+            margin-left: 10px;
+            vertical-align: middle;
         }
+
+        .container {
+            max-width: 1000px;
+            margin: 0 auto;
+            padding: 25px 15px;
+        }
+
+        .bronnen-grid {
+            display: grid;
+            grid-template-columns: repeat(auto-fit, minmax(300px, 1fr));
+            gap: 20px;
+        }
+
         .bron {
             background: white;
-            border-radius: 8px;
-            padding: 20px;
-            margin-bottom: 20px;
-            box-shadow: 0 2px 4px rgba(0,0,0,0.1);
+            border-radius: 12px;
+            overflow: hidden;
+            box-shadow: 0 1px 3px rgba(0,0,0,0.08), 0 4px 12px rgba(0,0,0,0.05);
+            transition: box-shadow 0.2s ease;
         }
-        .bron h2 {
-            color: #1a73e8;
-            margin-bottom: 15px;
-            padding-bottom: 10px;
-            border-bottom: 1px solid #eee;
+
+        .bron:hover {
+            box-shadow: 0 2px 8px rgba(0,0,0,0.12), 0 8px 24px rgba(0,0,0,0.08);
         }
-        .bron ul {
-            list-style: none;
+
+        .bron-header {
+            padding: 15px 20px;
+            border-left: 4px solid;
+            background: #fafafa;
         }
-        .bron li {
-            padding: 10px 0;
+
+        .bron-header h2 {
+            font-size: 1.1em;
+            font-weight: 700;
+            text-transform: uppercase;
+            letter-spacing: 0.5px;
+        }
+
+        .artikelen {
+            padding: 5px 0;
+        }
+
+        .artikel {
             border-bottom: 1px solid #f0f0f0;
         }
-        .bron li:last-child {
+
+        .artikel:last-child {
             border-bottom: none;
         }
-        .bron a {
-            color: #333;
+
+        .artikel-link {
+            display: block;
+            padding: 15px 20px;
             text-decoration: none;
+            color: inherit;
+            transition: background 0.15s ease;
         }
-        .bron a:hover {
-            color: #1a73e8;
+
+        .artikel-link:hover {
+            background: #f8f9fa;
         }
-        footer {
-            text-align: center;
-            padding: 20px;
+
+        .artikel h3 {
+            font-size: 0.95em;
+            font-weight: 600;
+            color: #1a1a1a;
+            margin-bottom: 6px;
+            line-height: 1.4;
+        }
+
+        .artikel-link:hover h3 {
+            color: #0066cc;
+        }
+
+        .beschrijving {
+            font-size: 0.85em;
             color: #666;
+            line-height: 1.5;
+        }
+
+        .footer {
+            text-align: center;
+            padding: 30px 20px;
+            color: #888;
             font-size: 0.8em;
+        }
+
+        .footer a {
+            color: #666;
+        }
+
+        @media (max-width: 640px) {
+            .bronnen-grid {
+                grid-template-columns: 1fr;
+            }
+
+            .header h1 {
+                font-size: 1.4em;
+            }
         }
     </style>
 </head>
 <body>
-    <div class="container">
-        <header>
-            <h1>Nieuwsoverzicht</h1>
-            <p class="update-tijd">Laatst bijgewerkt: 31-01-2026 om 17:53</p>
+    <header class="header">
+        <h1>Nieuwsoverzicht <span class="demo-badge">Demo</span></h1>
+        <p class="update-tijd">Laatst bijgewerkt: 31-01-2026 om 17:53</p>
+    </header>
+
+    <main class="container">
+        <div class="bronnen-grid">
             
-        </header>
+        <section class="bron">
+            <div class="bron-header" style="border-left-color: #f26522">
+                <h2 style="color: #f26522">NOS</h2>
+            </div>
+            <div class="artikelen">
+        
+                    <article class="artikel">
+                        <a href="https://nos.nl/artikel/1" target="_blank" class="artikel-link">
+                            <h3>Kabinet presenteert nieuwe klimaatplannen</h3>
+                            <p class="beschrijving">Het kabinet heeft vandaag nieuwe plannen gepresenteerd om de klimaatdoelen te halen. Minister Van der Wal sprak van een historisch moment.</p>
+                        </a>
+                    </article>
+                    
+                    <article class="artikel">
+                        <a href="https://nos.nl/artikel/2" target="_blank" class="artikel-link">
+                            <h3>Ajax wint met 3-0 van Feyenoord</h3>
+                            <p class="beschrijving">In een spectaculaire Klassieker heeft Ajax met 3-0 gewonnen van Feyenoord. Brobbey scoorde twee keer.</p>
+                        </a>
+                    </article>
+                    
+                    <article class="artikel">
+                        <a href="https://nos.nl/artikel/3" target="_blank" class="artikel-link">
+                            <h3>Zware storm verwacht in het weekend</h3>
+                            <p class="beschrijving">Het KNMI waarschuwt voor zware windstoten dit weekend. Code oranje is afgekondigd voor de kustprovincies.</p>
+                        </a>
+                    </article>
+                    </div></section>
+        <section class="bron">
+            <div class="bron-header" style="border-left-color: #ee3124">
+                <h2 style="color: #ee3124">AD</h2>
+            </div>
+            <div class="artikelen">
+        
+                    <article class="artikel">
+                        <a href="https://ad.nl/artikel/1" target="_blank" class="artikel-link">
+                            <h3>Huizenprijzen stijgen verder in grote steden</h3>
+                            <p class="beschrijving">De gemiddelde huizenprijs in Amsterdam is voor het eerst boven de 600.000 euro gestegen. Starters hebben het steeds moeilijker.</p>
+                        </a>
+                    </article>
+                    
+                    <article class="artikel">
+                        <a href="https://ad.nl/artikel/2" target="_blank" class="artikel-link">
+                            <h3>Nieuwe attractie opent in de Efteling</h3>
+                            <p class="beschrijving">De Efteling opent volgende maand een gloednieuwe achtbaan. Het wordt de snelste attractie van het park.</p>
+                        </a>
+                    </article>
+                    
+                    <article class="artikel">
+                        <a href="https://ad.nl/artikel/3" target="_blank" class="artikel-link">
+                            <h3>Supermarkten verlagen prijzen basisproducten</h3>
+                            <p class="beschrijving">Albert Heijn en Jumbo hebben aangekondigd de prijzen van basisproducten te verlagen na aanhoudende kritiek.</p>
+                        </a>
+                    </article>
+                    </div></section>
+        <section class="bron">
+            <div class="bron-header" style="border-left-color: #c9a66b">
+                <h2 style="color: #c9a66b">FD</h2>
+            </div>
+            <div class="artikelen">
+        
+                    <article class="artikel">
+                        <a href="https://fd.nl/artikel/1" target="_blank" class="artikel-link">
+                            <h3>AEX sluit hoger na positieve kwartaalcijfers</h3>
+                            <p class="beschrijving">De Amsterdamse beurs sloot vandaag 1,2% hoger. Met name techfondsen presteerden goed na meevallende cijfers uit de VS.</p>
+                        </a>
+                    </article>
+                    
+                    <article class="artikel">
+                        <a href="https://fd.nl/artikel/2" target="_blank" class="artikel-link">
+                            <h3>ING verhoogt hypotheekrente</h3>
+                            <p class="beschrijving">ING verhoogt per 1 februari de hypotheekrente met 0,15 procentpunt. Andere banken overwegen te volgen.</p>
+                        </a>
+                    </article>
+                    
+                    <article class="artikel">
+                        <a href="https://fd.nl/artikel/3" target="_blank" class="artikel-link">
+                            <h3>Tech-sector groeit ondanks onzekerheid</h3>
+                            <p class="beschrijving">Nederlandse techbedrijven blijven groeien ondanks economische onzekerheid. ASML rapporteerde recordomzet.</p>
+                        </a>
+                    </article>
+                    </div></section>
+        </div>
+    </main>
 
-        <section class="bron"><h2>NOS</h2><ul><li><a href="https://nos.nl/l/2600430" target="_blank">Bloedige dag in Gaza, net voor heropening grens Rafah</a></li><li><a href="https://nos.nl/l/2600415" target="_blank">'Brave Democraat' Springsteen gaat met protestlied vol in aanval tegen Trump</a></li><li><a href="https://nos.nl/l/2600402" target="_blank">Iraanse oefening in Straat van Hormuz voedt vrees voor escalatie</a></li><li><a href="https://nos.nl/l/2600400" target="_blank">Vogelgriep op pluimveebedrijf Dalen, 15.000 kippen geruimd</a></li><li><a href="https://nos.nl/l/2600397" target="_blank">CDA viert op congres kabinetsdeelname: 'We hebben onze partij opnieuw uitgevonden'</a></li></ul></section><section class="bron"><h2>AD</h2><ul><li><a href="https://www.ad.nl/buitenland/taya-kreeg-door-de-oorlog-een-andere-man-toen-hij-met-verlof-kwam-was-hij-30-kilo-afgevallen~afda6412/" target="_blank">Taya kreeg door de oorlog een andere man: ‘Toen hij met verlof kwam, was hij 30 kilo afgevallen’</a></li><li><a href="https://www.ad.nl/voetbal/nec-overklast-armoedig-az-in-alkmaar-en-klimt-naar-plek-3-gewilde-kodai-sano-blinkt-uit-met-wereldgoal~a694b210/" target="_blank">NEC overklast armoedig AZ in Alkmaar en klimt naar plek 3, gewilde Kodai Sano blinkt uit met wereldgoal</a></li><li><a href="https://www.ad.nl/buitenland/tientallen-doden-en-gewonden-bij-israelische-aanvallen-op-gaza-ook-kinderen~a395cdaf/" target="_blank">Tientallen doden en gewonden bij Israëlische aanvallen op Gaza, ook kinderen</a></li><li><a href="https://www.ad.nl/andere-sporten/waterpolosters-slepen-moeizame-zege-uit-het-vuur-tegen-hongarije-en-blijven-op-koers-voor-europese-titel~ae5e6671/" target="_blank">Waterpolosters slepen moeizame zege uit het vuur tegen Hongarije en blijven op koers voor Europese titel</a></li><li><a href="https://www.ad.nl/voetbal/spelersvakbond-hekelt-werkwijze-az-en-nec-rond-portugese-superagent-spelers-worden-gezien-als-pure-handelswaar~a9ae870f/" target="_blank">Spelersvakbond hekelt werkwijze AZ en NEC rond Portugese superagent: ‘Spelers worden gezien als pure handelswaar’</a></li></ul></section><section class="bron"><h2>FD</h2><ul><li><a href="https://fd.nl/politiek/1585256/bontenbal-cda-kabinetsdeelname-gaat-ook-lastig-worden" target="_blank">Bontenbal (CDA): Kabinetsdeelname gaat ook lastig worden</a></li><li><a href="https://fd.nl/politiek/1585255/trump-draagt-eigen-adviseur-brett-matsumoto-voor-als-nieuwe-baas-statistiekbureau" target="_blank">Trump draagt eigen adviseur Brett Matsumoto voor als nieuwe baas statistiekbureau</a></li><li><a href="https://fd.nl/bedrijfsleven/1585254/miljardendeal-nvidia-en-openai-op-losse-schroeven" target="_blank">‘Miljardendeal Nvidia en OpenAI op losse schroeven’</a></li><li><a href="https://fd.nl/politiek/1585253/amerikaanse-overheid-in-gedeeltelijke-shutdown-vanwege-optreden-ice-in-minneapolis" target="_blank">Amerikaanse overheid in gedeeltelijke shutdown, Huis van Afgevaardigden stemt maandag over deal</a></li><li><a href="https://fd.nl/financiele-markten/1585252/goud-en-zilverprijs-onderuit-na-voordracht-warsh-als-nieuwe-fed-voorzitter" target="_blank">Goud- en zilverprijs hard omlaag na voordracht Warsh als nieuwe Fed-voorzitter</a></li></ul></section>
-
-        <footer>
-            Automatisch bijgewerkt elk uur
-        </footer>
-    </div>
+    <footer class="footer">
+        Automatisch bijgewerkt elk uur
+    </footer>
 </body>
 </html>

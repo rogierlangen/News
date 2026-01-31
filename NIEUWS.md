@@ -1,32 +1,44 @@
 # Nieuwsoverzicht
 
 *Laatst bijgewerkt: 31-01-2026 om 17:53*
+*(Demo modus - voorbeelddata)*
 
 ---
 
 ## NOS
 
-- [Bloedige dag in Gaza, net voor heropening grens Rafah](https://nos.nl/l/2600430)
-- ['Brave Democraat' Springsteen gaat met protestlied vol in aanval tegen Trump](https://nos.nl/l/2600415)
-- [Iraanse oefening in Straat van Hormuz voedt vrees voor escalatie](https://nos.nl/l/2600402)
-- [Vogelgriep op pluimveebedrijf Dalen, 15.000 kippen geruimd](https://nos.nl/l/2600400)
-- [CDA viert op congres kabinetsdeelname: 'We hebben onze partij opnieuw uitgevonden'](https://nos.nl/l/2600397)
+### [Kabinet presenteert nieuwe klimaatplannen](https://nos.nl/artikel/1)
+> Het kabinet heeft vandaag nieuwe plannen gepresenteerd om de klimaatdoelen te halen. Minister Van der Wal sprak van een historisch moment.
+
+### [Ajax wint met 3-0 van Feyenoord](https://nos.nl/artikel/2)
+> In een spectaculaire Klassieker heeft Ajax met 3-0 gewonnen van Feyenoord. Brobbey scoorde twee keer.
+
+### [Zware storm verwacht in het weekend](https://nos.nl/artikel/3)
+> Het KNMI waarschuwt voor zware windstoten dit weekend. Code oranje is afgekondigd voor de kustprovincies.
+
 
 ## AD
 
-- [Taya kreeg door de oorlog een andere man: ‘Toen hij met verlof kwam, was hij 30 kilo afgevallen’](https://www.ad.nl/buitenland/taya-kreeg-door-de-oorlog-een-andere-man-toen-hij-met-verlof-kwam-was-hij-30-kilo-afgevallen~afda6412/)
-- [NEC overklast armoedig AZ in Alkmaar en klimt naar plek 3, gewilde Kodai Sano blinkt uit met wereldgoal](https://www.ad.nl/voetbal/nec-overklast-armoedig-az-in-alkmaar-en-klimt-naar-plek-3-gewilde-kodai-sano-blinkt-uit-met-wereldgoal~a694b210/)
-- [Tientallen doden en gewonden bij Israëlische aanvallen op Gaza, ook kinderen](https://www.ad.nl/buitenland/tientallen-doden-en-gewonden-bij-israelische-aanvallen-op-gaza-ook-kinderen~a395cdaf/)
-- [Waterpolosters slepen moeizame zege uit het vuur tegen Hongarije en blijven op koers voor Europese titel](https://www.ad.nl/andere-sporten/waterpolosters-slepen-moeizame-zege-uit-het-vuur-tegen-hongarije-en-blijven-op-koers-voor-europese-titel~ae5e6671/)
-- [Spelersvakbond hekelt werkwijze AZ en NEC rond Portugese superagent: ‘Spelers worden gezien als pure handelswaar’](https://www.ad.nl/voetbal/spelersvakbond-hekelt-werkwijze-az-en-nec-rond-portugese-superagent-spelers-worden-gezien-als-pure-handelswaar~a9ae870f/)
+### [Huizenprijzen stijgen verder in grote steden](https://ad.nl/artikel/1)
+> De gemiddelde huizenprijs in Amsterdam is voor het eerst boven de 600.000 euro gestegen. Starters hebben het steeds moeilijker.
+
+### [Nieuwe attractie opent in de Efteling](https://ad.nl/artikel/2)
+> De Efteling opent volgende maand een gloednieuwe achtbaan. Het wordt de snelste attractie van het park.
+
+### [Supermarkten verlagen prijzen basisproducten](https://ad.nl/artikel/3)
+> Albert Heijn en Jumbo hebben aangekondigd de prijzen van basisproducten te verlagen na aanhoudende kritiek.
+
 
 ## FD
 
-- [Bontenbal (CDA): Kabinetsdeelname gaat ook lastig worden](https://fd.nl/politiek/1585256/bontenbal-cda-kabinetsdeelname-gaat-ook-lastig-worden)
-- [Trump draagt eigen adviseur Brett Matsumoto voor als nieuwe baas statistiekbureau](https://fd.nl/politiek/1585255/trump-draagt-eigen-adviseur-brett-matsumoto-voor-als-nieuwe-baas-statistiekbureau)
-- [‘Miljardendeal Nvidia en OpenAI op losse schroeven’](https://fd.nl/bedrijfsleven/1585254/miljardendeal-nvidia-en-openai-op-losse-schroeven)
-- [Amerikaanse overheid in gedeeltelijke shutdown, Huis van Afgevaardigden stemt maandag over deal](https://fd.nl/politiek/1585253/amerikaanse-overheid-in-gedeeltelijke-shutdown-vanwege-optreden-ice-in-minneapolis)
-- [Goud- en zilverprijs hard omlaag na voordracht Warsh als nieuwe Fed-voorzitter](https://fd.nl/financiele-markten/1585252/goud-en-zilverprijs-onderuit-na-voordracht-warsh-als-nieuwe-fed-voorzitter)
+### [AEX sluit hoger na positieve kwartaalcijfers](https://fd.nl/artikel/1)
+> De Amsterdamse beurs sloot vandaag 1,2% hoger. Met name techfondsen presteerden goed na meevallende cijfers uit de VS.
+
+### [ING verhoogt hypotheekrente](https://fd.nl/artikel/2)
+> ING verhoogt per 1 februari de hypotheekrente met 0,15 procentpunt. Andere banken overwegen te volgen.
+
+### [Tech-sector groeit ondanks onzekerheid](https://fd.nl/artikel/3)
+> Nederlandse techbedrijven blijven groeien ondanks economische onzekerheid. ASML rapporteerde recordomzet.
 
 ---
 *Automatisch gegenereerd door nieuws.py*
