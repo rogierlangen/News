@@ -1,20 +1,20 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-01-2026 om 17:44*
+*Laatst bijgewerkt: 31-01-2026 om 17:53*
 
 ---
 
 ## NOS
 
+- [Bloedige dag in Gaza, net voor heropening grens Rafah](https://nos.nl/l/2600430)
 - ['Brave Democraat' Springsteen gaat met protestlied vol in aanval tegen Trump](https://nos.nl/l/2600415)
 - [Iraanse oefening in Straat van Hormuz voedt vrees voor escalatie](https://nos.nl/l/2600402)
 - [Vogelgriep op pluimveebedrijf Dalen, 15.000 kippen geruimd](https://nos.nl/l/2600400)
 - [CDA viert op congres kabinetsdeelname: 'We hebben onze partij opnieuw uitgevonden'](https://nos.nl/l/2600397)
-- [Explosies op twee plekken in Iran, vijf doden gemeld](https://nos.nl/l/2600396)
 
 ## AD
 
-- [Voor vrouwen in Oekraïne is alles anders: ‘Dromen over de toekomst is voorbij’](https://www.ad.nl/buitenland/voor-vrouwen-in-oekraine-is-alles-anders-dromen-over-de-toekomst-is-voorbij~afda6412/)
+- [Taya kreeg door de oorlog een andere man: ‘Toen hij met verlof kwam, was hij 30 kilo afgevallen’](https://www.ad.nl/buitenland/taya-kreeg-door-de-oorlog-een-andere-man-toen-hij-met-verlof-kwam-was-hij-30-kilo-afgevallen~afda6412/)
 - [NEC overklast armoedig AZ in Alkmaar en klimt naar plek 3, gewilde Kodai Sano blinkt uit met wereldgoal](https://www.ad.nl/voetbal/nec-overklast-armoedig-az-in-alkmaar-en-klimt-naar-plek-3-gewilde-kodai-sano-blinkt-uit-met-wereldgoal~a694b210/)
 - [Tientallen doden en gewonden bij Israëlische aanvallen op Gaza, ook kinderen](https://www.ad.nl/buitenland/tientallen-doden-en-gewonden-bij-israelische-aanvallen-op-gaza-ook-kinderen~a395cdaf/)
 - [Waterpolosters slepen moeizame zege uit het vuur tegen Hongarije en blijven op koers voor Europese titel](https://www.ad.nl/andere-sporten/waterpolosters-slepen-moeizame-zege-uit-het-vuur-tegen-hongarije-en-blijven-op-koers-voor-europese-titel~ae5e6671/)
