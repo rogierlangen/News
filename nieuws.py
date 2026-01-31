@@ -17,7 +17,7 @@ from datetime import datetime
 FEEDS = {
     "NOS": "https://feeds.nos.nl/nosnieuwsalgemeen",
     "AD": "https://www.ad.nl/rss.xml",
-    "FD": "https://fd.nl/rss/fd-nieuws"
+    "FD": "https://fd.nl/laatste-nieuws?rss"
 }
 
 # Demo data om te laten zien hoe het werkt
