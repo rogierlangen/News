@@ -1,6 +1,7 @@
 """
-Nieuwsaggregator - Stap 1
+Nieuwsaggregator
 Haalt nieuwskoppen op van AD, FD en NOS via RSS feeds.
+Slaat het resultaat op in NIEUWS.md
 
 Gebruik:
     python3 nieuws.py          # Normale modus (haalt echte feeds op)
@@ -10,6 +11,7 @@ Gebruik:
 import urllib.request
 import xml.etree.ElementTree as ET
 import sys
+from datetime import datetime
 
 # RSS feed URLs van de nieuwssites
 FEEDS = {
@@ -43,18 +45,14 @@ DEMO_DATA = {
     ],
 }
 
-def haal_nieuws_op(naam, url, demo_modus=False):
-    """Haalt nieuwsartikelen op van een RSS feed."""
-    print(f"\n{'='*50}")
-    print(f"  {naam}")
-    print('='*50)
 
-    # Demo modus: toon voorbeelddata
+def haal_nieuws_op(naam, url, demo_modus=False):
+    """Haalt nieuwsartikelen op van een RSS feed en geeft ze terug als lijst."""
+    artikelen = []
+
+    # Demo modus: gebruik voorbeelddata
     if demo_modus:
-        for i, (titel, link) in enumerate(DEMO_DATA.get(naam, []), 1):
-            print(f"\n{i}. {titel}")
-            print(f"   Link: {link}")
-        return
+        return DEMO_DATA.get(naam, [])
 
     try:
         # Maak een request met een User-Agent (sommige sites blokkeren anders)
@@ -71,43 +69,84 @@ def haal_nieuws_op(naam, url, demo_modus=False):
         root = ET.fromstring(data)
 
         # Zoek alle items (artikelen) in de feed
-        # RSS feeds hebben meestal deze structuur: rss > channel > item
         items = root.findall('.//item')
 
-        if not items:
-            print("Geen artikelen gevonden")
-            return
-
-        # Toon de eerste 5 artikelen
-        for i, item in enumerate(items[:5], 1):
+        # Verzamel de eerste 5 artikelen
+        for item in items[:5]:
             titel = item.find('title')
             link = item.find('link')
 
-            if titel is not None:
-                print(f"\n{i}. {titel.text}")
-                if link is not None:
-                    print(f"   Link: {link.text}")
+            if titel is not None and titel.text:
+                artikel_link = link.text if link is not None else ""
+                artikelen.append((titel.text, artikel_link))
 
     except Exception as e:
-        print(f"Fout bij ophalen: {e}")
-        print("Tip: Probeer 'python3 nieuws.py --demo' voor een demonstratie")
+        artikelen.append((f"Fout bij ophalen: {e}", ""))
+
+    return artikelen
+
+
+def maak_markdown(alle_artikelen, demo_modus=False):
+    """Maakt een markdown bestand met alle nieuwsartikelen."""
+
+    # Huidige datum en tijd
+    nu = datetime.now().strftime("%d-%m-%Y om %H:%M")
+
+    md = []
+    md.append("# Nieuwsoverzicht")
+    md.append("")
+    md.append(f"*Laatst bijgewerkt: {nu}*")
+    if demo_modus:
+        md.append("*(Demo modus - voorbeelddata)*")
+    md.append("")
+    md.append("---")
+
+    for naam, artikelen in alle_artikelen.items():
+        md.append("")
+        md.append(f"## {naam}")
+        md.append("")
+
+        if not artikelen:
+            md.append("*Geen artikelen gevonden*")
+            continue
+
+        for titel, link in artikelen:
+            if link:
+                md.append(f"- [{titel}]({link})")
+            else:
+                md.append(f"- {titel}")
+
+    md.append("")
+    md.append("---")
+    md.append("*Automatisch gegenereerd door nieuws.py*")
+
+    return "\n".join(md)
+
 
 def main():
     # Check of we in demo modus zijn
     demo_modus = "--demo" in sys.argv
 
-    print("\n" + "="*50)
-    print("   NIEUWSOVERZICHT")
-    if demo_modus:
-        print("   (Demo modus)")
-    print("="*50)
+    print("Nieuws ophalen...")
 
+    # Verzamel nieuws van alle bronnen
+    alle_artikelen = {}
     for naam, url in FEEDS.items():
-        haal_nieuws_op(naam, url, demo_modus)
+        print(f"  - {naam}...")
+        alle_artikelen[naam] = haal_nieuws_op(naam, url, demo_modus)
 
+    # Maak markdown en sla op
+    markdown = maak_markdown(alle_artikelen, demo_modus)
+
+    with open("NIEUWS.md", "w", encoding="utf-8") as f:
+        f.write(markdown)
+
+    print(f"\nKlaar! Nieuws opgeslagen in NIEUWS.md")
+
+    # Toon ook in terminal
     print("\n" + "="*50)
-    print("Klaar!")
-    print("="*50 + "\n")
+    print(markdown)
+
 
 # Start het programma
 if __name__ == "__main__":

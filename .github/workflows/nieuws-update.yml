@@ -1,0 +1,42 @@
+name: Nieuws Updaten
+
+# Wanneer draait dit?
+on:
+  # Elk uur automatisch
+  schedule:
+    - cron: '0 * * * *'  # Elk uur op het hele uur
+
+  # Handmatig starten (via GitHub website)
+  workflow_dispatch:
+
+  # Bij elke push naar main (om te testen)
+  push:
+    branches: [main, master]
+
+jobs:
+  update-nieuws:
+    runs-on: ubuntu-latest
+
+    steps:
+      # Stap 1: Haal de code op
+      - name: Checkout repository
+        uses: actions/checkout@v4
+
+      # Stap 2: Installeer Python
+      - name: Setup Python
+        uses: actions/setup-python@v5
+        with:
+          python-version: '3.11'
+
+      # Stap 3: Draai het script
+      - name: Nieuws ophalen
+        run: python nieuws.py
+
+      # Stap 4: Sla de wijzigingen op
+      - name: Commit en push NIEUWS.md
+        run: |
+          git config --local user.email "github-actions[bot]@users.noreply.github.com"
+          git config --local user.name "github-actions[bot]"
+          git add NIEUWS.md
+          git diff --quiet --staged || git commit -m "Nieuws bijgewerkt $(date +'%d-%m-%Y %H:%M')"
+          git push
