@@ -13,6 +13,9 @@ on:
   push:
     branches: [main, master]
 
+permissions:
+  contents: write
+
 jobs:
   update-nieuws:
     runs-on: ubuntu-latest
