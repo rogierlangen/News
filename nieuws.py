@@ -86,6 +86,131 @@ def haal_nieuws_op(naam, url, demo_modus=False):
     return artikelen
 
 
+def maak_html(alle_artikelen, demo_modus=False):
+    """Maakt een HTML pagina met alle nieuwsartikelen."""
+
+    nu = datetime.now().strftime("%d-%m-%Y om %H:%M")
+
+    # Bouw de artikelen HTML
+    artikelen_html = ""
+    for naam, artikelen in alle_artikelen.items():
+        artikelen_html += f'<section class="bron"><h2>{naam}</h2><ul>'
+
+        if not artikelen:
+            artikelen_html += '<li class="geen">Geen artikelen gevonden</li>'
+        else:
+            for titel, link in artikelen:
+                if link:
+                    artikelen_html += f'<li><a href="{link}" target="_blank">{titel}</a></li>'
+                else:
+                    artikelen_html += f'<li>{titel}</li>'
+
+        artikelen_html += '</ul></section>'
+
+    demo_tekst = '<p class="demo">(Demo modus)</p>' if demo_modus else ''
+
+    html = f'''<!DOCTYPE html>
+<html lang="nl">
+<head>
+    <meta charset="UTF-8">
+    <meta name="viewport" content="width=device-width, initial-scale=1.0">
+    <title>Mijn Nieuwsoverzicht</title>
+    <style>
+        * {{
+            margin: 0;
+            padding: 0;
+            box-sizing: border-box;
+        }}
+        body {{
+            font-family: -apple-system, BlinkMacSystemFont, 'Segoe UI', Roboto, sans-serif;
+            background: #f5f5f5;
+            color: #333;
+            line-height: 1.6;
+            padding: 20px;
+        }}
+        .container {{
+            max-width: 800px;
+            margin: 0 auto;
+        }}
+        header {{
+            text-align: center;
+            padding: 30px 0;
+            border-bottom: 2px solid #ddd;
+            margin-bottom: 30px;
+        }}
+        h1 {{
+            font-size: 2em;
+            margin-bottom: 10px;
+        }}
+        .update-tijd {{
+            color: #666;
+            font-size: 0.9em;
+        }}
+        .demo {{
+            background: #fff3cd;
+            padding: 5px 10px;
+            border-radius: 4px;
+            display: inline-block;
+            margin-top: 10px;
+        }}
+        .bron {{
+            background: white;
+            border-radius: 8px;
+            padding: 20px;
+            margin-bottom: 20px;
+            box-shadow: 0 2px 4px rgba(0,0,0,0.1);
+        }}
+        .bron h2 {{
+            color: #1a73e8;
+            margin-bottom: 15px;
+            padding-bottom: 10px;
+            border-bottom: 1px solid #eee;
+        }}
+        .bron ul {{
+            list-style: none;
+        }}
+        .bron li {{
+            padding: 10px 0;
+            border-bottom: 1px solid #f0f0f0;
+        }}
+        .bron li:last-child {{
+            border-bottom: none;
+        }}
+        .bron a {{
+            color: #333;
+            text-decoration: none;
+        }}
+        .bron a:hover {{
+            color: #1a73e8;
+        }}
+        footer {{
+            text-align: center;
+            padding: 20px;
+            color: #666;
+            font-size: 0.8em;
+        }}
+    </style>
+</head>
+<body>
+    <div class="container">
+        <header>
+            <h1>Nieuwsoverzicht</h1>
+            <p class="update-tijd">Laatst bijgewerkt: {nu}</p>
+            {demo_tekst}
+        </header>
+
+        {artikelen_html}
+
+        <footer>
+            Automatisch bijgewerkt elk uur
+        </footer>
+    </div>
+</body>
+</html>'''
+
+    return html
+
+
 def maak_markdown(alle_artikelen, demo_modus=False):
     """Maakt een markdown bestand met alle nieuwsartikelen."""
 
@@ -137,11 +262,15 @@ def main():
 
     # Maak markdown en sla op
     markdown = maak_markdown(alle_artikelen, demo_modus)
-
     with open("NIEUWS.md", "w", encoding="utf-8") as f:
         f.write(markdown)
 
-    print(f"\nKlaar! Nieuws opgeslagen in NIEUWS.md")
+    # Maak HTML en sla op
+    html = maak_html(alle_artikelen, demo_modus)
+    with open("index.html", "w", encoding="utf-8") as f:
+        f.write(html)
+
+    print(f"\nKlaar! Nieuws opgeslagen in NIEUWS.md en index.html")
 
     # Toon ook in terminal
     print("\n" + "="*50)

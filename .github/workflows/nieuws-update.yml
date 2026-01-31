@@ -36,11 +36,11 @@ jobs:
         run: python nieuws.py
 
       # Stap 4: Sla de wijzigingen op
-      - name: Commit en push NIEUWS.md
+      - name: Commit en push nieuws
         run: |
           git config --local user.email "github-actions[bot]@users.noreply.github.com"
           git config --local user.name "github-actions[bot]"
-          git add NIEUWS.md
+          git add NIEUWS.md index.html
           git diff --quiet --staged || git commit -m "Nieuws bijgewerkt $(date +'%d-%m-%Y %H:%M')"
           git pull --rebase
           git push
