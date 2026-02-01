@@ -1,13 +1,17 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-01-2026 om 23:45*
+*Laatst bijgewerkt: 01-02-2026 om 05:18*
 
 ---
 
 ## NOS
 
-### [Zeer grote brand in Alblasserdam, A15 afgesloten](https://nos.nl/l/2600473)
-> In Alblasserdam woedt een uitslaande brand in een cateringbedrijf op een industrieterrein. Brandweerkorpsen uit de hele regio zijn opgeroepen om het vuur te blussen. Het is te gevaarlijk om het...
+### [Opgepakte kleuter en vader Minneapolis moeten worden vrijgelaten](https://nos.nl/l/2600474)
+> De Amerikaanse regering moet uiterlijk dinsdag de 5-jarige Liam Conejo Ramos en zijn vader Adrian vrijlaten. Dat besliste de Amerikaanse rechter zaterdag. De kleuter en zijn vader werden in januari...
+
+### [Zeer grote brand in Alblasserdam onder controle, A15 weer open](https://nos.nl/l/2600473)
+> In Alblasserdam is de brandweer uren bezig geweest met het blussen van een grote brand in een cateringbedrijf.
+        De brand brak zaterdagavond uit en al snel sloegen de vlammen uit het dak. Omdat...
 
 ### [Hond doodgeschoten door man in Wapse, politie doet onderzoek](https://nos.nl/l/2600454)
 > In het Drentse dorp Wapse is gisteravond een hond doodgeschoten. De politie bevestigt het incident tegen het Dagblad van het Noorden. De eigenaar van de hond zegt tegen de krant dat ze in een...
@@ -18,29 +22,32 @@
 ### [Het coalitieakkoord en de Caribische eilanden: wat is echt nieuw?](https://nos.nl/l/2600448)
 > Het coalitieakkoord van D66, VVD en CDA zet de Caribische eilanden nadrukkelijk op de agenda. Aankomend premier Jetten spreekt over "grote stappen" voor Bonaire, Sint-Eustatius en Saba, met een...
 
-### [Vijf jaar na coup zijn honderdduizenden Myanmarezen naar Thailand gevlucht](https://nos.nl/l/2600444)
-> Het is niet lang geleden dat het verzet in Myanmar het leger aan het wankelen kreeg, maar vijf jaar na de staatsgreep lijkt het leger weer grip te krijgen op de burgeroorlog. Het boekt meer en meer...
-
 
 ## AD
 
-### [Titelverdediger Luke Humphries zet zaal op zijn kop met 9-darter, bekijk de beelden](https://www.ad.nl/darts/titelverdediger-luke-humphries-zet-zaal-op-zijn-kop-met-9-darter-bekijk-de-beelden~afd30ca8/)
-> Het eerste majortoernooi van de dartskalender in in volle gang: de Winmau World Masters. Michael van Gerwen is recordwinnaar, maar zal nog minstens een jaar moeten wachten op een zesde titel....
+### [Bandenfabrikanten voor de rechter wegens massale sterfte van zalmen langs hele westkust van Amerika](https://www.ad.nl/auto/bandenfabrikanten-voor-de-rechter-wegens-massale-sterfte-van-zalmen-langs-hele-westkust-van-amerika~a167ad83/)
+> Michelin, Bridgestone, Pirelli en tien andere internationale bandenfabrikanten moesten zich deze week voor de rechter in San Francisco verantwoorden wegens het vervuilen van rivieren met een chemisch...
 
-### [FC Barcelona blijft koploper na winst op Elche, Frenkie de Jong belangrijk met prachtige actie](https://www.ad.nl/voetbal/fc-barcelona-blijft-koploper-na-winst-op-elche-frenkie-de-jong-belangrijk-met-prachtige-actie~a4a65035/)
-> FC Barcelona blijft ook na dit weekend de koploper in La Liga. De Catalanen wonnen de uitwedstrijd tegen Elche met 1-3. Frenkie de Jong had een belangrijk aandeel in de zege met een schitterende...
+### [Wonderbaarlijke wederopstanding in Amerikaanse kliniek na ellendig ziektebed: ‘Ik heb mijn leven terug’](https://www.ad.nl/binnenland/wonderbaarlijke-wederopstanding-in-amerikaanse-kliniek-na-ellendig-ziektebed-ik-heb-mijn-leven-terug~a2cb2b9b5/)
+> Gert-Jan van Duren (62) werd landelijk bekend omdat hij door een chronische ziekte alleen nog liggend kon leven. Zijn situatie was uitzichtloos, euthanasie goldt als een optie. Na zes jaar ellende...
 
-### [Sparta verslaat ook FC Groningen en noteert langste zegereeks in ruim 50 jaar](https://www.ad.nl/voetbal/sparta-verslaat-ook-fc-groningen-en-noteert-langste-zegereeks-in-ruim-50-jaar~a7bde46d/)
-> Sparta blijft de overwinningen in de eredivisie aaneenrijgen. Na Feyenoord en FC Utrecht moest dankzij twee goals van Shunsuke Mito ook FC Groningen (2-0) eraan geloven. De Rotterdammers zijn bezig...
+### [Kendrick Lamar met negen nominaties opnieuw grote favoriet op Grammy Awards](https://www.ad.nl/show/kendrick-lamar-met-negen-nominaties-opnieuw-grote-favoriet-op-grammy-awards~a5616cd2/)
+> De Amerikaanse hiphopster Kendrick Lamar is zondag opnieuw de grote favoriet bij de uitreiking van de 68e editie van de Grammy Awards. Hij is genomineerd in negen categorieën. Ook Lady Gaga is een...
 
-### [Opluchting bij Arne Slot: Liverpool boekt eerste competitiezege van het jaar tegen Newcastle United](https://www.ad.nl/voetbal/opluchting-bij-arne-slot-liverpool-boekt-eerste-competitiezege-van-het-jaar-tegen-newcastle-united~a1043cca/)
-> Liverpool heeft zijn eerste Premier League-overwinning van 2026 geboekt. De ploeg van trainer Arne Slot won in een vermakelijk duel met 4-1 van Newcastle United. Hugo Ekitike was de belangrijkste man...
+### [Meer dan 120 doden bij reeks aanvallen in Pakistan](https://www.ad.nl/buitenland/meer-dan-120-doden-bij-reeks-aanvallen-in-pakistan~a49837e5/)
+> In het zuidwesten van Pakistan zijn zaterdag meer dan 120 mensen om het leven gekomen bij een reeks ‘gecoördineerde’ aanvallen die volgens het leger zijn opgeëist door separatisten. In de provincie...
 
-### [Bruce Springsteen speelt protestlied voor het eerst live: ‘Soms moet je iemand een klap in z’n gezicht geven’](https://www.ad.nl/show/bruce-springsteen-speelt-protestlied-voor-het-eerst-live-soms-moet-je-iemand-een-klap-in-zn-gezicht-geven~adeb1ea4/)
-> Bruce Springsteen heeft vrijdagavond voor het eerst zijn protestlied Streets of Minneapolis live gespeeld, tijdens een protest in de gelijknamige stad. Duizenden mensen demonstreerden tegen...
+### [Iran: vooruitgang geboekt bij onderhandelingen met VS](https://www.ad.nl/buitenland/iran-vooruitgang-geboekt-bij-onderhandelingen-met-vs~a395cdaf/)
+> De hoogste veiligheidsfunctionaris van Iran heeft zaterdag gezegd dat Teheran vooruitgang boekt richting onderhandelingen met de Verenigde Staten om een militaire confrontatie te voorkomen. Volg alle...
 
 
 ## FD
+
+### [Contact leggen in de Waterleidingduinen: ‘alarm, een hert’](https://fd.nl/bedrijfsleven/1584748/contact-leggen-in-de-waterleidingduinen-alarm-een-hert)
+> Zzp’ers delen hun twijfels en tips tijdens een netwerkwandeling. ‘Als ondernemer moet ik mijzelf blootgeven.’
+
+### [Luisterverhaal: De goudprijs stijgt en dat betekent kassa voor Zwitserland](https://fd.nl/samenleving/1585212/luisterverhaal-de-goudprijs-stijgt-en-dat-betekent-kassa-voor-zwitserland)
+> Deze week hoor je het verhaal over de Zwitserse goudbusiness. Het FD bezocht de goudsmelterij Valcambi.
 
 ### [Bontenbal (CDA): Kabinetsdeelname gaat ook lastig worden](https://fd.nl/politiek/1585256/bontenbal-cda-kabinetsdeelname-gaat-ook-lastig-worden)
 > CDA-leider claimt op nieuwjaarscongres een bezuiniging op de hoogte van de AOW-uitkering tegen te hebben gehouden in de formatie.
@@ -50,12 +57,6 @@
 
 ### [‘Miljardendeal Nvidia en OpenAI op losse schroeven’](https://fd.nl/bedrijfsleven/1585254/miljardendeal-nvidia-en-openai-op-losse-schroeven)
 > Nvidia zou niet meer zeker zijn van een eerder aangekondigde deal met OpenAI.
-
-### [Amerikaanse overheid in gedeeltelijke shutdown, Huis van Afgevaardigden stemt maandag over deal](https://fd.nl/politiek/1585253/amerikaanse-overheid-in-gedeeltelijke-shutdown-vanwege-optreden-ice-in-minneapolis)
-> Democraten en Republikeinen zijn het nog niet eens geworden over een begroting voor een aantal federale overheidsinstanties in de VS, na kritiek op optreden van immigratiedienst ICE.
-
-### [Goud- en zilverprijs hard omlaag na voordracht Warsh als nieuwe Fed-voorzitter](https://fd.nl/financiele-markten/1585252/goud-en-zilverprijs-onderuit-na-voordracht-warsh-als-nieuwe-fed-voorzitter)
-> De prijs van edelmetalen daalt flink na Trumps voordracht van Kevin Warsh als nieuwe Fed-voorzitter.
 
 ---
 *Automatisch gegenereerd door nieuws.py*
