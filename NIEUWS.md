@@ -1,10 +1,13 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-02-2026 om 14:56*
+*Laatst bijgewerkt: 01-02-2026 om 15:51*
 
 ---
 
 ## NOS
+
+### [Jongen (15) in brand gestoken in België](https://nos.nl/l/2600540)
+> In de Brusselse gemeente Anderlecht is een jongen van 15 jaar in brand gestoken door meerdere verdachten. Het slachtoffer raakte zwaargewond en werd overgebracht naar het brandwondencentrum van het...
 
 ### [Khamenei waarschuwt voor regionaal conflict als VS Iran aanvalt](https://nos.nl/l/2600530)
 > Als de VS besluit om Iran aan te vallen zal dat leiden tot een regionaal conflict in het Midden-Oosten, zo waarschuwt ayatollah Khamenei vandaag via Iraanse media. "Wij willen geen enkel land...
@@ -19,29 +22,32 @@
 > Bij aanvallen van militanten in Zuidwest-Pakistan en daaropvolgende acties van ordetroepen zijn volgens de autoriteiten bijna 200 mensen om het leven gekomen.
         Volgens het Pakistaanse leger...
 
-### [Carnavalswagen bouwen steeds duurder, daarom betalen gemeenten mee](https://nos.nl/l/2600505)
-> Het bouwen van een carnavalswagen wordt steeds duurder. De energiekosten stijgen, net als de kosten voor het materiaal en de verzekering. Gemeenten springen steeds vaker financieel bij, om te...
-
 
 ## AD
 
-### [PSV op ruime voorsprong tegen Feyenoord, beide coaches voeren wissels door](https://www.ad.nl/voetbal/psv-op-ruime-voorsprong-tegen-feyenoord-beide-coaches-voeren-wissels-door~a776da05/)
-> PSV staat op voorsprong in de topper tegen Feyenoord. Armando Obispo, Guus Til en Ismael Saibari bezorgden de thuisploeg een droomstart. Volg het duel hier live!
+### [LIVE eredivisie | FC Utrecht begonnen aan duel in Heerenveen, kan Alarcón zich meteen laten gelden?](https://www.ad.nl/voetbal/live-eredivisie-fc-utrecht-begonnen-aan-duel-in-heerenveen-kan-alarcon-zich-meteen-laten-gelden~aa56b3864/)
+> FC Utrecht is begonnen aan de wedstrijd in Heerenveen. Kunnen de Domstedelingen in het Abe Lenstra Stadion de eerste zege in de eredivisie boeken sinds 9 november? Volg het hier.
 
-### [Gian van Veen strijdt tegen James Wade om plekje in halve finale](https://www.ad.nl/darts/gian-van-veen-strijdt-tegen-james-wade-om-plekje-in-halve-finale~afd30ca8/)
-> Het eerste majortoernooi van de dartskalender is in volle gang: de Winmau World Masters. Michael van Gerwen is recordwinnaar, maar zal nog minstens een jaar moeten wachten op een zesde titel....
+### [Timon Wellenreuther hard over ‘onacceptabel’ begin Feyenoord: ‘Het was echt een ramp’](https://www.ad.nl/voetbal/timon-wellenreuther-hard-over-onacceptabel-begin-feyenoord-het-was-echt-een-ramp~ab3f2cee/)
+> Feyenoord likt de wonden na de pijnlijke nederlaag in de topper tegen PSV. De Rotterdammers gingen met 3-0 onderuit, na drie goals in de eerste zeventien minuten. Captain Timon Wellenreuther geloofde...
 
-### [Lady Gaga bekritiseert ICE tijdens concert in Tokio: ‘Levens worden voor onze ogen verwoest’](https://www.ad.nl/show/lady-gaga-bekritiseert-ice-tijdens-concert-in-tokio-levens-worden-voor-onze-ogen-verwoest~a98a9d7a/)
-> Lady Gaga heeft zich uitgesproken tegen de acties van de Amerikaanse immigratiedienst ICE tijdens een optreden in Tokio. Volgens de zangeres worden ‘kinderen en families’ in de VS ‘genadeloos...
+### [Heracles boekt cruciale zege op Fortuna en staat laatste plaats in eredivisie af aan Telstar](https://www.ad.nl/voetbal/heracles-boekt-cruciale-zege-op-fortuna-en-staat-laatste-plaats-in-eredivisie-af-aan-telstar~ab8cce04/)
+> Heracles Almelo heeft een cruciale thuiszege geboekt op Fortuna Sittard. De ploeg van Ernest Faber was met 2-1 te sterk voor het machteloze Fortuna en dat zorgde voor een feest in het Erve Asito...
 
-### [Ayatollah Khamenei waarschuwt voor groot conflict als VS zijn land aanvalt](https://www.ad.nl/buitenland/ayatollah-khamenei-waarschuwt-voor-groot-conflict-als-vs-zijn-land-aanvalt~a308ca57/)
-> De hoogste Iraanse leider ayatollah Ali Khamenei heeft gewaarschuwd voor een groot conflict als de Verenigde Staten zijn land aanvallen. „De Amerikanen moeten weten dat als ze een oorlog beginnen,...
+### [Amerika zet gescheiden Nederlander halsoverkop uit: zonder geld en papieren terug naar Almelo](https://www.ad.nl/binnenland/amerika-zet-gescheiden-nederlander-halsoverkop-uit-zonder-geld-en-papieren-terug-naar-almelo~ae90baaf/)
+> Een in Nederland geboren inwoner van de Amerikaanse staat Californië is vrijdag op last van de Amerikaanse overheid het land uitgezet. In de daaropvolgende nacht stond hij om 01.00 uur op de stoep...
 
-### [Kijk op deadlinedag live de Transfershow op deze site!](https://www.ad.nl/sport/kijk-op-deadlinedag-live-de-transfershow-op-deze-site~a1d5be67/)
-> Samen met FC Afkicken zendt deze site dinsdag 3 februari vanaf 6 uur ’s ochtends live de Transfershow uit. Die dag sluit de wintertransferperiode in Nederland. We volgen in de dynamische liveshow de...
+### [PSV heeft 17 punten voorsprong, NEC en Ajax hijgen Feyenoord in de nek: dit is de stand](https://www.ad.nl/voetbal/psv-heeft-17-punten-voorsprong-nec-en-ajax-hijgen-feyenoord-in-de-nek-dit-is-de-stand~adadd191/)
+> Bekijk hier de stand in de eredivisie. Daaronder zijn het programma en de topscorersranglijst te vinden.
 
 
 ## FD
+
+### [Panamese rechter blokkeert verkoop havens aan BlackRock-consortium](https://fd.nl/bedrijfsleven/1585348/panamese-rechter-blokkeert-verkoop-havens-aan-blackrock-consortium)
+> De exploitatievergunning van de Hongkongse eigenaar Hutchison is ongrondwettelijk verklaard. Een dochter van de Deense rederij Maersk wordt tijdelijk beheerder van de havens.
+
+### [Als de wereld uiteenvalt kost dat 37% rendement, althans volgens de Noren](https://fd.nl/financiele-markten/1585260/als-de-wereld-uiteenvalt-kost-dat-37-rendement-althans-volgens-de-noren)
+> Aan alle kanten liggen gevaren op de loer voor beleggers. Het Noorse staatsfonds NBIM zette ze op een rijtje.
 
 ### [Zonder Nederlands keurmerk geen aftrek voor gift aan buitenlandse club](https://fd.nl/politiek/1585288/zonder-nederlands-keurmerk-geen-aftrek-voor-gift-aan-buitenlandse-club)
 > De vereiste Nederlandse registratie als algemeen nut beogende instelling vormt volgens de Hoge Raad geen inbreuk op het vrije verkeer van kapitaal.
@@ -51,12 +57,6 @@
 
 ### [Prijswinnende onderzoeker: ‘Schimmels handelen zoals op een beursvloer – en ze manipuleren de markt’](https://fd.nl/samenleving/1584485/prijswinnende-vu-onderzoeker-toby-kiers-schimmels-handelen-zoals-op-een-beursvloer-en-ze-manipuleren-de-markt)
 > Schimmels en planten wisselen voedingsstoffen uit met elkaar. VU-bioloog Toby Kiers ontdekte dat schimmels daarbij lepe handelsstrategieën gebruiken en manipuleren.
-
-### [‘Opec+ gaat productie niet verhogen’](https://fd.nl/economie/1585258/opec-gaat-productie-niet-verhogen)
-> Ook bij een gestegen olieprijs houden de landen vast aan hun huidige productieplafond.
-
-### [Bitcoin onder $80.000](https://fd.nl/financiele-markten/1585343/bitcoin-onder-80-000)
-> De koers van bitcoin, de grootste cryptomunt ter wereld, is dit weekeinde ruim onder de $80.000 gezakt.
 
 ---
 *Automatisch gegenereerd door nieuws.py*
