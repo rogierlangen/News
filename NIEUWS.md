@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-02-2026 om 17:54*
+*Laatst bijgewerkt: 01-02-2026 om 19:05*
 
 ---
 
@@ -25,38 +25,38 @@
 
 ## AD
 
-### [Nederlandse teamsprinters verrassend buiten medailles op EK baanwielrennen](https://www.ad.nl/wielrennen/nederlandse-teamsprinters-verrassend-buiten-medailles-op-ek-baanwielrennen~af2bc33e/)
-> De Nederlandse teamsprinters hebben enigszins verrassend geen medaille veroverd op de EK baanwielrennen in het Turkse Konya. De ploeg onder aanvoering van meervoudig olympisch- en wereldkampioen...
+### [Vuilnisman Jurick rijdt dikke auto en droomt van een villa: ‘Mensen vragen waar ik het van doe’](https://www.ad.nl/binnenland/vuilnisman-jurick-rijdt-dikke-auto-en-droomt-van-een-villa-mensen-vragen-waar-ik-het-van-doe~acd30c0f/)
+> Door de week rijdt Jurick Victoria (33) in een vuilniswagen. In het weekeinde scheurt hij in een ‘dikke auto’ naar feesten en partijen, waar hij is geboekt als entertainer. „Ik ben een enorm...
 
-### [Opgepakte Liam (5) en zijn vader vrijgelaten op bevel van de rechter](https://www.ad.nl/buitenland/opgepakte-liam-5-en-zijn-vader-vrijgelaten-op-bevel-van-de-rechter~a0f72f91/)
-> De 5-jarige Liam Conejo Ramos en zijn vader zijn vrijgelaten op bevel van de rechter. De twee werden in Minnesota aangehouden door immigratieagenten en vastgehouden in een ICE-detentiecentrum in...
+### [Mathieu van der Poel de koning te rijk met record: ‘Acht wereldtitels nooit kunnen denken’](https://www.ad.nl/wielrennen/mathieu-van-der-poel-de-koning-te-rijk-met-record-acht-wereldtitels-nooit-kunnen-denken~a9cd0e83/)
+> Onder toeziend oog van koning Willem-Alexander reed Mathieu van der Poel naar zijn record van acht wereldtitels. Wie was in Hulst de echte koning? ,,Dat is een hele goede vraag.’’
 
-### [Jesper Karlsson bezorgt FC Utrecht in Heerenveen eerste punt van 2026](https://www.ad.nl/voetbal/jesper-karlsson-bezorgt-fc-utrecht-in-heerenveen-eerste-punt-van-2026~aa56b3864/)
-> FC Utrecht heeft het negatieve record van zes nederlagen in successie niet verder uitgebreid. Tegen SC Heerenveen stopte de teller bij 1-1 en daarover mocht de ploeg niet klagen.
+### [Go Ahead Eagles moet op bezoek bij FC Volendam degradatiezorgen wegnemen](https://www.ad.nl/voetbal/go-ahead-eagles-moet-op-bezoek-bij-fc-volendam-degradatiezorgen-wegnemen~abc03211/)
+> Go Ahead Eagles won vorig seizoen de beker en kon daardoor meermaals stunten in de Europa League dit seizoen, maar in de Vriendenloterij Eredivisie staat de club uit Deventer en niet goed voor. Een...
 
-### [Clubleiding van Feyenoord moet afwegen of debacle tegen PSV zonder consequenties kan blijven](https://www.ad.nl/voetbal/clubleiding-van-feyenoord-moet-afwegen-of-debacle-tegen-psv-zonder-consequenties-kan-blijven~a17b8df9b/)
-> Robin van Persie zag tegen PSV helemaal niets terug van waar vooraf op had gehamerd bij zijn spelers. De clubleiding van Feyenoord moet afwegen of het verstandig is om ook dit te negeren. Van Persie...
+### [Ciro Immobile naar Frankrijk, Sparta laat oog vallen op Finse buitenspeler](https://www.ad.nl/voetbal/ciro-immobile-naar-frankrijk-sparta-laat-oog-vallen-op-finse-buitenspeler~ab25b5bd/)
+> De winterse transfermarkt is tot en met dinsdag 3 februari geopend. Welke clubs versterken zich? En welke club raakt nog een belangrijke speler kwijt? In TransferTalk blijf je op de hoogte!
 
-### [Kluun: ‘Ik zeg altijd tegen mijn dochters: één of honderd bedpartners, dat bepaal je zelf’](https://www.ad.nl/binnenland/kluun-ik-zeg-altijd-tegen-mijn-dochters-een-of-honderd-bedpartners-dat-bepaal-je-zelf~a73364cb/)
-> De stand-up-pedagoog wordt hij inmiddels genoemd. Twee jaar lang trok Kluun (61) het land door met een voorstelling over het tienerbrein. Dinsdag sluit hij in Breda zijn ‘puberproject’ af, een...
+### [In Gaza komt Trumps vredesplan nog moeizaam op gang, grensovergang wél open](https://www.ad.nl/buitenland/in-gaza-komt-trumps-vredesplan-nog-moeizaam-op-gang-grensovergang-wel-open~a0bd4bf6/)
+> Terwijl het lichaam van de laatste gijzelaar inmiddels is begraven in Israël, lijkt er op de grond in Gaza nog niet veel veranderd. Trumps vredesvisie moet zorgen voor de ontwapening van Hamas en de...
 
 
 ## FD
 
+### [Capgemini wil einde aan samenwerking met ICE](https://fd.nl/bedrijfsleven/1585353/capgemini-wil-einde-aan-samenwerking-met-ice)
+> Het Franse IT-bedrijf is mikpunt van kritiek, omdat het de Amerikaanse immigratiedienst ICE assisteert bij het opsporen van illegale immigranten.
+
+### [Investeringen coalitie moeten niet alleen naar defensie](https://fd.nl/opinie/1585347/investeringen-coalitie-moeten-niet-alleen-naar-defensie)
+> Het is begrijpelijk dat de Navo-miljarden het coalitieakkoord domineren, maar dat kan een tandje minder, ten gunste van andere investeringen.
+
+### [Voor de oppositie moeten de onderhandelingen nog beginnen](https://fd.nl/politiek/1585262/voor-de-oppositie-moeten-de-onderhandelingen-nog-beginnen)
+> GroenLinks-PvdA wil nog steeds akkoorden sluiten met het minderheidskabinet, maar alleen als de coalitie ‘fundamenteel’ van koers verandert.
+
+### [Europese Commissie: ‘Als Europa niet nu voor zichzelf kiest, lopen we veel risico’](https://fd.nl/opinie/1585283/als-europa-niet-kiest-voor-made-in-europa-dreigen-we-een-lopende-band-voor-anderen-te-worden)
+> Een oproep van Eurocommissaris Stéphane Séjourné (Welvaart & Industriële Strategie), ondertekend door 1141 ceo’s en industrieleiders, om te kiezen voor ‘Made in Europa’.
+
 ### [Brenninkmeijers naar Nederland met private-equityfirma](https://fd.nl/bedrijfsleven/1585204/brenninkmeijers-naar-nederland-met-private-equityfirma)
 > De welgestelde familie Brenninkmeijer beheert een vermogen van ruim €35 mrd. Met een eigen private-equityfirma gaan ze vanuit Amsterdam van start.
-
-### [Nestlé ‘begon te laat’ met terugroepactie besmet melkpoeder](https://fd.nl/bedrijfsleven/1585261/nestle-begon-te-laat-met-terugroepactie-besmet-melkpoeder)
-> Het bedrijf liet nog weken voorbijgaan toen het al wist van de cereulide-besmetting, is de kritiek in Frankrijk. De dood van twee baby’s wordt onderzocht.
-
-### [Beoogd Fed-voorzitter een havik? ‘Kevin Warsh is een politiek dier’](https://fd.nl/economie/1585349/beoogd-fed-voorzitter-een-havik-kevin-warsh-is-een-politiek-dier)
-> Is de beoogde nieuwe Fed-voorzitter Kevin Warsh inderdaad de degelijke havik waar financiële markten op hopen? Dat kan wel eens vies tegenvallen, waarschuwt econoom Paul Krugman.
-
-### [Panamese rechter blokkeert verkoop havens aan BlackRock-consortium](https://fd.nl/bedrijfsleven/1585348/panamese-rechter-blokkeert-verkoop-havens-aan-blackrock-consortium)
-> De exploitatievergunning van de Hongkongse eigenaar Hutchison is ongrondwettelijk verklaard. Een dochter van de Deense rederij Maersk wordt tijdelijk beheerder van de havens.
-
-### [Als de wereld uiteenvalt kost dat 37% rendement, althans volgens de Noren](https://fd.nl/financiele-markten/1585260/als-de-wereld-uiteenvalt-kost-dat-37-rendement-althans-volgens-de-noren)
-> Aan alle kanten liggen gevaren op de loer voor beleggers. Het Noorse staatsfonds NBIM zette ze op een rijtje.
 
 ---
 *Automatisch gegenereerd door nieuws.py*
