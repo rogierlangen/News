@@ -1,10 +1,13 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-02-2026 om 20:54*
+*Laatst bijgewerkt: 01-02-2026 om 21:47*
 
 ---
 
 ## NOS
+
+### [Code geel in het noorden door gladheid, al meerdere ongelukken](https://nos.nl/l/2600593)
+> Vanaf vanavond is er in het noorden en noordoosten van het land kans op plaatselijke gladheid door ijzel. In de provincies Groningen, Drenthe en Friesland en op de Wadden geldt code geel, meldt het...
 
 ### [Israël: Artsen zonder Grenzen moet 28 februari uit Gaza weg zijn](https://nos.nl/l/2600590)
 > Israël wil Artsen zonder Grenzen (AzG) definitief weg hebben uit Gaza. Het ministerie van Diaspora heeft bekendgemaakt dat er "stappen zijn gezet om een einde te maken aan de activiteiten van Artsen...
@@ -19,26 +22,23 @@
 ### [GroenLinks-PvdA: alleen steun aan coalitieplannen 'als roer drastisch omgaat'](https://nos.nl/l/2600552)
 > GroenLinks-PvdA-leider Jesse Klaver wil de financiële plannen voor de zorg en sociale zekerheid van de nieuwe coalitie van D66, VVD en CDA alleen steunen "als het roer drastisch omgaat". Klaver geeft...
 
-### [Jongen (15) in brand gestoken in België](https://nos.nl/l/2600540)
-> In de Brusselse gemeente Anderlecht is een jongen van 15 jaar in brand gestoken door meerdere verdachten. Het slachtoffer is in levensgevaar overgebracht naar het brandwondencentrum van het Militair...
-
 
 ## AD
 
-### [Weg met de schermen: minder knoppen in auto leidt tot meer ongelukken](https://www.ad.nl/auto/weg-met-de-schermen-minder-knoppen-in-auto-leidt-tot-meer-ongelukken~a9f237cf/)
-> Je weg vinden in een moderne auto is vaak een hele toer. Veel handelingen die je ooit automatisch op de tast deed, vergen nu een zoektocht door menustructuren. Hoe erg is dat? Autoweek zocht dat uit...
+### [Memphis Depay wint Braziliaanse supercup met Corinthians, Noa Lang wint bij debuut voor Galatasaray](https://www.ad.nl/voetbal/memphis-depay-wint-braziliaanse-supercup-met-corinthians-noa-lang-wint-bij-debuut-voor-galatasaray~a74f431c/)
+> Memphis Depay heeft zondagavond met zijn club Corinthians de Supercopa do Brasil gewonnen. De Braziliaanse bekerwinnaar won in de finale met 2-0 van landskampioen Flamengo.
 
-### [Robert Mühren maakt gelijk namens Volendam tegen tien man Go Ahead Eagles](https://www.ad.nl/voetbal/robert-muhren-maakt-gelijk-namens-volendam-tegen-tien-man-go-ahead-eagles~abc03211/)
-> Go Ahead Eagles won vorig seizoen de beker en kon daardoor meermaals stunten in de Europa League dit seizoen, maar in de Vriendenloterij Eredivisie staat de club uit Deventer en niet goed voor. Een...
+### [NEC haalt Willumsson terug naar eredivisie, Lookman naar Atlético Madrid](https://www.ad.nl/voetbal/nec-haalt-willumsson-terug-naar-eredivisie-lookman-naar-atletico-madrid~ab25b5bd/)
+> De winterse transfermarkt is tot en met dinsdag 3 februari geopend. Welke clubs versterken zich? En welke club raakt nog een belangrijke speler kwijt? In TransferTalk blijf je op de hoogte!
 
-### [Gian van Veen door eigen fouten kansloos onderuit in halve finale tegen ontketende Luke Humphries](https://www.ad.nl/darts/gian-van-veen-door-eigen-fouten-kansloos-onderuit-in-halve-finale-tegen-ontketende-luke-humphries~afd30ca8/)
+### [Luke Humphries na afgetekende zege op Gian van Veen in finale tegen Luke Littler](https://www.ad.nl/darts/luke-humphries-na-afgetekende-zege-op-gian-van-veen-in-finale-tegen-luke-littler~afd30ca8/)
 > Het is Gian van Veen niet gelukt om door te stoten naar de finale van de Winmau World Masters. De Nederlander was niet opgewassen tegen een ontketende Luke Humphries (5-0). Van Veen was de laatste...
 
-### [Dit is de winnaar van Maestro 2026: ‘Je hebt alles gegeven en het was elke week weer verbluffend’](https://www.ad.nl/show/dit-is-de-winnaar-van-maestro-2026-je-hebt-alles-gegeven-en-het-was-elke-week-weer-verbluffend~a6d2cce0/)
-> Het hoge woord is eruit: Jamai Loman mag zich de winnaar van dirigentenprogramma Maestro noemen. Een verrassing is dat niet: Loman (39) gold het hele seizoen als favoriet voor de winst en haalde de...
+### [Robert Mühren helpt FC Volendam kort na invalbeurt aan gelijkspel tegen tien man Go Ahead Eagles](https://www.ad.nl/voetbal/robert-muhren-helpt-fc-volendam-kort-na-invalbeurt-aan-gelijkspel-tegen-tien-man-go-ahead-eagles~abc03211/)
+> FC Volendam heeft in de thuiswedstrijd tegen Go Ahead Eagles een punt gepakt. Robert Mühren maakte kort na zijn invalbeurt de 1-1, nadat de bezoekers uit tien man stonden. De Finse rechtsback Alfons...
 
-### [Trump door kritiek op ICE tussen twee vuren: Maga eist nog veel harder optreden tegen illegalen](https://www.ad.nl/buitenland/trump-door-kritiek-op-ice-tussen-twee-vuren-maga-eist-nog-veel-harder-optreden-tegen-illegalen~a44df7d3/)
-> Donald Trump heeft een groot probleem in eigen gelederen. Zijn immigratiedienst ICE schiet burgers dood en deporteert illegalen op ruwe wijze. Van veel Republikeinen mag het ook een tandje minder,...
+### [Weg met de schermen: minder knoppen in auto leidt tot meer ongelukken](https://www.ad.nl/auto/weg-met-de-schermen-minder-knoppen-in-auto-leidt-tot-meer-ongelukken~a9f237cf/)
+> Je weg vinden in een moderne auto is vaak een hele toer. Veel handelingen die je ooit automatisch op de tast deed, vergen nu een zoektocht door menustructuren. Hoe erg is dat? Autoweek zocht dat uit...
 
 
 ## FD
