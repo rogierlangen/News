@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-02-2026 om 21:47*
+*Laatst bijgewerkt: 01-02-2026 om 22:55*
 
 ---
 
@@ -25,20 +25,20 @@
 
 ## AD
 
-### [Memphis Depay wint Braziliaanse supercup met Corinthians, Noa Lang wint bij debuut voor Galatasaray](https://www.ad.nl/voetbal/memphis-depay-wint-braziliaanse-supercup-met-corinthians-noa-lang-wint-bij-debuut-voor-galatasaray~a74f431c/)
-> Memphis Depay heeft zondagavond met zijn club Corinthians de Supercopa do Brasil gewonnen. De Braziliaanse bekerwinnaar won in de finale met 2-0 van landskampioen Flamengo.
+### [Franse multinational trekt handen af van Amerikaanse migratiedienst ICE: ‘Ik schaam me dood’](https://www.ad.nl/buitenland/franse-multinational-trekt-handen-af-van-amerikaanse-migratiedienst-ice-ik-schaam-me-dood~af52edde/)
+> De Franse multinational Capgemini gaat zijn Amerikaanse filiaal verkopen dat samenwerkt met de omstreden Amerikaanse migratiedienst ICE. Volgens het bedrijf staat niet vast dat de werkwijze van ICE...
 
-### [NEC haalt Willumsson terug naar eredivisie, Lookman naar Atlético Madrid](https://www.ad.nl/voetbal/nec-haalt-willumsson-terug-naar-eredivisie-lookman-naar-atletico-madrid~ab25b5bd/)
+### [Liverpool gaat voor jonge Franse verdediger, Fulham heeft 35 miljoen euro over voor Pepi](https://www.ad.nl/voetbal/liverpool-gaat-voor-jonge-franse-verdediger-fulham-heeft-35-miljoen-euro-over-voor-pepi~ab25b5bd/)
 > De winterse transfermarkt is tot en met dinsdag 3 februari geopend. Welke clubs versterken zich? En welke club raakt nog een belangrijke speler kwijt? In TransferTalk blijf je op de hoogte!
 
-### [Luke Humphries na afgetekende zege op Gian van Veen in finale tegen Luke Littler](https://www.ad.nl/darts/luke-humphries-na-afgetekende-zege-op-gian-van-veen-in-finale-tegen-luke-littler~afd30ca8/)
-> Het is Gian van Veen niet gelukt om door te stoten naar de finale van de Winmau World Masters. De Nederlander was niet opgewassen tegen een ontketende Luke Humphries (5-0). Van Veen was de laatste...
+### [Voetbalpodcast | ‘Zelfvertrouwen, de manier van drukzetten; alles is verdwenen bij Feyenoord’](https://www.ad.nl/voetbal/voetbalpodcast-zelfvertrouwen-de-manier-van-drukzetten-alles-is-verdwenen-bij-feyenoord~ac8603a9/)
+> Na deze speelronde is de vraag niet meer of PSV kampioen wordt, maar vooral wanneer en hoe snel. De Eindhovenaren kenden geen enkele moeite met Feyenoord, na 17 minuten stond de 3-0 eindstand al op...
 
-### [Robert Mühren helpt FC Volendam kort na invalbeurt aan gelijkspel tegen tien man Go Ahead Eagles](https://www.ad.nl/voetbal/robert-muhren-helpt-fc-volendam-kort-na-invalbeurt-aan-gelijkspel-tegen-tien-man-go-ahead-eagles~abc03211/)
-> FC Volendam heeft in de thuiswedstrijd tegen Go Ahead Eagles een punt gepakt. Robert Mühren maakte kort na zijn invalbeurt de 1-1, nadat de bezoekers uit tien man stonden. De Finse rechtsback Alfons...
+### [Luke Littler wint na absolute thriller tegen Luke Humphries voor het eerst Winmau World Masters](https://www.ad.nl/darts/luke-littler-wint-na-absolute-thriller-tegen-luke-humphries-voor-het-eerst-winmau-world-masters~afd30ca8/)
+> Luke Littler heeft voor het eerst de Winmau World Masters gewonnen. In een thriller tegen Luke Humphries maakt hij het verschil in de een allesbeslissende laatste set: 6-5. Littler hield Humphries,...
 
-### [Weg met de schermen: minder knoppen in auto leidt tot meer ongelukken](https://www.ad.nl/auto/weg-met-de-schermen-minder-knoppen-in-auto-leidt-tot-meer-ongelukken~a9f237cf/)
-> Je weg vinden in een moderne auto is vaak een hele toer. Veel handelingen die je ooit automatisch op de tast deed, vergen nu een zoektocht door menustructuren. Hoe erg is dat? Autoweek zocht dat uit...
+### [Waterpolosters ondanks verlies tegen Spanje naar halve finale EK](https://www.ad.nl/sport/waterpolosters-ondanks-verlies-tegen-spanje-naar-halve-finale-ek~aaeef76b/)
+> De Nederlandse waterpolosters hebben de halve finale bereikt van het EK in het Portugese Funchal op Madeira. De ploeg van bondscoach Evangelos Doudesis verloor weliswaar na penalty’s met 16-13 van...
 
 
 ## FD
