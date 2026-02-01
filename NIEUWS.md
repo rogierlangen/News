@@ -1,44 +1,45 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-02-2026 om 05:18*
+*Laatst bijgewerkt: 01-02-2026 om 07:51*
 
 ---
 
 ## NOS
 
+### [Populariteit Trump daalt: 'Steeds meer Amerikanen verzetten zich'](https://nos.nl/l/2600487)
+> Sinds het doodschieten van Renee Good en Alex Pretti tijdens protesten tegen de aanwezigheid van immigratiedienst ICE in de Amerikaanse stad Minneapolis, komen er steeds meer demonstraties tegen de...
+
+### [Wekdienst 1/2: Overleg Rusland en Oekraïne • Leden GL/PvdA praten over coalitieakkoord](https://nos.nl/l/2600486)
+> Goedemorgen! Leden van GroenLinks-PvdA komen in Utrecht samen om te praten over het coalitieakkoord en in Hulst wordt het WK veldrijden voor mannen verreden.
+        Eerst het weer: veel bewolking...
+
+### [Waarom is de goudprijs zo hoog? En hoeveel goud heeft Nederland eigenlijk?](https://nos.nl/l/2600484)
+> Deze week bereikte de prijs van goud weer een nieuw record: 5000 dollar voor een zogenoemde troy ounce, ofwel 31,1 gram. De afgelopen dagen is de prijs aardig gezakt, maar die blijft historisch...
+
+### [Politie rijdt man dood op N31 bij Leeuwarden](https://nos.nl/l/2600477)
+> Op de N31 bij Leeuwarden hebben politiemensen een man doodgereden. Het slachtoffer zou kort voor de aanrijding met zijn auto tegen de vangrail zijn gebotst.
+        Volgens plaatselijke journalisten...
+
 ### [Opgepakte kleuter en vader Minneapolis moeten worden vrijgelaten](https://nos.nl/l/2600474)
 > De Amerikaanse regering moet uiterlijk dinsdag de 5-jarige Liam Conejo Ramos en zijn vader Adrian vrijlaten. Dat besliste de Amerikaanse rechter zaterdag. De kleuter en zijn vader werden in januari...
-
-### [Zeer grote brand in Alblasserdam onder controle, A15 weer open](https://nos.nl/l/2600473)
-> In Alblasserdam is de brandweer uren bezig geweest met het blussen van een grote brand in een cateringbedrijf.
-        De brand brak zaterdagavond uit en al snel sloegen de vlammen uit het dak. Omdat...
-
-### [Hond doodgeschoten door man in Wapse, politie doet onderzoek](https://nos.nl/l/2600454)
-> In het Drentse dorp Wapse is gisteravond een hond doodgeschoten. De politie bevestigt het incident tegen het Dagblad van het Noorden. De eigenaar van de hond zegt tegen de krant dat ze in een...
-
-### [Engel in Romeinse kerk lijkt ineens op premier Meloni](https://nos.nl/l/2600450)
-> In Italië is ophef over een gerestaureerd fresco in een basiliek in Rome. Het gezicht van een engel op de muur lijkt sinds de restauratie opvallend veel op dat van premier Meloni. Het ministerie van...
-
-### [Het coalitieakkoord en de Caribische eilanden: wat is echt nieuw?](https://nos.nl/l/2600448)
-> Het coalitieakkoord van D66, VVD en CDA zet de Caribische eilanden nadrukkelijk op de agenda. Aankomend premier Jetten spreekt over "grote stappen" voor Bonaire, Sint-Eustatius en Saba, met een...
 
 
 ## AD
 
-### [Bandenfabrikanten voor de rechter wegens massale sterfte van zalmen langs hele westkust van Amerika](https://www.ad.nl/auto/bandenfabrikanten-voor-de-rechter-wegens-massale-sterfte-van-zalmen-langs-hele-westkust-van-amerika~a167ad83/)
-> Michelin, Bridgestone, Pirelli en tien andere internationale bandenfabrikanten moesten zich deze week voor de rechter in San Francisco verantwoorden wegens het vervuilen van rivieren met een chemisch...
+### [LIVE VS | Gevoelige nederlaag voor Republikeinen bij verkiezing Texas](https://www.ad.nl/buitenland/live-vs-gevoelige-nederlaag-voor-republikeinen-bij-verkiezing-texas~a9a06edd/)
+> De partij van de Amerikaanse president Donald Trump heeft een gevoelige politieke nederlaag geleden. De Republikein Leigh Wambsganss verloor in een conservatief district een verkiezing voor de Senaat...
 
-### [Wonderbaarlijke wederopstanding in Amerikaanse kliniek na ellendig ziektebed: ‘Ik heb mijn leven terug’](https://www.ad.nl/binnenland/wonderbaarlijke-wederopstanding-in-amerikaanse-kliniek-na-ellendig-ziektebed-ik-heb-mijn-leven-terug~a2cb2b9b5/)
-> Gert-Jan van Duren (62) werd landelijk bekend omdat hij door een chronische ziekte alleen nog liggend kon leven. Zijn situatie was uitzichtloos, euthanasie goldt als een optie. Na zes jaar ellende...
+### [Haaland betaalt met bijna 20 miljoen euro meeste belasting in Premier League, Virgil van Dijk op plek 5](https://www.ad.nl/voetbal/haaland-betaalt-met-bijna-20-miljoen-euro-meeste-belasting-in-premier-league-virgil-van-dijk-op-plek-5~a4c2b283/)
+> Manchester City-speler Erling Haaland heeft het afgelopen jaar bijna 17 miljoen pond, omgerekend 19,5 miljoen euro, aan belastingen betaald. Dat berekende The Sunday Times. De Noorse spits, naar...
 
-### [Kendrick Lamar met negen nominaties opnieuw grote favoriet op Grammy Awards](https://www.ad.nl/show/kendrick-lamar-met-negen-nominaties-opnieuw-grote-favoriet-op-grammy-awards~a5616cd2/)
-> De Amerikaanse hiphopster Kendrick Lamar is zondag opnieuw de grote favoriet bij de uitreiking van de 68e editie van de Grammy Awards. Hij is genomineerd in negen categorieën. Ook Lady Gaga is een...
+### [Kinderen krijgen te snel het stempel adhd of autisme, vindt jeugdpsychiater Monique: ‘Ze gaan er zich soms naar gedragen’](https://www.ad.nl/binnenland/kinderen-krijgen-te-snel-het-stempel-adhd-of-autisme-vindt-jeugdpsychiater-monique-ze-gaan-er-zich-soms-naar-gedragen~a009b087/)
+> Monique Verburg vindt dat kinderen te vaak te snel in een hokje worden geduwd. Ze krijgen al snel het stempel adhd, add, autisme of schizofrenie. Ook omdat ouders en leraren daarom vragen. Maar...
 
-### [Meer dan 120 doden bij reeks aanvallen in Pakistan](https://www.ad.nl/buitenland/meer-dan-120-doden-bij-reeks-aanvallen-in-pakistan~a49837e5/)
-> In het zuidwesten van Pakistan zijn zaterdag meer dan 120 mensen om het leven gekomen bij een reeks ‘gecoördineerde’ aanvallen die volgens het leger zijn opgeëist door separatisten. In de provincie...
+### [‘Deze prijzen zijn hoger dan mijn huur’: Bedragen voor concert Harry Styles zijn het nieuwe normaal](https://www.ad.nl/show/deze-prijzen-zijn-hoger-dan-mijn-huur-bedragen-voor-concert-harry-styles-zijn-het-nieuwe-normaal~a650e911/)
+> Fans van de Britse popartiest Harry Styles konden hun geluk vorige week niet op toen werd aangekondigd dat de zanger dit voorjaar weer op tournee gaat. Styles doet zeven steden aan, waaronder...
 
-### [Iran: vooruitgang geboekt bij onderhandelingen met VS](https://www.ad.nl/buitenland/iran-vooruitgang-geboekt-bij-onderhandelingen-met-vs~a395cdaf/)
-> De hoogste veiligheidsfunctionaris van Iran heeft zaterdag gezegd dat Teheran vooruitgang boekt richting onderhandelingen met de Verenigde Staten om een militaire confrontatie te voorkomen. Volg alle...
+### [Dode bij ernstig ongeluk met politiewagen op N31 bij Leeuwarden](https://www.ad.nl/112-nieuws-leeuwarden/dode-bij-ernstig-ongeluk-met-politiewagen-op-n31-bij-leeuwarden~a91e3d2f/)
+> Bij een ernstig ongeluk op de N31 bij Leeuwarden is zondagochtend een persoon om het leven gekomen. Bij het ongeluk is een politiewagen betrokken.
 
 
 ## FD
