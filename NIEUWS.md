@@ -1,62 +1,61 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-02-2026 om 14:27*
+*Laatst bijgewerkt: 02-02-2026 om 16:05*
 
 ---
 
 ## NOS
 
+### [Europa gaat doelen voor kritieke grondstoffen niet halen, zegt Europese rekenkamer](https://nos.nl/l/2600679)
+> De EU gaat zijn doelen voor het opgraven en produceren van kritieke grondstoffen niet halen. Dat concludeert de Europese Rekenkamer in een nieuw rapport. Kritieke grondstoffen zoals kobalt, magnesium...
+
+### [Jongen (14) geeft zichzelf aan in zaak in brand gestoken tiener Brussel](https://nos.nl/l/2600678)
+> In Brussel heeft een 14-jarige jongen zichzelf bij de politie aangegeven voor betrokkenheid bij de zaak van de in brand gestoken jongen van 15. Dat incident gebeurde vrijdagavond in de deelgemeente...
+
+### [Vrouw vindt noodboekje uit 1961 achter haar meterkast](https://nos.nl/l/2600677)
+> In Utrecht heeft een vrouw in haar woning een noodboekje uit 1961 gevonden. Het boekje werd tijdens de Koude Oorlog door de overheid verspreid om mensen voor te bereiden op eventuele...
+
+### [Yfke Sturm noemt relatie met Epstein inschattingsfout: 'Ik was naïef'](https://nos.nl/l/2600676)
+> Yfke Sturm noemt haar intensieve contact met Jeffrey Epstein "een ernstige inschattingsfout". Afgelopen week verscheen de naam van het Nederlandse model in honderden nieuwe vrijgegeven documenten in...
+
 ### [Oudste zoon van Noorse prinses Mette-Marit weer opgepakt](https://nos.nl/l/2600671)
-> De zoon van de Noorse kroonprinses Mette-Marit is gisteren door de politie opgepakt. Marius Borg Høiby wordt verdacht van mishandeling, bedreiging met een mes en het overtreden van een contactverbod....
-
-### ['Corné H. is gevaar voor zichzelf en omgeving', advocaten eisen met voorrang tbs](https://nos.nl/l/2600665)
-> Advocaten van de veroordeelde Corné H. vinden dat hij direct moet worden opgenomen in een tbs-kliniek. H. gijzelde in 2024 medewerkers van een café in Ede en zit sindsdien vast in de gevangenis in...
-
-### [Doorstart voor grootste biologische plantenkweker van Nederland](https://nos.nl/l/2600663)
-> Jongerius, de grootste biologische plantenkwekerij van Nederland, is gered. Het bedrijf in Houten ging eind vorig jaar failliet, maar ondernemer Wim Beelen meldt nu een akkoord te hebben gesloten met...
-
-### [A30 maandenlang dicht voor onderhoud, uur extra reistijd](https://nos.nl/l/2600662)
-> De A30 tussen Barneveld en Lunteren is sinds vrijdagavond voor vijf maanden afgesloten voor groot onderhoud. Verkeer moet rekening houden met een uur extra reistijd, waarschuwt Rijkswaterstaat.
-     ...
-
-### [Wanneer zit de digitale euro in je portemonnee?](https://nos.nl/l/2600654)
-> 2026 moet het jaar worden van de digitale euro, als het aan Europa ligt. De Europese Centrale Bank is er al jaren mee bezig en dit jaar moeten de benodigde wetten door Brussel geloodst worden. Naast...
+> De zoon van de Noorse kroonprinses Mette-Marit is gisteren door de politie opgepakt. Marius Borg Høiby wordt verdacht van mishandeling, bedreiging met een mes en het overtreden van een...
 
 
 ## AD
 
-### [Dankzij suikeroom Marcel Boekhoorn mag NEC dromen van de Champions League](https://www.ad.nl/voetbal/dankzij-suikeroom-marcel-boekhoorn-mag-nec-dromen-van-de-champions-league~ae04c01c/)
-> Trainer Dick Schreuder en zijn spelers krijgen terecht de credits voor het succes van NEC. Maar zonder de steun van supporter en miljardair Marcel Boekhoorn was de huidige opmars ondenkbaar geweest....
+### [Dood van pleegzoon Jerryson (15) inspireert Marian om politiek in te gaan: ‘Mogen jongeren niet laten wegzakken’](https://www.ad.nl/binnenland/dood-van-pleegzoon-jerryson-15-inspireert-marian-om-politiek-in-te-gaan-mogen-jongeren-niet-laten-wegzakken~a9ef8b4d/)
+> Na de dood van haar pleegzoon Jerryson (15), die door politiekogels om het leven kwam, is Marian Eisden (59) meer dan ooit op een missie. En nu ook op het politieke pad. Ze staat op de Goudse lijst...
 
-### [Rusland rukt sneller op in Oekraïne ondanks ijskoude winter](https://www.ad.nl/buitenland/rusland-rukt-sneller-op-in-oekraine-ondanks-ijskoude-winter~adfb97be/)
-> De Russische opmars in Oekraïne versnelde vorige maand. Dat concludeert persbureau AFP op basis van gegevens van denktank ISW. De Russische krijgsmacht veroverde ondanks de ijskoude winter een gebied...
+### [Finse aanvaller voor Sparta, FC Dordrecht verkoopt spits voor 2 miljoen euro](https://www.ad.nl/voetbal/finse-aanvaller-voor-sparta-fc-dordrecht-verkoopt-spits-voor-2-miljoen-euro~a0fb11bb/)
+> Vandaag is de laatste dag dat de clubs uit de grootste voetballanden (Engeland, Duitsland, Spanje, Frankrijk en Italië) spelers kunnen aantrekken. In Nederland is de deadline pas dinsdagavond. Komt...
 
-### [Donny van de Beek meldt heuglijk nieuws: ex-Ajacied gaat trouwen met dochter Dennis Bergkamp](https://www.ad.nl/voetbal/donny-van-de-beek-meldt-heuglijk-nieuws-ex-ajacied-gaat-trouwen-met-dochter-dennis-bergkamp~a0e827b9/)
-> Donny van de Beek staat al even aan de kant met een zware achillespeesblessure. Maar privé gaat het de speler van het Spaanse Girona voor de wind. De ex-Ajacied (28) deelde maandag het heuglijke...
+### [Aanval op AOW-plan geopend, coalitie krijgt forse kritiek: ‘Onverantwoord’](https://www.ad.nl/politiek/aanval-op-aow-plan-geopend-coalitie-krijgt-forse-kritiek-onverantwoord~ae2aeb16/)
+> De beoogde coalitie van D66, VVD en CDA ligt flink onder vuur vanwege haar plannen, waaronder het idee om de AOW-leeftijd te laten stijgen naar 70 jaar. Oppositiepartijen GroenLinks-PvdA en 50Plus...
 
-### [Maarten: ‘We betalen 550 euro hypotheekkosten, we betaalden een boete om de hypotheekrente omlaag te krijgen’](https://www.ad.nl/geld/maarten-we-betalen-550-euro-hypotheekkosten-we-betaalden-een-boete-om-de-hypotheekrente-omlaag-te-krijgen~a15d2d97/)
-> Officemanager bij filmbedrijf Upendi Imelda van der Wal en filmmaker Maarten Diederen kijken naar een groter huis in de buurt. ‘We hopen dat we ons huis voor drie ton kunnen verkopen’, vertellen ze...
+### [Mathieu van der Poel laat er geen gras over groeien: recordhouder veldrijden daags na WK-winst op skivakantie](https://www.ad.nl/wielrennen/mathieu-van-der-poel-laat-er-geen-gras-over-groeien-recordhouder-veldrijden-daags-na-wk-winst-op-skivakantie~a20877e1/)
+> Mathieu van der Poel heeft daags na zijn achtste wereldtitel bij het veldrijden zijn fiets ingeruild voor ski’s. De renner gaat kort genieten van zijn wintersportvakantie, voordat hij zich zal...
 
-### [Leerdam en Beune maken eerste rondjes op olympische ijs, ook Stolz laat zich zien](https://www.ad.nl/olympische-spelen/leerdam-en-beune-maken-eerste-rondjes-op-olympische-ijs-ook-stolz-laat-zich-zien~aa000d15/)
-> De Olympische Winterspelen Milaan Cortina staan voor de deur: op vrijdag 6 februari is de openingsceremonie. Nederland gaat vanaf dan op jacht naar goud. Volg al het nieuws in aanloop naar de Spelen...
+### [Rituals opent honderden winkels en boekt recordomzet](https://www.ad.nl/economie/rituals-opent-honderden-winkels-en-boekt-recordomzet~a4e2e8da/)
+> Cosmeticabedrijf Rituals heeft afgelopen jaar een recordomzet geboekt, mede dankzij de opening van honderden nieuwe winkels wereldwijd.
 
 
 ## FD
 
-### [Duits softwarebedrijf stelt plaatsen lening uit](https://fd.nl/financiele-markten/1585399/duits-softwarebedrijf-stelt-plaatsen-lening-uit)
-> Het Duitse softwarebedrijf heeft afgezien van het uitgeven van €1,3 mrd aan leveraged loans. Beleggers zijn terughoudend vanwege de disruptie die de opkomst van AI in de softwarewereld veroorzaakt.
+### [Onafhankelijkheid cruciale grondstoffen komt in Europa nog niet van de grond](https://fd.nl/politiek/1585480/onafhankelijkheid-cruciale-grondstoffen-komt-in-europa-nog-niet-van-de-grond)
+> Europa wil minder afhankelijk worden van een klein groepje landen voor de aanvoer van cruciale grondstoffen die benodigd zijn voor de energietransitie. Dat lukt volgens de Europese Rekenkamer slecht.
 
-### [Hollywoodsterren keren zich tegen Trump en zijn immigratiepolitie: ‘ICE out’](https://fd.nl/samenleving/1585485/hollywoodsterren-keren-zich-tegen-trump-en-zijn-immigratiepolitie-ice-out)
-> De uitreiking van de prestigieuze Grammy-muziekprijzen stonden zondagnacht in het teken van kritiek op ICE. Steeds meer Amerikaanse beroemdheden spreken zich uit tegen het dodelijke geweld van de...
+### [Trump sluit Kennedy Center twee jaar voor ‘grootschalige renovatie’](https://fd.nl/politiek/1585490/trump-sluit-kennedy-center-twee-jaar-voor-grootschalige-renovatie)
+> Het Kennedy Center for the Performing Arts moet wat president Trump betreft voor twee jaar sluiten. Veel prominente artiesten boycotten het prominente cultuurcentrum.
 
-### [Nederlaag Nedri Spanstaal tegen Deutsche Bahn, miljoenenclaim dreigt](https://fd.nl/bedrijfsleven/1585484/opnieuw-nederlaag-nedri-spanstaal-tegen-deutsche-bahn-miljoenenclaim-in-de-maak)
-> Advocaat-generaal verwerpt het leeuwendeel van de argumenten in cassatie. De weg lijkt vrij voor DB om een schadeprocedure te beginnen tegen de deelnemers aan een staalkartel.
+### [Supermarkt Sahan is allang geen Turks buurtwinkeltje meer](https://fd.nl/bedrijfsleven/1584947/turkse-supermarkt-sahan-is-allang-geen-etnische-buurtwinkel-meer)
+> Sahan Supermarkten, bijna veertig jaar geleden begonnen als groentewinkeltje in Rotterdam, wint marktaandeel in Nederland. De keten trekt niet alleen klanten met een migratieachtergrond.
 
-### [Risicovolle ETF’s ‘gevaarlijk speelgoed voor particuliere beleggers’](https://fd.nl/financiele-markten/1585397/risicovolle-etfs-zijn-gevaarlijk-speelgoed-voor-particuliere-beleggers)
-> De markt voor risicovolle ETF’s met een hefboom groeit snel, ondanks de hoge kosten en het gebrek aan spreiding dat ze bieden.
+### [Van Londen tot Californië klinkt de roep: ‘pluk de rijken’](https://fd.nl/economie/1584273/van-londen-tot-californie-klinkt-de-roep-pluk-de-rijken)
+> De vermogensbelasting is een makkelijke manier om begrotingsgaten te dichten. En bovendien een noodzakelijk instrument om iets te doen aan de toenemende ongelijkheid, vindt een groeiende groep.
 
-### [Activering Europese ‘handelsbazooka’ is hoognodig](https://fd.nl/opinie/1584848/activering-europese-handelsbazooka-is-hoognodig)
-> Europa moet stoppen met wensdenken en alsnog het antidwanginstrument tegen de Verenigde Staten inzetten. Een eerste stap in die richting kan verdere chantage en escalatie afwenden.
+### [De triatleet die tomeloze energie bij Transavia binnenbrengt](https://fd.nl/bedrijfsleven/1584881/de-triatleet-die-tomeloze-energie-bij-transavia-binnenbrengt)
+> Iron Man-deelnemer wordt nu ceo van budgetvlieger Transavia die mogelijk hard wordt geraakt door een nachtsluiting op Schiphol. ‘Het gaat hem erom het voor jezelf beter te doen.’
 
 ---
 *Automatisch gegenereerd door nieuws.py*
