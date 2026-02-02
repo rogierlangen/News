@@ -1,61 +1,61 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-02-2026 om 16:05*
+*Laatst bijgewerkt: 02-02-2026 om 23:13*
 
 ---
 
 ## NOS
 
-### [Europa gaat doelen voor kritieke grondstoffen niet halen, zegt Europese rekenkamer](https://nos.nl/l/2600679)
-> De EU gaat zijn doelen voor het opgraven en produceren van kritieke grondstoffen niet halen. Dat concludeert de Europese Rekenkamer in een nieuw rapport. Kritieke grondstoffen zoals kobalt, magnesium...
+### [Eerste restauratie in decennia voor 'Het laatste oordeel' in Sixtijnse Kapel](https://nos.nl/l/2600715)
+> Bezoekers van de Sixtijnse Kapel in Rome wacht de komende tijd een lichte teleurstelling. Het beroemde fresco Het laatste oordeel van Michelangelo wordt voor het eerst in dertig jaar tijd...
 
-### [Jongen (14) geeft zichzelf aan in zaak in brand gestoken tiener Brussel](https://nos.nl/l/2600678)
-> In Brussel heeft een 14-jarige jongen zichzelf bij de politie aangegeven voor betrokkenheid bij de zaak van de in brand gestoken jongen van 15. Dat incident gebeurde vrijdagavond in de deelgemeente...
+### [Rechts wint verkiezingen in Costa Rica met populaire 'Bukele-methode'](https://nos.nl/l/2600714)
+> De rechtse Laura Fernández werd met bijna 50 procent van de stemmen zondag gekozen tot nieuwe president van Costa Rica. Haar partij, de PPSO, verzekerde zich daarnaast van een comfortabele...
 
-### [Vrouw vindt noodboekje uit 1961 achter haar meterkast](https://nos.nl/l/2600677)
-> In Utrecht heeft een vrouw in haar woning een noodboekje uit 1961 gevonden. Het boekje werd tijdens de Koude Oorlog door de overheid verspreid om mensen voor te bereiden op eventuele...
+### [Australische jongen van 13 redt zichzelf en familie door urenlange zwemtocht](https://nos.nl/l/2600712)
+> Een 13-jarige jongen heeft door urenlang te zwemmen naar de kust, zichzelf, zijn moeder, zijn broertje en zusje gered. De familie was aan het suppen en kajakken in de Geographe Bay in het zuidwesten...
 
-### [Yfke Sturm noemt relatie met Epstein inschattingsfout: 'Ik was naïef'](https://nos.nl/l/2600676)
-> Yfke Sturm noemt haar intensieve contact met Jeffrey Epstein "een ernstige inschattingsfout". Afgelopen week verscheen de naam van het Nederlandse model in honderden nieuwe vrijgegeven documenten in...
+### [Trump zegt dat India stopt met Russische olie, VS verlaagt importheffingen](https://nos.nl/l/2600710)
+> Amerika en India hebben een handelsverdrag gesloten, waardoor de VS de importheffingen voor het land verlaagt van 25 procent naar 18 procent. Dat meldt zowel de Amerikaanse president Trump als de...
 
-### [Oudste zoon van Noorse prinses Mette-Marit weer opgepakt](https://nos.nl/l/2600671)
-> De zoon van de Noorse kroonprinses Mette-Marit is gisteren door de politie opgepakt. Marius Borg Høiby wordt verdacht van mishandeling, bedreiging met een mes en het overtreden van een...
+### [Yfke Sturm, Clinton, Musk: wie staan er allemaal in de Epstein-files?](https://nos.nl/l/2600709)
+> Release the files! klonk het maandenlang in de VS. Het publiek wilde weten wat aanklagers te weten waren gekomen over de contacten van veroordeeld zedendelinquent Jeffrey Epstein met andere...
 
 
 ## AD
 
-### [Dood van pleegzoon Jerryson (15) inspireert Marian om politiek in te gaan: ‘Mogen jongeren niet laten wegzakken’](https://www.ad.nl/binnenland/dood-van-pleegzoon-jerryson-15-inspireert-marian-om-politiek-in-te-gaan-mogen-jongeren-niet-laten-wegzakken~a9ef8b4d/)
-> Na de dood van haar pleegzoon Jerryson (15), die door politiekogels om het leven kwam, is Marian Eisden (59) meer dan ooit op een missie. En nu ook op het politieke pad. Ze staat op de Goudse lijst...
+### [Elon Musks ruimtebedrijf SpaceX neemt zijn AI-startup xAI over ‘om datacenters vanuit ruimte van energie te voorzien’](https://www.ad.nl/economie/elon-musks-ruimtebedrijf-spacex-neemt-zijn-ai-startup-xai-over-om-datacenters-vanuit-ruimte-van-energie-te-voorzien~abd29256/)
+> De raket- en satellietfabrikant SpaceX heeft de start-up voor kunstmatige intelligentie xAI, beide van techmiljardair Elon Musk, overgenomen. Dit meldt SpaceX op zijn website.
 
-### [Finse aanvaller voor Sparta, FC Dordrecht verkoopt spits voor 2 miljoen euro](https://www.ad.nl/voetbal/finse-aanvaller-voor-sparta-fc-dordrecht-verkoopt-spits-voor-2-miljoen-euro~a0fb11bb/)
-> Vandaag is de laatste dag dat de clubs uit de grootste voetballanden (Engeland, Duitsland, Spanje, Frankrijk en Italië) spelers kunnen aantrekken. In Nederland is de deadline pas dinsdagavond. Komt...
+### [Twente zwicht niet voor megabod op Van Rooij, bij Feyenoord vertrokken Larin verkast naar Engeland](https://www.ad.nl/voetbal/twente-zwicht-niet-voor-megabod-op-van-rooij-bij-feyenoord-vertrokken-larin-verkast-naar-engeland~a596b09f/)
+> Het is Deadline Day in Nederland! Welke club gaat zich nog versterken en welke spelers mogen vertrekken? De markt sluit om 23.59:59 uur, volg alle ontwikkelingen hier live!
 
-### [Aanval op AOW-plan geopend, coalitie krijgt forse kritiek: ‘Onverantwoord’](https://www.ad.nl/politiek/aanval-op-aow-plan-geopend-coalitie-krijgt-forse-kritiek-onverantwoord~ae2aeb16/)
-> De beoogde coalitie van D66, VVD en CDA ligt flink onder vuur vanwege haar plannen, waaronder het idee om de AOW-leeftijd te laten stijgen naar 70 jaar. Oppositiepartijen GroenLinks-PvdA en 50Plus...
+### [Jurgen Ekkelenkamp scoort via de rug van Donyell Malen, eerste nederlaag voor Francesco Farioli met FC Porto](https://www.ad.nl/voetbal/jurgen-ekkelenkamp-scoort-via-de-rug-van-donyell-malen-eerste-nederlaag-voor-francesco-farioli-met-fc-porto~a30aca66/)
+> Jurgen Ekkelenkamp heeft Udinese aan een 1-0 zege op AS Roma geholpen. De Nederlandse middenvelder maakte vijf minuten na rust de enige treffer van het duel in Udine.
 
-### [Mathieu van der Poel laat er geen gras over groeien: recordhouder veldrijden daags na WK-winst op skivakantie](https://www.ad.nl/wielrennen/mathieu-van-der-poel-laat-er-geen-gras-over-groeien-recordhouder-veldrijden-daags-na-wk-winst-op-skivakantie~a20877e1/)
-> Mathieu van der Poel heeft daags na zijn achtste wereldtitel bij het veldrijden zijn fiets ingeruild voor ski’s. De renner gaat kort genieten van zijn wintersportvakantie, voordat hij zich zal...
+### [Nederlander bouwt afgelegen villa om tot wapenfabriek in Spanje, Guardia Civil valt woning binnen](https://www.ad.nl/buitenland/nederlander-bouwt-afgelegen-villa-om-tot-wapenfabriek-in-spanje-guardia-civil-valt-woning-binnen~a399bb74/)
+> In het zuiden van Spanje zijn een Nederlander en een Belg gearresteerd die ervan worden verdacht op grote schaal wapens te hebben geproduceerd in een afgelegen villa. Ze verkochten die wapens,...
 
-### [Rituals opent honderden winkels en boekt recordomzet](https://www.ad.nl/economie/rituals-opent-honderden-winkels-en-boekt-recordomzet~a4e2e8da/)
-> Cosmeticabedrijf Rituals heeft afgelopen jaar een recordomzet geboekt, mede dankzij de opening van honderden nieuwe winkels wereldwijd.
+### [Transfermarkt gesloten in toplanden: 50 miljoen voor oud-spits Groningen, Liverpool betaalt 60 miljoen voor zomertransfer](https://www.ad.nl/voetbal/transfermarkt-gesloten-in-toplanden-50-miljoen-voor-oud-spits-groningen-liverpool-betaalt-60-miljoen-voor-zomertransfer~a0fb11bb/)
+> De transfermarkt is maandagavond om 20.00 uur gesloten voor clubs uit Engeland, Duitsland, Frankrijk en Italië. In Nederland is de deadline pas dinsdagavond om 23.59 uur. Het bleef op Deadline Day...
 
 
 ## FD
 
-### [Onafhankelijkheid cruciale grondstoffen komt in Europa nog niet van de grond](https://fd.nl/politiek/1585480/onafhankelijkheid-cruciale-grondstoffen-komt-in-europa-nog-niet-van-de-grond)
-> Europa wil minder afhankelijk worden van een klein groepje landen voor de aanvoer van cruciale grondstoffen die benodigd zijn voor de energietransitie. Dat lukt volgens de Europese Rekenkamer slecht.
+### [Wall Street begint februari in het groen](https://fd.nl/financiele-markten/1585444/wall-street-begint-februari-in-het-groen)
+> De Dow Jones eindigde 1,1% in de plus, de S&P500  maakte een einde aan de daling van drie dagen en boekte een winst van 0,5%. Ook de Nasdaq pluste met 0,6%.
 
-### [Trump sluit Kennedy Center twee jaar voor ‘grootschalige renovatie’](https://fd.nl/politiek/1585490/trump-sluit-kennedy-center-twee-jaar-voor-grootschalige-renovatie)
-> Het Kennedy Center for the Performing Arts moet wat president Trump betreft voor twee jaar sluiten. Veel prominente artiesten boycotten het prominente cultuurcentrum.
+### [Handelsdeal: VS verlagen heffingen, ‘India stopt met Russische olie’](https://fd.nl/economie/1585409/handelsdeal-vs-verlagen-heffingen-india-stopt-met-russische-olie)
+> India en de Verenigde Staten zijn tot een akkoord gekomen over de wederzijdse invoerheffingen en de Indiase import van Russische olie.
 
-### [Supermarkt Sahan is allang geen Turks buurtwinkeltje meer](https://fd.nl/bedrijfsleven/1584947/turkse-supermarkt-sahan-is-allang-geen-etnische-buurtwinkel-meer)
-> Sahan Supermarkten, bijna veertig jaar geleden begonnen als groentewinkeltje in Rotterdam, wint marktaandeel in Nederland. De keten trekt niet alleen klanten met een migratieachtergrond.
+### [KLM reorganiseert verder, operationeel directeur vertrekt](https://fd.nl/bedrijfsleven/1585498/klm-reorganiseert-verder-operationeel-directeur-vertrekt)
+> Het kwakkelende luchtvaartbedrijf gunt topvrouw Marjan Rintel een tweede termijn om de herstructurering door te voeren.
 
-### [Van Londen tot Californië klinkt de roep: ‘pluk de rijken’](https://fd.nl/economie/1584273/van-londen-tot-californie-klinkt-de-roep-pluk-de-rijken)
-> De vermogensbelasting is een makkelijke manier om begrotingsgaten te dichten. En bovendien een noodzakelijk instrument om iets te doen aan de toenemende ongelijkheid, vindt een groeiende groep.
+### [UBS: private credit kwetsbaar voor AI](https://fd.nl/financiele-markten/1585408/ubs-private-credit-kwetsbaar-voor-ai)
+> 13% van de Amerikaanse markt zou in een agressief scenario betalingsproblemen kunnen krijgen, omdat bedrijfsmodellen achterhaald worden door nieuwe technologie, denken analisten van zakenbank UBS.
 
-### [De triatleet die tomeloze energie bij Transavia binnenbrengt](https://fd.nl/bedrijfsleven/1584881/de-triatleet-die-tomeloze-energie-bij-transavia-binnenbrengt)
-> Iron Man-deelnemer wordt nu ceo van budgetvlieger Transavia die mogelijk hard wordt geraakt door een nachtsluiting op Schiphol. ‘Het gaat hem erom het voor jezelf beter te doen.’
+### [Zorgen over Fed niet verdwenen met benoeming Warsh](https://fd.nl/opinie/1585476/zorgen-over-fed-niet-verdwenen-met-benoeming-warsh)
+> Wall Street had de hand in de benoeming van de ‘goede Kevin’.
 
 ---
 *Automatisch gegenereerd door nieuws.py*
