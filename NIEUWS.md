@@ -1,63 +1,61 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-02-2026 om 08:01*
+*Laatst bijgewerkt: 02-02-2026 om 11:24*
 
 ---
 
 ## NOS
 
-### [Noorse kroonprinses onder vuur om jarenlang contact met Epstein](https://nos.nl/l/2600621)
-> De Noorse kroonprinses Mette-Marit ligt onder vuur vanwege e-mailverkeer dat is opgedoken tussen haar en de veroordeelde Amerikaanse zedendelinquent Jeffrey Epstein. De correspondentie, tussen 2011...
+### [Iran roept EU-ambassadeurs op matje om Revolutionaire Garde op terreurlijst](https://nos.nl/l/2600644)
+> Iran heeft de Europese ambassadeurs in Teheran ontboden omdat de EU vorige week heeft besloten de Islamitische Revolutionaire Garde (IRG) op de terrorismelijst te zetten. Dat besluit was een reactie...
 
-### [Al dagen minder treinen tussen Amsterdam en Utrecht door kapotte wissels](https://nos.nl/l/2600619)
-> Tussen Amsterdam en Utrecht rijden ook vandaag minder treinen vanwege twee kapotte wissels bij Duivendrecht. Het herstellen van de wissels is ingewikkeld, zegt spoorbeheerder ProRail.
-        De...
+### [Roest is oorzaak van stukjes beton die uit viaduct over A28 vallen](https://nos.nl/l/2600642)
+> De betonschade aan een viaduct op de A28 is ontstaan door corrosie van de stalen wapening in het beton. Vorige week vielen er bij knooppunt Lankhorst, in Overijssel, stukjes beton van het viaduct op...
 
-### [Wekdienst 2/2: Grensovergang Rafah weer open • Rapport antisemitismebestrijding](https://nos.nl/l/2600612)
-> Goedemorgen! Vandaag gaat de grensovergang bij Rafah in het zuiden van Gaza weer deels open voor Palestijnen. Verder komt de taskforce antisemitismebestrijding met een rapport over de veiligheid van...
+### [Verdachte zaak-Lisa nu ook verdacht van poging tot verkrachting in andere zaak](https://nos.nl/l/2600641)
+> De man die terechtstaat voor de moord op Lisa in Duivendrecht, vorig jaar op 20 augustus, en voor verkrachting van een vrouw in Amsterdam, wordt nu ook verdacht van een poging tot verkrachting, ook...
 
-### [Grammy’s: Olivia Dean beste nieuwkomer, ook prijs voor Nederlandse Roselilah](https://nos.nl/l/2600610)
-> De Britse zangeres Olivia Dean (26) is uitgeroepen tot beste nieuwe artiest. In Los Angeles mocht zij afgelopen nacht de Grammy in ontvangst nemen. De prestigieuze Amerikaanse muziekprijzen werden...
+### [Taskforce: universiteiten moeten meer opkomen voor Joodse mensen](https://nos.nl/l/2600640)
+> Universiteiten en hogescholen moeten "duidelijker, vaker en publiekelijk" opkomen voor Joodse studenten en medewerkers die zich onveilig voelen. Dat is de oproep van een taskforce die in opdracht van...
 
-### [Opnieuw waarschuwing voor gladheid in noorden en noordoosten](https://nos.nl/l/2600609)
-> Ook vanochtend geldt er in het noorden en noordoosten een waarschuwing voor gladheid. Daar is plaatselijk kans op ijzel. Het kan ook glad worden door neerslag op een bevroren ondergrond.
-       ...
+### [Australië wil een supermacht in zeldzame aardmetalen worden](https://nos.nl/l/2600627)
+> Smartphones. Windmolens. Auto's. Computers. Straaljagers. MRI-scanners. Oorlogsschepen. Drones. Zeldzame aardmetalen zitten in bijna alles wat een moderne samenleving nodig heeft. De afgelopen jaren...
 
 
 ## AD
 
-### [Nederlands model Yfke Sturm vaak genoemd in Epstein-documenten](https://www.ad.nl/show/nederlands-model-yfke-sturm-vaak-genoemd-in-epstein-documenten~a0b3b75e/)
-> In de zogenoemde ‘Epstein files’ komt ook de naam van het Nederlandse model Yfke Sturm vaak voor. Shownieuws en Hart van Nederland schrijven over ‘honderden documenten’ waarin haar naam opduikt.
+### [Willem-Alexander en Máxima open over geheim achter goed huwelijk: ‘Heel veel plezier met elkaar’](https://www.ad.nl/show/willem-alexander-en-maxima-open-over-geheim-achter-goed-huwelijk-heel-veel-plezier-met-elkaar~af4b6c1a/)
+> Koning Willem-Alexander (58) en koningin Máxima (54) hebben hun 24ste trouwjubileum gevierd met hun 250ste bezoek namens het OranjeFonds. Daarbij stond het koningspaar kort stil bij het geheim achter...
 
-### [Gladheid door ijzel in meerdere provincies, ook vanmiddag en morgen is het oppassen geblazen](https://www.ad.nl/binnenland/gladheid-door-ijzel-in-meerdere-provincies-ook-vanmiddag-en-morgen-is-het-oppassen-geblazen~a35cd222/)
-> Het is maandagochtend glad in het noorden en noordoosten van het land door ijzel. Oppassen geblazen dus, waarschuwt Rijkswaterstaat. Ook dinsdag kan het op veel plekken verraderlijk glad zijn.
+### [81 storingen op één dag, tot defect dat 68 uur duurde: nooit eerder zijn er zoveel storingen op het spoor geweest](https://www.ad.nl/binnenland/81-storingen-op-een-dag-tot-defect-dat-68-uur-duurde-nooit-eerder-zijn-er-zoveel-storingen-op-het-spoor-geweest~a0c3fc18/)
+> Het was een zware maand voor treinreizigers. Zij kregen te maken met een enorme hoeveelheid vertraagde of uitgevallen treinen. Dit aantal bereikte een hoogtepunt in januari, mede door de sneeuwval in...
 
-### [Na vijf jaar mag agent eindelijk zijn verhaal doen en wordt hij vrijgesproken van meineed](https://www.ad.nl/binnenland/na-vijf-jaar-mag-agent-eindelijk-zijn-verhaal-doen-en-wordt-hij-vrijgesproken-van-meineed~af591bfc/)
-> In de zomer van 2020 wil een agent een groep mannen fouilleren die voor een garage in Rotterdam staan. Dat loopt echter niet af zoals hij wil: vijf jaar later moet hij zelf voor de rechter komen.
+### [Peter Bosz laat zien wat vuile meters maken oplevert, Robin van Persie betaalt prijs voor te snelle sprong](https://www.ad.nl/voetbal/peter-bosz-laat-zien-wat-vuile-meters-maken-oplevert-robin-van-persie-betaalt-prijs-voor-te-snelle-sprong~a5d71151/)
+> Columnist Hugo Borst vindt dat Feyenoord-trainer Robin van Persie had moeten leren van Ruud van Nistelrooij, Ruud Krol, Marco van Basten en Clarence Seedorf. Ook zij begonnen te snel op een hoog...
 
-### [Chappell Roan verschijnt topless op loper van Grammy’s en Heidi Klum kan amper bewegen door plastic jurk](https://www.ad.nl/show/chappell-roan-verschijnt-topless-op-loper-van-grammys-en-heidi-klum-kan-amper-bewegen-door-plastic-jurk~aab3c396/)
-> Chappell Roan heeft een wel heel opvallende entree gemaakt bij de uitreiking van de Grammy Awards. De Amerikaanse zangeres, genomineerd voor twee prijzen, verscheen topless op de rode loper. Ze was...
+### ['Tepeljurk' van zangeres Chappell Roan gaat internet over: outfit blijkt niet te zijn wat hij lijkt](https://www.ad.nl/show/tepeljurk-van-zangeres-chappell-roan-gaat-internet-over-outfit-blijkt-niet-te-zijn-wat-hij-lijkt~a195e4f7/)
+> Zangeres Chappell Roan (27) zorgt voor verbazing met de opvallende outfit die ze afgelopen nacht droeg bij de uitreiking van de Grammy’s. De constructie met een sleep die vastzit aan piercings is...
 
-### [Nu of nooit, is het gevoel dat leeft binnen PSV: kan Peter Bosz vijf keer op rij kampioen worden?](https://www.ad.nl/voetbal/nu-of-nooit-is-het-gevoel-dat-leeft-binnen-psv-kan-peter-bosz-vijf-keer-op-rij-kampioen-worden~a681f254/)
-> PSV heeft in de topper afgerekend met Feyenoord en koerst af op het vroegste kampioenschap ooit in de eredivisie. Maar de ambities gaan verder. De contractverlenging van trainer Peter Bosz tot medio...
+### [Aftellen richting 27ste landstitel: PSV kan de recordboeken in met zeldzaam vroeg kampioenschap](https://www.ad.nl/voetbal/aftellen-richting-27ste-landstitel-psv-kan-de-recordboeken-in-met-zeldzaam-vroeg-kampioenschap~a872220e/)
+> PSV lijkt de landstitel niet meer te kunnen ontgaan na de eenvoudige zege op Feyenoord (3-0), waarmee de voorsprong op de nummer twee al 17 punten is. Het 27ste kampioenschap kan de Eindhovenaren...
 
 
 ## FD
 
-### [Nederlandse industrie stabiel ondanks zwakke binnenlandse vraag](https://fd.nl/bedrijfsleven/1585371/nederlandse-industrie-stabiel-ondanks-zwakke-binnenlandse-vraag)
-> De inkoopmanagersindex voor de maand januari wijst erop dat de Nederlandse industrie nog maar nauwelijks groeit.
+### [Plantenkwekerij Jongerius maakt doorstart met investeerder Beelen](https://fd.nl/bedrijfsleven/1585395/plantenkwekerij-jongerius-maakt-doorstart-met-investeerder-beelen)
+> De zakenman sluit een overeenkomst met de curator. Wim Beelen zegt ernaar uit te kijken de kwekerij nieuw leven in te blazen. Hij ziet veel potentie in de locatie in Houten.
 
-### [Verkoop nieuwe elektrische auto’s met 35% gedaald](https://fd.nl/bedrijfsleven/1585384/verkoop-nieuwe-elektrische-autos-met-35-gedaald)
-> De verkoop van hybride modellen steeg nog wel in januari: 18% meer dan dezelfde maand een jaar eerder.
+### [Slokop AI doet koersen geheugenchips exploderen bij dreigend ‘ramageddon’](https://fd.nl/financiele-markten/1585386/slokop-ai-doet-koersen-geheugenchips-exploderen-bij-dreigend-ramageddon)
+> De AI-rally heeft nu de makers van geheugenchips bereikt. De explosieve vraag stuwt de beurskoersen omhoog bij een dreigend tekort van het aanbod.
 
-### [Zo ontsla je werknemers netjes bij een reorganisatie](https://fd.nl/samenleving/1584857/zo-ontsla-je-werknemers-netjes-bij-een-reorganisatie)
-> Vlak voor de feestdagen geen slechtnieuwsgesprekken meer en een bereikbare contactpersoon voor alle vragen; zo neem je respectvol afscheid van een werknemer.
+### [Makelaars zijn 31% duurder geworden in vier jaar tijd](https://fd.nl/bedrijfsleven/1585375/makelaars-zijn-31-duurder-geworden-in-vier-jaar-tijd)
+> De stijging is mede het gevolg van een financieringstrend: makelaars kiezen weer vaker voor een percentage van de verkoopprijs in plaats van een vaste vergoeding.
 
-### [Amerikaanse toezichthouder heeft twijfels over Pharming‑medicijn Joenja](https://fd.nl/bedrijfsleven/1585383/amerikaanse-toezichthouder-heeft-twijfels-over-pharmingmedicijn-joenja)
-> Pharming-ceo Fabrice Chouraqui is teleurgesteld over de reactie van de FDA. Hij zegt nauw te zullen samenwerken met de toezichthouder om de benodigde informatie te verstrekken.
+### [Private equity, de kat en het dieet](https://fd.nl/financiele-markten/1585394/private-equity-de-kat-en-het-dieet)
+> Zou de schuldpositie in kwetsbare sectoren zoals de (dieren)zorg niet beter zichtbaar moeten zijn, vraagt FD-columnist Ria Roerink zich af. Dan ziet de klant zelf of de zaak volgepropt is met vreemd...
 
-### [Live: AEX-index opent 1,1% lager,  weer onder de 1000 punten](https://fd.nl/financiele-markten/1585339/live-ook-in-azie-dalende-koersen-van-goud-zilver-en-aandelen)
-> Onzekerheid over het financiële beleid en winstnemingen doen de waarderingen dalen. Margincalls kunnen een katalysator zijn met een negatief effect.
+### [Goud in handen](https://fd.nl/samenleving/1584950/goud-in-handen)
+> Frida Boeke zoekt in deze barre tijden steun bij de Egyptische talisman om haar hals, een gouden geschenk van haar grootmoeder.
 
 ---
 *Automatisch gegenereerd door nieuws.py*
