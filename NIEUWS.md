@@ -1,10 +1,14 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-02-2026 om 23:13*
+*Laatst bijgewerkt: 02-02-2026 om 23:57*
 
 ---
 
 ## NOS
+
+### ['Vrijdag gesprekken tussen VS en Iran over opgelopen spanningen'](https://nos.nl/l/2600722)
+> De Verenigde Staten en Iran gaan vrijdag met elkaar in gesprek over de spanningen tussen beide landen. Het overleg vindt plaats in Istanbul, meldt onder meer The New York Times.
+        Namens...
 
 ### [Eerste restauratie in decennia voor 'Het laatste oordeel' in Sixtijnse Kapel](https://nos.nl/l/2600715)
 > Bezoekers van de Sixtijnse Kapel in Rome wacht de komende tijd een lichte teleurstelling. Het beroemde fresco Het laatste oordeel van Michelangelo wordt voor het eerst in dertig jaar tijd...
@@ -17,9 +21,6 @@
 
 ### [Trump zegt dat India stopt met Russische olie, VS verlaagt importheffingen](https://nos.nl/l/2600710)
 > Amerika en India hebben een handelsverdrag gesloten, waardoor de VS de importheffingen voor het land verlaagt van 25 procent naar 18 procent. Dat meldt zowel de Amerikaanse president Trump als de...
-
-### [Yfke Sturm, Clinton, Musk: wie staan er allemaal in de Epstein-files?](https://nos.nl/l/2600709)
-> Release the files! klonk het maandenlang in de VS. Het publiek wilde weten wat aanklagers te weten waren gekomen over de contacten van veroordeeld zedendelinquent Jeffrey Epstein met andere...
 
 
 ## AD
@@ -42,20 +43,19 @@
 
 ## FD
 
+### [Disruptie in de polder](https://fd.nl/opinie/1585500/disruptie-in-de-polder)
+
+### [Weer kleine operationele winst voor Tony’s Chocolonely](https://fd.nl/bedrijfsleven/1585385/weer-kleine-operationele-winst-voor-tonys-chocolonely)
+> Het Nederlandse chocolademerk investeert in lastig jaar in groei en boekt daardoor opnieuw een nettoverlies.
+
+### [Japan geeft het voorbeeld: lesje ‘omgaan met China’](https://fd.nl/opinie/1585372/japan-geeft-het-voorbeeld-lesje-omgaan-met-china)
+> Japan investeert stevig in bedrijven die alternatieven bieden voor Chinese grondstoffen. Gaan andere landen nu ook met die Japanse blauwdruk aan de slag?
+
 ### [Wall Street begint februari in het groen](https://fd.nl/financiele-markten/1585444/wall-street-begint-februari-in-het-groen)
 > De Dow Jones eindigde 1,1% in de plus, de S&P500  maakte een einde aan de daling van drie dagen en boekte een winst van 0,5%. Ook de Nasdaq pluste met 0,6%.
 
 ### [Handelsdeal: VS verlagen heffingen, ‘India stopt met Russische olie’](https://fd.nl/economie/1585409/handelsdeal-vs-verlagen-heffingen-india-stopt-met-russische-olie)
 > India en de Verenigde Staten zijn tot een akkoord gekomen over de wederzijdse invoerheffingen en de Indiase import van Russische olie.
-
-### [KLM reorganiseert verder, operationeel directeur vertrekt](https://fd.nl/bedrijfsleven/1585498/klm-reorganiseert-verder-operationeel-directeur-vertrekt)
-> Het kwakkelende luchtvaartbedrijf gunt topvrouw Marjan Rintel een tweede termijn om de herstructurering door te voeren.
-
-### [UBS: private credit kwetsbaar voor AI](https://fd.nl/financiele-markten/1585408/ubs-private-credit-kwetsbaar-voor-ai)
-> 13% van de Amerikaanse markt zou in een agressief scenario betalingsproblemen kunnen krijgen, omdat bedrijfsmodellen achterhaald worden door nieuwe technologie, denken analisten van zakenbank UBS.
-
-### [Zorgen over Fed niet verdwenen met benoeming Warsh](https://fd.nl/opinie/1585476/zorgen-over-fed-niet-verdwenen-met-benoeming-warsh)
-> Wall Street had de hand in de benoeming van de ‘goede Kevin’.
 
 ---
 *Automatisch gegenereerd door nieuws.py*
