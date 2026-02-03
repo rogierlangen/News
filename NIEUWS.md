@@ -1,64 +1,61 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-02-2026 om 07:58*
+*Laatst bijgewerkt: 03-02-2026 om 10:07*
 
 ---
 
 ## NOS
 
-### [Proces tegen zoon van Noorse kroonprinses Mette-Marit dieptepunt in turbulent leven](https://nos.nl/l/2600738)
-> Vandaag begint in Noorwegen de rechtszaak tegen Marius Borg Høiby, de stiefzoon van kroonprins Haakon. Hij staat terecht voor 38 misdrijven. De zaak is pijnlijk voor het Noorse hof.
-        "We geven...
+### [Sextortion-zaak met zeker 20 slachtoffers van start in rechtbank Groningen](https://nos.nl/l/2600756)
+> In de rechtbank in Groningen staat vandaag een 32-jarige man uit Borculo terecht, omdat hij jarenlang meisjes en vrouwen zou hebben afgeperst. Volgens justitie gaat het om een van de grootste...
 
-### [Clintons willen toch getuigen over Epstein](https://nos.nl/l/2600734)
-> Bill en Hillary Clinton gaan toch getuigen voor een commissie van het Amerikaanse Huis van Afgevaardigden die onderzoek doet naar de zaak rond de veroordeelde zedendelinquent Jeffrey Epstein.
-       ...
+### [Opnieuw grootschalige aanval op Oekraïne vannacht](https://nos.nl/l/2600752)
+> Rusland heeft afgelopen nacht tot vroeg in de ochtend opnieuw een grote luchtaanval uitgevoerd op het Oekraïense energienet en wijken waar burgers wonen. Dat melden de Oekraïense autoriteiten. Bij de...
 
-### [Buschauffeurs Lelystad luiden noodklok: 'Onveilige situaties door defecte bussen'](https://nos.nl/l/2600733)
-> Buschauffeurs in Lelystad maken zich grote zorgen over hun veiligheid. In een brandbrief aan de directie van vervoerder EBS klagen ze over defecten aan de bussen en de agressie van reizigers die...
+### [Overname in bedrijvenrijk Musk: xAI wordt onderdeel van SpaceX](https://nos.nl/l/2600750)
+> SpaceX heeft de start-up voor kunstmatige intelligentie xAI overgenomen. Beide bedrijven horen bij het imperium van ondernemer en miljardair Elon Musk. Die ziet veel voordelen in meer samenwerking en...
 
-### [AOW-leeftijd sneller omhoog, bekijk hier wat dat voor jou betekent](https://nos.nl/l/2600732)
-> De AOW-leeftijd gaat sneller omhoog, als het aan D66, VVD en CDA ligt. Wat dit voor jou betekent, staat in dit artikel.
-        Als het plan doorgaat, heeft het gevolgen voor de mensen jonger dan 60....
+### [Zeven verdachten opgepakt bij anti-drugsactie in Eindhoven](https://nos.nl/l/2600749)
+> Bij invallen door de politie in Eindhoven zijn vanochtend zeven mensen opgepakt. Zij worden ervan verdacht lid te zijn van een criminele organisatie die zich bezighoudt met de productie en handel van...
 
-### [Vandaag debat over coalitieplannen, wat vindt de oppositie ervan?](https://nos.nl/l/2600731)
-> Wat vindt de oppositie van de plannen van de nieuwe coalitie? Daarover zal meer duidelijk worden vandaag in het Tweede Kamerdebat over het coalitieakkoord. Het is waarschijnlijk nog te vroeg voor...
+### [AkzoNobel verkoopt minder verf, last van importheffingen en sterke euro](https://nos.nl/l/2600746)
+> Verffabrikant AkzoNobel heeft in het laatste kwartaal van vorig jaar minder verf verkocht. Onder meer in Latijns-Amerika en Azië ging minder huis-tuin-en-keukenverf van de hand. Ook de tak voor...
 
 
 ## AD
 
-### [Presentatrice Nikki Herr opnieuw zwanger: ‘Het zijn echt twee baby’tjes’](https://www.ad.nl/show/presentatrice-nikki-herr-opnieuw-zwanger-het-zijn-echt-twee-babytjes~a014a2be/)
-> Hart van Nederland-presentatrice Nikki Herr (34) wordt opnieuw moeder. Het gaat om een bijzondere zwangerschap, want Nikki is in verwachting van twee kindjes.
+### [OM doorzoekt kantoor van X van Elon Musk in Parijs, Interpol aanwezig](https://www.ad.nl/economie/om-doorzoekt-kantoor-van-x-van-elon-musk-in-parijs-interpol-aanwezig~ada1198d/)
+> Het Openbaar Ministerie van Parijs meldt dat dinsdag huiszoekingen plaatsvinden in het Parijse kantoor van X, het socialemediaplatform van Elon Musk. De acties horen bij een onderzoek dat in januari...
 
-### [‘Bonusprins’ Marius na arrestatie in ziekenhuis voor medisch onderzoek, koninklijke familie bezoekt hem](https://www.ad.nl/show/bonusprins-marius-na-arrestatie-in-ziekenhuis-voor-medisch-onderzoek-koninklijke-familie-bezoekt-hem~ab90d61a/)
-> Marius Borg Høiby (29), de oudste zoon van de Noorse kroonprinses Mette-Marit, is na zijn arrestatie onder politiebegeleiding naar het ziekenhuis gebracht. Het zou gaan om een medisch onderzoek. De...
+### [Koen (27) hoort zó’n hevige piep dat hij niet meer verder wil leven, dan gooit hij het roer om](https://www.ad.nl/binnenland/koen-27-hoort-zon-hevige-piep-dat-hij-niet-meer-verder-wil-leven-dan-gooit-hij-het-roer-om~a4ec25c5/)
+> De oorsuizen die Koen (27) continu hoort zijn op een gegeven moment zó ernstig, dat hij op zijn dieptepunt zelfs niet verder wil leven. Maar dan gooit hij het roer helemaal om, ontwikkelt zelf een...
 
-### [Waarom Nederlandse clubs een dag langer spelers kunnen kopen dan buitenlandse topclubs](https://www.ad.nl/voetbal/waarom-nederlandse-clubs-een-dag-langer-spelers-kunnen-kopen-dan-buitenlandse-topclubs~afa5a40b/)
-> Clubs en nationale bonden mogen zelf bepalen wanneer hun transfermarkt sluit. In Nederland is dat bewust een dag later dan de vijf Europese topcompetities.
+### [George Russell titelfavoriet bij de wedkantoren: ‘Ik wil het graag opnemen tegen Max Verstappen’](https://www.ad.nl/formule-1/george-russell-titelfavoriet-bij-de-wedkantoren-ik-wil-het-graag-opnemen-tegen-max-verstappen~a4388444/)
+> George Russell wordt door de Britse wedkantoren gezien als favoriet voor de wereldtitel in 2026. Makkelijk zal het niet worden voor de coureur van Mercedes, want de naam van Max Verstappen volgt op...
 
-### [Comeback van populaire K-popgroep BTS binnenkort live te zien op Netflix](https://www.ad.nl/show/comeback-van-populaire-k-popgroep-bts-binnenkort-live-te-zien-op-netflix~aee9c5e9/)
-> De comeback van BTS is in maart live te zien op Netflix. De populaire K-popgroep heeft zowel een livestreamoptreden als een documentaire aangekondigd die bij de streamingdienst te zien zullen zijn.
+### [Marathonloper Eliud Kipchoge vlagdrager bij opening, schaatsers poseren bij aankomst in Milaan](https://www.ad.nl/olympische-spelen/marathonloper-eliud-kipchoge-vlagdrager-bij-opening-schaatsers-poseren-bij-aankomst-in-milaan~aa000d15/)
+> De Olympische Winterspelen Milaan Cortina staan voor de deur: op vrijdag 6 februari is de openingsceremonie. Nederland gaat vanaf dan op jacht naar goud. Volg al het nieuws in aanloop naar de Spelen...
 
-### [Jongen (13) zwemt vier uur lang door woeste zee van Australië om gezin te redden: ‘Wonder dat dit is gelukt’](https://www.ad.nl/buitenland/jongen-13-zwemt-vier-uur-lang-door-woeste-zee-van-australie-om-gezin-te-redden-wonder-dat-dit-is-gelukt~a9f5f641/)
-> Ze waren door de onstuimige zee zeker 14 kilometer van de kust afgedreven met hun paddleboard en kajaks. Terugkomen leek onmogelijk. Maar de 13-jarige jongen uit het gezin werd een absolute held,...
+### [Keepertje, keepertje.. doelman van Almere City maakt klungelige eigen goal](https://www.ad.nl/voetbal/keepertje-keepertje-doelman-van-almere-city-maakt-klungelige-eigen-goal~a1eb8438/)
+> Het was maandag niet de dag van Almere City-doelman Jonas Wendlinger. De 25-jarige Oostenrijker maakte in de uitwedstrijd tegen MVV op nogal klungelige wijze een eigen goal.
 
 
 ## FD
 
-### [Shanghai erkent corruptieproblemen, terwijl Xi de touwtjes strakker aantrekt](https://fd.nl/politiek/1585447/shanghai-erkent-corruptieproblemen-terwijl-xi-de-touwtjes-strakker-aantrekt)
+### [Het werkelijke gevaar van AI](https://fd.nl/financiele-markten/1585521/het-werkelijke-gevaar-van-ai)
+> We staan op het punt iets wezenlijks te verliezen: de gedachtestreep. ChatGPT strooit ermee alsof het hagelslag is, waardoor niemand het nog wil gebruiken, zegt FD-columnist Milou Brand.
+
+### [Kun je echt vrienden zijn met collega’s?](https://fd.nl/samenleving/1585284/kun-je-echt-vrienden-zijn-met-collegas)
+> Femmetje de Wind vergiste zich in de werkvriendschap met iemand die, toen het erop aankwam, meer geïnteresseerd was in haar functie.
+
+### [Softwareontwikkelaar Bird blijft toch in Nederland](https://fd.nl/bedrijfsleven/1585450/softwareontwikkelaar-bird-blijft-toch-in-nederland)
+> Oprichter Robert Vis van softwareontwikkelaar Bird zegt dat het bedrijf in Nederland gevestigd blijft.
+
+### [Shanghai erkent corruptieproblemen, economie van stad groeit door](https://fd.nl/politiek/1585447/shanghai-erkent-corruptieproblemen-terwijl-xi-de-touwtjes-strakker-aantrekt)
 > De burgemeester van de miljoenenstad sprak van een ‘diepe rectificatie’ nadat inspecteurs uit Peking misstanden hadden blootgelegd.
 
 ### [Omzetstijging voor NXP in laatste kwartaal van 2025](https://fd.nl/bedrijfsleven/1585516/omzetstijging-voor-nxp-in-laatste-kwartaal-van-2025)
 > De omzet van NXP steeg in het vierde kwartaal van 2025 met zo’n 7%.
-
-### [Wisselkoersen drukken resultaat AkzoNobel](https://fd.nl/bedrijfsleven/1585515/wisselkoersen-drukken-resultaat-akzonobel)
-> De verfmaker deed het iets minder dan analisten hadden verwacht. Over de voorgenomen fusie met de Amerikaanse coatingspecialist Axalta bracht AkzoNobel geen nieuws naar buiten.
-
-### [Musk voegt SpaceX samen met Grok-maker xAI in miljardendeal](https://fd.nl/bedrijfsleven/1585445/musk-voegt-spacex-samen-met-grok-maker-xai-in-miljardendeal)
-> 's Werelds rijkste man brengt twee van zijn bedrijven samen in een transactie met volgens Amerikaanse media een waardering van $1250 mrd. Een beursgang van SpaceX staat nog steeds op de rol.
-
-### [Live: Europese beurzen gaan hogere opening tegemoet](https://fd.nl/financiele-markten/1585446/live-beleggers-kijken-uit-naar-reeks-aan-kwartaalcijfers)
-> Bijna een kwart van de S&P 500-bedrijven publiceert deze week kwartaalcijfers. AkzoNobel is een belangrijke focus voor Nederlandse beleggers vandaag. De Amerikaanse banenrapporten zijn uitgesteld.
 
 ---
 *Automatisch gegenereerd door nieuws.py*
