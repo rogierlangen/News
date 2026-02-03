@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-02-2026 om 12:22*
+*Laatst bijgewerkt: 03-02-2026 om 12:24*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Code geel voor heel Nederland, vanavond code oranje voor noordelijke provincies: ‘Ga niet de weg op’](https://www.ad.nl/binnenland/code-geel-voor-heel-nederland-vanavond-code-oranje-voor-noordelijke-provincies-ga-niet-de-weg-op~a856960d/)
+  > Rijkswaterstaat waarschuwt weggebruikers in de noordelijke drie provincies voor gevaarlijke gladheid door ijzel. ‘Het dringende advies voor...
 - [Je spieren groeien er snel door, maar anabole steroïden hebben altijd gevaarlijke bijwerkingen](https://www.ad.nl/gezond/je-spieren-groeien-er-snel-door-maar-anabole-steroiden-hebben-altijd-gevaarlijke-bijwerkingen~a832c1ac/)
   > Een perfect gespierd lijf in maar een paar maanden tijd: dat vooruitzicht zorgt dat bijna een half miljoen sporters in Nederland anabole steroïden...
 - [Zijn idiote stunt was wereldnieuws en hij zou jaren in de cel belanden, maar hoe liep het écht af?](https://www.ad.nl/buitenland/zijn-idiote-stunt-was-wereldnieuws-en-hij-zou-jaren-in-de-cel-belanden-maar-hoe-liep-het-echt-af~a5e07c64/)
@@ -35,8 +37,6 @@
   > Harrie Lavreysen heeft op de EK baanwielrennen in het Turkse Konya de tweede tijd neergezet in de kwalificaties van het sprinttoernooi. De regerend...
 - [Bauke Mollema kondigt afscheid aan: ‘De tijd vliegt wanneer je plezier hebt’](https://www.ad.nl/wielrennen/bauke-mollema-kondigt-afscheid-aan-de-tijd-vliegt-wanneer-je-plezier-hebt~ac330814/)
   > Bauke Mollema stopt aan het einde van het seizoen. De 39-jarige wielrenner heeft dat via Instagram bekendgemaakt.
-- [NEC stelt door Ajax begeerde Sano op in kwartfinale beker: ‘Kan me voorstellen dat het heel lastig voor hem is’](https://www.ad.nl/voetbal/nec-stelt-door-ajax-begeerde-sano-op-in-kwartfinale-beker-kan-me-voorstellen-dat-het-heel-lastig-voor-hem-is~ab857e88/)
-  > Kodai Sano begint woensdag gewoon aan de bekerwedstrijd van NEC tegen FC Volendam. „We hebben besloten dat hij gaat spelen”, blikt trainer Dick...
 
 ### Meest gelezen
 
