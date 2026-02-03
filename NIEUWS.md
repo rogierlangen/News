@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-02-2026 om 12:11*
+*Laatst bijgewerkt: 03-02-2026 om 12:16*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Je spieren groeien er snel door, maar anabole steroïden hebben altijd gevaarlijke bijwerkingen](https://www.ad.nl/gezond/je-spieren-groeien-er-snel-door-maar-anabole-steroiden-hebben-altijd-gevaarlijke-bijwerkingen~a832c1ac/)
+  > Een perfect gespierd lijf in maar een paar maanden tijd: dat vooruitzicht zorgt dat bijna een half miljoen sporters in Nederland anabole steroïden...
+- [Zijn idiote stunt was wereldnieuws en hij zou jaren in de cel belanden, maar hoe liep het écht af?](https://www.ad.nl/buitenland/zijn-idiote-stunt-was-wereldnieuws-en-hij-zou-jaren-in-de-cel-belanden-maar-hoe-liep-het-echt-af~a5e07c64/)
+  > Ken je die wereldwijd als ‘idioot’ afgeschilderde Amerikaan nog die de meest geïsoleerde stam ter wereld een blikje cola ging aanbieden? Youtuber en...
 - [Harrie Lavreysen in kwalificatie fractie langzamer dan rivaal Matthew Richardson](https://www.ad.nl/wielrennen/harrie-lavreysen-in-kwalificatie-fractie-langzamer-dan-rivaal-matthew-richardson~a6a75df9/)
   > Harrie Lavreysen heeft op de EK baanwielrennen in het Turkse Konya de tweede tijd neergezet in de kwalificaties van het sprinttoernooi. De regerend...
 - [Bauke Mollema kondigt afscheid aan: ‘De tijd vliegt wanneer je plezier hebt’](https://www.ad.nl/wielrennen/bauke-mollema-kondigt-afscheid-aan-de-tijd-vliegt-wanneer-je-plezier-hebt~ac330814/)
   > Bauke Mollema stopt aan het einde van het seizoen. De 39-jarige wielrenner heeft dat via Instagram bekendgemaakt.
 - [NEC stelt door Ajax begeerde Sano op in kwartfinale beker: ‘Kan me voorstellen dat het heel lastig voor hem is’](https://www.ad.nl/voetbal/nec-stelt-door-ajax-begeerde-sano-op-in-kwartfinale-beker-kan-me-voorstellen-dat-het-heel-lastig-voor-hem-is~ab857e88/)
   > Kodai Sano begint woensdag gewoon aan de bekerwedstrijd van NEC tegen FC Volendam. „We hebben besloten dat hij gaat spelen”, blikt trainer Dick...
-- [Lieke Martens zwanger van tweede kindje: ‘Growing our family’](https://www.ad.nl/show/lieke-martens-zwanger-van-tweede-kindje-growing-our-family~a7cfc713/)
-  > Lieke Martens en haar partner Benjamin van Leer worden opnieuw ouders. Dat deelt de oud-voetbalster dinsdag op Instagram. Vorig jaar werd ze voor het...
-- [Spaanse kunst­schaat­ser wil olympische oefening doen op Minions-mu­ziek, maar moet in allerijl op zoek naar iets anders](https://www.ad.nl/olympische-spelen/spaanse-kunstschaatser-wil-olympische-oefening-doen-op-minions-muziek-maar-moet-in-allerijl-op-zoek-naar-iets-anders~af721aeea/)
-  > Kunstrijder Tomàs-Llorenç Guarino Sabaté moet amper een week voor hij aan de bak moet op de Olympische Spelen terug naar de tekentafel. De Spanjaard...
 
 ### Meest gelezen
 
