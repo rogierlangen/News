@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-02-2026 om 12:24*
+*Laatst bijgewerkt: 03-02-2026 om 15:35*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Laatste Engelandvaarder toch nog in leven: is 102 en woont in Michigan](https://nos.nl/l/2600772)
-  > Met het overlijden van Ellis Brandon in 2024 leek de laatste Engelandvaarder uit de Tweede Wereldoorlog te zijn overleden, maar er is nu een...
-- [Nieuw ontdekte minidino biedt inzicht in evolutie planteneters](https://nos.nl/l/2600771)
-  > Een nieuwe dinosoort die ongeveer zo groot was als een grote kip biedt volgens wetenschappers nieuwe inzichten in de evolutie van plantenetende...
-- [Lancering maanvlucht Artemis II maand uitgesteld vanwege problemen](https://nos.nl/l/2600767)
-  > De lancering van de raket voor de Artemis II-missie om de maan is met een maand uitgesteld. Bij een repetitie zijn meerdere problemen ontdekt, maakte...
-- [Duitsland neemt belang in Tennet en investeert 3,3 miljard euro](https://nos.nl/l/2600762)
-  > Duitsland neemt zoals verwacht een belang in hoogspanningsnetbeheerder Tennet. De Duitse overheid wordt voor 25,1 procent eigenaar van Tennet...
-- [China verbiedt autodeuren met 'verborgen' handgreep na dodelijke ongelukken](https://nos.nl/l/2600760)
-  > China gaat 'verborgen' handgrepen op autodeuren verbieden. Na meerdere dodelijke ongelukken vindt de Chinese overheid dat de vergrendeling van veel...
+- [Podcast De Dag: Waarom Bad Bunny een big deal is](https://nos.nl/l/2600789)
+  > "ICE out," weg met ICE, zei Bad Bunny dit weekend toen hij een Grammy won. De zanger uit Puerto Rico - al jarenlang een van de meest gestreamde...
+- [Man laat gevaarlijke mottenballen achter in kinderhoek van Amsterdamse bieb](https://nos.nl/l/2600788)
+  > Een man uit Amsterdam wordt ervan verdacht dat hij mottenballen heeft achtergelaten in de kinderhoek van een bibliotheek. De mottenballen kunnen...
+- [Staatssecretaris dreigt met ingrijpen bij uitgevers van wegwerpschoolboeken](https://nos.nl/l/2600787)
+  > Demissionair staatssecretaris Becking van Onderwijs voert de druk op uitgevers van schoolboeken op. Als ze geen verbeteringen doorvoeren in hun...
+- [Celstraffen tot 14 jaar voor gooien handgranaten naar ambassade Israël in Kopenhagen](https://nos.nl/l/2600786)
+  > Een rechtbank in Kopenhagen heeft twee mannen uit Zweden veroordeeld tot gevangenisstraffen voor het gooien van handgranaten naar de Israëlische...
+- [Franse autoriteiten doen inval bij X-vestiging in Parijs](https://nos.nl/l/2600782)
+  > De Franse autoriteiten hebben een inval gedaan in een kantoor van het socialemediaplatform X in Parijs, meldt het parket van Parijs. Het onderzoek...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Code geel voor heel Nederland, vanavond code oranje voor noordelijke provincies: ‘Ga niet de weg op’](https://www.ad.nl/binnenland/code-geel-voor-heel-nederland-vanavond-code-oranje-voor-noordelijke-provincies-ga-niet-de-weg-op~a856960d/)
-  > Rijkswaterstaat waarschuwt weggebruikers in de noordelijke drie provincies voor gevaarlijke gladheid door ijzel. ‘Het dringende advies voor...
-- [Je spieren groeien er snel door, maar anabole steroïden hebben altijd gevaarlijke bijwerkingen](https://www.ad.nl/gezond/je-spieren-groeien-er-snel-door-maar-anabole-steroiden-hebben-altijd-gevaarlijke-bijwerkingen~a832c1ac/)
-  > Een perfect gespierd lijf in maar een paar maanden tijd: dat vooruitzicht zorgt dat bijna een half miljoen sporters in Nederland anabole steroïden...
-- [Zijn idiote stunt was wereldnieuws en hij zou jaren in de cel belanden, maar hoe liep het écht af?](https://www.ad.nl/buitenland/zijn-idiote-stunt-was-wereldnieuws-en-hij-zou-jaren-in-de-cel-belanden-maar-hoe-liep-het-echt-af~a5e07c64/)
-  > Ken je die wereldwijd als ‘idioot’ afgeschilderde Amerikaan nog die de meest geïsoleerde stam ter wereld een blikje cola ging aanbieden? Youtuber en...
-- [Harrie Lavreysen in kwalificatie fractie langzamer dan rivaal Matthew Richardson](https://www.ad.nl/wielrennen/harrie-lavreysen-in-kwalificatie-fractie-langzamer-dan-rivaal-matthew-richardson~a6a75df9/)
-  > Harrie Lavreysen heeft op de EK baanwielrennen in het Turkse Konya de tweede tijd neergezet in de kwalificaties van het sprinttoernooi. De regerend...
-- [Bauke Mollema kondigt afscheid aan: ‘De tijd vliegt wanneer je plezier hebt’](https://www.ad.nl/wielrennen/bauke-mollema-kondigt-afscheid-aan-de-tijd-vliegt-wanneer-je-plezier-hebt~ac330814/)
-  > Bauke Mollema stopt aan het einde van het seizoen. De 39-jarige wielrenner heeft dat via Instagram bekendgemaakt.
+- [Borculoër (32) schuift ernstig seksueel misbruik op bordje slachtoffers: ‘Zij wilden geld verdienen’](https://www.ad.nl/binnenland/borculoer-32-schuift-ernstig-seksueel-misbruik-op-bordje-slachtoffers-zij-wilden-geld-verdienen~a20379df/)
+  > De 32-jarige S. uit Borculo maakte zich volgens justitie jarenlang schuldig aan heftige afpersingen en ernstig seksueel misbruik. Jonge vrouwen waren...
+- [Ajax strikt Argentijns talent: Maher Carrizo (19) voor miljoenenbedrag naar Amsterdam](https://www.ad.nl/voetbal/ajax-strikt-argentijns-talent-maher-carrizo-19-voor-miljoenenbedrag-naar-amsterdam~ade2db5a/)
+  > Ajax heeft Maher Carrizo binnen. Dinsdag, op de laatste dag van de transferperiode, maakte de club de aankoop wereldkundig. Ajax neemt de 19-jarige...
+- [Ajax presenteert Argentijnse aanvaller Carrizo, ruildeal in de maak tussen Telstar en Sparta](https://www.ad.nl/voetbal/ajax-presenteert-argentijnse-aanvaller-carrizo-ruildeal-in-de-maak-tussen-telstar-en-sparta~a596b09f/)
+  > Het is Deadline Day in Nederland! Welke club gaat zich nog versterken en welke spelers mogen vertrekken? De markt sluit om 23.59:59 uur, volg alle...
+- [Omstreden topdiplomaat Peter Mandelson stapt uit House of Lords vanwege Epstein-banden](https://www.ad.nl/buitenland/omstreden-topdiplomaat-peter-mandelson-stapt-uit-house-of-lords-vanwege-epstein-banden~a6ceb370/)
+  > Peter Mandelson, de voormalige Britse ambassadeur voor de VS, stapt uit de Britse senaat. Dat meldt de BBC. De partijprominent stapte maandag al uit...
+- [Oude meters dit jaar vervangen: verplicht kiezen tussen digitale of slimme meter](https://www.ad.nl/wonen/oude-meters-dit-jaar-vervangen-verplicht-kiezen-tussen-digitale-of-slimme-meter~ab8c79e2/)
+  > Het is binnenkort afgelopen met de draaischijfmeter in de meterkast. Vanwege de nieuwe energiewet per 1 januari 2026 vervangen netbeheerders de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Nederlandse bevolking groeit minder snel](https://fd.nl/samenleving/1585525/nederlandse-bevolking-groeit-minder-snel)
-  > Voor het vierde jaar op rij krimpt de bevolking via natuurlijke aanwas. Het migratiesaldo is daarmee cruciaal voor bevolkingsgroei.
-- [PepsiCo overtreft verwachtingen van analisten](https://fd.nl/bedrijfsleven/1585526/pepsico-overtreft-verwachtingen-van-analisten)
-  > De snack- en frisdrankmaker hield zijn prognose voor 2026 ongewijzigd.
-- [Nederland staat ook voor de uitdaging om online radicalisering te stoppen](https://fd.nl/opinie/1585393/de-uitdaging-om-online-radicalisering-te-stoppen)
-  > Het OM is druk met het vervolgen van leden van het 764-netwerk. Die vinden elkaar online en propageren nihilistisch gewelddadig extremisme, wat...
-- [De rijken worden steeds rijker, ook in het voetbal](https://fd.nl/bedrijfsleven/1585517/de-rijken-worden-steeds-rijker-ook-in-het-voetbal)
-  > Vorig seizoen streken de twintig best verdienende voetbalclubs samen €12,4 mrd op, 350% meer dan in seizoen 2002-2003.
-- [Frankrijk heeft een begroting voor 2026, al moest de partij van premier Lecornu er veel voor inleveren](https://fd.nl/politiek/1585452/frankrijk-heeft-een-begroting-voor-2026-al-moest-de-partij-van-premier-lecornu-er-veel-voor-inleveren)
-  > Huishoudens worden vooral ontzien, de rekening gaat naar het bedrijfsleven.
+- [Nieuwe coalitie wil meer bouwen, maar trekt nauwelijks extra geld uit](https://fd.nl/politiek/1585519/nieuwe-coalitie-wil-meer-bouwen-maar-trekt-nauwelijks-extra-geld-uit)
+  > D66, VVD en CDA willen ambitie uitstralen, maar deskundigen missen de nodige investeringen in nieuwbouw. Gaat Jetten-I de bouwdoelen wel halen?
+- [Haskoning breidt maritieme dienstverlening uit met nieuwe overname](https://fd.nl/bedrijfsleven/1585465/haskoning-breidt-maritieme-dienstverlening-uit-met-nieuwe-overname)
+  > Met de acquisitie wil ingenieursbureau Haskoning zijn maritieme dienstverlening uitbreiden en inspelen op veranderende handelsstromen bij...
+- [Producent Boot nam moeilijk besluit: Soldaat van Oranje gesneuveld](https://fd.nl/bedrijfsleven/1584851/producent-boot-nam-moeilijk-besluit-soldaat-van-oranje-gesneuveld)
+  > De kaartverkoop gaat minder soepel en met halfvolle zalen worden de kosten niet gedekt. Dus besloot producent Fred Boot met pijn in het hart te...
+- [Blijft Shell bij een lagere olieprijs in hetzelfde tempo aandelen inkopen?](https://fd.nl/financiele-markten/1585535/blijft-shell-bij-een-lagere-olieprijs-in-hetzelfde-tempo-aandelen-inkopen)
+  > Shell komt donderdag met de kwartaalcijfers. UBS verwacht dat het olie- en gasbedrijf minder aandelen gaat inkopen, maar ABN Amro voorziet geen...
+- [Tony’s is niet meer lonely](https://fd.nl/financiele-markten/1585489/tonys-is-niet-meer-lonely)
+  > Bondgenoten van de producent van ‘slaafvrije’ chocolade kopen al bijna meer eerlijke cacao in dan Tony’s Chocolonely zelf.
 
 ### Meest gelezen
 
