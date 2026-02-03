@@ -1,61 +1,61 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-02-2026 om 10:07*
+*Laatst bijgewerkt: 03-02-2026 om 12:00*
 
 ---
 
 ## NOS
 
-### [Sextortion-zaak met zeker 20 slachtoffers van start in rechtbank Groningen](https://nos.nl/l/2600756)
-> In de rechtbank in Groningen staat vandaag een 32-jarige man uit Borculo terecht, omdat hij jarenlang meisjes en vrouwen zou hebben afgeperst. Volgens justitie gaat het om een van de grootste...
+### [Nieuw ontdekte minidino biedt inzicht in evolutie planteneters](https://nos.nl/l/2600771)
+> Een nieuwe dinosoort die ongeveer zo groot was als een grote kip biedt volgens wetenschappers nieuwe inzichten in de evolutie van plantenetende dinosauriërs. De opvallend kleine dino leefde in het...
 
-### [Opnieuw grootschalige aanval op Oekraïne vannacht](https://nos.nl/l/2600752)
-> Rusland heeft afgelopen nacht tot vroeg in de ochtend opnieuw een grote luchtaanval uitgevoerd op het Oekraïense energienet en wijken waar burgers wonen. Dat melden de Oekraïense autoriteiten. Bij de...
+### [Lancering maanvlucht Artemis II maand uitgesteld vanwege problemen](https://nos.nl/l/2600767)
+> De lancering van de raket voor de Artemis II-missie om de maan is met een maand uitgesteld. Bij een repetitie zijn meerdere problemen ontdekt, maakte de Amerikaanse ruimtevaartorganisatie NASA...
 
-### [Overname in bedrijvenrijk Musk: xAI wordt onderdeel van SpaceX](https://nos.nl/l/2600750)
-> SpaceX heeft de start-up voor kunstmatige intelligentie xAI overgenomen. Beide bedrijven horen bij het imperium van ondernemer en miljardair Elon Musk. Die ziet veel voordelen in meer samenwerking en...
+### [Duitsland neemt belang in Tennet en investeert 3,3 miljard euro](https://nos.nl/l/2600762)
+> Duitsland neemt zoals verwacht een belang in hoogspanningsnetbeheerder Tennet. De Duitse overheid wordt voor 25,1 procent eigenaar van Tennet Duitsland en betaalt daar 3,3 miljard euro voor. Een...
 
-### [Zeven verdachten opgepakt bij anti-drugsactie in Eindhoven](https://nos.nl/l/2600749)
-> Bij invallen door de politie in Eindhoven zijn vanochtend zeven mensen opgepakt. Zij worden ervan verdacht lid te zijn van een criminele organisatie die zich bezighoudt met de productie en handel van...
+### [China verbiedt autodeuren met 'verborgen' handgreep na dodelijke ongelukken](https://nos.nl/l/2600760)
+> China gaat 'verborgen' handgrepen op autodeuren verbieden. Na meerdere dodelijke ongelukken vindt de Chinese overheid dat de vergrendeling van veel elektrische auto's te onveilig is. Het is...
 
-### [AkzoNobel verkoopt minder verf, last van importheffingen en sterke euro](https://nos.nl/l/2600746)
-> Verffabrikant AkzoNobel heeft in het laatste kwartaal van vorig jaar minder verf verkocht. Onder meer in Latijns-Amerika en Azië ging minder huis-tuin-en-keukenverf van de hand. Ook de tak voor...
+### [Rusland: we zijn voorbereid op wereld zonder kernwapenverdrag](https://nos.nl/l/2600757)
+> Rusland is klaar voor de nieuwe realiteit van een wereld waarin er geen beperkingen op kernwapens meer zijn. Dat heeft de Russische viceminister Rjabkov van Buitenlandse Zaken gezegd, wijzend op het...
 
 
 ## AD
 
-### [OM doorzoekt kantoor van X van Elon Musk in Parijs, Interpol aanwezig](https://www.ad.nl/economie/om-doorzoekt-kantoor-van-x-van-elon-musk-in-parijs-interpol-aanwezig~ada1198d/)
-> Het Openbaar Ministerie van Parijs meldt dat dinsdag huiszoekingen plaatsvinden in het Parijse kantoor van X, het socialemediaplatform van Elon Musk. De acties horen bij een onderzoek dat in januari...
+### [Harrie Lavreysen in kwalificatie fractie langzamer dan rivaal Matthew Richardson](https://www.ad.nl/wielrennen/harrie-lavreysen-in-kwalificatie-fractie-langzamer-dan-rivaal-matthew-richardson~a6a75df9/)
+> Harrie Lavreysen heeft op de EK baanwielrennen in het Turkse Konya de tweede tijd neergezet in de kwalificaties van het sprinttoernooi. De regerend olympisch, wereld- en Europees kampioen op dit...
 
-### [Koen (27) hoort zó’n hevige piep dat hij niet meer verder wil leven, dan gooit hij het roer om](https://www.ad.nl/binnenland/koen-27-hoort-zon-hevige-piep-dat-hij-niet-meer-verder-wil-leven-dan-gooit-hij-het-roer-om~a4ec25c5/)
-> De oorsuizen die Koen (27) continu hoort zijn op een gegeven moment zó ernstig, dat hij op zijn dieptepunt zelfs niet verder wil leven. Maar dan gooit hij het roer helemaal om, ontwikkelt zelf een...
+### [Bauke Mollema kondigt afscheid aan: ‘De tijd vliegt wanneer je plezier hebt’](https://www.ad.nl/wielrennen/bauke-mollema-kondigt-afscheid-aan-de-tijd-vliegt-wanneer-je-plezier-hebt~ac330814/)
+> Bauke Mollema stopt aan het einde van het seizoen. De 39-jarige wielrenner heeft dat via Instagram bekendgemaakt.
 
-### [George Russell titelfavoriet bij de wedkantoren: ‘Ik wil het graag opnemen tegen Max Verstappen’](https://www.ad.nl/formule-1/george-russell-titelfavoriet-bij-de-wedkantoren-ik-wil-het-graag-opnemen-tegen-max-verstappen~a4388444/)
-> George Russell wordt door de Britse wedkantoren gezien als favoriet voor de wereldtitel in 2026. Makkelijk zal het niet worden voor de coureur van Mercedes, want de naam van Max Verstappen volgt op...
+### [NEC stelt door Ajax begeerde Sano op in kwartfinale beker: ‘Kan me voorstellen dat het heel lastig voor hem is’](https://www.ad.nl/voetbal/nec-stelt-door-ajax-begeerde-sano-op-in-kwartfinale-beker-kan-me-voorstellen-dat-het-heel-lastig-voor-hem-is~ab857e88/)
+> Kodai Sano begint woensdag gewoon aan de bekerwedstrijd van NEC tegen FC Volendam. „We hebben besloten dat hij gaat spelen”, blikt trainer Dick Schreuder vooruit op de kwartfinale in De Goffert.
 
-### [Marathonloper Eliud Kipchoge vlagdrager bij opening, schaatsers poseren bij aankomst in Milaan](https://www.ad.nl/olympische-spelen/marathonloper-eliud-kipchoge-vlagdrager-bij-opening-schaatsers-poseren-bij-aankomst-in-milaan~aa000d15/)
-> De Olympische Winterspelen Milaan Cortina staan voor de deur: op vrijdag 6 februari is de openingsceremonie. Nederland gaat vanaf dan op jacht naar goud. Volg al het nieuws in aanloop naar de Spelen...
+### [Lieke Martens zwanger van tweede kindje: ‘Growing our family’](https://www.ad.nl/show/lieke-martens-zwanger-van-tweede-kindje-growing-our-family~a7cfc713/)
+> Lieke Martens en haar partner Benjamin van Leer worden opnieuw ouders. Dat deelt de oud-voetbalster dinsdag op Instagram. Vorig jaar werd ze voor het eerst moeder van zoontje Lowen.
 
-### [Keepertje, keepertje.. doelman van Almere City maakt klungelige eigen goal](https://www.ad.nl/voetbal/keepertje-keepertje-doelman-van-almere-city-maakt-klungelige-eigen-goal~a1eb8438/)
-> Het was maandag niet de dag van Almere City-doelman Jonas Wendlinger. De 25-jarige Oostenrijker maakte in de uitwedstrijd tegen MVV op nogal klungelige wijze een eigen goal.
+### [Spaanse kunst­schaat­ser wil olympische oefening doen op Minions-mu­ziek, maar moet in allerijl op zoek naar iets anders](https://www.ad.nl/olympische-spelen/spaanse-kunstschaatser-wil-olympische-oefening-doen-op-minions-muziek-maar-moet-in-allerijl-op-zoek-naar-iets-anders~af721aeea/)
+> Kunstrijder Tomàs-Llorenç Guarino Sabaté moet amper een week voor hij aan de bak moet op de Olympische Spelen terug naar de tekentafel. De Spanjaard wou tijdens zijn korte kür muziek van de Minions...
 
 
 ## FD
 
+### [Nederland staat ook voor de uitdaging om online radicalisering te stoppen](https://fd.nl/opinie/1585393/de-uitdaging-om-online-radicalisering-te-stoppen)
+> Het OM is druk met het vervolgen van leden van het 764-netwerk. Die vinden elkaar online en propageren nihilistisch gewelddadig extremisme, wat lastig een halt toe te roepen is.
+
+### [De rijken worden steeds rijker, ook in het voetbal](https://fd.nl/bedrijfsleven/1585517/de-rijken-worden-steeds-rijker-ook-in-het-voetbal)
+> Vorig seizoen streken de twintig best verdienende voetbalclubs samen €12,4 mrd op, 350% meer dan in seizoen 2002-2003.
+
+### [Frankrijk heeft een begroting voor 2026, al moest de partij van premier Lecornu er veel voor inleveren](https://fd.nl/politiek/1585452/frankrijk-heeft-een-begroting-voor-2026-al-moest-de-partij-van-premier-lecornu-er-veel-voor-inleveren)
+> Huishoudens worden vooral ontzien, de rekening gaat naar het bedrijfsleven.
+
+### [Duitse staat koopt miljardenbelang in Tennet Duitsland](https://fd.nl/bedrijfsleven/1585401/duitse-staat-koopt-miljardenbelang-in-tennet-duitsland)
+> Netbeheerder Tennet gebruikt de opbrengst van de transactie om een deel van zijn leningen bij de Nederlandse overheid af te lossen.
+
 ### [Het werkelijke gevaar van AI](https://fd.nl/financiele-markten/1585521/het-werkelijke-gevaar-van-ai)
 > We staan op het punt iets wezenlijks te verliezen: de gedachtestreep. ChatGPT strooit ermee alsof het hagelslag is, waardoor niemand het nog wil gebruiken, zegt FD-columnist Milou Brand.
-
-### [Kun je echt vrienden zijn met collega’s?](https://fd.nl/samenleving/1585284/kun-je-echt-vrienden-zijn-met-collegas)
-> Femmetje de Wind vergiste zich in de werkvriendschap met iemand die, toen het erop aankwam, meer geïnteresseerd was in haar functie.
-
-### [Softwareontwikkelaar Bird blijft toch in Nederland](https://fd.nl/bedrijfsleven/1585450/softwareontwikkelaar-bird-blijft-toch-in-nederland)
-> Oprichter Robert Vis van softwareontwikkelaar Bird zegt dat het bedrijf in Nederland gevestigd blijft.
-
-### [Shanghai erkent corruptieproblemen, economie van stad groeit door](https://fd.nl/politiek/1585447/shanghai-erkent-corruptieproblemen-terwijl-xi-de-touwtjes-strakker-aantrekt)
-> De burgemeester van de miljoenenstad sprak van een ‘diepe rectificatie’ nadat inspecteurs uit Peking misstanden hadden blootgelegd.
-
-### [Omzetstijging voor NXP in laatste kwartaal van 2025](https://fd.nl/bedrijfsleven/1585516/omzetstijging-voor-nxp-in-laatste-kwartaal-van-2025)
-> De omzet van NXP steeg in het vierde kwartaal van 2025 met zo’n 7%.
 
 ---
 *Automatisch gegenereerd door nieuws.py*
