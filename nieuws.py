@@ -1,6 +1,7 @@
 """
 Nieuwsaggregator
 Haalt nieuwskoppen op van AD, FD en NOS via RSS feeds.
+Scrapt ook de "meest gelezen" artikelen van de websites.
 Slaat het resultaat op in NIEUWS.md en index.html
 
 Gebruik:
@@ -22,6 +23,13 @@ FEEDS = {
     "FD": "https://fd.nl/laatste-nieuws?rss"
 }
 
+# URLs voor het scrapen van meest gelezen
+MEEST_GELEZEN_URLS = {
+    "NOS": "https://nos.nl",
+    "AD": "https://www.ad.nl",
+    "FD": "https://fd.nl"
+}
+
 # Kleuren per nieuwsbron (voor de styling)
 BRON_KLEUREN = {
     "NOS": "#f26522",  # NOS oranje
@@ -29,40 +37,77 @@ BRON_KLEUREN = {
     "FD": "#c9a66b"    # FD goud/bruin
 }
 
-# Demo data met beschrijvingen
-DEMO_DATA = {
+# Demo data voor laatste nieuws
+DEMO_LAATSTE = {
     "NOS": [
         ("Kabinet presenteert nieuwe klimaatplannen",
          "https://nos.nl/artikel/1",
-         "Het kabinet heeft vandaag nieuwe plannen gepresenteerd om de klimaatdoelen te halen. Minister Van der Wal sprak van een historisch moment."),
+         "Het kabinet heeft vandaag nieuwe plannen gepresenteerd om de klimaatdoelen te halen."),
         ("Ajax wint met 3-0 van Feyenoord",
          "https://nos.nl/artikel/2",
-         "In een spectaculaire Klassieker heeft Ajax met 3-0 gewonnen van Feyenoord. Brobbey scoorde twee keer."),
+         "In een spectaculaire Klassieker heeft Ajax gewonnen van Feyenoord."),
         ("Zware storm verwacht in het weekend",
          "https://nos.nl/artikel/3",
-         "Het KNMI waarschuwt voor zware windstoten dit weekend. Code oranje is afgekondigd voor de kustprovincies."),
+         "Het KNMI waarschuwt voor zware windstoten dit weekend."),
     ],
     "AD": [
         ("Huizenprijzen stijgen verder in grote steden",
          "https://ad.nl/artikel/1",
-         "De gemiddelde huizenprijs in Amsterdam is voor het eerst boven de 600.000 euro gestegen. Starters hebben het steeds moeilijker."),
+         "De gemiddelde huizenprijs in Amsterdam is gestegen."),
         ("Nieuwe attractie opent in de Efteling",
          "https://ad.nl/artikel/2",
-         "De Efteling opent volgende maand een gloednieuwe achtbaan. Het wordt de snelste attractie van het park."),
+         "De Efteling opent volgende maand een gloednieuwe achtbaan."),
         ("Supermarkten verlagen prijzen basisproducten",
          "https://ad.nl/artikel/3",
-         "Albert Heijn en Jumbo hebben aangekondigd de prijzen van basisproducten te verlagen na aanhoudende kritiek."),
+         "Albert Heijn en Jumbo verlagen prijzen na kritiek."),
     ],
     "FD": [
         ("AEX sluit hoger na positieve kwartaalcijfers",
          "https://fd.nl/artikel/1",
-         "De Amsterdamse beurs sloot vandaag 1,2% hoger. Met name techfondsen presteerden goed na meevallende cijfers uit de VS."),
+         "De Amsterdamse beurs sloot vandaag 1,2% hoger."),
         ("ING verhoogt hypotheekrente",
          "https://fd.nl/artikel/2",
-         "ING verhoogt per 1 februari de hypotheekrente met 0,15 procentpunt. Andere banken overwegen te volgen."),
+         "ING verhoogt per 1 februari de hypotheekrente."),
         ("Tech-sector groeit ondanks onzekerheid",
          "https://fd.nl/artikel/3",
-         "Nederlandse techbedrijven blijven groeien ondanks economische onzekerheid. ASML rapporteerde recordomzet."),
+         "Nederlandse techbedrijven blijven groeien."),
+    ],
+}
+
+# Demo data voor meest gelezen
+DEMO_POPULAIR = {
+    "NOS": [
+        ("Waarom de benzineprijs zo hoog blijft",
+         "https://nos.nl/artikel/10",
+         "Analyse: dit zijn de factoren achter de hoge brandstofprijzen."),
+        ("Live: Tweede Kamer debatteert over begroting",
+         "https://nos.nl/artikel/11",
+         "Volg hier het begrotingsdebat in de Tweede Kamer."),
+        ("Dit is waarom je salaris niet stijgt",
+         "https://nos.nl/artikel/12",
+         "Economen leggen uit waarom lonen achterblijven bij inflatie."),
+    ],
+    "AD": [
+        ("'Ik verdiende 3000 euro per maand bij OnlyFans'",
+         "https://ad.nl/artikel/10",
+         "Studente vertelt over haar bijverdienste op het platform."),
+        ("Dit zijn de goedkoopste supermarkten van Nederland",
+         "https://ad.nl/artikel/11",
+         "Onderzoek toont aan welke supermarkt het voordeligst is."),
+        ("Buurt in shock na vondst lichaam",
+         "https://ad.nl/artikel/12",
+         "Politie doet onderzoek naar verdacht overlijden."),
+    ],
+    "FD": [
+        ("Column: Waarom de huizenmarkt niet zal crashen",
+         "https://fd.nl/artikel/10",
+         "Analyse van de Nederlandse woningmarkt."),
+        ("De beste aandelen voor 2026",
+         "https://fd.nl/artikel/11",
+         "Beleggingsexperts delen hun favorieten."),
+        ("Miljonair op je 30e: zo deed zij het",
+         "https://fd.nl/artikel/12",
+         "Interview met jonge ondernemer over haar succes."),
     ],
 }
 
@@ -75,7 +120,7 @@ def strip_html_tags(text):
     return html.unescape(clean).strip()
 
 
-def verkort_tekst(text, max_lengte=200):
+def verkort_tekst(text, max_lengte=150):
     """Verkort tekst tot maximale lengte, breekt af bij woordgrens."""
     if not text or len(text) <= max_lengte:
         return text
@@ -83,13 +128,125 @@ def verkort_tekst(text, max_lengte=200):
     return verkort + "..."
 
 
+def haal_pagina_op(url):
+    """Haalt een webpagina op en retourneert de HTML."""
+    try:
+        request = urllib.request.Request(
+            url,
+            headers={
+                'User-Agent': 'Mozilla/5.0 (Windows NT 10.0; Win64; x64) AppleWebKit/537.36 (KHTML, like Gecko) Chrome/120.0.0.0 Safari/537.36',
+                'Accept': 'text/html,application/xhtml+xml,application/xml;q=0.9,*/*;q=0.8',
+                'Accept-Language': 'nl-NL,nl;q=0.9,en;q=0.8',
+            }
+        )
+        with urllib.request.urlopen(request, timeout=15) as response:
+            return response.read().decode('utf-8', errors='ignore')
+    except Exception as e:
+        print(f"    Fout bij ophalen pagina: {e}")
+        return None
+
+
+def scrape_nos_meest_gelezen(html_content):
+    """Scrapt de meest gelezen artikelen van NOS."""
+    artikelen = []
+    if not html_content:
+        return artikelen
+
+    # Zoek naar meest gelezen sectie - NOS gebruikt vaak "mostread" of "meestgelezen"
+    # Probeer verschillende patronen
+    patterns = [
+        r'<a[^>]*href="(/artikel/[^"]+)"[^>]*>([^<]+)</a>',
+        r'<a[^>]*href="(https://nos\.nl/artikel/[^"]+)"[^>]*>([^<]+)</a>',
+        r'<h3[^>]*><a[^>]*href="(/l/[^"]+)"[^>]*>([^<]+)</a></h3>',
+    ]
+
+    # Zoek naar de meest gelezen sectie
+    meest_gelezen_match = re.search(r'(?:meest.?gelezen|most.?read|populair)(.*?)(?:</section>|</aside>|</div>\s*</div>\s*</div>)', html_content, re.IGNORECASE | re.DOTALL)
+
+    if meest_gelezen_match:
+        sectie = meest_gelezen_match.group(1)
+        links = re.findall(r'<a[^>]*href="(/(?:artikel|l)/[^"]+)"[^>]*>.*?</a>', sectie, re.DOTALL)
+        titels = re.findall(r'>([^<]{10,100})</a>', sectie)
+
+        for i, (link, titel) in enumerate(zip(links[:5], titels[:5])):
+            full_link = f"https://nos.nl{link}" if link.startswith('/') else link
+            artikelen.append((strip_html_tags(titel), full_link, ""))
+
+    return artikelen[:5]
+
+
+def scrape_ad_meest_gelezen(html_content):
+    """Scrapt de meest gelezen artikelen van AD."""
+    artikelen = []
+    if not html_content:
+        return artikelen
+
+    # AD heeft vaak een "meest gelezen" widget
+    meest_gelezen_match = re.search(r'(?:meest.?gelezen|most.?read|trending)(.*?)(?:</section>|</aside>|</ul>)', html_content, re.IGNORECASE | re.DOTALL)
+
+    if meest_gelezen_match:
+        sectie = meest_gelezen_match.group(1)
+        # Zoek naar artikel links
+        matches = re.findall(r'<a[^>]*href="(https://www\.ad\.nl/[^"]+)"[^>]*>([^<]+)</a>', sectie)
+
+        for link, titel in matches[:5]:
+            if len(titel) > 10:  # Filter korte teksten
+                artikelen.append((strip_html_tags(titel), link, ""))
+
+    return artikelen[:5]
+
+
+def scrape_fd_meest_gelezen(html_content):
+    """Scrapt de meest gelezen artikelen van FD."""
+    artikelen = []
+    if not html_content:
+        return artikelen
+
+    # FD heeft vaak een "meest gelezen" of "trending" sectie
+    meest_gelezen_match = re.search(r'(?:meest.?gelezen|trending|populair)(.*?)(?:</section>|</aside>|</div>\s*</div>)', html_content, re.IGNORECASE | re.DOTALL)
+
+    if meest_gelezen_match:
+        sectie = meest_gelezen_match.group(1)
+        matches = re.findall(r'<a[^>]*href="(https://fd\.nl/[^"]+)"[^>]*>([^<]+)</a>', sectie)
+
+        for link, titel in matches[:5]:
+            if len(titel) > 10:
+                artikelen.append((strip_html_tags(titel), link, ""))
+
+    return artikelen[:5]
+
+
+def haal_meest_gelezen_op(naam, demo_modus=False):
+    """Haalt de meest gelezen artikelen op door de website te scrapen."""
+    if demo_modus:
+        return DEMO_POPULAIR.get(naam, [])
+
+    url = MEEST_GELEZEN_URLS.get(naam)
+    if not url:
+        return []
+
+    print(f"    Scrapen meest gelezen van {naam}...")
+    html_content = haal_pagina_op(url)
+
+    if not html_content:
+        return []
+
+    if naam == "NOS":
+        return scrape_nos_meest_gelezen(html_content)
+    elif naam == "AD":
+        return scrape_ad_meest_gelezen(html_content)
+    elif naam == "FD":
+        return scrape_fd_meest_gelezen(html_content)
+
+    return []
+
+
 def haal_nieuws_op(naam, url, demo_modus=False):
     """Haalt nieuwsartikelen op van een RSS feed en geeft ze terug als lijst."""
     artikelen = []
 
-    # Demo modus: gebruik voorbeelddata
     if demo_modus:
-        return DEMO_DATA.get(naam, [])
+        return DEMO_LAATSTE.get(naam, [])
 
     try:
         request = urllib.request.Request(
@@ -124,51 +281,79 @@ def haal_nieuws_op(naam, url, demo_modus=False):
     return artikelen
 
 
-def maak_html(alle_artikelen, demo_modus=False):
+def maak_artikel_html(titel, link, beschrijving):
+    """Maakt HTML voor een enkel artikel."""
+    escaped_titel = html.escape(titel)
+    escaped_beschrijving = html.escape(beschrijving) if beschrijving else ""
+
+    if link:
+        return f'''
+        <article class="artikel">
+            <a href="{html.escape(link)}" target="_blank" class="artikel-link">
+                <h3>{escaped_titel}</h3>
+                {f'<p class="beschrijving">{escaped_beschrijving}</p>' if escaped_beschrijving else ''}
+            </a>
+        </article>
+        '''
+    else:
+        return f'''
+        <article class="artikel">
+            <h3>{escaped_titel}</h3>
+            {f'<p class="beschrijving">{escaped_beschrijving}</p>' if escaped_beschrijving else ''}
+        </article>
+        '''
+
+
+def maak_html(alle_laatste, alle_populair, demo_modus=False):
     """Maakt een HTML pagina met professionele nieuwssite styling."""
 
     nu = datetime.now().strftime("%d-%m-%Y om %H:%M")
+    demo_tekst = '<span class="demo-badge">Demo</span>' if demo_modus else ''
 
-    # Bouw de artikelen HTML
-    artikelen_html = ""
-    for naam, artikelen in alle_artikelen.items():
+    # Bouw de artikelen HTML per bron
+    bronnen_html = ""
+    for naam in FEEDS.keys():
         kleur = BRON_KLEUREN.get(naam, "#333")
+        laatste = alle_laatste.get(naam, [])
+        populair = alle_populair.get(naam, [])
 
-        artikelen_html += f'''
+        # Laatste nieuws artikelen
+        laatste_html = ""
+        if laatste:
+            for titel, link, beschrijving in laatste:
+                laatste_html += maak_artikel_html(titel, link, beschrijving)
+        else:
+            laatste_html = '<p class="geen">Geen artikelen gevonden</p>'
+
+        # Populaire artikelen
+        populair_html = ""
+        if populair:
+            for titel, link, beschrijving in populair:
+                populair_html += maak_artikel_html(titel, link, beschrijving)
+        else:
+            populair_html = '<p class="geen">Niet beschikbaar</p>'
+
+        bronnen_html += f'''
         <section class="bron">
             <div class="bron-header" style="border-left-color: {kleur}">
                 <h2 style="color: {kleur}">{naam}</h2>
             </div>
-            <div class="artikelen">
+            <div class="kolommen">
+                <div class="kolom">
+                    <h4 class="kolom-titel">Laatste nieuws</h4>
+                    <div class="artikelen">
+                        {laatste_html}
+                    </div>
+                </div>
+                <div class="kolom populair">
+                    <h4 class="kolom-titel">Meest gelezen</h4>
+                    <div class="artikelen">
+                        {populair_html}
+                    </div>
+                </div>
+            </div>
+        </section>
         '''
-
-        if not artikelen:
-            artikelen_html += '<p class="geen">Geen artikelen gevonden</p>'
-        else:
-            for titel, link, beschrijving in artikelen:
-                escaped_titel = html.escape(titel)
-                escaped_beschrijving = html.escape(beschrijving) if beschrijving else ""
-
-                if link:
-                    artikelen_html += f'''
-                    <article class="artikel">
-                        <a href="{html.escape(link)}" target="_blank" class="artikel-link">
-                            <h3>{escaped_titel}</h3>
-                            {f'<p class="beschrijving">{escaped_beschrijving}</p>' if escaped_beschrijving else ''}
-                        </a>
-                    </article>
-                    '''
-                else:
-                    artikelen_html += f'''
-                    <article class="artikel">
-                        <h3>{escaped_titel}</h3>
-                        {f'<p class="beschrijving">{escaped_beschrijving}</p>' if escaped_beschrijving else ''}
-                    </article>
-                    '''
-
-        artikelen_html += '</div></section>'
-
-    demo_tekst = '<span class="demo-badge">Demo</span>' if demo_modus else ''
 
     html_output = f'''<!DOCTYPE html>
 <html lang="nl">
@@ -222,15 +407,9 @@ def maak_html(alle_artikelen, demo_modus=False):
         }}
 
         .container {{
-            max-width: 1000px;
+            max-width: 1200px;
             margin: 0 auto;
             padding: 25px 15px;
-        }}
-
-        .bronnen-grid {{
-            display: grid;
-            grid-template-columns: repeat(auto-fit, minmax(300px, 1fr));
-            gap: 20px;
         }}
 
         .bron {{
@@ -238,11 +417,7 @@ def maak_html(alle_artikelen, demo_modus=False):
             border-radius: 12px;
             overflow: hidden;
             box-shadow: 0 1px 3px rgba(0,0,0,0.08), 0 4px 12px rgba(0,0,0,0.05);
-            transition: box-shadow 0.2s ease;
-        }}
-
-        .bron:hover {{
-            box-shadow: 0 2px 8px rgba(0,0,0,0.12), 0 8px 24px rgba(0,0,0,0.08);
+            margin-bottom: 25px;
         }}
 
         .bron-header {{
@@ -252,10 +427,40 @@ def maak_html(alle_artikelen, demo_modus=False):
         }}
 
         .bron-header h2 {{
-            font-size: 1.1em;
+            font-size: 1.2em;
             font-weight: 700;
             text-transform: uppercase;
             letter-spacing: 0.5px;
+        }}
+
+        .kolommen {{
+            display: grid;
+            grid-template-columns: 1fr 1fr;
+            gap: 0;
+        }}
+
+        .kolom {{
+            padding: 0;
+            border-right: 1px solid #f0f0f0;
+        }}
+
+        .kolom:last-child {{
+            border-right: none;
+        }}
+
+        .kolom-titel {{
+            font-size: 0.8em;
+            font-weight: 600;
+            text-transform: uppercase;
+            letter-spacing: 0.5px;
+            color: #666;
+            padding: 12px 20px;
+            background: #f8f9fa;
+            border-bottom: 1px solid #f0f0f0;
+        }}
+
+        .kolom.populair .kolom-titel {{
+            color: #e74c3c;
         }}
 
         .artikelen {{
@@ -272,7 +477,7 @@ def maak_html(alle_artikelen, demo_modus=False):
 
         .artikel-link {{
             display: block;
-            padding: 15px 20px;
+            padding: 12px 20px;
             text-decoration: none;
             color: inherit;
             transition: background 0.15s ease;
@@ -283,10 +488,10 @@ def maak_html(alle_artikelen, demo_modus=False):
         }}
 
         .artikel h3 {{
-            font-size: 0.95em;
+            font-size: 0.9em;
             font-weight: 600;
             color: #1a1a1a;
-            margin-bottom: 6px;
+            margin-bottom: 4px;
             line-height: 1.4;
         }}
 
@@ -295,9 +500,16 @@ def maak_html(alle_artikelen, demo_modus=False):
         }}
 
         .beschrijving {{
-            font-size: 0.85em;
+            font-size: 0.8em;
             color: #666;
-            line-height: 1.5;
+            line-height: 1.4;
+        }}
+
+        .geen {{
+            padding: 15px 20px;
+            color: #999;
+            font-style: italic;
+            font-size: 0.85em;
         }}
 
         .footer {{
@@ -307,13 +519,18 @@ def maak_html(alle_artikelen, demo_modus=False):
             font-size: 0.8em;
         }}
 
-        .footer a {{
-            color: #666;
-        }}
-
-        @media (max-width: 640px) {{
-            .bronnen-grid {{
+        @media (max-width: 768px) {{
+            .kolommen {{
                 grid-template-columns: 1fr;
+            }}
+
+            .kolom {{
+                border-right: none;
+                border-bottom: 1px solid #f0f0f0;
+            }}
+
+            .kolom:last-child {{
+                border-bottom: none;
             }}
 
             .header h1 {{
@@ -329,9 +546,7 @@ def maak_html(alle_artikelen, demo_modus=False):
     </header>
 
     <main class="container">
-        <div class="bronnen-grid">
-            {artikelen_html}
-        </div>
+        {bronnen_html}
     </main>
 
     <footer class="footer">
@@ -343,7 +558,7 @@ def maak_html(alle_artikelen, demo_modus=False):
     return html_output
 
 
-def maak_markdown(alle_artikelen, demo_modus=False):
+def maak_markdown(alle_laatste, alle_populair, demo_modus=False):
     """Maakt een markdown bestand met alle nieuwsartikelen."""
 
     nu = datetime.now().strftime("%d-%m-%Y om %H:%M")
@@ -357,29 +572,46 @@ def maak_markdown(alle_artikelen, demo_modus=False):
     md.append("")
     md.append("---")
 
-    for naam, artikelen in alle_artikelen.items():
+    for naam in FEEDS.keys():
         md.append("")
         md.append(f"## {naam}")
+
+        # Laatste nieuws
         md.append("")
-
-        if not artikelen:
+        md.append("### Laatste nieuws")
+        md.append("")
+        laatste = alle_laatste.get(naam, [])
+        if not laatste:
             md.append("*Geen artikelen gevonden*")
-            continue
+        else:
+            for artikel in laatste:
+                titel = artikel[0]
+                link = artikel[1] if len(artikel) > 1 else ""
+                beschrijving = artikel[2] if len(artikel) > 2 else ""
+                if link:
+                    md.append(f"- [{titel}]({link})")
+                else:
+                    md.append(f"- {titel}")
+                if beschrijving:
+                    md.append(f"  > {beschrijving}")
 
-        for artikel in artikelen:
-            titel = artikel[0]
-            link = artikel[1] if len(artikel) > 1 else ""
-            beschrijving = artikel[2] if len(artikel) > 2 else ""
+        # Meest gelezen
+        md.append("")
+        md.append("### Meest gelezen")
+        md.append("")
+        populair = alle_populair.get(naam, [])
+        if not populair:
+            md.append("*Niet beschikbaar*")
+        else:
+            for artikel in populair:
+                titel = artikel[0]
+                link = artikel[1] if len(artikel) > 1 else ""
+                if link:
+                    md.append(f"- [{titel}]({link})")
+                else:
+                    md.append(f"- {titel}")
 
-            if link:
-                md.append(f"### [{titel}]({link})")
-            else:
-                md.append(f"### {titel}")
-
-            if beschrijving:
-                md.append(f"> {beschrijving}")
-            md.append("")
-
+    md.append("")
     md.append("---")
     md.append("*Automatisch gegenereerd door nieuws.py*")
 
@@ -391,23 +623,28 @@ def main():
 
     print("Nieuws ophalen...")
 
-    alle_artikelen = {}
+    # Haal laatste nieuws op via RSS
+    alle_laatste = {}
     for naam, url in FEEDS.items():
-        print(f"  - {naam}...")
-        alle_artikelen[naam] = haal_nieuws_op(naam, url, demo_modus)
+        print(f"  - {naam} (RSS)...")
+        alle_laatste[naam] = haal_nieuws_op(naam, url, demo_modus)
 
-    markdown = maak_markdown(alle_artikelen, demo_modus)
+    # Haal meest gelezen op via scraping
+    alle_populair = {}
+    for naam in FEEDS.keys():
+        print(f"  - {naam} (meest gelezen)...")
+        alle_populair[naam] = haal_meest_gelezen_op(naam, demo_modus)
+
+    # Genereer output
+    markdown = maak_markdown(alle_laatste, alle_populair, demo_modus)
     with open("NIEUWS.md", "w", encoding="utf-8") as f:
         f.write(markdown)
 
-    html_output = maak_html(alle_artikelen, demo_modus)
+    html_output = maak_html(alle_laatste, alle_populair, demo_modus)
     with open("index.html", "w", encoding="utf-8") as f:
         f.write(html_output)
 
     print(f"\nKlaar! Nieuws opgeslagen in NIEUWS.md en index.html")
-
-    print("\n" + "="*50)
-    print(markdown)
 
 
 if __name__ == "__main__":

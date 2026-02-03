@@ -50,15 +50,9 @@
         }
 
         .container {
-            max-width: 1000px;
+            max-width: 1200px;
             margin: 0 auto;
             padding: 25px 15px;
-        }
-
-        .bronnen-grid {
-            display: grid;
-            grid-template-columns: repeat(auto-fit, minmax(300px, 1fr));
-            gap: 20px;
         }
 
         .bron {
@@ -66,11 +60,7 @@
             border-radius: 12px;
             overflow: hidden;
             box-shadow: 0 1px 3px rgba(0,0,0,0.08), 0 4px 12px rgba(0,0,0,0.05);
-            transition: box-shadow 0.2s ease;
-        }
-
-        .bron:hover {
-            box-shadow: 0 2px 8px rgba(0,0,0,0.12), 0 8px 24px rgba(0,0,0,0.08);
+            margin-bottom: 25px;
         }
 
         .bron-header {
@@ -80,10 +70,40 @@
         }
 
         .bron-header h2 {
-            font-size: 1.1em;
+            font-size: 1.2em;
             font-weight: 700;
             text-transform: uppercase;
             letter-spacing: 0.5px;
+        }
+
+        .kolommen {
+            display: grid;
+            grid-template-columns: 1fr 1fr;
+            gap: 0;
+        }
+
+        .kolom {
+            padding: 0;
+            border-right: 1px solid #f0f0f0;
+        }
+
+        .kolom:last-child {
+            border-right: none;
+        }
+
+        .kolom-titel {
+            font-size: 0.8em;
+            font-weight: 600;
+            text-transform: uppercase;
+            letter-spacing: 0.5px;
+            color: #666;
+            padding: 12px 20px;
+            background: #f8f9fa;
+            border-bottom: 1px solid #f0f0f0;
+        }
+
+        .kolom.populair .kolom-titel {
+            color: #e74c3c;
         }
 
         .artikelen {
@@ -100,7 +120,7 @@
 
         .artikel-link {
             display: block;
-            padding: 15px 20px;
+            padding: 12px 20px;
             text-decoration: none;
             color: inherit;
             transition: background 0.15s ease;
@@ -111,10 +131,10 @@
         }
 
         .artikel h3 {
-            font-size: 0.95em;
+            font-size: 0.9em;
             font-weight: 600;
             color: #1a1a1a;
-            margin-bottom: 6px;
+            margin-bottom: 4px;
             line-height: 1.4;
         }
 
@@ -123,9 +143,16 @@
         }
 
         .beschrijving {
-            font-size: 0.85em;
+            font-size: 0.8em;
             color: #666;
-            line-height: 1.5;
+            line-height: 1.4;
+        }
+
+        .geen {
+            padding: 15px 20px;
+            color: #999;
+            font-style: italic;
+            font-size: 0.85em;
         }
 
         .footer {
@@ -135,13 +162,18 @@
             font-size: 0.8em;
         }
 
-        .footer a {
-            color: #666;
-        }
-
-        @media (max-width: 640px) {
-            .bronnen-grid {
+        @media (max-width: 768px) {
+            .kolommen {
                 grid-template-columns: 1fr;
+            }
+
+            .kolom {
+                border-right: none;
+                border-bottom: 1px solid #f0f0f0;
+            }
+
+            .kolom:last-child {
+                border-bottom: none;
             }
 
             .header h1 {
@@ -152,137 +184,198 @@
 </head>
 <body>
     <header class="header">
-        <h1>Nieuwsoverzicht </h1>
-        <p class="update-tijd">Laatst bijgewerkt: 03-02-2026 om 12:00</p>
+        <h1>Nieuwsoverzicht <span class="demo-badge">Demo</span></h1>
+        <p class="update-tijd">Laatst bijgewerkt: 03-02-2026 om 12:09</p>
     </header>
 
     <main class="container">
-        <div class="bronnen-grid">
-            
+        
         <section class="bron">
             <div class="bron-header" style="border-left-color: #f26522">
                 <h2 style="color: #f26522">NOS</h2>
             </div>
-            <div class="artikelen">
+            <div class="kolommen">
+                <div class="kolom">
+                    <h4 class="kolom-titel">Laatste nieuws</h4>
+                    <div class="artikelen">
+                        
+        <article class="artikel">
+            <a href="https://nos.nl/artikel/1" target="_blank" class="artikel-link">
+                <h3>Kabinet presenteert nieuwe klimaatplannen</h3>
+                <p class="beschrijving">Het kabinet heeft vandaag nieuwe plannen gepresenteerd om de klimaatdoelen te halen.</p>
+            </a>
+        </article>
         
-                    <article class="artikel">
-                        <a href="https://nos.nl/l/2600771" target="_blank" class="artikel-link">
-                            <h3>Nieuw ontdekte minidino biedt inzicht in evolutie planteneters</h3>
-                            <p class="beschrijving">Een nieuwe dinosoort die ongeveer zo groot was als een grote kip biedt volgens wetenschappers nieuwe inzichten in de evolutie van plantenetende dinosauriërs. De opvallend kleine dino leefde in het...</p>
-                        </a>
-                    </article>
-                    
-                    <article class="artikel">
-                        <a href="https://nos.nl/l/2600767" target="_blank" class="artikel-link">
-                            <h3>Lancering maanvlucht Artemis II maand uitgesteld vanwege problemen</h3>
-                            <p class="beschrijving">De lancering van de raket voor de Artemis II-missie om de maan is met een maand uitgesteld. Bij een repetitie zijn meerdere problemen ontdekt, maakte de Amerikaanse ruimtevaartorganisatie NASA...</p>
-                        </a>
-                    </article>
-                    
-                    <article class="artikel">
-                        <a href="https://nos.nl/l/2600762" target="_blank" class="artikel-link">
-                            <h3>Duitsland neemt belang in Tennet en investeert 3,3 miljard euro</h3>
-                            <p class="beschrijving">Duitsland neemt zoals verwacht een belang in hoogspanningsnetbeheerder Tennet. De Duitse overheid wordt voor 25,1 procent eigenaar van Tennet Duitsland en betaalt daar 3,3 miljard euro voor. Een...</p>
-                        </a>
-                    </article>
-                    
-                    <article class="artikel">
-                        <a href="https://nos.nl/l/2600760" target="_blank" class="artikel-link">
-                            <h3>China verbiedt autodeuren met &#x27;verborgen&#x27; handgreep na dodelijke ongelukken</h3>
-                            <p class="beschrijving">China gaat &#x27;verborgen&#x27; handgrepen op autodeuren verbieden. Na meerdere dodelijke ongelukken vindt de Chinese overheid dat de vergrendeling van veel elektrische auto&#x27;s te onveilig is. Het is...</p>
-                        </a>
-                    </article>
-                    
-                    <article class="artikel">
-                        <a href="https://nos.nl/l/2600757" target="_blank" class="artikel-link">
-                            <h3>Rusland: we zijn voorbereid op wereld zonder kernwapenverdrag</h3>
-                            <p class="beschrijving">Rusland is klaar voor de nieuwe realiteit van een wereld waarin er geen beperkingen op kernwapens meer zijn. Dat heeft de Russische viceminister Rjabkov van Buitenlandse Zaken gezegd, wijzend op het...</p>
-                        </a>
-                    </article>
-                    </div></section>
+        <article class="artikel">
+            <a href="https://nos.nl/artikel/2" target="_blank" class="artikel-link">
+                <h3>Ajax wint met 3-0 van Feyenoord</h3>
+                <p class="beschrijving">In een spectaculaire Klassieker heeft Ajax gewonnen van Feyenoord.</p>
+            </a>
+        </article>
+        
+        <article class="artikel">
+            <a href="https://nos.nl/artikel/3" target="_blank" class="artikel-link">
+                <h3>Zware storm verwacht in het weekend</h3>
+                <p class="beschrijving">Het KNMI waarschuwt voor zware windstoten dit weekend.</p>
+            </a>
+        </article>
+        
+                    </div>
+                </div>
+                <div class="kolom populair">
+                    <h4 class="kolom-titel">Meest gelezen</h4>
+                    <div class="artikelen">
+                        
+        <article class="artikel">
+            <a href="https://nos.nl/artikel/10" target="_blank" class="artikel-link">
+                <h3>Waarom de benzineprijs zo hoog blijft</h3>
+                <p class="beschrijving">Analyse: dit zijn de factoren achter de hoge brandstofprijzen.</p>
+            </a>
+        </article>
+        
+        <article class="artikel">
+            <a href="https://nos.nl/artikel/11" target="_blank" class="artikel-link">
+                <h3>Live: Tweede Kamer debatteert over begroting</h3>
+                <p class="beschrijving">Volg hier het begrotingsdebat in de Tweede Kamer.</p>
+            </a>
+        </article>
+        
+        <article class="artikel">
+            <a href="https://nos.nl/artikel/12" target="_blank" class="artikel-link">
+                <h3>Dit is waarom je salaris niet stijgt</h3>
+                <p class="beschrijving">Economen leggen uit waarom lonen achterblijven bij inflatie.</p>
+            </a>
+        </article>
+        
+                    </div>
+                </div>
+            </div>
+        </section>
+        
         <section class="bron">
             <div class="bron-header" style="border-left-color: #ee3124">
                 <h2 style="color: #ee3124">AD</h2>
             </div>
-            <div class="artikelen">
+            <div class="kolommen">
+                <div class="kolom">
+                    <h4 class="kolom-titel">Laatste nieuws</h4>
+                    <div class="artikelen">
+                        
+        <article class="artikel">
+            <a href="https://ad.nl/artikel/1" target="_blank" class="artikel-link">
+                <h3>Huizenprijzen stijgen verder in grote steden</h3>
+                <p class="beschrijving">De gemiddelde huizenprijs in Amsterdam is gestegen.</p>
+            </a>
+        </article>
         
-                    <article class="artikel">
-                        <a href="https://www.ad.nl/wielrennen/harrie-lavreysen-in-kwalificatie-fractie-langzamer-dan-rivaal-matthew-richardson~a6a75df9/" target="_blank" class="artikel-link">
-                            <h3>Harrie Lavreysen in kwalificatie fractie langzamer dan rivaal Matthew Richardson</h3>
-                            <p class="beschrijving">Harrie Lavreysen heeft op de EK baanwielrennen in het Turkse Konya de tweede tijd neergezet in de kwalificaties van het sprinttoernooi. De regerend olympisch, wereld- en Europees kampioen op dit...</p>
-                        </a>
-                    </article>
-                    
-                    <article class="artikel">
-                        <a href="https://www.ad.nl/wielrennen/bauke-mollema-kondigt-afscheid-aan-de-tijd-vliegt-wanneer-je-plezier-hebt~ac330814/" target="_blank" class="artikel-link">
-                            <h3>Bauke Mollema kondigt afscheid aan: ‘De tijd vliegt wanneer je plezier hebt’</h3>
-                            <p class="beschrijving">Bauke Mollema stopt aan het einde van het seizoen. De 39-jarige wielrenner heeft dat via Instagram bekendgemaakt.</p>
-                        </a>
-                    </article>
-                    
-                    <article class="artikel">
-                        <a href="https://www.ad.nl/voetbal/nec-stelt-door-ajax-begeerde-sano-op-in-kwartfinale-beker-kan-me-voorstellen-dat-het-heel-lastig-voor-hem-is~ab857e88/" target="_blank" class="artikel-link">
-                            <h3>NEC stelt door Ajax begeerde Sano op in kwartfinale beker: ‘Kan me voorstellen dat het heel lastig voor hem is’</h3>
-                            <p class="beschrijving">Kodai Sano begint woensdag gewoon aan de bekerwedstrijd van NEC tegen FC Volendam. „We hebben besloten dat hij gaat spelen”, blikt trainer Dick Schreuder vooruit op de kwartfinale in De Goffert.</p>
-                        </a>
-                    </article>
-                    
-                    <article class="artikel">
-                        <a href="https://www.ad.nl/show/lieke-martens-zwanger-van-tweede-kindje-growing-our-family~a7cfc713/" target="_blank" class="artikel-link">
-                            <h3>Lieke Martens zwanger van tweede kindje: ‘Growing our family’</h3>
-                            <p class="beschrijving">Lieke Martens en haar partner Benjamin van Leer worden opnieuw ouders. Dat deelt de oud-voetbalster dinsdag op Instagram. Vorig jaar werd ze voor het eerst moeder van zoontje Lowen.</p>
-                        </a>
-                    </article>
-                    
-                    <article class="artikel">
-                        <a href="https://www.ad.nl/olympische-spelen/spaanse-kunstschaatser-wil-olympische-oefening-doen-op-minions-muziek-maar-moet-in-allerijl-op-zoek-naar-iets-anders~af721aeea/" target="_blank" class="artikel-link">
-                            <h3>Spaanse kunst­schaat­ser wil olympische oefening doen op Minions-mu­ziek, maar moet in allerijl op zoek naar iets anders</h3>
-                            <p class="beschrijving">Kunstrijder Tomàs-Llorenç Guarino Sabaté moet amper een week voor hij aan de bak moet op de Olympische Spelen terug naar de tekentafel. De Spanjaard wou tijdens zijn korte kür muziek van de Minions...</p>
-                        </a>
-                    </article>
-                    </div></section>
+        <article class="artikel">
+            <a href="https://ad.nl/artikel/2" target="_blank" class="artikel-link">
+                <h3>Nieuwe attractie opent in de Efteling</h3>
+                <p class="beschrijving">De Efteling opent volgende maand een gloednieuwe achtbaan.</p>
+            </a>
+        </article>
+        
+        <article class="artikel">
+            <a href="https://ad.nl/artikel/3" target="_blank" class="artikel-link">
+                <h3>Supermarkten verlagen prijzen basisproducten</h3>
+                <p class="beschrijving">Albert Heijn en Jumbo verlagen prijzen na kritiek.</p>
+            </a>
+        </article>
+        
+                    </div>
+                </div>
+                <div class="kolom populair">
+                    <h4 class="kolom-titel">Meest gelezen</h4>
+                    <div class="artikelen">
+                        
+        <article class="artikel">
+            <a href="https://ad.nl/artikel/10" target="_blank" class="artikel-link">
+                <h3>&#x27;Ik verdiende 3000 euro per maand bij OnlyFans&#x27;</h3>
+                <p class="beschrijving">Studente vertelt over haar bijverdienste op het platform.</p>
+            </a>
+        </article>
+        
+        <article class="artikel">
+            <a href="https://ad.nl/artikel/11" target="_blank" class="artikel-link">
+                <h3>Dit zijn de goedkoopste supermarkten van Nederland</h3>
+                <p class="beschrijving">Onderzoek toont aan welke supermarkt het voordeligst is.</p>
+            </a>
+        </article>
+        
+        <article class="artikel">
+            <a href="https://ad.nl/artikel/12" target="_blank" class="artikel-link">
+                <h3>Buurt in shock na vondst lichaam</h3>
+                <p class="beschrijving">Politie doet onderzoek naar verdacht overlijden.</p>
+            </a>
+        </article>
+        
+                    </div>
+                </div>
+            </div>
+        </section>
+        
         <section class="bron">
             <div class="bron-header" style="border-left-color: #c9a66b">
                 <h2 style="color: #c9a66b">FD</h2>
             </div>
-            <div class="artikelen">
+            <div class="kolommen">
+                <div class="kolom">
+                    <h4 class="kolom-titel">Laatste nieuws</h4>
+                    <div class="artikelen">
+                        
+        <article class="artikel">
+            <a href="https://fd.nl/artikel/1" target="_blank" class="artikel-link">
+                <h3>AEX sluit hoger na positieve kwartaalcijfers</h3>
+                <p class="beschrijving">De Amsterdamse beurs sloot vandaag 1,2% hoger.</p>
+            </a>
+        </article>
         
-                    <article class="artikel">
-                        <a href="https://fd.nl/opinie/1585393/de-uitdaging-om-online-radicalisering-te-stoppen" target="_blank" class="artikel-link">
-                            <h3>Nederland staat ook voor de uitdaging om online radicalisering te stoppen</h3>
-                            <p class="beschrijving">Het OM is druk met het vervolgen van leden van het 764-netwerk. Die vinden elkaar online en propageren nihilistisch gewelddadig extremisme, wat lastig een halt toe te roepen is.</p>
-                        </a>
-                    </article>
-                    
-                    <article class="artikel">
-                        <a href="https://fd.nl/bedrijfsleven/1585517/de-rijken-worden-steeds-rijker-ook-in-het-voetbal" target="_blank" class="artikel-link">
-                            <h3>De rijken worden steeds rijker, ook in het voetbal</h3>
-                            <p class="beschrijving">Vorig seizoen streken de twintig best verdienende voetbalclubs samen €12,4 mrd op, 350% meer dan in seizoen 2002-2003.</p>
-                        </a>
-                    </article>
-                    
-                    <article class="artikel">
-                        <a href="https://fd.nl/politiek/1585452/frankrijk-heeft-een-begroting-voor-2026-al-moest-de-partij-van-premier-lecornu-er-veel-voor-inleveren" target="_blank" class="artikel-link">
-                            <h3>Frankrijk heeft een begroting voor 2026, al moest de partij van premier Lecornu er veel voor inleveren</h3>
-                            <p class="beschrijving">Huishoudens worden vooral ontzien, de rekening gaat naar het bedrijfsleven.</p>
-                        </a>
-                    </article>
-                    
-                    <article class="artikel">
-                        <a href="https://fd.nl/bedrijfsleven/1585401/duitse-staat-koopt-miljardenbelang-in-tennet-duitsland" target="_blank" class="artikel-link">
-                            <h3>Duitse staat koopt miljardenbelang in Tennet Duitsland</h3>
-                            <p class="beschrijving">Netbeheerder Tennet gebruikt de opbrengst van de transactie om een deel van zijn leningen bij de Nederlandse overheid af te lossen.</p>
-                        </a>
-                    </article>
-                    
-                    <article class="artikel">
-                        <a href="https://fd.nl/financiele-markten/1585521/het-werkelijke-gevaar-van-ai" target="_blank" class="artikel-link">
-                            <h3>Het werkelijke gevaar van AI</h3>
-                            <p class="beschrijving">We staan op het punt iets wezenlijks te verliezen: de gedachtestreep. ChatGPT strooit ermee alsof het hagelslag is, waardoor niemand het nog wil gebruiken, zegt FD-columnist Milou Brand.</p>
-                        </a>
-                    </article>
-                    </div></section>
-        </div>
+        <article class="artikel">
+            <a href="https://fd.nl/artikel/2" target="_blank" class="artikel-link">
+                <h3>ING verhoogt hypotheekrente</h3>
+                <p class="beschrijving">ING verhoogt per 1 februari de hypotheekrente.</p>
+            </a>
+        </article>
+        
+        <article class="artikel">
+            <a href="https://fd.nl/artikel/3" target="_blank" class="artikel-link">
+                <h3>Tech-sector groeit ondanks onzekerheid</h3>
+                <p class="beschrijving">Nederlandse techbedrijven blijven groeien.</p>
+            </a>
+        </article>
+        
+                    </div>
+                </div>
+                <div class="kolom populair">
+                    <h4 class="kolom-titel">Meest gelezen</h4>
+                    <div class="artikelen">
+                        
+        <article class="artikel">
+            <a href="https://fd.nl/artikel/10" target="_blank" class="artikel-link">
+                <h3>Column: Waarom de huizenmarkt niet zal crashen</h3>
+                <p class="beschrijving">Analyse van de Nederlandse woningmarkt.</p>
+            </a>
+        </article>
+        
+        <article class="artikel">
+            <a href="https://fd.nl/artikel/11" target="_blank" class="artikel-link">
+                <h3>De beste aandelen voor 2026</h3>
+                <p class="beschrijving">Beleggingsexperts delen hun favorieten.</p>
+            </a>
+        </article>
+        
+        <article class="artikel">
+            <a href="https://fd.nl/artikel/12" target="_blank" class="artikel-link">
+                <h3>Miljonair op je 30e: zo deed zij het</h3>
+                <p class="beschrijving">Interview met jonge ondernemer over haar succes.</p>
+            </a>
+        </article>
+        
+                    </div>
+                </div>
+            </div>
+        </section>
+        
     </main>
 
     <footer class="footer">
