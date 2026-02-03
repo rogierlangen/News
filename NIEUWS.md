@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-02-2026 om 12:16*
+*Laatst bijgewerkt: 03-02-2026 om 12:19*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Laatste Engelandvaarder toch nog in leven: is 102 en woont in Michigan](https://nos.nl/l/2600772)
+  > Met het overlijden van Ellis Brandon in 2024 leek de laatste Engelandvaarder uit de Tweede Wereldoorlog te zijn overleden, maar er is nu een...
 - [Nieuw ontdekte minidino biedt inzicht in evolutie planteneters](https://nos.nl/l/2600771)
   > Een nieuwe dinosoort die ongeveer zo groot was als een grote kip biedt volgens wetenschappers nieuwe inzichten in de evolutie van plantenetende...
 - [Lancering maanvlucht Artemis II maand uitgesteld vanwege problemen](https://nos.nl/l/2600767)
@@ -16,8 +18,6 @@
   > Duitsland neemt zoals verwacht een belang in hoogspanningsnetbeheerder Tennet. De Duitse overheid wordt voor 25,1 procent eigenaar van Tennet...
 - [China verbiedt autodeuren met 'verborgen' handgreep na dodelijke ongelukken](https://nos.nl/l/2600760)
   > China gaat 'verborgen' handgrepen op autodeuren verbieden. Na meerdere dodelijke ongelukken vindt de Chinese overheid dat de vergrendeling van veel...
-- [Rusland: we zijn voorbereid op wereld zonder kernwapenverdrag](https://nos.nl/l/2600757)
-  > Rusland is klaar voor de nieuwe realiteit van een wereld waarin er geen beperkingen op kernwapens meer zijn. Dat heeft de Russische viceminister...
 
 ### Meest gelezen
 
