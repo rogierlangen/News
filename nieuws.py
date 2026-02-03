@@ -152,46 +152,79 @@ def scrape_nos_meest_gelezen(html_content):
     if not html_content:
         return artikelen
 
-    # Zoek naar meest gelezen sectie - NOS gebruikt vaak "mostread" of "meestgelezen"
-    # Probeer verschillende patronen
-    patterns = [
-        r'<a[^>]*href="(/artikel/[^"]+)"[^>]*>([^<]+)</a>',
-        r'<a[^>]*href="(https://nos\.nl/artikel/[^"]+)"[^>]*>([^<]+)</a>',
-        r'<h3[^>]*><a[^>]*href="(/l/[^"]+)"[^>]*>([^<]+)</a></h3>',
+    # NOS: zoek naar secties met ranking/meestgelezen class names
+    # Probeer verschillende secties te vinden
+    sectie_patterns = [
+        r'class="[^"]*(?:most-?read|meest-?gelezen|ranking|top-?stories)[^"]*"(.*?)(?:</section>|</aside>|</ul>|</ol>)',
+        r'(?:Meest gelezen|Most read|Trending)(.*?)(?:</section>|</aside>|</div>\s*</div>)',
+        r'data-(?:ranking|position)="1"(.*?)data-(?:ranking|position)="[5-9]"',
     ]
 
-    # Zoek naar de meest gelezen sectie
-    meest_gelezen_match = re.search(r'(?:meest.?gelezen|most.?read|populair)(.*?)(?:</section>|</aside>|</div>\s*</div>\s*</div>)', html_content, re.IGNORECASE | re.DOTALL)
+    sectie = None
+    for pattern in sectie_patterns:
+        match = re.search(pattern, html_content, re.IGNORECASE | re.DOTALL)
+        if match:
+            sectie = match.group(1)
+            break
 
-    if meest_gelezen_match:
-        sectie = meest_gelezen_match.group(1)
-        links = re.findall(r'<a[^>]*href="(/(?:artikel|l)/[^"]+)"[^>]*>.*?</a>', sectie, re.DOTALL)
-        titels = re.findall(r'>([^<]{10,100})</a>', sectie)
-
-        for i, (link, titel) in enumerate(zip(links[:5], titels[:5])):
+    if sectie:
+        # Zoek naar links met titels
+        matches = re.findall(r'<a[^>]*href="((?:https://nos\.nl)?/(?:artikel|l|nieuwsuur)/[^"]+)"[^>]*>([^<]{15,})</a>', sectie, re.DOTALL)
+        for link, titel in matches[:5]:
             full_link = f"https://nos.nl{link}" if link.startswith('/') else link
-            artikelen.append((strip_html_tags(titel), full_link, ""))
+            clean_titel = strip_html_tags(titel).strip()
+            if clean_titel and len(clean_titel) > 10:
+                artikelen.append((clean_titel, full_link, ""))
+
+    # Fallback: zoek naar genummerde artikelen in de hele pagina
+    if not artikelen:
+        # Zoek naar patronen met nummering (1, 2, 3, etc.)
+        numbered_pattern = r'<li[^>]*>\s*(?:<span[^>]*>)?[1-5](?:</span>)?\s*.*?<a[^>]*href="((?:https://nos\.nl)?/[^"]+)"[^>]*>([^<]{15,})</a>'
+        matches = re.findall(numbered_pattern, html_content, re.DOTALL)
+        for link, titel in matches[:5]:
+            full_link = f"https://nos.nl{link}" if link.startswith('/') else link
+            clean_titel = strip_html_tags(titel).strip()
+            if clean_titel:
+                artikelen.append((clean_titel, full_link, ""))
 
     return artikelen[:5]
 
 
 def scrape_ad_meest_gelezen(html_content):
-    """Scrapt de meest gelezen artikelen van AD."""
+    """Scrapt de meest gelezen artikelen van AD - zoekt naar 'speciaal voor jou' of vergelijkbaar."""
     artikelen = []
     if not html_content:
         return artikelen
 
-    # AD heeft vaak een "meest gelezen" widget
-    meest_gelezen_match = re.search(r'(?:meest.?gelezen|most.?read|trending)(.*?)(?:</section>|</aside>|</ul>)', html_content, re.IGNORECASE | re.DOTALL)
+    # AD: zoek naar verschillende secties
+    sectie_patterns = [
+        r'(?:speciaal voor jou|voor jou|aanbevolen|meest gelezen|trending|populair)(.*?)(?:</section>|</aside>|</ul>|</div>\s*</div>\s*</div>)',
+        r'class="[^"]*(?:recommended|trending|popular|top-?stories|widget)[^"]*"(.*?)(?:</section>|</aside>|</ul>)',
+        r'data-component="[^"]*(?:trending|popular|recommended)[^"]*"(.*?)(?:</section>|</div>\s*</div>)',
+    ]
 
-    if meest_gelezen_match:
-        sectie = meest_gelezen_match.group(1)
-        # Zoek naar artikel links
-        matches = re.findall(r'<a[^>]*href="(https://www\.ad\.nl/[^"]+)"[^>]*>([^<]+)</a>', sectie)
+    sectie = None
+    for pattern in sectie_patterns:
+        match = re.search(pattern, html_content, re.IGNORECASE | re.DOTALL)
+        if match:
+            sectie = match.group(1)
+            break
 
+    if sectie:
+        # Zoek naar AD artikel links
+        matches = re.findall(r'<a[^>]*href="(https://www\.ad\.nl/[^"#?]+)"[^>]*>([^<]{15,})</a>', sectie)
         for link, titel in matches[:5]:
-            if len(titel) > 10:  # Filter korte teksten
-                artikelen.append((strip_html_tags(titel), link, ""))
+            clean_titel = strip_html_tags(titel).strip()
+            if clean_titel and len(clean_titel) > 10 and 'cookie' not in clean_titel.lower():
+                artikelen.append((clean_titel, link, ""))
+
+    # Fallback: zoek artikelen met bepaalde class patterns
+    if not artikelen:
+        matches = re.findall(r'<a[^>]*class="[^"]*(?:article|teaser|card)[^"]*"[^>]*href="(https://www\.ad\.nl/[^"#?]+~[a-f0-9]+)"[^>]*>.*?<h[23][^>]*>([^<]+)</h[23]>', html_content, re.DOTALL)
+        for link, titel in matches[:5]:
+            clean_titel = strip_html_tags(titel).strip()
+            if clean_titel:
+                artikelen.append((clean_titel, link, ""))
 
     return artikelen[:5]
 
@@ -202,16 +235,33 @@ def scrape_fd_meest_gelezen(html_content):
     if not html_content:
         return artikelen
 
-    # FD heeft vaak een "meest gelezen" of "trending" sectie
-    meest_gelezen_match = re.search(r'(?:meest.?gelezen|trending|populair)(.*?)(?:</section>|</aside>|</div>\s*</div>)', html_content, re.IGNORECASE | re.DOTALL)
+    # FD: zoek naar trending/meest gelezen secties
+    sectie_patterns = [
+        r'(?:meest gelezen|trending|populair|top verhalen)(.*?)(?:</section>|</aside>|</ul>|</div>\s*</div>)',
+        r'class="[^"]*(?:trending|popular|most-?read|ranking)[^"]*"(.*?)(?:</section>|</aside>)',
+    ]
 
-    if meest_gelezen_match:
-        sectie = meest_gelezen_match.group(1)
-        matches = re.findall(r'<a[^>]*href="(https://fd\.nl/[^"]+)"[^>]*>([^<]+)</a>', sectie)
+    sectie = None
+    for pattern in sectie_patterns:
+        match = re.search(pattern, html_content, re.IGNORECASE | re.DOTALL)
+        if match:
+            sectie = match.group(1)
+            break
 
+    if sectie:
+        matches = re.findall(r'<a[^>]*href="(https://fd\.nl/[^"#?]+)"[^>]*>([^<]{15,})</a>', sectie)
         for link, titel in matches[:5]:
-            if len(titel) > 10:
-                artikelen.append((strip_html_tags(titel), link, ""))
+            clean_titel = strip_html_tags(titel).strip()
+            if clean_titel and len(clean_titel) > 10:
+                artikelen.append((clean_titel, link, ""))
+
+    # Fallback voor FD
+    if not artikelen:
+        matches = re.findall(r'<a[^>]*href="(https://fd\.nl/(?:economie|financiele-markten|bedrijfsleven|politiek)/[^"#?]+)"[^>]*>.*?<(?:h[23]|span)[^>]*>([^<]{15,})</(?:h[23]|span)>', html_content, re.DOTALL)
+        for link, titel in matches[:5]:
+            clean_titel = strip_html_tags(titel).strip()
+            if clean_titel:
+                artikelen.append((clean_titel, link, ""))
 
     return artikelen[:5]
 
