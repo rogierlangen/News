@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-02-2026 om 15:35*
+*Laatst bijgewerkt: 03-02-2026 om 18:37*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Podcast De Dag: Waarom Bad Bunny een big deal is](https://nos.nl/l/2600789)
-  > "ICE out," weg met ICE, zei Bad Bunny dit weekend toen hij een Grammy won. De zanger uit Puerto Rico - al jarenlang een van de meest gestreamde...
-- [Man laat gevaarlijke mottenballen achter in kinderhoek van Amsterdamse bieb](https://nos.nl/l/2600788)
-  > Een man uit Amsterdam wordt ervan verdacht dat hij mottenballen heeft achtergelaten in de kinderhoek van een bibliotheek. De mottenballen kunnen...
-- [Staatssecretaris dreigt met ingrijpen bij uitgevers van wegwerpschoolboeken](https://nos.nl/l/2600787)
-  > Demissionair staatssecretaris Becking van Onderwijs voert de druk op uitgevers van schoolboeken op. Als ze geen verbeteringen doorvoeren in hun...
-- [Celstraffen tot 14 jaar voor gooien handgranaten naar ambassade Israël in Kopenhagen](https://nos.nl/l/2600786)
-  > Een rechtbank in Kopenhagen heeft twee mannen uit Zweden veroordeeld tot gevangenisstraffen voor het gooien van handgranaten naar de Israëlische...
-- [Franse autoriteiten doen inval bij X-vestiging in Parijs](https://nos.nl/l/2600782)
-  > De Franse autoriteiten hebben een inval gedaan in een kantoor van het socialemediaplatform X in Parijs, meldt het parket van Parijs. Het onderzoek...
+- [VS: Iraanse drone neergehaald die vliegdekschip naderde](https://nos.nl/l/2600824)
+  > De Amerikaanse luchtmacht zegt in de Arabische Zee een Iraanse drone te hebben neergehaald. Die zou het Amerikaanse vliegdekschip Abraham Lincoln...
+- [Nieuw huis, maar geen stroom: Liander en eigenaar eindigen in rechtszaal](https://nos.nl/l/2600820)
+  > Het volle stroomnet is op veel plekken in ons land een knelpunt, niet alleen voor bedrijven, maar ook voor huishoudens. In het coalitieakkoord hebben...
+- [Amsterdam wil in 2035 onafhankelijk zijn van Amerikaanse techbedrijven](https://nos.nl/l/2600808)
+  > De gemeente Amsterdam wil uiterlijk in 2035 onafhankelijk zijn van technologiebedrijven die van buiten de Europese Unie komen. De gemeente heeft zijn...
+- [Leerling van 14 steekt docent neer op school in Zuid-Frankrijk](https://nos.nl/l/2600804)
+  > Op een school in het zuiden van Frankrijk heeft een leerling van 14 een docent neergestoken. De vrouw van 60 is in kritieke toestand naar een...
+- [Veel regen in Marokko en Spanje, minder groente en fruit in Nederlandse supermarkt](https://nos.nl/l/2600803)
+  > In de supermarkt zou je deze dagen zomaar eens naast de tomaten, verse kruiden of peulvruchten kunnen grijpen. In de winter komen die meestal uit...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Borculoër (32) schuift ernstig seksueel misbruik op bordje slachtoffers: ‘Zij wilden geld verdienen’](https://www.ad.nl/binnenland/borculoer-32-schuift-ernstig-seksueel-misbruik-op-bordje-slachtoffers-zij-wilden-geld-verdienen~a20379df/)
-  > De 32-jarige S. uit Borculo maakte zich volgens justitie jarenlang schuldig aan heftige afpersingen en ernstig seksueel misbruik. Jonge vrouwen waren...
-- [Ajax strikt Argentijns talent: Maher Carrizo (19) voor miljoenenbedrag naar Amsterdam](https://www.ad.nl/voetbal/ajax-strikt-argentijns-talent-maher-carrizo-19-voor-miljoenenbedrag-naar-amsterdam~ade2db5a/)
-  > Ajax heeft Maher Carrizo binnen. Dinsdag, op de laatste dag van de transferperiode, maakte de club de aankoop wereldkundig. Ajax neemt de 19-jarige...
-- [Ajax presenteert Argentijnse aanvaller Carrizo, ruildeal in de maak tussen Telstar en Sparta](https://www.ad.nl/voetbal/ajax-presenteert-argentijnse-aanvaller-carrizo-ruildeal-in-de-maak-tussen-telstar-en-sparta~a596b09f/)
+- [Voelen dieren geen schaamte? ‘Die parende gorilla’s zijn niet raar, wij mensen zijn raar’](https://www.ad.nl/binnenland/voelen-dieren-geen-schaamte-die-parende-gorillas-zijn-niet-raar-wij-mensen-zijn-raar~adc5733f/)
+  > Onder ogen van kinderen en hun ouders gingen twee gorilla’s maandag schaamteloos van bil in de Antwerpse dierentuin. Zijn alle dieren zo vrij? En...
+- [Waarom we wel wat meer van ons vet mogen houden](https://www.ad.nl/gezond/waarom-we-wel-wat-meer-van-ons-vet-mogen-houden~ada26177/)
+  > Eén op de twee Nederlanders is te zwaar, zo blijkt uit cijfers. Onderzoek levert in rap tempo nieuwe inzichten op. Internist-endocrinoloog Liesbeth...
+- [Van ‘extravagante paradijsvogels’ naar aardse outfits: Philine is al 10 jaar stylist van Son Mieux](https://www.ad.nl/den-haag/van-extravagante-paradijsvogels-naar-aardse-outfits-philine-is-al-10-jaar-stylist-van-son-mieux~aa4419d8/)
+  > Philine van den Hul is al tien jaar stylist van Son Mieux. In de begintijd van de band kleedde ze de leden zoals ze het zelf noemt ‘extravagant, als...
+- [Jetten grijpt naar een oude politieke truc in zoektocht naar bondgenoten: sussen en tijd kopen](https://www.ad.nl/politiek/jetten-grijpt-naar-een-oude-politieke-truc-in-zoektocht-naar-bondgenoten-sussen-en-tijd-kopen~ab4b67eb/)
+  > Het tijdperk-Jetten begint wankel. De oppositie in de Tweede Kamer laat D66, VVD en CDA meteen voelen dat zij een minderheidscoalitie zijn. Beoogd...
+- [Ajax verhuurt Alders aan Telstar, voormalig PSV’er wordt trainer in Serie A](https://www.ad.nl/voetbal/ajax-verhuurt-alders-aan-telstar-voormalig-psver-wordt-trainer-in-serie-a~a596b09f/)
   > Het is Deadline Day in Nederland! Welke club gaat zich nog versterken en welke spelers mogen vertrekken? De markt sluit om 23.59:59 uur, volg alle...
-- [Omstreden topdiplomaat Peter Mandelson stapt uit House of Lords vanwege Epstein-banden](https://www.ad.nl/buitenland/omstreden-topdiplomaat-peter-mandelson-stapt-uit-house-of-lords-vanwege-epstein-banden~a6ceb370/)
-  > Peter Mandelson, de voormalige Britse ambassadeur voor de VS, stapt uit de Britse senaat. Dat meldt de BBC. De partijprominent stapte maandag al uit...
-- [Oude meters dit jaar vervangen: verplicht kiezen tussen digitale of slimme meter](https://www.ad.nl/wonen/oude-meters-dit-jaar-vervangen-verplicht-kiezen-tussen-digitale-of-slimme-meter~ab8c79e2/)
-  > Het is binnenkort afgelopen met de draaischijfmeter in de meterkast. Vanwege de nieuwe energiewet per 1 januari 2026 vervangen netbeheerders de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Nieuwe coalitie wil meer bouwen, maar trekt nauwelijks extra geld uit](https://fd.nl/politiek/1585519/nieuwe-coalitie-wil-meer-bouwen-maar-trekt-nauwelijks-extra-geld-uit)
-  > D66, VVD en CDA willen ambitie uitstralen, maar deskundigen missen de nodige investeringen in nieuwbouw. Gaat Jetten-I de bouwdoelen wel halen?
-- [Haskoning breidt maritieme dienstverlening uit met nieuwe overname](https://fd.nl/bedrijfsleven/1585465/haskoning-breidt-maritieme-dienstverlening-uit-met-nieuwe-overname)
-  > Met de acquisitie wil ingenieursbureau Haskoning zijn maritieme dienstverlening uitbreiden en inspelen op veranderende handelsstromen bij...
-- [Producent Boot nam moeilijk besluit: Soldaat van Oranje gesneuveld](https://fd.nl/bedrijfsleven/1584851/producent-boot-nam-moeilijk-besluit-soldaat-van-oranje-gesneuveld)
-  > De kaartverkoop gaat minder soepel en met halfvolle zalen worden de kosten niet gedekt. Dus besloot producent Fred Boot met pijn in het hart te...
-- [Blijft Shell bij een lagere olieprijs in hetzelfde tempo aandelen inkopen?](https://fd.nl/financiele-markten/1585535/blijft-shell-bij-een-lagere-olieprijs-in-hetzelfde-tempo-aandelen-inkopen)
-  > Shell komt donderdag met de kwartaalcijfers. UBS verwacht dat het olie- en gasbedrijf minder aandelen gaat inkopen, maar ABN Amro voorziet geen...
-- [Tony’s is niet meer lonely](https://fd.nl/financiele-markten/1585489/tonys-is-niet-meer-lonely)
-  > Bondgenoten van de producent van ‘slaafvrije’ chocolade kopen al bijna meer eerlijke cacao in dan Tony’s Chocolonely zelf.
+- [Epstein-mails kosten Labourkopstuk Mandelson zetel in het Britse Hogerhuis](https://fd.nl/politiek/1585544/epstein-mails-kosten-labourkopstuk-mandelson-zetel-in-het-britse-hogerhuis)
+  > Britse en Europese autoriteiten zijn onderzoeken begonnen naar e-mails met marktgevoelige informatie die Peter Mandelson naar Jeffrey Epstein stuurde.
+- [Grote investeringen zoutbedrijf Nobian in gevaar door bezwaar provincie Groningen](https://fd.nl/bedrijfsleven/1585470/grote-investeringen-zoutbedrijf-nobian-in-gevaar-door-bezwaar-provincie-groningen)
+  > Verduurzamingsplannen van €645 mln, waarvan €185 mln subsidie, komen stil te liggen. Het ministerie van KGG probeert een gang naar de Raad van State...
+- [Winkelketen Walmart vestigt record met marktwaarde van $1000 mrd](https://fd.nl/bedrijfsleven/1585545/winkelketen-walmart-vestigt-record-met-marktwaarde-van-1000-mrd)
+  > De aandelen zijn dit jaar met 12% gestegen, waarmee ze de stijging van 1,9% van de S&P 500-index overtreffen.
+- [VS start met uitgifte vergunningen voor olie pompen in Venezuela](https://fd.nl/politiek/1585471/vs-start-met-vergunninguitgifte-voor-olie-pompen-in-venezuela)
+  > De Amerikaanse regering wil de Venezolaanse economie ondersteunen.
+- [Erik-Jan Mares vertrekt na negen jaar als ceo van Zeeman](https://fd.nl/bedrijfsleven/1585543/erik-jan-mares-vertrekt-na-negen-jaar-als-ceo-van-zeeman)
+  > Mares prijst Zeeman als een bedrijf ‘waar iedereen zichzelf mag zijn en waar de menselijke maat vooropstaat’.
 
 ### Meest gelezen
 
