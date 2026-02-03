@@ -1,61 +1,64 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-02-2026 om 05:08*
+*Laatst bijgewerkt: 03-02-2026 om 07:58*
 
 ---
 
 ## NOS
 
-### [Grenspolitie en ICE-agenten in Minneapolis krijgen bodycams](https://nos.nl/l/2600725)
-> Alle agenten die onder het Amerikaanse ministerie van Binnenlandse Veiligheid vallen, krijgen in Minneapolis bodycams. Dat heeft minister Noem bekendgemaakt. In Minneapolis is het zeer onrustig door...
+### [Proces tegen zoon van Noorse kroonprinses Mette-Marit dieptepunt in turbulent leven](https://nos.nl/l/2600738)
+> Vandaag begint in Noorwegen de rechtszaak tegen Marius Borg Høiby, de stiefzoon van kroonprins Haakon. Hij staat terecht voor 38 misdrijven. De zaak is pijnlijk voor het Noorse hof.
+        "We geven...
 
-### [Britse politicus Mandelson steeds meer onder vuur door Epstein-files](https://nos.nl/l/2600724)
-> Er komt mogelijk een strafrechtelijk onderzoek naar de Britse politicus Peter Mandelson, naar aanleiding van het opduiken van zijn naam in de Epstein-files. Hij zou onder meer gevoelige financiële...
+### [Clintons willen toch getuigen over Epstein](https://nos.nl/l/2600734)
+> Bill en Hillary Clinton gaan toch getuigen voor een commissie van het Amerikaanse Huis van Afgevaardigden die onderzoek doet naar de zaak rond de veroordeelde zedendelinquent Jeffrey Epstein.
+       ...
 
-### [Politie deelt dashcambeelden van ripdeal Muiden](https://nos.nl/l/2600723)
-> De politie heeft beelden gedeeld van de gewelddadige ripdeal op de snelweg A1 bij Muiden. Op 18 december vorig jaar werd een vrachtwagen op klaarlichte dag gedwongen te stoppen in de middenberm. Hij...
+### [Buschauffeurs Lelystad luiden noodklok: 'Onveilige situaties door defecte bussen'](https://nos.nl/l/2600733)
+> Buschauffeurs in Lelystad maken zich grote zorgen over hun veiligheid. In een brandbrief aan de directie van vervoerder EBS klagen ze over defecten aan de bussen en de agressie van reizigers die...
 
-### ['Vrijdag gesprekken tussen VS en Iran over opgelopen spanningen'](https://nos.nl/l/2600722)
-> De Verenigde Staten en Iran gaan vrijdag met elkaar in gesprek over de spanningen tussen beide landen. Het overleg vindt plaats in Istanbul, meldt onder meer The New York Times.
-        Namens...
+### [AOW-leeftijd sneller omhoog, bekijk hier wat dat voor jou betekent](https://nos.nl/l/2600732)
+> De AOW-leeftijd gaat sneller omhoog, als het aan D66, VVD en CDA ligt. Wat dit voor jou betekent, staat in dit artikel.
+        Als het plan doorgaat, heeft het gevolgen voor de mensen jonger dan 60....
 
-### [Eerste restauratie in decennia voor 'Het laatste oordeel' in Sixtijnse Kapel](https://nos.nl/l/2600715)
-> Bezoekers van de Sixtijnse Kapel in Rome wacht de komende tijd een lichte teleurstelling. Het beroemde fresco Het laatste oordeel van Michelangelo wordt voor het eerst in dertig jaar tijd...
+### [Vandaag debat over coalitieplannen, wat vindt de oppositie ervan?](https://nos.nl/l/2600731)
+> Wat vindt de oppositie van de plannen van de nieuwe coalitie? Daarover zal meer duidelijk worden vandaag in het Tweede Kamerdebat over het coalitieakkoord. Het is waarschijnlijk nog te vroeg voor...
 
 
 ## AD
 
-### [Russen plegen nog steeds kleine daden van verzet tegen de oorlog in Oekraïne](https://www.ad.nl/buitenland/russen-plegen-nog-steeds-kleine-daden-van-verzet-tegen-de-oorlog-in-oekraine~a3986605/)
-> Russen tekenen nog steeds stil verzet aan tegen de oorlog in Oekraïne. In het befaamde Bolsjoj-theater in Moskou schreef een medewerker ‘lul’ in de nepsneeuw op het podium. Maar ook elders in het...
+### [Presentatrice Nikki Herr opnieuw zwanger: ‘Het zijn echt twee baby’tjes’](https://www.ad.nl/show/presentatrice-nikki-herr-opnieuw-zwanger-het-zijn-echt-twee-babytjes~a014a2be/)
+> Hart van Nederland-presentatrice Nikki Herr (34) wordt opnieuw moeder. Het gaat om een bijzondere zwangerschap, want Nikki is in verwachting van twee kindjes.
 
-### [Start grote rechtszaak: man uit Borculo (32) staat terecht voor seksuele afpersing en misbruik van tientallen jonge vrouwen](https://www.ad.nl/binnenland/start-grote-rechtszaak-man-uit-borculo-32-staat-terecht-voor-seksuele-afpersing-en-misbruik-van-tientallen-jonge-vrouwen~a1aad72e/)
-> Een 32-jarige man uit Borculo staat terecht voor het afpersen en bedreigen van tientallen jonge meisjes uit heel Nederland. De slachtoffers moesten naaktfoto’s en filmpjes maken, of seks hebben...
+### [‘Bonusprins’ Marius na arrestatie in ziekenhuis voor medisch onderzoek, koninklijke familie bezoekt hem](https://www.ad.nl/show/bonusprins-marius-na-arrestatie-in-ziekenhuis-voor-medisch-onderzoek-koninklijke-familie-bezoekt-hem~ab90d61a/)
+> Marius Borg Høiby (29), de oudste zoon van de Noorse kroonprinses Mette-Marit, is na zijn arrestatie onder politiebegeleiding naar het ziekenhuis gebracht. Het zou gaan om een medisch onderzoek. De...
 
-### [KNMI geeft code oranje af vanwege ‘grootschalige gladheid’ vanavond in noorden](https://www.ad.nl/binnenland/knmi-geeft-code-oranje-af-vanwege-grootschalige-gladheid-vanavond-in-noorden~ac9827b5/)
-> Een groot deel van het land krijgt vanavond mogelijk te maken met gladheid door ijzel. Het KNMI heeft code oranje aangekondigd voor de drie noordelijke provincies. Er is daar grootschalig kans op...
+### [Waarom Nederlandse clubs een dag langer spelers kunnen kopen dan buitenlandse topclubs](https://www.ad.nl/voetbal/waarom-nederlandse-clubs-een-dag-langer-spelers-kunnen-kopen-dan-buitenlandse-topclubs~afa5a40b/)
+> Clubs en nationale bonden mogen zelf bepalen wanneer hun transfermarkt sluit. In Nederland is dat bewust een dag later dan de vijf Europese topcompetities.
 
-### [Rusland hervat luchtaanvallen op Oekraïense steden, Kyiv en Charkiv getroffen](https://www.ad.nl/buitenland/rusland-hervat-luchtaanvallen-op-oekraiense-steden-kyiv-en-charkiv-getroffen~adfb97be/)
-> Na een korte gevechtspauze heeft Rusland de Oekraïense hoofdstad Kyiv in de nacht van maandag op dinsdag opnieuw onder vuur genomen met raketten en drones. Dat melden lokale autoriteiten. Voorlopig...
+### [Comeback van populaire K-popgroep BTS binnenkort live te zien op Netflix](https://www.ad.nl/show/comeback-van-populaire-k-popgroep-bts-binnenkort-live-te-zien-op-netflix~aee9c5e9/)
+> De comeback van BTS is in maart live te zien op Netflix. De populaire K-popgroep heeft zowel een livestreamoptreden als een documentaire aangekondigd die bij de streamingdienst te zien zullen zijn.
 
-### [Snoeihard rapport over Schiphol-crisis: ‘Personeel uitgeput en geïntimideerd, leiding dagenlang onzichtbaar’](https://www.ad.nl/binnenland/snoeihard-rapport-over-schiphol-crisis-personeel-uitgeput-en-geintimideerd-leiding-dagenlang-onzichtbaar~a59516a9/)
-> Schiphol-medewerkers zijn tijdens de winterchaos van vorige maand totaal aan hun lot overgelaten door de luchthaven en KLM. Terwijl passagiers agressief werden en de marechaussee personeel moest...
+### [Jongen (13) zwemt vier uur lang door woeste zee van Australië om gezin te redden: ‘Wonder dat dit is gelukt’](https://www.ad.nl/buitenland/jongen-13-zwemt-vier-uur-lang-door-woeste-zee-van-australie-om-gezin-te-redden-wonder-dat-dit-is-gelukt~a9f5f641/)
+> Ze waren door de onstuimige zee zeker 14 kilometer van de kust afgedreven met hun paddleboard en kajaks. Terugkomen leek onmogelijk. Maar de 13-jarige jongen uit het gezin werd een absolute held,...
 
 
 ## FD
 
-### [Is klimaatcompensatie beter dan niets doen?](https://fd.nl/samenleving/1585279/is-klimaatcompensatie-beter-dan-niets-doen)
-> Sjaak de Ligt, die aan de wieg van de klimaatcompensatie stond, denkt dat er tijd mee te winnen is. Onderzoeksjournalist Mira Sys ziet in klimaatcompensatie een middeleeuwse aflaat.
+### [Shanghai erkent corruptieproblemen, terwijl Xi de touwtjes strakker aantrekt](https://fd.nl/politiek/1585447/shanghai-erkent-corruptieproblemen-terwijl-xi-de-touwtjes-strakker-aantrekt)
+> De burgemeester van de miljoenenstad sprak van een ‘diepe rectificatie’ nadat inspecteurs uit Peking misstanden hadden blootgelegd.
 
-### [Economen verdeeld over door coalitie gewenste investeringsinstelling: ‘Wat voegt het toe?’](https://fd.nl/economie/1585482/economen-verdeeld-over-door-coalitie-gewenste-investeringsinstelling-wat-voegt-het-toe)
-> De coalitie van D66, VVD en CDA wil een nationale investeringsinstelling oprichten die ‘overwegend marktconforme financiering’ verstrekt. Economen en bestuurders zijn het er niet over eens of dit...
+### [Omzetstijging voor NXP in laatste kwartaal van 2025](https://fd.nl/bedrijfsleven/1585516/omzetstijging-voor-nxp-in-laatste-kwartaal-van-2025)
+> De omzet van NXP steeg in het vierde kwartaal van 2025 met zo’n 7%.
 
-### [Dit plan van Jetten is ‘zinloos’, volgens economen](https://fd.nl/economie/1585406/dit-plan-van-jetten-iszinloos-volgens-economen)
-> Vandaag in Dagkoers: kritiek op de vorm waarop de beoogde coalitieregering een nationale investeringsbank wil introduceren, geheugenchips lijken net zo belangrijk te gaan worden als de chips van...
+### [Wisselkoersen drukken resultaat AkzoNobel](https://fd.nl/bedrijfsleven/1585515/wisselkoersen-drukken-resultaat-akzonobel)
+> De verfmaker deed het iets minder dan analisten hadden verwacht. Over de voorgenomen fusie met de Amerikaanse coatingspecialist Axalta bracht AkzoNobel geen nieuws naar buiten.
 
-### [Disruptie in de polder](https://fd.nl/opinie/1585500/disruptie-in-de-polder)
+### [Musk voegt SpaceX samen met Grok-maker xAI in miljardendeal](https://fd.nl/bedrijfsleven/1585445/musk-voegt-spacex-samen-met-grok-maker-xai-in-miljardendeal)
+> 's Werelds rijkste man brengt twee van zijn bedrijven samen in een transactie met volgens Amerikaanse media een waardering van $1250 mrd. Een beursgang van SpaceX staat nog steeds op de rol.
 
-### [Weer kleine operationele winst voor Tony’s Chocolonely](https://fd.nl/bedrijfsleven/1585385/weer-kleine-operationele-winst-voor-tonys-chocolonely)
-> Het Nederlandse chocolademerk investeert in lastig jaar in groei en boekt daardoor opnieuw een nettoverlies.
+### [Live: Europese beurzen gaan hogere opening tegemoet](https://fd.nl/financiele-markten/1585446/live-beleggers-kijken-uit-naar-reeks-aan-kwartaalcijfers)
+> Bijna een kwart van de S&P 500-bedrijven publiceert deze week kwartaalcijfers. AkzoNobel is een belangrijke focus voor Nederlandse beleggers vandaag. De Amerikaanse banenrapporten zijn uitgesteld.
 
 ---
 *Automatisch gegenereerd door nieuws.py*
