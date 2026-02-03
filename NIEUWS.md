@@ -1,7 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-02-2026 om 12:09*
-*(Demo modus - voorbeelddata)*
+*Laatst bijgewerkt: 03-02-2026 om 12:11*
 
 ---
 
@@ -9,52 +8,58 @@
 
 ### Laatste nieuws
 
-- [Kabinet presenteert nieuwe klimaatplannen](https://nos.nl/artikel/1)
-  > Het kabinet heeft vandaag nieuwe plannen gepresenteerd om de klimaatdoelen te halen.
-- [Ajax wint met 3-0 van Feyenoord](https://nos.nl/artikel/2)
-  > In een spectaculaire Klassieker heeft Ajax gewonnen van Feyenoord.
-- [Zware storm verwacht in het weekend](https://nos.nl/artikel/3)
-  > Het KNMI waarschuwt voor zware windstoten dit weekend.
+- [Nieuw ontdekte minidino biedt inzicht in evolutie planteneters](https://nos.nl/l/2600771)
+  > Een nieuwe dinosoort die ongeveer zo groot was als een grote kip biedt volgens wetenschappers nieuwe inzichten in de evolutie van plantenetende...
+- [Lancering maanvlucht Artemis II maand uitgesteld vanwege problemen](https://nos.nl/l/2600767)
+  > De lancering van de raket voor de Artemis II-missie om de maan is met een maand uitgesteld. Bij een repetitie zijn meerdere problemen ontdekt, maakte...
+- [Duitsland neemt belang in Tennet en investeert 3,3 miljard euro](https://nos.nl/l/2600762)
+  > Duitsland neemt zoals verwacht een belang in hoogspanningsnetbeheerder Tennet. De Duitse overheid wordt voor 25,1 procent eigenaar van Tennet...
+- [China verbiedt autodeuren met 'verborgen' handgreep na dodelijke ongelukken](https://nos.nl/l/2600760)
+  > China gaat 'verborgen' handgrepen op autodeuren verbieden. Na meerdere dodelijke ongelukken vindt de Chinese overheid dat de vergrendeling van veel...
+- [Rusland: we zijn voorbereid op wereld zonder kernwapenverdrag](https://nos.nl/l/2600757)
+  > Rusland is klaar voor de nieuwe realiteit van een wereld waarin er geen beperkingen op kernwapens meer zijn. Dat heeft de Russische viceminister...
 
 ### Meest gelezen
 
-- [Waarom de benzineprijs zo hoog blijft](https://nos.nl/artikel/10)
-- [Live: Tweede Kamer debatteert over begroting](https://nos.nl/artikel/11)
-- [Dit is waarom je salaris niet stijgt](https://nos.nl/artikel/12)
+*Niet beschikbaar*
 
 ## AD
 
 ### Laatste nieuws
 
-- [Huizenprijzen stijgen verder in grote steden](https://ad.nl/artikel/1)
-  > De gemiddelde huizenprijs in Amsterdam is gestegen.
-- [Nieuwe attractie opent in de Efteling](https://ad.nl/artikel/2)
-  > De Efteling opent volgende maand een gloednieuwe achtbaan.
-- [Supermarkten verlagen prijzen basisproducten](https://ad.nl/artikel/3)
-  > Albert Heijn en Jumbo verlagen prijzen na kritiek.
+- [Harrie Lavreysen in kwalificatie fractie langzamer dan rivaal Matthew Richardson](https://www.ad.nl/wielrennen/harrie-lavreysen-in-kwalificatie-fractie-langzamer-dan-rivaal-matthew-richardson~a6a75df9/)
+  > Harrie Lavreysen heeft op de EK baanwielrennen in het Turkse Konya de tweede tijd neergezet in de kwalificaties van het sprinttoernooi. De regerend...
+- [Bauke Mollema kondigt afscheid aan: ‘De tijd vliegt wanneer je plezier hebt’](https://www.ad.nl/wielrennen/bauke-mollema-kondigt-afscheid-aan-de-tijd-vliegt-wanneer-je-plezier-hebt~ac330814/)
+  > Bauke Mollema stopt aan het einde van het seizoen. De 39-jarige wielrenner heeft dat via Instagram bekendgemaakt.
+- [NEC stelt door Ajax begeerde Sano op in kwartfinale beker: ‘Kan me voorstellen dat het heel lastig voor hem is’](https://www.ad.nl/voetbal/nec-stelt-door-ajax-begeerde-sano-op-in-kwartfinale-beker-kan-me-voorstellen-dat-het-heel-lastig-voor-hem-is~ab857e88/)
+  > Kodai Sano begint woensdag gewoon aan de bekerwedstrijd van NEC tegen FC Volendam. „We hebben besloten dat hij gaat spelen”, blikt trainer Dick...
+- [Lieke Martens zwanger van tweede kindje: ‘Growing our family’](https://www.ad.nl/show/lieke-martens-zwanger-van-tweede-kindje-growing-our-family~a7cfc713/)
+  > Lieke Martens en haar partner Benjamin van Leer worden opnieuw ouders. Dat deelt de oud-voetbalster dinsdag op Instagram. Vorig jaar werd ze voor het...
+- [Spaanse kunst­schaat­ser wil olympische oefening doen op Minions-mu­ziek, maar moet in allerijl op zoek naar iets anders](https://www.ad.nl/olympische-spelen/spaanse-kunstschaatser-wil-olympische-oefening-doen-op-minions-muziek-maar-moet-in-allerijl-op-zoek-naar-iets-anders~af721aeea/)
+  > Kunstrijder Tomàs-Llorenç Guarino Sabaté moet amper een week voor hij aan de bak moet op de Olympische Spelen terug naar de tekentafel. De Spanjaard...
 
 ### Meest gelezen
 
-- ['Ik verdiende 3000 euro per maand bij OnlyFans'](https://ad.nl/artikel/10)
-- [Dit zijn de goedkoopste supermarkten van Nederland](https://ad.nl/artikel/11)
-- [Buurt in shock na vondst lichaam](https://ad.nl/artikel/12)
+*Niet beschikbaar*
 
 ## FD
 
 ### Laatste nieuws
 
-- [AEX sluit hoger na positieve kwartaalcijfers](https://fd.nl/artikel/1)
-  > De Amsterdamse beurs sloot vandaag 1,2% hoger.
-- [ING verhoogt hypotheekrente](https://fd.nl/artikel/2)
-  > ING verhoogt per 1 februari de hypotheekrente.
-- [Tech-sector groeit ondanks onzekerheid](https://fd.nl/artikel/3)
-  > Nederlandse techbedrijven blijven groeien.
+- [Nederlandse bevolking groeit minder snel](https://fd.nl/samenleving/1585525/nederlandse-bevolking-groeit-minder-snel)
+  > Voor het vierde jaar op rij krimpt de bevolking via natuurlijke aanwas. Het migratiesaldo is daarmee cruciaal voor bevolkingsgroei.
+- [PepsiCo overtreft verwachtingen van analisten](https://fd.nl/bedrijfsleven/1585526/pepsico-overtreft-verwachtingen-van-analisten)
+  > De snack- en frisdrankmaker hield zijn prognose voor 2026 ongewijzigd.
+- [Nederland staat ook voor de uitdaging om online radicalisering te stoppen](https://fd.nl/opinie/1585393/de-uitdaging-om-online-radicalisering-te-stoppen)
+  > Het OM is druk met het vervolgen van leden van het 764-netwerk. Die vinden elkaar online en propageren nihilistisch gewelddadig extremisme, wat...
+- [De rijken worden steeds rijker, ook in het voetbal](https://fd.nl/bedrijfsleven/1585517/de-rijken-worden-steeds-rijker-ook-in-het-voetbal)
+  > Vorig seizoen streken de twintig best verdienende voetbalclubs samen €12,4 mrd op, 350% meer dan in seizoen 2002-2003.
+- [Frankrijk heeft een begroting voor 2026, al moest de partij van premier Lecornu er veel voor inleveren](https://fd.nl/politiek/1585452/frankrijk-heeft-een-begroting-voor-2026-al-moest-de-partij-van-premier-lecornu-er-veel-voor-inleveren)
+  > Huishoudens worden vooral ontzien, de rekening gaat naar het bedrijfsleven.
 
 ### Meest gelezen
 
-- [Column: Waarom de huizenmarkt niet zal crashen](https://fd.nl/artikel/10)
-- [De beste aandelen voor 2026](https://fd.nl/artikel/11)
-- [Miljonair op je 30e: zo deed zij het](https://fd.nl/artikel/12)
+*Niet beschikbaar*
 
 ---
 *Automatisch gegenereerd door nieuws.py*
