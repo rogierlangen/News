@@ -43,4 +43,4 @@ jobs:
           git add NIEUWS.md index.html
           git diff --quiet --staged || git commit -m "Nieuws bijgewerkt $(date +'%d-%m-%Y %H:%M')"
           # Probeer normale push, bij falen: force push (veilig want alleen nieuws bestanden)
-          git push || git push --force-with-lease
+          git push || git push --force
