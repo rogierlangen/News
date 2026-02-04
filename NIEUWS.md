@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-02-2026 om 17:34*
+*Laatst bijgewerkt: 04-02-2026 om 19:54*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [The Washington Post ontslaat een derde van het personeel](https://nos.nl/l/2600953)
-  > De Amerikaanse krant The Washington Post ontslaat een derde van al het personeel. De ontslagen vallen niet alleen op de redactie, maar op alle...
-- [Tientallen bedreigers van Feyenoord-baas krijgen politie-sms: 'Stop hiermee'](https://nos.nl/l/2600951)
-  > Tientallen mensen hebben per sms een waarschuwing van de politie ontvangen om te stoppen met het bedreigen van directeur Dennis te Kloese van...
-- [Duitse Maja T. in Hongarije veroordeeld tot acht jaar in omstreden zaak](https://nos.nl/l/2600949)
-  > De Duitse Maja T. is in Boedapest veroordeeld tot acht jaar gevangenisstraf. De Hongaarse rechtbank acht bewezen dat de 25-jarige T. als lid van een...
-- [Honderden agenten van ICE en grenspolitie gaan weg uit Minnesota](https://nos.nl/l/2600936)
-  > De Amerikaanse regering trekt 700 medewerkers van de omstreden immigratie-instantie ICE en de grenspolitie terug uit de staat Minnesota. Dat meldt...
-- [Zeker 162 doden bij gewapende bende-aanval op dorp in Nigeria](https://nos.nl/l/2600935)
-  > In Nigeria zijn meer dan 160 mensen gedood bij een aanval door gewapende mannen op een afgelegen dorp in de deelstaat Kwara, in het westen van het...
+- [Man die Trump wilde neerschieten op golfbaan krijgt levenslang](https://nos.nl/l/2600973)
+  > De man die in 2024 Donald Trump wilde neerschieten op een golfbaan in Florida is veroordeeld tot een levenslange gevangenisstraf zonder mogelijkheid...
+- [Militaire top moet leiden tot 'ethisch AI-gebruik'](https://nos.nl/l/2600967)
+  > Vandaag begint in het Spaanse A Coruña de derde REAIM-top. Op die top praten meer dan honderd landen over het militaire gebruik van kunstmatige...
+- [Onderzoek in België naar rook uit gloednieuwe mijnenjager](https://nos.nl/l/2600959)
+  > De brandweer in België is gisteravond in actie gekomen vanwege rookontwikkeling aan boord van een nieuwe mijnenjager in Zeebrugge. Defensie...
+- [Podcast De Dag: alle ogen op Jesse Klaver (GroenLinks-PvdA)](https://nos.nl/l/2600958)
+  > De coalitie van D66, VVD en CDA gaan een kabinet formeren, onder leiding van beoogd premier Rob Jetten. Gisteravond laat kreeg hij daarvoor een...
+- [Gezicht van Meloni-engel in Romeinse basiliek overgeschilderd na commotie](https://nos.nl/l/2600957)
+  > De engel met het gezicht van de Italiaanse premier Giorgia Meloni blijkt 'gevlogen'. De Meloni-gelijkenis werd dit weekend ontdekt op een muur in de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De VS laat kernwapenverdrag met Rusland morgen verlopen als China weigert mee te doen](https://www.ad.nl/buitenland/de-vs-laat-kernwapenverdrag-met-rusland-morgen-verlopen-als-china-weigert-mee-te-doen~a9a06edd/)
-  > De Verenigde Staten laten de laatst overgebleven afspraken over kernwapenbeheersing verlopen als China blijft weigeren mee te doen, zegt...
-- [Commentatoren opgelet: Wolves halen vierde speler met dezelfde achternaam](https://www.ad.nl/voetbal/commentatoren-opgelet-wolves-halen-vierde-speler-met-dezelfde-achternaam~af64b067/)
-  > Voetbalcommentatoren mogen zich schrap zetten wanneer ze wedstrijden van Wolverhampton Wanderers van commentaar gaan voorzien. De hekkensluiter van...
-- [Nieuwe domper voor Richard Krajicek: na Carlos Alcaraz zegt ook Alexander Zverev af](https://www.ad.nl/tennis/nieuwe-domper-voor-richard-krajicek-na-carlos-alcaraz-zegt-ook-alexander-zverev-af~a39cde74/)
-  > Na Carlos Alcaraz heeft ook Alexander Zverev laten weten dat hij volgende week toch niet meedoet aan het ABN Amro Open in Rotterdam. Afgelopen...
-- [228 spelers wisselden afgelopen maand van club, Erdogan hielp bij transfer Kanté](https://www.ad.nl/voetbal/228-spelers-wisselden-afgelopen-maand-van-club-erdogan-hielp-bij-transfer-kante~a79d4309/)
-  > De transfermarkt in Nederland en de grootste competities is gesloten. Er zijn nog slechts een paar landen waar spelers naartoe kunnen. Ook zullen er...
-- [3500 mensen geëvacueerd door storm en overstromingen in Spanje: ‘Risico op aardverschuivingen’](https://www.ad.nl/buitenland/3500-mensen-geevacueerd-door-storm-en-overstromingen-in-spanje-risico-op-aardverschuivingen~a2249ed6/)
-  > In het zuiden van Spanje zijn zo’n 3500 mensen geëvacueerd wegens overstromingen. Storm Leonardo zorgt voor een enorme hoeveelheid regen. Scholen...
+- [Dictatorenkinderen: voorbestemd voor macht, maar vaak wacht ballingschap, of erger](https://www.ad.nl/buitenland/dictatorenkinderen-voorbestemd-voor-macht-maar-vaak-wacht-ballingschap-of-erger~a9233ca5/)
+  > Saif al-Islam Gaddafi studeerde aan de London School of Economics, sprak vloeiend Engels en droomde van hervormingen in Libië. Totdat zijn vader werd...
+- [Sofia en Valentijn deden als besties alles samen, totdat iemand opmerkte: ‘Zijn jullie verliefd of zo?’](https://www.ad.nl/mezza/sofia-en-valentijn-deden-als-besties-alles-samen-totdat-iemand-opmerkte-zijn-jullie-verliefd-of-zo~a9ec8429/)
+  > Nooit wilde Sofia (18) een relatie. En zeker niet met haar bestie Valentijn (18). ‘Iemand die zo dichtbij komt vond ik eng,’ vertelt ze in deze...
+- [NEC komt goed weg tegen FC Volendam en haalt dankzij controversieel doelpunt halve finale KNVB-beker](https://www.ad.nl/voetbal/nec-komt-goed-weg-tegen-fc-volendam-en-haalt-dankzij-controversieel-doelpunt-halve-finale-knvb-beker~a9ddb346/)
+  > NEC heeft de halve finale van de Eurojackpot KNVB-beker bereikt na een overwinning op FC Volendam (1-0). De thuisploeg stond de gehele eerste helft...
+- [Aké en Reijnders in de basis bij City, Botman moet aan de bak met Newcastle United](https://www.ad.nl/voetbal/ake-en-reijnders-in-de-basis-bij-city-botman-moet-aan-de-bak-met-newcastle-united~a464054a/)
+  > Manchester City neemt het met een flink voordeel op tegen Newcastle United in de halve finale van de League Cup. De ploeg van Pep Guardiola won de...
+- [Dossier-Epstein: was de miljardair een pion van Poetin? ‘Dit roept vragen op over contraspionage’](https://www.ad.nl/buitenland/dossier-epstein-was-de-miljardair-een-pion-van-poetin-dit-roept-vragen-op-over-contraspionage~a0bd9ec4/)
+  > In de onlangs vrijgegeven Epstein-files – een archief van drie miljoen documenten – duikt de naam van de Russische president Vladimir Poetin maar...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Maatwerkafspraak met industrie blijkt akelig fragiel](https://fd.nl/opinie/1585670/maatwerkafspraak-met-industrie-blijkt-akelig-fragiel)
+  > Bezwaar tegen een zoutwinningsvergunning frustreert de verduurzaming van chemiebedrijf Nobian. Dat geeft te denken voor bijvoorbeeld afspraken met...
+- [Grote ontslagronde bij Amerikaanse krant The Washington Post](https://fd.nl/bedrijfsleven/1585787/grote-ontslagronde-bij-amerikaanse-krant-the-washington-post)
+  > De roemruchte Amerikaanse krant heeft het al langer financieel zwaar. Van een ‘Trump-bump’ die bij andere media wel zichtbaar is, is geen sprake.
+- [Tussenstation of fuik? De Kamer debatteerde voor het laatst over nieuwe box 3](https://fd.nl/politiek/1585668/tussenstation-of-fuik-de-kamer-debatteerde-voor-het-laatst-over-nieuwe-box-3)
+  > De vernieuwing van de belasting op inkomen uit sparen en beleggen stevent af op een Kamermeerderheid, met de belofte dat er nog aan gesleuteld wordt.
 - [Tweede Kamer heeft fundamentele vragen over plan voor investeringsbank](https://fd.nl/politiek/1585703/tweede-kamer-heeft-fundamentele-vragen-over-plan-voor-investeringsbank)
   > Miljarden wil de nieuwe coalitie steken in een ‘nationale investeringsinstelling’. Wat die exact moet gaan doen, daarover hadden Kamerleden vooral...
 - [Europese inflatie onder doelstelling van 2%](https://fd.nl/economie/1585786/europese-inflatie-onder-doelstelling-van-2)
   > Terwijl de Nederlandse inflatie hardnekkig boven de 2% blijft, ligt de inflatie in de eurozone op 1,7%.
-- [Alternatief sociaal medium UpScrolled profiteert van TikTok-onrust](https://fd.nl/tech-en-innovatie/1585701/alternatief-sociaal-medium-upscrolled-profiteert-van-tiktok-onrust)
-  > Onrust rond de Amerikaanse afsplitsing van TikTok drijft socialemediagebruikers in de armen van het Australische UpScrolled. Ook in Nederland doet de...
-- [Europese chemiebedrijven schieten omhoog op beurs](https://fd.nl/financiele-markten/1585785/europese-chemiebedrijven-schieten-omhoog-op-beurs)
-  > De stijging houdt volgens persbureau Bloomberg verband met een bericht van de Duitse krant Handelsblatt over het afzwakken van de klimaatambities van...
-- [Klant boos op Coin Meester na liquidatie cryptoportefeuille](https://fd.nl/financiele-markten/1585782/klant-boos-op-coin-meester-na-liquidatie-cryptoportefeuille)
-  > Een vijftiger uit Nijmegen met een IT-bedrijf, had een reeks virtuele munten. Cryptobroker Coin Meester liquideerde er daar een aantal van. Daar is...
 
 ### Meest gelezen
 
