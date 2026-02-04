@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-02-2026 om 05:00*
+*Laatst bijgewerkt: 04-02-2026 om 07:58*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Code rood om ijzel in Groningen, Friesland en Drenthe: 'Ga niet de weg op'](https://nos.nl/l/2600861)
-  > Er geldt op dit moment code rood voor de provincies Drenthe, Friesland en Groningen vanwege gladheid door ijzel, meldt het KNMI. Dat weeralarm wordt...
-- [Afname van uitgezaaide darmkanker, prostaatkanker juist vaak laat ontdekt](https://nos.nl/l/2600860)
-  > Het aantal gevallen van uitgezaaide darmkanker is ondanks de vergrijzing de laatste jaren gedaald. Dat heeft volgens het Integraal Kankercentrum...
-- [Zeker veertien doden na botsing tussen Griekse kustwacht en migrantenboot](https://nos.nl/l/2600859)
-  > Bij een botsing tussen een vaartuig van de Griekse kustwacht en een boot met migranten zijn zeker zeker veertien migranten overleden. Dat heeft de...
-- [Andrew verlaat Royal Lodge te midden van Epstein-beschuldigingen](https://nos.nl/l/2600858)
-  > De voormalige Britse prins Andrew is verhuisd van zijn huis in Windsor naar Sandringham Estate, in graafschap Norfolk, meldt de BBC. Hij verblijft in...
-- [Jetten op zoek naar ministers, coalitieakkoord na kritisch debat nog overeind](https://nos.nl/l/2600857)
-  > D66-leider Jetten is na het Kamerdebat over het coalitieakkoord door een meerderheid van de Tweede Kamer benoemd tot formateur. Hij gaat woensdag...
+- [Inflatie in januari fors gedaald](https://nos.nl/l/2600880)
+  > De alledaagse kosten zijn afgelopen maand met zo'n 2,4 procent gestegen ten opzichte van dezelfde maand een jaar eerder. Dat blijkt uit cijfers van...
+- [Wachtlijst voor elektriciteitsaansluiting bedrijven kan flink korter](https://nos.nl/l/2600877)
+  > Een groot deel van de 14.000 bedrijven en instellingen die op de wachtlijst staan voor een elektriciteitsaansluiting kan daar de komende jaren vanaf....
+- [Geen treinverkeer rond Schiphol na kortsluiting in schakelkast](https://nos.nl/l/2600874)
+  > Het treinverkeer rond Schiphol ligt stil, doordat in een schakelkast van een perron op het station van de luchthaven kortsluiting is ontstaan....
+- [Wekdienst 4/2: Code rood in Noord-Nederland • Oekraïne-onderhandelingen in Abu Dhabi](https://nos.nl/l/2600867)
+  > Goedemorgen! In Groningen, Friesland en Drenthe geldt deze ochtend code rood vanwege verraderlijke gladheid. In Abu Dhabi onderhandelen Oekraïense,...
+- [Van café tot huisarts: dorpen in hele land zien voorzieningen verdwijnen](https://nos.nl/l/2600865)
+  > In ongeveer de helft (51 procent) van alle buurten en dorpen is de afgelopen vijf jaar de bereikbaarheid van noodzakelijke voorzieningen zoals de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Code rood in Noord-Nederland wegens gladheid door ijzel, code oranje en geel in andere provincies](https://www.ad.nl/binnenland/code-rood-in-noord-nederland-wegens-gladheid-door-ijzel-code-oranje-en-geel-in-andere-provincies~a02113e8/)
-  > Het KNMI heeft code rood afgegeven voor de provincies Groningen, Friesland en Drenthe vanwege ijzel die op grote schaal voor verraderlijke gladheid...
-- [Zeker vijftien bootmigranten omgekomen bij botsing met Griekse kustwacht](https://www.ad.nl/buitenland/zeker-vijftien-bootmigranten-omgekomen-bij-botsing-met-griekse-kustwacht~a3e88ee9/)
-  > Zeker vijftien migranten zijn omgekomen op de Egeïsche Zee doordat hun boot in botsing kwam met een vaartuig van de Griekse kustwacht. Dat meldt de...
-- [Nicotinegolf op spoedhulp: 26.500 bezoeken per jaar te wijten aan roken, vapen en snus](https://www.ad.nl/wetenschap/nicotinegolf-op-spoedhulp-26-500-bezoeken-per-jaar-te-wijten-aan-roken-vapen-en-snus~af9989ae/)
-  > Bijna 26.500 patiënten komen jaarlijks op de spoedeisende hulp terecht vanwege klachten die enkel en alleen worden veroorzaakt door nicotinegebruik....
-- [Amnesty: dwangarbeid in Noord-Korea voor kijken Zuid-Koreaanse tv](https://www.ad.nl/buitenland/amnesty-dwangarbeid-in-noord-korea-voor-kijken-zuid-koreaanse-tv~a73357bf/)
-  > Noord-Koreanen die worden betrapt op het kijken naar Zuid-Koreaanse tv-programma’s of het luisteren naar Zuid-Koreaanse muziek kunnen worden...
-- [Voetbalpodcast | ‘Geen idee wat voor type 6 Ajax wilde binnenhalen deze transferperiode’](https://www.ad.nl/voetbal/voetbalpodcast-geen-idee-wat-voor-type-6-ajax-wilde-binnenhalen-deze-transferperiode~ac8603a9/)
-  > De laatste dag dat er nog gehandeld kon worden op de transfermarkt in Nederland zit erop. Deadline Day verliep niet heel spectaculair.
+- [Spekglad in noorden: ‘Er viel ook onderkoelde regen, wat zelfs gestrooide wegen glad maakt’](https://www.ad.nl/binnenland/spekglad-in-noorden-er-viel-ook-onderkoelde-regen-wat-zelfs-gestrooide-wegen-glad-maakt~a0ab514c/)
+  > Volgens meteoroloog Matthijs van der Linden van Weerplaza nemen automobilisten een behoorlijk risico als ze woensdagochtend in het noordoosten de weg...
+- [Flitsmeister kondigt plots aan te stoppen, lijkt op marketingstunt](https://www.ad.nl/auto/flitsmeister-kondigt-plots-aan-te-stoppen-lijkt-op-marketingstunt~a2a869c2/)
+  > Paniek onder gebruikers van de populaire verkeersapp Flitsmeister woensdagochtend. De gebruikers kregen in de app en via de mail een korte boodschap...
+- [Concurrentie wijst naar illegaal motortrucje Mercedes en Red Bull, Toto Wolff haalt uit: ‘Krijg je eigen zaakjes op orde’](https://www.ad.nl/formule-1/concurrentie-wijst-naar-illegaal-motortrucje-mercedes-en-red-bull-toto-wolff-haalt-uit-krijg-je-eigen-zaakjes-op-orde~a16d4ad3/)
+  > Mercedes en Red Bull worden met een Formule 1-vergrootglas bekeken door de concurrentie. De twee renstallen zouden een trucje gevonden hebben en...
+- [Ex-man van Jill Biden opgepakt voor moord op echtgenote](https://www.ad.nl/buitenland/ex-man-van-jill-biden-opgepakt-voor-moord-op-echtgenote~a98358bd/)
+  > De ex-man van de voormalige Amerikaanse first lady Jill Biden wordt verdacht van de moord op zijn echtgenote. De 77-jarige William Stevenson is...
+- [Vergeet de families Bauer, Meiland en Van der Valk: hier zijn... De Bogaartjes!](https://www.ad.nl/leidschendam-voorburg/vergeet-de-families-bauer-meiland-en-van-der-valk-hier-zijn-de-bogaartjes~a772a945/)
+  > Vergeet Château Meiland, De Bauers, De Augurkenkoning en Massa is Kassa: in De Bogaartjes komt alles uit voorgaande realityseries samen. Een jaar...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Oud-ING-bestuurder Wilfred Nagel: ‘Het is moeilijk samenwerken met een pistool tegen je hoofd’](https://fd.nl/bedrijfsleven/1584815/oud-ing-bestuurder-wilfred-nagel-het-is-moeilijk-samenwerken-met-een-pistool-tegen-je-hoofd)
-  > Jarenlang achtervolgde een mogelijke vervolging zijn voormalige baas Ralph Hamers. Wilfred Nagel zou medeschuldig zijn. ‘Ik lees veel onzin’, zegt de...
-- [Elon Musk wil AI-datacenters in de ruimte – geloof jij het?](https://fd.nl/economie/1585547/elon-musk-wil-ai-datacenters-in-de-ruimte-geloof-jij-het)
-  > Vandaag bespreken we in Dagkoers de ruimteplannen van Elon Musk, het debat over het coalitieakkoord en de reorganisatie van het moederbedrijf van...
-- [Inspiratie: afdwingen of erop wachten?](https://fd.nl/opinie/1585530/inspiratie-afdwingen-of-erop-wachten)
-  > Inspiratie komt zelden uit de lucht vallen. Wie wil schrijven, moet vooral gaan zitten – en accepteren dat een beetje druk vaak productiever is dan...
-- [Telkens kortere ww](https://fd.nl/opinie/1585469/telkens-kortere-ww)
-  > De discussie over het ww-plan van de nieuwe coalitie wordt nu vooral met politieke en emotionele argumenten gevoerd.
-- [Achterblijvende marktvraag grotere zorg voor industrie dan personeelstekorten](https://fd.nl/bedrijfsleven/1585468/achterblijvende-marktvraag-grotere-zorg-voor-industrie-dan-personeelstekorten)
-  > Ondernemers zien afnemende vraag naar hun producten als hun grootste knelpunt. De industrie en dan met name chemiebedrijven hebben het moeilijk door...
+- [Een hippieboerderij in Nieuwleusen](https://fd.nl/samenleving/1585286/een-hippieboerderij-in-nieuwleusen)
+  > Bij het tuinhuis met Che Guevara-vlag: ‘In de zomer zitten we hier graag. Wierook, waterpijp en plaatjes draaien uit onze tijd.’
+- [Vermogensbeheerder Amundi zegt beleggingen in VS af te bouwen](https://fd.nl/bedrijfsleven/1585676/vermogensbeheerder-amundi-zegt-beleggingen-in-vs-af-te-bouwen)
+  > Valérie Baudson van het Franse concern, dat €2400 mrd aan vermogen beheert, ziet dat de dollar verder verzwakt als het economisch beleid ongewijzigd...
+- [TotalEnergies wil met nieuwe partner meer laadpalen in Nederland neerzetten](https://fd.nl/bedrijfsleven/1585454/totalenergies-wil-met-nieuwe-partner-meer-laadpalen-in-nederland-neerzetten)
+  > Het Franse bedrijf, de derde speler in de Nederlandse markt, wil het aantal publieke laadpalen in vijf jaar verdubbelen.
+- [TomTom verwacht verdere omzetdaling in 2026](https://fd.nl/bedrijfsleven/1585596/tomtom-boekt-lagere-jaaromzet-maar-positief-operationeel-resultaat)
+  > De Amsterdamse kaartenmaker heeft in 2025 de omzet met 3% zien dalen, tot €555 mln. Het bedrijf voorziet voor dit jaar een verdere daling, maar wel...
+- [Inflatie in januari minder hard gestegen met 2,4%](https://fd.nl/economie/1585595/inflatie-in-januari-minder-hard-gestegen-met-2-4)
+  > Volgens een snelle raming van het CBS daalden de prijzen voor consumenten in januari met 0,7% ten opzichte van de maand ervoor.
 
 ### Meest gelezen
 
