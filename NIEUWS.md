@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-02-2026 om 10:10*
+*Laatst bijgewerkt: 04-02-2026 om 11:59*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Toekomst Noorse koningshuis onzeker door schandalen Mette-Marit en Marius](https://nos.nl/l/2600896)
-  > Het gaat in Noorwegen nergens anders over deze dagen: de rechtszaak tegen Marius Borg Høiby, de stiefzoon van kroonprins Haakon. Hij staat terecht...
-- [​​​​​​​Gladheid teistert Berlijn: strooizoutverbod opgeheven na golf aan botbreuken](https://nos.nl/l/2600895)
-  > Wie zich in Berlijn aan een wandeling waagt, staat een balanceeract te wachten. De Duitse hoofdstad heeft al weken te maken met bijzonder lage...
-- [Trumps Amerika zet mensenrechten wereldwijd onder druk, zegt Human Rights Watch](https://nos.nl/l/2600886)
-  > Een democratische recessie, zo noemen ze het bij Human Rights Watch (HRW). Driekwart van de wereldbevolking leeft nu onder autocratische leiders. "De...
-- [Vijftig schapen ontsnapt in Wageningen, politie grijpt in](https://nos.nl/l/2600885)
-  > De politie in Wageningen kreeg vanmorgen een opvallende melding: een kudde van zo'n vijftig schapen was aan de wandel gegaan. De dieren waren uit hun...
-- [Breda introduceert eerste rookvrije park: 'Sociale norm aanpassen'](https://nos.nl/l/2600883)
-  > De gemeente Breda ontwikkelt een nieuw park waarin het verboden wordt om te roken. Het Seeligpark, op het terrein van de voormalige Seeligkazerne,...
+- [Duitse conducteur doodgeslagen, minuut stilte op stations](https://nos.nl/l/2600912)
+  > In Duitsland is een conducteur zo zwaar mishandeld, dat hij aan zijn verwondingen is overleden. De man van 36 werd maandagavond aangevallen door een...
+- [Urenlange files en een dode door winterweer in Duitsland](https://nos.nl/l/2600910)
+  > Ook in grote delen van Duitsland is het leven ontregeld door het winterweer en de extreme gladheid. Op de Duitse wegen gebeurden veel ongelukken, met...
+- [Poetin en Xi Jinping spreken over relatie Rusland-China](https://nos.nl/l/2600909)
+  > De presidenten Poetin van Rusland en Xi van China hebben opnieuw met elkaar gesproken via een videoverbinding. Xi liet aan Poetin weten dat beide...
+- [Israëlische militairen doden zeker 19 Palestijnen in Gaza](https://nos.nl/l/2600908)
+  > Israëlische militairen hebben in Gaza zeker negentien Palestijnen gedood. Het zijn vooral vrouwen en kinderen, hoorde persbureau AP van ziekenhuizen...
+- [Nestlé breidt terugroepactie Franse babyvoeding uit](https://nos.nl/l/2600905)
+  > Voedselgigant Nestlé roept in Frankrijk meer babymelk terug. Er wordt een nieuwe partij van het merk Guigoz teruggeroepen. Het bedrijf doet dat naar...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [TransferTalk | Jeugdclub Messi voert gesprekken over terugkeer, Volendam Indonesisch international kwijt](https://www.ad.nl/voetbal/transfertalk-jeugdclub-messi-voert-gesprekken-over-terugkeer-volendam-indonesisch-international-kwijt~a79d4309/)
-  > De transfermarkt in Nederland en de grootste competities is gesloten. Er zijn nog slechts een paar landen waar spelers naartoe kunnen. Ook zullen er...
-- [Onze verslaggevers pakken de glazen bol erbij: welke Nederlanders veroveren olympisch goud in Milaan?](https://www.ad.nl/olympische-spelen/onze-verslaggevers-pakken-de-glazen-bol-erbij-welke-nederlanders-veroveren-olympisch-goud-in-milaan~a26a376b/)
-  > De 25ste Olympische Winterspelen beginnen komend weekend. Nederland gaat vooral op het ijs op jacht naar goud. Hoe succesvol zal deze editie worden?...
-- [Lolbroeken van meubelzaak stunten op rode bank tijdens code rood: ‘Onze meubels glijden de deur uit!’](https://www.ad.nl/binnenland/lolbroeken-van-meubelzaak-stunten-op-rode-bank-tijdens-code-rood-onze-meubels-glijden-de-deur-uit~a6eb2ffd/)
-  > De prijs voor originaliteit gaat zonder twijfel naar een meubelzaak in het Groningse dorpje Uithuizermeeden. Terwijl code rood het noorden van het...
-- [UMCG schrapt honderden afspraken om code rood: ‘We willen bereikbaar zijn voor nood’](https://www.ad.nl/binnenland/umcg-schrapt-honderden-afspraken-om-code-rood-we-willen-bereikbaar-zijn-voor-nood~a8fae04f/)
-  > Het UMCG in Groningen heeft besloten de rest van de woensdag alle geplande behandelingen, afspraken en operaties te schrappen. Dat bevestigt een...
-- [Rico Verhoeven tegen Usyk? Saoedische miljardair én ‘Team Rico’ zien het zitten, MMA blijft ook een optie](https://www.ad.nl/vechtsport/rico-verhoeven-tegen-usyk-saoedische-miljardair-en-team-rico-zien-het-zitten-mma-blijft-ook-een-optie~afd18464/)
-  > Terwijl zaterdag om de erfenis van Rico Verhoeven wordt gestreden bij kickboksorganisatie Glory, wacht The King of Kickboxing zelf geduldig op zíjn...
+- [Nederlanders glijden lachend met biertje van heuvel in Oostenrijk en klappen vol op skiër: ‘Een dieptepunt’](https://www.ad.nl/buitenland/nederlanders-glijden-lachend-met-biertje-van-heuvel-in-oostenrijk-en-klappen-vol-op-skier-een-dieptepunt~a3519039/)
+  > In Oostenrijk hebben twee Nederlanders voor een gevaarlijke situatie gezorgd door op een veiligheidskussen, en met een biertje in de handen, een...
+- [Vrouw besluit in paniek tot abortus en klaagt nu kliniek aan: ‘Ze hadden me moeten tegenhouden’](https://www.ad.nl/binnenland/vrouw-besluit-in-paniek-tot-abortus-en-klaagt-nu-kliniek-aan-ze-hadden-me-moeten-tegenhouden~ad81b0e1/)
+  > Een vrouw heeft twee artsen en een verpleegkundige aangeklaagd vanwege een abortus die zij heeft ondergaan. Volgens de vrouw hadden zij haar mentale...
+- [Vrijdag is openingsceremonie, maar Winterspelen beginnen vanavond al. Hoe zit dat?](https://www.ad.nl/olympische-spelen/vrijdag-is-openingsceremonie-maar-winterspelen-beginnen-vanavond-al-hoe-zit-dat~afef18ad/)
+  > De olympische vlam wordt vrijdagavond ontstoken in het San Siro-stadion in Milaan. Een traditie die de start van de Olympische Winterspelen inluidt....
+- [Lorde en New Wave dit jaar naar festival Lowlands, bekijk hier de eerste namen](https://www.ad.nl/show/lorde-en-new-wave-dit-jaar-naar-festival-lowlands-bekijk-hier-de-eerste-namen~afeb5fb8/)
+  > Lowlands heeft de 56 eerste namen voor de komende editie onthuld. Onder anderen Tyler, The Creator, Lorde, New Wave, Parcels en Turnstile staan...
+- [Bondscoach shorttrackers tevreden over afbreken trainingsstage, Nuis en De Boo fietsen door Milaan](https://www.ad.nl/olympische-spelen/bondscoach-shorttrackers-tevreden-over-afbreken-trainingsstage-nuis-en-de-boo-fietsen-door-milaan~aa000d15/)
+  > De Olympische Winterspelen Milaan Cortina staan voor de deur: op vrijdag 6 februari is de openingsceremonie. Nederland gaat vanaf dan op jacht naar...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Politiek legt digitale ava kostbare beperking op](https://fd.nl/opinie/1585518/politiek-legt-digitale-ava-kostbare-beperking-op)
-  > De Tweede Kamer maakt sinds kort volledig digitale ava’s voor bv’s en nv’s mogelijk, met één uitzondering: beursfondsen die hun jaarrekening...
-- [Buiten de spotlights werken Nederlandse bedrijven aan de Winterspelen](https://fd.nl/bedrijfsleven/1584952/buiten-de-spotlights-werken-nederlandse-bedrijven-aan-de-winterspelen)
-  > Van de verlichting op de skipiste tot de valkussens om de schaatsbaan: verschillende Nederlandse bedrijven werken achter de schermen van de...
-- [Handelsbanken ziet winst en inkomsten voor tweede jaar op rij dalen](https://fd.nl/financiele-markten/1585681/handelsbanken-ziet-winst-en-inkomsten-voor-tweede-jaar-op-rij-dalen)
-  > Onderliggend zag de bank groei op alle domeinen waarbinnen hij actief is. De kredietverlening nam 9% toe.
-- [Gedeeltelijke shutdown in de VS voorbij, financiering ICE met twee weken verlengd](https://fd.nl/politiek/1585679/gedeeltelijke-shutdown-in-de-vs-voorbij-financiering-ice-met-twee-weken-verlengd)
-  > De overheid lag sinds het afgelopen weekend stil vanwege het uitblijven van een akkoord tussen Democraten en Republikeinen.
-- [Zwitserse bank UBS ziet nettowinst stijgen](https://fd.nl/bedrijfsleven/1585677/zwitserse-bank-ubs-ziet-nettowinst-stijgen)
-  > De nettowinst steeg met 56% ten opzichte van een jaar eerder en bedroeg $1,2 mrd tegenover door analisten verwachtte $967 mln.
+- [Mkb’er vaker succesvol bij aanvraag financiering](https://fd.nl/bedrijfsleven/1585687/mkber-vaker-succesvol-bij-aanvraag-financiering)
+  > Afgelopen jaar werd slechts 3% van de financieringsaanvragen van mkb’ers afgewezen. Dat is het laagste percentage in jaren.
+- [Novartis verwacht lagere winst in 2026](https://fd.nl/bedrijfsleven/1585603/novartis-gaat-last-krijgen-van-generieke-medicijnen)
+  > De Zwitserse farmaceut ziet dit jaar ‘het grootste patentverloop’ in zijn geschiedenis. Dat zal gevolgen hebben voor de winst, die volgens het...
+- [Criticus Kevin Warsh gaat de Fed aansturen en moet met Trump dealen](https://fd.nl/financiele-markten/1585514/criticus-kevin-warsh-gaat-de-fed-aansturen-en-moet-met-trump-dealen)
+  > Warsh vertrok ooit bij de Fed uit onvrede over het beleid van ‘quantitative easing’. Nu keert hij op voordracht van president Donald Trump terug als...
+- [Noordzee-akkoord geeft bodemonderzoeker Fugro forse impuls](https://fd.nl/financiele-markten/1585598/noordzee-akkoord-geeft-bodemonderzoeker-fugro-forse-impuls)
+  > Het Noordzee-akkoord geeft de Europese markt voor windparken op zee een flinke impuls. Voor Fugro betekent dit hernieuwd vertrouwen van beleggers en...
+- [Henkel koopt coatingfabrikant Stahl uit Waalwijk voor €2,1 mrd](https://fd.nl/bedrijfsleven/1585686/henkel-koopt-coatingfabrikant-stahl-uit-waalwijk-voor-2-1-mrd)
+  > Het Duitse concern, bekend van Persil-wasmiddel en de lijmmerken Loctite en Pattex, ziet in de activiteiten van Stahl Holdings een groeimarkt.
 
 ### Meest gelezen
 
