@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-02-2026 om 07:58*
+*Laatst bijgewerkt: 04-02-2026 om 10:10*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Inflatie in januari fors gedaald](https://nos.nl/l/2600880)
-  > De alledaagse kosten zijn afgelopen maand met zo'n 2,4 procent gestegen ten opzichte van dezelfde maand een jaar eerder. Dat blijkt uit cijfers van...
-- [Wachtlijst voor elektriciteitsaansluiting bedrijven kan flink korter](https://nos.nl/l/2600877)
-  > Een groot deel van de 14.000 bedrijven en instellingen die op de wachtlijst staan voor een elektriciteitsaansluiting kan daar de komende jaren vanaf....
-- [Geen treinverkeer rond Schiphol na kortsluiting in schakelkast](https://nos.nl/l/2600874)
-  > Het treinverkeer rond Schiphol ligt stil, doordat in een schakelkast van een perron op het station van de luchthaven kortsluiting is ontstaan....
-- [Wekdienst 4/2: Code rood in Noord-Nederland • Oekraïne-onderhandelingen in Abu Dhabi](https://nos.nl/l/2600867)
-  > Goedemorgen! In Groningen, Friesland en Drenthe geldt deze ochtend code rood vanwege verraderlijke gladheid. In Abu Dhabi onderhandelen Oekraïense,...
-- [Van café tot huisarts: dorpen in hele land zien voorzieningen verdwijnen](https://nos.nl/l/2600865)
-  > In ongeveer de helft (51 procent) van alle buurten en dorpen is de afgelopen vijf jaar de bereikbaarheid van noodzakelijke voorzieningen zoals de...
+- [Toekomst Noorse koningshuis onzeker door schandalen Mette-Marit en Marius](https://nos.nl/l/2600896)
+  > Het gaat in Noorwegen nergens anders over deze dagen: de rechtszaak tegen Marius Borg Høiby, de stiefzoon van kroonprins Haakon. Hij staat terecht...
+- [​​​​​​​Gladheid teistert Berlijn: strooizoutverbod opgeheven na golf aan botbreuken](https://nos.nl/l/2600895)
+  > Wie zich in Berlijn aan een wandeling waagt, staat een balanceeract te wachten. De Duitse hoofdstad heeft al weken te maken met bijzonder lage...
+- [Trumps Amerika zet mensenrechten wereldwijd onder druk, zegt Human Rights Watch](https://nos.nl/l/2600886)
+  > Een democratische recessie, zo noemen ze het bij Human Rights Watch (HRW). Driekwart van de wereldbevolking leeft nu onder autocratische leiders. "De...
+- [Vijftig schapen ontsnapt in Wageningen, politie grijpt in](https://nos.nl/l/2600885)
+  > De politie in Wageningen kreeg vanmorgen een opvallende melding: een kudde van zo'n vijftig schapen was aan de wandel gegaan. De dieren waren uit hun...
+- [Breda introduceert eerste rookvrije park: 'Sociale norm aanpassen'](https://nos.nl/l/2600883)
+  > De gemeente Breda ontwikkelt een nieuw park waarin het verboden wordt om te roken. Het Seeligpark, op het terrein van de voormalige Seeligkazerne,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Spekglad in noorden: ‘Er viel ook onderkoelde regen, wat zelfs gestrooide wegen glad maakt’](https://www.ad.nl/binnenland/spekglad-in-noorden-er-viel-ook-onderkoelde-regen-wat-zelfs-gestrooide-wegen-glad-maakt~a0ab514c/)
-  > Volgens meteoroloog Matthijs van der Linden van Weerplaza nemen automobilisten een behoorlijk risico als ze woensdagochtend in het noordoosten de weg...
-- [Flitsmeister kondigt plots aan te stoppen, lijkt op marketingstunt](https://www.ad.nl/auto/flitsmeister-kondigt-plots-aan-te-stoppen-lijkt-op-marketingstunt~a2a869c2/)
-  > Paniek onder gebruikers van de populaire verkeersapp Flitsmeister woensdagochtend. De gebruikers kregen in de app en via de mail een korte boodschap...
-- [Concurrentie wijst naar illegaal motortrucje Mercedes en Red Bull, Toto Wolff haalt uit: ‘Krijg je eigen zaakjes op orde’](https://www.ad.nl/formule-1/concurrentie-wijst-naar-illegaal-motortrucje-mercedes-en-red-bull-toto-wolff-haalt-uit-krijg-je-eigen-zaakjes-op-orde~a16d4ad3/)
-  > Mercedes en Red Bull worden met een Formule 1-vergrootglas bekeken door de concurrentie. De twee renstallen zouden een trucje gevonden hebben en...
-- [Ex-man van Jill Biden opgepakt voor moord op echtgenote](https://www.ad.nl/buitenland/ex-man-van-jill-biden-opgepakt-voor-moord-op-echtgenote~a98358bd/)
-  > De ex-man van de voormalige Amerikaanse first lady Jill Biden wordt verdacht van de moord op zijn echtgenote. De 77-jarige William Stevenson is...
-- [Vergeet de families Bauer, Meiland en Van der Valk: hier zijn... De Bogaartjes!](https://www.ad.nl/leidschendam-voorburg/vergeet-de-families-bauer-meiland-en-van-der-valk-hier-zijn-de-bogaartjes~a772a945/)
-  > Vergeet Château Meiland, De Bauers, De Augurkenkoning en Massa is Kassa: in De Bogaartjes komt alles uit voorgaande realityseries samen. Een jaar...
+- [TransferTalk | Jeugdclub Messi voert gesprekken over terugkeer, Volendam Indonesisch international kwijt](https://www.ad.nl/voetbal/transfertalk-jeugdclub-messi-voert-gesprekken-over-terugkeer-volendam-indonesisch-international-kwijt~a79d4309/)
+  > De transfermarkt in Nederland en de grootste competities is gesloten. Er zijn nog slechts een paar landen waar spelers naartoe kunnen. Ook zullen er...
+- [Onze verslaggevers pakken de glazen bol erbij: welke Nederlanders veroveren olympisch goud in Milaan?](https://www.ad.nl/olympische-spelen/onze-verslaggevers-pakken-de-glazen-bol-erbij-welke-nederlanders-veroveren-olympisch-goud-in-milaan~a26a376b/)
+  > De 25ste Olympische Winterspelen beginnen komend weekend. Nederland gaat vooral op het ijs op jacht naar goud. Hoe succesvol zal deze editie worden?...
+- [Lolbroeken van meubelzaak stunten op rode bank tijdens code rood: ‘Onze meubels glijden de deur uit!’](https://www.ad.nl/binnenland/lolbroeken-van-meubelzaak-stunten-op-rode-bank-tijdens-code-rood-onze-meubels-glijden-de-deur-uit~a6eb2ffd/)
+  > De prijs voor originaliteit gaat zonder twijfel naar een meubelzaak in het Groningse dorpje Uithuizermeeden. Terwijl code rood het noorden van het...
+- [UMCG schrapt honderden afspraken om code rood: ‘We willen bereikbaar zijn voor nood’](https://www.ad.nl/binnenland/umcg-schrapt-honderden-afspraken-om-code-rood-we-willen-bereikbaar-zijn-voor-nood~a8fae04f/)
+  > Het UMCG in Groningen heeft besloten de rest van de woensdag alle geplande behandelingen, afspraken en operaties te schrappen. Dat bevestigt een...
+- [Rico Verhoeven tegen Usyk? Saoedische miljardair én ‘Team Rico’ zien het zitten, MMA blijft ook een optie](https://www.ad.nl/vechtsport/rico-verhoeven-tegen-usyk-saoedische-miljardair-en-team-rico-zien-het-zitten-mma-blijft-ook-een-optie~afd18464/)
+  > Terwijl zaterdag om de erfenis van Rico Verhoeven wordt gestreden bij kickboksorganisatie Glory, wacht The King of Kickboxing zelf geduldig op zíjn...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Een hippieboerderij in Nieuwleusen](https://fd.nl/samenleving/1585286/een-hippieboerderij-in-nieuwleusen)
-  > Bij het tuinhuis met Che Guevara-vlag: ‘In de zomer zitten we hier graag. Wierook, waterpijp en plaatjes draaien uit onze tijd.’
-- [Vermogensbeheerder Amundi zegt beleggingen in VS af te bouwen](https://fd.nl/bedrijfsleven/1585676/vermogensbeheerder-amundi-zegt-beleggingen-in-vs-af-te-bouwen)
-  > Valérie Baudson van het Franse concern, dat €2400 mrd aan vermogen beheert, ziet dat de dollar verder verzwakt als het economisch beleid ongewijzigd...
-- [TotalEnergies wil met nieuwe partner meer laadpalen in Nederland neerzetten](https://fd.nl/bedrijfsleven/1585454/totalenergies-wil-met-nieuwe-partner-meer-laadpalen-in-nederland-neerzetten)
-  > Het Franse bedrijf, de derde speler in de Nederlandse markt, wil het aantal publieke laadpalen in vijf jaar verdubbelen.
-- [TomTom verwacht verdere omzetdaling in 2026](https://fd.nl/bedrijfsleven/1585596/tomtom-boekt-lagere-jaaromzet-maar-positief-operationeel-resultaat)
-  > De Amsterdamse kaartenmaker heeft in 2025 de omzet met 3% zien dalen, tot €555 mln. Het bedrijf voorziet voor dit jaar een verdere daling, maar wel...
-- [Inflatie in januari minder hard gestegen met 2,4%](https://fd.nl/economie/1585595/inflatie-in-januari-minder-hard-gestegen-met-2-4)
-  > Volgens een snelle raming van het CBS daalden de prijzen voor consumenten in januari met 0,7% ten opzichte van de maand ervoor.
+- [Politiek legt digitale ava kostbare beperking op](https://fd.nl/opinie/1585518/politiek-legt-digitale-ava-kostbare-beperking-op)
+  > De Tweede Kamer maakt sinds kort volledig digitale ava’s voor bv’s en nv’s mogelijk, met één uitzondering: beursfondsen die hun jaarrekening...
+- [Buiten de spotlights werken Nederlandse bedrijven aan de Winterspelen](https://fd.nl/bedrijfsleven/1584952/buiten-de-spotlights-werken-nederlandse-bedrijven-aan-de-winterspelen)
+  > Van de verlichting op de skipiste tot de valkussens om de schaatsbaan: verschillende Nederlandse bedrijven werken achter de schermen van de...
+- [Handelsbanken ziet winst en inkomsten voor tweede jaar op rij dalen](https://fd.nl/financiele-markten/1585681/handelsbanken-ziet-winst-en-inkomsten-voor-tweede-jaar-op-rij-dalen)
+  > Onderliggend zag de bank groei op alle domeinen waarbinnen hij actief is. De kredietverlening nam 9% toe.
+- [Gedeeltelijke shutdown in de VS voorbij, financiering ICE met twee weken verlengd](https://fd.nl/politiek/1585679/gedeeltelijke-shutdown-in-de-vs-voorbij-financiering-ice-met-twee-weken-verlengd)
+  > De overheid lag sinds het afgelopen weekend stil vanwege het uitblijven van een akkoord tussen Democraten en Republikeinen.
+- [Zwitserse bank UBS ziet nettowinst stijgen](https://fd.nl/bedrijfsleven/1585677/zwitserse-bank-ubs-ziet-nettowinst-stijgen)
+  > De nettowinst steeg met 56% ten opzichte van een jaar eerder en bedroeg $1,2 mrd tegenover door analisten verwachtte $967 mln.
 
 ### Meest gelezen
 
