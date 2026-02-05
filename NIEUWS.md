@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-02-2026 om 21:04*
+*Laatst bijgewerkt: 05-02-2026 om 23:00*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [FVD in zeker drie gemeenten geboycot vanwege rechtsextremistische kandidaten](https://nos.nl/l/2601107)
+  > In zeker drie gemeenten zeggen partijen de lokale fractie van Forum voor Democratie (FVD) te boycotten. Reden is de aanwezigheid van kandidaten op de...
+- [Internationale luchthaven Berlijn voorlopig dicht vanwege ijzel](https://nos.nl/l/2601101)
+  > De internationale luchthaven van Berlijn (BER) is voor onbepaalde tijd gesloten vanwege ijzel. Starten en landen is op het moment niet mogelijk, laat...
 - [Kersenbloesemfestival aan voet Mount Fuji ten onder aan massatoerisme](https://nos.nl/l/2601094)
   > Het bestuur van de Japanse stad Fujiyoshida heeft een streep gezet door het jaarlijkse Kersenbloesemfestival. Op het festival komen elk jaar 200.000...
 - [Meer dan 1100 flats in Kyiv niet meer te verwarmen na Russische aanval](https://nos.nl/l/2601092)
   > Bewoners van meer dan 1100 woonblokken in de Oekraïense hoofdstad Kyiv zitten de rest van de winter waarschijnlijk zonder verwarming vanwege de...
 - [Italië aan de vooravond van een gigantische olympische veiligheidsoperatie](https://nos.nl/l/2601090)
   > De Olympische Spelen in Italië worden morgen geopend, en diezelfde dag wordt al de finale gespeeld. Althans, voor de organisatie. De...
-- [Kinderopvangbranche: wees terughoudend met speelzand vanwege mogelijke asbest](https://nos.nl/l/2601087)
-  > Brancheorganisatie Kinderopvang adviseert haar leden om sommige varianten van speelgoedzand voorlopig niet te gebruiken. Dat schrijft ze op haar...
-- [Tienduizenden Marokkanen geëvacueerd vanwege noodweer, ook problemen in Spanje en Portugal](https://nos.nl/l/2601086)
-  > Marokko heeft de evacuatie gelast van meer dan 143.000 mensen in het noordwesten van het land in verband met noodweer. Het ministerie van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Deze actie van Klaas uit Winter vol liefde viel me toch een beetje tegen](https://www.ad.nl/show/deze-actie-van-klaas-uit-winter-vol-liefde-viel-me-toch-een-beetje-tegen~a2e2a1f1/)
-  > Dit had ik niet verwacht. Althans, niet van déze kandidaat uit Winter vol liefde. Maar het gebeurde wel en ik kon niet anders dan toch een beetje...
-- [LIVE Premier League darts | Gian van Veen én Michael van Gerwen naar halve finale op eerste avond in Newcastle](https://www.ad.nl/darts/live-premier-league-darts-gian-van-veen-en-michael-van-gerwen-naar-halve-finale-op-eerste-avond-in-newcastle~a4d79ac3/)
-  > Gian van Veen heeft een droomdebuut beleefd bij zijn eerste Premier League-deelname. In een herhaling van de WK-finale tegen Luke Littler won de...
-- [Jutta Leerdam krijgt eigen olympische pin van TeamNL, met hond van Jake Paul: ‘Dit is zo leuk’](https://www.ad.nl/olympische-spelen/jutta-leerdam-krijgt-eigen-olympische-pin-van-teamnl-met-hond-van-jake-paul-dit-is-zo-leuk~a7d6003d1/)
-  > Altijd een dingetje tijdens de Olympische Spelen: de ruilhandel in olympische pins. Team NL ontwierp er een speciaal voor Jutta Leerdam. ,,Jake gaat...
-- [Volksfeest in Velsen-Zuid: Telstar verslaat bekerwinnaar Go Ahead en gaat voor tweede keer naar halve finale](https://www.ad.nl/voetbal/volksfeest-in-velsen-zuid-telstar-verslaat-bekerwinnaar-go-ahead-en-gaat-voor-tweede-keer-naar-halve-finale~a385dfce/)
-  > Telstar heeft voor het eerst sinds het seizoen 1991/92 de halve finale van de Eurojackpot KNVB-beker bereikt. De club uit Velsen-Zuid versloeg in een...
-- [Bad Bunny wil ‘groot feest’ maken van halftimeshow](https://www.ad.nl/show/bad-bunny-wil-groot-feest-maken-van-halftimeshow~a8f4586e/)
-  > Bad Bunny wil van zijn halftimeshow tijdens de Super Bowl een ‘groot feest’ maken. De Puerto Ricaanse artiest verzekert dat kijkers ‘geen Spaans...
+- [Michael van Gerwen grijpt meteen koppositie in Premier League: dit is de stand](https://www.ad.nl/darts/premier-league-speelschema-programma-uitslagen-stand~a9ae7647/)
+  > De Premier League Darts is donderdag van start gegaan. In Newcastle revancheerde Gian van Veen zich na de verloren WK-finale tegen Luke Littler, maar...
+- [Chef parlement Venezuela vraagt vergeving voor misdaden van staat, het tijdperk van ‘Chavismo’ is voorbij’](https://www.ad.nl/buitenland/chef-parlement-venezuela-vraagt-vergeving-voor-misdaden-van-staat-het-tijdperk-van-chavismo-is-voorbij~aed1e6ea8/)
+  > De voorzitter van het Venezolaanse parlement, Jorge Rodríguez, heeft om vergeving gevraagd voor misdaden die de staat heeft gepleegd. „We vragen...
+- [Michael van Gerwen wint Nederlandse finale in Newcastle: Gian van Veen grijpt naast ultiem droomdebuut](https://www.ad.nl/darts/michael-van-gerwen-wint-nederlandse-finale-in-newcastle-gian-van-veen-grijpt-naast-ultiem-droomdebuut~a4d79ac3/)
+  > Michael van Gerwen heeft iets geflikt wat hem in heel 2025 niet lukte: een Premier League-avond winnen. Nota bene in een finale tegen landgenoot én...
+- [‘Niet zo sociale’ Beune kruipt uit haar schulp, 26 atleten mee naar openingsceremonie](https://www.ad.nl/olympische-spelen/niet-zo-sociale-beune-kruipt-uit-haar-schulp-26-atleten-mee-naar-openingsceremonie~aa000d15/)
+  > De Olympische Winterspelen van Milaan Cortina staan voor de deur: vrijdagavond is de openingsceremonie in San Siro. Nederland gaat vanaf dan op jacht...
+- [Fulham blijft in de markt voor PSV-spits Pepi, Galatasaray neemt verdediger over van Bayern](https://www.ad.nl/voetbal/fulham-blijft-in-de-markt-voor-psv-spits-pepi-galatasaray-neemt-verdediger-over-van-bayern~a79d4309/)
+  > De transfermarkt in Nederland en de grootste competities is gesloten. Er zijn nog slechts een paar landen waar spelers naartoe kunnen. Ook zullen er...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Weer een off-day op Wall Street](https://fd.nl/financiele-markten/1585903/weer-een-off-day-op-wall-street)
+  > De toonaangevende indices lieten stevige koersdalingen zien. Ook de bitcoin ging verder omlaag, tot $63.800.
 - [BNP Paribas profiteert op thuismarkt Frankrijk](https://fd.nl/bedrijfsleven/1585763/bnp-paribas-profiteert-op-thuismarkt-frankrijk)
   > Onroerend goed herstelde, minder bedrijven gingen failliet en de handelsdesks voor aandelen en obligaties hadden ook een goed jaar.
 - [Argentinië kondigt handelsdeal met VS aan](https://fd.nl/economie/1585762/argentinie-kondigt-handelsdeal-met-vs-aan)
@@ -54,8 +56,6 @@
   > ‘Wij zullen juridische actie ondernemen om onze patiënten en ons intellectueel eigendom te beschermen.’
 - [Meer aanvragen werkloosheidsuitkering in de VS](https://fd.nl/economie/1585836/meer-aanvragen-werkloosheidsuitkering-in-de-vs)
   > Het aantal Amerikaanse aanvragen voor een werkloosheidsuitkering is in de laatste week van januari gestegen.
-- [Sligro moet klanten zien te veroveren op concurrentie in volgroeide markt](https://fd.nl/bedrijfsleven/1585758/sligro-moet-klanten-zien-te-veroveren-op-concurrentie-in-volgroeide-markt)
-  > De groothandel presenteert betere resultaten over 2025 dan analisten hadden verwacht.
 
 ### Meest gelezen
 
