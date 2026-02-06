@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-02-2026 om 08:00*
+*Laatst bijgewerkt: 06-02-2026 om 11:08*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [FBI onderzoekt losgeldbrieven voor ontvoerde moeder NBC-presentator](https://nos.nl/l/2601132)
-  > De FBI onderzoekt meerdere losgeldbrieven die zijn binnengekomen na de ontvoering van Nancy Guthrie, de moeder van een presentator van de Amerikaanse...
-- [Internationale luchthaven Berlijn blijft vandaag gesloten vanwege ijzel](https://nos.nl/l/2601127)
-  > De internationale luchthaven van Berlijn (BER) blijft vandaag de hele dag gesloten vanwege ijzel. Het is niet bekend wanneer het vliegveld weer...
-- [Meer studenten bleven na invoering leenstelsel gehele studententijd thuis wonen](https://nos.nl/l/2601121)
-  > Studenten aan hogescholen en universiteiten bleven na de invoering van het leenstelsel in 2015 vaker tot hun afstuderen thuis wonen, of gingen pas...
-- [Wekdienst 6/2: Openingsceremonie Olympische Spelen • Gesprekken VS en Iran na spanningen](https://nos.nl/l/2601120)
-  > Goedemorgen! Vandaag beginnen de Olympische Winterspelen in Milaan en in Oman spreken delegaties van de VS en Iran met elkaar naar aanleiding van...
-- [Nieuw kabinet wil uitkeringen voor hoge inkomens fors verlagen](https://nos.nl/l/2601116)
-  > Uitkeringen voor mensen die veel hebben verdiend gaan flink omlaag, als een plan daarvoor van de formerende partijen D66, CDA en VVD doorgaat. Voor...
+- [Luitenant-generaal Russische militaire inlichtingendienst neergeschoten in Moskou](https://nos.nl/l/2601164)
+  > In Moskou is een luitenant-generaal van de Russische militaire inlichtingendienst GROe neergeschoten. Het Russische Openbaar Ministerie meldt dat...
+- [BBC: online volop handel in seksvideo's van verborgen camera's in hotels China](https://nos.nl/l/2601162)
+  > Online gaan duizenden recente video's rond van verborgen camera's in Chinese hotelkamers. De BBC ontdekte dat daarop hotelgasten zijn te zien die...
+- [DNB: steek extra defensiegeld niet in tanks of munitie](https://nos.nl/l/2601158)
+  > De 19 miljard euro die Nederland elk jaar extra aan defensie wil uitgeven, kan beter niet worden gestoken in traditionele onderdelen voor het leger....
+- [Trump lanceert medicijnensite onder eigen naam: 'Verpersoonlijking van macht'](https://nos.nl/l/2601156)
+  > De regering-Trump heeft in de VS een website gelanceerd waarmee Amerikanen volgens de president korting kunnen krijgen op medicijnen die via een...
+- [Honderden mensen zonder verwarming na gaslek in Baambrugge](https://nos.nl/l/2601151)
+  > Door een gaslek zitten meer dan 500 woningen in Baambrugge tijdelijk zonder gas, meldt de Veiligheidsregio Utrecht. Het lek ontstond vannacht in een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De lente hangt voorzichtig in de lucht: kwik schiet zaterdag omhoog](https://www.ad.nl/binnenland/de-lente-hangt-voorzichtig-in-de-lucht-kwik-schiet-zaterdag-omhoog~a4131265/)
-  > Wie vrijdagochtend in het noorden de weg op moet, is gewaarschuwd: het kan verraderlijk glad zijn door ijzel. Maar niet getreurd. De grote...
-- [We willen niet meer naar de VS: reizigers maken melding van lege vliegtuigen](https://www.ad.nl/binnenland/we-willen-niet-meer-naar-de-vs-reizigers-maken-melding-van-lege-vliegtuigen~ae22effb/)
-  > Amerika is ook voor vliegtuigpassagiers niet langer het beloofde land. Passagiers maken melding van lege vliegtuigen. Voor juli zijn er vanuit...
-- [Piloten vergissen zich in startbaan: 135 passagiers geëvacueerd na noodstop op Brussels Airport](https://www.ad.nl/buitenland/piloten-vergissen-zich-in-startbaan-135-passagiers-geevacueerd-na-noodstop-op-brussels-airport~a504dfc2/)
-  > Ruim honderd passagiers van Scandinavian Airlines kregen de schrik van hun leven toen hun vliegtuig op Brussels Airport donderdagavond per ongeluk de...
-- [Jutta Leerdam krijgt eigen olympische pin van TeamNL, met hond van Jake Paul: ‘Dit is zo leuk’](https://www.ad.nl/olympische-spelen/jutta-leerdam-krijgt-eigen-olympische-pin-van-teamnl-met-hond-van-jake-paul-dit-is-zo-leuk~a7d6003d1/)
-  > Altijd een dingetje tijdens de Olympische Spelen: de ruilhandel in olympische pins. Team NL ontwierp er een speciaal voor Jutta Leerdam. ,,Jake gaat...
-- [Bitcoin stijgt vandaag weer iets in waarde na flinke koersval deze week](https://www.ad.nl/economie/bitcoin-stijgt-vandaag-weer-iets-in-waarde-na-flinke-koersval-deze-week~a80992e9/)
-  > De bitcoin, ’s werelds grootste en bekendste digitale munt, veerde vrijdag wat op na kortstondig tot 60.000 dollar (ongeveer 50.850 euro) te zijn...
+- [Kremlin: Rusland en VS willen snel afsprakean maken voor nieuw kernwapenverdrag](https://www.ad.nl/buitenland/kremlin-rusland-en-vs-willen-snel-afsprakean-maken-voor-nieuw-kernwapenverdrag~af2b1f80/)
+  > De noodzaak om snel te gaan praten over nieuwe afspraken over kernwapenbeheersing staat voor zowel Rusland als de Verenigde Staten vast, zegt het...
+- [Europa bijt door: miljardenboete dreigt voor TikTok vanwege ‘verslavende functies’](https://www.ad.nl/tech/europa-bijt-door-miljardenboete-dreigt-voor-tiktok-vanwege-verslavende-functies~a9011c78/)
+  > Het ontwerp van TikTok is zo verslavend dat het in strijd is met de Europese regels. Daarbij gaat het bijvoorbeeld om functies als oneindig scrollen,...
+- [Advocaat spionageverdachte: ‘Ab had scharrelruimte nodig en mocht werken hoe en waar hij wilde’](https://www.ad.nl/binnenland/advocaat-spionageverdachte-ab-had-scharrelruimte-nodig-en-mocht-werken-hoe-en-waar-hij-wilde~a6e34797/)
+  > Hoe weet je of een staatsgeheim een staatsgeheim is, als je het bewuste document niet mag inzien? Alleen een ‘sticker’ op een map met het woord...
+- [Jonas Vingegaard stelt seizoenstart uit: Deen niet naar UAE Tour](https://www.ad.nl/wielrennen/jonas-vingegaard-stelt-seizoenstart-uit-deen-niet-naar-uae-tour~a7ba4e7e/)
+  > Jonas Vingegaard zal niet deelnemen aan de UAE Tour later deze maand (16-22 februari). Een recente valpartij tijdens de training, gevolgd door...
+- [Olympische kampioenen als supporter op weg naar Milaan: ‘Ik ben blij dat het niet meer hoeft’](https://www.ad.nl/olympische-spelen/olympische-kampioenen-als-supporter-op-weg-naar-milaan-ik-ben-blij-dat-het-niet-meer-hoeft~a1e60fb3/)
+  > Tientallen Nederlandse olympische medaillewinnaars vertrekken vandaag naar Milaan. Deze keer niet in spanning op jacht naar medailles, maar als...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Europese grondstoffenrace kan Duitse mijnbouwreus opnieuw tot leven wekken](https://fd.nl/bedrijfsleven/1584470/europese-grondstoffenrace-kan-duitse-mijnbouwreus-opnieuw-tot-leven-wekken)
-  > In het Ertsgebergte in Saksen dolf mijnbouwer Wismut tijdenlang uranium. Na de Duitse hereniging verlegde het bedrijf de activiteiten, maar de...
-- [Website TrumpRx biedt Amerikanen toegang tot afgeprijsde medicijnen](https://fd.nl/bedrijfsleven/1585846/website-trumprx-biedt-amerikanen-toegang-tot-afgeprijsde-medicijnen)
-  > Donderdag ging de website TrumpRx live. Op dit platform zien patiënten welke medicijnen zij bij hun apotheken kunnen kopen tegen door president Trump...
-- [Een boerderij aan de Dokkumer Ee en artistieke snowboard](https://fd.nl/samenleving/1585457/een-boerderij-aan-de-dokkumer-ee-en-artistieke-snowboard)
-  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
-- [Huishoudens consumeerden in december 0,8% meer](https://fd.nl/economie/1585906/huishoudens-consumeerden-in-december-0-8-meer)
-  > Consumenten kochten 2,1% meer voedings- en genotmiddelen dan in december 2024. Verder hebben ze 0,4% meer duurzame goederen aangeschaft,
-- [Amazon gaat $200 mrd investeren, aandeel zakt hard weg](https://fd.nl/bedrijfsleven/1585905/amazon-gaat-200-mrd-investeren-aandeel-zakt-hard-weg)
-  > Het aandeel Amazon zakte donderdag nabeurs 10% nadat het bedrijf aankondigde de investeringen in AI-infrastructuur flink te gaan verhogen.
+- [Geplaagd Deens windbedrijf Ørsted wil weer dividend uit gaan keren](https://fd.nl/bedrijfsleven/1585852/geplaagd-deens-windbedrijf-rsted-wil-weer-dividend-uit-gaan-keren)
+  > Het afgelopen jaar zat het windaverse beleid van Donald Trump het Deense bedrijf flink dwars.
+- [Slechts 22% van de jonge advocaten droomt van een carrière als partner](https://fd.nl/bedrijfsleven/1585683/slechts-22-van-de-jonge-advocaten-droomt-van-een-carriere-als-partner)
+  > Een groot deel van de jonge advocaten twijfelt over een rol als partner, of wijst zo’n traditionele carrière binnen de advocatuur zelfs op voorhand...
+- [Weg uit de VS? Voor veel pensioen­fondsen een ‘ondenkbaar’ scenario](https://fd.nl/economie/1585527/weg-uit-de-vs-voor-veel-pensioenfondsen-een-ondenkbaar-scenario)
+  > Ook bij pensioenfondsen ligt de vraag op tafel hoe ze loskomen van de VS. Vast staat dat het een complex en kostbaar proces is, gezien de...
+- [Bulgaarse bedrijven én beleggers juichen komst van euro toe](https://fd.nl/samenleving/1584131/bulgaarse-bedrijven-en-beleggers-juichen-komst-van-euro-toe)
+  > De conversiekosten van euro’s naar leva zadelden het Bulgaarse bedrijfsleven op met een jaarlijkse last van meer dan €500 mln.
+- [Een minderheidskabinet kan een zegen zijn, maar vraagt om eigen verantwoordelijkheid](https://fd.nl/opinie/1585491/een-minderheidskabinet-kan-een-zegen-zijn)
+  > De constante zoektocht naar meerderheden waar het aanstaande kabinet zich straks in bevindt is eigenlijk een must voor elke regering. Het is de kern...
 
 ### Meest gelezen
 
