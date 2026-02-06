@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-02-2026 om 14:28*
+*Laatst bijgewerkt: 06-02-2026 om 17:29*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Duitse jongen van 12 verdacht van doodsteken 14-jarige jongen](https://nos.nl/l/2601188)
-  > De Duitse politie heeft een jongen van 12 aangehouden op verdenking van het doodsteken van een 14-jarige jongen. Het lichaam van Yosef werd vorige...
-- [Provincie Noord-Holland opent meldpunt voor onveilige plekken](https://nos.nl/l/2601175)
-  > De provincie Noord-Holland heeft een online meldpunt voor onveilige plekken geopend. Inwoners kunnen hier aangeven waar zij zich onveilig voelen.
-   ...
-- [Europese Commissie vindt TikTok ongezond verslavend, miljardenboete dreigt](https://nos.nl/l/2601172)
-  > TikTok is zo verslavend dat het daarmee de Europese regels overtreedt. Tot die voorlopige conclusie komt de Europese Commissie. Het onderzoek naar...
-- [Zeker 31 doden bij aanslag op moskee in Pakistaanse hoofdstad Islamabad](https://nos.nl/l/2601169)
-  > Bij een zelfmoordaanslag in een moskee in de Pakistaanse hoofdstad Islamabad zijn zeker 31 doden gevallen. Daarnaast raakten er zo'n 170 mensen...
-- [Luitenant-generaal Russische militaire inlichtingendienst neergeschoten in Moskou](https://nos.nl/l/2601164)
-  > In Moskou is een luitenant-generaal van de Russische militaire inlichtingendienst GROe neergeschoten. Het Russische Openbaar Ministerie meldt dat...
+- [Hoe de openingsceremonie van de Spelen een catwalk is geworden](https://nos.nl/l/2601217)
+  > Miljoenen mensen zullen de komende weken de Olympische Winterspelen volgen. De ogen zullen niet alleen gericht zijn op de prestaties van de...
+- [Datalek bij Autoriteit Persoonsgegevens en Raad voor de rechtspraak](https://nos.nl/l/2601216)
+  > Gegevens van medewerkers van de Autoriteit Persoonsgegevens (AP) en Raad voor de rechtspraak (Rvdr) zijn gelekt. Dat schrijven staatssecretarissen...
+- [Hoog overleg tussen VS en Iran voorbij: 'Bezig het wantrouwen weg te nemen'](https://nos.nl/l/2601215)
+  > In Oman hebben de VS en Iran hun eerste overleg in lange tijd over het Iraanse atoomprogramma beëindigd. De Iraanse minister van Buitenlandse Zaken...
+- [Tientallen verwaarloosde koeien in beslag genomen bij veehouder in Noord-Holland](https://nos.nl/l/2601214)
+  > Bij een veehouder in Noord-Holland zijn afgelopen dinsdag 38 koeien in beslag genomen. Volgens de Nederlandse Voedsel- en Warenautoriteit (NVWA)...
+- [Danone roept ook in Nederland baby- en kindervoeding terug](https://nos.nl/l/2601210)
+  > Het Franse voedingsmiddelenbedrijf Danone roept ook in Nederland baby- en kindervoeding terug omdat er mogelijk de giftige stof cereuliede in zit....
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Protest in Milaan tegen aanwezigheid ICE bij Olympische Spelen](https://www.ad.nl/buitenland/protest-in-milaan-tegen-aanwezigheid-ice-bij-olympische-spelen~a0a57f81/)
-  > In Milaan zijn ongeveer duizend mensen de straat opgegaan om te protesteren tegen de aanwezigheid van de Amerikaanse immigratiedienst ICE tijdens de...
-- [Lola Young kondigt eerste solo-optreden aan na tijdelijke stop](https://www.ad.nl/show/lola-young-kondigt-eerste-solo-optreden-aan-na-tijdelijke-stop~a59f8998/)
-  > Lola Young kondigt haar eerste soloshow aan sinds ze in september vorig jaar tijdelijk stopte met optreden. ‘Live optreden betekent alles voor me, en...
-- [Van den Brink op asiel, Vijlbrief wordt minister van Sociale Zaken: dit zijn de kandidaten van kabinet-Jetten](https://www.ad.nl/politiek/van-den-brink-op-asiel-vijlbrief-wordt-minister-van-sociale-zaken-dit-zijn-de-kandidaten-van-kabinet-jetten~a2495191/)
-  > Het nieuwe kabinet-Jetten krijgt langzaam vorm. Informateur Rianne Letschert krijgt een plek in het kabinet als minister van Onderwijs, Hans...
-- [Leuk dat schaatsen, maar dit wil je óók zien op de Spelen in Milaan en Cortina](https://www.ad.nl/olympische-spelen/leuk-dat-schaatsen-maar-dit-wil-je-ook-zien-op-de-spelen-in-milaan-en-cortina~aaa14af1/)
-  > Uiteraard focussen wij in Nederland vooral op schaatsen en shorttrack, maar de Winterspelen in Milaan en Cortina bieden zoveel meer moois. Deze site...
-- [Brenet verkast naar Turkije, Fulham blijft in de markt voor PSV-spits Pepi](https://www.ad.nl/voetbal/brenet-verkast-naar-turkije-fulham-blijft-in-de-markt-voor-psv-spits-pepi~a79d4309/)
-  > De transfermarkt in Nederland en de grootste competities is gesloten. Er zijn nog slechts een paar landen waar spelers naartoe kunnen. Ook zullen er...
+- [De goedkoopste auto van Nederland is verbeterd: prijs vanaf 18.000 euro](https://www.ad.nl/auto/de-goedkoopste-auto-van-nederland-is-verbeterd-prijs-vanaf-18-000-euro~abdd02ef/)
+  > Gezien de stevige concurrentie die de goedkoopste auto van Nederland er sinds zijn introductie in 2021 bij heeft gekregen, is het niet gek dat Dacia...
+- [Hoewel Trump nu aan de knoppen zit, kan hij het niet verdragen dat Obama wereldwijd populairder was](https://www.ad.nl/binnenland/hoewel-trump-nu-aan-de-knoppen-zit-kan-hij-het-niet-verdragen-dat-obama-wereldwijd-populairder-was~a8ba0fa9/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [Hoe Van Persie als trainer in dezelfde val loopt als Seedorf, Van Nistelrooij, Gullit en Van Basten](https://www.ad.nl/voetbal/hoe-van-persie-als-trainer-in-dezelfde-val-loopt-als-seedorf-van-nistelrooij-gullit-en-van-basten~afacc4d5/)
+  > Robin van Persie is de volgende in een steeds langere rij: wéér een voormalige topvoetballer die worstelt als hoofdtrainer. Is het anno 2026...
+- [Openingsceremonie van Spelen breekt met traditie, Bos en Van ‘t Wout dragen vlag namens Oranje](https://www.ad.nl/olympische-spelen/openingsceremonie-van-spelen-breekt-met-traditie-bos-en-van-t-wout-dragen-vlag-namens-oranje~a6d5c172/)
+  > De Olympische Winterspelen worden vanavond officieel geopend. In plaats van één show op één plek, zijn er voor het eerst in de historie gelijktijdige...
+- [Vriendin van Epstein duikt op in dossiers: ‘Puurste man die ik ooit kende’](https://www.ad.nl/buitenland/vriendin-van-epstein-duikt-op-in-dossiers-puurste-man-die-ik-ooit-kende~a6b1bccc/)
+  > De wegens medeplichtigheid aan zijn misbruik veroordeelde Ghislaine Maxwell kenden we al als de boze fee rond Jeffrey Epstein. Maar de laatste golf...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Delfts blauw-producent koopt kaasschaafmaker Boska](https://fd.nl/bedrijfsleven/1585863/delfts-blauw-producent-koopt-kaasschaafmaker-boska)
-  > Porceleyne Fles neemt de producent van kaasschaven over, die vier generaties in handen was van de familie Bos.
-- [Hans Borstlap: ‘Plannen van coalitie rond sociale zekerheid moedig en hard nodig’](https://fd.nl/samenleving/1585747/architect-hervorming-arbeidsmarkt-verwelkomt-coalitieplannen)
-  > De arbeidsmarktplannen van de nieuwe coalitie worden bedolven onder de kritiek. Ten onrechte, zegt oud-topambtenaar Hans Borstlap.
-- [Tabaksconcern Philip Morris boekt recordomzet van $40,7 mrd](https://fd.nl/bedrijfsleven/1585861/tabaksconcern-philip-morris-boekt-recordomzet-van-40-7-mrd)
-  > Nu de verkoop van de traditionele sigaret afneemt, zet het bedrijf volop in op ‘rookvrije’ producten als de nicotinezakjes en e-sigaretten.
-- [Ruzie rond tennisclub vlak bij Zuidas is feestbanket voor advocaten](https://fd.nl/samenleving/1585917/ruzie-rond-tennisclub-vlakbij-zuidas-is-feestbanket-voor-advocaten)
-  > Commissaris zijn bij een tennisclub, dat doe je onbezoldigd, uit liefde voor de sport en de club. Maar toen ontstond er een machtsstrijd rond een...
-- [Domodedovo: hoe je een succesvolle luchthaven sloopt](https://fd.nl/politiek/1585788/domodedovo-hoe-je-een-succesvolle-luchthaven-sloopt)
-  > Het Moskouse vliegveld was ooit berucht: een betonnen les in post-Sovjet-bureaucratie. De privatisering deed wonderen, maar nu is Domodedovo terug...
+- [De beursweek ging van crash naar crash](https://fd.nl/financiele-markten/1585919/de-beursweek-ging-van-crash-naar-crash)
+  > Maandag edelmetalen, dinsdag en woensdag data en software en daarna de bitcoin. De rest van de week bleven de markten behoorlijk volatiel.
+- [Booking schrapt hotels van ‘corrupte’ Iraanse bankier met Nederlandse link](https://fd.nl/bedrijfsleven/1585911/booking-schrapt-hotels-van-corrupte-iraanse-bankier-met-nederlandse-link)
+  > Ali Ansari bezit via een Nederlands bedrijf het Hilton-hotel in het centrum van Frankfurt.
+- [Ondernemingsraad Tata Steel bereidt gang naar rechter voor vanwege reorganisatie](https://fd.nl/bedrijfsleven/1585862/ondernemingsraad-tata-steel-bereidt-gang-naar-rechter-voor-vanwege-reorganisatie)
+  > Het inspraakorgaan botst met de directie over een reorganisatie van de onderzoek- en kwaliteitsafdelingen. Daarbij verdwijnt een kwart van de...
+- [DNB pleegde bedrog bij onteigening Conservatrix, oordeelt rechter](https://fd.nl/financiele-markten/1585920/dnb-pleegde-bedrog-bij-onteigening-conservatrix-oordeelt-rechter)
+  > De uitspraak geeft een nieuwe wending aan de zich al jaren voortslepende strijd van de voormalige eigenaren van de levensverzekeraar tegen de staat...
+- [Feestelijke lancering FD Talenten 2026](https://fd.nl/samenleving/1585918/feestelijke-lancering-fd-talenten-2026)
+  > Ontwerper en kunstenaar Sabine Marcelis heeft donderdag in museum Fenix, in Rotterdam, het eerste exemplaar van de Talentenspecial 2026 in ontvangst...
 
 ### Meest gelezen
 
