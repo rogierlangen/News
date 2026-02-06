@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-02-2026 om 17:29*
+*Laatst bijgewerkt: 06-02-2026 om 19:51*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Hoe de openingsceremonie van de Spelen een catwalk is geworden](https://nos.nl/l/2601217)
-  > Miljoenen mensen zullen de komende weken de Olympische Winterspelen volgen. De ogen zullen niet alleen gericht zijn op de prestaties van de...
-- [Datalek bij Autoriteit Persoonsgegevens en Raad voor de rechtspraak](https://nos.nl/l/2601216)
-  > Gegevens van medewerkers van de Autoriteit Persoonsgegevens (AP) en Raad voor de rechtspraak (Rvdr) zijn gelekt. Dat schrijven staatssecretarissen...
-- [Hoog overleg tussen VS en Iran voorbij: 'Bezig het wantrouwen weg te nemen'](https://nos.nl/l/2601215)
-  > In Oman hebben de VS en Iran hun eerste overleg in lange tijd over het Iraanse atoomprogramma beëindigd. De Iraanse minister van Buitenlandse Zaken...
-- [Tientallen verwaarloosde koeien in beslag genomen bij veehouder in Noord-Holland](https://nos.nl/l/2601214)
-  > Bij een veehouder in Noord-Holland zijn afgelopen dinsdag 38 koeien in beslag genomen. Volgens de Nederlandse Voedsel- en Warenautoriteit (NVWA)...
-- [Danone roept ook in Nederland baby- en kindervoeding terug](https://nos.nl/l/2601210)
-  > Het Franse voedingsmiddelenbedrijf Danone roept ook in Nederland baby- en kindervoeding terug omdat er mogelijk de giftige stof cereuliede in zit....
+- [Politie sluit socialemedia-accounts na delen persoonsgegevens Iraniërs](https://nos.nl/l/2601234)
+  > De politie heeft drie socialemedia-accounts offline gehaald die veelvuldig persoonsgegevens deelden van mensen binnen de Iraanse gemeenschap in...
+- [Wat weten we over mogelijk asbest in speelzand? Vier vragen en antwoorden](https://nos.nl/l/2601232)
+  > Demissionair staatssecretaris Tielen (Jeugd, Preventie en Sport) wil de verkoop van speelzand voorlopig niet aan banden leggen. Het AD meldde...
+- [VS arresteert verdachte van aanval op consulaat Libië in 2012](https://nos.nl/l/2601231)
+  > De Verenigde Staten hebben een verdachte opgepakt van de dodelijke aanslag op het Amerikaanse consulaat in Benghazi in 2012. Dat heeft minister Bondi...
+- [Trump verwijdert door hem gedeelde video met Obama's als apen na kritiek](https://nos.nl/l/2601222)
+  > De Amerikaanse president Trump ligt onder vuur vanwege het delen van een video met racistische beelden. Daarop zijn oud-president Obama en diens...
+- [Politie doorzoekt woningen van in opspraak geraakte Britse politicus Mandelson](https://nos.nl/l/2601220)
+  > De Britse politie heeft twee woningen van Peter Mandelson doorzocht in verband met corruptieverdenkingen tegen hem. De voormalige Labour-minister en...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De goedkoopste auto van Nederland is verbeterd: prijs vanaf 18.000 euro](https://www.ad.nl/auto/de-goedkoopste-auto-van-nederland-is-verbeterd-prijs-vanaf-18-000-euro~abdd02ef/)
-  > Gezien de stevige concurrentie die de goedkoopste auto van Nederland er sinds zijn introductie in 2021 bij heeft gekregen, is het niet gek dat Dacia...
-- [Hoewel Trump nu aan de knoppen zit, kan hij het niet verdragen dat Obama wereldwijd populairder was](https://www.ad.nl/binnenland/hoewel-trump-nu-aan-de-knoppen-zit-kan-hij-het-niet-verdragen-dat-obama-wereldwijd-populairder-was~a8ba0fa9/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Hoe Van Persie als trainer in dezelfde val loopt als Seedorf, Van Nistelrooij, Gullit en Van Basten](https://www.ad.nl/voetbal/hoe-van-persie-als-trainer-in-dezelfde-val-loopt-als-seedorf-van-nistelrooij-gullit-en-van-basten~afacc4d5/)
-  > Robin van Persie is de volgende in een steeds langere rij: wéér een voormalige topvoetballer die worstelt als hoofdtrainer. Is het anno 2026...
-- [Openingsceremonie van Spelen breekt met traditie, Bos en Van ‘t Wout dragen vlag namens Oranje](https://www.ad.nl/olympische-spelen/openingsceremonie-van-spelen-breekt-met-traditie-bos-en-van-t-wout-dragen-vlag-namens-oranje~a6d5c172/)
-  > De Olympische Winterspelen worden vanavond officieel geopend. In plaats van één show op één plek, zijn er voor het eerst in de historie gelijktijdige...
-- [Vriendin van Epstein duikt op in dossiers: ‘Puurste man die ik ooit kende’](https://www.ad.nl/buitenland/vriendin-van-epstein-duikt-op-in-dossiers-puurste-man-die-ik-ooit-kende~a6b1bccc/)
-  > De wegens medeplichtigheid aan zijn misbruik veroordeelde Ghislaine Maxwell kenden we al als de boze fee rond Jeffrey Epstein. Maar de laatste golf...
+- [Lodrick (45) werd bij reddingsactie door tram geschept: ‘Móést gewoon mijn hond redden’](https://www.ad.nl/binnenland/lodrick-45-werd-bij-reddingsactie-door-tram-geschept-moest-gewoon-mijn-hond-redden~a2df9e5e/)
+  > Hij zag de tram op zijn hond afkomen. Hij moest iets doen. Lodrick Chester Boekhoudt (45) sprong voor de tram om Pluto en Naylah te redden, twee...
+- [LIVE eredivisie | Problemen voor NAC: thuisploeg met tien man en op achterstand tegen Excelsior](https://www.ad.nl/voetbal/live-eredivisie-problemen-voor-nac-thuisploeg-met-tien-man-en-op-achterstand-tegen-excelsior~a2ef5bc1/)
+  > NAC en Excelsior hebben alle punten hard nodig in strijd om lijfsbehoud. De Bredanaars staan zeventiende, Excelsior is de nummer dertien. Volg het...
+- [Cornervarianten helpen ADO Den Haag in Kerkrade, duel lag na vijftien seconden stil](https://www.ad.nl/voetbal/cornervarianten-helpen-ado-den-haag-in-kerkrade-duel-lag-na-vijftien-seconden-stil~acc893ea/)
+  > Vijftien tellen stonden op de klok en toen lag het duel tussen Roda JC en ADO Den Haag stil vanwege vuurwerk. Twintig minuten later werd er weer...
+- [Stroom ellendige berichten uit Iran niet bij te houden: ‘Pakhuizen vol lijken’](https://www.ad.nl/buitenland/stroom-ellendige-berichten-uit-iran-niet-bij-te-houden-pakhuizen-vol-lijken~adc452ca/)
+  > Pakhuizen vol dode lichamen, gewonden van wie de keel wordt doorgesneden en verkrachtingen van tienermeisjes. De gruwelbeelden uit Iran die...
+- [Negen (!) collega’s zwanger, drie net bevallen van kindje: babyboom bij verloskundigenpraktijk](https://www.ad.nl/goeree-overflakkee/negen-collegas-zwanger-drie-net-bevallen-van-kindje-babyboom-bij-verloskundigenpraktijk~a62697e9/)
+  > Waar dagelijks aanstaande ouders en hun baby’s centraal staan, is het nu ook achter de schermen raak. Bij verloskundig centrum CuraVita in Dirksland...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Deal Thyssenkrupp en Salzgitter moet staalfabriek Duisburg redden](https://fd.nl/bedrijfsleven/1585871/deal-thyssenkrupp-en-salzgitter-moet-staalfabriek-duisburg-redden)
+  > Het Duitse industrieconglomeraat Thyssenkrupp doet zijn belang in de Duisburgse ruwstaalfabrikant HKM over aan Salzgitter, een grote staalproducent...
+- [Shell neemt versneld afscheid van accountant EY](https://fd.nl/financiele-markten/1585869/shell-neemt-versneld-afscheid-van-accountant-ey)
+  > Vanaf 2027 gaat PwC de boekhouding controleren van het Britse olie- en gasbedrijf, dat eerder onthulde jaarrekeningen zijn afgetekend door een...
+- [Q-day of milleniumbug?](https://fd.nl/opinie/1585851/q-day-of-milleniumbug)
+  > Ook als het alarm van de Algemene Rekenkamer voorbarig is, dan nog is het verstandig om gevoelige data te beschermen tegen de komst van de...
+- [Ahold Delhaize dient claim in tegen Servische regering over prijsplafond](https://fd.nl/bedrijfsleven/1585949/ahold-delhaize-dient-claim-in-tegen-servische-regering-over-prijsplafond)
+  > De maatregelen, die inmiddels hebben geleid tot Kamervragen, zetten de winstgevendheid van het supermarktconcern onder druk.
 - [De beursweek ging van crash naar crash](https://fd.nl/financiele-markten/1585919/de-beursweek-ging-van-crash-naar-crash)
-  > Maandag edelmetalen, dinsdag en woensdag data en software en daarna de bitcoin. De rest van de week bleven de markten behoorlijk volatiel.
-- [Booking schrapt hotels van ‘corrupte’ Iraanse bankier met Nederlandse link](https://fd.nl/bedrijfsleven/1585911/booking-schrapt-hotels-van-corrupte-iraanse-bankier-met-nederlandse-link)
-  > Ali Ansari bezit via een Nederlands bedrijf het Hilton-hotel in het centrum van Frankfurt.
-- [Ondernemingsraad Tata Steel bereidt gang naar rechter voor vanwege reorganisatie](https://fd.nl/bedrijfsleven/1585862/ondernemingsraad-tata-steel-bereidt-gang-naar-rechter-voor-vanwege-reorganisatie)
-  > Het inspraakorgaan botst met de directie over een reorganisatie van de onderzoek- en kwaliteitsafdelingen. Daarbij verdwijnt een kwart van de...
-- [DNB pleegde bedrog bij onteigening Conservatrix, oordeelt rechter](https://fd.nl/financiele-markten/1585920/dnb-pleegde-bedrog-bij-onteigening-conservatrix-oordeelt-rechter)
-  > De uitspraak geeft een nieuwe wending aan de zich al jaren voortslepende strijd van de voormalige eigenaren van de levensverzekeraar tegen de staat...
-- [Feestelijke lancering FD Talenten 2026](https://fd.nl/samenleving/1585918/feestelijke-lancering-fd-talenten-2026)
-  > Ontwerper en kunstenaar Sabine Marcelis heeft donderdag in museum Fenix, in Rotterdam, het eerste exemplaar van de Talentenspecial 2026 in ontvangst...
+  > Maandag edelmetalen, dinsdag en woensdag data en software, en daarna de bitcoin. De rest van de week bleven de markten behoorlijk volatiel.
 
 ### Meest gelezen
 
