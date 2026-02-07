@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-02-2026 om 20:57*
+*Laatst bijgewerkt: 07-02-2026 om 21:54*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Verslagenheid in Eefde en Kessel na dodelijke ongelukken met minderjarigen](https://nos.nl/l/2601372)
+  > In het Gelderse Eefde en Limburgse Kessel is vandaag stilgestaan bij twee dodelijke verkeersongelukken. Afgelopen nacht kwamen daarbij drie...
 - [Zwarte dag op Italiaanse skipistes: vier doden door lawines](https://nos.nl/l/2601359)
   > In Noord-Italië zijn vier mensen omgekomen bij lawines. In de regio Valtellina in de Alpen werden drie skiërs door een lawine meegesleurd. Twee van...
 - [VS wil 5-jarige Liam en familie alsnog uitzetten](https://nos.nl/l/2601357)
@@ -16,8 +18,6 @@
   > Met een gezamenlijk persmoment hebben Groenland, Canada en Frankrijk stilgestaan bij de opening van twee nieuwe consulaten in de Groenlandse...
 - [Iets te enthousiast gebouwd: carnavalswagen kan loods niet meer uit](https://nos.nl/l/2601350)
   > Voor carnavalsvereniging Goei Geknoei liep het naderende carnaval bijna op een grote teleurstelling uit, schrijft Omroep Brabant. Na maanden...
-- [Vergrijzend Japan omarmt de toerist, maar weert migranten die de economie laten draaien](https://nos.nl/l/2601349)
-  > Op papier lijken de Japanse parlementsverkiezingen van morgen een formaliteit. De laatste peilingen geven aan dat de regeringspartij, de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Topfavoriet Tariq Osaro verslagen in halve finale, wie wordt opvolger van Rico Verhoeven?](https://www.ad.nl/vechtsport/topfavoriet-tariq-osaro-verslagen-in-halve-finale-wie-wordt-opvolger-van-rico-verhoeven~a2ab1d31/)
-  > De wereldtitel in de zwaargewichtdivisie was bijna twaalf jaar lang in handen van Rico Verhoeven. Vanavond wordt tijdens Glory 105 in Stadion...
-- [FC Twente speelt Heerenveen totaal van de mat: gebroeders Rots zorgen eindelijk weer voor zege](https://www.ad.nl/voetbal/fc-twente-speelt-heerenveen-totaal-van-de-mat-gebroeders-rots-zorgen-eindelijk-weer-voor-zege~a373171e/)
+- [Fortuna Sittard neemt Sparta in slotminuut toch nog te grazen, Oukili scoort](https://www.ad.nl/voetbal/fortuna-sittard-neemt-sparta-in-slotminuut-toch-nog-te-grazen-oukili-scoort~a8abe720/)
+  > Het zal in Sittard nog wel even een discussiepunt blijven: had de goal van Lance Duijvestijn, kort voor rust, wel goedgekeurd mogen worden? Even...
+- [Medaillespiegel Olympische Spelen 2026 | Drie landen aan kop na eerste dag, Nederland nog op nul](https://www.ad.nl/olympische-spelen/medaillespiegel-olympische-spelen-2026-drie-landen-aan-kop-na-eerste-dag-nederland-nog-op-nul~a2772ec34/)
+  > Hoeveel gouden medailles gaat Nederland pakken tijdens de Olympische Winterspelen 2026 in Milaan en Cortina d’Ampezzo? Hieronder kun je het...
+- [Anticlimax in Arnhem: finalist meldt zich af met gebroken teen, Kromah is kampioen en opvolger van Verhoeven](https://www.ad.nl/vechtsport/anticlimax-in-arnhem-finalist-meldt-zich-af-met-gebroken-teen-kromah-is-kampioen-en-opvolger-van-verhoeven~a2ab1d31/)
+  > Mory Kromah is de opvolger van Rico Verhoeven als wereldkampioen in de zwaargewichtdivisie van Glory. Dat gebeurde middels een anticlimax van...
+- [FC Twente speelt Heerenveen compleet van de mat: gebroeders Rots zorgen eindelijk weer voor zege](https://www.ad.nl/voetbal/fc-twente-speelt-heerenveen-compleet-van-de-mat-gebroeders-rots-zorgen-eindelijk-weer-voor-zege~a373171e/)
   > FC Twente heeft sc Heerenveen totaal overrompeld. De Friezen hadden niets te vertellen tijdens het showvoetbal van de Enschedeërs. Maar liefst vijf...
-- [Fortuna op slag van rust op voorsprong: huurling Duijvestijn scoort tegen eigenlijke werkgever Sparta](https://www.ad.nl/voetbal/fortuna-op-slag-van-rust-op-voorsprong-huurling-duijvestijn-scoort-tegen-eigenlijke-werkgever-sparta~a8abe720/)
-  > Sparta is opgeklommen naar de vijfde plek, maar staat tegen Fortuna Sittard bij rust op een 1-0 achterstand. Uitgerekend huurling Lance Duijvestijn,...
-- [Zanger Brad Arnold van 3 Doors Down op 47-jarige leeftijd overleden](https://www.ad.nl/show/zanger-brad-arnold-van-3-doors-down-op-47-jarige-leeftijd-overleden~a36bed3e/)
-  > Leadzanger Brad Arnold van de 3 Doors Down is zaterdag op 47-jarige leeftijd overleden. Hij is gestorven aan de gevolgen van kanker, maakte de band...
-- [Van B-groep tot olympisch kampioene: de moeder die bewijst dat je én topatleet én mama kunt zijn](https://www.ad.nl/olympische-spelen/van-b-groep-tot-olympisch-kampioene-de-moeder-die-bewijst-dat-je-en-topatleet-en-mama-kunt-zijn~aa679e40/)
-  > Als kersverse moeder moest Francesca Lollobrigida knokken voor haar positie in de schaatssport, maar ze hield vol voor die ene prijs die ze thuis in...
+- [Dance-event in Van Nelle-fabriek tijdelijk ontruimd na incident met mogelijk traangas: ‘Het sloeg enorm op mijn keel’](https://www.ad.nl/rotterdam/dance-event-in-van-nelle-fabriek-tijdelijk-ontruimd-na-incident-met-mogelijk-traangas-het-sloeg-enorm-op-mijn-keel~a64df6f9/)
+  > Dance-event Audio Obscura in de Van Nelle-fabriek in Rotterdam is zaterdagavond tijdelijk stilgelegd nadat er zich een incident voordeed met mogelijk...
 
 ### Meest gelezen
 
