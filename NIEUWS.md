@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-02-2026 om 10:57*
+*Laatst bijgewerkt: 07-02-2026 om 11:45*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Om ons voetbal te redden moet veel minder geld naar Ajax, PSV en Feyenoord](https://www.ad.nl/voetbal/om-ons-voetbal-te-redden-moet-veel-minder-geld-naar-ajax-psv-en-feyenoord~aac87354/)
-  > Columnist Sjoerd Mossou dook in het zeer opzienbarende onderzoek naar het Nederlandse voetbal. Belangrijkste conclusie: we verdelen het geld compleet...
-- [Eerste strijd om medailles begonnen, zo laat komen Beune, Groenewoud en Conijn vandaag in actie](https://www.ad.nl/olympische-spelen/eerste-strijd-om-medailles-begonnen-zo-laat-komen-beune-groenewoud-en-conijn-vandaag-in-actie~ac1b7fb2e/)
-  > Het is zover: de Olympische Winterspelen in Milaan en Cortina d’Ampezzo gaan officieel van start! Met meteen Nederlandse medaillekansen op de...
-- [Oudere werknemer wordt richting uitgang geduwd, vakbond slaat alarm](https://www.ad.nl/economie/oudere-werknemer-wordt-richting-uitgang-geduwd-vakbond-slaat-alarm~abcb4bdf/)
-  > Voordat werkgevers overgaan tot ontslag, bieden ze personeel vaak de kans om vrijwillig hun spullen te pakken. Zo vertrekken veel werknemers vóór...
-- [Zelensky: VS wil voor de zomer een vredesakkoord tussen Rusland en Oekraïne](https://www.ad.nl/buitenland/zelensky-vs-wil-voor-de-zomer-een-vredesakkoord-tussen-rusland-en-oekraine~adfb97be/)
-  > De Verenigde Staten willen dat er tegen juni een vredesakkoord ligt tussen Rusland en Oekraïne en hebben voorgesteld om komende week nieuwe...
-- [De VS trekt Amerikaanse medewerkers terug uit Navo-kenniscentra in Nederland: ‘We houden het in de gaten’](https://www.ad.nl/buitenland/de-vs-trekt-amerikaanse-medewerkers-terug-uit-navo-kenniscentra-in-nederland-we-houden-het-in-de-gaten~aecd9368/)
-  > De Verenigde Staten trekken Amerikaanse medewerkers terug uit Navo-kenniscentra in Nederland. De twee zogeheten Centres of Excellence (COE’s) in...
+- [Filmmaker Martijn van de Griendt worstelt met het man-zijn: ‘Zo vaak schaam ik me voor mijn seksegenoten’](https://www.ad.nl/mezza/filmmaker-martijn-van-de-griendt-worstelt-met-het-man-zijn-zo-vaak-schaam-ik-me-voor-mijn-seksegenoten~ab04b7953/)
+  > Bier drinken, voetbalkantines, stoer doen: fotograaf, filmmaker en journalist Martijn van de Griendt is er niet van. Sinds zijn kindertijd worstelt...
+- [Tegenvaller voor PSV: Alassane Pléa heeft extra operatie aan zijn knie nodig en is er langer uit](https://www.ad.nl/voetbal/tegenvaller-voor-psv-alassane-plea-heeft-extra-operatie-aan-zijn-knie-nodig-en-is-er-langer-uit~acfaef42/)
+  > Voor PSV-spits Alassane Pléa (32) is een rentree nog niet in zicht. De aanvaller ging in januari mee tijdens het trainingskamp van PSV mee met de...
+- [Simons en Van de Ven in de basis bij Spurs, ManUnited kan vierde zege op rij boeken](https://www.ad.nl/voetbal/simons-en-van-de-ven-in-de-basis-bij-spurs-manunited-kan-vierde-zege-op-rij-boeken~a671ad00/)
+  > Manchester United is volop in de race voor een ticket voor de Champions League. De gevallen topclub won al drie keer op rij. Wordt er ook thuis...
+- [Wilde rozen bloeien kort maar geven je tuin toch heel de winter kleur](https://www.ad.nl/wonen/wilde-rozen-bloeien-kort-maar-geven-je-tuin-toch-heel-de-winter-kleur~acc4a8d4/)
+  > Gekweekte rozen zoals theerozen, floribundarozen en Engelse rozen voeren de boventoon in tuinen, ziet tuinexpert Romke van de Kaa. Maar vergeet de...
+- [Duif zit vast onder zonnepanelen van een woning en kan zichzelf niet meer bevrijden](https://www.ad.nl/westland/duif-zit-vast-onder-zonnepanelen-van-een-woning-en-kan-zichzelf-niet-meer-bevrijden~a8671bc8/)
+  > Een duif is zaterdag bekneld geraakt onder zonnepanelen van een woning aan de Zeestraat in ’s-Gravenzande. Het dier wist zich niet meer op eigen...
 
 ### Meest gelezen
 
