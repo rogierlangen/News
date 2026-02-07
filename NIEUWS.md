@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-02-2026 om 11:45*
+*Laatst bijgewerkt: 07-02-2026 om 13:55*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Droneaanval op auto met ontheemden in Sudan, zeker 24 doden](https://nos.nl/l/2601292)
+  > In Sudan zijn bij een droneaanval op een voertuig met vluchtelingen zeker 24 mensen gedood. Acht slachtoffers waren kinderen, meldt Sudan Doctors...
 - ['Schoten van stropers' in bos blijken feestgangers met ballonnen](https://nos.nl/l/2601287)
   > De politie in Limburg heeft gisteren tevergeefs naar stropers gezocht, nadat meldingen waren binnengekomen van een geweerschot in een bos bij...
 - [Zelensky: Trump wil voor juni bestand, volgende week gesprekken in VS](https://nos.nl/l/2601280)
   > De Amerikaanse president Trump wil voor deze zomer afspraken maken over een staakt-het-vuren tussen Rusland en Oekraïne, meldt president Zelensky van...
-- [Vonnis terdoodveroordeelde Canadees in China ongedaan gemaakt](https://nos.nl/l/2601278)
+- [Vonnis Canadese terdoodveroordeelde in China ongedaan gemaakt](https://nos.nl/l/2601278)
   > Het Chinese hooggerechtshof heeft de terdoodveroordeling van een Canadees vernietigd, meldt het Canadese ministerie van Buitenlandse Zaken. Het...
 - [Van Gogh kleurde in Parijs inderdaad een oud schilderij nog wat bij](https://nos.nl/l/2601276)
   > Licht dat speelt door het lommer, de zon die door de wolken breekt. Geïnspireerd door de impressionisten blijkt Vincent van Gogh in Parijs frisse...
-- [Gokken op terugkeer Jezus of val kabinet? Toezichthouder wil het stoppen](https://nos.nl/l/2601270)
-  > Hoe groot is de kans dat het aanstaande Nederlandse kabinet nog dit jaar gaat vallen? Het is een van de nieuwste weddenschappen op Polymarket. Een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Filmmaker Martijn van de Griendt worstelt met het man-zijn: ‘Zo vaak schaam ik me voor mijn seksegenoten’](https://www.ad.nl/mezza/filmmaker-martijn-van-de-griendt-worstelt-met-het-man-zijn-zo-vaak-schaam-ik-me-voor-mijn-seksegenoten~ab04b7953/)
-  > Bier drinken, voetbalkantines, stoer doen: fotograaf, filmmaker en journalist Martijn van de Griendt is er niet van. Sinds zijn kindertijd worstelt...
-- [Tegenvaller voor PSV: Alassane Pléa heeft extra operatie aan zijn knie nodig en is er langer uit](https://www.ad.nl/voetbal/tegenvaller-voor-psv-alassane-plea-heeft-extra-operatie-aan-zijn-knie-nodig-en-is-er-langer-uit~acfaef42/)
-  > Voor PSV-spits Alassane Pléa (32) is een rentree nog niet in zicht. De aanvaller ging in januari mee tijdens het trainingskamp van PSV mee met de...
-- [Simons en Van de Ven in de basis bij Spurs, ManUnited kan vierde zege op rij boeken](https://www.ad.nl/voetbal/simons-en-van-de-ven-in-de-basis-bij-spurs-manunited-kan-vierde-zege-op-rij-boeken~a671ad00/)
+- [ManUnited zoekt naar bevrijdende tweede goal tegen tien man Spurs, kans voor Xavi Simons](https://www.ad.nl/voetbal/manunited-zoekt-naar-bevrijdende-tweede-goal-tegen-tien-man-spurs-kans-voor-xavi-simons~a671ad00/)
   > Manchester United is volop in de race voor een ticket voor de Champions League. De gevallen topclub won al drie keer op rij. Wordt er ook thuis...
-- [Wilde rozen bloeien kort maar geven je tuin toch heel de winter kleur](https://www.ad.nl/wonen/wilde-rozen-bloeien-kort-maar-geven-je-tuin-toch-heel-de-winter-kleur~acc4a8d4/)
-  > Gekweekte rozen zoals theerozen, floribundarozen en Engelse rozen voeren de boventoon in tuinen, ziet tuinexpert Romke van de Kaa. Maar vergeet de...
-- [Duif zit vast onder zonnepanelen van een woning en kan zichzelf niet meer bevrijden](https://www.ad.nl/westland/duif-zit-vast-onder-zonnepanelen-van-een-woning-en-kan-zichzelf-niet-meer-bevrijden~a8671bc8/)
-  > Een duif is zaterdag bekneld geraakt onder zonnepanelen van een woning aan de Zeestraat in ’s-Gravenzande. Het dier wist zich niet meer op eigen...
+- [Eerste goud van de Spelen is voor Zwitser, Zweedse vrouwen domineren bij skiatlon](https://www.ad.nl/olympische-spelen/eerste-goud-van-de-spelen-is-voor-zwitser-zweedse-vrouwen-domineren-bij-skiatlon~ac1b7fb2e/)
+  > Het is zover: de Olympische Winterspelen in Milaan en Cortina d’Ampezzo gaan officieel van start! Met meteen Nederlandse medaillekansen op de...
+- [Velduilenmania in Eemdijk: vogelliefhebbers uit hele land staan in voortuin van Arjen en Jantine te turen](https://www.ad.nl/bunschoten-spakenburg/velduilenmania-in-eemdijk-vogelliefhebbers-uit-hele-land-staan-in-voortuin-van-arjen-en-jantine-te-turen~afea5a47/)
+  > „Daar zit-ie, net voor het hekje.” In het normaal zo rustige Eemdijk is het al dagenlang loeidruk. Vogelaars komen van heinde en verre om de...
+- [Michelle jaagt op olympische medaille, terwijl haar vader urenlang haar boards perfectionistisch waxt](https://www.ad.nl/olympische-spelen/michelle-jaagt-op-olympische-medaille-terwijl-haar-vader-urenlang-haar-boards-perfectionistisch-waxt~ab2e59c1/)
+  > In de sfeer van haar bijzondere familieverhaal jaagt snowboardster Michelle Dekker (29) morgen op een olympische medaille. Net als vroeger staat het...
+- [Oppermachtige Lorena Wiebes kan niet verliezen en sprint voor derde dag op rij naar de zege in UAE Tour](https://www.ad.nl/wielrennen/oppermachtige-lorena-wiebes-kan-niet-verliezen-en-sprint-voor-derde-dag-op-rij-naar-de-zege-in-uae-tour~ad25c0ef/)
+  > Wiebes heeft haar derde etappezege op rij geboekt in de Ronde van de Verenigde Arabische Emiraten, kortweg de UAE Tour. De 26-jarige Nederlandse van...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [‘CDA-ministers en staatssecretarissen zijn bekend’](https://fd.nl/politiek/1585988/cda-ministers-en-staatssecretarissen-zijn-bekend)
+  > Dat meldden De Telegraaf en het Algemeen Dagblad zaterdag. Haagse bronnen bevestigen de berichtgeving.
 - [VS willen uiterlijk in juni oorlog in Oekraïne beëindigen](https://fd.nl/politiek/1585986/vs-willen-uiterlijk-in-juni-oorlog-in-oekraine-beeindigen)
   > Volgende week zouden nieuwe gesprekken tussen de landen plaatsvinden in de Amerikaanse stad Miami.
 - [VS en India beëindigen handelsimpasse met voorlopig akkoord](https://fd.nl/economie/1585968/vs-en-india-beeindigen-handelsimpasse-met-voorlopig-akkoord)
@@ -54,8 +56,6 @@
   > Militairen konden aan de universiteit krijgswetenschappen volgen, studiebeurzen ontvangen of een verkorte opleiding volgen.
 - [‘Een financiële noodzaak om de ww in te korten ontbreekt – jaarlijks blijft €5 mrd over’](https://fd.nl/opinie/1585910/een-financiele-noodzaak-om-de-ww-in-te-korten-ontbreekt-jaarlijks-blijft-5-mrd-over-en-andere-lezersreacties)
   > FD-lezers reageren op de onbegrijpelijke inkorting van de ww-duur, de afweging van digitale soevereiniteit en (eigen) belangen, betalen voor vrede in...
-- [Hoe krijgen we Europese kampioenen: meer of minder markt?](https://fd.nl/economie/1585854/hoe-krijgen-we-europese-kampioenen-meer-of-minder-markt)
-  > In deze aflevering van Toegevoegde Waarde gaat het over Europese kampioenen. Is het verstandig om met overheidsingrijpen grote bedrijven te...
 
 ### Meest gelezen
 
