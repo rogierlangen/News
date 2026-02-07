@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-02-2026 om 14:57*
+*Laatst bijgewerkt: 07-02-2026 om 15:52*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Explosie op Italiaans spoor op eerste dag van de Spelen, onderzoek naar sabotage](https://nos.nl/l/2601315)
+  > De Italiaanse autoriteiten doen onderzoek naar mogelijke sabotage op het spoor in de buurt van de stad Bologna. Elektriciteitskabels van spoorlijnen...
 - [Alarmnummer 112 en politietelefoon moeilijker bereikbaar door storing](https://nos.nl/l/2601313)
   > Het meldkamersysteem van de hulpdiensten heeft te maken met een landelijke storing. In enkele regio's kan het langer duren voordat mensen contact...
 - [Droneaanval op auto met ontheemden in Sudan, zeker 24 doden](https://nos.nl/l/2601292)
@@ -16,8 +18,6 @@
   > De politie in Limburg heeft gisteren tevergeefs naar stropers gezocht, nadat meldingen waren binnengekomen van een geweerschot in een bos bij...
 - [Zelensky: Trump wil voor juni bestand, volgende week gesprekken in VS](https://nos.nl/l/2601280)
   > De Amerikaanse president Trump wil voor deze zomer afspraken maken over een staakt-het-vuren tussen Rusland en Oekraïne, meldt president Zelensky van...
-- [Vonnis Canadese terdoodveroordeelde in China ongedaan gemaakt](https://nos.nl/l/2601278)
-  > Het Chinese hooggerechtshof heeft de terdoodveroordeling van een Canadees vernietigd, meldt het Canadese ministerie van Buitenlandse Zaken. Het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Een slaappil als snelle oplossing? Huisarts Karin doet er alles aan om die juist niet voor te schrijven](https://www.ad.nl/gezond/een-slaappil-als-snelle-oplossing-huisarts-karin-doet-er-alles-aan-om-die-juist-niet-voor-te-schrijven~a6a40249/)
-  > Zo’n 10 procent van de volwassen Nederlanders slikt slaappillen. Huisarts Karin Wittkampf gaat in haar huisartsenpraktijk deze ‘quick fix’ te lijf....
-- [Joy Beune bezig aan warming-up, meteen kansen op goud voor Nederland op eerste dag](https://www.ad.nl/olympische-spelen/joy-beune-bezig-aan-warming-up-meteen-kansen-op-goud-voor-nederland-op-eerste-dag~aa727b05/)
-  > De Olympische Spelen beginnen vandaag ook echt voor de Nederlanders. In de schaatshal van Milaan staat de eerste afstand op het programma: de 3000...
-- [CDA’ers Berendsen naar Buitenlandse Zaken, Boswijk naar Defensie: dit zijn de kandidaten van kabinet-Jetten](https://www.ad.nl/politiek/cdaers-berendsen-naar-buitenlandse-zaken-boswijk-naar-defensie-dit-zijn-de-kandidaten-van-kabinet-jetten~a2495191/)
-  > Het nieuwe kabinet-Jetten krijgt langzaam vorm. Alle VVD’ers zijn bekend, bij D66 gaan Vijlbrief en Letschert het kabinet in. Op zaterdag lekken veel...
-- [ManUnited-fan nog één zege verwijderd van eerste knipbeurt in bijna 500 dagen na winst tegen Spurs](https://www.ad.nl/voetbal/manunited-fan-nog-een-zege-verwijderd-van-eerste-knipbeurt-in-bijna-500-dagen-na-winst-tegen-spurs~a671ad00/)
-  > Gaat eindelijk de schaar in zijn wilde haardos? Manchester United-supporter Frank Ilett besloot anderhalf jaar geleden pas naar de kapper te gaan als...
-- [Tallon Griekspoor treft Frans servicekanon in Rotterdam, Botic van de Zandschulp tegen qualifier](https://www.ad.nl/tennis/tallon-griekspoor-treft-frans-servicekanon-in-rotterdam-botic-van-de-zandschulp-tegen-qualifier~a24a12ce/)
-  > Tallon Griekspoor speelt in de eerste ronde van het ABN AMRO Open in Rotterdam tegen Giovanni Mpetshi Perricard uit Frankrijk. Dat is de uitkomst van...
+- [Boeren Spanje vrezen voor oogst door extreem weer, miljoenen euro’s schade](https://www.ad.nl/buitenland/boeren-spanje-vrezen-voor-oogst-door-extreem-weer-miljoenen-euros-schade~ada5197e/)
+  > Boeren in Spanje waarschuwen dat de hevige regenval afgelopen dagen als gevolg van de storm Marta voor miljoenen euro’s schade heeft aangericht aan...
+- [Onderzoek: Zwitserse bank verdiende aan Holocaust en aan ontsnapping van nazi’s naar Argentinië](https://www.ad.nl/buitenland/onderzoek-zwitserse-bank-verdiende-aan-holocaust-en-aan-ontsnapping-van-nazis-naar-argentinie~a4b35c6f/)
+  > Tachtig jaar na de Tweede Wereldoorlog komt er nog steeds troep uit de doofpot. Zo blijkt dat de Zwitserse bank Credit Suisse in de oorlog nog...
+- [Nederland ziet India langszij komen in Davis Cup na nederlaag Jesper de Jong tegen mondiale nummer 465](https://www.ad.nl/tennis/nederland-ziet-india-langszij-komen-in-davis-cup-na-nederlaag-jesper-de-jong-tegen-mondiale-nummer-465~a6f2c954/)
+  > Jesper de Jong is er niet in geslaagd de voorsprong van Nederland in de eerste kwalificatiewedstrijd van de Davis Cup tegen India te verdubbelen. De...
+- [Elvis-ster Austin Butler gaat gevallen wielrenner Lance Armstrong spelen](https://www.ad.nl/show/elvis-ster-austin-butler-gaat-gevallen-wielrenner-lance-armstrong-spelen~a7aa60cf/)
+  > De Amerikaanse acteur Austin Butler (34) gaat de hoofdrol spelen in een nieuwe biografische film over de gevallen wielrenner Lance Armstrong, meldt...
+- [Maurice (56): ‘Ik verdien te veel voor toeslagen, dat is soms wel frustrerend’](https://www.ad.nl/werk/maurice-56-ik-verdien-te-veel-voor-toeslagen-dat-is-soms-wel-frustrerend~a2188de5/)
+  > Maurice (56) werkt als heftruckchauffeur in een fabriek waar karton voor de verpakkingsindustrie wordt gemaakt. Hij zorgt ervoor dat de juiste...
 
 ### Meest gelezen
 
