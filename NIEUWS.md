@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-02-2026 om 15:53*
+*Laatst bijgewerkt: 08-02-2026 om 17:01*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Twee verdachten van aanslag Russische generaal aangehouden, derde zou in Oekraïne zijn](https://nos.nl/l/2601483)
+  > De uitvoerder van de aanslag van vrijdag op een generaal van de Russische militaire inlichtingendienst GROe is volgens de Russische onderzoekers een...
 - [Rechterhand premier Starmer vertrekt vanwege affaire-Mandelson](https://nos.nl/l/2601467)
   > De chef-staf van de Britse premier Starmer stapt op. Aanleiding is de affaire rond de in opspraak geraakte politicus Peter Mandelson. Chef-staf...
 - [Vier jaar na corona-Spelen: nog steeds liever geen handen schudden](https://nos.nl/l/2601444)
@@ -17,8 +19,6 @@
      ...
 - [Regeringspartij Japan stevent af op grote verkiezingsoverwinning](https://nos.nl/l/2601431)
   > Bij de verkiezingen in Japan lijkt de regerende LDP van premier Sanae Takaichi zoals verwacht een grote overwinning te boeken. Volgens een eerste...
-- [Rookbommen en vuurwerk bij protest in Milaan tegen Spelen, zes arrestaties](https://nos.nl/l/2601429)
-  > Bij een confrontatie tussen betogers en de politie zijn gisteravond in Milaan zes mensen opgepakt. Eerder op de dag waren er vreedzame protesten...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [PSV met debutant (22) onder lat begonnen in Groningen, twee keepers raakten geblesseerd tijdens laatste training](https://www.ad.nl/voetbal/psv-met-debutant-22-onder-lat-begonnen-in-groningen-twee-keepers-raakten-geblesseerd-tijdens-laatste-training~a4748b55/)
-  > PSV begint met Niek Schiks in het doel tegen FC Groningen. De doelman maakt zijn debuut voor de Eindhovense club. Zowel Matej Kovar als Nick Olij...
-- [Jesper de Jong zet Nederland in Davis Cup op gelijke hoogte tegen India](https://www.ad.nl/tennis/jesper-de-jong-zet-nederland-in-davis-cup-op-gelijke-hoogte-tegen-india~a67b8924/)
-  > Nederland is door een overwinning van Jesper de Jong op Sumit Nagal op 2-2 gekomen in de Davis Cup-ontmoeting met India. De Jong won in Bengaluru in...
-- [Medewerker McDonald’s neergestoken: verdachte vlucht te voet over snelweg](https://www.ad.nl/binnenland/medewerker-mcdonalds-neergestoken-verdachte-vlucht-te-voet-over-snelweg~a188565d/)
-  > De verdachte van een steekpartij in een McDonald’s in Echt is zaterdagnacht te voet over de snelweg gevlucht. De man kon in de berm door een...
-- [Telstar pakt punt bij Go Ahead na goal diep in blessuretijd, keeper belangrijk voor bezoekers](https://www.ad.nl/voetbal/telstar-pakt-punt-bij-go-ahead-na-goal-diep-in-blessuretijd-keeper-belangrijk-voor-bezoekers~a923efdb/)
-  > Go Ahead Eagles heeft geen revanche kunnen nemen op Telstar voor de bekernederlaag van eerder deze week. In de slotminuten maakte Telstar gelijk in...
-- [Ajax ontsnapt aan nieuwe nederlaag tegen angstgegner AZ: invaller Fitz-Jim redt punt in extra tijd](https://www.ad.nl/voetbal/ajax-ontsnapt-aan-nieuwe-nederlaag-tegen-angstgegner-az-invaller-fitz-jim-redt-punt-in-extra-tijd~aa31a149/)
-  > Ajax is ternauwernood ontsnapt aan een nederlaag tegen AZ. Kian Fitz-Jim knikte in blessuretijd de 1-1 binnen tegen de zwaar gehavende angstgegner.
+- [Hoe Soundos uitgroeide van underdog tot rolmodel: haar grote bek als superkracht](https://www.ad.nl/show/hoe-soundos-uitgroeide-van-underdog-tot-rolmodel-haar-grote-bek-als-superkracht~ab081466/)
+  > Een paar scherpe zinnen waren genoeg: ‘Jij gaat even stil zijn’ en ‘Jouw gevoel interesseert mij niet’. Na haar optreden in het VRT-programma De...
+- [Iran legt Nobelprijswinnares Narges Mohammadi nieuwe celstraffen op](https://www.ad.nl/buitenland/iran-legt-nobelprijswinnares-narges-mohammadi-nieuwe-celstraffen-op~a8db4100/)
+  > De al vaker veroordeelde Iraanse Nobelprijswinnares Narges Mohammadi heeft nieuwe celstraffen gekregen. Dat meldt haar advocaat.
+- [Nederlandse mannen spelen bijrol op 5000 meter, Noor Sander Eitrem pakt goud met olympisch record](https://www.ad.nl/olympische-spelen/nederlandse-mannen-spelen-bijrol-op-5000-meter-noor-sander-eitrem-pakt-goud-met-olympisch-record~ad5eb13f/)
+  > Zoals verwacht hebben de Nederlanders geen rol van betekenis gespeeld in de strijd om de olympische titel op de 5 kilometer. De Noor Sander Eitrem,...
+- [Timon Wellenreuther redder van Feyenoord, maar ook dissonant: ‘Totaal onnodig, die kaarten’](https://www.ad.nl/voetbal/timon-wellenreuther-redder-van-feyenoord-maar-ook-dissonant-totaal-onnodig-die-kaarten~a2bbd5a3/)
+  > Feyenoord koestert de winst (0-1) in de Galgenwaard tegen FC Utrecht. Met dank aan doelman Timon Wellenreuther, met drie knappe reddingen. Maar de...
+- [Liverpool ontsnapt aan achterstand in kraker tegen City: Haaland mist grote kans](https://www.ad.nl/voetbal/liverpool-ontsnapt-aan-achterstand-in-kraker-tegen-city-haaland-mist-grote-kans~a0cfa376/)
+  > Er staan een ware kraker op het programma in de Premier League. Het Liverpool van Arne Slot ontvangt namelijk Manchester City. Kan Liverpool de ploeg...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Starmer verliest stafchef door schandaal rond Mandelson en Epstein](https://fd.nl/politiek/1585974/starmer-verliest-stafchef-door-schandaal-rond-mandelson-en-epstein)
+  > Morgan McSweeney, architect van Labours verkiezingszege en rechterhand Starmer, neemt ontslag in de hoop de positie van de premier te redden.
+- [Amerikaanse techbedrijven gaan $650 mrd investeren](https://fd.nl/financiele-markten/1585992/amerikaanse-techbedrijven-gaan-650-mrd-investeren)
+  > De investeringen van Alphabet, Amazon, Meta en Microsoft in 2026 zijn hoger dan hun investeringen in de voorgaande drie jaar bij elkaar opgeteld.
+- [Coalitieplan voor zorg is soms 'pijnlijk,' maar ook ‘verstandig’ aldus experts](https://fd.nl/politiek/1585924/coalitieplan-voor-zorg-is-soms-pijnlijk-maar-ook-verstandig-aldus-experts)
+  > De nieuwe coalitie wil snijden in de zorgkosten. Volgens experts zijn de keuzes van de drie partijen stevig maar goed uit te leggen.
+- [Ceo innovatie-agentschap: ‘Ik verwacht de komende tijd minimaal één unicorn’](https://fd.nl/politiek/1585866/ceo-innovatie-agentschap-ik-verwacht-de-komende-tijd-minimaal-een-unicorn)
+  > Duitsland richtte in 2019 een ‘eigen Darpa’ op, geïnspireerd op de Amerikaanse defensie-innovatieclub. De ceo heeft advies voor het aanstaande...
 - [Centrumlinkse Seguro koerst af op winst bij presidentsverkiezingen Portugal](https://fd.nl/politiek/1585973/centrumlinkse-seguro-koerst-af-op-winst-bij-presidentsverkiezingen-portugal)
   > In de tweede ronde van de Portugese presidentsverkiezingen, die zondag worden gehouden, neemt Seguro het op tegen de rechtse populist Ventura.
-- [Trump dwingt Britten en Europeanen samen, maar echte toenadering blijft lastig](https://fd.nl/politiek/1585538/trump-dwingt-britten-en-europeanen-samen-maar-echte-toenadering-blijft-lastig)
-  > Zowel in Europa als in het Verenigd Koninkrijk klinken opvallend veel pleidooien voor nauwere samenwerking. Maar of die er ook daadwerkelijk van komt...
-- [Populaire Italiaanse generaal richt uiterst rechtse partij op](https://fd.nl/politiek/1585916/populaire-italiaanse-generaal-richt-uiterst-rechtse-partij-op)
-  > Roberto Vannacci klom op binnen Lega van vicepremier Matteo Salvini, maar gaat nu zijn eigen weg.  Dit kan grote gevolgen hebben voor de rechtse...
-- [Opluchting bij academici over regeerakkoord, ‘maar bezuinigingen hebben wel wat gekost’](https://fd.nl/samenleving/1585970/opluchting-bij-academici-over-regeerakkoord-maar-bezuinigigingen-hebben-wel-wat-gekost)
-  > Het komende kabinet wil de bezuinigingen op het onderwijs terugdraaien. Hard nodig, volgens jonge academici, ‘maar niet zo eenvoudig.’
-- [Nieuwe strategie moet Philips aan langverwachte koersstijging helpen](https://fd.nl/bedrijfsleven/1585829/nieuwe-strategie-moet-philips-aan-langverwachte-koersstijging-helpen)
-  > Analisten denken dat het medisch technologiebedrijf dinsdag hogere winstdoelen zal aankondigen. Ook speculeren analisten op de mogelijke verkoop van...
 
 ### Meest gelezen
 
