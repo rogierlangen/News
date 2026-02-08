@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-02-2026 om 07:52*
+*Laatst bijgewerkt: 08-02-2026 om 09:02*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Verdachte van aanslag op Russische luitenant-generaal opgepakt in Dubai](https://nos.nl/l/2601416)
+  > De verdachte van de moordaanslag op een luitenant-generaal van de militaire inlichtingendienst GROe is opgepakt in de Verenigde Arabische Emiraten,...
 - [Explosie bij Chinees biotechbedrijf, acht doden](https://nos.nl/l/2601410)
   > Door een explosie in een biotechbedrijf in China zijn acht mensen om het leven gekomen. Het gebeurde bij Shuozhou, een stad die zo'n 400 kilometer...
 - [Techgiganten gaan honderden miljarden investeren in onder meer datacenters](https://nos.nl/l/2601407)
-  > De vier Amerikaanse internetgiganten verwachten dit jaar voor zeker 500 miljard dollar (424 miljard euro) te investeren in onder meer datacenters en...
+  > De vier Amerikaanse internetgiganten verwachten dit jaar bij elkaar voor zeker 500 miljard dollar (424 miljard euro) te investeren in onder meer...
 - [Wekdienst 8/2: Portugal kiest president • Snowboarden, schaatsen op Spelen](https://nos.nl/l/2601400)
   > Goedemorgen! Vandaag wordt in Portugal de beslissende ronde van de presidentsverkiezingen gehouden. Op de Olympische Winterspelen komt snowboardster...
 - [Gynaecologen onderzoeken nieuwe pijnbehandeling bij endometriose](https://nos.nl/l/2601398)
   > Het kan het begin zijn van een nieuwe behandeling: het gebruik van weeënremmers om pijn bij endometriose te bestrijden. Gynaecologen in Nederland...
-- [Twee personen aangereden in Amsterdam tijdens politieachtervolging](https://nos.nl/l/2601392)
-  > In Amsterdam zijn een fietser en een voetganger gewond geraakt nadat zij werden aangereden door een auto die mogelijk werd achtervolgd door de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Russische geheime dienst: Daders aanslag op topgeneraal Aleksejev opgepakt in Dubai](https://www.ad.nl/buitenland/russische-geheime-dienst-daders-aanslag-op-topgeneraal-aleksejev-opgepakt-in-dubai~adfb97be/)
-  > De schutter en een handlanger van de moordaanslag op de Russische luitenant-generaal Vladimir Aleksejev zijn opgepakt in Dubai en overgeleverd aan...
-- [Deze Ferrari met 1050 pk verwijst naar twee illustere voorgangers](https://www.ad.nl/auto/deze-ferrari-met-1050-pk-verwijst-naar-twee-illustere-voorgangers~ae321546/)
-  > Voor de vervanger van de hybride SF90 Stradale grijpt Ferrari terug naar een illustere naam uit het verleden. Back to the 50’s en 80’s in een nieuwe...
-- [Wie bezorgt jou een goed weekend? Laat het ons weten](https://www.ad.nl/home/wie-bezorgt-jou-een-goed-weekend-laat-het-ons-weten~a136496f/)
-  > Eind maart bestaat ons zaterdagmagazine Mezza vijf jaar. Om dat te vieren willen we weten: wie bezorgt jou een goed weekend?
-- [800 meter-debuut voor de geschiedenisboeken? Femke Bol richt zich meteen op record](https://www.ad.nl/andere-sporten/800-meter-debuut-voor-de-geschiedenisboeken-femke-bol-richt-zich-meteen-op-record~aa80adb7/)
-  > Femke Bol loopt zondag in het Franse Metz haar eerste 800 meter, het onderdeel waarop ze ook wil uitgroeien tot de absolute wereldtop. Ze deed het...
-- [Code geel om dichte mist in noorden en noordoosten van het land: ‘Kan op sommige plekken hardnekkig zijn’](https://www.ad.nl/binnenland/code-geel-om-dichte-mist-in-noorden-en-noordoosten-van-het-land-kan-op-sommige-plekken-hardnekkig-zijn~ae40189d/)
-  > In Flevoland, Overijssel, Drenthe, Groningen, Friesland en het Waddengebied geldt zondagochtend code geel vanwege plaatselijk dichte mist. Het zicht...
+- [Man (74) rijdt vanuit Nederland naar Turkije en schiet eigen broer dood na ruzie over geld](https://www.ad.nl/buitenland/man-74-rijdt-vanuit-nederland-naar-turkije-en-schiet-eigen-broer-dood-na-ruzie-over-geld~a8e42727/)
+  > In het Turkse Aksaray heeft zich zaterdag een familiedrama afgespeeld. Een 74-jarige man, die vanuit zijn woonplaats in Nederland naar Turkije was...
+- [Jarenlang diarree als ‘milde’ bijwerking, en dan ineens klaar: dit onderzoek zet levens op zijn kop](https://www.ad.nl/wetenschap/jarenlang-diarree-als-milde-bijwerking-en-dan-ineens-klaar-dit-onderzoek-zet-levens-op-zijn-kop~aff4fb59/)
+  > Voor veel mensen met een chronische ziekte is het dagelijkse leven jarenlang beperkt door medicijnen en hun bijwerkingen. Vermoeidheid, hoofdpijn,...
+- [Mory Kromah was vorig jaar bijna dood, nu is hij opvolger Rico Verhoeven: ‘Bizar, maar wel een sterk verhaal, toch?’](https://www.ad.nl/vechtsport/mory-kromah-was-vorig-jaar-bijna-dood-nu-is-hij-opvolger-rico-verhoeven-bizar-maar-wel-een-sterk-verhaal-toch~ae34862e/)
+  > Mory Kromah (26) is wereldkampioen in de zwaargewichtdivisie van Glory. En dat terwijl hij vorig jaar de dood nog in de ogen keek bij een...
+- [Met deze vijf tips kun je geld besparen: ‘Leen geen geld aan bekenden, geef het’](https://www.ad.nl/mezza/met-deze-vijf-tips-kun-je-geld-besparen-leen-geen-geld-aan-bekenden-geef-het~a527b6e1/)
+  > Vind je geldzaken ingewikkeld en frustrerend? Eva van den Broek en Tim den Heijer, schrijvers van Je bent een financieel genie, delen vijf...
+- [Nederlanders vragen om cocktails bij Thais ‘restaurant’, blijkt begrafenis te zijn: ‘Ze waren verbluft’](https://www.ad.nl/buitenland/nederlanders-vragen-om-cocktails-bij-thais-restaurant-blijkt-begrafenis-te-zijn-ze-waren-verbluft~a518571d/)
+  > Drie Nederlandse jongemannen zijn onbedoeld uitgegroeid tot een internethit in Thailand. De hongerige toeristen dachten aan te schuiven bij een...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Kabinet-Jetten gaat ‘Aan de Slag’, maar met wie?](https://fd.nl/opinie/1585672/kabinet-jetten-gaat-aan-de-slag-maar-met-wie)
+  > Het toekomstige kabinet-Jetten zoekt daadkracht en een cultuur van samenwerking, zo is te lezen in het coalitieakkoord. We moeten met elkaar ‘Aan de...
 - [Operatie vanwege staar? De implantlens uit Groningen wordt alsmaar beter](https://fd.nl/bedrijfsleven/1585520/operatie-vanwege-staar-de-implantlens-uit-groningen-wordt-alsmaar-beter)
   > De Groningse vestiging van Johnson & Johnson blijft innoveren om de concurrentie aan te kunnen. Precies het soort werk waarmee Nederland zich volgens...
 - [Communicatieles voor raadsleden: ‘Het recht op uitzicht bestaat niet’](https://fd.nl/politiek/1585909/communicatieles-voor-raadsleden-het-recht-op-uitzicht-bestaat-niet)
@@ -54,8 +56,6 @@
   > Deze week hoor je het rechtbankverslag over Anika, die maar niet in gesprek kwam met ABN Amro.
 - [‘CDA-ministers en staatssecretarissen zijn bekend’](https://fd.nl/politiek/1585988/cda-ministers-en-staatssecretarissen-zijn-bekend)
   > Dat meldden De Telegraaf en het Algemeen Dagblad zaterdag. Haagse bronnen bevestigen de berichtgeving.
-- [VS willen uiterlijk in juni oorlog in Oekraïne beëindigen](https://fd.nl/politiek/1585986/vs-willen-uiterlijk-in-juni-oorlog-in-oekraine-beeindigen)
-  > Volgende week zouden nieuwe gesprekken tussen de landen plaatsvinden in de Amerikaanse stad Miami.
 
 ### Meest gelezen
 
