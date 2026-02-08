@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-02-2026 om 21:55*
+*Laatst bijgewerkt: 08-02-2026 om 23:01*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Geen olympische finale, tóch als winnaar naar huis: snowboardster Melissa Peperkamp overwint haar angst](https://www.ad.nl/olympische-spelen/geen-olympische-finale-toch-als-winnaar-naar-huis-snowboardster-melissa-peperkamp-overwint-haar-angst~a2d24c9e/)
+- [Voetbalpodcast | ‘NEC heeft een voorsprong nodig op Feyenoord en Ajax om het vol te houden’](https://www.ad.nl/voetbal/voetbalpodcast-nec-heeft-een-voorsprong-nodig-op-feyenoord-en-ajax-om-het-vol-te-houden~ac8603a9/)
+  > Feyenoord weet weer wat winnen is. De zorgen voor tegenstander FC Utrecht worden alleen maar groter. Ajax wint weer niet van AZ. PSV met de nodige...
+- [Geen olympische Big Air-finale, tóch een winnaar: snowboardster Melissa Peperkamp overwint haar angst](https://www.ad.nl/olympische-spelen/geen-olympische-big-air-finale-toch-een-winnaar-snowboardster-melissa-peperkamp-overwint-haar-angst~a2d24c9e/)
   > Ze haalde niet de finale, wat haar vier jaar geleden wel is gelukt. Maar Melissa Peperkamp kwam toch als winnaar uit de kwalificatie van de Big Air....
 - [Als Erna aanbelt om slecht nieuws te brengen, ziet ze twee jongens van een jaar of 9 en 7 de trap afkomen](https://www.ad.nl/binnenland/als-erna-aanbelt-om-slecht-nieuws-te-brengen-ziet-ze-twee-jongens-van-een-jaar-of-9-en-7-de-trap-afkomen~a5f8a0b8/)
   > Na een aanrijding op het spoor moet agent Erna met een collega aan de nabestaanden het verdrietige nieuws vertellen. Als ze heeft aangebeld, ziet ze...
-- [Snowboardsters Melissa Peperkamp (21) en Romy van Vreden (20) niet naar finale big air](https://www.ad.nl/olympische-spelen/snowboardsters-melissa-peperkamp-21-en-romy-van-vreden-20-niet-naar-finale-big-air~a6db3385/)
+- [Snowboardsters Melissa Peperkamp (21) en Romy van Vreden (20) niet naar olympische finale big air](https://www.ad.nl/olympische-spelen/snowboardsters-melissa-peperkamp-21-en-romy-van-vreden-20-niet-naar-olympische-finale-big-air~a6db3385/)
   > Snowboardsters Melissa Peperkamp en Romy van Vreden hebben naast een finaleplek gegrepen op het onderdeel big air. Beiden eindigden zondagavond...
 - [1 aprilgrap wordt nu verkoopknaller: 125.000 zakken worstenbroodchips in een week verkocht](https://www.ad.nl/binnenland/1-aprilgrap-wordt-nu-verkoopknaller-125-000-zakken-worstenbroodchips-in-een-week-verkocht~ae5f1de1/)
   > Familiebedrijf Lekker Brabant uit Oisterwijk heeft meer chips met worstenbroodsmaak verkocht dan echte worstenbroodjes. Binnen een week gingen...
-- [Sommige haarlijnen groeien opeens terug](https://www.ad.nl/binnenland/sommige-haarlijnen-groeien-opeens-terug~ac19adba/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 
 ### Meest gelezen
 
