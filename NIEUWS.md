@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-02-2026 om 19:15*
+*Laatst bijgewerkt: 08-02-2026 om 20:57*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Politie Utrecht grijpt hard in tegen Feyenoord-fans, Feyenoord wil opheldering](https://nos.nl/l/2601523)
+  > De politie heeft vanmiddag na de wedstrijd FC Utrecht-Feyenoord hard ingegrepen tegen Feyenoord-fans. Een gemeentewoordvoerder zegt tegen RTV Utrecht...
+- [Trump wil zelf spelregels tussentijdse verkiezingen bepalen](https://nos.nl/l/2601520)
+  > De tussentijdse verkiezingen in de Verenigde Staten zijn pas in november, maar er bestaan al zorgen over het verloop. President Trump probeert...
+- [Grote brand bij autobedrijf Geleen geblust, bijgebouw grotendeels verwoest](https://nos.nl/l/2601518)
+  > In een autobedrijf in Geleen in Limburg heeft vanavond een grote brand gewoed. De brand is inmiddels onder controle, maar het gebouw is grotendeels...
 - [Opnieuw jarenlange celstraf voor Iraanse Nobelprijswinnaar Narges Mohammadi](https://nos.nl/l/2601492)
   > Een Iraanse rechtbank heeft ruim zeven jaar cel opgelegd aan Narges Mohammadi, de activiste die in 2023 de Nobelprijs voor de Vrede kreeg. Haar...
 - [Gebouw in Libanese stad Tripoli ingestort, tot nu toe zes doden gemeld](https://nos.nl/l/2601487)
   > In de Libanese havenstad Tripoli is een oud woongebouw ingestort. Er zijn zes doden en zeven gewonden gemeld. Het is niet bekend hoeveel mensen onder...
-- [Twee verdachten van aanslag Russische generaal aangehouden, derde zou in Oekraïne zijn](https://nos.nl/l/2601483)
-  > De uitvoerder van de aanslag van vrijdag op een generaal van de Russische militaire inlichtingendienst GROe is volgens de Russische onderzoekers een...
-- [Rechterhand premier Starmer vertrekt vanwege affaire-Mandelson](https://nos.nl/l/2601467)
-  > De chef-staf van de Britse premier Starmer stapt op. Aanleiding is de affaire rond de in opspraak geraakte politicus Peter Mandelson. Chef-staf...
-- [Vier jaar na corona-Spelen: nog steeds liever geen handen schudden](https://nos.nl/l/2601444)
-  > Een groot contrast is het, tussen de Winterspelen in Peking vier jaar geleden en de Spelen in Milaan nu. In Peking waren de tribunes vrijwel leeg en...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dreigende berichten aan boord van passagiersvlucht, Israël zet straaljagers in](https://www.ad.nl/buitenland/dreigende-berichten-aan-boord-van-passagiersvlucht-israel-zet-straaljagers-in~aad86e69/)
-  > Straaljagers zijn zondag ingezet om een Wizz Air-vlucht naar Israël te begeleiden. Volgens Israëlische media was er paniek aan boord ontstaan nadat...
-- [Voormalig wereldkampioen Nieky Holzken (42) stopt dag na verloren partij met vechtsport](https://www.ad.nl/vechtsport/voormalig-wereldkampioen-nieky-holzken-42-stopt-dag-na-verloren-partij-met-vechtsport~a2c19688/)
-  > Na meer dan 150 gevechten is het mooi geweest voor Nieky Holzken. De voormalig wereldkampioen kickboksen maakt via X bekend dat hij stopt met zijn...
-- [Pijnlijke avond voor Slot: Liverpool staat met lege handen na krankzinnige ontknoping tegen Man City](https://www.ad.nl/voetbal/pijnlijke-avond-voor-slot-liverpool-staat-met-lege-handen-na-krankzinnige-ontknoping-tegen-man-city~a0cfa376/)
-  > Arne Slot heeft met Liverpool een gevoelige tik te verwerken gekregen. De regerend kampioen leek op weg naar een knappe zege in de kraker tegen...
-- [Europese elite in het nauw door Epstein-onthullingen: nu moet Ghislaine Maxwell onder ede vertellen wat zij wist](https://www.ad.nl/buitenland/europese-elite-in-het-nauw-door-epstein-onthullingen-nu-moet-ghislaine-maxwell-onder-ede-vertellen-wat-zij-wist~a91a5b1c/)
-  > Wat zegt Ghislaine Maxwell wel en wat houdt ze achter? Die vragen staan maandag centraal in het onderzoek van het Amerikaanse Congres naar het falen...
-- [Peperkamp en Van Vreden azen op finaleplek big air, Leerdam loot Takagi in laatste rit 1000 meter](https://www.ad.nl/olympische-spelen/peperkamp-en-van-vreden-azen-op-finaleplek-big-air-leerdam-loot-takagi-in-laatste-rit-1000-meter~a6db3385/)
-  > De tweede dag van de Olympische Spelen levert voor Nederland nog geen eremetaal op. Michelle Dekker werd in de achtste finales uitgeschakeld. Bij de...
+- [Snowboardsters Melissa Peperkamp (21) en Romy van Vreden (20) niet naar finale big air](https://www.ad.nl/olympische-spelen/snowboardsters-melissa-peperkamp-21-en-romy-van-vreden-20-niet-naar-finale-big-air~a6db3385/)
+  > Snowboardsters Melissa Peperkamp en Romy van Vreden hebben naast een finaleplek gegrepen op het onderdeel big air. Beiden eindigden zondagavond...
+- [1 aprilgrap wordt nu verkoopknaller: 125.000 zakken worstenbroodchips in een week verkocht](https://www.ad.nl/binnenland/1-aprilgrap-wordt-nu-verkoopknaller-125-000-zakken-worstenbroodchips-in-een-week-verkocht~ae5f1de1/)
+  > Familiebedrijf Lekker Brabant uit Oisterwijk heeft meer chips met worstenbroodsmaak verkocht dan echte worstenbroodjes. Binnen een week gingen...
+- [Sommige haarlijnen groeien opeens terug](https://www.ad.nl/binnenland/sommige-haarlijnen-groeien-opeens-terug~ac19adba/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Ajax haalde vers bloed, maar ziet Kian Fitz-Jim punt redden tegen AZ: ‘Ik kwam in een vicieuze cirkel terecht’](https://www.ad.nl/voetbal/ajax-haalde-vers-bloed-maar-ziet-kian-fitz-jim-punt-redden-tegen-az-ik-kwam-in-een-vicieuze-cirkel-terecht~a583374d/)
+  > Ajax wil met een versterkte selectie plek twee in de eredivisie veroveren. Maar na de transferperiode heeft uitgerekend een speler die eerder deze...
+- [Opiniepeiler Peter Kanne waarschuwt: ‘De oorlog is al begonnen, maar wij liggen nog in onze e-bikebubbel’](https://www.ad.nl/binnenland/opiniepeiler-peter-kanne-waarschuwt-de-oorlog-is-al-begonnen-maar-wij-liggen-nog-in-onze-e-bikebubbel~a6d90195/)
+  > Peter Kanne is de man van de peilingen. Maar in zijn nieuwe boek peilt hij iets anders: de staat van Nederland. En die baart hem zorgen. Terug in...
 
 ### Meest gelezen
 
