@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-02-2026 om 13:57*
+*Laatst bijgewerkt: 08-02-2026 om 14:58*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Corstiaan kwam vrij uit gevangenis, maar vindt geen werk: ‘Ik word afgerekend’](https://www.ad.nl/binnenland/corstiaan-kwam-vrij-uit-gevangenis-maar-vindt-geen-werk-ik-word-afgerekend~a1c074c8/)
-  > Corstiaan Loeve (26) uit Hardinxveld-Giessendam stuurt tientallen sollicitatiebrieven de deur uit, maar krijgt zelden antwoord. Hij zat in de...
-- [Bedreigde Feyenoord-directeur Dennis te Kloese om veiligheidsredenen niet in Utrecht](https://www.ad.nl/voetbal/bedreigde-feyenoord-directeur-dennis-te-kloese-om-veiligheidsredenen-niet-in-utrecht~a90836eb/)
-  > Dennis te Kloese bekeek de uitwedstrijd van Feyenoord tegen FC Utrecht (0-1) niet in stadion Galgenwaard. De directeur van de Rotterdamse club kreeg...
-- [Ajax aast op revanche en pakt het initiatief tegen angstgegner AZ](https://www.ad.nl/voetbal/ajax-aast-op-revanche-en-pakt-het-initiatief-tegen-angstgegner-az~aa31a149/)
-  > AZ is al tien wedstrijden ongeslagen tegen Ajax en vooral het laatste duel (6-0) zal in het geheugen gegrift staan bij beide clubs. Gaan de...
-- [Feyenoord heeft aan vroege goal genoeg voor belangrijke uitzege op machteloos FC Utrecht](https://www.ad.nl/voetbal/feyenoord-heeft-aan-vroege-goal-genoeg-voor-belangrijke-uitzege-op-machteloos-fc-utrecht~a9af6b81/)
-  > Feyenoord heeft de driepunter waar het zo naar snakte te pakken. In de Galgenwaard tegen FC Utrecht had de ploeg voor de pauze weinig problemen met...
-- [Nederland zonder Griekspoor en Van de Zandschulp op achterstand in Davis Cup tegen India](https://www.ad.nl/tennis/nederland-zonder-griekspoor-en-van-de-zandschulp-op-achterstand-in-davis-cup-tegen-india~a67b8924/)
-  > Nederland is op een 2-1-achterstand gekomen in de Davis Cup-ontmoeting met India. Sander Arends en David Pel verloren zondag het dubbelspel van Yuki...
+- [Na Spanje en Portugal nu ook Marokko weer getroffen door zware regenval: tienduizenden inwoners geëvacueerd](https://www.ad.nl/buitenland/na-spanje-en-portugal-nu-ook-marokko-weer-getroffen-door-zware-regenval-tienduizenden-inwoners-geevacueerd~a566c55b/)
+  > Ook Marokko kampt nu met de zware regenval die de voorbije dagen al delen van Spanje en Portugal teisterde. In het land zijn tienduizenden mensen...
+- [PSV mist Kovar en Olij en begint tegen FC Groningen met debutant (22) in het doel](https://www.ad.nl/voetbal/psv-mist-kovar-en-olij-en-begint-tegen-fc-groningen-met-debutant-22-in-het-doel~a4748b55/)
+  > PSV begint met Niek Schiks in het doel tegen FC Groningen. De doelman maakt zijn debuut voor de Eindhovense club. Zowel Matej Kovar als Nick Olij...
+- [Michelle Dekker kan even geen trots toelaten na grote teleurstelling in Livigno](https://www.ad.nl/olympische-spelen/michelle-dekker-kan-even-geen-trots-toelaten-na-grote-teleurstelling-in-livigno~acf95ae6/)
+  > Niet haar piste, niet de foutloze race op het juiste moment. Snowboardster Michelle Dekker is in de achtste finale van het toernooi om de olympische...
+- [Bosker start als eerste op 5000 meter, kunnen de Nederlanders stunten?](https://www.ad.nl/olympische-spelen/bosker-start-als-eerste-op-5000-meter-kunnen-de-nederlanders-stunten~ad5eb13f/)
+  > De eerste afstand voor de mannelijke langebaanschaatsers op de Olympische Winterspelen in Milaan is de 5000 meter. Namens Nederland komen Stijn van...
+- [Van Persie looft Wellenreuther, maar is ook kritisch na zege in Utrecht: ‘Timon weet zelf ook wel dat dit niet handig is’](https://www.ad.nl/voetbal/van-persie-looft-wellenreuther-maar-is-ook-kritisch-na-zege-in-utrecht-timon-weet-zelf-ook-wel-dat-dit-niet-handig-is~ab4a6684/)
+  > Trainer Robin van Persie was vooral tevreden over het resultaat van de uitwedstrijd van Feyenoord tegen FC Utrecht. „Hier winnen is altijd lastig”,...
 
 ### Meest gelezen
 
@@ -47,15 +47,16 @@
 
 ### Laatste nieuws
 
+- [Populaire Italiaanse generaal richt uiterst rechtse partij op](https://fd.nl/politiek/1585916/populaire-italiaanse-generaal-richt-uiterst-rechtse-partij-op)
+  > Roberto Vannacci klom op binnen Lega van vicepremier Matteo Salvini, maar gaat nu zijn eigen weg.  Dit kan grote gevolgen hebben voor de rechtse...
+- [Opluchting bij academici over regeerakkoord, ‘maar bezuinigingen hebben wel wat gekost’](https://fd.nl/samenleving/1585970/opluchting-bij-academici-over-regeerakkoord-maar-bezuinigigingen-hebben-wel-wat-gekost)
+  > Het komende kabinet wil de bezuinigingen op het onderwijs terugdraaien. Hard nodig, volgens jonge academici, ‘maar niet zo eenvoudig.’
+- [Nieuwe strategie moet Philips aan langverwachte koersstijging helpen](https://fd.nl/bedrijfsleven/1585829/nieuwe-strategie-moet-philips-aan-langverwachte-koersstijging-helpen)
+  > Analisten denken dat het medisch technologiebedrijf dinsdag hogere winstdoelen zal aankondigen. Ook speculeren analisten op de mogelijke verkoop van...
 - [Uitgever Washington Post stapt op](https://fd.nl/tech-en-innovatie/1585972/uitgever-washington-post-stapt-op)
   > Will Lewis kondigde zaterdag zijn vertrek aan, drie dagen nadat de wereldberoemde krant een derde van het personeel ontsloeg.
 - [Op je gezondheid, Ray!](https://fd.nl/opinie/1585987/op-je-gezondheid-ray)
   > Mathijs Rotteveel ging op bezoek bij Ray Kemble in zijn dorp Dimock (Pennsylvania). De Amerikaan strijdt al jaren tegen de gasmultinationals die...
-- [KPMG wil door AI eigen accountant minder betalen, wakkert tarievendebat aan](https://fd.nl/financiele-markten/1585922/kpmg-wil-door-ai-eigen-accountant-minder-betalen-wakkert-tarievendebat-aan)
-  > KPMG International heeft Grant Thornton, zijn eigen accountant, volgens de FT onder druk gezet om lagere tarieven te rekenen omdat het AI kan...
-- [Reisbedrijf Prijsvrij legt conflict met grootaandeelhouder bij](https://fd.nl/bedrijfsleven/1585915/reisbedrijf-prijsvrij-legt-conflict-met-grootaandeelhouder-bij)
-  > De oprichter van het reisbedrijf blijft het bedrijf leiden en gaat op overnamejacht in het buitenland. De omzet bij de reisorganisator groeide vorig...
-- [Japanse premier Takaichi stevent af op ruime verkiezingswinst](https://fd.nl/politiek/1585971/japanse-premier-takaichi-stevent-af-op-ruime-verkiezingswinst)
 
 ### Meest gelezen
 
