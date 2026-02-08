@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-02-2026 om 20:57*
+*Laatst bijgewerkt: 08-02-2026 om 21:55*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Centrumlinkse Antonió José Seguro nieuwe president Portugal](https://nos.nl/l/2601535)
+  > De presidentsverkiezingen in Portugal zijn gewonnen door António José Seguro. Hoewel nog niet alle stemmen zijn geteld, is al duidelijk dat de...
+- [AI-analyse trekt echtheid twee Jan van Eycks in twijfel](https://nos.nl/l/2601531)
+  > Slecht nieuws voor het Philadelphia Museum of Art en de Musei Reali in Turijn: hun versies van Sint-Franciscus ontvangt de stigmata die aan Jan van...
+- [Zeker 30 doden bij vrachtwagenongeluk in noorden Nigeria](https://nos.nl/l/2601528)
+  > Bij een eenzijdig ongeluk met een vrachtwagen in de deelstaat Kano in het noorden van Nigeria zijn dertig passagiers omgekomen, meldt de gouverneur...
 - [Politie Utrecht grijpt hard in tegen Feyenoord-fans, Feyenoord wil opheldering](https://nos.nl/l/2601523)
   > De politie heeft vanmiddag na de wedstrijd FC Utrecht-Feyenoord hard ingegrepen tegen Feyenoord-fans. Een gemeentewoordvoerder zegt tegen RTV Utrecht...
 - [Trump wil zelf spelregels tussentijdse verkiezingen bepalen](https://nos.nl/l/2601520)
   > De tussentijdse verkiezingen in de Verenigde Staten zijn pas in november, maar er bestaan al zorgen over het verloop. President Trump probeert...
-- [Grote brand bij autobedrijf Geleen geblust, bijgebouw grotendeels verwoest](https://nos.nl/l/2601518)
-  > In een autobedrijf in Geleen in Limburg heeft vanavond een grote brand gewoed. De brand is inmiddels onder controle, maar het gebouw is grotendeels...
-- [Opnieuw jarenlange celstraf voor Iraanse Nobelprijswinnaar Narges Mohammadi](https://nos.nl/l/2601492)
-  > Een Iraanse rechtbank heeft ruim zeven jaar cel opgelegd aan Narges Mohammadi, de activiste die in 2023 de Nobelprijs voor de Vrede kreeg. Haar...
-- [Gebouw in Libanese stad Tripoli ingestort, tot nu toe zes doden gemeld](https://nos.nl/l/2601487)
-  > In de Libanese havenstad Tripoli is een oud woongebouw ingestort. Er zijn zes doden en zeven gewonden gemeld. Het is niet bekend hoeveel mensen onder...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Geen olympische finale, tóch als winnaar naar huis: snowboardster Melissa Peperkamp overwint haar angst](https://www.ad.nl/olympische-spelen/geen-olympische-finale-toch-als-winnaar-naar-huis-snowboardster-melissa-peperkamp-overwint-haar-angst~a2d24c9e/)
+  > Ze haalde niet de finale, wat haar vier jaar geleden wel is gelukt. Maar Melissa Peperkamp kwam toch als winnaar uit de kwalificatie van de Big Air....
+- [Als Erna aanbelt om slecht nieuws te brengen, ziet ze twee jongens van een jaar of 9 en 7 de trap afkomen](https://www.ad.nl/binnenland/als-erna-aanbelt-om-slecht-nieuws-te-brengen-ziet-ze-twee-jongens-van-een-jaar-of-9-en-7-de-trap-afkomen~a5f8a0b8/)
+  > Na een aanrijding op het spoor moet agent Erna met een collega aan de nabestaanden het verdrietige nieuws vertellen. Als ze heeft aangebeld, ziet ze...
 - [Snowboardsters Melissa Peperkamp (21) en Romy van Vreden (20) niet naar finale big air](https://www.ad.nl/olympische-spelen/snowboardsters-melissa-peperkamp-21-en-romy-van-vreden-20-niet-naar-finale-big-air~a6db3385/)
   > Snowboardsters Melissa Peperkamp en Romy van Vreden hebben naast een finaleplek gegrepen op het onderdeel big air. Beiden eindigden zondagavond...
 - [1 aprilgrap wordt nu verkoopknaller: 125.000 zakken worstenbroodchips in een week verkocht](https://www.ad.nl/binnenland/1-aprilgrap-wordt-nu-verkoopknaller-125-000-zakken-worstenbroodchips-in-een-week-verkocht~ae5f1de1/)
   > Familiebedrijf Lekker Brabant uit Oisterwijk heeft meer chips met worstenbroodsmaak verkocht dan echte worstenbroodjes. Binnen een week gingen...
 - [Sommige haarlijnen groeien opeens terug](https://www.ad.nl/binnenland/sommige-haarlijnen-groeien-opeens-terug~ac19adba/)
   > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [Ajax haalde vers bloed, maar ziet Kian Fitz-Jim punt redden tegen AZ: ‘Ik kwam in een vicieuze cirkel terecht’](https://www.ad.nl/voetbal/ajax-haalde-vers-bloed-maar-ziet-kian-fitz-jim-punt-redden-tegen-az-ik-kwam-in-een-vicieuze-cirkel-terecht~a583374d/)
-  > Ajax wil met een versterkte selectie plek twee in de eredivisie veroveren. Maar na de transferperiode heeft uitgerekend een speler die eerder deze...
-- [Opiniepeiler Peter Kanne waarschuwt: ‘De oorlog is al begonnen, maar wij liggen nog in onze e-bikebubbel’](https://www.ad.nl/binnenland/opiniepeiler-peter-kanne-waarschuwt-de-oorlog-is-al-begonnen-maar-wij-liggen-nog-in-onze-e-bikebubbel~a6d90195/)
-  > Peter Kanne is de man van de peilingen. Maar in zijn nieuwe boek peilt hij iets anders: de staat van Nederland. En die baart hem zorgen. Terug in...
 
 ### Meest gelezen
 
