@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-02-2026 om 22:59*
+*Laatst bijgewerkt: 08-02-2026 om 00:01*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Zanger rockband 3 Doors Down Brad Arnold (47) overleden](https://nos.nl/l/2601390)
+  > De zanger van de Amerikaanse rockband 3 Doors Down, Brad Arnold, is op 47-jarige leeftijd overleden. Dat heeft de band bekendgemaakt op Instagram....
 - [Spanje gebukt onder alweer een storm, problemen stapelen zich op](https://nos.nl/l/2601377)
   > Stortregen, overstromingen, evacuaties; Spanje en Portugal blijven gebukt gaan onder stormen en extreme regenval. Afgelopen week richtte storm...
 - [Verslagenheid in Eefde en Kessel na dodelijke ongelukken met minderjarigen](https://nos.nl/l/2601372)
@@ -16,8 +18,6 @@
   > In Noord-Italië zijn vier mensen omgekomen bij lawines. In de regio Valtellina in de Alpen werden drie skiërs door een lawine meegesleurd. Twee van...
 - [VS wil 5-jarige Liam en familie alsnog uitzetten](https://nos.nl/l/2601357)
   > De Amerikaanse regering wil de uitzetting van de familie van het 5-jarige jongetje dat vorige maand door ICE-agenten werd opgepakt, doorzetten. Het...
-- [Frankrijk en Canada openen consulaat in Groenland, gesprekken met VS gaande](https://nos.nl/l/2601355)
-  > Met een gezamenlijk persmoment hebben Groenland, Canada en Frankrijk stilgestaan bij de opening van twee nieuwe consulaten in de Groenlandse...
 
 ### Meest gelezen
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [AD Winterspelen Podcast | ‘Het is belachelijk lastig om koel te blijven na zo’n rit’](https://www.ad.nl/olympische-spelen/ad-winterspelen-podcast-het-is-belachelijk-lastig-om-koel-te-blijven-na-zon-rit~a17ab614/)
+  > Op dag 1 van de Olympische Spelen direct een keiharde tik voor de Nederlandse schaatsers. Gerekend werd op de eerste medailles, maar de conclusie na...
 - [Droom geklapt: Nieky Holzken verliest gevecht om wereldtitel in eigen stad](https://www.ad.nl/vechtsport/droom-geklapt-nieky-holzken-verliest-gevecht-om-wereldtitel-in-eigen-stad~aef271f6/)
   > Nieky Holzken is er niet in geslaagd wereldkampioen te worden bij de World Boxing Federation (WBF). In zijn eigen stad moest de Helmonder zijn...
 - [Fortuna en Sparta spelen gelijk na knotsgekke slotfase in Sittard, bezoekers scoren in laatste seconden](https://www.ad.nl/voetbal/fortuna-en-sparta-spelen-gelijk-na-knotsgekke-slotfase-in-sittard-bezoekers-scoren-in-laatste-seconden~a8abe720/)
@@ -35,8 +37,6 @@
   > Stijn van de Bunt en Marcel Bosker komen bij de Olympische Spelen in Milaan al in de eerste twee ritten in actie op de 5000 meter. Chris Huizinga zit...
 - [Medaillespiegel Olympische Spelen 2026 | Drie landen aan kop na eerste dag, Nederland nog op nul](https://www.ad.nl/olympische-spelen/medaillespiegel-olympische-spelen-2026-drie-landen-aan-kop-na-eerste-dag-nederland-nog-op-nul~a2772ec34/)
   > Hoeveel gouden medailles gaat Nederland pakken tijdens de Olympische Winterspelen 2026 in Milaan en Cortina d’Ampezzo? Hieronder kun je het...
-- [Anticlimax in Arnhem: finalist meldt zich af met gebroken teen, Kromah is kampioen en opvolger van Verhoeven](https://www.ad.nl/vechtsport/anticlimax-in-arnhem-finalist-meldt-zich-af-met-gebroken-teen-kromah-is-kampioen-en-opvolger-van-verhoeven~a2ab1d31/)
-  > Mory Kromah is de opvolger van Rico Verhoeven als wereldkampioen in de zwaargewichtdivisie van Glory. Dat gebeurde echter wel middels een anticlimax...
 
 ### Meest gelezen
 
