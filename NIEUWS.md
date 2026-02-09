@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-02-2026 om 15:14*
+*Laatst bijgewerkt: 09-02-2026 om 18:38*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Cubanen steeds meer in het nauw door maatregelen VS](https://nos.nl/l/2601624)
-  > Inwoners van Cuba hebben meer en meer te lijden onder een groot gebrek aan brandstof, dat het land verder in een economische en energiecrisis duwt....
-- [Gewapende bende probeert geldtransport op Italiaanse snelweg te overvallen](https://nos.nl/l/2601620)
-  > Op een Italiaanse snelweg heeft een gewapende groep vanochtend geprobeerd een geldtransport te overvallen. Het tafereel speelde zich midden op de...
-- [Prominente partijgenoot van Britse premier Starmer roept op tot zijn aftreden](https://nos.nl/l/2601618)
-  > De prominente Britse Labour-politicus Anas Sarwar roept premier Starmer op om af te treden. Sarwar is de leider van de Labour-partij in Schotland en...
-- [Jetten heeft zijn kabinet rond: namen van ministers en staatssecretarissen bekend](https://nos.nl/l/2601615)
-  > Nu de laatste namen van de D66-kandidaat-bewindslieden bekend zijn, is de ploeg voor het minderheidskabinet rond. Met de grote hervormingen die D66,...
-- [Nederlanders kiezen voor 'bistronomie' in plaats van fine dining, restaurantomzet groeit](https://nos.nl/l/2601612)
-  > Steeds vaker kiezen haute cuisine-restaurants voor versimpeling en toegankelijkheid. Dat ziet Godfried van der Lugt, directeur van de toonaangevende...
+- [Buitensporig of juist gepast? Opnieuw discussie over politiegeweld](https://nos.nl/l/2601652)
+  > Opnieuw ligt de politie onder vuur na beelden op sociale media waarin fors geweld wordt gebruikt. Twee weken geleden ontstond ophef over een...
+- [Podcast De Dag: Britse premier Starmer wankelt door Epstein](https://nos.nl/l/2601646)
+  > Keir Starmer zit in het nauw. De Britse premier krijgt kritiek van alle kanten en volgens de Britse pers is het niet de vraag óf, maar wanneer...
+- [Problemen bij verkoop startbewijzen Nijmeegse Vierdaagse](https://nos.nl/l/2601642)
+  > Rond de verkoop van de laatste startbewijzen voor de Nijmeegse Vierdaagse waren vanochtend veel problemen. De circa 2400 tickets waren binnen een uur...
+- [Ook meerderheid gemeenteraad Amsterdam weigert samenwerking met FVD](https://nos.nl/l/2601632)
+  > Bijna alle partijen van de gemeenteraad van Amsterdam sluiten Forum voor Democratie (FVD) uit van samenwerking. Elf partijen ondertekenden een...
+- [NVWA krijgt tientallen meldingen over mogelijk vervuilde babyvoeding](https://nos.nl/l/2601631)
+  > Bij de Nederlandse Voedsel- en Warenautoriteit (NVWA) zijn tientallen meldingen binnengekomen van ouders die vermoeden dat hun kind ziek is is...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Glory pakt wereldtitel Tarik Khbabez af, Haagse vechter verbolgen: ‘Ik heb niets geweigerd’](https://www.ad.nl/vechtsport/glory-pakt-wereldtitel-tarik-khbabez-af-haagse-vechter-verbolgen-ik-heb-niets-geweigerd~a299a6bb0/)
-  > Een enorme plottwist binnen het lichtzwaargewicht van Glory. De Haagse vechter Tarik Khbabez, wereldkampioen in die divisie, weigert volgens Glory...
-- [Mariska verstopt haar autosleutels en Martijn dankbaar voor lieve collega’s](https://www.ad.nl/show/mariska-verstopt-haar-autosleutels-en-martijn-dankbaar-voor-lieve-collegas~a3191581/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Celstraf voor bestuurster leerlingentaxi die onder invloed van ghb ernstig ongeluk veroorzaakte](https://www.ad.nl/binnenland/celstraf-voor-bestuurster-leerlingentaxi-die-onder-invloed-van-ghb-ernstig-ongeluk-veroorzaakte~ab42e143/)
-  > De bestuurster (35) van een leerlingentaxi is door de rechtbank in Leeuwarden veroordeeld tot een celstraf van acht maanden, waarvan vier...
-- [Zo kijkt het buitenland naar Jutta Leerdam: ‘Voor Italianen is ze toch vooral de vriendin van Jake Paul’](https://www.ad.nl/olympische-spelen/zo-kijkt-het-buitenland-naar-jutta-leerdam-voor-italianen-is-ze-toch-vooral-de-vriendin-van-jake-paul~a014498b/)
-  > In Nederland is alles rond Jutta Leerdam nieuws, maar vergaapt de rest van de wereld zich ook aan ons schaatsfenomeen? Deze site struinde door de...
-- [Violist Hadewijch en cabaretier Peter over hun ‘rommelige’ financiën: ‘We redden het, maar sparen zit er niet in’](https://www.ad.nl/geld/violist-hadewijch-en-cabaretier-peter-over-hun-rommelige-financien-we-redden-het-maar-sparen-zit-er-niet-in~a5a3ba3c/)
-  > Hadewijch en Peter ‘struikelen’ een beetje door het gezinsleven. ‘Financieel redden we het, maar sparen zit er niet in’, vertellen ze in deze rubriek...
+- [Zelfs de kerosine is op: bij de vrolijke Cubaan slaat nu echt de wanhoop toe](https://www.ad.nl/buitenland/zelfs-de-kerosine-is-op-bij-de-vrolijke-cubaan-slaat-nu-echt-de-wanhoop-toe~a3936078/)
+  > Een Cubaan weet hoe hij het met weinig moet rooien, maar de energiecrisis maakt nu zelfs de montere Cubaan wanhopig. „Mensen van wie ik het nooit had...
+- [Jake Paul huilend van geluk na goud voor zijn verloofde Jutta Leerdam](https://www.ad.nl/olympische-spelen/jake-paul-huilend-van-geluk-na-goud-voor-zijn-verloofde-jutta-leerdam~a9cea53c/)
+  > Jake Paul heeft het niet droog gehouden nadat zijn verloofde Jutta Leerdam goud pakte op de 1000 meter. De wereldberoemde influencer en bokser zat...
+- [Al die laag geplaatste remlichten in moderne auto’s, mag dat wel?](https://www.ad.nl/auto/al-die-laag-geplaatste-remlichten-in-moderne-autos-mag-dat-wel~a5f489f6/)
+  > Een bron van ergernis: remlichten die zo laag zijn geplaatst, dat de bestuurder die achter de auto rijdt ze niet of nauwelijks kan zien. Mag dat wel,...
+- [Nederlandse ‘Godfather’ Greg Remmers (77) overleden](https://www.ad.nl/binnenland/nederlandse-godfather-greg-remmers-77-overleden~ac4ce000/)
+  > De bekende crimineel Greg Remmers is op 77-jarige leeftijd overleden. Hij gold decennialang als een kopstuk in de Amsterdamse onderwereld. Ten tijde...
+- [Scepsis over een generaal op Volkshuisvesting is voorbarig](https://www.ad.nl/commentaar/scepsis-over-een-generaal-op-volkshuisvesting-is-voorbarig~afed1d84/)
+  > Een generaal op Volkshuisvesting? De ministerspost voor Elanor Boekholt-O’Sullivan in het nieuwe kabinet spreekt zonder twijfel tot de verbeelding....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Alphabet wil $15 mrd ophalen met Amerikaanse obligaties](https://fd.nl/bedrijfsleven/1586045/alphabet-wil-15-mrd-ophalen-met-amerikaanse-obligaties)
-  > Het moederbedrijf van Google wil ook obligaties uitgeven in Zwitserse franken en Britse ponden.
-- [Duurzaamheidswet CSRD gaat ‘niet met terugwerkende kracht’ in](https://fd.nl/financiele-markten/1586114/duurzaamheidswet-csrd-gaat-niet-met-terugwerkende-kracht-in)
-  > ‘De aangekondigde reparatieclausule gaat meer zekerheid bieden aan ondernemingen en accountants,’ zegt NBA voorzitter Bianca de Jong-Muhren.
-- [Financieel winnen op de Olympische Spelen](https://fd.nl/financiele-markten/1585856/financieel-winnen-op-de-olympische-spelen)
-  > Hoeveel is een gouden, zilveren of bronzen medaille waard?
-- [AP-voorzitter over gevaren AI: ‘Ik durf de vergelijking met wapens wel aan’](https://fd.nl/tech-en-innovatie/1586030/ap-voorzitter-over-gevaren-ai-ik-durf-de-vergelijking-met-wapens-wel-aan)
-  > Sommige producten zijn zo risicovol, die mag je niet zomaar verkopen, aldus de voorzitter van de Autoriteit Persoonsgegevens Aleid Wolfsen. Hij...
-- [Randstad hoopt op herstel, analisten zien nog volop beren op de weg](https://fd.nl/financiele-markten/1586111/randstad-hoopt-op-herstel-analisten-zien-nog-volop-beren-op-de-weg)
-  > De laatste paar kwartalen vielen de resultaten van de uitzender tegen. De handelsoorlog, een bevroren arbeidsmarkt en kunstmatige intelligentie...
+- [Techbankier Michael Grimes terug naar Morgan Stanley](https://fd.nl/bedrijfsleven/1586053/techbankier-michael-grimes-terug-naar-morgan-stanley)
+  > De bekende investeringsbankier en naaste adviseur van Elon Musk is terug bij de bank, na een jaar voor de regering-Trump te hebben gewerkt.
+- [Oekraïne stelt wapenexport open](https://fd.nl/economie/1586052/oekraine-stelt-wapenexport-open)
+  > Oekraïne opent tien productielocaties voor defensiematerieel in Europa.
+- [Gokbedrijven in het nauw door opkomst Kalshi en Polymarket](https://fd.nl/financiele-markten/1586115/gokbedrijven-in-het-nauw-door-opkomst-kalshi-en-polymarket)
+  > De gokbedrijven achter FanDuel en DraftKings verliezen op de beurs terrein door de opkomst van nieuwe concurrenten, die met veel minder regels te...
+- [Italië leent tot €390 mln aan noodlijdende staalfabriek](https://fd.nl/bedrijfsleven/1586051/italie-leent-tot-390-mln-aan-noodlijdende-staalfabriek)
+  > De lening moet Acciaierie d’Italia, het voormalige Ilva, tijd geven om een nieuwe eigenaar te vinden. Het staalbedrijf zit in een...
+- [China zegt Amerikaanse staatsobligaties langzaam vaarwel](https://fd.nl/financiele-markten/1586049/china-zegt-amerikaanse-staatsobligaties-langzaam-vaarwel)
+  > Al jaren vermindert China de hoeveelheid Amerikaanse staatsobligaties die het in handen heeft. Peking drukt nu banken op het hart opnieuw kritisch te...
 
 ### Meest gelezen
 
