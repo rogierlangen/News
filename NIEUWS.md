@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-02-2026 om 18:38*
+*Laatst bijgewerkt: 09-02-2026 om 21:05*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Buitensporig of juist gepast? Opnieuw discussie over politiegeweld](https://nos.nl/l/2601652)
-  > Opnieuw ligt de politie onder vuur na beelden op sociale media waarin fors geweld wordt gebruikt. Twee weken geleden ontstond ophef over een...
-- [Podcast De Dag: Britse premier Starmer wankelt door Epstein](https://nos.nl/l/2601646)
-  > Keir Starmer zit in het nauw. De Britse premier krijgt kritiek van alle kanten en volgens de Britse pers is het niet de vraag óf, maar wanneer...
-- [Problemen bij verkoop startbewijzen Nijmeegse Vierdaagse](https://nos.nl/l/2601642)
-  > Rond de verkoop van de laatste startbewijzen voor de Nijmeegse Vierdaagse waren vanochtend veel problemen. De circa 2400 tickets waren binnen een uur...
-- [Ook meerderheid gemeenteraad Amsterdam weigert samenwerking met FVD](https://nos.nl/l/2601632)
-  > Bijna alle partijen van de gemeenteraad van Amsterdam sluiten Forum voor Democratie (FVD) uit van samenwerking. Elf partijen ondertekenden een...
-- [NVWA krijgt tientallen meldingen over mogelijk vervuilde babyvoeding](https://nos.nl/l/2601631)
-  > Bij de Nederlandse Voedsel- en Warenautoriteit (NVWA) zijn tientallen meldingen binnengekomen van ouders die vermoeden dat hun kind ziek is is...
+- [Bulgarije in de ban van mysterieuze vondst zes doden in bergen](https://nos.nl/l/2601674)
+  > In de bergen in het westen van Bulgarije zijn zes doden gevonden onder vreemde omstandigheden. De zaak houdt de gemoederen in het land flink bezig,...
+- [Vallende containers vallen op schip in Rotterdamse haven](https://nos.nl/l/2601670)
+  > In de Rotterdamse haven zijn afgelopen vrijdag negen lege containers van grote hoogte naar beneden gevallen bij het laden van een containerschip. De...
+- [Staking Spanje om onveilig spoor beëindigd, akkoord met vakbonden](https://nos.nl/l/2601666)
+  > In Spanje is een grote spoorstaking na één dag al voorbij. De bonden hadden aangekondigd dat een deel van het treinverkeer drie dagen lang zou...
+- [Koning Charles biedt aan politie te helpen bij onderzoek naar zijn broer](https://nos.nl/l/2601660)
+  > Buckingham Palace biedt aan de Britse politie te helpen bij een onderzoek naar de broer van koning Charles, Andrew Mountbatten Windsor. Die wordt...
+- [Duitse lhbti'er die in stadion huwelijksaanzoek deed zegt mishandeld te zijn](https://nos.nl/l/2601657)
+  > Een Duitse amateurscheidsrechter die in januari zijn vriend in het stadion van de voetbalclub 1. FC Köln ten huwelijk vroeg, zegt dat hij thuis door...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zelfs de kerosine is op: bij de vrolijke Cubaan slaat nu echt de wanhoop toe](https://www.ad.nl/buitenland/zelfs-de-kerosine-is-op-bij-de-vrolijke-cubaan-slaat-nu-echt-de-wanhoop-toe~a3936078/)
-  > Een Cubaan weet hoe hij het met weinig moet rooien, maar de energiecrisis maakt nu zelfs de montere Cubaan wanhopig. „Mensen van wie ik het nooit had...
-- [Jake Paul huilend van geluk na goud voor zijn verloofde Jutta Leerdam](https://www.ad.nl/olympische-spelen/jake-paul-huilend-van-geluk-na-goud-voor-zijn-verloofde-jutta-leerdam~a9cea53c/)
-  > Jake Paul heeft het niet droog gehouden nadat zijn verloofde Jutta Leerdam goud pakte op de 1000 meter. De wereldberoemde influencer en bokser zat...
-- [Al die laag geplaatste remlichten in moderne auto’s, mag dat wel?](https://www.ad.nl/auto/al-die-laag-geplaatste-remlichten-in-moderne-autos-mag-dat-wel~a5f489f6/)
-  > Een bron van ergernis: remlichten die zo laag zijn geplaatst, dat de bestuurder die achter de auto rijdt ze niet of nauwelijks kan zien. Mag dat wel,...
-- [Nederlandse ‘Godfather’ Greg Remmers (77) overleden](https://www.ad.nl/binnenland/nederlandse-godfather-greg-remmers-77-overleden~ac4ce000/)
-  > De bekende crimineel Greg Remmers is op 77-jarige leeftijd overleden. Hij gold decennialang als een kopstuk in de Amsterdamse onderwereld. Ten tijde...
-- [Scepsis over een generaal op Volkshuisvesting is voorbarig](https://www.ad.nl/commentaar/scepsis-over-een-generaal-op-volkshuisvesting-is-voorbarig~afed1d84/)
-  > Een generaal op Volkshuisvesting? De ministerspost voor Elanor Boekholt-O’Sullivan in het nieuwe kabinet spreekt zonder twijfel tot de verbeelding....
+- [Dirk Kuyt boekt derde zege op rij met FC Dordrecht, Jong PSV klopt TOP Oss](https://www.ad.nl/voetbal/dirk-kuyt-boekt-derde-zege-op-rij-met-fc-dordrecht-jong-psv-klopt-top-oss~a9de5d0c/)
+  > FC Dordrecht heeft voor de derde keer op rij gewonnen. De ploeg van Dirk Kuyt boekte een 1-2 zege bij Jong AZ en klom daardoor naar de negende plaats...
+- [Te weinig geld voor noodzakelijk onderhoud bij veel vve’s: bewoners betalen de rekening](https://www.ad.nl/economie/te-weinig-geld-voor-noodzakelijk-onderhoud-bij-veel-vves-bewoners-betalen-de-rekening~a059123f/)
+  > Bijna één op de vijf verenigingen van eigenaren (vve’s) komt geld tekort voor noodzakelijk onderhoud. Het risico op achterstallig onderhoud is...
+- [Olympiërs klagen over kapotte medaille: ‘Ik sprong van blijdschap en toen brak het’](https://www.ad.nl/olympische-spelen/olympiers-klagen-over-kapotte-medaille-ik-sprong-van-blijdschap-en-toen-brak-het~a8afacd24/)
+  > Jutta Leerdam heeft Nederland het eerste goud bezorgd tijdens deze Olympische Winterspelen. Ze greep op sensationele wijze de titel op de 1000 meter,...
+- [Botic van de Zandschulp kent stroef begin, maar wint wel: Nederlander door naar tweede ronde in Rotterdam](https://www.ad.nl/tennis/botic-van-de-zandschulp-kent-stroef-begin-maar-wint-wel-nederlander-door-naar-tweede-ronde-in-rotterdam~a66f25c6/)
+  > Botic van de Zandschulp is door naar de tweede ronde van het ABN Amro Open. De Nederlander had het lastig aan het begin van zijn eersterondewedstrijd...
+- [Femke Kok over historische omhelzing met tegenpool Jutta Leerdam: ‘Wij hebben veel respect voor elkaar’](https://www.ad.nl/olympische-spelen/femke-kok-over-historische-omhelzing-met-tegenpool-jutta-leerdam-wij-hebben-veel-respect-voor-elkaar~a382ca2d/)
+  > Samen met Jutta Leerdam schreef Femke Kok Nederlandse sportgeschiedenis. Zilver op de 1000 meter na een zinderende avond in Milaan. Straks op de 500...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Techbankier Michael Grimes terug naar Morgan Stanley](https://fd.nl/bedrijfsleven/1586053/techbankier-michael-grimes-terug-naar-morgan-stanley)
-  > De bekende investeringsbankier en naaste adviseur van Elon Musk is terug bij de bank, na een jaar voor de regering-Trump te hebben gewerkt.
-- [Oekraïne stelt wapenexport open](https://fd.nl/economie/1586052/oekraine-stelt-wapenexport-open)
-  > Oekraïne opent tien productielocaties voor defensiematerieel in Europa.
-- [Gokbedrijven in het nauw door opkomst Kalshi en Polymarket](https://fd.nl/financiele-markten/1586115/gokbedrijven-in-het-nauw-door-opkomst-kalshi-en-polymarket)
-  > De gokbedrijven achter FanDuel en DraftKings verliezen op de beurs terrein door de opkomst van nieuwe concurrenten, die met veel minder regels te...
-- [Italië leent tot €390 mln aan noodlijdende staalfabriek](https://fd.nl/bedrijfsleven/1586051/italie-leent-tot-390-mln-aan-noodlijdende-staalfabriek)
-  > De lening moet Acciaierie d’Italia, het voormalige Ilva, tijd geven om een nieuwe eigenaar te vinden. Het staalbedrijf zit in een...
-- [China zegt Amerikaanse staatsobligaties langzaam vaarwel](https://fd.nl/financiele-markten/1586049/china-zegt-amerikaanse-staatsobligaties-langzaam-vaarwel)
-  > Al jaren vermindert China de hoeveelheid Amerikaanse staatsobligaties die het in handen heeft. Peking drukt nu banken op het hart opnieuw kritisch te...
+- [Odido blaast beursgang af](https://fd.nl/bedrijfsleven/1586055/odido-blaast-beursgang-af)
+  > Telecomconcern Odido heeft zijn plannen voor een beursgang in Amsterdam uitgesteld, meldt persbureau Reuters maandagavond.
+- [Theo Henrar tijdelijk voorzitter VNO-NCW](https://fd.nl/bedrijfsleven/1586120/theo-henrar-tijdelijk-voorzitter-vno-ncw)
+  > De huidig vicevoorzitter begint per 1 maart en zal aanblijven tot de benoeming van een nieuwe voorzitter rond is, meldt VNO-NCW.
+- [Om partners verlegen advocatuur kan leren van notariaat](https://fd.nl/opinie/1586105/om-partners-verlegen-advocatuur-kan-leren-van-notariaat)
+  > Steeds meer notarissen werken in loondienst. Ook accountantskantoren moderniseren hun organisatie qua personeelsbeleid. De advocatuur kan er allicht...
+- [Zwaargewichten bezuinigen, nieuwkomers gaan hervormen](https://fd.nl/politiek/1586048/zwaargewichten-bezuinigen-nieuwkomers-gaan-hervormen)
+  > De kandidaten voor het kabinet-Jetten zijn allemaal bekend. Haagse outsiders krijgen Economische Zaken, Wonen en Landbouw, het stikstofministerie.
+- [Knot hekelt gebrek aan tempo bij hervormingen EU](https://fd.nl/financiele-markten/1586104/knot-hekelt-gebrek-aan-tempo-bij-hervormingen-eu)
+  > Nederland kan zich een ‘beperkte blik’ op de Europese samenwerking niet langer veroorloven, waarschuwt de voormalig DNB-president. Hij mist concrete...
 
 ### Meest gelezen
 
