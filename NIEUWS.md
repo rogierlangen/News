@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-02-2026 om 05:45*
+*Laatst bijgewerkt: 09-02-2026 om 08:07*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Openbaar vervoer in Den Haag en Rotterdam ontregeld door stroomstoring](https://nos.nl/l/2601562)
+  > Een grote stroomstoring zorgt deze ochtend in Den Haag en Rotterdam voor problemen met het openbaar vervoer. Op verschillende trajecten rijden geen...
+- ['6 miljoen geëist voor moeder NBC-presentator, deadline verstrijkt vandaag'](https://nos.nl/l/2601561)
+  > Een losgeldbrief voor de ontvoerde moeder van NBC-presentator Savannah Guthrie eist 6 miljoen dollar in bitcoins voor haar vrijlating. Dat meldt een...
+- [Ruim de helft meer asielaanvragen afgewezen in Nederland, sterke daling Syriërs](https://nos.nl/l/2601559)
+  > Vorig jaar zijn in Nederland aanzienlijk meer asielaanvragen afgewezen dan een jaar eerder. Het Centraal Bureau voor de Statistiek (CBS) meldt dat...
+- [Driedaagse spoorstaking in Spanje begonnen, personeel eist meer veiligheid](https://nos.nl/l/2601557)
+  > Grote delen van het Spaanse spoorwegnet liggen vanaf vanochtend 72 uur stil. Het spoorwegpersoneel houdt een driedaagse staking, die werd...
 - [Wekdienst 9/2: Protesterende ambtenaren • 1000 meter schaatsen op de Spelen](https://nos.nl/l/2601554)
   > Goedemorgen! Op verschillende plekken in Nederland voeren rijksambtenaren rond het middaguur actie tegen de zogeheten "nullijn", waardoor zij dit...
-- [Toeslagenouders opnieuw in de schulden door goedbedoelde betaalpauze](https://nos.nl/l/2601552)
-  > Het leek jaren geleden een goed idee: de gedupeerden van de toeslagenaffaire rust gunnen door ze even geen rekeningen van de Belastingdienst en...
-- [Bad Bunny eert Puerto Rico en liefde tijdens halftime-show: 'Samen zijn we Amerika'](https://nos.nl/l/2601548)
-  > Het podium van het grootste jaarlijkse Amerikaanse sportevenement, de Super Bowl, was voor ongeveer een kwartiertje het toneel van Benito Antonio...
-- [Mediamagnaat Jimmy Lai krijgt twintig jaar cel in Hongkong](https://nos.nl/l/2601546)
-  > Mediamagnaat Jimmy Lai is door de rechtbank in Hongkong veroordeeld tot twintig jaar celstraf voor het samenspannen met buitenlandse machten en het...
-- ['Prominente Venezolaanse politicus ontvoerd na vrijlating'](https://nos.nl/l/2601545)
-  > De gisteravond vrijgelaten Venezolaanse oppositiepoliticus Juan Pablo Guanipa is ontvoerd in een wijk in Caracas. Dat meldt de Venezolaanse...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Bezoek aan Lidl eindigt bijna in drama, Fons (76) en Jeanne (74) beleven hachelijk avontuur met winkelwa­gen](https://www.ad.nl/binnenland/bezoek-aan-lidl-eindigt-bijna-in-drama-fons-76-en-jeanne-74-beleven-hachelijk-avontuur-met-winkelwagen~add4608f/)
-  > Hij een hersenschudding en allebei diverse kneuzingen. Een ochtendbezoek aan de Lidl in Meerhoven, werd voor Fons en Jeanne Buijsse uit Veldhoven een...
-- [1 aprilgrap wordt nu verkoopknaller: 125.000 zakken worstenbroodchips in een week verkocht](https://www.ad.nl/binnenland/1-aprilgrap-wordt-nu-verkoopknaller-125-000-zakken-worstenbroodchips-in-een-week-verkocht~ae5f1de1/)
-  > Familiebedrijf Lekker Brabant uit Oisterwijk heeft meer chips met worstenbroodsmaak verkocht dan echte worstenbroodjes. Binnen een week gingen...
-- [Na wéér een gestaakte wedstrijd kapt scheidsrechter (56) er voorgoed mee: ‘Ik voel me niet veilig meer’](https://www.ad.nl/binnenland/na-weer-een-gestaakte-wedstrijd-kapt-scheidsrechter-56-er-voorgoed-mee-ik-voel-me-niet-veilig-meer~a643d44a/)
-  > Hij is er klaar mee. En goed ook. Scheidsrechter Edwin Verwer (56) uit Moerdijk bergt na 24 jaar zijn fluit op, nadat hij zaterdag voor de tweede...
-- [NBC-presentatrice moet vóór vanavond 5 miljoen betalen om ontvoerde moeder terug te krijgen: ‘We smeken je’](https://www.ad.nl/buitenland/nbc-presentatrice-moet-voor-vanavond-5-miljoen-betalen-om-ontvoerde-moeder-terug-te-krijgen-we-smeken-je~a4a5ea9e/)
-  > Zes miljoen dollar (5,1 miljoen euro) tegen maandagavond 17 uur (lokale tijd). Dat is de eis die de ontvoerder van Nancy Guthrie (84) heeft gesteld...
-- [Dit is de omstreden functie van blauwe reflectoren op bermpalen](https://www.ad.nl/auto/dit-is-de-omstreden-functie-van-blauwe-reflectoren-op-bermpalen~ae2217a6/)
-  > De zwart-wit gekleurde bermpalen die de rijbaan markeren zijn soms voorzien van kleine blauwe reflectoren aan de zijkant. Ze worden geplaatst om...
+- [Handelsverdragen tuimelen over elkaar heen, maar wat hebben we er eigenlijk aan?](https://www.ad.nl/geld/handelsverdragen-tuimelen-over-elkaar-heen-maar-wat-hebben-we-er-eigenlijk-aan~a12d5f1b/)
+  > De Europese Commissie sluit de ene na de andere handelsovereenkomst met buitenlandse partijen. Economisch gezien stellen de verdragen niet veel voor....
+- [Favoriete Jutta Leerdam komt op 1000 meter in slotrit in actie tegen titelverdedigster](https://www.ad.nl/olympische-spelen/favoriete-jutta-leerdam-komt-op-1000-meter-in-slotrit-in-actie-tegen-titelverdedigster~a8afacd24/)
+  > Maandag 9 februari zal al maandenlang met hoofdletters in de agenda van Jutta Leerdam staan. Het is voor de 27-jarige schaatsster dé kans om haar...
+- [Het lijkt eerst bijna lente, maar daarna neemt de temperatuur weer een flinke duik](https://www.ad.nl/binnenland/het-lijkt-eerst-bijna-lente-maar-daarna-neemt-de-temperatuur-weer-een-flinke-duik~ae028962/)
+  > Wie zijn winterjas al voorzichtig naar de zolder wilde bonjouren: doe maar even niet. Na een paar uitzonderlijk zachte dagen zet de temperatuur een...
+- [Hoge militair wordt verantwoordelijk voor bouw 100 duizend huizen per jaar](https://www.ad.nl/politiek/hoge-militair-wordt-verantwoordelijk-voor-bouw-100-duizend-huizen-per-jaar~a2495191/)
+  > Luitenant-generaal Elanor Boekholt-O’Sullivan wordt namens D66 minister voor Volkshuisvesting in het kabinet-Jetten. Inmiddels zijn bijna alle namen...
+- [Gedoe bij NS: op diverse plaatsen minder of geen treinen](https://www.ad.nl/binnenland/gedoe-bij-ns-op-diverse-plaatsen-minder-of-geen-treinen~a2214c4b/)
+  > Op diverse plaatsen rijden maandag tijdens de ochtendspits minder of geen treinen. De NS meldt dat er door een stroomstoring tot circa 09.30 uur geen...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Russische economie betaalt tol voor vier jaar oorlog](https://fd.nl/economie/1585928/russische-economie-betaalt-tol-voor-vier-jaar-oorlog)
-  > Vandaag in Dagkoers: de Russische economie lijdt onder de vier jaar durende aanval op Oekraïne, gemeenten grijpen in tegen pakketautomaten, en lokale...
-- [Eén plan erbij](https://fd.nl/opinie/1585993/een-plan-erbij)
-  > Laten we met een dunne kaasschaaf over alle vermogens gaan.
-- [Grote gemeenten willen meer grip op groei pakketautomaten](https://fd.nl/bedrijfsleven/1585867/grote-gemeenten-willen-meer-grip-op-groei-pakketautomaten)
-  > Bezorgers en retailers investeren in duizenden extra pakketkluizen. De vier grote steden willen nu afspraken maken over waar de pakketkluizen mogen...
-- [Bitcoindelvers diep in het rood door sterk gedaalde cryptokoers](https://fd.nl/financiele-markten/1585858/bitcoindelvers-diep-in-het-rood-door-sterk-gedaalde-cryptokoers)
-  > Bitcoinminers lijden door de sterk gedaalde koers grotere verliezen dan ooit. De cryptodelvers zijn essentieel voor het stutten van de bitcoinprijs,...
-- [De prijs van vervuilde babymelk](https://fd.nl/opinie/1585848/de-prijs-van-vervuilde-babymelk)
-  > Je hoopt dat het bedrijf leerde van de vorige flesvoeding-affaire. Maar vijftig jaar later wijst het moreel kompas van Nestlé nog altijd meer in de...
+- [NX Filtration verkleint operationeel verlies en ziet omzet stijgen, maar niet zo hard als gehoopt](https://fd.nl/bedrijfsleven/1586093/nx-filtration-verlaagt-operationeel-verlies-en-ziet-omzet-stijgen-maar-niet-zo-hard-als-gehoopt)
+  > De verhuizing naar een nieuwe fabriek heeft geleid tot lagere kosten, zegt ceo Floris Jan Cuypers van het beursgenoteerde waterzuiveringsbedrijf,
+- [DSM-Firmenich verkoopt diervoedingstak voor €2,2 mrd aan CVC Capital Partners](https://fd.nl/bedrijfsleven/1586019/dsm-firmenich-verkoopt-diervoedingstak-voor-2-2mrd-aan-cvccapital-partners)
+  > De Nederlands-Zwitserse ingrediëntenfabrikant onderhandelt al sinds vorige zomer met CVC. Verkoop moet leiden tot een hogere waardering op de beurs.
+- [‘Oppositiepoliticus Venezuela ontvoerd na vrijlating uit gevangenis’](https://fd.nl/politiek/1586092/oppositiepoliticus-venezuela-ontvoerd-na-vrijlating-uit-gevangenis)
+  > Juan Pablo Guanipa zette na zijn vrijlating video’s op sociale media waarin hij aandrong op de vrijlating van andere politieke gevangenen.
+- [Bedrijfsleven in VS is ‘de hond die nog niet heeft geblaft’ tegen Trump](https://fd.nl/politiek/1585293/bedrijfsleven-in-vs-is-de-hond-die-nog-niet-heeft-geblaft-tegen-trump)
+  > Onder president Donald Trump komt de democratie in de VS onder grote druk te staan, waarschuwt politicoloog Robert Foa. Hij zet zijn kaarten op het...
+- [Mediamagnaat Jimmy Lai krijgt twintig jaar cel voor opruiing en samenzwering](https://fd.nl/politiek/1586091/mediamagnaat-jimmy-lai-krijgt-twintig-jaar-cel-voor-opruiing-en-samenzwering)
+  > De straf is de zwaarste onder de nationale veiligheidswet die Peking Hongkong oplegde na prodemocratische protesten in 2019.
 
 ### Meest gelezen
 
