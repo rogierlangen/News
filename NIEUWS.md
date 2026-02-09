@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-02-2026 om 21:05*
+*Laatst bijgewerkt: 09-02-2026 om 23:55*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [VS draagt bevel twee NAVO-hoofdkwartieren over aan Europeanen](https://nos.nl/l/2601679)
+  > De Verenigde Staten dragen het bevel over twee operationele hoofdkwartieren van de NAVO over aan Europese officieren. Het zijn de hoofdkwartieren in...
 - [Bulgarije in de ban van mysterieuze vondst zes doden in bergen](https://nos.nl/l/2601674)
   > In de bergen in het westen van Bulgarije zijn zes doden gevonden onder vreemde omstandigheden. De zaak houdt de gemoederen in het land flink bezig,...
 - [Vallende containers vallen op schip in Rotterdamse haven](https://nos.nl/l/2601670)
@@ -16,8 +18,6 @@
   > In Spanje is een grote spoorstaking na één dag al voorbij. De bonden hadden aangekondigd dat een deel van het treinverkeer drie dagen lang zou...
 - [Koning Charles biedt aan politie te helpen bij onderzoek naar zijn broer](https://nos.nl/l/2601660)
   > Buckingham Palace biedt aan de Britse politie te helpen bij een onderzoek naar de broer van koning Charles, Andrew Mountbatten Windsor. Die wordt...
-- [Duitse lhbti'er die in stadion huwelijksaanzoek deed zegt mishandeld te zijn](https://nos.nl/l/2601657)
-  > Een Duitse amateurscheidsrechter die in januari zijn vriend in het stadion van de voetbalclub 1. FC Köln ten huwelijk vroeg, zegt dat hij thuis door...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dirk Kuyt boekt derde zege op rij met FC Dordrecht, Jong PSV klopt TOP Oss](https://www.ad.nl/voetbal/dirk-kuyt-boekt-derde-zege-op-rij-met-fc-dordrecht-jong-psv-klopt-top-oss~a9de5d0c/)
+- [AD Winterspelen Podcast | ‘Jutta Leerdam en Femke Kok hebben het beste in elkaar naar boven gehaald’](https://www.ad.nl/olympische-spelen/ad-winterspelen-podcast-jutta-leerdam-en-femke-kok-hebben-het-beste-in-elkaar-naar-boven-gehaald~a17ab614/)
+  > De druk was immens. Ondraaglijk bijna. Maar ze bezweek niet, sterker nog: Jutta Leerdam reed de race van haar leven. Goud op de 1000 meter, zilver...
+- [Lindsey Vonn heeft ondanks ‘intense pijn’ geen spijt van deelname: ‘Val had niks met mijn kruisband te maken’](https://www.ad.nl/olympische-spelen/lindsey-vonn-heeft-ondanks-intense-pijn-geen-spijt-van-deelname-val-had-niks-met-mijn-kruisband-te-maken~a963c162/)
+  > Lindsey Vonn heeft gereageerd op haar val tijdens de afdaling op de Olympische Spelen. De 41-jarige Amerikaanse skiester ging met een kapotte...
+- [Twee goals voor Donyell Malen bij AS Roma, Francesco Farioli verspeelt met FC Porto in 100ste minuut zege](https://www.ad.nl/voetbal/twee-goals-voor-donyell-malen-bij-as-roma-francesco-farioli-verspeelt-met-fc-porto-in-100ste-minuut-zege~a8c25c8b/)
+  > Donyell Malen heeft AS Roma aan een thuiszege op Cagliari (2-0) geholpen. De aanvaller maakte beide doelpunten in Stadio Olimpico van de Italiaanse...
+- [Dirk Kuyt boekt vierde zege op rij met FC Dordrecht, Jong PSV klopt TOP Oss](https://www.ad.nl/voetbal/dirk-kuyt-boekt-vierde-zege-op-rij-met-fc-dordrecht-jong-psv-klopt-top-oss~a9de5d0c/)
   > FC Dordrecht heeft voor de derde keer op rij gewonnen. De ploeg van Dirk Kuyt boekte een 1-2 zege bij Jong AZ en klom daardoor naar de negende plaats...
 - [Te weinig geld voor noodzakelijk onderhoud bij veel vve’s: bewoners betalen de rekening](https://www.ad.nl/economie/te-weinig-geld-voor-noodzakelijk-onderhoud-bij-veel-vves-bewoners-betalen-de-rekening~a059123f/)
   > Bijna één op de vijf verenigingen van eigenaren (vve’s) komt geld tekort voor noodzakelijk onderhoud. Het risico op achterstallig onderhoud is...
-- [Olympiërs klagen over kapotte medaille: ‘Ik sprong van blijdschap en toen brak het’](https://www.ad.nl/olympische-spelen/olympiers-klagen-over-kapotte-medaille-ik-sprong-van-blijdschap-en-toen-brak-het~a8afacd24/)
-  > Jutta Leerdam heeft Nederland het eerste goud bezorgd tijdens deze Olympische Winterspelen. Ze greep op sensationele wijze de titel op de 1000 meter,...
-- [Botic van de Zandschulp kent stroef begin, maar wint wel: Nederlander door naar tweede ronde in Rotterdam](https://www.ad.nl/tennis/botic-van-de-zandschulp-kent-stroef-begin-maar-wint-wel-nederlander-door-naar-tweede-ronde-in-rotterdam~a66f25c6/)
-  > Botic van de Zandschulp is door naar de tweede ronde van het ABN Amro Open. De Nederlander had het lastig aan het begin van zijn eersterondewedstrijd...
-- [Femke Kok over historische omhelzing met tegenpool Jutta Leerdam: ‘Wij hebben veel respect voor elkaar’](https://www.ad.nl/olympische-spelen/femke-kok-over-historische-omhelzing-met-tegenpool-jutta-leerdam-wij-hebben-veel-respect-voor-elkaar~a382ca2d/)
-  > Samen met Jutta Leerdam schreef Femke Kok Nederlandse sportgeschiedenis. Zilver op de 1000 meter na een zinderende avond in Milaan. Straks op de 500...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Odido blaast beursgang af](https://fd.nl/bedrijfsleven/1586055/odido-blaast-beursgang-af)
-  > Telecomconcern Odido heeft zijn plannen voor een beursgang in Amsterdam uitgesteld, meldt persbureau Reuters maandagavond.
-- [Theo Henrar tijdelijk voorzitter VNO-NCW](https://fd.nl/bedrijfsleven/1586120/theo-henrar-tijdelijk-voorzitter-vno-ncw)
-  > De huidig vicevoorzitter begint per 1 maart en zal aanblijven tot de benoeming van een nieuwe voorzitter rond is, meldt VNO-NCW.
-- [Om partners verlegen advocatuur kan leren van notariaat](https://fd.nl/opinie/1586105/om-partners-verlegen-advocatuur-kan-leren-van-notariaat)
-  > Steeds meer notarissen werken in loondienst. Ook accountantskantoren moderniseren hun organisatie qua personeelsbeleid. De advocatuur kan er allicht...
-- [Zwaargewichten bezuinigen, nieuwkomers gaan hervormen](https://fd.nl/politiek/1586048/zwaargewichten-bezuinigen-nieuwkomers-gaan-hervormen)
-  > De kandidaten voor het kabinet-Jetten zijn allemaal bekend. Haagse outsiders krijgen Economische Zaken, Wonen en Landbouw, het stikstofministerie.
-- [Knot hekelt gebrek aan tempo bij hervormingen EU](https://fd.nl/financiele-markten/1586104/knot-hekelt-gebrek-aan-tempo-bij-hervormingen-eu)
-  > Nederland kan zich een ‘beperkte blik’ op de Europese samenwerking niet langer veroorloven, waarschuwt de voormalig DNB-president. Hij mist concrete...
+- [Japanse gok](https://fd.nl/opinie/1586122/japanse-gok)
+  > Lukt het de Japanse premier Sanae Takaichi te hervormen zoals haar inspiratiebron Iron Lady Thatcher of eindigt ze als Iceberg Lady Truss, genadeloos...
+- [Oorlog met Iran: ingewikkeld dilemma](https://fd.nl/opinie/1586027/oorlog-met-iran-ingewikkeld-dilemma)
+  > Terwijl Amerikaanse F-22’s paraat staan en Netanyahu de druk opvoert, loopt de diplomatie met Iran vast. Dreigt er een oorlog met Iran, of wijkt...
+- [Fusie- en overnameadviseurs Imap en Taurus gaan samen](https://fd.nl/bedrijfsleven/1585860/fusie-en-overnameadviseurs-imap-en-taurus-gaan-samen)
+  > Naar eigen zeggen hebben beide kantoren vorig jaar opgeteld 63 transacties afgerond, met een totale waarde van €1,8 mrd.
+- [Personalia dinsdag 10 februari](https://fd.nl/bedrijfsleven/1586102/personalia-dinsdag-10-februari)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [S&P 500 op recordhoogte door aanhoudende techrally](https://fd.nl/financiele-markten/1586136/s-p-500-op-recordhoogte-door-aanhoudende-techrally)
+  > Na een stijging die $1 mrd aan de waarde van de S&P 500 eind vorige week toevoegde, bleef de index stijgen. De technologiebedrijven die zwaar waren...
 
 ### Meest gelezen
 
