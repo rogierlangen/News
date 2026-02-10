@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-02-2026 om 15:49*
+*Laatst bijgewerkt: 10-02-2026 om 19:45*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Spotify groeide afgelopen jaar met 76 miljoen gebruikers naar 751 miljoen](https://nos.nl/l/2601786)
-  > Muziekstreamingdienst Spotify heeft vorig jaar 76 miljoen nieuwe gebruikers gekregen. In totaal maken maandelijks 751 miljoen mensen gebruik van de...
-- [Kamerleden willen meer actie van kabinet tegen speelzand met asbest](https://nos.nl/l/2601783)
-  > Een groot deel van de Tweede Kamer wil dat het kabinet meer doet om te voorkomen dat kinderen spelen met speelzand dat mogelijk verontreinigd is met...
-- [Oppositie stemt kiesdrempelvoorstel minderheidscoalitie weg](https://nos.nl/l/2601776)
-  > Een meerderheid in de Tweede Kamer is tegen het voorstel van D66, VVD en CDA om te onderzoeken of er een hogere kiesdrempel moet worden ingevoerd....
-- [Podcast De Dag: dit is de jonge minister met de moeilijkste missie](https://nos.nl/l/2601775)
-  > Jaimi van Essen (34) krijgt een van de moeilijkste posten in het nieuwe kabinet. Van Essen zal het land van het stikstofslot moeten halen, én...
-- [Kwantum en Leen Bakker overgenomen door Europese investeerder](https://nos.nl/l/2601772)
-  > De woonwinkelketens Kwantum en Leen Bakker worden overgenomen door een Europese investeringsmaatschappij. Daarmee lijkt er een einde te komen aan een...
+- [Extremistische groepen omzeilen online detectiemethoden voor propaganda](https://nos.nl/l/2601814)
+  > Het Openbaar Ministerie maakte vandaag bekend dat verspreid over Nederland zestien verdachten zijn aangehouden omdat ze anderen tot het plegen van...
+- [Skûtsje mag na restauratie niet meer meezeilen, tot ontsteltenis van de schipper](https://nos.nl/l/2601800)
+  > Het is al dagenlang onrustig in de Friese zeilwereld nadat de organisatie van het Open Fries Kampioenschap Skûtsjesilen (IFKS) vorige week een...
+- [Advocaat Michael Ruperti stopt na schorsing](https://nos.nl/l/2601798)
+  > Michael Ruperti stopt als advocaat. Dat maakte hij bekend in een bericht op LinkedIn, nadat hij maandag voor vier weken werd geschorst.
+        De...
+- [Vacaturesite Defensie populair door 'Máxima-effect'](https://nos.nl/l/2601794)
+  > De interesse in de Koninklijke Landmacht is toegenomen sinds koningin Máxima zich als reservist heeft aangemeld. Volgens het ministerie van Defensie...
+- [Gaswinning Warffum ligt na een half jaar nog steeds stil](https://nos.nl/l/2601793)
+  > Al meer dan een half jaar lukt het de Nederlandse Aardolie Maatschappij (NAM) niet of nauwelijks om gas te winnen uit het gasveld bij het Groningse...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Dit zijn de signalen dat een ‘droomhuis’ eigenlijk een valkuil is](https://www.ad.nl/wonen/dit-zijn-de-signalen-dat-een-droomhuis-eigenlijk-een-valkuil-is~adc63e51/)
-  > Als iets te mooi lijkt om waar te zijn, is dat meestal ook zo. Dat geldt zeker voor woningen die te koop staan. Niet alleen met AI bewerkte...
-- [‘Mensen zeggen dat ik zelfmoord moet plegen’: Freestyles­kiër krijgt doodsbe­drei­gin­gen na an­ti-ICE-ac­tie op Spelen](https://www.ad.nl/olympische-spelen/mensen-zeggen-dat-ik-zelfmoord-moet-plegen-freestyleskier-krijgt-doodsbedreigingen-na-anti-ice-actie-op-spelen~adc4a9df/)
-  > De Britse freestyleskiër Gus Kenworthy (34) heeft op sociale media veel haat, homofobe beledigingen en zelfs doodsbedreigingen ontvangen. Dit...
-- [Drie jaar cel voor man die dronken en zonder rijbewijs 84-jarige vrouw doodreed](https://www.ad.nl/binnenland/drie-jaar-cel-voor-man-die-dronken-en-zonder-rijbewijs-84-jarige-vrouw-doodreed~a1d70177/)
-  > De dronken man zonder rijbewijs die met een bestelbus een 84-jarige vrouw doodreed in Noord-Scharwoude, krijgt drie jaar cel. Dat heeft de rechtbank...
-- [‘Internetproviders hebben een pervers verdienmodel: vaste klanten financieren nieuwe klanten’](https://www.ad.nl/binnenland/internetproviders-hebben-een-pervers-verdienmodel-vaste-klanten-financieren-nieuwe-klanten~a55f31b7/)
-  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag leggen we lezers het volgende voor: als ik 250 euro per jaar kan besparen...
-- ['Ik heb het voor het team verpest': Xandra Velzeboer breekt na val die Nederland goud kostte](https://www.ad.nl/olympische-spelen/ik-heb-het-voor-het-team-verpest-xandra-velzeboer-breekt-na-val-die-nederland-goud-kostte~aea76fc2/)
-  > Ze hebben laten zien dat ze de besten zijn, maar werden vijfde. De val van Xandra Velzeboer in de halve finale van de gemengde aflossing, volgend op...
+- [Fransman misbruikte 89 kinderen in zeker negen landen: justitie probeert alle slachtoffers te traceren](https://www.ad.nl/buitenland/fransman-misbruikte-89-kinderen-in-zeker-negen-landen-justitie-probeert-alle-slachtoffers-te-traceren~a8fe24e8/)
+  > In Frankrijk is een 79-jarige man opgepakt die de afgelopen decennia op grote schaal kinderen misbruikte. Justitie heeft tot nu toe 89 slachtoffers...
+- [Michael Ruperti geschorst vanwege actie in zaak tegen Ali B, stopt als advocaat](https://www.ad.nl/show/michael-ruperti-geschorst-vanwege-actie-in-zaak-tegen-ali-b-stopt-als-advocaat~af6c0d1c/)
+  > Advocaat Michael Ruperti (53) is geschorst vanwege een actie in de ontuchtzaak tegen Ali B. In het verlengde daarvan kondigt de advocaat, die onder...
+- [Waarom Jutta Leerdam zoveel losmaakt: haar gouden race voelt als een terechtwijzing](https://www.ad.nl/sport/waarom-jutta-leerdam-zoveel-losmaakt-haar-gouden-race-voelt-als-een-terechtwijzing~a34208a4/)
+  > Ze meed de pers, kreeg bakken met kritiek omdat ze met een jet naar de Spelen vloog en we raken niet uitgepraat over verloofde Jake Paul. Juist...
+- [‘Paul de Leeuw is wel erg diep gezakt: van Adele naar Sjorleone’](https://www.ad.nl/show/paul-de-leeuw-is-wel-erg-diep-gezakt-van-adele-naar-sjorleone~abaf8ec9/)
+  > Dat Ranking the stars op RTL 4 uitgezonden wordt, daar snapt het panel van de AD Media Podcast helemaal niets van. Het programma is allang over zijn...
+- [Wessel Nijman wint Players Championship, Raymond van Barneveld noteert diepterecord](https://www.ad.nl/darts/wessel-nijman-wint-players-championship-raymond-van-barneveld-noteert-diepterecord~ad07667e/)
+  > Wessel Nijman heeft het tweede Players Championship-toernooi van het jaar gewonnen. De Nederlandse darter versloeg Gerwyn Price in een spannende...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Commerzbank verhoogt dividend en koopt opnieuw eigen aandelen in](https://fd.nl/bedrijfsleven/1586217/commerzbank-verhoogt-dividend-en-koopt-opnieuw-eigen-aandelen-in)
-  > De Duitse bank gaf vorig jaar €2,7 mrd aan de aandeelhouders terug. De winst over 2025 kwam uit op €2,63 mrd.
-- [Megadeal voor stem en gezicht ‘onnozele’ tiktokker Khaby Lame](https://fd.nl/bedrijfsleven/1585743/megadeal-voor-stem-en-gezicht-onnozele-tiktokker-khaby-lame)
-  > Bijna een $1 mrd. Dat is de waarde van de deal die Khaby Lame sluit met een bedrijf uit Hongkong. Maar wat de Senegalees-Italiaanse tiktokker daarvan...
-- [Een op de vijf vve’s heeft te weinig reserves voor groot onderhoud](https://fd.nl/samenleving/1586156/een-op-de-vijf-vves-heeft-te-weinig-reserves-voor-groot-onderhoud)
-  > Door de krappe reserves neemt de financiële druk op veel vve’s toe, concludeert de Vereniging Eigen Huis na een enquête onder haar leden.
-- [Veel belangstelling voor 100-jarige obligatie Alphabet](https://fd.nl/financiele-markten/1586212/veel-belangstelling-voor-100-jarige-obligatie-alphabet)
-  > Moederbedrijf van Google krijgt bijna 10 keer zoveel orders als nodig.
-- [Het beursavontuur van InPost is een slecht verhaal](https://fd.nl/financiele-markten/1586191/het-beursavontuur-van-inpost-is-een-slecht-verhaal)
-  > Het Poolse pakketkluizenbedrijf ging in januari 2021 naar de beurs voor €16. Nu ligt er een bod voor €15,60. Kleine min? Niet voor de langzittende...
+- [Alfen ziet omzet dalen door problemen bij netbeheerders en door toenemende concurrentie](https://fd.nl/bedrijfsleven/1586222/alfen-ziet-omzet-dalen-door-problemen-bij-netbeheerders-en-door-toenemende-concurrentie)
+  > De omzet en het brutobedrijfsresultaat zijn ongeveer 10% lager dan in 2024.
+- [ERT-voorzitter Van Boxmeer: ‘Koop Europees is goed, maar overdrijf niet’](https://fd.nl/politiek/1586164/ert-voorzitter-van-boxmeer-koop-europees-is-goed-maar-overdrijf-niet)
+  > De voorzitter van de European Round Table for Industry (ERT) gaat in op het wensenlijstje van topindustriëlen aan de vooravond van de EU-top over...
+- [Bemoeizucht gemeenten moet niet leiden tot weren pakketkluis](https://fd.nl/opinie/1586147/bemoeizucht-gemeenten-moet-niet-leiden-tot-weren-pakketkluis)
+  > Het is goed dat gemeenten grenzen stellen aan de pakketkluis. Maar ze uit het straatbeeld bannen is geen optie.
+- [Paramount verhoogt inzet in strijd met Netflix om Warner Bros](https://fd.nl/bedrijfsleven/1586165/paramount-verhoogt-inzet-in-strijd-met-netflix-om-warner-bros)
+  > Paramount is onder andere bereid een zogeheten ticking fee (vertragingsvergoeding) te betalen aan de Warner Bros-aandeelhouders voor elk kwartaal dat...
+- [Buitenlandse hackers richten zich op personeel defensiebedrijven](https://fd.nl/tech-en-innovatie/1586163/buitenlandse-hackers-richten-zich-op-personeel-defensiebedrijven)
+  > Hackers uit landen als Rusland, China en Noord-Korea proberen via online wervingsprocessen informatie te bemachtigen uit de defensie-industrie, zegt...
 
 ### Meest gelezen
 
