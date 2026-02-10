@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-02-2026 om 11:57*
+*Laatst bijgewerkt: 10-02-2026 om 15:49*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Nieuw landelijk discriminatiemeldpunt voor kinderen](https://nos.nl/l/2601730)
-  > Er is een nieuw landelijk meldpunt waar kinderen en jongeren discriminatie kunnen melden. Het meldpunt werd vandaag gelanceerd in Utrecht. Bij...
-- [Elektrische motor in opkomst in Afrika, goed nieuws voor milieu en chauffeur](https://nos.nl/l/2601728)
-  > Elektrische motoren zijn sterk in opkomst in Oost-Afrika. Dat is goed nieuws voor het milieu én voor de vele motortaxichauffeurs, want groen rijden...
-- [Blizzard past gezicht gamekarakter aan na kritiek op 'standaarduiterlijk'](https://nos.nl/l/2601722)
-  > Gamebedrijf Blizzard gaat in de populaire game Overwatch het gezicht van een nieuw karakter aanpassen, nadat het bedrijf vanuit de gamegemeenschap...
-- [Politie deelt nieuwe foto's van ravage na bankroof Gelsenkirchen](https://nos.nl/l/2601720)
-  > De Duitse politie heeft nieuwe foto's gedeeld van het bankgebouw in Gelsenkirchen dat eind december is leeggeroofd. Te zien is dat alle kluisjes in...
-- [Experts roepen op tot wereldwijd verbod op AI-uitkleedsoftware](https://nos.nl/l/2601718)
-  > Ruim honderd internationale organisaties hebben zich aangesloten bij een manifest voor een verbod op apps waarmee foto's van mensen digitaal...
+- [Spotify groeide afgelopen jaar met 76 miljoen gebruikers naar 751 miljoen](https://nos.nl/l/2601786)
+  > Muziekstreamingdienst Spotify heeft vorig jaar 76 miljoen nieuwe gebruikers gekregen. In totaal maken maandelijks 751 miljoen mensen gebruik van de...
+- [Kamerleden willen meer actie van kabinet tegen speelzand met asbest](https://nos.nl/l/2601783)
+  > Een groot deel van de Tweede Kamer wil dat het kabinet meer doet om te voorkomen dat kinderen spelen met speelzand dat mogelijk verontreinigd is met...
+- [Oppositie stemt kiesdrempelvoorstel minderheidscoalitie weg](https://nos.nl/l/2601776)
+  > Een meerderheid in de Tweede Kamer is tegen het voorstel van D66, VVD en CDA om te onderzoeken of er een hogere kiesdrempel moet worden ingevoerd....
+- [Podcast De Dag: dit is de jonge minister met de moeilijkste missie](https://nos.nl/l/2601775)
+  > Jaimi van Essen (34) krijgt een van de moeilijkste posten in het nieuwe kabinet. Van Essen zal het land van het stikstofslot moeten halen, én...
+- [Kwantum en Leen Bakker overgenomen door Europese investeerder](https://nos.nl/l/2601772)
+  > De woonwinkelketens Kwantum en Leen Bakker worden overgenomen door een Europese investeringsmaatschappij. Daarmee lijkt er een einde te komen aan een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Investeringsmaatschappij wil winkelketens Kwantum en Leen Bakker overnemen](https://www.ad.nl/economie/investeringsmaatschappij-wil-winkelketens-kwantum-en-leen-bakker-overnemen~a1cefff1/)
-  > Een investeringsmaatschappij wil de Nederlandse winkelketens Kwantum en Leen Bakker overnemen.
-- [Shorttrackers lopen op pijnlijke wijze finale mis op gemengde aflossing na valpartij Xandra Velzeboer](https://www.ad.nl/olympische-spelen/shorttrackers-lopen-op-pijnlijke-wijze-finale-mis-op-gemengde-aflossing-na-valpartij-xandra-velzeboer~a69f1d3c/)
-  > Nederland heeft naast de eerste medaille op het shorttracktoernooi gegrepen. De Oranjeploeg was een van de favorieten voor goud op de gemengde...
-- [LIVE Olympische Winterspelen | IOC verbiedt ‘oorlogshelm’ Oekraïense skeletonner, rouwband mag wel](https://www.ad.nl/olympische-spelen/live-olympische-winterspelen-ioc-verbiedt-oorlogshelm-oekraiense-skeletonner-rouwband-mag-wel~ab8311d2/)
-  > Op dag 4 van de Olympische Winterspelen mogen de shorttrackers voor het eerst los. Voor Nederland kan het al meteen een succesvolle dag worden. Op de...
-- [Kimi Antonelli crasht zijn Mercedes bij huis in San Marino, maar blijft ongedeerd](https://www.ad.nl/formule-1/kimi-antonelli-crasht-zijn-mercedes-bij-huis-in-san-marino-maar-blijft-ongedeerd~a9457326/)
-  > Kimi Antonelli is afgelopen weekend met de schrik vrijgekomen. De Italiaanse Formule 1-coureur raakte in Serravalle van de weg en reed zijn peperdure...
-- [Drama in Italië: zoon belt hulpdiensten, maar fout adres kost gezin het leven](https://www.ad.nl/buitenland/drama-in-italie-zoon-belt-hulpdiensten-maar-fout-adres-kost-gezin-het-leven~ab3a8f10/)
-  > In het Italiaanse Toscane is een gezin omgekomen door koolstofmonoxidevergiftiging. De oudste zoon van het gezin kon de hulpdiensten nog bellen, maar...
+- [Dit zijn de signalen dat een ‘droomhuis’ eigenlijk een valkuil is](https://www.ad.nl/wonen/dit-zijn-de-signalen-dat-een-droomhuis-eigenlijk-een-valkuil-is~adc63e51/)
+  > Als iets te mooi lijkt om waar te zijn, is dat meestal ook zo. Dat geldt zeker voor woningen die te koop staan. Niet alleen met AI bewerkte...
+- [‘Mensen zeggen dat ik zelfmoord moet plegen’: Freestyles­kiër krijgt doodsbe­drei­gin­gen na an­ti-ICE-ac­tie op Spelen](https://www.ad.nl/olympische-spelen/mensen-zeggen-dat-ik-zelfmoord-moet-plegen-freestyleskier-krijgt-doodsbedreigingen-na-anti-ice-actie-op-spelen~adc4a9df/)
+  > De Britse freestyleskiër Gus Kenworthy (34) heeft op sociale media veel haat, homofobe beledigingen en zelfs doodsbedreigingen ontvangen. Dit...
+- [Drie jaar cel voor man die dronken en zonder rijbewijs 84-jarige vrouw doodreed](https://www.ad.nl/binnenland/drie-jaar-cel-voor-man-die-dronken-en-zonder-rijbewijs-84-jarige-vrouw-doodreed~a1d70177/)
+  > De dronken man zonder rijbewijs die met een bestelbus een 84-jarige vrouw doodreed in Noord-Scharwoude, krijgt drie jaar cel. Dat heeft de rechtbank...
+- [‘Internetproviders hebben een pervers verdienmodel: vaste klanten financieren nieuwe klanten’](https://www.ad.nl/binnenland/internetproviders-hebben-een-pervers-verdienmodel-vaste-klanten-financieren-nieuwe-klanten~a55f31b7/)
+  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag leggen we lezers het volgende voor: als ik 250 euro per jaar kan besparen...
+- ['Ik heb het voor het team verpest': Xandra Velzeboer breekt na val die Nederland goud kostte](https://www.ad.nl/olympische-spelen/ik-heb-het-voor-het-team-verpest-xandra-velzeboer-breekt-na-val-die-nederland-goud-kostte~aea76fc2/)
+  > Ze hebben laten zien dat ze de besten zijn, maar werden vijfde. De val van Xandra Velzeboer in de halve finale van de gemengde aflossing, volgend op...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Green Deal: van ‘man-op-de-maanmoment’ naar verwaterde wetten](https://fd.nl/politiek/1586190/green-deal-van-man-op-de-maanmoment-naar-verwaterde-wetten)
-  > Het groene masterplan van Brussel ligt zes jaar na de lancering onder vuur. Critici kregen al de nodige afzwakkingen voor elkaar en willen nog meer.
-- [Moedig leiderschap ligt in samenwerken, niet in vechten](https://fd.nl/opinie/1586094/moedig-leiderschap-ligt-in-samenwerken-niet-in-vechten)
-  > Onderzoek toont aan dat ideologische verschillen een goede samenwerking niet in de weg hoeven te staan. Laat het minderheidskabinet én de oppositie...
-- [Een vergissing van de concurrent in het voordeel van PwC](https://fd.nl/financiele-markten/1586106/een-vergissing-van-de-concurrent-in-het-voordeel-van-pwc)
-  > Na een fout van een EY-accountant ging Shell op zoek naar een nieuwe accountant. Het werd PwC, dat al de grote winnaar was van het rotatiecircus van...
-- [De Epstein-test](https://fd.nl/financiele-markten/1586199/de-epstein-test)
-  > Hoe peil je de integriteit van een ceo, vraagt FD-columnist Milou Brand zich af. Het is niet af te lezen aan grootse gebaren.
-- [Meer luchtvaartpassagiers, nog niet terug op niveau van 2019](https://fd.nl/samenleving/1586193/meer-luchtvaartpassagiers-nog-niet-terug-op-niveau-van-2019)
-  > Schiphol is goed voor 88% van het totaal aantal vluchten en vervoerde passagiers van en naar Nederland.
+- [Commerzbank verhoogt dividend en koopt opnieuw eigen aandelen in](https://fd.nl/bedrijfsleven/1586217/commerzbank-verhoogt-dividend-en-koopt-opnieuw-eigen-aandelen-in)
+  > De Duitse bank gaf vorig jaar €2,7 mrd aan de aandeelhouders terug. De winst over 2025 kwam uit op €2,63 mrd.
+- [Megadeal voor stem en gezicht ‘onnozele’ tiktokker Khaby Lame](https://fd.nl/bedrijfsleven/1585743/megadeal-voor-stem-en-gezicht-onnozele-tiktokker-khaby-lame)
+  > Bijna een $1 mrd. Dat is de waarde van de deal die Khaby Lame sluit met een bedrijf uit Hongkong. Maar wat de Senegalees-Italiaanse tiktokker daarvan...
+- [Een op de vijf vve’s heeft te weinig reserves voor groot onderhoud](https://fd.nl/samenleving/1586156/een-op-de-vijf-vves-heeft-te-weinig-reserves-voor-groot-onderhoud)
+  > Door de krappe reserves neemt de financiële druk op veel vve’s toe, concludeert de Vereniging Eigen Huis na een enquête onder haar leden.
+- [Veel belangstelling voor 100-jarige obligatie Alphabet](https://fd.nl/financiele-markten/1586212/veel-belangstelling-voor-100-jarige-obligatie-alphabet)
+  > Moederbedrijf van Google krijgt bijna 10 keer zoveel orders als nodig.
+- [Het beursavontuur van InPost is een slecht verhaal](https://fd.nl/financiele-markten/1586191/het-beursavontuur-van-inpost-is-een-slecht-verhaal)
+  > Het Poolse pakketkluizenbedrijf ging in januari 2021 naar de beurs voor €16. Nu ligt er een bod voor €15,60. Kleine min? Niet voor de langzittende...
 
 ### Meest gelezen
 
