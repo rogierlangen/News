@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-02-2026 om 19:45*
+*Laatst bijgewerkt: 10-02-2026 om 22:08*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Extremistische groepen omzeilen online detectiemethoden voor propaganda](https://nos.nl/l/2601814)
-  > Het Openbaar Ministerie maakte vandaag bekend dat verspreid over Nederland zestien verdachten zijn aangehouden omdat ze anderen tot het plegen van...
-- [Skûtsje mag na restauratie niet meer meezeilen, tot ontsteltenis van de schipper](https://nos.nl/l/2601800)
-  > Het is al dagenlang onrustig in de Friese zeilwereld nadat de organisatie van het Open Fries Kampioenschap Skûtsjesilen (IFKS) vorige week een...
-- [Advocaat Michael Ruperti stopt na schorsing](https://nos.nl/l/2601798)
-  > Michael Ruperti stopt als advocaat. Dat maakte hij bekend in een bericht op LinkedIn, nadat hij maandag voor vier weken werd geschorst.
-        De...
-- [Vacaturesite Defensie populair door 'Máxima-effect'](https://nos.nl/l/2601794)
-  > De interesse in de Koninklijke Landmacht is toegenomen sinds koningin Máxima zich als reservist heeft aangemeld. Volgens het ministerie van Defensie...
-- [Gaswinning Warffum ligt na een half jaar nog steeds stil](https://nos.nl/l/2601793)
-  > Al meer dan een half jaar lukt het de Nederlandse Aardolie Maatschappij (NAM) niet of nauwelijks om gas te winnen uit het gasveld bij het Groningse...
+- [Venezolaanse politicus onder huisarrest geplaatst na kritiek op regime](https://nos.nl/l/2601834)
+  > De prominente Venezolaanse oppositiepoliticus die uren na zijn vrijlating opnieuw werd opgepakt is onder huisarrest geplaatst. Dat meldt zijn zoon....
+- [Britse operatie moet onderwaterkabels beschermen tegen Russische spionageschepen](https://nos.nl/l/2601829)
+  > Nog geen twee weken geleden gingen alle alarmbellen af bij de Britse marine. Een Russisch vrachtschip was plotseling van koers veranderd en ging vlak...
+- [FBI deelt beelden van gewapend persoon bij het huis van moeder NBC-presentator](https://nos.nl/l/2601826)
+  > Inlichtingendienst FBI heeft beelden vrijgegeven van een gemaskerde en bewapende persoon die voor de deur staat van het huis van Nancy Guthrie, de...
+- [Nieuw Noors onderzoek naar Epstein-files, Amerikaanse minister in het nauw](https://nos.nl/l/2601824)
+  > In Noorwegen komt een onafhankelijk onderzoek naar banden van mensen van het ministerie van Buitenlandse Zaken met Jeffrey Epstein. Een commissie van...
+- [Monniken komen na vredesmars van 3700 kilometer aan in Washington](https://nos.nl/l/2601822)
+  > Op dag 108 van hun 'mars voor vrede' is een groep boeddhistische monniken aangekomen op hun eindbestemming in de Amerikaanse hoofdstad Washington....
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Fransman misbruikte 89 kinderen in zeker negen landen: justitie probeert alle slachtoffers te traceren](https://www.ad.nl/buitenland/fransman-misbruikte-89-kinderen-in-zeker-negen-landen-justitie-probeert-alle-slachtoffers-te-traceren~a8fe24e8/)
-  > In Frankrijk is een 79-jarige man opgepakt die de afgelopen decennia op grote schaal kinderen misbruikte. Justitie heeft tot nu toe 89 slachtoffers...
-- [Michael Ruperti geschorst vanwege actie in zaak tegen Ali B, stopt als advocaat](https://www.ad.nl/show/michael-ruperti-geschorst-vanwege-actie-in-zaak-tegen-ali-b-stopt-als-advocaat~af6c0d1c/)
-  > Advocaat Michael Ruperti (53) is geschorst vanwege een actie in de ontuchtzaak tegen Ali B. In het verlengde daarvan kondigt de advocaat, die onder...
-- [Waarom Jutta Leerdam zoveel losmaakt: haar gouden race voelt als een terechtwijzing](https://www.ad.nl/sport/waarom-jutta-leerdam-zoveel-losmaakt-haar-gouden-race-voelt-als-een-terechtwijzing~a34208a4/)
-  > Ze meed de pers, kreeg bakken met kritiek omdat ze met een jet naar de Spelen vloog en we raken niet uitgepraat over verloofde Jake Paul. Juist...
-- [‘Paul de Leeuw is wel erg diep gezakt: van Adele naar Sjorleone’](https://www.ad.nl/show/paul-de-leeuw-is-wel-erg-diep-gezakt-van-adele-naar-sjorleone~abaf8ec9/)
-  > Dat Ranking the stars op RTL 4 uitgezonden wordt, daar snapt het panel van de AD Media Podcast helemaal niets van. Het programma is allang over zijn...
-- [Wessel Nijman wint Players Championship, Raymond van Barneveld noteert diepterecord](https://www.ad.nl/darts/wessel-nijman-wint-players-championship-raymond-van-barneveld-noteert-diepterecord~ad07667e/)
-  > Wessel Nijman heeft het tweede Players Championship-toernooi van het jaar gewonnen. De Nederlandse darter versloeg Gerwyn Price in een spannende...
+- [Handelsminister en bondgenoot Trump ontkent nauwe banden met Epstein](https://www.ad.nl/buitenland/handelsminister-en-bondgenoot-trump-ontkent-nauwe-banden-met-epstein~ae67dd9c/)
+  > De Amerikaanse minister van Handel Howard Lutnick ontkent dat hij nauwe banden heeft gehad met de overleden zedendelinquent Jeffrey Epstein, zoals is...
+- [Als Gilbert uit Winter vol liefde ook maar een greintje empathie had, was hij weggelopen bij dit exitgesprek](https://www.ad.nl/show/als-gilbert-uit-winter-vol-liefde-ook-maar-een-greintje-empathie-had-was-hij-weggelopen-bij-dit-exitgesprek~a30c9d95/)
+  > Ein-de-lijk! Eindelijk had iemand in Winter vol liefde de ballen om Gilbert en Elsje aan te spreken op hun kleffe en respectloze gedrag. Al bleek hij...
+- [Medaillespiegel | Nederland zakt op ranglijst na dag zonder medailles, Noorwegen breidt voorsprong uit](https://www.ad.nl/olympische-spelen/medaillespiegel-nederland-zakt-op-ranglijst-na-dag-zonder-medailles-noorwegen-breidt-voorsprong-uit~a2772ec34/)
+  > Hoeveel gouden medailles gaat Nederland pakken tijdens de Olympische Winterspelen 2026 in Milaan en Cortina d’Ampezzo? Hieronder kun je het...
+- [Jordi Cruijff gaat op de Spaanse toer, technische staf Jong Ajax met stomheid geslagen](https://www.ad.nl/voetbal/jordi-cruijff-gaat-op-de-spaanse-toer-technische-staf-jong-ajax-met-stomheid-geslagen~af3fcd67/)
+  > Jordi Cruijff heeft zich onmiddellijk laten gelden bij Ajax. De nieuwe technische baas heeft Jong Ajax-coach Willem Weijs ontslagen en een paar uur...
+- [Filmpje dat Jutta Leerdam deelt van haar gouden race ruim 17 miljoen keer bekeken](https://www.ad.nl/olympische-spelen/filmpje-dat-jutta-leerdam-deelt-van-haar-gouden-race-ruim-17-miljoen-keer-bekeken~ab8311d2/)
+  > Het filmpje van haar ‘gouden race’ dat Jutta Leerdam op haar Instagram-account heeft gedeeld, is het afgelopen etmaal ruim 17 miljoen keer bekeken.
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Voorzichtig Wall Street kleurt lichtrood](https://fd.nl/financiele-markten/1586282/voorzichtig-wall-street-kleurtlichtrood)
+  > De Nasdaq daalde vandaag met 0,59%, ook de S&P 500 daalde licht, met 0,33% en de Dow Jones steeg met 0,10%.
+- [Vakbonden roepen op tot staking bij Duitse luchtvaartmaatschappij Lufthansa](https://fd.nl/bedrijfsleven/1586223/vakbonden-roepen-op-tot-staking-bij-duitse-luchtvaartmaatschappij-lufthansa)
+  > Aanleiding voor de staking is een al langer sluimerend conflict over de hoogte van pensioenen voor piloten en de arbeidsvoorwaarden in cao’s voor...
+- [Tweede Kamer wil diensten die draaien op IT-bedrijf Solvinity in Nederlandse handen houden](https://fd.nl/politiek/1586145/tweede-kamer-wil-diensten-die-draaien-op-it-bedrijf-solvinityin-nederlandse-handen-houden)
+  > Kamerleden maken zich grote zorgen over de overname van Solvinity door een Amerikaans bedrijf. IT-bedrijf Solvinity speelt een belangrijke rol bij...
 - [Alfen ziet omzet dalen door problemen bij netbeheerders en door toenemende concurrentie](https://fd.nl/bedrijfsleven/1586222/alfen-ziet-omzet-dalen-door-problemen-bij-netbeheerders-en-door-toenemende-concurrentie)
   > De omzet en het brutobedrijfsresultaat zijn ongeveer 10% lager dan in 2024.
 - [ERT-voorzitter Van Boxmeer: ‘Koop Europees is goed, maar overdrijf niet’](https://fd.nl/politiek/1586164/ert-voorzitter-van-boxmeer-koop-europees-is-goed-maar-overdrijf-niet)
   > De voorzitter van de European Round Table for Industry (ERT) gaat in op het wensenlijstje van topindustriëlen aan de vooravond van de EU-top over...
-- [Bemoeizucht gemeenten moet niet leiden tot weren pakketkluis](https://fd.nl/opinie/1586147/bemoeizucht-gemeenten-moet-niet-leiden-tot-weren-pakketkluis)
-  > Het is goed dat gemeenten grenzen stellen aan de pakketkluis. Maar ze uit het straatbeeld bannen is geen optie.
-- [Paramount verhoogt inzet in strijd met Netflix om Warner Bros](https://fd.nl/bedrijfsleven/1586165/paramount-verhoogt-inzet-in-strijd-met-netflix-om-warner-bros)
-  > Paramount is onder andere bereid een zogeheten ticking fee (vertragingsvergoeding) te betalen aan de Warner Bros-aandeelhouders voor elk kwartaal dat...
-- [Buitenlandse hackers richten zich op personeel defensiebedrijven](https://fd.nl/tech-en-innovatie/1586163/buitenlandse-hackers-richten-zich-op-personeel-defensiebedrijven)
-  > Hackers uit landen als Rusland, China en Noord-Korea proberen via online wervingsprocessen informatie te bemachtigen uit de defensie-industrie, zegt...
 
 ### Meest gelezen
 
