@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-02-2026 om 08:08*
+*Laatst bijgewerkt: 10-02-2026 om 11:57*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Philips boekt na jaren weer winst](https://nos.nl/l/2601706)
-  > Philips heeft in 2025 voor het eerst in jaren weer winst gemaakt. Die kwam uit op 897 miljoen euro. De goede resultaten zijn vooral te danken aan de...
-- [Ombudsman wil af van probleemvuilstort Bonaire en onderzoekt rol overheden](https://nos.nl/l/2601697)
-  > De Nationale ombudsman is een onderzoek gestart naar de vraag of de overheden van Bonaire en Nederland hun zorgplicht tegenover inwoners van Bonaire...
-- [Wekdienst 10/2: Meer controles Schiphol vanwege actie • Veel shorttrack op Spelen](https://nos.nl/l/2601695)
-  > Goedemorgen! Wie aan het begin van de middag landt op Schiphol, krijgt waarschijnlijk te maken met een bagagecontrole. Douaniers voeren zo actie voor...
-- [Aantal instromende studenten bij universiteiten en hbo blijft afnemen](https://nos.nl/l/2601693)
-  > Er hebben zich dit studiejaar, net als voorgaande jaren, weer minder nieuwe studenten aangemeld bij Nederlandse universiteiten. Het aantal instromers...
-- [Tegenstanders van asielopvang in Uden intimideerden wethouders thuis](https://nos.nl/l/2601692)
-  > De mogelijke komst van een asielopvang in het Noord-Brabantse Uden heeft geleid tot intimidatie van bestuurders. Dat zei locoburgemeester Gijs van...
+- [Nieuw landelijk discriminatiemeldpunt voor kinderen](https://nos.nl/l/2601730)
+  > Er is een nieuw landelijk meldpunt waar kinderen en jongeren discriminatie kunnen melden. Het meldpunt werd vandaag gelanceerd in Utrecht. Bij...
+- [Elektrische motor in opkomst in Afrika, goed nieuws voor milieu en chauffeur](https://nos.nl/l/2601728)
+  > Elektrische motoren zijn sterk in opkomst in Oost-Afrika. Dat is goed nieuws voor het milieu én voor de vele motortaxichauffeurs, want groen rijden...
+- [Blizzard past gezicht gamekarakter aan na kritiek op 'standaarduiterlijk'](https://nos.nl/l/2601722)
+  > Gamebedrijf Blizzard gaat in de populaire game Overwatch het gezicht van een nieuw karakter aanpassen, nadat het bedrijf vanuit de gamegemeenschap...
+- [Politie deelt nieuwe foto's van ravage na bankroof Gelsenkirchen](https://nos.nl/l/2601720)
+  > De Duitse politie heeft nieuwe foto's gedeeld van het bankgebouw in Gelsenkirchen dat eind december is leeggeroofd. Te zien is dat alle kluisjes in...
+- [Experts roepen op tot wereldwijd verbod op AI-uitkleedsoftware](https://nos.nl/l/2601718)
+  > Ruim honderd internationale organisaties hebben zich aangesloten bij een manifest voor een verbod op apps waarmee foto's van mensen digitaal...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Het wordt flink koud dit weekend, advies aan carnavalsvierders om zich warm aan te kleden](https://www.ad.nl/binnenland/het-wordt-flink-koud-dit-weekend-advies-aan-carnavalsvierders-om-zich-warm-aan-te-kleden~a443b371/)
-  > Een biertje drinken en hossen op Hollandse muziek: dat is toch een stuk leuker met zachte temperaturen en een zonnetje aan de hemel. Gaat...
-- [‘Vrouwvriendelijke’ pacemaker die niet schuurt bij bh-bandje: ‘Arts nam al mijn angsten weg’](https://www.ad.nl/binnenland/vrouwvriendelijke-pacemaker-die-niet-schuurt-bij-bh-bandje-arts-nam-al-mijn-angsten-weg~aa999ea1/)
-  > De pacemaker is een geweldige uitvinding voor patiënten met een traag of onregelmatig kloppend hart. Voor mannen, maar vooral ook voor vrouwen, kent...
-- [Goud Jutta Leerdam gaat de wereld over: ‘Een technisch perfecte uitvoering onder maximale druk’](https://www.ad.nl/olympische-spelen/goud-jutta-leerdam-gaat-de-wereld-over-een-technisch-perfecte-uitvoering-onder-maximale-druk~ad21e11b/)
-  > Met het veroveren van olympisch goud op de 1000 meter gaat Jutta Leerdam de hele wereld over. Buitenlandse media staan uitgebreid stil bij de...
-- [Trump verwacht ‘15 procent’ economische groei van Fed-kandidaat Warsh, maar dat lijkt onhaalbaar](https://www.ad.nl/economie/trump-verwacht-15-procent-economische-groei-van-fed-kandidaat-warsh-maar-dat-lijkt-onhaalbaar~abe7addb/)
-  > De Amerikaanse president Donald Trump verwacht dat zijn kandidaat voor het voorzitterschap van de Federal Reserve de economie kan aanwakkeren tot een...
-- [Ye, ook bekend als Kanye West, geeft dit jaar eenmalig concert in Gelredome](https://www.ad.nl/show/ye-ook-bekend-als-kanye-west-geeft-dit-jaar-eenmalig-concert-in-gelredome~a2b4149a/)
-  > Ye, de controversiële artiest die wereldwijd bekend werd als Kanye West, komt dit jaar naar Nederland. De rapper staat zaterdag 6 juni met een...
+- [Investeringsmaatschappij wil winkelketens Kwantum en Leen Bakker overnemen](https://www.ad.nl/economie/investeringsmaatschappij-wil-winkelketens-kwantum-en-leen-bakker-overnemen~a1cefff1/)
+  > Een investeringsmaatschappij wil de Nederlandse winkelketens Kwantum en Leen Bakker overnemen.
+- [Shorttrackers lopen op pijnlijke wijze finale mis op gemengde aflossing na valpartij Xandra Velzeboer](https://www.ad.nl/olympische-spelen/shorttrackers-lopen-op-pijnlijke-wijze-finale-mis-op-gemengde-aflossing-na-valpartij-xandra-velzeboer~a69f1d3c/)
+  > Nederland heeft naast de eerste medaille op het shorttracktoernooi gegrepen. De Oranjeploeg was een van de favorieten voor goud op de gemengde...
+- [LIVE Olympische Winterspelen | IOC verbiedt ‘oorlogshelm’ Oekraïense skeletonner, rouwband mag wel](https://www.ad.nl/olympische-spelen/live-olympische-winterspelen-ioc-verbiedt-oorlogshelm-oekraiense-skeletonner-rouwband-mag-wel~ab8311d2/)
+  > Op dag 4 van de Olympische Winterspelen mogen de shorttrackers voor het eerst los. Voor Nederland kan het al meteen een succesvolle dag worden. Op de...
+- [Kimi Antonelli crasht zijn Mercedes bij huis in San Marino, maar blijft ongedeerd](https://www.ad.nl/formule-1/kimi-antonelli-crasht-zijn-mercedes-bij-huis-in-san-marino-maar-blijft-ongedeerd~a9457326/)
+  > Kimi Antonelli is afgelopen weekend met de schrik vrijgekomen. De Italiaanse Formule 1-coureur raakte in Serravalle van de weg en reed zijn peperdure...
+- [Drama in Italië: zoon belt hulpdiensten, maar fout adres kost gezin het leven](https://www.ad.nl/buitenland/drama-in-italie-zoon-belt-hulpdiensten-maar-fout-adres-kost-gezin-het-leven~ab3a8f10/)
+  > In het Italiaanse Toscane is een gezin omgekomen door koolstofmonoxidevergiftiging. De oudste zoon van het gezin kon de hulpdiensten nog bellen, maar...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Wereldhave ziet bezetting winkels stijgen naar hoogste niveau sinds 2013](https://fd.nl/bedrijfsleven/1586139/wereldhave-ziet-bezetting-winkels-stijgen-naar-hoogste-niveau-sinds-2013)
-  > Ondanks de hogere bezetting viel het nettoresultaat tegen door hogere fiscale druk.
-- [Rabobank ziet jaarwinst licht afnemen](https://fd.nl/financiele-markten/1586140/rabobank-houdt-jaarwinst-stabiel)
-  > Met een nettowinst van €4,96 mrd noteert Rabobank een iets lagere winst over 2025 dan het jaar ervoor.
-- [CBS: Thuiswerken blijft onveranderd sinds 2022](https://fd.nl/samenleving/1586138/cbs-thuiswerken-blijft-onveranderd-sinds-2022)
-  > In het afgelopen jaar maakte 80% van de bedrijven het mogelijk om op afstand te werken.
-- [Winst Philips hoger dan verwacht mede dankzij elektrische tandenborstels](https://fd.nl/bedrijfsleven/1586100/winst-philips-hoger-dan-verwacht)
-  > De winstmarge van 12,3% valt 0,5 procentpunt hoger uit dan verwacht. De komende jaren wil het concern zijn winstgevendheid opvoeren tot circa 15%.
-- [Live: AEX start rustig, Philips trekt koppositie met stevige winst](https://fd.nl/financiele-markten/1586137/live-odido-blaast-beursgang-af-philips-komt-met-cijfers)
-  > Voor beleggers was de maandag een dag van uitblazen, na de turbulentie van vorige week. Nabeurs bleek dat Odido zijn beursgang voorlopig uitstelt.
+- [Green Deal: van ‘man-op-de-maanmoment’ naar verwaterde wetten](https://fd.nl/politiek/1586190/green-deal-van-man-op-de-maanmoment-naar-verwaterde-wetten)
+  > Het groene masterplan van Brussel ligt zes jaar na de lancering onder vuur. Critici kregen al de nodige afzwakkingen voor elkaar en willen nog meer.
+- [Moedig leiderschap ligt in samenwerken, niet in vechten](https://fd.nl/opinie/1586094/moedig-leiderschap-ligt-in-samenwerken-niet-in-vechten)
+  > Onderzoek toont aan dat ideologische verschillen een goede samenwerking niet in de weg hoeven te staan. Laat het minderheidskabinet én de oppositie...
+- [Een vergissing van de concurrent in het voordeel van PwC](https://fd.nl/financiele-markten/1586106/een-vergissing-van-de-concurrent-in-het-voordeel-van-pwc)
+  > Na een fout van een EY-accountant ging Shell op zoek naar een nieuwe accountant. Het werd PwC, dat al de grote winnaar was van het rotatiecircus van...
+- [De Epstein-test](https://fd.nl/financiele-markten/1586199/de-epstein-test)
+  > Hoe peil je de integriteit van een ceo, vraagt FD-columnist Milou Brand zich af. Het is niet af te lezen aan grootse gebaren.
+- [Meer luchtvaartpassagiers, nog niet terug op niveau van 2019](https://fd.nl/samenleving/1586193/meer-luchtvaartpassagiers-nog-niet-terug-op-niveau-van-2019)
+  > Schiphol is goed voor 88% van het totaal aantal vluchten en vervoerde passagiers van en naar Nederland.
 
 ### Meest gelezen
 
