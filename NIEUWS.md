@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-02-2026 om 21:51*
+*Laatst bijgewerkt: 11-02-2026 om 23:04*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [FC Utrecht stunt in Nijmegen en wint weer eens na drie maanden, NEC laat na om plek twee te grijpen](https://www.ad.nl/voetbal/fc-utrecht-stunt-in-nijmegen-en-wint-weer-eens-na-drie-maanden-nec-laat-na-om-plek-twee-te-grijpen~a63f87af/)
+  > FC Utrecht heeft eindelijk de zo vurig gewenste klinkende overwinning binnen. Bij revelatie van het seizoen NEC won de ploeg met 1-3, na negen...
+- [Virgil van Dijk klopt Robin Roefs in de lucht en bezorgt Liverpool zege in Sunderland](https://www.ad.nl/voetbal/virgil-van-dijk-klopt-robin-roefs-in-de-lucht-en-bezorgt-liverpool-zege-in-sunderland~a7cdbc77/)
+  > Liverpool heeft woensdagavond de lastige uitwedstrijd bij Sunderland met 0-1 gewonnen. Virgil van Dijk maakte een kwartier na rust de winnende goal...
+- [Pim en Katja schilderen hun huis paars-geel voor carnaval: ‘We worden positief voor gek verklaard’](https://www.ad.nl/binnenland/pim-en-katja-schilderen-hun-huis-paars-geel-voor-carnaval-we-worden-positief-voor-gek-verklaard~afe2cb5a/)
+  > Wie door Hilvarenbeek loopt, kan niet om de woning van Pim (39) en Katja (37) heen. De voorgevel is in de Beekse Pezerikken carnavalskleuren paars en...
 - [Erben Wennemars leeft mee met ‘gebroken’ zoon Joep: ‘Hij wil meteen naar huis, maar dat gaat niet gebeuren’](https://www.ad.nl/olympische-spelen/erben-wennemars-leeft-mee-met-gebroken-zoon-joep-hij-wil-meteen-naar-huis-maar-dat-gaat-niet-gebeuren~ae66fcca/)
   > Het drama van Joep Wennemars op de 1000 meter bij de Olympische Spelen, dreunde ook hard na bij vader Erben. „Hoe het met hem gaat. Slecht, hij is...
-- [Liverpool via kopbal Van Dijk op voorsprong tegen stug Sunderland](https://www.ad.nl/voetbal/liverpool-via-kopbal-van-dijk-op-voorsprong-tegen-stug-sunderland~a7cdbc77/)
-  > Liverpool stevende zondag af op een zege in de topper tegen Manchester City, maar de ploeg van Arne Slot ging alsnog onderuit. Vanavond is er al kans...
 - [Snoop Dogg niet te missen tijdens de Winterspelen met zijn opvallende outfits](https://www.ad.nl/show/snoop-dogg-niet-te-missen-tijdens-de-winterspelen-met-zijn-opvallende-outfits~af41ca7d/)
   > Ook dit jaar is Snoop Dogg (54) opvallend aanwezig bij de Spelen. De rapper is benoemd tot ‘erecoach’ van Team USA en laat zijn gezicht én zijn...
-- [Britse historicus stelt: prinsessen Beatrice en Eugenie zochten zelf contact met Jeffrey Epstein](https://www.ad.nl/buitenland/britse-historicus-stelt-prinsessen-beatrice-en-eugenie-zochten-zelf-contact-met-jeffrey-epstein~a4186ebb/)
-  > Nieuwe onthullingen uit de Epstein-files werpen een schaduw over prinses Beatrice en prinses Eugenie. Volgens royalty-expert Andrew Lownie...
-- [Mandy uit Winter vol liefde werd afgewezen door Robin, maar wat ze zei kwam recht uit haar hart](https://www.ad.nl/show/mandy-uit-winter-vol-liefde-werd-afgewezen-door-robin-maar-wat-ze-zei-kwam-recht-uit-haar-hart~ab44aa4b/)
-  > De romantiek tussen dit duo spat van het scherm. En zeg nou zelf: dat is toch waarom we naar Winter vol liefde kijken?
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [CPB: ‘Bouw voordelen voor huizenbezitters en huurders af’](https://fd.nl/politiek/1586376/cpb-bouw-voordelen-voor-huizenbezitters-en-huurders-af)
+  > Woonsteun heeft vaak een averechts effect, stelt het onderzoeksinstituut. Fundamentele keuzes zijn nodig nu steeds minder huishoudens aan een...
 - [Tweede Kamer wil alles weten over Solvinity-overname, maar kabinet wacht onderzoeken af](https://fd.nl/politiek/1586412/tweede-kamer-wil-alles-weten-over-solvinity-overname-maar-kabinet-wacht-onderzoeken-af)
   > De Tweede Kamer zocht in een groot debat naar opties om de Amerikaanse overname van IT-bedrijf Solvinity te stoppen. Maar het demissionaire kabinet...
 - [Schrijver Cees Nooteboom (92) overleden](https://fd.nl/samenleving/1586318/schrijver-cees-nooteboom-92-overleden)
@@ -54,8 +56,6 @@
   > Het banenrapport zorgde aanvankelijk voor optimisme, maar dat was van korte duur.
 - [Zelenksy weerspreekt plannen voor Oekraïense verkiezingen](https://fd.nl/politiek/1586386/zelenksy-weerspreekt-plannen-voor-oekraiense-verkiezingen)
   > Woensdagochtend meldde de Britse zakenkrant Financial Times dat de president op 24 februari, precies vier jaar na de Russische inval, nieuwe...
-- [Tata slaat alarm over gemorrel aan Europees eindpad voor CO₂-emissies](https://fd.nl/politiek/1586270/tata-slaat-alarm-over-gemorrel-aan-europees-eindpad-voor-co2-emissies)
-  > De businesscase voor verduurzaming komt onder druk te staan als koolstofprijs daalt, zegt het staalbedrijf uit IJmuiden.
 
 ### Meest gelezen
 
