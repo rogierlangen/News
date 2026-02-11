@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-02-2026 om 08:05*
+*Laatst bijgewerkt: 11-02-2026 om 11:33*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Omzet uitzendbureau Randstad daalt opnieuw](https://nos.nl/l/2601855)
-  > Uitzendbureau Randstad zag zijn omzet in 2025 opnieuw dalen naar 23,1 miljard euro. Dat is 4 procent lager dan het voorgaande jaar. Ook de winst...
-- [Britney Spears verkoopt muziekrechten voor 200 miljoen dollar](https://nos.nl/l/2601853)
-  > Zangeres Britney Spears heeft haar muziekrechten verkocht. Muziekuitgeverij Primary Wave heeft die volgens de BBC gekocht voor 200 miljoen dollar,...
-- [Grote ontslagronde bij Heineken, minimaal 5000 banen weg](https://nos.nl/l/2601851)
-  > Heineken schrapt de komende twee jaar nog eens 5000 tot 6000 arbeidsplaatsen. Dat maakte de bierbrouwer vanmorgen bekend bij de presentatie van de...
-- [Wekdienst 11/2: Trump praat met Netanyahu • Olympische 1.000 meter mannen](https://nos.nl/l/2601850)
-  > Goedemorgen! De Amerikaanse president Trump en de Israëlische premier Netanyahu bespreken in de VS de onderhandelingen met Iran. En op de Olympische...
-- [Staatscommissie: uitspraken Tweede Kamer vergroten online discriminatie](https://nos.nl/l/2601845)
-  > Racisme en discriminatie nemen online toe na negatieve uitspraken van politici in de Tweede Kamer over bevolkingsgroepen. Het risico bestaat dat...
+- [Radioprogramma Adres Onbekend sneuvelt na ruim 50 jaar door bezuinigingen](https://nos.nl/l/2601900)
+  > Na ruim een halve eeuw op de radio komt er op 1 januari 2027 een eind aan Adres Onbekend. In het radioprogramma wordt de hulp van luisteraars...
+- [Rechtbank heeft meer tijd nodig voor beoordeling omstreden sterilisatiemiddel Essure](https://nos.nl/l/2601899)
+  > Rechters hebben meer tijd nodig om een omstreden sterilisatiemiddel Essure van farmaceut Bayer te laten beoordelen. Vandaag zou de rechtbank van...
+- [Ziekenhuis in Dordrecht stelt operaties uit om griepgolf](https://nos.nl/l/2601898)
+  > Het Albert Schweitzer Ziekenhuis in Dordrecht heeft enkele operaties uitgesteld vanwege een griepgolf. Het is er door de griep drukker dan...
+- [Vogelkenner en presentator Nico de Haan (78) overleden](https://nos.nl/l/2601897)
+  > Vogelbeschermer en vogelkenner Nico de Haan is overleden. Hij overleed dit weekend op 78-jarige leeftijd, bevestigt Vogelbescherming Nederland.
+     ...
+- [Man die werd aangehouden voor ontvoering Nancy Guthrie vrijgelaten](https://nos.nl/l/2601894)
+  > De persoon die werd aangehouden in de Amerikaanse staat Arizona in verband met de ontvoering van Nancy Guthrie, de moeder van NBC-presentator...
 
 ### Meest gelezen
 
@@ -27,15 +28,15 @@
 
 ### Laatste nieuws
 
-- [Stan Wawrinka op afscheidstournee in Rotterdam: ‘Mijn hele carrière voelt als een prachtige reis’](https://www.ad.nl/tennis/stan-wawrinka-op-afscheidstournee-in-rotterdam-mijn-hele-carriere-voelt-als-een-prachtige-reis~a59e6a76/)
-  > Stan Wawrinka (40) is bezig aan zijn laatste jaar als tennisprof. Het ABN Amro Open is een van de tussenstops op de afscheidstournee van de...
-- [Brandgevaar: opnieuw terugroepactie Ford Kuga PHEV](https://www.ad.nl/auto/brandgevaar-opnieuw-terugroepactie-ford-kuga-phev~a61b141a/)
-  > Vorig jaar kreeg de Ford Kuga PHEV van vóór de facelift in 2024 een software-update omdat er mogelijk zwakke cellen in de hoogspanningsaccu van...
-- [Komende dagen wisselvallig weer tijdens Winterspelen, FC Groningen wenst De Boo succes](https://www.ad.nl/olympische-spelen/komende-dagen-wisselvallig-weer-tijdens-winterspelen-fc-groningen-wenst-de-boo-succes~ae66fcca/)
-  > Buiten het shorttrack met de Nederlanders staat er nog een propvolle dinsdag op het programma, met veel skionderdelen. Zo gaan de vrouwen de...
-- [Producent bevestigt geruchten: vervolg op F1-film met Brad Pitt onderweg](https://www.ad.nl/show/producent-bevestigt-geruchten-vervolg-op-f1-film-met-brad-pitt-onderweg~a2535cd9/)
-  > De succesvolle film F1: The movie van vorig jaar krijgt een vervolg, bevestigt producent Jerry Bruckheimer tegenover de BBC. Het gerucht over een...
-- [Russell voorlopig de snelste tijdens eerste testdag, Verstappen hele dag achter het stuur](https://www.ad.nl/formule-1/russell-voorlopig-de-snelste-tijdens-eerste-testdag-verstappen-hele-dag-achter-het-stuur~a70724bf/)
+- [Kremlin komt met maatregelen als Westen militair opschaalt op Groenland](https://www.ad.nl/buitenland/kremlin-komt-met-maatregelen-als-westen-militair-opschaalt-op-groenland~a4fd31922/)
+  > Rusland komt met ‘gepaste tegenmaatregelen’ als het Westen de militaire aanwezigheid op Groenland opschroeft. Dat zegt buitenlandminister Sergej...
+- [Europa wapent zich tegen dreiging van drones: slimmer opsporen en sneller ingrijpen](https://www.ad.nl/buitenland/europa-wapent-zich-tegen-dreiging-van-drones-slimmer-opsporen-en-sneller-ingrijpen~a50dd094/)
+  > De Europese Commissie heeft woensdag een actieplan gepresenteerd tegen de dreiging van drones. De maatregelen variëren van slimme detectiesystemen...
+- [TransferTalk | Trainer van Quinten Timber weg, Feyenoord verlengt contract zoon Jon Dahl Tomasson](https://www.ad.nl/voetbal/transfertalk-trainer-van-quinten-timber-weg-feyenoord-verlengt-contract-zoon-jon-dahl-tomasson~a79d4309/)
+  > De transfermarkt in Nederland en de grootste competities is gesloten. Er zijn nog slechts een paar landen waar spelers naartoe kunnen. Ook zullen er...
+- [Schulting na twee jaar terug bij shorttrack­se­lec­tie, Zwitser op koers voor derde gouden medaille](https://www.ad.nl/olympische-spelen/schulting-na-twee-jaar-terug-bij-shorttrackselectie-zwitser-op-koers-voor-derde-gouden-medaille~ae66fcca/)
+  > Vandaag barst de strijd om het goud bij de 1000 meter schaatsen bij de mannen los. Maar er staan nog veel meer mooie dingen op het programma, zoals...
+- [Verstappen sluit productieve ochtendsessie af als snelste, Red Bull-coureur in de middag weer achter het stuur](https://www.ad.nl/formule-1/verstappen-sluit-productieve-ochtendsessie-af-als-snelste-red-bull-coureur-in-de-middag-weer-achter-het-stuur~a70724bf/)
   > Na de besloten ‘shakedown’ in Barcelona is het nu tijd voor de eerste testweek in Bahrein. Max Verstappen zal de gehele dag in actie komen in zijn...
 
 ### Meest gelezen
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Een woonboerderij in Prinsenbeek, onder de rook van Breda](https://fd.nl/samenleving/1586034/een-woonboerderij-in-prinsenbeek-onder-de-rook-van-breda)
-  > ‘We doen de beeldentuin voor noppes. Er gaat zelfs geld bij, omdat we het zo leuk vinden kunstenaars een kans te geven.’
-- [Kunstmestfabrikant Yara boekt weer winst in vierde kwartaal](https://fd.nl/bedrijfsleven/1586286/kunstmestfabrikant-yara-verhoogt-winst-in-vierde-kwartaal)
-  > Het bedrijf met fabrieken in Sluiskil wist de marges te verhogen, leverde meer aan haar klanten en voerde kostenbesparingen door.
-- [‘Oekraïne begonnen met het plannen van verkiezingen onder druk van VS’](https://fd.nl/politiek/1586254/oekraine-begonnen-met-het-plannen-van-verkiezingen)
-  > Kyiv zou onder druk van de VS begonnen zijn presidentiële verkiezingen en een referendum over een mogelijk vredesakkoord te plannen, meldt de...
-- [Hogere omzet en winst voor Ahold Delhaize ondanks tegenwind in Oost-Europa](https://fd.nl/bedrijfsleven/1586213/hogere-omzet-en-winst-voor-ahold-delhaize-door-meevaller-in-de-vs)
-  > Betere resultaten in de Verenigde Staten maakten enkele tegenvallers voor supermarktconcern Ahold Delhaize in Oost-Europa goed, zo blijkt uit...
-- [Weer minder omzet voor Randstad in laatste kwartaal van 2025](https://fd.nl/bedrijfsleven/1586285/weer-minder-omzet-voor-randstad-in-laatste-kwartaal-van-2025)
-  > De uitzender heeft het al enige tijd lastig. De vraag naar uitzendkrachten is minder  in verschillende belangrijke markten.
+- [‘Is democratie wel de juiste staatsvorm voor de energietransitie?’](https://fd.nl/bedrijfsleven/1585696/is-democratie-wel-de-juiste-staatsvorm-voor-de-energietransitie)
+  > Terwijl de chemische industrie in het Rotterdamse havengebied het water aan de lippen staat, vertrekt haar grootste voorvechter. Victor van der Chijs...
+- [Nederlands pfas-beleid is goed genoeg, oordeelt rechter](https://fd.nl/politiek/1586295/nederlands-pfas-beleid-is-goed-genoeg-oordeelt-rechter)
+  > Vijf milieuclubs hoopten op een totaalverbod en meer actie voor schoon oppervlaktewater. Pfas vormt een gevaar voor de gezondheid.
+- [Is Frankrijk op weg naar de financiële afgrond?](https://fd.nl/financiele-markten/1585764/is-frankrijk-op-weg-naar-de-financiele-afgrond)
+  > Steeds meer waarnemers zien in het onvermogen van Frankrijk om financieel orde op zaken te stellen een groot gevaar en vrezen een crisis. ‘Politici...
+- [Bouw biokerosinefabriek Delfzijl stuk dichterbij](https://fd.nl/bedrijfsleven/1586258/bouw-biokerosinefabriek-delfzijl-stuk-dichterbij)
+  > Uitbater SkyNRG is tot een overeenkomst gekomen met milieuorganisatie MOB. Die heeft daarop haar bezwaar tegen een bouwvergunning ingetrokken.
+- [Akkoord ProRail en ingenieursbureaus over overstap IT’ers](https://fd.nl/bedrijfsleven/1586257/prorail-en-ingenieursbureaus-akoord-over-overstap-iters)
+  > Spoorbeheerder ProRail en de ingenieursbureaus Arcadis en Movares zijn het eens geworden over de voorwaarden voor de overstap van ongeveer 140...
 
 ### Meest gelezen
 
