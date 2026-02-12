@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-02-2026 om 23:04*
+*Laatst bijgewerkt: 12-02-2026 om 05:19*
 
 ---
 
@@ -8,16 +8,18 @@
 
 ### Laatste nieuws
 
-- [Canadese politie maakt naam verdachte van massaschietpartij bekend](https://nos.nl/l/2602003)
-  > De verdachte van de dodelijke schietpartij op een middelbare school en een nabijgelegenwoning in Canada was een 18-jarige vrouw. Dat bevestigt de...
-- [Dawson's Creek-acteur James Van Der Beek (48) overleden aan darmkanker](https://nos.nl/l/2601995)
-  > De Amerikaanse acteur James Van Der Beek is op 48-jarige leeftijd overleden. Hij was onder meer bekend van zijn rol als Dawson Leery in Dawson's...
-- [Zelensky: pas verkiezingen in Oekraïne bij veiligheidsgaranties en bestand](https://nos.nl/l/2601991)
-  > Voordat er verkiezingen komen in Oekraïne, moeten er veiligheidsgaranties en een staakt-het-vuren met Rusland zijn, zegt de Oekraïense president...
-- [Russische en Canadese vliegmaatschappijen willen toeristen evacueren uit Cuba](https://nos.nl/l/2601990)
-  > Twee Russische vliegmaatschappijen willen toeristen evacueren uit Cuba. Dat zegt de Russische luchtvaartautoriteit Rosaviatsia. Daarna zijn de...
-- [BMW roept honderdduizenden auto's terug, 5500 in Nederland](https://nos.nl/l/2601983)
-  > BMW roept wereldwijd honderdduizenden auto's van meerdere modellen terug wegens een probleem met de startmotor. De autoproducent wil niet zeggen...
+- [Ondanks toename bedreigingen en intimidatie willen meeste raadsleden door](https://nos.nl/l/2602027)
+  > Driekwart van de gemeenteraadsleden is herkiesbaar bij de verkiezingen op 18 maart, evenveel als vier jaar geleden. Opmerkelijk, want de agressie,...
+- [Man met zestig slangen moet van rechter huurhuis verlaten](https://nos.nl/l/2602026)
+  > Een man uit het Gelderse Lichtenvoorde die zestig slangen in huis heeft, moet op last van de rechter zijn huurhuis verlaten.
+        De...
+- [Marechaussee achtervolgt vluchtende automobilist over A2](https://nos.nl/l/2602025)
+  > De marechaussee heeft gisteravond een automobilist over de A2 bij Best achtervolgd.
+        De marechaussee wilde de auto controleren na een...
+- [Mensenrechtenorganisatie: dodental demonstraties Iran opgelopen tot ruim 7000](https://nos.nl/l/2602024)
+  > Het dodental sinds de start van de massale demonstraties in Iran is opgelopen tot ruim zevenduizend, meldt de Iraanse mensenrechtenorganisatie...
+- [Lufthansa schrapt vrijwel alle vluchten door aangekondigde staking piloten](https://nos.nl/l/2602023)
+  > In Duitsland is even na middernacht een staking van 24 uur begonnen van piloten en cabinepersoneel van Lufthansa. De luchtvaartmaatschappij had...
 
 ### Meest gelezen
 
@@ -27,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [FC Utrecht stunt in Nijmegen en wint weer eens na drie maanden, NEC laat na om plek twee te grijpen](https://www.ad.nl/voetbal/fc-utrecht-stunt-in-nijmegen-en-wint-weer-eens-na-drie-maanden-nec-laat-na-om-plek-twee-te-grijpen~a63f87af/)
-  > FC Utrecht heeft eindelijk de zo vurig gewenste klinkende overwinning binnen. Bij revelatie van het seizoen NEC won de ploeg met 1-3, na negen...
-- [Virgil van Dijk klopt Robin Roefs in de lucht en bezorgt Liverpool zege in Sunderland](https://www.ad.nl/voetbal/virgil-van-dijk-klopt-robin-roefs-in-de-lucht-en-bezorgt-liverpool-zege-in-sunderland~a7cdbc77/)
-  > Liverpool heeft woensdagavond de lastige uitwedstrijd bij Sunderland met 0-1 gewonnen. Virgil van Dijk maakte een kwartier na rust de winnende goal...
-- [Pim en Katja schilderen hun huis paars-geel voor carnaval: ‘We worden positief voor gek verklaard’](https://www.ad.nl/binnenland/pim-en-katja-schilderen-hun-huis-paars-geel-voor-carnaval-we-worden-positief-voor-gek-verklaard~afe2cb5a/)
-  > Wie door Hilvarenbeek loopt, kan niet om de woning van Pim (39) en Katja (37) heen. De voorgevel is in de Beekse Pezerikken carnavalskleuren paars en...
-- [Erben Wennemars leeft mee met ‘gebroken’ zoon Joep: ‘Hij wil meteen naar huis, maar dat gaat niet gebeuren’](https://www.ad.nl/olympische-spelen/erben-wennemars-leeft-mee-met-gebroken-zoon-joep-hij-wil-meteen-naar-huis-maar-dat-gaat-niet-gebeuren~ae66fcca/)
-  > Het drama van Joep Wennemars op de 1000 meter bij de Olympische Spelen, dreunde ook hard na bij vader Erben. „Hoe het met hem gaat. Slecht, hij is...
-- [Snoop Dogg niet te missen tijdens de Winterspelen met zijn opvallende outfits](https://www.ad.nl/show/snoop-dogg-niet-te-missen-tijdens-de-winterspelen-met-zijn-opvallende-outfits~af41ca7d/)
-  > Ook dit jaar is Snoop Dogg (54) opvallend aanwezig bij de Spelen. De rapper is benoemd tot ‘erecoach’ van Team USA en laat zijn gezicht én zijn...
+- [Waarom een aanrijding met een snelheid van 35 km/u gevaarlijker is dan 50 km/u](https://www.ad.nl/auto/waarom-een-aanrijding-met-een-snelheid-van-35-km-u-gevaarlijker-is-dan-50-km-u~ab977ac5/)
+  > Een botsing terwijl je 35 kilometer per uur rijdt, blijkt gevaarlijker te zijn dan een botsing bij hogere snelheden. Het onlogische fenomeen is de...
+- [Beelden tonen zwartgeblakerde ruimtes vlak na drama Zwitserse bar Le Constellation](https://www.ad.nl/buitenland/beelden-tonen-zwartgeblakerde-ruimtes-vlak-na-drama-zwitserse-bar-le-constellation~a7c50235/)
+  > Nieuwe beelden uit de zwaar getroffen bar Le Constellation in het Zwitserse Crans-Montana tonen de verwoesting net na de dodelijke brand tijdens...
+- [‘Eenzaamste schaap’ Fiona bevalt van eerste lammetjes](https://www.ad.nl/buitenland/eenzaamste-schaap-fiona-bevalt-van-eerste-lammetjes~a85eacba/)
+  > Het ‘eenzaamste schaap’ van Groot-Brittannië, Fiona, is bevallen van haar eerste lammetjes. Dat meldt BBC News. Fiona haalde in 2023 de krantenkoppen...
+- [Meta: Rusland probeert toegang tot WhatsApp compleet te blokkeren](https://www.ad.nl/tech/meta-rusland-probeert-toegang-tot-whatsapp-compleet-te-blokkeren~a6d624cd/)
+  > Volgens WhatsApp probeert de Russische overheid zijn versleutelde berichtendienst in het land volledig te blokkeren. Dit zou deel uitmaken van...
+- [Rapport onthult jarenlange doofpot rond misbruik in jeugddorp De Glind: ‘Kinderen werden niet geloofd’](https://www.ad.nl/barneveld/rapport-onthult-jarenlange-doofpot-rond-misbruik-in-jeugddorp-de-glind-kinderen-werden-niet-geloofd~a5b5a2b50/)
+  > Misbruik in De Glind, het Gelderse jeugddorp waar uit huis geplaatste kinderen worden ondergebracht bij pleeggezinnen, is jarenlang in de doofpot...
 
 ### Meest gelezen
 
@@ -46,16 +48,16 @@
 
 ### Laatste nieuws
 
-- [CPB: ‘Bouw voordelen voor huizenbezitters en huurders af’](https://fd.nl/politiek/1586376/cpb-bouw-voordelen-voor-huizenbezitters-en-huurders-af)
-  > Woonsteun heeft vaak een averechts effect, stelt het onderzoeksinstituut. Fundamentele keuzes zijn nodig nu steeds minder huishoudens aan een...
-- [Tweede Kamer wil alles weten over Solvinity-overname, maar kabinet wacht onderzoeken af](https://fd.nl/politiek/1586412/tweede-kamer-wil-alles-weten-over-solvinity-overname-maar-kabinet-wacht-onderzoeken-af)
-  > De Tweede Kamer zocht in een groot debat naar opties om de Amerikaanse overname van IT-bedrijf Solvinity te stoppen. Maar het demissionaire kabinet...
-- [Schrijver Cees Nooteboom (92) overleden](https://fd.nl/samenleving/1586318/schrijver-cees-nooteboom-92-overleden)
-  > Nooteboom schreef tientallen romans en reisverslagen en won meerdere grote literatuurprijzen.
-- [Banencijfers bepalen gemoed op Wall Street](https://fd.nl/financiele-markten/1586385/banencijfers-bepalen-gemoed-op-wall-street)
-  > Het banenrapport zorgde aanvankelijk voor optimisme, maar dat was van korte duur.
-- [Zelenksy weerspreekt plannen voor Oekraïense verkiezingen](https://fd.nl/politiek/1586386/zelenksy-weerspreekt-plannen-voor-oekraiense-verkiezingen)
-  > Woensdagochtend meldde de Britse zakenkrant Financial Times dat de president op 24 februari, precies vier jaar na de Russische inval, nieuwe...
+- [Zaadveredeling is big business, maar: ‘De eerste twintig jaar heb je alleen maar uitgaven’](https://fd.nl/bedrijfsleven/1586144/zaadveredeling-is-big-business-maar-de-eerste-twintig-jaar-heb-je-alleen-maar-uitgaven)
+  > Talloze mensen eten dagelijks groenten die er nooit waren geweest zonder de zaden van plantenveredelaar Rijk Zwaan, een van de minst bekende...
+- [Parbleu! Koerst Frankrijk richting de financiële afgrond?](https://fd.nl/economie/1586274/parbleu-koerst-frankrijk-richting-de-financiele-afgrond)
+  > Vandaag in Dagkoers: Heineken schrapt 6000 banen, rechter doet uitspraak in Nexperia-gate en de Fransen blijven maar lenen.
+- [Drugsoorlog](https://fd.nl/opinie/1586384/drugsoorlog)
+  > Hoe kan het het aantal drugsdoden in de VS sinds 2023 met bijna 40% is gedaald, vraagt FD-columnist Anna Dijkman zich af. Succes kent vele vaders,...
+- [Een derde van kleine ondernemers overweegt verkoop bedrijf](https://fd.nl/bedrijfsleven/1586265/een-derde-van-kleine-ondernemers-overweegt-verkoop-bedrijf)
+  > Tegelijkertijd zijn ondernemers slecht voorbereid op mogelijke exit. Ze weten niet aan wie ze kunnen verkopen of wat hun bedrijf waard is.
+- [Het lelijke knip- en plakwerk van rechts](https://fd.nl/opinie/1586211/het-lelijke-knip-en-plakwerk-van-rechts)
+  > Sinds wanneer regeert de smakeloosheid? De verloedering is extra pijnlijk omdat juist politici ter rechterzijde een traditie hebben hoog te houden.
 
 ### Meest gelezen
 
