@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-02-2026 om 11:28*
+*Laatst bijgewerkt: 12-02-2026 om 14:42*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Weer tienduizenden in Oekraïne zonder stroom na raketaanvallen Rusland](https://nos.nl/l/2602070)
-  > Rusland heeft vanochtend vroeg opnieuw honderden raketten en drones afgevuurd op Oekraïne. Doelwit was vooral de energievoorziening. De aanvallen...
-- [Noodweer onregelt Zuid-Frankrijk en Pyreneeën, trucker omgekomen](https://nos.nl/l/2602069)
-  > Delen van Frankrijk en Spanje worden geteisterd door noodweer. Storm Nils raast met windstoten tot 160 kilometer per uur over Zuid-Frankrijk en de...
-- [Na zomer mogelijk geen nieuwe stroomaansluiting voor huizen Midden-Nederland](https://nos.nl/l/2602066)
-  > Een week nadat overheid en netbeheerders hadden aangekondigd dat de wachtlijst voor een nieuwe elektriciteitsaansluiting de komende jaren flink...
-- [Onderzoekers hekelen gebrek openheid Pluryn in misbruikrapport De Glind](https://nos.nl/l/2602064)
-  > Het seksuele en fysieke misbruik van pleegkinderen in jeugddorp De Glind in Gelderland kon lange tijd doorgaan door een gesloten cultuur en gebrek...
-- ['Uit huis geplaatste kinderen weten niet waar ze met klachten naartoe moeten'](https://nos.nl/l/2602062)
-  > Kinderen die uit huis zijn geplaatst vinden nog altijd moeilijk een luisterend oor bij klachten. Ze kennen de officiële procedures niet of hebben...
+- [Podcast De Dag: Gaan voor je gemeente, ook al word je bedreigd](https://nos.nl/l/2602098)
+  > "De mooiste hondenbaan", zo noemt de Nederlandse Vereniging van Raadsleden het werk als gemeenteraadslid. Raadsleden maken echt het verschil voor de...
+- [Nationale bibliotheek gaat tijdelijk verhuizen: 'Op een mooie centrale plek'](https://nos.nl/l/2602092)
+  > De KB nationale bibliotheek in Den Haag verhuist eind 2028 tijdelijk naar het Berlage-Huis, het voormalige Shell-kantoor, in de stad. De tijdelijke...
+- [Hack bij Odido, gegevens miljoenen klanten in handen van criminelen](https://nos.nl/l/2602080)
+  > Telecomprovider Odido is getroffen door een grote cyberaanval. Criminelen hadden daardoor toegang tot een bestand met de gegevens van 6,2 miljoen...
+- [Aanhouding vanwege misstanden gezinshuis Niekerk](https://nos.nl/l/2602079)
+  > De politie heeft een vrouw van 54 aangehouden vanwege betrokkenheid bij misstanden in een gezinshuis in Niekerk (Groningen). In het tehuis hebben...
+- [Half miljoen euro boete voor Nederlandse tak Louis Vuitton](https://nos.nl/l/2602077)
+  > De Nederlandse tak van het Franse modehuis Louis Vuitton krijgt van het Openbaar Ministerie (OM) een boete van van 500.000 euro. Het luxemodemerk...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [ManUnited-miljardair ontketent rel met uitspraak over ‘kolonisatie’, Britse premier wil per direct excuses](https://www.ad.nl/voetbal/manunited-miljardair-ontketent-rel-met-uitspraak-over-kolonisatie-britse-premier-wil-per-direct-excuses~ad91b445/)
-  > Jim Ratcliffe, mede-eigenaar van Manchester United, is in opspraak geraakt. Hij is van mening dat Groot-Brittannië gekoloniseerd wordt door de...
-- [TransferTalk | Tomasson zegt nee tegen Anderlecht, Engeland langer door met Thomas Tuchel](https://www.ad.nl/voetbal/transfertalk-tomasson-zegt-nee-tegen-anderlecht-engeland-langer-door-met-thomas-tuchel~a79d4309/)
-  > De transfermarkt in Nederland en de grootste competities is gesloten. Er zijn nog slechts een paar landen waar spelers naartoe kunnen. Ook zullen er...
-- [Pijnlijke ochtend voor Red Bull en Mercedes, indrukwekkende testsessie Charles Leclerc en Ferrari](https://www.ad.nl/formule-1/pijnlijke-ochtend-voor-red-bull-en-mercedes-indrukwekkende-testsessie-charles-leclerc-en-ferrari~abea5584/)
+- [Trumps 'grenstsaar' kondigt einde aan van ICE-operatie Minnesota](https://www.ad.nl/buitenland/trumps-grenstsaar-kondigt-einde-aan-van-ice-operatie-minnesota~ab343506/)
+  > De ‘grenstsaar’ van president Trump heeft aangekondigd dat de operatie van immigratiedienst ICE in Minnesota snel ten einde komt. Tom Homan heeft...
+- [Wouter Burger nu meer speler dan fan: ‘In het debuutjaar van Arne Slot speelde ik nog kort als centrale verdediger’](https://www.ad.nl/voetbal/wouter-burger-nu-meer-speler-dan-fan-in-het-debuutjaar-van-arne-slot-speelde-ik-nog-kort-als-centrale-verdediger~ae933f0d/)
+  > Wouter Burger was één van de grootste talenten die Feyenoord zelf opleidde, maar de middenvelder had periodes in Zwitserland, Engeland en Duitsland...
+- [Schaatsfan krijgt het aan de stok met beveiligers van Snoop Dogg in Milaan: ‘Kreeg vier kleerkasten in mijn nek’](https://www.ad.nl/show/schaatsfan-krijgt-het-aan-de-stok-met-beveiligers-van-snoop-dogg-in-milaan-kreeg-vier-kleerkasten-in-mijn-nek~aef72d52/)
+  > De beelden liegen er niet om. Kleerkasten van beveiligers duwen een in oranje uitgedoste schaatsfan richting de uitgang. Zijn eerste kennismaking met...
+- [Hadjar en Red Bull gehinderd door twee rode vlaggen, Aston Martin ‘vier seconden achter de leiders’](https://www.ad.nl/formule-1/hadjar-en-red-bull-gehinderd-door-twee-rode-vlaggen-aston-martin-vier-seconden-achter-de-leiders~abea5584/)
   > De teams en coureurs zijn weer terug op het Bahrain International Circuit voor de tweede testdag. Vandaag komt Max Verstappen niet in actie....
-- [Stroomnet in drie provincies loopt tegen grenzen aan, aansluitingsstop dreigt](https://www.ad.nl/binnenland/stroomnet-in-drie-provincies-loopt-tegen-grenzen-aan-aansluitingsstop-dreigt~a3e25ea2/)
-  > Het hoogspanningsnet in Utrecht, Gelderland en Flevoland heeft zijn grenzen bereikt. Daarvoor waarschuwt netbeheerder TenneT donderdag.
-- [Geloof me Joep, je moet eerst flink naar de kloten om je daarna weer op te kunnen richten](https://www.ad.nl/binnenland/geloof-me-joep-je-moet-eerst-flink-naar-de-kloten-om-je-daarna-weer-op-te-kunnen-richten~ab335347/)
-  > Iedereen gaat maar wat graag met een winnaar als Jutta aan de haal, dat was de afgelopen dagen niet te missen, schrijft Angela de Jong. Maar hoe zit...
+- [Oeteldonk en Kielegat doen het carnavalstoerisme in de ban: 'Dat alles kan en mag, is een misvatting'](https://www.ad.nl/binnenland/oeteldonk-en-kielegat-doen-het-carnavalstoerisme-in-de-ban-dat-alles-kan-en-mag-is-een-misvatting~aa76127e/)
+  > Wie dit carnavalsweekend als banaan of politieagent wil hossen op technobeats of populaire feestnummers, is in Den Bosch aan het verkeerde adres. De...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [EU-leiders eensgezind over diagnose concurrentieprobleem, maar verdeeld over de oplossing](https://fd.nl/politiek/1586423/eu-leiders-eensgezind-over-diagnose-concurrentieprobleem-maar-verdeeld-over-de-oplossing)
-  > Op een top in Belgisch-Limburg staat de tanende Europese invloed in de wereld centraal. Er klinkt een oproep om vaart te maken met een coalitie van...
-- [Weer een verfilming van Wuthering Heights](https://fd.nl/samenleving/1586146/weer-een-verfilming-van-wuthering-heights)
-  > Met Valentijnsdag verschijnt de zoveelste verfilming van Emily Brontës roman Wuthering Heights. Kenners van het origineel reageerden al oververhit op...
-- [Een gewilde 100-jarige](https://fd.nl/financiele-markten/1586419/een-gewilde-100-jarige)
-  > Google-oprichter Larry Page zei recent: ‘Ik ga liever failliet dan deze AI-race te missen.’ Wil je aan iemand met zo’n risicohouding een eeuw lang je...
-- [Israëlische wijn van de Westelijke Jordaanoever blijft vloeien: ‘Het is business en ik ben een kapitalist’](https://fd.nl/bedrijfsleven/1586141/israelische-wijn-van-de-westelijke-jordaanoever-blijft-vloeien-het-is-business-en-ik-ben-een-kapitalist)
-  > Nederland is een belangrijke afzetmarkt, ondanks het voornemen een importverbod op producten uit Israëlische nederzettingen in te voeren.
-- [Laat stem van samenleving in Den Haag klinken](https://fd.nl/opinie/1586026/laat-stem-van-samenleving-in-den-haag-klinken)
-  > Kabinet-Jetten wil meer samenwerken met lagere overheden en maatschappelijke organisaties. Om dit te laten slagen moet de Haagse politiek minder...
+- [Cor Overduin: ‘Box 3 is in een door niemand gewenst moeras beland’](https://fd.nl/politiek/1586426/cor-overduin-box-3-is-in-een-door-niemand-gewenst-moeras-beland)
+  > De belastingadviseur procedeerde jarenlang tegen de belasting op sparen en beleggen en kreeg in 2021 met het beroemde kerstarrest gelijk. De nieuwe...
+- [‘Oliedeal’ van $155 mln in Rotterdamse haven bleek volledig gesimuleerd](https://fd.nl/bedrijfsleven/1586432/oliedeal-van-155-mln-in-rotterdamse-haven-bleek-volledig-gesimuleerd)
+  > Het Openbaar Ministerie eist veertien maanden cel tegen twee mannen die olie probeerden te verkopen die opgeslagen zou liggen bij Shell.
+- [Juridisch circus belooft weinig goeds voor gameplatform Roblox](https://fd.nl/financiele-markten/1586303/juridisch-circus-belooft-weinig-goeds-voor-gameplatform-roblox)
+  > Het aandeel beleeft op de New York Stock Exchange een achtbaanrit door wereldwijde aantijgingen van seksuele uitbuiting en gewelddadige inhoud.
+- [Nuveen neemt voor £9,9 mrd vermogensbeheerder Schroders over](https://fd.nl/financiele-markten/1586354/nuveen-neemt-voor-9-9-mrd-vermogensbeheerder-schroders-over)
+  > De overname maakt een einde aan meer dan twee eeuwen onafhankelijkheid voor de grootste onafhankelijke vermogensbeheerder van het Verenigd Koninkrijk.
+- [Met forse tegenzin stemt Tweede Kamer voor vernieuwing box 3](https://fd.nl/politiek/1586418/met-forse-tegenzin-stemt-tweede-kamer-voor-vernieuwing-box-3)
+  > Een Kamermeerderheid steunt de Wet werkelijk rendement. Die regelt dat Nederland per 2028 inkomen uit sparen en beleggen in box 3 op een andere...
 
 ### Meest gelezen
 
