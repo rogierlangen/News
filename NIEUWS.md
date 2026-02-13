@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-02-2026 om 23:58*
+*Laatst bijgewerkt: 13-02-2026 om 05:14*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Nationalistische Partij wint eerste verkiezingen in Bangladesh na val ex-premier Hasina](https://nos.nl/l/2602208)
-  > De Nationalistische Partij van Bangladesh (BNP) heeft de eerste verkiezingen in Bangladesh sinds de studentenopstand van 2024 gewonnen. Volgens...
+- [Zuid-Afrika zet leger in tegen bendegeweld en illegale mijnbouw](https://nos.nl/l/2602211)
+  > De Zuid-Afrikaanse president Ramaphosa zet het leger in om de politie te ondersteunen bij de bestrijding van georganiseerde misdaad. Ramaphosa zei in...
+- [Noorse oud-premier Jagland aangeklaagd om banden met Epstein](https://nos.nl/l/2602210)
+  > De Noorse oud-premier Thorbjørn Jagland is aangeklaagd voor "grove corruptie" vanwege zijn banden met de Amerikaanse zedendelinquent Jeffrey Epstein....
+- [Kritiek op T-shirts met afbeelding Spelen nazi-Duitsland, IOC verdedigt verkoop](https://nos.nl/l/2602209)
+  > Het Internationaal Olympisch Comité (IOC) ligt onder vuur vanwege de verkoop in de officiële fanshop van T-shirts met een ontwerp van de Olympische...
+- [Nationalistische Partij wint eerste verkiezingen in Bangladesh na val premier Hasina](https://nos.nl/l/2602208)
+  > De Nationalistische Partij van Bangladesh (BNP) heeft de eerste verkiezingen in Bangladesh sinds de studentenopstand van 2024 overtuigend gewonnen....
 - [EU wil snel interne markt versterken, desnoods eerst met minder landen](https://nos.nl/l/2602187)
   > De EU wil vaart maken met het versterken van de interne markt. Als het niet lukt om met alle 27 EU-landen op korte termijn vooruitgang te boeken, wil...
-- ['Op korte termijn maatregelen voor vol stroomnet', zeggen provincies en brancheclubs](https://nos.nl/l/2602184)
-  > Verschillende organisaties en politici maken zich "grote zorgen" over de situatie op het elektriciteitsnet in Flevoland, Utrecht en Gelderland.
-     ...
-- [Hongaarse oppositieleider: 'Partij van Orbán gaat een sekstape van mij publiceren'](https://nos.nl/l/2602179)
-  > De Hongaarse oppositieleider Péter Magyar beschuldigt de partij van premier Viktor Orbán ervan een lastercampagne tegen hem voor te bereiden met een...
-- [Manuscript Jan Wolkers geveild: 'Stukje literaire geschiedenis'](https://nos.nl/l/2602177)
-  > In IJsselstein is vanmiddag een manuscript van Jan Wolkers geveild. Het gaat om een ruwe versie van de roman De walgvogel uit 1974. De nieuwe...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Voetbalpodcast | ‘Na Mario Götze is Raheem Sterling de grootste buitenlander ooit in de Eredivisie’](https://www.ad.nl/voetbal/voetbalpodcast-na-mario-gotze-is-raheem-sterling-de-grootste-buitenlander-ooit-in-de-eredivisie~ac8603a9/)
-  > De transferstunt van Feyenoord door 82-voudig Engels international Raheem Sterling vast te leggen voor de rest van dit seizoen.
-- [Prachtige shorttrackavond in Milaan! Goud voor Xandra Velzeboer én Jens van ’t Wout](https://www.ad.nl/olympische-spelen/prachtige-shorttrackavond-in-milaan-goud-voor-xandra-velzeboer-en-jens-van-t-wout~a564a835/)
-  > De één kwam nooit uit haar tunnel, zag nooit iemand voor zich. De ander speelde, vocht zich sluw door de gaatjes die hij zag. Op een historische...
-- [Arsenal verspeelt punten bij stadgenoot Brentford, dat weer eens toeslaat uit een verre ingooi](https://www.ad.nl/voetbal/arsenal-verspeelt-punten-bij-stadgenoot-brentford-dat-weer-eens-toeslaat-uit-een-verre-ingooi~a909c7a1/)
-  > Arsenal heeft donderdagavond twee punten laten liggen. De koploper van de Premier League speelde met 1-1 gelijk bij stadgenoot Brentford, dat weer...
-- [Regering-Trump draait klimaatbeleid terug, ‘fossiele industrie kan nóg meer geld kan verdienen’, zegt Obama](https://www.ad.nl/buitenland/regering-trump-draait-klimaatbeleid-terug-fossiele-industrie-kan-nog-meer-geld-kan-verdienen-zegt-obama~ae67dd9c/)
-  > De regering-Trump heeft bepalend klimaatbeleid teruggedraaid dat onder meer juridische grond gaf aan welke broeikasgassen een gevaar vormen voor...
-- [Programma en stand Premier League Darts | Michael van Gerwen blijft stevig aan kop op ranglijst](https://www.ad.nl/darts/premier-league-speelschema-programma-uitslagen-stand~a9ae7647/)
-  > De Premier League Darts is donderdag van start gegaan. In Newcastle revancheerde Gian van Veen zich na de verloren WK-finale tegen Luke Littler, maar...
+- [Het regent leguanen door uitzonderlijke kou in Florida: ‘Je kunt ze oprapen alsof het paaseieren zijn’](https://www.ad.nl/buitenland/het-regent-leguanen-door-uitzonderlijke-kou-in-florida-je-kunt-ze-oprapen-alsof-het-paaseieren-zijn~a1e60a48/)
+  > De uitzonderlijke kou in de Amerikaanse staat Florida heeft een opvallend gevolg. Je kunt er de leguanen letterlijk oprapen, nadat die massaal uit de...
+- [Aantal skigewonden stijgt explosief: ‘Sinds corona gevaarlijker op de piste’](https://www.ad.nl/gezond/aantal-skigewonden-stijgt-explosief-sinds-corona-gevaarlijker-op-de-piste~a26917c2/)
+  > Nederlanders reizen de komende weken weer in groten getale naar de Alpen om te skiën, maar pas op: de kans op ongelukken is groot. De Franse...
+- [Programma Olympische Spelen | Jorrit Bergsma en Stijn van de Bunt rijden langste afstand, toernooi begint voor Kimberly Bos](https://www.ad.nl/olympische-spelen/programma-olympische-spelen-jorrit-bergsma-en-stijn-van-de-bunt-rijden-langste-afstand-toernooi-begint-voor-kimberly-bos~a57742ef/)
+  > Na een prachtige olympische dag - met gouden medailles voor Xandra Velzeboer en Jens van ‘t Wout en zilver voor Merel Conijn - liggen er vandaag...
+- [ChatGPT-maker zegt dat Chinese start-up Deepseek AI-chatbot kopieert](https://www.ad.nl/tech/chatgpt-maker-zegt-dat-chinese-start-up-deepseek-ai-chatbot-kopieert~aff31895/)
+  > Software-ontwikkelaar OpenAI heeft Amerikaanse volksvertegenwoordigers gewaarschuwd dat het Chinese AI-bedrijf DeepSeek op oneerlijke wijze...
+- [Venezolaanse interim-president belooft vrije verkiezingen](https://www.ad.nl/buitenland/venezolaanse-interim-president-belooft-vrije-verkiezingen~a3e63203/)
+  > De Venezolaanse interim-president Delcy Rodríguez zegt dat zij ‘absoluut’ bereid is vrije en eerlijke verkiezingen te houden. Het moment daarvoor...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Ingrid Thijssen: ‘Ik ben geen onheilsprofeet, maar ik moest continu uitdragen wat er niet goed ging’](https://fd.nl/economie/1586268/ingrid-thijssen-ik-ben-geen-onheilsprofeet-maar-ik-moest-continu-uitdragen-wat-er-niet-goed-ging)
+  > Ingrid Thijssen was de VNO-NCW-voorzitter die de eigen achterban opriep om meer voor de samenleving te doen. Maar al snel hamerde ze vooral op het...
+- [Jeugdvrienden Michael en Stefan betichten ‘de ander’ van zwendel van €1,1 mln met bier en wijn](https://fd.nl/samenleving/1586040/jeugdvrienden-michael-en-stefan-betichten-de-ander-van-zwendel-van-1-1-mln-met-bier-en-wijn)
+  > De drankenhandel die twee mannen hadden opgezet, behaalde in korte tijd een miljoenenomzet. Maar 95% van de transporten vond nooit plaats.
+- [De Odido’s van deze wereld zijn perfect doelwit van hackers](https://fd.nl/economie/1586447/de-odidos-van-deze-wereld-zijn-perfect-doelwit-van-hackers)
+  > Vandaag in Dagkoers: wat we tot nu toe weten van de hack bij Odido, Adyen gaat hard onderuit op de beurs en Europese leiders bespreken...
 - [Minder snoepjes, meer groei](https://fd.nl/opinie/1586422/minder-snoepjes-meer-groei)
   > 500 regels schrappen? Ophouden met pamperen zorgt pas écht voor minder bureaucratie, minister Karremans. Uw ingestelde ‘mini-DOGE’ is onwerkbaar...
 - [Vecht voor het ETS](https://fd.nl/opinie/1586364/vecht-voor-het-ets)
   > Zonder het EU ETS halen we de klimaatdoelen nooit, denkt FD-columnist Mathijs Bouman. Politici moeten er nu voor vechten.
-- [Personalia vrijdag 13 februari](https://fd.nl/bedrijfsleven/1586441/personalia-vrijdag-13-februari)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Wall Street onderuit door ‘AI-fobie’, goud en zilver in de ramsj](https://fd.nl/financiele-markten/1586451/wall-street-onderuit-door-ai-fobie-goud-en-zilver-in-de-ramsj)
-  > Na een klein winstje op maandag en daarna twee dagen kwakkelen doken de Amerikaanse beurzen donderdag in het rood.
-- [Europese Commissie start opnieuw onderzoek naar Google](https://fd.nl/bedrijfsleven/1586370/europese-commissie-start-opnieuw-onderzoek-naar-google)
-  > De Europese Commissie opent opnieuw een onderzoek naar Google.
 
 ### Meest gelezen
 
