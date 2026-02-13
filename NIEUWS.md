@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-02-2026 om 05:14*
+*Laatst bijgewerkt: 13-02-2026 om 08:02*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Zuid-Afrika zet leger in tegen bendegeweld en illegale mijnbouw](https://nos.nl/l/2602211)
-  > De Zuid-Afrikaanse president Ramaphosa zet het leger in om de politie te ondersteunen bij de bestrijding van georganiseerde misdaad. Ramaphosa zei in...
-- [Noorse oud-premier Jagland aangeklaagd om banden met Epstein](https://nos.nl/l/2602210)
-  > De Noorse oud-premier Thorbjørn Jagland is aangeklaagd voor "grove corruptie" vanwege zijn banden met de Amerikaanse zedendelinquent Jeffrey Epstein....
-- [Kritiek op T-shirts met afbeelding Spelen nazi-Duitsland, IOC verdedigt verkoop](https://nos.nl/l/2602209)
-  > Het Internationaal Olympisch Comité (IOC) ligt onder vuur vanwege de verkoop in de officiële fanshop van T-shirts met een ontwerp van de Olympische...
-- [Nationalistische Partij wint eerste verkiezingen in Bangladesh na val premier Hasina](https://nos.nl/l/2602208)
-  > De Nationalistische Partij van Bangladesh (BNP) heeft de eerste verkiezingen in Bangladesh sinds de studentenopstand van 2024 overtuigend gewonnen....
-- [EU wil snel interne markt versterken, desnoods eerst met minder landen](https://nos.nl/l/2602187)
-  > De EU wil vaart maken met het versterken van de interne markt. Als het niet lukt om met alle 27 EU-landen op korte termijn vooruitgang te boeken, wil...
+- [ACM gaat onderzoek doen naar PostNL vanwege overname Sandd](https://nos.nl/l/2602226)
+  > De Autoriteit Consument & Markt (ACM) begint een onderzoek naar PostNL vanwege de overname van concurrent Sandd. Er wordt al jaren gesproken over de...
+- [Tweede vliegdekschip VS naar Midden-Oosten om druk op Iran te vergroten](https://nos.nl/l/2602225)
+  > President Trump heeft het grootste vliegdekschip ter wereld, de USS Gerald R. Ford, opdracht gegeven om naar het Midden-Oosten te varen. Dat melden...
+- [Medewerkers en gidsen Louvre opgepakt voor miljoenenfraude met tickets](https://nos.nl/l/2602221)
+  > De Franse politie heeft negen mensen gearresteerd op verdenking van grootschalige ticketfraude in het Louvre. Het gaat onder meer om twee medewerkers...
+- ['Klarna handelt als incassobureau, overtreedt daarmee mogelijk de wet'](https://nos.nl/l/2602219)
+  > Klarna overtreedt mogelijk de wet. Dat zeggen deskundigen die de handelswijze van het bedrijf beoordeelden. De Zweedse online bank staat niet...
+- [Wekdienst 13/2: Uitspraak in Stint-zaak • Veiligheidsconferentie in München begint](https://nos.nl/l/2602216)
+  > Goedemorgen! Vandaag doet de rechter uitspraak in de Stint-zaak. Twee mannen worden verantwoordelijk gehouden voor een ongeluk in 2018 in Oss met een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Het regent leguanen door uitzonderlijke kou in Florida: ‘Je kunt ze oprapen alsof het paaseieren zijn’](https://www.ad.nl/buitenland/het-regent-leguanen-door-uitzonderlijke-kou-in-florida-je-kunt-ze-oprapen-alsof-het-paaseieren-zijn~a1e60a48/)
-  > De uitzonderlijke kou in de Amerikaanse staat Florida heeft een opvallend gevolg. Je kunt er de leguanen letterlijk oprapen, nadat die massaal uit de...
-- [Aantal skigewonden stijgt explosief: ‘Sinds corona gevaarlijker op de piste’](https://www.ad.nl/gezond/aantal-skigewonden-stijgt-explosief-sinds-corona-gevaarlijker-op-de-piste~a26917c2/)
-  > Nederlanders reizen de komende weken weer in groten getale naar de Alpen om te skiën, maar pas op: de kans op ongelukken is groot. De Franse...
-- [Programma Olympische Spelen | Jorrit Bergsma en Stijn van de Bunt rijden langste afstand, toernooi begint voor Kimberly Bos](https://www.ad.nl/olympische-spelen/programma-olympische-spelen-jorrit-bergsma-en-stijn-van-de-bunt-rijden-langste-afstand-toernooi-begint-voor-kimberly-bos~a57742ef/)
-  > Na een prachtige olympische dag - met gouden medailles voor Xandra Velzeboer en Jens van ‘t Wout en zilver voor Merel Conijn - liggen er vandaag...
-- [ChatGPT-maker zegt dat Chinese start-up Deepseek AI-chatbot kopieert](https://www.ad.nl/tech/chatgpt-maker-zegt-dat-chinese-start-up-deepseek-ai-chatbot-kopieert~aff31895/)
-  > Software-ontwikkelaar OpenAI heeft Amerikaanse volksvertegenwoordigers gewaarschuwd dat het Chinese AI-bedrijf DeepSeek op oneerlijke wijze...
-- [Venezolaanse interim-president belooft vrije verkiezingen](https://www.ad.nl/buitenland/venezolaanse-interim-president-belooft-vrije-verkiezingen~a3e63203/)
-  > De Venezolaanse interim-president Delcy Rodríguez zegt dat zij ‘absoluut’ bereid is vrije en eerlijke verkiezingen te houden. Het moment daarvoor...
+- [Behandeling van 1200 euro terwijl er niets aan de hand is? Tandartsen slaan alarm over opgepompte rekeningen](https://www.ad.nl/binnenland/behandeling-van-1200-euro-terwijl-er-niets-aan-de-hand-is-tandartsen-slaan-alarm-over-opgepompte-rekeningen~a425e1a6/)
+  > Een tandenborstel van 90 euro op de rekening, maar nooit meegegeven. Extra behandeltijd die ineens wordt bijgeboekt. En patiënten die zich afvragen:...
+- [AD Winterspelen Podcast | ‘Xandra Velzeboer heeft gewoon achttien rondjes alleen gereden’](https://www.ad.nl/olympische-spelen/ad-winterspelen-podcast-xandra-velzeboer-heeft-gewoon-achttien-rondjes-alleen-gereden~a17ab614/)
+  > Wat. Een. Dag. Twee keer goud en een keer zilver. Geniet na met een nieuwe aflevering van de AD Winterspelen Podcast.
+- [Code geel door sneeuwval in Friesland en Groningen, plaatselijk glad](https://www.ad.nl/binnenland/code-geel-door-sneeuwval-in-friesland-en-groningen-plaatselijk-glad~a0a1e796/)
+  > In Friesland en Groningen kan het vrijdagochtend plaatselijk glad zijn door sneeuw. De gladheid verdwijnt aan het eind van de ochtend. Het KNMI heeft...
+- [Aantal automobilisten bereikt opnieuw een record in Nederland](https://www.ad.nl/auto/aantal-automobilisten-bereikt-opnieuw-een-record-in-nederland~acc3ec52/)
+  > Nooit eerder waren er zo veel Nederlanders met een auto en een rijbewijs, meldt het Centraal Bureau voor de Statistiek (CBS) op basis van de nieuwste...
+- [Jorrit Bergsma is met al zijn ‘Matties’ naar Milaan: ‘Hij omarmt deze gekte echt, dit zijn bonusspelen voor Jorrit’](https://www.ad.nl/olympische-spelen/jorrit-bergsma-is-met-al-zijn-matties-naar-milaan-hij-omarmt-deze-gekte-echt-dit-zijn-bonusspelen-voor-jorrit~a40fceaa/)
+  > Jorrit Bergsma is niet alleen in Milaan. Naast zijn vrouw en kinderen wordt hij in Milaan ook gesteund door zijn ‘Matties’, twaalf vrienden die zelfs...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Ingrid Thijssen: ‘Ik ben geen onheilsprofeet, maar ik moest continu uitdragen wat er niet goed ging’](https://fd.nl/economie/1586268/ingrid-thijssen-ik-ben-geen-onheilsprofeet-maar-ik-moest-continu-uitdragen-wat-er-niet-goed-ging)
-  > Ingrid Thijssen was de VNO-NCW-voorzitter die de eigen achterban opriep om meer voor de samenleving te doen. Maar al snel hamerde ze vooral op het...
-- [Jeugdvrienden Michael en Stefan betichten ‘de ander’ van zwendel van €1,1 mln met bier en wijn](https://fd.nl/samenleving/1586040/jeugdvrienden-michael-en-stefan-betichten-de-ander-van-zwendel-van-1-1-mln-met-bier-en-wijn)
-  > De drankenhandel die twee mannen hadden opgezet, behaalde in korte tijd een miljoenenomzet. Maar 95% van de transporten vond nooit plaats.
-- [De Odido’s van deze wereld zijn perfect doelwit van hackers](https://fd.nl/economie/1586447/de-odidos-van-deze-wereld-zijn-perfect-doelwit-van-hackers)
-  > Vandaag in Dagkoers: wat we tot nu toe weten van de hack bij Odido, Adyen gaat hard onderuit op de beurs en Europese leiders bespreken...
-- [Minder snoepjes, meer groei](https://fd.nl/opinie/1586422/minder-snoepjes-meer-groei)
-  > 500 regels schrappen? Ophouden met pamperen zorgt pas écht voor minder bureaucratie, minister Karremans. Uw ingestelde ‘mini-DOGE’ is onwerkbaar...
-- [Vecht voor het ETS](https://fd.nl/opinie/1586364/vecht-voor-het-ets)
-  > Zonder het EU ETS halen we de klimaatdoelen nooit, denkt FD-columnist Mathijs Bouman. Politici moeten er nu voor vechten.
+- [De ‘jettennorm’ als kompas voor succesvolle onderhandelingen vanuit een minderheidskabinet](https://fd.nl/opinie/1586312/de-jettennorm-als-kompas-voor-succesvolle-onderhandelingen-vanuit-een-minderheidskabinet)
+  > Dossiers uitruilen ondermijnt vertrouwen, permanente openbaarheid belemmert compromissen. Wat kan het nieuwe minderheidskabinet leren van de...
+- [‘Als er één mondiale bank uit Europa komt, is het Deutsche’](https://fd.nl/bedrijfsleven/1586108/als-er-een-mondiale-bank-uit-europa-komt-is-het-deutsche)
+  > Deutsche Bank boekte een recordwinst over 2025, maar nu en dan vallen er nog lijken uit de kast. De Nederlandse president-commissaris Alexander...
+- [Schiphol boekt hogere omzet en winst, hamert op investeringen](https://fd.nl/bedrijfsleven/1586580/schiphol-boekt-hogere-omzet-en-winst-hamert-op-investeringen)
+  > De luchthaven heeft forse investeringsplannen, wil een nieuwe terminal bouwen en mogelijk uitbreiden in het buitenland.
+- [Topjurist Goldman Sachs vertrekt vanwege rol in Epstein-affaire](https://fd.nl/bedrijfsleven/1586579/topjurist-goldman-sachs-vertrekt-vanwege-rol-in-epstein-affaire)
+  > De hoogste jurist van Goldman Sachs vertrekt vanwege haar rol bij de Epstein-affaire.
+- [Winststijging voor ASN Bank ondanks dalende rentebaten](https://fd.nl/bedrijfsleven/1586578/winststijging-voor-asn-bank-ondanks-dalende-rentebaten)
+  > De winst kwam uit op €268 mln. De netto inkomsten daalden met 7%, naar €1219 miljoen, volgens de bank als gevolg van het veranderde renteklimaat.
 
 ### Meest gelezen
 
