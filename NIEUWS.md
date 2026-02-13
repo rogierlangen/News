@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-02-2026 om 08:02*
+*Laatst bijgewerkt: 13-02-2026 om 11:09*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [ACM gaat onderzoek doen naar PostNL vanwege overname Sandd](https://nos.nl/l/2602226)
-  > De Autoriteit Consument & Markt (ACM) begint een onderzoek naar PostNL vanwege de overname van concurrent Sandd. Er wordt al jaren gesproken over de...
-- [Tweede vliegdekschip VS naar Midden-Oosten om druk op Iran te vergroten](https://nos.nl/l/2602225)
-  > President Trump heeft het grootste vliegdekschip ter wereld, de USS Gerald R. Ford, opdracht gegeven om naar het Midden-Oosten te varen. Dat melden...
-- [Medewerkers en gidsen Louvre opgepakt voor miljoenenfraude met tickets](https://nos.nl/l/2602221)
-  > De Franse politie heeft negen mensen gearresteerd op verdenking van grootschalige ticketfraude in het Louvre. Het gaat onder meer om twee medewerkers...
-- ['Klarna handelt als incassobureau, overtreedt daarmee mogelijk de wet'](https://nos.nl/l/2602219)
-  > Klarna overtreedt mogelijk de wet. Dat zeggen deskundigen die de handelswijze van het bedrijf beoordeelden. De Zweedse online bank staat niet...
-- [Wekdienst 13/2: Uitspraak in Stint-zaak • Veiligheidsconferentie in München begint](https://nos.nl/l/2602216)
-  > Goedemorgen! Vandaag doet de rechter uitspraak in de Stint-zaak. Twee mannen worden verantwoordelijk gehouden voor een ongeluk in 2018 in Oss met een...
+- [Podcast De Dag: Offline 'down under', werkt een socialemedia-verbod?](https://nos.nl/l/2602254)
+  > Van Spanje tot het Verenigd Koninkrijk, en ook in ons land, zijn er plannen voor een verbod op sociale media voor jongeren. Wereldwijd zijn landen...
+- [Britse rechter noemt verbod op pro-Palestijnse actiegroep onwettig](https://nos.nl/l/2602252)
+  > Een Britse rechter heeft het verbod op de pro-Palestijnse actiegroep Palestine Action bestempeld als onwettig. Volgens de rechter was het besluit van...
+- [Doden en schade door noodweer in Frankrijk en Spanje](https://nos.nl/l/2602249)
+  > Het noodweer dat gisteren delen van Spanje en Frankrijk teisterde, heeft meerdere levens geëist en veel schade veroorzaakt.
+        Zo vielen in...
+- [Onderwijsassistent krijgt acht jaar cel en tbs voor seksueel misbruik kinderen](https://nos.nl/l/2602245)
+  > Een 26-jarige man uit Helmond is veroordeeld tot acht jaar cel en tbs voor seksueel misbruik van kinderen onder de 12 jaar. Verdachte Wesley W. heeft...
+- ['Salaris en arbeidsvoorwaarden politieke bestuurders moeten fors beter'](https://nos.nl/l/2602238)
+  > Salarissen voor politieke ambtsdragers moeten fors omhoog en andere arbeidsvoorwaarden moeten daaraan worden aangepast. Dat stelt het college voor de...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Behandeling van 1200 euro terwijl er niets aan de hand is? Tandartsen slaan alarm over opgepompte rekeningen](https://www.ad.nl/binnenland/behandeling-van-1200-euro-terwijl-er-niets-aan-de-hand-is-tandartsen-slaan-alarm-over-opgepompte-rekeningen~a425e1a6/)
-  > Een tandenborstel van 90 euro op de rekening, maar nooit meegegeven. Extra behandeltijd die ineens wordt bijgeboekt. En patiënten die zich afvragen:...
-- [AD Winterspelen Podcast | ‘Xandra Velzeboer heeft gewoon achttien rondjes alleen gereden’](https://www.ad.nl/olympische-spelen/ad-winterspelen-podcast-xandra-velzeboer-heeft-gewoon-achttien-rondjes-alleen-gereden~a17ab614/)
-  > Wat. Een. Dag. Twee keer goud en een keer zilver. Geniet na met een nieuwe aflevering van de AD Winterspelen Podcast.
-- [Code geel door sneeuwval in Friesland en Groningen, plaatselijk glad](https://www.ad.nl/binnenland/code-geel-door-sneeuwval-in-friesland-en-groningen-plaatselijk-glad~a0a1e796/)
-  > In Friesland en Groningen kan het vrijdagochtend plaatselijk glad zijn door sneeuw. De gladheid verdwijnt aan het eind van de ochtend. Het KNMI heeft...
-- [Aantal automobilisten bereikt opnieuw een record in Nederland](https://www.ad.nl/auto/aantal-automobilisten-bereikt-opnieuw-een-record-in-nederland~acc3ec52/)
-  > Nooit eerder waren er zo veel Nederlanders met een auto en een rijbewijs, meldt het Centraal Bureau voor de Statistiek (CBS) op basis van de nieuwste...
-- [Jorrit Bergsma is met al zijn ‘Matties’ naar Milaan: ‘Hij omarmt deze gekte echt, dit zijn bonusspelen voor Jorrit’](https://www.ad.nl/olympische-spelen/jorrit-bergsma-is-met-al-zijn-matties-naar-milaan-hij-omarmt-deze-gekte-echt-dit-zijn-bonusspelen-voor-jorrit~a40fceaa/)
-  > Jorrit Bergsma is niet alleen in Milaan. Naast zijn vrouw en kinderen wordt hij in Milaan ook gesteund door zijn ‘Matties’, twaalf vrienden die zelfs...
+- [Probleemloze ochtend voor Verstappen, Russell en Mercedes maken meeste indruk na uitstekende inhaalslag](https://www.ad.nl/formule-1/probleemloze-ochtend-voor-verstappen-russell-en-mercedes-maken-meeste-indruk-na-uitstekende-inhaalslag~a87e3c83/)
+  > Het is alweer tijd voor de laatste testdag van deze eerste week in Bahrein. Max Verstappen zal de ochtendsessie voor zijn rekening nemen namens Red...
+- [Voortvluchtige Slowaak na 16 jaar opgepakt bij ijshockeywedstrijd, Fontana evenaart Wüst](https://www.ad.nl/olympische-spelen/voortvluchtige-slowaak-na-16-jaar-opgepakt-bij-ijshockeywedstrijd-fontana-evenaart-wust~a126cb08/)
+  > Op dag zeven van de Olympische Spelen komen Jorrit Bergsma, Stijn van de Bunt en Kimberley Bos in actie namens Nederland in Milaan en Cortina...
+- [Praat mee: hogere salarissen zijn nodig om goede politici te krijgen](https://www.ad.nl/praat-mee/praat-mee-hogere-salarissen-zijn-nodig-om-goede-politici-te-krijgen~aa92c78e/)
+  > Ministers, wethouders en raadsleden zouden in de komende drie jaar meer loon moeten krijgen. In de Kwestie leggen we onze lezers daarover een vraag...
+- [Opeens heeft Aldi, de ‘schrale’ discounter, de wind in de zeilen: hoe kan dat?](https://www.ad.nl/economie/opeens-heeft-aldi-de-schrale-discounter-de-wind-in-de-zeilen-hoe-kan-dat~ab55f7ba/)
+  > Uit het relatieve niets gaat het opeens goed met Aldi. De schrale discounter van weleer kreeg de voorbije jaren klap na klap, maar heeft weer wat...
+- [Het domste dat Rob Jetten kan doen is zijn eigen salaris en dat van zijn collega’s nu verhogen](https://www.ad.nl/binnenland/het-domste-dat-rob-jetten-kan-doen-is-zijn-eigen-salaris-en-dat-van-zijn-collegas-nu-verhogen~a2499283/)
+  > Je moet het maar durven: om 15 procent meer loon vragen voor ministers, terwijl de gewone man nog aan het bijkomen is van alle...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [De ‘jettennorm’ als kompas voor succesvolle onderhandelingen vanuit een minderheidskabinet](https://fd.nl/opinie/1586312/de-jettennorm-als-kompas-voor-succesvolle-onderhandelingen-vanuit-een-minderheidskabinet)
-  > Dossiers uitruilen ondermijnt vertrouwen, permanente openbaarheid belemmert compromissen. Wat kan het nieuwe minderheidskabinet leren van de...
-- [‘Als er één mondiale bank uit Europa komt, is het Deutsche’](https://fd.nl/bedrijfsleven/1586108/als-er-een-mondiale-bank-uit-europa-komt-is-het-deutsche)
-  > Deutsche Bank boekte een recordwinst over 2025, maar nu en dan vallen er nog lijken uit de kast. De Nederlandse president-commissaris Alexander...
-- [Schiphol boekt hogere omzet en winst, hamert op investeringen](https://fd.nl/bedrijfsleven/1586580/schiphol-boekt-hogere-omzet-en-winst-hamert-op-investeringen)
-  > De luchthaven heeft forse investeringsplannen, wil een nieuwe terminal bouwen en mogelijk uitbreiden in het buitenland.
-- [Topjurist Goldman Sachs vertrekt vanwege rol in Epstein-affaire](https://fd.nl/bedrijfsleven/1586579/topjurist-goldman-sachs-vertrekt-vanwege-rol-in-epstein-affaire)
-  > De hoogste jurist van Goldman Sachs vertrekt vanwege haar rol bij de Epstein-affaire.
-- [Winststijging voor ASN Bank ondanks dalende rentebaten](https://fd.nl/bedrijfsleven/1586578/winststijging-voor-asn-bank-ondanks-dalende-rentebaten)
-  > De winst kwam uit op €268 mln. De netto inkomsten daalden met 7%, naar €1219 miljoen, volgens de bank als gevolg van het veranderde renteklimaat.
+- [Groningers en NAM opnieuw naar rechter om gaswinning bij Warffum](https://fd.nl/politiek/1586506/groningers-en-nam-opnieuw-naar-rechter-om-gaswinning-bij-warffum)
+  > Omwonenden en de provincie vragen om opschorting van de gaswinning. Ze twijfelen aan het belang van het gasveld, nu de productie al maandenlang...
+- [Gerecyclede wijnglazen en een fruitschaal die eigenlijk geen schaal is](https://fd.nl/samenleving/1586291/gerecyclede-wijnglazen-en-een-fruitschaal-die-eigenlijk-geen-schaal-is)
+  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
+- [Praten over concurrentie­kracht kan de EU als de beste](https://fd.nl/politiek/1586582/praten-over-concurrentiekracht-kan-de-eu-als-de-beste)
+  > Een week lang wisselden Europese regeringsleiders standpunten en ideeën uit, maar besluiten laten nog even op zich wachten.
+- [Nederlandse ambassadeur in India: ‘In dit onrustige tijdvak heb je gewoon betrouwbare vrienden nodig’](https://fd.nl/politiek/1585822/nederlandse-ambassadeur-in-india-in-dit-onrustige-tijdvak-heb-je-gewoon-betrouwbare-vrienden-nodig)
+  > Nederland wil dolgraag nauwere banden met ‘allemansvriend’ India. Vanwege de economische kansen én de veiligheid, zegt Marisa Gerards, ambassadeur in...
+- [Welke megabedrijven zijn er in 2040?](https://fd.nl/samenleving/1586209/welke-megabedrijven-zijn-er-in-2040)
+  > De wereld verandert snel. Het is de vraag of in 2040 nog wel grote namen bestaan als ChatGPT, Tesla of Netflix. Wellicht zijn er tegen die tijd...
 
 ### Meest gelezen
 
