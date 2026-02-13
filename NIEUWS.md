@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-02-2026 om 21:54*
+*Laatst bijgewerkt: 13-02-2026 om 23:05*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Action roept speelgoed terug na vondst asbest in zandvulling](https://nos.nl/l/2602347)
+  > Winkelketen Action roept bepaalde speelgoedfiguren terug, omdat er in de vulling sporen van asbest zijn aangetroffen. Dat meldt het bedrijf in een...
 - [Franse politie schiet man dood die agent bedreigde met mes bij Arc de Triomphe](https://nos.nl/l/2602337)
-  > Bij de Arc de Triomphe in Parijs is een man door de politie doodgeschoten nadat hij een politieagent met een mes had bedreigd. De man raakte...
+  > Bij de Arc de Triomphe in Parijs heeft de politie een man doodgeschoten nadat hij een agent met een mes had bedreigd. De man raakte zwaargewond en...
 - [AfD weer welkom op veiligheidsconferentie München, maar is intern verdeeld door Trump](https://nos.nl/l/2602333)
   > De veiligheidsconferentie in München, een van de belangrijkste geopolitieke netwerkbijeenkomsten ter wereld, komt precies op een moment dat de...
 - [Ruim 600 Nederlanders dienden vorig jaar in Israëlische leger](https://nos.nl/l/2602329)
   > Zeker 645 Nederlanders dienden in maart vorig jaar in het Israëlische leger. Dat blijkt uit openbaar gemaakte documenten van het leger. De informatie...
 - [Evacuatie 800 passagiers uit trein bij Utrecht](https://nos.nl/l/2602323)
   > Ruim 800 passagiers zijn geëvacueerd uit een trein ten zuiden van Utrecht. De trein is waarschijnlijk tegen een loshangend deel van een bovenleiding...
-- [Operaties uitgesteld om griep, minister vraagt zieke carnavalsvierders thuis te blijven](https://nos.nl/l/2602310)
-  > Meerdere ziekenhuizen hebben deze week operaties uitgesteld vanwege drukte door griep en andere luchtweginfecties. Ook is er sprake van meer uitval...
 
 ### Meest gelezen
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [AD Winterspelen Podcast | ‘Jorrit Bergsma leek vandaag wel een jonge god op het ijs’](https://www.ad.nl/olympische-spelen/ad-winterspelen-podcast-jorrit-bergsma-leek-vandaag-wel-een-jonge-god-op-het-ijs~a17ab614/)
+  > Een stunt van jewelste op de olympische 10 kilometer. Jorrit Bergsma is 40 jaar, maar pakt brons op een geweldige middag in Milaan. Niemand had dat...
 - [Olcay Gulsen verloofd: ‘O mijn god, ik ga trouwen’](https://www.ad.nl/show/olcay-gulsen-verloofd-o-mijn-god-ik-ga-trouwen~ac957582/)
   > Olcay Gulsen (45) stapt binnenkort in het huwelijksbootje. De onderneemster en influencer deelt vrijdagavond dat ze is verloofd met haar grote liefde...
 - [Blamage voor koploper PSV in Volendam: eerste eredivisienederlaag sinds augustus](https://www.ad.nl/voetbal/blamage-voor-koploper-psv-in-volendam-eerste-eredivisienederlaag-sinds-augustus~a6d9be9b/)
@@ -35,8 +37,6 @@
   > ADO Den Haag heeft geen fout gemaakt aan kop in de Keuken Kampioen Divisie. Op eigen veld werd MVV met 3-0 verslagen. ADO vergroot de voorsprong op...
 - [Rotterdamse dragqueen zet The Voice op stelten: ‘Echt een creatieve uitlaatklep’](https://www.ad.nl/show/rotterdamse-dragqueen-zet-the-voice-op-stelten-echt-een-creatieve-uitlaatklep~aabe7154/)
   > Mandy McCandy was vrijdagavond de opvallendste verschijning in The Voice op RTL 4. De dragqueen, een personage van Gerben (35), stal de show met haar...
-- [Dit weekend staat Nederland nog meer sneeuw te wachten en daar blijft het niet bij](https://www.ad.nl/binnenland/dit-weekend-staat-nederland-nog-meer-sneeuw-te-wachten-en-daar-blijft-het-niet-bij~ad6e6ba7/)
-  > Zondag staat Nederland weer sneeuw te wachten. En dat is waarschijnlijk niet de laatste keer. De komende weken blijven we winters weer houden, met in...
 
 ### Meest gelezen
 
