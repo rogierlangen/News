@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-02-2026 om 11:09*
+*Laatst bijgewerkt: 13-02-2026 om 14:29*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Podcast De Dag: Offline 'down under', werkt een socialemedia-verbod?](https://nos.nl/l/2602254)
-  > Van Spanje tot het Verenigd Koninkrijk, en ook in ons land, zijn er plannen voor een verbod op sociale media voor jongeren. Wereldwijd zijn landen...
-- [Britse rechter noemt verbod op pro-Palestijnse actiegroep onwettig](https://nos.nl/l/2602252)
-  > Een Britse rechter heeft het verbod op de pro-Palestijnse actiegroep Palestine Action bestempeld als onwettig. Volgens de rechter was het besluit van...
-- [Doden en schade door noodweer in Frankrijk en Spanje](https://nos.nl/l/2602249)
-  > Het noodweer dat gisteren delen van Spanje en Frankrijk teisterde, heeft meerdere levens geëist en veel schade veroorzaakt.
-        Zo vielen in...
-- [Onderwijsassistent krijgt acht jaar cel en tbs voor seksueel misbruik kinderen](https://nos.nl/l/2602245)
-  > Een 26-jarige man uit Helmond is veroordeeld tot acht jaar cel en tbs voor seksueel misbruik van kinderen onder de 12 jaar. Verdachte Wesley W. heeft...
-- ['Salaris en arbeidsvoorwaarden politieke bestuurders moeten fors beter'](https://nos.nl/l/2602238)
-  > Salarissen voor politieke ambtsdragers moeten fors omhoog en andere arbeidsvoorwaarden moeten daaraan worden aangepast. Dat stelt het college voor de...
+- [Rotterdams pretpark van ondernemer Hennie van der Most onder de hamer](https://nos.nl/l/2602277)
+  > Het Rotterdamse attractiepark Rivoli staat te koop. Het complete park en de erfpacht van de grond in Rotterdam-Zuid kunnen worden gekocht. Na jaren...
+- [Steden willen meer centrale pakketpunten om verkeerschaos te voorkomen](https://nos.nl/l/2602275)
+  > Wie in de stad woont, herkent het vast: verkeerschaos omdat een pakketbezorger langs de weg geparkeerd staat. De vier grootste gemeenten willen daar...
+- [Lange rijen op vliegveld Keulen-Bonn door fout bij bagage scannen](https://nos.nl/l/2602274)
+  > Op de Duitse luchthaven Keulen-Bonn zijn lange rijen ontstaan door een fout in het beveiligingssysteem. Duizenden passagiers staan in de terminals te...
+- [Commissie: video bombardement Hawija niet 'willens en wetens' achtergehouden](https://nos.nl/l/2602273)
+  > Videobeelden van de situatie na het bombardement op de Iraakse stad Hawija zijn niet "willens en wetens" achtergehouden. Ook de commandant, die de...
+- [Huishoudens betalen vanaf 2028 meer voor elektriciteit op piekmomenten](https://nos.nl/l/2602272)
+  > Huishoudens gaan vanaf 2028 op piekmomenten meer betalen voor het gebruik van het stroomnet. Dat heeft de Autoriteit Consument & Markt bekendgemaakt...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Probleemloze ochtend voor Verstappen, Russell en Mercedes maken meeste indruk na uitstekende inhaalslag](https://www.ad.nl/formule-1/probleemloze-ochtend-voor-verstappen-russell-en-mercedes-maken-meeste-indruk-na-uitstekende-inhaalslag~a87e3c83/)
-  > Het is alweer tijd voor de laatste testdag van deze eerste week in Bahrein. Max Verstappen zal de ochtendsessie voor zijn rekening nemen namens Red...
-- [Voortvluchtige Slowaak na 16 jaar opgepakt bij ijshockeywedstrijd, Fontana evenaart Wüst](https://www.ad.nl/olympische-spelen/voortvluchtige-slowaak-na-16-jaar-opgepakt-bij-ijshockeywedstrijd-fontana-evenaart-wust~a126cb08/)
-  > Op dag zeven van de Olympische Spelen komen Jorrit Bergsma, Stijn van de Bunt en Kimberley Bos in actie namens Nederland in Milaan en Cortina...
-- [Praat mee: hogere salarissen zijn nodig om goede politici te krijgen](https://www.ad.nl/praat-mee/praat-mee-hogere-salarissen-zijn-nodig-om-goede-politici-te-krijgen~aa92c78e/)
-  > Ministers, wethouders en raadsleden zouden in de komende drie jaar meer loon moeten krijgen. In de Kwestie leggen we onze lezers daarover een vraag...
-- [Opeens heeft Aldi, de ‘schrale’ discounter, de wind in de zeilen: hoe kan dat?](https://www.ad.nl/economie/opeens-heeft-aldi-de-schrale-discounter-de-wind-in-de-zeilen-hoe-kan-dat~ab55f7ba/)
-  > Uit het relatieve niets gaat het opeens goed met Aldi. De schrale discounter van weleer kreeg de voorbije jaren klap na klap, maar heeft weer wat...
-- [Het domste dat Rob Jetten kan doen is zijn eigen salaris en dat van zijn collega’s nu verhogen](https://www.ad.nl/binnenland/het-domste-dat-rob-jetten-kan-doen-is-zijn-eigen-salaris-en-dat-van-zijn-collegas-nu-verhogen~a2499283/)
-  > Je moet het maar durven: om 15 procent meer loon vragen voor ministers, terwijl de gewone man nog aan het bijkomen is van alle...
+- [Tekort aan condooms in olympisch dorp Cortina: ‘Na drie dagen was de voorraad van 10.000 stuks helemaal op’](https://www.ad.nl/olympische-spelen/tekort-aan-condooms-in-olympisch-dorp-cortina-na-drie-dagen-was-de-voorraad-van-10-000-stuks-helemaal-op~a314461d/)
+  > Halverwege de Olympische Winterspelen zit het olympisch dorp in het Noord-Italiaanse Cortina d’Ampezzo al door zijn voorraad condooms, zo meldt de...
+- [Stevige boodschap voor VS bij start conferentie in München: ‘Jullie moeten meer respect tonen’](https://www.ad.nl/buitenland/stevige-boodschap-voor-vs-bij-start-conferentie-in-munchen-jullie-moeten-meer-respect-tonen~a0e6bec5/)
+  > Europa wil sterker worden en zich niet meer de les laten lezen door de Verenigde Staten. In een scherpe openingsspeech heeft de Duitse bondskanselier...
+- [Asbest in speelzand: deze Belgische minister pakt wél door, want ‘Europa faalt gewoon’](https://www.ad.nl/buitenland/asbest-in-speelzand-deze-belgische-minister-pakt-wel-door-want-europa-faalt-gewoon~a58430535/)
+  > Terwijl Nederland de verkoop van speelzand nog altijd niet aan banden legt, doet België dat wél. De vondst van asbest houdt de Belgische minister Rob...
+- [Robin van Persie over komst Raheem Sterling: ‘Dit is een van de grootste transfers ooit in Nederland’](https://www.ad.nl/voetbal/robin-van-persie-over-komst-raheem-sterling-dit-is-een-van-de-grootste-transfers-ooit-in-nederland~a5823f4f/)
+  > Raheem Sterling is er zondag in de thuiswedstrijd tegen Go Ahead Eagles nog niet bij, maar de 82-voudig international van Engeland was vrijdag al wel...
+- [Startlijst 10 km aangepast: Bergsma straks in rit met thuisfavoriet, Van de Bunt voor dweilpauze](https://www.ad.nl/olympische-spelen/startlijst-10-km-aangepast-bergsma-straks-in-rit-met-thuisfavoriet-van-de-bunt-voor-dweilpauze~a7487f95/)
+  > De langste individuele schaatsafstand wordt vandaag verreden op de Olympische Winterspelen: de 10.000 meter. Debutant Stijn van de Bunt (21) en...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Groningers en NAM opnieuw naar rechter om gaswinning bij Warffum](https://fd.nl/politiek/1586506/groningers-en-nam-opnieuw-naar-rechter-om-gaswinning-bij-warffum)
-  > Omwonenden en de provincie vragen om opschorting van de gaswinning. Ze twijfelen aan het belang van het gasveld, nu de productie al maandenlang...
-- [Gerecyclede wijnglazen en een fruitschaal die eigenlijk geen schaal is](https://fd.nl/samenleving/1586291/gerecyclede-wijnglazen-en-een-fruitschaal-die-eigenlijk-geen-schaal-is)
-  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
-- [Praten over concurrentie­kracht kan de EU als de beste](https://fd.nl/politiek/1586582/praten-over-concurrentiekracht-kan-de-eu-als-de-beste)
-  > Een week lang wisselden Europese regeringsleiders standpunten en ideeën uit, maar besluiten laten nog even op zich wachten.
-- [Nederlandse ambassadeur in India: ‘In dit onrustige tijdvak heb je gewoon betrouwbare vrienden nodig’](https://fd.nl/politiek/1585822/nederlandse-ambassadeur-in-india-in-dit-onrustige-tijdvak-heb-je-gewoon-betrouwbare-vrienden-nodig)
-  > Nederland wil dolgraag nauwere banden met ‘allemansvriend’ India. Vanwege de economische kansen én de veiligheid, zegt Marisa Gerards, ambassadeur in...
-- [Welke megabedrijven zijn er in 2040?](https://fd.nl/samenleving/1586209/welke-megabedrijven-zijn-er-in-2040)
-  > De wereld verandert snel. Het is de vraag of in 2040 nog wel grote namen bestaan als ChatGPT, Tesla of Netflix. Wellicht zijn er tegen die tijd...
+- [Virale AI-agent OpenClaw biedt inkijkje in de toekomst](https://fd.nl/tech-en-innovatie/1586610/virale-ai-agent-openclaw-biedt-inkijkje-in-de-toekomst)
+  > OpenClaw kan veel meer dan de AI-agents die we nu kennen. ‘Maar het is ook levensgevaarlijk’, klinkt het op een bijeenkomst over het nieuwe speelgoed.
+- [Regisseur Fennell benadrukt in ‘Wuthering Heights’ seks en machtswellust](https://fd.nl/bedrijfsleven/1585455/regisseur-fennell-benadrukt-in-wuthering-heights-seks-en-machtswellust)
+  > Aan alle verfilmingen van Wuthering Heights werd deze week weer een versie toegevoegd. Regisseur Emerald Fennel deelt de emoties die ze beleefde toen...
+- [Amsterdam wordt meer en meer ‘de beurs van’](https://fd.nl/financiele-markten/1586513/amsterdam-wordt-meer-en-meer-de-beurs-van)
+  > Telecombedrijf Odido kiest toch niet voor een beursgang. Ondertussen is de volgende beursexit van het Damrak, die van het Poolse pakketkluizenbedrijf...
+- [DPG Media en Mediahuis krijgen miljoenenboete in België](https://fd.nl/bedrijfsleven/1586613/dpg-media-en-mediahuis-krijgen-miljoenenboete-in-belgie)
+  > De twee mediabedrijven, die bijna alle Nederlandse kranten in bezit hebben, zijn veroordeeld voor vervalsing van een aanbesteding voor...
+- [Vrijspraak van dodelijk ongeluk voor producenten Stint](https://fd.nl/bedrijfsleven/1586511/vrijspraak-van-dodelijk-ongeluk-voor-producenten-stint)
+  > De producenten van de Stint zijn vrijgesproken voor het dodelijke ongeluk dat in 2018 gebeurde, maar worden wel veroordeeld voor valsheid in...
 
 ### Meest gelezen
 
