@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-02-2026 om 11:46*
+*Laatst bijgewerkt: 14-02-2026 om 13:56*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Vakbonden waarschuwen voor 'kaalslag' door WW-plannen nieuwe coalitie](https://nos.nl/l/2602385)
-  > Vakbonden CNV en FNV waarschuwen voor de gevolgen van de WW-maatregelen die het nieuwe kabinet wil nemen. De duur van de werkloosheidsuitkering wordt...
-- [Jonge mannetjes moeten adderpopulatie bij Wolfheze redden](https://nos.nl/l/2602384)
-  > Begin maart worden zes of zeven adders uitgezet op de Wolfhezerheide, niet ver van Oosterbeek. Het gaat om jonge mannetjes die met hun paargedrag de...
-- [Amerikaanse buitenlandminister Rubio: Europa en VS horen bij elkaar](https://nos.nl/l/2602381)
-  > De Amerikaanse minister van Buitenlandse Zaken Rubio heeft in een toespraak op de veiligheidsconferentie in München het belang van de samenwerking...
-- [Minder treinen van Utrecht naar het zuiden en oosten door defecte bovenleiding](https://nos.nl/l/2602379)
-  > Het duurt langer dan verwacht om de kapotte bovenleiding bij Utrecht te repareren, laat een woordvoerder van ProRail weten. Aanvankelijk hoopte de...
-- [Oudste Nederlander, John Huang, op 112-jarige leeftijd overleden](https://nos.nl/l/2602374)
-  > John Huang is op 112-jarige leeftijd overleden. Hij was de oudste inwoner van Nederland en overleed gisteren na een kort ziekbed in zijn woning in...
+- ['Russische oppositieleider Navalny vergiftigd in cel'](https://nos.nl/l/2602407)
+  > De Russische oppositieleider Aleksej Navalny is vergiftigd in zijn cel. Dat concluderen Nederland, het Verenigd Koninkrijk, Frankrijk, Duitsland en...
+- [Europese leiders voorzichtig optimistisch na speech buitenlandminister Rubio](https://nos.nl/l/2602403)
+  > Na het horen van de toespraak van de Amerikaanse buitenlandminister Rubio lijkt het vertrouwen tussen Europese landen en de Verenigde Staten weer...
+- [Nieuwe premier Brussels Gewest wist tot vanochtend vroeg nog van niets](https://nos.nl/l/2602402)
+  > Zo langzaam als het formeren van een regering voor het Brussels Hoofdstedelijk Gewest ging - het duurde meer dan 600 dagen - zo snel was er een...
+- [Twee Belgen omgekomen bij lawine in Zwitserland](https://nos.nl/l/2602396)
+  > In Zwitserland zijn gisteren bij een lawine twee skiërs om het leven gekomen. Volgens de VRT gaat het om mannen met de Belgische nationaliteit van 30...
+- [Hilversum en Wijdemeren stemmen pas in november voor nieuwe raad](https://nos.nl/l/2602392)
+  > De inwoners van de gemeenten Hilversum en Wijdemeren stemmen volgende maand niet mee bij de gemeenteraadsverkiezingen. Omdat de twee gemeenten...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Wit carnaval op komst: zondag in hele land 3 tot 5 centimeter sneeuw, KNMI waarschuwt voor gladheid](https://www.ad.nl/binnenland/wit-carnaval-op-komst-zondag-in-hele-land-3-tot-5-centimeter-sneeuw-knmi-waarschuwt-voor-gladheid~a672594e/)
-  > De warmte van Valentijnsdag straalt dit weekend niet over op het weer voor de carnavalvierders. Het wordt zaterdag vooral koud met zon, wind en en...
-- [De takken van de toverhazelaar vullen je woonkamer met hun viooltjesachtige geur](https://www.ad.nl/wonen/de-takken-van-de-toverhazelaar-vullen-je-woonkamer-met-hun-viooltjesachtige-geur~a8095a16/)
-  > Wie een toverhazelaar in de tuin heeft staan, kan ook binnenshuis van deze soort genieten. Romke van de Kaa weet dat die viooltjesachtige geur nut...
-- [Von der Leyen ‘erg gerustgesteld’ door woorden van Rubio, maar deelt sneer uit aan Navo-baas Rutte](https://www.ad.nl/buitenland/von-der-leyen-erg-gerustgesteld-door-woorden-van-rubio-maar-deelt-sneer-uit-aan-navo-baas-rutte~a6a0ba9f/)
-  > Voorzitter Ursula von der Leyen van de Europese Commissie is ‘erg gerustgesteld’ door de toespraak van de Amerikaanse buitenlandminister Marco Rubio....
-- [Braziliaanse skiër op weg naar historische medaille, ruzie op curlingbaan](https://www.ad.nl/olympische-spelen/braziliaanse-skier-op-weg-naar-historische-medaille-ruzie-op-curlingbaan~aef4570a/)
+- [Braziliaanse skiër verslaat topfavoriet en wint historische medaille](https://www.ad.nl/olympische-spelen/braziliaanse-skier-verslaat-topfavoriet-en-wint-historische-medaille~aef4570a/)
   > De Olympische Winterspelen zijn halverwege. Naast het schaatsen komen Nederlanders zaterdag ook in actie in het shorttrack en het skeleton. Daarnaast...
-- [AI‑video van Tom Cruise die tegen Brad Pitt vecht gaat viraal en dat tot groot ongenoegen van filmindustrie](https://www.ad.nl/show/aivideo-van-tom-cruise-die-tegen-brad-pitt-vecht-gaat-viraal-en-dat-tot-groot-ongenoegen-van-filmindustrie~a2b909df/)
-  > Een zeer realistische AI‑video van Tom Cruise (63) die vecht tegen Brad Pitt (62) gaat momenteel viraal, en dat tot groot ongenoegen van de...
+- [‘You can f*ck off’: curlingwedstrijd loopt uit de hand op Winterspelen, speelt Canada vals?](https://www.ad.nl/olympische-spelen/you-can-f-ck-off-curlingwedstrijd-loopt-uit-de-hand-op-winterspelen-speelt-canada-vals~a9e073cf/)
+  > Curling staat niet per se bekend als de spraakmakendste sport op de Winterspelen. Toch liep de groepswedstrijd tussen Canada en Zweden behoorlijk uit...
+- [Nederlanders gaan voor eremetaal op 500 meter, shorttracker Van ‘t Wout hoopt op tweede goud](https://www.ad.nl/olympische-spelen/nederlanders-gaan-voor-eremetaal-op-500-meter-shorttracker-van-t-wout-hoopt-op-tweede-goud~af4634cb/)
+  > Volop Nederlandse inbreng vandaag op de Olympische Winterspelen in Milaan en Cortina. In de schaatshal gaan Jenning de Boo, Sebas Diniz en Joep...
+- [Rusland vergiftigde Navalny met stof van Zuid-Amerikaanse pijlgifkikker, stellen Nederland en bondgenoten](https://www.ad.nl/buitenland/rusland-vergiftigde-navalny-met-stof-van-zuid-amerikaanse-pijlgifkikker-stellen-nederland-en-bondgenoten~adf3a681/)
+  > De Russische oppositiepoliticus Aleksej Navalny is twee jaar geleden in zijn cel vergiftigd. Dat melden het Verenigd Koninkrijk, Zweden, Frankrijk,...
+- [Zelensky bereid tot verkiezingen als Rusland twee maanden niet aanvalt](https://www.ad.nl/buitenland/zelensky-bereid-tot-verkiezingen-als-rusland-twee-maanden-niet-aanvalt~adfb97be/)
+  > Als Rusland twee maanden lang een staakt-het-vuren in acht houdt, is Oekraïne bereid verkiezingen uit te schrijven. De Oekraïense president Volodymyr...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [OpenAI gaat samenwerken met defensiebedrijven voor aansturing drones](https://fd.nl/bedrijfsleven/1586662/openai-gaat-samenwerken-met-defensiebedrijven-voor-aansturing-drones)
+  > Deze stap van OpenAI bouwt voort op eerdere defensieprojecten, zoals met Anduril Industries.
 - [Chinese toezichthouder dwingt Alibaba om agressieve promoties in te tomen](https://fd.nl/bedrijfsleven/1586661/chinese-toezichthouder-dwingt-alibaba-om-agressieve-promoties-in-te-tomen)
   > Volgens de toezichthouder maken meerdere bedrijven zich schuldig aan een destructieve bedrijfsstrategie.
 - [Buitenlandminister Rubio: VS en Europa zijn voor altijd met elkaar verbonden](https://fd.nl/politiek/1586542/buitenlandminister-rubio-vs-en-europa-zijn-voor-altijd-met-elkaar-verbonden)
@@ -54,8 +56,6 @@
   > De waarnemend directeur van de Amerikaanse immigratiedienst ICE, Todd Lyons, erkent dat twee ICE-agenten ‘onwaarheden’ hebben verkondigd.
 - [Was de vader van het kapitalisme wel zo rechts? En kan een nieuw regime Europa redden?](https://fd.nl/economie/1586517/was-de-vader-van-het-kapitalisme-wel-zo-rechts-en-kan-een-nieuw-regime-europa-redden)
   > In deze Toegevoegde Waarde duiken Anna Dijkman en Marijn Jongsma de geschiedenis in. Marijn heeft de geboorteplaats van de grondlegger van het...
-- [Jeffrey Epstein, de ultieme insider binnen een zelfzuchtige wereldwijde elite](https://fd.nl/samenleving/1586605/jeffrey-epstein-de-ultieme-insider-binneneen-zelfzuchtige-wereldwijde-elite)
-  > De nieuwe onthullingen rond de in 2019 overleden Jeffrey Epstein zijn geen bewijs voor de ultieme complottheorie.  Wel geven ze inzicht in het gedrag...
 
 ### Meest gelezen
 
