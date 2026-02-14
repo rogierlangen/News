@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-02-2026 om 07:49*
+*Laatst bijgewerkt: 14-02-2026 om 09:03*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Oudste Nederlander, John Huang, op 112-jarige leeftijd overleden](https://nos.nl/l/2602374)
+  > John Huang is op 112-jarige leeftijd overleden. Hij was de oudste inwoner van Nederland en overleed gisteren na een kort ziekbed in zijn woning in...
 - [Politiek gevoelig onderzoek in Oostenrijk naar mysterieuze dood topambtenaar](https://nos.nl/l/2602370)
   > Als de belangrijkste justitieambtenaar van Oostenrijk dood in het water wordt gevonden, dan is dat opvallend. Als vervolgens meerdere betrokkenen...
 - [Wekdienst 14/2: Valentijnsdag • Olympische Winterspelen: 500 meter voor mannen](https://nos.nl/l/2602368)
@@ -16,8 +18,6 @@
   > Terwijl de NAM druk bezig is met dichten van de gasputten, pleit TNO ervoor het Groningenveld niet helemaal af te sluiten. Dat heeft te maken met de...
 - [Chef Spelen LA 2028 verkoopt bedrijf om banden met Epstein-handlanger Maxwell](https://nos.nl/l/2602359)
   > Het hoofd van het comité dat de Olympische Spelen van 2028 in Los Angeles organiseert, zet zijn entertainmentbedrijf te koop. Als reden noemt Casey...
-- [Podcast De Dag: in gesprek met Gisèle Pelicot](https://nos.nl/l/2602358)
-  > Ze werd gedrogeerd door haar eigen man, met wie ze 50 jaar samen was. Ze werd verkracht, door hem en door 50 andere mannen. En ze stond maandenlang...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ruzie op de curlingbaan, Zweed beticht Canadees van vals spel: ‘Je kunt oprotten’](https://www.ad.nl/olympische-spelen/ruzie-op-de-curlingbaan-zweed-beticht-canadees-van-vals-spel-je-kunt-oprotten~aef4570a/)
-  > De Olympische Winterspelen zijn halverwege. Naast het schaatsen komen Nederlanders donderdag ook in actie in het shorttrack en het skeleton....
-- [Telstar-speler vertrekt naar Bahrein, nieuwe interim-trainer Spurs lijkt bekend](https://www.ad.nl/voetbal/telstar-speler-vertrekt-naar-bahrein-nieuwe-interim-trainer-spurs-lijkt-bekend~a79d4309/)
-  > De transfermarkt in Nederland en de grootste competities is gesloten. Er zijn nog slechts een paar landen waar spelers naartoe kunnen. Ook zullen er...
-- [Arrestaties vlakbij woning verdwenen moeder tv-presentatrice VS](https://www.ad.nl/buitenland/arrestaties-vlakbij-woning-verdwenen-moeder-tv-presentatrice-vs~a8426a25/)
-  > Bij een huiszoeking in een woning vlakbij het huis van de verdwenen moeder van de Amerikaanse tv-presentatrice Savannah Guthrie in Tucson zijn...
-- [Roxeanne Hazes na tien jaar liefde met Erik: ‘Hij stond er in mijn diepste dalen én mooiste momenten’](https://www.ad.nl/show/roxeanne-hazes-na-tien-jaar-liefde-met-erik-hij-stond-er-in-mijn-diepste-dalen-en-mooiste-momenten~ac7dc2b9/)
-  > Van romantiek in het Olympisch dorp tot met een bordje op schoot voor de tv: bekend Nederland viert zaterdag Valentijnsdag op geheel eigen wijze....
-- [‘Dat gaat nooit gebeuren’: verslaggever Arjan komt belofte na met Bergsma-matje in podcast](https://www.ad.nl/olympische-spelen/dat-gaat-nooit-gebeuren-verslaggever-arjan-komt-belofte-na-met-bergsma-matje-in-podcast~a17ab614/)
-  > Een stunt van jewelste op de olympische 10 kilometer. Jorrit Bergsma is 40 jaar, maar pakt brons op een geweldige middag in Milaan. Niemand had dat...
+- [Eén klas met 84 leerlingen en meerdere leerkrachten: ‘Zo blijft er altijd iemand achter om op te letten’](https://www.ad.nl/binnenland/een-klas-met-84-leerlingen-en-meerdere-leerkrachten-zo-blijft-er-altijd-iemand-achter-om-op-te-letten~a1ee8b79/)
+  > Eén klas, drie leerkrachten en maar liefst 84 leerlingen. Op een basisschool in Wateringen doen ze het gewoon. En nee, dat is geen grote apenkooi....
+- [Rubio reikt Europa de hand in verzoenende speech: ‘We willen bouwen aan een nieuwe Westerse eeuw’](https://www.ad.nl/buitenland/rubio-reikt-europa-de-hand-in-verzoenende-speech-we-willen-bouwen-aan-een-nieuwe-westerse-eeuw~a9302187/)
+  > De bestemming van Europa zal altijd verweven zijn met die van de VS. Amerika wil de wereld herbouwen, en doet dat het liefst samen met de ‘vrienden...
+- [Vandaag nog problemen op spoor rond Utrecht: minder treinen naar Oeteldonk](https://www.ad.nl/binnenland/vandaag-nog-problemen-op-spoor-rond-utrecht-minder-treinen-naar-oeteldonk~a81421a5/)
+  > Het treinverkeer rond Utrecht heeft nog een groot deel van zaterdag te maken met verstoringen door de bovenleiding die vrijdag kapotging. Onder meer...
+- [Ene helft van Nederland bibbert, de andere bespaart flink: zo groot zijn de stookverschillen](https://www.ad.nl/binnenland/ene-helft-van-nederland-bibbert-de-andere-bespaart-flink-zo-groot-zijn-de-stookverschillen~ae9459e0/)
+  > Terwijl de cv-ketels in het noorden dit jaar overuren draaien, konden ze in Zeeland en Limburg gerust een standje lager. De opmerkelijk grote...
+- [John Huang (112), de oudste inwoner van Nederland en de Benelux, overleden](https://www.ad.nl/binnenland/john-huang-112-de-oudste-inwoner-van-nederland-en-de-benelux-overleden~a5e7be86/)
+  > John Huang, de oudste inwoner van Nederland, is vrijdag op 112-jarige leeftijd overleden. Dat heeft zijn familie aan De Gooi- en Eemlander laten...
 
 ### Meest gelezen
 
