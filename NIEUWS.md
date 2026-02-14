@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-02-2026 om 22:55*
+*Laatst bijgewerkt: 14-02-2026 om 23:50*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Patiënt met zeer besmettelijke schurft in ziekenhuis Almere](https://nos.nl/l/2602504)
+  > In het Flevoziekenhuis in Almere is schurft vastgesteld bij een patiënt op een verpleegafdeling. Het gaat om een zeer besmettelijke vorm van schurft:...
 - [Zelensky: 'Verkiezingen na twee maanden staakt-het-vuren'](https://nos.nl/l/2602479)
   > De Oekraïense president Zelensky wil verkiezingen houden als er twee maanden een staakt-het-vuren is geweest. Dat heeft hij duidelijk gemaakt op de...
-- [Schiphol annuleert morgen groot aantal vluchten vanwege sneeuw](https://nos.nl/l/2602468)
-  > Schiphol annuleert morgen uit voorzorg vanwege de sneeuw een groot aantal vluchten. Een woordvoerder van KLM bevestigt aan persbureau ANP dat het om...
+- [Schiphol annuleert groot aantal vluchten vanwege sneeuw](https://nos.nl/l/2602468)
+  > Schiphol annuleert op zondag uit voorzorg vanwege de sneeuw een groot aantal vluchten. Een woordvoerder van KLM bevestigt aan persbureau ANP dat het...
 - [Bovenleiding bij Utrecht gerepareerd, treinen rijden weer volgens dienstregeling](https://nos.nl/l/2602465)
   > De herstelwerkzaamheden van een kapotte bovenleiding ten zuiden van Utrecht zijn afgerond. De treinen rijden weer volgens de dienstregeling, meldt...
 - [Energievoorziening Oekraïne staat op instorten: 'Geen centrale gespaard'](https://nos.nl/l/2602459)
   > De verre buitenwijken van Kyiv zien er somber uit. Het begint te schemeren aan het einde van de middag, maar de lampen binnen gaan niet aan. Slechts...
-- [Opnieuw dolfijn aangespoeld bij Friese Wierum, zelfde plek als woensdag](https://nos.nl/l/2602455)
-  > Aan de kust bij het Friese plaatsje Wierum is opnieuw een dolfijn aangespoeld. Wandelaars zagen het dier bij eb honderden meters verderop liggen op...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Acht hoofden aangetroffen in Ecuador met boodschap ‘verboden te stelen’](https://www.ad.nl/buitenland/acht-hoofden-aangetroffen-in-ecuador-met-boodschap-verboden-te-stelen~a9ceb283/)
+  > In het Zuid-Amerikaanse land Ecuador zijn zakken ontdekt met daarin de hoofden van acht mensen. Dat heeft de politie zaterdag bekendgemaakt. Bij de...
+- [Zelensky zegt dat Oekraïne klaar is voor vredesdeal, spreekt Witkoff en Kushner in aanloop naar nieuw overleg](https://www.ad.nl/buitenland/zelensky-zegt-dat-oekraine-klaar-is-voor-vredesdeal-spreekt-witkoff-en-kushner-in-aanloop-naar-nieuw-overleg~adfb97be/)
+  > De Oekraïense president Volodymyr Zelensky heeft  zaterdag op de veiligheidsconferentie in München gezegd dat zijn land klaar is voor een...
 - [Basisdebuut Ajax-aanwinst Zinchenko duurt slechts 2 minuten en 15 seconden: ‘Het zag er niet goed uit’](https://www.ad.nl/voetbal/basisdebuut-ajax-aanwinst-zinchenko-duurt-slechts-2-minuten-en-15-seconden-het-zag-er-niet-goed-uit~a10e5993/)
   > Oleksandr Zinchenko heeft weinig plezier gehad aan zijn eerste duel in de basisformatie van Ajax. De linksback uit Oekraïne raakte in de...
 - [Nederland stijgt na tweede goud Jens van ‘t Wout naar plek 7 op medaillespiegel Winterspelen](https://www.ad.nl/olympische-spelen/nederland-stijgt-na-tweede-goud-jens-van-t-wout-naar-plek-7-op-medaillespiegel-winterspelen~a2772ec34/)
   > Hoeveel gouden medailles gaat Nederland pakken tijdens de Olympische Winterspelen 2026 in Milaan en Cortina d’Ampezzo? Jens van ‘t Wout veroverde...
 - [Liverpool rekent af met Brighton en bereikt achtste finales FA Cup](https://www.ad.nl/voetbal/liverpool-rekent-af-met-brighton-en-bereikt-achtste-finales-fa-cup~af54b2fa/)
   > Liverpool heeft zich geplaatst voor de achtste finales van de FA Cup. In eigen huis rekende de ploeg van Arne Slot af met Brighton & Hove Albion: het...
-- [Weer goud! Jens van 't Wout slaat ook toe op 1500 meter en pakt tweede olympische titel](https://www.ad.nl/olympische-spelen/weer-goud-jens-van-t-wout-slaat-ook-toe-op-1500-meter-en-pakt-tweede-olympische-titel~a1e272c4/)
-  > Jens van ‘t Wout is de shorttrack-koning van Milaan. Na zijn historische goud op de 1000 meter is hij op de derde dag van zijn sport al tweevoudig...
-- [Ajax aan de hand van jonge Belgen ruim langs Fortuna: ‘Dit wil je vaker zien’](https://www.ad.nl/voetbal/ajax-aan-de-hand-van-jonge-belgen-ruim-langs-fortuna-dit-wil-je-vaker-zien~a8c01be0/)
-  > Ajax heeft een eenvoudige zege geboekt op Fortuna Sittard. Het thuisduel begon met een lelijke tegenvaller door een blessure van basisdebutant...
 
 ### Meest gelezen
 
