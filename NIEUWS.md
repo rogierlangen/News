@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-02-2026 om 20:54*
+*Laatst bijgewerkt: 14-02-2026 om 21:49*
 
 ---
 
@@ -8,7 +8,9 @@
 
 ### Laatste nieuws
 
-- [Schiphol annuleert groot aantal vluchten vanwege sneeuw](https://nos.nl/l/2602468)
+- [Zelensky: 'Verkiezingen na twee maanden staakt-het-vuren'](https://nos.nl/l/2602479)
+  > De Oekraïense president Zelensky wil verkiezingen houden als er twee maanden een staakt-het-vuren is geweest. Dat heeft hij duidelijk gemaakt op de...
+- [Schiphol annuleert morgen groot aantal vluchten vanwege sneeuw](https://nos.nl/l/2602468)
   > Schiphol annuleert morgen uit voorzorg vanwege de sneeuw een groot aantal vluchten. Een woordvoerder van KLM bevestigt aan persbureau ANP dat het om...
 - [Bovenleiding bij Utrecht gerepareerd, treinen rijden weer volgens dienstregeling](https://nos.nl/l/2602465)
   > De herstelwerkzaamheden van een kapotte bovenleiding ten zuiden van Utrecht zijn afgerond. De treinen rijden weer volgens de dienstregeling, meldt...
@@ -16,8 +18,6 @@
   > De verre buitenwijken van Kyiv zien er somber uit. Het begint te schemeren aan het einde van de middag, maar de lampen binnen gaan niet aan. Slechts...
 - [Opnieuw dolfijn aangespoeld bij Friese Wierum, zelfde plek als woensdag](https://nos.nl/l/2602455)
   > Aan de kust bij het Friese plaatsje Wierum is opnieuw een dolfijn aangespoeld. Wandelaars zagen het dier bij eb honderden meters verderop liggen op...
-- [Honderdduizenden mensen demonstreren in München tegen Iraans regime](https://nos.nl/l/2602440)
-  > In München is het in tegenstelling tot Iran zelf nog wel veilig mogelijk: demonstreren tegen het regime in Teheran. Volgens de organisatie en de...
 
 ### Meest gelezen
 
@@ -27,14 +27,14 @@
 
 ### Laatste nieuws
 
-- [Belgen maken het verschil voor Ajax tegen Fortuna, blessure Oleksandr Zinchenko smet op avond](https://www.ad.nl/voetbal/belgen-maken-het-verschil-voor-ajax-tegen-fortuna-blessure-oleksandr-zinchenko-smet-op-avond~a8c01be0/)
-  > Ajax heeft na twee keer een gelijkspel weer eens gewonnen in de VriendenLoterij Eredivisie. De Amsterdammers wonnen in de Johan Cruijff Arena van...
+- [Weer goud! Jens van 't Wout slaat ook toe op 1500 meter en pakt tweede olympische titel](https://www.ad.nl/olympische-spelen/weer-goud-jens-van-t-wout-slaat-ook-toe-op-1500-meter-en-pakt-tweede-olympische-titel~a1e272c4/)
+  > Jens van ‘t Wout leeft zijn droom op de Olympische Spelen. Na goud op de 1000 meter pakte de 24-jarige shorttracker ook de olympische titel op de...
+- [Liverpool op weg naar achtste finale FA Cup: Salah schiet penalty verwoestend hard binnen](https://www.ad.nl/voetbal/liverpool-op-weg-naar-achtste-finale-fa-cup-salah-schiet-penalty-verwoestend-hard-binnen~af54b2fa/)
+  > Vorig seizoen greep Liverpool op een haar na naast de FA Cup-winst. Crystal Palace bleek na penalty’s te sterk. Dit seizoen gaat de ploeg van Arne...
+- [Ajax aan de hand van jonge Belgen ruim langs Fortuna: ‘Dit wil je vaker zien’](https://www.ad.nl/voetbal/ajax-aan-de-hand-van-jonge-belgen-ruim-langs-fortuna-dit-wil-je-vaker-zien~a8c01be0/)
+  > Ajax heeft een eenvoudige zege geboekt op Fortuna Sittard. Het thuisduel begon met een lelijke tegenvaller door een blessure van basisdebutant...
 - [Opmerkelijke vacature: basisschool zoekt kleuterleerkracht, ‘liefst eentje die niet verliefd is’](https://www.ad.nl/binnenland/opmerkelijke-vacature-basisschool-zoekt-kleuterleerkracht-liefst-eentje-die-niet-verliefd-is~a0c769b9e/)
   > Geen plannen voor een wereldreis, de liefde van je leven al gevonden en een lerarendiploma op zak? Dan ben jij misschien wel de ideale kandidaat voor...
-- [LIVE Olympische Winterspelen 2026 | Jens van ‘t Wout gaat strijden voor finaleplek, Xandra Velzeboer maakt weer indruk](https://www.ad.nl/olympische-spelen/live-olympische-winterspelen-2026-jens-van-t-wout-gaat-strijden-voor-finaleplek-xandra-velzeboer-maakt-weer-indruk~a1e272c4/)
-  > De Nederlandse shorttrackers zijn bezig aan succesvolle Winterspelen. Op dinsdag pakte zowel Jens van ‘t Wout (1000 meter) als Xandra Velzeboer (500...
-- [Liverpool op voorsprong in bekerduel met Brighton, Slot haalt ruziënde Kerkez en Veltman uit elkaar](https://www.ad.nl/voetbal/liverpool-op-voorsprong-in-bekerduel-met-brighton-slot-haalt-ruziende-kerkez-en-veltman-uit-elkaar~af54b2fa/)
-  > Vorig seizoen greep Liverpool op een haar na naast de FA Cup-winst. Crystal Palace bleek na penalty’s te sterk. Dit seizoen gaat de ploeg van Arne...
 - [Cristiano Ronaldo is terug na staking en laat zich meteen gelden met treffer](https://www.ad.nl/voetbal/cristiano-ronaldo-is-terug-na-staking-en-laat-zich-meteen-gelden-met-treffer~a9bed1be/)
   > Cristiano Ronaldo is met een doelpunt teruggekeerd bij Al Nassr. De 41-jarige Portugees maakte de openingstreffer van het gewonnen uitduel met...
 
