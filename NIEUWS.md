@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-02-2026 om 17:00*
+*Laatst bijgewerkt: 14-02-2026 om 19:04*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Energievoorziening Oekraïne staat op instorten: 'Geen centrale gespaard'](https://nos.nl/l/2602459)
+  > De verre buitenwijken van Kyiv zien er somber uit. Het begint te schemeren aan het einde van de middag, maar de lampen binnen gaan niet aan. Slechts...
+- [Opnieuw dolfijn aangespoeld bij Friese Wierum, zelfde plek als woensdag](https://nos.nl/l/2602455)
+  > Aan de kust bij het Friese plaatsje Wierum is opnieuw een dolfijn aangespoeld. Wandelaars zagen het dier bij eb honderden meters verderop liggen op...
 - [Honderdduizenden mensen demonstreren in München tegen Iraans regime](https://nos.nl/l/2602440)
-  > In München demonstreren honderdduizenden mensen tegen het regime in Iran. Volgens de organisatie en de politie zijn er zo'n 250.000 mensen bij de...
+  > In München is het in tegenstelling tot Iran zelf nog wel veilig mogelijk: demonstreren tegen het regime in Teheran. Volgens de organisatie en de...
 - [Meer dan 150 klachten over besmette piercingspray uit Coevorden](https://nos.nl/l/2602436)
   > In korte tijd hebben zich meer dan 150 mensen gemeld met klachten over een zelfgemaakte spray van een piercingshop in Coevorden. Een aantal mensen is...
 - [Het is fris en zonnig, morgen weer kans op sneeuw](https://nos.nl/l/2602425)
   > Het weekend kent twee gezichten. Vandaag leverde dat op veel plaatsen veel zon op, al bleef het wel frisjes. In de nacht naar zondag kan het licht,...
-- [Puinhoop in de treinen door carnaval: 'Van braaksel tot blikken bier'](https://nos.nl/l/2602421)
-  > De Nederlandse Spoorwegen roept carnaval vierende treinreizigers op om hun troep mee te nemen. De NS werd naar eigen zeggen overrompeld door de...
-- [Immigratiedienst ICE houdt duizenden mensen illegaal vast, oordelen rechters](https://nos.nl/l/2602419)
-  > De Amerikaanse immigratiedienst ICE heeft de afgelopen maanden duizenden immigranten illegaal vastgezet. Dat hebben honderden rechters in de VS sinds...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Medaillespiegel Winterspelen | Nederland stijgt een plek dankzij tweede zilver Jenning de Boo](https://www.ad.nl/olympische-spelen/medaillespiegel-winterspelen-nederland-stijgt-een-plek-dankzij-tweede-zilver-jenning-de-boo~a2772ec34/)
-  > Hoeveel gouden medailles gaat Nederland pakken tijdens de Olympische Winterspelen 2026 in Milaan en Cortina d’Ampezzo? Team NL gaat dankzij het...
-- [Zenuwslopend! Jenning de Boo komt paar centimeter tekort voor olympische titel op 500 meter, weer goud voor Stolz](https://www.ad.nl/olympische-spelen/zenuwslopend-jenning-de-boo-komt-paar-centimeter-tekort-voor-olympische-titel-op-500-meter-weer-goud-voor-stolz~add12798/)
-  > Zijn grootste kans op goud in Milaan werd voor Jenning de Boo wederom zilver, net als op de 1000 meter. Zijn plaaggeest Jordan Stolz versloeg de...
-- [‘Sony werkt aan nieuwe Charlie’s Angels-film’](https://www.ad.nl/show/sony-werkt-aan-nieuwe-charlies-angels-film~a687b444/)
-  > Sony Pictures zou werken aan een nieuwe film in de Charlie’s Angels-reeks. The Hollywood Reporter meldt dat scenarioschrijver Pete Chiarelli is...
-- [Renners worden zelfs van de weg geblazen: Ronde van Murcia al na kwartier gestaakt na windvlagen](https://www.ad.nl/wielrennen/renners-worden-zelfs-van-de-weg-geblazen-ronde-van-murcia-al-na-kwartier-gestaakt-na-windvlagen~ab0a1628/)
-  > Ook zaterdag hielden de stormwinden stevig huis in de Ronde van Murcia. De slotdag werd herleid tot een galatocht van slechts een kwartier. De...
-- [Drie keer scheepsrecht? Alex de Minaur opnieuw naar finale ABN Amro Open](https://www.ad.nl/tennis/drie-keer-scheepsrecht-alex-de-minaur-opnieuw-naar-finale-abn-amro-open~ae63d39b/)
-  > De als eerste geplaatste Alex de Minaur heeft de finale bereikt van het tennistoernooi van Rotterdam. De Australiër klopte bij de laatste vier de...
+- [Ajax met basisdebutant Zinchenko begonnen tegen Fortuna, Regeer ontbreekt in selectie](https://www.ad.nl/voetbal/ajax-met-basisdebutant-zinchenko-begonnen-tegen-fortuna-regeer-ontbreekt-in-selectie~a8c01be0/)
+  > Ajax maakte de afgelopen maanden een inhaalslag, waardoor ze de top 2 in zicht kregen. Door gelijke spelen in de afgelopen wedstrijden tegen...
+- [Jennifer Hoffman is na meerdere lange relaties nu acht jaar gelukkig: ‘Pas met Dorian voelde ik dat ik wel een kind wilde’](https://www.ad.nl/mezza/jennifer-hoffman-is-na-meerdere-lange-relaties-nu-acht-jaar-gelukkig-pas-met-dorian-voelde-ik-dat-ik-wel-een-kind-wilde~a3811ef6/)
+  > In haar nieuwe film Boomers speelt Jennifer Hoffman de jongere vriendin van een man die worstelt met ouder worden. Zelf heeft ze daar minder moeite...
+- [Immigratiedienst ICE zette duizenden mensen onterecht vast, oordeelt rechter](https://www.ad.nl/buitenland/immigratiedienst-ice-zette-duizenden-mensen-onterecht-vast-oordeelt-rechter~ae67dd9c/)
+  > Immigratiedienst ICE heeft minstens 4421 mensen onrechtmatig vastgezet, oordeelden Amerikaanse rechters sinds oktober. Het aantal mensen in...
+- [Val je steeds op de verkeerde? Dat is geen toeval, dat zit in je systeem en er is iets aan te doen](https://www.ad.nl/gezond/val-je-steeds-op-de-verkeerde-dat-is-geen-toeval-dat-zit-in-je-systeem-en-er-is-iets-aan-te-doen~a848e75b/)
+  > Steeds weer vallen voor hetzelfde ‘verkeerde’ type: het overkomt veel mensen. Maar die eindeloze cyclus is zelden toeval. Waarom herhalen we steeds...
+- [Witte zondag op komst: in het hele land sneeuw en gladheid, vluchten worden geannuleerd](https://www.ad.nl/binnenland/witte-zondag-op-komst-in-het-hele-land-sneeuw-en-gladheid-vluchten-worden-geannuleerd~a672594e/)
+  > De warmte van Valentijnsdag straalt dit weekend niet door in het weer voor de carnavalvierders. Zondag valt in vrijwel het hele land sneeuw. Het KNMI...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Zelensky voelt ‘beetje druk’ van de VS: ‘Ze vragen ons steeds concessies en Rusland niet’](https://fd.nl/politiek/1586544/zelensky-voelt-beetje-druk-van-de-vs-ze-vragen-ons-steeds-concessies-en-rusland-niet)
+  > De Oekraïense president zegt dat hij bereid is verkiezingen in zijn land te organiseren, omdat de VS dat willen. Maar dan moet Rusland wel twee...
 - [ECB verruimt toegang tot euro’s om internationale rol te versterken](https://fd.nl/financiele-markten/1586663/ecb-verruimt-toegang-tot-euros-om-internationale-rol-te-versterken)
   > Centrale banken wereldwijd kunnen vanaf derde kwartaal altijd aankloppen voor euroliquiditeit bij de ECB. De maatregel moet de rol van de munt als...
 - [Rusland vergiftigde Navalny, concluderen Nederland en bondgenoten](https://fd.nl/politiek/1586545/rusland-vergiftigde-navalny-concluderen-nederland-en-bondgenoten)
@@ -54,8 +56,6 @@
   > Een uitkeringsgerechtigde zal er in het slechtste geval in totaal met €66.000 op achteruitgaan.
 - [OpenAI gaat samenwerken met defensiebedrijven voor aansturing drones](https://fd.nl/bedrijfsleven/1586662/openai-gaat-samenwerken-met-defensiebedrijven-voor-aansturing-drones)
   > Deze stap van OpenAI bouwt voort op eerdere defensieprojecten, zoals met Anduril Industries.
-- [Chinese toezichthouder dwingt Alibaba om agressieve promoties in te tomen](https://fd.nl/bedrijfsleven/1586661/chinese-toezichthouder-dwingt-alibaba-om-agressieve-promoties-in-te-tomen)
-  > Volgens de toezichthouder maken meerdere bedrijven zich schuldig aan een destructieve bedrijfsstrategie.
 
 ### Meest gelezen
 
