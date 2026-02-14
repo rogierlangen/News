@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-02-2026 om 14:57*
+*Laatst bijgewerkt: 14-02-2026 om 15:51*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Het is fris en zonnig, morgen weer kans op sneeuw](https://nos.nl/l/2602425)
+  > Het weekend kent twee gezichten. Vandaag leverde dat op veel plaatsen veel zon op, al bleef het wel frisjes. In de nacht naar zondag kan het licht,...
 - [Puinhoop in de treinen door carnaval: 'Van braaksel tot blikken bier'](https://nos.nl/l/2602421)
   > De Nederlandse Spoorwegen roept carnaval vierende treinreizigers op om hun troep mee te nemen. De NS werd naar eigen zeggen overrompeld door de...
 - [Immigratiedienst ICE houdt duizenden mensen illegaal vast, oordelen rechters](https://nos.nl/l/2602419)
@@ -17,8 +19,6 @@
         De...
 - [Snijdende wind weerhoudt carnavalsvierders niet, steden lopen vol](https://nos.nl/l/2602410)
   > Een snijdende noordoostenwind en in Limburg zelfs nog een vlokje sneeuw houden de carnavalsvierders niet tegen. In steden als Breda, Den Bosch en...
-- ['Russische oppositieleider Navalny vergiftigd in cel'](https://nos.nl/l/2602407)
-  > De Russische oppositieleider Aleksej Navalny is vergiftigd in zijn cel. Dat concluderen Nederland, het Verenigd Koninkrijk, Frankrijk, Duitsland en...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Schaatssters beginnen als topfavoriet aan ploegenachtervolging](https://www.ad.nl/olympische-spelen/schaatssters-beginnen-als-topfavoriet-aan-ploegenachtervolging~a02db052/)
-  > De Nederlandse schaatssters beginnen aan hun gouden missie op de ploegenachtervolging. Marijke Groenewoud, Antoinette Rijpma-De Jong en Joy Beune...
-- [Pukkelpop flikt wat (veel duurder) Lowlands nalaat: alle weekendkaarten binnen een half uur weg](https://www.ad.nl/muziek/pukkelpop-flikt-wat-veel-duurder-lowlands-nalaat-alle-weekendkaarten-binnen-een-half-uur-weg~a0367a60/)
-  > Alle combikaarten van Pukkelpop 2026 zijn binnen een half uur uitverkocht. Dat bevestigt de organisatie van het Belgische muziekfestival. Daarmee...
-- [Denemarken en VS kruisen ijshockeysticks in ‘Groenland-derby’: ‘We houden van underdogpositie’](https://www.ad.nl/olympische-spelen/denemarken-en-vs-kruisen-ijshockeysticks-in-groenland-derby-we-houden-van-underdogpositie~ac25cc9a/)
-  > Op Valentijnsdag spelen de ijshockeyers van de VS tegen Denemarken tijdens de Olympische Winterspelen van 2026. Maar veel liefde lijkt er niet op het...
-- [Denk je dat kussen romantisch is? De helft van de wereld vindt het vies en dacht zelfs aan kannibalisme](https://www.ad.nl/wetenschap/denk-je-dat-kussen-romantisch-is-de-helft-van-de-wereld-vindt-het-vies-en-dacht-zelfs-aan-kannibalisme~a9b3dc52/)
-  > U herinnert het zich misschien nog wel: uw eerste kus. Maar wie gaf in de geschiedenis van de mensheid de allereerste kus? En waarom? Voor...
-- [Braziliaanse skiër wint historische medaille, Ritsma luistert niet naar Anema](https://www.ad.nl/olympische-spelen/braziliaanse-skier-wint-historische-medaille-ritsma-luistert-niet-naar-anema~aef4570a/)
-  > De Olympische Winterspelen zijn halverwege. Naast het schaatsen komen Nederlanders zaterdag ook in actie in het shorttrack en het skeleton. Daarnaast...
+- [Lege bierblikjes, braaksel en pizzadozen: NS schrikt van enorme carnavalstroep in treinen](https://www.ad.nl/binnenland/lege-bierblikjes-braaksel-en-pizzadozen-ns-schrikt-van-enorme-carnavalstroep-in-treinen~aabf8154/)
+  > Lege bierblikjes, etensresten en zelfs braaksel: het is verre van schoon in de treinen naar het zuiden. De NS is ‘overrompeld’ en roept...
+- [‘Ik let niet op de uren die ik maak, maar kijk vooral of het allemaal in mijn hoofd past’](https://www.ad.nl/werk/ik-let-niet-op-de-uren-die-ik-maak-maar-kijk-vooral-of-het-allemaal-in-mijn-hoofd-past~a07b6739/)
+  > Jeroen (58) werkt als teamleider IT en OT operations bij een energiebeheerder. Hij zorgt er samen met zijn team van 13 medewerkers voor dat alle...
+- [Jenning de Boo op 500 meter in rit met Jordan Stolz, Joep Wennemars straks eerste Nederlander op het ijs](https://www.ad.nl/olympische-spelen/jenning-de-boo-op-500-meter-in-rit-met-jordan-stolz-joep-wennemars-straks-eerste-nederlander-op-het-ijs~add12798/)
+  > Het is sprinten geblazen bij het schaatsen op de Olympische Winterspelen. De 500 meter voor mannen staat op het programma in Milaan. Jenning de Boo...
+- [Zes goals in laatste zeven duels: in topvorm verkerende Summerville schiet West Ham verder in FA Cup](https://www.ad.nl/voetbal/zes-goals-in-laatste-zeven-duels-in-topvorm-verkerende-summerville-schiet-west-ham-verder-in-fa-cup~af16f4b3/)
+  > Crysencio Summerville heeft West Ham United naar de achtste finale van de FA Cup geschoten. De Rotterdammer maakte het enige doelpunt in het uitduel...
+- [Overlijden van Joni (13) zorgde voor schokgolf, nu blikken zijn ouders terug: 'Dit leed is niet te beschrijven'](https://www.ad.nl/binnenland/overlijden-van-joni-13-zorgde-voor-schokgolf-nu-blikken-zijn-ouders-terug-dit-leed-is-niet-te-beschrijven~a4ce700d/)
+  > De schok in Nederland is groot als in februari vorig jaar de 13-jarige Joni wordt neergestoken door een klasgenootje. Zijn ouders kunnen het verlies...
 
 ### Meest gelezen
 
