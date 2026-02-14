@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-02-2026 om 21:49*
+*Laatst bijgewerkt: 14-02-2026 om 22:55*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Basisdebuut Ajax-aanwinst Zinchenko duurt slechts 2 minuten en 15 seconden: ‘Het zag er niet goed uit’](https://www.ad.nl/voetbal/basisdebuut-ajax-aanwinst-zinchenko-duurt-slechts-2-minuten-en-15-seconden-het-zag-er-niet-goed-uit~a10e5993/)
+  > Oleksandr Zinchenko heeft weinig plezier gehad aan zijn eerste duel in de basisformatie van Ajax. De linksback uit Oekraïne raakte in de...
+- [Nederland stijgt na tweede goud Jens van ‘t Wout naar plek 7 op medaillespiegel Winterspelen](https://www.ad.nl/olympische-spelen/nederland-stijgt-na-tweede-goud-jens-van-t-wout-naar-plek-7-op-medaillespiegel-winterspelen~a2772ec34/)
+  > Hoeveel gouden medailles gaat Nederland pakken tijdens de Olympische Winterspelen 2026 in Milaan en Cortina d’Ampezzo? Jens van ‘t Wout veroverde...
+- [Liverpool rekent af met Brighton en bereikt achtste finales FA Cup](https://www.ad.nl/voetbal/liverpool-rekent-af-met-brighton-en-bereikt-achtste-finales-fa-cup~af54b2fa/)
+  > Liverpool heeft zich geplaatst voor de achtste finales van de FA Cup. In eigen huis rekende de ploeg van Arne Slot af met Brighton & Hove Albion: het...
 - [Weer goud! Jens van 't Wout slaat ook toe op 1500 meter en pakt tweede olympische titel](https://www.ad.nl/olympische-spelen/weer-goud-jens-van-t-wout-slaat-ook-toe-op-1500-meter-en-pakt-tweede-olympische-titel~a1e272c4/)
-  > Jens van ‘t Wout leeft zijn droom op de Olympische Spelen. Na goud op de 1000 meter pakte de 24-jarige shorttracker ook de olympische titel op de...
-- [Liverpool op weg naar achtste finale FA Cup: Salah schiet penalty verwoestend hard binnen](https://www.ad.nl/voetbal/liverpool-op-weg-naar-achtste-finale-fa-cup-salah-schiet-penalty-verwoestend-hard-binnen~af54b2fa/)
-  > Vorig seizoen greep Liverpool op een haar na naast de FA Cup-winst. Crystal Palace bleek na penalty’s te sterk. Dit seizoen gaat de ploeg van Arne...
+  > Jens van ‘t Wout is de shorttrack-koning van Milaan. Na zijn historische goud op de 1000 meter is hij op de derde dag van zijn sport al tweevoudig...
 - [Ajax aan de hand van jonge Belgen ruim langs Fortuna: ‘Dit wil je vaker zien’](https://www.ad.nl/voetbal/ajax-aan-de-hand-van-jonge-belgen-ruim-langs-fortuna-dit-wil-je-vaker-zien~a8c01be0/)
   > Ajax heeft een eenvoudige zege geboekt op Fortuna Sittard. Het thuisduel begon met een lelijke tegenvaller door een blessure van basisdebutant...
-- [Opmerkelijke vacature: basisschool zoekt kleuterleerkracht, ‘liefst eentje die niet verliefd is’](https://www.ad.nl/binnenland/opmerkelijke-vacature-basisschool-zoekt-kleuterleerkracht-liefst-eentje-die-niet-verliefd-is~a0c769b9e/)
-  > Geen plannen voor een wereldreis, de liefde van je leven al gevonden en een lerarendiploma op zak? Dan ben jij misschien wel de ideale kandidaat voor...
-- [Cristiano Ronaldo is terug na staking en laat zich meteen gelden met treffer](https://www.ad.nl/voetbal/cristiano-ronaldo-is-terug-na-staking-en-laat-zich-meteen-gelden-met-treffer~a9bed1be/)
-  > Cristiano Ronaldo is met een doelpunt teruggekeerd bij Al Nassr. De 41-jarige Portugees maakte de openingstreffer van het gewonnen uitduel met...
 
 ### Meest gelezen
 
