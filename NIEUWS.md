@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-02-2026 om 09:02*
+*Laatst bijgewerkt: 15-02-2026 om 10:57*
 
 ---
 
@@ -8,18 +8,16 @@
 
 ### Laatste nieuws
 
+- [Te snelle glijbaan in zwembad Zoetermeer voorlopig dicht](https://nos.nl/l/2602533)
+  > Een glijbaan in zwembad De Watergeus in Zoetermeer is voorlopig buiten gebruik gesteld. Volgens de gemeente hebben zich "enkele incidenten"...
+- [President Macron roept op tot kalmte na dodelijke mishandeling in Lyon](https://nos.nl/l/2602531)
+  > De Franse president Macron heeft opgeroepen tot kalmte na de dood van een 23-jarige man. Hij werd donderdag zwaar mishandeld en liep daarbij...
+- [Explosie bij carnavalsoptocht in Zwitserland: elf gewonden](https://nos.nl/l/2602528)
+  > Bij de traditionele carnavalsoptocht in Le Châble in het zuidwesten van Zwitserland zijn zaterdag elf mensen gewond geraakt door een explosie op een...
 - [Zweedse Sami vrezen voor hun toekomst nu Europa inzet op nieuwe mijnen](https://nos.nl/l/2602525)
   > Wereldleiders komen dit weekend bijeen op de veiligheidstop in München. Voor de Europeanen staat één thema centraal: onafhankelijker worden van...
 - [Obama reageert op racistische video op Trump-account: 'Er is geen schaamte meer'](https://nos.nl/l/2602521)
   > De voormalige Amerikaanse president Obama heeft gereageerd op een racistische video die onlangs via het account van de huidige president Trump werd...
-- [Wekdienst 15/2: Schiphol schrapt vluchten om sneeuw • Veel carnavalsoptochten](https://nos.nl/l/2602514)
-  > Goedemorgen! Schiphol schrapt vluchten vanwege verwachte sneeuwval. En in veel plaatsen staan vanmiddag carnavalsoptochten op het programma.
-       ...
-- [Opnieuw hoofden met tekst 'stelen verboden' gevonden in Ecuador](https://nos.nl/l/2602507)
-  > Tijdens een patrouille in de Ecuadoraanse provincie Guayas hebben agenten meerdere mensenhoofden gevonden. De hoofden zaten in jutezakken en werden...
-- [Vier astronauten bij ruimtestation ISS na voortijdige terugkeer vorige bemanning](https://nos.nl/l/2602506)
-  > Het Internationaal Ruimtestation (ISS) heeft nieuwe bemanningsleden. Een team van vier astronauten kwam afgelopen avond aan bij het ISS.
-        De...
 
 ### Meest gelezen
 
@@ -29,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Op supermarktsafari langs pastasaus, tostibrood en hopjesvla: zo herken je of iets ultrabewerkt is](https://www.ad.nl/binnenland/op-supermarktsafari-langs-pastasaus-tostibrood-en-hopjesvla-zo-herken-je-of-iets-ultrabewerkt-is~a01f715c/)
-  > Ultrabewerkt voedsel maakt dik en ziek, en toch puilen de schappen ermee uit. Het Parool gaat met een voedingsdeskundige op supermarktsafari langs...
-- [Zingende pups en een burgemeester met een kip in haar tas: Paw Patrol komt tot leven in theatershow](https://www.ad.nl/show/zingende-pups-en-een-burgemeester-met-een-kip-in-haar-tas-paw-patrol-komt-tot-leven-in-theatershow~aec311fb1/)
-  > Van (te) veel schermtijd tot broodtrommels, pyjama’s en nu ook een live theatershow: Paw Patrol is overal. Wat maakt die reddingspups zo...
-- [Lindsey Vonn mag na vierde operatie eindelijk naar huis en wil van geen stoppen weten: ‘De val was het waard’](https://www.ad.nl/olympische-spelen/lindsey-vonn-mag-na-vierde-operatie-eindelijk-naar-huis-en-wil-van-geen-stoppen-weten-de-val-was-het-waard~aaadf0f8/)
-  > Een week na die veelbesproken val op de Winterspelen mag Lindsey Vonn (41) eindelijk het ziekenhuis verlaten. De Amerikaanse skilegende is voor de...
-- [Obama reageert op racistische video van Trump en vergelijkt optreden ICE met dictatuur: ‘Gebrek aan schaamte’](https://www.ad.nl/buitenland/obama-reageert-op-racistische-video-van-trump-en-vergelijkt-optreden-ice-met-dictatuur-gebrek-aan-schaamte~a511277c/)
-  > De Amerikaanse oud-president Obama heeft gereageerd op de racistische video van hem en zijn vrouw Michelle, die Donald Trump op zijn platform...
-- [Pauline stond na drie weken weer op straat: 'Ik kwam zogenaamd niet door de onboarding'](https://www.ad.nl/economie/pauline-stond-na-drie-weken-weer-op-straat-ik-kwam-zogenaamd-niet-door-de-onboarding~aef64bf43/)
-  > De sollicitatiegesprekken van Pauline (56) gingen goed. Ze slaagde met vlag en wimpel voor een opdracht, maar toen ze aan het werk ging, ging het...
+- [Praat mee: Macron heeft gelijk: ook ik moet trotser zijn dat ik Europeaan ben](https://www.ad.nl/praat-mee/praat-mee-macron-heeft-gelijk-ook-ik-moet-trotser-zijn-dat-ik-europeaan-ben~a5116f88f/)
+  > Moeten we trotser zijn dat we Europeanen zijn, zoals president Macron zegt?  In de Kwestie leggen we onze lezers daarover een vraag voor. Reageer...
+- [12 miljoen voor een stuk karton? ‘Voor de Mona Lisa onder de Pokémonkaarten gaan mensen heel ver’](https://www.ad.nl/buitenland/12-miljoen-voor-een-stuk-karton-voor-de-mona-lisa-onder-de-pokemonkaarten-gaan-mensen-heel-ver~ac87b77b/)
+  > Een Pokémonkaart die 12 miljoen dollar oplevert. Het lijkt surrealistisch. Toch zou het maandag, wanneer de zogenoemde Pikachu Illustrator van...
+- [Zeker elf doden in Gaza bij Israëlische aanvallen, sinds ‘staakt-het-vuren’ al 600 Palestijnen gedood](https://www.ad.nl/buitenland/zeker-elf-doden-in-gaza-bij-israelische-aanvallen-sinds-staakt-het-vuren-al-600-palestijnen-gedood~a395cdaf/)
+  > In de Gazastrook zijn zondag zeker elf mensen gedood door Israëlische aanvallen. Dat meldt de Palestijnse burgerbeschermingsdienst. Het Israëlische...
+- [Jantine uit Married at first sight na scheiding weer gelukkig in de liefde: ‘Voelde meteen goed’](https://www.ad.nl/show/jantine-uit-married-at-first-sight-na-scheiding-weer-gelukkig-in-de-liefde-voelde-meteen-goed~a79695a8/)
+  > Het Married at first sight-avontuur van Jantine van Dinther (34) eindigde twee jaar geleden met een scheiding. Ze werd gekoppeld aan Jeppe, maar zag...
+- [Contrabassist Dominic Seldis: ‘Je weet nooit hoe je onverwacht uit het lood kan raken’](https://www.ad.nl/mezza/contrabassist-dominic-seldis-je-weet-nooit-hoe-je-onverwacht-uit-het-lood-kan-raken~a8635232/)
+  > Maestro veranderde het leven van Dominic Seldis totaal, ‘want eerlijk: niemand zou een boek kopen of naar de theatershow gaan van een contrabassist...
 
 ### Meest gelezen
 
@@ -48,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Met snel toeslaan en een ‘mirakel’ kan Alblasserdam weer plannen maken](https://fd.nl/bedrijfsleven/1586438/met-snel-toeslaan-en-een-mirakel-kan-alblasserdam-weer-plannen-maken)
+  > De Zuid-Hollandse gemeente legde €28 mln neer om grip te krijgen op de herontwikkeling van het voormalige Nedstaal-terrein.
+- [Volop kansen in India, maar betalingsrisico is hoog](https://fd.nl/bedrijfsleven/1586522/volop-kansen-in-india-maar-betalingsrisico-is-hoog)
+  > Volgens exportverzekeraar Atradius betaalden Indiase bedrijven vorig jaar 63% van de facturen te laat. De handelsdeal met New Delhi maakt de Indiase...
+- [Bernard Arnault wil er nog niet aan, maar beleggers willen weten wie hem opvolgt bij LVMH](https://fd.nl/bedrijfsleven/1586425/bernard-arnault-wil-er-nog-niet-aan-maar-beleggers-willen-weten-wie-hem-opvolgt-bij-lvmh)
+  > Beleggers willen dat LVMH-topman Bernard Arnault eindelijk zijn opvolging regelt bij het Franse luxebedrijf. De 76-jarige ceo wilde daar lang niet...
 - [‘Britten moeten boorverbod in Noordzee opheffen’](https://fd.nl/politiek/1586546/britten-moeten-boorverbod-in-noordzee-opheffen)
   > Rapport van Tony Blair Institute kraakt energiebeleid van Britse regering onder leiding van Keir Starmer.
 - [Rendementen van elk soort dienen te worden belast](https://fd.nl/opinie/1586292/rendementen-van-elk-soort-dienen-te-worden-belast)
   > Ons belastingstelsel is te complex, blijkt al jaren. Een hervorming uitwerken gaat niet zomaar. Maar concrete handreikingen vergemakkelijken het...
-- [China verbiedt cryptohandel maar omarmt wél de blockchaintechnologie](https://fd.nl/financiele-markten/1586500/china-verbiedt-cryptohandel-maar-omarmt-wel-de-blockchaintechnologie)
-  > China staat geen betaalsystemen toe waar het geen controle over heeft. Daarom is en blijft de handel in cryptomunten illegaal.
-- [Dé meet & greet voor internationaal succes](https://fd.nl/bedrijfsleven/1586586/de-meet-greet-voor-internationaal-succes)
-  > Op de jaarlijkse ambassadeursconferentie gooien ondernemers hun netten uit bij de diplomaten. Deze dag kan deuren openzetten naar een internationale...
-- [Luisterverhaal: Mee in de Londense robotaxi, die heeft een opvallend menselijke rijstijl](https://fd.nl/samenleving/1586639/luisterverhaal-mee-in-de-londense-robotaxi-die-heeft-een-opvallend-menselijke-rijstijl)
-  > Deze week hoor je over de introductie van de robotaxi
 
 ### Meest gelezen
 
