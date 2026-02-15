@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-02-2026 om 13:56*
+*Laatst bijgewerkt: 15-02-2026 om 14:58*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Man betast vrouwen, plast in arrestantenbus en bijt politiemedewerker in Breda](https://nos.nl/l/2602560)
+  > In het centrum van Breda heeft een 38-jarige man gisteravond tijdens carnaval voor behoorlijk wat onrust gezorgd. Zo betastte hij vrouwen, vernielde...
 - [Grote branden in Russische haven aan Zwarte Zee na Oekraïense aanval](https://nos.nl/l/2602548)
   > Oekraïne heeft vannacht met drones aanvallen uitgevoerd op Russische doelen. Onder meer olie-installaties van het havencomplex van Taman werden...
 - [Zeker tien doden gemeld bij Israëlische luchtaanvallen in de Gazastrook](https://nos.nl/l/2602542)
@@ -16,8 +18,6 @@
   > Het aantal vluchten van en naar Schiphol dat vandaag wordt geannuleerd vanwege de verwachte sneeuw is opgelopen tot 170. Daarvan zijn er 150 van KLM....
 - [Te snelle glijbaan in zwembad Zoetermeer voorlopig dicht](https://nos.nl/l/2602533)
   > Een glijbaan in zwembad De Watergeus in Zoetermeer is voorlopig buiten gebruik gesteld. Volgens de gemeente hebben zich "enkele incidenten"...
-- [President Macron roept op tot kalmte na dodelijke mishandeling in Lyon](https://nos.nl/l/2602531)
-  > De Franse president Macron heeft opgeroepen tot kalmte na de dood van een 23-jarige man. Hij werd donderdag zwaar mishandeld en liep daarbij...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Droomstart PEC Zwolle: na 15 minuten op 0-2 in Friesland](https://www.ad.nl/voetbal/droomstart-pec-zwolle-na-15-minuten-op-0-2-in-friesland~a4ef030e/)
+- [De ongelooflijke veerkracht van Gisèle Pelicot: ‘Ik ben een gelukkige vrouw, ondanks alles’](https://www.ad.nl/buitenland/de-ongelooflijke-veerkracht-van-gisele-pelicot-ik-ben-een-gelukkige-vrouw-ondanks-alles~a278ab30/)
+  > De Française Gisèle Pelicot geeft in een boek voor het eerst volledige openheid van zaken over wat haar is overkomen. Ze werd tien jaar lang...
+- [Heerenveen komt helemaal terug na fantastische goal Ringo Meerveld](https://www.ad.nl/voetbal/heerenveen-komt-helemaal-terug-na-fantastische-goal-ringo-meerveld~a4ef030e/)
   > Heerenveen werd vorige week flink afgedroogd door FC Twente (5-0). Afgelopen woensdag herstelde de ploeg zich met een 1-3 overwinning bij Go Ahead...
-- [Schansspringer mag niet meedoen aan olympische finale omdat schoenen 4 millimeter te groot zijn](https://www.ad.nl/olympische-spelen/schansspringer-mag-niet-meedoen-aan-olympische-finale-omdat-schoenen-4-millimeter-te-groot-zijn~a69e5113/)
-  > Schansspringer Daniel Tschofenig zal de komende tijd nog wel eens slecht slapen. De Oostenrijker werd zondag op de Olympische Spelen...
-- [VS twijfelt niet aan onderzoek waaruit blijkt dat Navalny is vergiftigd door Rusland](https://www.ad.nl/buitenland/vs-twijfelt-niet-aan-onderzoek-waaruit-blijkt-dat-navalny-is-vergiftigd-door-rusland~ae4a7c6e/)
-  > De VS ziet geen reden om de conclusies uit het Europese rapport over de doodsoorzaak van de Russische oppositieleider Aleksej Navalny in twijfel te...
-- [Rijkswaterstaat begint preventief te strooien vanwege gladheid: ‘Pas rijgedrag aan’](https://www.ad.nl/binnenland/rijkswaterstaat-begint-preventief-te-strooien-vanwege-gladheid-pas-rijgedrag-aan~af60c51c/)
-  > Mensen moeten tot maandagochtend rekening houden met gladheid wanneer ze de weg opgaan, en hun rijstijl daarop aanpassen. Volgens Rijkswaterstaat kan...
-- [Feyenoord kruipt door oog van de naald tegen tiental Go Ahead dankzij rake strafschop in blessuretijd](https://www.ad.nl/voetbal/feyenoord-kruipt-door-oog-van-de-naald-tegen-tiental-go-ahead-dankzij-rake-strafschop-in-blessuretijd~a37ab4dc/)
-  > Feyenoord ontsnapte in blessuretijd aan een blamage. De Rotterdammers konden in de eigen Kuip maar geen afstand nemen van Go Ahead Eagles, dat bijna...
+- [Zo kwam shorttrack-held Jens van ‘t Wout aan het litteken in zijn gezicht waar hij zo trots op is](https://www.ad.nl/olympische-spelen/zo-kwam-shorttrack-held-jens-van-t-wout-aan-het-litteken-in-zijn-gezicht-waar-hij-zo-trots-op-is~a48e5009/)
+  > Wie goed naar de nieuwe olympische held Jens van ‘t Wout kijkt, ziet meteen dat enorme litteken op zijn gezicht. Hij is er trots op. En dit is waarom.
+- [Nederlandse mannen op jacht naar plek in halve finales ploegenachtervolging](https://www.ad.nl/olympische-spelen/nederlandse-mannen-op-jacht-naar-plek-in-halve-finales-ploegenachtervolging~afe1a5f9/)
+  > De Nederlandse mannen willen zich vanmiddag op de Olympische Winterspelen plaatsen voor de halve finale van de ploegenachtervolging. Chris Huizinga,...
+- [Jade viert 19de verjaardag met optredens van Maan en Emma Kok: ‘Groot feest, ondanks dubbele lading’](https://www.ad.nl/westland/jade-viert-19de-verjaardag-met-optredens-van-maan-en-emma-kok-groot-feest-ondanks-dubbele-lading~a7de86e7/)
+  > Jade Kops heeft haar 19de verjaardag zaterdagavond groots gevierd. Op haar feest kwamen veel bekende artiesten optreden, waaronder Maan, Emma...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Nestlé voert productie babyvoeding op om tekorten te voorkomen](https://fd.nl/bedrijfsleven/1586549/nestle-voert-productie-babyvoeding-op-om-tekorten-te-voorkomen)
+  > De extra productie is volgens het bedrijf nodig om tekorten te voorkomen na terugroepacties in de afgelopen maanden.
 - [‘Russische olieinstallaties zwaar getroffen door droneaanval’](https://fd.nl/samenleving/1586550/russische-olieinstallaties-zwaar-getroffen-door-droneaanval)
   > Daarbij is schade gemeld aan de infrastructuur van de zeehaven van Taman en aan brandstoftanks.
 - [Private equity probeert met mentoren meer vrouwen vast te houden](https://fd.nl/bedrijfsleven/1585781/private-equity-probeert-met-mentoren-meer-vrouwen-vast-te-houden)
@@ -54,8 +56,6 @@
   > De Oekraïense oud-minister Herman Haloesjtsjenko is zondag gearresteerd terwijl hij per trein het land probeerde te verlaten. Haloesjtsjenko wordt...
 - [Net zo goedkoop als de bus](https://fd.nl/financiele-markten/1586520/net-zo-goedkoop-als-de-bus)
   > Als mensen massaal hun softwareabonnementen dumpen voor AI-toepassingen, moeten ze nog maar eens nadenken over de kosten daarvan.
-- [Griekse rederij stelt VDL-bestuurders voor $12,4 mln persoonlijk aansprakelijk](https://fd.nl/bedrijfsleven/1586519/griekse-rederij-stelt-vdl-bestuurders-voor-12-4-mln-persoonlijk-aansprakelijk)
-  > Een joint venture van VDL verkocht filtersystemen voor stookolie aan een Griekse rederij. Die stelt dat de filters ondeugdelijk zijn, maar volgens...
 
 ### Meest gelezen
 
