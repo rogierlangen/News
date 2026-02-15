@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-02-2026 om 11:47*
+*Laatst bijgewerkt: 15-02-2026 om 13:56*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Grote branden in Russische haven aan Zwarte Zee na Oekraïense aanval](https://nos.nl/l/2602548)
+  > Oekraïne heeft vannacht met drones aanvallen uitgevoerd op Russische doelen. Onder meer olie-installaties van het havencomplex van Taman werden...
+- [Zeker tien doden gemeld bij Israëlische luchtaanvallen in de Gazastrook](https://nos.nl/l/2602542)
+  > Bij Israëlische luchtaanvallen in het noorden en zuiden van de Gazastrook zijn vandaag zeker tien Palestijnen gedood. Dat melden Palestijnse...
 - [Meer vluchten van en naar Schiphol geschrapt om sneeuw en harde wind](https://nos.nl/l/2602538)
   > Het aantal vluchten van en naar Schiphol dat vandaag wordt geannuleerd vanwege de verwachte sneeuw is opgelopen tot 170. Daarvan zijn er 150 van KLM....
 - [Te snelle glijbaan in zwembad Zoetermeer voorlopig dicht](https://nos.nl/l/2602533)
   > Een glijbaan in zwembad De Watergeus in Zoetermeer is voorlopig buiten gebruik gesteld. Volgens de gemeente hebben zich "enkele incidenten"...
 - [President Macron roept op tot kalmte na dodelijke mishandeling in Lyon](https://nos.nl/l/2602531)
   > De Franse president Macron heeft opgeroepen tot kalmte na de dood van een 23-jarige man. Hij werd donderdag zwaar mishandeld en liep daarbij...
-- [Explosie bij carnavalsoptocht in Zwitserland: elf gewonden](https://nos.nl/l/2602528)
-  > Bij de traditionele carnavalsoptocht in Le Châble in het zuidwesten van Zwitserland zijn zaterdag elf mensen gewond geraakt door een explosie op een...
-- [Zweedse Sami vrezen voor hun toekomst nu Europa inzet op nieuwe mijnen](https://nos.nl/l/2602525)
-  > Wereldleiders komen dit weekend bijeen op de veiligheidstop in München. Voor de Europeanen staat één thema centraal: onafhankelijker worden van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Wie is die Duitse keeper die nu ineens bij Feyenoord eenmalig op doel staat?](https://www.ad.nl/voetbal/wie-is-die-duitse-keeper-die-nu-ineens-bij-feyenoord-eenmalig-op-doel-staat~a0b0c626/)
-  > Robin van Persie moet tegen Go Ahead Eagles de geschorste Timon Wellenreuther vervangen en de Duitse huurling Steven Benda krijgt zijn kans. In...
-- [EU wil nog geen datum noemen voor lidmaatschap Oekraïne, corrupte oud-minister tijdens vlucht opgepakt](https://www.ad.nl/buitenland/eu-wil-nog-geen-datum-noemen-voor-lidmaatschap-oekraine-corrupte-oud-minister-tijdens-vlucht-opgepakt~adfb97be/)
-  > De Europese Unie wil nog geen datum noemen waarop Oekraïne EU-lid kan worden, denkt buitenlandchef Kaja Kallas. Oekraïne wil een datum vastleggen in...
-- [Feyenoord op jacht naar voorsprong tegen tiental Go Ahead, Jari De Busser houdt uitploeg op de been](https://www.ad.nl/voetbal/feyenoord-op-jacht-naar-voorsprong-tegen-tiental-go-ahead-jari-de-busser-houdt-uitploeg-op-de-been~a37ab4dc/)
-  > Feyenoord won vorige week een lastige uitwedstrijd bij FC Utrecht (0-1). Kan de ploeg van Robin van Persie die lijn in eigen huis doorzetten? De oude...
-- [Man betast vrouwen in Breda, plast in arrestantenbus en bijt agent in de hand](https://www.ad.nl/binnenland/man-betast-vrouwen-in-breda-plast-in-arrestantenbus-en-bijt-agent-in-de-hand~a9cd35c0/)
-  > Een 38-jarige man heeft de Bredase politie een drukke avond bezorgd. De man maakte zich onder meer schuldig aan vernieling, betastte meerdere vrouwen...
-- [Praat mee: Macron heeft gelijk: ook ik moet trotser zijn dat ik Europeaan ben](https://www.ad.nl/praat-mee/praat-mee-macron-heeft-gelijk-ook-ik-moet-trotser-zijn-dat-ik-europeaan-ben~a5116f88f/)
-  > Moeten we trotser zijn dat we Europeanen zijn, zoals president Macron zegt?  In de Kwestie leggen we onze lezers daarover een vraag voor. Reageer...
+- [Droomstart PEC Zwolle: na 15 minuten op 0-2 in Friesland](https://www.ad.nl/voetbal/droomstart-pec-zwolle-na-15-minuten-op-0-2-in-friesland~a4ef030e/)
+  > Heerenveen werd vorige week flink afgedroogd door FC Twente (5-0). Afgelopen woensdag herstelde de ploeg zich met een 1-3 overwinning bij Go Ahead...
+- [Schansspringer mag niet meedoen aan olympische finale omdat schoenen 4 millimeter te groot zijn](https://www.ad.nl/olympische-spelen/schansspringer-mag-niet-meedoen-aan-olympische-finale-omdat-schoenen-4-millimeter-te-groot-zijn~a69e5113/)
+  > Schansspringer Daniel Tschofenig zal de komende tijd nog wel eens slecht slapen. De Oostenrijker werd zondag op de Olympische Spelen...
+- [VS twijfelt niet aan onderzoek waaruit blijkt dat Navalny is vergiftigd door Rusland](https://www.ad.nl/buitenland/vs-twijfelt-niet-aan-onderzoek-waaruit-blijkt-dat-navalny-is-vergiftigd-door-rusland~ae4a7c6e/)
+  > De VS ziet geen reden om de conclusies uit het Europese rapport over de doodsoorzaak van de Russische oppositieleider Aleksej Navalny in twijfel te...
+- [Rijkswaterstaat begint preventief te strooien vanwege gladheid: ‘Pas rijgedrag aan’](https://www.ad.nl/binnenland/rijkswaterstaat-begint-preventief-te-strooien-vanwege-gladheid-pas-rijgedrag-aan~af60c51c/)
+  > Mensen moeten tot maandagochtend rekening houden met gladheid wanneer ze de weg opgaan, en hun rijstijl daarop aanpassen. Volgens Rijkswaterstaat kan...
+- [Feyenoord kruipt door oog van de naald tegen tiental Go Ahead dankzij rake strafschop in blessuretijd](https://www.ad.nl/voetbal/feyenoord-kruipt-door-oog-van-de-naald-tegen-tiental-go-ahead-dankzij-rake-strafschop-in-blessuretijd~a37ab4dc/)
+  > Feyenoord ontsnapte in blessuretijd aan een blamage. De Rotterdammers konden in de eigen Kuip maar geen afstand nemen van Go Ahead Eagles, dat bijna...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Met snel toeslaan en een ‘mirakel’ kan Alblasserdam weer plannen maken](https://fd.nl/bedrijfsleven/1586438/met-snel-toeslaan-en-een-mirakel-kan-alblasserdam-weer-plannen-maken)
-  > De Zuid-Hollandse gemeente legde €28 mln neer om grip te krijgen op de herontwikkeling van het voormalige Nedstaal-terrein.
-- [Volop kansen in India, maar betalingsrisico is hoog](https://fd.nl/bedrijfsleven/1586522/volop-kansen-in-india-maar-betalingsrisico-is-hoog)
-  > Volgens exportverzekeraar Atradius betaalden Indiase bedrijven vorig jaar 63% van de facturen te laat. De handelsdeal met New Delhi maakt de Indiase...
-- [Bernard Arnault wil er nog niet aan, maar beleggers willen weten wie hem opvolgt bij LVMH](https://fd.nl/bedrijfsleven/1586425/bernard-arnault-wil-er-nog-niet-aan-maar-beleggers-willen-weten-wie-hem-opvolgt-bij-lvmh)
-  > Beleggers willen dat LVMH-topman Bernard Arnault eindelijk zijn opvolging regelt bij het Franse luxebedrijf. De 76-jarige ceo wilde daar lang niet...
-- [‘Britten moeten boorverbod in Noordzee opheffen’](https://fd.nl/politiek/1586546/britten-moeten-boorverbod-in-noordzee-opheffen)
-  > Rapport van Tony Blair Institute kraakt energiebeleid van Britse regering onder leiding van Keir Starmer.
-- [Rendementen van elk soort dienen te worden belast](https://fd.nl/opinie/1586292/rendementen-van-elk-soort-dienen-te-worden-belast)
-  > Ons belastingstelsel is te complex, blijkt al jaren. Een hervorming uitwerken gaat niet zomaar. Maar concrete handreikingen vergemakkelijken het...
+- [‘Russische olieinstallaties zwaar getroffen door droneaanval’](https://fd.nl/samenleving/1586550/russische-olieinstallaties-zwaar-getroffen-door-droneaanval)
+  > Daarbij is schade gemeld aan de infrastructuur van de zeehaven van Taman en aan brandstoftanks.
+- [Private equity probeert met mentoren meer vrouwen vast te houden](https://fd.nl/bedrijfsleven/1585781/private-equity-probeert-met-mentoren-meer-vrouwen-vast-te-houden)
+  > Vooral in juniorposities is het aandeel vrouwen de afgelopen jaren gestegen, maar op senior- en partnerniveau bungelt Nederland in de Europese...
+- [Oekraïense ex-minister aan grens opgepakt in grote corruptiezaak](https://fd.nl/politiek/1586548/oekraiense-ex-minister-aan-grens-opgepakt-in-grote-corruptiezaak)
+  > De Oekraïense oud-minister Herman Haloesjtsjenko is zondag gearresteerd terwijl hij per trein het land probeerde te verlaten. Haloesjtsjenko wordt...
+- [Net zo goedkoop als de bus](https://fd.nl/financiele-markten/1586520/net-zo-goedkoop-als-de-bus)
+  > Als mensen massaal hun softwareabonnementen dumpen voor AI-toepassingen, moeten ze nog maar eens nadenken over de kosten daarvan.
+- [Griekse rederij stelt VDL-bestuurders voor $12,4 mln persoonlijk aansprakelijk](https://fd.nl/bedrijfsleven/1586519/griekse-rederij-stelt-vdl-bestuurders-voor-12-4-mln-persoonlijk-aansprakelijk)
+  > Een joint venture van VDL verkocht filtersystemen voor stookolie aan een Griekse rederij. Die stelt dat de filters ondeugdelijk zijn, maar volgens...
 
 ### Meest gelezen
 
