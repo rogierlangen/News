@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-02-2026 om 21:50*
+*Laatst bijgewerkt: 15-02-2026 om 22:57*
 
 ---
 
@@ -8,6 +8,9 @@
 
 ### Laatste nieuws
 
+- [Carnavalstenten in Zuid-Limburg ontruimd vanwege sneeuw](https://nos.nl/l/2602646)
+  > Op meerdere plaatsen in het zuiden van Limburg zijn afgelopen avond feesttenten met carnavalsgangers ontruimd vanwege de sneeuw die op het dak lag.
+ ...
 - [Israël breidt controle over bezette Westelijke Jordaanoever verder uit](https://nos.nl/l/2602634)
   > De Israëlische regering heeft een voorstel goedgekeurd om de controle over de bezette Westelijke Jordaanoever uit te breiden. Ook wordt het voor...
 - [Drie gewonden na val van metershoge carnavalswagen Duitsland](https://nos.nl/l/2602624)
@@ -16,8 +19,6 @@
   > De beste groene intenties kunnen averechtse effecten hebben. Dat is de boodschap van een tentoonstelling over klimaatvriendelijk bouwen in Rotterdam....
 - [Socialemediaverbod Australië inspireert andere landen, maar effect nog beperkt](https://nos.nl/l/2602613)
   > Lang was het ondenkbaar, maar steeds meer landen overwegen in navolging van Australië een minimumleeftijd in te voeren voor het gebruik van sociale...
-- [Trump: lidstaten vredesraad betalen ruim 5 miljard dollar voor wederopbouw Gaza](https://nos.nl/l/2602608)
-  > De Amerikaanse president Trump zegt dat lidstaten van zijn zogenoemde vredesraad meer dan 5 miljard dollar hebben toegezegd voor humanitaire hulp en...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Tsiba en Danilova zijn na korte kür klaar op de Spelen, levenswerk van Gerard van Velde is voltooid](https://www.ad.nl/olympische-spelen/tsiba-en-danilova-zijn-na-korte-kur-klaar-op-de-spelen-levenswerk-van-gerard-van-velde-is-voltooid~a0b4837e/)
+  > De Olympische Winterspelen zijn in volle gang. Zondag pakte Nederland zowel goud (Femke Kok) als zilver (Jutta Leerdam) op de 500 meter...
+- [Laurence verdiende jarenlang zijn geld als vertaler, tot de opkomst van AI: ‘Ik kom niet rond’](https://www.ad.nl/binnenland/laurence-verdiende-jarenlang-zijn-geld-als-vertaler-tot-de-opkomst-van-ai-ik-kom-niet-rond~a81f6553/)
+  > Op veel plekken in Amsterdam wonen mensen in armoede. De stichting Amsterdammer helpt Amsterdammer laat wekelijks een wens in vervulling gaan....
+- [Dakloze man (47) probeert kindje uit handen van moeder te grissen in Italiaanse supermarkt](https://www.ad.nl/buitenland/dakloze-man-47-probeert-kindje-uit-handen-van-moeder-te-grissen-in-italiaanse-supermarkt~a8f8dd70/)
+  > Een bezoek aan de supermarkt is zaterdagmiddag in het Italiaanse Bergamo uitgemond in een paniekere situatie. Op klaarlichte dag probeerde een man...
 - [Justin Bijlow uitblinker bij Genoa, Donyell Malen scoort twee keer voor Roma tegen Napoli](https://www.ad.nl/voetbal/justin-bijlow-uitblinker-bij-genoa-donyell-malen-scoort-twee-keer-voor-roma-tegen-napoli~a154250a/)
   > Justin Bijlow was zondag de uitblinker bij zijn club Genoa, dat met 0-0 gelijkspeelde in de uitwedstrijd bij Cremonese. Het leverde beide clubs een...
 - [Voetbalpodcast | ‘De grootste tegenstander van PSV is PSV zelf’](https://www.ad.nl/voetbal/voetbalpodcast-de-grootste-tegenstander-van-psv-is-psv-zelf~ac8603a9/)
   > Het gebeurt niet vaak, maar PSV verloor dit weekend voor het eerst sinds eind augustus (0-2 tegen Telstar) weer eens in de Eredivisie.
-- [Onrust na Odido-aanval: klanten eisen nieuw paspoort op kosten bedrijf, maar provider begint daar niet aan](https://www.ad.nl/tech/onrust-na-odido-aanval-klanten-eisen-nieuw-paspoort-op-kosten-bedrijf-maar-provider-begint-daar-niet-aan~a38d4c1a/)
-  > Gedupeerde klanten eisen dat telecomaanbieder Odido de kosten voor een nieuw paspoort of rijbewijs vergoedt, als gevolg van de grootschalige...
-- [Met het goud van Femke Kok is de olympische kraskaart vol voor Nederland: ‘Dat is echt mijn kracht, héél normaal zijn’](https://www.ad.nl/olympische-spelen/met-het-goud-van-femke-kok-is-de-olympische-kraskaart-vol-voor-nederland-dat-is-echt-mijn-kracht-heel-normaal-zijn~a59f2e52/)
-  > Femke Kok won twee jaar lang alle 500 meters die ze reed, dus ook die olympische van zondag in Milaan. Maar juist aan haar ‘een-tweetje’ op het ijs...
-- [Klopjacht op ontvoerder Nancy Guthrie (84) in volle gang, handschoen gevonden die mogelijk van kidnapper is](https://www.ad.nl/buitenland/klopjacht-op-ontvoerder-nancy-guthrie-84-in-volle-gang-handschoen-gevonden-die-mogelijk-van-kidnapper-is~a1b9a815/)
-  > In de vermissingszaak rond de 84-jarige Amerikaanse Nancy Guthrie is een handschoen gevonden die mogelijk toebehoort aan de verdachte die door een...
 
 ### Meest gelezen
 
