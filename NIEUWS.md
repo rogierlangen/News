@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-02-2026 om 10:57*
+*Laatst bijgewerkt: 15-02-2026 om 11:47*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Meer vluchten van en naar Schiphol geschrapt om sneeuw en harde wind](https://nos.nl/l/2602538)
+  > Het aantal vluchten van en naar Schiphol dat vandaag wordt geannuleerd vanwege de verwachte sneeuw is opgelopen tot 170. Daarvan zijn er 150 van KLM....
 - [Te snelle glijbaan in zwembad Zoetermeer voorlopig dicht](https://nos.nl/l/2602533)
   > Een glijbaan in zwembad De Watergeus in Zoetermeer is voorlopig buiten gebruik gesteld. Volgens de gemeente hebben zich "enkele incidenten"...
 - [President Macron roept op tot kalmte na dodelijke mishandeling in Lyon](https://nos.nl/l/2602531)
@@ -16,8 +18,6 @@
   > Bij de traditionele carnavalsoptocht in Le Châble in het zuidwesten van Zwitserland zijn zaterdag elf mensen gewond geraakt door een explosie op een...
 - [Zweedse Sami vrezen voor hun toekomst nu Europa inzet op nieuwe mijnen](https://nos.nl/l/2602525)
   > Wereldleiders komen dit weekend bijeen op de veiligheidstop in München. Voor de Europeanen staat één thema centraal: onafhankelijker worden van...
-- [Obama reageert op racistische video op Trump-account: 'Er is geen schaamte meer'](https://nos.nl/l/2602521)
-  > De voormalige Amerikaanse president Obama heeft gereageerd op een racistische video die onlangs via het account van de huidige president Trump werd...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Wie is die Duitse keeper die nu ineens bij Feyenoord eenmalig op doel staat?](https://www.ad.nl/voetbal/wie-is-die-duitse-keeper-die-nu-ineens-bij-feyenoord-eenmalig-op-doel-staat~a0b0c626/)
+  > Robin van Persie moet tegen Go Ahead Eagles de geschorste Timon Wellenreuther vervangen en de Duitse huurling Steven Benda krijgt zijn kans. In...
+- [EU wil nog geen datum noemen voor lidmaatschap Oekraïne, corrupte oud-minister tijdens vlucht opgepakt](https://www.ad.nl/buitenland/eu-wil-nog-geen-datum-noemen-voor-lidmaatschap-oekraine-corrupte-oud-minister-tijdens-vlucht-opgepakt~adfb97be/)
+  > De Europese Unie wil nog geen datum noemen waarop Oekraïne EU-lid kan worden, denkt buitenlandchef Kaja Kallas. Oekraïne wil een datum vastleggen in...
+- [Feyenoord op jacht naar voorsprong tegen tiental Go Ahead, Jari De Busser houdt uitploeg op de been](https://www.ad.nl/voetbal/feyenoord-op-jacht-naar-voorsprong-tegen-tiental-go-ahead-jari-de-busser-houdt-uitploeg-op-de-been~a37ab4dc/)
+  > Feyenoord won vorige week een lastige uitwedstrijd bij FC Utrecht (0-1). Kan de ploeg van Robin van Persie die lijn in eigen huis doorzetten? De oude...
+- [Man betast vrouwen in Breda, plast in arrestantenbus en bijt agent in de hand](https://www.ad.nl/binnenland/man-betast-vrouwen-in-breda-plast-in-arrestantenbus-en-bijt-agent-in-de-hand~a9cd35c0/)
+  > Een 38-jarige man heeft de Bredase politie een drukke avond bezorgd. De man maakte zich onder meer schuldig aan vernieling, betastte meerdere vrouwen...
 - [Praat mee: Macron heeft gelijk: ook ik moet trotser zijn dat ik Europeaan ben](https://www.ad.nl/praat-mee/praat-mee-macron-heeft-gelijk-ook-ik-moet-trotser-zijn-dat-ik-europeaan-ben~a5116f88f/)
   > Moeten we trotser zijn dat we Europeanen zijn, zoals president Macron zegt?  In de Kwestie leggen we onze lezers daarover een vraag voor. Reageer...
-- [12 miljoen voor een stuk karton? ‘Voor de Mona Lisa onder de Pokémonkaarten gaan mensen heel ver’](https://www.ad.nl/buitenland/12-miljoen-voor-een-stuk-karton-voor-de-mona-lisa-onder-de-pokemonkaarten-gaan-mensen-heel-ver~ac87b77b/)
-  > Een Pokémonkaart die 12 miljoen dollar oplevert. Het lijkt surrealistisch. Toch zou het maandag, wanneer de zogenoemde Pikachu Illustrator van...
-- [Zeker elf doden in Gaza bij Israëlische aanvallen, sinds ‘staakt-het-vuren’ al 600 Palestijnen gedood](https://www.ad.nl/buitenland/zeker-elf-doden-in-gaza-bij-israelische-aanvallen-sinds-staakt-het-vuren-al-600-palestijnen-gedood~a395cdaf/)
-  > In de Gazastrook zijn zondag zeker elf mensen gedood door Israëlische aanvallen. Dat meldt de Palestijnse burgerbeschermingsdienst. Het Israëlische...
-- [Jantine uit Married at first sight na scheiding weer gelukkig in de liefde: ‘Voelde meteen goed’](https://www.ad.nl/show/jantine-uit-married-at-first-sight-na-scheiding-weer-gelukkig-in-de-liefde-voelde-meteen-goed~a79695a8/)
-  > Het Married at first sight-avontuur van Jantine van Dinther (34) eindigde twee jaar geleden met een scheiding. Ze werd gekoppeld aan Jeppe, maar zag...
-- [Contrabassist Dominic Seldis: ‘Je weet nooit hoe je onverwacht uit het lood kan raken’](https://www.ad.nl/mezza/contrabassist-dominic-seldis-je-weet-nooit-hoe-je-onverwacht-uit-het-lood-kan-raken~a8635232/)
-  > Maestro veranderde het leven van Dominic Seldis totaal, ‘want eerlijk: niemand zou een boek kopen of naar de theatershow gaan van een contrabassist...
 
 ### Meest gelezen
 
