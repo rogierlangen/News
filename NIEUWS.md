@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-02-2026 om 05:13*
+*Laatst bijgewerkt: 15-02-2026 om 07:51*
 
 ---
 
@@ -8,17 +8,18 @@
 
 ### Laatste nieuws
 
+- [Wekdienst 15/2: Schiphol schrapt vluchten om sneeuw • Veel carnavalsoptochten](https://nos.nl/l/2602514)
+  > Goedemorgen! Schiphol schrapt vluchten vanwege verwachte sneeuwval. En in veel plaatsen staan vanmiddag carnavalsoptochten op het programma.
+       ...
 - [Opnieuw hoofden met tekst 'stelen verboden' gevonden in Ecuador](https://nos.nl/l/2602507)
   > Tijdens een patrouille in de Ecuadoraanse provincie Guayas hebben agenten meerdere mensenhoofden gevonden. De hoofden zaten in jutezakken en werden...
-- [Vier astronauten aangekomen bij ruimtestation ISS](https://nos.nl/l/2602506)
-  > Het International Ruimtestation (ISS) heeft nieuwe bemanningsleden. Een team van vier astronauten kwam afgelopen avond aan bij het ISS.
+- [Vier astronauten bij ruimtestation ISS na voortijdige terugkeer vorige bemanning](https://nos.nl/l/2602506)
+  > Het Internationaal Ruimtestation (ISS) heeft nieuwe bemanningsleden. Een team van vier astronauten kwam afgelopen avond aan bij het ISS.
         De...
 - [Alina Sharipova wint Leids Cabaret Festival 2026](https://nos.nl/l/2602505)
   > Cabaretier Alina Sharipova heeft het jaarlijkse Leids Cabaret Festival gewonnen. De vakjury verkoos Sharipova tot winnaar, de publieksprijs ging naar...
 - [Patiënt met zeer besmettelijke schurft in ziekenhuis Almere](https://nos.nl/l/2602504)
   > In het Flevoziekenhuis in Almere is schurft vastgesteld bij een patiënt op een verpleegafdeling. Het gaat om een zeer besmettelijke vorm van schurft:...
-- [Zelensky: 'Verkiezingen na twee maanden staakt-het-vuren'](https://nos.nl/l/2602479)
-  > De Oekraïense president Zelensky wil verkiezingen houden als er twee maanden een staakt-het-vuren is geweest. Dat heeft hij duidelijk gemaakt op de...
 
 ### Meest gelezen
 
@@ -28,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Het vega-hart van Europa klopt in Holten: ‘Ruik maar, je ruikt hier niets’](https://www.ad.nl/rijssen-holten/het-vega-hart-van-europa-klopt-in-holten-ruik-maar-je-ruikt-hier-niets~aa030fde/)
-  > Wie denkt dat Twente en Salland draaien op boeren en biefstuk, heeft het mis. In Holten staat de grootste vleesvervangerfabriek van Europa. Op bezoek...
-- [Elon Musk stemt lachend in: nieuwe Nederlandse belastingwet is ‘achterlijk’](https://www.ad.nl/binnenland/elon-musk-stemt-lachend-in-nieuwe-nederlandse-belastingwet-is-achterlijk~a59821a4/)
-  > Het is al een veelbesproken wet in Nederland, en het bestaan ervan heeft nu zelfs de Verenigde Staten bereikt: de nieuwe Box 3-wet, die regelt dat...
-- [Populair vrouwenvoetbal zorgt voor hausse aan knieklachten: ‘Vaak geen goede warming-up’](https://www.ad.nl/capelle-aan-den-ijssel/populair-vrouwenvoetbal-zorgt-voor-hausse-aan-knieklachten-vaak-geen-goede-warming-up~a0a1fe35/)
-  > Het aantal knieblessures en gescheurde kruisbanden neemt toe. Bij Bergman Clinics spreken ze zelfs van een stormvloed, die mede wordt veroorzaakt...
-- [Israël doodt minstens twee Palestijnen in Gaza en voert opnieuw luchtaanvallen uit op zuiden van Libanon](https://www.ad.nl/buitenland/israel-doodt-minstens-twee-palestijnen-in-gaza-en-voert-opnieuw-luchtaanvallen-uit-op-zuiden-van-libanon~a395cdaf/)
-  > Israël heeft zaterdag in de Gazastrook minstens twee Palestijnen gedood, aldus het Israëlische leger. Dat heeft ook opnieuw luchtaanvallen uitgevoerd...
-- [Obama vergelijkt optreden ICE met dictaturen: ‘Schurkengedrag agenten zorgwekkend en gevaarlijk’](https://www.ad.nl/buitenland/obama-vergelijkt-optreden-ice-met-dictaturen-schurkengedrag-agenten-zorgwekkend-en-gevaarlijk~a511277c/)
-  > De voormalige president van de Verenigde Staten Barack Obama heeft het optreden van de immigratiepolitie ICE in Minnesota vergeleken met de...
+- [Nederlandse shorttrackers met drie keer goud succesvoller dan vorige Winterspelen](https://www.ad.nl/olympische-spelen/nederlandse-shorttrackers-met-drie-keer-goud-succesvoller-dan-vorige-winterspelen~a0b4837e/)
+  > De Olympische Winteerspelen gaat alweer bijna zijn laatste week in. Uiteraard zijn er nog wel voldoende medaillekansen voor Nederland. Vanavond staat...
+- [Schandvlek van Heizeldrama wordt messcherp ontleed in nieuwe speelfilm](https://www.ad.nl/show/schandvlek-van-heizeldrama-wordt-messcherp-ontleed-in-nieuwe-speelfilm~aa71c142/)
+  > Het supportersdrama in het Brusselse Heizelstadion dat in 1985 39 voornamelijk Italiaanse voetbalsupporters het leven kostte, is na de...
+- [1 procent heeft last van smetvrees: ‘Dwangrituelen vergen soms wel 8 uur per dag’](https://www.ad.nl/wetenschap/1-procent-heeft-last-van-smetvrees-dwangrituelen-vergen-soms-wel-8-uur-per-dag~a005456b/)
+  > 180 duizend Nederlanders hebben last van smetvrees, wat enorm beperkend is in het dagelijks leven. Klinisch psycholoog Tara Donker bedacht een app...
+- [Tot 5 centimeter sneeuw vandaag en waarschuwing voor gladde wegen: zo laat geldt code geel bij jou](https://www.ad.nl/binnenland/tot-5-centimeter-sneeuw-vandaag-en-waarschuwing-voor-gladde-wegen-zo-laat-geldt-code-geel-bij-jou~a52be812/)
+  > Weggebruikers moeten zondagmiddag goed opletten. Het KNMI heeft voor het hele land code geel afgekondigd vanwege sneeuwval en gladheid. Vooral in de...
+- [AD Winterspelen Podcast | ‘Jens van ‘t Wout heeft een aura van onaantastbaarheid’](https://www.ad.nl/olympische-spelen/ad-winterspelen-podcast-jens-van-t-wout-heeft-een-aura-van-onaantastbaarheid~a17ab614/)
+  > Jens van ‘t Wout is de shorttrack-koning van Milaan. Na zijn historische goud op de 1000 meter is hij op de derde dag van zijn sport al tweevoudig...
 
 ### Meest gelezen
 
