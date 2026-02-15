@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-02-2026 om 23:50*
+*Laatst bijgewerkt: 15-02-2026 om 05:13*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Opnieuw hoofden met tekst 'stelen verboden' gevonden in Ecuador](https://nos.nl/l/2602507)
+  > Tijdens een patrouille in de Ecuadoraanse provincie Guayas hebben agenten meerdere mensenhoofden gevonden. De hoofden zaten in jutezakken en werden...
+- [Vier astronauten aangekomen bij ruimtestation ISS](https://nos.nl/l/2602506)
+  > Het International Ruimtestation (ISS) heeft nieuwe bemanningsleden. Een team van vier astronauten kwam afgelopen avond aan bij het ISS.
+        De...
+- [Alina Sharipova wint Leids Cabaret Festival 2026](https://nos.nl/l/2602505)
+  > Cabaretier Alina Sharipova heeft het jaarlijkse Leids Cabaret Festival gewonnen. De vakjury verkoos Sharipova tot winnaar, de publieksprijs ging naar...
 - [Patiënt met zeer besmettelijke schurft in ziekenhuis Almere](https://nos.nl/l/2602504)
   > In het Flevoziekenhuis in Almere is schurft vastgesteld bij een patiënt op een verpleegafdeling. Het gaat om een zeer besmettelijke vorm van schurft:...
 - [Zelensky: 'Verkiezingen na twee maanden staakt-het-vuren'](https://nos.nl/l/2602479)
   > De Oekraïense president Zelensky wil verkiezingen houden als er twee maanden een staakt-het-vuren is geweest. Dat heeft hij duidelijk gemaakt op de...
-- [Schiphol annuleert groot aantal vluchten vanwege sneeuw](https://nos.nl/l/2602468)
-  > Schiphol annuleert op zondag uit voorzorg vanwege de sneeuw een groot aantal vluchten. Een woordvoerder van KLM bevestigt aan persbureau ANP dat het...
-- [Bovenleiding bij Utrecht gerepareerd, treinen rijden weer volgens dienstregeling](https://nos.nl/l/2602465)
-  > De herstelwerkzaamheden van een kapotte bovenleiding ten zuiden van Utrecht zijn afgerond. De treinen rijden weer volgens de dienstregeling, meldt...
-- [Energievoorziening Oekraïne staat op instorten: 'Geen centrale gespaard'](https://nos.nl/l/2602459)
-  > De verre buitenwijken van Kyiv zien er somber uit. Het begint te schemeren aan het einde van de middag, maar de lampen binnen gaan niet aan. Slechts...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Acht hoofden aangetroffen in Ecuador met boodschap ‘verboden te stelen’](https://www.ad.nl/buitenland/acht-hoofden-aangetroffen-in-ecuador-met-boodschap-verboden-te-stelen~a9ceb283/)
-  > In het Zuid-Amerikaanse land Ecuador zijn zakken ontdekt met daarin de hoofden van acht mensen. Dat heeft de politie zaterdag bekendgemaakt. Bij de...
-- [Zelensky zegt dat Oekraïne klaar is voor vredesdeal, spreekt Witkoff en Kushner in aanloop naar nieuw overleg](https://www.ad.nl/buitenland/zelensky-zegt-dat-oekraine-klaar-is-voor-vredesdeal-spreekt-witkoff-en-kushner-in-aanloop-naar-nieuw-overleg~adfb97be/)
-  > De Oekraïense president Volodymyr Zelensky heeft  zaterdag op de veiligheidsconferentie in München gezegd dat zijn land klaar is voor een...
-- [Basisdebuut Ajax-aanwinst Zinchenko duurt slechts 2 minuten en 15 seconden: ‘Het zag er niet goed uit’](https://www.ad.nl/voetbal/basisdebuut-ajax-aanwinst-zinchenko-duurt-slechts-2-minuten-en-15-seconden-het-zag-er-niet-goed-uit~a10e5993/)
-  > Oleksandr Zinchenko heeft weinig plezier gehad aan zijn eerste duel in de basisformatie van Ajax. De linksback uit Oekraïne raakte in de...
-- [Nederland stijgt na tweede goud Jens van ‘t Wout naar plek 7 op medaillespiegel Winterspelen](https://www.ad.nl/olympische-spelen/nederland-stijgt-na-tweede-goud-jens-van-t-wout-naar-plek-7-op-medaillespiegel-winterspelen~a2772ec34/)
-  > Hoeveel gouden medailles gaat Nederland pakken tijdens de Olympische Winterspelen 2026 in Milaan en Cortina d’Ampezzo? Jens van ‘t Wout veroverde...
-- [Liverpool rekent af met Brighton en bereikt achtste finales FA Cup](https://www.ad.nl/voetbal/liverpool-rekent-af-met-brighton-en-bereikt-achtste-finales-fa-cup~af54b2fa/)
-  > Liverpool heeft zich geplaatst voor de achtste finales van de FA Cup. In eigen huis rekende de ploeg van Arne Slot af met Brighton & Hove Albion: het...
+- [Het vega-hart van Europa klopt in Holten: ‘Ruik maar, je ruikt hier niets’](https://www.ad.nl/rijssen-holten/het-vega-hart-van-europa-klopt-in-holten-ruik-maar-je-ruikt-hier-niets~aa030fde/)
+  > Wie denkt dat Twente en Salland draaien op boeren en biefstuk, heeft het mis. In Holten staat de grootste vleesvervangerfabriek van Europa. Op bezoek...
+- [Elon Musk stemt lachend in: nieuwe Nederlandse belastingwet is ‘achterlijk’](https://www.ad.nl/binnenland/elon-musk-stemt-lachend-in-nieuwe-nederlandse-belastingwet-is-achterlijk~a59821a4/)
+  > Het is al een veelbesproken wet in Nederland, en het bestaan ervan heeft nu zelfs de Verenigde Staten bereikt: de nieuwe Box 3-wet, die regelt dat...
+- [Populair vrouwenvoetbal zorgt voor hausse aan knieklachten: ‘Vaak geen goede warming-up’](https://www.ad.nl/capelle-aan-den-ijssel/populair-vrouwenvoetbal-zorgt-voor-hausse-aan-knieklachten-vaak-geen-goede-warming-up~a0a1fe35/)
+  > Het aantal knieblessures en gescheurde kruisbanden neemt toe. Bij Bergman Clinics spreken ze zelfs van een stormvloed, die mede wordt veroorzaakt...
+- [Israël doodt minstens twee Palestijnen in Gaza en voert opnieuw luchtaanvallen uit op zuiden van Libanon](https://www.ad.nl/buitenland/israel-doodt-minstens-twee-palestijnen-in-gaza-en-voert-opnieuw-luchtaanvallen-uit-op-zuiden-van-libanon~a395cdaf/)
+  > Israël heeft zaterdag in de Gazastrook minstens twee Palestijnen gedood, aldus het Israëlische leger. Dat heeft ook opnieuw luchtaanvallen uitgevoerd...
+- [Obama vergelijkt optreden ICE met dictaturen: ‘Schurkengedrag agenten zorgwekkend en gevaarlijk’](https://www.ad.nl/buitenland/obama-vergelijkt-optreden-ice-met-dictaturen-schurkengedrag-agenten-zorgwekkend-en-gevaarlijk~a511277c/)
+  > De voormalige president van de Verenigde Staten Barack Obama heeft het optreden van de immigratiepolitie ICE in Minnesota vergeleken met de...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [China verbiedt cryptohandel maar omarmt wél de blockchaintechnologie](https://fd.nl/financiele-markten/1586500/china-verbiedt-cryptohandel-maar-omarmt-wel-de-blockchaintechnologie)
+  > China staat geen betaalsystemen toe waar het geen controle over heeft. Daarom is en blijft de handel in cryptomunten illegaal.
+- [Dé meet & greet voor internationaal succes](https://fd.nl/bedrijfsleven/1586586/de-meet-greet-voor-internationaal-succes)
+  > Op de jaarlijkse ambassadeursconferentie gooien ondernemers hun netten uit bij de diplomaten. Deze dag kan deuren openzetten naar een internationale...
+- [Luisterverhaal: Mee in de Londense robotaxi, die heeft een opvallend menselijke rijstijl](https://fd.nl/samenleving/1586639/luisterverhaal-mee-in-de-londense-robotaxi-die-heeft-een-opvallend-menselijke-rijstijl)
+  > Deze week hoor je over de introductie van de robotaxi
 - [Zelensky voelt ‘beetje druk’ van de VS: ‘Ze vragen ons steeds concessies en Rusland niet’](https://fd.nl/politiek/1586544/zelensky-voelt-beetje-druk-van-de-vs-ze-vragen-ons-steeds-concessies-en-rusland-niet)
   > De Oekraïense president zegt dat hij bereid is verkiezingen in zijn land te organiseren, omdat de VS dat willen. Maar dan moet Rusland wel twee...
 - [ECB verruimt toegang tot euro’s om internationale rol te versterken](https://fd.nl/financiele-markten/1586663/ecb-verruimt-toegang-tot-euros-om-internationale-rol-te-versterken)
   > Centrale banken wereldwijd kunnen vanaf derde kwartaal altijd aankloppen voor euroliquiditeit bij de ECB. De maatregel moet de rol van de munt als...
-- [Rusland vergiftigde Navalny, concluderen Nederland en bondgenoten](https://fd.nl/politiek/1586545/rusland-vergiftigde-navalny-concluderen-nederland-en-bondgenoten)
-  > In een onderzoek naar het weefsel van Navalny’s lichaam is de gifstof epibatidine aangetroffen.
-- [CNV rekent WW-plannen kabinet door: ‘kaalslag’](https://fd.nl/politiek/1586543/cnv-rekent-ww-plannen-kabinet-door-kaalslag)
-  > Een uitkeringsgerechtigde zal er in het slechtste geval in totaal met €66.000 op achteruitgaan.
-- [OpenAI gaat samenwerken met defensiebedrijven voor aansturing drones](https://fd.nl/bedrijfsleven/1586662/openai-gaat-samenwerken-met-defensiebedrijven-voor-aansturing-drones)
-  > Deze stap van OpenAI bouwt voort op eerdere defensieprojecten, zoals met Anduril Industries.
 
 ### Meest gelezen
 
