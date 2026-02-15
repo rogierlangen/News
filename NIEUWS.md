@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-02-2026 om 14:58*
+*Laatst bijgewerkt: 15-02-2026 om 15:52*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Klimaatdemonstratie verstoord in Arnhem, zeven aanhoudingen](https://nos.nl/l/2602574)
+  > In Arnhem hebben relschoppers vandaag een klimaatdemonstratie van Extinction Rebellion en de Partij voor de Dieren verstoord. Er zijn zeven mensen...
 - [Man betast vrouwen, plast in arrestantenbus en bijt politiemedewerker in Breda](https://nos.nl/l/2602560)
   > In het centrum van Breda heeft een 38-jarige man gisteravond tijdens carnaval voor behoorlijk wat onrust gezorgd. Zo betastte hij vrouwen, vernielde...
 - [Grote branden in Russische haven aan Zwarte Zee na Oekraïense aanval](https://nos.nl/l/2602548)
@@ -16,8 +18,6 @@
   > Bij Israëlische luchtaanvallen in het noorden en zuiden van de Gazastrook zijn vandaag zeker tien Palestijnen gedood. Dat melden Palestijnse...
 - [Meer vluchten van en naar Schiphol geschrapt om sneeuw en harde wind](https://nos.nl/l/2602538)
   > Het aantal vluchten van en naar Schiphol dat vandaag wordt geannuleerd vanwege de verwachte sneeuw is opgelopen tot 170. Daarvan zijn er 150 van KLM....
-- [Te snelle glijbaan in zwembad Zoetermeer voorlopig dicht](https://nos.nl/l/2602533)
-  > Een glijbaan in zwembad De Watergeus in Zoetermeer is voorlopig buiten gebruik gesteld. Volgens de gemeente hebben zich "enkele incidenten"...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De ongelooflijke veerkracht van Gisèle Pelicot: ‘Ik ben een gelukkige vrouw, ondanks alles’](https://www.ad.nl/buitenland/de-ongelooflijke-veerkracht-van-gisele-pelicot-ik-ben-een-gelukkige-vrouw-ondanks-alles~a278ab30/)
-  > De Française Gisèle Pelicot geeft in een boek voor het eerst volledige openheid van zaken over wat haar is overkomen. Ze werd tien jaar lang...
-- [Heerenveen komt helemaal terug na fantastische goal Ringo Meerveld](https://www.ad.nl/voetbal/heerenveen-komt-helemaal-terug-na-fantastische-goal-ringo-meerveld~a4ef030e/)
-  > Heerenveen werd vorige week flink afgedroogd door FC Twente (5-0). Afgelopen woensdag herstelde de ploeg zich met een 1-3 overwinning bij Go Ahead...
-- [Zo kwam shorttrack-held Jens van ‘t Wout aan het litteken in zijn gezicht waar hij zo trots op is](https://www.ad.nl/olympische-spelen/zo-kwam-shorttrack-held-jens-van-t-wout-aan-het-litteken-in-zijn-gezicht-waar-hij-zo-trots-op-is~a48e5009/)
-  > Wie goed naar de nieuwe olympische held Jens van ‘t Wout kijkt, ziet meteen dat enorme litteken op zijn gezicht. Hij is er trots op. En dit is waarom.
-- [Nederlandse mannen op jacht naar plek in halve finales ploegenachtervolging](https://www.ad.nl/olympische-spelen/nederlandse-mannen-op-jacht-naar-plek-in-halve-finales-ploegenachtervolging~afe1a5f9/)
-  > De Nederlandse mannen willen zich vanmiddag op de Olympische Winterspelen plaatsen voor de halve finale van de ploegenachtervolging. Chris Huizinga,...
-- [Jade viert 19de verjaardag met optredens van Maan en Emma Kok: ‘Groot feest, ondanks dubbele lading’](https://www.ad.nl/westland/jade-viert-19de-verjaardag-met-optredens-van-maan-en-emma-kok-groot-feest-ondanks-dubbele-lading~a7de86e7/)
-  > Jade Kops heeft haar 19de verjaardag zaterdagavond groots gevierd. Op haar feest kwamen veel bekende artiesten optreden, waaronder Maan, Emma...
+- [Sparta en NEC op besneeuwd veld begonnen aan duel der verrassingen](https://www.ad.nl/voetbal/sparta-en-nec-op-besneeuwd-veld-begonnen-aan-duel-der-verrassingen~aae405bb/)
+  > NEC en Sparta zijn dit seizoen de verrassende clubs in de top 5 van de Vriendenloterij Eredivisie. Maar wie is onderling de sterkste? Dat krijgen we...
+- [Peperkamp loopt finale slopestyle weer net mis, Kerstholt vond het moeilijk om Schulting teleur te moeten stellen](https://www.ad.nl/olympische-spelen/peperkamp-loopt-finale-slopestyle-weer-net-mis-kerstholt-vond-het-moeilijk-om-schulting-teleur-te-moeten-stellen~a0b4837e/)
+  > De Olympische Winterspelen gaat alweer bijna zijn laatste week in. Uiteraard zijn er nog wel voldoende medaillekansen voor Nederland. Vandaag staat...
+- [Winter is back! In zuidwesten van het land sneeuwt het nu stevig door](https://www.ad.nl/binnenland/winter-is-back-in-zuidwesten-van-het-land-sneeuwt-het-nu-stevig-door~af60c51c/)
+  > In het zuidwesten van het land sneeuwt het nu stevig door en de sneeuw blijft ook snel liggen. De temperatuur is in Zuid-Holland, Zeeland en het...
+- [Femke Kok als topfavoriete in laatste rit 500 meter, straks eerst Jutta Leerdam en Anna Boersma op het ijs](https://www.ad.nl/olympische-spelen/femke-kok-als-topfavoriete-in-laatste-rit-500-meter-straks-eerst-jutta-leerdam-en-anna-boersma-op-het-ijs~a51f8ea0/)
+  > Femke Kok heerst de laatste jaren op de 500 meter en vandaag moet de bekroning volgen: olympisch goud. Kok is de grote favoriete in Milaan. Namens...
+- [Nederlandse mannen mogen blijven dromen van medaille en plaatsen zich voor halve finale ploegenachtervolging](https://www.ad.nl/olympische-spelen/nederlandse-mannen-mogen-blijven-dromen-van-medaille-en-plaatsen-zich-voor-halve-finale-ploegenachtervolging~afe1a5f9/)
+  > De Nederlandse mannen hebben zich geplaatst voor de halve finales van de ploegenachtervolging op de Olympische Winterspelen. Marcel Bosker, Chris...
 
 ### Meest gelezen
 
