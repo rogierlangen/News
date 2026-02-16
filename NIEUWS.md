@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-02-2026 om 19:47*
+*Laatst bijgewerkt: 16-02-2026 om 21:00*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Trein bij Oudewater ontruimd na brand, 120 mensen geëvacueerd](https://nos.nl/l/2602768)
+  > In de buurt van Oudewater (nabij Woerden) is een trein ontruimd nadat er brand was uitgebroken. Zo'n 120 reizigers zijn geëvacueerd. Niemand raakte...
+- [Bewoners en toeristen treuren om ingestorte 'liefdesboog' aan Italiaanse kust](https://nos.nl/l/2602767)
+  > De bewoners van Melendugno, een gemeente in de hak van Italië, zijn er al dagen kapot van. Een beroemde rotsformatie aan de kust, bijgenaamd 'de...
+- [Officiële recordpoging langste polonaise in Veldhoven: 'Gewoon vasthouden en lopen'](https://nos.nl/l/2602764)
+  > In Veldhoven, dat tijdens carnaval Rommelgat heet, hebben vanavond 1315 mensen de polonaise gelopen en daarmee het oude wereldrecord uit Ridderkerk...
+- [Italianen over Olympische Spelen in hun dorp: 'Wij hebben er niets aan'](https://nos.nl/l/2602763)
+  > De hele wereld kijkt naar Italië, tijdens de Olympische Winterspelen deze maand. Maar wat levert het de inwoners en lokale ondernemers op? Hoewel ze...
 - [Franse justitie begint strafrechtelijk onderzoek na fatale mishandeling student](https://nos.nl/l/2602761)
   > Een Franse student die vorige week in Lyon ernstig werd mishandeld en aan de gevolgen daarvan overleed, werd door ten minste zes mensen aangevallen....
-- [Legerbroeken en politiejacks gaan bij overheidsgebouwen de muur in](https://nos.nl/l/2602759)
-  > Van een versleten legerbroek tot een afgedragen politiejack: binnenkort kunnen ze zomaar in de muur van een overheidsgebouw zitten.
-        Normaal...
-- [Robert Duvall (1931-2026) ging volledig op in zijn personages](https://nos.nl/l/2602758)
-  > De op 95-jarige leeftijd overleden acteur Robert Duvall kreeg in zijn loopbaan veel prijzen, waaronder een Oscar, vier Golden Globes, de Britse...
-- [Zweed verdacht van dwingen echtgenote tot seks met 120 mannen](https://nos.nl/l/2602757)
-  > Een Zweedse zestiger wordt ervan verdacht dat hij zijn vrouw aan zeker 120 mannen uit heel het land heeft aangeboden voor seks tegen betaling. Dat...
-- [Godfather-acteur Robert Duvall (95) overleden](https://nos.nl/l/2602754)
-  > De Amerikaanse acteur Robert Duvall is op 95-jarige leeftijd overleden, meldt entertainmentwebsite TMZ. Duvall is met name bekend van zijn rollen in...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hoe is het om Melle of Michelle te zijn? ‘Je kunt een normale ster niet vergelijken met een zon’](https://www.ad.nl/olympische-spelen/hoe-is-het-om-melle-of-michelle-te-zijn-je-kunt-een-normale-ster-niet-vergelijken-met-een-zon~a36123f7/)
-  > De nieuwe ijskoning en -koningin van Milaan hebben gemeen dat hun broer en zus ook in de olympische ploeg zitten. Zij hebben hun eigen dromen, zijn...
-- [Twee penalty’s in korte tijd bij Jong Ajax - Cambuur, Willem II naar Jong FC Utrecht](https://www.ad.nl/voetbal/twee-penaltys-in-korte-tijd-bij-jong-ajax-cambuur-willem-ii-naar-jong-fc-utrecht~af55e0ee/)
+- [Lamin Yamal mist penalty na overtreding Blind, Barcelona heeft het lastig met Girona](https://www.ad.nl/voetbal/lamin-yamal-mist-penalty-na-overtreding-blind-barcelona-heeft-het-lastig-met-girona~a3e877fc/)
+  > FC Barcelona beleefde donderdag een pijnlijke avond. De club van Frenkie de Jong ging in de heenwedstrijd van de halve finale van de Copa del Rey...
+- [TransferTalk | Sparta wil verlengt contract 17-jarig talent, Dennis de Nooijer eerder dan gepland op straat gezet](https://www.ad.nl/voetbal/transfertalk-sparta-wil-verlengt-contract-17-jarig-talent-dennis-de-nooijer-eerder-dan-gepland-op-straat-gezet~a79d4309/)
+  > De transfermarkt in Nederland en de grootste competities is gesloten. Er zijn nog slechts een paar landen waar spelers naartoe kunnen. Ook zullen er...
+- [Cambuur komt in slotfase op voorsprong tegen Jong Ajax, Jong Utrecht mist strafschop om verder uit te lopen tegen Willem II](https://www.ad.nl/voetbal/cambuur-komt-in-slotfase-op-voorsprong-tegen-jong-ajax-jong-utrecht-mist-strafschop-om-verder-uit-te-lopen-tegen-willem-ii~af55e0ee/)
   > Twee duels vanavond in de Keuken Kampioen Divisie. Nummer 2 SC Cambuur speelt uit tegen Jong Ajax, Willem II gaat op bezoek bij Jong FC Utrecht. Volg...
-- [Popster Angèle in vizier van Franse fiscus: huiszoeking in Parijs, zangeres ontkent belastingontduiking](https://www.ad.nl/show/popster-angele-in-vizier-van-franse-fiscus-huiszoeking-in-parijs-zangeres-ontkent-belastingontduiking~a4625e9d/)
-  > Popster Angèle (30) ontkent met klem dat ze inkomsten heeft achtergehouden voor de Franse fiscus. Ze reageert in een persbericht op berichten over...
-- [Brand uitgebroken in intercity, 120 geëvacueerde reizigers wachten al uur midden in weiland](https://www.ad.nl/binnenland/brand-uitgebroken-in-intercity-120-geevacueerde-reizigers-wachten-al-uur-midden-in-weiland~af441a4d/)
-  > In een passagierstrein is maandagavond brand uitgebroken. De intercity tussen Utrecht en Rotterdam reed in de buurt van Woerden toen het vuur werd...
-- [Terwijl medailles binnenstromen, woedt in Noorwegen vertrouwenscrisis: kan Mette-Marit nog koningin worden?](https://www.ad.nl/buitenland/terwijl-medailles-binnenstromen-woedt-in-noorwegen-vertrouwenscrisis-kan-mette-marit-nog-koningin-worden~a66c20d5/)
-  > Het contrast kan bijna niet groter in Noorwegen. Het land scoort aan de lopende band gouden medailles op de Olympische Spelen, maar is tegelijkertijd...
+- [Man in Zweden zou vrouw gedwongen hebben tot seks met minstens 120 mannen](https://www.ad.nl/buitenland/man-in-zweden-zou-vrouw-gedwongen-hebben-tot-seks-met-minstens-120-mannen~ab7612a9/)
+  > Een man in Zweden zou zeker 120 mannen tegen betaling seks laten hebben met zijn vrouw. Daarvan verdenkt de openbaar aanklager hem, meldt persbureau...
+- [Xandra Velzeboer heeft verrassing voor coach Niels Kerstholt tijdens huldiging in TeamNL Huis](https://www.ad.nl/olympische-spelen/xandra-velzeboer-heeft-verrassing-voor-coach-niels-kerstholt-tijdens-huldiging-in-teamnl-huis~aee8656c/)
+  > Dag 10 van de Olympische Winterspelen in Milaan en Cortina d’Ampezzo is bezig. Via dit liveblog blijf je op de hoogte van alle ontwikkelingen!
 
 ### Meest gelezen
 
