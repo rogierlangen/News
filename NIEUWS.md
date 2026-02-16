@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-02-2026 om 14:32*
+*Laatst bijgewerkt: 16-02-2026 om 17:25*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Bijna 500 bedreigingen tegen politici gemeld: 'Een kogel in dat voorhoofd aub'](https://nos.nl/l/2602742)
+  > Het aantal meldingen van bedreigingen aan het adres van landelijke politici is afgelopen jaar toegenomen. In 2025 deden zij 493 meldingen, tegenover...
+- [Epstein kocht replica van luguber Haarlems kunstwerk: 'Begreep boodschap niet'](https://nos.nl/l/2602741)
+  > De overleden Amerikaanse zedendelinquent Jeffrey Epstein heeft in 2011 een replica besteld van het kunstwerk De kindermoord te Bethlehem van Cornelis...
+- [Ruim 11,5 miljoen kijkers voor Olympische Spelen, meeste kijkers bij race Kok](https://nos.nl/l/2602737)
+  > Ongeveer 11,5 miljoen Nederlanders hebben tot nu toe naar de Olympische Winterspelen gekeken bij de NOS op NPO 1. Dat komt neer op 68,8 procent van...
+- [Israëlische uitbreiding van gezag op Westoever is nieuwe stap richting annexatie](https://nos.nl/l/2602733)
+  > Het Israëlische kabinet wil de controle over de bezette Westelijke Jordaanoever ingrijpend uitbreiden en het voor kolonisten makkelijker maken om...
 - [Podcast De Dag: als 16-jarige les krijgen uit boekjes van groep 3](https://nos.nl/l/2602719)
   > "De vogel roept au, dus ik help 'm gauw". Maar een vogel zegt geen au en dat weet een kind van 16 maar al te goed. Toch is dit een voorbeeld uit het...
-- [Voorlopig geen hulp van Nederland voor Palestijnen in Gaza met visum](https://nos.nl/l/2602712)
-  > Drie Palestijnen die bij het ministerie van Buitenlandse Zaken hadden aangeklopt om hulp bij hun vertrek uit Gaza, krijgen vandaag nog geen...
-- ['Alleen ongeopende post': omstreden ondernemer Sanderink onvindbaar](https://nos.nl/l/2602707)
-  > De omstreden ondernemer Gerard Sanderink is niet te vinden. Het bedrijf Eukairos, voorheen Centric, zocht naar Sanderink, maar vond alleen maar een...
-- [Obama verduidelijkt: 'Heb nooit bewijs gezien van aliens. Echt!'](https://nos.nl/l/2602706)
-  > Barack Obama wil één ding duidelijk maken: hij heeft geen bewijs van buitenaards leven. De Amerikaanse oud-president veroorzaakte dit weekend...
-- ['Ingesneeuwde' carnavalswagens brengen de nacht door op straat in Hulst](https://nos.nl/l/2602699)
-  > Acht carnavalswagens hebben in Hulst de hele nacht op straat gestaan, nadat ze gisteren tijdens de optocht niet meer verder konden door de sneeuw....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Duizenden gebruikers X klagen over problemen met app](https://www.ad.nl/tech/duizenden-gebruikers-x-klagen-over-problemen-met-app~aeb13edb/)
-  > Socialemediaplatform X lijkt te kampen met een storing. Gebruikers melden onder meer problemen met de app en het laden van hun tijdlijn.
-- [Dit is de reden achter de speciale vingertoppen op de handschoenen van shorttrackers](https://www.ad.nl/olympische-spelen/dit-is-de-reden-achter-de-speciale-vingertoppen-op-de-handschoenen-van-shorttrackers~a863a0c0/)
-  > Je hebt ze mogelijk wel gezien bij alle juichende Nederlandse shorttrackers op de Olympische Spelen: de kleurrijke bolletjes op de linkerhandschoen....
-- [Constant in beeld en 13 verschillende jassen: dit is de drukst bezette man op de Winterspelen](https://www.ad.nl/olympische-spelen/constant-in-beeld-en-13-verschillende-jassen-dit-is-de-drukst-bezette-man-op-de-winterspelen~ab760dee/)
-  > Wat hebben de Georgische kunstrijder Nika Egadze en de Belgische Nina Pinzarrone met elkaar gemeen? Ze hebben beiden dezelfde coach: Benoit Richaud....
-- [Waarom gaat het mis met grote infrastructurele projecten? ‘Moeilijk om vooraf alles in kaart te brengen’](https://www.ad.nl/binnenland/waarom-gaat-het-mis-met-grote-infrastructurele-projecten-moeilijk-om-vooraf-alles-in-kaart-te-brengen~aa88170dd/)
-  > Je kon er eigenlijk op wachten: de renovatie van de langste stadstunnel van Nederland, de Hubertustunnel in Den Haag, gaat langer duren dan gepland....
-- [Estland waarschuwt Rusland: Navo zal hard terugslaan bij inval in Baltische landen](https://www.ad.nl/buitenland/estland-waarschuwt-rusland-navo-zal-hard-terugslaan-bij-inval-in-baltische-landen~adfb97be/)
-  > De Navo zal diep in Rusland toeslaan als dat land de Baltische landen binnenvalt. Dat zegt de Estse minister van Buitenlandse Zaken Margus Tsahkna....
+- [Estland waarschuwt Rusland: Navo zal terugslaan bij inval in Baltische landen](https://www.ad.nl/buitenland/estland-waarschuwt-rusland-navo-zal-terugslaan-bij-inval-in-baltische-landen~a99a7fd5/)
+  > De Navo zal diep in Rusland toeslaan als dat land de Baltische landen binnenvalt. Dat zegt de Estse minister van Buitenlandse Zaken Margus Tsahkna in...
+- [Rusland is als enige verantwoordelijk voor dood Navalny, stellen 15 landen in verklaring](https://www.ad.nl/buitenland/rusland-is-als-enige-verantwoordelijk-voor-dood-navalny-stellen-15-landen-in-verklaring~adfb97be/)
+  > De Russische autoriteiten ‘blijven volledig verantwoordelijk’ voor de dood van de Russische oppositieleider Alexej Navalny. Dat schrijven vijftien...
+- [Miljoenencijfers voor Femke Kok: haar gouden race is best bekeken moment van Olympische Spelen](https://www.ad.nl/olympische-spelen/miljoenencijfers-voor-femke-kok-haar-gouden-race-is-best-bekeken-moment-van-olympische-spelen~a2ac2a3d/)
+  > Maar liefst 4,7 miljoen kijkers schakelden zondag tegen de klok van 18.00 uur in voor de gouden race van Femke Kok. Daarmee scoort de 25-jarige...
+- [Ophef in Griekenland: mogelijke beelden van executie 200 verzetsleden opgedoken op eBay](https://www.ad.nl/buitenland/ophef-in-griekenland-mogelijke-beelden-van-executie-200-verzetsleden-opgedoken-op-ebay~af2fd26c/)
+  > Bij een internetveiling zijn vermoedelijk foto’s opgedoken van de executie van zo’n tweehonderd Griekse verzetsleden in 1944. Als het inderdaad gaat...
+- [Gegoochel van Nathalie van Berkel (D66) op LinkedIn is een dreun voor kabinet-Jetten](https://www.ad.nl/binnenland/gegoochel-van-nathalie-van-berkel-d66-op-linkedin-is-een-dreun-voor-kabinet-jetten~a97a5ae3/)
+  > Een fictieve diplomawand op LinkedIn kan het nieuwe kabinet in de problemen brengen. Rob Jetten moet nu al een belangrijke beslissing nemen, schrijft...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Britse regering maakt vaart met bescherming tieners op sociale media](https://fd.nl/samenleving/1586694/britse-regering-maakt-vaart-met-bescherming-tieners-op-sociale-media)
-  > Premier Keir Starmer overweegt een socialemediaverbod voor 16-minners en zijn regering kondigt stappen aan tegen illegale content van AI-chatbots als...
-- [Beleggers trekken hun handen ervan af wegens mensenrechten, maar Palantir blijft in ESG-fondsen](https://fd.nl/financiele-markten/1586683/beleggers-trekken-hun-handen-er-liever-vanaf-wegens-mensenrechten-maar-palantir-blijft-in-esg-fondsen)
-  > Grote institutionele investeerders deden het techbedrijf in de ban wegens zorgen rond zijn controversiële activiteiten.  Maar Palantir zit nog steeds...
-- [Waarom informele gelegenheidscoalities een instituut als de VN niet kunnen vervangen](https://fd.nl/opinie/1586690/waarom-informele-coalities-de-vn-niet-vervangen)
-  > Bij de veiligheidsconferentie in München was de verschuiving van naoorlogse instituties naar informele coalities duidelijk te zien. Hier kleven wel...
-- [Kandidaat-staatssecretaris Van Berkel (D66) wijzigt cv na vragen](https://fd.nl/politiek/1586786/kandidaat-staatssecretaris-van-berkel-d66-wijzigt-cv-na-vragen)
-  > Op LinkedIn suggereerde de D66’er dat ze een master bestuurskunde aan de universiteit volgde. In werkelijkheid heeft ze een havodiploma en een...
-- [Loyale kroonprins treedt uit de schaduw bij Brand New Day](https://fd.nl/bedrijfsleven/1586431/loyale-kroonprins-treedt-uit-de-schaduw-bij-brand-new-day)
-  > Gerjan de Lange, die sinds begin dit jaar de nieuwe ceo bij Brand New Day is, werd al langer de kroonprins bij de online-pensioenbank beschouwd.
+- [Hapag-Lloyd neemt Israëlische reder over in miljardendeal](https://fd.nl/bedrijfsleven/1586714/hapag-lloyd-neemt-israelische-reder-over-in-miljardendeal)
+  > Duits concern betaalt ruim $4 mrd voor de activiteiten van Zim. Een deel van het Israëlische bedrijf komt in handen van de private-equitypartij Fimi.
+- [Breuk Pentagon en Anthropic dreigt om gebruik AI-tool voor spionage](https://fd.nl/bedrijfsleven/1586711/breuk-pentagon-en-anthropic-dreigt-om-gebruik-ai-tool-voor-spionage)
+  > De Amerikaanse regering dreigt samenwerking met Anthropic te beëindigen, meldt nieuwssite Axios. Het bedrijf zou willen beperken hoe het leger zijn...
+- [Spanning in Iran loopt op, dinsdag nieuwe onderhandelingen](https://fd.nl/politiek/1586797/spanning-in-iran-loopt-op-dinsdag-nieuwe-onderhandelingen)
+  > Aan de vooravond van een nieuwe onderhandelingsronde tussen Iran en de Verenigde Staten in Genève, zwelt in Iran de volkswoede weer aan.
+- [Tata Steel brengt internationaal advocatenkantoor in stelling in strijd rond miljardenclaim](https://fd.nl/bedrijfsleven/1586708/tata-steel-brengt-internationaal-advocatenkantoor-in-stelling-in-strijd-rond-miljardenclaim)
+  > De staalproducent vervangt Van Doorne door het veel grotere A&O Shearman. Dit advocatenkantoor is ook actief in India, waar het moederconcern Tata...
+- [Japan heeft last van oplopende spanningen met China, yen doet stapje terug](https://fd.nl/economie/1586707/japan-heeft-last-van-oplopende-spanningen-met-china-yen-doet-stapje-terug)
+  > Een technische recessie is vermeden, maar het herstel is teleurstellend. Premier Takaichi heeft veel uitdagingen te overwinnen. Bedrijven en...
 
 ### Meest gelezen
 
