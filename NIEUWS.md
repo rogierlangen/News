@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-02-2026 om 14:37*
+*Laatst bijgewerkt: 17-02-2026 om 18:06*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Podcast De Dag: een nieuwe Cubacrisis](https://nos.nl/l/2602862)
-  > Het is donker op Cuba. Grote delen van de dag en van de nacht zitten mensen op het eiland zonder stroom.
-        De oorzaak: een groot tekort aan...
-- [Omwonenden azc Lochem krijgen tot 1000 euro voor 'preventieve maatregelen'](https://nos.nl/l/2602860)
-  > Omwonenden van een asielzoekerscentrum in de Gelderse gemeente Lochem kunnen wat het college van burgemeester en wethouders betreft een subsidie...
-- [Bedrijf dat kerncentrales gaat bouwen van start; nieuw kabinet blijft inzetten op kernenergie](https://nos.nl/l/2602857)
-  > Het staatsbedrijf dat de bouw van minimaal twee kerncentrales moet begeleiden en de centrales gaat uitbaten, is opgericht en begint met zijn werk....
-- [Toezichthouder: goksite Polymarket moet weg uit Nederland, anders volgt boete](https://nos.nl/l/2602855)
-  > De Amerikaanse website Polymarket is verboden in Nederland. Als het bedrijf niet direct stopt, moet het een dwangsom van 420.000 euro per week...
-- [Man (81) veroordeeld tot 12 jaar cel voor doodsteken echtgenote in Eindhoven](https://nos.nl/l/2602850)
-  > Een 81-jarige man uit Eindhoven is door de rechtbank in Den Bosch veroordeeld tot een gevangenisstraf van twaalf jaar voor het doodsteken van zijn...
+- [D66 was niet 'in alle scherpte' op hoogte van fouten op cv Van Berkel](https://nos.nl/l/2602896)
+  > D66 was niet op de hoogte van de onwaarheden op het cv van Van Berkel "in de scherpte zoals dat nu naar buiten is gekomen". Dat zei beoogd premier en...
+- [Nog 67 gewonden in ziekenhuizen of revalidatie na brand Crans-Montana](https://nos.nl/l/2602893)
+  > Van de 115 slachtoffers die gewond raakten bij de brand in café Le Constellation worden er nog 67 behandeld in brandwonden- of revalidatiecentra in...
+- [Noodweer verwoest landbouwgrond in Portugal: boeren vrezen voor hun toekomst](https://nos.nl/l/2602891)
+  > Na meer dan twee weken noodweer is het in Portugal rustiger geworden, maar voor boeren begint de onzekerheid nu pas. Het noodweer heeft voor...
+- ['Trump overweegt wapenverkoop aan Taiwan niet door te laten gaan'](https://nos.nl/l/2602890)
+  > President Trump heeft in een gesprek met journalisten aan boord van het regeringsvliegtuig Airforce One gezegd dat toekomstige wapenverkopen aan...
+- [Brussel start onderzoek naar Shein na verkoop van illegale producten](https://nos.nl/l/2602883)
+  > De Europese Commissie stelt een onderzoek in naar modeplatform Shein. Het Chinese bedrijf zou onvoldoende hebben gedaan om de verkoop van illegale...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Een bruisbal als Amara Onwuka moet je niet in het uniform van een strenge tante hijsen](https://www.ad.nl/show/een-bruisbal-als-amara-onwuka-moet-je-niet-in-het-uniform-van-een-strenge-tante-hijsen~a58ae855/)
-  > Wie de tv aanzet voor het weerbericht, verwacht doorgaans een update over lagedrukgebieden of de kans op natte sneeuw. Modejournalist Josine...
-- [Nathalie van Berkel (D66) stopt óók als Kamerlid na fouten op cv](https://www.ad.nl/politiek/nathalie-van-berkel-d66-stopt-ook-als-kamerlid-na-fouten-op-cv~ae82b552/)
-  > D66’er Nathalie van Berkel dient haar ontslag in als Kamerlid, laat ze weten via X. Gisteren trok Van Berkel zich al terug als...
-- [Schaatssters zijn zeker van goud of zilver, mannen strijden zonder Bosker om brons](https://www.ad.nl/olympische-spelen/schaatssters-zijn-zeker-van-goud-of-zilver-mannen-strijden-zonder-bosker-om-brons~a100d62b/)
-  > Nederland gaat vandaag het aantal medailles op deze Olympische Spelen nog verder op te krikken. De vrouwen wonnen de halve finale van de...
-- [Aantal drugsdoden verdrievoudigd in tien jaar tijd](https://www.ad.nl/binnenland/aantal-drugsdoden-verdrievoudigd-in-tien-jaar-tijd~aadaf867/)
-  > Het aantal mensen dat jaarlijks overlijdt door het gebruik van drugs is de afgelopen tien jaar verdrievoudigd, zo meldt het Trimbos-instituut. In...
-- [FC Den Bosch gaat voor nieuwe trainer, Excelsior haalt Akujobi](https://www.ad.nl/voetbal/fc-den-bosch-gaat-voor-nieuwe-trainer-excelsior-haalt-akujobi~a79d4309/)
-  > De transfermarkt in Nederland en de grootste competities is gesloten. Er zijn nog slechts een paar landen waar spelers naartoe kunnen. Ook zullen er...
+- [1000 euro vanwege een azc in de buurt? Dat is bestuurlijk falen](https://www.ad.nl/commentaar/1000-euro-vanwege-een-azc-in-de-buurt-dat-is-bestuurlijk-falen~ae1425ed/)
+  > Met 1000 euro subsidie voor een azc om de hoek wantrouwt de gemeente Lochem zijn eigen principes, schrijft onze chef nieuws Saskia van Westhreenen.
+- [Koopmeiners trekt stand gelijk voor Juventus tegen Galatasaray](https://www.ad.nl/voetbal/koopmeiners-trekt-stand-gelijk-voor-juventus-tegen-galatasaray~a1226d04/)
+  > De tussenronde in de Champions League begint vanavond om 18.45 uur met Galatasaray - Juventus. Noa Lang hoopt zich met zijn nieuwe club te plaatsen...
+- [Nathalie van Berkel (D66) is niet de eerste die in opspraak kwam om opleiding](https://www.ad.nl/politiek/nathalie-van-berkel-d66-is-niet-de-eerste-die-in-opspraak-kwam-om-opleiding~a7955e21/)
+  > D66-Kamerlid Nathalie van Berkel keert niet terug in de Tweede Kamer. Nadat zij zich maandag al had teruggetrokken als kandidaat-staatssecretaris van...
+- [Rintje Ritsma boos op weggelopen Marcel Bosker: ‘Hij móest hier zijn, maar ik wist niet waar hij was’](https://www.ad.nl/olympische-spelen/rintje-ritsma-boos-op-weggelopen-marcel-bosker-hij-moest-hier-zijn-maar-ik-wist-niet-waar-hij-was~a09d2fd9/)
+  > Opeens was Marcel Bosker weg, voor de troostfinale van de ploegenachtervolging in Milaan. Boos vertrokken, omdat hij gepasseerd was. ,,Ik snap de...
+- [Acteur Shia LaBeouf weer de fout in: opgepakt bij vechtpartij](https://www.ad.nl/show/acteur-shia-labeouf-weer-de-fout-in-opgepakt-bij-vechtpartij~a29f8fc8/)
+  > Shia LaBeouf is dinsdag gearresteerd na een vechtpartij in New Orleans, melden Amerikaanse media. De acteur was volgens Variety tijdens de viering...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Tennet op zoek naar nieuwe ceo, Manon van Beek stopt](https://fd.nl/bedrijfsleven/1586812/tennet-op-zoek-naar-nieuwe-ceo-manon-van-beek-stopt)
-  > De tweede termijn van Van Beek loopt eind augustus af, netbeheerder gaat ‘tijdig’ op zoek.
-- [Woonruimte genoeg in Nederland, alleen is hij niet goed verdeeld](https://fd.nl/economie/1586774/woonruimte-genoeg-in-nederland-alleen-is-hij-niet-goed-verdeeld)
-  > Volgens een publicatie in economenblad ESB zou de woningnood zijn opgelost als de ruim vier miljoen ruimst wonende huishoudens elk 11 vierkante meter...
-- [Populaire goksite Polymarket verboden in Nederland, oordeelt toezichthouder](https://fd.nl/financiele-markten/1586808/populaire-goksite-polymarket-verboden-in-nederland-oordeelt-toezichthouder)
-  > Polymarket is illegaal actief in Nederland, zegt de Kansspelautoriteit. De goksite moet direct offline, op last onder dwangsom van maximaal €840.000....
-- [Een hogere beloning voor politici? Zorg maar eerst voor gelijke spelregels](https://fd.nl/opinie/1586706/hogere-beloning-voor-politici-zorg-eerst-voor-gelijke-spelregels)
-  > Het advies om de salarissen van politici en bestuurders te verhogen, is begrijpelijk. Maar kijk ook naar andere drempels die de deelname aan de...
-- [AFM waarschuwt accountants voor terugloop duurzaamheidscontroles](https://fd.nl/financiele-markten/1586702/afm-waarschuwt-accountants-voor-terugloop-duurzaamheidscontroles)
-  > De toezichthouder voorziet minder controlewerk doordat Brussel de groene rapportageverplichtingen heeft afgezwakt. Dit noopt accountantskantoren tot...
+- [Bitcoinpot Strategy staat miljarden onder water, maar heeft nog even tijd](https://fd.nl/financiele-markten/1586161/bitcoinpot-strategy-staat-miljarden-onder-water-maar-heeft-nog-even-tijd)
+  > Strategy-topman Michael Saylor heeft zich als een steeds uitbundiger bitcoin-evangelist ontpopt, en is de munt blijven kopen. Maar de koers ervan is...
+- [Bezuinigingen sociale zekerheid raken jonge ouders extra hard](https://fd.nl/politiek/1586878/bezuinigingen-sociale-zekerheid-raken-jonge-ouders-extra-hard)
+  > De voorgenomen verlaging van het maximum dagloon heeft invloed op de verlofuitkeringen voor jonge ouders, zoals zwangerschaps- en ouderschapsverlof.
+- [ING noemt eisen Milieudefensie ‘onrealistisch en onredelijk’, gang naar rechter volgt](https://fd.nl/bedrijfsleven/1586821/ing-noemt-eisen-milieudefensie-onrealistisch-en-onredelijk-gang-naar-rechter-volgt)
+  > Milieudefensie dagvaardde ING vorig jaar omdat het in haar ogen niet genoeg doet om zijn klimaatafdruk te verlagen. De bank kwam dinsdag met zijn...
+- [Britse werkloosheid stijgt naar hoogste punt sinds coronapandemie](https://fd.nl/economie/1586889/britse-werkloosheid-stijgt-naar-hoogste-punt-sinds-coronapandemie)
+  > Daarnaast neemt het tempo van de loonstijging af. De ruimte voor een renteverlaging is hierdoor groter geworden.
+- [‘Meer dan de helft van alle huishoudens woont te groot’](https://fd.nl/politiek/1586796/meer-dan-de-helft-van-alle-huishoudens-woont-te-groot)
+  > Volgens deskundigen zijn impopulaire maatregelen zoals het afschaffen van de hypotheekrenteaftrek nodig om de woningvoorraad efficiënter te benutten.
 
 ### Meest gelezen
 
