@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-02-2026 om 18:06*
+*Laatst bijgewerkt: 17-02-2026 om 21:01*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [D66 was niet 'in alle scherpte' op hoogte van fouten op cv Van Berkel](https://nos.nl/l/2602896)
-  > D66 was niet op de hoogte van de onwaarheden op het cv van Van Berkel "in de scherpte zoals dat nu naar buiten is gekomen". Dat zei beoogd premier en...
-- [Nog 67 gewonden in ziekenhuizen of revalidatie na brand Crans-Montana](https://nos.nl/l/2602893)
-  > Van de 115 slachtoffers die gewond raakten bij de brand in café Le Constellation worden er nog 67 behandeld in brandwonden- of revalidatiecentra in...
-- [Noodweer verwoest landbouwgrond in Portugal: boeren vrezen voor hun toekomst](https://nos.nl/l/2602891)
-  > Na meer dan twee weken noodweer is het in Portugal rustiger geworden, maar voor boeren begint de onzekerheid nu pas. Het noodweer heeft voor...
-- ['Trump overweegt wapenverkoop aan Taiwan niet door te laten gaan'](https://nos.nl/l/2602890)
-  > President Trump heeft in een gesprek met journalisten aan boord van het regeringsvliegtuig Airforce One gezegd dat toekomstige wapenverkopen aan...
-- [Brussel start onderzoek naar Shein na verkoop van illegale producten](https://nos.nl/l/2602883)
-  > De Europese Commissie stelt een onderzoek in naar modeplatform Shein. Het Chinese bedrijf zou onvoldoende hebben gedaan om de verkoop van illegale...
+- [Negen arrestaties in onderzoek naar fatale mishandeling Franse student](https://nos.nl/l/2602914)
+  > De politie in Lyon heeft negen mensen aangehouden in het onderzoek naar de dood van een Franse student, melden Franse media. De 23-jarige Quentin...
+- [Chemieconcern Bayer wil Roundup-zaken in VS schikken voor miljarden](https://nos.nl/l/2602913)
+  > Duitse chemiereus Bayer heeft in de Verenigde Staten een schikking ingediend om lopende en toekomstige rechtszaken over onkruidverdelger Roundup af...
+- [Ondergelopen kades door hoogwater in Rotterdam en Deventer](https://nos.nl/l/2602909)
+  > In Rotterdam en Vlaardingen zijn vanmiddag kades langs de Maas ondergelopen door hoogwater. Omroep Rijnmond meldt dat de hoogste waterstand in...
+- [Rechter bestraft ontvoering en diefstal bij nep-date op landgoed Hemmen](https://nos.nl/l/2602908)
+  > Drie mannen zijn veroordeeld voor de ontvoering en beroving van een man die dacht dat hij een afspraak had met een vrouw.
+        Een 23-jarige man...
+- ['Nederlanders vliegen in F-16's boven Kyiv', Oekraïne doet bericht af als grap](https://nos.nl/l/2602906)
+  > Nederlandse ex-F-16-piloten maken deel uit van een Oekraïense eenheid die het luchtruim van Kyiv bewaakt, meldt het Franse platform Intelligence...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [1000 euro vanwege een azc in de buurt? Dat is bestuurlijk falen](https://www.ad.nl/commentaar/1000-euro-vanwege-een-azc-in-de-buurt-dat-is-bestuurlijk-falen~ae1425ed/)
-  > Met 1000 euro subsidie voor een azc om de hoek wantrouwt de gemeente Lochem zijn eigen principes, schrijft onze chef nieuws Saskia van Westhreenen.
-- [Koopmeiners trekt stand gelijk voor Juventus tegen Galatasaray](https://www.ad.nl/voetbal/koopmeiners-trekt-stand-gelijk-voor-juventus-tegen-galatasaray~a1226d04/)
-  > De tussenronde in de Champions League begint vanavond om 18.45 uur met Galatasaray - Juventus. Noa Lang hoopt zich met zijn nieuwe club te plaatsen...
-- [Nathalie van Berkel (D66) is niet de eerste die in opspraak kwam om opleiding](https://www.ad.nl/politiek/nathalie-van-berkel-d66-is-niet-de-eerste-die-in-opspraak-kwam-om-opleiding~a7955e21/)
-  > D66-Kamerlid Nathalie van Berkel keert niet terug in de Tweede Kamer. Nadat zij zich maandag al had teruggetrokken als kandidaat-staatssecretaris van...
-- [Rintje Ritsma boos op weggelopen Marcel Bosker: ‘Hij móest hier zijn, maar ik wist niet waar hij was’](https://www.ad.nl/olympische-spelen/rintje-ritsma-boos-op-weggelopen-marcel-bosker-hij-moest-hier-zijn-maar-ik-wist-niet-waar-hij-was~a09d2fd9/)
-  > Opeens was Marcel Bosker weg, voor de troostfinale van de ploegenachtervolging in Milaan. Boos vertrokken, omdat hij gepasseerd was. ,,Ik snap de...
-- [Acteur Shia LaBeouf weer de fout in: opgepakt bij vechtpartij](https://www.ad.nl/show/acteur-shia-labeouf-weer-de-fout-in-opgepakt-bij-vechtpartij~a29f8fc8/)
-  > Shia LaBeouf is dinsdag gearresteerd na een vechtpartij in New Orleans, melden Amerikaanse media. De acteur was volgens Variety tijdens de viering...
+- [Nederlandse bobsleeërs eindigen na goede slotdag in top 10 en voldoen aan eigen doelstelling](https://www.ad.nl/olympische-spelen/nederlandse-bobsleeers-eindigen-na-goede-slotdag-in-top-10-en-voldoen-aan-eigen-doelstelling~a047d752/)
+  > Bobsleeërs Dave Wesselink en Jelen Franjic zijn in de tweemansbob geëindigd op een gedeelde tiende plaats. De Nederlanders stonden na de eerste dag...
+- [Dortmund op comfortabele voorsprong tegen Atalanta, PSG maakt gelijk tegen Monaco in doelpuntrijk duel](https://www.ad.nl/voetbal/dortmund-op-comfortabele-voorsprong-tegen-atalanta-psg-maakt-gelijk-tegen-monaco-in-doelpuntrijk-duel~a87d34fc/)
+  > Drie duels vanavond om 21.00 uur in de tussenronde van de Champions League. Real Madrid, Paris Saint-Germain en Borussia Dortmund in actie. Volg...
+- [NEC morst voor tweede week op rij punten: Sparta houdt Nijmegenaren op gelijkspel in Rotterdam](https://www.ad.nl/voetbal/nec-morst-voor-tweede-week-op-rij-punten-sparta-houdt-nijmegenaren-op-gelijkspel-in-rotterdam~ab22c433/)
+  > Het zondag door sneeuwval gestaakte duel tussen seizoensrevelaties Sparta en NEC is geëindigd in een gelijkspel (1-1). Dat betekende voor NEC opnieuw...
+- [Er sterven meer mensen door drugs, maar die cijfers vertellen lang niet het hele verhaal](https://www.ad.nl/binnenland/er-sterven-meer-mensen-door-drugs-maar-die-cijfers-vertellen-lang-niet-het-hele-verhaal~abaf207e/)
+  > Het aantal geregistreerde drugsdoden stijgt, blijkt uit nieuwe cijfers van het Trimbos-instituut. Maar die cijfers zijn niet absoluut, waarschuwt het...
+- [Je hoort het niet uit de mond van een KNSB-baas, maar op dit teamonderdeel gaat het nooit lukken](https://www.ad.nl/olympische-spelen/je-hoort-het-niet-uit-de-mond-van-een-knsb-baas-maar-op-dit-teamonderdeel-gaat-het-nooit-lukken~a4733c85/)
+  > Niet genoeg getraind. Niet genoeg liefde voor het teamonderdeel. Niet de absolute wereldtoppers in oranje. Niet, niet en nog meer niet. De slotsom...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Bitcoinpot Strategy staat miljarden onder water, maar heeft nog even tijd](https://fd.nl/financiele-markten/1586161/bitcoinpot-strategy-staat-miljarden-onder-water-maar-heeft-nog-even-tijd)
-  > Strategy-topman Michael Saylor heeft zich als een steeds uitbundiger bitcoin-evangelist ontpopt, en is de munt blijven kopen. Maar de koers ervan is...
-- [Bezuinigingen sociale zekerheid raken jonge ouders extra hard](https://fd.nl/politiek/1586878/bezuinigingen-sociale-zekerheid-raken-jonge-ouders-extra-hard)
-  > De voorgenomen verlaging van het maximum dagloon heeft invloed op de verlofuitkeringen voor jonge ouders, zoals zwangerschaps- en ouderschapsverlof.
-- [ING noemt eisen Milieudefensie ‘onrealistisch en onredelijk’, gang naar rechter volgt](https://fd.nl/bedrijfsleven/1586821/ing-noemt-eisen-milieudefensie-onrealistisch-en-onredelijk-gang-naar-rechter-volgt)
-  > Milieudefensie dagvaardde ING vorig jaar omdat het in haar ogen niet genoeg doet om zijn klimaatafdruk te verlagen. De bank kwam dinsdag met zijn...
-- [Britse werkloosheid stijgt naar hoogste punt sinds coronapandemie](https://fd.nl/economie/1586889/britse-werkloosheid-stijgt-naar-hoogste-punt-sinds-coronapandemie)
-  > Daarnaast neemt het tempo van de loonstijging af. De ruimte voor een renteverlaging is hierdoor groter geworden.
-- [‘Meer dan de helft van alle huishoudens woont te groot’](https://fd.nl/politiek/1586796/meer-dan-de-helft-van-alle-huishoudens-woont-te-groot)
-  > Volgens deskundigen zijn impopulaire maatregelen zoals het afschaffen van de hypotheekrenteaftrek nodig om de woningvoorraad efficiënter te benutten.
+- [Britten zoeken bondgenoten tegen ‘Koop Europees’-plan](https://fd.nl/politiek/1586827/britten-zoeken-bondgenoten-tegen-koop-europees-plan)
+  > Het Verenigd Koninkrijk zou bij strikte toepassing van Europees voorstel niet meer mee kunnen doen aan publieke aanbestedingen.
+- [Paramount krijgt een week tijd voor nieuw overnamebod Warner Bros](https://fd.nl/bedrijfsleven/1586826/paramount-krijgt-een-week-tijd-voor-nieuw-overnamebod-warner-bros)
+  > Paramount heeft een week om opnieuw met Warner Bros te praten.
+- [Bayer bereikt miljardenschikking in glyfosaatclaims](https://fd.nl/bedrijfsleven/1586824/bayer-bereikt-miljardenschikking-in-glyfosaatclaims)
+  > Al jaren zucht Bayer onder miljardenclaims vanwege het middel Roundup. Het bedrijf trekt $7,25 mrd uit om voor een periode van 21 jaar bestaande en...
+- [Palantir verplaatst hoofdkantoor naar Miami](https://fd.nl/bedrijfsleven/1586895/palantir-verplaatst-hoofdkantoor-naar-miami)
+  > Techbedrijf Palantir verruilt Denver voor Miami.
+- [Rechter moet grenzen DNB bepalen](https://fd.nl/opinie/1586813/rechter-moet-grenzen-dnb-bepalen)
+  > DNB heeft in het dossier Conservatrix zo veel steken laten vallen, dat het goed is dat de Ondernemingskamer zich hierover buigt. De rechterlijke...
 
 ### Meest gelezen
 
