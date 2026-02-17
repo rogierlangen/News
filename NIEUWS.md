@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-02-2026 om 23:01*
+*Laatst bijgewerkt: 17-02-2026 om 05:14*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Politiewagen komt bij achtervolging vast te zitten op rotonde](https://nos.nl/l/2602795)
+  > Bij een achtervolging in de omgeving van Leiden is een politiewagen op een rotonde beland. Dat gebeurde gisteravond in Zoeterwoude.
+        Agenten...
+- [Diplomatieke rel tussen België en VS na tirade ambassadeur](https://nos.nl/l/2602794)
+  > De Belgische minister van Buitenlandse Zaken heeft de Amerikaanse ambassadeur op het matje geroepen. Ambassadeur Bill White had zich online...
+- [Scooterrijder dood bij botsing in Beek en Donk](https://nos.nl/l/2602793)
+  > In het Brabantse Beek en Donk is een scooterrijder bij een botsing om het leven gekomen. De vrouw werd rond 21.30 uur aangereden door een auto op de...
+- [Vermoedelijk nooit geziene foto’s van executie Grieken in WOII duiken online op](https://nos.nl/l/2602792)
+  > Bij een online veiling zijn foto's opgedoken van de vermoedelijke executie van zo'n 200 Grieken in Athene in de Tweede Wereldoorlog. De fusillade van...
 - [Tekort aan reanimatievrijwilligers, veel mensen ten onrechte bang voor fouten](https://nos.nl/l/2602791)
   > Een op de vier Nederlanders heeft op dit moment een geldig reanimatiecertificaat om burgerhulpverlener te worden, maar slechts 5 procent van hen...
-- [Gevonden olifantenbot in Spanje mogelijk bewijs voor tocht Hannibal door Europa](https://nos.nl/l/2602787)
-  > Een olifantenbot dat archeologen in het zuiden van Spanje hebben gevonden, toont mogelijk aan dat ruim 2000 jaar geleden een horde krijgsolifanten...
-- [21-jarige Oostenrijker aangeklaagd voor voorbereiden aanslag op Taylor Swift-concert](https://nos.nl/l/2602776)
-  > Een 21-jarige man uit Oostenrijk is aangeklaagd voor het voorbereiden van een terroristische aanslag op een concert van Taylor Swift in Wenen in...
-- [Schrijversbond boos over tarieven streamingdiensten: '8,5 cent per beluisterd boek'](https://nos.nl/l/2602770)
-  > Ruim 200 euro. Dat is wat dichter en schrijver Lieke Marsman heeft overgehouden aan de meer dan 500.000 minuten (bijna een jaar) die er naar haar...
-- [Trein bij Oudewater ontruimd na brand, 120 mensen geëvacueerd](https://nos.nl/l/2602768)
-  > In de buurt van Oudewater (nabij Woerden) is een trein ontruimd nadat er brand was uitgebroken. Zo'n 120 reizigers zijn geëvacueerd. Niemand raakte...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Familieleden van Nancy Guthrie zijn geen verdachten in ontvoeringszaak](https://www.ad.nl/buitenland/familieleden-van-nancy-guthrie-zijn-geen-verdachten-in-ontvoeringszaak~ad2c8dbc/)
-  > De familieleden van Nancy Guthrie zijn geen verdachten in haar ontvoeringszaak. De lokale sheriff heeft dit maandag verklaard, ruim drie weken na de...
-- [Belarussische oppositieleidster waarschuwt voor kernraketten aan EU-grens: ‘Alles wijst op escalatie’](https://www.ad.nl/buitenland/belarussische-oppositieleidster-waarschuwt-voor-kernraketten-aan-eu-grens-alles-wijst-op-escalatie~a4c3b195/)
-  > Volgens de Belarussische oppositieleidster in ballingschap Svetlana Tichanovskaja ‘wijst alles op een escalatie’, nu Rusland bezig is met het...
-- [FC Barcelona en Frenkie de Jong lopen koppositie mis na pijnlijke nederlaag tegen Girona](https://www.ad.nl/voetbal/fc-barcelona-en-frenkie-de-jong-lopen-koppositie-mis-na-pijnlijke-nederlaag-tegen-girona~a3e877fc/)
-  > FC Barcelona heeft zijn tweede nederlaag op rij geleden. Vier dagen na de 4-0 bij Atlético Madrid in het Spaanse bekertoernooi verloor de ploeg van...
-- [Medaillespiegel Olympische Winterspelen 2026 | Nederland blijft in de top meedoen dankzij vierde shorttrackgoud](https://www.ad.nl/olympische-spelen/medaillespiegel-olympische-winterspelen-2026-nederland-blijft-in-de-top-meedoen-dankzij-vierde-shorttrackgoud~a2772ec34/)
-  > Hoeveel gouden medailles gaat Nederland pakken tijdens de Olympische Winterspelen 2026 in Milaan en Cortina d’Ampezzo? Hieronder kun je het...
-- [Oeigoerse activist hardhandig aangepakt bij viering Chinees Nieuwjaar in Haags stadhuis: ‘Maakt mij zeer verdrietig](https://www.ad.nl/binnenland/oeigoerse-activist-hardhandig-aangepakt-bij-viering-chinees-nieuwjaar-in-haags-stadhuis-maakt-mij-zeer-verdrietig~a79082d8/)
-  > Bij de landelijke viering van het Chinese Nieuwjaar op het stadhuis van Den Haag is de Oeigoerse demonstrant Abdurehim Gheni uit Amersfoort...
+- [Wat je als koper moet weten over wonen op veen: ‘Misschien moet je elke paar jaar je tuin ophogen’](https://www.ad.nl/binnenland/wat-je-als-koper-moet-weten-over-wonen-op-veen-misschien-moet-je-elke-paar-jaar-je-tuin-ophogen~a4d7bded/)
+  > Veel nieuwbouwwijken in Nederland staan op slappe veengrond en dat kan grote gevolgen hebben: tuinen, straten en soms riolen zakken langzaam weg. In...
+- [Verstoten baby-aapje Punch uit Japan verovert harten met zijn pluchen vriendje](https://www.ad.nl/buitenland/verstoten-baby-aapje-punch-uit-japan-verovert-harten-met-zijn-pluchen-vriendje~a2c1d4d7/)
+  > Het baby-aapje Punch zorgt voor hartverwarmende en tegelijk treurige beelden in een dierentuin in Tokio, Japan. Het jonge dier werd verstoten en...
+- [Dit bedrijf denkt dat er plek is voor honderd mini-kerncentrales in Nederland](https://www.ad.nl/binnenland/dit-bedrijf-denkt-dat-er-plek-is-voor-honderd-mini-kerncentrales-in-nederland~a8a64dfd/)
+  > In Nederland is plek voor honderd kleine kerncentrales. Die zouden een uitkomst zijn voor datacenters en industriële bedrijven die veel stroom...
+- [Programma Olympische Winterspelen | Nederland maakt volop kans op medailles bij ploegenachtervolging, ook bobsleeërs in actie](https://www.ad.nl/olympische-spelen/programma-olympische-winterspelen-nederland-maakt-volop-kans-op-medailles-bij-ploegenachtervolging-ook-bobsleeers-in-actie~a895a7e25/)
+  > Op de Olympische Spelen in Milaan en Cortina is het tijd voor een (in Nederland) veelbesproken onderdeel: de ploegenachtervolging. Ook komen...
+- [Experts VN: hoofd OM Guatemala was mogelijk betrokken bij illegale adopties inheemse kinderen](https://www.ad.nl/buitenland/experts-vn-hoofd-om-guatemala-was-mogelijk-betrokken-bij-illegale-adopties-inheemse-kinderen~a6a3e879/)
+  > Deskundigen van de Verenigde Naties hebben opgeroepen tot een onderzoek naar de procureur-generaal van Guatemala, María Consuelo Porras. Zij zou...
 
 ### Meest gelezen
 
@@ -46,15 +47,16 @@
 
 ### Laatste nieuws
 
-- [Odido bewaart klantgegevens langer dan afgesproken, blijkt na datalek](https://fd.nl/bedrijfsleven/1586712/odido-bewaart-klantgegevens-langer-dan-afgesproken-blijkt-na-datalek)
-  > Het praktijkgeval staat niet op zich, zegt IT-advocaat Daniëlle Molenkamp. ‘We zien vaker in organisaties dat er geen goed proces voor het hanteren...
-- [Vakbond waarschuwt Volkswagen na bericht over nieuwe sanering](https://fd.nl/bedrijfsleven/1586720/vakbond-waarschuwt-volkswagen-na-bericht-over-nieuwe-sanering)
-  > De Duitse autoproducent zou volgens mediaberichten broeden op sluiting van fabrieken. Het bedrijf stelt in reactie alleen dat het vasthoudt aan...
-- [Europa moet alerter zijn op ‘diepe’ culturele kloof met VS](https://fd.nl/opinie/1586695/europa-moet-alerter-zijn-op-diepe-culturele-kloof-met-vs)
-  > De Amerikaanse buitenlandminister Rubio pleit voor een terugkeer van de ‘westerse wereldhegemonie’. De VS moeten weer vol voor het eigenbelang gaan....
-- [Nachtkijkermaker Theon rekent op forse omzetgroei in 2026](https://fd.nl/financiele-markten/1586719/nachtkijkermaker-theon-rekent-op-forse-omzetgroei-in-2026)
-- [Het coalitieakkoord: te veel overheid, te weinig markt? ‘Een pot geld kan helpen’](https://fd.nl/politiek/1586800/het-coalitieakkoord-te-veel-overheid-te-weinig-markt-een-pot-geld-kan-soms-helpen)
-  > Het coalitieakkoord is opgesteld door het CDA en de twee liberale partijen D66 en VVD. Maar het valt experts op dat de overheid veel regie neemt.
+- [Kinderen hoeven zich niet neer te leggen bij onterving](https://fd.nl/samenleving/1586435/kinderen-hoeven-zich-niet-neer-te-leggen-bij-onterving)
+  > Het gebeurt steeds vaker dat ouders hun kinderen onterven. De meeste onterfde kinderen accepteren dit niet en eisen hun legitieme portie op. Dat is...
+- [Misschien beleg jij wel in opsporing-tools van Trump's immigratiedienst ICE](https://fd.nl/economie/1586716/misschien-beleg-jij-wel-inopsporing-toolsvantrump-simmigratiedienstice)
+  > Vandaag in Dagkoers: Palantir zit in meerdere ESG-ETF’s, Odido lijkt zijn eigen privacy beleid niet te hebben nageleefd bij het datalek van vorige...
+- [Vertrouwen](https://fd.nl/opinie/1586801/vertrouwen)
+  > Als kabinetslid kom je vroeg of laat onder een vergrootglas te liggen. Zo ook Nathalie van Berkel, tot gisteravond beoogd staatssecretaris van...
+- [Softwarebedrijf Paragin Group in Britse handen](https://fd.nl/tech-en-innovatie/1586693/softwarebedrijf-paragin-group-in-britse-handen)
+  > Het Nijkerkse Paragin Group, leverancier van software voor educatie, is in handen gekomen van het Britse private-equitybedrijf ECI Partners.
+- [Rubio poetst breuk met Europa niet weg](https://fd.nl/opinie/1586682/rubio-poetst-breuk-met-europa-niet-weg)
+  > Op de Veiligheidsconferentie in München klonk geen verzoening, maar verwijdering. Wie meende dat Marco Rubio de breuk met Europa kwam gladstrijken,...
 
 ### Meest gelezen
 
