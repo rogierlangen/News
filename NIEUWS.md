@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-02-2026 om 14:36*
+*Laatst bijgewerkt: 18-02-2026 om 18:00*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Spaanse politie arresteert man (20) die luxe hotels boekte voor één cent](https://nos.nl/l/2602999)
-  > Dat hotelovernachtingen steeds duurder worden, wist ook een 20-jarige man in Spanje. Hij omzeilde volgens de Spaanse politie het betalingssysteem van...
-- [NVWA krijgt ruim 100 meldingen over teruggeroepen babyvoeding Nestlé](https://nos.nl/l/2602998)
-  > De Nederlandse Voedsel- en Warenautoriteit (NVWA) heeft 125 meldingen binnengekregen over teruggeroepen babyvoeding. De meldingen zijn van...
-- [VodafoneZiggo als Ziggo Group volgend jaar naar de beurs](https://nos.nl/l/2602991)
-  > De Amerikaanse telecomgigant Liberty Global neemt het Nederlandse VodafoneZiggo in zijn geheel over. Liberty Global had al de helft van de aandelen...
-- [Amerikaanse ambassadeur vraagt Belgische regering om uitspraken parlementslid te veroordelen](https://nos.nl/l/2602985)
-  > De Amerikaanse ambassadeur in België, Bill White, heeft de Belgische regering gevraagd om Conner Rousseau tot de orde te roepen. Aanleiding is een...
-- [Twaalf doden na opnieuw een explosie bij vuurwerkwinkel in China](https://nos.nl/l/2602979)
-  > Een explosie in een vuurwerkwinkel in Centraal-China heeft twaalf levens geëist. Hulpverleners rukten uit en blusten de brand die na de ontploffing...
+- [Meer reizigers naar Breda voor carnaval, gemeenten kijken terug op positieve viering](https://nos.nl/l/2603032)
+  > Carnaval lijkt dit jaar voornamelijk gemoedelijk en gezellig te zijn verlopen. Veel gemeenten laten weten dat er geen noemenswaardige incidenten zijn...
+- [De ramadan begint en dat is in deze Utrechtse winkelstraat goed te zien](https://nos.nl/l/2603026)
+  > Voor moslims start vandaag of morgen de ramadan, de vastenmaand. De komende weken, die in het teken staan van reflectie, saamhorigheid en...
+- [Tientallen doden door koolstofmonoxidevergiftiging in illegale mijn Nigeria](https://nos.nl/l/2603019)
+  > In Nigeria zijn zeker 37 mijnwerkers in een illegale mijnbouwput door koolstofmonoxidevergiftiging om het leven gekomen, meldt persbureau Reuters op...
+- [Wegen (deels) dicht door noodreparaties vorstschade](https://nos.nl/l/2603017)
+  > Op meerdere plekken in het land is Rijkswaterstaat al dagenlang bezig met het herstel van vorstschade. Zo zijn op de A2 bij Abcoude twee rijstroken...
+- [Vermoedelijke zelfdoding 80-plussers schokt vakantiepark bij Roermond](https://nos.nl/l/2603013)
+  > De vondst van de lichamen van twee oudere mensen die vermoedelijk zichzelf om het leven hebben gebracht, brengt een schok teweeg op een vakantiepark...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Spaanse hacker omzeilt betalingssysteem en slaapt voor 1 cent in luxe hotel Madrid](https://www.ad.nl/buitenland/spaanse-hacker-omzeilt-betalingssysteem-en-slaapt-voor-1-cent-in-luxe-hotel-madrid~a01c2323/)
-  > De Spaanse politie heeft een man van 20 opgepakt die een boekingssite gehackt zou hebben en zo dure hotels kon reserveren voor 1 cent per nacht. Op...
-- [Teqball in Tubeke: Feyenoord deelt eerste beelden van Raheem Sterling met de selectie](https://www.ad.nl/voetbal/teqball-in-tubeke-feyenoord-deelt-eerste-beelden-van-raheem-sterling-met-de-selectie~af7a5207/)
-  > Het korte trainingskamp van Feyenoord in Tubeke, op het trainingscomplex van de Belgische voetbalbond, zit erop. Raheem Sterling leerde zijn nieuwe...
-- [Timothée Chalamet pocht en pingpongt alsof zijn leven ervan afhangt in manische Marty Supreme](https://www.ad.nl/show/timothee-chalamet-pocht-en-pingpongt-alsof-zijn-leven-ervan-afhangt-in-manische-marty-supreme~ad118544/)
-  > In het manische meesterwerk Marty Supreme bluft en bedriegt Timothée Chalamet zich in het New York van de jaren 50 een weg naar de tafeltennistop. De...
-- [FC Dordrecht legt Mica Pinto vast, Excelsior haalt geblesseerde verdediger](https://www.ad.nl/voetbal/fc-dordrecht-legt-mica-pinto-vast-excelsior-haalt-geblesseerde-verdediger~a79d4309/)
-  > De transfermarkt in Nederland en de grootste competities is gesloten. Er zijn nog slechts een paar landen waar spelers naartoe kunnen. Ook zullen er...
-- [Oekraïense onderhandelaar meldt ‘vooruitgang’ in vredesoverleg met Rusland](https://www.ad.nl/buitenland/oekraiense-onderhandelaar-meldt-vooruitgang-in-vredesoverleg-met-rusland~adfb97be/)
-  > De Oekraïense hoofdonderhandelaar heeft zich positief uitgelaten over het overleg met Rusland en de Verenigde Staten in Genève. ‘Er is vooruitgang,...
+- [Newcastle razendsnel op voorsprong bij Qarabag, Inter naar Noorwegen](https://www.ad.nl/voetbal/newcastle-razendsnel-op-voorsprong-bij-qarabag-inter-naar-noorwegen~aad9cfe9/)
+  > Vier duels vanavond in de tussenronde van de Champions League. Om 18.45 uur krijgt Qarabag Newcastle United op bezoek. Vanaf 21.00 uur komen Atlético...
+- [Grootschalig onderzoek: was Epsteins ranch ingericht als geheime babyfabriek?](https://www.ad.nl/buitenland/grootschalig-onderzoek-was-epsteins-ranch-ingericht-als-geheime-babyfabriek~a640a905/)
+  > Jeffrey Epstein had het angstaanjagende plan om op zijn ranch in New Mexico een zogeheten babyfabriek op te tuigen om een ‘superras’ voort te...
+- [Regisseur en acteur Tom Noonan op 74-jarige leeftijd overleden](https://www.ad.nl/show/regisseur-en-acteur-tom-noonan-op-74-jarige-leeftijd-overleden~a598b16f/)
+  > De Amerikaanse regisseur en acteur Tom Noonan is op 74-jarige leeftijd overleden. Dat maakte collega-filmmaker Fred Dekker woensdag bekend via...
+- [‘Zeker 21 Nederlanders dienden vorig jaar vrijwillig in Israëlisch leger’](https://www.ad.nl/buitenland/zeker-21-nederlanders-dienden-vorig-jaar-vrijwillig-in-israelisch-leger~a395cdaf/)
+  > Zeker 21 Nederlanders zijn in de afgelopen drie jaar vanuit Nederland naar Israël gegaan om zich daar vrijwillig aan te sluiten bij de Israëlische...
+- [Drie historische panden na explosies in Utrecht niet meer te redden: ze worden gesloopt](https://www.ad.nl/utrecht/drie-historische-panden-na-explosies-in-utrecht-niet-meer-te-redden-ze-worden-gesloopt~ab4f203e4/)
+  > Door de verwoestende explosie en brand in de Visscherssteeg in de binnenstad van Utrecht vorige maand zijn drie panden onherstelbaar beschadigd. Ze...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaanse ambassadeur in België ontstemd over Hitlervergelijking](https://fd.nl/politiek/1586936/amerikaanse-ambassadeur-in-belgie-ontstemd-over-hitlervergelijking)
-  > De Belgische parlementariër Conner Rousseau vergeleek de Amerikaanse president met de nazileider. De ambassadeur heeft de Belgische regering...
-- [Liberty Global koopt belang van Vodafone in VodafoneZiggo](https://fd.nl/bedrijfsleven/1586862/liberty-global-koopt-belang-van-vodafone-in-vodafoneziggo)
-  > Het Amerikaanse kabelbedrijf wil VodafoneZiggo in een juridische eenheid onderbrengen met zijn Belgische dochter Telenet, onder de naam Ziggo Group....
-- [In het Oost-Duitse Leuna komt alle misère van de chemie samen](https://fd.nl/bedrijfsleven/1586142/in-het-oost-duitse-leuna-komt-alle-misere-van-de-chemie-samen)
-  > Chemiecomplex Leuna kreeg recentelijk twee zware klappen te verwerken en de toekomst ziet er somber uit, met name door de dure energie.
-- [Hits op bestelling: hoe iedereen met een laptop een catchy popsong kan maken](https://fd.nl/tech-en-innovatie/1586207/hits-op-bestelling-hoe-iedereen-met-een-laptop-een-catchy-popsong-kan-maken)
-  > Dankzij AI kan werkelijk iedereen songs maken die zo op Spotify kunnen. Als je het professioneel aanpakt, doemt zelfs een verdienmodel op.
-- [De innige tango tussen mens en chatbot](https://fd.nl/opinie/1586704/de-innige-tango-tussen-mens-en-chatbot)
-  > Nu we steeds meer tijd doorbrengen met AI bestaat het gevaar dat de machine de afstand tot ons ‘materiaal’ vergroot, schrijft FD-columnist Roland van...
+- [Onderhandelingen Oekraïne en Rusland zonder doorbraak afgerond](https://fd.nl/politiek/1586871/onderhandelingen-oekraine-en-rusland-zonder-doorbraak-afgerond)
+  > De onderhandelingen tussen Oekraïne en Rusland in Genève zijn afgerond.
+- [Moderna mag nieuw griepvaccin toch testen](https://fd.nl/bedrijfsleven/1586945/moderna-mag-nieuw-griepvaccin-toch-testen)
+  > De Amerikaanse toezichthouder was het eerder oneens over de samenstelling van de testgroepen. De testen waren daarom stilgelegd.
+- [LinkedIn-profiel doorlichten? Lang niet alle screeningbureaus doen dat](https://fd.nl/bedrijfsleven/1586859/linkedin-profiel-doorlichten-lang-niet-alle-screeningbureaus-doen-dat)
+  > De socialemediaprofielen van de beoogde staatssecretaris Nathalie van Berkel (D66) waren vooraf niet gescreend. Voor een politieke functie had dat...
+- [ASR: arbeidsongeschiktheids­plannen kabinet zijn kostbaar en ineffectief](https://fd.nl/bedrijfsleven/1586856/asr-arbeidsongeschiktheidsplannen-kabinet-zijn-kostbaar-en-ineffectief)
+  > De bescherming van mensen die absoluut niet meer kunnen meedoen op de arbeidsmarkt, is ‘een van de belangrijkste pijlers’ in ons stelsel, zegt...
+- [Tekort aan geheugenchips raakt ook Nederlandse techbedrijven](https://fd.nl/bedrijfsleven/1586931/tekort-aan-geheugenchips-raakt-ook-nederlandse-techbedrijven)
+  > Een tekort aan geheugenchips bezorgt Nederlandse technologiebedrijven hoofdbrekens. De prijzen lopen op en de levertijden zijn onvoorspelbaar.
 
 ### Meest gelezen
 
