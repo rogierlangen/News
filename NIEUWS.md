@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-02-2026 om 23:04*
+*Laatst bijgewerkt: 18-02-2026 om 05:16*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Eerste Europese commerciële vlucht geland in Venezuela sinds ontvoering Maduro](https://nos.nl/l/2602932)
+  > Voor het eerst sinds de ontvoering van de Venezolaanse president Maduro is er een Europese commerciële vlucht geland in Venezuela. Het gaat om een...
+- [Nederlander in Duitse trein opgepakt met 100.000 euro contant geld](https://nos.nl/l/2602931)
+  > De douane in het Oost-Duitse Dresden heeft in een trein een Nederlander aangehouden die meer dan 100.000 euro contant geld bij zich had. Hij zei dat...
+- [Dronken taxichauffeur Eindhoven vervoert tijdens carnaval passagiers in kofferbak](https://nos.nl/l/2602930)
+  > Bij een grote verkeerscontrole in het centrum van Eindhoven is een dronken taxichauffeur staande gehouden die acht mensen vervoerde. Drie van hen...
+- [Elf doden bij nieuwe Amerikaanse aanvallen op vermeende drugsbootjes](https://nos.nl/l/2602929)
+  > Het Amerikaanse leger heeft opnieuw drie vermeende drugsboten gebombardeerd in Latijns-Amerikaanse wateren. Daarbij zijn elf doden gevallen. Daarmee...
 - [Vijf tieners dood bij brand in appartementencomplex Spanje](https://nos.nl/l/2602926)
   > Bij een brand in een appartementencomplex in het Spaanse Manlleu, 60 kilometer ten noorden van Barcelona, zijn maandagavond vijf tieners omgekomen....
-- [Onduidelijkheid bij Nederlandse moslims over begin ramadan](https://nos.nl/l/2602923)
-  > Voor veel moslims in de wereld begint morgen de ramadan. De vastenmaand begint na het verschijnen van de dunne sikkel van de nieuwe maan aan de...
-- [Negen arrestaties in onderzoek naar fatale mishandeling Franse student](https://nos.nl/l/2602914)
-  > De politie in Lyon heeft negen mensen aangehouden in het onderzoek naar de dood van een Franse student, melden Franse media. De 23-jarige Quentin...
-- [Chemieconcern Bayer wil Roundup-zaken in VS schikken voor miljarden](https://nos.nl/l/2602913)
-  > Duitse chemiereus Bayer heeft in de Verenigde Staten een schikking ingediend om lopende en toekomstige rechtszaken over onkruidverdelger Roundup af...
-- [Ondergelopen kades door hoogwater in Rotterdam en Deventer](https://nos.nl/l/2602909)
-  > In Rotterdam en Vlaardingen zijn vanmiddag kades langs de Maas ondergelopen door hoogwater. Omroep Rijnmond meldt dat de hoogste waterstand in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Medicijn tegen alzheimer blijkt toch geen doorbraak: vergoeding blijft uit](https://www.ad.nl/gezond/medicijn-tegen-alzheimer-blijkt-toch-geen-doorbraak-vergoeding-blijft-uit~a3363cca/)
-  > Jubelend werd het alzheimermedicijn lecanemab ontvangen. Maar na eerdere twijfels oordeelt Zorginstituut Nederland nu definitief dat lecanemab niet...
-- [Vijf tieners omgekomen bij brand op zolder van gebouw in Spanje](https://www.ad.nl/buitenland/vijf-tieners-omgekomen-bij-brand-op-zolder-van-gebouw-in-spanje~af1b67d24/)
-  > Zeker vijf mensen zijn om het leven gekomen bij een brand in een appartementencomplex in Catalonië. Nog eens vier anderen raakten gewond, melden de...
-- [Politie arresteert gewapende man die op het Capitool afstormde](https://www.ad.nl/buitenland/politie-arresteert-gewapende-man-die-op-het-capitool-afstormde~a65d58f5d/)
-  > In Washington is een 18-jarige man opgepakt die met een geladen vuurwapen richting het Capitool, het Amerikaanse parlementsgebouw, rende. Het motief...
-- [Noa Lang zet Istanboel in vuur en vlam met twee goals tegen Juventus: ‘Deze trainer geeft mij wél vertrouwen’](https://www.ad.nl/voetbal/noa-lang-zet-istanboel-in-vuur-en-vlam-met-twee-goals-tegen-juventus-deze-trainer-geeft-mij-wel-vertrouwen~a1226d04/)
-  > De populariteitsmeter van Noa Lang in Istanboel zal na deze avond ongetwijfeld recordhoogten bereiken. De aanvaller was van grote waarde voor...
-- [Real Madrid neemt dankzij prachtige goal Vinícius revanche op Benfica in verhit duel, rood voor José Mourinho](https://www.ad.nl/voetbal/real-madrid-neemt-dankzij-prachtige-goal-vinicius-revanche-op-benfica-in-verhit-duel-rood-voor-jose-mourinho~a87d34fc/)
-  > Real Madrid heeft revanche genomen op Benfica voor de spectaculaire nederlaag in de competitiefase van de Champions League. In een verhitte...
+- [Studentenpartijen slaan alarm: ‘Kamer vinden is onmogelijke opgave geworden’](https://www.ad.nl/binnenland/studentenpartijen-slaan-alarm-kamer-vinden-is-onmogelijke-opgave-geworden~ad9b69a1/)
+  > Steeds vaker blijkt het vinden van een studentenkamer een onmogelijke opgave. Lijsttrekkers van studentenpartijen in Leiden, Utrecht, Groningen en...
+- [Verstoten aapje Punch uit Japan ruilt zijn knuffel in voor echte vriendjes](https://www.ad.nl/buitenland/verstoten-aapje-punch-uit-japan-ruilt-zijn-knuffel-in-voor-echte-vriendjes~a953b609f/)
+  > Het verhaal van het verstoten baby-aapje Punch krijgt een happy end. De kleine makaak uit een Japanse dierentuin vertederde menig kijker dankzij...
+- [85 landen veroordelen Israëlische plannen Westelijke Jordaanoever](https://www.ad.nl/buitenland/85-landen-veroordelen-israelische-plannen-westelijke-jordaanoever~a395cdaf/)
+  > In een gezamenlijke verklaring veroordelen 85 VN-lidstaten, waaronder Nederland, de Israëlische plannen om de greep op de bezette Westelijke...
+- [Programma Olympische Spelen | Jens van ’t Wout gaat voor unieke hattrick, ook vrouwen maken kans op shorttrackgoud](https://www.ad.nl/olympische-spelen/programma-olympische-spelen-jens-van-t-wout-gaat-voor-unieke-hattrick-ook-vrouwen-maken-kans-op-shorttrackgoud~aeef8bc5/)
+  > Nederland maakt vandaag twee keer kans op een medaille op de Olympische Winterspelen. Op de shorttrackbaan in Milaan komen de mannen in actie op de...
+- [16 skiërs getroffen door lawine in VS, nog meerdere vermist](https://www.ad.nl/buitenland/16-skiers-getroffen-door-lawine-in-vs-nog-meerdere-vermist~a6bc8b9e/)
+  > Tien skiërs worden vermist nadat ze getroffen werden door een lawine in de buurt van Lake Tahoe in de Amerikaanse staat Californië. Door een zware...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Norwegian Cruises smaakmaker op vlakke beurs](https://fd.nl/financiele-markten/1586925/norwegian-cruises-smaakmaker-op-vlakke-beurs)
-  > Beleggers reageren op het nieuws dat de activistische investeerder Elliott Investment Management een belang heeft genomen in de cruisemaatschappij.
-- [Britten zoeken bondgenoten tegen ‘Koop Europees’-plan](https://fd.nl/politiek/1586827/britten-zoeken-bondgenoten-tegen-koop-europees-plan)
-  > Het Verenigd Koninkrijk zou bij strikte toepassing van Europees voorstel niet meer mee kunnen doen aan publieke aanbestedingen.
-- [Paramount krijgt een week tijd voor nieuw overnamebod Warner Bros](https://fd.nl/bedrijfsleven/1586826/paramount-krijgt-een-week-tijd-voor-nieuw-overnamebod-warner-bros)
-  > Paramount heeft een week om opnieuw met Warner Bros te praten.
-- [Bayer bereikt miljardenschikking in glyfosaatclaims](https://fd.nl/bedrijfsleven/1586824/bayer-bereikt-miljardenschikking-in-glyfosaatclaims)
-  > Al jaren zucht Bayer onder miljardenclaims vanwege het middel Roundup. Het bedrijf trekt $7,25 mrd uit om voor een periode van 21 jaar bestaande en...
-- [Palantir verplaatst hoofdkantoor naar Miami](https://fd.nl/bedrijfsleven/1586895/palantir-verplaatst-hoofdkantoor-naar-miami)
-  > Techbedrijf Palantir verruilt Denver voor Miami.
+- [Investeerder Maasbert Schouten: ‘Een Britse voetbalclub, dat lijkt me leuk’](https://fd.nl/financiele-markten/1586367/investeerder-maasbert-schouten-een-britse-voetbalclub-dat-lijkt-me-leuk)
+  > Maasbert Schouten ging onderuit als agressieve kredietboer en voelde zich bespot als ‘oetlul’. Eerzucht bracht de oud-eigenaar van Vitesse financieel...
+- [De Paus geeft zijn zegen aan ASML & big tech](https://fd.nl/economie/1586893/de-paus-geeft-zijn-zegen-aan-asml-big-tech)
+  > Vandaag in de FD Dagkoers podcast: een verbod op cryptogoksite Polymarket, de mogelijke terugkeer van verplicht contant betalen en beleggen met de...
+- [Poolse exodus](https://fd.nl/opinie/1586890/poolse-exodus)
+  > Nederland moet zich langzamerhand zorgen gaan maken over te weinig, in plaats van te veel arbeidsmigranten.
+- [Marges in wegvervoer mogelijk onder druk door vrachtwagenheffing](https://fd.nl/bedrijfsleven/1586883/marges-in-wegvervoer-mogelijk-onder-druk-door-vrachtwagenheffing)
+  > De kosten in het wegvervoer nemen volgens ING Bank door de heffing met 7% tot 8% toe. Doorberekening aan opdrachtgevers zal ‘een uitdaging’ worden.
+- [Hoe de vleiende taal van ChatGPT mensen juist intolerant maakt](https://fd.nl/opinie/1586809/hoe-de-vleiende-taal-van-chatgpt-mensen-juist-intolerant-maakt)
+  > In de stiltecoupé was de empathie deze week ver te zoeken. Komt dat door chronische stress of doorgeslagen individualisme? Of misschien toch door...
 
 ### Meest gelezen
 
