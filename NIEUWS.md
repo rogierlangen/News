@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-02-2026 om 05:16*
+*Laatst bijgewerkt: 18-02-2026 om 08:02*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Eerste Europese commerciële vlucht geland in Venezuela sinds ontvoering Maduro](https://nos.nl/l/2602932)
-  > Voor het eerst sinds de ontvoering van de Venezolaanse president Maduro is er een Europese commerciële vlucht geland in Venezuela. Het gaat om een...
-- [Nederlander in Duitse trein opgepakt met 100.000 euro contant geld](https://nos.nl/l/2602931)
-  > De douane in het Oost-Duitse Dresden heeft in een trein een Nederlander aangehouden die meer dan 100.000 euro contant geld bij zich had. Hij zei dat...
-- [Dronken taxichauffeur Eindhoven vervoert tijdens carnaval passagiers in kofferbak](https://nos.nl/l/2602930)
-  > Bij een grote verkeerscontrole in het centrum van Eindhoven is een dronken taxichauffeur staande gehouden die acht mensen vervoerde. Drie van hen...
-- [Elf doden bij nieuwe Amerikaanse aanvallen op vermeende drugsbootjes](https://nos.nl/l/2602929)
-  > Het Amerikaanse leger heeft opnieuw drie vermeende drugsboten gebombardeerd in Latijns-Amerikaanse wateren. Daarbij zijn elf doden gevallen. Daarmee...
-- [Vijf tieners dood bij brand in appartementencomplex Spanje](https://nos.nl/l/2602926)
-  > Bij een brand in een appartementencomplex in het Spaanse Manlleu, 60 kilometer ten noorden van Barcelona, zijn maandagavond vijf tieners omgekomen....
+- [President Peru na vier maanden afgezet, land wacht achtste president in tien jaar](https://nos.nl/l/2602942)
+  > Het parlement van Peru heeft opnieuw een president de deur gewezen. Vier maanden na zijn beëdiging is interim-president José Jerí afgezet omdat hij...
+- [Zorginstituut: medicijn tegen alzheimer werkt niet goed genoeg voor vergoeding](https://nos.nl/l/2602940)
+  > Het medicijn lecanemab tegen beginnende alzheimer werkt niet goed genoeg voor patiënten, concludeert het Zorginstituut. Mensen met de ziekte van...
+- [Zes skiërs wachten op redding na lawine in Californië, tien anderen vermist](https://nos.nl/l/2602936)
+  > In de bergen van de Amerikaanse staat Californië proberen reddingswerkers zes skiërs te bereiken die in onherbergzaam gebied verblijven nadat zij...
+- [Agressie in de zorg blijft ondanks maatregelen groot probleem](https://nos.nl/l/2602935)
+  > Ondanks allerlei initiatieven voor het terugdringen van agressie in de zorg blijft het onverminderd vaak voorkomen. Bijna zes van de tien medewerkers...
+- [Wekdienst 18/2: Start ramadan • Medaillekansen Nederland Olympische Winterspelen](https://nos.nl/l/2602934)
+  > Goedemorgen! Voor veel moslims begint vandaag de Ramadan en opnieuw zijn er medaillekansen voor Nederland op de Olympische Winterspelen. 
+       ...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Studentenpartijen slaan alarm: ‘Kamer vinden is onmogelijke opgave geworden’](https://www.ad.nl/binnenland/studentenpartijen-slaan-alarm-kamer-vinden-is-onmogelijke-opgave-geworden~ad9b69a1/)
-  > Steeds vaker blijkt het vinden van een studentenkamer een onmogelijke opgave. Lijsttrekkers van studentenpartijen in Leiden, Utrecht, Groningen en...
-- [Verstoten aapje Punch uit Japan ruilt zijn knuffel in voor echte vriendjes](https://www.ad.nl/buitenland/verstoten-aapje-punch-uit-japan-ruilt-zijn-knuffel-in-voor-echte-vriendjes~a953b609f/)
-  > Het verhaal van het verstoten baby-aapje Punch krijgt een happy end. De kleine makaak uit een Japanse dierentuin vertederde menig kijker dankzij...
-- [85 landen veroordelen Israëlische plannen Westelijke Jordaanoever](https://www.ad.nl/buitenland/85-landen-veroordelen-israelische-plannen-westelijke-jordaanoever~a395cdaf/)
-  > In een gezamenlijke verklaring veroordelen 85 VN-lidstaten, waaronder Nederland, de Israëlische plannen om de greep op de bezette Westelijke...
-- [Programma Olympische Spelen | Jens van ’t Wout gaat voor unieke hattrick, ook vrouwen maken kans op shorttrackgoud](https://www.ad.nl/olympische-spelen/programma-olympische-spelen-jens-van-t-wout-gaat-voor-unieke-hattrick-ook-vrouwen-maken-kans-op-shorttrackgoud~aeef8bc5/)
-  > Nederland maakt vandaag twee keer kans op een medaille op de Olympische Winterspelen. Op de shorttrackbaan in Milaan komen de mannen in actie op de...
-- [16 skiërs getroffen door lawine in VS, nog meerdere vermist](https://www.ad.nl/buitenland/16-skiers-getroffen-door-lawine-in-vs-nog-meerdere-vermist~a6bc8b9e/)
-  > Tien skiërs worden vermist nadat ze getroffen werden door een lawine in de buurt van Lake Tahoe in de Amerikaanse staat Californië. Door een zware...
+- [Hele rustige start voor teamgenoot Max Verstappen bij Red Bull, andere topteams maken wel veel indruk](https://www.ad.nl/formule-1/hele-rustige-start-voor-teamgenoot-max-verstappen-bij-red-bull-andere-topteams-maken-wel-veel-indruk~acb2603c/)
+  > De tweede testweek in Bahrein is van start gegaan. De teams en coureurs hebben opnieuw drie dagen om kilometers te maken op het Bahrain International...
+- [Dit zijn alle onderdelen waar vandaag wordt gestreden om het goud](https://www.ad.nl/olympische-spelen/dit-zijn-alle-onderdelen-waar-vandaag-wordt-gestreden-om-het-goud~a78636a3/)
+  > De Olympische Winterspelen van Milaan en Cortina d’Ampezzo naderen het einde. Op dag 11 is er echter nog genoeg te beleven. Hier blijf je op de...
+- [Problemen in voorhoede nemen toe voor PSV: ook Guus Til voorlopig uit de roulatie](https://www.ad.nl/voetbal/problemen-in-voorhoede-nemen-toe-voor-psv-ook-guus-til-voorlopig-uit-de-roulatie~a4dee652/)
+  > PSV heeft opnieuw een tegenslag moeten incasseren. Vaste waarde Guus Til ligt er voorlopig uit, in ieder geval meerdere weken. Voor PSV komt de...
+- [Zelensky: ‘Oneerlijk dat Trump aan ons vraagt concessies te doen en niet aan Rusland’](https://www.ad.nl/buitenland/zelensky-oneerlijk-dat-trump-aan-ons-vraagt-concessies-te-doen-en-niet-aan-rusland~adfb97be/)
+  > Volodymyr Zelensky vindt het ‘oneerlijk’ dat de Donald Trump Oekraïne, en niet Rusland, publiekelijk blijft oproepen om concessies te doen bij de...
+- [Belasting in Box 3 houdt gemoederen verhit, nu zijn verhuurders de pineut: ‘Het blijft een gedrocht’](https://www.ad.nl/binnenland/belasting-in-box-3-houdt-gemoederen-verhit-nu-zijn-verhuurders-de-pineut-het-blijft-een-gedrocht~ab7b9f69/)
+  > Het is nog steeds en rommeltje met de inkomstenbelasting in box 3. Jarenlang betaalden spaarders te veel belasting over de rente op hun spaargeld,...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Investeerder Maasbert Schouten: ‘Een Britse voetbalclub, dat lijkt me leuk’](https://fd.nl/financiele-markten/1586367/investeerder-maasbert-schouten-een-britse-voetbalclub-dat-lijkt-me-leuk)
-  > Maasbert Schouten ging onderuit als agressieve kredietboer en voelde zich bespot als ‘oetlul’. Eerzucht bracht de oud-eigenaar van Vitesse financieel...
-- [De Paus geeft zijn zegen aan ASML & big tech](https://fd.nl/economie/1586893/de-paus-geeft-zijn-zegen-aan-asml-big-tech)
-  > Vandaag in de FD Dagkoers podcast: een verbod op cryptogoksite Polymarket, de mogelijke terugkeer van verplicht contant betalen en beleggen met de...
-- [Poolse exodus](https://fd.nl/opinie/1586890/poolse-exodus)
-  > Nederland moet zich langzamerhand zorgen gaan maken over te weinig, in plaats van te veel arbeidsmigranten.
-- [Marges in wegvervoer mogelijk onder druk door vrachtwagenheffing](https://fd.nl/bedrijfsleven/1586883/marges-in-wegvervoer-mogelijk-onder-druk-door-vrachtwagenheffing)
-  > De kosten in het wegvervoer nemen volgens ING Bank door de heffing met 7% tot 8% toe. Doorberekening aan opdrachtgevers zal ‘een uitdaging’ worden.
-- [Hoe de vleiende taal van ChatGPT mensen juist intolerant maakt](https://fd.nl/opinie/1586809/hoe-de-vleiende-taal-van-chatgpt-mensen-juist-intolerant-maakt)
-  > In de stiltecoupé was de empathie deze week ver te zoeken. Komt dat door chronische stress of doorgeslagen individualisme? Of misschien toch door...
+- [FrieslandCampina boekt hogere resultaten in 2025](https://fd.nl/bedrijfsleven/1586849/frieslandcampina-boekt-hogere-resultaten-in-2025)
+  > Volgens het zuivelconcern was 2025 een jaar ‘met een goed eerste half jaar en een moeilijker tweede half jaar’. FrieslandCampina verwacht voor de...
+- [Een dijkhuis in Bruinisse, met zicht op de Oosterschelde](https://fd.nl/samenleving/1586696/een-dijkhuis-in-bruinisse-met-zicht-op-de-oosterschelde)
+  > ‘Het is maar een halfuurtje rijden naar Rotterdam en toch ben je hier in een andere wereld en beweeg je mee met het tij.’
+- [‘ECB-president Lagarde stapt op voor einde termijn’](https://fd.nl/economie/1586926/ecb-president-lagarde-stapt-op-voor-einde-termijn)
+  > Lagarde wil voortijdig opstappen, melden ingewijden aan de FT.
+- [Herstel blijft ook in vierde kwartaal uit voor IMCD](https://fd.nl/bedrijfsleven/1586847/herstel-blijft-ook-in-vierde-kwartaal-uit-voor-imcd)
+  > De chemicaliëndistributeur zag de marges dalen bij een lichte omzetstijging. Het voorgestelde dividend ligt met €1,81 flink onder de uitkering over...
+- [ASR rondt integratie Aegon af en meldt ‘sterk’ resultaat over 2025](https://fd.nl/financiele-markten/1586846/asr-rondt-integratie-aegon-af-en-meldt-sterk-resultaat-over-2025)
+  > De verzekeraar uit Utrecht verhoogt het dividend met ruim 9%, naar €3,41 per aandeel.
 
 ### Meest gelezen
 
