@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-02-2026 om 23:57*
+*Laatst bijgewerkt: 19-02-2026 om 05:15*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Australische politie verwijdert posters van Poetin en Trump in nazi-uniform uit bar](https://nos.nl/l/2603078)
+  > De Australische politie heeft in een bar in de hoofdstad Canberra vijf posters in beslag genomen waarop de Russische president Poetin, de Israëlische...
+- [Onderzoek: gratis juridische hulp aan mensen met laag inkomen betaalt zich uit](https://nos.nl/l/2603077)
+  > Gratis juridische hulp aan mensen met een laag inkomen betaalt zich uit voor de maatschappij. Dat is de conclusie van een onderzoek dat in opdracht...
 - [Zuckerberg in rechtbank: Meta bouwt geen apps meer voor lange schermtijd](https://nos.nl/l/2603069)
   > Mark Zuckerberg zegt dat zijn bedrijf geen applicaties meer bouwt die erop gericht zijn om mensen zo lang mogelijk naar hun scherm te laten kijken....
 - [Wethouders Amsterdam overleven debat over omstreden woonproject](https://nos.nl/l/2603062)
   > Ondanks felle kritiek in de raad, kan het Amsterdamse gemeentebestuur door met een woonproject waarbij jonge statushouders worden gehuisvest samen...
 - [Nederlander (71) omgekomen bij lawine in Oostenrijk](https://nos.nl/l/2603060)
   > In Oostenrijk is een Nederlander door een lawine om het leven gekomen. De 71-jarige man was in de buurt van Fiss in Tirol met zijn zoon (41) en een...
-- [Acteur Teun Kuilboer stapt uit serie Sleepers om 'giftige sfeer'](https://nos.nl/l/2603057)
-  > Teun Kuilboer is opgestapt bij de hitserie Sleepers, die te zien is op Videoland. De acteur zegt op Instagram dat er achter de schermen "een...
-- [Politie ontdekt hennepkwekerij onder A2-brug bij Vianen](https://nos.nl/l/2603055)
-  > Onder de Jan Blankenbrug in Vianen heeft de politie een hennepkwekerij gevonden. Ongeveer 180 plantjes zijn in beslag genomen en vernietigd. Over de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Voetbalpodcast | ‘Laat Bodø/Glimt een inspiratie zijn voor Nederlandse clubs in Europa’](https://www.ad.nl/voetbal/voetbalpodcast-laat-bodo-glimt-een-inspiratie-zijn-voor-nederlandse-clubs-in-europa~ac8603a9/)
-  > Een avondje Champions League bracht weer een mooie zege voor Bodø/Glimt. Deze keer werd er gewonnen van Inter en Club Brugge speelde gelijk tegen...
-- [Bondscoach Kerstholt woedend op Canadese shorttracker: ‘Dit flik je gewoon niet in een finale’](https://www.ad.nl/olympische-spelen/bondscoach-kerstholt-woedend-op-canadese-shorttracker-dit-flik-je-gewoon-niet-in-een-finale~a96e6855/)
-  > Bondscoach Niels Kerstholt van de Nederlandse shorttrackers was na afloop van de olympische finale op de 500 meter in Milaan woedend op William...
-- [Drie Nederlanders bedolven onder lawine in Tirol, man van 71 overleden](https://www.ad.nl/buitenland/drie-nederlanders-bedolven-onder-lawine-in-tirol-man-van-71-overleden~a206e398/)
-  > Een 71-jarige Nederlander is in Oostenrijk omgekomen nadat hij in een lawine terechtkwam bij het skiën. Dat meldt de politie van deelstaat Tirol. De...
-- [Koploper Arsenal verspeelt op de valreep punten bij hekkensluiter Wolves](https://www.ad.nl/voetbal/koploper-arsenal-verspeelt-op-de-valreep-punten-bij-hekkensluiter-wolves~a25b37bc/)
-  > Arsenal heeft bij Wolverhampton Wanderers dure punten verspeeld in de titelrace. De koploper van Engeland speelde na een 2-0-voorsprong met 2-2...
-- [Stuntploeg Bodø/Glimt slaat toe tegen Inter, Brugge vecht zich naar spectaculair gelijkspel tegen Atlético](https://www.ad.nl/voetbal/stuntploeg-bodo-glimt-slaat-toe-tegen-inter-brugge-vecht-zich-naar-spectaculair-gelijkspel-tegen-atletico~aad9cfe9/)
-  > Na overwinningen tegen Atlético Madrid en Manchester City voegt Bodø/Glimt een nieuwe stunt toe aan het lijstje. De Noorse club won in de tussenronde...
+- [Amerikaanse media: VS is klaar voor aanval op Iran, Trump wacht met besluit](https://www.ad.nl/buitenland/amerikaanse-media-vs-is-klaar-voor-aanval-op-iran-trump-wacht-met-besluit~a5c48189/)
+  > De Amerikaanse strijdkrachten zijn in staat om dit weekend al Iran aan te vallen, maar president Donald Trump heeft nog geen beslissing genomen. Dat...
+- [Olympisch buikschuiven! Vrijwilligers stelen de show op de  piste (en de regels bedenken ze zelf)](https://www.ad.nl/buitenland/olympisch-buikschuiven-vrijwilligers-stelen-de-show-op-de-piste-en-de-regels-bedenken-ze-zelf~a3837c7c/)
+  > Je hebt de afgelopen dagen misschien wel eens naar de olympische skipiste gekeken en gedacht: ‘Hoe zou het zijn om daar vanaf te glijden?’ Nou, je...
+- [Tientallen (zieke) BN’ers doodverklaard in populaire groepen, Facebook laat strafbare verzinsels jarenlang staan](https://www.ad.nl/tech/tientallen-zieke-bners-doodverklaard-in-populaire-groepen-facebook-laat-strafbare-verzinsels-jarenlang-staan~ab374bcc/)
+  > Facebook weigert in te grijpen bij cybercriminelen die tientallen (doodzieke) BN’ers en hun kinderen aan de lopende band doodverklaren, en dat al...
+- [Amerikaanse topmilitair brengt onaangekondigd bezoek aan Venezuela](https://www.ad.nl/buitenland/amerikaanse-topmilitair-brengt-onaangekondigd-bezoek-aan-venezuela~ad790999f/)
+  > Generaal Francis Donovan, het hoofd van het Amerikaanse militair commando in Latijns-Amerika en de Caraïben (Southcom), heeft woensdag een...
+- [Amerikaanse media: VS kunnen dit weekend al Iran aanvallen](https://www.ad.nl/buitenland/amerikaanse-media-vs-kunnen-dit-weekend-al-iran-aanvallen~a395cdaf/)
+  > De Amerikaanse strijdkrachten zijn in staat om dit weekend al Iran aan te vallen, maar president Donald Trump heeft nog geen beslissing genomen. Dat...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Vier Nederlandse deeptechbeloftes en de uitdagingen waar ze tegenaan lopen](https://fd.nl/bedrijfsleven/1584824/vier-nederlandse-deeptechbeloftes-en-de-uitdagingen-waar-ze-tegenaan-lopen)
+  > In cleanrooms en laboratoria in Eindhoven, Rotterdam en Delft werken nieuwe hightechbedrijven aan AI-chips, nieuwe batterijmaterialen en...
+- [Nieuwe box 3 maakt beleggers woedend](https://fd.nl/economie/1586870/nieuwe-box3-maakt-beleggers-woedend)
+  > Vandaag in Dagkoers: Box 3-ophef escaleert, hoe ver kan screening van nieuwe werknemers gaan, en Accell is nu volledig eigendom van zijn schuldeisers.
 - [Fopsigaar uit eigen doos](https://fd.nl/opinie/1586948/fopsigaar-uit-eigen-doos)
   > Op de korte termijn kunnen de Amerikaanse fabrikanten vast meer SUV’s en pick-ups verkopen, maar de toekomst is ongewis.
 - [Nederland dreigt naast Europese douaneautoriteit te grijpen](https://fd.nl/politiek/1586863/nederland-dreigt-naast-europese-douaneautoriteit-te-grijpen)
   > Negen Europese steden, waaronder Den Haag, willen de nieuwe instelling graag huisvesten. Maar op de stemlijsten van het Europarlement wordt de...
 - [Shell toch weer de grootste belegging onder Nederlandse huishoudens](https://fd.nl/financiele-markten/1586854/shell-toch-weer-de-grootste-belegging-onder-nederlandse-huishoudens)
   > De waarde van de 43 grootste posities onder Nederlandse particulieren bedraagt €37,7 mrd, een daling van €1 mrd op kwartaalbasis.
-- [Bredaas AI-bedrijf Aizy haalt €2,2 mln groeigeld op](https://fd.nl/tech-en-innovatie/1586850/bredaas-ai-bedrijf-aizy-haalt-2-2-mln-groeigeld-op)
-  > Aizy begon ruim een jaar geleden en is bij de laatste kapitaalronde gewaardeerd op €22 mln.
-- [Het idee van eurobonds is mooi, maar het strandt vooral op Parijse boulevards](https://fd.nl/opinie/1586807/het-idee-van-eurobonds-is-mooi-maar-het-strandt-vooral-op-parijse-boulevards)
-  > De utopie van Draghi is mooi, maar Frankrijks potverteren brengt ons geen stap dichterbij. Want welke Nederlander wil financieel bloeden voor een...
 
 ### Meest gelezen
 
