@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-02-2026 om 05:15*
+*Laatst bijgewerkt: 19-02-2026 om 08:02*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Australische politie verwijdert posters van Poetin en Trump in nazi-uniform uit bar](https://nos.nl/l/2603078)
-  > De Australische politie heeft in een bar in de hoofdstad Canberra vijf posters in beslag genomen waarop de Russische president Poetin, de Israëlische...
-- [Onderzoek: gratis juridische hulp aan mensen met laag inkomen betaalt zich uit](https://nos.nl/l/2603077)
-  > Gratis juridische hulp aan mensen met een laag inkomen betaalt zich uit voor de maatschappij. Dat is de conclusie van een onderzoek dat in opdracht...
-- [Zuckerberg in rechtbank: Meta bouwt geen apps meer voor lange schermtijd](https://nos.nl/l/2603069)
-  > Mark Zuckerberg zegt dat zijn bedrijf geen applicaties meer bouwt die erop gericht zijn om mensen zo lang mogelijk naar hun scherm te laten kijken....
-- [Wethouders Amsterdam overleven debat over omstreden woonproject](https://nos.nl/l/2603062)
-  > Ondanks felle kritiek in de raad, kan het Amsterdamse gemeentebestuur door met een woonproject waarbij jonge statushouders worden gehuisvest samen...
-- [Nederlander (71) omgekomen bij lawine in Oostenrijk](https://nos.nl/l/2603060)
-  > In Oostenrijk is een Nederlander door een lawine om het leven gekomen. De 71-jarige man was in de buurt van Fiss in Tirol met zijn zoon (41) en een...
+- [Na 39-jarige millennial kiest Peru voor gepensioneerde rechter (83) als president](https://nos.nl/l/2603091)
+  > Een dag na de afzetting van José Jerí heeft het parlement van Peru José Maria Balcázar (83) aangewezen als nieuwe interim-president. Daarmee heeft...
+- [VS waarschuwt Iran: 'Deal sluiten verstandig', militaire aanwezigheid uitgebreid](https://nos.nl/l/2603089)
+  > De Verenigde Staten hebben Iran gewaarschuwd dat het "zeer verstandig" zou zijn om een overeenkomst te sluiten over het nucleaire programma. Dat zei...
+- [Rechter buigt zich over fataal klimongeluk Alpen: was vriend verantwoordelijk?](https://nos.nl/l/2603088)
+  > Welke verantwoordelijkheid dragen alpinisten voor elkaar als ze samen een berg beklimmen? Die vraag staat centraal in een rechtszaak die vandaag in...
+- [Levenslang voor Zuid-Koreaanse ex-president Yoon voor poging staatsgreep](https://nos.nl/l/2603087)
+  > De Zuid-Koreaanse rechter heeft ex-president Yoon Suk-yeol veroordeeld tot een levenslange gevangenisstraf voor zijn poging tot een staatsgreep. Een...
+- [Palestijnse diplomaat Leila Shahid (76) overleden in Frankrijk](https://nos.nl/l/2603084)
+  > De Palestijnse oud-diplomaat Leila Shahid is op 76-jarige leeftijd overleden. Ze was lange tijd het gezicht van de Palestijnse zaak in verschillende...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaanse media: VS is klaar voor aanval op Iran, Trump wacht met besluit](https://www.ad.nl/buitenland/amerikaanse-media-vs-is-klaar-voor-aanval-op-iran-trump-wacht-met-besluit~a5c48189/)
-  > De Amerikaanse strijdkrachten zijn in staat om dit weekend al Iran aan te vallen, maar president Donald Trump heeft nog geen beslissing genomen. Dat...
-- [Olympisch buikschuiven! Vrijwilligers stelen de show op de  piste (en de regels bedenken ze zelf)](https://www.ad.nl/buitenland/olympisch-buikschuiven-vrijwilligers-stelen-de-show-op-de-piste-en-de-regels-bedenken-ze-zelf~a3837c7c/)
-  > Je hebt de afgelopen dagen misschien wel eens naar de olympische skipiste gekeken en gedacht: ‘Hoe zou het zijn om daar vanaf te glijden?’ Nou, je...
-- [Tientallen (zieke) BN’ers doodverklaard in populaire groepen, Facebook laat strafbare verzinsels jarenlang staan](https://www.ad.nl/tech/tientallen-zieke-bners-doodverklaard-in-populaire-groepen-facebook-laat-strafbare-verzinsels-jarenlang-staan~ab374bcc/)
-  > Facebook weigert in te grijpen bij cybercriminelen die tientallen (doodzieke) BN’ers en hun kinderen aan de lopende band doodverklaren, en dat al...
-- [Amerikaanse topmilitair brengt onaangekondigd bezoek aan Venezuela](https://www.ad.nl/buitenland/amerikaanse-topmilitair-brengt-onaangekondigd-bezoek-aan-venezuela~ad790999f/)
-  > Generaal Francis Donovan, het hoofd van het Amerikaanse militair commando in Latijns-Amerika en de Caraïben (Southcom), heeft woensdag een...
-- [Amerikaanse media: VS kunnen dit weekend al Iran aanvallen](https://www.ad.nl/buitenland/amerikaanse-media-vs-kunnen-dit-weekend-al-iran-aanvallen~a395cdaf/)
-  > De Amerikaanse strijdkrachten zijn in staat om dit weekend al Iran aan te vallen, maar president Donald Trump heeft nog geen beslissing genomen. Dat...
+- [Emoties schieten alle kanten op in hechte shorttrackploeg: ‘Je kunt even blij zijn, maar daarna overheerst teleurstelling’](https://www.ad.nl/olympische-spelen/emoties-schieten-alle-kanten-op-in-hechte-shorttrackploeg-je-kunt-even-blij-zijn-maar-daarna-overheerst-teleurstelling~a4e6f5bc/)
+  > De vijfde avond van het olympische shorttracktoernooi veroorzaakte een krankzinnige rollercoaster van emoties binnen de Nederlandse ploeg. Wat er...
+- [Productieve Max Verstappen maakt vroeg op de dag indruk met goede tijd, Lando Norris de snelste](https://www.ad.nl/formule-1/productieve-max-verstappen-maakt-vroeg-op-de-dag-indruk-met-goede-tijd-lando-norris-de-snelste~a4068313/)
+  > De één-na-laatste testdag voor het Formule 1-seizoen gaat van start. Max Verstappen zit de gehele tweede testdag achter het stuur van de nieuwe Red...
+- [Medaillespiegel | Nederland dankzij zilver en brons broers Van ’t Wout nog in de top 5](https://www.ad.nl/olympische-spelen/medaillespiegel-nederland-dankzij-zilver-en-brons-broers-van-t-wout-nog-in-de-top-5~a2772ec34/)
+  > Hoeveel gouden medailles gaat Nederland pakken tijdens de Olympische Winterspelen 2026 in Milaan en Cortina d’Ampezzo? Hieronder kun je het...
+- [Vredesraad voor Gaza, of een VN vol vriendjes van Donald Trump?](https://www.ad.nl/buitenland/vredesraad-voor-gaza-of-een-vn-vol-vriendjes-van-donald-trump~a91faa0d/)
+  > Trumps nieuwe Vredesraad komt donderdag voor het eerst bijeen in Washington. Na toezicht op de wederopbouw in Gaza moet die voor wereldvrede zorgen....
+- [Complotdenker weigert openheid van zaken te geven over loterijtonnen, waakhond wil onderzoek justitie](https://www.ad.nl/binnenland/complotdenker-weigert-openheid-van-zaken-te-geven-over-loterijtonnen-waakhond-wil-onderzoek-justitie~a5269957/)
+  > De Kansspelautoriteit wil dat justitie onderzoek gaat doen naar de verdwenen opbrengst van de loterij van de stichting Pad der Natuurlijke Energie....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Vier Nederlandse deeptechbeloftes en de uitdagingen waar ze tegenaan lopen](https://fd.nl/bedrijfsleven/1584824/vier-nederlandse-deeptechbeloftes-en-de-uitdagingen-waar-ze-tegenaan-lopen)
-  > In cleanrooms en laboratoria in Eindhoven, Rotterdam en Delft werken nieuwe hightechbedrijven aan AI-chips, nieuwe batterijmaterialen en...
-- [Nieuwe box 3 maakt beleggers woedend](https://fd.nl/economie/1586870/nieuwe-box3-maakt-beleggers-woedend)
-  > Vandaag in Dagkoers: Box 3-ophef escaleert, hoe ver kan screening van nieuwe werknemers gaan, en Accell is nu volledig eigendom van zijn schuldeisers.
-- [Fopsigaar uit eigen doos](https://fd.nl/opinie/1586948/fopsigaar-uit-eigen-doos)
-  > Op de korte termijn kunnen de Amerikaanse fabrikanten vast meer SUV’s en pick-ups verkopen, maar de toekomst is ongewis.
-- [Nederland dreigt naast Europese douaneautoriteit te grijpen](https://fd.nl/politiek/1586863/nederland-dreigt-naast-europese-douaneautoriteit-te-grijpen)
-  > Negen Europese steden, waaronder Den Haag, willen de nieuwe instelling graag huisvesten. Maar op de stemlijsten van het Europarlement wordt de...
-- [Shell toch weer de grootste belegging onder Nederlandse huishoudens](https://fd.nl/financiele-markten/1586854/shell-toch-weer-de-grootste-belegging-onder-nederlandse-huishoudens)
-  > De waarde van de 43 grootste posities onder Nederlandse particulieren bedraagt €37,7 mrd, een daling van €1 mrd op kwartaalbasis.
+- [Air France-KLM boekt hoger resultaat, KLM is dicht bij verkoop cateringtak](https://fd.nl/bedrijfsleven/1586972/air-france-klm-boekt-hoger-resultaat-klm-is-dicht-bij-verkoop-cateringtak)
+  > De winterse week op Schiphol aan het begin van 2026 kost de luchtvaartmaatschappij zeker €90 mln.
+- [Heet van de naald: de coupeuses](https://fd.nl/samenleving/1586771/heet-van-de-naald-de-coupeuses)
+  > De coupeuses zijn de dragende krachten van de ontwerpers. Als het aan deze drie coupeuses ligt, worden naald en draad nog lang niet opgeborgen.
+- [IMF: Chinese export doet handelspartners pijn](https://fd.nl/economie/1587008/imf-chinese-export-doet-handelspartners-pijn)
+  > In een jaarlijks advies aan China zegt het IMF dat het land zijn afhankelijk van export moet afbouwen. Ook zegt het IMF dat China’s export...
+- [Arcadis schrapt 1100 banen in ‘uitdagend jaar’](https://fd.nl/bedrijfsleven/1587007/arcadis-schrapt-1100-banen-in-uitdagend-jaar)
+  > Het brutobedrijfsresultaat van het ingenieursbureau daalde met 6%.
+- [Aegon groeit harder dan verwacht in de VS](https://fd.nl/financiele-markten/1586971/aegon-groeit-harder-dan-verwacht-in-de-vs)
+  > Volgens Aegon-bestuursvoorzitter Lard Friese is er sprake van een ‘sterk commercieel momentum’ in de VS.
 
 ### Meest gelezen
 
