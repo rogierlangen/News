@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-02-2026 om 08:02*
+*Laatst bijgewerkt: 19-02-2026 om 11:26*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Na 39-jarige millennial kiest Peru voor gepensioneerde rechter (83) als president](https://nos.nl/l/2603091)
-  > Een dag na de afzetting van José Jerí heeft het parlement van Peru José Maria Balcázar (83) aangewezen als nieuwe interim-president. Daarmee heeft...
-- [VS waarschuwt Iran: 'Deal sluiten verstandig', militaire aanwezigheid uitgebreid](https://nos.nl/l/2603089)
-  > De Verenigde Staten hebben Iran gewaarschuwd dat het "zeer verstandig" zou zijn om een overeenkomst te sluiten over het nucleaire programma. Dat zei...
-- [Rechter buigt zich over fataal klimongeluk Alpen: was vriend verantwoordelijk?](https://nos.nl/l/2603088)
-  > Welke verantwoordelijkheid dragen alpinisten voor elkaar als ze samen een berg beklimmen? Die vraag staat centraal in een rechtszaak die vandaag in...
-- [Levenslang voor Zuid-Koreaanse ex-president Yoon voor poging staatsgreep](https://nos.nl/l/2603087)
-  > De Zuid-Koreaanse rechter heeft ex-president Yoon Suk-yeol veroordeeld tot een levenslange gevangenisstraf voor zijn poging tot een staatsgreep. Een...
-- [Palestijnse diplomaat Leila Shahid (76) overleden in Frankrijk](https://nos.nl/l/2603084)
-  > De Palestijnse oud-diplomaat Leila Shahid is op 76-jarige leeftijd overleden. Ze was lange tijd het gezicht van de Palestijnse zaak in verschillende...
+- [Mantelzorger met baan ernaast: 'De zorg gaat altijd voor, je wordt geleefd'](https://nos.nl/l/2603128)
+  > Een betaalde baan combineren met de zorg voor een familielid, vriend of naaste. Ruim twee miljoen Nederlanders doen dit en steeds vaker komen ze in...
+- [Eelco Eerenberg nieuwe beoogd D66-staatssecretaris](https://nos.nl/l/2603127)
+  > Eelco Eerenberg is de nieuwe beoogd staatssecretaris namen van Financiën namens D66. Dat heeft de partij bekendgemaakt. De 41-jarige Eerenberg is nu...
+- [Druk op werkende mantelzorgers neemt toe, SER pleit voor meer steun](https://nos.nl/l/2603126)
+  > Het moet makkelijker worden om betaald werk en mantelzorg te combineren. Dat zegt de Sociaal-Economische Raad (SER) in een advies over de toenemende...
+- [Iran veroordeelt Brits echtpaar tot tien jaar cel wegens spionage](https://nos.nl/l/2603123)
+  > Een Brits echtpaar dat tijdens een motorreis rond de wereld door Iran reisde, is daar veroordeeld tot tien jaar gevangenisstraf wegens spionage. Dat...
+- [17-jarige aangehouden in Amsterdam na vondst 400 wapens in woning](https://nos.nl/l/2603121)
+  > De politie in Amsterdam heeft een 17-jarige jongen aangehouden voor verboden wapenbezit. In een woning werden eind januari ongeveer vierhonderd...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Emoties schieten alle kanten op in hechte shorttrackploeg: ‘Je kunt even blij zijn, maar daarna overheerst teleurstelling’](https://www.ad.nl/olympische-spelen/emoties-schieten-alle-kanten-op-in-hechte-shorttrackploeg-je-kunt-even-blij-zijn-maar-daarna-overheerst-teleurstelling~a4e6f5bc/)
-  > De vijfde avond van het olympische shorttracktoernooi veroorzaakte een krankzinnige rollercoaster van emoties binnen de Nederlandse ploeg. Wat er...
-- [Productieve Max Verstappen maakt vroeg op de dag indruk met goede tijd, Lando Norris de snelste](https://www.ad.nl/formule-1/productieve-max-verstappen-maakt-vroeg-op-de-dag-indruk-met-goede-tijd-lando-norris-de-snelste~a4068313/)
-  > De één-na-laatste testdag voor het Formule 1-seizoen gaat van start. Max Verstappen zit de gehele tweede testdag achter het stuur van de nieuwe Red...
-- [Medaillespiegel | Nederland dankzij zilver en brons broers Van ’t Wout nog in de top 5](https://www.ad.nl/olympische-spelen/medaillespiegel-nederland-dankzij-zilver-en-brons-broers-van-t-wout-nog-in-de-top-5~a2772ec34/)
-  > Hoeveel gouden medailles gaat Nederland pakken tijdens de Olympische Winterspelen 2026 in Milaan en Cortina d’Ampezzo? Hieronder kun je het...
-- [Vredesraad voor Gaza, of een VN vol vriendjes van Donald Trump?](https://www.ad.nl/buitenland/vredesraad-voor-gaza-of-een-vn-vol-vriendjes-van-donald-trump~a91faa0d/)
-  > Trumps nieuwe Vredesraad komt donderdag voor het eerst bijeen in Washington. Na toezicht op de wederopbouw in Gaza moet die voor wereldvrede zorgen....
-- [Complotdenker weigert openheid van zaken te geven over loterijtonnen, waakhond wil onderzoek justitie](https://www.ad.nl/binnenland/complotdenker-weigert-openheid-van-zaken-te-geven-over-loterijtonnen-waakhond-wil-onderzoek-justitie~a5269957/)
-  > De Kansspelautoriteit wil dat justitie onderzoek gaat doen naar de verdwenen opbrengst van de loterij van de stichting Pad der Natuurlijke Energie....
+- [Van held naar schandaalprins: met zijn arrestatie is de val van Andrew compleet](https://www.ad.nl/buitenland/van-held-naar-schandaalprins-met-zijn-arrestatie-is-de-val-van-andrew-compleet~a936a8e4/)
+  > Met de aanhouding van Andrew Mountbatten-Windsor is de val van de voormalige prins compleet. De broer van de Britse koning Charles is al jaren...
+- [Droomreis op motor eindigt in een hel: Brits echtpaar krijgt 10 jaar cel in Iran wegens ‘spionage’](https://www.ad.nl/buitenland/droomreis-op-motor-eindigt-in-een-hel-brits-echtpaar-krijgt-10-jaar-cel-in-iran-wegens-spionage~a53e4b70/)
+  > Een Brits echtpaar dat op wereldreis was, is in Iran veroordeeld tot tien jaar cel wegens ‘spionage’. Lindsay en Craig Foreman - beiden 52 jaar oud -...
+- [Niet in uniform, maar in leeuwenpak: Thaise agenten doen traditionele dans en pakken zo verdachte op](https://www.ad.nl/buitenland/niet-in-uniform-maar-in-leeuwenpak-thaise-agenten-doen-traditionele-dans-en-pakken-zo-verdachte-op~a377bcf9/)
+  > Hoe pak je een man op die wordt verdacht van het stelen van tienduizenden euro’s aan boeddhistische objecten? De politie in Thailand besloot het...
+- [Eelco Eerenberg wordt D66-staatssecretaris Financiën in plaats van teruggetreden Van Berkel](https://www.ad.nl/politiek/eelco-eerenberg-wordt-d66-staatssecretaris-financien-in-plaats-van-teruggetreden-van-berkel~a9167be0/)
+  > D66 schuift de Utrechtse wethouder Eelco Eerenberg naar voren als de nieuwe beoogde staatssecretaris van Financiën. Dat maakt de partij donderdag...
+- [Ricky’s vrouw werd overreden door vuilniswagen: ‘Ik schreef de chauffeur: als je mijn vergiffenis wil, dan vergeef ik je’](https://www.ad.nl/binnenland/rickys-vrouw-werd-overreden-door-vuilniswagen-ik-schreef-de-chauffeur-als-je-mijn-vergiffenis-wil-dan-vergeef-ik-je~a499fff4/)
+  > De Amerikaanse Cindy Charles (69) werd in oktober 2024 doodgereden door een vuilniswagen die op de Amsterdamse Passeerdersgracht tegen het verkeer in...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Air France-KLM boekt hoger resultaat, KLM is dicht bij verkoop cateringtak](https://fd.nl/bedrijfsleven/1586972/air-france-klm-boekt-hoger-resultaat-klm-is-dicht-bij-verkoop-cateringtak)
-  > De winterse week op Schiphol aan het begin van 2026 kost de luchtvaartmaatschappij zeker €90 mln.
-- [Heet van de naald: de coupeuses](https://fd.nl/samenleving/1586771/heet-van-de-naald-de-coupeuses)
-  > De coupeuses zijn de dragende krachten van de ontwerpers. Als het aan deze drie coupeuses ligt, worden naald en draad nog lang niet opgeborgen.
-- [IMF: Chinese export doet handelspartners pijn](https://fd.nl/economie/1587008/imf-chinese-export-doet-handelspartners-pijn)
-  > In een jaarlijks advies aan China zegt het IMF dat het land zijn afhankelijk van export moet afbouwen. Ook zegt het IMF dat China’s export...
-- [Arcadis schrapt 1100 banen in ‘uitdagend jaar’](https://fd.nl/bedrijfsleven/1587007/arcadis-schrapt-1100-banen-in-uitdagend-jaar)
-  > Het brutobedrijfsresultaat van het ingenieursbureau daalde met 6%.
-- [Aegon groeit harder dan verwacht in de VS](https://fd.nl/financiele-markten/1586971/aegon-groeit-harder-dan-verwacht-in-de-vs)
-  > Volgens Aegon-bestuursvoorzitter Lard Friese is er sprake van een ‘sterk commercieel momentum’ in de VS.
+- [Nederland en België onderzoeken directe trein Eindhoven-Brussel](https://fd.nl/politiek/1587019/nederland-en-belgie-onderzoeken-directe-trein-eindhoven-brussel)
+  > Nederland en België willen meer gaan samenwerken op het spoor en onderzoeken de mogelijkheden voor een directe treinverbinding tussen Eindhoven en...
+- [Renault somberder over vooruitzichten voor dit jaar](https://fd.nl/bedrijfsleven/1587018/renault-somberder-over-vooruitzichten-voor-dit-jaar)
+  > Fellere concurrentie in Europa en ambities om marktaandeel verwerven met elektrische auto’s, zullen winstmarges drukken, verwacht de Franse...
+- [SER dringt aan op acht weken betaald verlof voor mantelzorgers](https://fd.nl/politiek/1586977/ser-dringt-aan-op-acht-weken-betaald-verlof-voor-mantelzorgers)
+  > De toenemende vraag naar mantelzorg kost honderden miljoenen euro’s aan verzuim, uitval en productiviteitsverlies. En die kosten nemen snel toe,...
+- [Het witte shirt, extra sophisticated](https://fd.nl/samenleving/1586877/het-witte-shirt-extra-sophisticated)
+  > Het klassieke witte shirt laat zich niet uit het veld slaan. Dankzij twee gevestigde namen, Chanel en Charvet, schuift het formele hemd naar het...
+- [De onstuitbare opmars van Europese defensiebedrijven op de beurs](https://fd.nl/financiele-markten/1586218/de-onstuitbare-opmars-van-de-europese-defensiebedrijven-op-de-beurs)
+  > Fors stijgende defensiebudgetten zorgen voor aanhoudende populariteit van Europese defensieaandelen. Beleggers zien vooral in de grote...
 
 ### Meest gelezen
 
