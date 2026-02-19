@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-02-2026 om 22:00*
+*Laatst bijgewerkt: 19-02-2026 om 23:57*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Steeds meer kinderen slapen in België op straat, vooral in Brussel](https://nos.nl/l/2603232)
+  > Kinderrechtenorganisaties in België slaan alarm omdat ze merken dat steeds meer kinderen noodgedwongen op straat slapen. Dat is vooral in Brussel het...
+- [Bergbeklimmer die vriendin achterliet op berg veroordeeld voor dood door schuld](https://nos.nl/l/2603231)
+  > De Oostenrijkse bergbeklimmer Thomas P. is veroordeeld voor dood door schuld. Met zijn vriendin beklom hij de Grossglockner, de hoogste berg van...
+- [NASA laakt Boeing om ernstige problemen Starliner-vlucht: 'bijna een ramp'](https://nos.nl/l/2603224)
+  > NASA-baas Jared Isaacman heeft hard uitgehaald naar Boeing voor de problemen met ruimtecapsule Starliner. Die problemen waren zeer ernstig en hadden...
 - [VVD in Zundert vindt zichzelf niet terug op de verkiezingsborden](https://nos.nl/l/2603219)
   > In de gemeente Zundert hangen niet de verkiezingsposters van de VVD Zundert, maar die van de VVD Velsen op de borden.
         Een opmerkelijke fout,...
 - [Oppositielid Statkevitsj na beroerte vrijgelaten in Belarus](https://nos.nl/l/2603217)
   > Oppositielid en voormalig presidentskandidaat Nikolai Statkevitsj is vrijgelaten uit de gevangenis in Belarus. Hij herstelt volgens zijn vrouw van de...
-- [Wereldvoedselprogramma: hongercrisis in Afghanistan, mede door bezuinigingen voedselhulp](https://nos.nl/l/2603214)
-  > Afghanistan kampt met een hongercrisis waarbij de levens van vier miljoen ernstig ondervoede kinderen op het spel staan. In tweederde van het land is...
-- [Bergbeklimmer die vriendin achterliet in Oostenrijkse Alpen ontkent schuld](https://nos.nl/l/2603211)
-  > De bergbeklimmer die door het Oostenrijkse OM verantwoordelijk wordt gehouden voor de dood van zijn vriendin tijdens een klim, zegt dat hij...
-- [Zes mannen van vergisontvoering in Cruquius krijgen hogere celstraffen](https://nos.nl/l/2603210)
-  > Zes van de tien verdachten die veroordeeld zijn voor de vergisontvoering in Cruquius in 2021, hebben in hoger beroep hogere celstraffen gekregen. Het...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Jannik Sinner laat zich verrassen in Doha door 20-jarige Tsjech, gefrustreerde Carlos Alcaraz met schrik vrij](https://www.ad.nl/tennis/jannik-sinner-laat-zich-verrassen-in-doha-door-20-jarige-tsjech-gefrustreerde-carlos-alcaraz-met-schrik-vrij~a13bf320/)
-  > Jannik Sinner is er niet in geslaagd de halve finale van het ATP 500-toernooi in Doha te bereiken. De Italiaanse nummer twee van de wereld liet zich...
-- [Voormalig PSV-verdediger Isimat-Mirin (34) stopt met profvoetbal, maar blijft werken voor de club](https://www.ad.nl/voetbal/voormalig-psv-verdediger-isimat-mirin-34-stopt-met-profvoetbal-maar-blijft-werken-voor-de-club~a1c9a4b5/)
-  > De carrière van Nicolas Isimat-Mirin (34) zit erop. De centrale verdediger heeft besloten een punt te zetten achter zijn sportieve loopbaan en gaat...
-- [Duitse miljardair trapt in nepverhaal dat dochter iemand zou hebben doodgereden, miljoenen gestolen](https://www.ad.nl/buitenland/duitse-miljardair-trapt-in-nepverhaal-dat-dochter-iemand-zou-hebben-doodgereden-miljoenen-gestolen~afb90697/)
-  > Een van de rijkste mannen van Duitsland is miljoenen euro’s kwijtgeraakt aan oplichters die hem overtuigden dat zijn dochter een dodelijk...
-- [LIVE Premier League Darts | Gian van Veen op jacht naar eerste avondzege, Luke Littler hard afgedroogd](https://www.ad.nl/darts/live-premier-league-darts-gian-van-veen-op-jacht-naar-eerste-avondzege-luke-littler-hard-afgedroogd~a469f4e3/)
-  > Gian van Veen staat voor de tweede keer dit jaar in de finale van een speelavond in de Premier League. Hij klopte Stephen Bunting en Luke Humphries...
-- [Lisette uit Winter vol liefde was zo gekrenkt dat ze precies deed wat ze eerder nog keihard had ontkend](https://www.ad.nl/show/lisette-uit-winter-vol-liefde-was-zo-gekrenkt-dat-ze-precies-deed-wat-ze-eerder-nog-keihard-had-ontkend~a7c7c9c6/)
-  > Deze dame uit Winter vol liefde had een punt toen ze vroeg waarom er geen open kaart met haar was gespeeld. Al counterde de man in kwestie dat wél...
+- [Justitie in New Mexico heropent onderzoek naar misbruik en mensenhandel op Zorro Ranch Epstein](https://www.ad.nl/buitenland/justitie-in-new-mexico-heropent-onderzoek-naar-misbruik-en-mensenhandel-op-zorro-ranch-epstein~ad17eb50/)
+  > De procureur-generaal van de Amerikaanse staat New Mexico heeft opdracht gegeven om het strafrechtelijk onderzoek naar beschuldigingen van illegale...
+- [Iran in brief aan VN: ‘We zullen militaire agressie beantwoorden’](https://www.ad.nl/buitenland/iran-in-brief-aan-vn-we-zullen-militaire-agressie-beantwoorden~a395cdaf/)
+  > Iran heeft aan VN-secretaris-generaal António Guterres laten weten dat Teheran de bases, faciliteiten en bezittingen van de ‘vijandige macht’ in de...
+- [Britse (23) loopt 24 jaar oud wereldrecord uit de boeken op 800 meter indoor, Femke Bol afwezig vanwege blessure](https://www.ad.nl/andere-sporten/britse-23-loopt-24-jaar-oud-wereldrecord-uit-de-boeken-op-800-meter-indoor-femke-bol-afwezig-vanwege-blessure~a2418bf2/)
+  > De Britse atlete Keely Hodgkinson (23) heeft een wereldrecord gelopen op de 800 meter indoor. In het Franse Liévin liep ze naar een tijd van 1.54,87,...
+- [AD Winterspelen Podcast | ‘Het leek bijna of Kjeld Nuis dit zelf geregisseerd had’](https://www.ad.nl/olympische-spelen/ad-winterspelen-podcast-het-leek-bijna-of-kjeld-nuis-dit-zelf-geregisseerd-had~a17ab614/)
+  > Kjeld Nuis flikt het bij zijn laatste olympische kunstje: brons op de 1500 meter, waar Jordan Stolz het heel verrassend moet afleggen tegen Zhongyan...
+- [Vrouw (33) vriest dood op berg in Oostenrijk nadat vriendje haar achterlaat, rechter acht hem schuldig](https://www.ad.nl/buitenland/vrouw-33-vriest-dood-op-berg-in-oostenrijk-nadat-vriendje-haar-achterlaat-rechter-acht-hem-schuldig~aff66119/)
+  > De man die vorig jaar zijn vriendin achterliet op een berg in Oostenrijk waarna zij overleed, is schuldig bevonden aan dood door schuld.
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Koopkracht van zoetekauwen](https://fd.nl/opinie/1587044/koopkracht-van-zoetekauwen)
+  > Vandaag verschijnt het: de CPB-doorrekening van het coalitieakkoord. Eindelijk horen we wat dat doet met de groei en het tekort. En met de koopkracht.
+- [Premier Rob, pak jij straks deze zakken ook nog ff op?](https://fd.nl/opinie/1586768/rob-pak-jij-straks-deze-zakken-ook-nog-ff-op)
+  > Maandag staan achttien ministers te bibberen op het bordes. Ze hebben 67 pagina’s aan goede voornemens, maar nog een hoop Haags vuilnis dat nog...
+- [Personalia vrijdag 20 februari 2026](https://fd.nl/bedrijfsleven/1587084/personalia-vrijdag-20-februari-2026)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [Situatie rond VS en Iran duwt Amerikaanse beurzen naar beneden](https://fd.nl/financiele-markten/1587045/situatie-rond-vs-en-iran-duwt-amerikaanse-beurzen-naar-beneden)
   > De koersborden op Wall Street kleurden donderdag lichtrood. Het sentiment werd vooral bepaald door zorgen over een gewapend conflict tussen de VS en...
 - [Amerikaanse aandelen blijven gewild](https://fd.nl/financiele-markten/1587046/amerikaanse-aandelen-blijven-gewild)
   > Buitenlandse beleggers kochten in 2025 voor $720 mrd aan Amerikaanse aandelen, ondanks de door president Trump gevoerde handelsoorlogen.
-- [Handelstekort VS loopt op naar $1241 mrd](https://fd.nl/economie/1587100/handelstekort-vs-loopt-op-naar-1-241-mrd)
-  > Handelsoorlog met China leidt tot laagste handelstekort van de VS met de Aziatische grootmacht in twintig jaar.
-- [Klarna lijdt verlies in vierde kwartaal](https://fd.nl/bedrijfsleven/1587099/klarna-lijdt-verlies-in-vierde-kwartaal)
-  > De Zweedse betaaldienstverlener heeft in het vierde kwartaal een verlies voor belastingen van $16 mln geleden.
-- [Polymarket is geen derivatenhandel, maar een goksite](https://fd.nl/opinie/1587089/polymarket-is-geen-derivatenhandel-maar-een-goksite)
-  > Geld inzetten op de vermoedelijke trouwdatum van Taylor Swift is geen beleggingsstrategie, maar een ordinaire gok. Het platform waar dit mogelijk is,...
 
 ### Meest gelezen
 
