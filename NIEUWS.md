@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-02-2026 om 08:00*
+*Laatst bijgewerkt: 20-02-2026 om 11:04*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Zuid-Koreaanse ex-president Yoon zegt sorry, maar vindt vonnis ook oneerlijk](https://nos.nl/l/2603243)
-  > De voormalige Zuid-Koreaanse president Yoon Suk-yeol heeft zijn excuses aangeboden voor de "ellende" en de politieke crisis die hij veroorzaakte met...
-- [Miljonairs Palm Beach in de herrie door omleidingen vliegverkeer om Trump](https://nos.nl/l/2603240)
-  > Opstijgende vliegtuigen scheren laag over de palmbomen en zwembaden van Palm Beach. Gesprekken vallen stil zodra een toestel overkomt. Niet bepaald...
-- [Wekdienst 20/2: Femke Kok schaatst 1500 meter • Coalitieakkoord doorgerekend](https://nos.nl/l/2603237)
-  > Goedemorgen! Schaatsster Femke Kok gaat voor haar derde medaille op de 1500 meter strijden en CPB en PBL presenteren de doorrekeningen van het...
-- [Grey's Anatomy-acteur Eric Dane (53) overleden](https://nos.nl/l/2603235)
-  > Acteur Eric Dane is op 53-jarige leeftijd overleden. Hij maakte vorig jaar bekend aan de progressieve spierziekte ALS te lijden.
-        Dane was...
-- [Venezuela keurt beperkte amnestiewet goed](https://nos.nl/l/2603234)
-  > Het parlement van Venezuela heeft een wet goedgekeurd die kan leiden tot de vrijlating van meer politieke gevangenen in het land. De wet werd even...
+- [Gameplatform Roblox aangeklaagd in VS vanwege 'gevaar voor kinderen'](https://nos.nl/l/2603261)
+  > In de VS zijn de makers van het populaire gameplatform Roblox aangeklaagd omdat kinderen blootgesteld zouden worden aan seksuele inhoud en online...
+- [Door Trump verwijderde slavernijpanelen teruggeplaatst op last van rechter](https://nos.nl/l/2603260)
+  > In de Amerikaanse stad Philadelphia zijn panelen teruggeplaatst waarop het verhaal wordt verteld van negen mensen die daar door George Washington als...
+- [Doorrekening kabinetsplannen: lagere inkomens harder geraakt, NAVO-norm wel gehaald](https://nos.nl/l/2603256)
+  > De nieuwe plannen van het aanstaand kabinet pakken slechter uit voor mensen met een laag inkomen. Terwijl de meeste mensen er nog wel iets op...
+- [Friese brandweer stopt met PFAS-blusschuim: 'Verantwoordelijkheid nemen'](https://nos.nl/l/2603254)
+  > De brandweer in Friesland stopt met het gebruiken van blusschuim en schakelt over naar water. In het schuim zit PFAS.
+        Jaren geleden werd al...
+- [Ouder echtpaar overleed door amfetamine-olie in jeneverfles](https://nos.nl/l/2603252)
+  > De politie van Hilversum vraagt om tips na de dood van een bejaard echtpaar, drie jaar geleden. De man en vrouw bleken nietsvermoedend...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Sophie Turner en Kit Harington moesten kokhalzen na ‘walgelijke’ filmkus: ‘Oh jee... dat is mijn broer’](https://www.ad.nl/show/sophie-turner-en-kit-harington-moesten-kokhalzen-na-walgelijke-filmkus-oh-jee-dat-is-mijn-broer~a4101bae/)
-  > Sophie Turner en Kit Harington zijn dit keer geen broer en zus, maar geliefden in hun nieuwe film The Dreadful. De acteurs, die samen opgroeiden op...
-- [Britse kranten meedogenloos voor Andrew: ‘Moderne monarchie in diepste crisis gesleurd’](https://www.ad.nl/buitenland/britse-kranten-meedogenloos-voor-andrew-moderne-monarchie-in-diepste-crisis-gesleurd~a40bb712/)
-  > De Britse voorpagina’s pakken vrijdagochtend, zoals verwacht, uit met de eerste koninklijke arrestatie in ruim 350 jaar. ‘Een van de zwartste dagen...
-- [Alysa Liu wint eerste gouden medaille in 24 jaar voor Amerikaanse kunstschaatssters](https://www.ad.nl/olympische-spelen/alysa-liu-wint-eerste-gouden-medaille-in-24-jaar-voor-amerikaanse-kunstschaatssters~a09e379f/)
-  > Het laatste weekend van de Olympische Winterspelen is aangebroken. Op vrijdag zijn er naast medailles in het schaatsen en shorttrack ook olympische...
-- [Positieve start voor teamgenoot Max Verstappen tijdens ochtendsessie in Bahrein](https://www.ad.nl/formule-1/positieve-start-voor-teamgenoot-max-verstappen-tijdens-ochtendsessie-in-bahrein~aa9414119/)
+- [Andrew is letterlijk en figuurlijk gevloerd en niemand die hem nog beschermt, eindelijk](https://www.ad.nl/binnenland/andrew-is-letterlijk-en-figuurlijk-gevloerd-en-niemand-die-hem-nog-beschermt-eindelijk~a1a2c0a36/)
+  > Die ene foto van een gevloerde Andrew zegt alles, schrijft Angela de Jong. ‘De ‘notabelen’ rond Epstein waanden ze onschendbaar. Maar dat is niet...
+- [Rommelige ochtendsessie voor teamgenoot Max Verstappen, productief Ferrari maakt veel indruk](https://www.ad.nl/formule-1/rommelige-ochtendsessie-voor-teamgenoot-max-verstappen-productief-ferrari-maakt-veel-indruk~aa9414119/)
   > De laatste testdag in Bahrein is aangebroken. Red Bull Racing verdeelt vandaag de taken op het Bahrain International Circuit. Max Verstappen komt in...
-- [Heel vaak zat Stan er voor niks, tot hij deze foto maakte: ‘Mijn gezin verklaarde me voor gek’](https://www.ad.nl/feelgood/heel-vaak-zat-stan-er-voor-niks-tot-hij-deze-foto-maakte-mijn-gezin-verklaarde-me-voor-gek~a6e61b7f/)
-  > Meer dan vierduizend keer klikt fotograaf Stan Bouman op het knopje van zijn toestel en ineens is daar de euforie: een zwaaiende eekhoorn. Met deze...
+- [Na Premier League mist Michael van Gerwen ook toernooi in Polen wegens ‘medisch probleem’](https://www.ad.nl/darts/na-premier-league-mist-michael-van-gerwen-ook-toernooi-in-polen-wegens-medisch-probleem~ae785f81/)
+  > Michael van Gerwen heeft zich afgemeld voor de Poland Darts Open. De Nederlandse darter liet afgelopen donderdag de Premier League ook al schieten....
+- [U2 haalt uit naar Poetin en ICE met nieuwe muziek: ‘Nummers waren ongeduldig’](https://www.ad.nl/show/u2-haalt-uit-naar-poetin-en-ice-met-nieuwe-muziek-nummers-waren-ongeduldig~a6aca765/)
+  > De Ierse rockband U2 heeft woensdag nieuwe muziek uitgebracht, met medewerking van onder meer Ed Sheeran en een Oekraïense soldaat. In de zes nieuwe...
+- [Praat mee: gezien alle ophef rond buitenlandse monarchieën mogen we blij zijn met ons eigen koningshuis](https://www.ad.nl/praat-mee/praat-mee-gezien-alle-ophef-rond-buitenlandse-monarchieen-mogen-we-blij-zijn-met-ons-eigen-koningshuis~a603872f/)
+  > Er is veel te doen rond de Europese koningshuizen, zeker nadat voormalig prins Andrew donderdag werd gearresteerd. Ex-prins of niet, het oppakken van...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Frietbakkers Franky en Coen in Oekraïne: ‘Dit moet voor ons geen kamikaze worden’](https://fd.nl/bedrijfsleven/1587011/frietbakkers-franky-en-coen-in-oekraine-dit-moet-voor-ons-geen-kamikaze-worden)
-  > Al vier jaar delen Franky en Coen in Oekraïne gratis friet uit. Meer dan eens ontsnapten de snackbarhouders aan de dood. ‘Alle buitenlanders die je...
-- [Waar de bevolking krimpt ontstaan ook kansen](https://fd.nl/opinie/1586852/waar-de-bevolking-krimpt-ontstaan-ook-kansen)
-  > Ze staan hoog op de agenda: zorgen over het dalende geboortecijfer. Maar een kleinere bevolking maakt het ook mogelijk om werk efficiënter in te...
-- [VS importeren voor het eerst in decennia meer uit Taiwan dan China](https://fd.nl/bedrijfsleven/1587107/vs-importeren-voor-het-eerst-in-decennia-meer-uit-taiwan-dan-china)
-  > Voor het eerst in tientallen jaren importeert de VS meer uit Taiwan dan uit China. Dit heeft te maken met importheffingen en een grote vraag naar...
-- [Venezuela keurt beperkte amnestiewet goed](https://fd.nl/politiek/1587191/venezuela-keurt-beperkte-amnestiewet-goed)
-  > Het parlement van Venezuela heeft een wet goedgekeurd die honderden gevangen vrij kan laten, maar bepalingen sluiten mogelijk ook veel mensen uit.
-- [Live: Europese beurzen gaan hogere opening tegemoet, olie voorbij $72](https://fd.nl/financiele-markten/1587190/live-aziatische-beurzen-onder-druk)
-  > De koersuitslagen liepen gisteren opvallend ver uiteen, met forse stijgers en stevige dalers. Vandaag volgen belangrijke macro-economische cijfers...
+- [Dubravka Suica is de gebeten hond op Trumps Vredesberaad](https://fd.nl/politiek/1587192/dubravka-suica-is-de-gebeten-hond-op-trumps-vredesberaad)
+  > Volgens Brussel moest de EU als grootste donor aan Palestina aanwezig zijn bij de Board of Peace van president Trump. Daar denken veel lidstaten...
+- [Theater als thema en petite haute couture](https://fd.nl/samenleving/1586814/theater-als-thema-en-petite-haute-couture)
+  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
+- [Amsterdam en chemiebedrijf trekken woningbouw in Hamerkwartier vlot](https://fd.nl/bedrijfsleven/1587110/amsterdam-en-chemiebedrijf-trekken-woningbouw-in-hamerkwartier-vlot)
+  > Chemiebedrijf Ketjen vreesde klachten van nieuwe bewoners vanwege licht- en geluidsopverlast. De Raad van State ging daarin mee. Nu ligt er een...
+- [CPB: hoge uitgaven coalitie doen staatsschuld oplopen](https://fd.nl/politiek/1587109/cpb-hoge-uitgaven-coalitie-doen-staatsschuld-oplopen)
+  > Vooral in de jaren na 2030 gaat de staatsschuld omhoog, aldus het planbureau. Op korte termijn zal het begrotingstekort meevallen, omdat niet alle...
+- [Nederland preekt over digitale soevereiniteit maar koopt tegelijk afhankelijkheid](https://fd.nl/opinie/1587081/nederland-preekt-wel-over-digitale-soevereiniteit-maar-koopt-tegelijkertijd-afhankelijkheid)
+  > Terwijl de politiek de mond vol heeft van soevereiniteit, mogen staatsdeelnemingen als NS vrolijk verder met uitbesteden. Een mooie strategie op...
 
 ### Meest gelezen
 
