@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-02-2026 om 21:52*
+*Laatst bijgewerkt: 20-02-2026 om 23:00*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Schoof blikt terug op premierschap: ‘Toen ze me vroegen dacht ik dat het een uit de hand gelopen grap was’](https://www.ad.nl/politiek/schoof-blikt-terug-op-premierschap-toen-ze-me-vroegen-dacht-ik-dat-het-een-uit-de-hand-gelopen-grap-was~a26e1090/)
+  > Dick Schoof geeft zijn eigen premierschap een rapportcijfer dat ‘ergens tussen 6 en 7’ ligt. In zijn afscheidsinterview met journalist Sven...
+- [Met finale in zicht valt Xandra Velzeboer door gat in het ijs, ook Suzanne Schulting en zus Michelle onderuit](https://www.ad.nl/olympische-spelen/met-finale-in-zicht-valt-xandra-velzeboer-door-gat-in-het-ijs-ook-suzanne-schulting-en-zus-michelle-onderuit~a24708ed/)
+  > De laatste individuele shorttrack-afstand van de Olympische Spelen is voor de Nederlandse vrouwen uitgelopen op een debacle. Xandra Velzeboer,...
+- [Verrassen­de transfer: Zakaria Labyad op aandringen van Memphis Depay naar Corinthians](https://www.ad.nl/voetbal/verrassende-transfer-zakaria-labyad-op-aandringen-van-memphis-depay-naar-corinthians~ad0cf1b9f/)
+  > Zakaria Labyad vervolgt zijn loopbaan bij Corinthians. De in Utrecht geboren voetballer wordt ploeggenoot van Memphis Depay, die zich hard heeft...
 - [ADO Den Haag steviger aan kop na zege in Helmond, Cambuur maakt in 97ste minuut nog gelijk tegen RKC](https://www.ad.nl/voetbal/ado-den-haag-steviger-aan-kop-na-zege-in-helmond-cambuur-maakt-in-97ste-minuut-nog-gelijk-tegen-rkc~a2764a80/)
   > ADO Den Haag is nog steviger aan kop gekomen in de Keuken Kampioen Divisie. De koploper won vrijdagavond met 1-3 bij Helmond Sport.
 - [Nederland evenaart dankzij dubbelslag record van meeste goud ooit op Winterspelen](https://www.ad.nl/olympische-spelen/nederland-evenaart-dankzij-dubbelslag-record-van-meeste-goud-ooit-op-winterspelen~a2772ec34/)
   > Hoeveel gouden medailles gaat Nederland pakken tijdens de Olympische Winterspelen 2026 in Milaan en Cortina d’Ampezzo? Hieronder kun je het...
-- [Gerard Joling had vóór Gordon ander ‘vinnig’ maatje en Lil Kleine zit onder de viezigheid](https://www.ad.nl/show/gerard-joling-had-voor-gordon-ander-vinnig-maatje-en-lil-kleine-zit-onder-de-viezigheid~ae00551e/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Fortuna Sittard wint dankzij penalty Ihattaren en kopbal Sierhuis van Excelsior](https://www.ad.nl/voetbal/fortuna-sittard-wint-dankzij-penalty-ihattaren-en-kopbal-sierhuis-van-excelsior~aae0ef84/)
-  > Fortuna Sittard heeft een belangrijke overwinning geboekt in de VriendenLoterij Eredivisie. Met dank aan een makkelijk gegeven penalty kort voor...
-- [Historisch goud! Nederlandse shorttrackers pakken op sublieme wijze olympische relaytitel](https://www.ad.nl/olympische-spelen/historisch-goud-nederlandse-shorttrackers-pakken-op-sublieme-wijze-olympische-relaytitel~a85739ec/)
-  > Historie! Opnieuw hebben de Nederlandse shorttrackers een gigantische mijlpaal bereikt. Nog nooit hadden de mannen een olympische relay-medaille...
 
 ### Meest gelezen
 
