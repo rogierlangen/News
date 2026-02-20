@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-02-2026 om 23:57*
+*Laatst bijgewerkt: 20-02-2026 om 05:08*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Grey's Anatomy-acteur Eric Dane (53) overleden](https://nos.nl/l/2603235)
+  > Acteur Eric Dane is op 53-jarige leeftijd overleden. Hij maakte vorig jaar bekend aan de progressieve spierziekte ALS te lijden.
+        Dane was...
+- [Venezuela keurt beperkte amnestiewet goed](https://nos.nl/l/2603234)
+  > Het door de partij van interim-president Rodríguez gedomineerde parlement heeft een wet goedgekeurd die kan leiden tot de vrijlating van meer...
+- [Man haalt stukken zeil van A1, Rijkswaterstaat: 'levensgevaarlijk'](https://nos.nl/l/2603233)
+  > Een man heeft gisterochtend zijn auto stilgezet op de linkerrijstrook van de A1 ter hoogte van Apeldoorn. Hij deed dat om stukken zeil die eerder op...
 - [Steeds meer kinderen slapen in België op straat, vooral in Brussel](https://nos.nl/l/2603232)
   > Kinderrechtenorganisaties in België slaan alarm omdat ze merken dat steeds meer kinderen noodgedwongen op straat slapen. Dat is vooral in Brussel het...
 - [Bergbeklimmer die vriendin achterliet op berg veroordeeld voor dood door schuld](https://nos.nl/l/2603231)
-  > De Oostenrijkse bergbeklimmer Thomas P. is veroordeeld voor dood door schuld. Met zijn vriendin beklom hij de Grossglockner, de hoogste berg van...
-- [NASA laakt Boeing om ernstige problemen Starliner-vlucht: 'bijna een ramp'](https://nos.nl/l/2603224)
-  > NASA-baas Jared Isaacman heeft hard uitgehaald naar Boeing voor de problemen met ruimtecapsule Starliner. Die problemen waren zeer ernstig en hadden...
-- [VVD in Zundert vindt zichzelf niet terug op de verkiezingsborden](https://nos.nl/l/2603219)
-  > In de gemeente Zundert hangen niet de verkiezingsposters van de VVD Zundert, maar die van de VVD Velsen op de borden.
-        Een opmerkelijke fout,...
-- [Oppositielid Statkevitsj na beroerte vrijgelaten in Belarus](https://nos.nl/l/2603217)
-  > Oppositielid en voormalig presidentskandidaat Nikolai Statkevitsj is vrijgelaten uit de gevangenis in Belarus. Hij herstelt volgens zijn vrouw van de...
+  > De Oostenrijkse bergbeklimmer Thomas P. is veroordeeld voor dood door schuld. Hij kreeg een voorwaardelijke celstraf opgelegd van vijf maanden. Met...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Justitie in New Mexico heropent onderzoek naar misbruik en mensenhandel op Zorro Ranch Epstein](https://www.ad.nl/buitenland/justitie-in-new-mexico-heropent-onderzoek-naar-misbruik-en-mensenhandel-op-zorro-ranch-epstein~ad17eb50/)
-  > De procureur-generaal van de Amerikaanse staat New Mexico heeft opdracht gegeven om het strafrechtelijk onderzoek naar beschuldigingen van illegale...
-- [Iran in brief aan VN: ‘We zullen militaire agressie beantwoorden’](https://www.ad.nl/buitenland/iran-in-brief-aan-vn-we-zullen-militaire-agressie-beantwoorden~a395cdaf/)
-  > Iran heeft aan VN-secretaris-generaal António Guterres laten weten dat Teheran de bases, faciliteiten en bezittingen van de ‘vijandige macht’ in de...
-- [Britse (23) loopt 24 jaar oud wereldrecord uit de boeken op 800 meter indoor, Femke Bol afwezig vanwege blessure](https://www.ad.nl/andere-sporten/britse-23-loopt-24-jaar-oud-wereldrecord-uit-de-boeken-op-800-meter-indoor-femke-bol-afwezig-vanwege-blessure~a2418bf2/)
-  > De Britse atlete Keely Hodgkinson (23) heeft een wereldrecord gelopen op de 800 meter indoor. In het Franse Liévin liep ze naar een tijd van 1.54,87,...
-- [AD Winterspelen Podcast | ‘Het leek bijna of Kjeld Nuis dit zelf geregisseerd had’](https://www.ad.nl/olympische-spelen/ad-winterspelen-podcast-het-leek-bijna-of-kjeld-nuis-dit-zelf-geregisseerd-had~a17ab614/)
-  > Kjeld Nuis flikt het bij zijn laatste olympische kunstje: brons op de 1500 meter, waar Jordan Stolz het heel verrassend moet afleggen tegen Zhongyan...
-- [Vrouw (33) vriest dood op berg in Oostenrijk nadat vriendje haar achterlaat, rechter acht hem schuldig](https://www.ad.nl/buitenland/vrouw-33-vriest-dood-op-berg-in-oostenrijk-nadat-vriendje-haar-achterlaat-rechter-acht-hem-schuldig~aff66119/)
-  > De man die vorig jaar zijn vriendin achterliet op een berg in Oostenrijk waarna zij overleed, is schuldig bevonden aan dood door schuld.
+- [Van Lockheed-affaire tot foute medische claims: Andrew is zeker niet het eerste koninklijke schandaal](https://www.ad.nl/show/van-lockheed-affaire-tot-foute-medische-claims-andrew-is-zeker-niet-het-eerste-koninklijke-schandaal~a4b36532/)
+  > Er was een tijd dat een vorst slechts verantwoording verschuldigd was aan één iemand: God. Die tijd is voorbij. Regels gelden tegenwoordig ook voor...
+- [Nasa voert succesvolle repetitie voor maanlancering uit](https://www.ad.nl/buitenland/nasa-voert-succesvolle-repetitie-voor-maanlancering-uit~ac7418e8/)
+  > Nasa heeft met succes een oefening uitgevoerd voor de lancering van zijn gigantische SLS-raket. Deze moet voor het eerst in meer dan 50 jaar...
+- [Venezolaans parlement keurt omstreden amnestiewet unaniem goed](https://www.ad.nl/buitenland/venezolaans-parlement-keurt-omstreden-amnestiewet-unaniem-goed~ac870e0d/)
+  > Het Venezolaanse parlement heeft een langverwachte amnestiewet goedgekeurd die ervoor zou kunnen zorgen dat honderden politieke gevangenen vrijkomen....
+- [Volop Nederlanders in actie: 1500 meter langebaan én laatste shorttrackmedailles worden verdeeld](https://www.ad.nl/olympische-spelen/volop-nederlanders-in-actie-1500-meter-langebaan-en-laatste-shorttrackmedailles-worden-verdeeld~a59689896/)
+  > Een vrijdag met drie kansen op eremetaal voor de Nederlanders op de Olympische Spelen in Milaan. In het shorttracktoernooi komen Suzanne Schulting,...
+- [Trump wil dossiers over buitenaards leven vrijgeven, Senaat Florida stemt in met hernoemen vliegveld naar president](https://www.ad.nl/buitenland/trump-wil-dossiers-over-buitenaards-leven-vrijgeven-senaat-florida-stemt-in-met-hernoemen-vliegveld-naar-president~ae67dd9c/)
+  > Het parlement van de Amerikaanse staat Florida heeft ingestemd met een wet die Palm Beach International Airport moet hernoemen naar president Donald...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Wat hadden de schilders van de naoorlogse kunstscene in Londen gemeen?](https://fd.nl/samenleving/1586885/wat-hadden-de-schilders-van-de-naoorlogse-kunstscene-in-londen-gemeen)
+  > Londen was nooit het hart van de kunstwereld, maar wel de thuishaven van een paar van de grootste naoorlogse schilders. Het Kunstmuseum in Den Haag...
+- [Kan de Britse regio Oxford-Cambridge het Silicon Valley van Europa worden?](https://fd.nl/tech-en-innovatie/1586896/kan-de-britse-regio-oxford-cambridge-het-silicon-valley-van-europa-worden)
+  > Aan roem, kennis en talent geen gebrek in Oxford en Cambridge. Aan schaal wel. Dus is er een initiatief om van het gebied tussen de steden een mekka...
+- [Na 30 jaar huwelijk begon Lucas een dubbelleven en vergokte hij bijna €380.000 van zijn schoonvader](https://fd.nl/samenleving/1586615/na-30-jaar-huwelijk-begon-lucas-een-dubbelleven-en-vergokte-hij-bijna-380-000-van-zijn-schoonvader)
+  > Zijn vrouw wist niet beter of Lucas ging gewoon naar zijn werk. Tot de deurwaarder op de stoep stond.
+- [Waarom de SER pleit voor acht weken mantelzorgverlof](https://fd.nl/economie/1587093/waarom-de-ser-pleit-voor-acht-weken-mantelzorgverlof)
+  > Vandaag in Dagkoers: SER pleit voor langer betaald mantelzorgverlof, Nestlé verkoopt ook hun ijstak en de pro’s en cons van ‘Europese kampioenen’.
 - [Koopkracht van zoetekauwen](https://fd.nl/opinie/1587044/koopkracht-van-zoetekauwen)
   > Vandaag verschijnt het: de CPB-doorrekening van het coalitieakkoord. Eindelijk horen we wat dat doet met de groei en het tekort. En met de koopkracht.
-- [Premier Rob, pak jij straks deze zakken ook nog ff op?](https://fd.nl/opinie/1586768/rob-pak-jij-straks-deze-zakken-ook-nog-ff-op)
-  > Maandag staan achttien ministers te bibberen op het bordes. Ze hebben 67 pagina’s aan goede voornemens, maar nog een hoop Haags vuilnis dat nog...
-- [Personalia vrijdag 20 februari 2026](https://fd.nl/bedrijfsleven/1587084/personalia-vrijdag-20-februari-2026)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Situatie rond VS en Iran duwt Amerikaanse beurzen naar beneden](https://fd.nl/financiele-markten/1587045/situatie-rond-vs-en-iran-duwt-amerikaanse-beurzen-naar-beneden)
-  > De koersborden op Wall Street kleurden donderdag lichtrood. Het sentiment werd vooral bepaald door zorgen over een gewapend conflict tussen de VS en...
-- [Amerikaanse aandelen blijven gewild](https://fd.nl/financiele-markten/1587046/amerikaanse-aandelen-blijven-gewild)
-  > Buitenlandse beleggers kochten in 2025 voor $720 mrd aan Amerikaanse aandelen, ondanks de door president Trump gevoerde handelsoorlogen.
 
 ### Meest gelezen
 
