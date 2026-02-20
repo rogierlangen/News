@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-02-2026 om 14:26*
+*Laatst bijgewerkt: 20-02-2026 om 17:09*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Van der Plas stopt als leider BBB, blijft wel Kamerlid](https://nos.nl/l/2603292)
-  > Caroline van der Plas legt het partijleiderschap van BBB neer. Ze draagt het over aan Tweede Kamerlid en mede-oprichter van de partij Henk Vermeer,...
-- [VS-correspondent ZDF teruggeroepen om AI-filmpje in reportage](https://nos.nl/l/2603286)
-  > De Duitse omroep ZDF heeft het hoofd van zijn correspondentenpost in New York per direct teruggeroepen vanwege het gebruik van AI. In een bijdrage...
-- [Gijzelnemer Corné H. krijgt geen voorrang in tbs-kliniek, bepaalt rechter](https://nos.nl/l/2603284)
-  > Gijzelnemer Corné H. krijgt geen voorrang op een plek in een tbs-kliniek. Dat heeft de rechtbank in Den Haag besloten. De advocaten van de...
-- [Tien arrestaties om verondersteld Russisch moordcomplot tegen Oekraïense top](https://nos.nl/l/2603283)
-  > Oekraïne en Moldavië hebben tien mensen gearresteerd die moordaanslagen zouden hebben gepland op hooggeplaatste Oekraïners, meldt de Oekraïense...
-- [Steeds meer winkels roepen speelzand terug om vondst asbest](https://nos.nl/l/2603275)
-  > Steeds meer winkels roepen speelzandproducten terug waar mogelijk asbest in zit. Naast winkelketens Action, Top1Toys en Marskramer roept ook HEMA...
+- [Oppositie ziet na doorrekening kansen om kabinetsplannen aan te passen](https://nos.nl/l/2603320)
+  > De CPB-doorrekening van de plannen van het nieuwe minderheidskabinet bewijzen volgens de meeste oppositiepartijen dat D66, VVD en CDA de rekening...
+- [VN: Iran moet duidelijkheid geven over demonstranten na bloedige protesten](https://nos.nl/l/2603315)
+  > Experts van de Verenigde Naties hebben Iran opgeroepen om transparant te zijn over wat er is gebeurd met de mensen die tijdens de recente massale...
+- [Hardleerse automobilist in Delft voor 32ste keer betrapt zonder rijbewijs](https://nos.nl/l/2603312)
+  > In Delft heeft de politie een bijzonder hardleerse automobilist van de weg gehaald: de man werd voor de 32ste keer aangehouden voor het rijden zonder...
+- [Rijinstructeurs en leerlingen onder invloed bij rijles in Zuid-Holland](https://nos.nl/l/2603308)
+  > Bij een grootschalige politiecontrole in Zoetermeer en Rijswijk zijn rijinstructeurs en hun leerlingen betrapt op rijden onder invloed. Twee...
+- [Amerikaanse Hooggerechtshof zet streep door importheffingen van Trump](https://nos.nl/l/2603302)
+  > Het Amerikaanse Hooggerechtshof heeft een streep gehaald door de importheffingen die president Trump heeft opgelegd aan tientallen landen. Ook de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Vlekkeloze middag voor Max Verstappen, teleurstellend Aston Martin al begonnen met opruimen](https://www.ad.nl/formule-1/vlekkeloze-middag-voor-max-verstappen-teleurstellend-aston-martin-al-begonnen-met-opruimen~aa9414119/)
-  > De laatste testdag in Bahrein is aangebroken. Red Bull Racing verdeelt vandaag de taken op het Bahrain International Circuit. Max Verstappen komt in...
-- [Caroline van der Plas stopt als leider BBB, Henk Vermeer volgt haar op](https://www.ad.nl/politiek/caroline-van-der-plas-stopt-als-leider-bbb-henk-vermeer-volgt-haar-op~ae2cbb60/)
-  > BBB-leider Caroline van der Plas doet een stap terug. Ze draagt het partijleiderschap over aan Tweede Kamerlid Henk Vermeer. Van der Plas blijft wel...
-- [Polsstoklegende Duplantis verhoogt zijn lat met muzikaal optreden op Zweedse televisie](https://www.ad.nl/andere-sporten/polsstoklegende-duplantis-verhoogt-zijn-lat-met-muzikaal-optreden-op-zweedse-televisie~ac6e86ff/)
-  > Hij is tweevoudig olympisch kampioen polsstokhoogspringen, maar Armand ‘Mondo’ Duplantis (26) blijkt ook over zangtalent te beschikken. Een fragment...
-- [Amsterdammer die Douwe Bob bedreigde na rel rond Joods voetbalevenement opnieuw opgepakt](https://www.ad.nl/binnenland/amsterdammer-die-douwe-bob-bedreigde-na-rel-rond-joods-voetbalevenement-opnieuw-opgepakt~a61b7c36/)
-  > Een 38-jarige man uit Amsterdam, die wordt verdacht van het bedreigen van zanger Douwe Bob, is opnieuw vastgezet. Hoewel de man enkele maanden op...
-- [Gijzelnemer Corné H. gaat niet met voorrang naar een tbs-kliniek, rechter wijst verzoek af](https://www.ad.nl/binnenland/gijzelnemer-corne-h-gaat-niet-met-voorrang-naar-een-tbs-kliniek-rechter-wijst-verzoek-af~a9b95a00/)
-  > Corné H., de man die wereldnieuws werd toen hij vier medewerkers van feestcafé Petticoat in Ede gijzelde, wordt niet per direct in een tbs-kliniek...
+- [Nog voor demonstratie geeft TU Delft al namen door aan politie: ‘Absoluut ontoelaatbaar’](https://www.ad.nl/binnenland/nog-voor-demonstratie-geeft-tu-delft-al-namen-door-aan-politie-absoluut-ontoelaatbaar~a95e4827b/)
+  > De TU Delft gaf de namen van klimaatactivisten door aan de politie nadat die daarom vroeg, nog voor de demonstratie. En dus spitst de toezichthouder...
+- [Max Verstappen krijgt tóch steun van Lando Norris en de ‘BBQ-vleugel’ van Ferrari: de opmerkelijkste zaken van de testdagen in Formule 1](https://www.ad.nl/formule-1/max-verstappen-krijgt-toch-steun-van-lando-norris-en-de-bbq-vleugel-van-ferrari-de-opmerkelijkste-zaken-van-de-testdagen-in-formule-1~a80b88d4/)
+  > Na drie besloten testdagen in Barcelona en zes openbare in Bahrein leven de elf Formule 1-teams vanaf morgen toe naar de eerste Grand Prix van het...
+- [Medaillespiegel | Nederland klimt dankzij zevende goud naar vierde plek](https://www.ad.nl/olympische-spelen/medaillespiegel-nederland-klimt-dankzij-zevende-goud-naar-vierde-plek~a2772ec34/)
+  > Hoeveel gouden medailles gaat Nederland pakken tijdens de Olympische Winterspelen 2026 in Milaan en Cortina d’Ampezzo? Hieronder kun je het...
+- [Fenomenaal! Antoinette Rijpma-de Jong snelt op 1500 meter naar haar eerste olympische titel](https://www.ad.nl/olympische-spelen/fenomenaal-antoinette-rijpma-de-jong-snelt-op-1500-meter-naar-haar-eerste-olympische-titel~a86f3602/)
+  > Dit is haar moment. Haar zesde olympische medaille is haar eerste gouden. Antoinette Rijpma-de Jong stunt op de 1500 meter en beleeft de mooiste dag...
+- [Actrice Femke Boersma, weduwe van Frits Bolkestein, op 90-jarige leeftijd overleden](https://www.ad.nl/show/actrice-femke-boersma-weduwe-van-frits-bolkestein-op-90-jarige-leeftijd-overleden~a91fc634/)
+  > Actrice Femke Boersma is op 90-jarige leeftijd overleden. Dat heeft haar familie vrijdag bekendgemaakt. Boersma was jarenlang getrouwd met...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Van der Plas stopt als partijleider BBB, Henk Vermeer neemt positie over](https://fd.nl/politiek/1587230/van-der-plas-stopt-als-partijleider-bbb-henk-vermeer-neemt-positie-over)
-  > Caroline van der Plas heeft volgens een verklaring al eerder aangegeven niet nog een keer lijsttrekker te willen zijn.
-- [Olie- en gasbedrijf Equinor trekt stekker uit bouw waterstoffabriek Eemshaven](https://fd.nl/bedrijfsleven/1587116/olie-en-gasbedrijf-equinor-trekt-stekker-uit-bouw-waterstoffabriek-eemshaven)
-  > De financiering voor het project kwam niet van de grond, en ook onzekerheid over het Nederlandse beleid heeft het project de das om gedaan.
-- [Frankrijk worstelt met een veel te lage inflatie](https://fd.nl/financiele-markten/1587021/frankrijk-worstelt-met-een-veel-te-lage-inflatie)
-  > Franse beleidsmakers vinden dat de ECB een veel te restrictief beleid voert, waardoor de bedrijvigheid wordt gedempt. Het echte probleem is de...
-- [Waarom je beter bang kunt zijn voor tractoren dan voor wolven](https://fd.nl/opinie/1586857/terechte-tractorfobie)
-  > Er bestaan steeds meer fobieën, constateert hoogleraar filosofie René ten Bos. Gelukkig lijkt de ene fobie de andere te kunnen overschaduwen. En zo...
-- [Schrijver Rashid Novaire duikt in trotse en pijnlijke familiegeschiedenis](https://fd.nl/bedrijfsleven/1586778/schrijver-novaire-duikt-in-trotse-en-pijnlijke-familiegeschiedenis)
-  > In zijn nieuwe roman schrijft Rashid Novaire over een zoektocht naar een verdwenen vader. Die tocht voert zijn hoofdpersoon naar Marokko waar hij...
+- [Record na record op Europese beurzen, maar hoelang nog?](https://fd.nl/financiele-markten/1587111/record-na-record-op-europese-beurzen-maar-hoelang-nog)
+  > Meerdere Europese beurzen tikten deze week recordstanden aan. Beleggers zien kansen nu zij minder afhankelijk willen worden van de VS.
+- [Terugval staalexport naar VS vergroot politieke druk op Europees Parlement](https://fd.nl/economie/1587227/terugval-staalexport-naar-vs-vergroot-politieke-druk-op-europees-parlement)
+  > De EU-staalexport naar de VS daalde in de tweede helft van 2025 met 30% door hogere Amerikaanse heffingen.  Een commissie van het Europees Parlement...
+- [OM seponeert onderzoek tegen weduwe van notaris Oranje](https://fd.nl/samenleving/1587234/om-seponeert-onderzoek-tegen-weduwe-van-notaris-oranje)
+  > Twee persoonlijke vennootschappen van de voormalige bestuursvoorzitter van advocatenkantoor Pels Rijcken krijgen een boete van €400.000 opgelegd.
+- [Amerikaanse Hooggerechtshof verwerpt Trumps importheffingen](https://fd.nl/politiek/1587232/amerikaanse-hooggerechtshof-verwerpt-trumps-importheffingen)
+  > President Donald Trump heeft zijn bevoegdheden overschreden door een federale noodwet aan te grijpen om zijn importheffingen in te stellen, aldus de...
+- [Trumps armada in Midden-Oosten maakt olie- en gasmarkten nerveus](https://fd.nl/financiele-markten/1587226/trumps-armada-in-midden-oosten-maakt-olie-en-gasmarkten-nerveus)
+  > De Amerikaanse oorlogsschepen in de Perzische Golf maken de markten nerveus. Een groot deel van de wereldwijde handel in olie en gas verloopt via...
 
 ### Meest gelezen
 
