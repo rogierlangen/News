@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-02-2026 om 05:08*
+*Laatst bijgewerkt: 20-02-2026 om 08:00*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Zuid-Koreaanse ex-president Yoon zegt sorry, maar vindt vonnis ook oneerlijk](https://nos.nl/l/2603243)
+  > De voormalige Zuid-Koreaanse president Yoon Suk-yeol heeft zijn excuses aangeboden voor de "ellende" en de politieke crisis die hij veroorzaakte met...
+- [Miljonairs Palm Beach in de herrie door omleidingen vliegverkeer om Trump](https://nos.nl/l/2603240)
+  > Opstijgende vliegtuigen scheren laag over de palmbomen en zwembaden van Palm Beach. Gesprekken vallen stil zodra een toestel overkomt. Niet bepaald...
+- [Wekdienst 20/2: Femke Kok schaatst 1500 meter • Coalitieakkoord doorgerekend](https://nos.nl/l/2603237)
+  > Goedemorgen! Schaatsster Femke Kok gaat voor haar derde medaille op de 1500 meter strijden en CPB en PBL presenteren de doorrekeningen van het...
 - [Grey's Anatomy-acteur Eric Dane (53) overleden](https://nos.nl/l/2603235)
   > Acteur Eric Dane is op 53-jarige leeftijd overleden. Hij maakte vorig jaar bekend aan de progressieve spierziekte ALS te lijden.
         Dane was...
 - [Venezuela keurt beperkte amnestiewet goed](https://nos.nl/l/2603234)
-  > Het door de partij van interim-president Rodríguez gedomineerde parlement heeft een wet goedgekeurd die kan leiden tot de vrijlating van meer...
-- [Man haalt stukken zeil van A1, Rijkswaterstaat: 'levensgevaarlijk'](https://nos.nl/l/2603233)
-  > Een man heeft gisterochtend zijn auto stilgezet op de linkerrijstrook van de A1 ter hoogte van Apeldoorn. Hij deed dat om stukken zeil die eerder op...
-- [Steeds meer kinderen slapen in België op straat, vooral in Brussel](https://nos.nl/l/2603232)
-  > Kinderrechtenorganisaties in België slaan alarm omdat ze merken dat steeds meer kinderen noodgedwongen op straat slapen. Dat is vooral in Brussel het...
-- [Bergbeklimmer die vriendin achterliet op berg veroordeeld voor dood door schuld](https://nos.nl/l/2603231)
-  > De Oostenrijkse bergbeklimmer Thomas P. is veroordeeld voor dood door schuld. Hij kreeg een voorwaardelijke celstraf opgelegd van vijf maanden. Met...
+  > Het parlement van Venezuela heeft een wet goedgekeurd die kan leiden tot de vrijlating van meer politieke gevangenen in het land. De wet werd even...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Van Lockheed-affaire tot foute medische claims: Andrew is zeker niet het eerste koninklijke schandaal](https://www.ad.nl/show/van-lockheed-affaire-tot-foute-medische-claims-andrew-is-zeker-niet-het-eerste-koninklijke-schandaal~a4b36532/)
-  > Er was een tijd dat een vorst slechts verantwoording verschuldigd was aan één iemand: God. Die tijd is voorbij. Regels gelden tegenwoordig ook voor...
-- [Nasa voert succesvolle repetitie voor maanlancering uit](https://www.ad.nl/buitenland/nasa-voert-succesvolle-repetitie-voor-maanlancering-uit~ac7418e8/)
-  > Nasa heeft met succes een oefening uitgevoerd voor de lancering van zijn gigantische SLS-raket. Deze moet voor het eerst in meer dan 50 jaar...
-- [Venezolaans parlement keurt omstreden amnestiewet unaniem goed](https://www.ad.nl/buitenland/venezolaans-parlement-keurt-omstreden-amnestiewet-unaniem-goed~ac870e0d/)
-  > Het Venezolaanse parlement heeft een langverwachte amnestiewet goedgekeurd die ervoor zou kunnen zorgen dat honderden politieke gevangenen vrijkomen....
-- [Volop Nederlanders in actie: 1500 meter langebaan én laatste shorttrackmedailles worden verdeeld](https://www.ad.nl/olympische-spelen/volop-nederlanders-in-actie-1500-meter-langebaan-en-laatste-shorttrackmedailles-worden-verdeeld~a59689896/)
-  > Een vrijdag met drie kansen op eremetaal voor de Nederlanders op de Olympische Spelen in Milaan. In het shorttracktoernooi komen Suzanne Schulting,...
-- [Trump wil dossiers over buitenaards leven vrijgeven, Senaat Florida stemt in met hernoemen vliegveld naar president](https://www.ad.nl/buitenland/trump-wil-dossiers-over-buitenaards-leven-vrijgeven-senaat-florida-stemt-in-met-hernoemen-vliegveld-naar-president~ae67dd9c/)
-  > Het parlement van de Amerikaanse staat Florida heeft ingestemd met een wet die Palm Beach International Airport moet hernoemen naar president Donald...
+- [Sophie Turner en Kit Harington moesten kokhalzen na ‘walgelijke’ filmkus: ‘Oh jee... dat is mijn broer’](https://www.ad.nl/show/sophie-turner-en-kit-harington-moesten-kokhalzen-na-walgelijke-filmkus-oh-jee-dat-is-mijn-broer~a4101bae/)
+  > Sophie Turner en Kit Harington zijn dit keer geen broer en zus, maar geliefden in hun nieuwe film The Dreadful. De acteurs, die samen opgroeiden op...
+- [Britse kranten meedogenloos voor Andrew: ‘Moderne monarchie in diepste crisis gesleurd’](https://www.ad.nl/buitenland/britse-kranten-meedogenloos-voor-andrew-moderne-monarchie-in-diepste-crisis-gesleurd~a40bb712/)
+  > De Britse voorpagina’s pakken vrijdagochtend, zoals verwacht, uit met de eerste koninklijke arrestatie in ruim 350 jaar. ‘Een van de zwartste dagen...
+- [Alysa Liu wint eerste gouden medaille in 24 jaar voor Amerikaanse kunstschaatssters](https://www.ad.nl/olympische-spelen/alysa-liu-wint-eerste-gouden-medaille-in-24-jaar-voor-amerikaanse-kunstschaatssters~a09e379f/)
+  > Het laatste weekend van de Olympische Winterspelen is aangebroken. Op vrijdag zijn er naast medailles in het schaatsen en shorttrack ook olympische...
+- [Positieve start voor teamgenoot Max Verstappen tijdens ochtendsessie in Bahrein](https://www.ad.nl/formule-1/positieve-start-voor-teamgenoot-max-verstappen-tijdens-ochtendsessie-in-bahrein~aa9414119/)
+  > De laatste testdag in Bahrein is aangebroken. Red Bull Racing verdeelt vandaag de taken op het Bahrain International Circuit. Max Verstappen komt in...
+- [Heel vaak zat Stan er voor niks, tot hij deze foto maakte: ‘Mijn gezin verklaarde me voor gek’](https://www.ad.nl/feelgood/heel-vaak-zat-stan-er-voor-niks-tot-hij-deze-foto-maakte-mijn-gezin-verklaarde-me-voor-gek~a6e61b7f/)
+  > Meer dan vierduizend keer klikt fotograaf Stan Bouman op het knopje van zijn toestel en ineens is daar de euforie: een zwaaiende eekhoorn. Met deze...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Wat hadden de schilders van de naoorlogse kunstscene in Londen gemeen?](https://fd.nl/samenleving/1586885/wat-hadden-de-schilders-van-de-naoorlogse-kunstscene-in-londen-gemeen)
-  > Londen was nooit het hart van de kunstwereld, maar wel de thuishaven van een paar van de grootste naoorlogse schilders. Het Kunstmuseum in Den Haag...
-- [Kan de Britse regio Oxford-Cambridge het Silicon Valley van Europa worden?](https://fd.nl/tech-en-innovatie/1586896/kan-de-britse-regio-oxford-cambridge-het-silicon-valley-van-europa-worden)
-  > Aan roem, kennis en talent geen gebrek in Oxford en Cambridge. Aan schaal wel. Dus is er een initiatief om van het gebied tussen de steden een mekka...
-- [Na 30 jaar huwelijk begon Lucas een dubbelleven en vergokte hij bijna €380.000 van zijn schoonvader](https://fd.nl/samenleving/1586615/na-30-jaar-huwelijk-begon-lucas-een-dubbelleven-en-vergokte-hij-bijna-380-000-van-zijn-schoonvader)
-  > Zijn vrouw wist niet beter of Lucas ging gewoon naar zijn werk. Tot de deurwaarder op de stoep stond.
-- [Waarom de SER pleit voor acht weken mantelzorgverlof](https://fd.nl/economie/1587093/waarom-de-ser-pleit-voor-acht-weken-mantelzorgverlof)
-  > Vandaag in Dagkoers: SER pleit voor langer betaald mantelzorgverlof, Nestlé verkoopt ook hun ijstak en de pro’s en cons van ‘Europese kampioenen’.
-- [Koopkracht van zoetekauwen](https://fd.nl/opinie/1587044/koopkracht-van-zoetekauwen)
-  > Vandaag verschijnt het: de CPB-doorrekening van het coalitieakkoord. Eindelijk horen we wat dat doet met de groei en het tekort. En met de koopkracht.
+- [Frietbakkers Franky en Coen in Oekraïne: ‘Dit moet voor ons geen kamikaze worden’](https://fd.nl/bedrijfsleven/1587011/frietbakkers-franky-en-coen-in-oekraine-dit-moet-voor-ons-geen-kamikaze-worden)
+  > Al vier jaar delen Franky en Coen in Oekraïne gratis friet uit. Meer dan eens ontsnapten de snackbarhouders aan de dood. ‘Alle buitenlanders die je...
+- [Waar de bevolking krimpt ontstaan ook kansen](https://fd.nl/opinie/1586852/waar-de-bevolking-krimpt-ontstaan-ook-kansen)
+  > Ze staan hoog op de agenda: zorgen over het dalende geboortecijfer. Maar een kleinere bevolking maakt het ook mogelijk om werk efficiënter in te...
+- [VS importeren voor het eerst in decennia meer uit Taiwan dan China](https://fd.nl/bedrijfsleven/1587107/vs-importeren-voor-het-eerst-in-decennia-meer-uit-taiwan-dan-china)
+  > Voor het eerst in tientallen jaren importeert de VS meer uit Taiwan dan uit China. Dit heeft te maken met importheffingen en een grote vraag naar...
+- [Venezuela keurt beperkte amnestiewet goed](https://fd.nl/politiek/1587191/venezuela-keurt-beperkte-amnestiewet-goed)
+  > Het parlement van Venezuela heeft een wet goedgekeurd die honderden gevangen vrij kan laten, maar bepalingen sluiten mogelijk ook veel mensen uit.
+- [Live: Europese beurzen gaan hogere opening tegemoet, olie voorbij $72](https://fd.nl/financiele-markten/1587190/live-aziatische-beurzen-onder-druk)
+  > De koersuitslagen liepen gisteren opvallend ver uiteen, met forse stijgers en stevige dalers. Vandaag volgen belangrijke macro-economische cijfers...
 
 ### Meest gelezen
 
