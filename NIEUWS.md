@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-02-2026 om 19:49*
+*Laatst bijgewerkt: 20-02-2026 om 20:57*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Sagrada Família in Barcelona heeft na 144 jaar zijn hoogste punt bereikt](https://nos.nl/l/2603350)
+  > De beroemde basiliek Sagrada Família in Barcelona heeft zijn hoogste punt bereikt. Vandaag is het kruis op de centrale Jezus Christus-toren voltooid....
+- [Trump teleurgesteld in Hooggerechtshof, stopt niet met heffingenbeleid](https://nos.nl/l/2603347)
+  > De Amerikaanse president Trump is niet van plan te stoppen met importheffingen voor andere landen. Hij wil wereldwijd een nieuwe heffing van 10...
+- [Met Henk Vermeer als BBB-leider wordt populaire Mona Keijzer gepasseerd](https://nos.nl/l/2603345)
+  > Er is sprake van een richtingenstrijd binnen de Boer Burger Beweging (BBB). Het partijbestuur wil terug naar de agrarische oorsprong en passeert...
 - [Gulle donateur schenkt kilo's goud aan Osaka voor herstel waterleiding](https://nos.nl/l/2603343)
   > Een gulle, anonieme donateur heeft 21 kilo aan goudstaven geschonken aan de Japanse stad Osaka. Dat heeft burgemeester Hideyuki Yokoyama...
 - [Vier van de vijf verdachten in zaak tegen groep soevereinen komen vrij](https://nos.nl/l/2603339)
   > Vier van de vijf verdachten in een groot proces dat draait om een groep vermeende soevereinen, mogen de inhoudelijke behandeling van de strafzaak in...
-- [Geen stroomaansluiting in Hillegom, 'Liander niet nalatig geweest'](https://nos.nl/l/2603338)
-  > Een netbeheerder kan niet verantwoordelijk worden gehouden voor het lange wachten op een stroomaansluiting. Dat heeft de rechter geoordeeld in een...
-- [Beveiligers Andrew ondervraagd, ook onderzoek naar mensensmokkel en uitbuiting](https://nos.nl/l/2603335)
-  > De politie in Londen zegt dat ze contact opneemt met voormalige en huidige beveiligers van Andrew Mountbatten-Windsor. De politie wil weten of ze...
-- [Amerikaanse president dreigt met aanval op Iran, hoe waarschijnlijk is die?](https://nos.nl/l/2603329)
-  > De spanningen tussen de Verenigde Staten en Iran blijven oplopen. Ondanks onderhandelingen over het nucleaire programma van Iran slaan beide landen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Cambuur thuis op achterstand tegen RKC, Helmond Sport maakt gelijk tegen ADO](https://www.ad.nl/voetbal/cambuur-thuis-op-achterstand-tegen-rkc-helmond-sport-maakt-gelijk-tegen-ado~a2764a80/)
-  > Zeven wedstrijden staan vanavond op het programma in de Keuken Kampioen Divisie. Koploper ADO Den Haag neemt het op tegen Helmond Sport, terwijl...
-- [Xandra Velzeboer en Suzanne Schulting naar halve finale 1500 meter, Michelle Velzeboer valt weer](https://www.ad.nl/olympische-spelen/xandra-velzeboer-en-suzanne-schulting-naar-halve-finale-1500-meter-michelle-velzeboer-valt-weer~a24708ed/)
-  > Het is de slotavond van het shorttracktoernooi op de Olympische Winterspelen, met opnieuw volop kans op medailles voor Nederland. Xandra Velzeboer...
-- [Gepest op de basisschool vanwege haar rode haar, maar nu voor altijd olympisch kampioen: ‘Ik hoop dat ik een voorbeeld ben’](https://www.ad.nl/olympische-spelen/gepest-op-de-basisschool-vanwege-haar-rode-haar-maar-nu-voor-altijd-olympisch-kampioen-ik-hoop-dat-ik-een-voorbeeld-ben~a810525f/)
-  > Dit is haar moment om te shinen. Haar zesde olympische medaille heeft de allermooiste kleur die ze nog niet had: goud op de 1500 meter. De ultieme...
-- [Reacties op de komst van Chinese webwinkel JD: ‘Ik hou mijn hart vast voor nieuwe bezorgers’](https://www.ad.nl/lezersbrieven/reacties-op-de-komst-van-chinese-webwinkel-jd-ik-hou-mijn-hart-vast-voor-nieuwe-bezorgers~a52426d2/)
-  > ‘Een absurd slecht idee om 1000 euro te verstrekken aan de omwonenden van het azc’ en  ‘Van alle pakket- en kleingoedbussen in Nederland is er bijna...
-- [Raheem Sterling is een wilde gok, een handige pr-stunt en potentieel jongensboekverhaal ineen](https://www.ad.nl/voetbal/raheem-sterling-is-een-wilde-gok-een-handige-pr-stunt-en-potentieel-jongensboekverhaal-ineen~a3adc829/)
-  > Columnist Sjoerd Mossou kan niet wachten tot het avontuur van Raheem Sterling echt begint bij Feyenoord. „De komst van Sterling is niet alleen een...
+- [Gerard Joling had vóór Gordon ander ‘vinnig’ maatje en Lil Kleine zit onder de viezigheid](https://www.ad.nl/show/gerard-joling-had-voor-gordon-ander-vinnig-maatje-en-lil-kleine-zit-onder-de-viezigheid~ae00551e/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Fortuna Sittard wint dankzij penalty Ihattaren en kopbal Sierhuis van Excelsior](https://www.ad.nl/voetbal/fortuna-sittard-wint-dankzij-penalty-ihattaren-en-kopbal-sierhuis-van-excelsior~aae0ef84/)
+  > Fortuna Sittard heeft een belangrijke overwinning geboekt in de VriendenLoterij Eredivisie. Met dank aan een makkelijk gegeven penalty kort voor...
+- [Historisch goud! Nederlandse shorttrackers pakken op sublieme wijze olympische relaytitel](https://www.ad.nl/olympische-spelen/historisch-goud-nederlandse-shorttrackers-pakken-op-sublieme-wijze-olympische-relaytitel~a85739ec/)
+  > De Nederlandse shorttrackers hebben op de Olympische Winterspelen goud gepakt op de aflossing. Het is de eerste medaille ooit voor Nederland op dit...
+- [Tristan (18) krijgt met gemak alle stoelen om: ‘Zit ik hier naar de winnaar van The Voice te kijken?’](https://www.ad.nl/show/tristan-18-krijgt-met-gemak-alle-stoelen-om-zit-ik-hier-naar-de-winnaar-van-the-voice-te-kijken~a6873bb8/)
+  > De 18-jarige Tristan Luijting uit Monnickendam heeft zichzelf vrijdagavond met het nummer Love Yourself van Justin Bieber naar een favorietenrol...
+- [Criminele kopstukken ‘Baco’ en ‘Zion’ aangehouden in Colombia: ‘Meer dan 4 ton coke per zending’](https://www.ad.nl/buitenland/criminele-kopstukken-baco-en-zion-aangehouden-in-colombia-meer-dan-4-ton-coke-per-zending~a0a2a195/)
+  > Op verzoek van de Nederlandse politie zijn in Colombia twee vermeende sleutelfiguren in de internationale cocaïnehandel aangehouden. Het zou gaan om...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Wall Street op winst na gesneuvelde Trump-heffingen](https://fd.nl/financiele-markten/1587143/wall-street-op-winst-na-gesneuvelde-trump-heffingen)
+  > De Wall Street-indices kwamen vrijdag op winst nadat het Amerikaanse Hooggerechtshof de Trump-heffingen van tafel veegde.
 - [Box 3-tussenstop mag geen eindhalte worden](https://fd.nl/opinie/1587193/box-3-tussenstop-mag-geen-eindhalte-worden)
   > Er was veel ophef over de nieuwe regels van Box 3. Vooral de belasting op papieren winst zit beleggers dwars.
 - [Record na record op Europese beurzen, maar hoelang nog?](https://fd.nl/financiele-markten/1587111/record-na-record-op-europese-beurzen-maar-hoelang-nog)
@@ -54,8 +56,6 @@
   > De EU-staalexport naar de VS daalde in de tweede helft van 2025 met 30% door hogere Amerikaanse heffingen.  Een commissie van het Europees Parlement...
 - [OM seponeert onderzoek tegen weduwe van notaris Oranje](https://fd.nl/samenleving/1587234/om-seponeert-onderzoek-tegen-weduwe-van-notaris-oranje)
   > Twee persoonlijke vennootschappen van de voormalige bestuursvoorzitter van advocatenkantoor Pels Rijcken krijgen een boete van €400.000 opgelegd.
-- [Amerikaanse Hooggerechtshof verwerpt Trumps importheffingen](https://fd.nl/politiek/1587232/amerikaanse-hooggerechtshof-verwerpt-trumps-importheffingen)
-  > In een reactie op de uitspraak maakte de Amerikaanse president bekend ‘met onmiddellijke ingang’ de importheffingen van 10% te herstellen op basis...
 
 ### Meest gelezen
 
