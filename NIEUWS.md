@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-02-2026 om 17:09*
+*Laatst bijgewerkt: 20-02-2026 om 19:49*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Oppositie ziet na doorrekening kansen om kabinetsplannen aan te passen](https://nos.nl/l/2603320)
-  > De CPB-doorrekening van de plannen van het nieuwe minderheidskabinet bewijzen volgens de meeste oppositiepartijen dat D66, VVD en CDA de rekening...
-- [VN: Iran moet duidelijkheid geven over demonstranten na bloedige protesten](https://nos.nl/l/2603315)
-  > Experts van de Verenigde Naties hebben Iran opgeroepen om transparant te zijn over wat er is gebeurd met de mensen die tijdens de recente massale...
-- [Hardleerse automobilist in Delft voor 32ste keer betrapt zonder rijbewijs](https://nos.nl/l/2603312)
-  > In Delft heeft de politie een bijzonder hardleerse automobilist van de weg gehaald: de man werd voor de 32ste keer aangehouden voor het rijden zonder...
-- [Rijinstructeurs en leerlingen onder invloed bij rijles in Zuid-Holland](https://nos.nl/l/2603308)
-  > Bij een grootschalige politiecontrole in Zoetermeer en Rijswijk zijn rijinstructeurs en hun leerlingen betrapt op rijden onder invloed. Twee...
-- [Amerikaanse Hooggerechtshof zet streep door importheffingen van Trump](https://nos.nl/l/2603302)
-  > Het Amerikaanse Hooggerechtshof heeft een streep gehaald door de importheffingen die president Trump heeft opgelegd aan tientallen landen. Ook de...
+- [Gulle donateur schenkt kilo's goud aan Osaka voor herstel waterleiding](https://nos.nl/l/2603343)
+  > Een gulle, anonieme donateur heeft 21 kilo aan goudstaven geschonken aan de Japanse stad Osaka. Dat heeft burgemeester Hideyuki Yokoyama...
+- [Vier van de vijf verdachten in zaak tegen groep soevereinen komen vrij](https://nos.nl/l/2603339)
+  > Vier van de vijf verdachten in een groot proces dat draait om een groep vermeende soevereinen, mogen de inhoudelijke behandeling van de strafzaak in...
+- [Geen stroomaansluiting in Hillegom, 'Liander niet nalatig geweest'](https://nos.nl/l/2603338)
+  > Een netbeheerder kan niet verantwoordelijk worden gehouden voor het lange wachten op een stroomaansluiting. Dat heeft de rechter geoordeeld in een...
+- [Beveiligers Andrew ondervraagd, ook onderzoek naar mensensmokkel en uitbuiting](https://nos.nl/l/2603335)
+  > De politie in Londen zegt dat ze contact opneemt met voormalige en huidige beveiligers van Andrew Mountbatten-Windsor. De politie wil weten of ze...
+- [Amerikaanse president dreigt met aanval op Iran, hoe waarschijnlijk is die?](https://nos.nl/l/2603329)
+  > De spanningen tussen de Verenigde Staten en Iran blijven oplopen. Ondanks onderhandelingen over het nucleaire programma van Iran slaan beide landen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nog voor demonstratie geeft TU Delft al namen door aan politie: ‘Absoluut ontoelaatbaar’](https://www.ad.nl/binnenland/nog-voor-demonstratie-geeft-tu-delft-al-namen-door-aan-politie-absoluut-ontoelaatbaar~a95e4827b/)
-  > De TU Delft gaf de namen van klimaatactivisten door aan de politie nadat die daarom vroeg, nog voor de demonstratie. En dus spitst de toezichthouder...
-- [Max Verstappen krijgt tóch steun van Lando Norris en de ‘BBQ-vleugel’ van Ferrari: de opmerkelijkste zaken van de testdagen in Formule 1](https://www.ad.nl/formule-1/max-verstappen-krijgt-toch-steun-van-lando-norris-en-de-bbq-vleugel-van-ferrari-de-opmerkelijkste-zaken-van-de-testdagen-in-formule-1~a80b88d4/)
-  > Na drie besloten testdagen in Barcelona en zes openbare in Bahrein leven de elf Formule 1-teams vanaf morgen toe naar de eerste Grand Prix van het...
-- [Medaillespiegel | Nederland klimt dankzij zevende goud naar vierde plek](https://www.ad.nl/olympische-spelen/medaillespiegel-nederland-klimt-dankzij-zevende-goud-naar-vierde-plek~a2772ec34/)
-  > Hoeveel gouden medailles gaat Nederland pakken tijdens de Olympische Winterspelen 2026 in Milaan en Cortina d’Ampezzo? Hieronder kun je het...
-- [Fenomenaal! Antoinette Rijpma-de Jong snelt op 1500 meter naar haar eerste olympische titel](https://www.ad.nl/olympische-spelen/fenomenaal-antoinette-rijpma-de-jong-snelt-op-1500-meter-naar-haar-eerste-olympische-titel~a86f3602/)
-  > Dit is haar moment. Haar zesde olympische medaille is haar eerste gouden. Antoinette Rijpma-de Jong stunt op de 1500 meter en beleeft de mooiste dag...
-- [Actrice Femke Boersma, weduwe van Frits Bolkestein, op 90-jarige leeftijd overleden](https://www.ad.nl/show/actrice-femke-boersma-weduwe-van-frits-bolkestein-op-90-jarige-leeftijd-overleden~a91fc634/)
-  > Actrice Femke Boersma is op 90-jarige leeftijd overleden. Dat heeft haar familie vrijdag bekendgemaakt. Boersma was jarenlang getrouwd met...
+- [Cambuur thuis op achterstand tegen RKC, Helmond Sport maakt gelijk tegen ADO](https://www.ad.nl/voetbal/cambuur-thuis-op-achterstand-tegen-rkc-helmond-sport-maakt-gelijk-tegen-ado~a2764a80/)
+  > Zeven wedstrijden staan vanavond op het programma in de Keuken Kampioen Divisie. Koploper ADO Den Haag neemt het op tegen Helmond Sport, terwijl...
+- [Xandra Velzeboer en Suzanne Schulting naar halve finale 1500 meter, Michelle Velzeboer valt weer](https://www.ad.nl/olympische-spelen/xandra-velzeboer-en-suzanne-schulting-naar-halve-finale-1500-meter-michelle-velzeboer-valt-weer~a24708ed/)
+  > Het is de slotavond van het shorttracktoernooi op de Olympische Winterspelen, met opnieuw volop kans op medailles voor Nederland. Xandra Velzeboer...
+- [Gepest op de basisschool vanwege haar rode haar, maar nu voor altijd olympisch kampioen: ‘Ik hoop dat ik een voorbeeld ben’](https://www.ad.nl/olympische-spelen/gepest-op-de-basisschool-vanwege-haar-rode-haar-maar-nu-voor-altijd-olympisch-kampioen-ik-hoop-dat-ik-een-voorbeeld-ben~a810525f/)
+  > Dit is haar moment om te shinen. Haar zesde olympische medaille heeft de allermooiste kleur die ze nog niet had: goud op de 1500 meter. De ultieme...
+- [Reacties op de komst van Chinese webwinkel JD: ‘Ik hou mijn hart vast voor nieuwe bezorgers’](https://www.ad.nl/lezersbrieven/reacties-op-de-komst-van-chinese-webwinkel-jd-ik-hou-mijn-hart-vast-voor-nieuwe-bezorgers~a52426d2/)
+  > ‘Een absurd slecht idee om 1000 euro te verstrekken aan de omwonenden van het azc’ en  ‘Van alle pakket- en kleingoedbussen in Nederland is er bijna...
+- [Raheem Sterling is een wilde gok, een handige pr-stunt en potentieel jongensboekverhaal ineen](https://www.ad.nl/voetbal/raheem-sterling-is-een-wilde-gok-een-handige-pr-stunt-en-potentieel-jongensboekverhaal-ineen~a3adc829/)
+  > Columnist Sjoerd Mossou kan niet wachten tot het avontuur van Raheem Sterling echt begint bij Feyenoord. „De komst van Sterling is niet alleen een...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Box 3-tussenstop mag geen eindhalte worden](https://fd.nl/opinie/1587193/box-3-tussenstop-mag-geen-eindhalte-worden)
+  > Er was veel ophef over de nieuwe regels van Box 3. Vooral de belasting op papieren winst zit beleggers dwars.
 - [Record na record op Europese beurzen, maar hoelang nog?](https://fd.nl/financiele-markten/1587111/record-na-record-op-europese-beurzen-maar-hoelang-nog)
   > Meerdere Europese beurzen tikten deze week recordstanden aan. Beleggers zien kansen nu zij minder afhankelijk willen worden van de VS.
 - [Terugval staalexport naar VS vergroot politieke druk op Europees Parlement](https://fd.nl/economie/1587227/terugval-staalexport-naar-vs-vergroot-politieke-druk-op-europees-parlement)
@@ -53,9 +55,7 @@
 - [OM seponeert onderzoek tegen weduwe van notaris Oranje](https://fd.nl/samenleving/1587234/om-seponeert-onderzoek-tegen-weduwe-van-notaris-oranje)
   > Twee persoonlijke vennootschappen van de voormalige bestuursvoorzitter van advocatenkantoor Pels Rijcken krijgen een boete van €400.000 opgelegd.
 - [Amerikaanse Hooggerechtshof verwerpt Trumps importheffingen](https://fd.nl/politiek/1587232/amerikaanse-hooggerechtshof-verwerpt-trumps-importheffingen)
-  > President Donald Trump heeft zijn bevoegdheden overschreden door een federale noodwet aan te grijpen om zijn importheffingen in te stellen, aldus de...
-- [Trumps armada in Midden-Oosten maakt olie- en gasmarkten nerveus](https://fd.nl/financiele-markten/1587226/trumps-armada-in-midden-oosten-maakt-olie-en-gasmarkten-nerveus)
-  > De Amerikaanse oorlogsschepen in de Perzische Golf maken de markten nerveus. Een groot deel van de wereldwijde handel in olie en gas verloopt via...
+  > In een reactie op de uitspraak maakte de Amerikaanse president bekend ‘met onmiddellijke ingang’ de importheffingen van 10% te herstellen op basis...
 
 ### Meest gelezen
 
