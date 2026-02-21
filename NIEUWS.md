@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-02-2026 om 13:54*
+*Laatst bijgewerkt: 21-02-2026 om 14:55*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Politie vindt zes verstekelingen in vrachtwagen bij veerboot](https://nos.nl/l/2603429)
+  > De zeehavenpolitie heeft gisteravond zes verstekelingen aangetroffen in een vrachtwagen. Dat gebeurde tijdens een grenscontrole bij een terminal voor...
 - [Zeeuws koppel gaat viraal met drukbezocht vogelhuisje](https://nos.nl/l/2603427)
   > Ze zijn er maar wat trots op, Bert en Lisette Huisman uit buurtschap Burghsluis op Schouwen-Duiveland. Vorige week gingen ze viraal met beelden van...
 - [Oude 'verzetsbunker' Soldaat van Oranje op definitieve plek geplaatst](https://nos.nl/l/2603421)
@@ -17,8 +19,6 @@
 - [Actrice Femke Boersma overleden, weduwe en tegenpool van Frits Bolkestein](https://nos.nl/l/2603414)
   > De actrice Femke Boersma, weduwe van de politicus Frits Bolkestein, is vorige week overleden, heeft haar familie bekendgemaakt. Ze was 90 jaar.
      ...
-- [Taken kabinet-Jetten officieel verdeeld, eindverslag overhandigd](https://nos.nl/l/2603412)
-  > Het nieuwe kabinet heeft vanmorgen zijn oprichtingsvergadering gehouden, het zogeheten constituerend beraad. Daarna heeft formateur Jetten zijn...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Jorrit Bergsma bijt spits af in halve finales massastart, later Groenewoud in actie](https://www.ad.nl/olympische-spelen/jorrit-bergsma-bijt-spits-af-in-halve-finales-massastart-later-groenewoud-in-actie~a68f4864/)
-  > Het is alweer tijd voor het laatste onderdeel van het schaatstoernooi: de massastart. De mannen en vrouwen moeten eerst een halve finale rijden en...
+- [Koploper PSV aast op revanche, Heerenveen won sinds 2009 niet meer in Eindhoven](https://www.ad.nl/voetbal/koploper-psv-aast-op-revanche-heerenveen-won-sinds-2009-niet-meer-in-eindhoven~af465c2f/)
+  > PSV ging vorige week verrassend onderuit op bezoek bij FC Volendam (2-1). De Eindhovenaren zijn nog wel ruimschoots koploper in de VriendenLoterij...
+- [Favoriete Marijke Groenewoud en Bente Kerkhoff strijden om finaleplaats op massastart](https://www.ad.nl/olympische-spelen/favoriete-marijke-groenewoud-en-bente-kerkhoff-strijden-om-finaleplaats-op-massastart~a68f4864/)
+  > Het is alweer tijd voor het laatste onderdeel van het schaatstoernooi: de massastart. Jorrit Bergsma en Stijn van de Bunt rijden om 16.40 uur de...
+- [Voor Adam moet een voertuig een beetje apart zijn: ‘Zo’n brandweerbus hoort bij mij’](https://www.ad.nl/auto/voor-adam-moet-een-voertuig-een-beetje-apart-zijn-zon-brandweerbus-hoort-bij-mij~a51a90ffe/)
+  > Adam Woods is dol op voertuigen met karakter. Niet zo gek dus dat de Amersfoortse ondernemer verliefd werd op een knalrode brandweerbus van Mercedes,...
 - [Duizenden Amerikanen verruilen VS voor Nederland: ‘Ik schaam me als mensen vragen waar ik vandaan kom’](https://www.ad.nl/binnenland/duizenden-amerikanen-verruilen-vs-voor-nederland-ik-schaam-me-als-mensen-vragen-waar-ik-vandaan-kom~a02d641e/)
   > Sinds Donald Trump is begonnen aan zijn tweede termijn, hebben duizenden Amerikanen de VS verruild voor Nederland. Ook het aantal Amerikanen in...
 - [Slowakije dreigt noodstroom Oekraïne af te sluiten om olieruzie](https://www.ad.nl/buitenland/slowakije-dreigt-noodstroom-oekraine-af-te-sluiten-om-olieruzie~adfb97be/)
   > De Slowaakse premier Robert Fico dreigt de noodstroomvoorziening aan Oekraïne stop te zetten, als dat land de olieleveringen niet hervat.  Zowel de...
-- [Nederlandse viermansbob tevreden na goede tweede heat, shorttrackster die schaats bij oog kreeg geopereerd](https://www.ad.nl/olympische-spelen/nederlandse-viermansbob-tevreden-na-goede-tweede-heat-shorttrackster-die-schaats-bij-oog-kreeg-geopereerd~a8f31934/)
-  > De Olympische Winterspelen van Milaan en Cortina d’Ampezzo naderen het einde. Op de voorlaatste dag staat er echter nog een mogelijk record te...
-- [Isaac del Toro wint laatste bergrit in UAE Tour en ligt op koers voor eindwinst](https://www.ad.nl/wielrennen/isaac-del-toro-wint-laatste-bergrit-in-uae-tour-en-ligt-op-koers-voor-eindwinst~ac756a6d/)
-  > Isaac del Toro heeft een optie genomen op de eindzege in de Ronde van de Verenigde Arabische Emiraten. De renner van UAE Team Emirates won de...
 
 ### Meest gelezen
 
