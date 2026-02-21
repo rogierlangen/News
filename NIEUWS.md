@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-02-2026 om 20:52*
+*Laatst bijgewerkt: 21-02-2026 om 21:48*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [NAC komt in slotfase op voorsprong in degradatiekraker tegen FC Volendam](https://www.ad.nl/voetbal/nac-komt-in-slotfase-op-voorsprong-in-degradatiekraker-tegen-fc-volendam~a8f193ee/)
-  > FC Volendam pakte vorige week drie verrassende punten door koploper PSV met 2-1 te verslaan. Vanavond vervolgt Volendam de VriendenLoterij Eredivisie...
-- [Zinderende ontknoping The winner takes it all: revanche jonge zangeres na gecanceld Voice-avontuur](https://www.ad.nl/show/zinderende-ontknoping-the-winner-takes-it-all-revanche-jonge-zangeres-na-gecanceld-voice-avontuur~a4c478f9/)
-  > Ze kwam, zong Édith Piaf wederom met verve en overwon. De 21-jarige conservatoriumstudente Pascale Kuiper uit het Groningse Winsum was zaterdagavond...
-- [Mika Godts blijft belangrijk voor Ajax: Belg scoort tegen NEC na fout van Sano](https://www.ad.nl/voetbal/mika-godts-blijft-belangrijk-voor-ajax-belg-scoort-tegen-nec-na-fout-van-sano~a89ae86a/)
+- [Acteur Eric Dane nam maanden voor zijn dood aangrijpende laatste woorden op voor zijn dochters: ‘Leef in het hier en nu’](https://www.ad.nl/show/acteur-eric-dane-nam-maanden-voor-zijn-dood-aangrijpende-laatste-woorden-op-voor-zijn-dochters-leef-in-het-hier-en-nu~a4056c1b/)
+  > Netflix heeft vrijdag het laatste interview met de aan ALS overleden Eric Dane (53) uitgebracht. Daarin vertelt de Grey’s Anatomy-acteur hoe hij zich...
+- [Marijke Groenewoud raakt verlovingsring bijna kwijt: ‘Had ‘m in de prullenbak laten vallen’](https://www.ad.nl/olympische-spelen/marijke-groenewoud-raakt-verlovingsring-bijna-kwijt-had-m-in-de-prullenbak-laten-vallen~a0b41799/)
+  > De Winterspelen hebben voor Marijke Groenewoud een wel heel bijzonder slot gekregen. De schaatsster won goud op de massastart, maar alsof dat nog...
+- [Ajax en NEC strijden in slotfase om zege, Berghuis na maanden terug op het veld](https://www.ad.nl/voetbal/ajax-en-nec-strijden-in-slotfase-om-zege-berghuis-na-maanden-terug-op-het-veld~a89ae86a/)
   > Een heerlijk affiche in de Johan Cruijff Arena: Ajax neemt het op tegen NEC. Beide clubs hebben 42 punten na 23 speelrondes in de VriendenLoterij...
-- [Dit is de winnaar van Pandora: ‘Het was een complete mindfuck’](https://www.ad.nl/show/dit-is-de-winnaar-van-pandora-het-was-een-complete-mindfuck~afe758da/)
-  > Vervloekingen, gekonkel en samenzweringen: kijkers van het RTL-realityprogramma Pandora smulden er de afgelopen weken van. De finale kende een...
-- [Oekraïne reageert woedend op dreigementen Hongarije en Slowakije om stroomvoorziening stop te zetten](https://www.ad.nl/buitenland/oekraine-reageert-woedend-op-dreigementen-hongarije-en-slowakije-om-stroomvoorziening-stop-te-zetten~adfb97be/)
-  > Oekraïne heeft woedend gereageerd op dreigementen van Hongarije en Slowakije om de elektriciteitsvoorziening aan het land stop te zetten. Het...
+- [Op wintersport naar Lech of Zürs? Toegangswegen van skiresorts in Oostenrijk afgesloten door lawine](https://www.ad.nl/buitenland/op-wintersport-naar-lech-of-zurs-toegangswegen-van-skiresorts-in-oostenrijk-afgesloten-door-lawine~aea168c9a/)
+  > Wie deze voorjaarsvakantie heeft genoten van een weekje in Zürs of Lech, moet nog iéts langer blijven. In het westen van Oostenrijk heeft een lawine...
+- [Sprookje in Breda: 17-jarige invaller schiet NAC naar belangrijke zege in degradatiekraker tegen FC Volendam](https://www.ad.nl/voetbal/sprookje-in-breda-17-jarige-invaller-schiet-nac-naar-belangrijke-zege-in-degradatiekraker-tegen-fc-volendam~a8f193ee/)
+  > NAC Breda heeft voor de tweede keer op rij belangrijke punten gepakt tegen een concurrent. Na de 0-1 zege bij Heracles van vorige week werd...
 
 ### Meest gelezen
 
