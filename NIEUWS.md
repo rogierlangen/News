@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-02-2026 om 14:55*
+*Laatst bijgewerkt: 21-02-2026 om 15:51*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Zo'n duizend mensen bij herdenkingsmars in Lyon voor gedode extreemrechtse activist](https://nos.nl/l/2603441)
+  > In Lyon zijn zo'n duizend mensen aanwezig bij een herdenkingsmars voor een extreemrechtse student. De 23-jarige Quentin Deranque overleed daar vorige...
+- [Twee KLM-toestellen op de grond gebotst op Schiphol, geen gewonden](https://nos.nl/l/2603437)
+  > Twee vliegtuigen van KLM zijn vanochtend tegen elkaar gebotst op Schiphol. Daarbij raakte niemand gewond, meldt KLM, die het incident "zeer...
+- [Protest in Den Haag tegen gezamenlijke woonvorm met statushouders, ME grijpt in](https://nos.nl/l/2603436)
+  > In Den Haag hebben enkele tientallen mensen gedemonstreerd tegen een alternatieve vorm van wonen. Bij het project komen onder anderen statushouders,...
 - [Politie vindt zes verstekelingen in vrachtwagen bij veerboot](https://nos.nl/l/2603429)
   > De zeehavenpolitie heeft gisteravond zes verstekelingen aangetroffen in een vrachtwagen. Dat gebeurde tijdens een grenscontrole bij een terminal voor...
 - [Zeeuws koppel gaat viraal met drukbezocht vogelhuisje](https://nos.nl/l/2603427)
   > Ze zijn er maar wat trots op, Bert en Lisette Huisman uit buurtschap Burghsluis op Schouwen-Duiveland. Vorige week gingen ze viraal met beelden van...
-- [Oude 'verzetsbunker' Soldaat van Oranje op definitieve plek geplaatst](https://nos.nl/l/2603421)
-  > Met een enorme takelwagen is gisteren een kleine bunker op z'n definitieve plek gehesen bij de Noordboulevard in Scheveningen. Het gaat om een oude...
-- [72 tijgers dood door virus in Thailand](https://nos.nl/l/2603420)
-  > In het noorden van Thailand zijn deze maand 72 tijgers in gevangenschap doodgegaan door vermoedelijk een zeer besmettelijk virus en een bacterie....
-- [Actrice Femke Boersma overleden, weduwe en tegenpool van Frits Bolkestein](https://nos.nl/l/2603414)
-  > De actrice Femke Boersma, weduwe van de politicus Frits Bolkestein, is vorige week overleden, heeft haar familie bekendgemaakt. Ze was 90 jaar.
-     ...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Koploper PSV aast op revanche, Heerenveen won sinds 2009 niet meer in Eindhoven](https://www.ad.nl/voetbal/koploper-psv-aast-op-revanche-heerenveen-won-sinds-2009-niet-meer-in-eindhoven~af465c2f/)
-  > PSV ging vorige week verrassend onderuit op bezoek bij FC Volendam (2-1). De Eindhovenaren zijn nog wel ruimschoots koploper in de VriendenLoterij...
-- [Favoriete Marijke Groenewoud en Bente Kerkhoff strijden om finaleplaats op massastart](https://www.ad.nl/olympische-spelen/favoriete-marijke-groenewoud-en-bente-kerkhoff-strijden-om-finaleplaats-op-massastart~a68f4864/)
+- [Jorrit Bergsma zorgt voor superstunt met goud op massastart door vroege aanval](https://www.ad.nl/olympische-spelen/jorrit-bergsma-zorgt-voor-superstunt-met-goud-op-massastart-door-vroege-aanval~a68f4864/)
   > Het is alweer tijd voor het laatste onderdeel van het schaatstoernooi: de massastart. Jorrit Bergsma en Stijn van de Bunt rijden om 16.40 uur de...
-- [Voor Adam moet een voertuig een beetje apart zijn: ‘Zo’n brandweerbus hoort bij mij’](https://www.ad.nl/auto/voor-adam-moet-een-voertuig-een-beetje-apart-zijn-zon-brandweerbus-hoort-bij-mij~a51a90ffe/)
-  > Adam Woods is dol op voertuigen met karakter. Niet zo gek dus dat de Amersfoortse ondernemer verliefd werd op een knalrode brandweerbus van Mercedes,...
-- [Duizenden Amerikanen verruilen VS voor Nederland: ‘Ik schaam me als mensen vragen waar ik vandaan kom’](https://www.ad.nl/binnenland/duizenden-amerikanen-verruilen-vs-voor-nederland-ik-schaam-me-als-mensen-vragen-waar-ik-vandaan-kom~a02d641e/)
-  > Sinds Donald Trump is begonnen aan zijn tweede termijn, hebben duizenden Amerikanen de VS verruild voor Nederland. Ook het aantal Amerikanen in...
-- [Slowakije dreigt noodstroom Oekraïne af te sluiten om olieruzie](https://www.ad.nl/buitenland/slowakije-dreigt-noodstroom-oekraine-af-te-sluiten-om-olieruzie~adfb97be/)
-  > De Slowaakse premier Robert Fico dreigt de noodstroomvoorziening aan Oekraïne stop te zetten, als dat land de olieleveringen niet hervat.  Zowel de...
+- [Goud! Jorrit Bergsma (40) verslaat Jordan Stolz en pakt olympische titel massastart dankzij geniale demarrage](https://www.ad.nl/olympische-spelen/goud-jorrit-bergsma-40-verslaat-jordan-stolz-en-pakt-olympische-titel-massastart-dankzij-geniale-demarrage~a8eb9245/)
+  > Jorrit Bergsma heeft op de Olympische Spelen in Milaan op geniale wijze goud gewonnen op de massastart. De 40-jarige Nederlander demarreerde vroeg in...
+- [Poolse shorttrackster die schaats in gezicht kreeg geeft update na operatie, nog onzekerheid over oog](https://www.ad.nl/olympische-spelen/poolse-shorttrackster-die-schaats-in-gezicht-kreeg-geeft-update-na-operatie-nog-onzekerheid-over-oog~af6eb4cc/)
+  > De Poolse shorttrackster Kamila Sellier was vrijdagavond betrokken bij een nare val in de kwartfinale van de 1500 meter. De Poolse kreeg een schaats...
+- [Wildspotten in Nederland, zo doe je dat: ‘Kijk daar, een vos! Net achter die rietkraag’](https://www.ad.nl/binnenland/wildspotten-in-nederland-zo-doe-je-dat-kijk-daar-een-vos-net-achter-die-rietkraag~afa64c46/)
+  > Voor een safari afreizen naar Afrika? Helemaal niet nodig. Natuurgids Paul Cosijn bewijst het met een hulpboek dat binnenkort verschijnt: Wildspotten...
+- [Twee vliegtuigen van KLM tegen elkaar gebotst op Schiphol: ‘Zeer uitzonderlijk’](https://www.ad.nl/binnenland/twee-vliegtuigen-van-klm-tegen-elkaar-gebotst-op-schiphol-zeer-uitzonderlijk~aabc42dd/)
+  > Twee vliegtuigen van KLM zijn zaterdagochtend op Schiphol tegen elkaar gebotst. Zo’n incident is volgens de luchtvaartmaatschappij ‘zeer...
 
 ### Meest gelezen
 
@@ -49,8 +48,8 @@
 
 - [Hoe de Chinese honger naar olie de Iraanse ayatollahs in het zadel houdt](https://fd.nl/economie/1586976/hoe-de-chinese-honger-naar-olie-de-iraanse-ayatollahs-in-het-zadel-houdt)
   > De politieke spanning rond Iran loopt op. China speelt een cruciale rol: door bijna alle Iraanse olie te kopen, helpt Peking de ayatollahs overleven.
-- [Vooral veel onzekerheid na verwerping Trumps importheffingen](https://fd.nl/economie/1587253/vooral-veel-onzekerheid-na-verwerping-trumps-importheffingen)
-  > Wereldleiders en bedrijven proberen duidelijk te krijgen wat de uitspraak betekent voor handelsakkoorden en bedrijfsvoering, terwijl Trump alweer een...
+- [Veel onzekerheid na verwerping importheffingen, Amerikaanse bedrijven overwegen claims](https://fd.nl/economie/1587253/vooral-veel-onzekerheid-na-verwerping-trumps-importheffingen)
+  > Wereldleiders proberen duidelijk te krijgen wat de uitspraak betekent voor handelsakkoorden en bedrijven overwegen claims. Ondertussen heeft Trump...
 - [Hongarije dwarsboomt EU-lening aan Oekraïne om oliepijpleiding](https://fd.nl/politiek/1587254/hongarije-dwarsboomt-eu-geld-naar-oekraine-om-oliepijpleiding)
   > Hongarije verwijt Oekraïne dat het land de reparaties aan de leiding bewust uitstelt als politieke strategie, wat Oekraïne ontkent.
 - [Amerikaanse techbedrijven zeggen $700 mrd toe voor Indiase AI-sector](https://fd.nl/economie/1587161/amerikaanse-techbedrijven-zeggen-700-mrd-toe-voor-indiase-ai-sector)
