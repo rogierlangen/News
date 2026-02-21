@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-02-2026 om 16:59*
+*Laatst bijgewerkt: 21-02-2026 om 17:54*
 
 ---
 
@@ -12,8 +12,8 @@
   > De Slowaakse premier Fico dreigt de noodstroomvoorziening aan Oekraïne af te sluiten als de olielevering naar zijn land niet wordt hervat. De aanvoer...
 - [Schietpartij midden in overdekt winkelcentrum Arnhem, één lichtgewonde](https://nos.nl/l/2603446)
   > Bij een schietpartij midden in het drukke winkelcentrum Kronenburg in Arnhem is vanmiddag iemand gewond geraakt. De politie heeft een verdachte...
-- [Zo'n duizend mensen bij herdenkingsmars in Lyon voor gedode extreemrechtse activist](https://nos.nl/l/2603441)
-  > In Lyon zijn zo'n duizend mensen aanwezig bij een herdenkingsmars voor een extreemrechtse student. De 23-jarige Quentin Deranque overleed daar vorige...
+- [Enkele duizenden bij herdenkingsmars in Lyon voor gedode extreemrechtse activist](https://nos.nl/l/2603441)
+  > In Lyon hebben enkele duizenden mensen deelgenomen aan een herdenkingsmars voor een extreemrechtse student. De 23-jarige Quentin Deranque overleed...
 - [Twee KLM-toestellen op de grond gebotst op Schiphol, geen gewonden](https://nos.nl/l/2603437)
   > Twee vliegtuigen van KLM zijn vanochtend tegen elkaar gebotst op Schiphol. Daarbij raakte niemand gewond, meldt KLM, die het incident "zeer...
 - [Protest in Den Haag tegen gezamenlijke woonvorm met statushouders, ME grijpt in](https://nos.nl/l/2603436)
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Heldenrol voor Zian Flemming: oud-Ajacied helpt Burnley in slotfase aan punt tegen Chelsea](https://www.ad.nl/voetbal/heldenrol-voor-zian-flemming-oud-ajacied-helpt-burnley-in-slotfase-aan-punt-tegen-chelsea~a56dd176/)
+  > Een heldenrol voor Zian Flemming bij Burnley. De 27-jarige spits uit Amsterdam was in de slotseconden verantwoordelijk voor de gelijkmaker tegen...
+- [Gouden dag voor Marijke Groenewoud compleet: vriend gaat na winnende race op één knie voor schaatsster](https://www.ad.nl/olympische-spelen/gouden-dag-voor-marijke-groenewoud-compleet-vriend-gaat-na-winnende-race-op-een-knie-voor-schaatsster~a0b41799/)
+  > De Winterspelen hebben voor Marijke Groenewoud een wel heel bijzonder slot gekregen. De schaatsster won goud op de massastart, maar alsof dat nog...
+- [Rutte leek onbeschermd door Den Haag te fietsen, dat was niet zo: zo werkt de beveiliging van een premier](https://www.ad.nl/politiek/rutte-leek-onbeschermd-door-den-haag-te-fietsen-dat-was-niet-zo-zo-werkt-de-beveiliging-van-een-premier~aed6b7531/)
+  > Rob Jetten moet eraan geloven binnenkort: als premier heeft hij altijd beveiliging in de buurt. Betrokkenen vertellen hoe ‘lastig’ Mark Rutte was met...
+- [Koploper PSV jaagt met spits Boadu op snelle treffer tegen Heerenveen, Jutta Leerdam op de tribune](https://www.ad.nl/voetbal/koploper-psv-jaagt-met-spits-boadu-op-snelle-treffer-tegen-heerenveen-jutta-leerdam-op-de-tribune~af465c2f/)
+  > PSV speelt in Eindhoven tegen Heerenveen. De ploeg van Peter Bosz verloor vorige week bij FC Volendam (2-1). Kan de koploper in de VriendenLoterij...
 - [Manon van KATSEYE neemt gezondheidspauze](https://www.ad.nl/show/manon-van-katseye-neemt-gezondheidspauze~ae13feb4/)
   > Manon Bannerman van de internationale meidengroep KATSEYE neemt voorlopig een pauze. Dat heeft de groep bekendgemaakt.
-- [Juventus in horizontale shirts opnieuw onderuit, Bayern München maakt het zichzelf moeilijk](https://www.ad.nl/voetbal/juventus-in-horizontale-shirts-opnieuw-onderuit-bayern-munchen-maakt-het-zichzelf-moeilijk~ace5f2ae/)
-  > Juventus heeft opnieuw een nederlaag geleden. De ploeg van coach Luciano Spalletti verloor voor eigen publiek in Turijn met 0-2 van Como.
-- [Marijke Groenewoud maakt favorietenrol volledig waar met magnifieke eindsprint op massastart](https://www.ad.nl/olympische-spelen/marijke-groenewoud-maakt-favorietenrol-volledig-waar-met-magnifieke-eindsprint-op-massastart~a68f4864/)
-  > Precies toen het moest transformeerde Marijke Groenewoud haar matige Winterspelen in Milaan tot een gouden herinnering voor het leven. Op de laatste...
-- [Trump verhoogt wereldwijde importheffing van 10 naar 15 procent en voert die per direct in](https://www.ad.nl/buitenland/trump-verhoogt-wereldwijde-importheffing-van-10-naar-15-procent-en-voert-die-per-direct-in~a0567c50/)
-  > Vrijdag kondigde Donald Trump nog een wereldwijde importheffing van 10 procent aan. Een dag later verhoogt hij de tarieven naar 15 procent. Dat laat...
-- [Jamal helpt jongeren die schulden hebben: ‘Ze doen enorm hun best, maar worden tegengewerkt door het systeem’](https://www.ad.nl/mezza/jamal-helpt-jongeren-die-schulden-hebben-ze-doen-enorm-hun-best-maar-worden-tegengewerkt-door-het-systeem~a6fb0647/)
-  > Voor Marlien (21), Dylan (22), Manon (19) en duizenden andere jongeren werd het ‘nu kopen, later betalen’ een nachtmerrie. Ervaringsdeskundige Jamal...
 
 ### Meest gelezen
 
@@ -48,8 +48,8 @@
 
 - [Hoe de Chinese honger naar olie de Iraanse ayatollahs in het zadel houdt](https://fd.nl/economie/1586976/hoe-de-chinese-honger-naar-olie-de-iraanse-ayatollahs-in-het-zadel-houdt)
   > De politieke spanning rond Iran loopt op. China speelt een cruciale rol: door bijna alle Iraanse olie te kopen, helpt Peking de ayatollahs overleven.
-- [Onzekerheid overheerst na verwerping importheffingen, Amerikaanse bedrijven overwegen claims](https://fd.nl/economie/1587253/vooral-veel-onzekerheid-na-verwerping-trumps-importheffingen)
-  > De Amerikaanse president Trump verhoogt alle heffingen niet naar 10% maar naar 15%, zo laat hij zaterdag weten. Intussen bereiden bedrijven claims...
+- [Bedrijven VS overwegen claims na verwerping importheffingen, Trump komt met tarief van 15%](https://fd.nl/economie/1587253/vooral-veel-onzekerheid-na-verwerping-trumps-importheffingen)
+  > De Amerikaanse president verhoogt alle heffingen niet naar 10% maar naar 15%, zo laat hij zaterdag weten. Intussen bereiden bedrijven claims voor...
 - [Hongarije dwarsboomt EU-lening aan Oekraïne om oliepijpleiding](https://fd.nl/politiek/1587254/hongarije-dwarsboomt-eu-geld-naar-oekraine-om-oliepijpleiding)
   > Hongarije verwijt Oekraïne dat het land de reparaties aan de leiding bewust uitstelt als politieke strategie, wat Oekraïne ontkent.
 - [Amerikaanse techbedrijven zeggen $700 mrd toe voor Indiase AI-sector](https://fd.nl/economie/1587161/amerikaanse-techbedrijven-zeggen-700-mrd-toe-voor-indiase-ai-sector)
