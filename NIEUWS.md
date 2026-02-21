@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-02-2026 om 17:54*
+*Laatst bijgewerkt: 21-02-2026 om 19:05*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Duizenden mensen bij drakenoptocht in Den Haag voor Chinees Nieuwjaar](https://nos.nl/l/2603475)
+  > In Den Haag hebben vanmiddag duizenden mensen een optocht ter ere van het Chinees Nieuwjaar bezocht. In de wijk Chinatown was een optocht met...
+- [AI-top India voorbij: drukte, ongemakkelijke momenten en vrijblijvende beloftes](https://nos.nl/l/2603471)
+  > Na vijf dagen zit een groots opgezette wereldtop over kunstmatige intelligentie in India erop. Tienduizenden mensen, kopstukken van techbedrijven en...
 - [Slowakije dreigt noodstroomvoorziening naar Oekraïne af te sluiten](https://nos.nl/l/2603454)
   > De Slowaakse premier Fico dreigt de noodstroomvoorziening aan Oekraïne af te sluiten als de olielevering naar zijn land niet wordt hervat. De aanvoer...
 - [Schietpartij midden in overdekt winkelcentrum Arnhem, één lichtgewonde](https://nos.nl/l/2603446)
   > Bij een schietpartij midden in het drukke winkelcentrum Kronenburg in Arnhem is vanmiddag iemand gewond geraakt. De politie heeft een verdachte...
 - [Enkele duizenden bij herdenkingsmars in Lyon voor gedode extreemrechtse activist](https://nos.nl/l/2603441)
   > In Lyon hebben enkele duizenden mensen deelgenomen aan een herdenkingsmars voor een extreemrechtse student. De 23-jarige Quentin Deranque overleed...
-- [Twee KLM-toestellen op de grond gebotst op Schiphol, geen gewonden](https://nos.nl/l/2603437)
-  > Twee vliegtuigen van KLM zijn vanochtend tegen elkaar gebotst op Schiphol. Daarbij raakte niemand gewond, meldt KLM, die het incident "zeer...
-- [Protest in Den Haag tegen gezamenlijke woonvorm met statushouders, ME grijpt in](https://nos.nl/l/2603436)
-  > In Den Haag hebben enkele tientallen mensen gedemonstreerd tegen een alternatieve vorm van wonen. Bij het project komen onder anderen statushouders,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Heldenrol voor Zian Flemming: oud-Ajacied helpt Burnley in slotfase aan punt tegen Chelsea](https://www.ad.nl/voetbal/heldenrol-voor-zian-flemming-oud-ajacied-helpt-burnley-in-slotfase-aan-punt-tegen-chelsea~a56dd176/)
-  > Een heldenrol voor Zian Flemming bij Burnley. De 27-jarige spits uit Amsterdam was in de slotseconden verantwoordelijk voor de gelijkmaker tegen...
-- [Gouden dag voor Marijke Groenewoud compleet: vriend gaat na winnende race op één knie voor schaatsster](https://www.ad.nl/olympische-spelen/gouden-dag-voor-marijke-groenewoud-compleet-vriend-gaat-na-winnende-race-op-een-knie-voor-schaatsster~a0b41799/)
-  > De Winterspelen hebben voor Marijke Groenewoud een wel heel bijzonder slot gekregen. De schaatsster won goud op de massastart, maar alsof dat nog...
-- [Rutte leek onbeschermd door Den Haag te fietsen, dat was niet zo: zo werkt de beveiliging van een premier](https://www.ad.nl/politiek/rutte-leek-onbeschermd-door-den-haag-te-fietsen-dat-was-niet-zo-zo-werkt-de-beveiliging-van-een-premier~aed6b7531/)
-  > Rob Jetten moet eraan geloven binnenkort: als premier heeft hij altijd beveiliging in de buurt. Betrokkenen vertellen hoe ‘lastig’ Mark Rutte was met...
-- [Koploper PSV jaagt met spits Boadu op snelle treffer tegen Heerenveen, Jutta Leerdam op de tribune](https://www.ad.nl/voetbal/koploper-psv-jaagt-met-spits-boadu-op-snelle-treffer-tegen-heerenveen-jutta-leerdam-op-de-tribune~af465c2f/)
-  > PSV speelt in Eindhoven tegen Heerenveen. De ploeg van Peter Bosz verloor vorige week bij FC Volendam (2-1). Kan de koploper in de VriendenLoterij...
-- [Manon van KATSEYE neemt gezondheidspauze](https://www.ad.nl/show/manon-van-katseye-neemt-gezondheidspauze~ae13feb4/)
-  > Manon Bannerman van de internationale meidengroep KATSEYE neemt voorlopig een pauze. Dat heeft de groep bekendgemaakt.
+- [NAC begonnen aan thuiswedstrijd tegen Volendam](https://www.ad.nl/voetbal/nac-begonnen-aan-thuiswedstrijd-tegen-volendam~a8f193ee/)
+  > FC Volendam pakte vorige week drie verrassende punten door koploper PSV met 2-1 te verslaan. Vanavond vervolgt Volendam de VriendenLoterij Eredivisie...
+- [Danny de Munk: ‘Jenny en ik hebben veel slangen buiten de deur moeten houden, daarom zijn we zo hecht’](https://www.ad.nl/show/danny-de-munk-jenny-en-ik-hebben-veel-slangen-buiten-de-deur-moeten-houden-daarom-zijn-we-zo-hecht~aa66b306/)
+  > Danny de Munk viert deze maand dat hij 40 jaar in het vak zit. In dit interview uit ons weekendmagazine Mezza praat hij openhartig over de lessen uit...
+- [Marijke Groenewoud totaal overrompeld: ‘Ik ga met goud en een zilveren ring naar huis’](https://www.ad.nl/olympische-spelen/marijke-groenewoud-totaal-overrompeld-ik-ga-met-goud-en-een-zilveren-ring-naar-huis~a56fa2b9/)
+  > Marijke Groenewoud begon haar laatste olympische schaatsdag met de hoop op olympisch goud op de massastart, maar ging naast goud ook naar huis met...
+- [Shorttrackclubs zijn weer booming na olympische successen: ‘Aanmeldingen stromen binnen’](https://www.ad.nl/olympische-spelen/shorttrackclubs-zijn-weer-booming-na-olympische-successen-aanmeldingen-stromen-binnen~ae7d49b2/)
+  > Shorttrackverenigingen plukken de vruchten van de goldrush op de Spelen. In navolging van kersverse olympisch kampioenen als Jens van ‘t Wout en...
+- [Fitz-Jim vervangt Klaassen bij Ajax, Paes onder de lat tegen oude club NEC](https://www.ad.nl/voetbal/fitz-jim-vervangt-klaassen-bij-ajax-paes-onder-de-lat-tegen-oude-club-nec~a89ae86a/)
+  > Een heerlijk affiche vanavond in de Johan Cruijff Arena: Ajax neemt het op tegen NEC. Beide clubs hebben 42 punten na 23 speelrondes in de...
 
 ### Meest gelezen
 
