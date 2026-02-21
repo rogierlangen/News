@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-02-2026 om 15:51*
+*Laatst bijgewerkt: 21-02-2026 om 16:59*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Slowakije dreigt noodstroomvoorziening naar Oekraïne af te sluiten](https://nos.nl/l/2603454)
+  > De Slowaakse premier Fico dreigt de noodstroomvoorziening aan Oekraïne af te sluiten als de olielevering naar zijn land niet wordt hervat. De aanvoer...
+- [Schietpartij midden in overdekt winkelcentrum Arnhem, één lichtgewonde](https://nos.nl/l/2603446)
+  > Bij een schietpartij midden in het drukke winkelcentrum Kronenburg in Arnhem is vanmiddag iemand gewond geraakt. De politie heeft een verdachte...
 - [Zo'n duizend mensen bij herdenkingsmars in Lyon voor gedode extreemrechtse activist](https://nos.nl/l/2603441)
   > In Lyon zijn zo'n duizend mensen aanwezig bij een herdenkingsmars voor een extreemrechtse student. De 23-jarige Quentin Deranque overleed daar vorige...
 - [Twee KLM-toestellen op de grond gebotst op Schiphol, geen gewonden](https://nos.nl/l/2603437)
   > Twee vliegtuigen van KLM zijn vanochtend tegen elkaar gebotst op Schiphol. Daarbij raakte niemand gewond, meldt KLM, die het incident "zeer...
 - [Protest in Den Haag tegen gezamenlijke woonvorm met statushouders, ME grijpt in](https://nos.nl/l/2603436)
   > In Den Haag hebben enkele tientallen mensen gedemonstreerd tegen een alternatieve vorm van wonen. Bij het project komen onder anderen statushouders,...
-- [Politie vindt zes verstekelingen in vrachtwagen bij veerboot](https://nos.nl/l/2603429)
-  > De zeehavenpolitie heeft gisteravond zes verstekelingen aangetroffen in een vrachtwagen. Dat gebeurde tijdens een grenscontrole bij een terminal voor...
-- [Zeeuws koppel gaat viraal met drukbezocht vogelhuisje](https://nos.nl/l/2603427)
-  > Ze zijn er maar wat trots op, Bert en Lisette Huisman uit buurtschap Burghsluis op Schouwen-Duiveland. Vorige week gingen ze viraal met beelden van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Jorrit Bergsma zorgt voor superstunt met goud op massastart door vroege aanval](https://www.ad.nl/olympische-spelen/jorrit-bergsma-zorgt-voor-superstunt-met-goud-op-massastart-door-vroege-aanval~a68f4864/)
-  > Het is alweer tijd voor het laatste onderdeel van het schaatstoernooi: de massastart. Jorrit Bergsma en Stijn van de Bunt rijden om 16.40 uur de...
-- [Goud! Jorrit Bergsma (40) verslaat Jordan Stolz en pakt olympische titel massastart dankzij geniale demarrage](https://www.ad.nl/olympische-spelen/goud-jorrit-bergsma-40-verslaat-jordan-stolz-en-pakt-olympische-titel-massastart-dankzij-geniale-demarrage~a8eb9245/)
-  > Jorrit Bergsma heeft op de Olympische Spelen in Milaan op geniale wijze goud gewonnen op de massastart. De 40-jarige Nederlander demarreerde vroeg in...
-- [Poolse shorttrackster die schaats in gezicht kreeg geeft update na operatie, nog onzekerheid over oog](https://www.ad.nl/olympische-spelen/poolse-shorttrackster-die-schaats-in-gezicht-kreeg-geeft-update-na-operatie-nog-onzekerheid-over-oog~af6eb4cc/)
-  > De Poolse shorttrackster Kamila Sellier was vrijdagavond betrokken bij een nare val in de kwartfinale van de 1500 meter. De Poolse kreeg een schaats...
-- [Wildspotten in Nederland, zo doe je dat: ‘Kijk daar, een vos! Net achter die rietkraag’](https://www.ad.nl/binnenland/wildspotten-in-nederland-zo-doe-je-dat-kijk-daar-een-vos-net-achter-die-rietkraag~afa64c46/)
-  > Voor een safari afreizen naar Afrika? Helemaal niet nodig. Natuurgids Paul Cosijn bewijst het met een hulpboek dat binnenkort verschijnt: Wildspotten...
-- [Twee vliegtuigen van KLM tegen elkaar gebotst op Schiphol: ‘Zeer uitzonderlijk’](https://www.ad.nl/binnenland/twee-vliegtuigen-van-klm-tegen-elkaar-gebotst-op-schiphol-zeer-uitzonderlijk~aabc42dd/)
-  > Twee vliegtuigen van KLM zijn zaterdagochtend op Schiphol tegen elkaar gebotst. Zo’n incident is volgens de luchtvaartmaatschappij ‘zeer...
+- [Manon van KATSEYE neemt gezondheidspauze](https://www.ad.nl/show/manon-van-katseye-neemt-gezondheidspauze~ae13feb4/)
+  > Manon Bannerman van de internationale meidengroep KATSEYE neemt voorlopig een pauze. Dat heeft de groep bekendgemaakt.
+- [Juventus in horizontale shirts opnieuw onderuit, Bayern München maakt het zichzelf moeilijk](https://www.ad.nl/voetbal/juventus-in-horizontale-shirts-opnieuw-onderuit-bayern-munchen-maakt-het-zichzelf-moeilijk~ace5f2ae/)
+  > Juventus heeft opnieuw een nederlaag geleden. De ploeg van coach Luciano Spalletti verloor voor eigen publiek in Turijn met 0-2 van Como.
+- [Marijke Groenewoud maakt favorietenrol volledig waar met magnifieke eindsprint op massastart](https://www.ad.nl/olympische-spelen/marijke-groenewoud-maakt-favorietenrol-volledig-waar-met-magnifieke-eindsprint-op-massastart~a68f4864/)
+  > Precies toen het moest transformeerde Marijke Groenewoud haar matige Winterspelen in Milaan tot een gouden herinnering voor het leven. Op de laatste...
+- [Trump verhoogt wereldwijde importheffing van 10 naar 15 procent en voert die per direct in](https://www.ad.nl/buitenland/trump-verhoogt-wereldwijde-importheffing-van-10-naar-15-procent-en-voert-die-per-direct-in~a0567c50/)
+  > Vrijdag kondigde Donald Trump nog een wereldwijde importheffing van 10 procent aan. Een dag later verhoogt hij de tarieven naar 15 procent. Dat laat...
+- [Jamal helpt jongeren die schulden hebben: ‘Ze doen enorm hun best, maar worden tegengewerkt door het systeem’](https://www.ad.nl/mezza/jamal-helpt-jongeren-die-schulden-hebben-ze-doen-enorm-hun-best-maar-worden-tegengewerkt-door-het-systeem~a6fb0647/)
+  > Voor Marlien (21), Dylan (22), Manon (19) en duizenden andere jongeren werd het ‘nu kopen, later betalen’ een nachtmerrie. Ervaringsdeskundige Jamal...
 
 ### Meest gelezen
 
@@ -48,8 +48,8 @@
 
 - [Hoe de Chinese honger naar olie de Iraanse ayatollahs in het zadel houdt](https://fd.nl/economie/1586976/hoe-de-chinese-honger-naar-olie-de-iraanse-ayatollahs-in-het-zadel-houdt)
   > De politieke spanning rond Iran loopt op. China speelt een cruciale rol: door bijna alle Iraanse olie te kopen, helpt Peking de ayatollahs overleven.
-- [Veel onzekerheid na verwerping importheffingen, Amerikaanse bedrijven overwegen claims](https://fd.nl/economie/1587253/vooral-veel-onzekerheid-na-verwerping-trumps-importheffingen)
-  > Wereldleiders proberen duidelijk te krijgen wat de uitspraak betekent voor handelsakkoorden en bedrijven overwegen claims. Ondertussen heeft Trump...
+- [Onzekerheid overheerst na verwerping importheffingen, Amerikaanse bedrijven overwegen claims](https://fd.nl/economie/1587253/vooral-veel-onzekerheid-na-verwerping-trumps-importheffingen)
+  > De Amerikaanse president Trump verhoogt alle heffingen niet naar 10% maar naar 15%, zo laat hij zaterdag weten. Intussen bereiden bedrijven claims...
 - [Hongarije dwarsboomt EU-lening aan Oekraïne om oliepijpleiding](https://fd.nl/politiek/1587254/hongarije-dwarsboomt-eu-geld-naar-oekraine-om-oliepijpleiding)
   > Hongarije verwijt Oekraïne dat het land de reparaties aan de leiding bewust uitstelt als politieke strategie, wat Oekraïne ontkent.
 - [Amerikaanse techbedrijven zeggen $700 mrd toe voor Indiase AI-sector](https://fd.nl/economie/1587161/amerikaanse-techbedrijven-zeggen-700-mrd-toe-voor-indiase-ai-sector)
