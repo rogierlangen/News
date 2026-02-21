@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-02-2026 om 19:05*
+*Laatst bijgewerkt: 21-02-2026 om 20:52*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [New Yorkse salsamuzikant Willie Colón (75) overleden](https://nos.nl/l/2603484)
+  > Salsatrombonist en zanger Willie Colón is op 75-jarige leeftijd overleden. Dat meldt zijn familie op sociale media. Colón overleed in New York, waar...
+- [Trump verhoogt wereldwijde nieuwe importheffing naar 15 procent](https://nos.nl/l/2603483)
+  > De Amerikaanse president Trump wil wereldwijd nieuwe importheffingen van 15 procent opleggen. Dat heeft hij aangekondigd via zijn platform Truth...
 - [Duizenden mensen bij drakenoptocht in Den Haag voor Chinees Nieuwjaar](https://nos.nl/l/2603475)
   > In Den Haag hebben vanmiddag duizenden mensen een optocht ter ere van het Chinees Nieuwjaar bezocht. In de wijk Chinatown was een optocht met...
 - [AI-top India voorbij: drukte, ongemakkelijke momenten en vrijblijvende beloftes](https://nos.nl/l/2603471)
   > Na vijf dagen zit een groots opgezette wereldtop over kunstmatige intelligentie in India erop. Tienduizenden mensen, kopstukken van techbedrijven en...
 - [Slowakije dreigt noodstroomvoorziening naar Oekraïne af te sluiten](https://nos.nl/l/2603454)
   > De Slowaakse premier Fico dreigt de noodstroomvoorziening aan Oekraïne af te sluiten als de olielevering naar zijn land niet wordt hervat. De aanvoer...
-- [Schietpartij midden in overdekt winkelcentrum Arnhem, één lichtgewonde](https://nos.nl/l/2603446)
-  > Bij een schietpartij midden in het drukke winkelcentrum Kronenburg in Arnhem is vanmiddag iemand gewond geraakt. De politie heeft een verdachte...
-- [Enkele duizenden bij herdenkingsmars in Lyon voor gedode extreemrechtse activist](https://nos.nl/l/2603441)
-  > In Lyon hebben enkele duizenden mensen deelgenomen aan een herdenkingsmars voor een extreemrechtse student. De 23-jarige Quentin Deranque overleed...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [NAC begonnen aan thuiswedstrijd tegen Volendam](https://www.ad.nl/voetbal/nac-begonnen-aan-thuiswedstrijd-tegen-volendam~a8f193ee/)
+- [NAC komt in slotfase op voorsprong in degradatiekraker tegen FC Volendam](https://www.ad.nl/voetbal/nac-komt-in-slotfase-op-voorsprong-in-degradatiekraker-tegen-fc-volendam~a8f193ee/)
   > FC Volendam pakte vorige week drie verrassende punten door koploper PSV met 2-1 te verslaan. Vanavond vervolgt Volendam de VriendenLoterij Eredivisie...
-- [Danny de Munk: ‘Jenny en ik hebben veel slangen buiten de deur moeten houden, daarom zijn we zo hecht’](https://www.ad.nl/show/danny-de-munk-jenny-en-ik-hebben-veel-slangen-buiten-de-deur-moeten-houden-daarom-zijn-we-zo-hecht~aa66b306/)
-  > Danny de Munk viert deze maand dat hij 40 jaar in het vak zit. In dit interview uit ons weekendmagazine Mezza praat hij openhartig over de lessen uit...
-- [Marijke Groenewoud totaal overrompeld: ‘Ik ga met goud en een zilveren ring naar huis’](https://www.ad.nl/olympische-spelen/marijke-groenewoud-totaal-overrompeld-ik-ga-met-goud-en-een-zilveren-ring-naar-huis~a56fa2b9/)
-  > Marijke Groenewoud begon haar laatste olympische schaatsdag met de hoop op olympisch goud op de massastart, maar ging naast goud ook naar huis met...
-- [Shorttrackclubs zijn weer booming na olympische successen: ‘Aanmeldingen stromen binnen’](https://www.ad.nl/olympische-spelen/shorttrackclubs-zijn-weer-booming-na-olympische-successen-aanmeldingen-stromen-binnen~ae7d49b2/)
-  > Shorttrackverenigingen plukken de vruchten van de goldrush op de Spelen. In navolging van kersverse olympisch kampioenen als Jens van ‘t Wout en...
-- [Fitz-Jim vervangt Klaassen bij Ajax, Paes onder de lat tegen oude club NEC](https://www.ad.nl/voetbal/fitz-jim-vervangt-klaassen-bij-ajax-paes-onder-de-lat-tegen-oude-club-nec~a89ae86a/)
-  > Een heerlijk affiche vanavond in de Johan Cruijff Arena: Ajax neemt het op tegen NEC. Beide clubs hebben 42 punten na 23 speelrondes in de...
+- [Zinderende ontknoping The winner takes it all: revanche jonge zangeres na gecanceld Voice-avontuur](https://www.ad.nl/show/zinderende-ontknoping-the-winner-takes-it-all-revanche-jonge-zangeres-na-gecanceld-voice-avontuur~a4c478f9/)
+  > Ze kwam, zong Édith Piaf wederom met verve en overwon. De 21-jarige conservatoriumstudente Pascale Kuiper uit het Groningse Winsum was zaterdagavond...
+- [Mika Godts blijft belangrijk voor Ajax: Belg scoort tegen NEC na fout van Sano](https://www.ad.nl/voetbal/mika-godts-blijft-belangrijk-voor-ajax-belg-scoort-tegen-nec-na-fout-van-sano~a89ae86a/)
+  > Een heerlijk affiche in de Johan Cruijff Arena: Ajax neemt het op tegen NEC. Beide clubs hebben 42 punten na 23 speelrondes in de VriendenLoterij...
+- [Dit is de winnaar van Pandora: ‘Het was een complete mindfuck’](https://www.ad.nl/show/dit-is-de-winnaar-van-pandora-het-was-een-complete-mindfuck~afe758da/)
+  > Vervloekingen, gekonkel en samenzweringen: kijkers van het RTL-realityprogramma Pandora smulden er de afgelopen weken van. De finale kende een...
+- [Oekraïne reageert woedend op dreigementen Hongarije en Slowakije om stroomvoorziening stop te zetten](https://www.ad.nl/buitenland/oekraine-reageert-woedend-op-dreigementen-hongarije-en-slowakije-om-stroomvoorziening-stop-te-zetten~adfb97be/)
+  > Oekraïne heeft woedend gereageerd op dreigementen van Hongarije en Slowakije om de elektriciteitsvoorziening aan het land stop te zetten. Het...
 
 ### Meest gelezen
 
