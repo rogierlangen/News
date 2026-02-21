@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-02-2026 om 07:08*
+*Laatst bijgewerkt: 21-02-2026 om 09:01*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Venezuela verleent amnestie aan 379 politieke gevangenen](https://nos.nl/l/2603390)
+  > In Venezuela is aan 379 politieke gevangenen amnestie verleend. Dat heeft parlementariër Jorge Arreaza, de opsteller van een deze week goedgekeurde...
+- [Alarmknop voor thuiszorgmedewerkers Tzorg](https://nos.nl/l/2603389)
+  > Thuiszorgorganisatie Tzorg geeft medewerkers een alarmknop. Aanleiding is de toenemende agressie tegen zorgverleners, zegt directeur René Akkermans...
 - [Weer onzekerheid en chaos door nieuw hoofdstuk in Trumps handelsoorlog](https://nos.nl/l/2603385)
   > De uitspraak van het Amerikaanse Hooggerechtshof over importheffingen heeft een nieuwe discussie over de kwestie ontketend. Vrijwel meteen nadat het...
 - [Wekdienst 21/2: Oprichtingsvergadering kabinet-Jetten • Mars in Lyon voor activist](https://nos.nl/l/2603384)
   > Goedemorgen! Het kabinet-Jetten houdt vandaag zijn oprichtingsvergadering en in Lyon wordt de radicaal-rechtse activist en student Quentin Deranque...
 - [Podcast De Dag: de Nederlandse modellen in de Epstein-files](https://nos.nl/l/2603383)
   > Zeker tien Nederlandse modellen duiken op in de miljoenen vrijgegeven bestanden over Jeffrey Epstein. Nieuwsuur dook erin en zag hoe ook een paar...
-- [Dode bij verkeersongeval tussen twee auto's in Apeldoorn](https://nos.nl/l/2603379)
-  > Bij een verkeersongeval op de Europaweg in Apeldoorn is een persoon overleden, meldt de politie.
-        Het ongeval gebeurde rond 01.45 uur. Er...
-- [Wolkenkrabber en universiteit in Parijs ontruimd na bommeldingen](https://nos.nl/l/2603378)
-  > De Tour Montparnasse, een van de hoogste wolkenkrabbers van Parijs, is gisteravond ontruimd na een bommelding. Ook een ander gebouw werd ontruimd na...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van pokébowl tot iced mango matcha: de mango verovert Nederland](https://www.ad.nl/binnenland/van-pokebowl-tot-iced-mango-matcha-de-mango-verovert-nederland~aab839c8/)
-  > Nederlanders lijken verzot op mango. Horeca en supermarkten merken flinke groei, gesteund door socialemediatrends. De consumptie van de lichtoranje...
-- [Onze verslaggevers in Milaan zitten er klaar voor: wat wil jij van ze weten?](https://www.ad.nl/olympische-spelen/onze-verslaggevers-in-milaan-zitten-er-klaar-voor-wat-wil-jij-van-ze-weten~a58b1866/)
-  > In de laatste aflevering van de AD Winterspelen Podcast beantwoorden onze olympische verslaggevers al jullie vragen. Wat wil jij weten van Daniël...
-- [AD Winterspelen Podcast | ‘Antoinette Rijpma-de Jong is een soort keizerin geworden’](https://www.ad.nl/olympische-spelen/ad-winterspelen-podcast-antoinette-rijpma-de-jong-is-een-soort-keizerin-geworden~a17ab614/)
-  > Dubbel goud voor Nederland op 20 februari! Eerst stunt Antoinette Rijpma-de Jong op de 1500 meter, daarna sluiten de shorttrackers hun toch al zo...
-- [Goud relaymannen vervolmaakt historisch toernooi voor Nederland: ‘De kroon op een heel lange legacy’](https://www.ad.nl/olympische-spelen/goud-relaymannen-vervolmaakt-historisch-toernooi-voor-nederland-de-kroon-op-een-heel-lange-legacy~a28712e9/)
-  > Het Nederlandse shorttrack-feest is compleet. Op de laatste dag van het olympische toernooi zorgden de mannen ervoor dat de vijfde gouden medaille in...
-- [Esmé (32) voelt dat er iets mis is in haar buik, uren later vecht baby Loé voor haar leven](https://www.ad.nl/binnenland/esme-32-voelt-dat-er-iets-mis-is-in-haar-buik-uren-later-vecht-baby-loe-voor-haar-leven~a4d1b5aa/)
-  > Vrolijk kraaiend kruipt de tien maanden oude Loé door de kamer. Een klein wonder, want het meisje vocht na haar geboorte wekenlang voor haar leven in...
+- [Waylons respect voor deelnemers The winner takes it all: ‘Uren op je poten staan en dan knallen’](https://www.ad.nl/show/waylons-respect-voor-deelnemers-the-winner-takes-it-all-uren-op-je-poten-staan-en-dan-knallen~a48cf417/)
+  > Het is dé verrassing van de zaterdagavond. Terwijl de concurrentie moordend is, trekt The winner takes it all wekelijks ruim één miljoen kijkers....
+- [Groep popelt om mega-opvang te verwelkomen: ‘Ook zonder azc’s zijn er incidenten, zoals met fatbikes’](https://www.ad.nl/binnenland/groep-popelt-om-mega-opvang-te-verwelkomen-ook-zonder-azcs-zijn-er-incidenten-zoals-met-fatbikes~ad90fd65/)
+  > Die mega-opvang in onze wijk? Kom maar op, zegt een groep buurtbewoners. Zij staan wél positief tegenover de komst van zo’n 750 asielzoekers,...
+- [Bokslegende Floyd Mayweather (48) keert terug in de ring en kondigt nieuw gevecht aan](https://www.ad.nl/vechtsport/bokslegende-floyd-mayweather-48-keert-terug-in-de-ring-en-kondigt-nieuw-gevecht-aan~af306e6bb/)
+  > Bokslegende Floyd Mayweather (48) gaat later dit jaar weer een professionele wedstrijd vechten. Via zijn promotor CSI Sports heeft de...
+- [Verstoten aapje Punch blijft doelwit van pesterijen en geweld, maar er is ook een klein lichtpuntje](https://www.ad.nl/buitenland/verstoten-aapje-punch-blijft-doelwit-van-pesterijen-en-geweld-maar-er-is-ook-een-klein-lichtpuntje~a9205f1e/)
+  > Hij heeft de afgelopen dagen flink wat geweld moeten doorstaan, maar inmiddels ziet de wereld er weer iets rooskleuriger uit voor het verstoten aapje...
+- [Broers Franjic schepten als kind op over olympische vader, nu zetten ze familietraditie voort in de viermansbob](https://www.ad.nl/olympische-spelen/broers-franjic-schepten-als-kind-op-over-olympische-vader-nu-zetten-ze-familietraditie-voort-in-de-viermansbob~a11374fa/)
+  > Als de Nederlandse viermansbob dit weekend naar beneden raast in Cortina d’Ampezzo, is het verhaal van de familie Franjic compleet. Janko en Jelen...
 
 ### Meest gelezen
 
