@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-02-2026 om 21:48*
+*Laatst bijgewerkt: 21-02-2026 om 22:54*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Acteur Eric Dane nam maanden voor zijn dood aangrijpende laatste woorden op voor zijn dochters: ‘Leef in het hier en nu’](https://www.ad.nl/show/acteur-eric-dane-nam-maanden-voor-zijn-dood-aangrijpende-laatste-woorden-op-voor-zijn-dochters-leef-in-het-hier-en-nu~a4056c1b/)
-  > Netflix heeft vrijdag het laatste interview met de aan ALS overleden Eric Dane (53) uitgebracht. Daarin vertelt de Grey’s Anatomy-acteur hoe hij zich...
-- [Marijke Groenewoud raakt verlovingsring bijna kwijt: ‘Had ‘m in de prullenbak laten vallen’](https://www.ad.nl/olympische-spelen/marijke-groenewoud-raakt-verlovingsring-bijna-kwijt-had-m-in-de-prullenbak-laten-vallen~a0b41799/)
-  > De Winterspelen hebben voor Marijke Groenewoud een wel heel bijzonder slot gekregen. De schaatsster won goud op de massastart, maar alsof dat nog...
-- [Ajax en NEC strijden in slotfase om zege, Berghuis na maanden terug op het veld](https://www.ad.nl/voetbal/ajax-en-nec-strijden-in-slotfase-om-zege-berghuis-na-maanden-terug-op-het-veld~a89ae86a/)
-  > Een heerlijk affiche in de Johan Cruijff Arena: Ajax neemt het op tegen NEC. Beide clubs hebben 42 punten na 23 speelrondes in de VriendenLoterij...
-- [Op wintersport naar Lech of Zürs? Toegangswegen van skiresorts in Oostenrijk afgesloten door lawine](https://www.ad.nl/buitenland/op-wintersport-naar-lech-of-zurs-toegangswegen-van-skiresorts-in-oostenrijk-afgesloten-door-lawine~aea168c9a/)
-  > Wie deze voorjaarsvakantie heeft genoten van een weekje in Zürs of Lech, moet nog iéts langer blijven. In het westen van Oostenrijk heeft een lawine...
-- [Sprookje in Breda: 17-jarige invaller schiet NAC naar belangrijke zege in degradatiekraker tegen FC Volendam](https://www.ad.nl/voetbal/sprookje-in-breda-17-jarige-invaller-schiet-nac-naar-belangrijke-zege-in-degradatiekraker-tegen-fc-volendam~a8f193ee/)
-  > NAC Breda heeft voor de tweede keer op rij belangrijke punten gepakt tegen een concurrent. Na de 0-1 zege bij Heracles van vorige week werd...
+- [AD Winterspelen Podcast | ‘Het oogt soms een beetje nonchalant bij Marijke Groenewoud’](https://www.ad.nl/olympische-spelen/ad-winterspelen-podcast-het-oogt-soms-een-beetje-nonchalant-bij-marijke-groenewoud~a17ab614/)
+  > De een deed het vanuit de vroege vlucht, de ander in de sprint. Jorrit Bergsma en Marijke Groenewoud pakken goud op de massastart en brengen...
+- [Gouden Jorrit Bergsma en Xandra Velzeboer vlaggendragers tijdens sluitingsceremonie in Verona](https://www.ad.nl/olympische-spelen/gouden-jorrit-bergsma-en-xandra-velzeboer-vlaggendragers-tijdens-sluitingsceremonie-in-verona~a40211d7/)
+  > Jorrit Bergsma en Xandra Velzeboer dragen de Nederlandse vlag tijdens de sluitingsceremonie van de Olympische Winterspelen op zondagavond. De...
+- [Heldenrol voor Zian Flemming tegen Chelsea, Manchester City loopt in op koploper Arsenal](https://www.ad.nl/voetbal/heldenrol-voor-zian-flemming-tegen-chelsea-manchester-city-loopt-in-op-koploper-arsenal~a56dd176/)
+  > Een heldenrol voor Zian Flemming bij Burnley. De 27-jarige spits uit Amsterdam was in de slotseconden verantwoordelijk voor de gelijkmaker tegen...
+- [Dit zijn de verschillen op de ranglijst tussen Feyenoord, NEC en Ajax](https://www.ad.nl/voetbal/dit-zijn-de-verschillen-op-de-ranglijst-tussen-feyenoord-nec-en-ajax~adadd191/)
+  > Bekijk hier de stand in de eredivisie. Daaronder zijn het programma en de topscorersranglijst te vinden.
+- [IS roept leden op te vechten tegen Syrische regering, die wil breken met radicaal verleden](https://www.ad.nl/buitenland/is-roept-leden-op-te-vechten-tegen-syrische-regering-die-wil-breken-met-radicaal-verleden~ada7d234/)
+  > Islamitische Staat (IS) roept zijn leden op het gevecht aan te gaan met de nieuwe Syrische regering. Dat zei de woordvoerder van de terreurbeweging...
 
 ### Meest gelezen
 
