@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-02-2026 om 10:56*
+*Laatst bijgewerkt: 21-02-2026 om 11:45*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Italianen in rouw: Domenico (2) overleden door medisch falen](https://nos.nl/l/2603408)
+  > In Napels is een jongen van 2 overleden, zeer waarschijnlijk door medisch falen. De peuter kampte met een hartaandoening en bij een...
 - [Boegbeeld van Xbox, Phil Spencer, stapt na 12 jaar op](https://nos.nl/l/2603406)
   > De topman van de gamingtak van Microsoft, Phil Spencer, stapt op. Hij gold als boegbeeld van Xbox, de spelcomputer van Microsoft en de grote...
 - ['Tientallen doden bij aanval in noordwesten van Nigeria'](https://nos.nl/l/2603405)
@@ -16,8 +18,6 @@
   > In Venezuela is aan 379 politieke gevangenen amnestie verleend. Dat heeft parlementariër Jorge Arreaza, de opsteller van een deze week goedgekeurde...
 - [Alarmknop voor thuiszorgmedewerkers Tzorg](https://nos.nl/l/2603389)
   > Thuiszorgorganisatie Tzorg geeft medewerkers een alarmknop. Aanleiding is de toenemende agressie tegen zorgverleners, zegt directeur René Akkermans...
-- [Weer onzekerheid en chaos door nieuw hoofdstuk in Trumps handelsoorlog](https://nos.nl/l/2603385)
-  > De uitspraak van het Amerikaanse Hooggerechtshof over importheffingen heeft een nieuwe discussie over de kwestie ontketend. Vrijwel meteen nadat het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Marijke Groenewoud hoopt op massastart alles goed te maken in Milaan: ‘Last best, mijn kans op goud’](https://www.ad.nl/schaatsen/marijke-groenewoud-hoopt-op-massastart-alles-goed-te-maken-in-milaan-last-best-mijn-kans-op-goud~a745f506/)
+- [Rob Goossens met de dood bedreigd door ‘vriend’ van Winter vol liefde-Hans, maar doet geen aangifte](https://www.ad.nl/show/rob-goossens-met-de-dood-bedreigd-door-vriend-van-winter-vol-liefde-hans-maar-doet-geen-aangifte~adb52098/)
+  > Mediajournalist Rob Goossens is via sociale media met de dood bedreigd door iemand die zich uitgeeft als een ‘vriend’ van Winter vol liefde-deelnemer...
+- [Nederlandse viermansbob moeten wachten op tweede run na crash Oostenrijk](https://www.ad.nl/olympische-spelen/nederlandse-viermansbob-moeten-wachten-op-tweede-run-na-crash-oostenrijk~a8f31934/)
+  > De Olympische Winterspelen van Milaan en Cortina d’Ampezzo naderen het einde. Op de voorlaatste dag staat er echter nog een mogelijk record te...
+- [Hortensia’s zijn net toverballen: de kleur kun je beïnvloeden](https://www.ad.nl/wonen/hortensias-zijn-net-toverballen-de-kleur-kun-je-beinvloeden~a13f1b36/)
+  > Snoeien, stekken, planten, verpotten, zaaien en schoffelen. Tuingoeroe Romke van de Kaa helpt een handje.
+- [Kalvijn gaat viraal met video waarin hij olympisch kampioen speelt](https://www.ad.nl/show/kalvijn-gaat-viraal-met-video-waarin-hij-olympisch-kampioen-speelt~af9fff0e/)
+  > Influencer en presentator Kalvijn scoort hoge ogen op TikTok met een video waarin hij door de straten van Milaan loopt met een olympische...
+- [Genadeloos zelfkritische Groenewoud hoopt op massastart alles goed te maken: 'Aan mij om die medaille te halen'](https://www.ad.nl/schaatsen/genadeloos-zelfkritische-groenewoud-hoopt-op-massastart-alles-goed-te-maken-aan-mij-om-die-medaille-te-halen~a745f506/)
   > Nee, ook de 1500 meter werd niet de afstand van Marijke Groenewoud, die ver achter mede-Friezin Antoinette Rijpma-De Jong tiende werd. Zaterdag wacht...
-- [Deze Nederlander (33) zet zijn leven op het spel voor Oekraïne: ‘Mijn moeder was woedend’](https://www.ad.nl/buitenland/deze-nederlander-33-zet-zijn-leven-op-het-spel-voor-oekraine-mijn-moeder-was-woedend~a39d3561/)
-  > Hij kan het onrecht niet aanzien. Stilzitten is geen optie. Hij vecht mee in de oorlog in Oekraïne. Dit is ‘Seven’ uit Salland, die zonder militaire...
-- [Nederlandse komedie Boomers gaat naar het buitenland](https://www.ad.nl/show/nederlandse-komedie-boomers-gaat-naar-het-buitenland~a518d992/)
-  > De Nederlandse speelfilm Boomers, met Huub Stapel en Jennifer Hoffman in de hoofdrollen, gaat naar het buitenland.
-- [Arie doet aan woedebeheersing en Gerard ziet eruit als een ghostbuster](https://www.ad.nl/show/arie-doet-aan-woedebeheersing-en-gerard-ziet-eruit-als-een-ghostbuster~ae00551e/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Vijf skiërs omgekomen bij lawines in Oostenrijk, Nederlander (23) raakt zwaargewond](https://www.ad.nl/buitenland/vijf-skiers-omgekomen-bij-lawines-in-oostenrijk-nederlander-23-raakt-zwaargewond~a0837e2c/)
-  > In Oostenrijk zijn vrijdag vijf skiërs om het leven gekomen door lawines. Een 23-jarige Nederlander raakte zwaargewond. Door zware sneeuwval in de...
 
 ### Meest gelezen
 
