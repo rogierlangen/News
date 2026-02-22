@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-02-2026 om 22:56*
+*Laatst bijgewerkt: 22-02-2026 om 23:54*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Kim Jong-un herkozen en geprezen als leider van Noord-Koreaanse arbeiderspartij](https://www.ad.nl/buitenland/kim-jong-un-herkozen-en-geprezen-als-leider-van-noord-koreaanse-arbeiderspartij~a7bb75ad/)
+  > De regerende Arbeiderspartij van Noord-Korea heeft zijn leider Kim Jong-un zondag anoniem herkozen tot algemeen secretaris. Dat meldde het...
 - [Sjaak Troost gaat stoppen als commissaris bij Feyenoord: ‘Liep laatste twee jaar niet zoals ik had verwacht’](https://www.ad.nl/voetbal/sjaak-troost-gaat-stoppen-als-commissaris-bij-feyenoord-liep-laatste-twee-jaar-niet-zoals-ik-had-verwacht~a462f3b8/)
   > Sjaak Troost gaat stoppen als lid van de raad van commissarissen bij Feyenoord. De voormalig verdediger stelt zijn functie, die hij zeven jaar lang...
 - [Voetbalpodcast | ‘Die reactie van Dick Schreuder met het flesje zei alles’](https://www.ad.nl/voetbal/voetbalpodcast-die-reactie-van-dick-schreuder-met-het-flesje-zei-alles~ac8603a9/)
@@ -35,8 +37,6 @@
   > Een man is zondagavond omgekomen bij een schietincident in Zwolle. Hij lag op straat en werd behandeld door hulpdiensten, maar hulp mocht niet meer...
 - [Olympische vlam gedoofd: succesvolste Winterspelen ooit voor Nederland officieel gesloten](https://www.ad.nl/olympische-spelen/olympische-vlam-gedoofd-succesvolste-winterspelen-ooit-voor-nederland-officieel-gesloten~a819fa2b/)
   > De Olympische Winterspelen van 2026 zijn officieel afgesloten. De olympische vlam werd gedoofd in het iconische amfitheater van Verona, omdat San...
-- [Gian van Veen gooit eerste negendarter op tv in finale tegen Luke Littler, maar baalt alsnog: ‘Gehoopt dat ik gemist had’](https://www.ad.nl/darts/gian-van-veen-gooit-eerste-negendarter-op-tv-in-finale-tegen-luke-littler-maar-baalt-alsnog-gehoopt-dat-ik-gemist-had~a16bfbfa/)
-  > Uitzinnige vreugde zondagavond bij Gian van Veen. De Nederlandse darter gooide in de finale van de Poland Darts Open zijn eerste negendarter op...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘Pure heffingenchaos’ in VS maakt handelsrelatie met Europa politiek mijnenveld](https://fd.nl/economie/1587259/pure-heffingenchaos-in-vs-maakt-handelsrelatie-met-europa-politiek-mijnenveld)
-  > De juridische chaos rond het handelsbeleid van president Trump plaatst de Europese Unie voor een dilemma. Staat het handelsakkoord met de Verenigde...
-- [Bij de Fed lijkt voorlopig weinig ruimte voor Warsh' wens tot renteverlagingen](https://fd.nl/financiele-markten/1587256/bij-de-fed-lijkt-voorlopig-weinig-ruimte-voor-warsh-wens-tot-renteverlagingen)
-  > De Fed heeft ook onder beoogd voorzitter Kevin Warsh amper ruimte om de rente te verlagen. De inflatie is gestegen, de arbeidsmarkt stabiliseert en...
-- [Ondersteuning mantelzorgers vraagt ook om meer balans in taakverdeling](https://fd.nl/opinie/1587114/ondersteuning-mantelzorgers-vraagt-ook-om-meer-balans-in-taakverdeling)
-  > Het mantelzorgen komt in Nederland onevenredig veel op het bord terecht van werkende vrouwen en zorgmedewerkers.
-- [Man doodgeschoten die Mar-a-Lago wilde binnendringen](https://fd.nl/samenleving/1587169/man-doodgeschoten-die-mar-a-lago-wilde-binnendringen)
-  > Donald Trump was niet in zijn geliefde resort in Florida. Op zaterdagavond had hij een diner in het Witte Huis
-- [Opnieuw protesten tegen Iraanse regering](https://fd.nl/samenleving/1587166/opnieuw-protesten-tegen-iraanse-regering)
-  > De vorige massaprotesten eindigden bloedig na hard ingrijpen van de geestelijk leiders. De demonstraties komen op een moment dat Amerika het land...
+- [Start-ups vrezen hoge belasting voor hun personeel in nieuwe box 3](https://fd.nl/bedrijfsleven/1587228/start-ups-vrezen-hoge-belasting-voor-hun-personeel-in-nieuwe-box-3)
+  > Nederlandse start-ups en scale-ups denken dat zij door de nieuwe belastingmaatregel minder aantrekkelijk worden voor medewerkers en vroege...
+- [EU met tanden](https://fd.nl/opinie/1587167/eu-met-tanden)
+  > Brussel moet laten zien dat het de importheffingen van Trump niet pikt.
+- [Miljoenen Britse studenten komen niet van hun torenhoge studieschuld af](https://fd.nl/samenleving/1587015/miljoenen-britse-studenten-komen-niet-van-hun-torenhoge-studieschuld-af)
+  > In 2012 verdriedubbelde Engeland het collegegeld en kwam er een ingewikkeld systeem voor studieleningen. De 17-jarigen van toen ontdekken nu dat de...
+- [Baan kwijt, vervangen door AI](https://fd.nl/opinie/1586157/baan-kwijt-vervangen-door-ai)
+  > Generatieve AI gaat de arbeidsmarkt zeker veranderen. Sommige beroepen zullen (deels) verdwijnen. Maar er zijn ook veel nieuwe mogelijkheden voor...
+- [Personalia maandag 23 februari](https://fd.nl/bedrijfsleven/1587165/personalia-maandag-23-februari)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
