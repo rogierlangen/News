@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-02-2026 om 13:54*
+*Laatst bijgewerkt: 22-02-2026 om 14:57*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Betogers verstoren herdenking bombardement Nijmegen, negen aanhoudingen](https://nos.nl/l/2603576)
+  > Betogers van XR Justice Now hebben vanmiddag in Nijmegen de jaarlijkse herdenking van het bombardement van februari 1944 verstoord. De betogers...
+- [Gewapende man doodgeschoten die Mar-a-Lago wilde binnendringen](https://nos.nl/l/2603575)
+  > Agenten van de Amerikaanse Secret Service hebben een vermoedelijk gewapende man doodgeschoten bij Mar-a-Lago, het verblijf in Florida van president...
 - [Frankrijk ontbiedt Amerikaanse ambassadeur om uitspraken over dood activist](https://nos.nl/l/2603562)
   > De Franse minister van Buitenlandse Zaken Jean-Noël Barrot heeft de Amerikaanse ambassadeur in Parijs, Charles Kushner, op het matje geroepen. Reden...
 - [Denemarken evacueert bemanningslid VS bij Groenland](https://nos.nl/l/2603560)
   > Het Deense leger heeft gisteren een bemanningslid van een Amerikaanse onderzeeër geëvacueerd in de buurt van Groenland, meldt het Arctisch Commando...
 - [Nederlandse hulp voor Oekraïne doelwit: 'Onderscheid militair en civiel vervaagt'](https://nos.nl/l/2603552)
   > Organisaties die vanuit Nederland hulpgoederen naar Oekraïne brengen, hebben te maken met aanvallen en sabotage. Eerder deze week waarschuwden de...
-- [Automobilist volgt navigatie en rijdt zich klem op het spoor in Oisterwijk](https://nos.nl/l/2603546)
-  > Een automobilist is vannacht met zijn auto het spoor op gereden in Oisterwijk. De man uit Spanje volgde blind zijn navigatie omdat hij de weg daar...
-- [Pakistan voert aanvallen uit langs grens met Afghanistan, Rode Halve Maan meldt 18 doden](https://nos.nl/l/2603544)
-  > Pakistan zegt luchtaanvallen te hebben uitgevoerd op militaire doelen in buurland Afghanistan. Volgens de Taliban-regering in Afghanistan zijn...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [FC Utrecht neemt snel voorsprong tegen PEC Zwolle, nieuwkomer trefzeker](https://www.ad.nl/voetbal/fc-utrecht-neemt-snel-voorsprong-tegen-pec-zwolle-nieuwkomer-trefzeker~ace6cfe5/)
+- [Onthutsend zwak Liverpool mag niet klagen met gelijke stand tegen nummer 17, cruciale ingreep Virgil van Dijk](https://www.ad.nl/voetbal/onthutsend-zwak-liverpool-mag-niet-klagen-met-gelijke-stand-tegen-nummer-17-cruciale-ingreep-virgil-van-dijk~afabf346/)
+  > Liverpool leed in november een pijnlijke 0-3 nederlaag tegen Nottingham Forest en hoopt zich vandaag te revancheren op City Ground. De ploeg van Arne...
+- [Voorlopig klaar met het winterse weer, eerste ‘lenteachtige’ taferelen dienen zich dinsdag al aan](https://www.ad.nl/binnenland/voorlopig-klaar-met-het-winterse-weer-eerste-lenteachtige-taferelen-dienen-zich-dinsdag-al-aan~a043b005/)
+  > Het is voorlopig klaar met het winterse weer. Deze week staan zelfs de eerste echte lentedagen op het programma met woensdag zeer lokaal zelfs bijna...
+- [De delicate relatie tussen Jetten en de Oranjes: ‘Zijn hand niet overspelen’](https://www.ad.nl/politiek/de-delicate-relatie-tussen-jetten-en-de-oranjes-zijn-hand-niet-overspelen~acc7b31b/)
+  > Op de trappen van het paleis zal koning Willem-Alexander vandaag uittorenen boven zijn nieuwe minister-president. Maar zijn dat ook de echte...
+- [FC Utrecht verzuimt om voorsprong te verdubbelen: wat kan PEC Zwolle nog na rust?](https://www.ad.nl/voetbal/fc-utrecht-verzuimt-om-voorsprong-te-verdubbelen-wat-kan-pec-zwolle-nog-na-rust~ace6cfe5/)
   > FC Utrecht wil de winnende reeks graag voortzetten. Een driepunter in het duel met middenmoter PEC Zwolle zal de ploeg van Ron Jans terugbrengen in...
-- [Wat was volgens jou de mooiste gouden medaille van deze Winterspelen?](https://www.ad.nl/olympische-spelen/wat-was-volgens-jou-de-mooiste-gouden-medaille-van-deze-winterspelen~a5ad1057/)
-  > De Winterspelen in Milaan-Cortina waren voor TeamNL buitengewoon succesvol. Nederland eindigde als derde in het medailleklassement (een record) met...
-- [Partijscheuring dreigt bij BBB, nu Mona Keijzer is gepasseerd](https://www.ad.nl/politiek/partijscheuring-dreigt-bij-bbb-nu-mona-keijzer-is-gepasseerd~a8f0bea1/)
-  > Het verzet tegen de BBB-leiderschapswissel van Caroline van der Plas naar haar rechterhand Henk Vermeer leidt tot grote onrust. Er is grote onvrede...
-- [Verenigde Staten op voorsprong in felle ijshockeyfinale tegen Canada, broertjes Van ’t Wout op de tribune](https://www.ad.nl/olympische-spelen/verenigde-staten-op-voorsprong-in-felle-ijshockeyfinale-tegen-canada-broertjes-van-t-wout-op-de-tribune~a2af2ade/)
-  > Op de slotdag van de Olympische Winterspelen zijn de Nederlandse bobsleeërs als laatste landgenoten in actie gekomen. Er is nog één gouden medaille...
-- [Matteo van der Grijn keert terug in vierde seizoen successerie Ted Lasso: ‘Een eer’](https://www.ad.nl/show/matteo-van-der-grijn-keert-terug-in-vierde-seizoen-successerie-ted-lasso-een-eer~a7278293/)
-  > Goed nieuws voor liefhebbers van de hartverwarmende Apple TV+-serie Ted Lasso. Onze ‘eigen’ Matteo van der Grijn (44) maakt opnieuw zijn opwachting...
+- [Man ‘met wat leek op een jachtgeweer en jerrycan’ doorgeschoten bij Trumps Mar-a-Lago-resort](https://www.ad.nl/buitenland/man-met-wat-leek-op-een-jachtgeweer-en-jerrycan-doorgeschoten-bij-trumps-mar-a-lago-resort~ae67dd9c/)
+  > De Amerikaanse geheime dienst heeft zondag bekendgemaakt dat agenten een man van in de twintig hebben doodgeschoten, nadat hij had geprobeerd...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Los Angeles klaagt gameplatform Roblox aan vanwege onveiligheid voor kinderen](https://fd.nl/tech-en-innovatie/1587139/los-angeles-klaagt-gameplatform-roblox-aan-vanwege-onveiligheid-voor-kinderen)
+  > Los Angeles County stelt dat het spelletjesplatform minderjarige gebruikers onvoldoende heeft beschermd tegen online misbruik en seksuele inhoud.
+- [Boete VolkerWessels en ex-directeur voor omkoping minister op Sint Maarten](https://fd.nl/samenleving/1587164/boete-volkerwessels-en-ex-directeur-voor-omkoping-minister-op-sint-maarten)
+  > Minister ontving stapeltjes bankbiljetten, verstopt in een krant of tussen bouwtekeningen, als dank voor het gunnen van bouwopdracht.
 - [‘Pensioenfondsen, wacht met afbouwen Amerikaanse beleggingen’](https://fd.nl/financiele-markten/1587113/pensioenfondsen-wacht-met-afbouwen-amerikaanse-beleggingen)
   > Nederlandse pensioenfondsen worstelen met hun beleggingen in de VS, vertelt Maureen Schlejen van de investeringstak van Achmea. Zij adviseert haar...
 - [Liberty Global gooit Ziggo met strik over de schutting naar beleggers](https://fd.nl/bedrijfsleven/1587222/liberty-global-gooit-ziggo-met-strik-over-de-schutting-naar-beleggers)
   > Liberty Global-ceo Mike Fries verkoopt de nieuwe combinatie van VodafoneZiggo en het Belgische Telenet als een prachtige belegging. Daar valt wel...
-- [Extra overleg in Europarlement over handelsdeal met VS](https://fd.nl/politiek/1587257/extra-overleg-in-europarlement-over-handelsdeal-met-vs)
-  > Europese volksvertegenwoordigers worstelen na vonnis van Hooggerechtshof in VS met de legaliteit van de Amerikaanse heffingen die zijn neergelegd in...
-- [Hoog over de Westerschelde, of eronderdoor](https://fd.nl/samenleving/1587005/hoog-over-de-westerschelde-of-eronderdoor)
-  > De zware industrie in Zeeuws-Vlaanderen elektrificeert en daarvoor moet een nieuwe hoogspanningsverbinding worden aangelegd. Met ondergrondse kabels...
-- [Aldi zakte diep weg en krabbelt ineens weer op](https://fd.nl/bedrijfsleven/1587009/aldi-zakte-diep-weg-en-krabbelt-ineens-weer-op)
-  > Opleving van ‘dozenschuiver’ van het eerste uur volgt op ingrijpende vernieuwing van de winkels en het assortiment.
+- [‘Pure heffingenchaos’: Europarlement overweegt uitstel handelsdeal met VS](https://fd.nl/politiek/1587257/extra-overleg-in-europarlement-over-handelsdeal-met-vs)
+  > Voorzitter van de handelscommissie wil goedkeuring van het akkoord opschorten, nadat de hoogste Amerikaanse rechter een streep zette door...
 
 ### Meest gelezen
 
