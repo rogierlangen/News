@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-02-2026 om 21:50*
+*Laatst bijgewerkt: 22-02-2026 om 22:56*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Uitzinnige Gian van Veen zet Polen op z’n kop met eerste negendarter op tv, maar verliest finale van Luke Littler](https://www.ad.nl/darts/uitzinnige-gian-van-veen-zet-polen-op-zn-kop-met-eerste-negendarter-op-tv-maar-verliest-finale-van-luke-littler~a16bfbfa/)
+- [Sjaak Troost gaat stoppen als commissaris bij Feyenoord: ‘Liep laatste twee jaar niet zoals ik had verwacht’](https://www.ad.nl/voetbal/sjaak-troost-gaat-stoppen-als-commissaris-bij-feyenoord-liep-laatste-twee-jaar-niet-zoals-ik-had-verwacht~a462f3b8/)
+  > Sjaak Troost gaat stoppen als lid van de raad van commissarissen bij Feyenoord. De voormalig verdediger stelt zijn functie, die hij zeven jaar lang...
+- [Voetbalpodcast | ‘Die reactie van Dick Schreuder met het flesje zei alles’](https://www.ad.nl/voetbal/voetbalpodcast-die-reactie-van-dick-schreuder-met-het-flesje-zei-alles~ac8603a9/)
+  > Feyenoord is de lachende tweede momenteel in de eredivisie. De ploeg van Van Persie won thuis nipt van Telstar, terwijl Ajax en NEC de punten...
+- [Man overleden bij schietpartij in Zwolle, getuigen horen drie schoten](https://www.ad.nl/binnenland/man-overleden-bij-schietpartij-in-zwolle-getuigen-horen-drie-schoten~a29d6239/)
+  > Een man is zondagavond omgekomen bij een schietincident in Zwolle. Hij lag op straat en werd behandeld door hulpdiensten, maar hulp mocht niet meer...
+- [Olympische vlam gedoofd: succesvolste Winterspelen ooit voor Nederland officieel gesloten](https://www.ad.nl/olympische-spelen/olympische-vlam-gedoofd-succesvolste-winterspelen-ooit-voor-nederland-officieel-gesloten~a819fa2b/)
+  > De Olympische Winterspelen van 2026 zijn officieel afgesloten. De olympische vlam werd gedoofd in het iconische amfitheater van Verona, omdat San...
+- [Gian van Veen gooit eerste negendarter op tv in finale tegen Luke Littler, maar baalt alsnog: ‘Gehoopt dat ik gemist had’](https://www.ad.nl/darts/gian-van-veen-gooit-eerste-negendarter-op-tv-in-finale-tegen-luke-littler-maar-baalt-alsnog-gehoopt-dat-ik-gemist-had~a16bfbfa/)
   > Uitzinnige vreugde zondagavond bij Gian van Veen. De Nederlandse darter gooide in de finale van de Poland Darts Open zijn eerste negendarter op...
-- [One battle after another wint zes Bafta’s, I swear verrast met acteursprijs](https://www.ad.nl/show/one-battle-after-another-wint-zes-baftas-i-swear-verrast-met-acteursprijs~a395a7db/)
-  > De misdaadkomedie One battle after another is zondagavond de grote winnaar geworden bij de uitreiking van de Bafta’s, de belangrijkste Britse...
-- [Feyenoord loopt weg in strijd om plek 2: dit is het puntenverschil met Ajax en NEC](https://www.ad.nl/voetbal/feyenoord-loopt-weg-in-strijd-om-plek-2-dit-is-het-puntenverschil-met-ajax-en-nec~adadd191/)
-  > Bekijk hier de stand in de eredivisie. Daaronder zijn het programma en de topscorersranglijst te vinden.
-- [170 euro voor blikjes rapen: Robert (27) krijgt landelijke steun na optreden boa](https://www.ad.nl/binnenland/170-euro-voor-blikjes-rapen-robert-27-krijgt-landelijke-steun-na-optreden-boa~a582bec6/)
-  > De 27-jarige Robert Bakker uit het Achterhoekse Eibergen heeft een boete van 170 euro gekregen voor het rapen van statiegeldblikjes. De man met een...
-- [Zanger Brace over vriend Ali B: ‘Mensen willen gewoon een spijtbetuiging, ik hoop dat hij dat inziet’](https://www.ad.nl/show/zanger-brace-over-vriend-ali-b-mensen-willen-gewoon-een-spijtbetuiging-ik-hoop-dat-hij-dat-inziet~a8329b8e/)
-  > In het SBS6-programma Het waren 2 fantastische dagen heeft zanger Brace zondagavond een boekje opengedaan over zijn complexe vriendschap met de...
 
 ### Meest gelezen
 
