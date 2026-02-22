@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-02-2026 om 20:55*
+*Laatst bijgewerkt: 22-02-2026 om 21:50*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Bafta-awards uitgereikt, One Battle After Another grote winnaar](https://nos.nl/l/2603634)
+  > Bij de uitreiking van de belangrijkste Britse filmprijzen, de Bafta's, is de film One Battle After Another de grote winnaar geworden. De...
+- [Prominente BBB-leden uiten in brief kritiek op passeren Mona Keijzer als partijleider](https://nos.nl/l/2603632)
+  > Drie prominente BBB'ers zijn ontevreden over de gang van zaken rond de leiderschapswissel in de partij, waarbij Mona Keijzer werd gepasseerd. De...
 - [EU wil opheldering over hogere heffing VS: 'Een deal is een deal'](https://nos.nl/l/2603626)
   > De Europese Commissie heeft de VS om opheldering gevraagd over de nieuwe wereldwijde importheffing die het Witte Huis wil invoeren. De Commissie in...
 - [Leider berucht Mexicaans Jaliscokartel gedood door leger](https://nos.nl/l/2603611)
   > De leider van het beruchte Jaliscokartel is gedood door het Mexicaanse leger. Nemesio Rubén Oseguera Cervantes (59) raakte bij een speciale...
 - [Ook vandaag protesten op universiteiten in Iran](https://nos.nl/l/2603608)
   > Op verschillende plekken in Iran is vandaag opnieuw gedemonstreerd tegen het regime. Het Iraanse staatspersbureau meldt dat dat gebeurde op vijf...
-- [Russische inval in Oekraïne herdacht met manifestatie op de Dam](https://nos.nl/l/2603599)
-  > In Amsterdam is een herdenkingsbijeenkomst gehouden voor Oekraïne. Dinsdag is het vier jaar geleden dat Rusland het buurland binnenviel. Voorafgaand...
-- [Komende week wisselvallig weer, maar woensdag voelt het als lente](https://nos.nl/l/2603596)
-  > Het was vandaag kletsnat en grijs weer, maar ondanks de regen was het allesbehalve koud. De temperatuur steeg naar 9 graden in het noorden en een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Debuut Raheem Sterling hoogtepunt op moeizame avond tegen Telstar: Feyenoord steviger op plek 2](https://www.ad.nl/voetbal/debuut-raheem-sterling-hoogtepunt-op-moeizame-avond-tegen-telstar-feyenoord-steviger-op-plek-2~a06a14a2/)
-  > Feyenoord heeft voor de derde keer op rij gewonnen in de VriendenLoterij Eredivisie. De Rotterdammers bogen in de Kuip een achterstand om tegen...
-- [Er gaat geen zondag voorbij dat ik niet eventjes aan Koos Postema denk](https://www.ad.nl/voetbal/er-gaat-geen-zondag-voorbij-dat-ik-niet-eventjes-aan-koos-postema-denk~aa184f60/)
-  > Columnist Hugo Borst had vandaag over zitvoetbal willen schrijven, vanwege het zitdoelpunt van NEC’er Darko Nejasmic. Maar Koos Postema, een van de...
-- [Prachtig eerbetoon van ijshockeyers VS aan ploeggenoot die werd doodgereden door dronken automobilist](https://www.ad.nl/olympische-spelen/prachtig-eerbetoon-van-ijshockeyers-vs-aan-ploeggenoot-die-werd-doodgereden-door-dronken-automobilist~a344d5d5/)
-  > De Amerikaanse ijshockeyers hebben na het winnen van goud op de Olympische Spelen de overleden John Gaudreau op indrukwekkende wijze geëerd. De...
-- [Liever seksueel geweld bagatelliseren dan ‘rechts’ zijn](https://www.ad.nl/binnenland/liever-seksueel-geweld-bagatelliseren-dan-rechts-zijn~a479c9ed/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [Vlaarding­se pleegou­ders ook gezag over eigen dochter kwijt](https://www.ad.nl/binnenland/vlaardingse-pleegouders-ook-gezag-over-eigen-dochter-kwijt~a92aaf90/)
-  > De Vlaardingse ouders John van den B. en Daisy W., die zijn veroordeeld voor het opsluiten van hun pleegmeisje, zijn het gezag over hun biologische...
+- [Uitzinnige Gian van Veen zet Polen op z’n kop met eerste negendarter op tv, maar verliest finale van Luke Littler](https://www.ad.nl/darts/uitzinnige-gian-van-veen-zet-polen-op-zn-kop-met-eerste-negendarter-op-tv-maar-verliest-finale-van-luke-littler~a16bfbfa/)
+  > Uitzinnige vreugde zondagavond bij Gian van Veen. De Nederlandse darter gooide in de finale van de Poland Darts Open zijn eerste negendarter op...
+- [One battle after another wint zes Bafta’s, I swear verrast met acteursprijs](https://www.ad.nl/show/one-battle-after-another-wint-zes-baftas-i-swear-verrast-met-acteursprijs~a395a7db/)
+  > De misdaadkomedie One battle after another is zondagavond de grote winnaar geworden bij de uitreiking van de Bafta’s, de belangrijkste Britse...
+- [Feyenoord loopt weg in strijd om plek 2: dit is het puntenverschil met Ajax en NEC](https://www.ad.nl/voetbal/feyenoord-loopt-weg-in-strijd-om-plek-2-dit-is-het-puntenverschil-met-ajax-en-nec~adadd191/)
+  > Bekijk hier de stand in de eredivisie. Daaronder zijn het programma en de topscorersranglijst te vinden.
+- [170 euro voor blikjes rapen: Robert (27) krijgt landelijke steun na optreden boa](https://www.ad.nl/binnenland/170-euro-voor-blikjes-rapen-robert-27-krijgt-landelijke-steun-na-optreden-boa~a582bec6/)
+  > De 27-jarige Robert Bakker uit het Achterhoekse Eibergen heeft een boete van 170 euro gekregen voor het rapen van statiegeldblikjes. De man met een...
+- [Zanger Brace over vriend Ali B: ‘Mensen willen gewoon een spijtbetuiging, ik hoop dat hij dat inziet’](https://www.ad.nl/show/zanger-brace-over-vriend-ali-b-mensen-willen-gewoon-een-spijtbetuiging-ik-hoop-dat-hij-dat-inziet~a8329b8e/)
+  > In het SBS6-programma Het waren 2 fantastische dagen heeft zanger Brace zondagavond een boekje opengedaan over zijn complexe vriendschap met de...
 
 ### Meest gelezen
 
