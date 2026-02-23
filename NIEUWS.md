@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-02-2026 om 11:27*
+*Laatst bijgewerkt: 23-02-2026 om 14:37*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Koptelefoons uit voorzorg uit verkoop na onderzoek schadelijke stoffen](https://nos.nl/l/2603689)
-  > Sommige winkelketens zijn uit voorzorg gestopt met de verkoop van bepaalde modellen koptelefoons. Onder meer Bol.com en MediaMarkt deden dat,...
-- [Piercingshop Coevorden sluit deuren na tientallen meldingen van ontstekingen](https://nos.nl/l/2603687)
-  > Een piercingshop in Coevorden gaat per direct dicht, nadat er tientallen meldingen waren binnengekomen van mensen met ontstekingen aan het oor. Het...
-- [Kabinet-Jetten officieel beëdigd en kan aan de slag](https://nos.nl/l/2603685)
-  > De nieuwe ministers en staatssecretarissen hebben op paleis Huis ten Bosch in Den Haag de eed of de belofte afgelegd. Daarmee is het kabinet-Jetten...
-- [PostNL profiteert van decemberpost, maar lijdt toch verlies](https://nos.nl/l/2603668)
-  > PostNL bezorgde afgelopen jaar weer meer pakketten in Nederland en België. Toch blijft het postbedrijf last houden van het dalende aantal brieven dat...
-- [Bus stort in rivier in Nepal, zeker negentien doden](https://nos.nl/l/2603667)
-  > Bij een busongeluk in Nepal zijn minstens negentien mensen omgekomen. 25 inzittenden raakten gewond.
-        De bus was in bergachtig gebied onderweg...
+- [Almere voert samenscholingsverbod in voor centrum vanwege overlast](https://nos.nl/l/2603713)
+  > Almere heeft een samenscholingsverbod ingevoerd voor het centrum vanwege aanhoudende overlast, waaronder drugsdeals en geweld. Groepen van drie...
+- [Vijf vreemdelingen aangetroffen in caravan bij veerboot](https://nos.nl/l/2603712)
+  > In de haven van Hoek van Holland heeft de marechaussee zaterdagavond vijf personen aangetroffen in een caravan. Twee mensen zijn aangehouden op...
+- [Aanklagers ICC over Duterte: 'Hij speelde een cruciale rol bij duizenden moorden'](https://nos.nl/l/2603710)
+  > De Filipijnse oud-president Rodrigo Duterte speelde volgens aanklagers een "cruciale rol" bij de moorden op duizenden mensen tijdens zijn bewind. Dat...
+- [Celstraf voor organisator van 'burgergrenscontroles' op asielzoekers](https://nos.nl/l/2603709)
+  > Een man uit het Drentse Nieuw-Weerdinge is veroordeeld voor de oproepen vorig jaar tot 'burgercontroles' op asielzoekers bij de Duitse grens. Jan...
+- [Man valt Jehova's getuigen aan met mes op treinstation in Duitsland, drie gewonden](https://nos.nl/l/2603707)
+  > Op het treinstation van de Duitse stad Würzburg heeft een man meerdere Jehova's getuigen geprobeerd aan te vallen met een mes. Dat meldt de politie....
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van de woestijn naar Ajax-beul: waarom het vaker mag gaan over déze uitblinker bij NEC](https://www.ad.nl/voetbal/van-de-woestijn-naar-ajax-beul-waarom-het-vaker-mag-gaan-over-deze-uitblinker-bij-nec~ac6daa3d/)
-  > In dit topseizoen van NEC gaat het vaak over Kodai Sano, Philippe Sandler of Tjarron Chery. Maar het mag ook vaker gaan over Darko Nejasmic (27)....
-- [Quiz: test nog één keer je kennis over de Olympische Winterspelen](https://www.ad.nl/olympische-spelen/quiz-test-nog-een-keer-je-kennis-over-de-olympische-winterspelen~a28513c5/)
-  > Heb jij ook zo genoten en de Olympische Winterspelen op de voet gevolgd? Weet jij wie er drie keer goud en eenmaal brons won? En wie werd de oudste...
-- [Dj Barry Paf wordt ‘babs’ voor 100% NL Trouwmarathon](https://www.ad.nl/show/dj-barry-paf-wordt-babs-voor-100-nl-trouwmarathon~abda0ddc/)
-  > Barry Paf gaat in opleiding tot Buitengewoon Ambtenaar van de Burgerlijke Stand (babs) om onder meer zijn 100% NL-collega Erik van Roekel in de echt...
-- [Ooit was ze kijkcijferkanon en verlosser, nu kan ze niet meer uit haar ogen kijken van vermoeidheid](https://www.ad.nl/binnenland/ooit-was-ze-kijkcijferkanon-en-verlosser-nu-kan-ze-niet-meer-uit-haar-ogen-kijken-van-vermoeidheid~a14d2e57/)
-  > Lieve Caroline van de Plas, ik heb van je genoten, schrijft Angela de Jong. Dat kan ik ook makkelijk zeggen, want ik ben geen boer. Er zijn mij geen...
-- [Live Q&A: stel dinsdag je vragen over de plannen van het nieuwe kabinet](https://www.ad.nl/politiek/live-qena-stel-dinsdag-je-vragen-over-de-plannen-van-het-nieuwe-kabinet~a92ea51d/)
-  > Het nieuwe kabinet heeft grote plannen die veel Nederlanders direct raken. Wat betekenen de aangekondigde bezuinigingen voor de zorg? Wat verandert...
+- [Hema haalt Nijntje-headset tóch uit verkoop na rode beoordeling, Sennheiser schakelt laboratorium in](https://www.ad.nl/binnenland/hema-haalt-nijntje-headset-toch-uit-verkoop-na-rode-beoordeling-sennheiser-schakelt-laboratorium-in~a414e483/)
+  > Na Bol.com en MediaMarkt nemen nu ook andere winkels maatregelen naar aanleiding van een onderzoek naar mogelijk schadelijke stoffen in headsets....
+- [Edwin van der Sar openhartig over gezondheidsproblemen: ‘Het gaat weer goed met me’](https://www.ad.nl/voetbal/edwin-van-der-sar-openhartig-over-gezondheidsproblemen-het-gaat-weer-goed-met-me~a376b7a5/)
+  > Edwin van der Sar werd in de zomer van 2023 getroffen door een hersenbloeding. Inmiddels is de voormalig topkeeper en Ajax-directeur weer aan de...
+- [Merel heeft een bad hair day en Kees is herenigd met Amerikaanse liefde](https://www.ad.nl/show/merel-heeft-een-bad-hair-day-en-kees-is-herenigd-met-amerikaanse-liefde~a6af479a/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Luid applaus voor succesvolle olympiërs op Schiphol, morgen op bezoek bij de koning](https://www.ad.nl/olympische-spelen/luid-applaus-voor-succesvolle-olympiers-op-schiphol-morgen-op-bezoek-bij-de-koning~a27b6b52/)
+  > De Nederlandse olympische wintersporters zijn maandagmiddag rond 13.00 uur geland op Schiphol. Ze vertrokken een paar uur eerder met een vlucht...
+- [‘Ik plan mijn looproute, de beveiliging omzeilend’: verslaggevers kiezen hun mooiste momenten in Milaan en Cortina](https://www.ad.nl/olympische-spelen/ik-plan-mijn-looproute-de-beveiliging-omzeilend-verslaggevers-kiezen-hun-mooiste-momenten-in-milaan-en-cortina~acfa89ce/)
+  > De Winterspelen in Milaan en Cortina waren een aaneenschakeling van vreugde, verdriet, euforie en emotie. Heerlijke sportmomenten op het ijs en in de...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Grootste ergernis van werkenden: klagende collega’s](https://fd.nl/samenleving/1587288/grootste-ergernis-van-werkenden-klagende-collegas)
+  > Voor ruim een kwart van de Nederlanders is een negatieve houding op het werk de belangrijkste irritatiebron. Vooral vrouwen vinden dit irritant.
+- [Klarna’s langverwachte beursnotering draait uit op een deceptie voor beleggers](https://fd.nl/financiele-markten/1587397/klarnas-langverwachte-beursnotering-draait-uit-op-een-deceptie-voor-beleggers)
+  > De Zweedse fintechbelofte maakte vorig jaar zijn beursdebuut. Van het enthousiasme bij de introductie is een halfjaar later weinig over.
+- [Nieuw: kredietverzekeringen op Nvidia en Meta](https://fd.nl/financiele-markten/1587395/nieuw-kredietverzekeringen-op-nvidia-en-meta)
+  > Waar een ‘tech-tsunami’ al niet goed voor is.
+- [Raiffeisen Bank voorlopig nog niet weg uit Rusland](https://fd.nl/bedrijfsleven/1586440/raiffeisen-bank-voorlopig-nog-niet-weg-uit-rusland)
+  > Na vier jaar oorlog zit de Russische dochter van de Oostenrijkse Raiffeisen Bank nog steeds in Rusland en zou daarmee het sanctiebeleid schenden....
 - [EU-landen verdeeld in aanloop naar overleg nieuw sanctiepakket Rusland](https://fd.nl/politiek/1587286/eu-landen-verdeeld-in-aanloop-naar-overleg-nieuw-sanctiepakket-rusland)
   > Europese buitenlandministers komen vandaag bijeen om te spreken over het twintigste sanctiepakket. Hongarije en Slowakije zien nieuwe sancties niet...
-- [In het Amerikaanse Congres is nog steeds volop steun voor Oekraïne](https://fd.nl/politiek/1587385/in-het-amerikaanse-congres-is-nog-steeds-volop-steun-voor-oekraine)
-  > Vier jaar na de start van de oorlog blijft de Russische terugtrekking uit Oekraïne ook in het belang van de Amerikaanse veiligheid. De vraag is op...
-- [Nu in het theater: concurrentiedrama’s](https://fd.nl/financiele-markten/1587284/nu-in-het-theater-concurrentiedramas)
-  > Een gebeurtenis in De Kleine Komedie toonde volgens FD-columnist Ria Roerink aan wat Europa vooral niét moet doen om verstoring van de markten door...
-- [Aan het roer bij tegenslag](https://fd.nl/samenleving/1587036/aan-het-roer-bij-tegenslag)
-  > In extreme omstandigheden moeten leiders meebewegen, weet avonturier Bernice Notenboom. Maar dat is iets wat je kunt leren. Kijk maar naar...
-- [De Vinted-draaideurgarderobe](https://fd.nl/samenleving/1587387/de-vinted-draaideurgarderobe)
-  > Vinted is gewoon een aanjager van overconsumptie, maar dan met een dun ideëel jasje, stelt Frida Boeke vast.
 
 ### Meest gelezen
 
