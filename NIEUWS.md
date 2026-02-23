@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-02-2026 om 18:14*
+*Laatst bijgewerkt: 23-02-2026 om 21:29*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Na eiwitten zijn vezels de nieuwe eettrend](https://nos.nl/l/2603760)
-  > 356149328 - Ekoplaza experimenteert met plasticvrije winkel | Beelden | ANP Foto
-        Draaide het bij gezond eten tot voor kort vooral om het...
-- [Mona Keijzer verlaat BBB en gaat als zelfstandig Kamerlid verder](https://nos.nl/l/2603756)
-  > Oud-minister Mona Keijzer verlaat de BBB-fractie en gaat als zelfstandig Kamerlid verder. Dat zegt ze tegen De Telegraaf. Ze heeft dat besluit...
-- [Voor derde dag op rij demonstraties bij universiteiten in Iran](https://nos.nl/l/2603755)
-  > Voor de derde dag op rij zijn er demonstraties bij universiteiten in Iran. Met name in hoofdstad Teheran, maar ook in de stad Isfahan, op zo'n 400...
-- [Na ex-prins Andrew ook Britse politicus Mandelson opgepakt in Epstein-zaak](https://nos.nl/l/2603750)
-  > De Britse politicus Peter Mandelson is door de politie meegenomen uit zijn huis in Londen. Mandelson ligt al langer onder vuur vanwege zijn warme...
-- [Pensioenaanbieders zien meer interesse van zzp'ers door nieuwe box 3-regels](https://nos.nl/l/2603749)
-  > Aanbieders van pensioenen voor zzp'ers en andere ondernemers zien de laatste weken het aantal nieuwe klanten stijgen. Dat komt mede door de nieuwe...
+- [Duizenden mensen in Friesland urenlang zonder stroom](https://nos.nl/l/2603774)
+  > Duizenden huishoudens in het zuidwesten van Friesland zaten vandaag urenlang zonder stroom. De storing is inmiddels verholpen. Netbeheerder Liander...
+- [Ambassadeur VS weigert bij Franse minister op het matje te komen](https://nos.nl/l/2603773)
+  > De Amerikaanse ambassadeur in Parijs heeft opnieuw de woede gewekt van de Franse regering. De Franse minister van Buitenlandse Zaken had hem vanavond...
+- [BBC biedt excuses aan voor niet censureren n-woord tijdens uitzending Bafta's](https://nos.nl/l/2603769)
+  > De Britse omroep BBC heeft excuses aangeboden voor het niet censureren van een racistische opmerking tijdens de uitzending van de Bafta-awards, het...
+- [Slowakije levert geen noodstroom meer aan Oekraïne](https://nos.nl/l/2603768)
+  > De Slowaakse premier Fico zegt dat hij nieuwe verzoeken van Oekraïne voor de levering van noodstroom zal afwijzen, zolang Oekraïne de aanvoer van...
+- [Beelden van kindermisbruik gevonden in cel kindermoordenaar Marc Dutroux](https://nos.nl/l/2603767)
+  > In de cel van kindermoordenaar Marc Dutroux in België zijn in 2024 afbeeldingen gevonden van seksueel misbruik van minderjarigen. Dat schrijft het...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Vertrek Sjaak Troost bij Feyenoord zet schijnwerpers nog meer op onder vuur liggende collega’s](https://www.ad.nl/voetbal/vertrek-sjaak-troost-bij-feyenoord-zet-schijnwerpers-nog-meer-op-onder-vuur-liggende-collegas~a8baadcc/)
-  > Sjaak Troost stopt per direct als lid van de Raad van Commissarissen (RvC) van Feyenoord. Wat betekent zijn vertrek en wat betekent het voor zijn...
-- [Wachten op nieuw kabinet duurt te lang](https://www.ad.nl/commentaar/wachten-op-nieuw-kabinet-duurt-te-lang~a22a12e9/)
-  > Met het aantreden van het nieuwe kabinet zijn we toe aan onze derde bewindsploeg in vier jaar tijd. Het duurde vier maanden voor er verkiezingen...
-- [Jong, hoogopgeleid en opvallend wit: zo ziet het kabinet-Jetten eruit](https://www.ad.nl/politiek/jong-hoogopgeleid-en-opvallend-wit-zo-ziet-het-kabinet-jetten-eruit~a91cf58d/)
-  > Super jong, meer mannen dan vrouwen en opvallend wit en academisch. Dat is het profiel van het nieuwe kabinet-Jetten dat maandag op het bordes stond....
-- [Nick Reiner, zoon van Hollywood-regisseur Rob Reiner, pleit onschuldig in moordzaak ouders](https://www.ad.nl/show/nick-reiner-zoon-van-hollywood-regisseur-rob-reiner-pleit-onschuldig-in-moordzaak-ouders~a30b5328/)
-  > Nick Reiner zegt dat hij de moord op zijn vader en moeder, regisseur Rob Reiner en Michele Singer, niet heeft gepleegd. Tijdens een hoorzitting in...
-- [Mona Keijzer weg bij BBB na vertrouwensbreuk, gaat door als zelfstandig Kamerlid](https://www.ad.nl/politiek/mona-keijzer-weg-bij-bbb-na-vertrouwensbreuk-gaat-door-als-zelfstandig-kamerlid~a8d75d7c/)
-  > Voormalig vicepremier Mona Keijzer stapt op bij BBB. Ze is boos over het feit dat ze gepasseerd is voor het partijleiderschap, nu Caroline van der...
+- [Feyenoord ziet in Kees van Wonderen nieuwe technisch directeur](https://www.ad.nl/voetbal/feyenoord-ziet-in-kees-van-wonderen-nieuwe-technisch-directeur~a69411b3/)
+  > Feyenoord heeft Kees van Wonderen op het oog als technisch directeur. De voormalig speler, die tussen 1996 en 2004 in Rotterdam speelde en met de...
+- [Kjeld Nuis kritisch over NK van komend weekend: ‘Wie dat heeft verzonnen, spoort niet’](https://www.ad.nl/olympische-spelen/kjeld-nuis-kritisch-over-nk-van-komend-weekend-wie-dat-heeft-verzonnen-spoort-niet~a6775557/)
+  > Kjeld Nuis begrijpt niets van het besluit om komend weekend al een NK allround en sprint te organiseren, een week na het einde van de Olympische...
+- [LIVE Premier League | Everton na rust de sterkste tegen ManUnited, komt er nog een winnende goal?](https://www.ad.nl/voetbal/live-premier-league-everton-na-rust-de-sterkste-tegen-manunited-komt-er-nog-een-winnende-goal~acf57fc3e/)
+  > Manchester United is vol in de race om een ticket voor de Champions League. Vandaag gaat de ploeg van Michael Carrick op bezoek bij Everton. Volg het...
+- [Kopen zonder kijken-makelaar Alex van Keulen komt met ‘exitklok’: ‘Net zo eng als je denkt’](https://www.ad.nl/show/kopen-zonder-kijken-makelaar-alex-van-keulen-komt-met-exitklok-net-zo-eng-als-je-denkt~a0f042dd/)
+  > Deelnemers van de kijkcijferhit Kopen zonder kijken vrezen geen ‘consessieklok’ meer, maar een zogenoemde exitklok. Het ding is volgens tv-makelaar...
+- [Herman van der Zandt eert overleden René Karst bij start De slimste mens: ‘Hij geniet van zijn deelname’](https://www.ad.nl/show/herman-van-der-zandt-eert-overleden-rene-karst-bij-start-de-slimste-mens-hij-geniet-van-zijn-deelname~ac5df2d8/)
+  > Presentator Herman van der Zandt heeft maandagavond bij de start van een nieuw seizoen van het tv-quizprogramma De slimste mens een eerbetoon...
 
 ### Meest gelezen
 
@@ -47,15 +46,16 @@
 
 ### Laatste nieuws
 
-- [Gilead koopt Amerikaanse biotech Arcellx voor $7,8 mrd](https://fd.nl/tech-en-innovatie/1587400/gilead-koopt-amerikaanse-biotech-arcellx-voor-7-8-mrd)
-  > De prijs, $115 per aandeel, is bijna het dubbele van Arcellx’ slotkoers afgelopen vrijdag. Het aandeel steeg in de voorbeurshandel met bijna 80%.
-- [Nieuw afslankmedicijn Novo Nordisk stelt teleur, aandeel in de min](https://fd.nl/bedrijfsleven/1587299/nieuw-afslankmedicijn-novo-nordisk-stelt-teleur-aandeel-keldert)
-  > Novo Nordisk maakte maandag bekend dat zijn nieuwe afslankmedicijn minder effectief is dan dat van concurrent Eli Lilly. De koers daalde daarop met...
-- [VK wil verbod op illegale gokbedrijven op sportshirt](https://fd.nl/bedrijfsleven/1587402/vk-wil-verbod-op-illegale-gokbedrijven-op-sportshirt)
-- [Gecrashte ETS kost Nederland geld](https://fd.nl/financiele-markten/1587037/gecrashte-ets-kost-nederland-geld)
-  > Het gemorrel aan het Europese emissiehandelssysteem doet de CO₂-prijs en veilingopbrengsten dalen.
-- [Argentinië versoepelt arbeidsmarkt, de rekening ligt bij de werknemer](https://fd.nl/economie/1587106/argentinie-versoepelt-arbeidsmarkt-de-rekening-ligt-bij-de-werknemer)
-  > President Milei wil ingrijpende maatregelen nemen: ontslag vergemakkelijken, werkdagen verlengen en het stakingsrecht inperken.
+- [Dalende koersen op Wall Street na onheilspellend AI-rapport](https://fd.nl/financiele-markten/1587423/dalende-koersen-op-wall-street-na-onheilspellend-ai-rapport)
+  > Beleggers schrokken van de nieuwe importheffingen van president Donald Trump. Een gedachtenexperiment van het relatief onbekende analistenbureau...
+- [VEB wil onderzoek naar handel met voorkennis bij InPost](https://fd.nl/bedrijfsleven/1587406/veb-wil-onderzoek-naar-handel-met-voorkennis-bij-inpost)
+  > De beleggersvereniging heeft vragen over overnamegeruchten en de daaropvolgende koersstijging neergelegd bij de Autoriteit Financiële Markten.
+- [De wapenkast van Trump is nog lang niet leeg, waarschuwen analisten](https://fd.nl/economie/1587304/de-wapenkast-van-trump-is-nog-lang-niet-leeg-waarschuwen-analisten)
+  > Ook na de juridische nederlaag in eigen land heeft president Donald Trump nog genoeg handelswapens paraat. ‘Het risico op escalatie is nu groter dan...
+- [Onrust over het belasten van aandelen in start-ups was te voorkomen](https://fd.nl/opinie/1587289/onrust-over-het-belasten-van-aandelen-in-start-ups-was-te-voorkomen)
+  > De beloofde uitzondering voor belangen in start-ups in box 3 is in de praktijk zo beperkt dat veel groeibedrijven buiten de boot vallen.
+- [Vastned ziet winkelwaardes stijgen, maar tempert verwachtingen voor 2026](https://fd.nl/economie/1587407/vastned-ziet-winkelwaardes-stijgen-maar-tempert-verwachtingen-voor-2026)
+  > De beursgenoteerde winkelvastgoedbelegger waarschuwt voor lagere winst in 2026 door hogere rentelasten.
 
 ### Meest gelezen
 
