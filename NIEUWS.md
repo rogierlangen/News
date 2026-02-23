@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-02-2026 om 08:05*
+*Laatst bijgewerkt: 23-02-2026 om 11:27*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- ['Vlaardingse pleegouders verliezen gezag over eigen dochter'](https://nos.nl/l/2603666)
-  > De Vlaardingse pleegouders Johnny van den B. en Daisy W. zijn het gezag over hun biologische dochter kwijtgeraakt. Ook de voogdij over een jongen die...
-- [Medewerker zorginstelling geschorst na mogelijk seksueel wangedrag](https://nos.nl/l/2603664)
-  > Een medewerker van een zorginstelling in het Gelderse Loenen wordt verdacht van seksueel grensoverschrijdend gedrag bij cliënten met een...
-- [Grote zorgen in Mexico om geweld door Jaliscokartel na dood El Mencho](https://nos.nl/l/2603659)
-  > De dood van El Mencho, de beruchte leider van het Jaliscokartel, heeft Mexico in een opperste staat van alertheid gebracht. Nu een van de grootste en...
-- [Wekdienst 23/2: Kabinet beëdigd door koning • Inleidende ICC-zitting Duterte](https://nos.nl/l/2603655)
-  > Goedemorgen! Vandaag krijgt Nederland een nieuw kabinet met de beëdiging op Paleis Huis ten Bosch. En in Groningen staat een activist voor de rechter...
-- [NS start proef met wapenstok voor boa's: eerst training, dan in de trein](https://nos.nl/l/2603653)
-  > NS start vandaag een proef met wapenstokken voor boa's. Van de 680 NS-boa's krijgen er 75 komende weken training in het gebruik van een wapenstok....
+- [Koptelefoons uit voorzorg uit verkoop na onderzoek schadelijke stoffen](https://nos.nl/l/2603689)
+  > Sommige winkelketens zijn uit voorzorg gestopt met de verkoop van bepaalde modellen koptelefoons. Onder meer Bol.com en MediaMarkt deden dat,...
+- [Piercingshop Coevorden sluit deuren na tientallen meldingen van ontstekingen](https://nos.nl/l/2603687)
+  > Een piercingshop in Coevorden gaat per direct dicht, nadat er tientallen meldingen waren binnengekomen van mensen met ontstekingen aan het oor. Het...
+- [Kabinet-Jetten officieel beëdigd en kan aan de slag](https://nos.nl/l/2603685)
+  > De nieuwe ministers en staatssecretarissen hebben op paleis Huis ten Bosch in Den Haag de eed of de belofte afgelegd. Daarmee is het kabinet-Jetten...
+- [PostNL profiteert van decemberpost, maar lijdt toch verlies](https://nos.nl/l/2603668)
+  > PostNL bezorgde afgelopen jaar weer meer pakketten in Nederland en België. Toch blijft het postbedrijf last houden van het dalende aantal brieven dat...
+- [Bus stort in rivier in Nepal, zeker negentien doden](https://nos.nl/l/2603667)
+  > Bij een busongeluk in Nepal zijn minstens negentien mensen omgekomen. 25 inzittenden raakten gewond.
+        De bus was in bergachtig gebied onderweg...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Nog twee dagen druilerig, maar dan lenteweer: woensdag mooie zonsondergang door Saharazand](https://www.ad.nl/binnenland/nog-twee-dagen-druilerig-maar-dan-lenteweer-woensdag-mooie-zonsondergang-door-saharazand~a32cc222c/)
-  > Het is nog twee dagen wachten, maar dan komt het vorige week voorspelde zonnige lenteweer er echt aan. Vooral in het oosten van Nederland moeten...
-- [Deze twee vrouwen overleefden een lawine: ‘Alsof ik in beton gegoten was’](https://www.ad.nl/buitenland/deze-twee-vrouwen-overleefden-een-lawine-alsof-ik-in-beton-gegoten-was~a4bd9d8db/)
-  > Lawines blijven slachtoffers eisen. Dit wintersportseizoen kwamen er al 21 mensen om het leven in Oostenrijk en 28 in de Franse Alpen. Er zijn maar...
-- [Kabinet Jetten vandaag van start: nieuwe ploeg wordt beëdigd, Schoof neemt afscheid](https://www.ad.nl/politiek/kabinet-jetten-vandaag-van-start-nieuwe-ploeg-wordt-beedigd-schoof-neemt-afscheid~a9bdde55/)
-  > Vandaag, 117 dagen na de verkiezingen, gaat het kabinet Jetten  officieel van start. Om tien uur worden de bewindspersonen beëdigd, rond elf uur...
-- [Prachtig eerbetoon van ijshockeyers VS aan ploeggenoot die werd doodgereden door dronken automobilist](https://www.ad.nl/olympische-spelen/prachtig-eerbetoon-van-ijshockeyers-vs-aan-ploeggenoot-die-werd-doodgereden-door-dronken-automobilist~a344d5d5/)
-  > De Amerikaanse ijshockeyers hebben na het winnen van goud op de Olympische Spelen de overleden John Gaudreau op indrukwekkende wijze geëerd. De...
-- [Flink geboden op schaatspak Jutta, oude club kan zich in handen wrijven: ‘Zulke bedragen zijn we niet gewend’](https://www.ad.nl/schaatsen/flink-geboden-op-schaatspak-jutta-oude-club-kan-zich-in-handen-wrijven-zulke-bedragen-zijn-we-niet-gewend~a3111a34/)
-  > Van Duitsland tot Canada en Mexico: overal wil wel iemand het schaatspak kopen waarin ‘ijskoningin’ Jutta Leerdam tot grote hoogten steeg. Voor haar...
+- [Van de woestijn naar Ajax-beul: waarom het vaker mag gaan over déze uitblinker bij NEC](https://www.ad.nl/voetbal/van-de-woestijn-naar-ajax-beul-waarom-het-vaker-mag-gaan-over-deze-uitblinker-bij-nec~ac6daa3d/)
+  > In dit topseizoen van NEC gaat het vaak over Kodai Sano, Philippe Sandler of Tjarron Chery. Maar het mag ook vaker gaan over Darko Nejasmic (27)....
+- [Quiz: test nog één keer je kennis over de Olympische Winterspelen](https://www.ad.nl/olympische-spelen/quiz-test-nog-een-keer-je-kennis-over-de-olympische-winterspelen~a28513c5/)
+  > Heb jij ook zo genoten en de Olympische Winterspelen op de voet gevolgd? Weet jij wie er drie keer goud en eenmaal brons won? En wie werd de oudste...
+- [Dj Barry Paf wordt ‘babs’ voor 100% NL Trouwmarathon](https://www.ad.nl/show/dj-barry-paf-wordt-babs-voor-100-nl-trouwmarathon~abda0ddc/)
+  > Barry Paf gaat in opleiding tot Buitengewoon Ambtenaar van de Burgerlijke Stand (babs) om onder meer zijn 100% NL-collega Erik van Roekel in de echt...
+- [Ooit was ze kijkcijferkanon en verlosser, nu kan ze niet meer uit haar ogen kijken van vermoeidheid](https://www.ad.nl/binnenland/ooit-was-ze-kijkcijferkanon-en-verlosser-nu-kan-ze-niet-meer-uit-haar-ogen-kijken-van-vermoeidheid~a14d2e57/)
+  > Lieve Caroline van de Plas, ik heb van je genoten, schrijft Angela de Jong. Dat kan ik ook makkelijk zeggen, want ik ben geen boer. Er zijn mij geen...
+- [Live Q&A: stel dinsdag je vragen over de plannen van het nieuwe kabinet](https://www.ad.nl/politiek/live-qena-stel-dinsdag-je-vragen-over-de-plannen-van-het-nieuwe-kabinet~a92ea51d/)
+  > Het nieuwe kabinet heeft grote plannen die veel Nederlanders direct raken. Wat betekenen de aangekondigde bezuinigingen voor de zorg? Wat verandert...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Dit zijn ze: alle ministers en staatssecretarissen in het kabinet‑Jetten](https://fd.nl/politiek/1586439/dit-zijn-ze-alle-ministers-en-staatssecretarissen-in-het-kabinetjetten)
-  > De nieuwe ploeg ministers en staatssecretarissen staat vandaag op het bordes van Huis ten Bosch. Een mix van ervaren politici en nieuwkomers. Wie...
-- [Huizenprijzen 5,4% hoger dan jaar geleden](https://fd.nl/samenleving/1587386/huizenprijzen-5-4-hoger-dan-jaar-geleden)
-  > De gemiddelde transactieprijs van een koopwoning bedroeg in januari bijna €493.875.
-- [Live: AEX richting nipt hogere opening volgens futures](https://fd.nl/financiele-markten/1587278/live-lagere-futures-op-europese-markten)
-  > Het Witte Huis schudt het handelsbeleid nog eens op, nadat het hooggerechtshof een streep had gezet door de vorig jaar ingevoerde invoerheffingen....
-- [Geweld barst los in Mexico na dood kartelleider](https://fd.nl/samenleving/1587277/geweld-barst-los-in-mexico-na-dood-kartelleider)
-  > Na het doden van de Mexicaanse drugskartelleider El Mancho namen bendeleden wraak door brand te stichten, geweld te plegen en wegen te blokkeren.
-- [Feestdagen bezorgen PostNL voorspelde winstdoel](https://fd.nl/bedrijfsleven/1587118/feestdagen-bezorgen-postnl-voorspelde-winstdoel)
-  > PostNL leverde in het vierde kwartaal evenveel pakketjes af als in de laatste maanden van 2024, maar haalde daar meer omzet uit.
+- [EU-landen verdeeld in aanloop naar overleg nieuw sanctiepakket Rusland](https://fd.nl/politiek/1587286/eu-landen-verdeeld-in-aanloop-naar-overleg-nieuw-sanctiepakket-rusland)
+  > Europese buitenlandministers komen vandaag bijeen om te spreken over het twintigste sanctiepakket. Hongarije en Slowakije zien nieuwe sancties niet...
+- [In het Amerikaanse Congres is nog steeds volop steun voor Oekraïne](https://fd.nl/politiek/1587385/in-het-amerikaanse-congres-is-nog-steeds-volop-steun-voor-oekraine)
+  > Vier jaar na de start van de oorlog blijft de Russische terugtrekking uit Oekraïne ook in het belang van de Amerikaanse veiligheid. De vraag is op...
+- [Nu in het theater: concurrentiedrama’s](https://fd.nl/financiele-markten/1587284/nu-in-het-theater-concurrentiedramas)
+  > Een gebeurtenis in De Kleine Komedie toonde volgens FD-columnist Ria Roerink aan wat Europa vooral niét moet doen om verstoring van de markten door...
+- [Aan het roer bij tegenslag](https://fd.nl/samenleving/1587036/aan-het-roer-bij-tegenslag)
+  > In extreme omstandigheden moeten leiders meebewegen, weet avonturier Bernice Notenboom. Maar dat is iets wat je kunt leren. Kijk maar naar...
+- [De Vinted-draaideurgarderobe](https://fd.nl/samenleving/1587387/de-vinted-draaideurgarderobe)
+  > Vinted is gewoon een aanjager van overconsumptie, maar dan met een dun ideëel jasje, stelt Frida Boeke vast.
 
 ### Meest gelezen
 
