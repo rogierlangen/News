@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-02-2026 om 05:22*
+*Laatst bijgewerkt: 23-02-2026 om 08:05*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- ['Vlaardingse pleegouders verliezen gezag over eigen dochter'](https://nos.nl/l/2603666)
+  > De Vlaardingse pleegouders Johnny van den B. en Daisy W. zijn het gezag over hun biologische dochter kwijtgeraakt. Ook de voogdij over een jongen die...
+- [Medewerker zorginstelling geschorst na mogelijk seksueel wangedrag](https://nos.nl/l/2603664)
+  > Een medewerker van een zorginstelling in het Gelderse Loenen wordt verdacht van seksueel grensoverschrijdend gedrag bij cliënten met een...
+- [Grote zorgen in Mexico om geweld door Jaliscokartel na dood El Mencho](https://nos.nl/l/2603659)
+  > De dood van El Mencho, de beruchte leider van het Jaliscokartel, heeft Mexico in een opperste staat van alertheid gebracht. Nu een van de grootste en...
+- [Wekdienst 23/2: Kabinet beëdigd door koning • Inleidende ICC-zitting Duterte](https://nos.nl/l/2603655)
+  > Goedemorgen! Vandaag krijgt Nederland een nieuw kabinet met de beëdiging op Paleis Huis ten Bosch. En in Groningen staat een activist voor de rechter...
 - [NS start proef met wapenstok voor boa's: eerst training, dan in de trein](https://nos.nl/l/2603653)
   > NS start vandaag een proef met wapenstokken voor boa's. Van de 680 NS-boa's krijgen er 75 komende weken training in het gebruik van een wapenstok....
-- [Start kabinet-Jetten: jacquets, omkleden en vaste plek op bordes](https://nos.nl/l/2603652)
-  > Voor de derde keer in iets meer dan vier jaar treedt er vandaag een nieuw Nederlands kabinet aan. De ministers en staatssecretarissen van het...
-- [Brand na mogelijke explosie in Amsterdam-Zuid, één gewonde](https://nos.nl/l/2603651)
-  > In Amsterdam is een hevige brand uitgebroken in een winkelpand in de Rivierenbuurt, mogelijk na een explosie. Omwonenden hoorden een harde knal, laat...
-- [Oosten VS bereidt zich voor op hevige winterstorm](https://nos.nl/l/2603650)
-  > Het noordoosten van de VS maakt zich op voor een zware winterstorm. De gouverneurs van New York en New Jersey hebben de noodtoestand uitgeroepen, net...
-- [Dode bij schietincident in Zwolle](https://nos.nl/l/2603649)
-  > In Zwolle is een man gisteravond omgekomen bij een schietincident. Over zijn identiteit is niets bekend.
-        De krant De Stentor meldt dat...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Deze Nederlander bouwde de eerste werkende verbrandingsmotor in 1673, maar kreeg nooit erkenning](https://www.ad.nl/auto/deze-nederlander-bouwde-de-eerste-werkende-verbrandingsmotor-in-1673-maar-kreeg-nooit-erkenning~a197546e1/)
-  > Een Nederlandse sterrenkundige ontwierp al in 1673 een verbrandingsmotor, maar hij kreeg de krachtbron nooit goed aan de gang. Dat kwam omdat hij...
-- [Shell sluit tankstation in België nadat auto’s stilvallen](https://www.ad.nl/buitenland/shell-sluit-tankstation-in-belgie-nadat-autos-stilvallen~ad47cb49/)
-  > Shell heeft in het Belgische Mechelen een tankstation gesloten nadat er meerdere auto’s niet meer konden starten. Het lijkt erop dat automobilisten...
-- [Van eed tot eerste ministerraad: zo verloopt de eerste dag van kabinet-Jetten van minuut tot minuut](https://www.ad.nl/politiek/van-eed-tot-eerste-ministerraad-zo-verloopt-de-eerste-dag-van-kabinet-jetten-van-minuut-tot-minuut~a1929984/)
-  > Vandaag, 118 dagen na de verkiezingen, staat het kabinet-Jetten op het bordes van Paleis Huis ten Bosch. Hoe ziet de eerste dag van alle nieuwe...
-- [LIVE VS | China vraagt VS om nieuwe wereldwijde invoerheffingen in te trekken](https://www.ad.nl/buitenland/live-vs-china-vraagt-vs-om-nieuwe-wereldwijde-invoerheffingen-in-te-trekken~ae67dd9c/)
-  > China heeft er bij de Verenigde Staten op aangedrongen de nieuwe importtarieven in te trekken. Donald Trump kondigde de heffingen aan nadat het...
-- [Doodgeschoten indringer op Mar-a-Lago was 21-jarige man afkomstig uit familie van Trump-aanhangers](https://www.ad.nl/buitenland/doodgeschoten-indringer-op-mar-a-lago-was-21-jarige-man-afkomstig-uit-familie-van-trump-aanhangers~a31ab5e8/)
-  > De jongeman die zondag door de politie werd doodgeschoten nadat hij probeerde illegaal een beveiligd gebied te betreden bij het Mar-a-Lago-resort van...
+- [Nog twee dagen druilerig, maar dan lenteweer: woensdag mooie zonsondergang door Saharazand](https://www.ad.nl/binnenland/nog-twee-dagen-druilerig-maar-dan-lenteweer-woensdag-mooie-zonsondergang-door-saharazand~a32cc222c/)
+  > Het is nog twee dagen wachten, maar dan komt het vorige week voorspelde zonnige lenteweer er echt aan. Vooral in het oosten van Nederland moeten...
+- [Deze twee vrouwen overleefden een lawine: ‘Alsof ik in beton gegoten was’](https://www.ad.nl/buitenland/deze-twee-vrouwen-overleefden-een-lawine-alsof-ik-in-beton-gegoten-was~a4bd9d8db/)
+  > Lawines blijven slachtoffers eisen. Dit wintersportseizoen kwamen er al 21 mensen om het leven in Oostenrijk en 28 in de Franse Alpen. Er zijn maar...
+- [Kabinet Jetten vandaag van start: nieuwe ploeg wordt beëdigd, Schoof neemt afscheid](https://www.ad.nl/politiek/kabinet-jetten-vandaag-van-start-nieuwe-ploeg-wordt-beedigd-schoof-neemt-afscheid~a9bdde55/)
+  > Vandaag, 117 dagen na de verkiezingen, gaat het kabinet Jetten  officieel van start. Om tien uur worden de bewindspersonen beëdigd, rond elf uur...
+- [Prachtig eerbetoon van ijshockeyers VS aan ploeggenoot die werd doodgereden door dronken automobilist](https://www.ad.nl/olympische-spelen/prachtig-eerbetoon-van-ijshockeyers-vs-aan-ploeggenoot-die-werd-doodgereden-door-dronken-automobilist~a344d5d5/)
+  > De Amerikaanse ijshockeyers hebben na het winnen van goud op de Olympische Spelen de overleden John Gaudreau op indrukwekkende wijze geëerd. De...
+- [Flink geboden op schaatspak Jutta, oude club kan zich in handen wrijven: ‘Zulke bedragen zijn we niet gewend’](https://www.ad.nl/schaatsen/flink-geboden-op-schaatspak-jutta-oude-club-kan-zich-in-handen-wrijven-zulke-bedragen-zijn-we-niet-gewend~a3111a34/)
+  > Van Duitsland tot Canada en Mexico: overal wil wel iemand het schaatspak kopen waarin ‘ijskoningin’ Jutta Leerdam tot grote hoogten steeg. Voor haar...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Nieuwe box 3-regels funest voor start-ups](https://fd.nl/economie/1587141/nieuwe-box-3-regels-funest-voorstart-ups)
-  > Vandaag in Dagkoers: de impact van de nieuwe box 3-regels op start-ups, Vodafone wordt ‘met een strik’ naar de beurs gebracht en de cruciale rol van...
-- [Start-ups vrezen hoge belasting voor hun personeel in nieuwe box 3](https://fd.nl/bedrijfsleven/1587228/start-ups-vrezen-hoge-belasting-voor-hun-personeel-in-nieuwe-box-3)
-  > Nederlandse start-ups en scale-ups denken dat zij door de nieuwe belastingmaatregel minder aantrekkelijk worden voor medewerkers en vroege...
-- [EU met tanden](https://fd.nl/opinie/1587167/eu-met-tanden)
-  > Brussel moet laten zien dat het de importheffingen van Trump niet pikt.
-- [Miljoenen Britse studenten komen niet van hun torenhoge studieschuld af](https://fd.nl/samenleving/1587015/miljoenen-britse-studenten-komen-niet-van-hun-torenhoge-studieschuld-af)
-  > In 2012 verdriedubbelde Engeland het collegegeld en kwam er een ingewikkeld systeem voor studieleningen. De 17-jarigen van toen ontdekken nu dat de...
-- [Baan kwijt, vervangen door AI](https://fd.nl/opinie/1586157/baan-kwijt-vervangen-door-ai)
-  > Generatieve AI gaat de arbeidsmarkt zeker veranderen. Sommige beroepen zullen (deels) verdwijnen. Maar er zijn ook veel nieuwe mogelijkheden voor...
+- [Dit zijn ze: alle ministers en staatssecretarissen in het kabinet‑Jetten](https://fd.nl/politiek/1586439/dit-zijn-ze-alle-ministers-en-staatssecretarissen-in-het-kabinetjetten)
+  > De nieuwe ploeg ministers en staatssecretarissen staat vandaag op het bordes van Huis ten Bosch. Een mix van ervaren politici en nieuwkomers. Wie...
+- [Huizenprijzen 5,4% hoger dan jaar geleden](https://fd.nl/samenleving/1587386/huizenprijzen-5-4-hoger-dan-jaar-geleden)
+  > De gemiddelde transactieprijs van een koopwoning bedroeg in januari bijna €493.875.
+- [Live: AEX richting nipt hogere opening volgens futures](https://fd.nl/financiele-markten/1587278/live-lagere-futures-op-europese-markten)
+  > Het Witte Huis schudt het handelsbeleid nog eens op, nadat het hooggerechtshof een streep had gezet door de vorig jaar ingevoerde invoerheffingen....
+- [Geweld barst los in Mexico na dood kartelleider](https://fd.nl/samenleving/1587277/geweld-barst-los-in-mexico-na-dood-kartelleider)
+  > Na het doden van de Mexicaanse drugskartelleider El Mancho namen bendeleden wraak door brand te stichten, geweld te plegen en wegen te blokkeren.
+- [Feestdagen bezorgen PostNL voorspelde winstdoel](https://fd.nl/bedrijfsleven/1587118/feestdagen-bezorgen-postnl-voorspelde-winstdoel)
+  > PostNL leverde in het vierde kwartaal evenveel pakketjes af als in de laatste maanden van 2024, maar haalde daar meer omzet uit.
 
 ### Meest gelezen
 
