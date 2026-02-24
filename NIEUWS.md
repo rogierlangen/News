@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-02-2026 om 23:47*
+*Laatst bijgewerkt: 24-02-2026 om 05:13*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [SCP ziet moeilijk na te komen beloftes in coalitieakkoord](https://nos.nl/l/2603782)
-  > De nieuwe coalitie doet verschillende grote beloftes waarvan het niet zeker is of ze kunnen worden waargemaakt. Dat is een risico, omdat het...
-- [Zoon van regisseur Rob Reiner zegt onschuldig te zijn aan moord op vader en moeder](https://nos.nl/l/2603776)
-  > De zoon van de Amerikaanse regisseur Rob Reiner zegt dat hij zijn ouders niet om het leven heeft gebracht. De 32-jarige zoon wordt verdacht van moord...
-- [Duizenden mensen in Friesland urenlang zonder stroom](https://nos.nl/l/2603774)
-  > Duizenden huishoudens in het zuidwesten van Friesland zaten vandaag urenlang zonder stroom. De storing is inmiddels verholpen. Netbeheerder Liander...
-- [Ambassadeur VS weigert bij Franse minister op het matje te komen](https://nos.nl/l/2603773)
-  > De Amerikaanse ambassadeur in Parijs heeft opnieuw de woede gewekt van de Franse regering. De Franse minister van Buitenlandse Zaken had hem vanavond...
-- [BBC biedt excuses aan voor niet censureren n-woord tijdens uitzending Bafta's](https://nos.nl/l/2603769)
-  > De Britse omroep BBC heeft excuses aangeboden voor het niet censureren van een racistische opmerking tijdens de uitzending van de Bafta-awards, het...
+- [Oud-ambassadeur Mandelson op borgtocht vrijgelaten](https://nos.nl/l/2603788)
+  > De Britse politicus Peter Mandelson is op borgtocht vrijgelaten. Hij werd gisteren aangehouden op verdenking van wangedrag in een publiek ambt en...
+- [Zuid-Koreaanse oud-president Yoon in beroep tegen levenslange straf](https://nos.nl/l/2603787)
+  > Oud-president van Zuid-Korea Yoon Suk-yeol gaat in beroep tegen zijn veroordeling tot levenslang voor zijn poging tot een staatsgreep in 2024. Dat...
+- [Opgevist 'vinvisbot' blijkt afkomstig uit oud Amsterdams museum](https://nos.nl/l/2603786)
+  > Een zeldzaam walviskaakbot dat een jaar geleden uit de Oosterschelde werd opgevist, blijkt van een museum in Amsterdam afkomstig te zijn. Dat heeft...
+- [Opnieuw aanvallen op politie Oekraïne, nu in Mykolajiv en Dnipro](https://nos.nl/l/2603785)
+  > Voor de derde keer in drie dagen tijd is de Oekraïense politie doelwit van aanvallen. Bij aanvallen in Dnipro en Mykolajev waren er maandag...
+- [Cybercriminelen dreigen met lekken gestolen data Odido](https://nos.nl/l/2603784)
+  > De cybercriminelen die verantwoordelijk zeggen te zijn voor de hack op Telecomprovider Odido dreigen de gestolen data te publiceren op het dark web....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Opgestapte ICE-advocaat getuigt over gaten in opleiding tot ICE-agent sinds bezuinigingen](https://www.ad.nl/buitenland/opgestapte-ice-advocaat-getuigt-over-gaten-in-opleiding-tot-ice-agent-sinds-bezuinigingen~a42ae926/)
-  > Een voormalig advocaat van de Amerikaanse immigratiedienst (ICE), die verantwoordelijk was voor de opleiding van nieuwe deportatiefunctionarissen,...
-- [Griezmann vervolgt loopbaan mogelijk in MLS, Faber trekt zich paar dagen terug als trainer Heracles](https://www.ad.nl/voetbal/griezmann-vervolgt-loopbaan-mogelijk-in-mls-faber-trekt-zich-paar-dagen-terug-als-trainer-heracles~a79d4309/)
-  > De transfermarkt in Nederland en de grootste competities is gesloten. Er zijn nog slechts een paar landen waar spelers naartoe kunnen. Ook zullen er...
-- [SCP: Kwetsbare mensen hard geraakt door plannen kabinet](https://www.ad.nl/politiek/scp-kwetsbare-mensen-hard-geraakt-door-plannen-kabinet~a611f17b/)
-  > Het nieuwe kabinet heeft te weinig oog voor kwetsbare mensen in de samenleving. Daarvoor waarschuwt het Sociaal en Cultureel Planbureau (SCP). Er...
-- [‘Cybercriminelen dreigen met verkoop van persoonsgegevens Odido na megalek’](https://www.ad.nl/binnenland/cybercriminelen-dreigen-met-verkoop-van-persoonsgegevens-odido-na-megalek~ab47ef69/)
-  > De hackers achter de cyberaanval op internetprovider Odido dreigen met het verkopen van de gestolen data. Dat meldt RTL Nieuws. Het zou gaan om de...
-- [Rematch tussen boksiconen: Floyd Mayweather en Manny Pacquiao keren terug in de ring](https://www.ad.nl/vechtsport/rematch-tussen-boksiconen-floyd-mayweather-en-manny-pacquiao-keren-terug-in-de-ring~abf6a190/)
-  > De Amerikaan Floyd Mayweather en Filipijn Manny Pacquiao treffen elkaar in september voor een professionele bokswedstrijd in Las Vegas. Dat maakte...
+- [Reuzenhaai gespot in Middellandse Zee: dier kan meer dan 10 meter lang worden](https://www.ad.nl/buitenland/reuzenhaai-gespot-in-middellandse-zee-dier-kan-meer-dan-10-meter-lang-worden~a4bdba20/)
+  > In de Middellandse Zee, voor de kust van Kroatië, is afgelopen week een reuzenhaai gespot. Dat meldt het Blue World Institute. Volgens de...
+- [Vier jaar oorlog in Oekraïne: Poetins mannen stapelden fout op fout tijdens en na de invasie](https://www.ad.nl/buitenland/vier-jaar-oorlog-in-oekraine-poetins-mannen-stapelden-fout-op-fout-tijdens-en-na-de-invasie~ae73dd76/)
+  > Het Russische leger heeft na de invasie van Oekraïne in 2022, deze dinsdag precies vier jaar geleden, nauwelijks terreinwinst geboekt. Er is nog wel...
+- [Simon (30) zet dierbare herinnering in de voortuin: een stuk van de kikkerachtbaan uit Duinrell](https://www.ad.nl/dordrecht/simon-30-zet-dierbare-herinnering-in-de-voortuin-een-stuk-van-de-kikkerachtbaan-uit-duinrell~a44fe077/)
+  > Noem een pretpark in een uithoek van de wereld en de kans is groot Simon de Bruijn (30) uit Dordrecht er is geweest of binnenkort naartoe gaat. Maar...
+- [GGD wil verbod op ziekmakend isolatieschuim: ‘Mensen per direct hun huis uit’](https://www.ad.nl/binnenland/ggd-wil-verbod-op-ziekmakend-isolatieschuim-mensen-per-direct-hun-huis-uit~afd218c3/)
+  > De GGD wil een verbod op het gebruik van UF-schuim, isolatiemateriaal dat in de spouwmuren van tienduizenden woningen in Nederland is aangebracht....
+- [Omstreden Mandelson na verhoor over Epstein-files door Britse politie op borgtocht vrijgelaten](https://www.ad.nl/buitenland/omstreden-mandelson-na-verhoor-over-epstein-files-door-britse-politie-op-borgtocht-vrijgelaten~ab97144d/)
+  > De Britse politie heeft de voormalige ambassadeur voor de Verenigde Staten Peter Mandelson op borgtocht vrijgelaten in afwachting van verder...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Leerling in den vreemde](https://fd.nl/samenleving/1587391/leerling-in-den-vreemde)
+  > Hoe is het om in een ander land eindexamen te doen? Drie scholieren vertellen erover. ‘In Nederland lukte het me niet goed uit mijn bubbel te komen.’
+- [Chaos compleet na streep door Trumps importheffingen](https://fd.nl/economie/1587301/chaos-compleet-na-streep-door-trumps-importheffingen)
+  > Vandaag in Dagkoers: hoe verder nu het Hooggerechtshof Trumps heffingen heeft afgekeurd? Hoeveel postbezorgers moeten er weg bij PostNL? En hoe...
 - [Ruim helft zelfstandige fysiotherapeuten overweegt praktijk te verkopen](https://fd.nl/bedrijfsleven/1586940/ruim-helft-zelfstandige-fysiotherapeuten-overweegt-praktijk-te-verkopen)
   > Sector wacht een mogelijke overnamegolf, nu vooral kleine praktijkhouders een verkoop overwegen. Maar voor de groeiende ketens in de fysiotherapie...
 - [IJle lucht voor Rusland](https://fd.nl/opinie/1587411/ijle-lucht-voor-rusland)
   > Westerse sancties hollen de Russische toekomst uit, maar zullen ze de oorlog ook beëindigen?
 - [Charmeoffensief op vastgoedbeurs om buitenlandse belegger terug te lokken](https://fd.nl/economie/1587394/charmeoffensief-op-vastgoedbeurs-om-buitenlandse-belegger-terug-te-lokken)
   > De driedaagse vastgoedbeurs Provada heeft voor het eerst een internationale investeerdersdag. De laatste jaren keerden buitenlandse beleggers de...
-- [Trump woest op Hooggerechtshof](https://fd.nl/opinie/1587390/trump-woest-op-hooggerechtshof)
-  > Het Hooggerechtshof torpedeert Trumps handelstarieven – vlak voor zijn State of the Union. De president briest, maar de rechtsstaat deelt de klap uit.
-- [Verpakkingsvrije onlinesuper Pieter Pot fuseert met Belgische Andy](https://fd.nl/bedrijfsleven/1587280/verpakkingsvrije-onlinesuper-pieter-pot-fuseert-met-belgische-andy)
-  > Rotterdamse onlinesupermarkt verdubbelt het assortiment door een fusie met zijn Belgische tegenhanger.
 
 ### Meest gelezen
 
