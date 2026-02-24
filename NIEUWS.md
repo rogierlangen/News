@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-02-2026 om 21:53*
+*Laatst bijgewerkt: 24-02-2026 om 23:04*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Dumpen walvisbot in Oosterschelde 'was verkeerde inschatting van medewerker'](https://nos.nl/l/2603909)
+  > Tot haar verbazing las Eva van der Veer, Directeur Collectie bij Naturalis, vanmorgen dat een medewerker jaren geleden een bijna drie meter lang...
 - [Gaat Odido nu betalen? Hangt ervan af hoe 'betrouwbaar' de hackers zijn](https://nos.nl/l/2603902)
   > Na bijna twee weken onduidelijkheid is voor de buitenwereld bekend wat er op het spel staat voor telecombedrijf Odido, sinds de gegevens van...
 - [Amsterdam schenkt Kyiv 5 ton voor herstel energievoorziening](https://nos.nl/l/2603900)
@@ -17,8 +19,6 @@
 - [Razende Rijnmondreporter Jack Kerklaan (65) overleden](https://nos.nl/l/2603894)
   > De legendarische razende Radio Rijnmondreporter Jack Kerklaan (65) is dood.
         De verslaggever was wereldberoemd in Rotterdam en omstreken...
-- [Europese autobedrijven kunnen de staalindustrie verduurzamen](https://nos.nl/l/2603892)
-  > De Volvofabriek op een steenworp afstand van Gothenburg ligt verstopt in dichte mist en een dun laagje sneeuw als we aankomen. Binnen werken...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Vakantie op Tenerife gaat mis: Noorse koning Harald (89) opgenomen in ziekenhuis](https://www.ad.nl/buitenland/vakantie-op-tenerife-gaat-mis-noorse-koning-harald-89-opgenomen-in-ziekenhuis~a6528202/)
+  > Koning Harald van Noorwegen is tijdens zijn vakantie op Tenerife opgenomen in het ziekenhuis. De 89-jarige vorst wordt behandeld aan een infectie en...
+- [Agressieve speelstijl en opvallend ritueel bij tegengoal: zo zet Bodø/Glimt de Champions League op stelten](https://www.ad.nl/voetbal/agressieve-speelstijl-en-opvallend-ritueel-bij-tegengoal-zo-zet-bodo-glimt-de-champions-league-op-stelten~a6a67df3/)
+  > Ze haalden in 2022 al de kwartfinales van de Conference League en vorig seizoen de halve finales van de Europa League. Nu steekt Bodø/Glimt zelfs de...
+- [Snoop Dogg krijgt heldenontvangst van recordaantal Swansea-fans, toch mist hij de gelijkmaker in absolute slotfase](https://www.ad.nl/voetbal/snoop-dogg-krijgt-heldenontvangst-van-recordaantal-swansea-fans-toch-mist-hij-de-gelijkmaker-in-absolute-slotfase~ac6784af/)
+  > De Amerikaanse rapper Snoop Dogg (54) werd dinsdagavond tijdens zijn eerste bezoek aan een wedstrijd van Swansea City met open armen ontvangen. De...
 - [Nog meer Noors succes in Italië: Bodø/Glimt stunt met uitschakeling van Inter](https://www.ad.nl/voetbal/nog-meer-noors-succes-in-italie-bodo-glimt-stunt-met-uitschakeling-van-inter~a0030c1a/)
   > Bodø/Glimt heeft voor een enorme stunt gezorgd in de tussenronde van de Champions League. De club uit Noorwegen won dinsdagavond in San Siro met 1-2...
 - [Nederlander (40) verkoopt in VS fentanyl aan undercoveragent, en komt nu voor hele lange tijd niet vrij](https://www.ad.nl/buitenland/nederlander-40-verkoopt-in-vs-fentanyl-aan-undercoveragent-en-komt-nu-voor-hele-lange-tijd-niet-vrij~a09a2f57/)
   > Een 40-jarige Nederlander is in de Amerikaanse staat Montana veroordeeld tot twintig jaar cel voor drugshandel en witwassen, meldt het Amerikaanse...
-- [Het Dafje is geliefder dan ooit](https://www.ad.nl/auto/het-dafje-is-geliefder-dan-ooit~ab896b8f/)
-  > Als uitvinder van de cvt, de Continu Variabele Transmissie, oogstte DAF zowel lof als hoon. Eigenlijk was de Nederlandse personenwagen zijn tijd ver...
-- [Nederland ziet af van organisatie EK parazwemmen vanwege deelname Russische en Belarussische sporters](https://www.ad.nl/sport/nederland-ziet-af-van-organisatie-ek-parazwemmen-vanwege-deelname-russische-en-belarussische-sporters~a08dca14c/)
-  > De Nederlandse Zwembond (KNZB) ziet af van de organisatie van het Europees kampioenschap paralympisch zwemmen later dit jaar.
-- [René Karst erfde tienduizend teddyberen van vader: ‘Een schuur vol’](https://www.ad.nl/show/rene-karst-erfde-tienduizend-teddyberen-van-vader-een-schuur-vol~acc77832/)
-  > Volkszanger René Karst deed een opvallende anekdote uit de doeken in een uitzending van De slimste mens. Hij erfde tienduizend teddyberen na zijn...
 
 ### Meest gelezen
 
