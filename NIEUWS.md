@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-02-2026 om 08:05*
+*Laatst bijgewerkt: 24-02-2026 om 11:28*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Oekraïne is een uitputtingsslag die beide kanten nog niet heeft uitgeput](https://nos.nl/l/2603796)
-  > Onlangs in een biercafé in Kyiv: de kelner deelt er dekentjes uit aan de bezoekers omdat de verwarming het niet doet. Maar klachten hoor je er hier...
-- [Ambulancevliegtuig crasht in India, alle inzittenden omgekomen](https://nos.nl/l/2603793)
-  > In India zijn alle zeven inzittenden van een ambulancevliegtuig om het leven gekomen bij een crash. Het toestel, een tweemotorige Beechcraft C90, was...
-- [Marsrover krijgt na jaren eindelijk 'gps' om zijn weg te vinden](https://nos.nl/l/2603792)
-  > NASA's Marsrover Perseverance rijdt sinds 2021 op de planeet rond, maar nu pas krijgt het wagentje de beschikking over een soort gps-navigatie om...
-- [Veel bushaltes niet toegankelijk voor mensen met een beperking](https://nos.nl/l/2603791)
-  > Meer dan de helft van de bushaltes in Nederland is niet of slecht toegankelijk voor mensen met een beperking. Vooral mensen met een visuele beperking...
-- [Wekdienst 24/2: Vier jaar oorlog in Oekraïne • Koning ontvangt medaillewinnaars](https://nos.nl/l/2603790)
-  > Goedemorgen! Het is vier jaar geleden dat Rusland Oekraïne binnenviel. Wereldwijd wordt er vandaag bij de oorlog stilgestaan. En koning...
+- [Acteur Robert Carradine, bekend van Nerds en Lizzie McGuire, overleden](https://nos.nl/l/2603826)
+  > De Amerikaanse acteur Robert Carradine, bekend van de Revenge of the Nerds-films en de tv-serie Lizzie McGuire, is overleden. Hij heeft op 71-jarige...
+- [ANWB krijgt fors meer medische hulpverzoeken van wintersporters](https://nos.nl/l/2603825)
+  > De ANWB Alarmcentrale heeft dit wintersportseizoen al 20 procent meer medische hulpverzoeken binnengekregen van wintersporters in Europa, vergeleken...
+- [Nieuwe BBB-fractieleider Vermeer: vertrouwen in Keijzer echt geknakt](https://nos.nl/l/2603821)
+  > De nieuwe BBB-fractieleider Henk Vermeer is niet verrast door het vertrek van Mona Keijzer uit de partij. Maar hij vindt de gang van zaken "volstrekt...
+- [Canada roept OpenAI op het matje voor niet waarschuwen voor schutter](https://nos.nl/l/2603817)
+  > De regering van Canada heeft OpenAI op het matje geroepen. Het moederbedrijf van ChatGPT nam geen contact op met de Canadese politie na verdachte...
+- [Vogelgriep vastgesteld in Ede, 23.000 kippen afgemaakt](https://nos.nl/l/2603816)
+  > Bij een legkippenbedrijf in Ede is een uitbraak van vogelgriep vastgesteld. De 23.000 worden afgemaakt, meldt het ministerie van Landbouw, Visserij,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Jens, Jorrit en Jutta gaan op de koffie bij Jetten: hoe belangrijk vindt hij de topsport écht?](https://www.ad.nl/olympische-spelen/jens-jorrit-en-jutta-gaan-op-de-koffie-bij-jetten-hoe-belangrijk-vindt-hij-de-topsport-echt~a0a28ae9/)
-  > Op zijn eerste echte werkdag ontvangt premier Rob Jetten meteen de Nederlandse olympische medaillefabriek. Is er met een nieuw kabinet wél zicht op...
-- [Gasvoorraad zakt naar een schamele 1,1 procent, maar ‘er komen warmere dagen aan’](https://www.ad.nl/binnenland/gasvoorraad-zakt-naar-een-schamele-1-1-procent-maar-er-komen-warmere-dagen-aan~a4788946/)
-  > De Nederlandse gasvoorraad is in de afgelopen week flink teruggelopen. Waar de gasvoorraden vorige week nog tot 15 procent waren gevuld is de...
-- [Mexicaanse autoriteiten kwamen drugsbaron El Mencho op het spoor dankzij kennis van minnares](https://www.ad.nl/buitenland/mexicaanse-autoriteiten-kwamen-drugsbaron-el-mencho-op-het-spoor-dankzij-kennis-van-minnares~a7ac2f25/)
-  > Een kennis van een van de romantische partners van de Mexicaanse drugsbaron El Mencho heeft de autoriteiten naar zijn schuilplaats in de staat...
-- [Eén jaar Robin van Persie bij Feyenoord: van ontwapenende charmeur tot onbegrepen slachtoffer](https://www.ad.nl/voetbal/een-jaar-robin-van-persie-bij-feyenoord-van-ontwapenende-charmeur-tot-onbegrepen-slachtoffer~a7cffc1f/)
-  > Robin van Persie is vandaag precies een jaar lang de hoofdtrainer van Feyenoord. De voormalig topspits toonde in die twaalf maanden aan het roer van...
-- [Amerikaanse acteur Robert Carradine (71) overleden: ‘Diep verdrietig’](https://www.ad.nl/show/amerikaanse-acteur-robert-carradine-71-overleden-diep-verdrietig~a2b53d4e/)
-  > De Amerikaanse acteur Robert Carradine is overleden, heeft zijn familie gemeld in een verklaring aan Deadline. De 71-jarige acteur, bekend van rollen...
+- [Winnaars van goud zijn geridderd bij huldiging in Den Haag, later bezoek aan koningspaar](https://www.ad.nl/olympische-spelen/winnaars-van-goud-zijn-geridderd-bij-huldiging-in-den-haag-later-bezoek-aan-koningspaar~a4fcb567/)
+  > De winnaars winnaar van de medailles op de Winterspelen worden vandaag nog eens extra in het zonnetje gezet. Ze worden samen met hun coaches...
+- [Na een geknakte voetbaldroom koos haar broertje in 2012 voor de dood: ‘Als jonge jongen val je af en dat is het dan’](https://www.ad.nl/voetbal/na-een-geknakte-voetbaldroom-koos-haar-broertje-in-2012-voor-de-dood-als-jonge-jongen-val-je-af-en-dat-is-het-dan~a4ea679c/)
+  > In 2012 stapte Danny de Jong uit het leven. Het stranden van zijn voetbaldroom viel de 23-jarige enorm zwaar, vertelt zijn zus Angela nu. „Voor Danny...
+- [Rusland weet van geen wijken: ‘We vechten door tot alle doelen in Oekraïne zijn bereikt’](https://www.ad.nl/buitenland/rusland-weet-van-geen-wijken-we-vechten-door-tot-alle-doelen-in-oekraine-zijn-bereikt~adfb97be/)
+  > Rusland heeft niet al zijn doelen met de invasie van Oekraïne volledig bereikt en vecht door tot die zijn verwezenlijkt. Dit zei de...
+- [100-jarige Hema is na moeilijke periode weer ‘echt Hema’: ‘Het is weer in Nederlandse handen en dat merk je’](https://www.ad.nl/economie/100-jarige-hema-is-na-moeilijke-periode-weer-echt-hema-het-is-weer-in-nederlandse-handen-en-dat-merk-je~a98dcc6d/)
+  > Hema viert zijn 100ste verjaardag door weer in te zetten op opvallende ontwerpen als waterkoker Ketelbinkie en te stoppen met wezensvreemde zaken als...
+- [Praat mee: liever cybercriminelen betalen dan dat mijn privégegevens op straat belanden](https://www.ad.nl/praat-mee/praat-mee-liever-cybercriminelen-betalen-dan-dat-mijn-privegegevens-op-straat-belanden~af60b288/)
+  > In de Kwestie leggen we onze lezers een vraag of stelling voor. Vandaag: liever cybercriminelen betalen dan dat mijn gegevens openbaar worden....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Waterstofbedrijf Power2X neemt branchegenoot HyCC over](https://fd.nl/bedrijfsleven/1587412/waterstofbedrijf-power2x-neemt-branchegenoot-hycc-over)
-  > Power2X wil met de acquisitie de activiteitenportfolio uitbreiden.
-- [Welke kunstenaar verdient subsidie en wie bepaalt dat?](https://fd.nl/samenleving/1587393/welke-kunstenaar-verdient-subsidie-en-wie-bepaalt-dat)
-  > Voor Cathelijne Broers, directeur van het Cultuurfonds, mag vernieuwing een criterium zijn, volgens componist John Borstlap moeten ‘bemiddelaars’,...
-- [Ook ASN Bank beperkt na druk DNB aflossingsvrije hypotheek](https://fd.nl/financiele-markten/1587337/ook-asn-bank-beperkt-aflossingsvrije-hypotheek-na-druk-dnb)
-  > De grens lag op 50% van de woningwaarde. ASN Bank neemt deze stap na druk van De Nederlandsche Bank.
-- [‘Cybercriminelen willen losgeld van Odido na datalek’](https://fd.nl/samenleving/1587336/cybercriminelen-willen-losgeld-van-odidi-na-datalek)
-  > Dat meldt RTL Nieuws op basis van eigen onderzoek.
-- [SCP: kabinetsplannen vergroten risico op ongelijkheid](https://fd.nl/samenleving/1587335/scp-kabinetsplannen-vergroten-risico-op-ongelijkheid)
-  > Daarvoor waarschuwt het Sociaal en Cultureel Planbureau (SCP) in een nieuw rapport in reactie op de plannen van het nieuwe kabinet.
+- [Mona Keijzer zou BBB-leider worden, maar volgens de partijtop knakte het vertrouwen](https://fd.nl/politiek/1587344/mona-keijzer-zou-bbb-leider-worden-maar-volgens-de-partijtop-knakte-het-vertrouwen)
+  > Het conflict tussen Mona Keijzer en de BBB-fractie wordt in alle openheid gevoerd. Een vertrouwensbreuk in de partij leidde ertoe dat niet Keijzer,...
+- [Verlamde EU wil door en zet kopgroepen in om dwarsliggers te omzeilen](https://fd.nl/politiek/1587384/verlamde-eu-wil-door-en-zet-kopgroepen-in-om-dwarsliggers-te-omzeilen)
+  > Unanimiteit verlamt vaak de besluitvorming in Brussel. Daar kunnen lidstaten die vooruit willen omheen werken door middel van kopgroepen.
+- [Installatiebedrijf Hoppenbrouwers groeit, maar minder hard dan verwacht](https://fd.nl/bedrijfsleven/1587342/installatiebedrijf-hoppenbrouwers-groeit-maar-minder-hard-dan-verwacht)
+  > Strengere regels en beperkingen op het elektriciteitsnet remmen de groei van het Brabantse installatiebedrijf.
+- [Lastig jaar voor chemiebedrijf Solvay](https://fd.nl/bedrijfsleven/1587339/lastig-jaar-voor-chemiebedrijf-solvay)
+  > Het Belgische beursgenoteerde bedrijf doet het dinsdagochtend toch goed op de beurs.
+- [Panama geeft Hutchison-havens aan Maersk en MSC](https://fd.nl/bedrijfsleven/1587432/panama-geeft-hutchison-havens-aan-maersk-en-msc)
+  > De beslissing om het beheer van de havens aan het Panamakanaal aan beide Europese reders te gunnen, volgt op een uitspraak vorige maand van ‘s lands...
 
 ### Meest gelezen
 
