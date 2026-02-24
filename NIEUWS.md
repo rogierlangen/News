@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-02-2026 om 05:13*
+*Laatst bijgewerkt: 24-02-2026 om 08:05*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Oud-ambassadeur Mandelson op borgtocht vrijgelaten](https://nos.nl/l/2603788)
-  > De Britse politicus Peter Mandelson is op borgtocht vrijgelaten. Hij werd gisteren aangehouden op verdenking van wangedrag in een publiek ambt en...
-- [Zuid-Koreaanse oud-president Yoon in beroep tegen levenslange straf](https://nos.nl/l/2603787)
-  > Oud-president van Zuid-Korea Yoon Suk-yeol gaat in beroep tegen zijn veroordeling tot levenslang voor zijn poging tot een staatsgreep in 2024. Dat...
-- [Opgevist 'vinvisbot' blijkt afkomstig uit oud Amsterdams museum](https://nos.nl/l/2603786)
-  > Een zeldzaam walviskaakbot dat een jaar geleden uit de Oosterschelde werd opgevist, blijkt van een museum in Amsterdam afkomstig te zijn. Dat heeft...
-- [Opnieuw aanvallen op politie Oekraïne, nu in Mykolajiv en Dnipro](https://nos.nl/l/2603785)
-  > Voor de derde keer in drie dagen tijd is de Oekraïense politie doelwit van aanvallen. Bij aanvallen in Dnipro en Mykolajev waren er maandag...
-- [Cybercriminelen dreigen met lekken gestolen data Odido](https://nos.nl/l/2603784)
-  > De cybercriminelen die verantwoordelijk zeggen te zijn voor de hack op Telecomprovider Odido dreigen de gestolen data te publiceren op het dark web....
+- [Oekraïne is een uitputtingsslag die beide kanten nog niet heeft uitgeput](https://nos.nl/l/2603796)
+  > Onlangs in een biercafé in Kyiv: de kelner deelt er dekentjes uit aan de bezoekers omdat de verwarming het niet doet. Maar klachten hoor je er hier...
+- [Ambulancevliegtuig crasht in India, alle inzittenden omgekomen](https://nos.nl/l/2603793)
+  > In India zijn alle zeven inzittenden van een ambulancevliegtuig om het leven gekomen bij een crash. Het toestel, een tweemotorige Beechcraft C90, was...
+- [Marsrover krijgt na jaren eindelijk 'gps' om zijn weg te vinden](https://nos.nl/l/2603792)
+  > NASA's Marsrover Perseverance rijdt sinds 2021 op de planeet rond, maar nu pas krijgt het wagentje de beschikking over een soort gps-navigatie om...
+- [Veel bushaltes niet toegankelijk voor mensen met een beperking](https://nos.nl/l/2603791)
+  > Meer dan de helft van de bushaltes in Nederland is niet of slecht toegankelijk voor mensen met een beperking. Vooral mensen met een visuele beperking...
+- [Wekdienst 24/2: Vier jaar oorlog in Oekraïne • Koning ontvangt medaillewinnaars](https://nos.nl/l/2603790)
+  > Goedemorgen! Het is vier jaar geleden dat Rusland Oekraïne binnenviel. Wereldwijd wordt er vandaag bij de oorlog stilgestaan. En koning...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Reuzenhaai gespot in Middellandse Zee: dier kan meer dan 10 meter lang worden](https://www.ad.nl/buitenland/reuzenhaai-gespot-in-middellandse-zee-dier-kan-meer-dan-10-meter-lang-worden~a4bdba20/)
-  > In de Middellandse Zee, voor de kust van Kroatië, is afgelopen week een reuzenhaai gespot. Dat meldt het Blue World Institute. Volgens de...
-- [Vier jaar oorlog in Oekraïne: Poetins mannen stapelden fout op fout tijdens en na de invasie](https://www.ad.nl/buitenland/vier-jaar-oorlog-in-oekraine-poetins-mannen-stapelden-fout-op-fout-tijdens-en-na-de-invasie~ae73dd76/)
-  > Het Russische leger heeft na de invasie van Oekraïne in 2022, deze dinsdag precies vier jaar geleden, nauwelijks terreinwinst geboekt. Er is nog wel...
-- [Simon (30) zet dierbare herinnering in de voortuin: een stuk van de kikkerachtbaan uit Duinrell](https://www.ad.nl/dordrecht/simon-30-zet-dierbare-herinnering-in-de-voortuin-een-stuk-van-de-kikkerachtbaan-uit-duinrell~a44fe077/)
-  > Noem een pretpark in een uithoek van de wereld en de kans is groot Simon de Bruijn (30) uit Dordrecht er is geweest of binnenkort naartoe gaat. Maar...
-- [GGD wil verbod op ziekmakend isolatieschuim: ‘Mensen per direct hun huis uit’](https://www.ad.nl/binnenland/ggd-wil-verbod-op-ziekmakend-isolatieschuim-mensen-per-direct-hun-huis-uit~afd218c3/)
-  > De GGD wil een verbod op het gebruik van UF-schuim, isolatiemateriaal dat in de spouwmuren van tienduizenden woningen in Nederland is aangebracht....
-- [Omstreden Mandelson na verhoor over Epstein-files door Britse politie op borgtocht vrijgelaten](https://www.ad.nl/buitenland/omstreden-mandelson-na-verhoor-over-epstein-files-door-britse-politie-op-borgtocht-vrijgelaten~ab97144d/)
-  > De Britse politie heeft de voormalige ambassadeur voor de Verenigde Staten Peter Mandelson op borgtocht vrijgelaten in afwachting van verder...
+- [Jens, Jorrit en Jutta gaan op de koffie bij Jetten: hoe belangrijk vindt hij de topsport écht?](https://www.ad.nl/olympische-spelen/jens-jorrit-en-jutta-gaan-op-de-koffie-bij-jetten-hoe-belangrijk-vindt-hij-de-topsport-echt~a0a28ae9/)
+  > Op zijn eerste echte werkdag ontvangt premier Rob Jetten meteen de Nederlandse olympische medaillefabriek. Is er met een nieuw kabinet wél zicht op...
+- [Gasvoorraad zakt naar een schamele 1,1 procent, maar ‘er komen warmere dagen aan’](https://www.ad.nl/binnenland/gasvoorraad-zakt-naar-een-schamele-1-1-procent-maar-er-komen-warmere-dagen-aan~a4788946/)
+  > De Nederlandse gasvoorraad is in de afgelopen week flink teruggelopen. Waar de gasvoorraden vorige week nog tot 15 procent waren gevuld is de...
+- [Mexicaanse autoriteiten kwamen drugsbaron El Mencho op het spoor dankzij kennis van minnares](https://www.ad.nl/buitenland/mexicaanse-autoriteiten-kwamen-drugsbaron-el-mencho-op-het-spoor-dankzij-kennis-van-minnares~a7ac2f25/)
+  > Een kennis van een van de romantische partners van de Mexicaanse drugsbaron El Mencho heeft de autoriteiten naar zijn schuilplaats in de staat...
+- [Eén jaar Robin van Persie bij Feyenoord: van ontwapenende charmeur tot onbegrepen slachtoffer](https://www.ad.nl/voetbal/een-jaar-robin-van-persie-bij-feyenoord-van-ontwapenende-charmeur-tot-onbegrepen-slachtoffer~a7cffc1f/)
+  > Robin van Persie is vandaag precies een jaar lang de hoofdtrainer van Feyenoord. De voormalig topspits toonde in die twaalf maanden aan het roer van...
+- [Amerikaanse acteur Robert Carradine (71) overleden: ‘Diep verdrietig’](https://www.ad.nl/show/amerikaanse-acteur-robert-carradine-71-overleden-diep-verdrietig~a2b53d4e/)
+  > De Amerikaanse acteur Robert Carradine is overleden, heeft zijn familie gemeld in een verklaring aan Deadline. De 71-jarige acteur, bekend van rollen...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Leerling in den vreemde](https://fd.nl/samenleving/1587391/leerling-in-den-vreemde)
-  > Hoe is het om in een ander land eindexamen te doen? Drie scholieren vertellen erover. ‘In Nederland lukte het me niet goed uit mijn bubbel te komen.’
-- [Chaos compleet na streep door Trumps importheffingen](https://fd.nl/economie/1587301/chaos-compleet-na-streep-door-trumps-importheffingen)
-  > Vandaag in Dagkoers: hoe verder nu het Hooggerechtshof Trumps heffingen heeft afgekeurd? Hoeveel postbezorgers moeten er weg bij PostNL? En hoe...
-- [Ruim helft zelfstandige fysiotherapeuten overweegt praktijk te verkopen](https://fd.nl/bedrijfsleven/1586940/ruim-helft-zelfstandige-fysiotherapeuten-overweegt-praktijk-te-verkopen)
-  > Sector wacht een mogelijke overnamegolf, nu vooral kleine praktijkhouders een verkoop overwegen. Maar voor de groeiende ketens in de fysiotherapie...
-- [IJle lucht voor Rusland](https://fd.nl/opinie/1587411/ijle-lucht-voor-rusland)
-  > Westerse sancties hollen de Russische toekomst uit, maar zullen ze de oorlog ook beëindigen?
-- [Charmeoffensief op vastgoedbeurs om buitenlandse belegger terug te lokken](https://fd.nl/economie/1587394/charmeoffensief-op-vastgoedbeurs-om-buitenlandse-belegger-terug-te-lokken)
-  > De driedaagse vastgoedbeurs Provada heeft voor het eerst een internationale investeerdersdag. De laatste jaren keerden buitenlandse beleggers de...
+- [Waterstofbedrijf Power2X neemt branchegenoot HyCC over](https://fd.nl/bedrijfsleven/1587412/waterstofbedrijf-power2x-neemt-branchegenoot-hycc-over)
+  > Power2X wil met de acquisitie de activiteitenportfolio uitbreiden.
+- [Welke kunstenaar verdient subsidie en wie bepaalt dat?](https://fd.nl/samenleving/1587393/welke-kunstenaar-verdient-subsidie-en-wie-bepaalt-dat)
+  > Voor Cathelijne Broers, directeur van het Cultuurfonds, mag vernieuwing een criterium zijn, volgens componist John Borstlap moeten ‘bemiddelaars’,...
+- [Ook ASN Bank beperkt na druk DNB aflossingsvrije hypotheek](https://fd.nl/financiele-markten/1587337/ook-asn-bank-beperkt-aflossingsvrije-hypotheek-na-druk-dnb)
+  > De grens lag op 50% van de woningwaarde. ASN Bank neemt deze stap na druk van De Nederlandsche Bank.
+- [‘Cybercriminelen willen losgeld van Odido na datalek’](https://fd.nl/samenleving/1587336/cybercriminelen-willen-losgeld-van-odidi-na-datalek)
+  > Dat meldt RTL Nieuws op basis van eigen onderzoek.
+- [SCP: kabinetsplannen vergroten risico op ongelijkheid](https://fd.nl/samenleving/1587335/scp-kabinetsplannen-vergroten-risico-op-ongelijkheid)
+  > Daarvoor waarschuwt het Sociaal en Cultureel Planbureau (SCP) in een nieuw rapport in reactie op de plannen van het nieuwe kabinet.
 
 ### Meest gelezen
 
