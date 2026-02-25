@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-02-2026 om 21:49*
+*Laatst bijgewerkt: 25-02-2026 om 23:17*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [NASA-astronaut maakt bekend: noodterugkeer uit ISS was voor mij](https://nos.nl/l/2604023)
+  > De Amerikaanse astronaut Mike Fincke heeft bekendgemaakt er voor hem vorige maand een noodterugkeer vanuit ruimtestation ISS werd georganiseerd. Wat...
 - [Amelie Lens en andere vrouwelijke dj's: te weinig aandacht voor wangedrag](https://nos.nl/l/2604016)
   > De toonaangevende dj Amelie Lens heeft gereageerd op het nieuws dat een aantal mannelijke collega's zich seksueel grensoverschrijdend zouden hebben...
 - [Afgelopen jaar 129 journalisten gedood, merendeel door Israël](https://nos.nl/l/2604015)
@@ -17,8 +19,6 @@
 - [Cuba: vier opvarenden van Amerikaanse speedboot gedood](https://nos.nl/l/2604009)
   > De Cubaanse autoriteiten zeggen dat grenswachten vier opvarenden van een Amerikaanse boot hebben gedood. Zes opvarenden zouden gewond zijn geraakt.
  ...
-- [Oud-minister Summers weg bij Harvard-universiteit om Epstein-contact](https://nos.nl/l/2604005)
-  > De Amerikaanse oud-minister van Financiën Larry Summers heeft zijn vertrek bij de Harvard-universiteit aangekondigd. De oud-rector van de...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Technodj Amelie Lens roept mannen op om hun verantwoordelijkheid te nemen: ‘Stop met het beschermen van je vrienden’](https://www.ad.nl/show/technodj-amelie-lens-roept-mannen-op-om-hun-verantwoordelijkheid-te-nemen-stop-met-het-beschermen-van-je-vrienden~aa6ad3b4/)
-  > De bekendste technodj ter wereld Amelie Lens (35) heeft gereageerd op de zogenoemde ‘techno files’, waarbij verschillende dj’s online beschuldigd...
-- [Juventus komt ondanks rode kaart helemaal terug tegen Galatasaray](https://www.ad.nl/voetbal/juventus-komt-ondanks-rode-kaart-helemaal-terug-tegen-galatasaray~a11b7d2a/)
-  > Wie grijpen een ticket voor de achtste finales van de Champions League? Galatasaray en Paris Saint-Germain verdedigen een voorsprong. Volg het hier...
+- [Galatasaray komt ongekende comeback van tiental Juventus in verlenging te boven, PSG door ondanks goal Jordan Teze](https://www.ad.nl/voetbal/galatasaray-komt-ongekende-comeback-van-tiental-juventus-in-verlenging-te-boven-psg-door-ondanks-goal-jordan-teze~a11b7d2a/)
+  > Galatasaray heeft ondanks een ongekende comeback van het tiental van Juventus de achtste finales bereikt. De Turkse club besliste het tweeluik in de...
+- [Machtigste bankier ter wereld waarschuwt voor financiële crisis: ‘Mensen doen weer domme dingen’](https://www.ad.nl/economie/machtigste-bankier-ter-wereld-waarschuwt-voor-financiele-crisis-mensen-doen-weer-domme-dingen~ace0ada0/)
+  > Is de financiële wereld zijn verstand aan het verliezen? Volgens Jamie Dimon, topman van de grootste bank van de Verenigde Staten, moeten we ons...
+- [Vinícius Júnior neemt sportieve wraak en helpt Real Madrid met winnende treffer opnieuw langs Benfica](https://www.ad.nl/voetbal/vinicius-junior-neemt-sportieve-wraak-en-helpt-real-madrid-met-winnende-treffer-opnieuw-langs-benfica~a7e2a91e/)
+  > Real Madrid heeft mede dankzij de veelbesproken Vinícius Júnior de achtste finale van de Champions League bereikt. Na de zege in Lissabon (0-1) was...
+- [Techno-dj Amelie Lens roept mannen op om hun verantwoordelijkheid te nemen: ‘Stop met het beschermen van je vrienden’](https://www.ad.nl/show/techno-dj-amelie-lens-roept-mannen-op-om-hun-verantwoordelijkheid-te-nemen-stop-met-het-beschermen-van-je-vrienden~aa6ad3b4/)
+  > De bekendste techno-dj ter wereld Amelie Lens (35) heeft gereageerd op de zogenoemde ‘techno files’, waarbij verschillende dj’s online beschuldigd...
 - [AH-moeder Ahold Delhaize wil bonussen voor top fors verhogen](https://www.ad.nl/economie/ah-moeder-ahold-delhaize-wil-bonussen-voor-top-fors-verhogen~ad5ae627/)
   > Winkelconcern Ahold Delhaize wil de maximale bonussen voor topbestuurders fors verhogen, staat in een voorstel voor de aanstaande...
-- [De moeder van André uit Winter vol liefde verdient een pluim voor het wakker schudden van haar zoon](https://www.ad.nl/show/de-moeder-van-andre-uit-winter-vol-liefde-verdient-een-pluim-voor-het-wakker-schudden-van-haar-zoon~a0794bee/)
-  > De vrees dat Marian uit Winter vol liefde een tweede ‘mama Mo’ zou worden, bleek onterecht. Sterker: deze vrouw verdient een pluim voor wat ze...
-- [Jetten mag een dag lang niks zeggen, maar elk knikje laat zien: ik heb u gehoord](https://www.ad.nl/politiek/jetten-mag-een-dag-lang-niks-zeggen-maar-elk-knikje-laat-zien-ik-heb-u-gehoord~a21e7bbb/)
-  > Aardig doen, maar niet té aardig. Halve toezeggingen doen, maar niets beloven. Het minderheidsverbond van D66, VVD en CDA balanceert. De drie hebben...
 
 ### Meest gelezen
 
