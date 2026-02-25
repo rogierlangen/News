@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-02-2026 om 11:28*
+*Laatst bijgewerkt: 25-02-2026 om 15:13*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Friese politie ontmantelt derde drugslab in vijf dagen tijd](https://nos.nl/l/2603951)
-  > De Friese politie heeft opnieuw een drugslab opgerold, dit keer in Oudehaske tussen Joure en Heerenveen. Het is het derde laboratorium in korte tijd...
-- [Japan gaat raketten plaatsen op eiland in buurt Taiwan](https://nos.nl/l/2603950)
-  > Japan gaat raketten plaatsen op een eiland vlak bij Taiwan. Dat werd in 2022 al aangekondigd, maar nu is concreet wanneer die raketten er moeten...
-- [Heinen wil wetsvoorstel box 3 aanpassen, Tweede Kamer was al akkoord](https://nos.nl/l/2603947)
-  > Het nieuwe kabinet wil de wet voor vermogensbelasting die in 2028 zou ingaan, aanpassen. Dat bevestigt een woordvoerder van het ministerie van...
-- [Tientallen doden in Brazilië na extreme regenval](https://nos.nl/l/2603946)
-  > In Brazilië zijn zeker dertig mensen omgekomen als gevolg van hevige regenval in de zuidoostelijke staat Minas Gerais. Ook worden tientallen personen...
-- [Proef met noodsteunpunten in 70 gemeenten: 'Kijken hoe we ervoor staan'](https://nos.nl/l/2603938)
-  > In bijna zeventig Nederlandse gemeenten in alle veiligheidsregio's is een proef met noodsteunpunten begonnen, meldt de Vereniging van Nederlandse...
+- [Australische moeder en dochter ontdekken koraalkolonie: 'Een weiland van koraal'](https://nos.nl/l/2603972)
+  > In het Great Barrier Reef is een koraal van bijna vierduizend vierkante meter ontdekt. Nooit eerder werd zo'n grote koraalkolonie in kaart gebracht...
+- [Coalitiepartijen beloven te praten over verzachten van AOW-maatregel](https://nos.nl/l/2603969)
+  > De coalitiepartijen D66, VVD en CDA reageren positief op een voorstel van de SGP en Groep Markuszower om de verhoging van de AOW-leeftijd "te...
+- [Defensie is 'kraamkamer van innovatie', maar dat heeft gevolgen voor militairen](https://nos.nl/l/2603968)
+  > Van drones en AI-toepassingen tot robotica: Defensie gaat de komende jaren inzetten op innovaties. Waar nieuwe technologieën zoals drones voorheen...
+- [Twee gewonden na schietpartij bij autobedrijf in Arnhem](https://nos.nl/l/2603966)
+  > In Arnhem zijn twee mensen gewond geraakt bij een schietpartij. Dat gebeurde bij een autobedrijf op een industrieterrein.
+        Rond 11.45 uur werd...
+- [Concert in Utrecht afgelast na aankondiging extreemrechtse demonstratie](https://nos.nl/l/2603963)
+  > Het linkse politiek-culturele centrum ACU in Utrecht heeft een optreden van een band voor vanavond geannuleerd. De organisatie zegt zich zorgen te...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Noorse ‘bonusprins’ Marius in tranen bij verklaring over Mette-Marit en Haakon](https://www.ad.nl/show/noorse-bonusprins-marius-in-tranen-bij-verklaring-over-mette-marit-en-haakon~a7eb8d0a/)
-  > Marius Borg Høiby raakte woensdag in de rechtbank van Oslo erg geëmotioneerd toen hij reageerde op uitspraken van zijn ex-vriendin Nora Haukland over...
-- [Eerste lokale lentedag van het jaar een feit](https://www.ad.nl/binnenland/eerste-lokale-lentedag-van-het-jaar-een-feit~ad400ef0/)
-  > Met 15,2 graden in Maastricht en het Zeeuwse Westdorpe woensdagochtend is er officieel sprake van de eerste lokale lentedag van dit jaar.
-- [Christian Horner in Netflix-serie over ontslag bij Red Bull: ‘Geloof niet dat de Verstappens verantwoordelijk waren’](https://www.ad.nl/formule-1/christian-horner-in-netflix-serie-over-ontslag-bij-red-bull-geloof-niet-dat-de-verstappens-verantwoordelijk-waren~a18ef149/)
-  > Het achtste seizoen van de Formule 1-serie Drive to survive verschijnt vrijdag pas op Netflix, maar aflevering 4 is nu al spraakmakend. Onze Formule...
-- [Kabinet gooit na anderhalve week wet voor box 3 alweer in de prullenbak](https://www.ad.nl/politiek/kabinet-gooit-na-anderhalve-week-wet-voor-box-3-alweer-in-de-prullenbak~a853cbf9/)
-  > Het kabinet-Jetten is amper begonnen, maar de ministersploeg gaat alweer flink sleutelen aan een wet die juist pas anderhalve week geleden werd...
-- [Shows Martin Short uitgesteld na dood dochter Katherine](https://www.ad.nl/show/shows-martin-short-uitgesteld-na-dood-dochter-katherine~a38cdaab/)
-  > De comedyshows die Martin Short aankomend weekend zou geven met collega Steve Martin zijn uitgesteld. Dat volgt op het nieuws dat zijn geadopteerde...
+- [Aantal griepgevallen stijgt nauwelijks, epidemie houdt nog aan](https://www.ad.nl/binnenland/aantal-griepgevallen-stijgt-nauwelijks-epidemie-houdt-nog-aan~aeb75467/)
+  > De griepepidemie houdt voor de derde week aan, ook al stijgt het aantal mensen dat met griepachtige klachten naar de huisarts gaat nauwelijks....
+- [Straf voor Ajax na zee van vuurwerk tegen FC Groningen: F-side leeg tijdens eerstvolgende thuiswedstrijd](https://www.ad.nl/voetbal/straf-voor-ajax-na-zee-van-vuurwerk-tegen-fc-groningen-f-side-leeg-tijdens-eerstvolgende-thuiswedstrijd~ad4bfeed/)
+  > Ajax treedt komende maand tegen Sparta (14 maart) aan zonder publiek op de F-Side. Die onvoorwaardelijke straf heeft de club opgelegd gekregen voor...
+- [Italië stemt voor verbod op paardenvlees: ‘Straks mag je ook geen mug meer doodslaan’](https://www.ad.nl/buitenland/italie-stemt-voor-verbod-op-paardenvlees-straks-mag-je-ook-geen-mug-meer-doodslaan~a1c86b76/)
+  > Italië wil het eten van paardenvlees verbieden. Een wetsvoorstel om het slachten en consumeren uit te bannen is deze week met grote meerderheid...
+- [Connie Witteman komt er bij de rechter niet uit met haar ex, 9 maart vonnis over veiling van huis van dochter](https://www.ad.nl/show/connie-witteman-komt-er-bij-de-rechter-niet-uit-met-haar-ex-9-maart-vonnis-over-veiling-van-huis-van-dochter~a0718ee6/)
+  > Het kort geding dat Connie Witteman had aangespannen om te voorkomen dat de woning waar haar dochter woont wordt geveild, heeft nog geen resultaat...
+- [Mbappé ontbreekt bij Real Madrid, supporters steunen Vinícius Júnior met spandoek na racismerel](https://www.ad.nl/voetbal/mbappe-ontbreekt-bij-real-madrid-supporters-steunen-vinicius-junior-met-spandoek-na-racismerel~a7e2a91e/)
+  > Na alle commotie van vorige week, met de racismerel rond Vinícius Júnior, hoopt Real Madrid vanavond de achtste finales van de Champions League te...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaanse WK-speelsteden wachten nog op federale fondsen](https://fd.nl/samenleving/1587492/amerikaanse-wk-speelsteden-wachten-nog-op-federale-fondsen)
-  > De financiering is vertraagd door een shutdown van de federale overheid. Steden waarschuwen dat ze in het uiterste geval evenementen moeten...
-- [Chipsoft verdiende ook in 2024 goud geld aan patiëntendossiers](https://fd.nl/bedrijfsleven/1587587/chipsoft-verdiende-ook-in-2024-goud-geld-aan-patientendossiers)
-  > Het softwarebedrijf heeft een dominante marktpositie, en weet die nog steeds verder uit te breiden. Voor ziekenhuizen is overstappen moeilijk en duur.
-- [Ondanks Credit Suisse-crisis gaat het crescendo met de coco’s](https://fd.nl/financiele-markten/1587584/ondanks-credit-suisse-crisis-gaat-het-crescendo-met-de-cocos)
-  > Toen Credit Suisse drie jaar geleden op de rand van de afgrond stond, sloeg de paniek toe onder houders van achtergestelde obligaties, ook wel bekend...
-- [Premier Jetten biedt in regeringsverklaring opening coalitieplannen bij te sturen](https://fd.nl/politiek/1587586/jetten-biedt-in-regeringsverklaring-opening-coalitieplannen-bij-te-sturen)
-  > De D66-leider zegt in de Tweede Kamer te staan voor zijn plannen. Maar: ‘We moeten wel zaken doen met elkaar. Goede ideeën en slimme alternatieven...
-- [Heinen gaat wetsvoorstel box 3 toch aanpassen na verzet in senaat](https://fd.nl/politiek/1587585/heinen-gaat-wetsvoorstel-box-3-toch-aanpassen-na-verzet-senaat)
-  > Hevige protesten lijken gehoor te krijgen: de minister van Financiën wil praten met de Tweede en Eerste Kamer over een aanpassing van het...
+- [Grondstoffenhandelaar Cefetra in handen van groep investeerders](https://fd.nl/bedrijfsleven/1587502/grondstoffenhandelaar-cefetra-in-handen-van-groep-investeerders)
+  > Met schulden overladen moederconcern Baywa probeert met desinvesteringen financiële verplichtingen te reduceren.
+- [Deloitte en KPMG leunen nog het meest op het klassieke partnermodel](https://fd.nl/financiele-markten/1587489/deloitte-en-kpmg-leunen-nog-het-meest-op-het-klassieke-partnermodel)
+  > Het organisatiemodel van de grote accountantskantoren kraakt in zijn voegen door AI, vergrijzing en personeelstekorten. Toch leunen de Big Four er...
+- [Onderzoek: veranderingen in fiscale regels leveren mkb geen extra rompslomp op](https://fd.nl/politiek/1587499/onderzoek-veranderingen-in-fiscale-regels-leveren-mkb-geen-extra-rompslomp-op)
+  > Een veelgehoorde klacht van ondernemers is dat nieuwe regels hen op kosten jagen. Voor zover het fiscale wet- en regelgeving betreft, blijkt dat niet...
+- [Alles is anders in Japan](https://fd.nl/financiele-markten/1587493/alles-is-anders-in-japan)
+  > Met de Japanse rente boven de 2% voelen de schuldfatalisten zich gesterkt. Zie je wel: nu gaat het daar mis! Wie vooruit blijft denken, ziet iets...
+- [Ahold Delhaize wil bonussen voor top verhogen](https://fd.nl/bedrijfsleven/1587495/ahold-delhaize-wil-bonussen-voor-top-verhogen)
+  > De aanpassing is volgens het AEX-bedrijf nodig omdat het ‘in toenemende mate uitdagingen tegenkomt bij het aantrekken en behouden’ van bestuurders en...
 
 ### Meest gelezen
 
