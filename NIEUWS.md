@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-02-2026 om 15:13*
+*Laatst bijgewerkt: 25-02-2026 om 19:33*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Australische moeder en dochter ontdekken koraalkolonie: 'Een weiland van koraal'](https://nos.nl/l/2603972)
-  > In het Great Barrier Reef is een koraal van bijna vierduizend vierkante meter ontdekt. Nooit eerder werd zo'n grote koraalkolonie in kaart gebracht...
-- [Coalitiepartijen beloven te praten over verzachten van AOW-maatregel](https://nos.nl/l/2603969)
-  > De coalitiepartijen D66, VVD en CDA reageren positief op een voorstel van de SGP en Groep Markuszower om de verhoging van de AOW-leeftijd "te...
-- [Defensie is 'kraamkamer van innovatie', maar dat heeft gevolgen voor militairen](https://nos.nl/l/2603968)
-  > Van drones en AI-toepassingen tot robotica: Defensie gaat de komende jaren inzetten op innovaties. Waar nieuwe technologieën zoals drones voorheen...
-- [Twee gewonden na schietpartij bij autobedrijf in Arnhem](https://nos.nl/l/2603966)
-  > In Arnhem zijn twee mensen gewond geraakt bij een schietpartij. Dat gebeurde bij een autobedrijf op een industrieterrein.
-        Rond 11.45 uur werd...
-- [Concert in Utrecht afgelast na aankondiging extreemrechtse demonstratie](https://nos.nl/l/2603963)
-  > Het linkse politiek-culturele centrum ACU in Utrecht heeft een optreden van een band voor vanavond geannuleerd. De organisatie zegt zich zorgen te...
+- [Mexicaanse grensstad Nogales lijdt onder streng immigratiebeleid Trump](https://nos.nl/l/2604002)
+  > De rij auto's is kilometers lang, op een steenkoude ochtend in de Mexicaanse grensstad Nogales. Allemaal wachten ze om de grens met de VS over te...
+- [Europees jachtvliegtuig komt maar niet van de grond: 'Project zo goed als dood'](https://nos.nl/l/2603998)
+  > Het zou hét voorbeeld moeten zijn van een krachtige militaire samenwerking in Europa: het Future Combat Air System (FCAS), een nieuw...
+- [Zwitserse overheid komt met schadevergoeding voor slachtoffers cafébrand](https://nos.nl/l/2603989)
+  > De Zwitserse overheid gaat alle slachtoffers van de nieuwjaarsbrand in skidorp Crans-Montana omgerekend bijna 55.000 euro betalen. In het geval van...
+- [Stedentrip naar Barcelona wordt duurder: toeristenbelasting twee keer zo hoog](https://nos.nl/l/2603987)
+  > Een verblijf in Barcelona wordt vanaf april duurder, want de toeristenbelasting gaat omhoog. Het Catalaanse parlement heeft een wet daarover...
+- [Ook gevoelige informatie over kwetsbare klanten in handen van Odido-criminelen](https://nos.nl/l/2603981)
+  > Bij de hack deze maand bij Odido zijn ook gevoelige aantekeningen over klanten buitgemaakt. Dat blijkt uit onderzoek van de NOS, die inzage had in...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Aantal griepgevallen stijgt nauwelijks, epidemie houdt nog aan](https://www.ad.nl/binnenland/aantal-griepgevallen-stijgt-nauwelijks-epidemie-houdt-nog-aan~aeb75467/)
-  > De griepepidemie houdt voor de derde week aan, ook al stijgt het aantal mensen dat met griepachtige klachten naar de huisarts gaat nauwelijks....
-- [Straf voor Ajax na zee van vuurwerk tegen FC Groningen: F-side leeg tijdens eerstvolgende thuiswedstrijd](https://www.ad.nl/voetbal/straf-voor-ajax-na-zee-van-vuurwerk-tegen-fc-groningen-f-side-leeg-tijdens-eerstvolgende-thuiswedstrijd~ad4bfeed/)
-  > Ajax treedt komende maand tegen Sparta (14 maart) aan zonder publiek op de F-Side. Die onvoorwaardelijke straf heeft de club opgelegd gekregen voor...
-- [Italië stemt voor verbod op paardenvlees: ‘Straks mag je ook geen mug meer doodslaan’](https://www.ad.nl/buitenland/italie-stemt-voor-verbod-op-paardenvlees-straks-mag-je-ook-geen-mug-meer-doodslaan~a1c86b76/)
-  > Italië wil het eten van paardenvlees verbieden. Een wetsvoorstel om het slachten en consumeren uit te bannen is deze week met grote meerderheid...
-- [Connie Witteman komt er bij de rechter niet uit met haar ex, 9 maart vonnis over veiling van huis van dochter](https://www.ad.nl/show/connie-witteman-komt-er-bij-de-rechter-niet-uit-met-haar-ex-9-maart-vonnis-over-veiling-van-huis-van-dochter~a0718ee6/)
-  > Het kort geding dat Connie Witteman had aangespannen om te voorkomen dat de woning waar haar dochter woont wordt geveild, heeft nog geen resultaat...
-- [Mbappé ontbreekt bij Real Madrid, supporters steunen Vinícius Júnior met spandoek na racismerel](https://www.ad.nl/voetbal/mbappe-ontbreekt-bij-real-madrid-supporters-steunen-vinicius-junior-met-spandoek-na-racismerel~a7e2a91e/)
-  > Na alle commotie van vorige week, met de racismerel rond Vinícius Júnior, hoopt Real Madrid vanavond de achtste finales van de Champions League te...
+- [Annie (70) krijgt hoofdpijn 2 dagen na isolatie, nu woont ze in container naast haar huis: ‘Ik huil elke week’](https://www.ad.nl/binnenland/annie-70-krijgt-hoofdpijn-2-dagen-na-isolatie-nu-woont-ze-in-container-naast-haar-huis-ik-huil-elke-week~a773566c/)
+  > Een zeecontainer in de tuin. Daar wonen Annie en Roelof van der Weide al een half jaar. Hun eigen huis ernaast? Onbewoonbaar door giftig...
+- [Cubaanse kustwacht schiet vier mensen op Amerikaanse speedboot dood](https://www.ad.nl/buitenland/cubaanse-kustwacht-schiet-vier-mensen-op-amerikaanse-speedboot-dood~a7398569/)
+  > De Cubaanse kustwacht heeft vier opvarenden van een Amerikaanse speedboot doodgeschoten, meldt het Cubaanse ministerie van Binnenlandse Zaken. Er zou...
+- [Borussia Dortmund via boze invaller op scorebord in return tegen Atalanta, verlenging op komst?](https://www.ad.nl/voetbal/borussia-dortmund-via-boze-invaller-op-scorebord-in-return-tegen-atalanta-verlenging-op-komst~abadc5e8/)
+  > Atalanta verloor vorige week met 2-0 op bezoek bij Borussia Dortmund, maar in Bergamo staat het inmiddels 3-1. Welke club bereikt de laatste zestien...
+- [Noa Lang en Teun Koopmeiners opnieuw aan aftrap na hoofdrol in heenduel tussen Galatasaray en Juventus](https://www.ad.nl/voetbal/noa-lang-en-teun-koopmeiners-opnieuw-aan-aftrap-na-hoofdrol-in-heenduel-tussen-galatasaray-en-juventus~a11b7d2a/)
+  > Wie grijpen een ticket voor de achtste finales van de Champions League? Galatasaray en Paris Saint-Germain verdedigen een voorsprong. Volg het hier...
+- [Er zijn verschillende manieren om keukenkastjes schoon te maken, maar dit werkt het beste](https://www.ad.nl/wonen/er-zijn-verschillende-manieren-om-keukenkastjes-schoon-te-maken-maar-dit-werkt-het-beste~a8ad3c15/)
+  > Vette vingers, tomatensaus en plakkerige sausresten: keukenkastjes zijn echte vuilmagneten. Schoonmaakexpert Suus Sengers van Suus Maakt Schoon legt...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Grondstoffenhandelaar Cefetra in handen van groep investeerders](https://fd.nl/bedrijfsleven/1587502/grondstoffenhandelaar-cefetra-in-handen-van-groep-investeerders)
-  > Met schulden overladen moederconcern Baywa probeert met desinvesteringen financiële verplichtingen te reduceren.
-- [Deloitte en KPMG leunen nog het meest op het klassieke partnermodel](https://fd.nl/financiele-markten/1587489/deloitte-en-kpmg-leunen-nog-het-meest-op-het-klassieke-partnermodel)
-  > Het organisatiemodel van de grote accountantskantoren kraakt in zijn voegen door AI, vergrijzing en personeelstekorten. Toch leunen de Big Four er...
-- [Onderzoek: veranderingen in fiscale regels leveren mkb geen extra rompslomp op](https://fd.nl/politiek/1587499/onderzoek-veranderingen-in-fiscale-regels-leveren-mkb-geen-extra-rompslomp-op)
-  > Een veelgehoorde klacht van ondernemers is dat nieuwe regels hen op kosten jagen. Voor zover het fiscale wet- en regelgeving betreft, blijkt dat niet...
-- [Alles is anders in Japan](https://fd.nl/financiele-markten/1587493/alles-is-anders-in-japan)
-  > Met de Japanse rente boven de 2% voelen de schuldfatalisten zich gesterkt. Zie je wel: nu gaat het daar mis! Wie vooruit blijft denken, ziet iets...
-- [Ahold Delhaize wil bonussen voor top verhogen](https://fd.nl/bedrijfsleven/1587495/ahold-delhaize-wil-bonussen-voor-top-verhogen)
-  > De aanpassing is volgens het AEX-bedrijf nodig omdat het ‘in toenemende mate uitdagingen tegenkomt bij het aantrekken en behouden’ van bestuurders en...
+- [IJsland houdt referendum over EU-lidmaatschap](https://fd.nl/politiek/1587604/ijsland-houdt-referendum-over-eu-lidmaatschap)
+  > De dreigende taal van Donald Trump, inflatie en de oorlog in Oekraïne zouden ervoor zorgen dat IJslanders opnieuw in gesprek willen met de Europese...
+- [Kopgroepen moeten EU vooruit trekken](https://fd.nl/opinie/1587488/kopgroepen-moeten-eu-vooruit-trekken)
+  > De Europese Unie mag haar verdere integratie niet laten gijzelen door het tempo van de traagste lidstaat.
+- [Meevaller stuwt jaarcijfers AMG](https://fd.nl/bedrijfsleven/1587603/meevaller-stuwt-jaarcijfers-amg)
+  > Het grondstoffenbedrijf stootte activiteiten af, investeert in lithiumproductie en verwacht dat de winstgevendheid volgend jaar op peil blijft.
+- [Opvolgster McKinstry doet er een schepje bovenop om snelheid te maken](https://fd.nl/bedrijfsleven/1587600/opvolgster-mckinstry-doet-er-een-schepje-bovenop-om-snelheid-te-maken)
+  > Stacey Caywood staat voor de niet geringe uitdaging om Nancy McKinstry op te volgen en de buitenwereld te overtuigen van de AI-capaciteiten van...
+- [Hoe nu verder met de nieuwe box 3?](https://fd.nl/politiek/1587602/hoe-nu-verder-met-de-nieuwe-box3)
+  > Het nieuwe kabinet wil na een storm van kritiek ‘terug naar de tekentafel’ en het al aangenomen wetsvoorstel voor de belasting op sparen en beleggen...
 
 ### Meest gelezen
 
