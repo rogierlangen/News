@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-02-2026 om 05:16*
+*Laatst bijgewerkt: 25-02-2026 om 08:06*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Trump benadrukt vooral economische successen VS tijdens jaarlijkse toespraak](https://nos.nl/l/2603913)
-  > In zijn jaarlijkse toespraak tot het Amerikaanse parlement, de State of the Union, heeft president Donald Trump vooral de economische successen...
-- [Australische deelstaat komt met zwaarbewapend politieteam na aanslag Bondi Beach](https://nos.nl/l/2603912)
-  > De Australische deelstaat New South Wales komt met een permanente zwaarbewapende politie-eenheid die onder meer gaat patrouilleren bij synagogen en...
-- [Ongeregeldheden in Bleskensgraaf bij protest tegen komst azc](https://nos.nl/l/2603911)
-  > Bij een protest tegen de komst van een asielzoekerscentrum in de Zuid-Hollandse gemeente Molenlanden zijn ongeregeldheden uitgebroken, meldt RTV...
-- [Familie van ontvoerde Nancy Guthrie looft 1 miljoen dollar uit voor gouden tip](https://nos.nl/l/2603910)
-  > De familie van de ontvoerde 84-jarige Nancy Guthrie heeft een bedrag van 1 miljoen dollar (omgerekend bijna 850.000 euro) uitgeloofd voor de tip die...
-- [Dumpen walvisbot in Oosterschelde 'was verkeerde inschatting van medewerker'](https://nos.nl/l/2603909)
-  > Tot haar verbazing las Eva van der Veer, Directeur Collectie bij Naturalis, vanmorgen dat een medewerker jaren geleden een bijna drie meter lang...
+- [Duitse bondskanselier Merz in China voor economische en politieke balanceeract](https://nos.nl/l/2603927)
+  > De Duitse bondskanselier Merz is begonnen aan een driedaagse reis door China. Hij heeft zich goed voorbereid: vooraf liet hij zich een avond lang...
+- [F-16 stort neer in westen van Turkije, piloot komt om](https://nos.nl/l/2603926)
+  > Een Turkse F-16 is vannacht kort na het opstijgen door onbekende oorzaak neergestort in het westen van Turkije. Daarbij is de piloot omgekomen.
+     ...
+- ['VS sterker dan ooit', zegt Trump in campagnespeech vol onwaarheden](https://nos.nl/l/2603925)
+  > Zijn populariteitscijfers staan op een dieptepunt. Een meerderheid van de Amerikanen vindt dat zijn ICE-agenten te ver zijn gegaan. En zijn...
+- [Driekwart van volwassenen denkt dat door AI banen zullen verdwijnen](https://nos.nl/l/2603921)
+  > Driekwart van de volwassen Nederlanders denkt dat door kunstmatige intelligentie (AI) banen zullen verdwijnen. Dat blijkt uit onderzoek van het CBS....
+- [Kabinet-Jetten op zoek naar samenwerking in tweedaags Kamerdebat](https://nos.nl/l/2603918)
+  > De komende twee dagen zijn het kabinet en de Tweede Kamer in de weer met het debat over de regeringsverklaring. Om 10.30 uur zal premier Jetten de...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Shoppositie, proppositie of pacemakers: de meedenkende oppositie verdient een nieuwe naam](https://www.ad.nl/politiek/shoppositie-proppositie-of-pacemakers-de-meedenkende-oppositie-verdient-een-nieuwe-naam~a9d8b410/)
-  > Met een minderheidskabinet op het bordes is de term oppositie aan vervanging toe. Want naast geharde tegenstanders is er nu ook een groot peloton van...
-- [Dit is Anna, en zij kost te veel geld: ‘Onze dochter is een kostenpost’](https://www.ad.nl/binnenland/dit-is-anna-en-zij-kost-te-veel-geld-onze-dochter-is-een-kostenpost~a8314f7c/)
-  > Vader Jonas Baart schrijft de zorgen over zijn meervoudig beperkte dochter Anna (14) van zich af. Dan gaat het vooral over het voortdurende onheil...
-- [Bom barst in dancewereld: top-dj’s beschuldigd van seksueel wangedrag, Nederlandse festivals grijpen in](https://www.ad.nl/muziek/bom-barst-in-dancewereld-top-djs-beschuldigd-van-seksueel-wangedrag-nederlandse-festivals-grijpen-in~adba8b4ee/)
-  > De bom is gebarsten in de internationale dancewereld. Meerdere dj’s worden beschuldigd van seksueel grensoverschrijdend gedrag en machtsmisbruik. De...
-- [Ondanks onvrede in het land schept Trump op over de economie: ‘Ons land is terug’](https://www.ad.nl/buitenland/ondanks-onvrede-in-het-land-schept-trump-op-over-de-economie-ons-land-is-terug~ae67dd9c/)
-  > De Democraat Al Green is net als vorig jaar uit de zaal gehaald tijdens een toespraak van de Amerikaanse president Donald Trump. Congreslid Green...
-- [Strijd om overname Warner Bros. duurt voort: Paramount doet nieuw bod](https://www.ad.nl/tech/strijd-om-overname-warner-bros-duurt-voort-paramount-doet-nieuw-bod~a5778fd4/)
-  > Entertainment- en mediaconcern Warner Bros. Discovery heeft een herzien overnamevoorstel van Paramount Skydance ontvangen. Warner Bros. zegt het...
+- [Trump probeert in zijn State of the Union-toespraak de regie terug te pakken: ‘Deze mensen zijn gek’](https://www.ad.nl/buitenland/trump-probeert-in-zijn-state-of-the-union-toespraak-de-regie-terug-te-pakken-deze-mensen-zijn-gek~a303fd7d/)
+  > Het was dinsdag al meteen raak in het Capitool. Nog voordat Donald Trump zijn mond had opengedaan, hield een Democratische afgevaardigde een...
+- [Willem-Alexander gooit frituurpan aan voor schaatser Jorrit Bergsma: ‘Regelen we eventjes’](https://www.ad.nl/show/willem-alexander-gooit-frituurpan-aan-voor-schaatser-jorrit-bergsma-regelen-we-eventjes~ab1c509c/)
+  > Een strikt dieet en hard trainen: voor de olympische sporters zat ongezond snacken er de afgelopen tijd niet in. Schaatser Jorrit Bergsma kon niet...
+- [Schokkende berichten Russische generaal: 'Moet ik die gevangene in een put wegdoen, of aan jou geven?'](https://www.ad.nl/buitenland/schokkende-berichten-russische-generaal-moet-ik-die-gevangene-in-een-put-wegdoen-of-aan-jou-geven~ae87405f/)
+  > Het Russische leger maakt zich in Oekraïne systematisch schuldig aan het martelen en vermoorden van krijgsgevangenen. Generaals weten ervan en...
+- [Turkse F-16 stort neer, piloot overleeft het niet](https://www.ad.nl/buitenland/turkse-f-16-stort-neer-piloot-overleeft-het-niet~a58aedc3f/)
+  > Een Turkse F-16 is woensdag kort na het opstijgen neergestort in het westen van Turkije. De piloot is om het leven gekomen. Dat melden Turkse...
+- [Bodø/Glimt zet zelfde reeks neer als het succesvolle Ajax uit 1972: ‘Als wij dit kunnen, kan iedereen het’](https://www.ad.nl/voetbal/bodo-glimt-zet-zelfde-reeks-neer-als-het-succesvolle-ajax-uit-1972-als-wij-dit-kunnen-kan-iedereen-het~a47e2efe/)
+  > Bodø/Glimt blijft verbazen. De Noorse club plaatste zich dinsdagavond voor de achtste finales van de Champions League na een indrukwekkende reeks,...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Won Yip: ‘Kap zo’n natuurgebied kaal en start met bouwen’](https://fd.nl/bedrijfsleven/1587356/won-yip-kap-zon-natuurgebied-kaal-en-start-met-bouwen)
-  > Horecatycoon Won Yip leest geen kranten. ‘Ik leef in mijn eigen wereld.’ Maar ideeën over de Haagse politiek heeft hij genoeg. ‘Nederland kan toch...
-- [Schrijver Eva Rovers wil een Derde Kamer in Den Haag](https://fd.nl/samenleving/1587282/schrijver-eva-rovers-wil-een-derde-kamer-in-den-haag)
-  > Eva Rovers, oprichter-directeur van Bureau Burgerberaad, breekt een lans voor een heuse Derde Kamer: een burgerparlement naast de Eerste en Tweede...
-- [Is dit bedrijf ‘de nieuwe ASML’?](https://fd.nl/economie/1587450/is-dit-bedrijf-de-nieuwe-asml)
-  > Vandaag in Dagkoers: een investering van $250 mln in het Eindhovense Axelera, een Brussels offensief voor de energietransitie en het prestigieuze W...
-- [Minder bankiers](https://fd.nl/opinie/1587357/minder-bankiers)
-  > Ik gun iedereen z’n baan. Toch werd ik niet verdrietig van het nieuws dat er bij de banken veel banen verdwijnen.
-- [Verzet zit in kleine dingen](https://fd.nl/opinie/1587340/verzet-zit-in-kleine-dingen)
-  > We herdenken graag onze helden. Maar ons brein is gebouwd op meebewegen, niet op moed. Verzet begint zelden groots – het begint waar iemand het niet...
+- [Resultaten Wolters Kluwer geven geen basis voor AI-angst van beleggers](https://fd.nl/bedrijfsleven/1587487/resultaten-wolters-kluwer-geven-geen-basis-voor-ai-angst-van-beleggers)
+  > De vertrekkende ceo Nancy McKinstry en haar opvolger Stacey Caywood grijpen de publicatie van de cijfers aan om nog eens te benadrukken dat Wolters...
+- [Een grachtenpand in Haarlem met hoge plafonds](https://fd.nl/samenleving/1587398/een-grachtenpand-in-haarlem-met-hoge-plafonds)
+  > ‘Daar lag ons speedbootje, waarmee we gingen waterskiën. En aan de overkant meert Sinterklaas elk jaar aan.
+- [Vopak gaat voor €500 mln aandelen inkopen](https://fd.nl/bedrijfsleven/1587447/vopak-kondigt-groot-inkoopprogramma-van-aandelen-aan)
+  > In totaal wil het tankopslagbedrijf tot 2030 rond de €1,7 mrd uitkeren aan de aandeelhouders. De winst bij Vopak over heel 2025 viel flink hoger uit...
+- [Paramount verhoogt bod op Warner Bros](https://fd.nl/bedrijfsleven/1587486/paramount-verhoogt-bod-op-warner-bros)
+  > Paramount probeert opnieuw Netflix te overtroeven in de strijd om Warner Bros.
+- [Live: AEX gaat hogere opening tegemoet](https://fd.nl/financiele-markten/1587581/live-grondstoffen-trekken-aziatische-beurzen-hoger)
+  > Aziatische beurzen stijgen door AI-optimisme en positieve signalen uit de grondstoffenmarkt. Futures op de Europese markten wijzen op een vlak tot...
 
 ### Meest gelezen
 
