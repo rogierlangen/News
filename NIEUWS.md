@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-02-2026 om 08:06*
+*Laatst bijgewerkt: 25-02-2026 om 11:28*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Duitse bondskanselier Merz in China voor economische en politieke balanceeract](https://nos.nl/l/2603927)
-  > De Duitse bondskanselier Merz is begonnen aan een driedaagse reis door China. Hij heeft zich goed voorbereid: vooraf liet hij zich een avond lang...
-- [F-16 stort neer in westen van Turkije, piloot komt om](https://nos.nl/l/2603926)
-  > Een Turkse F-16 is vannacht kort na het opstijgen door onbekende oorzaak neergestort in het westen van Turkije. Daarbij is de piloot omgekomen.
-     ...
-- ['VS sterker dan ooit', zegt Trump in campagnespeech vol onwaarheden](https://nos.nl/l/2603925)
-  > Zijn populariteitscijfers staan op een dieptepunt. Een meerderheid van de Amerikanen vindt dat zijn ICE-agenten te ver zijn gegaan. En zijn...
-- [Driekwart van volwassenen denkt dat door AI banen zullen verdwijnen](https://nos.nl/l/2603921)
-  > Driekwart van de volwassen Nederlanders denkt dat door kunstmatige intelligentie (AI) banen zullen verdwijnen. Dat blijkt uit onderzoek van het CBS....
-- [Kabinet-Jetten op zoek naar samenwerking in tweedaags Kamerdebat](https://nos.nl/l/2603918)
-  > De komende twee dagen zijn het kabinet en de Tweede Kamer in de weer met het debat over de regeringsverklaring. Om 10.30 uur zal premier Jetten de...
+- [Friese politie ontmantelt derde drugslab in vijf dagen tijd](https://nos.nl/l/2603951)
+  > De Friese politie heeft opnieuw een drugslab opgerold, dit keer in Oudehaske tussen Joure en Heerenveen. Het is het derde laboratorium in korte tijd...
+- [Japan gaat raketten plaatsen op eiland in buurt Taiwan](https://nos.nl/l/2603950)
+  > Japan gaat raketten plaatsen op een eiland vlak bij Taiwan. Dat werd in 2022 al aangekondigd, maar nu is concreet wanneer die raketten er moeten...
+- [Heinen wil wetsvoorstel box 3 aanpassen, Tweede Kamer was al akkoord](https://nos.nl/l/2603947)
+  > Het nieuwe kabinet wil de wet voor vermogensbelasting die in 2028 zou ingaan, aanpassen. Dat bevestigt een woordvoerder van het ministerie van...
+- [Tientallen doden in Brazilië na extreme regenval](https://nos.nl/l/2603946)
+  > In Brazilië zijn zeker dertig mensen omgekomen als gevolg van hevige regenval in de zuidoostelijke staat Minas Gerais. Ook worden tientallen personen...
+- [Proef met noodsteunpunten in 70 gemeenten: 'Kijken hoe we ervoor staan'](https://nos.nl/l/2603938)
+  > In bijna zeventig Nederlandse gemeenten in alle veiligheidsregio's is een proef met noodsteunpunten begonnen, meldt de Vereniging van Nederlandse...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Trump probeert in zijn State of the Union-toespraak de regie terug te pakken: ‘Deze mensen zijn gek’](https://www.ad.nl/buitenland/trump-probeert-in-zijn-state-of-the-union-toespraak-de-regie-terug-te-pakken-deze-mensen-zijn-gek~a303fd7d/)
-  > Het was dinsdag al meteen raak in het Capitool. Nog voordat Donald Trump zijn mond had opengedaan, hield een Democratische afgevaardigde een...
-- [Willem-Alexander gooit frituurpan aan voor schaatser Jorrit Bergsma: ‘Regelen we eventjes’](https://www.ad.nl/show/willem-alexander-gooit-frituurpan-aan-voor-schaatser-jorrit-bergsma-regelen-we-eventjes~ab1c509c/)
-  > Een strikt dieet en hard trainen: voor de olympische sporters zat ongezond snacken er de afgelopen tijd niet in. Schaatser Jorrit Bergsma kon niet...
-- [Schokkende berichten Russische generaal: 'Moet ik die gevangene in een put wegdoen, of aan jou geven?'](https://www.ad.nl/buitenland/schokkende-berichten-russische-generaal-moet-ik-die-gevangene-in-een-put-wegdoen-of-aan-jou-geven~ae87405f/)
-  > Het Russische leger maakt zich in Oekraïne systematisch schuldig aan het martelen en vermoorden van krijgsgevangenen. Generaals weten ervan en...
-- [Turkse F-16 stort neer, piloot overleeft het niet](https://www.ad.nl/buitenland/turkse-f-16-stort-neer-piloot-overleeft-het-niet~a58aedc3f/)
-  > Een Turkse F-16 is woensdag kort na het opstijgen neergestort in het westen van Turkije. De piloot is om het leven gekomen. Dat melden Turkse...
-- [Bodø/Glimt zet zelfde reeks neer als het succesvolle Ajax uit 1972: ‘Als wij dit kunnen, kan iedereen het’](https://www.ad.nl/voetbal/bodo-glimt-zet-zelfde-reeks-neer-als-het-succesvolle-ajax-uit-1972-als-wij-dit-kunnen-kan-iedereen-het~a47e2efe/)
-  > Bodø/Glimt blijft verbazen. De Noorse club plaatste zich dinsdagavond voor de achtste finales van de Champions League na een indrukwekkende reeks,...
+- [Noorse ‘bonusprins’ Marius in tranen bij verklaring over Mette-Marit en Haakon](https://www.ad.nl/show/noorse-bonusprins-marius-in-tranen-bij-verklaring-over-mette-marit-en-haakon~a7eb8d0a/)
+  > Marius Borg Høiby raakte woensdag in de rechtbank van Oslo erg geëmotioneerd toen hij reageerde op uitspraken van zijn ex-vriendin Nora Haukland over...
+- [Eerste lokale lentedag van het jaar een feit](https://www.ad.nl/binnenland/eerste-lokale-lentedag-van-het-jaar-een-feit~ad400ef0/)
+  > Met 15,2 graden in Maastricht en het Zeeuwse Westdorpe woensdagochtend is er officieel sprake van de eerste lokale lentedag van dit jaar.
+- [Christian Horner in Netflix-serie over ontslag bij Red Bull: ‘Geloof niet dat de Verstappens verantwoordelijk waren’](https://www.ad.nl/formule-1/christian-horner-in-netflix-serie-over-ontslag-bij-red-bull-geloof-niet-dat-de-verstappens-verantwoordelijk-waren~a18ef149/)
+  > Het achtste seizoen van de Formule 1-serie Drive to survive verschijnt vrijdag pas op Netflix, maar aflevering 4 is nu al spraakmakend. Onze Formule...
+- [Kabinet gooit na anderhalve week wet voor box 3 alweer in de prullenbak](https://www.ad.nl/politiek/kabinet-gooit-na-anderhalve-week-wet-voor-box-3-alweer-in-de-prullenbak~a853cbf9/)
+  > Het kabinet-Jetten is amper begonnen, maar de ministersploeg gaat alweer flink sleutelen aan een wet die juist pas anderhalve week geleden werd...
+- [Shows Martin Short uitgesteld na dood dochter Katherine](https://www.ad.nl/show/shows-martin-short-uitgesteld-na-dood-dochter-katherine~a38cdaab/)
+  > De comedyshows die Martin Short aankomend weekend zou geven met collega Steve Martin zijn uitgesteld. Dat volgt op het nieuws dat zijn geadopteerde...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Resultaten Wolters Kluwer geven geen basis voor AI-angst van beleggers](https://fd.nl/bedrijfsleven/1587487/resultaten-wolters-kluwer-geven-geen-basis-voor-ai-angst-van-beleggers)
-  > De vertrekkende ceo Nancy McKinstry en haar opvolger Stacey Caywood grijpen de publicatie van de cijfers aan om nog eens te benadrukken dat Wolters...
-- [Een grachtenpand in Haarlem met hoge plafonds](https://fd.nl/samenleving/1587398/een-grachtenpand-in-haarlem-met-hoge-plafonds)
-  > ‘Daar lag ons speedbootje, waarmee we gingen waterskiën. En aan de overkant meert Sinterklaas elk jaar aan.
-- [Vopak gaat voor €500 mln aandelen inkopen](https://fd.nl/bedrijfsleven/1587447/vopak-kondigt-groot-inkoopprogramma-van-aandelen-aan)
-  > In totaal wil het tankopslagbedrijf tot 2030 rond de €1,7 mrd uitkeren aan de aandeelhouders. De winst bij Vopak over heel 2025 viel flink hoger uit...
-- [Paramount verhoogt bod op Warner Bros](https://fd.nl/bedrijfsleven/1587486/paramount-verhoogt-bod-op-warner-bros)
-  > Paramount probeert opnieuw Netflix te overtroeven in de strijd om Warner Bros.
-- [Live: AEX gaat hogere opening tegemoet](https://fd.nl/financiele-markten/1587581/live-grondstoffen-trekken-aziatische-beurzen-hoger)
-  > Aziatische beurzen stijgen door AI-optimisme en positieve signalen uit de grondstoffenmarkt. Futures op de Europese markten wijzen op een vlak tot...
+- [Amerikaanse WK-speelsteden wachten nog op federale fondsen](https://fd.nl/samenleving/1587492/amerikaanse-wk-speelsteden-wachten-nog-op-federale-fondsen)
+  > De financiering is vertraagd door een shutdown van de federale overheid. Steden waarschuwen dat ze in het uiterste geval evenementen moeten...
+- [Chipsoft verdiende ook in 2024 goud geld aan patiëntendossiers](https://fd.nl/bedrijfsleven/1587587/chipsoft-verdiende-ook-in-2024-goud-geld-aan-patientendossiers)
+  > Het softwarebedrijf heeft een dominante marktpositie, en weet die nog steeds verder uit te breiden. Voor ziekenhuizen is overstappen moeilijk en duur.
+- [Ondanks Credit Suisse-crisis gaat het crescendo met de coco’s](https://fd.nl/financiele-markten/1587584/ondanks-credit-suisse-crisis-gaat-het-crescendo-met-de-cocos)
+  > Toen Credit Suisse drie jaar geleden op de rand van de afgrond stond, sloeg de paniek toe onder houders van achtergestelde obligaties, ook wel bekend...
+- [Premier Jetten biedt in regeringsverklaring opening coalitieplannen bij te sturen](https://fd.nl/politiek/1587586/jetten-biedt-in-regeringsverklaring-opening-coalitieplannen-bij-te-sturen)
+  > De D66-leider zegt in de Tweede Kamer te staan voor zijn plannen. Maar: ‘We moeten wel zaken doen met elkaar. Goede ideeën en slimme alternatieven...
+- [Heinen gaat wetsvoorstel box 3 toch aanpassen na verzet in senaat](https://fd.nl/politiek/1587585/heinen-gaat-wetsvoorstel-box-3-toch-aanpassen-na-verzet-senaat)
+  > Hevige protesten lijken gehoor te krijgen: de minister van Financiën wil praten met de Tweede en Eerste Kamer over een aanpassing van het...
 
 ### Meest gelezen
 
