@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-02-2026 om 05:11*
+*Laatst bijgewerkt: 26-02-2026 om 08:03*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Dictator Kim houdt tijdens partijcongres deur op kier voor ontmoeting met Trump](https://nos.nl/l/2604027)
-  > De Noord-Koreaanse dictator Kim Jong-un heeft tijdens het partijcongres van de Noord-Koreaanse Arbeiderspartij de mogelijkheid opengehouden voor een...
-- [Dodental na extreme regenval in zuidwesten van Brazilië loopt op](https://nos.nl/l/2604026)
-  > Het dodental als gevolg van de hevige regenval in de zuidoostelijke Braziliaanse staat Minas Gerais is opgelopen tot zeker 46. Ook worden nog zeker...
-- [NASA-astronaut maakt bekend: noodterugkeer uit ISS was voor mij](https://nos.nl/l/2604023)
-  > De Amerikaanse astronaut Mike Fincke heeft bekendgemaakt er voor hem vorige maand een noodterugkeer vanuit ruimtestation ISS werd georganiseerd. Wat...
-- [Amelie Lens en andere vrouwelijke dj's: te weinig aandacht voor wangedrag](https://nos.nl/l/2604016)
-  > De toonaangevende dj Amelie Lens heeft gereageerd op het nieuws dat een aantal mannelijke collega's zich seksueel grensoverschrijdend zouden hebben...
-- [Afgelopen jaar 129 journalisten gedood, merendeel door Israël](https://nos.nl/l/2604015)
-  > Nog nooit zijn er zo veel journalisten gedood als afgelopen jaar. De onafhankelijke organisatie CPJ (Comité ter Bescherming van Journalisten)...
+- [Ruzie tussen het Pentagon en een AI-bedrijf: waarvoor mag je AI inzetten?](https://nos.nl/l/2604046)
+  > Waar ligt de rode lijn voor het inzetten van AI in het leger? De Amerikaanse minister van Defensie Hegseth en het AI-bedrijf Anthropic hebben er een...
+- [Kustgemeenten willen verplichte verzekering na vastlopen kotter](https://nos.nl/l/2604045)
+  > De Noord-Hollandse kustgemeenten willen een verplichte aansprakelijkheidsverzekering voor schepen onder de 300 ton. Zo kan snel worden ingegrepen als...
+- [Gesprekken tussen VS en Iran onder dreiging van Amerikaanse aanval](https://nos.nl/l/2604041)
+  > Vertegenwoordigers van de VS en Iran komen vandaag in Genève bij elkaar voor indirecte onderhandelingen. Die vinden plaats onder dreiging van een...
+- [Drie keer brandstichting bij kerken Ede in week tijd](https://nos.nl/l/2604039)
+  > In Ede is in een week tijd bij drie kerken brandgesticht. De politie onderzoekt of er een verband is en vraagt getuigen zich te melden.
+        De...
+- [Geven kiezers uit deze Engelse voorstad wankelende Starmer laatste zetje?](https://nos.nl/l/2604033)
+  > Krijgt premier Starmer een nieuwe duw richting de afgrond? Kiezers in een kiesdistrict in Zuid-Manchester gaan vandaag naar de stembus voor een...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Gepest, alleen en troost zoekend bij een knuffel, waarom het verhaal van aapje Punch ons zo raakt: ‘Dit komt zo uit Disney’](https://www.ad.nl/buitenland/gepest-alleen-en-troost-zoekend-bij-een-knuffel-waarom-het-verhaal-van-aapje-punch-ons-zo-raakt-dit-komt-zo-uit-disney~a0e2fbf3/)
-  > De wereld is al weken in de ban van Punch, een babyaapje dat verstoten werd door zijn moeder, gepest wordt door andere apen en dan maar troost zoekt...
-- [‘Wopke Hoekstra, wij rekenen op u’: Brussel velt oordeel over gevoelig abortusplan](https://www.ad.nl/binnenland/wopke-hoekstra-wij-rekenen-op-u-brussel-velt-oordeel-over-gevoelig-abortusplan~acbc140e/)
-  > Sommigen spreken van een doorbraak, anderen vinden het een gruwel. Het plan om vrouwen in de hele EU toegang te geven tot abortuszorg zorgt in...
-- [Hof van beroep Hongkong vernietigt een van de veroordelingen Jimmy Lai](https://www.ad.nl/buitenland/hof-van-beroep-hongkong-vernietigt-een-van-de-veroordelingen-jimmy-lai~a70bdf6a/)
-  > Het hof van beroep in Hongkong heeft de veroordeling voor fraude van mediamagnaat Jimmy Lai (78) door een lager hof vernietigd.
-- [AI-app van Elon Musk laat Tweede Kamer binnen 10 seconden de Hitlergroet brengen: ‘Holy crap’](https://www.ad.nl/tech/ai-app-van-elon-musk-laat-tweede-kamer-binnen-10-seconden-de-hitlergroet-brengen-holy-crap~a113cb54/)
-  > De Tweede Kamer die de Hitlergroet brengt en ‘Mein Führer’ scandeert, of een nazi-Donald Duck die een Joods meisje uitscheldt. De nieuwe versie van...
-- [Voetbalpodcast | ‘Ik had een iets hardere straf voor Ajax verwacht’](https://www.ad.nl/voetbal/voetbalpodcast-ik-had-een-iets-hardere-straf-voor-ajax-verwacht~ac8603a9/)
-  > Een bijna remontada in de Champions League gisteravond. Juventus kwam met tien man op een 3-0 voorsprong en dwong een verlenging af. Maar daarin...
+- [Kabinet start dit jaar met onafhankelijke metingen om jarenlang wantrouwen rond industrie te doorbreken](https://www.ad.nl/binnenland/kabinet-start-dit-jaar-met-onafhankelijke-metingen-om-jarenlang-wantrouwen-rond-industrie-te-doorbreken~ae03d5db/)
+  > Het kabinet begint met proeven voor onafhankelijke metingen rond zware industrie. Het huidige systeem, waarbij bedrijven hun eigen controlebureaus...
+- [Walid Regragui vertrekt als bondscoach van Marokko, Juventus wil ondanks CL-dreun door met trainer](https://www.ad.nl/voetbal/walid-regragui-vertrekt-als-bondscoach-van-marokko-juventus-wil-ondanks-cl-dreun-door-met-trainer~a79d4309/)
+  > De transfermarkt in Nederland en de grootste competities is gesloten. Er zijn nog slechts een paar landen waar spelers naartoe kunnen. Ook zullen er...
+- [Vrachtwagenchauffeur Martin bestolen na nep-controle in Frankrijk: ‘Stap nooit zomaar uit’](https://www.ad.nl/binnenland/vrachtwagenchauffeur-martin-bestolen-na-nep-controle-in-frankrijk-stap-nooit-zomaar-uit~a43fc760/)
+  > ‘Loop maar even mee’, kreeg Martin Paauwe te horen nadat hij zijn truck verkeerd had geparkeerd en er van zijn bed werd gelicht. Nietsvermoedend liep...
+- [Wekker zetten voor start F1-seizoen: zo vroeg komt Max Verstappen in actie in Melbourne](https://www.ad.nl/formule-1/wekker-zetten-voor-start-f1-seizoen-zo-vroeg-komt-max-verstappen-in-actie-in-melbourne~a71841049/)
+  > Het nieuwe Formule 1-seizoen gaat na zes testdagen in Bahrein nu echt beginnen. Max Verstappen hoopt met zijn nieuwe Red Bull Racing het...
+- [‘Adviseurs Trump zien liever Israël als eerste aanvallen’, VS en Iran praten vandaag in Génève](https://www.ad.nl/buitenland/adviseurs-trump-zien-liever-israel-als-eerste-aanvallen-vs-en-iran-praten-vandaag-in-geneve~ac528ac3/)
+  > Topadviseurs van de Amerikaanse president Donald Trump hebben liever dat Israël Iran eerst aanvalt, voordat de Amerikanen toeslaan. Dat zeggen twee...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Marguerite Bérard: ‘Het ergste wat je als ceo kunt doen is geen keuzes maken’](https://fd.nl/financiele-markten/1587588/marguerite-berard-het-ergste-wat-je-als-ceo-kunt-doen-is-geen-keuzes-maken)
-  > De bestuursvoorzitter van ABN Amro heeft in haar eerste jaar de toon gezet met een forse reorganisatie, onderdeel van een ambitieus groeiplan. Een...
-- [Wie lekker wil ruiken moet betalen](https://fd.nl/samenleving/1587291/wie-lekker-wil-ruiken-moet-betalen)
-  > Meer dan 200 euro voor een parfum is geen uitzondering meer. En die forse prijzen lijken de consument vooralsnog niet te hinderen. Maar waarom zijn...
-- [Twist in box 3-rel: minister krabbelt terug](https://fd.nl/economie/1587601/twist-in-box-3-rel-minister-krabbelt-terug)
-  > Vandaag in Dagkoers: opvallende ontwikkelingen in de rel rond box 3. Cijfers over de woningmarkt laten een somber beeld zien over internationale...
-- [Waanidee](https://fd.nl/opinie/1587606/waanidee)
-  > Is het überhaupt mogelijk, wat Trump tijdens de State of the Union beweerde, vraagt FD-columnist Anna Dijkman zich af. Kunnen invoerheffingen de...
-- [Een VVV-bon voor rokende zwangeren – een nieuwe variant op de nicotinepleister?](https://fd.nl/opinie/1587358/een-vvv-bon-voor-rokende-zwangeren-een-nieuwe-variant-op-de-nicotinepleister)
-  > Volgens de ijzeren wil van het preventisme kunnen we beter nu geld uitgeven dan later – ongeacht of die begroting rondkomt of niet. Maar ja, wie weet...
+- [FlatexDeGiro voert winst fors op, verwacht verdere groei in 2026](https://fd.nl/financiele-markten/1587625/flatexdegiro-voert-winst-fors-op-verwacht-verdere-groei-in-2026)
+  > Onlinebroker verdiende vorig jaar bijna 44% meer dankzij een stijging in klanten en transacties.
+- [Rolls-Royce gaat voor miljarden aandelen inkopen](https://fd.nl/bedrijfsleven/1587630/rolls-royce-gaat-voor-miljarden-aandelen-inkopen)
+  > De Britse bouwer van vliegtuigmotoren boekt een hogere winst en scherpt de financiële doelstellingen aan.
+- [De standaardformules van het vertrekjargon](https://fd.nl/samenleving/1587399/de-standaardformules-van-het-vertrekjargon)
+  > Femmetje de Wind wordt wantrouwig als ze op LinkedIn de standaardzinnen leest die mensen schrijven als ze niet geheel vrijwillig hun baan verlaten.
+- [Europese voetbalclubs boeken gezamenlijk meer dan €1 mrd verlies](https://fd.nl/bedrijfsleven/1587550/europese-voetbalclubs-boeken-gezamenlijk-meer-dan-1-mrd-verlies)
+  > Europese voetbalclubs draaien ondanks een gezamenlijke recordomzet een verlies.
+- [Omzet en winstmarge Aalberts zakken verder weg](https://fd.nl/bedrijfsleven/1587629/omzet-en-winstmarge-aalberts-zakt-verder-weg)
+  > Aalberts was bovendien in 2025 ruim €84 mln kwijt aan eenmalige kosten. Het bedrijf verwacht een verbetering in 2026.
 
 ### Meest gelezen
 
