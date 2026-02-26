@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-02-2026 om 14:41*
+*Laatst bijgewerkt: 26-02-2026 om 18:04*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Pensioenfondsen opgelucht na overstap, wel zorgen over AOW-discussie](https://nos.nl/l/2604110)
-  > De trots op het gezicht van pensioenbestuurders is duidelijk zichtbaar op de bijeenkomst van de Pensioenfederatie. In het gebouw van...
-- [Man opgepakt voor rekruteren van Kenianen voor Russisch leger](https://nos.nl/l/2604108)
-  > De Keniaanse politie heeft een man opgepakt die wordt verdacht van het rekruteren van Kenianen voor het Russische leger. De 33-jarige man wordt...
-- [Partijen verwijten Jetten 'valse start' vanwege vasthouden aan AOW-maatregel](https://nos.nl/l/2604107)
-  > Verschillende oppositiepartijen vinden dat premier Jetten "een valse start" heeft gemaakt nu hij in hun ogen halsstarrig vasthoudt aan een snellere...
-- [Tweede Kamer vraagt sociale platform X na weigering nogmaals op gesprek](https://nos.nl/l/2604101)
-  > Een groot aantal partijen in de Tweede Kamer wil dat het sociale platform X op 4 maart alsnog op gesprek komt. Zij hebben een brief aan het bedrijf...
-- [NVWA waarschuwt 2400 kopers van bestrijdingsmiddel met glyfosaat](https://nos.nl/l/2604100)
-  > De Nederlandse Voedsel- en Warenautoriteit (NVWA) heeft een brief gestuurd naar ruim 2400 personen en bedrijven die illegale bestrijdingsmiddelen...
+- [Stropers betrapt in Zeeland tijdens het opvissen van 158 kilo tapijtschelpen](https://nos.nl/l/2604135)
+  > Twee mannen zijn maandag in Zeeland betrapt op het illegaal vangen van 158 kilo tapijtschelpen. De stropers werden staande gehouden en er is proces...
+- [EU-subsidie mag voortaan gebruikt worden om abortus uit te voeren](https://nos.nl/l/2604132)
+  > Voorvechters voor vrouwenrechten hebben met een burgerinitiatief een belangrijke slag geslagen. EU-subsidies mogen voortaan worden gebruikt om...
+- [Denen eerder naar de stembus vanwege Groenland](https://nos.nl/l/2604129)
+  > De Deense premier Mette Frederiksen schrijft vervroegde verkiezingen uit voor volgende maand. De verkiezingen zouden pas aan het eind van het jaar...
+- [Duitse veiligheidsdienst mag AfD voorlopig niet extreemrechts noemen](https://nos.nl/l/2604124)
+  > De Duitse binnenlandse veiligheidsdienst BfV mag de politieke partij Alternative für Deutschland voorlopig niet bestempelen en behandelen als...
+- [Orbán zet relatie met Oekraïne verder op scherp in aanloop naar verkiezingen](https://nos.nl/l/2604122)
+  > Dat de Hongaarse premier Orbán Moskou verkiest boven Kyiv was al lang duidelijk, maar de afgelopen dagen heeft de relatie tussen de twee buurlanden...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Jetten belooft niet meer over halvering veestapel te beginnen: ‘Ik wil niet op tenen trappen’](https://www.ad.nl/politiek/jetten-belooft-niet-meer-over-halvering-veestapel-te-beginnen-ik-wil-niet-op-tenen-trappen~a8654318/)
-  > Premier Rob Jetten (D66) voert een verhit debat over de voorgenomen verhoging van de AOW-leeftijd van het kabinet. Volgens oppositieleider Jesse...
-- [Israëlisch leger weer in opspraak door video: soldaten laten neergeschoten Palestijn (14) doodbloeden](https://www.ad.nl/buitenland/israelisch-leger-weer-in-opspraak-door-video-soldaten-laten-neergeschoten-palestijn-14-doodbloeden~a6881d23/)
-  > Het Israëlische leger is opnieuw in opspraak geraakt na de dood van een Palestijnse tiener op de bezette Westelijke Jordaanoever. Op een video, die...
-- [Kensington wint 3FM Award voor meest gedraaide Nederlandse nummer](https://www.ad.nl/utrecht/kensington-wint-3fm-award-voor-meest-gedraaide-nederlandse-nummer~ad9ebd21/)
-  > Met hun comeback single A Moment heeft de Utrechtse band Kensington de Schaal van Rigter gewonnen, de prijs voor meest gedraaide nummer van...
-- [De impact van Mathieu van der Poel op Omloop Het Nieuwsblad is ongekend](https://www.ad.nl/wielrennen/de-impact-van-mathieu-van-der-poel-op-omloop-het-nieuwsblad-is-ongekend~a648337a/)
-  > Nu Mathieu van der Poel meedoet in Omloop Het Nieuwsblad is alles anders. Hij is op slag de huizenhoge en enige topfavoriet. De kans op een sprint is...
-- [Stroomuitval en winkelcentrum in brand door Russische aanval met honderden drones](https://www.ad.nl/buitenland/stroomuitval-en-winkelcentrum-in-brand-door-russische-aanval-met-honderden-drones~adfb97be/)
-  > Het aantal gewonden dat in de nacht van woensdag op donderdag in Oekraïne is gevallen, is opgelopen naar 26. Kyiv telde een aanval met 420 drones....
+- [Giroud kopt Lille op voorsprong tegen Rode Ster, Celtic slaat na 30 seconden toe in Stuttgart](https://www.ad.nl/voetbal/giroud-kopt-lille-op-voorsprong-tegen-rode-ster-celtic-slaat-na-30-seconden-toe-in-stuttgart~ab61e416/)
+  > Vanavond om 18.45 uur en 21.00 uur staan er in totaal acht wedstrijden op het programma in de Europa League. Zo gaat Celtic op bezoek bij VfB...
+- [Kan een nieuwe crisis opdoemen, zoals een topbankier uit de VS waarschuwt? ‘De kansen daarop nemen toe’](https://www.ad.nl/tech/kan-een-nieuwe-crisis-opdoemen-zoals-een-topbankier-uit-de-vs-waarschuwt-de-kansen-daarop-nemen-toe~a4f66948/)
+  > Staan we aan de vooravond van een nieuwe financiële crisis? De jubelstemming op de markten lijkt verdacht veel op die van de megacrash van 2008,...
+- [Ook dj Charlotte de Witte reageert op ‘techno files’: ‘Laten we allemaal onze verantwoordelijkheid nemen’](https://www.ad.nl/show/ook-dj-charlotte-de-witte-reageert-op-techno-files-laten-we-allemaal-onze-verantwoordelijkheid-nemen~a5a5a6e0/)
+  > De Belgische technokoningin Charlotte de Witte (33) heeft voor het eerst gereageerd op het nieuws over vermeend seksueel wangedrag door enkele...
+- [Hillary Clinton getuigt over Epstein: ‘Ik heb geen informatie en heb hem nooit ontmoet’](https://www.ad.nl/buitenland/hillary-clinton-getuigt-over-epstein-ik-heb-geen-informatie-en-heb-hem-nooit-ontmoet~ae67dd9c/)
+  > Voormalig first lady Hillary Clinton zegt geen informatie te hebben over de misdaden van de overleden zedendelinquent Jeffrey Epstein. ‘Ik kan me...
+- [PSV slaat slag en houdt groot Belgisch talent Noah Fernandez (18) binnenboord](https://www.ad.nl/voetbal/psv-slaat-slag-en-houdt-groot-belgisch-talent-noah-fernandez-18-binnenboord~a0a1278b/)
+  > PSV heeft het contract van de 18-jarige middenvelder Noah Fernandez verlengd. De middenvelder ging akkoord met de aanbieding die de club heeft...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Energierekening dit jaar verder omlaag](https://fd.nl/economie/1587559/energierekening-dit-jaar-verder-omlaag)
-  > Op basis van tarieven afgelopen januari ziet het CBS de jaarlijkse energierekening met 2,5% dalen, oftewel met €52.
-- [Trumps loyalisten moeten zijn evangelie in Europa verspreiden](https://fd.nl/politiek/1587590/trumps-loyalisten-moeten-zijn-evangelie-in-europa-verspreiden)
-  > Na incidenten in België en Frankrijk ontstaat een patroon: de Amerikaanse diplomatie verandert. Toch is politiek uitdragen niet ongebruikelijk voor...
-- [Bouwbedrijf Van Gelder reserveert ‘substantieel bedrag’ voor naheffing Belastingdienst](https://fd.nl/bedrijfsleven/1587594/bouwbedrijf-van-gelder-reserveert-substantieel-bedrag-voor-naheffing-belastingdienst)
-  > De fiscus onderzoekt of Van Gelder schijnzelfstandigen inhuurde. De directie zegt tegen het FD in overleg te zijn met de fiscus over de betreffende...
-- [Pentagon voert druk op in AI-ruzie met Anthropic](https://fd.nl/tech-en-innovatie/1587557/pentagon-voert-druk-op-in-ai-ruzie-met-anthropic)
-  > Het Amerikaanse defensieministerie is verwikkeld in een conflict met AI-bedrijf Anthropic over de vraag wie bepaalt waarvoor de technologie mag...
-- [Mediahuis draait al drie jaar min of meer stabiel](https://fd.nl/bedrijfsleven/1587556/mediahuis-heeft-weer-een-jaar-van-stilstand-achter-de-rug)
-  > Het van oorsprong Belgische mediabedrijf groeit in nevenactiviteiten zoals marktplaatsen en radio, maar draait voor het derde jaar stabiel in de...
+- [Jumbo keert familie Van Eerd €72 mln dividend uit ondanks ‘uitdagend jaar’](https://fd.nl/bedrijfsleven/1587641/jumbo-keert-familie-van-eerd-72mln-dividend-uit-ondanks-uitdagend-jaar)
+  > Uitdagende financiën waren in 2024 nog reden om het dividend over te slaan. De nettowinst van het supermarktconcern uit Veghel steeg vorig jaar...
+- [Bestuur ING gaat meer verdienen in 2026](https://fd.nl/financiele-markten/1587653/bestuur-ing-gaat-meer-verdienen-in-2026)
+  > Salarisverhogingen liggen gevoelig bij ING na de salarisrel rond de toenmalige ceo Ralph Hamers.
+- [Ambtenaren kondigen staking aan tegen de nullijn](https://fd.nl/samenleving/1587564/ambtenaren-kondigen-staking-aan-tegen-de-nullijn)
+  > De staking volgende week dinsdag zal onder meer ambassades, gevangenissen, DUO en de Belastingdienst treffen, waarschuwt de FNV.
+- [Windvaan Warsh](https://fd.nl/financiele-markten/1587654/windvaan-warsh)
+  > De beoogde nieuwe Fed-voorzitter Kevin Warsh is geen havik of duif, maar een windvaan, vindt columnist Corné van Zeijl.
+- [Hoge AI-verwachtingen kosten Baidu miljarden aan beurswaarde](https://fd.nl/financiele-markten/1587561/hoge-ai-verwachtingen-kosten-baidu-miljarden-aan-beurswaarde)
+  > Twijfels over de opbrengsten van AI-projecten en dalende advertentie-inkomsten zetten de beurskoers van Baidu onder druk. De koersontwikkeling wijst...
 
 ### Meest gelezen
 
