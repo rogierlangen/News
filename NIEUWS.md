@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-02-2026 om 08:03*
+*Laatst bijgewerkt: 26-02-2026 om 11:27*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Ruzie tussen het Pentagon en een AI-bedrijf: waarvoor mag je AI inzetten?](https://nos.nl/l/2604046)
-  > Waar ligt de rode lijn voor het inzetten van AI in het leger? De Amerikaanse minister van Defensie Hegseth en het AI-bedrijf Anthropic hebben er een...
-- [Kustgemeenten willen verplichte verzekering na vastlopen kotter](https://nos.nl/l/2604045)
-  > De Noord-Hollandse kustgemeenten willen een verplichte aansprakelijkheidsverzekering voor schepen onder de 300 ton. Zo kan snel worden ingegrepen als...
-- [Gesprekken tussen VS en Iran onder dreiging van Amerikaanse aanval](https://nos.nl/l/2604041)
-  > Vertegenwoordigers van de VS en Iran komen vandaag in Genève bij elkaar voor indirecte onderhandelingen. Die vinden plaats onder dreiging van een...
-- [Drie keer brandstichting bij kerken Ede in week tijd](https://nos.nl/l/2604039)
-  > In Ede is in een week tijd bij drie kerken brandgesticht. De politie onderzoekt of er een verband is en vraagt getuigen zich te melden.
-        De...
-- [Geven kiezers uit deze Engelse voorstad wankelende Starmer laatste zetje?](https://nos.nl/l/2604033)
-  > Krijgt premier Starmer een nieuwe duw richting de afgrond? Kiezers in een kiesdistrict in Zuid-Manchester gaan vandaag naar de stembus voor een...
+- [Onderzoek naar fataal brugongeluk Lochem: onderlinge controle ontbrak](https://nos.nl/l/2604081)
+  > Bij het fatale brugongeluk twee jaar geleden bij Lochem zijn de risico's onvoldoende in kaart gebracht. Dat is de conclusie van de Onderzoeksraad...
+- [Arriva verlaagt prijs treinkaartjes in Groningen en Friesland](https://nos.nl/l/2604078)
+  > Regionale vervoerder Arriva verlaagt op 1 maart de prijzen van de treinkaartjes in Groningen en Friesland.
+        In feite wordt daarmee de...
+- [ACM ziet geen concurrentieprobleem bij overname bedrijf achter DigiD](https://nos.nl/l/2604077)
+  > De Autoriteit Consument & Markt (ACM) ziet geen concurrentieproblemen ontstaan door de overname van Solvinity, de leverancier van DigiD, door het...
+- [Oliver 'Power' Grant overleden, hielp Wu-Tang uitbouwen tot zakenimperium](https://nos.nl/l/2604076)
+  > De Amerikaanse zakenman Oliver 'Power' Grant is op 52-jarige leeftijd overleden. Hij hielp in de jaren 90 het hiphopcollectief Wu-Tang Clan op weg en...
+- [Ook in hoger beroep geen cel voor Belgische student na verkrachting](https://nos.nl/l/2604075)
+  > Een Belgische student uit Leuven heeft ook in hoger beroep geen celstraf gekregen voor de verkrachting van een medestudente. De uitspraak is daarmee...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Kabinet start dit jaar met onafhankelijke metingen om jarenlang wantrouwen rond industrie te doorbreken](https://www.ad.nl/binnenland/kabinet-start-dit-jaar-met-onafhankelijke-metingen-om-jarenlang-wantrouwen-rond-industrie-te-doorbreken~ae03d5db/)
-  > Het kabinet begint met proeven voor onafhankelijke metingen rond zware industrie. Het huidige systeem, waarbij bedrijven hun eigen controlebureaus...
-- [Walid Regragui vertrekt als bondscoach van Marokko, Juventus wil ondanks CL-dreun door met trainer](https://www.ad.nl/voetbal/walid-regragui-vertrekt-als-bondscoach-van-marokko-juventus-wil-ondanks-cl-dreun-door-met-trainer~a79d4309/)
+- [Zieke Wout van Aert meldt zich af voor Omloop: ‘Grote tegenvaller voor mij’](https://www.ad.nl/wielrennen/zieke-wout-van-aert-meldt-zich-af-voor-omloop-grote-tegenvaller-voor-mij~abe8f717/)
+  > Wout van Aert heeft zich afgemeld voor de Omloop Het Nieuwsblad. De 31-jarige Belg is ziek en moet de eerste voorjaarsklassieker aan zich voorbij...
+- [Real Madrid verbant lid na nazigroet voor duel met Benfica](https://www.ad.nl/voetbal/real-madrid-verbant-lid-na-nazigroet-voor-duel-met-benfica~adbee8888/)
+  > Real Madrid heeft een lid van de club verbannen omdat diegene een nazigroet zou hebben gebracht rond het Champions League-duel met Benfica van...
+- [Dick Schreuder en Ajax lijken droomhuwelijk, maar in hoeverre is hij daadwerkelijk in beeld bij Jordi Cruijff?](https://www.ad.nl/voetbal/dick-schreuder-en-ajax-lijken-droomhuwelijk-maar-in-hoeverre-is-hij-daadwerkelijk-in-beeld-bij-jordi-cruijff~a0c1df74/)
+  > ‘Jordi Cruijff moet Dick Schreuder halen’. Al dagen wordt de trainer van NEC hevig gelinkt aan Ajax. Maar in hoeverre is daar ook serieus sprake van...
+- [Cristiano Ronaldo koopt aandelen in Spaanse club, Walid Regragui vertrekt als bondscoach van Marokko](https://www.ad.nl/voetbal/cristiano-ronaldo-koopt-aandelen-in-spaanse-club-walid-regragui-vertrekt-als-bondscoach-van-marokko~a79d4309/)
   > De transfermarkt in Nederland en de grootste competities is gesloten. Er zijn nog slechts een paar landen waar spelers naartoe kunnen. Ook zullen er...
-- [Vrachtwagenchauffeur Martin bestolen na nep-controle in Frankrijk: ‘Stap nooit zomaar uit’](https://www.ad.nl/binnenland/vrachtwagenchauffeur-martin-bestolen-na-nep-controle-in-frankrijk-stap-nooit-zomaar-uit~a43fc760/)
-  > ‘Loop maar even mee’, kreeg Martin Paauwe te horen nadat hij zijn truck verkeerd had geparkeerd en er van zijn bed werd gelicht. Nietsvermoedend liep...
-- [Wekker zetten voor start F1-seizoen: zo vroeg komt Max Verstappen in actie in Melbourne](https://www.ad.nl/formule-1/wekker-zetten-voor-start-f1-seizoen-zo-vroeg-komt-max-verstappen-in-actie-in-melbourne~a71841049/)
-  > Het nieuwe Formule 1-seizoen gaat na zes testdagen in Bahrein nu echt beginnen. Max Verstappen hoopt met zijn nieuwe Red Bull Racing het...
-- [‘Adviseurs Trump zien liever Israël als eerste aanvallen’, VS en Iran praten vandaag in Génève](https://www.ad.nl/buitenland/adviseurs-trump-zien-liever-israel-als-eerste-aanvallen-vs-en-iran-praten-vandaag-in-geneve~ac528ac3/)
-  > Topadviseurs van de Amerikaanse president Donald Trump hebben liever dat Israël Iran eerst aanvalt, voordat de Amerikanen toeslaan. Dat zeggen twee...
+- [Met dat ene, niet zo nette woord stelde Eva Jinek dé vraag die heel Nederland al dagen door het hoofd speelt](https://www.ad.nl/binnenland/met-dat-ene-niet-zo-nette-woord-stelde-eva-jinek-de-vraag-die-heel-nederland-al-dagen-door-het-hoofd-speelt~af481f20/)
+  > Het verhaal van deze jonge, sterke vrouw kan niet genoeg verteld worden. Eva Jinek stelde haar de vraag die heel Nederland al dagen heeft. Maar het...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [FlatexDeGiro voert winst fors op, verwacht verdere groei in 2026](https://fd.nl/financiele-markten/1587625/flatexdegiro-voert-winst-fors-op-verwacht-verdere-groei-in-2026)
-  > Onlinebroker verdiende vorig jaar bijna 44% meer dankzij een stijging in klanten en transacties.
-- [Rolls-Royce gaat voor miljarden aandelen inkopen](https://fd.nl/bedrijfsleven/1587630/rolls-royce-gaat-voor-miljarden-aandelen-inkopen)
-  > De Britse bouwer van vliegtuigmotoren boekt een hogere winst en scherpt de financiële doelstellingen aan.
-- [De standaardformules van het vertrekjargon](https://fd.nl/samenleving/1587399/de-standaardformules-van-het-vertrekjargon)
-  > Femmetje de Wind wordt wantrouwig als ze op LinkedIn de standaardzinnen leest die mensen schrijven als ze niet geheel vrijwillig hun baan verlaten.
-- [Europese voetbalclubs boeken gezamenlijk meer dan €1 mrd verlies](https://fd.nl/bedrijfsleven/1587550/europese-voetbalclubs-boeken-gezamenlijk-meer-dan-1-mrd-verlies)
-  > Europese voetbalclubs draaien ondanks een gezamenlijke recordomzet een verlies.
-- [Omzet en winstmarge Aalberts zakken verder weg](https://fd.nl/bedrijfsleven/1587629/omzet-en-winstmarge-aalberts-zakt-verder-weg)
-  > Aalberts was bovendien in 2025 ruim €84 mln kwijt aan eenmalige kosten. Het bedrijf verwacht een verbetering in 2026.
+- [De ultieme insider van het CDA treedt in een toppositie op de voorgrond](https://fd.nl/politiek/1587632/de-ultieme-insider-van-het-cda-treedt-in-een-toppositie-op-de-voorgrond)
+  > De nieuwe CDA-vicepremier is bij het grote publiek onbekend, maar in Den Haag is hij dé man achter de schermen. ‘Eigenlijk werken we al jaren...
+- [‘Samenkabinet’ Jetten koerst af op breuk met polder over AOW](https://fd.nl/politiek/1587638/samenkabinet-jetten-koerst-af-op-breuk-met-polder-over-aow)
+  > Volgens premier Rob Jetten is er wel degelijk ruimte om de voorgenomen verhoging van de pensioenleeftijd aan te passen.
+- [Bekritiseerde vermogens­aanwasbelasting is toch echt de beste keuze voor box 3](https://fd.nl/opinie/1587583/de-vermogensaanwasbelasting-krijgt-veel-kritiek-maar-is-beste-keuze-voor-box-3)
+  > Minister Heinen is bang voor kritiek op de Wet werkelijk rendement box 3, maar moet niet zwichten voor de gecreëerde druk. Een...
+- [‘Hackersgroep zet gegevens honderdduizenden Odido-klanten op darkweb’](https://fd.nl/tech-en-innovatie/1587637/hackersgroep-lekt-gegevens-honderdduizenden-odido-klanten)
+  > Hackersgroep ShinyHunters zegt dat het de komende zestien dagen nog veel meer gestolen gegevens van Odido-klanten naar buiten brengt.
+- [‘Trumps strategie: Zelensky zo ver krijgen dat hij doet wat Poetin wil’](https://fd.nl/politiek/1587503/de-oekraine-oorlog-had-al-voorbij-kunnen-zijn-als-trump-net-zoveel-druk-op-poetin-had-gezet-als-nu-op-iran)
+  > Volgens Michael McFaul, voormalig Amerikaans ambassadeur in Rusland, ziet Donald Trump de VS niet als een verdediger van democratische waarden en een...
 
 ### Meest gelezen
 
