@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-02-2026 om 18:04*
+*Laatst bijgewerkt: 26-02-2026 om 21:00*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Stropers betrapt in Zeeland tijdens het opvissen van 158 kilo tapijtschelpen](https://nos.nl/l/2604135)
-  > Twee mannen zijn maandag in Zeeland betrapt op het illegaal vangen van 158 kilo tapijtschelpen. De stropers werden staande gehouden en er is proces...
-- [EU-subsidie mag voortaan gebruikt worden om abortus uit te voeren](https://nos.nl/l/2604132)
-  > Voorvechters voor vrouwenrechten hebben met een burgerinitiatief een belangrijke slag geslagen. EU-subsidies mogen voortaan worden gebruikt om...
-- [Denen eerder naar de stembus vanwege Groenland](https://nos.nl/l/2604129)
-  > De Deense premier Mette Frederiksen schrijft vervroegde verkiezingen uit voor volgende maand. De verkiezingen zouden pas aan het eind van het jaar...
-- [Duitse veiligheidsdienst mag AfD voorlopig niet extreemrechts noemen](https://nos.nl/l/2604124)
-  > De Duitse binnenlandse veiligheidsdienst BfV mag de politieke partij Alternative für Deutschland voorlopig niet bestempelen en behandelen als...
-- [Orbán zet relatie met Oekraïne verder op scherp in aanloop naar verkiezingen](https://nos.nl/l/2604122)
-  > Dat de Hongaarse premier Orbán Moskou verkiest boven Kyiv was al lang duidelijk, maar de afgelopen dagen heeft de relatie tussen de twee buurlanden...
+- [Hillary Clinton tegenover commissie: ik wist niets van misdaden Epstein](https://nos.nl/l/2604146)
+  > In de VS wordt voormalig minister van Buitenlandse Zaken Hillary Clinton gehoord over haar banden met Jeffrey Epstein. Tegenover de parlementaire...
+- [Groepen demonstranten kort tegenover elkaar bij extreemrechtse herdenking Utrecht](https://nos.nl/l/2604144)
+  > In de binnenstad van Utrecht hebben extreemrechtse en extreemlinkse demonstranten vanavond kort tegenover elkaar gestaan.
+        De extreemrechtse...
+- [Iran roept nu ook Nederlandse ambassadeur op het matje om bagage-incident](https://nos.nl/l/2604143)
+  > Iran heeft de Nederlandse ambassadeur Emiel de Bont in Teheran op het matje geroepen. Dat meldt het officiële Iraanse persbureau IRNA. Iran liet "een...
+- [Kun je checken of je Odido-data gelekt zijn en drie andere vragen](https://nos.nl/l/2604142)
+  > De afgelopen dagen is telecombedrijf Odido veel in het nieuws geweest vanwege de gegevens die gehackt zijn door de hackergroep ShinyHunters....
+- [Rijksambtenaren leggen dinsdag hun werk neer](https://nos.nl/l/2604137)
+  > Volgende week dinsdag leggen Rijksambtenaren hun werk voor 24 uur neer. Na verschillende kleinere acties de afgelopen tijd is deze staking de...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Giroud kopt Lille op voorsprong tegen Rode Ster, Celtic slaat na 30 seconden toe in Stuttgart](https://www.ad.nl/voetbal/giroud-kopt-lille-op-voorsprong-tegen-rode-ster-celtic-slaat-na-30-seconden-toe-in-stuttgart~ab61e416/)
-  > Vanavond om 18.45 uur en 21.00 uur staan er in totaal acht wedstrijden op het programma in de Europa League. Zo gaat Celtic op bezoek bij VfB...
-- [Kan een nieuwe crisis opdoemen, zoals een topbankier uit de VS waarschuwt? ‘De kansen daarop nemen toe’](https://www.ad.nl/tech/kan-een-nieuwe-crisis-opdoemen-zoals-een-topbankier-uit-de-vs-waarschuwt-de-kansen-daarop-nemen-toe~a4f66948/)
-  > Staan we aan de vooravond van een nieuwe financiële crisis? De jubelstemming op de markten lijkt verdacht veel op die van de megacrash van 2008,...
-- [Ook dj Charlotte de Witte reageert op ‘techno files’: ‘Laten we allemaal onze verantwoordelijkheid nemen’](https://www.ad.nl/show/ook-dj-charlotte-de-witte-reageert-op-techno-files-laten-we-allemaal-onze-verantwoordelijkheid-nemen~a5a5a6e0/)
-  > De Belgische technokoningin Charlotte de Witte (33) heeft voor het eerst gereageerd op het nieuws over vermeend seksueel wangedrag door enkele...
-- [Hillary Clinton getuigt over Epstein: ‘Ik heb geen informatie en heb hem nooit ontmoet’](https://www.ad.nl/buitenland/hillary-clinton-getuigt-over-epstein-ik-heb-geen-informatie-en-heb-hem-nooit-ontmoet~ae67dd9c/)
-  > Voormalig first lady Hillary Clinton zegt geen informatie te hebben over de misdaden van de overleden zedendelinquent Jeffrey Epstein. ‘Ik kan me...
-- [PSV slaat slag en houdt groot Belgisch talent Noah Fernandez (18) binnenboord](https://www.ad.nl/voetbal/psv-slaat-slag-en-houdt-groot-belgisch-talent-noah-fernandez-18-binnenboord~a0a1278b/)
-  > PSV heeft het contract van de 18-jarige middenvelder Noah Fernandez verlengd. De middenvelder ging akkoord met de aanbieding die de club heeft...
+- [Máxima prikt vorkje mee tijdens iftar in Scheveningen: ‘Ze voelde vanavond echt als mijn koningin’](https://www.ad.nl/show/maxima-prikt-vorkje-mee-tijdens-iftar-in-scheveningen-ze-voelde-vanavond-echt-als-mijn-koningin~a56231ed/)
+  > Het was een hart onder de riem voor de Haagse moslims bij de iftar in het Kurhaus donderdagavond: koningin Máxima kwam een vorkje meeprikken. Dat ze...
+- [Fenerbahçe jaagt op comeback tegen Nottingham Forest, Dinamo Zagreb op voorsprong na flater Genk](https://www.ad.nl/voetbal/fenerbahce-jaagt-op-comeback-tegen-nottingham-forest-dinamo-zagreb-op-voorsprong-na-flater-genk~ab61e416/)
+  > Celtic begon voortvarend door na 30 seconden te scoren in Stuttgart, maar wist die goede start geen vervolg te geven. Het bleef bij 0-1, waardoor de...
+- [Peer Koopmeiners doet het als broer Teun tijdens WK 2022: AZ virtueel in volgende ronde](https://www.ad.nl/voetbal/peer-koopmeiners-doet-het-als-broer-teun-tijdens-wk-2022-az-virtueel-in-volgende-ronde~ac46b67a/)
+  > AZ slikte vorige week een pijnlijke 1-0 nederlaag tegen het Armeense FC Noah, waardoor uitschakeling in de tussenronde van de Conference League...
+- [Merel Conijn hekelt KNSB: ‘Ze hebben mijn kans afgepakt om me te plaatsen voor het WK’](https://www.ad.nl/schaatsen/merel-conijn-hekelt-knsb-ze-hebben-mijn-kans-afgepakt-om-me-te-plaatsen-voor-het-wk~a51403fb/)
+  > Schaatsster Merel Conijn is niet tevreden over de ‘bijzondere keuze’ die de KNSB heeft gemaakt met betrekking tot de aanwijsplekken voor het WK...
+- [LIVE Premier League Darts | Herstelde Van Gerwen, Littler én Humphries verliezen meteen: nu Van Veen in actie](https://www.ad.nl/darts/live-premier-league-darts-herstelde-van-gerwen-littler-en-humphries-verliezen-meteen-nu-van-veen-in-actie~a3535309/)
+  > De Premier League Darts gaat vanavond verder met de vierde speelavond. In de Noord-Ierse hoofdstad Belfast spelen Michael van Gerwen, die terug in na...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Jumbo keert familie Van Eerd €72 mln dividend uit ondanks ‘uitdagend jaar’](https://fd.nl/bedrijfsleven/1587641/jumbo-keert-familie-van-eerd-72mln-dividend-uit-ondanks-uitdagend-jaar)
-  > Uitdagende financiën waren in 2024 nog reden om het dividend over te slaan. De nettowinst van het supermarktconcern uit Veghel steeg vorig jaar...
-- [Bestuur ING gaat meer verdienen in 2026](https://fd.nl/financiele-markten/1587653/bestuur-ing-gaat-meer-verdienen-in-2026)
-  > Salarisverhogingen liggen gevoelig bij ING na de salarisrel rond de toenmalige ceo Ralph Hamers.
-- [Ambtenaren kondigen staking aan tegen de nullijn](https://fd.nl/samenleving/1587564/ambtenaren-kondigen-staking-aan-tegen-de-nullijn)
-  > De staking volgende week dinsdag zal onder meer ambassades, gevangenissen, DUO en de Belastingdienst treffen, waarschuwt de FNV.
-- [Windvaan Warsh](https://fd.nl/financiele-markten/1587654/windvaan-warsh)
-  > De beoogde nieuwe Fed-voorzitter Kevin Warsh is geen havik of duif, maar een windvaan, vindt columnist Corné van Zeijl.
-- [Hoge AI-verwachtingen kosten Baidu miljarden aan beurswaarde](https://fd.nl/financiele-markten/1587561/hoge-ai-verwachtingen-kosten-baidu-miljarden-aan-beurswaarde)
-  > Twijfels over de opbrengsten van AI-projecten en dalende advertentie-inkomsten zetten de beurskoers van Baidu onder druk. De koersontwikkeling wijst...
+- [Thales, Neways en NXP gaan de boer op met hun slimme microchip voor scherpe dronedetectie](https://fd.nl/bedrijfsleven/1587636/thales-neways-en-nxpgaan-de-boer-op-met-hun-slimme-microchip-voor-scherpe-dronedetectie)
+  > Nederlandse defensietechbedrijven gaan langjarig samenwerken om een sterk ecosysteem voor ‘counterdrones’ uit te bouwen. Hun vinding maakt Nederland...
+- [Stellantis lijdt eerste jaarverlies, toch stijgt aandeel met 4%](https://fd.nl/financiele-markten/1587572/stellantis-lijdt-eerste-jaarverlies-toch-stijgt-aandeel-met-4)
+  > In totaal werd €25,4 mrd afgewaardeerd, vooral door het terugschroeven van de elektrische ambities.
+- [Meer dan alleen geld nodig voor energietransitie](https://fd.nl/opinie/1587640/meer-dan-alleen-geld-nodig-voor-energietransitie)
+  > De weg naar een duurzame energievoorziening kent ook andere hindernissen: lange procedures, personeelstekort en achterblijvende vraag naar groene...
+- [Brits douanepersoneel beschuldigd van bestelen bootvluchtelingen](https://fd.nl/samenleving/1587655/brits-douanepersoneel-beschuldigd-van-bestelen-bootvluchtelingen)
+  > Ambtenaren zouden meerdere tonnen hebben gestolen van vluchtelingen die illegaal het Kanaal overstaken.
+- [Odido betaalt hackers niet, en dat is maar goed ook, zeggen experts](https://fd.nl/bedrijfsleven/1587566/experts-begrijpen-keuze-odido-om-geen-losgeld-te-betalen-aan-hackers)
+  > Het telecombedrijf heeft geweigerd losgeld te betalen aan een hackersgroep. Experts zijn het erover eens dat Odido een goed besluit nam.
 
 ### Meest gelezen
 
