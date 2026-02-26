@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-02-2026 om 23:17*
+*Laatst bijgewerkt: 26-02-2026 om 05:11*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Dictator Kim houdt tijdens partijcongres deur op kier voor ontmoeting met Trump](https://nos.nl/l/2604027)
+  > De Noord-Koreaanse dictator Kim Jong-un heeft tijdens het partijcongres van de Noord-Koreaanse Arbeiderspartij de mogelijkheid opengehouden voor een...
+- [Dodental na extreme regenval in zuidwesten van Brazilië loopt op](https://nos.nl/l/2604026)
+  > Het dodental als gevolg van de hevige regenval in de zuidoostelijke Braziliaanse staat Minas Gerais is opgelopen tot zeker 46. Ook worden nog zeker...
 - [NASA-astronaut maakt bekend: noodterugkeer uit ISS was voor mij](https://nos.nl/l/2604023)
   > De Amerikaanse astronaut Mike Fincke heeft bekendgemaakt er voor hem vorige maand een noodterugkeer vanuit ruimtestation ISS werd georganiseerd. Wat...
 - [Amelie Lens en andere vrouwelijke dj's: te weinig aandacht voor wangedrag](https://nos.nl/l/2604016)
   > De toonaangevende dj Amelie Lens heeft gereageerd op het nieuws dat een aantal mannelijke collega's zich seksueel grensoverschrijdend zouden hebben...
 - [Afgelopen jaar 129 journalisten gedood, merendeel door Israël](https://nos.nl/l/2604015)
   > Nog nooit zijn er zo veel journalisten gedood als afgelopen jaar. De onafhankelijke organisatie CPJ (Comité ter Bescherming van Journalisten)...
-- [Spaanse coupplegers noemden koning 'doelwit dat uitgeschakeld moest worden'](https://nos.nl/l/2604013)
-  > Had de toenmalige Spaanse koning Juan Carlos I een rol in de couppoging van 1981? Daarover deden de afgelopen jaren veel verhalen en theorieën de...
-- [Cuba: vier opvarenden van Amerikaanse speedboot gedood](https://nos.nl/l/2604009)
-  > De Cubaanse autoriteiten zeggen dat grenswachten vier opvarenden van een Amerikaanse boot hebben gedood. Zes opvarenden zouden gewond zijn geraakt.
- ...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Galatasaray komt ongekende comeback van tiental Juventus in verlenging te boven, PSG door ondanks goal Jordan Teze](https://www.ad.nl/voetbal/galatasaray-komt-ongekende-comeback-van-tiental-juventus-in-verlenging-te-boven-psg-door-ondanks-goal-jordan-teze~a11b7d2a/)
-  > Galatasaray heeft ondanks een ongekende comeback van het tiental van Juventus de achtste finales bereikt. De Turkse club besliste het tweeluik in de...
-- [Machtigste bankier ter wereld waarschuwt voor financiële crisis: ‘Mensen doen weer domme dingen’](https://www.ad.nl/economie/machtigste-bankier-ter-wereld-waarschuwt-voor-financiele-crisis-mensen-doen-weer-domme-dingen~ace0ada0/)
-  > Is de financiële wereld zijn verstand aan het verliezen? Volgens Jamie Dimon, topman van de grootste bank van de Verenigde Staten, moeten we ons...
-- [Vinícius Júnior neemt sportieve wraak en helpt Real Madrid met winnende treffer opnieuw langs Benfica](https://www.ad.nl/voetbal/vinicius-junior-neemt-sportieve-wraak-en-helpt-real-madrid-met-winnende-treffer-opnieuw-langs-benfica~a7e2a91e/)
-  > Real Madrid heeft mede dankzij de veelbesproken Vinícius Júnior de achtste finale van de Champions League bereikt. Na de zege in Lissabon (0-1) was...
-- [Techno-dj Amelie Lens roept mannen op om hun verantwoordelijkheid te nemen: ‘Stop met het beschermen van je vrienden’](https://www.ad.nl/show/techno-dj-amelie-lens-roept-mannen-op-om-hun-verantwoordelijkheid-te-nemen-stop-met-het-beschermen-van-je-vrienden~aa6ad3b4/)
-  > De bekendste techno-dj ter wereld Amelie Lens (35) heeft gereageerd op de zogenoemde ‘techno files’, waarbij verschillende dj’s online beschuldigd...
-- [AH-moeder Ahold Delhaize wil bonussen voor top fors verhogen](https://www.ad.nl/economie/ah-moeder-ahold-delhaize-wil-bonussen-voor-top-fors-verhogen~ad5ae627/)
-  > Winkelconcern Ahold Delhaize wil de maximale bonussen voor topbestuurders fors verhogen, staat in een voorstel voor de aanstaande...
+- [Gepest, alleen en troost zoekend bij een knuffel, waarom het verhaal van aapje Punch ons zo raakt: ‘Dit komt zo uit Disney’](https://www.ad.nl/buitenland/gepest-alleen-en-troost-zoekend-bij-een-knuffel-waarom-het-verhaal-van-aapje-punch-ons-zo-raakt-dit-komt-zo-uit-disney~a0e2fbf3/)
+  > De wereld is al weken in de ban van Punch, een babyaapje dat verstoten werd door zijn moeder, gepest wordt door andere apen en dan maar troost zoekt...
+- [‘Wopke Hoekstra, wij rekenen op u’: Brussel velt oordeel over gevoelig abortusplan](https://www.ad.nl/binnenland/wopke-hoekstra-wij-rekenen-op-u-brussel-velt-oordeel-over-gevoelig-abortusplan~acbc140e/)
+  > Sommigen spreken van een doorbraak, anderen vinden het een gruwel. Het plan om vrouwen in de hele EU toegang te geven tot abortuszorg zorgt in...
+- [Hof van beroep Hongkong vernietigt een van de veroordelingen Jimmy Lai](https://www.ad.nl/buitenland/hof-van-beroep-hongkong-vernietigt-een-van-de-veroordelingen-jimmy-lai~a70bdf6a/)
+  > Het hof van beroep in Hongkong heeft de veroordeling voor fraude van mediamagnaat Jimmy Lai (78) door een lager hof vernietigd.
+- [AI-app van Elon Musk laat Tweede Kamer binnen 10 seconden de Hitlergroet brengen: ‘Holy crap’](https://www.ad.nl/tech/ai-app-van-elon-musk-laat-tweede-kamer-binnen-10-seconden-de-hitlergroet-brengen-holy-crap~a113cb54/)
+  > De Tweede Kamer die de Hitlergroet brengt en ‘Mein Führer’ scandeert, of een nazi-Donald Duck die een Joods meisje uitscheldt. De nieuwe versie van...
+- [Voetbalpodcast | ‘Ik had een iets hardere straf voor Ajax verwacht’](https://www.ad.nl/voetbal/voetbalpodcast-ik-had-een-iets-hardere-straf-voor-ajax-verwacht~ac8603a9/)
+  > Een bijna remontada in de Champions League gisteravond. Juventus kwam met tien man op een 3-0 voorsprong en dwong een verlenging af. Maar daarin...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Cubaanse kustwacht doodt vier opvarenden van Amerikaanse speedboot](https://fd.nl/politiek/1587624/cubaanse-kustwacht-doodt-vier-opvarenden-van-amerikaanse-speedboot)
-  > Cuba stelt dat het vaartuig het vuur als eerste zou hebben geopend op een Cubaans grenswachtschip.
-- [Amerikaanse beurzen kleuren groen in afwachting van Nvidia-resultaten](https://fd.nl/financiele-markten/1587547/amerikaanse-beurzen-kleuren-groen-in-afwachting-van-nvidia-resultaten)
-  > De brede S&P-500 index steeg 0,81%, de technologiebeurs Nasdaq noteerde 1,26% hoger en de industriële Dow Jones index nam met 0,63% toe.
-- [Nestlé verhoogt bonusgrens voor topbestuurders naar 150%](https://fd.nl/bedrijfsleven/1587607/nestle-verhoogt-bonusgrens-voor-topbestuurders-naar-150)
-  > ‘Ondermaats’ presterende werknemers kunnen ondertussen maximaal 50% van hun bonusdoelen krijgen.
-- [Engie neemt UK Power Networks over voor ruim €12 mrd](https://fd.nl/bedrijfsleven/1587609/engie-neemt-uk-power-networks-over-voor-ruim12-mrd)
-  > Engie neemt UK Power Networks over voor ruim €12 mrd en versterkt daarmee zijn positie in het VK, terwijl het zijn afhankelijkheid van gasnetwerken...
-- [Trump wil technologiebedrijven de rekening voor AI-elektriciteit laten betalen](https://fd.nl/tech-en-innovatie/1587608/trump-wil-technologiebedrijven-de-rekening-voor-ai-elektriciteit-laten-betalen)
-  > President Donald Trump wil dat grote techbedrijven vrijwillig toezeggen de stroomvoorziening voor hun AI-datacenters te betalen, om stijgende...
+- [Marguerite Bérard: ‘Het ergste wat je als ceo kunt doen is geen keuzes maken’](https://fd.nl/financiele-markten/1587588/marguerite-berard-het-ergste-wat-je-als-ceo-kunt-doen-is-geen-keuzes-maken)
+  > De bestuursvoorzitter van ABN Amro heeft in haar eerste jaar de toon gezet met een forse reorganisatie, onderdeel van een ambitieus groeiplan. Een...
+- [Wie lekker wil ruiken moet betalen](https://fd.nl/samenleving/1587291/wie-lekker-wil-ruiken-moet-betalen)
+  > Meer dan 200 euro voor een parfum is geen uitzondering meer. En die forse prijzen lijken de consument vooralsnog niet te hinderen. Maar waarom zijn...
+- [Twist in box 3-rel: minister krabbelt terug](https://fd.nl/economie/1587601/twist-in-box-3-rel-minister-krabbelt-terug)
+  > Vandaag in Dagkoers: opvallende ontwikkelingen in de rel rond box 3. Cijfers over de woningmarkt laten een somber beeld zien over internationale...
+- [Waanidee](https://fd.nl/opinie/1587606/waanidee)
+  > Is het überhaupt mogelijk, wat Trump tijdens de State of the Union beweerde, vraagt FD-columnist Anna Dijkman zich af. Kunnen invoerheffingen de...
+- [Een VVV-bon voor rokende zwangeren – een nieuwe variant op de nicotinepleister?](https://fd.nl/opinie/1587358/een-vvv-bon-voor-rokende-zwangeren-een-nieuwe-variant-op-de-nicotinepleister)
+  > Volgens de ijzeren wil van het preventisme kunnen we beter nu geld uitgeven dan later – ongeacht of die begroting rondkomt of niet. Maar ja, wie weet...
 
 ### Meest gelezen
 
