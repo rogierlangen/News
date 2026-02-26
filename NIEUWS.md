@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-02-2026 om 11:27*
+*Laatst bijgewerkt: 26-02-2026 om 14:41*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Onderzoek naar fataal brugongeluk Lochem: onderlinge controle ontbrak](https://nos.nl/l/2604081)
-  > Bij het fatale brugongeluk twee jaar geleden bij Lochem zijn de risico's onvoldoende in kaart gebracht. Dat is de conclusie van de Onderzoeksraad...
-- [Arriva verlaagt prijs treinkaartjes in Groningen en Friesland](https://nos.nl/l/2604078)
-  > Regionale vervoerder Arriva verlaagt op 1 maart de prijzen van de treinkaartjes in Groningen en Friesland.
-        In feite wordt daarmee de...
-- [ACM ziet geen concurrentieprobleem bij overname bedrijf achter DigiD](https://nos.nl/l/2604077)
-  > De Autoriteit Consument & Markt (ACM) ziet geen concurrentieproblemen ontstaan door de overname van Solvinity, de leverancier van DigiD, door het...
-- [Oliver 'Power' Grant overleden, hielp Wu-Tang uitbouwen tot zakenimperium](https://nos.nl/l/2604076)
-  > De Amerikaanse zakenman Oliver 'Power' Grant is op 52-jarige leeftijd overleden. Hij hielp in de jaren 90 het hiphopcollectief Wu-Tang Clan op weg en...
-- [Ook in hoger beroep geen cel voor Belgische student na verkrachting](https://nos.nl/l/2604075)
-  > Een Belgische student uit Leuven heeft ook in hoger beroep geen celstraf gekregen voor de verkrachting van een medestudente. De uitspraak is daarmee...
+- [Pensioenfondsen opgelucht na overstap, wel zorgen over AOW-discussie](https://nos.nl/l/2604110)
+  > De trots op het gezicht van pensioenbestuurders is duidelijk zichtbaar op de bijeenkomst van de Pensioenfederatie. In het gebouw van...
+- [Man opgepakt voor rekruteren van Kenianen voor Russisch leger](https://nos.nl/l/2604108)
+  > De Keniaanse politie heeft een man opgepakt die wordt verdacht van het rekruteren van Kenianen voor het Russische leger. De 33-jarige man wordt...
+- [Partijen verwijten Jetten 'valse start' vanwege vasthouden aan AOW-maatregel](https://nos.nl/l/2604107)
+  > Verschillende oppositiepartijen vinden dat premier Jetten "een valse start" heeft gemaakt nu hij in hun ogen halsstarrig vasthoudt aan een snellere...
+- [Tweede Kamer vraagt sociale platform X na weigering nogmaals op gesprek](https://nos.nl/l/2604101)
+  > Een groot aantal partijen in de Tweede Kamer wil dat het sociale platform X op 4 maart alsnog op gesprek komt. Zij hebben een brief aan het bedrijf...
+- [NVWA waarschuwt 2400 kopers van bestrijdingsmiddel met glyfosaat](https://nos.nl/l/2604100)
+  > De Nederlandse Voedsel- en Warenautoriteit (NVWA) heeft een brief gestuurd naar ruim 2400 personen en bedrijven die illegale bestrijdingsmiddelen...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zieke Wout van Aert meldt zich af voor Omloop: ‘Grote tegenvaller voor mij’](https://www.ad.nl/wielrennen/zieke-wout-van-aert-meldt-zich-af-voor-omloop-grote-tegenvaller-voor-mij~abe8f717/)
-  > Wout van Aert heeft zich afgemeld voor de Omloop Het Nieuwsblad. De 31-jarige Belg is ziek en moet de eerste voorjaarsklassieker aan zich voorbij...
-- [Real Madrid verbant lid na nazigroet voor duel met Benfica](https://www.ad.nl/voetbal/real-madrid-verbant-lid-na-nazigroet-voor-duel-met-benfica~adbee8888/)
-  > Real Madrid heeft een lid van de club verbannen omdat diegene een nazigroet zou hebben gebracht rond het Champions League-duel met Benfica van...
-- [Dick Schreuder en Ajax lijken droomhuwelijk, maar in hoeverre is hij daadwerkelijk in beeld bij Jordi Cruijff?](https://www.ad.nl/voetbal/dick-schreuder-en-ajax-lijken-droomhuwelijk-maar-in-hoeverre-is-hij-daadwerkelijk-in-beeld-bij-jordi-cruijff~a0c1df74/)
-  > ‘Jordi Cruijff moet Dick Schreuder halen’. Al dagen wordt de trainer van NEC hevig gelinkt aan Ajax. Maar in hoeverre is daar ook serieus sprake van...
-- [Cristiano Ronaldo koopt aandelen in Spaanse club, Walid Regragui vertrekt als bondscoach van Marokko](https://www.ad.nl/voetbal/cristiano-ronaldo-koopt-aandelen-in-spaanse-club-walid-regragui-vertrekt-als-bondscoach-van-marokko~a79d4309/)
-  > De transfermarkt in Nederland en de grootste competities is gesloten. Er zijn nog slechts een paar landen waar spelers naartoe kunnen. Ook zullen er...
-- [Met dat ene, niet zo nette woord stelde Eva Jinek dé vraag die heel Nederland al dagen door het hoofd speelt](https://www.ad.nl/binnenland/met-dat-ene-niet-zo-nette-woord-stelde-eva-jinek-de-vraag-die-heel-nederland-al-dagen-door-het-hoofd-speelt~af481f20/)
-  > Het verhaal van deze jonge, sterke vrouw kan niet genoeg verteld worden. Eva Jinek stelde haar de vraag die heel Nederland al dagen heeft. Maar het...
+- [Jetten belooft niet meer over halvering veestapel te beginnen: ‘Ik wil niet op tenen trappen’](https://www.ad.nl/politiek/jetten-belooft-niet-meer-over-halvering-veestapel-te-beginnen-ik-wil-niet-op-tenen-trappen~a8654318/)
+  > Premier Rob Jetten (D66) voert een verhit debat over de voorgenomen verhoging van de AOW-leeftijd van het kabinet. Volgens oppositieleider Jesse...
+- [Israëlisch leger weer in opspraak door video: soldaten laten neergeschoten Palestijn (14) doodbloeden](https://www.ad.nl/buitenland/israelisch-leger-weer-in-opspraak-door-video-soldaten-laten-neergeschoten-palestijn-14-doodbloeden~a6881d23/)
+  > Het Israëlische leger is opnieuw in opspraak geraakt na de dood van een Palestijnse tiener op de bezette Westelijke Jordaanoever. Op een video, die...
+- [Kensington wint 3FM Award voor meest gedraaide Nederlandse nummer](https://www.ad.nl/utrecht/kensington-wint-3fm-award-voor-meest-gedraaide-nederlandse-nummer~ad9ebd21/)
+  > Met hun comeback single A Moment heeft de Utrechtse band Kensington de Schaal van Rigter gewonnen, de prijs voor meest gedraaide nummer van...
+- [De impact van Mathieu van der Poel op Omloop Het Nieuwsblad is ongekend](https://www.ad.nl/wielrennen/de-impact-van-mathieu-van-der-poel-op-omloop-het-nieuwsblad-is-ongekend~a648337a/)
+  > Nu Mathieu van der Poel meedoet in Omloop Het Nieuwsblad is alles anders. Hij is op slag de huizenhoge en enige topfavoriet. De kans op een sprint is...
+- [Stroomuitval en winkelcentrum in brand door Russische aanval met honderden drones](https://www.ad.nl/buitenland/stroomuitval-en-winkelcentrum-in-brand-door-russische-aanval-met-honderden-drones~adfb97be/)
+  > Het aantal gewonden dat in de nacht van woensdag op donderdag in Oekraïne is gevallen, is opgelopen naar 26. Kyiv telde een aanval met 420 drones....
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [De ultieme insider van het CDA treedt in een toppositie op de voorgrond](https://fd.nl/politiek/1587632/de-ultieme-insider-van-het-cda-treedt-in-een-toppositie-op-de-voorgrond)
-  > De nieuwe CDA-vicepremier is bij het grote publiek onbekend, maar in Den Haag is hij dé man achter de schermen. ‘Eigenlijk werken we al jaren...
-- [‘Samenkabinet’ Jetten koerst af op breuk met polder over AOW](https://fd.nl/politiek/1587638/samenkabinet-jetten-koerst-af-op-breuk-met-polder-over-aow)
-  > Volgens premier Rob Jetten is er wel degelijk ruimte om de voorgenomen verhoging van de pensioenleeftijd aan te passen.
-- [Bekritiseerde vermogens­aanwasbelasting is toch echt de beste keuze voor box 3](https://fd.nl/opinie/1587583/de-vermogensaanwasbelasting-krijgt-veel-kritiek-maar-is-beste-keuze-voor-box-3)
-  > Minister Heinen is bang voor kritiek op de Wet werkelijk rendement box 3, maar moet niet zwichten voor de gecreëerde druk. Een...
-- [‘Hackersgroep zet gegevens honderdduizenden Odido-klanten op darkweb’](https://fd.nl/tech-en-innovatie/1587637/hackersgroep-lekt-gegevens-honderdduizenden-odido-klanten)
-  > Hackersgroep ShinyHunters zegt dat het de komende zestien dagen nog veel meer gestolen gegevens van Odido-klanten naar buiten brengt.
-- [‘Trumps strategie: Zelensky zo ver krijgen dat hij doet wat Poetin wil’](https://fd.nl/politiek/1587503/de-oekraine-oorlog-had-al-voorbij-kunnen-zijn-als-trump-net-zoveel-druk-op-poetin-had-gezet-als-nu-op-iran)
-  > Volgens Michael McFaul, voormalig Amerikaans ambassadeur in Rusland, ziet Donald Trump de VS niet als een verdediger van democratische waarden en een...
+- [Energierekening dit jaar verder omlaag](https://fd.nl/economie/1587559/energierekening-dit-jaar-verder-omlaag)
+  > Op basis van tarieven afgelopen januari ziet het CBS de jaarlijkse energierekening met 2,5% dalen, oftewel met €52.
+- [Trumps loyalisten moeten zijn evangelie in Europa verspreiden](https://fd.nl/politiek/1587590/trumps-loyalisten-moeten-zijn-evangelie-in-europa-verspreiden)
+  > Na incidenten in België en Frankrijk ontstaat een patroon: de Amerikaanse diplomatie verandert. Toch is politiek uitdragen niet ongebruikelijk voor...
+- [Bouwbedrijf Van Gelder reserveert ‘substantieel bedrag’ voor naheffing Belastingdienst](https://fd.nl/bedrijfsleven/1587594/bouwbedrijf-van-gelder-reserveert-substantieel-bedrag-voor-naheffing-belastingdienst)
+  > De fiscus onderzoekt of Van Gelder schijnzelfstandigen inhuurde. De directie zegt tegen het FD in overleg te zijn met de fiscus over de betreffende...
+- [Pentagon voert druk op in AI-ruzie met Anthropic](https://fd.nl/tech-en-innovatie/1587557/pentagon-voert-druk-op-in-ai-ruzie-met-anthropic)
+  > Het Amerikaanse defensieministerie is verwikkeld in een conflict met AI-bedrijf Anthropic over de vraag wie bepaalt waarvoor de technologie mag...
+- [Mediahuis draait al drie jaar min of meer stabiel](https://fd.nl/bedrijfsleven/1587556/mediahuis-heeft-weer-een-jaar-van-stilstand-achter-de-rug)
+  > Het van oorsprong Belgische mediabedrijf groeit in nevenactiviteiten zoals marktplaatsen en radio, maar draait voor het derde jaar stabiel in de...
 
 ### Meest gelezen
 
