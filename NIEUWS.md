@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-02-2026 om 21:55*
+*Laatst bijgewerkt: 27-02-2026 om 22:54*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Defensieminister: militairen VS mogen niet meer naar 'woke' universiteiten](https://nos.nl/l/2604302)
+  > Na Harvard doet minister Hegseth van Defensie ook andere prestigieuze universiteiten in de VS in de ban. In een videoboodschap op sociale media zegt...
 - [Staakt-het-vuren voor reparaties bij Oekraïense kerncentrale](https://nos.nl/l/2604297)
   > Oekraïne en Rusland hebben een akkoord bereikt over een tijdelijk staakt-het-vuren rond de kerncentrale in Zaporizja, in het zuidoosten van Oekraïne....
 - [Standbeeld van 'gewone stemmer' onthuld in zes steden](https://nos.nl/l/2604281)
@@ -16,8 +18,6 @@
   > Bij een tramongeluk in de Italiaanse stad Milaan zijn twee mensen omgekomen. Tientallen anderen raakten gewond. Een van hen is er volgens de lokale...
 - [Bill Clinton: 'Als ik had geweten wat Epstein deed, had ik hem aangegeven'](https://nos.nl/l/2604277)
   > In een verklaring voor een commissie van het Congres heeft oud-president Bill Clinton gezegd dat hij geen strafbare feiten heeft gepleegd in zijn...
-- [Nederland scherpt reisadvies Israël aan vanwege spanningen Midden-Oosten](https://nos.nl/l/2604272)
-  > Het Nederlandse ministerie van Buitenlandse Zaken heeft het reisadvies voor de grensgebieden tussen Israël en Gaza, Libanon en Egypte aangepast naar...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dylan Timber terug na 763 dagen revalideren: ‘Ik heb heel veel steun gehad aan mijn broers en moeder’](https://www.ad.nl/voetbal/dylan-timber-terug-na-763-dagen-revalideren-ik-heb-heel-veel-steun-gehad-aan-mijn-broers-en-moeder~ad570e31/)
+- [Minister Heinen wil box 3-wet nog voor de zomer aanpassen: ‘Zorgen bij mensen thuis zijn niet goed’](https://www.ad.nl/politiek/minister-heinen-wil-box-3-wet-nog-voor-de-zomer-aanpassen-zorgen-bij-mensen-thuis-zijn-niet-goed~a7828022/)
+  > Minister van Financiën Eelco Heinen wil het omstreden wetsvoorstel over vermogensrendementsbelasting (box 3) nog voor de zomer in aangepaste vorm...
+- [Bemiddelaar Oman spreekt van mogelijke doorbraak in onderhandelingen Iran en VS: nooit meer uranium opslaan](https://www.ad.nl/buitenland/bemiddelaar-oman-spreekt-van-mogelijke-doorbraak-in-onderhandelingen-iran-en-vs-nooit-meer-uranium-opslaan~ac528ac3/)
+  > Volgens bemiddelaar Oman is er een mogelijke doorbraak in de onderhandelingen tussen de VS en Iran. Iran zou hebben ingestemd nooit uranium op te...
+- [FC Dordrecht grijpt naast periodetitel door gelijkspel bij Jong PSV, Willem II profiteert en gaat play-offs in](https://www.ad.nl/voetbal/fc-dordrecht-grijpt-naast-periodetitel-door-gelijkspel-bij-jong-psv-willem-ii-profiteert-en-gaat-play-offs-in~afbbd482/)
+  > Willem II heeft zich vrijdagavond geplaatst voor de play-offs om promotie. De ploeg van trainer John Stegeman won met 0-3 bij FC Emmen. Daarmee ging...
+- [Telstar maakt verschillen onderin kleiner met zege op NAC in cruciale kelderkraker](https://www.ad.nl/voetbal/telstar-maakt-verschillen-onderin-kleiner-met-zege-op-nac-in-cruciale-kelderkraker~a098380b/)
+  > Telstar heeft een belangrijke zege geboekt in de strijd tegen degradatie. In Velsen-Zuid werd nummer 16 NAC met 3-0 verslagen. Telstar, de nummer 17,...
+- [Dylan Timber terug na 763 dagen revalide­ren: ‘Ik ben mijn broers en moeder enorm dankbaar’](https://www.ad.nl/voetbal/dylan-timber-terug-na-763-dagen-revalideren-ik-ben-mijn-broers-en-moeder-enorm-dankbaar~ad570e31/)
   > Dylan Timber maakte vrijdagavond zijn comeback na meer dan twee jaar revalideren. De verdediger van VVV-Venlo bedankte na de wedstrijd zijn vier...
-- [Paramount neemt Warner Bros. over, deal ter waarde van 110 miljard dollar](https://www.ad.nl/binnenland/paramount-neemt-warner-bros-over-deal-ter-waarde-van-110-miljard-dollar~a50d42aa/)
-  > Entertainment- en mediaconcern Warner Bros. Discovery heeft ingestemd met een overname door Paramount Skydance. Volgens Paramount is de overeenkomst...
-- [Bill Clinton weet niet wie vrouw naast hem in jacuzzi was, hij ontkent seks met haar te hebben gehad](https://www.ad.nl/buitenland/bill-clinton-weet-niet-wie-vrouw-naast-hem-in-jacuzzi-was-hij-ontkent-seks-met-haar-te-hebben-gehad~ae67dd9c/)
-  > Bill Clinton wordt vrijdag verhoord over zijn banden met Jeffrey Epstein. Tot nu toe gaf hij op alle kritische vragen antwoord. Als hij wordt...
-- [Test MG HS Hybrid+: groot, ruim en rijk uitgerust](https://www.ad.nl/auto/test-mg-hs-hybrid-groot-ruim-en-rijk-uitgerust~a9ff3e26/)
-  > MG, het tot nu toe het meest succesvolle Chinese merk in Europa, speelt met de HS Hybrid+ in op de toenemende vraag naar hybrides zonder stekker.
-- [BMW roept opnieuw honderdduizenden auto’s terug wegens brandgevaar](https://www.ad.nl/auto/bmw-roept-opnieuw-honderdduizenden-autos-terug-wegens-brandgevaar~a3fefb96/)
-  > BMW roept wereldwijd opnieuw honderdduizenden auto’s terug vanwege mogelijk brandgevaar. Hierdoor zijn mogelijk 337.374 voertuigen getroffen, werd...
 
 ### Meest gelezen
 
