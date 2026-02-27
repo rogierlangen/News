@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-02-2026 om 23:04*
+*Laatst bijgewerkt: 27-02-2026 om 05:05*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Australische politie: bewijs dat resten van vermiste Belgische vrouw zijn](https://nos.nl/l/2604166)
+  > De menselijke resten die vorige maand op het Australische eiland Tasmanië werden gevonden, zijn zeer waarschijnlijk van de vermiste Belgische Céline...
+- [Spanning blijft oplopen tussen Pakistan en Afghanistan: luchtaanvallen over en weer](https://nos.nl/l/2604165)
+  > Pakistan heeft vandaag luchtaanvallen uitgevoerd op Afghaanse steden, waaronder de hoofdstad Kabul en Kandahar. Er werden onder meer militaire...
+- [Strijd om Warner Bros. lijkt beslist: Netflix trekt zich terug](https://nos.nl/l/2604164)
+  > De Amerikaanse film- en tv-producent Warner Bros. lijkt toch in handen te komen van concurrent Paramount. Netflix heeft zich namelijk teruggetrokken...
+- [Drie tieners vermist na vertrek uit Sleeuwijk, politie doet dringende oproep](https://nos.nl/l/2604163)
+  > De politie is hard op zoek naar een minderjarige jongen en twee minderjarige meisjes. De tieners zijn sinds woensdagavond vermist. Het vermoeden is...
 - [Minderheidskabinet kan 'aan de slag' maar tweedaags debat legt forse uitdagingen bloot](https://nos.nl/l/2604159)
   > De ministers en staatssecretarissen van het minderheidskabinet-Jetten kunnen na twee dagen debatteren met de Tweede Kamer "aan de slag". Maar het...
-- [Gesprekken tussen VS en Iran in Genève afgelopen, gaan volgende week verder](https://nos.nl/l/2604154)
-  > De onderhandelingen in Genève tussen Iran en de VS over het beperken van het Iraanse atoomprogramma zijn afgelopen. De Omaanse minister van...
-- [Olympische sporters toegejuicht in Heerenveen, stad flirt met organisatie 2030](https://nos.nl/l/2604152)
-  > In Heerenveen zijn de Nederlandse olympische sporters gehuldigd. Op de overvolle Oude Koemarkt hadden enkele duizenden mensen zich verzameld om de...
-- [Hillary Clinton tegenover commissie: ik wist niets van misdaden Epstein](https://nos.nl/l/2604146)
-  > In de VS wordt voormalig minister van Buitenlandse Zaken Hillary Clinton gehoord over haar banden met Jeffrey Epstein. Tegenover de parlementaire...
-- [Groepen demonstranten kort tegenover elkaar bij extreemrechtse herdenking Utrecht](https://nos.nl/l/2604144)
-  > In de binnenstad van Utrecht hebben rechtse en linkse demonstranten vanavond kort tegenover elkaar gestaan.
-        De extreemrechtse actiegroep...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Gian van Veen verliest ook derde Premier League-finale van het jaar](https://www.ad.nl/darts/gian-van-veen-verliest-ook-derde-premier-league-finale-van-het-jaar~a3535309/)
-  > Gian van Veen haalde in Belfast voor de derde keer de finale van een Premier League-avond, maar voor de derde keer won hij niet. De Nederlander...
-- [Twee opties tijdens loting: dit zijn de mogelijke tegenstanders van Liverpool, AZ en alle andere clubs](https://www.ad.nl/voetbal/twee-opties-tijdens-loting-dit-zijn-de-mogelijke-tegenstanders-van-liverpool-az-en-alle-andere-clubs~af5e6a39/)
-  > De zestien clubs die de achtste finales van de Champions League gaan spelen zijn bekend. Onder andere Real Madrid en titelhouder Paris Saint-Germain...
-- [Fenerbahçe ondanks goede start uitgeschakeld tegen Nottingham Forest in Europa League](https://www.ad.nl/voetbal/fenerbahce-ondanks-goede-start-uitgeschakeld-tegen-nottingham-forest-in-europa-league~ab61e416/)
-  > Het is Fenerbahçe niet gelukt om terug te komen na de 0-3 nederlaag tegen Nottingham Forest van vorige week. De Turken kwamen nog wel dichtbij, maar...
-- [Drie minderjarigen vermist in Sleeuwijk, politie doet urgente getuigenoproep](https://www.ad.nl/breda/drie-minderjarigen-vermist-in-sleeuwijk-politie-doet-urgente-getuigenoproep~a364a892/)
-  > Een jongen en twee meisjes zijn woensdag vermist geraakt in Sleeuwijk. Het betreffen geen broers en zussen, maar zij kennen elkaar wel. De politie...
-- [AZ naar achtste finales Conference League, Peer Koopmeiners imiteert geniale Oranje-assist van broer Teun](https://www.ad.nl/voetbal/az-naar-achtste-finales-conference-league-peer-koopmeiners-imiteert-geniale-oranje-assist-van-broer-teun~ac46b67a/)
-  > De nog enige overgebleven Nederlandse club in Europa blijft nog tenminste een rondje verder meedoen in de Conference League. Donderdagavond werd in...
+- [Jonge ‘weerinfluencer’ Jorge houdt Spanje in de ban: juiste voorspellingen met oude volksmethode](https://www.ad.nl/buitenland/jonge-weerinfluencer-jorge-houdt-spanje-in-de-ban-juiste-voorspellingen-met-oude-volksmethode~ab14abcf/)
+  > In Spanje, waar hittegolven en extreme regenval steeds vaker voorkomen, wint de jonge ‘weerinfluencer’ Jorge Rey razendsnel aan populariteit. Zonder...
+- [Bevolkingsonderzoek borstkanker staat onder druk en dat merken ze hier: ‘Dan maar een kortere pauze’](https://www.ad.nl/binnenland/bevolkingsonderzoek-borstkanker-staat-onder-druk-en-dat-merken-ze-hier-dan-maar-een-kortere-pauze~aab95a5f/)
+  > Personeelstekorten, vertraging in de onderzoeken en de ‘borstenbus’ die haltes moet schrappen. Het bevolkingsonderzoek naar borstkanker staat onder...
+- [Het begon met één video, daarna kwam golf van herkenning: hoe Amber (24) seksisme zichtbaar maakte](https://www.ad.nl/politiek/het-begon-met-een-video-daarna-kwam-golf-van-herkenning-hoe-amber-24-seksisme-zichtbaar-maakte~a51afef9/)
+  > Amber Beijer (24) dacht lange tijd dat het erbij hoorde: de opmerkingen, de grappen, het wegwuiven. Als jonge vrouw in de politiek moest je daar...
+- [Demi Moore en Javier Bardem reiken Oscars uit](https://www.ad.nl/show/demi-moore-en-javier-bardem-reiken-oscars-uit~a6dfaf28/)
+  > Demi Moore, Javier Bardem en Chris Evans mogen volgende maand Oscars uitreiken tijdens de het jaarlijkse Oscar-gala waarop de filmprijzen bekend...
+- [Pakistan verklaart ‘open oorlog’ aan Afghaanse Taliban en bombardeert Kaboel](https://www.ad.nl/buitenland/pakistan-verklaart-open-oorlog-aan-afghaanse-taliban-en-bombardeert-kaboel~a25a0461/)
+  > De Pakistaanse minister van Defensie heeft in de nacht van donderdag op vrijdag de ‘open oorlog’ verklaard aan de Afghaanse Taliban-regering. De...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Iran ontbiedt Nederlandse ambassadeur in reactie op ontbieding Iraanse ambassadeur](https://fd.nl/politiek/1587797/iran-ontbiedt-nederlandse-ambassadeur-in-reactie-op-ontbieding-iraanse-ambassadeur)
-  > Het Verdrag van Wenen beschermt diplomatieke post, en de bagage van diplomaten mag alleen gecheckt worden in uitzonderingsgevallen.
-- [Spanningen rond AI houden aan, Wall Street sluit wisselend](https://fd.nl/financiele-markten/1587682/spanningen-rond-ai-houden-aan-wall-street-sluit-wisselend)
-  > Aandelen van chipbedrijven daalden, omdat de kwartaalcijfers van Nvidia – hoewel hoger dan verwacht -beleggers niet overtuigden over AI.
-- [VS en Iran boeken ‘significante vooruitgang’ in nucleaire gesprekken](https://fd.nl/politiek/1587683/vs-en-iran-boeken-significante-vooruitgang-in-nucleaire-gesprekken)
-  > De onderhandelingen worden binnenkort voortgezet.
-- [Thales, Neways en NXP gaan de boer op met hun slimme microchip voor scherpe dronedetectie](https://fd.nl/bedrijfsleven/1587636/thales-neways-en-nxpgaan-de-boer-op-met-hun-slimme-microchip-voor-scherpe-dronedetectie)
-  > Nederlandse defensietechbedrijven gaan langjarig samenwerken om een sterk ecosysteem voor ‘counterdrones’ uit te bouwen. Hun vinding maakt Nederland...
-- [Stellantis lijdt eerste jaarverlies, toch stijgt aandeel met 4%](https://fd.nl/financiele-markten/1587572/stellantis-lijdt-eerste-jaarverlies-toch-stijgt-aandeel-met-4)
-  > In totaal werd €25,4 mrd afgewaardeerd, vooral door het terugschroeven van de elektrische ambities.
+- [Hoogste inkoper Defensie: ‘Ik heb niet de opdracht om geen zaken meer te doen met de VS’](https://fd.nl/samenleving/1587341/hoogste-inkoper-defensie-ik-heb-niet-de-opdracht-om-geen-zaken-meer-te-doen-met-de-vs)
+  > Viceadmiraal Jan Willem Hartman eist van ‘zijn’ inkoopafdeling dat die veel sneller en pragmatischer werkt om defensiematerieel te bestellen: ‘Er is...
+- [Ad ‘leende’ €1,5 mln bij ABN en Rabo, kocht juwelen voor zijn maîtresse, betaalde niets terug – en vrijspraak volgt](https://fd.nl/samenleving/1586860/ad-leende-1-5-mln-bij-abn-en-rabo-kocht-juwelen-voor-zijn-maitresse-betaalde-niets-terug-en-vrijspraak-volgt)
+  > Een Brabander had financiering nodig voor een internationaal bedrijf. Maar van enige handel is niets gebleken en het geld kwam niet terug.
+- [Windmolens op zee verwijderen blijkt veel duurder](https://fd.nl/economie/1587567/windmolens-op-zee-verwijderen-blijkt-veel-duurder)
+  > Vandaag in Dagkoers: het ontmantelen van oude windmolens op zee blijkt veel duurder dan gedacht. Een van de grootste bouwbedrijven van Nederland...
+- [Nederlandse schrijvers dreigen met rechtszaak tegen Meta](https://fd.nl/bedrijfsleven/1587650/nederlandse-schrijvers-dreigen-met-rechtszaak-tegen-meta)
+  > Meerdere belangenbehartigers sommeren Meta te stoppen met het gebruik van werk van Nederlandse schrijvers en journalisten voor het trainen van...
+- [Rampzalige ideeën](https://fd.nl/opinie/1587643/rampzalige-ideeen)
+  > Het minderheidskabinet zal toch echt niet op de heuvel van de AOW-leeftijd willen sterven.
 
 ### Meest gelezen
 
