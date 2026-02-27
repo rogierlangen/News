@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-02-2026 om 19:48*
+*Laatst bijgewerkt: 27-02-2026 om 20:58*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Telstar in kelderkraker op voorsprong tegen NAC, moet winnen om aansluiting te houden](https://www.ad.nl/voetbal/telstar-in-kelderkraker-op-voorsprong-tegen-nac-moet-winnen-om-aansluiting-te-houden~a098380b/)
-  > De 25ste speelronde in de VriendenLoterij Eredivisie begint vanavond met een ware kelderkraker: nummer 17 Telstar ontvangt nummer 16 NAC Breda. Wat...
-- [Afmeldingen, aanwijsplekken en revanchekansen: vier vragen en antwoorden over de NK sprint en allround](https://www.ad.nl/schaatsen/afmeldingen-aanwijsplekken-en-revanchekansen-vier-vragen-en-antwoorden-over-de-nk-sprint-en-allround~a1d70921/)
-  > Een week na de Olympische Spelen is het allesbehalve stil in de Nederlandse schaatswereld. In aanloop naar de NK en WK sprint en allround in Thialf...
-- [Hans Cornelissen: ‘Prettig dat ik slank ben en blijf’](https://www.ad.nl/gezond/hans-cornelissen-prettig-dat-ik-slank-ben-en-blijf~a681ad79/)
-  > De acteur en theaterproducent gelooft niet in keihard sporten, ontspant op zijn terras aan het water en is ‘licht hoogsensitief’: ‘Geluid en energie...
-- [Koploper ADO op voorsprong, FC Dordrecht pakt periodetitel bij zege](https://www.ad.nl/voetbal/koploper-ado-op-voorsprong-fc-dordrecht-pakt-periodetitel-bij-zege~afbbd482/)
+- [Telstar maakt verschillen onderin kleiner met zege op NAC in cruciale kelderkraker](https://www.ad.nl/voetbal/telstar-maakt-verschillen-onderin-kleiner-met-zege-op-nac-in-cruciale-kelderkraker~a098380b/)
+  > Telstar heeft een belangrijke zege geboekt. In Velsen-Zuid werd NAC met 3-0 verslagen. De thuisploeg was vrijwel de hele wedstrijd de betere, de...
+- [Dit historische pand koop je voor 295.000 euro, maar starters maken geen schijn van kans](https://www.ad.nl/binnenland/dit-historische-pand-koop-je-voor-295-000-euro-maar-starters-maken-geen-schijn-van-kans~ab8c332d/)
+  > Wonen in een historisch pand midden in het centrum voor nog geen 3 ton: op Funda wordt het je gladjes verkocht. Maar wat koop je precies? En is het...
+- [Dochter van Malgosia uit B&B vol liefde pakt Dinand in bij The Voice: ‘Mijn moeder is een gekkie’](https://www.ad.nl/show/dochter-van-malgosia-uit-benb-vol-liefde-pakt-dinand-in-bij-the-voice-mijn-moeder-is-een-gekkie~ab74e015/)
+  > Haar artiestennaam is Nathalie Blue, haar moeder is de omstreden Malgosia uit B&B vol liefde en ze wist vrijdagavond het hart te veroveren van coach...
+- [Inspectie onderzoekt online verkoop afslankmedicatie: ‘Artsen en apothekers overtreden wet’](https://www.ad.nl/binnenland/inspectie-onderzoekt-online-verkoop-afslankmedicatie-artsen-en-apothekers-overtreden-wet~aeecd615/)
+  > De Inspectie Gezondheidszorg en Jeugd (IGJ) gaat onderzoek doen naar de online verkoop van afslankmedicijnen. Op sommige websites schrijven...
+- [FC Dordrecht maakt gelijk bij Jong PSV, Willem II lijkt te gaan profiteren](https://www.ad.nl/voetbal/fc-dordrecht-maakt-gelijk-bij-jong-psv-willem-ii-lijkt-te-gaan-profiteren~afbbd482/)
   > Een spannende avond in de Keuken Kampioen Divisie, want de laatste speelronde in de derde periode wordt gespeeld. FC Dordrecht kan de periodetitel...
-- [Het is Superweekend: tv-kijker smult van terugkeer Boer zoekt Vrouw, Only Joling en Wie is de Mol?](https://www.ad.nl/show/het-is-superweekend-tv-kijker-smult-van-terugkeer-boer-zoekt-vrouw-only-joling-en-wie-is-de-mol~aebf140b/)
-  > Nu de olympische vlam is gedoofd, ontwaakt Hilversum uit een winterslaap. Terwijl de sportliefhebber nageniet, schakelen de zenders over op de orde...
 
 ### Meest gelezen
 
