@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-02-2026 om 17:00*
+*Laatst bijgewerkt: 27-02-2026 om 19:48*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Bedrijf laat studenten betalen voor aanvragen studiefinanciering](https://nos.nl/l/2604263)
-  > Een Nederlands bedrijf vraagt tegen betaling studiefinanciering aan voor studenten. Dat is niet strafbaar, maar de Dienst Uitvoering Onderwijs vindt...
-- [Podcast De Stemming: Appende ouders, veel inhoud en Rutte-vibes](https://nos.nl/l/2604262)
-  > In de week dat het kabinet Jetten officieel beëdigd én begonnen is, nemen Joost Vullings en Marleen de Rooy weer samen een aflevering van podcast De...
-- [Grote opgave voor gemeenten: tienduizenden extra asielplekken nodig](https://nos.nl/l/2604261)
-  > Er moeten tienduizenden opvangplekken voor asielzoekers bij komen. Dat blijkt uit een raming die de nieuwe minister van Asiel Van den Brink (CDA)...
-- [Hof legt 81-jarige een hogere celstraf op voor moord Kinderdijk](https://nos.nl/l/2604258)
-  > De 81-jarige Cor de J. is door het Gerechtshof Den Haag veroordeeld tot een celstraf van achttien jaar wegens moord. In 2022 schoot hij een 74-jarige...
-- [VS waarschuwt ambassadepersoneel Israël vanwege spanningen met Iran](https://nos.nl/l/2604253)
-  > De Amerikaanse ambassade in Israël heeft het personeel laten weten dat personeelsleden die dat willen het best zo snel mogelijk kunnen vertrekken....
+- [Standbeeld van 'gewone stemmer' onthuld in zes steden](https://nos.nl/l/2604281)
+  > In aanloop naar de gemeenteraadsverkiezingen zijn in zes gemeenten levensgrote standbeelden onthuld van inwoners die gaan stemmen. Op die manier wil...
+- [Twee doden en tientallen gewonden bij tramongeluk in Milaan](https://nos.nl/l/2604279)
+  > Bij een tramongeluk in de Italiaanse stad Milaan zijn twee mensen omgekomen. Tientallen anderen raakten gewond. Een van hen is er volgens de lokale...
+- [Bill Clinton: 'Als ik had geweten wat Epstein deed, had ik hem aangegeven'](https://nos.nl/l/2604277)
+  > In een verklaring voor een commissie van het Congres heeft oud-president Bill Clinton gezegd dat hij geen strafbare feiten heeft gepleegd in zijn...
+- [Nederland scherpt reisadvies Israël aan vanwege spanningen Midden-Oosten](https://nos.nl/l/2604272)
+  > Het Nederlandse ministerie van Buitenlandse Zaken heeft het reisadvies voor de grensgebieden tussen Israël en Gaza, Libanon en Egypte aangepast naar...
+- [Vijf tieners veroordeeld voor verspreiden IS-propaganda via TikTok](https://nos.nl/l/2604270)
+  > De rechtbank in Rotterdam heeft vijf tieners veroordeeld voor het verspreiden van IS-propaganda via TikTok en andere sociale media. Een van hen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tram ontspoort in Milaan en botst tegen winkel: zeker 1 dode en 39 gewonden](https://www.ad.nl/buitenland/tram-ontspoort-in-milaan-en-botst-tegen-winkel-zeker-1-dode-en-39-gewonden~a47f6b32/)
-  > In de Italiaanse stad Milaan is een tram ontspoord. Daarbij is een persoon om het leven gekomen en zijn 39 anderen gewond geraakt, meldt de politie....
-- [Verhoor van Bill Clinton, die duidelijk banden had met Epstein, begonnen: ‘Vastbesloten om antwoorden te krijgen’](https://www.ad.nl/buitenland/verhoor-van-bill-clinton-die-duidelijk-banden-had-met-epstein-begonnen-vastbesloten-om-antwoorden-te-krijgen~ae67dd9c/)
-  > De Amerikaanse oud-president Bill Clinton getuigt vandaag voor een onderzoekscommissie van het Huis van Afgevaardigden over zijn banden met de...
-- [Tennisrackets slopen zónder camera’s, toernooi komt na ophef met woedekamer: ‘Het is een marketingstunt’](https://www.ad.nl/tennis/tennisrackets-slopen-zonder-cameras-toernooi-komt-na-ophef-met-woedekamer-het-is-een-marketingstunt~a08db0f6/)
-  > Een afgesloten kamer waar tennissers buiten het zicht van de camera’s rackets kapot kunnen slaan. Na de ophef over aanwezigheid van camera’s op...
-- [Zo bescherm je jezelf na de Odido-hack: ‘Hou bankrekening in de gaten’](https://www.ad.nl/binnenland/zo-bescherm-je-jezelf-na-de-odido-hack-hou-bankrekening-in-de-gaten~a66fa84f/)
-  > Voor veel Odido-klanten blijft het spannend: wie gaat er met hun gegevens aan de haal?  De Consumentenbond, een advocaat én Odido zelf geven antwoord...
-- [IJskoude winter in het huis van Peter: ‘Nieuwe kozijnen sluiten niet goed aan’](https://www.ad.nl/rotterdam/ijskoude-winter-in-het-huis-van-peter-nieuwe-kozijnen-sluiten-niet-goed-aan~afce13eb1/)
-  > De plaatsing van nieuwe kozijnen vorig jaar september heeft voor Peter Driessen (73) uit Rotterdam-Zuid geresulteerd in een ijskoude winter, waarin...
+- [Telstar in kelderkraker op voorsprong tegen NAC, moet winnen om aansluiting te houden](https://www.ad.nl/voetbal/telstar-in-kelderkraker-op-voorsprong-tegen-nac-moet-winnen-om-aansluiting-te-houden~a098380b/)
+  > De 25ste speelronde in de VriendenLoterij Eredivisie begint vanavond met een ware kelderkraker: nummer 17 Telstar ontvangt nummer 16 NAC Breda. Wat...
+- [Afmeldingen, aanwijsplekken en revanchekansen: vier vragen en antwoorden over de NK sprint en allround](https://www.ad.nl/schaatsen/afmeldingen-aanwijsplekken-en-revanchekansen-vier-vragen-en-antwoorden-over-de-nk-sprint-en-allround~a1d70921/)
+  > Een week na de Olympische Spelen is het allesbehalve stil in de Nederlandse schaatswereld. In aanloop naar de NK en WK sprint en allround in Thialf...
+- [Hans Cornelissen: ‘Prettig dat ik slank ben en blijf’](https://www.ad.nl/gezond/hans-cornelissen-prettig-dat-ik-slank-ben-en-blijf~a681ad79/)
+  > De acteur en theaterproducent gelooft niet in keihard sporten, ontspant op zijn terras aan het water en is ‘licht hoogsensitief’: ‘Geluid en energie...
+- [Koploper ADO op voorsprong, FC Dordrecht pakt periodetitel bij zege](https://www.ad.nl/voetbal/koploper-ado-op-voorsprong-fc-dordrecht-pakt-periodetitel-bij-zege~afbbd482/)
+  > Een spannende avond in de Keuken Kampioen Divisie, want de laatste speelronde in de derde periode wordt gespeeld. FC Dordrecht kan de periodetitel...
+- [Het is Superweekend: tv-kijker smult van terugkeer Boer zoekt Vrouw, Only Joling en Wie is de Mol?](https://www.ad.nl/show/het-is-superweekend-tv-kijker-smult-van-terugkeer-boer-zoekt-vrouw-only-joling-en-wie-is-de-mol~aebf140b/)
+  > Nu de olympische vlam is gedoofd, ontwaakt Hilversum uit een winterslaap. Terwijl de sportliefhebber nageniet, schakelen de zenders over op de orde...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [OpenAI haalt $110 mrd op bij onder meer Amazon en Nvidia](https://fd.nl/bedrijfsleven/1587838/openai-haalt-110-mrd-op-bij-onder-meer-amazon-en-nvidia)
-  > Nooit eerder stak Amazon zoveel geld in een ander bedrijf.
-- [Moederbedrijf British Airways boekt recordwinst](https://fd.nl/bedrijfsleven/1587831/moederbedrijf-british-airways-boekt-recordwinst)
-  > Het bedrijf zegt te profiteren van toenemende vraag naar luxere stoelen. Ook werden er weer meer vluchten tussen Europa en de VS geboekt, na een...
-- [Van een kale kip kun je niet plukken](https://fd.nl/financiele-markten/1587555/van-een-kale-kip-kun-je-niet-plukken)
-  > VNO-NCW wil paal en perk stellen aan kwijtschelding van schulden, maar de opbrengsten daarvan zijn bescheiden.
-- [Formule 1-kampioenen laten geen vieze koffiebekers slingeren](https://fd.nl/samenleving/1587354/formule-1-kampioenen-laten-geen-vieze-koffiebekers-slingeren)
-  > Ook voor lezers die niets met autosport hebben, bevat het boek ‘De Formule’ over de F1 relevante inzichten over leiderschap, macht en organisaties.
-- [Tesla rekent op Nederlands groen licht voor zelfsturende auto’s](https://fd.nl/bedrijfsleven/1587705/tesla-rekent-op-nederlands-groen-licht-voor-zelfsturende-autos)
-  > Elon Musk claimt op X dat de RDW op 20 maart goedkeuring zal verlenen voor Full Self Driving Supervised. Supervised houdt in dat er nog steeds iemand...
+- [Ondernemingskamer grijpt in bij ruzie onlinemarketingbedrijf Advidi](https://fd.nl/bedrijfsleven/1587843/ondernemingskamer-grijpt-in-bij-ruzie-onlinemarketingbedrijf-advidi)
+  > Onlinemarketingbedrijf Advidi is financieel een groot succes. Maar achter de schermen lagen grootaandeelhouder en bestuurders met elkaar overhoop.
+- [Wheelen, dealen, afbranden: de oppositie is nog verdeeld over de beste methode](https://fd.nl/politiek/1587639/wheelen-dealen-afbranden-de-oppositie-is-nog-verdeeld-over-de-beste-methode)
+  > In het tijdperk-Jetten heeft de oppositie een bijzondere kans om invloed uit te oefenen. Maar het is nog even zoeken naar een eensgezinde modus...
+- [Een latere AOW maakt nu te veel kapot](https://fd.nl/opinie/1587805/een-latere-aow-maakt-nu-te-veel-kapot)
+  > De AOW-leeftijd heeft een iets te lange voorgeschiedenis om er zomaar aan te gaan sleutelen. Er zijn betere manieren om de stijgende kosten van de...
+- [Amerikaanse ambassadeur in Israël waarschuwt personeel voor spanning Iran](https://fd.nl/economie/1587728/amerikaanse-ambassadeur-in-israel-waarschuwt-personeel-voor-spanning-iran)
+  > Medewerkers die dat willen, kunnen het beste vertrekken, nu de spanning tussen de VS en Iran toeneemt.
+- [AEX sluit week af in de plus, hoewel beleggers de stuipen op het lijf werden gejaagd](https://fd.nl/financiele-markten/1587826/aex-sluit-week-af-in-de-plus-hoewel-beleggers-de-stuipen-op-het-lijf-werden-gejaagd)
+  > Voor Nederlandse beleggers draaide deze beursweek vooral om wat er met box 3 gebeurde in Den Haag. Verder had een onheilspellend rapport over AI veel...
 
 ### Meest gelezen
 
