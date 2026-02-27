@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-02-2026 om 11:05*
+*Laatst bijgewerkt: 27-02-2026 om 14:10*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Auteurs eisen dat Meta stopt met gebruik van hun werk om AI te trainen](https://nos.nl/l/2604225)
-  > Journalistenvakbond NVJ, de Auteursbond en schrijversvakbond Lira eisen dat Meta stopt met het gebruik van teksten van Nederlandse schrijvers,...
-- [Kabinet na tweedaags debat: fysieke uitdaging, maar toon was verademing](https://nos.nl/l/2604224)
-  > Na een tweedaags debat in de Tweede Kamer, waarbij ze alleen mochten luisteren, gaan de bewindspersonen van het nieuwe kabinet-Jetten vandaag dan...
-- [Technische storing Calandbrug bij Rotterdam na 24 uur nog niet verholpen](https://nos.nl/l/2604218)
-  > De Calandbrug in het Botlekgebied bij Rotterdam is na 24 uur nog altijd in beide richtingen dicht door een technische storing. De brug is gesloten...
-- [Bevrijding Cuba 'obsessie' voor Amerikaan die op speedboot werd doodgeschoten](https://nos.nl/l/2604213)
-  > De opvarenden van de speedboot die woensdag betrokken waren bij de schietpartij met de Cubaanse kustwacht, lijken voor het merendeel in de VS wonende...
-- [Loodgieter of buschauffeur als nieuwe influencer: 'Is herkenbaar'](https://nos.nl/l/2604184)
-  > Vergeet de Kardashians, de Jenners en de Hadid-zussen. Populariteit op sociale media is allang niet meer alleen weggelegd voor fotomodellen,...
+- [Europese Commissie omzeilt Europees Parlement, begint uitvoering Mercosur-verdrag](https://nos.nl/l/2604245)
+  > De Europese Commissie begint met het "voorlopig uitvoeren" van het Mercosur-handelsverdrag, zegt commissievoorzitter Ursula von der Leyen.
+       ...
+- [Zweedse marine in actie tegen drone bij Frans vliegdekschip](https://nos.nl/l/2604243)
+  > Het Zweedse leger heeft actie ondernomen tegen een drone bij een Frans vliegdekschip in de haven van Malmö. Waarschijnlijk was het een Russische...
+- [Verdachte opgepakt voor moord op Italiaanse nonnen in Burundi](https://nos.nl/l/2604238)
+  > De Italiaanse politie heeft een 50-jarige Burundese man opgepakt in het heropende onderzoek naar de moord op drie Italiaanse nonnen in 2014 in...
+- [Taliban willen onderhandelen met Pakistan, wereldleiders roepen op tot de-escalatie](https://nos.nl/l/2604237)
+  > De Taliban zeggen te willen onderhandelen met Pakistan, na een grootschalige Pakistaanse luchtaanval op verschillende Afghaanse steden vannacht. Dat...
+- [OM in beroep tegen uitspraak in Stint-zaak](https://nos.nl/l/2604235)
+  > Het Openbaar Ministerie heeft nu ook formeel beroep ingesteld tegen de uitspraak in de Stint-zaak. Stint-oprichter Edwin Renzen en ontwerper Peter...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Twee opties tijdens loting: dit zijn de mogelijke tegenstanders van Liverpool](https://www.ad.nl/voetbal/twee-opties-tijdens-loting-dit-zijn-de-mogelijke-tegenstanders-van-liverpool~af5e6a39/)
-  > De zestien clubs die de achtste finales van de Champions League gaan spelen zijn bekend. Onder andere Real Madrid en titelhouder Paris Saint-Germain...
-- [Jutta verrast haar oma en verdrietig afscheid voor Sita](https://www.ad.nl/show/jutta-verrast-haar-oma-en-verdrietig-afscheid-voor-sita~a6af479a/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Praat mee: de eerste week van premier Jetten zit erop, wat vind je ervan?](https://www.ad.nl/praat-mee/praat-mee-de-eerste-week-van-premier-jetten-zit-erop-wat-vind-je-ervan~a70722441/)
-  > Premier Jetten heeft zijn eerste week erop zitten. Het tweedaagse debat met de Tweede Kamer over de regeringsverklaring is afgerond. In de Kwestie...
-- [Lionel Messi gevloerd door veldbestormer en beveiligers in oefenduel in Puerto Rico](https://www.ad.nl/voetbal/lionel-messi-gevloerd-door-veldbestormer-en-beveiligers-in-oefenduel-in-puerto-rico~a81fc90f/)
-  > Lionel Messi is in de nacht van donderdag op vrijdag tijdens een oefenwedstrijd op Puerto Rico gevloerd door een veldbestormer. Tegen het eind van...
-- [‘Ladies! Patrick Swayze is entering the room!’ Petra schreeuwt vriendinnen zo terug naar 1984](https://www.ad.nl/binnenland/ladies-patrick-swayze-is-entering-the-room-petra-schreeuwt-vriendinnen-zo-terug-naar-1984~a0854c6b/)
-  > Als Petra van Hoecke een tijdmachine had, zou die haar zonder omwegen naar de jaren 80 zoeven. De inwoner van Hoek gaat het liefst op rollerskates en...
+- [Door eigen ervaring als vader redt agent kindje dat stikt in melk: ‘Heeft diepe indruk gemaakt’](https://www.ad.nl/binnenland/door-eigen-ervaring-als-vader-redt-agent-kindje-dat-stikt-in-melk-heeft-diepe-indruk-gemaakt~a0390e3f/)
+  > Als er één ding is dat je nooit hoopt mee te maken, is het een kinderreanimatie. Toch krijg ik nu die melding. Vol adrenaline rijd ik naar het adres,...
+- [Rechter legt jeugddetentie op aan 17-jarige jongens voor lidmaatschap IS](https://www.ad.nl/binnenland/rechter-legt-jeugddetentie-op-aan-17-jarige-jongens-voor-lidmaatschap-is~a4e79067/)
+  > De Rotterdamse rechtbank heeft twee minderjarige verdachten jeugddetentie opgelegd voor lidmaatschap van IS en online oprruing tot terrorisme. Drie...
+- [Bruno Mars brengt album The Romantic uit, maar zijn liefdesleven blijft vooralsnog geheim](https://www.ad.nl/muziek/bruno-mars-brengt-album-the-romantic-uit-maar-zijn-liefdesleven-blijft-vooralsnog-geheim~a1078d1f/)
+  > Bruno Mars (40) sluit de maand van de liefde af met zijn eerste soloalbum in bijna tien jaar tijd. Op zijn nieuwe plaat The Romantic zingt hij onder...
+- [Reacties op hack bij Odido: ‘Je kunt zelf veel doen om je te beschermen’](https://www.ad.nl/praat-mee/reacties-op-hack-bij-odido-je-kunt-zelf-veel-doen-om-je-te-beschermen~ada38e22/)
+  > ‘Download KopieID. Dit is een app van de Rijksoverheid waarmee je de gegevens van een rijbewijs of ID kunt afschermen’ en ‘De waarschuwing voor de...
+- [AZ treft voormalig Feyenoord-coach Brian Priske in achtste finales Conference League](https://www.ad.nl/voetbal/az-treft-voormalig-feyenoord-coach-brian-priske-in-achtste-finales-conference-league~af5e6a39/)
+  > AZ is de enige overgebleven Nederlandse ploeg in Europa. De Alkmaarders hebben geloot tegen Sparta Praag, de huidige nummer 2 van Tsjechië. Daar...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Belegger kan nu beter geld in Europa steken dan in de Verenigde Staten](https://fd.nl/financiele-markten/1587684/belegger-kan-nu-beter-geld-in-europa-steken-dan-in-de-verenigde-staten)
-  > In Europa staan de aandelenmarkten op recordniveaus, terwijl die in de Verenigde Staten achterblijven. Beleggers zien nu vooral risico’s in de VS, en...
-- [De kop van Jutta](https://fd.nl/samenleving/1587300/de-kop-van-jutta)
-  > Zelfs een olympische ster bestaat uitsluitend opdat anderen zich kunnen profileren met hun deugdzaamheid, ziet Joris van Os.
-- [Chinese hotelgiganten zitten marktleider Marriott op de hielen](https://fd.nl/samenleving/1587633/chinese-hotelgiganten-zitten-marktleider-marriott-op-de-hielen)
-  > Sinds dit jaar is in de hotelbranche een vijfde bedrijf toegetreden tot de ‘miljonairsclub’, bedrijven die meer dan een miljoen hotelkamers aanbieden.
-- [Deregulering gaat niet over de markt, maar over macht](https://fd.nl/opinie/1587428/deregulering-gaat-niet-over-de-markt-maar-over-macht)
-  > Europa wil minder regels om de concurrentiekracht te verbeteren. Maar deregulering is geen bevrijding van bedrijven, stelt Hans Stegeman, het zorgt...
-- [Anthropic geeft niet toe aan Pentagon in ruzie over AI-gebruik](https://fd.nl/tech-en-innovatie/1587804/anthropic-geeft-niet-toe-aan-pentagon-in-ruzie-over-ai-gebruik)
-  > Het Amerikaanse ministerie van oorlog wil dat het techbedrijf zijn gebruiksvoorwaarden voor AI-modellen versoepelt. Vrijdag eind van de dag loopt een...
+- [Tesla rekent op Nederlands groen licht voor zelfsturende auto’s](https://fd.nl/bedrijfsleven/1587705/tesla-rekent-op-nederlands-groen-licht-voor-zelfsturende-autos)
+  > Elon Musk claimt op X dat de RDW op 20 maart goedkeuring zal verlenen voor Full Self Driving Supervised. Supervised houdt in dat er nog steeds iemand...
+- [Kolen zijn duur, vervuilend en niet concurrerend, maar Trump wil ze in ere herstellen](https://fd.nl/politiek/1587500/kolen-zijn-duur-vervuilend-en-niet-concurrerend-maar-trump-wil-zein-ere-herstellen)
+  > De Amerikaanse federale overheid wil kolencentrales nieuw leven inblazen als onderdeel van de energiestrategie van president Trump. Opvallend: staten...
+- [RZA en andere grote ego’s Wu-Tang Clan nemen afscheid van Nederland](https://fd.nl/bedrijfsleven/1586861/rza-en-andere-grote-egos-wu-tang-clan-nemen-afscheid-van-nederland)
+  > Met vijfjarenplannen brengt RZA ‘zijn’ hiphopgroep Wu-Tang Clan naar de top. Hij is de buschauffeur, de andere leden zijn de passagiers. Vele ruzies...
+- [Export van EU naar VS laatste kwartalen afgenomen](https://fd.nl/economie/1587828/export-van-eu-naar-vs-laatste-kwartalen-afgenomen)
+  > Op jaarbasis steeg de export naar de VS nog licht, maar in het vierde kwartaal was de uitvoer 15% lager.
+- [Gemeenten eisen vaker recht op om grond te kopen](https://fd.nl/politiek/1587700/gemeenten-eisen-vaker-recht-op-om-grond-te-kopen)
+  > De afgelopen jaren zijn gemeenten veel actiever geworden op de grondmarkt. Zo hebben ze meer controle over de ruimtelijke ordening, nu de vraag naar...
 
 ### Meest gelezen
 
