@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-02-2026 om 22:54*
+*Laatst bijgewerkt: 27-02-2026 om 23:49*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Paramount sluit overnamedeal van 110 miljard dollar met Warner Bros.](https://nos.nl/l/2604304)
+  > Warner Bros. Discovery heeft vandaag ingestemd met een overname door concurrent Paramount. Met de deal is een bedrag van 110 miljard dollar gemoeid....
 - [Defensieminister: militairen VS mogen niet meer naar 'woke' universiteiten](https://nos.nl/l/2604302)
   > Na Harvard doet minister Hegseth van Defensie ook andere prestigieuze universiteiten in de VS in de ban. In een videoboodschap op sociale media zegt...
 - [Staakt-het-vuren voor reparaties bij Oekraïense kerncentrale](https://nos.nl/l/2604297)
@@ -16,8 +18,6 @@
   > In aanloop naar de gemeenteraadsverkiezingen zijn in zes gemeenten levensgrote standbeelden onthuld van inwoners die gaan stemmen. Op die manier wil...
 - [Twee doden en tientallen gewonden bij tramongeluk in Milaan](https://nos.nl/l/2604279)
   > Bij een tramongeluk in de Italiaanse stad Milaan zijn twee mensen omgekomen. Tientallen anderen raakten gewond. Een van hen is er volgens de lokale...
-- [Bill Clinton: 'Als ik had geweten wat Epstein deed, had ik hem aangegeven'](https://nos.nl/l/2604277)
-  > In een verklaring voor een commissie van het Congres heeft oud-president Bill Clinton gezegd dat hij geen strafbare feiten heeft gepleegd in zijn...
 
 ### Meest gelezen
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Zanger en songwriter Neil Sedaka, de man achter talloze hits uit de jaren 60 en 70, overleden](https://www.ad.nl/show/zanger-en-songwriter-neil-sedaka-de-man-achter-talloze-hits-uit-de-jaren-60-en-70-overleden~a5820a6a/)
+  > Neil Sedaka, de succesvolle Amerikaanse singer-songwriter met de jongensachtige sopraanstem en heldere melodieën uit de jaren zestig en zeventig, is...
 - [Minister Heinen wil box 3-wet nog voor de zomer aanpassen: ‘Zorgen bij mensen thuis zijn niet goed’](https://www.ad.nl/politiek/minister-heinen-wil-box-3-wet-nog-voor-de-zomer-aanpassen-zorgen-bij-mensen-thuis-zijn-niet-goed~a7828022/)
   > Minister van Financiën Eelco Heinen wil het omstreden wetsvoorstel over vermogensrendementsbelasting (box 3) nog voor de zomer in aangepaste vorm...
 - [Bemiddelaar Oman spreekt van mogelijke doorbraak in onderhandelingen Iran en VS: nooit meer uranium opslaan](https://www.ad.nl/buitenland/bemiddelaar-oman-spreekt-van-mogelijke-doorbraak-in-onderhandelingen-iran-en-vs-nooit-meer-uranium-opslaan~ac528ac3/)
@@ -35,8 +37,6 @@
   > Willem II heeft zich vrijdagavond geplaatst voor de play-offs om promotie. De ploeg van trainer John Stegeman won met 0-3 bij FC Emmen. Daarmee ging...
 - [Telstar maakt verschillen onderin kleiner met zege op NAC in cruciale kelderkraker](https://www.ad.nl/voetbal/telstar-maakt-verschillen-onderin-kleiner-met-zege-op-nac-in-cruciale-kelderkraker~a098380b/)
   > Telstar heeft een belangrijke zege geboekt in de strijd tegen degradatie. In Velsen-Zuid werd nummer 16 NAC met 3-0 verslagen. Telstar, de nummer 17,...
-- [Dylan Timber terug na 763 dagen revalide­ren: ‘Ik ben mijn broers en moeder enorm dankbaar’](https://www.ad.nl/voetbal/dylan-timber-terug-na-763-dagen-revalideren-ik-ben-mijn-broers-en-moeder-enorm-dankbaar~ad570e31/)
-  > Dylan Timber maakte vrijdagavond zijn comeback na meer dan twee jaar revalideren. De verdediger van VVV-Venlo bedankte na de wedstrijd zijn vier...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Netflix plust na afketsen deal Warner Bros op lager Wall Street](https://fd.nl/financiele-markten/1587851/netflix-plust-na-afketsen-deal-warner-bros-op-lager-wall-street)
-  > OpenAI maakte een grote financieringsronde bekend en Netflix trok zich terug uit de overnamestrijd om Warner Bros. Discovery.
-- [Ondernemingskamer grijpt in bij ruzie onlinemarketingbedrijf Advidi](https://fd.nl/bedrijfsleven/1587843/ondernemingskamer-grijpt-in-bij-ruzie-onlinemarketingbedrijf-advidi)
-  > Onlinemarketingbedrijf Advidi is financieel een groot succes. Maar achter de schermen lagen grootaandeelhouder en bestuurders met elkaar overhoop.
-- [Wheelen, dealen, afbranden: de oppositie is nog verdeeld over de beste methode](https://fd.nl/politiek/1587639/wheelen-dealen-afbranden-de-oppositie-is-nog-verdeeld-over-de-beste-methode)
-  > In het tijdperk-Jetten heeft de oppositie een bijzondere kans om invloed uit te oefenen. Maar het is nog even zoeken naar een eensgezinde modus...
-- [Een latere AOW maakt nu te veel kapot](https://fd.nl/opinie/1587805/een-latere-aow-maakt-nu-te-veel-kapot)
-  > De AOW-leeftijd heeft een iets te lange voorgeschiedenis om er zomaar aan te gaan sleutelen. Er zijn betere manieren om de stijgende kosten van de...
-- [Amerikaanse ambassadeur in Israël waarschuwt personeel voor spanning Iran](https://fd.nl/economie/1587728/amerikaanse-ambassadeur-in-israel-waarschuwt-personeel-voor-spanning-iran)
-  > Medewerkers die dat willen, kunnen het beste vertrekken, nu de spanning tussen de VS en Iran toeneemt.
+- [Rijksuniversiteit Groningen wil van big tech af, maar dat valt niet mee. ‘Het zit overal’](https://fd.nl/tech-en-innovatie/1587593/rijksuniversiteitgroningen-wil-van-big-tech-af-maar-dat-valt-niet-mee-het-zit-overal)
+  > Uit vrees dat Donald Trump IT-systemen als machtsmiddel gebruikt, zoekt de Rijksuniversiteit Groningen alternatieven voor big tech. Die moeten bij...
+- [Zuster AI, ziet gij al iets komen?](https://fd.nl/politiek/1587699/zuster-ai-ziet-gij-al-iets-komen)
+  > Met alle miljarden die naar AI-modellen gaan, zouden er toch al tekenen moeten zijn van een geslaagde techrevolutie. FD-columnist Mathijs Bouman ging...
+- [Het modderbad must go on, of je nu ‘Stemmenkanon Keijzer’ heet of niet](https://fd.nl/opinie/1587690/het-modderbad-must-go-on)
+  > Henk weet hoe de politieke hazen lopen, Mona (opnieuw) niet. Het tafereel is eigenlijk hilarisch, als het niet zo sneu zou zijn – en daarin is...
+- [Hoe de nieuwe box 3 slagzij maakte in het zicht van de haven](https://fd.nl/politiek/1587573/hoe-de-nieuwe-box-3-slagzij-maakte-in-het-zicht-van-de-haven)
+  > De nieuwe belasting op vermogensinkomen in box 3 moet terug naar de tekentafel. Dat terwijl de Tweede Kamer er al mee had ingestemd. De tegenlobby...
+- [Personalia zaterdag 28 februari](https://fd.nl/bedrijfsleven/1587703/personalia-zaterdag-28-februari)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
