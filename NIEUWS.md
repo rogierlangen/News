@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-02-2026 om 08:00*
+*Laatst bijgewerkt: 27-02-2026 om 11:05*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- ['Hackers hadden vijf maanden toegang tot gegevens DJI-medewerkers'](https://nos.nl/l/2604180)
-  > Hackers hadden minstens vijf maanden lang toegang tot de systemen van Dienst Justitiële Inrichtingen (DJI). Dat blijkt uit onderzoek van...
-- [Nieuwe klap voor Britse premier Starmer: Green Party wint zetel in Labour-bolwerk](https://nos.nl/l/2604175)
-  > Een ingelaste verkiezing in een kiesdistrict in Zuid-Manchester is uitgelopen op een nieuwe tegenvaller voor premier Keir Starmer. Na hier decennia...
-- [Odido-hackers publiceren opnieuw deel klantgegevens](https://nos.nl/l/2604172)
-  > De criminele hackersgroep ShinyHunters heeft vanochtend vroeg opnieuw een deel van de miljoenen gehackte klantgegevens van telecomprovider Odido...
-- [ING: Nederlandse beleggers investeren minder in de VS](https://nos.nl/l/2604171)
-  > Bijna een op de drie Nederlandse particuliere beleggers zegt minder te investeren in de Verenigde Staten. Door de geopolitieke spanningen tussen de...
-- [Wekdienst 27/2: Bill Clinton gehoord over Epstein • Pokémon bestaat 30 jaar](https://nos.nl/l/2604167)
-  > Goedemorgen! De voormalige Amerikaanse president Bill Clinton moet in de VS getuigen over zijn banden met Jeffrey Epstein, en Pokémon bestaat 30...
+- [Auteurs eisen dat Meta stopt met gebruik van hun werk om AI te trainen](https://nos.nl/l/2604225)
+  > Journalistenvakbond NVJ, de Auteursbond en schrijversvakbond Lira eisen dat Meta stopt met het gebruik van teksten van Nederlandse schrijvers,...
+- [Kabinet na tweedaags debat: fysieke uitdaging, maar toon was verademing](https://nos.nl/l/2604224)
+  > Na een tweedaags debat in de Tweede Kamer, waarbij ze alleen mochten luisteren, gaan de bewindspersonen van het nieuwe kabinet-Jetten vandaag dan...
+- [Technische storing Calandbrug bij Rotterdam na 24 uur nog niet verholpen](https://nos.nl/l/2604218)
+  > De Calandbrug in het Botlekgebied bij Rotterdam is na 24 uur nog altijd in beide richtingen dicht door een technische storing. De brug is gesloten...
+- [Bevrijding Cuba 'obsessie' voor Amerikaan die op speedboot werd doodgeschoten](https://nos.nl/l/2604213)
+  > De opvarenden van de speedboot die woensdag betrokken waren bij de schietpartij met de Cubaanse kustwacht, lijken voor het merendeel in de VS wonende...
+- [Loodgieter of buschauffeur als nieuwe influencer: 'Is herkenbaar'](https://nos.nl/l/2604184)
+  > Vergeet de Kardashians, de Jenners en de Hadid-zussen. Populariteit op sociale media is allang niet meer alleen weggelegd voor fotomodellen,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Peer Koopmeiners doet broer Teun na: ‘Deze variant hadden we al een tijdje geleden bedacht’](https://www.ad.nl/voetbal/peer-koopmeiners-doet-broer-teun-na-deze-variant-hadden-we-al-een-tijdje-geleden-bedacht~ad92bfd6/)
-  > De fraaie vrije trap waarmee Sven Mijnans AZ op een 2-0 voorsprong zette in de Conference League tegen FC Noah (4-0), deed denken aan de treffer van...
-- [‘Onbestaanbaar’: na DigiD wil Belastingdienst ook btw-software volledig in Amerikaanse handen leggen](https://www.ad.nl/politiek/onbestaanbaar-na-digid-wil-belastingdienst-ook-btw-software-volledig-in-amerikaanse-handen-leggen~ad912dc0/)
-  > Een Amerikaanse it-partij gaat mogelijk het hele Nederlandse btw-systeem beheren. Als het Trump behaagt, kan hij op deze manier bij politieke...
-- [‘Een accountant verklaart je voor gek’: de miljoenenbusiness achter onze tijdelijke theaters](https://www.ad.nl/show/een-accountant-verklaart-je-voor-gek-de-miljoenenbusiness-achter-onze-tijdelijke-theaters~a9a962d1/)
-  > Ze poppen overal in het land op: gigantische theaters die speciaal voor één enkele theaterproductie worden gebouwd of verbouwd. Van de hangar in...
-- [Studente vrijgelaten door ICE na tussenkomst New Yorkse burgemeester](https://www.ad.nl/buitenland/studente-vrijgelaten-door-ice-na-tussenkomst-new-yorkse-burgemeester~ae67dd9c/)
-  > Een studente van Columbia University in New York is vrijgekomen uit de hechtenis van de immigratiepolitie ICE na tussenkomst van burgemeester Zohran...
-- [‘Een smakeloze grap’: aanvoerster ijshockeyteam niet te spreken over opvallend telefoontje van Donald Trump](https://www.ad.nl/olympische-spelen/een-smakeloze-grap-aanvoerster-ijshockeyteam-niet-te-spreken-over-opvallend-telefoontje-van-donald-trump~aa6084b1/)
-  > Voor het eerst heeft een speelster van het Amerikaanse vrouwenijshockeyteam gereageerd op de opvallende woorden van Donald Trump, tijdens zijn...
+- [Twee opties tijdens loting: dit zijn de mogelijke tegenstanders van Liverpool](https://www.ad.nl/voetbal/twee-opties-tijdens-loting-dit-zijn-de-mogelijke-tegenstanders-van-liverpool~af5e6a39/)
+  > De zestien clubs die de achtste finales van de Champions League gaan spelen zijn bekend. Onder andere Real Madrid en titelhouder Paris Saint-Germain...
+- [Jutta verrast haar oma en verdrietig afscheid voor Sita](https://www.ad.nl/show/jutta-verrast-haar-oma-en-verdrietig-afscheid-voor-sita~a6af479a/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Praat mee: de eerste week van premier Jetten zit erop, wat vind je ervan?](https://www.ad.nl/praat-mee/praat-mee-de-eerste-week-van-premier-jetten-zit-erop-wat-vind-je-ervan~a70722441/)
+  > Premier Jetten heeft zijn eerste week erop zitten. Het tweedaagse debat met de Tweede Kamer over de regeringsverklaring is afgerond. In de Kwestie...
+- [Lionel Messi gevloerd door veldbestormer en beveiligers in oefenduel in Puerto Rico](https://www.ad.nl/voetbal/lionel-messi-gevloerd-door-veldbestormer-en-beveiligers-in-oefenduel-in-puerto-rico~a81fc90f/)
+  > Lionel Messi is in de nacht van donderdag op vrijdag tijdens een oefenwedstrijd op Puerto Rico gevloerd door een veldbestormer. Tegen het eind van...
+- [‘Ladies! Patrick Swayze is entering the room!’ Petra schreeuwt vriendinnen zo terug naar 1984](https://www.ad.nl/binnenland/ladies-patrick-swayze-is-entering-the-room-petra-schreeuwt-vriendinnen-zo-terug-naar-1984~a0854c6b/)
+  > Als Petra van Hoecke een tijdmachine had, zou die haar zonder omwegen naar de jaren 80 zoeven. De inwoner van Hoek gaat het liefst op rollerskates en...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Weg met de term ‘met een migratieachtergrond’, kies voor taal die verbindt en niet verdeelt](https://fd.nl/opinie/1587297/weg-met-de-term-met-een-migratieachtergrond-kies-voor-taal-die-verbindt-en-niet-verdeelt)
-  > Zolang we Nederlanders blijven aanduiden als ‘met een migratieachtergrond’, houden we zelf de scheidslijnen in stand die we zeggen te willen slechten.
-- [Kopzorgen voor Keir Starmer na pijnlijke nederlaag in tussentijdse verkiezing](https://fd.nl/politiek/1587686/kopzorgen-voor-keir-starmer-na-pijnlijke-nederlaag-in-tussentijdse-verkiezing)
-  > De Lagerhuiszetel van Gorton and Denton is traditioneel veilig voor Labour, maar de regeringspartij werd er donderdag rechts en links ingehaald door...
-- [Poolse regering wil verbod op sociale media voor kinderen tot vijftien jaar](https://fd.nl/politiek/1587687/poolse-regering-wil-verbod-op-sociale-media-voor-kinderen-tot-vijftien-jaar)
-  > De Poolse minister van onderwijs wil socialemediabedrijven boetes opleggen als ze hun platforms toegankelijk houden voor kinderen onder de...
-- [Paramount wint overnamestrijd om Warner Bros van Netflix](https://fd.nl/bedrijfsleven/1587685/paramount-wint-overnamestrijd-om-warner-bros-van-netflix)
-  > De streamingdienst komt niet met een hoger bod dan het laatste van $111 mrd. Dat betekent dat een maandenlange overnamestrijd is beslecht in het...
-- [Ingrediënten die de maaltijd een kick geven en kunst over ouderdom](https://fd.nl/samenleving/1587350/ingredienten-die-de-maaltijd-een-kick-geven-en-kunst-over-ouderdom)
-  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
+- [Belegger kan nu beter geld in Europa steken dan in de Verenigde Staten](https://fd.nl/financiele-markten/1587684/belegger-kan-nu-beter-geld-in-europa-steken-dan-in-de-verenigde-staten)
+  > In Europa staan de aandelenmarkten op recordniveaus, terwijl die in de Verenigde Staten achterblijven. Beleggers zien nu vooral risico’s in de VS, en...
+- [De kop van Jutta](https://fd.nl/samenleving/1587300/de-kop-van-jutta)
+  > Zelfs een olympische ster bestaat uitsluitend opdat anderen zich kunnen profileren met hun deugdzaamheid, ziet Joris van Os.
+- [Chinese hotelgiganten zitten marktleider Marriott op de hielen](https://fd.nl/samenleving/1587633/chinese-hotelgiganten-zitten-marktleider-marriott-op-de-hielen)
+  > Sinds dit jaar is in de hotelbranche een vijfde bedrijf toegetreden tot de ‘miljonairsclub’, bedrijven die meer dan een miljoen hotelkamers aanbieden.
+- [Deregulering gaat niet over de markt, maar over macht](https://fd.nl/opinie/1587428/deregulering-gaat-niet-over-de-markt-maar-over-macht)
+  > Europa wil minder regels om de concurrentiekracht te verbeteren. Maar deregulering is geen bevrijding van bedrijven, stelt Hans Stegeman, het zorgt...
+- [Anthropic geeft niet toe aan Pentagon in ruzie over AI-gebruik](https://fd.nl/tech-en-innovatie/1587804/anthropic-geeft-niet-toe-aan-pentagon-in-ruzie-over-ai-gebruik)
+  > Het Amerikaanse ministerie van oorlog wil dat het techbedrijf zijn gebruiksvoorwaarden voor AI-modellen versoepelt. Vrijdag eind van de dag loopt een...
 
 ### Meest gelezen
 
