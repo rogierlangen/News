@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-02-2026 om 08:56*
+*Laatst bijgewerkt: 28-02-2026 om 09:49*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Iran was voorbereid op een ‘onthoofdingsaanval’ en had ballistische raketten klaarstaan](https://www.ad.nl/buitenland/iran-was-voorbereid-op-een-onthoofdingsaanval-en-had-ballistische-raketten-klaarstaan~ab2d083a/)
-  > De Verenigde Staten zijn begonnen met aanvallen op Iran, nadat Israël had verklaard zijn langdurige regionale tegenstander te hebben aangevallen. Het...
-- [Israël meldt Iraanse raketlanceringen, luchtalarm in Noord-Israël](https://www.ad.nl/buitenland/israel-meldt-iraanse-raketlanceringen-luchtalarm-in-noord-israel~a58f8358/)
-  > Iran heeft raketten afgevuurd in de richting van Israël, meldt het Israëlische leger op X. In het noorden van Israël gaat het luchtalarm af en worden...
-- [Trump: we maken Irans raketprogramma met de grond gelijk](https://www.ad.nl/buitenland/trump-we-maken-irans-raketprogramma-met-de-grond-gelijk~aae5d620/)
-  > De Amerikaanse president Donald Trump heeft in een video op Truth Social bevestigd dat zijn land bezig is met een luchtaanval op Iran.
-- [Trump roept Iraniërs op in opstand te komen](https://www.ad.nl/buitenland/trump-roept-iraniers-op-in-opstand-te-komen~a194d5ce/)
-  > De Amerikaanse president Donald Trump heeft de Iraanse bevolking opgeroepen om in opstand te komen tegen het regime, als de Amerikaanse en...
-- [LIVE Midden-Oosten | Eerste golf Iraanse raketten richting Israël, Trump zegt dat in Iran ‘overal bommen gaan vallen’](https://www.ad.nl/buitenland/live-midden-oosten-eerste-golf-iraanse-raketten-richting-israel-trump-zegt-dat-in-iran-overal-bommen-gaan-vallen~ac528ac3/)
-  > Iran heeft raketten afgevuurd in de richting van Israël, meldt het Israëlische leger op X. In het noorden van Israël gaat het luchtalarm af en worden...
+- [Fien is op kantoor bang voor virussen, maar mag niet thuiswerken: ‘Je bent toch niet van porselein, hoor ik dan’](https://www.ad.nl/economie/fien-is-op-kantoor-bang-voor-virussen-maar-mag-niet-thuiswerken-je-bent-toch-niet-van-porselein-hoor-ik-dan~ae8031c1/)
+  > Juridisch medewerker Fien (54) heeft longemfyseem, waardoor ze extreem op haar hoede is om geen virus op te lopen, zeker op kantoor. Van haar baas...
+- [LIVE Midden-Oosten | Iran vuurt raketten af op Israël: ‘krachtige explosies’ in Jeruzalem, inwoners ontvluchten Teheran](https://www.ad.nl/buitenland/live-midden-oosten-iran-vuurt-raketten-af-op-israel-krachtige-explosies-in-jeruzalem-inwoners-ontvluchten-teheran~ac528ac3/)
+  > Volgens het Duitse persbureau dpa proberen Iraniërs in groten getale om de hoofdstad Teheran te ontvluchten. Die stad werd geraakt door de...
+- [Jamie Trenité verwelkomt zoontje Luca](https://www.ad.nl/show/jamie-trenite-verwelkomt-zoontje-luca~a0e8056a/)
+  > Jamie Trenité is opnieuw vader van een zoon geworden. De presentator maakte de geboorte van het jongetje zaterdag wereldkundig via Instagram.
+- [Wat kost wonen in een verpleeghuis? ‘Hoogte eigen bijdrage verschilt per persoon’](https://www.ad.nl/wonen/wat-kost-wonen-in-een-verpleeghuis-hoogte-eigen-bijdrage-verschilt-per-persoon~a73a421b/)
+  > De meeste ouderen willen anno 2026 zo lang mogelijk thuis blijven wonen. Soms gaat dat echt niet meer, bijvoorbeeld omdat de partner wegvalt en...
+- [Gerard Joling : ‘Ik ben net een groot kind in een speeltuin, maar dit jaar gaat de rem er wel op’](https://www.ad.nl/show/gerard-joling-ik-ben-net-een-groot-kind-in-een-speeltuin-maar-dit-jaar-gaat-de-rem-er-wel-op~a1638945/)
+  > Joling-overkill? Welnee. Het Nederlandse (tv-)publiek zweert juist bij Gerard Joling (65), die vorig jaar scoorde met zijn realityserie Only Joling....
 
 ### Meest gelezen
 
