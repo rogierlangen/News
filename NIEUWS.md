@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-02-2026 om 21:39*
+*Laatst bijgewerkt: 28-02-2026 om 22:49*
 
 ---
 
@@ -11,7 +11,7 @@
 - [Escalatie in de Golf: Iraanse raketten dwingen regio tot keuze](https://nos.nl/l/2604437)
   > Waar in de Golfstaten al maanden voor werd gevreesd, is nu echt gebeurd. Het conflict tussen Iran en Israël heeft zich uitgebreid naar de rest van de...
 - [Bijna twee ton voor olympisch pak Jutta Leerdam, deel voor oude ijsvereniging](https://nos.nl/l/2604436)
-  > Het schaatspak dat Jutta Leerdam droeg op de Olympische Spelen is geveild voor 195.000 euro. Op een veiling van NOS*NSF en het veilingplatform...
+  > Het schaatspak dat Jutta Leerdam droeg op de Olympische Spelen is geveild voor 195.000 euro. Op een veiling van NOC*NSF en het veilingplatform...
 - [Gestrand in het Midden-Oosten: 'We zagen het spoor van een raket, doodeng'](https://nos.nl/l/2604423)
   > De aanvallen tussen Israël, de Verenigde Staten en Iran hebben invloed op het hele Midden-Oosten. De reisadviezen voor Irak, Israël, Libanon en...
 - [Blokkade Straat van Hormuz leidt tot spanning op oliemarkt en bij scheepvaart](https://nos.nl/l/2604420)
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Stunt in de maak in Nijmegen: Fortuna leidt bij NEC, hoofdrol Mohamed Ihattaren bij twee goals](https://www.ad.nl/voetbal/stunt-in-de-maak-in-nijmegen-fortuna-leidt-bij-nec-hoofdrol-mohamed-ihattaren-bij-twee-goals~a36d05ed/)
-  > NEC is met Feyenoord en Ajax verwikkeld in een strijd om plek 2. De Nijmegenaren mogen dus geen fout maken nu Fortuna Sittard op bezoek komt. Volg...
+- [Stand eredivisie | PSV weer stap dichter bij landstitel, NEC loopt opnieuw averij op in race om plek 2](https://www.ad.nl/voetbal/stand-eredivisie-psv-weer-stap-dichter-bij-landstitel-nec-loopt-opnieuw-averij-op-in-race-om-plek-2~adadd191/)
+  > Bekijk hier de stand in de eredivisie. Daaronder zijn het programma en de topscorersranglijst te vinden.
+- [Pijnlijke uitglijder NEC in strijd om plek 2: Ihattaren grijpt hoofdrol bij zege Fortuna](https://www.ad.nl/voetbal/pijnlijke-uitglijder-nec-in-strijd-om-plek-2-ihattaren-grijpt-hoofdrol-bij-zege-fortuna~a36d05ed/)
+  > NEC heeft een pijnlijke nederlaag geleden in de VriendenLoterij Eredivisie. De ploeg van trainer Dick Schreuder verspeelde in eigen huis tegen...
 - [Lichaam Mexicaanse drugsbaron ‘El Mencho’ aan familie overgedragen](https://www.ad.nl/buitenland/lichaam-mexicaanse-drugsbaron-el-mencho-aan-familie-overgedragen~a55edc29/)
   > De Mexicaanse autoriteiten hebben het lichaam van Nemesio Oseguera Cervantes, bekend als ‘El Mencho’, teruggegeven aan zijn familie nadat hij vorige...
 - [Terwijl Thialf de olympische sterren huldigt, lopen de emoties in de catacomben hoog op](https://www.ad.nl/schaatsen/terwijl-thialf-de-olympische-sterren-huldigt-lopen-de-emoties-in-de-catacomben-hoog-op~a94fa71e/)
   > Schaatsfeest, dweilorkest, huldigingen: alle sterren bij elkaar. Aan de oppervlakte was de eerste dag van het NK sprint en allround een mooi...
 - [Geer is weer helemaal zichzelf in Only Joling: ‘Jij moet gewoon effe lekker je muil houden’](https://www.ad.nl/show/geer-is-weer-helemaal-zichzelf-in-only-joling-jij-moet-gewoon-effe-lekker-je-muil-houden~ae2b31f4/)
   > Het eerste seizoen van zijn reallifesoap was zo’n succes dat een vervolg niet kon uitblijven. Ook in de nieuwe reeks, die zaterdagavond is gestart,...
-- [Bayern München steviger aan kop in Bundesliga dankzij late zege bij naaste belager Borussia Dortmund](https://www.ad.nl/voetbal/bayern-munchen-steviger-aan-kop-in-bundesliga-dankzij-late-zege-bij-naaste-belager-borussia-dortmund~adb5a0fa/)
-  > Koploper Bayern München heeft de topper tegen nummer 2 Borussia Dortmund met 3-2 gewonnen. Bayern breidde zodoende de voorsprong in de Bundesliga uit...
 
 ### Meest gelezen
 
@@ -50,7 +50,7 @@
   > Kritiek op het regeerakkoord is er soms te horen op het D66-congres, maar de leden zijn vooral blij dat hun partij voor het eerst de premier mag...
 - [Uitschakelen drugsbaas maakt Mexico nog niet veiliger](https://fd.nl/politiek/1587701/uitschakelen-drugsbaas-maakt-mexico-nog-niet-veiliger)
   > Ondanks de dood van kartelbaas El Mencho blijft Mexico worstelen met hardnekkige problemen als geweld en corruptie. Het uitschakelen van een kopstuk...
-- [Live: VS en Israël voeren aanvallen uit op Iran - onzekerheid over lot Khamenei](https://fd.nl/politiek/1587753/live-israel-voert-aanval-uit-op-teheran)
+- [Live: Trump claimt dood Iraanse leider Khamenei na aanvallen VS en Israël](https://fd.nl/politiek/1587753/live-israel-voert-aanval-uit-op-teheran)
   > Israël en de Verenigde Staten hebben zaterdag zware luchtaanvallen uitgevoerd op Iran. Teheran reageert met tegenaanvallen op Israël en de Golfstaten.
 - [‘Laten we ophouden met halfslachtige box 3-compromissen die opnieuw tot ophef leiden’](https://fd.nl/opinie/1587707/laten-we-ophouden-met-halfslachtige-box-3-compromissen-die-opnieuw-tot-ophef-leiden-en-andere-lezersreacties)
   > FD-lezers reageren volop op het nieuws én de columns en opiniebijdragen over box 3, de vrijheidsbijdrage en de echte bedreiging bij datalekken,...
