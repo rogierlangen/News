@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-02-2026 om 04:35*
+*Laatst bijgewerkt: 28-02-2026 om 05:58*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Militairen trainen in steenkoud Litouwen: wakduiken en slapen in de buitenlucht](https://nos.nl/l/2604314)
+  > Alleen de tijd zal leren of het tot een strijd komt tussen de NAVO en Rusland. Maar áls het gebeurt, dan vermoedelijk aan de oostgrens: een honderden...
 - [Trump aan overheid: zet samenwerking met AI-bedrijf Anthropic stop](https://nos.nl/l/2604310)
   > President Trump zegt dat hij de Amerikaanse overheid opdracht heeft gegeven om samenwerking met AI-bedrijf Anthropic stop te zetten. Trump voegde...
 - [Brand in container met fietsaccu's Wijchen](https://nos.nl/l/2604309)
@@ -16,8 +18,6 @@
   > Geen kostbare vaas of klok, maar een slapende uil bleek deze maand de opmerkelijkste ontdekking in een antiekwinkel in het Amerikaanse East Durham....
 - [Halsbandparkieten zorgen voor gevaarlijke situatie bij verbouwing Binnenhof](https://nos.nl/l/2604307)
   > Rondvliegende halsbandparkieten veroorzaken schade bij de verbouwing van het Binnenhof-complex in Den Haag. Volgens Omroep West knagen de vogels aan...
-- [Zanger en songwriter Neil Sedaka (86) overleden](https://nos.nl/l/2604306)
-  > De Amerikaanse zanger en songwriter Neil Sedaka is op 86-jarige leeftijd overleden. Hij scoorde hits met nummers als Laughter in the Rain, Bad Blood...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zwangere vrouw levert flink in door kabinetsplannen: ‘Raakt 25.000 vrouwen’](https://www.ad.nl/economie/zwangere-vrouw-levert-flink-in-door-kabinetsplannen-raakt-25-000-vrouwen~a89bdb75a/)
-  > Het kabinet wil het maximumdagloon voor uitkeringen flink verlagen. Door deze nieuwe maatregel leveren vrouwen uiteindelijk duizenden euro’s in. Want...
-- [AI-bedrijf Anthropic naar de rechter na ban van Pentagon om weigeren beveiliging op te heffen](https://www.ad.nl/tech/ai-bedrijf-anthropic-naar-de-rechter-na-ban-van-pentagon-om-weigeren-beveiliging-op-te-heffen~ae04021a/)
-  > AI-ontwikkelaar Anthropic stapt naar de rechter om de beslissing van het Pentagon om het bedrijf aan te merken als een risico in de...
-- [VS: Pakistan heeft recht zichzelf te verdedigen tegen Taliban, EU roept op tot de-escalatie](https://www.ad.nl/buitenland/vs-pakistan-heeft-recht-zichzelf-te-verdedigen-tegen-taliban-eu-roept-op-tot-de-escalatie~a222a58f8/)
-  > De Verenigde Staten hebben steun uitgesproken voor Pakistan, dat vrijdag een ‘open oorlog’ verklaarde aan de Afghaanse Taliban. ‘Pakistan heeft het...
-- [Ozb blijft stijgen: ‘Rekening komt telkens bij huiseigenaren’](https://www.ad.nl/economie/ozb-blijft-stijgen-rekening-komt-telkens-bij-huiseigenaren~a9d52c3fc/)
-  > Veel huiseigenaren zijn helemaal klaar met de jaarlijkse verhogingen van de onroerendezaakbelasting (ozb) en de onduidelijkheid over de berekening...
-- [Boliviaans legervliegtuig dat bankbiljetten vervoerde crasht: 15 doden en tumult om het geld](https://www.ad.nl/buitenland/boliviaans-legervliegtuig-dat-bankbiljetten-vervoerde-crasht-15-doden-en-tumult-om-het-geld~a141b105/)
-  > Een vliegtuig van de Boliviaanse luchtmacht is vrijdag neergestort in de stad El Alto, nabij de hoofdstad La Paz. Het vliegtuig vervoerde volgens...
+- [Piloot Amber (34) en haar man kochten vlak voor de bevalling een nieuw huis: ‘De badkamer was al besteld’](https://www.ad.nl/wonen/piloot-amber-34-en-haar-man-kochten-vlak-voor-de-bevalling-een-nieuw-huis-de-badkamer-was-al-besteld~ab0f2bcc/)
+  > Toen piloot Amber Visser (34) zwanger bleek, gingen zij en haar man haastig op zoek naar een groter huis. ‘We wilden in Amsterdam-Noord blijven. Dat...
+- [Gezin met vier kinderen vast in Argentinië: ‘Na 2 weken wil fabrikant dat we 900 kilometer rijden’](https://www.ad.nl/buitenland/gezin-met-vier-kinderen-vast-in-argentinie-na-2-weken-wil-fabrikant-dat-we-900-kilometer-rijden~ac200ea99/)
+  > „We zitten vast. Niet in de modder, niet door schade of een onderdeel, maar door stomme software. En niemand hier kan de foutcode oplossen”, aldus...
+- [Goedkope ‘milieubenzine’ E20 kan straks motorschade veroorzaken](https://www.ad.nl/auto/goedkope-milieubenzine-e20-kan-straks-motorschade-veroorzaken~af3a6f5f/)
+  > Na E5 en E10 maakt Duitsland zich op voor een nieuwe brandstof: E20. Deze benzine met 20 procent ethanol moet vanaf volgend jaar geleidelijk in de...
+- [Hoe een vervuilde olie wereldwijd babyvoeding besmette: nieuwe productielijn zette Nestlé op verkeerd spoor](https://www.ad.nl/economie/hoe-een-vervuilde-olie-wereldwijd-babyvoeding-besmette-nieuwe-productielijn-zette-nestle-op-verkeerd-spoor~a2d93c81/)
+  > Een nieuwe productielijn, extra controles en tóch giftige stoffen in babymelkpoeder: hoe kon dat gebeuren bij de Nestlé-fabriek in Nunspeet? Trok de...
+- [Door het oog van de naald: peuter valt 30 meter naar beneden, verpleegsters vangen hem op met jas](https://www.ad.nl/buitenland/door-het-oog-van-de-naald-peuter-valt-30-meter-naar-beneden-verpleegsters-vangen-hem-op-met-jas~ac1e48c7/)
+  > Om het doodsbenauwd van te krijgen: een peuter viel in Rusland uit een open raam, 30 meter naar beneden. Twee verpleegsters vingen hem op miraculeuze...
 
 ### Meest gelezen
 
