@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-02-2026 om 07:16*
+*Laatst bijgewerkt: 28-02-2026 om 08:56*
 
 ---
 
@@ -11,7 +11,7 @@
 - [Wekdienst 28/2: Congres D66 • Einde meteorologische winter](https://nos.nl/l/2604321)
   > Goedemorgen! 
         Eerst het weer: het is overwegend bewolkt en er trekken buien over het land. Daarbij waait een stevige zuidwestenwind en vooral...
-- [Israël en VS voeren aanvallen uit op Iraanse hoofdstad Teheran](https://nos.nl/l/2604318)
+- [Israël en VS voeren aanvallen uit op Teheran en andere Iraanse steden](https://nos.nl/l/2604318)
   > Israël en de Verenigde Staten voeren gezamenlijk aanvallen uit op Iran. Er zijn explosies in de hoofdstad Teheran en er hangen dikke rookwolken boven...
 - [Podcast De Dag: de ontgroening van premier Jetten](https://nos.nl/l/2604315)
   > De eerste week van kersvers D66-premier Rob Jetten zit erop. De beëdiging, het bordes, de nieuwe werkkamer, het eerste debat als minister-president...
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Afmeldingen, aanwijsplekken en revanchekansen: vier vragen en antwoorden over de NK sprint en allround](https://www.ad.nl/schaatsen/afmeldingen-aanwijsplekken-en-revanchekansen-vier-vragen-en-antwoorden-over-de-nk-sprint-en-allround~a1d70921/)
-  > Een week na de Olympische Spelen is het allesbehalve stil in de Nederlandse schaatswereld. In aanloop naar de NK en WK sprint en allround in Thialf...
-- [NK allround en NK sprint: de deelnemers en het programma in Thialf](https://www.ad.nl/schaatsen/programma-deelnemers-nk-sprint-allround-thialf~a353ad79/)
-  > De Olympische Winterspelen zijn net afgelopen of het volgende toernooi staat alweer voor de deur. De schaatsers komen dit weekend in Thialf in actie...
-- [Wekker zetten voor start F1-seizoen: zo vroeg komt Max Verstappen in actie in Melbourne](https://www.ad.nl/formule-1/wekker-zetten-voor-start-f1-seizoen-zo-vroeg-komt-max-verstappen-in-actie-in-melbourne~a71841049/)
-  > Het nieuwe Formule 1-seizoen gaat na zes testdagen in Bahrein nu echt beginnen. Max Verstappen hoopt met zijn nieuwe Red Bull Racing het...
-- [Aanval op Odido gaat door, opnieuw klantgegevens online gezet: ‘We hebben jullie een kans gegeven’](https://www.ad.nl/tech/aanval-op-odido-gaat-door-opnieuw-klantgegevens-online-gezet-we-hebben-jullie-een-kans-gegeven~a9b54b7c/)
-  > Hackersgroep ShinyHunters heeft voor de derde dag op rij gestolen klantgegevens van Odido online gezet. Daarbij stellen de hackers opnieuw dat Odido...
-- [Amerika en Israël vallen Iran aan, explosies in Teheran](https://www.ad.nl/buitenland/amerika-en-israel-vallen-iran-aan-explosies-in-teheran~a75f3193/)
-  > De Verenigde Staten en Israël hebben een grootschalige gecombineerde militaire aanval ingezet op Iran. Getuigen in Teheran melden zware explosies en...
+- [Iran was voorbereid op een ‘onthoofdingsaanval’ en had ballistische raketten klaarstaan](https://www.ad.nl/buitenland/iran-was-voorbereid-op-een-onthoofdingsaanval-en-had-ballistische-raketten-klaarstaan~ab2d083a/)
+  > De Verenigde Staten zijn begonnen met aanvallen op Iran, nadat Israël had verklaard zijn langdurige regionale tegenstander te hebben aangevallen. Het...
+- [Israël meldt Iraanse raketlanceringen, luchtalarm in Noord-Israël](https://www.ad.nl/buitenland/israel-meldt-iraanse-raketlanceringen-luchtalarm-in-noord-israel~a58f8358/)
+  > Iran heeft raketten afgevuurd in de richting van Israël, meldt het Israëlische leger op X. In het noorden van Israël gaat het luchtalarm af en worden...
+- [Trump: we maken Irans raketprogramma met de grond gelijk](https://www.ad.nl/buitenland/trump-we-maken-irans-raketprogramma-met-de-grond-gelijk~aae5d620/)
+  > De Amerikaanse president Donald Trump heeft in een video op Truth Social bevestigd dat zijn land bezig is met een luchtaanval op Iran.
+- [Trump roept Iraniërs op in opstand te komen](https://www.ad.nl/buitenland/trump-roept-iraniers-op-in-opstand-te-komen~a194d5ce/)
+  > De Amerikaanse president Donald Trump heeft de Iraanse bevolking opgeroepen om in opstand te komen tegen het regime, als de Amerikaanse en...
+- [LIVE Midden-Oosten | Eerste golf Iraanse raketten richting Israël, Trump zegt dat in Iran ‘overal bommen gaan vallen’](https://www.ad.nl/buitenland/live-midden-oosten-eerste-golf-iraanse-raketten-richting-israel-trump-zegt-dat-in-iran-overal-bommen-gaan-vallen~ac528ac3/)
+  > Iran heeft raketten afgevuurd in de richting van Israël, meldt het Israëlische leger op X. In het noorden van Israël gaat het luchtalarm af en worden...
 
 ### Meest gelezen
 
@@ -47,14 +47,14 @@
 
 ### Laatste nieuws
 
-- [Live: Israël voert aanval uit op Teheran](https://fd.nl/politiek/1587753/live-israel-voert-aanval-uit-op-teheran)
-  > Israël zegt een ‘preventie aanval’ te hebben uitgevoerd op Teheran. Daar waren grote explosies te horen.
+- [Live: Israël en de VS voeren aanvallen uit op Iran](https://fd.nl/politiek/1587753/live-israel-voert-aanval-uit-op-teheran)
+  > Israël en de Verenigde Staten hebben aanvallen uitgevoerd op doelen in Iran. In de hoofdstad Teheran zijn grote explosies te horen. Iran bereidt zich...
 - [‘Laten we ophouden met halfslachtige box 3-compromissen die opnieuw tot ophef leiden’](https://fd.nl/opinie/1587707/laten-we-ophouden-met-halfslachtige-box-3-compromissen-die-opnieuw-tot-ophef-leiden-en-andere-lezersreacties)
   > FD-lezers reageren volop op het nieuws én de columns en opiniebijdragen over box 3, de vrijheidsbijdrage en de echte bedreiging bij datalekken,...
 - [Drie keer Box 3, en is de handelsoorlog nu voorbij?](https://fd.nl/economie/1587833/drie-keer-box-3-en-is-de-handelsoorlog-nu-voorbij)
   > In deze Toegevoegde Waarde onderzoeken Anna Dijkman en Marijn Jongsma Trumps opties na de onwettigverklaring van zijn importheffingen en de...
 - [Pentagon verbiedt Anthropic, bestempelt dienst tot risico voor nationale veiligheid](https://fd.nl/bedrijfsleven/1587852/pentagon-verbiedt-anthropic-bestempelt-dienst-tot-risico-voor-nationale-veiligheid)
-  > Leverancier van AI-dienst Claude mag niet meer voor het Pentagon of zijn toeleveranciers werken.
+  > De leverancier van Claude mag niet meer voor het Pentagon of zijn toeleveranciers werken, omdat het weigert zijn AI-toepassingen voor autonome wapens...
 - [Rijksuniversiteit Groningen wil van big tech af, maar dat valt niet mee. ‘Het zit overal’](https://fd.nl/tech-en-innovatie/1587593/rijksuniversiteitgroningen-wil-van-big-tech-af-maar-dat-valt-niet-mee-het-zit-overal)
   > Uit vrees dat Donald Trump IT-systemen als machtsmiddel gebruikt, zoekt de Rijksuniversiteit Groningen alternatieven voor big tech. Die moeten bij...
 
