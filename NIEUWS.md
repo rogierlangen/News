@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-02-2026 om 09:49*
+*Laatst bijgewerkt: 28-02-2026 om 10:50*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Fien is op kantoor bang voor virussen, maar mag niet thuiswerken: ‘Je bent toch niet van porselein, hoor ik dan’](https://www.ad.nl/economie/fien-is-op-kantoor-bang-voor-virussen-maar-mag-niet-thuiswerken-je-bent-toch-niet-van-porselein-hoor-ik-dan~ae8031c1/)
-  > Juridisch medewerker Fien (54) heeft longemfyseem, waardoor ze extreem op haar hoede is om geen virus op te lopen, zeker op kantoor. Van haar baas...
-- [LIVE Midden-Oosten | Iran vuurt raketten af op Israël: ‘krachtige explosies’ in Jeruzalem, inwoners ontvluchten Teheran](https://www.ad.nl/buitenland/live-midden-oosten-iran-vuurt-raketten-af-op-israel-krachtige-explosies-in-jeruzalem-inwoners-ontvluchten-teheran~ac528ac3/)
-  > Volgens het Duitse persbureau dpa proberen Iraniërs in groten getale om de hoofdstad Teheran te ontvluchten. Die stad werd geraakt door de...
-- [Jamie Trenité verwelkomt zoontje Luca](https://www.ad.nl/show/jamie-trenite-verwelkomt-zoontje-luca~a0e8056a/)
-  > Jamie Trenité is opnieuw vader van een zoon geworden. De presentator maakte de geboorte van het jongetje zaterdag wereldkundig via Instagram.
-- [Wat kost wonen in een verpleeghuis? ‘Hoogte eigen bijdrage verschilt per persoon’](https://www.ad.nl/wonen/wat-kost-wonen-in-een-verpleeghuis-hoogte-eigen-bijdrage-verschilt-per-persoon~a73a421b/)
-  > De meeste ouderen willen anno 2026 zo lang mogelijk thuis blijven wonen. Soms gaat dat echt niet meer, bijvoorbeeld omdat de partner wegvalt en...
-- [Gerard Joling : ‘Ik ben net een groot kind in een speeltuin, maar dit jaar gaat de rem er wel op’](https://www.ad.nl/show/gerard-joling-ik-ben-net-een-groot-kind-in-een-speeltuin-maar-dit-jaar-gaat-de-rem-er-wel-op~a1638945/)
-  > Joling-overkill? Welnee. Het Nederlandse (tv-)publiek zweert juist bij Gerard Joling (65), die vorig jaar scoorde met zijn realityserie Only Joling....
+- [Bertrie verrast met ‘nieuwe’ coupe en Samantha viert het koperen huwelijk](https://www.ad.nl/show/bertrie-verrast-met-nieuwe-coupe-en-samantha-viert-het-koperen-huwelijk~a6af479a/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [LIVE Midden-Oosten | Iran neemt wraak met aanval in zeven landen, Israël wil Iraanse president doden](https://www.ad.nl/buitenland/live-midden-oosten-iran-neemt-wraak-met-aanval-in-zeven-landen-israel-wil-iraanse-president-doden~ac528ac3/)
+  > Het Iraanse leger heeft bevestigd dat het aanvallen heeft uitgevoerd op Amerikaanse bases in de regio. Het betreft Amerikaanse militaire doelen in...
+- [Veen en Hollaar snelste op 500 meter, olympiërs Conijn en Bosker beginnen NK in top tien](https://www.ad.nl/schaatsen/veen-en-hollaar-snelste-op-500-meter-olympiers-conijn-en-bosker-beginnen-nk-in-top-tien~a4f50186e/)
+  > De Olympische Winterspelen zijn net afgelopen of de NK allround en sprint staan alweer op het programma. Meerdere olympiërs strijden voor de...
+- [Bitcoin daalt in waarde na aanvallen op Iran](https://www.ad.nl/economie/bitcoin-daalt-in-waarde-na-aanvallen-op-iran~a5cb5bd7/)
+  > Bitcoin en andere cryptomunten zijn scherp in waarde gedaald nadat Israël zaterdag aankondigde een preventieve aanval op Iran te hebben uitgevoerd.
+- [Midden-Oosten op rand van grote oorlog? ‘Lijkt erop dat Trumps geduld op was’](https://www.ad.nl/buitenland/midden-oosten-op-rand-van-grote-oorlog-lijkt-erop-dat-trumps-geduld-op-was~a3cc0365/)
+  > Israël en de VS voerden vanochtend vroeg snelle aanvallen uit op Iran, na weken van onrust en diplomatie. Waarom juist nu, en wat kunnen we de...
 
 ### Meest gelezen
 
@@ -47,8 +47,8 @@
 
 ### Laatste nieuws
 
-- [Live: Israël en de VS voeren aanvallen uit op Iran](https://fd.nl/politiek/1587753/live-israel-voert-aanval-uit-op-teheran)
-  > Israël en de Verenigde Staten hebben aanvallen uitgevoerd op doelen in Iran. In de hoofdstad Teheran zijn grote explosies te horen. Iran bereidt zich...
+- [Live: Israël en de VS voeren aanvallen uit op Iran; Trump zet in op wisseling regime](https://fd.nl/politiek/1587753/live-israel-voert-aanval-uit-op-teheran)
+  > Israël en de Verenigde Staten hebben aanvallen uitgevoerd op doelen in Iran. In diverse steden zijn explosies te horen. De Amerikaanse president wil...
 - [‘Laten we ophouden met halfslachtige box 3-compromissen die opnieuw tot ophef leiden’](https://fd.nl/opinie/1587707/laten-we-ophouden-met-halfslachtige-box-3-compromissen-die-opnieuw-tot-ophef-leiden-en-andere-lezersreacties)
   > FD-lezers reageren volop op het nieuws én de columns en opiniebijdragen over box 3, de vrijheidsbijdrage en de echte bedreiging bij datalekken,...
 - [Drie keer Box 3, en is de handelsoorlog nu voorbij?](https://fd.nl/economie/1587833/drie-keer-box-3-en-is-de-handelsoorlog-nu-voorbij)
