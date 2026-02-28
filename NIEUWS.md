@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-02-2026 om 05:58*
+*Laatst bijgewerkt: 28-02-2026 om 07:16*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Wekdienst 28/2: Congres D66 • Einde meteorologische winter](https://nos.nl/l/2604321)
+  > Goedemorgen! 
+        Eerst het weer: het is overwegend bewolkt en er trekken buien over het land. Daarbij waait een stevige zuidwestenwind en vooral...
+- [Israël en VS voeren aanvallen uit op Iraanse hoofdstad Teheran](https://nos.nl/l/2604318)
+  > Israël en de Verenigde Staten voeren gezamenlijk aanvallen uit op Iran. Er zijn explosies in de hoofdstad Teheran en er hangen dikke rookwolken boven...
+- [Podcast De Dag: de ontgroening van premier Jetten](https://nos.nl/l/2604315)
+  > De eerste week van kersvers D66-premier Rob Jetten zit erop. De beëdiging, het bordes, de nieuwe werkkamer, het eerste debat als minister-president...
 - [Militairen trainen in steenkoud Litouwen: wakduiken en slapen in de buitenlucht](https://nos.nl/l/2604314)
   > Alleen de tijd zal leren of het tot een strijd komt tussen de NAVO en Rusland. Maar áls het gebeurt, dan vermoedelijk aan de oostgrens: een honderden...
 - [Trump aan overheid: zet samenwerking met AI-bedrijf Anthropic stop](https://nos.nl/l/2604310)
   > President Trump zegt dat hij de Amerikaanse overheid opdracht heeft gegeven om samenwerking met AI-bedrijf Anthropic stop te zetten. Trump voegde...
-- [Brand in container met fietsaccu's Wijchen](https://nos.nl/l/2604309)
-  > Op een industrieterrein aan de rand van Wijchen (Gelderland) heeft brand gewoed in een container met fietsaccu's. De brand werd kort na middernacht...
-- [Slapende uil tussen curiosa in Amerikaanse antiekwinkel](https://nos.nl/l/2604308)
-  > Geen kostbare vaas of klok, maar een slapende uil bleek deze maand de opmerkelijkste ontdekking in een antiekwinkel in het Amerikaanse East Durham....
-- [Halsbandparkieten zorgen voor gevaarlijke situatie bij verbouwing Binnenhof](https://nos.nl/l/2604307)
-  > Rondvliegende halsbandparkieten veroorzaken schade bij de verbouwing van het Binnenhof-complex in Den Haag. Volgens Omroep West knagen de vogels aan...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Piloot Amber (34) en haar man kochten vlak voor de bevalling een nieuw huis: ‘De badkamer was al besteld’](https://www.ad.nl/wonen/piloot-amber-34-en-haar-man-kochten-vlak-voor-de-bevalling-een-nieuw-huis-de-badkamer-was-al-besteld~ab0f2bcc/)
-  > Toen piloot Amber Visser (34) zwanger bleek, gingen zij en haar man haastig op zoek naar een groter huis. ‘We wilden in Amsterdam-Noord blijven. Dat...
-- [Gezin met vier kinderen vast in Argentinië: ‘Na 2 weken wil fabrikant dat we 900 kilometer rijden’](https://www.ad.nl/buitenland/gezin-met-vier-kinderen-vast-in-argentinie-na-2-weken-wil-fabrikant-dat-we-900-kilometer-rijden~ac200ea99/)
-  > „We zitten vast. Niet in de modder, niet door schade of een onderdeel, maar door stomme software. En niemand hier kan de foutcode oplossen”, aldus...
-- [Goedkope ‘milieubenzine’ E20 kan straks motorschade veroorzaken](https://www.ad.nl/auto/goedkope-milieubenzine-e20-kan-straks-motorschade-veroorzaken~af3a6f5f/)
-  > Na E5 en E10 maakt Duitsland zich op voor een nieuwe brandstof: E20. Deze benzine met 20 procent ethanol moet vanaf volgend jaar geleidelijk in de...
-- [Hoe een vervuilde olie wereldwijd babyvoeding besmette: nieuwe productielijn zette Nestlé op verkeerd spoor](https://www.ad.nl/economie/hoe-een-vervuilde-olie-wereldwijd-babyvoeding-besmette-nieuwe-productielijn-zette-nestle-op-verkeerd-spoor~a2d93c81/)
-  > Een nieuwe productielijn, extra controles en tóch giftige stoffen in babymelkpoeder: hoe kon dat gebeuren bij de Nestlé-fabriek in Nunspeet? Trok de...
-- [Door het oog van de naald: peuter valt 30 meter naar beneden, verpleegsters vangen hem op met jas](https://www.ad.nl/buitenland/door-het-oog-van-de-naald-peuter-valt-30-meter-naar-beneden-verpleegsters-vangen-hem-op-met-jas~ac1e48c7/)
-  > Om het doodsbenauwd van te krijgen: een peuter viel in Rusland uit een open raam, 30 meter naar beneden. Twee verpleegsters vingen hem op miraculeuze...
+- [Afmeldingen, aanwijsplekken en revanchekansen: vier vragen en antwoorden over de NK sprint en allround](https://www.ad.nl/schaatsen/afmeldingen-aanwijsplekken-en-revanchekansen-vier-vragen-en-antwoorden-over-de-nk-sprint-en-allround~a1d70921/)
+  > Een week na de Olympische Spelen is het allesbehalve stil in de Nederlandse schaatswereld. In aanloop naar de NK en WK sprint en allround in Thialf...
+- [NK allround en NK sprint: de deelnemers en het programma in Thialf](https://www.ad.nl/schaatsen/programma-deelnemers-nk-sprint-allround-thialf~a353ad79/)
+  > De Olympische Winterspelen zijn net afgelopen of het volgende toernooi staat alweer voor de deur. De schaatsers komen dit weekend in Thialf in actie...
+- [Wekker zetten voor start F1-seizoen: zo vroeg komt Max Verstappen in actie in Melbourne](https://www.ad.nl/formule-1/wekker-zetten-voor-start-f1-seizoen-zo-vroeg-komt-max-verstappen-in-actie-in-melbourne~a71841049/)
+  > Het nieuwe Formule 1-seizoen gaat na zes testdagen in Bahrein nu echt beginnen. Max Verstappen hoopt met zijn nieuwe Red Bull Racing het...
+- [Aanval op Odido gaat door, opnieuw klantgegevens online gezet: ‘We hebben jullie een kans gegeven’](https://www.ad.nl/tech/aanval-op-odido-gaat-door-opnieuw-klantgegevens-online-gezet-we-hebben-jullie-een-kans-gegeven~a9b54b7c/)
+  > Hackersgroep ShinyHunters heeft voor de derde dag op rij gestolen klantgegevens van Odido online gezet. Daarbij stellen de hackers opnieuw dat Odido...
+- [Amerika en Israël vallen Iran aan, explosies in Teheran](https://www.ad.nl/buitenland/amerika-en-israel-vallen-iran-aan-explosies-in-teheran~a75f3193/)
+  > De Verenigde Staten en Israël hebben een grootschalige gecombineerde militaire aanval ingezet op Iran. Getuigen in Teheran melden zware explosies en...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Live: Israël voert aanval uit op Teheran](https://fd.nl/politiek/1587753/live-israel-voert-aanval-uit-op-teheran)
+  > Israël zegt een ‘preventie aanval’ te hebben uitgevoerd op Teheran. Daar waren grote explosies te horen.
+- [‘Laten we ophouden met halfslachtige box 3-compromissen die opnieuw tot ophef leiden’](https://fd.nl/opinie/1587707/laten-we-ophouden-met-halfslachtige-box-3-compromissen-die-opnieuw-tot-ophef-leiden-en-andere-lezersreacties)
+  > FD-lezers reageren volop op het nieuws én de columns en opiniebijdragen over box 3, de vrijheidsbijdrage en de echte bedreiging bij datalekken,...
 - [Drie keer Box 3, en is de handelsoorlog nu voorbij?](https://fd.nl/economie/1587833/drie-keer-box-3-en-is-de-handelsoorlog-nu-voorbij)
   > In deze Toegevoegde Waarde onderzoeken Anna Dijkman en Marijn Jongsma Trumps opties na de onwettigverklaring van zijn importheffingen en de...
 - [Pentagon verbiedt Anthropic, bestempelt dienst tot risico voor nationale veiligheid](https://fd.nl/bedrijfsleven/1587852/pentagon-verbiedt-anthropic-bestempelt-dienst-tot-risico-voor-nationale-veiligheid)
   > Leverancier van AI-dienst Claude mag niet meer voor het Pentagon of zijn toeleveranciers werken.
 - [Rijksuniversiteit Groningen wil van big tech af, maar dat valt niet mee. ‘Het zit overal’](https://fd.nl/tech-en-innovatie/1587593/rijksuniversiteitgroningen-wil-van-big-tech-af-maar-dat-valt-niet-mee-het-zit-overal)
   > Uit vrees dat Donald Trump IT-systemen als machtsmiddel gebruikt, zoekt de Rijksuniversiteit Groningen alternatieven voor big tech. Die moeten bij...
-- [Zuster AI, ziet gij al iets komen?](https://fd.nl/politiek/1587699/zuster-ai-ziet-gij-al-iets-komen)
-  > Met alle miljarden die naar AI-modellen gaan, zouden er toch al tekenen moeten zijn van een geslaagde techrevolutie. FD-columnist Mathijs Bouman ging...
-- [Het modderbad must go on, of je nu ‘Stemmenkanon Keijzer’ heet of niet](https://fd.nl/opinie/1587690/het-modderbad-must-go-on)
-  > Henk weet hoe de politieke hazen lopen, Mona (opnieuw) niet. Het tafereel is eigenlijk hilarisch, als het niet zo sneu zou zijn – en daarin is...
 
 ### Meest gelezen
 
