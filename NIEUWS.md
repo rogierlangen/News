@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-02-2026 om 10:50*
+*Laatst bijgewerkt: 28-02-2026 om 11:36*
 
 ---
 
@@ -11,8 +11,8 @@
 - [Wekdienst 28/2: Congres D66 • Einde meteorologische winter](https://nos.nl/l/2604321)
   > Goedemorgen! 
         Eerst het weer: het is overwegend bewolkt en er trekken buien over het land. Daarbij waait een stevige zuidwestenwind en vooral...
-- [Israël en VS voeren aanvallen uit op Teheran en andere Iraanse steden](https://nos.nl/l/2604318)
-  > Israël en de Verenigde Staten voeren gezamenlijk aanvallen uit op Iran. Er zijn explosies in de hoofdstad Teheran en er hangen dikke rookwolken boven...
+- [Israël en VS voeren aanvallen uit op Iran, Iran reageert met raketten](https://nos.nl/l/2604318)
+  > Israël en de Verenigde Staten hebben gezamenlijk aanvallen uitgevoerd op Iran. Er zijn explosies gehoord in de hoofdstad Teheran en er hangen dikke...
 - [Podcast De Dag: de ontgroening van premier Jetten](https://nos.nl/l/2604315)
   > De eerste week van kersvers D66-premier Rob Jetten zit erop. De beëdiging, het bordes, de nieuwe werkkamer, het eerste debat als minister-president...
 - [Militairen trainen in steenkoud Litouwen: wakduiken en slapen in de buitenlucht](https://nos.nl/l/2604314)
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Bertrie verrast met ‘nieuwe’ coupe en Samantha viert het koperen huwelijk](https://www.ad.nl/show/bertrie-verrast-met-nieuwe-coupe-en-samantha-viert-het-koperen-huwelijk~a6af479a/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [LIVE Midden-Oosten | Iran neemt wraak met aanval in zeven landen, Israël wil Iraanse president doden](https://www.ad.nl/buitenland/live-midden-oosten-iran-neemt-wraak-met-aanval-in-zeven-landen-israel-wil-iraanse-president-doden~ac528ac3/)
-  > Het Iraanse leger heeft bevestigd dat het aanvallen heeft uitgevoerd op Amerikaanse bases in de regio. Het betreft Amerikaanse militaire doelen in...
-- [Veen en Hollaar snelste op 500 meter, olympiërs Conijn en Bosker beginnen NK in top tien](https://www.ad.nl/schaatsen/veen-en-hollaar-snelste-op-500-meter-olympiers-conijn-en-bosker-beginnen-nk-in-top-tien~a4f50186e/)
-  > De Olympische Winterspelen zijn net afgelopen of de NK allround en sprint staan alweer op het programma. Meerdere olympiërs strijden voor de...
-- [Bitcoin daalt in waarde na aanvallen op Iran](https://www.ad.nl/economie/bitcoin-daalt-in-waarde-na-aanvallen-op-iran~a5cb5bd7/)
-  > Bitcoin en andere cryptomunten zijn scherp in waarde gedaald nadat Israël zaterdag aankondigde een preventieve aanval op Iran te hebben uitgevoerd.
-- [Midden-Oosten op rand van grote oorlog? ‘Lijkt erop dat Trumps geduld op was’](https://www.ad.nl/buitenland/midden-oosten-op-rand-van-grote-oorlog-lijkt-erop-dat-trumps-geduld-op-was~a3cc0365/)
-  > Israël en de VS voerden vanochtend vroeg snelle aanvallen uit op Iran, na weken van onrust en diplomatie. Waarom juist nu, en wat kunnen we de...
+- [Peterselie in de tuin is prachtig, maar je hebt er wel veel geduld voor nodig](https://www.ad.nl/wonen/peterselie-in-de-tuin-is-prachtig-maar-je-hebt-er-wel-veel-geduld-voor-nodig~a4698383/)
+  > Veel groentenplanten staan ook mooi in de gewone tuin: peterselie ziet er bijvoorbeeld prachtig uit, weet tuinexpert Romke van de Kaa. Heb je ook nog...
+- [Raketaanslagen in moordend tempo: op deze plekken in het Midden-Oosten zijn aanvallen gemeld](https://www.ad.nl/buitenland/raketaanslagen-in-moordend-tempo-op-deze-plekken-in-het-midden-oosten-zijn-aanvallen-gemeld~ae375328/)
+  > In zeker acht landen in het Midden-Oosten zijn de afgelopen uren raketaanvallen gemeld. Het aantal meldingen van raketinslagen en neergehaalde...
+- [Echo’s van Lewinsky klinken door bij Epstein-verhoor van oud-president Clinton](https://www.ad.nl/buitenland/echos-van-lewinsky-klinken-door-bij-epstein-verhoor-van-oud-president-clinton~a62f2c81/)
+  > Voor het eerst in de Amerikaanse geschiedenis werd een oud-president gedwongen te getuigen voor het Congres. Bill Clinton zat vrijdag zes uur lang...
+- [Rouw om zijn dochter bracht Dick (82) de straat op, nu haalt hij geld op voor kankeronderzoek](https://www.ad.nl/rotterdam/rouw-om-zijn-dochter-bracht-dick-82-de-straat-op-nu-haalt-hij-geld-op-voor-kankeronderzoek~ae8b6714/)
+  > Met zijn scootmobiel en zijn onmiskenbare Feijenoorder-pet trekt de gepensioneerde Dick ‘Blik’ Langeveldt (82) dagelijks Rotterdam in. Door weer en...
+- [Extra uitzending Pauw & De Wit vanwege ontwikkelingen Iran, NPO verhuist andere programma’s](https://www.ad.nl/show/extra-uitzending-pauw-en-de-wit-vanwege-ontwikkelingen-iran-npo-verhuist-andere-programmas~aad38487/)
+  > De NPO zendt zaterdagavond een extra uitzending van Pauw & De Wit uit. In de ingelaste talkshow, die rond 22.35 uur begint op NPO 1, worden de...
 
 ### Meest gelezen
 
@@ -47,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Uitschakelen drugsbaas maakt Mexico nog niet veiliger](https://fd.nl/politiek/1587701/uitschakelen-drugsbaas-maakt-mexico-nog-niet-veiliger)
+  > Ondanks de dood van kartelbaas El Mencho blijft Mexico worstelen met hardnekkige problemen als geweld en corruptie. Het uitschakelen van een kopstuk...
 - [Live: Israël en de VS voeren aanvallen uit op Iran; Trump zet in op wisseling regime](https://fd.nl/politiek/1587753/live-israel-voert-aanval-uit-op-teheran)
   > Israël en de Verenigde Staten hebben aanvallen uitgevoerd op doelen in Iran. In diverse steden zijn explosies te horen. De Amerikaanse president wil...
 - [‘Laten we ophouden met halfslachtige box 3-compromissen die opnieuw tot ophef leiden’](https://fd.nl/opinie/1587707/laten-we-ophouden-met-halfslachtige-box-3-compromissen-die-opnieuw-tot-ophef-leiden-en-andere-lezersreacties)
@@ -55,8 +57,6 @@
   > In deze Toegevoegde Waarde onderzoeken Anna Dijkman en Marijn Jongsma Trumps opties na de onwettigverklaring van zijn importheffingen en de...
 - [Pentagon verbiedt Anthropic, bestempelt dienst tot risico voor nationale veiligheid](https://fd.nl/bedrijfsleven/1587852/pentagon-verbiedt-anthropic-bestempelt-dienst-tot-risico-voor-nationale-veiligheid)
   > De leverancier van Claude mag niet meer voor het Pentagon of zijn toeleveranciers werken, omdat het weigert zijn AI-toepassingen voor autonome wapens...
-- [Rijksuniversiteit Groningen wil van big tech af, maar dat valt niet mee. ‘Het zit overal’](https://fd.nl/tech-en-innovatie/1587593/rijksuniversiteitgroningen-wil-van-big-tech-af-maar-dat-valt-niet-mee-het-zit-overal)
-  > Uit vrees dat Donald Trump IT-systemen als machtsmiddel gebruikt, zoekt de Rijksuniversiteit Groningen alternatieven voor big tech. Die moeten bij...
 
 ### Meest gelezen
 
