@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-02-2026 om 18:59*
+*Laatst bijgewerkt: 28-02-2026 om 19:39*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [PSV beleeft makkelijke avond in Almelo, houden Eindhovenaren ook na rust honger naar goals?](https://www.ad.nl/voetbal/psv-beleeft-makkelijke-avond-in-almelo-houden-eindhovenaren-ook-na-rust-honger-naar-goals~afae9d84/)
+- [Tandartsrekening te hoog? Steeds meer signalen dat sjoemelen in de mondzorg wijdverbreid is](https://www.ad.nl/binnenland/tandartsrekening-te-hoog-steeds-meer-signalen-dat-sjoemelen-in-de-mondzorg-wijdverbreid-is~aaedda4a/)
+  > Drie minuten polijsten voor 480 euro per uur. Wattenrolletjes van een halve cent die voor 10 euro worden doorberekend. Een behandelplan van 1600 euro...
+- [Mathieu van der Poel bewijst in Omloop dat hij anno 2026 meer kan dan ooit](https://www.ad.nl/wielrennen/mathieu-van-der-poel-bewijst-in-omloop-dat-hij-anno-2026-meer-kan-dan-ooit~a4a9040e/)
+  > Het moet nog maart worden, maar Mathieu van der Poel heeft zijn eerste klassieker al te pakken. Met Omloop Het Nieuwsblad begon hij vroeger dan...
+- [NEC krijgt in strijd om plek 2 bezoek van middenmoter Fortuna, dit zijn de opstellingen](https://www.ad.nl/voetbal/nec-krijgt-in-strijd-om-plek-2-bezoek-van-middenmoter-fortuna-dit-zijn-de-opstellingen~a36d05ed/)
+  > NEC is met Feyenoord en Ajax verwikkeld in een strijd om plek 2. De Nijmegenaren mogen dus geen fout maken nu Fortuna Sittard op bezoek komt. Volg...
+- [Hoe Dafne Schippers uit een diep dal kwam: ‘Ik was bang voor mezelf, een hond hielp me’](https://www.ad.nl/mezza/hoe-dafne-schippers-uit-een-diep-dal-kwam-ik-was-bang-voor-mezelf-een-hond-hielp-me~a2590bea/)
+  > Iedereen kent de onoverwinnelijke sprintkampioen, maar weinig mensen hadden oog voor haar eenzaamheid en neerslachtige gevoelens. In ons...
+- [Heracles dankzij wereldgoal terug in wedstrijd tegen PSV: Zeefuik knalt op heerlijke wijze raak](https://www.ad.nl/voetbal/heracles-dankzij-wereldgoal-terug-in-wedstrijd-tegen-psv-zeefuik-knalt-op-heerlijke-wijze-raak~afae9d84/)
   > Met een puntenverschil van maar liefst 45 punten is de opdracht voor PSV helder: alleen een zege bij Heracles volstaat. Maakt de koploper geen fout?...
-- [Winnend schaatspak van Jutta Leerdam levert op veiling bijna twee ton op](https://www.ad.nl/westland/winnend-schaatspak-van-jutta-leerdam-levert-op-veiling-bijna-twee-ton-op~a40e484d/)
-  > De veiling van het schaatspak van olympisch kampioen Jutta Leerdam heeft maar liefst 195.000 euro opgeleverd. Tot zaterdagmiddag kon worden geboden...
-- [Kogelstootster Schilder wint NK-goud, WK-limiet voor Van Klinken](https://www.ad.nl/andere-sporten/kogelstootster-schilder-wint-nk-goud-wk-limiet-voor-van-klinken~a3c84445/)
-  > Jessica Schilder heeft voor het zevende jaar op rij de Nederlandse titel indoor bij het kogelstoten gewonnen. De wereldkampioene won in Apeldoorn met...
-- [Iraanse ayatollah Ali Khamenei is nog in leven: ‘Ongedeerd’](https://www.ad.nl/buitenland/iraanse-ayatollah-ali-khamenei-is-nog-in-leven-ongedeerd~aa91e74b/)
-  > Het Iraanse ministerie van Buitenlandse Zaken meldt dat de Iraanse ayatollah Ali Khamenei en president Masoud Pezeshkian beiden in leven zijn na de...
-- [Niets zo dodelijk voor de sfeer als een onaangekondigd betaalverzoek: 'Word niet boos'](https://www.ad.nl/geld/niets-zo-dodelijk-voor-de-sfeer-als-een-onaangekondigd-betaalverzoek-word-niet-boos~a6a7ff51/)
-  > Betaalapps als Tikkie en Splitser zijn bedoeld om kosten makkelijk te kunnen verrekenen, maar kunnen ook tot sociale frictie leiden. Van...
 
 ### Meest gelezen
 
