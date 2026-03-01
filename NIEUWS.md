@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-03-2026 om 05:11*
+*Laatst bijgewerkt: 01-03-2026 om 07:47*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Noord-Korea maakt digitale sprong voorwaarts en vergroot zo ook controle op inwoners](https://nos.nl/l/2604471)
+  > Achter gesloten deuren vonden afgelopen week Noord-Korea's belangrijkste politieke vergaderingen plaats. Zoals gebruikelijk kwam er slechts...
+- [Belastingaangifte kan weer, nu ook meteen werkelijk rendement doorgeven](https://nos.nl/l/2604462)
+  > Het is 1 maart en dat betekent dat sinds middernacht miljoenen mensen weer belastingaangifte moeten doen. Voor de een kan het een leuke boodschap...
+- [Odido-hackers publiceren resterende klantdata, ook miljoenen ID-nummers](https://nos.nl/l/2604461)
+  > De internetcriminelen die hebben ingebroken bij telecomprovider Odido hebben alle resterende klantgegevens gepubliceerd. Ze zien af van het plan om...
+- [Wekdienst 1/3: EU-ministers praten over Midden-Oosten • NK sprint en allround schaatsen](https://nos.nl/l/2604459)
+  > Goedemorgen! Vandaag zijn verschillende EU-ministers van Buitenlandse Zaken online bijeen om de gebeurtenissen in het Midden-Oosten te bespreken. En...
 - [Belgisch leger entert olietanker van Russische schaduwvloot](https://nos.nl/l/2604457)
   > Het Belgische leger heeft vannacht een olietanker van de Russische schaduwvloot geënterd. Dat is gebeurd met hulp uit Frankrijk, meldt minister...
-- [Iraanse leider Khamenei gedood bij Amerikaanse en Israëlische luchtaanvallen](https://nos.nl/l/2604456)
-  > De Iraanse leider Ali Khamenei is gedood bij de Amerikaanse en Israëlische luchtaanvallen van gisterochtend. Dat bevestigen Iraanse staatsmedia,...
-- [Sobere Ali Khamenei heerste ruim 35 jaar met harde hand over Iran](https://nos.nl/l/2604455)
-  > Ayatollah Ali Khamenei was meer dan 35 jaar de machtigste man van Iran. Als hoogste leider stond hij, zonder zelf verantwoording af te hoeven leggen,...
-- [Escalatie in de Golf: Iraanse raketten dwingen regio tot keuze](https://nos.nl/l/2604437)
-  > Waar in de Golfstaten al maanden voor werd gevreesd, is nu echt gebeurd. Het conflict tussen Iran en Israël heeft zich uitgebreid naar de rest van de...
-- [Bijna twee ton voor olympisch pak Jutta Leerdam, deel voor oude ijsvereniging](https://nos.nl/l/2604436)
-  > Het schaatspak dat Jutta Leerdam droeg op de Olympische Spelen is geveild voor 195.000 euro. Op een veiling van NOC*NSF en het veilingplatform...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE eredivisie | Feyenoord in Enschede tegen taai FC Twente](https://www.ad.nl/voetbal/live-eredivisie-feyenoord-in-enschede-tegen-taai-fc-twente~a6ea91559/)
-  > Feyenoord wacht na de thuiszege tegen Telstar (2-1) een taaie tegenstander. De formatie gaat op bezoek bij FC Twente in Enschede. Volg het duel in de...
-- [Zaterdag vader op sokken, maandag mikpunt van Derksen: de bizarre bliksemweek van minister Jaimi (34)](https://www.ad.nl/politiek/zaterdag-vader-op-sokken-maandag-mikpunt-van-derksen-de-bizarre-bliksemweek-van-minister-jaimi-34~a48c8bf1/)
-  > Hoe verandert je leven in één week van jonge vader naar minister met een van de zwaarste dossiers van Den Haag? Wij volgden Jaimi van Essen (34) van...
-- [LIVE eredivisie | Ajax heeft op bezoek bij PEC Zwolle zege nodig in strijd om plek twee](https://www.ad.nl/voetbal/live-eredivisie-ajax-heeft-op-bezoek-bij-pec-zwolle-zege-nodig-in-strijd-om-plek-twee~a29dda59/)
-  > Na het gelijke spel tegen NEC (1-1) is de tweede plaats ver weg voor Ajax. De ploeg van Fred Grim heeft op bezoek bij PEC Zwolle dus een zege nodig...
-- [LIVE eredivisie | Kelderkraker in Rotterdam: Excelsior ontvangt Go Ahead Eagles](https://www.ad.nl/voetbal/live-eredivisie-kelderkraker-in-rotterdam-excelsior-ontvangt-go-ahead-eagles~a6418c12e/)
-  > Excelsior en Go Ahead Eagles hebben allebei 26 punten verzameld, waardoor de onderlinge strijd in Rotterdam nog wel eens cruciaal kan zijn in de...
-- [‘Wuthering Heights’-gekte barst los: nieuwe film lokt massa toeristen naar Brits dorpje](https://www.ad.nl/buitenland/wuthering-heights-gekte-barst-los-nieuwe-film-lokt-massa-toeristen-naar-brits-dorpje~a083216c/)
-  > De nieuwe verfilming van het boek Wuthering Heights legt het Britse dorpje Haworth geen windeieren. Twee weken na de release van de film, met Margot...
+- [Familie van Giovanni (23) werd geruïneerd door ruzie met bank: 7000 kilometer van huis krabbelt hij weer op](https://www.ad.nl/binnenland/familie-van-giovanni-23-werd-geruineerd-door-ruzie-met-bank-7000-kilometer-van-huis-krabbelt-hij-weer-op~aa4c0868/)
+  > Een huis met zwembad tussen de palmbomen, vijf broers om mee te ravotten en liefhebbende ouders: Giovanni Starostenko had het allemaal. Tot een...
+- [Hackers plaatsen opnieuw gestolen data Odido-klanten op internet, nu ook paspoortgegevens](https://www.ad.nl/tech/hackers-plaatsen-opnieuw-gestolen-data-odido-klanten-op-internet-nu-ook-paspoortgegevens~aa17b5ee/)
+  > Hackersgroep ShinyHunters heeft voor de vierde dag op rij gestolen klantgegevens van Odido op internet geplaatst. Dit keer lijkt het te gaan om een...
+- [Formule 1-podcast | De grote seizoensvoorbeschouwing: ‘De beste schaker wint’](https://www.ad.nl/formule-1/formule-1-podcast-de-grote-seizoensvoorbeschouwing-de-beste-schaker-wint~ad703d66/)
+  > Nog een paar nachten slapen en dan begint het Formule 1-seizoen weer! Een seizoen met nieuwe regels, nieuwe auto's en ook nieuwe gezagsverhoudingen.
+- [Enthousiaste fietsers gezocht! Wat zijn de beste e-bikes?](https://www.ad.nl/home/enthousiaste-fietsers-gezocht-wat-zijn-de-beste-e-bikes~a203483f/)
+  > De ADR Fietstest 2026 gaat binnenkort van start en jij bent van harte uitgenodigd om mee te doen. Of je nu al op een elektrische fiets rijdt of er...
+- [Peter Bosz mist door bezoekje aan wc wereldgoal van Lequincio Zeefuik: ‘Ik begon net binnen nog te klappen’](https://www.ad.nl/voetbal/peter-bosz-mist-door-bezoekje-aan-wc-wereldgoal-van-lequincio-zeefuik-ik-begon-net-binnen-nog-te-klappen~a119b594/)
+  > Peter Bosz miste tijdens het duel tussen Heracles en PSV de wonderschone treffer van Lequincio Zeefuik. De trainer van PSV bracht op het moment van...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Ayatollah Ali Khamenei werkte als niets-ontziende leider aan uitbreiding machtspositie Iran](https://fd.nl/politiek/1587757/ayatollah-ali-khamenei-werkte-als-niets-ontziende-leider-aan-uitbreiding-machtspositie-iran)
+  > Als geestelijk leider trad hij in de voetsporen van Ayatollah Khomeini. Hij was consequent in zijn haat tegen de Verenigde Staten en werkte aan...
+- [Mogelijke veroordeling in klimaatzaak dwingt ING niet tot crisis, maar tot realisme](https://fd.nl/opinie/1587652/een-mogelijke-veroordeling-dwingt-ing-niet-tot-crisis-maar-tot-realisme)
+  > De bank schermt met systeemrisico’s om fossiele investeringen te verdedigen. Toch laten toezichthouders en recente stress­tests juist zien dat...
 - [Roze hartjes van bedrijven voor de samenleving](https://fd.nl/bedrijfsleven/1587689/roze-hartjes-van-bedrijven-voor-de-samenleving)
   > Winkelier, fiscalist of jeugdwerker: tijdens een bedrijfsbezoek aan de Sligro worden zij professioneel gematcht.
 - [Live: Iran bevestigt dood Ayatollah Khamenei, aanvallen gaan door](https://fd.nl/politiek/1587756/live-iran-bevestigt-dood-ayatolla-khamanei-aanvallen-gaan-door)
   > Iran bevestigt de dood van Ayatollah Khamenei, de hoogste leider van Iran. Ondertussen meldt Israël dat de aanvallen op Iran zondagochtend vroeg zijn...
 - [De proeffase voorbij: Amsterdamse vracht gaat weer via de gracht](https://fd.nl/bedrijfsleven/1587302/de-proeffase-voorbij-amsterdamse-vracht-gaat-weer-via-de-gracht)
   > Vrachtboten gaan voortaan ook de gracht op, om de hoofdstedelijke horeca te bevoorraden. Testen zijn afgerond nu begint de commerciële fase. Heineken...
-- [Luisterverhaal: Hoe Den Haag eindelijk van het probleemdossier Tennet Duitsland verlost raakte](https://fd.nl/samenleving/1587727/luisterverhaal-hoe-den-haag-eindelijk-van-het-probleemdossier-tennet-duitsland-verlost-raakte)
-  > Deze week hoor je hoe Nederland werd verlost van het miljardenrisico rond de Duitse tak van netbeheerder Tennet.
-- [Tevreden D66 hoopt dat het nog wat naar links kan](https://fd.nl/politiek/1587853/tevreden-d66-hoopt-dat-het-nog-wat-naar-links-kan)
-  > Kritiek op het regeerakkoord is er soms te horen op het D66-congres, maar de leden zijn vooral blij dat hun partij voor het eerst de premier mag...
 
 ### Meest gelezen
 
