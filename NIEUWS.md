@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-03-2026 om 20:53*
+*Laatst bijgewerkt: 01-03-2026 om 21:44*
 
 ---
 
@@ -27,12 +27,12 @@
 
 ### Laatste nieuws
 
+- [Søren Tengstedt helpt Go Ahead Eagles aan belangrijke zege op Excelsior](https://www.ad.nl/voetbal/soren-tengstedt-helpt-go-ahead-eagles-aan-belangrijke-zege-op-excelsior~a6418c12e/)
+  > Go Ahead Eagles heeft in de strijd om lijfsbehoud een belangrijke overwinning geboekt. Op Woudestein rekende de ploeg van Melvin Boel zondagavond met...
 - [Iran meldt 165 doden bij raketaanval op school voor meisjes](https://www.ad.nl/buitenland/iran-meldt-165-doden-bij-raketaanval-op-school-voor-meisjes~a15f51ec/)
   > Bij de raketaanvallen van Amerika en Israël is volgens Iran ook een school voor meisjes in Minab geraakt. Zeker 165 mensen zijn daarbij volgens de...
 - [Jurriën Timber matchwinner bij Arsenal in derby tegen Chelsea, zorgen nemen toe voor Spurs](https://www.ad.nl/voetbal/jurrien-timber-matchwinner-bij-arsenal-in-derby-tegen-chelsea-zorgen-nemen-toe-voor-spurs~a547cf2c/)
-  > Arsenal heeft een volgende stap gezet richting de eerste Premier League-titel sinds 2004. De ploeg van Mikel Arteta won met 2-1 van stadgenoot...
-- [Søren Tengstedt zet Go Ahead Eagles op voorsprong tegen Excelsior](https://www.ad.nl/voetbal/soren-tengstedt-zet-go-ahead-eagles-op-voorsprong-tegen-excelsior~a6418c12e/)
-  > Excelsior Rotterdam en Go Ahead Eagles hebben allebei 26 punten verzameld, waardoor de onderlinge strijd in Rotterdam nog wel eens cruciaal kan zijn...
+  > Arsenal heeft een volgende stap gezet richting de eerste Premier League-titel sinds 2004. De ploeg van Mikel Arteta won zondagavond met 2-1 van...
 - [Menno Vloon even gediskwalificeerd, maar daarna toch kampioen op NK in Apeldoorn](https://www.ad.nl/andere-sporten/menno-vloon-even-gediskwalificeerd-maar-daarna-toch-kampioen-op-nk-in-apeldoorn~adf4f3e0/)
   > Niets leek polsstokhoogspringer Menno Vloon van zijn vijftiende NK-titel af te houden. Tot hij aan de vooravond van zijn wedstrijd hoorde dat hij...
 - [Oorlog of niet, in het weekend werken Europeanen niet!](https://www.ad.nl/binnenland/oorlog-of-niet-in-het-weekend-werken-europeanen-niet~a70e4b12/)
