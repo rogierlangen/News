@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-03-2026 om 09:54*
+*Laatst bijgewerkt: 01-03-2026 om 10:53*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Oorlog in Iran kan energierekening gaan raken nu gasvoorraad erg laag is](https://nos.nl/l/2604488)
+  > De kans is groot dat de energierekening de komende tijd omhoog zal gaan door de gisteren uitgebroken oorlog in het Midden-Oosten. De Nederlandse...
 - [Doden en gewonden bij protest Amerikaans consulaat in Pakistan om dood Khamenei](https://nos.nl/l/2604484)
   > Bij een bestorming bij het Amerikaanse consulaat in Pakistan zijn zeker negen mensen om het leven gekomen. Ook raakten twintig mensen gewond.
        ...
@@ -17,8 +19,6 @@
   > Jan Huydts, de jazzpianist die onder meer cabaretier Wim Sonneveld begeleidde op liedjes als Het Dorp, is vrijdag overleden. Dat heeft zijn familie...
 - [Noord-Korea maakt digitale sprong voorwaarts en vergroot zo ook controle op inwoners](https://nos.nl/l/2604471)
   > Achter gesloten deuren vonden afgelopen week Noord-Korea's belangrijkste politieke vergaderingen plaats. Zoals gebruikelijk kwam er slechts...
-- [Belastingaangifte kan weer, nu ook meteen werkelijk rendement doorgeven](https://nos.nl/l/2604462)
-  > Het is 1 maart en dat betekent dat sinds middernacht miljoenen mensen weer belastingaangifte moeten doen. Voor de een kan het een leuke boodschap...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Belastingdienst kreeg eerste aangifte al na dik 2 minuten binnen](https://www.ad.nl/economie/belastingdienst-kreeg-eerste-aangifte-al-na-dik-2-minuten-binnen~a6b54928/)
-  > Bij de Belastingdienst was het zondag meteen druk, nu mensen weer hun aangifte voor de inkomstenbelasting kunnen doen. De fiscus kreeg de eerste...
-- [Vrouwen zonder Marijke Groenewoud begonnen op 1500 meter](https://www.ad.nl/schaatsen/vrouwen-zonder-marijke-groenewoud-begonnen-op-1500-meter~ad746657/)
+- [Gioya Lancee bijna zeker van Nederlandse titel na ijzersterke 1500 meter, nu de beurt aan de mannen](https://www.ad.nl/schaatsen/gioya-lancee-bijna-zeker-van-nederlandse-titel-na-ijzersterke-1500-meter-nu-de-beurt-aan-de-mannen~ad746657/)
   > De Olympische Winterspelen zijn net afgelopen of de NK allround en sprint staan alweer op het programma. Veel olympiërs hebben dan ook besloten om...
-- [Benut elke aftrekpost: deze veelgemaakte fouten kosten je geld](https://www.ad.nl/geld/benut-elke-aftrekpost-deze-veelgemaakte-fouten-kosten-je-geld~ac60d04a/)
-  > Vanaf vandaag kun je weer belastingaangifte doen. Jaarlijks laten Nederlanders honderden euro’s liggen, van vergeten aftrekposten tot verkeerde...
-- [F1-teams stemmen unaniem voor regelwijziging, Mercedes raakt mogelijk motorvoordeel kwijt](https://www.ad.nl/formule-1/f1-teams-stemmen-unaniem-voor-regelwijziging-mercedes-raakt-mogelijk-motorvoordeel-kwijt~a0ce4a68/)
-  > Mercedes zit mogelijk in de problemen. De Formule 1-teams hebben namelijk unaniem gestemd voor een wijziging van de tests die de...
-- [Praten over menstruatie is nog steeds taboe, dus zingt Daya (25) erover: ‘Dit is wie wij vrouwen zijn’](https://www.ad.nl/binnenland/praten-over-menstruatie-is-nog-steeds-taboe-dus-zingt-daya-25-erover-dit-is-wie-wij-vrouwen-zijn~a7ee1535/)
-  > Na haar deelname aan de SBS-talentenshow The Winner Takes It All gebruikt zangeres Daya Hendrix haar grotere bereik onder meer om taboes te...
+- [Blokkade Straat van Hormuz raakt ons in de portemonnee: benzine duurder, spullen komen later](https://www.ad.nl/buitenland/blokkade-straat-van-hormuz-raakt-ons-in-de-portemonnee-benzine-duurder-spullen-komen-later~a96ab0c3/)
+  > Iran gebruikt de Straat van Hormuz al decennia als afschrikmiddel. De doorgang tussen de Perzische Golf en de Golf van Oman is goed voor 20 procent...
+- [Een kijkje op de zedenafdeling van een tbs-kliniek: dit staat Mels van B. waarschijnlijk te wachten](https://www.ad.nl/binnenland/een-kijkje-op-de-zedenafdeling-van-een-tbs-kliniek-dit-staat-mels-van-b-waarschijnlijk-te-wachten~ade5ea3cd/)
+  > Jarenlang misbruikte Mels van B. (46) meisjes op zeldzaam gruwelijke wijze. Hij wil tbs en kríjgt dat waarschijnlijk ook opgelegd. Maar hoe behandel...
+- [Gemengde gevoelens voor Fred Rutten na opvolgen Dick Advocaat: ‘De voorgeschiedenis is onprettig’](https://www.ad.nl/voetbal/gemengde-gevoelens-voor-fred-rutten-na-opvolgen-dick-advocaat-de-voorgeschiedenis-is-onprettig~ab93a317/)
+  > Fred Rutten voelt zich vereerd dat hij aan de slag gaat als bondscoach van Curaçao voor het WK, maar de manier waarop had hij liever anders gehad....
+- [Fred Grim kiest voor Wout Weghorst in de spits, ook Oscar Gloukh verschijnt aan de aftrap tegen PEC Zwolle](https://www.ad.nl/voetbal/fred-grim-kiest-voor-wout-weghorst-in-de-spits-ook-oscar-gloukh-verschijnt-aan-de-aftrap-tegen-pec-zwolle~a29dda59/)
+  > Na het gelijke spel tegen NEC (1-1) is de tweede plaats ver weg voor Ajax. De ploeg van Fred Grim heeft op bezoek bij PEC Zwolle dus een zege nodig...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Olie- en gasmarkt maken zich op voor woelige start van de handel](https://fd.nl/financiele-markten/1587755/olie-en-gasmarkt-maken-zich-op-voor-woelige-start-van-de-handel)
+  > De olie- en gasprijzen kunnen exploderen door geopolitieke spanningen in het Midden-Oosten, met olie mogelijk naar $140 per vat en een dramatische...
+- [Flinterdunne marges: ‘Een broodje döner zou €10 moeten kosten’](https://fd.nl/samenleving/1587702/flinterdunne-marges-een-broodje-doner-zou-10-moeten-kosten)
+  > Het aantal dönerzaken in Nederland neemt gestaag af. De sector is traditioneel, met weinig vernieuwing en schaalvergroting. Wat helpt? Een trouwe...
 - [Indiase economie groeit na nieuwe meetmethode nog wat harder](https://fd.nl/economie/1587708/indiase-economie-groeit-na-nieuwe-meetmethode-nog-wat-harder)
   > India's economie floreert. Mogelijk heeft het land Japan al ingehaald als de op vier na grootste economie van de wereld. Maar analisten waarschuwen...
 - [Abel belooft beleggers naar investeringen te zoeken voor geldberg Berkshire Hathaway](https://fd.nl/financiele-markten/1587855/abel-belooft-beleggers-naar-investeringen-te-zoeken-voor-geldberg-berkshire-hathaway)
   > Geschikte overnames dienden zich weinig aan, het afgelopen jaar. Nieuwe topman van investeringsmaatschappij moet genoegen met achterblijvende...
 - [Onze veiligheid vraagt zowel om slagkracht als om economische weerbaarheid](https://fd.nl/opinie/1587497/veiligheid-vraagt-om-slagkracht-en-economische-weerbaarheid)
   > Om weerbaarder te worden, verhogen Europese landen hun defensie-inspanningen. Echte veiligheid is echter niet alleen militair, maar vereist ook een...
-- [Ayatollah Ali Khamenei werkte als niets-ontziende leider aan uitbreiding machtspositie Iran](https://fd.nl/politiek/1587757/ayatollah-ali-khamenei-werkte-als-niets-ontziende-leider-aan-uitbreiding-machtspositie-iran)
-  > Als geestelijk leider trad hij in de voetsporen van Ayatollah Khomeini. Hij was consequent in zijn haat tegen de Verenigde Staten en werkte aan...
-- [Mogelijke veroordeling in klimaatzaak dwingt ING niet tot crisis, maar tot realisme](https://fd.nl/opinie/1587652/een-mogelijke-veroordeling-dwingt-ing-niet-tot-crisis-maar-tot-realisme)
-  > De bank schermt met systeemrisico’s om fossiele investeringen te verdedigen. Toch laten toezichthouders en recente stress­tests juist zien dat...
 
 ### Meest gelezen
 
