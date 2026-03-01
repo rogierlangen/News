@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-03-2026 om 17:49*
+*Laatst bijgewerkt: 01-03-2026 om 19:00*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Twee dagen oorlog: dit weten we over slachtoffers in Iran, Israël en de regio](https://nos.nl/l/2604567)
+  > Voor de tweede dag op rij wordt Iran gebombardeerd door Israël en de Verenigde Staten. Ter vergelding voert Iran raketaanvallen uit op Israëlische en...
 - [AI die code schrijft maakt indruk op programmeurs, maar het vak is meer dan dat](https://nos.nl/l/2604556)
   > In de wereld van programmeurs gaat het de laatste weken veel over computerprogramma's die zélf code schrijven. Die programma's werken op basis van...
 - [Langs de deuren tegen polarisatie: 'deep canvassing' groeit, maar werkt het?](https://nos.nl/l/2604554)
@@ -16,8 +18,6 @@
   > De strijd om de toekomst van Iran is in een beslissende fase beland. Israël en de VS willen doorpakken tot de Islamitische Republiek omvalt, terwijl...
 - [Man die gewond raakte bij ongeluk met spookrijder op A59 overleden](https://nos.nl/l/2604542)
   > Een 24-jarige man die vorige week gewond raakte bij een ongeluk met een spookrijder op de A59 bij Waalwijk, is overleden. Dat bevestigt de politie...
-- [Hoe doet de NOS verslag van de oorlog tussen Israël, de VS en Iran?](https://nos.nl/l/2604531)
-  > "Sinds 9 uur hebben we niets meer van onze familie gehoord", vertelde een Nederlandse Iraniër ons gisteren. In de vroege ochtend werd werkelijkheid...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘Haaland van FC Utrecht’ draagt met eerste goal bij aan knappe zege op AZ](https://www.ad.nl/voetbal/haaland-van-fc-utrecht-draagt-met-eerste-goal-bij-aan-knappe-zege-op-az~a940bd71/)
-  > FC Utrecht heeft aan de thuiswedstrijd tegen subtopper AZ drie punten overgehouden. De thuisploeg had aan een sterke eerste helft genoeg om mee te...
-- [Na de dood van Khamenei waarschuwt de geschiedenis: zó kan een ‘regime change’ misgaan](https://www.ad.nl/buitenland/na-de-dood-van-khamenei-waarschuwt-de-geschiedenis-zo-kan-een-regime-change-misgaan~aa0b441e/)
-  > President Trump heeft er nooit doekjes om gewonden: regime change is voor Iran ‘het beste wat er kan gebeuren’. Inmiddels lijkt het zover, maar het...
-- [Robin van Persie schrikt niet van onvrede tussen spelers Feyenoord: ‘Ik word daar juist heel blij van’](https://www.ad.nl/voetbal/robin-van-persie-schrikt-niet-van-onvrede-tussen-spelers-feyenoord-ik-word-daar-juist-heel-blij-van~a57d411b/)
-  > Robin van Persie vond dat Feyenoord zondag terecht onderuit ging bij FC Twente (2-0). De trainer zag dat zijn ploeg met name in de tweede helft geen...
-- [Hoe bij Ajax in Zwolle elke ernst ontbrak om tweede te worden](https://www.ad.nl/voetbal/hoe-bij-ajax-in-zwolle-elke-ernst-ontbrak-om-tweede-te-worden~a8990eb2/)
-  > Ajax verzuimde zondag tegen PEC (0-0) gouden zaken te doen. In Zwolle wekten coach Fred Grim en zijn spelers de indruk helemaal geen trek te hebben...
-- [Arsenal en Chelsea scoren in eerste helft uit corners in Londense derby](https://www.ad.nl/voetbal/arsenal-en-chelsea-scoren-in-eerste-helft-uit-corners-in-londense-derby~a547cf2c/)
-  > De Londense derby tegen Chelsea is de volgende horde voor koploper Arsenal. De ploeg van trainer Mikel Arteta snakt al jaren naar een nieuwe Premier...
+- [Feyenoord dwingt voetballend niets af: zonder Anis Hadj Moussa in vorm blijft er wel erg weinig over](https://www.ad.nl/voetbal/feyenoord-dwingt-voetballend-niets-af-zonder-anis-hadj-moussa-in-vorm-blijft-er-wel-erg-weinig-over~ab15b4bb/)
+  > Als Anis Hadj Moussa zijn dag niet heeft, blijft er wel erg weinig over bij Feyenoord. De Rotterdammers hebben met Ayase Ueda nog altijd de topscorer...
+- [Toen haar zus ongeneeslijk ziek werd, gaf hockeykampioen Laurien de topsport op: ‘Ik wilde er voor Marije zijn’](https://www.ad.nl/binnenland/toen-haar-zus-ongeneeslijk-ziek-werd-gaf-hockeykampioen-laurien-de-topsport-op-ik-wilde-er-voor-marije-zijn~ada438e7/)
+  > De levens van olympisch hockeykampioen Laurien (31) en haar zus Marije Leurink (33) kunnen bijna niet verder uit elkaar liggen: Laurien is voor het...
+- [Jurriën Timber matchwinner voor Arsenal tegen Chelsea in derby met drie cornergoals](https://www.ad.nl/voetbal/jurrien-timber-matchwinner-voor-arsenal-tegen-chelsea-in-derby-met-drie-cornergoals~a547cf2c/)
+  > Arsenal heeft een volgende stap gezet richting de eerste Premier League-titel sinds 2004. De ploeg van Mikel Arteta won met 2-1 van stadgenoot...
+- [Eredivisie-speelronde sluit in Rotterdam af met kelderkraker vol belangen](https://www.ad.nl/voetbal/eredivisie-speelronde-sluit-in-rotterdam-af-met-kelderkraker-vol-belangen~a6418c12e/)
+  > Excelsior en Go Ahead Eagles hebben allebei 26 punten verzameld, waardoor de onderlinge strijd in Rotterdam nog wel eens cruciaal kan zijn in de...
+- [Warmtepompdroger is energiezuinig, dit is de beste](https://www.ad.nl/wonen/warmtepompdroger-is-energiezuinig-dit-is-de-beste~adc127ef/)
+  > Bijna alle nieuwe wasdrogers zijn tegenwoordig warmtepompdrogers. Die zijn energiezuinig en praktisch. De Consumentenbond testte 135 modellen op...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Sierteelt te aantrekkelijk voor criminelen](https://fd.nl/opinie/1587834/sierteelt-te-aantrekkelijk-voor-criminelen)
+  > De Rotterdamse haven en Schiphol kennen strenge toegangssystemen, hoge hekken en permanente bewaking. Hoog tijd dat ook de bloemenveiling van...
+- [Iran en regio wankelen een onzekere toekomst tegemoet na Amerikaans-Israëlische interventie](https://fd.nl/politiek/1587857/iran-en-regio-wankelen-een-onzekere-toekomst-tegemoet-na-amerikaans-israelische-interventie)
+  > De VS en Israël doodden ayatollah Ali Khamenei en andere kopstukken. Maar een regimewissel lijkt lastig door de grote grip van de islam op heel Iran...
+- [Inwoners Tel Aviv lopen voortdurend op en neer naar de schuilkelder](https://fd.nl/politiek/1587763/inwoners-tel-aviv-lopen-voortdurend-op-en-neer-naar-de-schuilkelder)
+  > Veel Israëliërs zien de aanval op Iran als noodzakelijk. Maar na een nacht in de schuilkelder is er ook twijfel: brengen bommen vrede?
 - [Grote verdeeldheid in VS over Trumps aanvallen op Iran](https://fd.nl/politiek/1587862/grote-verdeeldheid-in-vs-over-trumps-aanvallen-op-iran)
   > De militaire operatie kan van invloed zijn op de komende verkiezingen in de VS.
 - [Daling autoverkopen zet in februari door](https://fd.nl/bedrijfsleven/1587859/daling-autoverkopen-zet-in-februari-door)
   > Bijna een vijfde minder nieuwe auto’s verkocht dan een jaar geleden.
-- [Belgisch leger entert Russische olietanker](https://fd.nl/politiek/1587858/belgisch-leger-entert-russische-olietanker)
-  > Het schip voer onder een valse vlag in Belgische wateren. Het is naar Zeebrugge gesleept en in beslag genomen.
-- [‘Met verplichte vulgraden gasbergingen drijft politiek gasprijs zelf actief op’](https://fd.nl/bedrijfsleven/1587830/met-verplichte-vulgraden-gasbergingen-drijft-politiek-gasprijs-zelf-actief-op)
-  > Energie-experts vinden dat een te dwingend beleid om bergingen te vullen of strategische gasreserves aan te houden marktverstorend werkt.
-- [Vakantieboekingen naar Verenigde Staten drastisch gedaald](https://fd.nl/bedrijfsleven/1587730/vakantieboekingen-naar-verenigde-staten-drastisch-gedaald)
-  > Het aantal Nederlanders dat voor een vakantie naar de VS kiest is in januari met meer dan een derde gedaald.
 
 ### Meest gelezen
 
