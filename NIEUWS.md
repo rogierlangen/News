@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-03-2026 om 15:46*
+*Laatst bijgewerkt: 01-03-2026 om 16:55*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Man die gewond raakte bij ongeluk met spookrijder op A59 overleden](https://nos.nl/l/2604542)
+  > Een 24-jarige man die vorige week gewond raakte bij een ongeluk met een spookrijder op de A59 bij Waalwijk, is overleden. Dat bevestigt de politie...
 - [Hoe doet de NOS verslag van de oorlog tussen Israël, de VS en Iran?](https://nos.nl/l/2604531)
   > "Sinds 9 uur hebben we niets meer van onze familie gehoord", vertelde een Nederlandse Iraniër ons gisteren. In de vroege ochtend werd werkelijkheid...
 - [Grote brand verwoest pand in Hoogeveen, geen gewonden](https://nos.nl/l/2604523)
@@ -16,9 +18,6 @@
   > Vlak voordat de Verenigde Staten en Israël gisteren gezamenlijk Iran wilden aanvallen, hebben beide landen hun militaire plannen aangepast. Er deed...
 - [Oorlog in Iran kan energierekening gaan raken nu gasvoorraad erg laag is](https://nos.nl/l/2604488)
   > De kans is groot dat de energierekening de komende tijd omhoog zal gaan door de gisteren uitgebroken oorlog in het Midden-Oosten. De Nederlandse...
-- [Doden en gewonden bij protest Amerikaans consulaat in Pakistan om dood Khamenei](https://nos.nl/l/2604484)
-  > Bij een bestorming bij het Amerikaanse consulaat in Pakistan zijn zeker negen mensen om het leven gekomen. Ook raakten twintig mensen gewond.
-       ...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE NK sprint | Suzanne Schulting verovert Nederlandse titel, spannende strijd bij de mannen](https://www.ad.nl/schaatsen/live-nk-sprint-suzanne-schulting-verovert-nederlandse-titel-spannende-strijd-bij-de-mannen~adb65624/)
-  > Suzanne Schulting heeft zich voor de eerste keer tot Nederlands kampioene sprint op de langebaan gekroond. De 28-jarige schaatsster won de...
-- [Kelly Osbourne stelt zich kwetsbaar op na kritiek op uiterlijk: ‘Ik word geschopt terwijl ik al op de grond lig’](https://www.ad.nl/show/kelly-osbourne-stelt-zich-kwetsbaar-op-na-kritiek-op-uiterlijk-ik-word-geschopt-terwijl-ik-al-op-de-grond-lig~af09a5a0/)
-  > Kelly Osbourne heeft zich uitgesproken tegen kritiek op haar uiterlijk tijdens de uitreiking van de Brit Awards. De realityster was daar samen met...
-- [Feyenoord profiteert niet van misstap concurrenten en gaat kansloos onderuit bij FC Twente](https://www.ad.nl/voetbal/feyenoord-profiteert-niet-van-misstap-concurrenten-en-gaat-kansloos-onderuit-bij-fc-twente~a6ea91559/)
-  > Na drie overwinningen op een rij werd in Enschede weer eens pijnlijk duidelijk hoe diep de sportieve crisis bij Feyenoord is. In de Grolsch Veste...
-- [Puntenverlies Feyenoord, Ajax én NEC: dit zijn de verschillen in strijd om plek 2](https://www.ad.nl/voetbal/puntenverlies-feyenoord-ajax-en-nec-dit-zijn-de-verschillen-in-strijd-om-plek-2~adadd191/)
-  > Bekijk hier de stand in de eredivisie. Daaronder zijn het programma en de topscorersranglijst te vinden.
-- [Zoveel pijn dat je niets meer kunt: 430.000 vrouwen in Nederland hebben endometriose](https://www.ad.nl/gezond/zoveel-pijn-dat-je-niets-meer-kunt-430-000-vrouwen-in-nederland-hebben-endometriose~abb3fe1b/)
-  > Pijn als je ongesteld bent, daar zijn veel vrouwen mee bekend. Maar wat als de pijn zo hevig is dat je niet meer kunt functioneren en je die ook op...
+- [Vakantiegangers tot donderdag vast in Midden-Oosten, KLM schrapt vluchten](https://www.ad.nl/buitenland/vakantiegangers-tot-donderdag-vast-in-midden-oosten-klm-schrapt-vluchten~abaee8dc/)
+  > Vakantiegangers in het Midden-Oosten die een ticket met KLM hebben geboekt, moeten daar zeker tot komende donderdag blijven. KLM vliegt tot die dag...
+- [Ongekende weelde voor FC Utrecht, AZ stelt teleur in Galgenwaard](https://www.ad.nl/voetbal/ongekende-weelde-voor-fc-utrecht-az-stelt-teleur-in-galgenwaard~a940bd71/)
+  > FC Utrecht en AZ strijden in Galgenwaard om de drie punten. FC Utrecht heeft de voorsprong inmiddels verdubbeld. Volg het duel tussen de kandidaten...
+- [Suzanne Schulting kroont zich voor het eerst tot Nederlands kampioen sprint: ‘Veel van me af gevallen’](https://www.ad.nl/schaatsen/suzanne-schulting-kroont-zich-voor-het-eerst-tot-nederlands-kampioen-sprint-veel-van-me-af-gevallen~adb65624/)
+  > De lach is razendsnel weer terug bij Suzanne Schulting. Alsof ze een rugzak vol lood in Milaan heeft achtergelaten, zoefde de 28-jarige schaatsster...
+- [Robin van Persie ziet Feyenoord terecht verliezen bij FC Twente: ‘Dat gedeelte was vandaag ondermaats’](https://www.ad.nl/voetbal/robin-van-persie-ziet-feyenoord-terecht-verliezen-bij-fc-twente-dat-gedeelte-was-vandaag-ondermaats~a57d411b/)
+  > Robin van Persie vond dat Feyenoord zondag terecht onderuit ging bij FC Twente (2-0). De trainer zag dat zijn ploeg met name in de tweede helft geen...
+- [Arsenal slaat uit hoekschop toe tegen Chelsea, Timber en Hato in de basis](https://www.ad.nl/voetbal/arsenal-slaat-uit-hoekschop-toe-tegen-chelsea-timber-en-hato-in-de-basis~a547cf2c/)
+  > De Londense derby tegen Chelsea is de volgende horde voor koploper Arsenal. De ploeg van trainer Mikel Arteta snakt al jaren naar een nieuwe Premier...
 
 ### Meest gelezen
 
