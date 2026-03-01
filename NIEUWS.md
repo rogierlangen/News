@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-03-2026 om 21:44*
+*Laatst bijgewerkt: 01-03-2026 om 22:53*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Donyell Malen blijft maar scoren bij AS Roma, Antony schittert met omhaal in derby van Sevilla](https://www.ad.nl/voetbal/donyell-malen-blijft-maar-scoren-bij-as-roma-antony-schittert-met-omhaal-in-derby-van-sevilla~ae040a5a/)
+  > AS Roma heeft Juventus zondagavond laten ontsnappen in het Stadio Olimpico in Rome. Donyell Malen zette de thuisclub in de 65ste minuut op een 3-1...
 - [Søren Tengstedt helpt Go Ahead Eagles aan belangrijke zege op Excelsior](https://www.ad.nl/voetbal/soren-tengstedt-helpt-go-ahead-eagles-aan-belangrijke-zege-op-excelsior~a6418c12e/)
   > Go Ahead Eagles heeft in de strijd om lijfsbehoud een belangrijke overwinning geboekt. Op Woudestein rekende de ploeg van Melvin Boel zondagavond met...
 - [Iran meldt 165 doden bij raketaanval op school voor meisjes](https://www.ad.nl/buitenland/iran-meldt-165-doden-bij-raketaanval-op-school-voor-meisjes~a15f51ec/)
@@ -35,8 +37,6 @@
   > Arsenal heeft een volgende stap gezet richting de eerste Premier League-titel sinds 2004. De ploeg van Mikel Arteta won zondagavond met 2-1 van...
 - [Menno Vloon even gediskwalificeerd, maar daarna toch kampioen op NK in Apeldoorn](https://www.ad.nl/andere-sporten/menno-vloon-even-gediskwalificeerd-maar-daarna-toch-kampioen-op-nk-in-apeldoorn~adf4f3e0/)
   > Niets leek polsstokhoogspringer Menno Vloon van zijn vijftiende NK-titel af te houden. Tot hij aan de vooravond van zijn wedstrijd hoorde dat hij...
-- [Oorlog of niet, in het weekend werken Europeanen niet!](https://www.ad.nl/binnenland/oorlog-of-niet-in-het-weekend-werken-europeanen-niet~a70e4b12/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 
 ### Meest gelezen
 
