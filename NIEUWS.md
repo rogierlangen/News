@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-03-2026 om 22:53*
+*Laatst bijgewerkt: 01-03-2026 om 23:47*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Rellen bij Amerikaanse ambassade in Bagdad, betogers met traangas uiteen gedreven](https://www.ad.nl/buitenland/rellen-bij-amerikaanse-ambassade-in-bagdad-betogers-met-traangas-uiteen-gedreven~a989b858/)
+  > Bij de Amerikaanse ambassade in de Iraakse hoofdstad Bagdad zijn zondagavond honderden Iraakse betogers slaags geraakt met veiligheidstroepen.
+- [Trump zegt dood van drie Amerikaanse militairen te zullen wreken](https://www.ad.nl/buitenland/trump-zegt-dood-van-drie-amerikaanse-militairen-te-zullen-wreken~ac528ac3/)
+  > Israël en de Verenigde Staten voeren sinds zaterdag aanvallen uit op Iran. Daarbij is onder anderen de Iraanse leider Khamenei gedood. Iran ziet de...
+- [Omstreden Britse onderzoeker die moest vertrekken bij Radboud Universiteit ook niet meer welkom in België](https://www.ad.nl/buitenland/omstreden-britse-onderzoeker-die-moest-vertrekken-bij-radboud-universiteit-ook-niet-meer-welkom-in-belgie~a0ab44ef/)
+  > De Vrije Universiteit Brussel (VUB) ziet af van de geplande aanstelling van de omstreden Britse onderzoeker Harry Pettit. Eerder moest Pettit ook al...
+- [Voetbalpodcast | ‘Jordi Cruijff greep hard in bij Jong Ajax, maar hoe lang wacht hij bij Ajax 1?’](https://www.ad.nl/voetbal/voetbalpodcast-jordi-cruijff-greep-hard-in-bij-jong-ajax-maar-hoe-lang-wacht-hij-bij-ajax-1~ac8603a9/)
+  > Feyenoord speelde slecht en verloor bij FC Twente. Ajax speelde slecht en met 0-0 gelijk bij PEC Zwolle. NEC verloor thuis van Fortuna Sittard. Wie...
 - [Donyell Malen blijft maar scoren bij AS Roma, Antony schittert met omhaal in derby van Sevilla](https://www.ad.nl/voetbal/donyell-malen-blijft-maar-scoren-bij-as-roma-antony-schittert-met-omhaal-in-derby-van-sevilla~ae040a5a/)
   > AS Roma heeft Juventus zondagavond laten ontsnappen in het Stadio Olimpico in Rome. Donyell Malen zette de thuisclub in de 65ste minuut op een 3-1...
-- [Søren Tengstedt helpt Go Ahead Eagles aan belangrijke zege op Excelsior](https://www.ad.nl/voetbal/soren-tengstedt-helpt-go-ahead-eagles-aan-belangrijke-zege-op-excelsior~a6418c12e/)
-  > Go Ahead Eagles heeft in de strijd om lijfsbehoud een belangrijke overwinning geboekt. Op Woudestein rekende de ploeg van Melvin Boel zondagavond met...
-- [Iran meldt 165 doden bij raketaanval op school voor meisjes](https://www.ad.nl/buitenland/iran-meldt-165-doden-bij-raketaanval-op-school-voor-meisjes~a15f51ec/)
-  > Bij de raketaanvallen van Amerika en Israël is volgens Iran ook een school voor meisjes in Minab geraakt. Zeker 165 mensen zijn daarbij volgens de...
-- [Jurriën Timber matchwinner bij Arsenal in derby tegen Chelsea, zorgen nemen toe voor Spurs](https://www.ad.nl/voetbal/jurrien-timber-matchwinner-bij-arsenal-in-derby-tegen-chelsea-zorgen-nemen-toe-voor-spurs~a547cf2c/)
-  > Arsenal heeft een volgende stap gezet richting de eerste Premier League-titel sinds 2004. De ploeg van Mikel Arteta won zondagavond met 2-1 van...
-- [Menno Vloon even gediskwalificeerd, maar daarna toch kampioen op NK in Apeldoorn](https://www.ad.nl/andere-sporten/menno-vloon-even-gediskwalificeerd-maar-daarna-toch-kampioen-op-nk-in-apeldoorn~adf4f3e0/)
-  > Niets leek polsstokhoogspringer Menno Vloon van zijn vijftiende NK-titel af te houden. Tot hij aan de vooravond van zijn wedstrijd hoorde dat hij...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [De veestapel krimpt, toch is aandeel ForFarmers een van de uitblinkers in Amsterdam](https://fd.nl/financiele-markten/1587802/de-veestapel-krimpt-toch-is-aandeel-forfarmers-een-van-de-uitblinkers-in-amsterdam)
+  > Jarenlang nam het vertrouwen van beleggers in veevoerproducent ForFarmers uit Lochem af. Maar met een koerswinst van ruim 60% in de afgelopen twaalf...
+- [Retro-oorlog](https://fd.nl/opinie/1587758/retro-oorlog)
+  > Onze geriatrische leidersklasse wil er met een knal uitgaan.
+- [Momfluencers en hun schimmige verdienmodel](https://fd.nl/opinie/1586584/momfluencers-en-hun-schimmige-verdienmodel)
+  > Momfluencers en familievloggers die online filmpjes delen van hun kroost en daaraan verdienen. Dat is natuurlijk andere koek dan fabriekswerk, maar...
+- [Personalia maandag 2 maart](https://fd.nl/bedrijfsleven/1587856/personalia-maandag-2-maart)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [Na verbanning Anthropic neemt OpenAI contract met Pentagon over](https://fd.nl/bedrijfsleven/1587764/na-verbanning-anthropic-neemt-openaicontract-met-pentagon-over)
   > De maker van ChatGPT is wel akkoord gegaan met de eisen van het Pentagon. Anthropic is ondertussen bestempeld tot risico voor de Amerikaanse...
-- [Sierteelt te aantrekkelijk voor criminelen](https://fd.nl/opinie/1587834/sierteelt-te-aantrekkelijk-voor-criminelen)
-  > De Rotterdamse haven en Schiphol kennen strenge toegangssystemen, hoge hekken en permanente bewaking. Hoog tijd dat ook de bloemenveiling van...
-- [Iran en regio wankelen een onzekere toekomst tegemoet na Amerikaans-Israëlische interventie](https://fd.nl/politiek/1587857/iran-en-regio-wankelen-een-onzekere-toekomst-tegemoet-na-amerikaans-israelische-interventie)
-  > De VS en Israël doodden ayatollah Ali Khamenei en andere kopstukken. Maar een regimewissel lijkt lastig door de grote grip van de islam op heel Iran...
-- [Inwoners Tel Aviv lopen voortdurend op en neer naar de schuilkelder](https://fd.nl/politiek/1587763/inwoners-tel-aviv-lopen-voortdurend-op-en-neer-naar-de-schuilkelder)
-  > Veel Israëliërs zien de aanval op Iran als noodzakelijk. Maar na een nacht in de schuilkelder is er ook twijfel: brengen bommen vrede?
-- [Grote verdeeldheid in VS over Trumps aanvallen op Iran](https://fd.nl/politiek/1587862/grote-verdeeldheid-in-vs-over-trumps-aanvallen-op-iran)
-  > De militaire operatie kan van invloed zijn op de komende verkiezingen in de VS.
 
 ### Meest gelezen
 
