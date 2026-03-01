@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-02-2026 om 23:41*
+*Laatst bijgewerkt: 01-03-2026 om 05:11*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Belgisch leger entert olietanker van Russische schaduwvloot](https://nos.nl/l/2604457)
+  > Het Belgische leger heeft vannacht een olietanker van de Russische schaduwvloot geënterd. Dat is gebeurd met hulp uit Frankrijk, meldt minister...
+- [Iraanse leider Khamenei gedood bij Amerikaanse en Israëlische luchtaanvallen](https://nos.nl/l/2604456)
+  > De Iraanse leider Ali Khamenei is gedood bij de Amerikaanse en Israëlische luchtaanvallen van gisterochtend. Dat bevestigen Iraanse staatsmedia,...
+- [Sobere Ali Khamenei heerste ruim 35 jaar met harde hand over Iran](https://nos.nl/l/2604455)
+  > Ayatollah Ali Khamenei was meer dan 35 jaar de machtigste man van Iran. Als hoogste leider stond hij, zonder zelf verantwoording af te hoeven leggen,...
 - [Escalatie in de Golf: Iraanse raketten dwingen regio tot keuze](https://nos.nl/l/2604437)
   > Waar in de Golfstaten al maanden voor werd gevreesd, is nu echt gebeurd. Het conflict tussen Iran en Israël heeft zich uitgebreid naar de rest van de...
 - [Bijna twee ton voor olympisch pak Jutta Leerdam, deel voor oude ijsvereniging](https://nos.nl/l/2604436)
   > Het schaatspak dat Jutta Leerdam droeg op de Olympische Spelen is geveild voor 195.000 euro. Op een veiling van NOC*NSF en het veilingplatform...
-- [Gestrand in het Midden-Oosten: 'We zagen het spoor van een raket, doodeng'](https://nos.nl/l/2604423)
-  > De aanvallen tussen Israël, de Verenigde Staten en Iran hebben invloed op het hele Midden-Oosten. De reisadviezen voor Irak, Israël, Libanon en...
-- [Blokkade Straat van Hormuz leidt tot spanning op oliemarkt en bij scheepvaart](https://nos.nl/l/2604420)
-  > Dagelijks gaan er zo'n 20 miljoen olievaten doorheen: de Straat van Hormuz, de zeestraat tussen Iran en Oman. Die is goed voor zo'n 20 procent van de...
-- ['PVV-leider Wilders gebruikte dreiging terreurcel als smoes in campagne'](https://nos.nl/l/2604412)
-  > PVV-leider Wilders heeft tijdens de campagne voor de Tweede Kamerverkiezingen zijn toenmalige vertrouweling Gidi Markuszower gevraagd om hem buiten...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Stand eredivisie | PSV weer stap dichter bij landstitel, NEC loopt opnieuw averij op in race om plek 2](https://www.ad.nl/voetbal/stand-eredivisie-psv-weer-stap-dichter-bij-landstitel-nec-loopt-opnieuw-averij-op-in-race-om-plek-2~adadd191/)
-  > Bekijk hier de stand in de eredivisie. Daaronder zijn het programma en de topscorersranglijst te vinden.
-- [Pijnlijke uitglijder NEC in strijd om plek 2: Ihattaren grijpt hoofdrol bij zege Fortuna](https://www.ad.nl/voetbal/pijnlijke-uitglijder-nec-in-strijd-om-plek-2-ihattaren-grijpt-hoofdrol-bij-zege-fortuna~a36d05ed/)
-  > NEC heeft een pijnlijke nederlaag geleden in de VriendenLoterij Eredivisie. De ploeg van trainer Dick Schreuder verspeelde in eigen huis tegen...
-- [Lichaam Mexicaanse drugsbaron ‘El Mencho’ aan familie overgedragen](https://www.ad.nl/buitenland/lichaam-mexicaanse-drugsbaron-el-mencho-aan-familie-overgedragen~a55edc29/)
-  > De Mexicaanse autoriteiten hebben het lichaam van Nemesio Oseguera Cervantes, bekend als ‘El Mencho’, teruggegeven aan zijn familie nadat hij vorige...
-- [Terwijl Thialf de olympische sterren huldigt, lopen de emoties in de catacomben hoog op](https://www.ad.nl/schaatsen/terwijl-thialf-de-olympische-sterren-huldigt-lopen-de-emoties-in-de-catacomben-hoog-op~a94fa71e/)
-  > Schaatsfeest, dweilorkest, huldigingen: alle sterren bij elkaar. Aan de oppervlakte was de eerste dag van het NK sprint en allround een mooi...
-- [Geer is weer helemaal zichzelf in Only Joling: ‘Jij moet gewoon effe lekker je muil houden’](https://www.ad.nl/show/geer-is-weer-helemaal-zichzelf-in-only-joling-jij-moet-gewoon-effe-lekker-je-muil-houden~ae2b31f4/)
-  > Het eerste seizoen van zijn reallifesoap was zo’n succes dat een vervolg niet kon uitblijven. Ook in de nieuwe reeks, die zaterdagavond is gestart,...
+- [LIVE eredivisie | Feyenoord in Enschede tegen taai FC Twente](https://www.ad.nl/voetbal/live-eredivisie-feyenoord-in-enschede-tegen-taai-fc-twente~a6ea91559/)
+  > Feyenoord wacht na de thuiszege tegen Telstar (2-1) een taaie tegenstander. De formatie gaat op bezoek bij FC Twente in Enschede. Volg het duel in de...
+- [Zaterdag vader op sokken, maandag mikpunt van Derksen: de bizarre bliksemweek van minister Jaimi (34)](https://www.ad.nl/politiek/zaterdag-vader-op-sokken-maandag-mikpunt-van-derksen-de-bizarre-bliksemweek-van-minister-jaimi-34~a48c8bf1/)
+  > Hoe verandert je leven in één week van jonge vader naar minister met een van de zwaarste dossiers van Den Haag? Wij volgden Jaimi van Essen (34) van...
+- [LIVE eredivisie | Ajax heeft op bezoek bij PEC Zwolle zege nodig in strijd om plek twee](https://www.ad.nl/voetbal/live-eredivisie-ajax-heeft-op-bezoek-bij-pec-zwolle-zege-nodig-in-strijd-om-plek-twee~a29dda59/)
+  > Na het gelijke spel tegen NEC (1-1) is de tweede plaats ver weg voor Ajax. De ploeg van Fred Grim heeft op bezoek bij PEC Zwolle dus een zege nodig...
+- [LIVE eredivisie | Kelderkraker in Rotterdam: Excelsior ontvangt Go Ahead Eagles](https://www.ad.nl/voetbal/live-eredivisie-kelderkraker-in-rotterdam-excelsior-ontvangt-go-ahead-eagles~a6418c12e/)
+  > Excelsior en Go Ahead Eagles hebben allebei 26 punten verzameld, waardoor de onderlinge strijd in Rotterdam nog wel eens cruciaal kan zijn in de...
+- [‘Wuthering Heights’-gekte barst los: nieuwe film lokt massa toeristen naar Brits dorpje](https://www.ad.nl/buitenland/wuthering-heights-gekte-barst-los-nieuwe-film-lokt-massa-toeristen-naar-brits-dorpje~a083216c/)
+  > De nieuwe verfilming van het boek Wuthering Heights legt het Britse dorpje Haworth geen windeieren. Twee weken na de release van de film, met Margot...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Roze hartjes van bedrijven voor de samenleving](https://fd.nl/bedrijfsleven/1587689/roze-hartjes-van-bedrijven-voor-de-samenleving)
+  > Winkelier, fiscalist of jeugdwerker: tijdens een bedrijfsbezoek aan de Sligro worden zij professioneel gematcht.
+- [Live: Iran bevestigt dood Ayatollah Khamenei, aanvallen gaan door](https://fd.nl/politiek/1587756/live-iran-bevestigt-dood-ayatolla-khamanei-aanvallen-gaan-door)
+  > Iran bevestigt de dood van Ayatollah Khamenei, de hoogste leider van Iran. Ondertussen meldt Israël dat de aanvallen op Iran zondagochtend vroeg zijn...
+- [De proeffase voorbij: Amsterdamse vracht gaat weer via de gracht](https://fd.nl/bedrijfsleven/1587302/de-proeffase-voorbij-amsterdamse-vracht-gaat-weer-via-de-gracht)
+  > Vrachtboten gaan voortaan ook de gracht op, om de hoofdstedelijke horeca te bevoorraden. Testen zijn afgerond nu begint de commerciële fase. Heineken...
+- [Luisterverhaal: Hoe Den Haag eindelijk van het probleemdossier Tennet Duitsland verlost raakte](https://fd.nl/samenleving/1587727/luisterverhaal-hoe-den-haag-eindelijk-van-het-probleemdossier-tennet-duitsland-verlost-raakte)
+  > Deze week hoor je hoe Nederland werd verlost van het miljardenrisico rond de Duitse tak van netbeheerder Tennet.
 - [Tevreden D66 hoopt dat het nog wat naar links kan](https://fd.nl/politiek/1587853/tevreden-d66-hoopt-dat-het-nog-wat-naar-links-kan)
   > Kritiek op het regeerakkoord is er soms te horen op het D66-congres, maar de leden zijn vooral blij dat hun partij voor het eerst de premier mag...
-- [Uitschakelen drugsbaas maakt Mexico nog niet veiliger](https://fd.nl/politiek/1587701/uitschakelen-drugsbaas-maakt-mexico-nog-niet-veiliger)
-  > Ondanks de dood van kartelbaas El Mencho blijft Mexico worstelen met hardnekkige problemen als geweld en corruptie. Het uitschakelen van een kopstuk...
-- [Live: Trump claimt dood Iraanse leider Khamenei na aanvallen VS en Israël](https://fd.nl/politiek/1587753/live-israel-voert-aanval-uit-op-teheran)
-  > Israël en de Verenigde Staten hebben zaterdag zware luchtaanvallen uitgevoerd op Iran. Teheran reageert met tegenaanvallen op Israël en de Golfstaten.
-- [‘Laten we ophouden met halfslachtige box 3-compromissen die opnieuw tot ophef leiden’](https://fd.nl/opinie/1587707/laten-we-ophouden-met-halfslachtige-box-3-compromissen-die-opnieuw-tot-ophef-leiden-en-andere-lezersreacties)
-  > FD-lezers reageren volop op het nieuws én de columns en opiniebijdragen over box 3, de vrijheidsbijdrage en de echte bedreiging bij datalekken,...
-- [Drie keer Box 3, en is de handelsoorlog nu voorbij?](https://fd.nl/economie/1587833/drie-keer-box-3-en-is-de-handelsoorlog-nu-voorbij)
-  > In deze Toegevoegde Waarde onderzoeken Anna Dijkman en Marijn Jongsma Trumps opties na de onwettigverklaring van zijn importheffingen en de...
 
 ### Meest gelezen
 
