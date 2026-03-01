@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-03-2026 om 13:50*
+*Laatst bijgewerkt: 01-03-2026 om 14:52*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [FC Groningen op voorsprong in uitwedstrijd bij Volendam na sterke beginfase](https://www.ad.nl/voetbal/fc-groningen-op-voorsprong-in-uitwedstrijd-bij-volendam-na-sterke-beginfase~ac7b336a/)
-  > FC Groningen zit nog volop in de strijd om een plekje bij de play-offs. De volgende horde is FC Volendam, dat zijn laatste thuiswedstrijd knap won...
-- [‘Volop lenteweer’ in aantocht: zon laat zich veel zien in maart](https://www.ad.nl/binnenland/volop-lenteweer-in-aantocht-zon-laat-zich-veel-zien-in-maart~a7e64ba3/)
-  > Maart begint met zacht lenteweer. Overdag stijgt de temperatuur deze maand naar 11 tot 16 graden, al kan het in de nachten fris zijn, met regionaal...
-- [LIVE eredivisie | Feyenoord dicht bij voorsprong in Enschede: Hadj Moussa heeft pech met schot op de paal](https://www.ad.nl/voetbal/live-eredivisie-feyenoord-dicht-bij-voorsprong-in-enschede-hadj-moussa-heeft-pech-met-schot-op-de-paal~a6ea91559/)
+- [Nederlands kampioen Marcel Bosker over bijrol in ploegenachtervolging: ‘Ze hebben me een medaille ontnomen’](https://www.ad.nl/schaatsen/nederlands-kampioen-marcel-bosker-over-bijrol-in-ploegenachtervolging-ze-hebben-me-een-medaille-ontnomen~ad746657/)
+  > Marcel Bosker heeft zich voor de derde keer tot Nederlands kampioen allround gekroond. Hij was oppermachtig en veroverde een startbewijs voor het WK...
+- [Suzanne Schulting heeft Nederlandse titel bijna binnen, spannende strijd bij de mannen](https://www.ad.nl/schaatsen/suzanne-schulting-heeft-nederlandse-titel-bijna-binnen-spannende-strijd-bij-de-mannen~adb65624/)
+  > Na de eerste dag van het NK sprint in Thialf gaan Suzanne Schulting en Janno Botman aan de leiding. Pakken zij de Nederlandse titel en daarmee een...
+- [Feyenoord moet zich herpakken na blunder Wellenreuther en zoekt naar gelijkmaker](https://www.ad.nl/voetbal/feyenoord-moet-zich-herpakken-na-blunder-wellenreuther-en-zoekt-naar-gelijkmaker~a6ea91559/)
   > Feyenoord wacht na de thuiszege tegen Telstar (2-1) een taaie tegenstander. De formatie gaat op bezoek bij FC Twente in Enschede. Volg het duel in de...
-- [Verkoop nieuwe auto’s in Nederland bijna een vijfde lager dan jaar geleden](https://www.ad.nl/economie/verkoop-nieuwe-autos-in-nederland-bijna-een-vijfde-lager-dan-jaar-geleden~ad068db5/)
-  > In Nederland zijn vorige maand bijna een vijfde minder nieuwe personenauto's verkocht dan een jaar eerder. Daarmee houdt de dalende lijn in de...
-- [Praat mee: de belastingaangifte, fluitje van een cent of jaarlijkse bron van stress?](https://www.ad.nl/praat-mee/praat-mee-de-belastingaangifte-fluitje-van-een-cent-of-jaarlijkse-bron-van-stress~acf2a6be/)
-  > Voor minstens 9,6 miljoen Nederlanders breekt vandaag de tijd weer aan voor de jaarlijkse belastingaangifte. Het eerste formulier rolde vannacht al...
+- [FC Utrecht zonder echte rechtsback in kraker tegen AZ](https://www.ad.nl/voetbal/fc-utrecht-zonder-echte-rechtsback-in-kraker-tegen-az~a940bd71/)
+  > FC Utrecht en AZ zorgen zondag voor een mooi affiche in de Vriendenloterij eredivisie. De nummer 5 en 8 van de competitie treffen elkaar vanaf 16.45...
+- [Hoe het Belgische leger een Russische olietanker enterde op de Noordzee: zo ging dat van minuut tot minuut](https://www.ad.nl/buitenland/hoe-het-belgische-leger-een-russische-olietanker-enterde-op-de-noordzee-zo-ging-dat-van-minuut-tot-minuut~a81eea2e/)
+  > 93 militairen, vier helikopters, één ‘geheime’ militaire hond – een Mechelse scheper – en een gloednieuwe drone. Het Belgische leger liet niets aan...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [‘Met verplichte vulgraden gasbergingen drijft politiek gasprijs zelf actief op’](https://fd.nl/bedrijfsleven/1587830/met-verplichte-vulgraden-gasbergingen-drijft-politiek-gasprijs-zelf-actief-op)
+  > Energie-experts vinden dat een te dwingend beleid om bergingen te vullen of strategische gasreserves aan te houden marktverstorend werkt.
 - [Vakantieboekingen naar Verenigde Staten drastisch gedaald](https://fd.nl/bedrijfsleven/1587730/vakantieboekingen-naar-verenigde-staten-drastisch-gedaald)
-  > Het aantal Nederlanders dat voor een vakantie naar de VS kiest is in januari met meer dan een vijfde gedaald.
+  > Het aantal Nederlanders dat voor een vakantie naar de VS kiest is in januari met meer dan een derde gedaald.
 - [Aegon-ceo Friese is in de oren van beleggers de juiste akkoorden even kwijt](https://fd.nl/financiele-markten/1587839/aegon-ceo-friese-is-in-de-oren-van-beleggers-de-juiste-akkoorden-even-kwijt)
   > Aegon wil een leidende Amerikaanse levensverzekeraar worden. Maar beleggers lijken vooral geïnteresseerd in uitkeringen, en minder in een Amerikaans...
 - [Afdingen in Mumbai](https://fd.nl/financiele-markten/1587854/afdingen-in-mumbai)
   > Paramount-eigenaar David Ellison had Warner Bros. Discovery harder nodig dan Netflix. Dat maakte zijn onderhandelingspositie een stuk minder sterk.
 - [College van Toezicht: meer preventieve controle van advocatenkantoren nodig](https://fd.nl/bedrijfsleven/1587836/college-van-toezicht-meer-preventieve-controle-van-advocatenkantoren-nodig)
   > Dekens moeten preventief kantooronderzoeken uitvoeren om te achterhalen of advocaten hun werk wel correct doen. Met name bij grote kantoren is dat...
-- [Exodus bedreigt Israël als technologische ‘start-up nation’](https://fd.nl/bedrijfsleven/1587688/exodus-bedreigt-israel-als-technologische-start-up-nation)
-  > Israël floreert economisch. Maar een recordaantal jonge, hoogopgeleide Israëliërs vertrekt in wat al een braindrain wordt genoemd.
 
 ### Meest gelezen
 
