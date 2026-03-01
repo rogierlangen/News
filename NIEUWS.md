@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-03-2026 om 19:00*
+*Laatst bijgewerkt: 01-03-2026 om 20:53*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- ['Moordenaar van Mieke Oort maakt in gevangenis eind aan zijn leven'](https://nos.nl/l/2604583)
+  > Thomas R. uit Leek, die in 2022 Mieke Oort vermoordde, heeft zichzelf om het leven gebracht in de gevangenis. De Leeuwarder Courant en Dagblad van...
+- [Overal pogingen om opkomst bij raadsverkiezingen te verhogen: 'Sleutelfiguren hebben nog wel invloed'](https://nos.nl/l/2604582)
+  > 1200 mensen werden bij de laatste gemeenteraadsverkiezingen uitgenodigd te stemmen in het gebouw van speeltuinvereniging Millinx in de multiculturele...
 - [Twee dagen oorlog: dit weten we over slachtoffers in Iran, Israël en de regio](https://nos.nl/l/2604567)
   > Voor de tweede dag op rij wordt Iran gebombardeerd door Israël en de Verenigde Staten. Ter vergelding voert Iran raketaanvallen uit op Israëlische en...
 - [AI die code schrijft maakt indruk op programmeurs, maar het vak is meer dan dat](https://nos.nl/l/2604556)
   > In de wereld van programmeurs gaat het de laatste weken veel over computerprogramma's die zélf code schrijven. Die programma's werken op basis van...
 - [Langs de deuren tegen polarisatie: 'deep canvassing' groeit, maar werkt het?](https://nos.nl/l/2604554)
   > Hoe zorgen we ervoor dat we in een tijd van polarisatie in verbinding blijven met elkaar? Met de gemeenteraadsverkiezingen in zicht wordt weer goed...
-- [Doelen VS, Israël en Iraans regime duidelijk, maar rol bevolking wordt beslissend](https://nos.nl/l/2604553)
-  > De strijd om de toekomst van Iran is in een beslissende fase beland. Israël en de VS willen doorpakken tot de Islamitische Republiek omvalt, terwijl...
-- [Man die gewond raakte bij ongeluk met spookrijder op A59 overleden](https://nos.nl/l/2604542)
-  > Een 24-jarige man die vorige week gewond raakte bij een ongeluk met een spookrijder op de A59 bij Waalwijk, is overleden. Dat bevestigt de politie...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Feyenoord dwingt voetballend niets af: zonder Anis Hadj Moussa in vorm blijft er wel erg weinig over](https://www.ad.nl/voetbal/feyenoord-dwingt-voetballend-niets-af-zonder-anis-hadj-moussa-in-vorm-blijft-er-wel-erg-weinig-over~ab15b4bb/)
-  > Als Anis Hadj Moussa zijn dag niet heeft, blijft er wel erg weinig over bij Feyenoord. De Rotterdammers hebben met Ayase Ueda nog altijd de topscorer...
-- [Toen haar zus ongeneeslijk ziek werd, gaf hockeykampioen Laurien de topsport op: ‘Ik wilde er voor Marije zijn’](https://www.ad.nl/binnenland/toen-haar-zus-ongeneeslijk-ziek-werd-gaf-hockeykampioen-laurien-de-topsport-op-ik-wilde-er-voor-marije-zijn~ada438e7/)
-  > De levens van olympisch hockeykampioen Laurien (31) en haar zus Marije Leurink (33) kunnen bijna niet verder uit elkaar liggen: Laurien is voor het...
-- [Jurriën Timber matchwinner voor Arsenal tegen Chelsea in derby met drie cornergoals](https://www.ad.nl/voetbal/jurrien-timber-matchwinner-voor-arsenal-tegen-chelsea-in-derby-met-drie-cornergoals~a547cf2c/)
+- [Iran meldt 165 doden bij raketaanval op school voor meisjes](https://www.ad.nl/buitenland/iran-meldt-165-doden-bij-raketaanval-op-school-voor-meisjes~a15f51ec/)
+  > Bij de raketaanvallen van Amerika en Israël is volgens Iran ook een school voor meisjes in Minab geraakt. Zeker 165 mensen zijn daarbij volgens de...
+- [Jurriën Timber matchwinner bij Arsenal in derby tegen Chelsea, zorgen nemen toe voor Spurs](https://www.ad.nl/voetbal/jurrien-timber-matchwinner-bij-arsenal-in-derby-tegen-chelsea-zorgen-nemen-toe-voor-spurs~a547cf2c/)
   > Arsenal heeft een volgende stap gezet richting de eerste Premier League-titel sinds 2004. De ploeg van Mikel Arteta won met 2-1 van stadgenoot...
-- [Eredivisie-speelronde sluit in Rotterdam af met kelderkraker vol belangen](https://www.ad.nl/voetbal/eredivisie-speelronde-sluit-in-rotterdam-af-met-kelderkraker-vol-belangen~a6418c12e/)
-  > Excelsior en Go Ahead Eagles hebben allebei 26 punten verzameld, waardoor de onderlinge strijd in Rotterdam nog wel eens cruciaal kan zijn in de...
-- [Warmtepompdroger is energiezuinig, dit is de beste](https://www.ad.nl/wonen/warmtepompdroger-is-energiezuinig-dit-is-de-beste~adc127ef/)
-  > Bijna alle nieuwe wasdrogers zijn tegenwoordig warmtepompdrogers. Die zijn energiezuinig en praktisch. De Consumentenbond testte 135 modellen op...
+- [Søren Tengstedt zet Go Ahead Eagles op voorsprong tegen Excelsior](https://www.ad.nl/voetbal/soren-tengstedt-zet-go-ahead-eagles-op-voorsprong-tegen-excelsior~a6418c12e/)
+  > Excelsior Rotterdam en Go Ahead Eagles hebben allebei 26 punten verzameld, waardoor de onderlinge strijd in Rotterdam nog wel eens cruciaal kan zijn...
+- [Menno Vloon even gediskwalificeerd, maar daarna toch kampioen op NK in Apeldoorn](https://www.ad.nl/andere-sporten/menno-vloon-even-gediskwalificeerd-maar-daarna-toch-kampioen-op-nk-in-apeldoorn~adf4f3e0/)
+  > Niets leek polsstokhoogspringer Menno Vloon van zijn vijftiende NK-titel af te houden. Tot hij aan de vooravond van zijn wedstrijd hoorde dat hij...
+- [Oorlog of niet, in het weekend werken Europeanen niet!](https://www.ad.nl/binnenland/oorlog-of-niet-in-het-weekend-werken-europeanen-niet~a70e4b12/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Na verbanning Anthropic neemt OpenAI contract met Pentagon over](https://fd.nl/bedrijfsleven/1587764/na-verbanning-anthropic-neemt-openaicontract-met-pentagon-over)
+  > De maker van ChatGPT is wel akkoord gegaan met de eisen van het Pentagon. Anthropic is ondertussen bestempeld tot risico voor de Amerikaanse...
 - [Sierteelt te aantrekkelijk voor criminelen](https://fd.nl/opinie/1587834/sierteelt-te-aantrekkelijk-voor-criminelen)
   > De Rotterdamse haven en Schiphol kennen strenge toegangssystemen, hoge hekken en permanente bewaking. Hoog tijd dat ook de bloemenveiling van...
 - [Iran en regio wankelen een onzekere toekomst tegemoet na Amerikaans-Israëlische interventie](https://fd.nl/politiek/1587857/iran-en-regio-wankelen-een-onzekere-toekomst-tegemoet-na-amerikaans-israelische-interventie)
@@ -54,8 +56,6 @@
   > Veel Israëliërs zien de aanval op Iran als noodzakelijk. Maar na een nacht in de schuilkelder is er ook twijfel: brengen bommen vrede?
 - [Grote verdeeldheid in VS over Trumps aanvallen op Iran](https://fd.nl/politiek/1587862/grote-verdeeldheid-in-vs-over-trumps-aanvallen-op-iran)
   > De militaire operatie kan van invloed zijn op de komende verkiezingen in de VS.
-- [Daling autoverkopen zet in februari door](https://fd.nl/bedrijfsleven/1587859/daling-autoverkopen-zet-in-februari-door)
-  > Bijna een vijfde minder nieuwe auto’s verkocht dan een jaar geleden.
 
 ### Meest gelezen
 
