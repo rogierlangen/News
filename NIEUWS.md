@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-03-2026 om 23:47*
+*Laatst bijgewerkt: 02-03-2026 om 05:07*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Rellen bij Amerikaanse ambassade in Bagdad, betogers met traangas uiteen gedreven](https://www.ad.nl/buitenland/rellen-bij-amerikaanse-ambassade-in-bagdad-betogers-met-traangas-uiteen-gedreven~a989b858/)
-  > Bij de Amerikaanse ambassade in de Iraakse hoofdstad Bagdad zijn zondagavond honderden Iraakse betogers slaags geraakt met veiligheidstroepen.
-- [Trump zegt dood van drie Amerikaanse militairen te zullen wreken](https://www.ad.nl/buitenland/trump-zegt-dood-van-drie-amerikaanse-militairen-te-zullen-wreken~ac528ac3/)
-  > Israël en de Verenigde Staten voeren sinds zaterdag aanvallen uit op Iran. Daarbij is onder anderen de Iraanse leider Khamenei gedood. Iran ziet de...
-- [Omstreden Britse onderzoeker die moest vertrekken bij Radboud Universiteit ook niet meer welkom in België](https://www.ad.nl/buitenland/omstreden-britse-onderzoeker-die-moest-vertrekken-bij-radboud-universiteit-ook-niet-meer-welkom-in-belgie~a0ab44ef/)
-  > De Vrije Universiteit Brussel (VUB) ziet af van de geplande aanstelling van de omstreden Britse onderzoeker Harry Pettit. Eerder moest Pettit ook al...
-- [Voetbalpodcast | ‘Jordi Cruijff greep hard in bij Jong Ajax, maar hoe lang wacht hij bij Ajax 1?’](https://www.ad.nl/voetbal/voetbalpodcast-jordi-cruijff-greep-hard-in-bij-jong-ajax-maar-hoe-lang-wacht-hij-bij-ajax-1~ac8603a9/)
-  > Feyenoord speelde slecht en verloor bij FC Twente. Ajax speelde slecht en met 0-0 gelijk bij PEC Zwolle. NEC verloor thuis van Fortuna Sittard. Wie...
-- [Donyell Malen blijft maar scoren bij AS Roma, Antony schittert met omhaal in derby van Sevilla](https://www.ad.nl/voetbal/donyell-malen-blijft-maar-scoren-bij-as-roma-antony-schittert-met-omhaal-in-derby-van-sevilla~ae040a5a/)
-  > AS Roma heeft Juventus zondagavond laten ontsnappen in het Stadio Olimpico in Rome. Donyell Malen zette de thuisclub in de 65ste minuut op een 3-1...
+- [De ‘missie’ van defensieminister Yesilgöz: de hearts and minds van de soldaten winnen](https://www.ad.nl/politiek/de-missie-van-defensieminister-yesilgoz-de-hearts-and-minds-van-de-soldaten-winnen~acff6102/)
+  > Dilan Yesilgöz is weer minister, dit keer van Defensie. Als minst populaire minister in kabinet-Jetten neemt ze het stokje over van de populairste...
+- [Sander Terphuis was zelfs in Nederland niet veilig voor Iraans regime: ‘Opeens stond de recherche voor de deur’](https://www.ad.nl/buitenland/sander-terphuis-was-zelfs-in-nederland-niet-veilig-voor-iraans-regime-opeens-stond-de-recherche-voor-de-deur~aeecf32e/)
+  > Terwijl het regime in Teheran wankelt onder buitenlandse aanvallen, gaan Iraniërs in Nederland feestvierend de straat op. Politicus Sander Terphuis,...
+- [The Jacksons komen in mei 2026 naar Nederland voor drie shows](https://www.ad.nl/show/the-jacksons-komen-in-mei-2026-naar-nederland-voor-drie-shows~a4ce230c/)
+  > The Jacksons komen dit voorjaar weer naar Nederland. De legendarische familieband geeft in mei 2026 shows in Rotterdam, Eindhoven en Groningen. De...
+- [Marlies wordt gek van harde muziek in winkelstraat: ‘Alsof buurman de hele dag zijn stereo aan heeft staan’](https://www.ad.nl/binnenland/marlies-wordt-gek-van-harde-muziek-in-winkelstraat-alsof-buurman-de-hele-dag-zijn-stereo-aan-heeft-staan~ad27d772/)
+  > Marlies Wesdijk wordt er soms horendol van. De hele dag hoort ze in haar huis harde muziek uit de winkelstraat onder haar. „Zelfs als de winkels op...
+- [‘Sinners’ ziet kans op Oscar gloren na winst belangrijkste acteursprijs](https://www.ad.nl/show/sinners-ziet-kans-op-oscar-gloren-na-winst-belangrijkste-acteursprijs~a8c4af1b/)
+  > De vampierthriller Sinners heeft zondag bij de uitreiking van de Actor Awards de prijs voor beste filmcast gewonnen. De film versloeg verrassend One...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Cocaïne tussen de tulpen: de bloemenmaffia van Aalsmeer](https://fd.nl/economie/1587709/cocaine-tussen-de-tulpen-de-bloemenmaffia-van-aalsmeer)
+  > Vandaag in FD Dagkoers: de Rijksuniversiteit Groningen wil loskomen van Amerikaanse big tech en de strijd tegen drugscriminaliteit op de...
 - [De veestapel krimpt, toch is aandeel ForFarmers een van de uitblinkers in Amsterdam](https://fd.nl/financiele-markten/1587802/de-veestapel-krimpt-toch-is-aandeel-forfarmers-een-van-de-uitblinkers-in-amsterdam)
   > Jarenlang nam het vertrouwen van beleggers in veevoerproducent ForFarmers uit Lochem af. Maar met een koerswinst van ruim 60% in de afgelopen twaalf...
 - [Retro-oorlog](https://fd.nl/opinie/1587758/retro-oorlog)
@@ -54,8 +56,6 @@
   > Momfluencers en familievloggers die online filmpjes delen van hun kroost en daaraan verdienen. Dat is natuurlijk andere koek dan fabriekswerk, maar...
 - [Personalia maandag 2 maart](https://fd.nl/bedrijfsleven/1587856/personalia-maandag-2-maart)
   > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Na verbanning Anthropic neemt OpenAI contract met Pentagon over](https://fd.nl/bedrijfsleven/1587764/na-verbanning-anthropic-neemt-openaicontract-met-pentagon-over)
-  > De maker van ChatGPT is wel akkoord gegaan met de eisen van het Pentagon. Anthropic is ondertussen bestempeld tot risico voor de Amerikaanse...
 
 ### Meest gelezen
 
