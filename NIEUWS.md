@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-03-2026 om 21:38*
+*Laatst bijgewerkt: 02-03-2026 om 22:32*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Drie medeplichtigen bij onthoofding Franse leraar krijgen lagere straffen](https://nos.nl/l/2604722)
+  > Drie verdachten die tot ruim 15 jaar cel waren veroordeeld voor betrokkenheid bij de moord op de Franse leraar Samuel Paty in 2020 hebben in hoger...
+- [Opnieuw vogelgriep vastgesteld in Ede, 34.000 kippen geruimd](https://nos.nl/l/2604721)
+  > Bij een leghennenbedrijf in het Gelderse Lunteren, in de gemeente Ede, is vogelgriep vastgesteld. Om verdere verspreiding te voorkomen zijn zo'n...
 - [Oorlog houdt Nederlanders vast in Golfregio: 'De ramen trillen in de sponningen'](https://nos.nl/l/2604716)
   > Voor Nederlanders die door de oorlog niet weg kunnen uit de Golfstaten, voelt de situatie surrealistisch. Het luchtruim blijft voorlopig gesloten,...
 - ['Dat hej mooi doan': op middelbare school in Hengelo kun je nu Twents leren](https://nos.nl/l/2604715)
   > Geen Spaans, Duits of Engels, maar een hele andere taalles op het Twickel College in Hengelo: middelbare scholieren kregen vandaag hun eerste les...
 - [Sterrenchef Bril had promillage van minstens 1,52 toen hij twee keer over hulpkok reed](https://nos.nl/l/2604708)
   > De Nederlandse sterrenchef Nick Bril had te veel alcohol in zijn bloed toen hij twee jaar geleden zijn hulpkok aanreed op een parkeerterrein in...
-- [Scheepvaart door Straat van Hormuz stokt, ook Nederlandse bedrijven houden adem in](https://nos.nl/l/2604699)
-  > Na raketaanvallen rond de Perzische Golf en de Straat van Hormuz ligt de scheepvaart daar grotendeels stil. De oorlog in het Midden-Oosten zorgt...
-- [Geen vrede tussen Pakistan en Afghanistan: al dagen aanvallen over en weer](https://nos.nl/l/2604695)
-  > De escalatie tussen Pakistan en Afghanistan is inmiddels meerdere dagen bezig, maar het lijkt er niet op dat de gevechten snel zullen stoppen. Beide...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Olympische kampioene die paard 24 keer met zweep sloeg weer onder vuur voor mogelijke mishandeling](https://www.ad.nl/andere-sporten/olympische-kampioene-die-paard-24-keer-met-zweep-sloeg-weer-onder-vuur-voor-mogelijke-mishandeling~aae809f9/)
+- [Real Madrid blameert zich in eigen huis tegen Getafe en doet slechte zaken in titelrace](https://www.ad.nl/voetbal/real-madrid-blameert-zich-in-eigen-huis-tegen-getafe-en-doet-slechte-zaken-in-titelrace~a71d5406/)
+  > De titelaspiraties van Real Madrid in La Liga hebben opnieuw een flinke knauw gekregen. De ploeg van trainer Álvaro Arbeloa verloor in eigen huis van...
+- [Dodental Amerikaanse troepen opgelopen, Iraanse elitetroepen dreigen schepen in brand te steken](https://www.ad.nl/buitenland/dodental-amerikaanse-troepen-opgelopen-iraanse-elitetroepen-dreigen-schepen-in-brand-te-steken~ac528ac3/)
+  > Het aantal omgekomen Amerikaanse militairen is opgelopen naar zes. Dat meldt het Central Command in het Midden-Oosten, dat zegt dat de lichamen zijn...
+- [Olympisch kampioene die paard 24 keer met zweep sloeg weer onder vuur voor mogelijke mishandeling in Amsterdam](https://www.ad.nl/andere-sporten/olympisch-kampioene-die-paard-24-keer-met-zweep-sloeg-weer-onder-vuur-voor-mogelijke-mishandeling-in-amsterdam~aae809f9/)
   > De Britse dressuuramazone Charlotte Dujardin (40) ligt opnieuw onder vuur. De drievoudige olympische kampioene sloeg haar paard eerder liefst 24 keer...
 - [Al vast voor moord van zakenman, nu ook verdachte in zaak verdwenen moeder](https://www.ad.nl/binnenland/al-vast-voor-moord-van-zakenman-nu-ook-verdachte-in-zaak-verdwenen-moeder~af91e019/)
   > De politie heeft maandagavond een opvallende stap gezet in het onderzoek naar de vermissing van Teresa Krug. Tijdens een uitzending van Opsporing...
 - [Tranen in Kopen zonder kijken: op valreep vindt programma nog een woning voor Bob en Boukje](https://www.ad.nl/show/tranen-in-kopen-zonder-kijken-op-valreep-vindt-programma-nog-een-woning-voor-bob-en-boukje~afea7b66/)
   > Met pijn in het hart verlaten ze hun geliefde plekje in het oude centrum van Den Bosch. Het appartement met maar één slaapkamer is prachtig, maar...
-- [Zoon van Cher opnieuw gearresteerd voor woninginbraak](https://www.ad.nl/show/zoon-van-cher-opnieuw-gearresteerd-voor-woninginbraak~ac51982f/)
-  > Elijah Blue Allman, de zoon van Cher, is zondag gearresteerd. Dat meldt TMZ op basis van een politierapport. De 49-jarige Allman zou hebben...
-- [Tweede zeperd op rij dreigt voor Real Madrid, basisdebutant laat kans op doelpunt onbenut](https://www.ad.nl/voetbal/tweede-zeperd-op-rij-dreigt-voor-real-madrid-basisdebutant-laat-kans-op-doelpunt-onbenut~a71d5406/)
-  > Real Madrid is met FC Barcelona in een felle strijd om de landstitel verwikkeld. De Koninklijke heeft één verliespunt meer dan de rivaal. Real...
 
 ### Meest gelezen
 
