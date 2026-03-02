@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-03-2026 om 20:41*
+*Laatst bijgewerkt: 02-03-2026 om 21:38*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Oprichter van Telegram Pavel Doerov treft het niet: na Frankrijk opent Rusland een strafzaak tegen hem](https://www.ad.nl/buitenland/oprichter-van-telegram-pavel-doerov-treft-het-niet-na-frankrijk-opent-rusland-een-strafzaak-tegen-hem~ad94a97c/)
-  > De Russische autoriteiten hebben een strafrechtelijk onderzoek ingesteld naar Pavel Doerov, de oprichter en eigenaar van Telegram. Mogelijk blokkeren...
-- [Trump over oorlog met Iran: Grote golf moet nog komen, die komt snel](https://www.ad.nl/buitenland/trump-over-oorlog-met-iran-grote-golf-moet-nog-komen-die-komt-snel~afd5d137/)
-  > De Amerikaanse president Donald Trump stelt dat zijn krijgsmacht Iran aan het raken is, maar ‘nog niet eens hard’. De ‘grote golf’ moet nog komen,...
-- [Paramount onthult plannen voor overname Warner Bros, expert noemt het ‘extreem onrealistisch’](https://www.ad.nl/show/paramount-onthult-plannen-voor-overname-warner-bros-expert-noemt-het-extreem-onrealistisch~aa1cd11e/)
-  > Als Paramount straks Warner Bros Discovery definitief overneemt, willen beide studio’s jaarlijks veel films uitbrengen. Topman David Ellison beloofde...
-- [Vinícius Júnior mist grote kans in Bernabéu, Real Madrid wil in spoor blijven van koploper Barça](https://www.ad.nl/voetbal/vinicius-junior-mist-grote-kans-in-bernabeu-real-madrid-wil-in-spoor-blijven-van-koploper-barca~a71d5406/)
+- [Olympische kampioene die paard 24 keer met zweep sloeg weer onder vuur voor mogelijke mishandeling](https://www.ad.nl/andere-sporten/olympische-kampioene-die-paard-24-keer-met-zweep-sloeg-weer-onder-vuur-voor-mogelijke-mishandeling~aae809f9/)
+  > De Britse dressuuramazone Charlotte Dujardin (40) ligt opnieuw onder vuur. De drievoudige olympische kampioene sloeg haar paard eerder liefst 24 keer...
+- [Al vast voor moord van zakenman, nu ook verdachte in zaak verdwenen moeder](https://www.ad.nl/binnenland/al-vast-voor-moord-van-zakenman-nu-ook-verdachte-in-zaak-verdwenen-moeder~af91e019/)
+  > De politie heeft maandagavond een opvallende stap gezet in het onderzoek naar de vermissing van Teresa Krug. Tijdens een uitzending van Opsporing...
+- [Tranen in Kopen zonder kijken: op valreep vindt programma nog een woning voor Bob en Boukje](https://www.ad.nl/show/tranen-in-kopen-zonder-kijken-op-valreep-vindt-programma-nog-een-woning-voor-bob-en-boukje~afea7b66/)
+  > Met pijn in het hart verlaten ze hun geliefde plekje in het oude centrum van Den Bosch. Het appartement met maar één slaapkamer is prachtig, maar...
+- [Zoon van Cher opnieuw gearresteerd voor woninginbraak](https://www.ad.nl/show/zoon-van-cher-opnieuw-gearresteerd-voor-woninginbraak~ac51982f/)
+  > Elijah Blue Allman, de zoon van Cher, is zondag gearresteerd. Dat meldt TMZ op basis van een politierapport. De 49-jarige Allman zou hebben...
+- [Tweede zeperd op rij dreigt voor Real Madrid, basisdebutant laat kans op doelpunt onbenut](https://www.ad.nl/voetbal/tweede-zeperd-op-rij-dreigt-voor-real-madrid-basisdebutant-laat-kans-op-doelpunt-onbenut~a71d5406/)
   > Real Madrid is met FC Barcelona in een felle strijd om de landstitel verwikkeld. De Koninklijke heeft één verliespunt meer dan de rivaal. Real...
-- [Oneerlijk én schadelijk: ‘babyboete’ drukt vrouwen in een financieel kwetsbare positie](https://www.ad.nl/werk/oneerlijk-en-schadelijk-babyboete-drukt-vrouwen-in-een-financieel-kwetsbare-positie~abd95d8c/)
-  > Psycholoog Thijs Launspach keert deze week terug van zijn ouderschapsverlof. Voor mannen schaadt vader worden de carrière meestal niet; het heeft...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Techaandelen maken verliezen in reisindustrie goed](https://fd.nl/financiele-markten/1587952/techaandelen-maken-verliezen-in-reisindustrie-goed)
+  > Amerikaanse beurzen open lager, maar sluiten redelijk vlak. De S&P 500-index sloot nagenoeg gelijk, de Dow Jones verloor 0,15% en techindex Nasdaq...
 - [Europese Commissie roept Energy Task Force bijeen in reactie op oorlog Midden-Oosten](https://fd.nl/politiek/1587920/europese-commissie-roept-energy-task-force-bijeen-in-reactie-op-oorlog-midden-oosten)
   > De eerste bijeenkomst vindt deze week plaats.
 - [Schiphol Group investeert €200 mln in modernisering Rotterdam The Hague Airport](https://fd.nl/samenleving/1587922/schiphol-group-investeert-200-mln-in-modernisering-rotterdam-the-hague-airport)
@@ -54,8 +56,6 @@
   > Iran slaat terug met aanvallen op olie- en gasinstallaties in de Golfregio, maar ook op andere civiele doelwitten.
 - [Trump neemt enorm risico met aanval op Iran](https://fd.nl/opinie/1587912/trump-neemt-enorm-risico-met-aanval-op-iran)
   > Het is goed als het autoritaire theocratische regime in Teheran eindelijk het veld ruimt. Maar op het militaire ingrijpen van de VS en Israël tegen...
-- [Bonden op ramkoers met kabinet](https://fd.nl/politiek/1587977/bonden-op-ramkoers-met-kabinet)
-  > FNV, CNV en VCP vinden de toezegging om de versnelde verhoging van de AOW-leeftijd ‘in de ijskast te zetten’ niet voldoende en bereiden acties voor.
 
 ### Meest gelezen
 
