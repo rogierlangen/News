@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-03-2026 om 05:07*
+*Laatst bijgewerkt: 02-03-2026 om 08:00*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- ['Moordenaar van Mieke Oort maakt in gevangenis eind aan zijn leven'](https://nos.nl/l/2604583)
-  > Thomas R. uit Leek, die in 2022 Mieke Oort vermoordde, heeft zichzelf om het leven gebracht in de gevangenis. De Leeuwarder Courant en Dagblad van...
-- [Overal pogingen om opkomst bij raadsverkiezingen te verhogen: 'Sleutelfiguren hebben nog wel invloed'](https://nos.nl/l/2604582)
-  > 1200 mensen werden bij de laatste gemeenteraadsverkiezingen uitgenodigd te stemmen in het gebouw van speeltuinvereniging Millinx in de multiculturele...
-- [Twee dagen oorlog: dit weten we over slachtoffers in Iran, Israël en de regio](https://nos.nl/l/2604567)
-  > Voor de tweede dag op rij wordt Iran gebombardeerd door Israël en de Verenigde Staten. Ter vergelding voert Iran raketaanvallen uit op Israëlische en...
-- [AI die code schrijft maakt indruk op programmeurs, maar het vak is meer dan dat](https://nos.nl/l/2604556)
-  > In de wereld van programmeurs gaat het de laatste weken veel over computerprogramma's die zélf code schrijven. Die programma's werken op basis van...
-- [Langs de deuren tegen polarisatie: 'deep canvassing' groeit, maar werkt het?](https://nos.nl/l/2604554)
-  > Hoe zorgen we ervoor dat we in een tijd van polarisatie in verbinding blijven met elkaar? Met de gemeenteraadsverkiezingen in zicht wordt weer goed...
+- [Strafrechtadvocaten gaan weer gedetineerden in EBI bezoeken](https://nos.nl/l/2604622)
+  > Een groep strafrechtadvocaten gaat weer gedetineerden bezoeken in de zwaarst bewaakte afdelingen van gevangenissen, zoals de Extra Beveiligde...
+- [Oppositieleider Machado 'binnen enkele weken' terug naar Venezuela](https://nos.nl/l/2604621)
+  > De Venezolaanse oppositieleider Maria Machado is van plan "ergens in de komende weken" terug te keren naar haar land. Ze zegt daar na een maandenlang...
+- [Doden in Libanon door aanvallen tussen Israël en Hezbollah](https://nos.nl/l/2604618)
+  > Door de oorlog in Iran laait ook het conflict tussen Israël en Hezbollah weer op. Die bondgenoot van Iran vuurde afgelopen nacht raketten af op...
+- [Belgische universiteit ziet af van aanstelling omstreden docent Harry Pettit](https://nos.nl/l/2604617)
+  > De omstreden Britse docent Harry Pettit gaat niet aan de slag bij de Vrije Universiteit Brussel. De Belgische instelling meldt in een statement af te...
+- [Europa maakt zich op voor speech Macron over nucleaire strategie](https://nos.nl/l/2604610)
+  > Hoe ziet Frankrijk zijn rol als enige kernmacht binnen de Europese Unie? President Macron zet dat vanmiddag uiteen in een langverwachte toespraak...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De ‘missie’ van defensieminister Yesilgöz: de hearts and minds van de soldaten winnen](https://www.ad.nl/politiek/de-missie-van-defensieminister-yesilgoz-de-hearts-and-minds-van-de-soldaten-winnen~acff6102/)
-  > Dilan Yesilgöz is weer minister, dit keer van Defensie. Als minst populaire minister in kabinet-Jetten neemt ze het stokje over van de populairste...
-- [Sander Terphuis was zelfs in Nederland niet veilig voor Iraans regime: ‘Opeens stond de recherche voor de deur’](https://www.ad.nl/buitenland/sander-terphuis-was-zelfs-in-nederland-niet-veilig-voor-iraans-regime-opeens-stond-de-recherche-voor-de-deur~aeecf32e/)
-  > Terwijl het regime in Teheran wankelt onder buitenlandse aanvallen, gaan Iraniërs in Nederland feestvierend de straat op. Politicus Sander Terphuis,...
-- [The Jacksons komen in mei 2026 naar Nederland voor drie shows](https://www.ad.nl/show/the-jacksons-komen-in-mei-2026-naar-nederland-voor-drie-shows~a4ce230c/)
-  > The Jacksons komen dit voorjaar weer naar Nederland. De legendarische familieband geeft in mei 2026 shows in Rotterdam, Eindhoven en Groningen. De...
-- [Marlies wordt gek van harde muziek in winkelstraat: ‘Alsof buurman de hele dag zijn stereo aan heeft staan’](https://www.ad.nl/binnenland/marlies-wordt-gek-van-harde-muziek-in-winkelstraat-alsof-buurman-de-hele-dag-zijn-stereo-aan-heeft-staan~ad27d772/)
-  > Marlies Wesdijk wordt er soms horendol van. De hele dag hoort ze in haar huis harde muziek uit de winkelstraat onder haar. „Zelfs als de winkels op...
-- [‘Sinners’ ziet kans op Oscar gloren na winst belangrijkste acteursprijs](https://www.ad.nl/show/sinners-ziet-kans-op-oscar-gloren-na-winst-belangrijkste-acteursprijs~a8c4af1b/)
-  > De vampierthriller Sinners heeft zondag bij de uitreiking van de Actor Awards de prijs voor beste filmcast gewonnen. De film versloeg verrassend One...
+- [Topadvocaten die staakten vanwege cameratoezicht in EBI pakken het werk weer op](https://www.ad.nl/binnenland/topadvocaten-die-staakten-vanwege-cameratoezicht-in-ebi-pakken-het-werk-weer-op~a76c959d/)
+  > De grote groep strafrechtadvocaten die sinds half november uit protest hun cliënten niet meer bezochten in de Extra Beveiligde Inrichting (EBI) en...
+- [‘Feyenoord is erbarme­lijk, maar ik verwacht dat ze tweede worden’: wat denk jij over strijd om plek 2?](https://www.ad.nl/voetbal/feyenoord-is-erbarmelijk-maar-ik-verwacht-dat-ze-tweede-worden-wat-denk-jij-over-strijd-om-plek-2~a5edb0f0/)
+  > Feyenoord, Ajax én NEC morsten afgelopen weekend punten in strijd om plek 2. Geen van de kandidaten is in vorm, en dus is de vraag wie het tweede...
+- [Brigitte Bardot en Robert Redford: acteurs herdenken lange rij overleden filmsterren](https://www.ad.nl/show/brigitte-bardot-en-robert-redford-acteurs-herdenken-lange-rij-overleden-filmsterren~a3a53c64/)
+  > De lijst overleden beroemdheden uit de filmgeschiedenis die jaarlijks tijdens het prijzenseizoen wordt vertoond, is dit keer lang en bevat heel veel...
+- [Europese gasprijs stijgt met 25 procent door conflict rond Iran dat toevoer bedreigt](https://www.ad.nl/buitenland/europese-gasprijs-stijgt-met-25-procent-door-conflict-rond-iran-dat-toevoer-bedreigt~ac5e7ddb/)
+  > De Europese gasprijs is maandag met 25 procent gestegen door Amerikaanse en Israëlische aanvallen op Iran en de Iraanse vergeldingsacties. Vooral het...
+- [Claartje weet niet meer dat ze haar vriend in brand stak, maar dat geloven deskundigen niet](https://www.ad.nl/binnenland/claartje-weet-niet-meer-dat-ze-haar-vriend-in-brand-stak-maar-dat-geloven-deskundigen-niet~a5a85ec9/)
+  > Het koppel Claartje en Frankie woont al een tijdje samen in een antikraakpand. Als er op een nacht brand uitbreekt en Frankie zwaargewond raakt,...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Vrouwen moeten leiderschap tonen, maar niet te veel](https://fd.nl/samenleving/1587895/vrouwen-moeten-leiderschap-tonen-maar-niet-te-veel)
+  > Vrouwen worden op het werk nog altijd strenger beoordeeld dan mannen, stelt trainer en coach Julia Wouters vast. Wat staat vrouwen te doen?
+- [Live: Future AEX daalt met 1,4%, gasprijs stijgt met 21,5%](https://fd.nl/financiele-markten/1587754/live-olieprijs-stijgt-met-ruim-6-lagere-beursindices-azie)
+  > De bombardementen op Iran door het Israëlische en Amerikaanse leger zetten de toon voor het sentiment op de financiële markten. Voor Europa wordt een...
+- [Live: VS en Israël vallen Hezbollah-doelen aan in Libanon en Irak](https://fd.nl/politiek/1587867/live-kop-vervang-met-kop)
+  > Het is de derde dag van de Iranoorlog. Opnieuw liggen Iraanse doelen onder vuur. Bij een luchtmachtbasis in Koeweit is een straaljager neergestort....
 - [Cocaïne tussen de tulpen: de bloemenmaffia van Aalsmeer](https://fd.nl/economie/1587709/cocaine-tussen-de-tulpen-de-bloemenmaffia-van-aalsmeer)
   > Vandaag in FD Dagkoers: de Rijksuniversiteit Groningen wil loskomen van Amerikaanse big tech en de strijd tegen drugscriminaliteit op de...
 - [De veestapel krimpt, toch is aandeel ForFarmers een van de uitblinkers in Amsterdam](https://fd.nl/financiele-markten/1587802/de-veestapel-krimpt-toch-is-aandeel-forfarmers-een-van-de-uitblinkers-in-amsterdam)
   > Jarenlang nam het vertrouwen van beleggers in veevoerproducent ForFarmers uit Lochem af. Maar met een koerswinst van ruim 60% in de afgelopen twaalf...
-- [Retro-oorlog](https://fd.nl/opinie/1587758/retro-oorlog)
-  > Onze geriatrische leidersklasse wil er met een knal uitgaan.
-- [Momfluencers en hun schimmige verdienmodel](https://fd.nl/opinie/1586584/momfluencers-en-hun-schimmige-verdienmodel)
-  > Momfluencers en familievloggers die online filmpjes delen van hun kroost en daaraan verdienen. Dat is natuurlijk andere koek dan fabriekswerk, maar...
-- [Personalia maandag 2 maart](https://fd.nl/bedrijfsleven/1587856/personalia-maandag-2-maart)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
