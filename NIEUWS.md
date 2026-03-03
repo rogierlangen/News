@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-03-2026 om 04:49*
+*Laatst bijgewerkt: 03-03-2026 om 05:53*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Denk doet nieuwe poging om discriminatie bij sollicitatie wettelijk tegen te gaan](https://nos.nl/l/2604734)
+  > De politieke partij Denk wil met een initiatiefwet arbeidsdiscriminatie tegengaan. Het gebeurt nog te vaak dat mensen een baan niet krijgen vanwege...
+- [Gestolen Odido-data gebruikt op sociale media en websites](https://nos.nl/l/2604733)
+  > Nu de gehackte Odido-gegevens volledig zijn gelekt, staan data van ruim zes miljoen Nederlanders op het darkweb. De gestolen data blijken inmiddels...
+- [Wekdienst 3/3: Oorlog gaat onverminderd door • Uitspraak in Barendrechtse zedenzaak](https://nos.nl/l/2604732)
+  > Goedemorgen! De oorlog in het Midden-Oosten gaat onverminderd door, maar er is ook ander nieuws. Zo komt er vanochtend een uitspraak in de...
 - [Beruchte Siciliaanse maffiabaas Benedetto 'Nitto' Santapaola (87) overleden](https://nos.nl/l/2604727)
   > De beruchte Italiaanse maffiabaas Benedetto 'Nitto' Santapaola is op 87-jarige leeftijd overleden in een ziekenhuis in Milaan. Italiaanse media...
 - [Helft jongeren drinkt negentig suikerklontjes in frisdrank per week](https://nos.nl/l/2604726)
   > Nederlandse jongeren van 12 tot en met 16 jaar drinken gemiddeld 9,5 glas suikerhoudende frisdrank per week. De helft drinkt zelfs 16,5 glas per...
-- [Doorsnee-inkomens missen ton om eigen huis te kopen, berekent CPB](https://nos.nl/l/2604725)
-  > Wie van een doorsnee-inkomen een huis wil kopen, komt meer dan 100.000 euro tekort om een hypotheek te kunnen afsluiten. Zonder dubbel inkomen of...
-- [Drie medeplichtigen bij onthoofding Franse leraar krijgen lagere straffen](https://nos.nl/l/2604722)
-  > Drie verdachten die tot ruim 15 jaar cel waren veroordeeld voor betrokkenheid bij de moord op de Franse leraar Samuel Paty in 2020 hebben in hoger...
-- [Opnieuw vogelgriep vastgesteld in Ede, 34.000 kippen geruimd](https://nos.nl/l/2604721)
-  > Bij een leghennenbedrijf in het Gelderse Lunteren, in de gemeente Ede, is vogelgriep vastgesteld. Om verdere verspreiding te voorkomen zijn zo'n...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Amerikaanse ambassade Riyad in brand gestoken, Israël voert opnieuw aanvallen uit op Beiroet](https://www.ad.nl/buitenland/amerikaanse-ambassade-riyad-in-brand-gestoken-israel-voert-opnieuw-aanvallen-uit-op-beiroet~ac528ac3/)
+  > De Amerikaanse ambassade in de Saoedische hoofdstad Riyad is vannacht aangevallen met drones. Kort voor de explosie riepen de Verenigde Staten hun...
+- [Afsleepkosten bij pech met elektrische auto in Duitsland kunnen oplopen tot wel 20.000 euro](https://www.ad.nl/auto/afsleepkosten-bij-pech-met-elektrische-auto-in-duitsland-kunnen-oplopen-tot-wel-20-000-euro~a1e89919c/)
+  > Als een elektrische auto’s betrokken is bij een ongeluk kan dat in Duitsland tot onverwacht hoge kosten leiden. In plaats van een paar honderd euro...
+- [‘Wie nog één keer zeurt komt bij een man op de kamer’: het leed dat Oekraïne-opvang heet](https://www.ad.nl/binnenland/wie-nog-een-keer-zeurt-komt-bij-een-man-op-de-kamer-het-leed-dat-oekraine-opvang-heet~ab170e95/)
+  > De opvang van Oekraïners in ons land vertoont volop gebreken. Aan het begin van het vijfde oorlogsjaar zitten veel opvanglocaties propvol en zijn...
+- [Beruchte Siciliaanse maffiabaas Nitto Santapaola (87) in gevangenis overleden](https://www.ad.nl/buitenland/beruchte-siciliaanse-maffiabaas-nitto-santapaola-87-in-gevangenis-overleden~a4f584d0/)
+  > Benedetto ‘Nitto’ Santapaola, een beruchte Siciliaanse maffiabaas die al meer dan dertig jaar in de gevangenis van Milaan zat, is op 87-jarige...
 - [Studio 100 schuift choreograaf aan de kant na meldingen van grensoverschrijdend gedrag](https://www.ad.nl/show/studio-100-schuift-choreograaf-aan-de-kant-na-meldingen-van-grensoverschrijdend-gedrag~a48873cb/)
   > De choreograaf achter de grootste Studio 100-producties is van de K3 Originals-shows gehaald na zeker zestien meldingen van grensoverschrijdend...
-- [Trump beëindigt jarenlange boycot Correspondents’ Dinner](https://www.ad.nl/buitenland/trump-beeindigt-jarenlange-boycot-correspondents-dinner~ae67dd9c/)
-  > Voor het eerst zal Donald Trump als president het Correspondents’ Dinner, het jaarlijkse feestje van de Amerikaanse politieke pers, bijwonen. Daarmee...
-- [Hoe ver Amerika wil gaan in Iran: dit is de lijst die Trump wil afwerken](https://www.ad.nl/buitenland/hoe-ver-amerika-wil-gaan-in-iran-dit-is-de-lijst-die-trump-wil-afwerken~a23e31a2/)
-  > De Opperste Leider Khamenei is dood en de grootschalige aanvallen op (militaire) doelwitten in Iran gaan onverminderd door. Wanneer is de militaire...
-- [Hoe komt president Trump aan die rode plek in zijn nek? Witte Huis komt met verklaring](https://www.ad.nl/buitenland/hoe-komt-president-trump-aan-die-rode-plek-in-zijn-nek-witte-huis-komt-met-verklaring~ad79caf0/)
-  > Beelden van een grote rode vlek in de nek van de Amerikaanse president Donald Trump (79) zorgen voor heel wat speculatie op sociale media, zo...
-- [Amerikaanse ambassade Riyad aangevallen, VAE melden spervuur aan Iraanse raketten](https://www.ad.nl/buitenland/amerikaanse-ambassade-riyad-aangevallen-vae-melden-spervuur-aan-iraanse-raketten~ac528ac3/)
-  > Het aantal omgekomen Amerikaanse militairen is opgelopen naar zes. Dat meldt het Central Command in het Midden-Oosten, dat zegt dat de lichamen zijn...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Is bij oorlogsdreiging een Europees gevoelde identiteit noodzakelijk?](https://fd.nl/samenleving/1587897/is-bij-oorlogsdreiging-een-europees-gevoelde-identiteit-noodzakelijk)
+  > Oud-Commandant Landstrijdkrachten Mart de Kruif betwijfelt of zo’n identiteit mensen echt verbindt. Filosoof Jos de Mul denkt dat die bij...
 - [Oorlog in Iran: een nieuwe energiecrisis in de maak?](https://fd.nl/economie/1588000/oorlog-in-iran-een-nieuwe-energiecrisis-in-de-maak)
   > Vandaag in de FD Dagkoers podcast: de gasprijzen exploderen door de oorlog in Iran, defensieaandelen in de VS en Europa stijgen. En wat betekent de...
 - [Eindhovense scale-up Rift haalt €114 mln op voor energie uit ijzer](https://fd.nl/tech-en-innovatie/1587995/eindhovense-scale-up-rift-haalt-114-mln-op-voor-energie-uit-ijzer)
@@ -54,8 +56,6 @@
   > Fysieke tekorten zijn tegenwoordig niet zozeer het probleem, maar het risico op extreme prijspieken wel.
 - [Coolblue verkoopt installatietak aan Hoppenbrouwers](https://fd.nl/bedrijfsleven/1587902/coolblue-verkoopt-installatietak-aan-hoppenbrouwers)
   > De technisch dienstverlener neemt de energie-installatietak over van Coolblue, dat in 2019 in deze markt stapte. De partijen maken geen overnamesom...
-- [Trump waagt een mega-MAGA gok](https://fd.nl/opinie/1587871/trump-waagt-een-mega-maga-gok)
-  > Trump zet alles op alles in Iran – zonder het Congres, met grote militaire risico’s en met zijn verkiezingsbelofte op het spel. Als het snel eindigt,...
 
 ### Meest gelezen
 
