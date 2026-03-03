@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-03-2026 om 10:46*
+*Laatst bijgewerkt: 03-03-2026 om 11:37*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Rapper Diddy komt 1,5 maand eerder vrij door deelname afkickprogramma](https://www.ad.nl/show/rapper-diddy-komt-1-5-maand-eerder-vrij-door-deelname-afkickprogramma~a362273d/)
-  > Gevallen hiphopicoon Sean ‘Diddy’ Combs komt 1,5 maand eerder vrij. De muziekondernemer krijgt volgens de Britse krant The Sun strafvermindering,...
-- [Na uitschakelen top Revolutionaire Garde: dit zou nodig zijn voor machtswisseling in Iran](https://www.ad.nl/buitenland/na-uitschakelen-top-revolutionaire-garde-dit-zou-nodig-zijn-voor-machtswisseling-in-iran~ae8e5f5d/)
-  > Het hoofdkwartier van de Revolutionaire Garde in Iran is van de kaart geveegd, in het hele land liggen kazernes van het elitekorps in puin en wordt...
-- [Praat mee: we moeten onze wooneisen aanpassen, zodat een eigen huis voor iedereen haalbaar is](https://www.ad.nl/praat-mee/praat-mee-we-moeten-onze-wooneisen-aanpassen-zodat-een-eigen-huis-voor-iedereen-haalbaar-is~a6a3e281/)
-  > In de Kwestie leggen we onze lezers een vraag of stelling voor. Vandaag: we zullen onze wooneisen moeten bijstellen om een eigen huis voor iedereen...
-- [Zonovergoten en warme start F1-seizoen, ‘Aston Martin zal snel opgeven tijdens GP Australië’](https://www.ad.nl/formule-1/zonovergoten-en-warme-start-f1-seizoen-aston-martin-zal-snel-opgeven-tijdens-gp-australie~ade263b12/)
-  > Het eerste Formule 1-weekend van het seizoen staat voor de deur. Max Verstappen en zijn collega’s zijn in Melbourne voor de Grand Prix van Australië....
-- [Hekkensluiter Heracles haalt assistent-trainer bij PSV, KNVB zet streep door oorspronkelijk plan](https://www.ad.nl/voetbal/hekkensluiter-heracles-haalt-assistent-trainer-bij-psv-knvb-zet-streep-door-oorspronkelijk-plan~ad62e60e/)
-  > Vincent Heilmann verlaat PSV en gaat aan de slag bij Heracles. De 29-jarige Tilburger was in beeld om de nieuwe hoofdtrainer van de Almeloërs te...
+- [Oproep ministerie aan Nederlanders in het Midden-Oosten: laat van je horen](https://www.ad.nl/binnenland/oproep-ministerie-aan-nederlanders-in-het-midden-oosten-laat-van-je-horen~a7be73c1/)
+  > Het ministerie van Buitenlandse Zaken roept Nederlanders in het Midden-Oosten op om crisisformulieren in te vullen. Zo kan het ministerie beter in...
+- [Opvallende transfer in de maak: Jean-Paul Boëtius keert terug op Nederlandse velden](https://www.ad.nl/voetbal/opvallende-transfer-in-de-maak-jean-paul-boetius-keert-terug-op-nederlandse-velden~a5f064c8/)
+  > Jean-Paul Boëtius is hard op weg naar een terugkeer in Nederland. De voormalig Feyenoord-aanvaller zat zonder club en zou naar verluidt per direct...
+- [K3-choreograaf betuigt spijt na klachten over werkwijze](https://www.ad.nl/show/k3-choreograaf-betuigt-spijt-na-klachten-over-werkwijze~a2b71f14/)
+  > Choreograaf Tommy Gryson heeft gereageerd op de meldingen over hem van grensoverschrijdend gedrag bij de productie van de K3 Originals-shows. Studio...
+- [Bedankt lieve mailers, de onsmakelijke foto’s staan nog op mijn netvlies gebrand](https://www.ad.nl/binnenland/bedankt-lieve-mailers-de-onsmakelijke-fotos-staan-nog-op-mijn-netvlies-gebrand~aa8f6881/)
+  > Toch nog even over dat gordelroosvaccin. Want het is van de zotte dat 60-plussers dat zelf moeten gaan betalen, schrijft Angela de Jong.
+- [Nieuw AI-keurmerk rukt op: bedrijven willen bewijzen dat hun AI ‘verantwoord’ is](https://www.ad.nl/binnenland/nieuw-ai-keurmerk-rukt-op-bedrijven-willen-bewijzen-dat-hun-ai-verantwoord-is~a5b8087b/)
+  > Van racistische liedjes tot nepnieuws: AI wordt vaak ingezet voor weinig ‘verantwoorde’ zaken. Toch is er nu een keurmerk voor kunstmatige...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Hoeveel klanten hebben zelfstandig ondernemers gemiddeld?](https://fd.nl/samenleving/1587869/hoeveel-klanten-hebben-zelfstandig-ondernemers-gemiddeld)
+  > Wetenswaardigheden op het gebied van loopbaan en personal finance.
+- [Supersize lijkt passé: wereldwijde afslanktrend hervormt snackindustrie](https://fd.nl/bedrijfsleven/1588004/supersize-lijkt-passe-wereldwijde-afslanktrend-hervormt-snackindustrie)
+  > Snackgiganten zoals Magnum en PepsiCo buigen mee met de afslankhype, die wordt gevoed door de populariteit van medicijnen om af te vallen.
+- [Export Indiase basmatirijst naar Midden-Oosten valt stil](https://fd.nl/financiele-markten/1587962/export-indiase-basmatirijst-naar-midden-oosten-valt-stil)
+  > Door verstoring van de scheepvaartroutes zit de rijst vast in havens of op andere plekken in de logistieke keten. De helft van de Indiase...
 - [OpenAI heronderhandelt deal met het Pentagon na forse kritiek](https://fd.nl/tech-en-innovatie/1587959/openai-heronderhandelt-deal-met-het-pentagon-na-forse-kritiek)
   > Bestuursvoorzitter Sam Altman heeft spijt van de snelle deal die hij vrijdag sloot met het Amerikaanse ministerie van defensie.
 - [Ook wonen in Dubai!?](https://fd.nl/financiele-markten/1588028/ook-wonen-in-dubai)
   > Helaas biedt een fiscaal toevluchtsoord alleen bescherming tegen belasting – niet tegen bommen, schrijft FD-columnist Milou Brand.
-- [Dochter wil kleedgeld](https://fd.nl/samenleving/1587875/dochter-wil-kleedgeld)
-  > De dochter van Femmetje de Wind is niet tevreden met het kleedgeldaanbod. Dan moet ze maar wat creatiever zijn. Vintage is hip.
-- [Nu het stroomnet vastloopt, wacht Nederland op een nieuwe energierevolutie](https://fd.nl/opinie/1586688/nederland-wacht-op-een-nieuwe-energierevolutie)
-  > Toen de privatisering van de energiebedrijven tot stand kwam, was dat een ware energierevolutie. Het kabinet moet werken aan een volgende, om onze...
-- [Een huis uit 1933 met vier klokgevels in het Drentse Vries](https://fd.nl/samenleving/1587903/een-huis-uit-1933-met-vier-klokgevels-in-het-drentse-vries)
-  > ‘Ik vertelde de vorige eigenaar dat ik nogal een energiefanaat ben. Dan kun je je hart hier wel ophalen, antwoordde hij.’
 
 ### Meest gelezen
 
