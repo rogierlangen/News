@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-03-2026 om 21:38*
+*Laatst bijgewerkt: 03-03-2026 om 22:34*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Jerdy Schouten probeert vinger op de zere plek te leggen na bekerechec PSV: ‘We bleven niet bij ons eigen spel’](https://www.ad.nl/voetbal/jerdy-schouten-probeert-vinger-op-de-zere-plek-te-leggen-na-bekerechec-psv-we-bleven-niet-bij-ons-eigen-spel~afbb8e50/)
-  > Het is PSV weer niet gelukt om de bekerfinale te bereiken. „Balen, enorm klote”, zei Jerdy Schouten als eerste reactie na afloop. De aanvoerder zocht...
-- [Liverpool voert tempo na rust op in lastig uitduel met hekkensluiter Wolverhampton](https://www.ad.nl/voetbal/liverpool-voert-tempo-na-rust-op-in-lastig-uitduel-met-hekkensluiter-wolverhampton~a481501d/)
-  > Liverpool kan zich in de strijd om Champions League-voetbal nauwelijks misstappen permitteren. De ploeg van Arne Slot gaat vanavond op bezoek bij...
-- [Dit is waarom Grok jou een Hitlergroet laat doen: ‘Ik doe dit gewoon en doe niet aan woke-censuur’](https://www.ad.nl/tech/dit-is-waarom-grok-jou-een-hitlergroet-laat-doen-ik-doe-dit-gewoon-en-doe-niet-aan-woke-censuur~aa7074eb/)
-  > Het toestaan van levensechte nazifilmpjes in de AI-bot Grok is geen incident, maar een bewuste keuze binnen de wijze waarop X het publieke debat wil...
-- [Dit moment in Winter vol liefde was al tenenkrommend, maar toen moest het ergste nog komen](https://www.ad.nl/show/dit-moment-in-winter-vol-liefde-was-al-tenenkrommend-maar-toen-moest-het-ergste-nog-komen~ae4a2013/)
-  > Ik heb tijdens B&B vol liefde en Winter vol liefde vaak genoeg met open mond toegekeken en dacht eigenlijk dat ik wel wat gewend was. Maar...
-- [Russische tanker in lichterlaaie op Middellandse Zee, lot bemanning onduidelijk](https://www.ad.nl/buitenland/russische-tanker-in-lichterlaaie-op-middellandse-zee-lot-bemanning-onduidelijk~adfb97be/)
-  > Op de Middellandse Zee staat een Russische tanker in brand. Dat meldt persbureau Reuters. Het gaat om de Arctic Metagaz, een schip dat vloeibaar...
+- [Warner Bros werkt aan Game of Thrones-film](https://www.ad.nl/show/warner-bros-werkt-aan-game-of-thrones-film~a028d91a/)
+  > Filmstudio Warner Bros werkt aan een bioscoopfilm die zich afspeelt binnen de wereld van Game of Thrones. Dat meldt onder meer The Hollywood Reporter.
+- [Weer een late domper voor Arne Slot: Liverpool verliest in blessuretijd van hekkensluiter](https://www.ad.nl/voetbal/weer-een-late-domper-voor-arne-slot-liverpool-verliest-in-blessuretijd-van-hekkensluiter~a481501d/)
+  > Liverpool heeft duur puntenverlies geleden op bezoek bij hekkensluiter Wolverhampton. De ploeg van trainer Arne Slot liep diep in de blessuretijd...
+- [Khamenei wordt begraven in thuisstad, Merz: aanvallen VS en Israël op Iran niet zonder risico](https://www.ad.nl/buitenland/khamenei-wordt-begraven-in-thuisstad-merz-aanvallen-vs-en-israel-op-iran-niet-zonder-risico~ac528ac3/)
+  > De hoogste leider van Iran, ayatollah Ali Khamenei, wordt begraven in zijn thuisstad Mashhad, meldt persbureau Fars. Khamenei kwam zaterdag om het...
+- [Nóg een gevangene erbij in overvolle en vieze cel: Fransman die protesteert krijgt straf](https://www.ad.nl/buitenland/nog-een-gevangene-erbij-in-overvolle-en-vieze-cel-fransman-die-protesteert-krijgt-straf~a85de4b0c/)
+  > Vier gevangenen in kleine cel was al wat krap, maar toen er een vijfde bijkwam, tekende een celgenoot protest aan. Dat kostte hem twee weken op water...
+- [Imponerend Barcelona komt net te kort voor historische comeback, Atlético Madrid naar finale Copa del Rey](https://www.ad.nl/voetbal/imponerend-barcelona-komt-net-te-kort-voor-historische-comeback-atletico-madrid-naar-finale-copa-del-rey~a282115b/)
+  > Atlético Madrid heeft zich verzekerd van de finale van de Copa del Rey. Ondanks dat de Madrilenen de return in de halve finale met 3-0 verloren van...
 
 ### Meest gelezen
 
