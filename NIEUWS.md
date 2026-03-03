@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-03-2026 om 23:31*
+*Laatst bijgewerkt: 03-03-2026 om 02:35*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Helft jongeren drinkt negentig suikerklontjes in frisdrank per week](https://nos.nl/l/2604726)
+  > Nederlandse jongeren van 12 tot en met 16 jaar drinken gemiddeld 9,5 glas suikerhoudende frisdrank per week. De helft drinkt zelfs 16,5 glas per...
 - [Doorsnee-inkomens missen ton om eigen huis te kopen, berekent CPB](https://nos.nl/l/2604725)
   > Wie van een doorsnee-inkomen een huis wil kopen, komt meer dan 100.000 euro tekort om een hypotheek te kunnen afsluiten. Zonder dubbel inkomen of...
 - [Drie medeplichtigen bij onthoofding Franse leraar krijgen lagere straffen](https://nos.nl/l/2604722)
@@ -16,8 +18,6 @@
   > Bij een leghennenbedrijf in het Gelderse Lunteren, in de gemeente Ede, is vogelgriep vastgesteld. Om verdere verspreiding te voorkomen zijn zo'n...
 - [Oorlog houdt Nederlanders vast in Golfregio: 'De ramen trillen in de sponningen'](https://nos.nl/l/2604716)
   > Voor Nederlanders die door de oorlog niet weg kunnen uit de Golfstaten, voelt de situatie surrealistisch. Het luchtruim blijft voorlopig gesloten,...
-- ['Dat hej mooi doan': op middelbare school in Hengelo kun je nu Twents leren](https://nos.nl/l/2604715)
-  > Geen Spaans, Duits of Engels, maar een hele andere taalles op het Twickel College in Hengelo: middelbare scholieren kregen vandaag hun eerste les...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [VS roepen landgenoten in twaalf landen op om uit Midden-Oosten te vertrekken](https://www.ad.nl/buitenland/vs-roepen-landgenoten-in-twaalf-landen-op-om-uit-midden-oosten-te-vertrekken~ac528ac3/)
+- [Hoe ver Amerika wil gaan in Iran: dit is de lijst die Trump wil afwerken](https://www.ad.nl/buitenland/hoe-ver-amerika-wil-gaan-in-iran-dit-is-de-lijst-die-trump-wil-afwerken~a23e31a2/)
+  > De Opperste Leider Khamenei is dood en de grootschalige aanvallen op (militaire) doelwitten in Iran gaan onverminderd door. Wanneer is de militaire...
+- [LIVE VS | Video’s van verklaringen van Clintons over Epstein gepubliceerd](https://www.ad.nl/buitenland/live-vs-videos-van-verklaringen-van-clintons-over-epstein-gepubliceerd~ae67dd9c/)
+  > Een onderzoekscommissie van het Amerikaanse Huis van Afgevaardigden heeft videobeelden van de getuigenverklaringen van voormalig president Bill...
+- [Hoe komt president Trump aan die rode plek in zijn nek? Witte Huis komt met verklaring](https://www.ad.nl/buitenland/hoe-komt-president-trump-aan-die-rode-plek-in-zijn-nek-witte-huis-komt-met-verklaring~ad79caf0/)
+  > Beelden van een grote rode vlek in de nek van de Amerikaanse president Donald Trump (79) zorgen voor heel wat speculatie op sociale media, zo...
+- [Amerikaanse ambassade Riyad aangevallen, VAE melden spervuur aan Iraanse raketten](https://www.ad.nl/buitenland/amerikaanse-ambassade-riyad-aangevallen-vae-melden-spervuur-aan-iraanse-raketten~ac528ac3/)
   > Het aantal omgekomen Amerikaanse militairen is opgelopen naar zes. Dat meldt het Central Command in het Midden-Oosten, dat zegt dat de lichamen zijn...
 - [Voetbalpodcast | ‘Voor een topclub als Feyenoord is dit een belachelijke situatie’](https://www.ad.nl/voetbal/voetbalpodcast-voor-een-topclub-als-feyenoord-is-dit-een-belachelijke-situatie~ac8603a9/)
   > Feyenoord en Kees van Wonderen gaan toch niet met elkaar in zee. De voormalig speler leek de nieuwe technisch directeur te worden, maar de deal is...
-- [Voor een doorsneehuis moet je al dubbel modaal verdienen: koopwoning onbereikbaar voor veel huishoudens](https://www.ad.nl/binnenland/voor-een-doorsneehuis-moet-je-al-dubbel-modaal-verdienen-koopwoning-onbereikbaar-voor-veel-huishoudens~af1c7b48/)
-  > Verdien je minder dan 96.000 euro op jaarbasis, dan maak je nauwelijks kans op een koopwoning. Zeker voor alleenstaanden is het zonder spaargeld of...
-- [Blije gezichten in Barcelona: Real Madrid blameert zich opnieuw en doet slechte zaken in titelrace](https://www.ad.nl/voetbal/blije-gezichten-in-barcelona-real-madrid-blameert-zich-opnieuw-en-doet-slechte-zaken-in-titelrace~a71d5406/)
-  > De titelaspiraties van Real Madrid in La Liga hebben opnieuw een flinke knauw gekregen. De ploeg van trainer Álvaro Arbeloa verloor in eigen huis van...
-- [Olympisch kampioene die paard 24 keer met zweep sloeg weer onder vuur voor mogelijke mishandeling in Amsterdam](https://www.ad.nl/andere-sporten/olympisch-kampioene-die-paard-24-keer-met-zweep-sloeg-weer-onder-vuur-voor-mogelijke-mishandeling-in-amsterdam~aae809f9/)
-  > De Britse dressuuramazone Charlotte Dujardin (40) ligt opnieuw onder vuur. De drievoudige olympische kampioene sloeg haar paard eerder liefst 24 keer...
 
 ### Meest gelezen
 
