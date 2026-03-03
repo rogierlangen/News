@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-03-2026 om 16:55*
+*Laatst bijgewerkt: 03-03-2026 om 17:49*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Zeehondenpopulatie Waddenzee krimpt, wetenschappers gaan onderzoeken hoe dat komt](https://nos.nl/l/2604812)
+  > "Zeehonden kunnen goed voor zichzelf zorgen en zijn heel flexibel. Dus de vraag is, zijn ze naar ander gebied gezwommen of zijn ze dood?", vraagt...
 - [Vattenfall en Eneco stoppen deels met aanbieden van vaste energiecontracten](https://nos.nl/l/2604805)
   > In ieder geval twee van de drie grote energieleveranciers in Nederland stoppen deels met vaste energiecontracten vanwege de ontwikkelingen in het...
 - [Tot 15 jaar cel voor explosie in Nieuwkuijk waarbij vrouw onderbeen verloor](https://nos.nl/l/2604801)
@@ -16,8 +18,6 @@
   > Aan de moordaanslag op de Iraanse ayatollah Khamenei ging een jarenlange operatie van de Mossad vooraf. De Israëlische geheime dienst had zich...
 - [Podcast De Dag: hoe de Golfstaten de oorlog worden ingetrokken](https://nos.nl/l/2604797)
   > Sinds de Israëlisch-Amerikaanse aanvallen op Iran ligt bijna de hele Golfregio onder vuur. Dat zorgt voor onrust onder toeristen en bij mensen die...
-- [Man (26) vrijgesproken voor medeplichtigheid aan dood van rapper Bigidagoe](https://nos.nl/l/2604796)
-  > Een 26-jarige man is vrijgesproken van medeplichtigheid aan de doodslag op de Amsterdamse rapper Bigidagoe. Volgens de rechtbank Amsterdam kan niet...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Pech achtervolgt Wout van Aert bij seizoensstart: twee lekke banden, winst voor Jordi Meeus in Le Samyn](https://www.ad.nl/wielrennen/pech-achtervolgt-wout-van-aert-bij-seizoensstart-twee-lekke-banden-winst-voor-jordi-meeus-in-le-samyn~abbc3d731/)
-  > Wout van Aert maakte in Le Samyn zijn seizoensdebuut op de weg, maar bekroonde dat niet met een goede uitslag in de Belgische semi-klassieker. Twee...
-- [Gebouw van raad die nieuwe ayatollah zou aanwijzen gebombardeerd](https://www.ad.nl/buitenland/gebouw-van-raad-die-nieuwe-ayatollah-zou-aanwijzen-gebombardeerd~ac528ac3/)
-  > Een gebouw van de raad die de nieuwe ayatollah van Iran moet benoemen is gebombardeerd door Israël en de VS. Dat meldt persbureau AFP op basis van...
-- [Waarom we Lil Kleine weer omarmen: ‘Hij weet hoe je mensen meekrijgt’](https://www.ad.nl/show/waarom-we-lil-kleine-weer-omarmen-hij-weet-hoe-je-mensen-meekrijgt~ac5f0770/)
-  > Vier jaar na de video waarop te zien is hoe hij zijn toenmalige vriendin Jamie Vaes uit de auto sleurt, is Lil Kleine (31) helemaal terug. Zijn...
-- [Real Madrid-aanvaller Rodrygo moet vrezen voor WK: Braziliaan loopt kruisbandblessure op](https://www.ad.nl/wk-voetbal/real-madrid-aanvaller-rodrygo-moet-vrezen-voor-wk-braziliaan-loopt-kruisbandblessure-op~a4213644/)
-  > De Braziliaanse aanvaller Rodrygo mist mogelijk het WK-voetbal van komende zomer vanwege een kruisbandblessure. In de thuiswedstrijd van zijn club...
-- [Haagse toiletjuf Joke in no time beroemd: ‘Ze kunnen beter over me lullen dan fietsen’](https://www.ad.nl/binnenland/haagse-toiletjuf-joke-in-no-time-beroemd-ze-kunnen-beter-over-me-lullen-dan-fietsen~ae0908a8/)
-  > In een klap is de geboren en getogen Haagse Joke (78) een bekende Nederlander geworden. Sinds haar deelname aan het programma Oh Oh Den Haag heeft ze...
+- [LIVE KNVB-beker | PSV-trainer Peter Bosz houdt ook in halve finale tegen NEC vertrouwen in spits Myron Boadu](https://www.ad.nl/voetbal/live-knvb-beker-psv-trainer-peter-bosz-houdt-ook-in-halve-finale-tegen-nec-vertrouwen-in-spits-myron-boadu~ad0f0090/)
+  > Een mooi affiche in de halve finales van de Eurojackpot KNVB Beker: eredivisiekoploper PSV gaat op bezoek bij nummer 4 NEC. Wie bereikt de...
+- [Europees voetbal blijft nog vijf jaar bij Ziggo Sport](https://www.ad.nl/show/europees-voetbal-blijft-nog-vijf-jaar-bij-ziggo-sport~aee8f24f/)
+  > Het Europese voetbal blijft bij Ziggo Sport. De zender heeft de uitzendrechten van de Europese clubcompetities voor mannen, de Champions League,...
+- [Hoge olieprijs maakt alles duurder: dit staat ons te wachten](https://www.ad.nl/economie/hoge-olieprijs-maakt-alles-duurder-dit-staat-ons-te-wachten~a446d840/)
+  > Door hoge prijzen voor olie en gas wordt alles duurder. Aan de pomp merken we dat direct, maar ook voor veel andere dagelijkse spullen ben je veel...
+- [Gejuich bij uitspraak in Barendrechtse zedenzaak: ‘Deze uitkomst hadden we niet durven dromen’](https://www.ad.nl/binnenland/gejuich-bij-uitspraak-in-barendrechtse-zedenzaak-deze-uitkomst-hadden-we-niet-durven-dromen~a6263292e/)
+  > Ze waren bang dat de uitspraak tegen Mels van B. (46) op een deceptie zou uitlopen. Zijn advocaat had er immers voor gepleit hem zo snel mogelijk in...
+- [Buurman schiet worstelend Nederland vlak voor rust weer naast Polen](https://www.ad.nl/voetbal/buurman-schiet-worstelend-nederland-vlak-voor-rust-weer-naast-polen~a187d8f3/)
+  > De Oranje Leeuwinnen hebben de WK-kwalificatiecyclus afgetrapt. De ploeg van bondscoach Arjan Veurink is op bezoek in Polen. Volg het duel hier live!
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Live: ‘Grootschalige aanval op Teheran’, BuZa haalt gestrande Nederlanders op](https://fd.nl/politiek/1587955/live-grootschalige-aanval-op-teheran-buza-haalt-gestrande-nederlanders-op)
+  > Op dag vier gaan de aanvallen over en weer door. KLM haalt vanavond Nederlanders weg uit de Golfregio. In Libanon zijn zeker 30.000 mensen op de...
 - [Russische centrale bank klaagt EU aan wegens vasthouden tegoeden](https://fd.nl/politiek/1588052/russische-centrale-bank-klaagt-eu-aan-wegens-vasthouden-tegoeden)
   > Het gaat om de eerste rechtszaak over het bevroren tegoed van zo’n €210 mrd sinds het uitbreken van de oorlog in Oekraïne, in februari 2022.
 - [Nederlandse bedrijven houden veiligheid medewerkers Midden-Oosten in de gaten](https://fd.nl/bedrijfsleven/1587974/nederlandse-bedrijven-houden-veiligheid-medewerkers-midden-oosten-in-de-gaten)
@@ -54,8 +56,6 @@
   > Nederlandse industriële bedrijven volgen de Amerikaans-Israëlische oorlog met Iran op de voet. Als het conflict lang duurt, kunnen de gevolgen...
 - [Op de bouwplaats ziet de nieuwe minister: snel bouwen is gemakkelijker gezegd dan gedaan](https://fd.nl/politiek/1587972/op-de-bouwplaats-ziet-de-nieuwe-minister-snel-bouwen-is-makkelijker-gezegd-dan-gedaan)
   > Per week krijgt de woontoren Blox in Den Haag er een nieuwe verdieping bij. Maar bouwers moeten ook veel wachten, leert de nieuwe minister.
-- [Poetins verzwegen oorlogsdoden krijgen een gezicht](https://fd.nl/politiek/1587803/poetins-verzwegen-oorlogsdoden-krijgen-een-gezicht)
-  > De Russische regering hult zich in stilzwijgen over het aantal gesneuvelde soldaten in Oekraïne. De tol van de bloedige oorlog is hoog. De...
 
 ### Meest gelezen
 
