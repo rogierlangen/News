@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-03-2026 om 15:51*
+*Laatst bijgewerkt: 03-03-2026 om 16:55*
 
 ---
 
@@ -9,7 +9,7 @@
 ### Laatste nieuws
 
 - [Vattenfall en Eneco stoppen deels met aanbieden van vaste energiecontracten](https://nos.nl/l/2604805)
-  > In ieder geval twee van de drie grote energieleveranciers in Nederland stoppen helemaal of deels met vaste energiecontracten. Dat laten ze...
+  > In ieder geval twee van de drie grote energieleveranciers in Nederland stoppen deels met vaste energiecontracten vanwege de ontwikkelingen in het...
 - [Tot 15 jaar cel voor explosie in Nieuwkuijk waarbij vrouw onderbeen verloor](https://nos.nl/l/2604801)
   > De rechtbank heeft drie mannen uit Den Bosch tot jarenlange celstraffen veroordeeld voor het plaatsen van een "zwaar en verwoestend" explosief bij de...
 - ['Mossad had bijna alle verkeerscamera's in Teheran gehackt voor aanslag Khamenei'](https://nos.nl/l/2604798)
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Gers Pardoel ziet zijn kinderen al drie jaar niet: ‘Zit in dat systeem met de kinderbescherming’](https://www.ad.nl/show/gers-pardoel-ziet-zijn-kinderen-al-drie-jaar-niet-zit-in-dat-systeem-met-de-kinderbescherming~a80b3346/)
-  > Gers Pardoel (44) heeft zijn kinderen al drie jaar niet gezien. Dat vertelt de rapper, die hits scoorde met Ik neem je mee, Bagagedrager en Louise,...
-- [Stil maar krachtig statement: Iraanse voetbalsters weigeren mee te zingen met volkslied](https://www.ad.nl/voetbal/stil-maar-krachtig-statement-iraanse-voetbalsters-weigeren-mee-te-zingen-met-volkslied~a0e62c8d/)
-  > De Iraanse nationale vrouwenvoetbalploeg heeft maandagavond voor de aftrap van de wedstrijd tegen Zuid-Korea op de Asian Cup een stil, maar krachtig,...
-- [Kalkaanslag in grote en dure installaties zoals de warmtepomp: kan dat kwaad?](https://www.ad.nl/wonen/kalkaanslag-in-grote-en-dure-installaties-zoals-de-warmtepomp-kan-dat-kwaad~ad35d210/)
-  > Het is slim om af en toe apparaten zoals je koffiezetapparaat of kokendwaterkraan te ontkalken. Maar hoe zit dat met grote en dure installaties zoals...
-- [Trump wil niet onderhandelen met Iran: ‘Luchtmacht en marine zijn ze kwijt, nu zijn ze te laat’](https://www.ad.nl/buitenland/trump-wil-niet-onderhandelen-met-iran-luchtmacht-en-marine-zijn-ze-kwijt-nu-zijn-ze-te-laat~ac528ac3/)
-  > President Trump zegt niet meer te willen onderhandelen met Iran, als dat land daar nu voor zou aankloppen. Hij schrijft op Truth Social dat die kans...
-- [Ophef in IJsselstein om verkiezingsstunt: ‘Dit is illegale politieke reclame’](https://www.ad.nl/binnenland/ophef-in-ijsselstein-om-verkiezingsstunt-dit-is-illegale-politieke-reclame~a7448111/)
-  > Het gevecht om stemmen bij de gemeenteraadsverkiezingen is losgebarsten en een partij in IJsselstein gaat daar wel heel ver in. Wie een door LDIJ...
+- [Pech achtervolgt Wout van Aert bij seizoensstart: twee lekke banden, winst voor Jordi Meeus in Le Samyn](https://www.ad.nl/wielrennen/pech-achtervolgt-wout-van-aert-bij-seizoensstart-twee-lekke-banden-winst-voor-jordi-meeus-in-le-samyn~abbc3d731/)
+  > Wout van Aert maakte in Le Samyn zijn seizoensdebuut op de weg, maar bekroonde dat niet met een goede uitslag in de Belgische semi-klassieker. Twee...
+- [Gebouw van raad die nieuwe ayatollah zou aanwijzen gebombardeerd](https://www.ad.nl/buitenland/gebouw-van-raad-die-nieuwe-ayatollah-zou-aanwijzen-gebombardeerd~ac528ac3/)
+  > Een gebouw van de raad die de nieuwe ayatollah van Iran moet benoemen is gebombardeerd door Israël en de VS. Dat meldt persbureau AFP op basis van...
+- [Waarom we Lil Kleine weer omarmen: ‘Hij weet hoe je mensen meekrijgt’](https://www.ad.nl/show/waarom-we-lil-kleine-weer-omarmen-hij-weet-hoe-je-mensen-meekrijgt~ac5f0770/)
+  > Vier jaar na de video waarop te zien is hoe hij zijn toenmalige vriendin Jamie Vaes uit de auto sleurt, is Lil Kleine (31) helemaal terug. Zijn...
+- [Real Madrid-aanvaller Rodrygo moet vrezen voor WK: Braziliaan loopt kruisbandblessure op](https://www.ad.nl/wk-voetbal/real-madrid-aanvaller-rodrygo-moet-vrezen-voor-wk-braziliaan-loopt-kruisbandblessure-op~a4213644/)
+  > De Braziliaanse aanvaller Rodrygo mist mogelijk het WK-voetbal van komende zomer vanwege een kruisbandblessure. In de thuiswedstrijd van zijn club...
+- [Haagse toiletjuf Joke in no time beroemd: ‘Ze kunnen beter over me lullen dan fietsen’](https://www.ad.nl/binnenland/haagse-toiletjuf-joke-in-no-time-beroemd-ze-kunnen-beter-over-me-lullen-dan-fietsen~ae0908a8/)
+  > In een klap is de geboren en getogen Haagse Joke (78) een bekende Nederlander geworden. Sinds haar deelname aan het programma Oh Oh Den Haag heeft ze...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Evaluatie: heroverweeg extra fiscaal voordeel bij schenking aan kind](https://fd.nl/politiek/1588039/evaluatie-heroverweeg-extra-fiscaal-voordeel-bij-schenking-aan-kind)
-  > Hogere belastingvrijstelling voor schenking van ouders aan kinderen is weinig doelmatig.
-- [Nieuwe opdoffer voor private credit door uitstroom bij Blackstone-fonds](https://fd.nl/financiele-markten/1588045/nieuwe-opdoffer-voor-private-credit-door-uitstroom-bij-blackstone-fonds)
-  > Het zit tegen voor de sector die zo’n onstuimige groei kende sinds de kredietcrisis. Fraudegevallen en ander slecht nieuws stapelen zich op,...
-- [Oorlogen en terreur hebben vaak maar kort effect op de beurzen](https://fd.nl/financiele-markten/1588046/oorlogen-en-terreur-hebben-vaak-maar-kort-effect-op-de-beurzen)
-  > Historisch gezien hebben geopolitieke schokken weinig langdurige effecten op de financiële markten.
-- [Oekraïense oud-inlichtingenchef met Russen in gevecht aan onderhandelingstafel](https://fd.nl/politiek/1587692/oekraiense-oud-inlichtingenchef-met-russen-in-gevecht-aan-onderhandelingstafel)
-  > Op initiatief van de Amerikaanse president Donald Trump moeten de Oekraïners met de Russen om tafel. Oud-inlichtingenchef Kyrylo Boedanov...
-- [Financiële markten over hele linie onderuit door Iranconflict](https://fd.nl/financiele-markten/1588034/financiele-markten-over-brede-linie-onderuit-door-iranconflict)
-  > Beleggers zijn bang dat de oorlog in het Midden-Oosten een nieuwe energiecrisis uitlokt, met wereldwijde economische gevolgen.
+- [Russische centrale bank klaagt EU aan wegens vasthouden tegoeden](https://fd.nl/politiek/1588052/russische-centrale-bank-klaagt-eu-aan-wegens-vasthouden-tegoeden)
+  > Het gaat om de eerste rechtszaak over het bevroren tegoed van zo’n €210 mrd sinds het uitbreken van de oorlog in Oekraïne, in februari 2022.
+- [Nederlandse bedrijven houden veiligheid medewerkers Midden-Oosten in de gaten](https://fd.nl/bedrijfsleven/1587974/nederlandse-bedrijven-houden-veiligheid-medewerkers-midden-oosten-in-de-gaten)
+  > Onrust in de Golfregio leidt tot voorzorgsmaatregelen bij Nederlandse bedrijven met personeel ter plaatse. Medewerkers zijn vooralsnog veilig, al...
+- [Industrie vreest ingrijpende gevolgen als oorlog in Iran lang gaat duren](https://fd.nl/bedrijfsleven/1588051/grote-vraag-in-nederlandse-industrie-hoe-lang-gaat-deze-oorlog-duren)
+  > Nederlandse industriële bedrijven volgen de Amerikaans-Israëlische oorlog met Iran op de voet. Als het conflict lang duurt, kunnen de gevolgen...
+- [Op de bouwplaats ziet de nieuwe minister: snel bouwen is gemakkelijker gezegd dan gedaan](https://fd.nl/politiek/1587972/op-de-bouwplaats-ziet-de-nieuwe-minister-snel-bouwen-is-makkelijker-gezegd-dan-gedaan)
+  > Per week krijgt de woontoren Blox in Den Haag er een nieuwe verdieping bij. Maar bouwers moeten ook veel wachten, leert de nieuwe minister.
+- [Poetins verzwegen oorlogsdoden krijgen een gezicht](https://fd.nl/politiek/1587803/poetins-verzwegen-oorlogsdoden-krijgen-een-gezicht)
+  > De Russische regering hult zich in stilzwijgen over het aantal gesneuvelde soldaten in Oekraïne. De tol van de bloedige oorlog is hoog. De...
 
 ### Meest gelezen
 
