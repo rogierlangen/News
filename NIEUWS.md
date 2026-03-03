@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-03-2026 om 19:42*
+*Laatst bijgewerkt: 03-03-2026 om 20:37*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Vader van 14-jarige schoolschutter in VS schuldig bevonden aan doodslag](https://nos.nl/l/2604843)
+  > In de VS is een vader veroordeeld voor een dodelijke schietpartij door zijn 14-jarige zoon. De man had zijn kind het vuurwapen cadeau gegeven en is...
+- [Erven Friese kunstenaar opgespoord via social media, schilderij terug bij familie](https://nos.nl/l/2604841)
+  > Het is precies gegaan zoals schilder Piet Hein van Asperen (1895-1969) uit Harlingen al ver voor zijn dood had bepaald. Zijn schilderij Even Rusten...
 - [Onrust binnen AfD over vriendjespolitiek: Bondsdaglid uit fractie gezet](https://nos.nl/l/2604836)
   > Het is onrustig in de AfD. De partij is in verlegenheid gebracht door meerdere gevallen van vriendjespolitiek en mogelijke zelfverrijking. Duitse...
 - [Gebouw van Raad van Experts in Iran geraakt bij nieuwe Israëlische aanvallen](https://nos.nl/l/2604832)
   > Het Israëlische leger heeft opnieuw aanvallen uitgevoerd op doelen in Iran. Een van de getroffen locaties is een gebouw van de Raad van Experts in de...
 - [Conflict over jeugdzorg Lelystad escaleert](https://nos.nl/l/2604828)
   > Het conflict over de jeugdzorg in Lelystad escaleert. Jeugd Lelystad (JEL) kan geen gebruik meer maken van de eigen computers omdat de toegang door...
-- [1700 politiemensen moeten verantwoording afleggen voor neuzen in dossier-Lisa](https://nos.nl/l/2604823)
-  > Politiemensen uit het hele land hebben de afgelopen tijd in politiesystemen gezocht naar informatie in de zaak-Lisa. Het gaat om in totaal zo'n 1700...
-- [Kabinet worstelt met aanval op Iran, ook de Kamer is zeer verdeeld](https://nos.nl/l/2604820)
-  > Hoe om te gaan met de aanval van de Verenigde Staten en Israël op Iran? Ook voor het kabinet is het "een worsteling", erkende minister Berendsen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Buren slaan alarm na verplaatsing van lichamen over terras: verborgen mortuarium ontdekt in België](https://www.ad.nl/buitenland/buren-slaan-alarm-na-verplaatsing-van-lichamen-over-terras-verborgen-mortuarium-ontdekt-in-belgie~ade8a3fe/)
-  > De Belgische politie heeft vorige week een verborgen mortuarium ontdekt midden in een woonwijk. In een appartementsgebouw in het Vlaams-Brabantse...
-- [Thuispubliek gaat uit z’n dak: NEC maakt gelijk in heerlijke halve finale tegen PSV](https://www.ad.nl/voetbal/thuispubliek-gaat-uit-zn-dak-nec-maakt-gelijk-in-heerlijke-halve-finale-tegen-psv~ad0f0090/)
+- [Trump of Netanyahu: wie gaf eigenlijk het startschot voor de aanval op Iran?](https://www.ad.nl/buitenland/trump-of-netanyahu-wie-gaf-eigenlijk-het-startschot-voor-de-aanval-op-iran~a4266b93/)
+  > Amerika viel Iran aan. Maar wie bepaalde de gang van zaken? Minister van Buitenlandse Zaken Marco Rubio zorgde voor vragen in het Congres met een...
+- [Liverpool opent sterk in uitduel met hekkensluiter Wolverhampton](https://www.ad.nl/voetbal/liverpool-opent-sterk-in-uitduel-met-hekkensluiter-wolverhampton~a481501d/)
+  > Liverpool kan zich in de strijd om Champions League-voetbal nauwelijks misstappen permitteren. De ploeg van Arne Slot gaat vanavond op bezoek bij...
+- [Trump dreigt alle handel met Spanje stop te zetten: ‘Spanje is verschrikkelijk geweest’](https://www.ad.nl/buitenland/trump-dreigt-alle-handel-met-spanje-stop-te-zetten-spanje-is-verschrikkelijk-geweest~a8807ab5/)
+  > President Trump heeft gedreigd alle handel met Spanje stop te zetten. Spanje zou het Amerikaanse leger geen toestemming hebben gegeven om zijn bases...
+- [Stunt in de maak? NEC via Önal weer op voorsprong in heerlijke halve finale tegen PSV](https://www.ad.nl/voetbal/stunt-in-de-maak-nec-via-onal-weer-op-voorsprong-in-heerlijke-halve-finale-tegen-psv~ad0f0090/)
   > Een mooi affiche in de halve finales van de Eurojackpot KNVB Beker: eredivisiekoploper PSV gaat op bezoek bij nummer 4 NEC. Wie bereikt de...
-- [Oekraïne wil droneafweer met Midden-Oosten ruilen voor Patriots](https://www.ad.nl/buitenland/oekraine-wil-droneafweer-met-midden-oosten-ruilen-voor-patriots~adfb97be/)
-  > Oekraïne wil wat van zijn eigen dronebestrijdingswapens ruilen met door Iran aangevallen bondgenoten van de Verenigde Staten voor schaarse...
-- [Van der Sande zet Cambuur op gelijke hoogte tegen Almere City](https://www.ad.nl/voetbal/van-der-sande-zet-cambuur-op-gelijke-hoogte-tegen-almere-city~a94969d2/)
-  > Een inhaalwedstrijd vanavond in de Keuken Kampioen Divisie: nummer 2 Cambuur ontvangt nummer 7 Almere City. Cambuur kan de achterstand op koploper...
-- [Jetten laat bij internationaal debuut tanden zien: ‘Met mijn seksualiteit zal Orbán moeten dealen’](https://www.ad.nl/politiek/jetten-laat-bij-internationaal-debuut-tanden-zien-met-mijn-seksualiteit-zal-orban-moeten-dealen~a53b1a75/)
-  > Alsof hij het al jaren doet, zo presenteert Rob Jetten zich dinsdag in Brussel bij zijn internationale debuut als premier van Nederland. Soepeltjes...
+- [Getrouwde manager vliegt in één jaar 26 keer naar VK voor minnares, op kosten van Nederlands bedrijf](https://www.ad.nl/binnenland/getrouwde-manager-vliegt-in-een-jaar-26-keer-naar-vk-voor-minnares-op-kosten-van-nederlands-bedrijf~ad31be29/)
+  > Hij hield opvallend veel van zakenreisjes naar het Verenigd Koninkrijk. In één jaar tijd stapte een leidinggevende van de Nederlandse margarinegigant...
 
 ### Meest gelezen
 
