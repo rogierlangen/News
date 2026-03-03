@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-03-2026 om 13:07*
+*Laatst bijgewerkt: 03-03-2026 om 14:50*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Ouders in Barendrechtse zedenzaak opgelucht na hoge straf: 'Voel erkenning'](https://nos.nl/l/2604779)
-  > Ouders van de slachtoffers in de omvangrijke Barendrechtse zedenzaak zijn opgelucht dat Mels van B. 18 jaar cel en tbs heeft gekregen. Dat is meer...
-- [Illegaal mortuarium ontdekt in Belgisch appartementencomplex](https://nos.nl/l/2604777)
-  > In het Belgische Zaventem is een illegaal mortuarium ontdekt in een appartementencomplex, melden Vlaamse media. Een van de bewoners zag iemand met...
-- [Zo'n 1700 politiemedewerkers keken in dossier over Lisa: 'Onacceptabel'](https://nos.nl/l/2604776)
-  > Zo'n 1700 politiemedewerkers hebben in de politiesystemen gezocht naar informatie over de gewelddadige dood van Lisa uit Abcoude. De meesten hadden...
-- [Steeds meer landen betrokken bij de oorlog: 'Zelfbeheersing is nu heel belangrijk'](https://nos.nl/l/2604775)
-  > De afgelopen drie dagen is het ene na het andere land betrokken geraakt bij de nieuwe oorlog in het Midden-Oosten, niet alleen in de Golf-regio, maar...
-- [Rol aan de zijlijn of VS de les lezen over Iran? Merz op heikel bezoek bij Trump](https://nos.nl/l/2604774)
-  > Als eerste Europese leider sinds het begin van de oorlog in Iran bezoekt de Duitse bondskanselier Merz vandaag de Amerikaanse president Trump. Wat...
+- [Podcast De Dag: hoe de Golfstaten de oorlog worden ingetrokken](https://nos.nl/l/2604797)
+  > Sinds de Israëlisch-Amerikaanse aanvallen op Iran ligt bijna de hele Golfregio onder vuur. Dat zorgt voor onrust onder toeristen en bij mensen die...
+- [Man (26) vrijgesproken voor medeplichtigheid aan dood van rapper Bigidagoe](https://nos.nl/l/2604796)
+  > Een 26-jarige man is vrijgesproken van medeplichtigheid aan de doodslag op de Amsterdamse rapper Bigidagoe. Volgens de rechtbank Amsterdam kan niet...
+- [Zorgen in Kamer over knellende kraamzorg, kwetsbare gezinnen meest de dupe](https://nos.nl/l/2604793)
+  > Bij partijen in de Tweede Kamer zijn grote zorgen over de staat van de kraamzorg in Nederland. Door een groot tekort aan kraamverzorgers en een hoge...
+- [Eeuwenoude wijnkelder ontdekt onder golfbaan bij Manchester door zinkgat](https://nos.nl/l/2604791)
+  > Onder een golfbaan vlak bij Manchester is een eeuwenoude wijnkelder aangetroffen. Toen er een zinkgat was ontstaan, troffen medewerkers de wijnkelder...
+- [Metershoog stootkussen stuitert de A16 op en veroorzaakt schade](https://nos.nl/l/2604787)
+  > Een metershoog stootkussen heeft vannacht voor flinke schade gezorgd op de A16 bij Ridderkerk. Een vrachtwagen verloor een zogenoemde fender, een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Boyband Five na 25 jaar terug in Nederland](https://www.ad.nl/show/boyband-five-na-25-jaar-terug-in-nederland~ae93bdedf/)
-  > De Britse boyband Five doet komende zomer de Ziggo Dome aan met hun comebacktournee. De groep, die eind jaren negentig en begin deze eeuw mateloos...
-- [‘Ik ben er klaar mee!’: Hillary Clinton verlaat boos de zaal na gelekte foto, blijkt uit video’s van Epstein-verhoor](https://www.ad.nl/buitenland/ik-ben-er-klaar-mee-hillary-clinton-verlaat-boos-de-zaal-na-gelekte-foto-blijkt-uit-videos-van-epstein-verhoor~a3620320/)
-  > Het verhoor van voormalig president Bill Clinton en zijn vrouw Hillary over hun banden met zedendelinquent Jeffrey Epstein liep vorige week uit op...
-- [Op de vooravond van het Poerimfeest valt Israël aan, ook verkiezingsjaar Netanyahu: ‘Grote overwinning nodig’](https://www.ad.nl/buitenland/op-de-vooravond-van-het-poerimfeest-valt-israel-aan-ook-verkiezingsjaar-netanyahu-grote-overwinning-nodig~a4e7c9e9/)
-  > Dinsdag hadden grote optochten Israël in een carnavalsstemming moeten brengen, maar door de nationale noodtoestand gaat het zogeheten Poerimfeest...
-- [Weer temperatuurrecord gebroken: officieel warmste 3 maart sinds metingen](https://www.ad.nl/binnenland/weer-temperatuurrecord-gebroken-officieel-warmste-3-maart-sinds-metingen~a07861bb/)
-  > Er is weer een temperatuurrecord in ons land gebroken. Niet eerder werd het zo warm in De Bilt op 3 maart.
-- [Loiza Lamers laat zich niet kisten en prinses Margarita is weer ‘thuis’](https://www.ad.nl/show/loiza-lamers-laat-zich-niet-kisten-en-prinses-margarita-is-weer-thuis~a04d1aee/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Wilders wil niet reageren op gelekte appjes over ‘debatsmoes’: ‘Berichten waren privé’](https://www.ad.nl/politiek/wilders-wil-niet-reageren-op-gelekte-appjes-over-debatsmoes-berichten-waren-prive~a9d529f7/)
+  > PVV-leider Geert Wilders wil geen vragen beantwoorden over de gelekte appjes tussen hem en zijn oud-fractiegenoot en vertrouweling Gidi Markuszower....
+- [Eén ding is zeker als het gaat om de kledingkast van prinses Catherine: haar korte rokjes zijn passé](https://www.ad.nl/show/een-ding-is-zeker-als-het-gaat-om-de-kledingkast-van-prinses-catherine-haar-korte-rokjes-zijn-passe~ae8476a0/)
+  > Als Catherine (Kate) Middleton op 29 april 2011 haar jawoord geeft aan prins William, belooft ze meer dan alleen eeuwige trouw. In haar kanten jurk...
+- [Nieuwe minister ‘worstelt’ met reactie op oorlog Iran, erkent hij: dit is zijn dilemma](https://www.ad.nl/politiek/nieuwe-minister-worstelt-met-reactie-op-oorlog-iran-erkent-hij-dit-is-zijn-dilemma~a489718c/)
+  > De kabinetsreactie op de oorlog in Iran is een ‘worsteling’, erkent de nieuwe minister van Buitenlandse Zaken Tom Berendsen. De CDA’er moet...
+- [Nasrah Habiballah stopt als Israël-correspondent NOS: ‘Het was ongekend intensief’](https://www.ad.nl/show/nasrah-habiballah-stopt-als-israel-correspondent-nos-het-was-ongekend-intensief~ad7b982ee/)
+  > Nasrah Habiballah (38) stopt als correspondent Israël en de Palestijnse Gebieden voor de NOS. Dat bevestigt de omroep dinsdag naar aanleiding van een...
+- [Euforie in sneltreinvaart verdwenen bij Feyenoord: vier invalshoeken op ‘project Raheem Sterling’](https://www.ad.nl/voetbal/euforie-in-sneltreinvaart-verdwenen-bij-feyenoord-vier-invalshoeken-op-project-raheem-sterling~a87e2666/)
+  > Shirts met ‘Sterling’ erop vlogen de fanshop uit, de Kuip ontplofte bij zijn debuut. Maar nu, twee magere invalbeurten later, is de stemming...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Knarsetandend Airbus ligt op ramkoers met Amerikaanse leverancier van vliegtuigmotoren](https://fd.nl/bedrijfsleven/1587953/knarsetandend-airbus-ligt-op-ramkoers-met-amerikaanse-leverancier-van-vliegtuigmotoren)
+  > De Europese vliegtuigbouwer kan door problemen bij de Amerikaanse motorbouwer Pratt & Whitney niet het aantal toestellen afleveren zoals beloofd.
+- [Externe bestuurder moet de teugels aanhalen bij NautaDutilh](https://fd.nl/bedrijfsleven/1588035/externe-bestuurder-moet-de-teugels-aanhalen-bij-nautadutilh)
+  > Sandra Spek is aangetrokken om het bestuur van het advocatenkantoor slagvaardiger en professioneler te maken.
 - [Verbod voor advocaten om mobiel en laptop mee te nemen naar de gevangenis van de baan](https://fd.nl/financiele-markten/1588033/verbod-voor-advocaten-om-mobiel-en-laptop-mee-te-nemen-naar-de-gevangenis-van-de-baan)
   > De Dienst Justitiële Inrichtingen wilde met een verbod crimineel handelen en smokkel tegengaan. Advocaten voorzagen een ‘onwerkbare situatie’. Na...
 - [Energieleveranciers passen massaal contracten aan na stijging gasprijs](https://fd.nl/economie/1587961/energieleveranciers-passen-massaal-contracten-aan-na-stijging-gasprijs)
   > De prijzen voor gas en licht gaan omhoog. Vattenfall biedt zelfs geen vaste contracten meer aan.
 - [Huizenkopers zoeken de grens van hun maximale leencapaciteit op](https://fd.nl/economie/1588032/huizenkopers-zoeken-de-grens-van-hun-maximale-leencapaciteit-op)
   > Starters leenden vorig jaar gemiddeld 92% van hun maximale leencapaciteit op basis van inkomen.
-- [Hoeveel klanten hebben zelfstandig ondernemers gemiddeld?](https://fd.nl/samenleving/1587869/hoeveel-klanten-hebben-zelfstandig-ondernemers-gemiddeld)
-  > Wetenswaardigheden op het gebied van loopbaan en personal finance.
-- [Supersize lijkt passé: wereldwijde afslanktrend hervormt snackindustrie](https://fd.nl/bedrijfsleven/1588004/supersize-lijkt-passe-wereldwijde-afslanktrend-hervormt-snackindustrie)
-  > Snackgiganten zoals Magnum en PepsiCo buigen mee met de afslankhype, die wordt gevoed door de populariteit van medicijnen om af te vallen.
 
 ### Meest gelezen
 
