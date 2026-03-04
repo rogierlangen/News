@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-03-2026 om 23:32*
+*Laatst bijgewerkt: 04-03-2026 om 02:28*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Voetbalpodcast | ‘NEC wilde de bekerfinale liever halen dan PSV’](https://www.ad.nl/voetbal/voetbalpodcast-nec-wilde-de-bekerfinale-liever-halen-dan-psv~ac8603a9/)
-  > Niet PSV maar NEC is de eerste bekerfinalist dit seizoen. De ploeg van Dick Schreuder won in eigen huis met 3-2 van PSV. In de AD Voetbalpodcast...
-- [Olympisch kampioene Miho Takagi stopt na WK allround in Heerenveen: ‘Ik ga jullie allemaal missen’](https://www.ad.nl/schaatsen/olympisch-kampioene-miho-takagi-stopt-na-wk-allround-in-heerenveen-ik-ga-jullie-allemaal-missen~a85803ad/)
-  > Miho Takagi beëindigt na het WK allround van komend weekend in Heerenveen haar carrière. „Ik kijk ernaar uit om deel te nemen aan het WK allround in...
-- [Getrouwde manager vliegt in één jaar 26 keer naar VK voor minnares, op kosten van Nederlands bedrijf](https://www.ad.nl/binnenland/getrouwde-manager-vliegt-in-een-jaar-26-keer-naar-vk-voor-minnares-op-kosten-van-nederlands-bedrijf~ad31be29/)
-  > Hij hield opvallend veel van zakenreisjes naar het Verenigd Koninkrijk. In één jaar tijd stapte een leidinggevende van de Nederlandse margarinegigant...
-- [Warner Bros werkt aan Game of Thrones-film](https://www.ad.nl/show/warner-bros-werkt-aan-game-of-thrones-film~a028d91a/)
-  > Filmstudio Warner Bros werkt aan een bioscoopfilm die zich afspeelt binnen de wereld van Game of Thrones. Dat meldt onder meer The Hollywood Reporter.
-- [Nieuwe tik voor Liverpool met late nederlaag tegen hekkensluiter: ‘We waren voorspelbaar’](https://www.ad.nl/voetbal/nieuwe-tik-voor-liverpool-met-late-nederlaag-tegen-hekkensluiter-we-waren-voorspelbaar~a481501d/)
-  > Liverpool heeft duur puntenverlies geleden op bezoek bij hekkensluiter Wolverhampton. De ploeg van trainer Arne Slot liep diep in de blessuretijd...
+- [Estland meldt schending maritieme grens door Russische ijsbreker, Russische tanker in lichterlaaie op Middellandse Zee](https://www.ad.nl/buitenland/estland-meldt-schending-maritieme-grens-door-russische-ijsbreker-russische-tanker-in-lichterlaaie-op-middellandse-zee~adfb97be/)
+  > Een Russische ijsbreker zou zonder toestemming de maritieme grens met buurland Estland hebben overschreden, meldt het ministerie van Buitenlandse...
+- [Dynamisch energiecontract vaak duurder dan energiebedrijven beloven](https://www.ad.nl/economie/dynamisch-energiecontract-vaak-duurder-dan-energiebedrijven-beloven~a453f684/)
+  > Mensen met zonnepanelen kijken massaal naar dynamische energiecontracten om zo nog een beetje geld voor hun zonnestroom te krijgen. Maar veel...
+- [Massabegrafenis in Minab: ‘De doodskisten waren op kinderformaat’](https://www.ad.nl/buitenland/massabegrafenis-in-minab-de-doodskisten-waren-op-kinderformaat~aabea56f/)
+  > Duizenden mensen vulden dinsdag de straten van Minab, in het zuiden van Iran, voor de massabegrafenis van de slachtoffers van een raketaanval op een...
+- [Eerste KLM-vlucht met door oorlog in Iran gestrande Nederlanders vertrokken uit Oman](https://www.ad.nl/buitenland/eerste-klm-vlucht-met-door-oorlog-in-iran-gestrande-nederlanders-vertrokken-uit-oman~ac51a1b3/)
+  > Dinsdagavond laat zijn de eerste te repatriëren Nederlanders die in het Midden-Oosten vast zijn komen te zitten door de oorlog in Iran, met een...
+- [Israël voert nieuwe aanvallen uit op Iran na drie grote Iraanse raketgolven](https://www.ad.nl/buitenland/israel-voert-nieuwe-aanvallen-uit-op-iran-na-drie-grote-iraanse-raketgolven~ac528ac3/)
+  > Israël heeft een nieuwe reeks aanvallen uitgevoerd op Iran. Dat meldt het Israëlische leger op Telegram. Vanuit Oman is dinsdagavond het eerste...
 
 ### Meest gelezen
 
