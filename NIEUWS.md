@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-03-2026 om 04:44*
+*Laatst bijgewerkt: 04-03-2026 om 05:48*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Oorlog in het Midden-Oosten is voor Oekraïne mes dat aan twee kanten snijdt](https://nos.nl/l/2604869)
+  > Toen de VS en Israël hun aanval op Iran begonnen, was president Zelensky een van de eerste wereldleiders die steun uitspraken. Waar Europese...
+- [Wekdienst 4/3: Oorlog Midden-Oosten gaat vijfde dag in • Gemeenten halen kwart geplande huizen niet](https://nos.nl/l/2604868)
+  > Goedemorgen. De oorlog in het Midden-Oosten gaat zijn vijfde dag in met een nieuwe opperste leider in Iran. Gemeenten halen een kwart van hun...
+- [Gemeenten kregen kwart van hun nieuwbouwplannen niet van de grond](https://nos.nl/l/2604864)
+  > Nederlandse gemeenten hebben ruim een kwart van de woningen die ze de afgelopen vier jaar wilden bouwen niet weten op te leveren. Van de ruim 357.000...
 - [Radboudumc: Geef RS-prik eerder in het jaar op Caribische eilanden](https://nos.nl/l/2604863)
   > Op de Caribische eilanden zouden baby's eerder in het jaar een prik tegen het RS-virus moeten krijgen dan in Nederland. Dat adviseert het Radboudumc...
 - [Roxy Dekker grote winnaar 3FM Awards, prijs voor beste groep naar DI-RECT](https://nos.nl/l/2604861)
   > Zangeres Roxy Dekker heeft twee 3FM Awards in de wacht gesleept. Ze mocht zowel de prijs voor beste artiest als beste song in ontvangst nemen. Die...
-- [IJsselmeerwater tijdelijk zouter door stroomstoring bij sluizen](https://nos.nl/l/2604851)
-  > Door een stroomstoring is het IJsselmeer zouter dan gebruikelijk. De spuideuren van de Stevinsluizen bij Den Oever hebben zondag tijdelijk niet...
-- [Belgische jongen die bij ruzie in brand werd gestoken mag ziekenhuis verlaten](https://nos.nl/l/2604850)
-  > De 15-jarige Zakaria die eind januari in België in brand werd gestoken, is uit het ziekenhuis. De jongen werd in de Brusselse gemeente Anderlecht in...
-- [Nederlanders geven opnieuw meer geld uit aan vinyl: 'Goed nieuws voor de artiest'](https://nos.nl/l/2604849)
-  > De populariteit van 'fysieke' muziek zet door. Nederlanders gaven vorig jaar opnieuw meer uit aan langspeelplaten. De omzet van vinyl steeg met 21...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Andrea (95) schrijft al sinds haar jeugd met Bianca uit Amerika: ‘Zij is de rode draad in mijn leven’](https://www.ad.nl/binnenland/andrea-95-schrijft-al-sinds-haar-jeugd-met-bianca-uit-amerika-zij-is-de-rode-draad-in-mijn-leven~a2114b36/)
+- [Ceo van McDonald’s gaat viraal met ongemakkelijke smaaktest van nieuwe burger: ‘Die man eet duidelijk nooit McDonald’s’](https://www.ad.nl/bizar/ceo-van-mcdonalds-gaat-viraal-met-ongemakkelijke-smaaktest-van-nieuwe-burger-die-man-eet-duidelijk-nooit-mcdonalds~a974ad37/)
+  > Hoe eet je als ceo van McDonald’s je eigen nieuwe burger? Met volle overtuiging, zou je verwachten. Maar wanneer de Amerikaanse topman Chris...
+- [‘Pedobots’ gewoon te vinden op internet en dat mag volgens de wet: ‘Anya (7) is vastgebonden en huilt’](https://www.ad.nl/tech/pedobots-gewoon-te-vinden-op-internet-en-dat-mag-volgens-de-wet-anya-7-is-vastgebonden-en-huilt~a76d0e687/)
+  > Het is een zieke uithoek van het internet waar je liever niet komt, maar hij bestaat wel. Een digitale wereld vol ‘pedobots’. Kunstmatige...
+- [Woonbedrijven brengen met spoed in kaart hoeveel woningen met giftig isolatieschuim zijn geïsoleerd](https://www.ad.nl/wonen/woonbedrijven-brengen-met-spoed-in-kaart-hoeveel-woningen-met-giftig-isolatieschuim-zijn-geisoleerd~a9925cac/)
+  > Woningcorporaties in het land brengen met spoed in kaart in welke woningen het omstreden UF‑schuim is gebruikt. Aanleiding is de groeiende onrust...
+- [Coke was de goudmijn voor de onderwereld, nu hebben de zware jongens een andere melkkoe](https://www.ad.nl/binnenland/coke-was-de-goudmijn-voor-de-onderwereld-nu-hebben-de-zware-jongens-een-andere-melkkoe~a4a699f3/)
+  > Nederland gold ooit als dé wietschuur van Europa, maar in 2025 overspoelde plots buitenlandse wiet de Rotterdamse haven: net zo lucratief als coke,...
+- [Op haar 14de schreef Andrea haar eerste brief aan Bianca uit VS, tachtig jaar later hebben ze nog steeds contact](https://www.ad.nl/binnenland/op-haar-14de-schreef-andrea-haar-eerste-brief-aan-bianca-uit-vs-tachtig-jaar-later-hebben-ze-nog-steeds-contact~a2114b36/)
   > Ze waren nog meisjes toen hun levenslange vriendschap begon: de Zeeuws-Vlaamse Andrea en de Amerikaanse Bianca. Ze groeiden op, elk aan een andere...
-- [Zes doden bij Israëlische luchtaanvallen op Libanon, nieuwe bombardementen Israël op Iran na drie grote Iraanse raketgolven](https://www.ad.nl/buitenland/zes-doden-bij-israelische-luchtaanvallen-op-libanon-nieuwe-bombardementen-israel-op-iran-na-drie-grote-iraanse-raketgolven~ac528ac3/)
-  > Israël heeft een nieuwe reeks aanvallen uitgevoerd op Iran. Dat meldt het Israëlische leger op Telegram. Ook voerde Israël luchtaanvallen uit op twee...
-- [Estland meldt schending maritieme grens door Russische ijsbreker, Russische tanker in lichterlaaie op Middellandse Zee](https://www.ad.nl/buitenland/estland-meldt-schending-maritieme-grens-door-russische-ijsbreker-russische-tanker-in-lichterlaaie-op-middellandse-zee~adfb97be/)
-  > Een Russische ijsbreker zou zonder toestemming de maritieme grens met buurland Estland hebben overschreden, meldt het ministerie van Buitenlandse...
-- [Dynamisch energiecontract vaak duurder dan energiebedrijven beloven](https://www.ad.nl/economie/dynamisch-energiecontract-vaak-duurder-dan-energiebedrijven-beloven~a453f684/)
-  > Mensen met zonnepanelen kijken massaal naar dynamische energiecontracten om zo nog een beetje geld voor hun zonnestroom te krijgen. Maar veel...
-- [Massabegrafenis in Minab: ‘De doodskisten waren op kinderformaat’](https://www.ad.nl/buitenland/massabegrafenis-in-minab-de-doodskisten-waren-op-kinderformaat~aabea56f/)
-  > Duizenden mensen vulden dinsdag de straten van Minab, in het zuiden van Iran, voor de massabegrafenis van de slachtoffers van een raketaanval op een...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Wopke Hoekstra: ‘Brussel is politiek met de hoofdletter P’](https://fd.nl/politiek/1587982/wopke-hoekstra-brussel-is-politiek-met-de-hoofdletter-p)
+  > Eurocommissaris Wopke Hoekstra (50) is na een onwennige start helemaal ingeburgerd in Brussel. ‘Mannen doen altijd alsof hun succes volstrekt logisch...
 - [Hoge inflatie op de loer door Irancrisis](https://fd.nl/economie/1588056/hoge-inflatie-op-de-loer-door-irancrisis)
   > Vandaag in FD Dagkoers: dreigt de inflatie weer richting 4% te gaan en welke koers presenteert China in zijn nieuwe vijfjarenplan? Verder passen...
 - [Het gelijk van groene gekkies](https://fd.nl/opinie/1587969/het-gelijk-van-groene-gekkies)
@@ -54,8 +56,6 @@
   > De AOW-leeftijd koppelen aan de levensverwachting is logisch, maar vergeten we niet iets fundamenteels? Het gaat niet alleen om hoelang we leven,...
 - [Groene waterstof lost zijn belofte maar niet in: ‘Gaat nog decennia duren’](https://fd.nl/bedrijfsleven/1587840/groene-waterstof-lost-zijn-belofte-maar-niet-in-gaat-nog-decennia-duren)
   > Wereldwijd zit de markt vast en opschalen lukt nog nauwelijks. Het importeren van waterstof blijkt veel duurder dan eerder werd gedacht.
-- [Personalia woensdag 4 maart 2026](https://fd.nl/bedrijfsleven/1587967/personalia-woensdag-4-maart-2026)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
