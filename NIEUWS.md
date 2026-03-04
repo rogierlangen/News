@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-03-2026 om 06:55*
+*Laatst bijgewerkt: 04-03-2026 om 07:40*
 
 ---
 
@@ -8,7 +8,7 @@
 
 ### Laatste nieuws
 
-- [Oorlog in het Midden-Oosten is voor Oekraïne mes dat aan twee kanten snijdt](https://nos.nl/l/2604869)
+- [Oekraïne ziet voordeel in aanvallen op Iran, maar oorlog betekent ook risico](https://nos.nl/l/2604869)
   > Toen de VS en Israël hun aanval op Iran begonnen, was president Zelensky een van de eerste wereldleiders die steun uitspraken. Waar Europese...
 - [Wekdienst 4/3: Oorlog Midden-Oosten gaat vijfde dag in • Gemeenten halen kwart geplande huizen niet](https://nos.nl/l/2604868)
   > Goedemorgen. De oorlog in het Midden-Oosten gaat zijn vijfde dag in met een nieuwe opperste leider in Iran. Gemeenten halen een kwart van hun...
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Midden-Oosten | Saoedi-Arabië onderschept raketten, nieuwe bombardementen op Iran na drie grote tegenaanvallen](https://www.ad.nl/buitenland/live-midden-oosten-saoedi-arabie-onderschept-raketten-nieuwe-bombardementen-op-iran-na-drie-grote-tegenaanvallen~ac528ac3/)
-  > Saoedi-Arabië heeft twee aanvallende kruisraketten onderschept. Dat gebeurde vlakbij de centraal gelegen stad al-Kharj, meldt NBC News op basis van...
-- [Donder op met diëten, ga gewoon gezond eten!, adviseren deskundigen Maarten en Mascha](https://www.ad.nl/binnenland/donder-op-met-dieten-ga-gewoon-gezond-eten-adviseren-deskundigen-maarten-en-mascha~a2b6cc45/)
-  > Crashen, uithongeren, jojoën, je daarna weer schuldig voelen. Diëten is voor veel mensen de hel. En dat is terecht, zegt voedingsdeskundige Mascha...
-- [Buikslidings, trainer gejonast en suikeroom belooft ‘leuk extraatje’: dolle vreugde bij NEC na stunt tegen PSV](https://www.ad.nl/voetbal/buikslidings-trainer-gejonast-en-suikeroom-belooft-leuk-extraatje-dolle-vreugde-bij-nec-na-stunt-tegen-psv~ab203e93/)
-  > Bij NEC was het na de memorabele zege op PSV een dolle boel. Het bereiken van de finale van de KNVB-beker zorgde voor komische taferelen tijdens het...
-- [Ceo van McDonald’s gaat viraal met ongemakkelijke smaaktest van nieuwe burger: ‘Die man eet duidelijk nooit McDonald’s’](https://www.ad.nl/bizar/ceo-van-mcdonalds-gaat-viraal-met-ongemakkelijke-smaaktest-van-nieuwe-burger-die-man-eet-duidelijk-nooit-mcdonalds~a974ad37/)
-  > Hoe eet je als ceo van McDonald’s je eigen nieuwe burger? Met volle overtuiging, zou je verwachten. Maar wanneer de Amerikaanse topman Chris...
-- [‘Pedobots’ gewoon te vinden op internet en dat mag volgens de wet: ‘Anya (7) is vastgebonden en huilt’](https://www.ad.nl/tech/pedobots-gewoon-te-vinden-op-internet-en-dat-mag-volgens-de-wet-anya-7-is-vastgebonden-en-huilt~a76d0e687/)
-  > Het is een zieke uithoek van het internet waar je liever niet komt, maar hij bestaat wel. Een digitale wereld vol ‘pedobots’. Kunstmatige...
+- [Prijzen aan Nederlandse pomp verder omhoog: ‘Langzaam naar recordniveaus’](https://www.ad.nl/auto/prijzen-aan-nederlandse-pomp-verder-omhoog-langzaam-naar-recordniveaus~a50d00fe/)
+  > De prijzen aan de pomp in Nederland zijn woensdag verder opgelopen door de oorlog in het Midden-Oosten. Volgens consumentencollectief UnitedConsumers...
+- [Wekker zetten voor start F1-seizoen: zo vroeg komt Max Verstappen in actie in Melbourne](https://www.ad.nl/formule-1/wekker-zetten-voor-start-f1-seizoen-zo-vroeg-komt-max-verstappen-in-actie-in-melbourne~a71841049/)
+  > Het nieuwe Formule 1-seizoen gaat na zes testdagen in Bahrein nu echt beginnen. Max Verstappen hoopt met zijn nieuwe Red Bull Racing het...
+- [KLM-vlucht met gestrande reizigers uit Midden-Oosten aangekomen op Schiphol](https://www.ad.nl/buitenland/klm-vlucht-met-gestrande-reizigers-uit-midden-oosten-aangekomen-op-schiphol~ac51a1b3/)
+  > Het KLM-vliegtuig met gestrande reizigers uit het Midden-Oosten is woensdagochtend om 08.00 uur geland op Schiphol. Het toestel vertrok even na...
+- [Amerikaans leger deelt foto’s van in Midden-Oosten omgekomen soldaten](https://www.ad.nl/buitenland/amerikaans-leger-deelt-fotos-van-in-midden-oosten-omgekomen-soldaten~a41efaf4/)
+  > Het Amerikaanse leger heeft de identiteit bekendgemaakt van de eerste vier soldaten die zijn omgekomen bij de aanvallen op Iran. Het gaat om soldaten...
+- [Roer moet om bij Odido, dat ‘angstig kil’ communiceert over megalek: ‘Ze bezorgen klanten nachtmerries’](https://www.ad.nl/economie/roer-moet-om-bij-odido-dat-angstig-kil-communiceert-over-megalek-ze-bezorgen-klanten-nachtmerries~a4f32399/)
+  > Wil internetaanbieder Odido de hack met miljoenen klantgegevens overleven, dan moet het roer om. De communicatie is ‘angstig kil’ en Odido moet...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Live: ‘Grootschalige aanvallen’ Israël, Revolutionaire Garde claimt controle Straat van Hormuz](https://fd.nl/politiek/1588109/live-grootschalige-aanvallen-israel-revolutionaire-garde-claimt-controle-straat-van-hormuz)
+- [Scrollen in grijstinten](https://fd.nl/samenleving/1587989/scrollen-in-grijstinten)
+  > Het echte leven steekt bleekjes af bij de felle kleuren in haar tijdlijn, vindt Frida Boeke, waarin vage bekenden verslag doen van belangwekkende...
+- [Live: Zoon van Khamenei mogelijk zijn opvolger, Revolutionaire Garde claimt controle Straat van Hormuz](https://fd.nl/politiek/1588109/live-grootschalige-aanvallen-israel-revolutionaire-garde-claimt-controle-straat-van-hormuz)
   > Op de vijfde dag van de oorlog in Iran voert Israël een nieuwe reeks aanvallen uit en zouden de VS Koerdische strijders willen bewapenen om een...
-- [Live: Aziatische markten bieden weinig hoop op koersherstel in Europa](https://fd.nl/financiele-markten/1588108/live-aziatische-markten-bieden-weinig-hoop-op-koersherstel-in-europa)
+- [Live: Futures wijzen op gemengde opening in Europa, met kleine plus voor Amsterdam](https://fd.nl/financiele-markten/1588108/live-aziatische-markten-bieden-weinig-hoop-op-koersherstel-in-europa)
   > De Koreaanse Kospi staat bijna 10% lager, de Nikkei in Japan verliest bijna 4% en de Hang Seng in Hongkong daalt met 2,5%.
 - [Regisseur Joosje Duk: ‘Ik heb meer empathie gekregen voor royals’](https://fd.nl/samenleving/1587985/regisseur-joosje-duk-ik-heb-meer-empathie-gekregen-voor-royals)
   > Twee keer werd Joosje Duk afgewezen voor de toneelschool. Dus vertrok ze naar New York voor een opleiding. Met de serie ‘Máxima’, die aan 85 landen...
 - [Wopke Hoekstra: ‘Brussel is politiek met de hoofdletter P’](https://fd.nl/politiek/1587982/wopke-hoekstra-brussel-is-politiek-met-de-hoofdletter-p)
   > Eurocommissaris Wopke Hoekstra (50) is na een onwennige start helemaal ingeburgerd in Brussel. ‘Mannen doen altijd alsof hun succes volstrekt logisch...
-- [Hoge inflatie op de loer door Irancrisis](https://fd.nl/economie/1588056/hoge-inflatie-op-de-loer-door-irancrisis)
-  > Vandaag in FD Dagkoers: dreigt de inflatie weer richting 4% te gaan en welke koers presenteert China in zijn nieuwe vijfjarenplan? Verder passen...
 
 ### Meest gelezen
 
