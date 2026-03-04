@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-03-2026 om 21:39*
+*Laatst bijgewerkt: 04-03-2026 om 22:36*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Arsenal zet belangrijke stap richting titel met nipte zege, concurrent City morst dure punten](https://www.ad.nl/voetbal/arsenal-zet-belangrijke-stap-richting-titel-met-nipte-zege-concurrent-city-morst-dure-punten~a4ea4745/)
+  > Een spannende Premier League-avond met mogelijk grote gevolgen voor de titelrace. Terwijl Arsenal op bezoek bij Brighton wegkwam met een moeizame 0-1...
+- [NEC en AZ naar de Kuip: wanneer is de finale van de KNVB-beker?](https://www.ad.nl/voetbal/nec-en-az-naar-de-kuip-wanneer-is-de-finale-van-de-knvb-beker~a802f322/)
+  > De finalisten van de Eurojackpot KNVB Beker zijn bekend. NEC en AZ gaan de strijd aan om die felbegeerde dennenappel. Wanneer is de eindstrijd en wat...
 - [Soap rondom nazischilderij Argentinië duurt voort, verlenging onderzoek](https://www.ad.nl/buitenland/soap-rondom-nazischilderij-argentinie-duurt-voort-verlenging-onderzoek~aeb13bfb/)
   > Een opvallende ontwikkeling in de zaak om het inmiddels wereldberoemde schilderij Portret van een dame. De uitspraak zou in maart zijn, maar de...
 - [AZ in bekerfinale: Alkmaarders profiteren van eigen goals Telstar en treffen NEC in de Kuip](https://www.ad.nl/voetbal/az-in-bekerfinale-alkmaarders-profiteren-van-eigen-goals-telstar-en-treffen-nec-in-de-kuip~a840a058/)
   > AZ heeft zich geplaatst voor de finale van de Eurojackpot KNVB Beker, waarin het op zondag 19 april in de Kuip gaat spelen tegen NEC. De ploeg van...
 - [Logisch dat Winter vol liefde gevuld moet worden, maar dit mogen de makers voortaan overslaan](https://www.ad.nl/show/logisch-dat-winter-vol-liefde-gevuld-moet-worden-maar-dit-mogen-de-makers-voortaan-overslaan~ac6b8338/)
   > Dat was ’m dan: negen weken Winter vol liefde. Weken waarin ik met een glimlach of juist met tranen voor de buis zat. Maar ook weken waarin ik meer...
-- [Israël voert nieuwe aanvalsgolf uit op Iran, explosies gemeld in Teheran, waar 100.000 mensen zijn gevlucht](https://www.ad.nl/buitenland/israel-voert-nieuwe-aanvalsgolf-uit-op-iran-explosies-gemeld-in-teheran-waar-100-000-mensen-zijn-gevlucht~ac528ac3/)
-  > De Israëlische krijgsmacht zei woensdag een nieuwe aanvalsgolf op Iran te hebben uitgevoerd. Journalisten spreken van meerdere krachtige explosies in...
-- [Uitbreiding voor de familie Bogaart: kleinkind komt ter wereld op het drukste horecamoment van de week](https://www.ad.nl/den-haag/uitbreiding-voor-de-familie-bogaart-kleinkind-komt-ter-wereld-op-het-drukste-horecamoment-van-de-week~afcba713b/)
-  > Na de cliffhanger van vorige week hebben De Bogaartjes in aflevering vijf van hun realityserie weer alle reden voor feest. Dochter Bo en haar man...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Vakbond verliest bij beladen or-verkiezing Tesla](https://fd.nl/bedrijfsleven/1588153/vakbond-verliest-bij-beladen-or-verkiezing-tesla)
+  > Aan bedrijfsleiding loyale groep in de ondernemingsraad houdt na waarschuwingen Elon Musk meerderheid vast.
 - [Spanning blijft om te snijden tussen VS en ‘verschrikkelijke bondgenoot’](https://fd.nl/politiek/1588232/spanning-tussen-vs-en-verschrikkelijke-bondgenoot-spanje-blijft-om-te-snijden)
   > De Amerikaanse president Donald Trump kondigde dinsdag een handelsembargo aan tegen Spanje, maar lijkt daar nu op terug te komen.
 - [Breed herstel op Amerikaanse beurzen](https://fd.nl/financiele-markten/1588233/breed-herstel-op-amerikaanse-beurzen)
@@ -54,8 +56,6 @@
   > Het loopt allemaal wel los, lijkt de koers die de Nederlandse politiek vaart op leveringszekerheid.
 - [Amerikaanse bescherming krijgt schepen nog niet Straat van Hormuz in](https://fd.nl/politiek/1588193/amerikaanse-bescherming-krijgt-schepen-nog-niet-straat-van-hormuz-in)
   > De Amerikaanse president hoopte met zijn beschermingsplannen commerciële schepen de Straat van Hormuz weer in te krijgen, maar rederijen aarzelen.
-- [Eurocommercial Properties koopt Zweeds winkelcentrum voor €110 mln](https://fd.nl/bedrijfsleven/1588142/eurocommercial-properties-koopt-zweeds-winkelcentrum-voor-110-mln)
-  > Met de transactie wordt Zweden het op een na grootste land in de portefeuille van Eurocommercial, na Italië.
 
 ### Meest gelezen
 
