@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-03-2026 om 16:53*
+*Laatst bijgewerkt: 04-03-2026 om 17:42*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Grote controle op zwartrijders in de trein bij Voorburg](https://nos.nl/l/2604931)
+  > De NS houdt vandaag een grote controle op zwartrijders. Alle treinen die langs het station in Voorburg komen worden gestopt, waarna iedereen wordt...
+- [Gemengde gevoelens in modewereld over toenemende invloed techmiljardairs](https://nos.nl/l/2604930)
+  > Als allerlaatsten kwamen ze binnen bij de show van Prada in Milaan, vorige week. Omringd door beveiligers werden ze naar hun plaats op de eerste rij...
 - [Terwijl export en tech bloeien zitten veel Chinezen aan de budgetnoedels](https://nos.nl/l/2604925)
   > Welke kant wil China de komende jaren op met de economie? Die vraag staat centraal op de belangrijkste politieke bijeenkomst van het jaar die in...
 - [Griepepidemie lijkt over de piek heen](https://nos.nl/l/2604924)
   > Het lijkt erop dat de griepepidemie over de piek heen is. Dat melden het RIVM en onderzoeksinstituut Nivel. Minder mensen met griepachtige klachten...
 - [Brussel wil industrie redden met 'made in Europe'](https://nos.nl/l/2604923)
   > De Europese Commissie wil dat er bij publieke aanbestedingen in de toekomst verplicht in Europa geproduceerde producten worden gebruikt. De maatregel...
-- [Nederlandse hyperloop-ontwikkelaar Hardt failliet](https://nos.nl/l/2604921)
-  > Het bedrijf achter de eerste Nederlandse testrit met de hyperloop is failliet. Gisteren sprak de rechtbank het faillissement uit van Hardt Hyperloop....
-- [Duizenden vervalste merkartikelen gevonden in Nijmegen](https://nos.nl/l/2604920)
-  > In Nijmegen is een grote partij vervalste merkartikelen gevonden. Het gaat onder meer om kleding, schoenen en accessoires die moesten lijken op die...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Komt er een dieselcrisis? Dit is de mogelijke impact van de oorlog in het Midden-Oosten](https://www.ad.nl/economie/komt-er-een-dieselcrisis-dit-is-de-mogelijke-impact-van-de-oorlog-in-het-midden-oosten~aed77148/)
+  > Dieselrijders worden zwaar geraakt door de sterk oplopende brandstofprijzen aan de pomp. Waar dieselrijders voorheen altijd een aardig prijsvoordeel...
+- [Koppige coach van Fenerbahçe luisterde niet naar clubartsen, nu ligt hij in het ziekenhuis](https://www.ad.nl/voetbal/koppige-coach-van-fenerbahce-luisterde-niet-naar-clubartsen-nu-ligt-hij-in-het-ziekenhuis~a28040e5/)
+  > Domenico Tedesco (40) ligt in het ziekenhuis. De voormalig bondscoach van België kampt met een zware longontsteking. Daardoor moet hij vanavond...
+- [Dode en zwaargewonde persoon aangetroffen in woning Almere](https://www.ad.nl/binnenland/dode-en-zwaargewonde-persoon-aangetroffen-in-woning-almere~ac8aa18a/)
+  > De politie heeft woensdagmiddag een overleden persoon en een zwaargewonde persoon in een woning in Almere aangetroffen. Dat bevestigt een...
+- [Transgender asielzoeker (24) in gezicht gestoken in azc Leiden: ‘Dader schreeuwde dat ze onrein was’](https://www.ad.nl/binnenland/transgender-asielzoeker-24-in-gezicht-gestoken-in-azc-leiden-dader-schreeuwde-dat-ze-onrein-was~abb63e2e/)
+  > In het asielzoekerscentrum in Leiden is afgelopen weekend een transgender asielzoeker door een andere bewoner neergestoken. Het slachtoffer is onder...
 - [Cheyenne Löhnen bekritiseert media na bericht over mogelijke relatiebreuk: ‘Zijn gewoon nog bij elkaar’](https://www.ad.nl/show/cheyenne-lohnen-bekritiseert-media-na-bericht-over-mogelijke-relatiebreuk-zijn-gewoon-nog-bij-elkaar~a0c6e125/)
   > Cheyenne Löhnen heeft via Instagram verduidelijkt dat het nog steeds goed gaat tussen haar en haar verloofde Ingmar van den Broek. Ze uit kritiek op...
-- [Harry Maguire krijgt 15 maanden voorwaardelijke celstraf na geweldpleging in Griekenland](https://www.ad.nl/voetbal/harry-maguire-krijgt-15-maanden-voorwaardelijke-celstraf-na-geweldpleging-in-griekenland~a883d277/)
-  > Manchester United-verdediger Harry Maguire is in Griekenland veroordeeld tot een voorwaardelijke gevangenisstraf van vijftien maanden. Dat bepaalde...
-- [Beter dan Barcelona, Bayern en PSG: ADO is nummer 1 op prestigieuze wereldranglijst - hoe kan dat?](https://www.ad.nl/voetbal/beter-dan-barcelona-bayern-en-psg-ado-is-nummer-1-op-prestigieuze-wereldranglijst-hoe-kan-dat~aa16039b/)
-  > ADO Den Haag ligt op koers voor het kampioenschap en promotie naar de eredivisie. De aanvallende speelstijl van trainer Robin Peter slaat aan. En...
-- [Niet Max Verstappen, maar deze coureur is volgens bookmakers favoriet: ‘Hopelijk hebben ze gelijk’](https://www.ad.nl/formule-1/niet-max-verstappen-maar-deze-coureur-is-volgens-bookmakers-favoriet-hopelijk-hebben-ze-gelijk~a5a94099/)
-  > De tijden van verstoppertje spelen zijn voorbij. Na weken van speculaties gaan Formule 1-teams dit weekend in Melbourne met de billen bloot. Wie is...
-- [Emelie (16) ziet door hersentumor bijna niks, maar staat straks toch aan de start in het Olympisch Stadion](https://www.ad.nl/binnenland/emelie-16-ziet-door-hersentumor-bijna-niks-maar-staat-straks-toch-aan-de-start-in-het-olympisch-stadion~a0267049/)
-  > Kilometers lang rennen in het Olympisch Stadion terwijl je zelf nauwelijks meer iets kunt zien. Dat klinkt onverstandig, misschien zelfs onmogelijk....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Rechter wil meer bewijs zien van hotels voor schade door Booking](https://fd.nl/tech-en-innovatie/1588139/rechter-wil-meer-bewijs-zien-van-hotels-voor-schade-door-booking)
+  > Duitse hotels die schadevergoeding eisen van Booking.com zijn weinig opgeschoten met een uitspraak in Amsterdam. De rechter wil meer bewijs zien en...
+- [Verdeeld Europa worstelt met de oorlog rond Iran](https://fd.nl/politiek/1588119/verdeeld-europa-worstelt-met-de-oorlog-in-iran)
+  > De eensgezindheid is ver te zoeken. Onderwijl worden Europese landen steeds meer het conflict in het Midden-Oosten ingezogen wegens de Iraanse...
+- [Oorlog raakt smelterijen in Golfregio, prijs van aluminium loopt flink op](https://fd.nl/financiele-markten/1588140/oorlog-raakt-smelterijen-in-golfregio-prijs-van-aluminium-loopt-flink-op)
+  > Door de blokkade van de Straat van Hormuz krijgen aluminiumproducenten in de regio geen grondstoffen meer aangeleverd. De afvoer van aluminium is...
+- [Kamer steunt plan voor samenwerken met Parijs voor atoomwapens](https://fd.nl/politiek/1588191/kamer-steunt-plan-voor-samenwerken-met-parijs-voor-atoomwapens)
+  > Meerderheid in zicht voor historisch verbond met Frankrijk voor een tweede atoomparaplu. Wel zijn er vragen hoe dit plan zich verhoudt tot de...
 - [Oorlog Iran brengt grootste vrachtvervoerders in problemen](https://fd.nl/bedrijfsleven/1588123/oorlog-iran-brengt-grootste-vrachtvervoerders-in-problemen)
   > Het gesloten luchtruim in de Golfregio is een hoofdpijndossier voor vrachtvervoerders. Zelfs goed presterende vliegmaatschappijen merken de gevolgen.
-- [Ruim de helft van Nederlandse raden van bestuur bestaat alleen uit mannen](https://fd.nl/bedrijfsleven/1588188/ruim-de-helft-van-nederlandse-raden-van-bestuur-bestaat-alleen-uit-mannen)
-  > Sinds invoering van de Diversiteitswet is het aandeel van vrouwen in raden van bestuur licht gestegen, blijkt uit cijfers van de SER. Maar in ruim de...
-- [Hyperloopdroom in duigen: Rotterdamse start-up Hardt failliet](https://fd.nl/bedrijfsleven/1588138/hyperloopdroom-in-duigen-rotterdamse-start-up-hardt-failliet)
-  > De start-up was sinds september 2024 op zoek naar geld. Destijds zei de pionier voor het razendsnel vervoer via vacuümbuizen het in ieder geval tot...
-- [FNV: Regeerakkoord funest voor financiële zelfstandigheid vrouwen](https://fd.nl/samenleving/1588127/fnv-regeerakkoord-funest-voor-financiele-zelfstandigheid-vrouwen)
-  > Bezuinigingen op zorg en sociale zekerheid treffen vrouwen onevenredig hard, stelt FNV. Zij werken vaker in de zorgsector en komen minder vaak in...
-- [Fed-bestuurder wil ondanks oorlog rente nog steeds verder verlagen](https://fd.nl/economie/1588189/fed-bestuurder-wil-ondanks-oorlog-rente-nog-steeds-verder-verlagen)
-  > Het is volgens Stephen Biran te vroeg om een ​​standpunt in te nemen over de impact van de oorlog in het Midden-Oosten op de Amerikaanse economie.
 
 ### Meest gelezen
 
