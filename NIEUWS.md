@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-03-2026 om 10:41*
+*Laatst bijgewerkt: 04-03-2026 om 11:34*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Monumentale keldergewelven Arnhem illegaal gesloopt na stadsbrand](https://nos.nl/l/2604891)
+  > In Arnhem zijn bij sloopwerkzaamheden monumentale keldergewelven verwijderd die na de grote stadsbrand vorig jaar intact waren gebleven, zo laat de...
+- ['Nieuwe film van HBO-hitserie Game of Thrones in ontwikkeling'](https://nos.nl/l/2604889)
+  > Een nieuwe film in de wereld van Game of Thrones is in ontwikkeling, dat meldt Page Six. Volgens het Amerikaanse tijdschrift speelt het verhaal zich...
 - [Gemeente Westerwolde: onderhandelingen nieuw akkoord aanmeldcentrum Ter Apel](https://nos.nl/l/2604887)
   > De gemeente Westerwolde en het Centraal Orgaan opvang asielzoekers (COA) zijn in onderhandeling over een nieuw bestuursakkoord over het...
 - [KLM-toestel uit Oman geland op Schiphol, veel Nederlanders nog gestrand](https://nos.nl/l/2604886)
   > Een KLM-vliegtuig dat vannacht vanuit de Omaanse hoofdstad Muscat naar Nederland is gevlogen om Nederlanders te repatriëren, is vanochtend geland op...
 - [Internationaal drugshandelsnetwerk ontmanteld door Ecuador, VS, Nederland en België](https://nos.nl/l/2604884)
   > Bij een grootschalige actie tegen een internationaal drugshandelsnetwerk dat gelinkt werd aan het Ecuadoraanse kartel Los Lobos zijn in Nederland,...
-- [Verkiezingsborden Leefbaar Rotterdam beklad en meegenomen](https://nos.nl/l/2604878)
-  > Honderden verkiezingsborden van Leefbaar Rotterdam voor de aankomende gemeenteraadsverkiezingen zijn doelwit geworden van vandalisme, zegt...
-- [Appen van WhatsApp naar een andere app: het kan nu voor het eerst](https://nos.nl/l/2604876)
-  > WhatsApp heeft een optie toegevoegd die 'externe chats' heet. Wie doorklikt, leest dat WhatsApp er door Europese regels voor moet zorgen dat je de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Kabinet zint op deelname militaire verdedigingsmissie rond Iran: Fransen vragen hulp, Nederlands fregat onderweg](https://www.ad.nl/politiek/kabinet-zint-op-deelname-militaire-verdedigingsmissie-rond-iran-fransen-vragen-hulp-nederlands-fregat-onderweg~ae531d98/)
-  > Nederland staat op het punt militair betrokken te worden bij de onrust rond Iran. Het fregat Zr. Ms. Evertsen is onderweg naar de oostelijke...
-- [Praat mee: wie nu nog schrikt van de hoge energieprijzen, heeft niets geleerd van de vorige crisis](https://www.ad.nl/praat-mee/praat-mee-wie-nu-nog-schrikt-van-de-hoge-energieprijzen-heeft-niets-geleerd-van-de-vorige-crisis~a9408962/)
-  > In de Kwestie leggen we onze lezers een stelling voor: wie schrikt van de stijging van de energieprijzen, heeft niets geleerd van de vorige crisis....
-- [Poetins ego loopt opnieuw een deuk op door wegvallen van Iraanse bondgenoot Khamenei](https://www.ad.nl/buitenland/poetins-ego-loopt-opnieuw-een-deuk-op-door-wegvallen-van-iraanse-bondgenoot-khamenei~ab8442838/)
-  > En weer valt er een om. Nadat eind 2024 de Syrische leider Bashar al-Assad de wijk moest nemen naar Moskou en de Verenigde Staten begin januari...
-- [Pijnexpert over gordelroos: ‘Een van de pijnlijkste aandoeningen die je kunt hebben’](https://www.ad.nl/gezond/pijnexpert-over-gordelroos-een-van-de-pijnlijkste-aandoeningen-die-je-kunt-hebben~aadf2267/)
-  > Blaasjes op de huid met jeuk en hevig stekende of brandende pijn: gordelroos treft een op de vier Nederlanders en wordt veroorzaakt door hetzelfde...
-- [Raadslid Igor raakt zijn zicht én gehoor kwijt, maar niet zijn idealen: ‘Ik wil eruit halen wat er wél in zit’](https://www.ad.nl/binnenland/raadslid-igor-raakt-zijn-zicht-en-gehoor-kwijt-maar-niet-zijn-idealen-ik-wil-eruit-halen-wat-er-wel-in-zit~a26b5f96/)
-  > Hij ziet nog nauwelijks iets en hoort steeds minder, maar mist geen debat in de gemeenteraad. Met voorleesapps, een ijzersterk geheugen en een...
+- [Live Q&A: stel donderdag je vragen over de oorlog in het Midden-Oosten](https://www.ad.nl/praat-mee/live-qena-stel-donderdag-je-vragen-over-de-oorlog-in-het-midden-oosten~ae49f17b/)
+  > De oorlog in het Midden-Oosten raakt ons allemaal. Amerika en Israël schakelden zaterdag de Iraanse hoogste leider Ali Khamenei uit en sindsdien...
+- [Victoria en David Beckham feliciteren jarige zoon Brooklyn na familieruzie: ‘We houden van je’](https://www.ad.nl/show/victoria-en-david-beckham-feliciteren-jarige-zoon-brooklyn-na-familieruzie-we-houden-van-je~a55e62f1/)
+  > Victoria en David Beckham hebben hun vervreemde zoon Brooklyn een fijne verjaardag gewenst. Op Instagram schrijven ze dat ze ‘veel van hem houden’....
+- [Gasprijs weer omlaag na dagen met forse stijgingen](https://www.ad.nl/economie/gasprijs-weer-omlaag-na-dagen-met-forse-stijgingen~aa9217e4/)
+  > De gasprijs is woensdag weer wat gedaald, na twee dagen met stijgingen van tientallen procenten. Handelaren proberen een Amerikaans plan om cruciale...
+- [Verstappen won pas één keer in Melbourne, ‘Aston Martin zal snel opgeven tijdens GP Australië’](https://www.ad.nl/formule-1/verstappen-won-pas-een-keer-in-melbourne-aston-martin-zal-snel-opgeven-tijdens-gp-australie~ade263b12/)
+  > Het eerste Formule 1-weekend van het seizoen staat voor de deur. Max Verstappen en zijn collega’s zijn in Melbourne voor de Grand Prix van Australië....
+- [‘Dit is Formule E op steroïden’: wat verandert er allemaal in de Formule 1?](https://www.ad.nl/formule-1/dit-is-formule-e-op-steroiden-wat-verandert-er-allemaal-in-de-formule-1~a5dfd1e4/)
+  > De Formule 1 ondergaat een gigantische metamorfose. Max Verstappen en zijn collega’s gaan racen in een kleinere en lichtere auto, de motor krijgt een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Vrachtvervoer tussen de ijsschotsen: gevaarlijk, vervuilend, maar ook winstgevend](https://fd.nl/economie/1587910/vrachtvervoer-tussen-de-ijsschotsen-gevaarlijk-vervuilend-maar-ook-winstgevend)
-  > Door klimaatverandering smelt het Noordpoolijs, waardoor gaandeweg steeds meer nieuwe vaarroutes ontstaan. De interesse groeit, vooral in Moskou en...
+- [Het nieuwe Chinese vijfjarenplan draait om zelfredzaamheid: de vijf prioriteiten op een rijtje](https://fd.nl/economie/1587694/het-nieuwe-chinese-vijfjarenplan-draait-om-zelfredzaamheid-de-vijf-prioriteiten-op-een-rijtje)
+  > In Peking begint donderdag het Volkscongres waar het nieuwe vijfjarenplan op de agenda staat. Het FD licht de sectoren uit waar China op inzet.
+- [Rekenkamer: nauwelijks minder schadelijke stoffen in rivieren](https://fd.nl/samenleving/1588118/rekenkamer-nauwelijks-minder-schadelijke-stoffen-in-rivieren)
+  > Oud-minister Tieman van Infrastructuur en Waterstaat erkent een deel van de kritiek, maar twijfelt aan het nut van een landelijk overzicht.
+- [Hoog tijd voor Brussels koppensnellen van nationale regels](https://fd.nl/financiele-markten/1588121/hoog-tijd-voor-brussels-koppensnellen-van-nationale-regels)
+  > Extra regels van lidstaten bovenop die van de EU zorgen voor handelsbarrières. Onze eigen Europese vrienden doen ons kortom tekort. Hoogste tijd hier...
+- [Hoe Rusland en China het smeltende poolijs te gelde maken](https://fd.nl/economie/1587910/vrachtvervoer-tussen-de-ijsschotsen-gevaarlijk-vervuilend-maar-ook-winstgevend)
+  > Door klimaatverandering smelt het Noordpoolijs, waardoor steeds meer nieuwe vaarroutes ontstaan. De interesse groeit, vooral in Moskou en Peking,...
 - [Pentagon kiest voor AI zonder veiligheidsremmen](https://fd.nl/opinie/1587917/pentagon-kiest-voor-ai-zonder-veiligheidsremmen)
   > Met de keuze voor het AI-model van OpenAI kiest de Trump-regering voor de mogelijkheid van massasurveillance en de inzet van AI-gestuurde wapens. Een...
-- [Paulien Loerts: ‘Mislukken mag, mits je ervan leert’](https://fd.nl/samenleving/1587990/paulien-loerts-mislukken-mag-mits-je-ervan-leert)
-  > Voor de troepen uit lopen, plannen maken die niet werken: wat maken professionals mee in hun loopbaan? Deze week Paulien Loerts (1965), directeur en...
-- [Dieprode cijfers Bayer na megaschikking](https://fd.nl/bedrijfsleven/1588110/dieprode-cijfers-bayer-na-megaschikking)
-  > Het miljardenverlies bij het agrofarmaconcern over 2025 volgt op rode cijfers in de twee jaren ervoor. Volgens ceo Bill Anderson is vorig jaar...
-- [Scrollen in grijstinten](https://fd.nl/samenleving/1587989/scrollen-in-grijstinten)
-  > Het echte leven steekt bleekjes af bij de felle kleuren in haar tijdlijn, vindt Frida Boeke, waarin vage bekenden verslag doen van belangwekkende...
 
 ### Meest gelezen
 
