@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-03-2026 om 15:49*
+*Laatst bijgewerkt: 04-03-2026 om 16:53*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Beoogd azc in Houten verkocht aan ondernemer, opvang lijkt van de baan](https://nos.nl/l/2604908)
-  > Een pand dat de gemeente Houten al maanden op het oog had voor de opvang van asielzoekers, blijkt te zijn verkocht aan de investeringsmaatschappij...
-- [Podcast De Dag: als het zwembad je stem bepaalt](https://nos.nl/l/2604905)
-  > De gemeenteraadsverkiezingen over twee weken kunnen de krimp van het aantal zwembaden keren, hopen veel bezoekers en eigenaren van zwembaden. Al...
-- [Verkeer om beurten door Westerscheldetunnel tijdens maandenlange reparatie](https://nos.nl/l/2604904)
-  > Tijdens de grote reparatie van de Westerscheldetunnel moet het verkeer om de beurt door de beschikbare tunnelbuis. Dat heeft de provincie Zeeland...
-- [Frankrijk vraagt om hulp van Nederlands marineschip](https://nos.nl/l/2604900)
-  > Een Nederlands fregat gaat mogelijk het Franse vliegdekschip Charles de Gaulle op de Middellandse Zee ondersteunen, op verzoek van Frankrijk. Het...
-- ['Forum voor Democratie kreeg tonnen van één donateur via omweg'](https://nos.nl/l/2604899)
-  > Forum voor Democratie kreeg vorig jaar twee ton van vastgoedman Peter Poot, dat schrijft Follow The Money. Sinds 2023 is 100.000 euro per donateur de...
+- [Terwijl export en tech bloeien zitten veel Chinezen aan de budgetnoedels](https://nos.nl/l/2604925)
+  > Welke kant wil China de komende jaren op met de economie? Die vraag staat centraal op de belangrijkste politieke bijeenkomst van het jaar die in...
+- [Griepepidemie lijkt over de piek heen](https://nos.nl/l/2604924)
+  > Het lijkt erop dat de griepepidemie over de piek heen is. Dat melden het RIVM en onderzoeksinstituut Nivel. Minder mensen met griepachtige klachten...
+- [Brussel wil industrie redden met 'made in Europe'](https://nos.nl/l/2604923)
+  > De Europese Commissie wil dat er bij publieke aanbestedingen in de toekomst verplicht in Europa geproduceerde producten worden gebruikt. De maatregel...
+- [Nederlandse hyperloop-ontwikkelaar Hardt failliet](https://nos.nl/l/2604921)
+  > Het bedrijf achter de eerste Nederlandse testrit met de hyperloop is failliet. Gisteren sprak de rechtbank het faillissement uit van Hardt Hyperloop....
+- [Duizenden vervalste merkartikelen gevonden in Nijmegen](https://nos.nl/l/2604920)
+  > In Nijmegen is een grote partij vervalste merkartikelen gevonden. Het gaat onder meer om kleding, schoenen en accessoires die moesten lijken op die...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Cheyenne Löhnen bekritiseert media na bericht over mogelijke relatiebreuk: ‘Zijn gewoon nog bij elkaar’](https://www.ad.nl/show/cheyenne-lohnen-bekritiseert-media-na-bericht-over-mogelijke-relatiebreuk-zijn-gewoon-nog-bij-elkaar~a0c6e125/)
+  > Cheyenne Löhnen heeft via Instagram verduidelijkt dat het nog steeds goed gaat tussen haar en haar verloofde Ingmar van den Broek. Ze uit kritiek op...
+- [Harry Maguire krijgt 15 maanden voorwaardelijke celstraf na geweldpleging in Griekenland](https://www.ad.nl/voetbal/harry-maguire-krijgt-15-maanden-voorwaardelijke-celstraf-na-geweldpleging-in-griekenland~a883d277/)
+  > Manchester United-verdediger Harry Maguire is in Griekenland veroordeeld tot een voorwaardelijke gevangenisstraf van vijftien maanden. Dat bepaalde...
+- [Beter dan Barcelona, Bayern en PSG: ADO is nummer 1 op prestigieuze wereldranglijst - hoe kan dat?](https://www.ad.nl/voetbal/beter-dan-barcelona-bayern-en-psg-ado-is-nummer-1-op-prestigieuze-wereldranglijst-hoe-kan-dat~aa16039b/)
+  > ADO Den Haag ligt op koers voor het kampioenschap en promotie naar de eredivisie. De aanvallende speelstijl van trainer Robin Peter slaat aan. En...
+- [Niet Max Verstappen, maar deze coureur is volgens bookmakers favoriet: ‘Hopelijk hebben ze gelijk’](https://www.ad.nl/formule-1/niet-max-verstappen-maar-deze-coureur-is-volgens-bookmakers-favoriet-hopelijk-hebben-ze-gelijk~a5a94099/)
+  > De tijden van verstoppertje spelen zijn voorbij. Na weken van speculaties gaan Formule 1-teams dit weekend in Melbourne met de billen bloot. Wie is...
 - [Emelie (16) ziet door hersentumor bijna niks, maar staat straks toch aan de start in het Olympisch Stadion](https://www.ad.nl/binnenland/emelie-16-ziet-door-hersentumor-bijna-niks-maar-staat-straks-toch-aan-de-start-in-het-olympisch-stadion~a0267049/)
   > Kilometers lang rennen in het Olympisch Stadion terwijl je zelf nauwelijks meer iets kunt zien. Dat klinkt onverstandig, misschien zelfs onmogelijk....
-- [Niet met bleek, maar op deze slimme manier wordt zelfs het vieze afvoerputje van je bad of jacuzzi schoon](https://www.ad.nl/wonen/niet-met-bleek-maar-op-deze-slimme-manier-wordt-zelfs-het-vieze-afvoerputje-van-je-bad-of-jacuzzi-schoon~a5ff4862/)
-  > Heb je thuis een bubbelbad of jacuzzi, dan focus je bij het schoonmaken meestal op de kuip. Maar het vuil verzamelt zich juist in het deel dat buiten...
-- [RIVM: Griepgolf lijkt over de piek heen te zijn](https://www.ad.nl/binnenland/rivm-griepgolf-lijkt-over-de-piek-heen-te-zijn~a5fedfa0/)
-  > Hoewel er nog veel griep rondgaat in Nederland lijkt het aantal mensen met griep over de piek heen te zijn. De afgelopen week nam het aantal mensen...
-- [Amerika: We zijn pas net begonnen in Iran, zullen nu doorstoten](https://www.ad.nl/buitenland/amerika-we-zijn-pas-net-begonnen-in-iran-zullen-nu-doorstoten~ac528ac3/)
-  > De VS is aan de winnende hand in de oorlog die het land samen met Israël begonnen is tegen Iran. Dat zei minister van Defensie Pete Hegseth in een...
-- [‘Wie nu geen vast energiecontract heeft, moet het hoofd koel houden’](https://www.ad.nl/binnenland/wie-nu-geen-vast-energiecontract-heeft-moet-het-hoofd-koel-houden~a1218c35/)
-  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag: als je nu nog schrikt van de stijging van de energieprijzen, dan heb je...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘Ideale schoonzoon’ moet meteen aan de bak in steeds ruwere wereld](https://fd.nl/politiek/1587958/ideale-schoonzoon-moet-meteen-aan-de-bak-in-steeds-ruwere-wereld)
-  > Hij is nog maar net minister van Buitenlandse Zaken, maar door de oorlog in het Midden-Oosten zit een rustig begin er niet in voor CDA’er Tom...
-- [Maaltijdbezorger Just Eat Takeaway stopt in Denemarken](https://fd.nl/bedrijfsleven/1588186/maaltijdbezorger-just-eat-takeaway-stopt-in-denemarken)
-  > ‘Uitdagende omstandigheden’ leiden tot vertrek van maaltijdbezorger.
-- [Schrikken bij de pomp: diesel wordt bijna net zo duur als benzine](https://fd.nl/economie/1588180/schrikken-aan-de-pomp-diesel-wordt-bijna-net-zo-duur-als-benzine)
-  > Door de oorlog in het Midden-Oosten gaan alle brandstofprijzen omhoog. De prijs voor diesel stijgt veel harder dan benzine.
-- [Cryptobeurs Kraken krijgt toegang tot betalingssystemen van Fed](https://fd.nl/bedrijfsleven/1588184/cryptobeurs-kraken-krijgt-toegang-tot-betalingssystemen-van-fed)
-  > Met deze rekening kan Kraken geld verplaatsen via systemen die zijn voorbehouden aan banken met een vergunning.
-- [Onderzoekers Wageningen: zeespiegel hoger dan gedacht, miljoenen mensen kwetsbaar](https://fd.nl/samenleving/1588124/onderzoekers-wageningen-zeespiegel-hoger-dan-gedacht-miljoenen-mensen-kwetsbaar)
-  > De gevolgen van zeewaterstijging - overstromingen, hoog grondwaterpeil of verzilting - zich sneller zullen gaan voordoen dan verwacht.
+- [Oorlog Iran brengt grootste vrachtvervoerders in problemen](https://fd.nl/bedrijfsleven/1588123/oorlog-iran-brengt-grootste-vrachtvervoerders-in-problemen)
+  > Het gesloten luchtruim in de Golfregio is een hoofdpijndossier voor vrachtvervoerders. Zelfs goed presterende vliegmaatschappijen merken de gevolgen.
+- [Ruim de helft van Nederlandse raden van bestuur bestaat alleen uit mannen](https://fd.nl/bedrijfsleven/1588188/ruim-de-helft-van-nederlandse-raden-van-bestuur-bestaat-alleen-uit-mannen)
+  > Sinds invoering van de Diversiteitswet is het aandeel van vrouwen in raden van bestuur licht gestegen, blijkt uit cijfers van de SER. Maar in ruim de...
+- [Hyperloopdroom in duigen: Rotterdamse start-up Hardt failliet](https://fd.nl/bedrijfsleven/1588138/hyperloopdroom-in-duigen-rotterdamse-start-up-hardt-failliet)
+  > De start-up was sinds september 2024 op zoek naar geld. Destijds zei de pionier voor het razendsnel vervoer via vacuümbuizen het in ieder geval tot...
+- [FNV: Regeerakkoord funest voor financiële zelfstandigheid vrouwen](https://fd.nl/samenleving/1588127/fnv-regeerakkoord-funest-voor-financiele-zelfstandigheid-vrouwen)
+  > Bezuinigingen op zorg en sociale zekerheid treffen vrouwen onevenredig hard, stelt FNV. Zij werken vaker in de zorgsector en komen minder vaak in...
+- [Fed-bestuurder wil ondanks oorlog rente nog steeds verder verlagen](https://fd.nl/economie/1588189/fed-bestuurder-wil-ondanks-oorlog-rente-nog-steeds-verder-verlagen)
+  > Het is volgens Stephen Biran te vroeg om een ​​standpunt in te nemen over de impact van de oorlog in het Midden-Oosten op de Amerikaanse economie.
 
 ### Meest gelezen
 
