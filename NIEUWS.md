@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-03-2026 om 20:36*
+*Laatst bijgewerkt: 04-03-2026 om 21:39*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Na 44 jaar in de Almelose raad is het mooi geweest voor Gijs Stork (85)](https://nos.nl/l/2604952)
-  > Na 44 jaar in de gemeenteraad neemt Gijs Stork (85) afscheid. Gisteren nam hij voor de allerlaatste keer plaats op zijn vaste plek achter de...
-- [Dag 5 van de oorlog: nieuwe aanvallen en reizigers terug uit het Midden-Oosten](https://nos.nl/l/2604948)
-  > Op dag 5 van de oorlog in het Midden-Oosten voeren Israël en de Verenigde Staten opnieuw aanvallen uit op Iran. Dat reageert met tegenaanvallen op...
-- [Frontman van dj-trio Kris Kross Amsterdam stopt per direct](https://nos.nl/l/2604947)
-  > Frontman Yuki Kempees van Kris Kross Amsterdam stapt per direct uit het dj-trio. Dat maakt hij bekend op sociale media. Het is tijd voor een nieuwe...
-- [Politie pakt verdachte (14) op voor aanranden van joggende vrouwen in Dordrecht](https://nos.nl/l/2604946)
-  > De politie in Dordrecht heeft een 14-jarige jongen opgepakt die wordt verdacht van tenminste vier aanrandingen. Daarbij sloeg hij hardlopende vrouwen...
-- [In Trumps nieuwe wereldorde komt het internationaal recht op een zijspoor](https://nos.nl/l/2604943)
-  > Schenden de VS en Israël met hun aanvallen op Iran het internationale recht? Ja, zeggen veel deskundigen. "Amerika en Israël hebben de hoeksteen van...
+- [Meer grote bedrijven delen cijfers over man-vrouwverhouding in de top](https://nos.nl/l/2604960)
+  > Er zitten weer iets meer vrouwen in het bestuur van grote bedrijven. Het aantal vrouwen in de raad van commissarissen stagneert juist. Dat blijkt uit...
+- [Vogelgriep in de Achterhoek, bijna 100.000 hennen geruimd](https://nos.nl/l/2604959)
+  > Bij een pluimveebedrijf in Neede, in de Achterhoek, is vogelgriep vastgesteld. Ongeveer 97.450 hennen bij het bedrijf worden door de Nederlandse...
+- [Politie Amsterdam, Europol en FBI rollen online platform voor cybercriminelen op](https://nos.nl/l/2604958)
+  > De politie Amsterdam heeft met onder meer Europol en de FBI een forum voor cybercriminelen offline gehaald. LeakBase had 142.000 geregistreerde...
+- [Mijn Congo stort opnieuw in na regenval, overheid meldt 200 doden](https://nos.nl/l/2604956)
+  > In het oosten van de Democratische Republiek Congo is een mijn ingestort. Het gaat om dezelfde mijn die vorige maand ook instortte. Volgens de...
+- [Amsterdammer (20) opgepakt voor aanslagen in Duitsland, ook vier anderen vast](https://nos.nl/l/2604955)
+  > Een 20-jarige man uit Amsterdam is opgepakt als hoofdverdachte voor een reeks aanslagen in Duitsland. Ook vier anderen zijn gearresteerd. De...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Soap rondom nazischilderij Argentinië duurt voort, verlenging onderzoek](https://www.ad.nl/buitenland/soap-rondom-nazischilderij-argentinie-duurt-voort-verlenging-onderzoek~aeb13bfb/)
+  > Een opvallende ontwikkeling in de zaak om het inmiddels wereldberoemde schilderij Portret van een dame. De uitspraak zou in maart zijn, maar de...
+- [AZ in bekerfinale: Alkmaarders profiteren van eigen goals Telstar en treffen NEC in de Kuip](https://www.ad.nl/voetbal/az-in-bekerfinale-alkmaarders-profiteren-van-eigen-goals-telstar-en-treffen-nec-in-de-kuip~a840a058/)
+  > AZ heeft zich geplaatst voor de finale van de Eurojackpot KNVB Beker, waarin het op zondag 19 april in de Kuip gaat spelen tegen NEC. De ploeg van...
+- [Logisch dat Winter vol liefde gevuld moet worden, maar dit mogen de makers voortaan overslaan](https://www.ad.nl/show/logisch-dat-winter-vol-liefde-gevuld-moet-worden-maar-dit-mogen-de-makers-voortaan-overslaan~ac6b8338/)
+  > Dat was ’m dan: negen weken Winter vol liefde. Weken waarin ik met een glimlach of juist met tranen voor de buis zat. Maar ook weken waarin ik meer...
 - [Israël voert nieuwe aanvalsgolf uit op Iran, explosies gemeld in Teheran, waar 100.000 mensen zijn gevlucht](https://www.ad.nl/buitenland/israel-voert-nieuwe-aanvalsgolf-uit-op-iran-explosies-gemeld-in-teheran-waar-100-000-mensen-zijn-gevlucht~ac528ac3/)
   > De Israëlische krijgsmacht zei woensdag een nieuwe aanvalsgolf op Iran te hebben uitgevoerd. Journalisten spreken van meerdere krachtige explosies in...
-- [Gemeenten worstelen met verkiezingspost: geen stempassen bezorgd, juist twee of in een verkeerde envelop](https://www.ad.nl/binnenland/gemeenten-worstelen-met-verkiezingspost-geen-stempassen-bezorgd-juist-twee-of-in-een-verkeerde-envelop~a9f77bea/)
-  > Op meerdere plekken in het land is de bezorging van stempassen voor de gemeenteraadsverkiezingen niet goed gegaan. Zo kregen sommige mensen in...
-- [Vier sterren voor The Bride!: te ambitieus opgezet, maar vermakelijk en meeslepend](https://www.ad.nl/show/vier-sterren-voor-the-bride-te-ambitieus-opgezet-maar-vermakelijk-en-meeslepend~a8a032f1/)
-  > De eerste bruid van Frankenstein sprak in de originele film uit 1935 geen woord en was amper in beeld. Dat euvel wordt ruimschoots gecompenseerd door...
-- [Hard anti-immigratiebeleid, maar Italië geeft ook 500 duizend migranten een tijdelijke werkvergunning](https://www.ad.nl/buitenland/hard-anti-immigratiebeleid-maar-italie-geeft-ook-500-duizend-migranten-een-tijdelijke-werkvergunning~a1f6b288/)
-  > De Italiaanse premier voert een hard anti-immigratiebeleid, dat is tenminste de retoriek. Tegelijkertijd laat de regering de komende drie jaar 500...
-- [Rotterdamse Sara (58) doet deur open voor twee jongens, minuten later ontploft er een bom: ‘Ik was doodsbang’](https://www.ad.nl/binnenland/rotterdamse-sara-58-doet-deur-open-voor-twee-jongens-minuten-later-ontploft-er-een-bom-ik-was-doodsbang~a404fd1e/)
-  > De Rotterdamse Sara* (58) heeft de afgelopen nacht geen oog dichtgedaan. Ze deed de deur open voor twee onbekende jongens, die minuten later een...
+- [Uitbreiding voor de familie Bogaart: kleinkind komt ter wereld op het drukste horecamoment van de week](https://www.ad.nl/den-haag/uitbreiding-voor-de-familie-bogaart-kleinkind-komt-ter-wereld-op-het-drukste-horecamoment-van-de-week~afcba713b/)
+  > Na de cliffhanger van vorige week hebben De Bogaartjes in aflevering vijf van hun realityserie weer alle reden voor feest. Dochter Bo en haar man...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Spanning blijft om te snijden tussen VS en ‘verschrikkelijke bondgenoot’](https://fd.nl/politiek/1588232/spanning-tussen-vs-en-verschrikkelijke-bondgenoot-spanje-blijft-om-te-snijden)
+  > De Amerikaanse president Donald Trump kondigde dinsdag een handelsembargo aan tegen Spanje, maar lijkt daar nu op terug te komen.
+- [Breed herstel op Amerikaanse beurzen](https://fd.nl/financiele-markten/1588233/breed-herstel-op-amerikaanse-beurzen)
+  > De aanvankelijke paniek rond de aanval op Iran door de VS en Israël maakte woensdag plaats voor hoop dat de macro-economische schade binnen de perken...
 - [Te weinig geleerd van gascrisis](https://fd.nl/opinie/1588179/te-weinig-geleerd-van-gascrisis)
   > Het loopt allemaal wel los, lijkt de koers die de Nederlandse politiek vaart op leveringszekerheid.
 - [Amerikaanse bescherming krijgt schepen nog niet Straat van Hormuz in](https://fd.nl/politiek/1588193/amerikaanse-bescherming-krijgt-schepen-nog-niet-straat-van-hormuz-in)
   > De Amerikaanse president hoopte met zijn beschermingsplannen commerciële schepen de Straat van Hormuz weer in te krijgen, maar rederijen aarzelen.
 - [Eurocommercial Properties koopt Zweeds winkelcentrum voor €110 mln](https://fd.nl/bedrijfsleven/1588142/eurocommercial-properties-koopt-zweeds-winkelcentrum-voor-110-mln)
   > Met de transactie wordt Zweden het op een na grootste land in de portefeuille van Eurocommercial, na Italië.
-- [Gesprekken over redding Shell-joint venture Raízen lopen stuk](https://fd.nl/bedrijfsleven/1588141/gesprekken-over-redding-shell-joint-venture-raizen-lopen-stuk)
-  > Mede-eigenaren Cosan en Shell hebben geen overeenstemming bereikt over een plan om kapitaal voor de grootste suiker- en ethanolproducent van Brazilië...
-- [Rechter wil meer bewijs zien van hotels voor schade door Booking](https://fd.nl/tech-en-innovatie/1588139/rechter-wil-meer-bewijs-zien-van-hotels-voor-schade-door-booking)
-  > Duitse hotels die schadevergoeding eisen van Booking.com zijn weinig opgeschoten met een uitspraak in Amsterdam. De rechter wil meer bewijs zien en...
 
 ### Meest gelezen
 
