@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-03-2026 om 05:48*
+*Laatst bijgewerkt: 04-03-2026 om 06:55*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [LIVE Midden-Oosten | Saoedi-Arabië onderschept raketten, nieuwe bombardementen op Iran na drie grote tegenaanvallen](https://www.ad.nl/buitenland/live-midden-oosten-saoedi-arabie-onderschept-raketten-nieuwe-bombardementen-op-iran-na-drie-grote-tegenaanvallen~ac528ac3/)
+  > Saoedi-Arabië heeft twee aanvallende kruisraketten onderschept. Dat gebeurde vlakbij de centraal gelegen stad al-Kharj, meldt NBC News op basis van...
+- [Donder op met diëten, ga gewoon gezond eten!, adviseren deskundigen Maarten en Mascha](https://www.ad.nl/binnenland/donder-op-met-dieten-ga-gewoon-gezond-eten-adviseren-deskundigen-maarten-en-mascha~a2b6cc45/)
+  > Crashen, uithongeren, jojoën, je daarna weer schuldig voelen. Diëten is voor veel mensen de hel. En dat is terecht, zegt voedingsdeskundige Mascha...
+- [Buikslidings, trainer gejonast en suikeroom belooft ‘leuk extraatje’: dolle vreugde bij NEC na stunt tegen PSV](https://www.ad.nl/voetbal/buikslidings-trainer-gejonast-en-suikeroom-belooft-leuk-extraatje-dolle-vreugde-bij-nec-na-stunt-tegen-psv~ab203e93/)
+  > Bij NEC was het na de memorabele zege op PSV een dolle boel. Het bereiken van de finale van de KNVB-beker zorgde voor komische taferelen tijdens het...
 - [Ceo van McDonald’s gaat viraal met ongemakkelijke smaaktest van nieuwe burger: ‘Die man eet duidelijk nooit McDonald’s’](https://www.ad.nl/bizar/ceo-van-mcdonalds-gaat-viraal-met-ongemakkelijke-smaaktest-van-nieuwe-burger-die-man-eet-duidelijk-nooit-mcdonalds~a974ad37/)
   > Hoe eet je als ceo van McDonald’s je eigen nieuwe burger? Met volle overtuiging, zou je verwachten. Maar wanneer de Amerikaanse topman Chris...
 - [‘Pedobots’ gewoon te vinden op internet en dat mag volgens de wet: ‘Anya (7) is vastgebonden en huilt’](https://www.ad.nl/tech/pedobots-gewoon-te-vinden-op-internet-en-dat-mag-volgens-de-wet-anya-7-is-vastgebonden-en-huilt~a76d0e687/)
   > Het is een zieke uithoek van het internet waar je liever niet komt, maar hij bestaat wel. Een digitale wereld vol ‘pedobots’. Kunstmatige...
-- [Woonbedrijven brengen met spoed in kaart hoeveel woningen met giftig isolatieschuim zijn geïsoleerd](https://www.ad.nl/wonen/woonbedrijven-brengen-met-spoed-in-kaart-hoeveel-woningen-met-giftig-isolatieschuim-zijn-geisoleerd~a9925cac/)
-  > Woningcorporaties in het land brengen met spoed in kaart in welke woningen het omstreden UF‑schuim is gebruikt. Aanleiding is de groeiende onrust...
-- [Coke was de goudmijn voor de onderwereld, nu hebben de zware jongens een andere melkkoe](https://www.ad.nl/binnenland/coke-was-de-goudmijn-voor-de-onderwereld-nu-hebben-de-zware-jongens-een-andere-melkkoe~a4a699f3/)
-  > Nederland gold ooit als dé wietschuur van Europa, maar in 2025 overspoelde plots buitenlandse wiet de Rotterdamse haven: net zo lucratief als coke,...
-- [Op haar 14de schreef Andrea haar eerste brief aan Bianca uit VS, tachtig jaar later hebben ze nog steeds contact](https://www.ad.nl/binnenland/op-haar-14de-schreef-andrea-haar-eerste-brief-aan-bianca-uit-vs-tachtig-jaar-later-hebben-ze-nog-steeds-contact~a2114b36/)
-  > Ze waren nog meisjes toen hun levenslange vriendschap begon: de Zeeuws-Vlaamse Andrea en de Amerikaanse Bianca. Ze groeiden op, elk aan een andere...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Live: ‘Grootschalige aanvallen’ Israël, Revolutionaire Garde claimt controle Straat van Hormuz](https://fd.nl/politiek/1588109/live-grootschalige-aanvallen-israel-revolutionaire-garde-claimt-controle-straat-van-hormuz)
+  > Op de vijfde dag van de oorlog in Iran voert Israël een nieuwe reeks aanvallen uit en zouden de VS Koerdische strijders willen bewapenen om een...
+- [Live: Aziatische markten bieden weinig hoop op koersherstel in Europa](https://fd.nl/financiele-markten/1588108/live-aziatische-markten-bieden-weinig-hoop-op-koersherstel-in-europa)
+  > De Koreaanse Kospi staat bijna 10% lager, de Nikkei in Japan verliest bijna 4% en de Hang Seng in Hongkong daalt met 2,5%.
+- [Regisseur Joosje Duk: ‘Ik heb meer empathie gekregen voor royals’](https://fd.nl/samenleving/1587985/regisseur-joosje-duk-ik-heb-meer-empathie-gekregen-voor-royals)
+  > Twee keer werd Joosje Duk afgewezen voor de toneelschool. Dus vertrok ze naar New York voor een opleiding. Met de serie ‘Máxima’, die aan 85 landen...
 - [Wopke Hoekstra: ‘Brussel is politiek met de hoofdletter P’](https://fd.nl/politiek/1587982/wopke-hoekstra-brussel-is-politiek-met-de-hoofdletter-p)
   > Eurocommissaris Wopke Hoekstra (50) is na een onwennige start helemaal ingeburgerd in Brussel. ‘Mannen doen altijd alsof hun succes volstrekt logisch...
 - [Hoge inflatie op de loer door Irancrisis](https://fd.nl/economie/1588056/hoge-inflatie-op-de-loer-door-irancrisis)
   > Vandaag in FD Dagkoers: dreigt de inflatie weer richting 4% te gaan en welke koers presenteert China in zijn nieuwe vijfjarenplan? Verder passen...
-- [Het gelijk van groene gekkies](https://fd.nl/opinie/1587969/het-gelijk-van-groene-gekkies)
-  > Nederland had veel sneller moeten elektrificeren, met zon, wind, waterstof en batterijen, stelt FD-columnist Mathijs Bouman vast, nu de gasprijs...
-- [De vergeten factor in het AOW-debat: het brein](https://fd.nl/opinie/1587963/de-vergeten-factor-in-het-aow-debat-het-brein)
-  > De AOW-leeftijd koppelen aan de levensverwachting is logisch, maar vergeten we niet iets fundamenteels? Het gaat niet alleen om hoelang we leven,...
-- [Groene waterstof lost zijn belofte maar niet in: ‘Gaat nog decennia duren’](https://fd.nl/bedrijfsleven/1587840/groene-waterstof-lost-zijn-belofte-maar-niet-in-gaat-nog-decennia-duren)
-  > Wereldwijd zit de markt vast en opschalen lukt nog nauwelijks. Het importeren van waterstof blijkt veel duurder dan eerder werd gedacht.
 
 ### Meest gelezen
 
