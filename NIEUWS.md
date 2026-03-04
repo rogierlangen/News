@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-03-2026 om 22:36*
+*Laatst bijgewerkt: 04-03-2026 om 23:35*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Epstein-commissie laat Justitieminister Pam Bondi dagvaarden voor getuigenis](https://www.ad.nl/buitenland/epstein-commissie-laat-justitieminister-pam-bondi-dagvaarden-voor-getuigenis~ae67dd9c/)
+  > Een commissie in het Amerikaanse Huis van Afgevaardigden heeft ermee ingestemd om minister van Justitie Pam Bondi te dagvaarden in verband met de...
 - [Arsenal zet belangrijke stap richting titel met nipte zege, concurrent City morst dure punten](https://www.ad.nl/voetbal/arsenal-zet-belangrijke-stap-richting-titel-met-nipte-zege-concurrent-city-morst-dure-punten~a4ea4745/)
   > Een spannende Premier League-avond met mogelijk grote gevolgen voor de titelrace. Terwijl Arsenal op bezoek bij Brighton wegkwam met een moeizame 0-1...
 - [NEC en AZ naar de Kuip: wanneer is de finale van de KNVB-beker?](https://www.ad.nl/voetbal/nec-en-az-naar-de-kuip-wanneer-is-de-finale-van-de-knvb-beker~a802f322/)
@@ -35,8 +37,6 @@
   > Een opvallende ontwikkeling in de zaak om het inmiddels wereldberoemde schilderij Portret van een dame. De uitspraak zou in maart zijn, maar de...
 - [AZ in bekerfinale: Alkmaarders profiteren van eigen goals Telstar en treffen NEC in de Kuip](https://www.ad.nl/voetbal/az-in-bekerfinale-alkmaarders-profiteren-van-eigen-goals-telstar-en-treffen-nec-in-de-kuip~a840a058/)
   > AZ heeft zich geplaatst voor de finale van de Eurojackpot KNVB Beker, waarin het op zondag 19 april in de Kuip gaat spelen tegen NEC. De ploeg van...
-- [Logisch dat Winter vol liefde gevuld moet worden, maar dit mogen de makers voortaan overslaan](https://www.ad.nl/show/logisch-dat-winter-vol-liefde-gevuld-moet-worden-maar-dit-mogen-de-makers-voortaan-overslaan~ac6b8338/)
-  > Dat was ’m dan: negen weken Winter vol liefde. Weken waarin ik met een glimlach of juist met tranen voor de buis zat. Maar ook weken waarin ik meer...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Vakbond verliest bij beladen or-verkiezing Tesla](https://fd.nl/bedrijfsleven/1588153/vakbond-verliest-bij-beladen-or-verkiezing-tesla)
-  > Aan bedrijfsleiding loyale groep in de ondernemingsraad houdt na waarschuwingen Elon Musk meerderheid vast.
-- [Spanning blijft om te snijden tussen VS en ‘verschrikkelijke bondgenoot’](https://fd.nl/politiek/1588232/spanning-tussen-vs-en-verschrikkelijke-bondgenoot-spanje-blijft-om-te-snijden)
-  > De Amerikaanse president Donald Trump kondigde dinsdag een handelsembargo aan tegen Spanje, maar lijkt daar nu op terug te komen.
-- [Breed herstel op Amerikaanse beurzen](https://fd.nl/financiele-markten/1588233/breed-herstel-op-amerikaanse-beurzen)
-  > De aanvankelijke paniek rond de aanval op Iran door de VS en Israël maakte woensdag plaats voor hoop dat de macro-economische schade binnen de perken...
-- [Te weinig geleerd van gascrisis](https://fd.nl/opinie/1588179/te-weinig-geleerd-van-gascrisis)
-  > Het loopt allemaal wel los, lijkt de koers die de Nederlandse politiek vaart op leveringszekerheid.
-- [Amerikaanse bescherming krijgt schepen nog niet Straat van Hormuz in](https://fd.nl/politiek/1588193/amerikaanse-bescherming-krijgt-schepen-nog-niet-straat-van-hormuz-in)
-  > De Amerikaanse president hoopte met zijn beschermingsplannen commerciële schepen de Straat van Hormuz weer in te krijgen, maar rederijen aarzelen.
+- [Eindhovense detacheerder TMC neemt WEB over](https://fd.nl/tech-en-innovatie/1588196/eindhovense-detacheerder-tmc-neemt-web-over)
+  > Met WEB, eveneens gevestigd in Eindhoven, wil TMC zijn positie versterken in de industriële techniek. Het is voor TMC de zesde overname in tweeënhalf...
+- [Killer robots](https://fd.nl/opinie/1588144/killer-robots)
+  > Wie stelt grenzen aan AI, vraagt FD-columnist Anna Dijkman zich af. En wie houdt bedrijven tegen als de roekelozen de snelheid bepalen, op weg naar...
+- [AFM laat analistengesprekken ongemoeid, ondanks koerseffect](https://fd.nl/financiele-markten/1588041/afm-laat-analistengesprekken-ongemoeid-ondanks-koerseffect)
+  > De bekritiseerde voorgesprekken van beursgenoteerde bedrijven met analisten hebben consequenties voor de markten, maar de toezichthouder ziet er geen...
+- [Kantoorklerken aller landen, verenigt u! ChatGPT klopt namelijk op de deur](https://fd.nl/opinie/1588036/kantoorklerken-aller-landen-verenigt-u)
+  > Voor het eerst maken niet blauwe maar witte boorden zich zorgen om automatisering. Een nieuwe ervaring voor de bewoner van de kantoortuin – dé...
+- [Personalia donderdag 5 maart](https://fd.nl/bedrijfsleven/1588131/personalia-donderdag-5-maart)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
