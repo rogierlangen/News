@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-03-2026 om 09:51*
+*Laatst bijgewerkt: 05-03-2026 om 10:47*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [NS-actie Voorburg levert 59 boetes op, ook man aangehouden met openstaande celstraf](https://nos.nl/l/2605008)
+  > Bij een grootschalige controle op treinkaartjes heeft de NS 59 zwartrijders beboet. De vervoerder controleerde gisteren tussen 16.30 en 21.45 uur...
+- [Toezichthouder ACM gaat energieleveranciers strenger controleren](https://nos.nl/l/2605007)
+  > De Autoriteit Consument en Markt (ACM) gaat energiebedrijven intensiever controleren of zij zich wel aan de regels houden. De toezichthouder heeft de...
+- [13 jaar cel voor mesaanval bij Holocaustmonument in Berlijn](https://nos.nl/l/2605005)
+  > In Berlijn is een Syrische man veroordeeld tot 13 jaar cel omdat hij vorig jaar iemand had neergestoken met een mes bij het Holocaustmonument in...
+- [Politieke discussie over Gronings gas laait weer op door oorlog Iran](https://nos.nl/l/2605004)
+  > De oorlog in Iran leidt ertoe dat de politieke discussie over gaswinning in Groningen en het openhouden van de gasputten van het Groningenveld weer...
 - [Kopen niet altijd voordeliger qua woonlasten dan huren](https://nos.nl/l/2604992)
   > In tegenstelling tot wat vaak wordt gedacht zijn de woonlasten van jonge kopers niet altijd heel veel lager dan die van jonge huurders. Dat blijkt...
-- [Extinction Rebellion lijmt deuren vast van Amsterdamse middelbare scholen](https://nos.nl/l/2604988)
-  > Klimaatactivisten van Extinction Rebellion hebben vannacht in Amsterdam bij meerdere middelbare scholen de toegang geblokkeerd. Dat gebeurde door...
-- [Autoriteit Persoonsgegevens wil snel AI-regels: 'Grondrechten moeten beschermd'](https://nos.nl/l/2604987)
-  > De Autoriteit Persoonsgegevens wil dat het kabinet opschiet met het maken van regels voor het gebruik van AI. De waakhond zegt dat er nu een gebrek...
-- [China verwacht laagste groei in decennia, maar straalt toch zelfvertrouwen uit](https://nos.nl/l/2604986)
-  > De Chinese economie moet komend jaar met 4,5 tot 5 procent groeien. Dat is het laagste groeidoel dat ooit in een jaarplan is vastgelegd. Toch straalt...
-- [Snelle verkiezingen na jongerenprotesten moeten verandering brengen in Nepal](https://nos.nl/l/2604985)
-  > Zes maanden nadat de regering van Nepal moest aftreden onder druk van grootschalige jongerenprotesten, gaat het land vandaag naar de stembus. Veel...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dafne Schippers is hard voor coaches en begeleiders, maar hoe blikken zij terug? ‘Dat ze zo diep had gezeten, wist ik niet’](https://www.ad.nl/andere-sporten/dafne-schippers-is-hard-voor-coaches-en-begeleiders-maar-hoe-blikken-zij-terug-dat-ze-zo-diep-had-gezeten-wist-ik-niet~ab031159/)
-  > In haar biografie spreekt Dafne Schippers (33) over haar succes, de worsteling in haar carrière en diepgewortelde eenzaamheid. Schippers is hard voor...
-- [De terrassen stromen weer vol, hoe zit het met de prijzen dit jaar?](https://www.ad.nl/economie/de-terrassen-stromen-weer-vol-hoe-zit-het-met-de-prijzen-dit-jaar~a260cbf3/)
-  > De terrassen stromen weer vol nu de zon zich van haar beste kant laat zien. Heerlijk genieten van een cappuccino of een witte wijn terwijl de zon je...
-- [Bij deze benzinestations tank je nog tegen ‘vooroorlogse’ prijzen](https://www.ad.nl/auto/bij-deze-benzinestations-tank-je-nog-tegen-vooroorlogse-prijzen~ad9692e1/)
-  > Door de onrust in het Midden-Oosten zijn de prijzen aan de pomp omhooggeschoten. Bij het duurste tankstation betaal je voor een liter Euro95-benzine...
-- [Roep in Kamer om gasvelden Groningen niet definitief te sluiten zwelt aan](https://www.ad.nl/politiek/roep-in-kamer-om-gasvelden-groningen-niet-definitief-te-sluiten-zwelt-aan~a7a0ba8a/)
-  > In de Tweede Kamer groeit de steun om de gasputten in Groningen tóch als ‘strategische noodvoorraad’ open te houden, nu de energieprijzen zo hard...
-- [Radio 2-ochtendduo Roodbeen en Kijk in de Vegte krijgt tv-show op NPO 1](https://www.ad.nl/show/radio-2-ochtendduo-roodbeen-en-kijk-in-de-vegte-krijgt-tv-show-op-npo-1~a164c485/)
-  > Jan-Willem Roodbeen en Jeroen Kijk in de Vegte krijgen een televisieprogramma op NPO 1. In Jan-Willem ruimt op! blikken zij elke vrijdagavond samen...
+- [LIVE Q&A: stel hier je vraag over de oorlog in het Midden-Oosten](https://www.ad.nl/praat-mee/live-qena-stel-hier-je-vraag-over-de-oorlog-in-het-midden-oosten~ac136173/)
+  > De oorlog in het Midden-Oosten raakt ons allemaal. Sinds Amerika en Israël de hoogste leider van Iran hebben uitgeschakeld, zijn er bij...
+- [Mannen in grote steden laten zich te weinig controleren op darmkanker, fonds start campagne: ‘Anders ben je te laat’](https://www.ad.nl/binnenland/mannen-in-grote-steden-laten-zich-te-weinig-controleren-op-darmkanker-fonds-start-campagne-anders-ben-je-te-laat~a7066645/)
+  > Mannen in de grote steden moeten zich vaker laten controleren op darmkanker, vindt het MDL Fonds. De deelname aan het bevolkingsonderzoek naar de...
+- [Praat mee: vlees minderen, ik kan er niet aan wennen](https://www.ad.nl/praat-mee/praat-mee-vlees-minderen-ik-kan-er-niet-aan-wennen~a0736030/)
+  > Consumenten die veel vlees eten, krijgen een zachter duwtje om daarmee te minderen. De organisatie van de Nationale Week Zonder Vlees kiest voor de...
+- [Deskundige legt uit waarom het níét dom is dat 69-jarige in babbeltruc trapt en 322.800 euro kwijtraakt](https://www.ad.nl/binnenland/deskundige-legt-uit-waarom-het-niet-dom-is-dat-69-jarige-in-babbeltruc-trapt-en-322-800-euro-kwijtraakt~a2005fd3/)
+  > Een 69-jarige Nijmegenaar ging het afgelopen half jaar maar liefst 89 keer naar een pinautomaat om telkens duizenden euro’s aan contant geld op te...
+- [Rutte reageert op Iraanse raket die op Navo-basis in Turkije werd afgevuurd: ‘We zijn op onze hoede’](https://www.ad.nl/buitenland/rutte-reageert-op-iraanse-raket-die-op-navo-basis-in-turkije-werd-afgevuurd-we-zijn-op-onze-hoede~a1b091c2/)
+  > De Iraanse raket die op weg naar Turkije uit de lucht werd geschoten, zou ‘mogelijk Amerikaanse belangen in Turkije raken’. Dat zegt Navo-topman Mark...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Het paniekboek kan weer uit de kast](https://fd.nl/financiele-markten/1588242/het-paniekboek-kan-weer-uit-de-kast)
+  > Wat staat er op pagina 1 van het paniekboek? ‘Doe niets.’ Op lange termijn waait het wel weer over. Alle paniekmomenten waren mooie koopmomenten,...
+- [China verlaagt groeidoel en zet zwaar in op technologie](https://fd.nl/economie/1588158/china-zet-zwaar-in-op-technologie-en-verlaagt-groeidoel)
+  > Peking zet voor dit jaar in op een groeidoel voor de economie van 4,5 tot 5%. Dat is het laagste groeidoel van China in 35 jaar. Vorig jaar werd nog...
 - [Herstel van vak- en publieksbeurzen is weer voorbij](https://fd.nl/bedrijfsleven/1588157/herstel-van-vak-en-publieksbeurzen-is-weer-voorbij)
   > Na de coronajaren krabbelden vak- en publieksbeurzen weer op, maar afgelopen jaar kromp de markt weer.
-- [‘Europa heeft industriepolitiek nodig, geen Instagram-politiek’](https://fd.nl/bedrijfsleven/1587915/europa-heeft-industriepolitiek-nodig-geen-instagram-politiek)
+- [Duitse lithiumproducent hekelt Brusselse ‘Instagram-politiek’](https://fd.nl/bedrijfsleven/1587915/europa-heeft-industriepolitiek-nodig-geen-instagram-politiek)
   > Twee jaar ‘knutselde’ AMG Critical Materials in het Duitse Bitterfeld aan zijn lithiumfabriek. ‘Wij zijn de enigen die leveren, de anderen doen dat...
-- [Boskalis voorziet moeizamer 2026 door geopolitieke spanningen](https://fd.nl/bedrijfsleven/1588239/boskalis-voorziet-moeizamer-2026-door-geopolitieke-spanningen)
-  > De oorlog in het Midden-Oosten, handelsbeperkende maatregelen en stijgende kosten hebben negatieve gevolgen voor de investeringsbereidheid.
-- [‘Made in China’ is nu een pre](https://fd.nl/samenleving/1588029/made-in-china-is-nu-een-pre)
-  > Chinese automakers hebben technisch goede kaarten in handen om het de gevestigde merken lastig te maken. Maar kan de Chinese auto de Europese harten...
-- [Specerijenhandel Acomo boekt recordwinst in 2025](https://fd.nl/bedrijfsleven/1588238/specerijenhandel-acomo-boekt-recordwinst-in-2025)
-  > Acomo stelt een dividend voor van €1,40 per aandeel. Dat is meer dan de €1,25 die over de winst van 2024 werd uitgekeerd.
+- [Topman Boskalis: ‘De geopolitieke spanningen raken ons wereldwijd’](https://fd.nl/bedrijfsleven/1588239/boskalis-voorziet-moeizamer-2026-door-geopolitieke-spanningen)
+  > Door de oorlog in het Midden-Oosten, handelsbeperkende maatregelen en stijgende kosten neemt de investeringsbereidheid af.
 
 ### Meest gelezen
 
