@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-03-2026 om 21:40*
+*Laatst bijgewerkt: 05-03-2026 om 22:37*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Hulporganisatie voor drugsverslaafden stopt, na dichtdraaien subsidiekraan](https://nos.nl/l/2605108)
+  > Stichting Mainline stopt er na 36 jaar mee. De stichting zette zich in om zwaar verslaafde drugsgebruikers te helpen,  maar is nu genoodzaakt te...
 - [Een na laatste wethouder Lelystad stapt ook op na onrust over jeugdzorg](https://nos.nl/l/2605101)
   > Piet van Dijk stapt op als wethouder van Lelystad. Hij is de derde van de vier wethouders die sneuvelt vanwege de onrust bij de gemeentelijke...
 - [Gerenoveerde Poldertoren Emmeloord staat weer fier overeind](https://nos.nl/l/2605097)
@@ -16,8 +18,6 @@
   > Binnen de BBB is groot verzet ontstaan tegen de koers van de partij en het besluit om Mona Keijzer als partijleider af te wijzen. Een groep van...
 - [‘Vegaburger’ mag naam houden, maar 'vegetarische steak' niet](https://nos.nl/l/2605085)
   > Vegaburgers hoeven geen nieuwe naam te krijgen. Maar verwijzingen naar dieren of onderdelen van dieren mogen straks niet meer gebruikt worden voor...
-- [Komend weekend lente, maar niet zo zonnig door Saharazand](https://nos.nl/l/2605083)
-  > Het blijft de komende dagen extreem zacht lenteweer, maar het blijft niet zo strakblauw als vandaag. Er komen meer sluierwolken onze kant op en ook...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zo laat begint Max Verstappen vannacht aan nieuw F1-seizoen](https://www.ad.nl/formule-1/zo-laat-begint-max-verstappen-vannacht-aan-nieuw-f1-seizoen~a71841049/)
+- [Marokko moet op zoek: succestrainer Walid Regragui stapt vlak voor WK op](https://www.ad.nl/voetbal/marokko-moet-op-zoek-succestrainer-walid-regragui-stapt-vlak-voor-wk-op~ae2b845e/)
+  > In aanloop naar het WK-voetbal is de Marokkaanse bondscoach Walid Regragui opgestapt. Dat maakte de succestrainer zelf bekend op sociale media....
+- [Wéér zit een wissel Joep Wennemars in de weg: ‘Dit is een ondenkbaar scenario’](https://www.ad.nl/schaatsen/weer-zit-een-wissel-joep-wennemars-in-de-weg-dit-is-een-ondenkbaar-scenario~a85c5ccb/)
+  > Joep Wennemars kon ook tijdens de WK sprint niet zijn ideale race rijden. Wéér zat een wissel hem in de weg. Nu moest Wennemars landgenoot Jenning de...
+- [Femke Kok en Jenning de Boo ruim bovenaan na eerste dag WK sprint](https://www.ad.nl/schaatsen/femke-kok-en-jenning-de-boo-ruim-bovenaan-na-eerste-dag-wk-sprint~ac2d983e/)
+  > Wie dacht dat het schaatsseizoen er na de Olympische Spelen wel zo’n beetje op zou zitten, heeft het mis. Komend weekend wordt in Thialf bij zowel de...
+- [LIVE Premier League Darts | Michael van Gerwen en Gian van Veen zien voordeel in vroege uitschakeling: ‘Nu lig ik niet pas om drie uur op m’n nest’](https://www.ad.nl/darts/live-premier-league-darts-michael-van-gerwen-en-gian-van-veen-zien-voordeel-in-vroege-uitschakeling-nu-lig-ik-niet-pas-om-drie-uur-op-mn-nest~ae47bd70/)
+  > De vijfde speelavond van de Premier League Darts is dramatisch afgelopen voor de Nederlandse darters. Michael van Gerwen verloor in de eerste partij...
+- [Wekker zetten voor start F1-seizoen: zo vroeg komt Max Verstappen in actie in Melbourne](https://www.ad.nl/formule-1/wekker-zetten-voor-start-f1-seizoen-zo-vroeg-komt-max-verstappen-in-actie-in-melbourne~a71841049/)
   > Het nieuwe Formule 1-seizoen gaat na zes testdagen in Bahrein nu echt beginnen. Max Verstappen hoopt met zijn nieuwe Red Bull Racing het...
-- [Europese landen steeds meer betrokken bij conflict Iran, Frankrijk versterkt steun aan Libanon](https://www.ad.nl/buitenland/europese-landen-steeds-meer-betrokken-bij-conflict-iran-frankrijk-versterkt-steun-aan-libanon~ac528ac3/)
-  > Europese landen raken steeds meer betrokken bij het conflict in het Midden-Oosten. Zo heeft Frankrijk laten weten de steun aan Libanon te versterken....
-- [Jenning de Boo klopt Jordan Stolz opnieuw en slaat geweldige slag in strijd om wereldtitel](https://www.ad.nl/schaatsen/jenning-de-boo-klopt-jordan-stolz-opnieuw-en-slaat-geweldige-slag-in-strijd-om-wereldtitel~af64fec2/)
-  > Jenning de Boo heeft reuzenstap gezet richting de wereldtitel sprint. De Nederlander was in Thialf zowel op de 500 als op de 1000 meter een klasse...
-- [Stadion stroomt al in rust leeg: Spurs op weg naar nieuwe afgang na rood Micky van de Ven](https://www.ad.nl/voetbal/stadion-stroomt-al-in-rust-leeg-spurs-op-weg-naar-nieuwe-afgang-na-rood-micky-van-de-ven~a8439f12/)
-  > Een nieuwe afgang dreigt voor Tottenham Hotspur: Crystal Palace stond al bij rust met 1-3 voor bij de gevallen topclub, waar Micky van de Ven met...
-- [Leugens in Zweden en dit koppel is zelfs getrouwd: zo kwam Winter vol liefde ten einde](https://www.ad.nl/show/leugens-in-zweden-en-dit-koppel-is-zelfs-getrouwd-zo-kwam-winter-vol-liefde-ten-einde~aca834ac/)
-  > De laatste aflevering van Winter vol liefde was er eentje met veel open eindjes. Hoe is het met Elsje en Gilbert afgelopen? En hoe eindigde de...
 
 ### Meest gelezen
 
