@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-03-2026 om 10:47*
+*Laatst bijgewerkt: 05-03-2026 om 11:37*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [NS-actie Voorburg levert 59 boetes op, ook man aangehouden met openstaande celstraf](https://nos.nl/l/2605008)
+- [Iran zegt Koerden in noordwesten aan te vallen, raketaanval op hoofdkwartier in Irak](https://nos.nl/l/2605017)
+  > Iran heeft Koerdische milities aangevallen die van plan waren de grens in het westen van het land over te steken. Dat zegt het Iraanse leger. Er zijn...
+- [Uniek VOC-glas uit 18e eeuw geveild in Goes: 'Overtrof mijn stoutste dromen'](https://nos.nl/l/2605014)
+  > In het Zeeuwse Goes is een zeldzaam VOC-glas uit de achttiende eeuw geveild. In december kwam een veilingmeester het kelkglas per toeval tegen...
+- [Meer treinreizigers, NS maakt eindelijk weer winst](https://nos.nl/l/2605013)
+  > NS heeft vorig jaar voor het eerst in lange tijd weer winst gemaakt. Dat kwam vooral omdat meer mensen in 2025 de trein namen. Daardoor boekte NS...
+- [NS-actie Voorburg levert 59 boetes op, ook aanhouding voor openstaande celstraf](https://nos.nl/l/2605008)
   > Bij een grootschalige controle op treinkaartjes heeft de NS 59 zwartrijders beboet. De vervoerder controleerde gisteren tussen 16.30 en 21.45 uur...
 - [Toezichthouder ACM gaat energieleveranciers strenger controleren](https://nos.nl/l/2605007)
   > De Autoriteit Consument en Markt (ACM) gaat energiebedrijven intensiever controleren of zij zich wel aan de regels houden. De toezichthouder heeft de...
-- [13 jaar cel voor mesaanval bij Holocaustmonument in Berlijn](https://nos.nl/l/2605005)
-  > In Berlijn is een Syrische man veroordeeld tot 13 jaar cel omdat hij vorig jaar iemand had neergestoken met een mes bij het Holocaustmonument in...
-- [Politieke discussie over Gronings gas laait weer op door oorlog Iran](https://nos.nl/l/2605004)
-  > De oorlog in Iran leidt ertoe dat de politieke discussie over gaswinning in Groningen en het openhouden van de gasputten van het Groningenveld weer...
-- [Kopen niet altijd voordeliger qua woonlasten dan huren](https://nos.nl/l/2604992)
-  > In tegenstelling tot wat vaak wordt gedacht zijn de woonlasten van jonge kopers niet altijd heel veel lager dan die van jonge huurders. Dat blijkt...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Q&A: stel hier je vraag over de oorlog in het Midden-Oosten](https://www.ad.nl/praat-mee/live-qena-stel-hier-je-vraag-over-de-oorlog-in-het-midden-oosten~ac136173/)
-  > De oorlog in het Midden-Oosten raakt ons allemaal. Sinds Amerika en Israël de hoogste leider van Iran hebben uitgeschakeld, zijn er bij...
-- [Mannen in grote steden laten zich te weinig controleren op darmkanker, fonds start campagne: ‘Anders ben je te laat’](https://www.ad.nl/binnenland/mannen-in-grote-steden-laten-zich-te-weinig-controleren-op-darmkanker-fonds-start-campagne-anders-ben-je-te-laat~a7066645/)
-  > Mannen in de grote steden moeten zich vaker laten controleren op darmkanker, vindt het MDL Fonds. De deelname aan het bevolkingsonderzoek naar de...
-- [Praat mee: vlees minderen, ik kan er niet aan wennen](https://www.ad.nl/praat-mee/praat-mee-vlees-minderen-ik-kan-er-niet-aan-wennen~a0736030/)
-  > Consumenten die veel vlees eten, krijgen een zachter duwtje om daarmee te minderen. De organisatie van de Nationale Week Zonder Vlees kiest voor de...
-- [Deskundige legt uit waarom het níét dom is dat 69-jarige in babbeltruc trapt en 322.800 euro kwijtraakt](https://www.ad.nl/binnenland/deskundige-legt-uit-waarom-het-niet-dom-is-dat-69-jarige-in-babbeltruc-trapt-en-322-800-euro-kwijtraakt~a2005fd3/)
-  > Een 69-jarige Nijmegenaar ging het afgelopen half jaar maar liefst 89 keer naar een pinautomaat om telkens duizenden euro’s aan contant geld op te...
-- [Rutte reageert op Iraanse raket die op Navo-basis in Turkije werd afgevuurd: ‘We zijn op onze hoede’](https://www.ad.nl/buitenland/rutte-reageert-op-iraanse-raket-die-op-navo-basis-in-turkije-werd-afgevuurd-we-zijn-op-onze-hoede~a1b091c2/)
-  > De Iraanse raket die op weg naar Turkije uit de lucht werd geschoten, zou ‘mogelijk Amerikaanse belangen in Turkije raken’. Dat zegt Navo-topman Mark...
+- [Manchester United-talent en zoon van voormalig topspeler geschorst na homofobe belediging](https://www.ad.nl/voetbal/manchester-united-talent-en-zoon-van-voormalig-topspeler-geschorst-na-homofobe-belediging~ae1c3f64/)
+  > Manchester United-talent Jack Fletcher (18) heeft van de Engelse voetbalbond een schorsing van zes wedstrijden gekregen na homofobe beledigingen in...
+- [Hulp voor gestrande Nederlanders in Midden-Oosten komt op gang: vluchten uit Dubai, Oman en Egypte](https://www.ad.nl/buitenland/hulp-voor-gestrande-nederlanders-in-midden-oosten-komt-op-gang-vluchten-uit-dubai-oman-en-egypte~a89df572/)
+  > De hulp voor Nederlandse reizigers die door de oorlog in het Midden-Oosten zijn gestrand, komt op gang. Qatar Airways voert donderdag een...
+- [NS boekt voor het eerst sinds 2019 weer winst, ‘maar nog steeds onvoldoende om financieel gezond te zijn’](https://www.ad.nl/binnenland/ns-boekt-voor-het-eerst-sinds-2019-weer-winst-maar-nog-steeds-onvoldoende-om-financieel-gezond-te-zijn~a03919ae/)
+  > De Nederlandse Spoorwegen (NS) hebben vorig jaar voor het eerst sinds 2019 weer winst gemaakt met het vervoeren van passagiers. De spoorvervoerder...
+- [Boer Geert raakt volledig verlamd na fietsongeval in Portugal, vriendin Lenie waakt bij zijn bed](https://www.ad.nl/show/boer-geert-raakt-volledig-verlamd-na-fietsongeval-in-portugal-vriendin-lenie-waakt-bij-zijn-bed~a22d6f3b/)
+  > Boer Geert Krops, die in 2014 meedeed aan Boer zoekt Vrouw, heeft een heftig ongeluk gehad tijdens zijn vakantie in Portugal. Geert, die na een val...
+- [Geen schaatser flikte ooit wat Jordan Stolz dit weekeinde in Thialf wil doen: ‘Een gestoord plan’](https://www.ad.nl/schaatsen/geen-schaatser-flikte-ooit-wat-jordan-stolz-dit-weekeinde-in-thialf-wil-doen-een-gestoord-plan~acaa141d/)
+  > Geen schaatser die er ooit in slaagde, maar Jordan Stolz wil binnen vier dagen tijd het WK sprint en het WK allround combineren én winnen. „Ik kan me...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Het paniekboek kan weer uit de kast](https://fd.nl/financiele-markten/1588242/het-paniekboek-kan-weer-uit-de-kast)
-  > Wat staat er op pagina 1 van het paniekboek? ‘Doe niets.’ Op lange termijn waait het wel weer over. Alle paniekmomenten waren mooie koopmomenten,...
-- [China verlaagt groeidoel en zet zwaar in op technologie](https://fd.nl/economie/1588158/china-zet-zwaar-in-op-technologie-en-verlaagt-groeidoel)
-  > Peking zet voor dit jaar in op een groeidoel voor de economie van 4,5 tot 5%. Dat is het laagste groeidoel van China in 35 jaar. Vorig jaar werd nog...
-- [Herstel van vak- en publieksbeurzen is weer voorbij](https://fd.nl/bedrijfsleven/1588157/herstel-van-vak-en-publieksbeurzen-is-weer-voorbij)
-  > Na de coronajaren krabbelden vak- en publieksbeurzen weer op, maar afgelopen jaar kromp de markt weer.
-- [Duitse lithiumproducent hekelt Brusselse ‘Instagram-politiek’](https://fd.nl/bedrijfsleven/1587915/europa-heeft-industriepolitiek-nodig-geen-instagram-politiek)
-  > Twee jaar ‘knutselde’ AMG Critical Materials in het Duitse Bitterfeld aan zijn lithiumfabriek. ‘Wij zijn de enigen die leveren, de anderen doen dat...
-- [Topman Boskalis: ‘De geopolitieke spanningen raken ons wereldwijd’](https://fd.nl/bedrijfsleven/1588239/boskalis-voorziet-moeizamer-2026-door-geopolitieke-spanningen)
-  > Door de oorlog in het Midden-Oosten, handelsbeperkende maatregelen en stijgende kosten neemt de investeringsbereidheid af.
+- [Meer treinreizigers en duurdere kaartjes: NS ziet broos herstel](https://fd.nl/bedrijfsleven/1588241/meer-treinreizigers-en-duurdere-kaartjes-ns-ziet-broos-herstel)
+  > Ondanks de eerste winst in jaren, noemt president-directeur Koolmees de resultaten ‘onvoldoende’. De NS gaat nog eens €200 mln bezuinigen.
+- [Radicale omwenteling in Iran is niet vanzelfsprekend](https://fd.nl/opinie/1588115/radicale-omwenteling-in-iran-is-niet-vanzelfsprekend)
+  > Religieuze autoriteit, militaire macht en economische belangen zijn in Iran nog sterk verweven. Wisseling van de Opperste Leider betekent daarom nog...
+- [Dario Amodei: de man die nee durfde te zeggen tegen Trump](https://fd.nl/tech-en-innovatie/1588130/dario-amodei-de-man-die-nee-durfde-te-zeggen-tegen-trump)
+  > De ceo van Anthropic lijkt bereid om voor zijn principes de toekomst van zijn AI-bedrijf op het spel te zetten. Dat maakt hem voor sommigen tot een...
+- [JA21 wil Gronings gasveld openhouden](https://fd.nl/politiek/1588244/ja21-wil-gronings-gasveld-openhouden)
+  > De oppositiepartij wil voorkomen dat gasputten definitief worden afgesloten nu prijzen omhoog schieten als gevolg van de oorlog met Iran.
+- [Van afwijzing naar omwijzing](https://fd.nl/samenleving/1587968/van-afwijzing-naar-omwijzing)
+  > De afgewezen mens draait de zaken graag om, ziet Joris van Os. Het ligt aan de ander en desnoods aan de hele wereld.
 
 ### Meest gelezen
 
