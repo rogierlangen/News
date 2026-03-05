@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-03-2026 om 08:51*
+*Laatst bijgewerkt: 05-03-2026 om 09:51*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Crisiskabinet zoekt houvast: wil de échte buitenlandminister nu opstaan?](https://www.ad.nl/politiek/crisiskabinet-zoekt-houvast-wil-de-echte-buitenlandminister-nu-opstaan~a9a0ddf1/)
-  > In de crisis rond Iran zoeken nieuwe bewindspersonen naar hun rol. Minister Tom Berendsen (CDA) van Buitenlandse Zaken krijgt concurrentie uit zijn...
-- [Qatar Airways vliegt gestrande reizigers in Oman terug naar Schiphol en andere Europese luchthavens](https://www.ad.nl/buitenland/qatar-airways-vliegt-gestrande-reizigers-in-oman-terug-naar-schiphol-en-andere-europese-luchthavens~a89df572/)
-  > Qatar Airways zal vanaf donderdag een beperkt aantal repatriëringsvluchten vanuit Muscat (Oman) en Riyad (Saoedi-Arabië) uitvoeren, waaronder naar...
-- [Ernstige skibotsing in Tirol: Nederlandse (55) zwaargewond achtergelaten, dader gezocht](https://www.ad.nl/buitenland/ernstige-skibotsing-in-tirol-nederlandse-55-zwaargewond-achtergelaten-dader-gezocht~aa17e0bd/)
-  > Een wintersportdag in Oostenrijk is voor een 55-jarige Nederlandse vrouw slecht afgelopen. Na een harde botsing op de piste bleef zij zwaargewond...
-- [Dit gebeurde vannacht: Koerdische strijders mengen zich in oorlog in Iran, Teheran opnieuw zwaar onder vuur](https://www.ad.nl/buitenland/dit-gebeurde-vannacht-koerdische-strijders-mengen-zich-in-oorlog-in-iran-teheran-opnieuw-zwaar-onder-vuur~ae9891f2/)
-  > Er zijn steeds meer aanwijzingen dat de Koerden zich in de oorlog tegen Iran gaan mengen. Duizenden Iraans-Koerdische strijders in Irak staan klaar...
-- [Expeditie Robinson-kandidaten checkten na elke aflevering hoe het met Amijé ging: ‘Haatreacties overvielen me enorm’](https://www.ad.nl/show/expeditie-robinson-kandidaten-checkten-na-elke-aflevering-hoe-het-met-amije-ging-haatreacties-overvielen-me-enorm~a6b994dc/)
-  > Amijé Roos van der Laan (28) zat op een roze wolk toen ze thuiskwam van Expeditie Robinson, maar dat veranderde al snel toen het survivalprogramma...
+- [Dafne Schippers is hard voor coaches en begeleiders, maar hoe blikken zij terug? ‘Dat ze zo diep had gezeten, wist ik niet’](https://www.ad.nl/andere-sporten/dafne-schippers-is-hard-voor-coaches-en-begeleiders-maar-hoe-blikken-zij-terug-dat-ze-zo-diep-had-gezeten-wist-ik-niet~ab031159/)
+  > In haar biografie spreekt Dafne Schippers (33) over haar succes, de worsteling in haar carrière en diepgewortelde eenzaamheid. Schippers is hard voor...
+- [De terrassen stromen weer vol, hoe zit het met de prijzen dit jaar?](https://www.ad.nl/economie/de-terrassen-stromen-weer-vol-hoe-zit-het-met-de-prijzen-dit-jaar~a260cbf3/)
+  > De terrassen stromen weer vol nu de zon zich van haar beste kant laat zien. Heerlijk genieten van een cappuccino of een witte wijn terwijl de zon je...
+- [Bij deze benzinestations tank je nog tegen ‘vooroorlogse’ prijzen](https://www.ad.nl/auto/bij-deze-benzinestations-tank-je-nog-tegen-vooroorlogse-prijzen~ad9692e1/)
+  > Door de onrust in het Midden-Oosten zijn de prijzen aan de pomp omhooggeschoten. Bij het duurste tankstation betaal je voor een liter Euro95-benzine...
+- [Roep in Kamer om gasvelden Groningen niet definitief te sluiten zwelt aan](https://www.ad.nl/politiek/roep-in-kamer-om-gasvelden-groningen-niet-definitief-te-sluiten-zwelt-aan~a7a0ba8a/)
+  > In de Tweede Kamer groeit de steun om de gasputten in Groningen tóch als ‘strategische noodvoorraad’ open te houden, nu de energieprijzen zo hard...
+- [Radio 2-ochtendduo Roodbeen en Kijk in de Vegte krijgt tv-show op NPO 1](https://www.ad.nl/show/radio-2-ochtendduo-roodbeen-en-kijk-in-de-vegte-krijgt-tv-show-op-npo-1~a164c485/)
+  > Jan-Willem Roodbeen en Jeroen Kijk in de Vegte krijgen een televisieprogramma op NPO 1. In Jan-Willem ruimt op! blikken zij elke vrijdagavond samen...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Herstel van vak- en publieksbeurzen is weer voorbij](https://fd.nl/bedrijfsleven/1588157/herstel-van-vak-en-publieksbeurzen-is-weer-voorbij)
+  > Na de coronajaren krabbelden vak- en publieksbeurzen weer op, maar afgelopen jaar kromp de markt weer.
+- [‘Europa heeft industriepolitiek nodig, geen Instagram-politiek’](https://fd.nl/bedrijfsleven/1587915/europa-heeft-industriepolitiek-nodig-geen-instagram-politiek)
+  > Twee jaar ‘knutselde’ AMG Critical Materials in het Duitse Bitterfeld aan zijn lithiumfabriek. ‘Wij zijn de enigen die leveren, de anderen doen dat...
 - [Boskalis voorziet moeizamer 2026 door geopolitieke spanningen](https://fd.nl/bedrijfsleven/1588239/boskalis-voorziet-moeizamer-2026-door-geopolitieke-spanningen)
   > De oorlog in het Midden-Oosten, handelsbeperkende maatregelen en stijgende kosten hebben negatieve gevolgen voor de investeringsbereidheid.
 - [‘Made in China’ is nu een pre](https://fd.nl/samenleving/1588029/made-in-china-is-nu-een-pre)
   > Chinese automakers hebben technisch goede kaarten in handen om het de gevestigde merken lastig te maken. Maar kan de Chinese auto de Europese harten...
 - [Specerijenhandel Acomo boekt recordwinst in 2025](https://fd.nl/bedrijfsleven/1588238/specerijenhandel-acomo-boekt-recordwinst-in-2025)
   > Acomo stelt een dividend voor van €1,40 per aandeel. Dat is meer dan de €1,25 die over de winst van 2024 werd uitgekeerd.
-- [Harold Goddijn vertrekt als ceo van TomTom](https://fd.nl/bedrijfsleven/1588156/harold-goddijn-vertrekt-als-ceo-van-tomtom)
-  > De medeoprichter van het navigatiebedrijf neemt op 16 april afscheid. Ook zijn echtgenote en medeoprichter Corinne Vigreux vertrekt uit de leiding....
-- [TKH rekent na zwak eerste kwartaal op verder herstel](https://fd.nl/bedrijfsleven/1588237/tkh-rekent-na-zwak-eerste-kwartaal-op-verder-herstel)
-  > Op de Amsterdamse beurs staat het aandeel kort na opening ruim 9% in de min.
 
 ### Meest gelezen
 
