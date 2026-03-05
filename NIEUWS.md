@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-03-2026 om 15:54*
+*Laatst bijgewerkt: 05-03-2026 om 18:08*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Lagere straf voor Utrechtse arts die haar baby wilde doden](https://nos.nl/l/2605049)
-  > De Utrechtse arts Sarah V. (39) krijgt in hoger beroep een gevangenisstraf van 8 jaar. Ze is veroordeeld voor poging tot moord op haar pasgeboren...
-- [Podcast De Dag: de hack bij Odido, het grootste datalek ooit](https://nos.nl/l/2605048)
-  > De hack bij Odido houdt de gemoederen al drie weken bezig. Gegevens van 6,5 miljoen klanten en oud-klanten van het telecombedrijf verschenen op het...
-- [Minister: gaskraan Groningen blijft dicht ondanks oorlog Iran](https://nos.nl/l/2605043)
-  > De gasputten in het Groningenveld blijven dicht. Dat zei minister Van Veldhoven van Klimaat en Groene Groei (D66), die over de Nederlandse...
-- [Meer dan 100 foute Nederlandse vlindernamen gewijzigd](https://nos.nl/l/2605042)
-  > Ruim honderd Nederlandse vlindernamen zijn gewijzigd omdat ze verwarrend waren, meldt de Vlinderstichting. De namen van deze vlinders kwamen niet...
-- [Kan de Iraanse bevolking de macht overnemen? Verzet is versplinterd en verdeeld](https://nos.nl/l/2605041)
-  > Na de liquidatie van opperste leider Khamenei riep president Trump de Iraanse bevolking op in opstand te komen. "Wanneer wij klaar zijn met de...
+- [Dieselprijs richting record, 'gaat ons allemaal pijn doen'](https://nos.nl/l/2605069)
+  > Automobilisten, schippers en piloten zagen afgelopen dagen de prijs voor hun brandstof flink oplopen. Diesel aan de pomp nadert zelfs een...
+- [Verdachte Est van mislukte overval juwelier Lisse wil het liefst levenslang](https://nos.nl/l/2605068)
+  > De 53-jarige verdachte van een mislukte overval op een juwelier in Lisse wil de rest van zijn leven achter de tralies doorbrengen. De man, die nog...
+- [Inwoners Midden-Groningen in opstand tegen aanleg nieuwe zonneparken](https://nos.nl/l/2605066)
+  > In de gemeente Midden-Groningen is fel protest tegen de aanleg van twee zonneparken. Sinds 2019 zijn er al zeven aangelegd. De inwoners vinden dat...
+- [Politie Limburg zet teamchef op non-actief om grensoverschrijdende opmerkingen](https://nos.nl/l/2605064)
+  > De politie in Limburg heeft een teamchef op non-actief gesteld na meldingen over seksueel grensoverschrijdend gedrag en racisme. Er loopt een...
+- [Dag 6 van de oorlog: Israël beveelt massaevacuatie in Libanon en Iran valt Koerden aan](https://nos.nl/l/2605061)
+  > Op dag 6 van de oorlog in het Midden-Oosten zijn de VS en Israël doorgegaan met aanvallen op Iran en slaat Israël in Libanon harder toe in de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van opmerkelijk bericht van de Beckhams tot afscheid Kris Kross Amsterdam: test je showbizzkennis](https://www.ad.nl/show/van-opmerkelijk-bericht-van-de-beckhams-tot-afscheid-kris-kross-amsterdam-test-je-showbizzkennis~a4447d98/)
-  > Deze week zochten de Beckhams weer contact met hun vervreemde zoon Brooklyn en verliet een lid de populaire formatie Kris Kross Amsterdam. Maar er...
-- [Lando Norris twijfelt nog aan pure snelheid McLaren: 'Niet de zekerheid dat we gaan winnen'](https://www.ad.nl/formule-1/lando-norris-twijfelt-nog-aan-pure-snelheid-mclaren-niet-de-zekerheid-dat-we-gaan-winnen~ade263b12/)
-  > Het eerste Formule 1-weekend van het seizoen staat voor de deur. Max Verstappen en zijn collega’s zijn in Melbourne voor de Grand Prix van Australië....
-- [Hoe kwetsbare bewoners jarenlang werden vernederd door zorgpersoneel: ‘Wangedrag niet altijd aangepakt’](https://www.ad.nl/binnenland/hoe-kwetsbare-bewoners-jarenlang-werden-vernederd-door-zorgpersoneel-wangedrag-niet-altijd-aangepakt~a6ad3128/)
-  > Vernederende filmpjes, gedeeld in een besloten Snapchatgroep. Behandelplannen die niet werden uitgevoerd. Signalen van mishandeling. Medewerkers die...
-- [Haar man ontdekt na haar overlijden het nieuwe testament en is not amused](https://www.ad.nl/geld/haar-man-ontdekt-na-haar-overlijden-het-nieuwe-testament-en-is-not-amused~a598de59/)
-  > Tijdens de ziekte van moeder krijgt vader een relatie met een andere vrouw en is hij van plan met haar te trouwen. Daarom wijzigt moeder nog snel...
-- [Britney Spears gearresteerd voor rijden onder invloed](https://www.ad.nl/show/britney-spears-gearresteerd-voor-rijden-onder-invloed~a3024e48/)
-  > Britney Spears (44) is woensdag gearresteerd op verdenking van rijden onder invloed. Dat meldt onder meer entertainmentsite TMZ op basis van...
+- [COA kan azc’s niet sluiten: duizenden asielzoekers moeten weg, maar kunnen nergens heen](https://www.ad.nl/binnenland/coa-kan-azcs-niet-sluiten-duizenden-asielzoekers-moeten-weg-maar-kunnen-nergens-heen~a6f9d1e6/)
+  > Duizenden asielzoekers moeten de komende maanden hun opvanglocatie uit. Maar het het Centraal Orgaan opvang asielzoekers (COA) heeft geen plek voor...
+- [Vrouwen verdienen dezelfde aandacht voor beter bevolkingsonderzoek als mannen](https://www.ad.nl/commentaar/vrouwen-verdienen-dezelfde-aandacht-voor-beter-bevolkingsonderzoek-als-mannen~a20a7d43/)
+  > Het aantal mannen dat meedoet aan het bevolkingsonderzoek darmkanker blijft achter. Daarmee doen zij meer dan alleen zichzelf tekort, schrijft onze...
+- [Politiemedewerkers in zaak-Lisa staan onterecht op lijst korpsleiding: ‘Harde toon van minister raakt ons’](https://www.ad.nl/binnenland/politiemedewerkers-in-zaak-lisa-staan-onterecht-op-lijst-korpsleiding-harde-toon-van-minister-raakt-ons~a2b3fd9e/)
+  > Een overgrote meerderheid van de ongeveer vijfhonderd medewerkers van de Amsterdamse politie-eenheid die informatie hebben geraadpleegd over de moord...
+- [Dit dikke, slome papegaaitje wordt met uitsterven bedreigd, maar nu komt er opeens een babyboom](https://www.ad.nl/buitenland/dit-dikke-slome-papegaaitje-wordt-met-uitsterven-bedreigd-maar-nu-komt-er-opeens-een-babyboom~a2f1905e/)
+  > Hij is eigenlijk te zwaar, te langzaam en te aantrekkelijk voor roofdieren om te overleven in het wild, maar toch lukt het de kakapo (een papegaai)...
+- [WK sprint van start met 500 meter: Schulting, Fledderus en topfavoriete Femke Kok in actie](https://www.ad.nl/schaatsen/wk-sprint-van-start-met-500-meter-schulting-fledderus-en-topfavoriete-femke-kok-in-actie~af64fec2/)
+  > Het schaatsseizoen wordt afgesloten in Heerenveen met het WK sprint en WK allround. Vandaag en morgen strijden de sprinters om de wereldtitel. In...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Geen klap, maar een kantelpunt: hoe vrouwen de financiële sector veranderden](https://fd.nl/bedrijfsleven/1587096/geen-klap-maar-een-kantelpunt-hoe-vrouwen-de-financiele-sector-veranderden)
-  > Vrouwen veroverden in de afgelopen vijftig jaar langzaam een plek in een historisch mannenbolwerk, al blijft de loonkloof met 21,7% hardnekkig.
-- [ASML casht alvast de toekomst](https://fd.nl/financiele-markten/1588234/asml-casht-alvast-de-toekomst)
-  > De chipmachinefabrikant haalt zijn toekomstige kasstroom naar voren om de huidige expansie te financieren en aandelen in te kopen.
-- [Bouwer Van Wijnen boekt fors hogere winst](https://fd.nl/bedrijfsleven/1588164/bouwer-van-wijnen-boekt-fors-hogere-winst)
-  > Het bedrijf gaat een mogelijke samenwerking met het Nederlandse deel van VolkerWessels onderzoeken.
-- [Niet alleen de auto-industrie in Baden-Württemberg heeft panne, de deelstaat ook](https://fd.nl/politiek/1587255/niet-alleen-de-auto-industrie-in-baden-wurttemberg-heeft-panne-de-deelstaat-ook)
-  > Economische onzekerheid lijkt anti-immigratiepartij AfD in de kaart te spelen bij verkiezingen in de deelstaat, die sterk afhankelijk is van export.
-- [China komt op als wereldmacht. Maar wat als Chinese Gen Z’ers niet meer willen?](https://fd.nl/opinie/1587829/china-komt-op-als-wereldmacht-maar-wat-als-hun-gen-z-niet-wil)
-  > Voor jongere generaties Chinezen overtuigt belofte van vooruitgang niet langer. Steeds vaker onttrekken zij zich stilletjes aan de ambities van de...
+- [Ondernemers opgelet: nieuwe uitzendregels gelden ook voor timmerman op de hoek](https://fd.nl/economie/1588279/ondernemers-opgelet-nieuwe-uitzendregels-gelden-ook-voor-timmerman-op-de-hoek)
+  > De markt voor het uitlenen van personeel gaat ingrijpend veranderen. Dat raakt veel bedrijven, maar zijn die wel op de hoogte? ‘Dat wordt nog best...
+- [Azerbeidzjan en Koerden zetten oorlog Iran verder op scherp](https://fd.nl/politiek/1588278/azerbeidzjan-en-koerden-zetten-oorlog-iran-verder-op-scherp)
+  > Na geruchten over Koerdische betrokkenheid bij de strijd tussen VS, Israël en Iran, werd op woensdag ook Azerbeidzjan doelwit van een droneaanval....
+- [Staatssecretaris blijft Arriva tegenhouden op noordelijk hoofdrailnet](https://fd.nl/bedrijfsleven/1588378/staatssecretaris-blijft-arriva-tegenhouden-op-noordelijk-hoofdrailnet)
+  > Arriva en het ministerie waren weer gedwongen te praten over de noordelijke lijnen door een uitspraak van het CBb. Maar de uitkomst is nu dezelfde...
+- [Forum-Kamerlid Gideon van Meijeren vrijgesproken van opruiing](https://fd.nl/financiele-markten/1588379/forum-kamerlidgideon-van-meijeren-vrijgesproken-van-opruiing)
+  > Het hof stelt dat Van Meijerens uitspraken ‘de strafrechtelijke grens opzoeken, maar niet hebben overschreden’.
+- [Door de hack kan Odido zijn beursgang voorlopig wel vergeten](https://fd.nl/bedrijfsleven/1588377/door-de-hack-kan-odido-zijn-beursgang-voorlopig-wel-vergeten)
+  > De grootste computerinbraak ooit in Nederland belemmert Odido’s toekomstige beursplannen en de schade aan de merknaam maakt het moeilijker om nieuwe...
 
 ### Meest gelezen
 
