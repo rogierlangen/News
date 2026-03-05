@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-03-2026 om 23:35*
+*Laatst bijgewerkt: 05-03-2026 om 02:31*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Duitse ten onrechte aangemerkt als rechtsextremist, verliest baan als docent](https://nos.nl/l/2604971)
+  > Een vrouw in Berlijn is haar baan kwijtgeraakt als docent op een hogeschool, omdat ze door een vergissing van de autoriteiten was aangemerkt als een...
+- [Kettingbotsing met vijf gewonden op A12 bij Babberich](https://nos.nl/l/2604970)
+  > Op de A12 bij Babberich, in Gelderland, is een kettingbotsing geweest. Daarbij waren vijf voertuigen betrokken. Drie mensen raakten gewond, onder wie...
 - [Meer grote bedrijven delen cijfers over man-vrouwverhouding in de top](https://nos.nl/l/2604960)
   > Er zitten weer iets meer vrouwen in het bestuur van grote bedrijven. Het aantal vrouwen in de raad van commissarissen stagneert juist. Dat blijkt uit...
 - [Vogelgriep in de Achterhoek, bijna 100.000 hennen geruimd](https://nos.nl/l/2604959)
   > Bij een pluimveebedrijf in Neede, in de Achterhoek, is vogelgriep vastgesteld. Ongeveer 97.450 hennen bij het bedrijf worden door de Nederlandse...
 - [Politie Amsterdam, Europol en FBI rollen online platform voor cybercriminelen op](https://nos.nl/l/2604958)
   > De politie Amsterdam heeft met onder meer Europol en de FBI een forum voor cybercriminelen offline gehaald. LeakBase had 142.000 geregistreerde...
-- [Mijn Congo stort opnieuw in na regenval, overheid meldt 200 doden](https://nos.nl/l/2604956)
-  > In het oosten van de Democratische Republiek Congo is een mijn ingestort. Het gaat om dezelfde mijn die vorige maand ook instortte. Volgens de...
-- [Amsterdammer (20) opgepakt voor aanslagen in Duitsland, ook vier anderen vast](https://nos.nl/l/2604955)
-  > Een 20-jarige man uit Amsterdam is opgepakt als hoofdverdachte voor een reeks aanslagen in Duitsland. Ook vier anderen zijn gearresteerd. De...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [De campagne Week Zonder Vlees was te ‘woke’: ‘Riep irritatie en agressie op’](https://www.ad.nl/binnenland/de-campagne-week-zonder-vlees-was-te-woke-riep-irritatie-en-agressie-op~a34a0bbd/)
+  > De Nationale Week Zonder Vlees wilde na acht jaar zelf af van het belerende toontje en het wijzende vingertje. Daarom is er nu de nieuwe campagne...
+- [Nieuwe Israëlische luchtaanvallen op zuiden Beiroet, Israël versoepelt beperkingen in eigen land](https://www.ad.nl/buitenland/nieuwe-israelische-luchtaanvallen-op-zuiden-beiroet-israel-versoepelt-beperkingen-in-eigen-land~ac528ac3/)
+  > Het Israëlische leger heeft in de nacht van woensdag op donderdag opnieuw luchtaanvallen uitgevoerd op het zuiden van de Libanese hoofdstad Beiroet....
+- [Voetbalpodcast | ‘Ik ben benieuwd wat de finale tussen AZ en NEC gaat betekenen voor de competitie’](https://www.ad.nl/voetbal/voetbalpodcast-ik-ben-benieuwd-wat-de-finale-tussen-az-en-nec-gaat-betekenen-voor-de-competitie~ac8603a9/)
+  > AZ mag zich opmaken voor de finale om de Eurojackpot KNVB Beker op zondag 19 april. De ploeg uit Alkmaar won thuis van Telstar. Die tweede halve...
+- [Lugubere vondst in VS: lichamen van twee kinderen aangetroffen in koffers](https://www.ad.nl/buitenland/lugubere-vondst-in-vs-lichamen-van-twee-kinderen-aangetroffen-in-koffers~a3c6ab11/)
+  > Na een tip van een voorbijganger die zijn hond aan het uitlaten was, heeft de politie van Cleveland, in de Amerikaanse staat Ohio, maandag een...
 - [Epstein-commissie laat Justitieminister Pam Bondi dagvaarden voor getuigenis](https://www.ad.nl/buitenland/epstein-commissie-laat-justitieminister-pam-bondi-dagvaarden-voor-getuigenis~ae67dd9c/)
   > Een commissie in het Amerikaanse Huis van Afgevaardigden heeft ermee ingestemd om minister van Justitie Pam Bondi te dagvaarden in verband met de...
-- [Arsenal zet belangrijke stap richting titel met nipte zege, concurrent City morst dure punten](https://www.ad.nl/voetbal/arsenal-zet-belangrijke-stap-richting-titel-met-nipte-zege-concurrent-city-morst-dure-punten~a4ea4745/)
-  > Een spannende Premier League-avond met mogelijk grote gevolgen voor de titelrace. Terwijl Arsenal op bezoek bij Brighton wegkwam met een moeizame 0-1...
-- [NEC en AZ naar de Kuip: wanneer is de finale van de KNVB-beker?](https://www.ad.nl/voetbal/nec-en-az-naar-de-kuip-wanneer-is-de-finale-van-de-knvb-beker~a802f322/)
-  > De finalisten van de Eurojackpot KNVB Beker zijn bekend. NEC en AZ gaan de strijd aan om die felbegeerde dennenappel. Wanneer is de eindstrijd en wat...
-- [Soap rondom nazischilderij Argentinië duurt voort, verlenging onderzoek](https://www.ad.nl/buitenland/soap-rondom-nazischilderij-argentinie-duurt-voort-verlenging-onderzoek~aeb13bfb/)
-  > Een opvallende ontwikkeling in de zaak om het inmiddels wereldberoemde schilderij Portret van een dame. De uitspraak zou in maart zijn, maar de...
-- [AZ in bekerfinale: Alkmaarders profiteren van eigen goals Telstar en treffen NEC in de Kuip](https://www.ad.nl/voetbal/az-in-bekerfinale-alkmaarders-profiteren-van-eigen-goals-telstar-en-treffen-nec-in-de-kuip~a840a058/)
-  > AZ heeft zich geplaatst voor de finale van de Eurojackpot KNVB Beker, waarin het op zondag 19 april in de Kuip gaat spelen tegen NEC. De ploeg van...
 
 ### Meest gelezen
 
