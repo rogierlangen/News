@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-03-2026 om 02:31*
+*Laatst bijgewerkt: 05-03-2026 om 04:47*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Nieuwe luchtaanvallen op zuiden van Beiroet, ook Israël weer onder vuur; explosies in Jeruzalem gehoord](https://www.ad.nl/buitenland/nieuwe-luchtaanvallen-op-zuiden-van-beiroet-ook-israel-weer-onder-vuur-explosies-in-jeruzalem-gehoord~ac528ac3/)
+  > Het Israëlische leger heeft in de nacht van woensdag op donderdag opnieuw luchtaanvallen uitgevoerd op het zuiden van de Libanese hoofdstad Beiroet....
+- [Lance Stroll vergelijkt auto Aston Martin met elektrische stoel: ‘Dit is het leven van een coureur’](https://www.ad.nl/formule-1/lance-stroll-vergelijkt-auto-aston-martin-met-elektrische-stoel-dit-is-het-leven-van-een-coureur~ade263b12/)
+  > Het eerste Formule 1-weekend van het seizoen staat voor de deur. Max Verstappen en zijn collega’s zijn in Melbourne voor de Grand Prix van Australië....
+- [Zorgen bij Aston Martin, Fernando Alonso vreest zelfs voor zenuwschade: ‘Er moet een oplossing komen’](https://www.ad.nl/formule-1/zorgen-bij-aston-martin-fernando-alonso-vreest-zelfs-voor-zenuwschade-er-moet-een-oplossing-komen~a589750a/)
+  > Tweevoudig wereldkampioen Fernando Alonso (37) denkt dat hij door trillingen in zijn Aston Martin niet meer dan 25 rondes kan rijden voordat hij...
+- [China werkt aan ‘geboortevriendelijke samenleving’ en trekt meer geld uit voor onderwijs en sociale zekerheid](https://www.ad.nl/buitenland/china-werkt-aan-geboortevriendelijke-samenleving-en-trekt-meer-geld-uit-voor-onderwijs-en-sociale-zekerheid~aef2b40f/)
+  > Op de eerste dag van het Volkscongres heeft China donderdag aangekondigd dat het de komende vijf jaar een ‘geboortevriendelijke samenleving’ wil...
 - [De campagne Week Zonder Vlees was te ‘woke’: ‘Riep irritatie en agressie op’](https://www.ad.nl/binnenland/de-campagne-week-zonder-vlees-was-te-woke-riep-irritatie-en-agressie-op~a34a0bbd/)
   > De Nationale Week Zonder Vlees wilde na acht jaar zelf af van het belerende toontje en het wijzende vingertje. Daarom is er nu de nieuwe campagne...
-- [Nieuwe Israëlische luchtaanvallen op zuiden Beiroet, Israël versoepelt beperkingen in eigen land](https://www.ad.nl/buitenland/nieuwe-israelische-luchtaanvallen-op-zuiden-beiroet-israel-versoepelt-beperkingen-in-eigen-land~ac528ac3/)
-  > Het Israëlische leger heeft in de nacht van woensdag op donderdag opnieuw luchtaanvallen uitgevoerd op het zuiden van de Libanese hoofdstad Beiroet....
-- [Voetbalpodcast | ‘Ik ben benieuwd wat de finale tussen AZ en NEC gaat betekenen voor de competitie’](https://www.ad.nl/voetbal/voetbalpodcast-ik-ben-benieuwd-wat-de-finale-tussen-az-en-nec-gaat-betekenen-voor-de-competitie~ac8603a9/)
-  > AZ mag zich opmaken voor de finale om de Eurojackpot KNVB Beker op zondag 19 april. De ploeg uit Alkmaar won thuis van Telstar. Die tweede halve...
-- [Lugubere vondst in VS: lichamen van twee kinderen aangetroffen in koffers](https://www.ad.nl/buitenland/lugubere-vondst-in-vs-lichamen-van-twee-kinderen-aangetroffen-in-koffers~a3c6ab11/)
-  > Na een tip van een voorbijganger die zijn hond aan het uitlaten was, heeft de politie van Cleveland, in de Amerikaanse staat Ohio, maandag een...
-- [Epstein-commissie laat Justitieminister Pam Bondi dagvaarden voor getuigenis](https://www.ad.nl/buitenland/epstein-commissie-laat-justitieminister-pam-bondi-dagvaarden-voor-getuigenis~ae67dd9c/)
-  > Een commissie in het Amerikaanse Huis van Afgevaardigden heeft ermee ingestemd om minister van Justitie Pam Bondi te dagvaarden in verband met de...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Komen er Franse kernwapens naar Nederland?](https://fd.nl/economie/1588195/komen-er-franse-kernwapens-naar-nederland)
+  > Vandaag in de FD Dagkoers podcast: Hoe de oorlog in Iran het luchtverkeer stillegt, Tweede Kamer verkent een Franse nucleaire paraplu en de AFM ziet...
 - [Eindhovense detacheerder TMC neemt WEB over](https://fd.nl/tech-en-innovatie/1588196/eindhovense-detacheerder-tmc-neemt-web-over)
   > Met WEB, eveneens gevestigd in Eindhoven, wil TMC zijn positie versterken in de industriële techniek. Het is voor TMC de zesde overname in tweeënhalf...
 - [Killer robots](https://fd.nl/opinie/1588144/killer-robots)
@@ -54,8 +56,6 @@
   > De bekritiseerde voorgesprekken van beursgenoteerde bedrijven met analisten hebben consequenties voor de markten, maar de toezichthouder ziet er geen...
 - [Kantoorklerken aller landen, verenigt u! ChatGPT klopt namelijk op de deur](https://fd.nl/opinie/1588036/kantoorklerken-aller-landen-verenigt-u)
   > Voor het eerst maken niet blauwe maar witte boorden zich zorgen om automatisering. Een nieuwe ervaring voor de bewoner van de kantoortuin – dé...
-- [Personalia donderdag 5 maart](https://fd.nl/bedrijfsleven/1588131/personalia-donderdag-5-maart)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
