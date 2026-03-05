@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-03-2026 om 18:08*
+*Laatst bijgewerkt: 05-03-2026 om 19:54*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Dieselprijs richting record, 'gaat ons allemaal pijn doen'](https://nos.nl/l/2605069)
-  > Automobilisten, schippers en piloten zagen afgelopen dagen de prijs voor hun brandstof flink oplopen. Diesel aan de pomp nadert zelfs een...
-- [Verdachte Est van mislukte overval juwelier Lisse wil het liefst levenslang](https://nos.nl/l/2605068)
-  > De 53-jarige verdachte van een mislukte overval op een juwelier in Lisse wil de rest van zijn leven achter de tralies doorbrengen. De man, die nog...
-- [Inwoners Midden-Groningen in opstand tegen aanleg nieuwe zonneparken](https://nos.nl/l/2605066)
-  > In de gemeente Midden-Groningen is fel protest tegen de aanleg van twee zonneparken. Sinds 2019 zijn er al zeven aangelegd. De inwoners vinden dat...
-- [Politie Limburg zet teamchef op non-actief om grensoverschrijdende opmerkingen](https://nos.nl/l/2605064)
-  > De politie in Limburg heeft een teamchef op non-actief gesteld na meldingen over seksueel grensoverschrijdend gedrag en racisme. Er loopt een...
-- [Dag 6 van de oorlog: Israël beveelt massaevacuatie in Libanon en Iran valt Koerden aan](https://nos.nl/l/2605061)
-  > Op dag 6 van de oorlog in het Midden-Oosten zijn de VS en Israël doorgegaan met aanvallen op Iran en slaat Israël in Libanon harder toe in de...
+- [Opnieuw oproer binnen BBB, prominenten eisen terugkomst Keijzer](https://nos.nl/l/2605091)
+  > Binnen de BBB is groot verzet ontstaan tegen de koers van de partij en het besluit om Mona Keijzer als partijleider af te wijzen. Een groep van...
+- [‘Vegaburger’ mag naam houden, maar 'vegetarische steak' niet](https://nos.nl/l/2605085)
+  > Vegaburgers hoeven geen nieuwe naam te krijgen. Maar verwijzingen naar dieren of onderdelen van dieren mogen straks niet meer gebruikt worden voor...
+- [Komend weekend lente, maar niet zo zonnig door Saharazand](https://nos.nl/l/2605083)
+  > Het blijft de komende dagen extreem zacht lenteweer, maar het blijft niet zo strakblauw als vandaag. Er komen meer sluierwolken onze kant op en ook...
+- [Trump vervangt minister Noem van Binnenlandse Veiligheid](https://nos.nl/l/2605082)
+  > De Amerikaanse minister van Binnenlandse Veiligheid, Kristi Noem, vertrekt. President Trump vervangt haar door Markwayne Mullin, die nu nog in de...
+- [Democraten én Republikeinen op de bres tegen Trumps datacenters](https://nos.nl/l/2605079)
+  > "De machtigste mensen van het land" noemt president Trump ze: de topmensen van Google, Oracle, Meta, Microsoft, OpenAI en Amazon. Hij ontving hen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [COA kan azc’s niet sluiten: duizenden asielzoekers moeten weg, maar kunnen nergens heen](https://www.ad.nl/binnenland/coa-kan-azcs-niet-sluiten-duizenden-asielzoekers-moeten-weg-maar-kunnen-nergens-heen~a6f9d1e6/)
-  > Duizenden asielzoekers moeten de komende maanden hun opvanglocatie uit. Maar het het Centraal Orgaan opvang asielzoekers (COA) heeft geen plek voor...
-- [Vrouwen verdienen dezelfde aandacht voor beter bevolkingsonderzoek als mannen](https://www.ad.nl/commentaar/vrouwen-verdienen-dezelfde-aandacht-voor-beter-bevolkingsonderzoek-als-mannen~a20a7d43/)
-  > Het aantal mannen dat meedoet aan het bevolkingsonderzoek darmkanker blijft achter. Daarmee doen zij meer dan alleen zichzelf tekort, schrijft onze...
-- [Politiemedewerkers in zaak-Lisa staan onterecht op lijst korpsleiding: ‘Harde toon van minister raakt ons’](https://www.ad.nl/binnenland/politiemedewerkers-in-zaak-lisa-staan-onterecht-op-lijst-korpsleiding-harde-toon-van-minister-raakt-ons~a2b3fd9e/)
-  > Een overgrote meerderheid van de ongeveer vijfhonderd medewerkers van de Amsterdamse politie-eenheid die informatie hebben geraadpleegd over de moord...
-- [Dit dikke, slome papegaaitje wordt met uitsterven bedreigd, maar nu komt er opeens een babyboom](https://www.ad.nl/buitenland/dit-dikke-slome-papegaaitje-wordt-met-uitsterven-bedreigd-maar-nu-komt-er-opeens-een-babyboom~a2f1905e/)
-  > Hij is eigenlijk te zwaar, te langzaam en te aantrekkelijk voor roofdieren om te overleven in het wild, maar toch lukt het de kakapo (een papegaai)...
-- [WK sprint van start met 500 meter: Schulting, Fledderus en topfavoriete Femke Kok in actie](https://www.ad.nl/schaatsen/wk-sprint-van-start-met-500-meter-schulting-fledderus-en-topfavoriete-femke-kok-in-actie~af64fec2/)
-  > Het schaatsseizoen wordt afgesloten in Heerenveen met het WK sprint en WK allround. Vandaag en morgen strijden de sprinters om de wereldtitel. In...
+- [Van Princess of Pop tot arrestatie: hoe kon het zo misgaan met Britney Spears?](https://www.ad.nl/show/van-princess-of-pop-tot-arrestatie-hoe-kon-het-zo-misgaan-met-britney-spears~a8221dea/)
+  > Het gaat al jaren niet goed met voormalig popicoon Britney Spears (44). Het was wachten op het volgende incident. Woensdag werd de zangeres...
+- [Van Veen in actie tegen publieksfavoriet, Van Gerwen verliest openingswedstrijd in Cardiff](https://www.ad.nl/darts/van-veen-in-actie-tegen-publieksfavoriet-van-gerwen-verliest-openingswedstrijd-in-cardiff~ae47bd70/)
+  > De Premier League Darts gaat verder met de vijfde speelavond. Michael van Gerwen neemt het in de eerste partij in Cardiff, de hoofdstad van Wales, op...
+- [Onderzoeken naar asbest in speelzand opgeëist door de NVWA](https://www.ad.nl/binnenland/onderzoeken-naar-asbest-in-speelzand-opgeeist-door-de-nvwa~a7372210/)
+  > Nederlandse laboratoria die de afgelopen tijd onderzoek hebben gedaan naar asbest in speelzand, moeten alsnog hun gegevens delen. Toezichthouder NVWA...
+- [Miljoenenbezuiniging treft KRO-NCRV: omroep schrapt programma’s en 35 banen](https://www.ad.nl/show/miljoenenbezuiniging-treft-kro-ncrv-omroep-schrapt-programmas-en-35-banen~a16f1151/)
+  > De aangekondigde miljoenenbezuiniging op de publieke omroep leidt naar verwachting tot een verlies van zo’n 35 arbeidsplaatsen onder de...
+- [Amerikaanse minister Kristi Noem van Binnenlandse Veiligheid treedt af](https://www.ad.nl/buitenland/amerikaanse-minister-kristi-noem-van-binnenlandse-veiligheid-treedt-af~a1a98c3de/)
+  > Kristi Noem vertrekt als minister van Binnenlandse Veiligheid, meldt de Amerikaanse president Donald Trump op zijn kanaal Truth Social. Het is niet...
 
 ### Meest gelezen
 
@@ -46,16 +46,15 @@
 
 ### Laatste nieuws
 
-- [Ondernemers opgelet: nieuwe uitzendregels gelden ook voor timmerman op de hoek](https://fd.nl/economie/1588279/ondernemers-opgelet-nieuwe-uitzendregels-gelden-ook-voor-timmerman-op-de-hoek)
-  > De markt voor het uitlenen van personeel gaat ingrijpend veranderen. Dat raakt veel bedrijven, maar zijn die wel op de hoogte? ‘Dat wordt nog best...
-- [Azerbeidzjan en Koerden zetten oorlog Iran verder op scherp](https://fd.nl/politiek/1588278/azerbeidzjan-en-koerden-zetten-oorlog-iran-verder-op-scherp)
-  > Na geruchten over Koerdische betrokkenheid bij de strijd tussen VS, Israël en Iran, werd op woensdag ook Azerbeidzjan doelwit van een droneaanval....
-- [Staatssecretaris blijft Arriva tegenhouden op noordelijk hoofdrailnet](https://fd.nl/bedrijfsleven/1588378/staatssecretaris-blijft-arriva-tegenhouden-op-noordelijk-hoofdrailnet)
-  > Arriva en het ministerie waren weer gedwongen te praten over de noordelijke lijnen door een uitspraak van het CBb. Maar de uitkomst is nu dezelfde...
-- [Forum-Kamerlid Gideon van Meijeren vrijgesproken van opruiing](https://fd.nl/financiele-markten/1588379/forum-kamerlidgideon-van-meijeren-vrijgesproken-van-opruiing)
-  > Het hof stelt dat Van Meijerens uitspraken ‘de strafrechtelijke grens opzoeken, maar niet hebben overschreden’.
-- [Door de hack kan Odido zijn beursgang voorlopig wel vergeten](https://fd.nl/bedrijfsleven/1588377/door-de-hack-kan-odido-zijn-beursgang-voorlopig-wel-vergeten)
-  > De grootste computerinbraak ooit in Nederland belemmert Odido’s toekomstige beursplannen en de schade aan de merknaam maakt het moeilijker om nieuwe...
+- [Trump ontslaat minister van binnenlandse veiligheid Kristi Noem](https://fd.nl/politiek/1588287/trump-ontslaat-minister-van-binnenlandse-veiligheid-kristi-noem)
+  > Trump heeft Kristi Noem, de Amerikaanse minister van binnenlandse veiligheid, ontslagen.
+- [Vegaburger mag vegaburger blijven heten, vegasteak mag niet](https://fd.nl/bedrijfsleven/1588132/vegaburger-mag-vegaburger-blijven-heten-vegaworst-mag-niet)
+  > Europees Parlement en de lidstaten verbieden namen als kip, vleugel of bacon voor plantaardige producten, ook voor hybride vlees.
+- [Europa moet diplomatiek offensief inzetten rond Irancrisis](https://fd.nl/opinie/1588255/europa-moet-diplomatiek-offensief-inzetten-rond-irancrisis)
+  > Juist Europese landen kunnen flink in de problemen komen als de oorlog in het Midden-Oosten lang duurt. Daarom moeten ze in actie komen in plaats van...
+- [Nederland wil in kopgroep EU bij terugkeer uitgeprocedeerden](https://fd.nl/samenleving/1588382/nederland-in-kopgroep-eu-bij-terugkeer-van-uitgeprocedeerde-asielzoekers)
+  > Nederland, Oostenrijk, Griekenland, Duitsland en Denemarken willen vooroplopen bij het terugsturen van uitgeprocedeerde asielzoekers.
+- [UMG stelt beursgang in VS uit](https://fd.nl/financiele-markten/1588381/umg-stelt-beursgang-in-vs-uit)
 
 ### Meest gelezen
 
