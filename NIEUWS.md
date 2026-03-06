@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-03-2026 om 11:33*
+*Laatst bijgewerkt: 06-03-2026 om 13:06*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Analyse: Amerikaanse verantwoordelijkheid voor aanval op school in Iran waarschijnlijk](https://nos.nl/l/2605158)
-  > Satellietbeelden en geverifieerde video's geven een steeds gedetailleerder beeld van de luchtaanval op de zuidelijke Iraanse stad Minab, waarbij ook...
-- [Burgemeester klaar met grenscontroles na kettingbotsing bij Babberich](https://nos.nl/l/2605152)
-  > Burgemeester Boumans van Doetinchem is klaar met de grenscontroles en roept de Duitse grensgemeenten op om maatregelen te nemen. De oproep komt na...
-- [Ruzie Orbán en Zelensky loopt op: Oekraïners opgepakt 'om witwassen miljoenen'](https://nos.nl/l/2605148)
-  > Hongarije heeft zeven werknemers van een Oekraïense staatsbank gearresteerd. Het lijkt een nieuwe escalatie in de oplopende ruzie tussen de...
-- [Best Social Awards uitgereikt, Pieter Valley populairste content creator](https://nos.nl/l/2605141)
-  > Tiktokker Pieter Valley is de grote winnaar van The Best Social Awards. De prijzen voor de beste contentmakers werden gisteravond uitgereikt in...
-- [Britse politie pakt vier mannen op voor hulp aan geheime dienst Iran](https://nos.nl/l/2605140)
-  > De Britse politie heeft vannacht vier mannen gearresteerd vanwege mogelijke spionage voor Iran. Het gaat om een Iraanse staatsburger en drie Britten...
+- [Vertrouwenscrisis op ic van Erasmus MC, inspectie onderzoekt werkcultuur](https://nos.nl/l/2605171)
+  > Op de intensive care van het Erasmus Medisch Centrum, onder leiding van Diederik Gommers, heerst al jaren een vertrouwenscrisis tussen een deel van...
+- [Wereldwijd drugs- en witwasnetwerk ontmanteld: 'Boodschap aan de onderwereld'](https://nos.nl/l/2605168)
+  > Bij een internationale politieactie tegen een groot crimineel netwerk zijn dinsdag vijftien mensen opgepakt. De organisatie hield zich wereldwijd...
+- [Dieselprijs evenaart record door oorlog in Midden-Oosten](https://nos.nl/l/2605166)
+  > De landelijke adviesprijs voor diesel is door de oorlog in het Midden-Oosten gestegen naar 2,375 euro per liter, meldt consumentencollectief...
+- [Huisbaas helpt huurder met aankoop huurwoning: 'Liever dat jij het koopt'](https://nos.nl/l/2605165)
+  > De 52-jarige Eelko uit Rotterdam kan het nog steeds niet geloven. De woning die hij huurde, is plots van hem. Na ruim vijftien jaar huren belde zijn...
+- [Belgisch transportbedrijf baalt van raketlanceerinstallatie in afgedankte trailer in Irak](https://nos.nl/l/2605162)
+  > Het is een opmerkelijk beeld: in de woestijn van Irak staat een vrachtwagentrailer waaruit een geïmproviseerde raketlanceerinstallatie steekt. Maar...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘Kwetsbaarheid is mijn kracht’: toprenster Demi Vollering zoals je haar zelden ziet](https://www.ad.nl/wielrennen/kwetsbaarheid-is-mijn-kracht-toprenster-demi-vollering-zoals-je-haar-zelden-ziet~a396073a/)
-  > Wielrenster Demi Vollering won zowat alles wat er te winnen valt – vorig weekend nog de Omloop. Maar achter die successen schuilt een verhaal van...
-- [Noorse ‘bonusprins’ Marius bekent dat hij keel van slachtoffer heeft dichtgeknepen](https://www.ad.nl/show/noorse-bonusprins-marius-bekent-dat-hij-keel-van-slachtoffer-heeft-dichtgeknepen~a12d2418/)
-  > Marius Borg Høiby heeft bekend dat hij het slachtoffer dat wordt aangeduid als de Frogner-vrouw heeft proberen te wurgen. De zoon van kroonprinses...
-- [Rusland dreigt met actie tegen Finland als het kernwapens toelaat, Orbán blokkeert goederen voor Oekraïne](https://www.ad.nl/buitenland/rusland-dreigt-met-actie-tegen-finland-als-het-kernwapens-toelaat-orban-blokkeert-goederen-voor-oekraine~adfb97be/)
-  > Rusland zal het niet over zijn kant laten gaan als Finland kernwapens toelaat op zijn grondgebied, waarschuwt het Kremlin. Het reageert op de...
-- [Geen koninklijke standaard én geen mast: waarom je bij Noordeinde nu niet kan zien of de koning in het land is](https://www.ad.nl/show/geen-koninklijke-standaard-en-geen-mast-waarom-je-bij-noordeinde-nu-niet-kan-zien-of-de-koning-in-het-land-is~a63fe34c/)
-  > Alle nieuwsgierige Nederlanders die willen zien of koning Willem-Alexander en koningin Máxima in Nederland zijn, hebben de komende tijd pech. De...
-- [Zonen gaan voor Britney zorgen na aanhouding voor rijden onder invloed](https://www.ad.nl/show/zonen-gaan-voor-britney-zorgen-na-aanhouding-voor-rijden-onder-invloed~ad202073/)
-  > De zonen van Britney Spears willen haar ondersteunen na haar arrestatie woensdag op verdenking van rijden onder invloed. Volgens een...
+- [Gouden Kalf-winnaar Jelle de Jonge werkt aan nieuwe film](https://www.ad.nl/show/gouden-kalf-winnaar-jelle-de-jonge-werkt-aan-nieuwe-film~ae6699d0/)
+  > Jelle de Jonge, regisseur van de prijswinnende film De Terugreis, werkt aan een nieuwe tragikomedie genaamd Laatbloeier. Dat maakt distributeur Dutch...
+- [Canadese backpacker (19) verdrinkt nadat dingo’s haar de zee in jagen: ‘Piper hield van alle dieren’](https://www.ad.nl/buitenland/canadese-backpacker-19-verdrinkt-nadat-dingos-haar-de-zee-in-jagen-piper-hield-van-alle-dieren~abddd213/)
+  > Ze zei dat ze ging zwemmen, maar kwam nooit terug. De Canadese backpackster Piper James werd in januari dood aangetroffen op het strand van K’gari,...
+- [PSV weken zonder gebleseerde Mauro Júnior, Salah-Eddine op de weg terug](https://www.ad.nl/voetbal/psv-weken-zonder-gebleseerde-mauro-junior-salah-eddine-op-de-weg-terug~acd68363/)
+  > Trainer Peter Bosz van PSV kan de komende wedstrijden niet beschikken over Mauro Júnior. De Braziliaan ging dinsdag geblesseerd naar de kant tijdens...
+- [Politie slaat seksuele voorkeur van informant op bij opsporing: ‘Soms belangrijk voor diens bescherming’](https://www.ad.nl/binnenland/politie-slaat-seksuele-voorkeur-van-informant-op-bij-opsporing-soms-belangrijk-voor-diens-bescherming~a597de3e/)
+  > Bij een opsporingsonderzoek naar mogelijke relschoppers wordt soms de seksuele geaardheid van een betrokkene geregistreerd en opgeslagen in het...
+- [Emirates hervat vluchten van Dubai naar Schiphol en 82 andere bestemmingen](https://www.ad.nl/buitenland/emirates-hervat-vluchten-van-dubai-naar-schiphol-en-82-andere-bestemmingen~afc339b4/)
+  > Luchtvaartmaatschappij Emirates vliegt vanaf zaterdag dagelijks van Dubai naar tientallen bestemmingen, waaronder Schiphol. De maatschappij wil 106...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Iraanse zanger probeert met nieuw protestlied weer in de gratie te raken](https://fd.nl/samenleving/1588049/iraanse-zanger-probeert-met-nieuw-protestlied-weer-in-de-gratie-te-raken)
+  > Met zijn lied Baraye groeide Shervin Hajipour vier jaar geleden in Iran uit tot een symbool van verzet tegen de repressie. Kan de singer-songwriter...
+- [Tata Steel loopt grote vertraging op bij vergunning voor cruciaal vergroeningsproject](https://fd.nl/bedrijfsleven/1588441/tata-steel-loopt-grote-vertraging-op-bij-vergunning-voor-cruciaal-vergroeningsproject)
+  > De toezichthouder legt behandeling stil omdat de vergunningaanvragen en het milieurapport tekortschieten. Het is de vraag of de staalproducent zijn...
+- [Europeanen, geloof in jezelf](https://fd.nl/opinie/1588050/europeanen-geloof-in-jezelf)
+  > Door de nieuwsberichten over een afhankelijk Europa vergeten we de kracht van ons continent. Terwijl de basis voor een florerend ondernemersklimaat...
 - [Een fijn tapasrestaurant en zachte geuren van Vietnamese makelij](https://fd.nl/samenleving/1588114/een-fijn-tapasrestaurant-en-zachte-geuren-van-vietnamese-makelij)
   > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
 - [Koersval voor chemiebedrijf Lanxess door uitstel bij verkoop Envalior](https://fd.nl/bedrijfsleven/1588319/koersval-voor-chemiebedrijf-lanxess-door-uitstel-bij-verkoop-envalior)
   > Envalior is een joint venture met investeringsmaatschappij Advent die mede voortkwam uit DSM. Lanxess heeft een kleine 41% van de aandelen.
-- [Tata is overal, en dus ook in AI](https://fd.nl/financiele-markten/1588316/tata-is-overal-en-dus-ook-in-ai)
-  > Beleggers zijn bang voor de toekomst van Tata-kroonjuweel TCS vanwege AI. Maar de ceo zet er juist vol op in en is niet bang voor kannibalisatie van...
-- [Ministerie wil einde aan gemeentelijke verboden staalslakken](https://fd.nl/samenleving/1588314/ministerie-wil-einde-aan-gemeenten-verboden-staalslakken)
-  > Het ministerie van Infrastructuur en Waterstaat wil niet langer dat gemeenten het gebruik van staalslakken verbieden. Gemeenten die dit al gedaan...
-- [NN-top krijgt hoger salaris plus bonus voor succesvolle AI-strategie](https://fd.nl/financiele-markten/1588293/nn-top-krijgt-hoger-salaris-plus-bonus-voor-succesvolle-ai-strategie)
-  > De verzekeraar heeft ambitieuze doelstellingen op het gebied van automatisering en de inzet van kunstmatige intelligentie.
 
 ### Meest gelezen
 
