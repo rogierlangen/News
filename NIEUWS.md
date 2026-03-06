@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-03-2026 om 13:06*
+*Laatst bijgewerkt: 06-03-2026 om 14:41*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Op non-actief gezette politiechef staat op kieslijst Heerlen, partij neemt maatregelen](https://nos.nl/l/2605176)
+  > Een teamchef van de politie die gisteren op non-actief is gezet, staat op de kieslijst van de VVD in Heerlen. Er worden maatregelen getroffen, meldt...
+- [Zoektocht naar advocaten voor Taghi gaat langer duren](https://nos.nl/l/2605175)
+  > De zoektocht naar nieuwe advocaten voor Ridouan Taghi gaat nog twee maanden langer duren. Het is nog niet gelukt een ander advocatenteam te vinden,...
+- [Vier woningen onbewoonbaar na explosie Amsterdam, mogelijk opzet](https://nos.nl/l/2605174)
+  > Bij een woning in Amsterdam-Zuid is vannacht na een zware explosie brand uitgebroken. Vier woningen zijn onbewoonbaar verklaard. De politie...
 - [Vertrouwenscrisis op ic van Erasmus MC, inspectie onderzoekt werkcultuur](https://nos.nl/l/2605171)
   > Op de intensive care van het Erasmus Medisch Centrum, onder leiding van Diederik Gommers, heerst al jaren een vertrouwenscrisis tussen een deel van...
 - [Wereldwijd drugs- en witwasnetwerk ontmanteld: 'Boodschap aan de onderwereld'](https://nos.nl/l/2605168)
   > Bij een internationale politieactie tegen een groot crimineel netwerk zijn dinsdag vijftien mensen opgepakt. De organisatie hield zich wereldwijd...
-- [Dieselprijs evenaart record door oorlog in Midden-Oosten](https://nos.nl/l/2605166)
-  > De landelijke adviesprijs voor diesel is door de oorlog in het Midden-Oosten gestegen naar 2,375 euro per liter, meldt consumentencollectief...
-- [Huisbaas helpt huurder met aankoop huurwoning: 'Liever dat jij het koopt'](https://nos.nl/l/2605165)
-  > De 52-jarige Eelko uit Rotterdam kan het nog steeds niet geloven. De woning die hij huurde, is plots van hem. Na ruim vijftien jaar huren belde zijn...
-- [Belgisch transportbedrijf baalt van raketlanceerinstallatie in afgedankte trailer in Irak](https://nos.nl/l/2605162)
-  > Het is een opmerkelijk beeld: in de woestijn van Irak staat een vrachtwagentrailer waaruit een geïmproviseerde raketlanceerinstallatie steekt. Maar...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Gouden Kalf-winnaar Jelle de Jonge werkt aan nieuwe film](https://www.ad.nl/show/gouden-kalf-winnaar-jelle-de-jonge-werkt-aan-nieuwe-film~ae6699d0/)
-  > Jelle de Jonge, regisseur van de prijswinnende film De Terugreis, werkt aan een nieuwe tragikomedie genaamd Laatbloeier. Dat maakt distributeur Dutch...
-- [Canadese backpacker (19) verdrinkt nadat dingo’s haar de zee in jagen: ‘Piper hield van alle dieren’](https://www.ad.nl/buitenland/canadese-backpacker-19-verdrinkt-nadat-dingos-haar-de-zee-in-jagen-piper-hield-van-alle-dieren~abddd213/)
-  > Ze zei dat ze ging zwemmen, maar kwam nooit terug. De Canadese backpackster Piper James werd in januari dood aangetroffen op het strand van K’gari,...
-- [PSV weken zonder gebleseerde Mauro Júnior, Salah-Eddine op de weg terug](https://www.ad.nl/voetbal/psv-weken-zonder-gebleseerde-mauro-junior-salah-eddine-op-de-weg-terug~acd68363/)
-  > Trainer Peter Bosz van PSV kan de komende wedstrijden niet beschikken over Mauro Júnior. De Braziliaan ging dinsdag geblesseerd naar de kant tijdens...
-- [Politie slaat seksuele voorkeur van informant op bij opsporing: ‘Soms belangrijk voor diens bescherming’](https://www.ad.nl/binnenland/politie-slaat-seksuele-voorkeur-van-informant-op-bij-opsporing-soms-belangrijk-voor-diens-bescherming~a597de3e/)
-  > Bij een opsporingsonderzoek naar mogelijke relschoppers wordt soms de seksuele geaardheid van een betrokkene geregistreerd en opgeslagen in het...
-- [Emirates hervat vluchten van Dubai naar Schiphol en 82 andere bestemmingen](https://www.ad.nl/buitenland/emirates-hervat-vluchten-van-dubai-naar-schiphol-en-82-andere-bestemmingen~afc339b4/)
-  > Luchtvaartmaatschappij Emirates vliegt vanaf zaterdag dagelijks van Dubai naar tientallen bestemmingen, waaronder Schiphol. De maatschappij wil 106...
+- [‘Rusland helpt Iran Amerikaanse doelen te lokaliseren’](https://www.ad.nl/buitenland/rusland-helpt-iran-amerikaanse-doelen-te-lokaliseren~aa965dcc/)
+  > Rusland helpt Iran om Amerikaanse troepen te lokaliseren en te treffen, meldt The Washington Post. Rusland vertelde Iran onder meer waar Amerikaanse...
+- [Van Persie vindt NAC uit zwaar, maar niet cruciaal: ‘Als we niet winnen? Dan staan we nog tweede’](https://www.ad.nl/voetbal/van-persie-vindt-nac-uit-zwaar-maar-niet-cruciaal-als-we-niet-winnen-dan-staan-we-nog-tweede~a6d8e81a/)
+  > Robin van Persie verwacht een loodzware uitwedstrijd tegen NAC zondagmiddag in Breda. De trainer van Feyenoord weigert de wedstrijd in Brabant echter...
+- [‘Doe jij mee aan de ramadan?’ vraagt agent aan man: daarna barst hij in tranen uit](https://www.ad.nl/binnenland/doe-jij-mee-aan-de-ramadan-vraagt-agent-aan-man-daarna-barst-hij-in-tranen-uit~a7c31036/)
+  > „Doe jij mee aan de ramadan?”, vraag ik de bestuurder van een bromfiets die ik net staande heb gehouden. De man barst in tranen uit en geeft toe dat...
+- [Minister gaat niet ingrijpen na ongeluk door grenscontroles](https://www.ad.nl/politiek/minister-gaat-niet-ingrijpen-na-ongeluk-door-grenscontroles~a5d331ee/)
+  > Het kabinet gaat vooralsnog niet ingrijpen bij de controles aan de grens met Duitsland. Burgemeester Boumans van Doetinchem had daarom gevraagd, na...
+- [Wesley Plaisier verrassend uitgeschakeld, Van Barneveld sluit middag af tegen sterke Tsjech](https://www.ad.nl/darts/wesley-plaisier-verrassend-uitgeschakeld-van-barneveld-sluit-middag-af-tegen-sterke-tsjech~a5801bf2/)
+  > Meer dan de helft van de Nederlandse deelnemers speelt vrijdagmiddag al in de eerste rondes van de UK Open. Maar liefst 24 landgenoten doen een gooi...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Iraanse zanger probeert met nieuw protestlied weer in de gratie te raken](https://fd.nl/samenleving/1588049/iraanse-zanger-probeert-met-nieuw-protestlied-weer-in-de-gratie-te-raken)
-  > Met zijn lied Baraye groeide Shervin Hajipour vier jaar geleden in Iran uit tot een symbool van verzet tegen de repressie. Kan de singer-songwriter...
-- [Tata Steel loopt grote vertraging op bij vergunning voor cruciaal vergroeningsproject](https://fd.nl/bedrijfsleven/1588441/tata-steel-loopt-grote-vertraging-op-bij-vergunning-voor-cruciaal-vergroeningsproject)
-  > De toezichthouder legt behandeling stil omdat de vergunningaanvragen en het milieurapport tekortschieten. Het is de vraag of de staalproducent zijn...
-- [Europeanen, geloof in jezelf](https://fd.nl/opinie/1588050/europeanen-geloof-in-jezelf)
-  > Door de nieuwsberichten over een afhankelijk Europa vergeten we de kracht van ons continent. Terwijl de basis voor een florerend ondernemersklimaat...
-- [Een fijn tapasrestaurant en zachte geuren van Vietnamese makelij](https://fd.nl/samenleving/1588114/een-fijn-tapasrestaurant-en-zachte-geuren-van-vietnamese-makelij)
-  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
-- [Koersval voor chemiebedrijf Lanxess door uitstel bij verkoop Envalior](https://fd.nl/bedrijfsleven/1588319/koersval-voor-chemiebedrijf-lanxess-door-uitstel-bij-verkoop-envalior)
-  > Envalior is een joint venture met investeringsmaatschappij Advent die mede voortkwam uit DSM. Lanxess heeft een kleine 41% van de aandelen.
+- [Het bedrijfsleven moet ook investeren in de taalvaardigheid van nieuwe generatie werknemers](https://fd.nl/opinie/1587960/het-bedrijfsleven-moet-ook-investeren-in-de-taalvaardigheid-van-nieuwe-generatie-werknemers)
+  > De cijfers over de taalbeheersing door jongeren zijn schrikbarend. Ook het bedrijfsleven heeft hier een rol te spelen: investeren in onze taal.
+- [Koers Besi hard onderuit na berichten over aanpassing chipstandaard](https://fd.nl/bedrijfsleven/1588323/koers-besi-hard-onderuit-na-berichten-over-aanpassing-chipstandaard)
+  > Het aandeel verliest vrijdag meer dan 15%, na berichten over een mogelijke aanpassing van een chipstandaard, waardoor wellicht minder vraag ontstaat...
+- [Omzet in auto- en motorbranche daalde in 2025, na jaren van stijging](https://fd.nl/bedrijfsleven/1588438/omzet-in-auto-en-motorbranche-daalde-in-2025-na-jaren-van-stijging)
+  > De omzet in de auto- en motorbranche is, na jaren van stijging, in 2025 met 2,6% gedaald. Toch is er veel vertrouwen in de toekomst.
+- [Ruim 6% van Zuid‑Holland is in gebruik als bedrijventerrein](https://fd.nl/bedrijfsleven/1588445/ruim-6-van-zuidholland-is-in-gebruik-als-bedrijventerrein)
+  > De provincie heeft landelijk gezien de meeste hectaren bedrijventerrein. Dat is onder andere te danken aan de haven. In Drenthe is het belang van...
+- [Harde knallen en trillende ramen: expats in Dubai blikken terug](https://fd.nl/bedrijfsleven/1588436/harde-knallenen-trillende-ramen-expats-in-dubai-blikken-terug)
+  > De vrees in Dubai zat er goed in toen vorige week Iraanse raketten op de stad werden afgevuurd. Veel Nederlandse expats en ondernemers zochten...
 
 ### Meest gelezen
 
