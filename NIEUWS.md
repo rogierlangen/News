@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-03-2026 om 23:53*
+*Laatst bijgewerkt: 06-03-2026 om 02:29*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Britse parlementariër laat zich schorsen na spionageonderzoek man](https://nos.nl/l/2605113)
+  > De Britse Labour-parlementariër Joani Reid heeft zich vrijwillig laten schorsen door de partij in afwachting van een intern onderzoek naar spionage...
+- [Verdeeldheid over aanvallen op Iran, maar Congres fluit Trump niet terug](https://nos.nl/l/2605112)
+  > Het is de Democraten in het Amerikaanse Congres niet gelukt om de oorlogsbevoegdheden van president Trump in te perken. Een maatregel die Trump zou...
 - [Kabinet hoopt dat opkomstplicht niet nodig is, 'maar sluit het niet uit'](https://nos.nl/l/2605110)
   > Staatssecretaris Boswijk van Defensie hoopt dat Nederlandse jongeren niet verplicht opgeroepen hoeven te worden voor het leger. Maar dat kan hij niet...
 - [Hulporganisatie voor drugsverslaafden stopt, na dichtdraaien subsidiekraan](https://nos.nl/l/2605108)
   > Stichting Mainline stopt er na 36 jaar mee. De stichting zette zich in om zwaar verslaafde drugsgebruikers te helpen,  maar is nu genoodzaakt te...
 - [Een na laatste wethouder Lelystad stapt ook op na onrust over jeugdzorg](https://nos.nl/l/2605101)
   > Piet van Dijk stapt op als wethouder van Lelystad. Hij is de derde van de vier wethouders die sneuvelt vanwege de onrust bij de gemeentelijke...
-- [Gerenoveerde Poldertoren Emmeloord staat weer fier overeind](https://nos.nl/l/2605097)
-  > De opknapbeurt van de Poldertoren in Emmeloord is bijna klaar. De oude, achthoekige watertoren stond de laatste jaren leeg en was in verval geraakt....
-- [Opnieuw oproer binnen BBB, prominenten willen terugkomst Keijzer](https://nos.nl/l/2605091)
-  > Binnen de BBB is groot verzet ontstaan tegen de koers van de partij en het besluit om Mona Keijzer als partijleider af te wijzen. Een groep van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Vergeet TikTok, jonge meiden gebruiken nu WhatsAppkanalen: ‘Dit is gevaarlijk’](https://www.ad.nl/binnenland/vergeet-tiktok-jonge-meiden-gebruiken-nu-whatsappkanalen-dit-is-gevaarlijk~a0373770/)
+  > WhatsApp is tegenwoordig hét socialemediaplatform voor jonge meiden. Pubers gebruiken WhatsAppkanalen massaal om foto’s en video’s van zichzelf te...
+- [Yeşilgöz: geen extra geld naar Oekraïne, kabinet voert motie niet uit](https://www.ad.nl/politiek/yesilgoz-geen-extra-geld-naar-oekraine-kabinet-voert-motie-niet-uit~ad1e78f7/)
+  > Dit jaar gaat er geen aanvullende steun meer naar Oekraïne, zoals eerder door de Kamer was gevraagd. Dat maakte minister Dilan Yeşilgöz (Defensie,...
+- [Voetbalpodcast | ‘Als Jordi Cruijff consequent is, bungelt ook Fred Grim’](https://www.ad.nl/voetbal/voetbalpodcast-als-jordi-cruijff-consequent-is-bungelt-ook-fred-grim~ac8603a9/)
+  > De strijd om plek twee in de Eredivisie, en daarmee een kleine 50 miljoen euro volgend seizoen in de Champions League, zou zomaar veel slachtoffers...
 - [Stand Premier League Darts | Michael van Gerwen valt na vroege exit buiten top 4](https://www.ad.nl/darts/premier-league-speelschema-programma-uitslagen-stand~a9ae7647/)
   > De Premier League Darts is begonnen! Mét Michael van Gerwen en Gian van Veen. Bekijk hieronder alle uitslagen, het complete programma en het te...
 - [Michael van Gerwen en Gian van Veen zien voordeel in vroege uitschakeling: ‘Nu lig ik niet pas om drie uur op m’n nest’](https://www.ad.nl/darts/michael-van-gerwen-en-gian-van-veen-zien-voordeel-in-vroege-uitschakeling-nu-lig-ik-niet-pas-om-drie-uur-op-mn-nest~ae47bd70/)
   > De vijfde speelavond van de Premier League Darts is dramatisch afgelopen voor de Nederlandse darters. Michael van Gerwen verloor in de eerste partij...
-- [Marokko moet op zoek: succestrainer Walid Regragui stapt vlak voor WK op](https://www.ad.nl/voetbal/marokko-moet-op-zoek-succestrainer-walid-regragui-stapt-vlak-voor-wk-op~ae2b845e/)
-  > In aanloop naar het WK-voetbal is de Marokkaanse bondscoach Walid Regragui opgestapt. Dat maakte de succestrainer zelf bekend op sociale media....
-- [Wéér zit een wissel Joep Wennemars in de weg: ‘Dit is een ondenkbaar scenario’](https://www.ad.nl/schaatsen/weer-zit-een-wissel-joep-wennemars-in-de-weg-dit-is-een-ondenkbaar-scenario~a85c5ccb/)
-  > Joep Wennemars kon ook tijdens de WK sprint niet zijn ideale race rijden. Wéér zat een wissel hem in de weg. Nu moest Wennemars landgenoot Jenning de...
-- [Femke Kok en Jenning de Boo ruim bovenaan na eerste dag WK sprint](https://www.ad.nl/schaatsen/femke-kok-en-jenning-de-boo-ruim-bovenaan-na-eerste-dag-wk-sprint~ac2d983e/)
-  > Wie dacht dat het schaatsseizoen er na de Olympische Spelen wel zo’n beetje op zou zitten, heeft het mis. Komend weekend wordt in Thialf bij zowel de...
 
 ### Meest gelezen
 
