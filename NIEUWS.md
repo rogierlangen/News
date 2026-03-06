@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-03-2026 om 09:46*
+*Laatst bijgewerkt: 06-03-2026 om 10:41*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Burgemeester klaar met grenscontroles na kettingbotsing bij Babberich](https://nos.nl/l/2605152)
+  > Burgemeester Boumans van Doetinchem is klaar met de grenscontroles en roept de Duitse grensgemeenten op om maatregelen te nemen. De oproep komt na...
 - [Ruzie Orbán en Zelensky loopt op: Oekraïners opgepakt 'om witwassen miljoenen'](https://nos.nl/l/2605148)
   > Hongarije heeft zeven werknemers van een Oekraïense staatsbank gearresteerd. Het lijkt een nieuwe escalatie in de oplopende ruzie tussen de...
 - [Best Social Awards uitgereikt, Pieter Valley populairste content creator](https://nos.nl/l/2605141)
@@ -16,9 +18,6 @@
   > De Britse politie heeft vannacht vier mannen gearresteerd vanwege mogelijke spionage voor Iran. Het gaat om een Iraanse staatsburger en drie Britten...
 - [Veel meer Nederlanders werden afgelopen jaar lid van politieke partij](https://nos.nl/l/2605139)
   > Bijna alle politieke partijen hebben er afgelopen jaar een stuk meer leden bijgekregen. De toename van ruim 57.000 mensen is volgens het...
-- [De NOS app is vernieuwd, lees hier hoe je kan updaten](https://nos.nl/l/2605133)
-  > De voorpagina van de NOS-app en van NOS.nl is vernieuwd. In dit artikel lees je meer over wat er is veranderd.
-        Het kan zijn dat je dit...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hooligans en relschoppers volop bespioneerd, minister Van Weel wil niet dat politie daar ineens mee stopt](https://www.ad.nl/binnenland/hooligans-en-relschoppers-volop-bespioneerd-minister-van-weel-wil-niet-dat-politie-daar-ineens-mee-stopt~a597de3e/)
-  > Het speciale inlichtingenteam van de politie dat demonstranten en (potentiële) relschoppers in de gaten houdt, opereert op flinterdun ijs. Volgens de...
-- [Marco Borsato weer vaker gedraaid bij radiostations: stijging van bijna 162 procent](https://www.ad.nl/show/marco-borsato-weer-vaker-gedraaid-bij-radiostations-stijging-van-bijna-162-procent~ac5af98e/)
-  > De muziek van Marco Borsato wordt weer vaker gedraaid op Nederlandse radiostations. Uit een analyse van SoundAware, dat de cijfers van radiostations...
-- [Gamers in rep en roer: Microsoft kondigt supersterke Xbox aan die ook pc-games afspeelt](https://www.ad.nl/tech/gamers-in-rep-en-roer-microsoft-kondigt-supersterke-xbox-aan-die-ook-pc-games-afspeelt~ab9326d0/)
-  > Microsoft heeft vrijdag na zes jaar een nieuwe Xbox aangekondigd. Het gaat om een spelcomputer die zowel Xbox- als pc-games kan afspelen: een...
-- [Geert-Jan en Carry Knoops zijn de nieuwe advocaten van Quincy Promes](https://www.ad.nl/binnenland/geert-jan-en-carry-knoops-zijn-de-nieuwe-advocaten-van-quincy-promes~a85bd230/)
-  > Geert-Jan en Carry Knoops worden de nieuwe advocaten van de voor drugshandel en mishandeling veroordeelde ex-topvoetballer Quincy Promes. Dat...
-- [Ze hebben een prachtig nieuwbouwhuis gekocht, maar dan krijg ik een telefoontje: meneer is plots overleden](https://www.ad.nl/wonen/ze-hebben-een-prachtig-nieuwbouwhuis-gekocht-maar-dan-krijg-ik-een-telefoontje-meneer-is-plots-overleden~a02f0493/)
-  > Zolang de auto reed en ze samen mobiel waren, was het gebrek aan winkels in hun dorp geen probleem. Maar nu de diagnose dementie valt, wordt pijnlijk...
+- [Raymond van Barneveld sluit middagsessie in Minehead af als dertiende Nederlander, tegen sterke Tsjech](https://www.ad.nl/darts/raymond-van-barneveld-sluit-middagsessie-in-minehead-af-als-dertiende-nederlander-tegen-sterke-tsjech~a5801bf2/)
+  > Meer dan de helft van de Nederlandse deelnemers speelt vrijdagmiddag al in de eerste rondes van de UK Open. Maar liefst 24 landgenoten doen een gooi...
+- [Praat mee: toch weer het gesprek aangaan over gaswinning is pijnlijk voor 600.000 Groningers](https://www.ad.nl/praat-mee/praat-mee-toch-weer-het-gesprek-aangaan-over-gaswinning-is-pijnlijk-voor-600-000-groningers~a05f04c7/)
+  > De gasprijs is door de onrust in het Midden-Oosten al met 67 procent gestegen. In de Tweede Kamer groeit de steun om weer naar gas te boren in...
+- [Iraanse schrijver Kader Abdolah leeft tussen hoop en wanhoop: ‘Het voelt alsof Trump mij een klap gaf’](https://www.ad.nl/buitenland/iraanse-schrijver-kader-abdolah-leeft-tussen-hoop-en-wanhoop-het-voelt-alsof-trump-mij-een-klap-gaf~ae19b0a0/)
+  > De Iraans-Nederlandse schrijver Kader Abdolah (71) leeft al dagen tussen hoop en wanhoop. Zijn vaderland wordt gebombardeerd, de toekomst is ongewis....
+- [Savannah Guthrie keert emotioneel terug op redactievloer na vermissing moeder: ‘Ik hou vast aan mijn geloof’](https://www.ad.nl/buitenland/savannah-guthrie-keert-emotioneel-terug-op-redactievloer-na-vermissing-moeder-ik-hou-vast-aan-mijn-geloof~a827e003/)
+  > De Amerikaanse presentatrice Savannah Guthrie is voor het eerst sinds de ontvoering van haar moeder Nancy (84) langs geweest op de set van de...
+- [Fred Grim sprak met Jordi Cruijff, maar niet over toekomst: ‘Doen we wekelijks’](https://www.ad.nl/voetbal/fred-grim-sprak-met-jordi-cruijff-maar-niet-over-toekomst-doen-we-wekelijks~aa400c80/)
+  > Fred Grim vreest totaal niet voor zijn baan bij Ajax. De interim-coach sprak afgelopen week met technisch directeur Jordi Cruijff, maar daarbij kwam...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [EU-buitenlandchef Kaja Kallas heeft een hondsmoeilijke baan](https://fd.nl/politiek/1588165/eu-buitenlandchef-kaja-kallas-heeft-een-hondsmoeilijke-baan)
-  > De Amerikaans-Israëlische aanvallen op Iran leggen pijnlijk bloot hoe machteloos EU-buitenlandchef Kaja Kallas is zonder de ruggensteun van alle...
-- [Nederlands onbekendste meesteroplichter maakte over de hele wereld slachtoffers](https://fd.nl/samenleving/1587698/nederlands-onbekendste-meesteroplichter-maakte-over-de-hele-wereld-slachtoffers)
-  > Rob Jacob troggelde de afgelopen decennia over de hele wereld miljoenen af, met steeds wildere verhalen. Twee journalisten van het Dagblad van het...
-- [Hoe een Belg in de Cariben een koninkrijk wil stichten (betalen met bitcoin, geen lastige regels)](https://fd.nl/politiek/1588176/hoe-een-belg-in-de-cariben-een-koninkrijk-wil-stichten-betalen-met-bitcoin-geen-lastige-regels)
-  > Sommige mensen kunnen rijk zijn niet verdragen zonder er een ideologie aan te hangen. Olivier Janssens wil daarom ‘een soort Dubai, of anders een...
-- [We weten dat sterke instituties economisch succes beïnvloeden – bescherm ze dus goed](https://fd.nl/opinie/1588027/we-weten-dat-sterke-instituties-economisch-succes-beinvloeden-bescherm-ze-dus-goed)
-  > Wispelturigheid, ‘absolute democratie’ en de teloorgang van redelijkheid en billijkheid in de rechtspraak – het zijn oorzaken van de grote druk op...
-- [Vastned-ceo Sven Bosman: ‘Brussel heeft een echte vastgoedbeurs, Amsterdam niet’](https://fd.nl/bedrijfsleven/1587872/vastned-ceo-sven-bosman-brussel-heeft-een-echte-vastgoedbeurs-amsterdam-niet)
-  > Na een roerige periode in het retailvastgoed én een omgekeerde fusie is het voor vastgoedbelegger Vastned tijd om weer vooruit te kijken. Ceo Sven...
+- [NN-top krijgt hoger salaris plus bonus voor succesvolle AI-strategie](https://fd.nl/financiele-markten/1588293/nn-top-krijgt-hoger-salaris-plus-bonus-voor-succesvolle-ai-strategie)
+  > De verzekeraar heeft ambitieuze doelstellingen op het gebied van automatisering en de inzet van kunstmatige intelligentie.
+- [Het B-woord zoemt weer rond in bankenland](https://fd.nl/financiele-markten/1588240/het-b-woord-zoemt-weer-rond-in-bankenland)
+  > Banken pleiten voor deregulering, simpeler regels en vooral lagere buffers zodat ze Europa kunnen helpen bij het revitaliseren van de economie. Hun...
+- [Nexperia in China en Nederland kruisen opnieuw de degens](https://fd.nl/bedrijfsleven/1588295/nexperia-in-china-en-nederland-kruisen-opnieuw-de-degens)
+  > De Chinese tak van het chipbedrijf beschuldigt het Nijmeegse hoofdkantoor ervan Chinese medewerkers te hebben afgesloten van IT-systemen. Het...
+- [Meer vrouwen met slechte gezondheid dan mannen](https://fd.nl/samenleving/1588294/meer-vrouwen-met-slechte-gezondheid-dan-mannen)
+  > Nederlandse vrouwen ervaren vaker gezondheidsproblemen dan mannen, meldt het CBS. Dat geldt voor zowel fysieke als psychische klachten.
+- [Strategieën voor regionale groei: leren van Manchesters succesverhaal](https://fd.nl/opinie/1588145/regionale-groei-leren-van-manchester-s-strategie)
+  > Als het kabinet regio’s wil laten groeien, moet woningbouw niet vooroplopen. Manchester laat zien dat eerst investeren in economie werkt.
 
 ### Meest gelezen
 
