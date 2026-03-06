@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-03-2026 om 06:57*
+*Laatst bijgewerkt: 06-03-2026 om 07:43*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Teheran opnieuw zwaar onder vuur, Trump noemt grondoffensief in Iran ‘tijdsverlies’](https://www.ad.nl/buitenland/teheran-opnieuw-zwaar-onder-vuur-trump-noemt-grondoffensief-in-iran-tijdsverlies~ac528ac3/)
-  > Israël heeft vrijdag een nieuwe aanvalsgolf op de Iraanse hoofdstad Teheran gelanceerd. Ook melden Libanese staatsmedia dat het zuiden van het land...
-- [Nijpende situatie voor Aston Martin: ‘Hebben nog maar twee batterijen, de twee die in de auto’s zitten’](https://www.ad.nl/formule-1/nijpende-situatie-voor-aston-martin-hebben-nog-maar-twee-batterijen-de-twee-die-in-de-autos-zitten~ade263b12/)
-  > Het eerste Formule 1-weekend van het seizoen staat voor de deur. Max Verstappen en zijn collega’s zijn in Melbourne voor de Grand Prix van Australië....
-- [Femke Kok en Jenning de Boo ruim bovenaan na eerste dag WK sprint](https://www.ad.nl/schaatsen/femke-kok-en-jenning-de-boo-ruim-bovenaan-na-eerste-dag-wk-sprint~ac2d983e/)
-  > Wie dacht dat het schaatsseizoen er na de Olympische Spelen wel zo’n beetje op zou zitten, heeft het mis. Komend weekend wordt in Thialf bij zowel de...
-- [Lachende Jenning de Boo begaat 'gewoon weer een dommigheidje': 'Weet niet of ik dit in de krant wil'](https://www.ad.nl/schaatsen/lachende-jenning-de-boo-begaat-gewoon-weer-een-dommigheidje-weet-niet-of-ik-dit-in-de-krant-wil~a43d9eac/)
-  > Jenning de Boo vergat ‘natuurlijk’ nog even zijn schaatsen. Maar hij staat op poleposition om wereldkampioen sprint te worden. Nooit eerder was hij...
-- [Pieter Valley en Bankzitters winnaars bij The Best Social Awards](https://www.ad.nl/show/pieter-valley-en-bankzitters-winnaars-bij-the-best-social-awards~ac489c3b/)
-  > Pieter Valley, Camiel Kesbeke, Bankzitters en Julia Heetman zijn donderdagavond in de prijzen gevallen bij de uitreiking van The Best Social Awards....
+- [Nederlandse deelnemers, locaties en programma: alles over de Paralympische Spelen in Milaan en Cortina](https://www.ad.nl/olympische-spelen/nederlandse-deelnemers-locaties-en-programma-alles-over-de-paralympische-spelen-in-milaan-en-cortina~a908948d5/)
+  > De 14de editie van de Paralympische Winterspelen in Milaan en Cortina d’Ampezzo staat op het punt van beginnen. Acht Nederlanders gaan van 6 tot en...
+- [Marokko wijst nieuwe bondscoach aan in aanloop naar WK: Mohamed Ouahbi neemt stokje over van Walid Regragui](https://www.ad.nl/voetbal/marokko-wijst-nieuwe-bondscoach-aan-in-aanloop-naar-wk-mohamed-ouahbi-neemt-stokje-over-van-walid-regragui~a4baabd0/)
+  > De voetbalbond van Marokko heeft drie maanden voor het WK voetbal Mohamed Ouahbi aangesteld als nieuwe bondscoach. De Marokkaans-Belgische coach...
+- [Gestegen gasprijs wakkert warmtepomprun aan: 10 tot 15 procent meer aanvragen](https://www.ad.nl/binnenland/gestegen-gasprijs-wakkert-warmtepomprun-aan-10-tot-15-procent-meer-aanvragen~afc998b0/)
+  > Sinds de enorme stijging van de gasprijzen van afgelopen week ligt het aantal aanvragen voor warmtepompen 10 tot 15 procent hoger dan voorheen. „En...
+- [Juwelier Leo (82) maakt zeven keer (poging tot) overval mee, maar denkt niet aan stoppen: ‘Ben je gek’](https://www.ad.nl/binnenland/juwelier-leo-82-maakt-zeven-keer-poging-tot-overval-mee-maar-denkt-niet-aan-stoppen-ben-je-gek~a200b466/)
+  > En wéér was het raak. Juwelier Leo de Haas (82) was zaterdag voor de zevende keer het slachtoffer van een (poging tot) overval op zijn zaak Sativar...
+- [Wacht nog even met het wassen van je auto: Saharastof komt vanmiddag onze kant op](https://www.ad.nl/binnenland/wacht-nog-even-met-het-wassen-van-je-auto-saharastof-komt-vanmiddag-onze-kant-op~a5603254/)
+  > Wil je je auto wassen? Wacht dan nog even tot maandag. Vanuit het zuiden van het land wordt er vanaf vandaag flink wat Saharastof aangevoerd. Waar...
 
 ### Meest gelezen
 
@@ -47,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Potentiële ABN Amro-dochter NIBC maakt nettoverlies van €38 mln](https://fd.nl/bedrijfsleven/1588290/potentiele-abn-amro-dochter-nibc-maakt-nettoverlies-van-38-mln)
+  > Volgens de Haagse hypotheekbank zijn de negatieve resultaten vooral het gevolg van een eenmalig nettoverlies van €116 mln op de verkoop van...
 - [Live: Grote aanvallen op Teheran, Navo versterkt raketverdediging](https://fd.nl/politiek/1588432/live-grote-aanvallen-op-teheran)
   > De VS en Israël voerden vannacht opnieuw grote aanvallen uit op Iran. De VS willen de aanvallen uitbreiden, terwijl Iran ‘volledig voorbereid’ is op...
 - [Live: Futures Europa wijzen op hogere opening, beurzen in Azië stabiliseren](https://fd.nl/financiele-markten/1588431/live-futures-europa-wijzen-op-hogere-opening-beurzen-in-azie-stabiliseren)
@@ -55,8 +57,6 @@
   > Vanaf 14 maart is het weer tijd voor de internationale kunstbeurs Tefaf. Dit is een greep uit het aanbod dat op de beursvloer te zien zal zijn.
 - [‘Iraniërs zaten hierop te wachten: zelfs de grootste pacifisten vroegen om militaire interventie’](https://fd.nl/politiek/1588113/iraniers-zaten-hierop-te-wachten-zelfs-de-grootste-pacifisten-vroegen-om-militaire-interventie)
   > Anti-Amerika? Anti-Israël? Volgens opinieonderzoeker Pooyan Tamimi Arab richten Iraniërs hun woede vooral op het regime – en zijn ze teleurgesteld in...
-- [Freek moet de rechter ervan overtuigen dat hij niets meer heeft – en al zeker geen miljoenen](https://fd.nl/samenleving/1587562/freek-moet-de-rechter-ervan-overtuigen-dat-hij-niets-meer-heeft-en-al-zeker-geen-miljoenen)
-  > Een vishandel in IJmuiden bleek dekmantel voor handel in verdovende middelen. Freek heeft al jaren vastgezeten, maar moet nog €2,3 mln terugbetalen.
 
 ### Meest gelezen
 
