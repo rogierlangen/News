@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-03-2026 om 14:41*
+*Laatst bijgewerkt: 06-03-2026 om 15:41*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Op non-actief gezette politiechef staat op kieslijst Heerlen, partij neemt maatregelen](https://nos.nl/l/2605176)
+- [Vliegverkeer vanuit Midden-Oosten komt beperkt op gang](https://nos.nl/l/2605188)
+  > Er vertrekken weer mondjesmaat lijnvluchten van en naar de Golfregio. Luchtvaartmaatschappijen willen de komende dagen het aantal vluchten opvoeren,...
+- [Anonieme verklaringen over beschuldiging misbruik van minderjarige door Trump](https://nos.nl/l/2605186)
+  > Het Amerikaanse ministerie van Justitie heeft documenten van de FBI vrijgegeven over gesprekken met een vrouw die president Trump heeft beschuldigd...
+- [Vanaf april minder bussen in Utrecht, 'moet meer zekerheid geven'](https://nos.nl/l/2605179)
+  > De vervoersbedrijven Transdev en Keolis willen vanaf april minder bussen laten rijden in de provincie Utrecht, zodat reizigers minder vaak te maken...
+- [Op non-actief gezette politiechef op kieslijst Heerlen, VVD neemt maatregelen](https://nos.nl/l/2605176)
   > Een teamchef van de politie die gisteren op non-actief is gezet, staat op de kieslijst van de VVD in Heerlen. Er worden maatregelen getroffen, meldt...
 - [Zoektocht naar advocaten voor Taghi gaat langer duren](https://nos.nl/l/2605175)
   > De zoektocht naar nieuwe advocaten voor Ridouan Taghi gaat nog twee maanden langer duren. Het is nog niet gelukt een ander advocatenteam te vinden,...
-- [Vier woningen onbewoonbaar na explosie Amsterdam, mogelijk opzet](https://nos.nl/l/2605174)
-  > Bij een woning in Amsterdam-Zuid is vannacht na een zware explosie brand uitgebroken. Vier woningen zijn onbewoonbaar verklaard. De politie...
-- [Vertrouwenscrisis op ic van Erasmus MC, inspectie onderzoekt werkcultuur](https://nos.nl/l/2605171)
-  > Op de intensive care van het Erasmus Medisch Centrum, onder leiding van Diederik Gommers, heerst al jaren een vertrouwenscrisis tussen een deel van...
-- [Wereldwijd drugs- en witwasnetwerk ontmanteld: 'Boodschap aan de onderwereld'](https://nos.nl/l/2605168)
-  > Bij een internationale politieactie tegen een groot crimineel netwerk zijn dinsdag vijftien mensen opgepakt. De organisatie hield zich wereldwijd...
 
 ### Meest gelezen
 
@@ -27,15 +27,15 @@
 
 ### Laatste nieuws
 
-- [‘Rusland helpt Iran Amerikaanse doelen te lokaliseren’](https://www.ad.nl/buitenland/rusland-helpt-iran-amerikaanse-doelen-te-lokaliseren~aa965dcc/)
-  > Rusland helpt Iran om Amerikaanse troepen te lokaliseren en te treffen, meldt The Washington Post. Rusland vertelde Iran onder meer waar Amerikaanse...
-- [Van Persie vindt NAC uit zwaar, maar niet cruciaal: ‘Als we niet winnen? Dan staan we nog tweede’](https://www.ad.nl/voetbal/van-persie-vindt-nac-uit-zwaar-maar-niet-cruciaal-als-we-niet-winnen-dan-staan-we-nog-tweede~a6d8e81a/)
-  > Robin van Persie verwacht een loodzware uitwedstrijd tegen NAC zondagmiddag in Breda. De trainer van Feyenoord weigert de wedstrijd in Brabant echter...
-- [‘Doe jij mee aan de ramadan?’ vraagt agent aan man: daarna barst hij in tranen uit](https://www.ad.nl/binnenland/doe-jij-mee-aan-de-ramadan-vraagt-agent-aan-man-daarna-barst-hij-in-tranen-uit~a7c31036/)
-  > „Doe jij mee aan de ramadan?”, vraag ik de bestuurder van een bromfiets die ik net staande heb gehouden. De man barst in tranen uit en geeft toe dat...
-- [Minister gaat niet ingrijpen na ongeluk door grenscontroles](https://www.ad.nl/politiek/minister-gaat-niet-ingrijpen-na-ongeluk-door-grenscontroles~a5d331ee/)
-  > Het kabinet gaat vooralsnog niet ingrijpen bij de controles aan de grens met Duitsland. Burgemeester Boumans van Doetinchem had daarom gevraagd, na...
-- [Wesley Plaisier verrassend uitgeschakeld, Van Barneveld sluit middag af tegen sterke Tsjech](https://www.ad.nl/darts/wesley-plaisier-verrassend-uitgeschakeld-van-barneveld-sluit-middag-af-tegen-sterke-tsjech~a5801bf2/)
+- [Trump wil met Iran alleen een deal sluiten als land zich onvoorwaardelijk overgeeft](https://www.ad.nl/buitenland/trump-wil-met-iran-alleen-een-deal-sluiten-als-land-zich-onvoorwaardelijk-overgeeft~ac528ac3/)
+  > De Amerikaanse president Donald Trump wil met Iran alleen een deal sluiten als het land zich onvoorwaardelijk overgeeft. Dat schrijft Trump in een...
+- [Ruzie tussen Zelensky en Orbán loopt verder op, Brussel noemt dreigement Oekraïense president ‘onaanvaardbaar’](https://www.ad.nl/buitenland/ruzie-tussen-zelensky-en-orban-loopt-verder-op-brussel-noemt-dreigement-oekraiense-president-onaanvaardbaar~a0b2043b/)
+  > De bedreigingen van de Oekraïense president Volodymyr Zelensky aan het adres van de Hongaarse premier Viktor Orbán zijn voor de Europese Commissie...
+- [Depay krijgt 32-voudig Engels international als teamgenoot, Flamengo ontslaat trainer Filipe Luís na 8-0 zege](https://www.ad.nl/voetbal/depay-krijgt-32-voudig-engels-international-als-teamgenoot-flamengo-ontslaat-trainer-filipe-luis-na-8-0-zege~a35ea681/)
+  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
+- [Beveiligingscamera aanschaffen? Dit zijn de beste](https://www.ad.nl/wonen/beveiligingscamera-aanschaffen-dit-zijn-de-beste~a680342e/)
+  > Voor vakantie, werk of huisdieren: een binnencamera kan nuttig zijn. De Consumentenbond testte 25 apparaten op beeldkwaliteit, detectie en...
+- [Doets en Veenstra door naar vierde ronde, Raymond van Barneveld sluit middag af](https://www.ad.nl/darts/doets-en-veenstra-door-naar-vierde-ronde-raymond-van-barneveld-sluit-middag-af~a5801bf2/)
   > Meer dan de helft van de Nederlandse deelnemers speelt vrijdagmiddag al in de eerste rondes van de UK Open. Maar liefst 24 landgenoten doen een gooi...
 
 ### Meest gelezen
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Het bedrijfsleven moet ook investeren in de taalvaardigheid van nieuwe generatie werknemers](https://fd.nl/opinie/1587960/het-bedrijfsleven-moet-ook-investeren-in-de-taalvaardigheid-van-nieuwe-generatie-werknemers)
-  > De cijfers over de taalbeheersing door jongeren zijn schrikbarend. Ook het bedrijfsleven heeft hier een rol te spelen: investeren in onze taal.
-- [Koers Besi hard onderuit na berichten over aanpassing chipstandaard](https://fd.nl/bedrijfsleven/1588323/koers-besi-hard-onderuit-na-berichten-over-aanpassing-chipstandaard)
-  > Het aandeel verliest vrijdag meer dan 15%, na berichten over een mogelijke aanpassing van een chipstandaard, waardoor wellicht minder vraag ontstaat...
-- [Omzet in auto- en motorbranche daalde in 2025, na jaren van stijging](https://fd.nl/bedrijfsleven/1588438/omzet-in-auto-en-motorbranche-daalde-in-2025-na-jaren-van-stijging)
-  > De omzet in de auto- en motorbranche is, na jaren van stijging, in 2025 met 2,6% gedaald. Toch is er veel vertrouwen in de toekomst.
-- [Ruim 6% van Zuid‑Holland is in gebruik als bedrijventerrein](https://fd.nl/bedrijfsleven/1588445/ruim-6-van-zuidholland-is-in-gebruik-als-bedrijventerrein)
-  > De provincie heeft landelijk gezien de meeste hectaren bedrijventerrein. Dat is onder andere te danken aan de haven. In Drenthe is het belang van...
-- [Harde knallen en trillende ramen: expats in Dubai blikken terug](https://fd.nl/bedrijfsleven/1588436/harde-knallenen-trillende-ramen-expats-in-dubai-blikken-terug)
-  > De vrees in Dubai zat er goed in toen vorige week Iraanse raketten op de stad werden afgevuurd. Veel Nederlandse expats en ondernemers zochten...
+- [ING en Rabobank schieten Vesteda te hulp na uitstappende investeerders](https://fd.nl/financiele-markten/1588439/ing-en-rabobank-schieten-woningbelegger-vesteda-te-hulp-na-uitstappende-investeerders)
+  > Een overbruggingskrediet moet de zorgen bij kredietbeoordelaars temperen, nadat de woningbelegger had  gemeld dat bijna alle investeerders in zijn...
+- [‘SoftBank wil $40 mrd lenen voor nieuwe injectie in OpenAI’](https://fd.nl/tech-en-innovatie/1588328/softbank-wil-40-mrd-lenen-voor-nieuwe-injectie-in-openai)
+  > Het zou de grootste dollarlening zijn die de Japanse techinvesteerder ooit aanging.
+- [Praktische oplossingen om de planeet te redden](https://fd.nl/samenleving/1586684/praktische-oplossingen-om-de-planeet-te-redden)
+  > Zolang we vanuit het huidige kapitalisme blijven denken, kunnen we de planeet niet redden, betoogt Willem Jan van Andel in zijn boek. Het goede...
+- [Reddit verkocht ziel voor habbekrats aan AI-bedrijven](https://fd.nl/financiele-markten/1588380/reddit-verkocht-ziel-voor-habbekrats-aan-ai-bedrijven)
+  > Nederlandse uitgevers hopen op een deal met de AI-bedrijven voor het gebruik van hun artikelen. Maar het voorbeeld van Reddit, dat als een van de...
+- [Kabinet zet ‘eerste stap’ naar nieuwe zzp-wet](https://fd.nl/politiek/1588178/kabinet-zet-eerste-stap-naar-nieuwe-zzp-wet)
+  > VVD-minister Thierry Aartsen schrapt zzp-wetsvoorstel vorige kabinetten grotendeels, maar behoudt de bescherming voor lage uurlonen. Volgende stap:...
 
 ### Meest gelezen
 
