@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-03-2026 om 16:33*
+*Laatst bijgewerkt: 07-03-2026 om 17:26*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Tanzania houdt zich niet aan akkoord en stuurt Burundezen terug naar huis](https://nos.nl/l/2605377)
+  > Duizenden vluchtelingen uit Burundi die vaak al jarenlang in buurland Tanzania wonen, worden sinds kort met harde hand teruggestuurd. De twee landen...
 - [Verdachte van 34 jaar oude moord in Den Haag onverwacht vrijgelaten](https://nos.nl/l/2605371)
   > De Haagse rechtbank heeft een man vrijgelaten tegen wie onlangs nog 14 jaar celstraf was geëist wegens betrokkenheid bij een moord in 1992.
        ...
@@ -17,8 +19,6 @@
   > Sinds het begin van de aanval van de Verenigde Staten en Israël op Iran stijgen de Nederlandse brandstofprijzen en gaan ook meer Nederlanders de...
 - [Repatriëring van Nederlanders komt op gang, twee vluchten uitgesteld](https://nos.nl/l/2605324)
   > De repatriëring van Nederlanders begint op gang te komen. Er zijn sinds afgelopen nacht twee vluchten op Schiphol geland, één vanuit Egypte en één...
-- [Verzoenende boodschap Iran aan Golfstaten, maar het is de vraag wat die waard is](https://nos.nl/l/2605319)
-  > Het was een opmerkelijke toezegging van de Iraanse president vanmorgen, precies een week na het begin van de aanval op zijn land. "Vanaf nu moeten...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Emily in Paris-ster Lily Collins krijgt gestolen verlovingsring na drie jaar terug](https://www.ad.nl/show/emily-in-paris-ster-lily-collins-krijgt-gestolen-verlovingsring-na-drie-jaar-terug~a2612179/)
-  > Actrice Lily Collins heeft haar verlovingsring teruggekregen, bijna drie jaar nadat die was gestolen. Dat liet de Emily in Paris-ster weten via...
-- [LIVE eredivisie | Ajax op gelijke hoogte met FC Groningen, voorkomen Amsterdammers nieuw puntenverlies?](https://www.ad.nl/voetbal/live-eredivisie-ajax-op-gelijke-hoogte-met-fc-groningen-voorkomen-amsterdammers-nieuw-puntenverlies~ab29742a/)
+- [LIVE eredivisie | Ajax diep in de problemen: invaller groeit uit tot held FC Groningen met twee goals](https://www.ad.nl/voetbal/live-eredivisie-ajax-diep-in-de-problemen-invaller-groeit-uit-tot-held-fc-groningen-met-twee-goals~ab29742a/)
   > Ajax is ondanks het vele puntenverlies van de afgelopen weken (vier keer gelijk in de laatste vier wedstrijden) nog volop in de race voor de tweede...
+- [Duel tussen ADO Den Haag en Almere City ligt stil vanwege medisch noodgeval](https://www.ad.nl/voetbal/duel-tussen-ado-den-haag-en-almere-city-ligt-stil-vanwege-medisch-noodgeval~a21b516e/)
+  > Promotie naar de eredvisiei komt voor ADO Den Haag steeds dichterbij. De koploper van de Keuken Kampioen Divisie vervolgt de route bij Almere City....
+- [Emily in Paris-ster Lily Collins krijgt gestolen verlovingsring na drie jaar terug](https://www.ad.nl/show/emily-in-paris-ster-lily-collins-krijgt-gestolen-verlovingsring-na-drie-jaar-terug~a2612179/)
+  > Actrice Lily Collins heeft haar verlovingsring teruggekregen, bijna drie jaar nadat die werd gestolen. Dat liet de Emily in Paris-ster weten via...
 - [Van Gerwen na moeizame start te sterk voor Duitser, Noppert heeft geen kind aan Wright](https://www.ad.nl/darts/van-gerwen-na-moeizame-start-te-sterk-voor-duitser-noppert-heeft-geen-kind-aan-wright~a42b6ac5/)
   > Michael van Gerwen heeft zich geplaatst voor de laatste zestien van de UK Open. Hij won na een moeizame start van de Duitser Kai Gotthardt: 10-6....
 - [Sponsor Jutta Leerdam strikt ook Femke Bol: steunt avontuur op 800 meter](https://www.ad.nl/andere-sporten/sponsor-jutta-leerdam-strikt-ook-femke-bol-steunt-avontuur-op-800-meter~a26da295/)
   > De hoofdsponsor van olympisch kampioene Jutta Leerdam, KaFra Housing, gaat de komende jaren ook in zee met de Nederlandse atletiekster Femke Bol. Zo...
-- [Mindfulness kan voor iedereen nuttig zijn: het kan zelfs op de fiets en tijdens de afwas](https://www.ad.nl/wetenschap/mindfulness-kan-voor-iedereen-nuttig-zijn-het-kan-zelfs-op-de-fiets-en-tijdens-de-afwas~a59cdc4a/)
-  > Mindfulness klinkt misschien vaag, maar de wetenschap laat zien dat het werkt. Psychiater Anne Speckens doet onderzoek naar mindfulness, en legt uit...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [‘Europese Commissie onderzoekt maatregelen tegen hoge energieprijzen industrie’](https://fd.nl/politiek/1588496/europese-commissie-onderzoekt-maatregelen-tegen-hoge-energieprijzen-industrie)
+  > Brussel overweegt een aantal maatregelen te nemen om de stijgende energieprijzen voor de Europese industrie binnen de perken te houden.
 - [Trump: ‘VS in onderhandelingen met Cuba’](https://fd.nl/politiek/1588345/trump-vs-in-onderhandelingen-met-cuba)
   > Volgens Trump wil Cuba graag een deal sluiten met de VS.
 - [‘Airbus en Rheinmetall willen samen Duits militair satellietnetwerk ontwikkelen’](https://fd.nl/bedrijfsleven/1588344/airbus-en-rheinmetall-willen-samen-militair-satellietnetwerk-ontwikkelen)
   > Een consortium van Europese defensiebedrijven gaat meedingen bij een aanbesteding voor een met Starlink vergelijk satellietnetwerk.
 - [Oracle en OpenAI zetten streep door  gezamenlijke uitbreiding megadatacenter](https://fd.nl/bedrijfsleven/1588342/oracle-en-openai-zetten-streep-door-gezamenlijke-uitbreiding-megadatacenter)
   > Techbedrijven Oracle en OpenAI stoppen met onderhandelingen over uitbreiding van een megadatacenter.
-- [Live: Koeweit verlaagt olieproductie, ‘Turkije overweegt F-16’s naar Cyprus te sturen’](https://fd.nl/politiek/1588495/live-iraanse-president-zegt-met-aanvallen-op-buurlanden-te-stoppen)
+- [Live: Koeweit verlaagt olieproductie, nieuwe Iraanse aanvallen op Golfstaten](https://fd.nl/politiek/1588495/live-iraanse-president-zegt-met-aanvallen-op-buurlanden-te-stoppen)
   > Op dag acht van de oorlog vinden opnieuw Amerikaanse en Israëlische bombardementen plaats op Iran. De Iraanse president zegt zaterdagochtend geen...
-- [‘€10 mrd besparen klinkt daadkrachtig, maar lijkt verkapte bezuinigingsronde’](https://fd.nl/opinie/1588329/10-mrd-besparen-klinkt-daadkrachtig-maar-lijkt-verkapte-bezuinigingsronde-en-andere-lezersreacties)
-  > FD-lezers reageren op de plannen van kabinet-Jetten om te bezuinigen op de zorg, of aardgas wel zo betrouwbaar is en een manke vergelijking met de...
 
 ### Meest gelezen
 
