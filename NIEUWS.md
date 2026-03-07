@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-03-2026 om 13:42*
+*Laatst bijgewerkt: 07-03-2026 om 14:28*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Nederlanders tanken massaal over de grens, 'scheelt een berg geld'](https://nos.nl/l/2605345)
+  > Sinds het begin van de aanval van de Verenigde Staten en Israël op Iran stijgen de Nederlandse brandstofprijzen en gaan ook meer Nederlanders de...
 - [Repatriëring van Nederlanders uit Midden-Oosten komt op gang](https://nos.nl/l/2605324)
   > De repatriëring van Nederlanders begint op gang te komen. Er zijn sinds afgelopen nacht twee repatriëringsvluchten op Schiphol geland, één vanuit...
 - [Verzoenende boodschap Iran aan Golfstaten, maar het is de vraag wat die waard is](https://nos.nl/l/2605319)
   > Het was een opmerkelijke toezegging van de Iraanse president vanmorgen, precies een week na het begin van de aanval op zijn land. "Vanaf nu moeten...
-- [Binnenvaartschip loopt vast in dichte mist bij Terneuzen](https://nos.nl/l/2605317)
-  > In dichte mist is vanochtend een binnenvaartschip vastgelopen op de Westerschelde, vlak bij Terneuzen.
-        Het gaat om de Coccinella, een...
+- [Binnenvaartschip loopt in dichte mist vast in Westerschelde bij Terneuzen](https://nos.nl/l/2605317)
+  > In dichte mist is vanochtend een binnenvaartschip vastgelopen in de Westerschelde, vlak bij Terneuzen. Het gaat om de Coccinella, een...
 - [Er komt weer leven in het oudste aquarium ter wereld in Artis](https://nos.nl/l/2605314)
   > Het monumentale aquarium in Artis Amsterdam bereidt zich langzaam voor op heropening na een opknapbeurt die ruim vijf jaar heeft geduurd. Op dit...
-- [Grote brand in chemiepark bij Delfzijl, NL-Alert verstuurd wegens rook](https://nos.nl/l/2605307)
-  > In een chemiepark bij Delfzijl heeft vanochtend een grote brand gewoed. Omdat daarbij veel rook vrijkwam is een NL-Alert verstuurd voor de omgeving....
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Vroege vlucht ingerekend door peloton met Tadej Pogacar](https://www.ad.nl/wielrennen/vroege-vlucht-ingerekend-door-peloton-met-tadej-pogacar~af1fa9c7/)
-  > De mannen zijn toe aan de twintigste editie van de Strade Bianchi. In een rit van 201 kilometer vol met verschillende grindwegen is Tadej Pogacar de...
-- [De gevaarlijkste leidinggevenden zijn niet alleen degenen die schreeuwen of intimideren](https://www.ad.nl/economie/de-gevaarlijkste-leidinggevenden-zijn-niet-alleen-degenen-die-schreeuwen-of-intimideren~a755d7f5/)
-  > De leidinggevende van salarisadministrateur Mariska (55) was van een gevaarlijk soort. Wat begon als steun, veranderde langzaam in afhankelijkheid....
-- [Valpartijen voorkomen? Vergeten spiertjes in de voet blijken goud waard voor ouderen](https://www.ad.nl/wetenschap/valpartijen-voorkomen-vergeten-spiertjes-in-de-voet-blijken-goud-waard-voor-ouderen~a34cb6537/)
-  > Valpartijen zijn de grootste oorzaak van ernstig letsel bij ouderen. Bewegingswetenschapper Lydia Willemse onderzocht of kleine, vergeten voetspieren...
-- [Trump verandert oorlog met Iran in ‘videogame’: makers van Pokémon en acteur Ben Stiller boos](https://www.ad.nl/buitenland/trump-verandert-oorlog-met-iran-in-videogame-makers-van-pokemon-en-acteur-ben-stiller-boos~ae4ff26e/)
-  > Het Witte Huis voert de strijd tegen Iran niet alleen op het slagveld, maar ook op sociale media. Met een opmerkelijke strategie: echte beelden van...
-- [Zwitserse wint bizarre Strade Bianche Donne bomvol incidenten, geen Nederlanders op podium](https://www.ad.nl/wielrennen/zwitserse-wint-bizarre-strade-bianche-donne-bomvol-incidenten-geen-nederlanders-op-podium~acd87614/)
-  > Elise Chabbey heeft een zeer chaotische editie van de Strade Bianche Donne gewonnen. De Zwitserse van FDJ - Suez won de sprint van Kasia Niewiadoma....
+- [LIVE eredivisie | Fred Grim kiest voor Weghorst, Berghuis en Mokio op bezoek bij FC Groningen](https://www.ad.nl/voetbal/live-eredivisie-fred-grim-kiest-voor-weghorst-berghuis-en-mokio-op-bezoek-bij-fc-groningen~ab29742a/)
+  > Ajax is ondanks het vele puntenverlies van de afgelopen weken (vier keer gelijk in de laatste vier wedstrijden) nog volop in de race voor de tweede...
+- [Schrijvers Yvonne en Valentijn leren van elkaar: ‘Soms gebruikt ze woorden waarvan ik zeg: jeetje mina, gebruik jij die nog?’](https://www.ad.nl/mezza/schrijvers-yvonne-en-valentijn-leren-van-elkaar-soms-gebruikt-ze-woorden-waarvan-ik-zeg-jeetje-mina-gebruik-jij-die-nog~a15fed57/)
+  > Schrijven kan niemand alleen. Drie gevestigde schrijvers en de jonge auteurs die zij begeleidden vertellen in ons weekendmagazine Mezza over schuren,...
+- [Actrice Annet Malherbe (68): ‘Ik ben in een ander laatje terechtgekomen, het ouwevrouwenlaatje’](https://www.ad.nl/show/actrice-annet-malherbe-68-ik-ben-in-een-ander-laatje-terechtgekomen-het-ouwevrouwenlaatje~ad34a6a6/)
+  > In de nieuwe serie Rust en Vreugd - naar het boek van Hendrik Groen - speelt ze een vrouw die opnieuw moet leren wortelen. Zelf is actrice Annet...
+- [Niels (27) verloor beide benen, maar won een lade vol medailles: ‘Hoef mij niet te schamen’](https://www.ad.nl/binnenland/niels-27-verloor-beide-benen-maar-won-een-lade-vol-medailles-hoef-mij-niet-te-schamen~a02cd10e/)
+  > Hij verloor als kind zijn benen, maar nooit zijn geloof in wat wél kan. Para-skiër Niels de Langen (27) won zaterdag een gouden medaille op de...
+- [Jade Anna heeft het even lastig en Samantha verwelkomt nieuw familielid](https://www.ad.nl/show/jade-anna-heeft-het-even-lastig-en-samantha-verwelkomt-nieuw-familielid~a04d1aee/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
 
 ### Meest gelezen
 
