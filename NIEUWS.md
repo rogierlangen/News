@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-03-2026 om 10:28*
+*Laatst bijgewerkt: 07-03-2026 om 11:24*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Grote brand in chemiepark bij Delfzijl, NL-Alert verstuurd wegens rook](https://nos.nl/l/2605307)
+  > In een chemiepark bij Delfzijl heeft vanochtend een grote brand gewoed. Omdat daarbij veel rook vrijkwam is een NL-Alert verstuurd voor de omgeving....
+- [8 doden na hevige regenval Nairobi in Kenia, 'dodental kan nog oplopen'](https://nos.nl/l/2605300)
+  > In de Keniaanse hoofdstad Nairobi zijn vannacht ten minste acht mensen om het leven gekomen door de gevolgen van hevige regenval. Volgens de politie...
 - [Vervuilende bedrijven gaan de elektrische autobezitter betalen](https://nos.nl/l/2605289)
   > Geld verdienen met het opladen van je elektrische auto? Henri Udding doet het. "Ik heb de afgelopen twee maanden al zo'n 80 euro binnengehaald",...
 - [Doden bij Russische aanvallen op Charkiv, ook luchtaanvallen op andere steden](https://nos.nl/l/2605272)
   > In de Oekraïense stad Charkiv zijn vannacht zeven mensen om het leven gekomen door Russische luchtaanvallen. Volgens de lokale gouverneur zijn onder...
 - [Werktrein ontspoord, hele weekend geen treinen tussen Tilburg en Den Bosch](https://nos.nl/l/2605269)
   > Doordat er een werktrein is ontspoord rijden er het hele weekend geen treinen tussen Den Bosch en Tilburg. In plaats daarvan rijden er bussen tussen...
-- [Kabinetsplannen om ouderschapsverlof te versoberen 'stap terug voor gendergelijkheid'](https://nos.nl/l/2605267)
-  > De plannen van het nieuwe kabinet kunnen leiden tot meer genderongelijkheid. Dat zeggen onderzoekers tegen de NOS.
-        Het kabinet wil de...
-- [Podcast De Dag: de verziekte sfeer bij het Erasmus MC](https://nos.nl/l/2605266)
-  > Op de intensive care van het Erasmus Medisch Centrum, onder leiding van Diederik Gommers, heerst al jaren een vertrouwenscrisis tussen een deel van...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Man rijdt parkeergarage uit met uitgekookt trucje, maar krijgt fikse boete waar je vakantie van kunt boeken](https://www.ad.nl/auto/man-rijdt-parkeergarage-uit-met-uitgekookt-trucje-maar-krijgt-fikse-boete-waar-je-vakantie-van-kunt-boeken~a303340b/)
-  > Een uurtje parkeren in een parkeergarage  in Eindhoven draait voor een automobilist uit op een flinke financiële strop. Hij deed aan ‘treintje...
-- [Hoteleigenaren in Spanje woest op Nederlanders beddenverkoper: ‘Deze man moet worden gestopt’](https://www.ad.nl/binnenland/hoteleigenaren-in-spanje-woest-op-nederlanders-beddenverkoper-deze-man-moet-worden-gestopt~a33e7b3a/)
-  > Het beddenbedrijf van Nederlander Gillion de Kanter krijgt het er online flink van langs. Tientallen Nederlandse hoteleigenaren in Spanje wachten al...
-- [Nederland nog zonder eremetaal op dag één, Rusland pakt eerste medaille](https://www.ad.nl/olympische-spelen/nederland-nog-zonder-eremetaal-op-dag-een-rusland-pakt-eerste-medaille~abaa4b11/)
-  > De Paralympische Winterspelen zijn begonnen. Zonder schaatsdisciplines hoopt Nederland op medailles in het para-alpineskiën en parasnowboarden....
-- [Kwetsbare zzp’er kan zich moeilijk verzekeren, zelfs oude blessures zorgen voor afwijzing](https://www.ad.nl/economie/kwetsbare-zzper-kan-zich-moeilijk-verzekeren-zelfs-oude-blessures-zorgen-voor-afwijzing~a40cb6c1/)
-  > Iedere zelfstandige moet zich kunnen verzekeren tegen arbeidsongeschiktheid. In de praktijk blijkt dit niet altijd even eenvoudig. Zeker 5 procent...
-- [Paraskiester Van Bergen loopt lichte hersenschudding op na val op afdaling, ook Petit mist podium](https://www.ad.nl/olympische-spelen/paraskiester-van-bergen-loopt-lichte-hersenschudding-op-na-val-op-afdaling-ook-petit-mist-podium~a784c396/)
-  > Zitskiester Barbara van Bergen (47) is gevallen op de paralympische afdaling. Ze liep daarmee een lichte hersenschudding op. Vooraf was ze een van de...
+- [10-jarige Max verovert Paris Fashion Week als jongste ontwerper ooit, zijn mode heeft een boodschap](https://www.ad.nl/show/10-jarige-max-verovert-paris-fashion-week-als-jongste-ontwerper-ooit-zijn-mode-heeft-een-boodschap~af0e16e4/)
+  > Jong geleerd is ook gedaan. De 10-jarige Max Alexander is al bijna zijn hele leven bezig met het maken van creaties en krijgt nu veel lof als de...
+- [Tuinieren kan onnodig veel geld kosten, sommige planten groeien gewoon gratis](https://www.ad.nl/wonen/tuinieren-kan-onnodig-veel-geld-kosten-sommige-planten-groeien-gewoon-gratis~a7a09519/)
+  > Het tuinseizoen begint, een mooi moment om na te denken over de kosten van de tuin in het komende seizoen. Tuinieren kan verkwistend zijn, weet...
+- [Veel doden bij Israëlische luchtaanval in Libanon, TUI zoekt vlucht voor honderden Nederlanders](https://www.ad.nl/buitenland/veel-doden-bij-israelische-luchtaanval-in-libanon-tui-zoekt-vlucht-voor-honderden-nederlanders~ac528ac3/)
+  > Bij Israëlische luchtaanvallen en een aanval met commando's, die met vier helikopters werden aangevoerd, zijn volgens Libanese media zeker 26 doden...
+- [Wie klopt grote favoriet Tadej Pogacar in Strade Bianche? Peloton van start](https://www.ad.nl/wielrennen/wie-klopt-grote-favoriet-tadej-pogacar-in-strade-bianche-peloton-van-start~af1fa9c7/)
+  > De mannen zijn toe aan de twintigste editie van de Strade Bianchi. In een rit van 201 kilometer vol met verschillende grindwegen is Tadej Pogacar de...
+- [Joy Beune in Thialf op jacht naar titelprolongatie, eerst op 500 meter](https://www.ad.nl/schaatsen/joy-beune-in-thialf-op-jacht-naar-titelprolongatie-eerst-op-500-meter~a1bb1981/)
+  > Nog een paar kilometer schaatsen en het seizoen zit erop voor de schaatstoppers. Vandaag begint het WK allround in Thialf. Slaagt Joy Beune erin haar...
 
 ### Meest gelezen
 
