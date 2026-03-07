@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-03-2026 om 17:26*
+*Laatst bijgewerkt: 07-03-2026 om 18:40*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Tanzania houdt zich niet aan akkoord en stuurt Burundezen terug naar huis](https://nos.nl/l/2605377)
+- [Dag 8 van de oorlog: dodental in Libanon stijgt, opvallend bericht uit Iran](https://nos.nl/l/2605392)
+  > Een week na het begin van de oorlog in het Midden-Oosten waren er vandaag opnieuw Israëlische luchtaanvallen op de Iraanse hoofdstad Teheran. Onder...
+- [Schuilkelders in Israël oneerlijk verdeeld, vooral bedoeïenen kwetsbaar](https://nos.nl/l/2605388)
+  > Israëliërs die rennen naar de schuilkelder bij een luchtalarm, het zijn beelden die deze dagen veel voorbijkomen. Maar lang niet iedereen heeft de...
+- [Woonwagenbewoners zoeken invloed in gemeenteraad: 'Niet over ons, maar met ons'](https://nos.nl/l/2605381)
+  > Het tekort aan standplaatsen voor woonwagens loopt al jaren op. Na jarenlange wachtlijsten, rechtszaken en niet nagekomen politieke beloften kiezen...
+- [Tanzania houdt zich niet aan akkoord en zet Burundezen met geweld uit](https://nos.nl/l/2605377)
   > Duizenden vluchtelingen uit Burundi die vaak al jarenlang in buurland Tanzania wonen, worden sinds kort met harde hand teruggestuurd. De twee landen...
 - [Verdachte van 34 jaar oude moord in Den Haag onverwacht vrijgelaten](https://nos.nl/l/2605371)
   > De Haagse rechtbank heeft een man vrijgelaten tegen wie onlangs nog 14 jaar celstraf was geëist wegens betrokkenheid bij een moord in 1992.
        ...
-- [Zweden entert schip, vermoedelijk van de Russische schaduwvloot](https://nos.nl/l/2605363)
-  > Zweden heeft een schip geënterd dat vermoedelijk onder valse vlag voer. Dat meldt de Zweedse kustwacht op een persconferentie. Het schip 'Kaffa', met...
-- [Nederlanders tanken massaal over de grens, 'scheelt een berg geld'](https://nos.nl/l/2605345)
-  > Sinds het begin van de aanval van de Verenigde Staten en Israël op Iran stijgen de Nederlandse brandstofprijzen en gaan ook meer Nederlanders de...
-- [Repatriëring van Nederlanders komt op gang, twee vluchten uitgesteld](https://nos.nl/l/2605324)
-  > De repatriëring van Nederlanders begint op gang te komen. Er zijn sinds afgelopen nacht twee vluchten op Schiphol geland, één vanuit Egypte en één...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [LIVE eredivisie | Ajax diep in de problemen: invaller groeit uit tot held FC Groningen met twee goals](https://www.ad.nl/voetbal/live-eredivisie-ajax-diep-in-de-problemen-invaller-groeit-uit-tot-held-fc-groningen-met-twee-goals~ab29742a/)
-  > Ajax is ondanks het vele puntenverlies van de afgelopen weken (vier keer gelijk in de laatste vier wedstrijden) nog volop in de race voor de tweede...
-- [Duel tussen ADO Den Haag en Almere City ligt stil vanwege medisch noodgeval](https://www.ad.nl/voetbal/duel-tussen-ado-den-haag-en-almere-city-ligt-stil-vanwege-medisch-noodgeval~a21b516e/)
-  > Promotie naar de eredvisiei komt voor ADO Den Haag steeds dichterbij. De koploper van de Keuken Kampioen Divisie vervolgt de route bij Almere City....
-- [Emily in Paris-ster Lily Collins krijgt gestolen verlovingsring na drie jaar terug](https://www.ad.nl/show/emily-in-paris-ster-lily-collins-krijgt-gestolen-verlovingsring-na-drie-jaar-terug~a2612179/)
-  > Actrice Lily Collins heeft haar verlovingsring teruggekregen, bijna drie jaar nadat die werd gestolen. Dat liet de Emily in Paris-ster weten via...
-- [Van Gerwen na moeizame start te sterk voor Duitser, Noppert heeft geen kind aan Wright](https://www.ad.nl/darts/van-gerwen-na-moeizame-start-te-sterk-voor-duitser-noppert-heeft-geen-kind-aan-wright~a42b6ac5/)
-  > Michael van Gerwen heeft zich geplaatst voor de laatste zestien van de UK Open. Hij won na een moeizame start van de Duitser Kai Gotthardt: 10-6....
-- [Sponsor Jutta Leerdam strikt ook Femke Bol: steunt avontuur op 800 meter](https://www.ad.nl/andere-sporten/sponsor-jutta-leerdam-strikt-ook-femke-bol-steunt-avontuur-op-800-meter~a26da295/)
-  > De hoofdsponsor van olympisch kampioene Jutta Leerdam, KaFra Housing, gaat de komende jaren ook in zee met de Nederlandse atletiekster Femke Bol. Zo...
+- [Wekker zetten voor start F1-seizoen: zo vroeg racet Max Verstappen en dit is de startopstelling](https://www.ad.nl/formule-1/wekker-zetten-voor-start-f1-seizoen-zo-vroeg-racet-max-verstappen-en-dit-is-de-startopstelling~a71841049/)
+  > Het nieuwe Formule 1-seizoen gaat na zes testdagen in Bahrein nu echt beginnen. Max Verstappen hoopt met zijn nieuwe Red Bull Racing het...
+- [Zorgen is nog altijd een vrouwentaak: ‘Mannen doen zichzelf ernstig tekort’](https://www.ad.nl/gezond/zorgen-is-nog-altijd-een-vrouwentaak-mannen-doen-zichzelf-ernstig-tekort~ab2c56de/)
+  > „Mijn man is heel geëmancipeerd.” De vrouw die dit zegt, wekt argwaan, want het blijkt eerder uitzondering dan regel. Amper 10 procent van de vaders...
+- [Ontroerde Martina Sablikova ondersteboven van afscheid dat ze krijgt van vol Thialf: ‘Ik ga dit heel erg missen’](https://www.ad.nl/schaatsen/ontroerde-martina-sablikova-ondersteboven-van-afscheid-dat-ze-krijgt-van-vol-thialf-ik-ga-dit-heel-erg-missen~afc9331a/)
+  > In Heerenveen wacht voor Martina Sablikova (38) zondagmiddag een speciale afscheidsceremonie, na het WK. Maar de Tsjechische besloot haar eigen...
+- [PSV wil tegen AZ bekerkater wegspoelen en start met Ricardo Pepi in de basis](https://www.ad.nl/voetbal/psv-wil-tegen-az-bekerkater-wegspoelen-en-start-met-ricardo-pepi-in-de-basis~a6592aa1/)
+  > De derde opeenvolgende landstitel nadert met rasse schreden voor PSV. De Eindhovenaren hebben met nog 9 speelrondes te gaan een voorsprong van liefst...
+- [‘Olieprijs binnen drie weken naar 150 dollar als cruciale Straat van Hormuz langer dicht blijft’](https://www.ad.nl/economie/olieprijs-binnen-drie-weken-naar-150-dollar-als-cruciale-straat-van-hormuz-langer-dicht-blijft~a3ff4cbc/)
+  > Olielanden rond de Perzische Golf zullen hun olie- en gasproductie deze week moeten terugschroeven als de cruciale Straat van Hormuz dicht blijft. De...
 
 ### Meest gelezen
 
