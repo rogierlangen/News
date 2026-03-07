@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-03-2026 om 23:31*
+*Laatst bijgewerkt: 07-03-2026 om 02:23*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Honderden kilo's cocaïne gevonden tussen bananen in haven van Vlissingen](https://nos.nl/l/2605260)
+  > De Nederlandse douane heeft bij een controle in de haven van Vlissingen een partij cocaïne ontdekt in een pallet met bananen. De pallet stond op een...
+- [RUR-presentator Jan Lenferink overleden, 'founding father van de talkshow op tv'](https://nos.nl/l/2605258)
+  > Voormalig tv-presentator Jan Lenferink is overleden. Dat heeft zijn familie laten weten aan persbureau ANP. Lenferink, die 77 jaar is geworden,...
 - [Aanvallen Pakistan en Afghanistan houden aan, ruim 100.000 mensen op de vlucht](https://nos.nl/l/2605254)
   > De aanvallen tussen Pakistan en Afghanistan lijken onverminderd door te gaan. Al negen dagen wordt vooral in het grensgebied hard gevochten. Een weg...
 - [Schoen met voet van ruim 2 jaar vermiste Yoran (16) gevonden in water](https://nos.nl/l/2605243)
   > In een aftakking van de Beneden-Merwede is deze week een schoen met daarin een voet gevonden. De resten zijn van de vermiste 16-jarige Yoran Krol uit...
 - [Defensie bereidt evacuaties van Nederlanders uit Midden-Oosten voor](https://nos.nl/l/2605236)
   > Het ministerie van Defensie bereidt zich voor om gestrande Nederlanders uit het Midden-Oosten te repatriëren. Dat meldt een woordvoerder van Defensie...
-- [Geen verband tussen dood baby en drinken van babyvoeding in Frankrijk](https://nos.nl/l/2605227)
-  > Er is geen verband gevonden tussen de dood van een Franse baby en vervuilde babyvoeding. Dat meldt het Franse Openbaar Ministerie na onderzoek naar...
-- [Fout in mail: namen van potentiële burgemeesters Zuid-Holland uitgelekt](https://nos.nl/l/2605223)
-  > De provincie Zuid-Holland heeft per ongeluk de namen van tientallen mensen gedeeld die mogelijk burgemeester wilden worden. In een gezamenlijke...
 
 ### Meest gelezen
 
@@ -29,14 +29,14 @@
 
 - [PSV verlengt contract van Lucius, Lingard teamgenoot van Depay](https://www.ad.nl/voetbal/psv-verlengt-contract-van-lucius-lingard-teamgenoot-van-depay~a35ea681/)
   > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
-- [Van Gerwen treedt aan tegen Aspinall oorwassing voor Van Barneveld, Danny Noppert gooit 9-darter en gaat wel door](https://www.ad.nl/darts/van-gerwen-treedt-aan-tegen-aspinall-oorwassing-voor-van-barneveld-danny-noppert-gooit-9-darter-en-gaat-wel-door~a93f077f/)
-  > Op de UK Open heeft Michael van Gerwen zich vrijdagavond geplaatst voor de vijfde ronde, dankzij een 10-8 zege op Nathan Aspinall. Van Gerwen mag het...
-- [Na een vol Thialf wacht nu een volle Euroborg op wereldkampioen Jenning de Boo: ‘Mijn cluppie, mijn stad’](https://www.ad.nl/schaatsen/na-een-vol-thialf-wacht-nu-een-volle-euroborg-op-wereldkampioen-jenning-de-boo-mijn-cluppie-mijn-stad~adbe173d/)
-  > Thuis in Thialf kreeg hij alsnog zijn olympische kwelgeest Jordan Stolz klein en nu kan Jenning de Boo als wereldkampioen sprint beginnen aan het...
-- [Liverpool wint nu wel bij Wolves en is door in FA Cup, ook zeges voor Napoli en Real Madrid](https://www.ad.nl/voetbal/liverpool-wint-nu-wel-bij-wolves-en-is-door-in-fa-cup-ook-zeges-voor-napoli-en-real-madrid~acf49cb4/)
-  > Liverpool heeft zich als eerste club geplaatst voor de kwartfinales van de FA Cup. De ploeg van trainer Arne Slot won vrijdagavond met 1-3 bij...
-- [IJzersterke Jenning de Boo is Spelen-kwelgeest Jordan Stolz nu wel de baas en verovert wereldtitel sprint](https://www.ad.nl/schaatsen/ijzersterke-jenning-de-boo-is-spelen-kwelgeest-jordan-stolz-nu-wel-de-baas-en-verovert-wereldtitel-sprint~a2d800eb/)
-  > Wat Jenning de Boo in Milaan tot twee keer toe niet lukte, flikte hij wel ‘thuis’ in Heerenveen. Op weg naar zijn eerste wereldtitel sprint kreeg de...
+- [Ze wonen tegenover onbewoonbare huizen in Dalfsen en hebben dezelfde gezondheidsklachten: ‘Waarom meten ze niet bij ons?’](https://www.ad.nl/binnenland/ze-wonen-tegenover-onbewoonbare-huizen-in-dalfsen-en-hebben-dezelfde-gezondheidsklachten-waarom-meten-ze-niet-bij-ons~afe775cf/)
+  > Meer dan drie jaar kijken ze tegen leegstaande ‘spookwoningen’ aan. Ontruimd vanwege giftig isolatieschuim. Ook deze bewoners ervaren...
+- [Verstappen heeft medelijden met hen, maar Viaplay-duo stelt Formule 1-fans gerust: ‘Raak niet in paniek’](https://www.ad.nl/formule-1/verstappen-heeft-medelijden-met-hen-maar-viaplay-duo-stelt-formule-1-fans-gerust-raak-niet-in-paniek~aa42e872/)
+  > Max Verstappen heeft medelijden met hen en volgens Lewis Hamilton hebben ze tal van diploma’s nodig. Aan Viaplay-commentatoren Nelson Valkenburg (42)...
+- [Amerikaans leger voert dodelijke operaties uit tegen drughandelaren in Ecuador, Trump: Cuba zal binnenkort vallen](https://www.ad.nl/buitenland/amerikaans-leger-voert-dodelijke-operaties-uit-tegen-drughandelaren-in-ecuador-trump-cuba-zal-binnenkort-vallen~ae67dd9c/)
+  > Het Amerikaanse leger heeft gerichte, dodelijke operaties uitgevoerd in Ecuador, in samenwerking met de strijdkrachten van het land. De operaties...
+- [Voormalig tv-presentator Jan Lenferink (77) overleden](https://www.ad.nl/show/voormalig-tv-presentator-jan-lenferink-77-overleden~a1723818/)
+  > Voormalig tv-presentator Jan Lenferink is vrijdag overleden. Dat heeft zijn familie laten weten aan persbureau ANP.
 
 ### Meest gelezen
 
