@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-03-2026 om 22:28*
+*Laatst bijgewerkt: 07-03-2026 om 23:27*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Topchef Redzepi opnieuw onder vuur na beschuldigingen van mishandeling bij restaurant Noma](https://nos.nl/l/2605433)
+  > De Deense topchef René Redzepi, oprichter van restaurant Noma in Kopenhagen, ligt opnieuw onder vuur na beschuldigingen van fysieke en psychologische...
 - [Dierentuin Wildlands sluit vogelverblijf na dood van drie kuifibissen](https://nos.nl/l/2605413)
   > Het vogelverblijf van Wildlands Adventure Zoo in Emmen is uit voorzorg gesloten na de dood van drie kuifibissen. Twee van de vogels zijn overleden...
 - [Gedenkplaat voor slachtoffers Capitoolbestorming stilletjes opgehangen](https://nos.nl/l/2605411)
@@ -16,8 +18,6 @@
   > Er komt vrijwel zeker geen nieuwe Wilhelminatoren in Valkenburg. De eigenaar van de toren, die een jaar geleden instortte, overweegt geen nieuwbouw....
 - [Verkeersregelaars aangereden bij ruzie in Rotterdam, drie aanhoudingen](https://nos.nl/l/2605403)
   > In Rotterdam heeft een automobilist met opzet drie verkeersregelaars aangereden. Dat gebeurde op de Gordelweg in Rotterdam-Noord. Aan het incident...
-- [Dag 8 van de oorlog: dodental in Libanon stijgt, opvallend bericht uit Iran](https://nos.nl/l/2605392)
-  > Een week na het begin van de oorlog in het Midden-Oosten waren er vandaag opnieuw Israëlische luchtaanvallen op de Iraanse hoofdstad Teheran. Onder...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Verbazing over Andries Jonker als analist bij duel Leeuwinnen: ‘Ik had de keuze niet gemaakt’](https://www.ad.nl/voetbal/verbazing-over-andries-jonker-als-analist-bij-duel-leeuwinnen-ik-had-de-keuze-niet-gemaakt~a9c379e6/)
+  > Voormalig bondscoach Andries Jonker keerde kort na zijn vertrek terug bij de Oranje Leeuwinnen, maar in een andere rol. De trainer was bij het...
+- [Podcast In Het Wiel | ‘Koers in Italië is leuk, maar de organisatie is bijna altijd ruk’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-koers-in-italie-is-leuk-maar-de-organisatie-is-bijna-altijd-ruk~a5ea502e/)
+  > Chaos troef in de Strade Bianche voor vrouwen, waar een groep favorieten de verkeerde afslag neemt. Er kan meteen een streep door hun race. Niek...
 - [Ook Peter Bosz stoort zich aan Wouter Goes: ‘Weet niet of hij in mijn tijd zo lang op het veld gestaan zou hebben’](https://www.ad.nl/voetbal/ook-peter-bosz-stoort-zich-aan-wouter-goes-weet-niet-of-hij-in-mijn-tijd-zo-lang-op-het-veld-gestaan-zou-hebben~a206641d/)
   > Wouter Goes maakt nog altijd geen vrienden op de Nederlandse velden. Ook PSV-coach Peter Bosz stoorde zich zaterdagavond aan de verdediger van AZ...
 - [Heerenveen is uiterst effectief en bezorgt Excelsior vierde nederlaag op rij](https://www.ad.nl/voetbal/heerenveen-is-uiterst-effectief-en-bezorgt-excelsior-vierde-nederlaag-op-rij~ae341862/)
   > Wel kansen, maar geen doelpunten. Het begint het verhaal van het seizoen te worden van Excelsior. Ook tegen Heerenveen was het zaterdagavond weer...
 - [Koploper FC Barcelona boekt zege dankzij fraaie goal Lamine Yamal, Antoine Griezmann geeft geniale assist bij Atlético](https://www.ad.nl/voetbal/koploper-fc-barcelona-boekt-zege-dankzij-fraaie-goal-lamine-yamal-antoine-griezmann-geeft-geniale-assist-bij-atletico~a7f0c051/)
   > FC Barcelona heeft geen fout gemaakt in de titelstrijd. De Catalanen boekten een zwaarbevochten 0-1 overwinning op Athletic Bilbao. Lamine Yamal werd...
-- [Oranje Leeuwinnen vechten zich dankzij Lineth Beerensteyn langs gretig Ierland](https://www.ad.nl/voetbal/oranje-leeuwinnen-vechten-zich-dankzij-lineth-beerensteyn-langs-gretig-ierland~a851668b/)
-  > De Oranje Leeuwinnen hebben de eerste overwinning geboekt in de WK-kwalificatie. In de Galgenwaard werd met veel moeite Ierland met 2-1 verslagen...
-- [Michael van Gerwen kansloos onderuit tegen Wade, Noppert moet Nederlandse eer redden](https://www.ad.nl/darts/michael-van-gerwen-kansloos-onderuit-tegen-wade-noppert-moet-nederlandse-eer-redden~ab5823ad/)
-  > Van de 160 darters die gisteren begonnen aan de UK Open, zijn nog maar 16 over. Twee Nederlanders zijn tot deze fase van het toernooi gekomen....
 
 ### Meest gelezen
 
