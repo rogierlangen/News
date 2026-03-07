@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-03-2026 om 19:26*
+*Laatst bijgewerkt: 07-03-2026 om 20:31*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Verkeersregelaars aangereden bij ruzie in Rotterdam, drie aanhoudingen](https://nos.nl/l/2605403)
+  > In Rotterdam heeft een automobilist met opzet drie verkeersregelaars aangereden. Dat gebeurde op de Gordelweg in Rotterdam-Noord. Aan het incident...
 - [Dag 8 van de oorlog: dodental in Libanon stijgt, opvallend bericht uit Iran](https://nos.nl/l/2605392)
   > Een week na het begin van de oorlog in het Midden-Oosten waren er vandaag opnieuw Israëlische luchtaanvallen op de Iraanse hoofdstad Teheran. Onder...
 - [Schuilkelders in Israël oneerlijk verdeeld, vooral bedoeïenen kwetsbaar](https://nos.nl/l/2605388)
@@ -16,9 +18,6 @@
   > Het tekort aan standplaatsen voor woonwagens loopt al jaren op. Na jarenlange wachtlijsten, rechtszaken en niet nagekomen politieke beloften kiezen...
 - [Tanzania houdt zich niet aan akkoord en zet Burundezen met geweld uit](https://nos.nl/l/2605377)
   > Duizenden vluchtelingen uit Burundi die vaak al jarenlang in buurland Tanzania wonen, worden sinds kort met harde hand teruggestuurd. De twee landen...
-- [Verdachte van 34 jaar oude moord in Den Haag onverwacht vrijgelaten](https://nos.nl/l/2605371)
-  > De Haagse rechtbank heeft een man vrijgelaten tegen wie onlangs nog 14 jaar celstraf was geëist wegens betrokkenheid bij een moord in 1992.
-       ...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Wat anders maanden kost, moest nu in 24 uur: hoe KLM bliksemsnel repatriëringsvluchten uit de Golfregio op touw zette](https://www.ad.nl/binnenland/wat-anders-maanden-kost-moest-nu-in-24-uur-hoe-klm-bliksemsnel-repatrieringsvluchten-uit-de-golfregio-op-touw-zette~a539d12f/)
-  > Deze zaterdag landde er opnieuw een repatriëringsvlucht met honderden gestrande reizigers uit de Golfregio op Schiphol. Wat er bij zo’n operatie komt...
-- [Excelsior ontvangt Heerenveen en kan punten goed gebruiken na drie nederlagen op rij](https://www.ad.nl/voetbal/excelsior-ontvangt-heerenveen-en-kan-punten-goed-gebruiken-na-drie-nederlagen-op-rij~ae341862/)
+- [Nederlanders onder vuur in Koerdisch Irak: ‘Het is intens en heftig’](https://www.ad.nl/buitenland/nederlanders-onder-vuur-in-koerdisch-irak-het-is-intens-en-heftig~a869e1c5/)
+  > Voor enkele honderden Nederlanders in Koerdisch Irak is het nagelbijten vanwege aanslagen op hotels die vaker worden bezocht. Vrijdag was er een...
+- [Spectaculaire zege honkballers op officieus WK: Oranje slaat toe met homerun in laatste inning](https://www.ad.nl/andere-sporten/spectaculaire-zege-honkballers-op-officieus-wk-oranje-slaat-toe-met-homerun-in-laatste-inning~a0fb49d0/)
+  > Ozzie Albies heeft de Nederlandse honkballers met een indrukwekkende homerun aan een zege op Nicaragua in de World Baseball Classic geholpen (4-3)....
+- [Koploper Barcelona zonder Frenkie de Jong, Bilbao moet al na elf minuten wisselen](https://www.ad.nl/voetbal/koploper-barcelona-zonder-frenkie-de-jong-bilbao-moet-al-na-elf-minuten-wisselen~a7f0c051/)
+  > FC Barcelona heeft afgelopen speelronde de marge met nummer twee Real Madrid uitgebreid. De Catalanen wonnen met 4-1 van Villarreal, terwijl de...
+- [Oranje heeft duel met Ierland onder controle, Beerensteyn mist enorme kans op tweede treffer](https://www.ad.nl/voetbal/oranje-heeft-duel-met-ierland-onder-controle-beerensteyn-mist-enorme-kans-op-tweede-treffer~a851668b/)
+  > De Oranje Leeuwinnen spelen in de WK-kwalificatie tegen Ierland. De ploeg van bondscoach Arjan Veurink moet winnen om in de race te blijven voor het...
+- [Stijn van Gassel houdt Heerenveen in eerste helft van openingsdoelpunt af](https://www.ad.nl/voetbal/stijn-van-gassel-houdt-heerenveen-in-eerste-helft-van-openingsdoelpunt-af~ae341862/)
   > Excelsior is na drie nederlagen op rij nog verre van zeker van lijfsbehoud in de VriendenLoterij Eredivisie. Vanavond komt sc Heerenveen op bezoek in...
-- [Voormalig voetbalster Lieke Martens verwacht tweede zoontje met oud-keeper Benjamin van Leer](https://www.ad.nl/voetbal/voormalig-voetbalster-lieke-martens-verwacht-tweede-zoontje-met-oud-keeper-benjamin-van-leer~a197b35d/)
-  > Voormalig profvoetbalster Lieke Martens krijgt een tweede zoon. Dat maakte ze bekend in RTL Boulevard. Samen met haar man Benjamin van Leer en hun...
-- [Wie bereikt de laatste 8? Van Gerwen treft Wade, Noppert tegenover Humphries](https://www.ad.nl/darts/wie-bereikt-de-laatste-8-van-gerwen-treft-wade-noppert-tegenover-humphries~ab5823ad/)
-  > Van de 160 darters die gisteren begonnen aan de UK Open, zijn nog maar 16 over. Twee Nederlanders zijn tot deze fase van het toernooi gekomen....
-- [PSV verrassend achter tegen AZ: Van Duijl profiteert van glijpartijen en schiet raak](https://www.ad.nl/voetbal/psv-verrassend-achter-tegen-az-van-duijl-profiteert-van-glijpartijen-en-schiet-raak~a6592aa1/)
-  > De derde opeenvolgende landstitel nadert met rasse schreden voor PSV. De Eindhovenaren hebben met nog 9 speelrondes te gaan een voorsprong van liefst...
 
 ### Meest gelezen
 
