@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-03-2026 om 04:24*
+*Laatst bijgewerkt: 07-03-2026 om 05:40*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Wolff wil niets weten van favorietenrol Mercedes, Hamilton adopteert koe met bijzondere naam](https://www.ad.nl/formule-1/wolff-wil-niets-weten-van-favorietenrol-mercedes-hamilton-adopteert-koe-met-bijzondere-naam~ade263b12/)
-  > Het eerste Formule 1-weekend van het seizoen staat voor de deur. Max Verstappen en zijn collega’s zijn in Melbourne voor de Grand Prix van Australië....
-- [Zeker zes doden door wervelwinden in Michigan: Amerikaans tornadoseizoen begonnen](https://www.ad.nl/buitenland/zeker-zes-doden-door-wervelwinden-in-michigan-amerikaans-tornadoseizoen-begonnen~a36d5376/)
-  > Zeker zes mensen zijn omgekomen door tornado’s in de Amerikaanse staat Michigan, melden lokale nieuwszenders, waaronder WSBT. Drie van de...
-- [Crash Antonelli in chaotische derde vrije training, zesde tijd voor met problemen kampende Verstappen](https://www.ad.nl/formule-1/crash-antonelli-in-chaotische-derde-vrije-training-zesde-tijd-voor-met-problemen-kampende-verstappen~af392785/)
-  > Max Verstappen heeft in Melbourne de zesde tijd neergezet in een uiterst chaotische derde vrije training, de laatste voor de kwalificatie later...
-- [Luchtalarm in heel Oekraïne, meerdere gewonden in regio Charkiv](https://www.ad.nl/buitenland/luchtalarm-in-heel-oekraine-meerdere-gewonden-in-regio-charkiv~adfb97be/)
-  > Oekraïne heeft zaterdagochtend vroeg een landelijk luchtalarm afgekondigd, nadat bij Russische aanvallen zeker tien mensen gewond raakten in de...
-- [Ze wonen tegenover onbewoonbare huizen in Dalfsen en hebben dezelfde gezondheidsklachten: ‘Waarom meten ze niet bij ons?’](https://www.ad.nl/binnenland/ze-wonen-tegenover-onbewoonbare-huizen-in-dalfsen-en-hebben-dezelfde-gezondheidsklachten-waarom-meten-ze-niet-bij-ons~afe775cf/)
-  > Meer dan drie jaar kijken ze tegen leegstaande ‘spookwoningen’ aan. Ontruimd vanwege giftig isolatieschuim. Ook deze bewoners ervaren...
+- [Afzetterij? Apple levert geen oplader bij peperdure MacBooks, prijzen lopen op tot 119 euro per blokje](https://www.ad.nl/tech/afzetterij-apple-levert-geen-oplader-bij-peperdure-macbooks-prijzen-lopen-op-tot-119-euro-per-blokje~a3e28142/)
+  > Wie straks duizenden euro’s stukgooit op een van de aangekondigde nieuwe MacBooks, staat bij het uitpakken een koude douche te wachten.
+- [Harry Potter en Draco Malfidus herenigd: Daniel Radcliffe en Tom Felton zoeken elkaar op in New York](https://www.ad.nl/show/harry-potter-en-draco-malfidus-herenigd-daniel-radcliffe-en-tom-felton-zoeken-elkaar-op-in-new-york~a2ba5776/)
+  > Een magisch moment voor de fans van ‘Harry Potter’: Daniel Radcliffe (36) en Tom Felton (38) zijn herenigd op Broadway. De Britse acteurs, die...
+- [Israël lanceert ‘grootschalige’ aanval op Teheran, VS kondigt ‘zwaarste bombardement’ aan](https://www.ad.nl/buitenland/israel-lanceert-grootschalige-aanval-op-teheran-vs-kondigt-zwaarste-bombardement-aan~ac528ac3/)
+  > Het Israëlische leger (IDF) heeft in de nacht van vrijdag op zaterdag opnieuw ‘grootschalige’ aanvallen uitgevoerd op doelen in Teheran. Volgens...
+- [Vakantie in Spanje kan duur worden als je niet weet wat deze verkeersborden betekenen](https://www.ad.nl/auto/vakantie-in-spanje-kan-duur-worden-als-je-niet-weet-wat-deze-verkeersborden-betekenen~ae1ee351/)
+  > Voor Spanjaarden is de betekenis van de ‘zelfverzonnen’ verkeersborden vaak wel helder, maar voor de meeste toeristen niet. Dat kan je duur komen te...
+- [LIVE Oorlog Oekraïne | Luchtalarm in heel Oekraïne, meerdere doden in regio Charkiv](https://www.ad.nl/buitenland/live-oorlog-oekraine-luchtalarm-in-heel-oekraine-meerdere-doden-in-regio-charkiv~adfb97be/)
+  > Oekraïne heeft zaterdagochtend vroeg een landelijk luchtalarm afgekondigd, nadat bij Russische aanvallen zeker drie doden vielen in de regio Charkiv....
 
 ### Meest gelezen
 
