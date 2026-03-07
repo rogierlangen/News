@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-03-2026 om 07:32*
+*Laatst bijgewerkt: 07-03-2026 om 08:37*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Werktrein ontspoord, hele dag geen treinen tussen Tilburg en Den Bosch](https://nos.nl/l/2605269)
-  > Doordat er een werktrein is ontspoord rijden er vandaag de hele dag geen treinen tussen Den Bosch en Tilburg. In plaats daarvan rijden er bussen...
-- [Kabinetsplannen om vaderschapsverlof te versoberen 'stap terug voor gendergelijkheid'](https://nos.nl/l/2605267)
+- [Doden bij Russische aanvallen op Charkiv, ook luchtaanvallen op andere steden](https://nos.nl/l/2605272)
+  > In de Oekraïense stad Charkiv zijn vannacht zeven mensen om het leven gekomen door Russische luchtaanvallen. Volgens de lokale gouverneur zijn onder...
+- [Werktrein ontspoord, hele weekend geen treinen tussen Tilburg en Den Bosch](https://nos.nl/l/2605269)
+  > Doordat er een werktrein is ontspoord rijden er het hele weekend geen treinen tussen Den Bosch en Tilburg. In plaats daarvan rijden er bussen tussen...
+- [Kabinetsplannen om ouderschapsverlof te versoberen 'stap terug voor gendergelijkheid'](https://nos.nl/l/2605267)
   > De plannen van het nieuwe kabinet kunnen leiden tot meer genderongelijkheid. Dat zeggen onderzoekers tegen de NOS.
         Het kabinet wil de...
 - [Podcast De Dag: de verziekte sfeer bij het Erasmus MC](https://nos.nl/l/2605266)
   > Op de intensive care van het Erasmus Medisch Centrum, onder leiding van Diederik Gommers, heerst al jaren een vertrouwenscrisis tussen een deel van...
 - [Wekdienst 7/3: Start Paralympische Spelen • Mars voor Iraniërs in Amsterdam](https://nos.nl/l/2605265)
   > Goedemorgen! Het is vandaag de eerste dag van de Paralympische Spelen, met aardig wat Nederlanders in de sneeuw. En in Amsterdam houden Iraniërs een...
-- [Honderden kilo's cocaïne gevonden tussen bananen in haven van Vlissingen](https://nos.nl/l/2605260)
-  > De Nederlandse douane heeft bij een controle in de haven van Vlissingen een partij cocaïne ontdekt in een pallet met bananen. De pallet stond op een...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Iraanse president: ‘Geen aanvallen meer op buurlanden, tenzij ze ons aanvallen’](https://www.ad.nl/buitenland/iraanse-president-geen-aanvallen-meer-op-buurlanden-tenzij-ze-ons-aanvallen~ac528ac3/)
+  > Iran zal geen aanvallen meer uitvoeren op buurlanden, tenzij er een aanval vanuit die landen op Iran komt. Dat heeft Iraans president Masoud...
+- [Poetin wrijft zich in de handen met Iran-oorlog en dat is slecht nieuws voor Oekraïne](https://www.ad.nl/buitenland/poetin-wrijft-zich-in-de-handen-met-iran-oorlog-en-dat-is-slecht-nieuws-voor-oekraine~a39cd8ba/)
+  > Moskou verloor met de dood van de Iraanse ayatollah Khamenei een bondgenoot, maar er blijken ook voordelen aan de oorlog te zitten. Stijgende olie-...
+- [Max Verstappen ‘helemaal leeg’ en ‘zonder emotie’, maar niet per se door crash: ‘Ik haal er geen lol meer uit’](https://www.ad.nl/formule-1/max-verstappen-helemaal-leeg-en-zonder-emotie-maar-niet-per-se-door-crash-ik-haal-er-geen-lol-meer-uit~a9ea4359/)
+  > Max Verstappen is fysiek in orde na zijn crash in de kwalificatie voor de Grand Prix van Melbourne, maar daar is zo’n beetje alles mee gezegd. De...
 - [Hadjar verrast door P3, Wolff trots op Mercedes en Russell: ‘Hele middag op een ander niveau’](https://www.ad.nl/formule-1/hadjar-verrast-door-p3-wolff-trots-op-mercedes-en-russell-hele-middag-op-een-ander-niveau~ade263b12/)
   > Het eerste Formule 1-weekend van het seizoen staat voor de deur. Max Verstappen en zijn collega’s zijn in Melbourne voor de Grand Prix van Australië....
 - [Niets doen in Europa is de duurste optie van allemaal](https://www.ad.nl/commentaar/niets-doen-in-europa-is-de-duurste-optie-van-allemaal~a1f5d04a/)
   > Aan Wopke Hoekstra is in Den Haag misschien niet de grootste politiek strateeg verloren gegaan. Maar aan zijn voorspellende gaven over de toestand in...
-- [Alleen als die kneuzen bij Ajax en Feyenoord weer normaal gaan doen, komt het goed](https://www.ad.nl/voetbal/alleen-als-die-kneuzen-bij-ajax-en-feyenoord-weer-normaal-gaan-doen-komt-het-goed~a0a8f23e/)
-  > Columnist Sjoerd Mossou ergert zich steeds meer aan de gênante janboel bij de klassieke topclubs Ajax en Feyenoord. „In plaats van een waardig...
-- [Wekker zetten voor start F1-seizoen: zo vroeg racet Max Verstappen en dit is de startopstelling](https://www.ad.nl/formule-1/wekker-zetten-voor-start-f1-seizoen-zo-vroeg-racet-max-verstappen-en-dit-is-de-startopstelling~a71841049/)
-  > Het nieuwe Formule 1-seizoen gaat na zes testdagen in Bahrein nu echt beginnen. Max Verstappen hoopt met zijn nieuwe Red Bull Racing het...
-- [Jill (14) kan lastig vrienden maken, maar vond een vriendin in Wilma (62): ‘Vaak gieren we van het lachen’](https://www.ad.nl/binnenland/jill-14-kan-lastig-vrienden-maken-maar-vond-een-vriendin-in-wilma-62-vaak-gieren-we-van-het-lachen~abd8971e/)
-  > Al ruim zeven jaar zijn ze maatjes: Wilma (62) en Jill (14), die meerdere beperkingen heeft. Wekelijks gaan ze samen fietsen, lunchen en naar...
 
 ### Meest gelezen
 
@@ -47,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Live: Iraanse president zegt met aanvallen op buurlanden te stoppen](https://fd.nl/politiek/1588495/live-iraanse-president-zegt-met-aanvallen-op-buurlanden-te-stoppen)
+  > Op dag acht van de oorlog vinden opnieuw Amerikaanse en Israëlische bombardementen plaats op Iran. De Iraanse president zegt op zaterdagochtend geen...
 - [‘€10 mrd besparen klinkt daadkrachtig, maar lijkt verkapte bezuinigingsronde’](https://fd.nl/opinie/1588329/10-mrd-besparen-klinkt-daadkrachtig-maar-lijkt-verkapte-bezuinigingsronde-en-andere-lezersreacties)
   > FD-lezers reageren op de plannen van kabinet-Jetten om te bezuinigen op de zorg, of aardgas wel zo betrouwbaar is en een manke vergelijking met de...
 - [Komt er een nieuwe oliecrisis? En brengt AI de planeconomie terug?](https://fd.nl/economie/1588326/komt-er-een-nieuwe-oliecrisis-en-brengt-ai-de-planeconomie-terug)
@@ -55,8 +57,6 @@
   > Een week na het begin van de Iranoorlog blijkt de schade op de financiële markten redelijk beperkt. Zijn de beurzen resistent geworden na de...
 - [Brussel komt met goede plannen, maar ook met een onzinnig doel](https://fd.nl/politiek/1588435/brussel-komt-met-goede-plannen-maar-ook-met-een-onzinnig-doel)
   > Als het aan de Commissie ligt, genereert de industrie straks 20% van het Europese bbp, flink meer dan de 14% nu. Onhaalbaar, stelt FD-columnist...
-- [Henk en Ingrid begrijpen de wereld niet meer](https://fd.nl/opinie/1588292/henk-en-ingrid-begrijpen-de-wereld-niet-meer)
-  > Geert is blij met die aanvallen, net als JA21 en Geerts Judas. Maar hoe kan dat nou, met die hoge prijzen aan de pomp?, vraagt Henk zich af.
 
 ### Meest gelezen
 
