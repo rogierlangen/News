@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-03-2026 om 02:23*
+*Laatst bijgewerkt: 07-03-2026 om 04:24*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [PSV verlengt contract van Lucius, Lingard teamgenoot van Depay](https://www.ad.nl/voetbal/psv-verlengt-contract-van-lucius-lingard-teamgenoot-van-depay~a35ea681/)
-  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
+- [Wolff wil niets weten van favorietenrol Mercedes, Hamilton adopteert koe met bijzondere naam](https://www.ad.nl/formule-1/wolff-wil-niets-weten-van-favorietenrol-mercedes-hamilton-adopteert-koe-met-bijzondere-naam~ade263b12/)
+  > Het eerste Formule 1-weekend van het seizoen staat voor de deur. Max Verstappen en zijn collega’s zijn in Melbourne voor de Grand Prix van Australië....
+- [Zeker zes doden door wervelwinden in Michigan: Amerikaans tornadoseizoen begonnen](https://www.ad.nl/buitenland/zeker-zes-doden-door-wervelwinden-in-michigan-amerikaans-tornadoseizoen-begonnen~a36d5376/)
+  > Zeker zes mensen zijn omgekomen door tornado’s in de Amerikaanse staat Michigan, melden lokale nieuwszenders, waaronder WSBT. Drie van de...
+- [Crash Antonelli in chaotische derde vrije training, zesde tijd voor met problemen kampende Verstappen](https://www.ad.nl/formule-1/crash-antonelli-in-chaotische-derde-vrije-training-zesde-tijd-voor-met-problemen-kampende-verstappen~af392785/)
+  > Max Verstappen heeft in Melbourne de zesde tijd neergezet in een uiterst chaotische derde vrije training, de laatste voor de kwalificatie later...
+- [Luchtalarm in heel Oekraïne, meerdere gewonden in regio Charkiv](https://www.ad.nl/buitenland/luchtalarm-in-heel-oekraine-meerdere-gewonden-in-regio-charkiv~adfb97be/)
+  > Oekraïne heeft zaterdagochtend vroeg een landelijk luchtalarm afgekondigd, nadat bij Russische aanvallen zeker tien mensen gewond raakten in de...
 - [Ze wonen tegenover onbewoonbare huizen in Dalfsen en hebben dezelfde gezondheidsklachten: ‘Waarom meten ze niet bij ons?’](https://www.ad.nl/binnenland/ze-wonen-tegenover-onbewoonbare-huizen-in-dalfsen-en-hebben-dezelfde-gezondheidsklachten-waarom-meten-ze-niet-bij-ons~afe775cf/)
   > Meer dan drie jaar kijken ze tegen leegstaande ‘spookwoningen’ aan. Ontruimd vanwege giftig isolatieschuim. Ook deze bewoners ervaren...
-- [Verstappen heeft medelijden met hen, maar Viaplay-duo stelt Formule 1-fans gerust: ‘Raak niet in paniek’](https://www.ad.nl/formule-1/verstappen-heeft-medelijden-met-hen-maar-viaplay-duo-stelt-formule-1-fans-gerust-raak-niet-in-paniek~aa42e872/)
-  > Max Verstappen heeft medelijden met hen en volgens Lewis Hamilton hebben ze tal van diploma’s nodig. Aan Viaplay-commentatoren Nelson Valkenburg (42)...
-- [Amerikaans leger voert dodelijke operaties uit tegen drughandelaren in Ecuador, Trump: Cuba zal binnenkort vallen](https://www.ad.nl/buitenland/amerikaans-leger-voert-dodelijke-operaties-uit-tegen-drughandelaren-in-ecuador-trump-cuba-zal-binnenkort-vallen~ae67dd9c/)
-  > Het Amerikaanse leger heeft gerichte, dodelijke operaties uitgevoerd in Ecuador, in samenwerking met de strijdkrachten van het land. De operaties...
-- [Voormalig tv-presentator Jan Lenferink (77) overleden](https://www.ad.nl/show/voormalig-tv-presentator-jan-lenferink-77-overleden~a1723818/)
-  > Voormalig tv-presentator Jan Lenferink is vrijdag overleden. Dat heeft zijn familie laten weten aan persbureau ANP.
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Komt er een nieuwe oliecrisis? En brengt AI de planeconomie terug?](https://fd.nl/economie/1588326/komt-er-een-nieuwe-oliecrisis-en-brengt-ai-de-planeconomie-terug)
+  > In deze Toegevoegde Waarde bespreken Anna Dijkman en Marijn Jongsma de economische gevolgen van het conflict rond Iran en de mogelijke impact op...
 - [Een nieuwe oliecrisis? Alleen als oorlog in het Midden-Oosten lang gaat duren](https://fd.nl/economie/1588376/een-nieuwe-oliecrisis-alleen-als-oorlog-in-het-midden-oosten-lang-gaat-duren)
   > Een week na het begin van de Iranoorlog blijkt de schade op de financiële markten redelijk beperkt. Zijn de beurzen resistent geworden na de...
 - [Brussel komt met goede plannen, maar ook met een onzinnig doel](https://fd.nl/politiek/1588435/brussel-komt-met-goede-plannen-maar-ook-met-een-onzinnig-doel)
@@ -54,8 +56,6 @@
   > Geert is blij met die aanvallen, net als JA21 en Geerts Judas. Maar hoe kan dat nou, met die hoge prijzen aan de pomp?, vraagt Henk zich af.
 - [Historicus Timothy Snyder: ‘Niemand in Witte Huis geloofde dat Iran acute bedreiging vormde’](https://fd.nl/politiek/1588289/historicus-timothy-snyder-niemand-in-witte-huis-geloofde-dat-iran-acute-bedreiging-vormde)
   > Terwijl zijn populariteit in de VS steeds verder daalt, valt Donald Trump Iran aan. Leiders in het nauw deden zoiets wel vaker. Maar het gaat Trump...
-- [Kunst: Danh Vo wil de tegenstellingen in de wereld laten zien](https://fd.nl/samenleving/1588116/kunst-danh-vo-wil-de-tegenstellingen-in-de-wereld-laten-zien)
-  > Kom bij kunstenaar Danh Vo niet aan met bruggen slaan: naar wie dan? Wel wil hij laten zien wat macht en kwetsbaarheid doen met menselijke...
 
 ### Meest gelezen
 
