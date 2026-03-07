@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-03-2026 om 18:40*
+*Laatst bijgewerkt: 07-03-2026 om 19:26*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Wekker zetten voor start F1-seizoen: zo vroeg racet Max Verstappen en dit is de startopstelling](https://www.ad.nl/formule-1/wekker-zetten-voor-start-f1-seizoen-zo-vroeg-racet-max-verstappen-en-dit-is-de-startopstelling~a71841049/)
-  > Het nieuwe Formule 1-seizoen gaat na zes testdagen in Bahrein nu echt beginnen. Max Verstappen hoopt met zijn nieuwe Red Bull Racing het...
-- [Zorgen is nog altijd een vrouwentaak: ‘Mannen doen zichzelf ernstig tekort’](https://www.ad.nl/gezond/zorgen-is-nog-altijd-een-vrouwentaak-mannen-doen-zichzelf-ernstig-tekort~ab2c56de/)
-  > „Mijn man is heel geëmancipeerd.” De vrouw die dit zegt, wekt argwaan, want het blijkt eerder uitzondering dan regel. Amper 10 procent van de vaders...
-- [Ontroerde Martina Sablikova ondersteboven van afscheid dat ze krijgt van vol Thialf: ‘Ik ga dit heel erg missen’](https://www.ad.nl/schaatsen/ontroerde-martina-sablikova-ondersteboven-van-afscheid-dat-ze-krijgt-van-vol-thialf-ik-ga-dit-heel-erg-missen~afc9331a/)
-  > In Heerenveen wacht voor Martina Sablikova (38) zondagmiddag een speciale afscheidsceremonie, na het WK. Maar de Tsjechische besloot haar eigen...
-- [PSV wil tegen AZ bekerkater wegspoelen en start met Ricardo Pepi in de basis](https://www.ad.nl/voetbal/psv-wil-tegen-az-bekerkater-wegspoelen-en-start-met-ricardo-pepi-in-de-basis~a6592aa1/)
+- [Wat anders maanden kost, moest nu in 24 uur: hoe KLM bliksemsnel repatriëringsvluchten uit de Golfregio op touw zette](https://www.ad.nl/binnenland/wat-anders-maanden-kost-moest-nu-in-24-uur-hoe-klm-bliksemsnel-repatrieringsvluchten-uit-de-golfregio-op-touw-zette~a539d12f/)
+  > Deze zaterdag landde er opnieuw een repatriëringsvlucht met honderden gestrande reizigers uit de Golfregio op Schiphol. Wat er bij zo’n operatie komt...
+- [Excelsior ontvangt Heerenveen en kan punten goed gebruiken na drie nederlagen op rij](https://www.ad.nl/voetbal/excelsior-ontvangt-heerenveen-en-kan-punten-goed-gebruiken-na-drie-nederlagen-op-rij~ae341862/)
+  > Excelsior is na drie nederlagen op rij nog verre van zeker van lijfsbehoud in de VriendenLoterij Eredivisie. Vanavond komt sc Heerenveen op bezoek in...
+- [Voormalig voetbalster Lieke Martens verwacht tweede zoontje met oud-keeper Benjamin van Leer](https://www.ad.nl/voetbal/voormalig-voetbalster-lieke-martens-verwacht-tweede-zoontje-met-oud-keeper-benjamin-van-leer~a197b35d/)
+  > Voormalig profvoetbalster Lieke Martens krijgt een tweede zoon. Dat maakte ze bekend in RTL Boulevard. Samen met haar man Benjamin van Leer en hun...
+- [Wie bereikt de laatste 8? Van Gerwen treft Wade, Noppert tegenover Humphries](https://www.ad.nl/darts/wie-bereikt-de-laatste-8-van-gerwen-treft-wade-noppert-tegenover-humphries~ab5823ad/)
+  > Van de 160 darters die gisteren begonnen aan de UK Open, zijn nog maar 16 over. Twee Nederlanders zijn tot deze fase van het toernooi gekomen....
+- [PSV verrassend achter tegen AZ: Van Duijl profiteert van glijpartijen en schiet raak](https://www.ad.nl/voetbal/psv-verrassend-achter-tegen-az-van-duijl-profiteert-van-glijpartijen-en-schiet-raak~a6592aa1/)
   > De derde opeenvolgende landstitel nadert met rasse schreden voor PSV. De Eindhovenaren hebben met nog 9 speelrondes te gaan een voorsprong van liefst...
-- [‘Olieprijs binnen drie weken naar 150 dollar als cruciale Straat van Hormuz langer dicht blijft’](https://www.ad.nl/economie/olieprijs-binnen-drie-weken-naar-150-dollar-als-cruciale-straat-van-hormuz-langer-dicht-blijft~a3ff4cbc/)
-  > Olielanden rond de Perzische Golf zullen hun olie- en gasproductie deze week moeten terugschroeven als de cruciale Straat van Hormuz dicht blijft. De...
 
 ### Meest gelezen
 
@@ -47,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Directeur EU-denktank: ‘Doorbreek dwang van unanimiteit in Europa’](https://fd.nl/politiek/1587827/directeur-eu-denktank-doorbreek-dwang-van-unanimiteit-in-europa)
+  > Als Europa niet meer samen één beslissing kan nemen, dan maar in aparte coalities, vindt Steven Everts, directeur van de EU-denktank voor veiligheid.
 - [‘Europese Commissie onderzoekt maatregelen tegen hoge energieprijzen industrie’](https://fd.nl/politiek/1588496/europese-commissie-onderzoekt-maatregelen-tegen-hoge-energieprijzen-industrie)
   > Brussel overweegt een aantal maatregelen te nemen om de stijgende energieprijzen voor de Europese industrie binnen de perken te houden.
 - [Trump: ‘VS in onderhandelingen met Cuba’](https://fd.nl/politiek/1588345/trump-vs-in-onderhandelingen-met-cuba)
@@ -55,8 +57,6 @@
   > Een consortium van Europese defensiebedrijven gaat meedingen bij een aanbesteding voor een met Starlink vergelijk satellietnetwerk.
 - [Oracle en OpenAI zetten streep door  gezamenlijke uitbreiding megadatacenter](https://fd.nl/bedrijfsleven/1588342/oracle-en-openai-zetten-streep-door-gezamenlijke-uitbreiding-megadatacenter)
   > Techbedrijven Oracle en OpenAI stoppen met onderhandelingen over uitbreiding van een megadatacenter.
-- [Live: Koeweit verlaagt olieproductie, nieuwe Iraanse aanvallen op Golfstaten](https://fd.nl/politiek/1588495/live-iraanse-president-zegt-met-aanvallen-op-buurlanden-te-stoppen)
-  > Op dag acht van de oorlog vinden opnieuw Amerikaanse en Israëlische bombardementen plaats op Iran. De Iraanse president zegt zaterdagochtend geen...
 
 ### Meest gelezen
 
