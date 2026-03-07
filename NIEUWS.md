@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-03-2026 om 08:37*
+*Laatst bijgewerkt: 07-03-2026 om 09:33*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Iraanse president: ‘Geen aanvallen meer op buurlanden, tenzij ze ons aanvallen’](https://www.ad.nl/buitenland/iraanse-president-geen-aanvallen-meer-op-buurlanden-tenzij-ze-ons-aanvallen~ac528ac3/)
-  > Iran zal geen aanvallen meer uitvoeren op buurlanden, tenzij er een aanval vanuit die landen op Iran komt. Dat heeft Iraans president Masoud...
-- [Poetin wrijft zich in de handen met Iran-oorlog en dat is slecht nieuws voor Oekraïne](https://www.ad.nl/buitenland/poetin-wrijft-zich-in-de-handen-met-iran-oorlog-en-dat-is-slecht-nieuws-voor-oekraine~a39cd8ba/)
-  > Moskou verloor met de dood van de Iraanse ayatollah Khamenei een bondgenoot, maar er blijken ook voordelen aan de oorlog te zitten. Stijgende olie-...
-- [Max Verstappen ‘helemaal leeg’ en ‘zonder emotie’, maar niet per se door crash: ‘Ik haal er geen lol meer uit’](https://www.ad.nl/formule-1/max-verstappen-helemaal-leeg-en-zonder-emotie-maar-niet-per-se-door-crash-ik-haal-er-geen-lol-meer-uit~a9ea4359/)
-  > Max Verstappen is fysiek in orde na zijn crash in de kwalificatie voor de Grand Prix van Melbourne, maar daar is zo’n beetje alles mee gezegd. De...
-- [Hadjar verrast door P3, Wolff trots op Mercedes en Russell: ‘Hele middag op een ander niveau’](https://www.ad.nl/formule-1/hadjar-verrast-door-p3-wolff-trots-op-mercedes-en-russell-hele-middag-op-een-ander-niveau~ade263b12/)
+- [Demi Vollering en Lotte Kopecky strijden om derde overwinning van Strade Bianche](https://www.ad.nl/wielrennen/demi-vollering-en-lotte-kopecky-strijden-om-derde-overwinning-van-strade-bianche~acd87614/)
+  > Lotte Kopecky en Demi Vollering domineren de recente geschiedenis van de Strade Bianche. De Belgische en de Nederlandse verdeelden de afgelopen vier...
+- [Engelse media zien kans voor Slot na essentiële zege: ‘Hij kan nog steeds iets bijzonders doen’](https://www.ad.nl/voetbal/engelse-media-zien-kans-voor-slot-na-essentiele-zege-hij-kan-nog-steeds-iets-bijzonders-doen~ae8b532a/)
+  > In de FA Cup won Liverpool wel van Premier League-hekkensluiter Wolverhampton Wanderers. De ploeg van trainer Arne Slot plaatste zich daarmee voor de...
+- [Welke planten moet je hebben in tuincentrum? ‘Zijn de wortels stevig? Dat is dé graadmeter voor gezondheid’](https://www.ad.nl/wonen/welke-planten-moet-je-hebben-in-tuincentrum-zijn-de-wortels-stevig-dat-is-de-graadmeter-voor-gezondheid~a98ff72e/)
+  > Ze staan er verleidelijk bij in het tuincentrum: volle potten violen, lavendel met stevige knoppen, hortensia’s die bijna uit hun voegen barsten....
+- [George Russell baalt stiekem van crash Max Verstappen: ‘Jammer dat we hem niet hebben gezien’](https://www.ad.nl/formule-1/george-russell-baalt-stiekem-van-crash-max-verstappen-jammer-dat-we-hem-niet-hebben-gezien~ade263b12/)
   > Het eerste Formule 1-weekend van het seizoen staat voor de deur. Max Verstappen en zijn collega’s zijn in Melbourne voor de Grand Prix van Australië....
-- [Niets doen in Europa is de duurste optie van allemaal](https://www.ad.nl/commentaar/niets-doen-in-europa-is-de-duurste-optie-van-allemaal~a1f5d04a/)
-  > Aan Wopke Hoekstra is in Den Haag misschien niet de grootste politiek strateeg verloren gegaan. Maar aan zijn voorspellende gaven over de toestand in...
+- [Hoe een fout van minister Van Weel in zaak-Lisa een compleet eigen leven is gaan leiden: ‘Ik hoor geen excuses’](https://www.ad.nl/binnenland/hoe-een-fout-van-minister-van-weel-in-zaak-lisa-een-compleet-eigen-leven-is-gaan-leiden-ik-hoor-geen-excuses~a5a35267/)
+  > Het begon met twee verkeerde woorden in een Kamerbrief en eindigde in een ongekende integriteitsrel. Minister David van Weel (Justitie) trok openlijk...
 
 ### Meest gelezen
 
