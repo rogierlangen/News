@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-03-2026 om 22:29*
+*Laatst bijgewerkt: 08-03-2026 om 23:29*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Europa verdrievoudigt wapenimport sinds oorlog in Oekraïne en blijft vooral in VS kopen](https://www.ad.nl/buitenland/europa-verdrievoudigt-wapenimport-sinds-oorlog-in-oekraine-en-blijft-vooral-in-vs-kopen~a5569088/)
+  > Europese landen hebben hun wapenimporten de afgelopen jaren verdrievoudigd. Het overgrote deel komt uit de Verenigde Staten, dat zijn export naar...
+- [Drukste treinstation van Schotland zeker tot maandag gesloten na enorme vuurzee](https://www.ad.nl/buitenland/drukste-treinstation-van-schotland-zeker-tot-maandag-gesloten-na-enorme-vuurzee~a66097c3/)
+  > Een grote brand nabij het centraal station van Glasgow heeft zondagavond voor grote problemen gezorgd voor treinreizigers, met tientallen...
+- [Luke Littler grijpt UK Open voor tweede jaar op rij en pakt zo’n 140.000 euro](https://www.ad.nl/darts/luke-littler-grijpt-uk-open-voor-tweede-jaar-op-rij-en-pakt-zon-140-000-euro~aa2a6060/)
+  > Luke Littler heeft voor het tweede jaar op rij de UK Open op zijn naam geschreven. Net als vorig jaar was James Wade de tegenstander in de finale....
+- [Voetbalpodcast | ‘Ajax onderneemt in ieder geval iets om plek twee in handen te krijgen’](https://www.ad.nl/voetbal/voetbalpodcast-ajax-onderneemt-in-ieder-geval-iets-om-plek-twee-in-handen-te-krijgen~ac8603a9/)
+  > Fred Grim is niet meer de hoofdtrainer van Ajax. Hij wordt vervanger door een andere interimmer: Óscar García, die pas net begonnen was bij Jong...
 - [Afschuw bij moeder om GHB-dood dochter María (25) in Nederland: ‘Ze hebben het haar toegediend’](https://www.ad.nl/binnenland/afschuw-bij-moeder-om-ghb-dood-dochter-maria-25-in-nederland-ze-hebben-het-haar-toegediend~a4d7e52d/)
   > Ze stapte in Colombia op het vliegtuig met maar één doel: geld verdienen voor haar moeder en haar zoontje van 2 jaar. Maar nog geen maand later...
-- [Mourinho krijgt rood na topper tegen Farioli, Milan verkleint gat met koploper Inter](https://www.ad.nl/voetbal/mourinho-krijgt-rood-na-topper-tegen-farioli-milan-verkleint-gat-met-koploper-inter~aeafb5d2/)
-  > De Portugese Clássico tussen Benfica en FC Porto is zondagavond geëindigd in een 2-2 gelijkspel. Porto kwam in de eerste helft op een 0-2 voorsprong,...
-- [Mojtaba Khamenei nieuwe opperste leider van Iran](https://www.ad.nl/buitenland/mojtaba-khamenei-nieuwe-opperste-leider-van-iran~a54c453b/)
-  > Mojtaba Khamenei, een van de zonen van Ali Khamenei, is gekozen tot nieuwe opperste leider van Iran. Dat heeft de daartoe bevoegde Assemblee van...
-- [Chaos bij verrassen van thuiswinnaar Miljoenenjacht: ‘Zoals altijd gaat het nooit zoals je denkt’](https://www.ad.nl/show/chaos-bij-verrassen-van-thuiswinnaar-miljoenenjacht-zoals-altijd-gaat-het-nooit-zoals-je-denkt~a9a99dd3/)
-  > Het verrassen van de thuiswinnaar bij Miljoenenjacht is zondagavond wederom ietwat chaotisch verlopen bij de seizoenstart van een nieuwe reeks....
-- [LIVE UK Open | Littler en Wade gelijkwaardig aan elkaar in spannende finale](https://www.ad.nl/darts/live-uk-open-littler-en-wade-gelijkwaardig-aan-elkaar-in-spannende-finale~aa2a6060/)
-  > Luke Littler en James Wade staan in de finale van de UK Open. Volg de eindstrijd hieronder in het liveblog.
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Personalia maandag 9 maart](https://fd.nl/bedrijfsleven/1588501/personalia-maandag-9-maart)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Hoge kosten flex maken bedrijven minder wendbaar, klagen werkgevers](https://fd.nl/bedrijfsleven/1588447/hoge-kosten-flex-maken-bedrijven-minder-wendbaar-klagen-werkgevers)
+  > Arbeidsmarkthervormingen hebben flexwerk aan banden gelegd. Toch is het vaste contract nog net zo rigide als voorheen, stellen werkgevers. Waar...
 - [‘Zoon Khamenei benoemd tot nieuwe leider van Iran’](https://fd.nl/politiek/1588360/zoon-khamenei-benoemd-tot-nieuwe-leider-van-iran)
   > Mojtaba Khamenei neemt het stokje over nadat zijn vader omkwam bij een aanval door de VS en Israël.
 - [Even geen beton op gasveld Groningen](https://fd.nl/opinie/1588330/even-geen-beton-op-gasveld-groningen)
   > Er zijn uitstekende redenen om helemaal nooit meer gas uit Groningen te pompen. Maar om nu alle putten dicht te storten, daarvoor is de wereld iets...
 - [Groenen en CDU bijna even groot in Baden-Württemberg](https://fd.nl/politiek/1588348/groenen-winnen-volgens-prognoses-nipt-in-baden-wurttemberg)
   > Het resultaat is een domper voor de christendemocraten, die lang aan kop gingen in de peilingen. De extreemrechtse partij AfD staat in de prognoses...
-- [Investeerder HAL verdubbelt belang in techconcern TKH Group](https://fd.nl/bedrijfsleven/1588500/investeerder-hal-verdubbelt-belang-in-techconcern-tkh-group)
-  > HAL heeft zijn belang in het Twentse technologieconcern uitgebreid tot iets meer dan 10%.
-- [Oorlog in Iran stuwt olieprijs richting psychologische grens van $100](https://fd.nl/economie/1588499/oorlog-in-iran-stuwt-olieprijs-richting-psychologische-grens-van-100)
-  > Irak, Koeweit en de Verenigde Arabische Emiraten schroeven hun productie terug, nu tankers hen niet meer kunnen bereiken. En dat vertaalt zich in...
 
 ### Meest gelezen
 
