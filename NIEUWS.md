@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-03-2026 om 09:34*
+*Laatst bijgewerkt: 08-03-2026 om 10:30*
 
 ---
 
@@ -11,7 +11,7 @@
 - [Torenhoge ambities in de Chinese vijfjarenplannen, wat merken wij daarvan?](https://nos.nl/l/2605462)
   > In China staat het Volkscongres deze week in het teken van een nieuw vijfjarenplan. Al sinds 1952 presenteert het land vijfjarenplannen waarbij de...
 - [Premier Jetten in Oekraïne op bezoek bij president Zelensky](https://nos.nl/l/2605459)
-  > Premier Jetten is in Oekraïne voor een bezoek aan president Zelensky. Kort na het aantreden van het kabinet-Jetten, bijna twee weken geleden, belden...
+  > Premier Jetten is in Oekraïne voor een bezoek aan president Zelensky om de Nederlandse steun aan de Oekraïners te onderstrepen. Kort na het aantreden...
 - [Mogelijke explosieven gegooid bij protesten voor woning burgemeester New York](https://nos.nl/l/2605457)
   > Bij het huis van de burgemeester van New York zijn twee personen aangehouden voor het aansteken van twee verdachte voorwerpen. Dat gebeurde bij een...
 - [Wekdienst 8/3: Internationale Vrouwendag • Laatste dag WK schaatsen allround](https://nos.nl/l/2605454)
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Zondagavond eerste militaire vliegtuig naar Oman om mensen terug te halen](https://www.ad.nl/buitenland/zondagavond-eerste-militaire-vliegtuig-naar-oman-om-mensen-terug-te-halen~ac528ac3/)
+- [Pikzwarte wolken boven Teheran, toren Koeweit in brand na Iraanse drone-aanval](https://www.ad.nl/buitenland/pikzwarte-wolken-boven-teheran-toren-koeweit-in-brand-na-iraanse-drone-aanval~ac528ac3/)
+  > De lucht boven de Iraanse hoofdstad Teheran kleurt zwart na Israëlische aanvallen op vier Iraanse oliedepots. Bij de aanvallen vielen ook vier doden....
+- [Zondag militair vliegtuig naar Oman om gestrande Nederlanders terug te halen](https://www.ad.nl/buitenland/zondag-militair-vliegtuig-naar-oman-om-gestrande-nederlanders-terug-te-halen~a75b192a/)
   > Zondag gaat een Nederlands militair vliegtuig naar Oman om Nederlanders die in het Midden-Oosten vastzitten terug te halen. Dat vliegtuig brengt...
-- [Moeder van Bridget Maasland heeft kanker: ‘Ik wil je eren, en laten zien hoe stoer je bent’](https://www.ad.nl/show/moeder-van-bridget-maasland-heeft-kanker-ik-wil-je-eren-en-laten-zien-hoe-stoer-je-bent~a7d0c153/)
-  > De moeder van RTL Boulevard-presentatrice Bridget Maasland heeft kanker. Dat maken moeder en dochter zondag samen, op Internationale Vrouwendag,...
-- [‘Begint meestal als een sprookje’: hoe herken je een toxische relatie?](https://www.ad.nl/gezond/begint-meestal-als-een-sprookje-hoe-herken-je-een-toxische-relatie~a5080545/)
-  > Elke acht dagen wordt een vrouw vermoord. In 60 procent van de gevallen is de (ex-)partner de dader. Femicide komt echter niet uit de lucht vallen....
-- [Madonna reageert op smeekbede van Spaanse club, maar lijkt iconisch shirt dat ze ooit droeg toch zelf te willen houden](https://www.ad.nl/voetbal/madonna-reageert-op-smeekbede-van-spaanse-club-maar-lijkt-iconisch-shirt-dat-ze-ooit-droeg-toch-zelf-te-willen-houden~a665c9ff/)
-  > Poplegende Madonna (67) heeft gereageerd op de open brief van Celta de Vigo. De Spaanse eersteklasser was op zoek naar een oud shirt van de club....
-- [Premier Jetten in Kyiv bij Zelensky, wil ruzie met Orbán ‘kalmeren’](https://www.ad.nl/politiek/premier-jetten-in-kyiv-bij-zelensky-wil-ruzie-met-orban-kalmeren~adbbc436/)
-  > Minister-president Rob Jetten is zondag in Oekraïne. De hoogoplopende ruzie die dat land heeft met EU-lidstaat Hongarije is een van de belangrijkste...
+- [Opvolger van Simonis na 4 maanden alweer weg bij Wolfsburg, oud-speler ManUnited teamgenoot van Depay](https://www.ad.nl/voetbal/opvolger-van-simonis-na-4-maanden-alweer-weg-bij-wolfsburg-oud-speler-manunited-teamgenoot-van-depay~a35ea681/)
+  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
+- [Nederlandse pitbull verscheurt zwangere vrouw: 56 wonden, man aangeklaagd voor doodslag](https://www.ad.nl/buitenland/nederlandse-pitbull-verscheurt-zwangere-vrouw-56-wonden-man-aangeklaagd-voor-doodslag~a6f9e594/)
+  > De Franse rechter heeft geoordeeld dat een Nederlandse pitbull een zwangere Française heeft doodgebeten. De hond was met een vervalst dierenpaspoort...
+- [Verstappen krijgt steun bij tweedeling in F1, Norris vreest zelfs ‘vreselijke ongelukken’: ‘Iedereen is egoïstisch’](https://www.ad.nl/formule-1/verstappen-krijgt-steun-bij-tweedeling-in-f1-norris-vreest-zelfs-vreselijke-ongelukken-iedereen-is-egoistisch~ac46c725/)
+  > Max Verstappen kraakte dit weekend in Melbourne opnieuw harde noten over de nieuwe reglementen in de Formule 1. De Nederlander krijgt veel bijval,...
 
 ### Meest gelezen
 
@@ -47,7 +47,7 @@
 
 ### Laatste nieuws
 
-- [Live: VS en Israël bestoken oliedepots, Iran waarschuwt buurlanden](https://fd.nl/politiek/1588346/live-vs-en-israel-bestoken-oliedepots-iran-waarschuwt-buurlanden)
+- [Live: nieuwe leider zou zijn gekozen, VS en Israël bestoken oliedepots](https://fd.nl/politiek/1588346/live-vs-en-israel-bestoken-oliedepots-iran-waarschuwt-buurlanden)
   > De aanvallen houden aan. De VS en Israël richten zich onder andere op oliedepots. En Arabische staten langs de Perzische Golf werden opnieuw...
 - [Chinese staalproductie lijkt te dalen, nog te vroeg voor juichstemming in EU](https://fd.nl/economie/1588472/chinese-staalproductie-lijkt-te-dalen-nog-te-vroeg-voor-juichstemming-in-eu)
   > Voor de Europese staalproducenten is het nog te vroeg om te juichen. Analisten vertrouwen de productiecijfers niet. Peking heeft bovendien vaker...
