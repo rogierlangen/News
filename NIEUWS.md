@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-03-2026 om 05:47*
+*Laatst bijgewerkt: 08-03-2026 om 06:51*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Ruim een week oorlog in het Midden-Oosten: wat staat de wereld nog te wachten?](https://nos.nl/l/2605451)
+  > Ruim een week geleden gebeurde wat al maanden in de lucht hing: Israël en de VS begonnen met het bombarderen van aartsvijand Iran. Het regime is met...
+- [Duits verkiezingsjaar afgetrapt, Groenen hopen op winst in Baden-Württemberg](https://nos.nl/l/2605442)
+  > Het Duitse Superwahljahr gaat vandaag van start met de verkiezingen in Baden-Württemberg, de eerste van vijf deelstaatverkiezingen dit jaar. Lange...
 - [Puppy na negen dagen gered van Griekse besneeuwde bergtop: 'We noemen hem Lucky'](https://nos.nl/l/2605438)
   > In Griekenland is een negen maanden oude hond na negen dagen gered van een besneeuwde berg. Het dier had al die tijd geen voedsel en de temperaturen...
 - [Explosie bij Amerikaanse ambassade in Oslo, geen gewonden](https://nos.nl/l/2605436)
   > Bij de Amerikaanse ambassade in de Noorse hoofdstad Oslo heeft in de nacht van zaterdag op zondag een explosie plaatsgevonden. Niemand raakte gewond....
 - [Topchef Redzepi opnieuw onder vuur na aanklachten van mishandeling bij Noma](https://nos.nl/l/2605433)
   > De Deense topchef René Redzepi, oprichter van restaurant Noma in Kopenhagen, ligt opnieuw onder vuur na beschuldigingen van fysieke en psychologische...
-- [Dierentuin Wildlands sluit vogelverblijf na dood van drie kuifibissen](https://nos.nl/l/2605413)
-  > Het vogelverblijf van Wildlands Adventure Zoo in Emmen is uit voorzorg gesloten na de dood van drie kuifibissen. Twee van de vogels zijn overleden...
-- [Gedenkplaat voor slachtoffers Capitoolbestorming stilletjes opgehangen](https://nos.nl/l/2605411)
-  > Een plaquette ter nagedachtenis aan agenten die om het leven kwamen of gewond raakten bij de bestorming van het Capitool is afgelopen nacht...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Arlet (32) heeft spijt van haar maagverkleining: ‘Ik wou dat ik terug kon naar mijn oude lijf’](https://www.ad.nl/binnenland/arlet-32-heeft-spijt-van-haar-maagverkleining-ik-wou-dat-ik-terug-kon-naar-mijn-oude-lijf~a3c2cf44/)
-  > Ondanks de opkomst van afslankspuiten ondergaan nog altijd jaarlijks 12.000 Nederlanders een operatie om hun maag te verkleinen. Arlet (32) was er...
-- [Tientallen caravans in beslag genomen bij grote dealer: ‘Dit kan echt niet’](https://www.ad.nl/binnenland/tientallen-caravans-in-beslag-genomen-bij-grote-dealer-dit-kan-echt-niet~a7be1f0f/)
-  > Bij Holiday Sport in Lochem zijn tientallen caravans in beslag genomen. Het bedrijf is eigendom van een man uit Ambt Delden. Zijn advocaat benadrukt...
-- [Verstappen beperkt de schade na uitstekende inhaalrace, machtig Mercedes pakt zege met Russell](https://www.ad.nl/formule-1/verstappen-beperkt-de-schade-na-uitstekende-inhaalrace-machtig-mercedes-pakt-zege-met-russell~a1eb5934/)
-  > Max Verstappen heeft bij de eerste race van het nieuwe Formule 1-seizoen genoegen moeten nemen met een zesde plek. Het bleek het hoogst haalbare...
-- [Zo werd een Air­bus-crash met 152 passagiers op het nippertje vermeden: ‘Dit klopt niet. Stop, stop, stop!’](https://www.ad.nl/buitenland/zo-werd-een-airbus-crash-met-152-passagiers-op-het-nippertje-vermeden-dit-klopt-niet-stop-stop-stop~a65d49d9/)
-  > Het scheelt enkele seconden en enkele tientallen meters. Een Airbus met 152 passagiers aan boord versnelt op Brussels Airport tot 235 km/u, maar...
-- [Liplezer onthult wat Andrew echt zei tegen prins William tijdens kil gesprek op uitvaart van de hertogin van Kent](https://www.ad.nl/buitenland/liplezer-onthult-wat-andrew-echt-zei-tegen-prins-william-tijdens-kil-gesprek-op-uitvaart-van-de-hertogin-van-kent~acfcaf96/)
-  > Liplezer Nicola Hickling heeft in de nieuwe tv-reeks ‘Lip-Reading The Royals: What Are They Really Saying?’ onthuld wat prins William (43) gezegd...
+- [Automobilisten stonden in 2025 1,2 miljoen kilometer in de file: 31 keer rond de aarde](https://www.ad.nl/auto/automobilisten-stonden-in-2025-1-2-miljoen-kilometer-in-de-file-31-keer-rond-de-aarde~a7601dca/)
+  > Vorig jaar stonden automobilisten in Nederland zo'n 1,2 miljoen kilometer in de file. Dat is ongeveer even ver als 31 keer rond de aarde. Er waren in...
+- [Cynische Isack Hadjar baalt als een stekker na uitvalbeurt: ‘Had beter thuis kunnen blijven’](https://www.ad.nl/formule-1/cynische-isack-hadjar-baalt-als-een-stekker-na-uitvalbeurt-had-beter-thuis-kunnen-blijven~ade263b12/)
+  > Het eerste Formule 1-weekend van het seizoen staat voor de deur. Max Verstappen en zijn collega’s zijn in Melbourne voor de Grand Prix van Australië....
+- [Zijn haar, voorhoofd, ogen, neus, nek, schouders: het is alsof ik naar mezelf kijk](https://www.ad.nl/mezza/zijn-haar-voorhoofd-ogen-neus-nek-schouders-het-is-alsof-ik-naar-mezelf-kijk~a337622b/)
+  > Beduusd bekijkt Beau een oude foto. Lees hier in zijn column uit ons weekendmagazine Mezza waarom hij ’m doodeng vindt.
+- [Luxe zorgvilla blijkt bron van problemen: ‘Mijn moeder kreeg zonder overleg morfine’](https://www.ad.nl/binnenland/luxe-zorgvilla-blijkt-bron-van-problemen-mijn-moeder-kreeg-zonder-overleg-morfine~a17a9304/)
+  > Ik heb het nooit gedaan, dus ik denk dat ik het wel kan. Met dat idee begonnen Marie José van Hussen en Eddy Wakker de inmiddels failliete...
+- [Stand Formule 1 | Belangrijke eerste punten voor Max Verstappen, George Russell voor het eerst WK-leider](https://www.ad.nl/formule-1/stand-formule-1-belangrijke-eerste-punten-voor-max-verstappen-george-russell-voor-het-eerst-wk-leider~a8a75660/)
+  > George Russell is voor het eerst in zijn Formule 1-loopbaan de leider in het kampioenschap. De torenhoge favoriet voor de titel slaat daarmee alvast...
 
 ### Meest gelezen
 
