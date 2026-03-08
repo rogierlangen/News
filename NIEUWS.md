@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-03-2026 om 10:30*
+*Laatst bijgewerkt: 08-03-2026 om 11:25*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Rampvlucht MH370 ook bij recente zoekactie niet gevonden](https://nos.nl/l/2605470)
+  > Een nieuwe zoekactie naar vlucht MH370 van Malaysia Airlines heeft niets opgeleverd. Eind vorig jaar en begin dit jaar werd een gebied van 15.000...
+- [Eerste honderden Nederlanders weg uit Qatar na dagen van onzekerheid](https://nos.nl/l/2605469)
+  > De eerste Nederlanders die door de oorlog in de Golfregio waren gestrand in Qatar zijn vanochtend vanuit Doha vertrokken naar Schiphol. De vlucht van...
+- [Vogelgriep vastgesteld in Putten, 23.000 kippen geruimd](https://nos.nl/l/2605467)
+  > Bij een legkippenbedrijf in Putten is een uitbraak van vogelgriep vastgesteld. De Nederlandse Voedsel- en Warenautoriteit (NVWA) heeft zo'n 23.000...
+- [CDA-lijsttrekker Landgraaf bedreigd tijdens flyeren voor verkiezingen](https://nos.nl/l/2605466)
+  > In Landgraaf is gisteravond een wethouder en lijsttrekker van het CDA bedreigd door een groep jongeren. Een van hen zou een mes getrokken hebben.
+   ...
 - [Torenhoge ambities in de Chinese vijfjarenplannen, wat merken wij daarvan?](https://nos.nl/l/2605462)
   > In China staat het Volkscongres deze week in het teken van een nieuw vijfjarenplan. Al sinds 1952 presenteert het land vijfjarenplannen waarbij de...
-- [Premier Jetten in Oekraïne op bezoek bij president Zelensky](https://nos.nl/l/2605459)
-  > Premier Jetten is in Oekraïne voor een bezoek aan president Zelensky om de Nederlandse steun aan de Oekraïners te onderstrepen. Kort na het aantreden...
-- [Mogelijke explosieven gegooid bij protesten voor woning burgemeester New York](https://nos.nl/l/2605457)
-  > Bij het huis van de burgemeester van New York zijn twee personen aangehouden voor het aansteken van twee verdachte voorwerpen. Dat gebeurde bij een...
-- [Wekdienst 8/3: Internationale Vrouwendag • Laatste dag WK schaatsen allround](https://nos.nl/l/2605454)
-  > Goedemorgen! Het is vandaag Internationale Vrouwendag en in Heerenveen is de slotdag van het WK schaatsen allround. 
-        Eerst het weer: na een...
-- [Ruim een week oorlog in het Midden-Oosten: wat staat de wereld nog te wachten?](https://nos.nl/l/2605451)
-  > Ruim een week geleden gebeurde wat al maanden in de lucht hing: Israël en de VS begonnen met het bombarderen van aartsvijand Iran. Het regime is met...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Pikzwarte wolken boven Teheran, toren Koeweit in brand na Iraanse drone-aanval](https://www.ad.nl/buitenland/pikzwarte-wolken-boven-teheran-toren-koeweit-in-brand-na-iraanse-drone-aanval~ac528ac3/)
-  > De lucht boven de Iraanse hoofdstad Teheran kleurt zwart na Israëlische aanvallen op vier Iraanse oliedepots. Bij de aanvallen vielen ook vier doden....
-- [Zondag militair vliegtuig naar Oman om gestrande Nederlanders terug te halen](https://www.ad.nl/buitenland/zondag-militair-vliegtuig-naar-oman-om-gestrande-nederlanders-terug-te-halen~a75b192a/)
-  > Zondag gaat een Nederlands militair vliegtuig naar Oman om Nederlanders die in het Midden-Oosten vastzitten terug te halen. Dat vliegtuig brengt...
-- [Opvolger van Simonis na 4 maanden alweer weg bij Wolfsburg, oud-speler ManUnited teamgenoot van Depay](https://www.ad.nl/voetbal/opvolger-van-simonis-na-4-maanden-alweer-weg-bij-wolfsburg-oud-speler-manunited-teamgenoot-van-depay~a35ea681/)
-  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
-- [Nederlandse pitbull verscheurt zwangere vrouw: 56 wonden, man aangeklaagd voor doodslag](https://www.ad.nl/buitenland/nederlandse-pitbull-verscheurt-zwangere-vrouw-56-wonden-man-aangeklaagd-voor-doodslag~a6f9e594/)
-  > De Franse rechter heeft geoordeeld dat een Nederlandse pitbull een zwangere Française heeft doodgebeten. De hond was met een vervalst dierenpaspoort...
-- [Verstappen krijgt steun bij tweedeling in F1, Norris vreest zelfs ‘vreselijke ongelukken’: ‘Iedereen is egoïstisch’](https://www.ad.nl/formule-1/verstappen-krijgt-steun-bij-tweedeling-in-f1-norris-vreest-zelfs-vreselijke-ongelukken-iedereen-is-egoistisch~ac46c725/)
-  > Max Verstappen kraakte dit weekend in Melbourne opnieuw harde noten over de nieuwe reglementen in de Formule 1. De Nederlander krijgt veel bijval,...
+- [Tijden GP van China | Zo laat komt Max Verstappen in actie tijdens eerste sprintraceweekend van het jaar](https://www.ad.nl/formule-1/tijden-gp-van-china-zo-laat-komt-max-verstappen-in-actie-tijdens-eerste-sprintraceweekend-van-het-jaar~a6788441/)
+  > Na het eerste raceweekend van het jaar reizen Max Verstappen en zijn collega’s direct door naar Shanghai voor de Grand Prix van China. Daar kunnen de...
+- [Verbazing bij Nederlandse marechaussee: gestolen urnen mét as in kofferbak van criminelen gevonden](https://www.ad.nl/binnenland/verbazing-bij-nederlandse-marechaussee-gestolen-urnen-met-as-in-kofferbak-van-criminelen-gevonden~a0d1e84a/)
+  > Een simpele routinecontrole op de A67 is zaterdag in een lugubere ontdekking geëindigd. Eenheden van de Koninklijke Marechaussee stuitten in een...
+- [Sparta en PEC trappen eredivisiezondag af in mistig Rotterdam](https://www.ad.nl/voetbal/sparta-en-pec-trappen-eredivisiezondag-af-in-mistig-rotterdam~a8704961/)
+  > Enkele weken geleden stond Sparta nog verrassend op de vijfde plek, maar na een slechte reeks is die plek uit het zicht geraakt. Kan de ploeg van...
+- [Na opnames Winter vol liefde sloeg de vonk pas écht over tussen Claudia en Viktor: ‘Voelde als een geschenk’](https://www.ad.nl/show/na-opnames-winter-vol-liefde-sloeg-de-vonk-pas-echt-over-tussen-claudia-en-viktor-voelde-als-een-geschenk~ad4a36e9/)
+  > In haar opvallende huis in Oostenrijk ontving Claudia (53) in Winter vol liefde een stoet mannen in de hoop op een vlammende romance. De 59-jarige...
+- [Als Mels van B. tijdens eerste verhoren begint te praten, weten rechercheurs: ‘Dit wordt next level’](https://www.ad.nl/binnenland/als-mels-van-b-tijdens-eerste-verhoren-begint-te-praten-weten-rechercheurs-dit-wordt-next-level~a9623bbd/)
+  > Nooit eerder hadden ze zoiets gezien. Zelfs de meest ervaren rechercheurs kwamen in het misbruikonderzoek rond Mels van B. (46) verslagen thuis....
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Live: nieuwe leider zou zijn gekozen, VS en Israël bestoken oliedepots](https://fd.nl/politiek/1588346/live-vs-en-israel-bestoken-oliedepots-iran-waarschuwt-buurlanden)
+- [Premier Jetten bezoekt Oekraïne](https://fd.nl/politiek/1588347/premier-jetten-bezoekt-oekraine)
+  > Jetten onderstreept met zijn bezoek dat ‘Nederland onverminderd achter Oekraïne staat’.
+- [Maakt Nota Ruimte een eind aan de strijd om schaarse vierkante meters?](https://fd.nl/samenleving/1588434/maakt-nota-ruimte-een-eind-aan-de-strijd-om-schaarse-vierkante-meters)
+  > Bijna elke sector zegt meer ruimte nodig te hebben, en in de Nota Ruimte staan volgens critici te weinig harde keuzes. ‘Laat niet het recht van de...
+- [Live: nieuwe leider Iran zou zijn gekozen, VS en Israël bestoken oliedepots](https://fd.nl/politiek/1588346/live-vs-en-israel-bestoken-oliedepots-iran-waarschuwt-buurlanden)
   > De aanvallen houden aan. De VS en Israël richten zich onder andere op oliedepots. En Arabische staten langs de Perzische Golf werden opnieuw...
 - [Chinese staalproductie lijkt te dalen, nog te vroeg voor juichstemming in EU](https://fd.nl/economie/1588472/chinese-staalproductie-lijkt-te-dalen-nog-te-vroeg-voor-juichstemming-in-eu)
   > Voor de Europese staalproducenten is het nog te vroeg om te juichen. Analisten vertrouwen de productiecijfers niet. Peking heeft bovendien vaker...
 - [Behandel een datalek als een kapitaalmarktrisico](https://fd.nl/opinie/1588075/behandel-een-datalek-als-een-kapitaalmarktrisico)
   > Recent stalen criminelen data van 6 miljoen Odido-klanten. Het wordt tijd dat we datalekken zien voor wat het is: een groot risico voor de...
-- [In de kraamkamer van de consultancy vlamt de ambitie hoog op](https://fd.nl/samenleving/1588256/in-de-kraamkamer-van-de-consultancy-vlamt-de-ambitie-hoog-op)
-  > Ondanks de kritiek blijft consultancy een aantrekkelijke sector voor studenten. ‘Mensen raken juist extra geïnteresseerd in deze bermudadriehoek.’
-- [Gemeenten hebben flinke reserves, maar voor scholen en infra is geen geld](https://fd.nl/samenleving/1588291/gemeenten-hebben-flinke-reserves-maar-voor-scholen-en-infra-is-geen-geld)
-  > Zonder aanvullende middelen van het Rijk kunnen Nederlandse gemeenten noodzakelijke investeringen niet doen. Toch rept de nieuwe regering met geen...
 
 ### Meest gelezen
 
