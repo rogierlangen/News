@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-03-2026 om 12:58*
+*Laatst bijgewerkt: 08-03-2026 om 13:45*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Beste kansen blijven voor PEC Zwolle, maar Sparta maakt nog altijd kans](https://www.ad.nl/voetbal/beste-kansen-blijven-voor-pec-zwolle-maar-sparta-maakt-nog-altijd-kans~a8704961/)
-  > Enkele weken geleden stond Sparta nog verrassend op de vijfde plek, maar na een slechte reeks is die plek uit het zicht geraakt. Kan de ploeg van...
-- [Senhit opnieuw naar songfestival namens San Marino, ditmaal met Boy George](https://www.ad.nl/show/senhit-opnieuw-naar-songfestival-namens-san-marino-ditmaal-met-boy-george~a410f251/)
-  > Zangeres Senhit gaat samen met Boy George namens San Marino naar het Eurovisie Songfestival in Wenen. De Italiaanse zal in mei in Wenen het nummer...
-- [Slotdag in Thialf van start met 1500 meter, kunnen Nederlandse vrouwen achterstand goedmaken?](https://www.ad.nl/schaatsen/slotdag-in-thialf-van-start-met-1500-meter-kunnen-nederlandse-vrouwen-achterstand-goedmaken~a0750cc9/)
-  > Het schaatsseizoen komt vandaag ten einde. De laatste prijzen worden verdeeld op de slotdag van het WK allround in Heerenveen. De vrouwen rijden de...
-- [FC Twente kan goede zaken doen in strijd om top 3 op bezoek bij Go Ahead: dit zijn de opstellingen](https://www.ad.nl/voetbal/fc-twente-kan-goede-zaken-doen-in-strijd-om-top-3-op-bezoek-bij-go-ahead-dit-zijn-de-opstellingen~aef1e9f3/)
+- [Praat mee: zoek jij in onrustige tijden afleiding in tv‑programma’s als Winter vol liefde?](https://www.ad.nl/praat-mee/praat-mee-zoek-jij-in-onrustige-tijden-afleiding-in-tvprogrammas-als-winter-vol-liefde~a8aae702/)
+  > Het nieuws wordt weer gedomineerd door oorlogen en internationale spanningen. Tegelijkertijd kijken miljoenen Nederlanders naar luchtige televisie....
+- [FC Twente begonnen aan Overijsselse derby bij Go Ahead, kunnen Tukkers aansluiting vinden bij top 3?](https://www.ad.nl/voetbal/fc-twente-begonnen-aan-overijsselse-derby-bij-go-ahead-kunnen-tukkers-aansluiting-vinden-bij-top-3~aef1e9f3/)
   > Door de 2-0 overwinning op Feyenoord vorige week, kan Twente hun vizier richten op plek 3. De achterstand op nummer 4 NEC (2 punten) en nummer 3 Ajax...
-- [Martine wilde gewoon wat donkerder haar, maar eindigde met knaloranje haar](https://www.ad.nl/geld/martine-wilde-gewoon-wat-donkerder-haar-maar-eindigde-met-knaloranje-haar~af9a99c7/)
-  > Als je blond haar bruin verft met henna, kun je knaloranje haar krijgen. Martine (45) wist dat niet. Het gevolg: 300 euro aan herstelkosten bij de...
+- [Vitesse wint ruim bij De Graafschap, supporters van beide clubs stil tijdens eerste twaalf minuten van duel](https://www.ad.nl/voetbal/vitesse-wint-ruim-bij-de-graafschap-supporters-van-beide-clubs-stil-tijdens-eerste-twaalf-minuten-van-duel~aa92e10a/)
+  > Vitesse heeft zondag op de Vijverberg met 4-1 gewonnen van FC De Graafschap. Daardoor stegen de Arnhemmers naar de achttiende plaats in de eerste...
+- [Joy Beune schuift op in klassement na ijzersterke 1500 meter: ‘Laten zien wie de baas is’](https://www.ad.nl/schaatsen/joy-beune-schuift-op-in-klassement-na-ijzersterke-1500-meter-laten-zien-wie-de-baas-is~a0750cc9/)
+  > Het schaatsseizoen komt vandaag ten einde. De laatste prijzen worden verdeeld op de slotdag van het WK allround in Heerenveen. De vrouwen rijden de...
+- [Sparta stelt teleur en verspeelt op eigen veld dure punten tegen PEC Zwolle](https://www.ad.nl/voetbal/sparta-stelt-teleur-en-verspeelt-op-eigen-veld-dure-punten-tegen-pec-zwolle~a8704961/)
+  > Sparta leek zondagmiddag via invaller Milan Zonneveld een late maar o zo belangrijke overwinning te boeken op PEC Zwolle. Leek, want dat was gerekend...
 
 ### Meest gelezen
 
@@ -47,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Nijmegen zoekt ruim €1 mrd voor investeringen in lokale chipsector](https://fd.nl/bedrijfsleven/1588324/nijmegen-zoekt-ruim-1-mrd-voor-investeringen-in-lokale-chipsector)
+  > De Gelderse regio wil de komende jaren het chipcluster verdubbelen naar een omzet van in totaal €8 mrd.
 - [Kansspelbelasting valt 13% lager uit ondanks verhoging tarief](https://fd.nl/bedrijfsleven/1588322/kansspelbelasting-valt-13-lager-uit-ondanks-verhoging-tarief)
   > De mix van strengere regels voor de aanbieders en een hoger tarief voor de kansspelbelasting leiden tot een lagere omzet en dus een lagere...
 - [Premier Jetten bezoekt Oekraïne](https://fd.nl/politiek/1588347/premier-jetten-bezoekt-oekraine)
@@ -55,8 +57,6 @@
   > Bijna elke sector zegt meer ruimte nodig te hebben, en in de Nota Ruimte staan volgens critici te weinig harde keuzes. ‘Laat niet het recht van de...
 - [Live: Nieuwe leider Iran zou zijn gekozen, VS en Israël bestoken oliedepots](https://fd.nl/politiek/1588346/live-vs-en-israel-bestoken-oliedepots-iran-waarschuwt-buurlanden)
   > De aanvallen houden aan. De VS en Israël richten zich onder andere op oliedepots. En Arabische staten langs de Perzische Golf werden opnieuw...
-- [Chinese staalproductie lijkt te dalen, nog te vroeg voor juichstemming in EU](https://fd.nl/economie/1588472/chinese-staalproductie-lijkt-te-dalen-nog-te-vroeg-voor-juichstemming-in-eu)
-  > Voor de Europese staalproducenten is het nog te vroeg om te juichen. Analisten vertrouwen de productiecijfers niet. Peking heeft bovendien vaker...
 
 ### Meest gelezen
 
