@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-03-2026 om 16:34*
+*Laatst bijgewerkt: 08-03-2026 om 17:27*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Overstromingen in noorden Australië, duizend mensen geëvacueerd](https://nos.nl/l/2605533)
+  > De Australische deelstaat Northern Territory kampt met zware overstromingen na hevige regenval de afgelopen dagen. De noordelijke regio is...
 - [Gouverneur Roemer betrokken bij verkeersongeluk: 'Ongelooflijk harde klap'](https://nos.nl/l/2605517)
   > In het Limburgse Heijen is vanmiddag de dienstauto van gouverneur Emile Roemer betrokken geraakt bij een ongeluk. De bestuurder van de andere auto...
 - [Opmars lokale partijen zet naar verwachting door, ook in Medemblik](https://nos.nl/l/2605509)
@@ -16,9 +18,6 @@
   > Op Internationale Vrouwendag hebben duizenden mensen op de Dam in Amsterdam slachtoffers van femicide herdacht. Een lijst met namen van de...
 - [Jetten en Zelensky: oorlog in Midden-Oosten heeft ook effect op Oekraïne](https://nos.nl/l/2605498)
   > "Hoe langer de oorlog in het Midden-Oosten voortduurt, hoe minder aandacht er is voor de Russische invasie van Oekraïne." Dat constateerde de...
-- [Groningse CDA-lijsttrekker weg om betrokkenheid bij strafrechtelijk onderzoek](https://nos.nl/l/2605495)
-  > De lijsttrekker van het CDA in de gemeente Westerkwartier heeft zich per direct teruggetrokken omdat hij betrokken is bij een justitieel onderzoek.
- ...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Veroordeelde fakkeldrager Max zat weken vast in Syrische cel, maar is weer vrij](https://www.ad.nl/binnenland/veroordeelde-fakkeldrager-max-zat-weken-vast-in-syrische-cel-maar-is-weer-vrij~a194e859/)
+  > De omstreden en veroordeelde complotdenker Max van den Berg, bekend als fakkeldrager voor het huis van oud-politicus Sigrid Kaag, zat de afgelopen...
+- [De ‘avondeten-truc’: hoe Israël en Trump Iran met een list overrompelden](https://www.ad.nl/buitenland/de-avondeten-truc-hoe-israel-en-trump-iran-met-een-list-overrompelden~a016fb27/)
+  > Precies op de tiende dag van Donald Trumps beruchte ‘tien dagen waarschuwing’ barstte de oorlog los. Terwijl de wereld dacht dat er diplomatiek...
+- [NAC en Feyenoord strijden voor de zege in doelpuntrijk en meeslepend duel in Breda](https://www.ad.nl/voetbal/nac-en-feyenoord-strijden-voor-de-zege-in-doelpuntrijk-en-meeslepend-duel-in-breda~a95d81e3/)
+  > Het staat 3-3 bij de vermakelijke wedstrijd tussen NAC Breda en Feyenoord. Volg hieronder ons liveblog.
+- [Sander Eitrem maakt Noors feestje in Thialf compleet met eerste wereldtitel](https://www.ad.nl/schaatsen/sander-eitrem-maakt-noors-feestje-in-thialf-compleet-met-eerste-wereldtitel~a59f5d74/)
+  > Sander Eitrem is voor het eerst in zijn carrière wereldkampioen allround geworden. De 24-jarige Noor evenaarde in Thialf de prestatie van zijn...
 - [Amerikaan Luke Lamperti sprint naar winst in openingsrit Parijs-Nice, Jonas Vingegaard maakt seizoensstart](https://www.ad.nl/wielrennen/amerikaan-luke-lamperti-sprint-naar-winst-in-openingsrit-parijs-nice-jonas-vingegaard-maakt-seizoensstart~a586512c/)
   > De Amerikaan Luke Lamperti heeft de eerste etappe van de achtdaagse rittenkoers Parijs-Nice gewonnen. Hij was de snelste in een massasprint.
-- [LIVE eredivisie | NAC net voor rust op voorsprong tegen Feyenoord, Ayew kopt raak in meeslepend duel](https://www.ad.nl/voetbal/live-eredivisie-nac-net-voor-rust-op-voorsprong-tegen-feyenoord-ayew-kopt-raak-in-meeslepend-duel~a95d81e3/)
-  > Het staat halverwege 3-2 bij de wedstrijd tussen NAC Breda en Feyenoord. De bezoekers uit Rotterdam kwamen via Ayase Ueda (eerste goal sinds 6...
-- [Tim Senders schrikt van opgezwollen gezicht na haartransplantatie: ‘Dit is geen filter’](https://www.ad.nl/show/tim-senders-schrikt-van-opgezwollen-gezicht-na-haartransplantatie-dit-is-geen-filter~a45521bd/)
-  > Tim Senders (35) heeft zijn volgers zondag even flink laten schrikken. Op Instagram deelt de programmamaker en presentator een video waarop te zien...
-- [De val van een culinaire held: chef beste restaurant ter wereld geeft mishandeling toe: ‘Kon druk niet aan’](https://www.ad.nl/buitenland/de-val-van-een-culinaire-held-chef-beste-restaurant-ter-wereld-geeft-mishandeling-toe-kon-druk-niet-aan~ac7c3db5/)
-  > Schreeuwen, vernederen en slaan. In de keuken van ’s werelds beste restaurant, Noma, heerste jarenlang een angstcultuur. Tientallen oud-medewerkers...
-- [FC Twente is Ajax op ranglijst voorbij na klinkende zege bij Go Ahead Eagles](https://www.ad.nl/voetbal/fc-twente-is-ajax-op-ranglijst-voorbij-na-klinkende-zege-bij-go-ahead-eagles~aef1e9f3/)
-  > FC Twente heeft met 4-1 gewonnen van Go Ahead Eagles en doet goede zaken in de strijd om plek drie in de VriendenLoterij Eredivisie. De Tukkers...
 
 ### Meest gelezen
 
