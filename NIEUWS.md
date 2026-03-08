@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-03-2026 om 17:27*
+*Laatst bijgewerkt: 08-03-2026 om 18:40*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Ook morgen nog geen treinen van Den Bosch naar het zuiden](https://nos.nl/l/2605545)
+  > Ook morgen rijden er nog geen treinen tussen Den Bosch en Tilburg en tussen Den Bosch en Boxtel, meldt de NS. In de nacht van vrijdag op zaterdag...
 - [Overstromingen in noorden Australië, duizend mensen geëvacueerd](https://nos.nl/l/2605533)
   > De Australische deelstaat Northern Territory kampt met zware overstromingen na hevige regenval de afgelopen dagen. De noordelijke regio is...
 - [Gouverneur Roemer betrokken bij verkeersongeluk: 'Ongelooflijk harde klap'](https://nos.nl/l/2605517)
@@ -16,8 +18,6 @@
   > Er valt weer veel te kiezen bij de komende gemeenteraadsverkiezingen. Bijna duizend partijen dingen op 18 maart om de gunst van de kiezer en 375...
 - [Vele duizenden bij herdenking slachtoffers femicide en mars op Vrouwendag](https://nos.nl/l/2605502)
   > Op Internationale Vrouwendag hebben duizenden mensen op de Dam in Amsterdam slachtoffers van femicide herdacht. Een lijst met namen van de...
-- [Jetten en Zelensky: oorlog in Midden-Oosten heeft ook effect op Oekraïne](https://nos.nl/l/2605498)
-  > "Hoe langer de oorlog in het Midden-Oosten voortduurt, hoe minder aandacht er is voor de Russische invasie van Oekraïne." Dat constateerde de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Veroordeelde fakkeldrager Max zat weken vast in Syrische cel, maar is weer vrij](https://www.ad.nl/binnenland/veroordeelde-fakkeldrager-max-zat-weken-vast-in-syrische-cel-maar-is-weer-vrij~a194e859/)
-  > De omstreden en veroordeelde complotdenker Max van den Berg, bekend als fakkeldrager voor het huis van oud-politicus Sigrid Kaag, zat de afgelopen...
-- [De ‘avondeten-truc’: hoe Israël en Trump Iran met een list overrompelden](https://www.ad.nl/buitenland/de-avondeten-truc-hoe-israel-en-trump-iran-met-een-list-overrompelden~a016fb27/)
-  > Precies op de tiende dag van Donald Trumps beruchte ‘tien dagen waarschuwing’ barstte de oorlog los. Terwijl de wereld dacht dat er diplomatiek...
-- [NAC en Feyenoord strijden voor de zege in doelpuntrijk en meeslepend duel in Breda](https://www.ad.nl/voetbal/nac-en-feyenoord-strijden-voor-de-zege-in-doelpuntrijk-en-meeslepend-duel-in-breda~a95d81e3/)
-  > Het staat 3-3 bij de vermakelijke wedstrijd tussen NAC Breda en Feyenoord. Volg hieronder ons liveblog.
-- [Sander Eitrem maakt Noors feestje in Thialf compleet met eerste wereldtitel](https://www.ad.nl/schaatsen/sander-eitrem-maakt-noors-feestje-in-thialf-compleet-met-eerste-wereldtitel~a59f5d74/)
-  > Sander Eitrem is voor het eerst in zijn carrière wereldkampioen allround geworden. De 24-jarige Noor evenaarde in Thialf de prestatie van zijn...
-- [Amerikaan Luke Lamperti sprint naar winst in openingsrit Parijs-Nice, Jonas Vingegaard maakt seizoensstart](https://www.ad.nl/wielrennen/amerikaan-luke-lamperti-sprint-naar-winst-in-openingsrit-parijs-nice-jonas-vingegaard-maakt-seizoensstart~a586512c/)
-  > De Amerikaan Luke Lamperti heeft de eerste etappe van de achtdaagse rittenkoers Parijs-Nice gewonnen. Hij was de snelste in een massasprint.
+- [NEC gaat bij winst op FC Volendam over Ajax en FC Twente heen](https://www.ad.nl/voetbal/nec-gaat-bij-winst-op-fc-volendam-over-ajax-en-fc-twente-heen~ae9c52ff/)
+  > Deze week zorgde NEC voor een stunt door PSV te verslaan en de bekerfinale te bereiken. Vanavond staat de thuiswedstrijd tegen FC Volendam op het...
+- [Staafmixers getest: voor 30 euro heb je een prima exemplaar met hakmolen](https://www.ad.nl/wonen/staafmixers-getest-voor-30-euro-heb-je-een-prima-exemplaar-met-hakmolen~a89a66e50/)
+  > Koken en bakken moet je zelf doen, maar een staafmixer met hakmolen kan je prima helpen bij de voorbereidingen. Maar welke is het beste? En welke...
+- [Vrouwenrechten zijn geen vanzelfsprekendheid meer](https://www.ad.nl/commentaar/vrouwenrechten-zijn-geen-vanzelfsprekendheid-meer~ae0c5b14/)
+  > Internationale Vrouwendag wordt alleen maar belangrijker. Een groter en breder bewustzijn over de positie van vrouwen is hard nodig, schrijft onze...
+- [Ajax stopt met Fred Grim als trainer, Óscar García maakt seizoen af](https://www.ad.nl/voetbal/ajax-stopt-met-fred-grim-als-trainer-oscar-garcia-maakt-seizoen-af~a167126cf/)
+  > Ajax stopt per direct met Fred Grim als trainer van de hoofdmacht. De 52-jarige Spanjaard Óscar García, die afgelopen maand werd aangesteld als...
+- [Iran: ‘Zeker 104 mensen omgekomen door gezonken schip bij Sri Lanka’](https://www.ad.nl/buitenland/iran-zeker-104-mensen-omgekomen-door-gezonken-schip-bij-sri-lanka~ac528ac3/)
+  > Volgens het Iraanse leger zijn minstens 104 mensen omgekomen en 32 gewonden gevallen door een Amerikaanse aanval op hun oorlogsschip voor de kust van...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Groenen winnen volgens prognoses nipt in Baden-Württemberg](https://fd.nl/politiek/1588348/groenen-winnen-volgens-prognoses-nipt-in-baden-wurttemberg)
+  > Het resultaat is een domper voor de christendemocraten, die lang aan kop gingen in de peilingen. De extreemrechtse partij AfD haalde ruim 18% van de...
 - [Investeerder HAL verdubbelt belang in techconcern TKH Group](https://fd.nl/bedrijfsleven/1588500/investeerder-hal-verdubbelt-belang-in-techconcern-tkh-group)
   > HAL heeft zijn belang in het Twentse technologieconcern uitgebreid tot iets meer dan 10%.
 - [Oorlog in Iran stuwt olieprijs richting psychologische grens van $100](https://fd.nl/economie/1588499/oorlog-in-iran-stuwt-olieprijs-richting-psychologische-grens-van-100)
@@ -54,8 +56,6 @@
   > Jongens of meisjes op straat die vragen stellen? Online enquêtes over werkplezier? Columnist Mathijs Rotteveel doet er niet aan mee. Een...
 - [Ceo Zwitserse beurs: ‘Europa heeft meerdere beurzen nodig, zo houden we elkaar scherp’](https://fd.nl/financiele-markten/1588251/ceo-zwitserse-beurs-europa-heeft-meerdere-beurzen-nodig-zo-houden-we-elkaar-scherp)
   > Bondkanselier Merz en ECB-president Lagarde pleiten voor verdere samensmelting van Europese beurzen. SIX, de eigenaar van de Spaanse en Zwitserse...
-- [Vooral kleine werkgever schuift nieuwe pensioenregeling voor zich uit](https://fd.nl/bedrijfsleven/1588325/vooral-kleine-werkgever-schuift-nieuwe-pensioenregeling-voor-zich-uit)
-  > Met name mkb’ers in de consultancy en IT komen nog te weinig in actie om arbeidsvoorwaarden aan te passen aan nieuwe regels. Dat kan grote gevolgen...
 
 ### Meest gelezen
 
