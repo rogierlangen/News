@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-03-2026 om 19:27*
+*Laatst bijgewerkt: 08-03-2026 om 20:32*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Justin Bijlow wint van Donyell Malen, beide Nederlanders belangrijk bij hun nieuwe club](https://www.ad.nl/voetbal/justin-bijlow-wint-van-donyell-malen-beide-nederlanders-belangrijk-bij-hun-nieuwe-club~a41a7e7a/)
-  > In de winterstop wilden ze allebei weg van de bank en weer elke wedstrijd spelen. Ze kozen beiden voor een overstap naar de Serie A. Daar zijn Justin...
-- [Man dringt ’s nachts huis van koppel binnen en verkracht beide vrouwen: ‘Hoopte dat hij mij niet zou doden’](https://www.ad.nl/binnenland/man-dringt-s-nachts-huis-van-koppel-binnen-en-verkracht-beide-vrouwen-hoopte-dat-hij-mij-niet-zou-doden~a08b9d51/)
-  > Twee vrouwen zijn zondag op gruwelijke wijze verkracht in hun eigen woning in Goudswaard, een dorpje in de Hoeksche Waard. In het holst van de nacht...
-- [Tijd voor de halve finales, wie gaan er door naar de eindstrijd?](https://www.ad.nl/darts/tijd-voor-de-halve-finales-wie-gaan-er-door-naar-de-eindstrijd~a5f4ac911/)
-  > Tijd voor de halve finales op de UK Open. Het toernooi begon met liefst 24 Nederlanders, maar inmiddels zijn er geen landgenoten meer over. Gerwyn...
-- [Sterrenploeg Dominicaanse Republiek laat honkballers Oranje volstrekt kansloos: 12-1](https://www.ad.nl/andere-sporten/sterrenploeg-dominicaanse-republiek-laat-honkballers-oranje-volstrekt-kansloos-12-1~a80b8b6c/)
-  > De honkballers van het Nederlandse Koninkrijksteam zijn nagenoeg uitgeschakeld op de World Baseball Classic (WBC). De ploeg van bondscoach Andruw...
-- [Old Firm loopt uit de hand: fans van Rangers en Celtic het veld op na penaltyserie, staflid aangevallen](https://www.ad.nl/voetbal/old-firm-loopt-uit-de-hand-fans-van-rangers-en-celtic-het-veld-op-na-penaltyserie-staflid-aangevallen~aa62be09/)
-  > De 451ste editie van de Old Firm, de altijd beladen derby tussen Celtic en Rangers uit Glasgow, is zondag geëindigd in een grote confrontatie tussen...
+- [Honderden mensen zien vuurbol over Nederland scheren](https://www.ad.nl/binnenland/honderden-mensen-zien-vuurbol-over-nederland-scheren~a3104fe8/)
+  > Honderden mensen hebben vanavond een vuurbol door de lucht zien vliegen. Waarschijnlijk gaat het om een flinke meteoor, ook wel een vallende ster...
+- [Nieuwe koning Jordi Cruijff zet tussenpaus Fred Grim af, familievriend Óscar García neemt stokje over](https://www.ad.nl/voetbal/nieuwe-koning-jordi-cruijff-zet-tussenpaus-fred-grim-af-familievriend-oscar-garcia-neemt-stokje-over~a167126cf/)
+  > Fred Grim (60) is na de 3-1 nederlaag tegen FC Groningen gesneuveld als trainer van Ajax. Jordi Cruijff heeft de tussenpaus teruggezet in zijn oude...
+- [Tot maandagochtend code geel in westen om plaatselijk dichte mist](https://www.ad.nl/binnenland/tot-maandagochtend-code-geel-in-westen-om-plaatselijk-dichte-mist~ab7ca1c0/)
+  > In Zeeland, Zuid-Holland en Noord-Holland kan plaatselijk dichte mist voorkomen. Het KNMI heeft om die reden code geel afgegeven voor de drie...
+- [Zo waardeloos en zwak zijn we niet](https://www.ad.nl/binnenland/zo-waardeloos-en-zwak-zijn-we-niet~a977d7b2/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Programma en stand eredivisie | Ajax en Feyenoord verspelen punten: dit zijn de verschillen met NEC en FC Twente in strijd om plek 2](https://www.ad.nl/voetbal/programma-en-stand-eredivisie-ajax-en-feyenoord-verspelen-punten-dit-zijn-de-verschillen-met-nec-en-fc-twente-in-strijd-om-plek-2~adadd191/)
+  > Bekijk hier de stand in de eredivisie. Daaronder zijn het programma en de topscorersranglijst te vinden.
 
 ### Meest gelezen
 
@@ -48,7 +48,7 @@
 
 - [Even geen beton op gasveld Groningen](https://fd.nl/opinie/1588330/even-geen-beton-op-gasveld-groningen)
   > Er zijn uitstekende redenen om helemaal nooit meer gas uit Groningen te pompen. Maar om nu alle putten dicht te storten, daarvoor is de wereld iets...
-- [Groenen en CDU bijna even groot in  Baden-Württemberg](https://fd.nl/politiek/1588348/groenen-winnen-volgens-prognoses-nipt-in-baden-wurttemberg)
+- [Groenen en CDU bijna even groot in Baden-Württemberg](https://fd.nl/politiek/1588348/groenen-winnen-volgens-prognoses-nipt-in-baden-wurttemberg)
   > Het resultaat is een domper voor de christendemocraten, die lang aan kop gingen in de peilingen. De extreemrechtse partij AfD staat in de prognoses...
 - [Investeerder HAL verdubbelt belang in techconcern TKH Group](https://fd.nl/bedrijfsleven/1588500/investeerder-hal-verdubbelt-belang-in-techconcern-tkh-group)
   > HAL heeft zijn belang in het Twentse technologieconcern uitgebreid tot iets meer dan 10%.
