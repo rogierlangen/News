@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-03-2026 om 15:28*
+*Laatst bijgewerkt: 08-03-2026 om 16:34*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Gouverneur Roemer betrokken bij verkeersongeluk: 'Ongelooflijk harde klap'](https://nos.nl/l/2605517)
+  > In het Limburgse Heijen is vanmiddag de dienstauto van gouverneur Emile Roemer betrokken geraakt bij een ongeluk. De bestuurder van de andere auto...
 - [Opmars lokale partijen zet naar verwachting door, ook in Medemblik](https://nos.nl/l/2605509)
   > Er valt weer veel te kiezen bij de komende gemeenteraadsverkiezingen. Bijna duizend partijen dingen op 18 maart om de gunst van de kiezer en 375...
 - [Vele duizenden bij herdenking slachtoffers femicide en mars op Vrouwendag](https://nos.nl/l/2605502)
@@ -17,8 +19,6 @@
 - [Groningse CDA-lijsttrekker weg om betrokkenheid bij strafrechtelijk onderzoek](https://nos.nl/l/2605495)
   > De lijsttrekker van het CDA in de gemeente Westerkwartier heeft zich per direct teruggetrokken omdat hij betrokken is bij een justitieel onderzoek.
  ...
-- ['Zwemmende zeekomkommer' en gouden koraaltorens ontdekt diep in de zee](https://nos.nl/l/2605475)
-  > Wetenschappers hebben voor het eerst een expeditie uitgevoerd in diepe wateren rond de Britse Caribische eilanden en daarbij een onderwatergebergte,...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Amerikaan Luke Lamperti sprint naar winst in openingsrit Parijs-Nice, Jonas Vingegaard maakt seizoensstart](https://www.ad.nl/wielrennen/amerikaan-luke-lamperti-sprint-naar-winst-in-openingsrit-parijs-nice-jonas-vingegaard-maakt-seizoensstart~a586512c/)
+  > De Amerikaan Luke Lamperti heeft de eerste etappe van de achtdaagse rittenkoers Parijs-Nice gewonnen. Hij was de snelste in een massasprint.
+- [LIVE eredivisie | NAC net voor rust op voorsprong tegen Feyenoord, Ayew kopt raak in meeslepend duel](https://www.ad.nl/voetbal/live-eredivisie-nac-net-voor-rust-op-voorsprong-tegen-feyenoord-ayew-kopt-raak-in-meeslepend-duel~a95d81e3/)
+  > Het staat halverwege 3-2 bij de wedstrijd tussen NAC Breda en Feyenoord. De bezoekers uit Rotterdam kwamen via Ayase Ueda (eerste goal sinds 6...
+- [Tim Senders schrikt van opgezwollen gezicht na haartransplantatie: ‘Dit is geen filter’](https://www.ad.nl/show/tim-senders-schrikt-van-opgezwollen-gezicht-na-haartransplantatie-dit-is-geen-filter~a45521bd/)
+  > Tim Senders (35) heeft zijn volgers zondag even flink laten schrikken. Op Instagram deelt de programmamaker en presentator een video waarop te zien...
+- [De val van een culinaire held: chef beste restaurant ter wereld geeft mishandeling toe: ‘Kon druk niet aan’](https://www.ad.nl/buitenland/de-val-van-een-culinaire-held-chef-beste-restaurant-ter-wereld-geeft-mishandeling-toe-kon-druk-niet-aan~ac7c3db5/)
+  > Schreeuwen, vernederen en slaan. In de keuken van ’s werelds beste restaurant, Noma, heerste jarenlang een angstcultuur. Tientallen oud-medewerkers...
 - [FC Twente is Ajax op ranglijst voorbij na klinkende zege bij Go Ahead Eagles](https://www.ad.nl/voetbal/fc-twente-is-ajax-op-ranglijst-voorbij-na-klinkende-zege-bij-go-ahead-eagles~aef1e9f3/)
-  > FC Twente heeft met 4-1 gewonnen van Go Ahead Eagles en doet goede zaken in de strijd om plek drie in de Eredivisie. De Tukkers maakten het verschil...
-- [Automobilist botst op dienstauto gouverneur Emile Roemer: ‘Ik heb wat gekneusde ribben’](https://www.ad.nl/binnenland/automobilist-botst-op-dienstauto-gouverneur-emile-roemer-ik-heb-wat-gekneusde-ribben~a8e337f2/)
-  > Een automobilist is zondagmiddag achterop de dienstauto van gouverneur Emile Roemer gebotst op de N271 bij Heijen (Limburg). Daarbij raakten de...
-- [Waarom krijgen vrouwen minder vaak een orgasme? Dit misverstand speelt een grote rol](https://www.ad.nl/gezond/waarom-krijgen-vrouwen-minder-vaak-een-orgasme-dit-misverstand-speelt-een-grote-rol~af47b963/)
-  > In Nederland hebben we niet alleen een loonkloof, maar ook een orgasmekloof: vrouwen krijgen minder snel een orgasme door seks dan mannen....
-- [Buitenlandse media zien Max Verstappen ook nu niet veranderen: ‘Bekende agressieve rijstijl bleef zichtbaar’](https://www.ad.nl/formule-1/buitenlandse-media-zien-max-verstappen-ook-nu-niet-veranderen-bekende-agressieve-rijstijl-bleef-zichtbaar~a80fef63/)
-  > De buitenlandse media waren onder de indruk van de inhaalrace van Max Verstappen tijdens de Grand Prix van Australië. Hoewel de coureur van Red Bull...
-- [Noorse wereldtitel in Thialf: Ragne Wiklund blijft Marijke Groenewoud en Joy Beune voor bij WK allround](https://www.ad.nl/schaatsen/noorse-wereldtitel-in-thialf-ragne-wiklund-blijft-marijke-groenewoud-en-joy-beune-voor-bij-wk-allround~a0750cc9/)
-  > Noorwegen, de laatste jaren een succesvol schaatsland bij de mannen, heeft met het allroundgoud van Ragne Wiklund eindelijk ook  weer een dikke kluif...
+  > FC Twente heeft met 4-1 gewonnen van Go Ahead Eagles en doet goede zaken in de strijd om plek drie in de VriendenLoterij Eredivisie. De Tukkers...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Investeerder HAL verdubbelt belang in techconcern TKH Group](https://fd.nl/bedrijfsleven/1588500/investeerder-hal-verdubbelt-belang-in-techconcern-tkh-group)
+  > HAL heeft zijn belang in het Twentse technologieconcern uitgebreid tot iets meer dan 10%.
+- [Oorlog in Iran stuwt olieprijs richting psychologische grens van $100](https://fd.nl/economie/1588499/oorlog-in-iran-stuwt-olieprijs-richting-psychologische-grens-van-100)
+  > Irak, Koeweit en de Verenigde Arabische Emiraten schroeven hun productie terug, nu tankers hen niet meer kunnen bereiken. En dat vertaalt zich in...
+- [Enquêtehaat](https://fd.nl/opinie/1588497/enquetehaat)
+  > Jongens of meisjes op straat die vragen stellen? Online enquêtes over werkplezier? Columnist Mathijs Rotteveel doet er niet aan mee. Een...
 - [Ceo Zwitserse beurs: ‘Europa heeft meerdere beurzen nodig, zo houden we elkaar scherp’](https://fd.nl/financiele-markten/1588251/ceo-zwitserse-beurs-europa-heeft-meerdere-beurzen-nodig-zo-houden-we-elkaar-scherp)
   > Bondkanselier Merz en ECB-president Lagarde pleiten voor verdere samensmelting van Europese beurzen. SIX, de eigenaar van de Spaanse en Zwitserse...
 - [Vooral kleine werkgever schuift nieuwe pensioenregeling voor zich uit](https://fd.nl/bedrijfsleven/1588325/vooral-kleine-werkgever-schuift-nieuwe-pensioenregeling-voor-zich-uit)
   > Met name mkb’ers in de consultancy en IT komen nog te weinig in actie om arbeidsvoorwaarden aan te passen aan nieuwe regels. Dat kan grote gevolgen...
-- [Een olifant in de kamer: wie betaalt mee aan de vrachtwagenheffing?](https://fd.nl/bedrijfsleven/1588277/een-olifant-in-de-kamer-wie-betaalt-mee-aan-de-vrachtwagenheffing)
-  > De heffing voor trucks, bedoeld als klimaatmaatregel, gaat op 1 juli in. Transportondernemers moeten als de wiedeweerga met hun klanten gaan praten...
-- [De oorlogskas van de ayatollahs drijft op volle zee](https://fd.nl/economie/1588163/de-oorlogskas-van-de-ayatollahs-drijft-op-volle-zee)
-  > Iran heeft zich economisch goed voorbereid op een militaire confrontatie met de VS en Israël. Het regime stuurde tankers vol olie de zee op, vóór de...
-- [Nijmegen zoekt ruim €1 mrd voor investeringen in lokale chipsector](https://fd.nl/bedrijfsleven/1588324/nijmegen-zoekt-ruim-1-mrd-voor-investeringen-in-lokale-chipsector)
-  > De Gelderse regio wil de komende jaren het chipcluster verdubbelen naar een omzet van in totaal €8 mrd.
 
 ### Meest gelezen
 
