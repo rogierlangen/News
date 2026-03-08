@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-03-2026 om 02:34*
+*Laatst bijgewerkt: 08-03-2026 om 04:46*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Puppy na negen dagen gered van Griekse besneeuwde bergtop: 'We noemen hem lucky'](https://nos.nl/l/2605438)
+  > In Griekenland is een negen maanden oude hond na negen dagen gered van een besneeuwde berg. Het dier had al die tijd geen voedsel en verbleef in...
 - [Explosie bij Amerikaanse ambassade in Oslo, geen gewonden](https://nos.nl/l/2605436)
   > Bij de Amerikaanse ambassade in de Noorse hoofdstad Oslo heeft in de nacht van zaterdag op zondag een explosie plaatsgevonden. Niemand raakte gewond....
 - [Topchef Redzepi opnieuw onder vuur na aanklachten van mishandeling bij Noma](https://nos.nl/l/2605433)
@@ -16,8 +18,6 @@
   > Het vogelverblijf van Wildlands Adventure Zoo in Emmen is uit voorzorg gesloten na de dood van drie kuifibissen. Twee van de vogels zijn overleden...
 - [Gedenkplaat voor slachtoffers Capitoolbestorming stilletjes opgehangen](https://nos.nl/l/2605411)
   > Een plaquette ter nagedachtenis aan agenten die om het leven kwamen of gewond raakten bij de bestorming van het Capitool is afgelopen nacht...
-- [Geen nieuwe Wilhelminatoren in Valkenburg, eigenaar weigert nieuwbouw](https://nos.nl/l/2605407)
-  > Er komt vrijwel zeker geen nieuwe Wilhelminatoren in Valkenburg. De eigenaar van de toren, die een jaar geleden instortte, overweegt geen nieuwbouw....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Cubaanse president kraakt ‘neokoloniale top’ van Trump met Latijns-Amerikaanse leiders](https://www.ad.nl/buitenland/cubaanse-president-kraakt-neokoloniale-top-van-trump-met-latijns-amerikaanse-leiders~ae67dd9c/)
+  > De Cubaanse president Miguel Diaz-Canel heeft de ‘Shield of the Americas’-top van de Amerikaanse president Donald Trump op X afgedaan als een...
+- [Voorspoedige inhaalrace Max Verstappen, spannend gevecht tussen Mercedes en Ferrari](https://www.ad.nl/formule-1/voorspoedige-inhaalrace-max-verstappen-spannend-gevecht-tussen-mercedes-en-ferrari~a1eb5934/)
+  > De eerste punten van het nieuwe tijdperk in de Formule 1 worden verdeeld tijdens de Grand Prix van Australië. Het wordt voor Max Verstappen een hels...
+- [Chaos bij GP Australië: thuisheld Piastri crasht nog vóór de race, teamgenoot Verstappen valt uit](https://www.ad.nl/formule-1/chaos-bij-gp-australie-thuisheld-piastri-crasht-nog-voor-de-race-teamgenoot-verstappen-valt-uit~a67161ea/)
+  > De Australische fans keken in Melbourne vol ongeloof naar de schermen. Nog vóór de Grand Prix van Australië was begonnen, crashte thuisheld Oscar...
 - [Zo veel trager zijn de Formule 1-auto’s ten opzichte van vorig jaar: ‘Je moet overal gas terugnemen’](https://www.ad.nl/formule-1/zo-veel-trager-zijn-de-formule-1-autos-ten-opzichte-van-vorig-jaar-je-moet-overal-gas-terugnemen~afec6bc0/)
   > Max Verstappen en collega-coureurs klagen er dit weekend in Australië stevig op los over de nieuwe auto’s in de Formule 1. Maar hoeveel minder snel...
 - [Lodewijk Asscher: Elke dag dat AOW-drol nog op tafel ligt, is verspilde tijd](https://www.ad.nl/politiek/lodewijk-asscher-elke-dag-dat-aow-drol-nog-op-tafel-ligt-is-verspilde-tijd~adb6a084/)
   > Een snellere verhoging van de AOW-leeftijd is voorlopig van de baan. Het kabinet heeft het idee om ‘iets’ te doen aan de AOW echter niet laten varen....
-- [Code geel om dichte mist in zuidwesten en Utrecht](https://www.ad.nl/binnenland/code-geel-om-dichte-mist-in-zuidwesten-en-utrecht~ae550524/)
-  > In meerdere provincies geldt in de nacht van zaterdag op zondag code geel voor dichte mist. Het KNMI gaf de waarschuwing voor Zeeland, Noord-Brabant,...
-- [Zelensky wil reactie van bondgenoten na ‘barbaarse aanval’ op Charkiv, dodental loopt op naar elf](https://www.ad.nl/buitenland/zelensky-wil-reactie-van-bondgenoten-na-barbaarse-aanval-op-charkiv-dodental-loopt-op-naar-elf~adfb97be/)
-  > Het dodental na de Russische aanvallen op Oekraïne in de nacht van vrijdag op zaterdag is opgelopen naar minstens elf. Onder de slachtoffers zijn...
-- [Verbazing over Andries Jonker als analist bij duel Leeuwinnen: ‘Ik had de keuze niet gemaakt’](https://www.ad.nl/voetbal/verbazing-over-andries-jonker-als-analist-bij-duel-leeuwinnen-ik-had-de-keuze-niet-gemaakt~a9c379e6/)
-  > Voormalig bondscoach Andries Jonker keerde kort na zijn vertrek terug bij de Oranje Leeuwinnen, maar dan wel in een andere rol. De trainer was bij...
 
 ### Meest gelezen
 
