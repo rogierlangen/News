@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-03-2026 om 06:51*
+*Laatst bijgewerkt: 08-03-2026 om 07:33*
 
 ---
 
@@ -8,6 +8,9 @@
 
 ### Laatste nieuws
 
+- [Wekdienst 8/3: Internationale Vrouwendag • Laatste dag WK schaatsen allround](https://nos.nl/l/2605454)
+  > Goedemorgen! Het is vandaag Internationale Vrouwendag en in Heerenveen is de slotdag van het WK schaatsen allround. 
+        Eerst het weer: na een...
 - [Ruim een week oorlog in het Midden-Oosten: wat staat de wereld nog te wachten?](https://nos.nl/l/2605451)
   > Ruim een week geleden gebeurde wat al maanden in de lucht hing: Israël en de VS begonnen met het bombarderen van aartsvijand Iran. Het regime is met...
 - [Duits verkiezingsjaar afgetrapt, Groenen hopen op winst in Baden-Württemberg](https://nos.nl/l/2605442)
@@ -16,8 +19,6 @@
   > In Griekenland is een negen maanden oude hond na negen dagen gered van een besneeuwde berg. Het dier had al die tijd geen voedsel en de temperaturen...
 - [Explosie bij Amerikaanse ambassade in Oslo, geen gewonden](https://nos.nl/l/2605436)
   > Bij de Amerikaanse ambassade in de Noorse hoofdstad Oslo heeft in de nacht van zaterdag op zondag een explosie plaatsgevonden. Niemand raakte gewond....
-- [Topchef Redzepi opnieuw onder vuur na aanklachten van mishandeling bij Noma](https://nos.nl/l/2605433)
-  > De Deense topchef René Redzepi, oprichter van restaurant Noma in Kopenhagen, ligt opnieuw onder vuur na beschuldigingen van fysieke en psychologische...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Automobilisten stonden in 2025 1,2 miljoen kilometer in de file: 31 keer rond de aarde](https://www.ad.nl/auto/automobilisten-stonden-in-2025-1-2-miljoen-kilometer-in-de-file-31-keer-rond-de-aarde~a7601dca/)
-  > Vorig jaar stonden automobilisten in Nederland zo'n 1,2 miljoen kilometer in de file. Dat is ongeveer even ver als 31 keer rond de aarde. Er waren in...
-- [Cynische Isack Hadjar baalt als een stekker na uitvalbeurt: ‘Had beter thuis kunnen blijven’](https://www.ad.nl/formule-1/cynische-isack-hadjar-baalt-als-een-stekker-na-uitvalbeurt-had-beter-thuis-kunnen-blijven~ade263b12/)
-  > Het eerste Formule 1-weekend van het seizoen staat voor de deur. Max Verstappen en zijn collega’s zijn in Melbourne voor de Grand Prix van Australië....
-- [Zijn haar, voorhoofd, ogen, neus, nek, schouders: het is alsof ik naar mezelf kijk](https://www.ad.nl/mezza/zijn-haar-voorhoofd-ogen-neus-nek-schouders-het-is-alsof-ik-naar-mezelf-kijk~a337622b/)
-  > Beduusd bekijkt Beau een oude foto. Lees hier in zijn column uit ons weekendmagazine Mezza waarom hij ’m doodeng vindt.
-- [Luxe zorgvilla blijkt bron van problemen: ‘Mijn moeder kreeg zonder overleg morfine’](https://www.ad.nl/binnenland/luxe-zorgvilla-blijkt-bron-van-problemen-mijn-moeder-kreeg-zonder-overleg-morfine~a17a9304/)
-  > Ik heb het nooit gedaan, dus ik denk dat ik het wel kan. Met dat idee begonnen Marie José van Hussen en Eddy Wakker de inmiddels failliete...
-- [Stand Formule 1 | Belangrijke eerste punten voor Max Verstappen, George Russell voor het eerst WK-leider](https://www.ad.nl/formule-1/stand-formule-1-belangrijke-eerste-punten-voor-max-verstappen-george-russell-voor-het-eerst-wk-leider~a8a75660/)
-  > George Russell is voor het eerst in zijn Formule 1-loopbaan de leider in het kampioenschap. De torenhoge favoriet voor de titel slaat daarmee alvast...
+- [Haatreacties deden Hanneke uit Winter vol liefde veel: ‘Op zwakke momenten zat ik diep’](https://www.ad.nl/show/haatreacties-deden-hanneke-uit-winter-vol-liefde-veel-op-zwakke-momenten-zat-ik-diep~ab4f8db9/)
+  > Hanneke (34) ging vanuit het Oostenrijkse Saalbach op zoek naar haar droomman in Winter vol liefde. Die kwam er niet, zo bleek uit de reünie....
+- [President Iran draait 180 graden: ‘Mijn opmerkingen zijn verkeerd geïnterpreteerd’](https://www.ad.nl/buitenland/president-iran-draait-180-graden-mijn-opmerkingen-zijn-verkeerd-geinterpreteerd~ac528ac3/)
+  > De Iraanse president Masoud Pezeshkian heeft zondag gezegd dat zijn opmerkingen over aanvallen op landen in de regio ‘verkeerd geïnterpreteerd zijn...
+- [Onrust bij politie na interne brief korpschef in zaak-Lisa: ‘Groot aantal collega’s in hun rug geraakt’](https://www.ad.nl/binnenland/onrust-bij-politie-na-interne-brief-korpschef-in-zaak-lisa-groot-aantal-collegas-in-hun-rug-geraakt~a7eb07de/)
+  > De korpsleiding van de politie had niet de intentie om honderden agenten onterecht te beschuldigen en te beschadigen in de zaak rond-Lisa. Dat...
+- [Max Verstappen komt ondanks ergernissen met lofzang voor Red Bull: ‘Hebben fantastisch werk geleverd’](https://www.ad.nl/formule-1/max-verstappen-komt-ondanks-ergernissen-met-lofzang-voor-red-bull-hebben-fantastisch-werk-geleverd~a6d0ea25/)
+  > Met een inhaalrace ging Max Verstappen zondag tijdens de Grand Prix van Australië van P20 naar P6. Het chagrijn van een dag eerder was bij de...
+- [Cafébaas Feri (59) werd plots vastgezet omdat hij het land uit moet: ‘Ik woon hier al 55 jaar’](https://www.ad.nl/binnenland/cafebaas-feri-59-werd-plots-vastgezet-omdat-hij-het-land-uit-moet-ik-woon-hier-al-55-jaar~a3b982ea/)
+  > Het is vroeg in de morgen als er op de deur wordt gebonkt. Cafébaas Ferizan Arslan (59) uit Hengelo stommelt naar beneden. Buiten staan tien man van...
 
 ### Meest gelezen
 
