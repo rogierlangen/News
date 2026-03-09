@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-03-2026 om 14:56*
+*Laatst bijgewerkt: 09-03-2026 om 16:04*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Minister: zorgvilla's voor zieke kinderen blijven open zolang nodig is](https://nos.nl/l/2605659)
+- [Hardenberg legt COA dwangsom op als azc niet sluit](https://nos.nl/l/2605672)
+  > De gemeente Hardenberg legt het Centraal Orgaan opvang asielzoekers (COA) een zogeheten last onder dwangsom op. Ze wil daarmee afdwingen dat het...
+- [Rotterdams klimaatcentrum in zwaar weer, directeur en Ban Ki-moon stappen op](https://nos.nl/l/2605667)
+  > Het Rotterdamse klimaatcentrum GCA dreigt failliet te gaan. Het centrum werd bijna tien jaar geleden nog met veel bombarie naar Rotterdam gehaald,...
+- [Van den Brink roept gemeenten op mee te helpen met extra asielopvang](https://nos.nl/l/2605665)
+  > Nu een groot tekort aan opvangplekken dreigt en er tienduizenden extra asielplekken nodig zijn doet minister Van den Brink (CDA) van Asiel en...
+- [Minister: zorgvilla's voor zieke kinderen blijven open zolang als nodig is](https://nos.nl/l/2605659)
   > Vier gespecialiseerde zorgvilla's voor zeer zieke en gehandicapte kinderen blijven open "zolang de zorg voor hen nog niet goed is geregeld". Dat...
 - [Podcast De Dag: de stemmen uit Iran die je nauwelijks hoort](https://nos.nl/l/2605652)
   > Terwijl de oorlog in Iran z'n tweede week ingaat, blijft het moeilijk om contact te krijgen met Iraniërs die daar wonen. Met veel moeite lukte het de...
-- [Burgemeester Breda doet aangifte van doodsbedreiging na spandoek NAC-supporters](https://nos.nl/l/2605647)
-  > Burgemeester Paul Depla van Breda gaat aangifte doen van doodsbedreiging door supporters van voetbalclub NAC Breda. Supporters kwamen gisteren...
-- [Flitscamera's bij overwegen hebben effect, ProRail ziet minder overtredingen](https://nos.nl/l/2605646)
-  > Flitscamera's bij overwegen werken goed in de strijd tegen gevaarlijk gedrag rond het spoor. Dat concludeert ProRail na twee jaar gebruik van de...
-- [Man (29) opgepakt voor dubbele verkrachting in woning Goudswaard](https://nos.nl/l/2605639)
-  > De politie heeft een man aangehouden voor twee verkrachtingen in een woning in Goudswaard, in Zuid-Holland. Hij wordt ervan verdacht dat hij de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Reacties op vrijheidsbijdrage: ‘Is de extra btw die nu in de staatskas vloeit toereikend?’](https://www.ad.nl/lezersbrieven/reacties-op-vrijheidsbijdrage-is-de-extra-btw-die-nu-in-de-staatskas-vloeit-toereikend~a737b59c/)
-  > De hoge benzineprijs levert de Staat extra btw-inkomsten op: maakt dat de vrijheidsbijdrage overbodig? Bij een angst- of zwijgcultuur in een...
-- [‘Overheid heeft autorijden veel te duur gemaakt’](https://www.ad.nl/binnenland/overheid-heeft-autorijden-veel-te-duur-gemaakt~abb77d9c/)
-  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag: geef liever geld uit om armoede te bestrijden dan om de benzineaccijns te...
-- [Arensman wordt knap tweede in tijdrit Tirreno-Adriatico, maar is niet opgewassen tegen Ganna](https://www.ad.nl/wielrennen/arensman-wordt-knap-tweede-in-tijdrit-tirreno-adriatico-maar-is-niet-opgewassen-tegen-ganna~afc349c5/)
-  > Filippo Ganna heeft de openingsetappe van de Tirreno-Adriatico op zijn naam geschreven. De Italiaan bleek oppermachtig in de 11,5 kilometer lange...
-- [Macron kondigt ‘defensieve’ missie aan voor heropening Straat van Hormuz](https://www.ad.nl/buitenland/macron-kondigt-defensieve-missie-aan-voor-heropening-straat-van-hormuz~ac528ac3/)
-  > De Franse president Emmanuel Macron heeft op Cyprus plannen aangekondigd voor een “louter defensieve” missie om de Straat van Hormuz te heropenen. En...
-- [Iraanse voetbalsters vrezen harde straffen en slaan op de vlucht: ‘Laat ze gaan’, scandeerden bezorgde fans](https://www.ad.nl/voetbal/iraanse-voetbalsters-vrezen-harde-straffen-en-slaan-op-de-vlucht-laat-ze-gaan-scandeerden-bezorgde-fans~a34ca40d/)
-  > De schrik zit erin bij de Iraanse voetbalvrouwen en iedereen die hen een warm hart toedraagt. Nadat ze gisteravond de aftocht bliezen op de Asian...
+- [Viraal gaan met je ‘gekke’ filmpje als lokale politicus, trekt dat nou stemmen?](https://www.ad.nl/binnenland/viraal-gaan-met-je-gekke-filmpje-als-lokale-politicus-trekt-dat-nou-stemmen~a4f26780/)
+  > Viraal gaan lijkt hét recept voor gemeenteraadsleden om stemmers te trekken. En dus verschijnen ze op sociale media terwijl ze in een zwembroek Dries...
+- [Lokale opwekking van energie is fiasco op Europese schaal, Nederland is positieve uitzondering](https://www.ad.nl/buitenland/lokale-opwekking-van-energie-is-fiasco-op-europese-schaal-nederland-is-positieve-uitzondering~a148393e5/)
+  > Van de ambitie om in Europa een flink deel van de opwekking van groene stroom via lokale coöperaties te laten plaatsvinden, komt nauwelijks iets...
+- [Merel Westrik zit opgesloten met Joe-collega’s Coen en Sander: ‘Als het maar niet een paar dagen wordt’](https://www.ad.nl/show/merel-westrik-zit-opgesloten-met-joe-collegas-coen-en-sander-als-het-maar-niet-een-paar-dagen-wordt~a3b8f17a/)
+  > Joe-dj’s Coen Swijnenberg en Sander Lantinga zijn samen met hun nieuwslezer Merel Westrik ergens in Nederland verstopt. Luisteraars van de...
+- [Jordi Cruijff doet Ajax-aandeelhouders belofte: ‘In drie jaar iets bereiken? Nee, ik wil meteen een winnend elftal creëren’](https://www.ad.nl/voetbal/jordi-cruijff-doet-ajax-aandeelhouders-belofte-in-drie-jaar-iets-bereiken-nee-ik-wil-meteen-een-winnend-elftal-creeren~a53ec749/)
+  > Jordi Cruijff (52) pakte zondag verder door bij Ajax met een tweede trainerswissel in een maand tijd. De volgende ochtend speelde de nieuwe technisch...
+- [Feyenoord is de zwakste nummer 2 van de eredivisie deze eeuw: dit zijn de cijfers](https://www.ad.nl/voetbal/feyenoord-is-de-zwakste-nummer-2-van-de-eredivisie-deze-eeuw-dit-zijn-de-cijfers~afce4204/)
+  > Feyenoord is na de 26ste speelronde de slechtste nummer 2 van de VriendenLoterij eredivisie in de 21ste eeuw. De club heeft 49 punten en heeft een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Zwitserse frank stijgt tot niveau dat handelaren pas één keer eerder zagen](https://fd.nl/financiele-markten/1588372/zwitserse-frank-stijgt-tot-niveau-dat-handelaren-pas-een-keer-eerder-zagen)
-  > Iets meer dan elf jaar geleden zorgde de Zwitserse centrale bank voor grote schrik op de valutamarkten.
-- [Cloudbedrijf Nscale haalt $2 mrd op voor AI-datacenters](https://fd.nl/tech-en-innovatie/1588579/cloudbedrijf-nscale-haalt-2-mrd-op-voor-ai-datacenters)
-  > Het Britse bedrijf is nog geen twee jaar oud, maar haalde al ruim $3 mrd op bij investeerders voor de ontwikkeling van AI-datacenters.
-- [AFM legt onlinebroker Lynx boete op voor verhullen risico’s in reclames](https://fd.nl/financiele-markten/1588577/afm-legt-onlinebroker-lynx-boete-op-voor-verhullen-risicos-in-reclames)
-  > Lynx krijgt boete van €300.000 van AFM wegens onvoldoende risicowaarschuwingen in reclames.
-- [Rechter dwarsboomt IT-aanbesteding rijksoverheid van €3 mrd](https://fd.nl/bedrijfsleven/1588448/rechter-dwarsboomt-it-aanbesteding-rijksoverheid-van-3-mrd)
-  > Het vonnis laat zien hoezeer het Rijk vastzit aan grote Amerikaanse techbedrijven zoals Microsoft en Oracle, stellen experts.
-- [VDL lijft Vlaams familiebedrijf Limoco in](https://fd.nl/bedrijfsleven/1588578/vdl-lijft-vlaams-familiebedrijf-limoco-in)
-  > Industrieel conglomeraat koopt specialist in ventilatiesystemen en stofafzuiging.
+- [Indonesië verbiedt sociale media voor kinderen](https://fd.nl/bedrijfsleven/1588588/indonesie-verbiedt-sociale-media-voor-kinderen)
+  > Indonesië wil platforms verplichten om 'risicovolle' socialemedia-accounts voor jongeren onder de 16 jaar te deactiveren.
+- [Concertorganisator Live Nation treft schikking na aanklacht monopolie](https://fd.nl/bedrijfsleven/1588584/concertorganisator-live-nation-treft-schikking-na-aanklacht-monopolie)
+  > Het proces vloeit voort uit de rechtszaak die het Amerikaanse ministerie van justitie in 2024 aanspande om het bedrijf op te splitsen. Ticketmaster...
+- [Wereldwijde containervaart begint last te krijgen van oorlog Iran](https://fd.nl/bedrijfsleven/1588541/wereldwijde-containervaart-begint-last-te-krijgen-van-oorlog-iran)
+  > De containertarieven lopen fors op voor sommige Aziatische routes. Dat voedt de angst dat havencongestie in bijvoorbeeld Singapore op de loer ligt.
+- [Magnum paait privébeleggers op de piste](https://fd.nl/financiele-markten/1588370/magnum-paait-privebeleggers-op-de-piste)
+  > The Magnum Ice Cream Company adverteert driftig op en rond de pistes van het Zwitserse Verbier. Blijkbaar wil de ijsfabrikant meer particuliere...
+- [CNN in handen van Trump-aanhanger Ellison. Een ramp of zakelijk slim?](https://fd.nl/samenleving/1588540/cnn-in-handen-van-trump-aanhanger-ellison-een-ramp-of-zakelijk-slim)
+  > Trump-aanhanger David Ellison krijgt CNN in handen. Hij zou president Trump beloofd hebben het management te vervangen als hij de nieuwszender in...
 
 ### Meest gelezen
 
