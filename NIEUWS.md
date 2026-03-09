@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-03-2026 om 23:29*
+*Laatst bijgewerkt: 09-03-2026 om 02:35*
 
 ---
 
@@ -8,7 +8,9 @@
 
 ### Laatste nieuws
 
-- [Nek-aan-nekrace in Duitse deelstaat: Groenen verliezen maar staan nog aan kop](https://nos.nl/l/2605571)
+- [Grote brand bij centraal station Glasgow, gebouw gedeeltelijk ingestort](https://nos.nl/l/2605581)
+  > In het centrum van de Schotse stad Glasgow woedt een zeer grote brand. Een Victoriaans gebouw uit 1851 naast het centraal station staat in...
+- [Nek-aan-nekrace in Duitse deelstaat: Groenen winnen nipt](https://nos.nl/l/2605571)
   > De verkiezingen in de Duitse deelstaat Baden-Württemberg zijn geëindigd in een nek-aan-nekrace tussen de Groenen en de CDU. De christendemocraten...
 - [Iraanse staatsmedia: Mojtaba Khamenei benoemd tot opvolger vader](https://nos.nl/l/2605568)
   > Mojtaba Khamenei is gekozen tot de nieuwe opperste leider van Iran, dat melden Iraanse staatsmedia. Hij is de tweede zoon van de vorige week...
@@ -16,8 +18,6 @@
   > Boven veel plaatsen in Nederland, België en Duitsland is rond de schemering een vuurbal gezien. Filmpjes ervan gaan rond op sociale media en...
 - [Na recordwarme start van maart deze week minder zacht](https://nos.nl/l/2605550)
   > De afgelopen week hadden we in ons land temperaturen die normaal gesproken horen bij half april. Dat zorgde voor liefst vier datumrecords op rij:...
-- [Dag 9 van de oorlog: aanvallen gaan door, eerste oorlogsdoden Saudi-Arabië](https://nos.nl/l/2605548)
-  > Op de negende dag van de oorlog in het Midden-Oosten lijken de aanvallen op Iran onverminderd door te gaan. Landen in de regio, zoals Libanon,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Liveblog Midden-Oosten| Zes doden, onder wie twee minderjarige meisjes, bij Israëlische aanvallen in Gazastrook](https://www.ad.nl/buitenland/liveblog-midden-oosten-zes-doden-onder-wie-twee-minderjarige-meisjes-bij-israelische-aanvallen-in-gazastrook~ac528ac3/)
+  > Bij twee Israëlische aanvallen in Gaza zijn zondag zes Palestijnen omgekomen. Onder de doden zijn twee minderjarige meisjes. Volgens lokale...
+- [Over slimme smokkelroutes en corrupte douaniers: hoe honderdduizenden illegale Chinese fatbikes Europa binnenkomen](https://www.ad.nl/binnenland/over-slimme-smokkelroutes-en-corrupte-douaniers-hoe-honderdduizenden-illegale-chinese-fatbikes-europa-binnenkomen~aa93b266/)
+  > Nederlandse autoriteiten staan machteloos tegen de vloedgolf aan illegale fatbikes uit China. Op Europees niveau worden wel successen geboekt. Vorig...
+- [Oorlog in Iran stuwt olieprijs op tot boven de 100 dollar](https://www.ad.nl/buitenland/oorlog-in-iran-stuwt-olieprijs-op-tot-boven-de-100-dollar~a4e6aa58/)
+  > De Amerikaanse olieprijs is zondag gestegen tot boven de 100 dollar per vat. Dat was niet meer gebeurd sinds de zomer van 2022. De prijs van...
 - [Europa verdrievoudigt wapenimport sinds oorlog in Oekraïne en blijft vooral in VS kopen](https://www.ad.nl/buitenland/europa-verdrievoudigt-wapenimport-sinds-oorlog-in-oekraine-en-blijft-vooral-in-vs-kopen~a5569088/)
   > Europese landen hebben hun wapenimporten de afgelopen jaren verdrievoudigd. Het overgrote deel komt uit de Verenigde Staten, dat zijn export naar...
-- [Drukste treinstation van Schotland zeker tot maandag gesloten na enorme vuurzee](https://www.ad.nl/buitenland/drukste-treinstation-van-schotland-zeker-tot-maandag-gesloten-na-enorme-vuurzee~a66097c3/)
+- [Drukste treinstation van Schotland blijft tot nader bericht gesloten na enorme vuurzee](https://www.ad.nl/buitenland/drukste-treinstation-van-schotland-blijft-tot-nader-bericht-gesloten-na-enorme-vuurzee~a66097c3/)
   > Een grote brand nabij het centraal station van Glasgow heeft zondagavond voor grote problemen gezorgd voor treinreizigers, met tientallen...
-- [Luke Littler grijpt UK Open voor tweede jaar op rij en pakt zo’n 140.000 euro](https://www.ad.nl/darts/luke-littler-grijpt-uk-open-voor-tweede-jaar-op-rij-en-pakt-zon-140-000-euro~aa2a6060/)
-  > Luke Littler heeft voor het tweede jaar op rij de UK Open op zijn naam geschreven. Net als vorig jaar was James Wade de tegenstander in de finale....
-- [Voetbalpodcast | ‘Ajax onderneemt in ieder geval iets om plek twee in handen te krijgen’](https://www.ad.nl/voetbal/voetbalpodcast-ajax-onderneemt-in-ieder-geval-iets-om-plek-twee-in-handen-te-krijgen~ac8603a9/)
-  > Fred Grim is niet meer de hoofdtrainer van Ajax. Hij wordt vervanger door een andere interimmer: Óscar García, die pas net begonnen was bij Jong...
-- [Afschuw bij moeder om GHB-dood dochter María (25) in Nederland: ‘Ze hebben het haar toegediend’](https://www.ad.nl/binnenland/afschuw-bij-moeder-om-ghb-dood-dochter-maria-25-in-nederland-ze-hebben-het-haar-toegediend~a4d7e52d/)
-  > Ze stapte in Colombia op het vliegtuig met maar één doel: geld verdienen voor haar moeder en haar zoontje van 2 jaar. Maar nog geen maand later...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Personalia maandag 9 maart](https://fd.nl/bedrijfsleven/1588501/personalia-maandag-9-maart)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Hoge kosten flex maken bedrijven minder wendbaar, klagen werkgevers](https://fd.nl/bedrijfsleven/1588447/hoge-kosten-flex-maken-bedrijven-minder-wendbaar-klagen-werkgevers)
-  > Arbeidsmarkthervormingen hebben flexwerk aan banden gelegd. Toch is het vaste contract nog net zo rigide als voorheen, stellen werkgevers. Waar...
-- [‘Zoon Khamenei benoemd tot nieuwe leider van Iran’](https://fd.nl/politiek/1588360/zoon-khamenei-benoemd-tot-nieuwe-leider-van-iran)
-  > Mojtaba Khamenei neemt het stokje over nadat zijn vader omkwam bij een aanval door de VS en Israël.
-- [Even geen beton op gasveld Groningen](https://fd.nl/opinie/1588330/even-geen-beton-op-gasveld-groningen)
-  > Er zijn uitstekende redenen om helemaal nooit meer gas uit Groningen te pompen. Maar om nu alle putten dicht te storten, daarvoor is de wereld iets...
-- [Groenen en CDU bijna even groot in Baden-Württemberg](https://fd.nl/politiek/1588348/groenen-winnen-volgens-prognoses-nipt-in-baden-wurttemberg)
-  > Het resultaat is een domper voor de christendemocraten, die lang aan kop gingen in de peilingen. De extreemrechtse partij AfD staat in de prognoses...
+- [Benzineaccijns](https://fd.nl/opinie/1588503/benzineaccijns)
+  > Belastingen zijn niet bedoeld als buffer voor prijsbewegingen. Sterker: wie hoge prijzen probeert op te vangen met subsidies of lagere belasting,...
+- [DNB: ‘Europees betalingsverkeer is kwetsbaar’](https://fd.nl/bedrijfsleven/1588449/dnb-europees-betalingsverkeer-is-kwetsbaar)
+  > Volgens DNB moet Europa minder afhankelijk worden van niet-Europese spelers, nu geopolitieke spanningen en cyberdreigingen toenemen. Voor de...
+- [ING kan Russische tak niet verkopen door blokkade Kremlin](https://fd.nl/bedrijfsleven/1588440/ing-kan-russische-tak-niet-verkopen-door-blokkade-kremlin)
+  > Het lukt ING voorlopig niet zijn Russische dochterbedrijf te verkopen. Het Kremlin verhindert dat westerse banken vertrekken, omdat die voor Rusland...
+- [Wordt 2026 het jaar van de Amerikaanse smallcaps?](https://fd.nl/financiele-markten/1588283/wordt-2026-het-jaar-van-de-amerikaanse-smallcaps)
+  > Smallcaps in de Verenigde Staten hebben de wind in de rug. De oorlog in het Midden-Oosten kan echter roet in het eten gooien.
+- [Waarom zorgen mannen nog steeds niet?](https://fd.nl/opinie/1586587/waarom-zorgen-mannen-nog-steeds-niet)
+  > Gisteren was het Internationale Vrouwendag. En omdat er die dag áltijd mannen zijn die klagen dat het niet over hen gaat: laten we het vandaag eens...
 
 ### Meest gelezen
 
