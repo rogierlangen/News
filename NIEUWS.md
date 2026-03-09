@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-03-2026 om 06:01*
+*Laatst bijgewerkt: 09-03-2026 om 07:51*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Wekdienst 9/3: Edisons worden uitgereikt • Hoger beroep schietpartij Zwijndrecht](https://nos.nl/l/2605590)
-  > Goedemorgen! In Leusden worden vandaag de Edisons uitgereikt, en in Den Haag dient een hoger beroep tegen Minh Nghia V., ook wel Lucky genoemd, voor...
-- [Politie gaat massaal beelden verspreiden van nepagenten en andere fraudeurs](https://nos.nl/l/2605586)
-  > De politie gaat vanaf vandaag foto's van honderd vermoedelijke fraudeurs tonen op schermen langs de weg, in tv-spotjes en in online-advertenties. Het...
-- [Brand na explosie verwoest sushi-restaurant in Eindhoven](https://nos.nl/l/2605585)
-  > In een sushi-restaurant in het centrum van Eindhoven is brand uitgebroken nadat vermoedelijk zwaar vuurwerk naar binnen was gegooid. De dader of...
-- [Grote brand bij centraal station Glasgow, gebouw gedeeltelijk ingestort](https://nos.nl/l/2605581)
-  > In het centrum van de Schotse stad Glasgow woedt een zeer grote brand. Een Victoriaans gebouw uit 1851 naast het centraal station staat in...
-- [Nek-aan-nekrace in Duitse deelstaat: Groenen winnen nipt](https://nos.nl/l/2605571)
-  > De verkiezingen in de Duitse deelstaat Baden-Württemberg zijn geëindigd in een nek-aan-nekrace tussen de Groenen en de CDU. De christendemocraten...
+- [Huis Rihanna meermaals beschoten, verdachte opgepakt](https://nos.nl/l/2605599)
+  > In de Amerikaanse stad Los Angeles is een vrouw opgepakt die meerdere schoten zou hebben afgevuurd op het huis van popster Rihanna.
+        Het huis...
+- [Voormalig rapper Balendra Shah wordt nieuwe premier Nepal na Gen Z-protesten](https://nos.nl/l/2605598)
+  > De partij van de 35-jarige Balendra Shah is uitgeroepen tot winnaar van de verkiezingen in Nepal. Met zijn Nationale Onafhankelijke Partij, die pas...
+- [DNB: offline pinnen en meer geldautomaten nodig voor tijden van crisis](https://nos.nl/l/2605597)
+  > Winkeliers moeten zich beter voorbereiden op een mogelijke verstoring of uitval van het betalingssysteem, zegt De Nederlandsche Bank. Dat kan volgens...
+- [Protestzanger Country Joe, bekend van Woodstock, overleden](https://nos.nl/l/2605595)
+  > De Amerikaanse zanger 'Country' Joe McDonald is op 84-jarige leeftijd overleden. Hij was internationaal bekend van een protestlied dat hij in 1969 op...
+- [Zes doden bij Israëlische aanvallen op Gazastrook](https://nos.nl/l/2605594)
+  > Israëlische aanvallen in Gaza hebben gisteren aan zes mensen het leven gekost, melden lokale artsen. Zij spreken van de dodelijkste dag in Gaza sinds...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Column Willem van Hanegem | Raheem Sterling was boos toen hij gewisseld werd, een goed teken](https://www.ad.nl/voetbal/column-willem-van-hanegem-raheem-sterling-was-boos-toen-hij-gewisseld-werd-een-goed-teken~a07c662d/)
-  > Willem van Hanegem zag Feyenoord zondagavond met 3-3 gelijkspelen bij NAC Breda. In zijn wekelijkse column probeert hij naar lichtpuntjes te zoeken...
-- [NS wil bomvolle treinen voorkomen met opvallende ingreep: ‘Op papier werkt het’](https://www.ad.nl/binnenland/ns-wil-bomvolle-treinen-voorkomen-met-opvallende-ingreep-op-papier-werkt-het~adb4ee3a/)
-  > Om te voorkomen dat reizigers na een uitgevallen trein in een overvolle volgende trein belanden, is NS begonnen met een opvallende proef. Lange...
-- [‘Game over’ voor vermeende oplichters: politie gaat 100 verdachten herkenbaar in beeld tonen](https://www.ad.nl/binnenland/game-over-voor-vermeende-oplichters-politie-gaat-100-verdachten-herkenbaar-in-beeld-tonen~af0b0e09/)
-  > Honderd verdachten van oplichting zijn vanaf maandag te zien op digitale schermen langs de weg, op stations, in reclames op televisie, op sociale...
-- [Dit gebeurt er wanneer je een Ferrari-motor in een motorfiets bouwt](https://www.ad.nl/auto/dit-gebeurt-er-wanneer-je-een-ferrari-motor-in-een-motorfiets-bouwt~adf990dc/)
-  > In de wereld van custom motorfietsen verschijnen regelmatig opvallende projecten. Toch zijn er maar weinig die zoveel aandacht trekken als de Ferrari...
-- [DNB waarschuwt voor afhankelijkheid betalingsverkeer: 'Het is heel belangrijk om contant geld in huis te hebben'](https://www.ad.nl/economie/dnb-waarschuwt-voor-afhankelijkheid-betalingsverkeer-het-is-heel-belangrijk-om-contant-geld-in-huis-te-hebben~a9f1a881/)
-  > We ervaren dagelijks het gemak van digitaal betalen. Maar digitalisering heeft een keerzijde. We zijn voor een groot deel van ons betalingsverkeer...
+- [Aantal mensen dat gebruikmaakt van voedselbank vorig jaar met 7,5 procent gestegen](https://www.ad.nl/binnenland/aantal-mensen-dat-gebruikmaakt-van-voedselbank-vorig-jaar-met-7-5-procent-gestegen~a651abe7/)
+  > Het aantal voedselbankklanten is vorig jaar gestegen. Het lijkt erop dat mensen hun weg naar de voedselbank beter weten te vinden, maar ook steeds...
+- [Britse media spreken schande van uit de hand gelopen Old Firm: ‘Alsof de lelijkheid van het duel nog niet genoeg was’](https://www.ad.nl/voetbal/britse-media-spreken-schande-van-uit-de-hand-gelopen-old-firm-alsof-de-lelijkheid-van-het-duel-nog-niet-genoeg-was~aa62be09/)
+  > De 451ste editie van de Old Firm, de altijd beladen derby tussen Celtic en Rangers uit Glasgow, is zondag geëindigd in een grote confrontatie tussen...
+- [Als het gips eraf gaat, is de ellende nog lang niet voorbij: ‘Zorg moet meer kijken naar mentaal herstel’](https://www.ad.nl/binnenland/als-het-gips-eraf-gaat-is-de-ellende-nog-lang-niet-voorbij-zorg-moet-meer-kijken-naar-mentaal-herstel~ac25012f/)
+  > Een ritje in de ambulance en een opname op de Spoedeisende Hulp of zelfs de intensive care verandert je leven. Ongeveer de helft van deze patiënten...
+- [Jordan Stolz over zijn mislukte, krankzinnige missie: ‘Misschien ga ik het later nog een keer proberen’](https://www.ad.nl/schaatsen/jordan-stolz-over-zijn-mislukte-krankzinnige-missie-misschien-ga-ik-het-later-nog-een-keer-proberen~a4776366/)
+  > Zijn missie mislukte. Twee toernooien winnen in vier dagen bleek zelfs voor fenomeen Jordan Stolz te hoog gegrepen. Maar het idee om ooit wél kort na...
+- [Defensievliegtuig met 170 Nederlandse reizigers uit Midden-Oosten geland in Egypte](https://www.ad.nl/binnenland/defensievliegtuig-met-170-nederlandse-reizigers-uit-midden-oosten-geland-in-egypte~a9da0df2/)
+  > Een repatriëringsvlucht met aan boord onder meer 170 gestrande Nederlanders is maandagochtend geland in het Egyptische Hurghada. Het toestel vertrok...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Olieprijs vliegt omhoog; Brent tikte in Azië $119,46 aan](https://fd.nl/financiele-markten/1588529/olieprijs-vliegt-omhoog-brent-tikte-in-azie-119-46-aan)
+  > De stijging van de olieprijs als gevolg van de oorlog in het Midden-Oosten schudt markten op en voedt economische zorgen over dreigende tekorten en...
+- [Live: G7-ministers bespreken beschikbaarstelling oliereserves](https://fd.nl/politiek/1588361/live-zoon-khamenei-benoemd-tot-opperste-leider-iran)
+  > De olieprijs stijgt verder tot boven de $100. Iran voerde zondagnacht opnieuw aanvallen uit op landen in de Golfregio.
+- [Live: Olieprijs stijgt tot boven de $100](https://fd.nl/financiele-markten/1588502/live-koop-als-de-kanonnen-bulderen)
+  > De olieprijs noteert maandag boven de $100 per vat. In Azië noteren de aandelenindices flink lager. Europese aandelenfutures staan lager.
 - [Hoe vrouwen in een halve eeuw tijd de financiële sector veranderden](https://fd.nl/economie/1588318/hoe-vrouwen-in-een-halve-eeuw-tijd-de-financiele-sector-veranderden)
   > Vandaag in Dagkoers: Rusland schend internationale vissersafspraken & alles over vrouwen in de financiële sector.
 - [Fastned wint rechtszaak over Duitse aanbesteding](https://fd.nl/bedrijfsleven/1588528/fastned-wint-rechtszaak-over-duitse-aanbesteding)
   > Nederlands snellaadbedrijf vocht onderhandse gunning aan Tank & Rast over ruimte voor snellaadpunten aan.
-- [Benzineaccijns](https://fd.nl/opinie/1588503/benzineaccijns)
-  > Belastingen zijn niet bedoeld als buffer voor prijsbewegingen. Sterker: wie hoge prijzen probeert op te vangen met subsidies of lagere belasting,...
-- [DNB: ‘Europees betalingsverkeer is kwetsbaar’](https://fd.nl/bedrijfsleven/1588449/dnb-europees-betalingsverkeer-is-kwetsbaar)
-  > Volgens DNB moet Europa minder afhankelijk worden van niet-Europese spelers, nu geopolitieke spanningen en cyberdreigingen toenemen. Voor de...
-- [ING kan Russische tak niet verkopen door blokkade Kremlin](https://fd.nl/bedrijfsleven/1588440/ing-kan-russische-tak-niet-verkopen-door-blokkade-kremlin)
-  > Het lukt ING voorlopig niet zijn Russische dochterbedrijf te verkopen. Het Kremlin verhindert dat westerse banken vertrekken, omdat die voor Rusland...
 
 ### Meest gelezen
 
