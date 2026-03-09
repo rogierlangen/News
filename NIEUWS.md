@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-03-2026 om 09:57*
+*Laatst bijgewerkt: 09-03-2026 om 10:55*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Russische tak ING nog niet verkocht, goedkeuring blijft uit](https://nos.nl/l/2605623)
+  > Het lukt ING nog niet om hun dochterbedrijf in Rusland te verkopen. Er is al wel een koper gevonden voor de Russische tak, maar die partij heeft nog...
+- [Energieprijzen door het dak nu eind aan Iran-oorlog niet in zicht is](https://nos.nl/l/2605622)
+  > De wereldwijde energieprijzen gaan door het dak. Een vat olie kost inmiddels meer dan 104 dollar. Ook de Europese gasprijs steeg weer verder. Met het...
+- [Europa bestelt meer wapens in het buitenland en is nu grootste importeur](https://nos.nl/l/2605619)
+  > De import van wapens door Europese landen is de afgelopen jaren verdrievoudigd. Dat blijkt uit gegevens van onderzoeksinstituut Sipri in Zweden....
+- [Rusland hackt WhatsApp en Signal van overheidsmedewerkers, melden inlichtingendiensten](https://nos.nl/l/2605616)
+  > Russische staatshackers hebben via WhatsApp- en Signalaccounts van Nederlandse overheidsmedewerkers waarschijnlijk gevoelige informatie buitgemaakt....
 - [Oud-PvdA-voorzitter Spekman treedt na bestuurlijke chaos aan als voorzitter FNV](https://nos.nl/l/2605613)
   > Na een lange periode van moddergooien en chaos binnen de organisatie heeft vakbond FNV een nieuw bestuur. Onder leiding van oud-PvdA-partijvoorzitter...
-- [Explosie bij synagoge Luik: 'Gewelddadige daad van antisemitisme'](https://nos.nl/l/2605612)
-  > Bij een synagoge in Luik is afgelopen nacht een explosie geweest. Er zijn geen gewonden gevallen, maar er is wel schade aan het gebouw. De...
-- [Eerste film met een robot teruggevonden na ruim een eeuw](https://nos.nl/l/2605605)
-  > Het Amerikaanse Library of Congress heeft een film van de Franse filmpionier George Méliès teruggevonden. Gugusse et l'Automate uit circa 1897 geldt...
-- [Huis Rihanna meermaals beschoten, verdachte opgepakt](https://nos.nl/l/2605599)
-  > In de Amerikaanse stad Los Angeles is een vrouw opgepakt die meerdere schoten zou hebben afgevuurd op het huis van popster Rihanna.
-        Het huis...
-- [Voormalig rapper Balendra Shah wordt nieuwe premier Nepal na Gen Z-protesten](https://nos.nl/l/2605598)
-  > De partij van de 35-jarige Balendra Shah is uitgeroepen tot winnaar van de verkiezingen in Nepal. Met zijn Nationale Onafhankelijke Partij, die pas...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘Joan Laporta hield terugkeer Messi bij Barcelona tegen’, Wolfsburg ontslaat ook opvolger Paul Simonis](https://www.ad.nl/voetbal/joan-laporta-hield-terugkeer-messi-bij-barcelona-tegen-wolfsburg-ontslaat-ook-opvolger-paul-simonis~a35ea681/)
-  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
-- [Rechtszaak van voormalig manager dj Avicii van tafel: ‘Een duidelijke boodschap’](https://www.ad.nl/show/rechtszaak-van-voormalig-manager-dj-avicii-van-tafel-een-duidelijke-boodschap~ab7fff41/)
-  > Een Zweedse rechtbank heeft een rechtszaak afgewezen die de voormalige manager van top-dj Avicii had aangespannen. Dat meldt onder meer het Zweedse...
-- [In de jeugd van Feyenoord was Robin van Persie vaak niet te harden, alles draaide om hem](https://www.ad.nl/voetbal/in-de-jeugd-van-feyenoord-was-robin-van-persie-vaak-niet-te-harden-alles-draaide-om-hem~a9fca212/)
-  > Hugo Borst schrijft in zijn wekelijkse column over Robin van Persie, die als jong talent bij Feyenoord al flink eigenwijs was. ‘In de jeugd van...
-- [Hans Spekman nieuwe voorzitter van vakbond FNV](https://www.ad.nl/politiek/hans-spekman-nieuwe-voorzitter-van-vakbond-fnv~a42cf87a/)
-  > Voormalig PvdA-partijvoorzitter Hans Spekman wordt de nieuwe voorzitter van vakcentrale FNV. Zijn benoeming moet rust brengen na een langlopend...
-- [Na uren polonaise lopen, vergaat meneer Van Loo van de pijn: dokter Rutger ritst zijn roze konijnenpak open](https://www.ad.nl/gezond/na-uren-polonaise-lopen-vergaat-meneer-van-loo-van-de-pijn-dokter-rutger-ritst-zijn-roze-konijnenpak-open~a571b993/)
-  > Even denkt dokter Rutger dat hij tript: een roze konijn strompelt door zijn spreekkamer. Met dubbele tong smeekt hij om hulp. Als hij het konijnenpak...
+- [Elke keer als ik Lidewij de Vos zie denk ik dat ze bij de SGP thuishoort](https://www.ad.nl/binnenland/elke-keer-als-ik-lidewij-de-vos-zie-denk-ik-dat-ze-bij-de-sgp-thuishoort~aae6ad21/)
+  > Lidewij de Vos doet Angela de Jong denken aan de meisjes met wie ze vroeger op een reformatorische middelbare school zat. Tot ze haar mond opendoet.
+- [Nieuwe aanvallen Iran maken slachtoffers in Israël](https://www.ad.nl/buitenland/nieuwe-aanvallen-iran-maken-slachtoffers-in-israel~ac528ac3/)
+  > Nieuwe Iraanse aanvallen op Israël hebben daar maandag een leven geëist. Een man kwam volgens de hulpdiensten om op een bouwplaats in Midden-Israël....
+- [Nederlandse deelnemers, locaties en programma: alles over de Paralympische Spelen in Milaan en Cortina](https://www.ad.nl/olympische-spelen/nederlandse-deelnemers-locaties-en-programma-alles-over-de-paralympische-spelen-in-milaan-en-cortina~a908948d5/)
+  > De 14de editie van de Paralympische Winterspelen in Milaan en Cortina d’Ampezzo is begonnen. Acht Nederlanders gaan van 6 tot en met 15 maart op...
+- [Praat mee: ik zie liever geld gaan naar armoedebestrijding dan naar verlaging van de benzineaccijns](https://www.ad.nl/praat-mee/praat-mee-ik-zie-liever-geld-gaan-naar-armoedebestrijding-dan-naar-verlaging-van-de-benzineaccijns~a9588fb3/)
+  > Het aantal Nederlanders dat gebruikmaakt van de voedselbank is vorig jaar met 7,5 procent gestegen. Een jaar eerder kwamen er juist minder mensen...
+- [Broer en zus vol ongeloof als beeld uit zolderdoos een fortuin waard blijkt te zijn: ‘Je maakt een grap’](https://www.ad.nl/show/broer-en-zus-vol-ongeloof-als-beeld-uit-zolderdoos-een-fortuin-waard-blijkt-te-zijn-je-maakt-een-grap~af3f54cf/)
+  > Een houten beeld dat ‘in een doos op zolder’ zat, blijkt een veel grotere waarde te hebben dan een broer en zus voor mogelijk hielden. Uit...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Rusland hackt accounts Signal en WhatsApp, waarschuwen inlichtingendiensten](https://fd.nl/samenleving/1588369/rusland-hackt-accounts-signal-en-whatsapp-waarschuwen-inlichtingendiensten)
+  > Aanvallers hebben waarschijnlijk al vertrouwelijke informatie buitgemaakt, melden AIVD en MIVD
+- [Nederland produceerde vorig jaar meer stroom uit kolen en gas](https://fd.nl/economie/1588368/nederland-produceerde-vorig-jaar-meer-stroom-uit-kolen-en-gas)
+  > Opwekking van elektriciteit uit fossiele bronnen groeide in 2025 na jarenlange dalingen met 14%, mede door een tegenvallende opbrengst uit...
+- [Hans Spekman nieuwe voorzitter FNV](https://fd.nl/samenleving/1588538/hans-spekman-nieuwe-voorzitter-fnv)
+  > De voormalige voorzitter van de PvdA moet ‘stabiliteit brengen’ bij een door crisis geteisterde vakbond. Na ruzies kwam het vorige voltallige bestuur...
+- [Moet de dienstplicht afgestoft worden?](https://fd.nl/samenleving/1588532/moet-de-dienstplicht-afgestoft-worden)
+  > Nu de wereld onveiliger wordt, klinkt de roep de opschorting van de dienstplicht te herroepen. Steven Everts, directeur van het EU-instituut voor...
 - [Brussel in de ban van oostelijke burenruzie](https://fd.nl/politiek/1588343/brussel-in-de-ban-van-oostelijke-burenruzie)
   > De regeringsleiders van Oekraïne en Hongarije vechten elkaar de tent uit, die van Slowakije staat te popelen om mee te doen.
-- [Amsterdams techbedrijf Miyagami doet overname in Vietnam](https://fd.nl/bedrijfsleven/1588537/amsterdams-techbedrijf-miyagami-doet-overname-in-vietnam)
-  > Met de overname krijgt Miyagami volledige zeggenschap over een team van 45 software-engineers in Vietnam.
-- [Tennet investeert opnieuw recordbedrag in uitbreiding hoogspanningsnet](https://fd.nl/bedrijfsleven/1588536/tennet-investeert-opnieuw-recordbedrag-in-uitbreiding-hoogspanningsnet)
-  > Zo’n 60% van de nieuwe uitbreidingsprojecten is gemiddeld met tweeënhalf jaar vertraagd. De omzet van de netbeheerder steeg vorig jaar met €671 mln,...
-- [Koen Droste, van Polarsteps: ‘Ik kan prima zonder die ceo-titel’](https://fd.nl/samenleving/1588366/koen-droste-van-polarsteps-ik-kan-prima-zonder-die-ceo-titel)
-  > Koen Droste was ceo van reisplatform Polarsteps. Noodgedwongen deed hij in coronatijd een stap terug. Nu richt hij er zich als productontwikkelaar op...
-- [Olieprijs vliegt omhoog; Brent tikte in Azië $119,46 aan](https://fd.nl/financiele-markten/1588529/olieprijs-vliegt-omhoog-brent-tikte-in-azie-119-46-aan)
-  > De stijging van de olieprijs als gevolg van de oorlog in het Midden-Oosten schudt markten op en voedt economische zorgen over dreigende tekorten en...
 
 ### Meest gelezen
 
