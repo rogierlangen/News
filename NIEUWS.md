@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-03-2026 om 10:55*
+*Laatst bijgewerkt: 09-03-2026 om 11:37*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Russische tak ING nog niet verkocht, goedkeuring blijft uit](https://nos.nl/l/2605623)
-  > Het lukt ING nog niet om hun dochterbedrijf in Rusland te verkopen. Er is al wel een koper gevonden voor de Russische tak, maar die partij heeft nog...
-- [Energieprijzen door het dak nu eind aan Iran-oorlog niet in zicht is](https://nos.nl/l/2605622)
-  > De wereldwijde energieprijzen gaan door het dak. Een vat olie kost inmiddels meer dan 104 dollar. Ook de Europese gasprijs steeg weer verder. Met het...
-- [Europa bestelt meer wapens in het buitenland en is nu grootste importeur](https://nos.nl/l/2605619)
-  > De import van wapens door Europese landen is de afgelopen jaren verdrievoudigd. Dat blijkt uit gegevens van onderzoeksinstituut Sipri in Zweden....
-- [Rusland hackt WhatsApp en Signal van overheidsmedewerkers, melden inlichtingendiensten](https://nos.nl/l/2605616)
-  > Russische staatshackers hebben via WhatsApp- en Signalaccounts van Nederlandse overheidsmedewerkers waarschijnlijk gevoelige informatie buitgemaakt....
-- [Oud-PvdA-voorzitter Spekman treedt na bestuurlijke chaos aan als voorzitter FNV](https://nos.nl/l/2605613)
-  > Na een lange periode van moddergooien en chaos binnen de organisatie heeft vakbond FNV een nieuw bestuur. Onder leiding van oud-PvdA-partijvoorzitter...
+- ['Amerikaanse Tomahawk-raket trof Iraans militair complex bij school'](https://nos.nl/l/2605632)
+  > De Iraanse meisjesschool die op de eerste dag van de Iran-oorlog werd aangevallen in de stad Minab, werd vermoedelijk getroffen door een Amerikaanse...
+- [Tachtig woningen ontruimd bij gaslek in Limburgse Hoensbroek](https://nos.nl/l/2605629)
+  > In het Zuid-Limburgse Hoensbroek zijn tachtig woningen ontruimd na een gaslek. Dat meldt de Veiligheidsregio Zuid-Limburg. Het lek ontstond bij...
+- [Verdachte femicidezaak Zwijndrecht slikt scheermes in en mist hoger beroep](https://nos.nl/l/2605628)
+  > De verdachte van een femicidezaak in Zwijndrecht is niet bij het hoger beroep in zijn zaak bij de rechtbank in Den Haag verschenen. Volgens het...
+- [Irans nieuwe leider Mojtaba Khamenei is hardliner die niets van Westen moet hebben](https://nos.nl/l/2605626)
+  > De nieuwe opperste leider van Iran moet "gehaat worden door de vijand". Dat was een belangrijke eis van ayatollah Ali Khamenei, voordat hij...
+- [Politieke spanning rond EU-terugkeerwet: VVD’er Azmani rechts ingehaald](https://nos.nl/l/2605625)
+  > Begin van de avond wordt in het Europees Parlement in Straatsburg gestemd over een nieuwe Europese terugkeerwet die het makkelijker moet maken...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Elke keer als ik Lidewij de Vos zie denk ik dat ze bij de SGP thuishoort](https://www.ad.nl/binnenland/elke-keer-als-ik-lidewij-de-vos-zie-denk-ik-dat-ze-bij-de-sgp-thuishoort~aae6ad21/)
+- [Nieuwe Ajax-trainer wordt in Spanje nog altijd achtervolgd door vier woorden van Van Gaal: ‘Tú no tienes ritmo!’](https://www.ad.nl/voetbal/nieuwe-ajax-trainer-wordt-in-spanje-nog-altijd-achtervolgd-door-vier-woorden-van-van-gaal-tu-no-tienes-ritmo~a7751246/)
+  > Twee trainers waren zijn belangrijkste leermeesters: Johan Cruijff en Louis van Gaal. Beiden waren ‘erg streng’, maar ‘hadden duidelijke ideeën’. De...
+- [Poetin spreekt ‘rotsvast’ vertrouwen in nieuwe Iraanse leider uit](https://www.ad.nl/buitenland/poetin-spreekt-rotsvast-vertrouwen-in-nieuwe-iraanse-leider-uit~ac528ac3/)
+  > Het Kremlin heeft zijn steun uitgesproken voor de benoeming van Mojtaba Khamenei als nieuwe opperste leider van Iran. In een bericht aan de nieuwe...
+- [Oud-verdediger, topadvocaat en schoonvader Berghuis: wie zijn deze nieuwe toezichthouders van Ajax?](https://www.ad.nl/voetbal/oud-verdediger-topadvocaat-en-schoonvader-berghuis-wie-zijn-deze-nieuwe-toezichthouders-van-ajax~ae647448/)
+  > Ajax heeft vijf nieuwe commissarissen aangesteld. Vicevoorzitter Dirk Anbeek is het enige rvc-lid dat blijft. Het is een bont gezelschap bestuurders...
+- [Van schaduwfiguur tot opperste leider van Iran: wie is Mojtaba Khamenei?](https://www.ad.nl/buitenland/van-schaduwfiguur-tot-opperste-leider-van-iran-wie-is-mojtaba-khamenei~afcbc6e1/)
+  > Zijn vrouw kwam om bij een Amerikaans-Israëlische luchtaanval. Zijn vader, de almachtige Ali Khamenei, is ook dood. En nu staat Mojtaba Khamenei (56)...
+- [Als je haar ziet denk je ‘braaf refomeisje’, tot ze haar mond opendoet](https://www.ad.nl/binnenland/als-je-haar-ziet-denk-je-braaf-refomeisje-tot-ze-haar-mond-opendoet~aae6ad21/)
   > Lidewij de Vos doet Angela de Jong denken aan de meisjes met wie ze vroeger op een reformatorische middelbare school zat. Tot ze haar mond opendoet.
-- [Nieuwe aanvallen Iran maken slachtoffers in Israël](https://www.ad.nl/buitenland/nieuwe-aanvallen-iran-maken-slachtoffers-in-israel~ac528ac3/)
-  > Nieuwe Iraanse aanvallen op Israël hebben daar maandag een leven geëist. Een man kwam volgens de hulpdiensten om op een bouwplaats in Midden-Israël....
-- [Nederlandse deelnemers, locaties en programma: alles over de Paralympische Spelen in Milaan en Cortina](https://www.ad.nl/olympische-spelen/nederlandse-deelnemers-locaties-en-programma-alles-over-de-paralympische-spelen-in-milaan-en-cortina~a908948d5/)
-  > De 14de editie van de Paralympische Winterspelen in Milaan en Cortina d’Ampezzo is begonnen. Acht Nederlanders gaan van 6 tot en met 15 maart op...
-- [Praat mee: ik zie liever geld gaan naar armoedebestrijding dan naar verlaging van de benzineaccijns](https://www.ad.nl/praat-mee/praat-mee-ik-zie-liever-geld-gaan-naar-armoedebestrijding-dan-naar-verlaging-van-de-benzineaccijns~a9588fb3/)
-  > Het aantal Nederlanders dat gebruikmaakt van de voedselbank is vorig jaar met 7,5 procent gestegen. Een jaar eerder kwamen er juist minder mensen...
-- [Broer en zus vol ongeloof als beeld uit zolderdoos een fortuin waard blijkt te zijn: ‘Je maakt een grap’](https://www.ad.nl/show/broer-en-zus-vol-ongeloof-als-beeld-uit-zolderdoos-een-fortuin-waard-blijkt-te-zijn-je-maakt-een-grap~af3f54cf/)
-  > Een houten beeld dat ‘in een doos op zolder’ zat, blijkt een veel grotere waarde te hebben dan een broer en zus voor mogelijk hielden. Uit...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Langer doorwerken: maken we dat vrije keuze of verplichting?](https://fd.nl/opinie/1587563/langer-doorwerken-vrije-keuze-of-verplichting)
+  > Het kabinet-Jetten wil mensen langer laten doorwerken. Voor de één is dat een zegen, voor de ander een gruwel. We moeten de pensioenopties veel...
+- [Uitgifte groene obligaties valt terug in Europa](https://fd.nl/financiele-markten/1588371/uitgifte-groene-obligaties-valt-terug-in-europa)
+  > Vooral in de laatste maanden van het jaar kwamen er relatief weinig obligaties op wat nog altijd ‘s werelds belangrijkste markt is voor duurzaam...
+- [Mojtaba Khamenei stapt uit de schaduw van zijn vader](https://fd.nl/politiek/1588327/mojtaba-khamenei-stapt-uit-de-schaduw-van-zijn-vader)
+  > Achter de schermen had de zoon van de overleden Ali Khamenei al veel invloed. Nu is Mojtaba Khamenei gekozen tot de nieuwe leider van Iran.
+- [Vervallen Brussels Justitiepaleis staat symbool voor Belgische rechtsstaat](https://fd.nl/samenleving/1587899/vervallen-brussels-justitiepaleis-staat-symbool-voor-belgische-rechtsstaat)
+  > Het vervallen Brusselse Justitiepaleis symboliseert de structurele problemen bij de Belgische justitie. Zittingszalen lopen geregeld onder water en...
 - [Rusland hackt accounts Signal en WhatsApp, waarschuwen inlichtingendiensten](https://fd.nl/samenleving/1588369/rusland-hackt-accounts-signal-en-whatsapp-waarschuwen-inlichtingendiensten)
   > Aanvallers hebben waarschijnlijk al vertrouwelijke informatie buitgemaakt, melden AIVD en MIVD
-- [Nederland produceerde vorig jaar meer stroom uit kolen en gas](https://fd.nl/economie/1588368/nederland-produceerde-vorig-jaar-meer-stroom-uit-kolen-en-gas)
-  > Opwekking van elektriciteit uit fossiele bronnen groeide in 2025 na jarenlange dalingen met 14%, mede door een tegenvallende opbrengst uit...
-- [Hans Spekman nieuwe voorzitter FNV](https://fd.nl/samenleving/1588538/hans-spekman-nieuwe-voorzitter-fnv)
-  > De voormalige voorzitter van de PvdA moet ‘stabiliteit brengen’ bij een door crisis geteisterde vakbond. Na ruzies kwam het vorige voltallige bestuur...
-- [Moet de dienstplicht afgestoft worden?](https://fd.nl/samenleving/1588532/moet-de-dienstplicht-afgestoft-worden)
-  > Nu de wereld onveiliger wordt, klinkt de roep de opschorting van de dienstplicht te herroepen. Steven Everts, directeur van het EU-instituut voor...
-- [Brussel in de ban van oostelijke burenruzie](https://fd.nl/politiek/1588343/brussel-in-de-ban-van-oostelijke-burenruzie)
-  > De regeringsleiders van Oekraïne en Hongarije vechten elkaar de tent uit, die van Slowakije staat te popelen om mee te doen.
 
 ### Meest gelezen
 
