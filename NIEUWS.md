@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-03-2026 om 14:54*
+*Laatst bijgewerkt: 10-03-2026 om 16:03*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Verslaafde vrouw opgepakt voor stelen medicijnen van ouderen](https://nos.nl/l/2605792)
+  > Een vrouw uit Haarlem is aangehouden voor het stelen van medicijnen van voornamelijk oudere mensen. Ze deed zich voor als apotheker en vertelde dat...
+- [Terwijl Beiroet wordt overspoeld met vluchtelingen, vrezen Libanezen voor escalatie](https://nos.nl/l/2605785)
+  > Ze slapen in auto's, tentjes, parken en soms gewoon op de stoep: voor de honderdduizenden vluchtelingen in Beiroet geldt inmiddels alles als een...
 - [Renovatie monumentale Justitiepaleis Brussel gaat 600 miljoen euro kosten](https://nos.nl/l/2605782)
   > Het renoveren van het Justitiepaleis in Brussel gaat in totaal meer dan 600 miljoen euro kosten. Dat blijkt uit cijfers van de verantwoordelijke...
 - [Kabinet bereidt maatregelen voor tegen hoge brandstofprijs, 'maar nu nog te vroeg'](https://nos.nl/l/2605779)
   > Het kabinet bereidt zich voor op maatregelen om de koopkracht te beschermen nu de brandstofprijzen zo hard stijgen door de oorlog in het...
 - [Miljoenenboete voor Nederlandse brievenbusfirma Fleurette wegens corruptie in Congo](https://nos.nl/l/2605777)
   > De Nederlandse brievenbusfirma Fleurette heeft een boete van 25,8 miljoen euro opgelegd gekregen van het Openbaar Ministerie. Er is vastgesteld dat...
-- [Podcast De Dag: hoe rechts zoekt naar de 'nieuwe Wilders'](https://nos.nl/l/2605776)
-  > De PVV en BBB verkeren zichtbaar in crisis, Forum voor Democratie is in opspraak vanwege extreemrechtse kandidaten, JA21 is muisstil en de Groep...
-- [Raadslid Steenbergen pleegde fraude, stal voor 82.000 euro van baas](https://nos.nl/l/2605774)
-  > Een gemeenteraadslid uit Steenbergen is onlangs veroordeeld voor fraude, omdat hij voor 82.000 euro aan spullen had gestolen van zijn werkgever. Dat...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Persfotograaf Mike helpt in korte tijd twee drenkelingen: ‘Alleen zijn gezicht was nog boven water’](https://www.ad.nl/binnenland/persfotograaf-mike-helpt-in-korte-tijd-twee-drenkelingen-alleen-zijn-gezicht-was-nog-boven-water~a04bd39ed/)
-  > Hoe groot is nou de kans dat je in een paar maanden tijd twee mensen uit het water helpt? Het overkwam calamiteitenfotograaf Mike Bhattoe, die tot...
-- [Finish nadert in kletsnatte etappe, Van der Poel jaagt op ritzege](https://www.ad.nl/wielrennen/finish-nadert-in-kletsnatte-etappe-van-der-poel-jaagt-op-ritzege~a5b56dbe/)
-  > Het is tijd voor de tweede etappe van Tirreno-Adriatico. Thymen Arensman werd in de openingstijdrit knap tweede, dinsdag staat een heuvelrit op het...
-- [8 procent minder luchtweerstand en twee gouden plakken: zo hielp TU Delft Kampschreur naar de top](https://www.ad.nl/delft/8-procent-minder-luchtweerstand-en-twee-gouden-plakken-zo-hielp-tu-delft-kampschreur-naar-de-top~a434d34a/)
-  > Twee gouden plakken pakte zitskiër Jeroen Kampschreur op de Paralympische Spelen, Niels de Langen won zilver en brons. Medailles met een blauw TU...
-- [Zitskiër Jeroen Kampschreur wint tweede gouden medaille op Paralympische Spelen](https://www.ad.nl/olympische-spelen/zitskier-jeroen-kampschreur-wint-tweede-gouden-medaille-op-paralympische-spelen~ae5f409d/)
-  > Zitskiër Jeroen Kampschreur heeft zijn tweede paralympische medaille gewonnen. De winnaar van het goud op de super-G won op dinsdag ook de...
-- [Nederland stijgt na tweede gouden plak in medailleklassement](https://www.ad.nl/olympische-spelen/nederland-stijgt-na-tweede-gouden-plak-in-medailleklassement~abaa4b11/)
-  > De Paralympische Winterspelen zijn begonnen. Zonder schaatsdisciplines hoopt Nederland op medailles in het para-alpineskiën en parasnowboarden....
+- [Waarom de hoofdblessure in het voetbal een hoofdpijndossier is geworden](https://www.ad.nl/voetbal/waarom-de-hoofdblessure-in-het-voetbal-een-hoofdpijndossier-is-geworden~a241948f/)
+  > Het protocol bij hoofdblessures leidt steeds vaker tot misleiding, aanstellerij en bedrog. Scheidsrechters worstelen daarmee, zo bleek deze week nog...
+- [Harry Styles zit Ajax in de weg: Johan Cruijff Arena niet beschikbaar voor eventuele play-offs](https://www.ad.nl/voetbal/harry-styles-zit-ajax-in-de-weg-johan-cruijff-arena-niet-beschikbaar-voor-eventuele-play-offs~a1e072753/)
+  > Ajax moet een ander onderkomen zoeken als er aan het einde van het seizoen play-offs om Europees voetbal moeten worden gespeeld. De Johan Cruijff...
+- [Buitenspel binnenkort volledig automatisch dankzij chip in de bal? ‘Einde aan lange VAR-discussies’](https://www.ad.nl/voetbal/buitenspel-binnenkort-volledig-automatisch-dankzij-chip-in-de-bal-einde-aan-lange-var-discussies~a1ceeaf1/)
+  > Buitenspeldiscussies en ellenlange VAR-interventies zouden binnenkort wel eens tot het verleden kunnen behoren. De Spaanse topcompetitie La Liga wil...
+- [Danny Vera, Alain Clark en Trijntje Oosterhuis in bed van Radio Veronica op Utrecht Centraal](https://www.ad.nl/show/danny-vera-alain-clark-en-trijntje-oosterhuis-in-bed-van-radio-veronica-op-utrecht-centraal~ad319c82/)
+  > Bekende namen worden deze week wakker op Utrecht Centraal. Onder anderen Danny Vera, Jennifer Ewbank en Alain Clark komen deze week een nummer ten...
+- [Televisieacteur en muzikant IJf Blokker (Barend Servet) overleden](https://www.ad.nl/show/televisieacteur-en-muzikant-ijf-blokker-barend-servet-overleden~ae6bffcd/)
+  > IJf Blokker is dinsdagochtend op 95-jarige leeftijd overleden in zijn woonplaats Den Helder. Dat meldt de site Noordkop247. Blokker kreeg in 1971...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Hypotheekrente stijgt door oorlog in het Midden-Oosten](https://fd.nl/financiele-markten/1588623/hypotheekrente-stijgt-door-oorlog-in-het-midden-oosten)
+  > De rentes op de kapitaalmarkten en de inflatiedreiging lopen op. Inmiddels heeft de helft van de ongeveer veertig hypotheekverstrekkers zijn tarieven...
+- [Egypte uit de gratie, reizigers boeken massaal vakanties naar Caribisch gebied](https://fd.nl/samenleving/1588636/egypte-uit-de-gratie-reizigers-boeken-massaal-vakanties-naar-caribisch-gebied)
+  > Reisorganisatie TUI ziet een grote toename van geboekte vluchten naar Curaçao, Bonaire en Aruba. ‘Die zitten ook echt volgeboekt de eerstkomende...
+- [Oud-topman KLM Pieter Elbers per direct weg bij Indiase luchtvaart­maatschappij](https://fd.nl/bedrijfsleven/1588638/oud-topman-klm-pieter-elbers-per-direct-weg-bij-indiase-luchtvaartmaatschappij)
+  > Het bedrijf en zijn ceo lagen sinds december onder vuur. Duizenden vluchten werden geannuleerd wegens een tekort aan piloten. Elbers werkte sinds...
+- [Een bank op de achtervleugel](https://fd.nl/financiele-markten/1588547/een-bank-op-de-achtervleugel)
+  > Banken, betaaldienstverleners en cryptobedrijven staan op de plek waar vroeger een sigarettenmerk stond. Hoeveel draagt de financiële sector bij aan...
 - [Uitzender Randstad: kabinet-Jetten gaat doelen niet halen](https://fd.nl/samenleving/1588688/uitzender-randstad-kabinet-jetten-gaat-doelen-niet-halen)
   > Honderdduizenden extra woningen, versterking van de krijgsmacht, de energietransitie. Nederland heeft er de vakkrachten niet voor, zegt ceo Jeroen...
-- [Ondanks de oorlog verhoogt Saudi Aramco het dividend](https://fd.nl/financiele-markten/1588637/ondanks-de-oorlog-verhoogt-saudi-aramco-dividend)
-  > Daarnaast gaat het Saoedische oliebedrijf voor $3 mrd aan eigen aandelen inkopen.
-- [Toezichthouder deelt hoogste boete ooit uit aan illegaal gokbedrijf](https://fd.nl/bedrijfsleven/1588634/toezichthouder-deelt-hoogste-boete-ooit-uit-aan-illegaal-gokbedrijf)
-  > Toezichthouder vindt boete nog niet hoog genoeg en wil een wetswijziging om illegale aanbieders – net als in het strafrecht – hun winst te kunnen...
-- [Oorlog met Iran is veel meer dan alleen een oorlog met Iran](https://fd.nl/politiek/1588679/oorlog-met-iran-is-veel-meer-dan-alleen-een-oorlog-met-iran)
-  > Hezbollah in Libanon en sjiitische milities in andere landen vechten mee aan de kant van Iran. De dood van de Iraanse opperste leider Khamenei weegt...
-- [Aandeel Biontech onderuit na opstappen oprichters](https://fd.nl/financiele-markten/1588697/aandeel-biontech-onderuit-na-opstappen-oprichters)
-  > Ook de cijfers over 2025 en de verwachtingen voor 2026 vielen analisten tegen.
 
 ### Meest gelezen
 
