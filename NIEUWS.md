@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-03-2026 om 19:41*
+*Laatst bijgewerkt: 10-03-2026 om 20:39*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [VN: Russische kinderontvoeringen misdaden tegen menselijkheid](https://nos.nl/l/2605833)
+  > Rusland pleegde misdaden tegen de menselijkheid met het verplaatsen van kinderen uit Oekraïne naar Rusland. Tot die conclusie komt een onafhankelijke...
+- [De prijzen aan de pomp lijken weer wat te gaan zakken](https://nos.nl/l/2605831)
+  > Voor het eerst sinds het uitbreken van de oorlog in de Golfregio lijken de prijzen aan de pomp niet verder te stijgen en zelfs een klein beetje te...
+- [Slapende Deense baby uit tuin ontvoerd, man (37) gearresteerd](https://nos.nl/l/2605830)
+  > In Denemarken is een slapende baby ontvoerd. Het meisje van zeven maanden lag in een kinderwagen die in de tuin bij haar huis stond geparkeerd. Na...
+- [Na loodzware winter genieten Oekraïners van de eerste lentedagen](https://nos.nl/l/2605829)
+  > Een jong Oekraïens stel geniet van het zonnetje en kijkt toe hoe hun dochtertje op een step een rondje maakt in het park. Op de terugweg moet ze...
 - [Onderzoekers: zeker zeventig Nederlanders in sadistisch online netwerk](https://nos.nl/l/2605825)
   > Zeker zeventig Nederlanders zijn betrokken bij het sadistische online Com-netwerk. De meeste van hen zijn minderjarig, staat in een publicatie van...
-- [Oud-KLM-topman Elbers per direct weg bij Indiase vliegmaatschappij](https://nos.nl/l/2605823)
-  > Pieter Elbers, de voormalige baas van KLM, stopt per direct als CEO bij de Indiase vliegmaatschappij IndiGo. In december kwam de...
-- [Van voedsel tot insecten: Nederlandse export naar Midden-Oosten flink geraakt](https://nos.nl/l/2605822)
-  > Door de oorlog in het Midden-Oosten staat de wereldhandel op z'n kop. In Nederland merken we de gevolgen van de oorlog vooralsnog vooral aan de olie-...
-- [Von der Leyen: kernenergie de rug toekeren was strategische fout](https://nos.nl/l/2605821)
-  > De Europese Commissie wil dat de EU zo snel mogelijk minder afhankelijk wordt van energie uit andere delen van de wereld. Deze dagen blijkt opnieuw...
-- [Tankers mijden Straat van Hormuz, Trump roept ze op om 'lef te tonen'](https://nos.nl/l/2605820)
-  > Een Europese tanker geladen met een miljoen vaten Saudische olie dook gisteren ineens op voor de kust van India. Het schip bleek in het diepste...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Deense baby ontvoerd uit kinderwagen: ‘Dit is de ergste nachtmerrie voor iedere ouder’](https://www.ad.nl/buitenland/deense-baby-ontvoerd-uit-kinderwagen-dit-is-de-ergste-nachtmerrie-voor-iedere-ouder~a0a56f64/)
-  > In een hotel in het Deense Haderslev is maandag een 37-jarige man opgepakt die een baby van 7 maanden oud zou hebben ontvoerd. Hij wordt ook verdacht...
-- [Oud-KLM-baas Pieter Elbers weg bij vliegmaatschappij India na chaos aan annuleringen](https://www.ad.nl/economie/oud-klm-baas-pieter-elbers-weg-bij-vliegmaatschappij-india-na-chaos-aan-annuleringen~a147f813/)
-  > Voormalig KLM-topman Pieter Elbers is per direct gestopt als topman van de Indiase luchtvaartmaatschappij IndiGo. Dat heeft InterGlobe Aviation, het...
-- [Iraanse voetbalsters hadden een dilemma: ‘Ze brengen hun familie in gevaar als ze in Australië blijven’](https://www.ad.nl/binnenland/iraanse-voetbalsters-hadden-een-dilemma-ze-brengen-hun-familie-in-gevaar-als-ze-in-australie-blijven~ad747b82/)
-  > Met hulp van de Australische politie zijn vijf Iraanse voetbalsters ontsnapt uit het hotel waar zij met het nationale team verbleven. Dankzij een...
-- [Rusland meldt 6 burgerslachtoffers door Oekraïense aanval](https://www.ad.nl/buitenland/rusland-meldt-6-burgerslachtoffers-door-oekraiense-aanval~adfb97be/)
-  > Bij een Oekraïense luchtaanval op de Russische stad Briansk zijn volgens de gouverneur van de streek zes burgers om het leven gekomen en 37 gewond...
-- [LIVE Champions League | VAR maakt overuren met afgekeurde goals, Liverpool op jacht naar gelijkmaker](https://www.ad.nl/voetbal/live-champions-league-var-maakt-overuren-met-afgekeurde-goals-liverpool-op-jacht-naar-gelijkmaker~a73c8c0a/)
-  > Liverpool speelt in de achtste finales van de Champions League tegen Galatasaray. De heenwedstrijd is om 18.45 uur in Istanboel, waar de Turkse...
+- [Twee vermisten, twee gevonden voeten: patholoog legt uit waarom dat vaker gebeurt](https://www.ad.nl/binnenland/twee-vermisten-twee-gevonden-voeten-patholoog-legt-uit-waarom-dat-vaker-gebeurt~a6e69122/)
+  > Is het vreemd dat voeten van zowel de vermiste Marijke als van Yoran zijn gevonden in de Dordtse Kil? Van beiden zijn een schoen met een voet in de...
+- [Bayern München speelt Atalanta helemaal kapot, Olise scoort met ‘Robben-goal’](https://www.ad.nl/voetbal/bayern-munchen-speelt-atalanta-helemaal-kapot-olise-scoort-met-robben-goal~a6597517/)
+  > Atalanta, de club van aanvoerder Marten de Roon, neemt het in Bergamo op tegen Bayern München. Kan de nummer zeven van de Serie A voor een goede...
+- [Al bijna 70 jaar zit Bertus (91) bij iedere raadsvergadering: ‘Als ik er een keer niet ben, denken ze dat er iets mis is’](https://www.ad.nl/binnenland/al-bijna-70-jaar-zit-bertus-91-bij-iedere-raadsvergadering-als-ik-er-een-keer-niet-ben-denken-ze-dat-er-iets-mis-is~aef0c6ef/)
+  > Al bijna zeventig jaar zit Bertus de Wit (91) op de publieke tribune van de raadszaal in Dongen. Als hij een keer ontbreekt, zorgt dat meteen voor...
+- [LIVE Champions League | Uitglijder Van de Ven en blunders van keeper: Spurs op weg naar pak slaag in Madrid](https://www.ad.nl/voetbal/live-champions-league-uitglijder-van-de-ven-en-blunders-van-keeper-spurs-op-weg-naar-pak-slaag-in-madrid~ad1fe654/)
+  > In de competitie draait Tottenham Hotspur een waardeloos seizoen. De club uit Londen staat zestiende in de Premier League, één punt boven de streep....
+- [Grensoverschrijdend gedrag wordt afgekeurd, behalve als topkoks het vertonen](https://www.ad.nl/binnenland/grensoverschrijdend-gedrag-wordt-afgekeurd-behalve-als-topkoks-het-vertonen~a3f22ad4/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Amerikaanse beurzen eindigen vlak na beweeglijke handelsdag](https://fd.nl/financiele-markten/1588655/amerikaanse-beurzen-eindigen-vlak-na-beweeglijke-handelsdag)
+  > Ook de olieprijs schommelde fors, om tegen het einde van de handelsdag zo’n 9% lager te staan.
 - [Autoritaire aanpak VS van Anthropic doet aan China denken](https://fd.nl/opinie/1588646/autoritaire-aanpak-vs-van-anthropic-doet-aan-china-denken)
   > De regering-Trump probeert het AI-bedrijf Anthropic op on-Amerikaanse wijze aan zich te onderwerpen. Een nieuw argument voor snelle afbouw van...
 - [De Grote Hamersma stapt in platform voor jongere wijnliefhebber](https://fd.nl/bedrijfsleven/1588700/de-grote-hamersma-stapt-in-platform-voor-jongere-wijnliefhebber)
   > Online wijngids gaat samen met AndGrapes, maar beide blijven onder eigen titel publiceren.
 - [SBM Offshore lost Randstad af in de AEX](https://fd.nl/financiele-markten/1588654/sbm-offshore-lost-randstad-af-in-de-aex)
   > Nachtkijkerproducent Theon promoveert van de smallcapindex naar de Midkap, ten koste van kunstmestbedrijf OCI.
-- [Royal Swinkels en Heineken hebben miljoenenconflict met brouwerij in de Kaukasus](https://fd.nl/bedrijfsleven/1588709/royal-swinkels-en-heineken-hebben-miljoenenconflict-met-brouwerij-in-de-kaukasus)
+- [Royal Swinkels en Heineken in miljoenenconflict met brouwerij in de Kaukasus](https://fd.nl/bedrijfsleven/1588709/royal-swinkels-en-heineken-hebben-miljoenenconflict-met-brouwerij-in-de-kaukasus)
   > Royal Swinkels eist $10 mln van een Georgische brouwerij. Maar die beticht het bedrijf achter Bavaria van vals spel.
-- [‘BYD wil meedoen aan Formule 1’](https://fd.nl/bedrijfsleven/1588708/byd-wil-meedoen-aan-formule-1)
-  > BYD onderzoekt of het mee kan doen aan de Formule 1.
 
 ### Meest gelezen
 
