@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-03-2026 om 13:11*
+*Laatst bijgewerkt: 10-03-2026 om 14:54*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Gezondheidsraad: leeftijdsgrens coronaprik mag van 60 naar 70-plus](https://nos.nl/l/2605766)
-  > De leeftijdsgrens voor de jaarlijkse coronaprik kan omhoog van 60 naar 70 jaar en ouder. Dat adviseert de Gezondheidsraad. Het advies geldt voor de...
-- [Hoe Keniaanse olifanten en boeren beschermd worden met drones](https://nos.nl/l/2605764)
-  > Natuur- en faunabescherming in Kenia is een succesverhaal. Waar in het verleden veel olifanten werden gestroopt om hun ivoor, nemen hun aantallen nu...
-- [Ambtenaar Haaksbergen ontslagen na helpen van buren met bezwaarprocedure](https://nos.nl/l/2605763)
-  > Een ambtenaar van de gemeente Haaksbergen heeft haar buren geholpen in een bezwaarprocedure tegen de gemeente. Na bijna veertig jaar raakt ze daarom...
-- [Noord-Korea hervat na zes jaar de treinverbinding met Peking](https://nos.nl/l/2605762)
-  > Noord-Korea hervat na zes jaar de treinverbinding met buurland China. De spoorlijn, een van de weinige routes naar het buitenland vanuit de gesloten...
-- [Man betrapt dief met gereedschap uit zijn werkbus op heterdaad](https://nos.nl/l/2605761)
-  > Een man uit Vlissingen heeft vannacht een dief aangehouden die er met gereedschap uit zijn bus vandoor wilde gaan.
-        De man lag rond 01.00 uur...
+- [Renovatie monumentale Justitiepaleis Brussel gaat 600 miljoen euro kosten](https://nos.nl/l/2605782)
+  > Het renoveren van het Justitiepaleis in Brussel gaat in totaal meer dan 600 miljoen euro kosten. Dat blijkt uit cijfers van de verantwoordelijke...
+- [Kabinet bereidt maatregelen voor tegen hoge brandstofprijs, 'maar nu nog te vroeg'](https://nos.nl/l/2605779)
+  > Het kabinet bereidt zich voor op maatregelen om de koopkracht te beschermen nu de brandstofprijzen zo hard stijgen door de oorlog in het...
+- [Miljoenenboete voor Nederlandse brievenbusfirma Fleurette wegens corruptie in Congo](https://nos.nl/l/2605777)
+  > De Nederlandse brievenbusfirma Fleurette heeft een boete van 25,8 miljoen euro opgelegd gekregen van het Openbaar Ministerie. Er is vastgesteld dat...
+- [Podcast De Dag: hoe rechts zoekt naar de 'nieuwe Wilders'](https://nos.nl/l/2605776)
+  > De PVV en BBB verkeren zichtbaar in crisis, Forum voor Democratie is in opspraak vanwege extreemrechtse kandidaten, JA21 is muisstil en de Groep...
+- [Raadslid Steenbergen pleegde fraude, stal voor 82.000 euro van baas](https://nos.nl/l/2605774)
+  > Een gemeenteraadslid uit Steenbergen is onlangs veroordeeld voor fraude, omdat hij voor 82.000 euro aan spullen had gestolen van zijn werkgever. Dat...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Iraanse voetbalsters hebben Australië verlaten: twee speelsters stappen niet in en blijven in onzekerheid](https://www.ad.nl/voetbal/iraanse-voetbalsters-hebben-australie-verlaten-twee-speelsters-stappen-niet-in-en-blijven-in-onzekerheid~abda1509/)
-  > Het Iraanse vrouwenvoetbalteam heeft Australië verlaten. De selectie vertrok vanaf de luchthaven van Sydney in een vliegtuig naar Maleisië, meldden...
-- [Huishoudportemonnee honderden euro’s lichter door energiecrisis](https://www.ad.nl/economie/huishoudportemonnee-honderden-euros-lichter-door-energiecrisis~a2a1eeb4/)
-  > De gestegen energieprijzen slaan een groot gat in de portemonnee van veel gezinnen. Een gezin van vier personen met een auto is door anderhalve week...
-- [Goedbedoelde grap met toiletpapier loopt fataal af in VS: leraar Jason (40) voor zijn huis doodgereden](https://www.ad.nl/buitenland/goedbedoelde-grap-met-toiletpapier-loopt-fataal-af-in-vs-leraar-jason-40-voor-zijn-huis-doodgereden~a9ae443f/)
-  > In de Amerikaanse staat Georgia is een studentengrap fataal afgelopen. Vijf leerlingen lieten voor de lol toiletpapier achter in de voortuin van...
-- [Henk Westbroek na ruim halve eeuw ‘bedenktijd’ getrouwd](https://www.ad.nl/utrecht/henk-westbroek-na-ruim-halve-eeuw-bedenktijd-getrouwd~ad3017cc/)
-  > Dat trouwen op alle leeftijden kan blijkt maar weer. Zanger Henk Westbroek (74) is vandaag getrouwd met zijn inmiddels vrouw Julia Harris, heeft hij...
-- [Politie vindt voet van sinds 2024 vermiste Marijke uit Oud-Beijerland](https://www.ad.nl/hoeksche-waard/politie-vindt-voet-van-sinds-2024-vermiste-marijke-uit-oud-beijerland~adaeb4ab/)
-  > In de zoektocht naar de langdurig vermiste Marijke de Groot is vorige maand in de Dordste Kil een schoen met daarin een stoffelijk overschot van een...
+- [Persfotograaf Mike helpt in korte tijd twee drenkelingen: ‘Alleen zijn gezicht was nog boven water’](https://www.ad.nl/binnenland/persfotograaf-mike-helpt-in-korte-tijd-twee-drenkelingen-alleen-zijn-gezicht-was-nog-boven-water~a04bd39ed/)
+  > Hoe groot is nou de kans dat je in een paar maanden tijd twee mensen uit het water helpt? Het overkwam calamiteitenfotograaf Mike Bhattoe, die tot...
+- [Finish nadert in kletsnatte etappe, Van der Poel jaagt op ritzege](https://www.ad.nl/wielrennen/finish-nadert-in-kletsnatte-etappe-van-der-poel-jaagt-op-ritzege~a5b56dbe/)
+  > Het is tijd voor de tweede etappe van Tirreno-Adriatico. Thymen Arensman werd in de openingstijdrit knap tweede, dinsdag staat een heuvelrit op het...
+- [8 procent minder luchtweerstand en twee gouden plakken: zo hielp TU Delft Kampschreur naar de top](https://www.ad.nl/delft/8-procent-minder-luchtweerstand-en-twee-gouden-plakken-zo-hielp-tu-delft-kampschreur-naar-de-top~a434d34a/)
+  > Twee gouden plakken pakte zitskiër Jeroen Kampschreur op de Paralympische Spelen, Niels de Langen won zilver en brons. Medailles met een blauw TU...
+- [Zitskiër Jeroen Kampschreur wint tweede gouden medaille op Paralympische Spelen](https://www.ad.nl/olympische-spelen/zitskier-jeroen-kampschreur-wint-tweede-gouden-medaille-op-paralympische-spelen~ae5f409d/)
+  > Zitskiër Jeroen Kampschreur heeft zijn tweede paralympische medaille gewonnen. De winnaar van het goud op de super-G won op dinsdag ook de...
+- [Nederland stijgt na tweede gouden plak in medailleklassement](https://www.ad.nl/olympische-spelen/nederland-stijgt-na-tweede-gouden-plak-in-medailleklassement~abaa4b11/)
+  > De Paralympische Winterspelen zijn begonnen. Zonder schaatsdisciplines hoopt Nederland op medailles in het para-alpineskiën en parasnowboarden....
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Na een kwarteeuw links beleid kan de stad Parijs een draai naar rechts maken](https://fd.nl/politiek/1588629/na-een-kwarteeuw-links-beleid-kan-de-stad-parijs-een-draai-naar-rechts-maken)
-  > Op 15 maart en 22 maart vinden in Parijs de gemeenteraadsverkiezingen plaats. Dan wordt ook de opvolger gekozen van burgemeester Anne Hidalgo. Haar...
-- [Von der Leyen: ‘Europese afbouw kernenergie was strategische fout’](https://fd.nl/bedrijfsleven/1588687/von-der-leyen-europese-afbouw-kernenergie-was-strategische-fout)
-  > De Europese Commissie gaat voor €200 mln aan garanties verstrekken om investeringen in innovatieve kerntechnologieën te stimuleren.
-- [Juristen blinken uit met hun omzetgroei in 2025](https://fd.nl/bedrijfsleven/1588685/juristen-blinken-uit-met-hun-omzetgroei-in-2025)
-  > De uitzendbranche en het reclamewezen waren de enige subsectoren binnen de zakelijke dienstverlening die hun omzet zagen krimpen.
-- [Jumbo benoemt voormalig interim-topman Heidman als commissaris](https://fd.nl/bedrijfsleven/1588628/jumbo-benoemt-voormalig-interim-topman-heidman-als-commissaris)
-  > De supermarktketen voert wijzigingen door in zijn raad van commissarissen. Voormalig interim-ceo Tom Heidman treedt toe, terwijl oudgediende Piet...
-- [Medeoprichter Iraanse Revolutionaire Garde: ‘Dit regime moet zich zo snel mogelijk overgeven’](https://fd.nl/politiek/1588677/medeoprichter-iraanse-revolutionaire-garde-dit-regime-moet-zich-zo-snel-mogelijk-overgeven)
-  > De Iraanse dissident Mohsen Sazegara gelooft dat het regime in zijn vaderland de oorlog niet zal overleven. Maar zonder toekomstplan kan...
+- [Uitzender Randstad: kabinet-Jetten gaat doelen niet halen](https://fd.nl/samenleving/1588688/uitzender-randstad-kabinet-jetten-gaat-doelen-niet-halen)
+  > Honderdduizenden extra woningen, versterking van de krijgsmacht, de energietransitie. Nederland heeft er de vakkrachten niet voor, zegt ceo Jeroen...
+- [Ondanks de oorlog verhoogt Saudi Aramco het dividend](https://fd.nl/financiele-markten/1588637/ondanks-de-oorlog-verhoogt-saudi-aramco-dividend)
+  > Daarnaast gaat het Saoedische oliebedrijf voor $3 mrd aan eigen aandelen inkopen.
+- [Toezichthouder deelt hoogste boete ooit uit aan illegaal gokbedrijf](https://fd.nl/bedrijfsleven/1588634/toezichthouder-deelt-hoogste-boete-ooit-uit-aan-illegaal-gokbedrijf)
+  > Toezichthouder vindt boete nog niet hoog genoeg en wil een wetswijziging om illegale aanbieders – net als in het strafrecht – hun winst te kunnen...
+- [Oorlog met Iran is veel meer dan alleen een oorlog met Iran](https://fd.nl/politiek/1588679/oorlog-met-iran-is-veel-meer-dan-alleen-een-oorlog-met-iran)
+  > Hezbollah in Libanon en sjiitische milities in andere landen vechten mee aan de kant van Iran. De dood van de Iraanse opperste leider Khamenei weegt...
+- [Aandeel Biontech onderuit na opstappen oprichters](https://fd.nl/financiele-markten/1588697/aandeel-biontech-onderuit-na-opstappen-oprichters)
+  > Ook de cijfers over 2025 en de verwachtingen voor 2026 vielen analisten tegen.
 
 ### Meest gelezen
 
