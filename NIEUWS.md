@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-03-2026 om 23:32*
+*Laatst bijgewerkt: 10-03-2026 om 02:27*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Oud-gynaecoloog Rijnstate verwekte minstens zestien kinderen met eigen zaad](https://nos.nl/l/2605717)
+  > Een voormalig gynaecoloog van het ziekenhuis Rijnstate in Arnhem verwekte in de jaren 70 en 80 met zijn eigen zaad zeker zestien donorkinderen. Dat...
 - [Edisons Pop uitgereikt: oeuvreprijs voor Di-rect](https://nos.nl/l/2605710)
   > De Edison Pop Oeuvreprijs gaat dit jaar naar de band Di-rect. De bandleden hebben de prijs vanavond in ontvangst genomen tijdens het Edison-gala in...
 - [Oorlog met Iran rijt oude wonden open in VS: 'Deze pijn wens ik geen ouder toe'](https://nos.nl/l/2605708)
@@ -16,8 +18,6 @@
   > De politie heeft gisteren vijf jongens aangehouden voor een zware mishandeling in Beverwijk en poging tot doodslag in Heemskerk. Het gaat om tieners...
 - [Mannen met explosieven in New York 'geïnspireerd door terreurgroep IS'](https://nos.nl/l/2605704)
   > De twee mannen die zaterdag zijn opgepakt met explosieven bij de burgemeesterswoning in New York probeerden naar eigen zeggen een aanslag te plegen....
-- [Europees Parlement steunt strenge terugkeerwet](https://nos.nl/l/2605702)
-  > Het Europees Parlement heeft ingestemd met een nieuwe, strengere terugkeerwet voor asielzoekers. Die maakt het makkelijker om uitgeprocedeerde mensen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Voetbalpodcast | ‘De kritiek spitst zich wel heel erg toe op Van Persie, terwijl er meer fouten worden gemaakt’](https://www.ad.nl/voetbal/voetbalpodcast-de-kritiek-spitst-zich-wel-heel-erg-toe-op-van-persie-terwijl-er-meer-fouten-worden-gemaakt~ac8603a9/)
-  > Hoe lang kan Feyenoord nog door met Robin van Persie? Ajax in Spaanse handen. Wat zegt dat over volgend seizoen? In de AD Voetbalpodcast nemen...
-- [Piloten verongeluk­te privéjet in Maine wachtten te lang met opstijgen in vrieskou](https://www.ad.nl/buitenland/piloten-verongelukte-privejet-in-maine-wachtten-te-lang-met-opstijgen-in-vrieskou~a75079fb/)
-  > Een vliegcrash in de Verenigde Staten, waar in januari zes doden bij vielen, kon gebeuren omdat het toestel te lang wachtte na een...
-- [Duitsland ligt niet wakker van ongelukken op A12 en kritiek op grenscontroles](https://www.ad.nl/buitenland/duitsland-ligt-niet-wakker-van-ongelukken-op-a12-en-kritiek-op-grenscontroles~a43ed95ea/)
-  > Drie verkeersongevallen bij de grens met Duitsland binnen één week. Nederland ziet in de Duitse grenscontroles de absolute boosdoener. Volgens...
-- [‘Astronomische score’ van actrice Delilah in Slimste Mens doet presentator Herman van der Zandt plekje zakken](https://www.ad.nl/show/astronomische-score-van-actrice-delilah-in-slimste-mens-doet-presentator-herman-van-der-zandt-plekje-zakken~a081deb15/)
-  > „Robert Oppenheimer. Manhattan Project. Atoombom. Verenigde Staten. Film.” Delilah Warcup-Van Eyck had maandagavond in De slimste mens slechts twaalf...
-- [Robin van Persie overleeft spoedoverleg en blijft trainer van Feyenoord](https://www.ad.nl/voetbal/robin-van-persie-overleeft-spoedoverleg-en-blijft-trainer-van-feyenoord~aa647e94/)
-  > Robin van Persie blijft ondanks de povere resultaten in het zadel zitten als trainer van Feyenoord. Dat is de uitkomst van een dag vol overleg in de...
+- [Code geel voor dichte mist in noordelijke helft van het land, hinder voor verkeer](https://www.ad.nl/binnenland/code-geel-voor-dichte-mist-in-noordelijke-helft-van-het-land-hinder-voor-verkeer~ae7473cf/)
+  > In het Waddengebied, Friesland, Noord-Holland, Groningen, Drenthe en Flevoland komt dichte mist voor. Op sommige plaatsen is het zicht niet meer dan...
+- [Minderjarigen kopen vapes ‘gewoon’ in de winkel, artsen slaan alarm](https://www.ad.nl/binnenland/minderjarigen-kopen-vapes-gewoon-in-de-winkel-artsen-slaan-alarm~ace72265/)
+  > Minderjarige kinderen kunnen hun vapes gewoon in winkels kopen, terwijl dat verboden is. Artsen slaan alarm, gesteund door jongeren die verslaafd...
+- [Trump zegt dat oorlog Iran ‘bijna voorbij’ is waarna olieprijs weer zakt](https://www.ad.nl/buitenland/trump-zegt-dat-oorlog-iran-bijna-voorbij-is-waarna-olieprijs-weer-zakt~ac528ac3/)
+  > De Amerikaanse president Donald Trump denkt dat de oorlog in Iran ‘zo goed als’ voorbij is. Hij zei tegen CBS News dat de Amerikanen en de Israëliërs...
+- [Van jetset naar cel: succesvolle vastgoedbroers in VS veroordeeld wegens mensenhandel en verkrachting](https://www.ad.nl/buitenland/van-jetset-naar-cel-succesvolle-vastgoedbroers-in-vs-veroordeeld-wegens-mensenhandel-en-verkrachting~aa0e9542/)
+  > Drie broers, onder wie twee van de meest succesvolle makelaars in luxe onroerend goed in de Verenigde Staten, zijn maandag veroordeeld voor meerdere...
+- [Claudia de Breij verzorgt dit jaar voor de vierde keer de Oudejaarsconference](https://www.ad.nl/show/claudia-de-breij-verzorgt-dit-jaar-voor-de-vierde-keer-de-oudejaarsconference~a68607dc/)
+  > Claudia de Breij doet aan het einde van dit jaar opnieuw de Oudejaarsconference. Het wordt de vierde keer dat de cabaretière op oudejaarsavond op NPO...
 
 ### Meest gelezen
 
