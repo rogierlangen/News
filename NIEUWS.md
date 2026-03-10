@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-03-2026 om 21:33*
+*Laatst bijgewerkt: 10-03-2026 om 22:33*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [ASML mag uitbreiden: tweede vestiging met 20.000 medewerkers](https://nos.nl/l/2605842)
+  > Chipmachinefabrikant ASML mag uitbreiden. De Eindhovense gemeenteraad heeft vanavond groen licht gegeven voor de bouw van een grote nieuwe campus in...
+- [Zes doden en vijf gewonden bij brand in Zwitserse bus](https://nos.nl/l/2605840)
+  > In Zwitserland zijn zeker zes mensen omgekomen bij een brand in een bus. Dat gebeurde iets voor 18.30 uur in het centrum van Kerzers, een plaats ten...
 - [Italië betaalt 30 miljoen euro voor schilderij Caravaggio](https://nos.nl/l/2605838)
   > Italië heeft een schilderij van Caravaggio gekocht voor 30 miljoen euro. Zelden betaalde het land zo veel geld voor een kunstwerk.
         Het...
@@ -15,10 +19,6 @@
   > De politie heeft vijf tieners opgepakt voor twee gewelddadige overvallen in Helmond en Gemert. Het gaat om een 14-jarige jongen uit Veghel, een...
 - [Kamermeerderheid lijkt overtuigd van inzet oorlogsschip Evertsen](https://nos.nl/l/2605836)
   > Ondanks de zorgen die er leven, lijkt een meerderheid in de Tweede Kamer overtuigd te zijn van het besluit van het Kabinet om het oorlogsschip Zr....
-- [VN: Russische kinderontvoeringen misdaden tegen menselijkheid](https://nos.nl/l/2605833)
-  > Rusland pleegde misdaden tegen de menselijkheid met het verplaatsen van kinderen uit Oekraïne naar Rusland. Tot die conclusie komt een onafhankelijke...
-- [De prijzen aan de pomp lijken weer wat te gaan zakken](https://nos.nl/l/2605831)
-  > Voor het eerst sinds het uitbreken van de oorlog in de Golfregio lijken de prijzen aan de pomp niet verder te stijgen en zelfs een klein beetje te...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [FC Barcelona ontsnapt aan late achterstand in Newcastle: Harvey Barnes krult bal tegen de paal](https://www.ad.nl/voetbal/fc-barcelona-ontsnapt-aan-late-achterstand-in-newcastle-harvey-barnes-krult-bal-tegen-de-paal~a8365a19/)
-  > FC Barcelona speelt in de achtste finales van de Champions League tegen Newcastle United. Barça moet het nog altijd doen zonder de geblesseerde...
-- [LIVE Champions League | Schutterend Tottenham Hotspur incasseert beleeft horroravond tegen Atlético Madrid](https://www.ad.nl/voetbal/live-champions-league-schutterend-tottenham-hotspur-incasseert-beleeft-horroravond-tegen-atletico-madrid~ad1fe654/)
-  > Een pijnlijke eerste helft voor Tottenham Hotspur op bezoek bij Atlético Madrid. De Londenaren staan na 45 minuten al met 4-1 achter....
-- [Doden en gewonden bij brand in Zwitserse bus](https://www.ad.nl/buitenland/doden-en-gewonden-bij-brand-in-zwitserse-bus~a73cd5ae/)
-  > Bij een brand in een Zwitserse postbus zijn volgens de kantonale politie zes doden en meerdere gewonden gevallen. De bus reed door Kerzers, circa 20...
-- [Bayern München dendert over Atalanta heen, Duitse topclub op weg naar monsterscore](https://www.ad.nl/voetbal/bayern-munchen-dendert-over-atalanta-heen-duitse-topclub-op-weg-naar-monsterscore~a6597517/)
-  > Atalanta, de club van aanvoerder Marten de Roon, neemt het in Bergamo op tegen Bayern München. Kan de nummer zeven van de Serie A voor een goede...
-- [BN’ers ontwaken in doodskisten bij lugubere seizoensopening De Verraders: ‘Wen er maar vast aan’](https://www.ad.nl/show/bners-ontwaken-in-doodskisten-bij-lugubere-seizoensopening-de-verraders-wen-er-maar-vast-aan~a0dae5e1/)
-  > Het nieuwe seizoen van De Verraders was dinsdagavond vanaf de eerste minuut zenuwslopend. De 22 deelnemende BN’ers werden in het Belgische Château...
+- [Arne Slot beklaagt zich over arbitrage: ‘Wij waren niet de enigen die onder de indruk waren van het lawaai’](https://www.ad.nl/voetbal/arne-slot-beklaagt-zich-over-arbitrage-wij-waren-niet-de-enigen-die-onder-de-indruk-waren-van-het-lawaai~af7ee79e/)
+  > Liverpool-trainer Arne Slot was na de 1-0 nederlaag bij Galatasaray in de achtste finales van de Champions League niet te spreken over de arbitrage.
+- [Champions League | Vier duels gespeeld, vier te gaan: het programma en de uitslagen van de achtste finales](https://www.ad.nl/voetbal/champions-league-vier-duels-gespeeld-vier-te-gaan-het-programma-en-de-uitslagen-van-de-achtste-finales~a500d679/)
+  > De tussenronde ligt achter ons en dus is het tijd voor het echte werk. Deze week staat in het teken van de heenwedstrijden in de achtste finales van...
+- [Bayern München dendert over Atalanta heen in Bergamo, Olise schittert met goals in Robben-stijl](https://www.ad.nl/voetbal/bayern-munchen-dendert-over-atalanta-heen-in-bergamo-olise-schittert-met-goals-in-robben-stijl~a6597517/)
+  > Bayern München is al zo goed als zeker van een plek in de kwartfinales van de Champions League. De Duitse topclub won dinsdagavond in Bergamo met 1-6...
+- [Liverpool verliest opnieuw bij Galatasaray, maar schade valt nog te reperaren](https://www.ad.nl/voetbal/liverpool-verliest-opnieuw-bij-galatasaray-maar-schade-valt-nog-te-reperaren~a73c8c0a/)
+  > Liverpool heeft in de achtste finales van de Champions League een nederlaag geleden. De ploeg van trainer Arne Slot verloor met 1-0 bij de Turkse...
+- [Barça ontsnapt aan nederlaag in Newcastle: Lamine Yamal benut strafschop in slotseconde](https://www.ad.nl/voetbal/barca-ontsnapt-aan-nederlaag-in-newcastle-lamine-yamal-benut-strafschop-in-slotseconde~a8365a19/)
+  > FC Barcelona heeft op de valreep een gelijkspel uit het vuur gesleept op bezoek bij Newcastle United in de achtste finales van de Champions League....
 
 ### Meest gelezen
 
