@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-03-2026 om 09:51*
+*Laatst bijgewerkt: 10-03-2026 om 10:47*
 
 ---
 
@@ -8,6 +8,11 @@
 
 ### Laatste nieuws
 
+- [Duizend geiten gedood bij grote stalbrand in Epe](https://nos.nl/l/2605751)
+  > In Epe, in Gelderland, is afgelopen nacht een grote brand uitgebroken in een stal. Daarbij zijn zo'n duizend geiten omgekomen.
+        De brand in de...
+- [Thuiskoks en -bakkers lang niet altijd bewust van hygiënevoorschriften](https://nos.nl/l/2605750)
+  > Het aantal thuischefs dat zich inschrijft bij de Kamer van Koophandel (KVK) is de afgelopen jaren sterk gestegen. Steeds meer mensen beginnen vanuit...
 - [Volkswagen schrapt 50.000 banen en draait wegens heffingen minder winst](https://nos.nl/l/2605747)
   > Volkswagen schrapt de komende jaren extra banen. Eerder maakte het bedrijf bekend tot 2030 35.000 banen te gaan schrappen en daar komen nog eens...
 - [Politie doorzoekt Epstein-ranch in New Mexico alsnog: 'We willen antwoorden'](https://nos.nl/l/2605746)
@@ -15,10 +20,6 @@
 - [Oudejaarsconference dit jaar voor de vierde keer door Claudia de Breij](https://nos.nl/l/2605743)
   > Claudia de Breij verzorgt dit jaar opnieuw de oudejaarsconference. Het is de vierde keer dat zij op 31 december haar visie op het jaar laat horen.
   ...
-- [Ongeluk politieauto en personenauto in Zaltbommel, drie gewonden naar ziekenhuis](https://nos.nl/l/2605737)
-  > Bij een botsing tussen een politieauto en een personenauto in Zaltbommel zijn drie mensen gewond geraakt. De politieauto was op weg naar een melding....
-- ['Ruim duizend doden in Haïti door droneaanvallen in jaar tijd'](https://nos.nl/l/2605734)
-  > Haïtiaanse veiligheidstroepen en huurlingen hebben het afgelopen jaar minstens 1243 mensen gedood met droneaanvallen. Dat meldt Human Rights Watch...
 
 ### Meest gelezen
 
@@ -28,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Voorzitter EU-leiders: ‘Rusland is tot nu enige winnaar in Iran-oorlog’](https://www.ad.nl/buitenland/voorzitter-eu-leiders-rusland-is-tot-nu-enige-winnaar-in-iran-oorlog~adfb97be/)
-  > De oorlog in Iran kent tot nu toe Rusland als enige winnaar, waarschuwde voorzitter van de EU-leiders António Costa dinsdag. De stijgende...
-- [Opinie: ‘Geweld tegen vrouwen vereist gerichte aanpak’](https://www.ad.nl/praat-mee/opinie-geweld-tegen-vrouwen-vereist-gerichte-aanpak~a38d5ee9/)
-  > Seksueel geweld tegen vrouwen vormt een patroon. Aan de kant van het kabinet, maar ook aan die van mannen, moet er meer gebeuren om haat en geweld te...
-- [Dennis en Laura hebben veel meer verdiend, maar nu moeten ze meer dan 5000 euro terugbetalen](https://www.ad.nl/geld/dennis-en-laura-hebben-veel-meer-verdiend-maar-nu-moeten-ze-meer-dan-5000-euro-terugbetalen~a3f3fa62/)
-  > Dennis (45) en Laura (42) zijn ondernemers. Laura is lifestylecoach en Dennis werkt in de bouw. Ze hebben 2 kinderen van 7 en 5 jaar. 2025 was voor...
-- [Kleine ondernemers voelen pijn van hoge prijs aan de pomp: ‘Aan zo’n ritje verdien ik nu bijna niets meer’](https://www.ad.nl/binnenland/kleine-ondernemers-voelen-pijn-van-hoge-prijs-aan-de-pomp-aan-zon-ritje-verdien-ik-nu-bijna-niets-meer~ad6d4022/)
-  > Rijschoolhouders, aannemers, taxibedrijven: ze maken zich behoorlijk zorgen over de gestegen brandstofprijzen. De rekening doorschuiven naar de klant...
-- [‘F*** you all!’: woedende Russische tennisster krijgt het aan de stok met het publiek na pijnlijke uitschakeling](https://www.ad.nl/tennis/f-you-all-woedende-russische-tennisster-krijgt-het-aan-de-stok-met-het-publiek-na-pijnlijke-uitschakeling~a8b292143/)
-  > Het was niet de dag van de 18-jarige Mirra Andrejeva. De Russische titelverdedigster verloor in Indian Wells in de derde ronde en was tijdens én na...
+- [Wat er misgaat in gezinshuizen: van drugsdealende gezinsmoeders tot ‘onwerkelijke’ straffen](https://www.ad.nl/binnenland/wat-er-misgaat-in-gezinshuizen-van-drugsdealende-gezinsmoeders-tot-onwerkelijke-straffen~a49512a9b/)
+  > Slapen op een plank, mishandelingen, dwangarbeid en een gezinsmoeder die aan de crack zou zijn. De afgelopen maanden kwamen schokkende feiten naar...
+- [Praat mee: vapen zou in Nederland verboden moeten worden](https://www.ad.nl/praat-mee/praat-mee-vapen-zou-in-nederland-verboden-moeten-worden~a9676a3ff/)
+  > In de Kwestie leggen we onze lezers een vraag of stelling voor. Vandaag: terwijl de verkoop van vapes aan minderjarigen verboden is, kunnen zij die...
+- [Hoe kan zo’n ondernemer zichzelf nog recht in de spiegel aankijken?](https://www.ad.nl/binnenland/hoe-kan-zon-ondernemer-zichzelf-nog-recht-in-de-spiegel-aankijken~af347cfa/)
+  > Je kunt als ouder je pubers waarschuwen tot je een ons weegt, maar ze doen toch wat ze zelf willen. Dus wordt het tijd dat de overheid eens wat gaat...
+- [Hoogste boete ooit tegen schimmig online casino: ‘Ze verdienen miljoenen euro’s aan Nederlanders’](https://www.ad.nl/binnenland/hoogste-boete-ooit-tegen-schimmig-online-casino-ze-verdienen-miljoenen-euros-aan-nederlanders~a7b96d70/)
+  > De Kansspelautoriteit heeft zijn hoogste boete ooit uitgedeeld. Het gokbedrijf Novatech, bekend van goksites Qbet.com en 55Bet.com, heeft een boete...
+- [Fietst Mathieu van der Poel naar etappewinst? Heuvelrit Tirreno-Adriatico van start](https://www.ad.nl/wielrennen/fietst-mathieu-van-der-poel-naar-etappewinst-heuvelrit-tirreno-adriatico-van-start~a5b56dbe/)
+  > Het is tijd voor de tweede etappe van Tirreno-Adriatico. Thymen Arensman werd in de openingstijdrit knap tweede, dinsdag staat een heuvelrit op het...
 
 ### Meest gelezen
 
@@ -47,16 +48,16 @@
 
 ### Laatste nieuws
 
-- [Grote investering in AI-bedrijf van Yann LeCun](https://fd.nl/tech-en-innovatie/1588680/grote-investering-in-ai-bedrijf-yann-lecun)
+- [AkzoNobel wil activist als commissaris](https://fd.nl/bedrijfsleven/1588683/akzonobel-wil-activist-als-commissaris)
+  > De verfmaker draagt Robert Schuchna, partner bij grootaandeelhouder Cevian, voor als nieuwe toezichthouder.
+- [Met de aanvallen op Iran schittert Europa als Amerikaanse vazal – op Spanje na dan](https://fd.nl/opinie/1588531/spanje-bewijst-dat-europa-meer-is-dan-trumps-echo)
+  > De door de VS en Israël ontketende oorlog legt een ongemakkelijke waarheid bloot: Europa kán spreken en doet dat ook, maar zijn leiders laten alleen...
+- [Ik had uw stroman kunnen zijn](https://fd.nl/financiele-markten/1588624/ik-had-uw-stroman-kunnen-zijn)
+  > Woensdag begint de Boekenweek en columnist Milou Brand leest het bijbehorende essay ‘Ik had uw dochter kunnen zijn’, van Doortje Smithuijsen. Die...
+- [AI-bedrijf van Yann LeCun haalt ruim €1 mrd op](https://fd.nl/tech-en-innovatie/1588680/grote-investering-in-ai-bedrijf-yann-lecun)
   > De start-up is opgericht door AI-wetenschapper Yann LeCun. De eerste financieringsronde is volgens persbureau Bloomberg een van de grootste ooit in...
 - [Bruine UGGs van 5th Avenue](https://fd.nl/samenleving/1588543/bruine-uggs-van-5th-avenue)
   > Een reisje naar New York is niet het aangewezen moment voor financiële opvoeding, ondervindt Femmetje de Wind als ze er met haar moeder en dochter is.
-- [Een moderne villa in het Bussumse groen](https://fd.nl/samenleving/1588544/een-moderne-villa-in-het-bussumse-groen)
-  > ‘Twintigers en dertigers moeten kromliggen om een woning te kunnen kopen of huren. Wij kunnen daarom beter opschuiven.’
-- [Winst bij Volkswagen zakt in](https://fd.nl/bedrijfsleven/1588678/winst-bij-volkswagen-zakt-in)
-  > Het Duitse autoconcern snijdt in het dividend en zet in op verdere kostenbesparingen. De winst daalde vorig jaar met 44,3%, maar het bedrijf wist de...
-- [Live: Iraanse Revolutionaire Garde wil blijven vechten, Trump hint op einde oorlog](https://fd.nl/politiek/1588621/live-iraanse-revolutionaire-garde-wil-blijven-vechten)
-  > Iran blijft de Straat van Hormuz blokkeren en geeft aan dat de oorlog nog lang niet voorbij is, in tegenstelling tot de Amerikaanse president Donald...
 
 ### Meest gelezen
 
