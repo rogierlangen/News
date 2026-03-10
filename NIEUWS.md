@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-03-2026 om 06:57*
+*Laatst bijgewerkt: 10-03-2026 om 07:47*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Nixons assistent Alexander Butterfield die Watergatetapes onthulde overleden](https://nos.nl/l/2605732)
+  > Alexander Butterfield is op 99-jarige leeftijd overleden. Dat bevestigt zijn vrouw aan The Washington Post en The New York Times. De voormalige...
 - [Wekdienst 10/3: Hoger beroep zedenzaak Eindhoven • 150 jaar telefonie](https://nos.nl/l/2605725)
   > Goedemorgen! In Den Bosch dient het hoger beroep over een zedenzaak met zeven oppaskinderen uit Eindhoven en precies 150 jaar geleden begon een nieuw...
 - [150 jaar telefonie: bellen blijft maar de manier waarop verandert](https://nos.nl/l/2605723)
@@ -16,8 +18,6 @@
   > Als de oorlog tegen Iran voorbij is, zal het land niet meer over de militaire middelen beschikken om de VS, Israël of bondgenoten van de VS aan te...
 - [Oud-gynaecoloog Rijnstate verwekte minstens zestien kinderen met eigen zaad](https://nos.nl/l/2605717)
   > Een voormalig gynaecoloog van het ziekenhuis Rijnstate in Arnhem verwekte in de jaren 70 en 80 met zijn eigen zaad zeker zestien kinderen. Dat blijkt...
-- [Edisons Pop uitgereikt: oeuvreprijs voor Di-rect](https://nos.nl/l/2605710)
-  > De Edison Pop Oeuvreprijs gaat dit jaar naar de band Di-rect. De bandleden hebben de prijs vanavond in ontvangst genomen tijdens het Edison-gala in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Adviesprijs diesel voor het eerst boven de 2,50 euro per liter](https://www.ad.nl/economie/adviesprijs-diesel-voor-het-eerst-boven-de-2-50-euro-per-liter~a0313d23/)
-  > De gemiddelde adviesprijs van de grote oliemaatschappijen voor diesel in Nederland is dinsdagochtend voor het eerst tot boven de 2,50 euro per liter...
-- [Nederlandse deelnemers, locaties en programma: alles over de Paralympische Spelen in Milaan en Cortina](https://www.ad.nl/olympische-spelen/nederlandse-deelnemers-locaties-en-programma-alles-over-de-paralympische-spelen-in-milaan-en-cortina~a908948d5/)
-  > De 14de editie van de Paralympische Winterspelen in Milaan en Cortina d’Ampezzo is begonnen. Acht Nederlanders gaan van 6 tot en met 15 maart op...
-- [Volgens Trump is oorlog zo goed als voorbij, maar Iran wil van geen wijken weten](https://www.ad.nl/buitenland/volgens-trump-is-oorlog-zo-goed-als-voorbij-maar-iran-wil-van-geen-wijken-weten~ac528ac3/)
-  > Iran gaat door met aanvallen zolang dat nodig is. Dat zei de Iraanse minister van Buitenlandse Zaken Abbas Araghchi tegen het Amerikaanse PBS News....
-- [Voeding en alcoholvrije dranken drukken inflatie, tickets duurder](https://www.ad.nl/economie/voeding-en-alcoholvrije-dranken-drukken-inflatie-tickets-duurder~a01001fa/)
-  > Het dagelijks leven is in februari gemiddeld 2,4 procent duurder geworden dan in dezelfde maand een jaar geleden. Dat meldt het Centraal Bureau voor...
-- [Wie is Juultje Tieleman uit De Verraders?](https://www.ad.nl/show/wie-is-juultje-tieleman-uit-de-verraders~aff40aa9/)
-  > Juultje Tieleman is vanaf 10 maart 2026 te zien in het nieuwe seizoen van De Verraders op RTL 4 en Videoland. Online is zij een bekende naam, maar...
+- [Nederlandse vrouw gaat viral in India door dansje op bruiloft: ‘Dit is zo lief’](https://www.ad.nl/buitenland/nederlandse-vrouw-gaat-viral-in-india-door-dansje-op-bruiloft-dit-is-zo-lief~acc63ff0/)
+  > De eerste dans op een bruiloft is traditiegetrouw een bijzonder moment. De Nederlandse Lotte Leela zal haar ‘first dance’ nog lang heugen. Een...
+- [Alex uit Over mijn lijk overleden op 37-jarige leeftijd](https://www.ad.nl/show/alex-uit-over-mijn-lijk-overleden-op-37-jarige-leeftijd~adff4922/)
+  > Alex uit Over mijn lijk is maandagavond overleden. Dat maakt zijn familie bekend op Instagram. De jonge vader werd 37 jaar.
+- [Tien dagen luchtoorlog in het Midden-Oosten: ‘We hebben gewonnen, maar nog niet genoeg’](https://www.ad.nl/buitenland/tien-dagen-luchtoorlog-in-het-midden-oosten-we-hebben-gewonnen-maar-nog-niet-genoeg~a88c3a03/)
+  > Tien dagen nadat de VS en Israël hun gezamenlijke luchtaanvallen op Iran begonnen, ontstaat het beeld van een oorlog die groter, dodelijker en...
+- [Michiel Huisman krijgt hoofdrol in nieuwe Amerikaanse misdaadserie](https://www.ad.nl/show/michiel-huisman-krijgt-hoofdrol-in-nieuwe-amerikaanse-misdaadserie~a1b558ea/)
+  > Michiel Huisman heeft de hoofdrol te pakken in een nieuwe misdaadserie van NBC. Dat melden Amerikaanse vakmedia. In What the dead know speelt hij de...
+- [Verwoestende brand in stal in Epe: 1100 geiten komen om het leven](https://www.ad.nl/binnenland/verwoestende-brand-in-stal-in-epe-1100-geiten-komen-om-het-leven~aefd04d4/)
+  > Bij een verwoestende brand in Epe zijn meer dan duizend geiten om het leven gekomen. In de nacht van maandag op dinsdag stond een boerenerf buiten...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Een moderne villa in het Bussumse groen](https://fd.nl/samenleving/1588544/een-moderne-villa-in-het-bussumse-groen)
+  > ‘Twintigers en dertigers moeten kromliggen om een woning te kunnen kopen of huren. Wij kunnen daarom beter opschuiven.’
+- [Winst bij Volkswagen zakt in](https://fd.nl/bedrijfsleven/1588678/winst-bij-volkswagen-zakt-in)
+  > Het Duitse autoconcern snijdt in het dividend en zet in op verdere kostenbesparingen. De winst daalde vorig jaar met 44,3%, maar het bedrijf wist de...
 - [Live: Iraanse Revolutionaire Garde wil blijven vechten, Trump hint op einde oorlog](https://fd.nl/politiek/1588621/live-iraanse-revolutionaire-garde-wil-blijven-vechten)
   > Iran blijft de Straat van Hormuz blokkeren en geeft aan dat de oorlog nog lang niet voorbij is, in tegenstelling tot de Amerikaanse president Donald...
-- [Live: Beurzen in herstel, olieprijs onder de $93](https://fd.nl/financiele-markten/1588620/live-beurzen-in-herstel-olieprijs-onder-de-93)
+- [Live: Beurzen in herstel, olieprijs daalt verder](https://fd.nl/financiele-markten/1588620/live-beurzen-in-herstel-olieprijs-onder-de-93)
   > Gisteren was er nog onrust door de torenhoge olieprijs en viel het woord stagflatie weer voor de wereldeconomie. Daarna sprak president Donald Trump...
 - [Zorg ervoor dat je niet te veel belasting betaalt](https://fd.nl/samenleving/1588374/zorg-ervoor-dat-je-niet-te-veel-belasting-betaalt)
   > De villataks, het werkelijke rendement, de zorgkosten, de partneralimentatie: hier moet je allemaal rekening mee houden als je aangifte doet.
-- [De driedubbele olieschok waar niemand op zit te wachten](https://fd.nl/economie/1588548/de-driedubbele-olieschok-waar-niemand-op-zit-te-wachten)
-  > Vandaag in Dagkoers: de olieprijs ging door het dak, de internationale containervaart komt in de problemen en de rechter trekt een streep door een...
-- [Tweede viool](https://fd.nl/opinie/1588557/tweede-viool)
-  > Als we geen oplossing vinden voor de spanning tussen de nationale en Europese macht, zullen we moeten accepteren dat Europa altijd achter de rest...
 
 ### Meest gelezen
 
