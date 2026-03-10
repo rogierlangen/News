@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-03-2026 om 11:36*
+*Laatst bijgewerkt: 10-03-2026 om 13:11*
 
 ---
 
@@ -8,19 +8,17 @@
 
 ### Laatste nieuws
 
+- [Gezondheidsraad: leeftijdsgrens coronaprik mag van 60 naar 70-plus](https://nos.nl/l/2605766)
+  > De leeftijdsgrens voor de jaarlijkse coronaprik kan omhoog van 60 naar 70 jaar en ouder. Dat adviseert de Gezondheidsraad. Het advies geldt voor de...
+- [Hoe Keniaanse olifanten en boeren beschermd worden met drones](https://nos.nl/l/2605764)
+  > Natuur- en faunabescherming in Kenia is een succesverhaal. Waar in het verleden veel olifanten werden gestroopt om hun ivoor, nemen hun aantallen nu...
+- [Ambtenaar Haaksbergen ontslagen na helpen van buren met bezwaarprocedure](https://nos.nl/l/2605763)
+  > Een ambtenaar van de gemeente Haaksbergen heeft haar buren geholpen in een bezwaarprocedure tegen de gemeente. Na bijna veertig jaar raakt ze daarom...
+- [Noord-Korea hervat na zes jaar de treinverbinding met Peking](https://nos.nl/l/2605762)
+  > Noord-Korea hervat na zes jaar de treinverbinding met buurland China. De spoorlijn, een van de weinige routes naar het buitenland vanuit de gesloten...
 - [Man betrapt dief met gereedschap uit zijn werkbus op heterdaad](https://nos.nl/l/2605761)
   > Een man uit Vlissingen heeft vannacht een dief aangehouden die er met gereedschap uit zijn bus vandoor wilde gaan.
         De man lag rond 01.00 uur...
-- [Gevangene in Dordrecht overleden bij brand in cel](https://nos.nl/l/2605760)
-  > In de gevangenis in Dordrecht is vannacht een gevangene overleden bij een brand in een cel. Dat bevestigt de Dienst Justitiële Inrichtingen (DJI).
-  ...
-- [Kansspelautoriteit legt goksites hoogste boete op: 25 miljoen euro](https://nos.nl/l/2605759)
-  > De Kansspelautoriteit (Ksa) heeft een recordboete van bijna 25 miljoen euro opgelegd aan Novatech omdat het illegaal kansspelen aanbood. In Nederland...
-- [Duizend geiten gedood bij grote stalbrand in Epe](https://nos.nl/l/2605751)
-  > In Epe, in Gelderland, is afgelopen nacht een grote brand uitgebroken in een stal. Daarbij zijn zo'n duizend geiten omgekomen.
-        De brand in de...
-- [Thuiskoks en -bakkers lang niet altijd bewust van hygiënevoorschriften](https://nos.nl/l/2605750)
-  > Het aantal thuischefs dat zich inschrijft bij de Kamer van Koophandel (KVK) is de afgelopen jaren sterk gestegen. Steeds meer mensen beginnen vanuit...
 
 ### Meest gelezen
 
@@ -30,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Meta krijgt in hoger beroep ongelijk: standaard berichten van vrienden zien op Instagram blijft mogelijk](https://www.ad.nl/tech/meta-krijgt-in-hoger-beroep-ongelijk-standaard-berichten-van-vrienden-zien-op-instagram-blijft-mogelijk~ae135ea8/)
-  > Instagram- en Facebookgebruikers kunnen blijven genieten van een tijdlijn waarin zij standaard alleen berichten van vrienden zien. In hoger beroep...
-- [Gezondheid van zieke Noorse kroonprinses Mette-Marit gaat ‘duidelijk achteruit’](https://www.ad.nl/show/gezondheid-van-zieke-noorse-kroonprinses-mette-marit-gaat-duidelijk-achteruit~a5d09f62/)
-  > De gezondheid van de Noorse kroonprinses Mette-Marit (52) is op korte tijd drastisch verslechterd. De toekomstige koningin, die aan een longziekte...
-- [Hypotheekrente stijgt door geopolitieke spanningen: ‘Voorspellingen doen is echt kansloos’](https://www.ad.nl/binnenland/hypotheekrente-stijgt-door-geopolitieke-spanningen-voorspellingen-doen-is-echt-kansloos~a45c8d7f/)
-  > De oorlog in het Midden-Oosten heeft niet alleen invloed op de prijzen van gas, benzine, diesel of graan. Ook de hypotheekrente is sinds afgelopen...
-- [Hoe een seksbeluste azc’er het leven van transgender Danial tot een hel maakt: ‘Ik wil jou niet, ga weg’](https://www.ad.nl/binnenland/hoe-een-seksbeluste-azcer-het-leven-van-transgender-danial-tot-een-hel-maakt-ik-wil-jou-niet-ga-weg~a265df4c/)
-  > De 24-jarige transgender asielzoeker Danial waarschuwde de beveiligers van het asielzoekerscentrum in Leiden naar eigen zeggen dagenlang voor haar...
-- [Iran claimt aanvallen op Israëlische olie-infrastructuur in Haifa](https://www.ad.nl/buitenland/iran-claimt-aanvallen-op-israelische-olie-infrastructuur-in-haifa~ac528ac3/)
-  > De Iraanse krijgsmacht claimt aanvallen te hebben uitgevoerd op raffinaderijen en brandstofdepots in de Israëlische havenstad Haifa. Delen van de...
+- [Iraanse voetbalsters hebben Australië verlaten: twee speelsters stappen niet in en blijven in onzekerheid](https://www.ad.nl/voetbal/iraanse-voetbalsters-hebben-australie-verlaten-twee-speelsters-stappen-niet-in-en-blijven-in-onzekerheid~abda1509/)
+  > Het Iraanse vrouwenvoetbalteam heeft Australië verlaten. De selectie vertrok vanaf de luchthaven van Sydney in een vliegtuig naar Maleisië, meldden...
+- [Huishoudportemonnee honderden euro’s lichter door energiecrisis](https://www.ad.nl/economie/huishoudportemonnee-honderden-euros-lichter-door-energiecrisis~a2a1eeb4/)
+  > De gestegen energieprijzen slaan een groot gat in de portemonnee van veel gezinnen. Een gezin van vier personen met een auto is door anderhalve week...
+- [Goedbedoelde grap met toiletpapier loopt fataal af in VS: leraar Jason (40) voor zijn huis doodgereden](https://www.ad.nl/buitenland/goedbedoelde-grap-met-toiletpapier-loopt-fataal-af-in-vs-leraar-jason-40-voor-zijn-huis-doodgereden~a9ae443f/)
+  > In de Amerikaanse staat Georgia is een studentengrap fataal afgelopen. Vijf leerlingen lieten voor de lol toiletpapier achter in de voortuin van...
+- [Henk Westbroek na ruim halve eeuw ‘bedenktijd’ getrouwd](https://www.ad.nl/utrecht/henk-westbroek-na-ruim-halve-eeuw-bedenktijd-getrouwd~ad3017cc/)
+  > Dat trouwen op alle leeftijden kan blijkt maar weer. Zanger Henk Westbroek (74) is vandaag getrouwd met zijn inmiddels vrouw Julia Harris, heeft hij...
+- [Politie vindt voet van sinds 2024 vermiste Marijke uit Oud-Beijerland](https://www.ad.nl/hoeksche-waard/politie-vindt-voet-van-sinds-2024-vermiste-marijke-uit-oud-beijerland~adaeb4ab/)
+  > In de zoektocht naar de langdurig vermiste Marijke de Groot is vorige maand in de Dordste Kil een schoen met daarin een stoffelijk overschot van een...
 
 ### Meest gelezen
 
@@ -49,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Na een kwarteeuw links beleid kan de stad Parijs een draai naar rechts maken](https://fd.nl/politiek/1588629/na-een-kwarteeuw-links-beleid-kan-de-stad-parijs-een-draai-naar-rechts-maken)
+  > Op 15 maart en 22 maart vinden in Parijs de gemeenteraadsverkiezingen plaats. Dan wordt ook de opvolger gekozen van burgemeester Anne Hidalgo. Haar...
+- [Von der Leyen: ‘Europese afbouw kernenergie was strategische fout’](https://fd.nl/bedrijfsleven/1588687/von-der-leyen-europese-afbouw-kernenergie-was-strategische-fout)
+  > De Europese Commissie gaat voor €200 mln aan garanties verstrekken om investeringen in innovatieve kerntechnologieën te stimuleren.
+- [Juristen blinken uit met hun omzetgroei in 2025](https://fd.nl/bedrijfsleven/1588685/juristen-blinken-uit-met-hun-omzetgroei-in-2025)
+  > De uitzendbranche en het reclamewezen waren de enige subsectoren binnen de zakelijke dienstverlening die hun omzet zagen krimpen.
 - [Jumbo benoemt voormalig interim-topman Heidman als commissaris](https://fd.nl/bedrijfsleven/1588628/jumbo-benoemt-voormalig-interim-topman-heidman-als-commissaris)
   > De supermarktketen voert wijzigingen door in zijn raad van commissarissen. Voormalig interim-ceo Tom Heidman treedt toe, terwijl oudgediende Piet...
 - [Medeoprichter Iraanse Revolutionaire Garde: ‘Dit regime moet zich zo snel mogelijk overgeven’](https://fd.nl/politiek/1588677/medeoprichter-iraanse-revolutionaire-garde-dit-regime-moet-zich-zo-snel-mogelijk-overgeven)
   > De Iraanse dissident Mohsen Sazegara gelooft dat het regime in zijn vaderland de oorlog niet zal overleven. Maar zonder toekomstplan kan...
-- [Betere bescherming critici tegen toenemende juridische agressie, maar is het genoeg?](https://fd.nl/samenleving/1588031/betere-bescherming-critici-tegen-toenemende-juridische-agressie-maar-is-het-genoeg)
-  > Een nieuwe EU-wet moet burgers en organisaties die machthebbers ter verantwoording roepen beschermen tegen het misbruiken van rechtszaken om ze de...
-- [AkzoNobel wil activist als commissaris](https://fd.nl/bedrijfsleven/1588683/akzonobel-wil-activist-als-commissaris)
-  > De verfmaker draagt Robert Schuchna, partner bij grootaandeelhouder Cevian, voor als nieuwe toezichthouder.
-- [Met de aanvallen op Iran schittert Europa als Amerikaanse vazal – op Spanje na dan](https://fd.nl/opinie/1588531/spanje-bewijst-dat-europa-meer-is-dan-trumps-echo)
-  > De door de VS en Israël ontketende oorlog legt een ongemakkelijke waarheid bloot: Europa kán spreken en doet dat ook, maar zijn leiders laten alleen...
 
 ### Meest gelezen
 
