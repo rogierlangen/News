@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-03-2026 om 13:11*
+*Laatst bijgewerkt: 11-03-2026 om 14:51*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Politieke partijen krijgen waarschuwing om gerichte advertenties](https://nos.nl/l/2605909)
+  > In aanloop naar de gemeenteraadsverkiezingen van volgende week heeft de Autoriteit Persoonsgegevens (AP) zo'n veertig gevallen ontdekt van politieke...
+- [Landen halen recordhoeveelheid olie uit reserves om prijsstijging tegen te gaan](https://nos.nl/l/2605905)
+  > Nederland en 31 andere landen brengen een recordhoeveelheid olie uit hun strategische reserves op de markt. Dit moet de omhooggeschoten olieprijs...
+- [Podcast De Dag: verslikt Trump zich in de olie?](https://nos.nl/l/2605904)
+  > De prijzen aan de pomp stijgen door, de zorgen over de wereldwijde toevoer van olie groeien en de oorlog in het Midden-Oosten is nog niet voorbij....
 - [OM vervolgt pleegvader alsnog voor misbruik in 1992 in De Glind](https://nos.nl/l/2605896)
   > Een van de voormalige pleegvaders van jeugddorp De Glind in Gelderland wordt alsnog strafrechtelijk vervolgd voor seksueel misbruik in 1992. Het...
 - [Waterbedrijf stuit op duizenden jaren oude grafheuvels in Drenthe](https://nos.nl/l/2605895)
-  > Bij graafwerkzaamheden in de noordpunt van Drenthe is het waterleidingbedrijf op oude grafheuvels gestuit met urnen en karrensporen. Archeologen...
-- [Ex-NCTV'er vrijgesproken van spionage, wel cel voor meenemen geheime documenten](https://nos.nl/l/2605894)
-  > Oud-medewerker Abderrahim El M. van de Nationaal Coördinator Terrorismebestrijding en Veiligheid (NCTV) is door de rechtbank in Rotterdam...
-- [Gasunie: Nederland kwetsbaar bij langdurige gasuitval, noodvoorraad nodig](https://nos.nl/l/2605888)
-  > Nederland is kwetsbaar bij een langdurige onderbreking van de gasaanvoer. Dat blijkt uit een nieuwe weerbaarheidsanalyse van Gasunie-dochter GTS....
-- [Tientallen jongeren bekogelen politie en stadsbus met vuurwerk](https://nos.nl/l/2605880)
-  > De politie is gisteravond bekogeld met vuurwerk in de Utrechtse wijk Overvecht. Ook een stadsbus kreeg de volle laag. De buschauffeur kon zichzelf in...
+  > Bij graafwerkzaamheden in het natuurgebied ten noorden van Assen is het Drentse waterbedrijf op oude grafheuvels gestuit met urnen en karrensporen....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Trans vrouw in vrouwenbajes moet kunnen, zegt het kabinet](https://www.ad.nl/politiek/trans-vrouw-in-vrouwenbajes-moet-kunnen-zegt-het-kabinet~af0ef7567/)
-  > Trans vrouwen kunnen voorlopig nog steeds geplaatst worden in vrouwengevangenissen. Het kabinet is niet van plan om het huidige beleid aan te passen,...
-- [Uitgefloten door het eigen publiek: voor Dean Huijsen is spelen in het Bernabéu even geen pretje](https://www.ad.nl/voetbal/uitgefloten-door-het-eigen-publiek-voor-dean-huijsen-is-spelen-in-het-bernabeu-even-geen-pretje~a164db66/)
-  > Overtuigend, rustig en vol zelfvertrouwen presenteerde Dean Huijsen zich vorig jaar in zijn eerste wedstrijden voor Real Madrid. Nu wordt hij al...
-- [PSV kan komend weekend de vroegste kampioen ooit worden: gaat dat gebeuren volgens jou?](https://www.ad.nl/voetbal/psv-kan-komend-weekend-de-vroegste-kampioen-ooit-worden-gaat-dat-gebeuren-volgens-jou~a0fad107/)
-  > PSV kan dit weekend al geschiedenis schrijven. De ploeg van Peter Bosz kan de vroegste kampioen ooit worden in de eredivisie.
-- [Henry Schut als commentator van het songfestival: ‘Kan zomaar zijn dat ik ineens vilein uit de hoek kom’](https://www.ad.nl/show/henry-schut-als-commentator-van-het-songfestival-kan-zomaar-zijn-dat-ik-ineens-vilein-uit-de-hoek-kom~a7f7590ac/)
-  > Ze vormen nu al het meest opmerkelijke tv-duo van het jaar: NOS-sportverslaggever Henry Schut en radiopresentator Jeroen Kijk in de Vegte voorzien...
-- [Partner overleden: dit gebeurt er met de schadevrije jaren van je autoverzekering](https://www.ad.nl/auto/partner-overleden-dit-gebeurt-er-met-de-schadevrije-jaren-van-je-autoverzekering~a803cdbb/)
-  > Schadevrije jaren leveren een flinke korting op je autoverzekering op. Maar als een van de partners overlijdt, blijven ze dan geldig, vraagt lezer...
+- [McTominay stijgt op salarisladder bij Napoli, Kyle Walker stopt als international](https://www.ad.nl/voetbal/mctominay-stijgt-op-salarisladder-bij-napoli-kyle-walker-stopt-als-international~a35ea681/)
+  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
+- [Peloton maakt zich op voor sprint, leidt Van der Poel ploeggenoot naar etappezege?](https://www.ad.nl/wielrennen/peloton-maakt-zich-op-voor-sprint-leidt-van-der-poel-ploeggenoot-naar-etappezege~af21b4da/)
+  > Na de ritzege van Mathieu van der Poel gaat de Tirreno-Adriatico verder met de derde etappe. Net als gisteren staan er de nodige hoogtemeters op het...
+- [Britse regering geeft documenten vrij over benoeming Mandelson vrij, na onthulling over band met Epstein](https://www.ad.nl/buitenland/britse-regering-geeft-documenten-vrij-over-benoeming-mandelson-vrij-na-onthulling-over-band-met-epstein~ac4c2241/)
+  > De Britse regering heeft de eerste documenten vrijgegeven rond de benoeming van Peter Mandelson, de gewezen Britse ambassadeur voor de Verenigde...
+- [Raheem Sterling maakt eerste goal voor Feyenoord in verloren oefenduel met FC Twente](https://www.ad.nl/voetbal/raheem-sterling-maakt-eerste-goal-voor-feyenoord-in-verloren-oefenduel-met-fc-twente~a9197b0d/)
+  > Raheem Sterling heeft zijn eerste doelpunt voor Feyenoord gemaakt. De Engelse aanvaller, die deze winter transfervrij overkwam naar Rotterdam, was...
+- [Dodelijke brand in Zwitserse bus was geen terrorisme volgens politie, wel een ‘opzettelijke daad’](https://www.ad.nl/buitenland/dodelijke-brand-in-zwitserse-bus-was-geen-terrorisme-volgens-politie-wel-een-opzettelijke-daad~ab8efb54/)
+  > De Zwitserse politie sluit opzet niet uit bij de dodelijke brand in een bus, dinsdagavond in het stadje Kerzers, in het kanton Freiburg. Terrorisme...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [IEA geeft recordhoeveelheid olie vrij, markt niet onder de indruk](https://fd.nl/economie/1588816/nederland-brengt-noodvoorraad-olie-op-de-markt)
+  > Het nieuwe aanbod is juist bedoeld om de oliemarkt tot bedaren te brengen. De aanvoer vanuit het Midden-Oosten is ernstig verstoord door de...
+- [Onlinebank Revolut groeit door naar 1,5 miljoen Nederlandse klanten](https://fd.nl/bedrijfsleven/1588815/onlinebank-revolut-groeit-door-naar-1-5-miljoen-nederlandse-klanten)
+  > Revolut heeft de grens van 1,5 miljoen Nederlandse klanten gepasseerd, terwijl in België de miljoenste klant werd verwelkomd. Het is daarmee één van...
+- [Ook sportclubs openen jacht op gulle gever](https://fd.nl/samenleving/1588365/ook-sportclubs-openen-jacht-op-gulle-gever)
+  > Sportclubs bewegen zich pas kort op de markt van giften en erfenissen, anders dan goede doelen en culturele instellingen. Hoog tijd voor een...
+- [Kabinet wil Europa’s grootste bioraffinaderij met €50 mln steunen om verder te vergroenen](https://fd.nl/bedrijfsleven/1588811/kabinet-steunt-europas-grootste-bioraffinaderij-met-50-mln-om-verder-te-kunnen-vergroenen)
+  > Alco Energy in Rotterdam tekent een intentieverklaring met de overheid om zijn CO₂-uitstoot met ten minste 65% omlaag te brengen.
 - [Het wordt pas echt interessant als we de machine tegenspreken](https://fd.nl/opinie/1588367/het-wordt-pas-echt-interessant-als-we-de-machine-tegenspreken)
   > Een chatbot is veel meer dan een butler, die vervelend werk kan opknappen. AI is weerbarstig materiaal dat je voor je kunt laten werken.
-- [Ruim helft van kiesgerechtigden is 50 jaar of ouder](https://fd.nl/politiek/1588812/ruim-helft-van-kiesgerechtigden-is-50-jaar-of-ouder)
-  > Bij de gemeenteraadsverkiezingen van volgende week woensdag is circa 52% van de stemmers 50 jaar of ouder. In 2014 was dat aandeel nog minder dan de...
-- [Laat ons profiteren van de AI-blunders in de VS](https://fd.nl/opinie/1588363/laat-ons-profiteren-van-de-ai-blunders-in-de-vs)
-  > Amerikaanse AI-bedrijven die ethische lijnen trekken, kunnen in eigen land nauwelijks zaken doen. Europa zou haar armen moeten spreiden voor ethische...
-- [Angst voor Iraanse drones: opeens heeft Zelensky wél de kaarten in handen](https://fd.nl/politiek/1588726/angst-voor-iraanse-drones-opeens-heeft-zelensky-wel-kaarten-in-handen)
-  > Amerikanen en Golfstaten hebben opeens de hulp van Oekraïne nodig bij het neerhalen van Iraanse drones. Kyiv ziet economisch en diplomatiek kansen.
-- [Malaise in private credit houdt aan](https://fd.nl/financiele-markten/1588728/malaise-in-private-credit-houdt-aan)
-  > JPMorgan schrijft onderpand af, Pimco spreekt van te ruime acceptatienormen.
 
 ### Meest gelezen
 
