@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-03-2026 om 23:32*
+*Laatst bijgewerkt: 11-03-2026 om 02:27*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Vrouw aangeklaagd om poging tot moord na beschieting huis van Rihanna](https://nos.nl/l/2605847)
+  > De vrouw die wordt verdacht van het beschieten van het huis van Rihanna is onder meer aangeklaagd wegens poging tot moord. De openbare aanklager...
 - [ASML mag uitbreiden: tweede vestiging met 20.000 medewerkers](https://nos.nl/l/2605842)
   > Chipmachinefabrikant ASML mag uitbreiden. De Eindhovense gemeenteraad heeft vanavond groen licht gegeven voor de bouw van een grote nieuwe campus in...
-- [Zes doden en vijf gewonden bij brand in Zwitserse bus](https://nos.nl/l/2605840)
-  > In Zwitserland zijn zeker zes mensen omgekomen bij een brand in een bus. Dat gebeurde iets voor 18.30 uur in het centrum van Kerzers, een plaats ten...
+- [Zes doden door brand in Zwitserse bus, politie gaat uit van opzet](https://nos.nl/l/2605840)
+  > In Zwitserland zijn zeker zes mensen omgekomen door een brand in een bus. Dat gebeurde iets voor 18.30 uur in het centrum van Kerzers, een plaats ten...
 - [Italië betaalt 30 miljoen euro voor schilderij Caravaggio](https://nos.nl/l/2605838)
   > Italië heeft een schilderij van Caravaggio gekocht voor 30 miljoen euro. Zelden betaalde het land zo veel geld voor een kunstwerk.
         Het...
 - [Tieners opgepakt voor gewelddadige overvallen in Helmond en Gemert](https://nos.nl/l/2605837)
   > De politie heeft vijf tieners opgepakt voor twee gewelddadige overvallen in Helmond en Gemert. Het gaat om een 14-jarige jongen uit Veghel, een...
-- [Kamermeerderheid lijkt overtuigd van inzet oorlogsschip Evertsen](https://nos.nl/l/2605836)
-  > Ondanks de zorgen die er leven, lijkt een meerderheid in de Tweede Kamer overtuigd te zijn van het besluit van het Kabinet om het oorlogsschip Zr....
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Israël voert nieuwe aanvallen uit op Beiroet, meerdere doden gemeld](https://www.ad.nl/buitenland/israel-voert-nieuwe-aanvallen-uit-op-beiroet-meerdere-doden-gemeld~ac528ac3/)
+  > Israël heeft nieuwe aanvallen uitgevoerd op de zuidelijke buitenwijken van de Libanese hoofdstad Beiroet. Het Israëlische leger meldt dat het de door...
+- [Statige villa van buiten, horrorverpleeghuis van binnen: ‘Mensen smeken erom dood te gaan’](https://www.ad.nl/binnenland/statige-villa-van-buiten-horrorverpleeghuis-van-binnen-mensen-smeken-erom-dood-te-gaan~a8a3bbdc/)
+  > Mieren en muizenkeutels in de keuken, kant-en-klare noedels op het menu en een dronken personeelslid. In een verpleeghuis voor Turkse ouderen in het...
 - [Voetbalpodcast | ‘Van Huiberts en Eenhoorn naar Van Duinen en Zeeman, dat is wel een verschil bij AZ’](https://www.ad.nl/voetbal/voetbalpodcast-van-huiberts-en-eenhoorn-naar-van-duinen-en-zeeman-dat-is-wel-een-verschil-bij-az~ac8603a9/)
   > AZ heeft de opvolger voor Max Huiberts gevonden in Rotterdam. Niels van Duinen, die overkomt van Excelsior, wordt de nieuwe technisch directeur in...
 - [Arne Slot beklaagt zich over arbitrage: ‘Wij waren niet de enigen die onder de indruk waren van het lawaai’](https://www.ad.nl/voetbal/arne-slot-beklaagt-zich-over-arbitrage-wij-waren-niet-de-enigen-die-onder-de-indruk-waren-van-het-lawaai~af7ee79e/)
   > Liverpool-trainer Arne Slot was na de 1-0 nederlaag bij Galatasaray in de achtste finales van de Champions League niet te spreken over de arbitrage.
 - [Champions League | Vier duels gespeeld, vier te gaan: het programma en de uitslagen van de achtste finales](https://www.ad.nl/voetbal/champions-league-vier-duels-gespeeld-vier-te-gaan-het-programma-en-de-uitslagen-van-de-achtste-finales~a500d679/)
   > De tussenronde ligt achter ons en dus is het tijd voor het echte werk. Deze week staat in het teken van de heenwedstrijden in de achtste finales van...
-- [Bayern München dendert over Atalanta heen in Bergamo, Olise schittert met goals in Robben-stijl](https://www.ad.nl/voetbal/bayern-munchen-dendert-over-atalanta-heen-in-bergamo-olise-schittert-met-goals-in-robben-stijl~a6597517/)
-  > Bayern München is al zo goed als zeker van een plek in de kwartfinales van de Champions League. De Duitse topclub won dinsdagavond in Bergamo met 1-6...
-- [Liverpool verliest opnieuw bij Galatasaray, maar schade valt nog te reperaren](https://www.ad.nl/voetbal/liverpool-verliest-opnieuw-bij-galatasaray-maar-schade-valt-nog-te-reperaren~a73c8c0a/)
-  > Liverpool heeft in de achtste finales van de Champions League een nederlaag geleden. De ploeg van trainer Arne Slot verloor met 1-0 bij de Turkse...
 
 ### Meest gelezen
 
