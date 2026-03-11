@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-03-2026 om 20:38*
+*Laatst bijgewerkt: 11-03-2026 om 21:37*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Britse premier Starmer was gewaarschuwd over 'risico's' van Mandelson](https://nos.nl/l/2605972)
+  > Uit nieuwe vrijgegeven documenten blijkt dat ambtenaren de Britse premier Starmer hebben gewaarschuwd voor de risico's van het benoemen van Peter...
+- [Radicaal-rechtse José Antonio Kast beëdigd als president van Chili](https://nos.nl/l/2605969)
+  > In Chili is de uiterst conservatieve politicus José Antonio Kast beëdigd als president. Hij geldt als de meest rechtse leider in het Zuid-Amerikaanse...
+- [Drie arrestaties voor aanslag op Amerikaanse ambassade in Oslo](https://nos.nl/l/2605968)
+  > De Noorse politie heeft drie mannen gearresteerd in verband met de explosie bij de Amerikaanse ambassade in Oslo afgelopen weekend. Zij worden...
 - [Oud-burgemeester Hendrik-Ido-Ambacht vast voor bezit van kinderporno](https://nos.nl/l/2605962)
   > Een oud-burgemeester van Hendrik-Ido-Ambacht zit vast voor het bezit van kinderporno. De politie hield de 77-jarige Herman J. vorige maand al aan,...
 - [Dag 12 van de oorlog: landen geven recordhoeveelheid oliereserves vrij](https://nos.nl/l/2605956)
   > Op de twaalfde dag van de oorlog in het Midden-Oosten heeft Iran onder meer schepen in de Perzische Golf aangevallen. Ook waren er Iraanse aanvallen...
-- [Rust keert terug na bendegeweld in Guadalajara, net op tijd voor WK Voetbal](https://nos.nl/l/2605953)
-  > Op deze warme dag in Guadalajara lopen gezinnen langs de etalages van kledingwinkeltjes, stelletjes en gepensioneerden zitten in de schaduw van een...
-- [Dubai ligt nog dagelijks onder vuur, maar op sociale media merk je daar niks van](https://nos.nl/l/2605949)
-  > Wie de instagrampagina van TimeOutDubai bekijkt, lijkt te zijn beland in een paradijs: een boulevard vol wolkenkrabbers en palmbomen, winkelend...
-- [Bekogelde bus Utrecht door politie ingezet 'als een soort blokkade'](https://nos.nl/l/2605945)
-  > De stadsbus die gisteravond in de Utrechtse wijk Overvecht door een groep jongeren is vernield, was door de politie "gevorderd" en ingezet "als een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Volkswagen loopt miljarden mis en dat is goed nieuws voor de autokoper: ‘Prijzen gaan omlaag’](https://www.ad.nl/economie/volkswagen-loopt-miljarden-mis-en-dat-is-goed-nieuws-voor-de-autokoper-prijzen-gaan-omlaag~abfad389/)
-  > Het was een jaar om snel te vergeten voor Volkswagen Group. Met een winstdaling van 44 procent – naar 6,9 miljard euro – evenaarde het concern zijn...
-- [Chelsea op gelijke hoogte tegen PSG na matig verdedigen, Bodø/Glimt leidt tegen Sporting](https://www.ad.nl/voetbal/chelsea-op-gelijke-hoogte-tegen-psg-na-matig-verdedigen-bodo-glimt-leidt-tegen-sporting~af515294/)
+- [PSG in slotfase op voorsprong na enorme blunder Chelsea-doelman, Bodø/Glimt verpulvert Sporting](https://www.ad.nl/voetbal/psg-in-slotfase-op-voorsprong-na-enorme-blunder-chelsea-doelman-bodo-glimt-verpulvert-sporting~af515294/)
   > Bodø/Glimt verraste vriend en vijand door in de vorige ronde Internazionale uit te schakelen. De Noorse stuntploeg neemt het in de heenwedstrijd op...
-- [Net als de Titanic: opmerkelijk en vooral gigantisch goudkleurig standbeeld van Trump en Epstein duikt op](https://www.ad.nl/buitenland/net-als-de-titanic-opmerkelijk-en-vooral-gigantisch-goudkleurig-standbeeld-van-trump-en-epstein-duikt-op~a3dd6178/)
-  > Een opmerkelijk kunstwerk dook dinsdagochtend op in het hart van de Amerikaanse hoofdstad Washington. Anonieme kunstenaars hebben vlak bij het...
-- [Longarts Edith verliet ziekenhuis en begon praktijk: 'Als patiënten bellen, heb ik meteen al een deel van het verhaal gehoord'](https://www.ad.nl/gezond/longarts-edith-verliet-ziekenhuis-en-begon-praktijk-als-patienten-bellen-heb-ik-meteen-al-een-deel-van-het-verhaal-gehoord~a8527405/)
-  > Ze zijn er allebei van overtuigd dat ze sommige patiënten beter kunnen helpen dicht bij huis. Longarts Edith Kok en klinisch geriater Laura van...
-- [Timber ontsnapt met Arsenal dankzij schlemiel Tillman aan nederlaag in Leverkusen](https://www.ad.nl/voetbal/timber-ontsnapt-met-arsenal-dankzij-schlemiel-tillman-aan-nederlaag-in-leverkusen~af69148a/)
-  > Het moest van ver komen, maar uiteindelijk voorkomt Arsenal ternauwernood een nederlaag in de heenwedstrijd van de achtste finale van de Champions...
+- [Iraanse school waarschijnlijk geraakt door fout VS, aanval uitgevoerd met verouderde data](https://www.ad.nl/buitenland/iraanse-school-waarschijnlijk-geraakt-door-fout-vs-aanval-uitgevoerd-met-verouderde-data~ac528ac3/)
+  > De luchtaanval op een lagere meisjesschool in Iran was waarschijnlijk te wijten aan een fout van het Amerikaanse leger. De aanval zou zijn uitgevoerd...
+- [Amateurclub in opspraak met op de man gerichte vliegende tackle: ‘Toen ik het filmpje zag schrok ik me kapot’](https://www.ad.nl/binnenland/amateurclub-in-opspraak-met-op-de-man-gerichte-vliegende-tackle-toen-ik-het-filmpje-zag-schrok-ik-me-kapot~a259bec9/)
+  > Een duidelijk op de man gerichte vliegende tackle met twee benen vooruit. Wat de speler van vv Doetinchem bezielde in de wedstrijd tegen Harfsen is...
+- [Joy Beune verslaat Jenning de Boo in veelbesproken battle of the sexes op 3 kilometer](https://www.ad.nl/schaatsen/joy-beune-verslaat-jenning-de-boo-in-veelbesproken-battle-of-the-sexes-op-3-kilometer~a52e3564/)
+  > Het begon als een grap, maar in Leeuwarden werd het vanavond pure ernst tussen Joy Beune en Jenning de Boo, die tegen elkaar een drie kilometer...
+- [Wilhelmina Kinderziekenhuis in Utrecht vol rook na brandje, patiënten naar andere afdeling](https://www.ad.nl/112-nieuws-utrecht/wilhelmina-kinderziekenhuis-in-utrecht-vol-rook-na-brandje-patienten-naar-andere-afdeling~ae8a8a69/)
+  > Het Wilhelmina Kinderziekenhuis in Utrecht staat woensdagavond vol rook, nadat er een brandje uit was gebroken. De patiënten zijn naar een andere...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Amerikaanse beurzen eindigen vlak te midden van aanhoudend olie- en gastumult](https://fd.nl/financiele-markten/1588832/amerikaanse-beurzen-eindigen-vlak-te-midden-vanaanhoudend-olie-en-gastumult)
+  > De oorlog in het Midden-Oosten bijna voorbij? Beleggers blijven voorzichtig. De Dow Jones verloor 0,6%, de S&P 500 raakte 0,1% kwijt en...
+- [Steeds meer bewijs voor Amerikaanse raket op Iraanse school, spanningen lopen verder op](https://fd.nl/politiek/1588830/steeds-meer-bewijs-voor-amerikaanse-raket-op-iraanse-school-spanningen-lopen-verder-op)
+  > Volgens The New York Times wijzen de eerste resultaten van een intern Amerikaans militair onderzoek erop dat een Tomahawk-raket het schoolgebouw...
 - [In Cannes is de Nederlandse vastgoedwereld drukker met Vesteda dan met Iran](https://fd.nl/bedrijfsleven/1588819/in-cannes-is-de-nederlandsevastgoedwereld-drukker-met-vesteda-dan-met-iran)
   > De vastgoedbeurs Mipim in de Franse badplaats Cannes trekt jaarlijks meer dan 20.000 bezoekers.
 - [De voorgenomen bezuinigingen op sociale zekerheid ‘vallen als dominostenen’](https://fd.nl/politiek/1588825/de-voorgenomen-bezuinigingen-op-sociale-zekerheid-vallen-als-dominostenen)
   > Na de ijskast voor de verhoging van de AOW-leeftijd en het terugdraaien van de bezuiniging op zwangerschapsverlof, wankelt nu ook de voorgenomen...
 - [Steunplan voor Tata Steel rammelt](https://fd.nl/opinie/1588813/steunplan-voor-tata-steel-rammelt)
   > Minister Stientje van Veldhoven van Klimaat en Groene Groei moet duidelijker maken waarom de steun noodzakelijk is, niet alleen voor Nederland maar...
-- [Tweede Kamer blaast stoom af over optreden minister Heinen rond box 3](https://fd.nl/politiek/1588748/tweede-kamer-blaast-stoom-af-over-optreden-minister-heinen-rond-box-3)
-  > Hoofdrolspeler Heinen was zelf niet bij het debat over box 3. De nieuwe staatssecretaris Eelco Eerenberg wil na de draai van de minister in het...
-- [Gemeenten kunnen binnenkort belasting op leegstand heffen](https://fd.nl/politiek/1588829/gemeenten-kunnen-binnenkort-belasting-op-leegstand-heffen)
-  > Het plan om gemeenten de mogelijkheid te geven tot zo’n heffing was al vorig jaar aangenomen. Nu de woonminister het besluit heeft ondertekend,...
 
 ### Meest gelezen
 
