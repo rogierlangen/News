@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-03-2026 om 10:46*
+*Laatst bijgewerkt: 11-03-2026 om 11:36*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Criminelen doen zich voor als Bastion Hotels: hotel zegt ‘andere prioriteiten te hebben’, tot afgrijzen van gasten](https://www.ad.nl/tech/criminelen-doen-zich-voor-als-bastion-hotels-hotel-zegt-andere-prioriteiten-te-hebben-tot-afgrijzen-van-gasten~a5a27e94/)
-  > Er gaan WhatsApp-berichten rond van cybercriminelen die zich voordoen als de klantenservice van Bastion Hotels, een van de grotere hotelketens van...
-- [KLM vliegt komende twee weken nog niet op Dubai door oorlog](https://www.ad.nl/binnenland/klm-vliegt-komende-twee-weken-nog-niet-op-dubai-door-oorlog~a1d14ddd/)
-  > KLM vliegt voorlopig nog niet op Dubai vanwege de oorlog in het Midden-Oosten. De luchtvaartmaatschappij heeft alle vluchten naar de Arabische...
-- [Opgepakte Syriër (34) bereidde vanuit AZC Dronten aanslag voor in Nederland: ‘Hij werd de sjeik genoemd’](https://www.ad.nl/binnenland/opgepakte-syrier-34-bereidde-vanuit-azc-dronten-aanslag-voor-in-nederland-hij-werd-de-sjeik-genoemd~a963a54a/)
-  > De Syrische asielzoeker die afgelopen november op het azc in Dronten werd aangehouden, zou een aanslag hebben willen plegen in Nederland. Hij hangt...
-- [Hond Beavis (8) zat twee weken alleen thuis na arrestatie van baasjes: ‘Ik zie alleen nog botjes op de bank liggen’](https://www.ad.nl/den-haag/hond-beavis-8-zat-twee-weken-alleen-thuis-na-arrestatie-van-baasjes-ik-zie-alleen-nog-botjes-op-de-bank-liggen~ad0774fa/)
-  > De Amerikaanse stafford Beavis zat wekenlang zonder eten en drinken, nadat zijn baasjes in de cel belandden. Het dier kwijnde weg, terwijl de...
-- [KLM vliegt voorlopig niet op Dubai door oorlog: ‘We begrijpen dat dit ingrijpende gevolgen kan hebben’](https://www.ad.nl/buitenland/klm-vliegt-voorlopig-niet-op-dubai-door-oorlog-we-begrijpen-dat-dit-ingrijpende-gevolgen-kan-hebben~ac528ac3/)
-  > KLM vliegt voorlopig nog niet op Dubai vanwege de oorlog in het Midden-Oosten. De luchtvaartmaatschappij heeft alle vluchten naar de Arabische...
+- [Robbert Rodenburg eerste homoseksuele man op cover Men’s Health Nederland](https://www.ad.nl/show/robbert-rodenburg-eerste-homoseksuele-man-op-cover-mens-health-nederland~a820d817/)
+  > Robbert Rodenburg (28) is het nieuwe covermodel voor Men’s Health Nederland. Dat is ‘heel bijzonder’ voor de presentator, die daarmee de eerste...
+- [Groen licht voor nieuwe ASML-campus in Eindhoven, provincie verleent speciale stikstofvergunning](https://www.ad.nl/binnenland/groen-licht-voor-nieuwe-asml-campus-in-eindhoven-provincie-verleent-speciale-stikstofvergunning~aa46fe9d/)
+  > Chipmachinefabrikant ASML mag uitbreiden in Eindhoven. De gemeenteraad  heeft dinsdagavond ingestemd met de bouw van een nieuwe ASML-campus aan de...
+- [Oprichter van sadistische chatgroep Justin B. ook verdacht van verkrachting](https://www.ad.nl/binnenland/oprichter-van-sadistische-chatgroep-justin-b-ook-verdacht-van-verkrachting~ade365ed/)
+  > Justin B. (25), de leider en oprichter van de sadistische chatgroep ‘No Lives Matter’, wordt ook verdacht van verkrachting van een minderjarige. Dat...
+- [Max Verstappen ambitieus voor tweede race: ‘We hopen deze week meer mee te doen in de strijd’](https://www.ad.nl/formule-1/max-verstappen-ambitieus-voor-tweede-race-we-hopen-deze-week-meer-mee-te-doen-in-de-strijd~a11cae96/)
+  > Het Formule 1-circus strijkt deze week neer in Shanghai, waar de Grand Prix van China wordt afgewerkt. Volg alle ontwikkelingen op en naast het...
+- [Wie een kwartier lang naar het gejank van zo’n laffe eikel kan luisteren, is een held](https://www.ad.nl/binnenland/wie-een-kwartier-lang-naar-het-gejank-van-zon-laffe-eikel-kan-luisteren-is-een-held~aa6ed00b/)
+  > Ze had nooit zo’n hoge pet op van deze lollige BN’er, maar ineens staat hij bovenaan haar populariteitsladder, schrijft Angela de Jong.
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Hoe een saunaverkoper verstrikt raakte in zijn eigen fiscale fuik](https://fd.nl/bedrijfsleven/1587874/hoe-een-saunaverkoper-verstrikt-raakte-in-zijn-eigen-fiscale-fuik)
-  > Justitie en de Belastingdienst jagen al jaren op een groep mkb’ers vanwege het ontduiken van inkomstenbelasting. Een van de doelwitten: een...
-- [Raad van State vernietigt besluit over maximum aantal vluchten Schiphol](https://fd.nl/politiek/1588727/raad-van-state-vernietigt-besluit-over-maximum-aantal-vluchten-schiphol)
-  > Een beperking van het aantal vluchten op Schiphol tot maximaal 478.000 vluchten per jaar is van tafel. De ingreep is onvoldoende onderbouwd, oordeelt...
-- [In de schaduw van Zwarte Zwanen](https://fd.nl/financiele-markten/1588807/in-de-schaduw-van-zwarte-zwanen)
-  > De les van dertig jaar beleggen is dat onzekerheid niet te modelleren is, zegt FD-columnist Valentijn van Nieuwenhuijzen. Hoe ongemakkelijk ook, het...
-- [Chipmaker Nexperia schrapt banen in Hamburg](https://fd.nl/bedrijfsleven/1588725/chipmaker-nexperia-schrapt-banen-in-hamburg)
-  > De fabriek in Duitsland draait onder haar capaciteit sinds het losbarsten vorig jaar van een zeggenschapsstrijd op het hoofdkantoor in Nederland.
-- [ANWB-ceo Marga de Jager: ‘Ik was gewend in een mannenwereld te werken’](https://fd.nl/samenleving/1588691/anwb-ceo-marga-de-jager-ik-was-gewend-in-een-mannenwereld-te-werken)
-  > Meer dan financiële waarde creëren, zelf de regie houden: wat maken professionals mee? Deze week: Marga de Jager (1968), ceo en bestuursvoorzitter...
+- [Angst voor Iraanse drones: opeens heeft Zelensky wél kaarten in handen](https://fd.nl/politiek/1588726/angst-voor-iraanse-drones-opeens-heeft-zelensky-wel-kaarten-in-handen)
+  > Amerikanen en Golfstaten hebben opeens de hulp van Oekraïne nodig bij het neerhalen van Iraanse drones. Kyiv ziet economisch en diplomatiek kansen.
+- [Malaise in private credit houdt aan](https://fd.nl/financiele-markten/1588728/malaise-in-private-credit-houdt-aan)
+  > JPMorgan schrijft onderpand af, Pimco spreekt van te ruime acceptatienormen.
+- [Claimclub wil Chemours aansprakelijk stellen voor mogelijke pfas‑schade](https://fd.nl/bedrijfsleven/1588810/claimclub-wil-chemours-aansprakelijk-stellen-voor-pfas-schade)
+  > Het chemiebedrijf in Dordrecht ligt al jaren onder vuur vanwege pfas-vervuiling, en de mogelijke gezondheidsschade die daaruit voortkomt.
+- [Prijs concertkaartje is een strijd tussen toegankelijkheid en winst](https://fd.nl/samenleving/1587560/prijs-concertkaartje-is-een-strijd-tussen-toegankelijkheid-en-winst)
+  > Een concert bezoeken wordt steeds duurder en het lijkt erop dat het eind van de prijsverhogingen nog niet in zicht is.
+- [Raad van State vernietigt plan voor wegverbreding bij Amelisweerd](https://fd.nl/politiek/1588809/raad-van-state-vernietigt-plan-voor-wegverbreding-bij-amelisweerd)
+  > De Raad van State is niet tevreden met de stikstofargumenten van de minister en vernietigt plannen voor verbreding van de ring van Utrecht.
 
 ### Meest gelezen
 
