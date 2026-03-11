@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-03-2026 om 02:27*
+*Laatst bijgewerkt: 11-03-2026 om 04:46*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- ['Ruim honderd daklozen naar de rechter gestapt voor opvangplek'](https://nos.nl/l/2605848)
+  > Afgelopen jaar probeerden zeker 122 daklozen via de rechter een opvangplek te krijgen, nadat ze eerder zijn geweigerd. Dat concluderen journalisten...
 - [Vrouw aangeklaagd om poging tot moord na beschieting huis van Rihanna](https://nos.nl/l/2605847)
   > De vrouw die wordt verdacht van het beschieten van het huis van Rihanna is onder meer aangeklaagd wegens poging tot moord. De openbare aanklager...
 - [ASML mag uitbreiden: tweede vestiging met 20.000 medewerkers](https://nos.nl/l/2605842)
@@ -17,8 +19,6 @@
 - [Italië betaalt 30 miljoen euro voor schilderij Caravaggio](https://nos.nl/l/2605838)
   > Italië heeft een schilderij van Caravaggio gekocht voor 30 miljoen euro. Zelden betaalde het land zo veel geld voor een kunstwerk.
         Het...
-- [Tieners opgepakt voor gewelddadige overvallen in Helmond en Gemert](https://nos.nl/l/2605837)
-  > De politie heeft vijf tieners opgepakt voor twee gewelddadige overvallen in Helmond en Gemert. Het gaat om een 14-jarige jongen uit Veghel, een...
 
 ### Meest gelezen
 
@@ -47,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Belastingparadijzen werden een hel voor succesvolle mkb'ers](https://fd.nl/economie/1588644/belastingparadijzen-werden-een-hel-voor-succesvolle-mkb-ers)
+  > Vandaag in Dagkoers: een verhaal over mkb’ers die via een complexe constructie belasting probeerden te ontwijken, over het piepjonge AI‑bedrijf dat...
 - [De orgasmekloof: een vraagstuk voor de volksgezondheid](https://fd.nl/opinie/1588696/de-orgasmekloof-een-vraagstuk-voor-de-volksgezondheid)
   > De loonkloof kennen we, maar er bestaat ook een orgasmekloof. En die gaat misschien niet alleen over plezier, maar ook over stress, gezondheid en...
 - [Digitale kapucijners](https://fd.nl/opinie/1588642/digitale-kapucijners)
@@ -55,8 +57,6 @@
   > Kirsten Konst verruilde het pluche bij de Rabobank voor dat bij accountantskantoor BDO. ‘Het hooi moet wel van het land’, is haar credo.
 - [Personalia woensdag 11 maart](https://fd.nl/bedrijfsleven/1588625/personalia-woensdag-11-maart)
   > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Groep economen doet beroep op politiek geen steun aan Tata Steel te geven](https://fd.nl/economie/1588695/groep-economen-doet-beroep-op-politiek-geen-steun-aan-tata-steel-te-geven)
-  > De overheid voert gesprekken over €2 mrd aan financiële steun aan Tata Steel Nederland, maar een groep economen noemt de mogelijke subsidie...
 
 ### Meest gelezen
 
