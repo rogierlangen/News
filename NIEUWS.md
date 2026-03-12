@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-03-2026 om 04:50*
+*Laatst bijgewerkt: 12-03-2026 om 05:54*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Wekdienst 12/3: Kort geding tegen AI-tool Grok • Van Bergen en Petit op Paralympische Spelen](https://nos.nl/l/2605987)
+  > Goedemorgen! In België is een nationale staking tegen de bezuinigingen en paralympiërs Barbara van Bergen en Claire Petit komen in actie in...
 - [Deense topchef Redzepi vertrekt bij Noma na beschuldigingen van wangedrag](https://nos.nl/l/2605983)
   > De Deense topchef René Redzepi vertrekt bij het wereldberoemde sterrenrestaurant Noma, heeft hij bekendgemaakt op Instagram. De oprichter van het...
 - [Opnieuw acties in België tegen bezuinigingen, minder vluchten en busritten](https://nos.nl/l/2605982)
@@ -16,8 +18,6 @@
   > Het parlement in Senegal heeft ingestemd met een wet waarmee de maximale celstraf voor homoseksuele handelingen wordt verdubbeld, naar tien jaar. De...
 - [Baby's geëvacueerd na steekvlam in kinderziekenhuis Utrecht](https://nos.nl/l/2605974)
   > In het Wilhelmina Kinderziekenhuis in Utrecht is een aantal baby's vanavond naar een andere afdeling gebracht vanwege een steekvlam, zegt een...
-- [Britse premier Starmer was gewaarschuwd over 'risico's' van Mandelson](https://nos.nl/l/2605972)
-  > Uit nieuwe vrijgegeven documenten blijkt dat ambtenaren de Britse premier Starmer hebben gewaarschuwd voor de risico's van het benoemen van Peter...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ye moet aannemer 140.000 dollar betalen in zaak over vernield huis in Malibu](https://www.ad.nl/show/ye-moet-aannemer-140-000-dollar-betalen-in-zaak-over-vernield-huis-in-malibu~a5ba5473/)
-  > Rapper Ye moet een voormalige aannemer 140.000 dollar (121.000 euro) betalen in een zaak over zijn voormalige huis in Malibu. De rapper, voorheen...
-- [LIVE Midden-Oosten | Doden en gewonden door Israëlische aanval op strand in Beiroet](https://www.ad.nl/buitenland/live-midden-oosten-doden-en-gewonden-door-israelische-aanval-op-strand-in-beiroet~ac528ac3/)
+- [Oorlog zet onze vakantie op z’n kop: run op Algarve en Curaçao en dumpdeals van 495 euro](https://www.ad.nl/binnenland/oorlog-zet-onze-vakantie-op-zn-kop-run-op-algarve-en-curacao-en-dumpdeals-van-495-euro~af9d0335/)
+  > De oorlog in het Midden-Oosten zet de hele reisbranche op zijn kop. Zo boeken we opeens veel minder zomervakanties naar Thailand en kiezen we voor de...
+- [Zeker 7 doden door Israëlische aanval op strand in Beiroet, brand op olietankers in Irak na Iraanse aanval](https://www.ad.nl/buitenland/zeker-7-doden-door-israelische-aanval-op-strand-in-beiroet-brand-op-olietankers-in-irak-na-iraanse-aanval~ac528ac3/)
   > Bij een Israëlische luchtaanval op het openbare strand Ramlet al-Baida, nabij het centrum van Beiroet, zijn zeker zeven mensen gedood. 21 mensen...
-- [Korting op benzinetaks zou structureel niets oplossen: ‘Inefficiënt paardenmiddel’](https://www.ad.nl/economie/korting-op-benzinetaks-zou-structureel-niets-oplossen-inefficient-paardenmiddel~a33b0654a/)
-  > Automobilisten worden aan de pomp flink geraakt door de Iran-oorlog. In politiek Den Haag klinkt de roep om een accijnsverlaging steeds luider. Maar...
-- [Senegal verscherpt bestaande anti-lhbti wetgeving](https://www.ad.nl/buitenland/senegal-verscherpt-bestaande-anti-lhbti-wetgeving~a1e6a0fd/)
-  > Het Senegalese parlement heeft woensdag ervoor gestemd om wetten gericht tegen lhbti-ers te verstrengen. Relaties tussen mensen van hetzelfde...
-- [RVO: veel ondernemers hebben last van handelsbeleid Trump](https://www.ad.nl/economie/rvo-veel-ondernemers-hebben-last-van-handelsbeleid-trump~a921b024/)
-  > De helft van de ondernemers in Nederland die met het buitenland handelen, heeft last van het beleid van de Amerikaanse president Donald Trump....
+- [Stormloop bij Frans tankstation na typfout: benzine voor 1 cent per liter](https://www.ad.nl/auto/stormloop-bij-frans-tankstation-na-typfout-benzine-voor-1-cent-per-liter~a60b2eae/)
+  > Een invoerfout bij een Carrefour-supermarkt in Breuillet, vlak bij Parijs, heeft afgelopen donderdag gezorgd voor een ware run op het tankstation....
+- [‘Mooiste meisje ter wereld’ kondigt verloving aan: ‘Ik ben ook maar gewoon een mens’](https://www.ad.nl/buitenland/mooiste-meisje-ter-wereld-kondigt-verloving-aan-ik-ben-ook-maar-gewoon-een-mens~ae515896/)
+  > Thylane Blondeau was amper 6 jaar oud toen ze werd uitgeroepen tot ‘mooiste meisje ter wereld’. De Franse parel met diepblauwe ogen is inmiddels...
+- [De meeste profs komen uit Amsterdam en Rotterdam, maar ook deze gemeenten scoren opvallend goed](https://www.ad.nl/voetbal/de-meeste-profs-komen-uit-amsterdam-en-rotterdam-maar-ook-deze-gemeenten-scoren-opvallend-goed~adf8f720/)
+  > Noord-Holland de kraamkamer van het Nederlandse topvoetbal? Het lijkt er wel op: gemeenten als Ouder-Amstel, Edam-Volendam en Heiloo hebben de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Nick Clegg: ‘Als Tim Cook ziet dat Mark Zuckerberg naar Mar-a-Lago gaat, wil hij ook’](https://fd.nl/politiek/1588803/nick-clegg-als-tim-cook-ziet-dat-mark-zuckerberg-naar-mar-a-lago-gaat-wil-hij-ook)
+  > De Britse oud-vicepremier Nick Clegg werd in 2018 tot veler verrassing lobbyist van Meta. Nu is hij terug en kraakt hij ook kritische noten over zijn...
+- [Culinair voorbereid op reis](https://fd.nl/samenleving/1588802/culinair-voorbereid-op-reis)
+  > Culinair journalist Sanne van Rij plant haar reizen altijd ver vooruit om precies te weten waar ze wat wil eten. Haar strategie? Het algoritme kun je...
 - [Zelfs noodgreep kan hogere benzineprijs niet voorkomen](https://fd.nl/economie/1588741/zelfs-noodgreep-kan-hogere-benzineprijs-niet-voorkomen)
   > Vandaag in Dagkoers: Nederland brengt noodvoorraad olie op de markt, witwasaanpak is ineffectief en discriminerend & de Poolse goudvoorraad staat...
 - [De eeuwige terugkeer van het communisme – vooral in goedbelezen kring](https://fd.nl/opinie/1588798/de-eeuwige-terugkeer-van-het-communisme)
   > Alsof er geen Berlijnse Muur is gevallen, zo dwepen sommige schrijvers weer met het communisme. Ze fantaseren over een onbeschreven blad. Een utopie.
 - [De nieuwe Lehman](https://fd.nl/opinie/1588749/de-nieuwe-lehman)
   > Een potentiële cocktail van AI-disruptie, private credit en geopolitieke chaos klinkt niet heel geruststellend, schrijft FD-columnist Anna...
-- [‘Onvoorspelbaar handelsbeleid VS raakte helft Nederlandse exporteurs’](https://fd.nl/economie/1588735/onvoorspelbaar-handelsbeleid-vs-raakte-helft-nederlandse-exporteurs)
-  > De invoering, verhoging dan wel wijziging van importheffingen werden in 2025 als obstakel ervaren.
-- [Radicaal-linkse Mélenchon is een ‘nuttige idioot’ voor radicaal-rechts](https://fd.nl/politiek/1587646/radicaal-linkse-melenchon-is-een-nuttige-idioot-voor-radicaal-rechts)
-  > Jean-Luc Mélenchon is inmiddels net zo impopulair als de huidige Franse president Emmanuel Macron. 64% van de Fransen beschouwt zijn partij LFI als...
 
 ### Meest gelezen
 
