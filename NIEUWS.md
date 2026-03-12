@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-03-2026 om 23:31*
+*Laatst bijgewerkt: 12-03-2026 om 02:33*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Opnieuw acties in België tegen bezuinigingen, minder vluchten en busritten](https://nos.nl/l/2605982)
+  > Vanaf Brussels Airport vertrekt vandaag geen enkel passagiersvlucht als gevolg van een staking. Ook ruim de helft van de aankomende vluchten is...
 - [Senegal komt met strengere anti-lhbti-wet, maximale celstraf naar 10 jaar](https://nos.nl/l/2605980)
   > Het parlement in Senegal heeft ingestemd met een wet waarmee de maximale celstraf voor homoseksuele handelingen wordt verdubbeld, naar tien jaar. De...
 - [Baby's geëvacueerd na steekvlam in kinderziekenhuis Utrecht](https://nos.nl/l/2605974)
@@ -16,8 +18,6 @@
   > Uit nieuwe vrijgegeven documenten blijkt dat ambtenaren de Britse premier Starmer hebben gewaarschuwd voor de risico's van het benoemen van Peter...
 - [Radicaal-rechtse José Antonio Kast beëdigd als president van Chili](https://nos.nl/l/2605969)
   > In Chili is de uiterst conservatieve politicus José Antonio Kast beëdigd als president. Hij geldt als de meest rechtse leider in het Zuid-Amerikaanse...
-- [Drie arrestaties voor aanslag op Amerikaanse ambassade in Oslo](https://nos.nl/l/2605968)
-  > De Noorse politie heeft drie mannen gearresteerd in verband met de explosie bij de Amerikaanse ambassade in Oslo afgelopen weekend. Zij worden...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Korting op benzinetaks zou structureel niets oplossen: ‘Inefficiënt paardenmiddel’](https://www.ad.nl/economie/korting-op-benzinetaks-zou-structureel-niets-oplossen-inefficient-paardenmiddel~a33b0654a/)
+  > Automobilisten worden aan de pomp flink geraakt door de Iran-oorlog. In politiek Den Haag klinkt de roep om een accijnsverlaging steeds luider. Maar...
+- [Senegal verscherpt bestaande anti-lhbti wetgeving](https://www.ad.nl/buitenland/senegal-verscherpt-bestaande-anti-lhbti-wetgeving~a1e6a0fd/)
+  > Het Senegalese parlement heeft woensdag ervoor gestemd om wetten gericht tegen lhbti-ers te verstrengen. Relaties tussen mensen van hetzelfde...
+- [RVO: veel ondernemers hebben last van handelsbeleid Trump](https://www.ad.nl/economie/rvo-veel-ondernemers-hebben-last-van-handelsbeleid-trump~a921b024/)
+  > De helft van de ondernemers in Nederland die met het buitenland handelen, heeft last van het beleid van de Amerikaanse president Donald Trump....
+- [Twee olietankers aangevallen in Iraakse wateren](https://www.ad.nl/buitenland/twee-olietankers-aangevallen-in-iraakse-wateren~ac528ac3/)
+  > Twee olietankers zijn in Iraakse wateren aangevallen, waarna op beide schepen brand uitbrak. Het gaat om buitenlandse tankers met Iraakse olie aan...
 - [Voetbalpodcast | ‘Ik heb juichend voor de tv gezeten deze Champions League- avond’](https://www.ad.nl/voetbal/voetbalpodcast-ik-heb-juichend-voor-de-tv-gezeten-deze-champions-league-avond~ac8603a9/)
   > De tweede serie achtste finales in de Champions League stonden op het programma. Met als mooiste affiche Real Madrid-Manchester City. Toch zijn vijf...
-- [Zorgen bij ouderen om oorlog en fatbikes: 40 procent houdt deur ’s avonds dicht, roep om meer politie op straat](https://www.ad.nl/binnenland/zorgen-bij-ouderen-om-oorlog-en-fatbikes-40-procent-houdt-deur-s-avonds-dicht-roep-om-meer-politie-op-straat~a99d6072/)
-  > Ruim de helft van de Nederlandse 65-plussers vindt dat hun gemeente hen in de kou laat staan als het gaat om veiligheid. Ze maken zich onder meer...
-- [LIVE Formule 1 | Max Verstappen ambitieus voor tweede race, Cadillac vindt dat het zich heeft bewezen](https://www.ad.nl/formule-1/live-formule-1-max-verstappen-ambitieus-voor-tweede-race-cadillac-vindt-dat-het-zich-heeft-bewezen~a11cae96/)
-  > Het Formule 1-circus strijkt deze week neer in Shanghai, waar de Grand Prix van China wordt afgewerkt. Volg alle ontwikkelingen op en naast het...
-- [Sprookje Noorse stuntclub duurt voort, titelverdediger PSG wint spektakelstuk](https://www.ad.nl/voetbal/sprookje-noorse-stuntclub-duurt-voort-titelverdediger-psg-wint-spektakelstuk~af515294/)
-  > Het sprookje lijkt nog niet voorbij voor Bodø/Glimt. De Noorse stuntploeg schakelde al veel topploegen uit en ook Sporting moest eraan geloven: 3-0....
-- [Iraanse school waarschijnlijk geraakt door fout VS, aanval uitgevoerd met verouderde data](https://www.ad.nl/buitenland/iraanse-school-waarschijnlijk-geraakt-door-fout-vs-aanval-uitgevoerd-met-verouderde-data~a867e6d3/)
-  > De luchtaanval op een lagere meisjesschool in Iran was waarschijnlijk te wijten aan een fout van het Amerikaanse leger. Dat meldt The New York Times...
 
 ### Meest gelezen
 
