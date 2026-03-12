@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-03-2026 om 09:50*
+*Laatst bijgewerkt: 12-03-2026 om 10:45*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Boeren Hoogeveen mogen schuilstallen bouwen om vee te beschermen tegen wolf](https://nos.nl/l/2606011)
+  > Hoogeveen gaat de bouw van schuilstallen een jaar lang toestaan. In zo'n hermetisch afgesloten stal kunnen boeren hun vee 's nachts beschermen tegen...
 - [Cursussen voor meer mbo'ers in de politiek, 'belangrijke ervaringskennis'](https://nos.nl/l/2606006)
   > Mensen met een mbo-opleiding zijn ondervertegenwoordigd in de Nederlandse politiek. In gemeenteraden heeft zelfs minder dan 20 procent een mbo- of...
 - [Archeologen leggen eeuwenoude stadspoort bloot bij renovatie Binnenhof](https://nos.nl/l/2606001)
@@ -16,8 +18,6 @@
   > Nederland kan in relatief korte tijd veel minder last hebben van stijgende energieprijzen door conflicten in de wereld. Het moet mogelijk zijn om in...
 - [Een op drie eigenaren videodeurbel in politieregister bewaart beelden te lang](https://nos.nl/l/2605995)
   > Tienduizenden eigenaren van videodeurbellen bewaren de beelden die ze maken veel te lang. Bij een op de drie deurcamera's die de openbare weg filmen...
-- [Valkenburg ruziet over herbouw Wilhelminatoren](https://nos.nl/l/2605991)
-  > Er wordt openlijk geruzied over de herbouw van de ingestorte Wilhelminatoren in Valkenburg. De gemeente liet zaterdag weten dat de eigenaar geen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Krijgen we nu wel een duel om de etappezege tussen Mathieu van der Poel en Wout van Aert?](https://www.ad.nl/wielrennen/krijgen-we-nu-wel-een-duel-om-de-etappezege-tussen-mathieu-van-der-poel-en-wout-van-aert~a74e1d98/)
-  > Gisteren waren de sprinters aan zet in de Tirreno-Adriatico, vandaag is het weer de beurt aan de aanvallers en puncheurs. De stevigste beklimmingen...
-- [Scholen krijgen geen extra geld voor kinderen arbeidsmigranten: ‘Water staat aan onze lippen’](https://www.ad.nl/binnenland/scholen-krijgen-geen-extra-geld-voor-kinderen-arbeidsmigranten-water-staat-aan-onze-lippen~ad369271/)
-  > Scholen met veel kinderen van arbeidsmigranten staan onder grote druk. Ze krijgen nauwelijks geld van het rijk voor extra taalonderwijs aan deze...
-- [Flemming over ‘magische’ samenwerking met hardstyle-dj: ‘Kreeg rillingen over mijn hele lichaam’](https://www.ad.nl/show/flemming-over-magische-samenwerking-met-hardstyle-dj-kreeg-rillingen-over-mijn-hele-lichaam~ae19623e/)
-  > In de achtertuin van een Twentse boerderij vonden popidool Flemming en hardstyle-dj Joey van Ingen elkaar, in gedeeld verdriet. Een afscheidsbrief...
-- [Levenslang voor IS-terroristen die aanslag pleegden op concertzaal in Moskou](https://www.ad.nl/buitenland/levenslang-voor-is-terroristen-die-aanslag-pleegden-op-concertzaal-in-moskou~a8a7addd/)
-  > Vier mannen uit Tadzjikistan en elf medeplichtigen zijn in Rusland tot levenslange celstraffen veroordeeld voor de aanslag op een concertzaal in...
-- [Negen redenen om naar de AD-lezersdag te komen](https://www.ad.nl/home/negen-redenen-om-naar-de-ad-lezersdag-te-komen~a682e113/)
-  > Ruim vijfhonderd lezers hebben zich al aangemeld voor de AD-lezersdag op zaterdag 28 maart. Kom je ook langs in Rotterdam? Ontmoet bekende...
+- [Emma mag eindelijk aan de bubbels en Yolanthe krijgt mooie prijs](https://www.ad.nl/show/emma-mag-eindelijk-aan-de-bubbels-en-yolanthe-krijgt-mooie-prijs~a833fa45/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Praat mee: om zeker te weten dat ik veilig thuiskom, kies ik een andere vakantiebestemming](https://www.ad.nl/praat-mee/praat-mee-om-zeker-te-weten-dat-ik-veilig-thuiskom-kies-ik-een-andere-vakantiebestemming~a902352d1/)
+  > Door de oorlog richten vakantiegangers zich op bestemmingen ver van het Midden-Oosten, zoals Curaçao en Mexico, en dichter bij huis op Spanje,...
+- [Israël kondigt ‘golf van grootschalige aanvallen in Iran’ aan, oud-chef CIA denkt dat VS school bombardeerde](https://www.ad.nl/buitenland/israel-kondigt-golf-van-grootschalige-aanvallen-in-iran-aan-oud-chef-cia-denkt-dat-vs-school-bombardeerde~ac528ac3/)
+  > Het Israëlische leger (IDF) zegt ‘een golf van grootschalige aanvallen in Iran’ te hebben gelanceerd tegen ‘de infrastructuur van het terroristisch...
+- [Alonso ziet Aston Martin ‘mijlenver achter liggen', Russell verwacht spannend gevecht Mercedes en Ferrari](https://www.ad.nl/formule-1/alonso-ziet-aston-martin-mijlenver-achter-liggen-russell-verwacht-spannend-gevecht-mercedes-en-ferrari~a11cae96/)
+  > Het Formule 1-circus strijkt deze week neer in Shanghai, waar de Grand Prix van China wordt afgewerkt. Volg alle ontwikkelingen op en naast het...
+- [Tijden GP van China | Zo laat komt Max Verstappen in actie tijdens eerste sprintraceweekend van het jaar](https://www.ad.nl/formule-1/tijden-gp-van-china-zo-laat-komt-max-verstappen-in-actie-tijdens-eerste-sprintraceweekend-van-het-jaar~a6788441/)
+  > Na het eerste raceweekend van het jaar reizen Max Verstappen en zijn collega’s direct door naar Shanghai voor de Grand Prix van China. Daar kunnen de...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Wordt Duitsland het nieuwe thuisland van Picnic?](https://fd.nl/bedrijfsleven/1587841/wordt-duitsland-het-nieuwe-thuisland-van-picnic)
+  > Onlinesupermarkt Picnic breidt uit in Duitsland en de Duitse omzet benadert inmiddels die in Nederland. Het FD ging langs bij het nieuwe...
 - [Onder de motorkap van de emerging markets](https://fd.nl/financiele-markten/1588879/onder-de-motorkap-van-de-emerging-markets)
   > Voor een belegger die wat spreiding zoekt, weg van de Amerikaanse techaandelen, is het goed om te beseffen dat ook in de emerging markets heel wat...
 - [Pharming mikt op verdere groei van de omzet tot 13%](https://fd.nl/bedrijfsleven/1588855/pharming-mikt-op-verdere-groei-van-de-omzet-tot-13)
@@ -54,8 +56,6 @@
   > Menigeen bond als jongere de backpack om voor een jaartje soulsearchen in het buitenland. Maar reizen blijkt louterend in alle levensfases. Wat maakt...
 - [DSM-Firmenich houdt last van terughoudende vraag consument](https://fd.nl/bedrijfsleven/1588854/dsm-firmenich-houdt-last-vanterughoudende-vraag-consument)
   > De ingrediëntenfabrikant rekent voor 2026 op een omzetgroei van 2% tot 4%, en een ebitda-marge van 20%. Hierbij is geen rekening gehouden met de...
-- [Regering-Trump onderzoekt nieuwe importheffingen voor EU en China](https://fd.nl/politiek/1588876/regering-trump-onderzoekt-nieuwe-importheffingen-voor-eu-en-china)
-  > De Amerikaanse regering gaat de economieën van onder andere de EU en China onderzoeken, om uiteindelijk nieuwe importheffingen in te voeren.
 
 ### Meest gelezen
 
