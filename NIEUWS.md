@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-03-2026 om 17:51*
+*Laatst bijgewerkt: 12-03-2026 om 19:00*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Meer wind en regen richting weekend, onstuimige vrijdagochtendspits verwacht](https://nos.nl/l/2606078)
+  > Na een wat wisselvallige eerste helft van de week kunnen we richting het weekend meer regen en wind verwachten. Vooral morgen belooft onstuimig te...
 - [Twee doden in Frankrijk door eten van met listeriabacterie besmette vleeswaren](https://nos.nl/l/2606071)
   > In Frankrijk zijn twee mensen overleden aan listeriose, nadat zij vleeswaren of paté hadden gegeten die besmet waren met de listeriabacterie. Dat...
 - [Eindhoven gaat 5400 studentenwoningen bouwen om kamertekort tegen te gaan](https://nos.nl/l/2606070)
@@ -15,9 +17,7 @@
 - [Meer oog voor sociale veiligheid in de horeca: 'Gordon Ramsay-tijdperk is voorbij'](https://nos.nl/l/2606069)
   > De aandacht voor het wangedrag van chef René Redzepi van het Deense sterrenrestaurant Noma zorgt internationaal opnieuw voor discussie over de...
 - [Kabinet denkt aan crisismaatregelen om aansluitstop stroomnet te voorkomen](https://nos.nl/l/2606065)
-  > Het kabinet overweegt om meer risico's nemen op het stroomnet om een aansluitstop in het midden van het land te voorkomen, door een deel van de...
-- [Tientallen kinderen via Snapchat opgelicht met iPhone van 5 euro](https://nos.nl/l/2606064)
-  > Zeker zeventig minderjarigen tussen de 13 en 17 jaar zijn opgelicht via Snapchat. Met advertenties werden zij verleid om voor 5 euro een veel...
+  > Het kabinet overweegt om meer risico's te nemen op het stroomnet om een aansluitstop in het midden van het land te voorkomen, door een deel van de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Conference League | AZ als laatste Nederlandse troef in Europa begonnen aan duel met Sparta Praag](https://www.ad.nl/voetbal/live-conference-league-az-als-laatste-nederlandse-troef-in-europa-begonnen-aan-duel-met-sparta-praag~aefbd36e/)
-  > AZ is de enige Nederlandse ploeg die nog actief is in Europa. De Alkmaarders verloren in de vorige ronde het uitduel met FC Noah nog (1-0), maar in...
-- [Situatie met ‘actieve schutter’ bij Temple Israel-synagoge in VS, FBI en politie massaal aanwezig](https://www.ad.nl/buitenland/situatie-met-actieve-schutter-bij-temple-israel-synagoge-in-vs-fbi-en-politie-massaal-aanwezig~aa67dc33/)
-  > Bij een grote synagoge in West Bloomfield in de Amerikaanse staat Michigan is sprake van een situatie met een ‘actieve schutter’, meldt de lokale...
-- [Kabinet-Jetten onder vuur van links en rechts om Iran-oorlog](https://www.ad.nl/politiek/kabinet-jetten-onder-vuur-van-links-en-rechts-om-iran-oorlog~a956c951/)
-  > Het kabinet moet schipperen rond de oorlog in Iran. Nederlanders zijn kritisch op de koers van het kabinet, net als oppositiepartijen. Links én...
-- [Koning blikt terug op carrière als KLM-piloot: van voetbalsupporters tot vakantiegangers gevlogen](https://www.ad.nl/show/koning-blikt-terug-op-carriere-als-klm-piloot-van-voetbalsupporters-tot-vakantiegangers-gevlogen~a06d0732/)
-  > De ‘bijbaan’ van koning Willem-Alexander gaat veranderen, want zijn vertrouwde Boeing 737-toestellen worden vervangen. Woensdag had hij zijn laatste...
-- [Opvattingen van prins Constantijn beginnen op te vallen: ‘Moet zich niet met politiek bemoeien’](https://www.ad.nl/politiek/opvattingen-van-prins-constantijn-beginnen-op-te-vallen-moet-zich-niet-met-politiek-bemoeien~aa9a0052/)
-  > Uitspraken van prins Constantijn over politiek gevoelige kwesties zijn de afgelopen tijd in Den Haag niet onopgemerkt gebleven. De broer van koning...
+- [Michael van Gerwen tegen koploper in Nottingham, ook Gian van Veen in actie](https://www.ad.nl/darts/michael-van-gerwen-tegen-koploper-in-nottingham-ook-gian-van-veen-in-actie~a658fe59/)
+  > Het is alweer tijd voor de zesde avond van de Premier League Darts. In de Motorpoint Arena in Nottingham komen Michael van Gerwen en Gian van Veen...
+- [Financiële strop dreigt voor wie zelfstandig zijn reis boekte: 'Bewaar bonnen van alle gemaakte kosten'](https://www.ad.nl/binnenland/financiele-strop-dreigt-voor-wie-zelfstandig-zijn-reis-boekte-bewaar-bonnen-van-alle-gemaakte-kosten~ab0ffec0/)
+  > Nederlanders zitten door de oorlog in het Midden-Oosten vast, maar zijn ook op andere plekken gestrand. Achter de schermen wordt hard gewerkt om ze...
+- [Veel jongens vinden dat vrouwen hun echtgenoot moeten gehoorzamen: dit is de manosfeer](https://www.ad.nl/gezond/veel-jongens-vinden-dat-vrouwen-hun-echtgenoot-moeten-gehoorzamen-dit-is-de-manosfeer~a9a15fd7/)
+  > Vrouwen moeten gehoorzamen en voor de kinderen zorgen. Klinkt ouderwets, maar dit denkbeeld is urgenter dan ooit. Met dank aan Andrew Tate en...
+- [Farioli op voorsprong met FC Porto, Malen en Rensch in basis bij AS Roma](https://www.ad.nl/voetbal/farioli-op-voorsprong-met-fc-porto-malen-en-rensch-in-basis-bij-as-roma~a522269c/)
+  > De achtste finales van de Europa League worden vanavond afgetrapt. Onder anderen Donyell Malen en het FC Porto van Francesco Farioli komen in actie....
+- [Sociaal contact is de beste remedie tegen angst](https://www.ad.nl/commentaar/sociaal-contact-is-de-beste-remedie-tegen-angst~a0173430/)
+  > Wordt de wereld onveiliger, of voelen we ons onveiliger? Veel ouderen doen in ieder geval de deur niet meer open zodra het donker wordt, schrijft...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [IMC-oprichter Rob Defares ontvangt hoogste onderscheiding van Amsterdam](https://fd.nl/samenleving/1589487/imc-oprichter-rob-defares-ontvangt-hoogste-onderscheiding-van-amsterdam)
-  > Defares ontvangt de onderscheiding voor zijn bijdragen aan onder meer armoedebestrijding, medisch wetenschappelijk onderzoek, het ondersteunen van de...
-- [Regeringscoalitie heeft moeite met gezamenlijke lijn rond Iran](https://fd.nl/politiek/1589594/regeringscoalitie-heeft-moeite-met-gezamenlijke-lijn-rond-iran)
-  > Begrip hebben voor de aanval op Iran, wat is dat eigenlijk? Die vraag stond centraal bij het Tweede Kamerdebat over de oorlog, waar coalitiepartijen...
-- [Shell wil variabele beloning van de top flink verhogen](https://fd.nl/bedrijfsleven/1589481/shell-wil-variabele-beloning-van-de-top-flink-verhogen)
-  > Bij maximaal presteren zou bestuursvoorzitter Wael Sawan meer dan €23 mln per jaar kunnen gaan verdienen. In 2025 was dat nog €16 mln.
-- [Economen verwachten dat Fed de rente in juni verlaagt](https://fd.nl/financiele-markten/1589484/economen-verwachten-dat-fed-de-rente-in-juni-verlaagt)
-  > Het Amerikaanse stelsel van centrale banken zal in juni de rente verlagen, verwachten economen. Dit blijkt uit een peiling van persbureau Reuters.
-- [Air France-KLM verhoogt ticketprijs langeafstandsvluchten met €50](https://fd.nl/bedrijfsleven/1589590/air-france-klm-verhoogt-ticketprijs-langeafstandsvluchten-met-50)
-  > Vanwege de Iran-oorlog is de wereldwijde olieaanvoer verstoord en zijn kerosineprijzen gestegen. De verhoging geldt sinds woensdag voor...
+- [Heinen maakt grote woorden box 3 niet waar](https://fd.nl/opinie/1589587/heinen-maakt-grote-woorden-box-3-niet-waar)
+  > De VVD-bewindsman heeft daarmee hoge verwachtingen gewekt bij beleggers, die het kabinet niet waar kan maken. Een minister van Financiën had zich...
+- [Hedgefonds Caxton Associates verliest $600 mln door onrust Midden-Oosten](https://fd.nl/financiele-markten/1589598/hedgefonds-caxton-associates-verliest-600-mln-door-onrust-midden-oosten)
+  > De enorme prijsschommelingen in de energie- en obligatiemarkten hebben vooral de macrofondsen hard geraakt.
+- [Honda stevent af op eerste jaarverlies in zeventig jaar](https://fd.nl/bedrijfsleven/1589597/honda-stevent-af-op-eerste-jaarverlies-in-zeventig-jaar)
+  > Honda maakte donderdag bekend $15,7 mrd af te schrijven bij zijn divisie voor elektrische auto’s.
+- [Hein Schumacher kreeg jaarsalaris mee na vertrek bij Unilever](https://fd.nl/bedrijfsleven/1589489/hein-schumacher-kreeg-jaarsalaris-mee-na-vertrek-bij-unilever)
+  > De Nederlandse ceo moest in februari 2025 onverwacht vertrekken bij het levensmiddelenconcern.
+- [VK: Iran legt mijnen in Straat van Hormuz](https://fd.nl/politiek/1589488/vk-iran-legt-mijnen-in-straat-van-hormuz)
+  > ‘De berichten zijn steeds duidelijker geworden,’ zei de Britse defensieminister Healey. ‘De Iraniërs zijn mogelijk begonnen met het leggen van mijnen...
 
 ### Meest gelezen
 
