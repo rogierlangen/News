@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-03-2026 om 22:30*
+*Laatst bijgewerkt: 12-03-2026 om 23:32*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Tijden Formule 1 Grand Prix van China | Wekker zetten voor Verstappen: zo laat komt hij in actie](https://www.ad.nl/formule-1/tijden-formule-1-grand-prix-van-china-wekker-zetten-voor-verstappen-zo-laat-komt-hij-in-actie~a6788441/)
+  > Na het eerste raceweekend van het jaar reizen Max Verstappen en zijn collega’s direct door naar Shanghai voor de Grand Prix van China. Daar kunnen de...
 - [Zes Franse militairen gewond bij droneaanval Irak, Netanyahu spreekt van ‘verplettering’ Iran](https://www.ad.nl/buitenland/zes-franse-militairen-gewond-bij-droneaanval-irak-netanyahu-spreekt-van-verplettering-iran~ac528ac3/)
   > Zes Franse militairen zijn gewond geraakt bij een droneaanval in het noorden van Irak. Dat meldt het Franse leger. En Iran is niet langer hetzelfde...
 - [Schrijfster Jane Fallon, de partner van Ricky Gervais, heeft borstkanker](https://www.ad.nl/show/schrijfster-jane-fallon-de-partner-van-ricky-gervais-heeft-borstkanker~afc1e4e0/)
@@ -35,8 +37,6 @@
   > Het is niet de week van de Engelse clubs in Europa. Nottingham Forest blameerde zich in de achtste finales van de Europa League door thuis met 0-1 te...
 - [2 sterrenrestaurant sluit ineens de deuren: ‘Een van de meest gevierde eetgelegenheden van Nederland’](https://www.ad.nl/binnenland/2-sterrenrestaurant-sluit-ineens-de-deuren-een-van-de-meest-gevierde-eetgelegenheden-van-nederland~a654c041/)
   > Restaurant Spectrum in het hotel Waldorf Astoria aan de Amsterdamse Herengracht gaat sluiten, meldt het restaurant op Instagram. Eind mei verwelkomt...
-- [Deze nieuwe Chinese auto doet niets verkeerd, maar wie gaat hem kopen? Zo rijdt de Changan Deepal S05](https://www.ad.nl/auto/deze-nieuwe-chinese-auto-doet-niets-verkeerd-maar-wie-gaat-hem-kopen-zo-rijdt-de-changan-deepal-s05~ad24126c/)
-  > De Changan Deepal S05 is de zoveelste nieuwkomer uit China. Hij doet in feite niets verkeerd, maar zal het niet gemakkelijk krijgen.
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Inheems Trumpisme](https://fd.nl/opinie/1589490/inheems-trumpisme)
+  > We verbazen ons dagelijks over de cultuuroorlog in de VS, over de gekte van de Trump-aanhangers en de polarisatie daar, schrijft FD-columnist Mathijs...
+- [Gaat u aanstaande woensdag ook stemmen op kleuters en clowns?](https://fd.nl/opinie/1588716/gaat-u-stemmen-op-kleuters-en-clowns)
+  > Als u zich vervoegt bij de tennisclub of een ander stemlokaal, let dan op uw centjes. Amsterdamse partijen reppen bijvoorbeeld amper over de...
+- [Personalia vrijdag 13 maart](https://fd.nl/bedrijfsleven/1589591/personalia-vrijdag-13-maart)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [PMT en PME investeren €1,15 mrd in Europese hightechbedrijven](https://fd.nl/financiele-markten/1589276/pmt-en-pme-investeren-1-15-mrd-in-europese-hightechbedrijven)
+  > Dit gebeurt via private leningen met een looptijd van vijf tot tien jaar en een omvang van €5 mln tot €50 mln, in een tijd dat private credit kampt...
 - [Netanyahu: ‘Machtswisseling Iran niet gegarandeerd’](https://fd.nl/bedrijfsleven/1589521/netanyahu-machtswisseling-iran-niet-gegarandeerd)
   > Een verandering van regime moet volgens de Israëlische minister-president van binnenuit komen.
-- [Topman Adobe stapt op in tijd van AI-zorgen](https://fd.nl/bedrijfsleven/1589621/topman-adobe-stapt-op-in-tijd-van-ai-zorgen)
-  > Shantanu Narayen stond achttien jaar aan het hoofd van het softwarebedrijf.
-- [Stijgende olieprijzen en kredietmarkt zetten Wall Street onder druk](https://fd.nl/financiele-markten/1589492/stijgende-olieprijzen-en-kredietmarkt-zetten-wall-street-onder-druk)
-  > De Amerikaanse beurzen sloten ruim 1,5% lager nadat de olieprijs was opgelopen richting de $100 per vat. De nieuwe leider Mojtaba Khamenei kondigde...
-- [Ook Topsector Energie wil Gronings gasveld openhouden](https://fd.nl/bedrijfsleven/1589491/ook-topsector-energie-wil-groningse-gasveld-openhouden)
-  > De ontmanteling van Groningse gasinfrastructuur pauzeren is een van de 32 aanbevelingen die de experts doen om de Nederlandse energievoorziening...
-- [Luchtvaartmaatschappij Iberia wil 1000 banen schrappen](https://fd.nl/bedrijfsleven/1589600/luchtvaartmaatschappij-iberia-wil-1000-banen-schrappen)
-  > De dochtermaatschappij van de International Airlines Group (IAG) heeft een personeelsbestand van 14.000 medewerkers van wie 1400 piloten.
 
 ### Meest gelezen
 
