@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-03-2026 om 19:00*
+*Laatst bijgewerkt: 12-03-2026 om 19:48*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Nederland mengt zich in genocidezaak van Zuid-Afrika tegen Israël](https://nos.nl/l/2606083)
+  > Nederland mengt zich in de genocideaanklacht die Zuid-Afrika bij het Internationaal Gerechtshof (ICJ) in Den Haag heeft ingediend tegen Israël...
+- [Boa's moeten meer duidelijkheid krijgen bij hun lastige taken, vindt Tweede Kamer](https://nos.nl/l/2606081)
+  > Buitengewoon opsporingsambtenaren (boa's) moeten meer duidelijkheid krijgen over wat zij wel en niet mogen. De Tweede Kamer is het in grote lijnen...
 - [Meer wind en regen richting weekend, onstuimige vrijdagochtendspits verwacht](https://nos.nl/l/2606078)
   > Na een wat wisselvallige eerste helft van de week kunnen we richting het weekend meer regen en wind verwachten. Vooral morgen belooft onstuimig te...
 - [Twee doden in Frankrijk door eten van met listeriabacterie besmette vleeswaren](https://nos.nl/l/2606071)
   > In Frankrijk zijn twee mensen overleden aan listeriose, nadat zij vleeswaren of paté hadden gegeten die besmet waren met de listeriabacterie. Dat...
 - [Eindhoven gaat 5400 studentenwoningen bouwen om kamertekort tegen te gaan](https://nos.nl/l/2606070)
   > De gemeente Eindhoven wil de komende acht jaar 5400 nieuwe woningen voor studenten realiseren. Die moeten het tekort aan studentenhuisvesting helpen...
-- [Meer oog voor sociale veiligheid in de horeca: 'Gordon Ramsay-tijdperk is voorbij'](https://nos.nl/l/2606069)
-  > De aandacht voor het wangedrag van chef René Redzepi van het Deense sterrenrestaurant Noma zorgt internationaal opnieuw voor discussie over de...
-- [Kabinet denkt aan crisismaatregelen om aansluitstop stroomnet te voorkomen](https://nos.nl/l/2606065)
-  > Het kabinet overweegt om meer risico's te nemen op het stroomnet om een aansluitstop in het midden van het land te voorkomen, door een deel van de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Michael van Gerwen tegen koploper in Nottingham, ook Gian van Veen in actie](https://www.ad.nl/darts/michael-van-gerwen-tegen-koploper-in-nottingham-ook-gian-van-veen-in-actie~a658fe59/)
-  > Het is alweer tijd voor de zesde avond van de Premier League Darts. In de Motorpoint Arena in Nottingham komen Michael van Gerwen en Gian van Veen...
-- [Financiële strop dreigt voor wie zelfstandig zijn reis boekte: 'Bewaar bonnen van alle gemaakte kosten'](https://www.ad.nl/binnenland/financiele-strop-dreigt-voor-wie-zelfstandig-zijn-reis-boekte-bewaar-bonnen-van-alle-gemaakte-kosten~ab0ffec0/)
-  > Nederlanders zitten door de oorlog in het Midden-Oosten vast, maar zijn ook op andere plekken gestrand. Achter de schermen wordt hard gewerkt om ze...
-- [Veel jongens vinden dat vrouwen hun echtgenoot moeten gehoorzamen: dit is de manosfeer](https://www.ad.nl/gezond/veel-jongens-vinden-dat-vrouwen-hun-echtgenoot-moeten-gehoorzamen-dit-is-de-manosfeer~a9a15fd7/)
-  > Vrouwen moeten gehoorzamen en voor de kinderen zorgen. Klinkt ouderwets, maar dit denkbeeld is urgenter dan ooit. Met dank aan Andrew Tate en...
-- [Farioli op voorsprong met FC Porto, Malen en Rensch in basis bij AS Roma](https://www.ad.nl/voetbal/farioli-op-voorsprong-met-fc-porto-malen-en-rensch-in-basis-bij-as-roma~a522269c/)
-  > De achtste finales van de Europa League worden vanavond afgetrapt. Onder anderen Donyell Malen en het FC Porto van Francesco Farioli komen in actie....
-- [Sociaal contact is de beste remedie tegen angst](https://www.ad.nl/commentaar/sociaal-contact-is-de-beste-remedie-tegen-angst~a0173430/)
-  > Wordt de wereld onveiliger, of voelen we ons onveiliger? Veel ouderen doen in ieder geval de deur niet meer open zodra het donker wordt, schrijft...
+- [Is er dan niemand die deze groothertogin kan helpen met wat modeadviezen?](https://www.ad.nl/show/is-er-dan-niemand-die-deze-groothertogin-kan-helpen-met-wat-modeadviezen~a0fb210a5/)
+  > Máxima introduceerde een nieuwe outfit, Catherine koos voor een vermaakte hoed. Dit en meer bespreekt Josine Droogendijk in een nieuwe aflevering van...
+- [AZ beloont zichzelf in slotfase: Parrott matchwinner tegen ploeg van voormalig Feyenoord-coach Priske](https://www.ad.nl/voetbal/az-beloont-zichzelf-in-slotfase-parrott-matchwinner-tegen-ploeg-van-voormalig-feyenoord-coach-priske~aefbd36e/)
+  > AZ heeft zichzelf op het nippertje een goede uitgangspositie verschaft voor het bereiken van de kwartfinales van de Conference League. De Alkmaarders...
+- [Geliefde oud-burgemeester wordt ineens verdacht van bezit kinderporno: wie is Herman J.?](https://www.ad.nl/binnenland/geliefde-oud-burgemeester-wordt-ineens-verdacht-van-bezit-kinderporno-wie-is-herman-j~af6d7bc9/)
+  > Wie in Hendrik-Ido-Ambacht kent hem niet? Herman J. (77) verscheen als burgemeester bij jubilea, kampioenschappen en openingen en had altijd een...
+- [Donyell Malen geeft met gelukje assist na schitterende actie, Francesco Farioli wint met FC Porto](https://www.ad.nl/voetbal/donyell-malen-geeft-met-gelukje-assist-na-schitterende-actie-francesco-farioli-wint-met-fc-porto~a522269c/)
+  > Donyell Malen is opnieuw van waarde geweest bij AS Roma. De aanvaller van het Nederlands elftal gaf in het Italiaanse Europa League-onderonsje met...
+- [Samenwonen met je ouders? Voor veertiger Kim uit Soest is het een droom: ‘Altijd heel goede band gehad’](https://www.ad.nl/binnenland/samenwonen-met-je-ouders-voor-veertiger-kim-uit-soest-is-het-een-droom-altijd-heel-goede-band-gehad~a47e7ef2/)
+  > Samen een huis kopen met je ouders en schoonouders? Is dat voor sommigen een nachtmerrie, voor de Soesters Kim Helmer en Wichard Elverding is het een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Ook Topsector Energie wil Groningse gasveld openhouden](https://fd.nl/bedrijfsleven/1589491/ook-topsector-energie-wil-groningse-gasveld-openhouden)
+  > De ontmanteling van Groningse gasinfrastructuur pauzeren is een van de 32 aanbevelingen die de experts doen om de Nederlandse energievoorziening...
+- [Luchtvaartmaatschappij Iberia wil 1000 banen schrappen](https://fd.nl/bedrijfsleven/1589600/luchtvaartmaatschappij-iberia-wil-1000-banen-schrappen)
+  > De dochtermaatschappij van de International Airlines Group (IAG) heeft een personeelsbestand van 14.000 medewerkers van wie 1400 piloten.
 - [Heinen maakt grote woorden box 3 niet waar](https://fd.nl/opinie/1589587/heinen-maakt-grote-woorden-box-3-niet-waar)
   > De VVD-bewindsman heeft daarmee hoge verwachtingen gewekt bij beleggers, die het kabinet niet waar kan maken. Een minister van Financiën had zich...
 - [Hedgefonds Caxton Associates verliest $600 mln door onrust Midden-Oosten](https://fd.nl/financiele-markten/1589598/hedgefonds-caxton-associates-verliest-600-mln-door-onrust-midden-oosten)
   > De enorme prijsschommelingen in de energie- en obligatiemarkten hebben vooral de macrofondsen hard geraakt.
 - [Honda stevent af op eerste jaarverlies in zeventig jaar](https://fd.nl/bedrijfsleven/1589597/honda-stevent-af-op-eerste-jaarverlies-in-zeventig-jaar)
   > Honda maakte donderdag bekend $15,7 mrd af te schrijven bij zijn divisie voor elektrische auto’s.
-- [Hein Schumacher kreeg jaarsalaris mee na vertrek bij Unilever](https://fd.nl/bedrijfsleven/1589489/hein-schumacher-kreeg-jaarsalaris-mee-na-vertrek-bij-unilever)
-  > De Nederlandse ceo moest in februari 2025 onverwacht vertrekken bij het levensmiddelenconcern.
-- [VK: Iran legt mijnen in Straat van Hormuz](https://fd.nl/politiek/1589488/vk-iran-legt-mijnen-in-straat-van-hormuz)
-  > ‘De berichten zijn steeds duidelijker geworden,’ zei de Britse defensieminister Healey. ‘De Iraniërs zijn mogelijk begonnen met het leggen van mijnen...
 
 ### Meest gelezen
 
