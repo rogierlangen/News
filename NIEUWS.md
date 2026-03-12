@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-03-2026 om 05:54*
+*Laatst bijgewerkt: 12-03-2026 om 07:02*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Valkenburg ruziet over herbouw Wilhelminatoren](https://nos.nl/l/2605991)
+  > Er wordt openlijk geruzied over de herbouw van de ingestorte Wilhelminatoren in Valkenburg. De gemeente liet zaterdag weten dat de eigenaar geen...
 - [Wekdienst 12/3: Kort geding tegen AI-tool Grok • Van Bergen en Petit op Paralympische Spelen](https://nos.nl/l/2605987)
   > Goedemorgen! In België is een nationale staking tegen de bezuinigingen en paralympiërs Barbara van Bergen en Claire Petit komen in actie in...
 - [Deense topchef Redzepi vertrekt bij Noma na beschuldigingen van wangedrag](https://nos.nl/l/2605983)
@@ -16,8 +18,6 @@
   > Vanaf Brussels Airport vertrekt vandaag geen enkel passagiersvlucht als gevolg van een staking. Ook ruim de helft van de aankomende vluchten is...
 - [Senegal komt met strengere anti-lhbti-wet, maximale celstraf naar 10 jaar](https://nos.nl/l/2605980)
   > Het parlement in Senegal heeft ingestemd met een wet waarmee de maximale celstraf voor homoseksuele handelingen wordt verdubbeld, naar tien jaar. De...
-- [Baby's geëvacueerd na steekvlam in kinderziekenhuis Utrecht](https://nos.nl/l/2605974)
-  > In het Wilhelmina Kinderziekenhuis in Utrecht is een aantal baby's vanavond naar een andere afdeling gebracht vanwege een steekvlam, zegt een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Oorlog zet onze vakantie op z’n kop: run op Algarve en Curaçao en dumpdeals van 495 euro](https://www.ad.nl/binnenland/oorlog-zet-onze-vakantie-op-zn-kop-run-op-algarve-en-curacao-en-dumpdeals-van-495-euro~af9d0335/)
-  > De oorlog in het Midden-Oosten zet de hele reisbranche op zijn kop. Zo boeken we opeens veel minder zomervakanties naar Thailand en kiezen we voor de...
-- [Zeker 7 doden door Israëlische aanval op strand in Beiroet, brand op olietankers in Irak na Iraanse aanval](https://www.ad.nl/buitenland/zeker-7-doden-door-israelische-aanval-op-strand-in-beiroet-brand-op-olietankers-in-irak-na-iraanse-aanval~ac528ac3/)
-  > Bij een Israëlische luchtaanval op het openbare strand Ramlet al-Baida, nabij het centrum van Beiroet, zijn zeker zeven mensen gedood. 21 mensen...
-- [Stormloop bij Frans tankstation na typfout: benzine voor 1 cent per liter](https://www.ad.nl/auto/stormloop-bij-frans-tankstation-na-typfout-benzine-voor-1-cent-per-liter~a60b2eae/)
-  > Een invoerfout bij een Carrefour-supermarkt in Breuillet, vlak bij Parijs, heeft afgelopen donderdag gezorgd voor een ware run op het tankstation....
-- [‘Mooiste meisje ter wereld’ kondigt verloving aan: ‘Ik ben ook maar gewoon een mens’](https://www.ad.nl/buitenland/mooiste-meisje-ter-wereld-kondigt-verloving-aan-ik-ben-ook-maar-gewoon-een-mens~ae515896/)
-  > Thylane Blondeau was amper 6 jaar oud toen ze werd uitgeroepen tot ‘mooiste meisje ter wereld’. De Franse parel met diepblauwe ogen is inmiddels...
-- [De meeste profs komen uit Amsterdam en Rotterdam, maar ook deze gemeenten scoren opvallend goed](https://www.ad.nl/voetbal/de-meeste-profs-komen-uit-amsterdam-en-rotterdam-maar-ook-deze-gemeenten-scoren-opvallend-goed~adf8f720/)
-  > Noord-Holland de kraamkamer van het Nederlandse topvoetbal? Het lijkt er wel op: gemeenten als Ouder-Amstel, Edam-Volendam en Heiloo hebben de...
+- [Nieuw in kabinet, meteen een oorlog als grote test: dit is Tom Berendsen, de minister van Buitenlandse Zaken](https://www.ad.nl/politiek/nieuw-in-kabinet-meteen-een-oorlog-als-grote-test-dit-is-tom-berendsen-de-minister-van-buitenlandse-zaken~a32e8c06/)
+  > Zijn eerste grote debat als minister van Buitenlandse Zaken gaat vandaag over de oorlog in Iran. CDA’er Tom Berendsen (42) is geselecteerd vanwege...
+- [Recordvrijgave uit noodreserves lijkt oliemarkt niet te kalmeren: prijs blijft stijgen](https://www.ad.nl/economie/recordvrijgave-uit-noodreserves-lijkt-oliemarkt-niet-te-kalmeren-prijs-blijft-stijgen~a30ecf3b/)
+  > De olieprijzen zijn donderdag verder gestegen. De aankondiging van de recordvrijgave van 400 miljoen vaten olie uit noodreserves door leden van het...
+- [Defensie brengt opnieuw gestrande Nederlanders van Oman naar Egypte](https://www.ad.nl/buitenland/defensie-brengt-opnieuw-gestrande-nederlanders-van-oman-naar-egypte~a4555fc3/)
+  > Met een toestel van Defensie zijn afgelopen nacht opnieuw gestrande reizigers opgehaald in Oman en naar het Egyptische Hurghada gebracht. In totaal...
+- [Max Verstappen blijft ook in China kritisch: ‘Ik heb m’n simulator maar ingeruild voor een Nintendo Switch’](https://www.ad.nl/formule-1/max-verstappen-blijft-ook-in-china-kritisch-ik-heb-mn-simulator-maar-ingeruild-voor-een-nintendo-switch~a8f0e29f/)
+  > Na een paar dagen rust na de openingsrace in Melbourne arriveerde in Sjanghai een Max Verstappen die nog steeds gigantische twijfels heeft over de...
+- [Drie sterren voor Joe Speedboot: rauwe en wrede jongensfantasie](https://www.ad.nl/show/drie-sterren-voor-joe-speedboot-rauwe-en-wrede-jongensfantasie~a746c6c3/)
+  > Nooit eerder heeft een Nederlandse boekverfilming zo veel voeten in de aarde gehad als Joe Speedboot. De bestseller van Tommy Wieringa had al een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Olieprijs schiet omhoog na aanval op twee olietankers voor kust Irak](https://fd.nl/bedrijfsleven/1588853/olieprijs-schiet-omhoog-na-aanval-op-twee-olietankers-voor-kust-irak)
+  > De Iraakse havenautoriteit zegt de productie in zijn nationale oliefaciliteiten stilgelegd te hebben. Daarnaast heeft Oman alle schepen uit zijn...
+- [Live: DSM-Firmenich gaat voor €540 mln eigen aandelen inkopen](https://fd.nl/financiele-markten/1588821/live-vrijgeven-oliereserves-heeft-markten-nog-niet-gekalmeerd)
+  > De prijs van een vat Brent-olie schommelt vanochtend weer rond de $100. Op de beurzen in Azië regent het opnieuw minnen.
 - [Nick Clegg: ‘Als Tim Cook ziet dat Mark Zuckerberg naar Mar-a-Lago gaat, wil hij ook’](https://fd.nl/politiek/1588803/nick-clegg-als-tim-cook-ziet-dat-mark-zuckerberg-naar-mar-a-lago-gaat-wil-hij-ook)
   > De Britse oud-vicepremier Nick Clegg werd in 2018 tot veler verrassing lobbyist van Meta. Nu is hij terug en kraakt hij ook kritische noten over zijn...
 - [Culinair voorbereid op reis](https://fd.nl/samenleving/1588802/culinair-voorbereid-op-reis)
   > Culinair journalist Sanne van Rij plant haar reizen altijd ver vooruit om precies te weten waar ze wat wil eten. Haar strategie? Het algoritme kun je...
 - [Zelfs noodgreep kan hogere benzineprijs niet voorkomen](https://fd.nl/economie/1588741/zelfs-noodgreep-kan-hogere-benzineprijs-niet-voorkomen)
   > Vandaag in Dagkoers: Nederland brengt noodvoorraad olie op de markt, witwasaanpak is ineffectief en discriminerend & de Poolse goudvoorraad staat...
-- [De eeuwige terugkeer van het communisme – vooral in goedbelezen kring](https://fd.nl/opinie/1588798/de-eeuwige-terugkeer-van-het-communisme)
-  > Alsof er geen Berlijnse Muur is gevallen, zo dwepen sommige schrijvers weer met het communisme. Ze fantaseren over een onbeschreven blad. Een utopie.
-- [De nieuwe Lehman](https://fd.nl/opinie/1588749/de-nieuwe-lehman)
-  > Een potentiële cocktail van AI-disruptie, private credit en geopolitieke chaos klinkt niet heel geruststellend, schrijft FD-columnist Anna...
 
 ### Meest gelezen
 
