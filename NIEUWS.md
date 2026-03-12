@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-03-2026 om 11:34*
+*Laatst bijgewerkt: 12-03-2026 om 13:11*
 
 ---
 
@@ -8,16 +8,18 @@
 
 ### Laatste nieuws
 
-- [PBL: stikstofaanpak is onvoldoende om doelen te halen](https://nos.nl/l/2606017)
-  > De wettelijke stikstofdoelen worden met het huidige beleid niet gehaald, concludeert het Planbureau voor de Leefomgeving (PBL). De hoeveelheid...
-- [Boeren Hoogeveen mogen schuilstallen bouwen om vee te beschermen tegen wolf](https://nos.nl/l/2606011)
-  > Hoogeveen gaat de bouw van schuilstallen een jaar lang toestaan. In zo'n hermetisch afgesloten stal kunnen boeren hun vee 's nachts beschermen tegen...
-- [Cursussen voor meer mbo'ers in de politiek, 'belangrijke ervaringskennis'](https://nos.nl/l/2606006)
-  > Mensen met een mbo-opleiding zijn ondervertegenwoordigd in de Nederlandse politiek. In gemeenteraden heeft zelfs minder dan 20 procent een mbo- of...
-- [Archeologen leggen eeuwenoude stadspoort bloot bij renovatie Binnenhof](https://nos.nl/l/2606001)
-  > Bij opgravingen rond het Binnenhof in Den Haag hebben archeologen de restanten gevonden van de eeuwenoude Spuipoort. Het gaat om delen van de...
-- [In vijf jaar flink minder gasverbruik is mogelijk, zegt duurzaamheidsbranche](https://nos.nl/l/2605996)
-  > Nederland kan in relatief korte tijd veel minder last hebben van stijgende energieprijzen door conflicten in de wereld. Het moet mogelijk zijn om in...
+- [Aanslagplegers concertzaal Moskou veroordeeld tot levenslang](https://nos.nl/l/2606028)
+  > In Rusland zijn negentien verdachten veroordeeld voor betrokkenheid bij de grote aanslag op een concert in Moskou, in maart 2024. Daarbij werden 149...
+- [Op Schiermonnikoog is ouder worden lastig voor mensen met behoefte aan zorg](https://nos.nl/l/2606027)
+  > Vergrijzing, een tekort aan zorgpersoneel en lange wachttijden voor een sociale huurwoning zijn landelijke problemen. Maar op de Waddeneilanden...
+- [Dodelijke brand in Zwitserse bus geen terrorisme, dader had veel problemen](https://nos.nl/l/2606026)
+  > De man die verantwoordelijk is voor de brand in een Zwitserse bus had een lang verleden van drugsgebruik en hij had psychische problemen. Dat heeft...
+- [Tientallen doden door modderstroom in Ethiopië](https://nos.nl/l/2606025)
+  > In Ethiopië zijn door een aardverschuiving zeker vijftig mensen overleden. 125 mensen worden nog vermist.
+        De aardverschuiving gebeurde in...
+- [Vrachtauto met veevoer zakt door fietsbrug bij Biesbosch](https://nos.nl/l/2606022)
+  > Een zware vrachtauto beladen met veevoer is vanochtend door een betonnen fietsbrug vlak bij Nationaal Park De Biesbosch bij Werkendam gezakt.
+       ...
 
 ### Meest gelezen
 
@@ -27,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Alarmerend rapport: ‘Oorlog Midden-Oosten zorgt voor grootste verstoring van oliemarkt ooit’](https://www.ad.nl/buitenland/alarmerend-rapport-oorlog-midden-oosten-zorgt-voor-grootste-verstoring-van-oliemarkt-ooit~afce6e533/)
-  > De oorlog van de Verenigde Staten en Israël met Iran zorgt voor de grootste verstoring van het aanbod van olie in de geschiedenis van de wereldwijde...
-- [Honderd Nederlandse schepen vast in Perzische Golf, reders evacueren bemanning voorlopig niet](https://www.ad.nl/economie/honderd-nederlandse-schepen-vast-in-perzische-golf-reders-evacueren-bemanning-voorlopig-niet~a1032454/)
-  > Nederlandse reders evacueren de bemanning op schepen in het Midden-Oosten voorlopig niet. Dat laat een woordvoerder van de Koninklijke Vereniging van...
-- [PSV speelt tegen NEC in sprookjesachtig Efteling-tenue: ‘Alsof de nachtelijke hemel zelf is gevangen in textiel’](https://www.ad.nl/voetbal/psv-speelt-tegen-nec-in-sprookjesachtig-efteling-tenue-alsof-de-nachtelijke-hemel-zelf-is-gevangen-in-textiel~acc25112/)
-  > PSV speelt zaterdag in de VriendenLoterij eredivisie tegen NEC in een speciaal shirt. Het gaat om een samenwerking met attractiepark De Efteling.
-- [LIVE Q&A: als je als AOW’er geen aftrekposten hebt, is het lastig om geld terug te krijgen](https://www.ad.nl/praat-mee/live-qena-als-je-als-aower-geen-aftrekposten-hebt-is-het-lastig-om-geld-terug-te-krijgen~a78db694/)
-  > Veel mensen zien op tegen hun belastingaangifte. Niet alles is in één keer duidelijk: hoe zit het met je hypotheekrenteaftrek? Mag je je nieuwe bril...
-- [Israël kondigt ‘golf van grootschalige aanvallen in Iran’ aan, ruim 3 miljoen Iraniërs gevlucht sinds begin oorlog](https://www.ad.nl/buitenland/israel-kondigt-golf-van-grootschalige-aanvallen-in-iran-aan-ruim-3-miljoen-iraniers-gevlucht-sinds-begin-oorlog~ac528ac3/)
-  > Het Israëlische leger (IDF) zegt ‘een golf van grootschalige aanvallen in Iran’ te hebben gelanceerd tegen ‘de infrastructuur van het terroristisch...
+- [Kapitein verzint list en ontsnapt zo aan Iraanse blokkade Straat van Hormuz](https://www.ad.nl/buitenland/kapitein-verzint-list-en-ontsnapt-zo-aan-iraanse-blokkade-straat-van-hormuz~ab56df67/)
+  > De Iraanse marine is zo goed als verwoest, maar het land bestookt olietankers nu met drones en speedboten vol explosieven. Woensdag werden opnieuw...
+- [Dochter Danny de Munk deelt verdriet over miskraam: ‘Rust zacht, klein wonder’](https://www.ad.nl/show/dochter-danny-de-munk-deelt-verdriet-over-miskraam-rust-zacht-klein-wonder~a101af76/)
+  > Verdrietig nieuws voor de familie van Danny de Munk. Dochter Bo en haar partner Daan van Huffel laten op Instagram weten dat zij woensdag een...
+- [Ferrari wil ‘Macarena-vleugel’ inzetten in China, Fernando Alonso ziet Aston Martin ‘mijlenver achter liggen op de rest’](https://www.ad.nl/formule-1/ferrari-wil-macarena-vleugel-inzetten-in-china-fernando-alonso-ziet-aston-martin-mijlenver-achter-liggen-op-de-rest~a11cae96/)
+  > Het Formule 1-circus strijkt deze week neer in Sjanghai, waar de Grand Prix van China wordt afgewerkt. Volg alle ontwikkelingen op en naast het...
+- [Ruzie tussen Oekraïne en Hongarije over oliepijpleidingen duurt voort, Brussel wil een onderzoeksmissie](https://www.ad.nl/buitenland/ruzie-tussen-oekraine-en-hongarije-over-oliepijpleidingen-duurt-voort-brussel-wil-een-onderzoeksmissie~ae502d16/)
+  > Hongarije en Oekraïne hebben opnieuw ruzie over de aanvoer van Russische fossiele brandstoffen. Oekraïne heeft meerdere aanvallen uitgevoerd op een...
+- [Engelse man schrikt zich rot als hij knalblauw wakker wordt, maar krijgt hilarische ‘diagnose’ in ziekenhuis](https://www.ad.nl/buitenland/engelse-man-schrikt-zich-rot-als-hij-knalblauw-wakker-wordt-maar-krijgt-hilarische-diagnose-in-ziekenhuis~a2407d39/)
+  > Even schrikken voor de Engelse Tommy Lynch: hij werd wakker en merkte op dat zijn huid helemaal blauw was. Een vriend dacht aan zuurstoftekort en...
 
 ### Meest gelezen
 
@@ -46,16 +48,16 @@
 
 ### Laatste nieuws
 
-- [Ook zijn huisbank oppert nu dat ASR de Vereniging Aegon moet adopteren](https://fd.nl/financiele-markten/1588641/ook-zijn-huisbank-oppert-nu-dat-asr-de-vereniging-aegon-moet-adopteren)
-  > Analisten van UBS voorzien een mooie driehoeksruil: de Vereniging Aegon wisselt zijn aandelen Aegon bij de gelijknamige verzekeraar om voor aandelen...
-- [Truckers in de stress om dure diesel: maanden wachten op compensatie](https://fd.nl/bedrijfsleven/1588823/truckers-in-de-stress-om-dure-diesel-maanden-wachten-op-compensatie)
-  > Verreweg de meeste wegtransporteurs worden door hun opdrachtgevers gecompenseerd voor de fors gestegen dieselprijzen. Maar het geld komt traag binnen...
-- [Wenninks agenda is niet genoeg voor grote transities](https://fd.nl/opinie/1588682/wenninks-agenda-is-niet-genoeg-voor-grote-transities)
-  > Het coalitieakkoord wil innovatie inzetten voor grote maatschappelijke transities. Dan moet het beleid verder kijken dan technologie alleen.
-- [Achter Inditex' imago van gemoedelijk familiebedrijf gaat een gehaaid techbedrijf schuil](https://fd.nl/bedrijfsleven/1589176/modeconcern-inditex-weet-eerder-wat-de-klant-wil-dan-de-klant-zelf-dankzij-ai)
-  > Het ‘afluisteren’ van sociale media, op zoek naar woorden en kleuren die in opkomst zijn, is het geheim achter de recordwinst van het Spaanse...
-- [BMW rekent op stabilisatie van Chinese markt](https://fd.nl/bedrijfsleven/1588979/bmw-rekent-op-stabilisatie-van-chinese-markt)
-  > Ceo Oliver Zipse, die in mei terugtreedt, nam bij de presentatie van de cijfers donderdag de gelegenheid te baat om opnieuw kritiek uit te oefenen op...
+- [IEA: oorlog met Iran veroorzaakt grootste aanbodverstoring ooit](https://fd.nl/financiele-markten/1589577/iea-oorlog-met-iran-veroorzaakt-grootste-aanbodverstoring-ooit)
+  > De oorlog in het Midden-Oosten leidt tot enorme verstoringen in de olieproductie. Analisten zien de energieprijzen wereldwijd nog aanzienlijk stijgen.
+- [Het rotjoch van de klas](https://fd.nl/opinie/1588533/het-rotjoch-van-de-klas)
+  > De ontmaskering van Geert Wilders als tirannieke pestkop in zijn fractie was te verwachten. Ook als politicus verwierf Wilders bekendheid als een...
+- [Een tweede leven voor afwijkende schoenen: ‘We upcyclen nu meer dan tweeduizend paar per week’](https://fd.nl/bedrijfsleven/1586892/een-tweede-leven-voor-afwijkende-schoenen-weupcyclen-nu-meer-dan-tweeduizend-paar-per-week)
+  > Daan Engelen repareert nieuwe schoenen met een beschadiging of een ander mankement, om ze vervolgens tegen gunstige prijzen te verkopen.
+- [Hogere olieprijs kan grote hap nemen uit koopkracht, stelt CPB](https://fd.nl/economie/1589477/hogere-olieprijs-kan-grote-hap-nemen-uit-koopkracht-stelt-cpb)
+  > Dit jaar stijgt de koopkracht nog met 1,4%, volgens de officiële voorjaarsraming van het Centraal Planbureau. Dat beeld kantelt als de energieprijzen...
+- [Hoge brandstofprijzen raken kleine pomphouders extra hard: ‘Dit houdt niet iedereen vol’](https://fd.nl/bedrijfsleven/1588818/hoge-brandstofprijzen-raken-kleine-pomphouders-extra-hard-dit-houdt-niet-iedereen-vol)
+  > Vooral kleine particuliere pomphouders komen in de knel. Vanwege oplopende brandstofprijzen gaan automobilisten in België en Duitsland tanken.
 
 ### Meest gelezen
 
