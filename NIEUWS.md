@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-03-2026 om 11:35*
+*Laatst bijgewerkt: 13-03-2026 om 13:09*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Gemeente: opnieuw te veel mensen in Ter Apel, dwangsom van 5 miljoen bereikt](https://nos.nl/l/2606165)
-  > In het aanmeldcentrum Ter Apel verbleven vannacht opnieuw te veel mensen. De gemeente Westerwolde, waar Ter Apel onder valt, heeft daardoor opnieuw...
-- [Justitie haalt administratie op bij Tata Steel voor vervuilingsonderzoek](https://nos.nl/l/2606164)
-  > De Inlichtingen- en Opsporingsdienst van de Inspectie Leefomgeving en Transport (ILT-IOD) heeft gisteren bij Tata Steel in IJmuiden administratieve...
-- [Leger VS: vier inzittenden neergestort toestel dood, oorzaak crash onbekend](https://nos.nl/l/2606163)
-  > Bij de crash van een tankvliegtuig van het Amerikaanse leger in het westen van Irak zijn vier militairen om het leven gekomen, meldt het centrale...
-- [Van Weel: brand synagoge Rotterdam vermoedelijk antisemitisch gedreven](https://nos.nl/l/2606153)
-  > Minister van Justitie en Veiligheid David van Weel noemt de brandstichting bij een synagoge in Rotterdam "vreselijk nieuws". Ook spreekt hij van...
-- [Taliban: vier doden bij luchtaanvallen Pakistan, tegenaanval uitgevoerd](https://nos.nl/l/2606148)
-  > De Afghaanse Talibanregering beschuldigt Pakistan van luchtaanvallen op woonwijken in Kabul en in de zuidelijke provincie Kandahar. Volgens Afghaanse...
+- [Meeste speelzand blijkt veilig, maar toch ook asbest gevonden door NVWA](https://nos.nl/l/2606178)
+  > Een deel van de in Nederland verkrijgbare producten met speelzand bevat asbest, blijkt uit onderzoek van de Nederlandse Voedsel- en Warenautoriteit...
+- [Twaalf voetbalsupporters opgepakt voor geweld na amateurwedstrijd](https://nos.nl/l/2606174)
+  > Twaalf voetbalsupporters zijn aangehouden op verdenking van openlijke geweldpleging na afloop van een amateurwedstrijd. De groep zou agenten hebben...
+- [Comeback van muziekzaak compleet: Britse keten breidt uit in Nederland](https://nos.nl/l/2606173)
+  > Het was decennia in alle dorpen en steden een vertrouwd beeld in de winkelstraat, en zelfs op elk treinstation: een muziekwinkel. Een grote...
+- [Leeftijdsgrens voor games met lootbox is straks 16 jaar en ouder](https://nos.nl/l/2606170)
+  > De Europese gamebeoordelaar PEGI past zijn regels voor leeftijdsclassificaties aan. Vanaf juni 2026 worden nieuwe criteria ingevoerd die beter...
+- [Langst gedetineerde Nederlander na 42 jaar in VS overgebracht naar Nederland](https://nos.nl/l/2606169)
+  > Jaitsen Singh, die 42 jaar vastzat in een gevangenis in de VS, is terug in Nederland. Dat bevestigt zijn advocaat aan de NOS na berichtgeving door de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nederlander (81) na 41 jaar uit Amerikaanse cel, familie ontroerd: ‘Jaren voor moeten vechten’](https://www.ad.nl/binnenland/nederlander-81-na-41-jaar-uit-amerikaanse-cel-familie-ontroerd-jaren-voor-moeten-vechten~a1411620/)
-  > De 81-jarige Jaitsen Singh is na 41 jaar in een Amerikaanse cel overgebracht naar Nederland. Zijn familie probeerde hem al jaren naar Nederland te...
-- [Rusland klaagt Nederland aan wegens diefstal kunstschatten](https://www.ad.nl/buitenland/rusland-klaagt-nederland-aan-wegens-diefstal-kunstschatten~a5d00735/)
-  > De Russische autoriteiten hebben tegen Nederland een strafzaak geopend wegens ‘diefstal’ van het zogeheten Scythische goud, dat in 2023 door een...
-- [Gemeente bereikt maximale dwangsom van 5 miljoen voor overvol azc Ter Apel](https://www.ad.nl/binnenland/gemeente-bereikt-maximale-dwangsom-van-5-miljoen-voor-overvol-azc-ter-apel~a45f4f08/)
-  > De maximale dwangsom van vijf miljoen euro die het Centraal Orgaan opvang asielzoekers (COA) aan de gemeente Westerwolde moet betalen voor de...
-- [Zilver voor snowboardster Lisa Bunschoten-Vos op Paralympics, gouden hattrick blijft uit voor Jeroen Kampschreur na val](https://www.ad.nl/olympische-spelen/zilver-voor-snowboardster-lisa-bunschoten-vos-op-paralympics-gouden-hattrick-blijft-uit-voor-jeroen-kampschreur-na-val~a34ee436/)
-  > Snowboardster Lisa Bunschoten-Vos heeft bij de Paralympische Winterspelen een zilveren medaille behaald. De 30-jarige Nederlandse noteerde op het...
-- [Amper maand na Winterspelen is WK shorttrack: bekijk hier het programma en de Nederlandse deelnemers](https://www.ad.nl/sport/amper-maand-na-winterspelen-is-wk-shorttrack-bekijk-hier-het-programma-en-de-nederlandse-deelnemers~ac5a611f/)
-  > Het is nog niet eens een maand geleden dat de Olympische Winterspelen in Milaan en Cortina d’Ampezzo zijn afgelopen, of het WK shorttrack staat voor...
+- [De dominantie van Mercedes in de Formule 1 nu al zat? Wen er voorlopig maar even aan](https://www.ad.nl/formule-1/de-dominantie-van-mercedes-in-de-formule-1-nu-al-zat-wen-er-voorlopig-maar-even-aan~ac780089/)
+  > De Formule 1 is pas toe aan het tweede raceweekend van 2026, maar nu al wordt gevreesd voor een extreem dominant jaar van Mercedes. Trek je een...
+- [Hoe de Rotterdamse gemeenteraad een springplank naar Den Haag werd: ‘Eerst ging ik over de Lijnbaan, daarna over heel Nederland’](https://www.ad.nl/binnenland/hoe-de-rotterdamse-gemeenteraad-een-springplank-naar-den-haag-werd-eerst-ging-ik-over-de-lijnbaan-daarna-over-heel-nederland~ac32476d/)
+  > Minister Vincent Karremans leerde er debatteren, Denk-voorman Stephan van Baarle deed er camera-ervaring op en oud-staatssecretaris Ingrid Coenradie...
+- [NVWA: Asbest in speelzand in 1 op de 3 producten, maar in lage concentraties](https://www.ad.nl/binnenland/nvwa-asbest-in-speelzand-in-1-op-de-3-producten-maar-in-lage-concentraties~a6ffeb2a/)
+  > De Nederlandse Voedsel- en Warenautoriteit (NVWA) heeft bij onderzoek naar speelzand in 34 van de 99 geteste producten asbest gevonden. In het...
+- [Óscar García geeft eerste persconferentie als coach van Ajax: ‘Een grote eer, alsof ik trainer ben van Barcelona’](https://www.ad.nl/voetbal/oscar-garcia-geeft-eerste-persconferentie-als-coach-van-ajax-een-grote-eer-alsof-ik-trainer-ben-van-barcelona~a5441d14/)
+  > Óscar García leidt morgen voor het eerst een wedstrijd van Ajax, als de Amsterdammers het in de Johan Cruijff Arena opnemen tegen Sparta. De...
+- [Grote zorgen om totale make-over Google Maps: ‘Dit gaat voor domme en afgeleide bestuurders zorgen’](https://www.ad.nl/auto/grote-zorgen-om-totale-make-over-google-maps-dit-gaat-voor-domme-en-afgeleide-bestuurders-zorgen~a28a6e63/)
+  > Bereid je voor op een metamorfose van Google Maps. Google pompt de navigatie-app vol met AI. Daarmee moet Maps veranderen van een traditionele kaart...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [De ene energiecrisis is de andere niet, bezweert Eurocommissaris Jørgensen](https://fd.nl/politiek/1589630/de-ene-energiecrisis-is-de-andere-niet-bezweert-eurocommissaris-jrgensen)
-  > In 2022 worstelde de EU, na de Russische invasie van Oekraïne, ook met hard oplopende energieprijzen.
-- [Steeds meer gemeenten stellen wethouders aan die ergens anders wonen](https://fd.nl/politiek/1589589/steeds-meer-gemeenten-stellen-wethouders-aan-die-ergens-anders-wonen)
-  > Het is eigenlijk niet de bedoeling, maar toch zijn ze in opkomst: de wethouders van buiten. Gemeenten kunnen ontheffingen voor het...
-- [Shell veegt eisen Milieudefensie van tafel: ‘Gaan voorbij aan realiteit’](https://fd.nl/bedrijfsleven/1589633/shell-veegt-eisen-milieudefensie-van-tafel-gaan-voorbij-aan-realiteit)
-  > Volgens Shell is het ‘aan overheden, niet aan Milieudefensie, om te bepalen hoe zij hun natuurlijke hulpbronnen ontwikkelen’.
-- [Eilandhoppen in Polynesië](https://fd.nl/samenleving/1588856/eilandhoppen-in-polynesie)
-  > Polynesië: verder weg van huis en nieuws kan een mens zich bijna niet wensen. Eilandhoppen aan boord van minicruise Le Paul Gauguin belooft een...
-- [Lokale partijen spelen al decennialang grote rol in gemeentepolitiek](https://fd.nl/samenleving/1588736/lokale-partijen-spelen-al-decennialang-grote-rol-in-gemeentepolitiek)
-  > Een kwart van de lokale partijen doet deze keer voor minstens de vierde keer achter elkaar mee, zo blijkt uit een analyse van het FD.
+- [Minima laten toeslagen liggen en dat houdt hun geldproblemen in stand](https://fd.nl/samenleving/1589639/minima-laten-toeslagen-liggen-en-dat-houdt-hun-geldproblemen-in-stand)
+  > Mensen met een minimuminkomen zijn er op papier op vooruitgegaan de afgelopen jaren. Maar veel huishoudens doen geen beroep op gemeentelijke...
+- [Dirigent Iván Fischer houdt orkest wakker met stoelendans](https://fd.nl/bedrijfsleven/1587976/dirigent-ivan-fischer-houdt-orkest-wakker-met-stoelendans)
+  > Maandag krijgt de Hongaarse dirigent Iván Fischer de Concertgebouw Prijs. Hij heeft een hekel aan routine en taboes en is beroemd vanwege zijn...
+- [AEX-bedrijven keren dit jaar €200 mln meer dividend uit](https://fd.nl/financiele-markten/1589478/aex-bedrijven-keren-dit-jaar-200-mln-meer-dividend-uit)
+  > Vanuit de AEX-bedrijven stroomt in totaal ongeveer €31,8 mrd richting de aandeelhouders. Ook wereldwijd breekt het dividendbedrag over 2025 records.
+- [Gemeente Den Haag op jacht naar investeerders bij vastgoedbeurs in Cannes](https://fd.nl/politiek/1589486/gemeente-den-haag-op-jacht-naar-investeerders-bij-vastgoedbeurs-in-cannes)
+  > Buitenlandse vastgoedbeleggers kijken nauwelijks om naar Nederlands vastgoed. ‘Ik zou niet weten hoe je nu een deal rondkrijgt in Nederland’, zegt...
+- [Het optimisme is terug in de kunstsector](https://fd.nl/economie/1589634/het-optimisme-is-terug-in-de-kunstsector)
+  > Vincent van Gogh staat op de dertiende plek van de lijst met 100 bestverkopende kunstenaars in de laatste tien jaar.
 
 ### Meest gelezen
 
