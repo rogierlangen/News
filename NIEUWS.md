@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-03-2026 om 17:38*
+*Laatst bijgewerkt: 13-03-2026 om 18:50*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Diskwalificatie voor Melle van ‘t Wout op WK, broer Jens wél naar kwartfinales 500 meter](https://www.ad.nl/andere-sporten/diskwalificatie-voor-melle-van-t-wout-op-wk-broer-jens-wel-naar-kwartfinales-500-meter~af43cf63/)
-  > Shorttracker Melle van ‘t Wout is op de WK shorttrack in Montreal uitgeschakeld in de heats van de 500 meter. De 26-jarige shorttracker, die op de...
-- [Commandant Evertsen mist kapot kanon totaal niet: ‘Hebben we nu niet nodig’](https://www.ad.nl/buitenland/commandant-evertsen-mist-kapot-kanon-totaal-niet-hebben-we-nu-niet-nodig~a2f83d1c/)
-  > De Zr.Ms. Evertsen is begonnen aan de operatie in de Middellandse Zee om Cyprus te beschermen tegen Iraanse raketten en drones. Zonder kanon, want...
-- [Zo wil Óscar García het tij keren bij Ajax: ‘Soms zitten de belangrijkste spelers op de bank’](https://www.ad.nl/voetbal/zo-wil-oscar-garcia-het-tij-keren-bij-ajax-soms-zitten-de-belangrijkste-spelers-op-de-bank~a67ff7f9/)
-  > Óscar García (52) heeft acht duels om Ajax alsnog naar de Champions League te loodsen. Wat kunnen we daarbij van de Spanjaard verwachten? Vier...
-- [ABN Amro Open lijkt te kunnen zwaaien naar toppers vanaf 2028: ‘Als de geruchten waar zijn, is dat bijzonder vervelend’](https://www.ad.nl/tennis/abn-amro-open-lijkt-te-kunnen-zwaaien-naar-toppers-vanaf-2028-als-de-geruchten-waar-zijn-is-dat-bijzonder-vervelend~a68a0abf/)
-  > De sportsector in Saoedi-Arabië is een uitdijend fenomeen. Sporten als voetbal, vechtsport, autosport en nu ook tennis zwichten steeds vaker voor het...
-- [Ongehoord Nederland op het matje bij mensenrechtencollege om vacature: ‘Dit is woke-ideologie’](https://www.ad.nl/show/ongehoord-nederland-op-het-matje-bij-mensenrechtencollege-om-vacature-dit-is-woke-ideologie~a4a22cc6/)
-  > Het Openbaar Ministerie besloot de zaak te laten rusten, maar omroep Ongehoord Nederland (ON!) ontkomt alsnog niet aan een formele zitting over hun...
+- [Larven laten niets over van gras Deense voetbalclub: ‘Lastig te bestrijden’](https://www.ad.nl/buitenland/larven-laten-niets-over-van-gras-deense-voetbalclub-lastig-te-bestrijden~a3978c5a/)
+  > Deense profvoetballers krijgen tegenstand uit onverwachte hoek. Larven van de langpootmug zorgen ervoor dat spelers van Viborg FF hun veld niet meer...
+- [Propvolle avond in de KKD: ADO Den Haag op bezoek bij FC Emmen, Cambuur ontvangt Roda JC](https://www.ad.nl/voetbal/propvolle-avond-in-de-kkd-ado-den-haag-op-bezoek-bij-fc-emmen-cambuur-ontvangt-roda-jc~af89adcc/)
+  > Het is nagenoeg zeker dat ADO Den Haag en SC Cambuur gaan promoveren naar de eredivisie. Maar wie pakt de titel in de Keuken Kampioen Divisie? En wie...
+- [Alleen de echte nieuwsjunk maakt deze wekelijkse quiz foutloos](https://www.ad.nl/binnenland/alleen-de-echte-nieuwsjunk-maakt-deze-wekelijkse-quiz-foutloos~a5dc539ae/)
+  > Deze week steeg de prijs aan de pomp verder en werd een voet van de vermiste Yoran gevonden in de Dordtse Kil. Maar er gebeurde nog veel meer. Test...
+- [Arrestatieteams vallen woningen verdachten explosie Rotterdamse synagoge binnen](https://www.ad.nl/binnenland/arrestatieteams-vallen-woningen-verdachten-explosie-rotterdamse-synagoge-binnen~a7042749/)
+  > De politie heeft vrijdagmiddag woningen doorzocht in Tilburg van personen die worden verdacht van betrokkenheid bij de explosie bij de synagoge in...
+- [Zoveel accijns betalen Europeanen op benzine: tanken in België scheelt 27 euro](https://www.ad.nl/auto/zoveel-accijns-betalen-europeanen-op-benzine-tanken-in-belgie-scheelt-27-euro~a11d5e07/)
+  > In geen enkel ander Europees land betaalt de pompbezoeker meer belasting per liter dan in Nederland. Ging je afgelopen maandag benzine tanken, dan...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Cyprus wil in 2028 aardgas gaan exporteren](https://fd.nl/economie/1589668/cyprus-wil-in-2028-aardgas-gaan-exporteren)
+  > ‘Hopelijk hebben we dan gas’, zegt Cypriotische energieminister
 - [Duits defensiebedrijf Vincorion volgende week naar de beurs](https://fd.nl/financiele-markten/1589666/duits-defensiebedrijf-vincorion-volgende-week-naar-de-beurs)
   > Vanwege oorlog in Midden-Oosten en Oekraïne zijn defensiebedrijven populair.
 - [Markten beginnen op 2008 te lijken, zegt Bank of America](https://fd.nl/financiele-markten/1589640/markten-beginnen-op-2008-te-lijken-zegt-bank-of-america)
@@ -54,8 +56,6 @@
   > In landbouwdebatten gaat het even minder over krimp, hoewel die volgens deskundigen onontkoombaar lijkt.
 - [Poolse president blokkeert EU-defensiefinanciering, premier Tusk op zoek naar alternatief](https://fd.nl/politiek/1589644/poolse-president-blokkeert-eu-defensiefinanciering-premier-tusk-op-zoek-naar-alternatief)
   > President Karol Nawrocki van Polen vreest dat Europese leningen de Brusselse invloed in zijn land zullen vergroten. Premier Donald Tusk zegt te...
-- [Aris Wateler pionierde met Parcom in private equity](https://fd.nl/financiele-markten/1589552/aris-wateler-pionierde-met-parcom-in-private-equity)
-  > De op 6 maart overleden Wateler kon goed rekenen, had zakelijk inzicht én een grote gunfactor. ‘Een slimme vos met een groot gevoel voor humor.’
 
 ### Meest gelezen
 
