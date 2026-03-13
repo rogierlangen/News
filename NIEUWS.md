@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-03-2026 om 10:42*
+*Laatst bijgewerkt: 13-03-2026 om 11:35*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Gemeente: opnieuw te veel mensen in Ter Apel, dwangsom van 5 miljoen bereikt](https://nos.nl/l/2606165)
+  > In het aanmeldcentrum Ter Apel verbleven vannacht opnieuw te veel mensen. De gemeente Westerwolde, waar Ter Apel onder valt, heeft daardoor opnieuw...
+- [Justitie haalt administratie op bij Tata Steel voor vervuilingsonderzoek](https://nos.nl/l/2606164)
+  > De Inlichtingen- en Opsporingsdienst van de Inspectie Leefomgeving en Transport (ILT-IOD) heeft gisteren bij Tata Steel in IJmuiden administratieve...
+- [Leger VS: vier inzittenden neergestort toestel dood, oorzaak crash onbekend](https://nos.nl/l/2606163)
+  > Bij de crash van een tankvliegtuig van het Amerikaanse leger in het westen van Irak zijn vier militairen om het leven gekomen, meldt het centrale...
 - [Van Weel: brand synagoge Rotterdam vermoedelijk antisemitisch gedreven](https://nos.nl/l/2606153)
   > Minister van Justitie en Veiligheid David van Weel noemt de brandstichting bij een synagoge in Rotterdam "vreselijk nieuws". Ook spreekt hij van...
 - [Taliban: vier doden bij luchtaanvallen Pakistan, tegenaanval uitgevoerd](https://nos.nl/l/2606148)
   > De Afghaanse Talibanregering beschuldigt Pakistan van luchtaanvallen op woonwijken in Kabul en in de zuidelijke provincie Kandahar. Volgens Afghaanse...
-- [Margareta Magnusson overleden, bekend van opruimmethode döstädning](https://nos.nl/l/2606147)
-  > De Zweedse kunstenaar Margareta Magnusson is op 92-jarige leeftijd overleden. Tien jaar geleden schreef ze een wereldwijde bestseller over het...
-- [Oud-gynaecoloog Rijnstate bereid om kinderen te zien die hij zelf verwekte](https://nos.nl/l/2606142)
-  > Een voormalig gynaecoloog die met zijn eigen zaad minstens zestien kinderen verwekte, is hij bereid om zijn biologische kinderen te ontmoeten. Hij...
-- [VS onderzoekt 'oneerlijke handelspraktijken' met oog op nieuwe heffingen](https://nos.nl/l/2606139)
-  > De VS heeft een onderzoek aangekondigd waarin wordt bekeken of tientallen handelspartners genoeg doen om onder meer dwangarbeid te voorkomen. Het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Gouden hattrick blijft uit: zitskiër Jeroen Kampschreur na twee paralympische titels onderuit op reuzenslalom](https://www.ad.nl/olympische-spelen/gouden-hattrick-blijft-uit-zitskier-jeroen-kampschreur-na-twee-paralympische-titels-onderuit-op-reuzenslalom~a34ee436/)
-  > Zitskiër Jeroen Kampschreur is er bij de Paralympische Winterspelen niet in geslaagd voor de derde keer een gouden medaille te winnen. De Nederlander...
+- [Nederlander (81) na 41 jaar uit Amerikaanse cel, familie ontroerd: ‘Jaren voor moeten vechten’](https://www.ad.nl/binnenland/nederlander-81-na-41-jaar-uit-amerikaanse-cel-familie-ontroerd-jaren-voor-moeten-vechten~a1411620/)
+  > De 81-jarige Jaitsen Singh is na 41 jaar in een Amerikaanse cel overgebracht naar Nederland. Zijn familie probeerde hem al jaren naar Nederland te...
+- [Rusland klaagt Nederland aan wegens diefstal kunstschatten](https://www.ad.nl/buitenland/rusland-klaagt-nederland-aan-wegens-diefstal-kunstschatten~a5d00735/)
+  > De Russische autoriteiten hebben tegen Nederland een strafzaak geopend wegens ‘diefstal’ van het zogeheten Scythische goud, dat in 2023 door een...
+- [Gemeente bereikt maximale dwangsom van 5 miljoen voor overvol azc Ter Apel](https://www.ad.nl/binnenland/gemeente-bereikt-maximale-dwangsom-van-5-miljoen-voor-overvol-azc-ter-apel~a45f4f08/)
+  > De maximale dwangsom van vijf miljoen euro die het Centraal Orgaan opvang asielzoekers (COA) aan de gemeente Westerwolde moet betalen voor de...
+- [Zilver voor snowboardster Lisa Bunschoten-Vos op Paralympics, gouden hattrick blijft uit voor Jeroen Kampschreur na val](https://www.ad.nl/olympische-spelen/zilver-voor-snowboardster-lisa-bunschoten-vos-op-paralympics-gouden-hattrick-blijft-uit-voor-jeroen-kampschreur-na-val~a34ee436/)
+  > Snowboardster Lisa Bunschoten-Vos heeft bij de Paralympische Winterspelen een zilveren medaille behaald. De 30-jarige Nederlandse noteerde op het...
 - [Amper maand na Winterspelen is WK shorttrack: bekijk hier het programma en de Nederlandse deelnemers](https://www.ad.nl/sport/amper-maand-na-winterspelen-is-wk-shorttrack-bekijk-hier-het-programma-en-de-nederlandse-deelnemers~ac5a611f/)
-  > Het is nog niet eens een maand geleden dat de Olympische Winterspelen in Milaan en Cortina d’Ampezzo is afgelopen, of het WK shorttrack staat voor de...
-- [Steeds meer bazen bespieden personeel: ‘Er hangen camera’s richting de koffiehoek en de wc’](https://www.ad.nl/werk/steeds-meer-bazen-bespieden-personeel-er-hangen-cameras-richting-de-koffiehoek-en-de-wc~a6a59888/)
-  > Veel werknemers worden op afstand in de gaten gehouden via camerabeelden. Vakbond CNV en privacywaakhond Autoriteit Persoonsgegeven zien een forse...
-- [Praat mee: moeten vrouwen luisteren naar hun man, zoals een derde van de generatie Z-mannen wil?](https://www.ad.nl/praat-mee/praat-mee-moeten-vrouwen-luisteren-naar-hun-man-zoals-een-derde-van-de-generatie-z-mannen-wil~add51a74/)
-  > Vrouwen moeten weer gehoorzamen en voor de kinderen zorgen. Dat denkbeeld rukt op onder jongens en mannen tussen de 14 en 30 jaar, de generatie Z. In...
-- [Tennisster Arianne Hartono (29) beëindigt carrière: ‘Ik verlang vooral naar een normaal leven’](https://www.ad.nl/tennis/tennisster-arianne-hartono-29-beeindigt-carriere-ik-verlang-vooral-naar-een-normaal-leven~a4de4bc9/)
-  > Arianne Hartono stopt met tennissen. Dat zegt de 29-jarige Nederlanse vrouw in gesprek met RTV Drenthe. Hartono haalde in april 2024 haar hoogste...
+  > Het is nog niet eens een maand geleden dat de Olympische Winterspelen in Milaan en Cortina d’Ampezzo zijn afgelopen, of het WK shorttrack staat voor...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [De ene energiecrisis is de andere niet, bezweert Eurocommissaris Jørgensen](https://fd.nl/politiek/1589630/de-ene-energiecrisis-is-de-andere-niet-bezweert-eurocommissaris-jrgensen)
+  > In 2022 worstelde de EU, na de Russische invasie van Oekraïne, ook met hard oplopende energieprijzen.
+- [Steeds meer gemeenten stellen wethouders aan die ergens anders wonen](https://fd.nl/politiek/1589589/steeds-meer-gemeenten-stellen-wethouders-aan-die-ergens-anders-wonen)
+  > Het is eigenlijk niet de bedoeling, maar toch zijn ze in opkomst: de wethouders van buiten. Gemeenten kunnen ontheffingen voor het...
 - [Shell veegt eisen Milieudefensie van tafel: ‘Gaan voorbij aan realiteit’](https://fd.nl/bedrijfsleven/1589633/shell-veegt-eisen-milieudefensie-van-tafel-gaan-voorbij-aan-realiteit)
   > Volgens Shell is het ‘aan overheden, niet aan Milieudefensie, om te bepalen hoe zij hun natuurlijke hulpbronnen ontwikkelen’.
 - [Eilandhoppen in Polynesië](https://fd.nl/samenleving/1588856/eilandhoppen-in-polynesie)
   > Polynesië: verder weg van huis en nieuws kan een mens zich bijna niet wensen. Eilandhoppen aan boord van minicruise Le Paul Gauguin belooft een...
 - [Lokale partijen spelen al decennialang grote rol in gemeentepolitiek](https://fd.nl/samenleving/1588736/lokale-partijen-spelen-al-decennialang-grote-rol-in-gemeentepolitiek)
   > Een kwart van de lokale partijen doet deze keer voor minstens de vierde keer achter elkaar mee, zo blijkt uit een analyse van het FD.
-- [Waak voor modieuze pendulewetgeving](https://fd.nl/opinie/1588545/waak-voor-modieuze-pendulewetgeving)
-  > Vermindering van de hoeveelheid regels. Brussel en Den Haag werken daar hard aan. Maar houd het oog op de bal, voorkom slingerend beleid.
-- [Van chemie tot café: alle sectoren lijden onder hogere energieprijzen](https://fd.nl/economie/1589525/van-chemie-tot-cafe-alle-sectoren-lijden-onder-hogere-energieprijzen)
-  > Alle Nederlandse bedrijfssectoren worden geraakt door de oorlog in het Midden-Oosten, schrijft Rabobank in een nieuwe analyse. De schade blijft dus...
 
 ### Meest gelezen
 
