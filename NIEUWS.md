@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-03-2026 om 22:32*
+*Laatst bijgewerkt: 13-03-2026 om 23:33*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Rechter blokkeert vervolging Fed-voorzitter Powell, 'geen enkel bewijs'](https://nos.nl/l/2606241)
+  > Een rechter in de Verenigde Staten heeft de dagvaardingen tegen de voorzitter van de Amerikaanse centrale bank (Fed), Jerome Powell, geblokkeerd. Dat...
 - [Uruguayaanse drugsbaron Sebastián Marset opgepakt in Bolivia](https://nos.nl/l/2606236)
   > De Uruguayaanse drugscrimineel Sebastián Marset is gearresteerd in Bolivia. De kartelbaas stond al jaren internationaal gesignaleerd en werd gezocht...
 - [Nuanceverschillen, maar vooral overeenstemming in het NOS-radiodebat](https://nos.nl/l/2606229)
@@ -16,8 +18,6 @@
   > Een olietanker met de vlag van Curaçao is eergisteren door de Straat van Hormuz gevaren. Dat blijkt uit een analyse van scheepsdata van website...
 - [Pleegmoeder van doodgeschoten Jerryson onverwachts overleden: 'Gaf mensen liefde'](https://nos.nl/l/2606226)
   > De pleegmoeder van de 15-jarige Jerryson die vorig jaar bij de McDonald's in Capelle aan den IJssel door een agent werd doodgeschoten, is onverwachts...
-- [Boekenweek feestelijk begonnen: 'Wie niet leest, saboteert zichzelf'](https://nos.nl/l/2606225)
-  > Het is Boekenweek en met het boekenbal in Amsterdam is die zojuist feestelijk afgetrapt. Tijdens de promotieweek voor het boek organiseren...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Olie en oorlog drukken op Wall Street](https://fd.nl/financiele-markten/1589696/olie-en-oorlog-drukken-op-wall-street)
-  > Beleggers keken ook naar macrocijfers. Adobe ging onderuit nadat topman aankondigt om op te stappen.
-- [Goed dat EU innovatieve kerntechnologie stimuleert](https://fd.nl/opinie/1588746/goed-dat-eu-innovatieve-kerntechnologie-stimuleert)
-  > Het was een strategische fout om kerncentrales af te bouwen in Europa, vindt commissievoorzitter Ursula von der Leyen.
-- [Cyprus wil in 2028 aardgas gaan exporteren](https://fd.nl/economie/1589668/cyprus-wil-in-2028-aardgas-gaan-exporteren)
-  > ‘Hopelijk hebben we dan gas’, zegt Cypriotische energieminister
-- [Duits defensiebedrijf Vincorion volgende week naar de beurs](https://fd.nl/financiele-markten/1589666/duits-defensiebedrijf-vincorion-volgende-week-naar-de-beurs)
-  > Vanwege oorlog in Midden-Oosten en Oekraïne zijn defensiebedrijven populair.
-- [Markten beginnen op 2008 te lijken, zegt Bank of America](https://fd.nl/financiele-markten/1589640/markten-beginnen-op-2008-te-lijken-zegt-bank-of-america)
-  > Met de stijgende olieprijs en toenemende zorgen over private credit handelt Wall Street vandaag de dag ‘angstaanjagend analoog’ aan de periode...
+- [Productiviteitswinst door AI? De meeste bedrijven zien het nog niet](https://fd.nl/politiek/1589631/productiviteitswinst-door-ai-de-meeste-bedrijven-zien-het-nog-niet)
+  > Kunstmatige intelligentie zou leiden tot efficiëntere productie, lagere kosten en hogere arbeidsproductiviteit. Van dit permanente aanbodeffect is...
+- [De wethouder van buiten bestuurt prima, ‘maar ze houdt niet van de stad’](https://fd.nl/samenleving/1589376/de-wethouder-van-buiten-bestuurt-prima-maar-ze-houdt-niet-van-de-stad)
+  > Lokaal bestuurder zijn zonder regionale binding, kan dat eigenlijk? Wie het vraagt aan de gemeenteraad krijgt steeds vaker ‘ja’ als antwoord, maar...
+- [Cultuur: Waar blijven de kritische films over Trump?](https://fd.nl/samenleving/1588976/cultuur-waar-blijven-de-kritische-films-over-trump)
+  > Het is Oscar-weekend. Grote kans dat acteurs zich laten zien met anti-Trump-buttons. Maar waarom zijn er nog geen kritische speelfilms over zijn...
+- [Over ayatollahs, mannetjes in het blauw en andere curieuze politici](https://fd.nl/opinie/1589599/over-ayatollahs-mannetjes-in-het-blauw-en-andere-curieuze-politici)
+  > Waarom willen mensen eigenlijk nog de politiek in? Politici zijn 24/7 mikpunt van spot en doen het nooit goed.
+- [Chaotisch en poëtisch Istanbul](https://fd.nl/samenleving/1589076/chaotisch-en-poetisch-istanbul)
+  > De Schots-Turkse kunstenaar Leyla Pekmen woont sinds haar achttiende in Istanbul en verlangt altijd naar haar stad als ze op reis is. ‘Het hectische...
 
 ### Meest gelezen
 
