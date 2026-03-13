@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-03-2026 om 23:32*
+*Laatst bijgewerkt: 13-03-2026 om 02:30*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [President Polen blokkeert Europese miljarden voor Poolse defensie](https://nos.nl/l/2606110)
+  > De Poolse president Nawrocki heeft zijn veto uitgesproken tegen een wet waarmee Polen 44 miljard euro kan lenen van de Europese Unie. Het geld was...
 - [Enorme buis steekt plots door asfalt op kruispunt in Japanse stad Osaka](https://nos.nl/l/2606108)
   > Extreem natuurgeweld komt vaker voor in Japan, maar een gigantische pijp die zomaar uit het wegdek oprijst is zelfs daar bijzonder. Het gevaarte brak...
 - [Dag 13 van de oorlog: G7 overweegt oorlogsschepen naar Straat van Hormuz te sturen](https://nos.nl/l/2606107)
@@ -16,8 +18,6 @@
   > Een agent heeft vorig jaar tijdens een pro-Palestina-demonstratie op de Radboud Universiteit in Nijmegen zijn politiehond onrechtmatig ingezet. Dat...
 - [Man rijdt synagoge in Michigan binnen, beveiliging opent vuur op hem](https://nos.nl/l/2606093)
   > In een voorstad van Detroit is een gewapende man met zijn voertuig op een synagoge ingereden. Dat melden Amerikaanse media. De beveiliging van de...
-- [Israëlische soldaten niet langer vervolgd voor martelen Palestijnse gevangene](https://nos.nl/l/2606091)
-  > Het Israëlische leger heeft aanklachten laten vallen tegen vijf Israëlische soldaten die ervan werden beschuldigd een Palestijnse gevangene te hebben...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tijden Formule 1 Grand Prix van China | Wekker zetten voor Verstappen: zo laat komt hij in actie](https://www.ad.nl/formule-1/tijden-formule-1-grand-prix-van-china-wekker-zetten-voor-verstappen-zo-laat-komt-hij-in-actie~a6788441/)
-  > Na het eerste raceweekend van het jaar reizen Max Verstappen en zijn collega’s direct door naar Shanghai voor de Grand Prix van China. Daar kunnen de...
-- [Zes Franse militairen gewond bij droneaanval Irak, Netanyahu spreekt van ‘verplettering’ Iran](https://www.ad.nl/buitenland/zes-franse-militairen-gewond-bij-droneaanval-irak-netanyahu-spreekt-van-verplettering-iran~ac528ac3/)
-  > Zes Franse militairen zijn gewond geraakt bij een droneaanval in het noorden van Irak. Dat meldt het Franse leger. En Iran is niet langer hetzelfde...
-- [Schrijfster Jane Fallon, de partner van Ricky Gervais, heeft borstkanker](https://www.ad.nl/show/schrijfster-jane-fallon-de-partner-van-ricky-gervais-heeft-borstkanker~afc1e4e0/)
-  > Jane Fallon, de partner van de Britse komiek Ricky Gervais, heeft bekendgemaakt dat bij haar borstkanker is vastgesteld. De schrijfster deelt op...
-- [Nottingham Forest onderuit tegen Midtjylland in belabberde week voor Engelse clubs](https://www.ad.nl/voetbal/nottingham-forest-onderuit-tegen-midtjylland-in-belabberde-week-voor-engelse-clubs~a09fcb69/)
-  > Het is niet de week van de Engelse clubs in Europa. Nottingham Forest blameerde zich in de achtste finales van de Europa League door thuis met 0-1 te...
-- [2 sterrenrestaurant sluit ineens de deuren: ‘Een van de meest gevierde eetgelegenheden van Nederland’](https://www.ad.nl/binnenland/2-sterrenrestaurant-sluit-ineens-de-deuren-een-van-de-meest-gevierde-eetgelegenheden-van-nederland~a654c041/)
-  > Restaurant Spectrum in het hotel Waldorf Astoria aan de Amsterdamse Herengracht gaat sluiten, meldt het restaurant op Instagram. Eind mei verwelkomt...
+- [Forum ligt weer eens onder vuur, maar niemand bij die partij ligt daar wakker van](https://www.ad.nl/politiek/forum-ligt-weer-eens-onder-vuur-maar-niemand-bij-die-partij-ligt-daar-wakker-van~aceae304/)
+  > Een extreemrechts verleden betekent bij vrijwel elke politieke partij schrapping van de kieslijst. Maar niet bij Forum voor Democratie. Dat de partij...
+- [Macron: Franse militair gedood tijdens een aanval in noorden van Irak](https://www.ad.nl/buitenland/macron-franse-militair-gedood-tijdens-een-aanval-in-noorden-van-irak~ac528ac3/)
+  > Een Franse militair is gedood ‘tijdens een aanval’ in de regio Erbil in Iraaks-Koerdistan. Dat maakte de Franse president Emmanuel Macron in de nacht...
+- [Onbemande Russische gastanker drijft in de Middellandse Zee: Malta bereidt noodplan voor](https://www.ad.nl/buitenland/onbemande-russische-gastanker-drijft-in-de-middellandse-zee-malta-bereidt-noodplan-voor~a5daebce/)
+  > Een beschadigde Russische tanker met vloeibaar gas drijft momenteel zonder bemanning in de Middellandse Zee richting het Italiaanse eiland Lampedusa....
+- [Eerste staatsbezoek dat Venezolaanse interim-president zou brengen aan Colombia plotseling geannuleerd](https://www.ad.nl/buitenland/eerste-staatsbezoek-dat-venezolaanse-interim-president-zou-brengen-aan-colombia-plotseling-geannuleerd~a5683073/)
+  > Het eerste staatsbezoek van de Venezolaanse interim-president Delcy Rodríguez werd donderdag plotseling geannuleerd. Rodríguez zou een bezoek brengen...
+- [Voetbalpodcast | ‘AZ lijkt op het juiste moment in bloedvorm te komen’](https://www.ad.nl/voetbal/voetbalpodcast-az-lijkt-op-het-juiste-moment-in-bloedvorm-te-komen~ac8603a9/)
+  > AZ solliciteerde nadrukkelijk naar een plaats in de kwartfinales van de Conference League, met een 2-1-zege op Sparta Praag. In de AD Voetbalpodcast...
 
 ### Meest gelezen
 
