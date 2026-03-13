@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-03-2026 om 21:37*
+*Laatst bijgewerkt: 13-03-2026 om 22:32*
 
 ---
 
@@ -27,7 +27,7 @@
 
 ### Laatste nieuws
 
-- [Deze bekende cabaretier was toeschouwer bij De slimste mens, maar deed zelf nog nooit mee](https://www.ad.nl/show/deze-bekende-cabaretier-was-toeschouwer-bij-de-slimste-mens-maar-deed-zelf-nog-nooit-mee~a7b77863/)
+- [Opvallende BN’er op de tribune bij De slimste mens](https://www.ad.nl/show/opvallende-bner-op-de-tribune-bij-de-slimste-mens~a7b77863/)
   > Bij de televisiequiz De slimste mens zitten niet alleen min of meer bekende Nederlanders in de stoelen van de kandidaten, zo bleek vrijdagavond. Deze...
 - [Cor Pot geeft update over Dick Advocaat en zijn zieke dochter: ‘De chemokuur slaat aan, hij was opgelucht’](https://www.ad.nl/wk-voetbal/cor-pot-geeft-update-over-dick-advocaat-en-zijn-zieke-dochter-de-chemokuur-slaat-aan-hij-was-opgelucht~a1975b39/)
   > Dick Advocaat heeft goed nieuws gekregen over zijn ernstig zieke dochter: de chemokuur slaat aan. Dat vertelde zijn assistent Cor Pot vrijdagavond...
