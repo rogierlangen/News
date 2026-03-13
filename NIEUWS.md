@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-03-2026 om 15:49*
+*Laatst bijgewerkt: 13-03-2026 om 16:47*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Boosheid en angst na brandstichting Rotterdamse synagoge](https://nos.nl/l/2606211)
+  > Geschrokken reacties, boosheid en steunbetuigingen volgen op de brandstichting bij de synagoge in de Rotterdamse wijk Blijdorp. Vannacht rond 03.45...
 - [Versoepeling door VS van oliesancties spekt Russische staatskas extra](https://nos.nl/l/2606203)
   > De oorlog in het Midden-Oosten kent veel economische verliezers, maar één land is dat zeker niet: Rusland. De Russische staatskas en oliebedrijven...
 - [Podcast De Stemming: de ijzerwinkel, een oepsie en een knorrenkanon](https://nos.nl/l/2606202)
@@ -16,8 +18,6 @@
   > Een asielzoekerscentrum dat werd geschrapt na massaal protest, een nieuw plan dat opnieuw voor verdeeldheid zorgt en politieke partijen die er...
 - [Podcast De Dag: drie boekentips van drie generaties schrijvers](https://nos.nl/l/2606192)
   > Het thema van de Boekenweek, die vanavond tijdens het Boekenbal gevierd wordt door mensen uit het boekenvak, is dit jaar: mijn generatie. Schrijvers...
-- [Vier vragen over het Vijfjarenplan van China: wat kunnen we verwachten?](https://nos.nl/l/2606189)
-  > Het Chinese Volkscongres zit erop. Na een week lang klappen, opzitten en luisteren, hebben de afgevaardigden bijna unaniem ingestemd met de plannen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Kabinet: Verlichten sancties Rusland heel slecht signaal naar Poetin](https://www.ad.nl/politiek/kabinet-verlichten-sancties-rusland-heel-slecht-signaal-naar-poetin~ab2dd9e3/)
-  > Het kabinet vindt het Amerikaanse besluit om tijdelijk de sancties op Russische olie op te heffen ‘zeer onverstandig’. „Dit is echt een heel slecht...
-- [PSV kan komend weekend de vroegste kampioen ooit worden: dit moet daarvoor gebeuren](https://www.ad.nl/voetbal/psv-kan-komend-weekend-de-vroegste-kampioen-ooit-worden-dit-moet-daarvoor-gebeuren~a0fad107/)
-  > PSV kan dit weekend al geschiedenis schrijven. De ploeg van Peter Bosz kan de vroegste kampioen ooit worden in de eredivisie.
-- [‘Wij vrouwen hebben gevochten om te komen waar we nu zijn en we zijn er nog lang niet’](https://www.ad.nl/binnenland/wij-vrouwen-hebben-gevochten-om-te-komen-waar-we-nu-zijn-en-we-zijn-er-nog-lang-niet~a202804e/)
-  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag leggen we lezers de volgende kwestie voor: moeten vrouwen hun echtgenoot...
-- [Nieuw contract voor Angel Daleman (18) bij Team Essent: ‘Ik wil mijn grenzen verleggen’](https://www.ad.nl/schaatsen/nieuw-contract-voor-angel-daleman-18-bij-team-essent-ik-wil-mijn-grenzen-verleggen~a19cb6632/)
-  > Team Essent heeft het contract van Angel Daleman opengebroken en verlengd. De 18-jarige schaatsster heeft haar handtekening gezet onder een...
-- [Dit zijn de printers waarmee je jaren doet met één cartridge](https://www.ad.nl/tech/dit-zijn-de-printers-waarmee-je-jaren-doet-met-een-cartridge~adc5c96d/)
-  > Hoef je slechts af en toe een tekst te printen, dan heb je geen dure kleurenprinter nodig. Bij een zwart-witlaserprinter droogt de inkt niet uit en...
+- [Wendy van Dijk: ‘Streng opvoeden leidt tot stiekeme kinderen, daarvan ben ik overtuigd’](https://www.ad.nl/mezza/wendy-van-dijk-streng-opvoeden-leidt-tot-stiekeme-kinderen-daarvan-ben-ik-overtuigd~a5ffbaac/)
+  > Als meisje van vijf stond ze al voor de tv mee te dansen met het ballet van Ron’s Honeymoonquiz. Nu presenteert Wendy van Dijk het nieuwe seizoen van...
+- [Israël bevestigt duizenden aanvallen op Iran en Libanon](https://www.ad.nl/buitenland/israel-bevestigt-duizenden-aanvallen-op-iran-en-libanon~ac528ac3/)
+  > Israël heeft sinds het begin van de oorlog in het Midden-Oosten ruim 7600 aanvallen uitgevoerd op Iran en 1100 in Libanon. Dat melden de Israëlische...
+- [Trump heft tijdelijk sancties op Russische olie op, EU reageert gebeten: ‘Brengt Europese veiligheid in gevaar’](https://www.ad.nl/buitenland/trump-heft-tijdelijk-sancties-op-russische-olie-op-eu-reageert-gebeten-brengt-europese-veiligheid-in-gevaar~af986a6a/)
+  > De Amerikaanse president Donald Trump heeft de sancties op Russische olie tijdelijk opgeheven. Doel is om de olieprijzen onder controle te krijgen,...
+- [Nieuwe Volkswagen ID3 gaat ID3 Neo heten](https://www.ad.nl/auto/nieuwe-volkswagen-id3-gaat-id3-neo-heten~aace5a43/)
+  > De vernieuwde Volkswagen ID3 gaat ID3 Neo heten en dus niet ID Golf, zoals eerder verwacht. De autofabrikant heeft ook de eerste schetsen vrijgegeven...
+- [Jan Smit en vrouw Liza Plat zetten na 14 jaar punt achter hun huwelijk](https://www.ad.nl/sterren/jan-smit-en-vrouw-liza-plat-zetten-na-14-jaar-punt-achter-hun-huwelijk~a109573e/)
+  > Jan Smit (40) en zijn vrouw Liza Plat (44) gaan scheiden. Dat bevestigt het management van de zanger vrijdag tegenover RTL Boulevard. Het stel was...
 
 ### Meest gelezen
 
