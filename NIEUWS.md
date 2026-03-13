@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-03-2026 om 18:50*
+*Laatst bijgewerkt: 13-03-2026 om 19:34*
 
 ---
 
@@ -8,7 +8,7 @@
 
 ### Laatste nieuws
 
-- [Botsing over erfgoed Willemstad: Curaçaose minister tegenover monumentenzorg](https://nos.nl/l/2606218)
+- [Botsing over erfgoed Willemstad: Curaçaose minister tegenover monumentenorganisaties](https://nos.nl/l/2606218)
   > Op Curaçao is een conflict ontstaan over de toekomst van het historische centrum van Willemstad. De minister van Verkeer, Vervoer en Ruimtelijke...
 - [Boosheid en angst na brandstichting Rotterdamse synagoge](https://nos.nl/l/2606211)
   > Geschrokken reacties, boosheid en steunbetuigingen volgen op de brandstichting bij de synagoge in de Rotterdamse wijk Blijdorp. Vannacht rond 03.45...
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Larven laten niets over van gras Deense voetbalclub: ‘Lastig te bestrijden’](https://www.ad.nl/buitenland/larven-laten-niets-over-van-gras-deense-voetbalclub-lastig-te-bestrijden~a3978c5a/)
-  > Deense profvoetballers krijgen tegenstand uit onverwachte hoek. Larven van de langpootmug zorgen ervoor dat spelers van Viborg FF hun veld niet meer...
-- [Propvolle avond in de KKD: ADO Den Haag op bezoek bij FC Emmen, Cambuur ontvangt Roda JC](https://www.ad.nl/voetbal/propvolle-avond-in-de-kkd-ado-den-haag-op-bezoek-bij-fc-emmen-cambuur-ontvangt-roda-jc~af89adcc/)
+- [Zus van jarenlang ontvoerde Natascha Kampusch luidt alarmbel: ‘Ze zit nu in haar eigen gevangenis’](https://www.ad.nl/buitenland/zus-van-jarenlang-ontvoerde-natascha-kampusch-luidt-alarmbel-ze-zit-nu-in-haar-eigen-gevangenis~a50f5b2d/)
+  > Bijna twintig jaar geleden wist Natascha Kampusch (38) te ontsnappen uit de klauwen van haar ontvoerder. De demonen blijven haar echter achtervolgen....
+- [Vroeger stond de kinderlokker bij het schoolhek, nu zit hij met je kind op Roblox](https://www.ad.nl/binnenland/vroeger-stond-de-kinderlokker-bij-het-schoolhek-nu-zit-hij-met-je-kind-op-roblox~a00f7784/)
+  > Een kwartier duurt het. Dan heeft een vreemde man via de game Roblox een 6-jarig meisje zover om naaktfoto’s te maken én te sturen. Vanuit de...
+- [Grote kansen voor PEC in openingsfase: invalkeeper Jurjus houdt Groningen op de been](https://www.ad.nl/voetbal/grote-kansen-voor-pec-in-openingsfase-invalkeeper-jurjus-houdt-groningen-op-de-been~aa7c4134/)
+  > FC Groningen gaat vrijdagavond op bezoek bij PEC Zwolle. Kan de ploeg van trainer Dick Lukkien na de 3-1 zege op Ajax doorpakken en richting het...
+- [LIVE Keuken Kampioen Divisie | Van Mieghem scoort fraai voor ADO in Emmen, Jong Ajax draait het snel om](https://www.ad.nl/voetbal/live-keuken-kampioen-divisie-van-mieghem-scoort-fraai-voor-ado-in-emmen-jong-ajax-draait-het-snel-om~af89adcc/)
   > Het is nagenoeg zeker dat ADO Den Haag en SC Cambuur gaan promoveren naar de eredivisie. Maar wie pakt de titel in de Keuken Kampioen Divisie? En wie...
-- [Alleen de echte nieuwsjunk maakt deze wekelijkse quiz foutloos](https://www.ad.nl/binnenland/alleen-de-echte-nieuwsjunk-maakt-deze-wekelijkse-quiz-foutloos~a5dc539ae/)
-  > Deze week steeg de prijs aan de pomp verder en werd een voet van de vermiste Yoran gevonden in de Dordtse Kil. Maar er gebeurde nog veel meer. Test...
-- [Arrestatieteams vallen woningen verdachten explosie Rotterdamse synagoge binnen](https://www.ad.nl/binnenland/arrestatieteams-vallen-woningen-verdachten-explosie-rotterdamse-synagoge-binnen~a7042749/)
-  > De politie heeft vrijdagmiddag woningen doorzocht in Tilburg van personen die worden verdacht van betrokkenheid bij de explosie bij de synagoge in...
-- [Zoveel accijns betalen Europeanen op benzine: tanken in België scheelt 27 euro](https://www.ad.nl/auto/zoveel-accijns-betalen-europeanen-op-benzine-tanken-in-belgie-scheelt-27-euro~a11d5e07/)
-  > In geen enkel ander Europees land betaalt de pompbezoeker meer belasting per liter dan in Nederland. Ging je afgelopen maandag benzine tanken, dan...
+- [Doorgedraaide Nederlander (27) slaat boel kort en klein in Oostenrijkse winkel en valt medewerkers aan](https://www.ad.nl/buitenland/doorgedraaide-nederlander-27-slaat-boel-kort-en-klein-in-oostenrijkse-winkel-en-valt-medewerkers-aan~af4554968/)
+  > Een 27-jarige Nederlander heeft een spoor van vernieling achtergelaten in een winkel in het Oostenrijkse Hinterglemm. De man ging door het lint,...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Goed dat EU innovatieve kerntechnologie stimuleert](https://fd.nl/opinie/1588746/goed-dat-eu-innovatieve-kerntechnologie-stimuleert)
+  > Het was een strategische fout om kerncentrales af te bouwen in Europa, vindt commissievoorzitter Ursula von der Leyen.
 - [Cyprus wil in 2028 aardgas gaan exporteren](https://fd.nl/economie/1589668/cyprus-wil-in-2028-aardgas-gaan-exporteren)
   > ‘Hopelijk hebben we dan gas’, zegt Cypriotische energieminister
 - [Duits defensiebedrijf Vincorion volgende week naar de beurs](https://fd.nl/financiele-markten/1589666/duits-defensiebedrijf-vincorion-volgende-week-naar-de-beurs)
@@ -54,8 +56,6 @@
   > Met de stijgende olieprijs en toenemende zorgen over private credit handelt Wall Street vandaag de dag ‘angstaanjagend analoog’ aan de periode...
 - [In het stikstofdebat blijft de pijn voor de boer nog even onbenoemd](https://fd.nl/politiek/1589643/in-het-stikstofdebat-blijft-de-pijn-voor-de-boer-nog-even-onbenoemd)
   > In landbouwdebatten gaat het even minder over krimp, hoewel die volgens deskundigen onontkoombaar lijkt.
-- [Poolse president blokkeert EU-defensiefinanciering, premier Tusk op zoek naar alternatief](https://fd.nl/politiek/1589644/poolse-president-blokkeert-eu-defensiefinanciering-premier-tusk-op-zoek-naar-alternatief)
-  > President Karol Nawrocki van Polen vreest dat Europese leningen de Brusselse invloed in zijn land zullen vergroten. Premier Donald Tusk zegt te...
 
 ### Meest gelezen
 
