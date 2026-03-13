@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-03-2026 om 16:47*
+*Laatst bijgewerkt: 13-03-2026 om 17:38*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Botsing over erfgoed Willemstad: Curaçaose minister tegenover monumentenzorg](https://nos.nl/l/2606218)
+  > Op Curaçao is een conflict ontstaan over de toekomst van het historische centrum van Willemstad. De minister van Verkeer, Vervoer en Ruimtelijke...
 - [Boosheid en angst na brandstichting Rotterdamse synagoge](https://nos.nl/l/2606211)
   > Geschrokken reacties, boosheid en steunbetuigingen volgen op de brandstichting bij de synagoge in de Rotterdamse wijk Blijdorp. Vannacht rond 03.45...
 - [Versoepeling door VS van oliesancties spekt Russische staatskas extra](https://nos.nl/l/2606203)
@@ -16,8 +18,6 @@
   > Marleen is weer terug in de studio om samen met Joost de Haagse week door te nemen. Die werd gedomineerd door de oorlog in het Midden-Oosten, waar op...
 - [Asielopvang verkiezingsthema in Rhenen: één groot azc of drie kleinere?](https://nos.nl/l/2606193)
   > Een asielzoekerscentrum dat werd geschrapt na massaal protest, een nieuw plan dat opnieuw voor verdeeldheid zorgt en politieke partijen die er...
-- [Podcast De Dag: drie boekentips van drie generaties schrijvers](https://nos.nl/l/2606192)
-  > Het thema van de Boekenweek, die vanavond tijdens het Boekenbal gevierd wordt door mensen uit het boekenvak, is dit jaar: mijn generatie. Schrijvers...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Wendy van Dijk: ‘Streng opvoeden leidt tot stiekeme kinderen, daarvan ben ik overtuigd’](https://www.ad.nl/mezza/wendy-van-dijk-streng-opvoeden-leidt-tot-stiekeme-kinderen-daarvan-ben-ik-overtuigd~a5ffbaac/)
-  > Als meisje van vijf stond ze al voor de tv mee te dansen met het ballet van Ron’s Honeymoonquiz. Nu presenteert Wendy van Dijk het nieuwe seizoen van...
-- [Israël bevestigt duizenden aanvallen op Iran en Libanon](https://www.ad.nl/buitenland/israel-bevestigt-duizenden-aanvallen-op-iran-en-libanon~ac528ac3/)
-  > Israël heeft sinds het begin van de oorlog in het Midden-Oosten ruim 7600 aanvallen uitgevoerd op Iran en 1100 in Libanon. Dat melden de Israëlische...
-- [Trump heft tijdelijk sancties op Russische olie op, EU reageert gebeten: ‘Brengt Europese veiligheid in gevaar’](https://www.ad.nl/buitenland/trump-heft-tijdelijk-sancties-op-russische-olie-op-eu-reageert-gebeten-brengt-europese-veiligheid-in-gevaar~af986a6a/)
-  > De Amerikaanse president Donald Trump heeft de sancties op Russische olie tijdelijk opgeheven. Doel is om de olieprijzen onder controle te krijgen,...
-- [Nieuwe Volkswagen ID3 gaat ID3 Neo heten](https://www.ad.nl/auto/nieuwe-volkswagen-id3-gaat-id3-neo-heten~aace5a43/)
-  > De vernieuwde Volkswagen ID3 gaat ID3 Neo heten en dus niet ID Golf, zoals eerder verwacht. De autofabrikant heeft ook de eerste schetsen vrijgegeven...
-- [Jan Smit en vrouw Liza Plat zetten na 14 jaar punt achter hun huwelijk](https://www.ad.nl/sterren/jan-smit-en-vrouw-liza-plat-zetten-na-14-jaar-punt-achter-hun-huwelijk~a109573e/)
-  > Jan Smit (40) en zijn vrouw Liza Plat (44) gaan scheiden. Dat bevestigt het management van de zanger vrijdag tegenover RTL Boulevard. Het stel was...
+- [Diskwalificatie voor Melle van ‘t Wout op WK, broer Jens wél naar kwartfinales 500 meter](https://www.ad.nl/andere-sporten/diskwalificatie-voor-melle-van-t-wout-op-wk-broer-jens-wel-naar-kwartfinales-500-meter~af43cf63/)
+  > Shorttracker Melle van ‘t Wout is op de WK shorttrack in Montreal uitgeschakeld in de heats van de 500 meter. De 26-jarige shorttracker, die op de...
+- [Commandant Evertsen mist kapot kanon totaal niet: ‘Hebben we nu niet nodig’](https://www.ad.nl/buitenland/commandant-evertsen-mist-kapot-kanon-totaal-niet-hebben-we-nu-niet-nodig~a2f83d1c/)
+  > De Zr.Ms. Evertsen is begonnen aan de operatie in de Middellandse Zee om Cyprus te beschermen tegen Iraanse raketten en drones. Zonder kanon, want...
+- [Zo wil Óscar García het tij keren bij Ajax: ‘Soms zitten de belangrijkste spelers op de bank’](https://www.ad.nl/voetbal/zo-wil-oscar-garcia-het-tij-keren-bij-ajax-soms-zitten-de-belangrijkste-spelers-op-de-bank~a67ff7f9/)
+  > Óscar García (52) heeft acht duels om Ajax alsnog naar de Champions League te loodsen. Wat kunnen we daarbij van de Spanjaard verwachten? Vier...
+- [ABN Amro Open lijkt te kunnen zwaaien naar toppers vanaf 2028: ‘Als de geruchten waar zijn, is dat bijzonder vervelend’](https://www.ad.nl/tennis/abn-amro-open-lijkt-te-kunnen-zwaaien-naar-toppers-vanaf-2028-als-de-geruchten-waar-zijn-is-dat-bijzonder-vervelend~a68a0abf/)
+  > De sportsector in Saoedi-Arabië is een uitdijend fenomeen. Sporten als voetbal, vechtsport, autosport en nu ook tennis zwichten steeds vaker voor het...
+- [Ongehoord Nederland op het matje bij mensenrechtencollege om vacature: ‘Dit is woke-ideologie’](https://www.ad.nl/show/ongehoord-nederland-op-het-matje-bij-mensenrechtencollege-om-vacature-dit-is-woke-ideologie~a4a22cc6/)
+  > Het Openbaar Ministerie besloot de zaak te laten rusten, maar omroep Ongehoord Nederland (ON!) ontkomt alsnog niet aan een formele zitting over hun...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Duits defensiebedrijf Vincorion volgende week naar de beurs](https://fd.nl/financiele-markten/1589666/duits-defensiebedrijf-vincorion-volgende-week-naar-de-beurs)
+  > Vanwege oorlog in Midden-Oosten en Oekraïne zijn defensiebedrijven populair.
+- [Markten beginnen op 2008 te lijken, zegt Bank of America](https://fd.nl/financiele-markten/1589640/markten-beginnen-op-2008-te-lijken-zegt-bank-of-america)
+  > Met de stijgende olieprijs en toenemende zorgen over private credit handelt Wall Street vandaag de dag ‘angstaanjagend analoog’ aan de periode...
 - [In het stikstofdebat blijft de pijn voor de boer nog even onbenoemd](https://fd.nl/politiek/1589643/in-het-stikstofdebat-blijft-de-pijn-voor-de-boer-nog-even-onbenoemd)
   > In landbouwdebatten gaat het even minder over krimp, hoewel die volgens deskundigen onontkoombaar lijkt.
 - [Poolse president blokkeert EU-defensiefinanciering, premier Tusk op zoek naar alternatief](https://fd.nl/politiek/1589644/poolse-president-blokkeert-eu-defensiefinanciering-premier-tusk-op-zoek-naar-alternatief)
   > President Karol Nawrocki van Polen vreest dat Europese leningen de Brusselse invloed in zijn land zullen vergroten. Premier Donald Tusk zegt te...
 - [Aris Wateler pionierde met Parcom in private equity](https://fd.nl/financiele-markten/1589552/aris-wateler-pionierde-met-parcom-in-private-equity)
   > De op 6 maart overleden Wateler kon goed rekenen, had zakelijk inzicht én een grote gunfactor. ‘Een slimme vos met een groot gevoel voor humor.’
-- [Wat is het bod van Akzo op Axalta nog waard?](https://fd.nl/financiele-markten/1589485/wat-is-het-bod-van-akzo-op-axalta-nog-waard)
-  > AkzoNobel wil branchegenoot Axalta overnemen, en dat betalen met eigen aandelen. Sinds de aankondiging is het bod flink in waarde gedaald.
-- [De vrouwen achter de Ozempic-doorbraak vochten voor erkenning](https://fd.nl/bedrijfsleven/1587117/de-vrouwen-achter-de-ozempic-doorbraak-vochten-voor-erkenning)
-  > Aan de uitvinding van Ozempic ging een dramatische wedloop vooraf, onthult het boek Off the Scales. Vrouwelijke wetenschappers waren essentieel voor...
 
 ### Meest gelezen
 
