@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-03-2026 om 06:55*
+*Laatst bijgewerkt: 14-03-2026 om 07:37*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Ronald Waterreus zet vraagtekens bij contractverlenging Peter Bosz: ‘Ik had voor een frisse wind gekozen’](https://www.ad.nl/voetbal/ronald-waterreus-zet-vraagtekens-bij-contractverlenging-peter-bosz-ik-had-voor-een-frisse-wind-gekozen~a2fc3440/)
+  > Ronald Waterreus is onder de indruk van de huidige overmacht van PSV in Nederland. Toch had de voormalige keeper van de Eindhovense club het contract...
+- [Wilders wil na 10.000 dagen in de Tweede Kamer door tot z’n 80ste, maar in kleine kring klinkt iets anders](https://www.ad.nl/politiek/wilders-wil-na-10-000-dagen-in-de-tweede-kamer-door-tot-zn-80ste-maar-in-kleine-kring-klinkt-iets-anders~aa9b7a6a/)
+  > 10.000 dagen zit Geert Wilders deze zaterdag in de Tweede Kamer. Zelf zegt hij ‘tot zijn 80ste’ door te gaan. Maar achter de schermen klinkt een...
+- [Deze Chinese plug-in hybride komt bizar ver op stroom](https://www.ad.nl/auto/deze-chinese-plug-in-hybride-komt-bizar-ver-op-stroom~a2dafb68/)
+  > Het herboren automerk Lotus begon zijn tweede leven in 2023  met een elektrische Hyper-SUV met extreem veel vermogen. Nu kiest het merk voor een...
+- [Verstappen zet goede tijd neer in eerste deel kwalificatie en dicht het gat met de andere topteams](https://www.ad.nl/formule-1/verstappen-zet-goede-tijd-neer-in-eerste-deel-kwalificatie-en-dicht-het-gat-met-de-andere-topteams~a586b27d0/)
+  > Max Verstappen is absoluut nog niet gelukkig tijdens het raceweekend in China. De coureur hoopt nu dat zijn team goede aanpassingen gedaan heeft,...
 - [Raadsleden verdienen mede door bevolkingsgroei steeds meer: salaris 21 procent hoger dan vier jaar geleden](https://www.ad.nl/binnenland/raadsleden-verdienen-mede-door-bevolkingsgroei-steeds-meer-salaris-21-procent-hoger-dan-vier-jaar-geleden~a6b2e88c/)
   > Raadsleden zijn er sinds de laatste gemeenteraadsverkiezingen in 2022 financieel flink op vooruitgegaan. In vier jaar tijd steeg de vergoeding met...
-- [Noord-Korea vuurt tien ballistische raketten af richting Japanse Zee](https://www.ad.nl/buitenland/noord-korea-vuurt-tien-ballistische-raketten-af-richting-japanse-zee~ad34d97b/)
-  > Noord-Korea heeft zaterdag tien ballistische raketten afgevuurd in de richting van de Japanse Zee. Dat meldt het Zuid-Koreaanse leger.
-- [Max Verstappen hoopt op effectieve aanpassingen voor kwalificatie in China](https://www.ad.nl/formule-1/max-verstappen-hoopt-op-effectieve-aanpassingen-voor-kwalificatie-in-china~a586b27d0/)
-  > Max Verstappen is absoluut nog niet gelukkig tijdens het raceweekend in China. De coureur hoopt nu dat zijn team goede aanpassingen gedaan heeft,...
-- [Explosie bij Joodse school in Amsterdam, Halsema spreekt van ‘gerichte aanval’ en ‘laffe daad’](https://www.ad.nl/binnenland/explosie-bij-joodse-school-in-amsterdam-halsema-spreekt-van-gerichte-aanval-en-laffe-daad~a6ff5378/)
-  > Bij een Joodse school aan de Zeelandstraat in Amsterdam-Buitenveldert heeft in de nacht van vrijdag op zaterdag een explosie plaatsgevonden. Politie...
-- [Acteurs en crew bij nieuwe serie Máxima: niemand houdt het droog als de bandoneon begint te spelen](https://www.ad.nl/show/acteurs-en-crew-bij-nieuwe-serie-maxima-niemand-houdt-het-droog-als-de-bandoneon-begint-te-spelen~a6e22e9e/)
-  > Zelfs de crew was geëmotioneerd toen het huwelijk tussen Willem-Alexander en Máxima werd nagespeeld voor de tweede Videoland-serie Máxima. Deze site...
 
 ### Meest gelezen
 
