@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-03-2026 om 22:31*
+*Laatst bijgewerkt: 14-03-2026 om 23:32*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Manchester City lijdt nieuw puntenverlies uit bij West Ham: Premier League-titel verder uit zicht](https://www.ad.nl/voetbal/manchester-city-lijdt-nieuw-puntenverlies-uit-bij-west-ham-premier-league-titel-verder-uit-zicht~a2d697f5/)
-  > Manchester City heeft zaterdagavond opnieuw puntenverlies geleden in de strijd om de Premier League-titel. De ploeg van trainer Pep Guardiola kwam op...
+- [Ajax-verdediger Takehiro Tomiyasu na eerste basisplaats in twee jaar: ‘Ik zat er na een uur helemaal doorheen’](https://www.ad.nl/voetbal/ajax-verdediger-takehiro-tomiyasu-na-eerste-basisplaats-in-twee-jaar-ik-zat-er-na-een-uur-helemaal-doorheen~a0c97586/)
+  > Takehiro Tomiyasu hield het zaterdagavond 69 minuten vol op linksback bij Ajax. Het was voor de Japanse verdediger zijn eerste basisplaats sinds 19...
+- [Tijden Formule 1 Grand Prix van China | Vroeg op voor de race in Shanghai: zo laat komt Max Verstappen in actie en dit is de startopstelling](https://www.ad.nl/formule-1/tijden-formule-1-grand-prix-van-china-vroeg-op-voor-de-race-in-shanghai-zo-laat-komt-max-verstappen-in-actie-en-dit-is-de-startopstelling~a6788441/)
+  > Na het eerste raceweekend van het jaar reizen Max Verstappen en zijn collega’s direct door naar Shanghai voor de Grand Prix van China. Daar kunnen de...
+- [Real Madrid houdt druk op FC Barcelona, Arda Güler scoort van 70 meter](https://www.ad.nl/voetbal/real-madrid-houdt-druk-op-fc-barcelona-arda-guler-scoort-van-70-meter~a0648712/)
+  > Real Madrid heeft drie dagen na de zege op Manchester City in de Champions League (3-0) ook in La Liga gewonnen. De thuiswedstrijd tegen laagvlieger...
 - [Nederlandse shorttracksters pakken ultieme revanche met wereldtitel op de aflossing](https://www.ad.nl/schaatsen/nederlandse-shorttracksters-pakken-ultieme-revanche-met-wereldtitel-op-de-aflossing~a574bc83/)
   > De Nederlandse vrouwen hebben revanche genomen voor hun mislukte olympische relay-finale. Een inhaalactie van Xandra Velzeboer in de voorlaatste...
-- [Peter Bosz kon met PSV moeilijk antwoord vinden op spel van NEC: ‘Ze schoten iedere bal naar voren’](https://www.ad.nl/voetbal/peter-bosz-kon-met-psv-moeilijk-antwoord-vinden-op-spel-van-nec-ze-schoten-iedere-bal-naar-voren~af130f7f/)
-  > PSV-trainer Peter Bosz heeft complimenten uitgedeeld aan NEC. De Nijmegenaren waren voor de tweede keer deze maand de koploper van de Eredivisie de...
-- [Test Toyota Corolla Cross Hybrid: lekker zuinig en hij rijdt goed](https://www.ad.nl/auto/test-toyota-corolla-cross-hybrid-lekker-zuinig-en-hij-rijdt-goed~a1e39646f/)
-  > De Toyota Corolla Cross Is een no-nonsense hybride zonder stekker. Hij combineert een hoge instap met een krachtige aandrijflijn.
-- [Michael van Gerwen verliest ondanks gemiddelde van 107 (!) met ruime cijfers van landgenoot](https://www.ad.nl/darts/michael-van-gerwen-verliest-ondanks-gemiddelde-van-107-met-ruime-cijfers-van-landgenoot~a6a2d22d/)
-  > Een torenhoog gemiddelde van 107 gooien, maar toch verliezen: het overkwam Michael van Gerwen zaterdagavond. De Nederlandse darter verloor in...
+- [Manchester City lijdt nieuw puntenverlies bij West Ham United: titel verder uit zicht](https://www.ad.nl/voetbal/manchester-city-lijdt-nieuw-puntenverlies-bij-west-ham-united-titel-verder-uit-zicht~a2d697f5/)
+  > Manchester City heeft zaterdagavond opnieuw puntenverlies geleden in de strijd om de Premier League-titel. De ploeg van trainer Pep Guardiola kwam op...
 
 ### Meest gelezen
 
