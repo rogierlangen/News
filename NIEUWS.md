@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-03-2026 om 21:31*
+*Laatst bijgewerkt: 14-03-2026 om 22:31*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Ugandese oppositieleider Bobi Wine heeft het land verlaten](https://nos.nl/l/2606365)
+  > De Ugandese oppositieleider Bobi Wine is niet meer in Uganda. "Als je deze video ziet, heb ik het land inmiddels verlaten", zegt Wine in een video op...
 - [Roep om maatregelen na dood van vier paarden op renbaan Cheltenham](https://nos.nl/l/2606349)
   > In het Verenigd Koninkrijk roepen dierenrechtenorganisaties op tot strengere maatregelen bij paardenrace-evenementen. Aanleiding is de meest recente...
 - [Kiezer stemt woensdag voor lokale belangen, landelijke kopstukken de straat op](https://nos.nl/l/2606335)
@@ -16,8 +18,6 @@
   > Van Parijs tot de allerkleinste plattelandsdorpen: in een kleine 35.000 Franse gemeenten trekken mensen morgen naar de stembus voor de eerste ronde...
 - [Voormalige Motörhead-gitarist Phil Campbell (64) overleden](https://nos.nl/l/2606319)
   > Oud-gitarist Phil Campbell van de Britse heavymetalband Motörhead is overleden. Dat heeft Campbells huidige band laten weten op Facebook. Hij...
-- [Meerdere ongevallen door hagelbuien in Noord-Nederland](https://nos.nl/l/2606312)
-  > In het noorden van het land zijn ongelukken gebeurd toen er een felle hagelbui over het gebied trok. Op de A28 tussen Eelde en Haren botsten meerdere...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Manchester City lijdt nieuw puntenverlies uit bij West Ham: Premier League-titel verder uit zicht](https://www.ad.nl/voetbal/manchester-city-lijdt-nieuw-puntenverlies-uit-bij-west-ham-premier-league-titel-verder-uit-zicht~a2d697f5/)
+  > Manchester City heeft zaterdagavond opnieuw puntenverlies geleden in de strijd om de Premier League-titel. De ploeg van trainer Pep Guardiola kwam op...
+- [Nederlandse shorttracksters pakken ultieme revanche met wereldtitel op de aflossing](https://www.ad.nl/schaatsen/nederlandse-shorttracksters-pakken-ultieme-revanche-met-wereldtitel-op-de-aflossing~a574bc83/)
+  > De Nederlandse vrouwen hebben revanche genomen voor hun mislukte olympische relay-finale. Een inhaalactie van Xandra Velzeboer in de voorlaatste...
+- [Peter Bosz kon met PSV moeilijk antwoord vinden op spel van NEC: ‘Ze schoten iedere bal naar voren’](https://www.ad.nl/voetbal/peter-bosz-kon-met-psv-moeilijk-antwoord-vinden-op-spel-van-nec-ze-schoten-iedere-bal-naar-voren~af130f7f/)
+  > PSV-trainer Peter Bosz heeft complimenten uitgedeeld aan NEC. De Nijmegenaren waren voor de tweede keer deze maand de koploper van de Eredivisie de...
+- [Test Toyota Corolla Cross Hybrid: lekker zuinig en hij rijdt goed](https://www.ad.nl/auto/test-toyota-corolla-cross-hybrid-lekker-zuinig-en-hij-rijdt-goed~a1e39646f/)
+  > De Toyota Corolla Cross Is een no-nonsense hybride zonder stekker. Hij combineert een hoge instap met een krachtige aandrijflijn.
 - [Michael van Gerwen verliest ondanks gemiddelde van 107 (!) met ruime cijfers van landgenoot](https://www.ad.nl/darts/michael-van-gerwen-verliest-ondanks-gemiddelde-van-107-met-ruime-cijfers-van-landgenoot~a6a2d22d/)
   > Een torenhoog gemiddelde van 107 gooien, maar toch verliezen: het overkwam Michael van Gerwen zaterdagavond. De Nederlandse darter verloor in...
-- [Trump wil dat andere landen Straat van Hormuz beveiligen: ‘Gezamenlijke inspanning’](https://www.ad.nl/buitenland/trump-wil-dat-andere-landen-straat-van-hormuz-beveiligen-gezamenlijke-inspanning~ac528ac3/)
-  > De Amerikaanse president Donald Trump vindt dat de landen die olie geleverd krijgen via de Straat van Hormuz moeten instaan voor de veiligheid van de...
-- [Heerenveen zet winstreeks voort met ruime zege op Telstar, Rivera maakt indruk met fraaie treffer](https://www.ad.nl/voetbal/heerenveen-zet-winstreeks-voort-met-ruime-zege-op-telstar-rivera-maakt-indruk-met-fraaie-treffer~a8f79f1f/)
-  > Heerenveen heeft zaterdagavond een ogenschijnlijk comfortabele 3-0 zege geboekt op Telstar. In het Abe Lenstra Stadion maakte vooral Maxence Rivera...
-- [Patrick Kluivert en Clarence Seedorf staan Suriname bij richting play-offs voor WK-ticket](https://www.ad.nl/wk-voetbal/patrick-kluivert-en-clarence-seedorf-staan-suriname-bij-richting-play-offs-voor-wk-ticket~a1a16b67/)
-  > Patrick Kluivert en Clarence Seedorf staan Suriname bij als adviseurs richting de play-offs voor het WK voetbal van later deze maand. „Het zijn geen...
-- [Jens van ’t Wout en Xandra Velzeboer pakken zilveren medailles, domper voor relay-mannen](https://www.ad.nl/schaatsen/jens-van-t-wout-en-xandra-velzeboer-pakken-zilveren-medailles-domper-voor-relay-mannen~a574bc83/)
-  > Na de geweldige Olympische Winterspelen voor de Nederlandse shorttrackers staat dit weekend het seizoenstoetje op het menu: het WK shorttrack in het...
 
 ### Meest gelezen
 
