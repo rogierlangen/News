@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-03-2026 om 20:34*
+*Laatst bijgewerkt: 14-03-2026 om 21:31*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Jens van ’t Wout alsnog naar finale op kortste afstand na harde val, zilver voor Xandra Velzeboer](https://www.ad.nl/schaatsen/jens-van-t-wout-alsnog-naar-finale-op-kortste-afstand-na-harde-val-zilver-voor-xandra-velzeboer~a574bc83/)
+- [Michael van Gerwen verliest ondanks gemiddelde van 107 (!) met ruime cijfers van landgenoot](https://www.ad.nl/darts/michael-van-gerwen-verliest-ondanks-gemiddelde-van-107-met-ruime-cijfers-van-landgenoot~a6a2d22d/)
+  > Een torenhoog gemiddelde van 107 gooien, maar toch verliezen: het overkwam Michael van Gerwen zaterdagavond. De Nederlandse darter verloor in...
+- [Trump wil dat andere landen Straat van Hormuz beveiligen: ‘Gezamenlijke inspanning’](https://www.ad.nl/buitenland/trump-wil-dat-andere-landen-straat-van-hormuz-beveiligen-gezamenlijke-inspanning~ac528ac3/)
+  > De Amerikaanse president Donald Trump vindt dat de landen die olie geleverd krijgen via de Straat van Hormuz moeten instaan voor de veiligheid van de...
+- [Heerenveen zet winstreeks voort met ruime zege op Telstar, Rivera maakt indruk met fraaie treffer](https://www.ad.nl/voetbal/heerenveen-zet-winstreeks-voort-met-ruime-zege-op-telstar-rivera-maakt-indruk-met-fraaie-treffer~a8f79f1f/)
+  > Heerenveen heeft zaterdagavond een ogenschijnlijk comfortabele 3-0 zege geboekt op Telstar. In het Abe Lenstra Stadion maakte vooral Maxence Rivera...
+- [Patrick Kluivert en Clarence Seedorf staan Suriname bij richting play-offs voor WK-ticket](https://www.ad.nl/wk-voetbal/patrick-kluivert-en-clarence-seedorf-staan-suriname-bij-richting-play-offs-voor-wk-ticket~a1a16b67/)
+  > Patrick Kluivert en Clarence Seedorf staan Suriname bij als adviseurs richting de play-offs voor het WK voetbal van later deze maand. „Het zijn geen...
+- [Jens van ’t Wout en Xandra Velzeboer pakken zilveren medailles, domper voor relay-mannen](https://www.ad.nl/schaatsen/jens-van-t-wout-en-xandra-velzeboer-pakken-zilveren-medailles-domper-voor-relay-mannen~a574bc83/)
   > Na de geweldige Olympische Winterspelen voor de Nederlandse shorttrackers staat dit weekend het seizoenstoetje op het menu: het WK shorttrack in het...
-- [We doen er alles aan om kinderen krijgen zo lastig mogelijk te maken](https://www.ad.nl/politiek/we-doen-er-alles-aan-om-kinderen-krijgen-zo-lastig-mogelijk-te-maken~a6c2566d/)
-  > Jongeren zetten hun leven op pauze. Samenwonen, kinderen krijgen: alles wordt uitgesteld. Elke politicus zegt zich er zorgen over te maken. Toch zat...
-- [PSV moet nog minimaal week wachten op kampioensfeest: NEC boekt historische zege](https://www.ad.nl/voetbal/psv-moet-nog-minimaal-week-wachten-op-kampioensfeest-nec-boekt-historische-zege~aaf09611/)
-  > PSV wordt dit weekend nog geen landskampioen. In de thuiswedstrijd tegen NEC gingen de Eindhovenaren opnieuw onderuit: 2-3. NEC domineerde de...
-- [Chelsea sluit scheids op in huddle, Arsenal ziet Timber geblesseerd uitvallen bij moeizame zege](https://www.ad.nl/voetbal/chelsea-sluit-scheids-op-in-huddle-arsenal-ziet-timber-geblesseerd-uitvallen-bij-moeizame-zege~a6879bb3/)
-  > Een opmerkelijk moment zaterdagavond in de Premier League. De Engelse scheidsrechter Paul Tierney (45) zat voor de wedstrijd tussen Chelsea en...
-- [Lucky Fonz III: ‘Beetje bij beetje worden mijn inhammen groter en mijn haar dunner, dat maakt me onzeker’](https://www.ad.nl/gezond/lucky-fonz-iii-beetje-bij-beetje-worden-mijn-inhammen-groter-en-mijn-haar-dunner-dat-maakt-me-onzeker~af328585/)
-  > Na een zware depressie is hij bewuster gaan eten en ontdekte hij het effect van sporten op zijn geest. ‘Werkt voor mij als een malle.’
 
 ### Meest gelezen
 
