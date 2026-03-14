@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-03-2026 om 16:37*
+*Laatst bijgewerkt: 14-03-2026 om 17:31*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Voormalige Motörhead-gitarist Phil Campbell (64) overleden](https://nos.nl/l/2606319)
+  > Oud-gitarist Phil Campbell van de Britse heavymetalband Motörhead is overleden. Dat heeft Campbells huidige band laten weten op Facebook. Hij...
 - [Meerdere ongevallen door hagelbuien in Noord-Nederland](https://nos.nl/l/2606312)
   > In het noorden van het land zijn ongelukken gebeurd toen er een felle hagelbui over het gebied trok. Op de A28 tussen Eelde en Haren botsten meerdere...
 - [Duitse filosoof en socioloog Jürgen Habermas (96) overleden](https://nos.nl/l/2606301)
@@ -16,8 +18,6 @@
   > De politie is op zoek naar twee verdachten na de explosie vannacht bij een joodse school in Amsterdam. Uit onderzoek is gebleken dat twee mensen op...
 - [Positieve reacties op beeldbellen met 112-meldkamer: 'Extra zintuig'](https://nos.nl/l/2606291)
   > Een nieuwe mogelijkheid van de ambulancedienst Zuid-Holland Zuid waardoor mensen met een medisch noodgeval kunnen beeldbellen met de meldkamer, leidt...
-- [Rotseilandje Kharg ineens brandpunt in Iran-oorlog](https://nos.nl/l/2606288)
-  > De VS heeft het eiland Kharg in de Perzische Golf aangevallen, ondanks dreigementen van Iran. Het kan leiden tot een nieuwe escalatie in de oorlog,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Belgische premier pleit voor deal met Rusland: ‘Europese leiders durven het niet hardop te zeggen’](https://www.ad.nl/buitenland/belgische-premier-pleit-voor-deal-met-rusland-europese-leiders-durven-het-niet-hardop-te-zeggen~adfb97be/)
-  > De Europese Unie moet van de lidstaten het mandaat krijgen om met Rusland te onderhandelen over een vredesakkoord met Oekraïne. Dat zegt de Belgische...
-- [Pijnlijk tv-moment DJ Jean gaat na tien jaar weer viraal dankzij perfecte parodie van Bram Krikke: ‘Alles klopt’](https://www.ad.nl/show/pijnlijk-tv-moment-dj-jean-gaat-na-tien-jaar-weer-viraal-dankzij-perfecte-parodie-van-bram-krikke-alles-klopt~a2be7577/)
-  > Bram Krikke (31) zorgt voor grote hilariteit op sociale media met een parodie van een beroemd tv-fragment. Tien jaar na een pijnlijk optreden van DJ...
-- [Woedende Denzel Dumfries speelt negatieve hoofdrol bij puntenverlies Inter](https://www.ad.nl/voetbal/woedende-denzel-dumfries-speelt-negatieve-hoofdrol-bij-puntenverlies-inter~a2946aed/)
-  > Internazionale heeft in de strijd om de Italiaanse landstitel punten verspeeld. De koploper incasseerde in de thuiswedstrijd tegen Atalanta kort voor...
-- [Raymond Thiry duikt ineens wél de BN'er-wereld in: ‘Je loopt toch ook niet met je blote reet op straat?’](https://www.ad.nl/show/raymond-thiry-duikt-ineens-wel-de-bn-er-wereld-in-je-loopt-toch-ook-niet-met-je-blote-reet-op-straat~afe008f6/)
-  > Hij bleef altijd bewust weg van tv-programma’s in de BN’er-sfeer, nu presenteert Raymond Thiry er zelf eentje. De 66-jarige acteur, vaak gecast als...
-- [Engelse darter doet 18 uur over reis na plotselinge oproep om tegen Doets te spelen: ‘Hoop op een dutje’](https://www.ad.nl/darts/engelse-darter-doet-18-uur-over-reis-na-plotselinge-oproep-om-tegen-doets-te-spelen-hoop-op-een-dutje~a9110e5d/)
-  > Darter Cameron Crabtree was op reis in de Verenigde Staten toen hij plotseling een telefoontje kreeg met de vraag of hij alsnog wilde deelnemen aan...
+- [Fortuna Sittard houdt zicht op play-offs na zege bij FC Volendam, dat weer naar beneden moet kijken](https://www.ad.nl/voetbal/fortuna-sittard-houdt-zicht-op-play-offs-na-zege-bij-fc-volendam-dat-weer-naar-beneden-moet-kijken~a97cc869/)
+  > Fortuna Sittard heeft weer zicht op deelname aan de play-offs om Europees voetbal. De ploeg van trainer Danny Buijs won zaterdag met 1-2 in de...
+- [Jongen (15) brengt vriendin naar school met gestolen lijnbus in Duitsland, politie vindt hem 150 km verderop](https://www.ad.nl/buitenland/jongen-15-brengt-vriendin-naar-school-met-gestolen-lijnbus-in-duitsland-politie-vindt-hem-150-km-verderop~a1f3809d/)
+  > Een 15-jarige jongen uit Mainz heeft vrijdagochtend een openbare bus gestolen en vervolgens zijn vriendin ermee naar school gebracht. De...
+- [Joey Veerman ontbreekt bij PSV, nummer drie NEC won nog nooit in Eindhoven](https://www.ad.nl/voetbal/joey-veerman-ontbreekt-bij-psv-nummer-drie-nec-won-nog-nooit-in-eindhoven~aaf09611/)
+  > Koploper PSV ging elf dagen geleden in de halve finales van de KNVB-beker onderuit tegen NEC. In de VriendenLoterij Eredivisie krijgt de ploeg van...
+- [Jarenlang hield Hugo zijn tattoos verborgen, tot de burn-out kwam: ‘Tijdens vergadering zat ik te janken’](https://www.ad.nl/binnenland/jarenlang-hield-hugo-zijn-tattoos-verborgen-tot-de-burn-out-kwam-tijdens-vergadering-zat-ik-te-janken~a293d275/)
+  > Hugo Goorhuis was de onberispelijke medewerker bij Philips. Altijd keurig in pak met stropdas en gestreken hemd. Op het grijze af. Maar toen ging hij...
+- [Jelle had het gehad met het artiestenleven, maar toch deed hij mee aan The Voice](https://www.ad.nl/gorinchem/jelle-had-het-gehad-met-het-artiestenleven-maar-toch-deed-hij-mee-aan-the-voice~afe9aae1/)
+  > Jelle de Boon (28) uit Gorinchem voelde zijn hart kloppen toen hij het podium van ‘The Voice’ opstapte. Na zijn winst aan een Belgische talentenjacht...
 
 ### Meest gelezen
 
