@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-03-2026 om 23:33*
+*Laatst bijgewerkt: 14-03-2026 om 02:28*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Politie deelt beelden van daders ernstige mishandeling in Rotterdam](https://nos.nl/l/2606244)
+  > De politie heeft beelden gedeeld van de twee verdachten van een ernstige mishandeling in Rotterdam. De mannen hebben half januari een man op straat...
 - [Rechter blokkeert vervolging Fed-voorzitter Powell, 'geen enkel bewijs'](https://nos.nl/l/2606241)
   > Een rechter in de Verenigde Staten heeft de dagvaardingen tegen de voorzitter van de Amerikaanse centrale bank (Fed), Jerome Powell, geblokkeerd. Dat...
 - [Uruguayaanse drugsbaron Sebastián Marset opgepakt in Bolivia](https://nos.nl/l/2606236)
@@ -16,8 +18,6 @@
   > Wonen en veiligheid: dat waren de belangrijkste thema's waarover zestien lijsttrekkers uit verschillende gemeenten met elkaar in debat gingen in het...
 - [Olietanker van schaduwvloot voer met vlag van Curaçao door Straat van Hormuz](https://nos.nl/l/2606228)
   > Een olietanker met de vlag van Curaçao is eergisteren door de Straat van Hormuz gevaren. Dat blijkt uit een analyse van scheepsdata van website...
-- [Pleegmoeder van doodgeschoten Jerryson onverwachts overleden: 'Gaf mensen liefde'](https://nos.nl/l/2606226)
-  > De pleegmoeder van de 15-jarige Jerryson die vorig jaar bij de McDonald's in Capelle aan den IJssel door een agent werd doodgeschoten, is onverwachts...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [VS bombarderen toch Iraans eiland Kharg, cruciaal voor de wereldwijde oliehandel](https://www.ad.nl/buitenland/vs-bombarderen-toch-iraans-eiland-kharg-cruciaal-voor-de-wereldwijde-oliehandel~a82993e1/)
+  > Lang bleef het cruciale Iraanse eiland Kharg gespaard voor de Amerikaanse bombardementen. Maar uiteindelijk voerde de Amerikaanse luchtmacht toch een...
+- [Binnen vijf minuten belt oplichter Fred al op: ‘Je bent in goede handen’](https://www.ad.nl/binnenland/binnen-vijf-minuten-belt-oplichter-fred-al-op-je-bent-in-goede-handen~a65a33ad/)
+  > Met nagemaakte AD-artikelen waarin BN’ers zogenaamd het bestaan van een revolutionair beleggingsplatform ‘onthullen’, worden al jarenlang mensen...
+- [Trump vervangt leiding van ‘zijn’ Kennedy Center](https://www.ad.nl/buitenland/trump-vervangt-leiding-van-zijn-kennedy-center~ae67dd9c/)
+  > Donald Trump heeft bekendgemaakt dat de directievoorzitter van het cultureel centrum Kennedy Center in Washington wordt vervangen. Op zijn eigen...
 - [Opvallende BN’er op de tribune bij De slimste mens](https://www.ad.nl/show/opvallende-bner-op-de-tribune-bij-de-slimste-mens~a7b77863/)
   > Bij de televisiequiz De slimste mens zitten niet alleen min of meer bekende Nederlanders in de stoelen van de kandidaten, zo bleek vrijdagavond. Deze...
 - [Cor Pot geeft update over Dick Advocaat en zijn zieke dochter: ‘De chemokuur slaat aan, hij was opgelucht’](https://www.ad.nl/wk-voetbal/cor-pot-geeft-update-over-dick-advocaat-en-zijn-zieke-dochter-de-chemokuur-slaat-aan-hij-was-opgelucht~a1975b39/)
   > Dick Advocaat heeft goed nieuws gekregen over zijn ernstig zieke dochter: de chemokuur slaat aan. Dat vertelde zijn assistent Cor Pot vrijdagavond...
-- [ADO Den Haag kan dinsdag promotiefeest vieren, Cambuur laat punten liggen](https://www.ad.nl/voetbal/ado-den-haag-kan-dinsdag-promotiefeest-vieren-cambuur-laat-punten-liggen~af89adcc/)
-  > ADO Den Haag heeft vrijdagavond weer een stap richting promotie gezet. De koploper van de Keuken Kampioen Divisie won door een vroege goal van Daryl...
-- [VS looft 10 miljoen dollar uit voor informatie over opperste leider van Iran](https://www.ad.nl/buitenland/vs-looft-10-miljoen-dollar-uit-voor-informatie-over-opperste-leider-van-iran~ac528ac3/)
-  > De VS looft tot 10 miljoen dollar (8,7 miljoen euro) uit voor tips rond de Iraanse opperste leider Mojtaba Khamenei en enkele belangrijke figuren in...
-- [TransferTalk | Broer en zus James verlengen contract bij Chelsea, Potter langer bij Zweden](https://www.ad.nl/voetbal/transfertalk-broer-en-zus-james-verlengen-contract-bij-chelsea-potter-langer-bij-zweden~a35ea681/)
-  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
 
 ### Meest gelezen
 
