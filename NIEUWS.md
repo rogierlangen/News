@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-03-2026 om 18:46*
+*Laatst bijgewerkt: 14-03-2026 om 19:30*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [NEC ruikt historische zege bij PSV na doelpunt El Kachati: thuisploeg diep in problemen](https://www.ad.nl/voetbal/nec-ruikt-historische-zege-bij-psv-na-doelpunt-el-kachati-thuisploeg-diep-in-problemen~aaf09611/)
+  > Koploper PSV ging elf dagen geleden in de halve finales van de KNVB-beker onderuit tegen NEC. In de VriendenLoterij Eredivisie krijgt de ploeg van...
+- [Robin dreigt zichzelf te verliezen, die nacht aan de rivier verandert alles: zo ontstond zijn eerste boek](https://www.ad.nl/binnenland/robin-dreigt-zichzelf-te-verliezen-die-nacht-aan-de-rivier-verandert-alles-zo-ontstond-zijn-eerste-boek~ac182222/)
+  > Zittend op een bankje aan de rivier in het holst van de nacht bekruipt Robin van Eek (31) de gedachte: ‘Als ik nu spring…’ De muziek op zijn oortjes...
+- [LIVE eredivisie | Heerenveen met het nodige fortuin op voorsprong in vermakelijk duel tegen Telstar](https://www.ad.nl/voetbal/live-eredivisie-heerenveen-met-het-nodige-fortuin-op-voorsprong-in-vermakelijk-duel-tegen-telstar~a8f79f1f/)
+  > Telstar staat zestiende in de eredivisie en heeft directe handhaving nog in het vizier. Vandaag gaat de ploeg van Anthony Correia op bezoek bij sc...
+- [Paus Leo verhuist naar ‘uitbundig paleis’ waar vorige paus niet in wilde wonen](https://www.ad.nl/buitenland/paus-leo-verhuist-naar-uitbundig-paleis-waar-vorige-paus-niet-in-wilde-wonen~a5019c03/)
+  > Paus Leo XIV heeft definitief zijn intrek genomen in het Apostolisch Paleis, de officiële ambtswoning van de leider van de katholieke kerk. Toch...
 - [Dave Roelvink en Marijn Kuipers gaan trouwen: ‘Forever looks good on us’](https://www.ad.nl/show/dave-roelvink-en-marijn-kuipers-gaan-trouwen-forever-looks-good-on-us~ac78bafa/)
   > Dave Roelvink en Marijn Kuipers gaan trouwen. De twee kondigen zaterdagavond op sociale media aan dat ze zijn verloofd.
-- [VS versoepelt Russische oliesancties, maar Moskou moet zich nog niet rijk rekenen](https://www.ad.nl/buitenland/vs-versoepelt-russische-oliesancties-maar-moskou-moet-zich-nog-niet-rijk-rekenen~ab459b8f/)
-  > De Amerikaanse regering heeft tot 11 april de beperkingen voor Rusland opgeheven om olie over zee te exporteren. Op de korte termijn zal het land er...
-- [PSV rost snelle aansluitingstreffer binnen na twee goals van Bryan Linssen](https://www.ad.nl/voetbal/psv-rost-snelle-aansluitingstreffer-binnen-na-twee-goals-van-bryan-linssen~aaf09611/)
-  > Koploper PSV ging elf dagen geleden in de halve finales van de KNVB-beker onderuit tegen NEC. In de VriendenLoterij Eredivisie krijgt de ploeg van...
-- [Wat gebeurt hier? Engelse scheidsrechter zit plots opgesloten in huddle met Chelsea-spelers](https://www.ad.nl/voetbal/wat-gebeurt-hier-engelse-scheidsrechter-zit-plots-opgesloten-in-huddle-met-chelsea-spelers~a6879bb3/)
-  > Een opmerkelijk moment zaterdagavond in de Premier League. De Engelse scheidsrechter Paul Tierney (45) zat voor de wedstrijd tussen Chelsea en...
-- [Groot of klein, dit zijn de beste inbouwvriezers](https://www.ad.nl/wonen/groot-of-klein-dit-zijn-de-beste-inbouwvriezers~ae977c57/)
-  > Zit jouw vriezer standaard vol met groente, brood, vlees en restjes avondeten? Dan wil je genoeg ruimte hebben. De Consumentenbond testte...
 
 ### Meest gelezen
 
