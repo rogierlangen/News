@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-03-2026 om 02:28*
+*Laatst bijgewerkt: 14-03-2026 om 04:45*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Aardbeving van 3.0 bij Eleveld in Drenthe: 'Deze was goed te voelen'](https://nos.nl/l/2606245)
+  > Bij het Drentse gasveld Eleveld is vannacht een aardbeving geweest met een kracht van 3.0. Dat meldt het KNMI op basis van automatische metingen. De...
 - [Politie deelt beelden van daders ernstige mishandeling in Rotterdam](https://nos.nl/l/2606244)
   > De politie heeft beelden gedeeld van de twee verdachten van een ernstige mishandeling in Rotterdam. De mannen hebben half januari een man op straat...
 - [Rechter blokkeert vervolging Fed-voorzitter Powell, 'geen enkel bewijs'](https://nos.nl/l/2606241)
@@ -16,8 +18,6 @@
   > De Uruguayaanse drugscrimineel Sebastián Marset is gearresteerd in Bolivia. De kartelbaas stond al jaren internationaal gesignaleerd en werd gezocht...
 - [Nuanceverschillen, maar vooral overeenstemming in het NOS-radiodebat](https://nos.nl/l/2606229)
   > Wonen en veiligheid: dat waren de belangrijkste thema's waarover zestien lijsttrekkers uit verschillende gemeenten met elkaar in debat gingen in het...
-- [Olietanker van schaduwvloot voer met vlag van Curaçao door Straat van Hormuz](https://nos.nl/l/2606228)
-  > Een olietanker met de vlag van Curaçao is eergisteren door de Straat van Hormuz gevaren. Dat blijkt uit een analyse van scheepsdata van website...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [VS bombarderen toch Iraans eiland Kharg, cruciaal voor de wereldwijde oliehandel](https://www.ad.nl/buitenland/vs-bombarderen-toch-iraans-eiland-kharg-cruciaal-voor-de-wereldwijde-oliehandel~a82993e1/)
-  > Lang bleef het cruciale Iraanse eiland Kharg gespaard voor de Amerikaanse bombardementen. Maar uiteindelijk voerde de Amerikaanse luchtmacht toch een...
-- [Binnen vijf minuten belt oplichter Fred al op: ‘Je bent in goede handen’](https://www.ad.nl/binnenland/binnen-vijf-minuten-belt-oplichter-fred-al-op-je-bent-in-goede-handen~a65a33ad/)
-  > Met nagemaakte AD-artikelen waarin BN’ers zogenaamd het bestaan van een revolutionair beleggingsplatform ‘onthullen’, worden al jarenlang mensen...
-- [Trump vervangt leiding van ‘zijn’ Kennedy Center](https://www.ad.nl/buitenland/trump-vervangt-leiding-van-zijn-kennedy-center~ae67dd9c/)
-  > Donald Trump heeft bekendgemaakt dat de directievoorzitter van het cultureel centrum Kennedy Center in Washington wordt vervangen. Op zijn eigen...
-- [Opvallende BN’er op de tribune bij De slimste mens](https://www.ad.nl/show/opvallende-bner-op-de-tribune-bij-de-slimste-mens~a7b77863/)
-  > Bij de televisiequiz De slimste mens zitten niet alleen min of meer bekende Nederlanders in de stoelen van de kandidaten, zo bleek vrijdagavond. Deze...
-- [Cor Pot geeft update over Dick Advocaat en zijn zieke dochter: ‘De chemokuur slaat aan, hij was opgelucht’](https://www.ad.nl/wk-voetbal/cor-pot-geeft-update-over-dick-advocaat-en-zijn-zieke-dochter-de-chemokuur-slaat-aan-hij-was-opgelucht~a1975b39/)
-  > Dick Advocaat heeft goed nieuws gekregen over zijn ernstig zieke dochter: de chemokuur slaat aan. Dat vertelde zijn assistent Cor Pot vrijdagavond...
+- [Hadjar deelt plaagstoot uit aan Antonelli: ‘Snap niet dat hij zo overenthousiast is met die raket’](https://www.ad.nl/formule-1/hadjar-deelt-plaagstoot-uit-aan-antonelli-snap-niet-dat-hij-zo-overenthousiast-is-met-die-raket~a11cae96/)
+  > Het Formule 1-circus strijkt deze week neer in Sjanghai, waar de Grand Prix van China wordt afgewerkt. Volg alle ontwikkelingen op en naast het...
+- [Flatbewoners balen: glazen wand moet weg en dat kost ze zo’n 18.000 euro](https://www.ad.nl/binnenland/flatbewoners-balen-glazen-wand-moet-weg-en-dat-kost-ze-zon-18-000-euro~a0b34c37/)
+  > Je woont al jaren in een prachtige flat. Het is er stil, omdat een glazen wand al het geluid van de doorgaande weg tegenhoudt. Maar opeens moet al...
+- [Stand Formule 1 | George Russell loopt verder uit, puntloze Max Verstappen ziet achterstand groeien](https://www.ad.nl/formule-1/stand-formule-1-george-russell-loopt-verder-uit-puntloze-max-verstappen-ziet-achterstand-groeien~a8a75660/)
+  > George Russell heeft zijn koppositie in de Formule 1 verstevigd. De coureur van Mercedes won de sprintrace, terwijl teamgenoot Kimi Antonelli niet...
+- [Verstappen na horrorstart buiten de punten in sprintrace, ver achter winnaar Russell: ‘Helemaal ruk’](https://www.ad.nl/formule-1/verstappen-na-horrorstart-buiten-de-punten-in-sprintrace-ver-achter-winnaar-russell-helemaal-ruk~adaa9342/)
+  > Max Verstappen heeft een sprintrace in China achter de rug die hij snel zal willen vergeten. Na een werkelijk hondsberoerde start zakte de...
+- [Aardbeving met kracht van 3.0 bij Drentse Eleveld: ‘Hele huis schudde’](https://www.ad.nl/assen/aardbeving-met-kracht-van-3-0-bij-drentse-eleveld-hele-huis-schudde~ae1faf3d/)
+  > Het Drentse Eleveld is in de nacht van vrijdag op zaterdag getroffen door een aardbeving met een kracht van 3.0, meldt het KNMI op basis van...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Is private credit de nieuwe zeepbel? En wat is er mis met een vlaktaks op vermogen?](https://fd.nl/economie/1589645/is-private-credit-de-nieuwe-zeepbel-en-wat-is-er-mis-met-een-vlaktaks-op-vermogen)
+  > In deze Toegevoegde Waarde zien Anna Dijkman en Marijn Jongsma wat private credit aan emoties losmaakt en merken ze dat box 3 de gemoederen nog...
 - [Productiviteitswinst door AI? De meeste bedrijven zien het nog niet](https://fd.nl/politiek/1589631/productiviteitswinst-door-ai-de-meeste-bedrijven-zien-het-nog-niet)
   > Kunstmatige intelligentie zou leiden tot efficiëntere productie, lagere kosten en hogere arbeidsproductiviteit. Van dit permanente aanbodeffect is...
 - [De wethouder van buiten bestuurt prima, ‘maar ze houdt niet van de stad’](https://fd.nl/samenleving/1589376/de-wethouder-van-buiten-bestuurt-prima-maar-ze-houdt-niet-van-de-stad)
@@ -54,8 +56,6 @@
   > Het is Oscar-weekend. Grote kans dat acteurs zich laten zien met anti-Trump-buttons. Maar waarom zijn er nog geen kritische speelfilms over zijn...
 - [Over ayatollahs, mannetjes in het blauw en andere curieuze politici](https://fd.nl/opinie/1589599/over-ayatollahs-mannetjes-in-het-blauw-en-andere-curieuze-politici)
   > Waarom willen mensen eigenlijk nog de politiek in? Politici zijn 24/7 mikpunt van spot en doen het nooit goed.
-- [Chaotisch en poëtisch Istanbul](https://fd.nl/samenleving/1589076/chaotisch-en-poetisch-istanbul)
-  > De Schots-Turkse kunstenaar Leyla Pekmen woont sinds haar achttiende in Istanbul en verlangt altijd naar haar stad als ze op reis is. ‘Het hectische...
 
 ### Meest gelezen
 
