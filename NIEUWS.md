@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-03-2026 om 17:31*
+*Laatst bijgewerkt: 14-03-2026 om 18:46*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Kiezer stemt woensdag voor lokale belangen, landelijke kopstukken de straat op](https://nos.nl/l/2606335)
+  > Het is het weekend voor de gemeenteraadsverkiezingen en dus hebben mensen een grote kans dat ze de campagneteams van politieke partijen tegenkomen op...
+- [Frankrijk stemt voor gemeenteraadsverkiezingen, graadmeter voor presidentsrace](https://nos.nl/l/2606330)
+  > Van Parijs tot de allerkleinste plattelandsdorpen: in een kleine 35.000 Franse gemeenten trekken mensen morgen naar de stembus voor de eerste ronde...
 - [Voormalige Motörhead-gitarist Phil Campbell (64) overleden](https://nos.nl/l/2606319)
   > Oud-gitarist Phil Campbell van de Britse heavymetalband Motörhead is overleden. Dat heeft Campbells huidige band laten weten op Facebook. Hij...
 - [Meerdere ongevallen door hagelbuien in Noord-Nederland](https://nos.nl/l/2606312)
   > In het noorden van het land zijn ongelukken gebeurd toen er een felle hagelbui over het gebied trok. Op de A28 tussen Eelde en Haren botsten meerdere...
 - [Duitse filosoof en socioloog Jürgen Habermas (96) overleden](https://nos.nl/l/2606301)
   > De vooraanstaande Duitse filosoof en socioloog Jürgen Habermas is overleden, meldt zijn uitgeverij. Hij stierf op 96-jarige leeftijd in de Beierse...
-- [Politie zoekt twee verdachten na explosie op joodse school Amsterdam](https://nos.nl/l/2606292)
-  > De politie is op zoek naar twee verdachten na de explosie vannacht bij een joodse school in Amsterdam. Uit onderzoek is gebleken dat twee mensen op...
-- [Positieve reacties op beeldbellen met 112-meldkamer: 'Extra zintuig'](https://nos.nl/l/2606291)
-  > Een nieuwe mogelijkheid van de ambulancedienst Zuid-Holland Zuid waardoor mensen met een medisch noodgeval kunnen beeldbellen met de meldkamer, leidt...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Fortuna Sittard houdt zicht op play-offs na zege bij FC Volendam, dat weer naar beneden moet kijken](https://www.ad.nl/voetbal/fortuna-sittard-houdt-zicht-op-play-offs-na-zege-bij-fc-volendam-dat-weer-naar-beneden-moet-kijken~a97cc869/)
-  > Fortuna Sittard heeft weer zicht op deelname aan de play-offs om Europees voetbal. De ploeg van trainer Danny Buijs won zaterdag met 1-2 in de...
-- [Jongen (15) brengt vriendin naar school met gestolen lijnbus in Duitsland, politie vindt hem 150 km verderop](https://www.ad.nl/buitenland/jongen-15-brengt-vriendin-naar-school-met-gestolen-lijnbus-in-duitsland-politie-vindt-hem-150-km-verderop~a1f3809d/)
-  > Een 15-jarige jongen uit Mainz heeft vrijdagochtend een openbare bus gestolen en vervolgens zijn vriendin ermee naar school gebracht. De...
-- [Joey Veerman ontbreekt bij PSV, nummer drie NEC won nog nooit in Eindhoven](https://www.ad.nl/voetbal/joey-veerman-ontbreekt-bij-psv-nummer-drie-nec-won-nog-nooit-in-eindhoven~aaf09611/)
+- [Dave Roelvink en Marijn Kuipers gaan trouwen: ‘Forever looks good on us’](https://www.ad.nl/show/dave-roelvink-en-marijn-kuipers-gaan-trouwen-forever-looks-good-on-us~ac78bafa/)
+  > Dave Roelvink en Marijn Kuipers gaan trouwen. De twee kondigen zaterdagavond op sociale media aan dat ze zijn verloofd.
+- [VS versoepelt Russische oliesancties, maar Moskou moet zich nog niet rijk rekenen](https://www.ad.nl/buitenland/vs-versoepelt-russische-oliesancties-maar-moskou-moet-zich-nog-niet-rijk-rekenen~ab459b8f/)
+  > De Amerikaanse regering heeft tot 11 april de beperkingen voor Rusland opgeheven om olie over zee te exporteren. Op de korte termijn zal het land er...
+- [PSV rost snelle aansluitingstreffer binnen na twee goals van Bryan Linssen](https://www.ad.nl/voetbal/psv-rost-snelle-aansluitingstreffer-binnen-na-twee-goals-van-bryan-linssen~aaf09611/)
   > Koploper PSV ging elf dagen geleden in de halve finales van de KNVB-beker onderuit tegen NEC. In de VriendenLoterij Eredivisie krijgt de ploeg van...
-- [Jarenlang hield Hugo zijn tattoos verborgen, tot de burn-out kwam: ‘Tijdens vergadering zat ik te janken’](https://www.ad.nl/binnenland/jarenlang-hield-hugo-zijn-tattoos-verborgen-tot-de-burn-out-kwam-tijdens-vergadering-zat-ik-te-janken~a293d275/)
-  > Hugo Goorhuis was de onberispelijke medewerker bij Philips. Altijd keurig in pak met stropdas en gestreken hemd. Op het grijze af. Maar toen ging hij...
-- [Jelle had het gehad met het artiestenleven, maar toch deed hij mee aan The Voice](https://www.ad.nl/gorinchem/jelle-had-het-gehad-met-het-artiestenleven-maar-toch-deed-hij-mee-aan-the-voice~afe9aae1/)
-  > Jelle de Boon (28) uit Gorinchem voelde zijn hart kloppen toen hij het podium van ‘The Voice’ opstapte. Na zijn winst aan een Belgische talentenjacht...
+- [Wat gebeurt hier? Engelse scheidsrechter zit plots opgesloten in huddle met Chelsea-spelers](https://www.ad.nl/voetbal/wat-gebeurt-hier-engelse-scheidsrechter-zit-plots-opgesloten-in-huddle-met-chelsea-spelers~a6879bb3/)
+  > Een opmerkelijk moment zaterdagavond in de Premier League. De Engelse scheidsrechter Paul Tierney (45) zat voor de wedstrijd tussen Chelsea en...
+- [Groot of klein, dit zijn de beste inbouwvriezers](https://www.ad.nl/wonen/groot-of-klein-dit-zijn-de-beste-inbouwvriezers~ae977c57/)
+  > Zit jouw vriezer standaard vol met groente, brood, vlees en restjes avondeten? Dan wil je genoeg ruimte hebben. De Consumentenbond testte...
 
 ### Meest gelezen
 
