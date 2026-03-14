@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-03-2026 om 07:37*
+*Laatst bijgewerkt: 14-03-2026 om 08:41*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Nederlandse boeren ontkomen aan hoge kunstmestprijs, Azië heeft minder geluk](https://nos.nl/l/2606263)
+  > Niet alleen de prijs van olie en gas, maar ook die van kunstmest is de afgelopen weken flink gestegen. Door de blokkade van de Straat van Hormuz...
+- [Flexwoonwijken voor arbeidsmigranten in buitengebied: 'Goede wifi is belangrijk'](https://nos.nl/l/2606260)
+  > Keurig ogende woontorens, rijtjeshuizen of complete buurtjes net buiten de bebouwde kom, tegen een industrieterrein aan of in een weiland. Op...
+- [Recordbedrag voor Pink Floyd-gitaar: ruim 12 miljoen euro](https://nos.nl/l/2606259)
+  > Een gitaar van Pink Floyd-lid David Gilmour heeft op een veiling in New York een recordbedrag opgeleverd. Een onbekende koper kwam na 21 minuten...
 - [Wekdienst 14/4: Laatste weekend voor gemeenteraadsverkiezingen • Paraskiester Petit in actie](https://nos.nl/l/2606256)
   > Goedemorgen! In het laatste weekend voor de gemeenteraadsverkiezingen gaan lokale en landelijk politici vandaag massaal op pad om stemmen te trekken....
 - [Explosie bij joodse school Amsterdam, burgemeester spreekt van aanslag](https://nos.nl/l/2606252)
   > In Amsterdam is vannacht een explosie geweest bij de buitenmuur van een joodse school in Buitenveldert. Politie en brandweer waren snel ter plaatse...
-- [Aardbeving van 3,0 bij Eleveld in Drenthe: 'Deze was goed te voelen'](https://nos.nl/l/2606245)
-  > Bij het Drentse gasveld Eleveld is vannacht een aardbeving geweest met een kracht van 3,0. Dat meldt het KNMI op basis van automatische metingen. De...
-- [Politie deelt beelden van daders ernstige mishandeling in Rotterdam](https://nos.nl/l/2606244)
-  > De politie heeft beelden gedeeld van de twee verdachten van een ernstige mishandeling in Rotterdam. De mannen hebben half januari een man op straat...
-- [Rechter blokkeert vervolging Fed-voorzitter Powell, 'geen enkel bewijs'](https://nos.nl/l/2606241)
-  > Een rechter in de Verenigde Staten heeft de dagvaardingen tegen de voorzitter van de Amerikaanse centrale bank (Fed), Jerome Powell, geblokkeerd. Dat...
 
 ### Meest gelezen
 
@@ -27,14 +27,14 @@
 
 ### Laatste nieuws
 
+- [Beroerd weekend Max Verstappen krijgt vervolg met P8, Kimi Antonelli jongste coureur ooit met pole](https://www.ad.nl/formule-1/beroerd-weekend-max-verstappen-krijgt-vervolg-met-p8-kimi-antonelli-jongste-coureur-ooit-met-pole~a586b27d0/)
+  > Max Verstappen beleeft een beroerd weekend tijdens de Grand Prix van China. De Nederlander start zondag (08.00 uur) vanaf P8. Kimi Antonelli start...
 - [Ronald Waterreus zet vraagtekens bij contractverlenging Peter Bosz: ‘Ik had voor een frisse wind gekozen’](https://www.ad.nl/voetbal/ronald-waterreus-zet-vraagtekens-bij-contractverlenging-peter-bosz-ik-had-voor-een-frisse-wind-gekozen~a2fc3440/)
   > Ronald Waterreus is onder de indruk van de huidige overmacht van PSV in Nederland. Toch had de voormalige keeper van de Eindhovense club het contract...
 - [Wilders wil na 10.000 dagen in de Tweede Kamer door tot z’n 80ste, maar in kleine kring klinkt iets anders](https://www.ad.nl/politiek/wilders-wil-na-10-000-dagen-in-de-tweede-kamer-door-tot-zn-80ste-maar-in-kleine-kring-klinkt-iets-anders~aa9b7a6a/)
   > 10.000 dagen zit Geert Wilders deze zaterdag in de Tweede Kamer. Zelf zegt hij ‘tot zijn 80ste’ door te gaan. Maar achter de schermen klinkt een...
 - [Deze Chinese plug-in hybride komt bizar ver op stroom](https://www.ad.nl/auto/deze-chinese-plug-in-hybride-komt-bizar-ver-op-stroom~a2dafb68/)
   > Het herboren automerk Lotus begon zijn tweede leven in 2023  met een elektrische Hyper-SUV met extreem veel vermogen. Nu kiest het merk voor een...
-- [Verstappen zet goede tijd neer in eerste deel kwalificatie en dicht het gat met de andere topteams](https://www.ad.nl/formule-1/verstappen-zet-goede-tijd-neer-in-eerste-deel-kwalificatie-en-dicht-het-gat-met-de-andere-topteams~a586b27d0/)
-  > Max Verstappen is absoluut nog niet gelukkig tijdens het raceweekend in China. De coureur hoopt nu dat zijn team goede aanpassingen gedaan heeft,...
 - [Raadsleden verdienen mede door bevolkingsgroei steeds meer: salaris 21 procent hoger dan vier jaar geleden](https://www.ad.nl/binnenland/raadsleden-verdienen-mede-door-bevolkingsgroei-steeds-meer-salaris-21-procent-hoger-dan-vier-jaar-geleden~a6b2e88c/)
   > Raadsleden zijn er sinds de laatste gemeenteraadsverkiezingen in 2022 financieel flink op vooruitgegaan. In vier jaar tijd steeg de vergoeding met...
 
