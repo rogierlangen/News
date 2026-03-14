@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-03-2026 om 04:45*
+*Laatst bijgewerkt: 14-03-2026 om 05:50*
 
 ---
 
@@ -8,8 +8,8 @@
 
 ### Laatste nieuws
 
-- [Aardbeving van 3.0 bij Eleveld in Drenthe: 'Deze was goed te voelen'](https://nos.nl/l/2606245)
-  > Bij het Drentse gasveld Eleveld is vannacht een aardbeving geweest met een kracht van 3.0. Dat meldt het KNMI op basis van automatische metingen. De...
+- [Aardbeving van 3,0 bij Eleveld in Drenthe: 'Deze was goed te voelen'](https://nos.nl/l/2606245)
+  > Bij het Drentse gasveld Eleveld is vannacht een aardbeving geweest met een kracht van 3,0. Dat meldt het KNMI op basis van automatische metingen. De...
 - [Politie deelt beelden van daders ernstige mishandeling in Rotterdam](https://nos.nl/l/2606244)
   > De politie heeft beelden gedeeld van de twee verdachten van een ernstige mishandeling in Rotterdam. De mannen hebben half januari een man op straat...
 - [Rechter blokkeert vervolging Fed-voorzitter Powell, 'geen enkel bewijs'](https://nos.nl/l/2606241)
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hadjar deelt plaagstoot uit aan Antonelli: ‘Snap niet dat hij zo overenthousiast is met die raket’](https://www.ad.nl/formule-1/hadjar-deelt-plaagstoot-uit-aan-antonelli-snap-niet-dat-hij-zo-overenthousiast-is-met-die-raket~a11cae96/)
+- [Opgeleefde Lewis Hamilton geniet zichtbaar bij Ferrari: ‘Heel erg leuk om in deze auto’s te rijden’](https://www.ad.nl/formule-1/opgeleefde-lewis-hamilton-geniet-zichtbaar-bij-ferrari-heel-erg-leuk-om-in-deze-autos-te-rijden~a11cae96/)
   > Het Formule 1-circus strijkt deze week neer in Sjanghai, waar de Grand Prix van China wordt afgewerkt. Volg alle ontwikkelingen op en naast het...
-- [Flatbewoners balen: glazen wand moet weg en dat kost ze zo’n 18.000 euro](https://www.ad.nl/binnenland/flatbewoners-balen-glazen-wand-moet-weg-en-dat-kost-ze-zon-18-000-euro~a0b34c37/)
-  > Je woont al jaren in een prachtige flat. Het is er stil, omdat een glazen wand al het geluid van de doorgaande weg tegenhoudt. Maar opeens moet al...
-- [Stand Formule 1 | George Russell loopt verder uit, puntloze Max Verstappen ziet achterstand groeien](https://www.ad.nl/formule-1/stand-formule-1-george-russell-loopt-verder-uit-puntloze-max-verstappen-ziet-achterstand-groeien~a8a75660/)
-  > George Russell heeft zijn koppositie in de Formule 1 verstevigd. De coureur van Mercedes won de sprintrace, terwijl teamgenoot Kimi Antonelli niet...
-- [Verstappen na horrorstart buiten de punten in sprintrace, ver achter winnaar Russell: ‘Helemaal ruk’](https://www.ad.nl/formule-1/verstappen-na-horrorstart-buiten-de-punten-in-sprintrace-ver-achter-winnaar-russell-helemaal-ruk~adaa9342/)
-  > Max Verstappen heeft een sprintrace in China achter de rug die hij snel zal willen vergeten. Na een werkelijk hondsberoerde start zakte de...
-- [Aardbeving met kracht van 3.0 bij Drentse Eleveld: ‘Hele huis schudde’](https://www.ad.nl/assen/aardbeving-met-kracht-van-3-0-bij-drentse-eleveld-hele-huis-schudde~ae1faf3d/)
-  > Het Drentse Eleveld is in de nacht van vrijdag op zaterdag getroffen door een aardbeving met een kracht van 3.0, meldt het KNMI op basis van...
+- [Twee doden in Kyiv na ‘grootschalige’ aanval, Zelensky boos op VS na versoepeling sancties op Russische olie](https://www.ad.nl/buitenland/twee-doden-in-kyiv-na-grootschalige-aanval-zelensky-boos-op-vs-na-versoepeling-sancties-op-russische-olie~adfb97be/)
+  > Bij een Russische aanval op de regio Kyiv zijn zaterdag minstens twee doden gevallen. Oekraïense autoriteiten spreken van een ‘grootschalige aanval’....
+- [Hoezo dure benzine? Elon Musk betaalt eeuwig jouw stroom bij deze ‘vergeten’ tweedehands Tesla’s](https://www.ad.nl/auto/hoezo-dure-benzine-elon-musk-betaalt-eeuwig-jouw-stroom-bij-deze-vergeten-tweedehands-teslas~a2a91e16/)
+  > Ze zijn relatief goedkoop en je kunt voor de rest van het bestaan van deze Tesla’s gratis tanken bij Superchargers. Ook in Nederland zijn nog...
+- [Dit zijn de 3 mannen die de oorlog in Iran leiden: ‘Hij is buitengewoon wreed’](https://www.ad.nl/buitenland/dit-zijn-de-3-mannen-die-de-oorlog-in-iran-leiden-hij-is-buitengewoon-wreed~a9315793/)
+  > We kennen de mannen die politiek verantwoordelijk zijn in de oorlog in Iran: de Amerikaanse president Trump, de Israëlische premier Benjamin...
+- [Avontuurlijke vos pakt als verstekeling de boot van Engeland naar New York](https://www.ad.nl/bizar/avontuurlijke-vos-pakt-als-verstekeling-de-boot-van-engeland-naar-new-york~ac8d0c2f/)
+  > Een rode vos is als verstekeling meegegaan op een vrachtschip dat van Engeland naar New York voer. Een reis van meer dan 5000 kilometer, naar de...
 
 ### Meest gelezen
 
