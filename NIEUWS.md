@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-03-2026 om 08:42*
+*Laatst bijgewerkt: 15-03-2026 om 09:39*
 
 ---
 
@@ -8,6 +8,9 @@
 
 ### Laatste nieuws
 
+- [Twee kinderen overleden bij brand in chalet België](https://nos.nl/l/2606415)
+  > In België zijn bij een brand in een stacaravan twee kinderen van 6 en 8 jaar oud omgekomen. Hun moeder en een 1-jarig kind raakten zwaargewond.
+     ...
 - [Groep die aanvallen op joodse instellingen opeist 'lijkt niet georganiseerd'](https://nos.nl/l/2606408)
   > Bombastische muziek klinkt terwijl een brandend object wordt gefilmd. De schokkerige propagandavideo toont een explosie en de maker vlucht. Er...
 - [Energiecrisis Zuid-Azië voelbaar tot in de Indiase keuken](https://nos.nl/l/2606404)
@@ -16,8 +19,6 @@
   > Thema's als landbouw, ontvolking van het platteland en de gezondheidszorg: het is zomaar een greep uit de onderwerpen die spelen bij de regionale...
 - [Wekdienst 15/3: Slotdag Paralympische Spelen • Lokale verkiezingen in Frankrijk](https://nos.nl/l/2606394)
   > Goedemorgen! Vandaag is de slotdag van de Paralympische Spelen en in Frankrijk gaan mensen naar de stembus voor de eerste ronde van de...
-- [Toerisme twistpunt bij gemeenteraadsverkiezingen in het Zeeuwse Veere](https://nos.nl/l/2606391)
-  > Afgelopen decennia groeide het toerisme in Zeeland gestaag, ook in de gemeente Veere is het de economische motor. Tegelijkertijd legt het druk op de...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Dramaweekend Max Verstappen compleet met uitvalbeurt, primeur voor 19-jarige Antonelli](https://www.ad.nl/formule-1/dramaweekend-max-verstappen-compleet-met-uitvalbeurt-primeur-voor-19-jarige-antonelli~a6348433/)
-  > De Grand Prix van China is voor Max Verstappen uitgelopen op een enorme deceptie. Hij viel in de slotfase van de race uit met een technisch probleem...
-- [Data gelekt door Odido-hack, en nu? Hackers gaan geraffineerd te werk, zo blijkt: ‘Ze willen weten of je geld hebt’](https://www.ad.nl/tech/data-gelekt-door-odido-hack-en-nu-hackers-gaan-geraffineerd-te-werk-zo-blijkt-ze-willen-weten-of-je-geld-hebt~a68a2566/)
-  > Dat de gegevens van miljoenen Nederlanders door het Odido-lek op straat liggen, is een ‘goudmijn’ voor kwaadwillenden. Om mensen en bedrijven online...
-- [Zoon René Karst vernoemt dochter naar overleden vader](https://www.ad.nl/show/zoon-rene-karst-vernoemt-dochter-naar-overleden-vader~a16e1f0b/)
-  > Thomas Karst, de zoon van volkszanger René Karst, is voor de tweede keer vader geworden van een dochter. Het meisje is vernoemd naar haar grootvader,...
-- [Twee kinderen (6 en 8) overleden bij brand in chalet België, moeder en ander kind (1) zwaargewond](https://www.ad.nl/buitenland/twee-kinderen-6-en-8-overleden-bij-brand-in-chalet-belgie-moeder-en-ander-kind-1-zwaargewond~a8248b1a/)
-  > In het Belgisch-Limburgse Niel-bij-As zijn zaterdagavond twee jonge kinderen overleden bij een brand in een chalet. Een 6-jarig kind overleed ter...
-- [Waarom de PVV in Spijkenisse landelijk altijd de grootste is, maar lokaal telkens vastloopt](https://www.ad.nl/nissewaard/waarom-de-pvv-in-spijkenisse-landelijk-altijd-de-grootste-is-maar-lokaal-telkens-vastloopt~a3a12ac1/)
-  > Geert Wilders keerde zaterdag terug naar zijn ‘hometown’ Spijkenisse om de nieuwe PVV-ploeg voor de gemeenteraad een hart onder de riem te steken....
+- [Kimi Antonelli houdt het niet droog na eerste zege in F1: ‘Bezorgde mezelf nog wel een hartverzakking’](https://www.ad.nl/formule-1/kimi-antonelli-houdt-het-niet-droog-na-eerste-zege-in-f1-bezorgde-mezelf-nog-wel-een-hartverzakking~a475db65/)
+  > Waar de Grand Prix van China voor Max Verstappen eindigde in een drama, beleefde Kimi Antonelli het mooiste weekend uit zijn nog jonge carrière. De...
+- [Zo vroeg komt Max Verstappen over twee weken in actie in Japan](https://www.ad.nl/formule-1/zo-vroeg-komt-max-verstappen-over-twee-weken-in-actie-in-japan~afb911aa/)
+  > De Formule 1 blijft na de Grand Prix van China in Azië: de derde race van het seizoen wordt gereden in Japan. Kan Verstappen ditmaal een gooi doen...
+- [Teheran, stad zonder sirenes: ‘Je kunt niet demonstreren terwijl er bommen vallen’](https://www.ad.nl/buitenland/teheran-stad-zonder-sirenes-je-kunt-niet-demonstreren-terwijl-er-bommen-vallen~a3081025/)
+  > Explosies zijn in veel wijken van Teheran nog bijna dagelijks te horen. Maar de massale protesten waartoe is opgeroepen door de Amerikaanse president...
+- [Eigenwijzer gaat een auto niet worden: onze auto-expert test de Mazda CX-5](https://www.ad.nl/auto/eigenwijzer-gaat-een-auto-niet-worden-onze-auto-expert-test-de-mazda-cx-5~adf70802/)
+  > Je moet het maar durven als autofabrikant. In een tijd waarin de benzineprijzen recordhoogten bereiken, lever je je nieuwste en meest verkochte model...
+- [Omdat een Zuid-Afrikaan naar wc moest, kan Henk-Jan van Schothorst over hele wereld lobbyen tegen abortus](https://www.ad.nl/binnenland/omdat-een-zuid-afrikaan-naar-wc-moest-kan-henk-jan-van-schothorst-over-hele-wereld-lobbyen-tegen-abortus~a6681a0f/)
+  > Henk-Jan van Schothorst (58) reist de hele wereld over om te lobbyen voor een orthodox-christelijk wereldbeeld: tegen abortus en tegen...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Trump wil nog geen deal Iran, dreigt met nieuwe aanval op Kharg ‘voor de lol’](https://fd.nl/politiek/1589671/trump-wil-nog-geen-deal-iran-dreigt-met-nieuwe-aanval-op-kharg-voor-de-lol)
+  > Volgens Amerikaanse president is Iraans olie-eiland ‘gedecimeerd’. De voorwaarden voor een deal zijn niet goed genoeg.
+- [Lada zonder airco staat symbool voor de aftakeling van de Russische auto-industrie](https://fd.nl/bedrijfsleven/1589625/lada-zonder-airco-staat-symbool-voor-de-aftakeling-van-de-russische-auto-industrie)
+  > De omzet van Lada daalde met een kwart in 2025. De Russische consumentenindustrie lijdt onder de oorlogseconomie, die wapenfabrieken voorrang geeft.
 - [Kies een gemeenteraad die weet wat telt: het sociaal domein slokt de helft van het gemeentebudget op](https://fd.nl/opinie/1588817/kies-een-gemeenteraad-die-weet-wat-ertoe-doet)
   > Gemeenten geven de helft van hun budget uit aan zorg en jeugdhulp – en dat aandeel groeit snel. Bij de verkiezingen zou juist dat centraal moeten...
 - [Expert helpt starters met AI: ‘Ik vind dit toch altijd weer magisch’](https://fd.nl/tech-en-innovatie/1589632/expert-helpt-starters-met-ai-ik-vind-dit-toch-altijd-weer-magisch)
   > Ondernemers weten dat zij veel aan AI kunnen hebben. Maar waar begin je? En hoe weet je of het te vertrouwen is?
 - [FD Gazelle: ‘Een miljoen aan voorraad ging in rook op’](https://fd.nl/samenleving/1589526/fd-gazelle-een-miljoen-aan-voorraad-ging-in-rook-op)
   > Door een brand bij de buren, ging bijna de hele voorraad van Natural Spices in rook op.
-- [‘Nederland kan het Taiwan van fotonische chips worden’](https://fd.nl/bedrijfsleven/1588722/nederland-kan-het-taiwan-van-fotonische-chips-worden)
-  > Met de bouw van nieuwe chipfabrieken in Eindhoven en Twente ontstaat een volledig netwerk van fotonicabedrijven in Nederland. Maar haast is geboden.
-- [India vraagt Iran om uitzondering op blokkade Straat van Hormuz](https://fd.nl/politiek/1589699/india-vraagt-iran-om-uitzondering-op-blokkade-straat-van-hormuz)
-  > India vraagt Iran om zijn schepen bij uitzondering wel toegang te verlenen tot de Straat van Hormuz.
 
 ### Meest gelezen
 
