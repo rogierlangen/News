@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-03-2026 om 20:35*
+*Laatst bijgewerkt: 15-03-2026 om 21:32*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Lesbos-hulpverlener Pieter Wittenberg (78) overleden](https://nos.nl/l/2606502)
+  > De Nederlandse hulpverlener Pieter Wittenberg is op 78-jarige leeftijd overleden. Hij was ernstig ziek en was daarom sinds vorige maand gestopt met...
 - [Veel schademeldingen na beving bij Assen ingediend bij verkeerde loket](https://nos.nl/l/2606498)
   > Veel van de ruim 300 meldingen van schade na de aardbeving bij Assen dit weekend zijn ingediend bij het Instituut Mijnbouwschade Groningen (IMG).
    ...
@@ -17,8 +19,6 @@
   > De stijgende olieprijzen als gevolg van de oorlog in Iran zijn een opsteker voor Rusland en een reddingsboei voor de noodlijdende Russische economie,...
 - [Vooral woensdag en donderdag zonnige dagen](https://nos.nl/l/2606474)
   > Een prachtige zondag wat weer betreft, die nog wel vrij fris begon. Dat smaakt naar meer en het goede nieuws is: er komt ook meer. Maar er is ook...
-- [Zeldzame brileider op Texel dood: 'Niet gelukt om hem op te lappen'](https://nos.nl/l/2606469)
-  > Een zeldzame brileider die eind december werd opgevangen in Ecomare op Texel, is dood. De eend kreeg vorige week een worminfectie, waarna zijn...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Simpele tactiek van ijskoude Mark is schot in de roos: hij pakt 1 miljoen euro bij Miljoenenjacht](https://www.ad.nl/show/simpele-tactiek-van-ijskoude-mark-is-schot-in-de-roos-hij-pakt-1-miljoen-euro-bij-miljoenenjacht~a0381025/)
-  > Mark uit Den Haag heeft zondagavond dankzij een simpele tactiek zonder enige zenuwen 1 miljoen euro gewonnen bij de SBS 6-show Miljoenenjacht. Hij...
+- [Formule 1-podcast | ‘Red Bull zal blij zijn dat er in april geen races zijn’](https://www.ad.nl/formule-1/formule-1-podcast-red-bull-zal-blij-zijn-dat-er-in-april-geen-races-zijn~ad703d66/)
+  > China was niet het weekend van Max Verstappen. Twee mislukte starts, zowel in de sprintrace als de hoofdrace. Frustratie alom bij de Nederlander toen...
+- [Wessel Nijman bekroont een geweldig toernooi in Göttingen met zijn eerste Euro Tour-titel](https://www.ad.nl/darts/wessel-nijman-bekroont-een-geweldig-toernooi-in-gottingen-met-zijn-eerste-euro-tour-titel~a6a2d22d/)
+  > Wessel Nijman heeft de European Darts Trophy in Göttingen op zijn naam geschreven. De 25-jarige Nederlander was in de finale met 8-3 te sterk voor...
+- [Van afwezigheid naar alliantie: Jetten hoopt nieuwe toon te zetten in Duits-Nederlandse relatie](https://www.ad.nl/binnenland/van-afwezigheid-naar-alliantie-jetten-hoopt-nieuwe-toon-te-zetten-in-duits-nederlandse-relatie~af6316fe/)
+  > Minister-president Jetten wacht maandag een groots onthaal in Berlijn. Duitsland geeft hem een militair welkom, een speciaal eerbetoon dat voorganger...
+- [Linda de Mol met stomheid geslagen: man met één cent in zijn koffer wint een miljoen bij Miljoenenjacht](https://www.ad.nl/show/linda-de-mol-met-stomheid-geslagen-man-met-een-cent-in-zijn-koffer-wint-een-miljoen-bij-miljoenenjacht~a0381025/)
+  > Mark (58) uit Den Haag heeft zondagavond dankzij een simpele tactiek en zonder enige zenuwen 1 miljoen euro gewonnen bij de SBS 6-show...
 - [Wittenberg sterft kort na zijn vrijspraak: hulpverlener die vluchtelingen redde, stond jarenlang voor de rechter](https://www.ad.nl/binnenland/wittenberg-sterft-kort-na-zijn-vrijspraak-hulpverlener-die-vluchtelingen-redde-stond-jarenlang-voor-de-rechter~acb9d5a1/)
   > Kort nadat de Nederlandse hulpverlener Pieter Wittenberg (78) werd vrijgesproken van mensensmokkel op het Griekse eiland Lesbos, is hij overleden....
-- [Zeldzame grote pijlinktvis duikt opeens op langs Nederlandse stranden, veel meer waarnemingen gemeld](https://www.ad.nl/binnenland/zeldzame-grote-pijlinktvis-duikt-opeens-op-langs-nederlandse-stranden-veel-meer-waarnemingen-gemeld~a182dd4c/)
-  > Op de Nederlandse stranden duiken ongewoon veel grote pijlinktvissen op, concludeert Stichting Anemoon. Deze inktvissoort kan wel 100 tot 120...
-- [Buitenlandse media hebben slecht nieuws voor Max Verstappen: ‘In de directiekamer zal gelachen worden’](https://www.ad.nl/formule-1/buitenlandse-media-hebben-slecht-nieuws-voor-max-verstappen-in-de-directiekamer-zal-gelachen-worden~a79f27c6/)
-  > Max Verstappen mag dan wel een hekel hebben aan de nieuwe Formule 1-regels, de raceliefhebber wordt voorlopig op zijn wenken bediend met...
-- [FNV en CNV: maandag staking bij spoedbezorgdienst DHL](https://www.ad.nl/binnenland/fnv-en-cnv-maandag-staking-bij-spoedbezorgdienst-dhl~ab72abaa9/)
-  > Werknemers van DHL Express, dat vooral spoedzendingen van documenten en pakketten bezorgt, gaan maandag bijna de hele dag staken. Dat melden de...
 
 ### Meest gelezen
 
