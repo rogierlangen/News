@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-03-2026 om 10:35*
+*Laatst bijgewerkt: 15-03-2026 om 11:30*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Jasper is geboren uit incest en dacht jarenlang dat hij niet had mogen bestaan: ‘Ik voelde alleen maar walging’](https://www.ad.nl/binnenland/jasper-is-geboren-uit-incest-en-dacht-jarenlang-dat-hij-niet-had-mogen-bestaan-ik-voelde-alleen-maar-walging~aab89c00/)
-  > Jasper van den Hoek (37) had eigenlijk niet mogen bestaan. Hij is geboren uit incest. Zijn vader is ook zijn opa. Die man heeft Jaspers moeder...
-- [Stand Formule 1 | Russell en Antonelli slaan gat met de rest, Verstappen raakt achterop na puntloos weekend](https://www.ad.nl/formule-1/stand-formule-1-russell-en-antonelli-slaan-gat-met-de-rest-verstappen-raakt-achterop-na-puntloos-weekend~a8a75660/)
-  > Mercedes is heel voortvarend begonnen aan het nieuwe Formule 1-seizoen. Na het sterke optreden bij de openingsrace in Australië, was de Duitse...
-- [Peter (51) wordt al afgewezen op zijn schoenen: ‘Ik krijg vragen of ik het werk wel volhoud’](https://www.ad.nl/economie/peter-51-wordt-al-afgewezen-op-zijn-schoenen-ik-krijg-vragen-of-ik-het-werk-wel-volhoud~aeeded28/)
-  > Sollicitatiegesprekken gaan bij Peter (51) zelden over zijn onderzoekservaring, maar vaker over zijn mobiliteit, vertelt hij aan Anne-Marije Buckens,...
-- [Max Verstappen verzucht na fiasco in China: ‘Ik kan de volgende keer net zo goed als laatste starten’](https://www.ad.nl/formule-1/max-verstappen-verzucht-na-fiasco-in-china-ik-kan-de-volgende-keer-net-zo-goed-als-laatste-starten~a3483b2e/)
-  > Max Verstappen viel zondag bij de Grand Prix van China uit met problemen in het koelsysteem van zijn Red Bull. Een passend einde van een dramatisch...
-- [Van geitenkaas naar muur, van lammetjes naar tijgers: de conclusies nadat Óscar García Ajax liet swingen](https://www.ad.nl/voetbal/van-geitenkaas-naar-muur-van-lammetjes-naar-tijgers-de-conclusies-nadat-oscar-garcia-ajax-liet-swingen~ae179236/)
-  > Ajax swingde bij het debuut van Óscar García plots tegen Sparta (4-0). Wat heeft de Spaanse coach in een week veranderd? Vier conclusies. „Ik zei...
+- [Wereldberoemd aapje Punch speelt en knuffelt met soortgenoten: ‘Geweldig om die mijlpalen te zien’](https://www.ad.nl/buitenland/wereldberoemd-aapje-punch-speelt-en-knuffelt-met-soortgenoten-geweldig-om-die-mijlpalen-te-zien~a6f1c8e7/)
+  > De beelden van het aapje Punch in een Japanse dierentuin gaan al weken de wereld over. Hij werd verstoten door zijn moeder, gepest door andere apen...
+- [Zitskiër Jeroen Kampschreur op koers voor derde paralympisch goud](https://www.ad.nl/olympische-spelen/zitskier-jeroen-kampschreur-op-koers-voor-derde-paralympisch-goud~aa7114769/)
+  > Zitskiër Jeroen Kampschreur is hard op weg naar zijn derde gouden paralympische medaille. De Nederlander leidt riant na de eerste run van de slalom...
+- [Helpt Van der Poel ploeggenoot Philipsen aan zege?](https://www.ad.nl/wielrennen/helpt-van-der-poel-ploeggenoot-philipsen-aan-zege~a7ae5243/)
+  > De Tirreno-Adriatico eindigt vandaag met een rit over 142 kilometer, van Civitanova Marche naar San Benedetto del Tronto. Na twee beklimmingen wordt...
+- [Magisch theaterspektakel Harry Potter is een warme deken voor fans (maar een doolhof voor dreuzels)](https://www.ad.nl/show/magisch-theaterspektakel-harry-potter-is-een-warme-deken-voor-fans-maar-een-doolhof-voor-dreuzels~ac6b9c3ee/)
+  > Harry Potter is terug in Nederland, ditmaal als toneelstuk. De makers hebben een wereld vol magie gecreëerd die zijn weerga niet kent. En het script...
+- [Israëlisch leger schiet Palestijns gezin in auto dood op Westelijke Jordaanoever](https://www.ad.nl/buitenland/israelisch-leger-schiet-palestijns-gezin-in-auto-dood-op-westelijke-jordaanoever~a6dfa890/)
+  > Het Israëlisch leger heeft op de bezette Westelijke Jordaanoever een Palestijns echtpaar en hun twee jonge kinderen doodgeschoten. De familie Bani...
 
 ### Meest gelezen
 
@@ -47,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Wie helpt Rotterdam aan het werk?](https://fd.nl/samenleving/1588498/wie-helpt-rotterdam-aan-het-werk)
+  > Er is een nationaal programma, een burgerberaad, een werkstation, alles om Rotterdammers op Zuid aan een baan te helpen. ‘Soms komen mensen binnen...
 - [Nederlandse vissers krijgen klap door dure diesel: ‘Dit doet echt pijn’](https://fd.nl/bedrijfsleven/1589636/nederlandse-vissers-krijgen-klap-door-dure-diesel-dit-doet-echt-pijn)
   > De Nederlandse vissers zijn wekelijks tienduizenden euro’s extra kwijt aan brandstof en de bemanning ziet het loon verdampen.
 - [Trump wil nog geen deal Iran, dreigt met nieuwe aanval op Kharg ‘voor de lol’](https://fd.nl/politiek/1589671/trump-wil-nog-geen-deal-iran-dreigt-met-nieuwe-aanval-op-kharg-voor-de-lol)
@@ -55,8 +57,6 @@
   > De omzet van Lada daalde met een kwart in 2025. De Russische consumentenindustrie lijdt onder de oorlogseconomie, die wapenfabrieken voorrang geeft.
 - [Kies een gemeenteraad die weet wat telt: het sociaal domein slokt de helft van het gemeentebudget op](https://fd.nl/opinie/1588817/kies-een-gemeenteraad-die-weet-wat-ertoe-doet)
   > Gemeenten geven de helft van hun budget uit aan zorg en jeugdhulp – en dat aandeel groeit snel. Bij de verkiezingen zou juist dat centraal moeten...
-- [Expert helpt starters met AI: ‘Ik vind dit toch altijd weer magisch’](https://fd.nl/tech-en-innovatie/1589632/expert-helpt-starters-met-ai-ik-vind-dit-toch-altijd-weer-magisch)
-  > Ondernemers weten dat zij veel aan AI kunnen hebben. Maar waar begin je? En hoe weet je of het te vertrouwen is?
 
 ### Meest gelezen
 
