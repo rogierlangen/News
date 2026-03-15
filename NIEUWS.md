@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-03-2026 om 15:33*
+*Laatst bijgewerkt: 15-03-2026 om 16:37*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Zeldzame brileider op Texel dood: 'Niet gelukt om hem op te lappen'](https://nos.nl/l/2606469)
+  > Een zeldzame brileider die eind december werd opgevangen in Ecomare op Texel, is dood. De eend kreeg vorige week een worminfectie, waarna zijn...
+- [Extra veiligheidsmaatregelen, maar Oscaruitreiking gaat gewoon door](https://nos.nl/l/2606467)
+  > Vanwege de oorlog in het Midden-Oosten worden bij de uitreiking van de Oscars vannacht in Los Angeles extra veiligheidsmaatregelen genomen....
+- [Vier mannen gewond in Oostenrijk na crash met opblaasboot op rode piste](https://nos.nl/l/2606460)
+  > Vier mannen zijn gewond geraakt toen zij in een opblaasboot een skipiste afgingen en vervolgens crashten. Het ongeluk gebeurde in het Oostenrijkse...
 - [Gemeenten gefrustreerd over 30km-wegen, want 'kunnen amper boetes uitdelen'](https://nos.nl/l/2606450)
   > Gemeenten worstelen met de aanpak van hardrijders op 30km-wegen. Vanwege de verkeersveiligheid verlagen steeds meer gemeenten de snelheid van 50...
 - [Auto met gezin beschoten op Westelijke Jordaanoever, vier doden](https://nos.nl/l/2606431)
   > Israëlische militairen hebben vannacht in het noorden van de bezette Westelijke Jordaanoever het vuur geopend op een auto met een gezin erin. Daarbij...
-- [Reddingsacties na nieuwe overstromingen in Kenia](https://nos.nl/l/2606427)
-  > Na zware overstromingen in Kenia zijn op meerdere plekken in het land reddingsacties gaande. In het zuiden zijn 130 kinderen gered uit een weeshuis....
-- [Nationale aanpak tegen moslimdiscriminatie in de maak](https://nos.nl/l/2606426)
-  > De Nationaal Coördinator tegen Discriminatie en Racisme (NCDR) gaat een speciale programmaleider aanstellen voor de aanpak van moslimdiscriminatie.
- ...
-- [Politie beëindigt illegale rave met honderden bezoekers in Willemstad](https://nos.nl/l/2606416)
-  > De politie heeft vannacht een illegale rave beëindigd in het West-Brabantse Willemstad. Op het feest, dat werd gehouden op het terrein van een...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ayase Ueda neemt Feyenoord met twee goals bij de hand na dramatische eerste helft tegen Excelsior](https://www.ad.nl/voetbal/ayase-ueda-neemt-feyenoord-met-twee-goals-bij-de-hand-na-dramatische-eerste-helft-tegen-excelsior~ae4e36e7/)
-  > Ayase Ueda hielp Feyenoord na een uiterst zwakke eerste helft weer in de juiste richting. De Japanner, die ondanks weken van droogte simpel topscorer...
-- [AZ boekt ruime zege op Heracles, blessure Daal smet op zorgeloze middag](https://www.ad.nl/voetbal/az-boekt-ruime-zege-op-heracles-blessure-daal-smet-op-zorgeloze-middag~a17c6676/)
-  > AZ had weinig te duchten van hekkensluiter Heracles: 4-0. De Alkmaarders kenden daarmee een goede generale richting de return tegen Sparta Praag in...
-- [Arne Slot passeert Mohamed Salah bij Liverpool voor clash met Spurs, druk staat er vol op bij beide clubs](https://www.ad.nl/voetbal/arne-slot-passeert-mohamed-salah-bij-liverpool-voor-clash-met-spurs-druk-staat-er-vol-op-bij-beide-clubs~a5f09a76/)
+- [Wie woensdag een signaal tegen het kabinet wil afgeven, moet goed zoeken hoe](https://www.ad.nl/politiek/wie-woensdag-een-signaal-tegen-het-kabinet-wil-afgeven-moet-goed-zoeken-hoe~a78b9361/)
+  > Woensdag een boodschap afgeven aan de Haagse politiek? Vergeet het in veel gemeenten: landelijke partijen staan vaak niet op de lijst. En hoe minder...
+- [Duel onder hoogspanning tussen Liverpool en Spurs onderweg, Arne Slot passeert Mohamed Salah](https://www.ad.nl/voetbal/duel-onder-hoogspanning-tussen-liverpool-en-spurs-onderweg-arne-slot-passeert-mohamed-salah~a5f09a76/)
   > Liverpool en Tottenham Hotspur zullen met spanning hebben toegeleefd naar deze wedstrijd. Liverpool staat slechts zesde in de Premier League en moet...
-- [Met je huisdier in bed slapen, is dat gezond? ‘Kans op huidziekte of schimmel’](https://www.ad.nl/gezond/met-je-huisdier-in-bed-slapen-is-dat-gezond-kans-op-huidziekte-of-schimmel~a0c70b4ea/)
-  > Huisdieren worden steeds vaker als volwaardig gezinslid beschouwd. Maar liefst 18 procent van de honden slaapt bij zijn baasje in bed, volgens...
-- [Vier Nederlanders bij laatste acht in Göttingen, Van Gerwen verliest ondanks gemiddelde van 107 (!) ruim van landgenoot](https://www.ad.nl/darts/vier-nederlanders-bij-laatste-acht-in-gottingen-van-gerwen-verliest-ondanks-gemiddelde-van-107-ruim-van-landgenoot~a6a2d22d/)
-  > Een torenhoog gemiddelde van 107 gooien, maar toch verliezen: het overkwam Michael van Gerwen zaterdagavond. De Nederlandse darter verloor op de...
+- [Medaillespiegel Paralympische Winterspelen | Nederland eindigt met 7 plakken in top 10 van medailleklassement](https://www.ad.nl/olympische-spelen/medaillespiegel-paralympische-winterspelen-nederland-eindigt-met-7-plakken-in-top-10-van-medailleklassement~abaa4b11/)
+  > De Paralympische Winterspelen zitten erop. Nederland eindigt dankzij de gouden hattrick van zitskiër Jeroen Kampschreur als negende in het...
+- [LIVE eredivisie | Go Ahead lijkt wedstrijd tegen laagvlieger NAC vlak voor rust al te beslissen](https://www.ad.nl/voetbal/live-eredivisie-go-ahead-lijkt-wedstrijd-tegen-laagvlieger-nac-vlak-voor-rust-al-te-beslissen~aa28e3a9/)
+  > De spanning wordt elke week groter onderin de eredivisie. NAC Breda pakte vorig weekend weliswaar een knap punt tegen Feyenoord (3-3), maar zakte...
+- [Monique is gek van Di-Rect en kocht zelfs tegels bij vader van drummer: ‘Je beleeft alles met elkaar’](https://www.ad.nl/binnenland/monique-is-gek-van-di-rect-en-kocht-zelfs-tegels-bij-vader-van-drummer-je-beleeft-alles-met-elkaar~a384575d/)
+  > He-le-maal mesjogge is ze van haar favoriete band Di-Rect. Monique Wolvers, in het dagelijks leven een Alphense makelaar, beleeft de muziek zoals een...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [‘Britse regering trekt €58 mln noodsteun uit om gestegen energieprijzen’](https://fd.nl/economie/1589706/britse-regering-trekt-58-mln-noodsteun-uit-om-gestegen-energieprijzen)
+  > De pot geld moet vooral terechtkomen bij de ruim één miljoen huishoudens op het platteland in Noord-Ierland die huizen verwarmen met olie.
+- [Buitenlandse ‘trollen’ mengen zich in Nederlandse verkiezingen](https://fd.nl/politiek/1589554/buitenlandse-trollen-mengen-zich-in-nederlandse-verkiezingen)
+  > In aanloop naar de gemeenteraadsverkiezingen mengen buitenlandse ‘trollen’ zich in de Nederlandse sociale media, om rechts-radicale ideeën over...
+- [VS en China effenen in Parijs weg voor handelstop Trump en Xi](https://fd.nl/economie/1589675/vs-en-china-effenen-in-parijs-weg-voor-handelstop-trump-en-xi)
+  > Toponderhandelaars praten in de Franse hoofdstad over onder meer handelstarieven, zeldzame aardmetalen en hightech.
 - [Voorzitter mediawaakhond VS dreigt licenties in te trekken wegens Iran-berichtgeving](https://fd.nl/politiek/1589705/voorzitter-mediawaakhond-vs-dreigt-licenties-in-te-trekken-wegens-iran-berichtgeving)
   > Volgens Brendan Carr verstrekken die media nepnieuws en misleidende berichten over de oorlog in Iran.
 - [Luchtvaartmaatschappijen roepen op tot einde overheidssluiting VS](https://fd.nl/bedrijfsleven/1589674/luchtvaartmaatschappijen-roepen-op-tot-einde-overheidssluiting-vs)
   > Zij waarschuwen dat 50.000 beveiligers daardoor nu onbetaald werken, wat ernstige hinder voor het vliegverkeer tot gevolg kan hebben.
-- [Grote aluminiumsmelter in Bahrein legt productie deels stil](https://fd.nl/economie/1589703/grote-aluminiumsmelter-in-bahrein-legt-productie-deels-stil)
-  > Alba bouwt bijna 20% van zijn productie af vanwege de blokkade van de Straat van Hormuz. Dit kan tot een grotere verstoring van de aluminiummarkt...
-- [Pakistan en Indonesië dicht bij grote deal voor gevechtsvliegtuigen](https://fd.nl/economie/1589702/pakistan-en-indonesie-dicht-bij-grote-deal-voor-gevechtsvliegtuigen)
-  > Maar liefst veertig JF-17 gevechtsvliegtuigen zouden aan Indonesië worden verkocht.
-- [India zet miljardenfonds op om economie te steunen](https://fd.nl/economie/1589701/india-zet-miljardenfonds-op-om-economie-te-steunen)
-  > India zet omgerekend €5,4 mrd opzij als economische steun nu het wordt geraakt door de stijgende olieprijzen als gevolg van de Iran-oorlog.
 
 ### Meest gelezen
 
