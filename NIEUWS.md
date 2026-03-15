@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-03-2026 om 14:35*
+*Laatst bijgewerkt: 15-03-2026 om 15:33*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Gemeenten gefrustreerd over 30km-wegen, want 'kunnen amper boetes uitdelen'](https://nos.nl/l/2606450)
+  > Gemeenten worstelen met de aanpak van hardrijders op 30km-wegen. Vanwege de verkeersveiligheid verlagen steeds meer gemeenten de snelheid van 50...
 - [Auto met gezin beschoten op Westelijke Jordaanoever, vier doden](https://nos.nl/l/2606431)
   > Israëlische militairen hebben vannacht in het noorden van de bezette Westelijke Jordaanoever het vuur geopend op een auto met een gezin erin. Daarbij...
 - [Reddingsacties na nieuwe overstromingen in Kenia](https://nos.nl/l/2606427)
@@ -17,9 +19,6 @@
  ...
 - [Politie beëindigt illegale rave met honderden bezoekers in Willemstad](https://nos.nl/l/2606416)
   > De politie heeft vannacht een illegale rave beëindigd in het West-Brabantse Willemstad. Op het feest, dat werd gehouden op het terrein van een...
-- [Twee kinderen (6 en 8) overleden bij brand in stacaravan België](https://nos.nl/l/2606415)
-  > In België zijn bij een brand in een stacaravan twee kinderen van 6 en 8 jaar oud omgekomen. Hun moeder en een 1-jarig kind raakten zwaargewond.
-     ...
 
 ### Meest gelezen
 
@@ -29,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Noor probeert sprinters te verrassen in slotrit, Philipsen valt, Van der Poel en Van Aert maken praatje](https://www.ad.nl/wielrennen/noor-probeert-sprinters-te-verrassen-in-slotrit-philipsen-valt-van-der-poel-en-van-aert-maken-praatje~a7ae5243/)
-  > De Tirreno-Adriatico eindigt vandaag met een rit over 142 kilometer, van Civitanova Marche naar San Benedetto del Tronto. Na twee beklimmingen wordt...
-- [AZ verdubbelt voorsprong op slag van rust na slechte uittrap Pasveer](https://www.ad.nl/voetbal/az-verdubbelt-voorsprong-op-slag-van-rust-na-slechte-uittrap-pasveer~a17c6676/)
-  > AZ presteert dit seizoen wisselvallig, maar is nog wel de enige Nederlandse club in Europa. Tussen het tweeluik met Sparta Praag door krijgt de ploeg...
-- [Formule 1 leuker om naar te kijken? Max Verstappen gruwelt van die vraag: ‘Dan weet je niet wat racen is’](https://www.ad.nl/formule-1/formule-1-leuker-om-naar-te-kijken-max-verstappen-gruwelt-van-die-vraag-dan-weet-je-niet-wat-racen-is~a1e2a441/)
-  > Max Verstappen gruwelt van de nieuwe reglementen in de Formule 1, zo herhaalde hij na zijn uitvalbeurt in de Grand Prix van China. Maar met meer...
-- [100 jaar Michelinsterren: de grootste sterrenkok hield alleen van ‘steak frites’](https://www.ad.nl/buitenland/100-jaar-michelinsterren-de-grootste-sterrenkok-hield-alleen-van-steak-frites~aa88559b/)
-  > Precies honderd jaar geleden bedacht het Franse bedrijf Michelin de inmiddels wereldberoemde sterren voor restaurants. Dat wordt maandag gevierd in...
-- [Zitskiër Jeroen Kampschreur sluit Paralympische Spelen af in stijl met derde gouden medaille](https://www.ad.nl/andere-sporten/zitskier-jeroen-kampschreur-sluit-paralympische-spelen-af-in-stijl-met-derde-gouden-medaille~a9d4a22b/)
-  > Zitskiër Jeroen Kampschreur heeft op de slotdag van de Paralympische Spelen in Milaan en Cortina zijn derde gouden paralympische medaille behaald. De...
+- [Ayase Ueda neemt Feyenoord met twee goals bij de hand na dramatische eerste helft tegen Excelsior](https://www.ad.nl/voetbal/ayase-ueda-neemt-feyenoord-met-twee-goals-bij-de-hand-na-dramatische-eerste-helft-tegen-excelsior~ae4e36e7/)
+  > Ayase Ueda hielp Feyenoord na een uiterst zwakke eerste helft weer in de juiste richting. De Japanner, die ondanks weken van droogte simpel topscorer...
+- [AZ boekt ruime zege op Heracles, blessure Daal smet op zorgeloze middag](https://www.ad.nl/voetbal/az-boekt-ruime-zege-op-heracles-blessure-daal-smet-op-zorgeloze-middag~a17c6676/)
+  > AZ had weinig te duchten van hekkensluiter Heracles: 4-0. De Alkmaarders kenden daarmee een goede generale richting de return tegen Sparta Praag in...
+- [Arne Slot passeert Mohamed Salah bij Liverpool voor clash met Spurs, druk staat er vol op bij beide clubs](https://www.ad.nl/voetbal/arne-slot-passeert-mohamed-salah-bij-liverpool-voor-clash-met-spurs-druk-staat-er-vol-op-bij-beide-clubs~a5f09a76/)
+  > Liverpool en Tottenham Hotspur zullen met spanning hebben toegeleefd naar deze wedstrijd. Liverpool staat slechts zesde in de Premier League en moet...
+- [Met je huisdier in bed slapen, is dat gezond? ‘Kans op huidziekte of schimmel’](https://www.ad.nl/gezond/met-je-huisdier-in-bed-slapen-is-dat-gezond-kans-op-huidziekte-of-schimmel~a0c70b4ea/)
+  > Huisdieren worden steeds vaker als volwaardig gezinslid beschouwd. Maar liefst 18 procent van de honden slaapt bij zijn baasje in bed, volgens...
+- [Vier Nederlanders bij laatste acht in Göttingen, Van Gerwen verliest ondanks gemiddelde van 107 (!) ruim van landgenoot](https://www.ad.nl/darts/vier-nederlanders-bij-laatste-acht-in-gottingen-van-gerwen-verliest-ondanks-gemiddelde-van-107-ruim-van-landgenoot~a6a2d22d/)
+  > Een torenhoog gemiddelde van 107 gooien, maar toch verliezen: het overkwam Michael van Gerwen zaterdagavond. De Nederlandse darter verloor op de...
 
 ### Meest gelezen
 
@@ -48,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Voorzitter mediawaakhond VS dreigt licenties in te trekken wegens Iran-berichtgeving](https://fd.nl/politiek/1589705/voorzitter-mediawaakhond-vs-dreigt-licenties-in-te-trekken-wegens-iran-berichtgeving)
+  > Volgens Brendan Carr verstrekken die media nepnieuws en misleidende berichten over de oorlog in Iran.
+- [Luchtvaartmaatschappijen roepen op tot einde overheidssluiting VS](https://fd.nl/bedrijfsleven/1589674/luchtvaartmaatschappijen-roepen-op-tot-einde-overheidssluiting-vs)
+  > Zij waarschuwen dat 50.000 beveiligers daardoor nu onbetaald werken, wat ernstige hinder voor het vliegverkeer tot gevolg kan hebben.
 - [Grote aluminiumsmelter in Bahrein legt productie deels stil](https://fd.nl/economie/1589703/grote-aluminiumsmelter-in-bahrein-legt-productie-deels-stil)
   > Alba bouwt bijna 20% van zijn productie af vanwege de blokkade van de Straat van Hormuz. Dit kan tot een grotere verstoring van de aluminiummarkt...
 - [Pakistan en Indonesië dicht bij grote deal voor gevechtsvliegtuigen](https://fd.nl/economie/1589702/pakistan-en-indonesie-dicht-bij-grote-deal-voor-gevechtsvliegtuigen)
   > Maar liefst veertig JF-17 gevechtsvliegtuigen zouden aan Indonesië worden verkocht.
 - [India zet miljardenfonds op om economie te steunen](https://fd.nl/economie/1589701/india-zet-miljardenfonds-op-om-economie-te-steunen)
   > India zet omgerekend €5,4 mrd opzij als economische steun nu het wordt geraakt door de stijgende olieprijzen als gevolg van de Iran-oorlog.
-- [Verwennen](https://fd.nl/financiele-markten/1589556/verwennen)
-  > Softwarebedrijf Salesforce deed vorige week de grootste obligatie-uitgifte in zijn geschiedenis. Niet om in AI te steken, zoals Amazon deed. Maar om...
-- [Nintendo zet vol in op nostalgie, beleggers smullen ervan](https://fd.nl/bedrijfsleven/1589664/nintendo-zet-vol-in-op-nostalgie-beleggers-smullen-ervan)
-  > De spelmaker haalt alles uit de kast om het old school-sentiment aan te grijpen, en niet alleen in de gameindustrie.
 
 ### Meest gelezen
 
