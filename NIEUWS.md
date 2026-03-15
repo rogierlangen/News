@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-03-2026 om 21:32*
+*Laatst bijgewerkt: 15-03-2026 om 22:32*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Voetbalpodcast | ‘Is die Spanjaard bij Ajax een wonderdokter?’](https://www.ad.nl/voetbal/voetbalpodcast-is-die-spanjaard-bij-ajax-een-wonderdokter~ac8603a9/)
+  > Een voetbalweekend waarin scheidsrechters in de huddle stonden. Hands over het hoofd werd gezien. Een ballenknijpende verdediger niet. Maar ook het...
+- [Paralympische Spelen in Cortina beëindigd, Lisa Bunschoten-Vos en Jeroen Kampschreur dragen Nederlandse vlag](https://www.ad.nl/olympische-spelen/paralympische-spelen-in-cortina-beeindigd-lisa-bunschoten-vos-en-jeroen-kampschreur-dragen-nederlandse-vlag~aa71f161/)
+  > De Paralympische Spelen van Milaan en Cortina zijn beëindigd met de sluitingsceremonie in Cortina d'Ampezzo. Jeroen Kampschreur en Lisa...
+- [Met vier WK-medailles staat Xandra Velzeboer symbool voor het nieuwe normaal van Nederlandse shorttrackers](https://www.ad.nl/schaatsen/met-vier-wk-medailles-staat-xandra-velzeboer-symbool-voor-het-nieuwe-normaal-van-nederlandse-shorttrackers~a7260222/)
+  > Twee titels, vier medailles in totaal. Xandra Velzeboer was bij de wereldkampioenschappen shorttrack de beste vrouw en de meest succesvolle...
 - [Formule 1-podcast | ‘Red Bull zal blij zijn dat er in april geen races zijn’](https://www.ad.nl/formule-1/formule-1-podcast-red-bull-zal-blij-zijn-dat-er-in-april-geen-races-zijn~ad703d66/)
   > China was niet het weekend van Max Verstappen. Twee mislukte starts, zowel in de sprintrace als de hoofdrace. Frustratie alom bij de Nederlander toen...
 - [Wessel Nijman bekroont een geweldig toernooi in Göttingen met zijn eerste Euro Tour-titel](https://www.ad.nl/darts/wessel-nijman-bekroont-een-geweldig-toernooi-in-gottingen-met-zijn-eerste-euro-tour-titel~a6a2d22d/)
   > Wessel Nijman heeft de European Darts Trophy in Göttingen op zijn naam geschreven. De 25-jarige Nederlander was in de finale met 8-3 te sterk voor...
-- [Van afwezigheid naar alliantie: Jetten hoopt nieuwe toon te zetten in Duits-Nederlandse relatie](https://www.ad.nl/binnenland/van-afwezigheid-naar-alliantie-jetten-hoopt-nieuwe-toon-te-zetten-in-duits-nederlandse-relatie~af6316fe/)
-  > Minister-president Jetten wacht maandag een groots onthaal in Berlijn. Duitsland geeft hem een militair welkom, een speciaal eerbetoon dat voorganger...
-- [Linda de Mol met stomheid geslagen: man met één cent in zijn koffer wint een miljoen bij Miljoenenjacht](https://www.ad.nl/show/linda-de-mol-met-stomheid-geslagen-man-met-een-cent-in-zijn-koffer-wint-een-miljoen-bij-miljoenenjacht~a0381025/)
-  > Mark (58) uit Den Haag heeft zondagavond dankzij een simpele tactiek en zonder enige zenuwen 1 miljoen euro gewonnen bij de SBS 6-show...
-- [Wittenberg sterft kort na zijn vrijspraak: hulpverlener die vluchtelingen redde, stond jarenlang voor de rechter](https://www.ad.nl/binnenland/wittenberg-sterft-kort-na-zijn-vrijspraak-hulpverlener-die-vluchtelingen-redde-stond-jarenlang-voor-de-rechter~acb9d5a1/)
-  > Kort nadat de Nederlandse hulpverlener Pieter Wittenberg (78) werd vrijgesproken van mensensmokkel op het Griekse eiland Lesbos, is hij overleden....
 
 ### Meest gelezen
 
