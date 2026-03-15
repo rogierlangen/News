@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-03-2026 om 11:30*
+*Laatst bijgewerkt: 15-03-2026 om 13:03*
 
 ---
 
@@ -8,17 +8,18 @@
 
 ### Laatste nieuws
 
+- [Auto met gezin beschoten op Westelijke Jordaanoever, vier doden](https://nos.nl/l/2606431)
+  > Israëlische militairen hebben vannacht in het noorden van de bezette Westelijke Jordaanoever het vuur geopend op een auto met een gezin erin. Daarbij...
+- [Reddingsacties na nieuwe overstromingen in Kenia](https://nos.nl/l/2606427)
+  > Na zware overstromingen in Kenia zijn op meerdere plekken in het land reddingsacties gaande. In het zuiden zijn 130 kinderen gered uit een weeshuis....
+- [Nationale aanpak tegen moslimdiscriminatie in de maak](https://nos.nl/l/2606426)
+  > De Nationaal Coördinator tegen Discriminatie en Racisme (NCDR) gaat een speciale programmaleider aanstellen voor de aanpak van moslimdiscriminatie.
+ ...
 - [Politie beëindigt illegale rave met honderden bezoekers in Willemstad](https://nos.nl/l/2606416)
   > De politie heeft vannacht een illegale rave beëindigd in het West-Brabantse Willemstad. Op het feest, dat werd gehouden op het terrein van een...
 - [Twee kinderen (6 en 8) overleden bij brand in chalet België](https://nos.nl/l/2606415)
   > In België zijn bij een brand in een stacaravan twee kinderen van 6 en 8 jaar oud omgekomen. Hun moeder en een 1-jarig kind raakten zwaargewond.
      ...
-- [Groep die aanvallen op joodse instellingen opeist 'lijkt niet georganiseerd'](https://nos.nl/l/2606408)
-  > Bombastische muziek klinkt terwijl een brandend object wordt gefilmd. De schokkerige propagandavideo toont een explosie en de maker vlucht. Er...
-- [Energiecrisis Zuid-Azië voelbaar tot in de Indiase keuken](https://nos.nl/l/2606404)
-  > Landen in Zuid-Azië zijn voor een groot deel van hun energietoevoer afhankelijk van de Straat van Hormuz. Nu die route vanwege de oorlog in Iran...
-- [Regionale verkiezingen in Spanje gedomineerd door landelijke politiek](https://nos.nl/l/2606396)
-  > Thema's als landbouw, ontvolking van het platteland en de gezondheidszorg: het is zomaar een greep uit de onderwerpen die spelen bij de regionale...
 
 ### Meest gelezen
 
@@ -28,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Wereldberoemd aapje Punch speelt en knuffelt met soortgenoten: ‘Geweldig om die mijlpalen te zien’](https://www.ad.nl/buitenland/wereldberoemd-aapje-punch-speelt-en-knuffelt-met-soortgenoten-geweldig-om-die-mijlpalen-te-zien~a6f1c8e7/)
-  > De beelden van het aapje Punch in een Japanse dierentuin gaan al weken de wereld over. Hij werd verstoten door zijn moeder, gepest door andere apen...
-- [Zitskiër Jeroen Kampschreur op koers voor derde paralympisch goud](https://www.ad.nl/olympische-spelen/zitskier-jeroen-kampschreur-op-koers-voor-derde-paralympisch-goud~aa7114769/)
-  > Zitskiër Jeroen Kampschreur is hard op weg naar zijn derde gouden paralympische medaille. De Nederlander leidt riant na de eerste run van de slalom...
-- [Helpt Van der Poel ploeggenoot Philipsen aan zege?](https://www.ad.nl/wielrennen/helpt-van-der-poel-ploeggenoot-philipsen-aan-zege~a7ae5243/)
-  > De Tirreno-Adriatico eindigt vandaag met een rit over 142 kilometer, van Civitanova Marche naar San Benedetto del Tronto. Na twee beklimmingen wordt...
-- [Magisch theaterspektakel Harry Potter is een warme deken voor fans (maar een doolhof voor dreuzels)](https://www.ad.nl/show/magisch-theaterspektakel-harry-potter-is-een-warme-deken-voor-fans-maar-een-doolhof-voor-dreuzels~ac6b9c3ee/)
-  > Harry Potter is terug in Nederland, ditmaal als toneelstuk. De makers hebben een wereld vol magie gecreëerd die zijn weerga niet kent. En het script...
-- [Israëlisch leger schiet Palestijns gezin in auto dood op Westelijke Jordaanoever](https://www.ad.nl/buitenland/israelisch-leger-schiet-palestijns-gezin-in-auto-dood-op-westelijke-jordaanoever~a6dfa890/)
-  > Het Israëlisch leger heeft op de bezette Westelijke Jordaanoever een Palestijns echtpaar en hun twee jonge kinderen doodgeschoten. De familie Bani...
+- [Bennie Jolink brak zijn rug en was ‘he-le-maal kapot’, maar komt met Normaal terug: ‘Dát is het voor mij’](https://www.ad.nl/binnenland/bennie-jolink-brak-zijn-rug-en-was-he-le-maal-kapot-maar-komt-met-normaal-terug-dat-is-het-voor-mij~ac0bef04/)
+  > ‘Schik’ staat ook in 2026 voorop bij Normaal. Dat, én het kwakkelende fysiek van frontman Bennie Jolink, is de reden dat de boerenrockers het dit...
+- [Israël ontkent gesprekken met Libanon, brokstuk Iraanse raket op woongebouw consul VS](https://www.ad.nl/buitenland/israel-ontkent-gesprekken-met-libanon-brokstuk-iraanse-raket-op-woongebouw-consul-vs~ac528ac3/)
+  > De Israëlische minister van Buitenlandse Zaken Gideon Saar ontkent zondag berichten dat Israël binnenkort rechtstreekse met Libanon zal...
+- [AZ begint met derde doelman Hobie Verhulst aan wedstrijd tegen Heracles Almelo](https://www.ad.nl/voetbal/az-begint-met-derde-doelman-hobie-verhulst-aan-wedstrijd-tegen-heracles-almelo~a17c6676/)
+  > AZ presteert dit seizoen wisselvallig, maar is nog wel de enige Nederlandse club in Europa. Tussen het tweeluik met Sparta Praag door krijgt de ploeg...
+- [Waarom we niks met de overheid te maken willen hebben, behalve als er iets misgaat](https://www.ad.nl/binnenland/waarom-we-niks-met-de-overheid-te-maken-willen-hebben-behalve-als-er-iets-misgaat~a7944afb/)
+  > Betalen voor een noodvlucht terug naar Nederland, een ambassade die niets doet, Nederland dat het laat afweten: veel vakantiegangers die door de...
+- [Frank (56) helpt paniekerige man in dure SUV en is 100 euro kwijt: ‘Mijn eerste gevoel was: je wordt genaaid’](https://www.ad.nl/geld/frank-56-helpt-paniekerige-man-in-dure-suv-en-is-100-euro-kwijt-mijn-eerste-gevoel-was-je-wordt-genaaid~ab783061/)
+  > Toen Frank Mossink (56) om hulp werd gevraagd door een gestrande reiziger, schroomde hij niet om te helpen. Zo verloor hij 100 euro. Iedereen maakt...
 
 ### Meest gelezen
 
@@ -47,6 +48,8 @@
 
 ### Laatste nieuws
 
+- [Duurdere benzine in China, maar energietransitie dempt de schok](https://fd.nl/economie/1589523/duurdere-benzine-in-china-maar-energietransitie-dempt-de-schok)
+  > Ook Chinese automobilisten betalen sinds deze week meer aan de pomp. Staatsoliebedrijven hebben de prijzen verhoogd nu de olieprijzen flink stijgen....
 - [Wie helpt Rotterdam aan het werk?](https://fd.nl/samenleving/1588498/wie-helpt-rotterdam-aan-het-werk)
   > Er is een nationaal programma, een burgerberaad, een werkstation, alles om Rotterdammers op Zuid aan een baan te helpen. ‘Soms komen mensen binnen...
 - [Nederlandse vissers krijgen klap door dure diesel: ‘Dit doet echt pijn’](https://fd.nl/bedrijfsleven/1589636/nederlandse-vissers-krijgen-klap-door-dure-diesel-dit-doet-echt-pijn)
@@ -55,8 +58,6 @@
   > Volgens Amerikaanse president is Iraans olie-eiland ‘gedecimeerd’. De voorwaarden voor een deal zijn niet goed genoeg.
 - [Lada zonder airco staat symbool voor de aftakeling van de Russische auto-industrie](https://fd.nl/bedrijfsleven/1589625/lada-zonder-airco-staat-symbool-voor-de-aftakeling-van-de-russische-auto-industrie)
   > De omzet van Lada daalde met een kwart in 2025. De Russische consumentenindustrie lijdt onder de oorlogseconomie, die wapenfabrieken voorrang geeft.
-- [Kies een gemeenteraad die weet wat telt: het sociaal domein slokt de helft van het gemeentebudget op](https://fd.nl/opinie/1588817/kies-een-gemeenteraad-die-weet-wat-ertoe-doet)
-  > Gemeenten geven de helft van hun budget uit aan zorg en jeugdhulp – en dat aandeel groeit snel. Bij de verkiezingen zou juist dat centraal moeten...
 
 ### Meest gelezen
 
