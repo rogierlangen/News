@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-03-2026 om 23:34*
+*Laatst bijgewerkt: 16-03-2026 om 02:49*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Bewoners voelen zich nauwelijks gehoord over parkeren in hun wijk](https://www.ad.nl/home/bewoners-voelen-zich-nauwelijks-gehoord-over-parkeren-in-hun-wijk~a743ea76/)
+  > Slechts de helft van de inwoners vindt gemakkelijk een parkeerplaats in zijn of haar buurt. Dat blijkt uit onderzoek van de ANWB in aanloop naar de...
+- [Trump zegt dat Navo ‘zware’ toekomst wacht als landen niet helpen in Iran](https://www.ad.nl/buitenland/trump-zegt-dat-navo-zware-toekomst-wacht-als-landen-niet-helpen-in-iran~ac528ac3/)
+  > President Donald Trump heeft in een interview met de Financial Times gezegd dat de Navo een ‘zware toekomst’ wacht als de Navo-landen de Verenigde...
 - [Duitse skiërs ontsnappen aan dood nadat ze vastzitten op ijsschots in Oostzee](https://www.ad.nl/buitenland/duitse-skiers-ontsnappen-aan-dood-nadat-ze-vastzitten-op-ijsschots-in-oostzee~a8ed5b0e9/)
   > Een extreme skitocht over de bevroren Oostzee is voor twee Duitse wintersporters bijna fataal afgelopen. Midden in de nacht brak het ijs onder hun...
 - [Voetbalpodcast | ‘Is die Spanjaard bij Ajax een wonderdokter?’](https://www.ad.nl/voetbal/voetbalpodcast-is-die-spanjaard-bij-ajax-een-wonderdokter~ac8603a9/)
   > Een voetbalweekend waarin scheidsrechters in de huddle stonden. Hands over het hoofd werd gezien. Een ballenknijpende verdediger niet. Maar ook het...
 - [Paralympische Spelen in Cortina beëindigd, Lisa Bunschoten-Vos en Jeroen Kampschreur dragen Nederlandse vlag](https://www.ad.nl/olympische-spelen/paralympische-spelen-in-cortina-beeindigd-lisa-bunschoten-vos-en-jeroen-kampschreur-dragen-nederlandse-vlag~aa71f161/)
   > De Paralympische Spelen van Milaan en Cortina zijn beëindigd met de sluitingsceremonie in Cortina d'Ampezzo. Jeroen Kampschreur en Lisa...
-- [Met vier WK-medailles staat Xandra Velzeboer symbool voor het nieuwe normaal van Nederlandse shorttrackers](https://www.ad.nl/schaatsen/met-vier-wk-medailles-staat-xandra-velzeboer-symbool-voor-het-nieuwe-normaal-van-nederlandse-shorttrackers~a7260222/)
-  > Twee titels, vier medailles in totaal. Xandra Velzeboer was bij de wereldkampioenschappen shorttrack de beste vrouw en de meest succesvolle...
-- [Formule 1-podcast | ‘Red Bull zal blij zijn dat er in april geen races zijn’](https://www.ad.nl/formule-1/formule-1-podcast-red-bull-zal-blij-zijn-dat-er-in-april-geen-races-zijn~ad703d66/)
-  > China was niet het weekend van Max Verstappen. Twee mislukte starts, zowel in de sprintrace als de hoofdrace. Frustratie alom bij de Nederlander toen...
 
 ### Meest gelezen
 
