@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-03-2026 om 07:24*
+*Laatst bijgewerkt: 16-03-2026 om 09:02*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Wormen belangrijkste oorzaak van PFAS in eieren van hobbykip](https://nos.nl/l/2606549)
+  > De PFAS in eieren van hobbykippen komt voor een groot deel uit wormen. Dat blijkt uit onderzoek van het RIVM. Kippen die buiten lopen, leggen eieren...
+- [Hakenkruis en antihomotekst bij woningen politici Baarn, partijen vol afschuw](https://nos.nl/l/2606545)
+  > In Baarn zijn afgelopen weekend verkiezingsborden bespoten met een hakenkruis en antihomotekst. De borden stonden in de voortuinen van de politici.
+ ...
+- [Winst voor links én rechts in eerste ronde van lokale Franse verkiezingen](https://nos.nl/l/2606544)
+  > Uit de eerste ronde van de lokale verkiezingen in Frankrijk is geen duidelijke winnaar naar voren gekomen. Bij de gemeenteraadsverkiezingen die...
 - [Wekdienst 16/3: Definitieve opbrengst Serious Request • Hoger beroep in corruptiezaak oud-president Sarkozy](https://nos.nl/l/2606535)
   > Goedemorgen! De échte eindstand van NPO 3FM Serious Request wordt bekendgemaakt. En in Frankrijk begint het hoger beroep in een corruptiezaak rond...
 - [One Battle wint zes Oscars, maar winnaar Sean Penn laat verstek gaan](https://nos.nl/l/2606528)
   > "Wat een avond!", juichte regisseur Paul Thomas Anderson toen hij opnieuw een Oscar mocht ophalen vannacht. 28 jaar nadat hij voor het eerst werd...
-- ['Meeste bedrijventerreinen slecht voorbereid op wateroverlast'](https://nos.nl/l/2606527)
-  > Een aanzienlijk deel van de bedrijventerreinen in Nederland is niet goed voorbereid op wateroverlast door klimaatverandering. Dat valt op te maken...
-- [Lesbos-hulpverlener Pieter Wittenberg (78) overleden](https://nos.nl/l/2606502)
-  > De Nederlandse hulpverlener Pieter Wittenberg is op 78-jarige leeftijd overleden. Hij was ernstig ziek en was daarom sinds vorige maand gestopt met...
-- [Veel schademeldingen na beving bij Assen ingediend bij verkeerde loket](https://nos.nl/l/2606498)
-  > Veel van de ruim 300 meldingen van schade na de aardbeving bij Assen dit weekend zijn ingediend bij het Instituut Mijnbouwschade Groningen (IMG).
-   ...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Teyana Taylor steelt de show bij Oscars, maar krijgt ook veel kritiek en belandt in handgemeen met beveiliger](https://www.ad.nl/show/teyana-taylor-steelt-de-show-bij-oscars-maar-krijgt-ook-veel-kritiek-en-belandt-in-handgemeen-met-beveiliger~aeeb691d/)
-  > Teyana Taylor is na de Oscars de meest besproken ster van de avond. De actrice die een rol speelde in de winnende film One battle after another stal...
-- [Trump haalt opnieuw uit: ‘Navo wacht zware toekomst als landen VS niet helpen in Iran’](https://www.ad.nl/buitenland/trump-haalt-opnieuw-uit-navo-wacht-zware-toekomst-als-landen-vs-niet-helpen-in-iran~ae67dd9c/)
-  > De Amerikaanse president Donald Trump heeft zich dreigend uitgelaten tegenover de Navo. Hij zei dat het bondgenootschap een ‘zware toekomst’ wacht...
-- [Het is zo duidelijk als wat: Mathieu van der Poel is klaar voor de monumenten](https://www.ad.nl/wielrennen/het-is-zo-duidelijk-als-wat-mathieu-van-der-poel-is-klaar-voor-de-monumenten~a4fa4117/)
-  > Na Tirreno-Adriatico (winst Isaac del Toro) en Parijs-Nice (winst Jonas Vingegaard) is het tijd voor de voorjaarsklassiekers. De conclusies aan de...
-- [Toen Tristan in beeld kwam bij Opsporing Verzocht riep zijn zoontje: ‘Papa!’](https://www.ad.nl/binnenland/toen-tristan-in-beeld-kwam-bij-opsporing-verzocht-riep-zijn-zoontje-papa~a1f26ae4/)
-  > Nadat hij een auto in de prak had gereden, moest Tristan ‘een klusje’ doen. Hij moest een taxichauffeur ontvoeren en reed de man aan op de A13. Maar...
-- [Droneaanval legt luchthaven Dubai urenlang plat: vliegverkeer geleidelijk hervat, rookpluimen te zien](https://www.ad.nl/buitenland/droneaanval-legt-luchthaven-dubai-urenlang-plat-vliegverkeer-geleidelijk-hervat-rookpluimen-te-zien~ac528ac3/)
-  > De internationale luchthaven van Dubai hervat het vliegverkeer na een droneaanval. ‘Vluchten van en naar DXB worden geleidelijk hervat naar...
+- [Shell zet nieuw wapen in tegen golf aan laadpaaldiefstallen in Amersfoort](https://www.ad.nl/binnenland/shell-zet-nieuw-wapen-in-tegen-golf-aan-laadpaaldiefstallen-in-amersfoort~a916f2c1/)
+  > Amersfoort gaat gebukt onder een bizarre golf van laadpaalvandalisme. Koperdieven stelen de dikke kabels van snelladers voor elektrische auto’s en...
+- [Quiz | Test jouw kennis over het afgelopen sportweekend](https://www.ad.nl/andere-sporten/quiz-test-jouw-kennis-over-het-afgelopen-sportweekend~a7557c3f1/)
+  > Vanaf deze week kun je elke maandagochtend je kennis testen over het afgelopen sportweekend. Heb jij al het sportnieuws op de voet gevolgd en...
+- [Minister Berendsen na dreigement van Trump: ‘Nederlandse inzet voor doorvaart in Straat van Hormuz niet uitgesloten’](https://www.ad.nl/buitenland/minister-berendsen-na-dreigement-van-trump-nederlandse-inzet-voor-doorvaart-in-straat-van-hormuz-niet-uitgesloten~ae037208/)
+  > Minister Tom Berendsen (Buitenlandse Zaken, CDA) sluit de inzet van Nederland om de veilige doorvaart in de Straat van Hormuz te garanderen niet uit,...
+- [Nederlandse verkrachter (27) eist dat getuigen naar Spaanse rechtbank komen, maar krijgt deksel op neus](https://www.ad.nl/buitenland/nederlandse-verkrachter-27-eist-dat-getuigen-naar-spaanse-rechtbank-komen-maar-krijgt-deksel-op-neus~a136725d/)
+  > Een 27-jarige Nederlander is in hoger beroep veroordeeld tot zeven jaar gevangenisstraf voor het verkrachten van een vrouw op het Spaanse eiland...
+- [Vliegtuig Khamenei verwoest, Iran dreigt met aanvallen op doelen die het linkt aan tv-zender](https://www.ad.nl/buitenland/vliegtuig-khamenei-verwoest-iran-dreigt-met-aanvallen-op-doelen-die-het-linkt-aan-tv-zender~ac528ac3/)
+  > Iran heeft landen in de regio opgeroepen niet samen te werken met televisiezender Iran International. In een verklaring wordt gewaarschuwd dat...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Omzet en winst OCI stuk lager door verkoop van onderdelen](https://fd.nl/bedrijfsleven/1589808/omzet-en-winst-oci-stuk-lager-door-verkoop-van-onderdelen)
+  > Het chemiebedrijf wordt geraakt door hogere olie- en gasprijzen, maar vindt het nog te vroeg om voorspellingen te doen voor geheel 2026.
+- [UniCredit komt met bod op aandelen Commerzbank](https://fd.nl/bedrijfsleven/1589806/unicredit-komt-met-bod-op-commerzbank)
+  > De Italiaanse financiële instelling gaat voor een transactie in aandelen. De bieding komt neer op €30,80 per aandeel.
+- [Export van goederen groeit met 1,1% in januari](https://fd.nl/economie/1589723/export-van-goederen-groeit-met-1-1-in-januari)
+  > Met name de export van delfstoffen, textiel en kleding is toegenomen.
 - [Radicaal-rechts wint terrein bij Franse gemeenteraadsverkiezingen](https://fd.nl/politiek/1589805/radicaal-rechts-wint-terrein-bij-franse-gemeenteraadsverkiezingen)
   > In Marseille, de tweede stad van Frankrijk, gaan de zittende socialistische burgemeester en de kandidaat van het radicaal-rechtse RN volgens de...
 - [Trump eist hulp van andere landen bij verdediging Straat van Hormuz](https://fd.nl/politiek/1589721/trump-eist-hulp-van-andere-landen-bij-verdediging-straat-van-hormuz)
   > ‘Ik eis dat deze landen hun eigen gebied beschermen, want het is hun territorium’, zei Trump tegen verslaggevers aan boord van Air Force One. ‘Daar...
-- [Live: Groene beurskoersen in het verschiet](https://fd.nl/financiele-markten/1589700/live-shell-steunpilaar-van-de-amsterdamse-beurs)
-  > De circa 50% hogere olieprijs doet de aandelenkoers van Shell stijgen tot een alltime high. Zwaargewicht Shell voorkomt daarmee een groter...
-- [Donkere wolken boven cryptoland](https://fd.nl/economie/1589561/donkere-wolken-boven-cryptoland)
-  > Vandaag in Dagkoers: donkere wolken pakken zich samen boven cryptoland, China dempt de benzineprijzen door energietransitie, en wethouders wonen...
-- [De Trump-recessie](https://fd.nl/opinie/1589704/de-trump-recessie)
-  > De Trump-recessie kan wel eens veel dieper worden dan de meest sombere prognoses.
 
 ### Meest gelezen
 
