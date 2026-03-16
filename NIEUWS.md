@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-03-2026 om 22:39*
+*Laatst bijgewerkt: 16-03-2026 om 23:35*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Wereldrecord grootste voetbaltraining verbroken in Mexico-Stad](https://www.ad.nl/voetbal/wereldrecord-grootste-voetbaltraining-verbroken-in-mexico-stad~ace621b5/)
+  > In Mexico-Stad is een wereldrecord verbroken door de grootste voetbaltraining ter wereld te organiseren. Het gaat om een publiciteitsstunt in aanloop...
 - [Chelsea krijgt boete van 12 miljoen en voorwaardelijk transferverbod, trainersklus voor Ashley Cole](https://www.ad.nl/voetbal/chelsea-krijgt-boete-van-12-miljoen-en-voorwaardelijk-transferverbod-trainersklus-voor-ashley-cole~a35ea681/)
   > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
 - [Waarom liep zaal leeg bij optreden Gover Meit in België? ‘Ik wilde testen hoe ver ik kon gaan’](https://www.ad.nl/show/waarom-liep-zaal-leeg-bij-optreden-gover-meit-in-belgie-ik-wilde-testen-hoe-ver-ik-kon-gaan~a00249a7/)
@@ -35,8 +37,6 @@
   > Al meer dan 25 jaar dropt de mysterieuze kunstenaar Banksy overal ter wereld in guerrillastijl muurschilderingen en al die tijd slaagde hij erin zijn...
 - [Verloofd stel krijgt ‘onwijs grote’ woning na noodgedwongen zolderleven in Kopen zonder kijken](https://www.ad.nl/show/verloofd-stel-krijgt-onwijs-grote-woning-na-noodgedwongen-zolderleven-in-kopen-zonder-kijken~adfb8ee7/)
   > Chantal (27) en Ruben (29) zijn verloofd, maar wonen noodgedwongen bij haar ouders op zolder. Verre van ideaal. Dus schakelt het jonge stel Kopen...
-- [SC Cambuur bijna terug in eredivisie: razendsnelle goal helpt Leeuwarders aan nipte zege](https://www.ad.nl/voetbal/sc-cambuur-bijna-terug-in-eredivisie-razendsnelle-goal-helpt-leeuwarders-aan-nipte-zege~a00c69ae/)
-  > SC Cambuur heeft geen fout gemaakt in strijd om promotie naar de eredivisie. De ploeg van Henk de Jong boekte een minimale zege op bezoek bij Helmond...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [De man zonder plan](https://fd.nl/opinie/1589834/de-man-zonder-plan)
+  > Trump vraagt nu zijn bondgenoten om hulp. Die hij al een jaar beledigt, straft met heffingen en dreigt met landjepik. Maar dat is niet de reden om...
+- [Waarom de Straat van Hormuz voor Trump een electoraal mijnenveld is](https://fd.nl/opinie/1589818/de-straat-van-hormuz-beslist-trumps-oorlog)
+  > De oorlog met Iran raakt een nerveuze snaar in de VS: de benzineprijs. Voor Donald Trump kan een dure liter brandstof politiek gevaarlijker blijken...
+- [Vesteda poogt massale uitstroom beleggers uit woningfonds te beperken](https://fd.nl/financiele-markten/1589638/vesteda-poogt-massale-uitstroom-beleggers-uit-woningfonds-te-beperken)
+  > De grootste institutionele woningbelegger van het land is in gesprek met zijn investeerders over verlaging van de €4,1 mrd aan redemptieverzoeken die...
+- [Personalia dinsdag 17 maart](https://fd.nl/bedrijfsleven/1589744/personalia-dinsdag-17-maart)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [Lagere olieprijs stemt beleggers voorzichtig optimistisch](https://fd.nl/financiele-markten/1589836/lagere-olieprijs-stemt-beleggers-voorzichtig-optimistisch)
   > De Amerikaanse beurzen zijn maandag met een plus gesloten. Onder beleggers heerste de hoop dat de olietransporten in de Straat van Hormuz weer...
-- [Stroomnet Cuba begeeft het, hele eiland zonder stroom](https://fd.nl/politiek/1589833/stroomnet-cuba-begeeft-het-hele-eiland-zonder-stroom)
-  > Alle tien miljoen Cubanen zitten zonder stroom. Het eiland heeft al drie maanden geen olielevering meer gekregen volgens de Cubaanse president.
-- [Europa moet zich niet laten meeslepen in Golfoorlog](https://fd.nl/opinie/1589825/europa-moet-zich-niet-laten-meeslepen-in-golfoorlog)
-  > Het woord afpersing dringt zich op bij de druk die de Amerikaanse president Trump zet op zijn Europese bondgenoten.
-- [Bank of America schikt rechtszaak over Epstein](https://fd.nl/politiek/1589756/bank-of-america-schikt-rechtszaak-over-epstein)
-  > De Amerikaanse zakenbank werd aangeklaagd door slachtoffers van Jeffrey Epstein omdat de bank het misbruik zou hebben gefaciliteerd.
-- [Zweden dreigt export elektriciteit beperken](https://fd.nl/politiek/1589832/zweden-dreigt-export-elektriciteit-beperken)
-  > Het Scandinavische land dreigt met een exportban als de meningsverschillen binnen de Europese Commissie over EU-energieprojecten niet worden opgelost.
 
 ### Meest gelezen
 
