@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-03-2026 om 21:44*
+*Laatst bijgewerkt: 16-03-2026 om 22:39*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Politie zoekt twee verdachten op fatbike voor betrokkenheid explosie Zuidas](https://nos.nl/l/2606634)
+  > De politie zoekt twee verdachten die mogelijk betrokken zijn bij de explosie bij een kantoorpand op de Amsterdamse Zuidas afgelopen nacht. Dat zei...
+- [Spaanse koning geeft toe: veel misstanden bij verovering Mexico](https://nos.nl/l/2606630)
+  > De Spaanse koning Felipe heeft erkend dat er veel misstanden zijn geweest tijdens de Spaanse verovering van Amerika. Dat deed hij tijdens een bezoek...
+- [Belgische premier krabbelt terug na uitspraken over deal met Rusland](https://nos.nl/l/2606629)
+  > De Belgische premier De Wever zegt dat er eerst vrede moet komen tussen Rusland en Oekraïne, voordat de economische banden weer aangehaald kunnen...
 - [Ruim een miljoen Libanezen op de vlucht; vrees voor grote humanitaire ramp](https://nos.nl/l/2606627)
   > In Libanon zijn ruim een miljoen burgers op de vlucht geslagen voor Israëlische bombardementen, melden de autoriteiten in het land. In totaal zijn er...
 - [Nepagenten aangehouden na achtervolging en botsingen in Amersfoort](https://nos.nl/l/2606622)
   > De politie heeft dit weekend drie nepagenten aangehouden in Amersfoort. Dat gebeurde na een lange achtervolging, waarbij de verdachten op meerdere...
-- [Nieuwe aanwijzing voor betrokkenheid organisatie van Taghi bij moord Peter R. de Vries](https://nos.nl/l/2606620)
-  > In het onderzoek naar de opdrachtgevers voor de moord op Peter R. de Vries is in Marokko de Nederlandse verdachte Ismail M. (34) aangehouden. Dat...
-- [Grote delen Moskou al ruim tien dagen zonder mobiel internet](https://nos.nl/l/2606619)
-  > Al ruim tien dagen kampen inwoners van Moskou met grote problemen met mobiel internet. Ook bellen en sms'en is lastig, melden inwoners. Het Kremlin...
-- [Ravage na botsing tussen tram en vrachtwagen in Den Haag, meerdere gewonden](https://nos.nl/l/2606615)
-  > In Den Haag zijn vanmiddag vier mensen licht gewond geraakt bij een botsing tussen een vrachtwagen en een tram. Het ongeluk gebeurde op de kruising...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Chelsea krijgt boete van 12 miljoen en voorwaardelijk transferverbod, trainersklus voor Ashley Cole](https://www.ad.nl/voetbal/chelsea-krijgt-boete-van-12-miljoen-en-voorwaardelijk-transferverbod-trainersklus-voor-ashley-cole~a35ea681/)
+  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
+- [Waarom liep zaal leeg bij optreden Gover Meit in België? ‘Ik wilde testen hoe ver ik kon gaan’](https://www.ad.nl/show/waarom-liep-zaal-leeg-bij-optreden-gover-meit-in-belgie-ik-wilde-testen-hoe-ver-ik-kon-gaan~a00249a7/)
+  > De eerste Belgische try-out van cabaretier Gover Meit (38) ging de afgelopen dagen gretig over de tong. In een uitverkochte foyer in het Oost-Vlaamse...
 - [Hoe Banksy na jaren speurwerk werd ontmaskerd: zijn naam stond in de archieven van de New Yorkse politie](https://www.ad.nl/buitenland/hoe-banksy-na-jaren-speurwerk-werd-ontmaskerd-zijn-naam-stond-in-de-archieven-van-de-new-yorkse-politie~acb4044e/)
   > Al meer dan 25 jaar dropt de mysterieuze kunstenaar Banksy overal ter wereld in guerrillastijl muurschilderingen en al die tijd slaagde hij erin zijn...
 - [Verloofd stel krijgt ‘onwijs grote’ woning na noodgedwongen zolderleven in Kopen zonder kijken](https://www.ad.nl/show/verloofd-stel-krijgt-onwijs-grote-woning-na-noodgedwongen-zolderleven-in-kopen-zonder-kijken~adfb8ee7/)
   > Chantal (27) en Ruben (29) zijn verloofd, maar wonen noodgedwongen bij haar ouders op zolder. Verre van ideaal. Dus schakelt het jonge stel Kopen...
 - [SC Cambuur bijna terug in eredivisie: razendsnelle goal helpt Leeuwarders aan nipte zege](https://www.ad.nl/voetbal/sc-cambuur-bijna-terug-in-eredivisie-razendsnelle-goal-helpt-leeuwarders-aan-nipte-zege~a00c69ae/)
   > SC Cambuur heeft geen fout gemaakt in strijd om promotie naar de eredivisie. De ploeg van Henk de Jong boekte een minimale zege op bezoek bij Helmond...
-- [Honderden kilo’s coke werden in zee gegooid en weer opgevist: dit is de ‘drop-off methode’](https://www.ad.nl/binnenland/honderden-kilos-coke-werden-in-zee-gegooid-en-weer-opgevist-dit-is-de-drop-off-methode~a5da1af4/)
-  > Honderden kilo’s cocaïne, een snelle motorboot en een klopjacht op de Noordzee. De arrestatie van vijf mannen dit weekend bij Neeltje Jans in Zeeland...
-- [Shaqueel van Persie geeft update over blessure: ‘Ik ben van mijn krukken af en kan weer autorijden’](https://www.ad.nl/voetbal/shaqueel-van-persie-geeft-update-over-blessure-ik-ben-van-mijn-krukken-af-en-kan-weer-autorijden~a25f6233/)
-  > Shaqueel van Persie is op de weg terug na een knieblessure. De spits viel bijna twee maanden geleden geblesseerd uit tegen Real Betis, maar werkt...
 
 ### Meest gelezen
 
