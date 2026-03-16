@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-03-2026 om 19:09*
+*Laatst bijgewerkt: 16-03-2026 om 20:42*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Nepagenten aangehouden na achtervolging en botsingen in Amersfoort](https://nos.nl/l/2606622)
+  > De politie heeft dit weekend drie nepagenten aangehouden in Amersfoort. Dat gebeurde na een lange achtervolging, waarbij de verdachten op meerdere...
 - [Nieuwe aanwijzing voor betrokkenheid organisatie van Taghi bij moord Peter R. de Vries](https://nos.nl/l/2606620)
   > In het onderzoek naar de opdrachtgevers voor de moord op Peter R. de Vries is in Marokko de Nederlandse verdachte Ismail M. (34) aangehouden. Dat...
 - [Grote delen Moskou al ruim tien dagen zonder mobiel internet](https://nos.nl/l/2606619)
@@ -16,8 +18,6 @@
   > In Den Haag zijn vanmiddag vier mensen licht gewond geraakt bij een botsing tussen een vrachtwagen en een tram. Het ongeluk gebeurde op de kruising...
 - [Erasmus MC opent meldpunt voor IC-medewerkers na signalen angstcultuur](https://nos.nl/l/2606614)
   > Het Erasmus MC in Rotterdam opent een meldpunt voor medewerkers van de intensive care (IC). Dat doet het ziekenhuis na berichtgeving van Nieuwsuur,...
-- [Jetten en Merz eensgezind: nu geen Hormuz-missie en zorgen om antisemitisme](https://nos.nl/l/2606609)
-  > Duitsland en Nederland zullen niet meedoen aan een missie in de Straat van Hormuz. Zowel bondskanselier Merz als premier Jetten voelt daar vooralsnog...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Droomstart voor Cambuur in Helmond: nummer 2 na 105 seconden op voorsprong](https://www.ad.nl/voetbal/droomstart-voor-cambuur-in-helmond-nummer-2-na-105-seconden-op-voorsprong~a00c69ae/)
+- [Honderden kilo’s coke werden in zee gegooid en weer opgevist: dit is de ‘drop-off methode’](https://www.ad.nl/binnenland/honderden-kilos-coke-werden-in-zee-gegooid-en-weer-opgevist-dit-is-de-drop-off-methode~a5da1af4/)
+  > Honderden kilo’s cocaïne, een snelle motorboot en een klopjacht op de Noordzee. De arrestatie van vijf mannen dit weekend bij Neeltje Jans in Zeeland...
+- [Cambuur na droomstart op voorsprong, ook Vitesse mag juichen](https://www.ad.nl/voetbal/cambuur-na-droomstart-op-voorsprong-ook-vitesse-mag-juichen~a00c69ae/)
   > Vier duels in de Keuken Kampioen Divisie vanavond. Nummer 2 SC Cambuur gaat op bezoek bij Helmond Sport, terwijl Roda JC thuis speelt tegen Vitesse....
-- [Voormalig Pussycat Doll Jessica Sutta had eerder willen horen van comeback](https://www.ad.nl/show/voormalig-pussycat-doll-jessica-sutta-had-eerder-willen-horen-van-comeback~a76a49ee/)
-  > Jessica Sutta (43) vindt het jammer dat zij niet eerder op de hoogte was gebracht van de comeback van de Pussycat Dolls. Op Instagram schrijft het...
-- [Thomas (34) werd verkracht na feestje, maar hulpinstanties namen hem niet serieus: ‘Politie lachte me uit’](https://www.ad.nl/binnenland/thomas-34-werd-verkracht-na-feestje-maar-hulpinstanties-namen-hem-niet-serieus-politie-lachte-me-uit~a895cf4f/)
-  > „Hij drogeerde me met GHB en toen ik wakker werd, had hij seks met me.” Thomas (34) is verkracht, maar zijn verhaal wordt door hulpinstanties en de...
-- [Moeder reageert op rechtszaak om keeperspositie zoon (9): ‘Gedaan voor het welzijn van ons kind’](https://www.ad.nl/binnenland/moeder-reageert-op-rechtszaak-om-keeperspositie-zoon-9-gedaan-voor-het-welzijn-van-ons-kind~a558c30d/)
-  > De ouders die naar de rechter stapten omdat hun zoon verplicht zou moeten keepen, zeggen dat zij dit hebben gedaan ‘als laatste middel voor het...
-- [Is een leesbril uit de supermarkt goed voor je ogen? Opticien legt uit waar je op moet letten](https://www.ad.nl/gezond/is-een-leesbril-uit-de-supermarkt-goed-voor-je-ogen-opticien-legt-uit-waar-je-op-moet-letten~a3c6b6ff/)
-  > Naarmate we ouder worden is er haast geen ontkomen aan: om nog goed te kunnen lezen hebben we soms de hulp van een leesbril nodig. In heel wat...
+- [Shaqueel van Persie geeft update over blessure: ‘Ik ben van mijn krukken af en kan weer autorijden’](https://www.ad.nl/voetbal/shaqueel-van-persie-geeft-update-over-blessure-ik-ben-van-mijn-krukken-af-en-kan-weer-autorijden~a25f6233/)
+  > Shaqueel van Persie is op de weg terug na een knieblessure. De spits viel bijna twee maanden geleden geblesseerd uit tegen Real Betis, maar werkt...
+- [Nog een seizoen van realityserie Andy en Melisa in de maak](https://www.ad.nl/show/nog-een-seizoen-van-realityserie-andy-en-melisa-in-de-maak~af91b823/)
+  > Er komt nog een seizoen van de realityserie Andy & Melisa. „Dit jaar komt er een nieuw seizoen bij Videoland”, zei Andy van der Meijde maandag bij...
+- [Khamenei overleefde raketaanval dankzij wandeling in tuin, zijn vrouw en zoon waren op slag dood](https://www.ad.nl/buitenland/khamenei-overleefde-raketaanval-dankzij-wandeling-in-tuin-zijn-vrouw-en-zoon-waren-op-slag-dood~a5542dc7/)
+  > Irans onlangs verkozen hoogste leider, Mojtaba Khamenei, is op het nippertje ontkomen aan de raketaanval waarbij zijn vader en voormalige opperste...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Stroomnet Cuba begeeft het, hele eiland zonder stroom](https://fd.nl/politiek/1589833/stroomnet-cuba-begeeft-het-hele-eiland-zonder-stroom)
+  > Alle tien miljoen Cubanen zitten zonder stroom. Het eiland heeft al drie maanden geen olielevering meer gekregen volgens de Cubaanse president.
 - [Europa moet zich niet laten meeslepen in Golfoorlog](https://fd.nl/opinie/1589825/europa-moet-zich-niet-laten-meeslepen-in-golfoorlog)
   > Het woord afpersing dringt zich op bij de druk die de Amerikaanse president Trump zet op zijn Europese bondgenoten.
 - [Bank of America schikt rechtszaak over Epstein](https://fd.nl/politiek/1589756/bank-of-america-schikt-rechtszaak-over-epstein)
@@ -54,8 +56,6 @@
   > Het Scandinavische land dreigt met een exportban als de meningsverschillen binnen de Europese Commissie over EU-energieprojecten niet worden opgelost.
 - [Powell wil aanblijven als Fed-bestuurder zolang onderzoek loopt](https://fd.nl/politiek/1589831/powell-wil-aanblijven-als-fed-bestuurder-zolang-onderzoek-loopt)
   > Jerome Powell, voorzitter van de Fed, wil aanblijven als bestuurder zolang het strafrechtelijk onderzoek naar hem loopt.
-- [Miljoenenboete voetbalclub Chelsea wegens geheime betalingen](https://fd.nl/economie/1589754/miljoenenboete-voetbalclub-chelsea-wegens-geheime-betalingen)
-  > De voetbalclub krijgt een boete van circa €11,5 mln plus een voorwaardelijk transferverbod.
 
 ### Meest gelezen
 
