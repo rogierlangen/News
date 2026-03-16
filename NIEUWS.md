@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-03-2026 om 17:06*
+*Laatst bijgewerkt: 16-03-2026 om 19:09*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Eerste presentator van nieuwszender Al Jazeera overleden](https://nos.nl/l/2606605)
-  > Vanaf de allereerste uitzending was hij erbij: Jamal Rayyan, een van de bekendste nieuwslezers van de Arabische nieuwszender Al Jazeera, is op...
-- [Definitieve eindstand Serious Request 2025 bekendgemaakt](https://nos.nl/l/2606602)
-  > Serious Request van NPO 3FM heeft vorig jaar een recordbedrag van 18.848.700 euro opgehaald. Ere-ambassadeur van de stichting Spieren voor Spieren,...
-- [Kabinet: scherpe keuzes nodig bij onderhoud wegen en bruggen, 'niet alles kan'](https://nos.nl/l/2606596)
-  > Minister Karremans en staatssecretaris Bertram van Infrastructuur en Waterstaat slaan alarm vanwege de financiële tekorten voor het onderhoud aan...
-- [Politie deelt camerabeelden van verdachten aanslag joodse school in Amsterdam](https://nos.nl/l/2606594)
-  > De politie deelt twee foto's van mannen die worden verdacht van de aanslag bij een joodse school in Amsterdam dit weekend. De foto's zijn fragmenten...
-- [Vijf mannen op heterdaad betrapt bij droppen van drugs in Noordzee](https://nos.nl/l/2606592)
-  > Voor de kust van Zeeland bij het eiland Neeltje Jans zijn gisteren honderden kilo's cocaïne in beslag genomen. Vijf verdachten zijn op heterdaad...
+- [Nieuwe aanwijzing voor betrokkenheid organisatie van Taghi bij moord Peter R. de Vries](https://nos.nl/l/2606620)
+  > In het onderzoek naar de opdrachtgevers voor de moord op Peter R. de Vries is in Marokko de Nederlandse verdachte Ismail M. (34) aangehouden. Dat...
+- [Grote delen Moskou al ruim tien dagen zonder mobiel internet](https://nos.nl/l/2606619)
+  > Al ruim tien dagen kampen inwoners van Moskou met grote problemen met mobiel internet. Ook bellen en sms'en is lastig, melden inwoners. Het Kremlin...
+- [Ravage na botsing tussen tram en vrachtwagen in Den Haag, meerdere gewonden](https://nos.nl/l/2606615)
+  > In Den Haag zijn vanmiddag vier mensen licht gewond geraakt bij een botsing tussen een vrachtwagen en een tram. Het ongeluk gebeurde op de kruising...
+- [Erasmus MC opent meldpunt voor IC-medewerkers na signalen angstcultuur](https://nos.nl/l/2606614)
+  > Het Erasmus MC in Rotterdam opent een meldpunt voor medewerkers van de intensive care (IC). Dat doet het ziekenhuis na berichtgeving van Nieuwsuur,...
+- [Jetten en Merz eensgezind: nu geen Hormuz-missie en zorgen om antisemitisme](https://nos.nl/l/2606609)
+  > Duitsland en Nederland zullen niet meedoen aan een missie in de Straat van Hormuz. Zowel bondskanselier Merz als premier Jetten voelt daar vooralsnog...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Midden-Oosten | Trump roept landen opnieuw op te helpen in de Straat van Hormuz](https://www.ad.nl/buitenland/live-midden-oosten-trump-roept-landen-opnieuw-op-te-helpen-in-de-straat-van-hormuz~ac528ac3/)
-  > Trump heeft opnieuw bondgenoten opgeroepen zich te melden voor de bescherming van de Straat van Hormuz. De aan Iran grenzende zeestraat is door dat...
-- [Ook winkels op zondag open en maximumsnelheid van 30 km/u belangrijke thema’s bij bepalen stem](https://www.ad.nl/politiek/ook-winkels-op-zondag-open-en-maximumsnelheid-van-30-km-u-belangrijke-themas-bij-bepalen-stem~a7d7c0c3/)
-  > Als het aan de mensen ligt die de afgelopen maand de StemWijzer hebben gebruikt om hun politieke voorkeur te bepalen, gaan de...
-- [OM: Terreurverdachten wilden nog een aanslag op synagoge plegen in dezelfde nacht](https://www.ad.nl/rotterdam/om-terreurverdachten-wilden-nog-een-aanslag-op-synagoge-plegen-in-dezelfde-nacht~a1827ac1/)
-  > Justitie denkt dat de vier verdachten die na explosie bij de Rotterdamse synagoge werden opgepakt, nóg een aanslag wilden plegen. Tijdens hun...
-- [Louis Theroux laat zien: influencers en podcastmakers zijn trotse vrouwenhaters](https://www.ad.nl/binnenland/louis-theroux-laat-zien-influencers-en-podcastmakers-zijn-trotse-vrouwenhaters~a56d9044/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Burgemeester Dijksma eist eigen ME-peloton van minister om relschoppers aan te pakken: ‘Ging nu maar nét goed’](https://www.ad.nl/utrecht/burgemeester-dijksma-eist-eigen-me-peloton-van-minister-om-relschoppers-aan-te-pakken-ging-nu-maar-net-goed~af753373/)
-  > De stad Utrecht moet zo snel mogelijk een ME-peloton krijgen dat op afroep beschikbaar is in noodsituaties. Dat dringende beroep deed burgemeester...
+- [Droomstart voor Cambuur in Helmond: nummer 2 na 105 seconden op voorsprong](https://www.ad.nl/voetbal/droomstart-voor-cambuur-in-helmond-nummer-2-na-105-seconden-op-voorsprong~a00c69ae/)
+  > Vier duels in de Keuken Kampioen Divisie vanavond. Nummer 2 SC Cambuur gaat op bezoek bij Helmond Sport, terwijl Roda JC thuis speelt tegen Vitesse....
+- [Voormalig Pussycat Doll Jessica Sutta had eerder willen horen van comeback](https://www.ad.nl/show/voormalig-pussycat-doll-jessica-sutta-had-eerder-willen-horen-van-comeback~a76a49ee/)
+  > Jessica Sutta (43) vindt het jammer dat zij niet eerder op de hoogte was gebracht van de comeback van de Pussycat Dolls. Op Instagram schrijft het...
+- [Thomas (34) werd verkracht na feestje, maar hulpinstanties namen hem niet serieus: ‘Politie lachte me uit’](https://www.ad.nl/binnenland/thomas-34-werd-verkracht-na-feestje-maar-hulpinstanties-namen-hem-niet-serieus-politie-lachte-me-uit~a895cf4f/)
+  > „Hij drogeerde me met GHB en toen ik wakker werd, had hij seks met me.” Thomas (34) is verkracht, maar zijn verhaal wordt door hulpinstanties en de...
+- [Moeder reageert op rechtszaak om keeperspositie zoon (9): ‘Gedaan voor het welzijn van ons kind’](https://www.ad.nl/binnenland/moeder-reageert-op-rechtszaak-om-keeperspositie-zoon-9-gedaan-voor-het-welzijn-van-ons-kind~a558c30d/)
+  > De ouders die naar de rechter stapten omdat hun zoon verplicht zou moeten keepen, zeggen dat zij dit hebben gedaan ‘als laatste middel voor het...
+- [Is een leesbril uit de supermarkt goed voor je ogen? Opticien legt uit waar je op moet letten](https://www.ad.nl/gezond/is-een-leesbril-uit-de-supermarkt-goed-voor-je-ogen-opticien-legt-uit-waar-je-op-moet-letten~a3c6b6ff/)
+  > Naarmate we ouder worden is er haast geen ontkomen aan: om nog goed te kunnen lezen hebben we soms de hulp van een leesbril nodig. In heel wat...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Orbán probeert Hongaarse stemmen te winnen met vijandigheden richting Oekraïne](https://fd.nl/politiek/1589750/orban-wil-hongaarse-stemmen-winnen-met-vijandigheden-richting-oekraine)
-  > Premier Viktor Orbán dreigt de Hongaarse verkiezingen op 12 april te verliezen. In de strijd voor zijn politieke leven maakt hij Kyiv tot zijn...
-- [Brits handelsplatform Pisces moet groeibedrijven rijp maken voor Londense beurs](https://fd.nl/financiele-markten/1589821/brits-handelsplatform-pisces-moet-groeibedrijven-rijp-maken-voor-londense-beurs)
-  > Nieuw aandelenplatform voor niet-beursgenoteerde ondernemingen moet het gat opvullen tussen durfkapitaal en de aandelenbeurs. Woensdag komt de eerste...
-- [Mijnen vormen serieus gevaar voor schepen in Straat van Hormuz](https://fd.nl/politiek/1589816/mijnen-vormen-serieus-gevaar-voor-schepen-in-straat-van-hormuz)
-  > Amerikanen kunnen hulp goed gebruiken: de Verenigde Staten beschikten zelf alleen over drie verouderde mijnenvegers die uit de vaart zijn genomen. En...
-- [Boeren vrezen hogere kosten: Iran-conflict zet kunstmestmarkt op z’n kop](https://fd.nl/bedrijfsleven/1589827/boeren-vrezen-hogere-kosten-iran-conflict-zet-kunstmestmarkt-op-zn-kop)
-  > De flink hogere kunstmestprijzen drukken de marges bij boeren en zorgen uiteindelijk ook voor hogere voedselprijzen.
-- [NAM en staat ruziën bij de rechter openlijk over de Groningse aardbevingsschade](https://fd.nl/bedrijfsleven/1589824/nam-en-staat-ruzien-bij-de-rechter-openlijk-over-de-groningse-aardbevingsschade)
-  > NAM-eigenaren Shell en ExxonMobil ruziën over en weer met de staat over vrijwel alles rondom de gaswinning in Groningen. ‘Een benepen opstelling is...
+- [Europa moet zich niet laten meeslepen in Golfoorlog](https://fd.nl/opinie/1589825/europa-moet-zich-niet-laten-meeslepen-in-golfoorlog)
+  > Het woord afpersing dringt zich op bij de druk die de Amerikaanse president Trump zet op zijn Europese bondgenoten.
+- [Bank of America schikt rechtszaak over Epstein](https://fd.nl/politiek/1589756/bank-of-america-schikt-rechtszaak-over-epstein)
+  > De Amerikaanse zakenbank werd aangeklaagd door slachtoffers van Jeffrey Epstein omdat de bank het misbruik zou hebben gefaciliteerd.
+- [Zweden dreigt export elektriciteit beperken](https://fd.nl/politiek/1589832/zweden-dreigt-export-elektriciteit-beperken)
+  > Het Scandinavische land dreigt met een exportban als de meningsverschillen binnen de Europese Commissie over EU-energieprojecten niet worden opgelost.
+- [Powell wil aanblijven als Fed-bestuurder zolang onderzoek loopt](https://fd.nl/politiek/1589831/powell-wil-aanblijven-als-fed-bestuurder-zolang-onderzoek-loopt)
+  > Jerome Powell, voorzitter van de Fed, wil aanblijven als bestuurder zolang het strafrechtelijk onderzoek naar hem loopt.
+- [Miljoenenboete voetbalclub Chelsea wegens geheime betalingen](https://fd.nl/economie/1589754/miljoenenboete-voetbalclub-chelsea-wegens-geheime-betalingen)
+  > De voetbalclub krijgt een boete van circa €11,5 mln plus een voorwaardelijk transferverbod.
 
 ### Meest gelezen
 
