@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-03-2026 om 17:07*
+*Laatst bijgewerkt: 17-03-2026 om 19:08*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Militair zwaargewond bij oefening op Maasvlakte](https://nos.nl/l/2606709)
-  > Een militair is vanochtend zwaargewond geraakt bij een oefening op de Maasvlakte. Het slachtoffer is gereanimeerd en naar het ziekenhuis gebracht.
-  ...
-- [COA krijgt nog een week om azc Hardenberg te sluiten, anders volgt dwangsom](https://nos.nl/l/2606708)
-  > De gemeente Hardenberg heeft het Centraal Orgaan opvang asielzoekers (COA) definitief een last onder dwangsom opgelegd voor het niet sluiten van twee...
-- [Promes geeft toe familielid 'in de chaos één keer' te hebben gestoken](https://nos.nl/l/2606707)
-  > Ex-voetbalinternational Quincy Promes heeft toegegeven dat hij een familielid op een feestje heeft gestoken met een mes. Dat is bekendgemaakt door...
-- [Vonnis tegen kardinaal van tafel in hoger beroep vastgoedproces Vaticaan](https://nos.nl/l/2606705)
-  > Het gerechtshof van Vaticaanstad heeft in een historisch vastgoedproces het vonnis tegen de Italiaanse kardinaal Angelo Becciu ongedaan gemaakt. Hij...
-- [Bestellen bij Fonq en Naduvi niet mogelijk, 'uitstel van betaling aangevraagd'](https://nos.nl/l/2606704)
-  > Het Nederlandse bedrijf achter de woonwebshops van Fonq en Naduvi heeft uitstel van betaling aangevraagd. Dat melden RTL Z en Emerce. Er wordt nu...
+- [Realityster Kim Kardashian verkoopt voetbalshirt van Nederlandse amateurclub](https://nos.nl/l/2606728)
+  > De Amerikaanse realityster en ondernemer Kim Kardashian heeft op haar eigen kledingplatform een oud voetbalshirt van amateurclub RKSVM uit het...
+- [Irak raakt steeds sneller de oorlog ingezogen](https://nos.nl/l/2606727)
+  > Terwijl de oorlog woedt in Iran, verslechtert de situatie in buurland Irak snel. Op steeds meer plekken vallen Amerikaanse strijdkrachten en...
+- [Tweede Kamer: Moslimbroederschap in Nederland verbieden](https://nos.nl/l/2606722)
+  > Een krappe Kamermeerderheid heeft voor een motie van de PVV gestemd om de Moslimbroederschap en "gelieerde organisaties" te verbieden. De...
+- [Met Friese folklore wordt dit jaar Koningsdag gevierd in Dokkum](https://nos.nl/l/2606717)
+  > Met Friese paarden, schepen en - hoe kan het ook anders - de Elfstedentocht wordt dit jaar de verjaardag van koning Willem-Alexander gevierd in...
+- [Vier doden in Wenen door instorten bouwsteiger](https://nos.nl/l/2606716)
+  > In Wenen zijn vier mensen om het leven gekomen doordat een bouwsteiger instortte. Oostenrijkse media schrijven dat een man van 45 zwaargewond is...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hoe het is om boegbeeld van een supermarkt te zijn: ‘Voor dat geld moest Lammers twintig films maken’](https://www.ad.nl/economie/hoe-het-is-om-boegbeeld-van-een-supermarkt-te-zijn-voor-dat-geld-moest-lammers-twintig-films-maken~a0689442/)
-  > Na dertien jaar neemt Jumbo afscheid van boegbeeld Frank Lammers. Zijn opvolger is Rob Kemps, oftewel Snollebollekes. Hoe is het om het gezicht van...
-- [Amerikaanse baas terrorismebestrijding keert zich tegen Trump: ‘Dreiging Iran was een leugen’](https://www.ad.nl/buitenland/amerikaanse-baas-terrorismebestrijding-keert-zich-tegen-trump-dreiging-iran-was-een-leugen~aeaa730b/)
-  > Joseph Kent was een fervent aanhanger van Donald Trump en werd door de president persoonlijk benoemd tot directeur van het National Counterterrorism...
-- [Jackpot voor PSV: Ricardo Pepi voor tientallen miljoenen op weg naar Premier League](https://www.ad.nl/voetbal/jackpot-voor-psv-ricardo-pepi-voor-tientallen-miljoenen-op-weg-naar-premier-league~a1a9cc79/)
-  > PSV gaat Ricardo Pepi ijs en weder dienende verkopen aan het Britse Fulham. De Amerikaanse spits zou - alles meegerekend - zo’n 40 miljoen euro...
-- [De garderobe van actrice Delfina Chaves ademt beslist geen Máxima uit](https://www.ad.nl/show/de-garderobe-van-actrice-delfina-chaves-ademt-beslist-geen-maxima-uit~a2168f23/)
-  > In de serie Máxima draagt ze sjaaltjes, kraagjes en parelkettingen, precies zoals het een royal betaamt. De eigen stijl van Delfina Chaves is...
-- [Slecht nieuws voor huizenkopers: oorlog in Midden-Oosten zorgt hier voor duurdere hypotheek](https://www.ad.nl/economie/slecht-nieuws-voor-huizenkopers-oorlog-in-midden-oosten-zorgt-hier-voor-duurdere-hypotheek~a54964a1/)
-  > Tot een maand geleden leek het zeker dat de rente verder omlaag zou gaan. Maar toen begon de oorlog in het Midden-Oosten en vlogen de olie- en...
+- [LIVE Champions League | Daar is de tweede goal! Sporting op jacht naar comeback tegen Noorse stuntclub](https://www.ad.nl/voetbal/live-champions-league-daar-is-de-tweede-goal-sporting-op-jacht-naar-comeback-tegen-noorse-stuntclub~a4ed511f/)
+  > FK Bodø/Glimt staat op de drempel van de kwartfinales van de Champions League. De Noren wonnen vorige week met 3-0 van Sporting en hebben zo...
+- [Dokkum viert Koningsdag ook in het weekend en met een koningslied](https://www.ad.nl/show/dokkum-viert-koningsdag-ook-in-het-weekend-en-met-een-koningslied~adcc3fab6/)
+  > In Dokkum en de Friese dorpen in de buurt zijn al veel festiviteiten in het weekend vóór Koningsdag, wanneer de koninklijke familie op bezoek komt....
+- [‘Na dit programma met Johnny de Mol wil je een jaar geen tv meer kijken’](https://www.ad.nl/show/na-dit-programma-met-johnny-de-mol-wil-je-een-jaar-geen-tv-meer-kijken~ac4d04b0/)
+  > Ik hou van Holland is terug. Tenminste, ‘de Temu-versie’ van die klassieker, aldus het panel van de AD Media Podcast over de nieuwe SBS 6-spelshow...
+- [LIVE Keuken Kampioen Divisie | ADO Den Haag begonnen aan de jacht op promotie, heerlijke sfeer tegen Jong FC Utrecht](https://www.ad.nl/voetbal/live-keuken-kampioen-divisie-ado-den-haag-begonnen-aan-de-jacht-op-promotie-heerlijke-sfeer-tegen-jong-fc-utrecht~aa2c8595/)
+  > Keert ADO Den Haag vanavond na vijf jaar terug naar de eredivisie? De ploeg van trainer Robin Peter moet daarvoor winnen van Jong FC Utrecht. ADO...
+- [Medicinale wiet toch niet zo’n wondermiddel als het leek](https://www.ad.nl/buitenland/medicinale-wiet-toch-niet-zon-wondermiddel-als-het-leek~ae8d5656/)
+  > Het gebruik van medicinale cannabis helpt niet bij het tegengaan van mentale problemen. In een dinsdag gepubliceerd artikel in het medische...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Nederlandse koepel Quantum Delta mag naam ‘quantum’ niet meer voeren](https://fd.nl/bedrijfsleven/1590000/nederlandse-koepel-quantum-delta-mag-naam-quantum-niet-meer-voeren)
-  > Het Duitse vastgoedbedrijf Quantum Immobilien krijgt gelijk van Haagse rechter, omdat het de naam ‘quantum’ eerder heeft geregistreerd.
-- [Ruimte stroomnet steeds schaarser: ook huishouden dat elektrisch wil koken, kan op wachtlijst komen](https://fd.nl/bedrijfsleven/1589773/ruimte-stroomnet-steeds-schaarser-ook-huishouden-dat-elektrisch-wil-koken-kan-op-wachtlijst-komen)
-  > Netbeheerders gaan de schaarse restruimte komend jaar verdelen over woonprojecten, huishoudens en bedrijven die prioriteit hebben. Wie buiten de boot...
-- [Meubelketen Seats and Sofas moet klanten terugbetalen](https://fd.nl/bedrijfsleven/1589900/meubelketen-seats-and-sofas-moet-klanten-terugbetalen)
-  > De ACM grijpt in omdat het bedrijf consumenten onterecht op kosten heeft gejaagd tijdens de garantieperiode.
-- [Nederland, VK en Finland zetten financieringsinstelling voor defensiematerieel op](https://fd.nl/politiek/1589995/nederland-vk-en-finland-zetten-financieringsinstelling-voor-defensiematerieel-op)
-  > De landen vormen naar eigen zeggen een ‘kerngroep’ die de kar gaat trekken bij de oprichting van het financieringsvehikel. Andere westerse landen...
-- [Beleggers in bankobligaties zien minder risico bij private credit dan aandeelhouders](https://fd.nl/financiele-markten/1589990/beleggers-in-bankobligaties-schatten-risico-private-credit-anders-in-dan-aandeelhouders)
-  > Volgens ABN Amro staat de privatecreditsector onder druk, maar is de situatie minder ernstig dan de recente onrust suggereert. Tenzij die zijn eigen...
+- [Geen goede reden voor lagere benzineaccijns](https://fd.nl/opinie/1589902/geen-goede-reden-voor-lagere-benzineaccijns)
+  > Laat rond de energieprijzen de onzichtbare hand zijn werk doen. Olie is duur door het verminderde aanbod. Een hoge prijs is een prikkel om er zuinig...
+- [Minister Heinen meldt ‘forse’ tegenvaller van €1 mrd in de WIA](https://fd.nl/politiek/1589907/minister-heinen-meldt-forse-tegenvaller-van-1-mrd-in-de-wia)
+  > Waar de tegenvaller precies vandaan komt en wanneer die zich exact voordoet, vertelde de VVD-bewindsman niet. Details komen pas bij de voorjaarsnota...
+- [Landelijke staking ambtenaren op 14 april](https://fd.nl/politiek/1589906/landelijke-staking-ambtenaren-op-14-april)
+  > De gezamenlijke bonden ageren al sinds april vorig jaar tegen de beoogde bevriezing van de salarissen in 2026
+- [Vesteda doet beroep op obligatiehouders na uitstappende investeerders](https://fd.nl/bedrijfsleven/1589769/vesteda-doet-beroep-op-obligatiehouders-na-uitstappende-investeerders)
+  > De grootste institutionele woningbelegger van Nederland, Vesteda, wil de voorwaarden aanscherpen waaronder obligatiehouders hun uitstaande leningen...
+- [Britse regering is bereid vaker EU-regels te volgen en relatie met Brussel te verdiepen](https://fd.nl/politiek/1589774/britse-regering-is-bereid-vaker-eu-regels-te-volgen-en-relatie-met-brussel-te-verdiepen)
+  > ‘Geen partnerschap is zo belangrijk als dat tussen het VK en onze Europese buren’, zei de Britse minister van financiën Rachel Reeves dinsdag in een...
 
 ### Meest gelezen
 
