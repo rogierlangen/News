@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-03-2026 om 19:08*
+*Laatst bijgewerkt: 17-03-2026 om 20:44*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Amerikaanse topfunctionaris stapt op uit protest tegen oorlog Iran](https://nos.nl/l/2606736)
+  > De directeur van het Amerikaanse Nationaal Centrum voor Contraterrorisme, Joe Kent, is opgestapt omdat hij de oorlog tegen Iran niet steunt. De door...
+- [Man met wiens gezicht tientallen bankrekeningen werden geopend voor de rechter](https://nos.nl/l/2606734)
+  > Een 34-jarige man uit Amsterdam moest vanmiddag voor de rechter verschijnen op verdenking van betrokkenheid bij het openen van tientallen...
 - [Realityster Kim Kardashian verkoopt voetbalshirt van Nederlandse amateurclub](https://nos.nl/l/2606728)
   > De Amerikaanse realityster en ondernemer Kim Kardashian heeft op haar eigen kledingplatform een oud voetbalshirt van amateurclub RKSVM uit het...
 - [Irak raakt steeds sneller de oorlog ingezogen](https://nos.nl/l/2606727)
   > Terwijl de oorlog woedt in Iran, verslechtert de situatie in buurland Irak snel. Op steeds meer plekken vallen Amerikaanse strijdkrachten en...
 - [Tweede Kamer: Moslimbroederschap in Nederland verbieden](https://nos.nl/l/2606722)
   > Een krappe Kamermeerderheid heeft voor een motie van de PVV gestemd om de Moslimbroederschap en "gelieerde organisaties" te verbieden. De...
-- [Met Friese folklore wordt dit jaar Koningsdag gevierd in Dokkum](https://nos.nl/l/2606717)
-  > Met Friese paarden, schepen en - hoe kan het ook anders - de Elfstedentocht wordt dit jaar de verjaardag van koning Willem-Alexander gevierd in...
-- [Vier doden in Wenen door instorten bouwsteiger](https://nos.nl/l/2606716)
-  > In Wenen zijn vier mensen om het leven gekomen doordat een bouwsteiger instortte. Oostenrijkse media schrijven dat een man van 45 zwaargewond is...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Champions League | Daar is de tweede goal! Sporting op jacht naar comeback tegen Noorse stuntclub](https://www.ad.nl/voetbal/live-champions-league-daar-is-de-tweede-goal-sporting-op-jacht-naar-comeback-tegen-noorse-stuntclub~a4ed511f/)
-  > FK Bodø/Glimt staat op de drempel van de kwartfinales van de Champions League. De Noren wonnen vorige week met 3-0 van Sporting en hebben zo...
-- [Dokkum viert Koningsdag ook in het weekend en met een koningslied](https://www.ad.nl/show/dokkum-viert-koningsdag-ook-in-het-weekend-en-met-een-koningslied~adcc3fab6/)
-  > In Dokkum en de Friese dorpen in de buurt zijn al veel festiviteiten in het weekend vóór Koningsdag, wanneer de koninklijke familie op bezoek komt....
-- [‘Na dit programma met Johnny de Mol wil je een jaar geen tv meer kijken’](https://www.ad.nl/show/na-dit-programma-met-johnny-de-mol-wil-je-een-jaar-geen-tv-meer-kijken~ac4d04b0/)
-  > Ik hou van Holland is terug. Tenminste, ‘de Temu-versie’ van die klassieker, aldus het panel van de AD Media Podcast over de nieuwe SBS 6-spelshow...
-- [LIVE Keuken Kampioen Divisie | ADO Den Haag begonnen aan de jacht op promotie, heerlijke sfeer tegen Jong FC Utrecht](https://www.ad.nl/voetbal/live-keuken-kampioen-divisie-ado-den-haag-begonnen-aan-de-jacht-op-promotie-heerlijke-sfeer-tegen-jong-fc-utrecht~aa2c8595/)
-  > Keert ADO Den Haag vanavond na vijf jaar terug naar de eredivisie? De ploeg van trainer Robin Peter moet daarvoor winnen van Jong FC Utrecht. ADO...
-- [Medicinale wiet toch niet zo’n wondermiddel als het leek](https://www.ad.nl/buitenland/medicinale-wiet-toch-niet-zon-wondermiddel-als-het-leek~ae8d5656/)
-  > Het gebruik van medicinale cannabis helpt niet bij het tegengaan van mentale problemen. In een dinsdag gepubliceerd artikel in het medische...
+- [Wonder van Lissabon! Ontketend Sporting na verlenging naar kwartfinale Champions League](https://www.ad.nl/voetbal/wonder-van-lissabon-ontketend-sporting-na-verlenging-naar-kwartfinale-champions-league~a4ed511f/)
+  > Een waanzinnige comeback in de achtste finales van de Champions League: Sporting Lissabon heeft ten koste van de Noorse stuntclub Bodø/Glimt de...
+- [Albert Heijn start proef met ‘Schijf van Vijf‑kassa’s’ in testwinkels: appels in plaats van chocola](https://www.ad.nl/binnenland/albert-heijn-start-proef-met-schijf-van-vijfkassas-in-testwinkels-appels-in-plaats-van-chocola~a1199667/)
+  > Geen chocoladerepen, maar appels bij de kassa. Albert Heijn start in 30 winkels een test met gezondere producten bij het afrekenen.
+- [Miljuschka Witzenhausen zet kunstwerk van naakte zelf in kamer: ‘Soort vreemde zelfverheerlijking’](https://www.ad.nl/binnenland/miljuschka-witzenhausen-zet-kunstwerk-van-naakte-zelf-in-kamer-soort-vreemde-zelfverheerlijking~a70ef75b/)
+  > Voor kunstenares Petra Flach (45) is Miljuschka Witzenhausen (40) hét icoon als het gaat om lekker in je vel zitten en laten zien wie je bent. Petra...
+- [Haaland maakt gelijk tegen Real Madrid, maar City heeft meer goals nodig](https://www.ad.nl/voetbal/haaland-maakt-gelijk-tegen-real-madrid-maar-city-heeft-meer-goals-nodig~a63e14ed/)
+  > Real Madrid won vorige week dankzij een hattrick van Federico Valverde met 3-0 van Manchester City en staat daarmee met één been in de kwartfinales...
+- [Snoeiharde pegel Eze zet Arsenal op voorsprong tegen Leverkusen, PSG al snel in veilige haven in duel met Chelsea](https://www.ad.nl/voetbal/snoeiharde-pegel-eze-zet-arsenal-op-voorsprong-tegen-leverkusen-psg-al-snel-in-veilige-haven-in-duel-met-chelsea~a0ba335c/)
+  > Arsenal speelde vorige week met 1-1 gelijk tegen Bayer Leverkusen en moet dus aan de bak in de return. Paris Saint-Germain verdedigt een 5-2...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Azië beperkt brandstofverbruik met vierdaagse werkweek en ban op frituren](https://fd.nl/politiek/1589904/azie-beperkt-brandstofverbruik-met-vierdaagse-werkweek-en-ban-op-frituren)
+  > In Sri Lanka staan lange rijen tuktuks bij de tankstations. Vooral Aziatische landen worden hard geraakt door de blokkade van de Straat van Hormuz.
+- [‘Unilever overweegt afsplitsing van gehele voedingstak’](https://fd.nl/bedrijfsleven/1590004/unilever-overweegt-afsplitsing-van-gehele-voedingstak)
+  > Unilever overweegt ‘in een vroeg stadium’ een ​​afsplitsing van zijn voedingstak. Dat zeggen ingewijden tegen persbureau Bloomberg.
 - [Geen goede reden voor lagere benzineaccijns](https://fd.nl/opinie/1589902/geen-goede-reden-voor-lagere-benzineaccijns)
   > Laat rond de energieprijzen de onzichtbare hand zijn werk doen. Olie is duur door het verminderde aanbod. Een hoge prijs is een prikkel om er zuinig...
 - [Minister Heinen meldt ‘forse’ tegenvaller van €1 mrd in de WIA](https://fd.nl/politiek/1589907/minister-heinen-meldt-forse-tegenvaller-van-1-mrd-in-de-wia)
   > Waar de tegenvaller precies vandaan komt en wanneer die zich exact voordoet, vertelde de VVD-bewindsman niet. Details komen pas bij de voorjaarsnota...
 - [Landelijke staking ambtenaren op 14 april](https://fd.nl/politiek/1589906/landelijke-staking-ambtenaren-op-14-april)
   > De gezamenlijke bonden ageren al sinds april vorig jaar tegen de beoogde bevriezing van de salarissen in 2026
-- [Vesteda doet beroep op obligatiehouders na uitstappende investeerders](https://fd.nl/bedrijfsleven/1589769/vesteda-doet-beroep-op-obligatiehouders-na-uitstappende-investeerders)
-  > De grootste institutionele woningbelegger van Nederland, Vesteda, wil de voorwaarden aanscherpen waaronder obligatiehouders hun uitstaande leningen...
-- [Britse regering is bereid vaker EU-regels te volgen en relatie met Brussel te verdiepen](https://fd.nl/politiek/1589774/britse-regering-is-bereid-vaker-eu-regels-te-volgen-en-relatie-met-brussel-te-verdiepen)
-  > ‘Geen partnerschap is zo belangrijk als dat tussen het VK en onze Europese buren’, zei de Britse minister van financiën Rachel Reeves dinsdag in een...
 
 ### Meest gelezen
 
