@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-03-2026 om 13:22*
+*Laatst bijgewerkt: 17-03-2026 om 15:01*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Israëlisch leger: twee hoge Iraniërs gedood, onder wie kopstuk Larijani](https://nos.nl/l/2606673)
-  > Het Israëlische leger zegt dat het twee hooggeplaatste Iraanse functionarissen heeft gedood. Eén van hen is veiligheidschef Ali Larijani, één van de...
-- [Echtpaar vindt dode muis in zak diepvriessperziebonen van Jumbo](https://nos.nl/l/2606671)
-  > Een echtpaar dat boodschappen had gedaan bij een Jumbo-filiaal in Capelle aan den IJssel, deed bij thuiskomst een opmerkelijke ontdekking: in een zak...
-- [Rotterdam test flitspalen voor lawaai: 'Echt iets doen tegen verkeersaso's'](https://nos.nl/l/2606670)
-  > Rotterdam wil lawaaiige auto's en motoren gaan aanpakken met geluidsflitspalen. Binnenkort begint een proef met flitspalen op vier locaties in de...
-- [Nederland, VK en Finland zetten financiële instelling voor defensie op](https://nos.nl/l/2606669)
-  > Nederland, het Verenigd Koninkrijk en Finland willen een internationale financiële instelling gaan opzetten van waaruit gezamenlijk defensiemateriaal...
-- [Hoger beroep in zaak van 60.000 vrouwen met mogelijk schadelijke borstimplantaten](https://nos.nl/l/2606667)
-  > Er komt een hoger beroep in de zaak van ruim 60.000 vrouwen met borstimplantaten die problemen kunnen veroorzaken. Bureau Clara Wichmann, dat de zaak...
+- [Meubelzaak Seats and Sofas betaalt compensatie aan klanten](https://nos.nl/l/2606696)
+  > Meubelzaak Seats and Sofas compenseert bijna 1500 klanten die ten onrechte moesten betalen om in aanmerking te komen voor garantie. Het totaalbedrag...
+- [Ongeopende medicijnen hoeven in de toekomst niet meer in de prullenbak](https://nos.nl/l/2606691)
+  > Het wordt in de toekomst mogelijk om medicijnen die patiënten niet hebben gebruikt terug te brengen naar de apotheek om aan andere patiënten te...
+- [Podcast De Dag: de ontmaskering van Banksy](https://nos.nl/l/2606686)
+  > Na drie jaar onderzoek hebben journalisten van persbureau Reuters onthuld wie de wereldberoemde streetartkunstenaar Banksy is. Hij is geboren als...
+- [OM eist zeven maanden cel en contactverbod voor rapper Kempi](https://nos.nl/l/2606684)
+  > Het Openbaar Ministerie eist een celstraf van zeven maanden voor de Eindhovense rapper Kempi. Het OM verdenkt hem van onder meer bedreiging van een...
+- [Van Weel: aanslagplegers synagoge waarschijnlijk geronseld](https://nos.nl/l/2606682)
+  > Alles wijst erop dat de jonge verdachten van de aanslag op een synagoge in Rotterdam zijn geronseld. Dat heeft minister Van Weel van Justitie en...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van Weel: Lijkt dat verdachten aanslag synagoge Rotterdam waren geronseld, mogelijk door Iran](https://www.ad.nl/politiek/van-weel-lijkt-dat-verdachten-aanslag-synagoge-rotterdam-waren-geronseld-mogelijk-door-iran~a6cb32ce/)
-  > Alles wijst erop dat de verdachten van de aanslag op een synagoge in Rotterdam waren geronseld, heeft minister David van Weel (Justitie, VVD) in de...
-- [DJ Jean gepikeerd over parodie van Bram Krikke: ‘Rotstreek, had ik niet van hem verwacht’](https://www.ad.nl/show/dj-jean-gepikeerd-over-parodie-van-bram-krikke-rotstreek-had-ik-niet-van-hem-verwacht~aa90e250/)
-  > DJ Jean kan niet lachen om de parodie van presentator Bram Krikke, die afgelopen week viraal ging op sociale media. Krikke nam een mislukt...
-- [ADO Den Haag op de rand van promotie naar eredivisie: ‘We moeten normaal doen en niet te veel nadenken’](https://www.ad.nl/regiosport-den-haag/ado-den-haag-op-de-rand-van-promotie-naar-eredivisie-we-moeten-normaal-doen-en-niet-te-veel-nadenken~ab2975925/)
-  > ADO Den Haag maakt zich op voor de promotiewedstrijd tegen Jong FC Utrecht. Bij winst in eigen huis keert de club dinsdagavond na vijf jaar terug...
-- [Doe jij graag een middagdutje? Zo kan dat ervoor zorgen dat je ’s nachts slechter slaapt](https://www.ad.nl/gezond/doe-jij-graag-een-middagdutje-zo-kan-dat-ervoor-zorgen-dat-je-s-nachts-slechter-slaapt~a2b36753/)
-  > Zonder goed slapen geen goede gezondheid. Maar wat als slapen (soms) niet lukt? Longarts-somnoloog Manu Sastry biedt in deze reeks eerste hulp bij...
-- [De nieuwe Jeremie Frimpong? Oud-speler AZ maakt onverwacht indruk in Duitsland én Champions League](https://www.ad.nl/voetbal/de-nieuwe-jeremie-frimpong-oud-speler-az-maakt-onverwacht-indruk-in-duitsland-en-champions-league~a1e24b3c/)
-  > Ernest Poku als wingback tegen Jeremy Doku: wie had dat vorig seizoen verwacht? De ex-AZ’er verrast bij Bayer Leverkusen. Dinsdagavond kan Poku in de...
+- [Hoofd terrorismebestrijding van Trump stapt op: ‘Ik kan de oorlog in Iran met mijn geweten niet blijven steunen’](https://www.ad.nl/buitenland/hoofd-terrorismebestrijding-van-trump-stapt-op-ik-kan-de-oorlog-in-iran-met-mijn-geweten-niet-blijven-steunen~ac528ac3/)
+  > De hoogste verantwoordelijke voor terrorismebestrijding onder Donald Trump is opgestapt vanwege de oorlog met Iran. Hij stelt dat Iran ‘geen...
+- [Wonderkind Sam Dowman (16) maakt bij Arsenal indruk op alles en iedereen: ‘Het is werkelijk ongelooflijk’](https://www.ad.nl/voetbal/wonderkind-sam-dowman-16-maakt-bij-arsenal-indruk-op-alles-en-iedereen-het-is-werkelijk-ongelooflijk~ab2464cc/)
+  > Half Europa is in de ban van Max Dowman, een net 16-jarige jongen met de kenmerken van een wonderkind. Vrijwel meteen na zijn eerste Premier...
+- [Jumbo breekt na dertien jaar met Frank Lammers, dit is zijn opvolger](https://www.ad.nl/economie/jumbo-breekt-na-dertien-jaar-met-frank-lammers-dit-is-zijn-opvolger~a2e137e0/)
+  > Samen met zijn fictieve gezin was acteur Frank Lammers dertien jaar lang het gezicht van Jumbo in de tv-commercials. Hij wordt vervangen door een...
+- [Jade Kops (19) zoekt plekje voor zichzelf uit op begraafplaats](https://www.ad.nl/show/jade-kops-19-zoekt-plekje-voor-zichzelf-uit-op-begraafplaats~a5147ce6/)
+  > Jade Kops heeft dinsdag een bezoek gebracht aan de begraafplaats. Daar zocht ze een plekje uit voor zichzelf, deelt ze op Instagram. ‘Een heftig...
+- [Tien bier en zes shotjes, Britse langlaufer stomdronken tijdens ‘afscheidsrace’: ‘Hele tijd overgegeven’](https://www.ad.nl/andere-sporten/tien-bier-en-zes-shotjes-britse-langlaufer-stomdronken-tijdens-afscheidsrace-hele-tijd-overgegeven~a45732d7/)
+  > Wat als je mogelijk bezig bent met je laatste wedstrijd ooit op topniveau? Dan kun je er maar beter van genieten. Dat moet de Britse langlaufer...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Egypte lijdt onder Iran-oorlog: minder toerisme en lagere opbrengsten Suezkanaal](https://fd.nl/economie/1589888/egypte-lijdt-onder-iran-oorlog-minder-toerisme-en-lagere-opbrengsten-suezkanaal)
-  > De Israëlisch-Amerikaanse oorlog met Iran heeft een grote impact op de Egyptische economie. Buitenlandse investeerders trekken zich terug, prijzen...
-- [Bedrijven blijven somberen over ondernemingsklimaat](https://fd.nl/bedrijfsleven/1589977/bedrijven-blijven-somberen-over-ondernemingsklimaat)
-  > Meer bedrijven overwegen te stoppen of deels uit Nederland te vertrekken, zo blijkt uit een periodieke peiling van ondernemersorganisaties.
-- [Woensdag vrij en niet frituren: landen in Azië besparen olie](https://fd.nl/samenleving/1589893/woensdag-vrij-en-niet-frituren-landen-in-azie-besparen-olie)
-  > Bijna 90% van de olie en gas die de Straat van Hormuz passeert, is bestemd voor Azië. Nu de oorlog voortduurt, nemen landen in het werelddeel...
-- [Beurswaakhond SEC wil einde aan lange discussie over kwartaalcijfers](https://fd.nl/financiele-markten/1589775/beurswaakhond-sec-wil-einde-aan-lange-discussie-over-kwartaalcijfers)
-  > De Securities and Exchange Commission maakt zich op om de verplichte publicatie van kwartaalcijfers af te schaffen.
-- [Tata Steel mikt op meer overleg en minder strijd in de rechtbank](https://fd.nl/bedrijfsleven/1589771/tata-steel-mikt-op-meer-overleg-en-minder-strijd-in-de-rechtbank)
-  > De staalproducent trekt twee procedures bij de rechtbank in tegen besluiten van de toezichthouder, waaronder een hoge voorlopige boete van €27 mln.
+- [De eentonige $2 mrd van Nvidia](https://fd.nl/financiele-markten/1589891/de-eentonige-2-mrd-van-nvidia)
+  > Nvidia strooit met investeringen van $2 mrd om bedrijven in zijn sector aan zich te binden. De zak geld voor het Amsterdamse Nebius leverde in een...
+- [Minder mbo-studenten, maar vraag naar vakmensen onverminderd hoog](https://fd.nl/samenleving/1589896/minder-mbo-studenten-maar-vraag-naar-vakmensen-onverminderd-hoog)
+  > Het aantal inschrijvingen voor mbo-opleidingen daalt. De afgelopen vijf jaar deden 6% minder jongeren een studie op middelbaar beroepsniveau.
+- [Slowakije wil dieselprijzen verhogen voor buitenlandse automobilisten](https://fd.nl/economie/1589981/slowakije-wil-dieselprijzen-verhogen-voor-buitenlandse-automobilisten)
+  > De regering wil hiermee brandstoftoerisme vanuit Polen tegengaan.
+- [Raad verliest grip op publieke taken doordat gemeenten steeds meer samenwerken](https://fd.nl/politiek/1588117/raad-verliest-grip-op-publieke-taken-doordat-gemeenten-steeds-meer-samenwerken)
+  > Het aantal samenwerkingsverbanden waar gemeenten bij betrokken zijn neemt toe. Raadsleden maken zich zorgen over hun krimpende invloed op de...
+- [Grootste Italiaanse kranten vieren jubilea, maar worstelen met oplages en financiën](https://fd.nl/samenleving/1589882/grootste-italiaanse-kranten-vieren-jubilea-maar-worstelen-met-oplages-en-financien)
+  > La Repubblica en Corriere della Sera zeggen van Italië een moderner, opener land te hebben gemaakt. ‘Een grote krant moet openhartig praten met...
 
 ### Meest gelezen
 
