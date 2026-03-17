@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-03-2026 om 09:00*
+*Laatst bijgewerkt: 17-03-2026 om 10:03*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [We moeten even door een grijze deken heen, maar morgen proeven we de lente: maximaal 17 graden](https://www.ad.nl/binnenland/we-moeten-even-door-een-grijze-deken-heen-maar-morgen-proeven-we-de-lente-maximaal-17-graden~a92407d3/)
-  > Dinsdag is qua weer een typische overgangsdag. De lucht is al een stuk zachter, maar we moeten nog heel even door een grijze, nattige deken heen. Het...
-- [Dode in Abu Dhabi door brokstukken raket, zorgen over 800.000 mensen die in Libanon op straat slapen](https://www.ad.nl/buitenland/dode-in-abu-dhabi-door-brokstukken-raket-zorgen-over-800-000-mensen-die-in-libanon-op-straat-slapen~ac528ac3/)
-  > Het Rode Kruis waarschuwt voor aanhoudende regenbuien in Libanon. Meer dan 800.000 mensen zijn door Israëlische aanvallen op de vlucht geslagen....
-- [Zonnepanelen tussen de treinrails? Het Franse spoorbedrijf probeert het, en ProRail ziet het ook wel zitten](https://www.ad.nl/buitenland/zonnepanelen-tussen-de-treinrails-het-franse-spoorbedrijf-probeert-het-en-prorail-ziet-het-ook-wel-zitten~a5d01e49/)
-  > In Frankrijk willen ze zonnepanelen tussen de treinrails. Niemand ziet ze, treinen rijden er gewoon overheen en ze leveren volop stroom. Het...
-- [Wijkagent slaat alarm om ‘jump’-trend: jongeren worden via Snapchat aangewezen en mishandeld](https://www.ad.nl/lansingerland/wijkagent-slaat-alarm-om-jump-trend-jongeren-worden-via-snapchat-aangewezen-en-mishandeld~aff9b162/)
-  > Wijkagenten in Lansingerland slaan alarm over een trend onder jongeren. In een Snapchat-groepschat worden scholieren aangewezen om te worden...
-- [Partijen in provincie Utrecht spreken zich uit tegen extremisme na beëdiging Statenlid Forum voor Democratie](https://www.ad.nl/renswoude/partijen-in-provincie-utrecht-spreken-zich-uit-tegen-extremisme-na-beediging-statenlid-forum-voor-democratie~a89ab17b/)
-  > De Statenfracties van de Partij voor de Dieren (PvdD), SP en GroenLinks in de provincie Utrecht hebben zich in een verklaring op hun website...
+- [Wil je alles weten over de gemeenteraadsverkiezingen? Lees dan dit](https://www.ad.nl/binnenland/wil-je-alles-weten-over-de-gemeenteraadsverkiezingen-lees-dan-dit~ae5a5cb5/)
+  > Op woensdag 18 maart mag je stemmen voor de gemeenteraadsverkiezingen. In dit artikel vertellen we je waarom je stemt en hoe dat moet.
+- [Harry Potter-componist Alexandre Desplat: ‘Ik leef van paniekaanval naar paniekaanval’](https://www.ad.nl/show/harry-potter-componist-alexandre-desplat-ik-leef-van-paniekaanval-naar-paniekaanval~a1387e88/)
+  > Oscarwinnaar Alexandre Desplat voorzag meer dan 130 beroemde films als Harry Potter and the deathly hallows, The king’s speech en Frankenstein van...
+- [Israël claimt kopstuk van het Iraanse regime Ali Larijani te hebben gedood](https://www.ad.nl/buitenland/israel-claimt-kopstuk-van-het-iraanse-regime-ali-larijani-te-hebben-gedood~a50258d6/)
+  > Israël claimt tijdens een nachtelijke aanval opnieuw een kopstuk van het Iraanse regime te hebben gedood. Het gaat volgens minister van Defensie Katz...
+- [Kan deze TikTok-trend je écht meer zelfvertrouwen geven? Expert is kritisch: ‘Geen wondermiddel’](https://www.ad.nl/gezond/kan-deze-tiktok-trend-je-echt-meer-zelfvertrouwen-geven-expert-is-kritisch-geen-wondermiddel~aee665e2/)
+  > Iedereen op TikTok lijkt het te doen: voor de spiegel staan en jezelf positieve affirmaties toespreken, zoals ‘ik ben perfect zoals ik ben’, ‘ik ben...
+- [Venezuela plaatst zich voor beladen honkbalfinale tegen de VS, Donald Trump komt met opvallend statement](https://www.ad.nl/andere-sporten/venezuela-plaatst-zich-voor-beladen-honkbalfinale-tegen-de-vs-donald-trump-komt-met-opvallend-statement~a1f092a8/)
+  > De finale van de World Baseball Classic wordt komende nacht een politiek beladen duel tussen de VS en Venezuela, dat voor een volksfeest zorgde door...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Benzineprijs boven €2,50, verbreekt record uit 2022](https://fd.nl/economie/1589767/benzineprijs-boven-2-50-verbreekt-record-uit-2022)
-  > De recente prijsstijgingen zijn het gevolg van de oorlog in het Midden-Oosten. De adviesprijs voor benzine ligt nu boven het vorige record uit 2022,...
-- [Een industrieel huis in hartje Arnhem](https://fd.nl/samenleving/1589823/een-industrieel-huis-in-hartje-arnhem)
-  > ‘Het ruwe, ongepolijste sprak ons aan. Het compromisloze.’ Al vonden ze het bij nader inzien wat al te compromisloos: ‘Het concept voerde de...
-- [‘EU dicht bij handelsdeal met Australië’](https://fd.nl/politiek/1589875/eu-dicht-bij-handelsdeal-met-australie)
-  > De gesprekken tussen de EU en Australië over een handelsdeal zitten ‘in de laatste fase’. Dat schreef de voorzitter van de Europese Commissie, Ursula...
-- [Live: Weinig fluctuatie op Europese aandelenmarkten](https://fd.nl/financiele-markten/1589765/live-centrale-bank-australie-verhoogt-de-rente)
-  > De hoge energieprijzen, de onzekere situatie over de oorlog in het Midden-Oosten en de economische gevolgen maken beleggers huiverig.
-- [‘SEC wil einde aan verplichte publicatie kwartaalcijfers’](https://fd.nl/financiele-markten/1589766/sec-wil-einde-aan-verplichte-publicatie-kwartaalcijfers)
-  > Bedrijven zouden zelf mogen kiezen of zij vier of twee keer per jaar hun boeken willen openen, zo meldt The Wall Street Journal.
+- [Bouwer van statiegeldmachines Envipco krijgt Nederlandse ceo](https://fd.nl/bedrijfsleven/1589883/bouwer-van-statiegeldmachines-envipco-krijgt-nederlandse-ceo)
+  > José Matthijsse gaat proberen de uitdagingen die het bedrijf voorliggen aan te gaan.
+- [Stoppen met ‘één aandeel, één stem’ bij Europese bedrijven is een groot risico](https://fd.nl/opinie/1589724/stoppen-met-een-aandeel-een-stem-is-groot-risico)
+  > De Magnificent Seven mogen dan wellicht jaloersmakend zijn, maar de macht concentreren bij oprichters met speciale aandelen om dat succes te evenaren...
+- [‘Big Links Energy’](https://fd.nl/financiele-markten/1589881/big-links-energy)
+  > De Amsterdamse wethouder Zita Pels werkt hard aan haar Instagram-game, ziet FD-columnist Milou Brand. Zij heeft haar verrichtingen de afgelopen tijd...
+- [ABN Amro volgende bank die aflossingsvrije hypotheek aanpast](https://fd.nl/financiele-markten/1589879/abn-amro-volgende-bank-die-aflossingsvrije-hypotheek-aanpast)
+  > Dochterbedrijf Florius hanteert de meest strenge regels en wil niet meer dan €150.000 aflossingsvrij per woning. ABN Amro heeft een staffel op basis...
+- [‘Trust the process’](https://fd.nl/samenleving/1589819/trust-the-process)
+  > Als creatief moet je steeds opnieuw gaan zitten en maar hopen dat zich iets aandient, ervaart Femmetje de Wind. Er zijn geen protocollen om op terug...
 
 ### Meest gelezen
 
