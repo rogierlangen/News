@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-03-2026 om 11:45*
+*Laatst bijgewerkt: 17-03-2026 om 13:22*
 
 ---
 
@@ -13,7 +13,7 @@
 - [Echtpaar vindt dode muis in zak diepvriessperziebonen van Jumbo](https://nos.nl/l/2606671)
   > Een echtpaar dat boodschappen had gedaan bij een Jumbo-filiaal in Capelle aan den IJssel, deed bij thuiskomst een opmerkelijke ontdekking: in een zak...
 - [Rotterdam test flitspalen voor lawaai: 'Echt iets doen tegen verkeersaso's'](https://nos.nl/l/2606670)
-  > Rotterdam gaat als eerste gemeente van het land lawaaiige auto's en motoren aanpakken met geluidsflitspalen. Het gaat om een proef met flitspalen op...
+  > Rotterdam wil lawaaiige auto's en motoren gaan aanpakken met geluidsflitspalen. Binnenkort begint een proef met flitspalen op vier locaties in de...
 - [Nederland, VK en Finland zetten financiële instelling voor defensie op](https://nos.nl/l/2606669)
   > Nederland, het Verenigd Koninkrijk en Finland willen een internationale financiële instelling gaan opzetten van waaruit gezamenlijk defensiemateriaal...
 - [Hoger beroep in zaak van 60.000 vrouwen met mogelijk schadelijke borstimplantaten](https://nos.nl/l/2606667)
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Benzineprijs piekt: Sri Lanka voert vierdaagse werkweek in om brandstof te besparen](https://www.ad.nl/buitenland/benzineprijs-piekt-sri-lanka-voert-vierdaagse-werkweek-in-om-brandstof-te-besparen~a7655886/)
-  > De benzineprijs bereikt de hoogste stand ooit en dat leidt in Azië al tot drastische maatregelen. Sri Lanka voert een vierdaagse werkweek in om...
-- [Alles over de Klassieker: hoe laat is de aftrap, welke spelers ontbreken en wie is de scheidsrechter?](https://www.ad.nl/voetbal/alles-over-de-klassieker-hoe-laat-is-de-aftrap-welke-spelers-ontbreken-en-wie-is-de-scheidsrechter~a937c385/)
-  > De 201ste editie van de Klassieker staat voor de deur: aartsrivalen Feyenoord en Ajax staan komende zondag tegenover elkaar in de Kuip. Welke spelers...
-- [Begeerde Kees Smit wil best tussenstap maken naar Nederlandse top: ‘Maar dat gaat waarschijnlijk niet lukken’](https://www.ad.nl/voetbal/begeerde-kees-smit-wil-best-tussenstap-maken-naar-nederlandse-top-maar-dat-gaat-waarschijnlijk-niet-lukken~a098723f/)
-  > AZ-toptalent Kees Smit heeft komende zomer de clubs voor het uitzoeken. De 20-jarige middenvelder wordt door transferexpert Fabrizio Romano in...
-- [Explosieve verklaring over moord op Peter R. de Vries: opdracht kwam van Taghi’s neef](https://www.ad.nl/binnenland/explosieve-verklaring-over-moord-op-peter-r-de-vries-opdracht-kwam-van-taghis-neef~a0749bc6/)
-  > Voor het eerst heeft iemand uit de inner circle van Taghi’s organisatie een verklaring afgelegd over de moord op Peter R. de Vries. De 34-jarige...
-- [Jordi Cruijff (52) over zijn vader Johan, die tien jaar terug overleed: ‘Hij zag altijd het voordeel in het nadeel'](https://www.ad.nl/voetbal/jordi-cruijff-52-over-zijn-vader-johan-die-tien-jaar-terug-overleed-hij-zag-altijd-het-voordeel-in-het-nadeel~a9561dc6/)
-  > Er gaat geen dag voorbij of Jordi Cruijff (52) – Ajax’ technisch directeur – wordt aangesproken over zijn vader Johan. In Barcelona, maar ook in...
+- [Van Weel: Lijkt dat verdachten aanslag synagoge Rotterdam waren geronseld, mogelijk door Iran](https://www.ad.nl/politiek/van-weel-lijkt-dat-verdachten-aanslag-synagoge-rotterdam-waren-geronseld-mogelijk-door-iran~a6cb32ce/)
+  > Alles wijst erop dat de verdachten van de aanslag op een synagoge in Rotterdam waren geronseld, heeft minister David van Weel (Justitie, VVD) in de...
+- [DJ Jean gepikeerd over parodie van Bram Krikke: ‘Rotstreek, had ik niet van hem verwacht’](https://www.ad.nl/show/dj-jean-gepikeerd-over-parodie-van-bram-krikke-rotstreek-had-ik-niet-van-hem-verwacht~aa90e250/)
+  > DJ Jean kan niet lachen om de parodie van presentator Bram Krikke, die afgelopen week viraal ging op sociale media. Krikke nam een mislukt...
+- [ADO Den Haag op de rand van promotie naar eredivisie: ‘We moeten normaal doen en niet te veel nadenken’](https://www.ad.nl/regiosport-den-haag/ado-den-haag-op-de-rand-van-promotie-naar-eredivisie-we-moeten-normaal-doen-en-niet-te-veel-nadenken~ab2975925/)
+  > ADO Den Haag maakt zich op voor de promotiewedstrijd tegen Jong FC Utrecht. Bij winst in eigen huis keert de club dinsdagavond na vijf jaar terug...
+- [Doe jij graag een middagdutje? Zo kan dat ervoor zorgen dat je ’s nachts slechter slaapt](https://www.ad.nl/gezond/doe-jij-graag-een-middagdutje-zo-kan-dat-ervoor-zorgen-dat-je-s-nachts-slechter-slaapt~a2b36753/)
+  > Zonder goed slapen geen goede gezondheid. Maar wat als slapen (soms) niet lukt? Longarts-somnoloog Manu Sastry biedt in deze reeks eerste hulp bij...
+- [De nieuwe Jeremie Frimpong? Oud-speler AZ maakt onverwacht indruk in Duitsland én Champions League](https://www.ad.nl/voetbal/de-nieuwe-jeremie-frimpong-oud-speler-az-maakt-onverwacht-indruk-in-duitsland-en-champions-league~a1e24b3c/)
+  > Ernest Poku als wingback tegen Jeremy Doku: wie had dat vorig seizoen verwacht? De ex-AZ’er verrast bij Bayer Leverkusen. Dinsdagavond kan Poku in de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘VS willen voor $1 mrd schikken met TotalEnergies om blokkeren windparken’](https://fd.nl/bedrijfsleven/1589886/vs-willen-voor-1-mrd-schikken-met-totalenergies-om-blokkeren-windparken)
-  > De regering van de Amerikaanse president Donald Trump is een uitgesproken tegenstander van windmolens en doet haar uiterste best om zowel lopende als...
-- [Odido verliest hoger beroep tegen verplichte vervanging Huawei](https://fd.nl/bedrijfsleven/1589887/odido-verliest-hoger-beroep-tegen-verplichte-vervanging-huawei)
-  > Het telecombedrijf krijgt geen compensatie voor de kosten die het destijds moest maken voor het verwijderen van Huawei-apparatuur uit zijn netwerk.
-- [Duits miljardenfonds voor infra en klimaat onder vuur door ‘Italiaanse toestanden’](https://fd.nl/economie/1589562/geld-naar-de-hagedis-en-de-tennisclub-duits-miljardenfonds-voor-infra-en-klimaat-onder-vuur)
-  > Duitsland kent sinds 2025 een fonds van €500 mrd voor extra investeringen in infrastructuur en klimaat. Een vijfde daarvan gaat naar de deelstaten....
-- [Schepen passeren mondjesmaat de Straat van Hormuz](https://fd.nl/economie/1589884/schepen-passeren-mondjesmaat-de-straat-van-hormuz)
-  > India en Irak in gesprek met Teheran over vrije doortocht door de belangrijke zeestraat.
-- [Israëlische minister meldt dood van Iraanse veiligheidschef Larijani](https://fd.nl/politiek/1589770/israelische-minister-meldt-dood-iraanse-veiligheidschef-larijani)
-  > De Israëlische defensieminister Israel Katz stelt dat Ali Larijani, hoofd van de Iraanse Veiligheidsraad, tijdens luchtaanvallen is gedood. Iran...
+- [Egypte lijdt onder Iran-oorlog: minder toerisme en lagere opbrengsten Suezkanaal](https://fd.nl/economie/1589888/egypte-lijdt-onder-iran-oorlog-minder-toerisme-en-lagere-opbrengsten-suezkanaal)
+  > De Israëlisch-Amerikaanse oorlog met Iran heeft een grote impact op de Egyptische economie. Buitenlandse investeerders trekken zich terug, prijzen...
+- [Bedrijven blijven somberen over ondernemingsklimaat](https://fd.nl/bedrijfsleven/1589977/bedrijven-blijven-somberen-over-ondernemingsklimaat)
+  > Meer bedrijven overwegen te stoppen of deels uit Nederland te vertrekken, zo blijkt uit een periodieke peiling van ondernemersorganisaties.
+- [Woensdag vrij en niet frituren: landen in Azië besparen olie](https://fd.nl/samenleving/1589893/woensdag-vrij-en-niet-frituren-landen-in-azie-besparen-olie)
+  > Bijna 90% van de olie en gas die de Straat van Hormuz passeert, is bestemd voor Azië. Nu de oorlog voortduurt, nemen landen in het werelddeel...
+- [Beurswaakhond SEC wil einde aan lange discussie over kwartaalcijfers](https://fd.nl/financiele-markten/1589775/beurswaakhond-sec-wil-einde-aan-lange-discussie-over-kwartaalcijfers)
+  > De Securities and Exchange Commission maakt zich op om de verplichte publicatie van kwartaalcijfers af te schaffen.
+- [Tata Steel mikt op meer overleg en minder strijd in de rechtbank](https://fd.nl/bedrijfsleven/1589771/tata-steel-mikt-op-meer-overleg-en-minder-strijd-in-de-rechtbank)
+  > De staalproducent trekt twee procedures bij de rechtbank in tegen besluiten van de toezichthouder, waaronder een hoge voorlopige boete van €27 mln.
 
 ### Meest gelezen
 
