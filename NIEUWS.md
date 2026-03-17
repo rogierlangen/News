@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-03-2026 om 06:03*
+*Laatst bijgewerkt: 17-03-2026 om 07:55*
 
 ---
 
@@ -9,15 +9,15 @@
 ### Laatste nieuws
 
 - [Levendige lobby op weg naar de gemeenteraadsverkiezingen](https://nos.nl/l/2606641)
-  > "MKB-maakbedrijven zijn de ruggengraat en problemenoplosser van de regionale economie. (...) De sector telt veel familiebedrijven die generatie op...
+  > Teksten van lobbyisten komen erg vaak terecht in verkiezingsprogramma's, zowel van landelijke partijen als van lokale partijen. Dat blijkt uit...
 - [Wekdienst 17/3: Lokale lijsttrekkers in het NOS Slotdebat • Huldiging paralympiërs](https://nos.nl/l/2606640)
   > Goedemorgen! Lokale lijsttrekkers gaan op de avond voor de gemeenteraadsverkiezingen met elkaar in debat en de Nederlandse paralympiërs worden...
-- [Inmiddels ruim 600 schademeldingen na aardbeving Eleveld](https://nos.nl/l/2606638)
-  > Het aantal schademeldingen na de aardbeving afgelopen weekend in Drenthe blijft oplopen. Het zijn er nu in totaal ruim 680, maar mogelijk zijn...
-- [New York Times: regering Trump vraagt om vertrek Cubaanse president](https://nos.nl/l/2606637)
-  > De regering Trump heeft Cuba laten weten dat de Cubaanse president Miguel Díaz-Canel moet opstappen als het land voortgang wil boeken in...
+- [Teller op ruim 600 schademeldingen na aardbeving Eleveld](https://nos.nl/l/2606638)
+  > Het aantal schademeldingen na de aardbeving van afgelopen weekend in Drenthe blijft oplopen. Het zijn er nu in totaal ruim 680, maar mogelijk zijn...
+- [New York Times: regering-Trump vraagt om vertrek Cubaanse president](https://nos.nl/l/2606637)
+  > De regering Trump heeft Cuba laten weten dat president Miguel Díaz-Canel moet opstappen als het land voortgang wil boeken in onderhandelingen met de...
 - [Straatverlichting op veel plaatsen uit door storing bij Enexis](https://nos.nl/l/2606636)
-  > Op meerdere plekken in Drenthe, Groningen, Overijssel, Noord-Brabant en Limburg is maandagavond de straatverlichting uitgevallen. Dat kwam door een...
+  > Op verschillende plekken in Drenthe, Groningen, Overijssel, Noord-Brabant en Limburg is maandagavond de straatverlichting uitgevallen. Dat kwam door...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Horeca wil diep in de nacht open voor WK voetbal, maar regels maken dat moeilijk](https://www.ad.nl/binnenland/horeca-wil-diep-in-de-nacht-open-voor-wk-voetbal-maar-regels-maken-dat-moeilijk~a112b0bb5/)
-  > Kroegbazen vragen om soepeler regels tijdens het WK voetbal. Ze willen hun zaak langer open kunnen houden, zodat mensen de wedstrijden bij hen kunnen...
-- [Twaalf geblesseerden en geen antwoorden: Feyenoord haalt externe hulp binnen na dramatische blessuregolf](https://www.ad.nl/voetbal/twaalf-geblesseerden-en-geen-antwoorden-feyenoord-haalt-externe-hulp-binnen-na-dramatische-blessuregolf~af827c93/)
+- [Teleurgestelde Neymar gepasseerd bij Brazilië voor trainingsstage richting WK: ‘Ik kan niet blijven zwijgen’](https://www.ad.nl/voetbal/teleurgestelde-neymar-gepasseerd-bij-brazilie-voor-trainingsstage-richting-wk-ik-kan-niet-blijven-zwijgen~a8054c2d/)
+  > Reist Brazilië komende zomer zonder Neymar af naar het WK in de Verenigde Staten? Die kans lijkt steeds groter te worden. De 34-jarige vedette is...
+- [Strafeis Noorse bonusprins Marius vertraagd door zieke rechter](https://www.ad.nl/show/strafeis-noorse-bonusprins-marius-vertraagd-door-zieke-rechter~a00e19f1/)
+  > Marius Borg Høiby moet nog zeker een dag wachten tot hij de strafeis van de aanklager hoort. De zitting van dinsdag gaat niet door omdat een van de...
+- [Van ‘oud ding’ tot hype: vintage voetbalshirts zijn populairder dan ooit, zelfs bij de Kardashians](https://www.ad.nl/binnenland/van-oud-ding-tot-hype-vintage-voetbalshirts-zijn-populairder-dan-ooit-zelfs-bij-de-kardashians~aa8c8b45/)
+  > ‘Wat een oud ding, waarom gooi je dat shirt niet weg?’ Een jaar of tien geleden werd je met een voetbalshirt uit de jaren 90 of zero’s nog net niet...
+- [Metallica-zanger vraagt vriendin ten huwelijk tussen de haaien](https://www.ad.nl/show/metallica-zanger-vraagt-vriendin-ten-huwelijk-tussen-de-haaien~a4812488/)
+  > Metallica-zanger James Hetfield heeft zijn vriendin Adriana Gillett ten huwelijk gevraagd tijdens een duik met walvishaaien. De officiële...
+- [Robin van Persie erkent blessurecrisis Feyenoord en schakelt hulp in: ‘Al blij met elf man op juiste plek’](https://www.ad.nl/voetbal/robin-van-persie-erkent-blessurecrisis-feyenoord-en-schakelt-hulp-in-al-blij-met-elf-man-op-juiste-plek~af827c93/)
   > Twaalf geblesseerden, constant improviseren en voor de Klassieker al blij zijn met ‘elf spelers die een beetje op hun normale positie staan’. De...
-- [Gemiddelde adviesprijs benzine stijgt tot boven de 2,50 euro per liter](https://www.ad.nl/binnenland/gemiddelde-adviesprijs-benzine-stijgt-tot-boven-de-2-50-euro-per-liter~a16d9a8e/)
-  > De gemiddelde adviesprijs van de grote oliemaatschappijen voor benzine in Nederland is dinsdagochtend gestegen tot boven de 2,50 euro per liter. Door...
-- [Belonen in plaats van straffen: EU-land keert 25.000 euro uit wanneer je vijf jaar je rijbewijs inlevert](https://www.ad.nl/auto/belonen-in-plaats-van-straffen-eu-land-keert-25-000-euro-uit-wanneer-je-vijf-jaar-je-rijbewijs-inlevert~aa9fa8c4/)
-  > Belonen in plaats van straffen: de regering van eilandstaat Malta geeft automobilisten een flink bedrag als zij tijdelijk stoppen met autorijden....
-- [Israël beantwoordt Iraanse aanval met bombardementen op Teheran en Beiroet, hevige aanval op ambassade VS Bagdad](https://www.ad.nl/buitenland/israel-beantwoordt-iraanse-aanval-met-bombardementen-op-teheran-en-beiroet-hevige-aanval-op-ambassade-vs-bagdad~ac528ac3/)
-  > Het Israëlische leger (IDF) is een nieuwe aanvalsgolf begonnen op doelen in Iran en Libanon, meldt het in een bericht op het sociale medium Telegram....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Live: Centrale bank Australië verhoogt de rente](https://fd.nl/financiele-markten/1589765/live-centrale-bank-australie-verhoogt-de-rente)
-  > Australië, Japan, Canada, Engeland, Verenigde Staten en Europa vergaderen deze week over de rentestand.
+- [Benzineprijs boven €2,50, verbreekt record uit 2022](https://fd.nl/economie/1589767/benzineprijs-boven-2-50-verbreekt-record-uit-2022)
+  > De recente prijsstijgingen zijn het gevolg van de oorlog in het Midden-Oosten. De adviesprijs voor benzine ligt nu boven het vorige record uit 2022,...
+- [Een industrieel huis in hartje Arnhem](https://fd.nl/samenleving/1589823/een-industrieel-huis-in-hartje-arnhem)
+  > ‘Het ruwe, ongepolijste sprak ons aan. Het compromisloze.’ Al vonden ze het bij nader inzien wat al te compromisloos: ‘Het concept voerde de...
+- [‘EU dicht bij handelsdeal met Australië’](https://fd.nl/politiek/1589875/eu-dicht-bij-handelsdeal-met-australie)
+  > De gesprekken tussen de EU en Australië over een handelsdeal zitten ‘in de laatste fase’. Dat schreef de voorzitter van de Europese Commissie, Ursula...
+- [Live: Lagere opening Europese aandelen verwacht](https://fd.nl/financiele-markten/1589765/live-centrale-bank-australie-verhoogt-de-rente)
+  > Aziatische aandelenmarkten boeken dinsdag een kleine winst. Australië, Japan, Canada, Engeland, Verenigde Staten en Europa vergaderen deze week over...
 - [‘SEC wil einde aan verplichte publicatie kwartaalcijfers’](https://fd.nl/financiele-markten/1589766/sec-wil-einde-aan-verplichte-publicatie-kwartaalcijfers)
   > Bedrijven zouden zelf mogen kiezen of zij vier of twee keer per jaar hun boeken willen openen, zo meldt The Wall Street Journal.
-- [Makelaars voorzien voor grondprijzen in 2026 een nieuw recordjaar](https://fd.nl/economie/1589830/makelaars-voorzien-voor-grondprijzen-in-2026-een-nieuw-recordjaar)
-  > De Nederlandse grondmarkt staat al langer onder hoogspanning, maar niet eerder lag de gemiddelde grondprijs voor een hectare zo hoog als in het...
-- [Is seksplatform OnlyFans een middel tot emancipatie?](https://fd.nl/samenleving/1589817/is-seksplatform-onlyfans-een-middel-tot-emancipatie)
-  > OnlyFans-ster ­Dominique vindt dat een wel erg rooskleurige voorstelling van zaken. Schrijver en programmamaker Tessel ten Zweege ziet het platform...
-- [Onderzoek: letterlijke tekst van belangenclubs in ruim honderd verkiezingsprogramma’s](https://fd.nl/politiek/1589753/onderzoek-letterlijke-tekst-van-belangenclubs-in-ruim-honderd-verkiezingsprogrammas)
-  > Voor het eerst brachten onderzoekers systematisch de lobby op lokaal niveau in kaart.
 
 ### Meest gelezen
 
