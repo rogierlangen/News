@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-03-2026 om 10:03*
+*Laatst bijgewerkt: 17-03-2026 om 11:45*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Vrouw die rouwboek voor kinderen schreef schuldig aan moord op echtgenoot](https://nos.nl/l/2606662)
-  > Een Amerikaanse vrouw die een boek voor kinderen schreef over het omgaan met het verlies van een dierbare is schuldig bevonden aan het vermoorden van...
-- [Doden en gewonden bij bomaanslagen in Nigeriaanse miljoenenstad Maiduguri](https://nos.nl/l/2606654)
-  > Bij bomaanslagen in Nigeria zijn ten minste 23 mensen om het leven gekomen en meer dan honderd gewond geraakt. De aanslagen werden gisteravond...
-- [Verhuisbedrijf raakt inboedel kwijt: 'Een tafel kan toch niet verschwunden zijn?'](https://nos.nl/l/2606652)
-  > Een verhuisbedrijf uit Zoetermeer zegt een groot deel van de inboedel van klanten uit Wassenaar kwijt te zijn. De klanten, Henk Ridderbos en zijn...
-- [Levendige lobby op weg naar de gemeenteraadsverkiezingen](https://nos.nl/l/2606641)
-  > Teksten van lobbyisten komen erg vaak terecht in verkiezingsprogramma's, zowel van landelijke partijen als van lokale partijen. Dat blijkt uit...
-- [Wekdienst 17/3: Lokale lijsttrekkers in het NOS Slotdebat • Huldiging paralympiërs](https://nos.nl/l/2606640)
-  > Goedemorgen! Lokale lijsttrekkers gaan op de avond voor de gemeenteraadsverkiezingen met elkaar in debat en de Nederlandse paralympiërs worden...
+- [Israëlisch leger: twee hoge Iraniërs gedood, onder wie kopstuk Larijani](https://nos.nl/l/2606673)
+  > Het Israëlische leger zegt dat het twee hooggeplaatste Iraanse functionarissen heeft gedood. Eén van hen is veiligheidschef Ali Larijani, één van de...
+- [Echtpaar vindt dode muis in zak diepvriessperziebonen van Jumbo](https://nos.nl/l/2606671)
+  > Een echtpaar dat boodschappen had gedaan bij een Jumbo-filiaal in Capelle aan den IJssel, deed bij thuiskomst een opmerkelijke ontdekking: in een zak...
+- [Rotterdam test flitspalen voor lawaai: 'Echt iets doen tegen verkeersaso's'](https://nos.nl/l/2606670)
+  > Rotterdam gaat als eerste gemeente van het land lawaaiige auto's en motoren aanpakken met geluidsflitspalen. Het gaat om een proef met flitspalen op...
+- [Nederland, VK en Finland zetten financiële instelling voor defensie op](https://nos.nl/l/2606669)
+  > Nederland, het Verenigd Koninkrijk en Finland willen een internationale financiële instelling gaan opzetten van waaruit gezamenlijk defensiemateriaal...
+- [Hoger beroep in zaak van 60.000 vrouwen met mogelijk schadelijke borstimplantaten](https://nos.nl/l/2606667)
+  > Er komt een hoger beroep in de zaak van ruim 60.000 vrouwen met borstimplantaten die problemen kunnen veroorzaken. Bureau Clara Wichmann, dat de zaak...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Wil je alles weten over de gemeenteraadsverkiezingen? Lees dan dit](https://www.ad.nl/binnenland/wil-je-alles-weten-over-de-gemeenteraadsverkiezingen-lees-dan-dit~ae5a5cb5/)
-  > Op woensdag 18 maart mag je stemmen voor de gemeenteraadsverkiezingen. In dit artikel vertellen we je waarom je stemt en hoe dat moet.
-- [Harry Potter-componist Alexandre Desplat: ‘Ik leef van paniekaanval naar paniekaanval’](https://www.ad.nl/show/harry-potter-componist-alexandre-desplat-ik-leef-van-paniekaanval-naar-paniekaanval~a1387e88/)
-  > Oscarwinnaar Alexandre Desplat voorzag meer dan 130 beroemde films als Harry Potter and the deathly hallows, The king’s speech en Frankenstein van...
-- [Israël claimt kopstuk van het Iraanse regime Ali Larijani te hebben gedood](https://www.ad.nl/buitenland/israel-claimt-kopstuk-van-het-iraanse-regime-ali-larijani-te-hebben-gedood~a50258d6/)
-  > Israël claimt tijdens een nachtelijke aanval opnieuw een kopstuk van het Iraanse regime te hebben gedood. Het gaat volgens minister van Defensie Katz...
-- [Kan deze TikTok-trend je écht meer zelfvertrouwen geven? Expert is kritisch: ‘Geen wondermiddel’](https://www.ad.nl/gezond/kan-deze-tiktok-trend-je-echt-meer-zelfvertrouwen-geven-expert-is-kritisch-geen-wondermiddel~aee665e2/)
-  > Iedereen op TikTok lijkt het te doen: voor de spiegel staan en jezelf positieve affirmaties toespreken, zoals ‘ik ben perfect zoals ik ben’, ‘ik ben...
-- [Venezuela plaatst zich voor beladen honkbalfinale tegen de VS, Donald Trump komt met opvallend statement](https://www.ad.nl/andere-sporten/venezuela-plaatst-zich-voor-beladen-honkbalfinale-tegen-de-vs-donald-trump-komt-met-opvallend-statement~a1f092a8/)
-  > De finale van de World Baseball Classic wordt komende nacht een politiek beladen duel tussen de VS en Venezuela, dat voor een volksfeest zorgde door...
+- [Benzineprijs piekt: Sri Lanka voert vierdaagse werkweek in om brandstof te besparen](https://www.ad.nl/buitenland/benzineprijs-piekt-sri-lanka-voert-vierdaagse-werkweek-in-om-brandstof-te-besparen~a7655886/)
+  > De benzineprijs bereikt de hoogste stand ooit en dat leidt in Azië al tot drastische maatregelen. Sri Lanka voert een vierdaagse werkweek in om...
+- [Alles over de Klassieker: hoe laat is de aftrap, welke spelers ontbreken en wie is de scheidsrechter?](https://www.ad.nl/voetbal/alles-over-de-klassieker-hoe-laat-is-de-aftrap-welke-spelers-ontbreken-en-wie-is-de-scheidsrechter~a937c385/)
+  > De 201ste editie van de Klassieker staat voor de deur: aartsrivalen Feyenoord en Ajax staan komende zondag tegenover elkaar in de Kuip. Welke spelers...
+- [Begeerde Kees Smit wil best tussenstap maken naar Nederlandse top: ‘Maar dat gaat waarschijnlijk niet lukken’](https://www.ad.nl/voetbal/begeerde-kees-smit-wil-best-tussenstap-maken-naar-nederlandse-top-maar-dat-gaat-waarschijnlijk-niet-lukken~a098723f/)
+  > AZ-toptalent Kees Smit heeft komende zomer de clubs voor het uitzoeken. De 20-jarige middenvelder wordt door transferexpert Fabrizio Romano in...
+- [Explosieve verklaring over moord op Peter R. de Vries: opdracht kwam van Taghi’s neef](https://www.ad.nl/binnenland/explosieve-verklaring-over-moord-op-peter-r-de-vries-opdracht-kwam-van-taghis-neef~a0749bc6/)
+  > Voor het eerst heeft iemand uit de inner circle van Taghi’s organisatie een verklaring afgelegd over de moord op Peter R. de Vries. De 34-jarige...
+- [Jordi Cruijff (52) over zijn vader Johan, die tien jaar terug overleed: ‘Hij zag altijd het voordeel in het nadeel'](https://www.ad.nl/voetbal/jordi-cruijff-52-over-zijn-vader-johan-die-tien-jaar-terug-overleed-hij-zag-altijd-het-voordeel-in-het-nadeel~a9561dc6/)
+  > Er gaat geen dag voorbij of Jordi Cruijff (52) – Ajax’ technisch directeur – wordt aangesproken over zijn vader Johan. In Barcelona, maar ook in...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Bouwer van statiegeldmachines Envipco krijgt Nederlandse ceo](https://fd.nl/bedrijfsleven/1589883/bouwer-van-statiegeldmachines-envipco-krijgt-nederlandse-ceo)
-  > José Matthijsse gaat proberen de uitdagingen die het bedrijf voorliggen aan te gaan.
-- [Stoppen met ‘één aandeel, één stem’ bij Europese bedrijven is een groot risico](https://fd.nl/opinie/1589724/stoppen-met-een-aandeel-een-stem-is-groot-risico)
-  > De Magnificent Seven mogen dan wellicht jaloersmakend zijn, maar de macht concentreren bij oprichters met speciale aandelen om dat succes te evenaren...
-- [‘Big Links Energy’](https://fd.nl/financiele-markten/1589881/big-links-energy)
-  > De Amsterdamse wethouder Zita Pels werkt hard aan haar Instagram-game, ziet FD-columnist Milou Brand. Zij heeft haar verrichtingen de afgelopen tijd...
-- [ABN Amro volgende bank die aflossingsvrije hypotheek aanpast](https://fd.nl/financiele-markten/1589879/abn-amro-volgende-bank-die-aflossingsvrije-hypotheek-aanpast)
-  > Dochterbedrijf Florius hanteert de meest strenge regels en wil niet meer dan €150.000 aflossingsvrij per woning. ABN Amro heeft een staffel op basis...
-- [‘Trust the process’](https://fd.nl/samenleving/1589819/trust-the-process)
-  > Als creatief moet je steeds opnieuw gaan zitten en maar hopen dat zich iets aandient, ervaart Femmetje de Wind. Er zijn geen protocollen om op terug...
+- [‘VS willen voor $1 mrd schikken met TotalEnergies om blokkeren windparken’](https://fd.nl/bedrijfsleven/1589886/vs-willen-voor-1-mrd-schikken-met-totalenergies-om-blokkeren-windparken)
+  > De regering van de Amerikaanse president Donald Trump is een uitgesproken tegenstander van windmolens en doet haar uiterste best om zowel lopende als...
+- [Odido verliest hoger beroep tegen verplichte vervanging Huawei](https://fd.nl/bedrijfsleven/1589887/odido-verliest-hoger-beroep-tegen-verplichte-vervanging-huawei)
+  > Het telecombedrijf krijgt geen compensatie voor de kosten die het destijds moest maken voor het verwijderen van Huawei-apparatuur uit zijn netwerk.
+- [Duits miljardenfonds voor infra en klimaat onder vuur door ‘Italiaanse toestanden’](https://fd.nl/economie/1589562/geld-naar-de-hagedis-en-de-tennisclub-duits-miljardenfonds-voor-infra-en-klimaat-onder-vuur)
+  > Duitsland kent sinds 2025 een fonds van €500 mrd voor extra investeringen in infrastructuur en klimaat. Een vijfde daarvan gaat naar de deelstaten....
+- [Schepen passeren mondjesmaat de Straat van Hormuz](https://fd.nl/economie/1589884/schepen-passeren-mondjesmaat-de-straat-van-hormuz)
+  > India en Irak in gesprek met Teheran over vrije doortocht door de belangrijke zeestraat.
+- [Israëlische minister meldt dood van Iraanse veiligheidschef Larijani](https://fd.nl/politiek/1589770/israelische-minister-meldt-dood-iraanse-veiligheidschef-larijani)
+  > De Israëlische defensieminister Israel Katz stelt dat Ali Larijani, hoofd van de Iraanse Veiligheidsraad, tijdens luchtaanvallen is gedood. Iran...
 
 ### Meest gelezen
 
