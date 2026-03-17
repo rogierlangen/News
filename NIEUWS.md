@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-03-2026 om 04:56*
+*Laatst bijgewerkt: 17-03-2026 om 06:03*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Levendige lobby op weg naar de gemeenteraadsverkiezingen](https://nos.nl/l/2606641)
+  > "MKB-maakbedrijven zijn de ruggengraat en problemenoplosser van de regionale economie. (...) De sector telt veel familiebedrijven die generatie op...
+- [Wekdienst 17/3: Lokale lijsttrekkers in het NOS Slotdebat • Huldiging paralympiërs](https://nos.nl/l/2606640)
+  > Goedemorgen! Lokale lijsttrekkers gaan op de avond voor de gemeenteraadsverkiezingen met elkaar in debat en de Nederlandse paralympiërs worden...
 - [Inmiddels ruim 600 schademeldingen na aardbeving Eleveld](https://nos.nl/l/2606638)
   > Het aantal schademeldingen na de aardbeving afgelopen weekend in Drenthe blijft oplopen. Het zijn er nu in totaal ruim 680, maar mogelijk zijn...
 - [New York Times: regering Trump vraagt om vertrek Cubaanse president](https://nos.nl/l/2606637)
   > De regering Trump heeft Cuba laten weten dat de Cubaanse president Miguel Díaz-Canel moet opstappen als het land voortgang wil boeken in...
 - [Straatverlichting op veel plaatsen uit door storing bij Enexis](https://nos.nl/l/2606636)
   > Op meerdere plekken in Drenthe, Groningen, Overijssel, Noord-Brabant en Limburg is maandagavond de straatverlichting uitgevallen. Dat kwam door een...
-- [Afghanistan: ruim 400 doden bij aanval op afkickkliniek Kabul](https://nos.nl/l/2606635)
-  > Bij een Pakistaanse luchtaanval op de Afghaanse hoofdstad Kabul is een afkickkliniek geraakt waarbij meer dan 400 mensen zijn gedood. Dat zegt een...
-- [Politie zoekt twee verdachten op fatbike voor betrokkenheid explosie Zuidas](https://nos.nl/l/2606634)
-  > De politie zoekt twee verdachten die mogelijk betrokken zijn bij de explosie bij een kantoorpand op de Amsterdamse Zuidas afgelopen nacht. Dat zei...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Indonesië arresteert Europeanen om maken van porno op Bali](https://www.ad.nl/buitenland/indonesie-arresteert-europeanen-om-maken-van-porno-op-bali~aac20b63/)
-  > De Indonesische politie heeft twee Fransen en een Italiaan gearresteerd op het eiland Bali vanwege het maken van pornografisch materiaal. Het gaat om...
-- [Amerikaanse schrijfster van kinderboek over rouw schuldig bevonden aan moord op haar man](https://www.ad.nl/buitenland/amerikaanse-schrijfster-van-kinderboek-over-rouw-schuldig-bevonden-aan-moord-op-haar-man~afa5bb60/)
-  > Een Amerikaanse schrijfster van een kinderboek over rouw is schuldig bevonden aan de moord op haar man. De 35-jarige Kouri Richins, moeder van drie...
-- [Afghanistan meldt 400 doden bij Pakistaanse luchtaanval op ziekenhuis Kaboel](https://www.ad.nl/buitenland/afghanistan-meldt-400-doden-bij-pakistaanse-luchtaanval-op-ziekenhuis-kaboel~aab3012f/)
-  > De Afghaanse autoriteiten zeggen dat er zeker 400 mensen zijn omgekomen bij een Pakistaanse luchtaanval op een ziekenhuis in de hoofdstad Kaboel.
-- [Voetbalpodcast | ‘Arne Slot zal vast wel eens denken: had maar de helft uitgegeven aan transfersommen’](https://www.ad.nl/voetbal/voetbalpodcast-arne-slot-zal-vast-wel-eens-denken-had-maar-de-helft-uitgegeven-aan-transfersommen~ac8603a9/)
-  > Is het crisis in Breda? Wie de definitie van Mossou aanhangt wel, want er was zondagavond een busopwachting na de 6-0 nederlaag van NAC in Deventer.
-- [Worden we een oorlog in gerommeld? Kabinet terughoudend na Trumps dreigement](https://www.ad.nl/politiek/worden-we-een-oorlog-in-gerommeld-kabinet-terughoudend-na-trumps-dreigement~a4612a9a/)
-  > Op z’n Trumps eist de Amerikaanse president Europese hulp bij het bewaken van de Straat van Hormuz. De Nederlandse regering wil er nu niet aan. Eerst...
+- [Horeca wil diep in de nacht open voor WK voetbal, maar regels maken dat moeilijk](https://www.ad.nl/binnenland/horeca-wil-diep-in-de-nacht-open-voor-wk-voetbal-maar-regels-maken-dat-moeilijk~a112b0bb5/)
+  > Kroegbazen vragen om soepeler regels tijdens het WK voetbal. Ze willen hun zaak langer open kunnen houden, zodat mensen de wedstrijden bij hen kunnen...
+- [Twaalf geblesseerden en geen antwoorden: Feyenoord haalt externe hulp binnen na dramatische blessuregolf](https://www.ad.nl/voetbal/twaalf-geblesseerden-en-geen-antwoorden-feyenoord-haalt-externe-hulp-binnen-na-dramatische-blessuregolf~af827c93/)
+  > Twaalf geblesseerden, constant improviseren en voor de Klassieker al blij zijn met ‘elf spelers die een beetje op hun normale positie staan’. De...
+- [Gemiddelde adviesprijs benzine stijgt tot boven de 2,50 euro per liter](https://www.ad.nl/binnenland/gemiddelde-adviesprijs-benzine-stijgt-tot-boven-de-2-50-euro-per-liter~a16d9a8e/)
+  > De gemiddelde adviesprijs van de grote oliemaatschappijen voor benzine in Nederland is dinsdagochtend gestegen tot boven de 2,50 euro per liter. Door...
+- [Belonen in plaats van straffen: EU-land keert 25.000 euro uit wanneer je vijf jaar je rijbewijs inlevert](https://www.ad.nl/auto/belonen-in-plaats-van-straffen-eu-land-keert-25-000-euro-uit-wanneer-je-vijf-jaar-je-rijbewijs-inlevert~aa9fa8c4/)
+  > Belonen in plaats van straffen: de regering van eilandstaat Malta geeft automobilisten een flink bedrag als zij tijdelijk stoppen met autorijden....
+- [Israël beantwoordt Iraanse aanval met bombardementen op Teheran en Beiroet, hevige aanval op ambassade VS Bagdad](https://www.ad.nl/buitenland/israel-beantwoordt-iraanse-aanval-met-bombardementen-op-teheran-en-beiroet-hevige-aanval-op-ambassade-vs-bagdad~ac528ac3/)
+  > Het Israëlische leger (IDF) is een nieuwe aanvalsgolf begonnen op doelen in Iran en Libanon, meldt het in een bericht op het sociale medium Telegram....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Het woningfonds van Vesteda dreigt leeg te lopen, wat nu?](https://fd.nl/economie/1589737/het-woningfonds-van-vesteda-dreigt-leeg-te-lopen-wat-nu)
-  > Vandaag in Dagkoers: Vesteda is in gesprek met investeerders die gezamenlijk €4,1 mrd terugvragen en Brussel wil één ‘Europese bv’ voor ondernemingen.
-- [De man zonder plan](https://fd.nl/opinie/1589834/de-man-zonder-plan)
-  > Trump vraagt nu zijn bondgenoten om hulp. Die hij al een jaar beledigt, straft met heffingen en dreigt met landjepik. Maar dat is niet de reden om...
-- [Waarom de Straat van Hormuz voor Trump een electoraal mijnenveld is](https://fd.nl/opinie/1589818/de-straat-van-hormuz-beslist-trumps-oorlog)
-  > De oorlog met Iran raakt een nerveuze snaar in de VS: de benzineprijs. Voor Donald Trump kan een dure liter brandstof politiek gevaarlijker blijken...
-- [Vesteda poogt massale uitstroom beleggers uit woningfonds te beperken](https://fd.nl/financiele-markten/1589638/vesteda-poogt-massale-uitstroom-beleggers-uit-woningfonds-te-beperken)
-  > De grootste institutionele woningbelegger van het land is in gesprek met zijn investeerders over verlaging van de €4,1 mrd aan redemptieverzoeken die...
-- [Personalia dinsdag 17 maart](https://fd.nl/bedrijfsleven/1589744/personalia-dinsdag-17-maart)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Live: Centrale bank Australië verhoogt de rente](https://fd.nl/financiele-markten/1589765/live-centrale-bank-australie-verhoogt-de-rente)
+  > Australië, Japan, Canada, Engeland, Verenigde Staten en Europa vergaderen deze week over de rentestand.
+- [‘SEC wil einde aan verplichte publicatie kwartaalcijfers’](https://fd.nl/financiele-markten/1589766/sec-wil-einde-aan-verplichte-publicatie-kwartaalcijfers)
+  > Bedrijven zouden zelf mogen kiezen of zij vier of twee keer per jaar hun boeken willen openen, zo meldt The Wall Street Journal.
+- [Makelaars voorzien voor grondprijzen in 2026 een nieuw recordjaar](https://fd.nl/economie/1589830/makelaars-voorzien-voor-grondprijzen-in-2026-een-nieuw-recordjaar)
+  > De Nederlandse grondmarkt staat al langer onder hoogspanning, maar niet eerder lag de gemiddelde grondprijs voor een hectare zo hoog als in het...
+- [Is seksplatform OnlyFans een middel tot emancipatie?](https://fd.nl/samenleving/1589817/is-seksplatform-onlyfans-een-middel-tot-emancipatie)
+  > OnlyFans-ster ­Dominique vindt dat een wel erg rooskleurige voorstelling van zaken. Schrijver en programmamaker Tessel ten Zweege ziet het platform...
+- [Onderzoek: letterlijke tekst van belangenclubs in ruim honderd verkiezingsprogramma’s](https://fd.nl/politiek/1589753/onderzoek-letterlijke-tekst-van-belangenclubs-in-ruim-honderd-verkiezingsprogrammas)
+  > Voor het eerst brachten onderzoekers systematisch de lobby op lokaal niveau in kaart.
 
 ### Meest gelezen
 
