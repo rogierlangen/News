@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-03-2026 om 08:56*
+*Laatst bijgewerkt: 18-03-2026 om 10:02*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Vliegverbod van 40 jaar voor man die KLM-vlucht binnendrong](https://nos.nl/l/2606787)
+  > Een man die op Tweede Kerstdag op Schiphol zonder geldig vliegticket een KLM-vlucht binnendrong, heeft van de luchtvaartmaatschappij een vliegverbod...
 - [Tweedeling na aardbeving Drentse Eleveld: postcode bepaalt schadevergoeding](https://nos.nl/l/2606780)
   > De afhandeling van schade na de aardbeving bij het Drentse gasveld Eleveld afgelopen weekend leidt tot een tweedeling, schijft RTV Drenthe. Bewoners...
 - [Luchtverkeer stilgelegd op vliegveld van Berlijn door staking](https://nos.nl/l/2606765)
@@ -16,8 +18,6 @@
   > Niet alleen in de Tweede Kamer, ook in gemeenteraden leidt geruzie binnen partijen geregeld tot afsplitsingen. Sinds de verkiezingen van vier jaar...
 - [Wekdienst 18/3: Verkiezingsdag in Nederland • Koning bezoekt Aruba en Curaçao](https://nos.nl/l/2606757)
   > Goedemorgen! Minder dan een maand na de start van kabinet-Jetten zijn er opnieuw verkiezingen, maar nu voor de gemeenteraden. En koning...
-- [Vijf doden bij brand olieraffinaderij Mexico](https://nos.nl/l/2606755)
-  > Een brand bij een olieraffinaderij in het zuiden van Mexico heeft vijf mensen het leven gekost. Dat meldt de Mexicaanse staatsoliemaatschappij...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Benzine is nu al duur, maar door nieuwe klimaatregel dreigt extra prijsexplosie](https://www.ad.nl/binnenland/benzine-is-nu-al-duur-maar-door-nieuwe-klimaatregel-dreigt-extra-prijsexplosie~aa35fa8c/)
-  > Voor automobilisten en mensen met centrale verwarming dreigt een extra verhoging van de prijzen voor brandstof en energie. Dit keer niet door de...
-- [Dick Advocaat keert terug bij Feyenoord: ervaren coach gaat Robin van Persie adviseren](https://www.ad.nl/voetbal/dick-advocaat-keert-terug-bij-feyenoord-ervaren-coach-gaat-robin-van-persie-adviseren~a2655d07/)
-  > Dick Advocaat keert terug in de Kuip. De ervaren coach gaat tot het einde van het seizoen een adviserende rol spelen richting hoofdtrainer Robin van...
-- [LIVE Gemeenteraadsverkiezingen 2026 | Bekende inwoner (59) van Gouda overlijdt onverwachts, maar je kan vandaag nog steeds op haar stemmen](https://www.ad.nl/politiek/live-gemeenteraadsverkiezingen-2026-bekende-inwoner-59-van-gouda-overlijdt-onverwachts-maar-je-kan-vandaag-nog-steeds-op-haar-stemmen~ab120e57/)
-  > De bekende Goudse Marian Eisden (59), ook wel Dushi genoemd, is vorige week donderdag onverwachts overleden. Ze hoopte de politiek in te gaan en...
-- [Jongetje (11) overlijdt enkele uren na uitkomen laatste wens: een ‘spoedrit’ met de politie, dwars door de stad](https://www.ad.nl/binnenland/jongetje-11-overlijdt-enkele-uren-na-uitkomen-laatste-wens-een-spoedrit-met-de-politie-dwars-door-de-stad~aeb5d4da/)
-  > Voor een 11-jarige, ongeneeslijk zieke jongen kwam afgelopen weekend zijn ultieme droom uit: een dag meedraaien met de politie in zijn geliefde...
-- [Hoe ADO Den Haag in recordtijd promoveerde: van eenvoud tot de pressingmachine die niemand kan stoppen](https://www.ad.nl/voetbal/hoe-ado-den-haag-in-recordtijd-promoveerde-van-eenvoud-tot-de-pressingmachine-die-niemand-kan-stoppen~a15f5729/)
-  > ADO Den Haag keert dankzij de 1-0 zege op Jong FC Utrecht terug naar de eredivisie. De koploper van de Keuken Kampioen Divisie is daarmee de vroegste...
+- [Voormalig officier van Guardia Civil aangeklaagd voor poging tot doodslag op Alejandro Valverde, 15 jaar cel geëist](https://www.ad.nl/wielrennen/voormalig-officier-van-guardia-civil-aangeklaagd-voor-poging-tot-doodslag-op-alejandro-valverde-15-jaar-cel-geeist~ad85f68a/)
+  > Een voormalig officier van de Guardia Civil moet mogelijk de gevangenis in vanwege poging tot doodslag van oud-profwielrenner Alejandro Valverde. De...
+- [Ex-man van Amy Winehouse: ‘Niet mijn schuld, maar had wel rol in haar dood’](https://www.ad.nl/show/ex-man-van-amy-winehouse-niet-mijn-schuld-maar-had-wel-rol-in-haar-dood~a226aff9/)
+  > De ex-man van Amy Winehouse heeft zich uitgelaten over zijn aandeel in haar overlijden. Blake Fielder-Civil vertelt in de podcast We Need to Talk dat...
+- [LIVE Gemeenteraadsverkiezingen 2026 | Kandidaat smeekt haar kiezers in opvallend bericht: ‘Stem niet op mij, doe het niet’](https://www.ad.nl/politiek/live-gemeenteraadsverkiezingen-2026-kandidaat-smeekt-haar-kiezers-in-opvallend-bericht-stem-niet-op-mij-doe-het-niet~ab120e57/)
+  > Een kandidaat van de gemeenteraadsverkiezingen doet op sociale media een opvallende oproep. Boukje Stoker-Langeraap, plek 8 bij de lokale partij...
+- [Israël erkent VN-macht in Libanon te hebben beschoten, Iran noemt dood Ali Larijani ‘geen fatale klap’](https://www.ad.nl/buitenland/israel-erkent-vn-macht-in-libanon-te-hebben-beschoten-iran-noemt-dood-ali-larijani-geen-fatale-klap~ac528ac3/)
+  > Het Israëlische leger heeft erkend eerder deze maand met een tank een positie van de VN-macht in Libanon, UNIFIL, te hebben beschoten. Ondertussen...
+- [Nieuw vakje in de aangifte: waarom de Belastingdienst juist nú wijst op je crypto](https://www.ad.nl/geld/nieuw-vakje-in-de-aangifte-waarom-de-belastingdienst-juist-nu-wijst-op-je-crypto~ae3c2404/)
+  > Sinds dit jaar staat een apart vakje in de aangifte inkomstenbelasting voor cryptobezittingen. Ben je verplicht om je crypto op te geven en krijg je...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Leunen op briljante leider werkt misstanden in de hand](https://fd.nl/opinie/1589810/leunen-op-briljante-leider-werkt-misstanden-in-de-hand)
+  > Opnieuw meldingen van een angstcultuur op de werkvloer, dit keer bij toprestaurant Noma en het Erasmus MC in Rotterdam. Aandacht voor samenwerking in...
 - [Zonder voeding is er niets Nederlands meer aan Unilever](https://fd.nl/bedrijfsleven/1589918/zonder-voeding-is-er-niets-nederlands-meer-aan-unilever)
   > De verkoop van de voedingsdivisie zou een grote stap zijn. Het bedrijfsonderdeel heeft volgens analisten van de Amerikaanse zakenbank Jefferies een...
 - [BeFrank-directeur Kaya de Lange: ‘Nu gun ik anderen het podium’](https://fd.nl/samenleving/1589820/befrank-directeur-kaya-de-lange-nu-gun-ik-anderen-het-podium)
@@ -54,8 +56,6 @@
   > Taiwan is kwetsbaar door zijn grote afhankelijkheid van lng uit Qatar.
 - [Ambassadeur bevestigt ‘met pijn in het hart’ dat Nederland werkt aan verkoop ambassade Bangkok](https://fd.nl/politiek/1589917/ambassadeur-bevestigt-met-pijn-in-het-hart-dat-nederland-werkt-aan-verkoop-ambassade-bangkok)
   > De historische ambassade aan de 'billionaire row' van Bangkok verhuist en wordt verkocht, wat zorgt voor emoties bij de Nederlandse gemeenschap en...
-- [Staking legt vliegverkeer Berlijnse luchthaven Brandenburg plat](https://fd.nl/samenleving/1590047/staking-legt-vliegverkeer-berlijnse-luchthaven-brandenburg-plat)
-  > Het luchthavenpersoneel van Brandenburg staakt. Daardoor zijn alle vluchten van en naar het vliegveld vandaag geannuleerd.
 
 ### Meest gelezen
 
