@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-03-2026 om 23:36*
+*Laatst bijgewerkt: 18-03-2026 om 02:38*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Kabinet komt miljarden tekort en wil automobilist en bedrijven mee laten betalen aan infrastructuur](https://www.ad.nl/binnenland/kabinet-komt-miljarden-tekort-en-wil-automobilist-en-bedrijven-mee-laten-betalen-aan-infrastructuur~aea66442/)
+  > Tol op de Van Brienenoordbrug of een hogere btw in Amsterdam om uitbreiding van de metro te financieren? Het kabinet kijkt of het burgers en...
+- [Schots parlement verwerpt legalisering hulp bij sterven](https://www.ad.nl/buitenland/schots-parlement-verwerpt-legalisering-hulp-bij-sterven~a31bded6/)
+  > Schotse parlementsleden hebben een wetsvoorstel verworpen dat hulp bij sterven zou legaliseren. De regionale parlementsleden stemden het wetsvoorstel...
+- [Voetbalpodcast | ‘Ik moet nog zien of Ricardo Pepi gaat slagen in de Premier League’](https://www.ad.nl/voetbal/voetbalpodcast-ik-moet-nog-zien-of-ricardo-pepi-gaat-slagen-in-de-premier-league~ac8603a9/)
+  > De Champions League-avond werd afgetrapt met een ouderwetse remontada. Dat ging wel ten koste van de Noorse stuntploeg Bodø/Glimt, dat een voorsprong...
+- [De Mos ontkent niet-Nederlandssprekende flyeraars in te huren](https://www.ad.nl/den-haag/de-mos-ontkent-niet-nederlandssprekende-flyeraars-in-te-huren~a388176d/)
+  > Richard de Mos van Hart voor Den Haag ontkent mensen in te huren om te flyeren. ,,Dat is klip-en-klare onzin”, zei hij na afloop van het...
 - [Carmit Bachar niet uitgenodigd voor comeback Pussycat Dolls](https://www.ad.nl/show/carmit-bachar-niet-uitgenodigd-voor-comeback-pussycat-dolls~a9c71290/)
   > Carmit Bachar, een van de originele leden van de Pussycat Dolls, zegt dat zij niet is benaderd voor de comeback van de groep. In een bericht op...
-- [Eerste stembureaus openen om middernacht](https://www.ad.nl/binnenland/eerste-stembureaus-openen-om-middernacht~afd1c9c6/)
-  > Om middernacht zijn de eerste stembureaus opengegaan. Kiezers kunnen in de nachtelijke uren hun stem voor de gemeenteraadsverkiezingen onder meer...
-- [Nederland in top drie ketamine-gebruik, Amsterdam ook koploper in mdma](https://www.ad.nl/binnenland/nederland-in-top-drie-ketamine-gebruik-amsterdam-ook-koploper-in-mdma~a8be1d94/)
-  > Nederland staat in de Europese top drie als het gaat om ketaminegebruik. Met België en Duitsland werden hier het afgelopen jaar de meeste resten van...
-- [Zwakke regio’s krijgen klappen door hoge energieprijzen](https://www.ad.nl/economie/zwakke-regios-krijgen-klappen-door-hoge-energieprijzen~aa08c4fb/)
-  > De Nederlandse economie is weerbaar. Zelfs als de oorlog blijft voortduren en olie langdurig 150 dollar per vat kost, blijft de economie groeien. Al...
-- [Uitzinnige vreugde en veldbestorming na promotie ADO Den Haag: ‘Mijn vader was in tranen, geweldig moment’](https://www.ad.nl/voetbal/uitzinnige-vreugde-en-veldbestorming-na-promotie-ado-den-haag-mijn-vader-was-in-tranen-geweldig-moment~a9f9546e/)
-  > ADO Den Haag keerde dankzij de 1-0 zege op Jong FC Utrecht terug naar de Eredivisie. Door het ‘Excelsior-trauma’ uit 2022 durfden veel Haagse fans...
 
 ### Meest gelezen
 
