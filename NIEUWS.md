@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-03-2026 om 17:06*
+*Laatst bijgewerkt: 18-03-2026 om 19:07*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Jumbo doet vlees na twee jaar weer in de aanbieding](https://nos.nl/l/2606854)
+  > Jumbo is weer begonnen met het verkopen van vers vlees met korting. Dat bevestigt een woordvoerder van de supermarktketen aan de NOS. Twee jaar...
+- [Mysterieuze kunstenaar Banksy ontmaskerd? 'Zijn anonimiteit is statement op zich'](https://nos.nl/l/2606853)
+  > Wie is het gezicht achter Banksy? Het is al jarenlang een van de grootste mysteries in de kunstwereld. Na drie jaar onderzoek zeggen journalisten van...
+- [Tot zeven jaar cel voor online oplichters](https://nos.nl/l/2606851)
+  > Drie Nederlandse twintigers zijn veroordeeld tot gevangenisstraffen van drie tot zeven jaar voor online en telefonische oplichting. Ze wisten hun...
+- [Boete van ton voor Groningen omdat vleermuizen niet veilig kunnen vliegen](https://nos.nl/l/2606850)
+  > De gemeente Groningen moet een boete van 100.000 euro betalen omdat er geen veilige vliegroute is voor vleermuizen bij station Groningen Europapark....
 - [Griepepidemie voorbij, nauwelijks nog griepvirus gevonden in monsters](https://nos.nl/l/2606842)
   > De griepepidemie is voorbij, meldt het Rijksinstituut voor Volksgezondheid en Milieu (RIVM). Het aantal mensen dat afgelopen week met acute...
-- [Belgisch OM eist vijf jaar cel tegen Nederlanders achter neppillensite Funcaps](https://nos.nl/l/2606841)
-  > Het Belgische Openbaar Ministerie (OM) heeft in hoger beroep vijf jaar cel geëist tegen de eigenaren van de website Funcaps, vanwege de handel in...
-- [Straat van Hormuz niet potdicht, 'dagelijks zo'n 2 miljoen olievaten vervoerd'](https://nos.nl/l/2606837)
-  > Er gaan nog altijd mondjesmaat schepen door de 'afgesloten' Straat van Hormuz, de enige zeeverbinding tussen de Perzische Golf en de rest van de...
-- [Europese Commissie belooft beginnende bedrijven minder papierwerk](https://nos.nl/l/2606836)
-  > De Europese Commissie wil dat Europese bedrijven sneller en makkelijker kunnen groeien binnen de EU. Volgens de commissie gaat dat nu nog stroef...
-- [Nederland stuurt weer alleenstaande asielzoekers terug naar België](https://nos.nl/l/2606834)
-  > Nederland gaat met onmiddellijke ingang weer asielzoekers uitzetten naar België. Door een uitspraak van de Raad van State over de gebrekkige opvang...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hoe de komst van Advocaat het imago van Van Persie kan schaden: ‘Zo kan hij nooit winnen’](https://www.ad.nl/sport/hoe-de-komst-van-advocaat-het-imago-van-van-persie-kan-schaden-zo-kan-hij-nooit-winnen~a13ea5d4/)
-  > Dick Advocaat (78) wordt adviseur van Feyenoord-trainer Robin van Persie (42). Wanneer is zo’n leermeester de sleutel tot succes? „Ik gun elke...
-- [Humberto Tan weer gelukkig in de liefde](https://www.ad.nl/show/humberto-tan-weer-gelukkig-in-de-liefde~afd002f7/)
-  > Het gaat “heel goed” met het liefdesleven van Humberto Tan, zegt de RTL Tonight-presentator in gesprek met Stijn de Vries voor de YouTube-serie Het...
-- [Aryna Sabalenka haalt uit naar boze toernooidirecteur: ‘Zijn opmerking is absurd’](https://www.ad.nl/tennis/aryna-sabalenka-haalt-uit-naar-boze-toernooidirecteur-zijn-opmerking-is-absurd~a86811e6/)
-  > Aryna Sabalenka heeft flink uitgehaald naar de toernooidirecteur van het WTA 1000-toernooi in Dubai. De nummer één van de wereld meldde zich in...
-- [Ricardo Pepi al op weg naar Engeland voor medische keuring bij Fulham: PSV-spits gaat vijfjarig contract tekenen](https://www.ad.nl/voetbal/ricardo-pepi-al-op-weg-naar-engeland-voor-medische-keuring-bij-fulham-psv-spits-gaat-vijfjarig-contract-tekenen~a1a9cc79/)
-  > PSV gaat Ricardo Pepi zo goed als zeker verkopen aan Fulham. De Amerikaanse spits zou - alles meegerekend - zo’n 40 miljoen euro opleveren. Pepi...
-- [Makers documentaire eisen excuses dj’s na ‘racistisch’ interview, PowNed weigert](https://www.ad.nl/show/makers-documentaire-eisen-excuses-djs-na-racistisch-interview-powned-weigert~a17a8960/)
-  > De makers van de documentaire Meer dan babi pangang zijn woedend op NPO Radio 2-dj’s Ruud de Wild en Lauren Verster. In een brandbrief aan de NPO-top...
+- [Liverpool begint met drie Nederlanders aan cruciaal duel, Lang op de bank bij Galatasaray](https://www.ad.nl/voetbal/liverpool-begint-met-drie-nederlanders-aan-cruciaal-duel-lang-op-de-bank-bij-galatasaray~a468b906/)
+  > Liverpool verloor vorige week met 1-0 van Galatasaray in de Champions League en moet dus vol aan de bak om uitschakeling te voorkomen. Bereikt de...
+- [Dakloze Res van bijna 80 slaapt naast graf van verongelukte dochter: ‘Neem me mee’](https://www.ad.nl/binnenland/dakloze-res-van-bijna-80-slaapt-naast-graf-van-verongelukte-dochter-neem-me-mee~a91e1734/)
+  > Ridderkerker Res (79) verdiende jarenlang een goede boterham als lasser. Maar toen zijn dochter in 2008 verongelukte, raakte hij aan lager wal en...
+- [LIVE Champions League | Barcelona komt sterk uit de kleedkamer en neemt verder afstand van Newcastle](https://www.ad.nl/voetbal/live-champions-league-barcelona-komt-sterk-uit-de-kleedkamer-en-neemt-verder-afstand-van-newcastle~ac966a3f/)
+  > FC Barcelona gaat vanavond tegen Newcastle United op jacht naar een plek in de kwartfinales van de Champions League. Vorige week werd het 1-1 in...
+- [Rob Jetten beleeft vuurdoop op propvolle EU-top over Iran en energie: ‘Afhankelijkheid van olie moet stoppen’](https://www.ad.nl/buitenland/rob-jetten-beleeft-vuurdoop-op-propvolle-eu-top-over-iran-en-energie-afhankelijkheid-van-olie-moet-stoppen~aec4ecb5/)
+  > De situatie in Iran drukt Europa met de neus op de feiten. Het moet loskomen van onbetrouwbare energieleveranciers, de economie moet sterker worden...
+- [Tol voor die nieuwe brug? Maar de automobilist heeft allang betaald!](https://www.ad.nl/commentaar/tol-voor-die-nieuwe-brug-maar-de-automobilist-heeft-allang-betaald~a9cb76a2/)
+  > Een tolpoort voor een nieuwe brug of regionaal een hogere btw voor een metrolijn? Goed om te bespreken, maar niet per se een goed idee, schrijft Hans...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Genoeg woningbouwplannen, maar minder dan de helft staat vast](https://fd.nl/politiek/1590064/genoeg-woningbouwplannen-maar-minder-dan-de-helft-staat-vast)
-  > Ook bij harde plannen is er geen garantie dat de oplevering op tijd wordt gehaald.
-- [Tencent investeert dit jaar $5,2 mrd in AI](https://fd.nl/bedrijfsleven/1589940/tencent-investeert-dit-jaar-5-2-mrd-in-ai)
-  > Het Chinese techbedrijf zag de omzet in het vorige kwartaal met 13% stijgen. Het is het vijfde kwartaal met dubbelcijferige omzetgroei op rij.
-- [Brussel ziet EU Inc als gamechanger bij het behouden van groeibedrijven](https://fd.nl/politiek/1589938/brussel-ziet-eu-inc-als-gamechanger-bij-het-behouden-van-groeibedrijven)
-  > Het bedrijfsleven reageert overwegend positief op het voorstel voor een nieuw Europees bedrijfsmodel. De start-up-scene ziet nog ruimte voor...
-- [AFM moet boete Promovendum verlagen, deels vanwege reputatieschade](https://fd.nl/bedrijfsleven/1589935/afm-moet-boete-promovendum-verlagen-deels-vanwege-reputatieschade)
-  > De toezichthouder moet van de rechter een boete voor Promovendum verlagen van €2,5 mln naar €585.000. ‘Dat is een unicum’, zegt Frank ’t Hart,...
-- [OM staakt vervolging Amerikaanse verdachte in fraudezaak Hebburn](https://fd.nl/financiele-markten/1589894/om-staakt-vervolging-amerikaanse-verdachte-in-fraudezaak-hebburn)
-  > In deze grote beleggingsfraudezaak blijven nu drie verdachten over, waaronder een boekhouder uit Tiel die mogelijk tientallen miljoenen lospeuterde...
+- [EU Inc welkome bouwsteen bij verbetering concurrentiekracht](https://fd.nl/opinie/1590059/eu-inc-welkome-bouwsteen-bij-verbetering-concurrentiekracht)
+  > De ‘Europese bv’ moet grensoverschrijdend zakendoen binnen de EU vergemakkelijken en daarmee helpen voorkomen dat bedrijven met groeiambities naar de...
+- [Nvidia-ceo: ‘OpenClaw is het nieuwe ChatGPT’](https://fd.nl/bedrijfsleven/1589947/nvidia-ceo-openclaw-is-het-nieuwe-chatgpt)
+  > Aandelenkoersen van Chinese bedrijven die met OpenClaw werken maakten flinke sprongen op de beurs.
+- [Meta schaalt ambities metaverse terug](https://fd.nl/bedrijfsleven/1590066/meta-schaalt-ambities-metaverse-terug)
+  > Meta stopt het metaverseproduct Horizon Worlds voor VR-headsets. Het bedrijf verschuift zijn aandacht naar de race rondom kunstmatige intelligentie.
+- [Nieuwe Jumbo-topman wil af van vergadercultuur: ‘De klant verandert snel. Die moeten we sneller volgen’](https://fd.nl/bedrijfsleven/1590063/nieuwe-jumbo-topman-wil-af-van-vergadercultuur-de-klant-verandert-snel-die-moeten-we-sneller-volgen)
+  > Ook wil Jesper Højer, sinds 1 januari topman van het supermarktconcern, de winkels vernieuwen en gaat hij sterker inzetten op aanbiedingen.
+- [Federal Reserve laat rente ongewijzigd en verwacht hogere inflatie](https://fd.nl/financiele-markten/1589949/federal-reserve-laat-rente-ongewijzigd-verwacht-hogere-inflatie)
+  > De abrupte stijging van de olieprijs stelt centrale bankiers wereldwijd voor een dilemma. Komt de inflatie tijdelijk hoger uit of volgen er...
 
 ### Meest gelezen
 
