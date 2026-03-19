@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-03-2026 om 09:52*
+*Laatst bijgewerkt: 19-03-2026 om 10:47*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Noa Lang kan nog lachen na nachtelijke operatie in Liverpool: ‘Shit happens’](https://www.ad.nl/voetbal/noa-lang-kan-nog-lachen-na-nachtelijke-operatie-in-liverpool-shit-happens~a5581b67/)
-  > Noa Lang heeft op Instagram van zich laten horen, nadat hij afgelopen nacht werd geopereerd aan zijn duim. ‘Shit happens’ schreef hij bij een foto...
-- [LIVE Gemeenteraadsverkiezingen 2026 | Ook Amsterdam heeft stemmen geteld: GroenLinks grootste partij na winst twee zetels](https://www.ad.nl/politiek/live-gemeenteraadsverkiezingen-2026-ook-amsterdam-heeft-stemmen-geteld-groenlinks-grootste-partij-na-winst-twee-zetels~ab120e57/)
-  > Ook Amsterdam heeft -als laatste gemeente van Nederland - de stemmen geteld. GroenLinks is de grootste partij in de hoofdstad en wint twee zetels. De...
-- [Zangeres Jet van der Steen krijgt kritiek omdat ze optreedt in bikinitop, maar blijft dat doen: ‘Nederland is er niet klaar voor’](https://www.ad.nl/show/zangeres-jet-van-der-steen-krijgt-kritiek-omdat-ze-optreedt-in-bikinitop-maar-blijft-dat-doen-nederland-is-er-niet-klaar-voor~a6389cb95/)
-  > Zangeres Jet van der Steen (23) krijgt veel haatreacties omdat ze graag optreedt in een bikinitopje. De artiest, onlangs uitgeroepen tot een van de...
-- [Wel frisse lucht in huis, maar zonder overlast van pollen: deze maatregelen kun je nemen](https://www.ad.nl/wonen/wel-frisse-lucht-in-huis-maar-zonder-overlast-van-pollen-deze-maatregelen-kun-je-nemen~a26d2377c/)
-  > Pollenalarm: het seizoen van niezen en jeukende ogen is weer aangebroken. Voorkom dat de pollen ook in je huis gaan ronddwarrelen. Met deze...
-- [BMW verplettert Tesla: 900 kilometer actieradius en razendsnel laden](https://www.ad.nl/auto/bmw-verplettert-tesla-900-kilometer-actieradius-en-razendsnel-laden~a55be17e/)
-  > De nieuwe BMW i3 is de eerste elektrische 3-Serie. Het model heeft een bijzonder vormgegeven voorzijde en breekt ook op andere manieren met het...
+- [In Waalwijk lijkt een politieke ster geboren en wat verder opvalt aan de verkiezingsuitslagen in het land](https://www.ad.nl/politiek/in-waalwijk-lijkt-een-politieke-ster-geboren-en-wat-verder-opvalt-aan-de-verkiezingsuitslagen-in-het-land~a3ae88bc/)
+  > De eerste analyses zijn verschenen, maar wat viel er verder nog op in de uitslagen van de gemeenteraadsverkiezingen? Onder meer: jonge mannen die...
+- [Iraans wetsvoorstel voor tolheffing in Straat van Hormuz, Jetten vindt situatie te ‘instabiel’ voor missie](https://www.ad.nl/buitenland/iraans-wetsvoorstel-voor-tolheffing-in-straat-van-hormuz-jetten-vindt-situatie-te-instabiel-voor-missie~ac528ac3/)
+  > De oorlog in Iran is geen oorlog waaraan Nederland deelneemt, zei premier Rob Jetten voor het begin van de EU-top donderdag in Brussel. Er ligt ook...
+- [Orbán volhardt in veto tegen EU-lening Oekraïne, Jetten noemt dat ‘onacceptabel’: ‘Niet zwichten voor chantage’](https://www.ad.nl/buitenland/orban-volhardt-in-veto-tegen-eu-lening-oekraine-jetten-noemt-dat-onacceptabel-niet-zwichten-voor-chantage~adfb97be/)
+  > EU-landen zijn geïrriteerd door het veto van de Hongaarse premier Viktor Orbán tegen de EU-lening van 90 miljard euro voor Oekraïne. Premier Rob...
+- [Praat mee: nogal wiedes dat lokale partijen bij elke verkiezing groter worden](https://www.ad.nl/praat-mee/praat-mee-nogal-wiedes-dat-lokale-partijen-bij-elke-verkiezing-groter-worden~ac18e2ce/)
+  > Van de 8500 zetels in de gemeenteraden in Nederland gaan er 3400 naar lokale partijen. In de Kwestie leggen we onze lezers daarover een vraag voor....
+- [Het succes van lokale partijen: meer dan populisme en ‘ik regel het wel’](https://www.ad.nl/politiek/het-succes-van-lokale-partijen-meer-dan-populisme-en-ik-regel-het-wel~ae6e5f4b/)
+  > De uitslag van de gemeenteraadsverkiezingen laat weinig ruimte voor twijfel: de lokale partijen hebben het opnieuw heel goed gedaan. Wat verklaart...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [‘Ze wilden kleren kopen. Samen zijn. Maar ze kwamen nooit meer thuis’](https://fd.nl/politiek/1589932/ze-wilden-kleren-kopen-samen-zijn-maar-ze-kwamen-nooit-meer-thuis)
-  > Op de Westelijke Jordaanoever kwamen vorig weekend vier leden uit een Palestijns gezin om het leven door geweervuur van Israëlische soldaten. Tot...
-- [Fel debat in Italië over hervorming van rechterlijke macht](https://fd.nl/politiek/1590176/fel-debat-in-italie-over-hervorming-vanrechterlijke-macht)
-  > In een referendum kunnen Italianen stemmen over hervormingsplannen van de regering van premier Giorgia Meloni. Voor- en tegenstanders buitelen over...
-- [Werkloosheid in februari licht gestegen](https://fd.nl/economie/1590072/werkloosheid-in-februari-licht-gestegen)
-  > Het CBS meldt dat er in deze maand duizend werklozen bijkwamen tot in totaal 416.000. Daarmee is 4,1% van de beroepsbevolking van 15 tot 75 jaar...
-- [Operationele jaarwinst Fastned met 34% gestegen](https://fd.nl/bedrijfsleven/1590098/operationele-jaarwinst-fastned-met-34-gestegen)
-  > Automobilisten laadden vaker, terwijl de Amsterdamse onderneming ook profiteerde van een hogere marge op de stroomprijs.
-- [Waar komt die Nederlandse liefde voor Bachs ‘Matthäus-Passion’ toch vandaan?](https://fd.nl/samenleving/1589991/waar-komt-die-nederlandse-liefde-voor-bachs-matthaus-passion-toch-vandaan)
-  > Norbert Splint laat zich steeds raken door het universele, menselijke verhaal dat die muziek zo volmaakt verklankt: vrienden heb je nergens,...
+- [Shockeer en win: ’s werelds grootste youtuber waagt zich aan een bank](https://fd.nl/financiele-markten/1588744/shockeer-en-win-s-werelds-grootste-youtuberwaagt-zich-aan-een-bank)
+  > Met de overname van bankappStep begeeft MrBeast zich in de financiële sector.  De man die in zijn video’s met geld smijt wil nu jongeren helpen om...
+- [Onderzoek: Europese fintechbedrijven sterk afhankelijk van Amerikaans geld](https://fd.nl/financiele-markten/1590101/onderzoek-europese-fintechbedrijven-sterk-afhankelijk-van-amerikaans-geld)
+  > Europese fintechbedrijven kunnen niet zonder dollars en leunen sterk op Amerikaanse cloud- en betaaltechnologie. Zonder soevereine kapitaalbasis zal...
+- [It takes two to Taco](https://fd.nl/financiele-markten/1590102/it-takes-two-to-taco)
+  > Als Trump met de aanvallen staakt, wil dat niet zeggen dat de olietankers weer vrijelijk kunnen varen. De Verenigde Staten hebben zichzelf in de...
+- [Duitse autotoeleverancier ZF dieper in het rood](https://fd.nl/bedrijfsleven/1590074/duitse-autotoeleverancier-zf-dieper-in-het-rood)
+  > Het bedrijf zucht al jaren onder hoge schulden, terwijl investeringen in systemen en onderdelen voor elektromobiliteit onvoldoende rendeerden.
+- [Hongaars veto over Oekraïne-lening is volgens Jetten ‘onacceptabel’](https://fd.nl/politiek/1590177/hongaars-veto-over-oekraine-lening-is-volgens-jetten-onacceptabel)
+  > Premier Rob Jetten debuteert op een EU-top die over concurrentiekracht had moeten gaan. De oorlog in het Midden-Oosten en de Hongaarse blokkade van...
 
 ### Meest gelezen
 
