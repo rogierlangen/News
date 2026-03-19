@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-03-2026 om 22:33*
+*Laatst bijgewerkt: 19-03-2026 om 23:34*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Neergeschoten Iraniër in Schoonhoven is politiemedewerker](https://nos.nl/l/2607004)
+  > De man van Iraanse afkomst die vanochtend werd neergeschoten op straat in Schoonhoven (Zuid-Holland) is een politiemedewerker. Dat meldt de politie...
 - [Netanyahu: Iran niet langer in staat om uranium te verrijken](https://nos.nl/l/2607003)
   > De Israëlische premier Netanyahu heeft in een toespraak gezegd dat Iran niet langer in staat is om uranium te verrijken. Ook zegt hij dat Iran geen...
 - [Richard de Mos wordt informateur in Gelderse gemeente Oldebroek](https://nos.nl/l/2607000)
@@ -16,8 +18,6 @@
   > Minister Vijlbrief van Sociale Zaken en Werkgelegenheid gaat de tijd nemen om de meest bekritiseerde maatregelen in het regeerakkoord aan te passen....
 - [Gouverneur Roemer langer thuis na auto-ongeluk: 'Meer tijd nodig'](https://nos.nl/l/2606996)
   > De Limburgse commissaris van de Koning Emile Roemer (63) doet de komende weken een stap terug om te herstellen van de gevolgen van een auto-ongeluk...
-- [Derde muis gevonden tussen diepvriessperziebonen Jumbo](https://nos.nl/l/2606995)
-  > In diepvriesgroenten van supermarktketen Jumbo is een derde dode muis gevonden. Afgelopen dinsdag vond een echtpaar in Capelle aan den IJssel het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Neergeschoten Iraniër in Schoonhoven is politiemedewerker](https://www.ad.nl/home/neergeschoten-iranier-in-schoonhoven-is-politiemedewerker~a8a3fe25/)
-  > De man die donderdagochtend om 7.00 uur werd neergeschoten is een medewerker van het Politiedienstencentrum. Hij raakte ernstig gewond.  Er is een...
-- [Bologna in verlenging op voorsprong tegen Malen en AS Roma, invaller Dallinga belangrijk voor Italianen](https://www.ad.nl/voetbal/bologna-in-verlenging-op-voorsprong-tegen-malen-en-as-roma-invaller-dallinga-belangrijk-voor-italianen~a1c099d4/)
-  > Nottingham Forest,  Celta de Vigo en Freiburg verzekerden zich al van een plek in de kwartfinale van de Europa League. AS Roma en Donyell Malen zijn...
+- [AZ bij laatste 8 in Conference League: dit is de volgende tegenstander en de route richting de finale](https://www.ad.nl/voetbal/az-bij-laatste-8-in-conference-league-dit-is-de-volgende-tegenstander-en-de-route-richting-de-finale~aab9ddc1/)
+  > AZ houdt dit seizoen de Nederlandse eer hoog in Europa. De Alkmaarders plaatsten zich ten koste van Sparta Praag voor de kwartfinales van de...
+- [Donyell Malen met AS Roma uitgeschakeld na spektakelstuk, Thijs Dallinga belangrijk in verlenging](https://www.ad.nl/voetbal/donyell-malen-met-as-roma-uitgeschakeld-na-spektakelstuk-thijs-dallinga-belangrijk-in-verlenging~a1c099d4/)
+  > Bologna heeft zich ten koste van AS Roma geplaatst voor de kwartfinales van de Europa League. In een spektakelstuk in Stadio Olimpico wonnen Bologna...
+- [Neergeschoten Iraanse man is politiemedewerker: ‘Dit is een grote klap’](https://www.ad.nl/binnenland/neergeschoten-iraanse-man-is-politiemedewerker-dit-is-een-grote-klap~a8a3fe25/)
+  > De man die donderdagochtend om 07.00 uur werd neergeschoten, is een medewerker van het Politiedienstencentrum. Hij raakte ernstig gewond.  Er is een...
 - [Stand Premier League | Gian van Veen en Michael van Gerwen nog altijd buiten top vier](https://www.ad.nl/darts/premier-league-speelschema-programma-uitslagen-stand~a9ae7647/)
   > De Premier League Darts is volop onderweg mét Michael van Gerwen en Gian van Veen. Bekijk hieronder de stand, alle uitslagen, het complete programma...
 - [IJzersterk AZ vernedert Sparta Praag en gaat na ruime uitzege naar kwartfinales](https://www.ad.nl/voetbal/ijzersterk-az-vernedert-sparta-praag-en-gaat-na-ruime-uitzege-naar-kwartfinales~a1ab6769a/)
   > AZ heeft een heerlijke avond beleefd. De Alkmaarders - de enige Nederlandse troef nog op het Europese toneel - bereikten ten koste van Sparta Praag...
-- [Schulting en Wennemars waaien uit in Kaapstad, Leerdam op de latten en Haags matje voor Bergsma](https://www.ad.nl/olympische-spelen/schulting-en-wennemars-waaien-uit-in-kaapstad-leerdam-op-de-latten-en-haags-matje-voor-bergsma~afb8fdbf/)
-  > Voor de schaatsers is het na de Olympische Winterspelen in Milaan en de WK in Thialf tijd voor vakantie. Waar brengen de Nederlanders en andere...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Geoflatie](https://fd.nl/opinie/1590114/geoflatie)
+  > In tijden van inflatie door een energiecrisis stel ik het woord ‘geoflatie’ voor.
+- [Passieve beleggers maken slotveiling op de beurs tot bonanza](https://fd.nl/financiele-markten/1590110/passieve-beleggers-maken-slotveiling-op-de-beurs-tot-bonanza)
+  > De AEX staat aan de vooravond van zijn jaarlijkse herindeling. Een ding is duidelijk: dit gaat tot veel actie leiden aan het einde van de handelsdag.
+- [Politici: een beetje meer poen levert al heel wat meer V-power](https://fd.nl/opinie/1589984/politici-meer-poen-meer-v-power)
+  > Dit socialistische land herverdeelt 46% naar het collectief en de politiek bemoeit zich, helaas, met alles en iedereen. U wilt daar niks over te...
+- [Personalia vrijdag 20 maart](https://fd.nl/bedrijfsleven/1590104/personalia-vrijdag-20-maart)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [Wall Street eindigt sombere handelsdag in het rood](https://fd.nl/financiele-markten/1590126/wall-street-eindigt-sombere-handelsdag-in-het-rood)
   > Aan het eind van de handelsdag zakte de olieprijs weer na uitspraken van de Israëlische premier Netanyahu. De Dow Jones-index sloot ruim 0,4% lager,...
-- [VS verlichten sancties tegen Wit-Russische bedrijven](https://fd.nl/politiek/1590197/vs-verlichten-sancties-tegen-wit-russische-bedrijven)
-  > In ruil voor 250 vrijgelaten politieke gevangen verlichten de VS sancties tegen Wit-Russische bedrijven.
-- [Minister Vijlbrief wil bezuiniging op WIA-uitkering en zwangerschapsverlof opnieuw bekijken](https://fd.nl/politiek/1590112/minister-vijlbrief-bezuiniging-op-wia-uitkering-en-zwangerschapsverlof-opnieuw-bekijken)
-  > Daarmee zijn deze bezuinigingen niet van tafel, benadrukte de minister van Sociale Zaken en Werkgelegenheid, maar ‘de maatvoering’ en de bescherming...
-- [Politiek worstelt met dure landbouwgrond](https://fd.nl/politiek/1590196/politiek-worstelt-met-dure-landbouwgrond)
-  > Grond onderdeel maken van een stoppersregeling kan volgens Europese regels niet zomaar.
-- [Landelijke politiek moet lokale verkiezingen negeren](https://fd.nl/opinie/1590117/landelijke-politiek-moet-lokale-verkiezingen-negeren)
-  > Her en der verrassende uitslagen in de gemeenteraadsverkiezingen, maar het algemene beeld geeft geen aanleiding voor een draai aan het roer bij het...
 
 ### Meest gelezen
 
