@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-03-2026 om 19:04*
+*Laatst bijgewerkt: 19-03-2026 om 20:43*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Iraanse man neergeschoten in Schoonhoven, minister geïnformeerd](https://nos.nl/l/2606984)
-  > Een man van Iraanse afkomst is vanochtend vroeg neergeschoten op straat in Schoonhoven (Zuid-Holland), meldt de politie. Agenten troffen de 36-jarige...
-- [Alle Joodse scholen in Amsterdam kregen direct na aanslag extra beveiliging](https://nos.nl/l/2606980)
-  > Alle Joodse basis- en middelbare scholen in Amsterdam worden sinds zaterdag extra beveiligd. Dat meldt het gemeentebestuur in een brief aan de...
-- [RDW maakt fout met nieuwe rijbewijzen: provincie Utrecht verkeerd afgebeeld](https://nos.nl/l/2606974)
-  > Op nieuwe rijbewijzen die sinds vorig jaar juni worden uitgegeven, staat een verouderde kaart van Nederland. De provincie Utrecht staat afgebeeld...
-- [Belarus laat 250 gevangenen vrij, VS versoepelt sancties](https://nos.nl/l/2606970)
-  > Belarus heeft 250 politieke gevangenen vrijgelaten na een deal tussen het land en de VS, meldt de Amerikaanse ambassade in Litouwen. De vrijlatingen...
-- [Kloof tussen oorlogsdoelen VS en Israël begint pijn te doen](https://nos.nl/l/2606969)
-  > De Amerikaanse defensieminister Hegseth straalt vooral vastberadenheid uit over de oorlog in Iran. Hij benadrukt dat de VS op schema ligt in het...
+- [Voorlopig nog zonnig, wel minder warm](https://nos.nl/l/2606994)
+  > Het was vandaag op en top lenteweer. Een groot deel van de dag was er bijna geen wolkje aan de lucht. Met een kalme wind en temperaturen van 15 tot...
+- [Bijzondere houten brug bij Sneek niet meer te redden, renovatie gestaakt](https://nos.nl/l/2606992)
+  > Rijkswaterstaat (RWS) heeft een opknapbeurt van de Krúsrakbrug in Sneek voortijdig stilgelegd. De nog geen twintig jaar oude brug verkeert in zo'n...
+- [Betere concurrentiepositie of klimaatdoelen halen: overheid staat voor dilemma](https://nos.nl/l/2606990)
+  > Al jarenlang proberen overheden in Europa, waaronder Nederland, energie-intensieve bedrijven te helpen. Die overheidssteun helpt ze om mee te kunnen...
+- [Inwisselen van feestdagen steeds vaker in cao's](https://nos.nl/l/2606988)
+  > Eid Al-Fitr (Suikerfeest) deze week is een belangrijke feestdag voor de ongeveer een miljoen moslims in Nederland. In tegenstelling tot de...
+- [Ook Epe wil dwangsom opleggen als noodopvang asielzoekers niet sluit](https://nos.nl/l/2606987)
+  > De gemeente Epe dreigt met een dwangsom als een noodopvang voor asielzoekers niet uiterlijk morgen wordt gesloten. Het Centraal Orgaan opvang...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van Gerwen door afmelding van Van Veen zonder te spelen naar laatste 4 in Dublin, wie treft hij?](https://www.ad.nl/darts/van-gerwen-door-afmelding-van-van-veen-zonder-te-spelen-naar-laatste-4-in-dublin-wie-treft-hij~a774408c/)
+- [Niall Horan schrijft lied over overlijden Liam Payne: ‘Ik kon het gewoon niet geloven’](https://www.ad.nl/show/niall-horan-schrijft-lied-over-overlijden-liam-payne-ik-kon-het-gewoon-niet-geloven~abce958f/)
+  > Niall Horan heeft een nummer geschreven over het overlijden van zijn voormalige One Direction-bandmaat Liam Payne. Dat vertelt de zanger in een...
+- [Michael van Gerwen bijna in actie tegen Luke Littler, koploper direct uitgeschakeld in Dublin](https://www.ad.nl/darts/michael-van-gerwen-bijna-in-actie-tegen-luke-littler-koploper-direct-uitgeschakeld-in-dublin~a774408c/)
   > De zevende speelavond van de Premier League Darts wordt vanavond afgewerkt zonder Gian van Veen. De Nederlander heeft last van nierstenen en kan niet...
-- [Wereldwijde gasnood dreigt door Israëlische misrekening](https://www.ad.nl/buitenland/wereldwijde-gasnood-dreigt-door-israelische-misrekening~a19508c6/)
-  > Een Israëlische aanval op het Iraanse gasveld Zuid-Pars heeft een kettingreactie in gang gezet die niemand had gewenst. Iran koos voor vergelding...
-- [AZ verdedigt met herstelde Zoet voorsprong tegen Sparta Praag in return](https://www.ad.nl/voetbal/az-verdedigt-met-herstelde-zoet-voorsprong-tegen-sparta-praag-in-return~a1ab6769a/)
-  > Bereikt AZ vanavond de kwartfinales van de Conference League? De Alkmaarders verdedigen op bezoek in Tsjechië een 2-1 voorsprong tegen Sparta Praag,...
-- [Lokale partijen winnen zetels met anti-azc-geluid: kunnen gemeenten asielopvang écht blokkeren?](https://www.ad.nl/politiek/lokale-partijen-winnen-zetels-met-anti-azc-geluid-kunnen-gemeenten-asielopvang-echt-blokkeren~a218a9c4/)
-  > Door het hele land veroveren partijen zetels met een stevig anti-azc-geluid. Kunnen deze winnaars hun belofte aan de kiezer inlossen en de komst van...
-- [Netanyahu zegt dat Iran niet langer in staat is om uranium te verrijken](https://www.ad.nl/buitenland/netanyahu-zegt-dat-iran-niet-langer-in-staat-is-om-uranium-te-verrijken~ac528ac3/)
-  > Iran is niet langer in staat om uranium te verrijken. Dat zegt de Israëlische premier Benjamin Netanyahu in een persconferentie. Ook zou het land...
+- [Voor derde keer in korte tijd muis gevonden tussen diepvriessperziebonen van Jumbo](https://www.ad.nl/binnenland/voor-derde-keer-in-korte-tijd-muis-gevonden-tussen-diepvriessperziebonen-van-jumbo~a002f509/)
+  > Wie een zak diepvriessperziebonen wil kopen bij Jumbo, moet tegenwoordig flink opletten. Opnieuw is er een dode muis tussen de bevroren groenten...
+- [Iedereen kent Peter, en daarom winnen lokale partijen wéér: ‘Mensen moeten altijd geholpen worden’](https://www.ad.nl/politiek/iedereen-kent-peter-en-daarom-winnen-lokale-partijen-weer-mensen-moeten-altijd-geholpen-worden~abea7f49/)
+  > Op straat, in de kroeg, bij de voetbalclub; bijna iedereen in Oosterhout kent Peter de Laat. Hij is het boegbeeld van een lokale partij. Lokale...
+- [FIFA bestraft Israël met boete voor racistische supporters die Arabische spelers uitscholden voor ‘terrorist’](https://www.ad.nl/voetbal/fifa-bestraft-israel-met-boete-voor-racistische-supporters-die-arabische-spelers-uitscholden-voor-terrorist~aca7d7a7/)
+  > De FIFA heeft de Israëlische voetbalbond (IFA) een boete van ruim 163.000 euro opgelegd. Volgens een rapport van de tuchtcommissie van de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [VS verlichten sancties tegen Wit-Russische bedrijven](https://fd.nl/politiek/1590197/vs-verlichten-sancties-tegen-wit-russische-bedrijven)
+  > In ruil voor 250 vrijgelaten politieke gevangen verlichten de VS sancties tegen Wit-Russische bedrijven.
+- [Minister Vijlbrief wil bezuiniging op WIA-uitkering en zwangerschapsverlof opnieuw bekijken](https://fd.nl/politiek/1590112/minister-vijlbrief-bezuiniging-op-wia-uitkering-en-zwangerschapsverlof-opnieuw-bekijken)
+  > Daarmee zijn deze bezuinigingen niet van tafel, benadrukte de minister van Sociale Zaken en Werkgelegenheid, maar ‘de maatvoering’ en de bescherming...
+- [Politiek worstelt met dure landbouwgrond](https://fd.nl/politiek/1590196/politiek-worstelt-met-dure-landbouwgrond)
+  > Grond onderdeel maken van een stoppersregeling kan volgens Europese regels niet zomaar.
 - [Landelijke politiek moet lokale verkiezingen negeren](https://fd.nl/opinie/1590117/landelijke-politiek-moet-lokale-verkiezingen-negeren)
   > Her en der verrassende uitslagen in de gemeenteraadsverkiezingen, maar het algemene beeld geeft geen aanleiding voor een draai aan het roer bij het...
 - [Novo Nordisk krijgt goedkeuring voor sterker afslankmedicijn](https://fd.nl/bedrijfsleven/1590195/novo-nordisk-krijgt-goedkeuring-voor-sterker-afslankmedicijn)
   > De hogere dosis is cruciaal voor Novo’s pogingen om concurrent Eli Lilly bij te benen. Uit een studie bleek dat het middel Zepbound van Eli Lilly...
-- [Cuba begint te buigen onder de druk van Trump](https://fd.nl/samenleving/1590194/cuba-begint-te-buigen-onder-de-druk-van-trump)
-  > De verzwakte eilandstaat voert economische hervormingen door nu het kampt met een acute energiecrisis door het Amerikaanse olie-embargo.
-- [‘Hoornse ziekte’: acht lokale partijen in een stadje met ruim 76.000 inwoners](https://fd.nl/politiek/1590123/hoornse-ziekte-acht-lokale-partijen-in-een-stadje-met-76-000-inwoners)
-  > In weinig gemeenten is het aanbod lokale partijen zo groot als in Hoorn. Lokale partij Hart van Hoorn kreeg de meeste stemmen in de gemeente waar...
-- [Alibaba streeft naar jaarlijkse omzet van $100 mrd uit AI](https://fd.nl/financiele-markten/1590122/alibaba-streeft-naar-jaarlijkse-omzet-van-100-mrd-uit-ai)
-  > De Chinese multinational hoopt zijn groeiende AI-activiteiten te gelde maken, om de verzwakking van zijn e-commerceactiviteiten te compenseren.
 
 ### Meest gelezen
 
