@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-03-2026 om 10:47*
+*Laatst bijgewerkt: 19-03-2026 om 11:39*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Oekraïners in Brody vragen zich af: waarom zouden we Russische olie doorlaten?](https://nos.nl/l/2606920)
+  > Tussen de bossen in het westen van Oekraïne doemt een industrieel complex op met grote witte cilinders. Het zijn opslagtanks voor olie. Een van de...
+- [AI-versie van overleden Val Kilmer duikt op in film](https://nos.nl/l/2606918)
+  > Een jaar na zijn overlijden speelt Val Kilmer toch nog in een film. Door middel van kunstmatige intelligentie is de Amerikaanse acteur tot leven...
 - [Finland gelukkigste land, Nederland op 7: zorgen om jongeren door sociale media](https://nos.nl/l/2606915)
   > Jongeren in West-Europa en Noord-Amerika zijn steeds minder gelukkig, blijkt uit het vandaag verschenen World Happiness Report. Dat komt volgens de...
 - ['Verboden claims over verhitte tabak in zaken gesteund door Philip Morris'](https://nos.nl/l/2606902)
@@ -15,10 +19,6 @@
 - [Mobiel toilet uitgebrand in Breda, vijfde in korte tijd](https://nos.nl/l/2606898)
   > In Breda is vannacht een mobiele wc uitgebrand. Volgens Omroep Brabant is het al de vijfde keer in korte tijd dat een dixi in brand is gevlogen.
     ...
-- [Wekdienst 19/3: Uitslagenochtend in Nederland • Laatste dag ramadan](https://nos.nl/l/2606890)
-  > Goedemorgen! Het is uitslagenochtend in Nederland. In de meeste gemeenten worden de stemmen vandaag voor een tweede keer geteld. En het is de laatste...
-- [Lokale partijen zetten opmars door, opkomst hoger dan in 2022](https://nos.nl/l/2606889)
-  > Verreweg de meeste zetels bij de gemeenteraadsverkiezingen gaan naar lokale partijen. Daarmee zitten de lokale partijen opnieuw in de lift, is op te...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [In Waalwijk lijkt een politieke ster geboren en wat verder opvalt aan de verkiezingsuitslagen in het land](https://www.ad.nl/politiek/in-waalwijk-lijkt-een-politieke-ster-geboren-en-wat-verder-opvalt-aan-de-verkiezingsuitslagen-in-het-land~a3ae88bc/)
-  > De eerste analyses zijn verschenen, maar wat viel er verder nog op in de uitslagen van de gemeenteraadsverkiezingen? Onder meer: jonge mannen die...
-- [Iraans wetsvoorstel voor tolheffing in Straat van Hormuz, Jetten vindt situatie te ‘instabiel’ voor missie](https://www.ad.nl/buitenland/iraans-wetsvoorstel-voor-tolheffing-in-straat-van-hormuz-jetten-vindt-situatie-te-instabiel-voor-missie~ac528ac3/)
-  > De oorlog in Iran is geen oorlog waaraan Nederland deelneemt, zei premier Rob Jetten voor het begin van de EU-top donderdag in Brussel. Er ligt ook...
-- [Orbán volhardt in veto tegen EU-lening Oekraïne, Jetten noemt dat ‘onacceptabel’: ‘Niet zwichten voor chantage’](https://www.ad.nl/buitenland/orban-volhardt-in-veto-tegen-eu-lening-oekraine-jetten-noemt-dat-onacceptabel-niet-zwichten-voor-chantage~adfb97be/)
-  > EU-landen zijn geïrriteerd door het veto van de Hongaarse premier Viktor Orbán tegen de EU-lening van 90 miljard euro voor Oekraïne. Premier Rob...
-- [Praat mee: nogal wiedes dat lokale partijen bij elke verkiezing groter worden](https://www.ad.nl/praat-mee/praat-mee-nogal-wiedes-dat-lokale-partijen-bij-elke-verkiezing-groter-worden~ac18e2ce/)
-  > Van de 8500 zetels in de gemeenteraden in Nederland gaan er 3400 naar lokale partijen. In de Kwestie leggen we onze lezers daarover een vraag voor....
-- [Het succes van lokale partijen: meer dan populisme en ‘ik regel het wel’](https://www.ad.nl/politiek/het-succes-van-lokale-partijen-meer-dan-populisme-en-ik-regel-het-wel~ae6e5f4b/)
-  > De uitslag van de gemeenteraadsverkiezingen laat weinig ruimte voor twijfel: de lokale partijen hebben het opnieuw heel goed gedaan. Wat verklaart...
+- [Van dominante grootmacht tot uitgeput en eruit: zo speelde de Premier League zichzelf stuk](https://www.ad.nl/voetbal/van-dominante-grootmacht-tot-uitgeput-en-eruit-zo-speelde-de-premier-league-zichzelf-stuk~a88d409d/)
+  > Engeland begon dit seizoen met zes clubs in de Champions League. Die domineerden de rest van Europa in de eerste ronde. Maar na de achtste finales...
+- [Voor 195.000 euro geveild schaatspak van Jutta Leerdam blijkt niet gedragen tijdens olympisch succes](https://www.ad.nl/schaatsen/voor-195-000-euro-geveild-schaatspak-van-jutta-leerdam-blijkt-niet-gedragen-tijdens-olympisch-succes~a8434681/)
+  > Het voor 195.000 euro geveilde schaatspak van olympisch kampioene Jutta Leerdam blijkt niet het pak te zijn dat zij droeg tijdens haar optredens in...
+- [Denemarken vreesde voor Amerikaanse invasie van Groenland: ‘Soldaten stonden klaar om landingsbanen op te blazen’](https://www.ad.nl/buitenland/denemarken-vreesde-voor-amerikaanse-invasie-van-groenland-soldaten-stonden-klaar-om-landingsbanen-op-te-blazen~a53a14e3/)
+  > Denemarken was er in januari van overtuigd dat de Verenigde Staten Groenland zouden binnenvallen. Het land had zelfs soldaten naar het eiland...
+- [Tweevoudig wereldkampioen die zijn vrouw doodreed ligt onder vuur na Instagram-bericht](https://www.ad.nl/wielrennen/tweevoudig-wereldkampioen-die-zijn-vrouw-doodreed-ligt-onder-vuur-na-instagram-bericht~a21ce9bd/)
+  > Voormalig wielrenner Rohan Dennis ligt onder vuur na een opmerkelijk bericht op Instagram. De tweevoudig wereldkampioen tijdrijden, die eind 2023...
+- [BBB verkozen in 19 raden, partij deed mee in 29 gemeenten](https://www.ad.nl/politiek/bbb-verkozen-in-19-raden-partij-deed-mee-in-29-gemeenten~ab120e57/)
+  > De BBB komt in 19 van de 29 gemeenten waar de partij deelneemt in de raad met een of meer zetels. Dat blijkt uit de voorlopige uitslagen die de ANP...
 
 ### Meest gelezen
 
@@ -47,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Mijn opa was geen nazi. Wat nu?](https://fd.nl/samenleving/1589921/mijn-opa-was-geen-nazi-wat-nu)
+  > Joris van Os zou ook graag zijn foute voorouders tot een verdienmodel maken, dus gaat hij, pen in de aanslag, te rade bij zijn ouders.
 - [Shockeer en win: ’s werelds grootste youtuber waagt zich aan een bank](https://fd.nl/financiele-markten/1588744/shockeer-en-win-s-werelds-grootste-youtuberwaagt-zich-aan-een-bank)
   > Met de overname van bankappStep begeeft MrBeast zich in de financiële sector.  De man die in zijn video’s met geld smijt wil nu jongeren helpen om...
 - [Onderzoek: Europese fintechbedrijven sterk afhankelijk van Amerikaans geld](https://fd.nl/financiele-markten/1590101/onderzoek-europese-fintechbedrijven-sterk-afhankelijk-van-amerikaans-geld)
@@ -55,8 +57,6 @@
   > Als Trump met de aanvallen staakt, wil dat niet zeggen dat de olietankers weer vrijelijk kunnen varen. De Verenigde Staten hebben zichzelf in de...
 - [Duitse autotoeleverancier ZF dieper in het rood](https://fd.nl/bedrijfsleven/1590074/duitse-autotoeleverancier-zf-dieper-in-het-rood)
   > Het bedrijf zucht al jaren onder hoge schulden, terwijl investeringen in systemen en onderdelen voor elektromobiliteit onvoldoende rendeerden.
-- [Hongaars veto over Oekraïne-lening is volgens Jetten ‘onacceptabel’](https://fd.nl/politiek/1590177/hongaars-veto-over-oekraine-lening-is-volgens-jetten-onacceptabel)
-  > Premier Rob Jetten debuteert op een EU-top die over concurrentiekracht had moeten gaan. De oorlog in het Midden-Oosten en de Hongaarse blokkade van...
 
 ### Meest gelezen
 
