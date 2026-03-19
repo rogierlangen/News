@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-03-2026 om 14:53*
+*Laatst bijgewerkt: 19-03-2026 om 15:58*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Acteur Kevin Spacey schikt in Britse zaak over seksueel wangedrag](https://nos.nl/l/2606956)
+  > De Amerikaanse acteur Kevin Spacey heeft in het Verenigd Koninkrijk een schikking getroffen in een civiele rechtszaak over seksueel wangedrag. De...
+- [EU-leiders gefrustreerd over Oekraïne-veto Hongarije: 'Onaanvaardbaar'](https://nos.nl/l/2606955)
+  > Europese leiders hebben schoon genoeg van de opstelling van de Hongaarse premier Orbán. Die weigert in te stemmen met een lening van 90 miljard euro...
+- [ECB verwacht hogere inflatie dit jaar, maar kiest niet voor renteverhoging](https://nos.nl/l/2606953)
+  > Ondanks de oorlog in het Midden-Oosten en de daardoor stijgende energieprijzen in Europa, komt er geen wijziging in de Europese rente. De rente...
+- [Directeur weg na vermeend misbruik door conciërge, basisschool Zoetermeer dicht](https://nos.nl/l/2606952)
+  > In de nasleep van een ontuchtzaak bij een basisschool in Zoetermeer is de directeur van de school op non-actief gesteld. De school zelf is vandaag en...
 - [Podcast De Dag: Nederland kiest lokaal (en) radicaal](https://nos.nl/l/2606951)
   > Lokale partijen hebben de meeste stemmen gehaald bij de gemeenteraadsverkiezingen en de grootste stijger is Forum voor Democratie. Maar achter de...
-- [Reparatie van geraakte gasinstallaties in Qatar gaat jaren duren, kost miljarden](https://nos.nl/l/2606948)
-  > De aanvallen op de olie- en gasinstallaties rond de Perzische Golf hebben grote gevolgen voor de betrokken landen. De reparatie kan jaren duren....
-- [Taart in de Tweede Kamer: alle partijen zien winst](https://nos.nl/l/2606946)
-  > Iedereen heeft gisteren gewonnen. Dat is althans de teneur in het gebouw van de Tweede Kamer vandaag, waar een aantal landelijke partijen een...
-- [14-jarige veroordeeld voor poging tot ontploffing bij Pizzabakkers](https://nos.nl/l/2606942)
-  > Een 14-jarige jongen is veroordeeld voor een mislukte brandstichting en een poging een explosie te veroorzaken bij een pizzeria in Amsterdam. De...
-- [KLM opent deuren voor meisjes om ze te interesseren voor een toekomst in de luchtvaart](https://nos.nl/l/2606935)
-  > KLM Cityhopper opende gisteren de hangardeuren voor dertig meisjes van middelbare scholen uit de regio rond Schiphol om ze te interesseren voor een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [SC Cambuur-verdediger Ismaël Baouf debuteert in selectie Marokko](https://www.ad.nl/voetbal/sc-cambuur-verdediger-ismael-baouf-debuteert-in-selectie-marokko~a8732964/)
-  > SC Cambuur-verdediger Ismaël Baouf is voor het eerst opgeroepen voor de nationale ploeg van Marokko. De 19-jarige geboren Belg voegt zich bij...
-- [‘Kracht lokale partij: niet links, niet rechts, wij lossen problemen voor je op!’](https://www.ad.nl/binnenland/kracht-lokale-partij-niet-links-niet-rechts-wij-lossen-problemen-voor-je-op~a0ec1d0b/)
-  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag: het is heel logisch dat lokale partijen bij elke verkiezing groter worden.
-- [Wilders appte Richard de Mos: ‘Amigo, wat fantastisch! Je lag zelfs met je dikke kop op mijn deurmat’](https://www.ad.nl/binnenland/wilders-appte-richard-de-mos-amigo-wat-fantastisch-je-lag-zelfs-met-je-dikke-kop-op-mijn-deurmat~ad978d3c/)
-  > Hij sliep slechts drie uurtjes, maar voelt zich de dag na zijn overwinning hartstikke fit. Richard de Mos van Hart voor Den Haag vierde donderdag...
-- [Extinction Rebellion negeert dreigementen Hart voor Den Haag, veroordeelde lijsttrekker Limburg blij met winst](https://www.ad.nl/politiek/extinction-rebellion-negeert-dreigementen-hart-voor-den-haag-veroordeelde-lijsttrekker-limburg-blij-met-winst~ab120e57/)
-  > Winnaar Hart voor Den Haag heeft gedreigd met een ‘snoeiharde’ aanpak van Extinction Rebellion. ‘Zet de ME in en met het waterkanon op de hardste...
-- [Na auto-ongeluk onder invloed toch grootste partij: Limburgse lijsttrekker dolblij met verkiezingszege](https://www.ad.nl/binnenland/na-auto-ongeluk-onder-invloed-toch-grootste-partij-limburgse-lijsttrekker-dolblij-met-verkiezingszege~ac55a79a/)
-  > Feest voor de veroordeelde ex-wethouder Levin de Koster van de gemeente Beekdaelen (Limburg). De lijsttrekker van de Vernieuwingsgroep is met ruim 30...
+- [Oeps! RDW heeft jaar lang rijbewijzen uitgegeven met oude kaart van Nederland, Vijfheerenlanden ontbreekt](https://www.ad.nl/binnenland/oeps-rdw-heeft-jaar-lang-rijbewijzen-uitgegeven-met-oude-kaart-van-nederland-vijfheerenlanden-ontbreekt~adabf30e/)
+  > Op nieuwe rijbewijzen die sinds juni vorig jaar worden uitgegeven, staat een verouderde kaart van Nederland. De RDW bevestigt de fout na...
+- [Miljuschka’s oog flink toegetakeld na bijensteek en Henry zet verleidelijkste blik op als model](https://www.ad.nl/show/miljuschkas-oog-flink-toegetakeld-na-bijensteek-en-henry-zet-verleidelijkste-blik-op-als-model~a90bbd70/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Voetbalbond Iran wil ondanks oorlog naar WK: ‘We boycotten de VS, niet het toernooi’](https://www.ad.nl/wk-voetbal/voetbalbond-iran-wil-ondanks-oorlog-naar-wk-we-boycotten-de-vs-niet-het-toernooi~a0dd632d/)
+  > De Iraanse voetbalbond is van plan het nationale elftal af te laten reizen naar het wereldkampioenschap in Canada, Mexico en de Verenigde Staten. „We...
+- [Advocaten van Noorse ‘bonusprins’ Marius pleiten voor 1,5 jaar gevangenisstraf](https://www.ad.nl/show/advocaten-van-noorse-bonusprins-marius-pleiten-voor-1-5-jaar-gevangenisstraf~a7b382238/)
+  > De advocaten van Marius Borg Høiby vinden dat hij veroordeeld moet worden tot anderhalf jaar gevangenisstraf. Ze zijn van mening dat hij moet worden...
+- [Steen door ruit waar statushouders zouden wonen: ‘Hier zou een gezin komen met jonge kinderen, en dan zoiets’](https://www.ad.nl/binnenland/steen-door-ruit-waar-statushouders-zouden-wonen-hier-zou-een-gezin-komen-met-jonge-kinderen-en-dan-zoiets~aa095cdb/)
+  > Na lang wachten waren ze klaar om hun woning in Geesteren te betrekken. Maar de verhuizing van een Syrisch gezin met vier jonge kinderen moet...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Onderzoek: prijs van industriesteun is een hogere CO₂-uitstoot](https://fd.nl/economie/1590107/onderzoek-prijs-van-industriesteun-is-een-hogere-co-uitstoot)
+  > Het CPB en PBL concluderen dat overheidssteun aan de Europese energie-intensieve industrie de concurrentiepositie verbetert, maar tegelijk leidt tot...
+- [Rappende premier gaat battle aan met politieke elite in Nepal](https://fd.nl/politiek/1589747/rappende-premier-gaat-battle-aan-met-politieke-elite-in-nepal)
+  > Balendra Shah hoopt met meer banen en hogere lonen te voorkomen dat de jonge Nepalezen die hem in het zadel hielpen werk gaan zoeken in het...
+- [Hoe duur wordt het om de gasbergingen te vullen?](https://fd.nl/financiele-markten/1590052/hoe-duur-wordt-het-om-de-gasbergingen-te-vullen)
+  > Staatsbedrijf EBN moet forse bedragen besteden aan het vullen van de gasbergingen. En dat gas mogelijk met verlies verkopen, omdat in de winter de...
+- [Zwitserleven-moeder profiteert van pensioentransitie](https://fd.nl/financiele-markten/1590115/zwitserleven-moeder-profiteert-van-pensioentransitie)
+  > Athora deed vorig jaar twee zogenoemde ‘buy-outs’ voor €1,125 mrd, van pensioenfondsen Nedlloyd en Trespa.
 - [Een slim doseringssysteem voor het reinigen van afvalwater: ‘Overdoseren is nu de standaard’](https://fd.nl/tech-en-innovatie/1590186/een-slim-doseringssysteem-voor-het-reinigen-van-afvalwater-overdoseren-is-nu-de-standaard)
   > Otter Intelligence levert software om afvalwater van industriële bedrijven zo efficiënt mogelijk te reinigen.
-- [Corendon neemt exploitatie hotel W over van wanbetaler](https://fd.nl/bedrijfsleven/1590109/corendon-neemt-exploitatie-hotel-w-over-van-wanbetaler)
-  > De uitbater van luxehotel W liet de huurachterstand oplopen tot €23 mln. Nu neemt Corendon de exploitatie over.
-- [‘Made in Europe’ moet eigen industrie bevoordelen, maar mag dat wel?](https://fd.nl/politiek/1589483/made-in-europemoet-eigen-industrie-bevoordelen-maar-mag-dat-wel)
-  > De EU wil Europese bedrijven voorrang geven bij aanbestedingen om haar industrie te stimuleren, maar dat is nog niet zo makkelijk. Zo kan Made in...
-- [Europa’s paradox: sterker zijn voor nationale zaak verzwakt gezamenlijke positie](https://fd.nl/opinie/1590071/europas-paradox-sterker-zijn-dat-verzwakt-elkaar)
-  > Radicaal-rechts wint Europa-breed terrein bij lokale verkiezingen. De nationalistische agenda’s van deze partijen staan haaks op de samenwerking die...
-- [EU-landen voor energie sterk afhankelijk van anderen](https://fd.nl/economie/1590108/eu-landen-voor-energie-sterk-afhankelijk-van-anderen)
-  > In Nederland is de energieafhankelijkheid in twintig jaar gestegen van 32% naar 69% vanwege het stoppen met de gaswinning in Groningen.
 
 ### Meest gelezen
 
