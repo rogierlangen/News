@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-03-2026 om 11:39*
+*Laatst bijgewerkt: 19-03-2026 om 13:15*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Oekraïners in Brody vragen zich af: waarom zouden we Russische olie doorlaten?](https://nos.nl/l/2606920)
-  > Tussen de bossen in het westen van Oekraïne doemt een industrieel complex op met grote witte cilinders. Het zijn opslagtanks voor olie. Een van de...
-- [AI-versie van overleden Val Kilmer duikt op in film](https://nos.nl/l/2606918)
-  > Een jaar na zijn overlijden speelt Val Kilmer toch nog in een film. Door middel van kunstmatige intelligentie is de Amerikaanse acteur tot leven...
-- [Finland gelukkigste land, Nederland op 7: zorgen om jongeren door sociale media](https://nos.nl/l/2606915)
-  > Jongeren in West-Europa en Noord-Amerika zijn steeds minder gelukkig, blijkt uit het vandaag verschenen World Happiness Report. Dat komt volgens de...
-- ['Verboden claims over verhitte tabak in zaken gesteund door Philip Morris'](https://nos.nl/l/2606902)
-  > In tabakszaken die steun krijgen van fabrikant Philip Morris wordt tegen de regels in verhitte tabak aangeprezen als minder schadelijk alternatief...
-- [Mobiel toilet uitgebrand in Breda, vijfde in korte tijd](https://nos.nl/l/2606898)
-  > In Breda is vannacht een mobiele wc uitgebrand. Volgens Omroep Brabant is het al de vijfde keer in korte tijd dat een dixi in brand is gevlogen.
-    ...
+- [KLM opent deuren voor meisjes om ze te interesseren voor een toekomst in de luchtvaart](https://nos.nl/l/2606935)
+  > KLM Cityhopper opende gisteren de hangardeuren voor dertig meisjes van middelbare scholen uit de regio rond Schiphol om ze te interesseren voor een...
+- ['Denemarken bereidde Amerikaanse aanval in Groenland voor'](https://nos.nl/l/2606930)
+  > Denemarken bereidde in januari in Groenland een mogelijke aanval van de VS voor. Bronnen melden aan de publieke omroep DR dat er zakken bloed naar...
+- [VK trekt per jaar 12 miljoen extra uit voor wereldomroep van de BBC](https://nos.nl/l/2606926)
+  > De Britse regering gaat de komende drie jaar meer geld uitgeven aan de BBC World Service. Elk jaar krijgt de wereldomroep omgerekend ruim 12 miljoen...
+- [Koninklijk paar op werkbezoek naar VS, overnachting bij Trump in Witte Huis](https://nos.nl/l/2606925)
+  > Koning Willem-Alexander en koningin Máxima brengen volgende maand een driedaags werkbezoek aan de Verenigde Staten. Daarbij staan onder meer een...
+- [Björn van ABBA koopt rechten Tina Turner](https://nos.nl/l/2606922)
+  > Het Zweedse bedrijf Pophouse Entertainment koopt de rechten van zangeres Tina Turner. De legendarische zangeres overleed in 2023. Pophouse is het...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van dominante grootmacht tot uitgeput en eruit: zo speelde de Premier League zichzelf stuk](https://www.ad.nl/voetbal/van-dominante-grootmacht-tot-uitgeput-en-eruit-zo-speelde-de-premier-league-zichzelf-stuk~a88d409d/)
-  > Engeland begon dit seizoen met zes clubs in de Champions League. Die domineerden de rest van Europa in de eerste ronde. Maar na de achtste finales...
-- [Voor 195.000 euro geveild schaatspak van Jutta Leerdam blijkt niet gedragen tijdens olympisch succes](https://www.ad.nl/schaatsen/voor-195-000-euro-geveild-schaatspak-van-jutta-leerdam-blijkt-niet-gedragen-tijdens-olympisch-succes~a8434681/)
-  > Het voor 195.000 euro geveilde schaatspak van olympisch kampioene Jutta Leerdam blijkt niet het pak te zijn dat zij droeg tijdens haar optredens in...
-- [Denemarken vreesde voor Amerikaanse invasie van Groenland: ‘Soldaten stonden klaar om landingsbanen op te blazen’](https://www.ad.nl/buitenland/denemarken-vreesde-voor-amerikaanse-invasie-van-groenland-soldaten-stonden-klaar-om-landingsbanen-op-te-blazen~a53a14e3/)
-  > Denemarken was er in januari van overtuigd dat de Verenigde Staten Groenland zouden binnenvallen. Het land had zelfs soldaten naar het eiland...
-- [Tweevoudig wereldkampioen die zijn vrouw doodreed ligt onder vuur na Instagram-bericht](https://www.ad.nl/wielrennen/tweevoudig-wereldkampioen-die-zijn-vrouw-doodreed-ligt-onder-vuur-na-instagram-bericht~a21ce9bd/)
-  > Voormalig wielrenner Rohan Dennis ligt onder vuur na een opmerkelijk bericht op Instagram. De tweevoudig wereldkampioen tijdrijden, die eind 2023...
-- [BBB verkozen in 19 raden, partij deed mee in 29 gemeenten](https://www.ad.nl/politiek/bbb-verkozen-in-19-raden-partij-deed-mee-in-29-gemeenten~ab120e57/)
-  > De BBB komt in 19 van de 29 gemeenten waar de partij deelneemt in de raad met een of meer zetels. Dat blijkt uit de voorlopige uitslagen die de ANP...
+- [Extinction Rebellion reageert op dreigementen Hart voor Den Haag, verlies voor GroenLinks-Pv­dA, SP en CU](https://www.ad.nl/politiek/extinction-rebellion-reageert-op-dreigementen-hart-voor-den-haag-verlies-voor-groenlinks-pvda-sp-en-cu~ab120e57/)
+  > Winnaar Hart voor Den Haag heeft gedreigd met een ‘snoeiharde’ aanpak van Extinction Rebellion. ‘Zet de ME in en met het waterkanon op de hardste...
+- [Dit is de cast van de nieuwe Netflix-serie rond Scooby-Doo](https://www.ad.nl/show/dit-is-de-cast-van-de-nieuwe-netflix-serie-rond-scooby-doo~a06677c6/)
+  > Netflix werkt aan een nieuwe liveactionserie rond Scooby-Doo, waarin de groep Mystery Inc. opnieuw tot leven komt met een jonge cast. In de serie...
+- [Jonge koper koopt huis zonder hypotheek en ineens huilt iedereen, zelfs de notaris](https://www.ad.nl/geld/jonge-koper-koopt-huis-zonder-hypotheek-en-ineens-huilt-iedereen-zelfs-de-notaris~a899624b/)
+  > Starters op de woningmarkt moeten doorgaans veel gespaard hebben of een duwtje in de rug krijgen van familie. Deze jongeman heeft beide en daardoor...
+- [Omstreden goksite achter bedreigingen Israëlische journalist: weddenschap van 20 miljoen dollar](https://www.ad.nl/buitenland/omstreden-goksite-achter-bedreigingen-israelische-journalist-weddenschap-van-20-miljoen-dollar~a54a286a/)
+  > Hij sliep al slecht vanwege de oorlog met Iran, maar journalist Emanuel Fabian kreeg er afgelopen week nog meer kopzorgen bij. De militaire...
+- [Koning en koningin dineren en overnachten tijdens staatsbezoek aan de VS in het Witte Huis](https://www.ad.nl/show/koning-en-koningin-dineren-en-overnachten-tijdens-staatsbezoek-aan-de-vs-in-het-witte-huis~a8c4800c/)
+  > Koning Willem-Alexander en koningin Máxima ontmoeten de Amerikaanse president Donald Trump volgende maand tijdens hun bezoek aan de Verenigde Staten....
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Mijn opa was geen nazi. Wat nu?](https://fd.nl/samenleving/1589921/mijn-opa-was-geen-nazi-wat-nu)
-  > Joris van Os zou ook graag zijn foute voorouders tot een verdienmodel maken, dus gaat hij, pen in de aanslag, te rade bij zijn ouders.
-- [Shockeer en win: ’s werelds grootste youtuber waagt zich aan een bank](https://fd.nl/financiele-markten/1588744/shockeer-en-win-s-werelds-grootste-youtuberwaagt-zich-aan-een-bank)
-  > Met de overname van bankappStep begeeft MrBeast zich in de financiële sector.  De man die in zijn video’s met geld smijt wil nu jongeren helpen om...
-- [Onderzoek: Europese fintechbedrijven sterk afhankelijk van Amerikaans geld](https://fd.nl/financiele-markten/1590101/onderzoek-europese-fintechbedrijven-sterk-afhankelijk-van-amerikaans-geld)
-  > Europese fintechbedrijven kunnen niet zonder dollars en leunen sterk op Amerikaanse cloud- en betaaltechnologie. Zonder soevereine kapitaalbasis zal...
-- [It takes two to Taco](https://fd.nl/financiele-markten/1590102/it-takes-two-to-taco)
-  > Als Trump met de aanvallen staakt, wil dat niet zeggen dat de olietankers weer vrijelijk kunnen varen. De Verenigde Staten hebben zichzelf in de...
-- [Duitse autotoeleverancier ZF dieper in het rood](https://fd.nl/bedrijfsleven/1590074/duitse-autotoeleverancier-zf-dieper-in-het-rood)
-  > Het bedrijf zucht al jaren onder hoge schulden, terwijl investeringen in systemen en onderdelen voor elektromobiliteit onvoldoende rendeerden.
+- [ECB kijkt kat uit de boom en laat rente ongewijzigd](https://fd.nl/economie/1590099/ecb-kijkt-kat-uit-de-boom-en-laat-rente-ongewijzigd)
+  > Beleidsmakers in Frankfurt houden hun kruit droog, omdat het vooralsnog onmogelijk is te voorspellen hoe groot de impact zal zijn van de oorlog in...
+- [Inflatiezorgen grijpen om zich heen op aandelen- en obligatiemarkten](https://fd.nl/financiele-markten/1590105/inflatiezorgen-grijpen-om-zich-heen-op-aandelen-en-obligatiemarkten)
+  > De gasprijs en olieprijs maakten donderdag opnieuw een sprong. Het vergroot de zorgen onder beleggers dat de inflatie langer hoog zal blijven. De AEX...
+- [De goede mening](https://fd.nl/opinie/1589728/de-goede-mening)
+  > De gedragscode brengt interessante ethische dilemma’s met zich mee. Maar er schuilt ook een gevaar in zo’n code: je komt snel op het terrein van de...
+- [Investeerders laten de zorgmarkt steeds vaker links liggen](https://fd.nl/bedrijfsleven/1590073/investeerders-laten-de-zorgmarkt-steeds-vaker-links-liggen)
+  > Personeelskrapte, het risico op reputatieschade en onvoorspelbare wet- en regelgeving maken investeerders terughoudend.
+- [Ratingbureau S&P verlaagt outlook privatecreditfonds Cliffwater wegens uitstroom](https://fd.nl/financiele-markten/1590182/ratingbureau-s-p-verlaagt-outlook-privatecreditfonds-cliffwater-wegens-uitstroom)
+  > Kredietbeoordelaar Standard & Poor’s heeft het Cliffwater Corporate Lending Fund een negatieve outlook meegegeven. Dit betekent dat er een kans is...
 
 ### Meest gelezen
 
