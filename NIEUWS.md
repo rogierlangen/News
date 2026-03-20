@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-03-2026 om 19:40*
+*Laatst bijgewerkt: 20-03-2026 om 20:38*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Heracles pakt terecht de leiding in degradatieduel: Scheperman tikt van dichtbij binnen](https://www.ad.nl/voetbal/heracles-pakt-terecht-de-leiding-in-degradatieduel-scheperman-tikt-van-dichtbij-binnen~aace5fed/)
+- [Excelsior komt uit het niets op gelijke hoogte tegen hekkensluiter Heracles](https://www.ad.nl/voetbal/excelsior-komt-uit-het-niets-op-gelijke-hoogte-tegen-hekkensluiter-heracles~aace5fed/)
   > Het zijn de weekenden van de waarheid voor Heracles. Kan de hekkensluiter van de eredivisie degradatie ontlopen? Volg het in ons liveblog.
-- [Verbijstering bij gamers door ‘revolutionaire’ ingreep Nvidia: ‘Virgil van Dijk lijkt meer op Depay’](https://www.ad.nl/games/verbijstering-bij-gamers-door-revolutionaire-ingreep-nvidia-virgil-van-dijk-lijkt-meer-op-depay~a668840d/)
-  > Grote onrust in de gamewereld. Een baanbrekende AI-techniek van techgigant Nvidia moet games met één druk op de knop realistischer maken, maar leidt...
-- [Suzan en Freek krijgen Top 40 Award van goede vriend Claude, emotionele verrassing voor Samuel Welten](https://www.ad.nl/show/suzan-en-freek-krijgen-top-40-award-van-goede-vriend-claude-emotionele-verrassing-voor-samuel-welten~afe2c38f/)
-  > Suzan en Freek zijn vrijdagavond verrast door hun goede vriend Claude bij de Qmusic Top 40 Awards in Rotterdam Ahoy. Het populaire zangduo kreeg de...
-- [Cambuur op jacht naar gelijkmaker tegen Jong AZ, Sjöstrand raakt de paal](https://www.ad.nl/voetbal/cambuur-op-jacht-naar-gelijkmaker-tegen-jong-az-sjostrand-raakt-de-paal~a050b5c9/)
+- [LIVE WK indoor atletiek | Lieke Klaver stormt naar finale 400 meter op WK indoor, Schilder en Burnet grijpen naast medaille](https://www.ad.nl/andere-sporten/live-wk-indoor-atletiek-lieke-klaver-stormt-naar-finale-400-meter-op-wk-indoor-schilder-en-burnet-grijpen-naast-medaille~a08cb613/)
+  > Het is dag één van de WK indoor atletiek in Polen. Jessica Schilder eindigde naast het podium in het kogelstoten. Lieke Klaver snelde naar een...
+- [Wat kan ‘trainerfluisteraar’ Dick Advocaat richting de Klassieker? ‘Hij is kritisch op ons gameplan’](https://www.ad.nl/voetbal/wat-kan-trainerfluisteraar-dick-advocaat-richting-de-klassieker-hij-is-kritisch-op-ons-gameplan~aa521ba71/)
+  > Feyenoord won dit seizoen nog niet eenmaal van een club uit de top zes van de eredivisie. Tegen Ajax in de Kuip moet die reeks zondagmiddag worden...
+- [Jong AZ opnieuw op voorsprong tegen Cambuur, Zwart scoort in Leeuwarden](https://www.ad.nl/voetbal/jong-az-opnieuw-op-voorsprong-tegen-cambuur-zwart-scoort-in-leeuwarden~a050b5c9/)
   > SC Cambuur kan vanavond officieus promoveren naar de Eredivisie. Als het zelf wint van Jong AZ, dan kan nummer drie De Graafschap alleen nog op...
-- [Lieke Klaver stormt naar finale 400 meter op WK indoor, Schilder grijpt naast medaille](https://www.ad.nl/andere-sporten/lieke-klaver-stormt-naar-finale-400-meter-op-wk-indoor-schilder-grijpt-naast-medaille~a08cb613/)
-  > Het is dag één van de WK indoor atletiek in Polen. Jessica Schilder eindigde naast het podium in het kogelstoten. Later komt ook Lieke Klaver in...
+- [Manchester United kan op bezoek bij Bournemouth weer stap zetten in race om Champions League-ticket](https://www.ad.nl/voetbal/manchester-united-kan-op-bezoek-bij-bournemouth-weer-stap-zetten-in-race-om-champions-league-ticket~a0d32c9c/)
+  > Manchester United moest het dit seizoen doen zonder Europees voetbal, maar daar lijkt verandering in te gaan komen. United is onder trainer Michael...
 
 ### Meest gelezen
 
