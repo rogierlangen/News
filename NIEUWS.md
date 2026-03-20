@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-03-2026 om 09:49*
+*Laatst bijgewerkt: 20-03-2026 om 10:42*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Neergeschoten Iraanse politiemedewerker Schoonhoven was tegenstander regime Iran](https://nos.nl/l/2607050)
-  > De man van Iraanse afkomst die gisteren is neergeschoten in Schoonhoven, is een tegenstander van het Iraanse regime. Dat zegt minister van Weel...
+- [Jeugdzorginstelling plaatst 13-jarige zonder begeleiding in vakantiepark, rechter grijpt in](https://nos.nl/l/2607056)
+  > De kinderrechter in Groningen oordeelt dat Jeugdbescherming Noord per direct een nieuwe woonplek voor een 13-jarige jongen moet vinden. De...
+- [Kabinet neemt adviezen IEA niet over: 'Geen tekorten in Nederland'](https://nos.nl/l/2607053)
+  > De waarschuwing van het Internationaal Energieagentschap over een ongekende energiecrisis leidt in Nederland niet direct tot extra maatregelen of...
+- [Piloot luchtballon niet vervolgd voor dodelijk ongeluk](https://nos.nl/l/2607051)
+  > De piloot van een luchtballon die in augustus vorig jaar hard neerkwam bij de landing, is niet schuldig aan de dood van een inzittende. Ook wordt hij...
+- [Neergeschoten Iraanse politiemedewerker Schoonhoven is tegenstander regime Iran](https://nos.nl/l/2607050)
+  > De man van Iraanse afkomst die gisteren is neergeschoten in Schoonhoven, is een tegenstander van het Iraanse regime. Dat zei minister van Weel...
 - [Misbruikverdachte Jan B. werd eerder ontslagen, maar kon met kinderen blijven werken](https://nos.nl/l/2607046)
   > Jan B., de man die verdacht wordt van het misbruiken van kinderen op een Amsterdams kinderdagverblijf, werd eerder al op non-actief gesteld bij een...
-- [Tientallen gewonden na brand in autofabriek Zuid-Korea](https://nos.nl/l/2607036)
-  > In de Zuid-Koreaanse stad Daejeon zijn zeker 55 mensen gewond geraakt bij een brand in een fabriek waar auto-onderdelen worden gemaakt. Volgens de...
-- [Unilever bevestigt bod op voedingsmiddelendivisie](https://nos.nl/l/2607031)
-  > De kans is groot dat Unilever naast de ijsdivisie ook het onderdeel voedingsmiddelen verkoopt. Al dagen doen geruchten hierover de ronde en nu heeft...
-- [IEA waarschuwt voor grootste energiecrisis ooit: werk thuis en reis met ov](https://nos.nl/l/2607028)
-  > De oorlog in het Midden-Oosten veroorzaakt zo'n grote energiecrisis dat overheden en burgers in de rest van de wereld terughoudend moeten zijn met...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Quiz: test je kennis over de Klassieker](https://www.ad.nl/voetbal/quiz-test-je-kennis-over-de-klassieker~a879609d/)
-  > De Klassieker tussen Feyenoord en Ajax wordt zondag in De Kuip gespeeld. Wat weet jij van de onderlinge wedstrijden uit het verleden? En welke...
-- [Minister Van Weel: Neergeschoten politiemedewerker sprak zich uit tegen het Iraanse regime](https://www.ad.nl/binnenland/minister-van-weel-neergeschoten-politiemedewerker-sprak-zich-uit-tegen-het-iraanse-regime~a8a3fe25/)
-  > De politiemedewerker van Iraanse afkomst die donderdagochtend om 07.00 uur werd neergeschoten in Schoonhoven, is een medewerker van het...
-- [Merel trakteert op afscheidsfriet en Dries reageert op liefdesgeruchten](https://www.ad.nl/show/merel-trakteert-op-afscheidsfriet-en-dries-reageert-op-liefdesgeruchten~a90bbd70/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Brandweer waarschuwt tanktoeristen met jerrycans: ‘Dit is levensgevaarlijk’](https://www.ad.nl/binnenland/brandweer-waarschuwt-tanktoeristen-met-jerrycans-dit-is-levensgevaarlijk~af9752f0/)
-  > „Dit is levensgevaarlijk”, zegt de brandweer over tanktoeristen die met honderden liters ‘Belgische’ benzine in jerrycans in hun kofferbak rijden....
-- [Ze willen een levensloopbestendige woning, maar het is zoeken naar een speld in een hooiberg](https://www.ad.nl/wonen/ze-willen-een-levensloopbestendige-woning-maar-het-is-zoeken-naar-een-speld-in-een-hooiberg~aec6486d/)
-  > Een levensloopbestendige woning vinden, is niet eenvoudig, weet makelaar Lana Goutsmits-Gerssen. ‘Zodra we een bod uitbrengen, worden we links en...
+- [Russische legeropbouw aan de Finse grens: ‘Potentieel oorlogsgebied’](https://www.ad.nl/buitenland/russische-legeropbouw-aan-de-finse-grens-potentieel-oorlogsgebied~a7fd9ef9/)
+  > Rusland bouwt vrijwel onopgemerkt aan nieuwe militaire infrastructuur bij de Finse grens. Moeten we ongerust zijn, of heeft Moskou slechts defensieve...
+- [Praat mee: als maatregel tegen de energiecrisis ben ik vóór een autoloze zondag](https://www.ad.nl/praat-mee/praat-mee-als-maatregel-tegen-de-energiecrisis-ben-ik-voor-een-autoloze-zondag~ac71bcfa/)
+  > Het Internationaal Energieagentschap (IEA) waarschuwt voor een grote energiecrisis als gevolg van de oorlog in Iran. De IEA roept landen op...
+- [Ik vind de denkbeelden van deze vrouw helemaal niks, maar zijzelf fascineert me mateloos](https://www.ad.nl/binnenland/ik-vind-de-denkbeelden-van-deze-vrouw-helemaal-niks-maar-zijzelf-fascineert-me-mateloos~a0fc6dec/)
+  > Ze las iets grappigs over de opa van Lidewij de Vos en toen snapte ze ineens waar de ijzerenheinige houding van de Forum-voorvrouw vandaan zou kunnen...
+- [Lieke Klaver soepeltjes naar halve finale 400 meter op WK indoor](https://www.ad.nl/andere-sporten/lieke-klaver-soepeltjes-naar-halve-finale-400-meter-op-wk-indoor~a0bc44e8/)
+  > Lieke Klaver is op de WK indooratletiek in het Poolse Torun doorgedrongen tot de halve finales van de 400 meter. De 27-jarige atlete won in de...
+- [Ministers vinden het nog niet nodig auto te laten staan door energiecrisis: ‘Je moet zelf weten waar je werkt’](https://www.ad.nl/binnenland/ministers-vinden-het-nog-niet-nodig-auto-te-laten-staan-door-energiecrisis-je-moet-zelf-weten-waar-je-werkt~a30b93bd/)
+  > Het kabinet vindt het nog niet nodig om mensen te stimuleren de auto wat vaker te laten staan. Dat zeggen verschillende ministers voorafgaand aan de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Veertig jaar Inez & Vinoodh](https://fd.nl/samenleving/1589903/veertig-jaar-inez-vinoodh)
+  > De Nederlandse fotografen Inez van Lamsweerde en Vinoodh Matadin vieren dit jaar hun veertigjarig jubileum als creatief koppel, met een groot...
+- [Opschaling Nederlandse defensie-industrie hapert door financiering](https://fd.nl/bedrijfsleven/1589934/opschaling-nederlandse-defensie-industrie-hapert-door-financiering)
+  > Door het hoge risicoprofiel van de defensiesector blijft financiering van bijvoorbeeld capaciteitsuitbreiding lastig. Defensie zegt de hindernissen...
+- [Supermarkten krijgen steeds meer de overhand in de winkelstraat](https://fd.nl/samenleving/1590111/supermarkten-krijgen-steeds-meer-de-overhand-in-de-winkelstraat)
+  > Zowel in aantal als in vloeroppervlakte is het belang van supermarkten de afgelopen twintig jaar flink gegroeid.
+- [Kijk voor de échte stand van Nederland naar de zogenoemde ‘lange reeksen’](https://fd.nl/opinie/1590049/kijk-voor-echte-stand-van-het-land-naar-lange-reeksen)
+  > Volgens CPB-directeur Pieter Hasekamp kan overheidsbeleid op lange termijn onstuitbaar lijkende ontwikkelingen afremmen of ombuigen. Kijk dus voorbij...
 - [FvD verdween naar de marge, maar heeft na lokale winst ‘stijgende lijn’ weer gevonden](https://fd.nl/politiek/1590221/fvd-verdween-naar-de-marge-maar-heeft-na-lokale-winst-stijgende-lijn-weer-gevonden)
   > In haar gewenste ‘mars door de instituties’ kan FvD de gemeenteraad afvinken. Het zelfvertrouwen is terug bij de partij, die de laatste jaren in het...
-- [Kritiek van ngo’s is in Brussel aan dovemansoren gericht](https://fd.nl/politiek/1590190/kritiek-van-ngos-is-in-brussel-aan-dovemansoren-gericht)
-  > De Europese Commissie luistert vooral naar het bedrijfsleven in haar streven naar minder regelgeving, ondanks kritiek van de EU-Ombudsman.
-- [Hoe een eindmusical kansenongelijkheid tastbaar maakt](https://fd.nl/samenleving/1589835/hoe-een-eindmusical-kansenongelijkheid-tastbaar-maakt)
-  > In de podcastserie de Rolverdeling wordt kansenongelijkheid in het onderwijs tastbaar dankzij de schoolmusical.
-- [De nieuwe luchthaven van Ho Chi Minhstad wil Schiphol en zelfs Dubai naar de kroon steken](https://fd.nl/samenleving/1589924/de-nieuwe-luchthaven-van-ho-chi-minhstad-wil-schiphol-en-zelfs-dubai-naar-de-kroon-steken)
-  > Long Thanh, de Vietnamese luchthaven in aanbouw, zal in juni de eerste vluchten ontvangen en heeft ambitieuze groeiplannen.
-- [De verborgen kosten van dat vreemde linkse imago van natuurbescherming](https://fd.nl/opinie/1589885/de-verborgen-kosten-van-dat-vreemde-linkse-imago-van-natuurbescherming)
-  > Natuurbeschermers worstelen met een gebrek aan financiering, omdat Nederland in 2010 overstapte op een beleid van ad-hoc subsidies. Terwijl...
 
 ### Meest gelezen
 
