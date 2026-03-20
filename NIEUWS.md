@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-03-2026 om 07:03*
+*Laatst bijgewerkt: 20-03-2026 om 08:49*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Italiaans politicus Umberto Bossi (84) overleden, oprichter Lega-partij](https://nos.nl/l/2607021)
+- [Tientallen gewonden na brand in autofabriek Zuid-Korea](https://nos.nl/l/2607036)
+  > In de Zuid-Koreaanse stad Daejeon zijn zeker 55 mensen gewond geraakt bij een brand in een fabriek waar auto-onderdelen worden gemaakt. Volgens de...
+- [Unilever bevestigt bod op voedingsmiddelendivisie](https://nos.nl/l/2607031)
+  > De kans is groot dat Unilever naast de ijsdivisie ook het onderdeel voedingsmiddelen verkoopt. Al dagen doen geruchten hierover de ronde en nu heeft...
+- [IEA waarschuwt voor grootste energiecrisis ooit: werk thuis en reis met ov](https://nos.nl/l/2607028)
+  > De oorlog in het Midden-Oosten veroorzaakt zo'n grote energiecrisis dat overheden en burgers in de rest van de wereld terughoudend moeten zijn met...
+- [Noorse prinses Mette-Marit in interview: 'Had mensen moeten waarschuwen voor Epstein'](https://nos.nl/l/2607024)
+  > De Noorse kroonprinses Mette-Marit heeft er spijt van dat ze mensen niet heeft gewaarschuwd voor Epstein. "Hij chanteerde mensen, en daar had ik...
+- [Umberto Bossi overleden, als Lega-oprichter voorvechter van onafhankelijk Noord-Italië](https://nos.nl/l/2607021)
   > De Italiaanse politicus Umberto Bossi, oprichter van de rechts-populistische Lega-partij, is op 84-jarige leeftijd overleden. Dat melden zijn familie...
-- [Met Nowruz begint voor Iraniërs een nieuw jaar, maar er valt weinig te vieren](https://nos.nl/l/2607017)
-  > Voor veel Iraniërs is het de belangrijkste feestdag van het jaar: Nowruz, de eerste dag van de lente. Het Perzisch nieuwjaar is normaal gesproken een...
-- [Wekdienst 20/3: Viering Eid al-Fitr • Interview Mette-Marit](https://nos.nl/l/2607016)
-  > Goedemorgen! Vandaag begint de astronomische lente, vieren moslims wereldwijd Eid al-Fitr (Suikerfeest) en bezetten werknemers van Rijkswaterstaat...
-- ['Huishoudens merken piek in prijsstijging door oorlog pas over 21 maanden'](https://nos.nl/l/2607015)
-  > Als de oorlog in het Midden-Oosten voortduurt, zullen huishoudens flink worden geraakt, en niet alleen aan de pomp. Ook kleding, gereedschap en eten...
-- [Californië geeft César Chávez-dag een andere naam na beschuldigingen van misbruik](https://nos.nl/l/2607014)
-  > Californië werkt aan een wetsvoorstel om de feestdag César Chávez-dag een andere naam te geven: Farmworkers Day, landarbeidersdag. Aanleiding...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Snapchat over mishandeling via groepschats: ‘Dit gedrag tolereren we absoluut niet’](https://www.ad.nl/tech/snapchat-over-mishandeling-via-groepschats-dit-gedrag-tolereren-we-absoluut-niet~ac19c5a3/)
-  > Snapchat bereikt 90 procent van de jongeren van 13 tot en met 24 jaar, maar zijn zij daar wel veilig? Van seksuele uitbuiting tot een...
-- [Noorse kroonprinses Mette-Marit zegt dat zij is ‘gemanipuleerd en bedrogen’ door Jeffrey Epstein](https://www.ad.nl/show/noorse-kroonprinses-mette-marit-zegt-dat-zij-is-gemanipuleerd-en-bedrogen-door-jeffrey-epstein~a8e6f788/)
-  > De Noorse kroonprinses Mette-Marit zegt dat zij spijt heeft van haar vriendschap met de veroordeelde zedendelinquent Jeffrey Epstein. Dat zegt zij...
-- [Alles over de Klassieker: hoe laat is de aftrap, welke spelers ontbreken en wie is de scheidsrechter?](https://www.ad.nl/voetbal/alles-over-de-klassieker-hoe-laat-is-de-aftrap-welke-spelers-ontbreken-en-wie-is-de-scheidsrechter~a937c385/)
-  > De 201ste editie van de Klassieker staat voor de deur: aartsrivalen Feyenoord en Ajax staan komende zondag tegenover elkaar in de Kuip. Welke spelers...
-- [Adviesprijzen benzine en diesel aan de pomp verder omhoog](https://www.ad.nl/economie/adviesprijzen-benzine-en-diesel-aan-de-pomp-verder-omhoog~a4fd6bb1/)
-  > De landelijke adviesprijzen voor benzine en diesel aan de pomp zijn vrijdag verder gestegen door de oorlog in het Midden-Oosten. De adviesprijs voor...
-- [IEA waarschuwt voor energiecri­sis door oorlog en komt met advies: ‘Niet alle auto’s in een stad tegelijk de weg op’](https://www.ad.nl/economie/iea-waarschuwt-voor-energiecrisis-door-oorlog-en-komt-met-advies-niet-alle-autos-in-een-stad-tegelijk-de-weg-op~a04d9f81/)
-  > De oorlog in het Midden-Oosten veroorzaakt een grote energiecrisis, waarschuwt het Internationaal Energieagentschap (IEA). Zolang de oorlog aanhoudt,...
+- [Jongen (13) gedumpt op vakantiepark zonder begeleiding, rechter vernietigend over jeugdbescherming](https://www.ad.nl/binnenland/jongen-13-gedumpt-op-vakantiepark-zonder-begeleiding-rechter-vernietigend-over-jeugdbescherming~a67e6ae8/)
+  > Een 13-jarige jongen die ernstige strafbare feiten pleegde, is door de jeugdbescherming in een vakantiehuisje geplaatst zonder passende begeleiding....
+- [Brand in olieraffinaderij Koeweit na nieuwe golf droneaanvallen Iran op Golfstaten](https://www.ad.nl/buitenland/brand-in-olieraffinaderij-koeweit-na-nieuwe-golf-droneaanvallen-iran-op-golfstaten~ac528ac3/)
+  > Iran heeft zijn vergeldingsaanvallen op de Golfstaten in de nacht van donderdag op vrijdag voortgezet. Onder meer de Verenigde Arabische Emiraten,...
+- [De transformatie van wereldkampioen Jessica Schilder: ‘Het stemmetje dat zegt ‘dit kan ik niet’, is bijna weg’](https://www.ad.nl/andere-sporten/de-transformatie-van-wereldkampioen-jessica-schilder-het-stemmetje-dat-zegt-dit-kan-ik-niet-is-bijna-weg~a59f5cfbf/)
+  > Het stemmetje in het hoofd van kogelstootster Jessica Schilder (26) zei vroeger: dit kan ik niet. Sinds haar wereldtitel afgelopen zomer zegt dat...
+- [Martine Sandifort verwijdert filmpjes met ‘Thaise typering’ en zegt sorry](https://www.ad.nl/show/martine-sandifort-verwijdert-filmpjes-met-thaise-typering-en-zegt-sorry~afd1f0b14/)
+  > Cabaretier Martine Sandifort heeft haar excuses aangeboden aan „de Aziatische gemeenschap, voor de manier waarop ik mij heb uitgelaten, in het...
+- [Trend met speakers op elektrische auto's zorgt voor verbazing: 'Gaat de verkeerde kant op'](https://www.ad.nl/binnenland/trend-met-speakers-op-elektrische-auto-s-zorgt-voor-verbazing-gaat-de-verkeerde-kant-op~a03d8a74/)
+  > Wie dacht dat elektrische auto’s minder lawaai maken, kan weleens bedrogen uitkomen. Steeds meer wagens met een elektromotor zijn uitgerust met...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Live: Grote banken verwachten snelle renteverhoging ECB](https://fd.nl/financiele-markten/1590153/live-gemengde-beurzen-in-azie-na-sussende-woorden-netanyahu-en-trump)
+- [De verborgen kosten van dat vreemde linkse imago van natuurbescherming](https://fd.nl/opinie/1589885/de-verborgen-kosten-van-dat-vreemde-linkse-imago-van-natuurbescherming)
+  > Natuurbeschermers worstelen met een gebrek aan financiering, omdat Nederland in 2010 overstapte op een beleid van ad-hoc subsidies. Terwijl...
+- [IEA: werk vanuit huis en ga vaker met het ov](https://fd.nl/economie/1590154/iea-werk-vanuit-huis-en-ga-vaker-met-het-ov)
+  > Het vrijdag uitgebrachte rapport bevat noodmaatregelen om huishoudens en bedrijven aan de vraagkant te beschermen tegen de olieschok en de druk op...
+- [Zelfgebrouwen drankjes, bijzondere eierdoppen en geuren met musk](https://fd.nl/samenleving/1589923/zelfgebrouwen-drankjes-bijzondere-eierdoppen-en-geuren-met-musk)
+  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
+- [Unilever bevestigt bod specerijenmaker McCormick op voedingsdivisie](https://fd.nl/bedrijfsleven/1590220/unilever-in-gesprek-over-combineren-van-voedingstak-met-specerijenmaker-mccormick)
+  > Volgens het Britse concern is er geen garantie dat een overeenkomst zal worden bereikt, zo meldt het na een bericht in The Wall Street Journal....
+- [Live: Magnum grootste daler in hogere AEX](https://fd.nl/financiele-markten/1590153/live-gemengde-beurzen-in-azie-na-sussende-woorden-netanyahu-en-trump)
   > De AEX start maandag in een nieuwe samenstelling. Daarnaast is het optie-expiratiedag. Dat zou kunnen leiden tot flinke koersbewegingen aan het...
-- [In elk huis een totempaal](https://fd.nl/samenleving/1589998/in-elk-huis-een-totempaal)
-  > Als high-end kunstobject of gewoon als kaars of kaarsenstandaard: de totempaal in huis is immens populair. Waar komt die trend vandaan?
-- [Brussel geeft lidstaten meer armslag om energieprijzen te drukken](https://fd.nl/politiek/1590152/brussel-geeft-lidstaten-meer-armslag-om-energieprijzen-te-drukken)
-  > Op de EU-top in Brussel kwam het emissiehandelssysteem niet in het gedrang, maar er wordt wel aan gesleuteld. Spanningen rond Hongarije overschaduwde...
-- [Hoe Elon Musk de wereld verslaafd maakte aan Elon Musk](https://fd.nl/bedrijfsleven/1589993/hoe-elon-musk-de-wereld-verslaafd-maakte-aan-elon-musk)
-  > De Tesla-ceo is het boegbeeld van een nieuwe economische orde waarin techreuzen onmisbaar zijn voor de staat. Historicus Quinn Slobodian en...
-- [Jan wil per se de aandelen die Jos erfde, maar Jos vindt dat Jan daar dan véél meer voor moet betalen](https://fd.nl/samenleving/1589581/jan-wil-per-se-de-aandelen-die-jos-erfde-maar-jos-vindt-dat-jan-daar-dan-veel-meer-voor-moet-betalen)
-  > Twee mannen vechten al vier jaar over de afwikkeling van een vastgoedbedrijf. De rechter verzucht: ‘Ik zie gebeuren dat u vaste klant bij ons wordt.’
 
 ### Meest gelezen
 
