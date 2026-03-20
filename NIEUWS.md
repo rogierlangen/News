@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-03-2026 om 15:49*
+*Laatst bijgewerkt: 20-03-2026 om 16:51*
 
 ---
 
@@ -8,18 +8,17 @@
 
 ### Laatste nieuws
 
+- [Aanhouding voor mishandeling JA21-fractievoorzitter in Amsterdam](https://nos.nl/l/2607113)
+  > De Amsterdamse politie heeft een verdachte aangehouden voor de mishandeling van Kevin Kreuger, afzwaaiend fractievoorzitter van JA21 in de hoofdstad....
+- [Premier Jetten vraagt De Vos om afstand te nemen van antisemitisme bij FVD](https://nos.nl/l/2607110)
+  > Premier Jetten vindt dat partijleider Lidewij de Vos van Forum voor Democratie (FVD) afstand moet nemen van antisemitische opvattingen van lokale...
+- [Podcast De Stemming: flitspalen, een gereedschapskist en een bosje tulpen](https://nos.nl/l/2607106)
+  > In podcast De Stemming alles over de winnaars en verliezers bij de gemeenteraadsverkiezingen. Het leek haast alsof iedereen winnaar was, als je zag...
 - [Neergeschoten Iraniër vierde dood ayatollah Khamenei op sociale media](https://nos.nl/l/2607099)
   > De man van Iraanse afkomst die gisteren werd neergeschoten in Schoonhoven, bedankte de Amerikaanse president Trump op sociale media voor het doden...
 - [Grote rookwolk boven Amsterdam door brandende scooters](https://nos.nl/l/2607098)
-  > In Amsterdam woedt een grote brand op een industrieterrein aan de westkant van de stad. Daardoor trekt een grote rookwolk over de hoofdstad.
+  > In Amsterdam woedt brand op een industrieterrein aan de westkant van de stad. Daardoor trok vanmiddag een grote rookwolk over de hoofdstad.
        ...
-- [Frankrijk onderschept olietanker Russische schaduwvloot](https://nos.nl/l/2607094)
-  > De Franse marine is aan boord gegaan van een schip van de Russische schaduwvloot. De olietanker Deyna werd op de Middellandse Zee onderschept, zegt...
-- [Mannen ontkennen betrokkenheid bij MDMA die treinschoonmaker fataal werd](https://nos.nl/l/2607093)
-  > De twee mannen die worden verdacht van betrokkenheid bij de dood van een 49-jarige treinschoonmaker ontkennen alle betrokkenheid. Dat blijkt uit een...
-- [Acteur Chuck Norris (86) overleden, bekend van Walker, Texas Ranger](https://nos.nl/l/2607092)
-  > De Amerikaanse acteur Chuck Norris is op 86-jarige leeftijd overleden. Volgens zijn familie overleed hij donderdagochtend in Hawaï.
-        Norris is...
 
 ### Meest gelezen
 
@@ -29,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Smartphone, tv of stofzuiger stuk? Reparatie wordt straks makkelijker en goedkoper door wetswijziging](https://www.ad.nl/politiek/smartphone-tv-of-stofzuiger-stuk-reparatie-wordt-straks-makkelijker-en-goedkoper-door-wetswijziging~a59c319b/)
-  > Het laten repareren van elektrische producten zoals tv’s, wasmachines, smartphones of e-bikes moet binnenkort een stuk makkelijker en betaalbaarder...
-- [Mathieu van der Poel gaat voor derde zege in Milaan-San Remo: ‘De wind kan een cruciale rol spelen’](https://www.ad.nl/wielrennen/mathieu-van-der-poel-gaat-voor-derde-zege-in-milaan-san-remo-de-wind-kan-een-cruciale-rol-spelen~a319d5d5/)
-  > Hij won Milaan-San Remo, het eerste wielermonument van het jaar, al in 2023 en 2025. Deze editie hoopt Mathieu van der Poel zijn titel in La...
-- [Kwetsbare jongen (13) in vakantiehuisje door ‘crisissituatie’: ‘Hij was vertrouwd met zorgaanbieder’](https://www.ad.nl/binnenland/kwetsbare-jongen-13-in-vakantiehuisje-door-crisissituatie-hij-was-vertrouwd-met-zorgaanbieder~a8982ed6/)
-  > De jeugdprofessionals die een 13-jarige kwetsbare jongen zonder passende begeleiding in een vakantiehuisje hadden geplaatst, deden dat in ‘een...
-- [De eerste keuzes van Ronald Koeman in een WK-jaar: dit valt allemaal op in de selectie van Oranje](https://www.ad.nl/voetbal/de-eerste-keuzes-van-ronald-koeman-in-een-wk-jaar-dit-valt-allemaal-op-in-de-selectie-van-oranje~a0988cce/)
-  > De eerste Oranjeselectie van 2026 is bekend. Wat valt op per linie in de keuzes die bondscoach Ronald Koeman – soms noodgedwongen – heeft gemaakt?...
-- [Jonathan Wheatley per direct weg als teambaas van Audi, voormalig Ferrari-man Mattia Binotto neemt taken over](https://www.ad.nl/formule-1/jonathan-wheatley-per-direct-weg-als-teambaas-van-audi-voormalig-ferrari-man-mattia-binotto-neemt-taken-over~a9514ebc/)
-  > Audi heeft bekendgemaakt dat teambaas Jonathan Wheatley per direct vertrekt. Voormalig Ferrari-teambaas Mattia Binotto, die CEO is van het Formule...
+- [Massale lof voor manier waarop Rick vrouw afwijst bij First Dates: ‘Zo kan het dus ook’](https://www.ad.nl/show/massale-lof-voor-manier-waarop-rick-vrouw-afwijst-bij-first-dates-zo-kan-het-dus-ook~a4ca89bd/)
+  > Een deelnemer van First Dates krijgt veel lof voor de manier waarop hij een vrouw heeft afgewezen. De NPO 3-show kwam de afgelopen tijd vooral in het...
+- [Vergeten ventilator verstoort dartspartij: Nederlander laat wedstrijd om opmerkelijke reden stilleggen](https://www.ad.nl/darts/vergeten-ventilator-verstoort-dartspartij-nederlander-laat-wedstrijd-om-opmerkelijke-reden-stilleggen~a10bdeb0/)
+  > Een partij op de Belgian Darts Open is om een opmerkelijke reden stilgelegd. Darter Niels Zonneveld voelde een windvlaag op het podium. Wat bleek?...
+- [Democratie betekent ook dat je een geluid accepteert dat breekt met traditie van tolerantie](https://www.ad.nl/binnenland/democratie-betekent-ook-dat-je-een-geluid-accepteert-dat-breekt-met-traditie-van-tolerantie~adf76382/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [Buurt rouwt om meisje (4) dat vermoedelijk door tragisch ongeval om het leven kwam](https://www.ad.nl/delft/buurt-rouwt-om-meisje-4-dat-vermoedelijk-door-tragisch-ongeval-om-het-leven-kwam~a65c07c5/)
+  > Na het dodelijk ongeval met een bus hangt een dag later een verdrietige stilte aan de Van der Leeplaats in Delft. Het slachtoffer is volgens...
+- [Dylan Groenewegen sprint naar tweede zege in shirt van Unibet Rose Rockets](https://www.ad.nl/wielrennen/dylan-groenewegen-sprint-naar-tweede-zege-in-shirt-van-unibet-rose-rockets~ad98da71/)
+  > Wielrenner Dylan Groenewegen heeft in België de Bredene Koksijde Classic gewonnen. In een uitgedunde groep was de renner van Unibet Rose Rockets in...
 
 ### Meest gelezen
 
@@ -48,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Bij Avantium is ‘als’ het sleutelwoord](https://fd.nl/financiele-markten/1590175/bij-avantium-is-als-het-sleutelwoord)
-  > De accountant noemt het in het jaarverslag over 2025 cruciaal voor de toekomst van Avantium dat de fabriek dit jaar gaat draaien.
-- [Prijzen vliegtickets gaan omhoog, maar het ergste kan nog komen](https://fd.nl/bedrijfsleven/1590237/prijzen-vliegtickets-gaan-omhoog-maar-het-ergste-kan-nog-komen)
-  > De eerste luchtvaartmaatschappijen verhogen de prijzen vanwege de gestegen kerosineprijzen. Ook nemen de zorgen over de brandstoftoevoer toe.
-- [Poolse populisten flirten met ‘Polexit’](https://fd.nl/politiek/1590238/poolse-populisten-flirten-met-polexit)
-  > In hun strijd om de gunst van de nationalistische kiezer, scherpen Poolse politici hun eurosceptische retoriek aan. Daarbij sluipt de term ‘Polexit’...
-- [De bijna-ondergang van de Amsterdamse binnenstad](https://fd.nl/samenleving/1589937/de-bijna-ondergang-van-de-amsterdamse-binnenstad)
-  > Een toevallige historische wending heeft de Amsterdamse binnenstad gered van drastische sloopplannen. Dankzij twee wereldoorlogen bleef de unieke...
-- [Democraten onderzoeken licentiedeal tussen Nvidia en AI-start-up Groq](https://fd.nl/bedrijfsleven/1590276/democraten-onderzoeken-licentiedeal-tussen-nvidia-en-ai-start-up-groq)
-  > Onderzoek richt zich op de vraag of de deal de antitrustwetgeving schendt door onrechtmatig een fusiebeoordeling te omzeilen.
+- [Herstel van beschadigde gasinstallatie Shell in Qatar kost een jaar](https://fd.nl/bedrijfsleven/1590246/herstel-van-beschadigde-gasinstallatie-shell-in-qatar-kost-een-jaar)
+  > Een van de twee productie-eenheden is beschadigd. Herstel gaat ongeveer een jaar duren.
+- [Inflatiebestrijding door centrale banken in tijden van energieschokken ‘zeer ongewis’](https://fd.nl/financiele-markten/1590235/inflatiebestrijding-door-centrale-banken-in-tijden-van-energieschokken-zeer-ongewis)
+  > Terwijl president Christine Lagarde van de ECB ferm belooft de inflatie te zullen bestrijden, valt de werkelijke invloed van centrale banken op...
+- [Pechgeneratie krijgt ruim €2000 extra compensatie](https://fd.nl/politiek/1590243/pechgeneratie-krijgt-ruim-2000-extra-compensatie)
+  > Studenten die tussen 2015 en 2023 onder het leenstelsel vielen, krijgen in een tweede compensatieronde maximaal €2136 uitgekeerd.
+- [EU boekt goederenhandelstekort van €5,9 mrd in januari](https://fd.nl/economie/1590242/eu-boekt-goederenhandelstekort-van-5-9-mrd-in-januari)
+  > In januari boekte de EU een handelstekort in goederen ter waarde van €5,9 mrd. De Europese export richting de Verenigde Staten nam bovendien fors af.
+- [Kabinet reserveert €1,7 mrd voor herindeling Noordzee](https://fd.nl/bedrijfsleven/1590278/kabinet-reserveert-1-7-mrd-voor-herindeling-noordzee)
+  > Het geld wordt gebruikt om de scheepvaartveiligheid te borgen en om de omstandigheden voor windenergie-locaties te onderzoeken.
 
 ### Meest gelezen
 
