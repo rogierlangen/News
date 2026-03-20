@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-03-2026 om 16:51*
+*Laatst bijgewerkt: 20-03-2026 om 17:38*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Celstraf geëist tegen man die deed alsof hij ambulancebroeder en agent was](https://nos.nl/l/2607116)
+  > Het Openbaar Ministerie heeft tegen een 22-jarige man uit Groningen een celstraf van vijftien maanden, waarvan acht voorwaardelijk, geëist omdat hij...
+- [Gevangene die ontsnapte uit ziekenhuis Utrecht aangehouden](https://nos.nl/l/2607114)
+  > De gedetineerde die vanochtend ontsnapte uit het Utrechtse Diakonessenhuis is opgepakt. De politie zocht "met man en macht" naar de man, die...
 - [Aanhouding voor mishandeling JA21-fractievoorzitter in Amsterdam](https://nos.nl/l/2607113)
   > De Amsterdamse politie heeft een verdachte aangehouden voor de mishandeling van Kevin Kreuger, afzwaaiend fractievoorzitter van JA21 in de hoofdstad....
 - [Premier Jetten vraagt De Vos om afstand te nemen van antisemitisme bij FVD](https://nos.nl/l/2607110)
   > Premier Jetten vindt dat partijleider Lidewij de Vos van Forum voor Democratie (FVD) afstand moet nemen van antisemitische opvattingen van lokale...
 - [Podcast De Stemming: flitspalen, een gereedschapskist en een bosje tulpen](https://nos.nl/l/2607106)
   > In podcast De Stemming alles over de winnaars en verliezers bij de gemeenteraadsverkiezingen. Het leek haast alsof iedereen winnaar was, als je zag...
-- [Neergeschoten Iraniër vierde dood ayatollah Khamenei op sociale media](https://nos.nl/l/2607099)
-  > De man van Iraanse afkomst die gisteren werd neergeschoten in Schoonhoven, bedankte de Amerikaanse president Trump op sociale media voor het doden...
-- [Grote rookwolk boven Amsterdam door brandende scooters](https://nos.nl/l/2607098)
-  > In Amsterdam woedt brand op een industrieterrein aan de westkant van de stad. Daardoor trok vanmiddag een grote rookwolk over de hoofdstad.
-       ...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Massale lof voor manier waarop Rick vrouw afwijst bij First Dates: ‘Zo kan het dus ook’](https://www.ad.nl/show/massale-lof-voor-manier-waarop-rick-vrouw-afwijst-bij-first-dates-zo-kan-het-dus-ook~a4ca89bd/)
-  > Een deelnemer van First Dates krijgt veel lof voor de manier waarop hij een vrouw heeft afgewezen. De NPO 3-show kwam de afgelopen tijd vooral in het...
-- [Vergeten ventilator verstoort dartspartij: Nederlander laat wedstrijd om opmerkelijke reden stilleggen](https://www.ad.nl/darts/vergeten-ventilator-verstoort-dartspartij-nederlander-laat-wedstrijd-om-opmerkelijke-reden-stilleggen~a10bdeb0/)
-  > Een partij op de Belgian Darts Open is om een opmerkelijke reden stilgelegd. Darter Niels Zonneveld voelde een windvlaag op het podium. Wat bleek?...
-- [Democratie betekent ook dat je een geluid accepteert dat breekt met traditie van tolerantie](https://www.ad.nl/binnenland/democratie-betekent-ook-dat-je-een-geluid-accepteert-dat-breekt-met-traditie-van-tolerantie~adf76382/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Buurt rouwt om meisje (4) dat vermoedelijk door tragisch ongeval om het leven kwam](https://www.ad.nl/delft/buurt-rouwt-om-meisje-4-dat-vermoedelijk-door-tragisch-ongeval-om-het-leven-kwam~a65c07c5/)
-  > Na het dodelijk ongeval met een bus hangt een dag later een verdrietige stilte aan de Van der Leeplaats in Delft. Het slachtoffer is volgens...
-- [Dylan Groenewegen sprint naar tweede zege in shirt van Unibet Rose Rockets](https://www.ad.nl/wielrennen/dylan-groenewegen-sprint-naar-tweede-zege-in-shirt-van-unibet-rose-rockets~ad98da71/)
-  > Wielrenner Dylan Groenewegen heeft in België de Bredene Koksijde Classic gewonnen. In een uitgedunde groep was de renner van Unibet Rose Rockets in...
+- [Gebruik tank-apps explodeert: Nederlanders massaal op zoek naar voordeligste benzinepomp](https://www.ad.nl/binnenland/gebruik-tank-apps-explodeert-nederlanders-massaal-op-zoek-naar-voordeligste-benzinepomp~a07b6a5f/)
+  > Nederlanders zoeken massaal naar de goedkoopste tankstations nu de prijzen door het conflict rond Iran hard zijn opgelopen. Apps die tankprijzen...
+- [Marianne Vos slaat Milaan-San Remo over, renster van Visma kiest voor zieke vader](https://www.ad.nl/wielrennen/marianne-vos-slaat-milaan-san-remo-over-renster-van-visma-kiest-voor-zieke-vader~aa8848984/)
+  > Marianne Vos gaat zaterdag niet van start in Milaan-San Remo. Dat meldt haar ploeg Visma - Lease a Bike op X. Vos is naar huis gegaan vanwege de...
+- [Medaillekans voor Nederland: Schilder en Van Klinken in finale kogelstoten](https://www.ad.nl/andere-sporten/medaillekans-voor-nederland-schilder-en-van-klinken-in-finale-kogelstoten~a08cb613/)
+  > Het is dag één van de WK indoor atletiek in Polen. Jessica Schilder en Jorinde van Klinken maken direct kans op een medaille in het kogelstoten....
+- [Wordt I Swear wellicht de Rain Man voor het Tourette-syndroom?](https://www.ad.nl/film/wordt-i-swear-wellicht-de-rain-man-voor-het-tourette-syndroom~a9b2eef0/)
+  > Gaat de Engelse speelfilm I Swear, over een patiënt die lijdt aan het syndroom van Gilles de la Tourette, dezelfde impact hebben als destijds Rain...
+- [‘Heel snel naar huis’, bromt Max... om een week later glimlachend in een GT3 te stappen: dit is zijn échte passie](https://www.ad.nl/formule-1/heel-snel-naar-huis-bromt-max-om-een-week-later-glimlachend-in-een-gt3-te-stappen-dit-is-zijn-echte-passie~a87bc389/)
+  > Dat Max Verstappen het in de Formule 1 niet naar zijn zin heeft, is inmiddels wel duidelijk. Waar hij nog wél gelukkig van wordt? Nou, van dit...
 
 ### Meest gelezen
 
