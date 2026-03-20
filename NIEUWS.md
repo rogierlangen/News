@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-03-2026 om 21:34*
+*Laatst bijgewerkt: 20-03-2026 om 22:33*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Twee doden door explosie van zelfgemaakte bom in Rome](https://nos.nl/l/2607161)
+  > Bij een explosie in het zuidoosten van Rome zijn twee mensen om het leven gekomen. Volgens de Italiaanse autoriteiten is dat gebeurd bij het maken...
+- [Crisis op Cuba groter dan ooit, 'nieuwe vonk kan tot revolutie leiden'](https://nos.nl/l/2607159)
+  > Op Cuba is behoefte aan alles. Er is weinig eten, de stroom valt voortdurend uit, medicijnen zijn niet te vinden en het brandstoftekort wordt met de...
 - [Man (60) krijgt cel en tbs voor verkrachting van 32 jaar geleden](https://nos.nl/l/2607147)
   > De rechtbank heeft een 60-jarige man uit Heerlen veroordeeld tot vier jaar cel en tbs met dwangverpleging voor het verkrachten van een vrouw in...
 - [Chipmakers kunnen in België 'oefenen' met nieuwste en duurste ASML-machine](https://nos.nl/l/2607135)
   > De grootste en duurste machine die het Brabantse bedrijf ASML ooit heeft gemaakt, staat later dit jaar in het laboratorium van het Belgische...
 - [Celstraf geëist tegen man die deed alsof hij ambulancebroeder en agent was](https://nos.nl/l/2607116)
   > Het Openbaar Ministerie heeft tegen een 22-jarige man uit Groningen een celstraf van vijftien maanden, waarvan acht voorwaardelijk, geëist omdat hij...
-- [Gevangene die ontsnapte uit ziekenhuis Utrecht aangehouden](https://nos.nl/l/2607114)
-  > De gedetineerde die vanochtend ontsnapte uit het Utrechtse Diakonessenhuis is opgepakt. De politie zocht "met man en macht" naar de man, die...
-- [Aanhouding voor mishandeling JA21-fractievoorzitter in Amsterdam](https://nos.nl/l/2607113)
-  > De Amsterdamse politie heeft een verdachte aangehouden voor de mishandeling van Kevin Kreuger, afzwaaiend fractievoorzitter van JA21 in de hoofdstad....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Test Audi Q5 e-Hybrid: het beste van twee werelden](https://www.ad.nl/auto/test-audi-q5-e-hybrid-het-beste-van-twee-werelden~a8f14203/)
-  > De nieuwe Audi Q5 kan als plug-inhybride 100 km lang elektrisch rijden. Daarmee komt de Nederlandse automobilist voor zijn dagelijkse ritten een heel...
-- [‘Groene tuinman’ waarschuwt voor vroege warmte: ‘April kan zomaar nog nachtvorst geven’](https://www.ad.nl/binnenland/groene-tuinman-waarschuwt-voor-vroege-warmte-april-kan-zomaar-nog-nachtvorst-geven~a6369629/)
-  > De zeer zonnige start van het meteorologisch voorjaar op vrijdag mag dan ideaal zijn voor de tuin en voor mensen op het terras, toch is die vroege...
-- [Manchester United keert wedstrijd binnen vijf minuten toch weer om tegen Bournemouth](https://www.ad.nl/voetbal/manchester-united-keert-wedstrijd-binnen-vijf-minuten-toch-weer-om-tegen-bournemouth~a0d32c9c/)
-  > Manchester United moest het dit seizoen doen zonder Europees voetbal, maar daar lijkt verandering in te gaan komen. United is onder trainer Michael...
-- [Chaos en spektakel: Cambuur verliest thuis van Jong AZ, wedstrijd twee keer stilgelegd](https://www.ad.nl/voetbal/chaos-en-spektakel-cambuur-verliest-thuis-van-jong-az-wedstrijd-twee-keer-stilgelegd~a050b5c9/)
+- [Nicola Peltz: Mijn ouders zien Brooklyn Beckham als zoon](https://www.ad.nl/show/nicola-peltz-mijn-ouders-zien-brooklyn-beckham-als-zoon~aa1d014c/)
+  > Nicola Peltz heeft in een interview met Elle gezegd dat haar ouders haar man Brooklyn Beckham als een zoon beschouwen. De uitspraak wordt door...
+- [Henk de Jong over Friese scheidsrechter: ‘Een prima vent, maar hij zou hier nooit mogen fluiten’](https://www.ad.nl/voetbal/henk-de-jong-over-friese-scheidsrechter-een-prima-vent-maar-hij-zou-hier-nooit-mogen-fluiten~aa06f7f1/)
+  > Henk de Jong heeft na de spectaculaire wedstrijd tussen SC Cambuur en Jong AZ (3-4) uitgehaald naar scheidsrechter Wouter Wiersma uit het Friese...
+- [Manchester United morst dure punten bij Bournemouth: vier doelpunten in 20 minuten en rood voor Maguire](https://www.ad.nl/voetbal/manchester-united-morst-dure-punten-bij-bournemouth-vier-doelpunten-in-20-minuten-en-rood-voor-maguire~a0d32c9c/)
+  > Manchester United heeft belangrijke punten verspeeld op bezoek bij Bournemouth. Na een knotsgekke tweede helft kwam het tiental van United niet...
+- [Onderzoek VS naar drugsbanden Colombiaanse president, ontmoetingen met handelaren en gekregen donaties](https://www.ad.nl/buitenland/onderzoek-vs-naar-drugsbanden-colombiaanse-president-ontmoetingen-met-handelaren-en-gekregen-donaties~a172d91c/)
+  > De Colombiaanse president Gustavo Petro komt voor in twee Amerikaanse strafrechtelijke onderzoeken, melden bronnen aan persbureau Reuters en The New...
+- [Chaos, spektakel en woede: Cambuur verliest thuis van Jong AZ en moet feest nog even uitstellen](https://www.ad.nl/voetbal/chaos-spektakel-en-woede-cambuur-verliest-thuis-van-jong-az-en-moet-feest-nog-even-uitstellen~a050b5c9/)
   > Nog geen promotiefeest in Leeuwarden dit weekend, want nummer twee SC Cambuur verloor vrijdagavond verrassend met 3-4 van laagvlieger Jong AZ. Ichem...
-- [Hekkensluiter Heracles Almelo schiet weinig op met gelijkspel tegen Excelsior en moet vrezen](https://www.ad.nl/voetbal/hekkensluiter-heracles-almelo-schiet-weinig-op-met-gelijkspel-tegen-excelsior-en-moet-vrezen~aace5fed/)
-  > Het zijn de weekenden van de waarheid voor Heracles. Kan de hekkensluiter van de eredivisie degradatie ontlopen? Volg het in ons liveblog.
 
 ### Meest gelezen
 
