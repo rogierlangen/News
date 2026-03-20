@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-03-2026 om 17:38*
+*Laatst bijgewerkt: 20-03-2026 om 18:56*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Gebruik tank-apps explodeert: Nederlanders massaal op zoek naar voordeligste benzinepomp](https://www.ad.nl/binnenland/gebruik-tank-apps-explodeert-nederlanders-massaal-op-zoek-naar-voordeligste-benzinepomp~a07b6a5f/)
-  > Nederlanders zoeken massaal naar de goedkoopste tankstations nu de prijzen door het conflict rond Iran hard zijn opgelopen. Apps die tankprijzen...
-- [Marianne Vos slaat Milaan-San Remo over, renster van Visma kiest voor zieke vader](https://www.ad.nl/wielrennen/marianne-vos-slaat-milaan-san-remo-over-renster-van-visma-kiest-voor-zieke-vader~aa8848984/)
-  > Marianne Vos gaat zaterdag niet van start in Milaan-San Remo. Dat meldt haar ploeg Visma - Lease a Bike op X. Vos is naar huis gegaan vanwege de...
-- [Medaillekans voor Nederland: Schilder en Van Klinken in finale kogelstoten](https://www.ad.nl/andere-sporten/medaillekans-voor-nederland-schilder-en-van-klinken-in-finale-kogelstoten~a08cb613/)
-  > Het is dag één van de WK indoor atletiek in Polen. Jessica Schilder en Jorinde van Klinken maken direct kans op een medaille in het kogelstoten....
-- [Wordt I Swear wellicht de Rain Man voor het Tourette-syndroom?](https://www.ad.nl/film/wordt-i-swear-wellicht-de-rain-man-voor-het-tourette-syndroom~a9b2eef0/)
-  > Gaat de Engelse speelfilm I Swear, over een patiënt die lijdt aan het syndroom van Gilles de la Tourette, dezelfde impact hebben als destijds Rain...
-- [‘Heel snel naar huis’, bromt Max... om een week later glimlachend in een GT3 te stappen: dit is zijn échte passie](https://www.ad.nl/formule-1/heel-snel-naar-huis-bromt-max-om-een-week-later-glimlachend-in-een-gt3-te-stappen-dit-is-zijn-echte-passie~a87bc389/)
-  > Dat Max Verstappen het in de Formule 1 niet naar zijn zin heeft, is inmiddels wel duidelijk. Waar hij nog wél gelukkig van wordt? Nou, van dit...
+- [John Guidetti terug in Rotterdam voor Klassieker: ‘Ik vertelde mijn zoon dat de Feyenoord-fans helemaal gek zijn’](https://www.ad.nl/voetbal/john-guidetti-terug-in-rotterdam-voor-klassieker-ik-vertelde-mijn-zoon-dat-de-feyenoord-fans-helemaal-gek-zijn~ad9ec356/)
+  > John Guidetti is even terug in Rotterdam, waar hij in het seizoen 2011/2012 de absolute publiekslieveling was. Zondag zal hij in de Kuip het publiek...
+- [Reisbedrijven druk met omboeken van meivakanties voor duizenden reizigers door oorlog in Midden-Oosten](https://www.ad.nl/binnenland/reisbedrijven-druk-met-omboeken-van-meivakanties-voor-duizenden-reizigers-door-oorlog-in-midden-oosten~a79c042a/)
+  > Reisorganisaties in Nederland zijn duizenden meivakanties aan het omboeken voor mensen die naar het Midden-Oosten wilden reizen of daar wilden...
+- [Alleen de echte nieuwsjunk maakt deze wekelijkse quiz foutloos](https://www.ad.nl/quiz/alleen-de-echte-nieuwsjunk-maakt-deze-wekelijkse-quiz-foutloos~acd20238/)
+  > Deze week steeg de olieprijs en waren de gemeenteraadsverkiezingen. Maar er gebeurde nog veel meer. Test je kennis in zeven vragen met onze...
+- [Jessica Schilder werpt 11 centimeter te kort en grijpt naast medaille op WK indoor](https://www.ad.nl/andere-sporten/jessica-schilder-werpt-11-centimeter-te-kort-en-grijpt-naast-medaille-op-wk-indoor~a08cb613/)
+  > Het is dag één van de WK indoor atletiek in Polen. Jessica Schilder eindigde naast het podium in het kogelstoten. Later komt ook Lieke Klaver in...
+- [Hekkensluiter Heracles heeft punten keihard nodig in degradatieduel met Excelsior](https://www.ad.nl/voetbal/hekkensluiter-heracles-heeft-punten-keihard-nodig-in-degradatieduel-met-excelsior~aace5fed/)
+  > Het zijn de weekenden van de waarheid voor Heracles. Kan de hekkensluiter van de eredivisie degradatie ontlopen? In Almelo wacht vanavond een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Unilever wil met afsplitsen voedingstak af van conglomeraatskorting op de beurs](https://fd.nl/bedrijfsleven/1590172/unilever-wil-met-afsplitsen-voedingstak-af-van-conglomeraatskorting-op-de-beurs)
+  > Het AEX-bedrijf praat met zijn Amerikaanse branchegenoot McCormick. Analisten speculeren al jaren over een afscheid van Unilevers voedingstak.
+- [Het succes van lokalo’s is een landelijke trend, maar vertellen ze ook hetzelfde verhaal?](https://fd.nl/politiek/1590156/het-succes-van-lokalos-is-een-landelijke-trend-maar-vertellen-ze-ook-hetzelfde-verhaal)
+  > Stembiljetten die per gemeente verschillen, 340 uiteenlopende verkiezingsuitslagen. Daaruit een duidelijk beeld schetsen is lastig. Ging het vooral...
+- [Barsten in Trumps achterban door Iran-oorlog](https://fd.nl/politiek/1590299/barsten-in-trumps-achterban-door-iranoorlog)
+  > Hoge kosten, dure benzine en te weinig focus op America First doen het verzet binnen Maga toenemen.
+- [Beleggers zijn somber, maar blijven toch zitten](https://fd.nl/financiele-markten/1590161/beleggers-zijn-somber-maar-blijven-toch-zitten)
+  > Het timen van geopolitieke gebeurtenissen is een hachelijke zaak.
 - [Herstel van beschadigde gasinstallatie Shell in Qatar kost een jaar](https://fd.nl/bedrijfsleven/1590246/herstel-van-beschadigde-gasinstallatie-shell-in-qatar-kost-een-jaar)
   > Een van de twee productie-eenheden is beschadigd. Herstel gaat ongeveer een jaar duren.
-- [Inflatiebestrijding door centrale banken in tijden van energieschokken ‘zeer ongewis’](https://fd.nl/financiele-markten/1590235/inflatiebestrijding-door-centrale-banken-in-tijden-van-energieschokken-zeer-ongewis)
-  > Terwijl president Christine Lagarde van de ECB ferm belooft de inflatie te zullen bestrijden, valt de werkelijke invloed van centrale banken op...
-- [Pechgeneratie krijgt ruim €2000 extra compensatie](https://fd.nl/politiek/1590243/pechgeneratie-krijgt-ruim-2000-extra-compensatie)
-  > Studenten die tussen 2015 en 2023 onder het leenstelsel vielen, krijgen in een tweede compensatieronde maximaal €2136 uitgekeerd.
-- [EU boekt goederenhandelstekort van €5,9 mrd in januari](https://fd.nl/economie/1590242/eu-boekt-goederenhandelstekort-van-5-9-mrd-in-januari)
-  > In januari boekte de EU een handelstekort in goederen ter waarde van €5,9 mrd. De Europese export richting de Verenigde Staten nam bovendien fors af.
-- [Kabinet reserveert €1,7 mrd voor herindeling Noordzee](https://fd.nl/bedrijfsleven/1590278/kabinet-reserveert-1-7-mrd-voor-herindeling-noordzee)
-  > Het geld wordt gebruikt om de scheepvaartveiligheid te borgen en om de omstandigheden voor windenergie-locaties te onderzoeken.
 
 ### Meest gelezen
 
