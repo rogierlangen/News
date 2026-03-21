@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-03-2026 om 08:39*
+*Laatst bijgewerkt: 21-03-2026 om 09:36*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Eerste echte test zonder Femke Bol: kan Nederland op WK indoor bewijzen dat estafette meer is dan één ster?](https://www.ad.nl/andere-sporten/eerste-echte-test-zonder-femke-bol-kan-nederland-op-wk-indoor-bewijzen-dat-estafette-meer-is-dan-een-ster~a227fa61/)
-  > De Nederlandse estafettelopers moeten het dit weekend op de WK indoor doen zonder Femke Bol. Een serieuze test. Kan Nederland zonder zijn wereldster...
-- [United Airlines schrapt vluchten om flink gestegen brandstofprijs](https://www.ad.nl/buitenland/united-airlines-schrapt-vluchten-om-flink-gestegen-brandstofprijs~a221a848/)
-  > United Airlines schrapt veel vluchten die door de flinke stijging van de brandstofprijzen onrendabel zijn geworden. Op korte termijn wil de...
-- [Van de Zandschulp kan niet stunten tegen top 10-speler en is uitgeschakeld op masterstoernooi Miami](https://www.ad.nl/sport/van-de-zandschulp-kan-niet-stunten-tegen-top-10-speler-en-is-uitgeschakeld-op-masterstoernooi-miami~a0962e4e9/)
-  > Botic van de Zandschulp is uitgeschakeld op het masterstoernooi van Miami. In drie sets was de Amerikaanse top 10-speler Taylor Fritz in de tweede...
-- [Trump sneert weer naar ‘laffe’ Navo-partners, Europese kritiek op Mark Rutte zwelt aan](https://www.ad.nl/buitenland/trump-sneert-weer-naar-laffe-navo-partners-europese-kritiek-op-mark-rutte-zwelt-aan~a52ada94/)
-  > Na opnieuw een roerige week vertoont het aura van Navo-secretaris-generaal Mark Rutte barstjes. Er is begrip voor zijn moeilijke positie, maar zijn...
-- [Alles over de Klassieker: hoe laat is de aftrap, welke spelers ontbreken en wie is de scheidsrechter?](https://www.ad.nl/voetbal/alles-over-de-klassieker-hoe-laat-is-de-aftrap-welke-spelers-ontbreken-en-wie-is-de-scheidsrechter~a937c385/)
-  > De 201ste editie van de Klassieker staat voor de deur: aartsrivalen Feyenoord en Ajax staan komende zondag tegenover elkaar in de Kuip. Welke spelers...
+- [Man uit Florida gaat viraal vanwege enorme gelijkenis met Jeffrey Epstein: ‘Ik ben het écht niet’](https://www.ad.nl/buitenland/man-uit-florida-gaat-viraal-vanwege-enorme-gelijkenis-met-jeffrey-epstein-ik-ben-het-echt-niet~a38323bf/)
+  > Leeft Jeffrey Epstein nog? Als er deze week een online video verschijnt van een man in een cabrio in Florida, is dat voer voor complotdenkers. De man...
+- [Leontine koestert bijzondere vriendschap en Enzo wordt vrolijk wakker](https://www.ad.nl/show/leontine-koestert-bijzondere-vriendschap-en-enzo-wordt-vrolijk-wakker~a90bbd70/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Geen volle tank benzine, wel appeltaart: deze keuzes maakt ons brein bij stijgende prijzen](https://www.ad.nl/geld/geen-volle-tank-benzine-wel-appeltaart-deze-keuzes-maakt-ons-brein-bij-stijgende-prijzen~a0e0f483/)
+  > Terwijl we normaal gesproken gedachteloos tanken en afrekenen, zijn we nu obsessief bezig met benzineprijzen. Door dreigende berichten over stijgende...
+- [Krijgen we weer een onvergetelijk duel tussen Mathieu van der Poel en Tadej Pogacar?](https://www.ad.nl/wielrennen/krijgen-we-weer-een-onvergetelijk-duel-tussen-mathieu-van-der-poel-en-tadej-pogacar~a62548b4/)
+  > Vandaag wordt met Milaan-San Remo het eerste monument van het seizoen gereden. Wint Mathieu van der Poel voor de derde keer of is Tadej Pogacar voor...
+- [Mark van Bommel doet in gesprek met Zlatan boekje open over vertrek bij Antwerp: ‘De eigenaar zei...’](https://www.ad.nl/voetbal/mark-van-bommel-doet-in-gesprek-met-zlatan-boekje-open-over-vertrek-bij-antwerp-de-eigenaar-zei~a7d08d9a/)
+  > Mark van Bommel maakte onlangs een citytrip naar Milaan, waar de oud-middenvelder van AC Milan onder anderen ex-ploeggenoot Zlatan Ibrahimovic sprak....
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [VS staan verkoop van deel Iraanse olie tijdelijk toe](https://fd.nl/economie/1590250/vs-staat-tijdelijk-verkoop-van-iraanse-olie-toe)
+  > De maatregel is bedoeld om de stijging van de olieprijs te dempen. Sinds het begin van de oorlog in Iran is olie zo’n 50% duurder geworden.
 - [‘Overnemen lobbyteksten bevestigt beeld dat politieke standpunten niet altijd in het publieke debat ontstaan’](https://fd.nl/opinie/1589941/overnemen-lobbyteksten-bevestigt-beeld-dat-politieke-standpunten-niet-altijd-in-het-publieke-debat-ontstaan-en-andere-lezersreacties)
   > FD-lezers reageren op lokale politieke partijen die passages overnemen van lobbyorganisaties, gemeenschappelijke regelingen, de AOW-discussie en...
 - [Waarom kan Iran de wereldeconomie gijzelen? En hoe erg is de crisis aan de pomp?](https://fd.nl/economie/1590225/waarom-kan-iran-de-wereldeconomie-gijzelen-en-hoe-erg-is-de-crisis-aan-de-pomp)
@@ -54,8 +56,6 @@
   > De Tesla-miljardair hield beleggers voor de gek, zo concludeerde een jury in San Francisco.
 - [Grok is grof en de dader ligt niet op het kerkhof](https://fd.nl/opinie/1590233/grok-is-grof-en-de-dader-ligt-niet-op-het-kerkhof)
   > Wie een beetje handig is, smurft via AI zo een programma dat AI-chatbot Grok automatisch opdrachtjes geeft tot een salvo aan beledigingen. Maar wie...
-- [Na drie weken vechten zitten we al in het zwartste scenario](https://fd.nl/politiek/1590224/na-drie-weken-vechten-zitten-we-al-in-het-zwartste-scenario)
-  > Het kabinet zou met spoed moeten nadenken over manieren om de energievraag per direct te verminderen, schrijft FD-columnist Mathijs Bouman.
 
 ### Meest gelezen
 
