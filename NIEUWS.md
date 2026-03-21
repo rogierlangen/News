@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-03-2026 om 20:32*
+*Laatst bijgewerkt: 21-03-2026 om 21:29*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Senaat VS blokkeert wet die transgender sporters moest weren uit vrouwensport](https://nos.nl/l/2607285)
+  > Transgender vrouwen in de Verenigde Staten kunnen blijven deelnemen aan sportwedstrijden voor vrouwen. Een wetsvoorstel dat dat moest verbieden...
 - [Britten met dubbele nationaliteit in buitenland gestrand door 'paspoorthel'](https://nos.nl/l/2607277)
   > De Brexit is meer dan zes jaar geleden, maar voor EU-burgers met de Britse nationaliteit zijn er opeens weer nieuwe problemen. Vanwege nieuwe...
 - [FBI-directeur die Russische inmenging vaststelde overleden, Trump reageert verheugd](https://nos.nl/l/2607271)
@@ -16,8 +18,6 @@
   > Krijgt de EU er weer een rechts-populistische en eurosceptische premier bij? Dat besluiten de Slovenen, als ze morgen naar de stembus gaan voor de...
 - [Energiepaniek in Azië: hoe landen worden geraakt door oorlog in het Midden-Oosten](https://nos.nl/l/2607258)
   > Door aanvallen op de energiesector in en rond de Perzische Golf stijgen de energieprijzen wereldwijd snel. De gevolgen zijn overal voelbaar, maar...
-- [Mensenmassa op de been in Praag tegen regering van populist Babis](https://nos.nl/l/2607256)
-  > In de Tsjechische hoofdstad Praag hebben tienduizenden mensen gedemonstreerd tegen de regering van premier Babis. Ze beschuldigen Babis en zijn...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [NAC valt weer helemaal in duigen: PEC Zwolle scoort twee keer in twee minuten](https://www.ad.nl/voetbal/nac-valt-weer-helemaal-in-duigen-pec-zwolle-scoort-twee-keer-in-twee-minuten~a590242f/)
+- [Deze keer zonder wereldrecord: Armand Duplantis wint vierde wereldtitel indoor op rij](https://www.ad.nl/andere-sporten/deze-keer-zonder-wereldrecord-armand-duplantis-wint-vierde-wereldtitel-indoor-op-rij~aade5b7f/)
+  > De Zweed Armand Duplantis heeft op de WK indooratletiek in het Poolse Torun voor de vierde keer op rij het goud gepakt bij het polsstokhoogspringen....
+- [Nadine Visser en estafetteploegen gaan voor medaille: bekijk hier het programma van de WK indoor](https://www.ad.nl/andere-sporten/nadine-visser-en-estafetteploegen-gaan-voor-medaille-bekijk-hier-het-programma-van-de-wk-indoor~a5dacc76/)
+  > Op de slotdag komen er nog genoeg Nederlanders in actie bij de WK indoor in Polen, onder wie Lieke Klaver, Samuel Chapple en Nadine Visser. Bekijk...
+- [NAC maakt vanuit het niets de aansluitingstreffer en mag weer hopen op een resultaat op bezoek bij PEC](https://www.ad.nl/voetbal/nac-maakt-vanuit-het-niets-de-aansluitingstreffer-en-mag-weer-hopen-op-een-resultaat-op-bezoek-bij-pec~a590242f/)
   > NAC verloor vorige week met grote cijfers (6-0) van Go Ahead Eagles en kreeg op die manier een nieuwe knauw in strijd tegen degradatie uit de...
+- [Studenten niet onder de indruk van klopjacht op gewapende crimineel: ‘Ging ervan uit dat hij zich schuilhield’](https://www.ad.nl/utrecht/studenten-niet-onder-de-indruk-van-klopjacht-op-gewapende-crimineel-ging-ervan-uit-dat-hij-zich-schuilhield~aa28a627/)
+  > Enigszins beduusd staan de Utrechtse studenten vrijdag voor hun flats te kijken naar het tafereel: een met lint afgesloten gebied, sporen van kogels...
 - [Burnley dieper in degradatiezorgren ondanks goal Flemming, Chelsea verliest met Hato kansloos van Everton](https://www.ad.nl/voetbal/burnley-dieper-in-degradatiezorgren-ondanks-goal-flemming-chelsea-verliest-met-hato-kansloos-van-everton~a821d5e3/)
   > Burnley staat momenteel negentiende in de Premier League en moet negen punten goed maken ten opzichte van de nummer zeventien, degradatie lijkt dus...
-- [Crisis komt Jetten stiekem best goed uit](https://www.ad.nl/politiek/crisis-komt-jetten-stiekem-best-goed-uit~a31d9651/)
-  > De oppositie stribbelt nu nog tegen bij bezuinigingen in de zorg en op werklozen. Toch denkt het kabinet steun te krijgen voor de gehate ingrepen: de...
-- [Lieke Klaver sprint naar brons op 400 meter, polsstokhoogspringer Menno Vloon naast podium](https://www.ad.nl/andere-sporten/lieke-klaver-sprint-naar-brons-op-400-meter-polsstokhoogspringer-menno-vloon-naast-podium~a7bc2f93/)
-  > Lieke Klaver heeft op de WK indoor een bronzen medaille gepakt op de 400 meter. Ze finishte in de eerste finale als tweede, achter Natalia...
-- [Sparta kent zorgeloze avond tegen FC Volendam en doet goede zaken richting play-offs](https://www.ad.nl/voetbal/sparta-kent-zorgeloze-avond-tegen-fc-volendam-en-doet-goede-zaken-richting-play-offs~a8932052/)
-  > Sparta heeft zaterdagavond de matige serie doorbroken met een overwinning op FC Volendam (2-0). De Rotterdammers kenden een zorgeloze avond tegen de...
 
 ### Meest gelezen
 
