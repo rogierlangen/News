@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-03-2026 om 07:35*
+*Laatst bijgewerkt: 21-03-2026 om 08:39*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Podcast De Dag: hoe gaan we om met mensen met verward gedrag?](https://nos.nl/l/2607184)
+  > De druk op de zorg, de opvang en de politie door mensen met verward gedrag neemt toe. Hulporganisaties waarschuwden deze week dat de problemen ze...
 - [Wekdienst 21/3: Demonstratie tegen racisme • Max Verstappen in actie buiten de F1](https://nos.nl/l/2607180)
   > Goedemorgen! Het is 21 maart, de internationale dag tegen racisme. Dat betekent ook de jaarlijkse landelijke demonstratie tegen racisme en fascisme...
-- [Bekendste K-popgroep ter wereld maakt mega-comeback na afronden dienstplicht](https://nos.nl/l/2607179)
-  > Zuid-Korea's bekendste popgroep aller tijden, BTS, keert terug met een megaconcert in de hoofdstad Seoul. Jarenlang moesten fans het zonder hun...
+- [Bekendste K-popgroep ter wereld BTS maakt mega-comeback na afronden dienstplicht](https://nos.nl/l/2607179)
+  > BTS, Zuid-Korea's bekendste popgroep aller tijden, keert terug met een megaconcert in de hoofdstad Seoul. Jarenlang moesten fans het zonder hun...
 - [VS staat verkoop Iraanse olie toe vanwege gestegen olieprijs](https://nos.nl/l/2607178)
   > De Verenigde Staten heffen tijdelijk een deel van de sancties tegen Iran op en staan de verkoop van Iraanse olie toe. Het gaat alleen om olie die nu...
 - [Oud-premier Van Agt vroeg koning excuses te maken aan Molukkers in Nederland](https://nos.nl/l/2607177)
   > Oud-premier Dries van Agt heeft drie jaar voor zijn dood bij koning Willem-Alexander aangedrongen op excuses aan Molukkers in Nederland. Hij wilde...
-- [Overstromingen op Hawaï, duizenden mensen geëvacueerd](https://nos.nl/l/2607173)
-  > Op Hawaï zijn door langdurige regen straten en huizen overstroomd. De overheid van de eilandengroep in de Stille Oceaan waarschuwt voor de mogelijke...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Klem tussen Trump en Europa: de eenzame positie van Navo-baas Mark Rutte](https://www.ad.nl/buitenland/klem-tussen-trump-en-europa-de-eenzame-positie-van-navo-baas-mark-rutte~a52ada94/)
+- [Eerste echte test zonder Femke Bol: kan Nederland op WK indoor bewijzen dat estafette meer is dan één ster?](https://www.ad.nl/andere-sporten/eerste-echte-test-zonder-femke-bol-kan-nederland-op-wk-indoor-bewijzen-dat-estafette-meer-is-dan-een-ster~a227fa61/)
+  > De Nederlandse estafettelopers moeten het dit weekend op de WK indoor doen zonder Femke Bol. Een serieuze test. Kan Nederland zonder zijn wereldster...
+- [United Airlines schrapt vluchten om flink gestegen brandstofprijs](https://www.ad.nl/buitenland/united-airlines-schrapt-vluchten-om-flink-gestegen-brandstofprijs~a221a848/)
+  > United Airlines schrapt veel vluchten die door de flinke stijging van de brandstofprijzen onrendabel zijn geworden. Op korte termijn wil de...
+- [Van de Zandschulp kan niet stunten tegen top 10-speler en is uitgeschakeld op masterstoernooi Miami](https://www.ad.nl/sport/van-de-zandschulp-kan-niet-stunten-tegen-top-10-speler-en-is-uitgeschakeld-op-masterstoernooi-miami~a0962e4e9/)
+  > Botic van de Zandschulp is uitgeschakeld op het masterstoernooi van Miami. In drie sets was de Amerikaanse top 10-speler Taylor Fritz in de tweede...
+- [Trump sneert weer naar ‘laffe’ Navo-partners, Europese kritiek op Mark Rutte zwelt aan](https://www.ad.nl/buitenland/trump-sneert-weer-naar-laffe-navo-partners-europese-kritiek-op-mark-rutte-zwelt-aan~a52ada94/)
   > Na opnieuw een roerige week vertoont het aura van Navo-secretaris-generaal Mark Rutte barstjes. Er is begrip voor zijn moeilijke positie, maar zijn...
-- [Kenneth Taylor wil ‘voetbalteam’ aan kinderen met Jade Anna, zij is huiverig: ‘Bang dat ik geen goede moeder ben’](https://www.ad.nl/show/kenneth-taylor-wil-voetbalteam-aan-kinderen-met-jade-anna-zij-is-huiverig-bang-dat-ik-geen-goede-moeder-ben~a83306ef/)
-  > Influencer Jade Anna van Vliet (21) en SS Lazio-voetballer Kenneth Taylor (23) verschillen sterk in hun kinderwens. Hij wil graag veel kinderen,...
 - [Alles over de Klassieker: hoe laat is de aftrap, welke spelers ontbreken en wie is de scheidsrechter?](https://www.ad.nl/voetbal/alles-over-de-klassieker-hoe-laat-is-de-aftrap-welke-spelers-ontbreken-en-wie-is-de-scheidsrechter~a937c385/)
   > De 201ste editie van de Klassieker staat voor de deur: aartsrivalen Feyenoord en Ajax staan komende zondag tegenover elkaar in de Kuip. Welke spelers...
-- [Nicholas Brendon, Xander Harris uit Buffy The Vampire Slayer, op 54-jarige leeftijd overleden](https://www.ad.nl/show/nicholas-brendon-xander-harris-uit-buffy-the-vampire-slayer-op-54-jarige-leeftijd-overleden~ac76401f/)
-  > Nicholas Brendon, de Amerikaanse acteur die wereldwijde bekendheid verwierf met zijn rol als Xander Harris in de cultserie Buffy the Vampire Slayer,...
-- [1,2 kilometer aan boekenplanken: nieuwe eigenaar gezocht voor giga privé-bibliotheek in doolhof onder villa](https://www.ad.nl/binnenland/1-2-kilometer-aan-boekenplanken-nieuwe-eigenaar-gezocht-voor-giga-prive-bibliotheek-in-doolhof-onder-villa~afa9a421/)
-  > Het is een titanenklus: een nieuw thuis geven aan de circa 80.000 boeken van de Amersfoortse verzamelaar Ayolt Brongers. De ondergrondse bibliotheek...
 
 ### Meest gelezen
 
