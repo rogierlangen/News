@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-03-2026 om 18:42*
+*Laatst bijgewerkt: 21-03-2026 om 19:29*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Britten met dubbele nationaliteit in buitenland gestrand door 'paspoorthel'](https://nos.nl/l/2607277)
+  > De Brexit is meer dan zes jaar geleden, maar voor EU-burgers met de Britse nationaliteit zijn er opeens weer nieuwe problemen. Vanwege nieuwe...
+- [FBI-directeur die Russische inmenging vaststelde overleden, Trump reageert verheugd](https://nos.nl/l/2607271)
+  > Robert Mueller, de voormalige FBI-directeur die de Russische inmenging in de Amerikaanse verkiezingen van 2016 onderzocht, is overleden. Dat heeft...
+- [Slovenië op de wip, radicaal-rechts strijdt om de macht met links-liberale coalitie](https://nos.nl/l/2607270)
+  > Krijgt de EU er weer een rechts-populistische en eurosceptische premier bij? Dat besluiten de Slovenen, als ze morgen naar de stembus gaan voor de...
 - [Energiepaniek in Azië: hoe landen worden geraakt door oorlog in het Midden-Oosten](https://nos.nl/l/2607258)
   > Door aanvallen op de energiesector in en rond de Perzische Golf stijgen de energieprijzen wereldwijd snel. De gevolgen zijn overal voelbaar, maar...
 - [Mensenmassa op de been in Praag tegen regering van populist Babis](https://nos.nl/l/2607256)
   > In de Tsjechische hoofdstad Praag hebben tienduizenden mensen gedemonstreerd tegen de regering van premier Babis. Ze beschuldigen Babis en zijn...
-- [Eigentijdse kerkenbouwer Wouter van Beijnum overleden: 'Altijd symboliek toevoegen'](https://nos.nl/l/2607254)
-  > Zijn naam was niet algemeen bekend, maar zijn kerkgebouwen op veel plekken in Nederland zijn beeldbepalend. In zijn woonplaats Amerongen is architect...
-- [Aantal zieken door uitbraak meningokokken loopt op, Britse jongeren in rij voor vaccin](https://nos.nl/l/2607248)
-  > Bij een meningokokkenuitbraak in het zuiden van Engeland is het aantal ziektegevallen opgelopen naar 23. Dat meldt de Britse gezondheidsdienst. Elf...
-- [Twee skiërs omgekomen door lawine in Noord-Italië, vijf gewonden](https://nos.nl/l/2607244)
-  > In de bergen van Zuid-Tirol in Italië zijn zeker twee skiërs om het leven gekomen door een lawine, meldt de Italiaanse krant La Repubblica. De sneeuw...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Sparta heeft weinig te duchten van FC Volendam en leidt comfortabel](https://www.ad.nl/voetbal/sparta-heeft-weinig-te-duchten-van-fc-volendam-en-leidt-comfortabel~a8932052/)
+- [De Straat van Hormuz was vaker gevaarlijk voor zeelui: ‘Ik zag de landmijnen drijven’](https://www.ad.nl/buitenland/de-straat-van-hormuz-was-vaker-gevaarlijk-voor-zeelui-ik-zag-de-landmijnen-drijven~a586b965/)
+  > De Straat van Hormuz is van de ene op de andere dag een gevaarlijke plek voor zeelui geworden. En dat is niet voor het eerst. In de jaren 90 waagden...
+- [FC Volendam bijt iets meer van zich af, maar kijkt bij Sparta nog altijd tegen achterstand aan](https://www.ad.nl/voetbal/fc-volendam-bijt-iets-meer-van-zich-af-maar-kijkt-bij-sparta-nog-altijd-tegen-achterstand-aan~a8932052/)
   > Sparta Rotterdam speelt vanavond in de VriendenLoterij Eredivisie de thuiswedstrijd tegen FC Volendam. Sparta zit in een lastige fase: in de laatste...
+- [Nienke Plas: ‘Ik denk dat ik een trauma heb, als ik een ambulance hoor, voel ik die wanhoop weer’](https://www.ad.nl/show/nienke-plas-ik-denk-dat-ik-een-trauma-heb-als-ik-een-ambulance-hoor-voel-ik-die-wanhoop-weer~a0497871/)
+  > Filmpjes maken voor YouTube is allang niet meer haar belangrijkste werk; Nienke Plas staat in de theaters met haar derde show en speelt haar eerste...
 - [Deze wasdroogcombinatie haalt het hoogste cijfer: ‘Goed schoon en droog’](https://www.ad.nl/wonen/deze-wasdroogcombinatie-haalt-het-hoogste-cijfer-goed-schoon-en-droog~a15148cc/)
   > Het bespaart tijd en ruimte, maar een wasdroogcombinatie heeft ook nadelen. Waar moet je op letten? En welke machine komt als beste uit de test? De...
 - [Tadej Pogacar riskeerde zijn leven en had het mentaal zwaar in zijn pogingen om Milaan-San Remo te winnen](https://www.ad.nl/wielrennen/tadej-pogacar-riskeerde-zijn-leven-en-had-het-mentaal-zwaar-in-zijn-pogingen-om-milaan-san-remo-te-winnen~a6d6b9fb/)
   > Hij heeft hem. Tadej Pogacar heeft tot zijn grote opluchting eindelijk Milaan-San Remo gewonnen. Op een heel andere manier dan de Sloveense...
-- [Horrorcrash in Milaan-San Remo: Italiaanse valt over vangrail meters naar beneden, toestand stabiel](https://www.ad.nl/wielrennen/horrorcrash-in-milaan-san-remo-italiaanse-valt-over-vangrail-meters-naar-beneden-toestand-stabiel~ac3cdd48/)
-  > Milaan-San Remo voor vrouwen werd ontsierd door een nare valpartij. In de afdaling van de Cipressa gingen voorin het peloton rensters onderuit vlak...
-- [Vrijwilligers ruimen tot 300.000 kilo afval op langs Maas: ‘Zorgen om de waterkwaliteit blijven groot’](https://www.ad.nl/binnenland/vrijwilligers-ruimen-tot-300-000-kilo-afval-op-langs-maas-zorgen-om-de-waterkwaliteit-blijven-groot~a0d0e3a8/)
-  > Zo’n 15.000 vrijwilligers hebben zaterdag naar schatting tussen de 250.000 en 300.000 kilo afval opgeruimd. Dat zegt de organisatie van de zogenoemde...
 
 ### Meest gelezen
 
