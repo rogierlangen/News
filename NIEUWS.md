@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-03-2026 om 14:31*
+*Laatst bijgewerkt: 21-03-2026 om 15:30*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Tienduizenden fans bij rentree K-popsensatie BTS in Seoul: 'We zijn er weer'](https://nos.nl/l/2607240)
+  > De Zuid-Koreaanse K-popband BTS heeft zijn rentree gemaakt met een concert in het centrum van de hoofdstad Seoul. Er kwamen tienduizenden fans op af....
 - [75 jaar na dato gaat Kamp Westerbork ook z'n Molukse geschiedenis vertellen](https://nos.nl/l/2607231)
   > Midden op het terrein van voormalig Kamp Westerbork komt een Molukse zone. Daar wordt de geschiedenis verteld van de eerste Molukse families die 75...
 - [Drenthe wil milde, makkelijke en menselijke aanpak na aardbeving Eleveld](https://nos.nl/l/2607213)
@@ -16,8 +18,6 @@
   > Twee kinderen van 9 en 10 dachten gisteren een menselijk skelet te hebben gevonden bij een strandje bij de haven in Albrandswaard, onder Rotterdam....
 - [Zeeland zegt ja tegen nieuwe kerncentrales, maar niet in de ongerepte natuur](https://nos.nl/l/2607206)
   > Zeeland gaat harde voorwaarden stellen aan de bouw van twee nieuwe kerncentrales. Zo vindt de provincie dat de twee centrales op industriegronden...
-- [Politie zoekt nog naar vluchtauto na neerschieten Iraanse man in Schoonhoven](https://nos.nl/l/2607204)
-  > De politie is nog altijd op zoek naar de vluchtauto die werd gebruikt na het neerschieten van een man in Schoonhoven afgelopen donderdag. Het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hoe een operatie voor honden nu ook mensen kan helpen: 3D-geprinte heupkom geeft weer perspectief](https://www.ad.nl/wetenschap/hoe-een-operatie-voor-honden-nu-ook-mensen-kan-helpen-3d-geprinte-heupkom-geeft-weer-perspectief~a4fd6007/)
-  > Ze zijn beiden zeer deskundig als het gaat om bekkens en heupen. Al houdt Bart van der Wal zich doorgaans bezig met mensen en Björn Meij met dieren....
-- [Max Verstappen opnieuw in de auto: kan de Nederlander de winst op Nürburgring veiligstellen?](https://www.ad.nl/formule-1/max-verstappen-opnieuw-in-de-auto-kan-de-nederlander-de-winst-op-nurburgring-veiligstellen~a256e477/)
-  > Max Verstappen is in zijn GT3 vanaf poleposition begonnen in NLS2, een race in de Nürburgring Langstrecken-Serie. De Nederlander bereidt zich - samen...
-- [Bram Krikke belt ‘woedende’ DJ Jean om lucht te klaren na parodie: ‘Dikke knipoog’](https://www.ad.nl/show/bram-krikke-belt-woedende-dj-jean-om-lucht-te-klaren-na-parodie-dikke-knipoog~ad83f480/)
-  > DJ Jean zegt ‘helemaal niet woedend’ te zijn op Qmusic-dj Bram Krikke, die eerder deze week een parodie maakte op een tv-fragment waarin een optreden...
-- [Van der Poel zet ploeggenoten op kop in aanloop naar finale, Pieterse net naast podium bij vrouwen](https://www.ad.nl/wielrennen/van-der-poel-zet-ploeggenoten-op-kop-in-aanloop-naar-finale-pieterse-net-naast-podium-bij-vrouwen~a62548b4/)
+- [Tadej Pogacar ondanks val in de aanval op Cipressa, Mathieu van der Poel vlotjes mee met wereldkampioen](https://www.ad.nl/wielrennen/tadej-pogacar-ondanks-val-in-de-aanval-op-cipressa-mathieu-van-der-poel-vlotjes-mee-met-wereldkampioen~a62548b4/)
   > Vandaag wordt met Milaan-San Remo het eerste monument van het seizoen gereden. Wint Mathieu van der Poel voor de derde keer of is Tadej Pogacar voor...
-- [Ineens wist Frank het: ‘We verkopen ons huis en gaan in de tuin wonen’](https://www.ad.nl/binnenland/ineens-wist-frank-het-we-verkopen-ons-huis-en-gaan-in-de-tuin-wonen~a2914f14/)
-  > Zes jaar geleden besloot Dordtenaar Frank Ruijsdam: we verkopen ons huis en bouwen in de tuin. Het werd een strijd vol vergunningen, kosten en...
+- [Tien skiërs meegesleurd door lawine in Zuid-Tirol: al zeker twee doden en één zwaargewonde](https://www.ad.nl/buitenland/tien-skiers-meegesleurd-door-lawine-in-zuid-tirol-al-zeker-twee-doden-en-een-zwaargewonde~a2d81f76/)
+  > In de Italiaanse provincie Zuid-Tirol, aan de grens met Oostenrijk, zijn zeker tien skiërs onder de sneeuw bedolven geraakt na een lawine. Volgens de...
+- [‘Hiervoor verdiende ik 10.000 euro bruto per maand bij een commercieel bedrijf’](https://www.ad.nl/werk/hiervoor-verdiende-ik-10-000-euro-bruto-per-maand-bij-een-commercieel-bedrijf~a72900d8/)
+  > Wouter (60) werkt als technisch engineer wetenschappelijk onderzoek. Hij werkt bij een stichting en helpt en bouwt mee aan apparatuur om...
+- [Max Verstappen tankt flinke dosis vertrouwen voor 24 uur op Nürburgring met winst in voorbereidende race](https://www.ad.nl/formule-1/max-verstappen-tankt-flinke-dosis-vertrouwen-voor-24-uur-op-nurburgring-met-winst-in-voorbereidende-race~a256e477/)
+  > Met het vertrouwen van Max Verstappen voor de 24 uur van de Nürburgring zit het wel goed. In de GT3-auto van zijn eigen team schreef hij...
+- [Dagen in isoleercel, houthakken bij min tien: Jos (43) doorbreekt stilte over gesloten jeugdzorg](https://www.ad.nl/binnenland/dagen-in-isoleercel-houthakken-bij-min-tien-jos-43-doorbreekt-stilte-over-gesloten-jeugdzorg~a27826a4/)
+  > Jarenlang zweeg Jos (43) over wat hij als kind meemaakte op de voormalige ggz-afdelingen Colorado en Mississippi van het RMPI in Barendrecht, de...
 
 ### Meest gelezen
 
