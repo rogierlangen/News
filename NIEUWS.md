@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-03-2026 om 19:29*
+*Laatst bijgewerkt: 21-03-2026 om 20:32*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De Straat van Hormuz was vaker gevaarlijk voor zeelui: ‘Ik zag de landmijnen drijven’](https://www.ad.nl/buitenland/de-straat-van-hormuz-was-vaker-gevaarlijk-voor-zeelui-ik-zag-de-landmijnen-drijven~a586b965/)
-  > De Straat van Hormuz is van de ene op de andere dag een gevaarlijke plek voor zeelui geworden. En dat is niet voor het eerst. In de jaren 90 waagden...
-- [FC Volendam bijt iets meer van zich af, maar kijkt bij Sparta nog altijd tegen achterstand aan](https://www.ad.nl/voetbal/fc-volendam-bijt-iets-meer-van-zich-af-maar-kijkt-bij-sparta-nog-altijd-tegen-achterstand-aan~a8932052/)
-  > Sparta Rotterdam speelt vanavond in de VriendenLoterij Eredivisie de thuiswedstrijd tegen FC Volendam. Sparta zit in een lastige fase: in de laatste...
-- [Nienke Plas: ‘Ik denk dat ik een trauma heb, als ik een ambulance hoor, voel ik die wanhoop weer’](https://www.ad.nl/show/nienke-plas-ik-denk-dat-ik-een-trauma-heb-als-ik-een-ambulance-hoor-voel-ik-die-wanhoop-weer~a0497871/)
-  > Filmpjes maken voor YouTube is allang niet meer haar belangrijkste werk; Nienke Plas staat in de theaters met haar derde show en speelt haar eerste...
-- [Deze wasdroogcombinatie haalt het hoogste cijfer: ‘Goed schoon en droog’](https://www.ad.nl/wonen/deze-wasdroogcombinatie-haalt-het-hoogste-cijfer-goed-schoon-en-droog~a15148cc/)
-  > Het bespaart tijd en ruimte, maar een wasdroogcombinatie heeft ook nadelen. Waar moet je op letten? En welke machine komt als beste uit de test? De...
-- [Tadej Pogacar riskeerde zijn leven en had het mentaal zwaar in zijn pogingen om Milaan-San Remo te winnen](https://www.ad.nl/wielrennen/tadej-pogacar-riskeerde-zijn-leven-en-had-het-mentaal-zwaar-in-zijn-pogingen-om-milaan-san-remo-te-winnen~a6d6b9fb/)
-  > Hij heeft hem. Tadej Pogacar heeft tot zijn grote opluchting eindelijk Milaan-San Remo gewonnen. Op een heel andere manier dan de Sloveense...
+- [NAC valt weer helemaal in duigen: PEC Zwolle scoort twee keer in twee minuten](https://www.ad.nl/voetbal/nac-valt-weer-helemaal-in-duigen-pec-zwolle-scoort-twee-keer-in-twee-minuten~a590242f/)
+  > NAC verloor vorige week met grote cijfers (6-0) van Go Ahead Eagles en kreeg op die manier een nieuwe knauw in strijd tegen degradatie uit de...
+- [Burnley dieper in degradatiezorgren ondanks goal Flemming, Chelsea verliest met Hato kansloos van Everton](https://www.ad.nl/voetbal/burnley-dieper-in-degradatiezorgren-ondanks-goal-flemming-chelsea-verliest-met-hato-kansloos-van-everton~a821d5e3/)
+  > Burnley staat momenteel negentiende in de Premier League en moet negen punten goed maken ten opzichte van de nummer zeventien, degradatie lijkt dus...
+- [Crisis komt Jetten stiekem best goed uit](https://www.ad.nl/politiek/crisis-komt-jetten-stiekem-best-goed-uit~a31d9651/)
+  > De oppositie stribbelt nu nog tegen bij bezuinigingen in de zorg en op werklozen. Toch denkt het kabinet steun te krijgen voor de gehate ingrepen: de...
+- [Lieke Klaver sprint naar brons op 400 meter, polsstokhoogspringer Menno Vloon naast podium](https://www.ad.nl/andere-sporten/lieke-klaver-sprint-naar-brons-op-400-meter-polsstokhoogspringer-menno-vloon-naast-podium~a7bc2f93/)
+  > Lieke Klaver heeft op de WK indoor een bronzen medaille gepakt op de 400 meter. Ze finishte in de eerste finale als tweede, achter Natalia...
+- [Sparta kent zorgeloze avond tegen FC Volendam en doet goede zaken richting play-offs](https://www.ad.nl/voetbal/sparta-kent-zorgeloze-avond-tegen-fc-volendam-en-doet-goede-zaken-richting-play-offs~a8932052/)
+  > Sparta heeft zaterdagavond de matige serie doorbroken met een overwinning op FC Volendam (2-0). De Rotterdammers kenden een zorgeloze avond tegen de...
 
 ### Meest gelezen
 
