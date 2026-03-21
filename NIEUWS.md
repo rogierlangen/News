@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-03-2026 om 13:49*
+*Laatst bijgewerkt: 21-03-2026 om 14:31*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [75 jaar na dato gaat Kamp Westerbork ook z'n Molukse geschiedenis vertellen](https://nos.nl/l/2607231)
+  > Midden op het terrein van voormalig Kamp Westerbork komt een Molukse zone. Daar wordt de geschiedenis verteld van de eerste Molukse families die 75...
 - [Drenthe wil milde, makkelijke en menselijke aanpak na aardbeving Eleveld](https://nos.nl/l/2607213)
   > De provincie Drenthe en een aantal gemeenten vinden dat het Rijk niet moeilijk moet doen bij de afhandeling van de schade die is ontstaan door de...
 - [Kinderen in Albrandswaard dachten skelet te vinden, politie ingeschakeld](https://nos.nl/l/2607212)
@@ -16,8 +18,6 @@
   > Zeeland gaat harde voorwaarden stellen aan de bouw van twee nieuwe kerncentrales. Zo vindt de provincie dat de twee centrales op industriegronden...
 - [Politie zoekt nog naar vluchtauto na neerschieten Iraanse man in Schoonhoven](https://nos.nl/l/2607204)
   > De politie is nog altijd op zoek naar de vluchtauto die werd gebruikt na het neerschieten van een man in Schoonhoven afgelopen donderdag. Het...
-- [Gedwongen op zaterdagavond voetballen? Amateurclubs mogelijk naar rechter](https://nos.nl/l/2607202)
-  > Vanaf volgend seizoen is er in de tweede en derde klasse van het amateurvoetbal geen scheiding meer tussen zaterdag- en zondagclubs. Ze worden...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Hoe een operatie voor honden nu ook mensen kan helpen: 3D-geprinte heupkom geeft weer perspectief](https://www.ad.nl/wetenschap/hoe-een-operatie-voor-honden-nu-ook-mensen-kan-helpen-3d-geprinte-heupkom-geeft-weer-perspectief~a4fd6007/)
+  > Ze zijn beiden zeer deskundig als het gaat om bekkens en heupen. Al houdt Bart van der Wal zich doorgaans bezig met mensen en Björn Meij met dieren....
+- [Max Verstappen opnieuw in de auto: kan de Nederlander de winst op Nürburgring veiligstellen?](https://www.ad.nl/formule-1/max-verstappen-opnieuw-in-de-auto-kan-de-nederlander-de-winst-op-nurburgring-veiligstellen~a256e477/)
+  > Max Verstappen is in zijn GT3 vanaf poleposition begonnen in NLS2, een race in de Nürburgring Langstrecken-Serie. De Nederlander bereidt zich - samen...
+- [Bram Krikke belt ‘woedende’ DJ Jean om lucht te klaren na parodie: ‘Dikke knipoog’](https://www.ad.nl/show/bram-krikke-belt-woedende-dj-jean-om-lucht-te-klaren-na-parodie-dikke-knipoog~ad83f480/)
+  > DJ Jean zegt ‘helemaal niet woedend’ te zijn op Qmusic-dj Bram Krikke, die eerder deze week een parodie maakte op een tv-fragment waarin een optreden...
+- [Van der Poel zet ploeggenoten op kop in aanloop naar finale, Pieterse net naast podium bij vrouwen](https://www.ad.nl/wielrennen/van-der-poel-zet-ploeggenoten-op-kop-in-aanloop-naar-finale-pieterse-net-naast-podium-bij-vrouwen~a62548b4/)
+  > Vandaag wordt met Milaan-San Remo het eerste monument van het seizoen gereden. Wint Mathieu van der Poel voor de derde keer of is Tadej Pogacar voor...
 - [Ineens wist Frank het: ‘We verkopen ons huis en gaan in de tuin wonen’](https://www.ad.nl/binnenland/ineens-wist-frank-het-we-verkopen-ons-huis-en-gaan-in-de-tuin-wonen~a2914f14/)
   > Zes jaar geleden besloot Dordtenaar Frank Ruijsdam: we verkopen ons huis en bouwen in de tuin. Het werd een strijd vol vergunningen, kosten en...
-- [Puck Pieterse net naast podium, Tadej Pogacar ziet belangrijke luitenant opgeven na val](https://www.ad.nl/wielrennen/puck-pieterse-net-naast-podium-tadej-pogacar-ziet-belangrijke-luitenant-opgeven-na-val~a62548b4/)
-  > Vandaag wordt met Milaan-San Remo het eerste monument van het seizoen gereden. Wint Mathieu van der Poel voor de derde keer of is Tadej Pogacar voor...
-- [Voorsprong van team Max Verstappen minimaal, Nederlander mogelijk straks nog in actie](https://www.ad.nl/formule-1/voorsprong-van-team-max-verstappen-minimaal-nederlander-mogelijk-straks-nog-in-actie~a256e477/)
-  > Max Verstappen is in zijn GT3 vanaf poleposition begonnen in NLS2, een race in de Nürburgring Langstrecken-Serie. De Nederlander bereidt zich - samen...
-- [Tanken wordt alsmaar duurder: adviesprijs voor een liter diesel loopt op tot 2,70 euro](https://www.ad.nl/auto/tanken-wordt-alsmaar-duurder-adviesprijs-voor-een-liter-diesel-loopt-op-tot-2-70-euro~a8173dcd/)
-  > Tanken wordt duurder en duurder. De gemiddelde adviesprijs voor een liter diesel nadert inmiddels de 2,70 euro, blijkt uit gegevens van...
-- [Lieke Klaver gaat vanavond voor medaille op 400 meter: bekijk hier het programma van de WK indoor](https://www.ad.nl/andere-sporten/lieke-klaver-gaat-vanavond-voor-medaille-op-400-meter-bekijk-hier-het-programma-van-de-wk-indoor~a5dacc76/)
-  > Dit weekend komen er genoeg Nederlanders in actie bij de WK indoor in Polen, onder wie Lieke Klaver, Samuel Chapple en Nadine Visser. Bekijk hier het...
 
 ### Meest gelezen
 
