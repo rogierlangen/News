@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-03-2026 om 12:59*
+*Laatst bijgewerkt: 21-03-2026 om 13:49*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Slot moet vroeg wisselen in Brighton: Liverpool-spits valt direct geblesseerd uit](https://www.ad.nl/voetbal/slot-moet-vroeg-wisselen-in-brighton-liverpool-spits-valt-direct-geblesseerd-uit~a0ccb7a4/)
-  > Liverpool is op bezoek bij Brighton & Hove Albion. De ploeg van Arne Slot staat vijfde in de Premier League en alleen de top 4 plaatst zich voor de...
-- [Ajax-talent Rayane Bounida verkiest interlandcarrière bij Marokko boven België](https://www.ad.nl/voetbal/ajax-talent-rayane-bounida-verkiest-interlandcarriere-bij-marokko-boven-belgie~a11bd35f/)
-  > Ajax-talent Rayane Bounida (20) kiest voor een interlandcarrière bij Marokko. Hij heeft aan de Belgische voetbalbond laten weten dat hij Marokko...
-- [Max Verstappen maakt plaats voor teamgenoot, team van Nederlander nog altijd aan de leiding](https://www.ad.nl/formule-1/max-verstappen-maakt-plaats-voor-teamgenoot-team-van-nederlander-nog-altijd-aan-de-leiding~a256e477/)
+- [Ineens wist Frank het: ‘We verkopen ons huis en gaan in de tuin wonen’](https://www.ad.nl/binnenland/ineens-wist-frank-het-we-verkopen-ons-huis-en-gaan-in-de-tuin-wonen~a2914f14/)
+  > Zes jaar geleden besloot Dordtenaar Frank Ruijsdam: we verkopen ons huis en bouwen in de tuin. Het werd een strijd vol vergunningen, kosten en...
+- [Puck Pieterse net naast podium, Tadej Pogacar ziet belangrijke luitenant opgeven na val](https://www.ad.nl/wielrennen/puck-pieterse-net-naast-podium-tadej-pogacar-ziet-belangrijke-luitenant-opgeven-na-val~a62548b4/)
+  > Vandaag wordt met Milaan-San Remo het eerste monument van het seizoen gereden. Wint Mathieu van der Poel voor de derde keer of is Tadej Pogacar voor...
+- [Voorsprong van team Max Verstappen minimaal, Nederlander mogelijk straks nog in actie](https://www.ad.nl/formule-1/voorsprong-van-team-max-verstappen-minimaal-nederlander-mogelijk-straks-nog-in-actie~a256e477/)
   > Max Verstappen is in zijn GT3 vanaf poleposition begonnen in NLS2, een race in de Nürburgring Langstrecken-Serie. De Nederlander bereidt zich - samen...
-- [Israël waarschuwt dat intensiteit van aanvallen aanzienlijk zal toenemen, Iran meldt aanval op nucleair complex](https://www.ad.nl/buitenland/israel-waarschuwt-dat-intensiteit-van-aanvallen-aanzienlijk-zal-toenemen-iran-meldt-aanval-op-nucleair-complex~ac528ac3/)
-  > De Israëlische minister van Defensie, Israël Katz, heeft zaterdag in een verklaring gewaarschuwd dat ‘de intensiteit van de aanvallen‘ op Iran de...
-- [MacBook Neo voor 700 euro is frontale aanval op Windows en Chromebooks: laptop is verrassend snel](https://www.ad.nl/geld/macbook-neo-voor-700-euro-is-frontale-aanval-op-windows-en-chromebooks-laptop-is-verrassend-snel~a1c59876/)
-  > Apple verbaast vriend en vooral vijand met een héél aantrekkelijk geprijsde MacBook. De Neo is de goedkoopste laptop ooit van het merk, maar het...
+- [Tanken wordt alsmaar duurder: adviesprijs voor een liter diesel loopt op tot 2,70 euro](https://www.ad.nl/auto/tanken-wordt-alsmaar-duurder-adviesprijs-voor-een-liter-diesel-loopt-op-tot-2-70-euro~a8173dcd/)
+  > Tanken wordt duurder en duurder. De gemiddelde adviesprijs voor een liter diesel nadert inmiddels de 2,70 euro, blijkt uit gegevens van...
+- [Lieke Klaver gaat vanavond voor medaille op 400 meter: bekijk hier het programma van de WK indoor](https://www.ad.nl/andere-sporten/lieke-klaver-gaat-vanavond-voor-medaille-op-400-meter-bekijk-hier-het-programma-van-de-wk-indoor~a5dacc76/)
+  > Dit weekend komen er genoeg Nederlanders in actie bij de WK indoor in Polen, onder wie Lieke Klaver, Samuel Chapple en Nadine Visser. Bekijk hier het...
 
 ### Meest gelezen
 
