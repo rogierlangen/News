@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-03-2026 om 21:29*
+*Laatst bijgewerkt: 21-03-2026 om 22:30*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Deze keer zonder wereldrecord: Armand Duplantis wint vierde wereldtitel indoor op rij](https://www.ad.nl/andere-sporten/deze-keer-zonder-wereldrecord-armand-duplantis-wint-vierde-wereldtitel-indoor-op-rij~aade5b7f/)
-  > De Zweed Armand Duplantis heeft op de WK indooratletiek in het Poolse Torun voor de vierde keer op rij het goud gepakt bij het polsstokhoogspringen....
-- [Nadine Visser en estafetteploegen gaan voor medaille: bekijk hier het programma van de WK indoor](https://www.ad.nl/andere-sporten/nadine-visser-en-estafetteploegen-gaan-voor-medaille-bekijk-hier-het-programma-van-de-wk-indoor~a5dacc76/)
-  > Op de slotdag komen er nog genoeg Nederlanders in actie bij de WK indoor in Polen, onder wie Lieke Klaver, Samuel Chapple en Nadine Visser. Bekijk...
-- [NAC maakt vanuit het niets de aansluitingstreffer en mag weer hopen op een resultaat op bezoek bij PEC](https://www.ad.nl/voetbal/nac-maakt-vanuit-het-niets-de-aansluitingstreffer-en-mag-weer-hopen-op-een-resultaat-op-bezoek-bij-pec~a590242f/)
-  > NAC verloor vorige week met grote cijfers (6-0) van Go Ahead Eagles en kreeg op die manier een nieuwe knauw in strijd tegen degradatie uit de...
-- [Studenten niet onder de indruk van klopjacht op gewapende crimineel: ‘Ging ervan uit dat hij zich schuilhield’](https://www.ad.nl/utrecht/studenten-niet-onder-de-indruk-van-klopjacht-op-gewapende-crimineel-ging-ervan-uit-dat-hij-zich-schuilhield~aa28a627/)
-  > Enigszins beduusd staan de Utrechtse studenten vrijdag voor hun flats te kijken naar het tafereel: een met lint afgesloten gebied, sporen van kogels...
-- [Burnley dieper in degradatiezorgren ondanks goal Flemming, Chelsea verliest met Hato kansloos van Everton](https://www.ad.nl/voetbal/burnley-dieper-in-degradatiezorgren-ondanks-goal-flemming-chelsea-verliest-met-hato-kansloos-van-everton~a821d5e3/)
-  > Burnley staat momenteel negentiende in de Premier League en moet negen punten goed maken ten opzichte van de nummer zeventien, degradatie lijkt dus...
+- [Ruim 35.000 bezoekers zien nieuwe Johan Cruijff-docu, zoon Jordi geroerd: ‘Soms laat ik een traantje’](https://www.ad.nl/voetbal/ruim-35-000-bezoekers-zien-nieuwe-johan-cruijff-docu-zoon-jordi-geroerd-soms-laat-ik-een-traantje~ab6fe0c8/)
+  > De nieuwe documentaire over Johan Cruijff is in première gegaan in de Johan Cruijff Arena. Ruim 35.000 bezoekers waren aanwezig. „Zoveel lieve mensen...
+- [Pover PEC Zwolle helpt NAC verder de problemen in met moeizame zege in eigen huis](https://www.ad.nl/voetbal/pover-pec-zwolle-helpt-nac-verder-de-problemen-in-met-moeizame-zege-in-eigen-huis~a590242f/)
+  > PEC Zwolle is NAC Breda in eigen huis de baas. De Blauwvingers wonnen met 2-1; Thijs Oosting en Odysseus Velanas maakten de goals voor de thuisploeg....
+- [‘Pogacar heeft Van der Poel gewoon helemaal uitgewrongen’](https://www.ad.nl/wielrennen/pogacar-heeft-van-der-poel-gewoon-helemaal-uitgewrongen~a5ea502e/)
+  > Tadej Pogacar mag weer een vakje op zijn monumentenbingo afstrepen. Met Milaan-San Remo heeft de Sloveen het voor hem misschien wel moeilijkste...
+- [Test Opel Mokka: zuinig, maar niet zo ruim](https://www.ad.nl/auto/test-opel-mokka-zuinig-maar-niet-zo-ruim~a6ff7d8f/)
+  > De Opel Mokka heeft een subtiele facelift ondergaan, maar belangrijker is de recentelijke vernieuwing onder de motorkap. Technisch is hij nu weer...
+- [Lieke Klaver sprint naar brons op 400 meter, is kritisch op systeem van finale: ‘Ik vind het gewoon stom’](https://www.ad.nl/andere-sporten/lieke-klaver-sprint-naar-brons-op-400-meter-is-kritisch-op-systeem-van-finale-ik-vind-het-gewoon-stom~a7bc2f93/)
+  > Lieke Klaver heeft op het WK indoor een bronzen medaille gepakt op de 400 meter. Ze finishte in de eerste finale als tweede achter Natalia Bukowiecka...
 
 ### Meest gelezen
 
