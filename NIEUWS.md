@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-03-2026 om 06:52*
+*Laatst bijgewerkt: 21-03-2026 om 07:35*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Wekdienst 21/3: Demonstratie tegen racisme • Max Verstappen in actie buiten de F1](https://nos.nl/l/2607180)
+  > Goedemorgen! Het is 21 maart, de internationale dag tegen racisme. Dat betekent ook de jaarlijkse landelijke demonstratie tegen racisme en fascisme...
 - [Bekendste K-popgroep ter wereld maakt mega-comeback na afronden dienstplicht](https://nos.nl/l/2607179)
   > Zuid-Korea's bekendste popgroep aller tijden, BTS, keert terug met een megaconcert in de hoofdstad Seoul. Jarenlang moesten fans het zonder hun...
 - [VS staat verkoop Iraanse olie toe vanwege gestegen olieprijs](https://nos.nl/l/2607178)
@@ -16,8 +18,6 @@
   > Oud-premier Dries van Agt heeft drie jaar voor zijn dood bij koning Willem-Alexander aangedrongen op excuses aan Molukkers in Nederland. Hij wilde...
 - [Overstromingen op Hawaï, duizenden mensen geëvacueerd](https://nos.nl/l/2607173)
   > Op Hawaï zijn door langdurige regen straten en huizen overstroomd. De overheid van de eilandengroep in de Stille Oceaan waarschuwt voor de mogelijke...
-- [Cuba verbiedt Amerikaanse ambassade 'schaamteloze' import van brandstof](https://nos.nl/l/2607169)
-  > De Cubaanse regering verbiedt de Amerikaanse ambassade om diesel te importeren voor generatoren. Een verzoek daartoe is afgewezen, melden Amerikaanse...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Klem tussen Trump en Europa: de eenzame positie van Navo-baas Mark Rutte](https://www.ad.nl/buitenland/klem-tussen-trump-en-europa-de-eenzame-positie-van-navo-baas-mark-rutte~a52ada94/)
+  > Na opnieuw een roerige week vertoont het aura van Navo-secretaris-generaal Mark Rutte barstjes. Er is begrip voor zijn moeilijke positie, maar zijn...
+- [Kenneth Taylor wil ‘voetbalteam’ aan kinderen met Jade Anna, zij is huiverig: ‘Bang dat ik geen goede moeder ben’](https://www.ad.nl/show/kenneth-taylor-wil-voetbalteam-aan-kinderen-met-jade-anna-zij-is-huiverig-bang-dat-ik-geen-goede-moeder-ben~a83306ef/)
+  > Influencer Jade Anna van Vliet (21) en SS Lazio-voetballer Kenneth Taylor (23) verschillen sterk in hun kinderwens. Hij wil graag veel kinderen,...
+- [Alles over de Klassieker: hoe laat is de aftrap, welke spelers ontbreken en wie is de scheidsrechter?](https://www.ad.nl/voetbal/alles-over-de-klassieker-hoe-laat-is-de-aftrap-welke-spelers-ontbreken-en-wie-is-de-scheidsrechter~a937c385/)
+  > De 201ste editie van de Klassieker staat voor de deur: aartsrivalen Feyenoord en Ajax staan komende zondag tegenover elkaar in de Kuip. Welke spelers...
 - [Nicholas Brendon, Xander Harris uit Buffy The Vampire Slayer, op 54-jarige leeftijd overleden](https://www.ad.nl/show/nicholas-brendon-xander-harris-uit-buffy-the-vampire-slayer-op-54-jarige-leeftijd-overleden~ac76401f/)
   > Nicholas Brendon, de Amerikaanse acteur die wereldwijde bekendheid verwierf met zijn rol als Xander Harris in de cultserie Buffy the Vampire Slayer,...
 - [1,2 kilometer aan boekenplanken: nieuwe eigenaar gezocht voor giga privé-bibliotheek in doolhof onder villa](https://www.ad.nl/binnenland/1-2-kilometer-aan-boekenplanken-nieuwe-eigenaar-gezocht-voor-giga-prive-bibliotheek-in-doolhof-onder-villa~afa9a421/)
   > Het is een titanenklus: een nieuw thuis geven aan de circa 80.000 boeken van de Amersfoortse verzamelaar Ayolt Brongers. De ondergrondse bibliotheek...
-- [Thomas Erdbrink volgde de gewone Rus een jaar lang: ‘Ze hebben ons geen strobreed in de weg gelegd’](https://www.ad.nl/show/thomas-erdbrink-volgde-de-gewone-rus-een-jaar-lang-ze-hebben-ons-geen-strobreed-in-de-weg-gelegd~a795490f/)
-  > Hij is pas 50 geworden en had allang een relatief rustig bestaan kunnen leiden op een Nederlandse mediaredactie. Maar journalist Thomas Erdbrink...
-- [Klaassen over zijn Klassiekers: ‘Ik zwaaide naar mijn vader in het Feyenoord-vak, maar hij durfde niet terug te zwaaien’](https://www.ad.nl/voetbal/klaassen-over-zijn-klassiekers-ik-zwaaide-naar-mijn-vader-in-het-feyenoord-vak-maar-hij-durfde-niet-terug-te-zwaaien~ad5d2481/)
-  > Davy Klaassen (33) staat voor zijn negentiende Klassieker. Veertien jaar geleden betrof het een titelgevecht, zondag wacht in de Kuip een strijd om...
-- [Code geel in het noorden wegens mist, maar daarna breekt zon door: ‘Ideaal weer om bloesembomen te bekijken’](https://www.ad.nl/binnenland/code-geel-in-het-noorden-wegens-mist-maar-daarna-breekt-zon-door-ideaal-weer-om-bloesembomen-te-bekijken~ad3a1aa6/)
-  > Er staat dit weekend flink wat zonneschijn op het programma. Maar wie zaterdagochtend vroeg de deur uit wil, moet toch even opletten. Het is mistig....
 
 ### Meest gelezen
 
