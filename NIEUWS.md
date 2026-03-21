@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-03-2026 om 05:44*
+*Laatst bijgewerkt: 21-03-2026 om 06:52*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Bekendste K-popgroep ter wereld maakt mega-comeback na afronden dienstplicht](https://nos.nl/l/2607179)
+  > Zuid-Korea's bekendste popgroep aller tijden, BTS, keert terug met een megaconcert in de hoofdstad Seoul. Jarenlang moesten fans het zonder hun...
+- [VS staat verkoop Iraanse olie toe vanwege gestegen olieprijs](https://nos.nl/l/2607178)
+  > De Verenigde Staten heffen tijdelijk een deel van de sancties tegen Iran op en staan de verkoop van Iraanse olie toe. Het gaat alleen om olie die nu...
+- [Oud-premier Van Agt vroeg koning excuses te maken aan Molukkers in Nederland](https://nos.nl/l/2607177)
+  > Oud-premier Dries van Agt heeft drie jaar voor zijn dood bij koning Willem-Alexander aangedrongen op excuses aan Molukkers in Nederland. Hij wilde...
 - [Overstromingen op Hawaï, duizenden mensen geëvacueerd](https://nos.nl/l/2607173)
   > Op Hawaï zijn door langdurige regen straten en huizen overstroomd. De overheid van de eilandengroep in de Stille Oceaan waarschuwt voor de mogelijke...
 - [Cuba verbiedt Amerikaanse ambassade 'schaamteloze' import van brandstof](https://nos.nl/l/2607169)
   > De Cubaanse regering verbiedt de Amerikaanse ambassade om diesel te importeren voor generatoren. Een verzoek daartoe is afgewezen, melden Amerikaanse...
-- [Musk misleidde aandeelhouders Twitter met tweets rond overname](https://nos.nl/l/2607168)
-  > Elon Musk heeft met kritische tweets over het bedrijf Twitter in 2022 opzettelijk aandeelhouders misleid. Dat oordeelt een jury in een zaak die...
-- [Colombiaanse president verdachte in Amerikaans onderzoek naar drugshandel](https://nos.nl/l/2607165)
-  > Amerikaanse openbaar aanklagers onderzoeken mogelijke banden van de Colombiaanse president Petro met drugshandelaren. Dat meldt persbureau AP op...
-- [Meer schademeldingen na aardbeving bij Eleveld, 24 acute situaties](https://nos.nl/l/2607164)
-  > Het aantal schademeldingen na de aardbeving bij Eleveld in Drenthe van vorige week is verder opgelopen. Het zijn er nu in totaal ruim 1900, meldt...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Trump overweegt Iran-operatie af te bouwen, Teheran wil Straat van Hormuz openen voor Japanse schepen](https://www.ad.nl/buitenland/trump-overweegt-iran-operatie-af-te-bouwen-teheran-wil-straat-van-hormuz-openen-voor-japanse-schepen~ac528ac3/)
-  > Donald Trump zegt te overwegen om de militaire operaties tegen Iran af te schalen. Tegelijkertijd stuurt de VS 2500 extra mariniers naar het...
-- [Iran vuurde raketten af op Amerikaans-Britse basis op 4000 kilometer afstand in Stille Oceaan](https://www.ad.nl/buitenland/iran-vuurde-raketten-af-op-amerikaans-britse-basis-op-4000-kilometer-afstand-in-stille-oceaan~a8e8fd633/)
-  > Iran heeft twee ballistische raketten afgevuurd op de Amerikaans-Britse militaire basis Diego Garcia in de Stille Oceaan, maar de basis is niet...
-- [Pentagon moet journalisten weer toelaten: rechter acht omstreden regels voor pers in strijd met grondwet](https://www.ad.nl/buitenland/pentagon-moet-journalisten-weer-toelaten-rechter-acht-omstreden-regels-voor-pers-in-strijd-met-grondwet~ae67dd9c/)
-  > Het besluit van de regering-Trump om de activiteiten van verslaggevers in het Pentagon aan banden te leggen, is in strijd met de Amerikaanse...
-- [Botic van de Zandschulp uitgeschakeld op masterstoernooi Miami](https://www.ad.nl/sport/botic-van-de-zandschulp-uitgeschakeld-op-masterstoernooi-miami~a0962e4e9/)
-  > Botic van de Zandschulp is uitgeschakeld op het masterstoernooi van Miami. In drie sets was de Amerikaanse top 10-speler Taylor Fritz in de tweede...
-- [Als een video van Bolle Jos in Afrika opduikt, begint de diplomatieke strijd om hem naar hier te krijgen](https://www.ad.nl/politiek/als-een-video-van-bolle-jos-in-afrika-opduikt-begint-de-diplomatieke-strijd-om-hem-naar-hier-te-krijgen~ad28cbaa/)
-  > Al meer dan een jaar woont drugscrimineel ‘Bolle Jos’ Leijdekkers onaantastbaar in Sierra Leone, nota bene als schoonzoon van de president. Achter de...
+- [Nicholas Brendon, Xander Harris uit Buffy The Vampire Slayer, op 54-jarige leeftijd overleden](https://www.ad.nl/show/nicholas-brendon-xander-harris-uit-buffy-the-vampire-slayer-op-54-jarige-leeftijd-overleden~ac76401f/)
+  > Nicholas Brendon, de Amerikaanse acteur die wereldwijde bekendheid verwierf met zijn rol als Xander Harris in de cultserie Buffy the Vampire Slayer,...
+- [1,2 kilometer aan boekenplanken: nieuwe eigenaar gezocht voor giga privé-bibliotheek in doolhof onder villa](https://www.ad.nl/binnenland/1-2-kilometer-aan-boekenplanken-nieuwe-eigenaar-gezocht-voor-giga-prive-bibliotheek-in-doolhof-onder-villa~afa9a421/)
+  > Het is een titanenklus: een nieuw thuis geven aan de circa 80.000 boeken van de Amersfoortse verzamelaar Ayolt Brongers. De ondergrondse bibliotheek...
+- [Thomas Erdbrink volgde de gewone Rus een jaar lang: ‘Ze hebben ons geen strobreed in de weg gelegd’](https://www.ad.nl/show/thomas-erdbrink-volgde-de-gewone-rus-een-jaar-lang-ze-hebben-ons-geen-strobreed-in-de-weg-gelegd~a795490f/)
+  > Hij is pas 50 geworden en had allang een relatief rustig bestaan kunnen leiden op een Nederlandse mediaredactie. Maar journalist Thomas Erdbrink...
+- [Klaassen over zijn Klassiekers: ‘Ik zwaaide naar mijn vader in het Feyenoord-vak, maar hij durfde niet terug te zwaaien’](https://www.ad.nl/voetbal/klaassen-over-zijn-klassiekers-ik-zwaaide-naar-mijn-vader-in-het-feyenoord-vak-maar-hij-durfde-niet-terug-te-zwaaien~ad5d2481/)
+  > Davy Klaassen (33) staat voor zijn negentiende Klassieker. Veertien jaar geleden betrof het een titelgevecht, zondag wacht in de Kuip een strijd om...
+- [Code geel in het noorden wegens mist, maar daarna breekt zon door: ‘Ideaal weer om bloesembomen te bekijken’](https://www.ad.nl/binnenland/code-geel-in-het-noorden-wegens-mist-maar-daarna-breekt-zon-door-ideaal-weer-om-bloesembomen-te-bekijken~ad3a1aa6/)
+  > Er staat dit weekend flink wat zonneschijn op het programma. Maar wie zaterdagochtend vroeg de deur uit wil, moet toch even opletten. Het is mistig....
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [‘Overnemen lobbyteksten bevestigt beeld dat politieke standpunten niet altijd in het publieke debat ontstaan’](https://fd.nl/opinie/1589941/overnemen-lobbyteksten-bevestigt-beeld-dat-politieke-standpunten-niet-altijd-in-het-publieke-debat-ontstaan-en-andere-lezersreacties)
+  > FD-lezers reageren op lokale politieke partijen die passages overnemen van lobbyorganisaties, gemeenschappelijke regelingen, de AOW-discussie en...
 - [Waarom kan Iran de wereldeconomie gijzelen? En hoe erg is de crisis aan de pomp?](https://fd.nl/economie/1590225/waarom-kan-iran-de-wereldeconomie-gijzelen-en-hoe-erg-is-de-crisis-aan-de-pomp)
   > In deze aflevering van Toegevoegde Waarde bespreken Anna en Marijn de gevolgen van het conflict in het Midden-Oosten. Staat ons na de kopzorgen van...
 - [Musk misleidde beleggers bij aankoop Twitter, stelt jury vast](https://fd.nl/financiele-markten/1590249/musk-misleidde-beleggers-bij-aankoop-twitter-stelt-jury-vast)
@@ -54,8 +56,6 @@
   > Wie een beetje handig is, smurft via AI zo een programma dat AI-chatbot Grok automatisch opdrachtjes geeft tot een salvo aan beledigingen. Maar wie...
 - [Na drie weken vechten zitten we al in het zwartste scenario](https://fd.nl/politiek/1590224/na-drie-weken-vechten-zitten-we-al-in-het-zwartste-scenario)
   > Het kabinet zou met spoed moeten nadenken over manieren om de energievraag per direct te verminderen, schrijft FD-columnist Mathijs Bouman.
-- [Personalia zaterdag 21 maart](https://fd.nl/bedrijfsleven/1590159/personalia-zaterdag-21-maart)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
