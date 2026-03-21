@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-03-2026 om 22:30*
+*Laatst bijgewerkt: 21-03-2026 om 23:30*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [WHO: tientallen doden bij aanval op ziekenhuis in Soedan, 89 gewonden](https://www.ad.nl/buitenland/who-tientallen-doden-bij-aanval-op-ziekenhuis-in-soedan-89-gewonden~a36ca561/)
+  > Bij een aanval op een ziekenhuis in Soedan zijn zeker 64 mensen om het leven gekomen, zegt de baas van de Wereldgezondheidsorganisatie (WHO) op X....
 - [Ruim 35.000 bezoekers zien nieuwe Johan Cruijff-docu, zoon Jordi geroerd: ‘Soms laat ik een traantje’](https://www.ad.nl/voetbal/ruim-35-000-bezoekers-zien-nieuwe-johan-cruijff-docu-zoon-jordi-geroerd-soms-laat-ik-een-traantje~ab6fe0c8/)
   > De nieuwe documentaire over Johan Cruijff is in première gegaan in de Johan Cruijff Arena. Ruim 35.000 bezoekers waren aanwezig. „Zoveel lieve mensen...
 - [Pover PEC Zwolle helpt NAC verder de problemen in met moeizame zege in eigen huis](https://www.ad.nl/voetbal/pover-pec-zwolle-helpt-nac-verder-de-problemen-in-met-moeizame-zege-in-eigen-huis~a590242f/)
@@ -35,8 +37,6 @@
   > Tadej Pogacar mag weer een vakje op zijn monumentenbingo afstrepen. Met Milaan-San Remo heeft de Sloveen het voor hem misschien wel moeilijkste...
 - [Test Opel Mokka: zuinig, maar niet zo ruim](https://www.ad.nl/auto/test-opel-mokka-zuinig-maar-niet-zo-ruim~a6ff7d8f/)
   > De Opel Mokka heeft een subtiele facelift ondergaan, maar belangrijker is de recentelijke vernieuwing onder de motorkap. Technisch is hij nu weer...
-- [Lieke Klaver sprint naar brons op 400 meter, is kritisch op systeem van finale: ‘Ik vind het gewoon stom’](https://www.ad.nl/andere-sporten/lieke-klaver-sprint-naar-brons-op-400-meter-is-kritisch-op-systeem-van-finale-ik-vind-het-gewoon-stom~a7bc2f93/)
-  > Lieke Klaver heeft op het WK indoor een bronzen medaille gepakt op de 400 meter. Ze finishte in de eerste finale als tweede achter Natalia Bukowiecka...
 
 ### Meest gelezen
 
