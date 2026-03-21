@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-03-2026 om 04:40*
+*Laatst bijgewerkt: 21-03-2026 om 05:44*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Overstromingen op Hawaï, duizenden mensen geëvacueerd](https://nos.nl/l/2607173)
+  > Op Hawaï zijn door langdurige regen straten en huizen overstroomd. De overheid van de eilandengroep in de Stille Oceaan waarschuwt voor de mogelijke...
 - [Cuba verbiedt Amerikaanse ambassade 'schaamteloze' import van brandstof](https://nos.nl/l/2607169)
   > De Cubaanse regering verbiedt de Amerikaanse ambassade om diesel te importeren voor generatoren. Een verzoek daartoe is afgewezen, melden Amerikaanse...
 - [Musk misleidde aandeelhouders Twitter met tweets rond overname](https://nos.nl/l/2607168)
@@ -16,8 +18,6 @@
   > Amerikaanse openbaar aanklagers onderzoeken mogelijke banden van de Colombiaanse president Petro met drugshandelaren. Dat meldt persbureau AP op...
 - [Meer schademeldingen na aardbeving bij Eleveld, 24 acute situaties](https://nos.nl/l/2607164)
   > Het aantal schademeldingen na de aardbeving bij Eleveld in Drenthe van vorige week is verder opgelopen. Het zijn er nu in totaal ruim 1900, meldt...
-- [Twee doden door explosie van zelfgemaakte bom in Rome](https://nos.nl/l/2607161)
-  > Bij een explosie in het zuidoosten van Rome zijn twee mensen om het leven gekomen. Volgens de Italiaanse autoriteiten is dat gebeurd bij het maken...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Trump overweegt Iran-operatie af te bouwen, Teheran wil Straat van Hormuz openen voor Japanse schepen](https://www.ad.nl/buitenland/trump-overweegt-iran-operatie-af-te-bouwen-teheran-wil-straat-van-hormuz-openen-voor-japanse-schepen~ac528ac3/)
+  > Donald Trump zegt te overwegen om de militaire operaties tegen Iran af te schalen. Tegelijkertijd stuurt de VS 2500 extra mariniers naar het...
 - [Iran vuurde raketten af op Amerikaans-Britse basis op 4000 kilometer afstand in Stille Oceaan](https://www.ad.nl/buitenland/iran-vuurde-raketten-af-op-amerikaans-britse-basis-op-4000-kilometer-afstand-in-stille-oceaan~a8e8fd633/)
   > Iran heeft twee ballistische raketten afgevuurd op de Amerikaans-Britse militaire basis Diego Garcia in de Stille Oceaan, maar de basis is niet...
 - [Pentagon moet journalisten weer toelaten: rechter acht omstreden regels voor pers in strijd met grondwet](https://www.ad.nl/buitenland/pentagon-moet-journalisten-weer-toelaten-rechter-acht-omstreden-regels-voor-pers-in-strijd-met-grondwet~ae67dd9c/)
   > Het besluit van de regering-Trump om de activiteiten van verslaggevers in het Pentagon aan banden te leggen, is in strijd met de Amerikaanse...
 - [Botic van de Zandschulp uitgeschakeld op masterstoernooi Miami](https://www.ad.nl/sport/botic-van-de-zandschulp-uitgeschakeld-op-masterstoernooi-miami~a0962e4e9/)
   > Botic van de Zandschulp is uitgeschakeld op het masterstoernooi van Miami. In drie sets was de Amerikaanse top 10-speler Taylor Fritz in de tweede...
-- [Uniek kijkje achter de schermen: zo probeert Nederland om Bolle Jos uitgeleverd te krijgen](https://www.ad.nl/politiek/uniek-kijkje-achter-de-schermen-zo-probeert-nederland-om-bolle-jos-uitgeleverd-te-krijgen~ad28cbaa/)
+- [Als een video van Bolle Jos in Afrika opduikt, begint de diplomatieke strijd om hem naar hier te krijgen](https://www.ad.nl/politiek/als-een-video-van-bolle-jos-in-afrika-opduikt-begint-de-diplomatieke-strijd-om-hem-naar-hier-te-krijgen~ad28cbaa/)
   > Al meer dan een jaar woont drugscrimineel ‘Bolle Jos’ Leijdekkers onaantastbaar in Sierra Leone, nota bene als schoonzoon van de president. Achter de...
-- [Belarussische president Loekasjenko zegt dat Trump hem heeft uitgenodigd in Mar-a-Lago om ‘grote deal’ te bespreken](https://www.ad.nl/buitenland/belarussische-president-loekasjenko-zegt-dat-trump-hem-heeft-uitgenodigd-in-mar-a-lago-om-grote-deal-te-bespreken~adfb97be/)
-  > De Belarussische president Aleksandr Loekasjenko heeft tijdens een gesprek met journalisten gezegd dat Donald Trump hem heeft uitgenodigd in diens...
 
 ### Meest gelezen
 
