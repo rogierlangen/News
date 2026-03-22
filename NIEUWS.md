@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-03-2026 om 05:58*
+*Laatst bijgewerkt: 22-03-2026 om 07:02*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Verkiezingen in Rijnland-Palts bezorgen regering in Berlijn kopzorgen](https://nos.nl/l/2607322)
+  > Alle politieke ogen in Duitsland zijn vandaag gericht op Rijnland-Palts. De deelstaat grenzend aan België en Luxemburg kiest een nieuw parlement. Het...
+- [Is de AfD rechts, radicaal-rechts of extreemrechts?](https://nos.nl/l/2607321)
+  > Opnieuw loopt in Duitsland de discussie op of de Alternative für Deutschland (AfD) verboden kan worden, dit keer omdat er redenen blijken te zijn...
 - [Wekdienst 22/3: Steun voor Iraanse bevolking • PSV kan landskampioen worden](https://nos.nl/l/2607320)
   > Goedemorgen! Iraanse organisaties betuigen in Amsterdam steun aan het Iraanse volk en PSV kan vandaag bij Telstar landskampioen worden als Ajax wint...
 - [Heel Cuba weer in het donker: tweede landelijke stroomstoring deze week](https://nos.nl/l/2607315)
@@ -15,10 +19,6 @@
 - [Vogelgriep vastgesteld in Drentse Geesbrug, 24.000 kippen geruimd](https://nos.nl/l/2607314)
   > Op een legkippenbedrijf in het Drentse Geesbrug is vogelgriep vastgesteld. Zo'n 24.000 kippen moeten worden geruimd.
         In een straal van tien...
-- [Recordhitte in zuidwesten VS met temperaturen van boven 40 graden](https://nos.nl/l/2607313)
-  > Grote delen in het zuidwesten van de Verenigde Staten hebben te maken met extreme hitte. In onder meer Californië en Arizona werden deze week...
-- [WHO: tientallen doden bij aanval op ziekenhuis in Sudan](https://nos.nl/l/2607312)
-  > Bij een aanval op een ziekenhuis in Sudan zijn zeker 64 mensen om het leven gekomen, meldt de Wereldgezondheidsorganisatie WHO. Onder de doden zouden...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Steffen (25) bouwt in zijn eentje een megabedrijf en opent nu een winkel: ‘Dit jaar 3 miljoen euro omzet’](https://www.ad.nl/binnenland/steffen-25-bouwt-in-zijn-eentje-een-megabedrijf-en-opent-nu-een-winkel-dit-jaar-3-miljoen-euro-omzet~a34f7b54/)
-  > Een stukje karton ter grootte van een bankpas, maar soms meer waard dan een nieuwe auto. In de wereld van verzamelkaarten gaan sportkaarten voor...
-- [Kay (25) erft vrijstaand huis van zijn oppas en gaat nu viral op TikTok: ‘Ik dacht vooral: waar beginnen we aan?’](https://www.ad.nl/wonen/kay-25-erft-vrijstaand-huis-van-zijn-oppas-en-gaat-nu-viral-op-tiktok-ik-dacht-vooral-waar-beginnen-we-aan~a0158e0e/)
-  > Een groot, vrijstaand huis erven van je oppasoma en -opa. Gratis en voor niets. Is dat geen droom? Maar Kay en Larou uit Neede moeten de oude woning...
-- [Echtgenote staat stil bij 17 jaar huwelijk met Bruce Willis: ‘Ik ben gemaakt om van hem te houden’](https://www.ad.nl/show/echtgenote-staat-stil-bij-17-jaar-huwelijk-met-bruce-willis-ik-ben-gemaakt-om-van-hem-te-houden~a567eda3/)
-  > Emma Heming Willis staat zaterdag stil bij haar trouwdag met Bruce Willis. „Ik ben gemaakt om van hem te houden. 17 jaar”, schrijft Heming Willis bij...
-- [Dit bekende Nederlandse hotel sluit na 72 jaar de deuren: ‘Medewerkers zijn geschokt’](https://www.ad.nl/binnenland/dit-bekende-nederlandse-hotel-sluit-na-72-jaar-de-deuren-medewerkers-zijn-geschokt~a85fcd1f/)
-  > Hotel De Graafschap in Doetinchem sluit eind juli. De drie horecaruimten worden al jaren niet meer gebruikt. Nu komt het hele pand leeg te staan. En...
-- [Ruim miljoen auto’s niet gerepareerd ondanks terugroepactie, deze tien merken staan bovenaan](https://www.ad.nl/auto/ruim-miljoen-autos-niet-gerepareerd-ondanks-terugroepactie-deze-tien-merken-staan-bovenaan~adaac77c/)
-  > In Nederland rijden een miljoen auto’s rond met één of meer openstaande terugroepacties. Autobestuurders die geen gehoor geven aan zo’n oproep van de...
+- [De Klassieker wordt beslist op de vleugels: ‘Die gozer maakt me gek, maar hij heeft wel een groot pluspunt’](https://www.ad.nl/voetbal/de-klassieker-wordt-beslist-op-de-vleugels-die-gozer-maakt-me-gek-maar-hij-heeft-wel-een-groot-pluspunt~a59b4562/)
+  > Dick Advocaat zal Robin van Persie vertellen dat compact spelen de oplossing is. Maar wie de Klassieker wil winnen, moet toch echt de flanken...
+- [Pakt PSV vandaag al de landstitel? Zo wordt de club de vroegste kampioen ooit](https://www.ad.nl/voetbal/pakt-psv-vandaag-al-de-landstitel-zo-wordt-de-club-de-vroegste-kampioen-ooit~a06139d1/)
+  > Winterkampioen wordt PSV niet meer, maar dit weekend krijgen de Eindhovenaren een herkansing om de kampioensschaal in de lucht te steken. Zo pakt PSV...
+- [Honderdste Klassieker in Rotterdam: Ajax won het vaakst, wat verwacht jij van de wedstrijd?](https://www.ad.nl/voetbal/honderdste-klassieker-in-rotterdam-ajax-won-het-vaakst-wat-verwacht-jij-van-de-wedstrijd~ad65c755/)
+  > Feyenoord en Ajax staan zondag voor de honderdste keer tegenover elkaar in Rotterdam, waar Ajax het vaakst won. Wat verwacht jij van het duel van...
+- [Klassieker tussen Feyenoord en Ajax in de Kuip: dit zijn de vermoedelijke opstellingen](https://www.ad.nl/voetbal/klassieker-tussen-feyenoord-en-ajax-in-de-kuip-dit-zijn-de-vermoedelijke-opstellingen~a591070f/)
+  > De Klassieker zorgt bijna altijd voor spektakel. Feyenoord-trainer Robin van Persie kan een overwinning op Ajax goed gebruiken. De Amsterdammers...
+- [Buiten liggen de antwoorden voor het oprapen](https://www.ad.nl/mezza/buiten-liggen-de-antwoorden-voor-het-oprapen~a974cc6e/)
+  > Beau worstelt met een sombere bui, schrijft hij in zijn column in ons weekendmagazine Mezza. De schouders naar achteren en de blik naar voren, dan...
 
 ### Meest gelezen
 
