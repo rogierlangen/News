@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-03-2026 om 10:32*
+*Laatst bijgewerkt: 22-03-2026 om 11:28*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Jan en Johan hebben dementie, maar mogen elke dag naar buiten, ook na de tragische dood van Albert (79)](https://www.ad.nl/binnenland/jan-en-johan-hebben-dementie-maar-mogen-elke-dag-naar-buiten-ook-na-de-tragische-dood-van-albert-79~ac54f4f9/)
-  > Jan en Johan wandelen elke dag hetzelfde rondje. Twee bewoners met dementie, vrij om naar buiten te gaan. Ook na de fatale verdwijning van Albert...
-- [Vijf gebroken ribben en schouderbreuk: Italiaanse renster komt met update na horrorcrash in Milaan-San Remo](https://www.ad.nl/wielrennen/vijf-gebroken-ribben-en-schouderbreuk-italiaanse-renster-komt-met-update-na-horrorcrash-in-milaan-san-remo~ac3cdd48/)
-  > Milaan-San Remo voor vrouwen werd ontsierd door een nare valpartij. In de afdaling van de Cipressa gingen voorin het peloton rensters onderuit vlak...
-- [NEC in jacht op Champions League thuis tegen Heerenveen: bekijk hier de opstellingen](https://www.ad.nl/voetbal/nec-in-jacht-op-champions-league-thuis-tegen-heerenveen-bekijk-hier-de-opstellingen~acd910522/)
+- [NEC ziet Jasper Cillessen al vroeg uitvallen tegen Heerenveen, 23-jarige doelman maakt debuut](https://www.ad.nl/voetbal/nec-ziet-jasper-cillessen-al-vroeg-uitvallen-tegen-heerenveen-23-jarige-doelman-maakt-debuut~acd910522/)
   > NEC heeft zich na de zege op PSV (2-3) genesteld op de derde plaats in de VriendenLoterij eredivisie. In theorie kan de club uit Nijmegen zelfs...
-- [Vader en dochter al 16 jaar samen naar Feyenoord: ‘Weet niet hoe lang ik dit nog volhoud, maar ik blijf gaan’](https://www.ad.nl/binnenland/vader-en-dochter-al-16-jaar-samen-naar-feyenoord-weet-niet-hoe-lang-ik-dit-nog-volhoud-maar-ik-blijf-gaan~ae5b4313/)
-  > Theo van Uum (62) en zijn dochter Joanne (31) maken elke twee weken dezelfde reis: vanuit Gouda naar de Kuip voor een wedstrijd van Feyenoord. Op...
-- [Van chique ‘paashangers’ tot pistachestollen: hoe Pasen uitgroeit tot een soort mini-kerst](https://www.ad.nl/binnenland/van-chique-paashangers-tot-pistachestollen-hoe-pasen-uitgroeit-tot-een-soort-mini-kerst~a4538f70/)
-  > Paashangers, paas(disco)ballen, deco-kuikens, konijnenlampen en chocolade-eitjes met bizarre smaken. Wie een blik werpt op de winkelschappen kan maar...
+- [Maan voelt zich soms een ‘target’ in de media: ‘Dat is best zwaar’](https://www.ad.nl/show/maan-voelt-zich-soms-een-target-in-de-media-dat-is-best-zwaar~a7217dcf/)
+  > Maan de Steenwinkel hoopt dat ze ooit in staat is negatieve reacties naast zich neer te leggen. Dat vertelde de 29-jarige zangeres zaterdagavond...
+- [Premier Jetten ‘mag aanschuiven’ bij diner Trump, Willem-Alexander en Máxima overnachten in Witte Huis](https://www.ad.nl/politiek/premier-jetten-mag-aanschuiven-bij-diner-trump-willem-alexander-en-maxima-overnachten-in-witte-huis~aa5f5959/)
+  > Premier Rob Jetten schuift in Washington D.C. aan bij een privédiner tussen de Amerikaanse president Donald Trump en zijn vrouw Melania en koning...
+- [LIVE Keuken Kampioen Divisie | Droomstart ADO Den Haag dankzij eigen doelpunt De Graafschap](https://www.ad.nl/voetbal/live-keuken-kampioen-divisie-droomstart-ado-den-haag-dankzij-eigen-doelpunt-de-graafschap~a76d7fa7/)
+  > ADO Den Haag is al gepromoveerd, maar de strijd om het kampioenschap is nog niet beslist. De koploper van de Keuken Kampioen Divisie gaat vol voor de...
+- [Kampioenswedstrijd? Telstar weet al hoe je PSV kunt verslaan: ‘We hebben hun code toen voor eventjes gekraakt’](https://www.ad.nl/voetbal/kampioenswedstrijd-telstar-weet-al-hoe-je-psv-kunt-verslaan-we-hebben-hun-code-toen-voor-eventjes-gekraakt~a122501c/)
+  > Ze wonnen al eens van PSV dit seizoen, dus waarom niet nog een keer? Telstar-trainer Anthony Correia gelooft in een nieuwe stunt, maar dan wel mét...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Aardgas blijft onmisbaar voor steenfabriek, ondanks prijsexplosie](https://fd.nl/bedrijfsleven/1590277/aardgas-blijft-onmisbaar-voor-steenfabriek-ondanks-prijsexplosie)
+  > Steenfabriek Vandersanden zit ingeklemd tussen een hoge gasprijs, het Europese emissiehandelssysteem en een terugvallende vraag naar bakstenen.
 - [Cuba kampt met tweede landelijke stroomstoring temidden van Amerikaanse olieblokkade](https://fd.nl/politiek/1590333/cuba-kampt-met-tweede-landelijke-stroomstoring-temidden-van-amerikaanse-olieblokkade)
   > Cuba kan niet zonder olie van buiten, maar een Amerikaanse blokkade laat sinds januari geen schepen meer door.
 - [Philips-topman Jakobs: ‘Dat er steeds minder Nederlandse ceo’s zijn, is een punt van zorg’](https://fd.nl/bedrijfsleven/1590188/philips-topman-jakobs-dat-er-steeds-minder-nederlandse-ceos-zijn-is-een-punt-van-zorg)
@@ -54,8 +56,6 @@
   > De Amerikaanse president dreigt anders na 48 uur Iraanse energiecentrales te vernietigen. Iran waarschuwt in reactie op de dreigementen voor...
 - [Financiële markten stevenen af op nieuwe week vol onrust](https://fd.nl/financiele-markten/1590331/financiele-markten-stevenen-af-op-nieuwe-week-vol-onrust)
   > Op de obligatiemarkt is stress te zien, maar de aandelenmarkten blijven relatief stoïcijns onder het Iran-conflict. Hoe lang nog?
-- [Maak defensie-investeringen tot vliegwiel voor energie en tech](https://fd.nl/opinie/1589768/maak-defensie-investeringen-tot-transitievliegwiel)
-  > Europa moet zich snel herbewapenen, maar niet ten koste van andere cruciale transities. Juist door defensie te verbinden met energie en digitale...
 
 ### Meest gelezen
 
