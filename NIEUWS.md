@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-03-2026 om 22:30*
+*Laatst bijgewerkt: 22-03-2026 om 23:33*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Links-liberale premier Golob eist ondanks klein verschil winst op bij Sloveense verkiezingen](https://www.ad.nl/buitenland/links-liberale-premier-golob-eist-ondanks-klein-verschil-winst-op-bij-sloveense-verkiezingen~a3f23c14/)
+  > Zittend premier Robert Golob heeft zondagavond de overwinning opgeëist bij de parlementsverkiezingen in Slovenië. Uit bijna definitieve resultaten...
+- [Voetbalpodcast | ‘Er straalde stress af van deze Klassieker’](https://www.ad.nl/voetbal/voetbalpodcast-er-straalde-stress-af-van-deze-klassieker~ac8603a9/)
+  > Feyenoord-Ajax was een wedstrijd zoals je hem misschien had kunnen verwachten. Niet groots, niet meeslepend. Wel matig voetbal en vooral veel stress....
 - [Real Madrid klopt Atlético in spectaculaire derby, ondanks rode kaart en heerlijke tegengoal](https://www.ad.nl/voetbal/real-madrid-klopt-atletico-in-spectaculaire-derby-ondanks-rode-kaart-en-heerlijke-tegengoal~a01e25b4/)
   > Real Madrid heeft in eigen huis de stadsderby tegen Atlético gewonnen. Een onnodige rode kaart en een schitterend doelpunt van de bezoekers brachten...
-- [Nederlandse skiër omgekomen op piste in Oostenrijkse Fiss](https://www.ad.nl/buitenland/nederlandse-skier-omgekomen-op-piste-in-oostenrijkse-fiss~aa2e43bd/)
+- [Nederlandse skiër omgekomen op piste in Oostenrijks skigebied Fiss](https://www.ad.nl/buitenland/nederlandse-skier-omgekomen-op-piste-in-oostenrijks-skigebied-fiss~aa2e43bd/)
   > Een 25-jarige Nederlandse skiër is zaterdagmiddag omgekomen na een ongeval op de piste in het Oostenrijkse skigebied Fiss. Dat meldt de Tiroolse...
 - [Gemiste matchdarts nekken Zonneveld, Van Gerwen kansloos tegen Humphries in halve finale Belgian Darts Open](https://www.ad.nl/darts/gemiste-matchdarts-nekken-zonneveld-van-gerwen-kansloos-tegen-humphries-in-halve-finale-belgian-darts-open~ac8b5294/)
   > Niels Zonneveld en Michael van Gerwen zijn er niet in geslaagd om door te stoten naar de finale van de Belgian Darts Open. Niels Zonneveld had...
-- [TransferTalk | FC Köln neemt afscheid van trainer, NAC moet na seizoen op zoek naar nieuwe aanvoerder](https://www.ad.nl/voetbal/transfertalk-fc-koln-neemt-afscheid-van-trainer-nac-moet-na-seizoen-op-zoek-naar-nieuwe-aanvoerder~a35ea681/)
-  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
-- [Koeien zakken door vloer van stal, persoon raakt zwaargewond](https://www.ad.nl/binnenland/koeien-zakken-door-vloer-van-stal-persoon-raakt-zwaargewond~a5ef4439/)
-  > Bij een boerderij aan de Muskushouwsestraat in Heteren zijn zondag zes koeien in een put terechtgekomen in een stal. Een persoon is bij het incident...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Motorbootloze zondag](https://fd.nl/opinie/1590337/motorbootloze-zondag)
+  > In 2001 werd de ‘Regeling autoloze zondag bij oliecrisis’ ingevoerd: de elektrische auto ontbreekt.
+- [Vrouwelijke arbeidsmigranten: Geen werk, geen huis, geen kind](https://fd.nl/opinie/1589548/vrouwelijke-arbeidsmigranten-geen-werk-geen-huis-geen-kind)
+  > Sommige arbeidsmigranten die in Nederland ongewenst zwanger raken, zien geen andere optie dan hun kind ter adoptie af te staan. Deze vrouwen bevinden...
+- [Personalia maandag 23 maart](https://fd.nl/bedrijfsleven/1590255/personalia-maandag-23-maart)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [President Libanon waarschuwt voor Israëlisch grondoffensief](https://fd.nl/economie/1590374/president-libanon-waarschuwt-voor-israelisch-grondoffensief)
   > Joseph Aoun roept de internationale gemeenschap op om direct maatregelen te nemen om Libanon te beschermen tegen Israëlische aanvallen.
 - [Gevoelige nederlaag voor SPD in Rijnland-Palts](https://fd.nl/politiek/1590339/gevoelige-nederlaag-van-spd-in-rijnland-palts)
   > Het resultaat verhoogt de druk op de sociaaldemocraten om aan een duidelijker profiel in regeringscoalitie in Berlijn te werken. Dat kan tot meer...
-- [EU mag veto Orbán niet aanvaarden](https://fd.nl/opinie/1590234/eu-mag-veto-orban-niet-aanvaarden)
-  > Hongarije ligt dwars voor een broodnodige lening aan Oekraïne, wat vooral politiek handig lijkt voor premier Viktor Orbán, die in verkiezingsmodus...
-- [Madrid geeft huishoudens nauwelijks compensatie voor hogere energieprijzen, maar met een reden](https://fd.nl/samenleving/1590240/madrid-geefthuishoudens-nauwelijks-compensatie-voor-hogere-energieprijzen-maar-dat-heeft-een-reden)
-  > Dat er weinig geklaagd wordt over een beperkte compensatie, komt omdat Spanjaarden in vergelijking met de meeste andere EU-inwoners al een lage...
-- [De tijd dringt voor groot CO₂-opslagproject Aramis](https://fd.nl/bedrijfsleven/1590241/de-tijd-dringt-voor-groot-co-opslagproject-aramis)
-  > De benodigde subsidies moeten binnenkort worden aangevraagd, maar van enkele grote beoogde klanten is de deelname nog onzeker.
 
 ### Meest gelezen
 
