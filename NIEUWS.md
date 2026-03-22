@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-03-2026 om 13:01*
+*Laatst bijgewerkt: 22-03-2026 om 14:32*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Rijke toeristen vieren voor 110.000 dollar weekje vakantie op Antarctica, zelfs hun poep gaat mee terug](https://www.ad.nl/buitenland/rijke-toeristen-vieren-voor-110-000-dollar-weekje-vakantie-op-antarctica-zelfs-hun-poep-gaat-mee-terug~a432a6a5/)
-  > Ze zijn er. Toeristen die 110.000 dollar per persoon betalen voor een weekje Antarctica. Ze ontsnappen voor even naar de verste uithoek van de wereld...
-- [Niels Zonneveld stunt met zege op Luke Littler in zinderende partij op Belgian Darts Open](https://www.ad.nl/darts/niels-zonneveld-stunt-met-zege-op-luke-littler-in-zinderende-partij-op-belgian-darts-open~ac8b5294/)
-  > Niels Zonneveld heeft op de Belgian Darts Open voor een daverende verrassing gezorgd. De 27-jarige Nederlander stuurde in de achtste finales...
-- [Sylvie schittert in opvallende korsetjurk en Roxeanne is dankbaar voor onvergetelijke momenten](https://www.ad.nl/show/sylvie-schittert-in-opvallende-korsetjurk-en-roxeanne-is-dankbaar-voor-onvergetelijke-momenten~a90bbd70/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Chery maakt op fraaie wijze zijn tweede doelpunt: NEC naast Heerenveen](https://www.ad.nl/voetbal/chery-maakt-op-fraaie-wijze-zijn-tweede-doelpunt-nec-naast-heerenveen~acd910522/)
-  > NEC heeft zich na de zege op PSV (2-3) genesteld op de derde plaats in de VriendenLoterij Eredivisie. In theorie kan de club uit Nijmegen zelfs...
-- [LIVE eredivisie | Kalou, Guidetti en Bijlow steunen Feyenoord bij Klassieker, Weghorst in de spits bij Ajax](https://www.ad.nl/voetbal/live-eredivisie-kalou-guidetti-en-bijlow-steunen-feyenoord-bij-klassieker-weghorst-in-de-spits-bij-ajax~a591070f/)
-  > De Klassieker staat op het punt van beginnen. Voormalig Feyenoord-spelers Justin Bijlow, Bonaventure Kalou en John Guidetti zijn aanwezig in de Kuip....
+- [Mega-MRI-scanner wordt de allersterkste ter wereld en moet ziektes als dementie veel eerder opsporen](https://www.ad.nl/binnenland/mega-mri-scanner-wordt-de-allersterkste-ter-wereld-en-moet-ziektes-als-dementie-veel-eerder-opsporen~af41cc86/)
+  > De sterkste MRI-scanner ter wereld, een gezamenlijk project van academische ziekenhuizen en universiteiten in Nederland, wordt in Nijmegen gebouwd....
+- [Iran dreigt energie-installaties te 'vernietigen' als Trump vasthoudt aan ultimatum](https://www.ad.nl/buitenland/iran-dreigt-energie-installaties-te-vernietigen-als-trump-vasthoudt-aan-ultimatum~ac528ac3/)
+  > Israëlische nucleaire installaties zullen doelwit worden van het Iraanse leger als de eigen energie-infrastructuur van Iran wordt aangevallen. Die...
+- [Achtervolging van 150 kilometer eindigt met klapband: gezochte Nederlander (21) opgepakt na dolle vlucht](https://www.ad.nl/binnenland/achtervolging-van-150-kilometer-eindigt-met-klapband-gezochte-nederlander-21-opgepakt-na-dolle-vlucht~a5430f7e/)
+  > Een 21-jarige Nederlander is zaterdagnacht opgepakt na een wilde achtervolging. De rit begon in de omgeving van het Belgische Bocholt en eindigde 150...
+- [Matige eerste helft van Klassieker zit erop, Mokio haalt kopbal Watanabe van de lijn](https://www.ad.nl/voetbal/matige-eerste-helft-van-klassieker-zit-erop-mokio-haalt-kopbal-watanabe-van-de-lijn~a591070f/)
+  > Na een enorme hoeveelheid vuurwerk bij de spelersopkomst is editie 201 van de Klassieker bezig. De rivalen Feyenoord en Ajax spelen voor de...
+- [Beroemde voetballer beticht Chappell Roan van onaanvaardbaar gedrag richting dochter, zangeres ontkent](https://www.ad.nl/show/beroemde-voetballer-beticht-chappell-roan-van-onaanvaardbaar-gedrag-richting-dochter-zangeres-ontkent~acb3dce4/)
+  > De Italiaanse voetballer Jorginho (34) heeft op Instagram uitgehaald naar Chappell Roan. De voormalig speler van Napoli, Chelsea en Arsenal is boos...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Mislukken verkoop hotel nieuwe domper voor Annexum-beleggers](https://fd.nl/bedrijfsleven/1590113/mislukken-verkoop-hotel-nieuwe-domper-voor-annexum-beleggers)
+  > Een juridische procedure over een afgeketste verkoop van een hotel in Maastricht vestigt de aandacht op een investeringsproduct van fondsbedrijf...
+- [Slovenië beperkt tijdelijk verkoop van brandstof aan de pomp](https://fd.nl/politiek/1590335/slovenie-beperkt-tijdelijk-verkoop-van-brandstof-aan-de-pomp)
+  > De maatregelen zijn het antwoord op tankende consumenten uit buurlanden en hamstergedrag van Slovenen. De beperkingen moeten brandstoftekorten...
 - [Bij de Duitse bestelbus­inrichter Bott weten ze hoe je ‘verborgen kampioen’ wordt](https://fd.nl/bedrijfsleven/1587298/bij-de-duitse-bestelbusinrichter-bott-weten-ze-hoe-je-verborgen-kampioen-wordt)
   > Bott Group blijft voor de buitenwereld grotendeels onder de radar, maar is marktleider in opbergsystemen voor bedrijfswagens in Europa. ‘Bedrijven in...
 - [De honden van Wall Street](https://fd.nl/opinie/1590253/de-honden-van-wall-street)
   > Onlangs redde een anonieme New Yorkse held een hond die door het ijs was gezakt van de vijver in Central Park. In de wereld van private credit gaat...
 - [Havas is een spannend aandeel dat bijna niemand interesseert](https://fd.nl/financiele-markten/1590244/havas-is-een-spannend-aandeel-dat-bijna-niemand-interesseert)
   > Overnames, fusiegeruchten en AI-plannen ten spijt: beleggers gunnen het Franse reclamebureau Havas geen blik waardig. Pijnlijk, voor een bedrijf dat...
-- [Vogelgriep op Drents bedrijf, 24.000 dieren gedood](https://fd.nl/bedrijfsleven/1590252/vogelgriep-op-drents-bedrijf-24-000-dieren-gedood)
-  > Sinds het virus jaarrond onder wilde vogels aanwezig is, hebben pluimveebedrijven grote moeite het buiten de deur te houden.
-- [Aardgas blijft onmisbaar voor steenfabriek, ondanks prijsexplosie](https://fd.nl/bedrijfsleven/1590277/aardgas-blijft-onmisbaar-voor-steenfabriek-ondanks-prijsexplosie)
-  > Steenfabriek Vandersanden zit ingeklemd tussen een hoge gasprijs, het Europese emissiehandelssysteem en een terugvallende vraag naar bakstenen.
 
 ### Meest gelezen
 
