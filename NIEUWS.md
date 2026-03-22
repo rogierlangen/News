@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-03-2026 om 16:36*
+*Laatst bijgewerkt: 22-03-2026 om 17:29*
 
 ---
 
@@ -8,7 +8,9 @@
 
 ### Laatste nieuws
 
-- [Zwijnen trekken steeds vaker Gelderse Hattem in, overlast neemt toe](https://nos.nl/l/2607395)
+- [Derde dode na zware lawine in Zuid-Tirol, nog twee in kritieke toestand](https://nos.nl/l/2607400)
+  > Het aantal doden door de zware lawine die gisteren zo'n 25 skiërs verraste in het Noord-Italiaanse Zuid-Tirol is opgelopen tot drie. Een van de drie...
+- [Zwijnen trekken steeds vaker Hattem in, overlast neemt toe](https://nos.nl/l/2607395)
   > In Hattem, ten noorden van de Veluwe, worden de afgelopen maanden steeds vaker wilde zwijnen gesignaleerd. De beesten zoeken vooral aan de randen van...
 - [Iraanse aanvallen raken hart van Qatarese economie, maar buffers zijn enorm](https://nos.nl/l/2607383)
   > De Iraanse aanvallen op energie-installaties in de Golf treffen Qatar recht in het hart. Met schade aan de LNG-hub in Ras Laffan en de blokkade van...
@@ -16,8 +18,6 @@
   > Bij recente Iraanse aanvallen op Israël zijn honderden gewonden gevallen. In Tel Aviv, de tweede stad van Israël, zijn vanochtend minstens vijftien...
 - [Woningdelen: de wil is er, maar niet overal komt het van de grond](https://nos.nl/l/2607352)
   > Twee of drie huishoudens achter één voordeur. Het kabinet en experts zien woningdelen en -splitsen als een snelle manier om de druk op de woningmarkt...
-- [Zeven doden bij helikoptercrash voor kust van Qatar](https://nos.nl/l/2607351)
-  > Voor de kust van Qatar zijn gisteren zeven mensen om het leven gekomen bij een helikoptercrash. Dat hebben de ministeries van Defensie van zowel...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [FC Groningen via strafschop op voorsprong tegen AZ, Jurjus voorkomt blunder](https://www.ad.nl/voetbal/fc-groningen-via-strafschop-op-voorsprong-tegen-az-jurjus-voorkomt-blunder~a820bd2f/)
+- [FC Groningen gooit wedstrijd tegen AZ in het slot: PSV-huurling Land trefzeker](https://www.ad.nl/voetbal/fc-groningen-gooit-wedstrijd-tegen-az-in-het-slot-psv-huurling-land-trefzeker~a820bd2f/)
   > Nummer 6 AZ gaat op bezoek bij FC Groningen, de nummer 10. Trekt AZ de goede vorm door? En hoe zal Kees Smit zich voelen? Hij werd voor het eerst...
-- [Rapportcijfers Klassieker | Verdediger van Feyenoord én Ajax blinken uit, twee spelers krijgen een 4](https://www.ad.nl/voetbal/rapportcijfers-klassieker-verdediger-van-feyenoord-en-ajax-blinken-uit-twee-spelers-krijgen-een-4~a997c6de/)
-  > De grootste uitblinkers van de Klassieker tussen Feyenoord en Ajax stonden in de achterhoede: daar kregen spelers van beide clubs een 7,5. Dit zijn...
-- [Degradatiezorgen nemen toe voor Simons en Van de Ven met Spurs na thuisnederlaag tegen concurrent](https://www.ad.nl/voetbal/degradatiezorgen-nemen-toe-voor-simons-en-van-de-ven-met-spurs-na-thuisnederlaag-tegen-concurrent~a4d92fde/)
-  > De degradatiezorgen voor Tottenham Hotspur zijn zondag een stuk serieuzer geworden. De ploeg van trainer Igor Tudor verloor in het eigen stadion,...
-- [Zwaar ongeluk massaal gefilmd en gefotografeerd, ruim honderd bestuurders beboet](https://www.ad.nl/binnenland/zwaar-ongeluk-massaal-gefilmd-en-gefotografeerd-ruim-honderd-bestuurders-beboet~a8aac176/)
-  > De politie heeft meer dan honderd bekeuringen uitgedeeld aan bestuurders die hun telefoon gebruikten bij het passeren van een ernstig ongeval op de...
-- [Feyenoord houdt dankzij late penalty voorsprong van vijf punten op Ajax na matige Klassieker](https://www.ad.nl/voetbal/feyenoord-houdt-dankzij-late-penalty-voorsprong-van-vijf-punten-op-ajax-na-matige-klassieker~a591070f/)
-  > Feyenoord heeft de aanval van Ajax in de Klassieker ternauwernood afgeslagen. De Amsterdammers leken in een zeer belabberd gevecht door een fraaie...
+- [Ontsnapte gevangene die wapen van begeleider ontfutselde bij Diak, zou plofkraakverdachte Nabil S. zijn](https://www.ad.nl/utrecht/ontsnapte-gevangene-die-wapen-van-begeleider-ontfutselde-bij-diak-zou-plofkraakverdachte-nabil-s-zijn~a30692d3/)
+  > De vrijdagavond aangehouden gedetineerde die eerder die dag ontsnapte bij het Utrechtse Diakonessenhuis is  Nabil S. Hij is een bekende in het...
+- [Slovenen mogen nog maar 50 liter per dag tanken](https://www.ad.nl/buitenland/slovenen-mogen-nog-maar-50-liter-per-dag-tanken~ade0abee/)
+  > In Slovenië mogen automobilisten voorlopig nog maar 50 liter per dag tanken vanwege tekorten bij tankstations. Het land heeft last van Italianen en...
+- [Invaller Kay Tejan laat BUKO Stadion ontploffen en vergroot voorsprong tegen PSV](https://www.ad.nl/voetbal/invaller-kay-tejan-laat-buko-stadion-ontploffen-en-vergroot-voorsprong-tegen-psv~a54faa73/)
+  > Koploper PSV verloor dit jaar slechts drie keer: van NEC, FC Volendam én Telstar. Kunnen de Eindhovenaren wraak nemen of stunt Telstar opnieuw tegen...
+- [ManCity-doelman brengt driemaal redding en voorkomt goal Arsenal, uitstekende ingreep Aké](https://www.ad.nl/voetbal/mancity-doelman-brengt-driemaal-redding-en-voorkomt-goal-arsenal-uitstekende-ingreep-ake~abd3c1a2/)
+  > Arsenal en Manchester City strijden op Wembley om de eerste prijs van het seizoen: wie wint de League Cup? Arsenal won het tweede bekertoernooi van...
 
 ### Meest gelezen
 
