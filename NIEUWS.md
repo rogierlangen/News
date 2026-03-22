@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-03-2026 om 17:29*
+*Laatst bijgewerkt: 22-03-2026 om 18:43*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Exitpoll: regeringspartij premier Golob nipt de grootste bij verkiezingen Slovenië](https://nos.nl/l/2607424)
+  > Premier Golob lijkt op basis van de exitpoll de Sloveense verkiezingen te winnen. Zijn Svoboda-partij zou bijna 30 procent van de stemmen binnen...
 - [Derde dode na zware lawine in Zuid-Tirol, nog twee in kritieke toestand](https://nos.nl/l/2607400)
   > Het aantal doden door de zware lawine die gisteren zo'n 25 skiërs verraste in het Noord-Italiaanse Zuid-Tirol is opgelopen tot drie. Een van de drie...
 - [Zwijnen trekken steeds vaker Hattem in, overlast neemt toe](https://nos.nl/l/2607395)
@@ -16,8 +18,6 @@
   > De Iraanse aanvallen op energie-installaties in de Golf treffen Qatar recht in het hart. Met schade aan de LNG-hub in Ras Laffan en de blokkade van...
 - [Honderden gewonden bij Iraanse aanvallen op Israël, Tel Aviv geraakt door clusterbom](https://nos.nl/l/2607353)
   > Bij recente Iraanse aanvallen op Israël zijn honderden gewonden gevallen. In Tel Aviv, de tweede stad van Israël, zijn vanochtend minstens vijftien...
-- [Woningdelen: de wil is er, maar niet overal komt het van de grond](https://nos.nl/l/2607352)
-  > Twee of drie huishoudens achter één voordeur. Het kabinet en experts zien woningdelen en -splitsen als een snelle manier om de druk op de woningmarkt...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [FC Groningen gooit wedstrijd tegen AZ in het slot: PSV-huurling Land trefzeker](https://www.ad.nl/voetbal/fc-groningen-gooit-wedstrijd-tegen-az-in-het-slot-psv-huurling-land-trefzeker~a820bd2f/)
-  > Nummer 6 AZ gaat op bezoek bij FC Groningen, de nummer 10. Trekt AZ de goede vorm door? En hoe zal Kees Smit zich voelen? Hij werd voor het eerst...
-- [Ontsnapte gevangene die wapen van begeleider ontfutselde bij Diak, zou plofkraakverdachte Nabil S. zijn](https://www.ad.nl/utrecht/ontsnapte-gevangene-die-wapen-van-begeleider-ontfutselde-bij-diak-zou-plofkraakverdachte-nabil-s-zijn~a30692d3/)
-  > De vrijdagavond aangehouden gedetineerde die eerder die dag ontsnapte bij het Utrechtse Diakonessenhuis is  Nabil S. Hij is een bekende in het...
-- [Slovenen mogen nog maar 50 liter per dag tanken](https://www.ad.nl/buitenland/slovenen-mogen-nog-maar-50-liter-per-dag-tanken~ade0abee/)
-  > In Slovenië mogen automobilisten voorlopig nog maar 50 liter per dag tanken vanwege tekorten bij tankstations. Het land heeft last van Italianen en...
-- [Invaller Kay Tejan laat BUKO Stadion ontploffen en vergroot voorsprong tegen PSV](https://www.ad.nl/voetbal/invaller-kay-tejan-laat-buko-stadion-ontploffen-en-vergroot-voorsprong-tegen-psv~a54faa73/)
-  > Koploper PSV verloor dit jaar slechts drie keer: van NEC, FC Volendam én Telstar. Kunnen de Eindhovenaren wraak nemen of stunt Telstar opnieuw tegen...
-- [ManCity-doelman brengt driemaal redding en voorkomt goal Arsenal, uitstekende ingreep Aké](https://www.ad.nl/voetbal/mancity-doelman-brengt-driemaal-redding-en-voorkomt-goal-arsenal-uitstekende-ingreep-ake~abd3c1a2/)
-  > Arsenal en Manchester City strijden op Wembley om de eerste prijs van het seizoen: wie wint de League Cup? Arsenal won het tweede bekertoernooi van...
+- [Na zege op Luke Littler moet ook Danny Noppert eraan geloven: Niels Zonneveld naar halve finale Belgian Darts Open](https://www.ad.nl/darts/na-zege-op-luke-littler-moet-ook-danny-noppert-eraan-geloven-niels-zonneveld-naar-halve-finale-belgian-darts-open~ac8b5294/)
+  > Niels Zonneveld staat door een 6-3 overwinning op Danny Noppert in de kwartfinale van de Belgian Darts Open. Een ronde eerder zorgde de Nederlander...
+- [Zoek de verschillen tussen dit Belgische en Nederlandse tankstation](https://www.ad.nl/auto/zoek-de-verschillen-tussen-dit-belgische-en-nederlandse-tankstation~acba9169/)
+  > Een verschil van dag en nacht. Lege tankstations aan de Nederlandse kant van de grens; op een paar kilometer rijden staan de tanktoeristen in de file...
+- [Anti-woke of tegen een azc: kaapt Forum voor Democratie christelijke kiezers weg?](https://www.ad.nl/politiek/anti-woke-of-tegen-een-azc-kaapt-forum-voor-democratie-christelijke-kiezers-weg~aedbe40c/)
+  > Forum voor Democratie boekt een enorme overwinning. ChristenUnie verliest fors. Toeval of niet? Vijf verklaringen voor de opmars van deze...
+- [Magische dag voor ManCity-talent: kind van de club goud waard in League Cup-finale tegen Arsenal](https://www.ad.nl/voetbal/magische-dag-voor-mancity-talent-kind-van-de-club-goud-waard-in-league-cup-finale-tegen-arsenal~abd3c1a2/)
+  > Hij is geboren in Manchester, speelt sinds zijn achtste voor City en geldt als een van de grootste talenten. Zondag beleefde hij een dag om van te...
+- [Anke betaalde bijna 1000 euro voor een schoonmaakhulp die amper iets uitvoerde](https://www.ad.nl/geld/anke-betaalde-bijna-1000-euro-voor-een-schoonmaakhulp-die-amper-iets-uitvoerde~a772b900/)
+  > Anke Berends (38) betaalde bijna 1000 euro voor een schoonmaakhulp die de kantjes ervan af bleek te lopen. Iedereen maakt weleens een fout waar...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Madrid geeft huishoudens nauwelijks compensatie voor hogere energieprijzen, maar met een reden](https://fd.nl/samenleving/1590240/madrid-geefthuishoudens-nauwelijks-compensatie-voor-hogere-energieprijzen-maar-dat-heeft-een-reden)
+  > Dat er weinig geklaagd wordt over een beperkte compensatie, komt omdat Spanjaarden in vergelijking met de meeste andere EU-inwoners al een lage...
 - [De tijd dringt voor groot CO₂-opslagproject Aramis](https://fd.nl/bedrijfsleven/1590241/de-tijd-dringt-voor-groot-co-opslagproject-aramis)
   > De benodigde subsidies moeten binnenkort worden aangevraagd, maar van enkele grote beoogde klanten is de deelname nog onzeker.
 - [Trump stuurt ICE-agenten naar Amerikaanse vliegvelden](https://fd.nl/financiele-markten/1590338/trump-stuurt-ice-agenten-naar-amerikaanse-vliegvelden)
@@ -54,8 +56,6 @@
   > De zaak betreft vermeende corruptie rond verkiezingen in de Afrikaanse landen Togo en Guinee. Het proces tegen Bolloré en twee andere zakenmannen...
 - [Mislukken verkoop hotel nieuwe domper voor Annexum-beleggers](https://fd.nl/bedrijfsleven/1590113/mislukken-verkoop-hotel-nieuwe-domper-voor-annexum-beleggers)
   > Een juridische procedure over een afgeketste verkoop van een hotel in Maastricht vestigt de aandacht op een investeringsproduct van fondsbedrijf...
-- [Slovenië beperkt tijdelijk verkoop van brandstof aan de pomp](https://fd.nl/politiek/1590335/slovenie-beperkt-tijdelijk-verkoop-van-brandstof-aan-de-pomp)
-  > De maatregelen zijn het antwoord op tankende consumenten uit buurlanden en hamstergedrag van Slovenen. De beperkingen moeten brandstoftekorten...
 
 ### Meest gelezen
 
