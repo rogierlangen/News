@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-03-2026 om 18:43*
+*Laatst bijgewerkt: 22-03-2026 om 19:30*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [CDU wint verkiezingen in Rijnland-Palts, grote winst AfD](https://nos.nl/l/2607425)
+  > Bij de deelstaatverkiezingen in de Duitse deelstaat Rijnland-Palts lijkt de CDU de grootste partij te worden. Volgens de exitpoll krijgt de partij...
 - [Exitpoll: regeringspartij premier Golob nipt de grootste bij verkiezingen Slovenië](https://nos.nl/l/2607424)
-  > Premier Golob lijkt op basis van de exitpoll de Sloveense verkiezingen te winnen. Zijn Svoboda-partij zou bijna 30 procent van de stemmen binnen...
+  > De liberale premier Golob lijkt op basis van de exitpoll de Sloveense verkiezingen te hebben gewonnen. Zijn Svoboda-partij zou bijna 30 procent van...
 - [Derde dode na zware lawine in Zuid-Tirol, nog twee in kritieke toestand](https://nos.nl/l/2607400)
   > Het aantal doden door de zware lawine die gisteren zo'n 25 skiërs verraste in het Noord-Italiaanse Zuid-Tirol is opgelopen tot drie. Een van de drie...
 - [Zwijnen trekken steeds vaker Hattem in, overlast neemt toe](https://nos.nl/l/2607395)
   > In Hattem, ten noorden van de Veluwe, worden de afgelopen maanden steeds vaker wilde zwijnen gesignaleerd. De beesten zoeken vooral aan de randen van...
 - [Iraanse aanvallen raken hart van Qatarese economie, maar buffers zijn enorm](https://nos.nl/l/2607383)
   > De Iraanse aanvallen op energie-installaties in de Golf treffen Qatar recht in het hart. Met schade aan de LNG-hub in Ras Laffan en de blokkade van...
-- [Honderden gewonden bij Iraanse aanvallen op Israël, Tel Aviv geraakt door clusterbom](https://nos.nl/l/2607353)
-  > Bij recente Iraanse aanvallen op Israël zijn honderden gewonden gevallen. In Tel Aviv, de tweede stad van Israël, zijn vanochtend minstens vijftien...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Na zege op Luke Littler moet ook Danny Noppert eraan geloven: Niels Zonneveld naar halve finale Belgian Darts Open](https://www.ad.nl/darts/na-zege-op-luke-littler-moet-ook-danny-noppert-eraan-geloven-niels-zonneveld-naar-halve-finale-belgian-darts-open~ac8b5294/)
-  > Niels Zonneveld staat door een 6-3 overwinning op Danny Noppert in de kwartfinale van de Belgian Darts Open. Een ronde eerder zorgde de Nederlander...
-- [Zoek de verschillen tussen dit Belgische en Nederlandse tankstation](https://www.ad.nl/auto/zoek-de-verschillen-tussen-dit-belgische-en-nederlandse-tankstation~acba9169/)
-  > Een verschil van dag en nacht. Lege tankstations aan de Nederlandse kant van de grens; op een paar kilometer rijden staan de tanktoeristen in de file...
-- [Anti-woke of tegen een azc: kaapt Forum voor Democratie christelijke kiezers weg?](https://www.ad.nl/politiek/anti-woke-of-tegen-een-azc-kaapt-forum-voor-democratie-christelijke-kiezers-weg~aedbe40c/)
-  > Forum voor Democratie boekt een enorme overwinning. ChristenUnie verliest fors. Toeval of niet? Vijf verklaringen voor de opmars van deze...
-- [Magische dag voor ManCity-talent: kind van de club goud waard in League Cup-finale tegen Arsenal](https://www.ad.nl/voetbal/magische-dag-voor-mancity-talent-kind-van-de-club-goud-waard-in-league-cup-finale-tegen-arsenal~abd3c1a2/)
-  > Hij is geboren in Manchester, speelt sinds zijn achtste voor City en geldt als een van de grootste talenten. Zondag beleefde hij een dag om van te...
-- [Anke betaalde bijna 1000 euro voor een schoonmaakhulp die amper iets uitvoerde](https://www.ad.nl/geld/anke-betaalde-bijna-1000-euro-voor-een-schoonmaakhulp-die-amper-iets-uitvoerde~a772b900/)
-  > Anke Berends (38) betaalde bijna 1000 euro voor een schoonmaakhulp die de kantjes ervan af bleek te lopen. Iedereen maakt weleens een fout waar...
+- [YouTube-ster Jesse steelt ook als muzikant de show: ‘Wil op steeds vettere plekken spelen’](https://www.ad.nl/rotterdam/youtube-ster-jesse-steelt-ook-als-muzikant-de-show-wil-op-steeds-vettere-plekken-spelen~aad371f5/)
+  > Hij werd bekend met online video’s, maar Jesse Hoefnagels (24) is allang niet meer alleen ‘die jongen van YouTube’. De Rotterdammer bouwt inmiddels...
+- [Chantal zoekt nieuwe huisgenoten en Bram en DJ Jean zijn ‘friends forever’](https://www.ad.nl/show/chantal-zoekt-nieuwe-huisgenoten-en-bram-en-dj-jean-zijn-friends-forever~a90bbd70/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Keeper slaat tanden uit mond van 17-jarige voetballer in Limburg](https://www.ad.nl/binnenland/keeper-slaat-tanden-uit-mond-van-17-jarige-voetballer-in-limburg~a31c4bcae/)
+  > Een 17-jarige voetballer van RKUVC uit het Zuid-Limburgse Ulestraten is zaterdag drie tanden verloren nadat een doelman hem had geslagen. Dat...
+- [Lutsharel Geertruida bij Oranje gehaald als vervanger van geblesseerde Jurriën Timber](https://www.ad.nl/voetbal/lutsharel-geertruida-bij-oranje-gehaald-als-vervanger-van-geblesseerde-jurrien-timber~a0796607/)
+  > Bondscoach Ronald Koeman heeft Lutsharel Geertruida opgeroepen voor het Nederlands elftal. De verdediger van Sunderland is toegevoegd aan de selectie...
+- [Sofie Dokter (23) kroont zich na bloedstollende dag tot wereldkampioen op de vijfkamp](https://www.ad.nl/andere-sporten/sofie-dokter-23-kroont-zich-na-bloedstollende-dag-tot-wereldkampioen-op-de-vijfkamp~a889325d/)
+  > Na een bloedstollende dag is Sofie Dokter (23) wereldkampioen geworden op de vijfkamp. Op het WK indoor was Dokter de beste in het hoogspringen en...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Gevoelige nederlaag voor SPD in Rijnland-Palts](https://fd.nl/politiek/1590339/gevoelige-nederlaag-van-spd-in-rijnland-palts)
+  > Het resultaat verhoogt de druk op de sociaaldemocraten om aan een duidelijker profiel in regeringscoalitie in Berlijn te werken. Dat kan tot meer...
+- [EU mag veto Orbán niet aanvaarden](https://fd.nl/opinie/1590234/eu-mag-veto-orban-niet-aanvaarden)
+  > Hongarije ligt dwars voor een broodnodige lening aan Oekraïne, wat vooral politiek handig lijkt voor premier Viktor Orbán, die in verkiezingsmodus...
 - [Madrid geeft huishoudens nauwelijks compensatie voor hogere energieprijzen, maar met een reden](https://fd.nl/samenleving/1590240/madrid-geefthuishoudens-nauwelijks-compensatie-voor-hogere-energieprijzen-maar-dat-heeft-een-reden)
   > Dat er weinig geklaagd wordt over een beperkte compensatie, komt omdat Spanjaarden in vergelijking met de meeste andere EU-inwoners al een lage...
 - [De tijd dringt voor groot CO₂-opslagproject Aramis](https://fd.nl/bedrijfsleven/1590241/de-tijd-dringt-voor-groot-co-opslagproject-aramis)
   > De benodigde subsidies moeten binnenkort worden aangevraagd, maar van enkele grote beoogde klanten is de deelname nog onzeker.
 - [Trump stuurt ICE-agenten naar Amerikaanse vliegvelden](https://fd.nl/financiele-markten/1590338/trump-stuurt-ice-agenten-naar-amerikaanse-vliegvelden)
   > De politieke onenigheid over luchthavenfinanciering leidt tot minder personeel en lange rijen op Amerikaanse vliegvelden.
-- [Franse miljardair Vincent Bolloré voor de rechter voor vermeende corruptie](https://fd.nl/bedrijfsleven/1590254/franse-miljardair-vincent-bollore-voor-de-rechter-voor-vermeende-corruptie)
-  > De zaak betreft vermeende corruptie rond verkiezingen in de Afrikaanse landen Togo en Guinee. Het proces tegen Bolloré en twee andere zakenmannen...
-- [Mislukken verkoop hotel nieuwe domper voor Annexum-beleggers](https://fd.nl/bedrijfsleven/1590113/mislukken-verkoop-hotel-nieuwe-domper-voor-annexum-beleggers)
-  > Een juridische procedure over een afgeketste verkoop van een hotel in Maastricht vestigt de aandacht op een investeringsproduct van fondsbedrijf...
 
 ### Meest gelezen
 
