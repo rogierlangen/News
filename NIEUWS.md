@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-03-2026 om 23:30*
+*Laatst bijgewerkt: 22-03-2026 om 02:41*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Vogelgriep vastgesteld in Drentse Geesbrug, 24.000 kippen geruimd](https://nos.nl/l/2607314)
+  > Op een legkippenbedrijf in het Drentse Geesbrug is vogelgriep vastgesteld. Zo'n 24.000 kippen moeten worden geruimd.
+        In een straal van tien...
+- [Recordhitte in zuidwesten VS met temperaturen van boven 40 graden](https://nos.nl/l/2607313)
+  > Grote delen in het zuidwesten van de Verenigde Staten hebben te maken met extreme hitte. In onder meer Californië en Arizona werden deze week...
+- [WHO: tientallen doden bij aanval op ziekenhuis in Sudan](https://nos.nl/l/2607312)
+  > Bij een aanval op een ziekenhuis in Sudan zijn zeker 64 mensen om het leven gekomen, meldt de Wereldgezondheidsorganisatie WHO. Onder de doden zouden...
 - [Senaat VS blokkeert wet die transgender sporters moest weren uit vrouwensport](https://nos.nl/l/2607285)
   > Transgender vrouwen in de Verenigde Staten kunnen blijven deelnemen aan sportwedstrijden voor vrouwen. Een wetsvoorstel dat dat moest verbieden...
 - [Britten met dubbele nationaliteit in buitenland gestrand door 'paspoorthel'](https://nos.nl/l/2607277)
   > De Brexit is meer dan zes jaar geleden, maar voor EU-burgers met de Britse nationaliteit zijn er opeens weer nieuwe problemen. Vanwege nieuwe...
-- [FBI-directeur die Russische inmenging vaststelde overleden, Trump reageert verheugd](https://nos.nl/l/2607271)
-  > Robert Mueller, de voormalige FBI-directeur die de Russische inmenging in de Amerikaanse verkiezingen van 2016 onderzocht, is overleden. Dat heeft...
-- [Slovenië op de wip, radicaal-rechts strijdt om de macht met links-liberale coalitie](https://nos.nl/l/2607270)
-  > Krijgt de EU er weer een rechts-populistische en eurosceptische premier bij? Dat besluiten de Slovenen, als ze morgen naar de stembus gaan voor de...
-- [Energiepaniek in Azië: hoe landen worden geraakt door oorlog in het Midden-Oosten](https://nos.nl/l/2607258)
-  > Door aanvallen op de energiesector in en rond de Perzische Golf stijgen de energieprijzen wereldwijd snel. De gevolgen zijn overal voelbaar, maar...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Opnieuw uniek record voor 41-jarige LeBron James: meeste NBA-duels](https://www.ad.nl/sport/opnieuw-uniek-record-voor-41-jarige-lebron-james-meeste-nba-duels~a3274aecf/)
+  > LeBron James heeft zaterdag het NBA-record voor meeste gespeelde wedstrijden in het reguliere seizoen gebroken. Hij speelde met zijn Los Angeles...
+- [Jezus is terug en zijn volgelingen zijn steeds rechtser: wacht ons een christelijk-conservatieve revolutie?](https://www.ad.nl/binnenland/jezus-is-terug-en-zijn-volgelingen-zijn-steeds-rechtser-wacht-ons-een-christelijk-conservatieve-revolutie~a75734183/)
+  > Jezus is terug in Nederland. Het geloof wordt zichtbaarder op straat, op sociale media én in de politiek. Het christelijke geluid is jonger, rechtser...
+- [Cuba opnieuw in het donker: tweede landelijke stroomstoring in één week](https://www.ad.nl/buitenland/cuba-opnieuw-in-het-donker-tweede-landelijke-stroomstoring-in-een-week~a5fa74c3/)
+  > Een stroomstoring heeft zaterdag heel Cuba getroffen, meldt het Cubaanse ministerie van Energie. Het is de tweede keer in minder dan een week tijd...
 - [WHO: tientallen doden bij aanval op ziekenhuis in Soedan, 89 gewonden](https://www.ad.nl/buitenland/who-tientallen-doden-bij-aanval-op-ziekenhuis-in-soedan-89-gewonden~a36ca561/)
   > Bij een aanval op een ziekenhuis in Soedan zijn zeker 64 mensen om het leven gekomen, zegt de baas van de Wereldgezondheidsorganisatie (WHO) op X....
 - [Ruim 35.000 bezoekers zien nieuwe Johan Cruijff-docu, zoon Jordi geroerd: ‘Soms laat ik een traantje’](https://www.ad.nl/voetbal/ruim-35-000-bezoekers-zien-nieuwe-johan-cruijff-docu-zoon-jordi-geroerd-soms-laat-ik-een-traantje~ab6fe0c8/)
   > De nieuwe documentaire over Johan Cruijff is in première gegaan in de Johan Cruijff Arena. Ruim 35.000 bezoekers waren aanwezig. „Zoveel lieve mensen...
-- [Pover PEC Zwolle helpt NAC verder de problemen in met moeizame zege in eigen huis](https://www.ad.nl/voetbal/pover-pec-zwolle-helpt-nac-verder-de-problemen-in-met-moeizame-zege-in-eigen-huis~a590242f/)
-  > PEC Zwolle is NAC Breda in eigen huis de baas. De Blauwvingers wonnen met 2-1; Thijs Oosting en Odysseus Velanas maakten de goals voor de thuisploeg....
-- [‘Pogacar heeft Van der Poel gewoon helemaal uitgewrongen’](https://www.ad.nl/wielrennen/pogacar-heeft-van-der-poel-gewoon-helemaal-uitgewrongen~a5ea502e/)
-  > Tadej Pogacar mag weer een vakje op zijn monumentenbingo afstrepen. Met Milaan-San Remo heeft de Sloveen het voor hem misschien wel moeilijkste...
-- [Test Opel Mokka: zuinig, maar niet zo ruim](https://www.ad.nl/auto/test-opel-mokka-zuinig-maar-niet-zo-ruim~a6ff7d8f/)
-  > De Opel Mokka heeft een subtiele facelift ondergaan, maar belangrijker is de recentelijke vernieuwing onder de motorkap. Technisch is hij nu weer...
 
 ### Meest gelezen
 
