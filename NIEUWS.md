@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-03-2026 om 20:33*
+*Laatst bijgewerkt: 22-03-2026 om 21:31*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Parijs blijft links, radicaal-rechts grijpt mis in grote steden Frankrijk](https://nos.nl/l/2607450)
+  > Radicaal-rechtse kandidaten hebben in een aantal Franse steden een meerderheid gehaald bij de gemeenteraadsverkiezingen, maar in de grootste steden...
 - [CDU wint verkiezingen in Rijnland-Palts, grote winst AfD](https://nos.nl/l/2607425)
   > Bij de deelstaatverkiezingen in de Duitse deelstaat Rijnland-Palts lijkt de CDU de grootste partij te worden. Volgens de exitpoll krijgt de partij...
 - [Exitpoll: nek-aan-nekrace tussen Sloveense premierskandidaten](https://nos.nl/l/2607424)
@@ -16,8 +18,6 @@
   > Het aantal doden door de zware lawine die gisteren zo'n 25 skiërs verraste in het Noord-Italiaanse Zuid-Tirol is opgelopen tot drie. Een van de drie...
 - [Zwijnen trekken steeds vaker Hattem in, overlast neemt toe](https://nos.nl/l/2607395)
   > In Hattem, ten noorden van de Veluwe, worden de afgelopen maanden steeds vaker wilde zwijnen gesignaleerd. De beesten zoeken vooral aan de randen van...
-- [Iraanse aanvallen raken hart van Qatarese economie, maar buffers zijn enorm](https://nos.nl/l/2607383)
-  > De Iraanse aanvallen op energie-installaties in de Golf treffen Qatar recht in het hart. Met schade aan de LNG-hub in Ras Laffan en de blokkade van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Stoom uit de oren bij Peter Bosz na ‘slappe zooi’ PSV: ‘Dit is niet hoe ik kampioen wil worden’](https://www.ad.nl/voetbal/stoom-uit-de-oren-bij-peter-bosz-na-slappe-zooi-psv-dit-is-niet-hoe-ik-kampioen-wil-worden~a9fc9247/)
+- [Gemiste matchdarts nekken Zonneveld, Van Gerwen kansloos tegen Humphries in halve finale Belgian Darts Open](https://www.ad.nl/darts/gemiste-matchdarts-nekken-zonneveld-van-gerwen-kansloos-tegen-humphries-in-halve-finale-belgian-darts-open~ac8b5294/)
+  > Niels Zonneveld en Michael van Gerwen zijn er niet in geslaagd om door te stoten naar de finale van de Belgian Darts Open. Niels Zonneveld had...
+- [TransferTalk | FC Köln neemt afscheid van trainer, NAC moet na seizoen op zoek naar nieuwe aanvoerder](https://www.ad.nl/voetbal/transfertalk-fc-koln-neemt-afscheid-van-trainer-nac-moet-na-seizoen-op-zoek-naar-nieuwe-aanvoerder~a35ea681/)
+  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
+- [Atlético dankzij schitterende kanonskogel uit het niets weer naast Real Madrid](https://www.ad.nl/voetbal/atletico-dankzij-schitterende-kanonskogel-uit-het-niets-weer-naast-real-madrid~a01e25b4/)
+  > Real Madrid moet winnen van stadsgenoot Atlético om zicht te houden op koploper FC Barcelona. Maar gaat dat ook gebeuren? Eerder dit seizoen won...
+- [Koeien zakken door vloer van stal, persoon raakt zwaargewond](https://www.ad.nl/binnenland/koeien-zakken-door-vloer-van-stal-persoon-raakt-zwaargewond~a5ef4439/)
+  > Bij een boerderij aan de Muskushouwsestraat in Heteren zijn zondag zes koeien in een put terechtgekomen in een stal. Een persoon is bij het incident...
+- [Peter Bosz veegt de vloer aan met PSV én zichzelf: ‘Op de training was het eerder ook een slappe zooi’](https://www.ad.nl/voetbal/peter-bosz-veegt-de-vloer-aan-met-psv-en-zichzelf-op-de-training-was-het-eerder-ook-een-slappe-zooi~a9fc9247/)
   > PSV is struikelend op weg naar het kampioenschap en de 3-1 nederlaag bij Telstar past naadloos in een patroon. Sinds op 1 februari Feyenoord in 17...
-- [KNVB en Nike presenteren ‘felste Oranjeshirt ooit’, vanaf maandag voor 160 euro verkrijgbaar](https://www.ad.nl/wk-voetbal/knvb-en-nike-presenteren-felste-oranjeshirt-ooit-vanaf-maandag-voor-160-euro-verkrijgbaar~a5e49392/)
-  > De KNVB heeft zondagavond de nieuwe shirts van het Nederlands elftal gepresenteerd. Oranje gaat de komende twee jaar in witte uitshirts spelen.
-- [Lawine in Zuid-Tirol eist derde dode: vrouw (26) in ziekenhuis overleden](https://www.ad.nl/buitenland/lawine-in-zuid-tirol-eist-derde-dode-vrouw-26-in-ziekenhuis-overleden~a5236502/)
-  > Een lawine in de bergen bij de Italiaanse grens met Oostenrijk heeft een derde dode geëist. Een vrouw overleed zondag in het ziekenhuis aan haar...
-- [Beschadigde Russische tanker vol met gas dobbert stuurloos op Middellandse Zee](https://www.ad.nl/buitenland/beschadigde-russische-tanker-vol-met-gas-dobbert-stuurloos-op-middellandse-zee~af2da345/)
-  > Een Russische tanker drijft al drie weken stuurloos rond op de Middellandse Zee met een gat in de romp. Het heeft 60.000 ton gas aan boord. „Er...
-- [Bekeerlingen zijn vaak het fanatiekst](https://www.ad.nl/binnenland/bekeerlingen-zijn-vaak-het-fanatiekst~aec33251/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [President Libanon waarschuwt voor Israëlisch grondoffensief](https://fd.nl/economie/1590374/president-libanon-waarschuwt-voor-israelisch-grondoffensief)
+  > Joseph Aoun roept de internationale gemeenschap op om direct maatregelen te nemen om Libanon te beschermen tegen Israëlische aanvallen.
 - [Gevoelige nederlaag voor SPD in Rijnland-Palts](https://fd.nl/politiek/1590339/gevoelige-nederlaag-van-spd-in-rijnland-palts)
   > Het resultaat verhoogt de druk op de sociaaldemocraten om aan een duidelijker profiel in regeringscoalitie in Berlijn te werken. Dat kan tot meer...
 - [EU mag veto Orbán niet aanvaarden](https://fd.nl/opinie/1590234/eu-mag-veto-orban-niet-aanvaarden)
@@ -54,8 +56,6 @@
   > Dat er weinig geklaagd wordt over een beperkte compensatie, komt omdat Spanjaarden in vergelijking met de meeste andere EU-inwoners al een lage...
 - [De tijd dringt voor groot CO₂-opslagproject Aramis](https://fd.nl/bedrijfsleven/1590241/de-tijd-dringt-voor-groot-co-opslagproject-aramis)
   > De benodigde subsidies moeten binnenkort worden aangevraagd, maar van enkele grote beoogde klanten is de deelname nog onzeker.
-- [Trump stuurt ICE-agenten naar Amerikaanse vliegvelden](https://fd.nl/financiele-markten/1590338/trump-stuurt-ice-agenten-naar-amerikaanse-vliegvelden)
-  > De politieke onenigheid over luchthavenfinanciering leidt tot minder personeel en lange rijen op Amerikaanse vliegvelden.
 
 ### Meest gelezen
 
