@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-03-2026 om 08:40*
+*Laatst bijgewerkt: 22-03-2026 om 09:37*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ook oliemaatschappijen vechten om schaarse olie en gas](https://www.ad.nl/economie/ook-oliemaatschappijen-vechten-om-schaarse-olie-en-gas~a016a1a4d/)
-  > Niet alleen landen vechten met elkaar om olie en gas te bemachtigen. Oliemaatschappijen zoals Shell moeten ook knokken om voldoende olie binnen te...
-- [Klassieker tussen Feyenoord en Ajax in de Kuip: dit zijn de vermoedelijke opstellingen](https://www.ad.nl/voetbal/klassieker-tussen-feyenoord-en-ajax-in-de-kuip-dit-zijn-de-vermoedelijke-opstellingen~a591070f/)
-  > De Klassieker zorgt bijna altijd voor spektakel. Feyenoord-trainer Robin van Persie kan een overwinning op Ajax goed gebruiken. De Amsterdammers...
-- [Experts trekken aan bel om complete restyling Google Maps: ‘Multitasken in verkeer is niet veilig’](https://www.ad.nl/auto/experts-trekken-aan-bel-om-complete-restyling-google-maps-multitasken-in-verkeer-is-niet-veilig~a2ee9633/)
-  > Google voorziet navigatie-app Maps later dit jaar van kunstmatige intelligentie en gedetailleerde 3D-beelden. Verkeersorganisaties Veilig Verkeer...
-- [Zo vroeg komt Max Verstappen volgende week in actie in Japan](https://www.ad.nl/formule-1/zo-vroeg-komt-max-verstappen-volgende-week-in-actie-in-japan~afb911aa/)
-  > De Formule 1 blijft na de Grand Prix van China in Azië: de derde race van het seizoen wordt gereden in Japan. Kan Verstappen ditmaal een gooi doen...
-- [Stitch-tattoos, Lego-kastelen en meerdere trips per jaar naar Parijs: deze familie is Disneyfanaat](https://www.ad.nl/binnenland/stitch-tattoos-lego-kastelen-en-meerdere-trips-per-jaar-naar-parijs-deze-familie-is-disneyfanaat~a34683e7/)
-  > Wie aanbelt bij familie De Lang kan er niet omheen: hier wonen Disneyfanaten. Op het naambordje van de familie prijkt Stitch, het buitenaardse...
+- [Pizzabezorger gaat in trein naast beroemde TikTok-agent zitten en vraagt: ‘Johan, heb ik een strafblad?’](https://www.ad.nl/binnenland/pizzabezorger-gaat-in-trein-naast-beroemde-tiktok-agent-zitten-en-vraagt-johan-heb-ik-een-strafblad~a14dba9a/)
+  > Een luchtig bedoeld berichtje over een ontmoeting in de trein levert politieagent Johan Dubbeldam onverwacht een storm aan kritiek op. Hij checkte op...
+- [Alles klopt aan feministische musical Aletta; ook leuk voor ‘mensen in bezit van een penis’](https://www.ad.nl/show/alles-klopt-aan-feministische-musical-aletta-ook-leuk-voor-mensen-in-bezit-van-een-penis~a91c9bcc/)
+  > Aletta de musical doet iets heel bijzonders: de show weet een best wel zwaar onderwerp als de strijd voor vrouwenemancipatie luchtig te brengen,...
+- [Zwarte acteur die Severus Snape speelt in Harry Potter-serie wordt bedreigd: ‘Stop ermee, of ik vermoord je’](https://www.ad.nl/show/zwarte-acteur-die-severus-snape-speelt-in-harry-potter-serie-wordt-bedreigd-stop-ermee-of-ik-vermoord-je~adca0ff8/)
+  > Paapa Essiedu wordt bedreigd sinds bekend is dat hij de rol van Severus Snape gaat spelen in de nieuwe Harry Potter-tv-serie. „Er is tegen me gezegd:...
+- [Waarom supermarktbrood soms gezonder is dan bakkersbrood: experts leggen uit](https://www.ad.nl/gezond/waarom-supermarktbrood-soms-gezonder-is-dan-bakkersbrood-experts-leggen-uit~aede352f/)
+  > Over geen enkel ander voedingsmiddel doen zo veel verhalen de ronde als over brood. Hoe zit het nu: is brood goed of juist slecht voor ons? En hoe...
+- [Leonardo speelde voor Ajax en Feyenoord en droomt dankzij bezoek aan favela nu van trainerscarrière](https://www.ad.nl/voetbal/leonardo-speelde-voor-ajax-en-feyenoord-en-droomt-dankzij-bezoek-aan-favela-nu-van-trainerscarriere~a6969df5/)
+  > Leonardo de Vitor Santiago kwam uit voor Ajax én Feyenoord en speelde zeven Klassiekers. Zijn allereerste miste de Braziliaan bijna door...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Philips-topman Jakobs: ‘Dat er steeds minder Nederlandse ceo’s zijn, is een punt van zorg’](https://fd.nl/bedrijfsleven/1590188/philips-topman-jakobs-dat-er-steeds-minder-nederlandse-ceos-zijn-is-een-punt-van-zorg)
+  > Roy Jakobs gaat zijn tweede termijn in als ceo van Philips. Vier jaar focuste hij zich op het bedrijf, dat worstelde met de nasleep van de...
+- [Trump stelt Iran ultimatum voor openen Straat van Hormuz](https://fd.nl/politiek/1590332/trump-dreigt-met-ultimatum-voor-openen-van-hormuz-straat)
+  > De Amerikaanse president dreigt anders na 48 uur grootste Iraanse energiecentrales te ‘vernietigen’. Iran waarschuwt in reactie op de dreigementen...
 - [Financiële markten stevenen af op nieuwe week vol onrust](https://fd.nl/financiele-markten/1590331/financiele-markten-stevenen-af-op-nieuwe-week-vol-onrust)
   > Op de obligatiemarkt is stress te zien, maar de aandelenmarkten blijven relatief stoïcijns onder het Iran-conflict. Hoe lang nog?
 - [Maak defensie-investeringen tot vliegwiel voor energie en tech](https://fd.nl/opinie/1589768/maak-defensie-investeringen-tot-transitievliegwiel)
   > Europa moet zich snel herbewapenen, maar niet ten koste van andere cruciale transities. Juist door defensie te verbinden met energie en digitale...
 - [Brabant weet het zeker: vlees mét plant heeft de toekomst](https://fd.nl/tech-en-innovatie/1590116/brabant-weet-het-zeker-vlees-met-plant-heeft-de-toekomst)
   > Hybride worsten, filets en zuivelproducten moeten ons menu gaan verduurzamen. ‘Jongeren zijn wél geïnteresseerd.’
-- [Ethiopiërs hebben de keus: een derdehands benzineauto of elektrisch rijden](https://fd.nl/economie/1587825/ethiopiers-hebben-de-keus-een-derdehands-benzineauto-of-elektrisch-rijden)
-  > Twee jaar geleden verbood de regering in Addis Abeba de invoer van voertuigen die rijden op fossiele brandstoffen. De verkoop van met name Chinese...
-- [FD Gazelle: ‘Toen Trump USAid stopzette, vielen bijna alle orders weg’](https://fd.nl/samenleving/1589999/fd-gazelle-toen-trump-usaid-stopzette-vielen-bijna-alle-orders-weg)
-  > Trump zette met één handtekening een streep door USAid. Dat had grote gevolgen voor Delft Imaging Systems, dat met draagbare röntgenapparaten...
 
 ### Meest gelezen
 
