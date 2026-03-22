@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-03-2026 om 19:30*
+*Laatst bijgewerkt: 22-03-2026 om 20:33*
 
 ---
 
@@ -10,8 +10,8 @@
 
 - [CDU wint verkiezingen in Rijnland-Palts, grote winst AfD](https://nos.nl/l/2607425)
   > Bij de deelstaatverkiezingen in de Duitse deelstaat Rijnland-Palts lijkt de CDU de grootste partij te worden. Volgens de exitpoll krijgt de partij...
-- [Exitpoll: regeringspartij premier Golob nipt de grootste bij verkiezingen Slovenië](https://nos.nl/l/2607424)
-  > De liberale premier Golob lijkt op basis van de exitpoll de Sloveense verkiezingen te hebben gewonnen. Zijn Svoboda-partij zou bijna 30 procent van...
+- [Exitpoll: nek-aan-nekrace tussen Sloveense premierskandidaten](https://nos.nl/l/2607424)
+  > De exitpoll na de Sloveense parlementsverkiezingen laat een nek-aan-nekrace zien tussen zittend premier Golob en de rechts-populistische oud-premier...
 - [Derde dode na zware lawine in Zuid-Tirol, nog twee in kritieke toestand](https://nos.nl/l/2607400)
   > Het aantal doden door de zware lawine die gisteren zo'n 25 skiërs verraste in het Noord-Italiaanse Zuid-Tirol is opgelopen tot drie. Een van de drie...
 - [Zwijnen trekken steeds vaker Hattem in, overlast neemt toe](https://nos.nl/l/2607395)
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [YouTube-ster Jesse steelt ook als muzikant de show: ‘Wil op steeds vettere plekken spelen’](https://www.ad.nl/rotterdam/youtube-ster-jesse-steelt-ook-als-muzikant-de-show-wil-op-steeds-vettere-plekken-spelen~aad371f5/)
-  > Hij werd bekend met online video’s, maar Jesse Hoefnagels (24) is allang niet meer alleen ‘die jongen van YouTube’. De Rotterdammer bouwt inmiddels...
-- [Chantal zoekt nieuwe huisgenoten en Bram en DJ Jean zijn ‘friends forever’](https://www.ad.nl/show/chantal-zoekt-nieuwe-huisgenoten-en-bram-en-dj-jean-zijn-friends-forever~a90bbd70/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Keeper slaat tanden uit mond van 17-jarige voetballer in Limburg](https://www.ad.nl/binnenland/keeper-slaat-tanden-uit-mond-van-17-jarige-voetballer-in-limburg~a31c4bcae/)
-  > Een 17-jarige voetballer van RKUVC uit het Zuid-Limburgse Ulestraten is zaterdag drie tanden verloren nadat een doelman hem had geslagen. Dat...
-- [Lutsharel Geertruida bij Oranje gehaald als vervanger van geblesseerde Jurriën Timber](https://www.ad.nl/voetbal/lutsharel-geertruida-bij-oranje-gehaald-als-vervanger-van-geblesseerde-jurrien-timber~a0796607/)
-  > Bondscoach Ronald Koeman heeft Lutsharel Geertruida opgeroepen voor het Nederlands elftal. De verdediger van Sunderland is toegevoegd aan de selectie...
-- [Sofie Dokter (23) kroont zich na bloedstollende dag tot wereldkampioen op de vijfkamp](https://www.ad.nl/andere-sporten/sofie-dokter-23-kroont-zich-na-bloedstollende-dag-tot-wereldkampioen-op-de-vijfkamp~a889325d/)
-  > Na een bloedstollende dag is Sofie Dokter (23) wereldkampioen geworden op de vijfkamp. Op het WK indoor was Dokter de beste in het hoogspringen en...
+- [Stoom uit de oren bij Peter Bosz na ‘slappe zooi’ PSV: ‘Dit is niet hoe ik kampioen wil worden’](https://www.ad.nl/voetbal/stoom-uit-de-oren-bij-peter-bosz-na-slappe-zooi-psv-dit-is-niet-hoe-ik-kampioen-wil-worden~a9fc9247/)
+  > PSV is struikelend op weg naar het kampioenschap en de 3-1 nederlaag bij Telstar past naadloos in een patroon. Sinds op 1 februari Feyenoord in 17...
+- [KNVB en Nike presenteren ‘felste Oranjeshirt ooit’, vanaf maandag voor 160 euro verkrijgbaar](https://www.ad.nl/wk-voetbal/knvb-en-nike-presenteren-felste-oranjeshirt-ooit-vanaf-maandag-voor-160-euro-verkrijgbaar~a5e49392/)
+  > De KNVB heeft zondagavond de nieuwe shirts van het Nederlands elftal gepresenteerd. Oranje gaat de komende twee jaar in witte uitshirts spelen.
+- [Lawine in Zuid-Tirol eist derde dode: vrouw (26) in ziekenhuis overleden](https://www.ad.nl/buitenland/lawine-in-zuid-tirol-eist-derde-dode-vrouw-26-in-ziekenhuis-overleden~a5236502/)
+  > Een lawine in de bergen bij de Italiaanse grens met Oostenrijk heeft een derde dode geëist. Een vrouw overleed zondag in het ziekenhuis aan haar...
+- [Beschadigde Russische tanker vol met gas dobbert stuurloos op Middellandse Zee](https://www.ad.nl/buitenland/beschadigde-russische-tanker-vol-met-gas-dobbert-stuurloos-op-middellandse-zee~af2da345/)
+  > Een Russische tanker drijft al drie weken stuurloos rond op de Middellandse Zee met een gat in de romp. Het heeft 60.000 ton gas aan boord. „Er...
+- [Bekeerlingen zijn vaak het fanatiekst](https://www.ad.nl/binnenland/bekeerlingen-zijn-vaak-het-fanatiekst~aec33251/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 
 ### Meest gelezen
 
