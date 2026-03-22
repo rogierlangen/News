@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-03-2026 om 15:31*
+*Laatst bijgewerkt: 22-03-2026 om 16:36*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Zwijnen trekken steeds vaker Gelderse Hattem in, overlast neemt toe](https://nos.nl/l/2607395)
+  > In Hattem, ten noorden van de Veluwe, worden de afgelopen maanden steeds vaker wilde zwijnen gesignaleerd. De beesten zoeken vooral aan de randen van...
 - [Iraanse aanvallen raken hart van Qatarese economie, maar buffers zijn enorm](https://nos.nl/l/2607383)
   > De Iraanse aanvallen op energie-installaties in de Golf treffen Qatar recht in het hart. Met schade aan de LNG-hub in Ras Laffan en de blokkade van...
 - [Honderden gewonden bij Iraanse aanvallen op Israël, Tel Aviv geraakt door clusterbom](https://nos.nl/l/2607353)
@@ -16,8 +18,6 @@
   > Twee of drie huishoudens achter één voordeur. Het kabinet en experts zien woningdelen en -splitsen als een snelle manier om de druk op de woningmarkt...
 - [Zeven doden bij helikoptercrash voor kust van Qatar](https://nos.nl/l/2607351)
   > Voor de kust van Qatar zijn gisteren zeven mensen om het leven gekomen bij een helikoptercrash. Dat hebben de ministeries van Defensie van zowel...
-- [Politie deelt 112 boetes uit voor filmen van ongeluk bij Heeswijk-Dinther](https://nos.nl/l/2607347)
-  > De politie heeft vrijdag 112 automobilisten beboet voor het maken van beelden na een ernstig ongeluk op de N279 bij Heeswijk-Dinther. De bestuurders...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Iraanse president zegt dat Straat van Hormuz open is voor iedereen, behalve voor landen die Iran aanvallen](https://www.ad.nl/buitenland/iraanse-president-zegt-dat-straat-van-hormuz-open-is-voor-iedereen-behalve-voor-landen-die-iran-aanvallen~a0b5bfcf/)
-  > De Straat van Hormuz is bevaarbaar. Dat meldt de president van Iran Masoud Pezeshkian. ‘Vijandige’ schepen zijn echter uitgezonderd.
-- [FC Utrecht zet fraaie reeks voort: Go Ahead Eagles met fraaie goals verslagen](https://www.ad.nl/voetbal/fc-utrecht-zet-fraaie-reeks-voort-go-ahead-eagles-met-fraaie-goals-verslagen~a388546da/)
-  > FC Utrecht gaat met een uitstekend gevoel de komende interlandbreak in. De ploeg van Ron Jans was Go Ahead Eagles, de voorbije weken in vorm,...
+- [FC Groningen via strafschop op voorsprong tegen AZ, Jurjus voorkomt blunder](https://www.ad.nl/voetbal/fc-groningen-via-strafschop-op-voorsprong-tegen-az-jurjus-voorkomt-blunder~a820bd2f/)
+  > Nummer 6 AZ gaat op bezoek bij FC Groningen, de nummer 10. Trekt AZ de goede vorm door? En hoe zal Kees Smit zich voelen? Hij werd voor het eerst...
+- [Rapportcijfers Klassieker | Verdediger van Feyenoord én Ajax blinken uit, twee spelers krijgen een 4](https://www.ad.nl/voetbal/rapportcijfers-klassieker-verdediger-van-feyenoord-en-ajax-blinken-uit-twee-spelers-krijgen-een-4~a997c6de/)
+  > De grootste uitblinkers van de Klassieker tussen Feyenoord en Ajax stonden in de achterhoede: daar kregen spelers van beide clubs een 7,5. Dit zijn...
+- [Degradatiezorgen nemen toe voor Simons en Van de Ven met Spurs na thuisnederlaag tegen concurrent](https://www.ad.nl/voetbal/degradatiezorgen-nemen-toe-voor-simons-en-van-de-ven-met-spurs-na-thuisnederlaag-tegen-concurrent~a4d92fde/)
+  > De degradatiezorgen voor Tottenham Hotspur zijn zondag een stuk serieuzer geworden. De ploeg van trainer Igor Tudor verloor in het eigen stadion,...
+- [Zwaar ongeluk massaal gefilmd en gefotografeerd, ruim honderd bestuurders beboet](https://www.ad.nl/binnenland/zwaar-ongeluk-massaal-gefilmd-en-gefotografeerd-ruim-honderd-bestuurders-beboet~a8aac176/)
+  > De politie heeft meer dan honderd bekeuringen uitgedeeld aan bestuurders die hun telefoon gebruikten bij het passeren van een ernstig ongeval op de...
 - [Feyenoord houdt dankzij late penalty voorsprong van vijf punten op Ajax na matige Klassieker](https://www.ad.nl/voetbal/feyenoord-houdt-dankzij-late-penalty-voorsprong-van-vijf-punten-op-ajax-na-matige-klassieker~a591070f/)
-  > Editie 201 van de Klassieker is geëndigd in een gelijkspel: 1-1. Nummer twee Feyenoord houdt daardoor een voorsprong van vijf punten op Ajax.
-- [Geen opvliegers, toch in de overgang: ook deze klachten kunnen komen door (peri)menopauze](https://www.ad.nl/gezond/geen-opvliegers-toch-in-de-overgang-ook-deze-klachten-kunnen-komen-door-peri-menopauze~ac20e0b2/)
-  > Voor de overgang komen vrouwen eerst in de perimenopauze. Het lichaam maakt dan schommelende hoeveelheden hormonen aan. Dit kan leiden tot...
-- [Barcelona komt goed weg in slotfase en boekt nipte zege op Rayo Vallecano](https://www.ad.nl/voetbal/barcelona-komt-goed-weg-in-slotfase-en-boekt-nipte-zege-op-rayo-vallecano~a0288316/)
-  > Barcelona heeft zondagmiddag een moeizame overwinning geboekt op Rayo Vallecano: 1-0. Daarmee doen de Catalanen goede zaken in de strijd om het...
+  > Feyenoord heeft de aanval van Ajax in de Klassieker ternauwernood afgeslagen. De Amsterdammers leken in een zeer belabberd gevecht door een fraaie...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [De tijd dringt voor groot CO₂-opslagproject Aramis](https://fd.nl/bedrijfsleven/1590241/de-tijd-dringt-voor-groot-co-opslagproject-aramis)
+  > De benodigde subsidies moeten binnenkort worden aangevraagd, maar van enkele grote beoogde klanten is de deelname nog onzeker.
+- [Trump stuurt ICE-agenten naar Amerikaanse vliegvelden](https://fd.nl/financiele-markten/1590338/trump-stuurt-ice-agenten-naar-amerikaanse-vliegvelden)
+  > De politieke onenigheid over luchthavenfinanciering leidt tot minder personeel en lange rijen op Amerikaanse vliegvelden.
 - [Franse miljardair Vincent Bolloré voor de rechter voor vermeende corruptie](https://fd.nl/bedrijfsleven/1590254/franse-miljardair-vincent-bollore-voor-de-rechter-voor-vermeende-corruptie)
   > De zaak betreft vermeende corruptie rond verkiezingen in de Afrikaanse landen Togo en Guinee. Het proces tegen Bolloré en twee andere zakenmannen...
 - [Mislukken verkoop hotel nieuwe domper voor Annexum-beleggers](https://fd.nl/bedrijfsleven/1590113/mislukken-verkoop-hotel-nieuwe-domper-voor-annexum-beleggers)
   > Een juridische procedure over een afgeketste verkoop van een hotel in Maastricht vestigt de aandacht op een investeringsproduct van fondsbedrijf...
 - [Slovenië beperkt tijdelijk verkoop van brandstof aan de pomp](https://fd.nl/politiek/1590335/slovenie-beperkt-tijdelijk-verkoop-van-brandstof-aan-de-pomp)
   > De maatregelen zijn het antwoord op tankende consumenten uit buurlanden en hamstergedrag van Slovenen. De beperkingen moeten brandstoftekorten...
-- [Bij de Duitse bestelbus­inrichter Bott weten ze hoe je ‘verborgen kampioen’ wordt](https://fd.nl/bedrijfsleven/1587298/bij-de-duitse-bestelbusinrichter-bott-weten-ze-hoe-je-verborgen-kampioen-wordt)
-  > Bott Group blijft voor de buitenwereld grotendeels onder de radar, maar is marktleider in opbergsystemen voor bedrijfswagens in Europa. ‘Bedrijven in...
-- [De honden van Wall Street](https://fd.nl/opinie/1590253/de-honden-van-wall-street)
-  > Onlangs redde een anonieme New Yorkse held een hond die door het ijs was gezakt van de vijver in Central Park. In de wereld van private credit gaat...
 
 ### Meest gelezen
 
