@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-03-2026 om 11:28*
+*Laatst bijgewerkt: 22-03-2026 om 13:01*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Honderden gewonden bij Iraanse aanvallen op Israël, Tel Aviv geraakt door clusterbom](https://nos.nl/l/2607353)
+  > Bij recente Iraanse aanvallen op Israël zijn honderden gewonden gevallen. In Tel Aviv, de tweede stad van Israël, zijn vanochtend minstens vijftien...
+- [Woningdelen: de wil is er, maar niet overal komt het van de grond](https://nos.nl/l/2607352)
+  > Twee of drie huishoudens achter één voordeur. Het kabinet en experts zien woningdelen en -splitsen als een snelle manier om de druk op de woningmarkt...
+- [Zeven doden bij helikoptercrash voor kust van Qatar](https://nos.nl/l/2607351)
+  > Voor de kust van Qatar zijn gisteren zeven mensen om het leven gekomen bij een helikoptercrash. Dat hebben de ministeries van Defensie van zowel...
+- [Politie deelt 112 boetes uit voor filmen van ongeluk bij Heeswijk-Dinther](https://nos.nl/l/2607347)
+  > De politie heeft vrijdag 112 automobilisten beboet voor het maken van beelden na een ernstig ongeluk op de N279 bij Heeswijk-Dinther. De bestuurders...
 - [Enorme afhankelijkheid van energie uit de VS zorgt in Nederland voor ongemak](https://nos.nl/l/2607340)
   > Terwijl in Azië mensen niet kunnen koken of autorijden vanwege brandstoftekorten, blijft het leed van de energie-oorlog in Europa en Nederland...
-- [Belg opgepakt in Nederland na achtervolging van meer dan 150 kilometer](https://nos.nl/l/2607338)
-  > De politie heeft vannacht in Putte op de grens met België een man aangehouden die daarvoor lange tijd was achtervolgd. De man van 21 was in België al...
-- [België herdenkt terreuraanslagen in Brussel, vandaag tien jaar geleden](https://nos.nl/l/2607334)
-  > België staat vandaag stil bij de aanslagen van 22 maart 2016, vandaag tien jaar geleden. Bij bomaanslagen door terreurgroep IS op metrostation...
-- [Goal op Duits voetbalveld valt om, jongen van 7 overleden](https://nos.nl/l/2607330)
-  > In Duitsland is een jongen van 7 overleden nadat hij onder een omgevallen doel terecht was gekomen. De jongen was gistermiddag op een voetbalveld in...
-- [Verkiezingen in Rijnland-Palts bezorgen regering in Berlijn kopzorgen](https://nos.nl/l/2607322)
-  > Alle politieke ogen in Duitsland zijn vandaag gericht op Rijnland-Palts. De deelstaat grenzend aan België en Luxemburg kiest een nieuw parlement. Het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [NEC ziet Jasper Cillessen al vroeg uitvallen tegen Heerenveen, 23-jarige doelman maakt debuut](https://www.ad.nl/voetbal/nec-ziet-jasper-cillessen-al-vroeg-uitvallen-tegen-heerenveen-23-jarige-doelman-maakt-debuut~acd910522/)
-  > NEC heeft zich na de zege op PSV (2-3) genesteld op de derde plaats in de VriendenLoterij eredivisie. In theorie kan de club uit Nijmegen zelfs...
-- [Maan voelt zich soms een ‘target’ in de media: ‘Dat is best zwaar’](https://www.ad.nl/show/maan-voelt-zich-soms-een-target-in-de-media-dat-is-best-zwaar~a7217dcf/)
-  > Maan de Steenwinkel hoopt dat ze ooit in staat is negatieve reacties naast zich neer te leggen. Dat vertelde de 29-jarige zangeres zaterdagavond...
-- [Premier Jetten ‘mag aanschuiven’ bij diner Trump, Willem-Alexander en Máxima overnachten in Witte Huis](https://www.ad.nl/politiek/premier-jetten-mag-aanschuiven-bij-diner-trump-willem-alexander-en-maxima-overnachten-in-witte-huis~aa5f5959/)
-  > Premier Rob Jetten schuift in Washington D.C. aan bij een privédiner tussen de Amerikaanse president Donald Trump en zijn vrouw Melania en koning...
-- [LIVE Keuken Kampioen Divisie | Droomstart ADO Den Haag dankzij eigen doelpunt De Graafschap](https://www.ad.nl/voetbal/live-keuken-kampioen-divisie-droomstart-ado-den-haag-dankzij-eigen-doelpunt-de-graafschap~a76d7fa7/)
-  > ADO Den Haag is al gepromoveerd, maar de strijd om het kampioenschap is nog niet beslist. De koploper van de Keuken Kampioen Divisie gaat vol voor de...
-- [Kampioenswedstrijd? Telstar weet al hoe je PSV kunt verslaan: ‘We hebben hun code toen voor eventjes gekraakt’](https://www.ad.nl/voetbal/kampioenswedstrijd-telstar-weet-al-hoe-je-psv-kunt-verslaan-we-hebben-hun-code-toen-voor-eventjes-gekraakt~a122501c/)
-  > Ze wonnen al eens van PSV dit seizoen, dus waarom niet nog een keer? Telstar-trainer Anthony Correia gelooft in een nieuwe stunt, maar dan wel mét...
+- [Rijke toeristen vieren voor 110.000 dollar weekje vakantie op Antarctica, zelfs hun poep gaat mee terug](https://www.ad.nl/buitenland/rijke-toeristen-vieren-voor-110-000-dollar-weekje-vakantie-op-antarctica-zelfs-hun-poep-gaat-mee-terug~a432a6a5/)
+  > Ze zijn er. Toeristen die 110.000 dollar per persoon betalen voor een weekje Antarctica. Ze ontsnappen voor even naar de verste uithoek van de wereld...
+- [Niels Zonneveld stunt met zege op Luke Littler in zinderende partij op Belgian Darts Open](https://www.ad.nl/darts/niels-zonneveld-stunt-met-zege-op-luke-littler-in-zinderende-partij-op-belgian-darts-open~ac8b5294/)
+  > Niels Zonneveld heeft op de Belgian Darts Open voor een daverende verrassing gezorgd. De 27-jarige Nederlander stuurde in de achtste finales...
+- [Sylvie schittert in opvallende korsetjurk en Roxeanne is dankbaar voor onvergetelijke momenten](https://www.ad.nl/show/sylvie-schittert-in-opvallende-korsetjurk-en-roxeanne-is-dankbaar-voor-onvergetelijke-momenten~a90bbd70/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Chery maakt op fraaie wijze zijn tweede doelpunt: NEC naast Heerenveen](https://www.ad.nl/voetbal/chery-maakt-op-fraaie-wijze-zijn-tweede-doelpunt-nec-naast-heerenveen~acd910522/)
+  > NEC heeft zich na de zege op PSV (2-3) genesteld op de derde plaats in de VriendenLoterij Eredivisie. In theorie kan de club uit Nijmegen zelfs...
+- [LIVE eredivisie | Kalou, Guidetti en Bijlow steunen Feyenoord bij Klassieker, Weghorst in de spits bij Ajax](https://www.ad.nl/voetbal/live-eredivisie-kalou-guidetti-en-bijlow-steunen-feyenoord-bij-klassieker-weghorst-in-de-spits-bij-ajax~a591070f/)
+  > De Klassieker staat op het punt van beginnen. Voormalig Feyenoord-spelers Justin Bijlow, Bonaventure Kalou en John Guidetti zijn aanwezig in de Kuip....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Bij de Duitse bestelbus­inrichter Bott weten ze hoe je ‘verborgen kampioen’ wordt](https://fd.nl/bedrijfsleven/1587298/bij-de-duitse-bestelbusinrichter-bott-weten-ze-hoe-je-verborgen-kampioen-wordt)
+  > Bott Group blijft voor de buitenwereld grotendeels onder de radar, maar is marktleider in opbergsystemen voor bedrijfswagens in Europa. ‘Bedrijven in...
+- [De honden van Wall Street](https://fd.nl/opinie/1590253/de-honden-van-wall-street)
+  > Onlangs redde een anonieme New Yorkse held een hond die door het ijs was gezakt van de vijver in Central Park. In de wereld van private credit gaat...
+- [Havas is een spannend aandeel dat bijna niemand interesseert](https://fd.nl/financiele-markten/1590244/havas-is-een-spannend-aandeel-dat-bijna-niemand-interesseert)
+  > Overnames, fusiegeruchten en AI-plannen ten spijt: beleggers gunnen het Franse reclamebureau Havas geen blik waardig. Pijnlijk, voor een bedrijf dat...
+- [Vogelgriep op Drents bedrijf, 24.000 dieren gedood](https://fd.nl/bedrijfsleven/1590252/vogelgriep-op-drents-bedrijf-24-000-dieren-gedood)
+  > Sinds het virus jaarrond onder wilde vogels aanwezig is, hebben pluimveebedrijven grote moeite het buiten de deur te houden.
 - [Aardgas blijft onmisbaar voor steenfabriek, ondanks prijsexplosie](https://fd.nl/bedrijfsleven/1590277/aardgas-blijft-onmisbaar-voor-steenfabriek-ondanks-prijsexplosie)
   > Steenfabriek Vandersanden zit ingeklemd tussen een hoge gasprijs, het Europese emissiehandelssysteem en een terugvallende vraag naar bakstenen.
-- [Cuba kampt met tweede landelijke stroomstoring temidden van Amerikaanse olieblokkade](https://fd.nl/politiek/1590333/cuba-kampt-met-tweede-landelijke-stroomstoring-temidden-van-amerikaanse-olieblokkade)
-  > Cuba kan niet zonder olie van buiten, maar een Amerikaanse blokkade laat sinds januari geen schepen meer door.
-- [Philips-topman Jakobs: ‘Dat er steeds minder Nederlandse ceo’s zijn, is een punt van zorg’](https://fd.nl/bedrijfsleven/1590188/philips-topman-jakobs-dat-er-steeds-minder-nederlandse-ceos-zijn-is-een-punt-van-zorg)
-  > Roy Jakobs gaat zijn tweede termijn in als ceo van Philips. Vier jaar focuste hij zich op het bedrijf, dat worstelde met de nasleep van de...
-- [Trump stelt Iran ultimatum voor openen Straat van Hormuz](https://fd.nl/politiek/1590332/trump-dreigt-met-ultimatum-voor-openen-van-hormuz-straat)
-  > De Amerikaanse president dreigt anders na 48 uur Iraanse energiecentrales te vernietigen. Iran waarschuwt in reactie op de dreigementen voor...
-- [Financiële markten stevenen af op nieuwe week vol onrust](https://fd.nl/financiele-markten/1590331/financiele-markten-stevenen-af-op-nieuwe-week-vol-onrust)
-  > Op de obligatiemarkt is stress te zien, maar de aandelenmarkten blijven relatief stoïcijns onder het Iran-conflict. Hoe lang nog?
 
 ### Meest gelezen
 
