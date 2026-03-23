@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-03-2026 om 13:18*
+*Laatst bijgewerkt: 23-03-2026 om 15:00*
 
 ---
 
@@ -8,7 +8,9 @@
 
 ### Laatste nieuws
 
-- [Trump spreekt van 'goede gesprekken', Iran beticht hem manipulatie olieprijs](https://nos.nl/l/2607521)
+- [Lagere straf voor dader dodelijke schietpartij Zwijndrecht](https://nos.nl/l/2607528)
+  > Minh V., de verdachte van de fatale schietpartij in Zwijndrecht, is in hoger beroep veroordeeld tot 26 jaar en acht maanden cel. De rechtbank legde...
+- [Trump stelt aanval Iraanse energiedoelen uit, Iran ontkent 'goede gesprekken'](https://nos.nl/l/2607521)
   > President Trump stelt een deadline over het openen van de Straat van Hormuz met vijf dagen uit, omdat er volgens hem resultaten zijn geboekt in de...
 - [Verkeersleider na dodelijke botsing vliegtuig New York: 'Ik heb het verprutst'](https://nos.nl/l/2607520)
   > Op een geluidsopname van de luchtverkeersleiding op LaGuardia Airport is te horen hoe een verkeersleider verantwoordelijkheid neemt voor het ongeluk...
@@ -16,8 +18,6 @@
   > De politie gaat de snelheid van treinen van Qbuzz controleren bij station Baanhoek in Sliedrecht. Vanwege een verzakking aan het talud mogen treinen...
 - [Rode Kruis wil meer inzet van Nederland voor waarheid over aanval hulpverleners Gaza](https://nos.nl/l/2607512)
   > De Nederlandse regering moet zich meer inzetten om duidelijkheid te krijgen over de aanval op de vijftien hulpverleners in de Gazastrook, vindt het...
-- [Plofkraken in Laren en Amsterdam, buit onbekend](https://nos.nl/l/2607511)
-  > In Laren en Amsterdam zijn afgelopen nacht plofkraken geweest. Het is onbekend of er een verband is. De getroffen geldautomaten zijn aanzienlijk...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Edyta en Alexander: ‘30.000 euro moet genoeg zijn voor ons trouwfeest’](https://www.ad.nl/geld/edyta-en-alexander-30-000-euro-moet-genoeg-zijn-voor-ons-trouwfeest~af98d2d1/)
-  > Alexander gaf zijn droombaan op en verhuisde naar Edyta’s woonboerderij. ‘We wonen zo afgelegen dat supermarkten hier helaas niet bezorgen’,...
-- [‘Ik heb het verpest’: audio laat fataal moment horen waarop vliegtuig met brandweerwagen botst in New York](https://www.ad.nl/buitenland/ik-heb-het-verpest-audio-laat-fataal-moment-horen-waarop-vliegtuig-met-brandweerwagen-botst-in-new-york~a3f16eae/)
-  > Paniek, gevolgd door chaos. Dat is te horen op een opname van de gesprekken uit de verkeerstoren van LaGuardia Airport in New York op het moment dat...
-- [Ondanks Amerikaans aanvalspauze gaat Israël verder met bombardementen op Iran](https://www.ad.nl/buitenland/ondanks-amerikaans-aanvalspauze-gaat-israel-verder-met-bombardementen-op-iran~a3298df2/)
-  > Israël voert een grootschalige aanval uit op de Iraanse hoofdstad Teheran. Dat meldt het Israëlische leger, kort nadat bekend werd dat Amerika de...
-- [Gijs Staverman werd weggeduwd door vriendin tijdens huwelijksaanzoek: ‘Ik stond voor haar beeld’](https://www.ad.nl/show/gijs-staverman-werd-weggeduwd-door-vriendin-tijdens-huwelijksaanzoek-ik-stond-voor-haar-beeld~a76eade0/)
-  > Als Gijs Staverman maandag zestig kaarsjes uitblaast, ziet zijn leven er heel anders uit dan tien jaar eerder. Hij is nog altijd radio-dj, maar nu...
-- [Waarom moet je stilstaan voor rood als er geen ander verkeer te zien is?](https://www.ad.nl/auto/waarom-moet-je-stilstaan-voor-rood-als-er-geen-ander-verkeer-te-zien-is~aa30b83d/)
-  > Het irriteert lezer Rene Camu mateloos: lange tijd voor het rode licht moeten wachten, terwijl er geen ander verkeer te zien is. Hij vraagt zich af...
+- [De foto waarop dik 10 miljoen euro te zien is: Cristiano Ronaldo en verloofde Georgina pronken op Instagram met rijkdom](https://www.ad.nl/sport/de-foto-waarop-dik-10-miljoen-euro-te-zien-is-cristiano-ronaldo-en-verloofde-georgina-pronken-op-instagram-met-rijkdom~a338aad0/)
+  > Een plaatje met een stevig kostenplaatje. Op Instagram pronken Cristiano Ronaldo (41) en zijn verloofde Georgina Rodriguez (32) met hun prijzige...
+- [Werkcentra moeten einde maken aan wirwar loketten voor werkzoekenden](https://www.ad.nl/politiek/werkcentra-moeten-einde-maken-aan-wirwar-loketten-voor-werkzoekenden~a1e3e1f0b/)
+  > Geen afspraak, geen loketten, geen gedoe: dat is de belofte van de nieuwe Werkcentra. Daar kan iedereen terecht die werk zoekt of personeel nodig...
+- [Sifan Hassan moet marathon van Londen schrappen: ‘Ik ben er nog niet klaar voor om op mijn best te zijn’](https://www.ad.nl/andere-sporten/sifan-hassan-moet-marathon-van-londen-schrappen-ik-ben-er-nog-niet-klaar-voor-om-op-mijn-best-te-zijn~ad3ba2d0/)
+  > Sifan Hassan schrapt de marathon van Londen. Ze heeft last van haar achilles en verschijnt zodoendope  zondag 26 april niet aan de start. „Ik ben...
+- [‘De politie zou oplichters vaker aan de schandpaal moeten nagelen’](https://www.ad.nl/binnenland/de-politie-zou-oplichters-vaker-aan-de-schandpaal-moeten-nagelen~ae0a48eb/)
+  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag: de politie gaat een stap te ver door oplichters herkenbaar in beeld te...
+- [Barry Keoghan komt liever niet meer buiten vanwege onlinehaat na breuk Sabrina Carpenter](https://www.ad.nl/show/barry-keoghan-komt-liever-niet-meer-buiten-vanwege-onlinehaat-na-breuk-sabrina-carpenter~a927589c/)
+  > Barry Keoghan blijft zich verbazen over de enorme onlinehaat die soms wordt gedeeld over films en acteurs. Dat meldt de Britse ster, die binnenkort...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Danone koopt maker proteïnedranken](https://fd.nl/bedrijfsleven/1590271/danone-koopt-maker-proteinedranken)
-  > Het gaat om het Britse Huel, dat enkele jaren geleden ook de acteur Idris Elba als investeerder aan boord haalde.
-- [Trump vertrouwt één man bij gesprekken met Iran: Steve Witkoff](https://fd.nl/politiek/1590251/trump-vertrouwt-een-man-bij-gesprekken-met-iran-steve-witkoff)
-  > Vastgoedinvesteerder Steve Witkoff onderhandelt namens Trump buiten de normale diplomatieke paden om met buitenlandse leiders. Zijn aandacht is nu...
-- [Cfo Budget Energie: ‘Er bellen nu nog geen klanten die meer aan energie betalen dan aan huur’](https://fd.nl/bedrijfsleven/1589601/cfo-budget-energie-er-bellen-nu-nog-geen-klanten-die-meer-aan-energie-betalen-dan-aan-huur)
-  > Sven Pronk stelt opgelucht vast dat de energiecrisis vooralsnog wel meevalt én dat Budget Energie deze keer veel beter is voorbereid.
-- [Waaruit bestaat het vermogen van miljonairs?](https://fd.nl/samenleving/1590264/waaruit-bestaat-het-vermogen-van-miljonairs)
-  > Wetenswaardigheden op het gebied van loopbaan en personal finance.
-- [Trump stelt aanval op Iran uit, dat ‘goede gesprekken’ over einde oorlog ontkent](https://fd.nl/politiek/1590268/trump-stelt-aanval-op-iraanse-energiecentrales-uit)
-  > De Amerikaanse president dreigde Iraanse energiecentrales te bombarderen, maar stelt die aanval uit vanwege goede gesprekken over het beëindigen van...
+- [WMO: ‘Aarde houdt meer warmte vast dan ooit’](https://fd.nl/samenleving/1590398/wmo-aarde-houdt-meer-warmte-vast-dan-ooit)
+  > Antonio Guterres, secretaris-generaal van de VN, spreekt van een noodtoestand. ‘Alle belangrijke klimaatindicatoren staan ​​op rood’, schrijft hij in...
+- [Accountant gaat opnieuw in de fout: vijf jaar uit beroep gezet](https://fd.nl/bedrijfsleven/1590273/accountant-gaat-opnieuw-in-de-fout-vijf-jaar-uit-beroep-gezet)
+  > De accountant vermoedde fraude bij een klant maar onderzocht dat onvoldoende, meent beroepsorganisatie NBA.
+- [Hongaarse regering beschuldigd van lekken gevoelige EU-gesprekken naar Moskou](https://fd.nl/politiek/1590275/hongaarse-regeringbeschuldigd-van-lekken-gevoelige-eu-gesprekken-naar-moskou)
+  > De Hongaarse minister van buitenlandse zaken Szijjártó houdt de Russische buitenlandminister Lavrov op de hoogte van besprekingen met Europese...
+- [Wie geen AI gebruikt, kan een promotie of hogere bonus vergeten](https://fd.nl/financiele-markten/1588320/wie-geen-ai-gebruikt-kan-een-promotie-of-hogere-bonus-vergeten)
+  > Geen gebruik van AI, dan geen kans op een promotie of hogere bonus.  ‘Het is een kwestie van tijd voordat we dit op de Zuidas ook gaan zien.’
+- [Lokale verkiezingen leggen eens te meer de Franse verdeeldheid bloot](https://fd.nl/politiek/1590270/lokale-verkiezingen-leggen-eens-te-meer-de-franse-verdeeldheid-bloot)
+  > De grote doorbraak van het radicaal-rechtse Rassemblement National bleef zondag uit. Allianties op links en op rechts bleken niet overal te werken....
 
 ### Meest gelezen
 
