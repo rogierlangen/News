@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-03-2026 om 22:37*
+*Laatst bijgewerkt: 23-03-2026 om 23:37*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Jury kent 84-jarige ex-serveerster 19 miljoen dollar toe voor verkrachting door Bill Cosby](https://www.ad.nl/show/jury-kent-84-jarige-ex-serveerster-19-miljoen-dollar-toe-voor-verkrachting-door-bill-cosby~aeeed5a4/)
+  > Een Amerikaanse jury heeft een inmiddels 84-jarige ex-serveerster een schadevergoeding van ruim 19 miljoen dollar (16, 4 miljoen euro) toegekend in...
+- [Oud-Ajacied Tahirović centraal in complottheorie van bondscoach Bosnië: ‘Zet mij aan het denken’](https://www.ad.nl/voetbal/oud-ajacied-tahirovic-centraal-in-complottheorie-van-bondscoach-bosnie-zet-mij-aan-het-denken~adf31801/)
+  > De bondscoach van Bosnië en Herzegovina heeft zich opmerkelijk uitgelaten over Benjamin Tahirović. Volgens Sergey Barbarez is het geen toeval dat de...
 - [Van Wonderen begon niet bij Feyenoord, omdat twijfel toesloeg tijdens cruciaal gesprek: ‘Niet het goede moment’](https://www.ad.nl/voetbal/van-wonderen-begon-niet-bij-feyenoord-omdat-twijfel-toesloeg-tijdens-cruciaal-gesprek-niet-het-goede-moment~ad863990/)
   > Kees van Wonderen is begin deze maand niet begonnen bij Feyenoord als technisch directeur, omdat het gevoel bij een of meerdere betrokkenen niet goed...
 - [Shorttrackster (25) die schaatsijzer in gezicht kreeg op Spelen laat litteken zien: ‘Ik geef niet op’](https://www.ad.nl/schaatsen/shorttrackster-25-die-schaatsijzer-in-gezicht-kreeg-op-spelen-laat-litteken-zien-ik-geef-niet-op~a65b8587/)
   > De Poolse shorttrackster Kamila Sellier was tijdens de afgelopen Olympische Winterspelen even wereldnieuws. Ze werd geraakt door het schaatsijzer van...
 - [Tweelingzussen zien ‘droom in duigen vallen’ in Kopen zonder kijken: ‘Je las het in hun ogen’](https://www.ad.nl/show/tweelingzussen-zien-droom-in-duigen-vallen-in-kopen-zonder-kijken-je-las-het-in-hun-ogen~af2380b0/)
   > De eeneiige tweelingzussen Isabel en Ellemijn (26) maken het maandagavond niet makkelijk voor het Kopen zonder kijken-team. De ‘luxe dametjes’ zoeken...
-- [‘Lentekriebels was 17 jaar de leukste week van het jaar, tot drie jaar terug de desinformatie begon’](https://www.ad.nl/binnenland/lentekriebels-was-17-jaar-de-leukste-week-van-het-jaar-tot-drie-jaar-terug-de-desinformatie-begon~a65f0191/)
-  > De Week van de Lentekriebels is weer begonnen op duizenden basisscholen. Voor het eerst in drie jaar gaat dat vrijwel zonder ophef. Een belangrijk...
-- [Depay valt af, De Jong geblesseerd, Timber al weg: Koeman ziet zijn spelers ‘met bosjes omvallen’](https://www.ad.nl/voetbal/depay-valt-af-de-jong-geblesseerd-timber-al-weg-koeman-ziet-zijn-spelers-met-bosjes-omvallen~aff88ae1/)
-  > Het WK nadert, maar bondscoach Ronald Koeman houdt elke week opnieuw zijn hart vast als het gaat om zijn Oranje-internationals. Zondagnacht viel ook...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Powerplay](https://fd.nl/opinie/1590492/powerplay)
+  > Wordt Donald Trump onbedoeld de president die de energietransitie een slinger geeft, vraagt FD-columnist Anna Dijkman zich af.
+- [Winst ontwikkelingsbank FMO daalt mee met de dollar](https://fd.nl/bedrijfsleven/1590406/winst-ontwikkelingsbank-fmo-daalt-mee-met-de-dollar)
+  > Ontwikkelingsbank FMO maakte het afgelopen kalenderjaar 83,8% minder winst. Dat kwam vooral door de daling van de dollarkoers.
+- [Trump wil van Iran af](https://fd.nl/opinie/1590380/trump-wil-van-iran-af)
+  > Door de hoge brandstofprijzen zien veel Amerikanen een door Trump aangekondigde belastingverlaging alweer verdampen. De tijd dringt dus voor de...
+- [Personalia dinsdag 24 maart 2026](https://fd.nl/bedrijfsleven/1590396/personalia-dinsdag-24-maart-2026)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [Waarde beleggingen Exor omlaag door dompers bij beursgenoteerde bedrijven](https://fd.nl/bedrijfsleven/1590274/waarde-beleggingen-exor-omlaag-door-dompers-bij-beursgenoteerde-bedrijven)
   > Om het tij te keren wil de investeringsmaatschappij haar portfolio aanscherpen, schrijft topman John Elkann in het jaarverslag.
-- [Wall Street haalt adem nu Trump Iran nog even niet aanvalt](https://fd.nl/economie/1590493/wall-street-haalt-adem-nu-trump-iran-nog-even-niet-aanvalt)
-  > Donald Trump had gedreigd met aanvallen op Iraanse energiecentrales, maar besloot deze uit te stellen na ‘productieve gesprekken’ met Iran.
-- [Hack bij ministerie van Financiën, systemen deels geblokkeerd](https://fd.nl/politiek/1590413/hack-bij-ministerie-van-financien-systemen-deels-geblokkeerd)
-  > De dienstverlening van Belastingdienst, Douane en Toeslagen aan burgers en bedrijven is niet geraakt.
-- [Defensie, bedrijven en banken moeten risico’s delen](https://fd.nl/economie/1590401/defensie-bedrijven-en-banken-moeten-risicos-delen)
-  > Het is belangrijker om de defensiecapaciteit op orde te krijgen, dan financieel het onderste uit de kan te halen. Europa’s veiligheid weegt immers...
-- [Eigenaar erotisch platform OnlyFans op 43-jarige leeftijd overleden](https://fd.nl/bedrijfsleven/1590412/oprichter-erotisch-platform-onlyfans-op-43-jarige-leeftijd-overleden)
-  > Op dat platform plaatsen creators, onder wie sekswerkers en fitnessgoeroes, video’s voor betalende abonnees.
 
 ### Meest gelezen
 
