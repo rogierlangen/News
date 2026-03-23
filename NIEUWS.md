@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-03-2026 om 21:41*
+*Laatst bijgewerkt: 23-03-2026 om 22:37*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Trump plots optimistisch over kans op deal, maar Iran noemt het 'nepnieuws'](https://nos.nl/l/2607582)
+  > De Amerikaanse president Trump beweert dat een deal met Iran mogelijk nabij is. Hij stelt dat Teheran op belangrijke punten akkoord is met een...
+- [TotalEnergies ziet af van windparken na schikking van bijna miljard dollar met Trump](https://nos.nl/l/2607578)
+  > De VS gaat het Franse olie- en gasbedrijf TotalEnergies bijna 1 miljard dollar betalen om twee windparken voor Amerikaanse oostkust stop te zetten....
 - [Azc Hardenberg blijft open, COA betaalt na dinsdag dwangsom](https://nos.nl/l/2607576)
   > Het gaat het Centraal Orgaan opvang asielzoekers (COA) niet lukken om morgen een asielzoekerscentrum in Hardenberg en een tijdelijke...
 - [Gevangene die ontsnapte uit Utrechts ziekenhuis verdacht van mishandeling en bedreiging](https://nos.nl/l/2607574)
   > De gedetineerde die vrijdag ontsnapte tijdens een ziekenhuisbezoek in het Utrechtse Diakonessenhuis, wordt onder meer verdacht van bedreiging en...
 - [Jongeren trakteren zichzelf vaak op 'little treats': 'Kosten kunnen hoog oplopen'](https://nos.nl/l/2607572)
   > "Als ik klaar ben met mijn toetsweek ga ik toch vaak dat ene truitje kopen", zegt Cindy terwijl ze aan het winkelen is. Ze is niet de enige jongere...
-- [In West Virginia's roodste district wint loyaliteit aan Trump van twijfel over oorlog](https://nos.nl/l/2607570)
-  > President Trump noemde de oorlog die hij begon in het Midden-Oosten een "uitstapje", maar de gevolgen ervan hebben nu ook de gebieden met zijn...
-- [Italianen stemmen in referendum tegen hervorming rechtssysteem, Meloni erkent verlies](https://nos.nl/l/2607567)
-  > De Italiaanse bevolking heeft in een referendum tegen een grondwetswijziging gestemd, blijkt uit exitpolls. Bijna 54 procent van de kiezers stemde...
 
 ### Meest gelezen
 
@@ -27,7 +27,7 @@
 
 ### Laatste nieuws
 
-- [Kees van Wonderen miste het ‘goede gevoel’ om bij Feyenoord als technisch directeur aan de slag te gaan](https://www.ad.nl/voetbal/kees-van-wonderen-miste-het-goede-gevoel-om-bij-feyenoord-als-technisch-directeur-aan-de-slag-te-gaan~ad863990/)
+- [Van Wonderen begon niet bij Feyenoord, omdat twijfel toesloeg tijdens cruciaal gesprek: ‘Niet het goede moment’](https://www.ad.nl/voetbal/van-wonderen-begon-niet-bij-feyenoord-omdat-twijfel-toesloeg-tijdens-cruciaal-gesprek-niet-het-goede-moment~ad863990/)
   > Kees van Wonderen is begin deze maand niet begonnen bij Feyenoord als technisch directeur, omdat het gevoel bij een of meerdere betrokkenen niet goed...
 - [Shorttrackster (25) die schaatsijzer in gezicht kreeg op Spelen laat litteken zien: ‘Ik geef niet op’](https://www.ad.nl/schaatsen/shorttrackster-25-die-schaatsijzer-in-gezicht-kreeg-op-spelen-laat-litteken-zien-ik-geef-niet-op~a65b8587/)
   > De Poolse shorttrackster Kamila Sellier was tijdens de afgelopen Olympische Winterspelen even wereldnieuws. Ze werd geraakt door het schaatsijzer van...
