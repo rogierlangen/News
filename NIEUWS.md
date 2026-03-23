@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-03-2026 om 16:06*
+*Laatst bijgewerkt: 23-03-2026 om 17:53*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Prijzen aan de pomp blijven stijgen, is accijnsverlaging de oplossing?](https://nos.nl/l/2607538)
-  > Door de oorlog in het Midden-Oosten stijgen de prijzen aan de pomp voor de vierde week op rij. Een liter benzine kost inmiddels 2,57 euro, bijna 30...
-- [Kandidaat-raadslid Heusden krijgt hertelling na missen eigen stem](https://nos.nl/l/2607534)
-  > Een kandidaat-raadslid in Heusden stelt dat er in zijn gemeente fouten zijn gemaakt bij het tellen van de stemmen tijdens de...
-- [Lagere straf voor dader dodelijke schietpartij Zwijndrecht](https://nos.nl/l/2607528)
-  > Minh V., de verdachte van de fatale schietpartij in Zwijndrecht, is in hoger beroep veroordeeld tot 26 jaar en acht maanden cel. De rechtbank legde...
-- [Trump stelt aanval Iraanse energiedoelen uit, Iran ontkent 'goede gesprekken'](https://nos.nl/l/2607521)
-  > President Trump stelt een deadline over het openen van de Straat van Hormuz met vijf dagen uit, omdat er volgens hem resultaten zijn geboekt in de...
-- [Verkeersleider na dodelijke botsing vliegtuig New York: 'Ik heb het verprutst'](https://nos.nl/l/2607520)
-  > Op een geluidsopname van de luchtverkeersleiding op LaGuardia Airport is te horen hoe een verkeersleider verantwoordelijkheid neemt voor het ongeluk...
+- [Toename geweld Israël in Gaza sinds Iran-oorlog: 'De wereld kijkt andere kant op'](https://nos.nl/l/2607555)
+  > Toen Israël en de Verenigde Staten eind februari Iran aanvielen, namen de Israëlische aanvallen op de Gazastrook even af. Maar dat duurde niet lang....
+- [OnlyFans-eigenaar Leonid Radvinsky (43) overleden](https://nos.nl/l/2607554)
+  > De eigenaar van het succesvolle videoplatform OnlyFans, Leonid Radvinsky, is op 43-jarige leeftijd overleden aan kanker. Dat meldt moederbedrijf...
+- [Opgepakte tieners Heemstede verdacht van voorbereiden explosie met terroristisch oogmerk](https://nos.nl/l/2607551)
+  > Twee tieners die in de nacht van donderdag op vrijdag zijn opgepakt in Heemstede worden ervan verdacht een explosie of brandstichting te hebben...
+- [Amateurclubs naar de rechter om samenvoeging zaterdag- en zondagvoetbal](https://nos.nl/l/2607549)
+  > Acht clubs uit het amateurvoetbal slepen voetbalbond KNVB voor de rechter omdat die een einde wil maken aan het verschil tussen zaterdag- en...
+- [Ministerie van Financiën gehackt, systemen geblokkeerd door ministerie](https://nos.nl/l/2607547)
+  > Het ministerie van Financiën in Den Haag is vorige week getroffen door een hack. Als gevolg daarvan is besloten om systemen voor "een aantal primaire...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [A-merken winnen terrein terug : vooral suikervrije drank en proteïneproducten scoren](https://www.ad.nl/economie/a-merken-winnen-terrein-terug-vooral-suikervrije-drank-en-proteineproducten-scoren~aa2ff130/)
-  > Jaar na jaar verloren grote merken als Coca-Cola en Milka terrein op huismerken. Maar vorig jaar krabbelden de grote merken weer iets op, met name...
-- [Ruud de Wild loopt weg uit uitzending vanwege reacties over interview: ‘Werd grimmiger en erger’](https://www.ad.nl/show/ruud-de-wild-loopt-weg-uit-uitzending-vanwege-reacties-over-interview-werd-grimmiger-en-erger~a4dae1a2/)
-  > Ruud de Wild is maandagmiddag weggelopen uit zijn middagprogramma op NPO Radio 2. De dj begon zijn uitzending met een statement over het interview...
-- [Fans en Italiaanse media lyrisch over Marten de Roon na record: ‘Heeft hard werken tot kunst verheven’](https://www.ad.nl/voetbal/fans-en-italiaanse-media-lyrisch-over-marten-de-roon-na-record-heeft-hard-werken-tot-kunst-verheven~a7c1cc15d/)
-  > Marten de Roon heeft zondag geschiedenis geschreven in Bergamo: de Nederlandse middenvelder speelde in de wedstrijd tegen Hellas Verona zijn 436ste...
-- [OnlyFans-eigenaar Leonid Radvinsky overleden op 43-jarige leeftijd](https://www.ad.nl/tech/onlyfans-eigenaar-leonid-radvinsky-overleden-op-43-jarige-leeftijd~a4e0974f/)
-  > De eigenaar van de populaire erotische filmpjessite OnlyFans, Leonid Radvinsky, is op 43-jarige leeftijd overleden aan kanker. Dat heeft...
-- [Bondscoach Ronald Koeman rekent niet op geblesseerde Memphis Depay: 'Het ziet er niet goed uit'](https://www.ad.nl/voetbal/bondscoach-ronald-koeman-rekent-niet-op-geblesseerde-memphis-depay-het-ziet-er-niet-goed-uit~aeccd47b/)
-  > Bondscoach Ronald Koeman geeft zijn eerste persconferentie van het WK-jaar 2026. Die wordt voor Oranje vrijdag om 20.45 uur in de Johan Cruijff Arena...
+- [Zo plaatst Suriname zich alsnog voor het WK 2026: donderdag tegen Bolivia](https://www.ad.nl/voetbal/zo-plaatst-suriname-zich-alsnog-voor-het-wk-2026-donderdag-tegen-bolivia~a9537d429/)
+  > Suriname droomt nog altijd van het WK. Eind maart speelt de ploeg van de nieuwe bondscoach Henk ten Cate een minitoernooi om zich mogelijk alsnog te...
+- [FC Utrecht neemt afscheid van Kolbeinn Finnsson, Sevilla zet trainer op straat](https://www.ad.nl/voetbal/fc-utrecht-neemt-afscheid-van-kolbeinn-finnsson-sevilla-zet-trainer-op-straat~a35ea681/)
+  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
+- [Beurzen eindigen hoger ondanks Iraanse ontkenning over gesprekken](https://www.ad.nl/economie/beurzen-eindigen-hoger-ondanks-iraanse-ontkenning-over-gesprekken~a5a5190c/)
+  > De Europese aandelenbeurzen gingen maandag halverwege de dag plots omhoog en sloten in de plus. Beleggers reageerden op opmerkingen van de...
+- [Lenny- en Superman-actrice Valerie Perrine op 82-jarige leeftijd overleden](https://www.ad.nl/show/lenny-en-superman-actrice-valerie-perrine-op-82-jarige-leeftijd-overleden~aabd08b0/)
+  > De Amerikaanse actrice Valerie Perrine is op 82-jarige leeftijd overleden in haar huis in Beverly Hills. Dat heeft haar goede vriend en filmmaker...
+- ['Energiecrisis door oorlog Iran nu net zo hevig als eerdere grote crises bij elkaar': is dat echt zo?](https://www.ad.nl/buitenland/energiecrisis-door-oorlog-iran-nu-net-zo-hevig-als-eerdere-grote-crises-bij-elkaar-is-dat-echt-zo~a27fcd78/)
+  > De energiecrisis door de oorlog in Iran is net zo hevig als drie eerdere grote crises bij elkaar, waaronder die van 1973. Dat zegt het hoofd van het...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Beleggen is volgens Larry Fink de oplossing voor alle problemen](https://fd.nl/financiele-markten/1590386/beleggen-is-volgens-larry-fink-de-oplossing-voor-alle-problemen)
-  > De jaarlijkse brief van de BlackRock-ceo trapt flink wat open deuren in. Zo profiteren veel mensen niet van de AI-ontwikkelingen en moet er meer...
-- [Deense ceo’s verafschuwen plan voor vermogensbelasting](https://fd.nl/politiek/1590400/deense-ceos-verafschuwen-plan-voor-vermogensbelasting)
-  > Het veelbesproken plan van premier Frederiksen voor een vermogensbelasting van 0,5% leidt tot verzet in het Deense bedrijfsleven. Dinsdag moet...
-- [WMO: ‘Aarde houdt meer warmte vast dan ooit’](https://fd.nl/samenleving/1590398/wmo-aarde-houdt-meer-warmte-vast-dan-ooit)
-  > Antonio Guterres, secretaris-generaal van de VN, spreekt van een noodtoestand. ‘Alle belangrijke klimaatindicatoren staan ​​op rood’, schrijft hij in...
-- [Accountant gaat opnieuw in de fout: vijf jaar uit beroep gezet](https://fd.nl/bedrijfsleven/1590273/accountant-gaat-opnieuw-in-de-fout-vijf-jaar-uit-beroep-gezet)
-  > De accountant vermoedde fraude bij een klant maar onderzocht dat onvoldoende, meent beroepsorganisatie NBA.
-- [Hongaarse regering beschuldigd van lekken gevoelige EU-gesprekken naar Moskou](https://fd.nl/politiek/1590275/hongaarse-regeringbeschuldigd-van-lekken-gevoelige-eu-gesprekken-naar-moskou)
-  > De Hongaarse minister van buitenlandse zaken Szijjártó houdt de Russische buitenlandminister Lavrov op de hoogte van besprekingen met Europese...
+- [Kamer heeft waslijst aan vragen over nieuwe wetten tegen digitale en fysieke dreiging](https://fd.nl/politiek/1590488/kamer-heeft-waslijst-aan-vragen-over-nieuwe-wetten-tegen-digitale-en-fysieke-dreiging)
+  > De Tweede Kamer boog zich over grote wetten die de digitale en fysieke veiligheid moeten versterken. ‘Eerlijk gezegd is dat nogal vaag.’
+- [Zweden verlaagt accijns op brandstof om impact Iran-conflict te verzachten](https://fd.nl/samenleving/1590482/zweden-verlaagt-accijns-op-brandstof-om-impact-iran-conflict-te-verzachten)
+  > Dat maakte premier Ulf Kristersson maandag bekend tijdens een persconferentie in Stockholm.
+- [EasyJet waarschuwt voor stijgende ticketprijzen tegen einde zomer door Iran-oorlog](https://fd.nl/bedrijfsleven/1590403/easyjet-waarschuwt-voor-stijgende-ticketprijzen-tegen-einde-zomer-door-iran-oorlog)
+  > Voorlopig is de brandstofbehoefte afgedekt, maar dat geeft geen garantie tot na de zomer, zegt EasyJet-ceo Kenton Jarvis.
+- [EIB-president Nadia Calviño: ‘Niet fossiel, maar groene energie wordt de veilige investering’](https://fd.nl/financiele-markten/1590407/eib-president-nadia-calvino-niet-fossiel-maar-groene-energie-wordt-de-veilige-investering)
+  > De president van de Europese Investeringsbank legt de focus op technologische start-ups en op versimpeling van de bureaucratie. ‘Er moet een tandje...
+- [Bird boekt winstgroei en wil weer op overnamepad](https://fd.nl/tech-en-innovatie/1590280/bird-boekt-winstgroei-en-wil-weer-op-overnamepad)
+  > Techbedrijf Bird kijkt naar mogelijkheden om bedrijven in Europa en de Verenigde Staten over te nemen, zegt ceo Robert Vis. De interesse komt enkele...
 
 ### Meest gelezen
 
