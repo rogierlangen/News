@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-03-2026 om 07:17*
+*Laatst bijgewerkt: 23-03-2026 om 09:03*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Vrachtwagen met veevoer gekanteld, A67 van grens naar Eindhoven dicht](https://nos.nl/l/2607492)
+  > Op de A67 van de Belgische grens naar Eindhoven is vannacht een vrachtwagen gekanteld. Het ging rond 04.00 uur mis ter hoogte van Hapert. De weg is...
 - [Middelbare school Deventer ontvangt opnieuw dreigberichten, lessen gaan door](https://nos.nl/l/2607487)
   > Een middelbare school met meerdere locaties in Deventer heeft opnieuw dreigende berichten ontvangen. Dat schrijft de centrale directie van het Etty...
 - [Politie deelt herkenbare beelden van 79 nepagenten en andere fraudeurs](https://nos.nl/l/2607482)
@@ -16,8 +18,6 @@
   > Even een ommetje maken wanneer je wilt, moet ook kunnen voor mensen met dementie, zo staat in de Wet zorg en dwang. Toch worstelen veel...
 - [Vliegtuig botst op brandweerauto op luchthaven New York, 'piloten omgekomen'](https://nos.nl/l/2607478)
   > Een vliegtuig van Air Canada Express heeft bij een landing op het LaGuardia-vliegveld in New York een brandweervoertuig geraakt. De gezagvoerder en...
-- [Wekdienst 23/3: Kamerdebat EU-migratiepact • Uitspraak hoger beroep femicidezaak](https://nos.nl/l/2607476)
-  > Goedemorgen! De Tweede Kamer discussieert vandaag over het nieuwe Europese migratiepact en de verdachte van het neerschieten van een vrouw en haar...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hassan probeerde brand te stichten bij de Spoedeisende Hulp van het ziekenhuis](https://www.ad.nl/binnenland/hassan-probeerde-brand-te-stichten-bij-de-spoedeisende-hulp-van-het-ziekenhuis~a1a8e5d3/)
-  > Het gebruik van crack is een groot probleem in Rotterdam. Een van de vele gebruikers is Hassan, die in de zomer van 2025 zelfs probeerde brand te...
-- [Afrika levert Russisch kanonnenvlees: Obiora is ‘dol op Poetin’, maar gezien zijn uitrusting duurt dat niet lang](https://www.ad.nl/buitenland/afrika-levert-russisch-kanonnenvlees-obiora-is-dol-op-poetin-maar-gezien-zijn-uitrusting-duurt-dat-niet-lang~a22682e3/)
-  > Ze heten Obiora, Nabil en Samuel. Ze komen van het Afrikaanse continent, spreken geen Russisch en kennen het Oekraïense slagveld al helemaal niet....
-- [Plaatselijk zeer dichte mist: KNMI geeft code geel af voor helft van het land](https://www.ad.nl/binnenland/plaatselijk-zeer-dichte-mist-knmi-geeft-code-geel-af-voor-helft-van-het-land~aaaf4b3b/)
-  > Het KNMI heeft maandagochtend code geel afgekondigd voor provincies in het westen, midden en noorden van het land. De waarschuwing is gedaan omdat...
-- [Vliegtuig botst met brandweerwagen op luchthaven in New York: vier gewonden](https://www.ad.nl/buitenland/vliegtuig-botst-met-brandweerwagen-op-luchthaven-in-new-york-vier-gewonden~a3361067/)
-  > Bij een botsing tussen een vliegtuig van Air Canada Express en een brandweerwagen op een landingsbaan van luchthaven LaGuardia in New York zijn vier...
-- [Vier ambulances van Joodse organisatie in Londen in brand gestoken, politie spreekt van ‘antisemitisch haatmisdrijf’](https://www.ad.nl/buitenland/vier-ambulances-van-joodse-organisatie-in-londen-in-brand-gestoken-politie-spreekt-van-antisemitisch-haatmisdrijf~ac505cf8/)
-  > Vier ambulances van een Joodse organisatie zijn afgelopen nacht in brand gestoken in Londen. De politie beschouwt de zaak als een ‘antisemitisch...
+- [Een ratjetoe aan verhalen en liedjes én een haperende stem: de magie van Pia Douwes is uitgewerkt](https://www.ad.nl/show/een-ratjetoe-aan-verhalen-en-liedjes-en-een-haperende-stem-de-magie-van-pia-douwes-is-uitgewerkt~a85d51cf/)
+  > Musicaldiva Pia Douwes belooft in de titel van haar personalityshow dat het publiek dichtbij haar zal komen. Maar de uitvoering laat te wensen over:...
+- [Janni (91) doorziet nepagent en zet val: ‘Jij onnozel kindje, moet jij nou mijn sieraden meenemen?’](https://www.ad.nl/binnenland/janni-91-doorziet-nepagent-en-zet-val-jij-onnozel-kindje-moet-jij-nou-mijn-sieraden-meenemen~a952a44a/)
+  > Een grote grijns verschijnt op het gezicht van de 91-jarige Janni Zonneveld uit Doetinchem als ze vertelt hoe ze hielp een nepagent op te pakken....
+- [Nog één dag genieten van de zon, daarna wordt het guur met hagel, onweer en zelfs natte sneeuw](https://www.ad.nl/binnenland/nog-een-dag-genieten-van-de-zon-daarna-wordt-het-guur-met-hagel-onweer-en-zelfs-natte-sneeuw~af7150ef/)
+  > Vandaag kunnen we nog één dag volle bak genieten van de zon. Dinsdag slaat het weer om en vanaf woensdag krijgen we te maken met buien in alle...
+- [Trump belt met Starmer over Straat van Hormuz na fikse uithaal: ‘Jullie zijn lafaards’](https://www.ad.nl/buitenland/trump-belt-met-starmer-over-straat-van-hormuz-na-fikse-uithaal-jullie-zijn-lafaards~ac528ac3/)
+  > De Amerikaanse president Trump en de Britse premier Starmer hebben zondagavond gebeld over de situatie in de Straat van Hormuz. Het telefoontje kwam...
+- [Eerst verguisd, nu bejubeld: voormalig toptalent 'La Bomba' Jordan Lotomba dé winnaar van de Klassieker](https://www.ad.nl/voetbal/eerst-verguisd-nu-bejubeld-voormalig-toptalent-la-bomba-jordan-lotomba-de-winnaar-van-de-klassieker~ac3859c3/)
+  > Jordan Lotomba de zwakke schakel? In de Kuip werd hij tijdens de Klassieker zondag juist bejubeld. Dit is het verhaal van La Bomba. Een voormalig...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Grootste daling consumentenvertrouwen in vier jaar](https://fd.nl/economie/1590259/grootste-daling-consumentenvertrouwen-in-vier-jaar)
-  > Vooral het oordeel over het economisch klimaat verslechtert. De koopbereidheid levert eveneens in ten opzichte van februari.
-- [Franse steden blijven overwegend links, geen radicaal-rechtse doorbraak](https://fd.nl/politiek/1590375/franse-steden-blijven-overwegend-links-geen-radicaal-rechtse-doorbraak)
-  > In Parijs volgt de socialist Emmanuel Grégoire zijn partijgenoot Anne Hidalgo op.
-- [Live: Financiële markten dieper in het rood door Iran-oorlog, futures AEX-index 2% lager](https://fd.nl/financiele-markten/1590258/live-financiele-markten-dieper-in-het-rood-door-escalatie-oorlog-iran)
-  > De koersen gaan verder onderuit door oplopende spanningen in het Midden-Oosten. De aandelenmarkten in Azië leveren stevig in, de goudprijs daalt...
-- [Razendpopulaire én zeer riskante cryptoderivaten worden aan banden gelegd](https://fd.nl/economie/1590300/razendpopulaire-en-zeer-riskante-cryptoderivaten-worden-aan-banden-gelegd)
-  > Vandaag in Dagkoers: wanneer cryptogokken verder aan banden gaat, hoe defensiemiljarden toch niet doorstromen, en of CO₂-project Aramis in rook...
-- [Motorbootloze zondag](https://fd.nl/opinie/1590337/motorbootloze-zondag)
-  > In 2001 werd de ‘Regeling autoloze zondag bij oliecrisis’ ingevoerd: de elektrische auto ontbreekt.
+- [Hoe voorkom je gedoe over je geërfde vakantiehuis?](https://fd.nl/samenleving/1590379/hoe-voorkom-je-gedoe-over-je-geerfde-vakantiehuis)
+  > Een vakantiehuisje is heerlijk, maar alleen met goede afspraken. Want: ‘Met hoe meer mensen je samen eigenaar bent, hoe ingewikkelder het wordt.’
+- [Wereldbank-bestuurder Aki Nishio: ‘Veel ontwikkelingshulp bestaat uit muggenprikprojectjes’](https://fd.nl/samenleving/1589877/wereldbank-bestuurder-aki-nishio-veel-ontwikkelingshulp-bestaat-uit-muggenprikprojectjes)
+  > Aki Nishio haalde $24 mrd op voor het fonds voor de armste landen. ‘Voor elke euro van donoren kunnen wij vier euro uitlenen’, zegt de vicepresident...
+- [Poste Italiane doet bod op Telecom Italia voor volledige overname](https://fd.nl/bedrijfsleven/1590261/poste-italiane-doet-bod-op-telecom-italia-voor-volledige-overname)
+  > Het postbedrijf is met een belang van ruim 27% al grootaandeelhouder. Na de overname zal Telecom Italia van de beurs in Milaan verdwijnen.
+- [Koopwoning 0,1% duurder in februari](https://fd.nl/economie/1590377/koopwoning-0-1-duurder-in-februari)
+  > De afvlakkende groei van de huizenprijzen zet daarmee door. Begin deze maand constateerde makelaarsvereniging NVM ook al dat de ‘extreme hectiek’ op...
+- [Pro-Europese premier Golob wint nipt de Sloveense verkiezingen](https://fd.nl/politiek/1590376/pro-europese-premier-golob-wint-nipt-de-sloveense-verkiezingen)
+  > Het verschil in stemmen met de rechts-populistische kandidaat is minimaal. Golobs partij is weliswaar de grootste in het parlement, maar heeft geen...
 
 ### Meest gelezen
 
