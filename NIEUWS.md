@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-03-2026 om 09:03*
+*Laatst bijgewerkt: 23-03-2026 om 10:56*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Rode Kruis: meer inzet Nederland voor waarheid over aanval hulpverleners Gaza](https://nos.nl/l/2607512)
+  > De Nederlandse regering moet zich meer inzetten om duidelijkheid te krijgen over de aanval op de vijftien hulpverleners in de Gazastrook, vindt het...
+- [Plofkraken in Laren en Amsterdam, buit onbekend](https://nos.nl/l/2607511)
+  > In Laren en Amsterdam zijn afgelopen nacht plofkraken geweest. Het is onbekend of er een verband is. De getroffen geldautomaten zijn aanzienlijk...
+- [Franse oud-premier Lionel Jospin (88) overleden](https://nos.nl/l/2607510)
+  > De voormalige Franse premier Lionel Jospin is op 88-jarige leeftijd overleden. Dat hebben zijn familie en meerdere leden van de Parti Socialiste...
+- [Podcast De Dag x De Stemming: koffie en scoops in Den Haag](https://nos.nl/l/2607506)
+  > Marleen de Rooy en Jorn Jonker vertellen in deze speciale live opname van podcast De Dag tijdens het podcastfestival in TivoliVredenburg hoe zij aan...
 - [Vrachtwagen met veevoer gekanteld, A67 van grens naar Eindhoven dicht](https://nos.nl/l/2607492)
   > Op de A67 van de Belgische grens naar Eindhoven is vannacht een vrachtwagen gekanteld. Het ging rond 04.00 uur mis ter hoogte van Hapert. De weg is...
-- [Middelbare school Deventer ontvangt opnieuw dreigberichten, lessen gaan door](https://nos.nl/l/2607487)
-  > Een middelbare school met meerdere locaties in Deventer heeft opnieuw dreigende berichten ontvangen. Dat schrijft de centrale directie van het Etty...
-- [Politie deelt herkenbare beelden van 79 nepagenten en andere fraudeurs](https://nos.nl/l/2607482)
-  > De politie heeft herkenbare beelden online gezet van 79 personen die worden gezocht vanwege babbeltrucs. Het gaat om mensen die zich voordeden als...
-- [Instellingen voor mensen met dementie worstelen met opendeurenbeleid](https://nos.nl/l/2607480)
-  > Even een ommetje maken wanneer je wilt, moet ook kunnen voor mensen met dementie, zo staat in de Wet zorg en dwang. Toch worstelen veel...
-- [Vliegtuig botst op brandweerauto op luchthaven New York, 'piloten omgekomen'](https://nos.nl/l/2607478)
-  > Een vliegtuig van Air Canada Express heeft bij een landing op het LaGuardia-vliegveld in New York een brandweervoertuig geraakt. De gezagvoerder en...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Een ratjetoe aan verhalen en liedjes én een haperende stem: de magie van Pia Douwes is uitgewerkt](https://www.ad.nl/show/een-ratjetoe-aan-verhalen-en-liedjes-en-een-haperende-stem-de-magie-van-pia-douwes-is-uitgewerkt~a85d51cf/)
-  > Musicaldiva Pia Douwes belooft in de titel van haar personalityshow dat het publiek dichtbij haar zal komen. Maar de uitvoering laat te wensen over:...
-- [Janni (91) doorziet nepagent en zet val: ‘Jij onnozel kindje, moet jij nou mijn sieraden meenemen?’](https://www.ad.nl/binnenland/janni-91-doorziet-nepagent-en-zet-val-jij-onnozel-kindje-moet-jij-nou-mijn-sieraden-meenemen~a952a44a/)
-  > Een grote grijns verschijnt op het gezicht van de 91-jarige Janni Zonneveld uit Doetinchem als ze vertelt hoe ze hielp een nepagent op te pakken....
-- [Nog één dag genieten van de zon, daarna wordt het guur met hagel, onweer en zelfs natte sneeuw](https://www.ad.nl/binnenland/nog-een-dag-genieten-van-de-zon-daarna-wordt-het-guur-met-hagel-onweer-en-zelfs-natte-sneeuw~af7150ef/)
-  > Vandaag kunnen we nog één dag volle bak genieten van de zon. Dinsdag slaat het weer om en vanaf woensdag krijgen we te maken met buien in alle...
-- [Trump belt met Starmer over Straat van Hormuz na fikse uithaal: ‘Jullie zijn lafaards’](https://www.ad.nl/buitenland/trump-belt-met-starmer-over-straat-van-hormuz-na-fikse-uithaal-jullie-zijn-lafaards~ac528ac3/)
-  > De Amerikaanse president Trump en de Britse premier Starmer hebben zondagavond gebeld over de situatie in de Straat van Hormuz. Het telefoontje kwam...
-- [Eerst verguisd, nu bejubeld: voormalig toptalent 'La Bomba' Jordan Lotomba dé winnaar van de Klassieker](https://www.ad.nl/voetbal/eerst-verguisd-nu-bejubeld-voormalig-toptalent-la-bomba-jordan-lotomba-de-winnaar-van-de-klassieker~ac3859c3/)
-  > Jordan Lotomba de zwakke schakel? In de Kuip werd hij tijdens de Klassieker zondag juist bejubeld. Dit is het verhaal van La Bomba. Een voormalig...
+- [Nederland ook zonder Femke Bol wereldtop op estafette, mede dankzij deze jonge debutanten](https://www.ad.nl/andere-sporten/nederland-ook-zonder-femke-bol-wereldtop-op-estafette-mede-dankzij-deze-jonge-debutanten~a4daf062/)
+  > Op de WK indoor vierden alleen de Nederlandse estafettevrouwen feest op de 4 x 400 meter. De gemengde aflossing liep uit op een deceptie, de mannen...
+- [Hongarije lekte uit EU-toppen rechtstreeks naar Moskou, zegt Amerikaanse krant](https://www.ad.nl/buitenland/hongarije-lekte-uit-eu-toppen-rechtstreeks-naar-moskou-zegt-amerikaanse-krant~abc2946b/)
+  > Hongarije heeft jarenlang gevoelige informatie uit besloten EU-toppen rechtstreeks doorgespeeld aan Rusland. Terwijl Europese leiders dachten in...
+- [Zo kunnen Suriname, Ierland en Italië zich komende week plaatsen voor het WK](https://www.ad.nl/wk-voetbal/zo-kunnen-suriname-ierland-en-italie-zich-komende-week-plaatsen-voor-het-wk~a8e37e48/)
+  > De eerste interlandperiode van 2026 is aangebroken. Oranje oefent komende week tegen Noorwegen en Ecuador, maar er zijn ook nog zes tickets voor het...
+- [Teun Kuilboer duikt op in nieuwe Videoland-serie, dochtertje Monique Smit teleurgesteld in moeder](https://www.ad.nl/show/teun-kuilboer-duikt-op-in-nieuwe-videoland-serie-dochtertje-monique-smit-teleurgesteld-in-moeder~a0eeb3b5/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Quiz | Test jouw kennis over het afgelopen sportweekend](https://www.ad.nl/andere-sporten/quiz-test-jouw-kennis-over-het-afgelopen-sportweekend~a8c4f793/)
+  > Elke maandagochtend kun je jouw kennis testen over het afgelopen sportweekend. Heb jij al het sportnieuws op de voet gevolgd en beantwoord je alle...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Hoe voorkom je gedoe over je geërfde vakantiehuis?](https://fd.nl/samenleving/1590379/hoe-voorkom-je-gedoe-over-je-geerfde-vakantiehuis)
-  > Een vakantiehuisje is heerlijk, maar alleen met goede afspraken. Want: ‘Met hoe meer mensen je samen eigenaar bent, hoe ingewikkelder het wordt.’
-- [Wereldbank-bestuurder Aki Nishio: ‘Veel ontwikkelingshulp bestaat uit muggenprikprojectjes’](https://fd.nl/samenleving/1589877/wereldbank-bestuurder-aki-nishio-veel-ontwikkelingshulp-bestaat-uit-muggenprikprojectjes)
-  > Aki Nishio haalde $24 mrd op voor het fonds voor de armste landen. ‘Voor elke euro van donoren kunnen wij vier euro uitlenen’, zegt de vicepresident...
-- [Poste Italiane doet bod op Telecom Italia voor volledige overname](https://fd.nl/bedrijfsleven/1590261/poste-italiane-doet-bod-op-telecom-italia-voor-volledige-overname)
-  > Het postbedrijf is met een belang van ruim 27% al grootaandeelhouder. Na de overname zal Telecom Italia van de beurs in Milaan verdwijnen.
-- [Koopwoning 0,1% duurder in februari](https://fd.nl/economie/1590377/koopwoning-0-1-duurder-in-februari)
-  > De afvlakkende groei van de huizenprijzen zet daarmee door. Begin deze maand constateerde makelaarsvereniging NVM ook al dat de ‘extreme hectiek’ op...
-- [Pro-Europese premier Golob wint nipt de Sloveense verkiezingen](https://fd.nl/politiek/1590376/pro-europese-premier-golob-wint-nipt-de-sloveense-verkiezingen)
-  > Het verschil in stemmen met de rechts-populistische kandidaat is minimaal. Golobs partij is weliswaar de grootste in het parlement, maar heeft geen...
+- [Een family office met miljarden, en een spoor van onbetaalde rekeningen](https://fd.nl/financiele-markten/1587115/een-family-office-met-miljarden-en-een-spoor-van-onbetaalde-rekeningen)
+  > Een voor beleggingsfraude veroordeelde Nederlander is betrokken bij een wereldwijd actief fonds dat voor meer dan $150 mln aan schade veroorzaakte...
+- [Staatsleningen verder onder druk door aangescherpte retoriek VS en Iran](https://fd.nl/financiele-markten/1590266/staatsleningen-verder-onder-druk-door-aangescherpte-retoriek-vs-en-iran)
+  > De koersen van staatsleningen uit zwakkere eurolanden zoals Italië en Griekenland dalen het hardst, bijna net zo snel als de Britse leningen...
+- [Hoezo één Week van het geld?](https://fd.nl/financiele-markten/1590267/hoezo-een-week-van-het-geld)
+  > Tegenover die ene week met aandacht voor financieel bewustzijn, staan volgens FD-columnist Ria Roerink nog steeds 51 weken vol met finfluencers.
+- [ACM ziet risico’s bij overname VolkerWessels door HAL](https://fd.nl/bedrijfsleven/1590384/acm-ziet-risicos-bij-overname-volkerwessels-door-hal)
+  > Toezichthouder ACM gaat nog niet akkoord met de overname van het Nederlandse deel van VolkerWessels door investeringsmaatschappij HAL.
+- [Ruim 40% minder winst voor Bank Nederlandse Gemeenten](https://fd.nl/financiele-markten/1590383/ruim-40-minder-winst-voor-bank-nederlandse-gemeenten)
+  > BNG investeerde in 2025 meer in woningbouw, duurzame energieprojecten, zorg, onderwijs en vitale infrastructuur. De kredietportefeuille liep op tot...
 
 ### Meest gelezen
 
