@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-03-2026 om 11:49*
+*Laatst bijgewerkt: 23-03-2026 om 13:18*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Trump spreekt van 'goede gesprekken', Iran beticht hem manipulatie olieprijs](https://nos.nl/l/2607521)
+  > President Trump stelt een deadline over het openen van de Straat van Hormuz met vijf dagen uit, omdat er volgens hem resultaten zijn geboekt in de...
+- [Verkeersleider na dodelijke botsing vliegtuig New York: 'Ik heb het verprutst'](https://nos.nl/l/2607520)
+  > Op een geluidsopname van de luchtverkeersleiding op LaGuardia Airport is te horen hoe een verkeersleider verantwoordelijkheid neemt voor het ongeluk...
+- [Politie controleert snelheid van Qbuzz-treinen om verzakking Sliedrecht](https://nos.nl/l/2607519)
+  > De politie gaat de snelheid van treinen van Qbuzz controleren bij station Baanhoek in Sliedrecht. Vanwege een verzakking aan het talud mogen treinen...
 - [Rode Kruis wil meer inzet van Nederland voor waarheid over aanval hulpverleners Gaza](https://nos.nl/l/2607512)
   > De Nederlandse regering moet zich meer inzetten om duidelijkheid te krijgen over de aanval op de vijftien hulpverleners in de Gazastrook, vindt het...
 - [Plofkraken in Laren en Amsterdam, buit onbekend](https://nos.nl/l/2607511)
   > In Laren en Amsterdam zijn afgelopen nacht plofkraken geweest. Het is onbekend of er een verband is. De getroffen geldautomaten zijn aanzienlijk...
-- [Franse oud-premier Lionel Jospin (88) overleden](https://nos.nl/l/2607510)
-  > De voormalige Franse premier Lionel Jospin is op 88-jarige leeftijd overleden. Dat hebben zijn familie en meerdere leden van de Parti Socialiste...
-- [Podcast De Dag x De Stemming: koffie en scoops in Den Haag](https://nos.nl/l/2607506)
-  > Marleen de Rooy en Jorn Jonker vertellen in deze speciale live opname van podcast De Dag tijdens het podcastfestival in TivoliVredenburg hoe zij aan...
-- [Vrachtwagen met veevoer gekanteld, A67 van grens naar Eindhoven dicht](https://nos.nl/l/2607492)
-  > Op de A67 van de Belgische grens naar Eindhoven is vannacht een vrachtwagen gekanteld. Het ging rond 04.00 uur mis ter hoogte van Hapert. De weg is...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Brief aan Van Persie: ‘Het klinkt raar, maar je zou volgend jaar Excelsior moeten gaan trainen’](https://www.ad.nl/voetbal/brief-aan-van-persie-het-klinkt-raar-maar-je-zou-volgend-jaar-excelsior-moeten-gaan-trainen~aa6e6287/)
-  > Na de tegenvallende Klassieker besluit columnist Hugo Borst een open brief te schrijven aan Feyenoord-trainer Robin van Persie. ‘Ik vraag me af of...
-- [Programma Oranje | Selectie Nederlands elftal verzamelt zich voor oefeninterlands tegen Noorwegen en Ecuador](https://www.ad.nl/voetbal/programma-oranje-selectie-nederlands-elftal-verzamelt-zich-voor-oefeninterlands-tegen-noorwegen-en-ecuador~aea3c500/)
-  > Het Nederlands elftal komt vandaag weer bijeen in Zeist, waar bondscoach Ronald Koeman om 16.30 uur zijn licht laat schijnen op de komende...
-- [Amerika heeft 'zeer goede en productieve' gesprekken met Iran, olieprijzen zakken direct](https://www.ad.nl/buitenland/amerika-heeft-zeer-goede-en-productieve-gesprekken-met-iran-olieprijzen-zakken-direct~a9f9f4e7/)
-  > De Verenigde Staten pauzeren de aanvallen op Iraanse energiefaciliteiten de komende vijf dagen, in afwachting van lopende gesprekken met Iran. Dat...
-- [Marco Borsato feest bij dochter in de Ziggo Dome en zijn muziek is weer te horen in The Passion](https://www.ad.nl/show/marco-borsato-feest-bij-dochter-in-de-ziggo-dome-en-zijn-muziek-is-weer-te-horen-in-the-passion~a7ba5a42/)
-  > Marco Borsato kruipt langzaam uit zijn schulp na de zedenzaak die hem jarenlang in de anonimiteit hield. Samen met Leontine genoot hij zondag van het...
-- [Nederland ook zonder Femke Bol wereldtop op estafette, mede dankzij deze jonge debutanten](https://www.ad.nl/andere-sporten/nederland-ook-zonder-femke-bol-wereldtop-op-estafette-mede-dankzij-deze-jonge-debutanten~a4daf062/)
-  > Op de WK indoor vierden alleen de Nederlandse estafettevrouwen feest op de 4 x 400 meter. De gemengde aflossing liep uit op een deceptie, de mannen...
+- [Edyta en Alexander: ‘30.000 euro moet genoeg zijn voor ons trouwfeest’](https://www.ad.nl/geld/edyta-en-alexander-30-000-euro-moet-genoeg-zijn-voor-ons-trouwfeest~af98d2d1/)
+  > Alexander gaf zijn droombaan op en verhuisde naar Edyta’s woonboerderij. ‘We wonen zo afgelegen dat supermarkten hier helaas niet bezorgen’,...
+- [‘Ik heb het verpest’: audio laat fataal moment horen waarop vliegtuig met brandweerwagen botst in New York](https://www.ad.nl/buitenland/ik-heb-het-verpest-audio-laat-fataal-moment-horen-waarop-vliegtuig-met-brandweerwagen-botst-in-new-york~a3f16eae/)
+  > Paniek, gevolgd door chaos. Dat is te horen op een opname van de gesprekken uit de verkeerstoren van LaGuardia Airport in New York op het moment dat...
+- [Ondanks Amerikaans aanvalspauze gaat Israël verder met bombardementen op Iran](https://www.ad.nl/buitenland/ondanks-amerikaans-aanvalspauze-gaat-israel-verder-met-bombardementen-op-iran~a3298df2/)
+  > Israël voert een grootschalige aanval uit op de Iraanse hoofdstad Teheran. Dat meldt het Israëlische leger, kort nadat bekend werd dat Amerika de...
+- [Gijs Staverman werd weggeduwd door vriendin tijdens huwelijksaanzoek: ‘Ik stond voor haar beeld’](https://www.ad.nl/show/gijs-staverman-werd-weggeduwd-door-vriendin-tijdens-huwelijksaanzoek-ik-stond-voor-haar-beeld~a76eade0/)
+  > Als Gijs Staverman maandag zestig kaarsjes uitblaast, ziet zijn leven er heel anders uit dan tien jaar eerder. Hij is nog altijd radio-dj, maar nu...
+- [Waarom moet je stilstaan voor rood als er geen ander verkeer te zien is?](https://www.ad.nl/auto/waarom-moet-je-stilstaan-voor-rood-als-er-geen-ander-verkeer-te-zien-is~aa30b83d/)
+  > Het irriteert lezer Rene Camu mateloos: lange tijd voor het rode licht moeten wachten, terwijl er geen ander verkeer te zien is. Hij vraagt zich af...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Danone koopt maker proteïnedranken](https://fd.nl/bedrijfsleven/1590271/danone-koopt-maker-proteinedranken)
+  > Het gaat om het Britse Huel, dat enkele jaren geleden ook de acteur Idris Elba als investeerder aan boord haalde.
+- [Trump vertrouwt één man bij gesprekken met Iran: Steve Witkoff](https://fd.nl/politiek/1590251/trump-vertrouwt-een-man-bij-gesprekken-met-iran-steve-witkoff)
+  > Vastgoedinvesteerder Steve Witkoff onderhandelt namens Trump buiten de normale diplomatieke paden om met buitenlandse leiders. Zijn aandacht is nu...
+- [Cfo Budget Energie: ‘Er bellen nu nog geen klanten die meer aan energie betalen dan aan huur’](https://fd.nl/bedrijfsleven/1589601/cfo-budget-energie-er-bellen-nu-nog-geen-klanten-die-meer-aan-energie-betalen-dan-aan-huur)
+  > Sven Pronk stelt opgelucht vast dat de energiecrisis vooralsnog wel meevalt én dat Budget Energie deze keer veel beter is voorbereid.
 - [Waaruit bestaat het vermogen van miljonairs?](https://fd.nl/samenleving/1590264/waaruit-bestaat-het-vermogen-van-miljonairs)
   > Wetenswaardigheden op het gebied van loopbaan en personal finance.
-- [Trump schort aanval op Iran op, ‘goede gesprekken’ over einde oorlog](https://fd.nl/politiek/1590268/trump-stelt-aanval-op-iraanse-energiecentrales-uit)
-  > De Amerikaanse president dreigde zaterdagnacht Iraanse energiecentrales te bombarderen als het land niet binnen 48 uur de Straat van Hormuz zou...
-- [Bestrijd genderongelijkheid met AI-docenten](https://fd.nl/opinie/1589922/bestrijd-genderongelijkheid-met-ai-docenten)
-  > Vooroordelen over gender dragen eraan bij dat meisjes minder vaak voor een technische studie kiezen. Maar een goed getrainde AI-leraar doorbreekt...
-- [Een family office met miljarden, en een spoor van onbetaalde rekeningen](https://fd.nl/financiele-markten/1587115/een-family-office-met-miljarden-en-een-spoor-van-onbetaalde-rekeningen)
-  > Een voor beleggingsfraude veroordeelde Nederlander is betrokken bij een wereldwijd actief fonds dat voor meer dan $150 mln aan schade veroorzaakte...
-- [Staatsleningen verder onder druk door aangescherpte retoriek VS en Iran](https://fd.nl/financiele-markten/1590266/staatsleningen-verder-onder-druk-door-aangescherpte-retoriek-vs-en-iran)
-  > De koersen van staatsleningen uit zwakkere eurolanden zoals Italië en Griekenland dalen het hardst, bijna net zo snel als de Britse leningen...
+- [Trump stelt aanval op Iran uit, dat ‘goede gesprekken’ over einde oorlog ontkent](https://fd.nl/politiek/1590268/trump-stelt-aanval-op-iraanse-energiecentrales-uit)
+  > De Amerikaanse president dreigde Iraanse energiecentrales te bombarderen, maar stelt die aanval uit vanwege goede gesprekken over het beëindigen van...
 
 ### Meest gelezen
 
