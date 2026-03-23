@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-03-2026 om 10:56*
+*Laatst bijgewerkt: 23-03-2026 om 11:49*
 
 ---
 
@@ -8,7 +8,7 @@
 
 ### Laatste nieuws
 
-- [Rode Kruis: meer inzet Nederland voor waarheid over aanval hulpverleners Gaza](https://nos.nl/l/2607512)
+- [Rode Kruis wil meer inzet van Nederland voor waarheid over aanval hulpverleners Gaza](https://nos.nl/l/2607512)
   > De Nederlandse regering moet zich meer inzetten om duidelijkheid te krijgen over de aanval op de vijftien hulpverleners in de Gazastrook, vindt het...
 - [Plofkraken in Laren en Amsterdam, buit onbekend](https://nos.nl/l/2607511)
   > In Laren en Amsterdam zijn afgelopen nacht plofkraken geweest. Het is onbekend of er een verband is. De getroffen geldautomaten zijn aanzienlijk...
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Brief aan Van Persie: ‘Het klinkt raar, maar je zou volgend jaar Excelsior moeten gaan trainen’](https://www.ad.nl/voetbal/brief-aan-van-persie-het-klinkt-raar-maar-je-zou-volgend-jaar-excelsior-moeten-gaan-trainen~aa6e6287/)
+  > Na de tegenvallende Klassieker besluit columnist Hugo Borst een open brief te schrijven aan Feyenoord-trainer Robin van Persie. ‘Ik vraag me af of...
+- [Programma Oranje | Selectie Nederlands elftal verzamelt zich voor oefeninterlands tegen Noorwegen en Ecuador](https://www.ad.nl/voetbal/programma-oranje-selectie-nederlands-elftal-verzamelt-zich-voor-oefeninterlands-tegen-noorwegen-en-ecuador~aea3c500/)
+  > Het Nederlands elftal komt vandaag weer bijeen in Zeist, waar bondscoach Ronald Koeman om 16.30 uur zijn licht laat schijnen op de komende...
+- [Amerika heeft 'zeer goede en productieve' gesprekken met Iran, olieprijzen zakken direct](https://www.ad.nl/buitenland/amerika-heeft-zeer-goede-en-productieve-gesprekken-met-iran-olieprijzen-zakken-direct~a9f9f4e7/)
+  > De Verenigde Staten pauzeren de aanvallen op Iraanse energiefaciliteiten de komende vijf dagen, in afwachting van lopende gesprekken met Iran. Dat...
+- [Marco Borsato feest bij dochter in de Ziggo Dome en zijn muziek is weer te horen in The Passion](https://www.ad.nl/show/marco-borsato-feest-bij-dochter-in-de-ziggo-dome-en-zijn-muziek-is-weer-te-horen-in-the-passion~a7ba5a42/)
+  > Marco Borsato kruipt langzaam uit zijn schulp na de zedenzaak die hem jarenlang in de anonimiteit hield. Samen met Leontine genoot hij zondag van het...
 - [Nederland ook zonder Femke Bol wereldtop op estafette, mede dankzij deze jonge debutanten](https://www.ad.nl/andere-sporten/nederland-ook-zonder-femke-bol-wereldtop-op-estafette-mede-dankzij-deze-jonge-debutanten~a4daf062/)
   > Op de WK indoor vierden alleen de Nederlandse estafettevrouwen feest op de 4 x 400 meter. De gemengde aflossing liep uit op een deceptie, de mannen...
-- [Hongarije lekte uit EU-toppen rechtstreeks naar Moskou, zegt Amerikaanse krant](https://www.ad.nl/buitenland/hongarije-lekte-uit-eu-toppen-rechtstreeks-naar-moskou-zegt-amerikaanse-krant~abc2946b/)
-  > Hongarije heeft jarenlang gevoelige informatie uit besloten EU-toppen rechtstreeks doorgespeeld aan Rusland. Terwijl Europese leiders dachten in...
-- [Zo kunnen Suriname, Ierland en Italië zich komende week plaatsen voor het WK](https://www.ad.nl/wk-voetbal/zo-kunnen-suriname-ierland-en-italie-zich-komende-week-plaatsen-voor-het-wk~a8e37e48/)
-  > De eerste interlandperiode van 2026 is aangebroken. Oranje oefent komende week tegen Noorwegen en Ecuador, maar er zijn ook nog zes tickets voor het...
-- [Teun Kuilboer duikt op in nieuwe Videoland-serie, dochtertje Monique Smit teleurgesteld in moeder](https://www.ad.nl/show/teun-kuilboer-duikt-op-in-nieuwe-videoland-serie-dochtertje-monique-smit-teleurgesteld-in-moeder~a0eeb3b5/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Quiz | Test jouw kennis over het afgelopen sportweekend](https://www.ad.nl/andere-sporten/quiz-test-jouw-kennis-over-het-afgelopen-sportweekend~a8c4f793/)
-  > Elke maandagochtend kun je jouw kennis testen over het afgelopen sportweekend. Heb jij al het sportnieuws op de voet gevolgd en beantwoord je alle...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Waaruit bestaat het vermogen van miljonairs?](https://fd.nl/samenleving/1590264/waaruit-bestaat-het-vermogen-van-miljonairs)
+  > Wetenswaardigheden op het gebied van loopbaan en personal finance.
+- [Trump schort aanval op Iran op, ‘goede gesprekken’ over einde oorlog](https://fd.nl/politiek/1590268/trump-stelt-aanval-op-iraanse-energiecentrales-uit)
+  > De Amerikaanse president dreigde zaterdagnacht Iraanse energiecentrales te bombarderen als het land niet binnen 48 uur de Straat van Hormuz zou...
+- [Bestrijd genderongelijkheid met AI-docenten](https://fd.nl/opinie/1589922/bestrijd-genderongelijkheid-met-ai-docenten)
+  > Vooroordelen over gender dragen eraan bij dat meisjes minder vaak voor een technische studie kiezen. Maar een goed getrainde AI-leraar doorbreekt...
 - [Een family office met miljarden, en een spoor van onbetaalde rekeningen](https://fd.nl/financiele-markten/1587115/een-family-office-met-miljarden-en-een-spoor-van-onbetaalde-rekeningen)
   > Een voor beleggingsfraude veroordeelde Nederlander is betrokken bij een wereldwijd actief fonds dat voor meer dan $150 mln aan schade veroorzaakte...
 - [Staatsleningen verder onder druk door aangescherpte retoriek VS en Iran](https://fd.nl/financiele-markten/1590266/staatsleningen-verder-onder-druk-door-aangescherpte-retoriek-vs-en-iran)
   > De koersen van staatsleningen uit zwakkere eurolanden zoals Italië en Griekenland dalen het hardst, bijna net zo snel als de Britse leningen...
-- [Hoezo één Week van het geld?](https://fd.nl/financiele-markten/1590267/hoezo-een-week-van-het-geld)
-  > Tegenover die ene week met aandacht voor financieel bewustzijn, staan volgens FD-columnist Ria Roerink nog steeds 51 weken vol met finfluencers.
-- [ACM ziet risico’s bij overname VolkerWessels door HAL](https://fd.nl/bedrijfsleven/1590384/acm-ziet-risicos-bij-overname-volkerwessels-door-hal)
-  > Toezichthouder ACM gaat nog niet akkoord met de overname van het Nederlandse deel van VolkerWessels door investeringsmaatschappij HAL.
-- [Ruim 40% minder winst voor Bank Nederlandse Gemeenten](https://fd.nl/financiele-markten/1590383/ruim-40-minder-winst-voor-bank-nederlandse-gemeenten)
-  > BNG investeerde in 2025 meer in woningbouw, duurzame energieprojecten, zorg, onderwijs en vitale infrastructuur. De kredietportefeuille liep op tot...
 
 ### Meest gelezen
 
