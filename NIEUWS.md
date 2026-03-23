@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-03-2026 om 23:33*
+*Laatst bijgewerkt: 23-03-2026 om 02:41*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Israëlische kolonisten vallen Palestijnen aan in bezette Westelijke Jordaanoever](https://nos.nl/l/2607469)
+  > Joodse extremistische kolonisten hebben aanvallen uitgevoerd op Palestijnse dorpen in de bezette Westelijke Jordaanoever. Ze staken zaterdag en...
+- [Nederlandse skiër (25) omgekomen op piste in Tirol](https://nos.nl/l/2607467)
+  > In Oostenrijk is een Nederlandse skiër om het leven gekomen. De man van 25 uit Rotterdam overleed na een botsing op de piste in Fiss, in de deelstaat...
 - [Energiebesparingsplan ingevoerd in Venezuela, interim-leider geeft schuld aan zonnestralen](https://nos.nl/l/2607457)
   > De Venezolaanse interim-leider Delcy Rodríguez heeft een nationaal energiebesparingsplan aangekondigd. Als reden geeft ze aan extreme temperaturen en...
 - [Parijs blijft links, radicaal-rechts grijpt mis in grote steden Frankrijk](https://nos.nl/l/2607450)
   > Radicaal-rechtse kandidaten hebben in een aantal Franse steden een meerderheid gehaald bij de gemeenteraadsverkiezingen, maar in de grootste steden...
 - [CDU wint verkiezingen in Rijnland-Palts, grote winst AfD](https://nos.nl/l/2607425)
   > Bij de deelstaatverkiezingen in de Duitse deelstaat Rijnland-Palts lijkt de CDU de grootste partij te worden. Volgens de exitpoll krijgt de partij...
-- [Bijna alle stemmen geteld in Slovenië, pro-Europese premier Golob ligt voor](https://nos.nl/l/2607424)
-  > De liberale Sloveense premier Golob lijkt bij de verkiezingen de rechts-populistische oud-premier Jansa te hebben verslagen. Met 99,7 procent van de...
-- [Derde dode na zware lawine in Zuid-Tirol, nog twee in kritieke toestand](https://nos.nl/l/2607400)
-  > Het aantal doden door de zware lawine die gisteren zo'n 25 skiërs verraste in het Noord-Italiaanse Zuid-Tirol is opgelopen tot drie. Een van de drie...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Links-liberale premier Golob eist ondanks klein verschil winst op bij Sloveense verkiezingen](https://www.ad.nl/buitenland/links-liberale-premier-golob-eist-ondanks-klein-verschil-winst-op-bij-sloveense-verkiezingen~a3f23c14/)
+- [Chaos rond asbestspeelgoed: overal waarschuwingen, nergens overzicht](https://www.ad.nl/economie/chaos-rond-asbestspeelgoed-overal-waarschuwingen-nergens-overzicht~a89b42f6/)
+  > Het is chaos troef rond speelgoed waarin asbest is gevonden. De productwaarschuwingen stapelen zich op, maar verschillen van land tot land. Het...
+- [Linkse partijen blijven aan de macht in Parijs en Marseille, extremen redden het niet](https://www.ad.nl/buitenland/linkse-partijen-blijven-aan-de-macht-in-parijs-en-marseille-extremen-redden-het-niet~a7f20f3b/)
+  > De linkse Emmanuel Grégoire is bij de Franse lokale verkiezingen verkozen tot burgemeester van Parijs. Hij versloeg de conservatieve oud-minister...
+- [Ongekende hittegolf in VS: ‘Temperatuur in Sioux Falls ging in vijf dagen 49 graden omhoog’](https://www.ad.nl/buitenland/ongekende-hittegolf-in-vs-temperatuur-in-sioux-falls-ging-in-vijf-dagen-49-graden-omhoog~aff22abd/)
+  > De hittegolf die delen van de VS teistert, heeft op honderden plaatsen de temperatuurrecords voor de maand maart verbroken. Soms zelfs meerdere dagen...
+- [Mogelijk probleem voor Oranje: Depay al snel geblesseerd naar de kant in Braziliaanse topper tegen Flamengo](https://www.ad.nl/sport/mogelijk-probleem-voor-oranje-depay-al-snel-geblesseerd-naar-de-kant-in-braziliaanse-topper-tegen-flamengo~ae62d036/)
+  > Terwijl het Nederlands elftal maandag bijeenkomt in Zeist voor twee oefenduels komende vrijdag en volgende week dinsdag, is het de vraag of Memphis...
+- [Links-liberale premier Golob claimt ondanks klein verschil winst bij parlementsverkiezingen Slovenië](https://www.ad.nl/buitenland/links-liberale-premier-golob-claimt-ondanks-klein-verschil-winst-bij-parlementsverkiezingen-slovenie~a3f23c14/)
   > Zittend premier Robert Golob heeft zondagavond de overwinning opgeëist bij de parlementsverkiezingen in Slovenië. Uit bijna definitieve resultaten...
-- [Voetbalpodcast | ‘Er straalde stress af van deze Klassieker’](https://www.ad.nl/voetbal/voetbalpodcast-er-straalde-stress-af-van-deze-klassieker~ac8603a9/)
-  > Feyenoord-Ajax was een wedstrijd zoals je hem misschien had kunnen verwachten. Niet groots, niet meeslepend. Wel matig voetbal en vooral veel stress....
-- [Real Madrid klopt Atlético in spectaculaire derby, ondanks rode kaart en heerlijke tegengoal](https://www.ad.nl/voetbal/real-madrid-klopt-atletico-in-spectaculaire-derby-ondanks-rode-kaart-en-heerlijke-tegengoal~a01e25b4/)
-  > Real Madrid heeft in eigen huis de stadsderby tegen Atlético gewonnen. Een onnodige rode kaart en een schitterend doelpunt van de bezoekers brachten...
-- [Nederlandse skiër omgekomen op piste in Oostenrijks skigebied Fiss](https://www.ad.nl/buitenland/nederlandse-skier-omgekomen-op-piste-in-oostenrijks-skigebied-fiss~aa2e43bd/)
-  > Een 25-jarige Nederlandse skiër is zaterdagmiddag omgekomen na een ongeval op de piste in het Oostenrijkse skigebied Fiss. Dat meldt de Tiroolse...
-- [Gemiste matchdarts nekken Zonneveld, Van Gerwen kansloos tegen Humphries in halve finale Belgian Darts Open](https://www.ad.nl/darts/gemiste-matchdarts-nekken-zonneveld-van-gerwen-kansloos-tegen-humphries-in-halve-finale-belgian-darts-open~ac8b5294/)
-  > Niels Zonneveld en Michael van Gerwen zijn er niet in geslaagd om door te stoten naar de finale van de Belgian Darts Open. Niels Zonneveld had...
 
 ### Meest gelezen
 
