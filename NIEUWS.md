@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-03-2026 om 02:41*
+*Laatst bijgewerkt: 23-03-2026 om 05:07*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Ambulances van joodse hulporganisatie in brand gestoken in Londen](https://nos.nl/l/2607473)
+  > In Londen zijn vannacht vier ambulances van een Joodse hulporganisatie in brand gestoken en uitgebrand. De politie spreekt van een antisemitische...
+- [Meteorologen: aarde houdt meer warmte vast dan ooit, gevolgen nog eeuwen voelbaar](https://nos.nl/l/2607472)
+  > Het klimaat op aarde is meer uit balans dan ooit is waargenomen, stelt de Wereld Meteorologische Organisatie (WMO) in een jaarlijks rapport....
+- ['Zeker 17 doden na luchtaanval regeringsleger op klooster in Myanmar'](https://nos.nl/l/2607471)
+  > In het noorden van Myanmar zijn afgelopen vrijdag bij een luchtaanval van het regeringsleger zeker 17 mensen gedood, zo is nu naar buiten gekomen....
+- [Pro-Europese premier Golob wint verkiezingen in Slovenië nipt](https://nos.nl/l/2607470)
+  > In Slovenië heeft de partij van de pro-Europese premier Robert Golob de parlementsverkiezingen nipt gewonnen. Zijn voornaamste tegenstander, de...
 - [Israëlische kolonisten vallen Palestijnen aan in bezette Westelijke Jordaanoever](https://nos.nl/l/2607469)
   > Joodse extremistische kolonisten hebben aanvallen uitgevoerd op Palestijnse dorpen in de bezette Westelijke Jordaanoever. Ze staken zaterdag en...
-- [Nederlandse skiër (25) omgekomen op piste in Tirol](https://nos.nl/l/2607467)
-  > In Oostenrijk is een Nederlandse skiër om het leven gekomen. De man van 25 uit Rotterdam overleed na een botsing op de piste in Fiss, in de deelstaat...
-- [Energiebesparingsplan ingevoerd in Venezuela, interim-leider geeft schuld aan zonnestralen](https://nos.nl/l/2607457)
-  > De Venezolaanse interim-leider Delcy Rodríguez heeft een nationaal energiebesparingsplan aangekondigd. Als reden geeft ze aan extreme temperaturen en...
-- [Parijs blijft links, radicaal-rechts grijpt mis in grote steden Frankrijk](https://nos.nl/l/2607450)
-  > Radicaal-rechtse kandidaten hebben in een aantal Franse steden een meerderheid gehaald bij de gemeenteraadsverkiezingen, maar in de grootste steden...
-- [CDU wint verkiezingen in Rijnland-Palts, grote winst AfD](https://nos.nl/l/2607425)
-  > Bij de deelstaatverkiezingen in de Duitse deelstaat Rijnland-Palts lijkt de CDU de grootste partij te worden. Volgens de exitpoll krijgt de partij...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Chaos rond asbestspeelgoed: overal waarschuwingen, nergens overzicht](https://www.ad.nl/economie/chaos-rond-asbestspeelgoed-overal-waarschuwingen-nergens-overzicht~a89b42f6/)
-  > Het is chaos troef rond speelgoed waarin asbest is gevonden. De productwaarschuwingen stapelen zich op, maar verschillen van land tot land. Het...
-- [Linkse partijen blijven aan de macht in Parijs en Marseille, extremen redden het niet](https://www.ad.nl/buitenland/linkse-partijen-blijven-aan-de-macht-in-parijs-en-marseille-extremen-redden-het-niet~a7f20f3b/)
-  > De linkse Emmanuel Grégoire is bij de Franse lokale verkiezingen verkozen tot burgemeester van Parijs. Hij versloeg de conservatieve oud-minister...
-- [Ongekende hittegolf in VS: ‘Temperatuur in Sioux Falls ging in vijf dagen 49 graden omhoog’](https://www.ad.nl/buitenland/ongekende-hittegolf-in-vs-temperatuur-in-sioux-falls-ging-in-vijf-dagen-49-graden-omhoog~aff22abd/)
-  > De hittegolf die delen van de VS teistert, heeft op honderden plaatsen de temperatuurrecords voor de maand maart verbroken. Soms zelfs meerdere dagen...
-- [Mogelijk probleem voor Oranje: Depay al snel geblesseerd naar de kant in Braziliaanse topper tegen Flamengo](https://www.ad.nl/sport/mogelijk-probleem-voor-oranje-depay-al-snel-geblesseerd-naar-de-kant-in-braziliaanse-topper-tegen-flamengo~ae62d036/)
-  > Terwijl het Nederlands elftal maandag bijeenkomt in Zeist voor twee oefenduels komende vrijdag en volgende week dinsdag, is het de vraag of Memphis...
-- [Links-liberale premier Golob claimt ondanks klein verschil winst bij parlementsverkiezingen Slovenië](https://www.ad.nl/buitenland/links-liberale-premier-golob-claimt-ondanks-klein-verschil-winst-bij-parlementsverkiezingen-slovenie~a3f23c14/)
-  > Zittend premier Robert Golob heeft zondagavond de overwinning opgeëist bij de parlementsverkiezingen in Slovenië. Uit bijna definitieve resultaten...
+- [Miljoen volgers op Instagram, maar droomvrouw van Maga-aanhang Trump blijkt niet te bestaan](https://www.ad.nl/bizar/miljoen-volgers-op-instagram-maar-droomvrouw-van-maga-aanhang-trump-blijkt-niet-te-bestaan~a330c71d/)
+  > Ze is bloedmooi, soldaat en verzamelde in enkele maanden tijd meer dan een miljoen volgers op Instagram. Maar toen de Amerikaanse krant The...
+- [Zorgverleners vragen te weinig naar seksueel misbruik uit schaamte, stellen deskundigen](https://www.ad.nl/binnenland/zorgverleners-vragen-te-weinig-naar-seksueel-misbruik-uit-schaamte-stellen-deskundigen~ac7ed52b/)
+  > Zorgprofessionals vragen te weinig naar seksueel misbruik, stellen deskundigen Mandy Sleijpen en Iva Bicanic. Dat blijkt volgens hen uit onderzoek...
+- [Stroom keert geleidelijk terug op Cuba na twee landelijke storingen in een week](https://www.ad.nl/buitenland/stroom-keert-geleidelijk-terug-op-cuba-na-twee-landelijke-storingen-in-een-week~aeece533e/)
+  > De Cubaanse autoriteiten zijn zondag begonnen met het herstellen van de stroomvoorziening op het eiland, na de tweede landelijke stoomuitval in...
+- [Israëlische luchtmacht voert nieuwe aanvallen uit op Teheran, na Iraanse raketten op Centraal-Israël](https://www.ad.nl/buitenland/israelische-luchtmacht-voert-nieuwe-aanvallen-uit-op-teheran-na-iraanse-raketten-op-centraal-israel~ac528ac3/)
+  > Het Israëlische leger meldt dat het een nieuwe grootschalige aanvalsgolf is begonnen op Iraanse infrastructuur in Teheran. De aanval op de Iraanse...
+- [BBC: druk op Sarah Ferguson, ex van voormalige prins Andrew, om te getuigen over Epstein neemt toe](https://www.ad.nl/buitenland/bbc-druk-op-sarah-ferguson-ex-van-voormalige-prins-andrew-om-te-getuigen-over-epstein-neemt-toe~a9f11bb7/)
+  > De druk op Sarah Ferguson om in de Verenigde Staten te getuigen over haar contact met de veroordeelde zedendelinquent Jeffrey Epstein neemt toe. Dat...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Live: Financiële markten dieper in het rood door escalatie oorlog Iran](https://fd.nl/financiele-markten/1590258/live-financiele-markten-dieper-in-het-rood-door-escalatie-oorlog-iran)
+  > De koersen gaan verder onderuit door de escalatie van de oorlog in Iran. De aandelenmarkten in Azië leveren stevig in, de goudprijs daalt verder en...
+- [Razendpopulaire én zeer riskante cryptoderivaten worden aan banden gelegd](https://fd.nl/economie/1590300/razendpopulaire-en-zeer-riskante-cryptoderivaten-worden-aan-banden-gelegd)
+  > Vandaag in Dagkoers: wanneer cryptogokken verder aan banden gaat, hoe defensiemiljarden toch niet doorstromen, en of CO₂-project Aramis in rook...
 - [Motorbootloze zondag](https://fd.nl/opinie/1590337/motorbootloze-zondag)
   > In 2001 werd de ‘Regeling autoloze zondag bij oliecrisis’ ingevoerd: de elektrische auto ontbreekt.
 - [Vrouwelijke arbeidsmigranten: Geen werk, geen huis, geen kind](https://fd.nl/opinie/1589548/vrouwelijke-arbeidsmigranten-geen-werk-geen-huis-geen-kind)
   > Sommige arbeidsmigranten die in Nederland ongewenst zwanger raken, zien geen andere optie dan hun kind ter adoptie af te staan. Deze vrouwen bevinden...
 - [Personalia maandag 23 maart](https://fd.nl/bedrijfsleven/1590255/personalia-maandag-23-maart)
   > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [President Libanon waarschuwt voor Israëlisch grondoffensief](https://fd.nl/economie/1590374/president-libanon-waarschuwt-voor-israelisch-grondoffensief)
-  > Joseph Aoun roept de internationale gemeenschap op om direct maatregelen te nemen om Libanon te beschermen tegen Israëlische aanvallen.
-- [Gevoelige nederlaag voor SPD in Rijnland-Palts](https://fd.nl/politiek/1590339/gevoelige-nederlaag-van-spd-in-rijnland-palts)
-  > Het resultaat verhoogt de druk op de sociaaldemocraten om aan een duidelijker profiel in regeringscoalitie in Berlijn te werken. Dat kan tot meer...
 
 ### Meest gelezen
 
