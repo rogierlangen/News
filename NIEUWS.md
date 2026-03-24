@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-03-2026 om 20:48*
+*Laatst bijgewerkt: 24-03-2026 om 21:41*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Komende dagen maartse buien: wat zijn dat?](https://nos.nl/l/2607703)
+  > Na anderhalve week zon en hoge temperaturen slaat het weer vanaf morgen een paar dagen volledig om. Vooral morgen en donderdag vallen er in het hele...
 - [Bijna helft van de honderd in beeld gebrachte fraudeurs heeft zich gemeld of is herkend](https://nos.nl/l/2607701)
   > Bijna de helft van de honderd gezochte verdachten van wie de politie beelden heeft gedeeld en die te zien waren op schermen langs de weg, heeft zich...
 - [Plofkrakers terug met zwaardere explosieven: 'Plakken zakken flitspoeder tegen de automaat'](https://nos.nl/l/2607700)
@@ -16,8 +18,6 @@
   > Justitie in Frankrijk is een onderzoek gestart naar de Fransman Fabrice Leggeri. Hij zou als directeur van het Europese grensbewakingsagentschap...
 - [Russen beginnen voorjaarsoffensief, Oekraïners noemen dat nu al mislukt](https://nos.nl/l/2607691)
   > Het Russische leger heeft vandaag met honderden kamikazedrones Oekraïense steden bestookt. Het komt zelden voor dat Rusland overdag zo'n...
-- [Op eerste dag van hoger beroep Ali B staan de verklaringen haaks op elkaar](https://nos.nl/l/2607690)
-  > Op de eerste zittingsdag in het hoger beroep tegen rapper en presentator Ali B zijn opnieuw de aanklachten besproken waarvoor hij terechtstaat. Ook...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [FNV wil ruimere reiskostenvergoeding en maximumprijzen voor brandstof](https://www.ad.nl/binnenland/fnv-wil-ruimere-reiskostenvergoeding-en-maximumprijzen-voor-brandstof~aa10481b/)
+  > Vakbond FNV pleit voor een ruimere belastingvrije reiskostenvergoeding en het invoeren van maximumprijzen voor benzine en diesel aan de pomp. Het...
+- [Henk de Jong promotiekoning van deze eeuw: ‘Vanavond word ik wel een beetje dronken... nou ja, écht dronken’](https://www.ad.nl/voetbal/henk-de-jong-promotiekoning-van-deze-eeuw-vanavond-word-ik-wel-een-beetje-dronken-nou-ja-echt-dronken~a70ee103/)
+  > Een trotse Henk de Jong is op dinsdagavond voor de vierde keer deze eeuw gepromoveerd naar de Vriendenloterij eredivisie. De trainer van Cambuur is...
+- [Feest kan beginnen in Leeuwarden! Cambuur keert terug in de eredivisie na overtuigende zege bij FC Emmen](https://www.ad.nl/voetbal/feest-kan-beginnen-in-leeuwarden-cambuur-keert-terug-in-de-eredivisie-na-overtuigende-zege-bij-fc-emmen~a82a22a8/)
+  > Cambuur keert na drie jaar afwezigheid weer terug in de Vriendenloterij eredivisie. De ploeg van Henk de Jong was ruim te sterk voor FC Emmen (2-4)...
 - [Bolsonaro mag de rest van zijn straf onder huisarrest uitzitten, vanwege slechte gezondheid](https://www.ad.nl/buitenland/bolsonaro-mag-de-rest-van-zijn-straf-onder-huisarrest-uitzitten-vanwege-slechte-gezondheid~a9e33b40/)
   > De Braziliaanse oud-president Jair Bolsonaro mag de rest van zijn straf thuis uitzitten onder huisarrest. Hij werd in september veroordeeld tot een...
-- [Cambuur heeft promotie binnen handbereik, FC Emmen brengt marge terug naar twee goals](https://www.ad.nl/voetbal/cambuur-heeft-promotie-binnen-handbereik-fc-emmen-brengt-marge-terug-naar-twee-goals~a82a22a8/)
-  > Cambuur staat op de drempel van promotie naar de eredivisie. Mogelijk mag vanavond op bezoek bij FC Emmen de champagne al ontkurkt worden. Volg het...
 - [Brian Brobbey heeft simpele verklaring voor goede conditie: ‘Als je veel minuten krijgt, word je vanzelf fit’](https://www.ad.nl/voetbal/brian-brobbey-heeft-simpele-verklaring-voor-goede-conditie-als-je-veel-minuten-krijgt-word-je-vanzelf-fit~a522dddd/)
   > Brian Brobbey maakte zondag de winnende goal in wat hij omschrijft als de Ajax - Feyenoord van Noord-Engeland. „Qua beleving vond ik Newcastle United...
-- [Koolmonoxidevergiftiging wordt echtpaar fataal, vlak na werkzaamheden: OM eist half jaar cel](https://www.ad.nl/binnenland/koolmonoxidevergiftiging-wordt-echtpaar-fataal-vlak-na-werkzaamheden-om-eist-half-jaar-cel~a0f6c62c/)
-  > Gerrit (87) en Betty (83) de Lange zouden net haar 84ste verjaardag gaan vieren met hun kinderen toen het vreselijk misging. Het echtpaar kwam in hun...
-- [Paspoortenkwestie groeit door naar KKD: wat er misging bij Go Ahead – en nu ook bij Willem II](https://www.ad.nl/voetbal/paspoortenkwestie-groeit-door-naar-kkd-wat-er-misging-bij-go-ahead-en-nu-ook-bij-willem-ii~a0a40ede/)
-  > Go Ahead Eagles - NAC wordt voorlopig niet overgespeeld. Toch is het laatste woord over de ‘paspoortenkwestie’ in het betaald voetbal nog niet...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [VS sturen mogelijk drieduizend militairen naar Golfregio](https://fd.nl/samenleving/1590678/vs-sturen-mogelijk-drieduizend-militairen-naar-golfregio)
-  > Besluit om elite-eenheid in te zetten in conflict met Iran zou op korte termijn worden genomen.
+- [Wall Street sluit lager na berichten over inzet Amerikaanse grondtroepen](https://fd.nl/financiele-markten/1590892/wall-street-sluit-lager-na-berichten-over-inzet-amerikaanse-grondtroepen)
+  > Beleggers werden heen en weer geslingerd tussen zorgen over escalatie van de oorlog met Iran, doorstijgende olieprijzen en hoop op een diplomatieke...
+- [VS sturen tweeduizend militairen naar Golfregio](https://fd.nl/samenleving/1590678/vs-sturen-mogelijk-drieduizend-militairen-naar-golfregio)
+  > Mogelijk worden Amerikaanse parachutisten ingezet om het strategisch belangrijke eiland Kharg in te nemen.
 - [Verminderd Oranjegevoel in bedrijfstop brengt risico’s met zich mee](https://fd.nl/opinie/1590447/verminderd-oranjegevoel-in-bedrijfstop-brengt-risicos-met-zich-mee)
   > De afname van het aantal Nederlandse ceo’s bij grote bedrijven is onmiskenbaar. Van de dertig bedrijven die deel uitmaken van de AEX-index, staan er...
 - [Vermogensbeheerders Providence en Clavis geven vaart aan consolidatie](https://fd.nl/financiele-markten/1590539/vermogensbeheerders-providence-en-clavis-geven-vaart-aan-consolidatie)
   > Onder regie van een steenrijke Nederlandse familie stappen de twee vermogensbeheerders in het huwelijksbootje. De consolidatieslag in het...
 - [EU en Australië schrappen vrijwel alle heffingen in nieuwe handelsdeal](https://fd.nl/economie/1590778/eu-en-australie-schrappen-vrijwel-alle-tarieven-in-nieuwe-handelsdeal)
   > De EU en Australië schaffen bijna 100% van de onderlinge handelsheffingen af. Ook krijgt de EU meer toegang tot cruciale grondstoffen, waardoor het...
-- [Door SGP en JA21 is bezuiniging op uitkering zwangerschapsverlof nog niet van tafel](https://fd.nl/politiek/1590780/door-sgp-en-ja21-is-bezuiniging-op-uitkering-zwangerschapsverlof-nog-niet-van-tafel)
-  > GroenLinks-PvdA stelde voor de bezuiniging te schrappen. De coalitie doet nog onderzoek naar alternatieven en kreeg daarvoor de steun van JA21 en de...
 
 ### Meest gelezen
 
