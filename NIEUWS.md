@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-03-2026 om 10:55*
+*Laatst bijgewerkt: 24-03-2026 om 11:48*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Meer verkeershinder op snelweg door geldgebrek bij Rijkswaterstaat](https://nos.nl/l/2607630)
+  > Weggebruikers moeten de komende tijd rekening houden met meer vertraging op de snelweg door wegwerkzaamheden. Het herstellen van (vorst)schade duurt...
 - [Minderjarigen opgepakt voor brandstichting auto aan rand Joodse wijk Antwerpen](https://nos.nl/l/2607628)
   > In Antwerpen zijn vannacht twee minderjarigen opgepakt omdat zij een auto in brand hadden gestoken. Dit gebeurde aan de rand van de Joodse wijk van...
-- [Denen naar de stembus voor nieuw parlement, pensioensleeftijd groot thema](https://nos.nl/l/2607627)
+- [Denen naar de stembus voor nieuw parlement, pensioenleeftijd groot thema](https://nos.nl/l/2607627)
   > De sociaaldemocratische premier Mette Frederiksen stevent bij de parlementsverkiezingen vandaag af op een derde termijn als premier. Een belangrijk...
 - [Reddingshondenteam zoekt naar vermiste Dominic uit Gelderse Heelsum](https://nos.nl/l/2607623)
   > Reddingshondenteam RHWW uit Duiven start vandaag met het zoeken naar de 23-jarige Dominic uit Heelsum (Gelderland). De man is sinds eind februari...
 - [Kabinet wil toch geen versoepeling omgangsrecht opa's en oma's met kleinkind](https://nos.nl/l/2607622)
   > Een wet die het voor opa's en oma's makkelijker moet maken om hun kleinkinderen te zien, is door het kabinet-Jetten van tafel gehaald. Vandaag zou de...
-- [Opnieuw twee plofkraken, deze keer in Badhoevedorp en Landsmeer](https://nos.nl/l/2607621)
-  > In Badhoevedorp en Landsmeer zijn vannacht kort na elkaar twee plofkraken geweest bij pinautomaten. In beide gevallen werd het gedeelte van de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Noa Lang heeft nog altijd last van nare blessure: ‘Het was geen pretje om dat bij je eigen duim te zien’](https://www.ad.nl/voetbal/noa-lang-heeft-nog-altijd-last-van-nare-blessure-het-was-geen-pretje-om-dat-bij-je-eigen-duim-te-zien~af2a60e7/)
+- [Praat mee: Ali B is geen symbool van de MeToo-discussie, zoals hijzelf zegt](https://www.ad.nl/praat-mee/praat-mee-ali-b-is-geen-symbool-van-de-metoo-discussie-zoals-hijzelf-zegt~a2cad723/)
+  > Dinsdagochtend begon het hoger beroep tegen Ali B, die zijn veroordeling voor verkrachting en poging tot verkrachting ongedaan wil maken. In de...
+- [Paar jaar terug ondenkbaar: Miley Cyrus en vader Billy Ray omhelzen elkaar in Hannah Montana-special](https://www.ad.nl/show/paar-jaar-terug-ondenkbaar-miley-cyrus-en-vader-billy-ray-omhelzen-elkaar-in-hannah-montana-special~a9596b63/)
+  > Een ontroerend moment tussen Miley (33) en Billy Ray Cyrus (64) in de jubileumspecial van Hannah Montana. Vader en dochter geven elkaar een knuffel...
+- [Richard de Mos schuift Ahmed Aboutaleb (64) naar voren als verkenner in Den Haag](https://www.ad.nl/den-haag/richard-de-mos-schuift-ahmed-aboutaleb-64-naar-voren-als-verkenner-in-den-haag~a4abe7cd/)
+  > Ahmed Aboutaleb (64) gaat een coalitie verkennen in Den Haag. De oud-burgemeester van Rotterdam is door verkiezingswinnaar Richard de Mos naar voren...
+- [Noa Lang over nare botsing met reclamebord: ‘Volgens de dokter gaat mijn duim het overleven’](https://www.ad.nl/voetbal/noa-lang-over-nare-botsing-met-reclamebord-volgens-de-dokter-gaat-mijn-duim-het-overleven~af2a60e7/)
   > Met zijn rechterduim dik ingepakt verscheen Noa Lang dinsdag op het trainingsveld van Oranje in Zeist. De nare blessure die hij opliep bij...
 - [Nederlanders opgepakt bij ‘vuurwerkoorlog’ op Spaans festival: agent gewond, bezoekers in paniek](https://www.ad.nl/buitenland/nederlanders-opgepakt-bij-vuurwerkoorlog-op-spaans-festival-agent-gewond-bezoekers-in-paniek~aaabd908/)
   > De Spaanse politie heeft dertien mannen opgepakt wegens zwaar vuurwerkgeweld vorige week tijdens het wereldberoemde Fallas-festival in Valencia. Twee...
-- [Memphis Depay meldt zich toch niet bij Oranje na overleg met medische staf Corinthians](https://www.ad.nl/voetbal/memphis-depay-meldt-zich-toch-niet-bij-oranje-na-overleg-met-medische-staf-corinthians~afc1e5ad/)
-  > Memphis Depay meldt zich toch niet op het trainingskamp van het Nederlands elftal voor de oefenduels met Noorwegen (27 maart) en Ecuador (31 maart)....
-- [Trump laat keer op keer zien dat hij niet weet hoe hij zich moet gedragen als oorlogsleider](https://www.ad.nl/buitenland/trump-laat-keer-op-keer-zien-dat-hij-niet-weet-hoe-hij-zich-moet-gedragen-als-oorlogsleider~a7453c17/)
-  > We zijn inmiddels meer dan drie weken onderweg in weer een nieuwe oorlog. Amerika en Israël zijn Iran aan het bombarderen, maar er zijn inmiddels al...
-- [Zege Tadej Pogacar in Milaan-San Remo nog indrukwekkender: Sloveen reed met gebroken frame](https://www.ad.nl/wielrennen/zege-tadej-pogacar-in-milaan-san-remo-nog-indrukwekkender-sloveen-reed-met-gebroken-frame~a072ca9d/)
-  > De overwinning die Tadej Pogacar zaterdag boekte in Milaan-San Remo is nog indrukwekkender dan gedacht. De Sloveen kwam hard ten val en blijkt daarna...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Opnieuw minder Nederlandse octrooiaanvragen](https://fd.nl/bedrijfsleven/1590525/opnieuw-minder-nederlandse-octrooiaanvragen)
+  > Nederland scoort hoog op de innovatieranglijst. Met 388 octrooiaanvragen per miljoen inwoners leverde dat in 2025 een plek op in de top vijf.
 - [Om wanbetaler Liran Wizman hangt een zweem van succes en glamour](https://fd.nl/bedrijfsleven/1590395/om-wanbetaler-liran-wizman-hangt-een-zweem-van-succes-en-glamour)
   > De charmante Liran Wizman trok met zijn hotels en restaurant de jetset. Maar de gouden formules vertonen tekenen van slijtage en aan zijn...
 - [Covidsucces raakt uitgewerkt voor Moderna, dat zoekt naar andere inkomsten](https://fd.nl/financiele-markten/1590440/covidsucces-raakt-uitgewerkt-voor-moderna-dat-zoekt-naar-andere-inkomsten)
@@ -54,8 +56,6 @@
   > Het kabinet-Jetten maakt in de zorg en de sociale zekerheid hele andere keuzes dan zijn voorgangers. De manier waarop dit gebeurt leidt tot...
 - [Rabo-hoofdstrateeg: ‘Europa is in een steeds meer Trumpiaanse of Chinese stijl aan het reageren’](https://fd.nl/financiele-markten/1588649/rabo-hoofdstrateeg-europa-is-in-een-steeds-meer-trumpiaanse-of-chinese-stijl-aan-het-reageren)
   > Michael Every vindt dat Europa zich moet beraden op zijn geopolitieke aanpak. ‘Hoe gaan we het doen, wat als er dát gebeurt? Alles moet op tafel...
-- [Ballast Nedam ziet omzet met een derde stijgen](https://fd.nl/bedrijfsleven/1590522/ballast-nedam-ziet-omzet-met-een-derde-stijgen)
-  > De bouwer verklaart de groei vanuit een aanhoudende vraag naar woningen, noodzakelijke vernieuwing van wegen en de energietransitie.
 
 ### Meest gelezen
 
