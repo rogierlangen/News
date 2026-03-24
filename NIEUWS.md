@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-03-2026 om 21:41*
+*Laatst bijgewerkt: 24-03-2026 om 22:37*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Kamer: aandacht voor Oekraïne mag niet verslappen, veel vragen over financiële steun](https://nos.nl/l/2607709)
+  > De aandacht voor de oorlog in Oekraïne mag niet verslappen door de situatie in het Midden-Oosten. Dat vinden zowel het minderheidskabinet van D66,...
+- [NASA wil begin jaren 30 een basis op de maan bouwen en cancelt ruimtestation](https://nos.nl/l/2607705)
+  > NASA gooit het roer om van het Amerikaanse maanprogramma. Alle aandacht gaat de komende jaren naar een basis op de maan. Vanaf 2032 moeten...
 - [Komende dagen maartse buien: wat zijn dat?](https://nos.nl/l/2607703)
   > Na anderhalve week zon en hoge temperaturen slaat het weer vanaf morgen een paar dagen volledig om. Vooral morgen en donderdag vallen er in het hele...
 - [Bijna helft van de honderd in beeld gebrachte fraudeurs heeft zich gemeld of is herkend](https://nos.nl/l/2607701)
   > Bijna de helft van de honderd gezochte verdachten van wie de politie beelden heeft gedeeld en die te zien waren op schermen langs de weg, heeft zich...
 - [Plofkrakers terug met zwaardere explosieven: 'Plakken zakken flitspoeder tegen de automaat'](https://nos.nl/l/2607700)
   > Met vier plofkraken bij geldautomaten deze week lijken plofkraken terug van weggeweest. Waar criminelen de afgelopen jaren vooral naar Duitsland...
-- ['Franse justitie onderzoekt rol van ex-baas Europese grenswacht bij pushbacks'](https://nos.nl/l/2607694)
-  > Justitie in Frankrijk is een onderzoek gestart naar de Fransman Fabrice Leggeri. Hij zou als directeur van het Europese grensbewakingsagentschap...
-- [Russen beginnen voorjaarsoffensief, Oekraïners noemen dat nu al mislukt](https://nos.nl/l/2607691)
-  > Het Russische leger heeft vandaag met honderden kamikazedrones Oekraïense steden bestookt. Het komt zelden voor dat Rusland overdag zo'n...
 
 ### Meest gelezen
 
