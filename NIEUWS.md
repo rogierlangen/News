@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-03-2026 om 07:56*
+*Laatst bijgewerkt: 24-03-2026 om 09:00*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Ali B komt aan bij gerechtshof: 'Te veel aandacht voor mijn houding geweest'](https://nos.nl/l/2607608)
+  > Ali B is aangekomen bij het gerechtshof in Amsterdam, waar vandaag de eerste zittingsdag van zijn hoger beroep dient. De rapper koos ervoor om kort...
+- [Afrit Vinkeveen op A2 enige tijd dicht vanwege 'dreiging tegen gevangenismedewerkers'](https://nos.nl/l/2607607)
+  > De afrit Vinkeveen op de A2 vanuit Amsterdam is enige tijd door de politie afgesloten vanwege een dreigende situatie. Er zou sprake zijn van een...
+- [Deel vissers vaart niet meer uit vanwege hoge brandstofprijzen](https://nos.nl/l/2607606)
+  > Een deel van de Nederlandse vissers vaart deze week niet uit vanwege de gestegen brandstofkosten. Van de tientallen boomkorvissers blijft ongeveer de...
+- [Pentagon zet alle media de deur uit na reprimande door rechter](https://nos.nl/l/2607605)
+  > Het Amerikaanse ministerie van Defensie zet alle journalisten het Pentagon uit in reactie op een ongunstige gerechtelijke uitspraak. De rechter had...
 - [Belgische striptekenaar Hermann (Jeremiah, Comanche) overleden](https://nos.nl/l/2607601)
   > De Belgische striptekenaar Hermann is op 87-jarige leeftijd overleden. Hij was bekend van realistische stripreeksen als Jeremiah, Comanche en Bernard...
-- [Bill Cosby moet 50 miljoen betalen voor verkrachting uit 1972](https://nos.nl/l/2607600)
-  > Bill Cosby moet ruim 50 miljoen euro betalen aan een vrouw die zegt dat hij haar in 1972 heeft verkracht. Donna Motsinger zegt dat de Amerikaanse...
-- [Verwoesting en ontheemding in Libanon is ook onderdeel van tactiek Israël](https://nos.nl/l/2607594)
-  > Verwoeste dorpen, gebombardeerde infrastructuur, luchtaanvallen en gevechten op de grond. De oorlog tussen Israël en de militante beweging Hezbollah...
-- [Wetenschappers maken voor het eerst ritje met container vol antimaterie](https://nos.nl/l/2607593)
-  > Een paar honderd antiprotonen gaan vandaag op een historisch uitstapje. Een ritje van nog geen half uur, over het terrein van het Zwitserse...
-- [Wekdienst 24/3: Hoger beroep Ali B • Oekraïne-debat in Tweede Kamer](https://nos.nl/l/2607592)
-  > Goedemorgen. Bij het gerechtshof in Amsterdam start het hoger beroep in de zaak rond Ali B. En in de Tweede Kamer wordt gedebatteerd over de steun...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ron Jans niet blij met Bankzitter Matthy: ‘Hij heeft mijn leven een stuk minder leuk gemaakt’](https://www.ad.nl/voetbal/ron-jans-niet-blij-met-bankzitter-matthy-hij-heeft-mijn-leven-een-stuk-minder-leuk-gemaakt~af44dbbb/)
-  > Als je een willekeurige 13-jarige vraagt naar het ‘keukenrolfilmpje van Ron Jans’, is de kans groot dat die het meteen herkent. In de podcast De...
-- [Ali B komt zwijgend aan bij gerechtshof, advocaat: ‘Schande dat hij is veroordeeld’](https://www.ad.nl/show/ali-b-komt-zwijgend-aan-bij-gerechtshof-advocaat-schande-dat-hij-is-veroordeeld~a367c2ff/)
-  > Ali B kreeg in 2024 twee jaar cel voor de verkrachting van een meisje op een schrijverskamp en een poging verkrachting van zangeres Ellen ten Damme....
-- [Verrassende ontdekking: viagra werkt als geneesmiddel voor kinderen met dodelijke ziekte](https://www.ad.nl/binnenland/verrassende-ontdekking-viagra-werkt-als-geneesmiddel-voor-kinderen-met-dodelijke-ziekte~a8d089de/)
-  > Viagra staat bekend als erectiemiddel, hoewel het daar aanvankelijk niet voor was gemaakt. Nu blijkt het nóg ergens goed voor te zijn: voor kinderen...
-- [Corinthians deelt uitslag MRI-scan Memphis Depay, spits meldt zich ondanks blessure toch bij Oranje](https://www.ad.nl/voetbal/corinthians-deelt-uitslag-mri-scan-memphis-depay-spits-meldt-zich-ondanks-blessure-toch-bij-oranje~afc1e5ad/)
-  > Hoewel bondscoach Ronald Koeman niet op hem rekent in de oefeninterlands tegen Noorwegen en Ecuador, komt Memphis Depay toch gewoon naar Nederland....
-- [Makers documentaire blijven achter klacht tegen Ruud de Wild staan](https://www.ad.nl/show/makers-documentaire-blijven-achter-klacht-tegen-ruud-de-wild-staan~a8b1a9a7/)
-  > De makers van de documentaire Meer dan babi pangang ‘betreuren de bedreigingen en haatreacties’ richting NPO Radio 2-dj Ruud de Wild. Maar zij...
+- [Chef'Special veegt agenda jaar lang leeg na vertrek gitarist: 'Is dit nog wat ik wil?'](https://www.ad.nl/show/chef-special-veegt-agenda-jaar-lang-leeg-na-vertrek-gitarist-is-dit-nog-wat-ik-wil~a31bbf68/)
+  > Chef’Special veegt begin 2027 een jaar lang de agenda leeg. Gitarist Guido Joseph stopt definitief, of de band terugkeert, is nog onzeker. Zanger...
+- [DJ La Fuente is dit jaar Ambassadeur van de Vrijheid](https://www.ad.nl/show/dj-la-fuente-is-dit-jaar-ambassadeur-van-de-vrijheid~a71a5bac/)
+  > DJ La Fuente is dit jaar een van de Ambassadeurs van de Vrijheid. Op 5 mei treedt hij samen met onder meer Karsu, Rolf Sanchez en de Jostiband op...
+- [Memphis Depay meldt zich toch niet bij Oranje, topscorer mist inter­lands tegen Noorwegen en Ecuador](https://www.ad.nl/voetbal/memphis-depay-meldt-zich-toch-niet-bij-oranje-topscorer-mist-interlands-tegen-noorwegen-en-ecuador~afc1e5ad/)
+  > Memphis Depay meldt zich toch niet op het trainingskamp van het Nederlands elftal voor de oefenduels met Noorwegen (27 maart) en Ecuador (31 maart)....
+- [Nederlandse Julina (33) stierf in bijzijn vriendinnen op Comomeer, Italiaan beschuldigd van dood door schuld](https://www.ad.nl/buitenland/nederlandse-julina-33-stierf-in-bijzijn-vriendinnen-op-comomeer-italiaan-beschuldigd-van-dood-door-schuld~af6a9872/)
+  > Het Openbaar Ministerie (OM) in Italië heeft het onderzoek afgerond naar een bootongeluk op het Comomeer in het noorden van het land, waarbij vorig...
+- [Topmanager Microsoft verzet zich tegen verplicht Windows-account: ‘Ik haat het’](https://www.ad.nl/tech/topmanager-microsoft-verzet-zich-tegen-verplicht-windows-account-ik-haat-het~aa27b895/)
+  > Verplicht een Microsoft-account gebruiken voor Windows? Dat stuit een groep gebruikers al langer tegen de borst, vanwege zorgen over privacy. Ook...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Haskoning ziet markt voor groene energie en duurzame industrie verslechteren](https://fd.nl/bedrijfsleven/1590409/haskoning-ziet-markt-voor-groene-energie-en-duurzame-industrie-verslechteren)
+  > Geopolitieke spanningen, hogere materiaalkosten en complexe, soms dure vergunningsprocedures houden investeerders en ontwikkelaars op afstand van...
 - [Revolut boekt 62% hogere winst over 2025](https://fd.nl/financiele-markten/1590263/revolut-boekt-62-hogere-winst-over-2025)
   > De onlinebank, die nu ruim 70 miljoen rekeninghouders telt, boekte €5 mrd aan inkomsten, bij een marge van 38%. Het is het vijfde jaar op rij dat...
 - [Het Van Schijndelhuis in Utrecht](https://fd.nl/samenleving/1590389/het-van-schijndelhuis-in-utrecht)
@@ -54,8 +56,6 @@
   > De overname zou een bedrijf met een omzet van zo’n $20 mrd creëren en daardoor beter kunnen concurreren met cosmeticagigant L’Oréal.
 - [EU en Australië sluiten handelsakkoord](https://fd.nl/politiek/1590518/eu-en-australie-sluiten-handelsakkoord)
   > De Australische premier Albanese spreekt van een ‘uitgebalanceerd en commercieel betekenisvol’ akkoord dat kosten voor Australische consumenten...
-- [Live: Europese beurzen draaien in de plus](https://fd.nl/financiele-markten/1590478/live-beleggers-onzeker-over-oorlog-tegen-iran)
-  > Europese beurzen leken weer lager te gaan beginnen door onzekerheid over de oorlog in het Midden-Oosten. Maar futurecontracten wijzen nu op hogere...
 
 ### Meest gelezen
 
