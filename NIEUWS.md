@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-03-2026 om 22:41*
+*Laatst bijgewerkt: 25-03-2026 om 23:39*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Islamoloog Tariq Ramadan in Parijs veroordeeld tot 18 jaar cel voor drie verkrachtingen](https://nos.nl/l/2607846)
+  > De Zwitserse islamwetenschapper en prediker Tariq Ramadan is in Parijs veroordeeld tot 18 jaar cel voor de verkrachting van drie vrouwen. Ramadan...
 - [VN bestempelt slavenhandel als ergste misdaad tegen de menselijkheid ooit](https://nos.nl/l/2607842)
   > De Verenigde Naties hebben de trans-Atlantische slavenhandel officieel bestempeld als "de ernstigste misdaad tegen de menselijkheid" ooit. De door...
 - [Ongeduld in de Kamer, maar kabinet wil niet te snelle ingrepen tegen dure energie](https://nos.nl/l/2607841)
@@ -16,8 +18,6 @@
   > In Roermond is vrijdag een gedetineerde ontsnapt na een ziekenhuisbezoek. Hij is nog altijd voortvluchtig. Dat bevestigt een woordvoerder van de...
 - [Onderzoek wijst niet op onveilige werksfeer in Gronings ziekenhuis](https://nos.nl/l/2607838)
   > De kwaliteit van de zorg en de werksfeer op de afdeling pathologie van het Martini Ziekenhuis in Groningen zijn in orde. Dat blijkt uit extern...
-- [Franse d'Artagnan-kenners over vondst skelet in Maastricht: 'Zou wonder zijn'](https://nos.nl/l/2607833)
-  > In Frankrijk reageren kenners van d'Artagnan verheugd op het nieuws dat in Maastricht een skelet is gevonden dat mogelijk van de beroemde musketier...
 
 ### Meest gelezen
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Voetbalpodcast | ‘Alle huisjuristen van clubs, KNVB tot FBO hebben zitten slapen’](https://www.ad.nl/voetbal/voetbalpodcast-alle-huisjuristen-van-clubs-knvb-tot-fbo-hebben-zitten-slapen~ac8603a9/)
+  > De artsen van Real Madrid die de verkeerde knie van Mbappé onderzoeken. De terugkeer van twee volksclubs naar de Eredivisie: ADO Den Haag en Cambuur....
 - [Topman grootste vermogensbeheerder waarschuwt voor gitzwarte gevolgen bij olieprijs van 150 dollar](https://www.ad.nl/economie/topman-grootste-vermogensbeheerder-waarschuwt-voor-gitzwarte-gevolgen-bij-olieprijs-van-150-dollar~a1fb4c60/)
   > Wat als de prijs van een vat olie doorschiet naar 150 dollar? Topman van ’s werelds grootste vermogensbeheerder BlackRock, Larry Fink, waarschuwt...
 - [Oostenrijkse fotograaf vangt uniek moment van jonge Iberische lynx met prooi](https://www.ad.nl/buitenland/oostenrijkse-fotograaf-vangt-uniek-moment-van-jonge-iberische-lynx-met-prooi~a07da453/)
@@ -35,8 +37,6 @@
   > Kylian Mbappé (27) zou volgens meerdere Spaanse media en The Athletic niet goed zijn behandeld aan een knieprobleem. De spits zou aan zijn verkeerde...
 - [Henk ten Cate (71) droomt groot met Suriname: ‘We gaan het WK écht halen, dat moet ons mantra worden’](https://www.ad.nl/voetbal/henk-ten-cate-71-droomt-groot-met-suriname-we-gaan-het-wk-echt-halen-dat-moet-ons-mantra-worden~add6191c/)
   > Niet alleen Oranje en Curaçao staan aan de vooravond van het WK, ook bondscoach Henk ten Cate is met Suriname nog altijd dicht bij kwalificatie....
-- [Mysterieus cadeau dat Trump kreeg van Iran was veilige doorgang aantal tankers door Straat van Hormuz](https://www.ad.nl/buitenland/mysterieus-cadeau-dat-trump-kreeg-van-iran-was-veilige-doorgang-aantal-tankers-door-straat-van-hormuz~ac528ac3/)
-  > Het mysterieuze cadeau dat de Amerikaanse president Donald Trump claimt van Iran te hebben gekregen, was de veilige doorgang van een aantal tankers...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Voormalig Google-prominent Matt Brittin gaat BBC leiden](https://fd.nl/tech-en-innovatie/1590813/voormalig-google-prominent-matt-brittin-gaat-bbc-leiden)
-  > Brittin heeft geen omroepervaring, maar werkte hiervoor achttien jaar bij Google, waar hij onder meer leiding gaf aan de regio’s Afrika, het...
-- [Beurzen hoger door hoop op staakt-het-vuren](https://fd.nl/financiele-markten/1590814/beurzen-hoger-door-hoop-op-staakt-het-vuren)
-  > Een voorstel van het Witte Huis met vijftien punten om te komen tot een staakt-het-vuren in het Midden-Oosten leidde tot optimisme onder beleggers....
-- [Lagere benzineaccijns krijgt nog niet genoeg steun in Kamer](https://fd.nl/politiek/1590705/lagere-benzineaccijns-krijgt-nog-niet-genoeg-steun-in-kamer)
-  > Alle fracties benadrukten dat burgers financiële pijn lijden nu de gas- en olieprijzen zijn gestegen, maar voor snelle maatregelen tekende zich bij...
-- [‘SpaceX wil met beursgang tot wel $75 mrd ophalen’](https://fd.nl/bedrijfsleven/1590915/spacex-wil-met-beursgang-tot-wel-75-mrd-ophalen)
-  > De raket- en satellietfabrikant wil in juni zijn debuut maken op Wall Street.
-- [SER legt met energieadvies vinger op de zere plek](https://fd.nl/opinie/1590905/ser-legt-met-energieadvies-vinger-op-de-zere-plek)
-  > Als ondernemers niet kunnen rekenen op milieubeleid dat meerdere kabinetten meegaat, blijven investeringen in de energietransitie uit.
+- [Warming-up](https://fd.nl/opinie/1590812/warming-up)
+  > We zullen sowieso moeten wennen aan hogere brandstofprijzen.
+- [Nederlandse bedrijven halen personeel terug uit Midden-Oosten](https://fd.nl/bedrijfsleven/1590809/nederlandse-bedrijven-halen-personeel-terug-uit-midden-oosten)
+  > Het gaat om medewerkers en hun gezinnen die de regio op vrijwillige basis willen verlaten, bevestigen bedrijven na vragen van het FD.
+- [OpenUp gaat met vers kapitaal op overnamepad](https://fd.nl/bedrijfsleven/1590807/openup-gaat-met-vers-kapitaal-op-overnamepad)
+  > Het Vlaamse Smartfin investeert €20 mln, waarmee de Amsterdamse aanbieder van bedrijfsabonnementen voor mentale hulp overnames in Europa wil doen.
+- [In de geest van premier Colijn sussen onze politici nog altijd crises weg](https://fd.nl/opinie/1590448/in-de-geest-van-colijn-sussen-politici-crises-weg)
+  > Leiders die het volk verzoeken om ‘rustig te gaan slapen’ – daar kent Nederland genoeg voorbeelden van. Maakt dat ons land veiliger om in tijden van...
+- [Personalia donderdag 26 maart](https://fd.nl/bedrijfsleven/1590903/personalia-donderdag-26-maart)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
