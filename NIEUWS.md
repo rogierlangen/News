@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-03-2026 om 15:04*
+*Laatst bijgewerkt: 25-03-2026 om 17:08*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Podcast De Dag: de lange arm van Teheran in Nederland](https://nos.nl/l/2607787)
-  > Na een moordpoging op een Iraanse man en explosies en brandstichtingen bij Joodse organisaties, neemt de angst onder Iraniërs in Nederland toe: hoe...
-- [Syriëganger Hasna A. in hoger beroep veroordeeld tot 9 jaar cel](https://nos.nl/l/2607786)
-  > Het gerechtshof in Den Haag heeft Hasna A. in hoger beroep veroordeeld tot negen jaar celstraf. Het hof oordeelt dat de Syriëganger vier strafbare...
-- [Hongarije schort gastransport naar Oekraïne op vanwege ruzie om pijpleiding](https://nos.nl/l/2607781)
-  > Hongarije gaat het gastransport naar Oekraïne geleidelijk opschorten totdat er weer olie vloeit door de Droezjba-pijpleiding. Dat zegt premier Orbán....
-- [Liedschrijver Chip Taylor (86), bekend van 'Wild Thing', overleden](https://nos.nl/l/2607777)
-  > De Amerikaanse zanger en liedjesschrijver James Wesley Voight, beter bekend als Chip Taylor, is maandag op 86-jarige leeftijd overleden. De...
-- [Nieuwe kabinet kijkt naar Estland om dienstverlening verder te digitaliseren](https://nos.nl/l/2607775)
-  > Als je Esten op straat in de hoofdstad Tallinn vraagt waar ze hun digitale identiteit zoal voor gebruiken, dan krijg je de meest uiteenlopende...
+- [Niet Den Haag, maar Lille krijgt hoofdkantoor nieuwe Europese douaneautoriteit](https://nos.nl/l/2607811)
+  > Lille wordt de stad waar het hoofdkantoor van de nieuw opgerichte Europese douaneautoriteit wordt gevestigd. Dat heeft het Europees Parlement bepaald...
+- [Iran verwerpt Trumps vijftienpuntenplan en eist herstelbetalingen](https://nos.nl/l/2607810)
+  > Vanuit Teheran is het Amerikaanse voorstel voor een staakt-het-vuren uitdrukkelijk afgewezen. In een tegenvoorstel eist het Iraanse regime dat de VS...
+- [Voormalige Google-topman Brittin gaat BBC leiden](https://nos.nl/l/2607803)
+  > De BBC heeft Matt Brittin tot directeur-generaal benoemd. Hij volgt Tim Davie op, die vorig jaar opstapte na ophef over de montage van een...
+- [Maximumprijs of accijns omlaag? Kamer dubt over aanpak dure brandstof](https://nos.nl/l/2607798)
+  > De gevolgen van de oorlog in het Midden-Oosten zijn voor bepaalde consumenten en bedrijven na vier weken al voelbaar in de portemonnee. Nu de benzine...
+- [Mysterieus massagraf ontdekt in Kenia, grotendeels gevuld met kinderlichamen](https://nos.nl/l/2607796)
+  > De Keniaanse politie heeft een massagraf ontdekt op een privébegraafplaats in Kericho, een stad in het zuidwesten van Kenia. In het graf zijn 32...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Rick Brandsteder veroordeeld voor rijden onder invloed van drank en drugs](https://www.ad.nl/show/rick-brandsteder-veroordeeld-voor-rijden-onder-invloed-van-drank-en-drugs~acb444b9c/)
-  > Rick Brandsteder is woensdag veroordeeld voor rijden onder invloed van drank en drugs. De ex-presentator krijgt een geldboete.
-- [‘Energiemaatregelen alleen voor mensen met lage inkomens!’](https://www.ad.nl/binnenland/energiemaatregelen-alleen-voor-mensen-met-lage-inkomens~a98c54a4/)
-  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag: energiemaatregelen zijn alleen nodig voor mensen die anders in financiële...
-- [Albert Heijn lanceert ‘ei-phonehoes’ met eierdopje, en het is geen 1 april-grap](https://www.ad.nl/economie/albert-heijn-lanceert-ei-phonehoes-met-eierdopje-en-het-is-geen-1-april-grap~a7e2d6ee/)
-  > Is dit een vervroegde 1 aprilgrap? Als Albert Heijn een gelikt filmpje plaatst over zijn nieuwe ‘ei-phonehoes’, reageren veel volgers argwanend. ‘Dit...
-- [Den Haag grijpt naast hoofdkantoor nieuwe Europese douanedienst](https://www.ad.nl/binnenland/den-haag-grijpt-naast-hoofdkantoor-nieuwe-europese-douanedienst~a49b34d2/)
-  > Den Haag wordt niet de gaststad van een nieuwe organisatie, de Europese Douane-autoriteit. Het hoofdkantoor daarvan komt in de Franse stad Lille. De...
-- [Mohamed Salah zwaait af bij Liverpool: van ‘verdwaalde jongen’ tot ongekende statistieken op Anfield](https://www.ad.nl/voetbal/mohamed-salah-zwaait-af-bij-liverpool-van-verdwaalde-jongen-tot-ongekende-statistieken-op-anfield~a259d884/)
-  > Het einde van een tijdperk. Mohamed Salah kondigde aan dat hij aan het einde van het seizoen vertrekt bij Liverpool. Na een vroege overstap naar...
+- [Deelnemer Vlaamse versie Hunted verdacht van moordpoging, maar zender gaat na uitstel nu toch uitzenden](https://www.ad.nl/show/deelnemer-vlaamse-versie-hunted-verdacht-van-moordpoging-maar-zender-gaat-na-uitstel-nu-toch-uitzenden~a3504362/)
+  > Het nieuwe seizoen van Klopjacht, de Vlaamse variant van Hunted, is vanaf 6 april op Play te zien. De afleveringen werden al in 2024 opgenomen, maar...
+- [Niet iedereen hoeft naar het vwo, kapper of loodgieter is ook een mooi beroep](https://www.ad.nl/binnenland/niet-iedereen-hoeft-naar-het-vwo-kapper-of-loodgieter-is-ook-een-mooi-beroep~a96b07c5/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [Overgewicht, vechtscheiding en pijnlijk vertrek uit Dallas, maar NBA-vedette Luka Doncic lijkt beter dan ooit](https://www.ad.nl/andere-sporten/overgewicht-vechtscheiding-en-pijnlijk-vertrek-uit-dallas-maar-nba-vedette-luka-doncic-lijkt-beter-dan-ooit~a86ab51c/)
+  > Wie naar Luka Doncic (27) op het basketbalveld kijkt, ziet een speler die alles moeiteloos lijkt te doen. De Sloveen van Los Angeles Lakers is een...
+- [Nederland biedt excuses aan voor bombardement op burgers in Mosul, compensatie voor slachtoffers](https://www.ad.nl/politiek/nederland-biedt-excuses-aan-voor-bombardement-op-burgers-in-mosul-compensatie-voor-slachtoffers~acfd9326f/)
+  > Minister Dilan Yesilgöz (Defensie, VVD) heeft de nabestaanden van een Nederlands bombardement op de Iraakse stad Mosul in 2016 excuses aangeboden....
+- [Henk de Jong doet stapje terug en gaat niet als hoofdtrainer van Cambuur de eredivisie in](https://www.ad.nl/voetbal/henk-de-jong-doet-stapje-terug-en-gaat-niet-als-hoofdtrainer-van-cambuur-de-eredivisie-in~a90752a2b/)
+  > Henk de Jong doet na dit seizoen een stapje terug bij SC Cambuur. De hoofdtrainer leidde de club naar promotie naar de Vriendenloterij eredivisie,...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Volgend jaar, nee vólgend jaar, maakt DNB weer winst](https://fd.nl/financiele-markten/1590686/volgend-jaar-nee-volgend-jaar-maakt-dnb-weer-winst)
-  > Van rechtvaardigheid is geen sprake in bankenland. Commerciële banken behaalden de afgelopen jaren recordwinsten, terwijl DNB ver in de rode cijfers...
-- [Weertse afvalverwerker trekt aanvraag omstreden pfas-vergunning in](https://fd.nl/samenleving/1590684/weertse-afvalverwerker-trekt-aanvraag-voor-omstreden-pfas-vergunning-in)
-  > Na veel kritiek ziet afvalverwerker CFS voorlopig af van de aanvraag van een pfas-lozingsvergunning op het riool. Het bedrijf voert eerst een...
-- [Hoe bescherm je pubers tegen sociale media: leeftijdsgrens of ontgiften?](https://fd.nl/politiek/1590681/hoe-bescherm-je-pubers-tegen-sociale-media-leeftijdsgrens-of-ontgiften)
-  > Nederland koerst net als veel andere landen op een leeftijdsgrens voor sociale media. Maar consensus over de maatregel is er nog niet.
-- [Vertrouwen exporteurs naar laagste punt sinds kredietcrisis](https://fd.nl/bedrijfsleven/1590810/vertrouwen-exporteurs-naar-laagste-punt-sinds-kredietcrisis)
-  > Bedrijven beoordelen het economische klimaat met een 5,9, een cijfer dat mager afsteekt bij de verwachte exportgroei van 4% voor dit jaar.
-- [Lagarde staat klaar om in te grijpen als inflatie iets boven de ECB-doelstelling komt](https://fd.nl/financiele-markten/1590692/lagarde-staat-klaar-om-in-te-grijpen-als-inflatie-iets-boven-de-ecb-doelstelling-komt)
-  > De kans op een eerste stap bij de volgende rentevergadering op 30 april is op de geldmarkt inmiddels voor twee derde ingeprijsd.
+- [Britten weren Chinese windturbinemaker omwille van nationale veiligheid](https://fd.nl/politiek/1590911/britten-weren-chinese-windturbinemaker-omwille-van-nationale-veiligheid)
+  > Het aan de beurs in Hongkong genoteerde Ming Yang had £1,5 mrd willen investeren in een nieuwe onderdelenfabriek in Schotland.
+- [Hack gaf bij Ajax toegang tot persoonlijke gegevens](https://fd.nl/bedrijfsleven/1590702/hack-gaf-bij-ajax-toegang-tot-persoonlijke-gegevens)
+  > Voetbalclub Ajax is slachtoffer geworden van een hack waarbij kwaadwillenden honderden e-mailadressen hebben ingezien en details kregen van mensen...
+- [DNB in hoger beroep tegen uitspraak over bedrog in Conservatrix-zaak](https://fd.nl/financiele-markten/1590908/dnb-in-hoger-beroep-tegen-uitspraak-over-bedrog-in-conservatrix-zaak)
+  > De Nederlandsche Bank is het niet eens met de overweging in de uitspraak dat de toezichthouder ‘bedrog’ heeft gepleegd in de zaak rond de onteigening...
+- [Brussel veel te laks bij vrijmaken Europese dienstenhandel, stelt kritische Rekenkamer](https://fd.nl/economie/1590904/brussel-veel-te-laks-bij-vrijmaken-europese-dienstenhandel-stelt-kritische-rekenkamer)
+  > De financiële waakhond van de EU ziet bij de Europese Commissie geen helder plan en ambitie. Bij lidstaten ontbreekt het aan politieke bereidheid om...
+- [Lenen in Zwitserse franken is soms wél een goed idee](https://fd.nl/financiele-markten/1590694/lenen-in-zwitserse-franken-is-soms-wel-een-goed-idee)
+  > De beleidsrente van de Zwitserse centrale bank lag structureel onder die van de Europese Centrale Bank.
 
 ### Meest gelezen
 
