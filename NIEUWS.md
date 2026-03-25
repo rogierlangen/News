@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-03-2026 om 02:37*
+*Laatst bijgewerkt: 25-03-2026 om 04:57*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Olieprijzen omlaag na nieuws over mogelijke vredesgesprekken VS en Iran](https://www.ad.nl/economie/olieprijzen-omlaag-na-nieuws-over-mogelijke-vredesgesprekken-vs-en-iran~ae22307b/)
+- [‘VS komt met vijftienpuntenplan om oorlog Iran te beëindigen’](https://www.ad.nl/buitenland/vs-komt-met-vijftienpuntenplan-om-oorlog-iran-te-beeindigen~a8995d9f/)
+  > De Amerikaanse regering heeft aan Iran een plan met vijftien punten voorgesteld om de oorlog te beëindigen. Dat melden onder meer The New York Times,...
+- [Brand in Russische haven na Oekraïense aanval](https://www.ad.nl/buitenland/brand-in-russische-haven-na-oekraiense-aanval~adfb97be/)
+  > Oekraïense aanvallen hebben brand veroorzaakt in de Russische haven Oest-Loega en energie-infrastructuur beschadigd in de grensregio Belgorod, melden...
+- [Olieprijzen verder omlaag na nieuws over mogelijke vredesgesprekken VS en Iran](https://www.ad.nl/economie/olieprijzen-verder-omlaag-na-nieuws-over-mogelijke-vredesgesprekken-vs-en-iran~ae22307b/)
   > De olieprijzen op de internationale markten zijn woensdagochtend opnieuw gezakt, na verschillende berichten over mogelijke vredesgesprekken tussen de...
 - [OpenAI stopt plotseling met app voor AI-video’s Sora](https://www.ad.nl/tech/openai-stopt-plotseling-met-app-voor-ai-videos-sora~aedf43ce/)
   > OpenAI is van plan te stoppen met zijn app Sora, die gebruikers met behulp van kunstmatige intelligentie korte video’s liet maken. Het bedrijf wil de...
 - [Links wint Deense verkiezingen maar grijpt naast een meerderheid](https://www.ad.nl/buitenland/links-wint-deense-verkiezingen-maar-grijpt-naast-een-meerderheid~a9ff2bfc/)
   > Het linkse blok van de sociaaldemocratische premier Mette Frederiksen heeft de Deense parlementsverkiezingen gewonnen, maar haalde opnieuw geen...
-- [Voetbalpodcast | ‘We moeten niet te veel waarde hechten aan deze interlands van Oranje’](https://www.ad.nl/voetbal/voetbalpodcast-we-moeten-niet-te-veel-waarde-hechten-aan-deze-interlands-van-oranje~ac8603a9/)
-  > Na NAC probeert nu ook Top Oss een wedstrijd overgespeeld te krijgen omdat er een Indonesisch international meedeed zonder juiste werkvergunning. De...
-- [Griezmann verruilt Atlético voor Verenigde Staten, oud-Feyenoord-speler Kazim-Richards start trainersloopbaan](https://www.ad.nl/voetbal/griezmann-verruilt-atletico-voor-verenigde-staten-oud-feyenoord-speler-kazim-richards-start-trainersloopbaan~a35ea681/)
-  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [DNB vreest stilvallen economische groei bij escalatie oorlog](https://fd.nl/economie/1590776/dnb-vreest-stilvallen-economische-groei-bij-escalatie-oorlog)
+  > Vandaag in Dagkoers: de oorlogsscenario's van DNB, het gloednieuwe akkoord tussen de EU en Australië en de beursprestaties van farmaceut Moderna.
 - [SER-advies: maak verduurzamen verplicht](https://fd.nl/politiek/1590521/ser-advies-maak-verduurzamen-verplicht)
   > Het adviesorgaan ziet dat een groep huishoudens en ondernemers achterblijft in het verduurzamen van woningen en bedrijfspanden en komt met een pakket...
 - [Leen die vent geen cent](https://fd.nl/opinie/1590464/leen-die-vent-geen-cent)
@@ -54,8 +56,6 @@
   > Te veel glimlachen kan ook schadelijk zijn – vooral in de politiek. Een pleidooi voor eerlijk optimisme.
 - [Personalia woensdag 25 maart](https://fd.nl/bedrijfsleven/1590459/personalia-woensdag-25-maart)
   > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Wall Street sluit lager na berichten over inzet Amerikaanse grondtroepen](https://fd.nl/financiele-markten/1590892/wall-street-sluit-lager-na-berichten-over-inzet-amerikaanse-grondtroepen)
-  > Beleggers werden heen en weer geslingerd tussen zorgen over escalatie van de oorlog met Iran, doorstijgende olieprijzen en hoop op een diplomatieke...
 
 ### Meest gelezen
 
