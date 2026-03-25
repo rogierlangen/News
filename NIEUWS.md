@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-03-2026 om 07:55*
+*Laatst bijgewerkt: 25-03-2026 om 08:58*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Schrijver en presentator Milouska Meulens dit jaar auteur Kinderboekenweekgeschenk](https://nos.nl/l/2607732)
-  > Schrijver en presentator Milouska Meulens (52) schrijft dit jaar het Kinderboekenweekgeschenk genaamd Terug naar de schoenenboom. Dat heeft...
-- [Het eerste vrouwelijke hoofd van de Anglicaanse Kerk staat voor grote uitdagingen](https://nos.nl/l/2607730)
-  > Het is een plechtig en historisch moment als Sarah Mullally vandaag plaatsneemt op de Zetel van de Heilige Augustinus in de kathedraal van...
-- [Skelet van vierde musketier d'Artagnan mogelijk na eeuwen gevonden](https://nos.nl/l/2607725)
-  > Het zou een spectaculaire historische vondst kunnen zijn: in een kerk in Maastricht is een skelet ontdekt dat mogelijk toebehoort aan de beroemde...
-- [Van Teheran naar Bakoe: hoe Nederland zijn ambassade in Iran moest achterlaten](https://nos.nl/l/2607722)
-  > Aan het begin van de oorlog zat er nog een Nederlands ambassadeteam in Teheran. Terwijl de bombardementen begonnen en in intensiteit toenamen,...
-- [Wekdienst 25/3: Tweede Kamerdebat over economische gevolgen oorlog • Korte kür op WK kunstrijden](https://nos.nl/l/2607721)
-  > Goedemorgen! Gaat het kabinet wat doen aan de hoge prijzen aan de pomp? In de Tweede Kamer wordt gedebatteerd over de economische gevolgen van de...
+- [Europees Parlement achter verbod op uitkleed-apps, gaat voor de zomer in](https://nos.nl/l/2607749)
+  > Online tools waarin met AI-software nepnaaktbeelden kunnen worden gemaakt, gaan overal in Europa in de ban. Het Europees Parlement zal morgen...
+- [Japanse militair dringt Chinese ambassade in Tokio binnen](https://nos.nl/l/2607740)
+  > Een Japanse militair is gisteren de Chinese ambassade in Tokio binnengedrongen. Hij klom over de muur en wilde de ambassadeur spreken om te zeggen...
+- [Maatregelen 'flessenhals' station Meppel bekend, extra perron en fietstunnel](https://nos.nl/l/2607738)
+  > De maatregelen voor de aanpak van de cruciale treinverbinding van en naar Noord-Nederland zijn definitief rond. Bij station Meppel komt onder andere...
+- [Meer gemeenten delen boetes uit aan COA, maar helpen die ook echt?](https://nos.nl/l/2607736)
+  > Meer gemeenten gebruiken dwangsommen om het Centraal Orgaan opvang asielzoekers (COA) aan te zetten tot actie. Vanaf vandaag moet het COA dagelijks...
+- [Trein en auto botsen bij Meerssen](https://nos.nl/l/2607734)
+  > Bij het Limburgse Meerssen is vanochtend een aanrijding geweest tussen een trein en een auto, meldt de politie. De bestuurder van de auto is gewond...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Guur en koud: winterse buien trekken over het land, en er is zelfs kans op een wit laagje](https://www.ad.nl/binnenland/guur-en-koud-winterse-buien-trekken-over-het-land-en-er-is-zelfs-kans-op-een-wit-laagje~a07118b6/)
-  > Woensdag en donderdag is het guur en ronduit fris in Nederland. De kans op winterse buien neemt de komende uren flink toe. Woensdagnacht en donderdag...
-- [TransferTalk | Saoedische clubs willen Mohamed Salah inlijven, oud-Feyenoorder Colin Kazim-Richards start trainersloopbaan](https://www.ad.nl/voetbal/transfertalk-saoedische-clubs-willen-mohamed-salah-inlijven-oud-feyenoorder-colin-kazim-richards-start-trainersloopbaan~a35ea681/)
-  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
-- [Oliehandelaar over peperdure benzine en diesel: ‘Mensen gaan hamsteren zoals met de wc-rollen’](https://www.ad.nl/binnenland/oliehandelaar-over-peperdure-benzine-en-diesel-mensen-gaan-hamsteren-zoals-met-de-wc-rollen~ab26af38/)
-  > Het is dagelijks slikken voor automobilisten aan de pomp. Terwijl de prijzen voor koffie of suiker veel geleidelijker bewegen, schiet de...
-- [Beurzen Azië stijgen, olieprijs daalt door hoop op einde oorlog](https://www.ad.nl/economie/beurzen-azie-stijgen-olieprijs-daalt-door-hoop-op-einde-oorlog~a30e1e51/)
-  > De aandelenbeurzen in Azië gingen woensdag stevig omhoog. De stemming werd gesteund door de hoop op een spoedige de-escalatie van de oorlog in het...
-- [Skelet wereldberoemde musketier d’Artagnan mogelijk gevonden in Maastricht](https://www.ad.nl/binnenland/skelet-wereldberoemde-musketier-dartagnan-mogelijk-gevonden-in-maastricht~ac354530/)
-  > In een kerk in Maastricht is een skelet ontdekt dat mogelijk toebehoort aan de beroemde Franse musketier d’Artagnan. Dat meldt de regionale zender...
+- [Airbag redt leven van 19-jarige Nederlander die door lawine honderden meters wordt meegesleurd](https://www.ad.nl/buitenland/airbag-redt-leven-van-19-jarige-nederlander-die-door-lawine-honderden-meters-wordt-meegesleurd~a57862a9/)
+  > Een geactiveerde lawine-airbag heeft het leven gered van een 19-jarige Nederlandse wintersporter. De man werd tijdens het off­pis­te skiën verrast...
+- [AEX-index begint met winst door hoop op einde oorlog, olieprijs daalt](https://www.ad.nl/economie/aex-index-begint-met-winst-door-hoop-op-einde-oorlog-olieprijs-daalt~a30e1e51/)
+  > De AEX-index op het Damrak ging woensdag verder omhoog. De stemming werd gesteund door hernieuwde hoop op vredesonderhandelingen tussen de Verenigde...
+- [Aantal asielzoekers in Ter Apel gestegen naar hoogste aantal sinds oktober 2024](https://www.ad.nl/binnenland/aantal-asielzoekers-in-ter-apel-gestegen-naar-hoogste-aantal-sinds-oktober-2024~af7cbe7e/)
+  > In de nacht van dinsdag op woensdag zaten 2170 asielzoekers in het aanmeldcentrum in Ter Apel. Dat is het hoogste aantal sinds 23 oktober 2024,...
+- [Vicepresident JD Vance duikt weg nu de oorlog met Iran escaleert: ‘Hij is hier helemáál niet blij mee’](https://www.ad.nl/buitenland/vicepresident-jd-vance-duikt-weg-nu-de-oorlog-met-iran-escaleert-hij-is-hier-helemaal-niet-blij-mee~a4fe18a4/)
+  > Waar is JD Vance? De vicepresident van Amerika én mogelijke opvolger van Trump houdt zich sinds het uitbreken van de oorlog in het Midden-Oosten...
+- [Van spannende achtervolging tot zoenscène aan de gracht: ook deze Hollywoodfilms gebruikten Amsterdam als decor](https://www.ad.nl/show/van-spannende-achtervolging-tot-zoenscene-aan-de-gracht-ook-deze-hollywoodfilms-gebruikten-amsterdam-als-decor~ad0e12bb/)
+  > Fans van Brad Pitt opgelet: de Amerikaanse superster is de hele week in Amsterdam voor opnames van zijn nieuwe film The Riders. Het is niet de eerste...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Roots Inspire-ceo Sergio Panday: ‘Ik heb een sterke drive om te laten zien dat het kan’](https://fd.nl/samenleving/1590476/roots-inspire-ceo-sergio-panday-ik-heb-een-sterke-drive-om-te-laten-zien-dat-het-kan)
+  > Wat maken professionals mee in hun loopbaan? Deze week: Sergio Panday (1981), medeoprichter en ceo van Roots Inspire.
+- [OpenAI schrapt Sora en zet streep door miljardendeal met Disney](https://fd.nl/bedrijfsleven/1590895/openai-schrapt-sora-en-zet-streep-door-miljardendeal-met-disney)
+  > OpenAI zet onverwacht een streep door het videoplatform Sora en daarmee sneuvelt een deal ter waarde van $1 mrd met Disney.
+- [Honderden zorgaanbieders keren dividend uit terwijl buffers onvoldoende zijn](https://fd.nl/samenleving/1590458/honderden-zorgaanbieders-keren-dividend-uit-terwijl-buffers-onvoldoende-zijn)
+  > Toezichthouder pleit voor een strikte norm voor financiële gezondheid van zorgondernemingen, voordat die winst mogen uitbetalen aan aandeelhouders.
 - [Kerk vs. staat](https://fd.nl/samenleving/1590390/kerk-vs-staat)
   > Hoe moeten kerk, moskee of synagoge zich eigenlijk verhouden tot de staat, en vice versa? Vraagt predikant Joost Röselaers zich af.
 - [Dubbelinterview over de ‘zin’ van het lijden](https://fd.nl/samenleving/1590272/dubbelinterview-over-de-zin-van-het-lijden)
   > Theoloog Arnold Huijgen en oud-wielrenner Maarten Ducrot filosoferen over breekpunten in het bestaan, met wielrennen als metafoor. ‘Je moet niet...
-- [Partij Deense premier Frederiksen blijft de grootste, maar krimpt flink](https://fd.nl/politiek/1590798/partij-deense-premier-frederiksen-blijft-de-grootste-maar-krimpt-flink)
-  > De sociaaldemocratische partij van premier Mette Frederiksen behaalde 21,9% van de stemmen, flink minder dan de 27,5% in 2022, al blijft zij wel...
-- [‘VS komen met 15 puntenplan om Iran-oorlog te beëindigen’](https://fd.nl/politiek/1590894/vs-komen-met-15-puntenplan-om-iran-oorlog-te-beeindigen)
-  > De Amerikaanse president Trump zou een vijftienpuntenplan met de Iraanse regering gedeeld hebben, in een poging de oorlog in het Midden-Oosten te...
-- [Live: Olieprijs duikt onder de $100 na plan VS om oorlog te stoppen](https://fd.nl/financiele-markten/1590893/live-beleggers-weer-bezorgd-nu-vs-2000-militairen-naar-midden-oosten-sturen)
-  > Beleggers zullen vandaag hopen dat de oorlog niet toch weer escaleert, en dat er vredesonderhandelingen op gang komen. De prijs van olie en gas wordt...
 
 ### Meest gelezen
 
