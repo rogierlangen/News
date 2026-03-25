@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-03-2026 om 10:02*
+*Laatst bijgewerkt: 25-03-2026 om 11:45*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Binnenstadmanager Enschede ziet rust terugkeren na ingestelde fatbikeverbod](https://nos.nl/l/2607753)
-  > Na een waarschuwingsperiode van twee weken, kunnen gemeentelijke buitengewoon opsporingsambtenaren (boa's) in Enschede vanaf vandaag het...
-- [Verdachten aangehouden voor brandaanslag ambulances Joodse organisatie Londen](https://nos.nl/l/2607750)
-  > De Britse politie heeft twee mannen aangehouden die worden verdacht van betrokkenheid bij het in brand steken van vier ambulances, afgelopen maandag...
-- [Europees Parlement achter verbod op uitkleed-apps, gaat voor de zomer in](https://nos.nl/l/2607749)
-  > Online tools waarin met AI-software nepnaaktbeelden kunnen worden gemaakt, gaan overal in Europa in de ban. Het Europees Parlement zal morgen...
-- [Japanse militair dringt Chinese ambassade in Tokio binnen](https://nos.nl/l/2607740)
-  > Een Japanse militair is gisteren de Chinese ambassade in Tokio binnengedrongen. Hij klom over de muur en wilde de ambassadeur spreken om te zeggen...
-- [Maatregelen 'flessenhals' station Meppel bekend, extra perron en fietstunnel](https://nos.nl/l/2607738)
-  > De maatregelen voor de aanpak van de cruciale treinverbinding van en naar Noord-Nederland zijn definitief rond. Bij station Meppel komt onder andere...
+- [Elektriciteitscentrale in Estland geraakt door drone, 'was geen opzet'](https://nos.nl/l/2607769)
+  > Een drone die vanuit Rusland het luchtruim van Estland was binnengedrongen, is vanochtend op een schoorsteen van de elektriciteitscentrale Auvere in...
+- [Denen stevenen af op middenkabinet, kleine partij is 'kingmaker'](https://nos.nl/l/2607768)
+  > De Deense sociaaldemocraten hebben na de verkiezingsuitslag een bittere pil moeten slikken. De partij blijft zoals bij de meeste verkiezingen de...
+- [Verdachte van doodrijden 14-jarige Tamar uit Marken alsnog voor rechter](https://nos.nl/l/2607765)
+  > De automobilist die verdacht wordt van betrokkenheid bij de dood van de 14-jarige Tamar uit Marken in 2020 moet voor de rechtbank verschijnen. Het...
+- [Beroepsverenigingen artsen hebben vraagtekens bij website abortuspillen](https://nos.nl/l/2607761)
+  > Meerdere beroepsverenigingen voor artsen hebben twijfels of de nieuwe website thuisabortus.nl wel voldoet aan de eisen voor goede zorg. Vrouwen...
+- [Nepmails van CJIB in omloop: 'Verband met Odido-hack aannemelijk'](https://nos.nl/l/2607755)
+  > Het Centraal Justitieel Incassobureau (CJIB) ontvangt een hausse aan telefoontjes en mails van mensen die vragen hebben over een nepmail die uit naam...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Staatsloterij Show begin mei na twintig jaar terug op de buis](https://www.ad.nl/show/staatsloterij-show-begin-mei-na-twintig-jaar-terug-op-de-buis~a49c50d1/)
-  > De Staatsloterij Show keert begin mei na twintig jaar terug op televisie. De eerste uitzending is op 9 mei te zien, heeft Talpa woensdag...
-- [TikTok-crosser tart politie met levensgevaarlijke ritten: ‘Het is een grof schandaal hoe hij rijdt’](https://www.ad.nl/binnenland/tiktok-crosser-tart-politie-met-levensgevaarlijke-ritten-het-is-een-grof-schandaal-hoe-hij-rijdt~aea8c426/)
-  > De politie opwachten en kansloos achterlaten, racen tegen luxe auto’s en onbezonnen crossen. Het zijn daden die te zien zijn op een TikTokaccount. In...
-- [In nieuwe serie Privilèges moet je overleven in meest luxe hotel van Parijs: ‘De klant is heer en meester’](https://www.ad.nl/show/in-nieuwe-serie-privileges-moet-je-overleven-in-meest-luxe-hotel-van-parijs-de-klant-is-heer-en-meester~a63f1c00/)
-  > Wordt de Franse hotelreeks Privilèges de opvolger van de hitserie The White Lotus die ook op de streamingzender HBO Max is te zien?  „Wij laten...
-- [Waarom de asielopvang wéér dichtslibt en er zelfs dwangsommen dreigen](https://www.ad.nl/binnenland/waarom-de-asielopvang-weer-dichtslibt-en-er-zelfs-dwangsommen-dreigen~a84791dd0/)
-  > Azc’s sluiten en er komt nauwelijks iets voor terug. Daardoor dreigt opnieuw een enorm tekort aan opvangplekken voor asielzoekers. Hoe heeft het...
-- [Barça heeft interesse in Juventus-speler, Saoedische clubs willen Salah en NAC langer door met verdediger](https://www.ad.nl/voetbal/barca-heeft-interesse-in-juventus-speler-saoedische-clubs-willen-salah-en-nac-langer-door-met-verdediger~a35ea681/)
-  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
+- [Trumps klassieke tactiek bij onderhandelingen: maximale druk met raketten en bommen](https://www.ad.nl/buitenland/trumps-klassieke-tactiek-bij-onderhandelingen-maximale-druk-met-raketten-en-bommen~a66c4188/)
+  > Donald Trump zegt dat de VS met Iran onderhandelen om de oorlog te beëindigen en beweert dat Teheran ‘heel graag’ een deal wil. Maar Iran ontkent dat...
+- [Volgende wielerklassieker op vrijdag: titelverdediger Mathieu van der Poel van start in E3 Saxo Classic](https://www.ad.nl/wielrennen/volgende-wielerklassieker-op-vrijdag-titelverdediger-mathieu-van-der-poel-van-start-in-e3-saxo-classic~ab6ab45d/)
+  > Milaan-San Remo is nog maar net achter de rug, of de volgende klassieker staat alweer voor de deur. Vrijdag staat de E3 Saxo Classic op het...
+- [De kinderen van dit Kamerlid moeten toch wegkruipen van schaamte als ze dit filmpje zien?](https://www.ad.nl/binnenland/de-kinderen-van-dit-kamerlid-moeten-toch-wegkruipen-van-schaamte-als-ze-dit-filmpje-zien~aae7c45f/)
+  > Het is niet altijd makkelijk om de humor van dingen te blijven inzien, zeker nu niet, maar met een beetje goede wil lukt het best. Zelfs bij dit...
+- [Praat mee: energiemaatregelen zijn alleen nodig voor mensen die anders in financiële problemen komen](https://www.ad.nl/praat-mee/praat-mee-energiemaatregelen-zijn-alleen-nodig-voor-mensen-die-anders-in-financiele-problemen-komen~a4a81649/)
+  > Woensdag debatteert de Tweede Kamer over de energiecrisis naar aanleiding van de oorlog in Iran. In de Kwestie leggen we onze lezers daarover een...
+- [Dit land heeft volgens onze jury het mooiste WK-shirt: ‘Kijk dat patroon met die vlinders, prachtig’](https://www.ad.nl/wk-voetbal/dit-land-heeft-volgens-onze-jury-het-mooiste-wk-shirt-kijk-dat-patroon-met-die-vlinders-prachtig~a7e6bc7e/)
+  > Tijdens het WK 2026 loopt meer dan de helft van de deelnemende landen in shirts van Adidas en Nike. De grote sportmerken maakten deze week de nieuwe...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Slibverwerker in Moerdijk heeft grote bouwplannen, nu de vergunning nog](https://fd.nl/bedrijfsleven/1590393/slibverwerker-in-moerdijk-heeft-grote-bouwplannen-nu-de-vergunning-nog)
-  > SNB mikt op de bouw van een fosfaatrecyclingfabriek en een installatie om stikstof te herwinnen. Maar door het stikstofslot blijft een vergunning nog...
-- [Roots Inspire-ceo Sergio Panday: ‘Ik heb een sterke drive om te laten zien dat het kan’](https://fd.nl/samenleving/1590476/roots-inspire-ceo-sergio-panday-ik-heb-een-sterke-drive-om-te-laten-zien-dat-het-kan)
-  > Wat maken professionals mee in hun loopbaan? Deze week: Sergio Panday (1981), medeoprichter en ceo van Roots Inspire.
-- [OpenAI schrapt Sora en zet streep door miljardendeal met Disney](https://fd.nl/bedrijfsleven/1590895/openai-schrapt-sora-en-zet-streep-door-miljardendeal-met-disney)
-  > OpenAI zet onverwacht een streep door het videoplatform Sora en daarmee sneuvelt een deal ter waarde van $1 mrd met Disney.
-- [Honderden zorgaanbieders keren dividend uit terwijl buffers onvoldoende zijn](https://fd.nl/samenleving/1590458/honderden-zorgaanbieders-keren-dividend-uit-terwijl-buffers-onvoldoende-zijn)
-  > Toezichthouder pleit voor een strikte norm voor financiële gezondheid van zorgondernemingen, voordat die winst mogen uitbetalen aan aandeelhouders.
-- [Kerk vs. staat](https://fd.nl/samenleving/1590390/kerk-vs-staat)
-  > Hoe moeten kerk, moskee of synagoge zich eigenlijk verhouden tot de staat, en vice versa? Vraagt predikant Joost Röselaers zich af.
+- [Gasvoorraden op zeer laag niveau, Nederland haalt vuldoelen EU niet meer](https://fd.nl/economie/1590683/gasvoorraden-op-zeer-laag-niveau-nederland-haalt-vuldoelen-eu-niet-meer)
+  > Nederland heeft op Duitsland en Italië na de grootste gasbergingen van Europa. Maar de vullingsgraad heeft met 5,8% het laagste punt in jaren bereikt.
+- [Run op warmtepompen, zonnepanelen en thuisbatterijen](https://fd.nl/bedrijfsleven/1590531/run-op-warmtepompen-zonnepanelen-en-thuisbatterijen)
+  > Door de Iran-oorlog kunnen de prijzen van gas, diesel en benzine nog lang hoog blijven. Particulieren zoeken naar goedkopere alternatieven, merken...
+- [Vuurwapenbedrijf Colt ziet omzet stijgen, minder verkopen VS](https://fd.nl/bedrijfsleven/1590804/vuurwapenbedrijf-colt-ziet-omzet-stijgen-minder-verkopen-vs)
+  > De cijfers komen in aanloop naar een eventuele beursgang aan het Damrak.
+- [Vertrekkend CNV-voorzitter Piet Fortuin: ‘Het is net een slechte western: wie knippert het eerst?’](https://fd.nl/samenleving/1589926/vertrekkend-cnv-voorzitter-piet-fortuin-het-is-net-een-slechte-western-wie-knippert-het-eerst)
+  > Hij was altijd de man van vele kopjes koffie drinken om tot een vergelijk te komen. Maar in zijn laatste dagen als CNV-voorzitter loopt Piet Fortuin...
+- [Verwacht het onverwachte](https://fd.nl/financiele-markten/1590802/verwacht-het-onverwachte)
+  > Wellicht is de grootste impact van AI niet dat banen verdwijnen, maar de herverdeling van winstgevendheid, zegt FD-columnist Valentijn van...
 
 ### Meest gelezen
 
