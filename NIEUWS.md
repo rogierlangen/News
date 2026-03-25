@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-03-2026 om 13:21*
+*Laatst bijgewerkt: 25-03-2026 om 15:04*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Podcast De Dag: de lange arm van Teheran in Nederland](https://nos.nl/l/2607787)
+  > Na een moordpoging op een Iraanse man en explosies en brandstichtingen bij Joodse organisaties, neemt de angst onder Iraniërs in Nederland toe: hoe...
+- [Syriëganger Hasna A. in hoger beroep veroordeeld tot 9 jaar cel](https://nos.nl/l/2607786)
+  > Het gerechtshof in Den Haag heeft Hasna A. in hoger beroep veroordeeld tot negen jaar celstraf. Het hof oordeelt dat de Syriëganger vier strafbare...
+- [Hongarije schort gastransport naar Oekraïne op vanwege ruzie om pijpleiding](https://nos.nl/l/2607781)
+  > Hongarije gaat het gastransport naar Oekraïne geleidelijk opschorten totdat er weer olie vloeit door de Droezjba-pijpleiding. Dat zegt premier Orbán....
 - [Liedschrijver Chip Taylor (86), bekend van 'Wild Thing', overleden](https://nos.nl/l/2607777)
   > De Amerikaanse zanger en liedjesschrijver James Wesley Voight, beter bekend als Chip Taylor, is maandag op 86-jarige leeftijd overleden. De...
 - [Nieuwe kabinet kijkt naar Estland om dienstverlening verder te digitaliseren](https://nos.nl/l/2607775)
   > Als je Esten op straat in de hoofdstad Tallinn vraagt waar ze hun digitale identiteit zoal voor gebruiken, dan krijg je de meest uiteenlopende...
-- [Zit Iran achter aanslagen in Nederland? 'Ze zijn bereid ver te gaan'](https://nos.nl/l/2607774)
-  > Met aanslagen op Joodse instellingen in Nederland en een man van Iraanse afkomst die werd neergeschoten in Schoonhoven, lijkt de oorlog in het...
-- [Lekkages gasfornuis extra risico door benzeen dat vrijkomt: 'Onderhoud cruciaal'](https://nos.nl/l/2607771)
-  > Gasfornuizen kunnen gevaarlijke hoeveelheden van de kankerverwekkende stof benzeen lekken, ook als ze uitstaan. Dat stellen Amerikaanse...
-- [Elektriciteitscentrale in Estland geraakt door drone, 'was geen opzet'](https://nos.nl/l/2607769)
-  > Een Oekraïense drone die vanuit Rusland het luchtruim van Estland was binnengedrongen, is vanochtend op een schoorsteen van de elektriciteitscentrale...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nederlands tennistalent (18) spreekt zich uit: ‘Vete tussen de bond en Tallon Griekspoor onnodig’](https://www.ad.nl/tennis/nederlands-tennistalent-18-spreekt-zich-uit-vete-tussen-de-bond-en-tallon-griekspoor-onnodig~aaf2414c/)
-  > Mees Röttgering (18) was als junior finalist op Wimbledon en even nummer één van de wereld. Inmiddels heeft ook zijn eerste proftitel binnen. In zijn...
-- [Lil Kleine kondigt concert aan in Olympisch Stadion: zijn grootste show tot nu toe](https://www.ad.nl/show/lil-kleine-kondigt-concert-aan-in-olympisch-stadion-zijn-grootste-show-tot-nu-toe~a5146cdc/)
-  > Na zijn succesvolle comeback met het album F*ck Kleine kondigt Jorik Scholten (31), artiestennaam Lil Kleine, woensdag een concert aan in het...
-- [Dit beestje eet door verpakkingen heen en is dol op meel en noten: nieuwe insectenplaag in aantocht](https://www.ad.nl/binnenland/dit-beestje-eet-door-verpakkingen-heen-en-is-dol-op-meel-en-noten-nieuwe-insectenplaag-in-aantocht~a69a42a5/)
-  > Aan de reeks insecten die de afgelopen jaren een opmars in Nederland heeft gemaakt, kan mogelijk een nieuwe worden toegevoegd: de zogeheten...
-- [Quiz: test je kennis over Oranje en de Noren die in Nederland speelden](https://www.ad.nl/voetbal/quiz-test-je-kennis-over-oranje-en-de-noren-die-in-nederland-speelden~a93da3d1/)
-  > Het Nederlands elftal speelt oefenwedstrijden tegen Noorwegen en Ecuador. Ben jij een echte Oranje-kenner? En weet jij ook welke Noorse voetballers...
-- [Fien Vermeulen stopt na ruim tien jaar als nieuwslezeres bij Qmusic](https://www.ad.nl/show/fien-vermeulen-stopt-na-ruim-tien-jaar-als-nieuwslezeres-bij-qmusic~a5444b85/)
-  > Na ruim tien jaar neemt Fien Vermeulen (34) afscheid van Qmusic. De nieuwslezeres gaat iets anders doen, maar wil nog niet zeggen wat. ‘Het grootste...
+- [Rick Brandsteder veroordeeld voor rijden onder invloed van drank en drugs](https://www.ad.nl/show/rick-brandsteder-veroordeeld-voor-rijden-onder-invloed-van-drank-en-drugs~acb444b9c/)
+  > Rick Brandsteder is woensdag veroordeeld voor rijden onder invloed van drank en drugs. De ex-presentator krijgt een geldboete.
+- [‘Energiemaatregelen alleen voor mensen met lage inkomens!’](https://www.ad.nl/binnenland/energiemaatregelen-alleen-voor-mensen-met-lage-inkomens~a98c54a4/)
+  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag: energiemaatregelen zijn alleen nodig voor mensen die anders in financiële...
+- [Albert Heijn lanceert ‘ei-phonehoes’ met eierdopje, en het is geen 1 april-grap](https://www.ad.nl/economie/albert-heijn-lanceert-ei-phonehoes-met-eierdopje-en-het-is-geen-1-april-grap~a7e2d6ee/)
+  > Is dit een vervroegde 1 aprilgrap? Als Albert Heijn een gelikt filmpje plaatst over zijn nieuwe ‘ei-phonehoes’, reageren veel volgers argwanend. ‘Dit...
+- [Den Haag grijpt naast hoofdkantoor nieuwe Europese douanedienst](https://www.ad.nl/binnenland/den-haag-grijpt-naast-hoofdkantoor-nieuwe-europese-douanedienst~a49b34d2/)
+  > Den Haag wordt niet de gaststad van een nieuwe organisatie, de Europese Douane-autoriteit. Het hoofdkantoor daarvan komt in de Franse stad Lille. De...
+- [Mohamed Salah zwaait af bij Liverpool: van ‘verdwaalde jongen’ tot ongekende statistieken op Anfield](https://www.ad.nl/voetbal/mohamed-salah-zwaait-af-bij-liverpool-van-verdwaalde-jongen-tot-ongekende-statistieken-op-anfield~a259d884/)
+  > Het einde van een tijdperk. Mohamed Salah kondigde aan dat hij aan het einde van het seizoen vertrekt bij Liverpool. Na een vroege overstap naar...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Bouwers vrezen naheffing en beperken inhuur zzp’ers drastisch](https://fd.nl/bedrijfsleven/1590685/bouwers-vrezen-naheffing-en-beperken-inhuur-zzpers-drastisch)
-  > Vooral kleinere bedrijven geven aan dat zij het risico van hoge naheffingen van loonbelasting niet kunnen dragen.
-- [Oorlog in Golfregio raakt brede waaier van mkb-bedrijven](https://fd.nl/economie/1590392/oorlog-in-golfregio-raakt-brede-waaier-van-mkb-bedrijven)
-  > Ook voor Nederlandse mkb’ers levert de afsluiting van de Straat van Hormuz problemen op. Van een opdrogende stroom aan specerijen tot luxe meubels...
-- [Geruisloze dwang](https://fd.nl/opinie/1590382/geruisloze-dwang)
-  > Als klant van bigtechbedrijven wordt iedereen voortdurend op een geruisloze manier onderworpen aan nieuwe regels. Zonder vooraankondiging, zonder dat...
-- [Meta moet van Amerikaanse jury $375 mln schadevergoeding betalen](https://fd.nl/tech-en-innovatie/1590898/meta-moet-van-amerikaanse-jury-375-mln-schadevergoeding-betalen)
-  > Een jury in de Amerikaanse staat New Mexico concludeerde dat het bedrijf het consumentenrecht van de staat heeft geschonden.
-- [Filipijnen roepen noodtoestand uit vanwege energietekort](https://fd.nl/samenleving/1590896/filipijnen-roepen-noodtoestand-uit-vanwege-energietekort)
-  > De president stelde dinsdagavond dat er ‘dringende maatregelen’ nodig zijn om de stabiliteit van de energievoorziening, de economische continuïteit...
+- [Volgend jaar, nee vólgend jaar, maakt DNB weer winst](https://fd.nl/financiele-markten/1590686/volgend-jaar-nee-volgend-jaar-maakt-dnb-weer-winst)
+  > Van rechtvaardigheid is geen sprake in bankenland. Commerciële banken behaalden de afgelopen jaren recordwinsten, terwijl DNB ver in de rode cijfers...
+- [Weertse afvalverwerker trekt aanvraag omstreden pfas-vergunning in](https://fd.nl/samenleving/1590684/weertse-afvalverwerker-trekt-aanvraag-voor-omstreden-pfas-vergunning-in)
+  > Na veel kritiek ziet afvalverwerker CFS voorlopig af van de aanvraag van een pfas-lozingsvergunning op het riool. Het bedrijf voert eerst een...
+- [Hoe bescherm je pubers tegen sociale media: leeftijdsgrens of ontgiften?](https://fd.nl/politiek/1590681/hoe-bescherm-je-pubers-tegen-sociale-media-leeftijdsgrens-of-ontgiften)
+  > Nederland koerst net als veel andere landen op een leeftijdsgrens voor sociale media. Maar consensus over de maatregel is er nog niet.
+- [Vertrouwen exporteurs naar laagste punt sinds kredietcrisis](https://fd.nl/bedrijfsleven/1590810/vertrouwen-exporteurs-naar-laagste-punt-sinds-kredietcrisis)
+  > Bedrijven beoordelen het economische klimaat met een 5,9, een cijfer dat mager afsteekt bij de verwachte exportgroei van 4% voor dit jaar.
+- [Lagarde staat klaar om in te grijpen als inflatie iets boven de ECB-doelstelling komt](https://fd.nl/financiele-markten/1590692/lagarde-staat-klaar-om-in-te-grijpen-als-inflatie-iets-boven-de-ecb-doelstelling-komt)
+  > De kans op een eerste stap bij de volgende rentevergadering op 30 april is op de geldmarkt inmiddels voor twee derde ingeprijsd.
 
 ### Meest gelezen
 
