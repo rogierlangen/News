@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-03-2026 om 11:45*
+*Laatst bijgewerkt: 25-03-2026 om 13:21*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Liedschrijver Chip Taylor (86), bekend van 'Wild Thing', overleden](https://nos.nl/l/2607777)
+  > De Amerikaanse zanger en liedjesschrijver James Wesley Voight, beter bekend als Chip Taylor, is maandag op 86-jarige leeftijd overleden. De...
+- [Nieuwe kabinet kijkt naar Estland om dienstverlening verder te digitaliseren](https://nos.nl/l/2607775)
+  > Als je Esten op straat in de hoofdstad Tallinn vraagt waar ze hun digitale identiteit zoal voor gebruiken, dan krijg je de meest uiteenlopende...
+- [Zit Iran achter aanslagen in Nederland? 'Ze zijn bereid ver te gaan'](https://nos.nl/l/2607774)
+  > Met aanslagen op Joodse instellingen in Nederland en een man van Iraanse afkomst die werd neergeschoten in Schoonhoven, lijkt de oorlog in het...
+- [Lekkages gasfornuis extra risico door benzeen dat vrijkomt: 'Onderhoud cruciaal'](https://nos.nl/l/2607771)
+  > Gasfornuizen kunnen gevaarlijke hoeveelheden van de kankerverwekkende stof benzeen lekken, ook als ze uitstaan. Dat stellen Amerikaanse...
 - [Elektriciteitscentrale in Estland geraakt door drone, 'was geen opzet'](https://nos.nl/l/2607769)
-  > Een drone die vanuit Rusland het luchtruim van Estland was binnengedrongen, is vanochtend op een schoorsteen van de elektriciteitscentrale Auvere in...
-- [Denen stevenen af op middenkabinet, kleine partij is 'kingmaker'](https://nos.nl/l/2607768)
-  > De Deense sociaaldemocraten hebben na de verkiezingsuitslag een bittere pil moeten slikken. De partij blijft zoals bij de meeste verkiezingen de...
-- [Verdachte van doodrijden 14-jarige Tamar uit Marken alsnog voor rechter](https://nos.nl/l/2607765)
-  > De automobilist die verdacht wordt van betrokkenheid bij de dood van de 14-jarige Tamar uit Marken in 2020 moet voor de rechtbank verschijnen. Het...
-- [Beroepsverenigingen artsen hebben vraagtekens bij website abortuspillen](https://nos.nl/l/2607761)
-  > Meerdere beroepsverenigingen voor artsen hebben twijfels of de nieuwe website thuisabortus.nl wel voldoet aan de eisen voor goede zorg. Vrouwen...
-- [Nepmails van CJIB in omloop: 'Verband met Odido-hack aannemelijk'](https://nos.nl/l/2607755)
-  > Het Centraal Justitieel Incassobureau (CJIB) ontvangt een hausse aan telefoontjes en mails van mensen die vragen hebben over een nepmail die uit naam...
+  > Een Oekraïense drone die vanuit Rusland het luchtruim van Estland was binnengedrongen, is vanochtend op een schoorsteen van de elektriciteitscentrale...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Trumps klassieke tactiek bij onderhandelingen: maximale druk met raketten en bommen](https://www.ad.nl/buitenland/trumps-klassieke-tactiek-bij-onderhandelingen-maximale-druk-met-raketten-en-bommen~a66c4188/)
-  > Donald Trump zegt dat de VS met Iran onderhandelen om de oorlog te beëindigen en beweert dat Teheran ‘heel graag’ een deal wil. Maar Iran ontkent dat...
-- [Volgende wielerklassieker op vrijdag: titelverdediger Mathieu van der Poel van start in E3 Saxo Classic](https://www.ad.nl/wielrennen/volgende-wielerklassieker-op-vrijdag-titelverdediger-mathieu-van-der-poel-van-start-in-e3-saxo-classic~ab6ab45d/)
-  > Milaan-San Remo is nog maar net achter de rug, of de volgende klassieker staat alweer voor de deur. Vrijdag staat de E3 Saxo Classic op het...
-- [De kinderen van dit Kamerlid moeten toch wegkruipen van schaamte als ze dit filmpje zien?](https://www.ad.nl/binnenland/de-kinderen-van-dit-kamerlid-moeten-toch-wegkruipen-van-schaamte-als-ze-dit-filmpje-zien~aae7c45f/)
-  > Het is niet altijd makkelijk om de humor van dingen te blijven inzien, zeker nu niet, maar met een beetje goede wil lukt het best. Zelfs bij dit...
-- [Praat mee: energiemaatregelen zijn alleen nodig voor mensen die anders in financiële problemen komen](https://www.ad.nl/praat-mee/praat-mee-energiemaatregelen-zijn-alleen-nodig-voor-mensen-die-anders-in-financiele-problemen-komen~a4a81649/)
-  > Woensdag debatteert de Tweede Kamer over de energiecrisis naar aanleiding van de oorlog in Iran. In de Kwestie leggen we onze lezers daarover een...
-- [Dit land heeft volgens onze jury het mooiste WK-shirt: ‘Kijk dat patroon met die vlinders, prachtig’](https://www.ad.nl/wk-voetbal/dit-land-heeft-volgens-onze-jury-het-mooiste-wk-shirt-kijk-dat-patroon-met-die-vlinders-prachtig~a7e6bc7e/)
-  > Tijdens het WK 2026 loopt meer dan de helft van de deelnemende landen in shirts van Adidas en Nike. De grote sportmerken maakten deze week de nieuwe...
+- [Nederlands tennistalent (18) spreekt zich uit: ‘Vete tussen de bond en Tallon Griekspoor onnodig’](https://www.ad.nl/tennis/nederlands-tennistalent-18-spreekt-zich-uit-vete-tussen-de-bond-en-tallon-griekspoor-onnodig~aaf2414c/)
+  > Mees Röttgering (18) was als junior finalist op Wimbledon en even nummer één van de wereld. Inmiddels heeft ook zijn eerste proftitel binnen. In zijn...
+- [Lil Kleine kondigt concert aan in Olympisch Stadion: zijn grootste show tot nu toe](https://www.ad.nl/show/lil-kleine-kondigt-concert-aan-in-olympisch-stadion-zijn-grootste-show-tot-nu-toe~a5146cdc/)
+  > Na zijn succesvolle comeback met het album F*ck Kleine kondigt Jorik Scholten (31), artiestennaam Lil Kleine, woensdag een concert aan in het...
+- [Dit beestje eet door verpakkingen heen en is dol op meel en noten: nieuwe insectenplaag in aantocht](https://www.ad.nl/binnenland/dit-beestje-eet-door-verpakkingen-heen-en-is-dol-op-meel-en-noten-nieuwe-insectenplaag-in-aantocht~a69a42a5/)
+  > Aan de reeks insecten die de afgelopen jaren een opmars in Nederland heeft gemaakt, kan mogelijk een nieuwe worden toegevoegd: de zogeheten...
+- [Quiz: test je kennis over Oranje en de Noren die in Nederland speelden](https://www.ad.nl/voetbal/quiz-test-je-kennis-over-oranje-en-de-noren-die-in-nederland-speelden~a93da3d1/)
+  > Het Nederlands elftal speelt oefenwedstrijden tegen Noorwegen en Ecuador. Ben jij een echte Oranje-kenner? En weet jij ook welke Noorse voetballers...
+- [Fien Vermeulen stopt na ruim tien jaar als nieuwslezeres bij Qmusic](https://www.ad.nl/show/fien-vermeulen-stopt-na-ruim-tien-jaar-als-nieuwslezeres-bij-qmusic~a5444b85/)
+  > Na ruim tien jaar neemt Fien Vermeulen (34) afscheid van Qmusic. De nieuwslezeres gaat iets anders doen, maar wil nog niet zeggen wat. ‘Het grootste...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Gasvoorraden op zeer laag niveau, Nederland haalt vuldoelen EU niet meer](https://fd.nl/economie/1590683/gasvoorraden-op-zeer-laag-niveau-nederland-haalt-vuldoelen-eu-niet-meer)
-  > Nederland heeft op Duitsland en Italië na de grootste gasbergingen van Europa. Maar de vullingsgraad heeft met 5,8% het laagste punt in jaren bereikt.
-- [Run op warmtepompen, zonnepanelen en thuisbatterijen](https://fd.nl/bedrijfsleven/1590531/run-op-warmtepompen-zonnepanelen-en-thuisbatterijen)
-  > Door de Iran-oorlog kunnen de prijzen van gas, diesel en benzine nog lang hoog blijven. Particulieren zoeken naar goedkopere alternatieven, merken...
-- [Vuurwapenbedrijf Colt ziet omzet stijgen, minder verkopen VS](https://fd.nl/bedrijfsleven/1590804/vuurwapenbedrijf-colt-ziet-omzet-stijgen-minder-verkopen-vs)
-  > De cijfers komen in aanloop naar een eventuele beursgang aan het Damrak.
-- [Vertrekkend CNV-voorzitter Piet Fortuin: ‘Het is net een slechte western: wie knippert het eerst?’](https://fd.nl/samenleving/1589926/vertrekkend-cnv-voorzitter-piet-fortuin-het-is-net-een-slechte-western-wie-knippert-het-eerst)
-  > Hij was altijd de man van vele kopjes koffie drinken om tot een vergelijk te komen. Maar in zijn laatste dagen als CNV-voorzitter loopt Piet Fortuin...
-- [Verwacht het onverwachte](https://fd.nl/financiele-markten/1590802/verwacht-het-onverwachte)
-  > Wellicht is de grootste impact van AI niet dat banen verdwijnen, maar de herverdeling van winstgevendheid, zegt FD-columnist Valentijn van...
+- [Bouwers vrezen naheffing en beperken inhuur zzp’ers drastisch](https://fd.nl/bedrijfsleven/1590685/bouwers-vrezen-naheffing-en-beperken-inhuur-zzpers-drastisch)
+  > Vooral kleinere bedrijven geven aan dat zij het risico van hoge naheffingen van loonbelasting niet kunnen dragen.
+- [Oorlog in Golfregio raakt brede waaier van mkb-bedrijven](https://fd.nl/economie/1590392/oorlog-in-golfregio-raakt-brede-waaier-van-mkb-bedrijven)
+  > Ook voor Nederlandse mkb’ers levert de afsluiting van de Straat van Hormuz problemen op. Van een opdrogende stroom aan specerijen tot luxe meubels...
+- [Geruisloze dwang](https://fd.nl/opinie/1590382/geruisloze-dwang)
+  > Als klant van bigtechbedrijven wordt iedereen voortdurend op een geruisloze manier onderworpen aan nieuwe regels. Zonder vooraankondiging, zonder dat...
+- [Meta moet van Amerikaanse jury $375 mln schadevergoeding betalen](https://fd.nl/tech-en-innovatie/1590898/meta-moet-van-amerikaanse-jury-375-mln-schadevergoeding-betalen)
+  > Een jury in de Amerikaanse staat New Mexico concludeerde dat het bedrijf het consumentenrecht van de staat heeft geschonden.
+- [Filipijnen roepen noodtoestand uit vanwege energietekort](https://fd.nl/samenleving/1590896/filipijnen-roepen-noodtoestand-uit-vanwege-energietekort)
+  > De president stelde dinsdagavond dat er ‘dringende maatregelen’ nodig zijn om de stabiliteit van de energievoorziening, de economische continuïteit...
 
 ### Meest gelezen
 
