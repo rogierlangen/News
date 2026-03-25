@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-03-2026 om 08:58*
+*Laatst bijgewerkt: 25-03-2026 om 10:02*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Binnenstadmanager Enschede ziet rust terugkeren na ingestelde fatbikeverbod](https://nos.nl/l/2607753)
+  > Na een waarschuwingsperiode van twee weken, kunnen gemeentelijke buitengewoon opsporingsambtenaren (boa's) in Enschede vanaf vandaag het...
+- [Verdachten aangehouden voor brandaanslag ambulances Joodse organisatie Londen](https://nos.nl/l/2607750)
+  > De Britse politie heeft twee mannen aangehouden die worden verdacht van betrokkenheid bij het in brand steken van vier ambulances, afgelopen maandag...
 - [Europees Parlement achter verbod op uitkleed-apps, gaat voor de zomer in](https://nos.nl/l/2607749)
   > Online tools waarin met AI-software nepnaaktbeelden kunnen worden gemaakt, gaan overal in Europa in de ban. Het Europees Parlement zal morgen...
 - [Japanse militair dringt Chinese ambassade in Tokio binnen](https://nos.nl/l/2607740)
   > Een Japanse militair is gisteren de Chinese ambassade in Tokio binnengedrongen. Hij klom over de muur en wilde de ambassadeur spreken om te zeggen...
 - [Maatregelen 'flessenhals' station Meppel bekend, extra perron en fietstunnel](https://nos.nl/l/2607738)
   > De maatregelen voor de aanpak van de cruciale treinverbinding van en naar Noord-Nederland zijn definitief rond. Bij station Meppel komt onder andere...
-- [Meer gemeenten delen boetes uit aan COA, maar helpen die ook echt?](https://nos.nl/l/2607736)
-  > Meer gemeenten gebruiken dwangsommen om het Centraal Orgaan opvang asielzoekers (COA) aan te zetten tot actie. Vanaf vandaag moet het COA dagelijks...
-- [Trein en auto botsen bij Meerssen](https://nos.nl/l/2607734)
-  > Bij het Limburgse Meerssen is vanochtend een aanrijding geweest tussen een trein en een auto, meldt de politie. De bestuurder van de auto is gewond...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Airbag redt leven van 19-jarige Nederlander die door lawine honderden meters wordt meegesleurd](https://www.ad.nl/buitenland/airbag-redt-leven-van-19-jarige-nederlander-die-door-lawine-honderden-meters-wordt-meegesleurd~a57862a9/)
-  > Een geactiveerde lawine-airbag heeft het leven gered van een 19-jarige Nederlandse wintersporter. De man werd tijdens het off­pis­te skiën verrast...
-- [AEX-index begint met winst door hoop op einde oorlog, olieprijs daalt](https://www.ad.nl/economie/aex-index-begint-met-winst-door-hoop-op-einde-oorlog-olieprijs-daalt~a30e1e51/)
-  > De AEX-index op het Damrak ging woensdag verder omhoog. De stemming werd gesteund door hernieuwde hoop op vredesonderhandelingen tussen de Verenigde...
-- [Aantal asielzoekers in Ter Apel gestegen naar hoogste aantal sinds oktober 2024](https://www.ad.nl/binnenland/aantal-asielzoekers-in-ter-apel-gestegen-naar-hoogste-aantal-sinds-oktober-2024~af7cbe7e/)
-  > In de nacht van dinsdag op woensdag zaten 2170 asielzoekers in het aanmeldcentrum in Ter Apel. Dat is het hoogste aantal sinds 23 oktober 2024,...
-- [Vicepresident JD Vance duikt weg nu de oorlog met Iran escaleert: ‘Hij is hier helemáál niet blij mee’](https://www.ad.nl/buitenland/vicepresident-jd-vance-duikt-weg-nu-de-oorlog-met-iran-escaleert-hij-is-hier-helemaal-niet-blij-mee~a4fe18a4/)
-  > Waar is JD Vance? De vicepresident van Amerika én mogelijke opvolger van Trump houdt zich sinds het uitbreken van de oorlog in het Midden-Oosten...
-- [Van spannende achtervolging tot zoenscène aan de gracht: ook deze Hollywoodfilms gebruikten Amsterdam als decor](https://www.ad.nl/show/van-spannende-achtervolging-tot-zoenscene-aan-de-gracht-ook-deze-hollywoodfilms-gebruikten-amsterdam-als-decor~ad0e12bb/)
-  > Fans van Brad Pitt opgelet: de Amerikaanse superster is de hele week in Amsterdam voor opnames van zijn nieuwe film The Riders. Het is niet de eerste...
+- [Staatsloterij Show begin mei na twintig jaar terug op de buis](https://www.ad.nl/show/staatsloterij-show-begin-mei-na-twintig-jaar-terug-op-de-buis~a49c50d1/)
+  > De Staatsloterij Show keert begin mei na twintig jaar terug op televisie. De eerste uitzending is op 9 mei te zien, heeft Talpa woensdag...
+- [TikTok-crosser tart politie met levensgevaarlijke ritten: ‘Het is een grof schandaal hoe hij rijdt’](https://www.ad.nl/binnenland/tiktok-crosser-tart-politie-met-levensgevaarlijke-ritten-het-is-een-grof-schandaal-hoe-hij-rijdt~aea8c426/)
+  > De politie opwachten en kansloos achterlaten, racen tegen luxe auto’s en onbezonnen crossen. Het zijn daden die te zien zijn op een TikTokaccount. In...
+- [In nieuwe serie Privilèges moet je overleven in meest luxe hotel van Parijs: ‘De klant is heer en meester’](https://www.ad.nl/show/in-nieuwe-serie-privileges-moet-je-overleven-in-meest-luxe-hotel-van-parijs-de-klant-is-heer-en-meester~a63f1c00/)
+  > Wordt de Franse hotelreeks Privilèges de opvolger van de hitserie The White Lotus die ook op de streamingzender HBO Max is te zien?  „Wij laten...
+- [Waarom de asielopvang wéér dichtslibt en er zelfs dwangsommen dreigen](https://www.ad.nl/binnenland/waarom-de-asielopvang-weer-dichtslibt-en-er-zelfs-dwangsommen-dreigen~a84791dd0/)
+  > Azc’s sluiten en er komt nauwelijks iets voor terug. Daardoor dreigt opnieuw een enorm tekort aan opvangplekken voor asielzoekers. Hoe heeft het...
+- [Barça heeft interesse in Juventus-speler, Saoedische clubs willen Salah en NAC langer door met verdediger](https://www.ad.nl/voetbal/barca-heeft-interesse-in-juventus-speler-saoedische-clubs-willen-salah-en-nac-langer-door-met-verdediger~a35ea681/)
+  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Slibverwerker in Moerdijk heeft grote bouwplannen, nu de vergunning nog](https://fd.nl/bedrijfsleven/1590393/slibverwerker-in-moerdijk-heeft-grote-bouwplannen-nu-de-vergunning-nog)
+  > SNB mikt op de bouw van een fosfaatrecyclingfabriek en een installatie om stikstof te herwinnen. Maar door het stikstofslot blijft een vergunning nog...
 - [Roots Inspire-ceo Sergio Panday: ‘Ik heb een sterke drive om te laten zien dat het kan’](https://fd.nl/samenleving/1590476/roots-inspire-ceo-sergio-panday-ik-heb-een-sterke-drive-om-te-laten-zien-dat-het-kan)
   > Wat maken professionals mee in hun loopbaan? Deze week: Sergio Panday (1981), medeoprichter en ceo van Roots Inspire.
 - [OpenAI schrapt Sora en zet streep door miljardendeal met Disney](https://fd.nl/bedrijfsleven/1590895/openai-schrapt-sora-en-zet-streep-door-miljardendeal-met-disney)
@@ -54,8 +56,6 @@
   > Toezichthouder pleit voor een strikte norm voor financiële gezondheid van zorgondernemingen, voordat die winst mogen uitbetalen aan aandeelhouders.
 - [Kerk vs. staat](https://fd.nl/samenleving/1590390/kerk-vs-staat)
   > Hoe moeten kerk, moskee of synagoge zich eigenlijk verhouden tot de staat, en vice versa? Vraagt predikant Joost Röselaers zich af.
-- [Dubbelinterview over de ‘zin’ van het lijden](https://fd.nl/samenleving/1590272/dubbelinterview-over-de-zin-van-het-lijden)
-  > Theoloog Arnold Huijgen en oud-wielrenner Maarten Ducrot filosoferen over breekpunten in het bestaan, met wielrennen als metafoor. ‘Je moet niet...
 
 ### Meest gelezen
 
