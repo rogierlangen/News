@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-03-2026 om 20:39*
+*Laatst bijgewerkt: 26-03-2026 om 21:35*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [HEMA wint voor derde jaar op rij Ster Gouden Loeki voor kerstreclame](https://nos.nl/l/2607974)
+  > De HEMA heeft voor het derde jaar op rij de Ster Gouden Loeki binnengesleept voor de beste televisiereclame. Het warenhuis krijgt de prijs voor zijn...
+- [OM moet strafzaak beginnen tegen vishandelaar die vrouw in nikab kibbeling weigerde](https://nos.nl/l/2607973)
+  > Het Openbaar Ministerie moet een strafzaak beginnen tegen een visboer die een vrouw in een nikab in zijn zaak weigerde. Dat heeft het gerechtshof in...
 - [Gorinchem doet aangifte verkiezingsfraude na ronselen stemmen](https://nos.nl/l/2607971)
   > Burgemeester Melissant van Gorinchem heeft aangifte gedaan van meerdere vormen van verkiezingsfraude. Het gaat onder meer om het ronselen van...
 - ['Instagram en YouTube zijn expres verslavend gemaakt, net als sigaretten'](https://nos.nl/l/2607970)
   > Facebook, Instagram en YouTube speelden een belangrijke schadelijke rol in het leven van een jonge vrouw die worstelt met haar geestelijke...
 - [Blindboxes rage onder jongeren, maar is het gokken?](https://nos.nl/l/2607965)
   > Wie wel eens op sociale media rondkijkt, kent ze vast: de zogenoemde unboxingvideo's van blindboxes. Iemand zit voor de camera met een mooie doos. Op...
-- [Meisjes (11) mogen na conflict over douchen niet terug naar PSV Handbal](https://nos.nl/l/2607964)
-  > Drie elfjarige meisjes die bij PSV Handbal in Eindhoven zijn geroyeerd na een conflict over gezamenlijk douchen, mogen voorlopig niet terug naar de...
-- [PFAS zijn giftig, opruimen is duur, maar verbod laat op zich wachten](https://nos.nl/l/2607963)
-  > Elke dag komen er meer giftige PFAS bij in het milieu en ondertussen geven we veel geld uit om deze stoffen weer weg te krijgen. Grond van de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Italië wil trauma overwinnen, maar Noord-Ierland houdt in eerste helft vrij eenvoudig stand](https://www.ad.nl/wk-voetbal/italie-wil-trauma-overwinnen-maar-noord-ierland-houdt-in-eerste-helft-vrij-eenvoudig-stand~a9db0a1f/)
-  > Italië speelde in 2014 voor het laatst een WK. Het topland sneuvelde voorafgaand aan de twee laatste edities in de play-offs. Komt het dit jaar wél...
-- [Journalisten Victor en Raymond volgen zaak Ali B: ‘Als toehoorder word je heen en weer geslingerd’](https://www.ad.nl/binnenland/journalisten-victor-en-raymond-volgen-zaak-ali-b-als-toehoorder-word-je-heen-en-weer-geslingerd~aa4a883f/)
-  > Verslaggevers Raymond Boere en Victor Schildkamp volgen de zedenzaak tegen Ali B op de voet. Hoe blikken zij terug op de tweede dag in het...
-- [Van Gerwen profiteert van missers Rock en bereikt finale van Premier League in Berlijn](https://www.ad.nl/darts/van-gerwen-profiteert-van-missers-rock-en-bereikt-finale-van-premier-league-in-berlijn~a6ff1b02/)
+- [Tsjechië maakt gelijk tegen Ierland, Polen draait het om dankzij goals Lewandowski en Zielinski](https://www.ad.nl/wk-voetbal/tsjechie-maakt-gelijk-tegen-ierland-polen-draait-het-om-dankzij-goals-lewandowski-en-zielinski~a89ca5e1/)
+  > Zestien Europese landen strijden om de laatste vier tickets voor het WK. Vanavond zijn de halve finales van de play-offs. Volg alle hoogtepunten hier...
+- [Van Gerwen begonnen aan finale: kan hij Littler van de zege afhouden?](https://www.ad.nl/darts/van-gerwen-begonnen-aan-finale-kan-hij-littler-van-de-zege-afhouden~a6ff1b02/)
   > De kwartfinales van de achtste speelavond van de Premier League darts hebben wisselende resultaten opgeleverd voor de Nederlanders. Van Gerwen...
-- [EU pakt Temu en Shein aan met 'historisch' akkoord: elk pakketje van buiten Europa krijgt heffing](https://www.ad.nl/economie/eu-pakt-temu-en-shein-aan-met-historisch-akkoord-elk-pakketje-van-buiten-europa-krijgt-heffing~a35d6729/)
-  > Binnen Europa is een akkoord bereikt over een rigoureuze hervorming van de douane. Die moet ertoe leiden dat pakketjes uit vooral China niet langer...
-- [Door onze Amerika-obsessie missen we ander belangrijk nieuws](https://www.ad.nl/binnenland/door-onze-amerika-obsessie-missen-we-ander-belangrijk-nieuws~a14d6aed/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Suriname in halve finale tegen Bolivia, opstelling van bondscoach Henk ten Cate is bekend](https://www.ad.nl/wk-voetbal/suriname-in-halve-finale-tegen-bolivia-opstelling-van-bondscoach-henk-ten-cate-is-bekend~a0b2918e/)
+  > Suriname strijdt via de play-offs om een ticket voor het WK van komende zomer. Eerst moet vanavond Bolivia worden verslagen, om de finale tegen Irak...
+- [Moise Kean lijkt duel met Noord-Ierland te beslissen: Italië op weg naar finale van play-offs om WK-ticket](https://www.ad.nl/wk-voetbal/moise-kean-lijkt-duel-met-noord-ierland-te-beslissen-italie-op-weg-naar-finale-van-play-offs-om-wk-ticket~a9db0a1f/)
+  > Italië speelde in 2014 voor het laatst een WK. Het topland sneuvelde voorafgaand aan de twee laatste edities in de play-offs. Komt het dit jaar wél...
+- [Moeder Bridget Maasland ondergaat eerste chemokuur en Emma Kok geniet van ijsbad](https://www.ad.nl/show/moeder-bridget-maasland-ondergaat-eerste-chemokuur-en-emma-kok-geniet-van-ijsbad~a0eeb3b5/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
 
 ### Meest gelezen
 
