@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-03-2026 om 07:16*
+*Laatst bijgewerkt: 26-03-2026 om 09:02*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Topman Air Canada onder vuur na faux pas in condoleancebericht](https://nos.nl/l/2607862)
-  > Topman Michael Rousseau van Air Canada ligt onder vuur vanwege een condoleancebericht na de crash in New York deze week. In de boodschap van vier...
-- [Scholen zijn dure wegwerpboeken zat en kiezen massaal voor nieuwe uitgever](https://nos.nl/l/2607856)
-  > Scholen sluiten zich massaal aan bij de nieuwe coöperatieve schoolboekenuitgever Neon. Ze willen zo meer grip krijgen op de prijs, kwaliteit en...
-- [Wekdienst 26/3: OM komt met strafeis tegen Ali B • Nieuwe naam en logo voor GL-PvdA](https://nos.nl/l/2607855)
-  > Goedemorgen! Ali B krijgt de strafeis van het Openbaar Ministerie te horen in zijn hoger beroep. In Gorinchem komt de gemeenteraad bijeen om de...
-- [Zeker 24 doden nadat bus zinkt in rivier in Bangladesh](https://nos.nl/l/2607850)
-  > Bij een ongeluk met een bus in Centraal-Bangladesh zijn zeker 24 mensen om het leven gekomen. Het ging mis toen de bus een veerboot op probeerde te...
-- [Levende bruinvis aangespoeld op Ameland](https://nos.nl/l/2607849)
-  > Op het strand van Ameland is gisteravond een levende bruinvis aangespoeld. Dat meldt Omrop Fryslân.
-        De bruinvis heeft een verwonding onder...
+- [Schatgraven in ongeopende dozen bij de provincie: penisbeeld, aardewerk en kledingspeld](https://nos.nl/l/2607872)
+  > Een 'penisbeeld' uit bot, bijzonder aardewerk en een kledingspeld: de provincie Gelderland heeft de eerste van de 16.000 dozen met archeologische...
+- [Excuses FA voor decennialang voetbalverbod voor Britse vrouwen](https://nos.nl/l/2607871)
+  > De Britse voetbalbond FA biedt excuses aan voor een jarenlang Engels verbod op vrouwenvoetbal. 50 jaar lang werden clubs uitgesloten van wedstrijden...
+- [Action wil binnen twee jaar eerste vestiging in VS openen](https://nos.nl/l/2607870)
+  > Na de uitbreiding in Europa, heeft Action zijn oog laten vallen op de Verenigde Staten. De koopjesketen wil eind volgend jaar de deuren van een...
+- [Veel kinderen maken geweld mee, vooral op school: 'Heb er nog steeds last van'](https://nos.nl/l/2607869)
+  > Veel kinderen tussen 9 en 13 jaar hebben ooit geweld meegemaakt als slachtoffer, getuige of als pleger. Driekwart van de kinderen zegt dat dit voor...
+- [Mobiele telefoon haalt de contactloze betaalpas in aan de kassa](https://nos.nl/l/2607867)
+  > Betalen met de mobiele telefoon aan de kassa heeft het contactloos betalen met de traditionele betaalpas ingehaald. Vorig jaar werden in de winkel...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Na twee trauma’s leeft grootmacht Italië opnieuw tussen hoop en vrees: ‘Ik voel de druk van het hele land op mijn schouders’](https://www.ad.nl/wk-voetbal/na-twee-traumas-leeft-grootmacht-italie-opnieuw-tussen-hoop-en-vrees-ik-voel-de-druk-van-het-hele-land-op-mijn-schouders~afb1875b/)
-  > Eén van de grootste en meest succesvolle landen in de voetbalhistorie gaat opnieuw een week vol bibbers tegemoet. Rekent Italië af met de trauma’s...
-- [Help Koeman | Wie zou jij opstellen in pittige oefenwedstrijd tegen Noorwegen?](https://www.ad.nl/voetbal/help-koeman-wie-zou-jij-opstellen-in-pittige-oefenwedstrijd-tegen-noorwegen~a7ecb062/)
-  > Het Nederlands elftal begint deze week aan de voorbereiding op het WK voetbal met twee oefenduels. Vrijdag is eerst Noorwegen de tegenstander,...
-- [Ali B hoort vandaag strafeis in hoger beroep zedenzaak](https://www.ad.nl/binnenland/ali-b-hoort-vandaag-strafeis-in-hoger-beroep-zedenzaak~a254a9d2/)
-  > Rapper Ali B hoort vandaag welke straf het Openbaar Ministerie voor hem in gedachte heeft voor het seksueel misbruiken van drie vrouwen. Bij de...
-- [Max Verstappen stuurt verbouwereerde journalist weg in Japan: ‘Ik praat niet voordat hij weggaat’](https://www.ad.nl/formule-1/max-verstappen-stuurt-verbouwereerde-journalist-weg-in-japan-ik-praat-niet-voordat-hij-weggaat~ada2bde1/)
-  > Max Verstappen verscheen - na zijn uitstapje van afgelopen weekend op de Nürburgring - goed gehumeurd bij zijn perspraatje op het circuit van Suzuka....
-- [Waarom dieren nu massaal worden doodgereden: ‘Trap niet direct op de rem’](https://www.ad.nl/auto/waarom-dieren-nu-massaal-worden-doodgereden-trap-niet-direct-op-de-rem~a79f0727/)
-  > Het is weer de tijd van het jaar: bermen en vluchtstroken liggen bezaaid met aangereden fazanten, roofvogels en hazen. Vier vragen én antwoorden over...
+- [Paul de Leeuw keert voor 65ste verjaardag tóch terug naar Ahoy: ‘Dit keer met nog meer vrienden’](https://www.ad.nl/show/paul-de-leeuw-keert-voor-65ste-verjaardag-toch-terug-naar-ahoy-dit-keer-met-nog-meer-vrienden~a41bf298/)
+  > Paul de Leeuw keert tóch weer terug naar Ahoy. Op zijn 65ste verjaardag, op vrijdag 26 maart 2027, staat hij in de Rotterdamse evenementenhal met het...
+- [Nieuwe, compacte bestelauto van Ford: Transit City](https://www.ad.nl/auto/nieuwe-compacte-bestelauto-van-ford-transit-city~aa5a73a1/)
+  > Ford introduceert eind dit jaar een nieuwe, compacte bestelauto in Nederland: de Transit City. Hij is kleiner en goedkoper dan de Transit Custom, de...
+- [Stellen stappen vaker samen uit het leven](https://www.ad.nl/binnenland/stellen-stappen-vaker-samen-uit-het-leven~afe6b599f/)
+  > Steeds meer mensen kiezen voor euthanasie. Die toename wordt vooral veroorzaakt door mensen die lijden aan dementie of een hartziekte. Ook stappen...
+- [Ajax-talent Rayane Bounida voor het eerst in selectie Marokko](https://www.ad.nl/voetbal/ajax-talent-rayane-bounida-voor-het-eerst-in-selectie-marokko~a11bd35f/)
+  > Ajax-speler Rayane Bounida is voor het eerst opgeroepen voor het Marokkaanse voetbalelftal. De 20-jarige buitenspeler maakt deel uit van de selectie...
+- [Westerse landen weigeren slavenhandel te erkennen als ‘zwaarste misdaad tegen menselijkheid’](https://www.ad.nl/buitenland/westerse-landen-weigeren-slavenhandel-te-erkennen-als-zwaarste-misdaad-tegen-menselijkheid~a631cc3d/)
+  > De Algemene Vergadering van de VN heeft de Afrikaanse slavenhandel uitgeroepen tot de ‘zwaarste misdaad tegen de menselijkheid’. De resolutie, die...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Damen leverde in 2025 meer schepen en boekte hoger resultaat](https://fd.nl/bedrijfsleven/1590816/damen-leverde-in-2025-meer-schepen-en-boekte-hoger-resultaat)
+  > Rechtszaken tegen het concern hebben volgens ceo Arnout Damen een ‘grote impact’ op het bedrijf uit Gorinchem.
+- [Baggeraar Van Oord boekt winstherstel maar verwacht ‘turbulent’ 2026](https://fd.nl/bedrijfsleven/1590817/baggeraar-van-oord-boekt-winstherstel-maar-verwacht-turbulent-2026)
+  > ‘De huidige wereldwijde situatie laat zien dat 2026 mogelijk nog onzekerder wordt dan het afgelopen jaar’, stelt ceo Govert van Oord.
+- [Hella Jongerius: ‘Als vernieuwer kun je grotere stappen maken’](https://fd.nl/samenleving/1590533/hella-jongerius-als-vernieuwer-kun-je-grotere-stappen-maken)
+  > Designer Hella Jongerius wilde weer uitgedaagd worden. Haar huidige, autonome werk voorziet in die behoefte. En er is een grote...
+- [Koopjesketen Action waagt sprong naar VS en mikt op 100 winkels in 2030](https://fd.nl/bedrijfsleven/1590815/koopjesketen-action-kondigt-stap-naar-de-vs-aan)
+  > De koopjesketen maakt eind 2027 of begin 2028 de oversteek en is nu bezig met het optuigen van een lokale organisatie. De eerste winkels gaan open in...
 - [Sterke vraag en overname stuwen resultaat wapenfabrikant CSG](https://fd.nl/bedrijfsleven/1590941/sterke-vraag-en-overname-stuwen-resultaat-wapenfabrikant-csg)
   > Voor 2026 gaat het Tsjechische concern uit van een aanhoudende groei doordat landen hun defensiebudgetten verhogen.
-- [Inkomen van huishoudens steeg in 2025 met 2,7%](https://fd.nl/economie/1590725/nederlandse-inkomens-stegen-in-2025-met-2-7)
-  > De stijging van de Nederlandse inkomens kwam vooral door hogere lonen, zo meldt het Centraal Bureau voor de Statistiek.
-- [Live: Beleggers in het Verre Oosten kijken vooral weer omlaag](https://fd.nl/financiele-markten/1590811/live-beleggers-in-het-verre-oosten-kijken-vooral-weer-omlaag)
-  > Gisteren was een recuperatiedag, maar vandaag slaat de twijfel toch weer toe. Is het einde van de oorlog echt in zicht? De futures op de...
-- [Wall Street-veteraan Cathie Wood weegt elk woord van Elon Musk](https://fd.nl/financiele-markten/1590439/wall-street-veteraan-cathie-wood-weegt-elk-woord-van-elon-musk)
-  > De meeste beleggers denken bij de oorlog in Iran niet direct aan wat die zal gaan betekenen voor het bezorgen van pakketjes. Maar Cathie Wood ís niet...
-- [Aan tafel in het museum: van bijzaak tot miljoenentak](https://fd.nl/samenleving/1590532/aan-tafel-in-het-museum-van-bijzaak-tot-miljoenentak)
-  > De horeca in musea werd lang gekenmerkt door de buffetstijl, maar nu proberen veel musea met betere kwaliteit een nieuwe doelgroep aan te spreken.
 
 ### Meest gelezen
 
