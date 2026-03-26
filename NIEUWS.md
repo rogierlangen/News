@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-03-2026 om 22:35*
+*Laatst bijgewerkt: 26-03-2026 om 23:37*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Suriname geeft voorsprong uit handen tegen Bolivia, wat kan Henk ten Cate bedenken?](https://www.ad.nl/wk-voetbal/suriname-geeft-voorsprong-uit-handen-tegen-bolivia-wat-kan-henk-ten-cate-bedenken~a0b2918e/)
+  > Suriname strijdt via de play-offs om een ticket voor het WK 2026. Eerst moet vanavond Bolivia worden verslagen, om de finale tegen Irak te bereiken....
+- [Voetbalpodcast | ‘Koeman gaf een serieuze en duidelijke boodschap aan Depay’](https://www.ad.nl/voetbal/voetbalpodcast-koeman-gaf-een-serieuze-en-duidelijke-boodschap-aan-depay~ac8603a9/)
+  > Het Nederlands elftal oefent vanavond, op weg naar het WK van komende zomer, tegen Noorwegen. Bondscoach Ronald Koeman mist een groot gedeelte van...
+- [Rode kaart deert Frankrijk niet: tiental te sterk voor Brazilië in oefenduel](https://www.ad.nl/wk-voetbal/rode-kaart-deert-frankrijk-niet-tiental-te-sterk-voor-brazilie-in-oefenduel~a621ee56/)
+  > Frankrijk heeft een oefeninterland in het Amerikaanse Foxborough tegen Brazilië gewonnen. Les Bleus speelden lange tijd met tien man, maar waren toch...
 - [Meer duidelijkheid voor Oranje: Polen óf Zweden wordt tegenstander op WK](https://www.ad.nl/wk-voetbal/meer-duidelijkheid-voor-oranje-polen-of-zweden-wordt-tegenstander-op-wk~a8e37e48/)
   > Het Nederlands elftal krijgt steeds meer duidelijkheid over de laatste tegenstander in de poulefase op het WK. Polen en Zweden plaatsten zich...
-- [Piroe mist grote kans namens Suriname tegen Bolivia in heet Monterrey](https://www.ad.nl/wk-voetbal/piroe-mist-grote-kans-namens-suriname-tegen-bolivia-in-heet-monterrey~a0b2918e/)
-  > Suriname strijdt via de play-offs om een ticket voor het WK 2026. Eerst moet vanavond Bolivia worden verslagen, om de finale tegen Irak te bereiken....
 - [Stand Premier League | Van Gerwen terug in top 4 na finaleplaats, Van Veen dreigt aansluiting te verliezen](https://www.ad.nl/darts/premier-league-speelschema-programma-uitslagen-stand~a9ae7647/)
   > De Premier League Darts is volop onderweg mét Michael van Gerwen en Gian van Veen. Bekijk hieronder de stand, alle uitslagen, het complete programma...
-- [Penaltyseries in Praag en Cardiff, gaat Troy Parrott door naar voor volgende ronde?](https://www.ad.nl/wk-voetbal/penaltyseries-in-praag-en-cardiff-gaat-troy-parrott-door-naar-voor-volgende-ronde~a89ca5e1/)
-  > De play-offs om WK-tickets leverden vanavond flink wat spektakel op. Bij Wales tegen Bosnië en Herzegovina (1-1) in Cardiff en Tsjechië - Ierland...
-- [Italië maakt na rust het verschil tegen Noord-Ierland en kan dinsdag eindelijk weer WK-ticket bemachtigen](https://www.ad.nl/wk-voetbal/italie-maakt-na-rust-het-verschil-tegen-noord-ierland-en-kan-dinsdag-eindelijk-weer-wk-ticket-bemachtigen~a9db0a1f/)
-  > Italië kan zich dinsdag voor het eerst sinds 2014 plaatsen voor het WK voetbal. De viervoudig wereldkampioen rekende in de halve finale van de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Wall Street in de mineur nu einde aan Iran-oorlog nog niet in zicht lijkt](https://fd.nl/financiele-markten/1590835/wall-street-in-de-mineur-nu-einde-aan-iran-oorlog-nog-niet-in-zicht-lijkt)
-  > Nieuwe verbale escalatie tussen de VS en Iran leidde donderdag onder beleggers tot onzekerheid over de kans op diplomatiek succes. De drie...
-- [EU komt met nieuwe maatregelen om grip te krijgen op Chinese pakketjes](https://fd.nl/politiek/1590739/eu-komt-met-nieuwe-maatregelen-om-grip-te-krijgen-op-chinese-pakketjes)
-  > De pakketjes komen veelal ongecontroleerd de Europese markt binnen en voldoen vaak niet aan Europese veiligheidseisen.
-- [Europa bewijst dienstenmarkt vooral lippendienst](https://fd.nl/opinie/1590729/europa-bewijst-dienstenmarkt-vooral-lippendienst)
-  > De Europese Commissie en lidstaten pleiten wel voor een open dienstenmarkt, maar zijn in de praktijk niet ambitieus genoeg.
-- [Jonge bankiers UBS in VS weer vijf dagen naar kantoor](https://fd.nl/financiele-markten/1590834/jonge-bankiers-ubs-in-vs-weer-vijf-dagen-naar-kantoor)
-  > Met de aanscherping van de kantoorplicht brengt het Zwitserse UBS zijn personeelsbeleid op dit vlak meer in lijn met concurrerende Amerikaanse banken.
-- [Meloni haalt bezem door regering na nederlaag in referendum](https://fd.nl/politiek/1590953/meloni-haalt-bezem-door-regering-na-nederlaag-in-referendum)
-  > In Italië stapten twee bewindslieden, een kabinetschef en een fractievoorzitter in korte tijd op. Volgens analisten onder druk van premier Giorgia...
+- [Oorlog en plastic](https://fd.nl/opinie/1590833/oorlog-en-plastic)
+  > Helaas heeft het kabinet-Schoof veel van de Nederlandse plasticrecyclers harteloos failliet laten gaan.
+- [Personalia vrijdag 27 maart](https://fd.nl/bedrijfsleven/1590823/personalia-vrijdag-27-maart)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Ach gut, links heeft een nieuw logo](https://fd.nl/opinie/1590703/ach-gut-links-heeft-een-nieuw-logo)
+  > Ben ik een electorale prooi voor fusiepartij ‘Pro’? Wellicht, als progressief staat voor vooruitstrevend. Maar kijk goed naar het stemgedrag: ze...
+- [Aanhoudende uitstroom zadelt private credit op met liquiditeitszorgen](https://fd.nl/financiele-markten/1590693/aanhoudende-uitstroom-zadelt-private-credit-op-met-liquiditeitszorgen)
+  > Steeds meer particuliere beleggers botsen op opnamelimieten bij privatecreditfondsen. Die limieten zijn er om de fondsen en beleggers te beschermen,...
+- [Loonkostensubsidie levert in meeste gevallen voldoende inkomen op](https://fd.nl/samenleving/1590825/loonkostensubsidie-levert-in-meeste-gevallen-voldoende-inkomen-op)
+  > Loonkostensubsidie is in veel gevallen voldoende om arbeidsbeperkten uit de bijstand te houden
 
 ### Meest gelezen
 
