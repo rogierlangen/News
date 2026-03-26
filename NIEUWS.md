@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-03-2026 om 15:09*
+*Laatst bijgewerkt: 26-03-2026 om 17:08*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Met transgenderwet op de helling voelt Indiase lhbti-gemeenschap zich uitgewist](https://nos.nl/l/2607929)
-  > In India is een wetswijziging aangenomen die het moeilijker maakt voor transgender en non-binaire personen om officieel erkend te worden door de...
-- [Drukte bij SOS Dolfijn: vijf bruinvissen in drie weken opgevangen, één dood](https://nos.nl/l/2607926)
-  > Het is druk bij SOS Dolfijn in Anna Paulowna, nu er in drie weken tijd vijf bruinvissen zijn aangespoeld en worden verzorgd in het opvangcentrum. SOS...
-- [Twee aanhoudingen om vuurwerkincident bij Ajax tegen Groningen](https://nos.nl/l/2607924)
-  > De politie heeft twee personen aangehouden op verdenking van betrokkenheid bij het vuurwerkincident tijdens de wedstrijd van Ajax tegen FC Groningen...
-- [Maduro voor de rechter in New York, Venezuela blijft in onzekerheid verkeren](https://nos.nl/l/2607920)
-  > Vraag een Venezolaan naar hoe het jaar tot nu toe is verlopen en er wordt een achtbaan van emoties benoemd. Begin dit jaar vielen de Verenigde Staten...
-- [Gepiep op Schiphol: 261 gesmokkelde papegaaieieren gevonden in handbagage](https://nos.nl/l/2607915)
-  > De Nederlandse Voedsel- en Warenautoriteit (NVWA) heeft 261 papegaai-eieren in beslag genomen op Schiphol. De douane vond de eieren in de handbagage...
+- [Slavenhandel ernstigste misdaad: 'Ongelijkheid, uitbuiting nog steeds verankerd'](https://nos.nl/l/2607949)
+  > De trans-Atlantische slavenhandel is "de ernstigste misdaad tegen de menselijkheid" uit de geschiedenis, heeft de Algemene Vergadering van de...
+- [Nieuwe naam GroenLinks-PvdA bekend: Progressief Nederland, kortweg Pro](https://nos.nl/l/2607948)
+  > Oppositiepartij GroenLinks-PvdA krijgt een nieuwe naam, Progressief Nederland. In het dagelijks taalgebruik wil de partij dat afkorten tot Pro. Dat...
+- [Exporteurs bezorgd door geopolitieke onrust: ‘Weinig optimisme over’](https://nos.nl/l/2607946)
+  > Hoge importheffingen, handelsbeperkingen en sinds vorige maand de blokkade van de Straat van Hormuz: het zijn uitdagende tijden voor ondernemers. Al...
+- [Minister doet klemmend beroep op gemeenten voor noodopvang asielzoekers](https://nos.nl/l/2607944)
+  > Minister Van den Brink van Asiel en Migratie heeft een brandbrief gestuurd naar alle burgemeesters van Nederland. Hij doet daarin "een klemmend...
+- [Klimaatraad: niet alleen recyclen, maar vooral anders consumeren](https://nos.nl/l/2607943)
+  > Een belasting op fast fashion, meer producten zonder verpakking in de supermarkt en een hogere aankoopheffing voor zwaardere auto's. Dit soort...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Jeugdzorgjongeren voor gigantische bedragen in vakantiehuisjes: hoe kon het zover komen?](https://www.ad.nl/binnenland/jeugdzorgjongeren-voor-gigantische-bedragen-in-vakantiehuisjes-hoe-kon-het-zover-komen~a2b1838a/)
-  > Honderden ‘onhandelbare’ jongeren belanden uit pure nood in vakantiehuisjes en op campings, dag en nacht bewaakt door particuliere begeleiders....
-- [Iran reageert op 15-puntenplan van de VS: land eist herstelbetalingen en noemt plan ‘eenzijdig en oneerlijk’](https://www.ad.nl/buitenland/iran-reageert-op-15-puntenplan-van-de-vs-land-eist-herstelbetalingen-en-noemt-plan-eenzijdig-en-oneerlijk~ac528ac3/)
-  > Iran heeft officieel gereageerd op het 15-puntenplan dat de VS via bemiddelaars naar Teheran hebben gestuurd, schrijft het Iraanse staatspersbureau...
-- [Ruim 250 papegaaibroedeieren aangetroffen op Schiphol dankzij gepiep van kuiken dat uit ei kroop](https://www.ad.nl/binnenland/ruim-250-papegaaibroedeieren-aangetroffen-op-schiphol-dankzij-gepiep-van-kuiken-dat-uit-ei-kroop~aef79f52/)
-  > De Nederlandse Voedsel- en Warenautoriteit (NVWA) heeft op Schiphol 261 broedeieren in beslag genomen. Het gaat vermoedelijk om eieren die zijn...
-- [Topdrukte bij SOS Dolfijn: vier bruinvissen tegelijk opgevangen](https://www.ad.nl/binnenland/topdrukte-bij-sos-dolfijn-vier-bruinvissen-tegelijk-opgevangen~ab2425ee/)
-  > Het is alle hens aan dek bij het opvangcentrum van SOS Dolfijn. In het Noord-Hollandse Anna Paulowna verbleven al twee bruinvismannetjes, daar kwamen...
-- [Phil Foden verrast Luke Littler met darttalent: ‘Staat dit op camera?’](https://www.ad.nl/darts/phil-foden-verrast-luke-littler-met-darttalent-staat-dit-op-camera~a2f0ffea/)
-  > Phil Foden staat vooral bekend als voetballer, maar de buitenspeler van Manchester City lijkt over nog een talent te beschikken: darten. De Engelsman...
+- [GroenLinks-PvdA heet nu PRO(gressief Nederland), rode roos is ingeruild voor groene](https://www.ad.nl/politiek/groenlinks-pvda-heet-nu-pro-gressief-nederland-rode-roos-is-ingeruild-voor-groene~af1bdba2/)
+  > Met een nieuwe naam en een nieuw logo gaan GroenLinks en PvdA samen verder. Onder de vlag van Progressief Nederland – kortweg PRO – presenteren ze...
+- [Trump twijfelt over deal met Iran, dat volgens hem ‘Midden-Oosten wilde overnemen’](https://www.ad.nl/buitenland/trump-twijfelt-over-deal-met-iran-dat-volgens-hem-midden-oosten-wilde-overnemen~ac528ac3/)
+  > Iran was van plan om het Midden-Oosten over te nemen. Dat stelt althans de Amerikaanse president Donald Trump. „Maar wij kwamen toevallig langs, dus...
+- [Lando Norris heeft vol vertrouwen in ommekeer met McLaren en refereert aan 2024](https://www.ad.nl/formule-1/lando-norris-heeft-vol-vertrouwen-in-ommekeer-met-mclaren-en-refereert-aan-2024~a32ae013/)
+  > Na een uitstapje op de Nürburgring is het voor Max Verstappen tijd voor het derde raceweekend in de Formule 1. Het circus is aangekomen in Suzuka...
+- [Vrouw met niqab wil kibbeling, maar moet zonder vis de visboer verlaten: ‘Ik bepaal aan wie ik verkoop’](https://www.ad.nl/binnenland/vrouw-met-niqab-wil-kibbeling-maar-moet-zonder-vis-de-visboer-verlaten-ik-bepaal-aan-wie-ik-verkoop~a46ae00e/)
+  > Ze had trek in kibbeling en dacht die te gaan kopen bij een visboer aan het strand. Maar ze werd de zaak uit gezet. Puur omdat ze een niqab droeg,...
+- [Grok mag mensen online niet uitkleden met AI-software, oordeelt rechter](https://www.ad.nl/tech/grok-mag-mensen-online-niet-uitkleden-met-ai-software-oordeelt-rechter~ac6ef928/)
+  > AI-chatbot Grok mag in Nederland niet langer uitkleedbeelden genereren en verspreiden. Datzelfde geldt voor kinderpornografisch materiaal, bepaalde...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Brakelse recycler groeit snel in Europa met terugwinning van metaal uit afval](https://fd.nl/bedrijfsleven/1590517/brakelse-recycler-groeit-snel-in-europa-met-terugwinning-van-metaal-uit-afval)
-  > Met zelfontwikkelde installaties haalt VHB Groep koper, messing, aluminium en zelfs gouddeeltjes terug uit afvalresten. Voor zijn snelle buitenlandse...
-- [AI vraagt tenminste niet om een bonus](https://fd.nl/financiele-markten/1590819/ai-vraagt-tenminste-niet-om-een-bonus)
-  > Techbedrijven in Silicon Valley moeten steeds meer eigen aandelen inkopen om de bonusaandelen voor hun medewerkers te compenseren. Dat doet pijn in...
-- [Damrak schudt handelsoorlog af: meer omzet en nettowinst voor beursfondsen](https://fd.nl/financiele-markten/1590733/damrak-schudt-handelsoorlog-af-meer-omzet-en-nettowinst-voor-beursfondsen)
-  > Een nieuwe president in het Witte Huis, handelsspanningen. Voor veel grootbedrijven stond 2025 in het teken van onzekerheden. Toch boekte het gros...
-- [Dit zijn de grensverleggers van 2026](https://fd.nl/bedrijfsleven/1588639/dit-zijn-de-grensverleggers-van-2026)
-  > In Amsterdam zijn 71 FD Gazellen Internationaal van 2026 bekroond voor succesvol zakendoen over de grens.
-- [Iran-oorlog legt tekortkomingen Britse strijdkrachten bloot: ‘Het is vernederend’](https://fd.nl/politiek/1590523/iran-oorlog-legt-tekortkomingen-britse-strijdkrachten-bloot-het-is-shit)
-  > Het schrikbeeld van de Brit: het eerste oorlogsschip dat arriveerde om de Britse basis op Cyprus te beschermen, was Frans. ‘Onze strijdkrachten zijn...
+- [PvdA en GroenLinks gaan samen verder als Progressief Nederland](https://fd.nl/politiek/1590828/pvda-en-groenlinks-gaan-samen-verder-als-progressief-nederland)
+  > De roepnaam van de partij wordt PRO. ‘Omdat we niet tegen zijn, maar met hoop en optimisme strijden vóór een eerlijk Nederland.’
+- [Endemol-moeder Banijay heeft grote plannen, maar vindt weinig weerklank op de beurs](https://fd.nl/financiele-markten/1590831/endemol-moeder-banijay-heeft-grote-plannen-maar-vindt-weinig-weerklank-op-de-beurs)
+  > Banijay presenteerde donderdag een langjarige strategie met grote ambities. Eén element bleef onbenoemd: de geringe liquiditeit van het aandeel.
+- [Google vervroegt eigen deadline voor Q-day](https://fd.nl/tech-en-innovatie/1590830/google-vervroegt-eigen-deadline-voor-q-day)
+  > Al vanaf 2029 kunnen kwantumcomputers de hedendaagse versleutelingsmethodes kraken.
+- [Rutte: ruim dertig landen willen oorlogsschepen naar Straat van Hormuz sturen](https://fd.nl/politiek/1590730/rutte-ruim-dertig-landen-willen-oorlogsschepen-naar-straat-van-hormuz-te-sturen)
+  > De Navo-chef verzweeg opnieuw dat veel Europese landen pas willen helpen in de belangrijke zeestraat ná een wapenstilstand. Rutte praat de VS te veel...
+- [Groeiende twijfel over diplomatieke oplossing Iran-oorlog](https://fd.nl/politiek/1590735/groeiende-twijfel-over-diplomatieke-oplossing-iran-oorlog)
+  > De Amerikaanse president Donald Trump uitte donderdag zijn twijfels over het sluiten van een diplomatieke deal met Iran en dreigde met verdere...
 
 ### Meest gelezen
 
