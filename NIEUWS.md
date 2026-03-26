@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-03-2026 om 17:08*
+*Laatst bijgewerkt: 26-03-2026 om 19:14*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Slavenhandel ernstigste misdaad: 'Ongelijkheid, uitbuiting nog steeds verankerd'](https://nos.nl/l/2607949)
-  > De trans-Atlantische slavenhandel is "de ernstigste misdaad tegen de menselijkheid" uit de geschiedenis, heeft de Algemene Vergadering van de...
-- [Nieuwe naam GroenLinks-PvdA bekend: Progressief Nederland, kortweg Pro](https://nos.nl/l/2607948)
-  > Oppositiepartij GroenLinks-PvdA krijgt een nieuwe naam, Progressief Nederland. In het dagelijks taalgebruik wil de partij dat afkorten tot Pro. Dat...
-- [Exporteurs bezorgd door geopolitieke onrust: ‘Weinig optimisme over’](https://nos.nl/l/2607946)
-  > Hoge importheffingen, handelsbeperkingen en sinds vorige maand de blokkade van de Straat van Hormuz: het zijn uitdagende tijden voor ondernemers. Al...
-- [Minister doet klemmend beroep op gemeenten voor noodopvang asielzoekers](https://nos.nl/l/2607944)
-  > Minister Van den Brink van Asiel en Migratie heeft een brandbrief gestuurd naar alle burgemeesters van Nederland. Hij doet daarin "een klemmend...
-- [Klimaatraad: niet alleen recyclen, maar vooral anders consumeren](https://nos.nl/l/2607943)
-  > Een belasting op fast fashion, meer producten zonder verpakking in de supermarkt en een hogere aankoopheffing voor zwaardere auto's. Dit soort...
+- [Blindboxes rage onder jongeren, maar is het gokken?](https://nos.nl/l/2607965)
+  > Wie wel eens op sociale media rondkijkt, kent ze vast: de zogenoemde unboxingvideo's van blindboxes. Iemand zit voor de camera met een mooie doos. Op...
+- [Meisjes (11) mogen na conflict over douchen niet terug naar PSV Handbal](https://nos.nl/l/2607964)
+  > Drie elfjarige meisjes die bij PSV Handbal in Eindhoven zijn geroyeerd na een conflict over gezamenlijk douchen, mogen voorlopig niet terug naar de...
+- [PFAS zijn giftig, opruimen is duur, maar verbod laat op zich wachten](https://nos.nl/l/2607963)
+  > Elke dag komen er meer giftige PFAS bij in het milieu en ondertussen geven we veel geld uit om deze stoffen weer weg te krijgen. Grond van de...
+- [Selectieve doorgang in Hormuz: Iran grijpt controle over wereldroute](https://nos.nl/l/2607961)
+  > In de Straat van Hormuz ontstaat steeds duidelijker een informeel, maar strak gecontroleerd doorgangssysteem, waarin Iran bepaalt welke schepen mogen...
+- [Goocheltrucs onder de hamer in veilinghuis Tilburg, inclusief truc Hans Kazàn](https://nos.nl/l/2607956)
+  > Een veilinghuis in Tilburg stelt de komende drie dagen de magie centraal: 632 stukken uit de Nederlandse en internationale entertainmentwereld gaan...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [GroenLinks-PvdA heet nu PRO(gressief Nederland), rode roos is ingeruild voor groene](https://www.ad.nl/politiek/groenlinks-pvda-heet-nu-pro-gressief-nederland-rode-roos-is-ingeruild-voor-groene~af1bdba2/)
-  > Met een nieuwe naam en een nieuw logo gaan GroenLinks en PvdA samen verder. Onder de vlag van Progressief Nederland – kortweg PRO – presenteren ze...
-- [Trump twijfelt over deal met Iran, dat volgens hem ‘Midden-Oosten wilde overnemen’](https://www.ad.nl/buitenland/trump-twijfelt-over-deal-met-iran-dat-volgens-hem-midden-oosten-wilde-overnemen~ac528ac3/)
-  > Iran was van plan om het Midden-Oosten over te nemen. Dat stelt althans de Amerikaanse president Donald Trump. „Maar wij kwamen toevallig langs, dus...
-- [Lando Norris heeft vol vertrouwen in ommekeer met McLaren en refereert aan 2024](https://www.ad.nl/formule-1/lando-norris-heeft-vol-vertrouwen-in-ommekeer-met-mclaren-en-refereert-aan-2024~a32ae013/)
-  > Na een uitstapje op de Nürburgring is het voor Max Verstappen tijd voor het derde raceweekend in de Formule 1. Het circus is aangekomen in Suzuka...
-- [Vrouw met niqab wil kibbeling, maar moet zonder vis de visboer verlaten: ‘Ik bepaal aan wie ik verkoop’](https://www.ad.nl/binnenland/vrouw-met-niqab-wil-kibbeling-maar-moet-zonder-vis-de-visboer-verlaten-ik-bepaal-aan-wie-ik-verkoop~a46ae00e/)
-  > Ze had trek in kibbeling en dacht die te gaan kopen bij een visboer aan het strand. Maar ze werd de zaak uit gezet. Puur omdat ze een niqab droeg,...
-- [Grok mag mensen online niet uitkleden met AI-software, oordeelt rechter](https://www.ad.nl/tech/grok-mag-mensen-online-niet-uitkleden-met-ai-software-oordeelt-rechter~ac6ef928/)
-  > AI-chatbot Grok mag in Nederland niet langer uitkleedbeelden genereren en verspreiden. Datzelfde geldt voor kinderpornografisch materiaal, bepaalde...
+- [LIVE play-offs WK | Oekraïne en Zweden tegenover elkaar in Valencia, Parrott in de spits bij Ierland](https://www.ad.nl/wk-voetbal/live-play-offs-wk-oekraine-en-zweden-tegenover-elkaar-in-valencia-parrott-in-de-spits-bij-ierland~a89ca5e1/)
+  > Zestien Europese landen strijden om de laatste vier tickets voor het WK. Vanavond zijn de halve finales van de play-offs. Volg alle hoogtepunten hier...
+- [Abdallah stierf als kindsoldaat in Syrië, Naaldwijkse moeder nu voor de rechter](https://www.ad.nl/binnenland/abdallah-stierf-als-kindsoldaat-in-syrie-naaldwijkse-moeder-nu-voor-de-rechter~afdf663a/)
+  > De Naaldwijkse Ayada K. nam in 2014 haar 13-jarige zoon Abdallah mee naar het kalifaat. In Syrië werd hij ingelijfd door Islamitische Staat (IS) en...
+- [Burgemeester Gorinchem doet aangifte bij politie over stemfraude: tien meldingen bij gemeente](https://www.ad.nl/gorinchem/burgemeester-gorinchem-doet-aangifte-bij-politie-over-stemfraude-tien-meldingen-bij-gemeente~a8955f14/)
+  > Burgemeester Reinie Melissant van Gorinchem heeft woensdag bij de politie officieel aangifte gedaan van fraude en omkoping tijdens de...
+- [Orkun Kökçü en matchwinner Ferdi Kadioglu mogen met Turkije blijven dromen van eerste WK sinds 2002](https://www.ad.nl/wk-voetbal/orkun-kokcu-en-matchwinner-ferdi-kadioglu-mogen-met-turkije-blijven-dromen-van-eerste-wk-sinds-2002~a4a5d256/)
+  > Turkije mag nog altijd dromen van het eerste WK voetbal sinds 2002, toen het land als derde eindigde in Japan en Zuid-Korea. De Turken versloegen...
+- [TransferTalk | NAC laat clubicoon vertrekken, Cambuur ontvangt ‘recordbedrag’ voor Sjöstrand](https://www.ad.nl/voetbal/transfertalk-nac-laat-clubicoon-vertrekken-cambuur-ontvangt-recordbedrag-voor-sjostrand~a35ea681/)
+  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Europa bewijst dienstenmarkt vooral lippendienst](https://fd.nl/opinie/1590729/europa-bewijst-dienstenmarkt-vooral-lippendienst)
+  > De Europese Commissie en lidstaten pleiten wel voor een open dienstenmarkt, maar zijn in de praktijk niet ambitieus genoeg.
+- [Jonge bankiers UBS in VS weer vijf dagen naar kantoor](https://fd.nl/financiele-markten/1590834/jonge-bankiers-ubs-in-vs-weer-vijf-dagen-naar-kantoor)
+  > Met de aanscherping van de kantoorplicht brengt het Zwitserse UBS zijn personeelsbeleid op dit vlak meer in lijn met concurrerende Amerikaanse banken.
+- [Meloni haalt bezem door regering na nederlaag in referendum](https://fd.nl/politiek/1590953/meloni-haalt-bezem-door-regering-na-nederlaag-in-referendum)
+  > In Italië stapten twee bewindslieden, een kabinetschef en een fractievoorzitter in korte tijd op. Volgens analisten onder druk van premier Giorgia...
+- [VS heffen sancties op tegen bedrijven en staatsbank Wit-Rusland](https://fd.nl/financiele-markten/1590738/vs-heffen-sancties-op-tegen-bedrijven-en-staatsbank-wit-rusland)
+  > De bedrijven in kwestie belandden op de Amerikaanse sanctielijst na de Russische inval in Oekraïne in februari 2022.
 - [PvdA en GroenLinks gaan samen verder als Progressief Nederland](https://fd.nl/politiek/1590828/pvda-en-groenlinks-gaan-samen-verder-als-progressief-nederland)
   > De roepnaam van de partij wordt PRO. ‘Omdat we niet tegen zijn, maar met hoop en optimisme strijden vóór een eerlijk Nederland.’
-- [Endemol-moeder Banijay heeft grote plannen, maar vindt weinig weerklank op de beurs](https://fd.nl/financiele-markten/1590831/endemol-moeder-banijay-heeft-grote-plannen-maar-vindt-weinig-weerklank-op-de-beurs)
-  > Banijay presenteerde donderdag een langjarige strategie met grote ambities. Eén element bleef onbenoemd: de geringe liquiditeit van het aandeel.
-- [Google vervroegt eigen deadline voor Q-day](https://fd.nl/tech-en-innovatie/1590830/google-vervroegt-eigen-deadline-voor-q-day)
-  > Al vanaf 2029 kunnen kwantumcomputers de hedendaagse versleutelingsmethodes kraken.
-- [Rutte: ruim dertig landen willen oorlogsschepen naar Straat van Hormuz sturen](https://fd.nl/politiek/1590730/rutte-ruim-dertig-landen-willen-oorlogsschepen-naar-straat-van-hormuz-te-sturen)
-  > De Navo-chef verzweeg opnieuw dat veel Europese landen pas willen helpen in de belangrijke zeestraat ná een wapenstilstand. Rutte praat de VS te veel...
-- [Groeiende twijfel over diplomatieke oplossing Iran-oorlog](https://fd.nl/politiek/1590735/groeiende-twijfel-over-diplomatieke-oplossing-iran-oorlog)
-  > De Amerikaanse president Donald Trump uitte donderdag zijn twijfels over het sluiten van een diplomatieke deal met Iran en dreigde met verdere...
 
 ### Meest gelezen
 
