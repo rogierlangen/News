@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-03-2026 om 23:39*
+*Laatst bijgewerkt: 26-03-2026 om 02:45*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Levende bruinvis aangespoeld op Ameland](https://nos.nl/l/2607849)
+  > Op het strand van Ameland is gisteravond een levende bruinvis aangespoeld. Dat meldt Omrop Fryslân.
+        De bruinvis heeft een verwonding onder...
+- [Riviercruiseschip vaart tegen brug in Amsterdam](https://nos.nl/l/2607848)
+  > Een riviercruiseschip is gisteravond in Amsterdam tegen een brug gevaren. Daarbij werd de stuurhut van het schip beschadigd, melden NH Nieuws en AT5....
+- [Zelensky: VS voert druk op om grondgebied af te staan aan Rusland](https://nos.nl/l/2607847)
+  > De VS wil Oekraïne veiligheidsgaranties geven, op voorwaarde dat het de oostelijke Donbas-regio overdraagt aan Rusland. Dat heeft president Zelensky...
 - [Islamoloog Tariq Ramadan in Parijs veroordeeld tot 18 jaar cel voor drie verkrachtingen](https://nos.nl/l/2607846)
   > De Zwitserse islamwetenschapper en prediker Tariq Ramadan is in Parijs veroordeeld tot 18 jaar cel voor de verkrachting van drie vrouwen. Ramadan...
 - [VN bestempelt slavenhandel als ergste misdaad tegen de menselijkheid ooit](https://nos.nl/l/2607842)
   > De Verenigde Naties hebben de trans-Atlantische slavenhandel officieel bestempeld als "de ernstigste misdaad tegen de menselijkheid" ooit. De door...
-- [Ongeduld in de Kamer, maar kabinet wil niet te snelle ingrepen tegen dure energie](https://nos.nl/l/2607841)
-  > Het kabinet kan nog niet zeggen wanneer er concrete maatregelen komen om de economische gevolgen van de oorlog in het Midden-Oosten te verlichten....
-- [Nog een gedetineerde ontsnapt bij ziekenhuisbezoek, man voortvluchtig](https://nos.nl/l/2607840)
-  > In Roermond is vrijdag een gedetineerde ontsnapt na een ziekenhuisbezoek. Hij is nog altijd voortvluchtig. Dat bevestigt een woordvoerder van de...
-- [Onderzoek wijst niet op onveilige werksfeer in Gronings ziekenhuis](https://nos.nl/l/2607838)
-  > De kwaliteit van de zorg en de werksfeer op de afdeling pathologie van het Martini Ziekenhuis in Groningen zijn in orde. Dat blijkt uit extern...
 
 ### Meest gelezen
 
@@ -27,6 +28,8 @@
 
 ### Laatste nieuws
 
+- [WHO: gezondheidssituatie in Cuba is diep verontrustend](https://www.ad.nl/buitenland/who-gezondheidssituatie-in-cuba-is-diep-verontrustend~ab6b85bc/)
+  > De gezondheidssituatie in Cuba is ‘diep verontrustend’, schreef directeur-generaal Tedros Adhanom Ghebreyesus van de Wereldgezondheidsorganisatie...
 - [Voetbalpodcast | ‘Alle huisjuristen van clubs, KNVB tot FBO hebben zitten slapen’](https://www.ad.nl/voetbal/voetbalpodcast-alle-huisjuristen-van-clubs-knvb-tot-fbo-hebben-zitten-slapen~ac8603a9/)
   > De artsen van Real Madrid die de verkeerde knie van Mbappé onderzoeken. De terugkeer van twee volksclubs naar de Eredivisie: ADO Den Haag en Cambuur....
 - [Topman grootste vermogensbeheerder waarschuwt voor gitzwarte gevolgen bij olieprijs van 150 dollar](https://www.ad.nl/economie/topman-grootste-vermogensbeheerder-waarschuwt-voor-gitzwarte-gevolgen-bij-olieprijs-van-150-dollar~a1fb4c60/)
@@ -35,8 +38,6 @@
   > Een jonge Iberische lynx die speels een knaagdier de lucht in slingert. Daarmee heeft de Oostenrijkse fotograaf Josef Stefan de harten van het...
 - [Kylian Mbappé ontkent fouten medische staf Real Madrid: ‘De informatie klopt niet’](https://www.ad.nl/voetbal/kylian-mbappe-ontkent-fouten-medische-staf-real-madrid-de-informatie-klopt-niet~aa6cc7e0/)
   > Kylian Mbappé (27) zou volgens meerdere Spaanse media en The Athletic niet goed zijn behandeld aan een knieprobleem. De spits zou aan zijn verkeerde...
-- [Henk ten Cate (71) droomt groot met Suriname: ‘We gaan het WK écht halen, dat moet ons mantra worden’](https://www.ad.nl/voetbal/henk-ten-cate-71-droomt-groot-met-suriname-we-gaan-het-wk-echt-halen-dat-moet-ons-mantra-worden~add6191c/)
-  > Niet alleen Oranje en Curaçao staan aan de vooravond van het WK, ook bondscoach Henk ten Cate is met Suriname nog altijd dicht bij kwalificatie....
 
 ### Meest gelezen
 
