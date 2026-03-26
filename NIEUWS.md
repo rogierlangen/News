@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-03-2026 om 11:54*
+*Laatst bijgewerkt: 26-03-2026 om 13:27*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [EU onderzoekt Snapchat en pornosites om risico's voor minderjarigen](https://nos.nl/l/2607902)
-  > De Europese Commissie opent officieel een onderzoek naar Snapchat en verschillende pornosites om te kijken of de platforms genoeg doen om kinderen te...
-- [21 extra stemmen voor kandidaat-raadslid Heusden na hertelling](https://nos.nl/l/2607901)
-  > Een kandidaat-raadslid in Heusden krijgt alsnog 21 stemmen erbij die voor hem waren bedoeld, maar per ongeluk bij iemand anders waren beland. Thomas...
-- [Verdachte opgepakt voor neerschieten Iraniër in Schoonhoven](https://nos.nl/l/2607896)
-  > De politie heeft een verdachte aangehouden voor de aanslag op een man van Iraanse afkomst in Schoonhoven, vorige week donderdag. Het gaat om een...
-- [Na loting met balletjes: Partij voor de Dieren krijgt restzetel in Roermond](https://nos.nl/l/2607894)
-  > De Partij voor de Dieren heeft in Roermond de loting om de restzetel gewonnen. Daardoor maakt de partij toch zijn entree in de Roermondse...
-- [Weer twee plofkraken: explosies in Amsterdam Nieuw-West en Lopik](https://nos.nl/l/2607893)
-  > In Amsterdam Nieuw-West en Lopik zijn vannacht twee plofkraken gepleegd. Er zijn sinds maandag zes geldautomaten doelwit geweest van plofkraken.
-    ...
+- [Gepiep op Schiphol: 261 gesmokkelde papegaaieieren gevonden in handbagage](https://nos.nl/l/2607915)
+  > De Nederlandse Voedsel- en Warenautoriteit (NVWA) heeft 261 papegaai-eieren in beslag genomen op Schiphol. De douane vond de eieren in de handbagage...
+- [Onderzoek naar bewaartermijn klantgegevens Odido na hack](https://nos.nl/l/2607912)
+  > De Autoriteit Persoonsgegevens (AP) gaat onderzoeken of Odido de gegevens van klanten te lang heeft bewaard. Aanleiding voor het onderzoek is de...
+- ['Honderden onhandelbare jongeren in vakantieparken, hoge kosten voor gemeenten'](https://nos.nl/l/2607911)
+  > Jongeren die als onhandelbaar worden beschouwd en voor wie geen plek is in de jeugdzorg jagen gemeenten op hoge kosten. Uit onderzoek van Zembla...
+- [Geldautomaten deels of soms geheel dicht door serie plofkraken](https://nos.nl/l/2607908)
+  > Geldmaat neemt met spoed maatregelen om het aantal plofkraken op geldautomaten tegen te gaan. Deze week werden zes geldautomaten van Geldmaat...
+- [Rusland onderschept explosieve inlegzooltjes bestemd voor militairen aan het front](https://nos.nl/l/2607904)
+  > Ze hadden de Russische soldaten aan het front warme voeten moeten geven. Met een USB-aansluiting en verder echt vilt gemaakt van wol. Tenminste zo...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Voorspel poleposition en winnaar GP van Japan en win een spectaculaire race experience!](https://www.ad.nl/formule-1/voorspel-poleposition-en-winnaar-gp-van-japan-en-win-een-spectaculaire-race-experience~ab93261d/)
-  > Met de GP van Japan voor de deur en nieuwe FIA-regels voor de batterijen, belooft het op Suzuka weer een spektakel te worden. Deze week hebben we...
-- [Nederlands elftal kiest voor kalmte in uitgestrekte Amerikaanse stad van barbecue, sport, jazz en fonteinen](https://www.ad.nl/voetbal/nederlands-elftal-kiest-voor-kalmte-in-uitgestrekte-amerikaanse-stad-van-barbecue-sport-jazz-en-fonteinen~a01f5f6e/)
-  > Het basiskamp Oranje ligt komende zomer in Kansas City, Missouri, in het hart van de Verenigde Staten. Van alle WK-steden bleek deze veruit het...
-- [Verdachte (27) opgepakt in Duitsland voor neerschieten Iraniër in Schoonhoven](https://www.ad.nl/binnenland/verdachte-27-opgepakt-in-duitsland-voor-neerschieten-iranier-in-schoonhoven~a83406bc/)
-  > De politie heeft een verdachte (27) opgepakt in de zaak van de neergeschoten Iraanse man uit Schoonhoven. Dat meldt de politie donderdagmiddag. De...
-- [Iedereen met twee ogen in zijn hoofd zíet dat we in dit land een levensgroot probleem hebben](https://www.ad.nl/binnenland/iedereen-met-twee-ogen-in-zijn-hoofd-ziet-dat-we-in-dit-land-een-levensgroot-probleem-hebben~a38b2db4/)
-  > Het gaat weer zoals het vaker gaat. Iedereen weet al jaren dat we een forse crisis hebben in dit land, een ongediertecrisis. Pas nu ook de ambtenaren...
-- [Brussel pakt Snapchat en pornoreuzen aan om leeftijdscontrole: ‘In Europa gelden regels’](https://www.ad.nl/buitenland/brussel-pakt-snapchat-en-pornoreuzen-aan-om-leeftijdscontrole-in-europa-gelden-regels~a23931ca/)
-  > Snapchat doet te weinig om jongeren te beschermen tegen grooming en de verkoop van zaken als vapes. Daarom start Europa een officieel onderzoek naar...
+- [Ronald Koeman over Memphis Depay: ‘Ik vind wel dat hij topfit moet zijn voor het WK’](https://www.ad.nl/voetbal/ronald-koeman-over-memphis-depay-ik-vind-wel-dat-hij-topfit-moet-zijn-voor-het-wk~a31d7a15/)
+  > Bondscoach Ronald Koeman vindt dat Memphis Depay topfit moet zijn als hij komende zomer meedoet aan het WK. Tijdens het EK van 2024 kwam hij terug...
+- [Arie wist het jaren tegen te houden, nu mag hij écht niet meer wonen op zijn lievelingsplek](https://www.ad.nl/binnenland/arie-wist-het-jaren-tegen-te-houden-nu-mag-hij-echt-niet-meer-wonen-op-zijn-lievelingsplek~ac92affc/)
+  > Het is volgens zijn advocaat een ‘hard gelag’ voor Arie Kom (66), maar hij zal zijn illegale woonplek bij Hazerswoude-Dorp na een jarenlange...
+- [Pascal Bosschaart vertrekt bij Feyenoord: ‘Heb besloten om een nieuwe weg in te gaan’](https://www.ad.nl/voetbal/pascal-bosschaart-vertrekt-bij-feyenoord-heb-besloten-om-een-nieuwe-weg-in-te-gaan~a5038ae2/)
+  > Pascal Bosschaart en Feyenoord gaan na dit seizoen uit elkaar. De voormalig speler van de Rotterdammers, die Feyenoord Onder 21 jaar onder zijn hoede...
+- [Klimaatactivist verdacht van opzettelijk verwonden renners en belemmering verkeer in Ronde van Brugge](https://www.ad.nl/wielrennen/klimaatactivist-verdacht-van-opzettelijk-verwonden-renners-en-belemmering-verkeer-in-ronde-van-brugge~aa3d4080/)
+  > Het Openbaar Ministerie in West-Vlaanderen is een onderzoek gestart naar aanleiding van het incident dat zich gisteren heeft voorgedaan tijdens de...
+- [Zelfs de burgemeester van New York heeft het over hem: AZ-spits Troy Parrott laat Ierland dromen van WK](https://www.ad.nl/wk-voetbal/zelfs-de-burgemeester-van-new-york-heeft-het-over-hem-az-spits-troy-parrott-laat-ierland-dromen-van-wk~a23fe965/)
+  > Bono, Roy en Robbie Keane, Conor McGregor. Ze zijn helden van het trotse Ierland. Maar het hele land is nu in de ban van AZ-spits Troy Parrott. Hij...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Brussel maakt werk van digitale leeftijdsverificatie jongeren](https://fd.nl/samenleving/1590944/brussel-maakt-werk-van-digitale-leeftijdsverificatie-jongeren)
-  > De Europese Commissie start een onderzoek naar Snapchat. De leeftijdsverificatie van de videoapp zou tekortschieten. Van enkele pornowebsites stelt...
-- [‘Even centraal alsjeblieft’](https://fd.nl/samenleving/1590457/even-centraal-alsjeblieft)
-  > Joris van Os werpt een kritische blik op de gemiddelde Zoommeeting. ‘Ik denk weleens: jongens, waar zijn we nou helemaal mee bezig?’
-- [Dreigende leegloop bij Vesteda leidt in de hele vastgoedsector tot grote zorgen](https://fd.nl/financiele-markten/1590269/waarom-woningbelegger-vesteda-ineens-geconfronteerd-wordt-met-een-dreigend-liquiditeitsprobleem)
-  > Beleggers mogen bij Vesteda eens in de zeven jaar hun gehele inleg opeisen. Door de flinke waardestijging van woningen en overheidsingrijpen op de...
-- [Superrijken trekken naar Milaan: ‘Er rijden Lamborghini’s in plaats van Panda’s’](https://fd.nl/economie/1590818/superrijken-trekken-naar-milaan-er-rijden-lamborghinis-in-plaats-van-pandas)
-  > Na Londen en Dubai is Milaan nu een magneet voor buitenlandse rijken. Zij trekken naar de stad voor een gunstige fiscale regeling, politieke...
-- [Het witwassen van risico](https://fd.nl/financiele-markten/1590943/het-witwassen-van-risico)
-  > Vul een fonds met rotzooi, maar laat de markt de prijs ervan bepalen. Je hoeft je dan ook geen zorgen meer te maken over het witwassen van risico’s,...
+- [Oeso verwacht hogere inflatie rijke landen vanwege Iran‑oorlog](https://fd.nl/economie/1590946/oeso-verwacht-hogere-inflatie-rijke-landen-vanwege-iranoorlog)
+  > De denktank gaat uit van 4,0% inflatie voor heel 2026. In december was nog 2,8% voorspeld. De groeiprognose voor de wereldeconomie blijft ongewijzigd...
+- [‘Als we ook menselijke druk in de app kunnen zetten, dan zijn we klaar’](https://fd.nl/tech-en-innovatie/1588534/als-we-ook-menselijke-druk-in-de-app-kunnen-zetten-dan-zijn-we-klaar)
+  > De bijlesleerlingen kwamen steeds met vergelijkbare vragen. Die kan AI net zo goed beantwoorden als de docent, dachten de wiskundestudenten.
+- [Buróóó ingehuurd](https://fd.nl/opinie/1590381/burooo-ingehuurd)
+  > Je vraagt je af wie al die treurige politieke slogans bedenkt. Vaak een bureau. Maar het is geen slecht idee wat journalisten te laten meelezen, om...
+- [Europees Parlement keurt handelsdeal met VS goed](https://fd.nl/politiek/1590945/europees-parlement-keurt-handelsdeal-met-vs-goed)
+  > De deal voorziet in het schrappen van een groot deel van de importheffingen op Amerikaanse industriële goederen en landbouwproducten.
+- [De verkeerde ophef over meervoudig stemrecht bij aandeelhoudersvergaderingen](https://fd.nl/opinie/1590800/de-verkeerde-ophef-over-meervoudig-stemrecht)
+  > Ophef rond de nieuwe EU-richtlijn over stemrecht en aandeelhouders is misplaatst. Nederland kent al structuren waarin zeggenschap en belang...
 
 ### Meest gelezen
 
