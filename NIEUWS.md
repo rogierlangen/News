@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-03-2026 om 09:02*
+*Laatst bijgewerkt: 26-03-2026 om 10:56*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Tanker met Russische olie op Zwarte Zee aangevallen door een zeedrone](https://nos.nl/l/2607886)
+  > Een olietanker is op de Zwarte Zee aangevallen door een drone. De brug en de machinekamer zijn daarbij beschadigd geraakt. De 27 Turkse...
+- [OM eist in hoger beroep 2,5 jaar cel tegen Ali B](https://nos.nl/l/2607883)
+  > Het Openbaar Ministerie eist in hoger beroep een onvoorwaardelijke gevangenisstraf van 30 maanden, ofwel 2,5 jaar, tegen Ali B.
+        De eis is...
+- [Uitslag Gorinchem vastgesteld, twijfel over herstemming blijft](https://nos.nl/l/2607882)
+  > Het centraal stembureau van Gorinchem heeft onder leiding van burgemeester Reinie Melissant de verkiezingsuitslag van de gemeente vastgesteld,...
 - [Schatgraven in ongeopende dozen bij de provincie: penisbeeld, aardewerk en kledingspeld](https://nos.nl/l/2607872)
   > Een 'penisbeeld' uit bot, bijzonder aardewerk en een kledingspeld: de provincie Gelderland heeft de eerste van de 16.000 dozen met archeologische...
 - [Excuses FA voor decennialang voetbalverbod voor Britse vrouwen](https://nos.nl/l/2607871)
   > De Britse voetbalbond FA biedt excuses aan voor een jarenlang Engels verbod op vrouwenvoetbal. 50 jaar lang werden clubs uitgesloten van wedstrijden...
-- [Action wil binnen twee jaar eerste vestiging in VS openen](https://nos.nl/l/2607870)
-  > Na de uitbreiding in Europa, heeft Action zijn oog laten vallen op de Verenigde Staten. De koopjesketen wil eind volgend jaar de deuren van een...
-- [Veel kinderen maken geweld mee, vooral op school: 'Heb er nog steeds last van'](https://nos.nl/l/2607869)
-  > Veel kinderen tussen 9 en 13 jaar hebben ooit geweld meegemaakt als slachtoffer, getuige of als pleger. Driekwart van de kinderen zegt dat dit voor...
-- [Mobiele telefoon haalt de contactloze betaalpas in aan de kassa](https://nos.nl/l/2607867)
-  > Betalen met de mobiele telefoon aan de kassa heeft het contactloos betalen met de traditionele betaalpas ingehaald. Vorig jaar werden in de winkel...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Paul de Leeuw keert voor 65ste verjaardag tóch terug naar Ahoy: ‘Dit keer met nog meer vrienden’](https://www.ad.nl/show/paul-de-leeuw-keert-voor-65ste-verjaardag-toch-terug-naar-ahoy-dit-keer-met-nog-meer-vrienden~a41bf298/)
-  > Paul de Leeuw keert tóch weer terug naar Ahoy. Op zijn 65ste verjaardag, op vrijdag 26 maart 2027, staat hij in de Rotterdamse evenementenhal met het...
-- [Nieuwe, compacte bestelauto van Ford: Transit City](https://www.ad.nl/auto/nieuwe-compacte-bestelauto-van-ford-transit-city~aa5a73a1/)
-  > Ford introduceert eind dit jaar een nieuwe, compacte bestelauto in Nederland: de Transit City. Hij is kleiner en goedkoper dan de Transit Custom, de...
-- [Stellen stappen vaker samen uit het leven](https://www.ad.nl/binnenland/stellen-stappen-vaker-samen-uit-het-leven~afe6b599f/)
-  > Steeds meer mensen kiezen voor euthanasie. Die toename wordt vooral veroorzaakt door mensen die lijden aan dementie of een hartziekte. Ook stappen...
-- [Ajax-talent Rayane Bounida voor het eerst in selectie Marokko](https://www.ad.nl/voetbal/ajax-talent-rayane-bounida-voor-het-eerst-in-selectie-marokko~a11bd35f/)
-  > Ajax-speler Rayane Bounida is voor het eerst opgeroepen voor het Marokkaanse voetbalelftal. De 20-jarige buitenspeler maakt deel uit van de selectie...
-- [Westerse landen weigeren slavenhandel te erkennen als ‘zwaarste misdaad tegen menselijkheid’](https://www.ad.nl/buitenland/westerse-landen-weigeren-slavenhandel-te-erkennen-als-zwaarste-misdaad-tegen-menselijkheid~a631cc3d/)
-  > De Algemene Vergadering van de VN heeft de Afrikaanse slavenhandel uitgeroepen tot de ‘zwaarste misdaad tegen de menselijkheid’. De resolutie, die...
+- [Iran doet aanval op nucleaire installaties in Israël, twee doden in Abu Dhabi door wrakstukken raket](https://www.ad.nl/buitenland/iran-doet-aanval-op-nucleaire-installaties-in-israel-twee-doden-in-abu-dhabi-door-wrakstukken-raket~ac528ac3/)
+  > De Iraanse Islamitische Revolutionaire Garde (IRG) zegt Israëlische nucleaire installaties in Zuid-Israël te hebben bestookt. In Abu Dhabi zijn twee...
+- [‘Romeo’ Jochem stond tegenover relschoppers bij asielrellen: ‘Er stonden mensen die ons wilden doodmaken’](https://www.ad.nl/binnenland/romeo-jochem-stond-tegenover-relschoppers-bij-asielrellen-er-stonden-mensen-die-ons-wilden-doodmaken~a379120a/)
+  > Gekleed als normale burgers, loerend op relschoppers en voorbereid op heftige gevechten, bewogen tientallen ‘Romeo’s’ zich vorig jaar tijdens de...
+- [Praat mee: we zouden, met het oog op doorstroming, alleen nog voor senioren huizen moeten bouwen](https://www.ad.nl/praat-mee/praat-mee-we-zouden-met-het-oog-op-doorstroming-alleen-nog-voor-senioren-huizen-moeten-bouwen~a811602d/)
+  > Senioren willen wél naar nieuwe appartementen verhuizen, blijkt uit nieuw onderzoek. In de Kwestie leggen we onze lezers daarover een stelling voor....
+- [Europa wordt véél strenger voor uitgeprocedeerde asielzoekers: ‘Wie de boel frustreert, wordt vastgezet’](https://www.ad.nl/buitenland/europa-wordt-veel-strenger-voor-uitgeprocedeerde-asielzoekers-wie-de-boel-frustreert-wordt-vastgezet~aa1d8eba/)
+  > Het Europees Parlement heeft donderdag ingestemd met een ingrijpende nieuwe terugkeerrichtlijn voor asielzoekers. Die moet ervoor zorgen dat...
+- [Rosalía staakt concert in Milaan om voedselvergiftiging: ‘Voel me extreem ziek’](https://www.ad.nl/show/rosalia-staakt-concert-in-milaan-om-voedselvergiftiging-voel-me-extreem-ziek~a32ce981/)
+  > De Spaanse zangeres Rosalía heeft een concert in de Italiaanse stad Milaan halverwege gestaakt vanwege een voedselvergiftiging. Dat blijkt uit...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [‘Even centraal alsjeblieft’](https://fd.nl/samenleving/1590457/even-centraal-alsjeblieft)
+  > Joris van Os werpt een kritische blik op de gemiddelde Zoommeeting. ‘Ik denk weleens: jongens, waar zijn we nou helemaal mee bezig?’
+- [Waarom woningbelegger Vesteda ineens geconfronteerd wordt met een dreigend liquiditeitsprobleem](https://fd.nl/financiele-markten/1590269/waarom-woningbelegger-vesteda-ineens-geconfronteerd-wordt-met-een-dreigend-liquiditeitsprobleem)
+  > Beleggers mogen bij Vesteda eens in de zeven jaar hun gehele inleg opeisen. Door de flinke waardestijging van woningen en overheidsingrijpen op de...
+- [Superrijken trekken naar Milaan: ‘Er rijden Lamborghini’s in plaats van Panda’s’](https://fd.nl/economie/1590818/superrijken-trekken-naar-milaan-er-rijden-lamborghinis-in-plaats-van-pandas)
+  > Na Londen en Dubai is Milaan nu een magneet voor buitenlandse rijken. Zij trekken naar de stad voor een gunstige fiscale regeling, politieke...
+- [Het witwassen van risico](https://fd.nl/financiele-markten/1590943/het-witwassen-van-risico)
+  > Vul een fonds met rotzooi, maar laat de markt de prijs ervan bepalen. Je hoeft je dan ook geen zorgen meer te maken over het witwassen van risico’s,...
 - [Damen leverde in 2025 meer schepen en boekte hoger resultaat](https://fd.nl/bedrijfsleven/1590816/damen-leverde-in-2025-meer-schepen-en-boekte-hoger-resultaat)
   > Rechtszaken tegen het concern hebben volgens ceo Arnout Damen een ‘grote impact’ op het bedrijf uit Gorinchem.
-- [Baggeraar Van Oord boekt winstherstel maar verwacht ‘turbulent’ 2026](https://fd.nl/bedrijfsleven/1590817/baggeraar-van-oord-boekt-winstherstel-maar-verwacht-turbulent-2026)
-  > ‘De huidige wereldwijde situatie laat zien dat 2026 mogelijk nog onzekerder wordt dan het afgelopen jaar’, stelt ceo Govert van Oord.
-- [Hella Jongerius: ‘Als vernieuwer kun je grotere stappen maken’](https://fd.nl/samenleving/1590533/hella-jongerius-als-vernieuwer-kun-je-grotere-stappen-maken)
-  > Designer Hella Jongerius wilde weer uitgedaagd worden. Haar huidige, autonome werk voorziet in die behoefte. En er is een grote...
-- [Koopjesketen Action waagt sprong naar VS en mikt op 100 winkels in 2030](https://fd.nl/bedrijfsleven/1590815/koopjesketen-action-kondigt-stap-naar-de-vs-aan)
-  > De koopjesketen maakt eind 2027 of begin 2028 de oversteek en is nu bezig met het optuigen van een lokale organisatie. De eerste winkels gaan open in...
-- [Sterke vraag en overname stuwen resultaat wapenfabrikant CSG](https://fd.nl/bedrijfsleven/1590941/sterke-vraag-en-overname-stuwen-resultaat-wapenfabrikant-csg)
-  > Voor 2026 gaat het Tsjechische concern uit van een aanhoudende groei doordat landen hun defensiebudgetten verhogen.
 
 ### Meest gelezen
 
