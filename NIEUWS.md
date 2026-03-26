@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-03-2026 om 10:56*
+*Laatst bijgewerkt: 26-03-2026 om 11:54*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Tanker met Russische olie op Zwarte Zee aangevallen door een zeedrone](https://nos.nl/l/2607886)
-  > Een olietanker is op de Zwarte Zee aangevallen door een drone. De brug en de machinekamer zijn daarbij beschadigd geraakt. De 27 Turkse...
-- [OM eist in hoger beroep 2,5 jaar cel tegen Ali B](https://nos.nl/l/2607883)
-  > Het Openbaar Ministerie eist in hoger beroep een onvoorwaardelijke gevangenisstraf van 30 maanden, ofwel 2,5 jaar, tegen Ali B.
-        De eis is...
-- [Uitslag Gorinchem vastgesteld, twijfel over herstemming blijft](https://nos.nl/l/2607882)
-  > Het centraal stembureau van Gorinchem heeft onder leiding van burgemeester Reinie Melissant de verkiezingsuitslag van de gemeente vastgesteld,...
-- [Schatgraven in ongeopende dozen bij de provincie: penisbeeld, aardewerk en kledingspeld](https://nos.nl/l/2607872)
-  > Een 'penisbeeld' uit bot, bijzonder aardewerk en een kledingspeld: de provincie Gelderland heeft de eerste van de 16.000 dozen met archeologische...
-- [Excuses FA voor decennialang voetbalverbod voor Britse vrouwen](https://nos.nl/l/2607871)
-  > De Britse voetbalbond FA biedt excuses aan voor een jarenlang Engels verbod op vrouwenvoetbal. 50 jaar lang werden clubs uitgesloten van wedstrijden...
+- [EU onderzoekt Snapchat en pornosites om risico's voor minderjarigen](https://nos.nl/l/2607902)
+  > De Europese Commissie opent officieel een onderzoek naar Snapchat en verschillende pornosites om te kijken of de platforms genoeg doen om kinderen te...
+- [21 extra stemmen voor kandidaat-raadslid Heusden na hertelling](https://nos.nl/l/2607901)
+  > Een kandidaat-raadslid in Heusden krijgt alsnog 21 stemmen erbij die voor hem waren bedoeld, maar per ongeluk bij iemand anders waren beland. Thomas...
+- [Verdachte opgepakt voor neerschieten Iraniër in Schoonhoven](https://nos.nl/l/2607896)
+  > De politie heeft een verdachte aangehouden voor de aanslag op een man van Iraanse afkomst in Schoonhoven, vorige week donderdag. Het gaat om een...
+- [Na loting met balletjes: Partij voor de Dieren krijgt restzetel in Roermond](https://nos.nl/l/2607894)
+  > De Partij voor de Dieren heeft in Roermond de loting om de restzetel gewonnen. Daardoor maakt de partij toch zijn entree in de Roermondse...
+- [Weer twee plofkraken: explosies in Amsterdam Nieuw-West en Lopik](https://nos.nl/l/2607893)
+  > In Amsterdam Nieuw-West en Lopik zijn vannacht twee plofkraken gepleegd. Er zijn sinds maandag zes geldautomaten doelwit geweest van plofkraken.
+    ...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Iran doet aanval op nucleaire installaties in Israël, twee doden in Abu Dhabi door wrakstukken raket](https://www.ad.nl/buitenland/iran-doet-aanval-op-nucleaire-installaties-in-israel-twee-doden-in-abu-dhabi-door-wrakstukken-raket~ac528ac3/)
-  > De Iraanse Islamitische Revolutionaire Garde (IRG) zegt Israëlische nucleaire installaties in Zuid-Israël te hebben bestookt. In Abu Dhabi zijn twee...
-- [‘Romeo’ Jochem stond tegenover relschoppers bij asielrellen: ‘Er stonden mensen die ons wilden doodmaken’](https://www.ad.nl/binnenland/romeo-jochem-stond-tegenover-relschoppers-bij-asielrellen-er-stonden-mensen-die-ons-wilden-doodmaken~a379120a/)
-  > Gekleed als normale burgers, loerend op relschoppers en voorbereid op heftige gevechten, bewogen tientallen ‘Romeo’s’ zich vorig jaar tijdens de...
-- [Praat mee: we zouden, met het oog op doorstroming, alleen nog voor senioren huizen moeten bouwen](https://www.ad.nl/praat-mee/praat-mee-we-zouden-met-het-oog-op-doorstroming-alleen-nog-voor-senioren-huizen-moeten-bouwen~a811602d/)
-  > Senioren willen wél naar nieuwe appartementen verhuizen, blijkt uit nieuw onderzoek. In de Kwestie leggen we onze lezers daarover een stelling voor....
-- [Europa wordt véél strenger voor uitgeprocedeerde asielzoekers: ‘Wie de boel frustreert, wordt vastgezet’](https://www.ad.nl/buitenland/europa-wordt-veel-strenger-voor-uitgeprocedeerde-asielzoekers-wie-de-boel-frustreert-wordt-vastgezet~aa1d8eba/)
-  > Het Europees Parlement heeft donderdag ingestemd met een ingrijpende nieuwe terugkeerrichtlijn voor asielzoekers. Die moet ervoor zorgen dat...
-- [Rosalía staakt concert in Milaan om voedselvergiftiging: ‘Voel me extreem ziek’](https://www.ad.nl/show/rosalia-staakt-concert-in-milaan-om-voedselvergiftiging-voel-me-extreem-ziek~a32ce981/)
-  > De Spaanse zangeres Rosalía heeft een concert in de Italiaanse stad Milaan halverwege gestaakt vanwege een voedselvergiftiging. Dat blijkt uit...
+- [Voorspel poleposition en winnaar GP van Japan en win een spectaculaire race experience!](https://www.ad.nl/formule-1/voorspel-poleposition-en-winnaar-gp-van-japan-en-win-een-spectaculaire-race-experience~ab93261d/)
+  > Met de GP van Japan voor de deur en nieuwe FIA-regels voor de batterijen, belooft het op Suzuka weer een spektakel te worden. Deze week hebben we...
+- [Nederlands elftal kiest voor kalmte in uitgestrekte Amerikaanse stad van barbecue, sport, jazz en fonteinen](https://www.ad.nl/voetbal/nederlands-elftal-kiest-voor-kalmte-in-uitgestrekte-amerikaanse-stad-van-barbecue-sport-jazz-en-fonteinen~a01f5f6e/)
+  > Het basiskamp Oranje ligt komende zomer in Kansas City, Missouri, in het hart van de Verenigde Staten. Van alle WK-steden bleek deze veruit het...
+- [Verdachte (27) opgepakt in Duitsland voor neerschieten Iraniër in Schoonhoven](https://www.ad.nl/binnenland/verdachte-27-opgepakt-in-duitsland-voor-neerschieten-iranier-in-schoonhoven~a83406bc/)
+  > De politie heeft een verdachte (27) opgepakt in de zaak van de neergeschoten Iraanse man uit Schoonhoven. Dat meldt de politie donderdagmiddag. De...
+- [Iedereen met twee ogen in zijn hoofd zíet dat we in dit land een levensgroot probleem hebben](https://www.ad.nl/binnenland/iedereen-met-twee-ogen-in-zijn-hoofd-ziet-dat-we-in-dit-land-een-levensgroot-probleem-hebben~a38b2db4/)
+  > Het gaat weer zoals het vaker gaat. Iedereen weet al jaren dat we een forse crisis hebben in dit land, een ongediertecrisis. Pas nu ook de ambtenaren...
+- [Brussel pakt Snapchat en pornoreuzen aan om leeftijdscontrole: ‘In Europa gelden regels’](https://www.ad.nl/buitenland/brussel-pakt-snapchat-en-pornoreuzen-aan-om-leeftijdscontrole-in-europa-gelden-regels~a23931ca/)
+  > Snapchat doet te weinig om jongeren te beschermen tegen grooming en de verkoop van zaken als vapes. Daarom start Europa een officieel onderzoek naar...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Brussel maakt werk van digitale leeftijdsverificatie jongeren](https://fd.nl/samenleving/1590944/brussel-maakt-werk-van-digitale-leeftijdsverificatie-jongeren)
+  > De Europese Commissie start een onderzoek naar Snapchat. De leeftijdsverificatie van de videoapp zou tekortschieten. Van enkele pornowebsites stelt...
 - [‘Even centraal alsjeblieft’](https://fd.nl/samenleving/1590457/even-centraal-alsjeblieft)
   > Joris van Os werpt een kritische blik op de gemiddelde Zoommeeting. ‘Ik denk weleens: jongens, waar zijn we nou helemaal mee bezig?’
-- [Waarom woningbelegger Vesteda ineens geconfronteerd wordt met een dreigend liquiditeitsprobleem](https://fd.nl/financiele-markten/1590269/waarom-woningbelegger-vesteda-ineens-geconfronteerd-wordt-met-een-dreigend-liquiditeitsprobleem)
+- [Dreigende leegloop bij Vesteda leidt in de hele vastgoedsector tot grote zorgen](https://fd.nl/financiele-markten/1590269/waarom-woningbelegger-vesteda-ineens-geconfronteerd-wordt-met-een-dreigend-liquiditeitsprobleem)
   > Beleggers mogen bij Vesteda eens in de zeven jaar hun gehele inleg opeisen. Door de flinke waardestijging van woningen en overheidsingrijpen op de...
 - [Superrijken trekken naar Milaan: ‘Er rijden Lamborghini’s in plaats van Panda’s’](https://fd.nl/economie/1590818/superrijken-trekken-naar-milaan-er-rijden-lamborghinis-in-plaats-van-pandas)
   > Na Londen en Dubai is Milaan nu een magneet voor buitenlandse rijken. Zij trekken naar de stad voor een gunstige fiscale regeling, politieke...
 - [Het witwassen van risico](https://fd.nl/financiele-markten/1590943/het-witwassen-van-risico)
   > Vul een fonds met rotzooi, maar laat de markt de prijs ervan bepalen. Je hoeft je dan ook geen zorgen meer te maken over het witwassen van risico’s,...
-- [Damen leverde in 2025 meer schepen en boekte hoger resultaat](https://fd.nl/bedrijfsleven/1590816/damen-leverde-in-2025-meer-schepen-en-boekte-hoger-resultaat)
-  > Rechtszaken tegen het concern hebben volgens ceo Arnout Damen een ‘grote impact’ op het bedrijf uit Gorinchem.
 
 ### Meest gelezen
 
