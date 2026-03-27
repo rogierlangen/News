@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-03-2026 om 22:37*
+*Laatst bijgewerkt: 27-03-2026 om 23:37*
 
 ---
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaanse beurs kleurt opnieuw rood door oorlog tegen Iran](https://fd.nl/financiele-markten/1591306/amerikaanse-beurs-kleurt-opnieuw-rood-door-oorlog-tegen-iran)
-  > Trumps oorlog tegen Iran eiste vrijdag in New York opnieuw zijn tol. De beurzen kleurden na een alweer sombere handelsdag opnieuw rood.
-- [Mona Keijzer breekt na fractie-exit nu helemaal met BBB](https://fd.nl/politiek/1591322/mona-keijzer-breekt-na-fractie-exit-nu-helemaal-met-bbb)
-  > De breuk tussen de BBB en Mona Keijzer is nu definitief. Ze was al uit de Tweede Kamerfractie gestapt en kondigde vrijdag aan ook haar...
-- [Trump belooft geld voor beveiligers vliegvelden, shutdown duurt voort](https://fd.nl/politiek/1591397/trump-belooft-geld-voor-beveiligers-vliegvelden-shutdown-duurt-voort)
-  > Reizigers in de VS hebben al weken te maken met urenlange rijen doordat beveiligers niet betaald krijgen als gevolg van een shutdown.
-- [‘Lokale partijen toch niet grote winnaar gemeenteraadsverkiezingen’](https://fd.nl/politiek/1591391/lokale-partijen-toch-niet-grote-winnaar-gemeenteraadsverkiezingen)
-  > Lokale partijen waren toch niet de grote winnaar van de gemeenteraadsverkiezingen in maart. Dat blijkt uit een nadere analyse van de uitslagen door...
-- [Het ‘kabinet van de doorbraken’ moet zich toch weer bezighouden met kleingeld](https://fd.nl/politiek/1590977/het-kabinet-van-de-doorbrakenmoet-zich-toch-weer-bezighouden-met-kleingeld)
-  > Het Kamerdebat over de economische gevolgen van de aanval op Iran vernauwde zich tot wel of niet ingrijpen in de oplopende benzineprijs. Met een...
+- [Kunst ontmoet tarot](https://fd.nl/samenleving/1590942/kunst-ontmoet-tarot)
+  > Met twee decks tarotkaarten als uitgangspunt heeft kunstenaar Shertise Solano een verrassende expositie samengesteld. ‘Wat zie je, wat valt je op?’
+- [De oorlog bewijst de noodzaak van onze vierde energietransitie](https://fd.nl/politiek/1590968/de-oorlog-bewijst-de-noodzaak-van-onze-vierde-energietransitie)
+  > De afgelopen jaren gleed klimaatbeleid in veel landen van het prioriteitenlijstje. De Golfoorlog geeft burgers en overheden een enorme prikkel om het...
+- [Roxane van Iperen: ‘Big tech maakt fruitvliegjes van onze kinderen’](https://fd.nl/samenleving/1590967/roxane-van-iperen-big-tech-maakt-fruitvliegjes-van-onze-kinderen)
+  > Ons hoofd is met een zuignap verbonden aan mondiale techbedrijven, die ons leegzuigen om aan ons te verdienen, stelt Roxane van Iperen.
+- [Slijmen en schelden met Donnie](https://fd.nl/opinie/1590964/slijmen-en-schelden-met-donnie)
+  > Er is niks mis mee als u bij wijze van represaille Donald Trump voor al diens hersenloze geblunder waar ú last van heeft, onthaalt op een...
+- [Bob Deen: ‘Trump heeft regie over oorlog tegen Iran verloren’](https://fd.nl/politiek/1590837/bob-deen-trump-heeft-regie-over-oorlog-tegen-iran-verloren)
+  > Donald Trump zoekt een diplomatieke uitweg uit de oorlog tegen Iran. De Amerikaanse president begon aan de strijd zonder duidelijk doel voor ogen,...
 
 ### Meest gelezen
 
