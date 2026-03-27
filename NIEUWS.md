@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-03-2026 om 15:57*
+*Laatst bijgewerkt: 27-03-2026 om 17:02*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Politie houdt nog drie verdachten aan voor aanslag en voorgenomen explosie bij synagogen](https://nos.nl/l/2608071)
-  > De politie heeft gisteren in Rotterdam drie mannen opgepakt die ervan verdacht worden betrokken te zijn bij de explosie bij een synagoge in Rotterdam...
-- [Lokale partijen maakten deze verkiezingen geen opmars, maar bleven stabiel](https://nos.nl/l/2608068)
-  > Anders dan gedacht boekten lokale partijen vorige week bij de gemeenteraadsverkiezingen geen duidelijke winst, maar scoorden ze nagenoeg hetzelfde...
-- [Kabinet heeft weinig geld over op begroting om nieuwe crisis op te vangen](https://nos.nl/l/2608066)
-  > Het kabinet kan op papier opgelucht ademhalen: het begrotingstekort blijft volgend jaar met 2,9 procent net binnen de Europese begrotingsregels. Maar...
-- [Vrees neemt toe voor lange energiecrisis die ook Europa gaat raken](https://nos.nl/l/2608064)
-  > De hoop bij bedrijven en overheden op een snelle afloop van de energie-oorlog in de Golf neemt af. De vrees voor een langdurige energiecrisis met...
-- [Socialemediaverbod tot 14 jaar en lessen over online gevaren in Oostenrijk](https://nos.nl/l/2608061)
-  > De Oostenrijkse regering heeft plannen aangekondigd voor een verbod op sociale media voor kinderen tot 14 jaar. Ook worden lessen over mediawijsheid...
+- [Just Eat onderzocht vanwege mogelijk misleidende reviews bezorgrestaurants](https://nos.nl/l/2608080)
+  > De Britse toezichthouder CMA begint een onderzoek naar Just Eat, onderdeel van het concern achter het Nederlandse Thuisbezorgd. De waakhond wil weten...
+- [Hoe de vergeten categorie 'overig' het beeld van de verkiezingsuitslag nuanceert](https://nos.nl/l/2608078)
+  > Lokale partijen hebben bij de afgelopen gemeenteraadsverkiezingen geen duidelijke winst geboekt, maar zijn nagenoeg stabiel gebleven. De ruim 200...
+- [Kabinet wil politie extra bevoegdheden geven voor doorzoeken sociale media](https://nos.nl/l/2608076)
+  > Het kabinet wil dat de politie meer mogelijkheden heeft om in openbare informatie op sociale media en andere onlineplatforms informatie te...
+- [15 jaar cel voor Afghaanse asielzoeker die 12-jarig Brits meisje verkrachtte](https://nos.nl/l/2608075)
+  > In Groot-Brittannië is een Afghaanse asielzoeker veroordeeld tot een celstraf van vijftien jaar voor het verkrachten, ontvoeren en het maken van een...
+- [Nog drie verdachten aangehouden voor aanslag en voorgenomen explosie bij synagogen](https://nos.nl/l/2608071)
+  > De politie heeft gisteren drie mannen opgepakt die ervan verdacht worden betrokken te zijn bij de explosie bij een synagoge in Rotterdam en een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Maastricht langer in spanning: tanden van skelet leveren te weinig DNA om d’Artagnan te identificeren](https://www.ad.nl/binnenland/maastricht-langer-in-spanning-tanden-van-skelet-leveren-te-weinig-dna-om-dartagnan-te-identificeren~aeb221d5/)
-  > Is het gevonden skelet in Maastricht écht van musketier d’Artagnan? We moeten nog iets meer geduld hebben voordat we dat weten. De twee tanden die...
-- [Docent zwaargewond door steekvlam op school in Oosterhout, ook vier anderen hebben brandwonden](https://www.ad.nl/binnenland/docent-zwaargewond-door-steekvlam-op-school-in-oosterhout-ook-vier-anderen-hebben-brandwonden~addc70dd/)
-  > Op praktijkschool De Zwaaikom in Oosterhout heeft vrijdagochtend een ernstig ongeluk plaatsgevonden met een gasfles of kookplaat. Bij het bakken van...
-- [Jonas Vingegaard wint ingekorte vijfde etappe en leidt in de Ronde van Catalonië](https://www.ad.nl/wielrennen/jonas-vingegaard-wint-ingekorte-vijfde-etappe-en-leidt-in-de-ronde-van-catalonie~ac014c92/)
-  > Jonas Vingegaard (29) heeft de vijfde etappe van de Ronde van Catalonië gewonnen. De Deense kopman van Visma - Lease a Bike kwam op de Coll de Pal in...
-- [Kritiek op ‘laagste paasprijzen’ van Jumbo: Consumentenbond vindt campagne ‘te kort door de bocht’](https://www.ad.nl/economie/kritiek-op-laagste-paasprijzen-van-jumbo-consumentenbond-vindt-campagne-te-kort-door-de-bocht~a9b89b19/)
-  > De Consumentenbond vindt de claim van Jumbo dat het de laagste paasprijzen van Nederland heeft ‘te kort door de bocht’. Volgens de Consumentenbond...
-- [Drie spelers staan voor fraaie mijlpaal, tijdens duel met Noorwegen eerbetoon aan Johan Cruijff](https://www.ad.nl/voetbal/drie-spelers-staan-voor-fraaie-mijlpaal-tijdens-duel-met-noorwegen-eerbetoon-aan-johan-cruijff~aff9b6c7/)
-  > Het Nederlands elftal begint aan de voorbereiding voor het WK van deze zomer. De ploeg van Ronald Koeman oefent in de Johan Cruijff Arena tegen...
+- [Visboer weigert kibbeling te verkopen aan vrouw die nikab draagt. Mag dat zomaar?](https://www.ad.nl/binnenland/visboer-weigert-kibbeling-te-verkopen-aan-vrouw-die-nikab-draagt-mag-dat-zomaar~a84d3017d/)
+  > Een visboer die het vertikte om een nikab-dragende vrouw te helpen moet nu toch voor de rechter komen. Is er sprake van discriminatie, of mag hij een...
+- [Dit zit er achter de socialemediafilmpjes van Yesilgöz en Van den Brink](https://www.ad.nl/politiek/dit-zit-er-achter-de-socialemediafilmpjes-van-yesilgoz-en-van-den-brink~aff22bcf/)
+  > Alarmfase 1 in Den Haag? Of toch niet? Het kabinet en de Tweede Kamer worstelen met de vraag: wat-te-doen-met-de-gevolgen-van-de-oorlog-in-Iran? Een...
+- [Jong Oranje met Ouaissa en Zeefuik in cruciale wedstrijd tegen Jong Noorwegen](https://www.ad.nl/wk-voetbal/jong-oranje-met-ouaissa-en-zeefuik-in-cruciale-wedstrijd-tegen-jong-noorwegen~acd3c518/)
+  > Jong Oranje is slecht begonnen aan de kwalificatie voor het EK. De ploeg van Michael Reiziger heeft dus een hoop goed te maken tegen koploper Jong...
+- [Talkshow Pauw & De Wit is na de zomer ook op zondag te zien](https://www.ad.nl/show/talkshow-pauw-en-de-wit-is-na-de-zomer-ook-op-zondag-te-zien~a65757912/)
+  > De NPO 1-talkshow Pauw & De Wit is na de zomer niet alleen van maandag tot en met donderdag, maar ook op zondag te zien.
+- [‘Stiekem’ interviewt Evelien van de Jostiband DJ La Fuente over 5 mei: ‘Ik word best wel blij van jou’](https://www.ad.nl/show/stiekem-interviewt-evelien-van-de-jostiband-dj-la-fuente-over-5-mei-ik-word-best-wel-blij-van-jou~ab21d10c/)
+  > „Met heel veel energie mensen raken, met de muziek die we maken”, zo gaan La Fuente en Evelien van de Jostiband dit jaar Bevrijdingsdag vieren. Beide...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Randstad-ceo mag ondanks tegenvallende resultaten door van rvc en beleggers](https://fd.nl/bedrijfsleven/1591282/randstad-ceo-mag-ondanks-tegenvallende-resultaten-door-van-rvc-en-beleggers)
+  > Sander van ’t Noordende mag zich gaan opmaken voor een tweede termijn. Daarin moet hij bewijzen dat zijn strategie ook tot groei kan leiden.
+- [Landal en Dormio begraven strijdbijl over verkoop vakantieparken](https://fd.nl/bedrijfsleven/1591304/landal-en-dormio-begraven-strijdbijl-over-verkoop-vakantieparken)
+  > Het conflict over de overname van dertig vakantieparken is bijgelegd, zo blijkt uit een persbericht van beide bedrijven.
+- [IEA: ontkoppel gas- en stroomprijs](https://fd.nl/economie/1591303/iea-ontkoppel-gas-en-stroomprijs)
+  > De Europese Unie moet overwegen de koppeling tussen gas- en elektriciteitsprijzen los te laten om de economische schade van de oorlog met Iran te...
 - [Pernod Ricard en moederbedrijf van Jack Daniel’s overwegen fusie](https://fd.nl/bedrijfsleven/1591283/pernod-ricard-en-moederbedrijf-van-jack-daniels-overwegen-fusie)
   > Het familiebedrijf Brown-Forman wilde het concern altijd in eigen handen houden. De aanhoudende malaise op de drankenmarkt lijkt ze van gedachten te...
 - [Moederbedrijf Zwitserleven vertrekt uit Bermuda](https://fd.nl/financiele-markten/1591382/moederbedrijf-zwitserleven-vertrekt-uit-bermuda)
   > Athora wil in 2027 naar Londen verhuizen.
-- [Tekort schuurt tegen drempelwaarde van 3%, en dat is nog zonder een Iran‑effect](https://fd.nl/politiek/1591076/tekort-schuurt-tegen-drempelwaarde-van-3-en-dat-is-nog-zonder-een-iraneffect)
-  > Het begrotingstekort loopt fors op door stijgende defensie-uitgaven. Zelfs als alle bezuinigingen lukken en als de economische effecten van ‘Iran’...
-- [Heliumschaarste en inkopers tonen dat inflatiedruk toeneemt](https://fd.nl/financiele-markten/1591381/heliumschaarste-en-inkopers-tonen-dat-inflatiedruk-toeneemt)
-  > De prijs van een vat ruwe olie zegt lang niet alles over de inflatie. De toeleveringsketens zijn na vier weken oorlog al danig ontregeld. Elke dag...
-- [Wat is de zomertijdwinst?](https://fd.nl/financiele-markten/1590979/wat-is-de-zomertijdwinst)
-  > Sinds 1977 zetten we de klok vooruit en achteruit. Om energie te besparen. Maar uit een reeks onderzoeken blijkt dat die besparing nihil is.
 
 ### Meest gelezen
 
