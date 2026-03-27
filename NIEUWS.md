@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-03-2026 om 13:16*
+*Laatst bijgewerkt: 27-03-2026 om 14:55*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Kabinet heeft weinig geld over op begroting om nieuwe crisis op te vangen](https://nos.nl/l/2608066)
+  > Het kabinet kan op papier opgelucht ademhalen: het begrotingstekort blijft volgend jaar met 2,9 procent net binnen de Europese begrotingsregels. Maar...
+- [Vrees neemt toe voor lange energiecrisis die ook Europa gaat raken](https://nos.nl/l/2608064)
+  > De hoop bij bedrijven en overheden op een snelle afloop van de energie-oorlog in de Golf neemt af. De vrees voor een langdurige energiecrisis met...
+- [Socialemediaverbod tot 14 jaar en lessen over online gevaren in Oostenrijk](https://nos.nl/l/2608061)
+  > De Oostenrijkse regering heeft plannen aangekondigd voor een verbod op sociale media voor kinderen tot 14 jaar. Ook worden lessen over mediawijsheid...
+- [Hardloopster in Waalre slachtoffer van ernstig geweld, politie zoekt getuigen](https://nos.nl/l/2608058)
+  > De politie is op zoek naar getuigen van een ernstig geweldsdelict waarvan een jonge vrouw uit Veldhoven dinsdagavond slachtoffer is geworden. Ze ging...
 - [Limburgse fruittelers beschermen bloemknoppen tegen maartse nachtvorst](https://nos.nl/l/2608056)
   > Wie vanmorgen vroeg de auto wilde pakken, heeft het misschien wel gemerkt: het heeft op verschillende plekken in het land gevroren en dus moesten de...
-- [Woonwebwinkel Fonq failliet verklaard](https://nos.nl/l/2608052)
-  > Fonq Group is failliet. Dat laat het Nederlandse bedrijf achter de woonwebshops Fonq en Naduvi weten. Ruim een week geleden werd al uitstel van...
-- [VN: mogelijk oorlogsmisdaden gepleegd bij bloedbad Syrische provincie Sweida](https://nos.nl/l/2608051)
-  > Bij een week vol geweld in de Syrische provincie Sweida zijn vorig jaar zeker 1700 mensen gedood. Er zijn daar mogelijk oorlogsmisdaden gepleegd,...
-- [Brandwonden na explosie op praktijkschool in Oosterhout](https://nos.nl/l/2608050)
-  > Op een praktijkschool in het Brabantse Oosterhout zijn vijf mensen gewond geraakt. Ze hebben allemaal brandwonden opgelopen bij een gasexplosie. 
-   ...
-- [Vijf mensen opgepakt voor internationale drugshandel](https://nos.nl/l/2608049)
-  > In Rotterdam en het Brabantse Hazeldonk zijn vijf mensen gearresteerd op verdenking van het leiden van een criminele organisatie, internationale...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dierbaren herdenken Loretta Schrijver op haar eerste sterfdag: ‘Leven is een stuk minder gezellig zonder jou’](https://www.ad.nl/show/dierbaren-herdenken-loretta-schrijver-op-haar-eerste-sterfdag-leven-is-een-stuk-minder-gezellig-zonder-jou~a046197a/)
-  > Het is vrijdag precies een jaar geleden dat Loretta Schrijver haar laatste adem uitblies. De presentatrice, die 68 jaar oud werd, stierf op 27 maart...
-- [Carlo neemt met dikke tranen afscheid van huisdier en Eva en Raven zijn gek op elkaar](https://www.ad.nl/show/carlo-neemt-met-dikke-tranen-afscheid-van-huisdier-en-eva-en-raven-zijn-gek-op-elkaar~a0eeb3b5/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Doek valt voor webshop Fonq, 100 medewerkers vrezen voor baan: ‘Nachtmerries op werk’](https://www.ad.nl/economie/doek-valt-voor-webshop-fonq-100-medewerkers-vrezen-voor-baan-nachtmerries-op-werk~af7ccd5d/)
-  > De bekende online woonwinkel Fonq is failliet. Terwijl curatoren zoeken naar een doorstart, vrezen ruim honderd medewerkers voor hun baan. Achter de...
-- [Ronde van Catalonië kort ook vijfde etappe in: slotklim ruim twee kilometer korter](https://www.ad.nl/wielrennen/ronde-van-catalonie-kort-ook-vijfde-etappe-in-slotklim-ruim-twee-kilometer-korter~aed0c4fa/)
-  > De vijfde etappe van de Ronde van Catalonië van vrijdag is in verband met de weersverwachtingen aangepast.
-- [78-jarige voormalig bondscoach keert terug als trainer in Engeland, NAC laat clubicoon vertrekken](https://www.ad.nl/voetbal/78-jarige-voormalig-bondscoach-keert-terug-als-trainer-in-engeland-nac-laat-clubicoon-vertrekken~a35ea681/)
-  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
+- [‘Je kunt beter een grote naam hebben als lijsttrekker dan een goede naam als partij’](https://www.ad.nl/binnenland/je-kunt-beter-een-grote-naam-hebben-als-lijsttrekker-dan-een-goede-naam-als-partij~adcb3516/)
+  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag leggen we lezers de volgende kwestie voor: de naam PRO past goed bij een...
+- [Feyenoor­der Jordan Bos helpt Australië met doelpunt vlak voor tijd aan zege op Kameroen](https://www.ad.nl/voetbal/feyenoorder-jordan-bos-helpt-australie-met-doelpunt-vlak-voor-tijd-aan-zege-op-kameroen~aea7343b/)
+  > Feyenoorder Jordan Bos heeft Australië aan de zege op Kameroen geholpen in een vriendschappelijke wedstrijd: 1-0. Het duel in Sydney vond plaats in...
+- [Daan de Launay & Beau van Erven Dorens: ‘De kinderen gaan voor alles, hun verdriet gaat voor het mijne’](https://www.ad.nl/show/daan-de-launay-en-beau-van-erven-dorens-de-kinderen-gaan-voor-alles-hun-verdriet-gaat-voor-het-mijne~ae2fd405/)
+  > Hoewel ze al jaren samen in Mezza staan, hebben columnisten Beau van Erven Dorens en Daan de Launay elkaar nooit ontmoet. In dit interview duiken ze...
+- [OM eist in hoger beroep 17 jaar en 9 maanden cel tegen Haagse godfather Piet S.: ‘De spin in het web’](https://www.ad.nl/den-haag/om-eist-in-hoger-beroep-17-jaar-en-9-maanden-cel-tegen-haagse-godfather-piet-s-de-spin-in-het-web~a49da90b/)
+  > Tegen de Haagse godfather Piet S. (69) is in hoger beroep een celstraf van 17 jaar en 9 maanden geëist voor jarenlange drugshandel en witwassen. „Het...
+- [Telefoongebruik komt Memphis Depay mogelijk duur te staan: flinke schorsing en boete dreigt](https://www.ad.nl/voetbal/telefoongebruik-komt-memphis-depay-mogelijk-duur-te-staan-flinke-schorsing-en-boete-dreigt~ae902b66/)
+  > Een nieuwe tegenslag dreigt voor Memphis Depay. De aanvaller viel afgelopen weekend geblesseerd uit en mist daardoor de oefeninterlands met Oranje....
 
 ### Meest gelezen
 
@@ -47,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Groen licht voor overname Veghelse aannemer Van de Beeten](https://fd.nl/bedrijfsleven/1591178/groen-licht-voor-overname-veghelse-aannemer-van-de-beeten)
+  > Met de komst van Mentha zegt het snel gegroeide familiebedrijf bewust te kiezen voor een volgende fase van groei en verdere professionalisering.
 - [‘Moederskindje’ Vaarzon Morel brengt ode aan traditionele flamenco](https://fd.nl/bedrijfsleven/1588585/moederskindje-vaarzon-morel-brengt-ode-aan-traditionele-flamenco)
   > Ik moet naar Spanje, wist gitarist Eric Vaarzon Morel al op jonge leeftijd. Alleen daar kon hij de sfeer van de flamenco echt ervaren. Komende...
 - [Vliegen zonder kerosine komt eraan, leg het laadpalennetwerk langs de landingsbaan maar aan](https://fd.nl/opinie/1590679/vliegen-zonder-kerosine-komt-eraan-leg-het-laadpalennetwerk-langs-de-landingsbaan-maar-aan)
@@ -55,8 +56,6 @@
   > De oorlog in het Midden-Oosten kan het toch al wankelende vertrouwen in de dollar een extra klap geven, waarschuwen economen, nu de VS niet in staat...
 - [Vertrouwen exporteurs op laagste punt in zestien jaar tijd](https://fd.nl/bedrijfsleven/1590839/vertrouwen-exporteurs-naar-diepste-punt-in-zestien-jaar-tijd)
   > Voor 2025 rekenden exporteurs op een groei van de uitvoer van 6%. Daarvan hebben ze maar de helft kunnen realiseren. Een vijfde van de exporteurs...
-- [‘Pentagon overweegt 10.000 militairen naar Midden-Oosten te sturen’](https://fd.nl/politiek/1590978/pentagon-overweegt-10-000-militairen-naar-midden-oosten-te-sturen)
-  > De VS houden hun opties open, mochten onderhandelingen met Iran mislukken. Trump wist de markten niet te kalmeren met zijn aankondiging om aanvallen...
 
 ### Meest gelezen
 
