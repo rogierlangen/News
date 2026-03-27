@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-03-2026 om 17:02*
+*Laatst bijgewerkt: 27-03-2026 om 19:01*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Just Eat onderzocht vanwege mogelijk misleidende reviews bezorgrestaurants](https://nos.nl/l/2608080)
-  > De Britse toezichthouder CMA begint een onderzoek naar Just Eat, onderdeel van het concern achter het Nederlandse Thuisbezorgd. De waakhond wil weten...
-- [Hoe de vergeten categorie 'overig' het beeld van de verkiezingsuitslag nuanceert](https://nos.nl/l/2608078)
-  > Lokale partijen hebben bij de afgelopen gemeenteraadsverkiezingen geen duidelijke winst geboekt, maar zijn nagenoeg stabiel gebleven. De ruim 200...
-- [Kabinet wil politie extra bevoegdheden geven voor doorzoeken sociale media](https://nos.nl/l/2608076)
-  > Het kabinet wil dat de politie meer mogelijkheden heeft om in openbare informatie op sociale media en andere onlineplatforms informatie te...
-- [15 jaar cel voor Afghaanse asielzoeker die 12-jarig Brits meisje verkrachtte](https://nos.nl/l/2608075)
-  > In Groot-Brittannië is een Afghaanse asielzoeker veroordeeld tot een celstraf van vijftien jaar voor het verkrachten, ontvoeren en het maken van een...
-- [Nog drie verdachten aangehouden voor aanslag en voorgenomen explosie bij synagogen](https://nos.nl/l/2608071)
-  > De politie heeft gisteren drie mannen opgepakt die ervan verdacht worden betrokken te zijn bij de explosie bij een synagoge in Rotterdam en een...
+- [Zes tieners opgepakt voor gefilmde mishandelingen in Zeeland](https://nos.nl/l/2608106)
+  > Zes tieners zijn afgelopen week aangehouden voor het mishandelen en intimideren van jongeren in Vlissingen en Oost-Souburg. De verdachten filmden hun...
+- [Wisselvallig weekeinde, meeste regen valt in de nacht](https://nos.nl/l/2608102)
+  > Het weer ziet er dit weekeinde wisselvallig uit, maar we hebben geluk. Overdag is het vaak wel droog en schijnt de zon ook geregeld. Het blijft vrij...
+- [Rusland merkt Oscar-winnende documentairemaker aan als 'buitenlandse agent'](https://nos.nl/l/2608101)
+  > Pavel Talankin, maker van de Oscarwinnende documentaire Mr. Nobody against Putin, is door Rusland bestempeld als 'buitenlandse agent'.
+        Russen...
+- [Duizenden belletjes naar 112 onbedoeld of zonder spoed, groot deel vanuit auto](https://nos.nl/l/2608100)
+  > Ongeveer één op de drie belletjes naar het noodnummer 112 is onbedoeld of heeft geen spoed, blijkt uit cijfers van de politie. Een groot deel kwam...
+- [Eis: zeven jaar cel voor Naaldwijkse die kinderen meenam naar IS-gebied](https://nos.nl/l/2608097)
+  > Het Openbaar Ministerie heeft zeven jaar cel geëist tegen een vrouw die in 2014 met haar twee minderjarige kinderen naar Syrië was afgereisd om zich...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Visboer weigert kibbeling te verkopen aan vrouw die nikab draagt. Mag dat zomaar?](https://www.ad.nl/binnenland/visboer-weigert-kibbeling-te-verkopen-aan-vrouw-die-nikab-draagt-mag-dat-zomaar~a84d3017d/)
-  > Een visboer die het vertikte om een nikab-dragende vrouw te helpen moet nu toch voor de rechter komen. Is er sprake van discriminatie, of mag hij een...
-- [Dit zit er achter de socialemediafilmpjes van Yesilgöz en Van den Brink](https://www.ad.nl/politiek/dit-zit-er-achter-de-socialemediafilmpjes-van-yesilgoz-en-van-den-brink~aff22bcf/)
-  > Alarmfase 1 in Den Haag? Of toch niet? Het kabinet en de Tweede Kamer worstelen met de vraag: wat-te-doen-met-de-gevolgen-van-de-oorlog-in-Iran? Een...
-- [Jong Oranje met Ouaissa en Zeefuik in cruciale wedstrijd tegen Jong Noorwegen](https://www.ad.nl/wk-voetbal/jong-oranje-met-ouaissa-en-zeefuik-in-cruciale-wedstrijd-tegen-jong-noorwegen~acd3c518/)
-  > Jong Oranje is slecht begonnen aan de kwalificatie voor het EK. De ploeg van Michael Reiziger heeft dus een hoop goed te maken tegen koploper Jong...
-- [Talkshow Pauw & De Wit is na de zomer ook op zondag te zien](https://www.ad.nl/show/talkshow-pauw-en-de-wit-is-na-de-zomer-ook-op-zondag-te-zien~a65757912/)
-  > De NPO 1-talkshow Pauw & De Wit is na de zomer niet alleen van maandag tot en met donderdag, maar ook op zondag te zien.
-- [‘Stiekem’ interviewt Evelien van de Jostiband DJ La Fuente over 5 mei: ‘Ik word best wel blij van jou’](https://www.ad.nl/show/stiekem-interviewt-evelien-van-de-jostiband-dj-la-fuente-over-5-mei-ik-word-best-wel-blij-van-jou~ab21d10c/)
-  > „Met heel veel energie mensen raken, met de muziek die we maken”, zo gaan La Fuente en Evelien van de Jostiband dit jaar Bevrijdingsdag vieren. Beide...
+- [Ria Valk: ‘Mocht de kanker opnieuw terugkomen, dan laat ik er nu niks meer aan doen’](https://www.ad.nl/gezond/ria-valk-mocht-de-kanker-opnieuw-terugkomen-dan-laat-ik-er-nu-niks-meer-aan-doen~a2ce054e/)
+  > Ria Valk (85) dacht dat ze na haar 75ste nooit meer die ‘afschuwelijke’ mammografie ter controle voor borstkanker moest ondergaan, maar kreeg toch de...
+- [LIVE Oranje | Kees Smit debuteert in de basis bij Oranje, Teun Koopmeiners krijgt rol in de aanval](https://www.ad.nl/voetbal/live-oranje-kees-smit-debuteert-in-de-basis-bij-oranje-teun-koopmeiners-krijgt-rol-in-de-aanval~aff9b6c7/)
+  > Het Nederlands elftal begint aan de voorbereiding voor het WK van deze zomer. De ploeg van Ronald Koeman oefent in de Johan Cruijff Arena tegen...
+- [Dreun voor Jong Oranje in blessuretijd: EK raakt uit zicht na pijnlijke nederlaag in Noorwegen](https://www.ad.nl/wk-voetbal/dreun-voor-jong-oranje-in-blessuretijd-ek-raakt-uit-zicht-na-pijnlijke-nederlaag-in-noorwegen~acd3c518/)
+  > Jong Oranje ziet deelname aan het EK van volgend jaar verder uit zicht verdwijnen. De ploeg van Michael Reiziger moest winnen van Jong Noorwegen om...
+- [AZ-talent Kees Smit start in de basis bij Oranje: 33ste debutant onder bondscoach Ronald Koeman](https://www.ad.nl/voetbal/az-talent-kees-smit-start-in-de-basis-bij-oranje-33ste-debutant-onder-bondscoach-ronald-koeman~afd39430/)
+  > Kees Smit begint om 20.45 uur met het Nederlands elftal aan de oefeninterland tegen Noorwegen. De 20-jarige middenvelder van AZ debuteert als...
+- [Alleen de echte nieuwsjunk maakt deze wekelijkse quiz foutloos](https://www.ad.nl/quiz/alleen-de-echte-nieuwsjunk-maakt-deze-wekelijkse-quiz-foutloos~a1ac53ef/)
+  > Deze week was het hoger beroep in de verkrachtingszaak rond Ali B en maakte GroenLinks-PvdA de nieuwe naam bekend. Maar er gebeurde nog veel meer....
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Randstad-ceo mag ondanks tegenvallende resultaten door van rvc en beleggers](https://fd.nl/bedrijfsleven/1591282/randstad-ceo-mag-ondanks-tegenvallende-resultaten-door-van-rvc-en-beleggers)
-  > Sander van ’t Noordende mag zich gaan opmaken voor een tweede termijn. Daarin moet hij bewijzen dat zijn strategie ook tot groei kan leiden.
-- [Landal en Dormio begraven strijdbijl over verkoop vakantieparken](https://fd.nl/bedrijfsleven/1591304/landal-en-dormio-begraven-strijdbijl-over-verkoop-vakantieparken)
-  > Het conflict over de overname van dertig vakantieparken is bijgelegd, zo blijkt uit een persbericht van beide bedrijven.
-- [IEA: ontkoppel gas- en stroomprijs](https://fd.nl/economie/1591303/iea-ontkoppel-gas-en-stroomprijs)
-  > De Europese Unie moet overwegen de koppeling tussen gas- en elektriciteitsprijzen los te laten om de economische schade van de oorlog met Iran te...
-- [Pernod Ricard en moederbedrijf van Jack Daniel’s overwegen fusie](https://fd.nl/bedrijfsleven/1591283/pernod-ricard-en-moederbedrijf-van-jack-daniels-overwegen-fusie)
-  > Het familiebedrijf Brown-Forman wilde het concern altijd in eigen handen houden. De aanhoudende malaise op de drankenmarkt lijkt ze van gedachten te...
-- [Moederbedrijf Zwitserleven vertrekt uit Bermuda](https://fd.nl/financiele-markten/1591382/moederbedrijf-zwitserleven-vertrekt-uit-bermuda)
-  > Athora wil in 2027 naar Londen verhuizen.
+- [Leeftijdsgrens is imperfecte maar noodzakelijke maatregel](https://fd.nl/opinie/1590840/leeftijdsgrens-is-imperfecte-maar-noodzakelijke-maatregel)
+  > Het temmen van big tech is een taaie klus. Een leeftijdsgrens kan een doorbraak forceren.
+- [De kosmische timing van de SpaceX-beursgang is misschien toch niet zo goed](https://fd.nl/financiele-markten/1590222/de-kosmische-timing-van-de-spacex-beursgang-is-misschien-toch-niet-zo-goed)
+  > SpaceX wil met zijn beursgang alle records breken. Het bedrijf mikt op een debuut in juni, volgens ceo Musk omdat Jupiter en Venus dan dicht bij...
+- [Trump zoekt met ‘Taco’ weg uit oorlog, maar beleggers zien dat Iran niet hapt](https://fd.nl/financiele-markten/1590970/trump-zoekt-met-taco-weg-uit-oorlog-maar-beleggers-zien-dat-iran-niet-hapt)
+  > Donald Trump zocht plotseling toenadering in de oorlog in het Midden-Oosten, maar nam inflatiezorgen onder beleggers niet weg.
+- [HAL breidt belang in biologische gewasbeschermer Koppert uit](https://fd.nl/bedrijfsleven/1591390/hal-breidt-belang-in-biologische-gewasbeschermer-koppert-uit)
+  > De investeringsmaatschappij heeft in november 27,3% van de aandelen in het bedrijf gekocht, zo blijkt uit de jaarcijfers die vrijdag nabeurs werden...
+- [Kabinet wil advies bedrijfsarts leidend maken bij re-integratie zieke werknemer](https://fd.nl/politiek/1591389/kabinet-wil-advies-bedrijfsarts-leidend-maken-bij-re-integratie-zieke-werknemer)
+  > Het nieuwe wetsvoorstel moet een einde maken aan onzekerheid bij werkgevers en helpen bij wachttijden UWV.
 
 ### Meest gelezen
 
