@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-03-2026 om 02:47*
+*Laatst bijgewerkt: 27-03-2026 om 05:11*
 
 ---
 
@@ -29,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Zwangere vrouwen met obesitas steeds vaker in de gevarenzone: ‘Gevolgen voor kind nemen toe’](https://www.ad.nl/binnenland/zwangere-vrouwen-met-obesitas-steeds-vaker-in-de-gevarenzone-gevolgen-voor-kind-nemen-toe~a348874f/)
-  > Obesitas onder zwangere vrouwen vormt een groeiend probleem in de westerse samenleving, blijkt uit Frans onderzoek. Nederlandse artsen herkennen het...
-- [Voetbalpodcast | ‘Ronald Koeman gaf een serieuze en duidelijke boodschap aan Memphis Depay’](https://www.ad.nl/voetbal/voetbalpodcast-ronald-koeman-gaf-een-serieuze-en-duidelijke-boodschap-aan-memphis-depay~ac8603a9/)
-  > Het Nederlands elftal oefent vanavond, op weg naar het WK van komende zomer, tegen Noorwegen. Bondscoach Ronald Koeman mist een groot gedeelte van...
-- [WK-droom Suriname spat uiteen: hitte in Monterrey nekt team van Henk ten Cate](https://www.ad.nl/wk-voetbal/wk-droom-suriname-spat-uiteen-hitte-in-monterrey-nekt-team-van-henk-ten-cate~a0b2918e/)
-  > Suriname heeft zich niet kunnen plaatsen voor het WK 2026. Bij de eerste wedstrijd onder bondscoach Henk ten Cate ging ‘Natio’ met 2-1 onderuit tegen...
-- [Amerikaanse dollarbiljetten krijgen handtekening Trump, primeur voor zittende president](https://www.ad.nl/buitenland/amerikaanse-dollarbiljetten-krijgen-handtekening-trump-primeur-voor-zittende-president~ae67dd9c/)
-  > De handtekening van de Amerikaanse president Donald Trump komt op het briefgeld in het land te staan. Dat heeft het ministerie van Financiën...
-- [Rode kaart deert Frankrijk niet: tiental te sterk voor Brazilië in oefenduel](https://www.ad.nl/wk-voetbal/rode-kaart-deert-frankrijk-niet-tiental-te-sterk-voor-brazilie-in-oefenduel~a621ee56/)
-  > Frankrijk heeft een oefeninterland in het Amerikaanse Foxborough tegen Brazilië gewonnen. Les Bleus speelden lange tijd met tien man, maar waren toch...
+- [Ruzie, splitsing en lege stoelen: moeizame entree van FvD’ers in de gemeenteraad](https://www.ad.nl/politiek/ruzie-splitsing-en-lege-stoelen-moeizame-entree-van-fvders-in-de-gemeenteraad~a03d6512/)
+  > Tumult, interne strijd en afwezigheid: een week na de gemeenteraadsverkiezingen is het alweer hommeles bij Forum voor Democratie. De partij die bijna...
+- [Ze hebben zelfs een minimuseum in hun villa: vrouw van Lionel Messi onthult opvallende hobby](https://www.ad.nl/voetbal/ze-hebben-zelfs-een-minimuseum-in-hun-villa-vrouw-van-lionel-messi-onthult-opvallende-hobby~a7d49d0a/)
+  > Het hoeft niet alleen maar om voetbal te gaan. Het huis van Lionel Messi (38) biedt ook plaats aan een klein museum vol legocreaties. Het is geen...
+- [Jurre (9) scoort zijn eerste doelpunt na kanker: ‘Ik gaf papa een hele dikke kroel’](https://www.ad.nl/binnenland/jurre-9-scoort-zijn-eerste-doelpunt-na-kanker-ik-gaf-papa-een-hele-dikke-kroel~a29d9284/)
+  > Toen Jurre Schouwstra (9) twee weken geleden zijn eerste doelpunt maakte, wist hij precies wat hij moest doen. Hij rende niet naar de cornervlag of...
+- [Mogelijk grote drankenfusie in de maak: Pernod Ricard en producent Jack Daniel’s bevestigen gesprekken](https://www.ad.nl/economie/mogelijk-grote-drankenfusie-in-de-maak-pernod-ricard-en-producent-jack-daniels-bevestigen-gesprekken~a033a7d9/)
+  > De Franse sterkedrankengroep Pernod Ricard en de Amerikaanse sectorgenoot Brown-Forman, bekend van onder meer Jack Daniel’s-whisky, zijn in gesprek...
+- [Max Verstappen speelt marginale rol in eerste vrije training, Mercedes-motoren maken indruk in Japan](https://www.ad.nl/formule-1/max-verstappen-speelt-marginale-rol-in-eerste-vrije-training-mercedes-motoren-maken-indruk-in-japan~a0617830/)
+  > Max Verstappen heeft bij de eerste vrije training voor de Grand Prix van Japan genoegen moeten nemen met een zevende tijd. De Nederlander was in zijn...
 
 ### Meest gelezen
 
@@ -48,16 +48,16 @@
 
 ### Laatste nieuws
 
+- [Nederlanders bouwen alternatieven voor big tech: ‘Als ik het niet doe, wie dan wel?’](https://fd.nl/tech-en-innovatie/1590822/nederlanders-bouwen-alternatieven-voor-big-tech-als-ik-het-niet-doe-wie-dan-wel)
+  > Met de onberekenbare Donald Trump in het Witte Huis is afhankelijkheid van Amerikaanse tech een schrikbeeld geworden. Drie Nederlandse ondernemers...
+- [Ruzie van Bart Jan en Egon gaat over miljoenen, maar is nog veel meer een strijd tussen gebutste ego’s](https://fd.nl/samenleving/1590239/ruzie-van-bart-jan-en-egon-gaat-over-miljoenen-maar-is-nog-veel-meer-een-strijd-tussen-gebutste-egos)
+  > Twee mannen zitten voor de vierde keer bij de Ondernemingskamer. Ze zijn aandeelhouders in een vastgoedmaatschappij en willen van elkaar af. Maar er...
+- [Action gaat Amerika bestormen](https://fd.nl/economie/1590947/action-gaat-amerika-bestormen)
+  > Vandaag in Dagkoers: Action waagt de sprong naar de VS, superrijken trekken naar Milaan & horeca in musea is van steeds hogere kwaliteit
 - [Oorlog en plastic](https://fd.nl/opinie/1590833/oorlog-en-plastic)
   > Helaas heeft het kabinet-Schoof veel van de Nederlandse plasticrecyclers harteloos failliet laten gaan.
 - [Personalia vrijdag 27 maart](https://fd.nl/bedrijfsleven/1590823/personalia-vrijdag-27-maart)
   > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Ach gut, links heeft een nieuw logo](https://fd.nl/opinie/1590703/ach-gut-links-heeft-een-nieuw-logo)
-  > Ben ik een electorale prooi voor fusiepartij ‘Pro’? Wellicht, als progressief staat voor vooruitstrevend. Maar kijk goed naar het stemgedrag: ze...
-- [Aanhoudende uitstroom zadelt private credit op met liquiditeitszorgen](https://fd.nl/financiele-markten/1590693/aanhoudende-uitstroom-zadelt-private-credit-op-met-liquiditeitszorgen)
-  > Steeds meer particuliere beleggers botsen op opnamelimieten bij privatecreditfondsen. Die limieten zijn er om de fondsen en beleggers te beschermen,...
-- [Loonkostensubsidie levert in meeste gevallen voldoende inkomen op](https://fd.nl/samenleving/1590825/loonkostensubsidie-levert-in-meeste-gevallen-voldoende-inkomen-op)
-  > Loonkostensubsidie is in veel gevallen voldoende om arbeidsbeperkten uit de bijstand te houden
 
 ### Meest gelezen
 
