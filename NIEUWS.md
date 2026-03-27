@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-03-2026 om 21:40*
+*Laatst bijgewerkt: 27-03-2026 om 22:37*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Wisselende reacties op nieuwe naam GL-PvdA: 'Dit zorgt voor verwarring'](https://nos.nl/l/2608126)
+  > Lokale politieke partijen reageren wisselend op de aankondiging dat GroenLinks-PvdA een nieuwe naam krijgt. De oppositiepartij wil verder onder de...
 - [Voor Pakistan is bemiddelen tussen de Iran en VS heel logisch](https://nos.nl/l/2608122)
   > Vertegenwoordigers van de Verenigde Staten en Iran staan op het punt om elkaar te ontmoeten om te proberen de oorlog te beëindigen. Dat zei de Duitse...
 - [In hoger beroep straffen tot ruim 17 jaar geëist tegen drugsbende Piet S.](https://nos.nl/l/2608118)
@@ -16,8 +18,6 @@
   > Mona Keijzer keert BBB definitief de rug toe en zegt haar lidmaatschap op. Dit maakte ze bekend vlak voor de stemming over een motie voor een...
 - [Onlineplatform Europese Commissie gehackt, data buitgemaakt](https://nos.nl/l/2608112)
   > Het onlineplatform van de Europese Commissie (EC) is deze week aangevallen door hackers. Daarbij zijn data gestolen, maar de omvang van de hack is...
-- [PlayStations worden stuk duurder door chiptekorten en oorlog](https://nos.nl/l/2608107)
-  > De prijs van PlayStation-spelcomputers stijgt de komende weken flink, heeft producent Sony bekendgemaakt. Dat heeft waarschijnlijk te maken met een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Test Mercedes-Benz CLA: technisch top, maar niet zo ruim](https://www.ad.nl/auto/test-mercedes-benz-cla-technisch-top-maar-niet-zo-ruim~a7142063/)
-  > De Mercedes CLA is bij de nieuwe generatie voor het eerst ook volledig elektrisch verkrijgbaar. Met zijn geavanceerde technologie zet hij bij deze...
-- [78-jarige voormalig bondscoach keert terug als trainer in Engeland, PEC verlengt met keeper](https://www.ad.nl/voetbal/78-jarige-voormalig-bondscoach-keert-terug-als-trainer-in-engeland-pec-verlengt-met-keeper~a35ea681/)
-  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
-- [Duitsland wéér op voorsprong in duel met Zwitserland, Marokko op achterstand tegen Ecuador](https://www.ad.nl/wk-voetbal/duitsland-weer-op-voorsprong-in-duel-met-zwitserland-marokko-op-achterstand-tegen-ecuador~af6d1b1e/)
-  > Naast het Nederlands elftal zijn er voldoende oefeninterlands op vrijdagavond. Zo komen Engeland, Duitsland, Spanje en de kersverse Afrika...
-- [Tiger Woods slaat met auto over de kop: golflegende gearresteerd voor rijden onder invloed](https://www.ad.nl/andere-sporten/tiger-woods-slaat-met-auto-over-de-kop-golflegende-gearresteerd-voor-rijden-onder-invloed~a75f6617/)
-  > Tiger Woods is vrijdag gearresteerd nadat hij een auto-ongeluk had veroorzaakt in de plaats Jupiter in de Amerikaanse staat Florida. De 50-jaige...
-- [Britney Spears keert na arrestatie terug op Instagram, samen met zoon](https://www.ad.nl/show/britney-spears-keert-na-arrestatie-terug-op-instagram-samen-met-zoon~ae829692/)
-  > Britney Spears heeft voor het eerst sinds haar arrestatie begin deze maand weer van zich laten horen. De zangeres plaatste vrijdag twee filmpjes op...
+- [Duitsland wint na spektakelstuk voor het eerst in 18 jaar van Zwitserland, Marokko speelt gelijk tegen Ecuador](https://www.ad.nl/wk-voetbal/duitsland-wint-na-spektakelstuk-voor-het-eerst-in-18-jaar-van-zwitserland-marokko-speelt-gelijk-tegen-ecuador~af6d1b1e/)
+  > Naast het Nederlands elftal werden er vrijdagavond voldoende andere spannende oefeninterlands gespeeld. Zo won Duitsland in een waar spektakelstuk...
+- [‘Niemand wist dat ik daar lag’: Tom Pidcock komt met schrik vrij na ‘horrorval’ in ravijn](https://www.ad.nl/wielrennen/niemand-wist-dat-ik-daar-lag-tom-pidcock-komt-met-schrik-vrij-na-horrorval-in-ravijn~a879bba6/)
+  > Tom Pidcock (26) is in de koninginnenetappe van de Ronde van Catalonië met de schrik vrijgekomen. In de afdaling van de slotklim reed hij een ravijn...
+- [Kees Smit zelfkritisch na debuut: ‘Mensen verwachten veel van mij, ik probeer dat waar te maken’](https://www.ad.nl/voetbal/kees-smit-zelfkritisch-na-debuut-mensen-verwachten-veel-van-mij-ik-probeer-dat-waar-te-maken~afd39430/)
+  > Kees Smit maakte vrijdagavond zijn debuut als international, in de oefeninterland tegen Noorwegen. De 20-jarige middenvelder van AZ stond in de basis...
+- [Oranje op rapport | Grootste uitblinker staat in voorhoede, magere voldoende voor debutant Kees Smit](https://www.ad.nl/voetbal/oranje-op-rapport-grootste-uitblinker-staat-in-voorhoede-magere-voldoende-voor-debutant-kees-smit~a315d18c6/)
+  > Een solide defensie, een zoekende debutant en een uitblinker in de voorhoede. Dit zijn onze cijfers na het gelijkspel van het Nederlands elftal tegen...
+- [Oranje begint WK-jaar met zege op Noorwegen, vleugelaanvallers Gakpo en Koopmeiners vallen op](https://www.ad.nl/voetbal/oranje-begint-wk-jaar-met-zege-op-noorwegen-vleugelaanvallers-gakpo-en-koopmeiners-vallen-op~aff9b6c7/)
+  > Met een verdiende overwinning op Noorwegen begon Oranje vrijdagavond in de Johan Cruijff Arena aan zijn voorbereiding op het WK 2026. Dat zegt nog...
 
 ### Meest gelezen
 
