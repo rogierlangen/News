@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-03-2026 om 11:43*
+*Laatst bijgewerkt: 27-03-2026 om 13:16*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Meerdere gewonden op school in Oosterhout, mogelijk na explosie](https://nos.nl/l/2608050)
-  > Op een school in het Brabantse Oosterhout zijn vijf mensen gewond geraakt. Dat is volgens de Veiligheidsregio gebeurd bij het pannenkoeken bakken....
+- [Limburgse fruittelers beschermen bloemknoppen tegen maartse nachtvorst](https://nos.nl/l/2608056)
+  > Wie vanmorgen vroeg de auto wilde pakken, heeft het misschien wel gemerkt: het heeft op verschillende plekken in het land gevroren en dus moesten de...
+- [Woonwebwinkel Fonq failliet verklaard](https://nos.nl/l/2608052)
+  > Fonq Group is failliet. Dat laat het Nederlandse bedrijf achter de woonwebshops Fonq en Naduvi weten. Ruim een week geleden werd al uitstel van...
+- [VN: mogelijk oorlogsmisdaden gepleegd bij bloedbad Syrische provincie Sweida](https://nos.nl/l/2608051)
+  > Bij een week vol geweld in de Syrische provincie Sweida zijn vorig jaar zeker 1700 mensen gedood. Er zijn daar mogelijk oorlogsmisdaden gepleegd,...
+- [Brandwonden na explosie op praktijkschool in Oosterhout](https://nos.nl/l/2608050)
+  > Op een praktijkschool in het Brabantse Oosterhout zijn vijf mensen gewond geraakt. Ze hebben allemaal brandwonden opgelopen bij een gasexplosie. 
+   ...
 - [Vijf mensen opgepakt voor internationale drugshandel](https://nos.nl/l/2608049)
   > In Rotterdam en het Brabantse Hazeldonk zijn vijf mensen gearresteerd op verdenking van het leiden van een criminele organisatie, internationale...
-- [Senaat VS akkoord: geld voor ministerie Binnenlandse Veiligheid, maar niet ICE](https://nos.nl/l/2608048)
-  > In de Amerikaanse Senaat zijn Republikeinen en Democraten het eens geworden over de financiering van het ministerie van Binnenlandse Veiligheid. Er...
-- [Ruim 100.000 illegale sigaretten gevonden in Haagse supermarkt](https://nos.nl/l/2608047)
-  > Bij een controle van een supermarkt in de Haagse wijk Rustenburg-Oostbroek zijn 102.800 illegale sigaretten gevonden. Over de sigaretten is geen...
-- [Volop gesjoemel aanschafbelasting motoren, waarschuwt branche](https://nos.nl/l/2608046)
-  > Bij de import van tweedehandsmotoren wordt volop gefraudeerd met de bpm, de belasting die je betaalt bij de aanschaf van een auto of motor. Daarvoor...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Joop van den Ende wilde belang in Belgische Studio 100 met K3: ‘Ik was onder de indruk en zag kansen’](https://www.ad.nl/show/joop-van-den-ende-wilde-belang-in-belgische-studio-100-met-k3-ik-was-onder-de-indruk-en-zag-kansen~afde48d5/)
-  > Mediatycoon Joop van den Ende heeft rond 2002 geprobeerd om aandeelhouder te worden van het Belgische Studio 100, bekend van succesvolle producties...
-- [Ongeluk met gasfles op school in Oosterhout: vijf gewonden](https://www.ad.nl/binnenland/ongeluk-met-gasfles-op-school-in-oosterhout-vijf-gewonden~addc70dd/)
-  > Op een school aan de Nassaustraat in Oosterhout heeft vrijdagochtend een ongeluk met een gasfles plaatsgevonden. Daarbij zijn vijf mensen gewond...
-- [Mathieu van der Poel gaat op voor hattrick in Harelbeke](https://www.ad.nl/wielrennen/mathieu-van-der-poel-gaat-op-voor-hattrick-in-harelbeke~a44626fe/)
-  > De E3 Saxo Classic staat op het programma. De Vlaamse klassieker is toe aan de 68ste editie en de laatste twee keer won Mathieu van der Poel. Wordt...
-- [Van hoger beroep Ali B tot de trailer van langverwachte Harry Potter-serie: test je showbizzkennis](https://www.ad.nl/show/van-hoger-beroep-ali-b-tot-de-trailer-van-langverwachte-harry-potter-serie-test-je-showbizzkennis~ac8e5f18/)
-  > Deze week dook er een wereldberoemde acteur op in Amsterdam en het hoger beroep in de strafzaak van Ali B ging van start. Maar er gebeurde nog veel...
-- [Het OM geeft een snoeiharde boodschap af door deze vrouw zó te laten vallen](https://www.ad.nl/binnenland/het-om-geeft-een-snoeiharde-boodschap-af-door-deze-vrouw-zo-te-laten-vallen~abd82eb3/)
-  > We kunnen wel klagen dat mensen op sociale media zo hard zijn voor slachtoffers van seksueel geweld, zoals deze week weer eens glashelder werd...
+- [Dierbaren herdenken Loretta Schrijver op haar eerste sterfdag: ‘Leven is een stuk minder gezellig zonder jou’](https://www.ad.nl/show/dierbaren-herdenken-loretta-schrijver-op-haar-eerste-sterfdag-leven-is-een-stuk-minder-gezellig-zonder-jou~a046197a/)
+  > Het is vrijdag precies een jaar geleden dat Loretta Schrijver haar laatste adem uitblies. De presentatrice, die 68 jaar oud werd, stierf op 27 maart...
+- [Carlo neemt met dikke tranen afscheid van huisdier en Eva en Raven zijn gek op elkaar](https://www.ad.nl/show/carlo-neemt-met-dikke-tranen-afscheid-van-huisdier-en-eva-en-raven-zijn-gek-op-elkaar~a0eeb3b5/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Doek valt voor webshop Fonq, 100 medewerkers vrezen voor baan: ‘Nachtmerries op werk’](https://www.ad.nl/economie/doek-valt-voor-webshop-fonq-100-medewerkers-vrezen-voor-baan-nachtmerries-op-werk~af7ccd5d/)
+  > De bekende online woonwinkel Fonq is failliet. Terwijl curatoren zoeken naar een doorstart, vrezen ruim honderd medewerkers voor hun baan. Achter de...
+- [Ronde van Catalonië kort ook vijfde etappe in: slotklim ruim twee kilometer korter](https://www.ad.nl/wielrennen/ronde-van-catalonie-kort-ook-vijfde-etappe-in-slotklim-ruim-twee-kilometer-korter~aed0c4fa/)
+  > De vijfde etappe van de Ronde van Catalonië van vrijdag is in verband met de weersverwachtingen aangepast.
+- [78-jarige voormalig bondscoach keert terug als trainer in Engeland, NAC laat clubicoon vertrekken](https://www.ad.nl/voetbal/78-jarige-voormalig-bondscoach-keert-terug-als-trainer-in-engeland-nac-laat-clubicoon-vertrekken~a35ea681/)
+  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [‘Moederskindje’ Vaarzon Morel brengt ode aan traditionele flamenco](https://fd.nl/bedrijfsleven/1588585/moederskindje-vaarzon-morel-brengt-ode-aan-traditionele-flamenco)
+  > Ik moet naar Spanje, wist gitarist Eric Vaarzon Morel al op jonge leeftijd. Alleen daar kon hij de sfeer van de flamenco echt ervaren. Komende...
+- [Vliegen zonder kerosine komt eraan, leg het laadpalennetwerk langs de landingsbaan maar aan](https://fd.nl/opinie/1590679/vliegen-zonder-kerosine-komt-eraan-leg-het-laadpalennetwerk-langs-de-landingsbaan-maar-aan)
+  > Commercieel elektrisch vliegen is al over een paar jaar mogelijk. Met elektrisch autorijden was Nederland er vlug bij – mede door de snelle uitrol...
 - [Oorlog Midden-Oosten is ook een bedreiging voor mondiale rol dollar](https://fd.nl/financiele-markten/1590824/oorlog-midden-oosten-is-ook-een-bedreiging-voor-mondiale-rol-dollar)
   > De oorlog in het Midden-Oosten kan het toch al wankelende vertrouwen in de dollar een extra klap geven, waarschuwen economen, nu de VS niet in staat...
-- [Vertrouwen exporteurs naar diepste punt in zestien jaar tijd](https://fd.nl/bedrijfsleven/1590839/vertrouwen-exporteurs-naar-diepste-punt-in-zestien-jaar-tijd)
+- [Vertrouwen exporteurs op laagste punt in zestien jaar tijd](https://fd.nl/bedrijfsleven/1590839/vertrouwen-exporteurs-naar-diepste-punt-in-zestien-jaar-tijd)
   > Voor 2025 rekenden exporteurs op een groei van de uitvoer van 6%. Daarvan hebben ze maar de helft kunnen realiseren. Een vijfde van de exporteurs...
 - [‘Pentagon overweegt 10.000 militairen naar Midden-Oosten te sturen’](https://fd.nl/politiek/1590978/pentagon-overweegt-10-000-militairen-naar-midden-oosten-te-sturen)
   > De VS houden hun opties open, mochten onderhandelingen met Iran mislukken. Trump wist de markten niet te kalmeren met zijn aankondiging om aanvallen...
-- [Stijgende winst voor bloemenveiling FloraHolland](https://fd.nl/bedrijfsleven/1590966/stijgende-winst-voor-bloemenveiling-floraholland)
-  > Het aantal verkochte producten van de veiling blijft dalen, maar dat werd gecompenseerd door hogere prijzen voor bloemen en planten.
-- [Jong in Kirgistan](https://fd.nl/samenleving/1590690/jong-in-kirgistan)
-  > Fotojournalist Thijs Broekkamp portretteerde de jongeren van Kirgistan in een boek. ‘De gemiddelde leeftijd is 27. Moest ik dan het verhaal van de...
 
 ### Meest gelezen
 
