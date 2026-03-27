@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-03-2026 om 07:15*
+*Laatst bijgewerkt: 27-03-2026 om 08:59*
 
 ---
 
@@ -8,6 +8,9 @@
 
 ### Laatste nieuws
 
+- [Rechter: Amerikaanse overheid mag banden met AI-bedrijf niet verbreken](https://nos.nl/l/2608008)
+  > De Amerikaanse overheid mag de banden met AI-bedrijf Anthropic voorlopig niet verbreken. Dat heeft de rechter besloten.
+        Het Pentagon en...
 - [Paasvuren onder druk door regels: 'Hoe doseer je aantal kubieke meters snoeihout?'](https://nos.nl/l/2608001)
   > Zoals al decennialang traditie is worden op eerste paasdag weer honderden paasvuren ontstoken. Vooral in het oosten van het land is het een gevestigd...
 - [ING: vertrouwen van beleggers keldert door oorlog met Iran en box 3](https://nos.nl/l/2607997)
@@ -16,9 +19,6 @@
   > Goedemorgen! De BBB houdt vanavond in Barneveld een extra ledenvergadering over de koers van de partij en de mogelijke terugkeer van Mona Keijzer....
 - [Hoge huizenprijzen drukken geboortecijfer in Nederland](https://nos.nl/l/2607992)
   > Door de stijgende huizenprijzen wordt het vinden van een geschikte gezinswoning voor jongvolwassenen steeds lastiger. Dat is mogelijk een van de...
-- [Australische man drie dagen na auto-ongeval gered uit water](https://nos.nl/l/2607991)
-  > Een Australische man heeft drie dagen lang in een beek gelegen nadat zijn auto van de weg raakte. Hij werd gevonden door een boer, meldt ABC News.
-  ...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Raven van Dorst vond visumaanvraag VS ‘pijnlijk proces’](https://www.ad.nl/show/raven-van-dorst-vond-visumaanvraag-vs-pijnlijk-proces~a0b20fd6/)
-  > Raven van Dorst vond het ‘een pijnlijk proces’ dat hen voor een werkvisum in de Verenigde Staten tijdelijk afscheid moest nemen van de genderneutrale...
-- [Conflict Midden-Oosten zet hele vakantiewereld op zijn kop: ‘Turkije is nu honderden euro’s goedkoper’](https://www.ad.nl/binnenland/conflict-midden-oosten-zet-hele-vakantiewereld-op-zijn-kop-turkije-is-nu-honderden-euros-goedkoper~a0b8e052/)
-  > De politieke onrust in het Midden-Oosten zorgt voor een verschuiving in de vakantievoorkeuren van consumenten voor komende zomer. Turkije is opeens...
-- [Max Verstappen na frustrerende tweede training op pijnlijke achterstand, McLaren deelt tikje uit aan Mercedes](https://www.ad.nl/formule-1/max-verstappen-na-frustrerende-tweede-training-op-pijnlijke-achterstand-mclaren-deelt-tikje-uit-aan-mercedes~a2a4cde1/)
-  > Max Verstappen zal zeer ontevreden terugkijken op de eerste dag in Japan. Na een zevende tijd in de eerste training, kwam de viervoudig...
-- [Help Koeman | Wie zou jij opstellen in pittige oefenwedstrijd tegen Noorwegen?](https://www.ad.nl/voetbal/help-koeman-wie-zou-jij-opstellen-in-pittige-oefenwedstrijd-tegen-noorwegen~a7ecb062/)
-  > Het Nederlands elftal begint deze week aan de voorbereiding op het WK voetbal met twee oefenduels. Vrijdag is eerst Noorwegen de tegenstander,...
-- [Bijna weekend! Maar pas op, er hangt onheil in de lucht (lees: veel regen)](https://www.ad.nl/binnenland/bijna-weekend-maar-pas-op-er-hangt-onheil-in-de-lucht-lees-veel-regen~a8dfdc2f/)
-  > Wie er vandaag op uit trekt, kan na een koude start genieten van de zon. Die pret is echter van korte duur. In de loop van de middag trekt vanuit het...
+- [Surinaamse fans worden 9.000 kilometer verderop het scherm ingezogen, maar wonder blijft uit](https://www.ad.nl/den-haag/surinaamse-fans-worden-9-000-kilometer-verderop-het-scherm-ingezogen-maar-wonder-blijft-uit~a2facaa6/)
+  > Suriname heeft zich vrijdagnacht niet kunnen plaatsen voor het WK van komende zomer. In een snikheet Mexico bleek Bolivia te sterk. Bijna 9.000...
+- [Grote zorgen bij Feyenoord om blessure aanvaller Leo Sauer](https://www.ad.nl/voetbal/grote-zorgen-bij-feyenoord-om-blessure-aanvaller-leo-sauer~a12bc482/)
+  > Feyenoord hoopt op korte termijn uitsluitsel te krijgen over hoe zwaar de spierblessure is die Leo Sauer (20) heeft opgelopen bij Slowakije. De...
+- [Springlevende Bob (93) leest dat hij dood is verklaard: ‘Waar halen jullie die onzin vandaan?’](https://www.ad.nl/binnenland/springlevende-bob-93-leest-dat-hij-dood-is-verklaard-waar-halen-jullie-die-onzin-vandaan~a3319489/)
+  > Bob van Helsdingen (93) uit Oisterwijk gelooft niet wat hij hoort als in zijn familie het verhaal rondgaat dat hij niet meer leeft. Op internet staat...
+- [Ook Hannah Mae in zee met Bløf: ‘De stem van Paskal schalde vroeger al door onze huiskamer’](https://www.ad.nl/show/ook-hannah-mae-in-zee-met-blof-de-stem-van-paskal-schalde-vroeger-al-door-onze-huiskamer~a0743ac5/)
+  > Bløf grossiert momenteel in samenwerkingen. Na de recente hits met Bente en Racoon verschijnt vrijdag een duet met Hannah Mae: de single Ik ben niet...
+- [Max Verstappen haalt schouders op na pijnlijke dag in Japan: 'We gaan de oplossing in ieder geval niet vinden'](https://www.ad.nl/formule-1/max-verstappen-haalt-schouders-op-na-pijnlijke-dag-in-japan-we-gaan-de-oplossing-in-ieder-geval-niet-vinden~a2a4cde1/)
+  > Max Verstappen kijkt ontevreden terug op de eerste dag in Japan. Na een zevende tijd in de eerste training, kwam de viervoudig wereldkampioen in de...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Live: Galapagos verandert naam in Lakefront Biotherapeutics](https://fd.nl/financiele-markten/1590965/live-afgezette-bestuursvoorzitter-ben-jerrys-klaagt-unilever-en-magnum-aan)
+- [Studenten hebben genoeg ideeën om het ruimtegebrek in Nederland op te lossen](https://fd.nl/opinie/1590535/ideeen-genoeg-om-het-ruimtegebrek-op-te-lossen-maar-keuzes-zijn-noodzakelijk)
+  > Het FD Studentenpanel denkt na over hoe we de schaarse ruimte in Nederland beter benutten. Want dat de politiek een keuze moet maken, is wel...
+- [Anthropic wint rechtszaak van regering-Trump over verbreken van overheidsbanden](https://fd.nl/politiek/1590838/anthropic-wint-rechtszaak-van-regering-trump-over-verbreken-van-overheidsbanden)
+  > De Amerikaanse regering mag haar banden met AI-bedrijf Anthropic voorlopig niet volledig verbreken. Volgens de rechter lijkt die maatregel eerder...
+- [Ledjurken, een sterrenrestaurant in Londen en paaseieren van modehuizen](https://fd.nl/samenleving/1590897/ledjurken-een-sterrenrestaurant-in-londen-en-paaseieren-van-modehuizen)
+  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
+- [Live: Toch geen herstel, Europese koersborden kleuren rood](https://fd.nl/financiele-markten/1590965/live-afgezette-bestuursvoorzitter-ben-jerrys-klaagt-unilever-en-magnum-aan)
   > De oorlog in Iran blijft het sentiment op de beurzen bepalen. Ook in Nederland, waar het vertrouwen van particuliere beleggers in maart een flinke...
 - [Tegels zijn het nieuwe behang](https://fd.nl/samenleving/1590540/tegels-zijn-het-nieuwe-behang)
   > Een tegelwand kan spanning, sfeer, kleur, glans en textuur brengen. ‘Zéker als je een beetje durft uit te pakken en een opvallende tegel kiest.’
-- [Nederlanders bouwen alternatieven voor big tech: ‘Als ik het niet doe, wie dan wel?’](https://fd.nl/tech-en-innovatie/1590822/nederlanders-bouwen-alternatieven-voor-big-tech-als-ik-het-niet-doe-wie-dan-wel)
-  > Met de onberekenbare Donald Trump in het Witte Huis is afhankelijkheid van Amerikaanse tech een schrikbeeld geworden. Drie Nederlandse ondernemers...
-- [Ruzie van Bart Jan en Egon gaat over miljoenen, maar is nog veel meer een strijd tussen gebutste ego’s](https://fd.nl/samenleving/1590239/ruzie-van-bart-jan-en-egon-gaat-over-miljoenen-maar-is-nog-veel-meer-een-strijd-tussen-gebutste-egos)
-  > Twee mannen zitten voor de vierde keer bij de Ondernemingskamer. Ze zijn aandeelhouders in een vastgoedmaatschappij en willen van elkaar af. Maar er...
-- [Action gaat Amerika bestormen](https://fd.nl/economie/1590947/action-gaat-amerika-bestormen)
-  > Vandaag in Dagkoers: Action waagt de sprong naar de VS, superrijken trekken naar Milaan & horeca in musea is van steeds hogere kwaliteit
 
 ### Meest gelezen
 
