@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-03-2026 om 19:01*
+*Laatst bijgewerkt: 27-03-2026 om 20:44*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Mona Keijzer keert BBB definitief de rug toe: 'Kan niet anders dan afscheid nemen'](https://nos.nl/l/2608117)
+  > Mona Keijzer keert BBB definitief de rug toe. Dat maakte ze bekend vlak voor de stemming over een motie voor een onafhankelijke bemiddelaar. "Ik kan...
+- [Onlineplatform Europese Commissie gehackt, data buitgemaakt](https://nos.nl/l/2608112)
+  > Het onlineplatform van de Europese Commissie (EC) is deze week aangevallen door hackers. Daarbij zijn data gestolen, maar de omvang van de hack is...
+- [PlayStations worden stuk duurder door chiptekorten en oorlog](https://nos.nl/l/2608107)
+  > De prijs van PlayStation-spelcomputers stijgt de komende weken flink, heeft producent Sony bekendgemaakt. Dat heeft waarschijnlijk te maken met een...
 - [Zes tieners opgepakt voor gefilmde mishandelingen in Zeeland](https://nos.nl/l/2608106)
   > Zes tieners zijn afgelopen week aangehouden voor het mishandelen en intimideren van jongeren in Vlissingen en Oost-Souburg. De verdachten filmden hun...
 - [Wisselvallig weekeinde, meeste regen valt in de nacht](https://nos.nl/l/2608102)
   > Het weer ziet er dit weekeinde wisselvallig uit, maar we hebben geluk. Overdag is het vaak wel droog en schijnt de zon ook geregeld. Het blijft vrij...
-- [Rusland merkt Oscar-winnende documentairemaker aan als 'buitenlandse agent'](https://nos.nl/l/2608101)
-  > Pavel Talankin, maker van de Oscarwinnende documentaire Mr. Nobody against Putin, is door Rusland bestempeld als 'buitenlandse agent'.
-        Russen...
-- [Duizenden belletjes naar 112 onbedoeld of zonder spoed, groot deel vanuit auto](https://nos.nl/l/2608100)
-  > Ongeveer één op de drie belletjes naar het noodnummer 112 is onbedoeld of heeft geen spoed, blijkt uit cijfers van de politie. Een groot deel kwam...
-- [Eis: zeven jaar cel voor Naaldwijkse die kinderen meenam naar IS-gebied](https://nos.nl/l/2608097)
-  > Het Openbaar Ministerie heeft zeven jaar cel geëist tegen een vrouw die in 2014 met haar twee minderjarige kinderen naar Syrië was afgereisd om zich...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ria Valk: ‘Mocht de kanker opnieuw terugkomen, dan laat ik er nu niks meer aan doen’](https://www.ad.nl/gezond/ria-valk-mocht-de-kanker-opnieuw-terugkomen-dan-laat-ik-er-nu-niks-meer-aan-doen~a2ce054e/)
-  > Ria Valk (85) dacht dat ze na haar 75ste nooit meer die ‘afschuwelijke’ mammografie ter controle voor borstkanker moest ondergaan, maar kreeg toch de...
-- [LIVE Oranje | Kees Smit debuteert in de basis bij Oranje, Teun Koopmeiners krijgt rol in de aanval](https://www.ad.nl/voetbal/live-oranje-kees-smit-debuteert-in-de-basis-bij-oranje-teun-koopmeiners-krijgt-rol-in-de-aanval~aff9b6c7/)
-  > Het Nederlands elftal begint aan de voorbereiding voor het WK van deze zomer. De ploeg van Ronald Koeman oefent in de Johan Cruijff Arena tegen...
-- [Dreun voor Jong Oranje in blessuretijd: EK raakt uit zicht na pijnlijke nederlaag in Noorwegen](https://www.ad.nl/wk-voetbal/dreun-voor-jong-oranje-in-blessuretijd-ek-raakt-uit-zicht-na-pijnlijke-nederlaag-in-noorwegen~acd3c518/)
-  > Jong Oranje ziet deelname aan het EK van volgend jaar verder uit zicht verdwijnen. De ploeg van Michael Reiziger moest winnen van Jong Noorwegen om...
-- [AZ-talent Kees Smit start in de basis bij Oranje: 33ste debutant onder bondscoach Ronald Koeman](https://www.ad.nl/voetbal/az-talent-kees-smit-start-in-de-basis-bij-oranje-33ste-debutant-onder-bondscoach-ronald-koeman~afd39430/)
-  > Kees Smit begint om 20.45 uur met het Nederlands elftal aan de oefeninterland tegen Noorwegen. De 20-jarige middenvelder van AZ debuteert als...
-- [Alleen de echte nieuwsjunk maakt deze wekelijkse quiz foutloos](https://www.ad.nl/quiz/alleen-de-echte-nieuwsjunk-maakt-deze-wekelijkse-quiz-foutloos~a1ac53ef/)
-  > Deze week was het hoger beroep in de verkrachtingszaak rond Ali B en maakte GroenLinks-PvdA de nieuwe naam bekend. Maar er gebeurde nog veel meer....
+- [Mona Keijzer zegt publiekelijk lidmaatschap op tijdens BBB-bijeenkomst](https://www.ad.nl/politiek/mona-keijzer-zegt-publiekelijk-lidmaatschap-op-tijdens-bbb-bijeenkomst~a185b6ef/)
+  > Voormalig BBB-kopstuk Mona Keijzer stapt per direct uit de partij. Dat meldt zij publiekelijk op de extra ingelaste BBB-ledenbijeenkomst. ,,Hoop op...
+- [Zorg voor tienduizenden longcovidpatiënten stopt abrupt, minister trekt stekker uit steunpunt](https://www.ad.nl/binnenland/zorg-voor-tienduizenden-longcovidpatienten-stopt-abrupt-minister-trekt-stekker-uit-steunpunt~afa0cbed/)
+  > Ze krijgen wekelijks nog tientallen aanmeldingen van nieuwe patiënten en hebben inmiddels een patiëntenbestand van 35.000 mensen. Toch trekt het...
+- [Duitsland maakt toch gelijk tegen Zwitserland, Marokko en Saibari oefenen tegen Ecuador](https://www.ad.nl/wk-voetbal/duitsland-maakt-toch-gelijk-tegen-zwitserland-marokko-en-saibari-oefenen-tegen-ecuador~af6d1b1e/)
+  > Naast het Nederlands elftal zijn er voldoende oefeninterlands op vrijdagavond. Zo komen Engeland, Duitsland, Spanje en de kersverse Afrika...
+- [Oranjefans brengen eerbetoon aan Johan Cruijff in 14de minuut van duel met Noorwegen](https://www.ad.nl/voetbal/oranjefans-brengen-eerbetoon-aan-johan-cruijff-in-14de-minuut-van-duel-met-noorwegen~ad9dfdb6/)
+  > Supporters van het Nederlands elftal hebben een eerbetoon aan Johan Cruijff gebracht. Ze gingen in de veertiende minuut van de oefenwedstrijd tegen...
+- [Ruim 20 doden in Iran bij aanvallen op woonwijken, Teheran zweert wraak](https://www.ad.nl/buitenland/ruim-20-doden-in-iran-bij-aanvallen-op-woonwijken-teheran-zweert-wraak~ac528ac3/)
+  > Bij aanvallen op woongebouwen zijn vrijdag in Iran meer dan twintig doden gevallen, meldden meerdere media. Eerder op de dag viel de Israëlische...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [‘Lokale partijen toch niet grote winnaar gemeenteraadsverkiezingen’](https://fd.nl/politiek/1591391/lokale-partijen-toch-niet-grote-winnaar-gemeenteraadsverkiezingen)
+  > Lokale partijen waren toch niet de grote winnaar van de gemeenteraadsverkiezingen in maart. Dat blijkt uit een nadere analyse van de uitslagen door...
+- [Het ‘kabinet van de doorbraken’ moet zich toch weer bezighouden met kleingeld](https://fd.nl/politiek/1590977/het-kabinet-van-de-doorbrakenmoet-zich-toch-weer-bezighouden-met-kleingeld)
+  > Het Kamerdebat over de economische gevolgen van de aanval op Iran vernauwde zich tot wel of niet ingrijpen in de oplopende benzineprijs. Met een...
 - [Leeftijdsgrens is imperfecte maar noodzakelijke maatregel](https://fd.nl/opinie/1590840/leeftijdsgrens-is-imperfecte-maar-noodzakelijke-maatregel)
   > Het temmen van big tech is een taaie klus. Een leeftijdsgrens kan een doorbraak forceren.
 - [De kosmische timing van de SpaceX-beursgang is misschien toch niet zo goed](https://fd.nl/financiele-markten/1590222/de-kosmische-timing-van-de-spacex-beursgang-is-misschien-toch-niet-zo-goed)
   > SpaceX wil met zijn beursgang alle records breken. Het bedrijf mikt op een debuut in juni, volgens ceo Musk omdat Jupiter en Venus dan dicht bij...
 - [Trump zoekt met ‘Taco’ weg uit oorlog, maar beleggers zien dat Iran niet hapt](https://fd.nl/financiele-markten/1590970/trump-zoekt-met-taco-weg-uit-oorlog-maar-beleggers-zien-dat-iran-niet-hapt)
   > Donald Trump zocht plotseling toenadering in de oorlog in het Midden-Oosten, maar nam inflatiezorgen onder beleggers niet weg.
-- [HAL breidt belang in biologische gewasbeschermer Koppert uit](https://fd.nl/bedrijfsleven/1591390/hal-breidt-belang-in-biologische-gewasbeschermer-koppert-uit)
-  > De investeringsmaatschappij heeft in november 27,3% van de aandelen in het bedrijf gekocht, zo blijkt uit de jaarcijfers die vrijdag nabeurs werden...
-- [Kabinet wil advies bedrijfsarts leidend maken bij re-integratie zieke werknemer](https://fd.nl/politiek/1591389/kabinet-wil-advies-bedrijfsarts-leidend-maken-bij-re-integratie-zieke-werknemer)
-  > Het nieuwe wetsvoorstel moet een einde maken aan onzekerheid bij werkgevers en helpen bij wachttijden UWV.
 
 ### Meest gelezen
 
