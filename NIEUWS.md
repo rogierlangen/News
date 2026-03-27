@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-03-2026 om 23:37*
+*Laatst bijgewerkt: 27-03-2026 om 02:47*
 
 ---
 
@@ -8,16 +8,18 @@
 
 ### Laatste nieuws
 
+- [Eigenaar koopwoning krijgt vaker kinderen dan bewoner huurhuis](https://nos.nl/l/2607992)
+  > Mensen die in een koophuis wonen, krijgen gemiddeld vaker kinderen dan bewoners van een huurhuis. Dat blijkt uit onderzoek van het Nederlands...
+- [Australische man drie dagen na auto-ongeval gered uit water](https://nos.nl/l/2607991)
+  > Een Australische man heeft drie dagen lang in een beek gelegen nadat zijn auto van de weg raakte. Hij werd gevonden door een boer, meldt ABC News.
+  ...
+- [Ministerie van Financiën VS kondigt bankbiljetten aan met handtekening Trump](https://nos.nl/l/2607987)
+  > Het Amerikaanse ministerie van Financiën heeft aangekondigd dat de handtekening van president Trump op briefgeld in het land komt te staan.
+       ...
 - [Rechtbank Amsterdam verbiedt uitkleedfunctie chatbot Grok in Nederland](https://nos.nl/l/2607979)
   > De AI-chatbot Grok mag van de rechtbank in Amsterdam de zogenoemde 'uitkleedfunctie' niet meer aanbieden in Nederland. Grok is onderdeel van het...
 - [Spaanse vrouw (25) overleden die juridische strijd voerde voor euthanasie](https://nos.nl/l/2607978)
   > Een 25-jarige Spaanse vrouw die een juridische strijd voerde om euthanasie te krijgen, is overleden nadat ze levensbeëindigende medicijnen had...
-- [HEMA wint voor derde jaar op rij Ster Gouden Loeki voor kerstreclame](https://nos.nl/l/2607974)
-  > De HEMA heeft voor het derde jaar op rij de Ster Gouden Loeki binnengesleept voor de beste televisiereclame. Het warenhuis krijgt de prijs voor zijn...
-- [OM moet strafzaak beginnen tegen vishandelaar die vrouw in nikab kibbeling weigerde](https://nos.nl/l/2607973)
-  > Het Openbaar Ministerie moet een strafzaak beginnen tegen een visboer die een vrouw in een nikab in zijn zaak weigerde. Dat heeft het gerechtshof in...
-- [Gorinchem doet aangifte verkiezingsfraude na ronselen stemmen](https://nos.nl/l/2607971)
-  > Burgemeester Melissant van Gorinchem heeft aangifte gedaan van meerdere vormen van verkiezingsfraude. Het gaat onder meer om het ronselen van...
 
 ### Meest gelezen
 
@@ -27,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Suriname geeft voorsprong uit handen tegen Bolivia, wat kan Henk ten Cate bedenken?](https://www.ad.nl/wk-voetbal/suriname-geeft-voorsprong-uit-handen-tegen-bolivia-wat-kan-henk-ten-cate-bedenken~a0b2918e/)
-  > Suriname strijdt via de play-offs om een ticket voor het WK 2026. Eerst moet vanavond Bolivia worden verslagen, om de finale tegen Irak te bereiken....
-- [Voetbalpodcast | ‘Koeman gaf een serieuze en duidelijke boodschap aan Depay’](https://www.ad.nl/voetbal/voetbalpodcast-koeman-gaf-een-serieuze-en-duidelijke-boodschap-aan-depay~ac8603a9/)
+- [Zwangere vrouwen met obesitas steeds vaker in de gevarenzone: ‘Gevolgen voor kind nemen toe’](https://www.ad.nl/binnenland/zwangere-vrouwen-met-obesitas-steeds-vaker-in-de-gevarenzone-gevolgen-voor-kind-nemen-toe~a348874f/)
+  > Obesitas onder zwangere vrouwen vormt een groeiend probleem in de westerse samenleving, blijkt uit Frans onderzoek. Nederlandse artsen herkennen het...
+- [Voetbalpodcast | ‘Ronald Koeman gaf een serieuze en duidelijke boodschap aan Memphis Depay’](https://www.ad.nl/voetbal/voetbalpodcast-ronald-koeman-gaf-een-serieuze-en-duidelijke-boodschap-aan-memphis-depay~ac8603a9/)
   > Het Nederlands elftal oefent vanavond, op weg naar het WK van komende zomer, tegen Noorwegen. Bondscoach Ronald Koeman mist een groot gedeelte van...
+- [WK-droom Suriname spat uiteen: hitte in Monterrey nekt team van Henk ten Cate](https://www.ad.nl/wk-voetbal/wk-droom-suriname-spat-uiteen-hitte-in-monterrey-nekt-team-van-henk-ten-cate~a0b2918e/)
+  > Suriname heeft zich niet kunnen plaatsen voor het WK 2026. Bij de eerste wedstrijd onder bondscoach Henk ten Cate ging ‘Natio’ met 2-1 onderuit tegen...
+- [Amerikaanse dollarbiljetten krijgen handtekening Trump, primeur voor zittende president](https://www.ad.nl/buitenland/amerikaanse-dollarbiljetten-krijgen-handtekening-trump-primeur-voor-zittende-president~ae67dd9c/)
+  > De handtekening van de Amerikaanse president Donald Trump komt op het briefgeld in het land te staan. Dat heeft het ministerie van Financiën...
 - [Rode kaart deert Frankrijk niet: tiental te sterk voor Brazilië in oefenduel](https://www.ad.nl/wk-voetbal/rode-kaart-deert-frankrijk-niet-tiental-te-sterk-voor-brazilie-in-oefenduel~a621ee56/)
   > Frankrijk heeft een oefeninterland in het Amerikaanse Foxborough tegen Brazilië gewonnen. Les Bleus speelden lange tijd met tien man, maar waren toch...
-- [Meer duidelijkheid voor Oranje: Polen óf Zweden wordt tegenstander op WK](https://www.ad.nl/wk-voetbal/meer-duidelijkheid-voor-oranje-polen-of-zweden-wordt-tegenstander-op-wk~a8e37e48/)
-  > Het Nederlands elftal krijgt steeds meer duidelijkheid over de laatste tegenstander in de poulefase op het WK. Polen en Zweden plaatsten zich...
-- [Stand Premier League | Van Gerwen terug in top 4 na finaleplaats, Van Veen dreigt aansluiting te verliezen](https://www.ad.nl/darts/premier-league-speelschema-programma-uitslagen-stand~a9ae7647/)
-  > De Premier League Darts is volop onderweg mét Michael van Gerwen en Gian van Veen. Bekijk hieronder de stand, alle uitslagen, het complete programma...
 
 ### Meest gelezen
 
