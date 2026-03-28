@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-03-2026 om 02:36*
+*Laatst bijgewerkt: 28-03-2026 om 04:57*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Nepalese oud-premier gearresteerd om rol bij dodelijke Gen Z-protesten](https://nos.nl/l/2608146)
+  > De voormalige premier van Nepal, KP Sharma Oli, is aangehouden voor zijn rol tijdens de dodelijke protesten in het land vorig jaar. De politie...
 - [Helikopter stort neer in Hawaï, drie doden en twee gewonden](https://nos.nl/l/2608145)
   > Bij een helikoptercrash in Hawaï zijn drie mensen om het leven gekomen, meldt de Amerikaanse kustwacht. De helikopter stortte neer tijdens een...
 - [Oppervlakte zee-ijs noordpoolgebied evenaart laagste niveau ooit in de winter](https://nos.nl/l/2608144)
@@ -16,8 +18,6 @@
   > Lokale politieke partijen reageren wisselend op de aankondiging dat GroenLinks-PvdA een nieuwe naam krijgt. De oppositiepartij wil verder onder de...
 - [Voor Pakistan is bemiddelen tussen de Iran en VS heel logisch](https://nos.nl/l/2608122)
   > Vertegenwoordigers van de Verenigde Staten en Iran staan op het punt om elkaar te ontmoeten om te proberen de oorlog te beëindigen. Dat zei de Duitse...
-- [In hoger beroep straffen tot ruim 17 jaar geëist tegen drugsbende Piet S.](https://nos.nl/l/2608118)
-  > Het Openbaar Ministerie eist in hoger beroep gevangenisstraffen tot ruim 17 jaar voor 18 verdachten die betrokken waren bij een criminele organisatie...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Wonder blijft uit: Max Verstappen klokt achtste tijd in derde vrije training, Mercedes oppermachtig](https://www.ad.nl/formule-1/wonder-blijft-uit-max-verstappen-klokt-achtste-tijd-in-derde-vrije-training-mercedes-oppermachtig~a63a775f/)
+  > De zorgen voor Max Verstappen zijn van vrijdag op zaterdag nog niet wonderbaarlijk verdwenen. Dat werd duidelijk tijdens de derde vrije training voor...
+- [Oud-premier Nepal gearresteerd vanwege dodelijke ‘Gen Z’-protesten](https://www.ad.nl/buitenland/oud-premier-nepal-gearresteerd-vanwege-dodelijke-gen-z-protesten~a584a849/)
+  > De voormalige premier van Nepal, Khadga Prasad Sharma Oli, en oud-minister van Binnenlandse Zaken Ramesh Lekhak zijn zaterdag aangehouden. Een...
+- [Bank of America schikt voor ruim 60 miljoen euro met slachtoffers Epstein](https://www.ad.nl/buitenland/bank-of-america-schikt-voor-ruim-60-miljoen-euro-met-slachtoffers-epstein~ac032166/)
+  > Bank of America heeft ermee ingestemd 72,5 miljoen dollar (bijna 63 miljoen euro) te betalen om een rechtszaak te schikken die was aangespannen...
 - [Advocaat als verdachte: was Inez Weski doorgeefluik van Taghi? ‘Ze is gewoon gek, nooit mailen of sms’en’](https://www.ad.nl/binnenland/advocaat-als-verdachte-was-inez-weski-doorgeefluik-van-taghi-ze-is-gewoon-gek-nooit-mailen-of-smsen~a8effbd8/)
   > Drie jaar na haar geruchtmakende arrestatie begint donderdag de rechtszaak tegen Inez Weski. Uitgerekend de onkreukbare advocaat, de ‘pitbull in...
 - [Trump haalt opnieuw uit naar Navo-landen: ‘We hoeven ze niet meer te helpen’](https://www.ad.nl/buitenland/trump-haalt-opnieuw-uit-naar-navo-landen-we-hoeven-ze-niet-meer-te-helpen~a1bce4a2/)
   > Donald Trump heeft vrijdag opnieuw uitgehaald naar Navo-lidstaten vanwege het uitblijven van militaire steun aan de Verenigde Staten tijdens de...
-- [Dode en gewonden in Israël door vermeende Iraanse clusterbom, twaalf militairen VS gewond bij aanval Iran op basis Saoedi-Arabië](https://www.ad.nl/buitenland/dode-en-gewonden-in-israel-door-vermeende-iraanse-clusterbom-twaalf-militairen-vs-gewond-bij-aanval-iran-op-basis-saoedi-arabie~ac528ac3/)
-  > Bij aanvallen op woongebouwen zijn vrijdag in Iran meer dan twintig doden gevallen, meldden meerdere media. Eerder op de dag viel de Israëlische...
-- [Shakira verkoopt meer dan half miljoen tickets voor shows in Madrid](https://www.ad.nl/show/shakira-verkoopt-meer-dan-half-miljoen-tickets-voor-shows-in-madrid~a8393404/)
-  > Shakira heeft binnen enkele uren meer dan een half miljoen tickets verkocht voor haar Europese concertenreeks dit najaar in Madrid. Daarnaast heeft...
-- [Duitsland wint na spektakelstuk voor het eerst in 18 jaar van Zwitserland, Marokko speelt gelijk tegen Ecuador](https://www.ad.nl/wk-voetbal/duitsland-wint-na-spektakelstuk-voor-het-eerst-in-18-jaar-van-zwitserland-marokko-speelt-gelijk-tegen-ecuador~af6d1b1e/)
-  > Naast het Nederlands elftal werden er vrijdagavond voldoende andere spannende oefeninterlands gespeeld. Zo won Duitsland in een waar spektakelstuk...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Hoe Trumps oorlogen vooral China wat opleveren](https://fd.nl/economie/1591281/hoe-trumps-oorlogen-vooral-china-wat-opleveren)
+  > In deze Toegevoegde Waarde kijken Anna Dijkman en Marijn Jongsma wie de grote winnaar is van de handelsoorlog en het conflict in Iran. En box 3 komt...
 - [Kunst ontmoet tarot](https://fd.nl/samenleving/1590942/kunst-ontmoet-tarot)
   > Met twee decks tarotkaarten als uitgangspunt heeft kunstenaar Shertise Solano een verrassende expositie samengesteld. ‘Wat zie je, wat valt je op?’
 - [De oorlog bewijst de noodzaak van onze vierde energietransitie](https://fd.nl/politiek/1590968/de-oorlog-bewijst-de-noodzaak-van-onze-vierde-energietransitie)
@@ -54,8 +56,6 @@
   > Ons hoofd is met een zuignap verbonden aan mondiale techbedrijven, die ons leegzuigen om aan ons te verdienen, stelt Roxane van Iperen.
 - [Slijmen en schelden met Donnie](https://fd.nl/opinie/1590964/slijmen-en-schelden-met-donnie)
   > Er is niks mis mee als u bij wijze van represaille Donald Trump voor al diens hersenloze geblunder waar ú last van heeft, onthaalt op een...
-- [Bob Deen: ‘Trump heeft regie over oorlog tegen Iran verloren’](https://fd.nl/politiek/1590837/bob-deen-trump-heeft-regie-over-oorlog-tegen-iran-verloren)
-  > Donald Trump zoekt een diplomatieke uitweg uit de oorlog tegen Iran. De Amerikaanse president begon aan de strijd zonder duidelijk doel voor ogen,...
 
 ### Meest gelezen
 
