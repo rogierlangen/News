@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-03-2026 om 13:04*
+*Laatst bijgewerkt: 28-03-2026 om 14:36*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Vermiste zeilboten met noodhulp voor Cuba weer terecht, bemanning veilig](https://nos.nl/l/2608178)
-  > Twee zeilboten die gisteren vermist raakten op weg van Mexico naar Cuba zijn weer terecht. De boten met humanitaire hulpgoederen zijn opgespoord door...
+- [Houthi's mengen zich in oorlog Midden-Oosten: 'Lastig inschatten hoe sterk ze zijn'](https://nos.nl/l/2608185)
+  > De afgelopen maand was het stil vanuit Jemen. Waar andere bondgenoten van Iran zich al snel mengden in de oorlog tegen Israël en de Verenigde Staten,...
+- [Donororganisaties willen landelijk onderzoek naar vruchtbaarheidsklinieken](https://nos.nl/l/2608184)
+  > Er moet een groot landelijk onderzoek komen naar misstanden bij vruchtbaarheidsklinieken. Daarvoor pleiten verschillende organisaties na nieuwe...
+- [Vermiste zeilboten met noodhulp voor Cuba terecht, bemanning veilig](https://nos.nl/l/2608178)
+  > Twee zeilboten die gisteren vermist raakten op weg van Mexico naar Cuba zijn terecht. De boten met humanitaire hulpgoederen zijn opgespoord door de...
 - [Omstreden wetsvoorstel Israël over doodstraf: 'Alleen toepasbaar op Palestijnen'](https://nos.nl/l/2608177)
   > In Israël gaat een zeer omstreden wetsvoorstel om de doodstraf in te voeren na het weekend de beslissende stemronde in. Volgens de wet wordt de...
 - [Historisch bezoek: paus voor het eerst in eeuwen naar Monaco](https://nos.nl/l/2608176)
   > Paus Leo is vandaag in Monaco. Dat is in vele opzichten een bijzonder bezoek, maar vooral omdat het eeuwen geleden is dat een paus daar is geweest....
-- [Kind overleden na aanrijding tussen auto en kinderwagen in Maastricht](https://nos.nl/l/2608173)
-  > In Maastricht is een kind om het leven gekomen nadat hij was aangereden door een auto. Bij het ongeluk dat gisteravond plaatsvond, raakten een vrouw...
-- [Luchtmacht oefent in Japan met F-35's: 'Afschrikking als doel, vechten als nodig is'](https://nos.nl/l/2608171)
-  > Onder het oorverdovende geronk van de motoren stijgen één voor één Nederlandse F-35-vliegtuigen op vanaf de startbaan op luchtbasis Misawa, in het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Max Verstappen over commotie na wegsturen journalist: ‘Hij begon gewoon in mijn gezicht te lachen’](https://www.ad.nl/formule-1/max-verstappen-over-commotie-na-wegsturen-journalist-hij-begon-gewoon-in-mijn-gezicht-te-lachen~ab6544c8/)
-  > Max Verstappen baarde donderdag op de persdag voor de Grand Prix van Japan opzien door een Britse journalist van The Guardian weg te sturen....
-- [Pijnlijke les voor Haagse nieuwkomers: elke misstap ligt onder het vergrootglas](https://www.ad.nl/politiek/pijnlijke-les-voor-haagse-nieuwkomers-elke-misstap-ligt-onder-het-vergrootglas~ac7a7196/)
-  > Ex-generaal Elanor Boekholt-O’Sullivan kreeg de afgelopen weken een pijnlijke ontgroening. Zij is niet de enige minister van buiten die moet wennen...
-- [Professor ontwikkelt zuinige chip die werkt als ons brein](https://www.ad.nl/wetenschap/professor-ontwikkelt-zuinige-chip-die-werkt-als-ons-brein~a0e39295/)
-  > Twee dikke boterhammen met pindakaas. Meer energie heeft ons brein niet nodig om een dag te functioneren. De Twentse hoogleraar Wilfred van der Wiel...
-- [Help Koeman | Wie zou jij opstellen bij Oranje in de oefenwedstrijd tegen Ecuador?](https://www.ad.nl/voetbal/help-koeman-wie-zou-jij-opstellen-bij-oranje-in-de-oefenwedstrijd-tegen-ecuador~ae71296d/)
-  > Het Nederlands elftal is begonnen aan de voorbereiding van het WK met een 2-1 zege op Noorwegen. Dinsdag is Ecuador de volgende tegenstander waar...
-- [Senegal wil in Parijs pronken met Afrika Cup ondanks afgenomen titel, Marokko dreigt met rechtszaak](https://www.ad.nl/voetbal/senegal-wil-in-parijs-pronken-met-afrika-cup-ondanks-afgenomen-titel-marokko-dreigt-met-rechtszaak~acd11274/)
-  > Marokko dreigt een rechtszaak aan te spannen tegen Stade de France als Senegal vanmiddag voor een oefenduel met Peru een parade mag houden ter ere...
+- [Van Erling Haaland tot Carlos Alcaraz: waarom steeds meer topsporters schaken inzetten voor hun prestaties](https://www.ad.nl/andere-sporten/van-erling-haaland-tot-carlos-alcaraz-waarom-steeds-meer-topsporters-schaken-inzetten-voor-hun-prestaties~a9c4eedf/)
+  > Erling Haaland investeerde recent in een schaaktoernooi, Mohamed Salah speelt dagelijks online onder een valse naam en Carlos Alcaraz zweert dat het...
+- [Aanslag verijdeld voor filiaal Amerikaanse bank in Parijs: politie betrapt man met zelfgemaakt explosief](https://www.ad.nl/buitenland/aanslag-verijdeld-voor-filiaal-amerikaanse-bank-in-parijs-politie-betrapt-man-met-zelfgemaakt-explosief~aa0e7f03/)
+  > In de Franse hoofdstad Parijs heeft de politie in de nacht vrijdag op zaterdag een aanslag verijdeld aan een filiaal van de Bank of America. De...
+- [Toen Miek net een maand haar rijbewijs had, mocht ze een ‘lompe’ Land Rover lenen. Nu is-ie van haar: ‘Past goed bij me’](https://www.ad.nl/auto/toen-miek-net-een-maand-haar-rijbewijs-had-mocht-ze-een-lompe-land-rover-lenen-nu-is-ie-van-haar-past-goed-bij-me~afde65de0/)
+  > Kleine vrouw, grote auto: Miek van de Waerdt uit Soest heeft haar auto’s het liefst zo groot en lomp mogelijk. Niet zo gek dus dat ze helemaal...
+- [De vader van Elodie wil geen contact met haar: ‘Ik heb van hem nooit gehoord: jij bent mijn kind’](https://www.ad.nl/mezza/de-vader-van-elodie-wil-geen-contact-met-haar-ik-heb-van-hem-nooit-gehoord-jij-bent-mijn-kind~aa0a5c44/)
+  > Na een avond in de kroeg raakt Elodie’s moeder zwanger van een getrouwde man met twee dochters. Hij kiest ervoor haar bestaan te verzwijgen. In deze...
+- [Deepfakevideo’s van Belgische prinses Elisabeth circuleren op sociale media, paleis grijpt in](https://www.ad.nl/show/deepfakevideos-van-belgische-prinses-elisabeth-circuleren-op-sociale-media-paleis-grijpt-in~a7b665b0/)
+  > Op Facebook circuleren tientallen filmpjes van de Belgische kroonprinses Elisabeth (24) die zijn gemaakt met artificiële intelligentie (AI). Vooral...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Activiteiten Omaanse haven Salalah opgeschort na droneaanval](https://fd.nl/bedrijfsleven/1591409/activiteiten-omaanse-haven-salalah-opgeschort-na-droneaanval)
+  > De haven van Salalah in Oman schort zijn activiteiten tijdelijk op na een droneaanval.
 - [Merz hint op belang Duitse overheid in tankbouwer KNDS](https://fd.nl/bedrijfsleven/1591323/merz-hint-op-belang-duitse-overheid-in-tankbouwer-knds)
   > De Duitse overheid lijkt een belang te willen nemen in het Frans-Duitse KNDS.
 - [‘Oekraïne en VAE gaan militair samenwerken’](https://fd.nl/politiek/1591407/oekraine-en-vae-gaan-militair-samenwerken)
@@ -54,8 +56,6 @@
   > De pro-Iraanse Houthi’s openen een nieuw front in de oorlog tussen Iran en de VS met een raketaanval op Tel Aviv.
 - [EU scherpt douaneregels aan voor pakjes uit niet-EU-landen](https://fd.nl/economie/1591388/eu-scherpt-douaneregels-aan-voor-pakjes-uit-niet-eu-landen)
   > Verkopers buiten de EU moeten een ‘vertrouwde handelaar’ in het landenblok aanwijzen als wettelijke vertegenwoordiger.
-- [‘Landen om ons heen nemen wél maatregelen, en bedrijven die in Nederland gevestigd zijn zullen daar last van krijgen’](https://fd.nl/opinie/1591276/landen-om-ons-heen-nemen-wel-maatregelen-en-bedrijven-die-in-nederland-gevestigd-zijn-zullen-daar-last-van-krijgen-en-andere-lezersreacties)
-  > FD-lezers reageren op het voorbereiden op een oliecrisis, holle en nietszeggende slogans, de jaarlijkse discussie over zomertijd en algoritmes bij...
 
 ### Meest gelezen
 
