@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-03-2026 om 20:36*
+*Laatst bijgewerkt: 28-03-2026 om 21:34*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [België maakt net voor rust gelijk tegen Verenigde Staten, Debast schiet hard raak](https://www.ad.nl/wk-voetbal/belgie-maakt-net-voor-rust-gelijk-tegen-verenigde-staten-debast-schiet-hard-raak~a78e49e6/)
+- [Leapmotor B10 Hybrid EV: hier komen de elektrische auto’s met hulpmotor](https://www.ad.nl/auto/leapmotor-b10-hybrid-ev-hier-komen-de-elektrische-autos-met-hulpmotor~a093ee98/)
+  > De nieuwe Leapmotor B10 lijkt op een gewone hybride is, zoals bijvoorbeeld een Toyota Prius. Maar in werkelijkheid zit het net iets anders. Dit model...
+- [België bezorgt Amerikanen pijnlijke avond in Atlanta, Godts maakt debuut voor Rode Duivels](https://www.ad.nl/wk-voetbal/belgie-bezorgt-amerikanen-pijnlijke-avond-in-atlanta-godts-maakt-debuut-voor-rode-duivels~a78e49e6/)
   > België begint zijn oefencampagne richting het WK met een oefeninterland in en tegen de Verenigde Staten. Het duel begon om 20.30 uur in het...
-- [Libanon komt met klacht tegen Israël na fatale aanval op journalisten, Iran claimt vernietiging Oekraïense antidrone-opslag Dubai](https://www.ad.nl/buitenland/libanon-komt-met-klacht-tegen-israel-na-fatale-aanval-op-journalisten-iran-claimt-vernietiging-oekraiense-antidrone-opslag-dubai~ac528ac3/)
-  > Een Israëlische aanval heeft drie Libanese journalisten gedood. Libanon heeft aangekondigd een klacht in te zullen dienen bij de VN-Veiligheidsraad. ...
-- [Vivianne Miedema en Kerstin Casparij schieten koploper City naar belangrijke zege in derby van Manchester](https://www.ad.nl/voetbal/vivianne-miedema-en-kerstin-casparij-schieten-koploper-city-naar-belangrijke-zege-in-derby-van-manchester~a40b0936/)
-  > Manchester City is dankzij twee Oranje-internationals een grote stap dichter bij de landstitel in de Women’s Super League gekomen. De koploper won op...
-- [Van schimmel naar snack: Bredase start-up in de race voor nationale ondernemersprijs](https://www.ad.nl/binnenland/van-schimmel-naar-snack-bredase-start-up-in-de-race-voor-nationale-ondernemersprijs~a1e60ab7/)
-  > De wereld heeft steeds meer eiwit nodig, maar wel duurzamer dan nu. In Breda wordt gewerkt aan een opvallend alternatief. In grote stalen...
-- [Een miljoen per jaar voor een ambtenaar: gaat Nederland straks Singapore achterna?](https://www.ad.nl/politiek/een-miljoen-per-jaar-voor-een-ambtenaar-gaat-nederland-straks-singapore-achterna~a42af476/)
-  > Dit kabinet wil het helemaal anders doen. Opeenvolgende kabinetten slaagden er niet in te snoeien in het uitdijende aantal ambtenaren. Een nieuwe...
+- [Charles Leclerc haalt genadeloos hard uit naar Formule 1-regels: ‘Het is één grote grap’](https://www.ad.nl/formule-1/charles-leclerc-haalt-genadeloos-hard-uit-naar-formule-1-regels-het-is-een-grote-grap~a32ae013/)
+  > Na een uitstapje op de Nürburgring is het voor Max Verstappen tijd voor het derde raceweekend in de Formule 1. Het circus is aangekomen in Suzuka...
+- [Kleinste koophuis van Nederland is 21 vierkante meter en kost ruim twee ton: ‘Alles zit erin’](https://www.ad.nl/binnenland/kleinste-koophuis-van-nederland-is-21-vierkante-meter-en-kost-ruim-twee-ton-alles-zit-erin~accbf311/)
+  > Van de ruim achtduizend koophuizen die je zaterdag in het hele land kon bezoeken, staat het kleinste in Den Bosch. De etagewoning is 21 vierkante...
+- [Houthi’s claimen tweede raketaanval op Israël, Libanon dient klacht in na dood drie journalisten](https://www.ad.nl/buitenland/houthis-claimen-tweede-raketaanval-op-israel-libanon-dient-klacht-in-na-dood-drie-journalisten~ac528ac3/)
+  > De Jemenitische Houthi’s zeggen een tweede aanval met raketten en drones op Israël te hebben uitgevoerd. Een Israëlische aanval heeft drie Libanese...
 
 ### Meest gelezen
 
