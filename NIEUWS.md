@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-03-2026 om 17:34*
+*Laatst bijgewerkt: 28-03-2026 om 18:49*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Mensenmassa op de been in Londen tegen extreemrechts en racisme](https://nos.nl/l/2608212)
+  > In Londen hebben tienduizenden mensen gedemonstreerd tegen extreemrechts en racisme. De demonstranten richtten hun protest onder meer tegen de...
 - [Partijkantoor Venezolaanse oppositie heropend, partij wil regeren](https://nos.nl/l/2608208)
   > In de Venezolaanse hoofdstad Caracas is het voormalige partijkantoor van oppositieleider María Corina Machado heropend. Een grote menigte...
 - [Bomaanslag verijdeld bij filiaal van Bank of America in Parijs](https://nos.nl/l/2608196)
@@ -16,8 +18,6 @@
   > In Oekraïne zijn zeker vijf mensen gedood bij Russische droneaanvallen. Dat melden Oekraïense autoriteiten. Rusland zou Oekraïne afgelopen nacht...
 - [Houthi's mengen zich in oorlog Midden-Oosten: 'Lastig inschatten hoe sterk ze zijn'](https://nos.nl/l/2608185)
   > De afgelopen maand was het stil vanuit Jemen. Waar andere bondgenoten van Iran zich al snel mengden in de oorlog tegen Israël en de Verenigde Staten,...
-- [Donororganisaties willen landelijk onderzoek naar vruchtbaarheidsklinieken](https://nos.nl/l/2608184)
-  > Er moet een groot landelijk onderzoek komen naar misstanden bij vruchtbaarheidsklinieken. Daarvoor pleiten verschillende organisaties na nieuwe...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hoe rottende vis politie op het spoor van cocaïnebende zette: ‘Hij zag wat raars bij de ruggengraat’](https://www.ad.nl/binnenland/hoe-rottende-vis-politie-op-het-spoor-van-cocainebende-zette-hij-zag-wat-raars-bij-de-ruggengraat~a30c4abc/)
-  > Wat waren ze dicht bij een klapper. Maar het plan van vijf drugscriminelen om op zéér creatieve - stinkende - wijze een miljoenenpartij cocaïne...
-- [LIVE interland | Schotland krijgt kansen tegen Japan, Sano en Watanabe in de basis in Glasgow](https://www.ad.nl/wk-voetbal/live-interland-schotland-krijgt-kansen-tegen-japan-sano-en-watanabe-in-de-basis-in-glasgow~aa30b514/)
-  > Japan, een van de tegenstanders van Oranje in de groepsfase van het WK, begint deze interlandperiode met een oefenwedstrijd op bezoek bij Schotland....
-- [‘Verhitte discussie’ tussen EU-buitenlandchef en Amerikaanse minister Rubio op G7-top](https://www.ad.nl/buitenland/verhitte-discussie-tussen-eu-buitenlandchef-en-amerikaanse-minister-rubio-op-g7-top~ae67dd9c/)
+- [Politie op Bali wijst verdachten aan voor moord op Nederlandse crimineel](https://www.ad.nl/buitenland/politie-op-bali-wijst-verdachten-aan-voor-moord-op-nederlandse-crimineel~ad1f23bc/)
+  > De politie op Bali heeft twee buitenlanders aangewezen als verdachten van een fatale steekpartij waarbij begin deze week de 49-jarige Nederlandse...
+- [Kan gasopslag tijdig gevuld worden? ‘Alleen als commer­ciële partijen het laten afweten, springt overheid bij’](https://www.ad.nl/economie/kan-gasopslag-tijdig-gevuld-worden-alleen-als-commerciele-partijen-het-laten-afweten-springt-overheid-bij~a0a40425/)
+  > De gasopslag in Nederland is bijna leeg, net nu er wereldwijd een tekort aan gas is. Moeten we ons zorgen maken over de komende winter? Vijf vragen...
+- [Miljoenen mensen verwacht bij duizenden demonstraties tegen beleid van Trump in VS](https://www.ad.nl/buitenland/miljoenen-mensen-verwacht-bij-duizenden-demonstraties-tegen-beleid-van-trump-in-vs~ae67dd9c/)
+  > De aangekondigde demonstraties voor deze zaterdag in de VS kunnen opnieuw miljoenen mensen op de been brengen, zo is de verwachting. Het worden de...
+- [‘Verhitte discussie’ tussen EU-buitenlandchef en Amerikaanse minister Rubio op G7-top](https://www.ad.nl/buitenland/verhitte-discussie-tussen-eu-buitenlandchef-en-amerikaanse-minister-rubio-op-g7-top~ae16994e/)
   > De buitenlandchef van de Europese Unie, Kaja Kallas, heeft vrijdag op de bijeenkomst van de G7-landen in Parijs fel uitgehaald naar de Amerikaanse...
-- [Dieven stelen meer dan 413.000 KitKat-repen](https://www.ad.nl/buitenland/dieven-stelen-meer-dan-413-000-kitkat-repen~ae5631ad/)
-  > Er is 12 ton aan KitKat-repen gestolen bij Nestlé. Een vrachtwagen met een lading van 413.793 chocoladerepen vertrok vorige week uit een fabriek in...
-- [Hakkende Argentijnen bij aftrap wereldtour Joost Klein: 'Ben er zo geëmotioneerd over'](https://www.ad.nl/show/hakkende-argentijnen-bij-aftrap-wereldtour-joost-klein-ben-er-zo-geemotioneerd-over~a3f6b2e3/)
-  > Hakkende Argentijnen die zijn teksten meeblèren: het is een nogal surrealistisch begin van Joost Kleins eerste wereldtour. Deze site was erbij. „Het...
+- [Zomertijd komt eraan: komende nacht slapen we een uurtje minder](https://www.ad.nl/binnenland/zomertijd-komt-eraan-komende-nacht-slapen-we-een-uurtje-minder~aa833e7c/)
+  > In de nacht van zaterdag op zondag schakelen we over naar de zomertijd. Om 2.00 uur worden de klokken een uur vooruitgezet, naar 3.00 uur. En dat is...
 
 ### Meest gelezen
 
