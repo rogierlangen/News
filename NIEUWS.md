@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-03-2026 om 14:36*
+*Laatst bijgewerkt: 28-03-2026 om 15:35*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van Erling Haaland tot Carlos Alcaraz: waarom steeds meer topsporters schaken inzetten voor hun prestaties](https://www.ad.nl/andere-sporten/van-erling-haaland-tot-carlos-alcaraz-waarom-steeds-meer-topsporters-schaken-inzetten-voor-hun-prestaties~a9c4eedf/)
+- [Van Senna tot Verstappen en van Dragon Ball Z tot Mario Kart: Japan snakt naar nieuw Formule 1-succes](https://www.ad.nl/formule-1/van-senna-tot-verstappen-en-van-dragon-ball-z-tot-mario-kart-japan-snakt-naar-nieuw-formule-1-succes~a69568e2/)
+  > Ayrton Senna en Max Verstappen die met Japanse motoren wereldkampioen werden in de Formule 1: Japanners kijken er met weemoed op terug. Zeker nu...
+- [Senegal pronkt met Afrika Cup bij oefenduel in Parijs, Marokko dreigt met rechtszaak](https://www.ad.nl/voetbal/senegal-pronkt-met-afrika-cup-bij-oefenduel-in-parijs-marokko-dreigt-met-rechtszaak~acd11274/)
+  > Het nationale team van Senegal heeft zaterdagmiddag in Stade de France de Afrika Cup aan het publiek getoond. Dat deden de voetballers voor een...
+- [Bultrugwalvis die al dagen gestrand was voor kust van Duitsland, zit opnieuw vast](https://www.ad.nl/buitenland/bultrugwalvis-die-al-dagen-gestrand-was-voor-kust-van-duitsland-zit-opnieuw-vast~a6d530a9/)
+  > Een bultrugwalvis die dagenlang gestrand was voor de Duitse kust en zich vrijdag alsnog kon losworstelen, is zaterdag vastgelopen op een andere...
+- [Onderofficier Henk (39): ‘De secundaire voorwaarden zijn perfect’](https://www.ad.nl/werk/onderofficier-henk-39-de-secundaire-voorwaarden-zijn-perfect~ac450bfe/)
+  > Henk (39) werkt als onderofficier bij de Koninklijke Landmacht. Hij werkt met logistieke transportsystemen en onderhoudt deze. Henk geeft ook...
+- [Alcaraz zweert erbij, Haaland investeert erin: waarom topsporters profijt halen uit schaken](https://www.ad.nl/andere-sporten/alcaraz-zweert-erbij-haaland-investeert-erin-waarom-topsporters-profijt-halen-uit-schaken~a9c4eedf/)
   > Erling Haaland investeerde recent in een schaaktoernooi, Mohamed Salah speelt dagelijks online onder een valse naam en Carlos Alcaraz zweert dat het...
-- [Aanslag verijdeld voor filiaal Amerikaanse bank in Parijs: politie betrapt man met zelfgemaakt explosief](https://www.ad.nl/buitenland/aanslag-verijdeld-voor-filiaal-amerikaanse-bank-in-parijs-politie-betrapt-man-met-zelfgemaakt-explosief~aa0e7f03/)
-  > In de Franse hoofdstad Parijs heeft de politie in de nacht vrijdag op zaterdag een aanslag verijdeld aan een filiaal van de Bank of America. De...
-- [Toen Miek net een maand haar rijbewijs had, mocht ze een ‘lompe’ Land Rover lenen. Nu is-ie van haar: ‘Past goed bij me’](https://www.ad.nl/auto/toen-miek-net-een-maand-haar-rijbewijs-had-mocht-ze-een-lompe-land-rover-lenen-nu-is-ie-van-haar-past-goed-bij-me~afde65de0/)
-  > Kleine vrouw, grote auto: Miek van de Waerdt uit Soest heeft haar auto’s het liefst zo groot en lomp mogelijk. Niet zo gek dus dat ze helemaal...
-- [De vader van Elodie wil geen contact met haar: ‘Ik heb van hem nooit gehoord: jij bent mijn kind’](https://www.ad.nl/mezza/de-vader-van-elodie-wil-geen-contact-met-haar-ik-heb-van-hem-nooit-gehoord-jij-bent-mijn-kind~aa0a5c44/)
-  > Na een avond in de kroeg raakt Elodie’s moeder zwanger van een getrouwde man met twee dochters. Hij kiest ervoor haar bestaan te verzwijgen. In deze...
-- [Deepfakevideo’s van Belgische prinses Elisabeth circuleren op sociale media, paleis grijpt in](https://www.ad.nl/show/deepfakevideos-van-belgische-prinses-elisabeth-circuleren-op-sociale-media-paleis-grijpt-in~a7b665b0/)
-  > Op Facebook circuleren tientallen filmpjes van de Belgische kroonprinses Elisabeth (24) die zijn gemaakt met artificiële intelligentie (AI). Vooral...
 
 ### Meest gelezen
 
