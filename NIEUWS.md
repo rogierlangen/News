@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-03-2026 om 16:39*
+*Laatst bijgewerkt: 28-03-2026 om 17:34*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Partijkantoor Venezolaanse oppositie heropend, partij wil regeren](https://nos.nl/l/2608208)
+  > In de Venezolaanse hoofdstad Caracas is het voormalige partijkantoor van oppositieleider María Corina Machado heropend. Een grote menigte...
 - [Bomaanslag verijdeld bij filiaal van Bank of America in Parijs](https://nos.nl/l/2608196)
   > Twee mensen hebben vannacht geprobeerd een explosief te laten afgaan bij het pand van de Bank of America in Parijs. De Franse minister Nuñez van...
 - [Zeker 5 doden bij Russische droneaanvallen op Oekraïne](https://nos.nl/l/2608195)
@@ -16,8 +18,6 @@
   > De afgelopen maand was het stil vanuit Jemen. Waar andere bondgenoten van Iran zich al snel mengden in de oorlog tegen Israël en de Verenigde Staten,...
 - [Donororganisaties willen landelijk onderzoek naar vruchtbaarheidsklinieken](https://nos.nl/l/2608184)
   > Er moet een groot landelijk onderzoek komen naar misstanden bij vruchtbaarheidsklinieken. Daarvoor pleiten verschillende organisaties na nieuwe...
-- [Vermiste zeilboten met noodhulp voor Cuba terecht, bemanning veilig](https://nos.nl/l/2608178)
-  > Twee zeilboten die gisteren vermist raakten op weg van Mexico naar Cuba zijn terecht. De boten met humanitaire hulpgoederen zijn opgespoord door de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Senegal pronkt met Afrika Cup bij oefenduel in Parijs, Marokko dreigt met rechtszaak](https://www.ad.nl/voetbal/senegal-pronkt-met-afrika-cup-bij-oefenduel-in-parijs-marokko-dreigt-met-rechtszaak~acd11274/)
-  > Het nationale team van Senegal heeft zaterdag in het Stade de France de beker van de Afrika Cup aan het publiek getoond. Dat deden de voetballers...
-- [Caroline Tensen bij bevalling van dochter aanwezig: ‘Mooiste wat ik ooit heb mee mogen maken’](https://www.ad.nl/show/caroline-tensen-bij-bevalling-van-dochter-aanwezig-mooiste-wat-ik-ooit-heb-mee-mogen-maken~a62ed72f/)
-  > Caroline Tensen is oma geworden. Dat laat de presentatrice weten op Instagram: ‘Jaaaaa daar is ie dan!! James. We zijn zo dankbaar dat hij gezond ter...
-- [Jonas Vingegaard verstevigt leiding in Ronde van Catalonië, Remco Evenepoel offert zich op voor ploeggenoot](https://www.ad.nl/wielrennen/jonas-vingegaard-verstevigt-leiding-in-ronde-van-catalonie-remco-evenepoel-offert-zich-op-voor-ploeggenoot~a58fb872/)
-  > Jonas Vingegaard heeft zijn leiding in het klassement van de Ronde van Catalonië vergroot. De Deen schreef na winst in de vijfde etappe ook de zesde...
-- [Vrijgezelle Peter (66) verkiest Super Mario boven een relatie: ‘Niet elke vrouw vindt dit leuk’](https://www.ad.nl/games/vrijgezelle-peter-66-verkiest-super-mario-boven-een-relatie-niet-elke-vrouw-vindt-dit-leuk~a8045cd3/)
-  > Wie in het leven van beveiliger Peter Borghouts (66) stapt, moet de liefde delen met een besnorde Italiaanse loodgieter. Super Mario beheerst al...
-- [Fortuna Sittard moet op zoek naar nieuwe td, PEC verlengt met keeper](https://www.ad.nl/voetbal/fortuna-sittard-moet-op-zoek-naar-nieuwe-td-pec-verlengt-met-keeper~a35ea681/)
-  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
+- [Hoe rottende vis politie op het spoor van cocaïnebende zette: ‘Hij zag wat raars bij de ruggengraat’](https://www.ad.nl/binnenland/hoe-rottende-vis-politie-op-het-spoor-van-cocainebende-zette-hij-zag-wat-raars-bij-de-ruggengraat~a30c4abc/)
+  > Wat waren ze dicht bij een klapper. Maar het plan van vijf drugscriminelen om op zéér creatieve - stinkende - wijze een miljoenenpartij cocaïne...
+- [LIVE interland | Schotland krijgt kansen tegen Japan, Sano en Watanabe in de basis in Glasgow](https://www.ad.nl/wk-voetbal/live-interland-schotland-krijgt-kansen-tegen-japan-sano-en-watanabe-in-de-basis-in-glasgow~aa30b514/)
+  > Japan, een van de tegenstanders van Oranje in de groepsfase van het WK, begint deze interlandperiode met een oefenwedstrijd op bezoek bij Schotland....
+- [‘Verhitte discussie’ tussen EU-buitenlandchef en Amerikaanse minister Rubio op G7-top](https://www.ad.nl/buitenland/verhitte-discussie-tussen-eu-buitenlandchef-en-amerikaanse-minister-rubio-op-g7-top~ae67dd9c/)
+  > De buitenlandchef van de Europese Unie, Kaja Kallas, heeft vrijdag op de bijeenkomst van de G7-landen in Parijs fel uitgehaald naar de Amerikaanse...
+- [Dieven stelen meer dan 413.000 KitKat-repen](https://www.ad.nl/buitenland/dieven-stelen-meer-dan-413-000-kitkat-repen~ae5631ad/)
+  > Er is 12 ton aan KitKat-repen gestolen bij Nestlé. Een vrachtwagen met een lading van 413.793 chocoladerepen vertrok vorige week uit een fabriek in...
+- [Hakkende Argentijnen bij aftrap wereldtour Joost Klein: 'Ben er zo geëmotioneerd over'](https://www.ad.nl/show/hakkende-argentijnen-bij-aftrap-wereldtour-joost-klein-ben-er-zo-geemotioneerd-over~a3f6b2e3/)
+  > Hakkende Argentijnen die zijn teksten meeblèren: het is een nogal surrealistisch begin van Joost Kleins eerste wereldtour. Deze site was erbij. „Het...
 
 ### Meest gelezen
 
