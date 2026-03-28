@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-03-2026 om 09:41*
+*Laatst bijgewerkt: 28-03-2026 om 10:37*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Luchtmacht oefent in Japan met F-35's: 'Afschrikking als doel, vechten als nodig is'](https://nos.nl/l/2608171)
+  > Onder het oorverdovende geronk van de motoren stijgen één voor één Nederlandse F-35-vliegtuigen op vanaf de startbaan op luchtbasis Misawa, in het...
 - [Auto crasht tegen woning Hapert, man opgepakt voor rijden onder invloed](https://nos.nl/l/2608164)
   > Een automobilist is gisteravond een huis in Hapert in Noord-Brabant binnengereden. Daarbij raakte niemand gewond. In de auto zaten meerdere mannen,...
 - [Logeerpartij Willem-Alexander en Máxima bij Trump: ongepast of logisch?](https://nos.nl/l/2608162)
   > Het is misschien wel het spraakmakendste koninklijk werkbezoek ooit: het bezoek van koning Willem-Alexander en koningin Máxima aan de VS. Over ruim...
-- [Grote brand in loods met gevaarlijke stoffen bij afvalverwerker Maastricht](https://nos.nl/l/2608161)
-  > Op een industrieterrein in Maastricht is in de vroege ochtend brand uitgebroken, meldt L1 Nieuws. Het pand van een afvalverwerker vatte vlam. Bij de...
+- [Grote brand bij afvalverwerker Maastricht onder controle](https://nos.nl/l/2608161)
+  > Op een industrieterrein in Maastricht heeft vanmorgen een grote brand gewoed. Het pand van een afvalverwerker vatte vlam. Rond 10.15 uur was het vuur...
 - ['Duitsland beschermt daders': deepfakezaak tv-ster brengt duizenden op de been](https://nos.nl/l/2608153)
   > Is Duitsland een "paradijs voor daders" van online seksueel misbruik? Die vraag staat centraal in een fel debat dat is losgebarsten na...
-- [Wekdienst 28/3: Demonstratie tegen Iran-oorlog • Paus bezoekt Monaco](https://nos.nl/l/2608152)
-  > Goedemorgen! In Den Haag wordt er geprotesteerd tegen de Amerikaanse en Israëlische aanvallen op Iran en de paus bezoekt Monaco.
-        Eerst het...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tijden Formule 1 Grand Prix van Japan | Zo vroeg moet Max Verstappen beginnen aan inhaalrace en dit is de startopstelling](https://www.ad.nl/formule-1/tijden-formule-1-grand-prix-van-japan-zo-vroeg-moet-max-verstappen-beginnen-aan-inhaalrace-en-dit-is-de-startopstelling~afb911aa/)
-  > De Formule 1 blijft na de Grand Prix van China in Azië: de derde race van het seizoen wordt gereden in Japan. Max Verstappen beleefde een...
-- [Engelse superfan zet huis van 400.000 euro te koop om reis naar het WK te kunnen bekostigen](https://www.ad.nl/wk-voetbal/engelse-superfan-zet-huis-van-400-000-euro-te-koop-om-reis-naar-het-wk-te-kunnen-bekostigen~a94eed786/)
-  > De Engelse ‘superfan’ Andy Milne zegt dat hij zijn huis gaat verkopen om zijn ​​reis naar het WK in de Verenigde Staten te kunnen bekostigen. Hij is...
-- [Dit is de beste grasmaaier voor een strak gazon](https://www.ad.nl/wonen/dit-is-de-beste-grasmaaier-voor-een-strak-gazon~a4e8e1dcf/)
-  > Op zoek naar een grasmaaier die lang meegaat en goed maait? De Consumentenbond testte twintig modellen op maaikwaliteit, gebruiksgemak en lawaai....
-- [Monica geconfronteerd met rimpels en grijs haar, Sylvie dolblij met tijdsbesteding zoon](https://www.ad.nl/show/monica-geconfronteerd-met-rimpels-en-grijs-haar-sylvie-dolblij-met-tijdsbesteding-zoon~a0eeb3b5/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [PSV-fan Theo Maassen: ‘Dat de beste technisch directeur die Ajax kon vinden Cruijff heet, is toch bizar toevallig?’](https://www.ad.nl/voetbal/psv-fan-theo-maassen-dat-de-beste-technisch-directeur-die-ajax-kon-vinden-cruijff-heet-is-toch-bizar-toevallig~a2b9a543/)
-  > Cabaretier Theo Maassen houdt erg veel van voetbal, in het bijzonder van PSV. Genoeg reden voor een interview, nu PSV op het punt staat om...
+- [Elektrische steps en een safehouse: hoe op klaarlichte dag drie moorden werden gepleegd in Oosterhout](https://www.ad.nl/binnenland/elektrische-steps-en-een-safehouse-hoe-op-klaarlichte-dag-drie-moorden-werden-gepleegd-in-oosterhout~ab2cbb90/)
+  > Drie doden binnen enkele minuten: een jaar geleden werd Oosterhout opgeschrikt door extreem onderwereldgeweld. Wie zitten er achter dit geweld? Welk...
+- [Verstappens teamgenoot Isack Hadjar foetert ook op auto Red Bull: ‘Er gebeuren dingen die nergens op slaan’](https://www.ad.nl/formule-1/verstappens-teamgenoot-isack-hadjar-foetert-ook-op-auto-red-bull-er-gebeuren-dingen-die-nergens-op-slaan~a8cc0826/)
+  > Niet alleen Max Verstappen is niet te spreken over de RB22 waar hij in rijdt. Ook teamgenoot Isack Hadjar, die het met P7 iets beter deed dan de...
+- [Koeman zag het in minuut 51: zonder deze actie van Teun Koopmeiners vliegt Oranje straks bij 36 graden zomaar uit het WK](https://www.ad.nl/voetbal/koeman-zag-het-in-minuut-51-zonder-deze-actie-van-teun-koopmeiners-vliegt-oranje-straks-bij-36-graden-zomaar-uit-het-wk~a4ecefb21/)
+  > Nederland tegen Noorwegen werd vrijdagavond een goede oefenwedstrijd midden in het clubseizoen in maart in Amsterdam. Maar wat kunnen bondscoach en...
+- [Een cursus mindfullness, een personal trainer en een e-bike: maar de hond van Ralph mocht niet van het keuzebudget](https://www.ad.nl/economie/een-cursus-mindfullness-een-personal-trainer-en-een-e-bike-maar-de-hond-van-ralph-mocht-niet-van-het-keuzebudget~a2ba74bc/)
+  > Toen Ralph een hond aanschafte met zijn keuzebudget, werd hij uitgelachen. Dat vertelt hij aan Anne-Marije Buckens die al vijftien jaar een bedrijf...
+- [Feestvieren is goed voor je gezondheid: ‘Zelfs in tijden van crisis, vieren mensen toch feest’](https://www.ad.nl/mezza/feestvieren-is-goed-voor-je-gezondheid-zelfs-in-tijden-van-crisis-vieren-mensen-toch-feest~a447563a/)
+  > Allemaal leuk en aardig dat vieren van verjaardagen en jubilea, maar is dat feestgedruis ook ergens goed voor? In ons weekendmagazine Mezza kijken we...
 
 ### Meest gelezen
 
