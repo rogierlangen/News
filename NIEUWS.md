@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-03-2026 om 06:02*
+*Laatst bijgewerkt: 28-03-2026 om 07:46*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Grote brand in loods met gevaarlijke stoffen bij afvalverwerker Maastricht](https://nos.nl/l/2608161)
+  > Op een industrieterrein in Maastricht is in de vroege ochtend brand uitgebroken, meldt L1. Het pand van een afvalverwerker vatte vlam. Bij de brand...
+- ['Duitsland beschermt daders': deepfakezaak tv-ster brengt duizenden op de been](https://nos.nl/l/2608153)
+  > Is Duitsland een "paradijs voor daders" van online seksueel misbruik? Die vraag staat centraal in een fel debat dat is losgebarsten na...
+- [Wekdienst 28/3: Demonstratie tegen Iran-oorlog • Paus bezoekt Monaco](https://nos.nl/l/2608152)
+  > Goedemorgen! In Den Haag wordt er geprotesteerd tegen de Amerikaanse en Israëlische aanvallen op Iran en de paus bezoekt Monaco.
+        Eerst het...
+- [Bank of America schikt voor tientallen miljoenen met slachtoffers in Epstein-zaak](https://nos.nl/l/2608151)
+  > Bank of America betaalt 72,5 miljoen dollar (omgerekend 63 miljoen euro) om te schikken in een zaak die tegen de bank was aangespannen door een groep...
 - [Onderzoek naar kinderen en huiselijk geweld schiet al jaren tekort, vinden jeugdbeschermers](https://nos.nl/l/2608150)
   > Er is onder kinderen al jarenlang geen uitvoerig onderzoek meer gedaan naar huiselijk geweld. Dergelijke studies zijn moeilijk uitvoerbaar en duur....
-- [Podcast De Dag: hoe de olievlek van stijgende prijzen zich uitbreidt](https://nos.nl/l/2608149)
-  > De olieprijs loopt al weken op, ook gas wordt al weken duurder. Maar daar blijft het niet bij. Alles zal uiteindelijk duurder worden, door de oorlog...
-- [Nepalese oud-premier gearresteerd om rol bij dodelijke Gen Z-protesten](https://nos.nl/l/2608146)
-  > De voormalige premier van Nepal, KP Sharma Oli, is aangehouden voor zijn rol tijdens de dodelijke protesten in het land vorig jaar. De politie...
-- [Helikopter stort neer in Hawaï, drie doden en twee gewonden](https://nos.nl/l/2608145)
-  > Bij een helikoptercrash in Hawaï zijn drie mensen om het leven gekomen, meldt de Amerikaanse kustwacht. De helikopter stortte neer tijdens een...
-- [Oppervlakte zee-ijs Noordpoolgebied evenaart laagste niveau ooit in de winter](https://nos.nl/l/2608144)
-  > De hoeveelheid zee-ijs in het Noordpoolgebied is deze winter net zo laag als vorig jaar. Toen spraken wetenschappers van een dieptepunt omdat er niet...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Max Verstappen begint met zorgen aan kwalificatie voor GP van Japan](https://www.ad.nl/formule-1/max-verstappen-begint-met-zorgen-aan-kwalificatie-voor-gp-van-japan~ae113e21/)
-  > Het wil nog niet vlotten met Max Verstappen op het circuit van Suzuka. De viervoudig wereldkampioen eindigde eerder vandaag als achtste in de laatste...
-- [Joesoef reed al 700.000 kilometer in zijn Tesla Model 3 met originele accu: ‘Ik blijf hem gebruiken’](https://www.ad.nl/auto/joesoef-reed-al-700-000-kilometer-in-zijn-tesla-model-3-met-originele-accu-ik-blijf-hem-gebruiken~ab5b886b/)
-  > Joesoef Henar uit Woerden reed bijna 700.000 kilometer met zijn Tesla Model 3 uit 2019 in zes jaar tijd. De auto werd intensief gebruikt voor zowel...
-- [Hoe kiloknallers niet kapot te krijgen zijn: ‘Supermarkt is geen charitatieve instelling’](https://www.ad.nl/economie/hoe-kiloknallers-niet-kapot-te-krijgen-zijn-supermarkt-is-geen-charitatieve-instelling~a535aea6/)
-  > Jumbo probeerde het: stoppen met vleesaanbiedingen. Maar na twee jaar werd de supermarkt met de neus op de feiten gedrukt. Het kostte tientallen...
-- [Britse vrouw die ‘al jaren te ziek is om haar huis uit te komen’ gefotografeerd tijdens ziplinen in Mexico: ‘Pure fraude’](https://www.ad.nl/buitenland/britse-vrouw-die-al-jaren-te-ziek-is-om-haar-huis-uit-te-komen-gefotografeerd-tijdens-ziplinen-in-mexico-pure-fraude~ab56cefc/)
-  > Een Britse vrouw die door angstproblemen ‘zelfs te ziek was om haar huis uit te komen’, is op opvallende wijze betrapt op uitkeringsfraude. Het bleek...
-- [Wonder blijft uit: Max Verstappen klokt achtste tijd in derde vrije training, Mercedes oppermachtig](https://www.ad.nl/formule-1/wonder-blijft-uit-max-verstappen-klokt-achtste-tijd-in-derde-vrije-training-mercedes-oppermachtig~a63a775f/)
-  > De zorgen voor Max Verstappen zijn van vrijdag op zaterdag nog niet wonderbaarlijk verdwenen. Dat werd duidelijk tijdens de derde vrije training voor...
+- [Bedrijfsbusjes zijn een rijdend visitekaartje voor ondernemers: ‘Maar zo rijden ze niet’](https://www.ad.nl/binnenland/bedrijfsbusjes-zijn-een-rijdend-visitekaartje-voor-ondernemers-maar-zo-rijden-ze-niet~a89b11d2/)
+  > Je rijdt op de provinciale weg. Achter je is een bedrijfsbusje aan het bumperkleven. Terwijl het eigenlijk net niet kan, haalt het busje je toch in....
+- [Zelden vervolging na dodelijke incidenten in jeugdzorg, ggz en gehandicaptenzorg](https://www.ad.nl/binnenland/zelden-vervolging-na-dodelijke-incidenten-in-jeugdzorg-ggz-en-gehandicaptenzorg~a5e533f9/)
+  > Zorginstellingen worden nauwelijks strafrechtelijk vervolgd voor dodelijke incidenten, ook niet als er na het overlijden grote tekortkomingen aan het...
+- [Dramatische kwalificatie voor Max Verstappen, Kimi Antonelli maakt weer indruk met pole](https://www.ad.nl/formule-1/dramatische-kwalificatie-voor-max-verstappen-kimi-antonelli-maakt-weer-indruk-met-pole~ae113e21/)
+  > Max Verstappen won vier jaar op rij de Grand Prix van Japan, maar ‘vijf op rij’ is een utopie. De viervoudig wereldkampioen start zondag in Suzuka...
+- [Acteur James Tolkan (94), uit Top Gun en Back to the future, overleden](https://www.ad.nl/show/acteur-james-tolkan-94-uit-top-gun-en-back-to-the-future-overleden~a8f28c78/)
+  > James Tolkan, voornamelijk bekend voor zijn rollen in Top Gun en de Back to the Future-reeks, is overleden. Het nieuws over zijn overlijden werd...
+- [Oranje op rapport | Grootste uitblinker staat in voorhoede, magere voldoende voor debutant Kees Smit](https://www.ad.nl/voetbal/oranje-op-rapport-grootste-uitblinker-staat-in-voorhoede-magere-voldoende-voor-debutant-kees-smit~a315d18c6/)
+  > Een solide defensie, een zoekende debutant en een uitblinker in de voorhoede. Dit zijn onze cijfers na het gelijkspel van het Nederlands elftal tegen...
 
 ### Meest gelezen
 
@@ -46,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [EU scherpt douaneregels aan voor pakjes uit niet-EU-landen](https://fd.nl/economie/1591388/eu-scherpt-douaneregels-aan-voor-pakjes-uit-niet-eu-landen)
+  > Verkopers buiten de EU moeten een ‘vertrouwde handelaar’ in het landenblok aanwijzen als wettelijke vertegenwoordiger.
 - [‘Landen om ons heen nemen wél maatregelen, en bedrijven die in Nederland gevestigd zijn zullen daar last van krijgen’](https://fd.nl/opinie/1591276/landen-om-ons-heen-nemen-wel-maatregelen-en-bedrijven-die-in-nederland-gevestigd-zijn-zullen-daar-last-van-krijgen-en-andere-lezersreacties)
   > FD-lezers reageren op het voorbereiden op een oliecrisis, holle en nietszeggende slogans, de jaarlijkse discussie over zomertijd en algoritmes bij...
 - [Hoe Trumps oorlogen vooral China wat opleveren](https://fd.nl/economie/1591281/hoe-trumps-oorlogen-vooral-china-wat-opleveren)
@@ -54,8 +57,6 @@
   > Met twee decks tarotkaarten als uitgangspunt heeft kunstenaar Shertise Solano een verrassende expositie samengesteld. ‘Wat zie je, wat valt je op?’
 - [De oorlog bewijst de noodzaak van onze vierde energietransitie](https://fd.nl/politiek/1590968/de-oorlog-bewijst-de-noodzaak-van-onze-vierde-energietransitie)
   > De afgelopen jaren gleed klimaatbeleid in veel landen van het prioriteitenlijstje. De Golfoorlog geeft burgers en overheden een enorme prikkel om het...
-- [Roxane van Iperen: ‘Big tech maakt fruitvliegjes van onze kinderen’](https://fd.nl/samenleving/1590967/roxane-van-iperen-big-tech-maakt-fruitvliegjes-van-onze-kinderen)
-  > Ons hoofd is met een zuignap verbonden aan mondiale techbedrijven, die ons leegzuigen om aan ons te verdienen, stelt Roxane van Iperen.
 
 ### Meest gelezen
 
