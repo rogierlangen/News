@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-03-2026 om 18:49*
+*Laatst bijgewerkt: 28-03-2026 om 19:33*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Politie op Bali wijst verdachten aan voor moord op Nederlandse crimineel](https://www.ad.nl/buitenland/politie-op-bali-wijst-verdachten-aan-voor-moord-op-nederlandse-crimineel~ad1f23bc/)
-  > De politie op Bali heeft twee buitenlanders aangewezen als verdachten van een fatale steekpartij waarbij begin deze week de 49-jarige Nederlandse...
-- [Kan gasopslag tijdig gevuld worden? ‘Alleen als commer­ciële partijen het laten afweten, springt overheid bij’](https://www.ad.nl/economie/kan-gasopslag-tijdig-gevuld-worden-alleen-als-commerciele-partijen-het-laten-afweten-springt-overheid-bij~a0a40425/)
-  > De gasopslag in Nederland is bijna leeg, net nu er wereldwijd een tekort aan gas is. Moeten we ons zorgen maken over de komende winter? Vijf vragen...
-- [Miljoenen mensen verwacht bij duizenden demonstraties tegen beleid van Trump in VS](https://www.ad.nl/buitenland/miljoenen-mensen-verwacht-bij-duizenden-demonstraties-tegen-beleid-van-trump-in-vs~ae67dd9c/)
-  > De aangekondigde demonstraties voor deze zaterdag in de VS kunnen opnieuw miljoenen mensen op de been brengen, zo is de verwachting. Het worden de...
-- [‘Verhitte discussie’ tussen EU-buitenlandchef en Amerikaanse minister Rubio op G7-top](https://www.ad.nl/buitenland/verhitte-discussie-tussen-eu-buitenlandchef-en-amerikaanse-minister-rubio-op-g7-top~ae16994e/)
-  > De buitenlandchef van de Europese Unie, Kaja Kallas, heeft vrijdag op de bijeenkomst van de G7-landen in Parijs fel uitgehaald naar de Amerikaanse...
-- [Zomertijd komt eraan: komende nacht slapen we een uurtje minder](https://www.ad.nl/binnenland/zomertijd-komt-eraan-komende-nacht-slapen-we-een-uurtje-minder~aa833e7c/)
-  > In de nacht van zaterdag op zondag schakelen we over naar de zomertijd. Om 2.00 uur worden de klokken een uur vooruitgezet, naar 3.00 uur. En dat is...
+- [Van e-sportkampioen naar international op het veld: Deense voetballer (22) beleeft jongensdroom](https://www.ad.nl/voetbal/van-e-sportkampioen-naar-international-op-het-veld-deense-voetballer-22-beleeft-jongensdroom~ae464438/)
+  > Zodra de droom om profvoetballer te worden vervliegt, kiezen veel tienerjongens ervoor om hun succes dan maar virtueel na te jagen. Oliver...
+- [De Graafschap verdubbelt marge in belangrijke wedstrijd om play-offs tegen Willem II](https://www.ad.nl/voetbal/de-graafschap-verdubbelt-marge-in-belangrijke-wedstrijd-om-play-offs-tegen-willem-ii~a352399c/)
+  > Willem II is al verzekerd van de play-offs, maar voor De Graafschap staat een hoop op het spel. Ondanks dat De Graafschap op de vierde plek staat in...
+- [Oranje-opponent Japan wint met spelers van Feyenoord en NEC van Schotland](https://www.ad.nl/wk-voetbal/oranje-opponent-japan-wint-met-spelers-van-feyenoord-en-nec-van-schotland~aa30b514/)
+  > De nationale ploeg van Japan, komende zomer een van de tegenstanders van Oranje op het WK, is 2026 begonnen met een overwinning op Schotland. Dankzij...
+- [Defensie haalt niet het uiterste uit vrouwen, zegt Lin: ‘Ik hoop het voor generatie na mij beter te maken’](https://www.ad.nl/binnenland/defensie-haalt-niet-het-uiterste-uit-vrouwen-zegt-lin-ik-hoop-het-voor-generatie-na-mij-beter-te-maken~a75e42f1/)
+  > Als het aan de commandant der strijdkrachten ligt, bestaat de krijgsmacht vóór 2030 uit 200.000 mensen, van wie 30 procent vrouw is. Is defensie hier...
+- [Dronken man beklimt ploegleiderswagen Visma in Italiaanse koers, ander gedraagt zich ‘uiterst agressief’](https://www.ad.nl/wielrennen/dronken-man-beklimt-ploegleiderswagen-visma-in-italiaanse-koers-ander-gedraagt-zich-uiterst-agressief~af11cdd4/)
+  > Visma - Lease a Bike is zaterdag tijdens de vierde etappe van de Internationale Wielerweek Coppi e Bartali lastiggevallen door twee dronken en...
 
 ### Meest gelezen
 
