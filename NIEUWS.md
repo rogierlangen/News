@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-03-2026 om 21:34*
+*Laatst bijgewerkt: 28-03-2026 om 22:34*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Twee Brazilianen verdacht van doodsteken Nederlander op Bali](https://nos.nl/l/2608230)
+  > De Nederlander die maandag met messteken om het leven werd gebracht op Bali is vermoedelijk door twee Brazilianen gedood. Een man van 32 en een man...
 - [Zomertijd gaat vannacht in, klok weer een uur vooruit](https://nos.nl/l/2608222)
   > De zomertijd gaat vannacht in. Om 02.00 uur wordt de klok een uur vooruitgezet en wordt het 03.00 uur. Dat betekent voor veel mensen een kortere...
 - [22 migranten omgekomen na zes dagen op zee in rubberboot](https://nos.nl/l/2608220)
@@ -16,8 +18,6 @@
   > In Londen hebben tienduizenden mensen gedemonstreerd tegen extreemrechts en racisme. De demonstranten richtten hun protest onder meer tegen de...
 - [Partijkantoor Venezolaanse oppositie heropend, partij wil regeren](https://nos.nl/l/2608208)
   > In de Venezolaanse hoofdstad Caracas is het voormalige partijkantoor van oppositieleider María Corina Machado heropend. Een grote menigte...
-- [Bomaanslag verijdeld bij filiaal van Bank of America in Parijs](https://nos.nl/l/2608196)
-  > Twee mensen hebben vannacht geprobeerd een explosief te laten afgaan bij het pand van de Bank of America in Parijs. De Franse minister Nuñez van...
 
 ### Meest gelezen
 
@@ -27,10 +27,10 @@
 
 ### Laatste nieuws
 
+- [België bezorgt Amerikanen pijnlijke avond, Mika Godts maakt debuut voor de Rode Duivels](https://www.ad.nl/wk-voetbal/belgie-bezorgt-amerikanen-pijnlijke-avond-mika-godts-maakt-debuut-voor-de-rode-duivels~a78e49e6/)
+  > België heeft zaterdagavond flink wat vertrouwen getankt richting het WK. De Rode Duivels wonnen in het Mercedes-Benz Stadium in Atlanta met 2-5 van...
 - [Leapmotor B10 Hybrid EV: hier komen de elektrische auto’s met hulpmotor](https://www.ad.nl/auto/leapmotor-b10-hybrid-ev-hier-komen-de-elektrische-autos-met-hulpmotor~a093ee98/)
   > De nieuwe Leapmotor B10 lijkt op een gewone hybride is, zoals bijvoorbeeld een Toyota Prius. Maar in werkelijkheid zit het net iets anders. Dit model...
-- [België bezorgt Amerikanen pijnlijke avond in Atlanta, Godts maakt debuut voor Rode Duivels](https://www.ad.nl/wk-voetbal/belgie-bezorgt-amerikanen-pijnlijke-avond-in-atlanta-godts-maakt-debuut-voor-rode-duivels~a78e49e6/)
-  > België begint zijn oefencampagne richting het WK met een oefeninterland in en tegen de Verenigde Staten. Het duel begon om 20.30 uur in het...
 - [Charles Leclerc haalt genadeloos hard uit naar Formule 1-regels: ‘Het is één grote grap’](https://www.ad.nl/formule-1/charles-leclerc-haalt-genadeloos-hard-uit-naar-formule-1-regels-het-is-een-grote-grap~a32ae013/)
   > Na een uitstapje op de Nürburgring is het voor Max Verstappen tijd voor het derde raceweekend in de Formule 1. Het circus is aangekomen in Suzuka...
 - [Kleinste koophuis van Nederland is 21 vierkante meter en kost ruim twee ton: ‘Alles zit erin’](https://www.ad.nl/binnenland/kleinste-koophuis-van-nederland-is-21-vierkante-meter-en-kost-ruim-twee-ton-alles-zit-erin~accbf311/)
