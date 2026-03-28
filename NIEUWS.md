@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-03-2026 om 23:37*
+*Laatst bijgewerkt: 28-03-2026 om 02:36*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Helikopter stort neer in Hawaï, drie doden en twee gewonden](https://nos.nl/l/2608145)
+  > Bij een helikoptercrash in Hawaï zijn drie mensen om het leven gekomen, meldt de Amerikaanse kustwacht. De helikopter stortte neer tijdens een...
+- [Oppervlakte zee-ijs noordpoolgebied evenaart laagste niveau ooit in de winter](https://nos.nl/l/2608144)
+  > De hoeveelheid zee-ijs in het noordpoolgebied is deze winter net zo laag als vorig jaar. Toen spraken wetenschappers van een dieptepunt omdat er niet...
 - [Wisselende reacties op nieuwe naam GL-PvdA: 'Dit zorgt voor verwarring'](https://nos.nl/l/2608126)
   > Lokale politieke partijen reageren wisselend op de aankondiging dat GroenLinks-PvdA een nieuwe naam krijgt. De oppositiepartij wil verder onder de...
 - [Voor Pakistan is bemiddelen tussen de Iran en VS heel logisch](https://nos.nl/l/2608122)
   > Vertegenwoordigers van de Verenigde Staten en Iran staan op het punt om elkaar te ontmoeten om te proberen de oorlog te beëindigen. Dat zei de Duitse...
 - [In hoger beroep straffen tot ruim 17 jaar geëist tegen drugsbende Piet S.](https://nos.nl/l/2608118)
   > Het Openbaar Ministerie eist in hoger beroep gevangenisstraffen tot ruim 17 jaar voor 18 verdachten die betrokken waren bij een criminele organisatie...
-- [Mona Keijzer keert BBB definitief de rug toe: 'Kan niet anders dan afscheid nemen'](https://nos.nl/l/2608117)
-  > Mona Keijzer keert BBB definitief de rug toe en zegt haar lidmaatschap op. Dit maakte ze bekend vlak voor de stemming over een motie voor een...
-- [Onlineplatform Europese Commissie gehackt, data buitgemaakt](https://nos.nl/l/2608112)
-  > Het onlineplatform van de Europese Commissie (EC) is deze week aangevallen door hackers. Daarbij zijn data gestolen, maar de omvang van de hack is...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Advocaat als verdachte: was Inez Weski doorgeefluik van Taghi? ‘Ze is gewoon gek, nooit mailen of sms’en’](https://www.ad.nl/binnenland/advocaat-als-verdachte-was-inez-weski-doorgeefluik-van-taghi-ze-is-gewoon-gek-nooit-mailen-of-smsen~a8effbd8/)
+  > Drie jaar na haar geruchtmakende arrestatie begint donderdag de rechtszaak tegen Inez Weski. Uitgerekend de onkreukbare advocaat, de ‘pitbull in...
+- [Trump haalt opnieuw uit naar Navo-landen: ‘We hoeven ze niet meer te helpen’](https://www.ad.nl/buitenland/trump-haalt-opnieuw-uit-naar-navo-landen-we-hoeven-ze-niet-meer-te-helpen~a1bce4a2/)
+  > Donald Trump heeft vrijdag opnieuw uitgehaald naar Navo-lidstaten vanwege het uitblijven van militaire steun aan de Verenigde Staten tijdens de...
+- [Dode en gewonden in Israël door vermeende Iraanse clusterbom, twaalf militairen VS gewond bij aanval Iran op basis Saoedi-Arabië](https://www.ad.nl/buitenland/dode-en-gewonden-in-israel-door-vermeende-iraanse-clusterbom-twaalf-militairen-vs-gewond-bij-aanval-iran-op-basis-saoedi-arabie~ac528ac3/)
+  > Bij aanvallen op woongebouwen zijn vrijdag in Iran meer dan twintig doden gevallen, meldden meerdere media. Eerder op de dag viel de Israëlische...
+- [Shakira verkoopt meer dan half miljoen tickets voor shows in Madrid](https://www.ad.nl/show/shakira-verkoopt-meer-dan-half-miljoen-tickets-voor-shows-in-madrid~a8393404/)
+  > Shakira heeft binnen enkele uren meer dan een half miljoen tickets verkocht voor haar Europese concertenreeks dit najaar in Madrid. Daarnaast heeft...
 - [Duitsland wint na spektakelstuk voor het eerst in 18 jaar van Zwitserland, Marokko speelt gelijk tegen Ecuador](https://www.ad.nl/wk-voetbal/duitsland-wint-na-spektakelstuk-voor-het-eerst-in-18-jaar-van-zwitserland-marokko-speelt-gelijk-tegen-ecuador~af6d1b1e/)
   > Naast het Nederlands elftal werden er vrijdagavond voldoende andere spannende oefeninterlands gespeeld. Zo won Duitsland in een waar spektakelstuk...
-- [‘Niemand wist dat ik daar lag’: Tom Pidcock komt met schrik vrij na ‘horrorval’ in ravijn](https://www.ad.nl/wielrennen/niemand-wist-dat-ik-daar-lag-tom-pidcock-komt-met-schrik-vrij-na-horrorval-in-ravijn~a879bba6/)
-  > Tom Pidcock (26) is in de koninginnenetappe van de Ronde van Catalonië met de schrik vrijgekomen. In de afdaling van de slotklim reed hij een ravijn...
-- [Kees Smit zelfkritisch na debuut: ‘Mensen verwachten veel van mij, ik probeer dat waar te maken’](https://www.ad.nl/voetbal/kees-smit-zelfkritisch-na-debuut-mensen-verwachten-veel-van-mij-ik-probeer-dat-waar-te-maken~afd39430/)
-  > Kees Smit maakte vrijdagavond zijn debuut als international, in de oefeninterland tegen Noorwegen. De 20-jarige middenvelder van AZ stond in de basis...
-- [Oranje op rapport | Grootste uitblinker staat in voorhoede, magere voldoende voor debutant Kees Smit](https://www.ad.nl/voetbal/oranje-op-rapport-grootste-uitblinker-staat-in-voorhoede-magere-voldoende-voor-debutant-kees-smit~a315d18c6/)
-  > Een solide defensie, een zoekende debutant en een uitblinker in de voorhoede. Dit zijn onze cijfers na het gelijkspel van het Nederlands elftal tegen...
-- [Oranje begint WK-jaar met zege op Noorwegen, vleugelaanvallers Gakpo en Koopmeiners vallen op](https://www.ad.nl/voetbal/oranje-begint-wk-jaar-met-zege-op-noorwegen-vleugelaanvallers-gakpo-en-koopmeiners-vallen-op~aff9b6c7/)
-  > Met een verdiende overwinning op Noorwegen begon Oranje vrijdagavond in de Johan Cruijff Arena aan zijn voorbereiding op het WK 2026. Dat zegt nog...
 
 ### Meest gelezen
 
