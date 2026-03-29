@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-03-2026 om 17:36*
+*Laatst bijgewerkt: 29-03-2026 om 18:51*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Week begint guur met veel buien, ook rest van de week wisselvallig](https://nos.nl/l/2608320)
+  > Morgen wordt het een frisse dag met veel buien. Daarbij kan het soms hagelen en onweren. Ook de rest van de week is het waarschijnlijk niet stralend...
 - [Kardinaal mag kerk Jeruzalem op Palmzondag niet in, patriarchaat boos](https://nos.nl/l/2608303)
   > De Israëlische politie heeft kardinaal Pierbattista Pizzaballa verboden de mis op Palmzondag te vieren in de Heilig Grafkerk in Jeruzalem. Volgens de...
 - [Politie pakt man (21) op in Eindhoven, mogelijk link met IS](https://nos.nl/l/2608299)
@@ -16,8 +18,6 @@
   > "Het kwam totaal uit het niets", zegt de Amerikaanse astronaut Mike Fincke die begin dit jaar een noodterugkeer maakte nadat hij onwel was geworden...
 - [50 jaar na opnames A Bridge Too Far, Deventer blikt terug op Hollywoodzomer](https://nos.nl/l/2608284)
   > Deventer blikt terug op de opnames voor de oorlogsfilm A Bridge Too Far. Precies vijftig jaar geleden werden de stad en de Wilhelminabrug over de...
-- [Lange rij voor Duitse botoxkliniek na aanbieden gratis injecties, artsen kritisch](https://nos.nl/l/2608276)
-  > Honderden mensen stonden gisteren uren in de rij in een winkelcentrum in de Duitse stad Duisburg. Niet om een kaartje te bemachtigen voor een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van der Poel heeft in het zoveelste hoofdstuk rivaliteit met Van Aert wéér het mentale voordeel](https://www.ad.nl/wielrennen/van-der-poel-heeft-in-het-zoveelste-hoofdstuk-rivaliteit-met-van-aert-weer-het-mentale-voordeel~a09dd456/)
-  > Gent-Wevelgem, nu In Flanders Fields, blijft een hiaat op het palmares van Mathieu van der Poel. Hij zorgde, ouderwets samen met zijn rivaal Wout van...
-- [Astronaut onthult waarom hij als eerste ooit uit de ruimte werd geëvacueerd: ‘Ik kon ineens niet meer praten’](https://www.ad.nl/buitenland/astronaut-onthult-waarom-hij-als-eerste-ooit-uit-de-ruimte-werd-geevacueerd-ik-kon-ineens-niet-meer-praten~a010e658/)
-  > De Amerikaanse astronaut Mike Fincke (59) heeft onthuld waarom hij als eerste astronaut ooit uit de ruimte werd geëvacueerd. Hij kon opeens een...
-- [KLM snakt naar Airbus A350: ‘Is geschikt voor alle turbulentie in geopolitieke omstandigheden’](https://www.ad.nl/economie/klm-snakt-naar-airbus-a350-is-geschikt-voor-alle-turbulentie-in-geopolitieke-omstandigheden~a97dd16c/)
-  > KLM kampt met forse tegenwind, in de nasleep van corona en met oorlogen in Oekraïne en het Midden-Oosten. Tegelijkertijd investeert de maatschappij 7...
-- [Vogels nestelen onder zonnepanelen: zo voorkom je brand en storingen](https://www.ad.nl/wonen/vogels-nestelen-onder-zonnepanelen-zo-voorkom-je-brand-en-storingen~a5809eb0/)
-  > De ruimte onder je zonnepanelen kan voor sommige vogels een aantrekkelijke plek zijn om te nestelen. Maar dat kan wel brandgevaar en storingen...
-- [Netanyahu beveelt verdere uitbreiding bufferzone Zuid-Libanon](https://www.ad.nl/buitenland/netanyahu-beveelt-verdere-uitbreiding-bufferzone-zuid-libanon~ac528ac3/)
-  > De Israëlische premier Benjamin Netanyahu heeft het leger opdracht gegeven de bestaande veiligheidszone in het zuiden van Libanon uit te breiden....
+- [Iran dreigt met ‘regimewisseling in Hormuz’: enkel schepen zonder banden met vijanden welkom](https://www.ad.nl/buitenland/iran-dreigt-met-regimewisseling-in-hormuz-enkel-schepen-zonder-banden-met-vijanden-welkom~ac528ac3/)
+  > Iran wil het bestuur van de Straat van Hormuz grondig hervormen om er op lange termijn economische en veiligheidsvoordelen uit te halen. Dat heeft...
+- [Terwijl Nederland wacht op EU, werken andere lidstaten zélf aan verbod sociale media voor kinderen](https://www.ad.nl/tech/terwijl-nederland-wacht-op-eu-werken-andere-lidstaten-zelf-aan-verbod-sociale-media-voor-kinderen~a25eb077/)
+  > Terwijl Nederland wacht op de EU, legt Oostenrijk zélf sociale media aan banden voor jonge kinderen tot 14 jaar. Meer EU-lidstaten werken aan zo’n...
+- [Voormalig Ajax-talent (25) na voetbalpensioen gelukkiger dan ooit: ‘Ik kan nu volledig mijzelf zijn’](https://www.ad.nl/voetbal/voormalig-ajax-talent-25-na-voetbalpensioen-gelukkiger-dan-ooit-ik-kan-nu-volledig-mijzelf-zijn~a9ffa67a/)
+  > Eigenlijk liggen zijn beste jaren nog voor zich, maar Kik Pierie (25) stort zich sinds zijn voetbalpensioen volledig op zijn eigen bedrijf. Als...
+- [Fatale stunt: dronken fan valt naar beneden in stadion van WK-openingswedstrijd](https://www.ad.nl/voetbal/fatale-stunt-dronken-fan-valt-naar-beneden-in-stadion-van-wk-openingswedstrijd~ac3c3fdc/)
+  > Een tragisch moment vlak voor de oefenwedstrijd tussen WK-gastland Mexico en Portugal (0-0). Een fan viel van het stadion naar beneden en overleefde...
+- [Denk dan nog even aan die 1500 Afghanen die nog altijd uitkijken naar een evacuatie](https://www.ad.nl/commentaar/denk-dan-nog-even-aan-die-1500-afghanen-die-nog-altijd-uitkijken-naar-een-evacuatie~a79bb8ae/)
+  > Zeuren over dure benzine, klagen over buitenlanders en intussen doodleuk een vakantie boeken naar de taliban in Afghanistan. Dat lijkt alleen in...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Oorlog met Iran werpt schaduw over feestje van conservatief Amerika](https://fd.nl/politiek/1590999/oorlog-met-iran-werpt-schaduw-over-feestje-van-conservatief-amerika)
+  > Trump-supporters hebben uiteenlopende meningen over nut en noodzaak van de Iran-oorlog, zo blijkt op CPAC, het jaarlijkse congres van Conservatief...
 - [‘Jomibo’ brengt Zuidoost naar de Zuidas](https://fd.nl/samenleving/1591413/jomibo-brengt-zuidoost-naar-de-zuidas)
   > Joey Burnet had een simpel doel: de Zuidas en zijn vrijdagmiddagborrels ontdekken. Via video’s konden zijn volgers op TikTok de missie...
 - [Frankrijk neemt leiding bij het bepalen van Europees defensiebeleid](https://fd.nl/politiek/1591328/frankrijk-neemt-leiding-bij-het-bepalen-van-europees-defensiebeleid)
@@ -54,8 +56,6 @@
   > Het kabinet stelt de mogelijkheid voor pensionado’s om in één keer tot 10% van het totale pensioenvermogen op te nemen, uit tot 2029.
 - [Nieuw hoofd beleggingsbeleid ABP legt focus meer op rendement](https://fd.nl/financiele-markten/1591284/nieuw-hoofd-beleggingsbeleid-abp-legt-focus-meer-op-rendement)
   > Herman Bril is een realist als het gaat om duurzame beleggingen: ‘Je moet je afvragen: zijn bedrijven over tien, twintig of dertig jaar nog...
-- [Meer keuze tijdens openhuizendag, maar starters hebben nog altijd weinig te willen](https://fd.nl/economie/1591324/meer-keuze-tijdens-openhuizendag-maar-starters-hebben-nog-altijd-weinig-te-willen)
-  > Tijdens de openhuizendag in Utrecht proberen huiseigenaren hun woning te verkopen. De markt is licht afgekoeld, maar voor starters blijft het lastig.
 
 ### Meest gelezen
 
