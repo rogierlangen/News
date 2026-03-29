@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-03-2026 om 13:05*
+*Laatst bijgewerkt: 29-03-2026 om 14:37*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [50 jaar na opnames A Bridge Too Far, Deventer blikt terug op Hollywoodzomer](https://nos.nl/l/2608284)
+  > Deventer blikt terug op de opnames voor de oorlogsfilm A Bridge Too Far. Precies vijftig jaar geleden werden de stad en de Wilhelminabrug over de...
 - [Lange rij voor Duitse botoxkliniek na aanbieden gratis injecties, artsen kritisch](https://nos.nl/l/2608276)
   > Honderden mensen stonden gisteren uren in de rij in een winkelcentrum in de Duitse stad Duisburg. Niet om een kaartje te bemachtigen voor een...
 - [Twee nieuwe arrestaties voor aanslagpoging bij Bank of America in Parijs](https://nos.nl/l/2608273)
@@ -16,8 +18,6 @@
   > De gemeente Arnhem is naarstig op zoek naar een oplossing voor de 82.000 tegels die dreigen los te laten van een gevel van Museum Arnhem. Om te...
 - [Brand in Russische haven Oest-Loega na nieuwe Oekraïense droneaanval](https://nos.nl/l/2608270)
   > Bij een nieuwe Oekraïense droneaanval op de Russische haven van Oest-Loega aan de Oostzee is brand uitgebroken. Dat bevestigt de gouverneur van de...
-- [Man (29) doodgestoken bij massale vechtpartij in uitgaansgebied Hoorn](https://nos.nl/l/2608269)
-  > Bij een massale vechtpartij in de binnenstad van Hoorn is gisteravond een dode gevallen. De 29-jarige man werd neergestoken en overleed aan zijn...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zo openlijk over zijn toekomst twijfelde Max Verstappen niet eerder: ‘Je hoeft geen medelijden met me te hebben’](https://www.ad.nl/formule-1/zo-openlijk-over-zijn-toekomst-twijfelde-max-verstappen-niet-eerder-je-hoeft-geen-medelijden-met-me-te-hebben~a984c0d4/)
-  > Door het wegvallen van de weekenden in Bahrein en Saoedi-Arabië is de eerste Formule 1-race pas over 35 dagen in Miami. Een lentestop die Max...
-- [’s Ochtends geeft Wim patiënten eten, ’s avonds loopt hij gewapend door het bos](https://www.ad.nl/binnenland/s-ochtends-geeft-wim-patienten-eten-s-avonds-loopt-hij-gewapend-door-het-bos~a189bb87/)
-  > Wim (55) begint zijn werkdag in een wit uniform in het ziekenhuis. Maar ’s avonds kleurt hij groen, inclusief helm en scherfvest. Hij is een van de...
-- [Mathieu van der Poel houdt zich nog koest in jacht op zijn eerste zege in Wevelgem](https://www.ad.nl/wielrennen/mathieu-van-der-poel-houdt-zich-nog-koest-in-jacht-op-zijn-eerste-zege-in-wevelgem~a158b0f9/)
-  > In Flanders Fields - From Middelkerke to Wevelgem wordt vandaag verreden. Deze naam zal waarschijnlijk bij veel mensen niet bekend zijn. De Belgische...
-- [Finland meldt schending van het luchtruim door drones](https://www.ad.nl/buitenland/finland-meldt-schending-van-het-luchtruim-door-drones~adfb97be/)
-  > Finland heeft melding gemaakt van een schending van het luchtruim door drones. Die vond plaats in het zuidoosten van het land. Volg alle...
-- [Vingegaard slaagt voor laatste test richting Giro en pakt eindzege in Catalonië, slotrit prooi voor Australiër](https://www.ad.nl/wielrennen/vingegaard-slaagt-voor-laatste-test-richting-giro-en-pakt-eindzege-in-catalonie-slotrit-prooi-voor-australier~ab5ea396/)
-  > Jonas Vingegaard heeft de Ronde van Catalonië bijgeschreven op zijn palmares. De leiderstrui van de Deen van Visma-Lease a Bike kwam in de zevende en...
+- [Wennen aan de wekker: ingaan van de zomertijd verschuift ochtendspits, werknemers maandag laat op werk](https://www.ad.nl/binnenland/wennen-aan-de-wekker-ingaan-van-de-zomertijd-verschuift-ochtendspits-werknemers-maandag-laat-op-werk~ab9cb6c3/)
+  > Afgelopen nacht is de zomertijd weer ingegaan, maar geheel vlekkeloos verloopt dat ieder jaar zeker niet. De ochtendspits komt op de eerste maandag...
+- [Jasper Philipsen wint In Flanders Fields, Van Aert en Van der Poel op de valreep ingerekend na zinderende finale](https://www.ad.nl/wielrennen/jasper-philipsen-wint-in-flanders-fields-van-aert-en-van-der-poel-op-de-valreep-ingerekend-na-zinderende-finale~a158b0f9/)
+  > Jasper Philipsen heeft In Flanders Fields gewonnen. De Belgische sprinter was de snelste man van het uitgedunde peloton. Van Aert en Van der Poel...
+- [Vermindert blootstelling aan plastic echt onze vruchtbaarheid? Dit zegt hormoonspecialist](https://www.ad.nl/gezond/vermindert-blootstelling-aan-plastic-echt-onze-vruchtbaarheid-dit-zegt-hormoonspecialist~ac111c38/)
+  > In de nieuwe Netflix-serie The plastic detox bannen zes koppels al het plastic uit hun huis in een poging hun vruchtbaarheid te verbeteren. Maar wat...
+- [Channing Tatum had het zwaar na schouderoperatie: ‘Echt een dieptepunt’](https://www.ad.nl/show/channing-tatum-had-het-zwaar-na-schouderoperatie-echt-een-dieptepunt~aa2e35d7/)
+  > Het gaat weer een stuk beter met Channing Tatum sinds hij aan zijn schouder werd geopereerd. De Magic Mike-acteur deelde via Instagram een update met...
+- [Britten zes uur in de rij voor een gepofte aardappel](https://www.ad.nl/buitenland/britten-zes-uur-in-de-rij-voor-een-gepofte-aardappel~acadc587/)
+  > Engelsen wachten tot wel zes uur op hun beurt voor een gepofte aardappel van SpudBros. Dankzij TikTok en de charme van twee broers maakt de Britse...
 
 ### Meest gelezen
 
