@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-03-2026 om 21:37*
+*Laatst bijgewerkt: 29-03-2026 om 22:35*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Argentijnse bondscoach over WK-deelname Lionel Messi: ‘Ik wil hem graag selecteren, maar beslissing ligt bij hem’](https://www.ad.nl/wk-voetbal/argentijnse-bondscoach-over-wk-deelname-lionel-messi-ik-wil-hem-graag-selecteren-maar-beslissing-ligt-bij-hem~ab051f28/)
+  > Toch wel opvallende uitspraken van Lionel Scaloni, de bondscoach van Argentinië. Tweeënhalve maand voor de start durft Scaloni niet te zeggen of...
 - [Frankrijk straft Colombia volledig af in laatste duel van oefencampagne, Mbappé evenaart bijna record](https://www.ad.nl/wk-voetbal/frankrijk-straft-colombia-volledig-af-in-laatste-duel-van-oefencampagne-mbappe-evenaart-bijna-record~adef1029/)
   > Frankrijk heeft in de Verenigde Staten eenvoudig gewonnen van Colombia. In het laatste duel van de oefencampagne won een sterk B-elftal van Frankrijk...
 - [Test Audi Q3: technisch een flinke stap vooruit](https://www.ad.nl/auto/test-audi-q3-technisch-een-flinke-stap-vooruit~a6e33aeb/)
@@ -35,8 +37,6 @@
   > Jasper (28) uit Nijmegen heeft zondagavond met een opvallende tactiek ‘een waanzinnig bedrag’ gewonnen in Miljoenenjacht. De finalist in de SBS6-show...
 - [Vrouw uit Florida eet ijs waar spijker in zit: slachtoffer raakt onvruchtbaar en ontvangt 14 miljoen schadevergoeding](https://www.ad.nl/bizar/vrouw-uit-florida-eet-ijs-waar-spijker-in-zit-slachtoffer-raakt-onvruchtbaar-en-ontvangt-14-miljoen-schadevergoeding~aa2493fef/)
   > Een vrouw uit Florida is na het eten van een ijsje onvruchtbaar geworden. In het ijs zaten namelijk spijkers en scherven verstopt, die door de vrouw...
-- [Meisje (6) loopt alleen en op blote voeten door de stad, agenten stomverbaasd door reactie ouders](https://www.ad.nl/binnenland/meisje-6-loopt-alleen-en-op-blote-voeten-door-de-stad-agenten-stomverbaasd-door-reactie-ouders~acab0161/)
-  > Een meisje van zes loopt in haar eentje op blote voeten door Enschede. Dat is niet het enige: ze wordt beschuldigd van diefstal van een fiets....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Oorlog met Iran werpt schaduw over feestje van conservatief Amerika](https://fd.nl/politiek/1590999/oorlog-met-iran-werpt-schaduw-over-feestje-van-conservatief-amerika)
-  > Trump-supporters hebben uiteenlopende meningen over nut en noodzaak van de Iran-oorlog, zo blijkt op CPAC, het jaarlijkse congres van Conservatief...
-- [TikTokker Joey Burnet brengt met de ‘Jomibo’ Zuidoost naar de Zuidas](https://fd.nl/samenleving/1591413/jomibo-brengt-zuidoost-naar-de-zuidas)
-  > Joey Burnet had een simpel doel: de Zuidas en zijn vrijdagmiddagborrels ontdekken. Via video’s konden zijn volgers op TikTok de missie...
-- [Frankrijk neemt leiding bij het bepalen van Europees defensiebeleid](https://fd.nl/politiek/1591328/frankrijk-neemt-leiding-bij-het-bepalen-van-europees-defensiebeleid)
-  > Hoe kan Europa zich verdedigen als de VS zich verder terugtrekken uit de Navo? In Parijs kwamen 4000 militaire beleidsmakers bij elkaar om die vraag...
-- [Geldopname uit eigen pensioenpot blijft nog jaren onmogelijk](https://fd.nl/politiek/1591412/geldopname-uit-eigen-pensioenpot-blijft-nog-jaren-onmogelijk)
-  > Het kabinet stelt de mogelijkheid voor pensionado’s om in één keer tot 10% van het totale pensioenvermogen op te nemen, uit tot 2029.
-- [Nieuw hoofd beleggingsbeleid ABP legt focus meer op rendement](https://fd.nl/financiele-markten/1591284/nieuw-hoofd-beleggingsbeleid-abp-legt-focus-meer-op-rendement)
-  > Herman Bril is een realist als het gaat om duurzame beleggingen: ‘Je moet je afvragen: zijn bedrijven over tien, twintig of dertig jaar nog...
+- [Italianen eisen meer zeggenschap bij beursreus Euronext](https://fd.nl/financiele-markten/1591387/italianen-eisen-meer-zeggenschap-bij-beursreus-euronext)
+  > Een aan de Italiaanse staat gelieerde grootaandeelhouder probeert Euronext via de rechter tot een mogelijke bestuurswissel te dwingen. Dat kan tot...
+- [Grondregels voor de crisis](https://fd.nl/opinie/1591326/grondregels-voor-de-crisis)
+  > FD-columnist Mathijs Bouman pleit voor logische grondregels voor als er crisismaatregelen moeten komen om de pijn van de hoge olie- en gasprijs te...
+- [Retailers en betaalbedrijven botsen over iDeal‑opvolger Wero](https://fd.nl/financiele-markten/1590841/retailers-en-betaalbedrijven-botsen-over-idealopvolger-wero)
+  > Betaalbedrijven als Adyen, Mollie en Buckaroo vrezen hoge kosten en meer fraude bij de invoering van het nieuwe betaalsysteem. iDeal verdwijnt eind...
+- [Vraag en aanbod op de markt voor baby’s](https://fd.nl/opinie/1590682/vraag-en-aanbod-op-de-markt-voor-babys)
+  > Internationale adoptie is in Nederland verboden sinds een rapport over misstanden.  De vraag naar baby’s verplaatst zich nu naar een ander segment....
+- [Personalia maandag 30 april 2026](https://fd.nl/bedrijfsleven/1591327/personalia-maandag-30-april-2026)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
