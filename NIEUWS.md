@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-03-2026 om 07:10*
+*Laatst bijgewerkt: 29-03-2026 om 08:48*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Man (27) uit het niets bewusteloos geslagen op vrijgezellenfeest Tilburg](https://nos.nl/l/2608256)
+  > Een man van 27 is gisteravond zwaar mishandeld tijdens een vrijgezellenfeest in Tilburg. Hij werd uit het niets aangevallen, kreeg een harde...
 - [Wekdienst 29/3: Zomertijd ingegaan • Vlaamse voorjaarsklassieker](https://nos.nl/l/2608247)
   > Goedemorgen! De zomertijd is vannacht weer ingegaan. En bij de zuiderburen wordt volop gefietst tijdens de voorjaarsklassieker In Flanders Fields.
   ...
 - [Automobilist rijdt in op voetgangers in Derby, meerdere mensen zwaargewond](https://nos.nl/l/2608246)
   > In de Britse plaats Derby is een automobilist ingereden op voetgangers. Daarbij zijn gewonden gevallen, onder wie zwaargewonden. Het precieze aantal...
-- [In alle Amerikaanse staten protest tegen president Trump](https://nos.nl/l/2608235)
+- [Miljoenen Amerikanen op de been om te protesteren tegen Trump](https://nos.nl/l/2608235)
   > Door heel de Verenigde Staten zijn mensen de straat op gegaan om te demonstreren tegen president Trump. Volgens de organisatie van de 'No...
 - [Zes doden bij Israëlische aanvallen op politieposten Gaza](https://nos.nl/l/2608234)
   > In Gaza zijn zes Palestijnen gedood bij twee Israëlische aanvallen, meldt persbureau Reuters. Onder de slachtoffers is ook een kind. De aanvallen...
-- [Jonge vrouw komt om het leven bij ongeluk bij Zierikzee](https://nos.nl/l/2608232)
-  > In Zeeland is een vrouw van 19 om het leven gekomen bij een verkeersongeluk. Op de N59 tussen Zierikzee en Nieuwerkerk botsten rond 20.30 uur drie...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Ruim acht miljoen mensen demonstreren tegen Trump, ook Springsteen en De Niro](https://www.ad.nl/buitenland/ruim-acht-miljoen-mensen-demonstreren-tegen-trump-ook-springsteen-en-de-niro~ae67dd9c/)
-  > Ruim acht miljoen mensen hebben zaterdag in de VS deelgenomen aan de landelijke protesten tegen het beleid van president Donald Trump. Het waren de...
-- [Stand F1 | Antonelli jongste leider in het kampioenschap ooit, Verstappen mijlenver achter Mercedes-duo](https://www.ad.nl/formule-1/stand-f1-antonelli-jongste-leider-in-het-kampioenschap-ooit-verstappen-mijlenver-achter-mercedes-duo~a8a75660/)
-  > Kimi Antonelli is na zijn zege in de Grand Prix van Japan de nieuwe leider in het kampioenschap. Door de vierde plek op het circuit van Suzuka kijkt...
-- [Nieuwe Iraanse aanvallen op aluminiumindustrie in Golfstaten, ‘Pentagon wil grondtroepen in Iran’](https://www.ad.nl/buitenland/nieuwe-iraanse-aanvallen-op-aluminiumindustrie-in-golfstaten-pentagon-wil-grondtroepen-in-iran~ac528ac3/)
-  > De Iraanse Revolutionaire Garde meldt dat het de aluminiumindustrie heeft aangevallen in Golfstaten. Er zouden dit weekend met raketten en drones...
-- [Nieuwe realiteit voor Max Verstappen in Japan met achtste plek, Kimi Antonelli wint weer na 'mazzeltje'](https://www.ad.nl/formule-1/nieuwe-realiteit-voor-max-verstappen-in-japan-met-achtste-plek-kimi-antonelli-wint-weer-na-mazzeltje~a92a5795/)
-  > Max Verstappen heeft bij de Grand Prix van Japan genoegen moeten nemen met een achtste plek. Na vier zeges op rij in Suzuka werd dit jaar de nieuwe...
-- [Kapster Aminah knipt vrouwen in nood gratis: ‘Demente man herkende haar weer: ‘wat mooi ben jij’’](https://www.ad.nl/binnenland/kapster-aminah-knipt-vrouwen-in-nood-gratis-demente-man-herkende-haar-weer-wat-mooi-ben-jij~a3a2e8e2/)
-  > Geen geld, ziek of slecht ter been: voor sommige vrouwen is een bezoek aan de kapper niet vanzelfsprekend. Kapster Aminah Eltayeb (36) gaat daarom...
+- [Mathieu van der Poel aast op zijn eerste zege in Wevelgem, titelverdediger haakt ziek af](https://www.ad.nl/wielrennen/mathieu-van-der-poel-aast-op-zijn-eerste-zege-in-wevelgem-titelverdediger-haakt-ziek-af~a158b0f9/)
+  > In Flanders Fields - From Middelkerke to Wevelgem wordt vandaag verreden. Deze naam zal waarschijnlijk bij veel mensen niet bekend zijn. De Belgische...
+- [Max Verstappen over een maand pas weer in actie tijdens sprintraceweekend in Amerika](https://www.ad.nl/formule-1/max-verstappen-over-een-maand-pas-weer-in-actie-tijdens-sprintraceweekend-in-amerika~ae174dcc/)
+  > Door de geschrapte races in Bahrein en Saoedi-Arabie duurt het een maand voordat de Formule 1 weer in actie komt. Max Verstappen en zijn collega’s...
+- [Jan (83) verloor 8000 euro bij bankfraude, zo ging de fraudeur te werk](https://www.ad.nl/geld/jan-83-verloor-8000-euro-bij-bankfraude-zo-ging-de-fraudeur-te-werk~a5c69112/)
+  > Jan (83) verloor 8000 euro, omdat hij dacht dat hij met een bankmedewerker sprak. Iedereen maakt weleens een fout waaraan kleine of soms grote...
+- [Gent-Wevelgem heeft onuitspreekbare nieuwe naam: ‘Oppassen dat we tradities niet te grabbel gooien’](https://www.ad.nl/wielrennen/gent-wevelgem-heeft-onuitspreekbare-nieuwe-naam-oppassen-dat-we-tradities-niet-te-grabbel-gooien~a079a93f/)
+  > In Flanders Fields. From Middelkerke to Wevelgem. Probeer dat maar eens drie keer achter elkaar uit te spreken. De legendarische klassieker...
+- [Cynische Max Verstappen en Lando Norris spijkerhard: ‘Zolang de fans het maar leuk vinden...’](https://www.ad.nl/formule-1/cynische-max-verstappen-en-lando-norris-spijkerhard-zolang-de-fans-het-maar-leuk-vinden~ac8df3b3/)
+  > Max Verstappen (achtste) en Lando Norris (vijfde) blikten allebei cynisch terug op de Grand Prix van Japan. Beide coureurs zaten bij cruciale...
 
 ### Meest gelezen
 
