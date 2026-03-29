@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-03-2026 om 22:35*
+*Laatst bijgewerkt: 29-03-2026 om 23:38*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Schilderijen van Renoir, Cézanne en Matisse gestolen uit Italiaans museum](https://nos.nl/l/2608341)
+  > Uit een museum in het noorden van Italië zijn vorige week drie kostbare schilderijen gestolen. De werken hingen in Villa Magnani, in de buurt van...
 - [Trumps achterban verdeeld over oorlog: America First of Make Iran Great Again?](https://nos.nl/l/2608328)
   > Vier weken na de start van Trumps oorlog met Iran ligt de inzet van grondtroepen nadrukkelijk op tafel. De MAGA-beweging maakt zich zorgen: hoe valt...
 - [Stekker uit RTL Tonight, na de zomer nieuwe talkshow met Renze Klamer](https://nos.nl/l/2608327)
@@ -16,8 +18,6 @@
   > Er gaan al langere tijd geruchten over een naderend Amerikaans grondoffensief in Iran. Gisteren meldde The Washington Post dat het Pentagon zich...
 - [Week begint guur met veel buien, ook rest van de week wisselvallig](https://nos.nl/l/2608320)
   > Morgen wordt het een frisse dag met veel buien. Daarbij kan het soms hagelen en onweren. Ook de rest van de week is het waarschijnlijk niet stralend...
-- [Kardinaal mag kerk Jeruzalem op Palmzondag niet in, patriarchaat boos](https://nos.nl/l/2608303)
-  > De Israëlische politie heeft kardinaal Pierbattista Pizzaballa verboden de mis op Palmzondag te vieren in de Heilig Grafkerk in Jeruzalem. Volgens de...
 
 ### Meest gelezen
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [UNIFIL-vredeshandhaver gedood bij aanval in Zuid-Libanon](https://www.ad.nl/buitenland/unifil-vredeshandhaver-gedood-bij-aanval-in-zuid-libanon~ac528ac3/)
+  > Een vredeshandhaver van de VN-vredesmacht in Libanon (UNIFIL) is om het leven gekomen toen een projectiel ontplofte in de omgeving van Adshit...
 - [Argentijnse bondscoach over WK-deelname Lionel Messi: ‘Ik wil hem graag selecteren, maar beslissing ligt bij hem’](https://www.ad.nl/wk-voetbal/argentijnse-bondscoach-over-wk-deelname-lionel-messi-ik-wil-hem-graag-selecteren-maar-beslissing-ligt-bij-hem~ab051f28/)
   > Toch wel opvallende uitspraken van Lionel Scaloni, de bondscoach van Argentinië. Tweeënhalve maand voor de start durft Scaloni niet te zeggen of...
 - [Frankrijk straft Colombia volledig af in laatste duel van oefencampagne, Mbappé evenaart bijna record](https://www.ad.nl/wk-voetbal/frankrijk-straft-colombia-volledig-af-in-laatste-duel-van-oefencampagne-mbappe-evenaart-bijna-record~adef1029/)
@@ -35,8 +37,6 @@
   > De nieuwe Audi Q3 getuigt vooral technisch van een inhaalslag. Hij levert nu betere hybride-prestaties. In tegenstelling tot andere landen, is hij in...
 - [Geluksvogel Jasper wint ‘waanzinnig bedrag’ in Miljoenenjacht: ‘Jeetje, wat was je dapper’](https://www.ad.nl/show/geluksvogel-jasper-wint-waanzinnig-bedrag-in-miljoenenjacht-jeetje-wat-was-je-dapper~a85085b9/)
   > Jasper (28) uit Nijmegen heeft zondagavond met een opvallende tactiek ‘een waanzinnig bedrag’ gewonnen in Miljoenenjacht. De finalist in de SBS6-show...
-- [Vrouw uit Florida eet ijs waar spijker in zit: slachtoffer raakt onvruchtbaar en ontvangt 14 miljoen schadevergoeding](https://www.ad.nl/bizar/vrouw-uit-florida-eet-ijs-waar-spijker-in-zit-slachtoffer-raakt-onvruchtbaar-en-ontvangt-14-miljoen-schadevergoeding~aa2493fef/)
-  > Een vrouw uit Florida is na het eten van een ijsje onvruchtbaar geworden. In het ijs zaten namelijk spijkers en scherven verstopt, die door de vrouw...
 
 ### Meest gelezen
 
