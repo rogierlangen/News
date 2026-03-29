@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-03-2026 om 20:38*
+*Laatst bijgewerkt: 29-03-2026 om 21:37*
 
 ---
 
@@ -27,10 +27,10 @@
 
 ### Laatste nieuws
 
+- [Frankrijk straft Colombia volledig af in laatste duel van oefencampagne, Mbappé evenaart bijna record](https://www.ad.nl/wk-voetbal/frankrijk-straft-colombia-volledig-af-in-laatste-duel-van-oefencampagne-mbappe-evenaart-bijna-record~adef1029/)
+  > Frankrijk heeft in de Verenigde Staten eenvoudig gewonnen van Colombia. In het laatste duel van de oefencampagne won een sterk B-elftal van Frankrijk...
 - [Test Audi Q3: technisch een flinke stap vooruit](https://www.ad.nl/auto/test-audi-q3-technisch-een-flinke-stap-vooruit~a6e33aeb/)
   > De nieuwe Audi Q3 getuigt vooral technisch van een inhaalslag. Hij levert nu betere hybride-prestaties. In tegenstelling tot andere landen, is hij in...
-- [B-team van Frankrijk straft Colombia volledig af in laatste duel van oefencampagne](https://www.ad.nl/wk-voetbal/b-team-van-frankrijk-straft-colombia-volledig-af-in-laatste-duel-van-oefencampagne~adef1029/)
-  > Frankrijk eindigt zijn oefencampagne met een duel op bezoek bij Colombia. Wat kan het topland laten zien richting het WK? Volg het duel hier live!
 - [Geluksvogel Jasper wint ‘waanzinnig bedrag’ in Miljoenenjacht: ‘Jeetje, wat was je dapper’](https://www.ad.nl/show/geluksvogel-jasper-wint-waanzinnig-bedrag-in-miljoenenjacht-jeetje-wat-was-je-dapper~a85085b9/)
   > Jasper (28) uit Nijmegen heeft zondagavond met een opvallende tactiek ‘een waanzinnig bedrag’ gewonnen in Miljoenenjacht. De finalist in de SBS6-show...
 - [Vrouw uit Florida eet ijs waar spijker in zit: slachtoffer raakt onvruchtbaar en ontvangt 14 miljoen schadevergoeding](https://www.ad.nl/bizar/vrouw-uit-florida-eet-ijs-waar-spijker-in-zit-slachtoffer-raakt-onvruchtbaar-en-ontvangt-14-miljoen-schadevergoeding~aa2493fef/)
