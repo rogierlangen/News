@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-03-2026 om 09:42*
+*Laatst bijgewerkt: 29-03-2026 om 10:39*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Arnhem zoekt oplossing voor 82.000 tegels die losraken van museumgevel](https://nos.nl/l/2608271)
+  > De gemeente Arnhem is naarstig op zoek naar een oplossing voor de 82.000 tegels die dreigen los te laten van een gevel van Museum Arnhem. Om te...
+- [Brand in Russische haven Oest-Loega na nieuwe Oekraïense droneaanval](https://nos.nl/l/2608270)
+  > Bij een nieuwe Oekraïense droneaanval op de Russische haven van Oest-Loega aan de Oostzee is brand uitgebroken. Dat bevestigt de gouverneur van de...
 - [Man doodgestoken bij massale vechtpartij in uitgaangebied Hoorn](https://nos.nl/l/2608269)
-  > Bij een massale vechtpartij in de binnenstad van in Hoorn is gisteravond een dode gevallen. De man werd neergestoken en overleed aan zijn...
+  > Bij een massale vechtpartij in de binnenstad van Hoorn is gisteravond een dode gevallen. De man werd neergestoken en overleed aan zijn verwondingen....
 - [Deepfake-video's van Belgische kroonprinses op Facebook](https://nos.nl/l/2608265)
   > Op een nepprofiel op Facebook zijn tientallen AI-foto's en -video's te zien van de Belgische kroonprinses Elisabeth. Dat melden Belgische media. Het...
 - [Man (27) uit het niets bewusteloos geslagen op vrijgezellenfeest Tilburg](https://nos.nl/l/2608256)
   > Een man van 27 is gisteravond zwaar mishandeld tijdens een vrijgezellenfeest in Tilburg. Hij werd uit het niets aangevallen, kreeg een harde...
-- [Wekdienst 29/3: Zomertijd ingegaan • Vlaamse voorjaarsklassieker](https://nos.nl/l/2608247)
-  > Goedemorgen! De zomertijd is vannacht weer ingegaan. En bij de zuiderburen wordt volop gefietst tijdens de voorjaarsklassieker In Flanders Fields.
-  ...
-- [Automobilist rijdt in op voetgangers in Derby, zeven zwaargewonden](https://nos.nl/l/2608246)
-  > In de Britse plaats Derby is een automobilist ingereden op voetgangers. Daarbij zijn zeven mensen zwaar gewond geraakt. Volgens de politie is niemand...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Drie Nederlanders in kopgroep, Mathieu van der Poel aast op zijn eerste zege, titelverdediger haakt ziek af](https://www.ad.nl/wielrennen/drie-nederlanders-in-kopgroep-mathieu-van-der-poel-aast-op-zijn-eerste-zege-titelverdediger-haakt-ziek-af~a158b0f9/)
-  > In Flanders Fields - From Middelkerke to Wevelgem wordt vandaag verreden. Deze naam zal waarschijnlijk bij veel mensen niet bekend zijn. De Belgische...
-- [Oorlog Iran splijtzwam onder Trump-aanhangers, toch is kritiek op president schaars op America First-conferentie](https://www.ad.nl/buitenland/oorlog-iran-splijtzwam-onder-trump-aanhangers-toch-is-kritiek-op-president-schaars-op-america-first-conferentie~a580432a/)
-  > Veel Trump-supporters zitten in hun maag met de oorlog met Iran, zo bleek afgelopen dagen op CPAC, de jaarlijkse conferentie van de Maga-beweging....
-- [Slotrit in Barcelona met zeven keer Montjuïc, Jonas Vingegaard verdedigt leiderstrui](https://www.ad.nl/wielrennen/slotrit-in-barcelona-met-zeven-keer-montjuic-jonas-vingegaard-verdedigt-leiderstrui~ab5ea396/)
-  > De Ronde van Catalonië eindigt vandaag. De zevende en laatste etappe gaat over slechts 95 kilometer en start en finisht in Barcelona. Het peloton...
-- [Mike Foppen loopt 24 jaar oud Nederlands record op 10 kilometer uit de boeken](https://www.ad.nl/andere-sporten/mike-foppen-loopt-24-jaar-oud-nederlands-record-op-10-kilometer-uit-de-boeken~aa769ed2/)
-  > Atleet Mike Foppen heeft bij wedstrijden in het Amerikaanse San Juan Capistrano het Nederlands record op de 10.000 meter verbeterd. De Nijmegenaar...
-- [Verkiezing van wijkraadslid zorgt voor commotie in Rotterdam: ‘Ik ben dat echt’](https://www.ad.nl/binnenland/verkiezing-van-wijkraadslid-zorgt-voor-commotie-in-rotterdam-ik-ben-dat-echt~ae60f2e1/)
-  > De verkiezing van een nieuw wijkraadslid in Rotterdam zorgt voor commotie. Ze voerde campagne met een foto die totaal niet op haar lijkt, en volgens...
+- [Renze Klamer terug aan de talkshowtafel, RTL Tonight stopt in huidige vorm](https://www.ad.nl/show/renze-klamer-terug-aan-de-talkshowtafel-rtl-tonight-stopt-in-huidige-vorm~a642739c/)
+  > RTL Tonight gaat stoppen. Het geflopte programma van RTL 4 wordt na de zomer van dit jaar omgebouwd tot een nieuwe late avondshow met een hoofdrol...
+- [Zwangerschap Lieke Martens niet goed verlopen: ‘Dit verlies raakt ons enorm diep’](https://www.ad.nl/voetbal/zwangerschap-lieke-martens-niet-goed-verlopen-dit-verlies-raakt-ons-enorm-diep~aa195491/)
+  > Lieke Martens en haar man Benjamin van Leer hebben zondag verdrietig nieuws gedeeld. Het stel maakte onlangs bekend dat zij een tweede zoontje...
+- [Zwangerschap Lieke Martens niet goed verlopen: ‘Intens verdriet’](https://www.ad.nl/show/zwangerschap-lieke-martens-niet-goed-verlopen-intens-verdriet~a206171e/)
+  > Lieke Martens (33) en haar man Benjamin van Leer (33) hebben zondag verdrietig nieuws gedeeld. Het stel maakte onlangs bekend dat zij een tweede...
+- [Slachtoffer steekpartij Hoorn overleden](https://www.ad.nl/binnenland/slachtoffer-steekpartij-hoorn-overleden~a6d6ce90/)
+  > Een van de drie mensen die zaterdagavond gewond raakten door een steekpartij in Hoorn, is overleden. Een woordvoerder van de politie bevestigt dat...
+- [Formule 1-cou­reurs furieus na crash Oliver Bearman: ‘Kwestie van tijd, dit is een recept voor grote ongelukken’](https://www.ad.nl/formule-1/formule-1-coureurs-furieus-na-crash-oliver-bearman-kwestie-van-tijd-dit-is-een-recept-voor-grote-ongelukken~a6ae315f/)
+  > Lando Norris waarschuwde in Melbourne al voor zware ongelukken en - helaas - kreeg de Britse wereldkampioen gelijk. Haas-coureur Oliver Bearman...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Deutsche Telekom investeert in Europese cloud als antwoord op big tech](https://fd.nl/bedrijfsleven/1589948/deutsche-telekom-investeert-zwaar-in-europese-cloud-als-antwoord-op-amerikaanse-dominantie)
+  > Deutsche Telekom opende onlangs met Nvidia een AI-fabriek in München. Die is bedoeld als alternatief voor de Amerikaanse techsector en als...
+- [Prosus-topman zet in op AI voor ordergroei JustEat](https://fd.nl/bedrijfsleven/1591411/prosus-topman-zet-in-op-ai-voor-ordergroei-justeat)
+  > Jaarlijkse toename aantal orders bij thuisbezorger moet voor 2030 naar 20% zijn gestegen, zegt Fabricio Bloisi tegen zakenkrant The Financial Times.
 - [Amerikanen de straat op voor No Kings-protest tegen Trump](https://fd.nl/samenleving/1591410/amerikanen-de-straat-op-voor-no-kings-protest-tegen-trump)
   > De demonstranten richtten zich vooral tegen het deportatiebeleid van de regering-Trump en de oorlog in Iran.
 - [Asfalt wordt duurder, wegenbouw ziet het zwart in](https://fd.nl/bedrijfsleven/1591383/asfalt-wordt-duurder-wegenbouw-ziet-het-zwart-in)
   > De fors gestegen prijs van olie stuwt ook de prijs van bitumen, een onmisbaar ingrediënt van asfalt. Wegenbouwers moeten op hun contracten letten,...
 - [Van Lehman tot Trump: de prijs van slecht leiderschap](https://fd.nl/opinie/1590907/van-lehman-tot-trump-de-prijs-van-slecht-leiderschap)
   > Fraude lijkt het werk van individuen, maar is meestal het gevolg van een cultuur die falen beloont en tegenspraak ontmoedigt.
-- [Vastgoedondernemers worden fiscaal klemgezet. Feit of fictie?](https://fd.nl/bedrijfsleven/1590687/vastgoedondernemers-worden-fiscaal-klem-gezet-feit-of-fictie)
-  > Volgens adviesorganisatie PwC loopt het voortbestaan van familievastgoedbedrijven gevaar door een stapeling van belastingen. Klopt dit doemscenario?
-- [Squats, deadlifts en koffie: hoe Limburgse ondernemers elkaar in balans houden](https://fd.nl/bedrijfsleven/1590969/squats-deadlifts-en-koffie-hoe-limburgse-ondernemers-elkaar-in-balans-houden)
-  > De Maastrichtse afdeling van de Balance Business Club voelt als een vriendengroep. ‘We delen hier heel veel met elkaar.’
 
 ### Meest gelezen
 
