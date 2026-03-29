@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-03-2026 om 16:40*
+*Laatst bijgewerkt: 29-03-2026 om 17:36*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Oorlogsminister Pete Hegseth strijdt als een kruisvaarder tegen alle ‘godsdienstfanaten’ in Iran](https://www.ad.nl/buitenland/oorlogsminister-pete-hegseth-strijdt-als-een-kruisvaarder-tegen-alle-godsdienstfanaten-in-iran~aff7da9b/)
-  > Op zijn borst prijkt het Jeruzalemkruis, op zijn armen staan de Griekse letters voor Christus en de Bijbelse waarschuwing dat Jezus niet kwam om...
-- [Lorena Wiebes schrijft geschiedenis met derde zege op rij in voorjaarsklassieker In Flanders Fields](https://www.ad.nl/wielrennen/lorena-wiebes-schrijft-geschiedenis-met-derde-zege-op-rij-in-voorjaarsklassieker-in-flanders-fields~ad219d03/)
-  > Lorena Wiebes heeft In Flanders Fields gewonnen. De Nederlandse won de sprint van de vijfkoppige kopgroep. Het is de derde zege van In Flanders...
-- [Dinand Woesthoff verhuist binnenkort met gezin naar Noord-Engeland: zo ziet zijn enorme landhuis eruit](https://www.ad.nl/show/dinand-woesthoff-verhuist-binnenkort-met-gezin-naar-noord-engeland-zo-ziet-zijn-enorme-landhuis-eruit~aa64a295/)
-  > Dinand Woesthoff (53) verruilt binnenkort, na meer dan twintig jaar, het zonnige Ibiza voor het grijze Engeland. De kersverse The Voice-coach kocht...
-- [Tien Koeweitse militairen gewond na Iraanse raketaanval, Universiteit van Beiroet blijft dicht na dreiging](https://www.ad.nl/buitenland/tien-koeweitse-militairen-gewond-na-iraanse-raketaanval-universiteit-van-beiroet-blijft-dicht-na-dreiging~ac528ac3/)
-  > De in het Midden-Oosten beroemde American University of Beirut (AUB) verzorgt het onderwijs voor op zijn minst twee dagen enkel online. De Iraanse...
-- [Argentijnse bondscoach over WK-deelname Lionel Messi: ‘Ik wil hem graag selecteren, maar beslissing ligt bij hem’](https://www.ad.nl/wk-voetbal/argentijnse-bondscoach-over-wk-deelname-lionel-messi-ik-wil-hem-graag-selecteren-maar-beslissing-ligt-bij-hem~ab051f28/)
-  > Toch wel opvallende uitspraken van Lionel Scaloni, de bondscoach van Argentinië. Tweeënhalve maand voor de start durft Scaloni niet te zeggen of...
+- [Van der Poel heeft in het zoveelste hoofdstuk rivaliteit met Van Aert wéér het mentale voordeel](https://www.ad.nl/wielrennen/van-der-poel-heeft-in-het-zoveelste-hoofdstuk-rivaliteit-met-van-aert-weer-het-mentale-voordeel~a09dd456/)
+  > Gent-Wevelgem, nu In Flanders Fields, blijft een hiaat op het palmares van Mathieu van der Poel. Hij zorgde, ouderwets samen met zijn rivaal Wout van...
+- [Astronaut onthult waarom hij als eerste ooit uit de ruimte werd geëvacueerd: ‘Ik kon ineens niet meer praten’](https://www.ad.nl/buitenland/astronaut-onthult-waarom-hij-als-eerste-ooit-uit-de-ruimte-werd-geevacueerd-ik-kon-ineens-niet-meer-praten~a010e658/)
+  > De Amerikaanse astronaut Mike Fincke (59) heeft onthuld waarom hij als eerste astronaut ooit uit de ruimte werd geëvacueerd. Hij kon opeens een...
+- [KLM snakt naar Airbus A350: ‘Is geschikt voor alle turbulentie in geopolitieke omstandigheden’](https://www.ad.nl/economie/klm-snakt-naar-airbus-a350-is-geschikt-voor-alle-turbulentie-in-geopolitieke-omstandigheden~a97dd16c/)
+  > KLM kampt met forse tegenwind, in de nasleep van corona en met oorlogen in Oekraïne en het Midden-Oosten. Tegelijkertijd investeert de maatschappij 7...
+- [Vogels nestelen onder zonnepanelen: zo voorkom je brand en storingen](https://www.ad.nl/wonen/vogels-nestelen-onder-zonnepanelen-zo-voorkom-je-brand-en-storingen~a5809eb0/)
+  > De ruimte onder je zonnepanelen kan voor sommige vogels een aantrekkelijke plek zijn om te nestelen. Maar dat kan wel brandgevaar en storingen...
+- [Netanyahu beveelt verdere uitbreiding bufferzone Zuid-Libanon](https://www.ad.nl/buitenland/netanyahu-beveelt-verdere-uitbreiding-bufferzone-zuid-libanon~ac528ac3/)
+  > De Israëlische premier Benjamin Netanyahu heeft het leger opdracht gegeven de bestaande veiligheidszone in het zuiden van Libanon uit te breiden....
 
 ### Meest gelezen
 
@@ -46,7 +46,7 @@
 
 ### Laatste nieuws
 
-- [Jomibo brengt Zuidoost naar de Zuidas](https://fd.nl/samenleving/1591413/jomibo-brengt-zuidoost-naar-de-zuidas)
+- [‘Jomibo’ brengt Zuidoost naar de Zuidas](https://fd.nl/samenleving/1591413/jomibo-brengt-zuidoost-naar-de-zuidas)
   > Joey Burnet had een simpel doel: de Zuidas en zijn vrijdagmiddagborrels ontdekken. Via video’s konden zijn volgers op TikTok de missie...
 - [Frankrijk neemt leiding bij het bepalen van Europees defensiebeleid](https://fd.nl/politiek/1591328/frankrijk-neemt-leiding-bij-het-bepalen-van-europees-defensiebeleid)
   > Hoe kan Europa zich verdedigen als de VS zich verder terugtrekken uit de Navo? In Parijs kwamen 4000 militaire beleidsmakers bij elkaar om die vraag...
