@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-03-2026 om 19:35*
+*Laatst bijgewerkt: 29-03-2026 om 20:38*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Trumps achterban verdeeld over oorlog: America First of Make Iran Great Again?](https://nos.nl/l/2608328)
+  > Vier weken na de start van Trumps oorlog met Iran ligt de inzet van grondtroepen nadrukkelijk op tafel. De MAGA-beweging maakt zich zorgen: hoe valt...
+- [Stekker uit RTL Tonight, na de zomer nieuwe talkshow met Renze Klamer](https://nos.nl/l/2608327)
+  > Het televisieprogramma RTL Tonight stopt vanwege tegenvallende kijkcijfers. De laatste uitzending is op 12 juni. Dat bevestigt een woordvoerder van...
 - [Komt er een Amerikaans grondoffensief in Iran? Er zijn tal van mogelijkheden](https://nos.nl/l/2608326)
   > Er gaan al langere tijd geruchten over een naderend Amerikaans grondoffensief in Iran. Gisteren meldde The Washington Post dat het Pentagon zich...
 - [Week begint guur met veel buien, ook rest van de week wisselvallig](https://nos.nl/l/2608320)
   > Morgen wordt het een frisse dag met veel buien. Daarbij kan het soms hagelen en onweren. Ook de rest van de week is het waarschijnlijk niet stralend...
 - [Kardinaal mag kerk Jeruzalem op Palmzondag niet in, patriarchaat boos](https://nos.nl/l/2608303)
   > De Israëlische politie heeft kardinaal Pierbattista Pizzaballa verboden de mis op Palmzondag te vieren in de Heilig Grafkerk in Jeruzalem. Volgens de...
-- [Politie pakt man (21) op in Eindhoven, mogelijk link met IS](https://nos.nl/l/2608299)
-  > Een 21-jarige man uit Eindhoven is gisteravond opgepakt in een terrorismeonderzoek. "Onderzocht wordt of hij banden heeft met Islamitische Staat...
-- [NASA-astronaut die noodterugkeer maakte kon opeens niet meer praten](https://nos.nl/l/2608297)
-  > "Het kwam totaal uit het niets", zegt de Amerikaanse astronaut Mike Fincke die begin dit jaar een noodterugkeer maakte nadat hij onwel was geworden...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Rijnwater in Duitsland vervuild: oliespoor van 15 kilometer lang drijft ons land binnen](https://www.ad.nl/binnenland/rijnwater-in-duitsland-vervuild-oliespoor-van-15-kilometer-lang-drijft-ons-land-binnen~a1c6d07e/)
-  > Het rivierwater net over de grens in Duitsland is ernstig vervuild geraakt. Dit weekend ontdekte de waterpolitie bij Emmerik een grote...
-- [Megacrash met negen motoren zorgt voor waardeloos weekeinde voor Collin Veijer](https://www.ad.nl/andere-sporten/megacrash-met-negen-motoren-zorgt-voor-waardeloos-weekeinde-voor-collin-veijer~a7b0b236/)
-  > Collin Veijer heeft de eerste tegenvaller van het seizoen te verwerken gekregen. In de GP van de Verenigde Staten kwam de KTM-coureur uit Staphorst...
-- [Ik maak me niet zo’n zorgen over tradwives](https://www.ad.nl/binnenland/ik-maak-me-niet-zon-zorgen-over-tradwives~a9dc2012/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [Varenkweker verovert de wereld met slimme uitvinding: geen gif en maar één liter water per bak](https://www.ad.nl/economie/varenkweker-verovert-de-wereld-met-slimme-uitvinding-geen-gif-en-maar-een-liter-water-per-bak~ad250ab8/)
-  > Zie je ergens een varen staan? De kans is heel groot dat zijn leventje in Zeeland is begonnen. Vitro Plus, genomineerd voor de Nationale...
-- [Frankrijk eindigt oefencampagne op bezoek bij Colombia, Kylian Mbappé begint op de bank](https://www.ad.nl/wk-voetbal/frankrijk-eindigt-oefencampagne-op-bezoek-bij-colombia-kylian-mbappe-begint-op-de-bank~adef1029/)
+- [Test Audi Q3: technisch een flinke stap vooruit](https://www.ad.nl/auto/test-audi-q3-technisch-een-flinke-stap-vooruit~a6e33aeb/)
+  > De nieuwe Audi Q3 getuigt vooral technisch van een inhaalslag. Hij levert nu betere hybride-prestaties. In tegenstelling tot andere landen, is hij in...
+- [B-team van Frankrijk straft Colombia volledig af in laatste duel van oefencampagne](https://www.ad.nl/wk-voetbal/b-team-van-frankrijk-straft-colombia-volledig-af-in-laatste-duel-van-oefencampagne~adef1029/)
   > Frankrijk eindigt zijn oefencampagne met een duel op bezoek bij Colombia. Wat kan het topland laten zien richting het WK? Volg het duel hier live!
+- [Geluksvogel Jasper wint ‘waanzinnig bedrag’ in Miljoenenjacht: ‘Jeetje, wat was je dapper’](https://www.ad.nl/show/geluksvogel-jasper-wint-waanzinnig-bedrag-in-miljoenenjacht-jeetje-wat-was-je-dapper~a85085b9/)
+  > Jasper (28) uit Nijmegen heeft zondagavond met een opvallende tactiek ‘een waanzinnig bedrag’ gewonnen in Miljoenenjacht. De finalist in de SBS6-show...
+- [Vrouw uit Florida eet ijs waar spijker in zit: slachtoffer raakt onvruchtbaar en ontvangt 14 miljoen schadevergoeding](https://www.ad.nl/bizar/vrouw-uit-florida-eet-ijs-waar-spijker-in-zit-slachtoffer-raakt-onvruchtbaar-en-ontvangt-14-miljoen-schadevergoeding~aa2493fef/)
+  > Een vrouw uit Florida is na het eten van een ijsje onvruchtbaar geworden. In het ijs zaten namelijk spijkers en scherven verstopt, die door de vrouw...
+- [Meisje (6) loopt alleen en op blote voeten door de stad, agenten stomverbaasd door reactie ouders](https://www.ad.nl/binnenland/meisje-6-loopt-alleen-en-op-blote-voeten-door-de-stad-agenten-stomverbaasd-door-reactie-ouders~acab0161/)
+  > Een meisje van zes loopt in haar eentje op blote voeten door Enschede. Dat is niet het enige: ze wordt beschuldigd van diefstal van een fiets....
 
 ### Meest gelezen
 
