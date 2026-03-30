@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-03-2026 om 21:48*
+*Laatst bijgewerkt: 30-03-2026 om 22:41*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Raad besluit tot nieuwe verkiezingen Gorinchem: 'We willen zuiver mandaat'](https://nos.nl/l/2608473)
+  > De gemeenteraadsverkiezingen in Gorinchem moeten over vanwege signalen van verkiezingsfraude. Een nipte meerderheid binnen de gemeenteraad heeft dat...
+- [Meerdere loodsen in brand op industrieterrein Someren](https://nos.nl/l/2608472)
+  > In Someren woedt een grote brand op een industrieterrein. Drie loodsen staan in brand en zijn gedeeltelijk ingestort. Er zijn explosies te horen,...
 - [PBL: bepaal hoeveel klimaatschade acceptabel is en wie in welke mate wordt beschermd](https://nos.nl/l/2608464)
   > Nederland moet bepalen hoeveel extra sterfgevallen en schade door klimaatverandering acceptabel zijn, en wie we in welke mate beschermen. Die...
 - [Kerosineprijs al meer dan verdubbeld, is er straks nog genoeg brandstof?](https://nos.nl/l/2608462)
   > Sinds de oorlog in het Midden-Oosten betalen we niet alleen meer aan de pomp; ook de prijs van brandstof voor vliegtuigen is meer dan verdubbeld. De...
 - [Céline Dion kondigt eerste concertreeks in jaren aan: tien optredens in Parijs](https://nos.nl/l/2608460)
   > Zangeres Céline Dion heeft op haar 58ste verjaardag een nieuwe reeks concerten aangekondigd in Parijs. In september en oktober staat ze in totaal...
-- [Oud-voetballer Beugelsdijk mag raadslid worden in Den Haag: 'Voldoet aan vereisten'](https://nos.nl/l/2608455)
-  > Oud-profvoetballer Tom Beugelsdijk (35) zal woensdag worden beëdigd als raadslid van Hart voor Den Haag. Dat bevestigt de partij aan radiostation Den...
-- [Ontsnapte tbs'er (41) aangehouden in Leeuwarden](https://nos.nl/l/2608453)
-  > De tbs'er die vanochtend ontsnapte in de stad Groningen is opgepakt, meldt de politie. De 41-jarige man werd vanavond aangehouden op de openbare weg...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Voetbalpodcast | ‘Waarom neemt Oranje geen chef dode spelmomenten mee naar het WK?’](https://www.ad.nl/voetbal/voetbalpodcast-waarom-neemt-oranje-geen-chef-dode-spelmomenten-mee-naar-het-wk~ac8603a9/)
+  > Het geheime wapen van Oranje op het WK moet het dode spelmoment worden. Hoekschoppen of vrije trappen. Een ingooi. Het kan het verschil maken. Net...
+- [Taylor Swift aangeklaagd voor inbreuk op handelsmerk ‘Showgirl’ en oneerlijke concurrentie](https://www.ad.nl/show/taylor-swift-aangeklaagd-voor-inbreuk-op-handelsmerk-showgirl-en-oneerlijke-concurrentie~a68514b6/)
+  > Taylor Swift wordt aangeklaagd voor inbreuk op een handelsmerk en oneerlijke concurrentie vanwege de titel van haar album The Life of a Showgirl....
 - [FIFA-baas Gianni Infantino wil dat Iran meedoet aan WK in de VS: ‘Er is geen plan B’](https://www.ad.nl/wk-voetbal/fifa-baas-gianni-infantino-wil-dat-iran-meedoet-aan-wk-in-de-vs-er-is-geen-plan-b~a91348da/)
   > Gianni Infantino wil dat Iran in juni gewoon meedoet aan het wereldkampioenschap voetbal. „We willen dat Iran speelt. Er is geen plan B, C of D. Er...
 - [Duitsland dankzij late treffer langs Ghana in stroef oefenduel](https://www.ad.nl/wk-voetbal/duitsland-dankzij-late-treffer-langs-ghana-in-stroef-oefenduel~aa61d32f/)
   > In een moeizame wedstrijd trok Duitsland aan het langste eind in het oefenduel met Ghana: 2-1. Lang leek het erop dat Duitsland gelijk zou spelen,...
-- [Grote brand in Brabantse loodsen met vrachtwagens, harde knallen te horen](https://www.ad.nl/binnenland/grote-brand-in-brabantse-loodsen-met-vrachtwagens-harde-knallen-te-horen~ab8f5b6b/)
-  > In het Noord-Brabantse Someren woedt maandagavond een zeer grote brand. Er staan drie loodsen in brand en het vuur is ook overgeslagen naar een...
-- [Test Leapmotor B10: scherp geprijsd, ruim en comfortabel](https://www.ad.nl/auto/test-leapmotor-b10-scherp-geprijsd-ruim-en-comfortabel~a5efdf32/)
-  > Nog maar weinig Nederlanders zullen bekend zijn met het Chinese Leapmotor. Maar dit merk blijkt een ware prijsbreker die probeert hier zo snel...
-- [Italiaanse bondscoach Gattuso niet bang voor Bosnische heksenketel: ‘Heb een fan nog nooit zien scoren’](https://www.ad.nl/wk-voetbal/italiaanse-bondscoach-gattuso-niet-bang-voor-bosnische-heksenketel-heb-een-fan-nog-nooit-zien-scoren~ad0862ca/)
-  > Bondscoach Gennaro Gattuso van Italië heeft in de finale van de play-offs voor deelname aan het WK tegen Bosnië en Herzegovina geen zorgen over het...
+- [Loodsen en vrachtwagens verloren door grote brand in Someren](https://www.ad.nl/binnenland/loodsen-en-vrachtwagens-verloren-door-grote-brand-in-someren~ab8f5b6b/)
+  > In het Noord-Brabantse Someren woedt maandagavond een zeer grote brand. Er staan drie loodsen met bouwmaterialen, kranen en vrachtwagens in brand.
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Advies: maak nieuwe én bestaande woonwijken groener om hitte het hoofd te bieden](https://fd.nl/politiek/1591476/advies-maak-nieuwe-en-bestaande-woonwijken-groener-om-hitte-het-hoofd-te-bieden)
-  > Terwijl het kabinet haast wil maken met de bouw van nieuwe grote woonwijken, adviseert het Planbureau voor de Leefomgeving om heel goed na te denken...
-- [Tegenstrijdige woorden van Trump zaaien nieuwe twijfel bij Amerikaanse belegger](https://fd.nl/financiele-markten/1591677/tegenstrijdige-woorden-van-trump-zaaien-nieuwe-twijfel-bij-amerikaanse-belegger)
-  > De Dow Jones-index pluste bij de sluiting van de beurzen 0,1%. De breder samengestelde S&P 500 leverde 0,4% in. Technologie-index Nasdaq eindigde de...
-- [Israël neemt omstreden doodstrafwet aan](https://fd.nl/samenleving/1591778/israel-neemt-omstreden-doodstrafwet-aan)
-  > De wet is bedacht door Itamar Ben-Gvir, de extreemrechtse minister van nationale veiligheid.
-- [‘Private equityhuizen Apollo en KKR dichtbij grote luchtvaartdeal’](https://fd.nl/bedrijfsleven/1591779/private-equityhuizen-apollo-en-kkr-dichtbij-grote-luchtvaartdeal)
-  > De serviceorganisatie voor bezitters van privéjets wordt gewaardeerd op $10 mrd.
-- [Omstreden Duitse zakenman Windhorst opnieuw in de fout](https://fd.nl/financiele-markten/1591676/omstreden-duitse-zakenman-windhorst-opnieuw-in-de-fout)
-  > Lars Windhorst, de gevallen oprichter van verschillende investeringsfondsen, moet de cel in voor het niet betalen van een schuld van €27 mln.
+- [Het stagflatiespook](https://fd.nl/opinie/1591777/het-stagflatiespook)
+  > De inflatie loopt weer wat op, net als de werkloosheid, én de groei staat onder druk. Gaat het stagflatiespook zich weer roeren? En gaat het winnen?
+- [Twee chocoladefabrikanten jagen met fusie op nieuwe klanten](https://fd.nl/bedrijfsleven/1591340/twee-chocoladefabrikanten-jagen-met-fusie-op-nieuwe-klanten)
+  > De Nederlandse chocoladeproducenten Hands Off en Chocolatemakers fuseren tot The Chocolate Impact Group met een omzet van €8 mln.
+- [Voor Trump is ‘Cuba de volgende’ – na Iran en Venezuela richt hij zijn blik op een uitgeput eiland](https://fd.nl/opinie/1591330/voor-trump-is-cuba-de-volgende)
+  > Terwijl Cuba wegzakt in een door Washington verergerde energiecrisis, hint Donald Trump openlijk op een volgende stap. Geen democratisering, maar een...
+- [Personalia dinsdag 31 maart](https://fd.nl/bedrijfsleven/1591453/personalia-dinsdag-31-maart)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [ASN Bank brengt beheer hypotheken onder bij Amsterdamse fintech Ohpen](https://fd.nl/financiele-markten/1591480/asn-bank-brengt-beheer-hypotheken-onder-bij-amsterdamse-fintech-ohpen)
+  > ASN Bank verhuist zijn hypotheekportefeuille van €56,5 mrd naar fintech Ohpen. De stap moet leiden tot meer efficiëntie binnen het hypotheekbedrijf.
 
 ### Meest gelezen
 
