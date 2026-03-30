@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-03-2026 om 22:41*
+*Laatst bijgewerkt: 30-03-2026 om 23:40*
 
 ---
 
@@ -8,8 +8,8 @@
 
 ### Laatste nieuws
 
-- [Raad besluit tot nieuwe verkiezingen Gorinchem: 'We willen zuiver mandaat'](https://nos.nl/l/2608473)
-  > De gemeenteraadsverkiezingen in Gorinchem moeten over vanwege signalen van verkiezingsfraude. Een nipte meerderheid binnen de gemeenteraad heeft dat...
+- [Raad besluit tot nieuwe verkiezingen in Gorinchem: 'We willen zuiver mandaat'](https://nos.nl/l/2608473)
+  > De gemeenteraadsverkiezingen in Gorinchem moeten over. Een nipte meerderheid binnen de gemeenteraad heeft dat besloten vanwege sterke signalen van...
 - [Meerdere loodsen in brand op industrieterrein Someren](https://nos.nl/l/2608472)
   > In Someren woedt een grote brand op een industrieterrein. Drie loodsen staan in brand en zijn gedeeltelijk ingestort. Er zijn explosies te horen,...
 - [PBL: bepaal hoeveel klimaatschade acceptabel is en wie in welke mate wordt beschermd](https://nos.nl/l/2608464)
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Nipte meerderheid Gorcumse raad kiest voor nieuwe verkiezingen, datum volgt nog](https://www.ad.nl/gorinchem/nipte-meerderheid-gorcumse-raad-kiest-voor-nieuwe-verkiezingen-datum-volgt-nog~a3b804b7/)
+  > De gemeente Gorinchem schrijft geschiedenis. Inwoners van die gemeente moeten opnieuw naar de stembus. Een nipte meerderheid van de oude raad koos...
 - [Voetbalpodcast | ‘Waarom neemt Oranje geen chef dode spelmomenten mee naar het WK?’](https://www.ad.nl/voetbal/voetbalpodcast-waarom-neemt-oranje-geen-chef-dode-spelmomenten-mee-naar-het-wk~ac8603a9/)
   > Het geheime wapen van Oranje op het WK moet het dode spelmoment worden. Hoekschoppen of vrije trappen. Een ingooi. Het kan het verschil maken. Net...
 - [Taylor Swift aangeklaagd voor inbreuk op handelsmerk ‘Showgirl’ en oneerlijke concurrentie](https://www.ad.nl/show/taylor-swift-aangeklaagd-voor-inbreuk-op-handelsmerk-showgirl-en-oneerlijke-concurrentie~a68514b6/)
@@ -35,8 +37,6 @@
   > Gianni Infantino wil dat Iran in juni gewoon meedoet aan het wereldkampioenschap voetbal. „We willen dat Iran speelt. Er is geen plan B, C of D. Er...
 - [Duitsland dankzij late treffer langs Ghana in stroef oefenduel](https://www.ad.nl/wk-voetbal/duitsland-dankzij-late-treffer-langs-ghana-in-stroef-oefenduel~aa61d32f/)
   > In een moeizame wedstrijd trok Duitsland aan het langste eind in het oefenduel met Ghana: 2-1. Lang leek het erop dat Duitsland gelijk zou spelen,...
-- [Loodsen en vrachtwagens verloren door grote brand in Someren](https://www.ad.nl/binnenland/loodsen-en-vrachtwagens-verloren-door-grote-brand-in-someren~ab8f5b6b/)
-  > In het Noord-Brabantse Someren woedt maandagavond een zeer grote brand. Er staan drie loodsen met bouwmaterialen, kranen en vrachtwagens in brand.
 
 ### Meest gelezen
 
