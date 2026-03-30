@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-03-2026 om 13:43*
+*Laatst bijgewerkt: 30-03-2026 om 15:07*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Inspectie legt meer dan 7 ton aan boetes op in affaire Indonesische verpleegkundigen](https://nos.nl/l/2608404)
-  > De Arbeidsinspectie heeft in totaal meer dan 700.000 euro aan boetes opgelegd aan Zorggroep Drenthe, Woonzorg Flevoland en hogeschool Avans+. Zij...
-- [Mini-auto steeds populairder in welvarende gemeenten, aantal in Amsterdam daalt](https://nos.nl/l/2608398)
-  > De brommobiel is steeds vaker terug te zien in het Nederlandse straatbeeld, blijkt uit onderzoek van het mobiliteitsdatabedrijf RDC. Waar de...
-- [Experts houden gestrande walvis continu in de gaten: 'We hopen het beste'](https://nos.nl/l/2608396)
-  > De bultrugwalvis die inmiddels een week voor de Duitse Oostzeekust ligt, heeft de afgelopen uren nauwelijks bewogen. "Hij ademt nog steeds. Hij ligt...
-- [Israël schorst bataljon na belagen en vasthouden CNN-journalisten op Westoever](https://nos.nl/l/2608393)
-  > Israël heeft een reservebataljon geschorst voor het belagen en vasthouden van een team journalisten van de Amerikaanse nieuwszender CNN. De...
-- [Primeur voor Ierland: een basisinkomen voor kunstenaars](https://nos.nl/l/2608389)
-  > Hoe overleef je als jonge artiest? Afgaand op het relaas van de Ierse muzikant John Blek is dat niet eenvoudig. Hij stortte zich op 16-jarige...
+- [Nieuw dak voor beschermde vleermuizen moet nieuwbouw Drentse school mogelijk maken](https://nos.nl/l/2608420)
+  > Op het platte dak van de gymzaal naast de openbare basisschool in het Drentse dorp Eext is een nieuw dak geplaatst, speciaal voor de vleermuizen die...
+- [Inspectie: zorg voor jongeren op Hoenderlooterrrein ondermaats](https://nos.nl/l/2608419)
+  > De zorg voor kinderen en jongeren die in zorginstellingen op het Hoenderlooterrein verblijven is ondermaats, concludeert de Inspectie Gezondheidszorg...
+- [Twee minderjarigen en een 18-jarige opgepakt na dodelijk geweld Hoorn](https://nos.nl/l/2608418)
+  > De politie heeft twee minderjarigen en een 18-jarige man aangehouden na een massale vechtpartij in de binnenstad van Hoorn zaterdagavond. Een...
+- [Podcast De Dag: als je als kind slachtoffer van geweld bent](https://nos.nl/l/2608415)
+  > Heel veel kinderen in Nederland hebben te maken met geweld. Thuis, op school, online - het is eigenlijk overal. In deze podcast hoor je Renee, Roze,...
+- [Ruim 1,7 miljoen euro buitgemaakt met helpdeskfraude, acht verdachten aangehouden](https://nos.nl/l/2608409)
+  > De politie heeft verspreid over het land acht mensen opgepakt die worden verdacht van crypto- en helpdeskfraude. Samen hebben zij ruim 1,7 miljoen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Frederique van Dalen (36) wordt de grote baas van radiozender Slam!: ‘Nooit durven dromen’](https://www.ad.nl/show/frederique-van-dalen-36-wordt-de-grote-baas-van-radiozender-slam-nooit-durven-dromen~a3ef2070/)
-  > Frederique van Dalen (36) is de nieuwe Station Director van radiozender Slam!. Zij wordt daarmee verantwoordelijk voor de programma’s, dj’s, muziek...
-- [Terwijl makelaars zijn pretpark bekijken, rouwt Hennie van der Most in zijn kantoortje: ‘Klote’](https://www.ad.nl/binnenland/terwijl-makelaars-zijn-pretpark-bekijken-rouwt-hennie-van-der-most-in-zijn-kantoortje-klote~a3aac0d9/)
-  > Het pretpark van Hennie van der Most gaat onder de hamer. Geïnteresseerde partijen keken maandag rond om te zien waar ze op kunnen bieden. Van der...
-- [Henk Veerman (35) langer bij Volendam, Spurs wil Roberto De Zerbi strikken](https://www.ad.nl/voetbal/henk-veerman-35-langer-bij-volendam-spurs-wil-roberto-de-zerbi-strikken~a35ea681/)
-  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
-- [‘Ik ben geen aansteller als ik last heb van de zomertijd, zegt de wetenschap’](https://www.ad.nl/binnenland/ik-ben-geen-aansteller-als-ik-last-heb-van-de-zomertijd-zegt-de-wetenschap~a3af41c4/)
-  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag is het heel simpel: wat heb je liever, zomertijd of wintertijd?
-- [Drie tieners opgepakt voor steekpartij in Hoorn waarbij Dario (29) om het leven kwam](https://www.ad.nl/binnenland/drie-tieners-opgepakt-voor-steekpartij-in-hoorn-waarbij-dario-29-om-het-leven-kwam~a23277a8c/)
-  > De politie heeft drie tieners opgepakt voor de dodelijke steekpartij in Hoorn waarbij de 29-jarige Dario om het leven is gekomen. Het gaat om twee...
+- [Oranje opponent Ecuador: Caniggia-lookalike als architect en Caicedo als motor van een onneembare vesting](https://www.ad.nl/voetbal/oranje-opponent-ecuador-caniggia-lookalike-als-architect-en-caicedo-als-motor-van-een-onneembare-vesting~ad6f3214/)
+  > Ronald Koeman wilde in aanloop graag tegen een sterk land uit Zuid-Amerika spelen. Dat is morgen Ecuador, dat met drie punten in mindering aan de...
+- [Duitse bondscoach Julian Nagelsmann wil meer openheid over homoseksualiteit in voetbal](https://www.ad.nl/voetbal/duitse-bondscoach-julian-nagelsmann-wil-meer-openheid-over-homoseksualiteit-in-voetbal~a6a1106d/)
+  > Na de coming-out van jeugdtrainer Christian Dobrick van FC St. Pauli heeft de Duitse bondscoach Julian Nagelsmann zich sterk gemaakt voor een open...
+- [Voor zedenmisdrijven veroordeelde tbs’er ontsnapt uit kliniek in Groningen, politie zet klopjacht in](https://www.ad.nl/binnenland/voor-zedenmisdrijven-veroordeelde-tbser-ontsnapt-uit-kliniek-in-groningen-politie-zet-klopjacht-in~a028fcc4/)
+  > De politie is dringend op zoek naar een ontsnapte tbs’er die is veroordeeld voor zedenmisdrijven. Het gaat om de 41-jarige Anne Dijkstra, die zich...
+- [Olympisch kampioen biatlon maakt opvallende carrièreswitch, met geleende oorbel van Marco Pantani](https://www.ad.nl/wielrennen/olympisch-kampioen-biatlon-maakt-opvallende-carriereswitch-met-geleende-oorbel-van-marco-pantani~a36c5de8/)
+  > Olympisch kampioen Émilien Jacquelin maakt een opvallende carrièreswitch. De 30-jarige biatleet, die tijdens de Winterspelen de iconische oorbel van...
+- [Twente-talent naar FC Barcelona, Jonathan de Guzman stopt na dit seizoen](https://www.ad.nl/voetbal/twente-talent-naar-fc-barcelona-jonathan-de-guzman-stopt-na-dit-seizoen~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Tik op de vingers voor voormalig accountant van EY in Airbus-zaak](https://fd.nl/financiele-markten/1591353/tik-op-de-vingers-voor-voormalig-accountant-van-ey-in-airbus-zaak)
-  > De AFM zag in een eerdere miljardenschikking vanwege omkoping bij Airbus aanleiding om een recentere controle tegen het licht te houden. De betrokken...
-- [Kabinet: ook hbo’ers moeten doctorstitel kunnen behalen](https://fd.nl/politiek/1591359/kabinet-ook-hboers-moeten-dokterstitel-kunnen-behalen)
-  > Het ministerie van Onderwijs, Cultuur en Wetenschap komt daarom met een wetsvoorstel om twee nieuwe graden aan het Nederlandse onderwijssysteem toe...
-- [Portugal rekent op bod van Air France-KLM op luchtvaartmaatschappij TAP](https://fd.nl/bedrijfsleven/1591358/portugal-rekent-op-bod-van-air-france-klm-op-luchtvaartmaatschappij-tap)
-  > Oorlog in Iran en hoge brandstofprijzen zouden interesse voor groot belang in TAP niet hebben verminderd.
-- [Frankrijk breidt energiesteun uit, kosten lopen op naar €600 mln](https://fd.nl/samenleving/1591356/frankrijk-breidt-energiesteun-uit-kosten-lopen-op-naar-600-mln)
-  > Het totale aantal begunstigden komt op ongeveer 3,8 miljoen.
-- [Kartelzaak kan chemiebedrijven miljarden kosten](https://fd.nl/bedrijfsleven/1590485/kartelzaak-kan-chemiebedrijven-miljarden-kosten)
-  > Grote chemiebedrijven eisen miljarden van hun klanten, omdat die geprobeerd hebben de prijzen van de grondstof ethyleen te drukken.
+- [Rheinmetall trapt Oekraïense huisvrouwen op hun ziel](https://fd.nl/financiele-markten/1591455/rheinmetall-trapt-oekraiense-huisvrouwen-op-hun-ziel)
+  > Ceo Armin Papperger communiceert vaak en graag. Maar vorige week ging hij de mist in.
+- [HES International begeeft zich op de markt voor CO₂-opslag](https://fd.nl/bedrijfsleven/1591577/hes-international-begeeft-zich-op-de-markt-voor-co-opslag)
+  > Het bedrijf is de zoektocht naar potentiële klanten gestart, en gaat daarvoor de concurrentie aan met grote CO₂-opslagprojecten zoals Aramis.
+- [Verhuurders van vakantiehuisjes nemen zelf de pijn van btw-verhoging](https://fd.nl/bedrijfsleven/1590260/verhuurder-vakantiehuisjes-neemt-zelf-de-pijn-van-btw-verhoging)
+  > Boekingen voor vakantiehuizen en hotels nemen toe in eerste kwartaal, hoewel btw naar 21% is gegaan. Verhuurders hebben hun prijzen slechts beperkt...
+- [Bezwaar bij rechter tegen wijziging juridische structuur Concertgebouw](https://fd.nl/samenleving/1591329/bezwaar-tegen-omstreden-ombouw-structuur-concertgebouw-bij-rechter)
+  > Vorig jaar bleek dat de goededoelenstructuur van het muziekpaleis jarenlang niet gedeugd zou hebben. Onder druk van de fiscus werd de structuur...
+- [Kellermann vertrekt bij Pensioenfonds Zorg en Welzijn](https://fd.nl/bedrijfsleven/1591576/kellerman-vertrekt-bij-pensioenfonds-zorg-en-welzijn)
+  > De bestuursvoorzitter maakt zijn tweede termijn van vier jaar niet af, om persoonlijke redenen.
 
 ### Meest gelezen
 
