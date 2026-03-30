@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-03-2026 om 11:06*
+*Laatst bijgewerkt: 30-03-2026 om 13:43*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Inspectie legt meer dan 7 ton aan boetes op in affaire Indonesische verpleegkundigen](https://nos.nl/l/2608404)
+  > De Arbeidsinspectie heeft in totaal meer dan 700.000 euro aan boetes opgelegd aan Zorggroep Drenthe, Woonzorg Flevoland en hogeschool Avans+. Zij...
+- [Mini-auto steeds populairder in welvarende gemeenten, aantal in Amsterdam daalt](https://nos.nl/l/2608398)
+  > De brommobiel is steeds vaker terug te zien in het Nederlandse straatbeeld, blijkt uit onderzoek van het mobiliteitsdatabedrijf RDC. Waar de...
+- [Experts houden gestrande walvis continu in de gaten: 'We hopen het beste'](https://nos.nl/l/2608396)
+  > De bultrugwalvis die inmiddels een week voor de Duitse Oostzeekust ligt, heeft de afgelopen uren nauwelijks bewogen. "Hij ademt nog steeds. Hij ligt...
+- [Israël schorst bataljon na belagen en vasthouden CNN-journalisten op Westoever](https://nos.nl/l/2608393)
+  > Israël heeft een reservebataljon geschorst voor het belagen en vasthouden van een team journalisten van de Amerikaanse nieuwszender CNN. De...
 - [Primeur voor Ierland: een basisinkomen voor kunstenaars](https://nos.nl/l/2608389)
   > Hoe overleef je als jonge artiest? Afgaand op het relaas van de Ierse muzikant John Blek is dat niet eenvoudig. Hij stortte zich op 16-jarige...
-- [Man (48) komt onder betonplaat en overlijdt in Zaandam](https://nos.nl/l/2608384)
-  > Een 48-jarige man is vanochtend op een bouwplaats in Zaandam onder een betonplaat gekomen en overleden. Dat bevestigt een woordvoerder van de...
-- [Erasmusprijs dit jaar naar kunstenaar en regisseur Steve McQueen](https://nos.nl/l/2608383)
-  > De Erasmusprijs 2026 is toegekend aan kunstenaar en regisseur Steve McQueen. Dat heeft de Stichting Praemium Erasmianum bekendgemaakt.
-        De...
-- [In één keer een groot bedrag uit je pensioenpot halen voorlopig geen optie](https://nos.nl/l/2608382)
-  > Opnieuw is de mogelijkheid uitgesteld om in één keer een bedrag uit je pensioenpot op te nemen. Uit de voorjaarsnota blijkt dat het kabinet het...
-- [Oorlogen en drones leiden tot uitdagingen én risico's voor de luchtvaart](https://nos.nl/l/2608378)
-  > De Europese luchtvaartautoriteit EASA waarschuwt dat de veiligheid van het internationale vliegverkeer steeds meer onder druk komt te staan door...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nederland sluit zich aan bij oproep aan Israël om doodstraf niet uit te breiden](https://www.ad.nl/binnenland/nederland-sluit-zich-aan-bij-oproep-aan-israel-om-doodstraf-niet-uit-te-breiden~adffa820/)
-  > Nederland sluit zich aan bij oproep aan Israël om doodstraf niet uit te breiden. Dat heeft minister Tom Berendsen van Buitenlandse Zaken maandag...
-- [Jong Oranje-debutant Dies Janse keek nagelbijtend toe hoe broer debuteerde: ‘Het is verschrikkelijk’](https://www.ad.nl/voetbal/jong-oranje-debutant-dies-janse-keek-nagelbijtend-toe-hoe-broer-debuteerde-het-is-verschrikkelijk~af584463/)
-  > Dies Janse is steunpilaar van FC Groningen, debutant in Jong Oranje en bovenal een van de meest nuchtere eredivisiespelers. Een gesprek over...
-- [Ruzie die sekswerker Briza fataal werd ging over ‘een bekende Nederlander’](https://www.ad.nl/binnenland/ruzie-die-sekswerker-briza-fataal-werd-ging-over-een-bekende-nederlander~ad3518936/)
-  > De ruzie met haar vriend die sekswerker Briza begin 2022 fataal werd in een Van der Valk-hotel in Wassenaar draaide om een bekende Nederlander. Dat...
-- [Bewoners hoorden een hoop kabaal en waren ineens dakloos: ‘Dit kun je niet bedenken’](https://www.ad.nl/binnenland/bewoners-hoorden-een-hoop-kabaal-en-waren-ineens-dakloos-dit-kun-je-niet-bedenken~a0822a75/)
-  > Diep in de nacht klinkt er een harde klap. Een bewoner denkt nog dat er een partytent door de straat waait, maar dan blijkt dat het dak er helemaal...
-- [Relatie Robin Martens na 6,5 jaar geklapt: ‘Langs elkaar heen gaan leven’](https://www.ad.nl/show/relatie-robin-martens-na-6-5-jaar-geklapt-langs-elkaar-heen-gaan-leven~a12235fc/)
-  > Robin Martens en haar partner Benjamin hebben een punt gezet achter hun relatie. Dat deelt de actrice maandag in een bericht op Instagram.
+- [Frederique van Dalen (36) wordt de grote baas van radiozender Slam!: ‘Nooit durven dromen’](https://www.ad.nl/show/frederique-van-dalen-36-wordt-de-grote-baas-van-radiozender-slam-nooit-durven-dromen~a3ef2070/)
+  > Frederique van Dalen (36) is de nieuwe Station Director van radiozender Slam!. Zij wordt daarmee verantwoordelijk voor de programma’s, dj’s, muziek...
+- [Terwijl makelaars zijn pretpark bekijken, rouwt Hennie van der Most in zijn kantoortje: ‘Klote’](https://www.ad.nl/binnenland/terwijl-makelaars-zijn-pretpark-bekijken-rouwt-hennie-van-der-most-in-zijn-kantoortje-klote~a3aac0d9/)
+  > Het pretpark van Hennie van der Most gaat onder de hamer. Geïnteresseerde partijen keken maandag rond om te zien waar ze op kunnen bieden. Van der...
+- [Henk Veerman (35) langer bij Volendam, Spurs wil Roberto De Zerbi strikken](https://www.ad.nl/voetbal/henk-veerman-35-langer-bij-volendam-spurs-wil-roberto-de-zerbi-strikken~a35ea681/)
+  > De transfermarkt is in vrijwel alle landen gesloten. Toch zullen er nog genoeg (huur)transfers plaatsvinden, ook in Nederland. Tegelijkertijd komen...
+- [‘Ik ben geen aansteller als ik last heb van de zomertijd, zegt de wetenschap’](https://www.ad.nl/binnenland/ik-ben-geen-aansteller-als-ik-last-heb-van-de-zomertijd-zegt-de-wetenschap~a3af41c4/)
+  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag is het heel simpel: wat heb je liever, zomertijd of wintertijd?
+- [Drie tieners opgepakt voor steekpartij in Hoorn waarbij Dario (29) om het leven kwam](https://www.ad.nl/binnenland/drie-tieners-opgepakt-voor-steekpartij-in-hoorn-waarbij-dario-29-om-het-leven-kwam~a23277a8c/)
+  > De politie heeft drie tieners opgepakt voor de dodelijke steekpartij in Hoorn waarbij de 29-jarige Dario om het leven is gekomen. Het gaat om twee...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Nederlandse bedrijven in Europese top met digitalisering](https://fd.nl/bedrijfsleven/1591351/nederlandse-bedrijven-in-europese-top-met-digitalisering)
-  > In een ranglijst van Europese landen staan alleen Finland en Denemarken hoger. Frankrijk zit onder het EU-gemiddelde.
-- [Koptelefoons, e-readers: welke digitale apparaten kopen we?](https://fd.nl/samenleving/1591344/koptelefoons-e-readers-welke-digitale-apparaten-kopen-we)
-  > Wetenswaardigheden op het gebied van loopbaan en personal finance.
-- [Meer schermtijd graag](https://fd.nl/financiele-markten/1591447/meer-schermtijd-graag)
-  > Meta’s streven van winstmaximalisatie botst met het publieke belang van een gezonde samenleving. De overheid is daarom aan zet, zegt FD-columnist Ria...
-- [Crypto is slaapverwekkend: beleggers storten zich nu op olie en gas](https://fd.nl/financiele-markten/1590704/verveelde-cryptospeculanten-storten-zich-nu-maar-op-olie-en-gas)
-  > Speculanten op de ingedutte cryptomarkt stappen over op olie en gas, waarvan de prijzen door de Iran-oorlog sterk schommelen. ‘De dopamine gaat net...
-- [Snelgroeiend DroneShield uit Australië strijkt neer in Amsterdam](https://fd.nl/bedrijfsleven/1590842/snelgroeiend-droneshield-uit-australie-strijkt-neer-in-amsterdam)
-  > Het bedrijf heeft net een Europees hoofdkantoor geopend in Amsterdam, maar gaat in België produceren – dus niet in de Limburgse ‘dronefabriek’ van...
+- [Tik op de vingers voor voormalig accountant van EY in Airbus-zaak](https://fd.nl/financiele-markten/1591353/tik-op-de-vingers-voor-voormalig-accountant-van-ey-in-airbus-zaak)
+  > De AFM zag in een eerdere miljardenschikking vanwege omkoping bij Airbus aanleiding om een recentere controle tegen het licht te houden. De betrokken...
+- [Kabinet: ook hbo’ers moeten doctorstitel kunnen behalen](https://fd.nl/politiek/1591359/kabinet-ook-hboers-moeten-dokterstitel-kunnen-behalen)
+  > Het ministerie van Onderwijs, Cultuur en Wetenschap komt daarom met een wetsvoorstel om twee nieuwe graden aan het Nederlandse onderwijssysteem toe...
+- [Portugal rekent op bod van Air France-KLM op luchtvaartmaatschappij TAP](https://fd.nl/bedrijfsleven/1591358/portugal-rekent-op-bod-van-air-france-klm-op-luchtvaartmaatschappij-tap)
+  > Oorlog in Iran en hoge brandstofprijzen zouden interesse voor groot belang in TAP niet hebben verminderd.
+- [Frankrijk breidt energiesteun uit, kosten lopen op naar €600 mln](https://fd.nl/samenleving/1591356/frankrijk-breidt-energiesteun-uit-kosten-lopen-op-naar-600-mln)
+  > Het totale aantal begunstigden komt op ongeveer 3,8 miljoen.
+- [Kartelzaak kan chemiebedrijven miljarden kosten](https://fd.nl/bedrijfsleven/1590485/kartelzaak-kan-chemiebedrijven-miljarden-kosten)
+  > Grote chemiebedrijven eisen miljarden van hun klanten, omdat die geprobeerd hebben de prijzen van de grondstof ethyleen te drukken.
 
 ### Meest gelezen
 
