@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-03-2026 om 07:49*
+*Laatst bijgewerkt: 30-03-2026 om 09:18*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Kabinet wil dat hbo'ers ook doctorstitel kunnen halen](https://nos.nl/l/2608363)
-  > Na een promotieonderzoek gericht op de praktijk moeten ook hbo'ers een doctorstitel kunnen halen. Dat wil minister Van Onderwijs Letschert (D66)...
-- [Reuzenotter, hyena, sneeuwuil en 37 andere dieren krijgen meer bescherming](https://nos.nl/l/2608353)
-  > Op een milieuconferentie in Brazilië hebben 132 landen en de Europese Unie ingestemd met een betere bescherming van veertig diersoorten. Ze worden...
-- [Hardloopevenementen kunnen meer doen bij hitteberoertes, zeggen experts](https://nos.nl/l/2608351)
-  > Als oververhitte hardlopers vaker worden gekoeld met ijsbaden en ijshanddoeken, kunnen levens worden gered. Dat zegt Coen Bongers,...
-- [Wekdienst 30/3: Gorinchem beslist over herstemming • Hoger beroep Ali B gaat verder](https://nos.nl/l/2608349)
-  > Goedemorgen! De gemeenteraad van Gorinchem besluit over een mogelijke herstemming bij de gemeenteraadsverkiezingen, en bondscoach Ronald Koeman geeft...
-- [Nederland stemt vaak per volmacht: 'Zwakte in ons verkiezingsproces'](https://nos.nl/l/2608347)
-  > Een op de tien kiezers stemde bij de afgelopen gemeenteraadsverkiezingen via een volmacht. Dat hoge aantal zijn we in Nederland gewend, maar komt in...
+- [Oorlogen en drones leiden tot uitdagingen én risico's voor de luchtvaart](https://nos.nl/l/2608378)
+  > De Europese luchtvaartautoriteit EASA waarschuwt dat de veiligheid van het internationale vliegverkeer steeds meer onder druk komt te staan door...
+- [Rusland zet Britse diplomaat uit na beschuldiging van spionage](https://nos.nl/l/2608374)
+  > Rusland zet een Britse diplomaat uit na beschuldigingen van spionage. Veiligheidsdienst FSB heeft de Brit twee weken gegeven om het land te...
+- [Gestolen Van Gogh na zes jaar terug in Groninger Museum](https://nos.nl/l/2608373)
+  > Het Van Gogh-schilderij Lentetuin, dat zes jaar geleden werd gestolen, is gerestaureerd. Vanaf morgen is het kunstwerk weer onbeschadigd en in...
+- [Voorvluchtige schutter gedood na maandenlange klopjacht in Australië](https://nos.nl/l/2608372)
+  > In Australië is een voortvluchtige man gedood na een maandenlange klopjacht, melden Australische media. Dezi Freeman sloeg vorig jaar op de vlucht...
+- [China hervat vliegverkeer op Noord-Korea na 6 jaar](https://nos.nl/l/2608368)
+  > De nationale luchtvaartmaatschappij van China heeft voor het eerst in zes jaar weer een vlucht op Noord-Korea uitgevoerd. Het toestel van Air China...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘Rotterdams’ Kaapverdië klopt Finland na penalty’s in oefenduel voor WK](https://www.ad.nl/voetbal/rotterdams-kaapverdie-klopt-finland-na-penaltys-in-oefenduel-voor-wk~a1c44842/)
-  > De voetballers van Kaapverdië hebben in Auckland een oefenduel met Finland gewonnen. De ploeg, die zich met veel Rotterdamse spelers heeft geplaatst...
-- [Quiz | Test jouw kennis over het afgelopen sportweekend](https://www.ad.nl/sport/quiz-test-jouw-kennis-over-het-afgelopen-sportweekend~a7dc5bbac/)
-  > Elke maandagochtend kun je jouw kennis testen over het afgelopen sportweekend. Heb jij al het sportnieuws op de voet gevolgd en beantwoord je alle...
-- [Martin Bosma is nu weer ‘gewoon’ Kamerlid, hij kan er nog niet aan wennen](https://www.ad.nl/politiek/martin-bosma-is-nu-weer-gewoon-kamerlid-hij-kan-er-nog-niet-aan-wennen~a3a8b987/)
-  > PVV’er Martin Bosma is ruim vier maanden weer ‘gewoon’ Kamerlid. Na het verlies van de voorzittershamer moest hij zich herpakken. Inmiddels schopt...
-- [Kabinet wil dat ook hbo’er straks doctorstitel kan behalen: ‘Een missend puzzelstukje’](https://www.ad.nl/binnenland/kabinet-wil-dat-ook-hboer-straks-doctorstitel-kan-behalen-een-missend-puzzelstukje~a34a57e1/)
-  > Hbo-studenten moeten straks ook een doctorstitel kunnen halen. Dat wil onderwijsminister Rianne Letschert (D66) regelen met een nieuwe wet. Vandaag...
-- [Toch nog extra getuigen gehoord in zaak Ali B, onder wie ex van Ellen ten Damme](https://www.ad.nl/show/toch-nog-extra-getuigen-gehoord-in-zaak-ali-b-onder-wie-ex-van-ellen-ten-damme~a9db8a8d/)
-  > Op de valreep worden er maandagmorgen alsnog twee getuigen gehoord in de zaak van Ali B. Het gaat onder meer om de ex-vriend van Ellen ten Damme.
+- [Trump dreigt Iraans olie-eiland Kharg in te nemen: ‘Ik wil het liefst alle olie afpakken’](https://www.ad.nl/buitenland/trump-dreigt-iraans-olie-eiland-kharg-in-te-nemen-ik-wil-het-liefst-alle-olie-afpakken~af53c577/)
+  > President Donald Trump dreigt het Iraanse olie-eiland Kharg in te nemen. Kharg is het hart van de Iraanse economie. „Ik wil het liefst alle olie van...
+- [Voormalig Oranje-international doet zich in datingshow voor als bouwvakker: vrouwen weten van niets](https://www.ad.nl/voetbal/voormalig-oranje-international-doet-zich-in-datingshow-voor-als-bouwvakker-vrouwen-weten-van-niets~a2e0f136/)
+  > Ryan Babel is vanaf vanavond te zien in een opvallend tv-programma. De voormalige Oranje-international doet mee aan een datingsshow, waarin hij doet...
+- [Ring op de huid is kenmerk van Lymeziekte, maar ook dit zijn mogelijke tekenen](https://www.ad.nl/gezond/ring-op-de-huid-is-kenmerk-van-lymeziekte-maar-ook-dit-zijn-mogelijke-tekenen~a4ab0c52/)
+  > Het is de Week van de Teek. Gebeten worden door zo’n beestje is geen fijn idee, maar niet alleen daarom is het iets om te vermijden. Teken kunnen...
+- [Drie keer is scheepsrecht: eindelijk een versie van We will rock you die wél voldoet](https://www.ad.nl/show/drie-keer-is-scheepsrecht-eindelijk-een-versie-van-we-will-rock-you-die-wel-voldoet~a9684e1a/)
+  > Twee keer, in 2010 en 2019, werd de Queen-musical We will rock you al in Nederland op de planken gezet en compleet afgefikt door recensenten. De...
+- [Kia EV2 heeft veel in zijn mars: verrassende zitruimte en rijdt goed](https://www.ad.nl/auto/kia-ev2-heeft-veel-in-zijn-mars-verrassende-zitruimte-en-rijdt-goed~a9f66f40/)
+  > Vorig jaar vochten de Kia EV3 en Skoda Elroq om de eerste plaats in de Nederlandse verkoopstatistieken. In 2026 gaan beide merken voor de tweede...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Tijd voor een Europese kopgroep in defensie](https://fd.nl/opinie/1590454/tijd-voor-een-europese-kopgroep-in-defensie)
+  > Turkije en Cyprus werden getroffen door Iraanse aanvallen. Voor de EU een harde les: de wederzijdse bijstand werkt op papier, maar militaire...
+- [Geen haast met Mercosur](https://fd.nl/politiek/1590906/geen-haast-met-mercosur)
+  > De Europa-nieuwsbrief van het FD gaat dit keer over de verwikkelingen rond het EU-handelsverdrag met Mercosur, een Tsjechische copycat, en wangedrag...
+- [Het noodlot dat AI heet](https://fd.nl/samenleving/1591277/het-noodlot-dat-ai-heet)
+  > Hoe slimmer de technologie, hoe minder betaald wordt voor de inzet van echte mensen. Is dat het noodlot waar we vrede mee moeten sluiten? vraagt...
 - [Trump draait en laat Cuba toch weer Russische olie kopen](https://fd.nl/politiek/1591341/trump-draait-en-laat-cuba-toch-weer-russische-olie-kopen)
   > De Amerikaanse president staat toe dat een Russische olietanker naar Cuba vaart, ondanks een Amerikaanse olieblokkade.
 - [Keurig Dr Pepper haalt meer dan 96% van de aandelen JDE Peet’s binnen](https://fd.nl/bedrijfsleven/1591441/keurig-dr-pepper-haalt-meer-dan-96-van-de-aandelen-jde-peets-binnen)
   > Het Amerikaanse levensmiddelenconcern doet zijn bod gestand. Koffieaandeel JDE Peet’s verdwijnt van de beurs van Amsterdam.
-- [Het effect van een compliment op de werkvloer](https://fd.nl/samenleving/1591376/het-effect-van-een-compliment-op-de-werkvloer)
-  > Complimenten vergroten het werkgeluk, weten we. Maar waarom lukt het niet iedereen om ze te geven of in ontvangst te nemen? De psychologie van het...
-- [Trump dreigt Iraanse olie-industrie over te nemen](https://fd.nl/politiek/1591440/trump-dreigt-iraanse-olie-industrie-over-te-nemen)
-  > De Amerikaanse president zegt de inname van de Iraanse oliehub Kharg te overwegen. Hij trekt een vergelijking met de overname van de Venezolaanse...
-- [Winst in de zorg: maak de regels uniform](https://fd.nl/opinie/1590843/winst-in-de-zorg-maak-de-regels-uniform)
-  > Schaf het verbod op winstuitkeringen af. Maar verplicht alle zorgaanbieders een gezonde buffer aan te houden. Dat is eerlijk, duidelijk en...
 
 ### Meest gelezen
 
