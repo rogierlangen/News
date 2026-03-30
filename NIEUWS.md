@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-03-2026 om 09:18*
+*Laatst bijgewerkt: 30-03-2026 om 11:06*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Primeur voor Ierland: een basisinkomen voor kunstenaars](https://nos.nl/l/2608389)
+  > Hoe overleef je als jonge artiest? Afgaand op het relaas van de Ierse muzikant John Blek is dat niet eenvoudig. Hij stortte zich op 16-jarige...
+- [Man (48) komt onder betonplaat en overlijdt in Zaandam](https://nos.nl/l/2608384)
+  > Een 48-jarige man is vanochtend op een bouwplaats in Zaandam onder een betonplaat gekomen en overleden. Dat bevestigt een woordvoerder van de...
+- [Erasmusprijs dit jaar naar kunstenaar en regisseur Steve McQueen](https://nos.nl/l/2608383)
+  > De Erasmusprijs 2026 is toegekend aan kunstenaar en regisseur Steve McQueen. Dat heeft de Stichting Praemium Erasmianum bekendgemaakt.
+        De...
+- [In één keer een groot bedrag uit je pensioenpot halen voorlopig geen optie](https://nos.nl/l/2608382)
+  > Opnieuw is de mogelijkheid uitgesteld om in één keer een bedrag uit je pensioenpot op te nemen. Uit de voorjaarsnota blijkt dat het kabinet het...
 - [Oorlogen en drones leiden tot uitdagingen én risico's voor de luchtvaart](https://nos.nl/l/2608378)
   > De Europese luchtvaartautoriteit EASA waarschuwt dat de veiligheid van het internationale vliegverkeer steeds meer onder druk komt te staan door...
-- [Rusland zet Britse diplomaat uit na beschuldiging van spionage](https://nos.nl/l/2608374)
-  > Rusland zet een Britse diplomaat uit na beschuldigingen van spionage. Veiligheidsdienst FSB heeft de Brit twee weken gegeven om het land te...
-- [Gestolen Van Gogh na zes jaar terug in Groninger Museum](https://nos.nl/l/2608373)
-  > Het Van Gogh-schilderij Lentetuin, dat zes jaar geleden werd gestolen, is gerestaureerd. Vanaf morgen is het kunstwerk weer onbeschadigd en in...
-- [Voorvluchtige schutter gedood na maandenlange klopjacht in Australië](https://nos.nl/l/2608372)
-  > In Australië is een voortvluchtige man gedood na een maandenlange klopjacht, melden Australische media. Dezi Freeman sloeg vorig jaar op de vlucht...
-- [China hervat vliegverkeer op Noord-Korea na 6 jaar](https://nos.nl/l/2608368)
-  > De nationale luchtvaartmaatschappij van China heeft voor het eerst in zes jaar weer een vlucht op Noord-Korea uitgevoerd. Het toestel van Air China...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Trump dreigt Iraans olie-eiland Kharg in te nemen: ‘Ik wil het liefst alle olie afpakken’](https://www.ad.nl/buitenland/trump-dreigt-iraans-olie-eiland-kharg-in-te-nemen-ik-wil-het-liefst-alle-olie-afpakken~af53c577/)
-  > President Donald Trump dreigt het Iraanse olie-eiland Kharg in te nemen. Kharg is het hart van de Iraanse economie. „Ik wil het liefst alle olie van...
-- [Voormalig Oranje-international doet zich in datingshow voor als bouwvakker: vrouwen weten van niets](https://www.ad.nl/voetbal/voormalig-oranje-international-doet-zich-in-datingshow-voor-als-bouwvakker-vrouwen-weten-van-niets~a2e0f136/)
-  > Ryan Babel is vanaf vanavond te zien in een opvallend tv-programma. De voormalige Oranje-international doet mee aan een datingsshow, waarin hij doet...
-- [Ring op de huid is kenmerk van Lymeziekte, maar ook dit zijn mogelijke tekenen](https://www.ad.nl/gezond/ring-op-de-huid-is-kenmerk-van-lymeziekte-maar-ook-dit-zijn-mogelijke-tekenen~a4ab0c52/)
-  > Het is de Week van de Teek. Gebeten worden door zo’n beestje is geen fijn idee, maar niet alleen daarom is het iets om te vermijden. Teken kunnen...
-- [Drie keer is scheepsrecht: eindelijk een versie van We will rock you die wél voldoet](https://www.ad.nl/show/drie-keer-is-scheepsrecht-eindelijk-een-versie-van-we-will-rock-you-die-wel-voldoet~a9684e1a/)
-  > Twee keer, in 2010 en 2019, werd de Queen-musical We will rock you al in Nederland op de planken gezet en compleet afgefikt door recensenten. De...
-- [Kia EV2 heeft veel in zijn mars: verrassende zitruimte en rijdt goed](https://www.ad.nl/auto/kia-ev2-heeft-veel-in-zijn-mars-verrassende-zitruimte-en-rijdt-goed~a9f66f40/)
-  > Vorig jaar vochten de Kia EV3 en Skoda Elroq om de eerste plaats in de Nederlandse verkoopstatistieken. In 2026 gaan beide merken voor de tweede...
+- [Nederland sluit zich aan bij oproep aan Israël om doodstraf niet uit te breiden](https://www.ad.nl/binnenland/nederland-sluit-zich-aan-bij-oproep-aan-israel-om-doodstraf-niet-uit-te-breiden~adffa820/)
+  > Nederland sluit zich aan bij oproep aan Israël om doodstraf niet uit te breiden. Dat heeft minister Tom Berendsen van Buitenlandse Zaken maandag...
+- [Jong Oranje-debutant Dies Janse keek nagelbijtend toe hoe broer debuteerde: ‘Het is verschrikkelijk’](https://www.ad.nl/voetbal/jong-oranje-debutant-dies-janse-keek-nagelbijtend-toe-hoe-broer-debuteerde-het-is-verschrikkelijk~af584463/)
+  > Dies Janse is steunpilaar van FC Groningen, debutant in Jong Oranje en bovenal een van de meest nuchtere eredivisiespelers. Een gesprek over...
+- [Ruzie die sekswerker Briza fataal werd ging over ‘een bekende Nederlander’](https://www.ad.nl/binnenland/ruzie-die-sekswerker-briza-fataal-werd-ging-over-een-bekende-nederlander~ad3518936/)
+  > De ruzie met haar vriend die sekswerker Briza begin 2022 fataal werd in een Van der Valk-hotel in Wassenaar draaide om een bekende Nederlander. Dat...
+- [Bewoners hoorden een hoop kabaal en waren ineens dakloos: ‘Dit kun je niet bedenken’](https://www.ad.nl/binnenland/bewoners-hoorden-een-hoop-kabaal-en-waren-ineens-dakloos-dit-kun-je-niet-bedenken~a0822a75/)
+  > Diep in de nacht klinkt er een harde klap. Een bewoner denkt nog dat er een partytent door de straat waait, maar dan blijkt dat het dak er helemaal...
+- [Relatie Robin Martens na 6,5 jaar geklapt: ‘Langs elkaar heen gaan leven’](https://www.ad.nl/show/relatie-robin-martens-na-6-5-jaar-geklapt-langs-elkaar-heen-gaan-leven~a12235fc/)
+  > Robin Martens en haar partner Benjamin hebben een punt gezet achter hun relatie. Dat deelt de actrice maandag in een bericht op Instagram.
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Tijd voor een Europese kopgroep in defensie](https://fd.nl/opinie/1590454/tijd-voor-een-europese-kopgroep-in-defensie)
-  > Turkije en Cyprus werden getroffen door Iraanse aanvallen. Voor de EU een harde les: de wederzijdse bijstand werkt op papier, maar militaire...
-- [Geen haast met Mercosur](https://fd.nl/politiek/1590906/geen-haast-met-mercosur)
-  > De Europa-nieuwsbrief van het FD gaat dit keer over de verwikkelingen rond het EU-handelsverdrag met Mercosur, een Tsjechische copycat, en wangedrag...
-- [Het noodlot dat AI heet](https://fd.nl/samenleving/1591277/het-noodlot-dat-ai-heet)
-  > Hoe slimmer de technologie, hoe minder betaald wordt voor de inzet van echte mensen. Is dat het noodlot waar we vrede mee moeten sluiten? vraagt...
-- [Trump draait en laat Cuba toch weer Russische olie kopen](https://fd.nl/politiek/1591341/trump-draait-en-laat-cuba-toch-weer-russische-olie-kopen)
-  > De Amerikaanse president staat toe dat een Russische olietanker naar Cuba vaart, ondanks een Amerikaanse olieblokkade.
-- [Keurig Dr Pepper haalt meer dan 96% van de aandelen JDE Peet’s binnen](https://fd.nl/bedrijfsleven/1591441/keurig-dr-pepper-haalt-meer-dan-96-van-de-aandelen-jde-peets-binnen)
-  > Het Amerikaanse levensmiddelenconcern doet zijn bod gestand. Koffieaandeel JDE Peet’s verdwijnt van de beurs van Amsterdam.
+- [Nederlandse bedrijven in Europese top met digitalisering](https://fd.nl/bedrijfsleven/1591351/nederlandse-bedrijven-in-europese-top-met-digitalisering)
+  > In een ranglijst van Europese landen staan alleen Finland en Denemarken hoger. Frankrijk zit onder het EU-gemiddelde.
+- [Koptelefoons, e-readers: welke digitale apparaten kopen we?](https://fd.nl/samenleving/1591344/koptelefoons-e-readers-welke-digitale-apparaten-kopen-we)
+  > Wetenswaardigheden op het gebied van loopbaan en personal finance.
+- [Meer schermtijd graag](https://fd.nl/financiele-markten/1591447/meer-schermtijd-graag)
+  > Meta’s streven van winstmaximalisatie botst met het publieke belang van een gezonde samenleving. De overheid is daarom aan zet, zegt FD-columnist Ria...
+- [Crypto is slaapverwekkend: beleggers storten zich nu op olie en gas](https://fd.nl/financiele-markten/1590704/verveelde-cryptospeculanten-storten-zich-nu-maar-op-olie-en-gas)
+  > Speculanten op de ingedutte cryptomarkt stappen over op olie en gas, waarvan de prijzen door de Iran-oorlog sterk schommelen. ‘De dopamine gaat net...
+- [Snelgroeiend DroneShield uit Australië strijkt neer in Amsterdam](https://fd.nl/bedrijfsleven/1590842/snelgroeiend-droneshield-uit-australie-strijkt-neer-in-amsterdam)
+  > Het bedrijf heeft net een Europees hoofdkantoor geopend in Amsterdam, maar gaat in België produceren – dus niet in de Limburgse ‘dronefabriek’ van...
 
 ### Meest gelezen
 
