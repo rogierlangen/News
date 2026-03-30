@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-03-2026 om 23:38*
+*Laatst bijgewerkt: 30-03-2026 om 02:53*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Tijdelijke halvering van accijns op benzine en diesel in Australië](https://nos.nl/l/2608344)
+  > De Australische regering neemt maatregelen om de brandstofprijs aan de pomp te verlagen. Het land halveert de accijns op benzine en diesel en zware...
+- [Amerika laat Russische olietanker ondanks embargo naar Cuba varen](https://nos.nl/l/2608343)
+  > Een Russische tanker komt later vandaag aan in Cuba, ondanks een door Amerika opgelegde olieblokkade. De tanker Anatoli Kolodkin heeft naar schatting...
+- [Verzwakte bultrug opnieuw vast in ondiep water voor Duitse Oostzeekust](https://nos.nl/l/2608342)
+  > Een bultrugwalvis heeft zich voor de derde keer in korte tijd vastgezwommen in ondiep water voor de Duitse kust. Deskundigen maken zich grote zorgen...
 - [Schilderijen van Renoir, Cézanne en Matisse gestolen uit Italiaans museum](https://nos.nl/l/2608341)
   > Uit een museum in het noorden van Italië zijn vorige week drie kostbare schilderijen gestolen. De werken hingen in Villa Magnani, in de buurt van...
 - [Trumps achterban verdeeld over oorlog: America First of Make Iran Great Again?](https://nos.nl/l/2608328)
   > Vier weken na de start van Trumps oorlog met Iran ligt de inzet van grondtroepen nadrukkelijk op tafel. De MAGA-beweging maakt zich zorgen: hoe valt...
-- [Stekker uit RTL Tonight, na de zomer nieuwe talkshow met Renze Klamer](https://nos.nl/l/2608327)
-  > Het televisieprogramma RTL Tonight stopt vanwege tegenvallende kijkcijfers. De laatste uitzending is op 12 juni. Dat bevestigt een woordvoerder van...
-- [Komt er een Amerikaans grondoffensief in Iran? Er zijn tal van mogelijkheden](https://nos.nl/l/2608326)
-  > Er gaan al langere tijd geruchten over een naderend Amerikaans grondoffensief in Iran. Gisteren meldde The Washington Post dat het Pentagon zich...
-- [Week begint guur met veel buien, ook rest van de week wisselvallig](https://nos.nl/l/2608320)
-  > Morgen wordt het een frisse dag met veel buien. Daarbij kan het soms hagelen en onweren. Ook de rest van de week is het waarschijnlijk niet stralend...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Israëlisch parlement keurt staatsbegroting goed, Netanyahu ontloopt vervroegde verkiezingen](https://www.ad.nl/buitenland/israelisch-parlement-keurt-staatsbegroting-goed-netanyahu-ontloopt-vervroegde-verkiezingen~a29bfd40/)
+  > Het Israëlische parlement heeft de staatsbegroting voor 2026 goedgekeurd. Hiermee kan de regering van premier Benjamin Netanyahu vervroegde...
+- [Australische voortvluchtige schutter na klopjacht gedood](https://www.ad.nl/buitenland/australische-voortvluchtige-schutter-na-klopjacht-gedood~a14746d2/)
+  > De voortvluchtige Dezi Freeman, de Australiër die naar verluidt verantwoordelijk is voor de dood van twee agenten in de Australische plaats...
+- [WK Voetbal 2026: risico op discriminatie en willekeurige arrestaties? ‘Ja’, zegt Amnesty, ‘Onzin’, zegt fanclub](https://www.ad.nl/sport/wk-voetbal-2026-risico-op-discriminatie-en-willekeurige-arrestaties-ja-zegt-amnesty-onzin-zegt-fanclub~a72f3baf/)
+  > Voetbalfans die komende zomer afreizen naar het WK Voetbal in Noord-Amerika lopen een verhoogd risico op een botte behandeling door...
 - [UNIFIL-vredeshandhaver gedood bij aanval in Zuid-Libanon](https://www.ad.nl/buitenland/unifil-vredeshandhaver-gedood-bij-aanval-in-zuid-libanon~ac528ac3/)
   > Een vredeshandhaver van de VN-vredesmacht in Libanon (UNIFIL) is om het leven gekomen toen een projectiel ontplofte in de omgeving van Adshit...
 - [Argentijnse bondscoach over WK-deelname Lionel Messi: ‘Ik wil hem graag selecteren, maar beslissing ligt bij hem’](https://www.ad.nl/wk-voetbal/argentijnse-bondscoach-over-wk-deelname-lionel-messi-ik-wil-hem-graag-selecteren-maar-beslissing-ligt-bij-hem~ab051f28/)
   > Toch wel opvallende uitspraken van Lionel Scaloni, de bondscoach van Argentinië. Tweeënhalve maand voor de start durft Scaloni niet te zeggen of...
-- [Frankrijk straft Colombia volledig af in laatste duel van oefencampagne, Mbappé evenaart bijna record](https://www.ad.nl/wk-voetbal/frankrijk-straft-colombia-volledig-af-in-laatste-duel-van-oefencampagne-mbappe-evenaart-bijna-record~adef1029/)
-  > Frankrijk heeft in de Verenigde Staten eenvoudig gewonnen van Colombia. In het laatste duel van de oefencampagne won een sterk B-elftal van Frankrijk...
-- [Test Audi Q3: technisch een flinke stap vooruit](https://www.ad.nl/auto/test-audi-q3-technisch-een-flinke-stap-vooruit~a6e33aeb/)
-  > De nieuwe Audi Q3 getuigt vooral technisch van een inhaalslag. Hij levert nu betere hybride-prestaties. In tegenstelling tot andere landen, is hij in...
-- [Geluksvogel Jasper wint ‘waanzinnig bedrag’ in Miljoenenjacht: ‘Jeetje, wat was je dapper’](https://www.ad.nl/show/geluksvogel-jasper-wint-waanzinnig-bedrag-in-miljoenenjacht-jeetje-wat-was-je-dapper~a85085b9/)
-  > Jasper (28) uit Nijmegen heeft zondagavond met een opvallende tactiek ‘een waanzinnig bedrag’ gewonnen in Miljoenenjacht. De finalist in de SBS6-show...
 
 ### Meest gelezen
 
