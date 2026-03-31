@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-03-2026 om 22:38*
+*Laatst bijgewerkt: 31-03-2026 om 23:38*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [504 vrouwen met voorkeursstemmen in gemeenteraden gekozen](https://nos.nl/l/2608607)
+  > Bij de gemeenteraadsverkiezingen in maart zijn 504 vrouwen met voorkeursstemmen in de nieuwe raden gekozen. Dat heeft de stichting Stem op een Vrouw...
 - [Rechter legt bouw balzaal Witte Huis stil: 'president is niet de eigenaar'](https://nos.nl/l/2608594)
   > President Trump moet binnen veertien dagen de bouw van de balzaal bij het Witte Huis stilleggen. Dat heeft een federale rechter in Washington bepaald...
 - [Autofabrikant Stellantis roept wereldwijd honderdduizenden auto's terug](https://nos.nl/l/2608586)
@@ -16,8 +18,6 @@
   > De Verenigde Naties noemen het uitvoeren van de Israëlische doodstraf in de Palestijnse Gebieden een oorlogsmisdaad, mocht dat gebeuren. Een...
 - [Friese jongen plande aanslag op Vlaams Parlement en vliegbasis](https://nos.nl/l/2608577)
   > De rechtbank in Leeuwarden heeft een minderjarige jongen veroordeeld voor de voorbereiding van terreuraanslagen op het Vlaamse Parlement in Brussel...
-- [Omstreden Hongaarse minister lobbyde om Russen van sanctielijst te halen](https://nos.nl/l/2608576)
-  > De Hongaarse minister van Buitenlandse Zaken, Peter Szijjártó, heeft voor Rusland gelobbyd om Russen en Russische bedrijven van de Europese...
 
 ### Meest gelezen
 
@@ -29,10 +29,10 @@
 
 - [De ultieme WK-gids: op deze dagen speelt Oranje, alle poules en speelsteden op een rijtje](https://www.ad.nl/voetbal/de-ultieme-wk-gids-op-deze-dagen-speelt-oranje-alle-poules-en-speelsteden-op-een-rijtje~ac7fe43a/)
   > Het Nederlands elftal is geplaatst voor het WK van 2026 in de Verenigde Staten, Canada en Mexico! Oranje treft Japan, Tunesië en de winnaar van de...
+- [Tsjechië dankzij PSV-keeper Matej Kovar naar het WK, Turkije grijpt voor het eerst in 24 jaar ticket](https://www.ad.nl/wk-voetbal/tsjechie-dankzij-psv-keeper-matej-kovar-naar-het-wk-turkije-grijpt-voor-het-eerst-in-24-jaar-ticket~a18a004e/)
+  > Tsjechië gaat het voor het eerst in twintig jaar naar het WK. Nadat de wedstrijd in Praag in 2-2 was geëindigd, waren de Tsjechen in de penaltyserie...
 - [Drama compleet voor Italië, dat voor derde WK op rij ontbreekt: Bosnië wint penaltyse­rie met 4-1](https://www.ad.nl/wk-voetbal/drama-compleet-voor-italie-dat-voor-derde-wk-op-rij-ontbreekt-bosnie-wint-penaltyserie-met-4-1~aaddf051/)
   > Bosnië en Herzegovina gaat naar het WK 2026, nadat dinsdagavond in Zenica in de penaltyserie met 4-1 werd gewonnen van Italië. De Italianen ontbreken...
-- [Denemarken mist WK door Tsjechië-held Kovar, Turkije grijpt voor het eerst in 24 jaar ticket](https://www.ad.nl/wk-voetbal/denemarken-mist-wk-door-tsjechie-held-kovar-turkije-grijpt-voor-het-eerst-in-24-jaar-ticket~a18a004e/)
-  > Tsjechië gaat het voor het eerst in 20 jaar naar het WK. Nadat de wedstrijd in 2-2 was geëindigd, waren de Tsjechen in de penaltyserie te sterk voor...
 - [Oranje op rapport | Eén onvoldoende bij strijdend Nederland, hoogste cijfers op het middenveld](https://www.ad.nl/voetbal/oranje-op-rapport-een-onvoldoende-bij-strijdend-nederland-hoogste-cijfers-op-het-middenveld~a85ccb27/)
   > De oefenwedstrijd tegen Ecuador (1-1) werd ontsierd door een rode kaart voor Denzel Dumfries. Op het middenveld van Oranje speelde een duo zich naar...
 - [Musical in de maak van animatiefilm Happy Feet](https://www.ad.nl/show/musical-in-de-maak-van-animatiefilm-happy-feet~a61262f6/)
