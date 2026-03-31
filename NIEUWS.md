@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-03-2026 om 20:49*
+*Laatst bijgewerkt: 31-03-2026 om 21:43*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Rechter legt bouw balzaal Witte Huis stil: 'president is niet de eigenaar'](https://nos.nl/l/2608594)
+  > President Trump moet binnen veertien dagen de bouw van de balzaal bij het Witte Huis stilleggen. Dat heeft een federale rechter in Washington bepaald...
 - [Autofabrikant Stellantis roept wereldwijd honderdduizenden auto's terug](https://nos.nl/l/2608586)
   > Het moederbedrijf van merken als Peugeot, Fiat en Opel roept auto's terug vanwege brandgevaar. In Nederland gaat het om 19.000 auto's van acht...
 - [VN: Israëlische doodstraf in Palestijnse Gebieden zou oorlogsmisdaad zijn](https://nos.nl/l/2608585)
@@ -16,8 +18,6 @@
   > De rechtbank in Leeuwarden heeft een minderjarige jongen veroordeeld voor de voorbereiding van terreuraanslagen op het Vlaamse Parlement in Brussel...
 - [Omstreden Hongaarse minister lobbyde om Russen van sanctielijst te halen](https://nos.nl/l/2608576)
   > De Hongaarse minister van Buitenlandse Zaken, Peter Szijjártó, heeft voor Rusland gelobbyd om Russen en Russische bedrijven van de Europese...
-- [OM eist dat drugskoeriers op Schiphol weer zwaarder worden gestraft](https://nos.nl/l/2608575)
-  > Het Openbaar Ministerie wil dat drugskoeriers op Schiphol voortaan weer zwaarder worden gestraft. Zij komen er nu makkelijker vanaf dan elders in het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Oranje op het WK tegen Zweden: Viktor Gyökeres met late goal de held tegen Polen](https://www.ad.nl/wk-voetbal/oranje-op-het-wk-tegen-zweden-viktor-gyokeres-met-late-goal-de-held-tegen-polen~a6b10d36/)
-  > Oranje gaat op het WK in de tweede poulewedstrijd spelen tegen Zweden. Dankzij een late goal van spits Viktor Gyökeres won Zweden dinsdagavond in...
-- [Turkije na nipte zege op Kosovo voor het eerst in 24 jaar op WK, Tsjechië en Denemarken gaan verlenging in](https://www.ad.nl/wk-voetbal/turkije-na-nipte-zege-op-kosovo-voor-het-eerst-in-24-jaar-op-wk-tsjechie-en-denemarken-gaan-verlenging-in~a18a004e/)
-  > Turkije heeft zich voor het eerst in 24 jaar geplaatst voor het WK door te winnen van Kosovo: 0-1. In een moeizame wedstrijd zorgde spits Kerem...
-- [LIVE WK-kwalificatie | Italië zwaar in de problemen: overleeft tiental Gattuso verlenging in Bosnië?](https://www.ad.nl/wk-voetbal/live-wk-kwalificatie-italie-zwaar-in-de-problemen-overleeft-tiental-gattuso-verlenging-in-bosnie~aaddf051/)
-  > Italië ontbrak op de WK’s van 2018 en 2022. Ook voor het WK van komende zomer is de viervoudig wereldkampioen nog niet zeker. De wedstrijd tegen...
-- [Amerikaanse journaliste ontvoerd in Irak, pro-Iraanse strijder opgepakt](https://www.ad.nl/buitenland/amerikaanse-journaliste-ontvoerd-in-irak-pro-iraanse-strijder-opgepakt~ac528ac3/)
-  > Een pro-Iraanse strijder is opgepakt na de ontvoering van een Amerikaanse journalist in Irak, bevestigt het Amerikaanse ministerie van Buitenlandse...
-- [Grimmig seizoen De Verraders bereikt emotioneel kookpunt: ‘Internationaal nog nooit vertoond’](https://www.ad.nl/show/grimmig-seizoen-de-verraders-bereikt-emotioneel-kookpunt-internationaal-nog-nooit-vertoond~a8448ee6/)
-  > Zelfs presentator Tijl Beckand bemoeit zich met het gekonkel aan de Ronde Tafel van het zesde (reguliere) Verraders-seizoen. De emoties liepen daar...
+- [Denemarken mist WK door Tsjechië-held Kovar, Turkije grijpt voor het eerst in 24 jaar ticket](https://www.ad.nl/wk-voetbal/denemarken-mist-wk-door-tsjechie-held-kovar-turkije-grijpt-voor-het-eerst-in-24-jaar-ticket~a18a004e/)
+  > Tsjechië gaat het voor het eerst in 20 jaar naar het WK. Nadat de wedstrijd in 2-2 was geëindigd, waren de Tsjechen in de penaltyserie te sterk voor...
+- [Drama compleet voor Italië, dat voor derde WK op rij ontbreekt: Bosnië wint penaltyserie en gaat naar VS](https://www.ad.nl/wk-voetbal/drama-compleet-voor-italie-dat-voor-derde-wk-op-rij-ontbreekt-bosnie-wint-penaltyserie-en-gaat-naar-vs~aaddf051/)
+  > Bosnië en Herzegovina gaat naar het WK 2026, nadat dinsdagavond in Zenica in de penaltyserie met 4-1 werd gewonnen van Italië. De Italianen ontbreken...
+- [Oranje op rapport | Eén onvoldoende bij strijdend Nederland, hoogste cijfers op het middenveld](https://www.ad.nl/voetbal/oranje-op-rapport-een-onvoldoende-bij-strijdend-nederland-hoogste-cijfers-op-het-middenveld~a85ccb27/)
+  > De oefenwedstrijd tegen Ecuador (1-1) werd ontsierd door een rode kaart voor Denzel Dumfries. Op het middenveld van Oranje speelde een duo zich naar...
+- [Musical in de maak van animatiefilm Happy Feet](https://www.ad.nl/show/musical-in-de-maak-van-animatiefilm-happy-feet~a61262f6/)
+  > De met een Oscar bekroonde animatiefilm Happy Feet krijgt een musical op Broadway. Het project wordt op dit moment ontwikkeld door regisseur Michael...
+- [WK-ganger Marokko wint oefenwedstrijd van Paraguay](https://www.ad.nl/wk-voetbal/wk-ganger-marokko-wint-oefenwedstrijd-van-paraguay~aa6d8520/)
+  > De voetballers van Marokko hebben in Frankrijk een vriendschappelijke wedstrijd tegen Paraguay gewonnen. De WK-ganger was in Lens met 2-1 te sterk...
 
 ### Meest gelezen
 
