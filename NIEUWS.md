@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-03-2026 om 07:22*
+*Laatst bijgewerkt: 31-03-2026 om 09:06*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Friese gemeenten naar Den Haag voor andere opvang jongeren met complexe zorgvraag](https://nos.nl/l/2608501)
+  > Friese gemeenten en zorgorganisaties bieden de Tweede Kamer vandaag een petitie aan. Ze pleiten daarin voor een andere opvang van kinderen met een...
 - [Cateringdochter KLM aan Zwitserse concurrent verkocht](https://nos.nl/l/2608491)
-  > KLM doet de cateringservice definitief de deur uit. Het onderdeel dat de maaltijden verzocht op de vluchten van KLM wordt overgenomen door de...
+  > KLM doet de cateringservice definitief de deur uit. Het onderdeel dat de maaltijden verzorgt op de vluchten van KLM wordt overgenomen door de...
 - [Recordaantal leerlingen in Friesland maakt dit jaar eindexamen Fries](https://nos.nl/l/2608489)
-  > Meer middelbare scholieren doen dit jaar eindexamen in het vak Fries. Het gaat om tweehonderd leerlingen, terwijl het er vorig jaar minder dan 150...
+  > Meer middelbare scholieren doen dit jaar eindexamen in het vak Fries. Het gaat om 200 leerlingen, terwijl het er vorig jaar minder dan 150 waren. Dat...
 - [Unilever wil fusie voedingsmiddelentak met Amerikaanse specerijenproducent](https://nos.nl/l/2608488)
   > De kans is groot dat Unilever de voedingsmiddelendivisie onderbrengt in een nieuw bedrijf. Dit wordt opgericht met de Amerikaanse specerijenproducent...
 - [Topman Air Canada stapt op omdat hij geen Frans spreekt](https://nos.nl/l/2608485)
   > Michael Rousseau, de topman van vliegtuigmaatschappij Air Canada, heeft aangekondigd aan het eind van dit jaar te vertrekken. Hij doet dat vanwege...
-- [Inflatie loopt weer op door oorlog Midden-Oosten, vooral tanken duurder](https://nos.nl/l/2608481)
-  > De inflatie loopt deze maand weer op. Uit de eerste berekening van het Centraal Bureau voor de Statistiek blijkt dat de inflatie in de maand maart...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Titelgevecht Glory: Mory Kromah volgde Rico Verhoeven op en verdedigt in juni voor het eerst zijn titel](https://www.ad.nl/vechtsport/titelgevecht-glory-mory-kromah-volgde-rico-verhoeven-op-en-verdedigt-in-juni-voor-het-eerst-zijn-titel~af1fe7c5/)
-  > Mory Kromah, de opvolger van Rico Verhoeven als wereldkampioen in de zwaargewichtdivisie van Glory, gaat voor het eerst zijn titel verdedigen. In een...
-- [Nieuwe behandeling geeft mannen met uitgezaaide prostaatkanker veel beter vooruitzicht](https://www.ad.nl/binnenland/nieuwe-behandeling-geeft-mannen-met-uitgezaaide-prostaatkanker-veel-beter-vooruitzicht~a695e66a/)
-  > Er is hoop voor mannen met uitgezaaide prostaatkanker: ze krijgen veel betere vooruitzichten dankzij een nieuwe behandeling. Een speciale manier van...
-- [Ghana zet bondscoach 72 dagen voor begin WK voetbal op straat](https://www.ad.nl/wk-voetbal/ghana-zet-bondscoach-72-dagen-voor-begin-wk-voetbal-op-straat~a410641c/)
-  > Ghana heeft 72 dagen voor de aftrap van het WK voetbal bondscoach Otto Addo ontslagen. De Ghanese bond maakte het besluit bekend enkele uren na de...
-- [Meer meldingen van eerwraak, een op de drie zaken bij Syriërs: ‘Zorgwekkend’](https://www.ad.nl/binnenland/meer-meldingen-van-eerwraak-een-op-de-drie-zaken-bij-syriers-zorgwekkend~a087139f/)
-  > De politie registreerde vorig jaar meer geweldszaken waarbij eer mogelijk een rol speelde dan het jaar daarvoor. Het Landelijk Expertise Centrum Eer...
-- [Indonesië sleept Meta en Google voor rechter voor schending socialemediaverbod, ook waakhond Australië doet onderzoek](https://www.ad.nl/buitenland/indonesie-sleept-meta-en-google-voor-rechter-voor-schending-socialemediaverbod-ook-waakhond-australie-doet-onderzoek~ae2de582/)
-  > De Australische internetwaakhond eSafety gaat onderzoeken of grote socialemediabedrijven zich wel aan het socialemediaverbod houden dat sinds eind...
+- [Hard, intens, gemeen: daarom is Ecuador vanavond de ideale WK-test voor Oranje](https://www.ad.nl/voetbal/hard-intens-gemeen-daarom-is-ecuador-vanavond-de-ideale-wk-test-voor-oranje~a91019a5/)
+  > De wave zal vanavond ongetwijfeld door het stadion gaan bij een oefenwedstrijd van Oranje. Maar of het op het veld ook gezellig zal zijn? Ecuador...
+- [Curaçao oefent in aanloop naar WK-debuut tegen Australië](https://www.ad.nl/wk-voetbal/curacao-oefent-in-aanloop-naar-wk-debuut-tegen-australie~a15ea331/)
+  > Curaçao speelt om 11.10 uur het tweede oefenduel van deze interlandperiode. Afgelopen vrijdag was China met 2-0 te sterk bij het debuut van...
+- [Is dit straks buitenspel? Canada lanceert dit weekend project van Arsène Wenger: ‘Dit is een belangrijke test’](https://www.ad.nl/voetbal/is-dit-straks-buitenspel-canada-lanceert-dit-weekend-project-van-arsene-wenger-dit-is-een-belangrijke-test~a83f39491/)
+  > Buitenspel op een teenlengte? Dat kan binnenkort verleden tijd zijn. In de Canadese competitie wordt vanaf komend weekend getest met een...
+- [Opinie: ‘Als het Rijk dat echt wil, is de Noordzeekust snel veilig’](https://www.ad.nl/praat-mee/opinie-als-het-rijk-dat-echt-wil-is-de-noordzeekust-snel-veilig~af601a71/)
+  > De Noordzeekust is kwestbaar. Een Russisch schip hoeft maar een kabel te beschadigen en er is een probleem. De maritieme industrie heeft oplossingen...
+- [Britse vrouw heeft seks met eeneiige tweeling en raakt zwanger, maar weet nu niet wie de vader is](https://www.ad.nl/buitenland/britse-vrouw-heeft-seks-met-eeneiige-tweeling-en-raakt-zwanger-maar-weet-nu-niet-wie-de-vader-is~ab1a3f27/)
+  > Een Britse moeder is hard van de roze wolk gevallen nadat ze bevallen was. Ze weet niet wie de biologische vader is van haar baby. De vrouw had...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Unilever: verkoop voedingstak aan McCormick mogelijk vandaag al rond](https://fd.nl/bedrijfsleven/1591782/unilever-in-vergevorderde-gesprekken-met-mccormick-over-verkoop-voedingstak)
-  > Het streven is dat de voedingstak, bekend van Knorr-bouillon en Hellmann’s-mayonaise, zal fuseren met de Amerikaanse sauzenmaker.
-- [Moderne slavernij](https://fd.nl/samenleving/1591346/moderne-slavernij)
-  > Vrijheid zit niet in nietsdoen of niemand nodig hebben, maar in het vermogen je ergens aan te verbinden, betoogt Femmetje de Wind.
-- [Strakke woning in Mondriaan-stijl](https://fd.nl/samenleving/1591345/strakke-woning-in-mondriaan-stijl)
-  > Modern huis in Vessem. ‘De blokken en vlakken, het kleurenschema. Het past binnen de stroming waar naast Rietveld ook Piet Mondriaan deel van...
-- [Omzet Onward Medical lager dan verwacht](https://fd.nl/financiele-markten/1591781/omzet-onward-medical-lager-dan-verwacht)
-  > De producent van medische apparaten verkocht vorig jaar 117 ruggenmergstimulatoren, maar had gehoopt er zeker 175 te verkopen.
-- [‘Broker van minister Hegseth wilde miljoenen in defensiefonds steken vlak voor Iran-oorlog’](https://fd.nl/politiek/1591727/broker-van-minister-hegseth-wilde-miljoenen-in-defensiefonds-steken-vlak-voor-iran-oorlog)
-  > De effectenmakelaar van Hegseth bij Morgan Stanley nam in februari contact op met vermogensbeheerder BlackRock voor een investering in diens Defense...
+- [Oorlogstijd vraagt om toegankelijke antibiotica](https://fd.nl/opinie/1591343/oorlogstijd-vraagt-om-toegankelijke-antibiotica)
+  > Onze resistentie tegen antibiotica groeit al jaren, maar vormt nu een extra gevaar vanwege wereldwijde conflicten. Voor grote farmaceuten moet het...
+- [Hoe het haasje hupt](https://fd.nl/financiele-markten/1591786/hoe-het-haasje-hupt)
+  > De waarde van bedrijven zit nu voor 92% in zaken die je niet kunt aanraken of optellen en ook niet terugvindt op een balans. Analisten zitten er dan...
+- [Wat kunnen we doen tegen huiselijk geweld?](https://fd.nl/samenleving/1591443/wat-kunnen-we-doen-tegen-huiselijk-geweld)
+  > Blijf Groep-directielid Leonie Hutten en VVD-raadslid in Rotterdam Erik Verheij zien beiden winst in meer aandacht voor de pleger van huiselijk...
+- [Topman Air Canada stapt op na ophef over condoleancevideo](https://fd.nl/bedrijfsleven/1591785/topman-air-canada-stapt-op-na-ophef-over-condoleancevideo)
+  > Het gebrekkige Frans van ceo Michael Rousseau leverde hem kritiek op in de Franstalige staat Quebec, waar de luchtvaartmaatschappij is gevestigd.
+- [KLM verkoopt meerderheidsbelang cateringtak aan Gategroup](https://fd.nl/bedrijfsleven/1591783/klm-verkoopt-meerderheidsbelang-cateringtak-aan-gategroup)
+  > De luchtvaartmaatschappij houdt nog wel een aandeel van 25% in de KLM Catering Services. Banen blijven volgens KLM behouden.
 
 ### Meest gelezen
 
