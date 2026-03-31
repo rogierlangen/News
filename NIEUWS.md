@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-03-2026 om 11:55*
+*Laatst bijgewerkt: 31-03-2026 om 13:45*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Politiek bezorgd over VS-wapens voor Oekraïne die mogelijk naar Midden-Oosten gaan](https://nos.nl/l/2608542)
+  > De Tweede Kamer en het kabinet zijn bezorgd of Oekraïne wel de beloofde Amerikaanse wapens krijgt om de strijd tegen Rusland vol te houden. De vrees...
+- [Wolf valt vrouw aan in winkelstraat Hamburg](https://nos.nl/l/2608535)
+  > In Duitsland heeft voor het eerst in decennia een wolf een mens aangevallen. Dat gebeurde niet in een bos, op de heide of in een weiland, maar in...
+- [Podcast De Dag: Trumps oorlogskabinet](https://nos.nl/l/2608533)
+  > Terwijl president Trump spreekt over volgens hem 'uitstekende' onderhandelingen met Iran, gaat het bombarderen onverminderd door en zijn er...
+- [Calvé, Cup A Soup en Hellmans van Unilever worden Amerikaans, kans op beursnotering in Nederland](https://nos.nl/l/2608532)
+  > Unilever neemt definitief afscheid van producten als Calvé, Cup A Soup en Hellmans-mayonaise. Het concern brengt de divisie met voedingsmiddelen...
 - [Geen explosieven gevonden na melding over pakketje bij gevangenis Zaanstad](https://nos.nl/l/2608525)
   > De politie is vanochtend groot uitgerukt na een melding van een verdacht pakketje op de parkeerplaats van de gevangenis in Zaanstad. Inmiddels is...
-- [Virale video over rattenplaag leidt tot sluiting van horecazaak](https://nos.nl/l/2608523)
-  > De Nederlandse Voedsel- en Warenautoriteit heeft dit weekend een horecazaak in Noord-Holland gesloten vanwege een enorme rattenplaag. Aanleiding voor...
-- [Paramilitaire RSF zet seksueel geweld systematisch in als wapen in Darfur, ziet AzG](https://nos.nl/l/2608521)
-  > Duizenden vrouwen in de Sudanese regio Darfur zijn slachtoffer van systematisch seksueel geweld. Dat concludeert de internationale tak van Artsen...
-- [Justitie vervolgt agent die op automobilist schoot in Leeuwarden](https://nos.nl/l/2608520)
-  > Een politieagent die begin 2024 een kogel op een automobilist afvuurde in Leeuwarden, wordt daarvoor vervolgd. Dat meldt het Openbaar Ministerie. Het...
-- [Tienduizenden Groningers kampen met angst en depressie door aardbevingen](https://nos.nl/l/2608518)
-  > De aardbevingen in Groningen leiden bij tienduizenden mensen in de provincie tot angst, depressie en rusteloosheid, blijkt uit onderzoek van het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Iran slaat toe met voltreffer in Saoedi-Arabië, cruciaal radarvliegtuig VS vernietigd: ‘Een zware klap’](https://www.ad.nl/buitenland/iran-slaat-toe-met-voltreffer-in-saoedi-arabie-cruciaal-radarvliegtuig-vs-vernietigd-een-zware-klap~acfb84ce/)
-  > Iran heeft de Amerikaanse luchtverdediging in het Midden-Oosten een zware klap toegediend. Bij de aanval op een luchtmachtbasis in Saoedi-Arabië,...
-- [Madonna en tientallen andere sterren roepen op tot sluiting van detentiecentrum ICE](https://www.ad.nl/buitenland/madonna-en-tientallen-andere-sterren-roepen-op-tot-sluiting-van-detentiecentrum-ice~ae67dd9c/)
-  > Madonna, Pedro Pascal, Jane Fonda, Ben Stiller, John Legend en tientallen andere sterren hebben een brief ondertekend waarin wordt opgeroepen tot het...
-- [Waarom Unilever zijn oer-Hollandse Calvé wil verkopen en wat dat betekent voor onze pot pindakaas](https://www.ad.nl/economie/waarom-unilever-zijn-oer-hollandse-calve-wil-verkopen-en-wat-dat-betekent-voor-onze-pot-pindakaas~a48ca2f3/)
-  > Unilever is in vergevorderde gesprekken met het Amerikaanse sauzenbedrijf McCormick om zijn voedingsdivisie te verkopen. Mogelijk komt de deal deze...
-- [Bosnië hoopt weer op Edin Dzeko, die niet vreest voor Italië: ‘Ze hebben geen Totti of Del Piero meer’](https://www.ad.nl/wk-voetbal/bosnie-hoopt-weer-op-edin-dzeko-die-niet-vreest-voor-italie-ze-hebben-geen-totti-of-del-piero-meer~accc504b/)
-  > Italië wil niet voor het derde WK op rij ontbreken, maar de viervoudig wereldkampioen wacht vanavond een zware klus in Zenica. Daar moet worden...
-- [Jan heeft ‘dikke vette pech’ en trotse Danny showt zijn nieuwe auto](https://www.ad.nl/show/jan-heeft-dikke-vette-pech-en-trotse-danny-showt-zijn-nieuwe-auto~a323eb22/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Polen kennen we, maar wat weten we van Zweden als mogelijke tegenstander van Oranje op het WK?](https://www.ad.nl/wk-voetbal/polen-kennen-we-maar-wat-weten-we-van-zweden-als-mogelijke-tegenstander-van-oranje-op-het-wk~ac6db294/)
+  > Het Nederlands elftal speelt vanavond tegen Ecuador, maar op de bank bij Oranje zal er ook met interesse worden gekeken naar het resultaat bij Zweden...
+- [SBS 6 haalt I’ve got the music in me per direct van de zaterdagavond](https://www.ad.nl/show/sbs-6-haalt-ive-got-the-music-in-me-per-direct-van-de-zaterdagavond~adae8d91/)
+  > Zendergroep Talpa heeft besloten om het muzikale spelprogramma I’ve got the music in me, gepresenteerd door Johnny de Mol, voorlopig uit de...
+- [De Roy van Zuydewijn blijft weg bij rechtszaak die hij zelf begon over nieuwe serie Mabel & Margarita](https://www.ad.nl/show/de-roy-van-zuydewijn-blijft-weg-bij-rechtszaak-die-hij-zelf-begon-over-nieuwe-serie-mabel-en-margarita~af6ac3e6/)
+  > Edwin de Roy van Zuydewijn (59) is dinsdagmiddag niet aanwezig bij de rechtbank in Lelystad. Daar buigt een rechter zich over zijn verzoek om inzage...
+- [Bultrugwalvis Timmy bij Duitse kust tóch weer gestrand](https://www.ad.nl/buitenland/bultrugwalvis-timmy-bij-duitse-kust-toch-weer-gestrand~a79dbd3c/)
+  > De bultrug die voor de Duitse kust werd gespot, is toch weer gestrand. Maandag werd bericht dat de walvis zichzelf had bevrijd en naar open zee was...
+- [Het moest supersnel want het was 'totaal illegaal': foto uit 1973 duikt elke keer weer op](https://www.ad.nl/binnenland/het-moest-supersnel-want-het-was-totaal-illegaal-foto-uit-1973-duikt-elke-keer-weer-op~a0734668/)
+  > Sommige foto’s blijven steeds weer terugkomen. Zoals de foto van de eerste autoloze zondag in 1973, gemaakt door fotograaf Louis Drent. Die wordt...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Groei online aankopen is na jaren voorbij](https://fd.nl/bedrijfsleven/1591737/online-aankopen-krimpen-na-jaren-van-groei)
-  > Vorig jaar steeg de online omzet uit producten onvoldoende om de terugval in diensten te compenseren.
-- [Aantal banen bij overheid fors gegroeid](https://fd.nl/politiek/1591792/aantal-banen-bij-overheid-fors-gegroeid)
-  > In vijf jaar tijd kwamen er bijna 100.000 overheidsbanen bij. Opeenvolgende kabinetten pleitten juist voor een kleiner ambtenarenapparaat, net als...
-- [Iran-oorlog raakt Vopak direct, toch deert het beleggers niet](https://fd.nl/financiele-markten/1591452/iran-oorlog-raakt-vopak-direct-toch-deert-het-beleggers-niet)
-  > Enkele opslagtanks van de Rotterdamse onderneming liggen in oorlogsgebied. De bezettingsgraad van Vopak-tanks blijft niettemin hoog, verwachten...
-- [Skincare voor mannen is niet meer weg te denken](https://fd.nl/samenleving/1591377/skincare-voor-mannen-is-niet-meer-weg-te-denken)
-  > Het gaat goed met de Nederlandse man en zijn huidverzorging. Crèmes en serums zijn nu een middel om er tot op hoge leeftijd fit en energiek uit te...
-- [Brussel heeft ‘zorgen’ over staatssteun voor Franse kerncentrales](https://fd.nl/politiek/1591735/brussel-heeft-zorgen-over-staatssteun-voor-franse-kerncentrales)
-  > Frankrijk wil tot 2044 zes atoomcentrales bouwen. Brussel vraagt zich af of financiële overheidssteun indirect de marktmacht van energiebedrijf EDF...
+- [Nasdaq sorteert voor op megabeursgangen met versoepeling indexregels](https://fd.nl/financiele-markten/1591750/nasdaq-sorteert-voor-op-megabeursgangen-met-versoepeling-indexregels)
+  > Bedrijven moeten na een beursgang op Nasdaq minstens drie maanden wachten voordat ze in de hoofdindex kunnen worden opgenomen. De Amerikaanse...
+- [Pon boekt ‘stabiele’ jaaromzet en ‘gezonde’ winst](https://fd.nl/bedrijfsleven/1591796/pon-boekt-stabiele-jaaromzet-en-gezonde-winst)
+  > De autodealer en fietsenproducent rekent opnieuw op uitdagende marktomstandigheden, maar verwacht die ook dit jaar goed door te kunnen komen.
+- [Novo Nordisk verlaagt prijs van Wegovy](https://fd.nl/financiele-markten/1591745/novo-nordisk-verlaagt-prijs-van-wegovy)
+  > Patiënten kunnen zich vanaf nu op het afslankmiddel abonneren.
+- [Brussel noemt dieselmaatregel van Slowakije ‘discriminerend en onwettig’](https://fd.nl/politiek/1591797/brussel-noemt-dieselmaatregel-van-slowakije-discriminerend-en-onwettig)
+  > Buitenlandse automobilisten betalen een hogere prijs aan de pomp dan Slowaken. De Europese Commissie heeft Bratislava hierover aangeschreven.
+- [Buitenlandse centrale banken verkopen Amerikaans schuldpapier na start Iran-oorlog](https://fd.nl/financiele-markten/1591793/buitenlandse-centrale-banken-verkopen-amerikaans-schuldpapier-na-start-iran-oorlog)
+  > Door een verkoopgolf in maart staan de buitenlandse obligatieportefeuilles bij de New York Fed op het laagste punt sinds 2012.
 
 ### Meest gelezen
 
