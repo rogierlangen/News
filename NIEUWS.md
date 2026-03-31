@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-03-2026 om 15:06*
+*Laatst bijgewerkt: 31-03-2026 om 17:03*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Ex-man van prinses Margarita wil inzage in script van 'Mabel & Margarita'](https://nos.nl/l/2608566)
+  > De rechtbank van Lelystad buigt zich over de zaak van Edwin de Roy van Zuydewijn tegen RTL en Videoland. De voormalige echtgenoot van prinses...
+- [Doorberekenen of niet? Dure brandstof dwingt ondernemers tot keuzes](https://nos.nl/l/2608565)
+  > De inflatie loopt op, maakte het Centraal Bureau voor de Statistiek vanochtend bekend. De grootste oorzaak van de stijging van het prijspeil zijn de...
+- [Groepje peuters jaren na evacuatie herenigd met hun ouders in Gaza](https://nos.nl/l/2608562)
+  > Zo'n tien peuters, die als pasgeboren baby vanuit Gaza naar Egypte zijn geëvacueerd, zijn na bijna 2,5 jaar herenigd met hun familie. Met een bus...
+- [Herstemming Gorinchem 'laat zien dat systeem werkt', maar 'het moet niet te vaak gebeuren'](https://nos.nl/l/2608555)
+  > Bewoners van Gorinchem kunnen opnieuw naar de stembus, omdat de gemeenteraad vermoedt dat er verkiezingsfraude is gepleegd met volmachten. Volledige...
 - [Celstraf van 10 maanden voor man die Douwe Bob bedreigde](https://nos.nl/l/2608548)
   > De rechtbank in Utrecht heeft een 39-jarige man uit Amsterdam veroordeeld tot tien maanden cel, waarvan drie voorwaardelijk, voor het bedreigen van...
-- [Overleden vrouw bij station Nieuw-Vennep slachtoffer van misdrijf](https://nos.nl/l/2608543)
-  > De overleden persoon die gisteravond werd gevonden op een parkeerterrein bij station Nieuw-Vennep is door een misdrijf om het leven gekomen. Dat...
-- [Politiek bezorgd over VS-wapens voor Oekraïne die mogelijk naar Midden-Oosten gaan](https://nos.nl/l/2608542)
-  > De Tweede Kamer en het kabinet zijn bezorgd of Oekraïne wel de beloofde Amerikaanse wapens krijgt om de strijd tegen Rusland vol te houden. De vrees...
-- [Wolf valt vrouw aan in winkelstraat Hamburg](https://nos.nl/l/2608535)
-  > In Duitsland heeft voor het eerst in decennia een wolf een mens aangevallen. Dat gebeurde niet in een bos, op de heide of in een weiland, maar in...
-- [Podcast De Dag: Trumps oorlogskabinet](https://nos.nl/l/2608533)
-  > Terwijl president Trump spreekt over volgens hem 'uitstekende' onderhandelingen met Iran, gaat het bombarderen onverminderd door en zijn er...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Feyenoord zegt contract Gernot Trauner (34) officieel op](https://www.ad.nl/voetbal/feyenoord-zegt-contract-gernot-trauner-34-officieel-op~a2e920c3/)
-  > Feyenoord heeft formeel de samenwerking met Gernot Trauner opgezegd. De 34-jarige verdediger beschikt over een aflopend contract in Rotterdam, dat...
-- [Wat doe jij om je brandstofverbruik te verlagen? Meld het ons!](https://www.ad.nl/home/wat-doe-jij-om-je-brandstofverbruik-te-verlagen-meld-het-ons~a5a69829/)
-  > De benzine en diesel worden duur betaald deze dagen. En nu roept Europa ons ook op: verlaag het brandstofverbruik! Voor een verhaal op deze site zijn...
-- [FIFA-baas Gianni Infantino claimt dat Iran meedoet aan WK, maar wil duels niet verplaatsen naar Mexico](https://www.ad.nl/wk-voetbal/fifa-baas-gianni-infantino-claimt-dat-iran-meedoet-aan-wk-maar-wil-duels-niet-verplaatsen-naar-mexico~a91348da/)
-  > Gianni Infantino claimt dat Iran definitief meedoet aan het WK voetbal van komende zomer. Dat zei de FIFA-voorzitter dinsdagmiddag tijdens een...
-- [Schadelijk benzeen kan via gasfornuis onze huizen binnenkomen: hoe gevaarlijk is dat?](https://www.ad.nl/wonen/schadelijk-benzeen-kan-via-gasfornuis-onze-huizen-binnenkomen-hoe-gevaarlijk-is-dat~a75a6261/)
-  > Uit gasfornuizen kan de kankerverwekkende stof benzeen lekken, zelfs als het fornuis niet wordt gebruikt. Dat ontdekten Amerikaanse wetenschappers...
-- [Markuszower wil dat rechtse fracties ‘op termijn’ fuseren](https://www.ad.nl/politiek/markuszower-wil-dat-rechtse-fracties-op-termijn-fuseren~a7f3fcf1/)
-  > Na het vertrek van Mona Keijzer bij de BBB zijn er zes fracties rechts van de VVD in de Tweede Kamer. Te veel, vindt Gidi Markuszower. Om die...
+- [Leuk of niet: we moeten op de rem trappen](https://www.ad.nl/commentaar/leuk-of-niet-we-moeten-op-de-rem-trappen~ac7834c0/)
+  > Of we het leuk vinden of niet: we moeten snel op de rem trappen als het gaat om ons brandstofverbruik. Want die oproep van de Europese Commissie komt...
+- [We kunnen (her)tellen tot we erbij neervallen, maar uitslag klopt misschien nooit helemaal](https://www.ad.nl/binnenland/we-kunnen-her-tellen-tot-we-erbij-neervallen-maar-uitslag-klopt-misschien-nooit-helemaal~a0ce246c/)
+  > In minstens twee gemeenten in Nederland zorgt een hertelling ervoor dat een raadszetel plots naar een andere partij gaat. Als er zoveel verandert bij...
+- [25 spelers in onzekerheid thuis, ook Heracles stelt rechtsgeldigheid van wedstrijden ter discussie](https://www.ad.nl/voetbal/25-spelers-in-onzekerheid-thuis-ook-heracles-stelt-rechtsgeldigheid-van-wedstrijden-ter-discussie~aa257289/)
+  > Terwijl de KNVB de eenheid probeert te bewaken, zijn meer clubs sceptisch en kritisch over de gevolgen van paspoortgate. Naast NAC heeft nu ook...
+- [‘Zolang ik dood ermee krijg’: seriemoordenaar Sendric S. schokte Nederland, nu komt hij voor de rechter](https://www.ad.nl/binnenland/zolang-ik-dood-ermee-krijg-seriemoordenaar-sendric-s-schokte-nederland-nu-komt-hij-voor-de-rechter~a9b6891f/)
+  > Seriemoordenaar Sendric S. (25) schokte Nederland door drie willekeurige Rotterdammers van achteren dood te schieten. Deze week staat hij voor de...
+- [Hoe je aan kaartjes voor Céline Dion kunt komen: schrijf je nu al in](https://www.ad.nl/show/hoe-je-aan-kaartjes-voor-celine-dion-kunt-komen-schrijf-je-nu-al-in~a9385180/)
+  > Fans over de hele wereld zijn in extase na de mededeling dat Céline Dion komend najaar terugkeert op het podium. De Canadese zangeres was vanwege...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Oude bekende wordt nieuwe directeur Jumbo België](https://fd.nl/bedrijfsleven/1591805/oude-bekende-wordt-nieuwe-directeur-jumbo-belgie)
+  > Voormalig sales-directeur en franchiser Anrico Maat moet verdere groei voor de supermarktketen aanjagen.
+- [VVD en JA21 boos over uitstel opname ‘bedrag ineens’ uit pensioenpot](https://fd.nl/politiek/1591759/vvd-en-ja21-boos-over-uitstel-opname-bedrag-ineens-uit-pensioenpot)
+  > Het kabinet-Jetten heeft de ingangsdatum voor het plan in één klap uitgesteld van deze zomer naar 2029. Dat tijdstip was al meerdere keren...
+- [BBB zet Eerste Kamerlid uit fractie, houdt nu elf senaatszetels over](https://fd.nl/politiek/1591804/bbb-zet-eerste-kamerlid-uit-fractie-houdt-nu-elf-senaatszetels-over)
+  > Senator Robert van Gasteren besluit later deze week of hij zijn zetel houdt of toch vertrekt uit de Eerste Kamer.
 - [Kamer wil versobering youngtimerregeling deels terugdraaien](https://fd.nl/politiek/1591756/kamer-wil-versobering-youngtimerregeling-deels-terugdraaien)
   > Het belastingvoordeel voor zakelijke rijders van auto’s tussen de 15 en 25 jaar zou volgend jaar eigenlijk geheel verdwijnen.
 - [Speciale aanblijfbonus AkzoNobel wekt opnieuw onvrede bij beleggers](https://fd.nl/financiele-markten/1591753/speciale-aanblijfbonus-akzonobel-wekt-opnieuw-onvrede-bij-beleggers)
   > Het verfconcern wil financieel directeur Maarten de Vries een bonus van €750.000 in contanten toekennen, nu hij langer aanblijft om de fusie met...
-- [De nieuwe burgemeester die van Parijs weer een bewoonbare stad wil maken](https://fd.nl/politiek/1591731/de-nieuwe-burgemeester-die-van-parijs-weer-een-bewoonbare-stad-wil-maken)
-  > De nieuwe, linkse burgemeester Emmanuel Grégoire wil van Parijs weer een stad maken waarin mensen wonen. Effectief beleid moet de opkomst van...
-- [‘AI verhoogt niet alleen de productiviteit, ook de werkdruk neemt toe’](https://fd.nl/economie/1591732/ai-verhoogt-niet-alleen-de-productiviteit-ook-de-werkdruk-neemt-toe)
-  > De ‘slimme’ technieken verhogen de productiviteit, maar zorgen er ook voor dat werknemers meer werk gaan doen, zo blijkt uit onderzoek.
-- [Nvidia investeert miljarden in branchegenoot Marvell Technology](https://fd.nl/financiele-markten/1591751/nvidia-investeert-miljarden-in-branchegenoot-marvell-technology)
-  > De bekende Amerikaanse chipmaker zoekt samenwerking met Marvell Technology.
 
 ### Meest gelezen
 
