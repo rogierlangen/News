@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-03-2026 om 05:13*
+*Laatst bijgewerkt: 31-03-2026 om 07:22*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Cateringdochter KLM aan Zwitserse concurrent verkocht](https://nos.nl/l/2608491)
+  > KLM doet de cateringservice definitief de deur uit. Het onderdeel dat de maaltijden verzocht op de vluchten van KLM wordt overgenomen door de...
+- [Recordaantal leerlingen in Friesland maakt dit jaar eindexamen Fries](https://nos.nl/l/2608489)
+  > Meer middelbare scholieren doen dit jaar eindexamen in het vak Fries. Het gaat om tweehonderd leerlingen, terwijl het er vorig jaar minder dan 150...
+- [Unilever wil fusie voedingsmiddelentak met Amerikaanse specerijenproducent](https://nos.nl/l/2608488)
+  > De kans is groot dat Unilever de voedingsmiddelendivisie onderbrengt in een nieuw bedrijf. Dit wordt opgericht met de Amerikaanse specerijenproducent...
+- [Topman Air Canada stapt op omdat hij geen Frans spreekt](https://nos.nl/l/2608485)
+  > Michael Rousseau, de topman van vliegtuigmaatschappij Air Canada, heeft aangekondigd aan het eind van dit jaar te vertrekken. Hij doet dat vanwege...
 - [Inflatie loopt weer op door oorlog Midden-Oosten, vooral tanken duurder](https://nos.nl/l/2608481)
   > De inflatie loopt deze maand weer op. Uit de eerste berekening van het Centraal Bureau voor de Statistiek blijkt dat de inflatie in de maand maart...
-- [Meer meldingen van geweld om familie-eer, een derde uit Syrische gemeenschap](https://nos.nl/l/2608480)
-  > Er worden vaker meldingen gedaan van geweldsincidenten waarbij het schenden van de familie-eer het motief is. Dat blijkt uit een jaarlijks rapport...
-- [Wekdienst 31/03: Amsterdam staat stil bij 25 jaar homohuwelijk • Hoger beroep tegen Richard R.](https://nos.nl/l/2608479)
-  > Goedemorgen! Het gerechtshof in Amsterdam doet uitspraak in de strafzaak tegen Richard R, die volgens de rechtbank samenwerkte met Taghi. En...
-- [Gestrande bultrug zwemt weer in Oostzee, maar heeft nog lange weg te gaan](https://nos.nl/l/2608475)
-  > Het is de verzwakte bultrug gelukt om los te komen uit het ondiepe water bij de Duitse stad Wismar. Het zoogdier was zaterdag voor de derde keer...
-- [Tientallen doden in Haïti bij aanval op dorpen door bendes](https://nos.nl/l/2608474)
-  > In het westen van Haïti hebben bendes opnieuw een bloedige aanval uitgevoerd. Volgens een mensenrechtenorganisatie zijn er ruim 70 mensen gedood. Dat...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Soy Kroon en Thomas Cammaert in het verzet: ‘Rauwe fantasietrip voor het publiek’](https://www.ad.nl/show/soy-kroon-en-thomas-cammaert-in-het-verzet-rauwe-fantasietrip-voor-het-publiek~aa998bbe4/)
-  > Acteurs en goede vrienden Soy Kroon en Thomas Cammaert staan, na het overweldigende succes afgelopen jaren van Trompettist in Auschwitz, opnieuw...
-- [Gedragen voetbalshirts voor tienduizenden euro’s: ‘Grasvlekken, geur, roem: alles zit er nog aan’](https://www.ad.nl/voetbal/gedragen-voetbalshirts-voor-tienduizenden-euros-grasvlekken-geur-roem-alles-zit-er-nog-aan~a2b6ee93/)
-  > Het schaatspak van Jutta Leerdam, een wedstrijdshirt van Johan Cruijff en gedragen, bezwete shirts uit de laatste Champions Leaguefinale:...
-- [Technische experts van EU al al twee weken niet toegelaten tot beschadigde Droezjba-pijpleiding](https://www.ad.nl/buitenland/technische-experts-van-eu-al-al-twee-weken-niet-toegelaten-tot-beschadigde-droezjba-pijpleiding~adfb97be/)
-  > Een team van technische experts van de Europese Commissie wordt in Oekraïne al twee weken lang niet toegelaten tot de beschadigde...
-- [Inflatie stijgt naar 2,7 procent in maart door hogere energieprijzen](https://www.ad.nl/binnenland/inflatie-stijgt-naar-2-7-procent-in-maart-door-hogere-energieprijzen~a8d423b5/)
-  > Het dagelijks leven in Nederland is in maart 2,7 procent duurder geworden dan een jaar eerder, meldt het Centraal Bureau voor de Statistiek (CBS) op...
-- [Trump wil einde van oorlog, ook zonder opening Straat van Hormuz, grote bomaanval op munitiedepot Iran](https://www.ad.nl/buitenland/trump-wil-einde-van-oorlog-ook-zonder-opening-straat-van-hormuz-grote-bomaanval-op-munitiedepot-iran~ac528ac3/)
-  > Donald Trump wil graag dat de oorlog met Iran eindigt, melden bronnen aan The Wall Street Journal. Hij zou daarom welwillend zijn om de Amerikaanse...
+- [Titelgevecht Glory: Mory Kromah volgde Rico Verhoeven op en verdedigt in juni voor het eerst zijn titel](https://www.ad.nl/vechtsport/titelgevecht-glory-mory-kromah-volgde-rico-verhoeven-op-en-verdedigt-in-juni-voor-het-eerst-zijn-titel~af1fe7c5/)
+  > Mory Kromah, de opvolger van Rico Verhoeven als wereldkampioen in de zwaargewichtdivisie van Glory, gaat voor het eerst zijn titel verdedigen. In een...
+- [Nieuwe behandeling geeft mannen met uitgezaaide prostaatkanker veel beter vooruitzicht](https://www.ad.nl/binnenland/nieuwe-behandeling-geeft-mannen-met-uitgezaaide-prostaatkanker-veel-beter-vooruitzicht~a695e66a/)
+  > Er is hoop voor mannen met uitgezaaide prostaatkanker: ze krijgen veel betere vooruitzichten dankzij een nieuwe behandeling. Een speciale manier van...
+- [Ghana zet bondscoach 72 dagen voor begin WK voetbal op straat](https://www.ad.nl/wk-voetbal/ghana-zet-bondscoach-72-dagen-voor-begin-wk-voetbal-op-straat~a410641c/)
+  > Ghana heeft 72 dagen voor de aftrap van het WK voetbal bondscoach Otto Addo ontslagen. De Ghanese bond maakte het besluit bekend enkele uren na de...
+- [Meer meldingen van eerwraak, een op de drie zaken bij Syriërs: ‘Zorgwekkend’](https://www.ad.nl/binnenland/meer-meldingen-van-eerwraak-een-op-de-drie-zaken-bij-syriers-zorgwekkend~a087139f/)
+  > De politie registreerde vorig jaar meer geweldszaken waarbij eer mogelijk een rol speelde dan het jaar daarvoor. Het Landelijk Expertise Centrum Eer...
+- [Indonesië sleept Meta en Google voor rechter voor schending socialemediaverbod, ook waakhond Australië doet onderzoek](https://www.ad.nl/buitenland/indonesie-sleept-meta-en-google-voor-rechter-voor-schending-socialemediaverbod-ook-waakhond-australie-doet-onderzoek~ae2de582/)
+  > De Australische internetwaakhond eSafety gaat onderzoeken of grote socialemediabedrijven zich wel aan het socialemediaverbod houden dat sinds eind...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Live: ‘Het was me het maandje wel!’](https://fd.nl/financiele-markten/1591678/live-het-was-me-het-maandje-wel)
-  > De inflatie over de maand maart is op basis van voorlopige cijfers licht gestegen tot 2,7%. De olieprijs daalt tot ruim onder de $110 per vat.
-- [Lichte stijging inflatie in maart is stilte voor de storm, voorspellen analisten](https://fd.nl/economie/1591725/lichte-stijging-inflatie-in-maart-is-stilte-voor-de-storm-voorspellen-analisten)
-  > Hogere energiekosten gaven de inflatie voor het eerst sinds september weer een tikje omhoog, tot 2,7% op jaarbasis. Analisten verwachten een verdere...
-- [Waar komt toch die hernieuwde belangstelling voor het stoïcisme vandaan?](https://fd.nl/samenleving/1591349/waar-komt-toch-die-hernieuwde-belangstelling-voor-het-stoicisme-vandaan)
-  > Filosoof Menno de Bree weet het wel. Die neo-stoa is een risicoloze maakbaarheidsfilosofie, gemaakt voor middelmatige managers. Nee, de echte stoa:...
-- [Verveelde cryptospeculanten storten zich op olie](https://fd.nl/economie/1591580/verveelde-cryptospeculanten-storten-zich-op-olie)
-  > Vandaag in Dagkoers: Verveelde cryptospeculanten storten zich op olie, de belastingtruc van ‘schenken op papier’ ligt onder een vergrootgras en het...
-- [Het stagflatiespook](https://fd.nl/opinie/1591777/het-stagflatiespook)
-  > De inflatie loopt weer wat op, net als de werkloosheid, én de groei staat onder druk. Gaat het stagflatiespook zich weer roeren? En gaat het winnen?
+- [Unilever: verkoop voedingstak aan McCormick mogelijk vandaag al rond](https://fd.nl/bedrijfsleven/1591782/unilever-in-vergevorderde-gesprekken-met-mccormick-over-verkoop-voedingstak)
+  > Het streven is dat de voedingstak, bekend van Knorr-bouillon en Hellmann’s-mayonaise, zal fuseren met de Amerikaanse sauzenmaker.
+- [Moderne slavernij](https://fd.nl/samenleving/1591346/moderne-slavernij)
+  > Vrijheid zit niet in nietsdoen of niemand nodig hebben, maar in het vermogen je ergens aan te verbinden, betoogt Femmetje de Wind.
+- [Strakke woning in Mondriaan-stijl](https://fd.nl/samenleving/1591345/strakke-woning-in-mondriaan-stijl)
+  > Modern huis in Vessem. ‘De blokken en vlakken, het kleurenschema. Het past binnen de stroming waar naast Rietveld ook Piet Mondriaan deel van...
+- [Omzet Onward Medical lager dan verwacht](https://fd.nl/financiele-markten/1591781/omzet-onward-medical-lager-dan-verwacht)
+  > De producent van medische apparaten verkocht vorig jaar 117 ruggenmergstimulatoren, maar had gehoopt er zeker 175 te verkopen.
+- [‘Broker van minister Hegseth wilde miljoenen in defensiefonds steken vlak voor Iran-oorlog’](https://fd.nl/politiek/1591727/broker-van-minister-hegseth-wilde-miljoenen-in-defensiefonds-steken-vlak-voor-iran-oorlog)
+  > De effectenmakelaar van Hegseth bij Morgan Stanley nam in februari contact op met vermogensbeheerder BlackRock voor een investering in diens Defense...
 
 ### Meest gelezen
 
