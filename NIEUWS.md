@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-03-2026 om 09:06*
+*Laatst bijgewerkt: 31-03-2026 om 10:58*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Friese gemeenten naar Den Haag voor andere opvang jongeren met complexe zorgvraag](https://nos.nl/l/2608501)
-  > Friese gemeenten en zorgorganisaties bieden de Tweede Kamer vandaag een petitie aan. Ze pleiten daarin voor een andere opvang van kinderen met een...
-- [Cateringdochter KLM aan Zwitserse concurrent verkocht](https://nos.nl/l/2608491)
-  > KLM doet de cateringservice definitief de deur uit. Het onderdeel dat de maaltijden verzorgt op de vluchten van KLM wordt overgenomen door de...
-- [Recordaantal leerlingen in Friesland maakt dit jaar eindexamen Fries](https://nos.nl/l/2608489)
-  > Meer middelbare scholieren doen dit jaar eindexamen in het vak Fries. Het gaat om 200 leerlingen, terwijl het er vorig jaar minder dan 150 waren. Dat...
-- [Unilever wil fusie voedingsmiddelentak met Amerikaanse specerijenproducent](https://nos.nl/l/2608488)
-  > De kans is groot dat Unilever de voedingsmiddelendivisie onderbrengt in een nieuw bedrijf. Dit wordt opgericht met de Amerikaanse specerijenproducent...
-- [Topman Air Canada stapt op omdat hij geen Frans spreekt](https://nos.nl/l/2608485)
-  > Michael Rousseau, de topman van vliegtuigmaatschappij Air Canada, heeft aangekondigd aan het eind van dit jaar te vertrekken. Hij doet dat vanwege...
+- [Al 40 jaar paasbloemen naar Vaticaan: ook paus Leo krijgt ze](https://nos.nl/l/2608517)
+  > In de Keukenhof in Lisse zijn de bloemen ingezegend die dit weekend Pasen in het Vaticaan zullen opluisteren. Het is komend weekend de vraag of paus...
+- [Senator Van Gasteren uit BBB-fractie gezet na opzeggen lidmaatschap](https://nos.nl/l/2608516)
+  > BBB-senator Robert van Gasteren, die vrijdag publiekelijk brak met de partij, is uit de fractie gezet. Fractievoorzitter Ilona Lagas wil geen mensen...
+- [Eurovisie Songfestival krijgt in november Aziatische versie](https://nos.nl/l/2608514)
+  > Het Eurovisie Songfestival krijgt dit jaar voor het eerst een Aziatische versie. De finale vindt op 14 november in Bangkok plaats, meldt de website...
+- [Russische oliehaven aan Oostzee opnieuw getroffen door Oekraïense drones](https://nos.nl/l/2608513)
+  > Oekraïense drones hebben opnieuw schade aangericht in de Russische oliehaven Oest-Loega. Die haven ligt aan de Oostzee op 25 kilometer van de grens...
+- [EU beleefde vorig jaar een verwoestend bosbrandenseizoen](https://nos.nl/l/2608512)
+  > Het bosbrandenseizoen van 2025 was in de Europese Unie het meest verwoestende ooit gemeten. Dat blijkt uit een data-analyse van het Joint Research...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hard, intens, gemeen: daarom is Ecuador vanavond de ideale WK-test voor Oranje](https://www.ad.nl/voetbal/hard-intens-gemeen-daarom-is-ecuador-vanavond-de-ideale-wk-test-voor-oranje~a91019a5/)
-  > De wave zal vanavond ongetwijfeld door het stadion gaan bij een oefenwedstrijd van Oranje. Maar of het op het veld ook gezellig zal zijn? Ecuador...
-- [Curaçao oefent in aanloop naar WK-debuut tegen Australië](https://www.ad.nl/wk-voetbal/curacao-oefent-in-aanloop-naar-wk-debuut-tegen-australie~a15ea331/)
+- [Feyenoorder Jordan Bos doet Curaçao pijn in oefenduel: Australië straft WK-debutant volledig af](https://www.ad.nl/wk-voetbal/feyenoorder-jordan-bos-doet-curacao-pijn-in-oefenduel-australie-straft-wk-debutant-volledig-af~a15ea331/)
   > Curaçao speelt om 11.10 uur het tweede oefenduel van deze interlandperiode. Afgelopen vrijdag was China met 2-0 te sterk bij het debuut van...
-- [Is dit straks buitenspel? Canada lanceert dit weekend project van Arsène Wenger: ‘Dit is een belangrijke test’](https://www.ad.nl/voetbal/is-dit-straks-buitenspel-canada-lanceert-dit-weekend-project-van-arsene-wenger-dit-is-een-belangrijke-test~a83f39491/)
-  > Buitenspel op een teenlengte? Dat kan binnenkort verleden tijd zijn. In de Canadese competitie wordt vanaf komend weekend getest met een...
-- [Opinie: ‘Als het Rijk dat echt wil, is de Noordzeekust snel veilig’](https://www.ad.nl/praat-mee/opinie-als-het-rijk-dat-echt-wil-is-de-noordzeekust-snel-veilig~af601a71/)
-  > De Noordzeekust is kwestbaar. Een Russisch schip hoeft maar een kabel te beschadigen en er is een probleem. De maritieme industrie heeft oplossingen...
-- [Britse vrouw heeft seks met eeneiige tweeling en raakt zwanger, maar weet nu niet wie de vader is](https://www.ad.nl/buitenland/britse-vrouw-heeft-seks-met-eeneiige-tweeling-en-raakt-zwanger-maar-weet-nu-niet-wie-de-vader-is~ab1a3f27/)
-  > Een Britse moeder is hard van de roze wolk gevallen nadat ze bevallen was. Ze weet niet wie de biologische vader is van haar baby. De vrouw had...
+- [Slechte reclame is ook reclame: hoe gecrashte Tiger Woods dankzij deze mugshot bakken geld verdient](https://www.ad.nl/andere-sporten/slechte-reclame-is-ook-reclame-hoe-gecrashte-tiger-woods-dankzij-deze-mugshot-bakken-geld-verdient~a02a3abd/)
+  > There’s no such thing as bad publicity. Vraag dat maar aan Tiger Woods (50), want wat blijkt: sinds de mugshot die werd gemaakt na zijn autocrash...
+- [Als automobilist wegrijdt bij staandehouding, besluit politie te schieten: agent wordt nu vervolgd](https://www.ad.nl/binnenland/als-automobilist-wegrijdt-bij-staandehouding-besluit-politie-te-schieten-agent-wordt-nu-vervolgd~ac87fa08/)
+  > Een politieagent die in januari 2024 in Leeuwarden een kogel op een automobilist afvuurde, wordt daarvoor vervolgd, meldt het OM dinsdag. De...
+- [Hongaarse minister van Buitenlandse Zaken werkte samen met Rusland om oligarchen van EU-sanctielijsten af te halen](https://www.ad.nl/buitenland/hongaarse-minister-van-buitenlandse-zaken-werkte-samen-met-rusland-om-oligarchen-van-eu-sanctielijsten-af-te-halen~a1ea8d28/)
+  > De Hongaarse minister van Buitenlandse Zaken Péter Szijjártó werkte samen met Rusland om oligarchen van Europese sanctielijsten af te krijgen. Dat...
+- [Wolf bijt vrouw in wang in Hamburg en slaat op de vlucht: ‘Niet eerder voorgekomen’](https://www.ad.nl/buitenland/wolf-bijt-vrouw-in-wang-in-hamburg-en-slaat-op-de-vlucht-niet-eerder-voorgekomen~a6d1b3e3/)
+  > Een verdwaalde wolf heeft maandagavond een vrouw die inkopen deed in havenstad Hamburg in haar wang gebeten. Daarna volgde een kilometerslange...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Oorlogstijd vraagt om toegankelijke antibiotica](https://fd.nl/opinie/1591343/oorlogstijd-vraagt-om-toegankelijke-antibiotica)
-  > Onze resistentie tegen antibiotica groeit al jaren, maar vormt nu een extra gevaar vanwege wereldwijde conflicten. Voor grote farmaceuten moet het...
-- [Hoe het haasje hupt](https://fd.nl/financiele-markten/1591786/hoe-het-haasje-hupt)
-  > De waarde van bedrijven zit nu voor 92% in zaken die je niet kunt aanraken of optellen en ook niet terugvindt op een balans. Analisten zitten er dan...
-- [Wat kunnen we doen tegen huiselijk geweld?](https://fd.nl/samenleving/1591443/wat-kunnen-we-doen-tegen-huiselijk-geweld)
-  > Blijf Groep-directielid Leonie Hutten en VVD-raadslid in Rotterdam Erik Verheij zien beiden winst in meer aandacht voor de pleger van huiselijk...
-- [Topman Air Canada stapt op na ophef over condoleancevideo](https://fd.nl/bedrijfsleven/1591785/topman-air-canada-stapt-op-na-ophef-over-condoleancevideo)
-  > Het gebrekkige Frans van ceo Michael Rousseau leverde hem kritiek op in de Franstalige staat Quebec, waar de luchtvaartmaatschappij is gevestigd.
-- [KLM verkoopt meerderheidsbelang cateringtak aan Gategroup](https://fd.nl/bedrijfsleven/1591783/klm-verkoopt-meerderheidsbelang-cateringtak-aan-gategroup)
-  > De luchtvaartmaatschappij houdt nog wel een aandeel van 25% in de KLM Catering Services. Banen blijven volgens KLM behouden.
+- [Iran-oorlog raakt Vopak direct, toch deert het beleggers niet](https://fd.nl/financiele-markten/1591452/iran-oorlog-raakt-vopak-direct-toch-deert-het-beleggers-niet)
+  > Enkele opslagtanks van de Rotterdamse onderneming liggen in oorlogsgebied. De bezettingsgraad van Vopak-tanks blijft niettemin hoog, verwachten...
+- [Skincare voor mannen is niet meer weg te denken](https://fd.nl/samenleving/1591377/skincare-voor-mannen-is-niet-meer-weg-te-denken)
+  > Het gaat goed met de Nederlandse man en zijn huidverzorging. Crèmes en serums zijn nu een middel om er tot op hoge leeftijd fit en energiek uit te...
+- [Brussel heeft ‘zorgen’ over staatssteun voor Franse kerncentrales](https://fd.nl/politiek/1591735/brussel-heeft-zorgen-over-staatssteun-voor-franse-kerncentrales)
+  > Frankrijk wil tot 2044 zes atoomcentrales bouwen. Brussel vraagt zich af of financiële overheidssteun indirect de marktmacht van energiebedrijf EDF...
+- [Een nieuwe wereldorde, verkiezingen en de AEX naar 1000 punten: dit is het journalistieke jaarverslag van het FD](https://fd.nl/samenleving/1588583/een-nieuwe-wereldorde-verkiezingen-en-de-aex-naar-1000-punten-dit-is-het-journalistieke-jaarverslag-van-het-fd)
+  > Wat waren belangrijke onderwerpen in het nieuws, welke keuzes heeft het FD gemaakt, en waarom?
+- [Draait de kracht van de Amerikaanse economie om wat de rijken uitgeven?](https://fd.nl/economie/1589939/draait-de-kracht-van-de-amerikaanse-economie-om-wat-de-rijken-uitgeven)
+  > Onderzoek en investeringen in de VS worden gestuurd door het idee dat economische groei in de VS steeds meer afhangt van bestedingen door rijke...
 
 ### Meest gelezen
 
