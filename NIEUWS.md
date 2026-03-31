@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-03-2026 om 21:43*
+*Laatst bijgewerkt: 31-03-2026 om 22:38*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [De ultieme WK-gids: op deze dagen speelt Oranje, alle poules en speelsteden op een rijtje](https://www.ad.nl/voetbal/de-ultieme-wk-gids-op-deze-dagen-speelt-oranje-alle-poules-en-speelsteden-op-een-rijtje~ac7fe43a/)
+  > Het Nederlands elftal is geplaatst voor het WK van 2026 in de Verenigde Staten, Canada en Mexico! Oranje treft Japan, Tunesië en de winnaar van de...
+- [Drama compleet voor Italië, dat voor derde WK op rij ontbreekt: Bosnië wint penaltyse­rie met 4-1](https://www.ad.nl/wk-voetbal/drama-compleet-voor-italie-dat-voor-derde-wk-op-rij-ontbreekt-bosnie-wint-penaltyserie-met-4-1~aaddf051/)
+  > Bosnië en Herzegovina gaat naar het WK 2026, nadat dinsdagavond in Zenica in de penaltyserie met 4-1 werd gewonnen van Italië. De Italianen ontbreken...
 - [Denemarken mist WK door Tsjechië-held Kovar, Turkije grijpt voor het eerst in 24 jaar ticket](https://www.ad.nl/wk-voetbal/denemarken-mist-wk-door-tsjechie-held-kovar-turkije-grijpt-voor-het-eerst-in-24-jaar-ticket~a18a004e/)
   > Tsjechië gaat het voor het eerst in 20 jaar naar het WK. Nadat de wedstrijd in 2-2 was geëindigd, waren de Tsjechen in de penaltyserie te sterk voor...
-- [Drama compleet voor Italië, dat voor derde WK op rij ontbreekt: Bosnië wint penaltyserie en gaat naar VS](https://www.ad.nl/wk-voetbal/drama-compleet-voor-italie-dat-voor-derde-wk-op-rij-ontbreekt-bosnie-wint-penaltyserie-en-gaat-naar-vs~aaddf051/)
-  > Bosnië en Herzegovina gaat naar het WK 2026, nadat dinsdagavond in Zenica in de penaltyserie met 4-1 werd gewonnen van Italië. De Italianen ontbreken...
 - [Oranje op rapport | Eén onvoldoende bij strijdend Nederland, hoogste cijfers op het middenveld](https://www.ad.nl/voetbal/oranje-op-rapport-een-onvoldoende-bij-strijdend-nederland-hoogste-cijfers-op-het-middenveld~a85ccb27/)
   > De oefenwedstrijd tegen Ecuador (1-1) werd ontsierd door een rode kaart voor Denzel Dumfries. Op het middenveld van Oranje speelde een duo zich naar...
 - [Musical in de maak van animatiefilm Happy Feet](https://www.ad.nl/show/musical-in-de-maak-van-animatiefilm-happy-feet~a61262f6/)
   > De met een Oscar bekroonde animatiefilm Happy Feet krijgt een musical op Broadway. Het project wordt op dit moment ontwikkeld door regisseur Michael...
-- [WK-ganger Marokko wint oefenwedstrijd van Paraguay](https://www.ad.nl/wk-voetbal/wk-ganger-marokko-wint-oefenwedstrijd-van-paraguay~aa6d8520/)
-  > De voetballers van Marokko hebben in Frankrijk een vriendschappelijke wedstrijd tegen Paraguay gewonnen. De WK-ganger was in Lens met 2-1 te sterk...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Wall Street kleurt felgroen te midden van speculatie over einde oorlog](https://fd.nl/bedrijfsleven/1591764/wall-street-kleurt-felgroen-te-midden-van-speculatie-over-einde-iran-oorlog)
-  > Amerikaanse beurzen sloten dinsdag flink hoger vanwege optimisme over een einde van de oorlog tegen Iran.
-- [Twee medewerkers hoofdkantoor ABN Amro dood aangetroffen](https://fd.nl/samenleving/1591809/twee-medewerkers-hoofdkantoor-abn-amro-dood-aangetroffen)
-  > Politie houdt verdachte aan die mogelijk betrokken was bij de dood van een van de slachtoffers.
-- [Duitsland bestelt nu ook drones bij Rheinmetall](https://fd.nl/bedrijfsleven/1591808/duitsland-bestelt-nu-ook-drones-bij-rheinmetall)
-  > Defensieconcern kwam onlangs onder vuur na kritiek op Oekraïense producten en greep ook naast een eerste Duitse order.
-- [Geen overheidsgeld naar megadatacenter voor AI](https://fd.nl/politiek/1591761/geen-overheidsgeld-naar-megadatacenter-voor-ai)
-  > Er is geen geld voor een aanbesteding die bedoeld is om de bouw van Europese AI-gigafabrieken te stimuleren.
-- [Spaans generaal pardon betekent verblijfsvergunning voor mogelijk een miljoen illegale migranten](https://fd.nl/economie/1591746/spaans-generaal-pardon-betekent-verblijfsvergunning-voor-mogelijk-een-miljoen-illegale-migranten)
-  > Terwijl EU-landen het aantal asielzoekers verder willen beperken, kunnen illegale migranten in Spanje vanaf woensdag onder voorwaarden een...
+- [Crisisplan Olie](https://fd.nl/opinie/1591742/crisisplan-olie)
+  > Alle wetten, regelingen en noodmaatregelen bij een tekort aan olie en gas liggen klaar.
+- [Verlieslijdende Plus‑keten maakt zich op voor nieuwe overnames](https://fd.nl/bedrijfsleven/1591733/verlieslijdende-plusketen-maakt-zich-op-voor-nieuwe-overnames)
+  > De supermarktketen heeft de fusie met Coop bijna afgerond, maar de kosten daarvan drukten in 2025 nog zwaar op het resultaat. Niettemin bereidt de...
+- [1 april: lachen, leren en een beetje misleiden](https://fd.nl/opinie/1591729/1-april-lachen-leren-en-een-beetje-misleiden)
+  > Een goede grap prikkelt niet alleen je lachspieren, maar ook je denkvermogen.
+- [Personalia woensdag 1 april](https://fd.nl/bedrijfsleven/1591740/personalia-woensdag-1-april)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Navo steekt miljoenen in diagnostiekbedrijf Inbiome uit Amsterdam](https://fd.nl/bedrijfsleven/1591799/navo-steekt-miljoenen-in-diagnostiekbedrijf-inbiome-uit-amsterdam)
+  > Het Amsterdamse bedrijf haalt €16 mln op voor een methode om bacteriën sneller te herkennen. Dat is ook van belang in oorlogsgebieden.
 
 ### Meest gelezen
 
