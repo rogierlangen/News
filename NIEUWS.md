@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-04-2026 om 17:00*
+*Laatst bijgewerkt: 01-04-2026 om 19:08*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- ['Russen naar huis!' klinkt het na zeventig jaar weer in Boedapest](https://nos.nl/l/2608722)
+  > Rudolf Ungváry was student toen zeventig jaar geleden de Hongaarse opstand uitbrak. Een paar korte dagen van bevrijding, zo herinnert de schrijver...
+- [Vier doden na massale Russische droneaanvallen in Oekraïne](https://nos.nl/l/2608718)
+  > Oekraïne is sinds vanochtend voortdurend bestookt met massale droneaanvallen, veel meer dan gebruikelijk is overdag. De aanvallen zijn het Russische...
+- [Bultrug Timmy niet meer te redden, 'een emotionele dag'](https://nos.nl/l/2608714)
+  > De bultrug die opnieuw is gestrand voor de Duitse Oostzeekust, is niet meer te redden. Pogingen daartoe worden stopgezet. Deskundigen gaan ervan uit...
+- [Landmacht zet volop in op drones, alle eenheden moeten ervoor zijn toegerust](https://nos.nl/l/2608713)
+  > De Nederlandse landmacht gaat over op een nieuwe strategie, gericht op de inzet van drones. Vanaf 1 januari 2028 moeten alle gevechtseenheden zijn...
 - [Kolen weer terug van weggeweest in politiek Den Haag](https://nos.nl/l/2608706)
-  > Nu de gasprijzen hard doorstijgen, gaan er in de politiek nadrukkelijker stemmen op om de kolencentrales in Nederland langer open te houden. Volgens...
-- [Tientallen migranten overleden bij overtochten op zee in Europa](https://nos.nl/l/2608703)
-  > Op verschillende plekken in Europa zijn vandaag migranten op zee overleden. Bij het Italiaanse eiland Lampedusa troffen hulpdiensten in een boot 19...
-- [Bedorven kip velt een derde van FC Den Bosch-selectie, wedstrijd afgelast](https://nos.nl/l/2608701)
-  > Het eerste elftal van FC Den Bosch is flink getroffen door een voedselvergiftiging. De boosdoener is kip die niet goed was, schrijft Omroep Brabant....
-- [Tweedehands elektrische auto in trek door dure benzine en diesel](https://nos.nl/l/2608700)
-  > Carina en Jan de Nijs zitten nog wat onwennig in een tweedehands elektrische auto. Ze staan op het punt om een proefrit te maken. "We zijn binnen nu...
-- [Straf voor bedreigen van burgemeester van Venlo in discussie over azc](https://nos.nl/l/2608697)
-  > Vier mannen die eind vorig jaar burgemeester Scholten van Venlo bedreigden, krijgen een taakstraf en een boete. Het Openbaar Ministerie heeft die...
+  > Nu de gasprijzen hoog zijn, gaan er in de politiek nadrukkelijker stemmen op om de kolencentrales in Nederland langer open te houden. Volgens de wet...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Onderschat nooit de waarde van ‘gewoon een pot pindakaas’](https://www.ad.nl/commentaar/onderschat-nooit-de-waarde-van-gewoon-een-pot-pindakaas~a33f639f/)
-  > Unilever verkoopt Calvé Pindakaas aan een Amerikaanse branchegenoot. Dat mag natuurlijk, maar wel met respect graag, schrijft Hans Nijenhuis in dit...
-- [Vrijlating van Diddy opnieuw vervroegd](https://www.ad.nl/show/vrijlating-van-diddy-opnieuw-vervroegd~a7d5d21f/)
-  > De vrijlatingsdatum van Sean ‘Diddy’ Combs is opnieuw naar voren gehaald. De gevallen hiphopmagnaat wordt tien dagen eerder vrijgelaten dan voorheen...
-- [Opvolger iDeal beschermt consumenten, maar ondernemers vrezen hoge kosten](https://www.ad.nl/geld/opvolger-ideal-beschermt-consumenten-maar-ondernemers-vrezen-hoge-kosten~a39cdaac/)
-  > Wero, de opvolger van iDeal, moet consumenten beter beschermen, maar betaalbedrijven en ondernemers staan nog niet allemaal te springen. Zij vrezen...
-- [Götze langer bij Frankfurt, PSV niet door met drie beloften en onzekerheid over toekomst Boadu](https://www.ad.nl/voetbal/gotze-langer-bij-frankfurt-psv-niet-door-met-drie-beloften-en-onzekerheid-over-toekomst-boadu~a35ea681/)
-  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
-- [Aan deze wintersporten geeft NOCNSF de komende jaren zijn geld uit: 'We doen het goed of we doen het niet'](https://www.ad.nl/schaatsen/aan-deze-wintersporten-geeft-nocnsf-de-komende-jaren-zijn-geld-uit-we-doen-het-goed-of-we-doen-het-niet~a5e01e5a/)
-  > Bij het verdelen van de topsportgelden voor de nieuwe olympische cyclus (Winterspelen) zijn bobslee en curling de grote winnaars, voor snowboarden en...
+- [Chocoladebedrijf De Bonte Koe zet in op meer dan alleen de feestdagen: ‘Chocolade verbindt’](https://www.ad.nl/binnenland/chocoladebedrijf-de-bonte-koe-zet-in-op-meer-dan-alleen-de-feestdagen-chocolade-verbindt~a6e24766/)
+  > Libidobonbons, de Dubai-reep en een heuse chocossant. Chocoladebedrijf De Bonte Koe is dagelijks op zoek naar nieuwe recepten om hun klanten mee te...
+- [Handenwrijvend uitkijken naar Ronde van Vlaanderen: ‘Remco Evenepoel die start, dat is breaking news’](https://www.ad.nl/wielrennen/handenwrijvend-uitkijken-naar-ronde-van-vlaanderen-remco-evenepoel-die-start-dat-is-breaking-news~ab390ccc/)
+  > Remco Evenepoel doet mee aan de Ronde van Vlaanderen. Dat was vier dagen voor de start van de monumentale klassieker hét onderwerp van gesprek in...
+- [Veel Israëliërs steunen herinvoering doodstraf: ‘Wie voor terreur kiest, kiest voor de dood’](https://www.ad.nl/buitenland/veel-israeliers-steunen-herinvoering-doodstraf-wie-voor-terreur-kiest-kiest-voor-de-dood~af64a5de/)
+  > Terwijl de oorlog voortduurt, drukt de regering van Benjamin Netanyahu een omstreden besluit door het Israëlische parlement. Voor het eerst sinds de...
+- [Fabrikanten van warmtepompen drukker dan ooit: ‘Mensen zijn wel klaar met de energiecrisis’](https://www.ad.nl/economie/fabrikanten-van-warmtepompen-drukker-dan-ooit-mensen-zijn-wel-klaar-met-de-energiecrisis~ad4a4c7b/)
+  > Door de tweede energiecrisis in vijf jaar tijd is er een ware run ontstaan op warmtepompen. „Het is zo druk dat we onze reclamecampagne op een laag...
+- [Overlast en bijna-botsingen: Amsterdam verbiedt fatbike in druk Vondelpark, boetes tot 115 euro](https://www.ad.nl/binnenland/overlast-en-bijna-botsingen-amsterdam-verbiedt-fatbike-in-druk-vondelpark-boetes-tot-115-euro~a4fc78e2/)
+  > Het Vondelpark wordt het eerste gebied in Amsterdam waar niet meer met een fatbike mag worden gereden. Het verbod gaat op 11 mei in....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [VK wil met coalitie vrije doorvaart in Straat van Hormuz herstellen](https://fd.nl/politiek/1591983/vk-wil-met-coalitie-vrije-doorvaart-in-straat-van-hormuz-herstellen)
-  > De Britse premier Keir Starmer benadrukte dat hij niet in de oorlog wil worden ‘meegezogen’, maar dat het overleg bedoeld is om de zeestraat weer...
-- [Vissersbond: ruim de helft van de platviskotters ligt aan wal door dure brandstof](https://fd.nl/bedrijfsleven/1591894/vissersbond-ruim-de-helft-van-de-platviskotters-ligt-aan-wal-door-dure-brandstof)
-  > De vissersbond pleit er daarom bij het kabinet voor om de kottervisserij financieel te steunen. Vissers kunnen nu niet uitvaren zonder verlies te...
-- [Ministerie waarschuwde uitzendsector al sinds 2022 voor misstand in cao’s](https://fd.nl/bedrijfsleven/1591976/ministerie-waarschuwde-uitzendsector-al-sinds-2022-voor-misstand-in-caos)
-  > Uitzendkrachten kregen tot 2026 structureel minder betaald dan vaste werknemers. Dat mag niet, maar toch paste de sector de uitzend-cao niet aan.
-- [Recordaantal grote overnamedeals in eerste kwartaal](https://fd.nl/bedrijfsleven/1591893/recordaantal-grote-overnamedeals-in-eerste-kwartaal)
-  > Het is voor het derde kwartaal op rij dat de omvang van de wereldwijde fusie- en overnamemarkt boven de $1000 mrd uitkomt.
-- [‘Megadatacenter voor AI komt er. Ook zonder steun van de overheid’](https://fd.nl/tech-en-innovatie/1591978/megadatacenter-voor-ai-komt-er-ook-zonder-steun-van-de-overheid)
-  > De bouw van een groot datacenter voor AI in Nederland gaat door, ook nu het Rijk geen geld geeft. Dat zegt ondernemer Han de Groot, die een plan had...
+- [Zeven Nederlandse cloudaanbieders willen overheid alternatief bieden voor big tech](https://fd.nl/tech-en-innovatie/1591896/zeven-nederlandse-cloudaanbieders-willen-overheid-alternatief-bieden-voor-big-tech)
+  > De bedrijven, waaronder KPN, Centric en Nebul, stemmen hun clouddiensten meer op elkaar af. Ze willen zo de overheid een alternatief bieden voor big...
+- [Lufthansa houdt rekening met brandstoftekorten](https://fd.nl/bedrijfsleven/1591984/lufthansa-houdt-rekening-met-brandstoftekorten)
+  > De grootste luchtvaartmaatschappij van Europa werkt aan een crisisplan waarbij vliegtuigen mogelijk aan de grond blijven.
+- [Kabinet probeert onrust bij start-ups over box 3 weg te nemen](https://fd.nl/politiek/1591895/kabinet-probeert-onrust-bij-start-ups-over-box-3-weg-te-nemen)
+  > Een nieuwe definitie van wat een start-up is, moet bezwaren wegnemen. Een puntensysteem bepaalt wie voordeel krijgt. Start-uporganisaties vrezen dat...
+- [Omarm verandering bij vernieuwing van betaalsysteem](https://fd.nl/financiele-markten/1591879/omarm-verandering-bij-vernieuwing-van-betaalsysteem)
+  > iDeal houdt eind 2027 op te bestaan. De invoering van opvolger Wero zal aanvankelijk best een beetje wringen. Is dat erg of onderdeel van innovatie?...
+- [Knippen, kleuren en … slachtofferhulp: kappers ingezet tegen huiselijk geweld](https://fd.nl/samenleving/1591889/knippen-kleuren-en-slachtofferhulp-kappers-ingezet-tegen-huiselijk-geweld)
+  > In de kappersstoel komen vaak verhalen los die klanten elders niet kwijt kunnen. Die vertrouwensrelatie wil de overheid benutten in het...
 
 ### Meest gelezen
 
