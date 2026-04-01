@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-04-2026 om 22:42*
+*Laatst bijgewerkt: 01-04-2026 om 23:40*
 
 ---
 
@@ -8,8 +8,8 @@
 
 ### Laatste nieuws
 
-- [Raket gelanceerd: astronauten met Artemis II-missie op weg naar de maan](https://nos.nl/l/2608739)
-  > De raket van de Artemis II-maanmissie is gelanceerd. Dat gebeurde om 06.35 uur lokale tijd vanaf het Kennedy Space Center in Florida. Het is de...
+- [Astronauten Artemis II gelanceerd voor historisch rondje om de maan](https://nos.nl/l/2608739)
+  > De raket van de Artemis II-maanmissie is gelanceerd. Dat gebeurde om 00.35 uur Nederlandse tijd vanaf het Kennedy Space Center in Florida. Het is de...
 - [VS schrapt sancties tegen Venezolaanse interim-president Rodriguez](https://nos.nl/l/2608738)
   > De Verenigde Staten hebben de sancties tegen de Venezolaanse interim-president Delcy Rodriguez geschrapt. Die waren van kracht sinds 2018, nadat ze...
 - [Zelfrijdende taxi's stoppen plots met rijden in Chinese stad Wuhan](https://nos.nl/l/2608736)
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Astronauten vanuit de VS begonnen aan eerste reis naar maan sinds 1972](https://www.ad.nl/buitenland/astronauten-vanuit-de-vs-begonnen-aan-eerste-reis-naar-maan-sinds-1972~a847dbcf/)
+  > Vier astronauten zijn begonnen aan hun vlucht naar de maan. Het is de eerste keer sinds december 1972 dat mensen richting het hemellichaam vliegen....
+- [Voetbalpodcast | ‘Óscar García moet duidelijkheid creëren bij Ajax over de speelstijl de komende weken’](https://www.ad.nl/voetbal/voetbalpodcast-oscar-garcia-moet-duidelijkheid-creeren-bij-ajax-over-de-speelstijl-de-komende-weken~ac8603a9/)
+  > De tranen in Italië nu het land weer niet op een WK eindronde staat. En de verbazing over Zweden. Dat een slechte WK-kwalificatie speelde, maar toch...
 - [Daphne van Domselaar met titelverdediger Arsenal naar halve finales Champions League](https://www.ad.nl/voetbal/daphne-van-domselaar-met-titelverdediger-arsenal-naar-halve-finales-champions-league~a3b969ed/)
   > Titelverdediger Arsenal staat voor het tweede jaar op rij in de halve finales van de Champions League voor vrouwen. De ploeg van de Nederlandse coach...
 - [Trump dreigde met wapenstop aan Oekraïne om Europese steun in Straat van Hormuz af te dwingen](https://www.ad.nl/buitenland/trump-dreigde-met-wapenstop-aan-oekraine-om-europese-steun-in-straat-van-hormuz-af-te-dwingen~a7dc243c/)
   > Donald Trump heeft gedreigd de wapenleveringen aan Oekraïne stop te zetten. Op die manier wilde de Amerikaanse president Europese landen dwingen om...
 - [Thomas wint 100.000 euro in De Bondgenoten, maar laat kersverse vriendin Chess achter: 'Ik wacht op haar'](https://www.ad.nl/show/thomas-wint-100-000-euro-in-de-bondgenoten-maar-laat-kersverse-vriendin-chess-achter-ik-wacht-op-haar~a777c389/)
   > Thomas Kroon heeft woensdag de 27ste cyclus van De Bondgenoten gewonnen. Hij vertrekt niet alleen met 100.000 euro op zak, ook heeft hij woensdag...
-- [Podcast In Het Wiel | ‘Dit is de Wout van Aert waar we met z’n allen verliefd op zijn geworden’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-dit-is-de-wout-van-aert-waar-we-met-zn-allen-verliefd-op-zijn-geworden~a5ea502e/)
-  > België stond op zijn kop vandaag. Eerst werd bekend dat Remco Evenepoel komend weekend zijn debuut maakt in de Ronde van Vlaanderen, daarna kregen we...
-- [Roné en Afke willen 1 miljoen euro om hun huis te herstellen, maar dat vindt de gemeente veel te veel](https://www.ad.nl/binnenland/rone-en-afke-willen-1-miljoen-euro-om-hun-huis-te-herstellen-maar-dat-vindt-de-gemeente-veel-te-veel~a67956e4/)
-  > Wat begon als een droom, veranderde in een nachtmerrie voor Roné en Afke van der Vliet. Hun gloednieuwe huis in Mariënheem loopt telkens vol met...
 
 ### Meest gelezen
 
