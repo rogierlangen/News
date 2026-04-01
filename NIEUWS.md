@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-03-2026 om 23:38*
+*Laatst bijgewerkt: 01-04-2026 om 03:16*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Miljoenenboetes voor Utrechtse busvervoerders vanwege aanhoudende problemen](https://nos.nl/l/2608611)
+  > De provincie Utrecht gaat busmaatschappijen Transdev en Keolis beboeten voor de aanhoudende problemen. Dat meldt de provincie in antwoord op vragen...
+- [Amerikaanse journalist ontvoerd in Irak, mogelijk door Iran-gezinde groep](https://nos.nl/l/2608610)
+  > Een Amerikaanse freelance-journalist is in Irak ontvoerd, melden Amerikaanse en Iraakse autoriteiten. Het is onduidelijk wie verantwoordelijk is voor...
+- [Halsema trouwt stellen van gelijk geslacht bij 25-jarig jubileum homohuwelijk](https://nos.nl/l/2608609)
+  > Onder toeziend oog van burgemeester Halsema en minister-president Jetten zijn om middernacht drie stellen van hetzelfde geslacht met elkaar getrouwd....
+- [Russisch vliegtuig neergestort boven de Krim, tientallen doden](https://nos.nl/l/2608608)
+  > Op het schiereiland de Krim is een Russisch militair transportvliegtuig neergestort. Volgens het Russische staatspersbureau TASS zijn daarbij 23...
 - [504 vrouwen met voorkeursstemmen in gemeenteraden gekozen](https://nos.nl/l/2608607)
   > Bij de gemeenteraadsverkiezingen in maart zijn 504 vrouwen met voorkeursstemmen in de nieuwe raden gekozen. Dat heeft de stichting Stem op een Vrouw...
-- [Rechter legt bouw balzaal Witte Huis stil: 'president is niet de eigenaar'](https://nos.nl/l/2608594)
-  > President Trump moet binnen veertien dagen de bouw van de balzaal bij het Witte Huis stilleggen. Dat heeft een federale rechter in Washington bepaald...
-- [Autofabrikant Stellantis roept wereldwijd honderdduizenden auto's terug](https://nos.nl/l/2608586)
-  > Het moederbedrijf van merken als Peugeot, Fiat en Opel roept auto's terug vanwege brandgevaar. In Nederland gaat het om 19.000 auto's van acht...
-- [VN: Israëlische doodstraf in Palestijnse Gebieden zou oorlogsmisdaad zijn](https://nos.nl/l/2608585)
-  > De Verenigde Naties noemen het uitvoeren van de Israëlische doodstraf in de Palestijnse Gebieden een oorlogsmisdaad, mocht dat gebeuren. Een...
-- [Friese jongen plande aanslag op Vlaams Parlement en vliegbasis](https://nos.nl/l/2608577)
-  > De rechtbank in Leeuwarden heeft een minderjarige jongen veroordeeld voor de voorbereiding van terreuraanslagen op het Vlaamse Parlement in Brussel...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De ultieme WK-gids: op deze dagen speelt Oranje, alle poules en speelsteden op een rijtje](https://www.ad.nl/voetbal/de-ultieme-wk-gids-op-deze-dagen-speelt-oranje-alle-poules-en-speelsteden-op-een-rijtje~ac7fe43a/)
-  > Het Nederlands elftal is geplaatst voor het WK van 2026 in de Verenigde Staten, Canada en Mexico! Oranje treft Japan, Tunesië en de winnaar van de...
-- [Tsjechië dankzij PSV-keeper Matej Kovar naar het WK, Turkije grijpt voor het eerst in 24 jaar ticket](https://www.ad.nl/wk-voetbal/tsjechie-dankzij-psv-keeper-matej-kovar-naar-het-wk-turkije-grijpt-voor-het-eerst-in-24-jaar-ticket~a18a004e/)
-  > Tsjechië gaat het voor het eerst in twintig jaar naar het WK. Nadat de wedstrijd in Praag in 2-2 was geëindigd, waren de Tsjechen in de penaltyserie...
-- [Drama compleet voor Italië, dat voor derde WK op rij ontbreekt: Bosnië wint penaltyse­rie met 4-1](https://www.ad.nl/wk-voetbal/drama-compleet-voor-italie-dat-voor-derde-wk-op-rij-ontbreekt-bosnie-wint-penaltyserie-met-4-1~aaddf051/)
-  > Bosnië en Herzegovina gaat naar het WK 2026, nadat dinsdagavond in Zenica in de penaltyserie met 4-1 werd gewonnen van Italië. De Italianen ontbreken...
-- [Oranje op rapport | Eén onvoldoende bij strijdend Nederland, hoogste cijfers op het middenveld](https://www.ad.nl/voetbal/oranje-op-rapport-een-onvoldoende-bij-strijdend-nederland-hoogste-cijfers-op-het-middenveld~a85ccb27/)
-  > De oefenwedstrijd tegen Ecuador (1-1) werd ontsierd door een rode kaart voor Denzel Dumfries. Op het middenveld van Oranje speelde een duo zich naar...
-- [Musical in de maak van animatiefilm Happy Feet](https://www.ad.nl/show/musical-in-de-maak-van-animatiefilm-happy-feet~a61262f6/)
-  > De met een Oscar bekroonde animatiefilm Happy Feet krijgt een musical op Broadway. Het project wordt op dit moment ontwikkeld door regisseur Michael...
+- [Van aparte vacature tot een brug naar Terschelling: de leukste (en flauwste) 1 aprilgrappen van dit jaar](https://www.ad.nl/binnenland/van-aparte-vacature-tot-een-brug-naar-terschelling-de-leukste-en-flauwste-1-aprilgrappen-van-dit-jaar~acf5f536/)
+  > 1 april, kikker in je bil. Van zeer aparte vacatures tot een gepersonaliseerde rookworst of ov-geluidjes: wij zetten de leukste en flauwste lolletjes...
+- [Halsema trouwt lhbti-stellen bij 25-jarig jubileum](https://www.ad.nl/binnenland/halsema-trouwt-lhbti-stellen-bij-25-jarig-jubileum~a0be4c22/)
+  > In het stadhuis van Amsterdam zijn woensdag kort na middernacht drie stellen van hetzelfde geslacht getrouwd door burgemeester Femke Halsema. Met de...
+- [Tiger Woods wil zich laten behandelen na arrestatie in Florida](https://www.ad.nl/show/tiger-woods-wil-zich-laten-behandelen-na-arrestatie-in-florida~a90ad3bb/)
+  > De Amerikaanse golferTiger Woods wil zich laten behandelen nadat hij vorige week vrijdag was gearresteerd op verdenking van rijden onder invloed, zo...
+- [LIVE Oorlog Oekraïne | Tientallen doden bij crash Russisch militair vliegtuig](https://www.ad.nl/buitenland/live-oorlog-oekraine-tientallen-doden-bij-crash-russisch-militair-vliegtuig~adfb97be/)
+  > Een Russisch militair transportvliegtuig van het type Antonov-26 is neergestort boven het schiereiland de Krim. Daarbij kwamen 23 passagiers en zes...
+- [Leger zet 1200 dronespecialisten in: ‘Niemand kan zich nog verstoppen’](https://www.ad.nl/binnenland/leger-zet-1200-dronespecialisten-in-niemand-kan-zich-nog-verstoppen~a8f517ff/)
+  > Bij het Nederlandse leger beginnen woensdag de eerste van in totaal 1200 dronespecialisten. De militairen leren vechten met drones, maar ook zichzelf...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [‘Onze’ Calvé, Knorr & Unox in Amerikaanse handen](https://fd.nl/economie/1591803/onze-calve-knorr-unox-in-amerikaanse-handen)
+  > Vandaag in de Dagkoers: de Amerikaanse specerijenfabrikant McCormick koopt de voedingstak van Unilever, het aantal ambtenaren blijft stijgen en het...
 - [Crisisplan Olie](https://fd.nl/opinie/1591742/crisisplan-olie)
   > Alle wetten, regelingen en noodmaatregelen bij een tekort aan olie en gas liggen klaar.
 - [Verlieslijdende Plus‑keten maakt zich op voor nieuwe overnames](https://fd.nl/bedrijfsleven/1591733/verlieslijdende-plusketen-maakt-zich-op-voor-nieuwe-overnames)
@@ -54,8 +56,6 @@
   > Een goede grap prikkelt niet alleen je lachspieren, maar ook je denkvermogen.
 - [Personalia woensdag 1 april](https://fd.nl/bedrijfsleven/1591740/personalia-woensdag-1-april)
   > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Navo steekt miljoenen in diagnostiekbedrijf Inbiome uit Amsterdam](https://fd.nl/bedrijfsleven/1591799/navo-steekt-miljoenen-in-diagnostiekbedrijf-inbiome-uit-amsterdam)
-  > Het Amsterdamse bedrijf haalt €16 mln op voor een methode om bacteriën sneller te herkennen. Dat is ook van belang in oorlogsgebieden.
 
 ### Meest gelezen
 
