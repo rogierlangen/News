@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-04-2026 om 11:02*
+*Laatst bijgewerkt: 01-04-2026 om 13:45*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Ook Douwe Egberts definitief in Amerikaanse handen](https://nos.nl/l/2608656)
-  > JDE Peet's, het moederbedrijf van onder meer Douwe Egberts en L'OR Espresso, is volledig eigendom geworden van Keurig Dr Pepper. De Amerikaanse...
-- [Onrust rond private credit: investeerders willen hun geld terug, waarom?](https://nos.nl/l/2608653)
-  > Financiële toezichthouders maken zich grote zorgen over private credit-fondsen. Steeds meer beleggers willen hun geld uit deze fondsen opnemen, maar...
-- [OM eist 10 jaar cel voor brandstichting Arnhem, vrijspraak voor twee anderen](https://nos.nl/l/2608650)
-  > Het Openbaar Ministerie eist 10 jaar celstraf tegen Koert H. (58), die volgens justitie verantwoordelijk is voor de verwoestende brand in de...
-- [Van wolfveilige fiets tot verbod op doorschijnend ondergoed: het is weer 1 april](https://nos.nl/l/2608646)
-  > Je hebt het misschien al gemerkt, vanmorgen bij het ontbijt of bij aankomst op je werk: het is weer 1 april, de dag dat je op de hoede moet zijn voor...
-- [Brit (22) valt vijf mensen aan bij hotel in de buurt van Schiphol](https://nos.nl/l/2608645)
-  > Een 22-jarige Brit heeft vijf mensen bij een hotel in de omgeving van Schiphol aangevallen en ernstig mishandeld, meldt de Koninklijke Marechaussee....
+- [Schutter die drie mannen doodde in Rotterdam handelde 'in opdracht van stemmen'](https://nos.nl/l/2608677)
+  > Ruim een jaar nadat in Rotterdam in twee weken tijd drie mannen om het leven werden gebracht, stond vandaag de 25-jarige verdachte Sendric S. voor de...
+- [Kappers in Rotterdam krijgen hulp bij signaleren huiselijk geweld](https://nos.nl/l/2608675)
+  > Rotterdamse kappers krijgen vanaf vandaag een hulppakket dat ze kunnen gebruiken als ze vermoeden dat een klant slachtoffer is van huiselijk geweld....
+- [Podcast De Dag: terug naar de maan](https://nos.nl/l/2608672)
+  > Als alles goed gaat, vertrekt vannacht na ruim een halve eeuw weer een bemande missie naar de maan.
+        Deze aflevering van De Dag kun je...
+- [Het succes van 50 jaar Apple is vooral het succes van de iPhone](https://nos.nl/l/2608668)
+  > Apple bestaat vijftig jaar. Het Amerikaanse bedrijf veranderde in zijn beginjaren radicaal hoe computers voor thuis werden gebruikt, met de Apple II...
+- [Strand van Ouddorp (Goeree-Overflakkee) ligt vol met dode zeesterren](https://nos.nl/l/2608663)
+  > Het strand in Ouddorp (Goeree-Overflakkee) ligt bezaaid met dode zeesterren, meldt de regionale omroep Rijnmond. De zeedieren zijn mogelijk...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Clubvorm bepalend voor WK-kans: Malen straalt, Valente baalt en Frimpong worstelt met fitheid](https://www.ad.nl/voetbal/clubvorm-bepalend-voor-wk-kans-malen-straalt-valente-baalt-en-frimpong-worstelt-met-fitheid~a7fefbc5/)
-  > Voor het publiek werd de interland van dinsdagavond een lange zit. Maar vanuit de bondscoach en de spelers geredeneerd heeft Oranje twee nuttige...
-- [Na hersenletsel en borstkanker solliciteerde Evelien tevergeefs 200 keer: ‘Sta werkdagen van 5 uur toe’](https://www.ad.nl/binnenland/na-hersenletsel-en-borstkanker-solliciteerde-evelien-tevergeefs-200-keer-sta-werkdagen-van-5-uur-toe~afb64eea/)
-  > Hersenletsel op haar 28ste en borstkanker op haar 30ste. Evelien Jonkers maakte het mee en leeft met de heftige gevolgen van de bestraling die zij...
-- [‘Wie niet springt, is moslim’: ophef in Spanje na islamofobe spreekkoren in interland tegen Egypte](https://www.ad.nl/wk-voetbal/wie-niet-springt-is-moslim-ophef-in-spanje-na-islamofobe-spreekkoren-in-interland-tegen-egypte~a534d2b6/)
-  > De politie in Spanje is een onderzoek gestart naar ‘islamofobe en xenofobe’ spreekkoren tijdens een vriendschappelijk duel tussen de Europees...
-- [Dertig jaar KLM en dan gebeurt dit: Anita maakt droomvlucht met dochter Bowien als collega](https://www.ad.nl/binnenland/dertig-jaar-klm-en-dan-gebeurt-dit-anita-maakt-droomvlucht-met-dochter-bowien-als-collega~a5a67447/)
-  > Anita van der Jagt is al dertig jaar stewardess bij de KLM. In al die jaren heeft de Wemeldingse van alles meegemaakt, maar dit keer heeft ze wel...
-- [IJskoud vertelt seriemoordenaar over het doden van willekeurige mannen: ‘Dit is een goed persoon, zeiden de stemmen’](https://www.ad.nl/binnenland/ijskoud-vertelt-seriemoordenaar-over-het-doden-van-willekeurige-mannen-dit-is-een-goed-persoon-zeiden-de-stemmen~ab5de839/)
-  > Voor het eerst heeft seriemoordenaar Sendric S. (25) verteld waarom hij drie willekeurige Rotterdammers op ijskoude wijze doodschoot. Hij geeft de...
+- [Wout van Aert krijgt Niklas Larsen achter hem in kleine kopgroep](https://www.ad.nl/wielrennen/wout-van-aert-krijgt-niklas-larsen-achter-hem-in-kleine-kopgroep~ae4e6071/)
+  > Vier dagen voor de Ronde van Vlaanderen wordt Dwars door Vlaanderen gereden. Mathieu van der Poel staat niet aan de start van deze semiklassieker,...
+- [‘Niet alleen onze olie en gas zijn in gevaar, ook hongersnood dreigt’](https://www.ad.nl/binnenland/niet-alleen-onze-olie-en-gas-zijn-in-gevaar-ook-hongersnood-dreigt~a3a9e242/)
+  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag: Een veilige doorgang voor olie in de Straat van Hormuz is ook een...
+- [Komt er echt gekoelde champagne uit je Quooker? Test je kennis van 1 aprilgrappen](https://www.ad.nl/home/komt-er-echt-gekoelde-champagne-uit-je-quooker-test-je-kennis-van-1-aprilgrappen~ae8bccf8/)
+  > Een AI-volkszanger, champagne uit de kraan of een hoesje voor je gekookte ei: op 1 april weet je het nooit zeker. Heb jij een feilloze radar voor...
+- [Na ziekte op vakantie je vrije dagen terugvragen: ‘Of je op het strand ligt of in bed, je was toch weg?’](https://www.ad.nl/binnenland/na-ziekte-op-vakantie-je-vrije-dagen-terugvragen-of-je-op-het-strand-ligt-of-in-bed-je-was-toch-weg~a6cae4ab/)
+  > Wat als je ziek wordt op vakantie? Boek je dan je verlofdagen terug bij de werkgever of is het dikke vette pech? Ondernemer Bart Boting vindt het...
+- [The real housewives of Amsterdam-ster Kimmylien Nguyen gaat trouwen: ‘Alles viel op z’n plek’](https://www.ad.nl/show/the-real-housewives-of-amsterdam-ster-kimmylien-nguyen-gaat-trouwen-alles-viel-op-zn-plek~a308f94b/)
+  > Kimmylien Nguyen, bekend van de realityserie The real housewives of Amsterdam, gaat trouwen. Op Instagram laat ze weten dat ze ten huwelijk is...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Help de ECB en word herkozen](https://fd.nl/financiele-markten/1591860/help-de-ecb-en-word-herkozen)
-  > Politici moeten de lokroep weerstaan om energiekosten van huishoudens en bedrijven ruim te compenseren. Dat kan goed uitpakken in het stemhokje,...
-- [Spectaculaire stijging verkoop van tweedehands elektrische auto’s](https://fd.nl/economie/1591773/spectaculaire-stijging-verkoop-van-tweedehands-elektrische-autos)
-  > Brancheorganisatie Bovag meldt een toename van 48% in maart vergeleken met de voorgaande maand. Ook het marktaandeel van nieuwe elektrische auto’s...
-- [Miljoenenboetes voor busmaatschappijen in provincie Utrecht](https://fd.nl/bedrijfsleven/1591774/miljoenenboetes-voor-busmaatschappijen-in-provincie-utrecht)
-  > Al maandenlang vallen er honderden busritten uit in de provincie Utrecht. Vervoersbedrijven Transdev en Keolis krijgen nu een boete.
-- [Oorlog, prijsstijgingen en recycling: tijd voor lef](https://fd.nl/opinie/1591450/oorlog-prijsstijgingen-en-recycling-tijd-voor-lef)
-  > De oorlog in de Golfregio maakt nieuw plastic duurder en schaarser, terwijl de Nederlandse overheid te weinig investeerde in recycling. Opschaling en...
-- [Drama in private credit zou de grootste kans zijn sinds 2008](https://fd.nl/financiele-markten/1591449/drama-in-private-credit-zou-de-grootste-kans-zijn-sinds-2008)
-  > Een groeiende groep nerveuze beleggers zoekt bij privatecreditfondsen de uitgang op. De een zijn dood is de ander zijn brood: distressed debt funds...
+- [Bouwkavels nieuwbouwwoningen flink in prijs gestegen](https://fd.nl/economie/1591883/bouwkavels-nieuwbouwwoningen-flink-in-prijs-gestegen)
+  > Gemiddeld kostte een nieuwbouwkavel vorig jaar €826 per vierkante meter, in de Randstad liggen de prijzen ver boven €1000.
+- [Pensioenfonds ABP stapt uit Palantir, dat levert aan ICE en Israëlische leger](https://fd.nl/financiele-markten/1591884/pensioenfonds-abp-stapt-uit-techbedrijf-palantir)
+  > Opnieuw verkoopt het grootste pensioenfonds van Nederland zijn belang in een bedrijf dat in verband wordt gebracht met de schending van mensenrechten.
+- [Doorstart voor activiteiten van Domo in Saksen-Anhalt](https://fd.nl/bedrijfsleven/1591885/doorstart-voor-activiteiten-vandomo-in-saksen-anhalt)
+  > De failliete Belgische polyamidefabriek in Leuna krijgt Duitse eigenaren. De bedrijven Leuna Harze en InfraLeuna nemen het over.
+- [Hongaarse ‘mol van Poetin’ zou op verzoek van Moskou Russen van EU‑sanctielijst hebben gehaald](https://fd.nl/politiek/1591864/hongaarse-mol-van-poetin-zou-op-verzoek-van-moskou-russen-van-eusanctielijst-hebben-gehaald)
+  > De Hongaarse minister Péter Szijjártó ligt opnieuw onder vuur. Hij zou hand- en spandiensten hebben verleend aan Rusland.
+- [Tien jaar na beursgang staat lichtbedrijf Signify op een kantelpunt](https://fd.nl/bedrijfsleven/1591767/tien-jaar-na-beursgang-staat-lichtbedrijf-signify-op-een-kantelpunt)
+  > Na een decennium van nagenoeg onafgebroken reorganisaties is de vraag hoeveel winst er nog te behalen valt. In Nederland verdween al meer dan de...
 
 ### Meest gelezen
 
