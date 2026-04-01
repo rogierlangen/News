@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-04-2026 om 15:09*
+*Laatst bijgewerkt: 01-04-2026 om 17:00*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Europese Commissie zet eerste stap in versoepeling emissiehandelssysteem](https://nos.nl/l/2608687)
-  > De Europese Commissie wil het klimaatbeleid van de Europese Unie versoepelen. Aanleiding is de moeilijke situatie van de industrie en de dreigende...
-- [Minister Sjoerdsma van alle kanten onder vuur: 'Eet van twee walletjes'](https://nos.nl/l/2608684)
-  > Minister Sjoerdsma ligt van alle kanten onder vuur vanwege de manier waarop hij steun probeert te verwerven voor zijn plannen. Vorige week wist hij...
-- [Politie: geen verband tussen dood van vrouwen die collega's waren](https://nos.nl/l/2608679)
-  > Er is geen verband tussen de recente dood van twee vrouwen die allebei bij ABN Amro werkten, meldt de politie. Vorige week donderdag werd een van de...
-- [Schutter die willekeurige mannen doodde in Rotterdam handelde 'in opdracht van stemmen'](https://nos.nl/l/2608677)
-  > Ruim een jaar nadat in Rotterdam in twee weken tijd drie mannen om het leven werden gebracht, stond vandaag de 25-jarige verdachte Sendric S. voor de...
-- [Kappers in Rotterdam krijgen hulp bij signaleren huiselijk geweld](https://nos.nl/l/2608675)
-  > Rotterdamse kappers krijgen vanaf vandaag een hulppakket dat ze kunnen gebruiken als ze vermoeden dat een klant slachtoffer is van huiselijk geweld....
+- [Kolen weer terug van weggeweest in politiek Den Haag](https://nos.nl/l/2608706)
+  > Nu de gasprijzen hard doorstijgen, gaan er in de politiek nadrukkelijker stemmen op om de kolencentrales in Nederland langer open te houden. Volgens...
+- [Tientallen migranten overleden bij overtochten op zee in Europa](https://nos.nl/l/2608703)
+  > Op verschillende plekken in Europa zijn vandaag migranten op zee overleden. Bij het Italiaanse eiland Lampedusa troffen hulpdiensten in een boot 19...
+- [Bedorven kip velt een derde van FC Den Bosch-selectie, wedstrijd afgelast](https://nos.nl/l/2608701)
+  > Het eerste elftal van FC Den Bosch is flink getroffen door een voedselvergiftiging. De boosdoener is kip die niet goed was, schrijft Omroep Brabant....
+- [Tweedehands elektrische auto in trek door dure benzine en diesel](https://nos.nl/l/2608700)
+  > Carina en Jan de Nijs zitten nog wat onwennig in een tweedehands elektrische auto. Ze staan op het punt om een proefrit te maken. "We zijn binnen nu...
+- [Straf voor bedreigen van burgemeester van Venlo in discussie over azc](https://nos.nl/l/2608697)
+  > Vier mannen die eind vorig jaar burgemeester Scholten van Venlo bedreigden, krijgen een taakstraf en een boete. Het Openbaar Ministerie heeft die...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Uitspraken Trump over einde oorlog hebben direct effect: prijs olie en gas daalt, aandelenkoers schiet omhoog](https://www.ad.nl/economie/uitspraken-trump-over-einde-oorlog-hebben-direct-effect-prijs-olie-en-gas-daalt-aandelenkoers-schiet-omhoog~afb0c8a6f/)
-  > De uitspraken van Donald Trump over het naderende einde van de oorlog tegen Iran hebben woensdag geleid tot een enorme reactie op de wereldwijde...
-- [Frankrijk reageert op dreigement Trump: ‘Navo niet ontworpen voor dit soort operaties’](https://www.ad.nl/buitenland/frankrijk-reageert-op-dreigement-trump-navo-niet-ontworpen-voor-dit-soort-operaties~ac528ac3/)
-  > Europese landen reageren vooralsnog onderkoeld op het nieuwe dreigement van de Amerikaanse president Donald Trump dat de VS overweegt uit de Navo te...
-- [Weduwe Annie kijkt seriemoordenaar recht in de ogen: ‘Bram deed nooit een vlieg kwaad… en jij nam hem af’](https://www.ad.nl/binnenland/weduwe-annie-kijkt-seriemoordenaar-recht-in-de-ogen-bram-deed-nooit-een-vlieg-kwaad-en-jij-nam-hem-af~a6d56ee9/)
-  > Bram (81) ging ‘even’ naar de apotheek om medicijnen te halen en werd het laatste slachtoffer van seriemoordenaar Sendric S. (25). In de rechtbank...
-- [Terwijl Trump blijft briesen en dreigt met vertrek, bouwt Europa in stilte aan 'Navo 3.0'](https://www.ad.nl/buitenland/terwijl-trump-blijft-briesen-en-dreigt-met-vertrek-bouwt-europa-in-stilte-aan-navo-3-0~a3f7586e/)
-  > Donald Trump slingert opnieuw een verbale sloopkogel richting de Navo. Hij zegt serieus na te denken over een vertrek. Geloofwaardig is dat niet per...
-- [Chelsea lijdt grootste verlies in de geschiedenis van het Engelse voetbal](https://www.ad.nl/voetbal/chelsea-lijdt-grootste-verlies-in-de-geschiedenis-van-het-engelse-voetbal~a1a01672/)
-  > Chelsea heeft vorig seizoen een verlies geleden van 262,4 miljoen Engelse pond, omgerekend 300 miljoen euro; een record in de geschiedenis van het...
+- [Onderschat nooit de waarde van ‘gewoon een pot pindakaas’](https://www.ad.nl/commentaar/onderschat-nooit-de-waarde-van-gewoon-een-pot-pindakaas~a33f639f/)
+  > Unilever verkoopt Calvé Pindakaas aan een Amerikaanse branchegenoot. Dat mag natuurlijk, maar wel met respect graag, schrijft Hans Nijenhuis in dit...
+- [Vrijlating van Diddy opnieuw vervroegd](https://www.ad.nl/show/vrijlating-van-diddy-opnieuw-vervroegd~a7d5d21f/)
+  > De vrijlatingsdatum van Sean ‘Diddy’ Combs is opnieuw naar voren gehaald. De gevallen hiphopmagnaat wordt tien dagen eerder vrijgelaten dan voorheen...
+- [Opvolger iDeal beschermt consumenten, maar ondernemers vrezen hoge kosten](https://www.ad.nl/geld/opvolger-ideal-beschermt-consumenten-maar-ondernemers-vrezen-hoge-kosten~a39cdaac/)
+  > Wero, de opvolger van iDeal, moet consumenten beter beschermen, maar betaalbedrijven en ondernemers staan nog niet allemaal te springen. Zij vrezen...
+- [Götze langer bij Frankfurt, PSV niet door met drie beloften en onzekerheid over toekomst Boadu](https://www.ad.nl/voetbal/gotze-langer-bij-frankfurt-psv-niet-door-met-drie-beloften-en-onzekerheid-over-toekomst-boadu~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Aan deze wintersporten geeft NOCNSF de komende jaren zijn geld uit: 'We doen het goed of we doen het niet'](https://www.ad.nl/schaatsen/aan-deze-wintersporten-geeft-nocnsf-de-komende-jaren-zijn-geld-uit-we-doen-het-goed-of-we-doen-het-niet~a5e01e5a/)
+  > Bij het verdelen van de topsportgelden voor de nieuwe olympische cyclus (Winterspelen) zijn bobslee en curling de grote winnaars, voor snowboarden en...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Adviesraad: ‘Nieuwe verdeling gemeentefonds opschorten’](https://fd.nl/politiek/1591801/adviesraad-nieuwe-verdeling-gemeentefonds-opschorten)
-  > De Raad voor het Openbaar Bestuur is kritisch over de nieuwe voorgestelde herverdeling van het gemeentefonds. De rekenmethodes zijn ontoereikend,...
-- [Als eerste Golfstaat overwegen VAE militaire inzet voor heropening Straat van Hormuz](https://fd.nl/politiek/1591872/als-eerste-golfstaat-overwegen-vae-militaire-inzet-voor-heropening-straat-van-hormuz)
-  > Door de sluiting van de Straat van Hormuz lopen de Emiraten veel olie-inkomsten mis. Deelname aan de oorlog tegen Iran lijkt een serieuze optie te...
-- [‘De krab’ is de Castro die tijdrekt voor het Cubaanse regime](https://fd.nl/politiek/1590909/de-krab-is-de-castro-die-tijdrekt-voor-het-cubaanse-regime)
-  > ‘Raulito’, de kleinzoon en beschermeling van Raúl Castro, heeft een minder publieke, maar wel een spilfunctie in het Cubaanse regime. Zo zou hij met...
-- [Vakbonden en DHL Express bereiken cao-akkoord](https://fd.nl/bedrijfsleven/1591874/vakbonden-en-dhl-express-bereiken-cao-akkoord)
-  > Per 1 januari van dit jaar gaan de lonen met 4% omhoog en per 1 januari 2027 wordt een loonsverhoging van 3,5% doorgevoerd.
-- [Unilever en McCormick hebben zendingswerk te verrichten](https://fd.nl/financiele-markten/1591888/unilever-en-mccormick-hebben-zendingswerk-te-verrichten)
-  > Aandeelhouders geloven vooralsnog niet dat de fusie tussen de voedingstak van Unilever en McCormick neerkomt op ‘kracht plus kracht’. Hoe kan dat?
+- [VK wil met coalitie vrije doorvaart in Straat van Hormuz herstellen](https://fd.nl/politiek/1591983/vk-wil-met-coalitie-vrije-doorvaart-in-straat-van-hormuz-herstellen)
+  > De Britse premier Keir Starmer benadrukte dat hij niet in de oorlog wil worden ‘meegezogen’, maar dat het overleg bedoeld is om de zeestraat weer...
+- [Vissersbond: ruim de helft van de platviskotters ligt aan wal door dure brandstof](https://fd.nl/bedrijfsleven/1591894/vissersbond-ruim-de-helft-van-de-platviskotters-ligt-aan-wal-door-dure-brandstof)
+  > De vissersbond pleit er daarom bij het kabinet voor om de kottervisserij financieel te steunen. Vissers kunnen nu niet uitvaren zonder verlies te...
+- [Ministerie waarschuwde uitzendsector al sinds 2022 voor misstand in cao’s](https://fd.nl/bedrijfsleven/1591976/ministerie-waarschuwde-uitzendsector-al-sinds-2022-voor-misstand-in-caos)
+  > Uitzendkrachten kregen tot 2026 structureel minder betaald dan vaste werknemers. Dat mag niet, maar toch paste de sector de uitzend-cao niet aan.
+- [Recordaantal grote overnamedeals in eerste kwartaal](https://fd.nl/bedrijfsleven/1591893/recordaantal-grote-overnamedeals-in-eerste-kwartaal)
+  > Het is voor het derde kwartaal op rij dat de omvang van de wereldwijde fusie- en overnamemarkt boven de $1000 mrd uitkomt.
+- [‘Megadatacenter voor AI komt er. Ook zonder steun van de overheid’](https://fd.nl/tech-en-innovatie/1591978/megadatacenter-voor-ai-komt-er-ook-zonder-steun-van-de-overheid)
+  > De bouw van een groot datacenter voor AI in Nederland gaat door, ook nu het Rijk geen geld geeft. Dat zegt ondernemer Han de Groot, die een plan had...
 
 ### Meest gelezen
 
