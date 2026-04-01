@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-04-2026 om 21:48*
+*Laatst bijgewerkt: 01-04-2026 om 22:42*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Raket gelanceerd: astronauten met Artemis II-missie op weg naar de maan](https://nos.nl/l/2608739)
+  > De raket van de Artemis II-maanmissie is gelanceerd. Dat gebeurde om 06.35 uur lokale tijd vanaf het Kennedy Space Center in Florida. Het is de...
+- [VS schrapt sancties tegen Venezolaanse interim-president Rodriguez](https://nos.nl/l/2608738)
+  > De Verenigde Staten hebben de sancties tegen de Venezolaanse interim-president Delcy Rodriguez geschrapt. Die waren van kracht sinds 2018, nadat ze...
 - [Zelfrijdende taxi's stoppen plots met rijden in Chinese stad Wuhan](https://nos.nl/l/2608736)
   > Door een onbekend probleem zijn gisteren in de Chinese stad Wuhan zelfrijdende taxi's plots tot stilstand gekomen. Volgens de BBC hielden zeker...
 - [Drugstunnel tussen Marokko en Spaanse exclave, 'hasj vooral naar Nederland'](https://nos.nl/l/2608735)
   > De hasj die werd gesmokkeld door een geheime tunnel tussen Marokko en de Spaanse exclave Ceuta, die zaterdag werd ontdekt, was vooral bedoeld voor...
 - [Amsterdam kiest voor fatbikeverbod in Vondelpark, verbod geldt vanaf mei](https://nos.nl/l/2608729)
   > Het Vondelpark wordt het eerste drukke gebied in Amsterdam waar niet meer op een fatbike mag worden gereden. Het verbod gaat op 11 mei in. In de...
-- [Ankers in netten, schip geraakt: activisten treffen krillvangst bij Antarctica](https://nos.nl/l/2608727)
-  > Milieuactivisten hebben bij Antarctica met opzet een Noors vissersschip geschampt. De groep rond de bekende activist Paul Watson had het gemunt op...
-- [Opnieuw bestuursfusie in omroepland: KRO-NCRV, Omroep Max en WNL willen samen](https://nos.nl/l/2608726)
-  > De omroepen KRO-NCRV, Omroep Max en WNL willen samen een omroephuis vormen, melden ze in een gezamenlijke verklaring.
-        Ze hebben een reeks...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Beleggers nemen opnieuw een voorschot op einde oorlog](https://fd.nl/bedrijfsleven/1591930/beleggers-nemen-opnieuw-een-voorschot-op-einde-oorlog)
-  > Beurskoersen stegen en de VIX-index, de angstgraadmeter van Wall Street, daalden naar het laagste punt in bijna twee weken.
-- [Eli Lilly krijgt goedkeuring voor dieetpil](https://fd.nl/bedrijfsleven/1591898/eli-lilly-krijgt-goedkeuring-voor-dieetpil)
-  > Er is weer een alternatief voor de injecties als Ozempic. Eerder kwam het Deense Novo Nordisk al met een dieetpil, de Wegovy-pil.
-- [SpaceX dient vertrouwelijke aanvraag voor beursgang in](https://fd.nl/bedrijfsleven/1591985/spacex-dient-vertrouwelijke-aanvraag-voor-beursgang-in)
-  > Ceo Elon Musk is ervan overtuigd dat er datacenters in de ruimte moeten worden gebouwd door de opkomst van AI. Een beursgang kan helpen die ambities...
-- [Zeven Nederlandse cloudaanbieders willen overheid alternatief bieden voor big tech](https://fd.nl/tech-en-innovatie/1591896/zeven-nederlandse-cloudaanbieders-willen-overheid-alternatief-bieden-voor-big-tech)
-  > De bedrijven, waaronder KPN, Centric en Nebul, stemmen hun clouddiensten meer op elkaar af. Ze willen zo de overheid een alternatief bieden voor big...
-- [Lufthansa houdt rekening met brandstoftekorten](https://fd.nl/bedrijfsleven/1591984/lufthansa-houdt-rekening-met-brandstoftekorten)
-  > De grootste luchtvaartmaatschappij van Europa werkt aan een crisisplan waarbij vliegtuigen mogelijk aan de grond blijven.
+- [Een jaar later](https://fd.nl/opinie/1591897/een-jaar-later)
+  > Met zijn importheffingen is het Trump gelukkig niet gelukt de wereldeconomie te slopen – al doet hij nu alsnog een poging – maar van alle beloftes...
+- [Reorganisatie PostNL: twee locaties dicht, geen details over baanverlies](https://fd.nl/bedrijfsleven/1591876/reorganisatie-postnl-twee-locaties-dicht-geen-details-over-baanverlies)
+  > De vakbonden vrezen dat er minstens tweeduizend banen verdwijnen als de post vanaf juli langer over de postbezorging mag doen. Dat aantal wil PostNL...
+- [Een totaal gebrek aan realiteitszin stuwt de gasprijs in dit land verder omhoog](https://fd.nl/opinie/1591857/gebrek-aan-realiteitszin-stuwt-de-gasprijs-omhoog)
+  > Goede bedoelingen waren er genoeg voor de energietransitie. Nu door het sluiten van het Groningerveld, importverboden en oorlog de gasvoorraden...
+- [Personalia donderdag 2 april](https://fd.nl/bedrijfsleven/1591980/personalia-donderdag-2-april)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Oxfam: minder belasting ontweken, maar mondiale Zuiden blijft kwetsbaar](https://fd.nl/politiek/1591886/oxfam-minder-belasting-ontweken-maar-mondiale-zuiden-blijft-kwetsbaar)
+  > Volgens Oxfam bevindt zich tien jaar na de Panama Papers $3550 mrd aan onbelast privévermogen in belastingparadijzen.
 
 ### Meest gelezen
 
