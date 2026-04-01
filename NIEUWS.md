@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-04-2026 om 20:51*
+*Laatst bijgewerkt: 01-04-2026 om 21:48*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Zelfrijdende taxi's stoppen plots met rijden in Chinese stad Wuhan](https://nos.nl/l/2608736)
+  > Door een onbekend probleem zijn gisteren in de Chinese stad Wuhan zelfrijdende taxi's plots tot stilstand gekomen. Volgens de BBC hielden zeker...
+- [Drugstunnel tussen Marokko en Spaanse exclave, 'hasj vooral naar Nederland'](https://nos.nl/l/2608735)
+  > De hasj die werd gesmokkeld door een geheime tunnel tussen Marokko en de Spaanse exclave Ceuta, die zaterdag werd ontdekt, was vooral bedoeld voor...
 - [Amsterdam kiest voor fatbikeverbod in Vondelpark, verbod geldt vanaf mei](https://nos.nl/l/2608729)
   > Het Vondelpark wordt het eerste drukke gebied in Amsterdam waar niet meer op een fatbike mag worden gereden. Het verbod gaat op 11 mei in. In de...
 - [Ankers in netten, schip geraakt: activisten treffen krillvangst bij Antarctica](https://nos.nl/l/2608727)
@@ -15,10 +19,6 @@
 - [Opnieuw bestuursfusie in omroepland: KRO-NCRV, Omroep Max en WNL willen samen](https://nos.nl/l/2608726)
   > De omroepen KRO-NCRV, Omroep Max en WNL willen samen een omroephuis vormen, melden ze in een gezamenlijke verklaring.
         Ze hebben een reeks...
-- ['Russen naar huis!' klinkt het na zeventig jaar weer in Boedapest](https://nos.nl/l/2608722)
-  > Rudolf Ungváry was student toen zeventig jaar geleden de Hongaarse opstand uitbrak. Een paar korte dagen van bevrijding, zo herinnert de schrijver...
-- [Vier doden na massale Russische droneaanvallen in Oekraïne](https://nos.nl/l/2608718)
-  > Oekraïne is sinds vanochtend voortdurend bestookt met massale droneaanvallen, veel meer dan gebruikelijk is overdag. De aanvallen zijn het Russische...
 
 ### Meest gelezen
 
@@ -28,7 +28,9 @@
 
 ### Laatste nieuws
 
-- [Trump dreigde wapenleveringen aan Oekraïne stop te zetten om Europese steun Straat van Hormuz af te dwingen](https://www.ad.nl/buitenland/trump-dreigde-wapenleveringen-aan-oekraine-stop-te-zetten-om-europese-steun-straat-van-hormuz-af-te-dwingen~a7dc243c/)
+- [Daphne van Domselaar met titelverdediger Arsenal naar halve finales Champions League](https://www.ad.nl/voetbal/daphne-van-domselaar-met-titelverdediger-arsenal-naar-halve-finales-champions-league~a3b969ed/)
+  > Titelverdediger Arsenal staat voor het tweede jaar op rij in de halve finales van de Champions League voor vrouwen. De ploeg van de Nederlandse coach...
+- [Trump dreigde met wapenstop aan Oekraïne om Europese steun in Straat van Hormuz af te dwingen](https://www.ad.nl/buitenland/trump-dreigde-met-wapenstop-aan-oekraine-om-europese-steun-in-straat-van-hormuz-af-te-dwingen~a7dc243c/)
   > Donald Trump heeft gedreigd de wapenleveringen aan Oekraïne stop te zetten. Op die manier wilde de Amerikaanse president Europese landen dwingen om...
 - [Thomas wint 100.000 euro in De Bondgenoten, maar laat kersverse vriendin Chess achter: 'Ik wacht op haar'](https://www.ad.nl/show/thomas-wint-100-000-euro-in-de-bondgenoten-maar-laat-kersverse-vriendin-chess-achter-ik-wacht-op-haar~a777c389/)
   > Thomas Kroon heeft woensdag de 27ste cyclus van De Bondgenoten gewonnen. Hij vertrekt niet alleen met 100.000 euro op zak, ook heeft hij woensdag...
@@ -36,8 +38,6 @@
   > België stond op zijn kop vandaag. Eerst werd bekend dat Remco Evenepoel komend weekend zijn debuut maakt in de Ronde van Vlaanderen, daarna kregen we...
 - [Roné en Afke willen 1 miljoen euro om hun huis te herstellen, maar dat vindt de gemeente veel te veel](https://www.ad.nl/binnenland/rone-en-afke-willen-1-miljoen-euro-om-hun-huis-te-herstellen-maar-dat-vindt-de-gemeente-veel-te-veel~a67956e4/)
   > Wat begon als een droom, veranderde in een nachtmerrie voor Roné en Afke van der Vliet. Hun gloednieuwe huis in Mariënheem loopt telkens vol met...
-- [Realityster Kimmylien Nguyen haalt grap uit met volgers, toch niet verloofd](https://www.ad.nl/show/realityster-kimmylien-nguyen-haalt-grap-uit-met-volgers-toch-niet-verloofd~a308f94b/)
-  > Kimmylien Nguyen heeft haar volgers en verschillende media voor de gek gehouden met een 1 aprilgrap. De realityster deelde eerder op de dag op...
 
 ### Meest gelezen
 
