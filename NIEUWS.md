@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-04-2026 om 19:08*
+*Laatst bijgewerkt: 01-04-2026 om 20:51*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Amsterdam kiest voor fatbikeverbod in Vondelpark, verbod geldt vanaf mei](https://nos.nl/l/2608729)
+  > Het Vondelpark wordt het eerste drukke gebied in Amsterdam waar niet meer op een fatbike mag worden gereden. Het verbod gaat op 11 mei in. In de...
+- [Ankers in netten, schip geraakt: activisten treffen krillvangst bij Antarctica](https://nos.nl/l/2608727)
+  > Milieuactivisten hebben bij Antarctica met opzet een Noors vissersschip geschampt. De groep rond de bekende activist Paul Watson had het gemunt op...
+- [Opnieuw bestuursfusie in omroepland: KRO-NCRV, Omroep Max en WNL willen samen](https://nos.nl/l/2608726)
+  > De omroepen KRO-NCRV, Omroep Max en WNL willen samen een omroephuis vormen, melden ze in een gezamenlijke verklaring.
+        Ze hebben een reeks...
 - ['Russen naar huis!' klinkt het na zeventig jaar weer in Boedapest](https://nos.nl/l/2608722)
   > Rudolf Ungváry was student toen zeventig jaar geleden de Hongaarse opstand uitbrak. Een paar korte dagen van bevrijding, zo herinnert de schrijver...
 - [Vier doden na massale Russische droneaanvallen in Oekraïne](https://nos.nl/l/2608718)
   > Oekraïne is sinds vanochtend voortdurend bestookt met massale droneaanvallen, veel meer dan gebruikelijk is overdag. De aanvallen zijn het Russische...
-- [Bultrug Timmy niet meer te redden, 'een emotionele dag'](https://nos.nl/l/2608714)
-  > De bultrug die opnieuw is gestrand voor de Duitse Oostzeekust, is niet meer te redden. Pogingen daartoe worden stopgezet. Deskundigen gaan ervan uit...
-- [Landmacht zet volop in op drones, alle eenheden moeten ervoor zijn toegerust](https://nos.nl/l/2608713)
-  > De Nederlandse landmacht gaat over op een nieuwe strategie, gericht op de inzet van drones. Vanaf 1 januari 2028 moeten alle gevechtseenheden zijn...
-- [Kolen weer terug van weggeweest in politiek Den Haag](https://nos.nl/l/2608706)
-  > Nu de gasprijzen hoog zijn, gaan er in de politiek nadrukkelijker stemmen op om de kolencentrales in Nederland langer open te houden. Volgens de wet...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Chocoladebedrijf De Bonte Koe zet in op meer dan alleen de feestdagen: ‘Chocolade verbindt’](https://www.ad.nl/binnenland/chocoladebedrijf-de-bonte-koe-zet-in-op-meer-dan-alleen-de-feestdagen-chocolade-verbindt~a6e24766/)
-  > Libidobonbons, de Dubai-reep en een heuse chocossant. Chocoladebedrijf De Bonte Koe is dagelijks op zoek naar nieuwe recepten om hun klanten mee te...
-- [Handenwrijvend uitkijken naar Ronde van Vlaanderen: ‘Remco Evenepoel die start, dat is breaking news’](https://www.ad.nl/wielrennen/handenwrijvend-uitkijken-naar-ronde-van-vlaanderen-remco-evenepoel-die-start-dat-is-breaking-news~ab390ccc/)
-  > Remco Evenepoel doet mee aan de Ronde van Vlaanderen. Dat was vier dagen voor de start van de monumentale klassieker hét onderwerp van gesprek in...
-- [Veel Israëliërs steunen herinvoering doodstraf: ‘Wie voor terreur kiest, kiest voor de dood’](https://www.ad.nl/buitenland/veel-israeliers-steunen-herinvoering-doodstraf-wie-voor-terreur-kiest-kiest-voor-de-dood~af64a5de/)
-  > Terwijl de oorlog voortduurt, drukt de regering van Benjamin Netanyahu een omstreden besluit door het Israëlische parlement. Voor het eerst sinds de...
-- [Fabrikanten van warmtepompen drukker dan ooit: ‘Mensen zijn wel klaar met de energiecrisis’](https://www.ad.nl/economie/fabrikanten-van-warmtepompen-drukker-dan-ooit-mensen-zijn-wel-klaar-met-de-energiecrisis~ad4a4c7b/)
-  > Door de tweede energiecrisis in vijf jaar tijd is er een ware run ontstaan op warmtepompen. „Het is zo druk dat we onze reclamecampagne op een laag...
-- [Overlast en bijna-botsingen: Amsterdam verbiedt fatbike in druk Vondelpark, boetes tot 115 euro](https://www.ad.nl/binnenland/overlast-en-bijna-botsingen-amsterdam-verbiedt-fatbike-in-druk-vondelpark-boetes-tot-115-euro~a4fc78e2/)
-  > Het Vondelpark wordt het eerste gebied in Amsterdam waar niet meer met een fatbike mag worden gereden. Het verbod gaat op 11 mei in....
+- [Trump dreigde wapenleveringen aan Oekraïne stop te zetten om Europese steun Straat van Hormuz af te dwingen](https://www.ad.nl/buitenland/trump-dreigde-wapenleveringen-aan-oekraine-stop-te-zetten-om-europese-steun-straat-van-hormuz-af-te-dwingen~a7dc243c/)
+  > Donald Trump heeft gedreigd de wapenleveringen aan Oekraïne stop te zetten. Op die manier wilde de Amerikaanse president Europese landen dwingen om...
+- [Thomas wint 100.000 euro in De Bondgenoten, maar laat kersverse vriendin Chess achter: 'Ik wacht op haar'](https://www.ad.nl/show/thomas-wint-100-000-euro-in-de-bondgenoten-maar-laat-kersverse-vriendin-chess-achter-ik-wacht-op-haar~a777c389/)
+  > Thomas Kroon heeft woensdag de 27ste cyclus van De Bondgenoten gewonnen. Hij vertrekt niet alleen met 100.000 euro op zak, ook heeft hij woensdag...
+- [Podcast In Het Wiel | ‘Dit is de Wout van Aert waar we met z’n allen verliefd op zijn geworden’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-dit-is-de-wout-van-aert-waar-we-met-zn-allen-verliefd-op-zijn-geworden~a5ea502e/)
+  > België stond op zijn kop vandaag. Eerst werd bekend dat Remco Evenepoel komend weekend zijn debuut maakt in de Ronde van Vlaanderen, daarna kregen we...
+- [Roné en Afke willen 1 miljoen euro om hun huis te herstellen, maar dat vindt de gemeente veel te veel](https://www.ad.nl/binnenland/rone-en-afke-willen-1-miljoen-euro-om-hun-huis-te-herstellen-maar-dat-vindt-de-gemeente-veel-te-veel~a67956e4/)
+  > Wat begon als een droom, veranderde in een nachtmerrie voor Roné en Afke van der Vliet. Hun gloednieuwe huis in Mariënheem loopt telkens vol met...
+- [Realityster Kimmylien Nguyen haalt grap uit met volgers, toch niet verloofd](https://www.ad.nl/show/realityster-kimmylien-nguyen-haalt-grap-uit-met-volgers-toch-niet-verloofd~a308f94b/)
+  > Kimmylien Nguyen heeft haar volgers en verschillende media voor de gek gehouden met een 1 aprilgrap. De realityster deelde eerder op de dag op...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Beleggers nemen opnieuw een voorschot op einde oorlog](https://fd.nl/bedrijfsleven/1591930/beleggers-nemen-opnieuw-een-voorschot-op-einde-oorlog)
+  > Beurskoersen stegen en de VIX-index, de angstgraadmeter van Wall Street, daalden naar het laagste punt in bijna twee weken.
+- [Eli Lilly krijgt goedkeuring voor dieetpil](https://fd.nl/bedrijfsleven/1591898/eli-lilly-krijgt-goedkeuring-voor-dieetpil)
+  > Er is weer een alternatief voor de injecties als Ozempic. Eerder kwam het Deense Novo Nordisk al met een dieetpil, de Wegovy-pil.
+- [SpaceX dient vertrouwelijke aanvraag voor beursgang in](https://fd.nl/bedrijfsleven/1591985/spacex-dient-vertrouwelijke-aanvraag-voor-beursgang-in)
+  > Ceo Elon Musk is ervan overtuigd dat er datacenters in de ruimte moeten worden gebouwd door de opkomst van AI. Een beursgang kan helpen die ambities...
 - [Zeven Nederlandse cloudaanbieders willen overheid alternatief bieden voor big tech](https://fd.nl/tech-en-innovatie/1591896/zeven-nederlandse-cloudaanbieders-willen-overheid-alternatief-bieden-voor-big-tech)
   > De bedrijven, waaronder KPN, Centric en Nebul, stemmen hun clouddiensten meer op elkaar af. Ze willen zo de overheid een alternatief bieden voor big...
 - [Lufthansa houdt rekening met brandstoftekorten](https://fd.nl/bedrijfsleven/1591984/lufthansa-houdt-rekening-met-brandstoftekorten)
   > De grootste luchtvaartmaatschappij van Europa werkt aan een crisisplan waarbij vliegtuigen mogelijk aan de grond blijven.
-- [Kabinet probeert onrust bij start-ups over box 3 weg te nemen](https://fd.nl/politiek/1591895/kabinet-probeert-onrust-bij-start-ups-over-box-3-weg-te-nemen)
-  > Een nieuwe definitie van wat een start-up is, moet bezwaren wegnemen. Een puntensysteem bepaalt wie voordeel krijgt. Start-uporganisaties vrezen dat...
-- [Omarm verandering bij vernieuwing van betaalsysteem](https://fd.nl/financiele-markten/1591879/omarm-verandering-bij-vernieuwing-van-betaalsysteem)
-  > iDeal houdt eind 2027 op te bestaan. De invoering van opvolger Wero zal aanvankelijk best een beetje wringen. Is dat erg of onderdeel van innovatie?...
-- [Knippen, kleuren en … slachtofferhulp: kappers ingezet tegen huiselijk geweld](https://fd.nl/samenleving/1591889/knippen-kleuren-en-slachtofferhulp-kappers-ingezet-tegen-huiselijk-geweld)
-  > In de kappersstoel komen vaak verhalen los die klanten elders niet kwijt kunnen. Die vertrouwensrelatie wil de overheid benutten in het...
 
 ### Meest gelezen
 
