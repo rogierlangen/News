@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-04-2026 om 07:19*
+*Laatst bijgewerkt: 02-04-2026 om 09:03*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- ['Gestolen gouden helm Drents Museum terecht', vanmiddag persconferentie](https://nos.nl/l/2608775)
+  > De gouden helm die vorig jaar uit het Drents Museum werd gestolen, is terecht. Dat meldt kunstdetective Arthur Brand aan de NOS. Brand kon niets...
+- [Aanbieder van warme schoollunches TommyTomato failliet verklaard](https://nos.nl/l/2608772)
+  > TommyTomato is failliet. De rechtbank in Haarlem sprak gisteren het bankroet uit. Het bedrijf verzorgde wekelijks warme lunches voor ruim 30.000...
+- [Truckers voeren actie op Afsluitdijk en A4 vanwege hoge brandstofprijzen](https://nos.nl/l/2608768)
+  > Vrachtwagenchauffeurs rijden langzaam op de Afsluitdijk en de A4 van Rotterdam naar Den Haag. Ze willen dat de politiek wat doet aan de hoge...
+- [Paus Leo XIV: traditioneler in stijl, maar qua inhoud verwant met Franciscus](https://nos.nl/l/2608767)
+  > Bijna een jaar na zijn verkiezing bereidt Leo de Veertiende zich voor op zijn eerste Pasen als paus. Vorig jaar nam hij nog deel aan de paasvieringen...
 - [Basisschool Boekel plaatst buddybankje voor als niemand wil spelen](https://nos.nl/l/2608762)
   > Op het schoolplein van OBS Uilenspiegel in Boekel staat sinds kort een buddybankje. Het bankje moet ervoor zorgen dat kinderen snel een speelmaatje...
-- [Een jaar na Trumps importheffingen, hoe staan we ervoor?](https://nos.nl/l/2608761)
-  > Vandaag een jaar geleden kondigde president Trump hoge importheffingen aan. 'Liberation Day', noemde hij het: bevrijdingsdag. De heffingen moesten de...
-- [Vakantiehuisjes een stuk duurder: 'Duitsers laten het afweten met Pasen'](https://nos.nl/l/2608757)
-  > Voor het eerst sinds jaren is er nog volop plek in Zeeuwse vakantiehuisjes met Pasen. "Het zijn vooral de Duitsers die het laten afweten," zegt Arjen...
-- [Wekdienst 2/4: Rechtszaak tegen advocaat Weski • Eerste K3 Originals-concert in Rotterdam](https://nos.nl/l/2608749)
-  > Goedemorgen! Vandaag start de inhoudelijke behandeling van de rechtszaak tegen advocaat Inez Weski en de originele K3 treedt voor het eerst weer...
-- [CBS: cao-lonen omhoog in eerste kwartaal](https://nos.nl/l/2608747)
-  > De cao-lonen stegen in het eerste kwartaal van dit jaar, meldt het Centraal Bureau voor de Statistiek (CBS). Bij bedrijven gingen de lonen meer...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Truckers vertragen verkeer op snelwegen uit protest tegen hoge brandstofprijzen](https://www.ad.nl/economie/truckers-vertragen-verkeer-op-snelwegen-uit-protest-tegen-hoge-brandstofprijzen~ad80393b/)
-  > Vrachtwagenchauffeurs protesteren donderdagochtend op verschillende snelwegen tegen de hoge brandstofprijzen. Onder meer op de Afsluitdijk, de A4 en...
-- [Oranje-spelers denken nu ook: is het veilig mijn familie naar het WK te laten komen?](https://www.ad.nl/voetbal/oranje-spelers-denken-nu-ook-is-het-veilig-mijn-familie-naar-het-wk-te-laten-komen~a0777d5b/)
-  > Columnist Vivianne Miedema zag Amnesty International deze week een waarschuwing afgeven aan Oranje-fans die komende zomer willen afreizen naar het...
-- [Strandvakantie? Deze jongeren helpen liever in Oekraïne: ‘Krijgen vaak de vraag of we gek zijn’](https://www.ad.nl/binnenland/strandvakantie-deze-jongeren-helpen-liever-in-oekraine-krijgen-vaak-de-vraag-of-we-gek-zijn~adf4ff09/)
-  > Nog voor de zon opkwam, vertrokken ze woensdag voor een rit van twintig uur naar Oekraïne. Een groep jongeren uit de Krimpenerwaard gaat daar helpen...
-- [Baby in New York overlijdt op straat door verdwaalde kogel van criminele bende: ‘De pijn is onbeschrijfelijk’](https://www.ad.nl/buitenland/baby-in-new-york-overlijdt-op-straat-door-verdwaalde-kogel-van-criminele-bende-de-pijn-is-onbeschrijfelijk~ae327c87/)
-  > Een baby van zeven maanden is in de New Yorkse wijk Brooklyn gedood door een verdwaalde kogel. Volgens de politie werd het kindje dinsdagmiddag...
-- [Kuil in sneeuw leidt skiërs naar vermiste Chinees in Alpen: camera naast lichaam onthult zijn laatste uren](https://www.ad.nl/buitenland/kuil-in-sneeuw-leidt-skiers-naar-vermiste-chinees-in-alpen-camera-naast-lichaam-onthult-zijn-laatste-uren~a15d95b4/)
-  > Het was een opvallende kuil in de sneeuw die maandagochtend de aandacht trok van een groep toerskiërs in de Dolomieten (Zuid-Tirol). Zo troffen ze...
+- [Oud-profvoetballer Kenzo Biyong debuteert bij UFC: ‘Ik wil ook ooit als bobsleeër naar de Olympische Spelen’](https://www.ad.nl/vechtsport/oud-profvoetballer-kenzo-biyong-debuteert-bij-ufc-ik-wil-ook-ooit-als-bobsleeer-naar-de-olympische-spelen~a93c7528/)
+  > De zorg voor zijn zusje maakte een abrupt einde aan de voetbaldroom van Kenzo Biyong. Maar met zijn debuut bij UFC BJJ – Braziliaans jiujitsu – is de...
+- [Grote schok na overlijden van twee leerlingen van één school: ‘Controleer telefoons van uw kinderen’](https://www.ad.nl/binnenland/grote-schok-na-overlijden-van-twee-leerlingen-van-een-school-controleer-telefoons-van-uw-kinderen~a3937fdb/)
+  > Het tragische overlijden van twee leerlingen van dezelfde middelbare school heeft diepe wonden geslagen in Rotterdam en omgeving. Slachtofferhulp...
+- [Feyenoord maakt deal officieel bekend: club en hoofdsponsor MediaMarkt door tot 2030](https://www.ad.nl/voetbal/feyenoord-maakt-deal-officieel-bekend-club-en-hoofdsponsor-mediamarkt-door-tot-2030~adc358da/)
+  > Feyenoord en hoofdsponsor MediaMarkt hebben hun contractverlenging tot 2030 bekendgemaakt. De Rotterdammers en de club lichten een optie tot 2029 en...
+- [Dit wist je niet over autisme: ‘Het is niet zichtbaar aan iemands uiterlijk’](https://www.ad.nl/gezond/dit-wist-je-niet-over-autisme-het-is-niet-zichtbaar-aan-iemands-uiterlijk~ae41ce152/)
+  > Mensen met autisme zouden niet empathisch zijn, geen sociaal contact willen en slecht tegen veranderingen kunnen. Over autisme bestaan nog altijd...
+- [Opinie: ‘Ondernemers willen eenvoud en uitvoerbaarheid in box 3-stelsel’](https://www.ad.nl/praat-mee/opinie-ondernemers-willen-eenvoud-en-uitvoerbaarheid-in-box-3-stelsel~aa3bf2ce/)
+  > Over box 3 is veel discussie. De staatssecretaris wil het huidige voorstel als uitgangspunt nemen. De minister wil terug naar de tekentafel. Erik...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Nederland loopt vast in een kluwen van complexiteit](https://fd.nl/opinie/1591788/nederland-loopt-vast-in-een-kluwen-van-complexiteit)
+  > Door jarenlange decentralisatie en regels gaat meer geld naar beheer dan naar vernieuwing. We moeten duidelijke keuzes maken welke voorzieningen we...
+- [Air France-KLM brengt bod uit op Portugese vliegmaatschappij TAP Air](https://fd.nl/bedrijfsleven/1592005/air-france-klm-brengt-bod-uit-op-portugese-vliegmaatschappij-tap-air)
+  > Ook Lufthansa en IAG brengen donderdag mogelijk een bod uit.
 - [Ebusco sluit noodlening van €27 mln af](https://fd.nl/bedrijfsleven/1591931/ebusco-sluit-noodlening-van-27-mln-af)
-  > Het bedrijf zegt verschillende aanbiedingen te overwegen die het heeft gekregen. Of dat om een gehele of gedeeltelijke overname of fusie zou gaan,...
+  > De bussenbouwer zegt verschillende aanbiedingen te overwegen die het heeft gekregen. Of dat om een gehele of gedeeltelijke overname of fusie zou...
 - [Kevin Langeree: ‘Als alles samenkomt, ervaar je in de lucht dat je lééft’](https://fd.nl/samenleving/1591784/kevin-langeree-als-alles-samenkomt-ervaar-je-in-de-lucht-dat-je-leeft)
   > The Flying Dutchman wordt hij wel genoemd. De Noordwijkse Kevin Langeree is meervoudig Nederlands kampioen, één keer wereldkampioen en drievoudig...
 - [Truckers blokkeren de Afsluitdijk uit protest tegen hoge brandstofprijzen](https://fd.nl/politiek/1592004/truckers-blokkeren-de-afsluitdijk-uit-protest-tegen-brandstofprijzen)
   > Zo’n vijftien vrachtwagenchauffeurs verzamelden zich rond 06.00 uur bij de afsluitdijk. Sindsdien rijden zij langzaam over de weg.
-- [Reële lonen nemen voor tiende kwartaal op rij toe](https://fd.nl/economie/1592003/reele-lonen-nemen-voor-tiende-kwartaal-op-rij-toe)
-  > De cao-lonen zijn in Nederland het afgelopen jaar met 4,5% gestegen. Na correctie voor inflatie blijft een loonstijging van 2% over.
-- [Live: AEX opent ruim 1% lager, Air France-KLM hardste daler in Midkap](https://fd.nl/financiele-markten/1592002/live-aziatische-markten-onderuit-na-trumps-toespraak-olie-bijna-7-hoger)
-  > De AEX is 1,2% lager van start gegaan vanochtend. Shell is de weinig verrassende winnaar, bij een olieprijs die 6% hoger staat.
 
 ### Meest gelezen
 
