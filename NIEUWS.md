@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-04-2026 om 05:06*
+*Laatst bijgewerkt: 02-04-2026 om 07:19*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Basisschool Boekel plaatst buddybankje voor als niemand wil spelen](https://nos.nl/l/2608762)
+  > Op het schoolplein van OBS Uilenspiegel in Boekel staat sinds kort een buddybankje. Het bankje moet ervoor zorgen dat kinderen snel een speelmaatje...
+- [Een jaar na Trumps importheffingen, hoe staan we ervoor?](https://nos.nl/l/2608761)
+  > Vandaag een jaar geleden kondigde president Trump hoge importheffingen aan. 'Liberation Day', noemde hij het: bevrijdingsdag. De heffingen moesten de...
+- [Vakantiehuisjes een stuk duurder: 'Duitsers laten het afweten met Pasen'](https://nos.nl/l/2608757)
+  > Voor het eerst sinds jaren is er nog volop plek in Zeeuwse vakantiehuisjes met Pasen. "Het zijn vooral de Duitsers die het laten afweten," zegt Arjen...
 - [Wekdienst 2/4: Rechtszaak tegen advocaat Weski • Eerste K3 Originals-concert in Rotterdam](https://nos.nl/l/2608749)
   > Goedemorgen! Vandaag start de inhoudelijke behandeling van de rechtszaak tegen advocaat Inez Weski en de originele K3 treedt voor het eerst weer...
 - [CBS: cao-lonen omhoog in eerste kwartaal](https://nos.nl/l/2608747)
   > De cao-lonen stegen in het eerste kwartaal van dit jaar, meldt het Centraal Bureau voor de Statistiek (CBS). Bij bedrijven gingen de lonen meer...
-- [Bumperkleven en afsnijden: rijscholen ervaren meer agressie tegen lesauto's](https://nos.nl/l/2608746)
-  > Van bumperkleven en toeteren tot gevaarlijk inhalen en afsnijden. Rij-instructeurs zien steeds vaker agressie van andere weggebruikers tijdens...
-- [Trump claimt successen in oorlog tegen Iran en herhaalt: 'Nog twee of drie weken'](https://nos.nl/l/2608741)
-  > President Trump heeft opnieuw gezegd dat de oorlog tegen Iran bijna voorbij is. "We zijn dicht bij het klaren van de klus", zei hij in een toespraak...
-- [Slachtoffer van seriemoordenaar Ted Bundy bevestigd door DNA-onderzoek](https://nos.nl/l/2608740)
-  > Dankzij nieuwe DNA-technieken hebben politieonderzoekers in de VS een tot nu toe onopgeloste moord kunnen toeschrijven aan seriemoordenaar Ted Bundy....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Jury betrapt Filippo Ganna op ‘plakbidon’, maar Italiaan mag zege in Dwars voor Vlaanderen houden](https://www.ad.nl/wielrennen/jury-betrapt-filippo-ganna-op-plakbidon-maar-italiaan-mag-zege-in-dwars-voor-vlaanderen-houden~a64f250f/)
-  > Filippo Ganna won woensdag op fraaie wijze Dwars door Vlaanderen, door in de laatste meters over thuisfavoriet Wout van Aert heen te denderen. De...
-- [Meerderheid spaarders: Beleg centen niet in porno- en gokindustrie](https://www.ad.nl/economie/meerderheid-spaarders-beleg-centen-niet-in-porno-en-gokindustrie~a3738976/)
-  > Een meerderheid van de spaarders wil niet dat banken hun spaargeld investeren in gokbedrijven of de porno-industrie. Wel tonen mannen en vrouwen...
-- [Acteur Daniël Gellvoet over pesterijen, asperger en liefde: ‘Ik voelde me thuiskomen bij mijn eerste tongzoen’](https://www.ad.nl/show/acteur-daniel-gellvoet-over-pesterijen-asperger-en-liefde-ik-voelde-me-thuiskomen-bij-mijn-eerste-tongzoen~aaadfc1d/)
-  > Voor acteur Daniël Gellvoet (45) is het dagelijks leven vaak een mijnenveld van prikkels en ongeschreven regels. In de nieuwe bioscoopfilm Kain...
-- [Bijna recordaantal aanvragen voor lening om woning de verduurzamen](https://www.ad.nl/wonen/bijna-recordaantal-aanvragen-voor-lening-om-woning-de-verduurzamen~a3a02e11/)
-  > Het aantal mensen dat geld wil lenen om hun huis te verduurzamen, stijgt verder. Het Nationaal Warmtefonds zag 73 procent meer aanvragen in maart...
-- [Trumps toespraak brengt weinig nieuws en stelt allerminst gerust: waar is het eindplan?](https://www.ad.nl/buitenland/trumps-toespraak-brengt-weinig-nieuws-en-stelt-allerminst-gerust-waar-is-het-eindplan~ac680c0f/)
-  > In zijn prime time-toespraak probeerde de Amerikaanse president Donald Trump de wereld gerust te stellen: de oorlog met Iran is bijna voorbij....
+- [Truckers vertragen verkeer op snelwegen uit protest tegen hoge brandstofprijzen](https://www.ad.nl/economie/truckers-vertragen-verkeer-op-snelwegen-uit-protest-tegen-hoge-brandstofprijzen~ad80393b/)
+  > Vrachtwagenchauffeurs protesteren donderdagochtend op verschillende snelwegen tegen de hoge brandstofprijzen. Onder meer op de Afsluitdijk, de A4 en...
+- [Oranje-spelers denken nu ook: is het veilig mijn familie naar het WK te laten komen?](https://www.ad.nl/voetbal/oranje-spelers-denken-nu-ook-is-het-veilig-mijn-familie-naar-het-wk-te-laten-komen~a0777d5b/)
+  > Columnist Vivianne Miedema zag Amnesty International deze week een waarschuwing afgeven aan Oranje-fans die komende zomer willen afreizen naar het...
+- [Strandvakantie? Deze jongeren helpen liever in Oekraïne: ‘Krijgen vaak de vraag of we gek zijn’](https://www.ad.nl/binnenland/strandvakantie-deze-jongeren-helpen-liever-in-oekraine-krijgen-vaak-de-vraag-of-we-gek-zijn~adf4ff09/)
+  > Nog voor de zon opkwam, vertrokken ze woensdag voor een rit van twintig uur naar Oekraïne. Een groep jongeren uit de Krimpenerwaard gaat daar helpen...
+- [Baby in New York overlijdt op straat door verdwaalde kogel van criminele bende: ‘De pijn is onbeschrijfelijk’](https://www.ad.nl/buitenland/baby-in-new-york-overlijdt-op-straat-door-verdwaalde-kogel-van-criminele-bende-de-pijn-is-onbeschrijfelijk~ae327c87/)
+  > Een baby van zeven maanden is in de New Yorkse wijk Brooklyn gedood door een verdwaalde kogel. Volgens de politie werd het kindje dinsdagmiddag...
+- [Kuil in sneeuw leidt skiërs naar vermiste Chinees in Alpen: camera naast lichaam onthult zijn laatste uren](https://www.ad.nl/buitenland/kuil-in-sneeuw-leidt-skiers-naar-vermiste-chinees-in-alpen-camera-naast-lichaam-onthult-zijn-laatste-uren~a15d95b4/)
+  > Het was een opvallende kuil in de sneeuw die maandagochtend de aandacht trok van een groep toerskiërs in de Dolomieten (Zuid-Tirol). Zo troffen ze...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Live: Aziatische markten onderuit na Trumps toespraak, olie bijna 7% hoger](https://fd.nl/financiele-markten/1592002/live-aziatische-markten-onderuit-na-trumps-toespraak-olie-bijna-7-hoger)
-  > De woorden van de Amerikaanse president zetten de markten opnieuw in beweging, nu in tegengestelde richting als woensdag. Een vat Brent-olie kost...
-- [Trump praat olieprijs omhoog in oorlogszuchtige speech](https://fd.nl/politiek/1592001/trump-praat-olieprijs-omhoog-in-oorlogszuchtige-speech)
-  > Amerikaanse president laat zich niet uit over einde aan oorlog in agressieve speech. Beurzen in Azië dalen, terwijl de olieprijs hard stijgt.
-- [Fascisme-expert: ‘Kijk goed naar Trump. En beslis dan of u ook zo’n leider wilt’](https://fd.nl/politiek/1591780/fascisme-expert-kijk-goed-naar-trump-en-beslis-dan-of-u-ook-zon-leider-wilt)
-  > Populisme schurkt meer en meer tegen het fascisme aan. Wie hecht aan de democratie moet volgens fascisme-expert Federico Finchelstein stoppen met het...
-- [Belastingboefjes hebben het steeds moeilijker](https://fd.nl/economie/1591977/belastingboefjes-hebben-het-steeds-moeilijker)
-  > Vandaag in Dagkoers: spectaculaire stijging verkoop elektrische auto’s, Frankrijk zet vol in op kernenergie & wereldwijde belastingontduiking is...
-- [Een jaar later](https://fd.nl/opinie/1591897/een-jaar-later)
-  > Met zijn importheffingen is het Trump gelukkig niet gelukt de wereldeconomie te slopen – al doet hij nu alsnog een poging – maar van alle beloftes...
+- [Ebusco sluit noodlening van €27 mln af](https://fd.nl/bedrijfsleven/1591931/ebusco-sluit-noodlening-van-27-mln-af)
+  > Het bedrijf zegt verschillende aanbiedingen te overwegen die het heeft gekregen. Of dat om een gehele of gedeeltelijke overname of fusie zou gaan,...
+- [Kevin Langeree: ‘Als alles samenkomt, ervaar je in de lucht dat je lééft’](https://fd.nl/samenleving/1591784/kevin-langeree-als-alles-samenkomt-ervaar-je-in-de-lucht-dat-je-leeft)
+  > The Flying Dutchman wordt hij wel genoemd. De Noordwijkse Kevin Langeree is meervoudig Nederlands kampioen, één keer wereldkampioen en drievoudig...
+- [Truckers blokkeren de Afsluitdijk uit protest tegen hoge brandstofprijzen](https://fd.nl/politiek/1592004/truckers-blokkeren-de-afsluitdijk-uit-protest-tegen-brandstofprijzen)
+  > Zo’n vijftien vrachtwagenchauffeurs verzamelden zich rond 06.00 uur bij de afsluitdijk. Sindsdien rijden zij langzaam over de weg.
+- [Reële lonen nemen voor tiende kwartaal op rij toe](https://fd.nl/economie/1592003/reele-lonen-nemen-voor-tiende-kwartaal-op-rij-toe)
+  > De cao-lonen zijn in Nederland het afgelopen jaar met 4,5% gestegen. Na correctie voor inflatie blijft een loonstijging van 2% over.
+- [Live: AEX opent ruim 1% lager, Air France-KLM hardste daler in Midkap](https://fd.nl/financiele-markten/1592002/live-aziatische-markten-onderuit-na-trumps-toespraak-olie-bijna-7-hoger)
+  > De AEX is 1,2% lager van start gegaan vanochtend. Shell is de weinig verrassende winnaar, bij een olieprijs die 6% hoger staat.
 
 ### Meest gelezen
 
