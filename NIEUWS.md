@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-04-2026 om 09:03*
+*Laatst bijgewerkt: 02-04-2026 om 10:55*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- ['Gestolen gouden helm Drents Museum terecht', vanmiddag persconferentie](https://nos.nl/l/2608775)
-  > De gouden helm die vorig jaar uit het Drents Museum werd gestolen, is terecht. Dat meldt kunstdetective Arthur Brand aan de NOS. Brand kon niets...
+- [Weski ontkent opnieuw tijdens behandeling van haar strafzaak](https://nos.nl/l/2608784)
+  > Oud-advocaat Inez Weski blijft ontkennen dat ze criminele berichten heeft doorgespeeld van en naar Ridouan Taghi. Haar zaak wordt vanaf vandaag...
+- [Veel animo voor fietsen nu IJsselbrug op drukke A12 deels dichtgaat](https://nos.nl/l/2608781)
+  > Er is veel belangstelling voor fietsen nu een deel van de IJsselbruggen op de A12 bij Westervoort dichtgaat voor groot onderhoud. Veel mensen zoeken...
+- [Tijdelijk verbod op vervuilende staalslakken verlengd](https://nos.nl/l/2608779)
+  > Het tijdelijke, gedeeltelijke verbod op het gebruik van staalslakken wordt met een half jaar verlengd. Dat schrijft staatssecretaris Bertram (CDA) in...
+- [Gestolen gouden helm Drents Museum terecht, vanmiddag persconferentie](https://nos.nl/l/2608775)
+  > De gouden helm die vorig jaar uit het Drents Museum werd gestolen, is terecht. Dat meldt het Roemeense ministerie van Buitenlandse Zaken aan...
 - [Aanbieder van warme schoollunches TommyTomato failliet verklaard](https://nos.nl/l/2608772)
   > TommyTomato is failliet. De rechtbank in Haarlem sprak gisteren het bankroet uit. Het bedrijf verzorgde wekelijks warme lunches voor ruim 30.000...
-- [Truckers voeren actie op Afsluitdijk en A4 vanwege hoge brandstofprijzen](https://nos.nl/l/2608768)
-  > Vrachtwagenchauffeurs rijden langzaam op de Afsluitdijk en de A4 van Rotterdam naar Den Haag. Ze willen dat de politiek wat doet aan de hoge...
-- [Paus Leo XIV: traditioneler in stijl, maar qua inhoud verwant met Franciscus](https://nos.nl/l/2608767)
-  > Bijna een jaar na zijn verkiezing bereidt Leo de Veertiende zich voor op zijn eerste Pasen als paus. Vorig jaar nam hij nog deel aan de paasvieringen...
-- [Basisschool Boekel plaatst buddybankje voor als niemand wil spelen](https://nos.nl/l/2608762)
-  > Op het schoolplein van OBS Uilenspiegel in Boekel staat sinds kort een buddybankje. Het bankje moet ervoor zorgen dat kinderen snel een speelmaatje...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Oud-profvoetballer Kenzo Biyong debuteert bij UFC: ‘Ik wil ook ooit als bobsleeër naar de Olympische Spelen’](https://www.ad.nl/vechtsport/oud-profvoetballer-kenzo-biyong-debuteert-bij-ufc-ik-wil-ook-ooit-als-bobsleeer-naar-de-olympische-spelen~a93c7528/)
-  > De zorg voor zijn zusje maakte een abrupt einde aan de voetbaldroom van Kenzo Biyong. Maar met zijn debuut bij UFC BJJ – Braziliaans jiujitsu – is de...
-- [Grote schok na overlijden van twee leerlingen van één school: ‘Controleer telefoons van uw kinderen’](https://www.ad.nl/binnenland/grote-schok-na-overlijden-van-twee-leerlingen-van-een-school-controleer-telefoons-van-uw-kinderen~a3937fdb/)
-  > Het tragische overlijden van twee leerlingen van dezelfde middelbare school heeft diepe wonden geslagen in Rotterdam en omgeving. Slachtofferhulp...
-- [Feyenoord maakt deal officieel bekend: club en hoofdsponsor MediaMarkt door tot 2030](https://www.ad.nl/voetbal/feyenoord-maakt-deal-officieel-bekend-club-en-hoofdsponsor-mediamarkt-door-tot-2030~adc358da/)
-  > Feyenoord en hoofdsponsor MediaMarkt hebben hun contractverlenging tot 2030 bekendgemaakt. De Rotterdammers en de club lichten een optie tot 2029 en...
-- [Dit wist je niet over autisme: ‘Het is niet zichtbaar aan iemands uiterlijk’](https://www.ad.nl/gezond/dit-wist-je-niet-over-autisme-het-is-niet-zichtbaar-aan-iemands-uiterlijk~ae41ce152/)
-  > Mensen met autisme zouden niet empathisch zijn, geen sociaal contact willen en slecht tegen veranderingen kunnen. Over autisme bestaan nog altijd...
-- [Opinie: ‘Ondernemers willen eenvoud en uitvoerbaarheid in box 3-stelsel’](https://www.ad.nl/praat-mee/opinie-ondernemers-willen-eenvoud-en-uitvoerbaarheid-in-box-3-stelsel~aa3bf2ce/)
-  > Over box 3 is veel discussie. De staatssecretaris wil het huidige voorstel als uitgangspunt nemen. De minister wil terug naar de tekentafel. Erik...
+- [Historisch slechte seizoensstart Max Verstappen het gevolg van titelstrijd in 2025? ‘Daar betalen we nu de prijs voor’](https://www.ad.nl/formule-1/historisch-slechte-seizoensstart-max-verstappen-het-gevolg-van-titelstrijd-in-2025-daar-betalen-we-nu-de-prijs-voor~a8183dbd1/)
+  > Red Bull ondervindt de gevolgen van een strategische keuze die vorig seizoen werd gemaakt. Dat is tenminste de conclusie van teambaas Laurent Mekies....
+- [Verslaggever Victor op weg naar Assen: ‘Nederland wordt een afgang bespaard met vondst van de helm’](https://www.ad.nl/binnenland/verslaggever-victor-op-weg-naar-assen-nederland-wordt-een-afgang-bespaard-met-vondst-van-de-helm~ad8887fe/)
+  > Groot nieuws vanuit Assen, waar het Openbaar Ministerie vanmiddag om 14.00 uur een persconferentie geeft over de Drentse kunstroof. Vijf vragen aan...
+- [Mario Götze langer bij Frankfurt, doelman Simon Mignolet kondigt voetbalpensioen aan](https://www.ad.nl/voetbal/mario-gotze-langer-bij-frankfurt-doelman-simon-mignolet-kondigt-voetbalpensioen-aan~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Praat mee: als we postbezorging willen behouden, is het logisch dat rouwpost duurder wordt](https://www.ad.nl/praat-mee/praat-mee-als-we-postbezorging-willen-behouden-is-het-logisch-dat-rouwpost-duurder-wordt~abf27c3c/)
+  > Wie een brief of rouwkaart binnen 24 uur bezorgd wil hebben, is vanaf juli flink duurder uit. Er zullen dan enkele euro’s per poststuk betaald moeten...
+- [Leeftijdsgenootjes filmen die in al hun wanhoop dodelijke beslissing nemen, welke verklaring is daarvoor?](https://www.ad.nl/binnenland/leeftijdsgenootjes-filmen-die-in-al-hun-wanhoop-dodelijke-beslissing-nemen-welke-verklaring-is-daarvoor~ab0561ee/)
+  > Waar komt toch die weerzinwekkende neiging vandaan bij jongeren - en bij volwassenen trouwens ook steeds vaker - om alles maar te willen filmen,...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Nederland loopt vast in een kluwen van complexiteit](https://fd.nl/opinie/1591788/nederland-loopt-vast-in-een-kluwen-van-complexiteit)
-  > Door jarenlange decentralisatie en regels gaat meer geld naar beheer dan naar vernieuwing. We moeten duidelijke keuzes maken welke voorzieningen we...
-- [Air France-KLM brengt bod uit op Portugese vliegmaatschappij TAP Air](https://fd.nl/bedrijfsleven/1592005/air-france-klm-brengt-bod-uit-op-portugese-vliegmaatschappij-tap-air)
-  > Ook Lufthansa en IAG brengen donderdag mogelijk een bod uit.
-- [Ebusco sluit noodlening van €27 mln af](https://fd.nl/bedrijfsleven/1591931/ebusco-sluit-noodlening-van-27-mln-af)
-  > De bussenbouwer zegt verschillende aanbiedingen te overwegen die het heeft gekregen. Of dat om een gehele of gedeeltelijke overname of fusie zou...
-- [Kevin Langeree: ‘Als alles samenkomt, ervaar je in de lucht dat je lééft’](https://fd.nl/samenleving/1591784/kevin-langeree-als-alles-samenkomt-ervaar-je-in-de-lucht-dat-je-leeft)
-  > The Flying Dutchman wordt hij wel genoemd. De Noordwijkse Kevin Langeree is meervoudig Nederlands kampioen, één keer wereldkampioen en drievoudig...
-- [Truckers blokkeren de Afsluitdijk uit protest tegen hoge brandstofprijzen](https://fd.nl/politiek/1592004/truckers-blokkeren-de-afsluitdijk-uit-protest-tegen-brandstofprijzen)
-  > Zo’n vijftien vrachtwagenchauffeurs verzamelden zich rond 06.00 uur bij de afsluitdijk. Sindsdien rijden zij langzaam over de weg.
+- [Overleg en papierwerk slokken één dag per week op bij werknemers](https://fd.nl/bedrijfsleven/1591939/overleg-en-papierwerk-slokken-een-dag-per-week-op-bij-werknemers)
+  > Rond de 9% van de werknemers geeft aan dat niet-kerntaken een externe herkomst hebben, zoals wet- en regelgeving.
+- [AEX-bedrijven absorbeerden Amerikaanse importheffingen met gemak](https://fd.nl/bedrijfsleven/1592000/aex-bedrijven-absorbeerden-amerikaanse-importheffingen-met-gemak)
+  > Bedrijven aan de Amsterdamse beurs hebben weinig last van de importheffingen die onder Donald Trump zijn ingevoerd. Slechts in een enkel geval was er...
+- [Zwarte Mozart, witte Mandela](https://fd.nl/samenleving/1591791/zwarte-mozart-witte-mandela)
+  > Zijn woke methoden effectief bij het streven naar rechtvaardigheid? Joris van Os betwijfelt het.
+- [Na Trumps Groenland-dreigement kijken IJslanders met andere ogen naar de EU](https://fd.nl/politiek/1591775/inflatie-en-trump-blazen-eu-debat-in-ijsland-nieuw-leven-in)
+  > Reykjavik houdt op 29 augustus een referendum over het hervatten van de lidmaatschapsgesprekken met Brussel. Die liggen al tien jaar stil.
+- [Financiële zorgen Vesteda nemen toe nu steun obligatiehouders ontbreekt](https://fd.nl/financiele-markten/1591932/financiele-zorgen-vesteda-nemen-toe-nu-steun-obligatiehouders-ontbreekt)
+  > De grootste woningbelegger van Nederland heeft te weinig steun gekregen van zijn obligatiehouders voor een voorstel dat moet voorkomen dat zij hun...
 
 ### Meest gelezen
 
