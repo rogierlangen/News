@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-04-2026 om 17:00*
+*Laatst bijgewerkt: 02-04-2026 om 17:56*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Fors meer kabels en transformatorhuisjes, maar wachtlijsten stroomnet groeien](https://nos.nl/l/2608832)
-  > Er werd vorig jaar hard gewerkt aan het stroomnet: netbeheerders legden 4500 kilometer aan stroomkabels, bouwden ruim 2000 transformatorhuisjes en...
-- [Europarlementariër Hassan in Parijs verhoord om solidariteit met Japanse terrorist](https://nos.nl/l/2608828)
-  > De Frans-Palestijnse Europarlementariër Rima Hassan is vandaag in Parijs opgepakt en ondervraagd vanwege een bericht dat zij op haar sociale media...
-- [Roep in politiek om verbod op delen slachtofferbeelden na zelfdodingen Capelle](https://nos.nl/l/2608825)
-  > Na de zelfdoding van twee scholieren in Capelle aan den IJssel neemt in politiek Den Haag de roep weer toe om snel te komen tot een verbod op het...
-- [Duitser die Poetin bespotte met carnavalskar bij verstek veroordeeld in Rusland](https://nos.nl/l/2608821)
-  > De Duitse carnavalskunstenaar Jacques Tilly is in Rusland bij verstek veroordeeld voor het afbeelden van president Poetin op carnavalswagens in...
-- [Vondst eeuwenoud oorlogsschip werpt mogelijk nieuw licht op Deense geschiedenis](https://nos.nl/l/2608819)
-  > Archeologen in Denemarken hebben in Kopenhagen een belangrijke historische vondst gepresenteerd: op de donkere zeebodem bij de Deense hoofdstad...
+- [Naast militairen ook moeders in actie tegen bendegeweld Kaapstad: 'Oprotten'](https://nos.nl/l/2608843)
+  > In de buitenwijken van Kaapstad in Zuid-Afrika, weg van de toeristische stranden en hippe koffietentjes, is moord de dagelijkse realiteit. In buurten...
+- [Correspondent Geert Groot Koerkamp mag niet langer in Rusland werken](https://nos.nl/l/2608842)
+  > Correspondent Geert Groot Koerkamp kan niet langer in Rusland werken als journalist. De Russische overheid heeft vandaag zijn persaccreditatie...
+- [Illegale slachterij ontdekt in Limburgs dorp America](https://nos.nl/l/2608839)
+  > Bij een controle in het buitengebied van het Limburgse dorp America is een illegale slachterij ontdekt. Er stonden vier volwassen vleesvarkens zonder...
+- [Nieuwe race naar de maan: wat is het doel van Artemis II?](https://nos.nl/l/2608837)
+  > Voor het eerst sinds 1972 is de mens weer fysiek op weg naar de maan. De drie Amerikanen Reid Wiseman (50), Victor Glover (49) en Christina Koch (47)...
+- [President Trump ontslaat Amerikaanse minister van Justitie Bondi](https://nos.nl/l/2608836)
+  > De Amerikaanse president Trump heeft minister van Justitie Pam Bondi ontslagen, zo heeft een woordvoerder van het Witte Huis laten weten. De stap...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Midden-Oosten | Nederland wil militaire bijdrage leveren aan heropenen Straat van Hormuz](https://www.ad.nl/buitenland/live-midden-oosten-nederland-wil-militaire-bijdrage-leveren-aan-heropenen-straat-van-hormuz~ac528ac3/)
-  > Nederland is bereid een militaire bijdrage te leveren om de vrije doorvaart in de Straat van Hormuz weer mogelijk te maken, maar pas na het...
-- [Jan Bauer en vriendin Danique verwelkomen zoon eerder dan verwacht: ‘Zó welkom en geliefd’](https://www.ad.nl/show/jan-bauer-en-vriendin-danique-verwelkomen-zoon-eerder-dan-verwacht-zo-welkom-en-geliefd~a89cfffc/)
-  > Frans Bauer kan zichzelf eindelijk opa noemen. Zoon Jan (24) en zijn vriendin Danique zijn namelijk ouders geworden van hun eerste kindje. Dat is een...
-- [Russische Nobelprijswinnaar: 'Poetin gedraagt zich als een roofdier dat niet vanzelf zal stoppen'](https://www.ad.nl/buitenland/russische-nobelprijswinnaar-poetin-gedraagt-zich-als-een-roofdier-dat-niet-vanzelf-zal-stoppen~ac68d5a7/)
-  > Mensenrechtenactivist Sergej Davidis vluchtte uit Rusland, zag medestanders als Aleksej Navalny en Boris Nemtsov door het regime van Poetin vermoord...
-- [Mensen bellen meldkamer plat, gemeente haalt nep-drugsdumping snel weg](https://www.ad.nl/leusden/mensen-bellen-meldkamer-plat-gemeente-haalt-nep-drugsdumping-snel-weg~ad0351a9/)
-  > De gemeente Leusden wilde mensen bewust maken van drugsdumpingen en aansporen verdachte situaties te melden, door in het buitengebied een nepdumping...
-- [Dit is waarom Zendaya haar huwelijk met Tom Holland niet gaat bevestigen](https://www.ad.nl/show/dit-is-waarom-zendaya-haar-huwelijk-met-tom-holland-niet-gaat-bevestigen~ad9d5051/)
-  > Zijn ze nu wel of niet getrouwd? Die vraag gaan Zendaya (29) en Tom Holland (29) waarschijnlijk nooit beantwoorden. In de podcast Modern Love van The...
+- [LIVE Premier League darts | Michael van Gerwen begint tegen Bunting in Manchester, Van Veen treft Littler](https://www.ad.nl/darts/live-premier-league-darts-michael-van-gerwen-begint-tegen-bunting-in-manchester-van-veen-treft-littler~a58d8fa4/)
+  > De Premier League darts is na uitstapjes in Dublin en Berlijn weer terug in Engeland. De negende speelronde wordt afgewerkt in Manchester. Michael...
+- [NOS-correspondent Geert Groot Koerkamp mag niet langer journalistiek werk verrichten in Rusland](https://www.ad.nl/binnenland/nos-correspondent-geert-groot-koerkamp-mag-niet-langer-journalistiek-werk-verrichten-in-rusland~aa3c0d14/)
+  > Rusland-correspondent Geert Groot Koerkamp mag niet langer journalistiek werk verrichten in het land. De Russische overheid heeft zijn...
+- [Voorspel de winnaar van de Ronde van Vlaanderen en win een cadeaukaart van 250 euro!](https://www.ad.nl/wielrennen/voorspel-de-winnaar-van-de-ronde-van-vlaanderen-en-win-een-cadeaukaart-van-250-euro~a86cc1eb/)
+  > Wat een deelnemersveld tijdens de Ronde van Vlaanderen komende zondag! Lukt het Mathieu van der Poel, Wout van Aert of Remco Evenepoel om Tadej...
+- [OM eist 4,5 jaar cel tegen Weski: ‘Speelde cruciale rol in criminele organisatie van Taghi’](https://www.ad.nl/binnenland/om-eist-4-5-jaar-cel-tegen-weski-speelde-cruciale-rol-in-criminele-organisatie-van-taghi~a934a629/)
+  > Het Openbaar Ministerie (OM) eist een celstraf van 4,5 jaar tegen Inez Weski (71). Het komt als een klap voor de ex-advocaat, die zich tijdens de...
+- [Oud-Ajacied Danny Hoesen (35) openhartig over overlijden vriendin: ‘Het was pure pijn’](https://www.ad.nl/voetbal/oud-ajacied-danny-hoesen-35-openhartig-over-overlijden-vriendin-het-was-pure-pijn~a78b20f4/)
+  > Oud-Ajacied Danny Hoesen heeft voor het eerst verteld over het verlies van zijn vriendin, tevens de moeder van zijn twee kinderen. In 2024 stapte zij...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Trump ontslaat justitieminister Pam Bondi](https://fd.nl/politiek/1591959/trump-ontslaat-justitieminister-pam-bondi)
+  > Volgens ingewijden vond Trump dat Bondi onvoldoende optrad tegen critici van hem die hij strafrechtelijk wilde vervolgen.
+- [Aperam bevestigt verwachtingen ondanks hogere energieprijzen](https://fd.nl/bedrijfsleven/1591958/aperam-bevestigt-verwachtingen-ondanks-hogere-energieprijzen)
+  > Roestvrijstaalproducent Aperam gaat uit van een stijging van het aangepaste brutobedrijfsresultaat in het eerste kwartaal van 2026.
+- [Amerikaanse rechter veegt miljardenclaim tegen Argentinië van tafel](https://fd.nl/economie/1592037/amerikaanse-rechter-veegt-miljardenclaim-tegen-argentinie-van-tafel)
+  > De uitspraak is een grote opluchting voor president Javier Milei. De claim stond gelijk aan bijna de helft van de Argentijnse begroting. Ook dreigde...
 - [Tweede Kamer stemt in met vertaling van Europees migratiepact](https://fd.nl/politiek/1591956/tweede-kamer-stemt-in-met-vertaling-van-europees-migratiepact)
-  > Het pact moet de asielregels in de EU gelijktrekken, de buitengrenzen versterken en het aantal asielzoekers verminderen.
+  > Het Europees migratiepact moet de asielregels in de EU gelijktrekken, de buitengrenzen versterken en het aantal asielzoekers verminderen.
 - [Auto-onderdelenfabrikant LKQ Europe neemt bedrijf uit Almelo over](https://fd.nl/bedrijfsleven/1591955/auto-onderdelenfabrikant-lkq-europe-neemt-bedrijf-uit-almelo-over)
   > Met de overname van Actronics versterkt LKQ Europe zijn expertise in elektronische onderdelen.
-- [4,5 jaar cel geëist tegen oud-advocaat Inez Weski](https://fd.nl/samenleving/1591951/4-5-jaar-cel-geeist-tegen-oud-advocaat-inez-weski)
-  > Weski zou instructies over drugshandel en banktransacties hebben doorgespeeld naar de oudste zoon van ex-cliënt Ridouan Taghi.
-- [Aanvoer van kerosine droogt op: laatste tanker naar Rotterdam](https://fd.nl/economie/1591890/aanvoer-van-kerosine-droogt-op-laatste-tanker-naar-rotterdam)
-  > Luchtvaartmaatschappijen wereldwijd zetten zich schrap voor een tekort aan vliegtuigbrandstof. Sommige zitten al in ‘crisismodus’.
-- [Beleggers opnieuw blind voor zweepslageffect, ‘klap van Iran-oorlog komt nog’](https://fd.nl/financiele-markten/1591944/beleggers-opnieuw-blind-voor-zweepslageffect-klap-van-iran-oorlog-komt-nog)
-  > De ontwrichting door de sluiting van de Straat van Hormuz wordt de komende maanden pas echt voelbaar, zeggen deskundigen. De vrees voor brede...
 
 ### Meest gelezen
 
