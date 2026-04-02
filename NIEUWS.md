@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-04-2026 om 22:36*
+*Laatst bijgewerkt: 02-04-2026 om 23:39*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Agenten op Aruba veroordeeld tot celstraffen om doodschieten tiener](https://nos.nl/l/2608868)
+  > Op Aruba zijn twee politieagenten veroordeeld tot celstraffen voor het doodschieten van de 19-jarige Ayden de Lanoy na een politieachtervolging. Ze...
+- [Avond vol nostalgie bij reünie K3: 'Alsof we weer 7 jaar oud waren'](https://nos.nl/l/2608867)
+  > Met roze boa's, roodharige pruiken en de iconische Oya lélé-outfits stond vanavond de originele samenstelling van K3 voor het eerst sinds 2009 weer...
 - [Nachttrein Zwolle-Schiphol niet rendabel: 'Zonder garanties niet kostendekkend'](https://nos.nl/l/2608866)
   > De nachttrein die sinds vorig jaar rijdt tussen Zwolle en de Randstad, komt niet uit de kosten. Uit een eerste analyse die vervoerder Arriva heeft...
 - [Omroep Brabant niet welkom op Paaspop na berichten over kaartverkoop](https://nos.nl/l/2608865)
   > Omroep Brabant mag dit jaar geen verslag doen van Paaspop. De festivalorganisatie heeft besloten om de eerder verstrekte accreditaties in te trekken....
 - [Potentiële coalitie met Nederland wil zeemissie bij Iran, maar pas na oorlog](https://nos.nl/l/2608864)
   > Tientallen landen hebben na overleg samen geëist dat Iran de Straat van Hormuz vrijgeeft. Een deel van deze groep, waaronder Nederland, overweegt mee...
-- [Schadevergoeding van 500 of 2000 euro voor studenten vanwege discriminatie DUO](https://nos.nl/l/2608857)
-  > Het kabinet gaat een schadevergoeding uitkeren aan mensen die in hun studententijd gediscrimineerd zijn bij controles van de Dienst Uitvoering...
-- [Geen droog paasweekend, maar dinsdag veel zon en hogere temperaturen](https://nos.nl/l/2608855)
-  > Het komende paasweekend zal wat het weer betreft wat wisselend verlopen. Er komen geen grote hoeveelheden regen op ons af, maar helemaal droog blijft...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Rapport Arriva: nachttrein tussen Schiphol en Lelystad niet rendabel](https://www.ad.nl/binnenland/rapport-arriva-nachttrein-tussen-schiphol-en-lelystad-niet-rendabel~a58847ed/)
+  > De proef met een Arriva-nachttrein die op vrijdag- en zaterdagnacht van Schiphol naar Zwolle en terug rijdt is voor het eerste deel van het traject...
+- [De Hypotheker: huizenkopers terughoudend door stijgende rente](https://www.ad.nl/economie/de-hypotheker-huizenkopers-terughoudend-door-stijgende-rente~acd702ff/)
+  > Huizenkopers zijn terughoudend nu de hypotheekrente door de oorlog in het Midden-Oosten omhooggaat. Hypotheekadviseur De Hypotheker ziet daardoor dat...
+- [Voetbalpodcast | ‘Paspoortgate loopt toch een beetje met een sisser af’](https://www.ad.nl/voetbal/voetbalpodcast-paspoortgate-loopt-toch-een-beetje-met-een-sisser-af~ac8603a9/)
+  > Paspoortgate in de eredivisie lijkt me een sisser af te lopen voor de meeste spelers. NEC kan dit weekend bijvoorbeeld beschikken over Tjaron Cherry....
 - [Stafchef Amerikaans leger stapt per direct op, Trump ontslaat justitieminister Pam Bondi na kritiek op afhandeling Epstein-zaak](https://www.ad.nl/buitenland/stafchef-amerikaans-leger-stapt-per-direct-op-trump-ontslaat-justitieminister-pam-bondi-na-kritiek-op-afhandeling-epstein-zaak~ae67dd9c/)
   > De stafchef van het Amerikaanse leger Randy George treedt met onmiddellijke ingang af. Dat meldt een woordvoerder van het Pentagon donderdag op X....
 - [Gian van Veen verslaat furieuze Luke Littler in ‘zijn’ Manchester: ‘Hij is geen goede verliezer’](https://www.ad.nl/darts/gian-van-veen-verslaat-furieuze-luke-littler-in-zijn-manchester-hij-is-geen-goede-verliezer~a58d8fa4/)
   > Gian van Veen heeft een mooie avond in de Premier League niet in stijl kunnen afsluiten. De Nederlander moest in de finale zijn meerdere erkennen in...
-- [Kijkers lovend over Milan van Waardenburg in The Passion, Terror Jaap duikt op als Barabbas](https://www.ad.nl/show/kijkers-lovend-over-milan-van-waardenburg-in-the-passion-terror-jaap-duikt-op-als-barabbas~abeb09bd/)
-  > Milan van Waardenburg en Boaz Kok hebben donderdagavond indruk gemaakt in The Passion 2026 in Dwingeloo. De mannen zongen Hoe het danst van Marco...
-- [Max Verstappen inspireert collega’s: volgende coureur maakt uitstapje buiten de Formule 1](https://www.ad.nl/formule-1/max-verstappen-inspireert-collegas-volgende-coureur-maakt-uitstapje-buiten-de-formule-1~a795f2cd/)
-  > Max Verstappen is niet de enige coureur die in de lentestop zijn Formule 1-bolide inruilt voor een GT3-auto. Lance Stroll volgt het voorbeeld van de...
-- [‘Hoogste brug van Iran opgeblazen’, Nederland wil helpen bij heropening Straat van Hormuz](https://www.ad.nl/buitenland/hoogste-brug-van-iran-opgeblazen-nederland-wil-helpen-bij-heropening-straat-van-hormuz~ac528ac3/)
-  > De Amerikanen hebben de hoogste brug van Iran opgeblazen, stelt president Donald Trump. Het zou gaan om een gevaarte in aanbouw met als hoogste punt...
 
 ### Meest gelezen
 
