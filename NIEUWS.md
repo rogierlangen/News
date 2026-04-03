@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-04-2026 om 07:16*
+*Laatst bijgewerkt: 03-04-2026 om 09:00*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Kunstroof was trauma voor oud-directeur Drents Museum: 'Ik kan het nu loslaten'](https://nos.nl/l/2608881)
-  > Met de terugkeer van de gestolen gouden helm in het Drents Museum komt een eind aan een nachtmerrie van Harry Tupan. Hij was directeur van het museum...
-- [Luistersessie in platenzaak is terug: 'Een album vroeg luisteren is leuk'](https://nos.nl/l/2608879)
-  > Niet naar de platenwinkel om rijtjes vinyl door te spitten, maar om als allereerste naar een nieuw album te luisteren; vooral jonge fans zijn...
-- [Vesteda moet mogelijk duizenden huurwoningen verkopen, hoe kan dat?](https://nos.nl/l/2608876)
-  > Vesteda, de grootste commerciële woningbelegger en -verhuurder van Nederland, ziet investeerders vertrekken. Het lijkt daardoor onvermijdelijk dat...
-- [Wekdienst 3/4: Serieschutter IJsselmonde hoort eis • Festivalseizoen van start](https://nos.nl/l/2608875)
-  > Goedemorgen! De man die verdacht wordt van drie moorden in de Rotterdamse wijk IJsselmonde hoort welke straf het Openbaar Ministerie tegen hem eist....
-- [Actrice Blake Lively vangt bot bij rechter in zaak wangedrag regisseur Baldoni](https://nos.nl/l/2608872)
-  > Een rechtszaak die actrice Blake Lively heeft aangespannen tegen regisseur en acteur Justin Baldoni wegens wangedrag op de set, is door de rechter...
+- [Podcast De Stemming: Een chicane, een sluwe truc en iedereen boos](https://nos.nl/l/2608902)
+  > De Stemming is deze week al op donderdag opgenomen vanwege Pasen. Een feest dat Joost en Marleen altijd nog doet terugdenken aan die Stille Zaterdag...
+- [Coupleider en man achter brute burgeroorlog Myanmar nieuwe president](https://nos.nl/l/2608901)
+  > Voormalig junta-leider Min Aung Hlaing is door het parlement benoemd tot nieuwe president van Myanmar. Daarmee is zijn ijzeren machtsgreep na vijf...
+- [Iraniërs hebben al wekenlang beperkt zicht op de oorlog in eigen land](https://nos.nl/l/2608894)
+  > Door de aanhoudende internetblokkade hebben tientallen miljoenen Iraniërs beperkt zicht op wat de oorlog in hun eigen land aanricht. Bijna vijf weken...
+- [Eerste koolmeesei van 2026 is het allervroegste ooit](https://nos.nl/l/2608892)
+  > In een nestkast vlak bij Nijmegen is een koolmeesei gevonden dat dateert van 21 maart. Het is daarmee het vroegste koolmeesei ooit in Nederland,...
+- [Himalaya-gidsen beschuldigd van vergiftigen klimmers voor nep-reddingen](https://nos.nl/l/2608887)
+  > In Nepal zijn 32 mensen aangeklaagd voor hun rol in een fraudezaak waarbij toeristen tijdens trektochten in de Himalaya onnodig per helikopter zouden...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Colombiaanse sterspeler James Rodríguez in ziekenhuis na uitdroging](https://www.ad.nl/wk-voetbal/colombiaanse-sterspeler-james-rodriguez-in-ziekenhuis-na-uitdroging~a34965d1/)
-  > De Colombiaanse sterspeler James Rodríguez ligt na de met 3-1 verloren interland tegen Frankrijk al 72 uur in het ziekenhuis.
-- [Nog even nat en druilerig weer, maar geen zorgen: tweede paasdag kunnen we paaseieren zoeken in de zon](https://www.ad.nl/binnenland/nog-even-nat-en-druilerig-weer-maar-geen-zorgen-tweede-paasdag-kunnen-we-paaseieren-zoeken-in-de-zon~a991c011/)
-  > Druilerige, regenachtige dagen gaan we tegemoet en ook eerste paasdag houdt het weer niet over. Maar geen zorgen, tweede paasdag klaart de boel op en...
-- [Diesel is 10,5 cent duurder dan donderdag: 'Echt heel veel'](https://www.ad.nl/economie/diesel-is-10-5-cent-duurder-dan-donderdag-echt-heel-veel~ae4c682d/)
-  > Er komt nog geen einde aan de stijgende brandstofprijzen door de oorlog in het Midden-Oosten. Zo is de adviesprijs voor een liter diesel bij de grote...
-- [Opnames The Voice België werden stilgelegd na ruzie Joost Klein en Koen Wauters: ‘Er zijn echt grove dingen gezegd’](https://www.ad.nl/show/opnames-the-voice-belgie-werden-stilgelegd-na-ruzie-joost-klein-en-koen-wauters-er-zijn-echt-grove-dingen-gezegd~a4f48270/)
-  > De opnames van de Vlaamse versie van The Voice zijn onlangs een tijdje stilgelegd omdat coaches Joost Klein (28) en Koen Wauters (58) in een felle...
-- [CNN: Ondanks bombardementen heeft Iran nog steeds raketlanceerders en veel drones](https://www.ad.nl/buitenland/cnn-ondanks-bombardementen-heeft-iran-nog-steeds-raketlanceerders-en-veel-drones~ac528ac3/)
-  > Iran beschikt na wekenlange bombardementen door de VS en Israël nog over ongeveer de helft van zijn raketlanceerders. Dat schrijft nieuwszender CNN,...
+- [The Passion wint de dag met 1,7 miljoen kijkers, finale De Verraders noteert de helft minder](https://www.ad.nl/show/the-passion-wint-de-dag-met-1-7-miljoen-kijkers-finale-de-verraders-noteert-de-helft-minder~a8627e21/)
+  > The Passion 2026 heeft donderdagavond ruim 1,7 miljoen kijkers getrokken op NPO 1. Het is daarmee het best bekeken programma van de dag, meldt...
+- [Crimineel kopstuk ‘Rico de Chileen’ opgepakt in cel: verdacht van poging uitlokking twee liquidaties](https://www.ad.nl/binnenland/crimineel-kopstuk-rico-de-chileen-opgepakt-in-cel-verdacht-van-poging-uitlokking-twee-liquidaties~ac63d207/)
+  > De Amsterdamse topcrimineel Rico ‘de Chileen’ R. is deze week in zijn cel aangehouden op verdenking van poging tot uitlokking van twee liquidaties....
+- [Goede Vrijdag: heb ik nou wel of niet recht op een vrije dag?](https://www.ad.nl/werk/goede-vrijdag-heb-ik-nou-wel-of-niet-recht-op-een-vrije-dag~a1349bdd/)
+  > Goede Vrijdag en Bevrijdingsdag zijn officieel nationale feestdagen. Toch betekent dat niet automatisch een vrije dag voor iedereen. Hoe zit dat...
+- [Na 50 jaar duidelijkheid: dna-match legt nieuw slachtoffer vast in moordenreeks Ted Bundy](https://www.ad.nl/buitenland/na-50-jaar-duidelijkheid-dna-match-legt-nieuw-slachtoffer-vast-in-moordenreeks-ted-bundy~ae45f7b1/)
+  > Er is een nieuw slachtoffer toegeschreven aan seriemoordenaar Ted Bundy. Het gaat om de tot nu toe onopgeloste moord op Laura Ann Aime, een meisje...
+- [Opinie: ‘Verlaag prijzen openbaar vervoer om crisis hoofd te bieden’](https://www.ad.nl/praat-mee/opinie-verlaag-prijzen-openbaar-vervoer-om-crisis-hoofd-te-bieden~a64be4cf/)
+  > In de discussie over maatregelen in de energiecrisis, is het openbaar vervoer steeds afwezig. Terwijl elke volle trein of bus betekent dat er minder...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [De zaak-Szijjártó: wat als een EU-lidstaat Russische belangen dient?](https://fd.nl/politiek/1591943/de-zaak-szijjarto-wat-als-een-eu-lidstaat-russische-belangen-dient)
-  > EU-leiders zitten in hun maag met de Kremlin-vriendelijke Hongaarse minister van buitenlandse zaken. Als diens partij Fidesz na 12 april kan...
-- [Laat Oekraïne niet bungelen: het sterkste leger van het continent heeft Europa's steun nu nodig](https://fd.nl/opinie/1591940/laat-oekraine-niet-bungelen)
-  > Vier jaar oorlog hebben van Oekraïne een militaire krachtpatser gemaakt, maar zonder internationale hulp dreigt een financiële ramp. Terwijl Europa...
-- [Aziatische beurshandel omhoog](https://fd.nl/financiele-markten/1592062/aziatische-beurshandel-omhoog)
-  > Beleggers in Azië hielden zich vast aan voorzichtig herstel van de kooplust op de Amerikaanse beurzen.
-- [VS verwoesten grote brug in Teheran](https://fd.nl/politiek/1592061/vs-verwoesten-grote-brug-in-teheran)
-  > De Amerikaanse president Donald Trump waarschuwde vannacht opnieuw dat de aanvallen op Iraanse infrastructuur uitgebreid zullen worden.
-- [Een platenspeler van beton en chic eten achter de duinen van Terschelling](https://fd.nl/samenleving/1592012/een-platenspeler-van-beton-en-chic-eten-achter-de-duinen-van-terschelling)
-  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
+- [Gaat de fiets de weg omhoog vinden?](https://fd.nl/samenleving/1592015/gaat-de-fiets-de-weg-omhoog-vinden)
+  > Na een vijftal jaren van kommer en kwel wordt er door bedrijven en brancheorganisaties voor dit jaar herstel voorzien.
+- [Scenario’s schieten tekort in een onzekere wereld](https://fd.nl/opinie/1591347/scenarios-schieten-tekort-in-een-onzekere-wereld)
+  > Zolang leiders blijven denken in scenario’s, missen ze wat er echt speelt: een wereld waarin het onverwachte de norm is en handelen belangrijker...
+- [Lodewijk Asscher gaat kabinet helpen in onderhandelingen met Tata Steel](https://fd.nl/politiek/1592067/lodewijk-asscher-gaat-kabinet-helpen-in-onderhandelingen-met-tata-steel)
+  > De voormalig PvdA-leider gaat aan de slag als ministerieel gezant om tot definitieve vergroeningsafspraken te komen met de staalproducent in IJmuiden.
+- [‘Uw telefoon alstublieft’: In Hongkong moeten reizigers hun intiemste bezit overhandigen](https://fd.nl/samenleving/1591800/uw-telefoon-alstublieft-in-hongkong-moeten-reizigers-hun-intiemste-bezit-overhandigen)
+  > De grenswacht in Hongkong mag sinds kort telefoons en laptops opeisen en doorzoekt daarmee niet langer alleen de bagage, maar ook de binnenwereld van...
+- [Mee-investeren met Dragons Schoen, Perridon en Witvoet](https://fd.nl/samenleving/1590106/podcastluisteraars-kunnen-mee-investeren-in-jonge-ondernemers)
+  > In Dutch Dragons bespreken drie zeer succesvolle ondernemers de jonge bedrijven van Nederland. De luisteraar krijgt niet alleen kennis, maar ook een...
 
 ### Meest gelezen
 
