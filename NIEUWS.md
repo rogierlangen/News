@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-04-2026 om 09:00*
+*Laatst bijgewerkt: 03-04-2026 om 10:48*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Paniek in Duitse trein na 'aanslag' met vermoedelijke airsoft-granaat](https://nos.nl/l/2608917)
+  > Een 20-jarige man is gisteravond aangehouden in een Duitse hogesnelheidstrein. Hij had een granaat laten exploderen in een coupé van de ICE-trein van...
+- [Vier verdachten aangehouden voor mishandeling na NAC-Feyenoord](https://nos.nl/l/2608914)
+  > De politie heeft vier verdachten aangehouden voor openlijke geweldpleging na afloop van de wedstrijd NAC Breda - Feyenoord van zondag 8 maart....
+- [Oplichter belt per ongeluk regionaal opsporingsprogramma](https://nos.nl/l/2608913)
+  > Oplichters hebben gisteren per ongeluk gebeld met de presentator van het opsporingsprogramma Plaats Delict van RTV Oost en Omroep Gelderland. Ze...
+- [OM eist 20 jaar cel en tbs voor drie moorden in Rotterdam-IJsselmonde](https://nos.nl/l/2608904)
+  > Het Openbaar Ministerie eist twintig jaar celstraf tegen Sendric S., de man die eind 2024 en begin 2025 drie mensen doodschoot in de Rotterdamse wijk...
 - [Podcast De Stemming: Een chicane, een sluwe truc en iedereen boos](https://nos.nl/l/2608902)
   > De Stemming is deze week al op donderdag opgenomen vanwege Pasen. Een feest dat Joost en Marleen altijd nog doet terugdenken aan die Stille Zaterdag...
-- [Coupleider en man achter brute burgeroorlog Myanmar nieuwe president](https://nos.nl/l/2608901)
-  > Voormalig junta-leider Min Aung Hlaing is door het parlement benoemd tot nieuwe president van Myanmar. Daarmee is zijn ijzeren machtsgreep na vijf...
-- [Iraniërs hebben al wekenlang beperkt zicht op de oorlog in eigen land](https://nos.nl/l/2608894)
-  > Door de aanhoudende internetblokkade hebben tientallen miljoenen Iraniërs beperkt zicht op wat de oorlog in hun eigen land aanricht. Bijna vijf weken...
-- [Eerste koolmeesei van 2026 is het allervroegste ooit](https://nos.nl/l/2608892)
-  > In een nestkast vlak bij Nijmegen is een koolmeesei gevonden dat dateert van 21 maart. Het is daarmee het vroegste koolmeesei ooit in Nederland,...
-- [Himalaya-gidsen beschuldigd van vergiftigen klimmers voor nep-reddingen](https://nos.nl/l/2608887)
-  > In Nepal zijn 32 mensen aangeklaagd voor hun rol in een fraudezaak waarbij toeristen tijdens trektochten in de Himalaya onnodig per helikopter zouden...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [The Passion wint de dag met 1,7 miljoen kijkers, finale De Verraders noteert de helft minder](https://www.ad.nl/show/the-passion-wint-de-dag-met-1-7-miljoen-kijkers-finale-de-verraders-noteert-de-helft-minder~a8627e21/)
-  > The Passion 2026 heeft donderdagavond ruim 1,7 miljoen kijkers getrokken op NPO 1. Het is daarmee het best bekeken programma van de dag, meldt...
-- [Crimineel kopstuk ‘Rico de Chileen’ opgepakt in cel: verdacht van poging uitlokking twee liquidaties](https://www.ad.nl/binnenland/crimineel-kopstuk-rico-de-chileen-opgepakt-in-cel-verdacht-van-poging-uitlokking-twee-liquidaties~ac63d207/)
-  > De Amsterdamse topcrimineel Rico ‘de Chileen’ R. is deze week in zijn cel aangehouden op verdenking van poging tot uitlokking van twee liquidaties....
-- [Goede Vrijdag: heb ik nou wel of niet recht op een vrije dag?](https://www.ad.nl/werk/goede-vrijdag-heb-ik-nou-wel-of-niet-recht-op-een-vrije-dag~a1349bdd/)
-  > Goede Vrijdag en Bevrijdingsdag zijn officieel nationale feestdagen. Toch betekent dat niet automatisch een vrije dag voor iedereen. Hoe zit dat...
-- [Na 50 jaar duidelijkheid: dna-match legt nieuw slachtoffer vast in moordenreeks Ted Bundy](https://www.ad.nl/buitenland/na-50-jaar-duidelijkheid-dna-match-legt-nieuw-slachtoffer-vast-in-moordenreeks-ted-bundy~ae45f7b1/)
-  > Er is een nieuw slachtoffer toegeschreven aan seriemoordenaar Ted Bundy. Het gaat om de tot nu toe onopgeloste moord op Laura Ann Aime, een meisje...
-- [Opinie: ‘Verlaag prijzen openbaar vervoer om crisis hoofd te bieden’](https://www.ad.nl/praat-mee/opinie-verlaag-prijzen-openbaar-vervoer-om-crisis-hoofd-te-bieden~a64be4cf/)
-  > In de discussie over maatregelen in de energiecrisis, is het openbaar vervoer steeds afwezig. Terwijl elke volle trein of bus betekent dat er minder...
+- [Frans containerschip vaart door Straat van Hormuz, grootste gascentrale van Abu Dhabi stilgelegd](https://www.ad.nl/buitenland/frans-containerschip-vaart-door-straat-van-hormuz-grootste-gascentrale-van-abu-dhabi-stilgelegd~ac528ac3/)
+  > Een containerschip van een Franse eigenaar is door de Straat van Hormuz gevaren, meldt persbureau Bloomberg. Daarmee lijkt de eerste doorvaart van...
+- [Arne Slot is niet bang voor zwaar programma in april: ‘Het is logisch dat je sterke tegenstanders krijgt in deze fase’](https://www.ad.nl/voetbal/arne-slot-is-niet-bang-voor-zwaar-programma-in-april-het-is-logisch-dat-je-sterke-tegenstanders-krijgt-in-deze-fase~ac8a52ae/)
+  > Arne Slot denkt dat zijn team klaar is voor een zwaar programma in april. Liverpool speelt zaterdagmiddag (13.45 uur) in de kwartfinales van de FA...
+- [Roerloos hoort Sendric S. de eis aan: justitie wil 20 jaar cel en tbs voor ‘ongekende’ moorden](https://www.ad.nl/binnenland/roerloos-hoort-sendric-s-de-eis-aan-justitie-wil-20-jaar-cel-en-tbs-voor-ongekende-moorden~a9a6e950/)
+  > Ogenschijnlijk onbewogen hoorde Sendric S. (25) een gevangenisstraf van twintig jaar én tbs met dwangverpleging eisen. Justitie weigert te geloven...
+- [Het is simpel, kost geen drol en de samenleving zou er meteen van opknappen](https://www.ad.nl/binnenland/het-is-simpel-kost-geen-drol-en-de-samenleving-zou-er-meteen-van-opknappen~acc229fd/)
+  > Ze snapt heus wel dat het niet eenvoudig is om van de gewone man of vrouw iets te vragen dat onze wereldleiders inmiddels totaal vreemd is, schrijft...
+- [Mircea Lucescu (80) krijgt hartaanval in ziekenhuis](https://www.ad.nl/wk-voetbal/mircea-lucescu-80-krijgt-hartaanval-in-ziekenhuis~a06f393a/)
+  > De Roemeense bondscoach Mircea Lucescu (80) heeft vrijdagochtend een acuut hartinfarct gekregen in het universitair ziekenhuis in Boekarest, waaruit...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Gaat de fiets de weg omhoog vinden?](https://fd.nl/samenleving/1592015/gaat-de-fiets-de-weg-omhoog-vinden)
-  > Na een vijftal jaren van kommer en kwel wordt er door bedrijven en brancheorganisaties voor dit jaar herstel voorzien.
-- [Scenario’s schieten tekort in een onzekere wereld](https://fd.nl/opinie/1591347/scenarios-schieten-tekort-in-een-onzekere-wereld)
-  > Zolang leiders blijven denken in scenario’s, missen ze wat er echt speelt: een wereld waarin het onverwachte de norm is en handelen belangrijker...
-- [Lodewijk Asscher gaat kabinet helpen in onderhandelingen met Tata Steel](https://fd.nl/politiek/1592067/lodewijk-asscher-gaat-kabinet-helpen-in-onderhandelingen-met-tata-steel)
-  > De voormalig PvdA-leider gaat aan de slag als ministerieel gezant om tot definitieve vergroeningsafspraken te komen met de staalproducent in IJmuiden.
-- [‘Uw telefoon alstublieft’: In Hongkong moeten reizigers hun intiemste bezit overhandigen](https://fd.nl/samenleving/1591800/uw-telefoon-alstublieft-in-hongkong-moeten-reizigers-hun-intiemste-bezit-overhandigen)
-  > De grenswacht in Hongkong mag sinds kort telefoons en laptops opeisen en doorzoekt daarmee niet langer alleen de bagage, maar ook de binnenwereld van...
-- [Mee-investeren met Dragons Schoen, Perridon en Witvoet](https://fd.nl/samenleving/1590106/podcastluisteraars-kunnen-mee-investeren-in-jonge-ondernemers)
-  > In Dutch Dragons bespreken drie zeer succesvolle ondernemers de jonge bedrijven van Nederland. De luisteraar krijgt niet alleen kennis, maar ook een...
+- [Integriteit van de markten staat onder zware druk](https://fd.nl/financiele-markten/1592016/integriteit-van-de-markten-staat-onder-zware-druk)
+  > Dat er insiders bezig zouden zijn op voorspellingsmarkten wisten we al, maar nu lijkt dit zich voort te zetten op financiële markten.
+- [Papieren schenking om belasting te besparen is volgens deskundigen volledig ingeburgerd](https://fd.nl/politiek/1592092/papieren-schenking-om-belasting-te-besparen-is-volgens-deskundigen-volledig-ingeburgerd)
+  > Het kabinet heeft papieren schenkingen, die ertoe leiden dat erfgenamen minder belasting betalen, als onwenselijk aangemerkt. Deskundigen zijn...
+- [Ook mannen moeten mooi zijn](https://fd.nl/samenleving/1591278/ook-mannen-moeten-mooi-zijn)
+  > Het schoonheidsideaal voor mannen wordt dwingender, ziet filosoof Doortje Lenders. En ‘niet alleen Hollywood-mannen hebben de beautykoorts te pakken’.
+- [Tien jaar na de Panama Papers is de Nederlandse trustsector gehalveerd](https://fd.nl/bedrijfsleven/1591946/tien-jaar-na-de-panama-papers-is-de-nederlandse-trustsector-gehalveerd)
+  > Trustkantoren lagen jarenlang onder vuur vanwege het faciliteren van belastingontwijking. Strenger toezicht en nieuwe belastingregels maken Nederland...
+- [Hoe wijder, hoe beter](https://fd.nl/samenleving/1591736/hoe-wijder-hoe-beter)
+  > De broekspijp wordt, niet voor het eerst, weer ruimer. Een kleine geschiedenis van de wijde broek.
 
 ### Meest gelezen
 
