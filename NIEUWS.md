@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-04-2026 om 21:38*
+*Laatst bijgewerkt: 03-04-2026 om 22:38*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Politie onderzoekt explosie bij Israëlcentrum in Nijkerk](https://www.ad.nl/nijkerk/politie-onderzoekt-explosie-bij-israelcentrum-in-nijkerk~a3252bc93/)
+  > De politie doet vrijdagavond onderzoek naar een explosie bij het hek van het Israëlcentrum op de Henri Nouwenstraat in Nijkerk.
 - [Tweede gevechtsvliegtuig VS neergestort, Trump: ‘Geen invloed op gesprekken met Iran'](https://www.ad.nl/buitenland/tweede-gevechtsvliegtuig-vs-neergestort-trump-geen-invloed-op-gesprekken-met-iran~ac528ac3/)
   > Een tweede gevechtsvliegtuig van de VS is vrijdag neergestort, nu in de buurt van de Straat van Hormuz. De piloot is gered melden Amerikaanse...
 - [Titel gloort voor ADO na comeback tegen Jong Ajax en dure misstap van concurrent Cambuur](https://www.ad.nl/voetbal/titel-gloort-voor-ado-na-comeback-tegen-jong-ajax-en-dure-misstap-van-concurrent-cambuur~a4ac55ef/)
@@ -35,8 +37,6 @@
   > Een uiterst pijnlijk moment in de Saoedische competitie: tijdens de wedstrijd tussen Al-Ittihad en Al Hazm deelde de Franse aanvaller Moussa Diaby...
 - [ADO Den Haag zet na zege op Jong Ajax en nederlaag Cambuur reuzenstap richting de titel](https://www.ad.nl/den-haag/ado-den-haag-zet-na-zege-op-jong-ajax-en-nederlaag-cambuur-reuzenstap-richting-de-titel~a435c53b/)
   > ADO Den Haag kan in het gunstigste geval op Tweede Paasdag kampioen worden. De koploper van de Keuken Kampioen Divisie won zelf na een heerlijk...
-- [Verzakking spoor Vught door heiwerkzaamheden in de buurt, zaterdag rijden treinen weer](https://www.ad.nl/binnenland/verzakking-spoor-vught-door-heiwerkzaamheden-in-de-buurt-zaterdag-rijden-treinen-weer~a79c7d74/)
-  > De spoorverzakking bij Vught is veroorzaakt door heiwerkzaamheden in de buurt. Dat meldt ProRail na onderzoek. Het verder verzakken van het spoor is...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Papieren schenkingen horen niet thuis in fatsoenlijk belastingstelsel](https://fd.nl/opinie/1592103/papieren-schenkingen-horen-niet-thuis-in-fatsoenlijk-belastingstelsel)
-  > Het valt toe te juichen dat de politiek ontwijkingsmogelijkheden in de schenk- en erfbelasting durft aan te pakken.
-- [Hogere beloning KLM-topvrouw ondanks bezuinigingen](https://fd.nl/bedrijfsleven/1592213/hogere-beloning-klm-topvrouw-ondanks-bezuinigingen)
-  > In tijden van crisis en bezuinigingen ziet KLM-topvrouw Marjan Rintel haar beloning stijgen. Deels is het een papieren werkelijkheid.
-- [Tata Steel moet een fabriek stilleggen vanwege te hoge uitstoot](https://fd.nl/bedrijfsleven/1592119/tata-steel-moet-een-fabriek-stilleggen-vanwege-te-hoge-uitstoot)
-  > De staalproducent moet het bedrijfsonderdeel uiterlijk zaterdag 4 april stilleggen vanwege een te hoge emissie van het giftige chroom-6.
-- [Het roer moet om bij APG](https://fd.nl/financiele-markten/1592194/het-roer-moet-om-bij-apg)
-  > Pensioenfonds ABP belegt voortaan 80% van zijn portefeuille in een op maat gemaakte index. Hoe dat uitpakt, valt te lezen in het nieuwste jaarverslag...
-- [OpenAI koopt populaire talkshow over technologie](https://fd.nl/bedrijfsleven/1592117/openai-koopt-populaire-talkshow-over-technologie)
-  > Het bedrijf hoopt met de aankoop meer grip te krijgen op het debat over AI, dat in Silicon Valley nu nog grotendeels via sociale media gevoerd wordt.
+- [Vergeet accijnsverlaging, het is tijd om de energievraag te beperken](https://fd.nl/politiek/1592068/vergeet-accijnsverlaging-het-is-tijd-om-de-energievraag-te-beperken)
+  > Pogingen om burgers met prijsingrepen te beschermen tegen dure brandstoffen, zijn kostbaar en drijven de vraag naar schaarse olie alleen maar op,...
+- [‘Fiscale onvoorspelbaarheid jaagt investeerders het land uit’, vindt ’s lands oudste advocaat](https://fd.nl/bedrijfsleven/1590700/fiscale-onvoorspelbaarheid-jaagt-investeerders-het-land-uit-vindt-s-lands-oudste-advocaat)
+  > De 88-jarige nestor van de advocatuur vindt het tijd om het poldermodel nieuw leven in te blazen. ‘Nederland dreigt anders achterop te raken.’
+- [Hervormen in het huis van de stempels](https://fd.nl/opinie/1592185/hervormen-in-het-huis-van-de-stempels)
+  > Duitsland grossiert in hervormingsplannen, maar botst telkens op zijn eigen bureaucratie en mentaliteit.
+- [‘China kijkt rustig toe hoe de VS in Iran hun munitiedepots leegmaken’](https://fd.nl/politiek/1592011/china-kijkt-rustig-toe-hoe-de-vs-in-iran-hun-munitiedepots-leegmaken)
+  > Donald Trump kondigde aan Iran naar het ‘stenen tijdperk’ te bombarderen. Analisten David Criekemans en Peter Wijninga zien aanwijzingen voor een...
+- [Hoe sluimerende onrust leidde tot een exodus van partners bij Simmons & Simmons](https://fd.nl/bedrijfsleven/1592006/hoe-sluimerende-onrust-leidde-tot-een-exodus-van-partners-bij-simmons-simmons)
+  > Een verslechterende verstandhouding tussen de partners en hard ingrijpen vanuit het internationale hoofdkantoor veroorzaakten een uittocht bij het...
 
 ### Meest gelezen
 
