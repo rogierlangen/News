@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-04-2026 om 18:53*
+*Laatst bijgewerkt: 03-04-2026 om 19:41*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Twee keer eerder ontslagen GGZ-begeleider voor rechter voor seksueel misbruik cliënten](https://nos.nl/l/2608984)
+  > Een 50-jarige man uit Zierikzee hoorde vandaag drie jaar cel tegen zich eisen voor ontucht, aanranding en verkrachting van cliënten in de...
 - [Crisis in Cuba: hoe overleef je in een land dat op instorten staat?](https://nos.nl/l/2608981)
   > Twee grote tassen vol medicijnen en medische apparatuur, gedoneerd uit Chili en Costa Rica, worden uit een auto geladen van ICAP, de Cubaanse...
 - [Onderdeel van Tata Steel wordt stilgelegd om te hoge uitstoot chroom-6](https://nos.nl/l/2608979)
@@ -16,8 +18,6 @@
   > Ze komen er allebei al tientallen jaren: René de Bos en Katja Staartjes. Zij was de eerste Nederlandse vrouw die de Mount Everest wist te beklimmen...
 - [Iraniërs vrezen Israëlisch-Amerikaanse aanvallen op burgerdoelen](https://nos.nl/l/2608976)
   > De Amerikaans-Israëlische oorlog in Iran richt zich niet alleen op militaire doelen. Ook woonhuizen, universiteiten, infrastructuur en winkel- en...
-- [Hoge ticketprijzen of annuleringen: wat staat reizigers te wachten door dure brandstof?](https://nos.nl/l/2608963)
-  > Hogere ticketprijzen bij KLM, een brandstoftoeslag bij P&O Ferries en mogelijk annuleringen van Ryanair-vluchten in de zomer. Het zijn de eerste...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tweede gevechtsvliegtuig van de VS neergestort](https://www.ad.nl/buitenland/tweede-gevechtsvliegtuig-van-de-vs-neergestort~ac528ac3/)
-  > The New York Times meldt dat er vanavond een tweede gevechtsvliegtuig van de Verenigde Staten is neergestort boven Perzische Golf. De piloot is...
-- [PSV laat oog vallen op gewilde spits, oud-speler Spurs zet punt achter loopbaan](https://www.ad.nl/voetbal/psv-laat-oog-vallen-op-gewilde-spits-oud-speler-spurs-zet-punt-achter-loopbaan~a35ea681/)
-  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
-- [Koploper ADO komt op gelijke hoogte in doelpuntrijk duel met Jong Ajax, nummer 2 Cambuur op achterstand](https://www.ad.nl/voetbal/koploper-ado-komt-op-gelijke-hoogte-in-doelpuntrijk-duel-met-jong-ajax-nummer-2-cambuur-op-achterstand~a4ac55ef/)
+- [Suzan in tranen bij gevoelig duet Sanne-Maaike en Ruben in The Voice: ‘Raakt me diep vanbinnen’](https://www.ad.nl/show/suzan-in-tranen-bij-gevoelig-duet-sanne-maaike-en-ruben-in-the-voice-raakt-me-diep-vanbinnen~a6ee6b8b/)
+  > Muziek blijft ontroeren, zo bleek vrijdagavond tijdens het tv-programma The Voice op RTL4. Coach Suzan Stortelder van het duo Suzan & Freek hield het...
+- [Tijd dringt voor nummer 2 Cambuur op bezoek bij VVV, ADO draait het helemaal om tegen Jong Ajax](https://www.ad.nl/voetbal/tijd-dringt-voor-nummer-2-cambuur-op-bezoek-bij-vvv-ado-draait-het-helemaal-om-tegen-jong-ajax~a4ac55ef/)
   > De interlandperiode zit erop, het clubvoetbal is terug. Met vanavond bijna een volledige speelronde in de Keuken Kampioen Divisie. Negen wedstrijden,...
-- [Veertig aankopen, slechts één voltreffer: waarom het aankoopbeleid van Ajax zo hard faalt](https://www.ad.nl/voetbal/veertig-aankopen-slechts-een-voltreffer-waarom-het-aankoopbeleid-van-ajax-zo-hard-faalt~ac62c73d3/)
-  > Van de vier grote miljoenenaankopen die Ajax afgelopen zomer deed, begon er in de vorige speelronde niet één in de basis. Het past in het beeld van...
-- [Speelfilm in de maak van successerie Woeste Grond](https://www.ad.nl/show/speelfilm-in-de-maak-van-successerie-woeste-grond~a45e7d70/)
-  > Johan Nijenhuis werkt aan een speelfilm die is gebaseerd op de succesvolle tv-serie Woeste Grond. De film heet Woeste Grond: Een hete zomer,...
+- [NEC-uitblinker Tjaronn Chery stopt als international van Suriname: ‘Mislopen WK zal altijd pijnlijk moment blijven’](https://www.ad.nl/voetbal/nec-uitblinker-tjaronn-chery-stopt-als-international-van-suriname-mislopen-wk-zal-altijd-pijnlijk-moment-blijven~a334dd1c3/)
+  > Tjaronn Chery heeft een punt gezet achter zijn interlandloopbaan bij Suriname. De 37-jarige aanvoerder van NEC greep afgelopen week met Natio naast...
+- [PSV laat oog vallen op gewilde spits, Feyenoord bevestigt verlenging met middenvelder (19)](https://www.ad.nl/voetbal/psv-laat-oog-vallen-op-gewilde-spits-feyenoord-bevestigt-verlenging-met-middenvelder-19~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [LIVE Keuken Kampioen Divisie | ADO Den Haag draait het helemaal om tegen Jong Ajax dankzij Kilo en Van der Sloot](https://www.ad.nl/den-haag/live-keuken-kampioen-divisie-ado-den-haag-draait-het-helemaal-om-tegen-jong-ajax-dankzij-kilo-en-van-der-sloot~a435c53b/)
+  > ADO Den Haag toont veerkracht tegen Jong Ajax. Na een 0-2 achterstand buigt de promovendus het om via Daryl van Mieghem, Jinairo Johnson (eigen...
 
 ### Meest gelezen
 
