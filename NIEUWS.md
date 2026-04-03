@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-04-2026 om 20:41*
+*Laatst bijgewerkt: 03-04-2026 om 21:38*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Frans OM begint onderzoek naar tv-zender om mogelijk racistische opmerkingen](https://nos.nl/l/2608999)
+  > Het Franse Openbaar Ministerie is een onderzoek begonnen naar de nieuwszender CNews wegens mogelijk haatzaaien. Aanleiding zijn uitingen op de zender...
 - [Bemanningslid neergehaald Amerikaans gevechtsvliegtuig gered, zoekactie nog gaande](https://nos.nl/l/2608991)
   > Een bemanningslid van een boven Iran neergeschoten Amerikaans gevechtsvliegtuig is gered door het Amerikaanse leger. Het gaat om de piloot van het...
 - [Twee keer eerder ontslagen GGZ-begeleider voor rechter voor seksueel misbruik cliënten](https://nos.nl/l/2608984)
@@ -16,8 +18,6 @@
   > Twee grote tassen vol medicijnen en medische apparatuur, gedoneerd uit Chili en Costa Rica, worden uit een auto geladen van ICAP, de Cubaanse...
 - [Onderdeel van Tata Steel wordt stilgelegd om te hoge uitstoot chroom-6](https://nos.nl/l/2608979)
   > Tata Steel in IJmuiden legt een bedrijfsonderdeel tijdelijk stil omdat na metingen is gebleken dat het te veel van de kankerverwekkende stof chroom-6...
-- ['In de bergen moet je geen haast hebben' en meer tips tegen oplichting in Nepal](https://nos.nl/l/2608978)
-  > Ze komen er allebei al tientallen jaren: René de Bos en Katja Staartjes. Zij was de eerste Nederlandse vrouw die de Mount Everest wist te beklimmen...
 
 ### Meest gelezen
 
@@ -31,7 +31,7 @@
   > Een tweede gevechtsvliegtuig van de VS is vrijdag neergestort, nu in de buurt van de Straat van Hormuz. De piloot is gered melden Amerikaanse...
 - [Titel gloort voor ADO na comeback tegen Jong Ajax en dure misstap van concurrent Cambuur](https://www.ad.nl/voetbal/titel-gloort-voor-ado-na-comeback-tegen-jong-ajax-en-dure-misstap-van-concurrent-cambuur~a4ac55ef/)
   > Het kampioenschap kan ADO bijna niet meer ontgaan. De koploper van de Keuken Kampioen Divisie kwam terug van een 0-2 achterstand tegen Jong Ajax en...
-- [Vol in het kruis: Franse aanvaller krijgt rood na smerige trap in edele delen](https://www.ad.nl/voetbal/vol-in-het-kruis-franse-aanvaller-krijgt-rood-na-smerige-trap-in-edele-delen~a2545406/)
+- [Vol in het kruis: ploeggenoot van Steven Bergwijn krijgt rood na smerige trap in edele delen](https://www.ad.nl/voetbal/vol-in-het-kruis-ploeggenoot-van-steven-bergwijn-krijgt-rood-na-smerige-trap-in-edele-delen~a2545406/)
   > Een uiterst pijnlijk moment in de Saoedische competitie: tijdens de wedstrijd tussen Al-Ittihad en Al Hazm deelde de Franse aanvaller Moussa Diaby...
 - [ADO Den Haag zet na zege op Jong Ajax en nederlaag Cambuur reuzenstap richting de titel](https://www.ad.nl/den-haag/ado-den-haag-zet-na-zege-op-jong-ajax-en-nederlaag-cambuur-reuzenstap-richting-de-titel~a435c53b/)
   > ADO Den Haag kan in het gunstigste geval op Tweede Paasdag kampioen worden. De koploper van de Keuken Kampioen Divisie won zelf na een heerlijk...
