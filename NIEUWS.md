@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-04-2026 om 14:49*
+*Laatst bijgewerkt: 03-04-2026 om 15:42*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Spoor verzakt bij Vught, geen treinen ten zuiden van Den Bosch](https://nos.nl/l/2608948)
+  > Door een verzakking van het spoor bij Vught rijden er de rest van de dag geen treinen meer tussen Den Bosch en Tilburg en tussen Den Bosch en Boxtel....
+- [Vereniging Eigen Huis: maak rapport over fundering eerder beschikbaar voor koper](https://nos.nl/l/2608942)
+  > Huizenkopers moeten eerder duidelijkheid krijgen over de fundering van de woning die ze kopen, vindt Vereniging Eigen Huis (VEH). Vanaf deze maand...
 - [Android-app van Rabobank werkt niet meer voor slechtzienden, bank bezig met oplossing](https://nos.nl/l/2608941)
   > Sommige mensen met een visuele beperking kunnen geen geld meer overmaken via de Rabobank-app. Volgens de Oogvereniging, belangenbehartiger van mensen...
 - [Geen strafvervolging na fatale brand Roermond: 'Geen verdachten in leven'](https://nos.nl/l/2608940)
   > Het Openbaar Ministerie gaat niemand vervolgen voor de brand in Roermond waarbij begin september vorig jaar twee mensen om het leven kwamen. De brand...
 - [KLM-topvrouw verdiende 30 procent meer in roerig 2025](https://nos.nl/l/2608939)
   > President-directeur van KLM Marjan Rintel heeft vorig jaar 30 procent meer verdiend dan in 2024. Dat blijkt uit het nieuwe jaarverslag van de...
-- [Nederlands schip werkt in bezet gebied, 'mogelijk schending internationaal recht'](https://nos.nl/l/2608938)
-  > Het Nederlandse baggerschip Parana werkt mee aan een Marokkaans prestigeproject in de Westelijke Sahara. Dat gebied is al sinds de jaren 70 bezet...
-- [Keukenhof en winkelcentra zetten zich schrap voor paasdrukte](https://nos.nl/l/2608932)
-  > De Keukenhof in Lisse, de Designer Outlet in Roermond en winkelcentrum Mall of the Netherlands in Leidschendam bereiden zich voor op topdrukte...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Peter Bosz van ergernis naar verbetenheid bij PSV: ‘Zou in deze situatie niet van mij als trainer hoeven te komen’](https://www.ad.nl/voetbal/peter-bosz-van-ergernis-naar-verbetenheid-bij-psv-zou-in-deze-situatie-niet-van-mij-als-trainer-hoeven-te-komen~a59e05c1/)
-  > Een seizoen met minder glans, na twee nederlagen? Trainer Peter Bosz van PSV vindt het een stelling voor de lachspieren. De coach was twee weken...
-- [Oud-winnares Marianne Vos start niet in Ronde van Vlaanderen vanwege overlijden vader](https://www.ad.nl/wielrennen/oud-winnares-marianne-vos-start-niet-in-ronde-van-vlaanderen-vanwege-overlijden-vader~a00ec5c5/)
-  > Marianne Vos gaat zondag niet van start in de Ronde van Vlaanderen vanwege het overlijden van haar vader. Dat heeft haar ploeg Visma - Lease a Bike...
-- [Zoveel calorieën zitten er in één paaseitje (en zoveel kan je er eten zonder aan te komen)](https://www.ad.nl/gezond/zoveel-calorieen-zitten-er-in-een-paaseitje-en-zoveel-kan-je-er-eten-zonder-aan-te-komen~ae1a0bdf/)
-  > Op het werk, thuis en in de supermarkt: overal liggen paaseitjes. De verleiding is groot om daar iedere dag van te smullen. Maar hoeveel van die...
-- [Camiel Neghli (ex-Sparta) klimt met Millwall naar tweede plek en mag dromen van Premier League](https://www.ad.nl/voetbal/camiel-neghli-ex-sparta-klimt-met-millwall-naar-tweede-plek-en-mag-dromen-van-premier-league~a79a3aa7/)
-  > Van Ede naar Rotterdam was voor Camiel Neghli al een hele stap, laat staan een verhuizing naar wereldstad Londen. Maar toch is de 24-jarige...
-- [Ahoy ontploft als Karen, Kristel en Kathleen opkomen: ‘Voor altijd jullie K3!’](https://www.ad.nl/rotterdam/ahoy-ontploft-als-karen-kristel-en-kathleen-opkomen-voor-altijd-jullie-k3~a1a17921/)
-  > Vele duizenden mensen zijn de komende dagen weer heel even kind. Het eerste reünieconcert van K3 in Rotterdam ging er luid, uitbundig en verrassend...
+- [AZ-aanvoerder Jordy Clasie keert na ruim half jaar blessureleed terug in wedstrijdselectie](https://www.ad.nl/voetbal/az-aanvoerder-jordy-clasie-keert-na-ruim-half-jaar-blessureleed-terug-in-wedstrijdselectie~af15c2da/)
+  > AZ  kan zaterdag tegen Fortuna Sittard weer beschikken over aanvoerder Jordy Clasie. De 34-jarige middenvelder zit voor het eerst weer bij de...
+- [Boaz Kok van Goldband overrompeld door reacties op zijn rol van Judas in The Passion: ‘Streelt je ego’](https://www.ad.nl/show/boaz-kok-van-goldband-overrompeld-door-reacties-op-zijn-rol-van-judas-in-the-passion-streelt-je-ego~a91a5b2a/)
+  > Boaz Kok, bekend van de Haagse popgroep Goldband, heeft indruk gemaakt met zijn vertolking van Judas in de zestiende editie van The Passion in het...
+- [Elke keer dat hij in beeld kwam, verbaasden we ons over zijn daadkracht en gekozen woorden](https://www.ad.nl/binnenland/elke-keer-dat-hij-in-beeld-kwam-verbaasden-we-ons-over-zijn-daadkracht-en-gekozen-woorden~a40a960a/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [Gidi Markuszower moet echter beter gaan flirten](https://www.ad.nl/politiek/gidi-markuszower-moet-echter-beter-gaan-flirten~a21b24e9/)
+  > Oorlog, geschrapte plannen, een relletje of twee: de aftrap van het kabinet Jetten is nog geen vliegende start. Hoe denkt de ministersploeg toch iets...
+- [Internetsensatie Boer Harm onthult na twee jaar zijn identiteit: ‘Dit verhaal krijgt een gezicht’](https://www.ad.nl/show/internetsensatie-boer-harm-onthult-na-twee-jaar-zijn-identiteit-dit-verhaal-krijgt-een-gezicht~a971cacf/)
+  > Boer Harm werd in 2024 een echte internetsensatie onder jongeren nadat zijn vunzige lied Brommers Kieken viraal ging. De identiteit van de...
 
 ### Meest gelezen
 
