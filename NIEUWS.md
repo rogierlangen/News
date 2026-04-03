@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-04-2026 om 17:38*
+*Laatst bijgewerkt: 03-04-2026 om 18:53*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Crisis in Cuba: hoe overleef je in een land dat op instorten staat?](https://nos.nl/l/2608981)
+  > Twee grote tassen vol medicijnen en medische apparatuur, gedoneerd uit Chili en Costa Rica, worden uit een auto geladen van ICAP, de Cubaanse...
+- [Onderdeel van Tata Steel wordt stilgelegd om te hoge uitstoot chroom-6](https://nos.nl/l/2608979)
+  > Tata Steel in IJmuiden legt een bedrijfsonderdeel tijdelijk stil omdat na metingen is gebleken dat het te veel van de kankerverwekkende stof chroom-6...
+- ['In de bergen moet je geen haast hebben' en meer tips tegen oplichting in Nepal](https://nos.nl/l/2608978)
+  > Ze komen er allebei al tientallen jaren: René de Bos en Katja Staartjes. Zij was de eerste Nederlandse vrouw die de Mount Everest wist te beklimmen...
+- [Iraniërs vrezen Israëlisch-Amerikaanse aanvallen op burgerdoelen](https://nos.nl/l/2608976)
+  > De Amerikaans-Israëlische oorlog in Iran richt zich niet alleen op militaire doelen. Ook woonhuizen, universiteiten, infrastructuur en winkel- en...
 - [Hoge ticketprijzen of annuleringen: wat staat reizigers te wachten door dure brandstof?](https://nos.nl/l/2608963)
   > Hogere ticketprijzen bij KLM, een brandstoftoeslag bij P&O Ferries en mogelijk annuleringen van Ryanair-vluchten in de zomer. Het zijn de eerste...
-- [Witte Huis wil hoogste defensiebudget in jaren en benoemt Vance tot 'fraude-tsaar'](https://nos.nl/l/2608955)
-  > President Trump stelt voor om het budget voor de Amerikaanse defensie volgend jaar met 445 miljard dollar te verhogen naar 1,5 biljoen dollar....
-- [Justitie onderzoekt mogelijk antisemitisme bij pro-Palestijns protest op de Dam](https://nos.nl/l/2608953)
-  > Het Openbaar Ministerie en de politie bekijken of er bij een pro-Palestinademonstratie op de Dam gisteren sprake was van het vergoelijken van de...
-- [Twee arrestaties in Spijkenisse in corruptiezaak marechaussee](https://nos.nl/l/2608951)
-  > De politie heeft in Spijkenisse twee arrestaties verricht die verband houden met het lekken van ambtelijke informatie van de Koninklijke...
-- [Problemen bij naschoolse opvanglocaties in Parijs, tientallen medewerkers geschorst](https://nos.nl/l/2608950)
-  > In Parijs zijn sinds begin dit jaar 78 medewerkers van naschoolse opvanglocaties geschorst, van wie er 31 verdacht worden van seksueel geweld. Dat...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Alleen de echte nieuwsjunk maakt deze wekelijkse quiz foutloos](https://www.ad.nl/binnenland/alleen-de-echte-nieuwsjunk-maakt-deze-wekelijkse-quiz-foutloos~aac48e7f/)
-  > Deze week eiste het OM 4,5 jaar cel tegen Inez Weski en werd de gestolen Roemeense gouden helm teruggevonden. Maar er gebeurde nog veel meer. Test je...
-- [Meerdere vrouwen melden te zijn lastiggevallen rond plek waar Karin (59) dood werd gevonden](https://www.ad.nl/binnenland/meerdere-vrouwen-melden-te-zijn-lastiggevallen-rond-plek-waar-karin-59-dood-werd-gevonden~a41770bb/)
-  > De politie heeft maandag meerdere meldingen ontvangen van vrouwen die in Nieuw-Vennep zijn benaderd en lastiggevallen door een man. Dat gebeurde...
-- [Renault houdt moedig stand als zelfstandig automerk: dit is het geheim](https://www.ad.nl/auto/renault-houdt-moedig-stand-als-zelfstandig-automerk-dit-is-het-geheim~ad081def/)
-  > Terwijl Peugeot en Citroën allang ten prooi zijn gevallen aan een veelkoppig monster genaamd Stellantis, lukt het Renault wél nog steeds om...
-- [The Cats verrast met NPO Radio 5 Evergreen Award](https://www.ad.nl/show/the-cats-verrast-met-npo-radio-5-evergreen-award~a2c28515/)
-  > De Volendamse band The Cats is vrijdag onderscheiden met de NPO Radio 5 Evergreen Award. Arnold Mühren, Jaap Schilder en Piet Veerman van de band...
-- [Mensen met een beperking verdienen kansen, geen bureaucratische hindernisbaan](https://www.ad.nl/commentaar/mensen-met-een-beperking-verdienen-kansen-geen-bureaucratische-hindernisbaan~ae2b5cfa/)
-  > De overheid groeit als kool. In vijf jaar tijd zijn er bijna honderdduizend ambtenaren bijgekomen. En toch lukt het diezelfde overheid maar niet om...
+- [Tweede gevechtsvliegtuig van de VS neergestort](https://www.ad.nl/buitenland/tweede-gevechtsvliegtuig-van-de-vs-neergestort~ac528ac3/)
+  > The New York Times meldt dat er vanavond een tweede gevechtsvliegtuig van de Verenigde Staten is neergestort boven Perzische Golf. De piloot is...
+- [PSV laat oog vallen op gewilde spits, oud-speler Spurs zet punt achter loopbaan](https://www.ad.nl/voetbal/psv-laat-oog-vallen-op-gewilde-spits-oud-speler-spurs-zet-punt-achter-loopbaan~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Koploper ADO komt op gelijke hoogte in doelpuntrijk duel met Jong Ajax, nummer 2 Cambuur op achterstand](https://www.ad.nl/voetbal/koploper-ado-komt-op-gelijke-hoogte-in-doelpuntrijk-duel-met-jong-ajax-nummer-2-cambuur-op-achterstand~a4ac55ef/)
+  > De interlandperiode zit erop, het clubvoetbal is terug. Met vanavond bijna een volledige speelronde in de Keuken Kampioen Divisie. Negen wedstrijden,...
+- [Veertig aankopen, slechts één voltreffer: waarom het aankoopbeleid van Ajax zo hard faalt](https://www.ad.nl/voetbal/veertig-aankopen-slechts-een-voltreffer-waarom-het-aankoopbeleid-van-ajax-zo-hard-faalt~ac62c73d3/)
+  > Van de vier grote miljoenenaankopen die Ajax afgelopen zomer deed, begon er in de vorige speelronde niet één in de basis. Het past in het beeld van...
+- [Speelfilm in de maak van successerie Woeste Grond](https://www.ad.nl/show/speelfilm-in-de-maak-van-successerie-woeste-grond~a45e7d70/)
+  > Johan Nijenhuis werkt aan een speelfilm die is gebaseerd op de succesvolle tv-serie Woeste Grond. De film heet Woeste Grond: Een hete zomer,...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Papieren schenkingen horen niet thuis in fatsoenlijk belastingstelsel](https://fd.nl/opinie/1592103/papieren-schenkingen-horen-niet-thuis-in-fatsoenlijk-belastingstelsel)
+  > Het valt toe te juichen dat de politiek ontwijkingsmogelijkheden in de schenk- en erfbelasting durft aan te pakken.
 - [Hogere beloning KLM-topvrouw ondanks bezuinigingen](https://fd.nl/bedrijfsleven/1592213/hogere-beloning-klm-topvrouw-ondanks-bezuinigingen)
   > In tijden van crisis en bezuinigingen ziet KLM-topvrouw Marjan Rintel haar beloning stijgen. Deels is het een papieren werkelijkheid.
 - [Tata Steel moet een fabriek stilleggen vanwege te hoge uitstoot](https://fd.nl/bedrijfsleven/1592119/tata-steel-moet-een-fabriek-stilleggen-vanwege-te-hoge-uitstoot)
@@ -54,8 +56,6 @@
   > Pensioenfonds ABP belegt voortaan 80% van zijn portefeuille in een op maat gemaakte index. Hoe dat uitpakt, valt te lezen in het nieuwste jaarverslag...
 - [OpenAI koopt populaire talkshow over technologie](https://fd.nl/bedrijfsleven/1592117/openai-koopt-populaire-talkshow-over-technologie)
   > Het bedrijf hoopt met de aankoop meer grip te krijgen op het debat over AI, dat in Silicon Valley nu nog grotendeels via sociale media gevoerd wordt.
-- [Pageturner over het louche Londen van de oligarchen](https://fd.nl/samenleving/1591871/pageturner-over-het-louche-londen-van-de-oligarchen)
-  > De zelfmoord van een jongen met een dubbelleven triggert een journalist. Waarom onderzoekt de Britse politie moordzaken waarbij Russische oligarchen...
 
 ### Meest gelezen
 
