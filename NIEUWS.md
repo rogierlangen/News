@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-04-2026 om 05:09*
+*Laatst bijgewerkt: 03-04-2026 om 07:16*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Kunstroof was trauma voor oud-directeur Drents Museum: 'Ik kan het nu loslaten'](https://nos.nl/l/2608881)
+  > Met de terugkeer van de gestolen gouden helm in het Drents Museum komt een eind aan een nachtmerrie van Harry Tupan. Hij was directeur van het museum...
+- [Luistersessie in platenzaak is terug: 'Een album vroeg luisteren is leuk'](https://nos.nl/l/2608879)
+  > Niet naar de platenwinkel om rijtjes vinyl door te spitten, maar om als allereerste naar een nieuw album te luisteren; vooral jonge fans zijn...
 - [Vesteda moet mogelijk duizenden huurwoningen verkopen, hoe kan dat?](https://nos.nl/l/2608876)
   > Vesteda, de grootste commerciële woningbelegger en -verhuurder van Nederland, ziet investeerders vertrekken. Het lijkt daardoor onvermijdelijk dat...
 - [Wekdienst 3/4: Serieschutter IJsselmonde hoort eis • Festivalseizoen van start](https://nos.nl/l/2608875)
   > Goedemorgen! De man die verdacht wordt van drie moorden in de Rotterdamse wijk IJsselmonde hoort welke straf het Openbaar Ministerie tegen hem eist....
 - [Actrice Blake Lively vangt bot bij rechter in zaak wangedrag regisseur Baldoni](https://nos.nl/l/2608872)
   > Een rechtszaak die actrice Blake Lively heeft aangespannen tegen regisseur en acteur Justin Baldoni wegens wangedrag op de set, is door de rechter...
-- [Nep-overlijdensbericht schildpad Jonathan (193) gebruikt voor oplichting](https://nos.nl/l/2608871)
-  > De hoogbejaarde Jonathan "leeft en maakt het goed". Gisteren meldden media wereldwijd de dood van de schildpad, met 193 jaar het oudste landdier ter...
-- [Rusland stuurt tweede olietanker naar Cuba, ondanks Amerikaans embargo](https://nos.nl/l/2608870)
-  > Rusland zal een tweede olietanker naar Cuba sturen om te helpen bij de brandstoftekorten op het eiland. Afgelopen week kwam al een eerste Russische...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [David van der Poel, de broer van: ‘Die cel in Australië is achteraf het beste wat Mathieu kon overkomen’](https://www.ad.nl/wielrennen/david-van-der-poel-de-broer-van-die-cel-in-australie-is-achteraf-het-beste-wat-mathieu-kon-overkomen~a508e407/)
-  > Hij koerste een leven lang in de schaduw van zijn broertje. Nu David van der Poel (33) gestopt is, geniet hij nóg intenser en bewuster van Mathieu’s...
-- [Tot 600 euro korting op autoverzekering door deze onbekende regeling](https://www.ad.nl/auto/tot-600-euro-korting-op-autoverzekering-door-deze-onbekende-regeling~a4e559e9/)
-  > Huishoudens met twee auto’s kunnen honderden euro’s korting per jaar krijgen op hun autoverzekering. Bij de zogeheten ‘tweede autoregeling’ wordt de...
-- [Nieuw funderingslabel verrast kopers na aankoop: ‘Ineens minder lenen bij bank’](https://www.ad.nl/economie/nieuw-funderingslabel-verrast-kopers-na-aankoop-ineens-minder-lenen-bij-bank~abd23e18/)
-  > Een nieuw funderingslabel kan voor huizenkopers faliekant verkeerd uitpakken. Omdat ze het label pas na de aankoop te zien krijgen, kan een slecht...
-- [De kleur van zijn huid schrok werkgevers af, de starre regels deden de rest](https://www.ad.nl/politiek/de-kleur-van-zijn-huid-schrok-werkgevers-af-de-starre-regels-deden-de-rest~a7fc74ef/)
-  > Chris de Boer solliciteerde zich suf, maar vond geen baan door zijn zeldzame bloedziekte. Een duwtje in de rug van de overheid? Nee, want volgens de...
-- ['Hoe zijn gedachtes gaan, het is doodeng’: Eric en Adrianne volgen rechtszaak van seriemoordenaar Sendric S.](https://www.ad.nl/binnenland/hoe-zijn-gedachtes-gaan-het-is-doodeng-eric-en-adrianne-volgen-rechtszaak-van-seriemoordenaar-sendric-s~a513e81d/)
-  > Verslaggevers Eric Oosterom en Adrianne de Koning volgen voor het AD de rechtszaak van seriemoordenaar Sendric S. Hoe kijken zij naar de zaak en wat...
+- [Colombiaanse sterspeler James Rodríguez in ziekenhuis na uitdroging](https://www.ad.nl/wk-voetbal/colombiaanse-sterspeler-james-rodriguez-in-ziekenhuis-na-uitdroging~a34965d1/)
+  > De Colombiaanse sterspeler James Rodríguez ligt na de met 3-1 verloren interland tegen Frankrijk al 72 uur in het ziekenhuis.
+- [Nog even nat en druilerig weer, maar geen zorgen: tweede paasdag kunnen we paaseieren zoeken in de zon](https://www.ad.nl/binnenland/nog-even-nat-en-druilerig-weer-maar-geen-zorgen-tweede-paasdag-kunnen-we-paaseieren-zoeken-in-de-zon~a991c011/)
+  > Druilerige, regenachtige dagen gaan we tegemoet en ook eerste paasdag houdt het weer niet over. Maar geen zorgen, tweede paasdag klaart de boel op en...
+- [Diesel is 10,5 cent duurder dan donderdag: 'Echt heel veel'](https://www.ad.nl/economie/diesel-is-10-5-cent-duurder-dan-donderdag-echt-heel-veel~ae4c682d/)
+  > Er komt nog geen einde aan de stijgende brandstofprijzen door de oorlog in het Midden-Oosten. Zo is de adviesprijs voor een liter diesel bij de grote...
+- [Opnames The Voice België werden stilgelegd na ruzie Joost Klein en Koen Wauters: ‘Er zijn echt grove dingen gezegd’](https://www.ad.nl/show/opnames-the-voice-belgie-werden-stilgelegd-na-ruzie-joost-klein-en-koen-wauters-er-zijn-echt-grove-dingen-gezegd~a4f48270/)
+  > De opnames van de Vlaamse versie van The Voice zijn onlangs een tijdje stilgelegd omdat coaches Joost Klein (28) en Koen Wauters (58) in een felle...
+- [CNN: Ondanks bombardementen heeft Iran nog steeds raketlanceerders en veel drones](https://www.ad.nl/buitenland/cnn-ondanks-bombardementen-heeft-iran-nog-steeds-raketlanceerders-en-veel-drones~ac528ac3/)
+  > Iran beschikt na wekenlange bombardementen door de VS en Israël nog over ongeveer de helft van zijn raketlanceerders. Dat schrijft nieuwszender CNN,...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Een zee van bloemen in het museum](https://fd.nl/samenleving/1591748/een-zee-van-bloemen-in-het-museum)
-  > Zien we bloemen nog wel echt? De tentoonstelling ‘Flowers Forever’ in de Kunsthal Rotterdam nodigt uit om bloemen met hernieuwde aandacht te kijken.
-- [Mahler Capital eist €110.000 van ex-bestuurder Renske, die vragen heeft bij miljoenenverlies van het cryptobedrijf](https://fd.nl/samenleving/1591942/mahler-capital-eist-110-000-van-ex-bestuurder-renske-die-vragen-heeft-bij-miljoenenverlies-van-het-cryptobedrijf)
-  > Renske raadde iedereen aan om in bitcoin te stappen. Nu haar eigen inleg is verdampt, vermoedt ze malversatie bij het bedrijfje waar ze bestuurder...
-- [‘De dollar is in mijn leven nog nooit zo dicht bij het kantelpunt geweest’](https://fd.nl/economie/1591866/de-dollar-is-in-mijn-leven-nog-nooit-zo-dicht-bij-het-kantelpunt-geweest)
-  > Het grillige beleid van de regering-Trump tast het vertrouwen in de Amerikaanse munt aan. Slecht nieuws, vindt econoom Barry Eichengreen. Want er...
-- [Nog maar één kerosine-levering, hoe lang kunnen we nog vliegen?](https://fd.nl/economie/1591952/nog-maar-een-kerosine-levering-hoe-lang-kunnen-we-nog-vliegen)
-  > Vandaag in Dagkoers: Luchtvaart vreest kerosinetekort, de Nederlandse trustsector is ingrijpend geslonken en wat is er aan de hand bij...
-- [Tegenstrijdige lessen](https://fd.nl/opinie/1592035/tegenstrijdige-lessen)
-  > Het juiste moment kiezen voor een renteverhoging is nog niet zo makkelijk.
+- [De zaak-Szijjártó: wat als een EU-lidstaat Russische belangen dient?](https://fd.nl/politiek/1591943/de-zaak-szijjarto-wat-als-een-eu-lidstaat-russische-belangen-dient)
+  > EU-leiders zitten in hun maag met de Kremlin-vriendelijke Hongaarse minister van buitenlandse zaken. Als diens partij Fidesz na 12 april kan...
+- [Laat Oekraïne niet bungelen: het sterkste leger van het continent heeft Europa's steun nu nodig](https://fd.nl/opinie/1591940/laat-oekraine-niet-bungelen)
+  > Vier jaar oorlog hebben van Oekraïne een militaire krachtpatser gemaakt, maar zonder internationale hulp dreigt een financiële ramp. Terwijl Europa...
+- [Aziatische beurshandel omhoog](https://fd.nl/financiele-markten/1592062/aziatische-beurshandel-omhoog)
+  > Beleggers in Azië hielden zich vast aan voorzichtig herstel van de kooplust op de Amerikaanse beurzen.
+- [VS verwoesten grote brug in Teheran](https://fd.nl/politiek/1592061/vs-verwoesten-grote-brug-in-teheran)
+  > De Amerikaanse president Donald Trump waarschuwde vannacht opnieuw dat de aanvallen op Iraanse infrastructuur uitgebreid zullen worden.
+- [Een platenspeler van beton en chic eten achter de duinen van Terschelling](https://fd.nl/samenleving/1592012/een-platenspeler-van-beton-en-chic-eten-achter-de-duinen-van-terschelling)
+  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
 
 ### Meest gelezen
 
