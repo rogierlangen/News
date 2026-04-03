@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-04-2026 om 19:41*
+*Laatst bijgewerkt: 03-04-2026 om 20:41*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Bemanningslid neergehaald Amerikaans gevechtsvliegtuig gered, zoekactie nog gaande](https://nos.nl/l/2608991)
+  > Een bemanningslid van een boven Iran neergeschoten Amerikaans gevechtsvliegtuig is gered door het Amerikaanse leger. Het gaat om de piloot van het...
 - [Twee keer eerder ontslagen GGZ-begeleider voor rechter voor seksueel misbruik cliënten](https://nos.nl/l/2608984)
   > Een 50-jarige man uit Zierikzee hoorde vandaag drie jaar cel tegen zich eisen voor ontucht, aanranding en verkrachting van cliënten in de...
 - [Crisis in Cuba: hoe overleef je in een land dat op instorten staat?](https://nos.nl/l/2608981)
@@ -16,8 +18,6 @@
   > Tata Steel in IJmuiden legt een bedrijfsonderdeel tijdelijk stil omdat na metingen is gebleken dat het te veel van de kankerverwekkende stof chroom-6...
 - ['In de bergen moet je geen haast hebben' en meer tips tegen oplichting in Nepal](https://nos.nl/l/2608978)
   > Ze komen er allebei al tientallen jaren: René de Bos en Katja Staartjes. Zij was de eerste Nederlandse vrouw die de Mount Everest wist te beklimmen...
-- [Iraniërs vrezen Israëlisch-Amerikaanse aanvallen op burgerdoelen](https://nos.nl/l/2608976)
-  > De Amerikaans-Israëlische oorlog in Iran richt zich niet alleen op militaire doelen. Ook woonhuizen, universiteiten, infrastructuur en winkel- en...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Suzan in tranen bij gevoelig duet Sanne-Maaike en Ruben in The Voice: ‘Raakt me diep vanbinnen’](https://www.ad.nl/show/suzan-in-tranen-bij-gevoelig-duet-sanne-maaike-en-ruben-in-the-voice-raakt-me-diep-vanbinnen~a6ee6b8b/)
-  > Muziek blijft ontroeren, zo bleek vrijdagavond tijdens het tv-programma The Voice op RTL4. Coach Suzan Stortelder van het duo Suzan & Freek hield het...
-- [Tijd dringt voor nummer 2 Cambuur op bezoek bij VVV, ADO draait het helemaal om tegen Jong Ajax](https://www.ad.nl/voetbal/tijd-dringt-voor-nummer-2-cambuur-op-bezoek-bij-vvv-ado-draait-het-helemaal-om-tegen-jong-ajax~a4ac55ef/)
-  > De interlandperiode zit erop, het clubvoetbal is terug. Met vanavond bijna een volledige speelronde in de Keuken Kampioen Divisie. Negen wedstrijden,...
-- [NEC-uitblinker Tjaronn Chery stopt als international van Suriname: ‘Mislopen WK zal altijd pijnlijk moment blijven’](https://www.ad.nl/voetbal/nec-uitblinker-tjaronn-chery-stopt-als-international-van-suriname-mislopen-wk-zal-altijd-pijnlijk-moment-blijven~a334dd1c3/)
-  > Tjaronn Chery heeft een punt gezet achter zijn interlandloopbaan bij Suriname. De 37-jarige aanvoerder van NEC greep afgelopen week met Natio naast...
-- [PSV laat oog vallen op gewilde spits, Feyenoord bevestigt verlenging met middenvelder (19)](https://www.ad.nl/voetbal/psv-laat-oog-vallen-op-gewilde-spits-feyenoord-bevestigt-verlenging-met-middenvelder-19~a35ea681/)
-  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
-- [LIVE Keuken Kampioen Divisie | ADO Den Haag draait het helemaal om tegen Jong Ajax dankzij Kilo en Van der Sloot](https://www.ad.nl/den-haag/live-keuken-kampioen-divisie-ado-den-haag-draait-het-helemaal-om-tegen-jong-ajax-dankzij-kilo-en-van-der-sloot~a435c53b/)
-  > ADO Den Haag toont veerkracht tegen Jong Ajax. Na een 0-2 achterstand buigt de promovendus het om via Daryl van Mieghem, Jinairo Johnson (eigen...
+- [Tweede gevechtsvliegtuig VS neergestort, Trump: ‘Geen invloed op gesprekken met Iran'](https://www.ad.nl/buitenland/tweede-gevechtsvliegtuig-vs-neergestort-trump-geen-invloed-op-gesprekken-met-iran~ac528ac3/)
+  > Een tweede gevechtsvliegtuig van de VS is vrijdag neergestort, nu in de buurt van de Straat van Hormuz. De piloot is gered melden Amerikaanse...
+- [Titel gloort voor ADO na comeback tegen Jong Ajax en dure misstap van concurrent Cambuur](https://www.ad.nl/voetbal/titel-gloort-voor-ado-na-comeback-tegen-jong-ajax-en-dure-misstap-van-concurrent-cambuur~a4ac55ef/)
+  > Het kampioenschap kan ADO bijna niet meer ontgaan. De koploper van de Keuken Kampioen Divisie kwam terug van een 0-2 achterstand tegen Jong Ajax en...
+- [Vol in het kruis: Franse aanvaller krijgt rood na smerige trap in edele delen](https://www.ad.nl/voetbal/vol-in-het-kruis-franse-aanvaller-krijgt-rood-na-smerige-trap-in-edele-delen~a2545406/)
+  > Een uiterst pijnlijk moment in de Saoedische competitie: tijdens de wedstrijd tussen Al-Ittihad en Al Hazm deelde de Franse aanvaller Moussa Diaby...
+- [ADO Den Haag zet na zege op Jong Ajax en nederlaag Cambuur reuzenstap richting de titel](https://www.ad.nl/den-haag/ado-den-haag-zet-na-zege-op-jong-ajax-en-nederlaag-cambuur-reuzenstap-richting-de-titel~a435c53b/)
+  > ADO Den Haag kan in het gunstigste geval op Tweede Paasdag kampioen worden. De koploper van de Keuken Kampioen Divisie won zelf na een heerlijk...
+- [Verzakking spoor Vught door heiwerkzaamheden in de buurt, zaterdag rijden treinen weer](https://www.ad.nl/binnenland/verzakking-spoor-vught-door-heiwerkzaamheden-in-de-buurt-zaterdag-rijden-treinen-weer~a79c7d74/)
+  > De spoorverzakking bij Vught is veroorzaakt door heiwerkzaamheden in de buurt. Dat meldt ProRail na onderzoek. Het verder verzakken van het spoor is...
 
 ### Meest gelezen
 
