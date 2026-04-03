@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-04-2026 om 15:42*
+*Laatst bijgewerkt: 03-04-2026 om 16:47*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Spoor verzakt bij Vught, geen treinen ten zuiden van Den Bosch](https://nos.nl/l/2608948)
+- [Witte Huis wil hoogste defensiebudget in jaren en benoemt Vance tot 'fraude-tsaar'](https://nos.nl/l/2608955)
+  > President Trump stelt voor om het budget voor de Amerikaanse defensie volgend jaar met 445 miljard dollar te verhogen naar 1,5 biljoen dollar....
+- [Justitie onderzoekt mogelijk antisemitisme bij pro-Palestijns protest op de Dam](https://nos.nl/l/2608953)
+  > Het Openbaar Ministerie en de politie bekijken of er bij een pro-Palestinademonstratie op de Dam gisteren sprake was van het vergoelijken van de...
+- [Twee arrestaties in Spijkenisse in corruptiezaak marechaussee](https://nos.nl/l/2608951)
+  > De politie heeft in Spijkenisse twee arrestaties verricht die verband houden met het lekken van ambtelijke informatie van de Koninklijke...
+- [Problemen bij naschoolse opvanglocaties in Parijs, tientallen medewerkers geschorst](https://nos.nl/l/2608950)
+  > In Parijs zijn sinds begin dit jaar 78 medewerkers van naschoolse opvanglocaties geschorst, van wie er 31 verdacht worden van seksueel geweld. Dat...
+- [Spoor verzakt bij Vught, lange rijen voor bussen op station Den Bosch](https://nos.nl/l/2608948)
   > Door een verzakking van het spoor bij Vught rijden er de rest van de dag geen treinen meer tussen Den Bosch en Tilburg en tussen Den Bosch en Boxtel....
-- [Vereniging Eigen Huis: maak rapport over fundering eerder beschikbaar voor koper](https://nos.nl/l/2608942)
-  > Huizenkopers moeten eerder duidelijkheid krijgen over de fundering van de woning die ze kopen, vindt Vereniging Eigen Huis (VEH). Vanaf deze maand...
-- [Android-app van Rabobank werkt niet meer voor slechtzienden, bank bezig met oplossing](https://nos.nl/l/2608941)
-  > Sommige mensen met een visuele beperking kunnen geen geld meer overmaken via de Rabobank-app. Volgens de Oogvereniging, belangenbehartiger van mensen...
-- [Geen strafvervolging na fatale brand Roermond: 'Geen verdachten in leven'](https://nos.nl/l/2608940)
-  > Het Openbaar Ministerie gaat niemand vervolgen voor de brand in Roermond waarbij begin september vorig jaar twee mensen om het leven kwamen. De brand...
-- [KLM-topvrouw verdiende 30 procent meer in roerig 2025](https://nos.nl/l/2608939)
-  > President-directeur van KLM Marjan Rintel heeft vorig jaar 30 procent meer verdiend dan in 2024. Dat blijkt uit het nieuwe jaarverslag van de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [AZ-aanvoerder Jordy Clasie keert na ruim half jaar blessureleed terug in wedstrijdselectie](https://www.ad.nl/voetbal/az-aanvoerder-jordy-clasie-keert-na-ruim-half-jaar-blessureleed-terug-in-wedstrijdselectie~af15c2da/)
-  > AZ  kan zaterdag tegen Fortuna Sittard weer beschikken over aanvoerder Jordy Clasie. De 34-jarige middenvelder zit voor het eerst weer bij de...
-- [Boaz Kok van Goldband overrompeld door reacties op zijn rol van Judas in The Passion: ‘Streelt je ego’](https://www.ad.nl/show/boaz-kok-van-goldband-overrompeld-door-reacties-op-zijn-rol-van-judas-in-the-passion-streelt-je-ego~a91a5b2a/)
-  > Boaz Kok, bekend van de Haagse popgroep Goldband, heeft indruk gemaakt met zijn vertolking van Judas in de zestiende editie van The Passion in het...
-- [Elke keer dat hij in beeld kwam, verbaasden we ons over zijn daadkracht en gekozen woorden](https://www.ad.nl/binnenland/elke-keer-dat-hij-in-beeld-kwam-verbaasden-we-ons-over-zijn-daadkracht-en-gekozen-woorden~a40a960a/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Gidi Markuszower moet echter beter gaan flirten](https://www.ad.nl/politiek/gidi-markuszower-moet-echter-beter-gaan-flirten~a21b24e9/)
-  > Oorlog, geschrapte plannen, een relletje of twee: de aftrap van het kabinet Jetten is nog geen vliegende start. Hoe denkt de ministersploeg toch iets...
-- [Internetsensatie Boer Harm onthult na twee jaar zijn identiteit: ‘Dit verhaal krijgt een gezicht’](https://www.ad.nl/show/internetsensatie-boer-harm-onthult-na-twee-jaar-zijn-identiteit-dit-verhaal-krijgt-een-gezicht~a971cacf/)
-  > Boer Harm werd in 2024 een echte internetsensatie onder jongeren nadat zijn vunzige lied Brommers Kieken viraal ging. De identiteit van de...
+- [Frans Bauer zielsgelukkig met geboorte van kleinzoon Jan: ‘Niet normaal, wat een belevenis’](https://www.ad.nl/show/frans-bauer-zielsgelukkig-met-geboorte-van-kleinzoon-jan-niet-normaal-wat-een-belevenis~a185544b7/)
+  > Frans Bauer is ‘bizar trots’ nu hij voor het eerst opa is geworden. Zijn kleinzoon Jan, zoon van Jan Bauer, kwam donderdag ter wereld. Frans beseft...
+- [Ondanks flinke bezuinigingen kreeg topvrouw KLM er dit jaar juist 32 procent aan geld bij](https://www.ad.nl/binnenland/ondanks-flinke-bezuinigingen-kreeg-topvrouw-klm-er-dit-jaar-juist-32-procent-aan-geld-bij~a1aef628/)
+  > De beloning van topvrouw Marjan Rintel van KLM is vorig jaar met bijna 32 procent gestegen. De toename valt samen met een besparingsoperatie bij de...
+- [Chelsea-coach zet aanvoerder buiten selectie na ‘overschrijden grens’, agent slaat terug: ‘Volstrekt oneerlijk’](https://www.ad.nl/voetbal/chelsea-coach-zet-aanvoerder-buiten-selectie-na-overschrijden-grens-agent-slaat-terug-volstrekt-oneerlijk~ac2af152/)
+  > Chelsea-trainer Liam Rosenior heeft zijn aanvoerder Enzo Fernández voor twee wedstrijden buiten de selectie gezet. De Argentijnse middenvelder heeft...
+- [Rutte lijkt Oekraïne te hebben gered met ‘Hormuz-deal’, nadat Trump woedend hulp eiste](https://www.ad.nl/buitenland/rutte-lijkt-oekraine-te-hebben-gered-met-hormuz-deal-nadat-trump-woedend-hulp-eiste~a0bda9a9/)
+  > Veertig landen, waaronder Nederland, willen onder leiding van de Britten de Straat van Hormuz weer toegankelijk maken. Deze Hormuz-coalitie kwam niet...
+- [Amerikaans gevechtsvliegtuig neergehaald in Iran, piloot is gered, situatie tweede bemanningslid onbekend](https://www.ad.nl/buitenland/amerikaans-gevechtsvliegtuig-neergehaald-in-iran-piloot-is-gered-situatie-tweede-bemanningslid-onbekend~ac528ac3/)
+  > Amerikaanse functionarissen melden dat Iran een Amerikaans gevechtsvliegtuig heeft neergehaald. Vermoedelijk gaat het om een jachtvliegtuig van het...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Tata Steel moet een fabriek stilleggen vanwege te hoge uitstoot](https://fd.nl/bedrijfsleven/1592119/tata-steel-moet-een-fabriek-stilleggen-vanwege-te-hoge-uitstoot)
+  > De staalproducent moet het bedrijfsonderdeel uiterlijk zaterdag 4 april stilleggen vanwege te veel emissie van het giftige chroom-6.
 - [Het roer moet om bij APG](https://fd.nl/financiele-markten/1592194/het-roer-moet-om-bij-apg)
   > Pensioenfonds ABP belegt voortaan 80% van zijn portefeuille in een op maat gemaakte index. Hoe dat uitpakt, valt te lezen in het nieuwste jaarverslag...
 - [OpenAI koopt populaire talkshow over technologie](https://fd.nl/bedrijfsleven/1592117/openai-koopt-populaire-talkshow-over-technologie)
@@ -54,8 +56,6 @@
   > De zelfmoord van een jongen met een dubbelleven triggert een journalist. Waarom onderzoekt de Britse politie moordzaken waarbij Russische oligarchen...
 - [Beleeft PSV-trainer Peter Bosz een vrolijk Pasen?](https://fd.nl/bedrijfsleven/1591342/beleeft-psv-trainer-peter-bosz-een-vrolijk-pasen)
   > Hoewel PSV de laatste wedstrijden verloor, kan het kampioenschap de ploeg uit Eindhoven nauwelijks nog ontgaan. Dat zal de nukkig ogende trainer Bosz...
-- [Iedereen aan de AI-bril, maar koers EssilorLuxottica daalt](https://fd.nl/financiele-markten/1591935/iedereen-aan-de-ai-bril-maar-koers-essilorluxottica-daalt)
-  > Het Frans-Italiaanse bedrijf maakt samen met Meta AI-brillen. Die gaan grif over de toonbank, maar er is concurrentie op komst.
 
 ### Meest gelezen
 
