@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-04-2026 om 22:38*
+*Laatst bijgewerkt: 03-04-2026 om 23:38*
 
 ---
 
@@ -8,6 +8,9 @@
 
 ### Laatste nieuws
 
+- [Explosie bij Israëlcentrum in Nijkerk](https://nos.nl/l/2609000)
+  > Bij het Israëlcentrum in Nijkerk is gisteravond een explosie geweest. Rond 23.30 uur kreeg de politie hierover een melding.
+        Voor zover bekend...
 - [Frans OM begint onderzoek naar tv-zender om mogelijk racistische opmerkingen](https://nos.nl/l/2608999)
   > Het Franse Openbaar Ministerie is een onderzoek begonnen naar de nieuwszender CNews wegens mogelijk haatzaaien. Aanleiding zijn uitingen op de zender...
 - [Bemanningslid neergehaald Amerikaans gevechtsvliegtuig gered, zoekactie nog gaande](https://nos.nl/l/2608991)
@@ -16,8 +19,6 @@
   > Een 50-jarige man uit Zierikzee hoorde vandaag drie jaar cel tegen zich eisen voor ontucht, aanranding en verkrachting van cliënten in de...
 - [Crisis in Cuba: hoe overleef je in een land dat op instorten staat?](https://nos.nl/l/2608981)
   > Twee grote tassen vol medicijnen en medische apparatuur, gedoneerd uit Chili en Costa Rica, worden uit een auto geladen van ICAP, de Cubaanse...
-- [Onderdeel van Tata Steel wordt stilgelegd om te hoge uitstoot chroom-6](https://nos.nl/l/2608979)
-  > Tata Steel in IJmuiden legt een bedrijfsonderdeel tijdelijk stil omdat na metingen is gebleken dat het te veel van de kankerverwekkende stof chroom-6...
 
 ### Meest gelezen
 
@@ -29,7 +30,7 @@
 
 - [Politie onderzoekt explosie bij Israëlcentrum in Nijkerk](https://www.ad.nl/nijkerk/politie-onderzoekt-explosie-bij-israelcentrum-in-nijkerk~a3252bc93/)
   > De politie doet vrijdagavond onderzoek naar een explosie bij het hek van het Israëlcentrum op de Henri Nouwenstraat in Nijkerk.
-- [Tweede gevechtsvliegtuig VS neergestort, Trump: ‘Geen invloed op gesprekken met Iran'](https://www.ad.nl/buitenland/tweede-gevechtsvliegtuig-vs-neergestort-trump-geen-invloed-op-gesprekken-met-iran~ac528ac3/)
+- [Tweede gevechtsvliegtuig VS neergestort, Trump: ‘Heeft geen invloed op gesprekken met Iran’, Teheran opnieuw onder vuur](https://www.ad.nl/buitenland/tweede-gevechtsvliegtuig-vs-neergestort-trump-heeft-geen-invloed-op-gesprekken-met-iran-teheran-opnieuw-onder-vuur~ac528ac3/)
   > Een tweede gevechtsvliegtuig van de VS is vrijdag neergestort, nu in de buurt van de Straat van Hormuz. De piloot is gered melden Amerikaanse...
 - [Titel gloort voor ADO na comeback tegen Jong Ajax en dure misstap van concurrent Cambuur](https://www.ad.nl/voetbal/titel-gloort-voor-ado-na-comeback-tegen-jong-ajax-en-dure-misstap-van-concurrent-cambuur~a4ac55ef/)
   > Het kampioenschap kan ADO bijna niet meer ontgaan. De koploper van de Keuken Kampioen Divisie kwam terug van een 0-2 achterstand tegen Jong Ajax en...
