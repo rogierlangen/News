@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-04-2026 om 10:48*
+*Laatst bijgewerkt: 03-04-2026 om 11:39*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Frans containerschip vaart door Straat van Hormuz, grootste gascentrale van Abu Dhabi stilgelegd](https://www.ad.nl/buitenland/frans-containerschip-vaart-door-straat-van-hormuz-grootste-gascentrale-van-abu-dhabi-stilgelegd~ac528ac3/)
-  > Een containerschip van een Franse eigenaar is door de Straat van Hormuz gevaren, meldt persbureau Bloomberg. Daarmee lijkt de eerste doorvaart van...
-- [Arne Slot is niet bang voor zwaar programma in april: ‘Het is logisch dat je sterke tegenstanders krijgt in deze fase’](https://www.ad.nl/voetbal/arne-slot-is-niet-bang-voor-zwaar-programma-in-april-het-is-logisch-dat-je-sterke-tegenstanders-krijgt-in-deze-fase~ac8a52ae/)
-  > Arne Slot denkt dat zijn team klaar is voor een zwaar programma in april. Liverpool speelt zaterdagmiddag (13.45 uur) in de kwartfinales van de FA...
-- [Roerloos hoort Sendric S. de eis aan: justitie wil 20 jaar cel en tbs voor ‘ongekende’ moorden](https://www.ad.nl/binnenland/roerloos-hoort-sendric-s-de-eis-aan-justitie-wil-20-jaar-cel-en-tbs-voor-ongekende-moorden~a9a6e950/)
-  > Ogenschijnlijk onbewogen hoorde Sendric S. (25) een gevangenisstraf van twintig jaar én tbs met dwangverpleging eisen. Justitie weigert te geloven...
-- [Het is simpel, kost geen drol en de samenleving zou er meteen van opknappen](https://www.ad.nl/binnenland/het-is-simpel-kost-geen-drol-en-de-samenleving-zou-er-meteen-van-opknappen~acc229fd/)
-  > Ze snapt heus wel dat het niet eenvoudig is om van de gewone man of vrouw iets te vragen dat onze wereldleiders inmiddels totaal vreemd is, schrijft...
-- [Mircea Lucescu (80) krijgt hartaanval in ziekenhuis](https://www.ad.nl/wk-voetbal/mircea-lucescu-80-krijgt-hartaanval-in-ziekenhuis~a06f393a/)
-  > De Roemeense bondscoach Mircea Lucescu (80) heeft vrijdagochtend een acuut hartinfarct gekregen in het universitair ziekenhuis in Boekarest, waaruit...
+- [Olifant wordt roze geverfd voor fotoshoot en overlijdt enkele maanden later: dierenorganisaties zijn woedend](https://www.ad.nl/buitenland/olifant-wordt-roze-geverfd-voor-fotoshoot-en-overlijdt-enkele-maanden-later-dierenorganisaties-zijn-woedend~ac7662ef/)
+  > Het moest een indrukwekkend project worden, maar de fotoshoot met de roze geverfde olifant Chanchal heeft vooral tot grote woede geleid. Enkele...
+- [Kijkers smullen van wilde drummer bij The Passion en vergelijken hem met Muppet: ‘Ik had niet eens Red Bull op’](https://www.ad.nl/show/kijkers-smullen-van-wilde-drummer-bij-the-passion-en-vergelijken-hem-met-muppet-ik-had-niet-eens-red-bull-op~aa42be3b/)
+  > Drummer Sven van der Meer (27) stal donderdagavond met zijn gekke bekken de show in The Passion. 1,7 miljoen kijkers zagen hem zo losgaan dat hij op...
+- [Stoelendans bij bezichtiging: om de 15 minuten staat een nieuwe kijker op de stoep](https://www.ad.nl/wonen/stoelendans-bij-bezichtiging-om-de-15-minuten-staat-een-nieuwe-kijker-op-de-stoep~ad899851/)
+  > Sommige huizen zijn zo populair dat je andere kijkers tegenkomt bij een bezichtiging en dat voert de druk om flink te bieden alleen maar op, merkt...
+- [Bewoner trekt klacht over kerkklokken in na dorpswoede: ‘Geschrokken van commotie’](https://www.ad.nl/binnenland/bewoner-trekt-klacht-over-kerkklokken-in-na-dorpswoede-geschrokken-van-commotie~ae74f386/)
+  > De bewoner die aan de gemeente Goeree-Overflakkee schreef geen oog dicht te doen door het nachtelijk gelui van de klokken van de toren van...
+- [Bauke Mollema maakt WK-droom bekend: ‘Laat de wereld zien dat er niets boven fietsen in Groningen en Drenthe gaat’](https://www.ad.nl/wielrennen/bauke-mollema-maakt-wk-droom-bekend-laat-de-wereld-zien-dat-er-niets-boven-fietsen-in-groningen-en-drenthe-gaat~aee30e766/)
+  > De provincies Groningen en Drenthe willen het WK wielrennen organiseren. Dat blijkt uit een promotievideo die de Groningse wielrenner Bauke Mollema...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Uitbreiding van de Europese Unie mag dan lastig zijn, IJslands toetreding is een buitenkans](https://fd.nl/opinie/1591858/uitbreiding-van-de-europese-unie-mag-dan-lastig-zijn-ijslands-toetreding-is-een-buitenkans)
+  > Nieuwe geopolitieke spanningen maken de toetreding van IJsland tot de Europese Unie nog relevanter: economisch, maatschappelijk én politiek.
+- [De drukste beursgangenmarkt ter wereld hapert door Iran-oorlog](https://fd.nl/financiele-markten/1592010/de-drukste-beursgangenmarkt-ter-wereld-hapert-door-iran-oorlog)
+  > In de afgelopen twee jaar gingen er meer dan zevenhonderd bedrijven naar de Indiase beurzen. Ook 2026 beloofde een recordjaar te worden. Tot de...
+- [Nederland grootste speler in cacaoproducten wereldwijd](https://fd.nl/economie/1592186/nederland-grootste-speler-in-cacaoproducten-wereldwijd)
+  > De totale Nederlandse handelswaarde van cacaoproducten was vorig jaar bijna €25 mrd.
 - [Integriteit van de markten staat onder zware druk](https://fd.nl/financiele-markten/1592016/integriteit-van-de-markten-staat-onder-zware-druk)
   > Dat er insiders bezig zouden zijn op voorspellingsmarkten wisten we al, maar nu lijkt dit zich voort te zetten op financiële markten.
 - [Papieren schenking om belasting te besparen is volgens deskundigen volledig ingeburgerd](https://fd.nl/politiek/1592092/papieren-schenking-om-belasting-te-besparen-is-volgens-deskundigen-volledig-ingeburgerd)
   > Het kabinet heeft papieren schenkingen, die ertoe leiden dat erfgenamen minder belasting betalen, als onwenselijk aangemerkt. Deskundigen zijn...
-- [Ook mannen moeten mooi zijn](https://fd.nl/samenleving/1591278/ook-mannen-moeten-mooi-zijn)
-  > Het schoonheidsideaal voor mannen wordt dwingender, ziet filosoof Doortje Lenders. En ‘niet alleen Hollywood-mannen hebben de beautykoorts te pakken’.
-- [Tien jaar na de Panama Papers is de Nederlandse trustsector gehalveerd](https://fd.nl/bedrijfsleven/1591946/tien-jaar-na-de-panama-papers-is-de-nederlandse-trustsector-gehalveerd)
-  > Trustkantoren lagen jarenlang onder vuur vanwege het faciliteren van belastingontwijking. Strenger toezicht en nieuwe belastingregels maken Nederland...
-- [Hoe wijder, hoe beter](https://fd.nl/samenleving/1591736/hoe-wijder-hoe-beter)
-  > De broekspijp wordt, niet voor het eerst, weer ruimer. Een kleine geschiedenis van de wijde broek.
 
 ### Meest gelezen
 
