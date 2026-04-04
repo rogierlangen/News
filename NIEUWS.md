@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-04-2026 om 08:48*
+*Laatst bijgewerkt: 04-04-2026 om 09:43*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Dialectrock wordt immaterieel erfgoed, Bennie Jolink 'oerendtrots'](https://nos.nl/l/2609027)
+  > Dialectrock krijgt een vermelding op de lijst voor immaterieel erfgoed. Dat heeft het Kenniscentrum Immaterieel Erfgoed Nederland (KIEN)...
 - [Vluchten of blijven in Iran: 'Iedereen is vertrokken, maar ik blijf'](https://nos.nl/l/2609020)
   > In de Iraanse hoofdstad Teheran is het leven sinds het begin van de oorlog ingrijpend veranderd. Mensen zijn bang voor de Amerikaans-Israëlisch...
 - [Aantal meldingen van wolvenaanvallen op vee afgenomen in eerste kwartaal](https://nos.nl/l/2609016)
@@ -16,8 +18,6 @@
   > Er is iets opmerkelijks aan de hand in gelovig Nederland. Terwijl veel kerken leeglopen, barsten andere uit hun voegen en lijken jongeren juist méér...
 - [Dode en gewonden na incident in Peruaans stadion voor derby](https://nos.nl/l/2609010)
   > In een stadion in de Peruaanse hoofdstad Lima is iemand om het leven gekomen en zijn 47 mensen gewond geraakt bij een incident voorafgaand aan een...
-- [Megasterren kiezen voor concerten op één plek: 'Weinig voordelen voor fans'](https://nos.nl/l/2609009)
-  > Meerdere grote artiesten geven dit jaar concerten op slechts één plek in Europa. Céline Dion is daarvan het laatste voorbeeld, met de aankondiging...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [19-jarige spits uit Almere en erevoorzitter Robbie Williams dromen van nieuwe stunt met Port Vale](https://www.ad.nl/voetbal/19-jarige-spits-uit-almere-en-erevoorzitter-robbie-williams-dromen-van-nieuwe-stunt-met-port-vale~a94d014c/)
-  > Port Vale staat stijf onderaan op het derde niveau in Engeland, maar de club uit Stoke-on-Trent geeft de term ‘cupfighter’ een hele andere dimensie....
-- [Yves Berendse maakt tv-debuut in nieuwe muziekshow Sing with me](https://www.ad.nl/show/yves-berendse-maakt-tv-debuut-in-nieuwe-muziekshow-sing-with-me~ab279d6b/)
-  > Yves Berendse, Davina Michelle, Nick Schilder en Waylon zijn vanaf het najaar te zien in een nieuw muziekprogramma op SBS6. In Sing with me kunnen...
-- [125 smartwatches getest, dit zijn de beste](https://www.ad.nl/tech/125-smartwatches-getest-dit-zijn-de-beste~a29e6058/)
-  > Wil je weten welke smartwatch het beste bij je past? Dat is afhankelijk van waar je hem voor wilt gebruiken. De Consumentenbond testte 125 modellen...
-- [Dieselprijs aan de pomp ietsje hoger na forse toename op vrijdag](https://www.ad.nl/economie/dieselprijs-aan-de-pomp-ietsje-hoger-na-forse-toename-op-vrijdag~a776bf2b/)
-  > Diesel is zaterdag iets duurder geworden aan de pomp, na de flinke prijsstijging van ruim 10 eurocent op vrijdag. Consumentencollectief...
-- [Dit is waarom internetsensatie Boer Harm zijn ware identiteit onthulde: ‘Ik raakte alles kwijt’](https://www.ad.nl/show/dit-is-waarom-internetsensatie-boer-harm-zijn-ware-identiteit-onthulde-ik-raakte-alles-kwijt~a195ee15/)
-  > Twee jaar lang hield hij iedereen met zijn masker voor de gek. Maar vrijdag onthulde Boer Harm toch zijn ware identiteit. De grote vraag: waarom?...
+- [LIVE Oorlog Oekraïne | Oekraïne: Vijf doden door Russische aanval op markt in frontstad Nikopol](https://www.ad.nl/buitenland/live-oorlog-oekraine-oekraine-vijf-doden-door-russische-aanval-op-markt-in-frontstad-nikopol~adfb97be/)
+  > In Oekraïne zijn vijf doden gevallen door een Russische aanval op een markt in de frontstad Nikopol, melden de autoriteiten. Negentien anderen zijn...
+- [Drie jaar na treinramp en niets geleerd: reiziger en economie gaan voor veiligheid](https://www.ad.nl/binnenland/drie-jaar-na-treinramp-en-niets-geleerd-reiziger-en-economie-gaan-voor-veiligheid~a7d049d8/)
+  > Precies drie jaar na het treinongeluk bij Voorschoten is werken aan het spoor vrijwel even onveilig als daarvoor. Treinen razen nog steeds met 130 km...
+- [Rotterdamse advocaat Haroon Raza bereid om Ridouan Taghi bij te staan](https://www.ad.nl/binnenland/rotterdamse-advocaat-haroon-raza-bereid-om-ridouan-taghi-bij-te-staan~a258f721/)
+  > De Rotterdamse advocaat Haroon Raza is bereid om, in een team van vier andere advocaten, Ridouan Taghi bij te staan in het hoger beroep van het...
+- [Schok is groot bij Christenen voor Israël na explosie: ‘Dit is een aanslag, hoe moet je het anders noemen?’](https://www.ad.nl/binnenland/schok-is-groot-bij-christenen-voor-israel-na-explosie-dit-is-een-aanslag-hoe-moet-je-het-anders-noemen~aff74228/)
+  > Medewerkers van Christenen voor Israël zijn diep geschokt door de explosie gisteravond laat bij hun gebouw in Nijkerk. „Wij noemen dit een aanslag....
+- [Belofte maakt schuld: Bosnische international trakteert 60.000 fans dit weekend op bier na WK-kwalificatie tegen Italië](https://www.ad.nl/sport/belofte-maakt-schuld-bosnische-international-trakteert-60-000-fans-dit-weekend-op-bier-na-wk-kwalificatie-tegen-italie~a079c03f/)
+  > Bosnisch international Ermedin Demirovic (28) gaat de supporters van zijn club VfB Stuttgart trakteren op een biertje. Daarmee komt hij zijn woord...
 
 ### Meest gelezen
 
