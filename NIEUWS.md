@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-04-2026 om 19:34*
+*Laatst bijgewerkt: 04-04-2026 om 20:37*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Wachttijden bij politienummer 0900-8844 lopen op, meer bellers haken af](https://nos.nl/l/2609099)
+  > De bereikbaarheid van het 'geen spoed, wel politie'-nummer 0900-8844 is de afgelopen jaren verslechterd. Dat blijkt uit cijfers van de politie die...
 - [Voormalig vakantieverblijf dictator Mussolini gekocht door Italiaanse gemeente](https://nos.nl/l/2609095)
   > Een villa van de vroegere fascistische Italiaanse dictator Mussolini is gekocht door de gemeente Riccione. Daarmee heeft het stadsbestuur van de...
 - [Veel vertraging door afgesloten A2, drukte bij pontjes](https://nos.nl/l/2609076)
@@ -17,8 +19,6 @@
         ProRail zegt...
 - [VS én Iran verwoed op zoek naar neergestorte vlieger: 'Voor Teheran ideale propaganda'](https://nos.nl/l/2609053)
   > In Amerikaanse media wordt al de vergelijking getrokken met de Iraanse gijzeling in 1979 van Amerikaans ambassadepersoneel, die uiteindelijk 444...
-- [Tientallen doden in Afghanistan door overstromingen en aardverschuivingen](https://nos.nl/l/2609051)
-  > In Afghanistan zijn de afgelopen tien dagen 77 mensen om het leven gekomen en 137 gewond geraakt door extreem weer. Het land wordt geteisterd door...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Onmachtig Ajax in de problemen: FC Twente verdiend op voorsprong in Johan Cruijff Arena](https://www.ad.nl/voetbal/onmachtig-ajax-in-de-problemen-fc-twente-verdiend-op-voorsprong-in-johan-cruijff-arena~a34bd587/)
+- [Ajax jaagt op voorsprong in slotfase tegen FC Twente, Konadu vervangt doelpuntenmaker Weghorst](https://www.ad.nl/voetbal/ajax-jaagt-op-voorsprong-in-slotfase-tegen-fc-twente-konadu-vervangt-doelpuntenmaker-weghorst~a34bd587/)
   > Ajax neemt het vanavond in de Johan Cruijff Arena op tegen FC Twente. Het is een duel tussen de nummers 4 en 5 van de VriendenLoterij Eredivisie....
+- [Barcelona komt goed weg na rust: rode kaart na VAR-ingreep ingetrokken tegen tiental Atlético](https://www.ad.nl/voetbal/barcelona-komt-goed-weg-na-rust-rode-kaart-na-var-ingreep-ingetrokken-tegen-tiental-atletico~a4c0b74e/)
+  > Atlético Madrid en FC Barcelona treffen elkaar drie keer in een tijdsbestek van tien dagen. Volgende week is de eerste ontmoeting in de kwartfinale...
+- [Flinke zeperd voor Raymond van Barneveld: verlies tegen Duitse debutant in München](https://www.ad.nl/darts/flinke-zeperd-voor-raymond-van-barneveld-verlies-tegen-duitse-debutant-in-munchen~a068e439/)
+  > Raymond van Barneveld heeft zaterdagavond een pijnlijke nederlaag geleden in de German Darts Grand Prix. De vijfvoudig wereldkampioen moest in de...
+- [Terwijl Excelsior hoopt op gelijkmaker, slaat NEC opnieuw keihard toe](https://www.ad.nl/voetbal/terwijl-excelsior-hoopt-op-gelijkmaker-slaat-nec-opnieuw-keihard-toe~af0f4062/)
+  > NEC maakt, met zes speelrondes te gaan, nog altijd volop kans op een Champions League-ticket. Vanavond staat het uitduel met Excelsior op het...
 - [Politie steeds moeilijker te bereiken, soms minutenlang wachten op een diender aan de lijn](https://www.ad.nl/binnenland/politie-steeds-moeilijker-te-bereiken-soms-minutenlang-wachten-op-een-diender-aan-de-lijn~a36222a5/)
   > Het wordt steeds lastiger om de politie telefonisch te bereiken. De wachttijden zijn de afgelopen jaren fiks opgelopen en bereikten vorig jaar zelfs...
-- [Vermakelijke openingsfase tussen Atlético en Barcelona, Griezmann mist grote kans](https://www.ad.nl/voetbal/vermakelijke-openingsfase-tussen-atletico-en-barcelona-griezmann-mist-grote-kans~a4c0b74e/)
-  > Atlético Madrid en FC Barcelona treffen elkaar drie keer in een tijdsbestek van tien dagen. Volgende week is de eerste ontmoeting in de kwartfinale...
-- [Geen plan B als senaat asielwet afschiet](https://www.ad.nl/politiek/geen-plan-b-als-senaat-asielwet-afschiet~ae755110/)
-  > De premier dreigt, de minister smeekt, maar de gemeenteraad zegt ‘bekijk het maar’. Met duizenden asielzoekers zonder plek en uitpuilende noodopvang,...
-- [AZ kent dankzij flitsende openingsfase tegen Fortuna goede generale voor Europese kwartfinale](https://www.ad.nl/voetbal/az-kent-dankzij-flitsende-openingsfase-tegen-fortuna-goede-generale-voor-europese-kwartfinale~ad1f1ded/)
-  > Dankzij uitstekend spel voor rust heeft AZ zaterdagavond afgerekend met Fortuna Sittard: 2-0. Voor de Alkmaarders is de overwinning een goede...
 
 ### Meest gelezen
 
