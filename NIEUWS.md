@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-04-2026 om 18:50*
+*Laatst bijgewerkt: 04-04-2026 om 19:34*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Voormalig vakantieverblijf dictator Mussolini gekocht door Italiaanse gemeente](https://nos.nl/l/2609095)
+  > Een villa van de vroegere fascistische Italiaanse dictator Mussolini is gekocht door de gemeente Riccione. Daarmee heeft het stadsbestuur van de...
 - [Veel vertraging door afgesloten A2, drukte bij pontjes](https://nos.nl/l/2609076)
   > Weggebruikers ten zuiden van Utrecht hebben al de hele dag te maken met vertragingen. Door werkzaamheden is de A2 tussen knooppunt Everdingen en...
 - [Containerschip botst tegen spoorbrug Gouda, aangifte tegen schipper](https://nos.nl/l/2609069)
@@ -17,8 +19,6 @@
   > In Amerikaanse media wordt al de vergelijking getrokken met de Iraanse gijzeling in 1979 van Amerikaans ambassadepersoneel, die uiteindelijk 444...
 - [Tientallen doden in Afghanistan door overstromingen en aardverschuivingen](https://nos.nl/l/2609051)
   > In Afghanistan zijn de afgelopen tien dagen 77 mensen om het leven gekomen en 137 gewond geraakt door extreem weer. Het land wordt geteisterd door...
-- [Duizenden mensen demonstreren tegen racisme in Saint-Denis na oproep burgemeester](https://nos.nl/l/2609050)
-  > In de Franse stad Saint-Denis zijn duizenden mensen op de been bij het stadhuis om te demonstreren tegen racisme. Aanleiding voor het protest zijn...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Albert trouwde met zijn jeugdliefde: ‘Na ons huwelijk hebben we ervoor gekozen om te blijven latten’](https://www.ad.nl/mezza/albert-trouwde-met-zijn-jeugdliefde-na-ons-huwelijk-hebben-we-ervoor-gekozen-om-te-blijven-latten~a50a8f98/)
-  > Albert (58) vroeg vijf jaar geleden zijn jeugdliefde Gracia (58) via deze rubriek ten huwelijk. „Te lang stilstaan bij wat er gebeurd zou zijn als ik...
-- [Telstar kan stunt tegen PSV geen goed vervolg geven en slikt thuis nederlaag tegen FC Groningen](https://www.ad.nl/voetbal/telstar-kan-stunt-tegen-psv-geen-goed-vervolg-geven-en-slikt-thuis-nederlaag-tegen-fc-groningen~a333b87d/)
-  > Telstar is er niet in geslaagd om afstand te nemen van de degradatiestrijd. De ploeg van trainer Anthony Correia stuntte in de vorige speelronde nog...
-- [Scorende Jorrel Hato helpt Chelsea op weg naar ruime zege in FA Cup](https://www.ad.nl/voetbal/scorende-jorrel-hato-helpt-chelsea-op-weg-naar-ruime-zege-in-fa-cup~af999988/)
-  > Oranje-international Jorrel Hato heeft Chelsea met een snel doelpunt op weg geholpen naar een ruime zege tegen Port Vale in de kwartfinales van de FA...
-- [Streep door aansluitingstreffer Fortuna tegen AZ, Clasie maakt na ruim half jaar blessureleed rentree](https://www.ad.nl/voetbal/streep-door-aansluitingstreffer-fortuna-tegen-az-clasie-maakt-na-ruim-half-jaar-blessureleed-rentree~ad1f1ded/)
-  > AZ verloor voor de interlandbreak met 3-0 van FC Groningen. De Alkmaarders zullen zich vanavond willen herpakken in de thuiswedstrijd tegen Fortuna...
-- [Tjaronn Chery ondanks ‘paspoortgate’ inzetbaar, Excelsior zonder echte spits tegen NEC](https://www.ad.nl/voetbal/tjaronn-chery-ondanks-paspoortgate-inzetbaar-excelsior-zonder-echte-spits-tegen-nec~af0f4062/)
-  > NEC maakt, met zes speelrondes te gaan, nog altijd volop kans op een Champions League-ticket. Volgende week komt nummer 2 Feyenoord op bezoek,...
+- [Onmachtig Ajax in de problemen: FC Twente verdiend op voorsprong in Johan Cruijff Arena](https://www.ad.nl/voetbal/onmachtig-ajax-in-de-problemen-fc-twente-verdiend-op-voorsprong-in-johan-cruijff-arena~a34bd587/)
+  > Ajax neemt het vanavond in de Johan Cruijff Arena op tegen FC Twente. Het is een duel tussen de nummers 4 en 5 van de VriendenLoterij Eredivisie....
+- [Politie steeds moeilijker te bereiken, soms minutenlang wachten op een diender aan de lijn](https://www.ad.nl/binnenland/politie-steeds-moeilijker-te-bereiken-soms-minutenlang-wachten-op-een-diender-aan-de-lijn~a36222a5/)
+  > Het wordt steeds lastiger om de politie telefonisch te bereiken. De wachttijden zijn de afgelopen jaren fiks opgelopen en bereikten vorig jaar zelfs...
+- [Vermakelijke openingsfase tussen Atlético en Barcelona, Griezmann mist grote kans](https://www.ad.nl/voetbal/vermakelijke-openingsfase-tussen-atletico-en-barcelona-griezmann-mist-grote-kans~a4c0b74e/)
+  > Atlético Madrid en FC Barcelona treffen elkaar drie keer in een tijdsbestek van tien dagen. Volgende week is de eerste ontmoeting in de kwartfinale...
+- [Geen plan B als senaat asielwet afschiet](https://www.ad.nl/politiek/geen-plan-b-als-senaat-asielwet-afschiet~ae755110/)
+  > De premier dreigt, de minister smeekt, maar de gemeenteraad zegt ‘bekijk het maar’. Met duizenden asielzoekers zonder plek en uitpuilende noodopvang,...
+- [AZ kent dankzij flitsende openingsfase tegen Fortuna goede generale voor Europese kwartfinale](https://www.ad.nl/voetbal/az-kent-dankzij-flitsende-openingsfase-tegen-fortuna-goede-generale-voor-europese-kwartfinale~ad1f1ded/)
+  > Dankzij uitstekend spel voor rust heeft AZ zaterdagavond afgerekend met Fortuna Sittard: 2-0. Voor de Alkmaarders is de overwinning een goede...
 
 ### Meest gelezen
 
