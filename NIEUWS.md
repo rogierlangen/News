@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-04-2026 om 11:33*
+*Laatst bijgewerkt: 04-04-2026 om 13:05*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Trein rijdt op boom bij Raalte, niemand gewond maar veel schade](https://nos.nl/l/2609040)
+  > De eerste trein vanochtend tussen Raalte en Nijverdal is niet lang na vertrek op een boom gereden. De machinist en de dertien passagiers bleven...
+- ['Paas-escalatie' in Oekraïne duurt voort: vijf doden bij droneaanval](https://nos.nl/l/2609039)
+  > In de zuidoostelijke Oekraïense regio Dnipro zijn minstens vijf mensen gedood bij een Russische aanval met meerdere drones. Bij de aanval op de stad...
+- [455 keer met dezelfde kaart de parkeergarage uit; Roermond pakt fraude aan](https://nos.nl/l/2609036)
+  > In een parkeergarage aan de rand van het centrum van Roermond is voor meer dan 100.000 euro gefraudeerd. Door een technische fout konden...
 - [Laatste keer Kees Boonman als 'politiek duider' in Nieuwsweekend: 'Mooi geweest'](https://nos.nl/l/2609031)
   > Politiek commentator Kees Boonman (71) heeft afscheid genomen van het MAX-radioprogramma Nieuwsweekend waarin hij sinds 2018 de Nederlandse en...
 - [Beveiligers laten tas met wapens achter bij woning Londense burgemeester](https://nos.nl/l/2609030)
   > Politieagenten die de Londense burgemeester Sadiq Khan beveiligden, hebben een tas met vuurwapens achtergelaten op straat bij zijn huis in...
-- [Was opa toch een nazi? Duitse ledenlijsten NSDAP online gezet](https://nos.nl/l/2609029)
-  > Tijdens menig paaslunch in Duitsland zal dit weekend een ongemakkelijk gespreksonderwerp ter tafel komen. Was opa of die ene oom een nazi? Was het...
-- [Afvalverwerker bij Emmen laat grote hoeveelheid troep achter na faillissement](https://nos.nl/l/2609028)
-  > Een afvalverwerker vlak bij Emmen heeft na zijn faillissement enorme hoeveelheden bouw- en sloopafval achtergelaten op het terrein waar het bedrijf...
-- [Dialectrock wordt immaterieel erfgoed, Bennie Jolink 'oerendtrots'](https://nos.nl/l/2609027)
-  > Dialectrock krijgt een vermelding op de lijst voor immaterieel erfgoed. Dat heeft het Kenniscentrum Immaterieel Erfgoed Nederland (KIEN)...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Arne Slot met Liverpool op bezoek bij Manchester City, Frimpong fit genoeg voor plekje op de bank](https://www.ad.nl/voetbal/arne-slot-met-liverpool-op-bezoek-bij-manchester-city-frimpong-fit-genoeg-voor-plekje-op-de-bank~ad029902/)
+- [Liverpool compleet weggespeeld door Manchester City, uitvak stroomt leeg na hattrick Haaland](https://www.ad.nl/voetbal/liverpool-compleet-weggespeeld-door-manchester-city-uitvak-stroomt-leeg-na-hattrick-haaland~ad029902/)
   > Een heerlijk affiche vanmiddag in de kwartfinale van de FA Cup: het Liverpool van trainer Arne Slot speelt uit tegen Manchester City. Welke club...
-- [Knokke Off stopt op het juiste moment: ‘Het derde seizoen is een hoogtepunt’](https://www.ad.nl/show/knokke-off-stopt-op-het-juiste-moment-het-derde-seizoen-is-een-hoogtepunt~aa2c6740/)
+- [Henk (70) heeft nog altijd zijn allereerste auto: ‘Erin begraven worden? Nee, dat is zonde’](https://www.ad.nl/auto/henk-70-heeft-nog-altijd-zijn-allereerste-auto-erin-begraven-worden-nee-dat-is-zonde~a2776958/)
+  > Veel mensen herinneren zich nog hun allereerste auto, maar niet veel hebben hem ook nog in de garage staan. Bij Henk Grootaarts (70) uit...
+- [Kremlin wil VPN’s verbieden: miljoenen Russen gebruiken dat om geblokkeerde websites te bezoeken](https://www.ad.nl/buitenland/kremlin-wil-vpns-verbieden-miljoenen-russen-gebruiken-dat-om-geblokkeerde-websites-te-bezoeken~aa1f992a/)
+  > Het Russische ministerie van Digitale Ontwikkeling heeft deze week de oorlog verklaard aan virtuele particuliere netwerken (VPN’s), waarmee...
+- [Vervolg op comedyfilm Spaceballs verschijnt na 40 jaar](https://www.ad.nl/show/vervolg-op-comedyfilm-spaceballs-verschijnt-na-40-jaar~a0d507c9/)
+  > De comedyfilm Spaceballs van Mel Brooks uit 1987 krijgt na veertig jaar een vervolg. Verschillende vakmedia als Deadline en Variety schrijven dat de...
+- [Vier sterren voor slotseizoen Knokke Off: Daan Schuurmans steelt de show als nieuwe schurk](https://www.ad.nl/show/vier-sterren-voor-slotseizoen-knokke-off-daan-schuurmans-steelt-de-show-als-nieuwe-schurk~aa2c6740/)
   > De komst van nieuwe personages in Knokke Off tilt dit derde én laatste seizoen naar een hoger niveau. En dat is nodig ook, want de andere...
-- [Gilles de la Tourette is vaak niet wat we denken: ‘Schelden doet grootste deel niet’](https://www.ad.nl/gezond/gilles-de-la-tourette-is-vaak-niet-wat-we-denken-schelden-doet-grootste-deel-niet~af65056c/)
-  > Het syndroom van Gilles de la Tourette? Dat is toch die aandoening waarbij mensen spontaan geluidjes produceren, plotselinge bewegingen maken en...
-- [Brit (51) overleden tijdens Ronde van Vlaanderen voor wielertoeristen](https://www.ad.nl/wielrennen/brit-51-overleden-tijdens-ronde-van-vlaanderen-voor-wielertoeristen~a403b18b/)
-  > We Ride Flanders, de Ronde van Vlaanderen voor wielertoeristen, is zaterdag overschaduwd door het overlijden van een 51-jarige Britse deelnemer. De...
-- [Dure benzine drijft zieke Gaby tot wanhoop: ‘Ik weet gewoon niet hoe ik straks naar het ziekenhuis moet komen’](https://www.ad.nl/binnenland/dure-benzine-drijft-zieke-gaby-tot-wanhoop-ik-weet-gewoon-niet-hoe-ik-straks-naar-het-ziekenhuis-moet-komen~a651fcef/)
-  > Sinds de oorlog in Iran denkt de chronisch zieke Gaby Schepers steeds weer na over 420 kilometer. Elke maand legt ze die afstand af om voor zichzelf...
 
 ### Meest gelezen
 
