@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-04-2026 om 13:05*
+*Laatst bijgewerkt: 04-04-2026 om 14:37*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Liverpool compleet weggespeeld door Manchester City, uitvak stroomt leeg na hattrick Haaland](https://www.ad.nl/voetbal/liverpool-compleet-weggespeeld-door-manchester-city-uitvak-stroomt-leeg-na-hattrick-haaland~ad029902/)
-  > Een heerlijk affiche vanmiddag in de kwartfinale van de FA Cup: het Liverpool van trainer Arne Slot speelt uit tegen Manchester City. Welke club...
-- [Henk (70) heeft nog altijd zijn allereerste auto: ‘Erin begraven worden? Nee, dat is zonde’](https://www.ad.nl/auto/henk-70-heeft-nog-altijd-zijn-allereerste-auto-erin-begraven-worden-nee-dat-is-zonde~a2776958/)
-  > Veel mensen herinneren zich nog hun allereerste auto, maar niet veel hebben hem ook nog in de garage staan. Bij Henk Grootaarts (70) uit...
-- [Kremlin wil VPN’s verbieden: miljoenen Russen gebruiken dat om geblokkeerde websites te bezoeken](https://www.ad.nl/buitenland/kremlin-wil-vpns-verbieden-miljoenen-russen-gebruiken-dat-om-geblokkeerde-websites-te-bezoeken~aa1f992a/)
-  > Het Russische ministerie van Digitale Ontwikkeling heeft deze week de oorlog verklaard aan virtuele particuliere netwerken (VPN’s), waarmee...
-- [Vervolg op comedyfilm Spaceballs verschijnt na 40 jaar](https://www.ad.nl/show/vervolg-op-comedyfilm-spaceballs-verschijnt-na-40-jaar~a0d507c9/)
-  > De comedyfilm Spaceballs van Mel Brooks uit 1987 krijgt na veertig jaar een vervolg. Verschillende vakmedia als Deadline en Variety schrijven dat de...
-- [Vier sterren voor slotseizoen Knokke Off: Daan Schuurmans steelt de show als nieuwe schurk](https://www.ad.nl/show/vier-sterren-voor-slotseizoen-knokke-off-daan-schuurmans-steelt-de-show-als-nieuwe-schurk~aa2c6740/)
-  > De komst van nieuwe personages in Knokke Off tilt dit derde én laatste seizoen naar een hoger niveau. En dat is nodig ook, want de andere...
+- [PSV begint zwak aan officieuze kampioenswedstrijd: FC Utrecht scoort razendsnel in Eindhoven](https://www.ad.nl/voetbal/psv-begint-zwak-aan-officieuze-kampioenswedstrijd-fc-utrecht-scoort-razendsnel-in-eindhoven~ad142946/)
+  > PSV verloor de laatste twee wedstrijden in de VriendenLoterij Eredivisie, maar de Eindhovenaren koersen nog altijd af op de derde landstitel op rij....
+- [Kees (26): ‘Ik denk niet dat er veel mensen van mijn leeftijd zijn die dit verdienen’](https://www.ad.nl/werk/kees-26-ik-denk-niet-dat-er-veel-mensen-van-mijn-leeftijd-zijn-die-dit-verdienen~a0df464e/)
+  > Kees (26) werkt als shift supervisor in de chemische industrie. Hij geeft leiding aan twaalf operators en zorgt samen met het team dat ze de...
+- [Ronde van Vlaanderen | Van der Poel een van topfavorieten: het parkoers, concurrentie en waar is het live te zien?](https://www.ad.nl/wielrennen/ronde-van-vlaanderen-van-der-poel-een-van-topfavorieten-het-parkoers-concurrentie-en-waar-is-het-live-te-zien~ae6364cd/)
+  > De Ronde van Vlaanderen is voor de meeste Belgische wielerfans hét hoogtepunt van het jaar. Mathieu van der Poel behoort zondag 5 april opnieuw tot...
+- [Botic van de Zandschulp laat matchpoints liggen en mist finaleplek in Boekarest](https://www.ad.nl/tennis/botic-van-de-zandschulp-laat-matchpoints-liggen-en-mist-finaleplek-in-boekarest~a02a6b85/)
+  > Botic van de Zandschulp (30) is zaterdag uitgeschakeld in de halve finales van het ATP-toernooi van Boekarest. De als achtste geplaatste Nederlander...
+- [Oudewater staat voor raadsel na nachtelijke diefstal verkeersdrempels: ‘Snap het wel, sloeg nergens op’](https://www.ad.nl/oudewater/oudewater-staat-voor-raadsel-na-nachtelijke-diefstal-verkeersdrempels-snap-het-wel-sloeg-nergens-op~ab905b9a/)
+  > Ze lagen er pas drie weken: de flinke drempels die automobilisten op de Johan J. Vierbergenweg in Oudewater dwongen om op de rem te trappen. Maar...
 
 ### Meest gelezen
 
