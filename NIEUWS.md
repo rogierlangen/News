@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-04-2026 om 07:49*
+*Laatst bijgewerkt: 04-04-2026 om 08:48*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Vluchten of blijven in Iran: 'Iedereen is vertrokken, maar ik blijf'](https://nos.nl/l/2609020)
+  > In de Iraanse hoofdstad Teheran is het leven sinds het begin van de oorlog ingrijpend veranderd. Mensen zijn bang voor de Amerikaans-Israëlisch...
 - [Aantal meldingen van wolvenaanvallen op vee afgenomen in eerste kwartaal](https://nos.nl/l/2609016)
   > In het eerste kwartaal van dit jaar is voor het eerst het aantal meldingen van wolvenaanvallen op vee afgenomen. Er kwamen 255 meldingen binnen bij...
 - [Podcast De Dag: Godfluencers en volle kerken](https://nos.nl/l/2609011)
@@ -16,8 +18,6 @@
   > In een stadion in de Peruaanse hoofdstad Lima is iemand om het leven gekomen en zijn 47 mensen gewond geraakt bij een incident voorafgaand aan een...
 - [Megasterren kiezen voor concerten op één plek: 'Weinig voordelen voor fans'](https://nos.nl/l/2609009)
   > Meerdere grote artiesten geven dit jaar concerten op slechts één plek in Europa. Céline Dion is daarvan het laatste voorbeeld, met de aankondiging...
-- [Wekdienst 4/4: Paaswake met veel dopelingen in Amsterdam • Bijna-kampioen PSV in actie](https://nos.nl/l/2609005)
-  > Goedemorgen! In de Rooms-Katholieke Kerk in Amsterdam worden vanavond tijdens de Paaswake veel jonge mensen gedoopt en gevormd, en PSV komt in actie...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Niels worstelde jarenlang met prikkels en onbegrip, nu wil hij laten zien wat autisme echt is](https://www.ad.nl/binnenland/niels-worstelde-jarenlang-met-prikkels-en-onbegrip-nu-wil-hij-laten-zien-wat-autisme-echt-is~aea41c15/)
-  > Treinreizen, met mensen die filmpjes kijken op hun telefoon, vindt Niels Springveld lastig, vanwege zijn overgevoeligheid voor prikkels. In zijn...
-- [Ramen ruimtecapsule zijn helemaal vuil omdat astronauten op weg naar de maan continu naar buiten turen](https://www.ad.nl/buitenland/ramen-ruimtecapsule-zijn-helemaal-vuil-omdat-astronauten-op-weg-naar-de-maan-continu-naar-buiten-turen~a505b248/)
-  > De vier astronauten die in het Orion-ruimteschip onderweg zijn naar de maan, zijn halverwege. Dat meldde ruimtevaartorganisatie Nasa zaterdagochtend...
-- [De ontknoping van de eredivisie: helpt FC Volendam PSV dit weekend aan de titel?](https://www.ad.nl/voetbal/de-ontknoping-van-de-eredivisie-helpt-fc-volendam-psv-dit-weekend-aan-de-titel~a06139d1/)
-  > Door de 3-1 nederlaag tegen Telstar en het gelijkspel in de Klassieker moest PSV het kampioensfeest twee weken terug nog even uitstellen. Dit weekend...
-- [Waarom ‘patroonheilige’ Arne Slot zijn gunfactor zo wonderbaarlijk snel is kwijtgeraakt in Engeland](https://www.ad.nl/voetbal/waarom-patroonheilige-arne-slot-zijn-gunfactor-zo-wonderbaarlijk-snel-is-kwijtgeraakt-in-engeland~aede5415/)
-  > Columnist Sjoerd Mossou verdiept zich in de vraag waarom Arne Slot plots nog zo weinig krediet heeft bij Liverpool. „Arne Slot, zo adviseerde de...
-- [Russische opmars in Oekraïne lijkt tot stilstand te komen: Starlink en Telegram zitten Poetins troepen dwars](https://www.ad.nl/buitenland/russische-opmars-in-oekraine-lijkt-tot-stilstand-te-komen-starlink-en-telegram-zitten-poetins-troepen-dwars~a5debb7e/)
-  > Voor het eerst in tweeënhalf jaar tijd heeft het Russische leger in een maand nauwelijks terreinwinst geboekt in Oekraïne. De troepen van Poetin...
+- [19-jarige spits uit Almere en erevoorzitter Robbie Williams dromen van nieuwe stunt met Port Vale](https://www.ad.nl/voetbal/19-jarige-spits-uit-almere-en-erevoorzitter-robbie-williams-dromen-van-nieuwe-stunt-met-port-vale~a94d014c/)
+  > Port Vale staat stijf onderaan op het derde niveau in Engeland, maar de club uit Stoke-on-Trent geeft de term ‘cupfighter’ een hele andere dimensie....
+- [Yves Berendse maakt tv-debuut in nieuwe muziekshow Sing with me](https://www.ad.nl/show/yves-berendse-maakt-tv-debuut-in-nieuwe-muziekshow-sing-with-me~ab279d6b/)
+  > Yves Berendse, Davina Michelle, Nick Schilder en Waylon zijn vanaf het najaar te zien in een nieuw muziekprogramma op SBS6. In Sing with me kunnen...
+- [125 smartwatches getest, dit zijn de beste](https://www.ad.nl/tech/125-smartwatches-getest-dit-zijn-de-beste~a29e6058/)
+  > Wil je weten welke smartwatch het beste bij je past? Dat is afhankelijk van waar je hem voor wilt gebruiken. De Consumentenbond testte 125 modellen...
+- [Dieselprijs aan de pomp ietsje hoger na forse toename op vrijdag](https://www.ad.nl/economie/dieselprijs-aan-de-pomp-ietsje-hoger-na-forse-toename-op-vrijdag~a776bf2b/)
+  > Diesel is zaterdag iets duurder geworden aan de pomp, na de flinke prijsstijging van ruim 10 eurocent op vrijdag. Consumentencollectief...
+- [Dit is waarom internetsensatie Boer Harm zijn ware identiteit onthulde: ‘Ik raakte alles kwijt’](https://www.ad.nl/show/dit-is-waarom-internetsensatie-boer-harm-zijn-ware-identiteit-onthulde-ik-raakte-alles-kwijt~a195ee15/)
+  > Twee jaar lang hield hij iedereen met zijn masker voor de gek. Maar vrijdag onthulde Boer Harm toch zijn ware identiteit. De grote vraag: waarom?...
 
 ### Meest gelezen
 
@@ -47,7 +47,7 @@
 ### Laatste nieuws
 
 - [Iran haalt twee Amerikaanse gevechtsvliegtuigen neer, piloot nog vermist](https://fd.nl/politiek/1592238/iran-haalt-twee-amerikaanse-gevechtsvliegtuigen-neer-piloot-nog-vermist)
-  > Het is de eerste keer sinds het uitbreken van de oorlog dat er Amerikaanse toestellen zijn neergehaald.
+  > Tijdens een reddingsoperatie zijn militairen aan boord van een Amerikaanse helikopter gewondgeraakt. De Iraanse Revolutionaire Garde jaagt op de...
 - [‘Heeft Nederland dit uitzonderlijk goed bedacht, of lopen we internationaal uit de pas?’](https://fd.nl/opinie/1592065/heeft-nederland-dit-uitzonderlijk-goed-bedacht-of-lopen-we-internationaal-uit-de-pas-en-andere-lezersreacties)
   > FD-lezers reageren deze week op een PwC-rapport over het belasten van de overdracht van vastgoed in familiebedrijven. Er is sprake van een te hoge...
 - [Hoe komen we van hoge staatsschulden af? En is elektrisch rijden te goedkoop?](https://fd.nl/economie/1592108/hoe-komen-we-van-hoge-staatsschulden-af-en-is-elektrisch-rijden-te-goedkoop)
