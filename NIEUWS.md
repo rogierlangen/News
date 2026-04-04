@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-04-2026 om 16:41*
+*Laatst bijgewerkt: 04-04-2026 om 17:36*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Veel vertraging door afgesloten A2, drukte bij pontjes](https://nos.nl/l/2609076)
+  > Weggebruikers ten zuiden van Utrecht hebben al de hele dag te maken met vertragingen. Door werkzaamheden is de A2 tussen knooppunt Everdingen en...
+- [Containerschip botst tegen spoorbrug Gouda, aangifte tegen schipper](https://nos.nl/l/2609069)
+  > Een containerschip is aan het eind van de middag tegen een spoorbrug bij Gouda gevaren. Daarom werd het treinverkeer stilgelegd.
+        ProRail zegt...
 - [VS én Iran verwoed op zoek naar neergestorte vlieger: 'Voor Teheran ideale propaganda'](https://nos.nl/l/2609053)
   > In Amerikaanse media wordt al de vergelijking getrokken met de Iraanse gijzeling in 1979 van Amerikaans ambassadepersoneel, die uiteindelijk 444...
 - [Tientallen doden in Afghanistan door overstromingen en aardverschuivingen](https://nos.nl/l/2609051)
   > In Afghanistan zijn de afgelopen tien dagen 77 mensen om het leven gekomen en 137 gewond geraakt door extreem weer. Het land wordt geteisterd door...
 - [Duizenden mensen demonstreren tegen racisme in Saint-Denis na oproep burgemeester](https://nos.nl/l/2609050)
   > In de Franse stad Saint-Denis zijn duizenden mensen op de been bij het stadhuis om te demonstreren tegen racisme. Aanleiding voor het protest zijn...
-- [Trein rijdt op boom bij Raalte, niemand gewond maar veel schade](https://nos.nl/l/2609040)
-  > De eerste trein vanochtend tussen Raalte en Nijverdal is niet lang na vertrek op een boom gereden. De machinist en de dertien passagiers bleven...
-- ['Paas-escalatie' in Oekraïne duurt voort: vijf doden bij droneaanval](https://nos.nl/l/2609039)
-  > In de zuidoostelijke Oekraïense regio Dnipro zijn minstens vijf mensen gedood bij een Russische aanval met meerdere drones. Bij de aanval op de stad...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Roxy doet een dansje voor haar grote liefde en Jim is eerlijk over het leven](https://www.ad.nl/show/roxy-doet-een-dansje-voor-haar-grote-liefde-en-jim-is-eerlijk-over-het-leven~a323eb22/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Zo kan PSV met hulp van FC Volendam zondag officieel landstitel pakken](https://www.ad.nl/voetbal/zo-kan-psv-met-hulp-van-fc-volendam-zondag-officieel-landstitel-pakken~a06139d1/)
-  > PSV heeft dankzij de zege op FC Utrecht (4-3) de landstitel officieus binnen. Dit weekend kunnen de Eindhovenaren ook officieel kampioen worden. Dit...
-- [Wedstrijd tussen AZ en Fortuna Sittard begint kwartier later wegens vertraging supportersbussen](https://www.ad.nl/voetbal/wedstrijd-tussen-az-en-fortuna-sittard-begint-kwartier-later-wegens-vertraging-supportersbussen~ad1f1ded/)
+- [Veel moeders kunnen niet rondkomen tijdens verlof: ‘Hebben extra hersteltijd vaak wel nodig’](https://www.ad.nl/economie/veel-moeders-kunnen-niet-rondkomen-tijdens-verlof-hebben-extra-hersteltijd-vaak-wel-nodig~a91ab349/)
+  > Bijna de helft van de werkende vrouwen kan het zich financieel niet veroorloven om ouderschapsverlof op te nemen. Onder partners is dat 30 procent....
+- [Maken luchtreinigers hun beloftes waar? Dit zeggen de testresultaten](https://www.ad.nl/wonen/maken-luchtreinigers-hun-beloftes-waar-dit-zeggen-de-testresultaten~a9d94935/)
+  > Overweeg je de aankoop van een luchtreiniger, dan wil je natuurlijk wel weten welke de beste is. De Consumentenbond testte meer dan vijftig...
+- [Dominerend AZ op comfortabele voorsprong tegen zwak Fortuna Sittard](https://www.ad.nl/voetbal/dominerend-az-op-comfortabele-voorsprong-tegen-zwak-fortuna-sittard~ad1f1ded/)
   > AZ verloor voor de interlandbreak met 3-0 van FC Groningen. De Alkmaarders zullen zich vanavond willen herpakken in de thuiswedstrijd tegen Fortuna...
-- [Jetten wil geen ‘schot hagel’ aan maatregelen tegen hoge energieprijzen: wat is dan wel de bedoeling?](https://www.ad.nl/politiek/jetten-wil-geen-schot-hagel-aan-maatregelen-tegen-hoge-energieprijzen-wat-is-dan-wel-de-bedoeling~a5bff4af/)
-  > Truckers protesteren op de snelweg, uit Brussel klinken alarmkreten over brandstofverbruik, andere regeringsleiders spreken op tv de natie toe. En...
-- [PSV officieus kampioen! Driouech laat Eindhoven juichen met late treffer in spektakelstuk tegen FC Utrecht](https://www.ad.nl/voetbal/psv-officieus-kampioen-driouech-laat-eindhoven-juichen-met-late-treffer-in-spektakelstuk-tegen-fc-utrecht~ad142946/)
-  > PSV is officieus landskampioen. De Eindhovenaren bogen in eigen huis een ruime achterstand om tegen FC Utrecht (4-3) dankzij een uitblinkende Ismael...
+- [Hoe overleeft een neergehaalde piloot in vijandig gebied? ‘Hij moet zich strikt aan het plan houden’](https://www.ad.nl/buitenland/hoe-overleeft-een-neergehaalde-piloot-in-vijandig-gebied-hij-moet-zich-strikt-aan-het-plan-houden~a7bf4fff/)
+  > Ergens in Iran houdt een Amerikaanse piloot zich schuil nadat zijn F‑15 boven het land is neergehaald. De VS en Iran zoeken massaal naar de piloot,...
+- [Telstar na VAR-ingreep op achterstand tegen FC Groningen](https://www.ad.nl/voetbal/telstar-na-var-ingreep-op-achterstand-tegen-fc-groningen~a333b87d/)
+  > Telstar ontvangt vanavond FC Groningen in de VriendenLoterij Eredivisie. De thuisploeg is nog verre van zeker van handhaving op het hoogste niveau....
 
 ### Meest gelezen
 
