@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-04-2026 om 15:37*
+*Laatst bijgewerkt: 04-04-2026 om 16:41*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Onderzoekers zien steeds meer advertenties voor organen op Telegram en Facebook: ‘Ik regel een nier voor je’](https://www.ad.nl/binnenland/onderzoekers-zien-steeds-meer-advertenties-voor-organen-op-telegram-en-facebook-ik-regel-een-nier-voor-je~aeefb78c/)
-  > Naar China voor een nieuwe nier of in India een operatie van een falende lever ondergaan. Criminoloog Frederike Ambagtsheer is een van de weinige...
-- [Wessel Nijman verrassend onderuit bij German Darts Grand Prix, Niels Zonneveld wel door](https://www.ad.nl/darts/wessel-nijman-verrassend-onderuit-bij-german-darts-grand-prix-niels-zonneveld-wel-door~a068e439/)
-  > Wessel Nijman is verrassend snel uitgeschakeld bij de German Darts Grand Prix. Eerder deze week pakte de Nederlander zijn zesde PDC-titel uit zijn...
-- [PSV raakt lat in jacht op gelijkmaker tegen FC Utrecht, ploeg van Bosz kan vandaag officieus kampioen worden](https://www.ad.nl/voetbal/psv-raakt-lat-in-jacht-op-gelijkmaker-tegen-fc-utrecht-ploeg-van-bosz-kan-vandaag-officieus-kampioen-worden~ad142946/)
-  > PSV verloor de laatste twee wedstrijden in de VriendenLoterij Eredivisie, maar de Eindhovenaren koersen nog altijd af op de derde landstitel op rij....
-- [Demonstranten over explosie bij Christenen voor Israël: ‘Wijzen dit af maar zijn niet verbaasd’](https://www.ad.nl/binnenland/demonstranten-over-explosie-bij-christenen-voor-israel-wijzen-dit-af-maar-zijn-niet-verbaasd~a70ce854/)
-  > Christenen voor Israël in Nijkerk is al jaren doelwit van protesten. Maar nog nooit eerder was er zoveel geweld als vrijdagavond, toen er een...
-- [Nederlandse bloemist over versiering Sint-Pietersplein: ‘Ik mag geen vlag maken, maar je ziet hem wél’](https://www.ad.nl/buitenland/nederlandse-bloemist-over-versiering-sint-pietersplein-ik-mag-geen-vlag-maken-maar-je-ziet-hem-wel~a76db967/)
-  > Voor de veertigste keer verzorgt een Nederlandse bloemsierkunstenaar de bloemen tijdens de paasmis op het Sint-Pietersplein in Rome. Paus Franciscus...
+- [Roxy doet een dansje voor haar grote liefde en Jim is eerlijk over het leven](https://www.ad.nl/show/roxy-doet-een-dansje-voor-haar-grote-liefde-en-jim-is-eerlijk-over-het-leven~a323eb22/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Zo kan PSV met hulp van FC Volendam zondag officieel landstitel pakken](https://www.ad.nl/voetbal/zo-kan-psv-met-hulp-van-fc-volendam-zondag-officieel-landstitel-pakken~a06139d1/)
+  > PSV heeft dankzij de zege op FC Utrecht (4-3) de landstitel officieus binnen. Dit weekend kunnen de Eindhovenaren ook officieel kampioen worden. Dit...
+- [Wedstrijd tussen AZ en Fortuna Sittard begint kwartier later wegens vertraging supportersbussen](https://www.ad.nl/voetbal/wedstrijd-tussen-az-en-fortuna-sittard-begint-kwartier-later-wegens-vertraging-supportersbussen~ad1f1ded/)
+  > AZ verloor voor de interlandbreak met 3-0 van FC Groningen. De Alkmaarders zullen zich vanavond willen herpakken in de thuiswedstrijd tegen Fortuna...
+- [Jetten wil geen ‘schot hagel’ aan maatregelen tegen hoge energieprijzen: wat is dan wel de bedoeling?](https://www.ad.nl/politiek/jetten-wil-geen-schot-hagel-aan-maatregelen-tegen-hoge-energieprijzen-wat-is-dan-wel-de-bedoeling~a5bff4af/)
+  > Truckers protesteren op de snelweg, uit Brussel klinken alarmkreten over brandstofverbruik, andere regeringsleiders spreken op tv de natie toe. En...
+- [PSV officieus kampioen! Driouech laat Eindhoven juichen met late treffer in spektakelstuk tegen FC Utrecht](https://www.ad.nl/voetbal/psv-officieus-kampioen-driouech-laat-eindhoven-juichen-met-late-treffer-in-spektakelstuk-tegen-fc-utrecht~ad142946/)
+  > PSV is officieus landskampioen. De Eindhovenaren bogen in eigen huis een ruime achterstand om tegen FC Utrecht (4-3) dankzij een uitblinkende Ismael...
 
 ### Meest gelezen
 
