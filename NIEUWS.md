@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-04-2026 om 21:36*
+*Laatst bijgewerkt: 04-04-2026 om 22:34*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Spookrijder veroorzaakt ongeluk met vier andere auto's bij Venlo](https://nos.nl/l/2609121)
+  > Op de A67 ter hoogte van Sevenum en Maasbree heeft een spookrijder vanmiddag een ongeluk veroorzaakt waarbij vier andere auto's waren betrokken. De...
 - [Wachttijden bij politienummer 0900-8844 lopen op, meer bellers haken af](https://nos.nl/l/2609099)
   > De bereikbaarheid van het 'geen spoed, wel politie'-nummer 0900-8844 is de afgelopen jaren verslechterd. Dat blijkt uit cijfers van de politie die...
 - [Voormalig vakantieverblijf dictator Mussolini gekocht door Italiaanse gemeente](https://nos.nl/l/2609095)
@@ -17,8 +19,6 @@
 - [Containerschip botst tegen spoorbrug Gouda, aangifte tegen schipper](https://nos.nl/l/2609069)
   > Een containerschip is aan het eind van de middag tegen een spoorbrug bij Gouda gevaren. Daarom werd het treinverkeer stilgelegd.
         ProRail zegt...
-- [VS én Iran verwoed op zoek naar neergestorte vlieger: 'Voor Teheran ideale propaganda'](https://nos.nl/l/2609053)
-  > In Amerikaanse media wordt al de vergelijking getrokken met de Iraanse gijzeling in 1979 van Amerikaans ambassadepersoneel, die uiteindelijk 444...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [TransferTalk | Telstar-trainer heeft koffie gedronken met FC Utrecht, PSV laat oog vallen op gewilde spits](https://www.ad.nl/voetbal/transfertalk-telstar-trainer-heeft-koffie-gedronken-met-fc-utrecht-psv-laat-oog-vallen-op-gewilde-spits~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [NEC voert druk op richting Feyenoord, Ajax moet vrezen: dit zijn de verschillen in de strijd om cruciale plek 2](https://www.ad.nl/voetbal/nec-voert-druk-op-richting-feyenoord-ajax-moet-vrezen-dit-zijn-de-verschillen-in-de-strijd-om-cruciale-plek-2~a3da7ce4/)
+  > De strijd om de cruciale tweede plek is nog altijd razendspannend in de VriendenLoterij eredivisie. Vier clubs azen op deze positie, die recht geeft...
 - [Paus Leo XIV roept op: blijf je druk maken over oorlogen in de wereld](https://www.ad.nl/buitenland/paus-leo-xiv-roept-op-blijf-je-druk-maken-over-oorlogen-in-de-wereld~a93fb7bb/)
   > Paus Leo XIV roept aan de vooravond van Pasen gelovigen op niet gevoelloos te raken door conflicten en oorlogen die de wereld op dit moment...
 - [Arsenal in kwartfinale FA Cup uitgeschakeld door club van tweede niveau, Hato trefzeker bij ruime zege Chelsea](https://www.ad.nl/voetbal/arsenal-in-kwartfinale-fa-cup-uitgeschakeld-door-club-van-tweede-niveau-hato-trefzeker-bij-ruime-zege-chelsea~af999988/)
   > Arsenal is uitgeschakeld in de kwartfinale van de FA Cup door een nederlaag bij Southampton, dat uitkomt op het tweede niveau. De koploper van de...
 - [FC Barcelona neemt voorschot op landstitel na late treffer in verhit duel met Atlético](https://www.ad.nl/voetbal/fc-barcelona-neemt-voorschot-op-landstitel-na-late-treffer-in-verhit-duel-met-atletico~a4c0b74e/)
   > Met de nodige moeite boekte FC Barcelona zaterdagavond een overwinning tegen de tien van Atlético Madrid: 1-2. Dankzij een late treffer van Robert...
-- [Mokerslag in Arena: Ajax verliest van FC Twente en zakt weg naar vijfde plaats](https://www.ad.nl/voetbal/mokerslag-in-arena-ajax-verliest-van-fc-twente-en-zakt-weg-naar-vijfde-plaats~a34bd587/)
-  > Ajax heeft een peperdure nederlaag geleden tegen FC Twente. Doordat de ploeg van trainer Oscar Garcia de backs van de concurrent niet wist te...
-- [NEC pakt in aanloop naar Feyenoord-thuis drie belangrijke punten in strijd om Champions League-ticket](https://www.ad.nl/voetbal/nec-pakt-in-aanloop-naar-feyenoord-thuis-drie-belangrijke-punten-in-strijd-om-champions-league-ticket~af0f4062/)
-  > NEC heeft in de strijd om Champions League-voetbal een belangrijke overwinning geboekt. Op Woudestein was de ploeg van Dick Schreuder een stuk...
 
 ### Meest gelezen
 
