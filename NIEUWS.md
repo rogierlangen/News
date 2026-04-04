@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-04-2026 om 22:34*
+*Laatst bijgewerkt: 04-04-2026 om 23:35*
 
 ---
 
@@ -28,7 +28,7 @@
 
 ### Laatste nieuws
 
-- [TransferTalk | Telstar-trainer heeft koffie gedronken met FC Utrecht, PSV laat oog vallen op gewilde spits](https://www.ad.nl/voetbal/transfertalk-telstar-trainer-heeft-koffie-gedronken-met-fc-utrecht-psv-laat-oog-vallen-op-gewilde-spits~a35ea681/)
+- [Telstar-trainer heeft koffie gedronken met FC Utrecht, PSV laat oog vallen op gewilde spits](https://www.ad.nl/voetbal/telstar-trainer-heeft-koffie-gedronken-met-fc-utrecht-psv-laat-oog-vallen-op-gewilde-spits~a35ea681/)
   > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
 - [NEC voert druk op richting Feyenoord, Ajax moet vrezen: dit zijn de verschillen in de strijd om cruciale plek 2](https://www.ad.nl/voetbal/nec-voert-druk-op-richting-feyenoord-ajax-moet-vrezen-dit-zijn-de-verschillen-in-de-strijd-om-cruciale-plek-2~a3da7ce4/)
   > De strijd om de cruciale tweede plek is nog altijd razendspannend in de VriendenLoterij eredivisie. Vier clubs azen op deze positie, die recht geeft...
