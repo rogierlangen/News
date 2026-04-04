@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-04-2026 om 20:37*
+*Laatst bijgewerkt: 04-04-2026 om 21:36*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Ajax jaagt op voorsprong in slotfase tegen FC Twente, Konadu vervangt doelpuntenmaker Weghorst](https://www.ad.nl/voetbal/ajax-jaagt-op-voorsprong-in-slotfase-tegen-fc-twente-konadu-vervangt-doelpuntenmaker-weghorst~a34bd587/)
-  > Ajax neemt het vanavond in de Johan Cruijff Arena op tegen FC Twente. Het is een duel tussen de nummers 4 en 5 van de VriendenLoterij Eredivisie....
-- [Barcelona komt goed weg na rust: rode kaart na VAR-ingreep ingetrokken tegen tiental Atlético](https://www.ad.nl/voetbal/barcelona-komt-goed-weg-na-rust-rode-kaart-na-var-ingreep-ingetrokken-tegen-tiental-atletico~a4c0b74e/)
-  > Atlético Madrid en FC Barcelona treffen elkaar drie keer in een tijdsbestek van tien dagen. Volgende week is de eerste ontmoeting in de kwartfinale...
-- [Flinke zeperd voor Raymond van Barneveld: verlies tegen Duitse debutant in München](https://www.ad.nl/darts/flinke-zeperd-voor-raymond-van-barneveld-verlies-tegen-duitse-debutant-in-munchen~a068e439/)
-  > Raymond van Barneveld heeft zaterdagavond een pijnlijke nederlaag geleden in de German Darts Grand Prix. De vijfvoudig wereldkampioen moest in de...
-- [Terwijl Excelsior hoopt op gelijkmaker, slaat NEC opnieuw keihard toe](https://www.ad.nl/voetbal/terwijl-excelsior-hoopt-op-gelijkmaker-slaat-nec-opnieuw-keihard-toe~af0f4062/)
-  > NEC maakt, met zes speelrondes te gaan, nog altijd volop kans op een Champions League-ticket. Vanavond staat het uitduel met Excelsior op het...
-- [Politie steeds moeilijker te bereiken, soms minutenlang wachten op een diender aan de lijn](https://www.ad.nl/binnenland/politie-steeds-moeilijker-te-bereiken-soms-minutenlang-wachten-op-een-diender-aan-de-lijn~a36222a5/)
-  > Het wordt steeds lastiger om de politie telefonisch te bereiken. De wachttijden zijn de afgelopen jaren fiks opgelopen en bereikten vorig jaar zelfs...
+- [Paus Leo XIV roept op: blijf je druk maken over oorlogen in de wereld](https://www.ad.nl/buitenland/paus-leo-xiv-roept-op-blijf-je-druk-maken-over-oorlogen-in-de-wereld~a93fb7bb/)
+  > Paus Leo XIV roept aan de vooravond van Pasen gelovigen op niet gevoelloos te raken door conflicten en oorlogen die de wereld op dit moment...
+- [Arsenal in kwartfinale FA Cup uitgeschakeld door club van tweede niveau, Hato trefzeker bij ruime zege Chelsea](https://www.ad.nl/voetbal/arsenal-in-kwartfinale-fa-cup-uitgeschakeld-door-club-van-tweede-niveau-hato-trefzeker-bij-ruime-zege-chelsea~af999988/)
+  > Arsenal is uitgeschakeld in de kwartfinale van de FA Cup door een nederlaag bij Southampton, dat uitkomt op het tweede niveau. De koploper van de...
+- [FC Barcelona neemt voorschot op landstitel na late treffer in verhit duel met Atlético](https://www.ad.nl/voetbal/fc-barcelona-neemt-voorschot-op-landstitel-na-late-treffer-in-verhit-duel-met-atletico~a4c0b74e/)
+  > Met de nodige moeite boekte FC Barcelona zaterdagavond een overwinning tegen de tien van Atlético Madrid: 1-2. Dankzij een late treffer van Robert...
+- [Mokerslag in Arena: Ajax verliest van FC Twente en zakt weg naar vijfde plaats](https://www.ad.nl/voetbal/mokerslag-in-arena-ajax-verliest-van-fc-twente-en-zakt-weg-naar-vijfde-plaats~a34bd587/)
+  > Ajax heeft een peperdure nederlaag geleden tegen FC Twente. Doordat de ploeg van trainer Oscar Garcia de backs van de concurrent niet wist te...
+- [NEC pakt in aanloop naar Feyenoord-thuis drie belangrijke punten in strijd om Champions League-ticket](https://www.ad.nl/voetbal/nec-pakt-in-aanloop-naar-feyenoord-thuis-drie-belangrijke-punten-in-strijd-om-champions-league-ticket~af0f4062/)
+  > NEC heeft in de strijd om Champions League-voetbal een belangrijke overwinning geboekt. Op Woudestein was de ploeg van Dick Schreuder een stuk...
 
 ### Meest gelezen
 
