@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-04-2026 om 17:36*
+*Laatst bijgewerkt: 04-04-2026 om 18:50*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Veel moeders kunnen niet rondkomen tijdens verlof: ‘Hebben extra hersteltijd vaak wel nodig’](https://www.ad.nl/economie/veel-moeders-kunnen-niet-rondkomen-tijdens-verlof-hebben-extra-hersteltijd-vaak-wel-nodig~a91ab349/)
-  > Bijna de helft van de werkende vrouwen kan het zich financieel niet veroorloven om ouderschapsverlof op te nemen. Onder partners is dat 30 procent....
-- [Maken luchtreinigers hun beloftes waar? Dit zeggen de testresultaten](https://www.ad.nl/wonen/maken-luchtreinigers-hun-beloftes-waar-dit-zeggen-de-testresultaten~a9d94935/)
-  > Overweeg je de aankoop van een luchtreiniger, dan wil je natuurlijk wel weten welke de beste is. De Consumentenbond testte meer dan vijftig...
-- [Dominerend AZ op comfortabele voorsprong tegen zwak Fortuna Sittard](https://www.ad.nl/voetbal/dominerend-az-op-comfortabele-voorsprong-tegen-zwak-fortuna-sittard~ad1f1ded/)
+- [Albert trouwde met zijn jeugdliefde: ‘Na ons huwelijk hebben we ervoor gekozen om te blijven latten’](https://www.ad.nl/mezza/albert-trouwde-met-zijn-jeugdliefde-na-ons-huwelijk-hebben-we-ervoor-gekozen-om-te-blijven-latten~a50a8f98/)
+  > Albert (58) vroeg vijf jaar geleden zijn jeugdliefde Gracia (58) via deze rubriek ten huwelijk. „Te lang stilstaan bij wat er gebeurd zou zijn als ik...
+- [Telstar kan stunt tegen PSV geen goed vervolg geven en slikt thuis nederlaag tegen FC Groningen](https://www.ad.nl/voetbal/telstar-kan-stunt-tegen-psv-geen-goed-vervolg-geven-en-slikt-thuis-nederlaag-tegen-fc-groningen~a333b87d/)
+  > Telstar is er niet in geslaagd om afstand te nemen van de degradatiestrijd. De ploeg van trainer Anthony Correia stuntte in de vorige speelronde nog...
+- [Scorende Jorrel Hato helpt Chelsea op weg naar ruime zege in FA Cup](https://www.ad.nl/voetbal/scorende-jorrel-hato-helpt-chelsea-op-weg-naar-ruime-zege-in-fa-cup~af999988/)
+  > Oranje-international Jorrel Hato heeft Chelsea met een snel doelpunt op weg geholpen naar een ruime zege tegen Port Vale in de kwartfinales van de FA...
+- [Streep door aansluitingstreffer Fortuna tegen AZ, Clasie maakt na ruim half jaar blessureleed rentree](https://www.ad.nl/voetbal/streep-door-aansluitingstreffer-fortuna-tegen-az-clasie-maakt-na-ruim-half-jaar-blessureleed-rentree~ad1f1ded/)
   > AZ verloor voor de interlandbreak met 3-0 van FC Groningen. De Alkmaarders zullen zich vanavond willen herpakken in de thuiswedstrijd tegen Fortuna...
-- [Hoe overleeft een neergehaalde piloot in vijandig gebied? ‘Hij moet zich strikt aan het plan houden’](https://www.ad.nl/buitenland/hoe-overleeft-een-neergehaalde-piloot-in-vijandig-gebied-hij-moet-zich-strikt-aan-het-plan-houden~a7bf4fff/)
-  > Ergens in Iran houdt een Amerikaanse piloot zich schuil nadat zijn F‑15 boven het land is neergehaald. De VS en Iran zoeken massaal naar de piloot,...
-- [Telstar na VAR-ingreep op achterstand tegen FC Groningen](https://www.ad.nl/voetbal/telstar-na-var-ingreep-op-achterstand-tegen-fc-groningen~a333b87d/)
-  > Telstar ontvangt vanavond FC Groningen in de VriendenLoterij Eredivisie. De thuisploeg is nog verre van zeker van handhaving op het hoogste niveau....
+- [Tjaronn Chery ondanks ‘paspoortgate’ inzetbaar, Excelsior zonder echte spits tegen NEC](https://www.ad.nl/voetbal/tjaronn-chery-ondanks-paspoortgate-inzetbaar-excelsior-zonder-echte-spits-tegen-nec~af0f4062/)
+  > NEC maakt, met zes speelrondes te gaan, nog altijd volop kans op een Champions League-ticket. Volgende week komt nummer 2 Feyenoord op bezoek,...
 
 ### Meest gelezen
 
