@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-04-2026 om 16:41*
+*Laatst bijgewerkt: 05-04-2026 om 17:36*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [NAC en Sparta schieten in teleurstellend duel niets op met gelijkspel](https://www.ad.nl/voetbal/nac-en-sparta-schieten-in-teleurstellend-duel-niets-op-met-gelijkspel~ae231900/)
-  > NAC en Sparta hebben in een teleurstellend duel in Breda de punten gedeeld (0-0). Beide ploegen kwamen in het Rat Verlegh Stadion niet tot scoren en...
-- [Robin van Persie blikt vooruit op cruciaal duel in Nijmegen: ‘Iedereen krijgt kansen tegen NEC’](https://www.ad.nl/voetbal/robin-van-persie-blikt-vooruit-op-cruciaal-duel-in-nijmegen-iedereen-krijgt-kansen-tegen-nec~ad1efa0d/)
+- [Op wolvensafari in Duitsland, waar de wolf wél geliefd is: ‘Je wordt echt niet zomaar aangevallen’](https://www.ad.nl/buitenland/op-wolvensafari-in-duitsland-waar-de-wolf-wel-geliefd-is-je-wordt-echt-niet-zomaar-aangevallen~ab9737876/)
+  > Nederlandse boeren willen dat wolven naar Duits voorbeeld sneller worden afgeschoten. Maar in de voormalige bruinkoolstreek Lausitz, waar een...
+- [Deze auto’s hebben het meest last van steenslag: één merk springt eruit](https://www.ad.nl/auto/deze-autos-hebben-het-meest-last-van-steenslag-een-merk-springt-eruit~af36ff6c/)
+  > Door de vorstschade aan wegen van de afgelopen winter, liggen de snelwegen en binnenwegen vol met losliggende steentjes. Dat leidt tot ruit- en...
+- [Van Gerwen en Van Veen willen Nederlands succes voortzetten op German Darts Grand Prix](https://www.ad.nl/darts/van-gerwen-en-van-veen-willen-nederlands-succes-voortzetten-op-german-darts-grand-prix~aa0d6381/)
+  > De Nederlanders zijn goed op weg tijdens de German Darts Grand Prix, het vierde Euro Tour-toernooi van het jaar. Drie landgenoten hebben zich al...
+- [Robin van Persie blikt al vooruit op cruciaal duel in Nijmegen: ‘Het spelen van duels gaat superbelangrijk worden’](https://www.ad.nl/voetbal/robin-van-persie-blikt-al-vooruit-op-cruciaal-duel-in-nijmegen-het-spelen-van-duels-gaat-superbelangrijk-worden~ad1efa0d/)
   > Feyenoord voelt NEC in de nek hijgen, de tweede plek is na de 0-0 in Volendam serieus in gevaar. Robin van Persie speurt naar aanknopingspunten om de...
-- [Van Rossum en Van Rossem duiden de wereld onder Trump: ‘Zet vol in op de EU’](https://www.ad.nl/buitenland/van-rossum-en-van-rossem-duiden-de-wereld-onder-trump-zet-vol-in-op-de-eu~a8439a69/)
-  > De één was jarenlang jurylid van De slimste mens, de ander doet vanaf maandag mee aan de finaleweek van de kennisquiz. Ze delen hun passie voor...
-- [Paus bedankt alsnog voor de bloemen, bloemsierkunstenaar Piet in tranen: 'Echt een binnenkomer'](https://www.ad.nl/binnenland/paus-bedankt-alsnog-voor-de-bloemen-bloemsierkunstenaar-piet-in-tranen-echt-een-binnenkomer~ae58b7c0/)
-  > De paus sprak zijn urbi et orbi, maar zweeg over de bloemen. Totdat hij oogcontact maakte met Piet van der Burg, de bloemsierkunstenaar uit Nederland...
-- [Demi Vollering soleert naar zege in Ronde van Vlaanderen: ‘Het zit allemaal in je hoofd, je moet erin geloven en alles geven’](https://www.ad.nl/wielrennen/demi-vollering-soleert-naar-zege-in-ronde-van-vlaanderen-het-zit-allemaal-in-je-hoofd-je-moet-erin-geloven-en-alles-geven~a48be0bc/)
-  > Demi Vollering heeft de Ronde van Vlaanderen toegevoegd aan haar erelijst. De Europees kampioene maakte - net als Tadej Pogacar bij de mannen - het...
+- [PSV pakte deze eeuw veruit de meeste titels: dit zijn de verschillen met Ajax en Feyenoord](https://www.ad.nl/voetbal/psv-pakte-deze-eeuw-veruit-de-meeste-titels-dit-zijn-de-verschillen-met-ajax-en-feyenoord~a770508f/)
+  > PSV verzekerde zich zondag van 27ste titel uit de clubgeschiedenis. Daarmee onderstrepen de Eindhovenaren hun oppermacht in de Eredivisie deze eeuw...
 
 ### Meest gelezen
 
