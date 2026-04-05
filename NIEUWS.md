@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-04-2026 om 07:13*
+*Laatst bijgewerkt: 05-04-2026 om 08:50*
 
 ---
 
@@ -8,17 +8,18 @@
 
 ### Laatste nieuws
 
+- [Blokkade Straat van Hormuz raakt Afrika hard, maar er zijn ook kansen](https://nos.nl/l/2609153)
+  > Lange rijen bij benzinestations, stroomstoringen en een dreigend tekort aan kunstmest. Ook op het Afrikaanse continent zijn de gevolgen van de oorlog...
+- ['Samenleesbijbel' helpt bij bespreken moeilijke onderwerpen, ook tijdens Pasen](https://nos.nl/l/2609148)
+  > Het Nederlands-Vlaams Bijbelgenootschap (NBG) zet in verschillende steden een project op om de samenhang en taalvaardigheid in vooral...
+- [Woning in Heerhugowaard volledig uitgebrand, 'gelukkig niemand thuis'](https://nos.nl/l/2609146)
+  > In een woning in Heerhugowaard heeft vanochtend een grote brand gewoed. Het vrijstaande huis met een rieten dak is vrijwel volledig uitgebrand.
+     ...
 - [Wekdienst 5/4: Eerste paasboodschap Leo XIV • Feyenoord kan PSV kampioen maken](https://nos.nl/l/2609141)
   > Goedemorgen! Vandaag is het Eerste Paasdag. Dat betekent paasmissen, paasvuren en de pauselijke zegen "urbi et orbi", maar zeker ook veel sport. 
    ...
 - [Trump: bemanningslid Amerikaanse F-15 terecht en in veiligheid](https://nos.nl/l/2609136)
   > Het bemanningslid van een Amerikaanse F-15 die werd neergehaald boven Iran, is terecht. President Trump meldt op Truth Social dat hij in veiligheid...
-- [Artemis-missie halverwege de maan: 'Adembenemend uitzicht'](https://nos.nl/l/2609135)
-  > De Artemis-missie is halverwege zijn reis naar de maan. Afgelopen nacht passeerde de ruimtecapsule dat punt tussen de aarde en zijn directe buur na...
-- [Een van de meest gezochte maffiabazen van Italië opgepakt](https://nos.nl/l/2609130)
-  > De Italiaanse autoriteiten hebben een van de meest gezochte maffiabazen opgepakt. Het gaat om de 48-jarige Roberto Mazzarella, die al ruim een jaar...
-- [Wegens drugshandel veroordeelde Franse man geëxecuteerd in China](https://nos.nl/l/2609129)
-  > In de Zuid-Chinese stad Guangzhou is een 62-jarige Fransman geëxecuteerd. Dat meldt het Franse ministerie van Buitenlandse Zaken. Hij werd in 2010...
 
 ### Meest gelezen
 
@@ -28,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Engelse media zien karakterloos Liverpool en vrezen voor Arne Slot: ‘Ze leken volledig van de kaart’](https://www.ad.nl/voetbal/engelse-media-zien-karakterloos-liverpool-en-vrezen-voor-arne-slot-ze-leken-volledig-van-de-kaart~a2744fad/)
-  > De pijnlijke nederlaag tegen Manchester City in de kwartfinale van de FA Cup geeft Arne Slot en Liverpool opnieuw stof tot nadenken. De kans dat de...
-- [NEC voert druk op richting Feyenoord, Ajax moet vrezen: dit zijn de verschillen in de strijd om cruciale plek 2](https://www.ad.nl/voetbal/nec-voert-druk-op-richting-feyenoord-ajax-moet-vrezen-dit-zijn-de-verschillen-in-de-strijd-om-cruciale-plek-2~a3da7ce4/)
-  > De strijd om de cruciale tweede plek is nog altijd razendspannend in de VriendenLoterij eredivisie. Vier clubs azen op deze positie, die recht geeft...
-- [Door dure scooterverzekering voor hun kind sjoemelen ouders bij de aanvraag: ‘Bij een ongeval ben je niet gedekt’](https://www.ad.nl/economie/door-dure-scooterverzekering-voor-hun-kind-sjoemelen-ouders-bij-de-aanvraag-bij-een-ongeval-ben-je-niet-gedekt~a1aa8f00/)
-  > Scooterbezitters, en zeker die tot 17 jaar, zijn veel meer geld kwijt aan hun verzekering. Geschrokken van de hoge prijs sluiten ouders de...
-- [Berghuis neemt in relaas over Ajax-crisis selectie en staf in bescherming: 'Een rode draad, die is er niet'](https://www.ad.nl/voetbal/berghuis-neemt-in-relaas-over-ajax-crisis-selectie-en-staf-in-bescherming-een-rode-draad-die-is-er-niet~aaba827d/)
-  > In zijn eerste jaar bij Ajax won hij de landstitel en alle groepsduels in de Champions League. Nu, vier jaar en vele crises later, vindt Steven...
-- [Pasen begint met zware windstoten en code geel, maar het wordt heel snel beter](https://www.ad.nl/binnenland/pasen-begint-met-zware-windstoten-en-code-geel-maar-het-wordt-heel-snel-beter~abb63734/)
-  > Eerste paasdag is onstuimig begonnen met afgelopen nacht en ook in de vroege ochtend zware windstoten in het noordwesten van het land. Vooral het...
+- [Onbeperkt eieren eten? Voedingscentrum adviseert niet meer dan twee tot drie per week](https://www.ad.nl/gezond/onbeperkt-eieren-eten-voedingscentrum-adviseert-niet-meer-dan-twee-tot-drie-per-week~a7ef07b0/)
+  > Ei, ei, ei, met Pasen horen ze erbij. Maar hoeveel eieren mag je eten? Zijn geverfde eieren giftig? En waarom zijn bruine eieren duurder dan witte?...
+- [Lionel Messi scoort met het hoofd eerste doelpunt van Inter Miami in gloednieuw stadion](https://www.ad.nl/voetbal/lionel-messi-scoort-met-het-hoofd-eerste-doelpunt-van-inter-miami-in-gloednieuw-stadion~a4b8dab5/)
+  > Lionel Messi heeft meteen gescoord in het gloednieuwe stadion van Inter Miami. Hij zorgde bij de openingswedstrijd in het Nu Stadium met een kopbal...
+- [Ploeggenoot van Pogacar klungelig onderuit in geneutraliseerde zone, Van der Poel kan recordhouder worden](https://www.ad.nl/wielrennen/ploeggenoot-van-pogacar-klungelig-onderuit-in-geneutraliseerde-zone-van-der-poel-kan-recordhouder-worden~a6436148/)
+  > Het tweede wielermonument van het jaar wordt vandaag verreden: de Ronde van Vlaanderen. Mathieu van der Poel gaat voor zijn vierde overwinning in...
+- [Emma Wortelboer: ‘Dat Spuiten en slikken-meisje zit nog steeds in mij, honderd procent’](https://www.ad.nl/show/emma-wortelboer-dat-spuiten-en-slikken-meisje-zit-nog-steeds-in-mij-honderd-procent~af2788e2/)
+  > Voordat de bezuinigingshamer ook Wortelboer en Van Rossem sloopt, mogen Emma en Maarten nog één seizoen met elkaar op pad om hun generatiekloof op de...
+- ['We wisten niet wie ze was': dochter (19) Angelina Jolie moest gewoon auditie doen, nu straalt ze in eerste clip](https://www.ad.nl/show/we-wisten-niet-wie-ze-was-dochter-19-angelina-jolie-moest-gewoon-auditie-doen-nu-straalt-ze-in-eerste-clip~a4ccc03ae/)
+  > Shiloh Jolie, de 19-jarige dochter van Angelina Jolie en Brad Pitt, heeft haar debuut gemaakt als danseres in een videoclip. Ze duikt op in een...
 
 ### Meest gelezen
 
@@ -47,6 +48,8 @@
 
 ### Laatste nieuws
 
+- [‘Versnipperd Denemarken’ stevent langzaam af op centrumlinks kabinet](https://fd.nl/politiek/1592091/versnipperd-denemarkenstevent-langzaam-af-op-centrumlinks-kabinet)
+  > Het ziet ernaar uit dat zittend premier Mette Frederiksen haar derde regering kan vormen. De vorming van een centrumlinkse coalitie zal lastig zijn,...
 - [‘Afschaffing regeling voor blijvend arbeidsongeschikten legt bom onder het hele stelsel’](https://fd.nl/samenleving/1592007/afschaffing-regeling-voor-blijvend-arbeidsongeschikten-legt-bom-onder-het-hele-stelsel)
   > Het kabinet draait aan de verkeerde knoppen bij zijn pogingen te bezuinigen op de WIA, zeggen verzekeraars en casemanagers. ‘Het disfunctioneren van...
 - [Luisterverhaal: India raakt op stoom](https://fd.nl/samenleving/1592189/luisterverhaal-india-raakt-op-stoom)
@@ -55,8 +58,6 @@
   > De ministers van Duitsland, Italië, Spanje, Portugal en Oostenrijk deden gezamenlijk een oproep in een brief aan de Europese Commissie.
 - [Frankrijk helpt kleine bedrijven met leningen vanwege hoge brandstofkosten](https://fd.nl/politiek/1592125/frankrijk-helpt-kleine-bedrijven-met-leningen-vanwege-hoge-brandstofkosten)
   > Het gaat om bedrijven in de transport-, visserij- en landbouwsector die minstens 5% van hun omzet aan brandstof uitgeven.
-- [Trump: Iran heeft nog 48 uur om deal te sluiten, voor de hel losbarst](https://fd.nl/politiek/1592238/iran-haalt-twee-amerikaanse-gevechtsvliegtuigen-neer-piloot-nog-vermist)
-  > Trump herinnert Iran eraan dat de deadline van tien dagen om een akkoord te sluiten binnenkort verloopt. De VS meldt dat de vermiste piloot uit een...
 
 ### Meest gelezen
 
