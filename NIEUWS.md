@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-04-2026 om 14:38*
+*Laatst bijgewerkt: 05-04-2026 om 15:38*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Heerenveen heeft geen kind aan Heracles en doet goede zaken in subtop eredivisie](https://www.ad.nl/voetbal/heerenveen-heeft-geen-kind-aan-heracles-en-doet-goede-zaken-in-subtop-eredivisie~ab47b555/)
-  > SC Heerenveen heeft met 4-1 gewonnen van Heracles Almelo en doet zodoende goede zaken in de Vriendenloterij eredivisie. De ploeg van trainer Robin...
-- [Dreun voor Feyenoord in strijd om plek 2: dure misstap in Volendam](https://www.ad.nl/voetbal/dreun-voor-feyenoord-in-strijd-om-plek-2-dure-misstap-in-volendam~acde0820/)
-  > NEC is Feyenoord tot op één schamel puntje genaderd. De Rotterdammers bleven ook tegen FC Volendam met 0-0 in gebreke en met de uitwedstrijd in...
-- [Sparta in strijd om Europees voetbal op bezoek bij degradatiekandidaat NAC, waar oudjes op de bank zitten](https://www.ad.nl/voetbal/sparta-in-strijd-om-europees-voetbal-op-bezoek-bij-degradatiekandidaat-nac-waar-oudjes-op-de-bank-zitten~ae231900/)
+- [LIVE eredivisie | Brilstand in Breda: NAC en Sparta maken er nog geen spektakel van](https://www.ad.nl/voetbal/live-eredivisie-brilstand-in-breda-nac-en-sparta-maken-er-nog-geen-spektakel-van~ae231900/)
   > Sparta is nog vol in de race voor een ticket voor de play-offs om Europees voetbal. De ploeg van Maurice Steijn gaat vanmiddag op bezoek bij...
-- [Feest in Eindhoven! PSV kroont zich tot vroegste kampioen ooit en heeft 27ste landstitel binnen](https://www.ad.nl/voetbal/feest-in-eindhoven-psv-kroont-zich-tot-vroegste-kampioen-ooit-en-heeft-27ste-landstitel-binnen~abfe38a5/)
+- [Trump: ‘Goede kans op snelle deal met Iran’, F-15 bemanningslid is ‘ernstig gewond’](https://www.ad.nl/buitenland/trump-goede-kans-op-snelle-deal-met-iran-f-15-bemanningslid-is-ernstig-gewond~ac528ac3/)
+  > Het eerst vermiste F-15 bemanningslid dat werd gered uit Iran is ‘ernstig gewond’, zo heeft president Trump gemeld op sociale media. Eerder stelde...
+- [Na 30 jaar zit avontuur voor Desray en D-Rock van 2 Brothers on the 4th Floor er nu definitief op: ‘Emotionele dag’](https://www.ad.nl/show/na-30-jaar-zit-avontuur-voor-desray-en-d-rock-van-2-brothers-on-the-4th-floor-er-nu-definitief-op-emotionele-dag~ad5b7768/)
+  > Het allerlaatste optreden van 2 Brothers on the 4th Floor zaterdagavond in Hasselt voelde voor zangeres Desray niet als een definitief afscheid. Het...
+- [Feest barst los in Eindhoven! PSV vroegste kampioen ooit, komende dinsdag huldiging](https://www.ad.nl/voetbal/feest-barst-los-in-eindhoven-psv-vroegste-kampioen-ooit-komende-dinsdag-huldiging~abfe38a5/)
   > PSV heeft zich voor de 27ste keer in de clubgeschiedenis tot kampioen van Nederland gekroond. De Eindhovenaren waren zaterdag al officieus kampioen...
-- [Mathieu van der Poel op Oude Kwaremont gelost door Tadej Pogacar, Sloveen hard op weg naar derde zege](https://www.ad.nl/wielrennen/mathieu-van-der-poel-op-oude-kwaremont-gelost-door-tadej-pogacar-sloveen-hard-op-weg-naar-derde-zege~a6436148/)
-  > Het tweede wielermonument van het jaar wordt vandaag verreden: de Ronde van Vlaanderen. Mathieu van der Poel gaat voor zijn vierde overwinning in...
+- [Paaseieren zoeken eindigt in drama: drie jonge mensen gedood door omvallende boom in Duitsland](https://www.ad.nl/buitenland/paaseieren-zoeken-eindigt-in-drama-drie-jonge-mensen-gedood-door-omvallende-boom-in-duitsland~a17604f3/)
+  > Bij een tragisch voorval in een bos in Duitsland zijn drie mensen om het leven gekomen. Een hoge boom viel door de hard wind op een groepje mensen...
 
 ### Meest gelezen
 
