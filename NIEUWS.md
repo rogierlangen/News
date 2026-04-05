@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-04-2026 om 17:36*
+*Laatst bijgewerkt: 05-04-2026 om 18:52*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Verstoppen, aanvallen en misleiding: hoe de VS een vermist F-15-bemanningslid redde](https://nos.nl/l/2609243)
+  > Geen ander land dan de VS had dit voor elkaar gekregen, zegt een gepensioneerde generaal tegen CNN over de redding van een zwaargewond bemanningslid...
 - [Boom valt om tijdens paaseieren zoeken in Duitsland, baby onder de drie doden](https://nos.nl/l/2609233)
   > Tijdens het zoeken naar paaseieren zijn in een bos in Duitsland drie mensen om het leven gekomen, onder wie een baby van tien maanden. Zij kwamen...
 - [Feestende voetbalfans in binnenstad Eindhoven na 27ste landstitel voor PSV](https://nos.nl/l/2609226)
   > In de binnenstad van Eindhoven is een groot feest losgebarsten na het kampioenschap van PSV. Door puntverlies van Feyenoord tegen FC Volendam (0-0)...
-- [Tassen met explosieven gevonden bij gaspijplijn tussen Servië en Hongarije](https://nos.nl/l/2609218)
+- [Servië meldt vondst van explosieven bij gaspijplijn op grens met Hongarije](https://nos.nl/l/2609218)
   > In Servië zijn vlak bij een gaspijplijn twee rugzakken met explosieven gevonden. Dat meldt de Servische president Vucic. Het gaat volgens hem om "een...
 - [1400 kilo cocaïne gevonden in haven Rotterdam, verstopt achter verhuisboedel](https://nos.nl/l/2609203)
   > In de haven van Rotterdam is gisteren ruim 1400 kilo cocaïne gevonden. Volgens het Openbaar Ministerie zat het grootste deel van die drugs verstopt...
-- [Opnieuw drukte door afgesloten A2, weggebruikers negeren omleiding](https://nos.nl/l/2609199)
-  > Voor de tweede dag op rij is het chaotisch op de wegen rondom Vianen. Omdat de A2 dicht is vanwege werkzaamheden en er file op de A27 staat, nemen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Op wolvensafari in Duitsland, waar de wolf wél geliefd is: ‘Je wordt echt niet zomaar aangevallen’](https://www.ad.nl/buitenland/op-wolvensafari-in-duitsland-waar-de-wolf-wel-geliefd-is-je-wordt-echt-niet-zomaar-aangevallen~ab9737876/)
-  > Nederlandse boeren willen dat wolven naar Duits voorbeeld sneller worden afgeschoten. Maar in de voormalige bruinkoolstreek Lausitz, waar een...
-- [Deze auto’s hebben het meest last van steenslag: één merk springt eruit](https://www.ad.nl/auto/deze-autos-hebben-het-meest-last-van-steenslag-een-merk-springt-eruit~af36ff6c/)
-  > Door de vorstschade aan wegen van de afgelopen winter, liggen de snelwegen en binnenwegen vol met losliggende steentjes. Dat leidt tot ruit- en...
-- [Van Gerwen en Van Veen willen Nederlands succes voortzetten op German Darts Grand Prix](https://www.ad.nl/darts/van-gerwen-en-van-veen-willen-nederlands-succes-voortzetten-op-german-darts-grand-prix~aa0d6381/)
-  > De Nederlanders zijn goed op weg tijdens de German Darts Grand Prix, het vierde Euro Tour-toernooi van het jaar. Drie landgenoten hebben zich al...
-- [Robin van Persie blikt al vooruit op cruciaal duel in Nijmegen: ‘Het spelen van duels gaat superbelangrijk worden’](https://www.ad.nl/voetbal/robin-van-persie-blikt-al-vooruit-op-cruciaal-duel-in-nijmegen-het-spelen-van-duels-gaat-superbelangrijk-worden~ad1efa0d/)
-  > Feyenoord voelt NEC in de nek hijgen, de tweede plek is na de 0-0 in Volendam serieus in gevaar. Robin van Persie speurt naar aanknopingspunten om de...
-- [PSV pakte deze eeuw veruit de meeste titels: dit zijn de verschillen met Ajax en Feyenoord](https://www.ad.nl/voetbal/psv-pakte-deze-eeuw-veruit-de-meeste-titels-dit-zijn-de-verschillen-met-ajax-en-feyenoord~a770508f/)
-  > PSV verzekerde zich zondag van 27ste titel uit de clubgeschiedenis. Daarmee onderstrepen de Eindhovenaren hun oppermacht in de Eredivisie deze eeuw...
+- [Zwangere Hila showt haar ‘paasei’ en Jan heeft een pittige dag](https://www.ad.nl/show/zwangere-hila-showt-haar-paasei-en-jan-heeft-een-pittige-dag~ae10b56a/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Explosieven gevonden bij Russische gaspijplijn naar Hongarije, Kyiv ontkent betrokkenheid](https://www.ad.nl/buitenland/explosieven-gevonden-bij-russische-gaspijplijn-naar-hongarije-kyiv-ontkent-betrokkenheid~a2555288/)
+  > In Servië zijn zondag twee rugzakken met explosieven aangetroffen in de buurt van een gaspijplijn die naar onder meer Hongarije leidt. De leiding...
+- [Palmares van Demi Vollering nadert perfectie, ook dankzij meditatie: ‘Een dagelijkse routine die me helpt’](https://www.ad.nl/wielrennen/palmares-van-demi-vollering-nadert-perfectie-ook-dankzij-meditatie-een-dagelijkse-routine-die-me-helpt~aaa437fb/)
+  > Op haar 29ste wint Demi Vollering voor het eerst de Ronde van Vlaanderen, die heel hoog op haar wensenlijst stond. Haar palmares nadert de perfectie,...
+- [Filmmaker San Fu Maltha over interview Ruud de Wild: 'Soms moet je gewoon zeggen: dit klopt niet'](https://www.ad.nl/binnenland/filmmaker-san-fu-maltha-over-interview-ruud-de-wild-soms-moet-je-gewoon-zeggen-dit-klopt-niet~a172674c/)
+  > Uitgescholden op het schoolplein, klappen op weg naar huis en een vader die zijn dochter verbood met hem, ‘poepchinees’, om te gaan. Filmproducent...
+- [Pepsi stopt als sponsor Brits festival na aankondiging concert Ye](https://www.ad.nl/show/pepsi-stopt-als-sponsor-brits-festival-na-aankondiging-concert-ye~a2bf1096/)
+  > Pepsi heeft zich teruggetrokken als sponsor van het Wireless Festival in Londen omdat het evenement drie optredens van de omstreden Amerikaanse...
 
 ### Meest gelezen
 
