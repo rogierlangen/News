@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-04-2026 om 18:52*
+*Laatst bijgewerkt: 05-04-2026 om 19:36*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Overleden vrouw aangetroffen in woning Oss, baby meegenomen naar ziekenhuis](https://nos.nl/l/2609249)
+  > In een woning in Oss is vanmiddag na een melding iets na 17.00 uur een overleden vrouw gevonden. Op hetzelfde adres werd ook een baby aangetroffen....
 - [Verstoppen, aanvallen en misleiding: hoe de VS een vermist F-15-bemanningslid redde](https://nos.nl/l/2609243)
   > Geen ander land dan de VS had dit voor elkaar gekregen, zegt een gepensioneerde generaal tegen CNN over de redding van een zwaargewond bemanningslid...
 - [Boom valt om tijdens paaseieren zoeken in Duitsland, baby onder de drie doden](https://nos.nl/l/2609233)
@@ -16,8 +18,6 @@
   > In de binnenstad van Eindhoven is een groot feest losgebarsten na het kampioenschap van PSV. Door puntverlies van Feyenoord tegen FC Volendam (0-0)...
 - [Servië meldt vondst van explosieven bij gaspijplijn op grens met Hongarije](https://nos.nl/l/2609218)
   > In Servië zijn vlak bij een gaspijplijn twee rugzakken met explosieven gevonden. Dat meldt de Servische president Vucic. Het gaat volgens hem om "een...
-- [1400 kilo cocaïne gevonden in haven Rotterdam, verstopt achter verhuisboedel](https://nos.nl/l/2609203)
-  > In de haven van Rotterdam is gisteren ruim 1400 kilo cocaïne gevonden. Volgens het Openbaar Ministerie zat het grootste deel van die drugs verstopt...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zwangere Hila showt haar ‘paasei’ en Jan heeft een pittige dag](https://www.ad.nl/show/zwangere-hila-showt-haar-paasei-en-jan-heeft-een-pittige-dag~ae10b56a/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Explosieven gevonden bij Russische gaspijplijn naar Hongarije, Kyiv ontkent betrokkenheid](https://www.ad.nl/buitenland/explosieven-gevonden-bij-russische-gaspijplijn-naar-hongarije-kyiv-ontkent-betrokkenheid~a2555288/)
-  > In Servië zijn zondag twee rugzakken met explosieven aangetroffen in de buurt van een gaspijplijn die naar onder meer Hongarije leidt. De leiding...
-- [Palmares van Demi Vollering nadert perfectie, ook dankzij meditatie: ‘Een dagelijkse routine die me helpt’](https://www.ad.nl/wielrennen/palmares-van-demi-vollering-nadert-perfectie-ook-dankzij-meditatie-een-dagelijkse-routine-die-me-helpt~aaa437fb/)
-  > Op haar 29ste wint Demi Vollering voor het eerst de Ronde van Vlaanderen, die heel hoog op haar wensenlijst stond. Haar palmares nadert de perfectie,...
-- [Filmmaker San Fu Maltha over interview Ruud de Wild: 'Soms moet je gewoon zeggen: dit klopt niet'](https://www.ad.nl/binnenland/filmmaker-san-fu-maltha-over-interview-ruud-de-wild-soms-moet-je-gewoon-zeggen-dit-klopt-niet~a172674c/)
-  > Uitgescholden op het schoolplein, klappen op weg naar huis en een vader die zijn dochter verbood met hem, ‘poepchinees’, om te gaan. Filmproducent...
-- [Pepsi stopt als sponsor Brits festival na aankondiging concert Ye](https://www.ad.nl/show/pepsi-stopt-als-sponsor-brits-festival-na-aankondiging-concert-ye~a2bf1096/)
-  > Pepsi heeft zich teruggetrokken als sponsor van het Wireless Festival in Londen omdat het evenement drie optredens van de omstreden Amerikaanse...
+- [Massale steun voor doodzieke kitten Daisy, in paar uur tijd ruim 5000 euro opgehaald](https://www.ad.nl/rotterdam/massale-steun-voor-doodzieke-kitten-daisy-in-paar-uur-tijd-ruim-5000-euro-opgehaald~a44affb7/)
+  > Manuela Vreeswijk wist niet wat haar overkwam. Binnen drie uur nadat het verhaal over haar doodzieke kitten Daisy online verscheen, was het benodigde...
+- [Trump: ‘Goede kans op snelle Iran-deal’, Artsen zonder Grenzen veroordeelt aanval naast ziekenhuis](https://www.ad.nl/buitenland/trump-goede-kans-op-snelle-iran-deal-artsen-zonder-grenzen-veroordeelt-aanval-naast-ziekenhuis~ac528ac3/)
+  > Donald Trump denkt dat er een ‘goede kans’ is dat er morgen een deal gesloten wordt met Iran. Hij zei tegen Fox News dat er op dit moment...
+- [Van pijnlijke rode plekken na borstkanker naar wereldambitie: hoe drie vriendinnen hun banen opzegden voor één beha](https://www.ad.nl/binnenland/van-pijnlijke-rode-plekken-na-borstkanker-naar-wereldambitie-hoe-drie-vriendinnen-hun-banen-opzegden-voor-een-beha~a9ccb542/)
+  > De Amersfoortse Anita Schimmel krijgt in 2015 borstkanker. Als ze eindelijk door het loodzware traject van bestralingen en chemo’s heen is, krijgt ze...
+- [Pascal Struijk schiet Leeds United naar Wembley, duizenden fans West Ham missen verlenging](https://www.ad.nl/voetbal/pascal-struijk-schiet-leeds-united-naar-wembley-duizenden-fans-west-ham-missen-verlenging~ad10c3e1/)
+  > Leeds United heeft zich als laatste club geplaatst voor de halve finales van de FA Cup. Pascal Struijk, voormalig jeugdspeler van ADO Den Haag en...
+- [LIVE Serie A | Inter slaat kort voor rust weer toe tegen AS Roma, prachtige uithaal van Calhanoglu](https://www.ad.nl/voetbal/live-serie-a-inter-slaat-kort-voor-rust-weer-toe-tegen-as-roma-prachtige-uithaal-van-calhanoglu~a255f97e2/)
+  > Inter is hard op weg naar de derde Scudetto in zes jaar. Inter heeft na 30 van de 38 speelrondes een voorsprong van zes punten op AC Milan. Vanavond...
 
 ### Meest gelezen
 
