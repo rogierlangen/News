@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-04-2026 om 20:39*
+*Laatst bijgewerkt: 05-04-2026 om 21:36*
 
 ---
 
@@ -8,7 +8,7 @@
 
 ### Laatste nieuws
 
-- [In het hart van Amerika's olie-industrie weet niemand meer waar die aan toe is](https://nos.nl/l/2609252)
+- [In het hart van Amerika's olie-industrie weet niemand meer waar hij aan toe is](https://nos.nl/l/2609252)
   > Olieprijzen gaan door het dak, benzineprijzen in de Verenigde Staten liggen ruim een derde hoger dan een maand geleden. Nu Amerika ruim een maand in...
 - [Overleden vrouw aangetroffen in woning Oss, baby meegenomen naar ziekenhuis](https://nos.nl/l/2609249)
   > In een woning in Oss is vanmiddag na een melding iets na 17.00 uur een overleden vrouw gevonden. Op hetzelfde adres werd ook een baby aangetroffen....
@@ -27,12 +27,12 @@
 
 ### Laatste nieuws
 
+- [Gian van Veen en Michael van Gerwen verliezen ruim, maar nog vier Nederlanders over op German Darts Grand Prix](https://www.ad.nl/darts/gian-van-veen-en-michael-van-gerwen-verliezen-ruim-maar-nog-vier-nederlanders-over-op-german-darts-grand-prix~aa0d6381/)
+  > Michael van Gerwen en Gian van Veen, de twee beste Nederlandse darters, gingen zondagavond verrassend onderuit op de German Darts Grand Prix in...
+- [Inter zet volgende stap richting titel, pijnlijke avond voor Malen en Rensch in Milaan](https://www.ad.nl/voetbal/inter-zet-volgende-stap-richting-titel-pijnlijke-avond-voor-malen-en-rensch-in-milaan~a255f97e2/)
+  > Inter heeft zondagavond een flinke stap gezet richting de derde landstitel in zes jaar. De koploper van de Serie A won in San Siro met 5-2 van AS...
 - [Bram van Polen snoeihard voor PEC Zwolle na ongeregeldheden in Deventer: ‘Schande voor het voetbal’](https://www.ad.nl/voetbal/bram-van-polen-snoeihard-voor-pec-zwolle-na-ongeregeldheden-in-deventer-schande-voor-het-voetbal~a7f7baac/)
   > Bram van Polen heeft zich vernietigend uitgelaten over het verloop van de IJsselderby. Niet alleen moest het PEC Zwolle-clubicoon met lede ogen...
-- [Inter maakt er al vijf tegen AS Roma, pijnlijke avond voor Malen en Rensch in Milaan](https://www.ad.nl/voetbal/inter-maakt-er-al-vijf-tegen-as-roma-pijnlijke-avond-voor-malen-en-rensch-in-milaan~a255f97e2/)
-  > Inter is hard op weg naar de derde Scudetto in zes jaar. Inter heeft na 30 van de 38 speelrondes een voorsprong van zes punten op AC Milan. Vanavond...
-- [Van Gerwen lijdt zeldzaam grote nederlaag bij German Darts Grand Prix, Van Veen later in actie](https://www.ad.nl/darts/van-gerwen-lijdt-zeldzaam-grote-nederlaag-bij-german-darts-grand-prix-van-veen-later-in-actie~aa0d6381/)
-  > De Nederlanders zijn goed op weg tijdens de German Darts Grand Prix, het vierde Euro Tour-toernooi van het jaar. Drie landgenoten hebben zich al...
 - [Linda de Mol schiet vol in Miljoenenjacht na uitspraken van kandidaat Nicky: 'Dit is zoiets unieks'](https://www.ad.nl/show/linda-de-mol-schiet-vol-in-miljoenenjacht-na-uitspraken-van-kandidaat-nicky-dit-is-zoiets-unieks~a1a94416/)
   > Zijn grootste wens was ooit naast Linda de Mol komen te staan in Miljoenenjacht. Zondagavond ging die droom van Nicky uit Amsterdam na vijftien jaar...
 - [Massale steun voor doodzieke kitten Daisy, in paar uur tijd ruim 5000 euro opgehaald](https://www.ad.nl/rotterdam/massale-steun-voor-doodzieke-kitten-daisy-in-paar-uur-tijd-ruim-5000-euro-opgehaald~a44affb7/)
