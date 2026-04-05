@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-04-2026 om 22:36*
+*Laatst bijgewerkt: 05-04-2026 om 23:38*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Duitse mannen vinden tijdens paaseieren zoeken mogelijk zeer radioactieve stof](https://nos.nl/l/2609265)
+  > Twee mannen in Duitsland zijn gisteren tijdens het zoeken naar paaseieren gestuit op een flesje met het opschrift 'Polonium-210'. Dat is een...
 - [In het hart van Amerika's olie-industrie weet niemand meer waar hij aan toe is](https://nos.nl/l/2609252)
   > Olieprijzen gaan door het dak, benzineprijzen in de Verenigde Staten liggen ruim een derde hoger dan een maand geleden. Nu Amerika ruim een maand in...
 - [Overleden vrouw aangetroffen in woning Oss, baby meegenomen naar ziekenhuis](https://nos.nl/l/2609249)
@@ -16,8 +18,6 @@
   > Geen ander land dan de VS had dit voor elkaar gekregen, zegt een gepensioneerde generaal tegen CNN over de redding van een zwaargewond bemanningslid...
 - [Boom valt om tijdens paaseieren zoeken in Duitsland, baby onder de drie doden](https://nos.nl/l/2609233)
   > Tijdens het zoeken naar paaseieren zijn in een bos in Duitsland drie mensen om het leven gekomen, onder wie een baby van tien maanden. Zij kwamen...
-- [Feestende voetbalfans in binnenstad Eindhoven na 27ste landstitel voor PSV](https://nos.nl/l/2609226)
-  > In de binnenstad van Eindhoven is een groot feest losgebarsten na het kampioenschap van PSV. Door puntverlies van Feyenoord tegen FC Volendam (0-0)...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Rusland zegt 148 Oekraïense drones in drie uur te hebben neergehaald, half miljoen huishoudens zonder stroom](https://www.ad.nl/buitenland/rusland-zegt-148-oekraiense-drones-in-drie-uur-te-hebben-neergehaald-half-miljoen-huishoudens-zonder-stroom~adfb97be/)
+  > De Russische luchtverdediging heeft in een periode van drie uur 148 Oekraïense drones neergehaald. Volgens functionarissen waren hulpdiensten in...
+- [Voetbalpodcast | ‘Kan me niet voorstellen dat PSV de voorsprong in Nederland snel gaat weggeven’](https://www.ad.nl/voetbal/voetbalpodcast-kan-me-niet-voorstellen-dat-psv-de-voorsprong-in-nederland-snel-gaat-weggeven~ac8603a9/)
+  > PSV werd zondag, door het gelijkspel van Feyenoord in Volendam, de vroegste kampioen ooit in Nederland. De AD Voetbalpodcast staat stil bij de 27ste...
 - [Zoon Arnold Schwarzenegger gaat vader achterna en krijgt professionele licentie](https://www.ad.nl/show/zoon-arnold-schwarzenegger-gaat-vader-achterna-en-krijgt-professionele-licentie~a2260f21/)
   > De zoon van acteur Arnold Schwarzenegger, Joseph Baena, heeft tijdens een wedstrijd voor bodybuilders in Californië de Iron Gladiator Classic...
 - [Prijzenpakker Peter Bosz na zijn derde titel met PSV: ‘Ik wil dolgraag dat Jerdy Schouten bij de huldiging is’](https://www.ad.nl/voetbal/prijzenpakker-peter-bosz-na-zijn-derde-titel-met-psv-ik-wil-dolgraag-dat-jerdy-schouten-bij-de-huldiging-is~aed39785/)
   > Peter Bosz was zondagmiddag opgetogen nadat PSV de titel pakte, zonder zelf te spelen. In de morgen was de coach bij zijn kleinkinderen en later op...
 - [Gian van Veen en Michael van Gerwen verliezen ruim, maar nog vier Nederlanders over op German Darts Grand Prix](https://www.ad.nl/darts/gian-van-veen-en-michael-van-gerwen-verliezen-ruim-maar-nog-vier-nederlanders-over-op-german-darts-grand-prix~aa0d6381/)
   > Michael van Gerwen en Gian van Veen, de twee beste Nederlandse darters, gingen zondagavond verrassend onderuit op de German Darts Grand Prix in...
-- [Israël bestempelt gebied ten zuiden van Litani-rivier als operationele zone, aldus legerchef](https://www.ad.nl/buitenland/israel-bestempelt-gebied-ten-zuiden-van-litani-rivier-als-operationele-zone-aldus-legerchef~ac528ac3/)
-  > Volgens de Israëlische legerchef Eyal Zamir heeft het Israëlische leger alle gebieden ten zuiden van de Litani-rivier in Libanon omgevormd tot een...
-- [Inter zet volgende stap richting titel, pijnlijke avond voor Malen en Rensch in Milaan](https://www.ad.nl/voetbal/inter-zet-volgende-stap-richting-titel-pijnlijke-avond-voor-malen-en-rensch-in-milaan~a255f97e2/)
-  > Inter heeft zondagavond een flinke stap gezet richting de derde landstitel in zes jaar. De koploper van de Serie A won in San Siro met 5-2 van AS...
 
 ### Meest gelezen
 
