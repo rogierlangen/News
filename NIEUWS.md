@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-04-2026 om 21:36*
+*Laatst bijgewerkt: 05-04-2026 om 22:36*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Zoon Arnold Schwarzenegger gaat vader achterna en krijgt professionele licentie](https://www.ad.nl/show/zoon-arnold-schwarzenegger-gaat-vader-achterna-en-krijgt-professionele-licentie~a2260f21/)
+  > De zoon van acteur Arnold Schwarzenegger, Joseph Baena, heeft tijdens een wedstrijd voor bodybuilders in Californië de Iron Gladiator Classic...
+- [Prijzenpakker Peter Bosz na zijn derde titel met PSV: ‘Ik wil dolgraag dat Jerdy Schouten bij de huldiging is’](https://www.ad.nl/voetbal/prijzenpakker-peter-bosz-na-zijn-derde-titel-met-psv-ik-wil-dolgraag-dat-jerdy-schouten-bij-de-huldiging-is~aed39785/)
+  > Peter Bosz was zondagmiddag opgetogen nadat PSV de titel pakte, zonder zelf te spelen. In de morgen was de coach bij zijn kleinkinderen en later op...
 - [Gian van Veen en Michael van Gerwen verliezen ruim, maar nog vier Nederlanders over op German Darts Grand Prix](https://www.ad.nl/darts/gian-van-veen-en-michael-van-gerwen-verliezen-ruim-maar-nog-vier-nederlanders-over-op-german-darts-grand-prix~aa0d6381/)
   > Michael van Gerwen en Gian van Veen, de twee beste Nederlandse darters, gingen zondagavond verrassend onderuit op de German Darts Grand Prix in...
+- [Israël bestempelt gebied ten zuiden van Litani-rivier als operationele zone, aldus legerchef](https://www.ad.nl/buitenland/israel-bestempelt-gebied-ten-zuiden-van-litani-rivier-als-operationele-zone-aldus-legerchef~ac528ac3/)
+  > Volgens de Israëlische legerchef Eyal Zamir heeft het Israëlische leger alle gebieden ten zuiden van de Litani-rivier in Libanon omgevormd tot een...
 - [Inter zet volgende stap richting titel, pijnlijke avond voor Malen en Rensch in Milaan](https://www.ad.nl/voetbal/inter-zet-volgende-stap-richting-titel-pijnlijke-avond-voor-malen-en-rensch-in-milaan~a255f97e2/)
   > Inter heeft zondagavond een flinke stap gezet richting de derde landstitel in zes jaar. De koploper van de Serie A won in San Siro met 5-2 van AS...
-- [Bram van Polen snoeihard voor PEC Zwolle na ongeregeldheden in Deventer: ‘Schande voor het voetbal’](https://www.ad.nl/voetbal/bram-van-polen-snoeihard-voor-pec-zwolle-na-ongeregeldheden-in-deventer-schande-voor-het-voetbal~a7f7baac/)
-  > Bram van Polen heeft zich vernietigend uitgelaten over het verloop van de IJsselderby. Niet alleen moest het PEC Zwolle-clubicoon met lede ogen...
-- [Linda de Mol schiet vol in Miljoenenjacht na uitspraken van kandidaat Nicky: 'Dit is zoiets unieks'](https://www.ad.nl/show/linda-de-mol-schiet-vol-in-miljoenenjacht-na-uitspraken-van-kandidaat-nicky-dit-is-zoiets-unieks~a1a94416/)
-  > Zijn grootste wens was ooit naast Linda de Mol komen te staan in Miljoenenjacht. Zondagavond ging die droom van Nicky uit Amsterdam na vijftien jaar...
-- [Massale steun voor doodzieke kitten Daisy, in paar uur tijd ruim 5000 euro opgehaald](https://www.ad.nl/rotterdam/massale-steun-voor-doodzieke-kitten-daisy-in-paar-uur-tijd-ruim-5000-euro-opgehaald~a44affb7/)
-  > Manuela Vreeswijk wist niet wat haar overkwam. Binnen drie uur nadat het verhaal over haar doodzieke kitten Daisy online verscheen, was het benodigde...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [#Sisterhood en dat speciale plekje in de hel](https://fd.nl/opinie/1589635/sisterhood-en-dat-speciale-plekje-in-de-hel)
+  > Doen alsof het gebrek aan steun van hun zusters het ware probleem is van vrouwen, is een gevaarlijke afleidingsmanoeuvre. De aandacht verschuift van...
 - [Klacht bij Europese Commissie tegen voorgenomen steun Tata Steel](https://fd.nl/politiek/1592128/klacht-bij-europese-commissie-tegen-voorgenomen-steun-tata-steel)
   > Juridische ngo Advocates for the Future vraagt de Europese Commissie geen toestemming te verlenen voor een financieel steunpakket aan Tata Steel.
 - [‘Explosieven gevonden bij Servisch-Hongaarse pijpleiding’](https://fd.nl/politiek/1592241/explosieven-gevonden-bij-servisch-hongaarse-pijpleiding)
@@ -54,8 +56,6 @@
   > Na een datalek bij AI-bedrijf Mercor schort Meta de samenwerking met de startup op voor onbepaalde tijd.
 - [Controversiële couturier John Galliano maakt bij Zara de sprong naar mode voor de massa](https://fd.nl/bedrijfsleven/1592110/controversiele-couturier-john-galliano-maakt-bij-zara-de-sprong-naar-mode-voor-de-massa)
   > De voormalig hoofdontwerper van Dior verrast de modewereld: de geboren Gibraltarees verbindt zijn naam aan het Spaanse textielconcern Inditex.
-- [‘Opec+ wil olieproductie verhogen’](https://fd.nl/economie/1592240/opec-wil-olieproductie-verhogen)
-  > Oliekartel Opec+ wil volgens ingewijden meer olie produceren.
 
 ### Meest gelezen
 
