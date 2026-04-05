@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-04-2026 om 11:34*
+*Laatst bijgewerkt: 05-04-2026 om 13:07*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Orde hersteld in Deventer: spelers Go Ahead en PEC Zwolle het veld op voor warming-up](https://www.ad.nl/voetbal/orde-hersteld-in-deventer-spelers-go-ahead-en-pec-zwolle-het-veld-op-voor-warming-up~a4014833/)
-  > De IJsselderby is uitgesteld wegens gezichtsbedekking in het uitvak van de Adelaarshorst. De fans van PEC Zwolle weigerden de bedekking af te doen,...
-- [Spanje staat stil bij de begrafenis van gespietste ex-stierenvechter: de stier had toch het laatste woord](https://www.ad.nl/buitenland/spanje-staat-stil-bij-de-begrafenis-van-gespietste-ex-stierenvechter-de-stier-had-toch-het-laatste-woord~a85f1cb8/)
-  > De Spaanse stad Málaga maakt zich op voor een bijzonder afscheid. Ricardo Ortiz (51), een gepensioneerde stierenvechter, overleed vrijdag nadat hij...
-- [Feyenoord mist Hadj Moussa en Ahmedhodzic in Volendam: dit is de opstelling](https://www.ad.nl/voetbal/feyenoord-mist-hadj-moussa-en-ahmedhodzic-in-volendam-dit-is-de-opstelling~acde0820/)
+- [Iran-oorlog raakt ook productie kunstmest: ‘Het kan nijpend worden’](https://www.ad.nl/buitenland/iran-oorlog-raakt-ook-productie-kunstmest-het-kan-nijpend-worden~afc30757/)
+  > De oorlog in Iran is niet alleen slecht nieuws voor de export van olie en gas (en de prijs daarvan). Ook de productie van kunstmest krijgt flinke...
+- [LIVE eredivisie | Feyenoord ontsnapt aan openingsgoal FC Volendam, paaseieren verstopt onder stoeltjes van fans](https://www.ad.nl/voetbal/live-eredivisie-feyenoord-ontsnapt-aan-openingsgoal-fc-volendam-paaseieren-verstopt-onder-stoeltjes-van-fans~acde0820/)
   > Met nog zes duels te gaan is de spanning om te snijden: wie pakt plek 2 en daarmee het Champions League-ticket? Feyenoord heeft nog altijd de beste...
-- [Festivals zijn te duur, vinden jonge bezoekers, maar toch gaan ze wél: deze vijf trends bepalen hun gedrag](https://www.ad.nl/binnenland/festivals-zijn-te-duur-vinden-jonge-bezoekers-maar-toch-gaan-ze-wel-deze-vijf-trends-bepalen-hun-gedrag~a549bb31/)
-  > De kaartverkoop voor festivals wil nog niet best op gang komen. Zowel voor de Zwarte Cross, Lowlands als Down The Rabbit Hole zijn nog volop tickets...
-- [Sonja (36) kan geen ‘nee’ zeggen tegen haar dochter en dus geeft ze iedere maand zo’n 300 euro aan extraatjes uit](https://www.ad.nl/geld/sonja-36-kan-geen-nee-zeggen-tegen-haar-dochter-en-dus-geeft-ze-iedere-maand-zon-300-euro-aan-extraatjes-uit~ab0c35b1/)
-  > Sonja (36) geeft 300 euro per maand uit aan verwennerijen om haar dochter (8) tevreden te houden. Iedereen maakt weleens een fout waar kleine of soms...
+- [Formule 1-podcast | ‘Als een viervoudig wereldkampioen twijfels uit over zijn sport, luistert iedereen daar naar’](https://www.ad.nl/formule-1/formule-1-podcast-als-een-viervoudig-wereldkampioen-twijfels-uit-over-zijn-sport-luistert-iedereen-daar-naar~a222de3b/)
+  > April is de maand zonder Formule 1-race. Door de oorlog in Iran schrapte de organisatie twee races in het Midden Oosten. Voor sommige teams het...
+- [Ellen ten Damme baalt dat pers ‘alleen maar’ over Ali B wil praten: ‘Ik kan nergens terecht’](https://www.ad.nl/show/ellen-ten-damme-baalt-dat-pers-alleen-maar-over-ali-b-wil-praten-ik-kan-nergens-terecht~ae63a5db/)
+  > Ellen ten Damme wil afstand nemen van de zaak rond Ali B. Maar dat wordt haar niet gemakkelijk gemaakt, omdat media haar daarnaar blijven vragen. Dat...
+- [Go Ahead maakt gehakt van PEC, IJsselderby anderhalf uur later begonnen wegens ongeregeldheden](https://www.ad.nl/voetbal/go-ahead-maakt-gehakt-van-pec-ijsselderby-anderhalf-uur-later-begonnen-wegens-ongeregeldheden~a4014833/)
+  > De IJsselderby is ruim anderhalf uur na de oorspronkelijke aftraptijd begonnen. De aftrap moest worden uitgesteld wegens ongeregeldheden in het...
 
 ### Meest gelezen
 
@@ -47,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Meta pauzeert samenwerking met AI-bedrijf Mercor na datalek](https://fd.nl/bedrijfsleven/1592126/meta-pauzeert-samenwerking-met-ai-bedrijf-mercor-na-datalek)
+  > Na een datalek bij AI-bedrijf Mercor schort Meta de samenwerking met de startup op voor onbepaalde tijd.
 - [Controversiële couturier John Galliano maakt bij Zara de sprong naar mode voor de massa](https://fd.nl/bedrijfsleven/1592110/controversiele-couturier-john-galliano-maakt-bij-zara-de-sprong-naar-mode-voor-de-massa)
   > De voormalig hoofdontwerper van Dior verrast de modewereld: de geboren Gibraltarees verbindt zijn naam aan het Spaanse textielconcern Inditex.
 - [‘Opec+ wil olieproductie verhogen’](https://fd.nl/economie/1592240/opec-wil-olieproductie-verhogen)
@@ -55,8 +57,6 @@
   > Het ziet ernaar uit dat zittend premier Mette Frederiksen haar derde regering kan vormen. De vorming van een centrumlinkse coalitie zal lastig zijn,...
 - [‘Afschaffing regeling voor blijvend arbeidsongeschikten legt bom onder het hele stelsel’](https://fd.nl/samenleving/1592007/afschaffing-regeling-voor-blijvend-arbeidsongeschikten-legt-bom-onder-het-hele-stelsel)
   > Het kabinet draait aan de verkeerde knoppen bij zijn pogingen te bezuinigen op de WIA, zeggen verzekeraars en casemanagers. ‘Het disfunctioneren van...
-- [Luisterverhaal: India raakt op stoom](https://fd.nl/samenleving/1592189/luisterverhaal-india-raakt-op-stoom)
-  > Deze week hoor je het verhaal van India: een grote economie met nog grotere plannen. Het land wil het etiket ‘opkomend’ van zich afschudden en als...
 
 ### Meest gelezen
 
