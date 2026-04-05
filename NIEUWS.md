@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-04-2026 om 08:50*
+*Laatst bijgewerkt: 05-04-2026 om 09:43*
 
 ---
 
@@ -8,18 +8,17 @@
 
 ### Laatste nieuws
 
+- [Hoe politiek Den Haag 'grip op migratie' probeert te krijgen](https://nos.nl/l/2609164)
+  > "Ongeveer 900", "ongeveer 1000", "ongeveer 900". Elke maandag publiceert het ministerie van Justitie en Veiligheid een nieuwsbericht van één zin met...
+- [Brandstofreservoir en raffinaderij in Rusland geraakt bij Oekraïense aanvallen](https://nos.nl/l/2609162)
+  > In Rusland zijn een brandstofreservoir en olieraffinaderij getroffen bij Oekraïense aanvallen. De melden de regionale gouverneurs op Telegram.
+      ...
+- [Spaanse oud-stierenvechter in Málaga gedood door stier](https://nos.nl/l/2609160)
+  > In de Spaanse stad Málaga is een voormalig stierenvechter gedood door een stier. De man, de 51-jarige Ricardo Ortiz, hielp bij het uitladen van...
+- [Kameroen krijgt vicepresident, 'poging van president Biya (93) om macht te vergroten'](https://nos.nl/l/2609159)
+  > Het parlement van Kameroen heeft ingestemd met een grondwetswijziging waarmee het land weer een vicepresident krijgt. Voorstanders noemen het een...
 - [Blokkade Straat van Hormuz raakt Afrika hard, maar er zijn ook kansen](https://nos.nl/l/2609153)
   > Lange rijen bij benzinestations, stroomstoringen en een dreigend tekort aan kunstmest. Ook op het Afrikaanse continent zijn de gevolgen van de oorlog...
-- ['Samenleesbijbel' helpt bij bespreken moeilijke onderwerpen, ook tijdens Pasen](https://nos.nl/l/2609148)
-  > Het Nederlands-Vlaams Bijbelgenootschap (NBG) zet in verschillende steden een project op om de samenhang en taalvaardigheid in vooral...
-- [Woning in Heerhugowaard volledig uitgebrand, 'gelukkig niemand thuis'](https://nos.nl/l/2609146)
-  > In een woning in Heerhugowaard heeft vanochtend een grote brand gewoed. Het vrijstaande huis met een rieten dak is vrijwel volledig uitgebrand.
-     ...
-- [Wekdienst 5/4: Eerste paasboodschap Leo XIV • Feyenoord kan PSV kampioen maken](https://nos.nl/l/2609141)
-  > Goedemorgen! Vandaag is het Eerste Paasdag. Dat betekent paasmissen, paasvuren en de pauselijke zegen "urbi et orbi", maar zeker ook veel sport. 
-   ...
-- [Trump: bemanningslid Amerikaanse F-15 terecht en in veiligheid](https://nos.nl/l/2609136)
-  > Het bemanningslid van een Amerikaanse F-15 die werd neergehaald boven Iran, is terecht. President Trump meldt op Truth Social dat hij in veiligheid...
 
 ### Meest gelezen
 
@@ -29,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Onbeperkt eieren eten? Voedingscentrum adviseert niet meer dan twee tot drie per week](https://www.ad.nl/gezond/onbeperkt-eieren-eten-voedingscentrum-adviseert-niet-meer-dan-twee-tot-drie-per-week~a7ef07b0/)
-  > Ei, ei, ei, met Pasen horen ze erbij. Maar hoeveel eieren mag je eten? Zijn geverfde eieren giftig? En waarom zijn bruine eieren duurder dan witte?...
-- [Lionel Messi scoort met het hoofd eerste doelpunt van Inter Miami in gloednieuw stadion](https://www.ad.nl/voetbal/lionel-messi-scoort-met-het-hoofd-eerste-doelpunt-van-inter-miami-in-gloednieuw-stadion~a4b8dab5/)
-  > Lionel Messi heeft meteen gescoord in het gloednieuwe stadion van Inter Miami. Hij zorgde bij de openingswedstrijd in het Nu Stadium met een kopbal...
-- [Ploeggenoot van Pogacar klungelig onderuit in geneutraliseerde zone, Van der Poel kan recordhouder worden](https://www.ad.nl/wielrennen/ploeggenoot-van-pogacar-klungelig-onderuit-in-geneutraliseerde-zone-van-der-poel-kan-recordhouder-worden~a6436148/)
+- [IJsselderby in Deventer: Go Ahead ontvangt rivaal PEC](https://www.ad.nl/voetbal/ijsselderby-in-deventer-go-ahead-ontvangt-rivaal-pec~a4014833/)
+  > De IJsselderby staat weer voor de deur! Rivalen Go Ahead Eagles en PEC Zwolle staan tegenover elkaar in Deventer. Volg het hier vanaf 12.15 uur live!
+- [EU moet in gesprek met Moskou en sancties schrappen, zegt Slowaakse premier](https://www.ad.nl/buitenland/eu-moet-in-gesprek-met-moskou-en-sancties-schrappen-zegt-slowaakse-premier~adfb97be/)
+  > De EU moet de sancties tegen olie en gas uit Rusland schrappen, vindt de Slowaakse premier Robert Fico. Nu energietekorten dreigen, zou Europa juist...
+- [Bas en Gerard hebben de beste duiven van Nederland en daar betaal je flink voor: 40.000 euro voor een jong](https://www.ad.nl/binnenland/bas-en-gerard-hebben-de-beste-duiven-van-nederland-en-daar-betaal-je-flink-voor-40-000-euro-voor-een-jong~a8c548677/)
+  > Voor tienduizenden euro’s worden ze verhandeld, de duiven van Reeuwijkers Bas (49) en Gerard (79) Verkerk. En niet alleen omdat ze wedstrijd na...
+- [Vroege vlucht met twee Nederlanders, ploeggenoot van Pogacar klungelig onderuit in geneutraliseerde zone](https://www.ad.nl/wielrennen/vroege-vlucht-met-twee-nederlanders-ploeggenoot-van-pogacar-klungelig-onderuit-in-geneutraliseerde-zone~a6436148/)
   > Het tweede wielermonument van het jaar wordt vandaag verreden: de Ronde van Vlaanderen. Mathieu van der Poel gaat voor zijn vierde overwinning in...
-- [Emma Wortelboer: ‘Dat Spuiten en slikken-meisje zit nog steeds in mij, honderd procent’](https://www.ad.nl/show/emma-wortelboer-dat-spuiten-en-slikken-meisje-zit-nog-steeds-in-mij-honderd-procent~af2788e2/)
-  > Voordat de bezuinigingshamer ook Wortelboer en Van Rossem sloopt, mogen Emma en Maarten nog één seizoen met elkaar op pad om hun generatiekloof op de...
-- ['We wisten niet wie ze was': dochter (19) Angelina Jolie moest gewoon auditie doen, nu straalt ze in eerste clip](https://www.ad.nl/show/we-wisten-niet-wie-ze-was-dochter-19-angelina-jolie-moest-gewoon-auditie-doen-nu-straalt-ze-in-eerste-clip~a4ccc03ae/)
-  > Shiloh Jolie, de 19-jarige dochter van Angelina Jolie en Brad Pitt, heeft haar debuut gemaakt als danseres in een videoclip. Ze duikt op in een...
+- [Bliksemvertrek bij AZ, droomdebuut bij Jong Oranje, de bizarre week van Ayoub Oufkir: ‘Shirt van Oranje geeft boost’](https://www.ad.nl/voetbal/bliksemvertrek-bij-az-droomdebuut-bij-jong-oranje-de-bizarre-week-van-ayoub-oufkir-shirt-van-oranje-geeft-boost~acadc7a3/)
+  > Het telefoontje kwam uit het niets: Ayoub Oufkir moest direct naar Noorwegen voor Jong Oranje. Zijn weekendje Parijs viel in het water, maar spijt...
 
 ### Meest gelezen
 
