@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-04-2026 om 09:13*
+*Laatst bijgewerkt: 06-04-2026 om 11:02*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- ['Elektrisch is de enige weg', maar niet alle autofabrikanten zijn er klaar voor](https://nos.nl/l/2609296)
+  > De elektrische auto is weer in opmars. Na weken van alsmaar stijgende prijzen aan de pomp zien de garagehouders de interesse in elektrische auto's...
+- [Bende valt paasvieringen Nigeria aan, onduidelijkheid over doden en gijzelaars](https://nos.nl/l/2609295)
+  > Bij aanvallen op twee kerken in het noordwesten van Nigeria zijn doden gevallen en mogelijk mensen ontvoerd. Gewapende mannen probeerden daar op...
+- [Doden en stroomuitval in Oekraïne, Rusland beweert dat mijn is aangevallen](https://nos.nl/l/2609294)
+  > Volgens Oekraïne zijn door Russische aanvallen afgelopen nacht in de havenstad Odesa zeker drie mensen gedood, onder wie een kind. Twee gewonden zijn...
 - [Cruiseschip vastgelopen bij eiland van film Cast Away](https://nos.nl/l/2609284)
   > Een klein cruiseschip is vastgelopen op een rif bij het eiland Monuriki in Fiji. Datzelfde eiland diende als het decor van de Hollywoodklassieker...
 - [Docenten kijken na met AI: slimme tijdsbesparing of risicovol?](https://nos.nl/l/2609282)
   > Niet alleen scholieren, ook docenten op middelbare scholen gebruiken kunstmatige intelligentie (AI), bijvoorbeeld om toetsen na te kijken. Daarbij...
-- [Wekdienst 6/4: Paasvuren in noorden en oosten van het land • Finales Euro Hockey League](https://nos.nl/l/2609275)
-  > Goedemorgen! Vandaag worden net als gisteren in verschillende plaatsen in het land paasvuren ontstoken. En in Den Bosch zijn de finales van de Euro...
-- [Pot voor arbeidsongeschikten vol, toch blijft politiek premie verhogen: 'Spookbelasting'](https://nos.nl/l/2609273)
-  > Werkgevers en werknemers zijn niet blij dat het kabinet de arbeidsongeschiktheidspremie gebruikt om gaten op de begroting te dichten. In het...
-- [Grote sponsoren Londens festival weg om optreden Kanye West](https://nos.nl/l/2609268)
-  > Twee grote sponsoren van een driedaags festival in Londen hebben zich teruggetrokken vanwege een gepland optreden van de Amerikaanse rapper Kanye...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Savannah Guthrie keert na verdwijning moeder vandaag terug op de buis: ‘Diepe teleurstelling in God’](https://www.ad.nl/buitenland/savannah-guthrie-keert-na-verdwijning-moeder-vandaag-terug-op-de-buis-diepe-teleurstelling-in-god~ad13dd39/)
-  > Savannah Guthrie keert maandag terug als presentatrice van het NBC-programma Today. Voor het eerst sinds de verdwijning van haar moeder gaat ze dan...
-- [Tragedie met Jerdy Schouten brengt Marten de Roon terug in WK-plaatje Oranje, let maar op](https://www.ad.nl/voetbal/tragedie-met-jerdy-schouten-brengt-marten-de-roon-terug-in-wk-plaatje-oranje-let-maar-op~a6d7370c1/)
-  > Door de blessure van Jerdy Schouten komen er andere middenvelders in beeld voor de WK-selectie. Bijvoorbeeld Marten de Roon, nog altijd sterkhouder...
-- [Peter (52) woont in Denemarken, maar rijdt élke week naar Nederland om te helpen bij het paasvuur](https://www.ad.nl/binnenland/peter-52-woont-in-denemarken-maar-rijdt-elke-week-naar-nederland-om-te-helpen-bij-het-paasvuur~a717c407/)
-  > Elke vrijdag Denemarken uit, elk weekend takkenbundels stapelen, en elke zondagavond weer op huus an. Peter Waalderbos (52) rijdt wekelijks 900...
-- [Conor McGregor maakt na vijf jaar verrassende comeback in boksring en een kaartje kost maar 10 euro](https://www.ad.nl/vechtsport/conor-mcgregor-maakt-na-vijf-jaar-verrassende-comeback-in-boksring-en-een-kaartje-kost-maar-10-euro~aa216550/)
-  > Conor McGregor is teruggekeerd in de boksring. Na een pauze van vijf jaar maakte de Ier afgelopen weekend zijn comeback. Hij deed dat in een lokale...
-- [Twee groepen Nederlanders op de vuist in Oostenrijkse après-ski: drie van hen gewond](https://www.ad.nl/buitenland/twee-groepen-nederlanders-op-de-vuist-in-oostenrijkse-apres-ski-drie-van-hen-gewond~a037d6ee/)
-  > Een ruzie tussen twee groepen met Nederlanders op wintersport is flink geëscaleerd. In een après-skibar in het Oostenrijkse Gerlos gingen acht mensen...
+- [Buurt is illegale raves in loods spuugzat: ‘Feestgangers poepten in douches van camping’](https://www.ad.nl/goeree-overflakkee/buurt-is-illegale-raves-in-loods-spuugzat-feestgangers-poepten-in-douches-van-camping~a3e0bec5/)
+  > Feestgangers die de hele nacht dansten op dreunende techno in een leegstaande loods op Goeree-Overflakkee beukten voor de zoveelste keer omwonenden...
+- [Halle Bailey als alleenstaande moeder dankbaar voor de vrouwen in haar leven: ‘Gezamenlijke inspanning’](https://www.ad.nl/show/halle-bailey-als-alleenstaande-moeder-dankbaar-voor-de-vrouwen-in-haar-leven-gezamenlijke-inspanning~abc5385d/)
+  > Actrice Halle Bailey voelt zich als alleenstaande moeder dankbaar voor alle hulp die ze krijgt van haar vriendenkring en zus Chloe. Dat vertelt de...
+- [De tweekamerwoning van Milan (68) is volledig Japans ingericht: ‘De deur liet ik voor 1100 euro maken in Japan’](https://www.ad.nl/wonen/de-tweekamerwoning-van-milan-68-is-volledig-japans-ingericht-de-deur-liet-ik-voor-1100-euro-maken-in-japan~af429cc2/)
+  > Milan van Tuin (68) woont op 50 vierkante meter in de Rivierenbuurt in Amsterdam. Hij heeft zijn tweekamerwoning geheel in Japanse stijl ingericht,...
+- [Nog vier Nederlanders in German Darts Grand Prix, Nederlands onderonsje in achtste finales](https://www.ad.nl/darts/nog-vier-nederlanders-in-german-darts-grand-prix-nederlands-onderonsje-in-achtste-finales~a9b9b625/)
+  > Nog vier Nederlanders zijn in de race voor winst van de German Darts Grand Prix. Wat kunnen Danny Noppert, Dirk van Duijvenbode, Kevin Doets en Niels...
+- [RKC en Helmond Sport scoren fraai, vol KKD-programma op Tweede Paasdag](https://www.ad.nl/voetbal/rkc-en-helmond-sport-scoren-fraai-vol-kkd-programma-op-tweede-paasdag~adeab1ae/)
+  > Tien wedstrijden in de Keuken Kampioen Divisie op Tweede Paasdag! Om 12.15 uur trappen Helmond Sport en RKC af. Volg vandaag alle tussenstanden in...
 
 ### Meest gelezen
 
@@ -46,16 +46,15 @@
 
 ### Laatste nieuws
 
+- [Na publieke campagnes voor en tegen is nu de Tweede Kamer aan zet over steun aan Tata Steel](https://fd.nl/politiek/1592066/na-publieke-campagnes-voor-en-tegen-is-nu-de-tweede-kamer-aan-zet-over-steun-aan-tata-steel)
+  > De laatste maanden leek iedereen een mening te hebben over het miljardenkostende vergroeningsplan van Tata Steel. Deze week wordt duidelijk of de...
+- [Trump dreigt met aanvallen op Iraanse infrastructuur](https://fd.nl/financiele-markten/1592243/trump-dreigt-met-aanvallen-op-iraanse-infrastructuur)
 - [De verkiezingen van de waarheid](https://fd.nl/politiek/1591730/de-verkiezingen-van-de-waarheid)
   > De Paaseditie van de Europa-nieuwsbrief van het FD gaat over de stembusgang in Hongarije, en de gevolgen voor de EU. En verder: meerdere lidstaten...
 - [Wie iets maakt, die bestaat](https://fd.nl/samenleving/1592028/wie-iets-maakt-die-bestaat)
   > Frida Boeke volgt op haar telefoon kunst en cultuur uit het Midden-Oosten en ziet hierin kleine tekenen van hoop en veerkracht.
 - [Onwetendheid is geen teken van zwakheid maar een deugd voor leiders van vandaag](https://fd.nl/opinie/1592013/onwetendheid-als-deugd-voor-leiders-van-vandaag)
   > Sommige leiders laten zich graag omringen door een team van jaknikkers. Ze weten het immers heus zelf beter – zij zijn toch de baas? Dat blijkt...
-- [Italiaans onderzoek naar Sephora en Benefit om filmpjes ‘skinfluencer’ op TikTok](https://fd.nl/bedrijfsleven/1592114/italiaans-onderzoek-naar-sephora-en-benefit-om-filmpjes-skinfluencer-op-tiktok)
-  > TikTok staat vol met filmpjes van jonge influencers die huidproducten promoten bij kinderen. Voor de Italiaanse mededingingsautoriteit AGCM is de...
-- [Japanse beurs verder omhoog](https://fd.nl/financiele-markten/1592130/japanse-beurs-verder-omhoog)
-  > Beleggers in Azië klampten zich vast aan berichten dat de Verenigde Staten en Iran over een staakt-het-vuren praten.
 
 ### Meest gelezen
 
