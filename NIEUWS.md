@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-04-2026 om 14:53*
+*Laatst bijgewerkt: 06-04-2026 om 15:53*
 
 ---
 
@@ -29,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Gecanceld na Hitler-verheerlijking, nu scoort Kanye West toch weer: 33 miljoen dollar voor twee shows](https://www.ad.nl/show/gecanceld-na-hitler-verheerlijking-nu-scoort-kanye-west-toch-weer-33-miljoen-dollar-voor-twee-shows~af057861/)
-  > De geldkraan staat weer wijd open voor Ye, de nieuwe artiestennaam van Kanye West. Vier jaar geleden leek het einde verhaal voor de rapper, die met...
-- [FC Den Bosch wint in Almere, Cambuur speelt thuis tegen FC Dordrecht](https://www.ad.nl/voetbal/fc-den-bosch-wint-in-almere-cambuur-speelt-thuis-tegen-fc-dordrecht~adeab1ae/)
+- [Cambuur kan titelfeestje ADO nog even uitstellen, Vitesse op voorsprong](https://www.ad.nl/voetbal/cambuur-kan-titelfeestje-ado-nog-even-uitstellen-vitesse-op-voorsprong~adeab1ae/)
   > Tien wedstrijden in de Keuken Kampioen Divisie op Tweede Paasdag! De eerste wedstrijden zijn al gespeeld, om 16.45 uur zijn zeven duels begonnen. De...
-- [Deelnemer paaseierspeurtocht vindt wapen in Utrechts Wilhelminapark](https://www.ad.nl/utrecht/deelnemer-paaseierspeurtocht-vindt-wapen-in-utrechts-wilhelminapark~a66897c2/)
-  > „Ineens hoorden we een doffe knal.” Een zoektocht naar paaseieren in het Utrechtse Wilhelminapark leverde maandagochtend een merkwaardige bijvangst...
-- [Dit kan je honderden euro’s schelen in box 3: zo werkt de keuze tussen werkelijk en fictief rendement](https://www.ad.nl/geld/dit-kan-je-honderden-euros-schelen-in-box-3-zo-werkt-de-keuze-tussen-werkelijk-en-fictief-rendement~a54cb7d0/)
-  > De aangifte vermogensbelasting in box 3 roept vragen op; mensen kunnen kiezen tussen werkelijk of fictief rendement. Soms kan het voordeliger zijn om...
-- [Primeur voor Doets na heerlijke clash met Van Duijvenbode, ook Zonneveld door na thriller](https://www.ad.nl/darts/primeur-voor-doets-na-heerlijke-clash-met-van-duijvenbode-ook-zonneveld-door-na-thriller~a9b9b625/)
-  > Nog vier Nederlanders zijn in de race voor winst van de German Darts Grand Prix. Wat kunnen Danny Noppert, Dirk van Duijvenbode, Kevin Doets en Niels...
+- [Toptalent Paul Seixas (19) verpulvert concurrentie in openingstijdrit Ronde van Baskenland](https://www.ad.nl/wielrennen/toptalent-paul-seixas-19-verpulvert-concurrentie-in-openingstijdrit-ronde-van-baskenland~a99928a3/)
+  > Paul Seixas heeft met overmacht de openingstijdrit in de Ronde van het Baskenland gewonnen. De 19-jarige Fransman pakte een voorsprong van ongeveer...
+- [Van Mieghem zet ADO Den Haag met goal op kampioenskoers, koploper wel afhankelijk van Cambuur](https://www.ad.nl/voetbal/van-mieghem-zet-ado-den-haag-met-goal-op-kampioenskoers-koploper-wel-afhankelijk-van-cambuur~a9ab7942/)
+  > ADO Den Haag kan vandaag kampioen worden. Zelf is het goed op weg met een voorsprong tegen FC Eindhoven bij rust: 1-0. Maar de koploper van de Keuken...
+- [Paasdrukte bij de Mall ondanks zonnige weer: ‘Het is naar de schoonouders toe, de Ikea of dit’](https://www.ad.nl/leidschendam-voorburg/paasdrukte-bij-de-mall-ondanks-zonnige-weer-het-is-naar-de-schoonouders-toe-de-ikea-of-dit~abe7af6b/)
+  > Wat te doen met je vrije tweede paasdag? Winkelen natuurlijk, zeggen bezoekers van de Mall. Het superpopulaire overdekte winkelcentrum trekt in de...
+- [Brad Pitt duikt op in restaurant van Julia: ‘Hij nam de restjes van de pizza mee in een doos’](https://www.ad.nl/show/brad-pitt-duikt-op-in-restaurant-van-julia-hij-nam-de-restjes-van-de-pizza-mee-in-een-doos~a3c73145/)
+  > Brad Pitt heeft het afgelopen weekend genoten van een glutenvrije pizza en een Belgisch biertje in een pizzeria in Brussel. Dat vertelde...
 
 ### Meest gelezen
 
@@ -48,16 +48,16 @@
 
 ### Laatste nieuws
 
+- [Banken twijfelen over rentestappen Fed](https://fd.nl/financiele-markten/1592137/banken-twijfelen-over-rentestappen-fed)
+  > Wells Fargo gelooft niet meer in renteverlagingen: Citigroup houdt hoop op tweede helft 2026.
+- [Voorstellen door de Eerste Kamer krijgen wordt een hele klus voor premier Jetten](https://fd.nl/politiek/1592115/voorstellen-door-de-eerste-kamer-krijgen-wordt-een-hele-klus-voor-premier-jetten)
+  > Jetten debatteert dinsdag voor het eerst als premier met de senaat. Zijn coalitie heeft daar nog geen derde van de zetels en de oppositie zit niet te...
 - [Bankier Jamie Dimon waarschuwt voor te riskante bankleningen](https://fd.nl/financiele-markten/1592136/bankier-jamie-dimon-waarschuwt-voor-te-riskante-bankleningen)
   > Langdurige afwezigheid van kredietcrisis zorgt voor ‘vals gevoel van veiligheid’.
 - [Nieuwe Europese bedrijfsvorm oogst naast applaus ook kritiek](https://fd.nl/politiek/1592031/nieuwe-europese-bedrijfsvorm-oogst-naast-applaus-ook-kritiek)
   > Vakbonden en notarissen oordelen vernietigend over een Brussels voorstel voor een ‘EU Inc’, een rechtsvorm die grensoverschrijdend zakendoen moet...
 - [Meer schepen passeren Straat van Hormuz](https://fd.nl/economie/1592133/meer-schepen-passeren-straat-van-hormuz)
   > Iran gebruikt de belangrijke waterweg voor olietankers om vrienden te maken.
-- [Kalme opening Wall Street](https://fd.nl/financiele-markten/1592134/kalme-opening-wall-street)
-  > Beleggers zijn op tweede paasdag met weinig kooplust aan de Amerikaanse beurshandel begonnen.
-- [Beursgang Madison Air opsteker voor beurs](https://fd.nl/financiele-markten/1592245/beursgang-madison-air-opsteker-voor-beurs)
-  > Industrieel bedrijf denkt $2,2 mrd op te halen, recordbedrag sinds 1999.
 
 ### Meest gelezen
 
