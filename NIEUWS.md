@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-04-2026 om 17:52*
+*Laatst bijgewerkt: 06-04-2026 om 19:08*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Van Roosmalen en Groenteman in gesprek met Talpa over programma bij Net 5](https://www.ad.nl/show/van-roosmalen-en-groenteman-in-gesprek-met-talpa-over-programma-bij-net-5~a519917e/)
-  > Marcel van Roosmalen en Gijs Groenteman zijn in gesprek met Talpa over een eventueel programma bij Net 5. Zoals bekend is hun BNNVara-programma Van...
-- [Amerika’s devote vicepresident JD Vance vergist zich in kerk](https://www.ad.nl/buitenland/amerikas-devote-vicepresident-jd-vance-vergist-zich-in-kerk~a315f8c8/)
-  > De Amerikaanse vicepresident JD Vance heeft een boek geschreven over zijn bekering tot het katholicisme. Op de cover zette hij een kerk. Alleen: het...
-- [Rechter Boekarest schrapt alle beperkende maatregelen tegen Andrew Tate](https://www.ad.nl/buitenland/rechter-boekarest-schrapt-alle-beperkende-maatregelen-tegen-andrew-tate~ad087432/)
-  > Een rechtbank in Boekarest heeft alle beperkende maatregelen tegen de Amerikaans-Britse verdachten Andrew Tate en zijn broer Tristan geschrapt. Naar...
-- [Duitsers willen btw op melk en brood naar 0 procent: ‘Snel actie nodig vanwege stijgende prijzen’](https://www.ad.nl/economie/duitsers-willen-btw-op-melk-en-brood-naar-0-procent-snel-actie-nodig-vanwege-stijgende-prijzen~a8831ea7/)
-  > De Duitse politiek overweegt de btw op voedsel, zoals brood, melk, vlees, vis en groente en fruit, volledig te schrappen. Dat moet vooral minder...
-- [De morfine-injectie is voor meneer Schulten het begin van het einde: eindelijk kan hij praten over de dood](https://www.ad.nl/gezond/de-morfine-injectie-is-voor-meneer-schulten-het-begin-van-het-einde-eindelijk-kan-hij-praten-over-de-dood~a4dcc883/)
-  > Het einde nadert voor meneer Schulten. Maar praten over de dood is lastig, hij wil zijn dochter niet belasten. Na een paaseitje en een morfineshot...
+- [71 jaar lang blijft een verdrietig geheim verborgen op de zeebodem, dan gaan Cees en Gert zoeken](https://www.ad.nl/binnenland/71-jaar-lang-blijft-een-verdrietig-geheim-verborgen-op-de-zeebodem-dan-gaan-cees-en-gert-zoeken~a464b383/)
+  > Vijf vissermannen uit Urk verdwijnen in een storm. Tientallen jaren lang zitten de families in onzekerheid. Komen ze nog thuis? Dan gaat een team...
+- [Historisch record: nooit eerder waren astronauten zo ver verwijderd van aarde](https://www.ad.nl/buitenland/historisch-record-nooit-eerder-waren-astronauten-zo-ver-verwijderd-van-aarde~aa9301ab/)
+  > De vier astronauten van de Artemis II-missie hebben maandagavond tijdens hun ‘flyby’ langs de maan het record verbroken van de grootste afstand die...
+- [Memphis Depay ‘nog niet klaar’ bij Oranje: ‘De statistieken liegen niet, ik zie alleen positieve dingen’](https://www.ad.nl/wk-voetbal/memphis-depay-nog-niet-klaar-bij-oranje-de-statistieken-liegen-niet-ik-zie-alleen-positieve-dingen~a19b5398/)
+  > Memphis Depay, topscorer aller tijden van Oranje, heeft bij Ziggo Sport een uitgebreid interview gegeven. Daarin praat de 32-jarige spits over zijn...
+- [Tweeling Quinn en Aaron knallen door met 30 miljoen views: ‘Maar onze eigen generatie vindt ons niet cool’](https://www.ad.nl/binnenland/tweeling-quinn-en-aaron-knallen-door-met-30-miljoen-views-maar-onze-eigen-generatie-vindt-ons-niet-cool~a298dac0/)
+  > Wat begon met simpele TikTok-video’s vanuit hun huis in Dordrecht, is in zes jaar uitgegroeid tot een compleet mediaproject. De tweeling Quinn en...
+- [Als Bart van Rooij scoort in de Johan Cruijff Arena, gaan zijn gedachten naar huis: ‘Deze goal is voor mijn vader’](https://www.ad.nl/voetbal/als-bart-van-rooij-scoort-in-de-johan-cruijff-arena-gaan-zijn-gedachten-naar-huis-deze-goal-is-voor-mijn-vader~a060c4e0/)
+  > Hij rent naar een van de camera’s langs het veld, geeft twee kushandjes, zwaait en tikt zachtjes op de lens. Zo viert Bart van Rooij zijn doelpunt...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Russisch graanschip gezonken na droneaanval](https://fd.nl/samenleving/1592140/russisch-graanschip-gezonken-na-droneaanval)
+  > Analisten waarschuwen voor mondiale voedselonzekerheid.
+- [Hoogste tijd voor opbouw nieuwe industrie](https://fd.nl/opinie/1592111/hoogste-tijd-voor-opbouw-nieuwe-industrie)
+  > Hoofdkantoor Unilever Food komt niet naar Nederland. Het is de hoogste tijd om aan de slag te gaan met het rapport-Wennink.
 - [Druk op Amerikaanse klimaatwetten](https://fd.nl/samenleving/1592138/druk-op-amerikaanse-klimaatwetten)
   > Amerikaanse politici willen klimaatwetten versoepelen om de koopkracht van consumenten te ontzien.
 - [Banken twijfelen over rentestappen Fed](https://fd.nl/financiele-markten/1592137/banken-twijfelen-over-rentestappen-fed)
   > Wells Fargo gelooft niet meer in renteverlagingen: Citigroup houdt hoop op tweede helft 2026.
 - [Voorstellen door de Eerste Kamer krijgen wordt een hele klus voor premier Jetten](https://fd.nl/politiek/1592115/voorstellen-door-de-eerste-kamer-krijgen-wordt-een-hele-klus-voor-premier-jetten)
   > Jetten debatteert dinsdag voor het eerst als premier met de senaat. Zijn coalitie heeft daar nog geen derde van de zetels en de oppositie zit niet te...
-- [Bankier Jamie Dimon waarschuwt voor te riskante leningen](https://fd.nl/financiele-markten/1592136/bankier-jamie-dimon-waarschuwt-voor-te-riskante-bankleningen)
-  > Langdurige afwezigheid van kredietcrisis zorgt voor ‘vals gevoel van veiligheid’.
-- [Nieuwe Europese bedrijfsvorm oogst naast applaus ook kritiek](https://fd.nl/politiek/1592031/nieuwe-europese-bedrijfsvorm-oogst-naast-applaus-ook-kritiek)
-  > Vakbonden en notarissen oordelen vernietigend over een Brussels voorstel voor een ‘EU Inc’, een rechtsvorm die grensoverschrijdend zakendoen moet...
 
 ### Meest gelezen
 
