@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-04-2026 om 22:41*
+*Laatst bijgewerkt: 06-04-2026 om 23:40*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Artemis II bereikt achterkant maan en vestigt afstandsrecord](https://nos.nl/l/2609348)
+  > De astronauten van de Artemis II hebben hun belangrijkste opdracht volbracht. Vannacht vlogen ze langs de achterkant van de maan. Daarbij zweefden ze...
 - [Bangladesh start noodvaccinatiecampagne na grote uitbraak mazelen](https://nos.nl/l/2609340)
   > De regering van Bangladesh begint samen met de Wereldgezondheidsorganisatie (WHO) en Unicef een noodvaccinatiecampagne tegen mazelen en rodehond...
 - [Estland wil ‘AI-sprong’ maken op scholen met speciale versie ChatGPT](https://nos.nl/l/2609339)
@@ -17,8 +19,6 @@
 - [Tweede paasdag: drukbezochte bloemenvelden, een dichte IKEA en een gaspistool](https://nos.nl/l/2609333)
   > In lenteachtige temperaturen en met volop zon is in het hele land tweede paasdag gevierd. Vanwege het mooie weer trokken veel mensen eropuit.
        ...
-- [Utrechter vindt gaspistool bij het paaseieren zoeken](https://nos.nl/l/2609317)
-  > Bij het zoeken van paaseieren in een park in Utrecht heeft een volwassen deelnemer vanochtend een wapen gevonden en afgeschoten. De gealarmeerde...
 
 ### Meest gelezen
 
@@ -28,6 +28,8 @@
 
 ### Laatste nieuws
 
+- [Voetbalpodcast | ‘Arne Slot moet iets forceren om te voorkomen dat het seizoen van Liverpool doodbloedt’](https://www.ad.nl/voetbal/voetbalpodcast-arne-slot-moet-iets-forceren-om-te-voorkomen-dat-het-seizoen-van-liverpool-doodbloedt~ac8603a9/)
+  > De positie van trainer Arne Slot bij Liverpool is al maanden onderwerp van gesprek. Ondanks een landstitel in zijn eerste seizoen bij de club is hij...
 - [Noodvaccinatiecampagne gestart in Bangladesh wegens grote mazelenuitbraak](https://www.ad.nl/buitenland/noodvaccinatiecampagne-gestart-in-bangladesh-wegens-grote-mazelenuitbraak~a03ba799/)
   > In Bangladesh is zondag een noodvaccinatiecampagne gestart om meer dan een miljoen kinderen zo snel mogelijk in te enten tegen mazelen. In het land...
 - [Energiebedrijf ONE-Dyas schaalt gaswinning uit veld in Noordzee op met tweede productieput](https://www.ad.nl/economie/energiebedrijf-one-dyas-schaalt-gaswinning-uit-veld-in-noordzee-op-met-tweede-productieput~a8a4078e/)
@@ -36,8 +38,6 @@
   > Danny Noppert heeft voor de vierde keer in zijn carrière een finale van een Euro Tour-toernooi verloren. In de German Darts Grand Prix in München was...
 - [Diemers niet blij met aanbieding van Cambuur, td Napoli waarschuwt Lukaku](https://www.ad.nl/voetbal/diemers-niet-blij-met-aanbieding-van-cambuur-td-napoli-waarschuwt-lukaku~a35ea681/)
   > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
-- [Rusland: Oekraïne heeft aanvallen op olietoevoer uitgevoerd, ex-gouverneur Koersk krijgt 14 jaar strafkamp](https://www.ad.nl/buitenland/rusland-oekraine-heeft-aanvallen-op-olietoevoer-uitgevoerd-ex-gouverneur-koersk-krijgt-14-jaar-strafkamp~adfb97be/)
-  > Oekraïense drones hebben maandag een terminal van het Caspian Pipeline Consortium (CPC) in het zuiden van Rusland aangevallen, meldt het Russische...
 
 ### Meest gelezen
 
