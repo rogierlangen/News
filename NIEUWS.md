@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-04-2026 om 15:53*
+*Laatst bijgewerkt: 06-04-2026 om 16:55*
 
 ---
 
@@ -8,6 +8,9 @@
 
 ### Laatste nieuws
 
+- [Tweede paasdag: drukbezochte bloemenvelden, een dichte IKEA en een gaspistool](https://nos.nl/l/2609333)
+  > In lenteachtige temperaturen en met volop zon is in het hele land tweede paasdag gevierd. Vanwege het mooie weer trokken veel mensen eropuit.
+       ...
 - [Utrechter vindt gaspistool bij het paaseieren zoeken](https://nos.nl/l/2609317)
   > Bij het zoeken van paaseieren in een park in Utrecht heeft een volwassen deelnemer vanochtend een wapen gevonden en afgeschoten. De gealarmeerde...
 - [Ikea Duiven dicht op een van de drukste dagen van het jaar](https://nos.nl/l/2609309)
@@ -18,8 +21,6 @@
 - [Twee doden door lawine in Noorwegen](https://nos.nl/l/2609305)
   > In het zuiden van Noorwegen zijn vanochtend twee mensen omgekomen in een lawine. Twee anderen raakten gewond, meldt de Noorse omroep NRK.
         Het...
-- [Wat het zien van de mysterieuze achterkant van de maan ons moet leren](https://nos.nl/l/2609304)
-  > Na een reis van vier dagen vliegen de astronauten van Artemis II vanavond langs de achterkant van de maan. Daarbij vestigen ze ook een record: nog...
 
 ### Meest gelezen
 
@@ -29,16 +30,16 @@
 
 ### Laatste nieuws
 
-- [Cambuur kan titelfeestje ADO nog even uitstellen, Vitesse op voorsprong](https://www.ad.nl/voetbal/cambuur-kan-titelfeestje-ado-nog-even-uitstellen-vitesse-op-voorsprong~adeab1ae/)
-  > Tien wedstrijden in de Keuken Kampioen Divisie op Tweede Paasdag! De eerste wedstrijden zijn al gespeeld, om 16.45 uur zijn zeven duels begonnen. De...
-- [Toptalent Paul Seixas (19) verpulvert concurrentie in openingstijdrit Ronde van Baskenland](https://www.ad.nl/wielrennen/toptalent-paul-seixas-19-verpulvert-concurrentie-in-openingstijdrit-ronde-van-baskenland~a99928a3/)
-  > Paul Seixas heeft met overmacht de openingstijdrit in de Ronde van het Baskenland gewonnen. De 19-jarige Fransman pakte een voorsprong van ongeveer...
-- [Van Mieghem zet ADO Den Haag met goal op kampioenskoers, koploper wel afhankelijk van Cambuur](https://www.ad.nl/voetbal/van-mieghem-zet-ado-den-haag-met-goal-op-kampioenskoers-koploper-wel-afhankelijk-van-cambuur~a9ab7942/)
-  > ADO Den Haag kan vandaag kampioen worden. Zelf is het goed op weg met een voorsprong tegen FC Eindhoven bij rust: 1-0. Maar de koploper van de Keuken...
-- [Paasdrukte bij de Mall ondanks zonnige weer: ‘Het is naar de schoonouders toe, de Ikea of dit’](https://www.ad.nl/leidschendam-voorburg/paasdrukte-bij-de-mall-ondanks-zonnige-weer-het-is-naar-de-schoonouders-toe-de-ikea-of-dit~abe7af6b/)
-  > Wat te doen met je vrije tweede paasdag? Winkelen natuurlijk, zeggen bezoekers van de Mall. Het superpopulaire overdekte winkelcentrum trekt in de...
-- [Brad Pitt duikt op in restaurant van Julia: ‘Hij nam de restjes van de pizza mee in een doos’](https://www.ad.nl/show/brad-pitt-duikt-op-in-restaurant-van-julia-hij-nam-de-restjes-van-de-pizza-mee-in-een-doos~a3c73145/)
-  > Brad Pitt heeft het afgelopen weekend genoten van een glutenvrije pizza en een Belgisch biertje in een pizzeria in Brussel. Dat vertelde...
+- [Netflix heeft prijzen onterecht verhoogd, oordeelt Italiaanse rechter: klanten krijgen geld terug](https://www.ad.nl/show/netflix-heeft-prijzen-onterecht-verhoogd-oordeelt-italiaanse-rechter-klanten-krijgen-geld-terug~a62a08ca/)
+  > De Italiaanse rechter heeft prijsverhogingen van Netflix-abonnementen in dat land onrechtmatig verklaard. De streamingdienst moet klanten...
+- [Cambuur speelt gelijk tegen FC Dordrecht, Vitesse doet goede zaken in strijd om vierde periodetitel](https://www.ad.nl/voetbal/cambuur-speelt-gelijk-tegen-fc-dordrecht-vitesse-doet-goede-zaken-in-strijd-om-vierde-periodetitel~adeab1ae/)
+  > SC Cambuur heeft het kampioensfeest van ADO Den Haag nog even kunnen uitstelen. De ploeg van Henk de Jong speelde op Tweede Paasdag met 1-1 gelijk...
+- [ADO Den Haag simpel voorbij FC Eindhoven, Cambuur stelt titelfeest uit](https://www.ad.nl/voetbal/ado-den-haag-simpel-voorbij-fc-eindhoven-cambuur-stelt-titelfeest-uit~a9ab7942/)
+  > Nog geen titel voor ADO Den Haag. De koploper van de Keuken Kampioen Divisie won zelf met 4-0 van FC Eindhoven, maar was afhankelijk van Cambuur. De...
+- [Deze politicoloog verklaart de opkomst van radicaal-rechts: ‘Mijn vader was geen racist’](https://www.ad.nl/politiek/deze-politicoloog-verklaart-de-opkomst-van-radicaal-rechts-mijn-vader-was-geen-racist~ae7acc26/)
+  > Is haar vader een racist? Nee, dat niet. Maar waarom stemde hij steeds op de PVV? Politicoloog Catherine de Vries dook in haar familieverleden. En...
+- [Presentatoren Kiki Bosman en Tim Senders verwachten samen een kind](https://www.ad.nl/show/presentatoren-kiki-bosman-en-tim-senders-verwachten-samen-een-kind~ae67b3f2/)
+  > Zapp-presentator Tim Senders en WNL-presentatrice Kiki Bosman verwachten samen een kind. Dat maakte het stel in een video op Instagram bekend, waarin...
 
 ### Meest gelezen
 
@@ -48,16 +49,16 @@
 
 ### Laatste nieuws
 
+- [Druk op Amerikaanse klimaatwetten](https://fd.nl/samenleving/1592138/druk-op-amerikaanse-klimaatwetten)
+  > Amerikaanse politici willen klimaatwetten versoepelen om de koopkracht van consumenten te ontzien.
 - [Banken twijfelen over rentestappen Fed](https://fd.nl/financiele-markten/1592137/banken-twijfelen-over-rentestappen-fed)
   > Wells Fargo gelooft niet meer in renteverlagingen: Citigroup houdt hoop op tweede helft 2026.
 - [Voorstellen door de Eerste Kamer krijgen wordt een hele klus voor premier Jetten](https://fd.nl/politiek/1592115/voorstellen-door-de-eerste-kamer-krijgen-wordt-een-hele-klus-voor-premier-jetten)
   > Jetten debatteert dinsdag voor het eerst als premier met de senaat. Zijn coalitie heeft daar nog geen derde van de zetels en de oppositie zit niet te...
-- [Bankier Jamie Dimon waarschuwt voor te riskante bankleningen](https://fd.nl/financiele-markten/1592136/bankier-jamie-dimon-waarschuwt-voor-te-riskante-bankleningen)
+- [Bankier Jamie Dimon waarschuwt voor te riskante leningen](https://fd.nl/financiele-markten/1592136/bankier-jamie-dimon-waarschuwt-voor-te-riskante-bankleningen)
   > Langdurige afwezigheid van kredietcrisis zorgt voor ‘vals gevoel van veiligheid’.
 - [Nieuwe Europese bedrijfsvorm oogst naast applaus ook kritiek](https://fd.nl/politiek/1592031/nieuwe-europese-bedrijfsvorm-oogst-naast-applaus-ook-kritiek)
   > Vakbonden en notarissen oordelen vernietigend over een Brussels voorstel voor een ‘EU Inc’, een rechtsvorm die grensoverschrijdend zakendoen moet...
-- [Meer schepen passeren Straat van Hormuz](https://fd.nl/economie/1592133/meer-schepen-passeren-straat-van-hormuz)
-  > Iran gebruikt de belangrijke waterweg voor olietankers om vrienden te maken.
 
 ### Meest gelezen
 
