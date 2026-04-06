@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-04-2026 om 16:55*
+*Laatst bijgewerkt: 06-04-2026 om 17:52*
 
 ---
 
@@ -8,19 +8,17 @@
 
 ### Laatste nieuws
 
+- [Bangladesh start noodvaccinatiecampagne na grote uitbraak mazelen](https://nos.nl/l/2609340)
+  > De regering van Bangladesh begint samen met de Wereldgezondheidsorganisatie (WHO) en Unicef een noodvaccinatiecampagne tegen mazelen en rodehond...
+- [Estland wil ‘AI-sprong’ maken op scholen met speciale versie ChatGPT](https://nos.nl/l/2609339)
+  > Samenwerken met de nieuwe hulpdocent is duidelijk even wennen voor de scholieren van het Mustamäe-gymnasium in Tallinn. "Hij stelt zoveel vragen!",...
+- [Leider Taiwanese oppositiepartij voor het eerst in tien jaar naar China](https://nos.nl/l/2609336)
+  > De leider van de Taiwanese oppositiepartij Kuomintang (KMT) brengt deze week een bezoek aan China voor een ontmoeting met de top van de...
 - [Tweede paasdag: drukbezochte bloemenvelden, een dichte IKEA en een gaspistool](https://nos.nl/l/2609333)
   > In lenteachtige temperaturen en met volop zon is in het hele land tweede paasdag gevierd. Vanwege het mooie weer trokken veel mensen eropuit.
        ...
 - [Utrechter vindt gaspistool bij het paaseieren zoeken](https://nos.nl/l/2609317)
   > Bij het zoeken van paaseieren in een park in Utrecht heeft een volwassen deelnemer vanochtend een wapen gevonden en afgeschoten. De gealarmeerde...
-- [Ikea Duiven dicht op een van de drukste dagen van het jaar](https://nos.nl/l/2609309)
-  > De Ikea langs de snelweg A12 in Duiven is de hele dag dicht, Voor de deur staat een bord dat er een pinstoring is, op de website spreekt Ikea over...
-- [Vlissingen probeert overlast meeuwen te voorkomen door voerverbod](https://nos.nl/l/2609306)
-  > Om overlast door meeuwen te voorkomen voert Vlissingen een voerverbod in. Dat geldt voor zowel de boulevard als de binnenstad.
-        Het ziet er...
-- [Twee doden door lawine in Noorwegen](https://nos.nl/l/2609305)
-  > In het zuiden van Noorwegen zijn vanochtend twee mensen omgekomen in een lawine. Twee anderen raakten gewond, meldt de Noorse omroep NRK.
-        Het...
 
 ### Meest gelezen
 
@@ -30,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Netflix heeft prijzen onterecht verhoogd, oordeelt Italiaanse rechter: klanten krijgen geld terug](https://www.ad.nl/show/netflix-heeft-prijzen-onterecht-verhoogd-oordeelt-italiaanse-rechter-klanten-krijgen-geld-terug~a62a08ca/)
-  > De Italiaanse rechter heeft prijsverhogingen van Netflix-abonnementen in dat land onrechtmatig verklaard. De streamingdienst moet klanten...
-- [Cambuur speelt gelijk tegen FC Dordrecht, Vitesse doet goede zaken in strijd om vierde periodetitel](https://www.ad.nl/voetbal/cambuur-speelt-gelijk-tegen-fc-dordrecht-vitesse-doet-goede-zaken-in-strijd-om-vierde-periodetitel~adeab1ae/)
-  > SC Cambuur heeft het kampioensfeest van ADO Den Haag nog even kunnen uitstelen. De ploeg van Henk de Jong speelde op Tweede Paasdag met 1-1 gelijk...
-- [ADO Den Haag simpel voorbij FC Eindhoven, Cambuur stelt titelfeest uit](https://www.ad.nl/voetbal/ado-den-haag-simpel-voorbij-fc-eindhoven-cambuur-stelt-titelfeest-uit~a9ab7942/)
-  > Nog geen titel voor ADO Den Haag. De koploper van de Keuken Kampioen Divisie won zelf met 4-0 van FC Eindhoven, maar was afhankelijk van Cambuur. De...
-- [Deze politicoloog verklaart de opkomst van radicaal-rechts: ‘Mijn vader was geen racist’](https://www.ad.nl/politiek/deze-politicoloog-verklaart-de-opkomst-van-radicaal-rechts-mijn-vader-was-geen-racist~ae7acc26/)
-  > Is haar vader een racist? Nee, dat niet. Maar waarom stemde hij steeds op de PVV? Politicoloog Catherine de Vries dook in haar familieverleden. En...
-- [Presentatoren Kiki Bosman en Tim Senders verwachten samen een kind](https://www.ad.nl/show/presentatoren-kiki-bosman-en-tim-senders-verwachten-samen-een-kind~ae67b3f2/)
-  > Zapp-presentator Tim Senders en WNL-presentatrice Kiki Bosman verwachten samen een kind. Dat maakte het stel in een video op Instagram bekend, waarin...
+- [Van Roosmalen en Groenteman in gesprek met Talpa over programma bij Net 5](https://www.ad.nl/show/van-roosmalen-en-groenteman-in-gesprek-met-talpa-over-programma-bij-net-5~a519917e/)
+  > Marcel van Roosmalen en Gijs Groenteman zijn in gesprek met Talpa over een eventueel programma bij Net 5. Zoals bekend is hun BNNVara-programma Van...
+- [Amerika’s devote vicepresident JD Vance vergist zich in kerk](https://www.ad.nl/buitenland/amerikas-devote-vicepresident-jd-vance-vergist-zich-in-kerk~a315f8c8/)
+  > De Amerikaanse vicepresident JD Vance heeft een boek geschreven over zijn bekering tot het katholicisme. Op de cover zette hij een kerk. Alleen: het...
+- [Rechter Boekarest schrapt alle beperkende maatregelen tegen Andrew Tate](https://www.ad.nl/buitenland/rechter-boekarest-schrapt-alle-beperkende-maatregelen-tegen-andrew-tate~ad087432/)
+  > Een rechtbank in Boekarest heeft alle beperkende maatregelen tegen de Amerikaans-Britse verdachten Andrew Tate en zijn broer Tristan geschrapt. Naar...
+- [Duitsers willen btw op melk en brood naar 0 procent: ‘Snel actie nodig vanwege stijgende prijzen’](https://www.ad.nl/economie/duitsers-willen-btw-op-melk-en-brood-naar-0-procent-snel-actie-nodig-vanwege-stijgende-prijzen~a8831ea7/)
+  > De Duitse politiek overweegt de btw op voedsel, zoals brood, melk, vlees, vis en groente en fruit, volledig te schrappen. Dat moet vooral minder...
+- [De morfine-injectie is voor meneer Schulten het begin van het einde: eindelijk kan hij praten over de dood](https://www.ad.nl/gezond/de-morfine-injectie-is-voor-meneer-schulten-het-begin-van-het-einde-eindelijk-kan-hij-praten-over-de-dood~a4dcc883/)
+  > Het einde nadert voor meneer Schulten. Maar praten over de dood is lastig, hij wil zijn dochter niet belasten. Na een paaseitje en een morfineshot...
 
 ### Meest gelezen
 
