@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-04-2026 om 19:08*
+*Laatst bijgewerkt: 06-04-2026 om 20:41*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [71 jaar lang blijft een verdrietig geheim verborgen op de zeebodem, dan gaan Cees en Gert zoeken](https://www.ad.nl/binnenland/71-jaar-lang-blijft-een-verdrietig-geheim-verborgen-op-de-zeebodem-dan-gaan-cees-en-gert-zoeken~a464b383/)
-  > Vijf vissermannen uit Urk verdwijnen in een storm. Tientallen jaren lang zitten de families in onzekerheid. Komen ze nog thuis? Dan gaat een team...
-- [Historisch record: nooit eerder waren astronauten zo ver verwijderd van aarde](https://www.ad.nl/buitenland/historisch-record-nooit-eerder-waren-astronauten-zo-ver-verwijderd-van-aarde~aa9301ab/)
-  > De vier astronauten van de Artemis II-missie hebben maandagavond tijdens hun ‘flyby’ langs de maan het record verbroken van de grootste afstand die...
-- [Memphis Depay ‘nog niet klaar’ bij Oranje: ‘De statistieken liegen niet, ik zie alleen positieve dingen’](https://www.ad.nl/wk-voetbal/memphis-depay-nog-niet-klaar-bij-oranje-de-statistieken-liegen-niet-ik-zie-alleen-positieve-dingen~a19b5398/)
-  > Memphis Depay, topscorer aller tijden van Oranje, heeft bij Ziggo Sport een uitgebreid interview gegeven. Daarin praat de 32-jarige spits over zijn...
-- [Tweeling Quinn en Aaron knallen door met 30 miljoen views: ‘Maar onze eigen generatie vindt ons niet cool’](https://www.ad.nl/binnenland/tweeling-quinn-en-aaron-knallen-door-met-30-miljoen-views-maar-onze-eigen-generatie-vindt-ons-niet-cool~a298dac0/)
-  > Wat begon met simpele TikTok-video’s vanuit hun huis in Dordrecht, is in zes jaar uitgegroeid tot een compleet mediaproject. De tweeling Quinn en...
-- [Als Bart van Rooij scoort in de Johan Cruijff Arena, gaan zijn gedachten naar huis: ‘Deze goal is voor mijn vader’](https://www.ad.nl/voetbal/als-bart-van-rooij-scoort-in-de-johan-cruijff-arena-gaan-zijn-gedachten-naar-huis-deze-goal-is-voor-mijn-vader~a060c4e0/)
-  > Hij rent naar een van de camera’s langs het veld, geeft twee kushandjes, zwaait en tikt zachtjes op de lens. Zo viert Bart van Rooij zijn doelpunt...
+- [Rusland: Oekraïne heeft aanvallen op olietoevoer uitgevoerd, ex-gouverneur Koersk krijgt 14 jaar strafkamp](https://www.ad.nl/buitenland/rusland-oekraine-heeft-aanvallen-op-olietoevoer-uitgevoerd-ex-gouverneur-koersk-krijgt-14-jaar-strafkamp~adfb97be/)
+  > Oekraïense drones hebben maandag een terminal van het Caspian Pipeline Consortium (CPC) in het zuiden van Rusland aangevallen, meldt het Russische...
+- [Jurriën Timber mist kwartfinale van Arsenal, Kompany geeft nog niets prijs over Kane](https://www.ad.nl/voetbal/jurrien-timber-mist-kwartfinale-van-arsenal-kompany-geeft-nog-niets-prijs-over-kane~a2f084ce/)
+  > Jurriën Timber mist dinsdagavond de uitwedstrijd van Arsenal tegen Sporting Portugal in de kwartfinales van de Champions League. De 24-jarige...
+- [Stel in Kopen zonder kijken leeft in onzekerheid: slechts paar dagen voor de klok afloopt krijgen ze nieuws](https://www.ad.nl/show/stel-in-kopen-zonder-kijken-leeft-in-onzekerheid-slechts-paar-dagen-voor-de-klok-afloopt-krijgen-ze-nieuws~ac97de46/)
+  > Het scheelde niet veel of de zoektocht van Alex van Keulen in Kopen zonder kijken eindigde deze keer in een grote teleurstelling. Op de valreep vond...
+- [Maarten van Rossum eert overleden zanger René Karst in Slimste Mens: ‘Een heel warm mens’](https://www.ad.nl/show/maarten-van-rossum-eert-overleden-zanger-rene-karst-in-slimste-mens-een-heel-warm-mens~a32356b0/)
+  > In de eerste uitzending van de finaleweek van De slimste mens stonden presentator Herman van der Zandt  en kandidaat Maarten van Rossum maandagavond...
+- [Diemers niet blij met aanbieding Cambuur, Kuyt wil bij FC Dordrecht blijven](https://www.ad.nl/voetbal/diemers-niet-blij-met-aanbieding-cambuur-kuyt-wil-bij-fc-dordrecht-blijven~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
 
 ### Meest gelezen
 
@@ -47,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Beurs in de ban van oorlog Midden-Oosten](https://fd.nl/financiele-markten/1592167/beurs-in-de-ban-van-oorlog-midden-oosten)
+  > Dunne handel zorgt nauwelijks voor beweging op de Amerikaanse beurzen.
 - [Russisch graanschip gezonken na droneaanval](https://fd.nl/samenleving/1592140/russisch-graanschip-gezonken-na-droneaanval)
   > Analisten waarschuwen voor mondiale voedselonzekerheid.
 - [Hoogste tijd voor opbouw nieuwe industrie](https://fd.nl/opinie/1592111/hoogste-tijd-voor-opbouw-nieuwe-industrie)
@@ -55,8 +57,6 @@
   > Amerikaanse politici willen klimaatwetten versoepelen om de koopkracht van consumenten te ontzien.
 - [Banken twijfelen over rentestappen Fed](https://fd.nl/financiele-markten/1592137/banken-twijfelen-over-rentestappen-fed)
   > Wells Fargo gelooft niet meer in renteverlagingen: Citigroup houdt hoop op tweede helft 2026.
-- [Voorstellen door de Eerste Kamer krijgen wordt een hele klus voor premier Jetten](https://fd.nl/politiek/1592115/voorstellen-door-de-eerste-kamer-krijgen-wordt-een-hele-klus-voor-premier-jetten)
-  > Jetten debatteert dinsdag voor het eerst als premier met de senaat. Zijn coalitie heeft daar nog geen derde van de zetels en de oppositie zit niet te...
 
 ### Meest gelezen
 
