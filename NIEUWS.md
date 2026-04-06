@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-04-2026 om 21:41*
+*Laatst bijgewerkt: 06-04-2026 om 22:41*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Noodvaccinatiecampagne gestart in Bangladesh wegens grote mazelenuitbraak](https://www.ad.nl/buitenland/noodvaccinatiecampagne-gestart-in-bangladesh-wegens-grote-mazelenuitbraak~a03ba799/)
+  > In Bangladesh is zondag een noodvaccinatiecampagne gestart om meer dan een miljoen kinderen zo snel mogelijk in te enten tegen mazelen. In het land...
+- [Energiebedrijf ONE-Dyas schaalt gaswinning uit veld in Noordzee op met tweede productieput](https://www.ad.nl/economie/energiebedrijf-one-dyas-schaalt-gaswinning-uit-veld-in-noordzee-op-met-tweede-productieput~a8a4078e/)
+  > Het Nederlandse energiebedrijf ONE-Dyas heeft zijn gasproductie in de Noordzee uitgebreid. Bij het platform N05-A, 20 kilometer ten noorden van...
 - [Danny Noppert grijpt naast winst in München: Nathan Aspinall te sterk in finale](https://www.ad.nl/darts/danny-noppert-grijpt-naast-winst-in-munchen-nathan-aspinall-te-sterk-in-finale~a9b9b625/)
   > Danny Noppert heeft voor de vierde keer in zijn carrière een finale van een Euro Tour-toernooi verloren. In de German Darts Grand Prix in München was...
 - [Diemers niet blij met aanbieding van Cambuur, td Napoli waarschuwt Lukaku](https://www.ad.nl/voetbal/diemers-niet-blij-met-aanbieding-van-cambuur-td-napoli-waarschuwt-lukaku~a35ea681/)
   > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
 - [Rusland: Oekraïne heeft aanvallen op olietoevoer uitgevoerd, ex-gouverneur Koersk krijgt 14 jaar strafkamp](https://www.ad.nl/buitenland/rusland-oekraine-heeft-aanvallen-op-olietoevoer-uitgevoerd-ex-gouverneur-koersk-krijgt-14-jaar-strafkamp~adfb97be/)
   > Oekraïense drones hebben maandag een terminal van het Caspian Pipeline Consortium (CPC) in het zuiden van Rusland aangevallen, meldt het Russische...
-- [Jurriën Timber mist kwartfinale van Arsenal, Kompany geeft nog niets prijs over Kane](https://www.ad.nl/voetbal/jurrien-timber-mist-kwartfinale-van-arsenal-kompany-geeft-nog-niets-prijs-over-kane~a2f084ce/)
-  > Jurriën Timber mist dinsdagavond de uitwedstrijd van Arsenal tegen Sporting Portugal in de kwartfinales van de Champions League. De 24-jarige...
-- [Stel in Kopen zonder kijken leeft in onzekerheid: slechts paar dagen voor de klok afloopt krijgen ze nieuws](https://www.ad.nl/show/stel-in-kopen-zonder-kijken-leeft-in-onzekerheid-slechts-paar-dagen-voor-de-klok-afloopt-krijgen-ze-nieuws~ac97de46/)
-  > Het scheelde niet veel of de zoektocht van Alex van Keulen in Kopen zonder kijken eindigde deze keer in een grote teleurstelling. Op de valreep vond...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Beurs in de ban van oorlog Midden-Oosten](https://fd.nl/financiele-markten/1592167/beurs-in-de-ban-van-oorlog-midden-oosten)
-  > Dunne handel zorgt nauwelijks voor beweging op de Amerikaanse beurzen.
-- [Russisch graanschip gezonken na droneaanval](https://fd.nl/samenleving/1592140/russisch-graanschip-gezonken-na-droneaanval)
-  > Analisten waarschuwen voor mondiale voedselonzekerheid.
-- [Hoogste tijd voor opbouw nieuwe industrie](https://fd.nl/opinie/1592111/hoogste-tijd-voor-opbouw-nieuwe-industrie)
-  > Hoofdkantoor Unilever Food komt niet naar Nederland. Het is de hoogste tijd om aan de slag te gaan met het rapport-Wennink.
-- [Druk op Amerikaanse klimaatwetten](https://fd.nl/samenleving/1592138/druk-op-amerikaanse-klimaatwetten)
-  > Amerikaanse politici willen klimaatwetten versoepelen om de koopkracht van consumenten te ontzien.
-- [Banken twijfelen over rentestappen Fed](https://fd.nl/financiele-markten/1592137/banken-twijfelen-over-rentestappen-fed)
-  > Wells Fargo gelooft niet meer in renteverlagingen: Citigroup houdt hoop op tweede helft 2026.
+- [Rutte moet Trump opnieuw sussen](https://fd.nl/opinie/1592242/rutte-moet-trump-opnieuw-sussen)
+  > De spanningen rond de Straat van Hormuz zetten de Navo verder onder druk. Mark Rutte probeert in Washington te voorkomen dat Trump de alliantie...
+- [Iran-oorlog bezorgt Europese chemie tijdelijk rugwind](https://fd.nl/financiele-markten/1592192/iran-oorlog-bezorgt-europese-chemie-tijdelijk-rugwind)
+  > De Aziatische concurrentie wordt harder getroffen door de blokkade van de Straat van Hormuz. Als de situatie normaliseert, voeren bestaande problemen...
+- [Toxische relatie](https://fd.nl/opinie/1592141/toxische-relatie)
+  > Een Navo zonder Amerika of een Navo zonder Europa?
+- [‘Blauwe boorden’ populair op overnamemarkt, want die hebben weinig last van AI](https://fd.nl/bedrijfsleven/1591386/blauwe-boorden-populair-op-overnamemarkt-want-die-hebben-weinig-last-van-ai)
+  > Er is volgens fusie- en overnameadviseurs veel interesse voor bedrijven zoals kabellegger Van Vulpen en bouwplaatsbeveiligers BauWatch en Buko.
+- [Personalia dinsdag 7 april](https://fd.nl/bedrijfsleven/1592129/personalia-dinsdag-7-april)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
