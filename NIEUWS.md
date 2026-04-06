@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-04-2026 om 07:51*
+*Laatst bijgewerkt: 06-04-2026 om 09:13*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Cruiseschip vastgelopen bij eiland van film Cast Away](https://nos.nl/l/2609284)
+  > Een klein cruiseschip is vastgelopen op een rif bij het eiland Monuriki in Fiji. Datzelfde eiland diende als het decor van de Hollywoodklassieker...
 - [Docenten kijken na met AI: slimme tijdsbesparing of risicovol?](https://nos.nl/l/2609282)
   > Niet alleen scholieren, ook docenten op middelbare scholen gebruiken kunstmatige intelligentie (AI), bijvoorbeeld om toetsen na te kijken. Daarbij...
 - [Wekdienst 6/4: Paasvuren in noorden en oosten van het land • Finales Euro Hockey League](https://nos.nl/l/2609275)
@@ -16,8 +18,6 @@
   > Werkgevers en werknemers zijn niet blij dat het kabinet de arbeidsongeschiktheidspremie gebruikt om gaten op de begroting te dichten. In het...
 - [Grote sponsoren Londens festival weg om optreden Kanye West](https://nos.nl/l/2609268)
   > Twee grote sponsoren van een driedaags festival in Londen hebben zich teruggetrokken vanwege een gepland optreden van de Amerikaanse rapper Kanye...
-- [Nieuwe reddingspoging voor gestrande bultrug Timmy in de maak](https://nos.nl/l/2609266)
-  > Er komt mogelijk een nieuwe reddingspoging om de voor de Duitse Oostzeekust gestrande bultrug te redden. Overwogen wordt om de walvis met een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [We moeten stoppen met kruipen voor de VS, zegt deze expert: ‘Wat in het Midden-Oosten gebeurt is heel gevaarlijk’](https://www.ad.nl/buitenland/we-moeten-stoppen-met-kruipen-voor-de-vs-zegt-deze-expert-wat-in-het-midden-oosten-gebeurt-is-heel-gevaarlijk~ab78285e/)
-  > De verhoogde brandstofprijzen zijn nog niets vergeleken met wat ons te wachten staat als gevolg van de onrust in de wereld. Reken maar op nieuwe,...
-- [Man bedreigt kinderen in België met nepwapen en eist dat ze zich uitkleden](https://www.ad.nl/buitenland/man-bedreigt-kinderen-in-belgie-met-nepwapen-en-eist-dat-ze-zich-uitkleden~a4856e39/)
-  > Een man in België heeft zondagavond verschillende kinderen bedreigd in een park. Het wapen bleek achteraf vals te zijn. De politie heeft de man...
-- [Het scenario dat Mathieu van der Poel schetste komt na machtsvertoon Tadej Pogacar akelig dichtbij](https://www.ad.nl/wielrennen/het-scenario-dat-mathieu-van-der-poel-schetste-komt-na-machtsvertoon-tadej-pogacar-akelig-dichtbij~a631b124/)
-  > Tadej Pogacar won, uiteraard solo, voor de derde keer de Ronde van Vlaanderen. Hij is, 27 jaar nog maar, nu al mede recordhouder. Hij komt terug voor...
-- [Pakistan presenteert plan aan Iran en VS voor beëindiging oorlog en per direct openen Straat van Hormuz](https://www.ad.nl/buitenland/pakistan-presenteert-plan-aan-iran-en-vs-voor-beeindiging-oorlog-en-per-direct-openen-straat-van-hormuz~a8b324e88/)
-  > Pakistan heeft Iran en de Verenigde Staten een plan voor een einde aan de vijandigheden voorgelegd. Dat meldt persbureau Reuters op basis van...
-- [Dit Nederlandse dorp groeit straks met een kwart door nieuwe woonwijk: ‘Hoe bijzonder is dat’](https://www.ad.nl/wonen/dit-nederlandse-dorp-groeit-straks-met-een-kwart-door-nieuwe-woonwijk-hoe-bijzonder-is-dat~a1c59524/)
-  > Groen, groener, groenst: het Brabantse dorpje Lithoijen (bij Oss) krijgt iets wat, voor zover de ontwikkelaars weten, de rest van Nederland niet...
+- [Savannah Guthrie keert na verdwijning moeder vandaag terug op de buis: ‘Diepe teleurstelling in God’](https://www.ad.nl/buitenland/savannah-guthrie-keert-na-verdwijning-moeder-vandaag-terug-op-de-buis-diepe-teleurstelling-in-god~ad13dd39/)
+  > Savannah Guthrie keert maandag terug als presentatrice van het NBC-programma Today. Voor het eerst sinds de verdwijning van haar moeder gaat ze dan...
+- [Tragedie met Jerdy Schouten brengt Marten de Roon terug in WK-plaatje Oranje, let maar op](https://www.ad.nl/voetbal/tragedie-met-jerdy-schouten-brengt-marten-de-roon-terug-in-wk-plaatje-oranje-let-maar-op~a6d7370c1/)
+  > Door de blessure van Jerdy Schouten komen er andere middenvelders in beeld voor de WK-selectie. Bijvoorbeeld Marten de Roon, nog altijd sterkhouder...
+- [Peter (52) woont in Denemarken, maar rijdt élke week naar Nederland om te helpen bij het paasvuur](https://www.ad.nl/binnenland/peter-52-woont-in-denemarken-maar-rijdt-elke-week-naar-nederland-om-te-helpen-bij-het-paasvuur~a717c407/)
+  > Elke vrijdag Denemarken uit, elk weekend takkenbundels stapelen, en elke zondagavond weer op huus an. Peter Waalderbos (52) rijdt wekelijks 900...
+- [Conor McGregor maakt na vijf jaar verrassende comeback in boksring en een kaartje kost maar 10 euro](https://www.ad.nl/vechtsport/conor-mcgregor-maakt-na-vijf-jaar-verrassende-comeback-in-boksring-en-een-kaartje-kost-maar-10-euro~aa216550/)
+  > Conor McGregor is teruggekeerd in de boksring. Na een pauze van vijf jaar maakte de Ier afgelopen weekend zijn comeback. Hij deed dat in een lokale...
+- [Twee groepen Nederlanders op de vuist in Oostenrijkse après-ski: drie van hen gewond](https://www.ad.nl/buitenland/twee-groepen-nederlanders-op-de-vuist-in-oostenrijkse-apres-ski-drie-van-hen-gewond~a037d6ee/)
+  > Een ruzie tussen twee groepen met Nederlanders op wintersport is flink geëscaleerd. In een après-skibar in het Oostenrijkse Gerlos gingen acht mensen...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [De verkiezingen van de waarheid](https://fd.nl/politiek/1591730/de-verkiezingen-van-de-waarheid)
+  > De Paaseditie van de Europa-nieuwsbrief van het FD gaat over de stembusgang in Hongarije, en de gevolgen voor de EU. En verder: meerdere lidstaten...
+- [Wie iets maakt, die bestaat](https://fd.nl/samenleving/1592028/wie-iets-maakt-die-bestaat)
+  > Frida Boeke volgt op haar telefoon kunst en cultuur uit het Midden-Oosten en ziet hierin kleine tekenen van hoop en veerkracht.
+- [Onwetendheid is geen teken van zwakheid maar een deugd voor leiders van vandaag](https://fd.nl/opinie/1592013/onwetendheid-als-deugd-voor-leiders-van-vandaag)
+  > Sommige leiders laten zich graag omringen door een team van jaknikkers. Ze weten het immers heus zelf beter – zij zijn toch de baas? Dat blijkt...
+- [Italiaans onderzoek naar Sephora en Benefit om filmpjes ‘skinfluencer’ op TikTok](https://fd.nl/bedrijfsleven/1592114/italiaans-onderzoek-naar-sephora-en-benefit-om-filmpjes-skinfluencer-op-tiktok)
+  > TikTok staat vol met filmpjes van jonge influencers die huidproducten promoten bij kinderen. Voor de Italiaanse mededingingsautoriteit AGCM is de...
 - [Japanse beurs verder omhoog](https://fd.nl/financiele-markten/1592130/japanse-beurs-verder-omhoog)
   > Beleggers in Azië klampten zich vast aan berichten dat de Verenigde Staten en Iran over een staakt-het-vuren praten.
-- [Sébas Diekstra: ‘Ik weiger het rechtssysteem te accepteren zoals het nu is’](https://fd.nl/samenleving/1591945/sebas-diekstra-ik-weiger-het-rechtssysteem-te-accepteren-zoals-het-nu-is)
-  > In zijn strijd voor een stevigere positie van slachtoffers en nabestaanden van gewelds- en zedenzaken zoekt Sébas Diekstra de grenzen op, desnoods op...
-- [Oorlog leidt tot vacaturestops maar ontslagen blijven nog uit](https://fd.nl/bedrijfsleven/1592112/oorlog-leidt-tot-vacaturestops-maar-ontslagen-blijven-nog-uit)
-  > Is er in Nederland na vijf weken Iran-oorlog een effect te zien op de arbeidsmarkt? ‘Het maakt werkgevers nog voorzichtiger dan ze al waren.’
-- [‘Als Duitse treinen zo vaak te laat zijn, komt geloof in democratie in gevaar’](https://fd.nl/bedrijfsleven/1591806/als-duitse-treinen-zo-vaak-te-laat-zijn-komt-geloof-in-democratie-in-gevaar)
-  > De stiptheid van Duitse treinen gaat verder achteruit. Plannen om vaker op tijd te rijden heeft Deutsche Bahn genoeg, maar het duurt nog tien jaar...
-- [#Sisterhood en dat speciale plekje in de hel](https://fd.nl/opinie/1589635/sisterhood-en-dat-speciale-plekje-in-de-hel)
-  > Doen alsof het gebrek aan steun van hun zusters het ware probleem is van vrouwen, is een gevaarlijke afleidingsmanoeuvre. De aandacht verschuift van...
 
 ### Meest gelezen
 
