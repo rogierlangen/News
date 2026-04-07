@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-04-2026 om 07:24*
+*Laatst bijgewerkt: 07-04-2026 om 09:09*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Gaswinning op Noordzee uitgebreid, bedrijf neemt tweede put in gebruik](https://nos.nl/l/2609415)
+  > Het bedrijf ONE-Dyas breidt de gaswinning uit op het veld op de Noordzee boven Schiermonnikoog. Met gebruik van een tweede put is de productie...
+- [Ikea Duiven ook vandaag hele dag gesloten vanwege internetproblemen](https://nos.nl/l/2609394)
+  > De Ikea in Duiven blijft ook vandaag de hele dag dicht. Het filiaal van de Zweedse meubelgigant zit nog steeds zonder internetverbinding, laat een...
+- [35-plusser die jaren intensief sport, loopt groter risico op hart- en vaatziekten](https://nos.nl/l/2609384)
+  > Mensen van 35 jaar of ouder die jarenlang intensief sporten, lopen een grotere kans op specifieke hart- en vaatziekten. Dat blijkt uit nieuw...
 - [ING krijgt Russisch dochterbedrijf maar niet verkocht](https://nos.nl/l/2609370)
   > Het lukt ING niet om van zijn Russische bankactiviteiten af te komen. Het bedrijf had vorig jaar een koper gevonden voor ING Rusland, maar het lukt...
-- [Sportvliegtuig neergestort naast A58 bij Middelburg](https://nos.nl/l/2609368)
-  > Naast de A58 bij Middelburg is een sportvliegtuig neergestort, meldt de Veiligheidsregio Zeeland. Het toestel kwam neer in een weiland naast de...
-- [Museumtrein Goes rijdt weer na botsing met tractor](https://nos.nl/l/2609363)
-  > De museumtrein die eind vorig jaar flink beschadigd raakte bij een botsing met een tractor in Borsele is gerepareerd en heeft het eerste ritje weer...
-- [Rapper Offset neergeschoten in Florida, niet in levensgevaar](https://nos.nl/l/2609362)
-  > De Amerikaanse rapper Offset is gisteren neergeschoten bij een hotel in Florida. Hij is opgenomen in het ziekenhuis, maar heeft volgens de politie...
-- [Stekkerbatterij steeds populairder: 'Ik heb er echt lol in'](https://nos.nl/l/2609361)
-  > Precieze cijfers ontbreken, toch is duidelijk dat thuisbatterijen met een stekker steeds populairder worden. In tegenstelling tot reguliere...
+- [Sportvliegtuig neergestort naast A58 bij Middelburg, 1 dode](https://nos.nl/l/2609368)
+  > Naast de A58 bij Middelburg is een sportvliegtuig neergestort, meldt de Veiligheidsregio Zeeland. Daarbij is een inzittende omgekomen.
+        Het...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Sportvliegtuig gecrasht naast A58 bij Middelburg](https://www.ad.nl/binnenland/sportvliegtuig-gecrasht-naast-a58-bij-middelburg~ac67454d/)
-  > Een sportvliegtuig is dinsdagochtend gecrasht langs de A58 bij Middelburg. Hulpdiensten, waaronder twee traumahelikopters zijn massaal onderweg.
-- [Meerdere doden door Russische droneaanval op bus, Oekraïne valt weer haven aan](https://www.ad.nl/buitenland/meerdere-doden-door-russische-droneaanval-op-bus-oekraine-valt-weer-haven-aan~adfb97be/)
-  > In Oekraïne zijn weer doden gevallen bij een aanval op frontstad Nikopol. Een Russische drone raakte dinsdagochtend een bus vol mensen. Daarbij...
-- [Trein op Rotterdam Centraal ontruimd na melding van explosief, persoon aangehouden](https://www.ad.nl/rotterdam/trein-op-rotterdam-centraal-ontruimd-na-melding-van-explosief-persoon-aangehouden~a75fd93f0/)
-  > Op Rotterdam Centraal is dinsdagochtend een trein op spoor 8 ontruimd wegens een melding van een mogelijk explosief. Iets later werd een persoon door...
-- [Miljoenen voor kinderopvang pleegkinderen blijven op de plank liggen, ‘pleegouders betalen zelf’](https://www.ad.nl/binnenland/miljoenen-voor-kinderopvang-pleegkinderen-blijven-op-de-plank-liggen-pleegouders-betalen-zelf~a1e8b7f6/)
-  > Pleegouders in Nederland draaien massaal zelf op voor de kosten van kinderopvang, terwijl het kabinet daar juist een financiële tegemoetkoming voor...
-- [Sportvliegtuig gecrasht langs A58 bij Middelburg](https://www.ad.nl/vlissingen/sportvliegtuig-gecrasht-langs-a58-bij-middelburg~a91ce7bd/)
-  > Een sportvliegtuig is dinsdagochtend gecrasht langs de A58 bij Middelburg. Hulpdiensten, waaronder twee traumahelikopters, zijn massaal onderweg.
+- [‘Staat aansprakelijk gesteld voor de wachtlijsten in ggz’](https://www.ad.nl/binnenland/staat-aansprakelijk-gesteld-voor-de-wachtlijsten-in-ggz~a074d10c/)
+  > Voor het eerst wordt de staat aansprakelijk gesteld voor de wachtlijsten in de ggz, schrijft Trouw. Patiënten met ernstige psychische aandoeningen...
+- [Machinist Franse hogesnelheidstrein omgekomen door botsing met vrachtwagen](https://www.ad.nl/buitenland/machinist-franse-hogesnelheidstrein-omgekomen-door-botsing-met-vrachtwagen~afa669da/)
+  > In de buurt van het Noord-Franse Noeux-les-Mines, niet ver van Lille, is dinsdagochtend een hogesnelheidstrein gebotst op een vrachtwagen. Daarbij is...
+- [Eerste supporters melden zich bij Stadhuisplein, zo laat begint de huldiging](https://www.ad.nl/voetbal/eerste-supporters-melden-zich-bij-stadhuisplein-zo-laat-begint-de-huldiging~a8cbfd98/)
+  > Vandaag is het eindelijk zover voor de PSV-supporters: de huldiging in de binnenstad van Eindhoven. De spelers gaan de platte kar op en worden later...
+- [Jade Kops smeekt om tijd in brief aan tumor: ‘Ik ben elke avond bang’](https://www.ad.nl/show/jade-kops-smeekt-om-tijd-in-brief-aan-tumor-ik-ben-elke-avond-bang~a1a46f20/)
+  > Jade Kops deelt een aangrijpende brief gericht aan haar tumor. Op Instagram schrijft ze openhartig over hoe haar situatie in korte tijd drastisch is...
+- [‘Houston, we have a problem’ klopt helemaal niet (en nog meer weetjes over de ruimte en Artemis II)](https://www.ad.nl/buitenland/houston-we-have-a-problem-klopt-helemaal-niet-en-nog-meer-weetjes-over-de-ruimte-en-artemis-ii~a71c189c/)
+  > Maanmissie Artemis II gaat de geschiedenisboeken in: de mens ging sinds 1972 niet meer richting de maan. Maar wist u ook dat er een toilet van 23...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Fonds van Bill Ackman doet miljardenbod op Universal Music Group](https://fd.nl/bedrijfsleven/1592170/fonds-van-bill-ackman-doet-bod-op-universal-music-group)
-  > Het investeringsfonds wil het in Amsterdam genoteerde muziekbedrijf overnemen en de beursnotering naar New York verplaatsen. Zangeres Taylor Swift is...
-- [Israël voert aanvallen uit op Iran, Teheran niet akkoord met wapenstilstand](https://fd.nl/samenleving/1592258/israel-voert-aanvallen-uit-op-iran-teheran-niet-akkoord-met-wapenstilstand)
-  > Ook heeft het Israëlische leger de bevolking van Iran dinsdag opgeroepen geen gebruik te maken van de trein en niet in de buurt van spoorlijnen te...
-- [Lekker los op je collega’s](https://fd.nl/samenleving/1592029/lekker-los-op-je-collegas)
-  > Schreeuwen en intimideren heeft een voordeel: je krijgt nooit meer tegenspraak, want niemand durft je meer tot de orde te roepen.
-- [Nedap boekt hogere omzet in eerste kwartaal](https://fd.nl/bedrijfsleven/1592169/nedap-boekt-hogere-omzet-in-eerste-kwartaal)
-  > De terugkerende omzet steeg in de eerste drie maanden van het jaar met 15,5% tot €31 mln.
-- [Live: ASML trekt AEX omlaag, UMG stijgt na bod 15%](https://fd.nl/financiele-markten/1592135/live-oorlogsretoriek-maakt-beleggers-schichtig)
-  > Een wapenstilstand in het Midden-Oosten is nog geen stap dichterbij. De prijs van Noordzee-olie stijgt tot boven de $100 per vat. Futures wijzen op...
+- [Omzet Koninklijke Jaarbeurs steeg vorig jaar met bijna 30%](https://fd.nl/bedrijfsleven/1592267/omzet-koninklijke-jaarbeurs-steeg-vorig-jaar-met-bijna-30)
+  > Vooral beurzen voor de agrifoodsector droegen bij aan de stijging, meldt de Utrechtse onderneming in het dinsdag verschenen jaarverslag.
+- [Tennet gaat netcongestie te lijf met prefabelementen voor hoogspanningsstations](https://fd.nl/bedrijfsleven/1592262/tennet-gaat-netcongestie-te-lijf-met-prefabelementen-voor-hoogspanningsstations)
+  > Prefabbouw en standaardisatie moeten uitbreiding van hoogspanningsstations 30% sneller laten verlopen dan traditionele bouw. In Ede maken Tennet en...
+- [De klus kwijt](https://fd.nl/financiele-markten/1592265/de-klus-kwijt)
+  > Dat we een teveel aan flexibiliteit en vrijheid in ons werk een probleem zouden gaan vinden … Keynes had het niet kunnen bevroeden, zegt FD-columnist...
+- [ING ziet af van verkoop Russische dochter](https://fd.nl/bedrijfsleven/1592264/ing-ziet-af-van-verkoop-russische-dochter)
+  > De vorig jaar aangekondigde verkoop van ING’s Russische dochter gaat toch niet door. De Russische autoriteiten geven geen goedkeuring. De bank boekte...
+- [Vraag naar AI stuwt winst Samsung naar record](https://fd.nl/bedrijfsleven/1592172/vraag-naar-ai-stuwt-winst-samsung-naar-record)
+  > De grote vraag naar geheugenchips zorgt voor veel hoger dan verwachte winst bij de Zuid-Koreaanse chipmaker.
 
 ### Meest gelezen
 
