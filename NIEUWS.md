@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-04-2026 om 11:01*
+*Laatst bijgewerkt: 07-04-2026 om 13:26*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [136 lawinedoden dit seizoen, hoogste aantal in jaren](https://nos.nl/l/2609449)
-  > Er zijn deze winter opvallend veel mensen omgekomen door lawines. Met Pasen, dat geldt als het einde van het wintersportseizoen, stond de teller van...
-- [Het blijft slecht gaan met bijen en zweefvliegen, daarom nieuwe tellingen](https://nos.nl/l/2609447)
-  > Er komt de komende jaren een landelijke, systematische telling van bestuivende insecten. Volgens de initiatiefnemer, EIS Kenniscentrum Insecten, gaat...
-- [Auto-industrie Mexico vreest klappen handelsdeal door grillige Trump: 'Niks meer heilig'](https://nos.nl/l/2609445)
-  > Vonken spatten van draaiende stalen balken, naast een torenhoog apparaat dat op ritmisch tempo blokken platslaat. Indrukwekkende apparaten, met...
-- [Schoten bij Israëlische consulaat in Istanbul, 'een of meer aanvallers gedood'](https://nos.nl/l/2609444)
-  > In de Turkse stad Istanbul is geschoten in de buurt van het Israëlische consulaat, melden Turkse media. Het zou gaan om een vuurgevecht tussen een...
-- [Hof: staat en stichting handelden rechtmatig bij adoptie Dilani Butink uit 1992](https://nos.nl/l/2609442)
-  > De Nederlandse Staat heeft niet onrechtmatig gehandeld tegen Dilani Butink, een vrouw uit Sri Lanka die als kind werd geadopteerd door een Nederlands...
+- [Kanye West mag Verenigd Koninkrijk niet in](https://nos.nl/l/2609473)
+  > Het Verenigd Koninkrijk weigert Kanye West toegang. Dat meldt de omroep BBC op basis van het Britse ministerie van Binnenlandse Zaken. De regering...
+- [Podcast De Dag: een 'Europese' NAVO, dagdroom of noodzaak?](https://nos.nl/l/2609470)
+  > Zes weken na het begin van de oorlog met Iran ziet president Trump nog geen reden om die te beëindigen. Hij dreigt vandaag dat 'een hele samenleving...
+- [Kabinet: misschien toch softporno weghalen van tablets gevangenen](https://nos.nl/l/2609467)
+  > Staatssecretaris Van Bruggen van Justitie overweegt toch om erotische content te verwijderen van de tablets die sommige gevangenen krijgen. Ze...
+- [Minister Heinen maakt bezwaar tegen beloning KLM-topvrouw: 'Echt ongepast'](https://nos.nl/l/2609465)
+  > De Nederlandse staat gaat bezwaar maken tegen de beloningen aan de top van KLM. Dat zegt minister van Financiën Heinen. Hij wil tijdens de komende...
+- [Vrouw (50) aangehouden in zaak kofferbakmoord Drenthe](https://nos.nl/l/2609464)
+  > De politie heeft een vrouw van 50 uit Emmen gearresteerd voor betrokkenheid bij de Drentse kofferbakmoord uit 2017.
+        De vrouw wordt verdacht...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Marlijn Weerdenburg wordt nieuwe presentatrice We zijn er bijna!](https://www.ad.nl/show/marlijn-weerdenburg-wordt-nieuwe-presentatrice-we-zijn-er-bijna~aad0ca4b/)
-  > Marlijn Weerdenburg (43) wordt de nieuwe presentatrice van We zijn er bijna! Zij volgt Martine van Os op die in september vorig jaar bekendmaakte na...
-- [Dordtse Melih (23) zou schitteren op Mister Universe, maar haakte af: ‘Dit klopte van geen kant’](https://www.ad.nl/binnenland/dordtse-melih-23-zou-schitteren-op-mister-universe-maar-haakte-af-dit-klopte-van-geen-kant~abb0b7a2/)
-  > De droom was groots: Melih Kocak (23) zou namens Turkije naar Panama vliegen om mee te doen aan Mister Universe International. Een enorme eer, vond...
-- [Artsen waarschuwen: intensief sporten maskeert soms gevaarlijke hartklachten, dit is hoe dat kan](https://www.ad.nl/gezond/artsen-waarschuwen-intensief-sporten-maskeert-soms-gevaarlijke-hartklachten-dit-is-hoe-dat-kan~ab967ada/)
-  > Mensen die regelmatig sporten leven gemiddeld langer en gezonder. Maar sommige hartafwijkingen blijken bij sporters vaker voor te komen dan bij...
-- [Mandy Woelkens zwanger van tweede kind](https://www.ad.nl/show/mandy-woelkens-zwanger-van-tweede-kind~a4bd5c0d/)
-  > Mandy Woelkens is zwanger van haar tweede kind. Dat maakte de presentatrice en journalist dinsdag bekend op Instagram.
-- [Dode bij schietpartij Israëlisch consulaat in Istanboel, aanleiding onbekend](https://www.ad.nl/buitenland/dode-bij-schietpartij-israelisch-consulaat-in-istanboel-aanleiding-onbekend~ac528ac3/)
-  > Bij een schietpartij met de politie in Istanboel is een schutter gedood, dat gebeurde vlakbij het Israëlische consulaat. Volgens de autoriteiten...
+- [Ouders van gehandicapte kinderen strijden tegen groot bedrijf: ‘Besluit kán worden teruggedraaid’](https://www.ad.nl/binnenland/ouders-van-gehandicapte-kinderen-strijden-tegen-groot-bedrijf-besluit-kan-worden-teruggedraaid~aca25703/)
+  > Ouders van zeer ernstig gehandicapte kinderen hopen het besluit om vier zorgvilla’s te sluiten om zeep te helpen. Woensdag dient een zaak om de...
+- [Verenigd Koninkrijk weigert rapper Kanye West toegang](https://www.ad.nl/show/verenigd-koninkrijk-weigert-rapper-kanye-west-toegang~a24f13b9/)
+  > De Britse overheid laat rapper Ye, voorheen bekend als Kanye West, niet toe in het Verenigd Koninkrijk. Dat meldt de BBC. De afgelopen dagen ontstond...
+- [Reacties op president Trump: ‘Deze scheldende man zet de wereldvrede op het spel’](https://www.ad.nl/lezersbrieven/reacties-op-president-trump-deze-scheldende-man-zet-de-wereldvrede-op-het-spel~a0c409c0/)
+  > Met niet-ingrijpen aan de pomp en hogere btw ‘put de overheid de reserves van de burger uit’. En kan iemand ongestraft zijn naam op het lichaam van...
+- [PSV-aanhang juicht voor Jerdy Schouten: geblesseerde aanvoerder neemt kampioens­schaal in ontvangst](https://www.ad.nl/voetbal/psv-aanhang-juicht-voor-jerdy-schouten-geblesseerde-aanvoerder-neemt-kampioensschaal-in-ontvangst~a8cbfd98/)
+  > Vandaag is het eindelijk zover voor de PSV-supporters: de huldiging in de binnenstad van Eindhoven. De spelers gaan de platte kar op en worden later...
+- [Trump waarschuwt Iran: ‘Een hele beschaving zal vannacht sterven’](https://www.ad.nl/buitenland/trump-waarschuwt-iran-een-hele-beschaving-zal-vannacht-sterven~a1155234/)
+  > Trump voert de druk op Iran verder op in aanloop naar de door hem gestelde deadline. „Een hele beschaving zal vannacht sterven”, dreigt hij richting...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [ASML verliest terrein na Amerikaans voorstel voor strengere regels](https://fd.nl/financiele-markten/1592269/asml-verliest-terrein-na-amerikaans-voorstel-voor-strengere-regels)
-  > Volgens analisten kan de voorgestelde MATCH Act, uitgaand van de cijfers over 2025, tot wel 20% van de omzet van ASML beïnvloeden.
-- [Interne weerstand in het bedrijf remt groei](https://fd.nl/samenleving/1592171/interne-weerstand-in-het-bedrijf-remt-groei)
-  > Wetenswaardigheden op het gebied van loopbaan en personal finance.
-- [AI is blijkbaar te innovatief om grondig te checken – en dat geeft te denken](https://fd.nl/opinie/1592090/ai-is-blijkbaar-te-innovatief-om-grondig-te-checken)
-  > De uitrol van AI-toepassingen vindt in zo’n sneltreinvaart plaats, dat we amper stilstaan bij de risico’s. Wie zich de financiële crisis herinnert,...
-- [Grootste stijging voedselprijzen in anderhalf jaar tijd](https://fd.nl/economie/1592273/grootste-stijging-voedselprijzen-in-anderhalf-jaar-tijd)
-  > De duurdere kunstmest beïnvloedt volgens de Verenigde Naties de toekomstige gewasopbrengsten. Dat heeft weer zijn weerslag op de voedselvoorziening...
-- [Weinig groei, bezuinigen impopulair: tijd voor trucs om schuld te verlagen](https://fd.nl/economie/1592277/weinig-groei-bezuinigen-impopulair-tijd-voor-trucs-om-schuld-te-verlagen)
-  > Hoe houden overheden hun opgelopen staatsschulden betaalbaar? Centrale banken komen wereldwijd onder druk te staan om de rentelasten te dempen,...
+- [Amerikaanse vicepresident Vance bezoekt Hongarije om ‘vriend’ Orbán te steunen](https://fd.nl/politiek/1592281/amerikaanse-vicepresident-vance-bezoekt-hongarije-om-vriend-orban-te-steunen)
+  > Het bezoek onderstreept dat de Amerikaanse regering heeft gebroken met de traditie om zich niet te bemoeien met een nationale verkiezingsstrijd.
+- [Verenigde Staten vallen Iraans olie-eiland Kharg aan](https://fd.nl/politiek/1592378/verenigde-staten-vallen-iraanse-olie-eiland-kharg-aan)
+  > De Amerikaanse president Donald Trump dreigde vorige week al met de inname van het eiland in de Perzische Golf. Vanaf Kharg vertrekt zo’n 90% van de...
+- [Minister Heinen: hogere beloning topvrouw KLM is ‘ongepast’](https://fd.nl/politiek/1592275/minister-heinen-hogere-beloning-topvrouw-klm-is-ongepast)
+  > Het kabinet maakt bezwaar tegen een 30% hogere beloning voor Marjan Rintel. ‘Buitenproportioneel’, aldus de minister van Financiën.
+- [‘Misschien moet de volgende generatie haar bloembollen in het buitenland telen’](https://fd.nl/samenleving/1592118/misschien-moet-de-volgende-generatie-haar-bloembollen-in-het-buitenland-telen)
+  > Het Nederlandse water wordt zouter en bedreigt de bollenteelt in zijn bestaan. In 2050 is de verzilting in de Bollenstreek al ernstig, maar rond de...
+- [CNV-voorzitter Hans van den Heuvel: ‘We staan open voor een nieuw sociaal akkoord’](https://fd.nl/politiek/1592246/cnv-voorzitter-hans-van-den-heuvel-we-staan-open-voor-een-nieuw-sociaal-akkoord)
+  > Ingrepen in de sociale zekerheid gaan vooral middeninkomens hard raken, waarschuwt vakbond CNV. Voorzitter Hans van den Heuvel wil met het kabinet om...
 
 ### Meest gelezen
 
