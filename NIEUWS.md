@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-04-2026 om 17:05*
+*Laatst bijgewerkt: 07-04-2026 om 19:11*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Trump voert zijn oorlogsretoriek op: 'Terugtrekken is gezichtsverlies'](https://nos.nl/l/2609515)
-  > "Vanavond zal een hele beschaving uitsterven" en "we gaan ze terugbrengen naar het stenen tijdperk, waar ze thuishoren." De retoriek van president...
-- [Politie vermoedt zelfdoding bij crash sportvliegtuig Middelburg](https://nos.nl/l/2609513)
-  > Het politieonderzoek naar de vliegtuigcrash vanmorgen bij Middelburg is afgerond. De politie zegt "sterke aanwijzingen" te hebben dat er sprake is...
-- [Vermoedelijke brandstichting bij toekomstig azc Beuningen](https://nos.nl/l/2609509)
-  > In een toekomstig asielzoekerscentrum in Beuningen is vanmiddag brand uitgebroken. De politie vermoedt dat sprake was van brandstichting.
-       ...
-- [Jetten hoopt op terughoudendheid na Trumps dreigementen tegen Iran](https://nos.nl/l/2609504)
-  > De "verharde retoriek" die de Amerikaanse president gebruikt, brengt een oplossing in het Midden-Oosten "verder uit het zicht". Dat is de reactie van...
-- [Nederland koopt vijfde Patriot-systeem voor luchtverdediging](https://nos.nl/l/2609500)
-  > Nederland heeft in de VS een extra Patriot-systeem gekocht. De koop is vandaag ondertekend door staatssecretaris Boswijk van Defensie op de...
+- [Boeren overtreden regels bestrijdingsmiddelen, NVWA vindt dat zorgwekkend](https://nos.nl/l/2609532)
+  > Nederlandse akkerbouwers en bollenboeren houden zich niet altijd aan de regels over het gebruik van gewasbeschermingsmiddelen op hun grond bij...
+- [Ondanks Chinese dreiging krijgt Taiwan defensiebudget maar niet verhoogd](https://nos.nl/l/2609525)
+  > Onder druk van de Amerikanen wil de Taiwanese president Lai Ching-te het defensiebudget met 40 miljard Amerikaanse dollar verhogen. Maar met een...
+- [In een jaar wietproef zag de inspectie tientallen overtredingen bij telers](https://nos.nl/l/2609519)
+  > De tien telers die meedoen aan de wietproef in Nederland zijn het afgelopen jaar in totaal 42 keer de fout in gegaan. De Inspectie Justitie en...
+- [NASA deelt nieuwe foto's van achterkant van de maan](https://nos.nl/l/2609517)
+  > NASA heeft nieuwe foto's gedeeld die astronauten van de Artemis II-missie van de maan hebben gemaakt.
+        Voor het eerst in ruim vijftig jaar...
+- [Fransen die vastzaten in Iran op weg naar huis](https://nos.nl/l/2609516)
+  > Een Frans stel dat bijna vier jaar vastzat in Iran heeft het land verlaten. "Cécile Kohler en Jacques Paris zijn vrij en zijn op weg naar Frans...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Een vega nugget? Ook bedenker van de muesli oogstte ooit hoon](https://www.ad.nl/commentaar/een-vega-nugget-ook-bedenker-van-de-muesli-oogstte-ooit-hoon~ae33e361/)
-  > Grote voedselveranderingen beginnen zelden met applaus. Idealiter beginnen ze klein en ongemerkt. De opmars van verrijkt vlees in de supermarkt past...
-- [Guus Til en Guus Meeuwis zingen samen op kampioensfeest PSV in Eindhoven](https://www.ad.nl/voetbal/guus-til-en-guus-meeuwis-zingen-samen-op-kampioensfeest-psv-in-eindhoven~a8cbfd98/)
-  > Vandaag is het eindelijk zover voor de PSV-supporters: de huldiging in de binnenstad van Eindhoven. De spelers gaan de platte kar op en worden later...
-- [Ontsnappen aan de ratrace? Dit Spaanse dorpje lokt nieuwe bewoners met gratis woning én baanzekerheid](https://www.ad.nl/buitenland/ontsnappen-aan-de-ratrace-dit-spaanse-dorpje-lokt-nieuwe-bewoners-met-gratis-woning-en-baanzekerheid~a70a22db/)
-  > Ben je de dagelijkse files en de ratrace he-le-maal zat? Diep in het Spaanse binnenland ligt een dorp dat schreeuwt om nieuwe bewoners en bereid is...
-- [Na maanden van geruchten: Kim Kardashian en Lewis Hamilton lijken relatie ‘Insta-official’ te maken](https://www.ad.nl/show/na-maanden-van-geruchten-kim-kardashian-en-lewis-hamilton-lijken-relatie-insta-official-te-maken~a842d1f9/)
-  > Na maandenlange speculaties lijken realityster Kim Kardashian (45) en zevenvoudig Formule 1-wereldkampioen Lewis Hamilton (41) hun relatie...
-- [Syrische vrienden herkennen hun folteraar, die in Druten woont: ‘Ik dacht dat hij me zou doden’](https://www.ad.nl/binnenland/syrische-vrienden-herkennen-hun-folteraar-die-in-druten-woont-ik-dacht-dat-hij-me-zou-doden~a4a1a46c/)
-  > Twee Syrische scholieren, Mody en Rayan, protesteerden vreedzaam tegen hun president. Dat kwam hen duur te staan. De man die de twee dagenlang...
+- [Arsenal begonnen aan heenduel met Sporting in sfeervol stadion](https://www.ad.nl/voetbal/arsenal-begonnen-aan-heenduel-met-sporting-in-sfeervol-stadion~ae12404f/)
+  > Arsenal koerst in Engeland af op de landstitel en is ook in de race voor de Champions League-bokaal. In de Champions League wacht in de kwartfinales...
+- [Niet Mussolini is de inspiratie voor radicaalrechts, maar Orban](https://www.ad.nl/binnenland/niet-mussolini-is-de-inspiratie-voor-radicaalrechts-maar-orban~a4f79ff4/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [LIVE Champions League | Bayern München begint goed tegen Real Madrid, maar Upamecano mist grote kans](https://www.ad.nl/voetbal/live-champions-league-bayern-munchen-begint-goed-tegen-real-madrid-maar-upamecano-mist-grote-kans~a42372a0/)
+  > Een heerlijk affiche in de kwartfinales van de Champions League: Real Madrid neemt het in een tweeluik op tegen Bayern München, waar topscorer Harry...
+- [Staat maakt bezwaar tegen bonus topvrouw KLM: ‘Ik vind het echt ongepast’](https://www.ad.nl/economie/staat-maakt-bezwaar-tegen-bonus-topvrouw-klm-ik-vind-het-echt-ongepast~a54410a9/)
+  > De Nederlandse staat gaat bezwaar maken tegen de beloningen aan de top van KLM. Minister van Financiën Eelco Heinen wil tijdens de komende...
+- [Jongetje belt vijf keer 112 en biedt later excuses aan met handgeschreven brief: ‘Ik doe het nooit meer’](https://www.ad.nl/ridderkerk/jongetje-belt-vijf-keer-112-en-biedt-later-excuses-aan-met-handgeschreven-brief-ik-doe-het-nooit-meer~afdcaf87/)
+  > Een schuldbewust jongetje heeft politieagenten in Ridderkerk verrast met een handgeschreven brief. Het kindje belde vijf keer 112, terwijl er geen...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Commerzbank houdt deur voor Unicredit dicht](https://fd.nl/financiele-markten/1592293/commerzbank-houdt-deur-voor-unicredit-dicht)
+- [EY gaat agentic AI inzetten bij jaarrekeningcontroles](https://fd.nl/bedrijfsleven/1592295/ey-gaat-agentic-ai-inzetten-bij-jaarrekeningcontroles)
+  > Het kantoor wil in 2028 alle controleopdrachten via zijn AI-platform laten lopen.
+- [Besteding van innovatiegeld moet doelmatiger](https://fd.nl/opinie/1592290/besteding-van-innovatiegeld-moet-doelmatiger)
+  > Als de overheid kapitalen uitgeeft die de grootste groep innovatieve bedrijven niet bereikt, dan gaat er iets mis.
+- [Kabinetsplan AOW-leeftijd speelt hoofdrol in debat met de senaat](https://fd.nl/politiek/1592389/kabinetsplan-aow-leeftijd-speelt-hoofdrol-in-debat-met-de-senaat)
+  > De D66-senaatsfractie leek ruimte te bieden om het kabinetsplan voor de AOW-leeftijd te schrappen. Maar premier Jetten herhaalde dat het kabinet een...
+- [Commerzbank houdt deur voor UniCredit dicht](https://fd.nl/financiele-markten/1592293/commerzbank-houdt-deur-voor-unicredit-dicht)
   > De Italiaanse bank heeft het bestuur van de Duitse Commerzbank niet kunnen overtuigen van de voordelen van zijn overnamebod.
 - [Buitenlandse beleggingsfondsen naar Hoge Raad wegens dividendbelasting](https://fd.nl/politiek/1592383/buitenlandse-beleggingsfondsen-naar-hoge-raad-wegens-dividendbelasting)
   > Buitenlandse fondsen gaan in cassatie om eventuele schadevergoeding na een Europese inbreukprocedure veilig te stellen.
-- [Juweliersketen Lucardi voorkomt faillissement na schuldregeling](https://fd.nl/bedrijfsleven/1592376/juweliersketen-lucardi-voorkomt-faillissement-na-schuldregeling)
-  > De Nederlandse keten voor betaalbare sieraden en horloges blijkt aan de ondergang te zijn ontsnapt. In de schuldregeling heeft ook de Belastingdienst...
-- [BYD op slavernijlijst in Brazilië](https://fd.nl/politiek/1592291/byd-op-slavernijlijst-in-brazilie)
-  > Brazilië zet BYD op een zwarte lijst na mensonterende arbeidsomstandigheden. De autobouwer loopt reputatieschade op in de belangrijkste buitenlandse...
-- [Gilead koopt Duits biotechbedrijf Tubulis voor €2,7 mrd](https://fd.nl/financiele-markten/1592289/gilead-koopt-duits-biotechbedrijf-tubulis-voor-2-7-mrd)
-  > De overname is al de derde dit jaar voor het Amerikaanse farmaconcern. Tubulis werkt aan de ontwikkeling van een nieuw soort medicijnen tegen kanker.
 
 ### Meest gelezen
 
