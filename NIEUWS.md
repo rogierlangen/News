@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-04-2026 om 22:42*
+*Laatst bijgewerkt: 07-04-2026 om 23:41*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Voetbalpodcast | ‘Dit voetbal staat mijlenver af van waar we in Nederland naar kijken’](https://www.ad.nl/voetbal/voetbalpodcast-dit-voetbal-staat-mijlenver-af-van-waar-we-in-nederland-naar-kijken~ac8603a9/)
+  > Het was een wervelende voetbalavond in de Champions League. Bayern München won met 1-2 bij Real Madrid, dat ook nog altijd kans heeft op de halve...
+- [VS en Iran akkoord met staakt-het-vuren van twee weken](https://www.ad.nl/buitenland/vs-en-iran-akkoord-met-staakt-het-vuren-van-twee-weken~ac528ac3/)
+  > De Amerikaanse president Donald Trump heeft een wapenstilstand van twee weken aangekondigd. Hiermee lijkt een grote aanval op de Iraanse...
 - [Arsenal slaat toe in extra tijd: Kai Havertz legt in Lissabon goede basis voor plek in halve finales](https://www.ad.nl/voetbal/arsenal-slaat-toe-in-extra-tijd-kai-havertz-legt-in-lissabon-goede-basis-voor-plek-in-halve-finales~ae12404f/)
   > Sporting en Arsenal hebben in Lissabon niet voor spektakel gezorgd, maar zoals zo vaak trok Arsenal op de valreep de zege over de streep. Kai Havertz...
 - [Redt Arne Slot seizoen van Liverpool met succes in Champions League? Dit is het programma](https://www.ad.nl/voetbal/redt-arne-slot-seizoen-van-liverpool-met-succes-in-champions-league-dit-is-het-programma~a8f002d0/)
   > De eerste kwartfinales van de Champions League zijn afgewerkt. Nog acht clubs hebben kans op de felbegeerde bokaal. Bekijk hier het programma en de...
 - [Nieuwe generatie van ’s werelds bestverkochte SUV: Toyota RAV4 kan als 4WD heel wat trekken](https://www.ad.nl/auto/nieuwe-generatie-van-s-werelds-bestverkochte-suv-toyota-rav4-kan-als-4wd-heel-wat-trekken~ae576c6f6/)
   > De Toyota RAV4 is de meest verkochte SUV ter wereld. Na dertig jaar maakt binnenkort de zesde generatie zijn opwachting in Nederland. Hij blijkt als...
-- [Bayern München wint spectaculaire kwartfinale in Spanje, maar is nog niet klaar met Real Madrid](https://www.ad.nl/voetbal/bayern-munchen-wint-spectaculaire-kwartfinale-in-spanje-maar-is-nog-niet-klaar-met-real-madrid~a42372a0/)
-  > Bayern München heeft een eerste stap gezet richting de halve finales van de Champions League, maar de Duitse topclub is nog niet klaar met Real...
-- [Spelers en supporters zingen Veerman toe op kampioensfeest PSV: ‘Joey in Oranje!’](https://www.ad.nl/voetbal/spelers-en-supporters-zingen-veerman-toe-op-kampioensfeest-psv-joey-in-oranje~a8cbfd98/)
-  > De spelers en staf van PSV zijn dinsdagavond gehuldigd op het bordes van het stadhuis in Eindhoven. Daar werd de selectie, die voor de derde keer op...
 
 ### Meest gelezen
 
