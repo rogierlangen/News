@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-04-2026 om 13:26*
+*Laatst bijgewerkt: 07-04-2026 om 15:13*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [In veel supermarktvlees zitten ook plantaardige ingrediënten](https://nos.nl/l/2609483)
+  > Een bakje gehakt of een rookworst uit de supermarkt: veel mensen zullen niet weten dat deze producten niet altijd uit puur vlees bestaan, maar...
+- [Hoog Amerikaans bezoek aan Orbán, vijf dagen voor verkiezingen](https://nos.nl/l/2609482)
+  > De Amerikaanse vicepresident Vance is in Hongarije. Het tweedaagse bezoek wordt gezien als een ultieme poging om de verkiezingen van komende zondag...
 - [Kanye West mag Verenigd Koninkrijk niet in](https://nos.nl/l/2609473)
   > Het Verenigd Koninkrijk weigert Kanye West toegang. Dat meldt de omroep BBC op basis van het Britse ministerie van Binnenlandse Zaken. De regering...
 - [Podcast De Dag: een 'Europese' NAVO, dagdroom of noodzaak?](https://nos.nl/l/2609470)
   > Zes weken na het begin van de oorlog met Iran ziet president Trump nog geen reden om die te beëindigen. Hij dreigt vandaag dat 'een hele samenleving...
-- [Kabinet: misschien toch softporno weghalen van tablets gevangenen](https://nos.nl/l/2609467)
+- [Kamer wil af van tablets voor gevangenen, kabinet wel bereid softporno eraf te halen](https://nos.nl/l/2609467)
   > Staatssecretaris Van Bruggen van Justitie overweegt toch om erotische content te verwijderen van de tablets die sommige gevangenen krijgen. Ze...
-- [Minister Heinen maakt bezwaar tegen beloning KLM-topvrouw: 'Echt ongepast'](https://nos.nl/l/2609465)
-  > De Nederlandse staat gaat bezwaar maken tegen de beloningen aan de top van KLM. Dat zegt minister van Financiën Heinen. Hij wil tijdens de komende...
-- [Vrouw (50) aangehouden in zaak kofferbakmoord Drenthe](https://nos.nl/l/2609464)
-  > De politie heeft een vrouw van 50 uit Emmen gearresteerd voor betrokkenheid bij de Drentse kofferbakmoord uit 2017.
-        De vrouw wordt verdacht...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ouders van gehandicapte kinderen strijden tegen groot bedrijf: ‘Besluit kán worden teruggedraaid’](https://www.ad.nl/binnenland/ouders-van-gehandicapte-kinderen-strijden-tegen-groot-bedrijf-besluit-kan-worden-teruggedraaid~aca25703/)
-  > Ouders van zeer ernstig gehandicapte kinderen hopen het besluit om vier zorgvilla’s te sluiten om zeep te helpen. Woensdag dient een zaak om de...
-- [Verenigd Koninkrijk weigert rapper Kanye West toegang](https://www.ad.nl/show/verenigd-koninkrijk-weigert-rapper-kanye-west-toegang~a24f13b9/)
-  > De Britse overheid laat rapper Ye, voorheen bekend als Kanye West, niet toe in het Verenigd Koninkrijk. Dat meldt de BBC. De afgelopen dagen ontstond...
-- [Reacties op president Trump: ‘Deze scheldende man zet de wereldvrede op het spel’](https://www.ad.nl/lezersbrieven/reacties-op-president-trump-deze-scheldende-man-zet-de-wereldvrede-op-het-spel~a0c409c0/)
-  > Met niet-ingrijpen aan de pomp en hogere btw ‘put de overheid de reserves van de burger uit’. En kan iemand ongestraft zijn naam op het lichaam van...
-- [PSV-aanhang juicht voor Jerdy Schouten: geblesseerde aanvoerder neemt kampioens­schaal in ontvangst](https://www.ad.nl/voetbal/psv-aanhang-juicht-voor-jerdy-schouten-geblesseerde-aanvoerder-neemt-kampioensschaal-in-ontvangst~a8cbfd98/)
-  > Vandaag is het eindelijk zover voor de PSV-supporters: de huldiging in de binnenstad van Eindhoven. De spelers gaan de platte kar op en worden later...
-- [Trump waarschuwt Iran: ‘Een hele beschaving zal vannacht sterven’](https://www.ad.nl/buitenland/trump-waarschuwt-iran-een-hele-beschaving-zal-vannacht-sterven~a1155234/)
-  > Trump voert de druk op Iran verder op in aanloop naar de door hem gestelde deadline. „Een hele beschaving zal vannacht sterven”, dreigt hij richting...
+- [United-legende wil Kees Smit dolgraag in Engeland zien: ‘We kunnen hem niet naar een andere club laten gaan’](https://www.ad.nl/transfernieuws/united-legende-wil-kees-smit-dolgraag-in-engeland-zien-we-kunnen-hem-niet-naar-een-andere-club-laten-gaan~ad106859/)
+  > Dat Kees Smit (20) uit Heiloo een groot talent is, is in Nederland inmiddels wel bekend. Maar de middenvelder van AZ en kersvers Oranje-international...
+- [Nasa deelt historische beelden waarop aarde wegzakt achter de maan](https://www.ad.nl/buitenland/nasa-deelt-historische-beelden-waarop-aarde-wegzakt-achter-de-maan~ad66dbcd2/)
+  > Nasa heeft een historische foto vrijgegeven van een ‘aardondergang’, waarbij de aarde achter de maan wegzakt. De foto werd maandag gemaakt tijdens de...
+- [Hoe PSV dankzij falende concurrentie op jacht kan naar het volgende record](https://www.ad.nl/voetbal/hoe-psv-dankzij-falende-concurrentie-op-jacht-kan-naar-het-volgende-record~a3769038/)
+  > Dankzij de zege op FC Utrecht kroonde PSV zich afgelopen zondag (5 april) tot vroegste landskampioen ooit in Nederland. Het eigen record uit 1978,...
+- [Nederland kiest weer voor Amerikaanse luchtafweer, ondanks Europese alternatieven: 'Dit is de kampioen'](https://www.ad.nl/binnenland/nederland-kiest-weer-voor-amerikaanse-luchtafweer-ondanks-europese-alternatieven-dit-is-de-kampioen~a4f6ac38/)
+  > Het Nederlandse leger heeft extra luchtafweer gekocht om ons land beter te beschermen tegen vijandelijke raketten. Het kabinet trekt nu de...
+- [Céline Dion voegt zes shows toe aan concertreeks in Parijs](https://www.ad.nl/show/celine-dion-voegt-zes-shows-toe-aan-concertreeks-in-parijs~ad03312e/)
+  > Céline Dion heeft zes concerten toegevoegd aan haar aanstaande concertreeks in Parijs. Dat heeft het team van de zangeres dinsdag aangekondigd, op de...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaanse vicepresident Vance bezoekt Hongarije om ‘vriend’ Orbán te steunen](https://fd.nl/politiek/1592281/amerikaanse-vicepresident-vance-bezoekt-hongarije-om-vriend-orban-te-steunen)
-  > Het bezoek onderstreept dat de Amerikaanse regering heeft gebroken met de traditie om zich niet te bemoeien met een nationale verkiezingsstrijd.
-- [Verenigde Staten vallen Iraans olie-eiland Kharg aan](https://fd.nl/politiek/1592378/verenigde-staten-vallen-iraanse-olie-eiland-kharg-aan)
-  > De Amerikaanse president Donald Trump dreigde vorige week al met de inname van het eiland in de Perzische Golf. Vanaf Kharg vertrekt zo’n 90% van de...
-- [Minister Heinen: hogere beloning topvrouw KLM is ‘ongepast’](https://fd.nl/politiek/1592275/minister-heinen-hogere-beloning-topvrouw-klm-is-ongepast)
-  > Het kabinet maakt bezwaar tegen een 30% hogere beloning voor Marjan Rintel. ‘Buitenproportioneel’, aldus de minister van Financiën.
-- [‘Misschien moet de volgende generatie haar bloembollen in het buitenland telen’](https://fd.nl/samenleving/1592118/misschien-moet-de-volgende-generatie-haar-bloembollen-in-het-buitenland-telen)
-  > Het Nederlandse water wordt zouter en bedreigt de bollenteelt in zijn bestaan. In 2050 is de verzilting in de Bollenstreek al ernstig, maar rond de...
-- [CNV-voorzitter Hans van den Heuvel: ‘We staan open voor een nieuw sociaal akkoord’](https://fd.nl/politiek/1592246/cnv-voorzitter-hans-van-den-heuvel-we-staan-open-voor-een-nieuw-sociaal-akkoord)
-  > Ingrepen in de sociale zekerheid gaan vooral middeninkomens hard raken, waarschuwt vakbond CNV. Voorzitter Hans van den Heuvel wil met het kabinet om...
+- [Rabo: Iran-oorlog leidt eind dit jaar in Europa tot hogere voedselprijzen](https://fd.nl/economie/1592384/rabo-iran-oorlog-leidt-eind-dit-jaar-in-europa-tot-hogere-voedselprijzen)
+  > De energie-afhankelijke voedselketen reageert vertraagd op de hogere brandstofprijzen door de oorlog in Iran. Maar eind dit jaar is het zover,...
+- [Vermogensbeheerder BlackRock is jager en prooi in ETF-oorlog](https://fd.nl/financiele-markten/1592266/vermogensbeheerder-blackrock-is-jager-en-prooi-in-etf-oorlog)
+  > Het Amerikaanse bedrijf komt met een ETF op de Nasdaq 100, waar Invesco de facto monopolist is, maar krijgt er in de vorm van zakenbank Morgan...
+- [Brazilië overweegt uitgeven van staatsobligatie in euro’s](https://fd.nl/financiele-markten/1592382/brazilie-overweegt-uitgeven-van-staatsobligatie-in-euros)
+  > Het land peilt de interesse van beleggers in obligatie-uitgiftes, waaronder een mogelijke euro-obligatie. Dat schrijft persbureau Bloomberg op basis...
+- [Van Leeuwen: meer vraag naar buizen voor spoedreparaties in Golfregio](https://fd.nl/bedrijfsleven/1592380/van-leeuwen-meer-vraag-naar-buizen-voor-spoedreparaties-in-golfregio)
+  > Het concern uit Zwijndrecht verwacht op middellange termijn te kunnen profiteren van meer investeringen in energiezekerheid. In 2025 daalde de winst...
+- [Is VodafoneZiggo van de bank?](https://fd.nl/financiele-markten/1592237/is-vodafoneziggo-van-de-bank)
+  > De verkoop van het belang van Vodafone in VodafoneZiggo aan Liberty Global roept vragen op over de waarde van het Nederlandse telecombedrijf.
 
 ### Meest gelezen
 
