@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-04-2026 om 23:40*
+*Laatst bijgewerkt: 07-04-2026 om 02:48*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Gewapende overval op casino in Apeldoorn, daders vluchten met buit](https://nos.nl/l/2609350)
+  > In Apeldoorn is een gewapende overval gepleegd op een casino. De daders zijn met de buit gevlucht, meldt de politie. Hoeveel ze hebben gestolen, is...
+- [WHO zet evacuaties Gaza voorlopig stop na dood medewerker](https://nos.nl/l/2609349)
+  > De Wereldgezondheidsorganisatie (WHO) zet de medische evacuaties in de Gazastrook voorlopig stil na de dood van een medewerker. Volgens WHO-directeur...
 - [Artemis II bereikt achterkant maan en vestigt afstandsrecord](https://nos.nl/l/2609348)
   > De astronauten van de Artemis II hebben hun belangrijkste opdracht volbracht. Vannacht vlogen ze langs de achterkant van de maan. Daarbij zweefden ze...
 - [Bangladesh start noodvaccinatiecampagne na grote uitbraak mazelen](https://nos.nl/l/2609340)
   > De regering van Bangladesh begint samen met de Wereldgezondheidsorganisatie (WHO) en Unicef een noodvaccinatiecampagne tegen mazelen en rodehond...
 - [Estland wil ‘AI-sprong’ maken op scholen met speciale versie ChatGPT](https://nos.nl/l/2609339)
   > Samenwerken met de nieuwe hulpdocent is duidelijk even wennen voor de scholieren van het Mustamäe-gymnasium in Tallinn. "Hij stelt zoveel vragen!",...
-- [Leider Taiwanese oppositiepartij voor het eerst in tien jaar naar China](https://nos.nl/l/2609336)
-  > De leider van de Taiwanese oppositiepartij Kuomintang (KMT) brengt deze week een bezoek aan China voor een ontmoeting met de top van de...
-- [Tweede paasdag: drukbezochte bloemenvelden, een dichte IKEA en een gaspistool](https://nos.nl/l/2609333)
-  > In lenteachtige temperaturen en met volop zon is in het hele land tweede paasdag gevierd. Vanwege het mooie weer trokken veel mensen eropuit.
-       ...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Voetbalpodcast | ‘Arne Slot moet iets forceren om te voorkomen dat het seizoen van Liverpool doodbloedt’](https://www.ad.nl/voetbal/voetbalpodcast-arne-slot-moet-iets-forceren-om-te-voorkomen-dat-het-seizoen-van-liverpool-doodbloedt~ac8603a9/)
-  > De positie van trainer Arne Slot bij Liverpool is al maanden onderwerp van gesprek. Ondanks een landstitel in zijn eerste seizoen bij de club is hij...
-- [Noodvaccinatiecampagne gestart in Bangladesh wegens grote mazelenuitbraak](https://www.ad.nl/buitenland/noodvaccinatiecampagne-gestart-in-bangladesh-wegens-grote-mazelenuitbraak~a03ba799/)
-  > In Bangladesh is zondag een noodvaccinatiecampagne gestart om meer dan een miljoen kinderen zo snel mogelijk in te enten tegen mazelen. In het land...
-- [Energiebedrijf ONE-Dyas schaalt gaswinning uit veld in Noordzee op met tweede productieput](https://www.ad.nl/economie/energiebedrijf-one-dyas-schaalt-gaswinning-uit-veld-in-noordzee-op-met-tweede-productieput~a8a4078e/)
-  > Het Nederlandse energiebedrijf ONE-Dyas heeft zijn gasproductie in de Noordzee uitgebreid. Bij het platform N05-A, 20 kilometer ten noorden van...
-- [Danny Noppert grijpt naast winst in München: Nathan Aspinall te sterk in finale](https://www.ad.nl/darts/danny-noppert-grijpt-naast-winst-in-munchen-nathan-aspinall-te-sterk-in-finale~a9b9b625/)
-  > Danny Noppert heeft voor de vierde keer in zijn carrière een finale van een Euro Tour-toernooi verloren. In de German Darts Grand Prix in München was...
-- [Diemers niet blij met aanbieding van Cambuur, td Napoli waarschuwt Lukaku](https://www.ad.nl/voetbal/diemers-niet-blij-met-aanbieding-van-cambuur-td-napoli-waarschuwt-lukaku~a35ea681/)
-  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Israël en Iran bestoken elkaar met raketten nadat Iran wapenstilstand afwijst](https://www.ad.nl/buitenland/israel-en-iran-bestoken-elkaar-met-raketten-nadat-iran-wapenstilstand-afwijst~ac528ac3/)
+  > Als Iran voor morgenavond niet akkoord gaat met de eisen van de VS, zal elke brug en elke energiecentrale in het land vernield worden. Dat zegt de...
+- [Aanklacht rapper Lil Nas X geschrapt als hij doorgaat met behandeling](https://www.ad.nl/show/aanklacht-rapper-lil-nas-x-geschrapt-als-hij-doorgaat-met-behandeling~a0d71e6c/)
+  > De rechtszaak tegen de Amerikaanse rapper Lil Nas X wordt geseponeerd als hij zich laat behandelen aan zijn bipolaire stoornis en in de komende twee...
+- [Yvonne Coldeweijer over het tv‑programma dat er nooit kwam: ‘Wat hier gebeurt, is niet zuiver’](https://www.ad.nl/show/yvonne-coldeweijer-over-het-tvprogramma-dat-er-nooit-kwam-wat-hier-gebeurt-is-niet-zuiver~a8850fdf/)
+  > Yvonne Coldeweijer was naar eigen zeggen bereid ‘alles te geven voor John de Mols 9 ton’. Inmiddels vecht ze tegen de mediamagnaat in een juridisch...
+- [Casino in Apeldoorn overvallen, daders gaan er met onbekende buit vandoor](https://www.ad.nl/binnenland/casino-in-apeldoorn-overvallen-daders-gaan-er-met-onbekende-buit-vandoor~a55c907a/)
+  > In Apeldoorn is in de nacht van maandag op dinsdag een casino overvallen. Het gaat om een casino aan de Arnhemseweg, meldt de politie Gelderland op X.
+- [Historisch record: nooit eerder waren astronauten zo ver verwijderd van aarde](https://www.ad.nl/buitenland/historisch-record-nooit-eerder-waren-astronauten-zo-ver-verwijderd-van-aarde~aa9301ab/)
+  > De vier astronauten van de Artemis II-missie hebben maandagavond tijdens hun ‘flyby’ langs de maan het record verbroken van de grootste afstand die...
 
 ### Meest gelezen
 
