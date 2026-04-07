@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-04-2026 om 21:48*
+*Laatst bijgewerkt: 07-04-2026 om 22:42*
 
 ---
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Erger dan ooit](https://fd.nl/opinie/1592377/erger-dan-ooit)
+  > Deze crisis is echt onvergelijkbaar. Er komt niet alleen een tekort aan brandstof, maar ook aan veel chemicaliën.
+- [Ze lachte, dus het zal wel meevallen](https://fd.nl/opinie/1592131/ze-lachte-dus-het-zal-wel-meevallen)
+  > Wat zegt een lach, een dag na een ingrijpende gebeurtenis? Minder dan we graag denken – en zeker niets doorslaggevends.
+- [Personalia woensdag 8 april](https://fd.nl/bedrijfsleven/1592279/personalia-woensdag-8-april)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [Wall Street sluit vlak tijdens oorlogsretoriek](https://fd.nl/financiele-markten/1592433/wall-street-sluit-vlak-tijdens-oorlogsretoriek)
   > Saoedische olie kostte dinsdag ruim $126 per vat.
 - [Kamer komt met trits eisen, maar kabinet kan door met Tata-plan](https://fd.nl/politiek/1592297/kamer-komt-met-trits-eisen-maar-kabinet-kan-door-met-tata-plan)
-  > De Tweede Kamer nog veel wensen rond de vergroening van Tata Steel, maar een meerderheid vindt dat het kabinet de onderhandelingen met het...
-- [EY gaat agentic AI inzetten bij jaarrekeningcontroles](https://fd.nl/bedrijfsleven/1592295/ey-gaat-agentic-ai-inzetten-bij-jaarrekeningcontroles)
-  > Het kantoor wil in 2028 alle controleopdrachten via zijn AI-platform laten lopen.
-- [Besteding van innovatiegeld moet doelmatiger](https://fd.nl/opinie/1592290/besteding-van-innovatiegeld-moet-doelmatiger)
-  > Als de overheid kapitalen uitgeeft die de grootste groep innovatieve bedrijven niet bereikt, dan gaat er iets mis.
-- [Kabinetsplan AOW-leeftijd speelt hoofdrol in debat met de senaat](https://fd.nl/politiek/1592389/kabinetsplan-aow-leeftijd-speelt-hoofdrol-in-debat-met-de-senaat)
-  > De D66-senaatsfractie leek ruimte te bieden om het kabinetsplan voor de AOW-leeftijd te schrappen. Maar premier Jetten herhaalde dat het kabinet een...
+  > De Tweede Kamer heeft nog veel wensen rond de vergroening van Tata Steel, maar een meerderheid vindt dat het kabinet de onderhandelingen met het...
 
 ### Meest gelezen
 
