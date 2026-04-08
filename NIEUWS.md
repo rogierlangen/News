@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-04-2026 om 23:41*
+*Laatst bijgewerkt: 08-04-2026 om 02:49*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Berendsen en Van Weel in Marokko, 'onderstreept goede banden'](https://nos.nl/l/2609552)
-  > De minister van Buitenlandse Zaken Tom Berendsen is samen met minister van Justitie en Veiligheid David van Weel in Marokko voor een tweedaags...
-- [Kamer 'onder voorwaarden' akkoord met miljarden voor vergroening Tata Steel](https://nos.nl/l/2609550)
-  > Alleen als er harde afspraken komen, gaat de Tweede Kamer akkoord met 2 miljard euro subsidie voor Tata Steel. Daarmee kan het kabinet nu door met de...
-- [Bedrijf dat software levert voor patiëntendossiers aangevallen door hackers](https://nos.nl/l/2609548)
-  > Zorgleverancier ChipSoft is getroffen door een hack met gijzelsoftware. Dat meldt Z-Cert, het expertisecentrum voor digitale beveiliging in de zorg,...
-- [Nog volop plastic wegwerpbekers op festivals, ondanks verbod](https://nos.nl/l/2609540)
-  > Het merendeel van de festivals gebruikt ondanks een verbod nog plastic wegwerpbekers. Dat concludeert de Inspectie Leefomgeving en Transport (ILT) na...
-- [Wat staat ons te wachten door de wekenlange sluiting van de Straat van Hormuz?](https://nos.nl/l/2609537)
-  > Vannacht loopt het ultimatum van president Trump aan Iran af. Hij eist dat het land akkoord gaat met een Amerikaans voorstel, dat onder meer gaat...
+- [54 wielrenners opgespoord die rood licht negeerden tijdens Ronde van Vlaanderen](https://nos.nl/l/2609557)
+  > Het Belgisch Openbaar Ministerie gaat een groep wielrenners vervolgen die zondag tijdens de Ronde van Vlaanderen bij een spoorwegovergang een rood...
+- [In Irak ontvoerde Amerikaanse journalist vrijgelaten](https://nos.nl/l/2609556)
+  > De Amerikaanse journalist Shelly Kittleson, die vorige week in Irak werd ontvoerd, is vrijgelaten. Dat heeft de Amerikaanse minister van Buitenlandse...
+- [Medewerker van slachthuis in Helmond overleden bij bedrijfsongeval](https://nos.nl/l/2609555)
+  > In Brabant is afgelopen avond een medewerker van een slachthuis overleden bij een bedrijfsongeval. Het gebeurde bij een bedrijf in Helmond.
+       ...
+- [Janine Abbring presenteert laatste seizoen Zomergasten](https://nos.nl/l/2609554)
+  > Presentator Janine Abbring gaat het laatste seizoen van Zomergasten presenteren. Dat heeft ze gezegd in het programma LUBACH, waar ze eindredacteur...
+- [VS en Iran akkoord over een staakt-het-vuren van twee weken](https://nos.nl/l/2609553)
+  > De Verenigde Staten en Iran zijn akkoord met een staakt-het-vuren van twee weken. De VS zal samen met Israël stoppen met het uitvoeren van aanvallen....
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [VS en Iran akkoord met staakt-het-vuren van twee weken, dat volgens Pakistan meteen ingaat](https://www.ad.nl/buitenland/vs-en-iran-akkoord-met-staakt-het-vuren-van-twee-weken-dat-volgens-pakistan-meteen-ingaat~ac528ac3/)
+  > De Amerikaanse president Donald Trump heeft een wapenstilstand van twee weken aangekondigd. Hiermee lijkt een grote aanval op de Iraanse...
+- [Onderzoekers slaan alarm: kleine ondernemers dreigen uit armere wijken te verdwijnen](https://www.ad.nl/binnenland/onderzoekers-slaan-alarm-kleine-ondernemers-dreigen-uit-armere-wijken-te-verdwijnen~a47da363/)
+  > In armere wijken moet weer plek worden gemaakt voor kleine ondernemers uit de buurt. Door de woningnood en hoge prijzen dreigen zij nu het veld te...
 - [Voetbalpodcast | ‘Dit voetbal staat mijlenver af van waar we in Nederland naar kijken’](https://www.ad.nl/voetbal/voetbalpodcast-dit-voetbal-staat-mijlenver-af-van-waar-we-in-nederland-naar-kijken~ac8603a9/)
   > Het was een wervelende voetbalavond in de Champions League. Bayern München won met 1-2 bij Real Madrid, dat ook nog altijd kans heeft op de halve...
-- [VS en Iran akkoord met staakt-het-vuren van twee weken](https://www.ad.nl/buitenland/vs-en-iran-akkoord-met-staakt-het-vuren-van-twee-weken~ac528ac3/)
-  > De Amerikaanse president Donald Trump heeft een wapenstilstand van twee weken aangekondigd. Hiermee lijkt een grote aanval op de Iraanse...
 - [Arsenal slaat toe in extra tijd: Kai Havertz legt in Lissabon goede basis voor plek in halve finales](https://www.ad.nl/voetbal/arsenal-slaat-toe-in-extra-tijd-kai-havertz-legt-in-lissabon-goede-basis-voor-plek-in-halve-finales~ae12404f/)
   > Sporting en Arsenal hebben in Lissabon niet voor spektakel gezorgd, maar zoals zo vaak trok Arsenal op de valreep de zege over de streep. Kai Havertz...
 - [Redt Arne Slot seizoen van Liverpool met succes in Champions League? Dit is het programma](https://www.ad.nl/voetbal/redt-arne-slot-seizoen-van-liverpool-met-succes-in-champions-league-dit-is-het-programma~a8f002d0/)
   > De eerste kwartfinales van de Champions League zijn afgewerkt. Nog acht clubs hebben kans op de felbegeerde bokaal. Bekijk hier het programma en de...
-- [Nieuwe generatie van ’s werelds bestverkochte SUV: Toyota RAV4 kan als 4WD heel wat trekken](https://www.ad.nl/auto/nieuwe-generatie-van-s-werelds-bestverkochte-suv-toyota-rav4-kan-als-4wd-heel-wat-trekken~ae576c6f6/)
-  > De Toyota RAV4 is de meest verkochte SUV ter wereld. Na dertig jaar maakt binnenkort de zesde generatie zijn opwachting in Nederland. Hij blijkt als...
 
 ### Meest gelezen
 
