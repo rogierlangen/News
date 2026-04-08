@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-04-2026 om 21:48*
+*Laatst bijgewerkt: 08-04-2026 om 22:46*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Voedingscentrum vernieuwt Schijf van Vijf: maximaal één gehaktbal per week](https://nos.nl/l/2609676)
+  > Nederlanders zouden minder vlees en meer plantaardige eiwitten moeten eten. Dat staat in de nieuwe Schijf van Vijf, die het Voedingscentrum vandaag...
 - [Na jaren strijd voor hun kwelder mogen de Wierummers er nu niet naartoe](https://nos.nl/l/2609671)
   > Rijkswaterstaat heeft de kwelder in de Waddenzee bij het Noord-Friese dorp Wierum afgesloten om de vogels te beschermen. Voor de bewoners van Wierum...
 - [15 jaar cel voor 'ketaminekoningin' die Matthew Perry dodelijke dosis verkocht](https://nos.nl/l/2609669)
@@ -16,8 +18,6 @@
   > NAVO-chef Rutte is in het Witte Huis in Washington en spreekt daar met de Amerikaanse president Trump. Volgens het Witte Huis keek Trump uit naar dat...
 - [Trump claimt succes met staakt-het-vuren: 'Maar Iran bepaalt de uitkomst'](https://nos.nl/l/2609663)
   > Na 40 dagen oorlog met Iran werd dinsdag, vlak voor het aflopen van Trumps ultimatum, een staakt-het-vuren voor twee weken bereikt. "Een grote dag...
-- [Moskeekoepel doet aangifte van vernieling bij gebedshuis in Zaandam](https://nos.nl/l/2609662)
-  > Onbekenden hebben afgelopen weekeinde "ernstige vernielingen" aangericht bij het educatief centrum dat wordt gebouwd bij de Sultan Ahmet Moskee in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Arne Slot legt uit waarom hij Mohamed Salah niet liet invallen tegen PSG: ‘Voor mij was die keuze niet ingewikkeld’](https://www.ad.nl/voetbal/arne-slot-legt-uit-waarom-hij-mohamed-salah-niet-liet-invallen-tegen-psg-voor-mij-was-die-keuze-niet-ingewikkeld~aff78bf1/)
+  > Het Liverpool van Arne Slot had weinig te vertellen in de eerste kwartfinale van de Champions League. Dat het op bezoek bij titelverdediger Paris...
+- [Volkswagen Kever bungelt aan enorme granietberg boven Canadese snelweg: ‘Hoe kregen ze die boven?’](https://www.ad.nl/buitenland/volkswagen-kever-bungelt-aan-enorme-granietberg-boven-canadese-snelweg-hoe-kregen-ze-die-boven~acf5c01b/)
+  > ‘Opeens’ hing die er, vlak onder de top van de 700 meter hoge Stawamus Chief in Canada, een van ’s werelds grootste koepelvormige granietbergen. Een...
+- [Nog meer peulvruchten, minder vlees en kaas in nieuwe Schijf van Vijf](https://www.ad.nl/gezond/nog-meer-peulvruchten-minder-vlees-en-kaas-in-nieuwe-schijf-van-vijf~a573b580/)
+  > Hoe eten we zo gezond mogelijk, met zo min mogelijk overlast voor het milieu en met oog voor veiligheid? De Schijf van Vijf is vernieuwd om die vraag...
+- [Defensie brengt woningbouw verder in het nauw: ‘Strijd om personeel’](https://www.ad.nl/binnenland/defensie-brengt-woningbouw-verder-in-het-nauw-strijd-om-personeel~aa405099/)
+  > De extra investeringen in Defensie zetten de woningbouw verder onder druk. De kans is groot dat er een strijd om technisch personeel ontstaat en de...
 - [Uitslagen Champions League | Dit zijn de resultaten van de kwartfinales en de data van de returns](https://www.ad.nl/voetbal/uitslagen-champions-league-dit-zijn-de-resultaten-van-de-kwartfinales-en-de-data-van-de-returns~a8f002d0/)
   > De eerste kwartfinales van de Champions League zijn afgewerkt. Nog acht clubs hebben kans op de felbegeerde bokaal. Bekijk hier het programma en de...
-- [Dubbele dreun vlak voor rust doet Barcelona de das om tegen Atlético, dat grote stap zet naar halve finale CL](https://www.ad.nl/voetbal/dubbele-dreun-vlak-voor-rust-doet-barcelona-de-das-om-tegen-atletico-dat-grote-stap-zet-naar-halve-finale-cl~a0325db8/)
-  > Atlético Madrid heeft een grote stap gezet op weg naar de halve finale van de Champions League. In Camp Nou profiteerden de bezoekers optimaal van...
-- [Arne Slot staat voor loodzware missie met Liverpool na nederlaag tegen oppermachtig PSG](https://www.ad.nl/voetbal/arne-slot-staat-voor-loodzware-missie-met-liverpool-na-nederlaag-tegen-oppermachtig-psg~ab30b9fd/)
-  > Paris Saint-Germain lijkt Liverpool op weg naar de halve finale al te hebben afgeschud. De Franse titelhouder van de Champions League was te sterk...
-- [Arjen Lubach gaat Nederlandse versie van komisch spelprogramma Taskmaster presenteren](https://www.ad.nl/show/arjen-lubach-gaat-nederlandse-versie-van-komisch-spelprogramma-taskmaster-presenteren~ad51bb46/)
-  > Cabaretier Arjen Lubach gaat de Nederlandse versie van het programma Taskmaster op RTL 4 presenteren. Zijn assistent in Taskmaster wordt Diederik...
-- [Vliegveld Curaçao paar uur dicht na melding van mogelijk explosief, vliegverkeer hervat](https://www.ad.nl/buitenland/vliegveld-curacao-paar-uur-dicht-na-melding-van-mogelijk-explosief-vliegverkeer-hervat~a5d1a7e9/)
-  > De internationale luchthaven van Curaçao is woensdagochtend twee uur gesloten geweest vanwege een bommelding. Volgens de nieuwssite Curaçao.nu...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Wall Street reageert opgelucht op wapenstilstand](https://fd.nl/financiele-markten/1592493/wall-street-reageert-opgelucht-op-wapenstilstand)
-  > ‘Dit is een pure opluchtingsrally, zeker na de escalatie eerder vorige week’, zei Leah Traub, portfoliomanager bij Lord Abbett & Co tegen persbureau...
-- [Beleggers opgelucht, maar bestand VS en Iran wordt op eerste dag al beproefd](https://fd.nl/politiek/1592464/beleggers-opgelucht-maar-bestand-vs-en-iran-wordt-op-eerste-dag-al-beproefd)
-  > De wapenstilstand heeft een verdere escalatie van de oorlog in het Midden-Oosten voorkomen. Maar de Straat van Hormuz bleef woensdag grotendeels...
-- [Vijlbrief onder vuur om ‘belasting op personeel’](https://fd.nl/politiek/1592336/vijlbrief-onder-vuur-om-belasting-op-personeel)
-  > Bij het commissiedebat over de werknemersverzekeringen kreeg minister Hans Vijlbrief (D66) van links en rechts kritiek op de voorgenomen...
-- [Toezicht op illegale trustdienstverlening blijft achter](https://fd.nl/opinie/1592441/toezicht-op-illegale-trustdienstverlening-blijft-achter)
-  > Tien jaar na de Panama Papers oogt de Nederlandse trustsector als een gesaneerd systeem. Dat is deels schone schijn.
-- [AMG kondigt aandelenuitgifte aan om nieuwe projecten te financieren](https://fd.nl/bedrijfsleven/1592335/amg-kondigt-aandelenuitgifte-aan-om-nieuwe-projecten-te-financieren)
-  > Het bedrijf wil maximaal 3,25 miljoen extra aandelen plaatsen, wat neerkomt op een verhoging van 10%.
+- [Bonusleed](https://fd.nl/opinie/1592463/bonusleed)
+  > ‘Je hebt er recht op,’ vindt FD-columnist Anna Dijkman over de bonus van KLM-topvrouw Marjan Rintel, ‘maar het kost je goodwill bij het personeel dat...
+- [Orbáns vrienden krijgen klappen op de Hongaarse beurs](https://fd.nl/financiele-markten/1592447/orbans-vrienden-krijgen-klappen-op-de-hongaarse-beurs)
+  > In de aanloop naar de parlementsverkiezingen op 12 april zijn de koersen van aan Orbán gelieerde bedrijven flink gedaald. Overwinning van de...
+- [Oorlogsenthousiasme – de olie bombarderen is leuk, als je het je kan permitteren](https://fd.nl/opinie/1592106/oorlogsenthousiasme-als-je-het-je-kan-permitteren)
+  > Oorlogen boden altijd al de kans om moed te demonstreren. Ook geven zouden ze de grote maatschappelijke problemen op kunnen lossen – volgens een...
+- [Personalia vrijdag 9 april](https://fd.nl/bedrijfsleven/1592311/personalia-vrijdag-9-april)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Na tien jaar nieuwe Schijf van Vijf: veel minder vlees en meer peulvruchten](https://fd.nl/samenleving/1592454/na-tien-jaar-nieuwe-schijf-van-vijf-veel-minder-vlees-en-meer-peulvruchten)
+  > Het Voedingscentrum schudt zijn voedingskompas voor gezond eten flink op. Het advies luidt om 40% minder vlees, de helft minder kaas en meer...
 
 ### Meest gelezen
 
