@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-04-2026 om 17:09*
+*Laatst bijgewerkt: 08-04-2026 om 19:23*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Ondanks vuurwerkverbod 93 mensen met brandwonden bij kampioensfeest PSV](https://nos.nl/l/2609658)
+  > Ondanks een vuurwerk- en fakkelverbod hebben zich gisteren bij het kampioensfeest van PSV in Eindhoven 93 mensen gemeld bij de verschillende...
+- [Iraniërs over broos staakt-het-vuren: 'Oranjekleurige hufter is op zijn plek gezet'](https://nos.nl/l/2609657)
+  > "We kochten powerbanks, pakjes paracetamol, kaarsen en nog wat andere spullen om het uit te zitten." Iraniërs bereidden zich gisteren in wanhoop voor...
 - [Zeeuwse scholen naar de rechter omdat de trein vier maanden niet rijdt](https://nos.nl/l/2609650)
   > Een aantal Zeeuwse scholen stapt naar de rechter om een test van ProRail met een nieuw beveiligingssysteem tegen te houden. Omdat reizigers tijdens...
 - [Kabinet onderzoekt Arbeidsongeschiktheidsfonds: 'Uitkijken dat draagvlak vervalt'](https://nos.nl/l/2609646)
   > Minister Vijlbrief (Sociale Zaken) wil het Arbeidsongeschiktheidsfonds (Aof) tegen het licht houden. Hij start een onderzoek naar de werking van het...
-- [Zwaarste Israëlische aanvallen op Libanon, op dag van staakt-het-vuren met Iran](https://nos.nl/l/2609643)
-  > Libanon valt niet onder het staakt-het-vuren dat de Verenigde Staten en Iran vannacht overeen zijn gekomen. Dat zeggen de Amerikaanse president Trump...
-- [Ook Grieken overstag, regering wil verbod op sociale media voor kinderen](https://nos.nl/l/2609642)
-  > Na onder meer Spanje, Frankrijk en het Verenigd Koninkrijk is Griekenland het volgende land dat de strijd aanbindt met sociale media. Vanaf volgend...
-- [Medewerker ABN Amro omgekomen door misdrijf, partner aangehouden](https://nos.nl/l/2609640)
-  > De politie heeft een 39-jarige man aangehouden in het onderzoek naar de dood van een vrouw, die eind maart dood werd gevonden in haar woning in...
+- [Zwaarste Israëlische aanvallen op Libanon met 254 doden, Iran sluit Straat van Hormuz](https://nos.nl/l/2609643)
+  > Het is vandaag de dodelijkste dag van de oorlog tussen Israël en Hezbollah: volgens de Libanese autoriteiten zijn er 254 mensen gedood. Het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Donald Trump de les lezen is geen klus voor een koning](https://www.ad.nl/commentaar/donald-trump-de-les-lezen-is-geen-klus-voor-een-koning~ad64f81f/)
-  > En toen sloten de VS en Iran alsnog een wapenstilstand. In Nederland heerst opluchting over een staakt-het-vuren van twee weken, al blijft het...
-- [Maarten in zwart, Paulien in ‘funky’ outfits: hoe de styliste losging in Slimste mens](https://www.ad.nl/show/maarten-in-zwart-paulien-in-funky-outfits-hoe-de-styliste-losging-in-slimste-mens~a97aa9c9/)
-  > Aan de zwarte truien van Maarten van Rossem was weinig eer te behalen, maar bij zijn opvolger, Slimste mens-jurylid Paulien Cornelisse, kan de...
-- [Ondanks vuurwerkverbod 93 mensen met brandwonden door fakkels bij huldiging PSV](https://www.ad.nl/eindhoven/ondanks-vuurwerkverbod-93-mensen-met-brandwonden-door-fakkels-bij-huldiging-psv~a18b93dd/)
-  > Ondanks het vuurwerkverbod dat gold rond de huldiging van PSV in Eindhoven hebben dinsdag 93 mensen brandwonden opgelopen door fakkels die werden...
-- [Na zes keer meppen was het dan tóch stuk: furieuze Daniil Medvedev gooit racket kapot na zwaarste nederlaag uit carrière](https://www.ad.nl/tennis/na-zes-keer-meppen-was-het-dan-toch-stuk-furieuze-daniil-medvedev-gooit-racket-kapot-na-zwaarste-nederlaag-uit-carriere~ae9af64f/)
-  > Daniil Medvedev heeft woensdag een uiterst pijnlijke middag beleefd in Monte Carlo. De Russische tennisser ging voor het eerst in zijn carrière met...
-- [Jutta Leerdam in het zonnetje gezet bij bezoek aan hoofdkantoor Nike: ‘Wat een fantastische dag’](https://www.ad.nl/schaatsen/jutta-leerdam-in-het-zonnetje-gezet-bij-bezoek-aan-hoofdkantoor-nike-wat-een-fantastische-dag~a9ef7749/)
-  > Ruim een maand na het einde van de Winterspelen kan Jutta Leerdam nog steeds nagenieten van haar olympische succes. De topschaatsster, die in Milaan...
+- [Eerste officiële warme dag van 2026 gemeten, Westdorpe tikte ruim 22 graden aan](https://www.ad.nl/binnenland/eerste-officiele-warme-dag-van-2026-gemeten-westdorpe-tikte-ruim-22-graden-aan~abbefd55/)
+  > In De Bilt is woensdagmiddag de eerste officiële warme dag van 2026 gemeten. Om 14.50 uur steeg de temperatuur op het hoofdstation naar 20 graden,...
+- [Dean James was niet speelgerechtigd, maar Go Ahead ontsnapt: ‘Speler en club waren niet op de hoogte van gevolgen’](https://www.ad.nl/voetbal/dean-james-was-niet-speelgerechtigd-maar-go-ahead-ontsnapt-speler-en-club-waren-niet-op-de-hoogte-van-gevolgen~a392e4d5/)
+  > De aanklager betaald voetbal neemt geen verdere stappen naar aanleiding van de paspoortgate rond Dean James. Er is vastgesteld dat de verdediger van...
+- [Dramatische start voor Liverpool: PSG scoort dankzij ongelukkige Gravenberch](https://www.ad.nl/voetbal/dramatische-start-voor-liverpool-psg-scoort-dankzij-ongelukkige-gravenberch~ab30b9fd/)
+  > Een pittige klus voor Arne Slot in de kwartfinales van de Champions League: Liverpool neemt het op tegen titelhouder Paris Saint-Germain. Wie doet...
+- [Trump bespreekt met Rutte de optie van een vertrek van de VS uit de Navo](https://www.ad.nl/buitenland/trump-bespreekt-met-rutte-de-optie-van-een-vertrek-van-de-vs-uit-de-navo~a1aada58/)
+  > De Amerikaanse president Donald Trump bespreekt woensdagavond met Navo-chef Mark Rutte de mogelijkheid van een vertrek van de VS uit de...
+- [Streep door openingstreffer Barcelona in vermakelijke openingsfase tegen Atlético](https://www.ad.nl/voetbal/streep-door-openingstreffer-barcelona-in-vermakelijke-openingsfase-tegen-atletico~a0325db8/)
+  > Een mooi affiche in de kwartfinales van de Champions League: de Spaanse clubs FC Barcelona en Atlético Madrid strijden om een plekje bij de laatste...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Vijlbrief onder vuur om ‘belasting op personeel’](https://fd.nl/politiek/1592336/vijlbrief-onder-vuur-om-belasting-op-personeel)
+  > Bij het commissiedebat over de werknemersverzekeringen kreeg minister Hans Vijlbrief (D66) van links en rechts kritiek op de voorgenomen...
+- [Toezicht op illegale trustdienstverlening blijft achter](https://fd.nl/opinie/1592441/toezicht-op-illegale-trustdienstverlening-blijft-achter)
+  > Tien jaar na de Panama Papers oogt de Nederlandse trustsector als een gesaneerd systeem. Dat is deels schone schijn.
+- [AMG kondigt aandelenuitgifte aan om nieuwe projecten te financieren](https://fd.nl/bedrijfsleven/1592335/amg-kondigt-aandelenuitgifte-aan-om-nieuwe-projecten-te-financieren)
+  > Het bedrijf wil maximaal 3,25 miljoen extra aandelen plaatsen, wat neerkomt op een verhoging van 10%.
+- [Aandeelhouders stemmen ondanks kritiek in met hogere bonus Ahold-top](https://fd.nl/bedrijfsleven/1592314/aandeelhouders-stemmen-ondanks-kritiek-in-met-hogere-bonus-ahold-top)
+  > Beleggersvereniging VEB adviseerde tegen de ‘agressieve verhoging’ van de beloning van topman Frans Muller en van andere bestuursleden.
 - [Cabinepersoneel Lufthansa staakt vrijdag in Frankfurt en München](https://fd.nl/bedrijfsleven/1592334/cabinepersoneel-lufthansa-staakt-vrijdag-in-frankfurt-en-munchen)
   > Vakbond UFO heeft het cabinepersoneel opgeroepen om op 10 april het werk neer te leggen tussen middernacht en 22.00 uur.
-- [Delta Air Lines verwacht $2 mrd extra kosten door hoge kerosineprijs](https://fd.nl/bedrijfsleven/1592462/delta-air-lines-verwacht-2mrd-extra-kosten-door-hoge-kerosineprijs)
-  > Toch houdt de Amerikaanse luchtvaartmaatschappij vast aan haar eerdere winstverwachting voor het hele jaar.
-- [Meta lanceert nieuw AI‑model Muse Spark](https://fd.nl/bedrijfsleven/1592461/meta-lanceert-nieuw-aimodel-muse-spark)
-  > Het model kan onder andere helpen bij het schatten van calorieën in een maaltijd op basis van een foto. Dergelijke functies bestaan al bij sommige...
-- [IMF: meer geld naar defensie geen garantie voor groei](https://fd.nl/economie/1592333/imf-meer-geld-naar-defensie-geen-garantie-voor-groei)
-  > Een positief vliegwieleffect blijft doorgaans uit, concludeert het Internationaal Monetair Fonds op basis van een eigen onderzoek naar 164 landen...
-- [President Paramount Skydance treedt af, zou bedrijfsinformatie hebben gelekt](https://fd.nl/bedrijfsleven/1592332/president-paramount-skydance-treedt-af-zou-bedrijfsinformatie-hebben-gelekt)
-  > De professionele gokker R.J. Cipriani klaagde Shell aan voor $150 mln omdat hij een belofte om een tv-show met hem te maken niet zou zijn nagekomen.
 
 ### Meest gelezen
 
