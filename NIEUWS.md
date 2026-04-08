@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-04-2026 om 15:14*
+*Laatst bijgewerkt: 08-04-2026 om 17:09*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Opluchting over opening Straat van Hormuz, toch herstelt energiemarkt zich niet zomaar](https://nos.nl/l/2609632)
-  > Enkele uren nadat de Verenigde Staten en Iran een staakt-het-vuren hadden gesloten, waagden vier schepen vanmorgen de tocht door de Straat van...
-- [Celstraf voor 20-jarige die opdracht gaf voor plaatsen explosief bij Pizzabakkers](https://nos.nl/l/2609626)
-  > De rechtbank Amsterdam heeft een 20-jarige man veroordeeld tot vijftien maanden celstraf omdat hij een jongen van 14 opdracht heeft gegeven om een...
-- [Celstraf en tbs geëist in grote sextortion-zaak, politie begint campagne](https://nos.nl/l/2609625)
-  > In wéér een grote sextortion-zaak heeft het Openbaar Ministerie vandaag negen jaar gevangenisstraf en tbs geëist. Naar aanleiding van de zaak start...
-- [Tbs voor man die moeder onthoofdde in Hellevoetsluis](https://nos.nl/l/2609623)
-  > De 32-jarige Jesse R. is veroordeeld tot tbs met dwangverpleging. Hij moet dus naar een tbs-kliniek. Volgens de rechtbank staat vast dat R. vorig...
-- [In kringloop gevonden trouwalbum uit 1944 weer terug bij familie](https://nos.nl/l/2609620)
-  > Een trouwalbum uit 1944 dat werd gevonden in een kringloopwinkel, is weer terug bij de Rotterdamse nabestaanden. Monique van Erp vond het onlangs in...
+- [Zeeuwse scholen naar de rechter omdat de trein vier maanden niet rijdt](https://nos.nl/l/2609650)
+  > Een aantal Zeeuwse scholen stapt naar de rechter om een test van ProRail met een nieuw beveiligingssysteem tegen te houden. Omdat reizigers tijdens...
+- [Kabinet onderzoekt Arbeidsongeschiktheidsfonds: 'Uitkijken dat draagvlak vervalt'](https://nos.nl/l/2609646)
+  > Minister Vijlbrief (Sociale Zaken) wil het Arbeidsongeschiktheidsfonds (Aof) tegen het licht houden. Hij start een onderzoek naar de werking van het...
+- [Zwaarste Israëlische aanvallen op Libanon, op dag van staakt-het-vuren met Iran](https://nos.nl/l/2609643)
+  > Libanon valt niet onder het staakt-het-vuren dat de Verenigde Staten en Iran vannacht overeen zijn gekomen. Dat zeggen de Amerikaanse president Trump...
+- [Ook Grieken overstag, regering wil verbod op sociale media voor kinderen](https://nos.nl/l/2609642)
+  > Na onder meer Spanje, Frankrijk en het Verenigd Koninkrijk is Griekenland het volgende land dat de strijd aanbindt met sociale media. Vanaf volgend...
+- [Medewerker ABN Amro omgekomen door misdrijf, partner aangehouden](https://nos.nl/l/2609640)
+  > De politie heeft een 39-jarige man aangehouden in het onderzoek naar de dood van een vrouw, die eind maart dood werd gevonden in haar woning in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Juist in periode rond rechtszaak brengt Yvonne Coldeweijer het ene na het andere nieuwtje over A-sterren](https://www.ad.nl/show/juist-in-periode-rond-rechtszaak-brengt-yvonne-coldeweijer-het-ene-na-het-andere-nieuwtje-over-a-sterren~acffb56c1/)
-  > Yvonne Coldeweijer staat sinds haar veelbesproken rechtszaak tegen Talpa weer vol in de spotlights. Niet alleen vanwege haar strijd met John de Mol,...
-- [Peloton maakt zich op voor sprint in Scheldeprijs: wordt het Tim Merlier, Jasper Philipsen of toch Dylan Groenewegen?](https://www.ad.nl/wielrennen/peloton-maakt-zich-op-voor-sprint-in-scheldeprijs-wordt-het-tim-merlier-jasper-philipsen-of-toch-dylan-groenewegen~abf7aed3/)
-  > De Scheldeprijs is dé koers van de sprinters. Jasper Philipsen, Dylan Groenewegen en Tim Merlier hopen in het Belgische Schoten naar de zege te...
-- [TikTok is na een overlijden rouwplaats voor tieners: ‘Online kun je geen arm om iemand heen slaan’](https://www.ad.nl/binnenland/tiktok-is-na-een-overlijden-rouwplaats-voor-tieners-online-kun-je-geen-arm-om-iemand-heen-slaan~a414534c/)
-  > Na het overlijden van jongeren gebeurt het steeds vaker: op TikTok verschijnen talloze video’s waarin vrienden, bekenden en soms onbekenden hun...
-- [Kampeergigant Obelink uit Winterswijk is de derde winnaar van de Nationale Ondernemersprijs](https://www.ad.nl/economie/kampeergigant-obelink-uit-winterswijk-is-de-derde-winnaar-van-de-nationale-ondernemersprijs~a2dd8a44/)
-  > De grootste kampeerwinkel van Nederland, Obelink uit de Achterhoek, heeft de derde editie van De Nationale Ondernemersprijs gewonnen. Het...
-- [Benzineprijs zal ‘mondjesmaat’ zakken door staakt-het-vuren Midden-Oosten](https://www.ad.nl/economie/benzineprijs-zal-mondjesmaat-zakken-door-staakt-het-vuren-midden-oosten~a25c6417/)
-  > Hoewel de olieprijzen woensdag hard daalden door een voorlopig staakt-het-vuren in het Midden-Oosten, zullen de prijzen aan de pomp de komende dagen...
+- [Donald Trump de les lezen is geen klus voor een koning](https://www.ad.nl/commentaar/donald-trump-de-les-lezen-is-geen-klus-voor-een-koning~ad64f81f/)
+  > En toen sloten de VS en Iran alsnog een wapenstilstand. In Nederland heerst opluchting over een staakt-het-vuren van twee weken, al blijft het...
+- [Maarten in zwart, Paulien in ‘funky’ outfits: hoe de styliste losging in Slimste mens](https://www.ad.nl/show/maarten-in-zwart-paulien-in-funky-outfits-hoe-de-styliste-losging-in-slimste-mens~a97aa9c9/)
+  > Aan de zwarte truien van Maarten van Rossem was weinig eer te behalen, maar bij zijn opvolger, Slimste mens-jurylid Paulien Cornelisse, kan de...
+- [Ondanks vuurwerkverbod 93 mensen met brandwonden door fakkels bij huldiging PSV](https://www.ad.nl/eindhoven/ondanks-vuurwerkverbod-93-mensen-met-brandwonden-door-fakkels-bij-huldiging-psv~a18b93dd/)
+  > Ondanks het vuurwerkverbod dat gold rond de huldiging van PSV in Eindhoven hebben dinsdag 93 mensen brandwonden opgelopen door fakkels die werden...
+- [Na zes keer meppen was het dan tóch stuk: furieuze Daniil Medvedev gooit racket kapot na zwaarste nederlaag uit carrière](https://www.ad.nl/tennis/na-zes-keer-meppen-was-het-dan-toch-stuk-furieuze-daniil-medvedev-gooit-racket-kapot-na-zwaarste-nederlaag-uit-carriere~ae9af64f/)
+  > Daniil Medvedev heeft woensdag een uiterst pijnlijke middag beleefd in Monte Carlo. De Russische tennisser ging voor het eerst in zijn carrière met...
+- [Jutta Leerdam in het zonnetje gezet bij bezoek aan hoofdkantoor Nike: ‘Wat een fantastische dag’](https://www.ad.nl/schaatsen/jutta-leerdam-in-het-zonnetje-gezet-bij-bezoek-aan-hoofdkantoor-nike-wat-een-fantastische-dag~a9ef7749/)
+  > Ruim een maand na het einde van de Winterspelen kan Jutta Leerdam nog steeds nagenieten van haar olympische succes. De topschaatsster, die in Milaan...
 
 ### Meest gelezen
 
@@ -46,17 +46,16 @@
 
 ### Laatste nieuws
 
-- [Oliepijpleiding van Saudi Aramco beschadigd door droneaanval](https://fd.nl/politiek/1592456/oliepijpleiding-van-saudi-aramco-beschadigd-door-droneaanval)
-  > Via de zogeheten Oost-West-pijpleiding kon oliemaatschappij Saudi Aramco vijf miljoen vaten per dag naar de havenstad Yanbu exporteren en zo de...
-- [Paniekindex zakt terug naar niveau voor oorlog in Golfregio](https://fd.nl/economie/1592329/paniekindex-zakt-terug-naar-niveau-voor-oorlog-in-golfregio)
-  > De zogeheten ‘paniekindex’ daalde woensdag naar het laagste punt sinds 27 februari, de dag voor de VS en Israël hun aanvallen op Iran begonnen.
-- [Een topman in de luchtvaart die luistert en vooruitkijkt](https://fd.nl/bedrijfsleven/1592445/een-topman-in-de-luchtvaart-die-luistert-en-vooruitkijkt)
-  > Door naar mensen te luisteren maakte ceo Luis Rodrigues van TAP Air weer een functionerende organisatie.
-- [ExxonMobil: 6% minder productie door oorlog](https://fd.nl/bedrijfsleven/1592325/exxonmobil-6-minder-productie-door-oorlog)
-  > Het olie- en gasconcern gaf woensdag als een van de eerste energiebedrijven aan wat de gevolgen zijn van de Iran-oorlog voor de eigen...
-- [Waarom bouwt Ebusco 
-geen dubbeldekkers?](https://fd.nl/financiele-markten/1592308/met-dit-uitgavepatroon-kan-ebusco-beter-dubbeldekkers-bouwen)
-  > Op elke verkochte bus legde de Deurnese onderneming min of meer eenzelfde bedrag in om overeind te blijven.
+- [Cabinepersoneel Lufthansa staakt vrijdag in Frankfurt en München](https://fd.nl/bedrijfsleven/1592334/cabinepersoneel-lufthansa-staakt-vrijdag-in-frankfurt-en-munchen)
+  > Vakbond UFO heeft het cabinepersoneel opgeroepen om op 10 april het werk neer te leggen tussen middernacht en 22.00 uur.
+- [Delta Air Lines verwacht $2 mrd extra kosten door hoge kerosineprijs](https://fd.nl/bedrijfsleven/1592462/delta-air-lines-verwacht-2mrd-extra-kosten-door-hoge-kerosineprijs)
+  > Toch houdt de Amerikaanse luchtvaartmaatschappij vast aan haar eerdere winstverwachting voor het hele jaar.
+- [Meta lanceert nieuw AI‑model Muse Spark](https://fd.nl/bedrijfsleven/1592461/meta-lanceert-nieuw-aimodel-muse-spark)
+  > Het model kan onder andere helpen bij het schatten van calorieën in een maaltijd op basis van een foto. Dergelijke functies bestaan al bij sommige...
+- [IMF: meer geld naar defensie geen garantie voor groei](https://fd.nl/economie/1592333/imf-meer-geld-naar-defensie-geen-garantie-voor-groei)
+  > Een positief vliegwieleffect blijft doorgaans uit, concludeert het Internationaal Monetair Fonds op basis van een eigen onderzoek naar 164 landen...
+- [President Paramount Skydance treedt af, zou bedrijfsinformatie hebben gelekt](https://fd.nl/bedrijfsleven/1592332/president-paramount-skydance-treedt-af-zou-bedrijfsinformatie-hebben-gelekt)
+  > De professionele gokker R.J. Cipriani klaagde Shell aan voor $150 mln omdat hij een belofte om een tv-show met hem te maken niet zou zijn nagekomen.
 
 ### Meest gelezen
 
