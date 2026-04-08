@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-04-2026 om 22:46*
+*Laatst bijgewerkt: 08-04-2026 om 23:41*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Voetbalpodcast | ‘Steven Berghuis zorgt niet voor het eerst voor een helder geluid bij Ajax’](https://www.ad.nl/voetbal/voetbalpodcast-steven-berghuis-zorgt-niet-voor-het-eerst-voor-een-helder-geluid-bij-ajax~ac8603a9/)
+  > Liverpool was geen partij voor PSG in Frankrijk in de Champions League en Atlético Madrid was te sterk voor FC Barcelona. Beide duels eindigden in...
 - [Arne Slot legt uit waarom hij Mohamed Salah niet liet invallen tegen PSG: ‘Voor mij was die keuze niet ingewikkeld’](https://www.ad.nl/voetbal/arne-slot-legt-uit-waarom-hij-mohamed-salah-niet-liet-invallen-tegen-psg-voor-mij-was-die-keuze-niet-ingewikkeld~aff78bf1/)
   > Het Liverpool van Arne Slot had weinig te vertellen in de eerste kwartfinale van de Champions League. Dat het op bezoek bij titelverdediger Paris...
 - [Volkswagen Kever bungelt aan enorme granietberg boven Canadese snelweg: ‘Hoe kregen ze die boven?’](https://www.ad.nl/buitenland/volkswagen-kever-bungelt-aan-enorme-granietberg-boven-canadese-snelweg-hoe-kregen-ze-die-boven~acf5c01b/)
@@ -35,8 +37,6 @@
   > Hoe eten we zo gezond mogelijk, met zo min mogelijk overlast voor het milieu en met oog voor veiligheid? De Schijf van Vijf is vernieuwd om die vraag...
 - [Defensie brengt woningbouw verder in het nauw: ‘Strijd om personeel’](https://www.ad.nl/binnenland/defensie-brengt-woningbouw-verder-in-het-nauw-strijd-om-personeel~aa405099/)
   > De extra investeringen in Defensie zetten de woningbouw verder onder druk. De kans is groot dat er een strijd om technisch personeel ontstaat en de...
-- [Uitslagen Champions League | Dit zijn de resultaten van de kwartfinales en de data van de returns](https://www.ad.nl/voetbal/uitslagen-champions-league-dit-zijn-de-resultaten-van-de-kwartfinales-en-de-data-van-de-returns~a8f002d0/)
-  > De eerste kwartfinales van de Champions League zijn afgewerkt. Nog acht clubs hebben kans op de felbegeerde bokaal. Bekijk hier het programma en de...
 
 ### Meest gelezen
 
