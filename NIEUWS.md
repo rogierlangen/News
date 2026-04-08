@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-04-2026 om 13:28*
+*Laatst bijgewerkt: 08-04-2026 om 15:14*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Opluchting over opening Straat van Hormuz, toch herstelt energiemarkt zich niet zomaar](https://nos.nl/l/2609632)
+  > Enkele uren nadat de Verenigde Staten en Iran een staakt-het-vuren hadden gesloten, waagden vier schepen vanmorgen de tocht door de Straat van...
+- [Celstraf voor 20-jarige die opdracht gaf voor plaatsen explosief bij Pizzabakkers](https://nos.nl/l/2609626)
+  > De rechtbank Amsterdam heeft een 20-jarige man veroordeeld tot vijftien maanden celstraf omdat hij een jongen van 14 opdracht heeft gegeven om een...
+- [Celstraf en tbs geëist in grote sextortion-zaak, politie begint campagne](https://nos.nl/l/2609625)
+  > In wéér een grote sextortion-zaak heeft het Openbaar Ministerie vandaag negen jaar gevangenisstraf en tbs geëist. Naar aanleiding van de zaak start...
+- [Tbs voor man die moeder onthoofdde in Hellevoetsluis](https://nos.nl/l/2609623)
+  > De 32-jarige Jesse R. is veroordeeld tot tbs met dwangverpleging. Hij moet dus naar een tbs-kliniek. Volgens de rechtbank staat vast dat R. vorig...
 - [In kringloop gevonden trouwalbum uit 1944 weer terug bij familie](https://nos.nl/l/2609620)
-  > Een verloren gewaand trouwalbum uit 1944 dat werd gevonden in een kringloopwinkel, is weer terug bij de Rotterdamse nabestaanden. Monique van Erp...
-- [Podcast De Dag: wat is de grens bij grensverlegger Kanye West?](https://nos.nl/l/2609616)
-  > Op z'n nieuwe album Bully staat het nummer Highs and Lows. En Kanye West, tegenwoordig Ye, kan opnieuw een low toevoegen aan z'n leven. De rapper mag...
-- [Succesvolle wervingscampagne Defensie leidt tot lange wachtlijst](https://nos.nl/l/2609614)
-  > Het lukt Defensie niet om sollicitanten snel genoeg te keuren en op te leiden. Dat zegt het ministerie na vragen van de NOS. "Het aantal aanmeldingen...
-- [Zeker tien mensen aangehouden na schietpartij Israëlische consulaat Istanbul](https://nos.nl/l/2609610)
-  > De Turkse autoriteiten hebben minstens tien mensen aangehouden in Istanbul in verband met de schietpartij gisteren bij het Israëlische consulaat. Dat...
-- [PSV biedt excuses aan voor 'onhandig' lied dat Flamingo zong tijdens huldiging](https://nos.nl/l/2609609)
-  > PSV heeft een dag na het kampioensfeest in Eindhoven afstand genomen van een actie van Ryan Flamingo, die tijdens de huldiging het lied 'Wie niet...
+  > Een trouwalbum uit 1944 dat werd gevonden in een kringloopwinkel, is weer terug bij de Rotterdamse nabestaanden. Monique van Erp vond het onlangs in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Mathieu van der Poel op recordjacht in Parijs-Roubaix: dit is zijn route naar succes in de kasseiklassieker](https://www.ad.nl/wielrennen/mathieu-van-der-poel-op-recordjacht-in-parijs-roubaix-dit-is-zijn-route-naar-succes-in-de-kasseiklassieker~af3782e0/)
-  > Mathieu van der Poel gaat zondag voor een recordzege in Parijs-Roubaix. Als hij wint in Noord-Frankrijk, komt de Nederlander met vier overwinningen...
-- [Vermeende Syrische folteraar zegt zelf slachtoffer te zijn: ‘Iemand probeert mij erin te luizen’](https://www.ad.nl/binnenland/vermeende-syrische-folteraar-zegt-zelf-slachtoffer-te-zijn-iemand-probeert-mij-erin-te-luizen~a0941bb0/)
-  > Rafik A. wachtte 28 maanden op deze dag. Hij wilde zijn proces gebruiken om ‘in alle vrijheid zijn verhaal te kunnen doen’. En die belofte kwam de...
-- [Blijft Paul Seixas regeren in Baskenland? Peloton op weg naar eerste beklimming](https://www.ad.nl/wielrennen/blijft-paul-seixas-regeren-in-baskenland-peloton-op-weg-naar-eerste-beklimming~a139aad4/)
-  > Paul Seixas is dé man van het Baskenland. De 19-jarige Fransman won zowel de eerste als de tweede etappe van de Ronde van het Baskenland. Woensdag...
-- [Gemeente stopt uitkering omdat man dure auto’s aanbiedt via Marktplaats, hij stapt naar rechter (met succes)](https://www.ad.nl/binnenland/gemeente-stopt-uitkering-omdat-man-dure-autos-aanbiedt-via-marktplaats-hij-stapt-naar-rechter-met-succes~a5c3a388/)
-  > Nieuwe telefoons en auto’s van tienduizenden euro’s aanbieden via Marktplaats, maar ondertussen een bijstandsuitkering ontvangen: de gemeente kwam er...
-- [Overleden vrouw (40) Amsterdam-Zuid door misdrijf om het leven gekomen, partner aangehouden](https://www.ad.nl/binnenland/overleden-vrouw-40-amsterdam-zuid-door-misdrijf-om-het-leven-gekomen-partner-aangehouden~aae25118/)
-  > De 40-jarige vrouw die op donderdag 26 maart in haar woning op de Koninginneweg in Amsterdam-Zuid levenloos werd aangetroffen, is volgens de politie...
+- [Juist in periode rond rechtszaak brengt Yvonne Coldeweijer het ene na het andere nieuwtje over A-sterren](https://www.ad.nl/show/juist-in-periode-rond-rechtszaak-brengt-yvonne-coldeweijer-het-ene-na-het-andere-nieuwtje-over-a-sterren~acffb56c1/)
+  > Yvonne Coldeweijer staat sinds haar veelbesproken rechtszaak tegen Talpa weer vol in de spotlights. Niet alleen vanwege haar strijd met John de Mol,...
+- [Peloton maakt zich op voor sprint in Scheldeprijs: wordt het Tim Merlier, Jasper Philipsen of toch Dylan Groenewegen?](https://www.ad.nl/wielrennen/peloton-maakt-zich-op-voor-sprint-in-scheldeprijs-wordt-het-tim-merlier-jasper-philipsen-of-toch-dylan-groenewegen~abf7aed3/)
+  > De Scheldeprijs is dé koers van de sprinters. Jasper Philipsen, Dylan Groenewegen en Tim Merlier hopen in het Belgische Schoten naar de zege te...
+- [TikTok is na een overlijden rouwplaats voor tieners: ‘Online kun je geen arm om iemand heen slaan’](https://www.ad.nl/binnenland/tiktok-is-na-een-overlijden-rouwplaats-voor-tieners-online-kun-je-geen-arm-om-iemand-heen-slaan~a414534c/)
+  > Na het overlijden van jongeren gebeurt het steeds vaker: op TikTok verschijnen talloze video’s waarin vrienden, bekenden en soms onbekenden hun...
+- [Kampeergigant Obelink uit Winterswijk is de derde winnaar van de Nationale Ondernemersprijs](https://www.ad.nl/economie/kampeergigant-obelink-uit-winterswijk-is-de-derde-winnaar-van-de-nationale-ondernemersprijs~a2dd8a44/)
+  > De grootste kampeerwinkel van Nederland, Obelink uit de Achterhoek, heeft de derde editie van De Nationale Ondernemersprijs gewonnen. Het...
+- [Benzineprijs zal ‘mondjesmaat’ zakken door staakt-het-vuren Midden-Oosten](https://www.ad.nl/economie/benzineprijs-zal-mondjesmaat-zakken-door-staakt-het-vuren-midden-oosten~a25c6417/)
+  > Hoewel de olieprijzen woensdag hard daalden door een voorlopig staakt-het-vuren in het Midden-Oosten, zullen de prijzen aan de pomp de komende dagen...
 
 ### Meest gelezen
 
@@ -46,16 +46,17 @@
 
 ### Laatste nieuws
 
-- [Waarom juist Pakistan opduikt als vredesduif tussen Iran en de VS](https://fd.nl/politiek/1592319/waarom-juist-pakistan-opduikt-als-vredesduif-tussen-iran-en-de-vs)
-  > Pakistan heeft zich ontpopt tot diplomatieke spil in het conflict tussen de VS en Iran. Maar de diplomatieke basis was al voor de oorlog gelegd.
-- [De miljardenfraude van de glamourbankier bij Banco Master houdt Brazilië in zijn greep](https://fd.nl/financiele-markten/1592292/de-miljardenfraude-van-de-glamourbankier-bij-banco-master-houdt-brazilie-in-zijn-greep)
-  > Glamourboy Daniel Vorcaro liet het breed hangen bij het succes van zijn Banco Master, maar fraudeerde er intussen flink op los. Nu vreest Braziliës...
-- [Elk nadeel heb z’n voordeel](https://fd.nl/financiele-markten/1592317/elk-nadeel-heb-zn-voordeel)
-  > Europa bouwt misschien niet de beste AI-modellen, maar de grootste economische waarde zit uiteindelijk niet in de technologie zelf, zegt FD-columnist...
-- [Je medemens prompten](https://fd.nl/opinie/1592437/je-medemens-prompten)
-  > Als we de communicatiestijl voor chatbots ook gaan toepassen op onze medemens, doordat we het normaal zijn gaan vinden, gaan we dan elkaar ook...
-- [Over ons bewustzijn is verbazingwekkend weinig bekend: ‘De wetenschap krijgt te vaak het laatste woord’](https://fd.nl/samenleving/1592388/over-ons-bewustzijn-is-verbazingwekkend-weinig-bekend-de-wetenschap-krijgt-te-vaak-het-laatste-woord)
-  > Het bewustzijn blijft een van de grootste mysteries van de natuur. Reden voor bestsellerauteur Michael Pollan om er diep in te duiken. ‘Machines...
+- [Oliepijpleiding van Saudi Aramco beschadigd door droneaanval](https://fd.nl/politiek/1592456/oliepijpleiding-van-saudi-aramco-beschadigd-door-droneaanval)
+  > Via de zogeheten Oost-West-pijpleiding kon oliemaatschappij Saudi Aramco vijf miljoen vaten per dag naar de havenstad Yanbu exporteren en zo de...
+- [Paniekindex zakt terug naar niveau voor oorlog in Golfregio](https://fd.nl/economie/1592329/paniekindex-zakt-terug-naar-niveau-voor-oorlog-in-golfregio)
+  > De zogeheten ‘paniekindex’ daalde woensdag naar het laagste punt sinds 27 februari, de dag voor de VS en Israël hun aanvallen op Iran begonnen.
+- [Een topman in de luchtvaart die luistert en vooruitkijkt](https://fd.nl/bedrijfsleven/1592445/een-topman-in-de-luchtvaart-die-luistert-en-vooruitkijkt)
+  > Door naar mensen te luisteren maakte ceo Luis Rodrigues van TAP Air weer een functionerende organisatie.
+- [ExxonMobil: 6% minder productie door oorlog](https://fd.nl/bedrijfsleven/1592325/exxonmobil-6-minder-productie-door-oorlog)
+  > Het olie- en gasconcern gaf woensdag als een van de eerste energiebedrijven aan wat de gevolgen zijn van de Iran-oorlog voor de eigen...
+- [Waarom bouwt Ebusco 
+geen dubbeldekkers?](https://fd.nl/financiele-markten/1592308/met-dit-uitgavepatroon-kan-ebusco-beter-dubbeldekkers-bouwen)
+  > Op elke verkochte bus legde de Deurnese onderneming min of meer eenzelfde bedrag in om overeind te blijven.
 
 ### Meest gelezen
 
