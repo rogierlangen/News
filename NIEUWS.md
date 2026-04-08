@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-04-2026 om 07:41*
+*Laatst bijgewerkt: 08-04-2026 om 09:07*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Theatermaker Norman de Palm overleden, grondlegger van Curaçaose film en theater](https://nos.nl/l/2609576)
+  > Film- en theatermaker Norman de Palm is op 78-jarige leeftijd overleden. Hij behoorde tot de grondleggers van de Curaçaose film en het theater en...
 - [Trimbos: meeste vapende jongeren gebruiken nog steeds smaakjesvapes](https://nos.nl/l/2609572)
   > Ondanks het verbod op de verkoop van vapes met smaakjes gebruiken veel jongeren in Nederland deze producten nog steeds. Dat blijkt uit nieuw...
 - [Tegenstrijdige berichten over of het staakt-het-vuren ook voor Libanon geldt](https://nos.nl/l/2609571)
@@ -16,8 +18,6 @@
   > Een jongetje dat meerdere keren onnodig naar 112 belde, heeft gisteren samen met zijn moeder persoonlijk excuses gemaakt op het politiebureau in...
 - [Zuyd Hogeschool tevreden over afschaffen bindend studieadvies](https://nos.nl/l/2609563)
   > Zuyd Hogeschool schafte 4,5 jaar geleden als eerste hogeschool in Nederland het bindend studieadvies af. Een vijfde van de studenten die volgens de...
-- [Wekdienst 8/4: Rutte langs bij Trump • Pleidooi in zaak tegen Inez Weski](https://nos.nl/l/2609559)
-  > Goedemorgen! In de zaak tegen oud-advocaat Inez Weski is het vandaag de beurt aan haar verdediging. Verder gaat NAVO-chef Rutte langs bij president...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van een Chinese auto een Mazda maken: zo pakt de ontwerper dat aan](https://www.ad.nl/auto/van-een-chinese-auto-een-mazda-maken-zo-pakt-de-ontwerper-dat-aan~aa57cf7a/)
-  > Wat als je als designer ineens moet werken met een auto die eigenlijk al bestaat bij een ander merk? Hoe kan het dat de Mazda 6e en CX-6e er...
-- [Bram Krikke en zijn vrouw Robin op huwelijksreis: tortelduifjes genieten van Tokio](https://www.ad.nl/show/bram-krikke-en-zijn-vrouw-robin-op-huwelijksreis-tortelduifjes-genieten-van-tokio~ab4cb080/)
-  > Bram Krikke (31) en zijn grote liefde Robin Holzken (28) genieten van hun huwelijksreis. De Qmusic-dj deelt woensdag een reeks foto’s van hun...
-- [Tankende automobilisten rijden vaker weg zonder te betalen](https://www.ad.nl/auto/tankende-automobilisten-rijden-vaker-weg-zonder-te-betalen~a0eeb42b/)
-  > Als gevolg van de hoge brandstofprijzen kunnen steeds meer automobilisten de verleiding niet weerstaan om na het tanken weg te rijden zonder te...
-- [Als Benjamin zijn camping in Italië wil verkopen, komt hij voor een nare verrassing te staan: ‘Oneerlijk’](https://www.ad.nl/buitenland/als-benjamin-zijn-camping-in-italie-wil-verkopen-komt-hij-voor-een-nare-verrassing-te-staan-oneerlijk~a1cb4816/)
-  > Twintig jaar geleden verwezenlijkten Benjamin en Sabine Stroo hun droom: ze kochten een camping in Italië. Nu willen ze van hun bedrijf af, maar de...
-- [Real Madrid houdt vertrouwen voor return tegen Bayern München: ‘Zegt wel iets dat Neuer hun beste speler was’](https://www.ad.nl/voetbal/real-madrid-houdt-vertrouwen-voor-return-tegen-bayern-munchen-zegt-wel-iets-dat-neuer-hun-beste-speler-was~a648e9d2/)
-  > Antonio Rüdiger ziet na de thuisnederlaag van Real Madrid tegen Bayern München (1-2) nog genoeg kans om de halve finale van de Champions League te...
+- [Go Ahead ontsnapt aan straf na paspoortkwestie, hoewel James niet speelgerechtigd was](https://www.ad.nl/voetbal/go-ahead-ontsnapt-aan-straf-na-paspoortkwestie-hoewel-james-niet-speelgerechtigd-was~a392e4d5/)
+  > De aanklager betaald voetbal neemt geen verdere stappen naar aanleiding van de paspoortgate rond Dean James. Er is vastgesteld dat de verdediger van...
+- [Wereldleiders verguld met tijdelijk staakt-het-vuren VS en Iran, Trump spreekt van ‘totale overwinning’](https://www.ad.nl/buitenland/wereldleiders-verguld-met-tijdelijk-staakt-het-vuren-vs-en-iran-trump-spreekt-van-totale-overwinning~ac528ac3/)
+  > De Verenigde Staten en Iran hebben na wekenlange beschietingen ingestemd met een gevechtspauze van twee weken. Leiders van over de hele wereld...
+- [Er mogen weer tankers door de Straat van Hormuz: ‘Dit is het terugkrabbelen van Trump waar de markten op hoopten’](https://www.ad.nl/buitenland/er-mogen-weer-tankers-door-de-straat-van-hormuz-dit-is-het-terugkrabbelen-van-trump-waar-de-markten-op-hoopten~a88b24be2/)
+  > De late wapenstilstand van veertien dagen tussen de VS, Israël en Iran moet ervoor zorgen dat de Straat van Hormuz wordt heropend. Daar liggen nog...
+- [Ajax hoeft Dennis Bergkamp nooit meer te bellen: ‘Ik ben loyaal persoon, ze moeten me alleen niet kwetsen’](https://www.ad.nl/voetbal/ajax-hoeft-dennis-bergkamp-nooit-meer-te-bellen-ik-ben-loyaal-persoon-ze-moeten-me-alleen-niet-kwetsen~a52089a5/)
+  > Dennis Bergkamp (56) keert nooit meer terug bij Ajax. „Ik ben er op een heel vervelende manier weggegaan”, zegt de 79-voudig Oranje-international....
+- [Opinie VNO-NCW: ‘Nodig ondernemers vroegtijdig uit op het gemeentehuis’](https://www.ad.nl/praat-mee/opinie-vno-ncw-nodig-ondernemers-vroegtijdig-uit-op-het-gemeentehuis~a1c605e7/)
+  > Op 18 maart werden nieuwe gemeenteraden gekozen. Het is belangrijk dat ondernemers worden betrokken bij de grote uitdagingen en plannen van nieuwe...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Luchtvaartaandelen hoger na wapenstilstand in Midden-Oosten](https://fd.nl/bedrijfsleven/1592438/luchtvaartaandelen-hoger-na-wapenstilstand-in-midden-oosten)
+  > Air France-KLM plust ruim 13% na het nieuws over heropening van de Straat van Hormuz. Luchtvaartexperts waarschuwen dat de ontwrichting van de...
+- [Buitenlandse beleggers knagen aan stakeholdersmodel](https://fd.nl/opinie/1592257/buitenlandse-beleggers-knagen-aan-stakeholdersmodel)
+  > De toenemende invloed van buitenlandse beleggers, commissarissen en ceo’s holt het Nederlandse stakeholdersmodel uit. Pensioenfondsen moeten meer in...
+- [Elke generatie vindt de volgende lui](https://fd.nl/samenleving/1592282/elke-generatie-vindt-de-volgende-lui)
+  > Twintigers van nu worden weggezet als sneeuwvlokjes, stelt schrijver Kluun vast. Te soft, te lui, te snel gekwetst. Maar zijn ze echt zo lui? Over...
+- [Anthropic geeft nieuw AI-model beperkt vrij vanwege cyberveiligheid](https://fd.nl/tech-en-innovatie/1592304/anthropic-geeft-nieuw-ai-model-beperkt-vrij-vanwege-cyberveiligheid)
+  > Voorlopig heeft alleen een beperkte groep tech- en cyberbeveiligingsbedrijven toegang tot Mythos. Zij krijgen de kans kwetsbaarheden in software te...
 - [Musk vraagt rechtbank Sam Altman uit bestuur van OpenAI te zetten](https://fd.nl/bedrijfsleven/1592300/musk-vraagt-rechtbank-sam-altman-uit-bestuur-van-openai-te-zetten)
   > Ook verzocht hij de rechtbank om een eventuele schadevergoeding niet aan hem, maar aan de liefdadigheidstak van OpenAI uit te keren.
-- [Een ruime, lichte villa aan de Zuidplas in Vinkeveen](https://fd.nl/samenleving/1592272/een-ruime-lichte-villa-aan-de-zuidplas-in-vinkeveen)
-  > Over de ingetogen vorm van nabuurschap: ‘Als er iets is weten we elkaar te vinden, maar we lopen de deur bij elkaar goddank niet plat.’
-- [Hackaanval op medisch softwareleverancier ChipSoft](https://fd.nl/bedrijfsleven/1592434/hackaanval-op-medisch-softwareleverancier-chipsoft)
-  > Het bedrijf kan niet uitsluiten dat de hackers persoonsgegevens hebben ingezien of gestolen, meldt de NOS.
-- [Live: AEX weer boven 1000 punten, Shell onderuit op lagere olieprijs](https://fd.nl/financiele-markten/1592299/live-olie-daalt-bijna-15-na-staakt-het-vuren-midden-oosten)
-  > De markten reageren uiterst positief op de tijdelijke wapenstilstand die Iran en de VS gisteravond hebben gesloten. De olieprijs staat bijna 15%...
-- [Ik ben er nog: het schuldgevoel van de overlever](https://fd.nl/samenleving/1592271/ik-ben-er-nog-het-schuldgevoel-van-de-overlever)
-  > Hoe leef je verder als het noodlot je naasten heeft getroffen en je zelf net ontkomen bent? ‘Zonder dat ik daarom vroeg vertelden ze me dat het niet...
 
 ### Meest gelezen
 
