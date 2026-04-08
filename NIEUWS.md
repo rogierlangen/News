@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-04-2026 om 05:15*
+*Laatst bijgewerkt: 08-04-2026 om 07:41*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Trimbos: meeste vapende jongeren gebruiken nog steeds smaakjesvapes](https://nos.nl/l/2609572)
+  > Ondanks het verbod op de verkoop van vapes met smaakjes gebruiken veel jongeren in Nederland deze producten nog steeds. Dat blijkt uit nieuw...
+- [Tegenstrijdige berichten over of het staakt-het-vuren ook voor Libanon geldt](https://nos.nl/l/2609571)
+  > Het waren tegenstrijdige berichten vannacht over het tijdelijke bestand in het Midden-Oosten. De Pakistaanse premier, die bemiddelt in het conflict,...
+- [Jongetje betuigt spijt tegen politie voor onnodig bellen 112: 'Sori'](https://nos.nl/l/2609565)
+  > Een jongetje dat meerdere keren onnodig naar 112 belde, heeft gisteren samen met zijn moeder persoonlijk excuses gemaakt op het politiebureau in...
 - [Zuyd Hogeschool tevreden over afschaffen bindend studieadvies](https://nos.nl/l/2609563)
   > Zuyd Hogeschool schafte 4,5 jaar geleden als eerste hogeschool in Nederland het bindend studieadvies af. Een vijfde van de studenten die volgens de...
 - [Wekdienst 8/4: Rutte langs bij Trump • Pleidooi in zaak tegen Inez Weski](https://nos.nl/l/2609559)
   > Goedemorgen! In de zaak tegen oud-advocaat Inez Weski is het vandaag de beurt aan haar verdediging. Verder gaat NAVO-chef Rutte langs bij president...
-- [54 wielrenners opgespoord die rood licht negeerden tijdens Ronde van Vlaanderen](https://nos.nl/l/2609557)
-  > Het Belgisch Openbaar Ministerie gaat een groep wielrenners vervolgen die zondag tijdens de Ronde van Vlaanderen bij een spoorwegovergang een rood...
-- [In Irak ontvoerde Amerikaanse journalist vrijgelaten](https://nos.nl/l/2609556)
-  > De Amerikaanse journalist Shelly Kittleson, die vorige week in Irak werd ontvoerd, is vrijgelaten. Dat heeft de Amerikaanse minister van Buitenlandse...
-- [Medewerker van slachthuis in Helmond overleden bij bedrijfsongeval](https://nos.nl/l/2609555)
-  > In Brabant is afgelopen avond een medewerker van een slachthuis overleden bij een bedrijfsongeval. Het gebeurde bij een bedrijf in Helmond.
-       ...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Guus Til geeft zich bloot in zeldzaam interview: ‘Voor je het weet kom je over als een betweter, een pedant mannetje’](https://www.ad.nl/voetbal/guus-til-geeft-zich-bloot-in-zeldzaam-interview-voor-je-het-weet-kom-je-over-als-een-betweter-een-pedant-mannetje~a3d39a68/)
-  > Hij begon bij PSV ooit als vierde nummer 10 in de selectie. Maar Guus Til werkte zich op tot één van de spilfiguren, ook weer in het huidige...
-- [Vervolg op The handmaid’s tale biedt vooral meer hoop](https://www.ad.nl/show/vervolg-op-the-handmaids-tale-biedt-vooral-meer-hoop~aa3916ad/)
-  > Na zes seizoenen van de onheilspellende dramaserie The handmaid’s tale is het vervolg The Testaments eindelijk verfilmd. Opnieuw gebaseerd op een...
-- [Straat van Hormuz gaat weer open, Israël steunt staakt-het-vuren: ‘Maar geldt niet voor Libanon’](https://www.ad.nl/buitenland/straat-van-hormuz-gaat-weer-open-israel-steunt-staakt-het-vuren-maar-geldt-niet-voor-libanon~ac528ac3/)
-  > President Trump en Iran hebben ingestemd met een gevechtspauze van twee weken. De Straat van Hormuz gaat weer open en er wordt verder onderhandeld...
-- [Betrouwbaar en maximaal 6000 euro: dit zijn de beste beginnersauto’s](https://www.ad.nl/auto/betrouwbaar-en-maximaal-6000-euro-dit-zijn-de-beste-beginnersautos~a8020a0a/)
-  > Het kopen van je eerste auto kan een overweldigende ervaring zijn. De keuze is enorm, niet alleen qua merk, maar ook qua afmetingen en motorisering....
-- [Ceo Duolingo onthult hoe personeel in het bedrijf wordt aangenomen: ‘Taxichauffeur bepaalt uiteindelijk’](https://www.ad.nl/buitenland/ceo-duolingo-onthult-hoe-personeel-in-het-bedrijf-wordt-aangenomen-taxichauffeur-bepaalt-uiteindelijk~a18ef177/)
-  > Een briljant cv, alle juiste antwoorden in de vergaderzaal en een vlekkeloos sollicitatiegesprek. Toch werd de gedroomde kandidaat voor een...
+- [Van een Chinese auto een Mazda maken: zo pakt de ontwerper dat aan](https://www.ad.nl/auto/van-een-chinese-auto-een-mazda-maken-zo-pakt-de-ontwerper-dat-aan~aa57cf7a/)
+  > Wat als je als designer ineens moet werken met een auto die eigenlijk al bestaat bij een ander merk? Hoe kan het dat de Mazda 6e en CX-6e er...
+- [Bram Krikke en zijn vrouw Robin op huwelijksreis: tortelduifjes genieten van Tokio](https://www.ad.nl/show/bram-krikke-en-zijn-vrouw-robin-op-huwelijksreis-tortelduifjes-genieten-van-tokio~ab4cb080/)
+  > Bram Krikke (31) en zijn grote liefde Robin Holzken (28) genieten van hun huwelijksreis. De Qmusic-dj deelt woensdag een reeks foto’s van hun...
+- [Tankende automobilisten rijden vaker weg zonder te betalen](https://www.ad.nl/auto/tankende-automobilisten-rijden-vaker-weg-zonder-te-betalen~a0eeb42b/)
+  > Als gevolg van de hoge brandstofprijzen kunnen steeds meer automobilisten de verleiding niet weerstaan om na het tanken weg te rijden zonder te...
+- [Als Benjamin zijn camping in Italië wil verkopen, komt hij voor een nare verrassing te staan: ‘Oneerlijk’](https://www.ad.nl/buitenland/als-benjamin-zijn-camping-in-italie-wil-verkopen-komt-hij-voor-een-nare-verrassing-te-staan-oneerlijk~a1cb4816/)
+  > Twintig jaar geleden verwezenlijkten Benjamin en Sabine Stroo hun droom: ze kochten een camping in Italië. Nu willen ze van hun bedrijf af, maar de...
+- [Real Madrid houdt vertrouwen voor return tegen Bayern München: ‘Zegt wel iets dat Neuer hun beste speler was’](https://www.ad.nl/voetbal/real-madrid-houdt-vertrouwen-voor-return-tegen-bayern-munchen-zegt-wel-iets-dat-neuer-hun-beste-speler-was~a648e9d2/)
+  > Antonio Rüdiger ziet na de thuisnederlaag van Real Madrid tegen Bayern München (1-2) nog genoeg kans om de halve finale van de Champions League te...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Live: Olie daalt bijna 15% na staakt-het-vuren Midden-Oosten en heropening Hormuz](https://fd.nl/financiele-markten/1592299/live-olie-daalt-bijna-15-na-staakt-het-vuren-midden-oosten)
-  > De markten reageren uiterst positief op de tijdelijke wapenstilstand die Iran en de VS gisteravond hebben gesloten. Olie duikt stevig onder de $100.
+- [Musk vraagt rechtbank Sam Altman uit bestuur van OpenAI te zetten](https://fd.nl/bedrijfsleven/1592300/musk-vraagt-rechtbank-sam-altman-uit-bestuur-van-openai-te-zetten)
+  > Ook verzocht hij de rechtbank om een eventuele schadevergoeding niet aan hem, maar aan de liefdadigheidstak van OpenAI uit te keren.
+- [Een ruime, lichte villa aan de Zuidplas in Vinkeveen](https://fd.nl/samenleving/1592272/een-ruime-lichte-villa-aan-de-zuidplas-in-vinkeveen)
+  > Over de ingetogen vorm van nabuurschap: ‘Als er iets is weten we elkaar te vinden, maar we lopen de deur bij elkaar goddank niet plat.’
+- [Hackaanval op medisch softwareleverancier ChipSoft](https://fd.nl/bedrijfsleven/1592434/hackaanval-op-medisch-softwareleverancier-chipsoft)
+  > Het bedrijf kan niet uitsluiten dat de hackers persoonsgegevens hebben ingezien of gestolen, meldt de NOS.
+- [Live: AEX weer boven 1000 punten, Shell onderuit op lagere olieprijs](https://fd.nl/financiele-markten/1592299/live-olie-daalt-bijna-15-na-staakt-het-vuren-midden-oosten)
+  > De markten reageren uiterst positief op de tijdelijke wapenstilstand die Iran en de VS gisteravond hebben gesloten. De olieprijs staat bijna 15%...
 - [Ik ben er nog: het schuldgevoel van de overlever](https://fd.nl/samenleving/1592271/ik-ben-er-nog-het-schuldgevoel-van-de-overlever)
   > Hoe leef je verder als het noodlot je naasten heeft getroffen en je zelf net ontkomen bent? ‘Zonder dat ik daarom vroeg vertelden ze me dat het niet...
-- [Joanne Kellermann: ‘Pensioenen missen de glamour van de rest van de financiële wereld, maar zijn veel fundamenteler’](https://fd.nl/samenleving/1592109/joanne-kellermann-pensioenen-missen-de-glamour-van-de-rest-van-de-financiele-wereld-maar-zijn-veel-fundamenteler)
-  > Als directielid bij DNB botste Kellermann flink met pensioenfondsbestuurders. Ze ging daarna juist aan de slag bij zo’n fonds. ‘Het is bizar om te...
-- [VS en Iran sluiten tijdelijke wapenstilstand](https://fd.nl/politiek/1592298/vs-en-iran-sluiten-voorlopig-wapenstilstand)
-  > Het staakt-het-vuren geldt voor twee weken en volgt op extreme dreigementen van de Amerikaanse president Donald Trump.
-- [Miljardenbod op platenlabel van Taylor Swift en Kendrick Lamar](https://fd.nl/economie/1592385/miljardenbod-op-platenlabel-van-taylor-swift-en-kendrick-lamar)
-  > Vandaag in Dagkoers: platenlabel UMG ontvangt miljardenbod, verkoop Russische dochter van ING afgeblazen, en goed nieuws voor de...
 
 ### Meest gelezen
 
