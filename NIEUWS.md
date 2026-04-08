@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-04-2026 om 20:51*
+*Laatst bijgewerkt: 08-04-2026 om 21:48*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Na jaren strijd voor hun kwelder mogen de Wierummers er nu niet naartoe](https://nos.nl/l/2609671)
+  > Rijkswaterstaat heeft de kwelder in de Waddenzee bij het Noord-Friese dorp Wierum afgesloten om de vogels te beschermen. Voor de bewoners van Wierum...
+- [15 jaar cel voor 'ketaminekoningin' die Matthew Perry dodelijke dosis verkocht](https://nos.nl/l/2609669)
+  > In de Verenigde Staten is Jasveen Sangha, de vrouw die Friends-acteur Matthew Perry vlak voor zijn dood de drug ketamine verkocht, veroordeeld tot...
 - [Rutte in Witte Huis, 'onder meer om te praten over terugtrekking uit NAVO'](https://nos.nl/l/2609667)
   > NAVO-chef Rutte is in het Witte Huis in Washington en spreekt daar met de Amerikaanse president Trump. Volgens het Witte Huis keek Trump uit naar dat...
 - [Trump claimt succes met staakt-het-vuren: 'Maar Iran bepaalt de uitkomst'](https://nos.nl/l/2609663)
   > Na 40 dagen oorlog met Iran werd dinsdag, vlak voor het aflopen van Trumps ultimatum, een staakt-het-vuren voor twee weken bereikt. "Een grote dag...
 - [Moskeekoepel doet aangifte van vernieling bij gebedshuis in Zaandam](https://nos.nl/l/2609662)
   > Onbekenden hebben afgelopen weekeinde "ernstige vernielingen" aangericht bij het educatief centrum dat wordt gebouwd bij de Sultan Ahmet Moskee in...
-- [Ondanks vuurwerkverbod 93 mensen met brandwonden bij kampioensfeest PSV](https://nos.nl/l/2609658)
-  > Ondanks een vuurwerk- en fakkelverbod hebben zich gisteren bij het kampioensfeest van PSV in Eindhoven 93 mensen gemeld bij de verschillende...
-- [Iraniërs over broos staakt-het-vuren: 'Oranjekleurige hufter is op zijn plek gezet'](https://nos.nl/l/2609657)
-  > "We kochten powerbanks, pakjes paracetamol, kaarsen en nog wat andere spullen om het uit te zitten." Iraniërs bereidden zich gisteren in wanhoop voor...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Uitslagen Champions League | Dit zijn de resultaten van de kwartfinales en de data van de returns](https://www.ad.nl/voetbal/uitslagen-champions-league-dit-zijn-de-resultaten-van-de-kwartfinales-en-de-data-van-de-returns~a8f002d0/)
+  > De eerste kwartfinales van de Champions League zijn afgewerkt. Nog acht clubs hebben kans op de felbegeerde bokaal. Bekijk hier het programma en de...
+- [Dubbele dreun vlak voor rust doet Barcelona de das om tegen Atlético, dat grote stap zet naar halve finale CL](https://www.ad.nl/voetbal/dubbele-dreun-vlak-voor-rust-doet-barcelona-de-das-om-tegen-atletico-dat-grote-stap-zet-naar-halve-finale-cl~a0325db8/)
+  > Atlético Madrid heeft een grote stap gezet op weg naar de halve finale van de Champions League. In Camp Nou profiteerden de bezoekers optimaal van...
+- [Arne Slot staat voor loodzware missie met Liverpool na nederlaag tegen oppermachtig PSG](https://www.ad.nl/voetbal/arne-slot-staat-voor-loodzware-missie-met-liverpool-na-nederlaag-tegen-oppermachtig-psg~ab30b9fd/)
+  > Paris Saint-Germain lijkt Liverpool op weg naar de halve finale al te hebben afgeschud. De Franse titelhouder van de Champions League was te sterk...
 - [Arjen Lubach gaat Nederlandse versie van komisch spelprogramma Taskmaster presenteren](https://www.ad.nl/show/arjen-lubach-gaat-nederlandse-versie-van-komisch-spelprogramma-taskmaster-presenteren~ad51bb46/)
   > Cabaretier Arjen Lubach gaat de Nederlandse versie van het programma Taskmaster op RTL 4 presenteren. Zijn assistent in Taskmaster wordt Diederik...
 - [Vliegveld Curaçao paar uur dicht na melding van mogelijk explosief, vliegverkeer hervat](https://www.ad.nl/buitenland/vliegveld-curacao-paar-uur-dicht-na-melding-van-mogelijk-explosief-vliegverkeer-hervat~a5d1a7e9/)
   > De internationale luchthaven van Curaçao is woensdagochtend twee uur gesloten geweest vanwege een bommelding. Volgens de nieuwssite Curaçao.nu...
-- [Eerste officiële warme dag van 2026 gemeten, Westdorpe tikte ruim 22 graden aan](https://www.ad.nl/binnenland/eerste-officiele-warme-dag-van-2026-gemeten-westdorpe-tikte-ruim-22-graden-aan~abbefd55/)
-  > In De Bilt is woensdagmiddag de eerste officiële warme dag van 2026 gemeten. Om 14.50 uur steeg de temperatuur op het hoofdstation naar 20 graden,...
-- [Aanklager onderneemt geen stappen tegen Go Ahead en Dean James, die ook per direct weer speelgerechtigd is](https://www.ad.nl/voetbal/aanklager-onderneemt-geen-stappen-tegen-go-ahead-en-dean-james-die-ook-per-direct-weer-speelgerechtigd-is~a392e4d5/)
-  > De aanklager betaald voetbal neemt geen verdere stappen naar aanleiding van de paspoortgate rond Dean James. Er is vastgesteld dat de verdediger van...
-- [LIVE Champions League | Liverpool heeft niets te vertellen in Parijs en ontsnapt aan grotere achterstand](https://www.ad.nl/voetbal/live-champions-league-liverpool-heeft-niets-te-vertellen-in-parijs-en-ontsnapt-aan-grotere-achterstand~ab30b9fd/)
-  > Een pittige klus voor Arne Slot in de kwartfinales van de Champions League: Liverpool neemt het op tegen titelhouder Paris Saint-Germain. Wie doet...
 
 ### Meest gelezen
 
