@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-04-2026 om 15:25*
+*Laatst bijgewerkt: 09-04-2026 om 17:12*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Zwangerschapsdiscriminatie hardnekkig, bijna de helft is vermoedelijk slachtoffer](https://nos.nl/l/2609788)
-  > Nog steeds is bijna de helft van de vrouwen die zwanger en werkend of werkzoekend zijn, vermoedelijk slachtoffer van zwangerschapsdiscriminatie. Dat...
-- [EU wil uitleg van Hongarije over 'gelekte gesprekken' met Lavrov](https://nos.nl/l/2609786)
-  > De Europese Commissie eist uitleg van Hongarije over "uiterst zorgwekkende" berichten over het delen van vertrouwelijke EU-informatie door Hongarije...
-- [Komende dagen weinig regen, wisselende temperaturen](https://nos.nl/l/2609784)
-  > Voorlopig staat het weer in het teken van nogal wisselende temperaturen. Vandaag was het erg zacht; in het zuiden werd het 24 graden. Dat is geen...
-- [Weer meer wolven in Nederland, in totaal veertien roedels geteld](https://nos.nl/l/2609783)
-  > Het aantal wolven in Nederland blijft toenemen. Uit cijfers van BIJ12, de organisatie die voor provincies alle zaken rond wolven in Nederland...
-- [Drentse brandweer wil meer geld nu risico op natuurbranden toeneemt](https://nos.nl/l/2609782)
-  > De Veiligheidsregio Drenthe wil snel meer geld voor de brandweer, zeker nu het risico op natuurbranden toeneemt.
-        Mocht dat extra geld er niet...
+- [Anthropic houdt AI-model voorlopig achter slot: 'Een soort digitale koevoet'](https://nos.nl/l/2609813)
+  > Een AI-model dat zo sterk is dat het voor het 'gewone' publiek niet beschikbaar is. Het Amerikaanse bedrijf Anthropic heeft er naar eigen zeggen een...
+- [Van levertraan tot duurzaamheid: hoe de Schijf van Vijf door de jaren heen veranderde](https://nos.nl/l/2609811)
+  > Wie gezond wil eten kan al sinds 1953 de Schijf van Vijf raadplegen. Vandaag kwam het Voedingscentrum met de zevende versie van het...
+- [Ondanks bestand is Straat van Hormuz zo goed als dicht: 'Ruim 800 schepen gevangen'](https://nos.nl/l/2609807)
+  > Hij moest en hij zou open, anders zou de Amerikaanse president Trump Iran "terug naar het stenen tijdperk bombarderen". Maar vandaag is op dag twee...
+- [Talpa moet salaris Yvonne Coldeweijer doorbetalen](https://nos.nl/l/2609801)
+  > Talpa moet het salaris van Yvonne Coldeweijer blijven betalen. Dat heeft de rechter in Amsterdam bepaald.
+        Coldeweijer zou voor het...
+- [Ministerie wil strengere regels tegen asbest in speelzand](https://nos.nl/l/2609795)
+  > Het ministerie van Volksgezondheid wil een strengere norm voor de hoeveelheid asbest die in speelzand mag zitten. Dat laat een woordvoerder van het...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Connie Witteman betaalt haar ex drie ton, maar legt meteen beslag op zijn huis](https://www.ad.nl/show/connie-witteman-betaalt-haar-ex-drie-ton-maar-legt-meteen-beslag-op-zijn-huis~afc58a52/)
-  > Connie Witteman legt zich blijkbaar niet meer bij het feit dat zij van de rechter haar ex-verloofde Eugene van Dun ruim drie ton moest betalen. Dat...
-- [Britten volgden maand lang Russische onderzeeërs die kabels en pijpleidingen bespioneerden](https://www.ad.nl/buitenland/britten-volgden-maand-lang-russische-onderzeeers-die-kabels-en-pijpleidingen-bespioneerden~ab0bb23e/)
-  > De Britse marine heeft bij een recente operatie een maand lang een Russische schaduwvloot gevolgd. Het ging om Russische onderzeeërs die belangrijke...
-- [Project Avatar: waarom de Artemis-astronauten een chip met eigen mini-organen mee hebben naar de maan](https://www.ad.nl/wetenschap/project-avatar-waarom-de-artemis-astronauten-een-chip-met-eigen-mini-organen-mee-hebben-naar-de-maan~aa9e4100/)
-  > Het klinkt als pure sciencefiction, maar is het niet: de vier Artemis-astronauten dragen een speciale Avatar-chip ter grootte van een usb-stick mee...
-- [LIVE WK voetbal | Engeland maakt laatste oefenduels bekend, Oranje-opponent Zweden ziet aanvaller afhaken](https://www.ad.nl/wk-voetbal/live-wk-voetbal-engeland-maakt-laatste-oefenduels-bekend-oranje-opponent-zweden-ziet-aanvaller-afhaken~a61805da/)
-  > Over iets meer dan twee maanden begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste...
-- [Dartster Noa-Lynn van Leuven niet meer welkom bij vrouwentoernooien van de PDC](https://www.ad.nl/darts/dartster-noa-lynn-van-leuven-niet-meer-welkom-bij-vrouwentoernooien-van-de-pdc~a2244db9/)
-  > Noa-Lynn van Leuven mag niet meer meedoen aan vrouwentoernooien van de PDC, meldt de dartsorganisatie in een verklaring. De 29-jarige trans dartster...
+- [Oudere mannen overlijden vaker bij een fietsongeluk dan vrouwen: ‘Testosteron blijft een rol spelen’](https://www.ad.nl/binnenland/oudere-mannen-overlijden-vaker-bij-een-fietsongeluk-dan-vrouwen-testosteron-blijft-een-rol-spelen~a34d0c12/)
+  > Mannen van 70 jaar en ouder waren vorig jaar verantwoordelijk voor de stijging van het aantal doden in het fietsverkeer. Zijn ze nog altijd...
+- [We moeten verkeersveiligheid weer serieus nemen, vooral mannen](https://www.ad.nl/commentaar/we-moeten-verkeersveiligheid-weer-serieus-nemen-vooral-mannen~a1909cf8/)
+  > Het aantal verkeersdoden is voor het eerst sinds jaren weer gestegen. Hoog tijd dat we weginrichtingen kritisch onder de loep nemen, schrijft onze...
+- [Ajax breekt contract Jorthy Mokio open: Belgisch toptalent blijft jaren langer in Amsterdam](https://www.ad.nl/voetbal/ajax-breekt-contract-jorthy-mokio-open-belgisch-toptalent-blijft-jaren-langer-in-amsterdam~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Nederlandse zakt huilend in elkaar na straatroof in Madrid, jongeman weet overvaller te pakken](https://www.ad.nl/buitenland/nederlandse-zakt-huilend-in-elkaar-na-straatroof-in-madrid-jongeman-weet-overvaller-te-pakken~ae60e961/)
+  > Een Nederlandse vrouw is in het centrum van Madrid met geweld beroofd door drie mannen. Dat twee van de daders snel konden worden aangehouden, is te...
+- [Schade aan olie-infrastructuur voor sommige bedrijven in Nederland goed nieuws, waaronder een buizenmaker](https://www.ad.nl/economie/schade-aan-olie-infrastructuur-voor-sommige-bedrijven-in-nederland-goed-nieuws-waaronder-een-buizenmaker~a23306f8/)
+  > De oorlog in het Midden-Oosten maakt het leven voor Nederlandse bedrijven moeilijker. De hoge energieprijzen blijven pijn doen, en ook de consument...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [De Navo levert de VS militaire slagkracht én banen op, maar Trump gelooft daar weinig van](https://fd.nl/politiek/1592359/de-navo-levert-de-vs-militaire-slagkracht-en-banen-op-maar-trump-gelooft-daar-weinig-van)
-  > Donald Trump dreigt de VS uit de Navo te halen. Maar ook als de VS lid blijven, rijst de vraag: wat stelt de Navo eigenlijk nog voor als Trump...
-- [Niet alles wat blinkt, is goud](https://fd.nl/financiele-markten/1592367/niet-alles-wat-glinstert-is-goud)
-  > Bij een juwelier draait het om glans, geluk en voorspoed. Voor juwelenketen Lucardi waren het doffe tijden. Private equity kon het niet veranderen.
-- [Nederlandse Loterij start tweede rechtszaak tegen een illegale goksite](https://fd.nl/bedrijfsleven/1592579/nederlandse-loterij-start-tweede-rechtszaak-tegen-een-illegale-goksite)
-  > De loterij wil dat de site van Qbet op zwart gaat, weten wie er achter dit bedrijf zit en een schadevergoeding voor gederfde inkomsten. Donderdag...
-- [Nederlandse consumenten kochten opnieuw minder](https://fd.nl/financiele-markten/1592578/nederlandse-consumenten-kochten-opnieuw-minder)
-  > Auto’s en kleding minder in trek in februari, meldt het Centraal Bureau voor de Statistiek (CBS) donderdag.
-- [Stage Entertainment neemt twee musicalpodia in centrum Madrid over](https://fd.nl/bedrijfsleven/1592512/stage-entertainment-neemt-twee-musicalpodia-in-centrum-madrid-over)
-  > De theaters in het centrum van de Spaanse hoofdstad bieden beide meer dan 1400 zitplaatsen. Stage Entertainment is in 1998 opgericht door...
+- [Geboortecijfer VS zakt naar historisch dieptepunt](https://fd.nl/samenleving/1592586/geboortecijfer-vs-zakt-naar-historisch-dieptepunt)
+  > In de VS is het algemene vruchtbaarheidscijfer sinds 2007 met bijna 23% gedaald. De daling weerspiegelt een wereldwijde trend.
+- [Verwachtingen over Fed-beleid lopen sterk uiteen, pauze lijkt meest waarschijnlijk](https://fd.nl/financiele-markten/1592581/verwachtingen-over-fed-beleid-lopen-sterk-uiteen-pauze-lijkt-meest-waarschijnlijk)
+  > De onzekerheid over het rentebeleid van de Fed is buitengewoon groot. Het wankele bestand tussen Iran en de Verenigde Staten heeft daar nog geen...
+- [CVC Capital Partners zoekt mede-investeerders voor Recordati-overname](https://fd.nl/financiele-markten/1592516/cvc-capital-partners-zoekt-mede-investeerders-voor-recordati-overname)
+  > De investeringsmaatschappij kondigde vorige maand aan Recordati te willen overnemen voor €52 per aandeel.
+- [Onzekerheid troef rond Straat van Hormuz en dus stijgt de olieprijs weer](https://fd.nl/financiele-markten/1592371/onzekerheid-troef-rond-straat-van-hormuz-en-dus-stijgt-de-olieprijs-weer)
+  > Voor schepen zijn de voorwaarden om de zee-engte te passeren hoogst onzeker. Iran eist tol en reders vrezen Amerikaanse sancties te schenden. Er...
+- [‘Tesla ontwikkelt goedkopere elektrische auto’](https://fd.nl/bedrijfsleven/1592513/tesla-ontwikkelt-goedkopere-elektrische-auto)
+  > De nieuwe Tesla zou in China worden gebouwd, en mogelijk later ook in de VS en Europa.
 
 ### Meest gelezen
 
