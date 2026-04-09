@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-04-2026 om 20:56*
+*Laatst bijgewerkt: 09-04-2026 om 21:52*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Ruim 18 miljoen euro schadevergoeding geëist door nabestaanden Decembermoorden](https://nos.nl/l/2609836)
+  > Nabestaanden van slachtoffers van de Decembermoorden eisen een schadevergoeding en excuses van de Surinaamse staat. Per familie wordt 1,25 miljoen...
+- [Voor het eerst scheiding chimpanseegroep vastgelegd, kostte het leven van 28 dieren](https://nos.nl/l/2609835)
+  > Voor het eerst hebben onderzoekers het uit elkaar vallen van een chimpanseegroep kunnen vastleggen. De studie, die deze week gepubliceerd werd in het...
 - [Stille tocht voor Dario (29), die werd doodgestoken bij een café in Hoorn](https://nos.nl/l/2609830)
   > Zo'n 200 familieleden, vrienden en bekenden hebben vanavond in Hoorn meegelopen in een stille tocht voor Dario (29). Hij werd op zaterdagavond 28...
 - [Poetin kondigt weer eenzijdig bestand af voor orthodox Pasen](https://nos.nl/l/2609829)
   > De Russische president Poetin heeft een eenzijdig bestand afgekondigd voor orthodox Pasen komend weekend. Het Kremlin stelt dat het staakt-het-vuren...
 - [Utrecht geeft transporteurs meer tijd na dreiging rechtszaak](https://nos.nl/l/2609828)
   > De strengere regels voor de toegang van vrachtauto's tot de Utrechtse binnenstad zijn uitgesteld. Nadat de transportsector juridische stappen...
-- [Lokale 'Pro'-partijen willen bij rechter nieuwe naam GL-PvdA aanvechten](https://nos.nl/l/2609820)
-  > Tientallen lokale partijen met Pro in hun naam gaan de strijd met GroenLinks-PvdA aan vanwege de naam. Ze stappen naar de rechter als de Kiesraad de...
-- [Weelderige kroningsjurk en felgekleurde pakjes: nieuwe expo laat leven The Queen zien in kleding](https://nos.nl/l/2609819)
-  > In aanloop naar de honderdste geboortedag van de overleden Britse koningin Elizabeth II, gaan morgen de deuren van de publieke kunstgalerie in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘Uiterst sociale’ ouders dood gevonden door eigen kinderen in België, politie vermoedt gezinsdrama](https://www.ad.nl/buitenland/uiterst-sociale-ouders-dood-gevonden-door-eigen-kinderen-in-belgie-politie-vermoedt-gezinsdrama~a461627d/)
-  > Een echtpaar uit het Belgische Grimde is donderdagavond dood in hun woning aangetroffen door hun eigen kinderen. De politie houdt ernstig rekening...
-- [S10 geschokt na vrijlating van verdachten in zaak rond dood broer](https://www.ad.nl/show/s10-geschokt-na-vrijlating-van-verdachten-in-zaak-rond-dood-broer~a0e03f10/)
-  > Zangeres S10 is geschokt door de beslissing om de vier verdachten in de zaak rond de dood van haar tweelingbroer vrij te laten. De rechtbank in...
-- [Van Gerwen laat Van Veen kansloos in Nederlands onderonsje, uitgejoelde Littler ligt er al snel uit](https://www.ad.nl/darts/van-gerwen-laat-van-veen-kansloos-in-nederlands-onderonsje-uitgejoelde-littler-ligt-er-al-snel-uit~a0b37c68/)
+- [Van Gerwen begonnen aan finale in Brighton, uitgejoelde Littler ligt er al snel uit](https://www.ad.nl/darts/van-gerwen-begonnen-aan-finale-in-brighton-uitgejoelde-littler-ligt-er-al-snel-uit~a0b37c68/)
   > Een Nederlands onderonsje op de tiende speelavond van de Premier League: Michael van Gerwen neemt het in de kwartfinale op tegen Gian van Veen....
-- [AZ zakt volledig door de hoeven in tweede helft en ziet Shakhtar verder uitlopen](https://www.ad.nl/voetbal/az-zakt-volledig-door-de-hoeven-in-tweede-helft-en-ziet-shakhtar-verder-uitlopen~adddb0382/)
-  > AZ verdedigt de Nederlandse eer in Europa voorlopig uitstekend. De Alkmaarders gaan op jacht naar een plaats in de halve finales van de Conference...
-- [Melania Trump ontkent connectie met Epstein tijdens onverwachte toespraak: ‘Leugens moeten stoppen’](https://www.ad.nl/buitenland/melania-trump-ontkent-connectie-met-epstein-tijdens-onverwachte-toespraak-leugens-moeten-stoppen~ae67dd9c/)
-  > De Amerikaanse presidentsvrouw Melania Trump heeft ontkend ooit banden te hebben gehad met de beruchte zedendelinquent Jeffrey Epstein. Volgens haar...
+- [CNN verklaart Back to the Future-acteur Michael J. Fox (64) dood: ‘Met mij gaat het oké’](https://www.ad.nl/show/cnn-verklaart-back-to-the-future-acteur-michael-j-fox-64-dood-met-mij-gaat-het-oke~a299f69a/)
+  > De Amerikaanse acteur Michael J. Fox heeft gereageerd op berichtgeving van CNN dat hij zou zijn overleden. Op sociale media vraagt Fox zich af wat...
+- [Rapper Diddy moet vrijkomen omdat rechter blunder maakte bij uitspreken straf, stellen advocaten](https://www.ad.nl/buitenland/rapper-diddy-moet-vrijkomen-omdat-rechter-blunder-maakte-bij-uitspreken-straf-stellen-advocaten~ae40ae1f/)
+  > Het advocatenteam van Sean ‘Diddy’ Combs heeft donderdag een verzoek ingediend om de rapper onmiddellijk vrij te laten. Volgens hen heeft rechter...
+- [FC Barcelona dient klacht in bij UEFA voor onbestraft hands Atlético Madrid](https://www.ad.nl/voetbal/fc-barcelona-dient-klacht-in-bij-uefa-voor-onbestraft-hands-atletico-madrid~a8754b59f/)
+  > FC Barcelona heeft een klacht ingediend bij de UEFA. De Spaanse voetbalclub vond dat tegenstander Atlético Madrid woensdag in de kwartfinale van de...
+- [Porto verzuimt te winnen door knullige eigen goal, Freiburg en Villa op rozen richting halve finale](https://www.ad.nl/voetbal/porto-verzuimt-te-winnen-door-knullige-eigen-goal-freiburg-en-villa-op-rozen-richting-halve-finale~ac42a53e/)
+  > FC Porto is thuis tegen Nottingham Forest niet verder gekomen dan een 1-1 gelijkspel in de kwartfinale van de Europa League. De ploeg van voormalig...
 
 ### Meest gelezen
 
