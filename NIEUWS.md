@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-04-2026 om 23:41*
+*Laatst bijgewerkt: 09-04-2026 om 02:43*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Man bekent schuld in zaak rond crash Mexico waarbij 53 migranten omkwamen](https://nos.nl/l/2609678)
+  > Een Guatemalteekse man heeft in de VS schuld bekend voor zijn rol in de smokkel van een groep illegale migranten in een vrachtwagen in Mexico in...
+- [Automobilist rijdt door na botsing met motor, A2 bij Eindhoven ruim uur dicht](https://nos.nl/l/2609677)
+  > De A2 tussen Best en Eindhoven is gisteravond ongeveer 1,5 uur afgesloten vanwege een verkeersongeval waarbij een motorrijder ernstig gewond raakte.
+...
 - [Voedingscentrum vernieuwt Schijf van Vijf: maximaal één gehaktbal per week](https://nos.nl/l/2609676)
   > Nederlanders zouden minder vlees en meer plantaardige eiwitten moeten eten. Dat staat in de nieuwe Schijf van Vijf, die het Voedingscentrum vandaag...
 - [Na jaren strijd voor hun kwelder mogen de Wierummers er nu niet naartoe](https://nos.nl/l/2609671)
   > Rijkswaterstaat heeft de kwelder in de Waddenzee bij het Noord-Friese dorp Wierum afgesloten om de vogels te beschermen. Voor de bewoners van Wierum...
 - [15 jaar cel voor 'ketaminekoningin' die Matthew Perry dodelijke dosis verkocht](https://nos.nl/l/2609669)
   > In de Verenigde Staten is Jasveen Sangha, de vrouw die Friends-acteur Matthew Perry vlak voor zijn dood de drug ketamine verkocht, veroordeeld tot...
-- [Rutte in Witte Huis, 'onder meer om te praten over terugtrekking uit NAVO'](https://nos.nl/l/2609667)
-  > NAVO-chef Rutte is in het Witte Huis in Washington en spreekt daar met de Amerikaanse president Trump. Volgens het Witte Huis keek Trump uit naar dat...
-- [Trump claimt succes met staakt-het-vuren: 'Maar Iran bepaalt de uitkomst'](https://nos.nl/l/2609663)
-  > Na 40 dagen oorlog met Iran werd dinsdag, vlak voor het aflopen van Trumps ultimatum, een staakt-het-vuren voor twee weken bereikt. "Een grote dag...
 
 ### Meest gelezen
 
@@ -27,6 +28,8 @@
 
 ### Laatste nieuws
 
+- [Deze ambassadeur moet Trump ‘verdedigen’ in Nederland: ‘Grootste vredestichter van deze tijd’](https://www.ad.nl/politiek/deze-ambassadeur-moet-trump-verdedigen-in-nederland-grootste-vredestichter-van-deze-tijd~a5793946/)
+  > Terwijl zijn president dreigt en om zich heen slaat, moet de Amerikaanse ambassadeur in Nederland de relatie goed zien te houden. Dat is lastig:...
 - [Voetbalpodcast | ‘Steven Berghuis zorgt niet voor het eerst voor een helder geluid bij Ajax’](https://www.ad.nl/voetbal/voetbalpodcast-steven-berghuis-zorgt-niet-voor-het-eerst-voor-een-helder-geluid-bij-ajax~ac8603a9/)
   > Liverpool was geen partij voor PSG in Frankrijk in de Champions League en Atlético Madrid was te sterk voor FC Barcelona. Beide duels eindigden in...
 - [Arne Slot legt uit waarom hij Mohamed Salah niet liet invallen tegen PSG: ‘Voor mij was die keuze niet ingewikkeld’](https://www.ad.nl/voetbal/arne-slot-legt-uit-waarom-hij-mohamed-salah-niet-liet-invallen-tegen-psg-voor-mij-was-die-keuze-niet-ingewikkeld~aff78bf1/)
@@ -35,8 +38,6 @@
   > ‘Opeens’ hing die er, vlak onder de top van de 700 meter hoge Stawamus Chief in Canada, een van ’s werelds grootste koepelvormige granietbergen. Een...
 - [Nog meer peulvruchten, minder vlees en kaas in nieuwe Schijf van Vijf](https://www.ad.nl/gezond/nog-meer-peulvruchten-minder-vlees-en-kaas-in-nieuwe-schijf-van-vijf~a573b580/)
   > Hoe eten we zo gezond mogelijk, met zo min mogelijk overlast voor het milieu en met oog voor veiligheid? De Schijf van Vijf is vernieuwd om die vraag...
-- [Defensie brengt woningbouw verder in het nauw: ‘Strijd om personeel’](https://www.ad.nl/binnenland/defensie-brengt-woningbouw-verder-in-het-nauw-strijd-om-personeel~aa405099/)
-  > De extra investeringen in Defensie zetten de woningbouw verder onder druk. De kans is groot dat er een strijd om technisch personeel ontstaat en de...
 
 ### Meest gelezen
 
