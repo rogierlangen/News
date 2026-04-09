@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-04-2026 om 22:48*
+*Laatst bijgewerkt: 09-04-2026 om 23:40*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [LIVE Midden-Oosten | Trump wil geen Iraanse tolheffing voor Straat van Hormuz, Netanyahu geeft bevel voor onderhandelingen met Libanon](https://www.ad.nl/buitenland/live-midden-oosten-trump-wil-geen-iraanse-tolheffing-voor-straat-van-hormuz-netanyahu-geeft-bevel-voor-onderhandelingen-met-libanon~ac528ac3/)
+  > De Israëlische premier Benjamin Netanyahu zegt zijn kabinet het bevel te hebben gegeven om zo snel mogelijk te beginnen met onderhandelingen met...
 - [Voetbalpodcast | ‘Alles op de bekerfinale voor AZ na deze nederlaag’](https://www.ad.nl/voetbal/voetbalpodcast-alles-op-de-bekerfinale-voor-az-na-deze-nederlaag~ac8603a9/)
   > AZ kwam in actie in de kwartfinale van de Conference League tegen Shakhtar Donetsk. De ploeg van Leeroy Echteld vertrok uit Krakau met een 3-0...
 - [CNN verklaart Back to the Future-acteur Michael J. Fox (64) dood: ‘Met mij gaat het oké’](https://www.ad.nl/show/cnn-verklaart-back-to-the-future-acteur-michael-j-fox-64-dood-met-mij-gaat-het-oke~a299f69a/)
@@ -35,8 +37,6 @@
   > Het advocatenteam van Sean ‘Diddy’ Combs heeft donderdag een verzoek ingediend om de rapper onmiddellijk vrij te laten. Volgens hen heeft rechter...
 - [FC Barcelona dient klacht in bij UEFA voor onbestraft hands Atlético Madrid](https://www.ad.nl/voetbal/fc-barcelona-dient-klacht-in-bij-uefa-voor-onbestraft-hands-atletico-madrid~a8754b59f/)
   > FC Barcelona heeft een klacht ingediend bij de UEFA. De Spaanse voetbalclub vond dat tegenstander Atlético Madrid woensdag in de kwartfinale van de...
-- [Porto verzuimt te winnen door knullige eigen goal, Freiburg en Villa op rozen richting halve finale](https://www.ad.nl/voetbal/porto-verzuimt-te-winnen-door-knullige-eigen-goal-freiburg-en-villa-op-rozen-richting-halve-finale~ac42a53e/)
-  > FC Porto is thuis tegen Nottingham Forest niet verder gekomen dan een 1-1 gelijkspel in de kwartfinale van de Europa League. De ploeg van voormalig...
 
 ### Meest gelezen
 
