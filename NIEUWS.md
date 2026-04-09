@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-04-2026 om 21:52*
+*Laatst bijgewerkt: 09-04-2026 om 22:48*
 
 ---
 
@@ -14,8 +14,8 @@
   > Voor het eerst hebben onderzoekers het uit elkaar vallen van een chimpanseegroep kunnen vastleggen. De studie, die deze week gepubliceerd werd in het...
 - [Stille tocht voor Dario (29), die werd doodgestoken bij een café in Hoorn](https://nos.nl/l/2609830)
   > Zo'n 200 familieleden, vrienden en bekenden hebben vanavond in Hoorn meegelopen in een stille tocht voor Dario (29). Hij werd op zaterdagavond 28...
-- [Poetin kondigt weer eenzijdig bestand af voor orthodox Pasen](https://nos.nl/l/2609829)
-  > De Russische president Poetin heeft een eenzijdig bestand afgekondigd voor orthodox Pasen komend weekend. Het Kremlin stelt dat het staakt-het-vuren...
+- [Oekraïne en Rusland zeggen elkaar niet aan te vallen tijdens orthodox Pasen](https://nos.nl/l/2609829)
+  > Oekraïne en Rusland leggen komend weekend de wapens neer vanwege orthodox Pasen. De Russische president Poetin had het paasbestand afgekondigd. Het...
 - [Utrecht geeft transporteurs meer tijd na dreiging rechtszaak](https://nos.nl/l/2609828)
   > De strengere regels voor de toegang van vrachtauto's tot de Utrechtse binnenstad zijn uitgesteld. Nadat de transportsector juridische stappen...
 
@@ -27,8 +27,8 @@
 
 ### Laatste nieuws
 
-- [Van Gerwen begonnen aan finale in Brighton, uitgejoelde Littler ligt er al snel uit](https://www.ad.nl/darts/van-gerwen-begonnen-aan-finale-in-brighton-uitgejoelde-littler-ligt-er-al-snel-uit~a0b37c68/)
-  > Een Nederlands onderonsje op de tiende speelavond van de Premier League: Michael van Gerwen neemt het in de kwartfinale op tegen Gian van Veen....
+- [Voetbalpodcast | ‘Alles op de bekerfinale voor AZ na deze nederlaag’](https://www.ad.nl/voetbal/voetbalpodcast-alles-op-de-bekerfinale-voor-az-na-deze-nederlaag~ac8603a9/)
+  > AZ kwam in actie in de kwartfinale van de Conference League tegen Shakhtar Donetsk. De ploeg van Leeroy Echteld vertrok uit Krakau met een 3-0...
 - [CNN verklaart Back to the Future-acteur Michael J. Fox (64) dood: ‘Met mij gaat het oké’](https://www.ad.nl/show/cnn-verklaart-back-to-the-future-acteur-michael-j-fox-64-dood-met-mij-gaat-het-oke~a299f69a/)
   > De Amerikaanse acteur Michael J. Fox heeft gereageerd op berichtgeving van CNN dat hij zou zijn overleden. Op sociale media vraagt Fox zich af wat...
 - [Rapper Diddy moet vrijkomen omdat rechter blunder maakte bij uitspreken straf, stellen advocaten](https://www.ad.nl/buitenland/rapper-diddy-moet-vrijkomen-omdat-rechter-blunder-maakte-bij-uitspreken-straf-stellen-advocaten~ae40ae1f/)
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Poetins bluf](https://fd.nl/opinie/1592510/poetins-bluf)
+  > In het Kanaal staan sinds kort commando’s klaar om Russische schepen te enteren. Zouden de Britten het lef hebben illegale schepen te achtervolgen?
+- [Bent u net zo corrupt als ik?](https://fd.nl/opinie/1592496/bent-u-net-zo-corrupt-als-ik)
+  > Corruptie kost welvaart en levert ongelijkheid op. Opstekertje uit de corruptie-index: Oekraïne stijgt en steekt bijna Hongarije voorbij. Mocht Orbán...
+- [Personalia vrijdag 10 april](https://fd.nl/bedrijfsleven/1592362/personalia-vrijdag-10-april)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [Klein plusje voor beurzen na bericht over mogelijke onderhandelingen tussen Israël en Libanon](https://fd.nl/financiele-markten/1592519/klein-plusje-voor-wall-street-na-bericht-over-mogelijke-onderhandelingen-tussenisrael-en-libanon)
   > De voornaamste graadmeters voor Amerikaanse aandelen eindigden in de plus, maar de stijgingen zijn veel minder heftig dan een dag eerder.
 - [Onduidelijkheid over onderhandelingen Libanon en Israël, aanvallen gaan door](https://fd.nl/samenleving/1592543/onduidelijkheid-over-staakt-het-vuren-libanon-en-israel-aanvallen-gaan-door)
   > De Israëlische premier Benjamin Netanyahu zegt volgens Al Jazeera dat hij opdracht heeft gegeven om ‘zo snel mogelijk’ directe onderhandelingen met...
-- [Trump heeft in Iran gegokt en verloren](https://fd.nl/opinie/1592360/trump-heeft-in-iran-gegokt-en-verloren)
-  > De kans dat de rust in de Perzische Golf terugkeert, lijkt vooralsnog klein. Het staakt-het-vuren dat de Verenigde Staten en Iran deze week zijn...
-- [Wie wint bij het broze bestand tussen de VS en Iran?](https://fd.nl/politiek/1592515/wie-wint-bij-het-broze-bestand-tussen-de-vs-en-iran)
-  > Iran lijkt de grootste winnaar van de oorlog die de VS en Israël zes weken geleden begonnen. Of Iran verrijkt uranium kan blijven houden is...
-- [Geboortecijfer VS zakt naar historisch dieptepunt](https://fd.nl/samenleving/1592586/geboortecijfer-vs-zakt-naar-historisch-dieptepunt)
-  > In de VS is het algemene vruchtbaarheidscijfer sinds 2007 met bijna 23% gedaald. De daling weerspiegelt een wereldwijde trend.
 
 ### Meest gelezen
 
