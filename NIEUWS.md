@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-04-2026 om 13:52*
+*Laatst bijgewerkt: 09-04-2026 om 15:25*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Podcast de Dag: wachtlijsten en lege behandelkamers, naar de rechter voor een betere ggz](https://nos.nl/l/2609776)
-  > Op de wachtlijst voor een psychiater of psycholoog, terwijl je die hard nodig hebt. In de ggz moeten patiënten wachten. Maanden, en soms zelfs...
-- [Duitse acteur Mario Adorf (Die Blechtrommel) overleden op 95-jarige leeftijd](https://nos.nl/l/2609770)
-  > De Duitse acteur Mario Adorf is op 95-jarige leeftijd overleden. Hij stierf in zijn woonplaats Parijs na een kort ziekbed, meldt zijn manager.
-      ...
-- [Kamer bezorgd over stijgend aantal verwarde mensen en uitblijven van oplossingen](https://nos.nl/l/2609767)
-  > In de Tweede Kamer leven grote zorgen over de toename van het aantal mensen met verward of onbegrepen gedrag, en vooral ook over het uitblijven van...
-- [Verdachte Russische activiteit in Noordzee, onderzeeërs verjaagd](https://nos.nl/l/2609759)
-  > Drie Russische onderzeeërs hebben langer dan een maand "kwaadaardige activiteiten" laten zien in het noordelijke deel van de Noordzee. Dat heeft de...
-- [Keizerspinguïn door klimaatverandering op lijst bedreigde diersoorten](https://nos.nl/l/2609751)
-  > De keizerspinguïn is op de lijst met bedreigde diersoorten gezet. Door klimaatverandering wordt verwacht dat de keizerspinguïnpopulatie in Antarctica...
+- [Zwangerschapsdiscriminatie hardnekkig, bijna de helft is vermoedelijk slachtoffer](https://nos.nl/l/2609788)
+  > Nog steeds is bijna de helft van de vrouwen die zwanger en werkend of werkzoekend zijn, vermoedelijk slachtoffer van zwangerschapsdiscriminatie. Dat...
+- [EU wil uitleg van Hongarije over 'gelekte gesprekken' met Lavrov](https://nos.nl/l/2609786)
+  > De Europese Commissie eist uitleg van Hongarije over "uiterst zorgwekkende" berichten over het delen van vertrouwelijke EU-informatie door Hongarije...
+- [Komende dagen weinig regen, wisselende temperaturen](https://nos.nl/l/2609784)
+  > Voorlopig staat het weer in het teken van nogal wisselende temperaturen. Vandaag was het erg zacht; in het zuiden werd het 24 graden. Dat is geen...
+- [Weer meer wolven in Nederland, in totaal veertien roedels geteld](https://nos.nl/l/2609783)
+  > Het aantal wolven in Nederland blijft toenemen. Uit cijfers van BIJ12, de organisatie die voor provincies alle zaken rond wolven in Nederland...
+- [Drentse brandweer wil meer geld nu risico op natuurbranden toeneemt](https://nos.nl/l/2609782)
+  > De Veiligheidsregio Drenthe wil snel meer geld voor de brandweer, zeker nu het risico op natuurbranden toeneemt.
+        Mocht dat extra geld er niet...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Verstappen verder zonder ‘grote broer’ Gianpiero Lambiase? ‘Misschien is Max ook toe aan een nieuw avontuur’](https://www.ad.nl/formule-1/verstappen-verder-zonder-grote-broer-gianpiero-lambiase-misschien-is-max-ook-toe-aan-een-nieuw-avontuur~aa7bbe25/)
-  > Max Verstappen zonder race-engineer Gianpiero Lambiase, het is haast ondenkbaar. Sinds 2016 maakten de twee - meer dan eens bestempeld als ‘getrouwd...
-- [Vermeende Syrische beul uit Druten reageert boos en smalend in rechtszaal: ‘Hij is een valse getuige’](https://www.ad.nl/binnenland/vermeende-syrische-beul-uit-druten-reageert-boos-en-smalend-in-rechtszaal-hij-is-een-valse-getuige~a445d509/)
-  > Van boos tot smalend: de vermeende Syrische folteraar Rafik A. uit Druten toont zich emotioneel op de tweede zittingsdag van dit bijzondere proces....
-- [Nieuwe reeks betaalbare elektrische auto’s van de Volkswagen Groep: deze Cupra Raval is de eerste](https://www.ad.nl/auto/nieuwe-reeks-betaalbare-elektrische-autos-van-de-volkswagen-groep-deze-cupra-raval-is-de-eerste~aea51f8d0/)
-  > De Volkswagen Groep heeft het allereerste model onthuld van een nieuwe reeks betaalbare, elektrische auto’s. Het debuut is gegund aan de Cupra Raval,...
-- [12 jaar cel en tbs voor verkrachten en vermoorden Oekraïense sekswerker in IJmuiden](https://www.ad.nl/binnenland/12-jaar-cel-en-tbs-voor-verkrachten-en-vermoorden-oekraiense-sekswerker-in-ijmuiden~a7e1d69e/)
-  > Het gerechtshof in Amsterdam heeft donderdag de 38-jarige Sander K. in hoger beroep veroordeeld tot twaalf jaar cel en tbs met dwangverpleging voor...
-- [Eén keer van bil en direct raak: zeldzame zwangerschap van puntlipneushoorn in Beekse Bergen](https://www.ad.nl/binnenland/een-keer-van-bil-en-direct-raak-zeldzame-zwangerschap-van-puntlipneushoorn-in-beekse-bergen~a606e133/)
-  > Ebi, zo’n 1100 kilo zwaar, staat op het punt moeder te worden. Een unicum voor Safaripark Beekse Bergen, want er werd nog nooit een puntlipneushoorn...
+- [Connie Witteman betaalt haar ex drie ton, maar legt meteen beslag op zijn huis](https://www.ad.nl/show/connie-witteman-betaalt-haar-ex-drie-ton-maar-legt-meteen-beslag-op-zijn-huis~afc58a52/)
+  > Connie Witteman legt zich blijkbaar niet meer bij het feit dat zij van de rechter haar ex-verloofde Eugene van Dun ruim drie ton moest betalen. Dat...
+- [Britten volgden maand lang Russische onderzeeërs die kabels en pijpleidingen bespioneerden](https://www.ad.nl/buitenland/britten-volgden-maand-lang-russische-onderzeeers-die-kabels-en-pijpleidingen-bespioneerden~ab0bb23e/)
+  > De Britse marine heeft bij een recente operatie een maand lang een Russische schaduwvloot gevolgd. Het ging om Russische onderzeeërs die belangrijke...
+- [Project Avatar: waarom de Artemis-astronauten een chip met eigen mini-organen mee hebben naar de maan](https://www.ad.nl/wetenschap/project-avatar-waarom-de-artemis-astronauten-een-chip-met-eigen-mini-organen-mee-hebben-naar-de-maan~aa9e4100/)
+  > Het klinkt als pure sciencefiction, maar is het niet: de vier Artemis-astronauten dragen een speciale Avatar-chip ter grootte van een usb-stick mee...
+- [LIVE WK voetbal | Engeland maakt laatste oefenduels bekend, Oranje-opponent Zweden ziet aanvaller afhaken](https://www.ad.nl/wk-voetbal/live-wk-voetbal-engeland-maakt-laatste-oefenduels-bekend-oranje-opponent-zweden-ziet-aanvaller-afhaken~a61805da/)
+  > Over iets meer dan twee maanden begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste...
+- [Dartster Noa-Lynn van Leuven niet meer welkom bij vrouwentoernooien van de PDC](https://www.ad.nl/darts/dartster-noa-lynn-van-leuven-niet-meer-welkom-bij-vrouwentoernooien-van-de-pdc~a2244db9/)
+  > Noa-Lynn van Leuven mag niet meer meedoen aan vrouwentoernooien van de PDC, meldt de dartsorganisatie in een verklaring. De 29-jarige trans dartster...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [VK: Russische spionagemissie bracht een maand lang kabels rond Britse eilanden in kaart](https://fd.nl/politiek/1592370/vk-russische-spionagemissie-bracht-een-maand-lang-kabels-rond-britse-eilanden-in-kaart)
-  > Drie Russische onderzeeërs werden ontdekt door Britse marine, die de Russische vaartuigen een maand lang gevolgd heeft. Volgens het Verenigd...
-- [Samsung steekt $4 mrd in fabriek voor chipverpakkingen in Vietnam](https://fd.nl/bedrijfsleven/1592372/samsung-steekt-4-mrd-in-fabriek-voor-chipverpakkingen-in-vietnam)
-  > De grootste buitenlandse investeerder in het Aziatische land breidt zijn aanwezigheid hiermee verder uit.
-- [Honderdduizenden onterechte boetes door scanauto’s](https://fd.nl/samenleving/1592508/honderdduizenden-onterechte-boetes-door-scanautos)
-  > Meer dan 10% van de parkeerboetes is onterecht, blijkt uit onderzoek van de Autoriteit Persoonsgegevens.
-- [Gordon A. gaf volgens OM leiding aan miljoenenfraude door Morgan Stanley](https://fd.nl/samenleving/1592507/gordon-a-gaf-volgens-om-leiding-aan-miljoenenfraude-door-morgan-stanley)
-  > De gewezen Britse bankier ontkent schuld. Adviseurs van Loyens & Loeff en KPMG Meijburg zullen binnenkort net als A. worden verhoord in de strafzaak...
-- [Vier miljoen Oekraïners in de EU: wie mag er blijven?](https://fd.nl/politiek/1592498/vier-miljoen-oekrainers-in-de-eu-wie-mag-er-blijven)
-  > Polen, dat bijna een miljoen Oekraïense vluchtelingen huisvest, zet de eerste stappen om Oekraïense vluchtelingen hetzelfde te behandelen als andere...
+- [De Navo levert de VS militaire slagkracht én banen op, maar Trump gelooft daar weinig van](https://fd.nl/politiek/1592359/de-navo-levert-de-vs-militaire-slagkracht-en-banen-op-maar-trump-gelooft-daar-weinig-van)
+  > Donald Trump dreigt de VS uit de Navo te halen. Maar ook als de VS lid blijven, rijst de vraag: wat stelt de Navo eigenlijk nog voor als Trump...
+- [Niet alles wat blinkt, is goud](https://fd.nl/financiele-markten/1592367/niet-alles-wat-glinstert-is-goud)
+  > Bij een juwelier draait het om glans, geluk en voorspoed. Voor juwelenketen Lucardi waren het doffe tijden. Private equity kon het niet veranderen.
+- [Nederlandse Loterij start tweede rechtszaak tegen een illegale goksite](https://fd.nl/bedrijfsleven/1592579/nederlandse-loterij-start-tweede-rechtszaak-tegen-een-illegale-goksite)
+  > De loterij wil dat de site van Qbet op zwart gaat, weten wie er achter dit bedrijf zit en een schadevergoeding voor gederfde inkomsten. Donderdag...
+- [Nederlandse consumenten kochten opnieuw minder](https://fd.nl/financiele-markten/1592578/nederlandse-consumenten-kochten-opnieuw-minder)
+  > Auto’s en kleding minder in trek in februari, meldt het Centraal Bureau voor de Statistiek (CBS) donderdag.
+- [Stage Entertainment neemt twee musicalpodia in centrum Madrid over](https://fd.nl/bedrijfsleven/1592512/stage-entertainment-neemt-twee-musicalpodia-in-centrum-madrid-over)
+  > De theaters in het centrum van de Spaanse hoofdstad bieden beide meer dan 1400 zitplaatsen. Stage Entertainment is in 1998 opgericht door...
 
 ### Meest gelezen
 
