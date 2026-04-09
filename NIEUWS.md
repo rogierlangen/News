@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-04-2026 om 19:14*
+*Laatst bijgewerkt: 09-04-2026 om 20:56*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Stille tocht voor Dario (29), die werd doodgestoken bij een café in Hoorn](https://nos.nl/l/2609830)
+  > Zo'n 200 familieleden, vrienden en bekenden hebben vanavond in Hoorn meegelopen in een stille tocht voor Dario (29). Hij werd op zaterdagavond 28...
+- [Poetin kondigt weer eenzijdig bestand af voor orthodox Pasen](https://nos.nl/l/2609829)
+  > De Russische president Poetin heeft een eenzijdig bestand afgekondigd voor orthodox Pasen komend weekend. Het Kremlin stelt dat het staakt-het-vuren...
+- [Utrecht geeft transporteurs meer tijd na dreiging rechtszaak](https://nos.nl/l/2609828)
+  > De strengere regels voor de toegang van vrachtauto's tot de Utrechtse binnenstad zijn uitgesteld. Nadat de transportsector juridische stappen...
 - [Lokale 'Pro'-partijen willen bij rechter nieuwe naam GL-PvdA aanvechten](https://nos.nl/l/2609820)
   > Tientallen lokale partijen met Pro in hun naam gaan de strijd met GroenLinks-PvdA aan vanwege de naam. Ze stappen naar de rechter als de Kiesraad de...
 - [Weelderige kroningsjurk en felgekleurde pakjes: nieuwe expo laat leven The Queen zien in kleding](https://nos.nl/l/2609819)
-  > Op de dag dat de Britse koningin Elizabeth II 100 had moeten worden, gaan morgen de deuren van de publieke kunstgalerie in Buckingham Palace open om...
-- [Orbán of Magyar? Brussel houdt adem in voor Hongaarse verkiezingen](https://nos.nl/l/2609816)
-  > Zondag brengen zo'n acht miljoen Hongaren hun stem uit in de parlementsverkiezingen. Peilingen voorspellen al tijden een spannende tweestrijd tussen...
-- [Vijf jaar cel voor Utrechtse taxichauffeur die klanten misbruikte](https://nos.nl/l/2609814)
-  > Een 48-jarige taxichauffeur uit Utrecht die meerdere vrouwen verkrachtte en aanrandde, moet 5,5 jaar de cel in. Dat heeft de Utrechtse rechtbank...
-- [Anthropic houdt AI-model voorlopig achter slot: 'Een soort digitale koevoet'](https://nos.nl/l/2609813)
-  > Een AI-model dat zo sterk is dat het voor het 'gewone' publiek niet beschikbaar is. Het Amerikaanse bedrijf Anthropic heeft er naar eigen zeggen een...
+  > In aanloop naar de honderdste geboortedag van de overleden Britse koningin Elizabeth II, gaan morgen de deuren van de publieke kunstgalerie in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [AZ in Polen begonnen aan kwartfinale, schrik bij Shakhtar na harde botsing](https://www.ad.nl/voetbal/az-in-polen-begonnen-aan-kwartfinale-schrik-bij-shakhtar-na-harde-botsing~adddb0382/)
+- [‘Uiterst sociale’ ouders dood gevonden door eigen kinderen in België, politie vermoedt gezinsdrama](https://www.ad.nl/buitenland/uiterst-sociale-ouders-dood-gevonden-door-eigen-kinderen-in-belgie-politie-vermoedt-gezinsdrama~a461627d/)
+  > Een echtpaar uit het Belgische Grimde is donderdagavond dood in hun woning aangetroffen door hun eigen kinderen. De politie houdt ernstig rekening...
+- [S10 geschokt na vrijlating van verdachten in zaak rond dood broer](https://www.ad.nl/show/s10-geschokt-na-vrijlating-van-verdachten-in-zaak-rond-dood-broer~a0e03f10/)
+  > Zangeres S10 is geschokt door de beslissing om de vier verdachten in de zaak rond de dood van haar tweelingbroer vrij te laten. De rechtbank in...
+- [Van Gerwen laat Van Veen kansloos in Nederlands onderonsje, uitgejoelde Littler ligt er al snel uit](https://www.ad.nl/darts/van-gerwen-laat-van-veen-kansloos-in-nederlands-onderonsje-uitgejoelde-littler-ligt-er-al-snel-uit~a0b37c68/)
+  > Een Nederlands onderonsje op de tiende speelavond van de Premier League: Michael van Gerwen neemt het in de kwartfinale op tegen Gian van Veen....
+- [AZ zakt volledig door de hoeven in tweede helft en ziet Shakhtar verder uitlopen](https://www.ad.nl/voetbal/az-zakt-volledig-door-de-hoeven-in-tweede-helft-en-ziet-shakhtar-verder-uitlopen~adddb0382/)
   > AZ verdedigt de Nederlandse eer in Europa voorlopig uitstekend. De Alkmaarders gaan op jacht naar een plaats in de halve finales van de Conference...
-- [Kanye die ‘Heil Hitler’ scandeert, vormt een serieus risico voor de openbare orde](https://www.ad.nl/binnenland/kanye-die-heil-hitler-scandeert-vormt-een-serieus-risico-voor-de-openbare-orde~afb4f0a1/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [Femke (22) zocht vermaak, maar Abel (23) had een plan: ‘Wilde er meer uithalen dan een nachtje blijven slapen’](https://www.ad.nl/binnenland/femke-22-zocht-vermaak-maar-abel-23-had-een-plan-wilde-er-meer-uithalen-dan-een-nachtje-blijven-slapen~aed5679f/)
-  > Femke (22) was vooral op zoek naar vermaak, maar Abel (23) had een ander plan. „Ik wilde er meer uithalen dan alleen een nachtje blijven slapen....
-- [LIVE Europa League | Sterk gewijzigd Porto van Farioli begonnen tegen Nottingham, Bologna treft Aston Villa](https://www.ad.nl/voetbal/live-europa-league-sterk-gewijzigd-porto-van-farioli-begonnen-tegen-nottingham-bologna-treft-aston-villa~ac42a53e/)
-  > De Europa League is aanbeland bij de beslissende fase. Vandaag worden de eerste kwartfinales afgewerkt. Het FC Porto van voormalig Ajax-trainer...
-- [Ruim twee op de vijf vrouwen krijgen te maken met zwangerschapsdiscriminatie, FNV opent meldpunt](https://www.ad.nl/binnenland/ruim-twee-op-de-vijf-vrouwen-krijgen-te-maken-met-zwangerschapsdiscriminatie-fnv-opent-meldpunt~a8f80793/)
-  > Vakbond FNV opent een meldpunt voor zwangere vrouwen die discriminatie ervaren. Met het meldpunt wil de vakbond meer ervaringen bundelen om zo druk...
+- [Melania Trump ontkent connectie met Epstein tijdens onverwachte toespraak: ‘Leugens moeten stoppen’](https://www.ad.nl/buitenland/melania-trump-ontkent-connectie-met-epstein-tijdens-onverwachte-toespraak-leugens-moeten-stoppen~ae67dd9c/)
+  > De Amerikaanse presidentsvrouw Melania Trump heeft ontkend ooit banden te hebben gehad met de beruchte zedendelinquent Jeffrey Epstein. Volgens haar...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Klein plusje voor beurzen na bericht over mogelijke onderhandelingen tussen Israël en Libanon](https://fd.nl/financiele-markten/1592519/klein-plusje-voor-wall-street-na-bericht-over-mogelijke-onderhandelingen-tussenisrael-en-libanon)
+  > De voornaamste graadmeters voor Amerikaanse aandelen eindigden in de plus, maar de stijgingen zijn veel minder heftig dan een dag eerder.
+- [Onduidelijkheid over onderhandelingen Libanon en Israël, aanvallen gaan door](https://fd.nl/samenleving/1592543/onduidelijkheid-over-staakt-het-vuren-libanon-en-israel-aanvallen-gaan-door)
+  > De Israëlische premier Benjamin Netanyahu zegt volgens Al Jazeera dat hij opdracht heeft gegeven om ‘zo snel mogelijk’ directe onderhandelingen met...
 - [Trump heeft in Iran gegokt en verloren](https://fd.nl/opinie/1592360/trump-heeft-in-iran-gegokt-en-verloren)
   > De kans dat de rust in de Perzische Golf terugkeert, lijkt vooralsnog klein. Het staakt-het-vuren dat de Verenigde Staten en Iran deze week zijn...
 - [Wie wint bij het broze bestand tussen de VS en Iran?](https://fd.nl/politiek/1592515/wie-wint-bij-het-broze-bestand-tussen-de-vs-en-iran)
   > Iran lijkt de grootste winnaar van de oorlog die de VS en Israël zes weken geleden begonnen. Of Iran verrijkt uranium kan blijven houden is...
 - [Geboortecijfer VS zakt naar historisch dieptepunt](https://fd.nl/samenleving/1592586/geboortecijfer-vs-zakt-naar-historisch-dieptepunt)
   > In de VS is het algemene vruchtbaarheidscijfer sinds 2007 met bijna 23% gedaald. De daling weerspiegelt een wereldwijde trend.
-- [Verwachtingen over Fed-beleid lopen sterk uiteen, pauze lijkt meest waarschijnlijk](https://fd.nl/financiele-markten/1592581/verwachtingen-over-fed-beleid-lopen-sterk-uiteen-pauze-lijkt-meest-waarschijnlijk)
-  > De onzekerheid over het rentebeleid van de Fed is buitengewoon groot. Het wankele bestand tussen Iran en de Verenigde Staten heeft daar nog geen...
-- [CVC Capital Partners zoekt mede-investeerders voor Recordati-overname](https://fd.nl/financiele-markten/1592516/cvc-capital-partners-zoekt-mede-investeerders-voor-recordati-overname)
-  > De investeringsmaatschappij kondigde vorige maand aan Recordati te willen overnemen voor €52 per aandeel.
 
 ### Meest gelezen
 
