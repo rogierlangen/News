@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-04-2026 om 20:43*
+*Laatst bijgewerkt: 10-04-2026 om 21:42*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Terugkeer Artemis II | Astronauten onderweg naar de aarde, ‘weer is ideaal voor landing in zee’](https://www.ad.nl/buitenland/live-terugkeer-artemis-ii-astronauten-onderweg-naar-de-aarde-weer-is-ideaal-voor-landing-in-zee~a65845e4/)
-  > De astronauten van de Artemis II-missie zijn onderweg terug naar de aarde. Ze vlogen een recordaantal van 406.771 kilometer de ruimte in en maakten...
-- [Winnaar De slimste mens sliep nachten niet door stress, maar huurde wel de dorpskroeg af voor de finale](https://www.ad.nl/show/winnaar-de-slimste-mens-sliep-nachten-niet-door-stress-maar-huurde-wel-de-dorpskroeg-af-voor-de-finale~a32966c2/)
-  > Talloze keren is hij ’s nachts wakker geschrokken van mogelijke vragen bij De slimste mens, en dat was niet tevergeefs. Presentator Frank van Leeuwen...
+- [Tesla-rijders mogen voortaan de openbare weg op zónder handen aan het stuur](https://www.ad.nl/auto/tesla-rijders-mogen-voortaan-de-openbare-weg-op-zonder-handen-aan-het-stuur~ae8ad5b4/)
+  > De zelfrijdende auto’s van Tesla hebben toestemming gekregen van het RDW om in Nederland de openbare weg op te gaan. Tesla-rijders mogen voortaan de...
+- [Foxtrot en Hadestown grote favorieten voor Musical Awards 2026](https://www.ad.nl/show/foxtrot-en-hadestown-grote-favorieten-voor-musical-awards-2026~a5dc32db/)
+  > De jaarlijkse strijd om de Musical Awards is officieel losgebarsten. De vakjury heeft de nominaties voor 2026 bekendgemaakt, waarbij de Annie M.G....
+- [President Libanon kondigt gesprekken met Israël aan, KLM mijdt Dubai zeker tot juni](https://www.ad.nl/buitenland/president-libanon-kondigt-gesprekken-met-israel-aan-klm-mijdt-dubai-zeker-tot-juni~ac528ac3/)
+  > Dinsdag zullen er in Washington gesprekken plaatsvinden tussen Libanon en Israël over een staakt-het-vuren in de oorlog tussen Israël en de...
 - [Donyell Malen blijft scoren bij AS Roma: Oranje-spits na hattrick derde op topscorerslijst Serie A](https://www.ad.nl/voetbal/donyell-malen-blijft-scoren-bij-as-roma-oranje-spits-na-hattrick-derde-op-topscorerslijst-serie-a~a317294c/)
-  > Donyell Malen blijft zijn doelpunten maar maken in Italië. De 27-jarige Oranje-international scoorde vanavond tegen Pisa al drie keer voor AS Roma.
-- [FC Twente komt dankzij minimale zege op Volendam in punten naast NEC](https://www.ad.nl/voetbal/fc-twente-komt-dankzij-minimale-zege-op-volendam-in-punten-naast-nec~aec614ca/)
-  > FC Twente is in de eredivisie door een zege op FC Volendam in punten op gelijke hoogte gekomen met NEC. De ploeg van trainer John van den Brom won in...
-- [Cambuur verspeelt punten in Den Bosch, Harrie Kuster op dreef bij RKC](https://www.ad.nl/voetbal/cambuur-verspeelt-punten-in-den-bosch-harrie-kuster-op-dreef-bij-rkc~a2868add/)
-  > In de Keuken Kampioen Divisie werden vrijdagavond vier wedstrijden gespeeld. SC Cambuur speelde met 1-1 gelijk bij FC Den Bosch, waardoor ADO Den...
+  > Donyell Malen blijft zijn doelpunten maar maken in Italië. De 27-jarige Oranje-international scoorde vanavond tegen hekkensluiter Pisa drie keer voor...
+- [Real Madrid kan titel uit het hoofd zetten na nieuwe misstap](https://www.ad.nl/voetbal/real-madrid-kan-titel-uit-het-hoofd-zetten-na-nieuwe-misstap~a3376922/)
+  > Real Madrid kan de titel in La Liga uit het hoofd zitten. Het team van trainer Álvaro Arbeloa speelde vrijdagavond in het Estadio Santiago Bernabéu...
 
 ### Meest gelezen
 
