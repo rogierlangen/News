@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-04-2026 om 17:55*
+*Laatst bijgewerkt: 10-04-2026 om 19:03*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Politie grijpt in bij demonstrerende activisten op Betuwespoorlijn](https://nos.nl/l/2609936)
+- [Israël wil dat Hezbollah ontwapent, maar hoe realistisch is dat?](https://nos.nl/l/2609945)
+  > Na weken van bombardementen met meer dan duizend doden en ruim een miljoen Libanese vluchtelingen tot gevolg, heeft zowel de Israëlische als Libanese...
+- [Stefano Gabbana niet langer topman Dolce & Gabbana, neemt zakelijk afstand](https://nos.nl/l/2609941)
+  > Stefano Gabbana, een van de oprichters van het modehuis Dolce & Gabbana, is gestopt als directievoorzitter van het bedrijf. Dat gebeurde al in...
+- [Groep strafrechtadvocaten houdt zich niet langer aan strenge EBI-regels](https://nos.nl/l/2609940)
+  > Een groep strafrechtadvocaten met cliënten in de zwaarst bewaakte afdelingen van gevangenissen, zoals de Extra Beveiligde Inrichting (EBI) in Vught,...
+- [Spanningen in Ierland door brandstofprotesten, leger staat paraat](https://nos.nl/l/2609938)
+  > De spanning in Ierland loopt op nu het land voor de vierde dag is geconfronteerd met grootschalige brandstofprotesten. Voornamelijk boze boeren op...
+- [Politie grijpt in bij activisten op Betuwespoorlijn, vijftien arrestanten](https://nos.nl/l/2609936)
   > De politie heeft ingegrepen bij een bezetting van de Betuweroute. Activisten van Geef Tegengas zaten sinds het middaguur op het spoor tussen Lent en...
-- [Kabinet vindt koninklijk bezoek aan Trump 'ongemakkelijk', maar 'deuren gaan open'](https://nos.nl/l/2609933)
-  > Het kabinet geeft toe dat de timing van het bezoek van koning Willem-Alexander, koningin Máxima en premier Jetten aan president Trump "ongemakkelijk"...
-- [Spannende finale voor Artemis II vannacht met terugkeer op aarde](https://nos.nl/l/2609927)
-  > De historische maanmissie van Artemis II heeft al veel bijzondere en fascinerende beelden opgeleverd, maar een van de spannendste momenten moet nog...
-- [NAM wil gaswinning bij Warffum weer opstarten: volgende week beginnen werkzaamheden](https://nos.nl/l/2609922)
-  > De Nederlandse Aardoliemaatschappij (NAM) gaat proberen de gaswinning bij Warffum weer op te starten. Het gasbedrijf gaat vanaf maandag proberen de...
-- [Mijnenvegers, rappers en een logeerpartijtje](https://nos.nl/l/2609921)
-  > Er is een bestand tussen Iran en Amerika. Tenminste, dat was woensdag. Gisteren wankelde het alweer en wie weet hoe het er vanavond voor staat. Wat...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [FC Twente begint met Lammers en Van Wolfswinkel tegen FC Volendam](https://www.ad.nl/voetbal/fc-twente-begint-met-lammers-en-van-wolfswinkel-tegen-fc-volendam~aec614ca/)
+- [LIVE Terugkeer Artemis II | Astronauten onderweg naar de aarde, landen vannacht in zee](https://www.ad.nl/buitenland/live-terugkeer-artemis-ii-astronauten-onderweg-naar-de-aarde-landen-vannacht-in-zee~a65845e4/)
+  > De astronauten van de Artemis II-missie zijn onderweg terug naar de aarde. Ze vlogen een recordaantal van 406.771 kilometer de ruimte in en maakten...
+- [Wijnboer in Oostenrijk verdacht van vergiftigen rijke weduwe in villa: ‘Alles al cadeau gekregen’](https://www.ad.nl/buitenland/wijnboer-in-oostenrijk-verdacht-van-vergiftigen-rijke-weduwe-in-villa-alles-al-cadeau-gekregen~aef6bd42/)
+  > Een 58-jarige Oostenrijkse wijnboer is aangeklaagd omdat hij ervan verdacht wordt een rijke weduwe (71) in haar villa in Sankt Pölten te hebben...
+- [FC Twente veel te sterk voor Volendam, tweede goal van Hlynsson afgekeurd](https://www.ad.nl/voetbal/fc-twente-veel-te-sterk-voor-volendam-tweede-goal-van-hlynsson-afgekeurd~aec614ca/)
   > FC Twente is nog in de race voor Champions League-voetbal. De achterstand op nummer twee Feyenoord bedraagt maar vier punten. Om 20.00 uur speelt de...
-- [Alleen de echte nieuwsjunk maakt deze wekelijkse quiz foutloos](https://www.ad.nl/quiz/alleen-de-echte-nieuwsjunk-maakt-deze-wekelijkse-quiz-foutloos~a06b43b3/)
-  > Deze week vloog Artemis II om de maan en werd een staakt-het-vuren aangekondigd in de Iran-oorlog. Maar er gebeurde nog veel meer. Test je kennis in...
-- [Artemis II komt met dubbele snelheid binnen: hitteschild is een risico](https://www.ad.nl/buitenland/artemis-ii-komt-met-dubbele-snelheid-binnen-hitteschild-is-een-risico~a2350e6d/)
-  > Na een tien dagen durende missie op 400.000 kilometer van de aarde keert Artemis II in de nacht van vrijdag op zaterdag terug. De landing belooft...
-- [Stelt Cambuur het kampioensfeestje van ADO Den Haag nog even uit?](https://www.ad.nl/voetbal/stelt-cambuur-het-kampioensfeestje-van-ado-den-haag-nog-even-uit~a2868add/)
-  > Vier duels vanavond in de Keuken Kampioen Divisie. Nummer twee Cambuur moet winnen bij FC Den Bosch om het titelfeest van ADO Den Haag nog even uit...
-- [Vliegtuig KLM botst tijdens opstijgen tegen een reiger, toestel moet halsoverkop terug naar Schiphol](https://www.ad.nl/binnenland/vliegtuig-klm-botst-tijdens-opstijgen-tegen-een-reiger-toestel-moet-halsoverkop-terug-naar-schiphol~aaf47326/)
-  > Toen een vliegtuig van KLM vrijdagmiddag opsteeg om richting het Franse Nice te vliegen, leek er geen vuiltje aan de lucht. Maar al snel had het...
+- [Simon Keizer over botox en andere kunstgrepen: ‘Die haartransplantatie zou ik zo weer doen’](https://www.ad.nl/gezond/simon-keizer-over-botox-en-andere-kunstgrepen-die-haartransplantatie-zou-ik-zo-weer-doen~aa0c74e7/)
+  > Een gastroscopie zonder verdoving was zijn ergste medische ervaring en zijn slokdarm is sowieso zijn  zwakke plek: ‘Zodra ik iets pittigs eet, krijg...
+- [Rachel Hazes hoopt op winst van 330.000 euro: ze zet dit appartement aan het water te koop](https://www.ad.nl/show/rachel-hazes-hoopt-op-winst-van-330-000-euro-ze-zet-dit-appartement-aan-het-water-te-koop~a51d9d880/)
+  > Rachel Hazes kan een enorme financiële klapper maken met de verkoop van een van haar appartementen aan de Vinkeveense Plassen. Het stulpje in...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Frankrijk verdubbelt staatssteun voor elektriciteitsgebruik](https://fd.nl/politiek/1592654/frankrijk-verdubbelt-staatssteun-voor-elektriciteitsgebruik)
+  > De overstap van gas en olie naar elektriciteit moet Frankrijk minder afhankelijk van het buitenland maken. Bovendien heeft het land veel kernenergie.
+- [Snelle overheidsactie nodig voor AI‑beveiliging](https://fd.nl/opinie/1592567/snelle-overheidsactie-nodig-voor-aibeveiliging)
+  > Als nieuwe AI-modellen zo krachtig worden dat ze grote risico’s met zich meebrengen voor de samenleving, is interventie door de overheid gewenst.
 - [Meer lege hotelbedden na btw-verhoging](https://fd.nl/bedrijfsleven/1592653/meer-lege-hotelbedden-na-btw-verhoging)
   > De bezettingsgraad van hotels daalde in het eerste kwartaal, blijkt uit een peiling van brancheorganisatie KHN.
 - [Koersval Sodexo na tegenvallende vooruitzichten](https://fd.nl/bedrijfsleven/1592679/koersval-sodexo-na-tegenvallende-vooruitzichten)
   > Het Franse cateringbedrijf presteert slechter dan branchegenoten en schroeft de groeiverwachtingen terug.
 - [Beurzen op winst in week dat een beschaving dreigde te sterven](https://fd.nl/financiele-markten/1592570/beurzen-op-winst-in-week-dat-een-beschaving-dreigde-te-sterven)
   > De directe nucleaire dreiging mag dan voor even weg zijn, het advies om aandelen te kopen als de wereld dreigt te vergaan is niet nieuw.
-- [Wat te denken van onze tijden? Ongerustheid zet de hersenen flink aan het werk](https://fd.nl/opinie/1592504/wat-te-denken-van-onze-tijden)
-  > De domme academicus in mij ging er altijd vanuit dat je bij het schrijven aan het begin al moet weten waar je eindigt. Maar je bent pas écht vrij als...
-- [Beleggers vluchten uit fondsen van Blue Owl: terecht of kuddegedrag?](https://fd.nl/bedrijfsleven/1592614/beleggers-vluchten-uit-fondsen-van-blue-owl-terecht-of-kuddegedrag)
-  > Het gaat slecht met de privatecreditfondsen van Blue Owl. Het management van de vermogensbeheerder predikt kalmte. Maar de leningen zijn...
 
 ### Meest gelezen
 
