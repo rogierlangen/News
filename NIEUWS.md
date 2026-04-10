@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-04-2026 om 11:00*
+*Laatst bijgewerkt: 10-04-2026 om 13:20*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Man veroordeeld voor verkrachting 15-jarig meisje op schoolplein Alphen aan den Rijn](https://nos.nl/l/2609885)
-  > Een 20-jarige man uit Polen is door de rechter veroordeeld tot een gevangenisstraf van vier jaar voor de verkrachting van een 15-jarig meisje op een...
-- [Aartsvijanden VS en Iran aan één tafel: dit weten we over deze pittige onderhandelingen](https://nos.nl/l/2609883)
-  > Het wankele staakt-het-vuren in het Midden-Oosten moet leiden tot onderhandelingen in het Pakistaanse Islamabad over een langdurige vrede tussen Iran...
-- [Amerikaanse rechter fluit Pentagon opnieuw terug om mediabeleid](https://nos.nl/l/2609882)
-  > Een Amerikaanse rechter heeft geoordeeld dat het ministerie van Defensie zich niet aan een bevel heeft gehouden om journalisten weer toe te laten tot...
-- [Haven Antwerpen gestremd na olielek](https://nos.nl/l/2609879)
-  > De Antwerpse haven is niet bereikbaar als gevolg van een groot olielek. Schepen kunnen er niet in of uit.
-        Het lek ontstond rond middernacht...
-- [Israëlisch kabinet keurde in geheim 34 nieuwe nederzettingen Westoever goed](https://nos.nl/l/2609878)
-  > Het Israëlische kabinet heeft bijna twee weken geleden in het geheim de bouw van tientallen nederzettingen op de door Israël bezette Westelijke...
+- [Egels in Wallonië beschermd tegen robotmaaiers, Nederland volgt nog niet](https://nos.nl/l/2609904)
+  > Inwoners van het Belgische Wallonië mogen sinds gisteren hun robotgrasmaaiers niet meer 's nachts gebruiken. De maatregel moet egels en andere...
+- [Zeven illegale slachters in Friesland op heterdaad betrapt](https://nos.nl/l/2609901)
+  > Inspecteurs van de Nederlandse Voedsel- en Warenautoriteit (NVWA) hebben op een boerderij in Friesland een illegale slachterij ontdekt. In een schuur...
+- [Podcast De Dag: de onderschatting van Iran](https://nos.nl/l/2609900)
+  > Delen van de Pakistaanse hoofdstad Islamabad zijn helemaal afgesloten voor gesprekken tussen Iran en de VS, in een hotel in de stad. Na 6 weken...
+- [Activisten blokkeren goederenspoorlijn Betuweroute](https://nos.nl/l/2609898)
+  > Activisten van Geef Tegengas blokkeren sinds 12.15 uur de Betuweroute. Volgens ProRail zitten er zo'n zestig mensen op het spoor van het...
+- [Boete voor Tata Steel om belemmering van toezicht en controles](https://nos.nl/l/2609894)
+  > Tata Steel moet een dwangsom betalen vanwege herhaaldelijke belemmering van toezicht en controles door de Omgevingsdienst Noordzeekanaalgebied.
+     ...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Staat gaat in hoger beroep tegen klimaatvonnis Bonaire, maar moet beleid toch uitvoeren](https://www.ad.nl/binnenland/staat-gaat-in-hoger-beroep-tegen-klimaatvonnis-bonaire-maar-moet-beleid-toch-uitvoeren~a5183ba5/)
-  > De Staat gaat in hoger beroep tegen de uitspraak van de rechtbank Den Haag die beveelt dat de overheid meer moet doen om Bonaire te beschermen tegen...
-- [LIVE Midden-Oosten | Libanon stevent af op voedselcrisis, Israël heropent Zikim-grensovergang naar Gaza](https://www.ad.nl/buitenland/live-midden-oosten-libanon-stevent-af-op-voedselcrisis-israel-heropent-zikim-grensovergang-naar-gaza~ac528ac3/)
-  > Libanon stevent tijdens de onrust in het Midden-Oosten ook af op een voedselcrisis. Daarvoor waarschuwt het Wereldvoedselprogramma van de Verenigde...
-- [Moordverdachte Clen V. verkocht ‘nummer één agenda’ op Bol.com, webshop verbreekt banden](https://www.ad.nl/binnenland/moordverdachte-clen-v-verkocht-nummer-een-agenda-op-bol-com-webshop-verbreekt-banden~a3419900/)
-  > Webwinkel Bol.com heeft voorlopig de banden verbroken met ‘topverkoper’ Clen V. (39). De Utrechter, die tienduizenden exemplaren van zijn...
-- [Ook in voorlaatste rit moet flink geklommen worden, supertalent Paul Seixas nog altijd in leiderstrui](https://www.ad.nl/wielrennen/ook-in-voorlaatste-rit-moet-flink-geklommen-worden-supertalent-paul-seixas-nog-altijd-in-leiderstrui~a3fe526f/)
-  > De vijfde en voorlaatste etappe van de Ronde van het Baskenland start en finisht in Eibar. Onderweg liggen acht gecategoriseerde beklimmingen, met de...
-- [Boete dreigt voor Tata Steel vanwege belemmeren controles inspectie](https://www.ad.nl/binnenland/boete-dreigt-voor-tata-steel-vanwege-belemmeren-controles-inspectie~a4335335/)
-  > Tata Steel moet een dwangsom betalen als het bedrijf opnieuw niet goed meewerkt aan toezicht en controles. De Omgevingsdienst Noordzeekanaalgebied...
+- [Egyptisch international geschorst om slaan scheidsrechter, oud-Ajacied Kudus moet vrezen voor WK](https://www.ad.nl/wk-voetbal/egyptisch-international-geschorst-om-slaan-scheidsrechter-oud-ajacied-kudus-moet-vrezen-voor-wk~a61805da/)
+  > Over iets meer dan twee maanden begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste...
+- [‘Hij is zo radeloos’: agent ontmoet terminaal zieke man die geen gehoor krijgt voor euthanasie](https://www.ad.nl/binnenland/hij-is-zo-radeloos-agent-ontmoet-terminaal-zieke-man-die-geen-gehoor-krijgt-voor-euthanasie~a7a92fbd/)
+  > Als ik een melding ontvang van een steekpartij, sta ik direct aan. Binnen een minuut zijn mijn collega en ik ter plaatse. Als we naar binnen gaan,...
+- [Wéér vaart Nederlands marineschip uit met kapot kanon, Zr. Ms. De Ruyter vijf maanden naar Zuidoost-Azië](https://www.ad.nl/politiek/weer-vaart-nederlands-marineschip-uit-met-kapot-kanon-zr-ms-de-ruyter-vijf-maanden-naar-zuidoost-azie~a748fcb1/)
+  > Voor de tweede keer in korte tijd vaart er een Nederlands fregat uit zónder werkend kanon. Het gaat om de Zr. Ms. De Ruyter, die zondag voor vijf...
+- [Explosief lag al dagen in schap van supermarkt in Enschede, beelden tonen hoe verdachte bom neerlegt](https://www.ad.nl/binnenland/explosief-lag-al-dagen-in-schap-van-supermarkt-in-enschede-beelden-tonen-hoe-verdachte-bom-neerlegt~aee1ec48/)
+  > Het mag een wonder heten dat er geen slachtoffers gevallen zijn bij de explosie in supermarkt Plus in Enschede op 17 maart. Naar nu blijkt heeft het...
+- [Reacties op Schijf van Vijf: ‘Welke kwalificatie men ook geeft, de Schijf maalt er niet om’](https://www.ad.nl/praat-mee/reacties-op-schijf-van-vijf-welke-kwalificatie-men-ook-geeft-de-schijf-maalt-er-niet-om~ae472a46c/)
+  > ‘Die schijf is een schijf. Wie weet wel ten gunste van uw eigen mensenlijf’ en ‘Natuurlijk moet ons koningspaar op bezoek gaan bij Trump. Al laat je...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Nederlandse topmerken een vijfde meer waard in een jaar tijd](https://fd.nl/bedrijfsleven/1592569/nederlandse-topmerken-een-vijfde-meer-waard-in-een-jaar-tijd)
-  > Dit jaar versnelde de waardestijging van de Nederlandse topmerken vergeleken met 2025 (+19%) en 2024 (+10%).
-- [Trump vraagt Iran om Straat van Hormuz direct te openen](https://fd.nl/politiek/1592616/trump-vraagt-iran-om-straat-van-hormuz-direct-te-openen)
-  > In de eerste vierentwintig uur na de aankondiging van de wapenstilstand voer slechts één olietanker door de zee-engte. ‘Dat is niet wat we hebben...
-- [Voorlopige boete Tata Steel wegens onvoldoende meewerken aan metingen](https://fd.nl/bedrijfsleven/1592617/voorlopige-boete-tata-steel-wegens-onvoldoende-meewerken-aan-metingen)
-  > De staalproducent is het oneens met de maatregel en hoopt een verder juridisch geschil met de Omgevingsdienst te voorkomen.
-- [Hongaren kiezen zondag tussen conservatief en autocratisch-conservatief](https://fd.nl/politiek/1592613/hongaren-kiezen-zondag-tussen-conservatief-en-autocratisch-conservatief)
-  > De uitkomst van de stembusgang op aanstaande zondag zal niet alleen de koers van Hongarije bepalen, maar zal ook grote gevolgen hebben voor de...
-- [EZ greep vóór Nexperia al in bij ander chipbedrijf om zorgen over China](https://fd.nl/bedrijfsleven/1591856/ez-greep-voor-nexperia-al-in-bij-ander-nijmeegs-chipbedrijf-om-zorgen-over-china)
-  > De harde ingreep van de Nederlandse overheid bij Nexperia kwam eind vorig jaar als verrassing. Maar het was niet voor het eerst dat een Nijmeegse...
+- [Gewezen koorknaap moet jonge muzikanten verkopen](https://fd.nl/bedrijfsleven/1592168/gewezen-koorknaap-moet-jonge-muzikanten-verkopen)
+  > Als zanger mist Maurits Musch de overgave die hij als fondsenwerver wel voelt. Sinds begin dit jaar is hij directeur van het Prinses Christina...
+- [Intertoys koopt webshop en groothandel in speelgoed](https://fd.nl/bedrijfsleven/1592623/intertoys-koopt-webshop-en-groothandel-in-speelgoed)
+  > De speelgoedwinkelketen neemt een belang van 75% in het moederbedrijf van Lobbes Speelgoed en Thimble Toys.
+- [Investeringsmaatschappij Karmijn Kapitaal neemt SecurityXpert over](https://fd.nl/bedrijfsleven/1592622/investeringsmaatschappij-karmijn-kapitaal-neemt-securityxpert-over)
+  > SecurityXpert is gevestigd in IJsselstein en heeft 60 medewerkers. Het bedrijf, met name actief in Midden-Nederland, beveiligt zorginstellingen.
+- [Minister Aartsen: ‘Zzp’ers hebben te lang het gevoel gehad dat zij de boeman waren’](https://fd.nl/politiek/1592442/minister-aartsen-zzpers-hebben-te-lang-het-gevoel-gehad-dat-zij-de-boeman-waren)
+  > Minister Thierry Aartsen van Werk en Participatie wil haast maken met zijn nieuwe zzp-koers. Wetgeving die het vorige kabinet had klaargezet, haalde...
+- [Stefano Gabbana weg bij Dolce & Gabbana, doet aandelen mogelijk in de verkoop](https://fd.nl/bedrijfsleven/1592621/stefano-gabbana-weg-bij-dolce-gabbana-doet-aandelen-mogelijk-in-de-verkoop)
+  > Vertrek van medeoprichter uit het bestuur komt op een moment dat het Italiaanse modehuis zich opmaakt voor verdere schuldsanering. Gabbana blijft wel...
 
 ### Meest gelezen
 
