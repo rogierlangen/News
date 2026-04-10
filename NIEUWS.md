@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-04-2026 om 02:55*
+*Laatst bijgewerkt: 10-04-2026 om 05:30*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Wekdienst 10/4: Artemis keert terug naar de aarde • Uitspraak sextortionzaak Mark S.](https://nos.nl/l/2609849)
+  > Goedemorgen! De bemanning van Artemis II keert terug naar de aarde en in Groningen is de uitspraak in een grote sextortionzaak.
+        Het weer: het...
+- [Ruim 1 op de 5 auto's in Nederland is inmiddels (deels) elektrisch](https://nos.nl/l/2609848)
+  > Begin dit jaar waren er in Nederland ruim 2 miljoen volledig elektrische, hybride of plug-inhybride auto's; bijna een kwart meer dan een jaar eerder....
+- [Melania Trump ontkent relatie met Epstein in ongebruikelijk persmoment](https://nos.nl/l/2609847)
+  > De Amerikaanse first lady Melania Trump is in een ongebruikelijk persmoment uitgevaren tegen iedereen die "ongegronde leugens" verspreidt over haar...
 - [Hiphoppionier Afrika Bambaataa (68) overleden](https://nos.nl/l/2609844)
   > Hiphoppionier en dj Afrika Bambaataa is op 68-jarige leeftijd aan de gevolgen van prostaatkanker overleden. Dat meldt zijn advocaat. Afrika...
 - [Staking bij cabinepersoneel Lufthansa, honderden vluchten geannuleerd](https://nos.nl/l/2609843)
   > In Duitsland is net na middernacht een staking begonnen bij het cabinepersoneel van Lufthansa. De grootste vliegmaatschappij van Duitsland probeert...
-- [Ruim 18 miljoen euro schadevergoeding geëist door nabestaanden Decembermoorden](https://nos.nl/l/2609836)
-  > Nabestaanden van slachtoffers van de Decembermoorden eisen een schadevergoeding en excuses van de Surinaamse staat. Per familie wordt 1,25 miljoen...
-- [Voor het eerst scheiding chimpanseegroep vastgelegd, kostte het leven van 28 dieren](https://nos.nl/l/2609835)
-  > Voor het eerst hebben onderzoekers het uit elkaar vallen van een chimpanseegroep kunnen vastleggen. De studie, die deze week gepubliceerd werd in het...
-- [Stille tocht voor Dario (29), die werd doodgestoken bij een café in Hoorn](https://nos.nl/l/2609830)
-  > Zo'n 200 familieleden, vrienden en bekenden hebben vanavond in Hoorn meegelopen in een stille tocht voor Dario (29). Hij werd op zaterdagavond 28...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Huurprijzen stijgen harder dan koopwoningen, melden woningplatforms](https://www.ad.nl/economie/huurprijzen-stijgen-harder-dan-koopwoningen-melden-woningplatforms~afc775df/)
-  > De huurprijzen op de vrije markt zijn in de eerste drie maanden van dit jaar harder gestegen dan de prijzen voor koopwoningen. Dat stellen...
-- [Ook laatste deel A16 bij Rotterdam weer open na brand vrachtwagen](https://www.ad.nl/112-nieuws-rotterdam/ook-laatste-deel-a16-bij-rotterdam-weer-open-na-brand-vrachtwagen~a761effd/)
-  > De hoofdrijbaan van de A16 bij Rotterdam is ook in noordelijke richting weer open voor verkeer. Eerder in de nacht vonden op dat deel van de weg nog...
-- [Starmer en Trump: ‘Haalbaar plan’ nodig voor opening Straat van Hormuz, Israël meldt raketaanval Hezbollah](https://www.ad.nl/buitenland/starmer-en-trump-haalbaar-plan-nodig-voor-opening-straat-van-hormuz-israel-meldt-raketaanval-hezbollah~ac528ac3/)
-  > De Britse premier Keir Starmer en de Amerikaanse president Donald Trump zijn donderdag na een telefoongesprek overeengekomen dat er ‘een haalbaar...
-- [Onbekende drones vlogen boven huis van prinses Beatrix en goudkluis De Nederlandsche Bank](https://www.ad.nl/binnenland/onbekende-drones-vlogen-boven-huis-van-prinses-beatrix-en-goudkluis-de-nederlandsche-bank~ad82603e/)
-  > Niet alleen twee militaire vliegbases en het grootste gasveld van Nederland werden vorig jaar november belaagd door onbekende drones. In hetzelfde...
-- [Ahoy roept K3-fans op zondag niet met openbaar vervoer naar concert te komen](https://www.ad.nl/show/ahoy-roept-k3-fans-op-zondag-niet-met-openbaar-vervoer-naar-concert-te-komen~a81d8fe1/)
-  > Concertzaal Ahoy adviseert mensen die zondag naar het middagconcert van K3 Originals gaan om niet met het openbaar vervoer te komen. Die dag vindt...
+- [AZ-trainer stoort zich aan laatkomers op wedstrijddag: ‘Dan kan het een heel vervelend seizoen worden’](https://www.ad.nl/voetbal/az-trainer-stoort-zich-aan-laatkomers-op-wedstrijddag-dan-kan-het-een-heel-vervelend-seizoen-worden~a9bd421e/)
+  > AZ beleefde donderdag een pijnlijke avond door in de kwartfinale van de Conference League met 3-0 te verliezen van Shakhtar Donetsk. Wat ook niet...
+- [Nederland telt nu twee miljoen elektrische auto’s: een op vijf personenauto’s rijdt (deels) op stroom](https://www.ad.nl/economie/nederland-telt-nu-twee-miljoen-elektrische-autos-een-op-vijf-personenautos-rijdt-deels-op-stroom~adf8819c/)
+  > Begin dit jaar waren ruim twee miljoen auto’s in Nederland volledig elektrisch, hybride of plug-inhybride. Dat is een kwart meer dan een jaar eerder....
+- [Rapper en hiphop-pionier Afrika Bambaataa (68) overleden](https://www.ad.nl/show/rapper-en-hiphop-pionier-afrika-bambaataa-68-overleden~a08a6304/)
+  > Hiphop-pionier Afrika Bambaataa is overleden op 68-jarige leeftijd. Volgens entertainmentwebsite TMZ, die het nieuws als eerste meldde, overleed hij...
+- [Vrije sector jaagt huur verder op: 2000 euro per maand bijna nieuwe norm](https://www.ad.nl/economie/vrije-sector-jaagt-huur-verder-op-2000-euro-per-maand-bijna-nieuwe-norm~a0fca0cd/)
+  > De huurprijzen in de vrije sector zijn nog harder gestegen dan de prijzen van koopwoningen. Het aanbod is flink opgedroogd én 2000 euro per maand is...
+- [De Bevers in de bioscoop: ‘Wees gerust, dit wordt echt geen Bassie en Adriaan’](https://www.ad.nl/show/de-bevers-in-de-bioscoop-wees-gerust-dit-wordt-echt-geen-bassie-en-adriaan~a50e9e72/)
+  > Wat hebben Denzel Washington, Russell Crowe en De Bevers gemeen? Ze draaiden straks allemaal een bioscoopspektakel op de heilige filmgrond van Malta....
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Poetins bluf](https://fd.nl/opinie/1592510/poetins-bluf)
-  > In het Kanaal staan sinds kort commando’s klaar om Russische schepen te enteren. Zouden de Britten het lef hebben illegale schepen te achtervolgen?
-- [Bent u net zo corrupt als ik?](https://fd.nl/opinie/1592496/bent-u-net-zo-corrupt-als-ik)
-  > Corruptie kost welvaart en levert ongelijkheid op. Opstekertje uit de corruptie-index: Oekraïne stijgt en steekt bijna Hongarije voorbij. Mocht Orbán...
-- [Personalia vrijdag 10 april](https://fd.nl/bedrijfsleven/1592362/personalia-vrijdag-10-april)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Klein plusje voor beurzen na bericht over mogelijke onderhandelingen tussen Israël en Libanon](https://fd.nl/financiele-markten/1592519/klein-plusje-voor-wall-street-na-bericht-over-mogelijke-onderhandelingen-tussenisrael-en-libanon)
-  > De voornaamste graadmeters voor Amerikaanse aandelen eindigden in de plus, maar de stijgingen zijn veel minder heftig dan een dag eerder.
-- [Onduidelijkheid over onderhandelingen Libanon en Israël, aanvallen gaan door](https://fd.nl/samenleving/1592543/onduidelijkheid-over-staakt-het-vuren-libanon-en-israel-aanvallen-gaan-door)
-  > De Israëlische premier Benjamin Netanyahu zegt volgens Al Jazeera dat hij opdracht heeft gegeven om ‘zo snel mogelijk’ directe onderhandelingen met...
+- [Rutte: ‘Trump is goed nieuws voor de Navo en voor de veiligheid van Nederland’](https://fd.nl/politiek/1592609/rutte-trump-is-goed-nieuws-voor-de-navo-en-voor-de-veiligheid-van-nederland)
+  > De secretaris-generaal van de Navo ging deze week op bezoek bij de Amerikaanse president, om hem tot bedaren te brengen en in een poging het...
+- [De grijze rebel van de schilderkunst](https://fd.nl/samenleving/1592379/de-grijze-rebel-van-de-schilderkunst)
+  > Nooit te oud om te pieken: de eigenzinnige schilder Rose Wylie is 91 en een lieveling van de kunstwereld. Ze heeft lang moeten wachten op waardering...
+- [Live: Beleggers beginnen behoedzaam positief aan de handelsdag, Europese futures in de plus](https://fd.nl/financiele-markten/1592610/live-beleggers-beginnen-behoedzaam-positief-aan-de-handelsdag-europese-futures-in-de-plus)
+  > Beleggers putten moed uit het fragiele bestand in het Midden-Oosten, maar zien nu graag ook de olie- en gasleveringen vanuit de Perzische Golf weer...
+- [Marc fraudeerde bij hypotheekaanvraag, woonde in huis van bijna €1 mln en blies daar toen de badkamer op](https://fd.nl/samenleving/1592190/marc-fraudeerde-bij-hypotheekaanvraag-woonde-in-huis-van-bijna-1-mln-en-blies-daar-toen-de-badkamer-op)
+  > Hij heeft ‘schijt aan alles’, zegt Marc in een filmpje dat viraal ging. Hij had documenten vervalst en woonde daardoor in een kast van een huis. Maar...
+- [Hoe Van der Valk zich verslikte in een pizzaketen en miljoenen verloor](https://fd.nl/bedrijfsleven/1588689/hoe-van-der-valk-zich-verslikte-in-een-pizzaketen-en-miljoenen-verloor)
+  > Het faillissement van Vapiano ontaardde in een serie rechtszaken en conflicten, waarbij de familie Van der Valk probeerde een miljoeneninvestering te...
 
 ### Meest gelezen
 
