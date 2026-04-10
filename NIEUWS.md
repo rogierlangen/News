@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-04-2026 om 05:30*
+*Laatst bijgewerkt: 10-04-2026 om 07:49*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Onderzoek: advocaten schieten tekort bij afhandeling scheiding](https://nos.nl/l/2609861)
+  > Scheidingsadvocaten voldoen niet aan de standaarden, blijkt uit onderzoek van de Orde van Advocaten Noord-Nederland. Stellen die hun scheiding...
+- [Explosief lag dagen in schap supermarkt Enschede voor het ontplofte](https://nos.nl/l/2609858)
+  > Bij een supermarkt in Enschede heeft bijna vier dagen lang een explosief in een winkelschap gelegen, voor het ontplofte. Op camerabeelden van de...
 - [Wekdienst 10/4: Artemis keert terug naar de aarde • Uitspraak sextortionzaak Mark S.](https://nos.nl/l/2609849)
   > Goedemorgen! De bemanning van Artemis II keert terug naar de aarde en in Groningen is de uitspraak in een grote sextortionzaak.
         Het weer: het...
@@ -15,10 +19,6 @@
   > Begin dit jaar waren er in Nederland ruim 2 miljoen volledig elektrische, hybride of plug-inhybride auto's; bijna een kwart meer dan een jaar eerder....
 - [Melania Trump ontkent relatie met Epstein in ongebruikelijk persmoment](https://nos.nl/l/2609847)
   > De Amerikaanse first lady Melania Trump is in een ongebruikelijk persmoment uitgevaren tegen iedereen die "ongegronde leugens" verspreidt over haar...
-- [Hiphoppionier Afrika Bambaataa (68) overleden](https://nos.nl/l/2609844)
-  > Hiphoppionier en dj Afrika Bambaataa is op 68-jarige leeftijd aan de gevolgen van prostaatkanker overleden. Dat meldt zijn advocaat. Afrika...
-- [Staking bij cabinepersoneel Lufthansa, honderden vluchten geannuleerd](https://nos.nl/l/2609843)
-  > In Duitsland is net na middernacht een staking begonnen bij het cabinepersoneel van Lufthansa. De grootste vliegmaatschappij van Duitsland probeert...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [AZ-trainer stoort zich aan laatkomers op wedstrijddag: ‘Dan kan het een heel vervelend seizoen worden’](https://www.ad.nl/voetbal/az-trainer-stoort-zich-aan-laatkomers-op-wedstrijddag-dan-kan-het-een-heel-vervelend-seizoen-worden~a9bd421e/)
-  > AZ beleefde donderdag een pijnlijke avond door in de kwartfinale van de Conference League met 3-0 te verliezen van Shakhtar Donetsk. Wat ook niet...
-- [Nederland telt nu twee miljoen elektrische auto’s: een op vijf personenauto’s rijdt (deels) op stroom](https://www.ad.nl/economie/nederland-telt-nu-twee-miljoen-elektrische-autos-een-op-vijf-personenautos-rijdt-deels-op-stroom~adf8819c/)
-  > Begin dit jaar waren ruim twee miljoen auto’s in Nederland volledig elektrisch, hybride of plug-inhybride. Dat is een kwart meer dan een jaar eerder....
-- [Rapper en hiphop-pionier Afrika Bambaataa (68) overleden](https://www.ad.nl/show/rapper-en-hiphop-pionier-afrika-bambaataa-68-overleden~a08a6304/)
-  > Hiphop-pionier Afrika Bambaataa is overleden op 68-jarige leeftijd. Volgens entertainmentwebsite TMZ, die het nieuws als eerste meldde, overleed hij...
-- [Vrije sector jaagt huur verder op: 2000 euro per maand bijna nieuwe norm](https://www.ad.nl/economie/vrije-sector-jaagt-huur-verder-op-2000-euro-per-maand-bijna-nieuwe-norm~a0fca0cd/)
-  > De huurprijzen in de vrije sector zijn nog harder gestegen dan de prijzen van koopwoningen. Het aanbod is flink opgedroogd én 2000 euro per maand is...
-- [De Bevers in de bioscoop: ‘Wees gerust, dit wordt echt geen Bassie en Adriaan’](https://www.ad.nl/show/de-bevers-in-de-bioscoop-wees-gerust-dit-wordt-echt-geen-bassie-en-adriaan~a50e9e72/)
-  > Wat hebben Denzel Washington, Russell Crowe en De Bevers gemeen? Ze draaiden straks allemaal een bioscoopspektakel op de heilige filmgrond van Malta....
+- [Jetten spreekt maandag Amerikaanse oud-minister Pompeo in Washington](https://www.ad.nl/politiek/jetten-spreekt-maandag-amerikaanse-oud-minister-pompeo-in-washington~a2d6b5ff/)
+  > Premier Rob Jetten (D66) spreekt maandag tijdens zijn bezoek aan de Amerikaanse hoofdstad Washington onder meer met oud-buitenlandminister Mike...
+- [‘Geef de trofee maar af, dat willen ze’: concurrentie insinueert dat enkel Ronaldo kampioen mag worden in Saoedi-Arabië](https://www.ad.nl/voetbal/geef-de-trofee-maar-af-dat-willen-ze-concurrentie-insinueert-dat-enkel-ronaldo-kampioen-mag-worden-in-saoedi-arabie~a2b67341/)
+  > Volgens Ivan Toney wordt de titelstrijd in de Saudi Pro League ‘beïnvloed’ door scheidsrechterlijke beslissingen. De spits van Al-Ahli - die drie...
+- [Xi noemt Taiwan ‘boosdoener’ en dreigt opnieuw: onafhankelijkheid blijft onbespreekbaar](https://www.ad.nl/buitenland/xi-noemt-taiwan-boosdoener-en-dreigt-opnieuw-onafhankelijkheid-blijft-onbespreekbaar~a8ed7a39/)
+  > China zal ‘absoluut geen’ onafhankelijkheid voor Taiwan tolereren. Dat heeft de Chinese president Xi Jinping gezegd tegen de Taiwanese...
+- [André en Roxeanne Hazes: ‘Mensen riepen dat onze overleden vader in de kelder opgesloten zat’](https://www.ad.nl/show/andre-en-roxeanne-hazes-mensen-riepen-dat-onze-overleden-vader-in-de-kelder-opgesloten-zat~a19c792b/)
+  > André jr. en Roxeanne Hazes kregen als jonge kinderen niet alleen het verlies van hun beroemde vader te verwerken, maar werden in die tijd ook nog...
+- [Nieuwe aanvallen tussen Israël en Hezbollah, kort nadat Netanyahu inzet op onderhandelingen](https://www.ad.nl/buitenland/nieuwe-aanvallen-tussen-israel-en-hezbollah-kort-nadat-netanyahu-inzet-op-onderhandelingen~ac528ac3/)
+  > In Israël en Libanon zijn nieuwe aanvallen gemeld. In delen van Israël klonk vrijdagochtend vroeg het luchtalarm. Daar vielen voor zover bekend geen...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Rutte: ‘Trump is goed nieuws voor de Navo en voor de veiligheid van Nederland’](https://fd.nl/politiek/1592609/rutte-trump-is-goed-nieuws-voor-de-navo-en-voor-de-veiligheid-van-nederland)
-  > De secretaris-generaal van de Navo ging deze week op bezoek bij de Amerikaanse president, om hem tot bedaren te brengen en in een poging het...
-- [De grijze rebel van de schilderkunst](https://fd.nl/samenleving/1592379/de-grijze-rebel-van-de-schilderkunst)
-  > Nooit te oud om te pieken: de eigenzinnige schilder Rose Wylie is 91 en een lieveling van de kunstwereld. Ze heeft lang moeten wachten op waardering...
-- [Live: Beleggers beginnen behoedzaam positief aan de handelsdag, Europese futures in de plus](https://fd.nl/financiele-markten/1592610/live-beleggers-beginnen-behoedzaam-positief-aan-de-handelsdag-europese-futures-in-de-plus)
-  > Beleggers putten moed uit het fragiele bestand in het Midden-Oosten, maar zien nu graag ook de olie- en gasleveringen vanuit de Perzische Golf weer...
-- [Marc fraudeerde bij hypotheekaanvraag, woonde in huis van bijna €1 mln en blies daar toen de badkamer op](https://fd.nl/samenleving/1592190/marc-fraudeerde-bij-hypotheekaanvraag-woonde-in-huis-van-bijna-1-mln-en-blies-daar-toen-de-badkamer-op)
-  > Hij heeft ‘schijt aan alles’, zegt Marc in een filmpje dat viraal ging. Hij had documenten vervalst en woonde daardoor in een kast van een huis. Maar...
-- [Hoe Van der Valk zich verslikte in een pizzaketen en miljoenen verloor](https://fd.nl/bedrijfsleven/1588689/hoe-van-der-valk-zich-verslikte-in-een-pizzaketen-en-miljoenen-verloor)
-  > Het faillissement van Vapiano ontaardde in een serie rechtszaken en conflicten, waarbij de familie Van der Valk probeerde een miljoeneninvestering te...
+- [Een ‘klimaatticket’ om goedkoop met het ov te reizen is een wel erg duur gebaar](https://fd.nl/opinie/1592301/een-klimaatticket-om-goedkoop-met-het-openbaar-vervoer-te-reizen-is-een-wel-erg-duur-gebaar)
+  > Voor een paar euro per maand heel Nederland door met trein of bus? Volgens voorstanders goed voor mens en klimaat, maar er is ook veel op aan te...
+- [Ongecompliceerd eten in Rotterdam en een Johan Cruijff-expositie](https://fd.nl/samenleving/1592355/ongecompliceerd-eten-in-rotterdam-en-een-johan-cruijff-expositie)
+  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
+- [Heineken verkoopt belang in Congolese brouwer Bralima](https://fd.nl/bedrijfsleven/1592612/heineken-verkoopt-belang-in-congolese-brouwer-bralima)
+  > De transactie betreft de verkoop van drie brouwerijen waar in totaal ruim 700 mensen werken. Financiële details zijn niet bekendgemaakt.
+- [Honderden vluchten Lufthansa geschrapt door staking cabinepersoneel](https://fd.nl/bedrijfsleven/1592611/honderden-vluchten-lufthansa-geschrapt-door-staking-cabinepersoneel)
+  > Volgens brancheorganisatie ADV zullen mogelijk meer dan 520 vluchten worden geschrapt, wat gevolgen heeft voor circa 90.000 passagiers. Veel...
+- [Rutte: ‘Trump is goed voor de Navo en voor de veiligheid van Nederland’](https://fd.nl/politiek/1592609/rutte-trump-is-goed-nieuws-voor-de-navo-en-voor-de-veiligheid-van-nederland)
+  > De secretaris-generaal van de Navo ging deze week op bezoek bij de Amerikaanse president. Mark Rutte sprak met het FD over de dreigementen van Donald...
 
 ### Meest gelezen
 
