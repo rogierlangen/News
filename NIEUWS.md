@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-04-2026 om 21:42*
+*Laatst bijgewerkt: 10-04-2026 om 22:41*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Zelfrijdende Tesla's mogen de weg op in Nederland, eerste land in Europa](https://nos.nl/l/2609960)
+  > Zelfrijdende Tesla's mogen de weg op in Nederland. De RDW heeft goedkeuring gegeven voor het rijhulpsysteem Full Self Driving Supervised (FSD)....
 - [Presentator Frank van Leeuwen wint finale van De slimste mens](https://nos.nl/l/2609955)
   > "Wat weet je van Ben van der Burg?" Dat was de beslissende vraag in de grande finale van De slimste mens waarmee journalist Frank van Leeuwen de...
 - [Inwoners en politici Groene Hart spreken zich uit tegen windmolenplannen](https://nos.nl/l/2609952)
@@ -16,8 +18,6 @@
   > Estland onderschept geen schepen van de Russische schaduwvloot, uit vrees dat het een militaire reactie van Moskou uitlokt. Dat zegt de Estse...
 - [Vrouwen delen ervaringen van zwangerschapsdiscriminatie: 'Lastig aantoonbaar'](https://nos.nl/l/2609948)
   > "Jouw zwangerschapsverlof is (...) zeker niet optimaal", zegt een werkgever tegen een sollicitant. "Ik wil iemand die er is en niet straks met...
-- [Israël wil dat Hezbollah ontwapent, maar hoe realistisch is dat?](https://nos.nl/l/2609945)
-  > Na weken van bombardementen met meer dan duizend doden en ruim een miljoen Libanese vluchtelingen tot gevolg, heeft zowel de Israëlische als Libanese...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tesla-rijders mogen voortaan de openbare weg op zónder handen aan het stuur](https://www.ad.nl/auto/tesla-rijders-mogen-voortaan-de-openbare-weg-op-zonder-handen-aan-het-stuur~ae8ad5b4/)
-  > De zelfrijdende auto’s van Tesla hebben toestemming gekregen van het RDW om in Nederland de openbare weg op te gaan. Tesla-rijders mogen voortaan de...
+- [Nederland geeft als eerste land van Europa toestemming: Tesla’s mogen vanaf vandaag zelf rijden](https://www.ad.nl/auto/nederland-geeft-als-eerste-land-van-europa-toestemming-teslas-mogen-vanaf-vandaag-zelf-rijden~ae8ad5b4/)
+  > De zelfrijdende auto's van Tesla hebben toestemming gekregen van de RDW om in Nederland de openbare weg op te gaan. Tesla-rijders mogen voortaan de...
 - [Foxtrot en Hadestown grote favorieten voor Musical Awards 2026](https://www.ad.nl/show/foxtrot-en-hadestown-grote-favorieten-voor-musical-awards-2026~a5dc32db/)
   > De jaarlijkse strijd om de Musical Awards is officieel losgebarsten. De vakjury heeft de nominaties voor 2026 bekendgemaakt, waarbij de Annie M.G....
 - [President Libanon kondigt gesprekken met Israël aan, KLM mijdt Dubai zeker tot juni](https://www.ad.nl/buitenland/president-libanon-kondigt-gesprekken-met-israel-aan-klm-mijdt-dubai-zeker-tot-juni~ac528ac3/)
   > Dinsdag zullen er in Washington gesprekken plaatsvinden tussen Libanon en Israël over een staakt-het-vuren in de oorlog tussen Israël en de...
 - [Donyell Malen blijft scoren bij AS Roma: Oranje-spits na hattrick derde op topscorerslijst Serie A](https://www.ad.nl/voetbal/donyell-malen-blijft-scoren-bij-as-roma-oranje-spits-na-hattrick-derde-op-topscorerslijst-serie-a~a317294c/)
   > Donyell Malen blijft zijn doelpunten maar maken in Italië. De 27-jarige Oranje-international scoorde vanavond tegen hekkensluiter Pisa drie keer voor...
-- [Real Madrid kan titel uit het hoofd zetten na nieuwe misstap](https://www.ad.nl/voetbal/real-madrid-kan-titel-uit-het-hoofd-zetten-na-nieuwe-misstap~a3376922/)
-  > Real Madrid kan de titel in La Liga uit het hoofd zitten. Het team van trainer Álvaro Arbeloa speelde vrijdagavond in het Estadio Santiago Bernabéu...
+- [Real Madrid kan titel uit het hoofd zetten, Spurs voor het eerst sinds 2009 op degradatieplek](https://www.ad.nl/voetbal/real-madrid-kan-titel-uit-het-hoofd-zetten-spurs-voor-het-eerst-sinds-2009-op-degradatieplek~a3376922/)
+  > Real Madrid kan de titel in La Liga wel uit het hoofd zitten. Het team van trainer Álvaro Arbeloa speelde vrijdagavond in het Estadio Santiago...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Onzekere vredesbesprekingen dempen de winst op Wall Street](https://fd.nl/financiele-markten/1592655/onzekere-vredesbesprekingen-dempen-de-winst-op-wall-street)
-  > De Amerikaanse beurshandel ging voorzichtig positief van start, maar de onzekerheid over de Iran-oorlog deed die winst teniet.
-- [Frankrijk verdubbelt staatssteun voor elektriciteitsgebruik](https://fd.nl/politiek/1592654/frankrijk-verdubbelt-staatssteun-voor-elektriciteitsgebruik)
-  > De overstap van gas en olie naar elektriciteit moet Frankrijk minder afhankelijk van het buitenland maken. Bovendien heeft het land veel kernenergie.
-- [Snelle overheidsactie nodig voor AI‑beveiliging](https://fd.nl/opinie/1592567/snelle-overheidsactie-nodig-voor-aibeveiliging)
-  > Als nieuwe AI-modellen zo krachtig worden dat ze grote risico’s met zich meebrengen voor de samenleving, is interventie door de overheid gewenst.
-- [Meer lege hotelbedden na btw-verhoging](https://fd.nl/bedrijfsleven/1592653/meer-lege-hotelbedden-na-btw-verhoging)
-  > De bezettingsgraad van hotels daalde in het eerste kwartaal, blijkt uit een peiling van brancheorganisatie KHN.
-- [Koersval Sodexo na tegenvallende vooruitzichten](https://fd.nl/bedrijfsleven/1592679/koersval-sodexo-na-tegenvallende-vooruitzichten)
-  > Het Franse cateringbedrijf presteert slechter dan branchegenoten en schroeft de groeiverwachtingen terug.
+- [Hoe de aanvallen op Libanon Netanyahu’s politieke overleving dienen](https://fd.nl/politiek/1592572/hoe-de-aanvallen-op-libanon-netanyahus-politieke-overleving-dienen)
+  > Terwijl een bestand met Iran voorzichtig standhoudt, intensiveert Israël de oorlog op andere fronten. Volgens experts is dat geen toeval, maar zit er...
+- [Hoe een Nederlandse ceo met EZ de strijd aanbond met zijn Chinese bazen](https://fd.nl/bedrijfsleven/1591416/hoe-een-nederlandse-ceo-samen-met-ez-de-strijd-aanbond-met-zijn-chinese-bazen)
+  > Politieke zorgen over het weglekken van kennis bij een Nijmeegs chipbedrijf in Chinese handen. Het verhaal van Ampleon lijkt op dat van Nexperia, al...
+- [Kamelen, Frank Drebin, Donnie én de as van het kwaad](https://fd.nl/opinie/1592647/donnie-en-de-as-van-het-kwaad)
+  > Op het moment van schrijven bestaat de Iraanse beschaving nog steeds – er kwam dus niks van Trumps belofte om het land volledig te bombarderen. Een...
+- [Afstand blijkt niet dood, nu de wereldzeeën niet vrij meer zijn](https://fd.nl/politiek/1592615/afstand-blijkt-niet-dood-nu-de-wereldzeeen-niet-vrij-meer-zijn)
+  > We riepen het in de hoogtijdagen van de globalisering: afstand is dood, de wereld is één markt. Dat was buiten de oprispingen van Donald Trump...
+- [Voorbij de vluchtige blik](https://fd.nl/samenleving/1592363/voorbij-de-vluchtige-blik)
+  > De Japanse fotograaf werpt een nieuw, poëtisch licht op de wereld zoals je die dacht te kennen. Ineens zie je een wereld die je nog niet kende.
 
 ### Meest gelezen
 
