@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-04-2026 om 14:52*
+*Laatst bijgewerkt: 10-04-2026 om 15:58*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [NAM wil gaswinning bij Warffum weer opstarten: volgende week beginnen werkzaamheden](https://nos.nl/l/2609922)
+  > De Nederlandse Aardoliemaatschappij (NAM) gaat proberen de gaswinning bij Warffum weer op te starten. Het gasbedrijf gaat vanaf maandag proberen de...
+- [Mijnenvegers, rappers en een logeerpartijtje](https://nos.nl/l/2609921)
+  > Er is een bestand tussen Iran en Amerika. Tenminste, dat was woensdag. Gisteren wankelde het alweer en wie weet hoe het er vanavond voor staat. Wat...
+- [Moet de dorpsschool in Altforst sluiten? 'Alles komt hier samen, het is de leefbaarheid'](https://nos.nl/l/2609920)
+  > Het is nog fris als de 47 leerlingen van basisschool De Tweestroom op de fiets of lopend (en een enkeling met de auto) de laatste dag voor het...
+- [Dode beloega aangespoeld op strand in Zeeland](https://nos.nl/l/2609919)
+  > Op een strand in het Zeeuwse dorp Kamperland is een dode beloega aangespoeld. De witte dolfijn van ongeveer 5 meter is waarschijnlijk al een aantal...
 - [Serie-aanrander Rotterdam moet 22 maanden de cel in](https://nos.nl/l/2609912)
   > De rechtbank in Rotterdam heeft een 32-jarige man veroordeeld tot 22 maanden celstraf voor het aanranden van elf vrouwen in Rotterdam. Dat gebeurde...
-- [Plannen voor Nederlandse missie Straat van Hormuz, 'maar kan ook dat we niemand sturen'](https://nos.nl/l/2609910)
-  > Nederland is bezig met "planning" en "scenario's maken" om mogelijk bij te kunnen dragen aan beveiliging van de scheepvaart in de Straat van Hormuz....
-- [Egels in Wallonië beschermd tegen robotmaaiers, Nederland volgt nog niet](https://nos.nl/l/2609904)
-  > Inwoners van het Belgische Wallonië mogen sinds gisteren hun robotgrasmaaiers niet meer 's nachts gebruiken. De maatregel moet egels en andere...
-- [Zeven illegale slachters in Friesland op heterdaad betrapt](https://nos.nl/l/2609901)
-  > Inspecteurs van de Nederlandse Voedsel- en Warenautoriteit (NVWA) hebben op een boerderij in Friesland een illegale slachterij ontdekt. In een schuur...
-- [Podcast De Dag: de onderschatting van Iran](https://nos.nl/l/2609900)
-  > Delen van de Pakistaanse hoofdstad Islamabad zijn helemaal afgesloten voor gesprekken tussen Iran en de VS, in een hotel in de stad. Na 6 weken...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaanse vicepresident op weg naar onderhandelingen met Iran: ‘Bereid om hen de hand te reiken’](https://www.ad.nl/buitenland/amerikaanse-vicepresident-op-weg-naar-onderhandelingen-met-iran-bereid-om-hen-de-hand-te-reiken~ac528ac3/)
-  > Europa heeft over drie weken een structureel tekort aan kerosine als de Straat van Hormuz gesloten blijft. Dat stelt de koepelorganisatie van...
-- [Wil je meedraaien op de sportredactie van AD? Meld je aan!](https://www.ad.nl/sport/wil-je-meedraaien-op-de-sportredactie-van-ad-meld-je-aan~ad85c831/)
-  > Ben jij gek van sport en droom je ervan om daar als journalist over te schrijven? Dan is dit je kans. We zijn op zoek naar enthousiaste stagiair(e)s...
-- [Luchthavens vrezen binnen drie weken kerosinetekort als Straat van Hormuz dicht blijft](https://www.ad.nl/buitenland/luchthavens-vrezen-binnen-drie-weken-kerosinetekort-als-straat-van-hormuz-dicht-blijft~ace33e61/)
-  > Europa heeft over drie weken een structureel tekort aan kerosine als de Straat van Hormuz gesloten blijft. Dat stelt ACI Europe, de koepelorganisatie...
-- [Elektrolyten hype onder hardlopers, maar dit goedkope middel van de drogist werkt net zo goed](https://www.ad.nl/gezond/elektrolyten-hype-onder-hardlopers-maar-dit-goedkope-middel-van-de-drogist-werkt-net-zo-goed~a2c54fe8/)
-  > Ons lichaam heeft zout en mineralen nodig om goed te functioneren. Zweten we veel, bijvoorbeeld omdat we intensief sporten, dan kunnen we zout...
-- [Multimiljonair gaat tegen experts in en zet actie op voor bultrug Timmy: ‘Ik wil niet toekijken’](https://www.ad.nl/buitenland/multimiljonair-gaat-tegen-experts-in-en-zet-actie-op-voor-bultrug-timmy-ik-wil-niet-toekijken~aca3ae76/)
-  > Dat experts adviseren om bultrug Timmy niet meer te redden, gaat er bij de Duitse multimiljonair Walter Gunz (79) niet in. De medeoprichter van...
+- [Justitie ziet in Mert A. (23) een grote speler in online sadistisch netwerk](https://www.ad.nl/binnenland/justitie-ziet-in-mert-a-23-een-grote-speler-in-online-sadistisch-netwerk~ac0f0e99/)
+  > Hoe meer de politie het online web van Mert A. ontrafelt, hoe meer zij stuit op gewelddadige en racistische teksten en video’s. Het beeld ontstaat...
+- [Dode beloega aangespoeld op strand in Zeeland: ‘Heel bijzonder’](https://www.ad.nl/binnenland/dode-beloega-aangespoeld-op-strand-in-zeeland-heel-bijzonder~a27e8a75/)
+  > Op het strand bij Kamperland is een dode beloega aangespoeld. Het gaat hoogstwaarschijnlijk om hetzelfde dier dat eerder dit jaar werd gespot bij...
+- [Paul Seixas wint wéér in Ronde van het Baskenland en ziet eindzege naderen](https://www.ad.nl/wielrennen/paul-seixas-wint-weer-in-ronde-van-het-baskenland-en-ziet-eindzege-naderen~a3fe526f/)
+  > Paul Seixas (19) heeft de vijfde etappe van de Ronde van het Baskenland gewonnen. De jonge Fransman was na een spannende sprint-a-deux in Eibar...
+- [Waarom Rob Jetten toch met zweethandjes naar Trump gaat](https://www.ad.nl/politiek/waarom-rob-jetten-toch-met-zweethandjes-naar-trump-gaat~a2ea7b7b/)
+  > De wereld hield de adem in deze week: Donald Trumps retoriek over Iran werd steeds agressiever. En dat nét voor een bezoek van premier Jetten en...
+- [Bookmakers en AI zien Oranje als underdog, maar dit model voorspelt tóch een Nederlandse wereldtitel](https://www.ad.nl/wk-voetbal/bookmakers-en-ai-zien-oranje-als-underdog-maar-dit-model-voorspelt-toch-een-nederlandse-wereldtitel~a8c86778/)
+  > Met nog 62 dagen tot de aftrap van het wereldkampioenschap begint de WK-koorts langzaam door de aderen van de voetbalwereld te stromen. Maar hoe...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Beleggers vluchten uit fondsen van Blue Owl: terecht of kuddegedrag?](https://fd.nl/bedrijfsleven/1592614/beleggers-vluchten-uit-fondsen-van-blue-owl-terecht-of-kuddegedrag)
+  > Het gaat slecht met de privatecreditfondsen van Blue Owl. Het management van de vermogensbeheerder predikt kalmte. Maar de leningen zijn...
+- [Hardt Hyperloop ging kopje-onder door mislopen nieuwe Europese financiële steun](https://fd.nl/bedrijfsleven/1592650/hardt-hyperloop-ging-kopje-onder-door-mislopen-nieuwe-europese-financiele-steun)
+  > ‘Toen zijn private investeerders op hun beurt ook terughoudend geworden in het verstrekken van additionele fondsen,’ schrijft curator Warringa.
+- [Minder dan 20 schepen door Straat van Hormuz sinds wapenstilstand](https://fd.nl/samenleving/1592649/minder-dan-20-schepen-door-straat-van-hormuz-sinds-wapenstilstand)
+  > Dit weekend komen in Pakistan Amerikaanse en Iraanse delegaties samen om te praten over opening van de zee-engte.
+- [Europese luchthavens: kerosinetekort dreigt binnen drie weken](https://fd.nl/bedrijfsleven/1592678/europese-luchthavens-binnen-drie-weken-kerosinetekort)
+  > Vakantiegangers moeten rekening blijven houden met hinder. Kerosineprijzen zijn nog altijd het dubbele van voor de oorlog in Iran én de Straat van...
 - [Kabinet gaat schepen voor Hormuz alvast plannen](https://fd.nl/politiek/1592676/kabinet-gaat-schepen-voor-hormuz-alvast-plannen)
   > Of Nederland ooit schepen zal sturen naar het conflictgebied is nog niet duidelijk, maar de planningsfase is al wel begonnen.
-- [Wie aan de AOW wil tornen kan (bijna) altijd weerstand verwachten](https://fd.nl/politiek/1592575/wie-aan-de-aow-wil-tornen-kan-bijna-altijd-weerstand-verwachten)
-  > Toen de regeling het levenslicht zag, waren er meer dan zeven werkenden per gepensioneerde. Inmiddels zijn het er ongeveer drie. Krijgt het...
-- [Bijna 90% van vapes is illegaal, kabinet wil maatregelen](https://fd.nl/politiek/1592628/bijna-90-van-vapes-is-illegaal-kabinet-wil-maatregelen)
-  > Minister Sophie Hermans wil hogere boetes en sterkere handhaving om het gebruik van illegale vapes tegen te gaan.
-- [Volle kracht vooruit, Damen](https://fd.nl/financiele-markten/1592626/volle-kracht-vooruit-damen)
-  > Om zijn operationele marge uit het verleden te kunnen halen, moet de scheepsbouwer uit Gorinchem veel efficiënter gaan werken.
-- [Groter, goedkoper, nieuwer: China domineert de chemiemarkt](https://fd.nl/bedrijfsleven/1592587/groter-goedkoper-nieuwer-china-domineert-de-chemiemarkt)
-  > Het Duitse chemiebedrijf Basf bouwde een miljardencomplex in China. Ondertussen sluiten chemiefabrieken hun deuren in Europa, waar de sector het de...
 
 ### Meest gelezen
 
