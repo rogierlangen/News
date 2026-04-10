@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-04-2026 om 19:03*
+*Laatst bijgewerkt: 10-04-2026 om 20:43*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Presentator Frank van Leeuwen wint finale van De slimste mens](https://nos.nl/l/2609955)
+  > "Wat weet je van Ben van der Burg?" Dat was de beslissende vraag in de grande finale van De slimste mens waarmee journalist Frank van Leeuwen de...
+- [Inwoners en politici Groene Hart spreken zich uit tegen windmolenplannen](https://nos.nl/l/2609952)
+  > Bewoners en politici uit het Groene Hart hebben zich bij de provincie Zuid-Holland uitgesproken tegen de komst van windturbines in de regio. Tijdens...
+- [Estland onderschept Russische schaduwvloot niet: 'Risico op militaire escalatie'](https://nos.nl/l/2609949)
+  > Estland onderschept geen schepen van de Russische schaduwvloot, uit vrees dat het een militaire reactie van Moskou uitlokt. Dat zegt de Estse...
+- [Vrouwen delen ervaringen van zwangerschapsdiscriminatie: 'Lastig aantoonbaar'](https://nos.nl/l/2609948)
+  > "Jouw zwangerschapsverlof is (...) zeker niet optimaal", zegt een werkgever tegen een sollicitant. "Ik wil iemand die er is en niet straks met...
 - [Israël wil dat Hezbollah ontwapent, maar hoe realistisch is dat?](https://nos.nl/l/2609945)
   > Na weken van bombardementen met meer dan duizend doden en ruim een miljoen Libanese vluchtelingen tot gevolg, heeft zowel de Israëlische als Libanese...
-- [Stefano Gabbana niet langer topman Dolce & Gabbana, neemt zakelijk afstand](https://nos.nl/l/2609941)
-  > Stefano Gabbana, een van de oprichters van het modehuis Dolce & Gabbana, is gestopt als directievoorzitter van het bedrijf. Dat gebeurde al in...
-- [Groep strafrechtadvocaten houdt zich niet langer aan strenge EBI-regels](https://nos.nl/l/2609940)
-  > Een groep strafrechtadvocaten met cliënten in de zwaarst bewaakte afdelingen van gevangenissen, zoals de Extra Beveiligde Inrichting (EBI) in Vught,...
-- [Spanningen in Ierland door brandstofprotesten, leger staat paraat](https://nos.nl/l/2609938)
-  > De spanning in Ierland loopt op nu het land voor de vierde dag is geconfronteerd met grootschalige brandstofprotesten. Voornamelijk boze boeren op...
-- [Politie grijpt in bij activisten op Betuwespoorlijn, vijftien arrestanten](https://nos.nl/l/2609936)
-  > De politie heeft ingegrepen bij een bezetting van de Betuweroute. Activisten van Geef Tegengas zaten sinds het middaguur op het spoor tussen Lent en...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Terugkeer Artemis II | Astronauten onderweg naar de aarde, landen vannacht in zee](https://www.ad.nl/buitenland/live-terugkeer-artemis-ii-astronauten-onderweg-naar-de-aarde-landen-vannacht-in-zee~a65845e4/)
+- [LIVE Terugkeer Artemis II | Astronauten onderweg naar de aarde, ‘weer is ideaal voor landing in zee’](https://www.ad.nl/buitenland/live-terugkeer-artemis-ii-astronauten-onderweg-naar-de-aarde-weer-is-ideaal-voor-landing-in-zee~a65845e4/)
   > De astronauten van de Artemis II-missie zijn onderweg terug naar de aarde. Ze vlogen een recordaantal van 406.771 kilometer de ruimte in en maakten...
-- [Wijnboer in Oostenrijk verdacht van vergiftigen rijke weduwe in villa: ‘Alles al cadeau gekregen’](https://www.ad.nl/buitenland/wijnboer-in-oostenrijk-verdacht-van-vergiftigen-rijke-weduwe-in-villa-alles-al-cadeau-gekregen~aef6bd42/)
-  > Een 58-jarige Oostenrijkse wijnboer is aangeklaagd omdat hij ervan verdacht wordt een rijke weduwe (71) in haar villa in Sankt Pölten te hebben...
-- [FC Twente veel te sterk voor Volendam, tweede goal van Hlynsson afgekeurd](https://www.ad.nl/voetbal/fc-twente-veel-te-sterk-voor-volendam-tweede-goal-van-hlynsson-afgekeurd~aec614ca/)
-  > FC Twente is nog in de race voor Champions League-voetbal. De achterstand op nummer twee Feyenoord bedraagt maar vier punten. Om 20.00 uur speelt de...
-- [Simon Keizer over botox en andere kunstgrepen: ‘Die haartransplantatie zou ik zo weer doen’](https://www.ad.nl/gezond/simon-keizer-over-botox-en-andere-kunstgrepen-die-haartransplantatie-zou-ik-zo-weer-doen~aa0c74e7/)
-  > Een gastroscopie zonder verdoving was zijn ergste medische ervaring en zijn slokdarm is sowieso zijn  zwakke plek: ‘Zodra ik iets pittigs eet, krijg...
-- [Rachel Hazes hoopt op winst van 330.000 euro: ze zet dit appartement aan het water te koop](https://www.ad.nl/show/rachel-hazes-hoopt-op-winst-van-330-000-euro-ze-zet-dit-appartement-aan-het-water-te-koop~a51d9d880/)
-  > Rachel Hazes kan een enorme financiële klapper maken met de verkoop van een van haar appartementen aan de Vinkeveense Plassen. Het stulpje in...
+- [Winnaar De slimste mens sliep nachten niet door stress, maar huurde wel de dorpskroeg af voor de finale](https://www.ad.nl/show/winnaar-de-slimste-mens-sliep-nachten-niet-door-stress-maar-huurde-wel-de-dorpskroeg-af-voor-de-finale~a32966c2/)
+  > Talloze keren is hij ’s nachts wakker geschrokken van mogelijke vragen bij De slimste mens, en dat was niet tevergeefs. Presentator Frank van Leeuwen...
+- [Donyell Malen blijft scoren bij AS Roma: Oranje-spits na hattrick derde op topscorerslijst Serie A](https://www.ad.nl/voetbal/donyell-malen-blijft-scoren-bij-as-roma-oranje-spits-na-hattrick-derde-op-topscorerslijst-serie-a~a317294c/)
+  > Donyell Malen blijft zijn doelpunten maar maken in Italië. De 27-jarige Oranje-international scoorde vanavond tegen Pisa al drie keer voor AS Roma.
+- [FC Twente komt dankzij minimale zege op Volendam in punten naast NEC](https://www.ad.nl/voetbal/fc-twente-komt-dankzij-minimale-zege-op-volendam-in-punten-naast-nec~aec614ca/)
+  > FC Twente is in de eredivisie door een zege op FC Volendam in punten op gelijke hoogte gekomen met NEC. De ploeg van trainer John van den Brom won in...
+- [Cambuur verspeelt punten in Den Bosch, Harrie Kuster op dreef bij RKC](https://www.ad.nl/voetbal/cambuur-verspeelt-punten-in-den-bosch-harrie-kuster-op-dreef-bij-rkc~a2868add/)
+  > In de Keuken Kampioen Divisie werden vrijdagavond vier wedstrijden gespeeld. SC Cambuur speelde met 1-1 gelijk bij FC Den Bosch, waardoor ADO Den...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Onzekere vredesbesprekingen dempen de winst op Wall Street](https://fd.nl/financiele-markten/1592655/onzekere-vredesbesprekingen-dempen-de-winst-op-wall-street)
+  > De Amerikaanse beurshandel ging voorzichtig positief van start, maar de onzekerheid over de Iran-oorlog deed die winst teniet.
 - [Frankrijk verdubbelt staatssteun voor elektriciteitsgebruik](https://fd.nl/politiek/1592654/frankrijk-verdubbelt-staatssteun-voor-elektriciteitsgebruik)
   > De overstap van gas en olie naar elektriciteit moet Frankrijk minder afhankelijk van het buitenland maken. Bovendien heeft het land veel kernenergie.
 - [Snelle overheidsactie nodig voor AI‑beveiliging](https://fd.nl/opinie/1592567/snelle-overheidsactie-nodig-voor-aibeveiliging)
@@ -54,8 +56,6 @@
   > De bezettingsgraad van hotels daalde in het eerste kwartaal, blijkt uit een peiling van brancheorganisatie KHN.
 - [Koersval Sodexo na tegenvallende vooruitzichten](https://fd.nl/bedrijfsleven/1592679/koersval-sodexo-na-tegenvallende-vooruitzichten)
   > Het Franse cateringbedrijf presteert slechter dan branchegenoten en schroeft de groeiverwachtingen terug.
-- [Beurzen op winst in week dat een beschaving dreigde te sterven](https://fd.nl/financiele-markten/1592570/beurzen-op-winst-in-week-dat-een-beschaving-dreigde-te-sterven)
-  > De directe nucleaire dreiging mag dan voor even weg zijn, het advies om aandelen te kopen als de wereld dreigt te vergaan is niet nieuw.
 
 ### Meest gelezen
 
