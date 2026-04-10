@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-04-2026 om 13:20*
+*Laatst bijgewerkt: 10-04-2026 om 14:52*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Serie-aanrander Rotterdam moet 22 maanden de cel in](https://nos.nl/l/2609912)
+  > De rechtbank in Rotterdam heeft een 32-jarige man veroordeeld tot 22 maanden celstraf voor het aanranden van elf vrouwen in Rotterdam. Dat gebeurde...
+- [Plannen voor Nederlandse missie Straat van Hormuz, 'maar kan ook dat we niemand sturen'](https://nos.nl/l/2609910)
+  > Nederland is bezig met "planning" en "scenario's maken" om mogelijk bij te kunnen dragen aan beveiliging van de scheepvaart in de Straat van Hormuz....
 - [Egels in Wallonië beschermd tegen robotmaaiers, Nederland volgt nog niet](https://nos.nl/l/2609904)
   > Inwoners van het Belgische Wallonië mogen sinds gisteren hun robotgrasmaaiers niet meer 's nachts gebruiken. De maatregel moet egels en andere...
 - [Zeven illegale slachters in Friesland op heterdaad betrapt](https://nos.nl/l/2609901)
   > Inspecteurs van de Nederlandse Voedsel- en Warenautoriteit (NVWA) hebben op een boerderij in Friesland een illegale slachterij ontdekt. In een schuur...
 - [Podcast De Dag: de onderschatting van Iran](https://nos.nl/l/2609900)
   > Delen van de Pakistaanse hoofdstad Islamabad zijn helemaal afgesloten voor gesprekken tussen Iran en de VS, in een hotel in de stad. Na 6 weken...
-- [Activisten blokkeren goederenspoorlijn Betuweroute](https://nos.nl/l/2609898)
-  > Activisten van Geef Tegengas blokkeren sinds 12.15 uur de Betuweroute. Volgens ProRail zitten er zo'n zestig mensen op het spoor van het...
-- [Boete voor Tata Steel om belemmering van toezicht en controles](https://nos.nl/l/2609894)
-  > Tata Steel moet een dwangsom betalen vanwege herhaaldelijke belemmering van toezicht en controles door de Omgevingsdienst Noordzeekanaalgebied.
-     ...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Egyptisch international geschorst om slaan scheidsrechter, oud-Ajacied Kudus moet vrezen voor WK](https://www.ad.nl/wk-voetbal/egyptisch-international-geschorst-om-slaan-scheidsrechter-oud-ajacied-kudus-moet-vrezen-voor-wk~a61805da/)
-  > Over iets meer dan twee maanden begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste...
-- [‘Hij is zo radeloos’: agent ontmoet terminaal zieke man die geen gehoor krijgt voor euthanasie](https://www.ad.nl/binnenland/hij-is-zo-radeloos-agent-ontmoet-terminaal-zieke-man-die-geen-gehoor-krijgt-voor-euthanasie~a7a92fbd/)
-  > Als ik een melding ontvang van een steekpartij, sta ik direct aan. Binnen een minuut zijn mijn collega en ik ter plaatse. Als we naar binnen gaan,...
-- [Wéér vaart Nederlands marineschip uit met kapot kanon, Zr. Ms. De Ruyter vijf maanden naar Zuidoost-Azië](https://www.ad.nl/politiek/weer-vaart-nederlands-marineschip-uit-met-kapot-kanon-zr-ms-de-ruyter-vijf-maanden-naar-zuidoost-azie~a748fcb1/)
-  > Voor de tweede keer in korte tijd vaart er een Nederlands fregat uit zónder werkend kanon. Het gaat om de Zr. Ms. De Ruyter, die zondag voor vijf...
-- [Explosief lag al dagen in schap van supermarkt in Enschede, beelden tonen hoe verdachte bom neerlegt](https://www.ad.nl/binnenland/explosief-lag-al-dagen-in-schap-van-supermarkt-in-enschede-beelden-tonen-hoe-verdachte-bom-neerlegt~aee1ec48/)
-  > Het mag een wonder heten dat er geen slachtoffers gevallen zijn bij de explosie in supermarkt Plus in Enschede op 17 maart. Naar nu blijkt heeft het...
-- [Reacties op Schijf van Vijf: ‘Welke kwalificatie men ook geeft, de Schijf maalt er niet om’](https://www.ad.nl/praat-mee/reacties-op-schijf-van-vijf-welke-kwalificatie-men-ook-geeft-de-schijf-maalt-er-niet-om~ae472a46c/)
-  > ‘Die schijf is een schijf. Wie weet wel ten gunste van uw eigen mensenlijf’ en ‘Natuurlijk moet ons koningspaar op bezoek gaan bij Trump. Al laat je...
+- [Amerikaanse vicepresident op weg naar onderhandelingen met Iran: ‘Bereid om hen de hand te reiken’](https://www.ad.nl/buitenland/amerikaanse-vicepresident-op-weg-naar-onderhandelingen-met-iran-bereid-om-hen-de-hand-te-reiken~ac528ac3/)
+  > Europa heeft over drie weken een structureel tekort aan kerosine als de Straat van Hormuz gesloten blijft. Dat stelt de koepelorganisatie van...
+- [Wil je meedraaien op de sportredactie van AD? Meld je aan!](https://www.ad.nl/sport/wil-je-meedraaien-op-de-sportredactie-van-ad-meld-je-aan~ad85c831/)
+  > Ben jij gek van sport en droom je ervan om daar als journalist over te schrijven? Dan is dit je kans. We zijn op zoek naar enthousiaste stagiair(e)s...
+- [Luchthavens vrezen binnen drie weken kerosinetekort als Straat van Hormuz dicht blijft](https://www.ad.nl/buitenland/luchthavens-vrezen-binnen-drie-weken-kerosinetekort-als-straat-van-hormuz-dicht-blijft~ace33e61/)
+  > Europa heeft over drie weken een structureel tekort aan kerosine als de Straat van Hormuz gesloten blijft. Dat stelt ACI Europe, de koepelorganisatie...
+- [Elektrolyten hype onder hardlopers, maar dit goedkope middel van de drogist werkt net zo goed](https://www.ad.nl/gezond/elektrolyten-hype-onder-hardlopers-maar-dit-goedkope-middel-van-de-drogist-werkt-net-zo-goed~a2c54fe8/)
+  > Ons lichaam heeft zout en mineralen nodig om goed te functioneren. Zweten we veel, bijvoorbeeld omdat we intensief sporten, dan kunnen we zout...
+- [Multimiljonair gaat tegen experts in en zet actie op voor bultrug Timmy: ‘Ik wil niet toekijken’](https://www.ad.nl/buitenland/multimiljonair-gaat-tegen-experts-in-en-zet-actie-op-voor-bultrug-timmy-ik-wil-niet-toekijken~aca3ae76/)
+  > Dat experts adviseren om bultrug Timmy niet meer te redden, gaat er bij de Duitse multimiljonair Walter Gunz (79) niet in. De medeoprichter van...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Gewezen koorknaap moet jonge muzikanten verkopen](https://fd.nl/bedrijfsleven/1592168/gewezen-koorknaap-moet-jonge-muzikanten-verkopen)
-  > Als zanger mist Maurits Musch de overgave die hij als fondsenwerver wel voelt. Sinds begin dit jaar is hij directeur van het Prinses Christina...
-- [Intertoys koopt webshop en groothandel in speelgoed](https://fd.nl/bedrijfsleven/1592623/intertoys-koopt-webshop-en-groothandel-in-speelgoed)
-  > De speelgoedwinkelketen neemt een belang van 75% in het moederbedrijf van Lobbes Speelgoed en Thimble Toys.
-- [Investeringsmaatschappij Karmijn Kapitaal neemt SecurityXpert over](https://fd.nl/bedrijfsleven/1592622/investeringsmaatschappij-karmijn-kapitaal-neemt-securityxpert-over)
-  > SecurityXpert is gevestigd in IJsselstein en heeft 60 medewerkers. Het bedrijf, met name actief in Midden-Nederland, beveiligt zorginstellingen.
-- [Minister Aartsen: ‘Zzp’ers hebben te lang het gevoel gehad dat zij de boeman waren’](https://fd.nl/politiek/1592442/minister-aartsen-zzpers-hebben-te-lang-het-gevoel-gehad-dat-zij-de-boeman-waren)
-  > Minister Thierry Aartsen van Werk en Participatie wil haast maken met zijn nieuwe zzp-koers. Wetgeving die het vorige kabinet had klaargezet, haalde...
-- [Stefano Gabbana weg bij Dolce & Gabbana, doet aandelen mogelijk in de verkoop](https://fd.nl/bedrijfsleven/1592621/stefano-gabbana-weg-bij-dolce-gabbana-doet-aandelen-mogelijk-in-de-verkoop)
-  > Vertrek van medeoprichter uit het bestuur komt op een moment dat het Italiaanse modehuis zich opmaakt voor verdere schuldsanering. Gabbana blijft wel...
+- [Kabinet gaat schepen voor Hormuz alvast plannen](https://fd.nl/politiek/1592676/kabinet-gaat-schepen-voor-hormuz-alvast-plannen)
+  > Of Nederland ooit schepen zal sturen naar het conflictgebied is nog niet duidelijk, maar de planningsfase is al wel begonnen.
+- [Wie aan de AOW wil tornen kan (bijna) altijd weerstand verwachten](https://fd.nl/politiek/1592575/wie-aan-de-aow-wil-tornen-kan-bijna-altijd-weerstand-verwachten)
+  > Toen de regeling het levenslicht zag, waren er meer dan zeven werkenden per gepensioneerde. Inmiddels zijn het er ongeveer drie. Krijgt het...
+- [Bijna 90% van vapes is illegaal, kabinet wil maatregelen](https://fd.nl/politiek/1592628/bijna-90-van-vapes-is-illegaal-kabinet-wil-maatregelen)
+  > Minister Sophie Hermans wil hogere boetes en sterkere handhaving om het gebruik van illegale vapes tegen te gaan.
+- [Volle kracht vooruit, Damen](https://fd.nl/financiele-markten/1592626/volle-kracht-vooruit-damen)
+  > Om zijn operationele marge uit het verleden te kunnen halen, moet de scheepsbouwer uit Gorinchem veel efficiënter gaan werken.
+- [Groter, goedkoper, nieuwer: China domineert de chemiemarkt](https://fd.nl/bedrijfsleven/1592587/groter-goedkoper-nieuwer-china-domineert-de-chemiemarkt)
+  > Het Duitse chemiebedrijf Basf bouwde een miljardencomplex in China. Ondertussen sluiten chemiefabrieken hun deuren in Europa, waar de sector het de...
 
 ### Meest gelezen
 
