@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-04-2026 om 14:39*
+*Laatst bijgewerkt: 11-04-2026 om 15:37*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Opnieuw liep het verkeer compleet vast door werkzaamheden op de A2](https://nos.nl/l/2610027)
+  > Voor het tweede weekend achtereen is het verkeer vastgelopen door de afsluiting van de snelweg A2 bij Vianen. Op de A2 zelf en op de officiële...
 - [Buschauffeur Rotterdam mishandeld in volle lijnbus](https://nos.nl/l/2610024)
   > Een buschauffeur in Rotterdam is gistermiddag mishandeld in een volle lijnbus. Hij werd meermalen geslagen en raakte gewond. Een passagier filmde de...
 - [Man in VK aangeklaagd voor dood van vier migranten bij bootongeluk](https://nos.nl/l/2610018)
@@ -17,8 +19,6 @@
 - [Herdenking vrouwenmars Westerbork: 'Ze werden meegenomen, de nacht in'](https://nos.nl/l/2610003)
   > Meer dan tweehonderd mensen doen vandaag mee aan een herdenkingstocht van voormalig Kamp Westerbork naar Groningen.
         Het gaat om een eerbetoon...
-- [Woutertje Pieterse Prijs voor kinderboek Atman! van Moeyaert en Janssen](https://nos.nl/l/2610001)
-  > De Woutertje Pieterse Prijs voor het beste kinderboek van het jaar gaat naar schrijver Bart Moeyaert en illustrator Mark Janssen. Ze krijgen hem voor...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Russische gouverneur claimt gewonden door Oekraïense aanval tijdens bestand](https://www.ad.nl/buitenland/russische-gouverneur-claimt-gewonden-door-oekraiense-aanval-tijdens-bestand~adfb97be/)
+  > Een Russische gouverneur claimt dat gewonden zijn door een Oekraïense aanval tijdens het staakt-het-vuren, van kracht tijdens het orthodoxe...
+- [Liverpool op zoek naar broodnodige opsteker tegen Fulham, Slot kiest voor Salah en Gakpo](https://www.ad.nl/voetbal/liverpool-op-zoek-naar-broodnodige-opsteker-tegen-fulham-slot-kiest-voor-salah-en-gakpo~a2e9319d/)
+  > Liverpool verloor de laatste drie wedstrijden in alle competities, waardoor de druk er vol op staat bij de ploeg van trainer Arne Slot. In de jacht...
+- [Miljoenen kostende stunt: zo bracht Lego vier wereldsterren ‘samen’ in één reclamespot](https://www.ad.nl/economie/miljoenen-kostende-stunt-zo-bracht-lego-vier-wereldsterren-samen-in-een-reclamespot~af922681/)
+  > Zet Cristiano Ronaldo, Lionel Messi, Kylian Mbappé én Vinicius Júnior met elkaar aan tafel en een iconische reclamespot is geboren. Het kost...
+- [Het einde van ‘Happy Feet’: excentrieke WK-darter mag bijnaam niet meer gebruiken](https://www.ad.nl/darts/het-einde-van-happy-feet-excentrieke-wk-darter-mag-bijnaam-niet-meer-gebruiken~ac3b4354/)
+  > Happy Feet is no longer. Justin Hood (32), de sensatie van het afgelopen WK darts, moet afstand doen van zijn bijnaam. De makers van de gelijknamige...
 - [Trump zegt dat Amerikanen Straat van Hormuz schoonvegen, Iran ontkent](https://www.ad.nl/buitenland/trump-zegt-dat-amerikanen-straat-van-hormuz-schoonvegen-iran-ontkent~ac528ac3/)
   > De Verenigde Staten zijn begonnen met het schoonvegen van de Straat van Hormuz, schrijft de Amerikaanse president Donald Trump op Truth Social. Een...
-- [Buschauffeur mishandeld in rijdende bus, burgemeester geschokt en woedend](https://www.ad.nl/rotterdam/buschauffeur-mishandeld-in-rijdende-bus-burgemeester-geschokt-en-woedend~a06a1af2/)
-  > Een buschauffeur van de RET is vrijdagmiddag tijdens zijn dienst mishandeld in een rijdende bus in Rotterdam-Overschie. Volgens de politie is de...
-- [‘Het loon bij mijn vorige baan was hoger, maar mijn werk-privébalans is nu beter’](https://www.ad.nl/werk/het-loon-bij-mijn-vorige-baan-was-hoger-maar-mijn-werk-privebalans-is-nu-beter~a9d8e9b9/)
-  > Sem (28) werkt als uitvoerder civiel. Hij plant werkzaamheden op grote infrastructurele projecten en geeft leiding aan een bouwteam van 15 mensen....
-- [Na een flinke val vreest Joke (89) dat Senna weg moet, maar dan staat de buurt op](https://www.ad.nl/binnenland/na-een-flinke-val-vreest-joke-89-dat-senna-weg-moet-maar-dan-staat-de-buurt-op~a10f926a/)
-  > Dat buurtbewoners naar elkaar omkijken is steeds minder vanzelfsprekend in Nederland. Logisch, dat Joke (89) na een val denkt: wie gaat mijn hondje...
-- [Paasbestand tussen Rusland en Oekraïne ingegaan, Zelensky hoopt op verlenging](https://www.ad.nl/buitenland/paasbestand-tussen-rusland-en-oekraine-ingegaan-zelensky-hoopt-op-verlenging~a4e9e5ab/)
-  > De kortstondige wapenstilstand tussen Oekraïne en Rusland is om 15.00 uur Nederlandse tijd van start gegaan. De Russische president Vladimir Poetin...
 
 ### Meest gelezen
 
