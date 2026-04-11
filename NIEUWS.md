@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-04-2026 om 11:34*
+*Laatst bijgewerkt: 11-04-2026 om 13:08*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Verdachte kunstroof Drents Museum weigerde deal met justitie](https://nos.nl/l/2610005)
+  > Een van de verdachten die terechtstaan voor de kunstroof in het Drents Museum in Assen heeft geen deal gesloten met justitie. Dat bevestigt de...
 - [Herdenking vrouwenmars Westerbork: 'Ze werden meegenomen, de nacht in'](https://nos.nl/l/2610003)
   > Meer dan tweehonderd mensen doen vandaag mee aan een herdenkingstocht van voormalig Kamp Westerbork naar Groningen.
         Het gaat om een eerbetoon...
@@ -17,8 +19,6 @@
   > Het Verenigd Koninkrijk schort de overeenkomst op waarbij het de Chagos-eilanden overdraagt aan Mauritius. De Britse regering geeft toe aan druk van...
 - [Cipiers aangevallen op straat in Brussel, mogelijk herkend door ex-gevangene](https://nos.nl/l/2609998)
   > In België zijn afgelopen week twee gevangenismedewerkers aangevallen op een station in Brussel. Dat meldt de Vlaamse omroep VRT. De mannen zijn door...
-- [Officiële aftrap songfestivalseizoen: 'Kijkcijfers zullen drastisch lager zijn'](https://nos.nl/l/2609995)
-  > Over ruim een maand schitteren Nederland, Spanje, Slovenië, IJsland en Ierland op het Eurovisie Songfestival in Wenen door afwezigheid. Desondanks is...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [De naturel chips van dit huismerk wint onze smaaktest: ‘Deze mag bij mij op de bank’](https://www.ad.nl/gezond/de-naturel-chips-van-dit-huismerk-wint-onze-smaaktest-deze-mag-bij-mij-op-de-bank~a6eceb31/)
-  > Het is lente, dus er kan weer worden gedacht aan picknicken. Met een mandje lekkers op een kleedje in het park of varen in een bootje. Naturel chips...
-- [Derde verdachte van kunstroof gouden helm wil géén deal met justitie: ‘Hij was niet in museum’](https://www.ad.nl/binnenland/derde-verdachte-van-kunstroof-gouden-helm-wil-geen-deal-met-justitie-hij-was-niet-in-museum~a1268631/)
-  > De gouden helm is terug, maar niet met alle drie de verdachten heeft het Openbaar Ministerie een deal kunnen maken. Verdachte Bernhard Z. heeft geen...
-- [Zelensky waarschuwt Poetin voor schenden staakt-het-vuren: ‘We weten met wie we te maken hebben’](https://www.ad.nl/buitenland/zelensky-waarschuwt-poetin-voor-schenden-staakt-het-vuren-we-weten-met-wie-we-te-maken-hebben~adfb97be/)
-  > Oekraïne zal ‘op dezelfde manier’ reageren als Rusland het staakt-het-vuren schendt. Dat heeft de Oekraïense president Volodymyr Zelensky gemeld op...
-- [De Gypsy King is wéér terug: privéjets, pensioen, verveling… en dan zegt ChatGPT dat hij móét boksen](https://www.ad.nl/vechtsport/de-gypsy-king-is-weer-terug-privejets-pensioen-verveling-en-dan-zegt-chatgpt-dat-hij-moet-boksen~a384d88f/)
-  > Honden uitlaten en kinderen naar school brengen? Niets voor Tyson Fury (37). En dus maakt het Britse boksfenomeen vanavond voor de zoveelste keer...
-- [‘Khamenei ernstig verminkt’: hoogste leider Iran herstelt van verwondingen aan gezicht en benen](https://www.ad.nl/buitenland/khamenei-ernstig-verminkt-hoogste-leider-iran-herstelt-van-verwondingen-aan-gezicht-en-benen~a4067dcc/)
-  > De hoogste leider van Iran, ayatollah Mojtaba Khamenei, herstelt nog steeds van ernstige verwondingen aan zijn gezicht en benen. Die liep hij op bij...
+- [Nina (26) woont samen met haar opa Willem én ze werken in een winkel: ‘Onze band is niet te omschrijven’](https://www.ad.nl/binnenland/nina-26-woont-samen-met-haar-opa-willem-en-ze-werken-in-een-winkel-onze-band-is-niet-te-omschrijven~aa06a621/)
+  > Opa Willem en kleindochter Nina wonen niet alleen samen, maar werken ook nog eens met elkaar bij HenC Computers in Amersfoort. Thuis kijken ze graag...
+- [Frans en Mariska Bauer houden kleinkind voor het eerst vast en Dries Roelvink geeft letterlijk knalfeest](https://www.ad.nl/show/frans-en-mariska-bauer-houden-kleinkind-voor-het-eerst-vast-en-dries-roelvink-geeft-letterlijk-knalfeest~ae10b56a/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Franse politie bevrijdt naakt en ondervoed jongetje (9) dat jaar lang in busje werd opgesloten door vader](https://www.ad.nl/buitenland/franse-politie-bevrijdt-naakt-en-ondervoed-jongetje-9-dat-jaar-lang-in-busje-werd-opgesloten-door-vader~a0f05d37/)
+  > De Franse politie heeft een 9-jarige jongen bevrijd die ruim een jaar lang in een bestelbusje gevangen werd gehouden. De jongen lag naakt, ondervoed...
+- [Renners vertrokken voor laatste etappe, houdt Seixas stand?](https://www.ad.nl/wielrennen/renners-vertrokken-voor-laatste-etappe-houdt-seixas-stand~ab341283/)
+  > De zesde en laatste etappe van de Ronde van het Baskenland staat garant voor een korte maar krachtige wedstrijd over een heuvelachtig parkoers....
+- [Goed nieuws voor Oranje en Barcelona: Frenkie de Jong keert twee maanden voor WK terug in wedstrijdselectie](https://www.ad.nl/voetbal/goed-nieuws-voor-oranje-en-barcelona-frenkie-de-jong-keert-twee-maanden-voor-wk-terug-in-wedstrijdselectie~a229218a/)
+  > Frenkie de Jong maakt mogelijk zaterdagavond zijn rentree bij FC Barcelona. Trainer Hansi Flick heeft de Oranje-international opgenomen in de...
 
 ### Meest gelezen
 
