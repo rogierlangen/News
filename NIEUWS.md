@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-04-2026 om 15:37*
+*Laatst bijgewerkt: 11-04-2026 om 16:41*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Franse jongen (9) zat ruim een jaar opgesloten in bestelbusje, vader aangeklaagd](https://nos.nl/l/2610035)
+  > De Franse politie heeft deze week een 9-jarige jongen bevrijd die sinds 2024 zat opgesloten in een bestelbusje. De jongen werd naakt en in...
 - [Opnieuw liep het verkeer compleet vast door werkzaamheden op de A2](https://nos.nl/l/2610027)
   > Voor het tweede weekend achtereen is het verkeer vastgelopen door de afsluiting van de snelweg A2 bij Vianen. Op de A2 zelf en op de officiële...
 - [Buschauffeur Rotterdam mishandeld in volle lijnbus](https://nos.nl/l/2610024)
@@ -16,9 +18,6 @@
   > In het Verenigd Koninkrijk is een man aangeklaagd die ervan wordt verdacht betrokken te zijn bij de dood van vier migranten die deze week Het Kanaal...
 - [Verdachte kunstroof Drents Museum weigerde deal met justitie](https://nos.nl/l/2610005)
   > Een van de verdachten die terechtstaan voor de kunstroof in het Drents Museum in Assen heeft geen deal gesloten met justitie. Dat bevestigt de...
-- [Herdenking vrouwenmars Westerbork: 'Ze werden meegenomen, de nacht in'](https://nos.nl/l/2610003)
-  > Meer dan tweehonderd mensen doen vandaag mee aan een herdenkingstocht van voormalig Kamp Westerbork naar Groningen.
-        Het gaat om een eerbetoon...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Russische gouverneur claimt gewonden door Oekraïense aanval tijdens bestand](https://www.ad.nl/buitenland/russische-gouverneur-claimt-gewonden-door-oekraiense-aanval-tijdens-bestand~adfb97be/)
-  > Een Russische gouverneur claimt dat gewonden zijn door een Oekraïense aanval tijdens het staakt-het-vuren, van kracht tijdens het orthodoxe...
-- [Liverpool op zoek naar broodnodige opsteker tegen Fulham, Slot kiest voor Salah en Gakpo](https://www.ad.nl/voetbal/liverpool-op-zoek-naar-broodnodige-opsteker-tegen-fulham-slot-kiest-voor-salah-en-gakpo~a2e9319d/)
-  > Liverpool verloor de laatste drie wedstrijden in alle competities, waardoor de druk er vol op staat bij de ploeg van trainer Arne Slot. In de jacht...
-- [Miljoenen kostende stunt: zo bracht Lego vier wereldsterren ‘samen’ in één reclamespot](https://www.ad.nl/economie/miljoenen-kostende-stunt-zo-bracht-lego-vier-wereldsterren-samen-in-een-reclamespot~af922681/)
-  > Zet Cristiano Ronaldo, Lionel Messi, Kylian Mbappé én Vinicius Júnior met elkaar aan tafel en een iconische reclamespot is geboren. Het kost...
-- [Het einde van ‘Happy Feet’: excentrieke WK-darter mag bijnaam niet meer gebruiken](https://www.ad.nl/darts/het-einde-van-happy-feet-excentrieke-wk-darter-mag-bijnaam-niet-meer-gebruiken~ac3b4354/)
-  > Happy Feet is no longer. Justin Hood (32), de sensatie van het afgelopen WK darts, moet afstand doen van zijn bijnaam. De makers van de gelijknamige...
-- [Trump zegt dat Amerikanen Straat van Hormuz schoonvegen, Iran ontkent](https://www.ad.nl/buitenland/trump-zegt-dat-amerikanen-straat-van-hormuz-schoonvegen-iran-ontkent~ac528ac3/)
-  > De Verenigde Staten zijn begonnen met het schoonvegen van de Straat van Hormuz, schrijft de Amerikaanse president Donald Trump op Truth Social. Een...
+- [Er zijn te weinig leraren, maar Omar mag niet helpen: hier lopen vluchtelingen tegenaan op onze arbeidsmarkt](https://www.ad.nl/economie/er-zijn-te-weinig-leraren-maar-omar-mag-niet-helpen-hier-lopen-vluchtelingen-tegenaan-op-onze-arbeidsmarkt~a0134325/)
+  > Terwijl de Nederlandse arbeidsmarkt schreeuwt om personeel, blijft een groot reservoir aan talent onbenut. Duizenden asielzoekers staan te popelen...
+- [Liverpool op zoek naar broodnodige opsteker tegen Fulham, balt rolt op Anfield](https://www.ad.nl/voetbal/liverpool-op-zoek-naar-broodnodige-opsteker-tegen-fulham-balt-rolt-op-anfield~a2e9319d/)
+  > In de jacht op een ticket voor de Champions League neemt Liverpool het vandaag in de Premier League thuis op tegen Fulham. Pakt de ploeg van Arne...
+- [FC Utrecht geeft Telstar klop en Bunnikside scandeert: ‘Correia is van ons. Olé, olé’](https://www.ad.nl/voetbal/fc-utrecht-geeft-telstar-klop-en-bunnikside-scandeert-correia-is-van-ons-ole-ole~ad7f1d27/)
+  > FC Utrecht heeft in de strijd om een plaats in de play-offs van de eredivisie goede zaken gedaan. Degradatiekandidaat Telstar werd met 4-1 verslagen.
+- [Karate-ouders, 8000 hoogtemeters en maandenlang z’n vriendin niet zien: wie is Paul Seixas?](https://www.ad.nl/wielrennen/karate-ouders-8000-hoogtemeters-en-maandenlang-zn-vriendin-niet-zien-wie-is-paul-seixas~a881307a/)
+  > De 19-jarige Paul Seixas maakt momenteel diepe indruk in de wielerwereld. Zijn prestaties, maar óók zijn trainingsarbeid, zijn de laatste maanden...
+- [Mats Wieffer schiet Brighton langs Burnley, Arsenal blaast titelrace nieuw leven in na misstap](https://www.ad.nl/voetbal/mats-wieffer-schiet-brighton-langs-burnley-arsenal-blaast-titelrace-nieuw-leven-in-na-misstap~ad54f7a2/)
+  > Mats Wieffer heeft Brighton & Hove Albion met twee doelpunten aan een 2-0-overwinning bij Burnley geholpen. De oud-Feyenoorder was mede dankzij twee...
 
 ### Meest gelezen
 
