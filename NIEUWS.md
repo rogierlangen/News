@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-04-2026 om 23:40*
+*Laatst bijgewerkt: 11-04-2026 om 02:40*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [ME grijpt in bij kampioensfeest ADO Den Haag](https://nos.nl/l/2609967)
+  > De Mobiele Eenheid heeft ingegrepen bij een kampioensfeest van ADO Den Haag. Toen de feestvierende mensenmassa zich wilde verplaatsen naar het...
+- [Artemis II is terug op aarde, bemanning 'maakt het uitstekend'](https://nos.nl/l/2609966)
+  > De Artemis II-bemanning is terug op aarde. Hun capsule landde iets na 02.00 uur in de Stille Oceaan, voor de kust van San Diego in Zuid-Californië.
+ ...
 - [Zelfrijdende Tesla's mogen de weg op in Nederland, eerste land in Europa](https://nos.nl/l/2609960)
   > Zelfrijdende Tesla's mogen de weg op in Nederland. De RDW heeft goedkeuring gegeven voor het rijhulpsysteem Full Self Driving Supervised (FSD)....
 - [Presentator Frank van Leeuwen wint finale van De slimste mens](https://nos.nl/l/2609955)
   > "Wat weet je van Ben van der Burg?" Dat was de beslissende vraag in de grande finale van De slimste mens waarmee journalist Frank van Leeuwen de...
 - [Inwoners en politici Groene Hart spreken zich uit tegen windmolenplannen](https://nos.nl/l/2609952)
   > Bewoners en politici uit het Groene Hart hebben zich bij de provincie Zuid-Holland uitgesproken tegen de komst van windturbines in de regio. Tijdens...
-- [Estland onderschept Russische schaduwvloot niet: 'Risico op militaire escalatie'](https://nos.nl/l/2609949)
-  > Estland onderschept geen schepen van de Russische schaduwvloot, uit vrees dat het een militaire reactie van Moskou uitlokt. Dat zegt de Estse...
-- [Vrouwen delen ervaringen van zwangerschapsdiscriminatie: 'Lastig aantoonbaar'](https://nos.nl/l/2609948)
-  > "Jouw zwangerschapsverlof is (...) zeker niet optimaal", zegt een werkgever tegen een sollicitant. "Ik wil iemand die er is en niet straks met...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Eén dode en vijftien gewonden bij Russische aanvallen op Oekraïne in laatste nacht voor bestand](https://www.ad.nl/buitenland/een-dode-en-vijftien-gewonden-bij-russische-aanvallen-op-oekraine-in-laatste-nacht-voor-bestand~adfb97be/)
+  > Bij twee Russische aanvallen in Oekraïne zijn in de nacht van vrijdag op zaterdag een dode en vijftien gewonden gevallen. De landen kwamen eerder een...
+- [Zeker zes doden bij Israëlische aanval op politiepost Gaza, president Libanon kondigt gesprekken met Israël aan](https://www.ad.nl/buitenland/zeker-zes-doden-bij-israelische-aanval-op-politiepost-gaza-president-libanon-kondigt-gesprekken-met-israel-aan~ac528ac3/)
+  > Dinsdag zullen er in Washington gesprekken plaatsvinden tussen Libanon en Israël over een staakt-het-vuren in de oorlog tussen Israël en de...
+- [Beleggers vrezen tonnen kwijt te zijn aan Eindhovense vastgoedfirma: ‘In maart kreeg ik niks meer’](https://www.ad.nl/binnenland/beleggers-vrezen-tonnen-kwijt-te-zijn-aan-eindhovense-vastgoedfirma-in-maart-kreeg-ik-niks-meer~a5f62b4d/)
+  > Beleggers die vielen voor ronkende vastgoedadvertenties en torenhoge rendementen van een Eindhovense vastgoedfirma vrezen in totaal vele tonnen kwijt...
 - [Nederland geeft als eerste land van Europa toestemming: Tesla’s mogen vanaf vandaag zelf rijden](https://www.ad.nl/auto/nederland-geeft-als-eerste-land-van-europa-toestemming-teslas-mogen-vanaf-vandaag-zelf-rijden~ae8ad5b4/)
   > De zelfrijdende auto's van Tesla hebben toestemming gekregen van de RDW om in Nederland de openbare weg op te gaan. Tesla-rijders mogen voortaan de...
 - [Foxtrot en Hadestown grote favorieten voor Musical Awards 2026](https://www.ad.nl/show/foxtrot-en-hadestown-grote-favorieten-voor-musical-awards-2026~a5dc32db/)
   > De jaarlijkse strijd om de Musical Awards is officieel losgebarsten. De vakjury heeft de nominaties voor 2026 bekendgemaakt, waarbij de Annie M.G....
-- [President Libanon kondigt gesprekken met Israël aan, KLM mijdt Dubai zeker tot juni](https://www.ad.nl/buitenland/president-libanon-kondigt-gesprekken-met-israel-aan-klm-mijdt-dubai-zeker-tot-juni~ac528ac3/)
-  > Dinsdag zullen er in Washington gesprekken plaatsvinden tussen Libanon en Israël over een staakt-het-vuren in de oorlog tussen Israël en de...
-- [Donyell Malen blijft scoren bij AS Roma: Oranje-spits na hattrick derde op topscorerslijst Serie A](https://www.ad.nl/voetbal/donyell-malen-blijft-scoren-bij-as-roma-oranje-spits-na-hattrick-derde-op-topscorerslijst-serie-a~a317294c/)
-  > Donyell Malen blijft zijn doelpunten maar maken in Italië. De 27-jarige Oranje-international scoorde vanavond tegen hekkensluiter Pisa drie keer voor...
-- [Real Madrid kan titel uit het hoofd zetten, Spurs voor het eerst sinds 2009 op degradatieplek](https://www.ad.nl/voetbal/real-madrid-kan-titel-uit-het-hoofd-zetten-spurs-voor-het-eerst-sinds-2009-op-degradatieplek~a3376922/)
-  > Real Madrid kan de titel in La Liga wel uit het hoofd zitten. Het team van trainer Álvaro Arbeloa speelde vrijdagavond in het Estadio Santiago...
 
 ### Meest gelezen
 
