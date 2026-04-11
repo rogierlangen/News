@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-04-2026 om 17:36*
+*Laatst bijgewerkt: 11-04-2026 om 18:52*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Meteen raak voor Rocco Coronel: ‘de zoon van’ wint eerste twee races in Spaans Formule 4-kampioenschap](https://www.ad.nl/formule-1/meteen-raak-voor-rocco-coronel-de-zoon-van-wint-eerste-twee-races-in-spaans-formule-4-kampioenschap~ad6a26e1/)
-  > Rocco Coronel is goed begonnen aan het eerste weekend van het Spaanse Formule 4-kampioenschap in Valencia. Het 15-jarige racetalent, zoon van...
-- [Eurovisie Songfestival verscherpt regels na brand in Crans-Montana](https://www.ad.nl/show/eurovisie-songfestival-verscherpt-regels-na-brand-in-crans-montana~a4b870d4/)
-  > Het publiek bij het Eurovisie Songfestival van dit jaar in Wenen mag alleen met vlaggen en wimpels zwaaien waarvan kan worden aangetoond dat ze...
-- [Ik denk aan ons hechte team dat toch de moed erin hield op het zinkende schip](https://www.ad.nl/mezza/ik-denk-aan-ons-hechte-team-dat-toch-de-moed-erin-hield-op-het-zinkende-schip~a51f881a/)
-  > De stekker gaat uit de talkshow op de late avond. Lees hier in zijn column uit ons weekendmagazine Mezza hoe Beau dit nieuws ontving.
-- [FC Groningen ontvangt Go Ahead, thuisploeg op zoek naar derde overwinning op rij](https://www.ad.nl/voetbal/fc-groningen-ontvangt-go-ahead-thuisploeg-op-zoek-naar-derde-overwinning-op-rij~a32ca0b8/)
+- [LIVE Midden-Oosten |  Eerste gesprekken tussen VS en Iran beëindigd: nog 'ernstig meningsverschil' over de Straat van Hormuz](https://www.ad.nl/buitenland/live-midden-oosten-eerste-gesprekken-tussen-vs-en-iran-beeindigd-nog-ernstig-meningsverschil-over-de-straat-van-hormuz~ac528ac3/)
+  > De eerste rechtstreekse gesprekken tussen de Amerikaanse en Iraanse delegaties in Pakistan zijn beëindigd, schrijft het Iraanse persbureau Tasnim....
+- [Geen champagnebenen bij PSV: Pepi en Saibari bezorgen landskampioen uitzege op Sparta](https://www.ad.nl/voetbal/geen-champagnebenen-bij-psv-pepi-en-saibari-bezorgen-landskampioen-uitzege-op-sparta~a8f72451/)
+  > PSV heeft na het binnenhalen van de landstitel in de VriendenLoterij eredivisie de teugels nog niet laten vieren. De kersvers landskampioen won op...
+- [Doe die smartwatch weg: je krijgt er slapeloze nachten van, zegt slaapexpert](https://www.ad.nl/binnenland/doe-die-smartwatch-weg-je-krijgt-er-slapeloze-nachten-van-zegt-slaapexpert~a4e2de10/)
+  > Van smartwatches die meten of we goed en diep slapen, gaan we eerder slechter slapen. Dat zegt Eus van Someren, de slaapprofessor van Nederland. Een...
+- [Demonstranten blokkeren raffinaderij met tractoren en trucks: brandstof raakt op in Ierland](https://www.ad.nl/buitenland/demonstranten-blokkeren-raffinaderij-met-tractoren-en-trucks-brandstof-raakt-op-in-ierland~afccbd27/)
+  > In Ierland zorgen grote protesten voor een acute brandstofcrisis. Volgens Kevin McPartlan, ceo van Fuels for Ireland, zitten door de blokkades...
+- [De Busser voorkomt openingstreffer FC Groningen in stroperig duel met Go Ahead Eagles](https://www.ad.nl/voetbal/de-busser-voorkomt-openingstreffer-fc-groningen-in-stroperig-duel-met-go-ahead-eagles~a32ca0b8/)
   > FC Groningen heeft een zwakke periode, met zes opeenvolgende nederlagen, achter zich gelaten. De ploeg van trainer Dick Lukkien pakte tien punten in...
-- [Lufthansa wordt opnieuw getroffen door staking: piloten leggen maandag en dinsdag het werk neer](https://www.ad.nl/buitenland/lufthansa-wordt-opnieuw-getroffen-door-staking-piloten-leggen-maandag-en-dinsdag-het-werk-neer~a60775dc/)
-  > Piloten van luchtvaartmaatschappij Lufthansa gaan maandag en dinsdag weer staken, heeft vakbond Cockpit aangekondigd. De piloten staken voor een...
 
 ### Meest gelezen
 
