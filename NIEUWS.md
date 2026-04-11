@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-04-2026 om 10:39*
+*Laatst bijgewerkt: 11-04-2026 om 11:34*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Herdenking vrouwenmars Westerbork: 'Ze werden meegenomen, de nacht in'](https://nos.nl/l/2610003)
+  > Meer dan tweehonderd mensen doen vandaag mee aan een herdenkingstocht van voormalig Kamp Westerbork naar Groningen.
+        Het gaat om een eerbetoon...
+- [Woutertje Pieterse Prijs voor kinderboek Atman! van Moeyaert en Janssen](https://nos.nl/l/2610001)
+  > De Woutertje Pieterse Prijs voor het beste kinderboek van het jaar gaat naar schrijver Bart Moeyaert en illustrator Mark Janssen. Ze krijgen hem voor...
+- [VK schort overdracht Chagos-eilanden aan Mauritius op na Amerikaanse druk](https://nos.nl/l/2609999)
+  > Het Verenigd Koninkrijk schort de overeenkomst op waarbij het de Chagos-eilanden overdraagt aan Mauritius. De Britse regering geeft toe aan druk van...
 - [Cipiers aangevallen op straat in Brussel, mogelijk herkend door ex-gevangene](https://nos.nl/l/2609998)
   > In België zijn afgelopen week twee gevangenismedewerkers aangevallen op een station in Brussel. Dat meldt de Vlaamse omroep VRT. De mannen zijn door...
 - [Officiële aftrap songfestivalseizoen: 'Kijkcijfers zullen drastisch lager zijn'](https://nos.nl/l/2609995)
   > Over ruim een maand schitteren Nederland, Spanje, Slovenië, IJsland en Ierland op het Eurovisie Songfestival in Wenen door afwezigheid. Desondanks is...
-- [Automobilist zonder rijbewijs scheurt met 160 km/u langs werkzaamheden](https://nos.nl/l/2609989)
-  > De politie heeft van de week een automobilist betrapt die met ruim 160 kilometer per uur langs werkzaamheden op de snelweg A4 bij Den Haag scheurde....
-- [Estland koopt nog eens drie Himars-raketsystemen: 'Zorgt voor meer afschrikking'](https://nos.nl/l/2609988)
-  > Estland gaat nog eens drie Amerikaanse Himars-raketsystemen aanschaffen om de eigen defensie verder te versterken. De geavanceerde raketsystemen...
-- [Oliebranden en geannuleerde vluchten dwingen Poetin tot paasbestand](https://nos.nl/l/2609987)
-  > President Poetin stemde afgelopen donderdag toch in met een paasbestand, terwijl hij daar lange tijd niks van wilde weten. De Oekraïense president...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Boksicoon Tyson Fury (37) ging al vijf keer met pensioen en keert nu (met egelsoep) wéér terug](https://www.ad.nl/vechtsport/boksicoon-tyson-fury-37-ging-al-vijf-keer-met-pensioen-en-keert-nu-met-egelsoep-weer-terug~a384d88f/)
+- [De naturel chips van dit huismerk wint onze smaaktest: ‘Deze mag bij mij op de bank’](https://www.ad.nl/gezond/de-naturel-chips-van-dit-huismerk-wint-onze-smaaktest-deze-mag-bij-mij-op-de-bank~a6eceb31/)
+  > Het is lente, dus er kan weer worden gedacht aan picknicken. Met een mandje lekkers op een kleedje in het park of varen in een bootje. Naturel chips...
+- [Derde verdachte van kunstroof gouden helm wil géén deal met justitie: ‘Hij was niet in museum’](https://www.ad.nl/binnenland/derde-verdachte-van-kunstroof-gouden-helm-wil-geen-deal-met-justitie-hij-was-niet-in-museum~a1268631/)
+  > De gouden helm is terug, maar niet met alle drie de verdachten heeft het Openbaar Ministerie een deal kunnen maken. Verdachte Bernhard Z. heeft geen...
+- [Zelensky waarschuwt Poetin voor schenden staakt-het-vuren: ‘We weten met wie we te maken hebben’](https://www.ad.nl/buitenland/zelensky-waarschuwt-poetin-voor-schenden-staakt-het-vuren-we-weten-met-wie-we-te-maken-hebben~adfb97be/)
+  > Oekraïne zal ‘op dezelfde manier’ reageren als Rusland het staakt-het-vuren schendt. Dat heeft de Oekraïense president Volodymyr Zelensky gemeld op...
+- [De Gypsy King is wéér terug: privéjets, pensioen, verveling… en dan zegt ChatGPT dat hij móét boksen](https://www.ad.nl/vechtsport/de-gypsy-king-is-weer-terug-privejets-pensioen-verveling-en-dan-zegt-chatgpt-dat-hij-moet-boksen~a384d88f/)
   > Honden uitlaten en kinderen naar school brengen? Niets voor Tyson Fury (37). En dus maakt het Britse boksfenomeen vanavond voor de zoveelste keer...
 - [‘Khamenei ernstig verminkt’: hoogste leider Iran herstelt van verwondingen aan gezicht en benen](https://www.ad.nl/buitenland/khamenei-ernstig-verminkt-hoogste-leider-iran-herstelt-van-verwondingen-aan-gezicht-en-benen~a4067dcc/)
   > De hoogste leider van Iran, ayatollah Mojtaba Khamenei, herstelt nog steeds van ernstige verwondingen aan zijn gezicht en benen. Die liep hij op bij...
-- [Tuinexpert Romke snapt er soms óók niks van: ‘Bloembollen laten zich niet dwingen’](https://www.ad.nl/wonen/tuinexpert-romke-snapt-er-soms-ook-niks-van-bloembollen-laten-zich-niet-dwingen~a1ebbf21/)
-  > Bloembollen mogen van tuinexpert Romke van de Kaa naar hartenlust verwilderen, maar welke soort dat wel of niet doet, is soms een groot mysterie.
-- [Vader van Jade Kops spreekt openhartig over ziekte en situatie van dochter: ‘Het is soms echt een rollercoaster’](https://www.ad.nl/show/vader-van-jade-kops-spreekt-openhartig-over-ziekte-en-situatie-van-dochter-het-is-soms-echt-een-rollercoaster~a857f856/)
-  > René Kops, de vader van de 19-jarige Jade Kops, heeft vrijdagavond openhartig gesproken over de ziekte van zijn dochter bij het NPO 1-programma...
-- [Astronauten zagen delen van de maan die nog nooit in het echt zijn gezien: zo verliep de Artemis-missie](https://www.ad.nl/buitenland/astronauten-zagen-delen-van-de-maan-die-nog-nooit-in-het-echt-zijn-gezien-zo-verliep-de-artemis-missie~a9b06e9d/)
-  > De astronauten van de Artemis II-missie zijn weer thuis. Zoals verwacht, zijn ze in de nacht van vrijdag op zaterdag voor de kust van San Diego in de...
 
 ### Meest gelezen
 
