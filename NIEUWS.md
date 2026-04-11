@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-04-2026 om 19:37*
+*Laatst bijgewerkt: 11-04-2026 om 20:39*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Dit moet je weten om de verkiezingen in Hongarije goed te kunnen volgen](https://nos.nl/l/2610064)
+  > Lukt het de oppositie in Hongarije deze keer wel? Zondag gaan zo'n vijf miljoen Hongaren naar de stembus. Het voelt voor veel mensen als misschien...
 - [Gaza, Kyiv, Hongkong: dit zijn de nominaties voor World Press Photo 2026](https://nos.nl/l/2610060)
   > In zeven wolkenkrabbers in Hongkong woedde eind vorig jaar brand waarbij 168 mensen om het leven kwamen. Een beeld dat fotograaf Tyrone Siu daarvan...
 - [Oekraïne en Rusland beschuldigen elkaar van schenden paasbestand](https://nos.nl/l/2610049)
@@ -16,8 +18,6 @@
   > In de Pakistaanse hoofdstad Islamabad is een historische ontmoeting gaande tussen de VS en Iran. Onder anderen de Amerikaanse vicepresident Vance is...
 - [Franse jongen (9) zat ruim een jaar opgesloten in bestelbusje, vader aangeklaagd](https://nos.nl/l/2610035)
   > De Franse politie heeft deze week een 9-jarige jongen bevrijd die sinds 2024 zat opgesloten in een bestelbusje. De jongen werd naakt en in...
-- [Opnieuw liep het verkeer compleet vast door werkzaamheden op de A2](https://nos.nl/l/2610027)
-  > Voor het tweede weekend achtereen is het verkeer vastgelopen door de afsluiting van de snelweg A2 bij Vianen. Op de A2 zelf en op de officiële...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Berghuis verdubbelt binnen twee minuten voorsprong van Ajax op hekkensluiter Heracles](https://www.ad.nl/voetbal/berghuis-verdubbelt-binnen-twee-minuten-voorsprong-van-ajax-op-hekkensluiter-heracles~a246c7ee/)
+- [Dean James reageert op paspoortgate: ‘Heel gek, alsof het weer coronatijd was’](https://www.ad.nl/voetbal/dean-james-reageert-op-paspoortgate-heel-gek-alsof-het-weer-coronatijd-was~a3791623/)
+  > Dean James heeft voor het eerst sinds paspoortgate weer minuten gemaakt. De speler van Go Ahead Eagles mocht twee weken niet voetballen of trainen....
+- [Politie schiet man dood in New York nadat hij drie mensen te lijf gaat met machete](https://www.ad.nl/buitenland/politie-schiet-man-dood-in-new-york-nadat-hij-drie-mensen-te-lijf-gaat-met-machete~a6ce5536/)
+  > De politie in New York heeft een man doodgeschoten in een vertrekhal van Grand Central Station, nadat hij drie mensen met een machete had verwond....
+- [Ajax loopt verder uit tegen hekkensluiter Heracles, ex-Ajacied Pasveer weer niet op tijd](https://www.ad.nl/voetbal/ajax-loopt-verder-uit-tegen-hekkensluiter-heracles-ex-ajacied-pasveer-weer-niet-op-tijd~a246c7ee/)
   > Ajax beleeft een zeer moeizaam seizoen. Het is nog maar zeer de vraag of de ploeg van trainer Óscar García zich gaat plaatsen voor de Champions...
-- [Van geruchten over Jutta tot de danskunsten van Shiloh Jolie: test je showbizzkennis](https://www.ad.nl/quiz/van-geruchten-over-jutta-tot-de-danskunsten-van-shiloh-jolie-test-je-showbizzkennis~a23d252d/)
-  > Deze week maakte Jake Paul zich druk om de geruchten die rondgingen over een vermeende relatiebreuk tussen hem en Jutta Leerdam en werd Shiloh Jolie,...
-- [Kreeftje als symbool voor traag bestuur](https://www.ad.nl/politiek/kreeftje-als-symbool-voor-traag-bestuur~a8de87e8/)
-  > Wie wil weten waarom alles in Nederland lang duurt, moet kijken naar de Amerikaanse rivierkreeft. De beesten zijn al jaren een plaag, maar de aanpak?...
-- [Zuid-Frankrijk gealarmeerd door oprukken elektrische mieren: ‘Ze eten zelfs vogels’](https://www.ad.nl/buitenland/zuid-frankrijk-gealarmeerd-door-oprukken-elektrische-mieren-ze-eten-zelfs-vogels~af7415fe/)
-  > Voor iedereen die plannen heeft om de komende maanden naar het zuiden van Frankrijk af te zakken: pas goed op waar je je (blote) voeten neerzet. Er...
-- [Eerste gesprekken tussen VS en Iran beëindigd: nog 'ernstig meningsverschil' over de Straat van Hormuz](https://www.ad.nl/buitenland/eerste-gesprekken-tussen-vs-en-iran-beeindigd-nog-ernstig-meningsverschil-over-de-straat-van-hormuz~ac528ac3/)
-  > De eerste rechtstreekse gesprekken tussen de Amerikaanse en Iraanse delegaties in Pakistan zijn beëindigd, schrijft het Iraanse persbureau Tasnim....
+- [Jade Kops deelt update over ziekte: ‘Mijn tumor groeit hard’](https://www.ad.nl/show/jade-kops-deelt-update-over-ziekte-mijn-tumor-groeit-hard~a0ae80c0/)
+  > Jade Kops heeft een nieuwe update gedeeld over haar gezondheid. In een bericht op Instagram laat ze weten dat haar tumor hard groeit en zich verder...
+- [Duel Groningen vertraagd om verkeerd tenue Etienne Vaessen, materiaalman haalt shirt uit fanshop](https://www.ad.nl/voetbal/duel-groningen-vertraagd-om-verkeerd-tenue-etienne-vaessen-materiaalman-haalt-shirt-uit-fanshop~a32ca0b8/)
+  > FC Groningen is tegen Go Ahead Eagles niet verder gekomen dan een 0-0-gelijkspel. Doelman Etienne Vaessen zorgde voor een zeldzaam hoogtepunt: door...
 
 ### Meest gelezen
 
