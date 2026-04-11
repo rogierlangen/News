@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-04-2026 om 09:46*
+*Laatst bijgewerkt: 11-04-2026 om 10:39*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Cipiers aangevallen op straat in Brussel, mogelijk herkend door ex-gevangene](https://nos.nl/l/2609998)
+  > In België zijn afgelopen week twee gevangenismedewerkers aangevallen op een station in Brussel. Dat meldt de Vlaamse omroep VRT. De mannen zijn door...
+- [Officiële aftrap songfestivalseizoen: 'Kijkcijfers zullen drastisch lager zijn'](https://nos.nl/l/2609995)
+  > Over ruim een maand schitteren Nederland, Spanje, Slovenië, IJsland en Ierland op het Eurovisie Songfestival in Wenen door afwezigheid. Desondanks is...
 - [Automobilist zonder rijbewijs scheurt met 160 km/u langs werkzaamheden](https://nos.nl/l/2609989)
   > De politie heeft van de week een automobilist betrapt die met ruim 160 kilometer per uur langs werkzaamheden op de snelweg A4 bij Den Haag scheurde....
 - [Estland koopt nog eens drie Himars-raketsystemen: 'Zorgt voor meer afschrikking'](https://nos.nl/l/2609988)
   > Estland gaat nog eens drie Amerikaanse Himars-raketsystemen aanschaffen om de eigen defensie verder te versterken. De geavanceerde raketsystemen...
 - [Oliebranden en geannuleerde vluchten dwingen Poetin tot paasbestand](https://nos.nl/l/2609987)
   > President Poetin stemde afgelopen donderdag toch in met een paasbestand, terwijl hij daar lange tijd niks van wilde weten. De Oekraïense president...
-- [Arme Hongaarse kiezers worden betaald om Fidesz te stemmen](https://nos.nl/l/2609979)
-  > Of mensen hier geld krijgen voor hun stem? Nee, op de rommelmarkt van Tiszabura op het Hongaarse platteland houden de verkopers vol dat dit echt niet...
-- [Noodtoestand en duizenden evacuaties in Nieuw-Zeeland om naderende orkaan](https://nos.nl/l/2609976)
-  > In Nieuw-Zeeland zetten bewoners van het Noordereiland zich schrap voor de komst van orkaan Vaianu. Inwoners moeten zich opmaken voor windsnelheden...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Historisch: vier astronauten keren terug na rondje om de maan](https://www.ad.nl/buitenland/historisch-vier-astronauten-keren-terug-na-rondje-om-de-maan~a9b06e9d/)
+- [Boksicoon Tyson Fury (37) ging al vijf keer met pensioen en keert nu (met egelsoep) wéér terug](https://www.ad.nl/vechtsport/boksicoon-tyson-fury-37-ging-al-vijf-keer-met-pensioen-en-keert-nu-met-egelsoep-weer-terug~a384d88f/)
+  > Honden uitlaten en kinderen naar school brengen? Niets voor Tyson Fury (37). En dus maakt het Britse boksfenomeen vanavond voor de zoveelste keer...
+- [‘Khamenei ernstig verminkt’: hoogste leider Iran herstelt van verwondingen aan gezicht en benen](https://www.ad.nl/buitenland/khamenei-ernstig-verminkt-hoogste-leider-iran-herstelt-van-verwondingen-aan-gezicht-en-benen~a4067dcc/)
+  > De hoogste leider van Iran, ayatollah Mojtaba Khamenei, herstelt nog steeds van ernstige verwondingen aan zijn gezicht en benen. Die liep hij op bij...
+- [Tuinexpert Romke snapt er soms óók niks van: ‘Bloembollen laten zich niet dwingen’](https://www.ad.nl/wonen/tuinexpert-romke-snapt-er-soms-ook-niks-van-bloembollen-laten-zich-niet-dwingen~a1ebbf21/)
+  > Bloembollen mogen van tuinexpert Romke van de Kaa naar hartenlust verwilderen, maar welke soort dat wel of niet doet, is soms een groot mysterie.
+- [Vader van Jade Kops spreekt openhartig over ziekte en situatie van dochter: ‘Het is soms echt een rollercoaster’](https://www.ad.nl/show/vader-van-jade-kops-spreekt-openhartig-over-ziekte-en-situatie-van-dochter-het-is-soms-echt-een-rollercoaster~a857f856/)
+  > René Kops, de vader van de 19-jarige Jade Kops, heeft vrijdagavond openhartig gesproken over de ziekte van zijn dochter bij het NPO 1-programma...
+- [Astronauten zagen delen van de maan die nog nooit in het echt zijn gezien: zo verliep de Artemis-missie](https://www.ad.nl/buitenland/astronauten-zagen-delen-van-de-maan-die-nog-nooit-in-het-echt-zijn-gezien-zo-verliep-de-artemis-missie~a9b06e9d/)
   > De astronauten van de Artemis II-missie zijn weer thuis. Zoals verwacht, zijn ze in de nacht van vrijdag op zaterdag voor de kust van San Diego in de...
-- [Arno Arts ziet in NEC het Willem II van 1999: ‘Dick Schreuder denkt zelfs nóg extremer dan Co Adriaanse bij ons’](https://www.ad.nl/voetbal/arno-arts-ziet-in-nec-het-willem-ii-van-1999-dick-schreuder-denkt-zelfs-nog-extremer-dan-co-adriaanse-bij-ons~a066ac47/)
-  > NEC jaagt op Champions League-voetbal met superaanvallend spel onder een eigenwijze trainer. Dick Schreuder is in Nijmegen zoals Co Adriaanse ooit...
-- [Paris Jackson ontbreekt bij wereldpremière van film over vader Michael](https://www.ad.nl/show/paris-jackson-ontbreekt-bij-wereldpremiere-van-film-over-vader-michael~af5bb5f3/)
-  > Paris Jackson was vrijdagavond niet aanwezig bij de wereldpremière van de film Michael, over het leven van haar vader Michael Jackson. TMZ deelde...
-- [Chirurg Thomas (53) draait diensten van 16 uur: ‘Kan het niet meer aan mezelf verantwoorden’](https://www.ad.nl/economie/chirurg-thomas-53-draait-diensten-van-16-uur-kan-het-niet-meer-aan-mezelf-verantwoorden~ac7288f5/)
-  > De 53-jarige chirurg Thomas wil niet met een slaperig hoofd in de operatiekamer staan, maar de uren die hij maakt zijn soms onverantwoord. „Gelukkig...
-- [Mauro Pawlowski (54), gitarist van Belgische band dEUS, heeft alzheimer: ‘Wat moet ik zeggen?’](https://www.ad.nl/show/mauro-pawlowski-54-gitarist-van-belgische-band-deus-heeft-alzheimer-wat-moet-ik-zeggen~a17e0066/)
-  > Mauro Pawlowski (54), de gitarist van de Vlaamse band dEUS, heeft de ziekte van Alzheimer. Dat vertelt hij in gesprek met de lokale krant De Morgen....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Medeoprichter oliereus Vitol overleden](https://fd.nl/bedrijfsleven/1592786/medeoprichter-oliereus-vitol-overleden)
+  > Samen met Henk Viëtor richtte Detiger de oliegigant in 1966 op. De naam is een samentrekking van Viëtor en oil.
 - [NAM gaat weer gas winnen bij Groningse Warffum](https://fd.nl/economie/1592680/nam-gaat-weer-gas-winnen-bij-groningse-warffum)
   > De gasvelden bij het Warffumerveld zijn sinds januari 2025 buiten gebruik door een verlopen pompvergunning, waarna de putten zich vulden met zand en...
 - [Tesla krijgt Nederlandse goedkeuring voor zelfrijdende functie](https://fd.nl/bedrijfsleven/1592785/tesla-krijgt-nederlandse-goedkeuring-voor-zelfrijdende-functie)
-  > Het is de eerste keer dat de Amerikaanse autofabrikant in Europa goedkeuring krijgt voor het rijhulpsysteem - waarbij de chauffeur nog steeds...
+  > Het is de eerste keer dat het bedrijf in Europa goedkeuring krijgt voor het rijhulpsysteem. Het zal vanaf nu gefaseerd beschikbaar komen, tegen €99...
 - [Amerikaanse delegatie arriveert in Pakistan voor vredesonderhandelingen](https://fd.nl/politiek/1592784/amerikaanse-delegatie-arriveert-in-pakistan-voor-vredesonderhandelingen)
   > De eisenpakketten van de landen liggen, voor zover bekend, nog ver uit elkaar. Teheran wil onder meer controle over de Straat van Hormuz en...
 - [‘Europese leiders moeten compensatie eisen voor Trumps illegale oorlog in Iran’](https://fd.nl/opinie/1592652/europese-leiders-moeten-compensatie-eisen-voor-trumps-illegale-oorlog-in-iran-en-andere-lezersreacties)
   > FD-lezers reageren veelvuldig op het zich ontwikkelende nieuws over de Verenigde Staten, Iran en Trump. Daarnaast is er discussie over de ‘nieuwe...
-- [Liz Truss-trauma spookt nog rond, en wat moeten we met Tata?](https://fd.nl/economie/1592574/liz-truss-trauma-spookt-nog-rond-en-wat-moeten-we-met-tata)
-  > In deze Toegevoegde Waarde vieren Anna Dijkman en Marijn Jongsma de eerste verjaardag van de podcast. Ze blikken terug op twee Liz Truss-momenten en...
 
 ### Meest gelezen
 
