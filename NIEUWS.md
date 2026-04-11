@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-04-2026 om 18:52*
+*Laatst bijgewerkt: 11-04-2026 om 19:37*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Gaza, Kyiv, Hongkong: dit zijn de nominaties voor World Press Photo 2026](https://nos.nl/l/2610060)
+  > In zeven wolkenkrabbers in Hongkong woedde eind vorig jaar brand waarbij 168 mensen om het leven kwamen. Een beeld dat fotograaf Tyrone Siu daarvan...
 - [Oekraïne en Rusland beschuldigen elkaar van schenden paasbestand](https://nos.nl/l/2610049)
   > Hoewel er sinds vanmiddag een gevechtspauze geldt in Oekraïne zijn er toch beschietingen gemeld. Rusland en Oekraïne beschuldigen elkaar ervan het...
 - [Historische ontmoeting tussen VS en Iran bij onderhandelingen in Pakistan](https://nos.nl/l/2610042)
@@ -16,8 +18,6 @@
   > De Franse politie heeft deze week een 9-jarige jongen bevrijd die sinds 2024 zat opgesloten in een bestelbusje. De jongen werd naakt en in...
 - [Opnieuw liep het verkeer compleet vast door werkzaamheden op de A2](https://nos.nl/l/2610027)
   > Voor het tweede weekend achtereen is het verkeer vastgelopen door de afsluiting van de snelweg A2 bij Vianen. Op de A2 zelf en op de officiële...
-- [Buschauffeur Rotterdam mishandeld in volle lijnbus](https://nos.nl/l/2610024)
-  > Een buschauffeur in Rotterdam is gistermiddag mishandeld in een volle lijnbus. Hij werd meermalen geslagen en raakte gewond. Een passagier filmde de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Midden-Oosten |  Eerste gesprekken tussen VS en Iran beëindigd: nog 'ernstig meningsverschil' over de Straat van Hormuz](https://www.ad.nl/buitenland/live-midden-oosten-eerste-gesprekken-tussen-vs-en-iran-beeindigd-nog-ernstig-meningsverschil-over-de-straat-van-hormuz~ac528ac3/)
+- [Berghuis verdubbelt binnen twee minuten voorsprong van Ajax op hekkensluiter Heracles](https://www.ad.nl/voetbal/berghuis-verdubbelt-binnen-twee-minuten-voorsprong-van-ajax-op-hekkensluiter-heracles~a246c7ee/)
+  > Ajax beleeft een zeer moeizaam seizoen. Het is nog maar zeer de vraag of de ploeg van trainer Óscar García zich gaat plaatsen voor de Champions...
+- [Van geruchten over Jutta tot de danskunsten van Shiloh Jolie: test je showbizzkennis](https://www.ad.nl/quiz/van-geruchten-over-jutta-tot-de-danskunsten-van-shiloh-jolie-test-je-showbizzkennis~a23d252d/)
+  > Deze week maakte Jake Paul zich druk om de geruchten die rondgingen over een vermeende relatiebreuk tussen hem en Jutta Leerdam en werd Shiloh Jolie,...
+- [Kreeftje als symbool voor traag bestuur](https://www.ad.nl/politiek/kreeftje-als-symbool-voor-traag-bestuur~a8de87e8/)
+  > Wie wil weten waarom alles in Nederland lang duurt, moet kijken naar de Amerikaanse rivierkreeft. De beesten zijn al jaren een plaag, maar de aanpak?...
+- [Zuid-Frankrijk gealarmeerd door oprukken elektrische mieren: ‘Ze eten zelfs vogels’](https://www.ad.nl/buitenland/zuid-frankrijk-gealarmeerd-door-oprukken-elektrische-mieren-ze-eten-zelfs-vogels~af7415fe/)
+  > Voor iedereen die plannen heeft om de komende maanden naar het zuiden van Frankrijk af te zakken: pas goed op waar je je (blote) voeten neerzet. Er...
+- [Eerste gesprekken tussen VS en Iran beëindigd: nog 'ernstig meningsverschil' over de Straat van Hormuz](https://www.ad.nl/buitenland/eerste-gesprekken-tussen-vs-en-iran-beeindigd-nog-ernstig-meningsverschil-over-de-straat-van-hormuz~ac528ac3/)
   > De eerste rechtstreekse gesprekken tussen de Amerikaanse en Iraanse delegaties in Pakistan zijn beëindigd, schrijft het Iraanse persbureau Tasnim....
-- [Geen champagnebenen bij PSV: Pepi en Saibari bezorgen landskampioen uitzege op Sparta](https://www.ad.nl/voetbal/geen-champagnebenen-bij-psv-pepi-en-saibari-bezorgen-landskampioen-uitzege-op-sparta~a8f72451/)
-  > PSV heeft na het binnenhalen van de landstitel in de VriendenLoterij eredivisie de teugels nog niet laten vieren. De kersvers landskampioen won op...
-- [Doe die smartwatch weg: je krijgt er slapeloze nachten van, zegt slaapexpert](https://www.ad.nl/binnenland/doe-die-smartwatch-weg-je-krijgt-er-slapeloze-nachten-van-zegt-slaapexpert~a4e2de10/)
-  > Van smartwatches die meten of we goed en diep slapen, gaan we eerder slechter slapen. Dat zegt Eus van Someren, de slaapprofessor van Nederland. Een...
-- [Demonstranten blokkeren raffinaderij met tractoren en trucks: brandstof raakt op in Ierland](https://www.ad.nl/buitenland/demonstranten-blokkeren-raffinaderij-met-tractoren-en-trucks-brandstof-raakt-op-in-ierland~afccbd27/)
-  > In Ierland zorgen grote protesten voor een acute brandstofcrisis. Volgens Kevin McPartlan, ceo van Fuels for Ireland, zitten door de blokkades...
-- [De Busser voorkomt openingstreffer FC Groningen in stroperig duel met Go Ahead Eagles](https://www.ad.nl/voetbal/de-busser-voorkomt-openingstreffer-fc-groningen-in-stroperig-duel-met-go-ahead-eagles~a32ca0b8/)
-  > FC Groningen heeft een zwakke periode, met zes opeenvolgende nederlagen, achter zich gelaten. De ploeg van trainer Dick Lukkien pakte tien punten in...
 
 ### Meest gelezen
 
