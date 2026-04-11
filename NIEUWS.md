@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-04-2026 om 20:39*
+*Laatst bijgewerkt: 11-04-2026 om 21:37*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Discuswerpster Jorinde van Klinken scherpt eigen Nederlands record aan](https://www.ad.nl/andere-sporten/discuswerpster-jorinde-van-klinken-scherpt-eigen-nederlands-record-aan~a532623a/)
+  > Jorinde van Klinken heeft bij internationale werpwedstrijden in het Amerikaanse Ramona (Oklahoma) haar Nederlands record bij het discuswerpen...
+- [Ajax houdt zicht op Champions League: rode kaart Tomiyasu enige smetje bij ruime zege op Heracles](https://www.ad.nl/voetbal/ajax-houdt-zicht-op-champions-league-rode-kaart-tomiyasu-enige-smetje-bij-ruime-zege-op-heracles~a246c7ee/)
+  > Ajax heeft zich in Almelo goed herpakt van de nederlaag tegen FC Twente. Daarvoor was hekkensluiter Heracles ook de ideale tegenstander: 0-3.
+- [Tweede gespreksronde tussen VS en Iran gestart: eerder ‘ernstig meningsverschil’ over de Straat van Hormuz](https://www.ad.nl/buitenland/tweede-gespreksronde-tussen-vs-en-iran-gestart-eerder-ernstig-meningsverschil-over-de-straat-van-hormuz~ac528ac3/)
+  > De Iraanse en Amerikaanse delegaties zijn in Islamabad begonnen aan een nieuwe gespreksronde, met Pakistaanse functionarissen als bemiddelaars. Dat...
 - [Dean James reageert op paspoortgate: ‘Heel gek, alsof het weer coronatijd was’](https://www.ad.nl/voetbal/dean-james-reageert-op-paspoortgate-heel-gek-alsof-het-weer-coronatijd-was~a3791623/)
   > Dean James heeft voor het eerst sinds paspoortgate weer minuten gemaakt. De speler van Go Ahead Eagles mocht twee weken niet voetballen of trainen....
 - [Politie schiet man dood in New York nadat hij drie mensen te lijf gaat met machete](https://www.ad.nl/buitenland/politie-schiet-man-dood-in-new-york-nadat-hij-drie-mensen-te-lijf-gaat-met-machete~a6ce5536/)
   > De politie in New York heeft een man doodgeschoten in een vertrekhal van Grand Central Station, nadat hij drie mensen met een machete had verwond....
-- [Ajax loopt verder uit tegen hekkensluiter Heracles, ex-Ajacied Pasveer weer niet op tijd](https://www.ad.nl/voetbal/ajax-loopt-verder-uit-tegen-hekkensluiter-heracles-ex-ajacied-pasveer-weer-niet-op-tijd~a246c7ee/)
-  > Ajax beleeft een zeer moeizaam seizoen. Het is nog maar zeer de vraag of de ploeg van trainer Óscar García zich gaat plaatsen voor de Champions...
-- [Jade Kops deelt update over ziekte: ‘Mijn tumor groeit hard’](https://www.ad.nl/show/jade-kops-deelt-update-over-ziekte-mijn-tumor-groeit-hard~a0ae80c0/)
-  > Jade Kops heeft een nieuwe update gedeeld over haar gezondheid. In een bericht op Instagram laat ze weten dat haar tumor hard groeit en zich verder...
-- [Duel Groningen vertraagd om verkeerd tenue Etienne Vaessen, materiaalman haalt shirt uit fanshop](https://www.ad.nl/voetbal/duel-groningen-vertraagd-om-verkeerd-tenue-etienne-vaessen-materiaalman-haalt-shirt-uit-fanshop~a32ca0b8/)
-  > FC Groningen is tegen Go Ahead Eagles niet verder gekomen dan een 0-0-gelijkspel. Doelman Etienne Vaessen zorgde voor een zeldzaam hoogtepunt: door...
 
 ### Meest gelezen
 
