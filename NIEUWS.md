@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-04-2026 om 21:37*
+*Laatst bijgewerkt: 11-04-2026 om 22:37*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Tyson Fury (37) bekroont comeback met zege en daagt landgenoot Anthony Joshua uit: ‘Nu jij, lafaard!’](https://www.ad.nl/vechtsport/tyson-fury-37-bekroont-comeback-met-zege-en-daagt-landgenoot-anthony-joshua-uit-nu-jij-lafaard~a16db683/)
+  > Na een pensioen van zestien maanden heeft Tyson Fury (37) zijn comeback bekroond met een soevereine zege op de 36-jarige Rus Arslanbek Makhmudov. „Ik...
+- [Minieme voorsprong Feyenoord, Ajax moet vrezen: dit zijn de verschillen in de strijd om cruciale plek 2](https://www.ad.nl/voetbal/minieme-voorsprong-feyenoord-ajax-moet-vrezen-dit-zijn-de-verschillen-in-de-strijd-om-cruciale-plek-2~a3da7ce4/)
+  > De strijd om de cruciale tweede plek is nog altijd razendspannend in de VriendenLoterij eredivisie. Vier clubs azen op deze positie, die recht geeft...
 - [Discuswerpster Jorinde van Klinken scherpt eigen Nederlands record aan](https://www.ad.nl/andere-sporten/discuswerpster-jorinde-van-klinken-scherpt-eigen-nederlands-record-aan~a532623a/)
   > Jorinde van Klinken heeft bij internationale werpwedstrijden in het Amerikaanse Ramona (Oklahoma) haar Nederlands record bij het discuswerpen...
 - [Ajax houdt zicht op Champions League: rode kaart Tomiyasu enige smetje bij ruime zege op Heracles](https://www.ad.nl/voetbal/ajax-houdt-zicht-op-champions-league-rode-kaart-tomiyasu-enige-smetje-bij-ruime-zege-op-heracles~a246c7ee/)
   > Ajax heeft zich in Almelo goed herpakt van de nederlaag tegen FC Twente. Daarvoor was hekkensluiter Heracles ook de ideale tegenstander: 0-3.
 - [Tweede gespreksronde tussen VS en Iran gestart: eerder ‘ernstig meningsverschil’ over de Straat van Hormuz](https://www.ad.nl/buitenland/tweede-gespreksronde-tussen-vs-en-iran-gestart-eerder-ernstig-meningsverschil-over-de-straat-van-hormuz~ac528ac3/)
   > De Iraanse en Amerikaanse delegaties zijn in Islamabad begonnen aan een nieuwe gespreksronde, met Pakistaanse functionarissen als bemiddelaars. Dat...
-- [Dean James reageert op paspoortgate: ‘Heel gek, alsof het weer coronatijd was’](https://www.ad.nl/voetbal/dean-james-reageert-op-paspoortgate-heel-gek-alsof-het-weer-coronatijd-was~a3791623/)
-  > Dean James heeft voor het eerst sinds paspoortgate weer minuten gemaakt. De speler van Go Ahead Eagles mocht twee weken niet voetballen of trainen....
-- [Politie schiet man dood in New York nadat hij drie mensen te lijf gaat met machete](https://www.ad.nl/buitenland/politie-schiet-man-dood-in-new-york-nadat-hij-drie-mensen-te-lijf-gaat-met-machete~a6ce5536/)
-  > De politie in New York heeft een man doodgeschoten in een vertrekhal van Grand Central Station, nadat hij drie mensen met een machete had verwond....
 
 ### Meest gelezen
 
