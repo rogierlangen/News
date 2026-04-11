@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-04-2026 om 16:41*
+*Laatst bijgewerkt: 11-04-2026 om 17:36*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Oekraïne en Rusland beschuldigen elkaar van schenden paasbestand](https://nos.nl/l/2610049)
+  > Hoewel er sinds vanmiddag een gevechtspauze geldt in Oekraïne zijn er toch beschietingen gemeld. Rusland en Oekraïne beschuldigen elkaar ervan het...
+- [Historische ontmoeting tussen VS en Iran bij onderhandelingen in Pakistan](https://nos.nl/l/2610042)
+  > In de Pakistaanse hoofdstad Islamabad is een historische ontmoeting gaande tussen de VS en Iran. Onder anderen de Amerikaanse vicepresident Vance is...
 - [Franse jongen (9) zat ruim een jaar opgesloten in bestelbusje, vader aangeklaagd](https://nos.nl/l/2610035)
   > De Franse politie heeft deze week een 9-jarige jongen bevrijd die sinds 2024 zat opgesloten in een bestelbusje. De jongen werd naakt en in...
 - [Opnieuw liep het verkeer compleet vast door werkzaamheden op de A2](https://nos.nl/l/2610027)
   > Voor het tweede weekend achtereen is het verkeer vastgelopen door de afsluiting van de snelweg A2 bij Vianen. Op de A2 zelf en op de officiële...
 - [Buschauffeur Rotterdam mishandeld in volle lijnbus](https://nos.nl/l/2610024)
   > Een buschauffeur in Rotterdam is gistermiddag mishandeld in een volle lijnbus. Hij werd meermalen geslagen en raakte gewond. Een passagier filmde de...
-- [Man in VK aangeklaagd voor dood van vier migranten bij bootongeluk](https://nos.nl/l/2610018)
-  > In het Verenigd Koninkrijk is een man aangeklaagd die ervan wordt verdacht betrokken te zijn bij de dood van vier migranten die deze week Het Kanaal...
-- [Verdachte kunstroof Drents Museum weigerde deal met justitie](https://nos.nl/l/2610005)
-  > Een van de verdachten die terechtstaan voor de kunstroof in het Drents Museum in Assen heeft geen deal gesloten met justitie. Dat bevestigt de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Er zijn te weinig leraren, maar Omar mag niet helpen: hier lopen vluchtelingen tegenaan op onze arbeidsmarkt](https://www.ad.nl/economie/er-zijn-te-weinig-leraren-maar-omar-mag-niet-helpen-hier-lopen-vluchtelingen-tegenaan-op-onze-arbeidsmarkt~a0134325/)
-  > Terwijl de Nederlandse arbeidsmarkt schreeuwt om personeel, blijft een groot reservoir aan talent onbenut. Duizenden asielzoekers staan te popelen...
-- [Liverpool op zoek naar broodnodige opsteker tegen Fulham, balt rolt op Anfield](https://www.ad.nl/voetbal/liverpool-op-zoek-naar-broodnodige-opsteker-tegen-fulham-balt-rolt-op-anfield~a2e9319d/)
-  > In de jacht op een ticket voor de Champions League neemt Liverpool het vandaag in de Premier League thuis op tegen Fulham. Pakt de ploeg van Arne...
-- [FC Utrecht geeft Telstar klop en Bunnikside scandeert: ‘Correia is van ons. Olé, olé’](https://www.ad.nl/voetbal/fc-utrecht-geeft-telstar-klop-en-bunnikside-scandeert-correia-is-van-ons-ole-ole~ad7f1d27/)
-  > FC Utrecht heeft in de strijd om een plaats in de play-offs van de eredivisie goede zaken gedaan. Degradatiekandidaat Telstar werd met 4-1 verslagen.
-- [Karate-ouders, 8000 hoogtemeters en maandenlang z’n vriendin niet zien: wie is Paul Seixas?](https://www.ad.nl/wielrennen/karate-ouders-8000-hoogtemeters-en-maandenlang-zn-vriendin-niet-zien-wie-is-paul-seixas~a881307a/)
-  > De 19-jarige Paul Seixas maakt momenteel diepe indruk in de wielerwereld. Zijn prestaties, maar óók zijn trainingsarbeid, zijn de laatste maanden...
-- [Mats Wieffer schiet Brighton langs Burnley, Arsenal blaast titelrace nieuw leven in na misstap](https://www.ad.nl/voetbal/mats-wieffer-schiet-brighton-langs-burnley-arsenal-blaast-titelrace-nieuw-leven-in-na-misstap~ad54f7a2/)
-  > Mats Wieffer heeft Brighton & Hove Albion met twee doelpunten aan een 2-0-overwinning bij Burnley geholpen. De oud-Feyenoorder was mede dankzij twee...
+- [Meteen raak voor Rocco Coronel: ‘de zoon van’ wint eerste twee races in Spaans Formule 4-kampioenschap](https://www.ad.nl/formule-1/meteen-raak-voor-rocco-coronel-de-zoon-van-wint-eerste-twee-races-in-spaans-formule-4-kampioenschap~ad6a26e1/)
+  > Rocco Coronel is goed begonnen aan het eerste weekend van het Spaanse Formule 4-kampioenschap in Valencia. Het 15-jarige racetalent, zoon van...
+- [Eurovisie Songfestival verscherpt regels na brand in Crans-Montana](https://www.ad.nl/show/eurovisie-songfestival-verscherpt-regels-na-brand-in-crans-montana~a4b870d4/)
+  > Het publiek bij het Eurovisie Songfestival van dit jaar in Wenen mag alleen met vlaggen en wimpels zwaaien waarvan kan worden aangetoond dat ze...
+- [Ik denk aan ons hechte team dat toch de moed erin hield op het zinkende schip](https://www.ad.nl/mezza/ik-denk-aan-ons-hechte-team-dat-toch-de-moed-erin-hield-op-het-zinkende-schip~a51f881a/)
+  > De stekker gaat uit de talkshow op de late avond. Lees hier in zijn column uit ons weekendmagazine Mezza hoe Beau dit nieuws ontving.
+- [FC Groningen ontvangt Go Ahead, thuisploeg op zoek naar derde overwinning op rij](https://www.ad.nl/voetbal/fc-groningen-ontvangt-go-ahead-thuisploeg-op-zoek-naar-derde-overwinning-op-rij~a32ca0b8/)
+  > FC Groningen heeft een zwakke periode, met zes opeenvolgende nederlagen, achter zich gelaten. De ploeg van trainer Dick Lukkien pakte tien punten in...
+- [Lufthansa wordt opnieuw getroffen door staking: piloten leggen maandag en dinsdag het werk neer](https://www.ad.nl/buitenland/lufthansa-wordt-opnieuw-getroffen-door-staking-piloten-leggen-maandag-en-dinsdag-het-werk-neer~a60775dc/)
+  > Piloten van luchtvaartmaatschappij Lufthansa gaan maandag en dinsdag weer staken, heeft vakbond Cockpit aangekondigd. De piloten staken voor een...
 
 ### Meest gelezen
 
