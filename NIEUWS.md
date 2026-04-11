@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-04-2026 om 06:07*
+*Laatst bijgewerkt: 11-04-2026 om 07:52*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Arme Hongaarse kiezers worden betaald om Fidesz te stemmen](https://nos.nl/l/2609979)
+  > Of mensen hier geld krijgen voor hun stem? Nee, op de rommelmarkt van Tiszabura op het Hongaarse platteland houden de verkopers vol dat dit echt niet...
 - [Noodtoestand en duizenden evacuaties in Nieuw-Zeeland om naderende orkaan](https://nos.nl/l/2609976)
   > In Nieuw-Zeeland zetten bewoners van het Noordereiland zich schrap voor de komst van orkaan Vaianu. Inwoners moeten zich opmaken voor windsnelheden...
 - [Wekdienst 11/4: VS en Iran onderhandelen in Pakistan over vrede • Begin songfestivalseizoen](https://nos.nl/l/2609972)
@@ -16,8 +18,6 @@
   > Het kabinetsplan om te besparen op de bijstand krijgt veel kritiek van economen en andere onderzoekers. Volgens hen wordt het daarmee voor de...
 - [Podcast De Dag: de (on)breekbare macht van Viktor Orbán](https://nos.nl/l/2609969)
   > In Hongarije lijkt voor het eerst in 16 jaar de positie van minister-president Viktor Orbán te wankelen. Zijn uitdager Péter Magyar staat in de...
-- [ME grijpt in bij kampioensfeest ADO Den Haag](https://nos.nl/l/2609967)
-  > De mobiele eenheid heeft ingegrepen bij een kampioensfeest van ADO Den Haag. Toen de feestvierende mensenmassa zich wilde verplaatsen naar het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Midden-Oosten | Delegaties VS en Iran in Pakistan geland voor vredesgesprekken, doden bij Israëlische aanval op politiepost Gaza](https://www.ad.nl/buitenland/live-midden-oosten-delegaties-vs-en-iran-in-pakistan-geland-voor-vredesgesprekken-doden-bij-israelische-aanval-op-politiepost-gaza~ac528ac3/)
-  > De delegaties van Iran en de Verenigde Staten zijn aangekomen in Pakistan voor onderhandelingen over een duurzaam bestand. Zaterdag zullen de eerste...
-- [Waarom koning Willem-Alexander zich weinig aantrekt van Trump](https://www.ad.nl/binnenland/waarom-koning-willem-alexander-zich-weinig-aantrekt-van-trump~a1a9afc6/)
-  > Moet de koning wel op bezoek bij zo’n omstreden Amerikaanse president die ook nog een oorlog start in het Midden-Oosten? Die vraag klonk de afgelopen...
-- [Tijden GP van Miami | Max Verstappen over 3 weken pas weer in actie tijdens sprintraceweekend in Amerika](https://www.ad.nl/formule-1/tijden-gp-van-miami-max-verstappen-over-3-weken-pas-weer-in-actie-tijdens-sprintraceweekend-in-amerika~ae174dcc/)
-  > Door de geschrapte races in Bahrein en Saoedi-Arabie duurt het een maand voordat de Formule 1 weer in actie komt. Max Verstappen en zijn collega’s...
-- [Donyell Malen blinkt uit met hattrick bij AS Roma en oogst volop lof: ‘Hij lijkt wel de Braziliaanse Ronaldo’](https://www.ad.nl/voetbal/donyell-malen-blinkt-uit-met-hattrick-bij-as-roma-en-oogst-volop-lof-hij-lijkt-wel-de-braziliaanse-ronaldo~a317294c/)
-  > Donyell Malen blijft zijn doelpunten maar maken in Italië. De 27-jarige Oranje-international scoorde vrijdagavond tegen hekkensluiter Pisa drie keer...
-- [Nederland geeft als eerste in Europa toestemming: zelfrijdende Tesla mag vanaf vandaag weg op](https://www.ad.nl/auto/nederland-geeft-als-eerste-in-europa-toestemming-zelfrijdende-tesla-mag-vanaf-vandaag-weg-op~ae8ad5b4/)
-  > De zelfrijdende auto's van Tesla hebben toestemming gekregen van de RDW om in Nederland de openbare weg op te gaan. Tesla-rijders mogen voortaan de...
+- [Burgemeester grijpt in: horrorverpleeghuis per direct gesloten, alle patiënten overgeplaatst](https://www.ad.nl/binnenland/burgemeester-grijpt-in-horrorverpleeghuis-per-direct-gesloten-alle-patienten-overgeplaatst~a5740ff3/)
+  > Burgemeester Carol van Eert van de gemeente Rheden heeft vrijdag per direct het veelbesproken verpleeghuis Huize Rhederpark in De Steeg gesloten. Hij...
+- [Heerlijk zonnig, maar terrasgangers wees gewaarschuwd: het blijft vandaag niet droog](https://www.ad.nl/binnenland/heerlijk-zonnig-maar-terrasgangers-wees-gewaarschuwd-het-blijft-vandaag-niet-droog~a4fb257b/)
+  > Na een droge start slaat het weer later op deze zaterdag om. In de ochtend laat de zon zich, vooral in het oosten en noordoosten, af en toe zien....
+- [Bo (26) droomt van een treinrit naar haar moeder, maar zonder Nuki zit ze opgesloten in huis](https://www.ad.nl/binnenland/bo-26-droomt-van-een-treinrit-naar-haar-moeder-maar-zonder-nuki-zit-ze-opgesloten-in-huis~a858f354/)
+  > Ze zou dolgraag zelf eens naar het Kruidvat of de markt gaan. Of gewoon eens op bezoek bij een vriendin. Maar zonder hulphond durft Bo van Hemert...
+- [Thaise student speelt Masters en maakt tongen los met opmerkelijke naam: Fifa, dankzij zijn voetbalgekke vader](https://www.ad.nl/andere-sporten/thaise-student-speelt-masters-en-maakt-tongen-los-met-opmerkelijke-naam-fifa-dankzij-zijn-voetbalgekke-vader~ab02b7df/)
+  > Amateurgolfer Fifa Loapakdee trok de afgelopen dagen op de prestigieuze Masters niet direct de aandacht met zijn prestaties, maar wel op een andere...
+- [‘Levensbedreigende’ cycloon nadert Nieuw-Zeeland: windsnelheden tot 140 kilometer per uur verwacht](https://www.ad.nl/buitenland/levensbedreigende-cycloon-nadert-nieuw-zeeland-windsnelheden-tot-140-kilometer-per-uur-verwacht~af922411/)
+  > In meerdere regio’s in Nieuw-Zeeland is de noodtoestand afgekondigd vanwege een naderende cycloon. De autoriteiten waarschuwen voor ‘mogelijk...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Amerikaanse delegatie arriveert in Pakistan voor vredesonderhandelingen](https://fd.nl/politiek/1592784/amerikaanse-delegatie-arriveert-in-pakistan-voor-vredesonderhandelingen)
+  > De eisenpakketten van de landen liggen, voor zover bekend, nog ver uit elkaar. Teheran wil onder meer controle over de Straat van Hormuz en...
 - [‘Europese leiders moeten compensatie eisen voor Trumps illegale oorlog in Iran’](https://fd.nl/opinie/1592652/europese-leiders-moeten-compensatie-eisen-voor-trumps-illegale-oorlog-in-iran-en-andere-lezersreacties)
   > FD-lezers reageren veelvuldig op het zich ontwikkelende nieuws over de Verenigde Staten, Iran en Trump. Daarnaast is er discussie over de ‘nieuwe...
 - [Liz Truss-trauma spookt nog rond, en wat moeten we met Tata?](https://fd.nl/economie/1592574/liz-truss-trauma-spookt-nog-rond-en-wat-moeten-we-met-tata)
@@ -54,8 +56,6 @@
   > Terwijl een bestand met Iran voorzichtig standhoudt, intensiveert Israël de oorlog op andere fronten. Volgens experts is dat geen toeval, maar zit er...
 - [Hoe een Nederlandse ceo met EZ de strijd aanbond met zijn Chinese bazen](https://fd.nl/bedrijfsleven/1591416/hoe-een-nederlandse-ceo-samen-met-ez-de-strijd-aanbond-met-zijn-chinese-bazen)
   > Politieke zorgen over het weglekken van kennis bij een Nijmeegs chipbedrijf in Chinese handen. Het verhaal van Ampleon lijkt op dat van Nexperia, al...
-- [Kamelen, Frank Drebin, Donnie én de as van het kwaad](https://fd.nl/opinie/1592647/donnie-en-de-as-van-het-kwaad)
-  > Op het moment van schrijven bestaat de Iraanse beschaving nog steeds – er kwam dus niks van Trumps belofte om het land volledig te bombarderen. Een...
 
 ### Meest gelezen
 
