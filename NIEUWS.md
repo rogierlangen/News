@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-04-2026 om 08:51*
+*Laatst bijgewerkt: 11-04-2026 om 09:46*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Automobilist zonder rijbewijs scheurt met 160 km/u langs werkzaamheden](https://nos.nl/l/2609989)
+  > De politie heeft van de week een automobilist betrapt die met ruim 160 kilometer per uur langs werkzaamheden op de snelweg A4 bij Den Haag scheurde....
 - [Estland koopt nog eens drie Himars-raketsystemen: 'Zorgt voor meer afschrikking'](https://nos.nl/l/2609988)
   > Estland gaat nog eens drie Amerikaanse Himars-raketsystemen aanschaffen om de eigen defensie verder te versterken. De geavanceerde raketsystemen...
 - [Oliebranden en geannuleerde vluchten dwingen Poetin tot paasbestand](https://nos.nl/l/2609987)
@@ -16,8 +18,6 @@
   > Of mensen hier geld krijgen voor hun stem? Nee, op de rommelmarkt van Tiszabura op het Hongaarse platteland houden de verkopers vol dat dit echt niet...
 - [Noodtoestand en duizenden evacuaties in Nieuw-Zeeland om naderende orkaan](https://nos.nl/l/2609976)
   > In Nieuw-Zeeland zetten bewoners van het Noordereiland zich schrap voor de komst van orkaan Vaianu. Inwoners moeten zich opmaken voor windsnelheden...
-- [Wekdienst 11/4: VS en Iran onderhandelen in Pakistan over vrede • Begin songfestivalseizoen](https://nos.nl/l/2609972)
-  > Goedemorgen! In Islamabad onderhandelen delegaties van de VS en Iran over het einde van de oorlog. En het songfestivalseizoen trapt af met een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Historisch: vier astronauten keren terug na rondje om de maan](https://www.ad.nl/buitenland/historisch-vier-astronauten-keren-terug-na-rondje-om-de-maan~a9b06e9d/)
+  > De astronauten van de Artemis II-missie zijn weer thuis. Zoals verwacht, zijn ze in de nacht van vrijdag op zaterdag voor de kust van San Diego in de...
+- [Arno Arts ziet in NEC het Willem II van 1999: ‘Dick Schreuder denkt zelfs nóg extremer dan Co Adriaanse bij ons’](https://www.ad.nl/voetbal/arno-arts-ziet-in-nec-het-willem-ii-van-1999-dick-schreuder-denkt-zelfs-nog-extremer-dan-co-adriaanse-bij-ons~a066ac47/)
+  > NEC jaagt op Champions League-voetbal met superaanvallend spel onder een eigenwijze trainer. Dick Schreuder is in Nijmegen zoals Co Adriaanse ooit...
+- [Paris Jackson ontbreekt bij wereldpremière van film over vader Michael](https://www.ad.nl/show/paris-jackson-ontbreekt-bij-wereldpremiere-van-film-over-vader-michael~af5bb5f3/)
+  > Paris Jackson was vrijdagavond niet aanwezig bij de wereldpremière van de film Michael, over het leven van haar vader Michael Jackson. TMZ deelde...
+- [Chirurg Thomas (53) draait diensten van 16 uur: ‘Kan het niet meer aan mezelf verantwoorden’](https://www.ad.nl/economie/chirurg-thomas-53-draait-diensten-van-16-uur-kan-het-niet-meer-aan-mezelf-verantwoorden~ac7288f5/)
+  > De 53-jarige chirurg Thomas wil niet met een slaperig hoofd in de operatiekamer staan, maar de uren die hij maakt zijn soms onverantwoord. „Gelukkig...
 - [Mauro Pawlowski (54), gitarist van Belgische band dEUS, heeft alzheimer: ‘Wat moet ik zeggen?’](https://www.ad.nl/show/mauro-pawlowski-54-gitarist-van-belgische-band-deus-heeft-alzheimer-wat-moet-ik-zeggen~a17e0066/)
   > Mauro Pawlowski (54), de gitarist van de Vlaamse band dEUS, heeft de ziekte van Alzheimer. Dat vertelt hij in gesprek met de lokale krant De Morgen....
-- [Tweelingbroers Mick en Tim (26) jagen hun droom na in ‘Hel van het Noorden’: ‘Beetje olie op het vuur, daar leven we voor’](https://www.ad.nl/wielrennen/tweelingbroers-mick-en-tim-26-jagen-hun-droom-na-in-hel-van-het-noorden-beetje-olie-op-het-vuur-daar-leven-we-voor~aef4e28e/)
-  > De tweeling Mick en Tim van Dijke (26) is bezig aan een geweldig wielerjaar. Zondag volgt met Parijs-Roubaix hun lievelingskoers, die meer is dan een...
-- [Nederlander opgepakt in Spanje: voor 130 miljoen euro aan coke gevonden, grootste vangst ooit](https://www.ad.nl/buitenland/nederlander-opgepakt-in-spanje-voor-130-miljoen-euro-aan-coke-gevonden-grootste-vangst-ooit~a6acded0/)
-  > De Spaanse politie heeft een Nederlander en negen anderen opgepakt bij een enorme cocaïnevangst in Huelva. Het gaat om de grootste vangst ooit in de...
-- [Deze koffiemachine is goedkoop, maar let op de prijs van de cupjes](https://www.ad.nl/wonen/deze-koffiemachine-is-goedkoop-maar-let-op-de-prijs-van-de-cupjes~aea2b211/)
-  > Vergeet dure baristakoffie en ingewikkelde instellingen: een perfecte espresso kun je ook in je eigen keuken bereiden met een koffiecupmachine. Het...
-- [Hoe PSV dankzij falende concurrentie op jacht kan naar het volgende record](https://www.ad.nl/voetbal/hoe-psv-dankzij-falende-concurrentie-op-jacht-kan-naar-het-volgende-record~a3769038/)
-  > Dankzij de zege op FC Utrecht kroonde PSV zich afgelopen zondag (5 april) tot vroegste landskampioen ooit in Nederland. Het eigen record uit 1978,...
 
 ### Meest gelezen
 
