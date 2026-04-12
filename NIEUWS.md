@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-04-2026 om 07:24*
+*Laatst bijgewerkt: 12-04-2026 om 08:55*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Feyenoord gaat strompelend en vol zorgen naar kraker in Nijmegen](https://www.ad.nl/voetbal/feyenoord-gaat-strompelend-en-vol-zorgen-naar-kraker-in-nijmegen~a959ae33/)
-  > Robin van Persie durfde de lijst met afwezigen niet eens meer op te noemen. „Dat wordt anders een meme”, zei de trainer van Feyenoord. Ook tegen...
-- [Met slagersmes een kokosnoot kraken: dit Nederlandse gezin verkocht álles en leeft nu al vier jaar op zee](https://www.ad.nl/binnenland/met-slagersmes-een-kokosnoot-kraken-dit-nederlandse-gezin-verkocht-alles-en-leeft-nu-al-vier-jaar-op-zee~a170da7e/)
-  > Vrijheid, kristalhelder water en een kokosnoot plukken als je trek hebt. Ilke (46), Martin (47) en hun kinderen Aniek (13), Fedde (15), Hidde (10) en...
-- [Eerste lopers maken zich klaar, volg de hele dag alles van de Rotterdamse marathon](https://www.ad.nl/rotterdam/eerste-lopers-maken-zich-klaar-volg-de-hele-dag-alles-van-de-rotterdamse-marathon~a45c4d96/)
-  > Voor 18.000 lopers is de grote dag aangebroken: van het You’ll Never Walk Alone bij de start tot de finish op de volgepakte Coolsingel, 42,195...
-- [De unieke missie van Tadej Pogacar in Parijs-Roubaix : ‘Hij is ertoe in staat en dan hoop ik dat hij met pensioen gaat’](https://www.ad.nl/wielrennen/de-unieke-missie-van-tadej-pogacar-in-parijs-roubaix-hij-is-ertoe-in-staat-en-dan-hoop-ik-dat-hij-met-pensioen-gaat~aea74b9c/)
-  > Tadej Pogacar kan zich vandaag in Parijs-Roubaix in een bijzonder rijtje fietsen. De Hel van het Noorden is het enige monument dat hij nog nooit...
-- [Stembureaus in Hongarije geopend, toekomst van Orbán staat op het spel](https://www.ad.nl/buitenland/stembureaus-in-hongarije-geopend-toekomst-van-orban-staat-op-het-spel~a54bff0a/)
-  > De Hongaren trekken zondag massaal richting de stembus. Heel Europa kijkt mee want de parlementsverkiezingen worden als cruciaal gezien voor de...
+- [Mannen bijna onderweg in Hel van het Noorden, geen regen bij de start](https://www.ad.nl/wielrennen/mannen-bijna-onderweg-in-hel-van-het-noorden-geen-regen-bij-de-start~a575858d/)
+  > In Noord-Frankrijk wordt vandaag het iconische monument Parijs-Roubaix verreden. De mannen starten om 11.10 uur en finishen rond 16.45 uur. De...
+- [Mika Godts, lichtschacht in duisternis van Ajax: ‘Ik wil nog een prijs pakken met deze club’](https://www.ad.nl/voetbal/mika-godts-lichtschacht-in-duisternis-van-ajax-ik-wil-nog-een-prijs-pakken-met-deze-club~ae6df042/)
+  > Mika Godts scoorde tegen Heracles zijn vijftiende goal van het seizoen. De aanvaller is de grote uitblinker van Ajax, de kersverse international van...
+- [Zo verleidelijk is een tuincentrum: ‘Hoe langer je binnen bent, hoe meer je ziet en denkt dat je het nodig hebt’](https://www.ad.nl/geld/zo-verleidelijk-is-een-tuincentrum-hoe-langer-je-binnen-bent-hoe-meer-je-ziet-en-denkt-dat-je-het-nodig-hebt~ae2dac85/)
+  > Alleen een plantje halen of gewoon gezellig rondkijken? Grote kans dat je tóch met een vollere kar het tuincentrum uitloopt. Geen toeval, zegt...
+- [Oekraïne meldt 2300 schendingen paasbestand, hulpverleners gewond door drone op ambulance](https://www.ad.nl/buitenland/oekraine-meldt-2300-schendingen-paasbestand-hulpverleners-gewond-door-drone-op-ambulance~adfb97be/)
+  > Ondanks dat Rusland en Oekraïne een wapenstilstand overeenkwamen voor de viering van Orthodox Pasen dit weekend, meldde Oekraïne zondagochtend werd...
+- [Breien, zingen of pottenbakken: je hobby heeft impact op je werk](https://www.ad.nl/wetenschap/breien-zingen-of-pottenbakken-je-hobby-heeft-impact-op-je-werk~a32daaf6/)
+  > Een nieuwe taal leren, toneelspelen of taarten bakken? Uit onderzoek blijkt dat hobby’s niet alleen het privéleven verrijken. Ze maken je ook nog...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Magyar: Hongaren gaan geschiedenis schrijven met stembusgang](https://fd.nl/samenleving/1592684/magyar-hongaren-gaan-geschiedenis-schrijven-met-stembusgang)
+  > Hongarije gaat zondag naar de stembus in parlementsverkiezingen met naar verwachting een recordopkomst.
+- [‘Nederlands private equity haalt lager rendement dan concurrenten’](https://fd.nl/bedrijfsleven/1592500/nederlands-private-equity-haalt-lager-rendement-dan-concurrenten)
+  > Een verklaring voor het lagere rendement is dat Nederlandse investeerders voorzichtig zijn met geleend geld.
 - [Hoe extreme rijkdom een land lui en kwetsbaar maakt](https://fd.nl/opinie/1592506/hoe-extreme-rijkdom-een-land-lui-en-kwetsbaar-maakt)
   > Een enorm oliefonds voedt de Noorse verzorgingsstaat en economie, maar ondermijnt de prikkel om te werken en te hervormen. Noorwegen toont Nederland...
 - [Van samenwerking naar strijd: Nexperia en Chinese eigenaar drijven verder uit elkaar](https://fd.nl/bedrijfsleven/1591937/van-samenwerking-naar-strijd-nexperia-en-chinese-eigenaar-drijven-verder-uit-elkaar)
   > Het Nijmeegse chipbedrijf investeert momenteel flink in productiecapaciteit in Maleisië, als alternatief voor de fabriek in China.
 - [Een heel harmonieuze vve-vergadering](https://fd.nl/samenleving/1592546/een-heel-harmonieuze-vve-vergadering)
   > Ook in Moerkapelle staan tijdens de vve-vergadering heikele punten op de agenda. Toch blijft de sfeer goed.
-- [Luisterverhaal: Ook mannen moeten mooi zijn](https://fd.nl/samenleving/1592509/luisterverhaal-ook-mannen-moeten-mooi-zijn)
-  > Deze week hoor je een essay over het steeds dwingender schoonheidsideaal voor mannen.
-- [Gesprekken VS en Iran geklapt, status wapenstilstand onduidelijk](https://fd.nl/politiek/1592683/onderhandelingen-tussen-vs-en-iran-geklapt-vance-vertrekt-uit-pakistan)
-  > Vicepresident Vance vertrokken uit Islamabad. Onduidelijk is of het klappen van de gesprekken ook een einde betekent aan staakt-het-vuren.
 
 ### Meest gelezen
 
