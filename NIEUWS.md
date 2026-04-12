@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-04-2026 om 10:42*
+*Laatst bijgewerkt: 12-04-2026 om 11:37*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Monument onthuld voor Molukse vrijheidsstrijder Chris Soumokil](https://nos.nl/l/2610128)
+  > In Vught is een monument onthuld voor de Molukse vrijheidsstrijder Chris Soumokil. Hij was van 1950 tot 1966 president van de onafhankelijke...
 - [Zangeres Asha Bhosle (92) overleden, stem uit duizenden Bollywoodfilms](https://nos.nl/l/2610125)
   > Ze werd ook wel de "nachtegaal van Azië" genoemd en gold als een van de meest opgenomen artiesten ter wereld. De Indiase zangeres Asha Bhosle is op...
 - [Koningspaar begint veelbesproken VS-reis, met overnachting bij Trump in Witte Huis](https://nos.nl/l/2610120)
   > Het ging erover in talkshows, er waren ingezonden brieven in kranten en zelfs een petitie om ervan af te zien: de overnachting van koning...
 - [Politie Ierland maakt einde aan blokkades bij brandstofprotesten](https://nos.nl/l/2610119)
   > In het centrum van Dublin heeft de politie een einde gemaakt aan blokkades met tractors en vrachtwagens. Die waren vanaf dinsdag opgeworpen door...
-- [Rivalen Orbán en Magyar stemmen in Boedapest: 'Keuze tussen Oost en West'](https://nos.nl/l/2610118)
+- [Rivalen Orbán en Magyar stemmen in Boedapest, opkomst flink hoger](https://nos.nl/l/2610118)
   > In de Hongaarse hoofdstad Boedapest hebben premier Viktor Orbán en zijn uitdager Péter Magyar hun stem uitgebracht voor de parlementsverkiezingen. De...
-- [Rotterdamse buschauffeur al eerder geslagen door dezelfde man](https://nos.nl/l/2610116)
-  > De buschauffeur uit Rotterdam die vrijdagmiddag werd mishandeld in een volle lijnbus, werd een maand geleden ook al mishandeld door dezelfde man. Dat...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Trump dreigt met blokkade, Iran houdt koers: ‘Dit opent de Doos van Pandora’](https://www.ad.nl/buitenland/trump-dreigt-met-blokkade-iran-houdt-koers-dit-opent-de-doos-van-pandora~a4173d80/)
-  > De onderhandelingen in Islamabad zijn na 21 uur geklapt, maar dat wil volgens experts niet zeggen dat de oorlog wordt hervat. Het betekent vooral dat...
-- [Acteur John Nolan, bekend van Batman-films, op 87-jarige leeftijd overleden](https://www.ad.nl/show/acteur-john-nolan-bekend-van-batman-films-op-87-jarige-leeftijd-overleden~afface5a/)
-  > Acteur John Nolan, bekend van zijn rollen in The Dark Knight Rises en Person of interest, is op 87-jarige leeftijd overleden. Dat heeft zijn familie...
-- [LIVE eredivisie | Klimt NAC Breda uit de degradatiezone? Ayew mist eerste kans bij Fortuna Sittard](https://www.ad.nl/voetbal/live-eredivisie-klimt-nac-breda-uit-de-degradatiezone-ayew-mist-eerste-kans-bij-fortuna-sittard~a5d447bc/)
-  > NAC Breda neemt het in Sittard op tegen Fortuna, dat als een van de weinige clubs eigenlijk nergens meer om speelt behalve de eer. De Brabantse...
-- [Grootste kans voor FC Dordrecht, kampioen ADO Den Haag moet nog op stoom komen](https://www.ad.nl/voetbal/grootste-kans-voor-fc-dordrecht-kampioen-ado-den-haag-moet-nog-op-stoom-komen~aee9b4c5/)
-  > De titel is binnen voor ADO Den Haag dankzij het puntneverlies van Cambuur op vrijdagavond. De ploeg van trainer Robin Peter hoopt dit seizoen van de...
-- [Belg Abdi stort in slotkilometers in en moet zege laten aan Adola, Tesfu Nederlands kampioen](https://www.ad.nl/andere-sporten/belg-abdi-stort-in-slotkilometers-in-en-moet-zege-laten-aan-adola-tesfu-nederlands-kampioen~a9d79e2a/)
-  > Guye Adola heeft de marathon van Rotterdam gewonnen. Drie kilometer voor het einde leek de Belg Bashir Abdi nog de zege te pakken, maar een kilometer...
+- [Van Persie passeert Sterling, Valente en Hadj Moussa op tijd fit voor duel met NEC](https://www.ad.nl/voetbal/van-persie-passeert-sterling-valente-en-hadj-moussa-op-tijd-fit-voor-duel-met-nec~aacc8a56/)
+  > Feyenoord en NEC nemen het vanmiddag tegen elkaar op in de VriendenLoterij Eredivisie. Het is een duel tussen de nummers 3 (NEC) en 2 (Feyenoord) van...
+- [Een print van de bouwmarkt of een bijzonder werk? Zo koop je kunst die echt bij je past](https://www.ad.nl/wonen/een-print-van-de-bouwmarkt-of-een-bijzonder-werk-zo-koop-je-kunst-die-echt-bij-je-past~af37b460/)
+  > Kunst kopen alleen voor de elite? Welnee. Een mooi werk is er voor elk budget. Ook leuk: werk van een opkomende maker kan een goede investering zijn....
+- [Praat mee: Zelfrijdende auto mag de weg op, ben jij er klaar voor?](https://www.ad.nl/praat-mee/praat-mee-zelfrijdende-auto-mag-de-weg-op-ben-jij-er-klaar-voor~acb6cfc5/)
+  > Er is veel tijd en discussie overheen gegaan maar de kogel is nu door de kerk. De zelfrijdende Tesla mag in Nederland de weg op en dat is een...
+- [Onze fotograaf Pim Ras klom op de Erasmusbrug voor Rotterdam Marathon, bekijk hier zijn beelden](https://www.ad.nl/andere-sporten/onze-fotograaf-pim-ras-klom-op-de-erasmusbrug-voor-rotterdam-marathon-bekijk-hier-zijn-beelden~a61c2820/)
+  > Er was opnieuw een hoop belangstelling voor de 45ste editie van de marathon van Rotterdam. Voldoende redenen dus om het evenement vanaf een...
+- [Pogacar heeft plannen en zet ploeggenoten aan het werk op kasseien, Van der Poel gaat voor 4 op een rij](https://www.ad.nl/wielrennen/pogacar-heeft-plannen-en-zet-ploeggenoten-aan-het-werk-op-kasseien-van-der-poel-gaat-voor-4-op-een-rij~a575858d/)
+  > In Noord-Frankrijk wordt vandaag het iconische monument Parijs-Roubaix verreden. De mannen zijn onderweg en finishen rond 16.45 uur. De vrouwen...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [PGGM-ceo: ‘AI-agents gaan straks het rekenwerk voor alle pensioenen doen’](https://fd.nl/financiele-markten/1592583/pggm-ceo-ai-agents-gaan-straks-het-rekenwerk-voor-alle-pensioenen-doen)
+  > Volgens Edwin Velzel is het pensioenbeheer van de toekomst te vergelijken met de manier waarop een Tesla-fabriek wordt gerund.
 - [‘Europa is de aantrekkelijkste plek voor circulaire industrie’](https://fd.nl/bedrijfsleven/1592505/europa-is-de-aantrekkelijkste-plek-voor-circulaire-industrie)
   > Autobandenrecycler Circtec haalt geld op voor uitbreiding, €30 mln aan RVO-subsidie is al binnen. Topman Robert Harper ziet drie obstakels voor...
 - [Magyar: Hongaren gaan geschiedenis schrijven met stembusgang](https://fd.nl/samenleving/1592684/magyar-hongaren-gaan-geschiedenis-schrijven-met-stembusgang)
@@ -54,8 +56,6 @@
   > Een verklaring voor het lagere rendement is dat Nederlandse investeerders voorzichtig zijn met geleend geld.
 - [Hoe extreme rijkdom een land lui en kwetsbaar maakt](https://fd.nl/opinie/1592506/hoe-extreme-rijkdom-een-land-lui-en-kwetsbaar-maakt)
   > Een enorm oliefonds voedt de Noorse verzorgingsstaat en economie, maar ondermijnt de prikkel om te werken en te hervormen. Noorwegen toont Nederland...
-- [Van samenwerking naar strijd: Nexperia en Chinese eigenaar drijven verder uit elkaar](https://fd.nl/bedrijfsleven/1591937/van-samenwerking-naar-strijd-nexperia-en-chinese-eigenaar-drijven-verder-uit-elkaar)
-  > Het Nijmeegse chipbedrijf investeert momenteel flink in productiecapaciteit in Maleisië, als alternatief voor de fabriek in China.
 
 ### Meest gelezen
 
