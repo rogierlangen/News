@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-04-2026 om 14:43*
+*Laatst bijgewerkt: 12-04-2026 om 15:40*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Feyenoord geeft in intense topper bij NEC zege in slotseconden nog uit handen](https://www.ad.nl/voetbal/feyenoord-geeft-in-intense-topper-bij-nec-zege-in-slotseconden-nog-uit-handen~aacc8a56/)
-  > Feyenoord leek de aanval van NEC te hebben afgeslagen. De Rotterdammers stonden dankzij een kopbal van Ayase Ueda tot diep in blessuretijd voor. Maar...
-- [Wout van Aert klopt Tadej Pogacar en bezorgt Visma eindelijk zege in Parijs-Roubaix, pech nekt Mathieu van der Poel](https://www.ad.nl/wielrennen/wout-van-aert-klopt-tadej-pogacar-en-bezorgt-visma-eindelijk-zege-in-parijs-roubaix-pech-nekt-mathieu-van-der-poel~a575858d/)
-  > Wout van Aert heeft Visma-Lease a Bike de zege geschonken in Parijs-Roubaix. De Belg rekende na een prachtige strijd af met wereldkampioen Tadej...
-- [Excelsior pakt dankzij late goal Szymon Wlodarczyk belangrijk punt in Zwolle](https://www.ad.nl/voetbal/excelsior-pakt-dankzij-late-goal-szymon-wlodarczyk-belangrijk-punt-in-zwolle~a7e95c5e/)
-  > PEC Zwolle en Excelsior Rotterdam hebben in de strijd tegen degradatie een punt gepakt. De thuisclub kwam twee keer op voorsprong, maar Excelsior...
-- [Trump kondigt blokkade van Straat van Hormuz aan: ‘Elke Iraniër die op ons schiet, blazen we naar de hel’](https://www.ad.nl/buitenland/trump-kondigt-blokkade-van-straat-van-hormuz-aan-elke-iranier-die-op-ons-schiet-blazen-we-naar-de-hel~ac528ac3/)
-  > Donald Trump heeft zondag gezegd dat de Amerikaanse marine onmiddellijk gaat beginnen met het blokkeren van de Straat van Hormuz en ook elk schip in...
-- [Vrouw met pijn wordt vaak niet serieus genomen: pijnspecialist legt uit waarom dat gebeurt](https://www.ad.nl/gezond/vrouw-met-pijn-wordt-vaak-niet-serieus-genomen-pijnspecialist-legt-uit-waarom-dat-gebeurt~aaf3e1ce/)
-  > Elke dag krom liggen van de pijn, daardoor niet kunnen werken en al helemaal geen leuke dingen meer kunnen doen. En toch niet serieus genomen worden,...
+- [Manchester City uit bij Chelsea op jacht naar koploper Arsenal](https://www.ad.nl/voetbal/manchester-city-uit-bij-chelsea-op-jacht-naar-koploper-arsenal~ae333f07/)
+  > Arsenal verloor zaterdag verrassend met 1-2 van Bournemouth. Kan achtervolger Manchester City profiteren en voor een spannende titelstrijd zorgen?...
+- [Tottenham Hotspur blijft na nederlaag bij Sunderland op degradatieplaats](https://www.ad.nl/voetbal/tottenham-hotspur-blijft-na-nederlaag-bij-sunderland-op-degradatieplaats~af20c9b2/)
+  > Tottenham Hotspur staat na een 1-0-nederlaag uit tegen Sunderland op een degradatieplaats in de Premier League. De Londense club is na 32 wedstrijden...
+- [Oekraïne en Rusland beschuldigen elkaar van het veelvuldig schenden van paasbestand](https://www.ad.nl/buitenland/oekraine-en-rusland-beschuldigen-elkaar-van-het-veelvuldig-schenden-van-paasbestand~adfb97be/)
+  > Oekraïne en Rusland beschuldigen elkaar van het veelvuldig schenden van een 32 uur durend bestand ter gelegenheid van het orthodoxe paasfeest. Volg...
+- [Niet snel, maar slow: deze fietsers leggen afstand van 11 meter zo langzaam mogelijk af: ‘Echt verslavend’](https://www.ad.nl/binnenland/niet-snel-maar-slow-deze-fietsers-leggen-afstand-van-11-meter-zo-langzaam-mogelijk-af-echt-verslavend~af3b925a/)
+  > 3...2...1... Attention! Go! Zo start de voorronde van het NK Slowbiking in Waddinxveen. En dat gaat precies zoals je verwacht. In plaats van dat de...
+- [Tanja (32) is bij overval vermoord, het verandert het leven van zus Ingrid voor altijd: ‘Zoveel pech, ze nam weinig risico’s’](https://www.ad.nl/binnenland/tanja-32-is-bij-overval-vermoord-het-verandert-het-leven-van-zus-ingrid-voor-altijd-zoveel-pech-ze-nam-weinig-risicos~a598b687/)
+  > Een messteek in het hart, een buit van 3200 gulden. Tanja Berns (32) wordt vermoord tijdens een overval op een klein postkantoor in Oosterhout. Haar...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Honderden miljoenen beschikbaar voor raffinage zeldzame aardmetalen](https://fd.nl/financiele-markten/1592685/miljoenen-beschikbaar-voor-raffinage-zeldzame-aardmetalen)
+  > Meest concrete toezegging tot nu toe in Amerikaans-Australische samenwerking voor kritieke mineralen.
+- [Festival Sziget rukt zich los van private equity en gaat zelfstandig verder](https://fd.nl/samenleving/1592323/festival-sziget-rukt-zich-los-van-private-equity-en-gaat-zelfstandig-verder)
+  > Zonder private equity moet het Hongaarse Sziget opnieuw op zoek naar zijn eigen verhaal, zegt festivaldirecteur Tamás Kádár.
 - [Rechter uit kritiek op zusterbedrijf van Lidl in ‘vertical farming’-conflict](https://fd.nl/bedrijfsleven/1592619/rechter-uit-kritiek-op-zusterbedrijf-van-lidl-in-vertical-farming-conflict)
   > Schwarz Produktion, onderdeel van de bedrijvengroep met supermarktconcern Lidl, heeft in Nederland een mislukte samenwerking in ‘vertical farming’....
 - [Trump: VS gaan Straat van Hormuz blokkeren](https://fd.nl/samenleving/1592791/trump-vs-gaan-straat-van-hormuz-blokkeren)
   > De stap volgt na het mislukken van de vredesbesprekingen met Iran zaterdag in de Pakistaanse hoofdstad Islamabad. De Amerikaanse marine zal ook...
 - [Studentenkamer voor een ton: ‘Ouders zoeken creatieve oplossingen’](https://fd.nl/samenleving/1592573/studentenkamer-voor-een-ton-ouders-zoeken-creatieve-oplossingen)
   > ‘Dat we nu zelfs in de studentenhuisvesting koopwoningen zien, kun je niet los zien van alle ontwikkelingen op de private huurmarkt’, zegt econoom...
-- [De termijnhandel is nog niet zo overtuigd van een voedselcrisis](https://fd.nl/financiele-markten/1592514/de-termijnhandel-is-nog-niet-zo-overtuigd-van-een-voedselcrisis)
-  > Dankzij grote voorraden is het op de termijnmarkten voor graan en rijst nog relatief rustig, al vrezen het IMF en de Wereldbank stijgende...
-- [Imago Dubai als veilige haven voor vastgoedinvesteerders wankelt door oorlog](https://fd.nl/economie/1592175/het-imago-van-dubai-als-veilige-haven-voor-vastgoedinvesteerders-wankelt)
-  > Nederlandse makelaars en adviseurs in het emiraat krijgen ineens heel andere vragen: ‘Is mijn appartement wel verzekerd als het beschadigd raakt door...
 
 ### Meest gelezen
 
