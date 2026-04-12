@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-04-2026 om 05:56*
+*Laatst bijgewerkt: 12-04-2026 om 07:24*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Wekdienst 12/4: Verkiezingen in Hongarije • Marathon van Rotterdam](https://nos.nl/l/2610098)
-  > Goedemorgen! In Hongarije gaan vandaag ruim vijf miljoen Hongaren naar de stembus, voor misschien wel de spannendste verkiezingen in Europa in...
-- [VS en Iran komen in Islamabad niet tot definitief akkoord](https://nos.nl/l/2610097)
-  > De VS en Iran zijn er in de Pakistaanse hoofdstad Islamabad niet in geslaagd tot een akkoord te komen om de oorlog te beëindigen. Na 21 uur...
-- [Brand in Brabants crematorium snel uit](https://nos.nl/l/2610094)
-  > In een crematorium in het Brabantse Heeze heeft gisteravond brand gewoed. Het vuur ontstond rondom de crematieoven, meldt Omroep Brabant.
-        In...
-- [Ten minste dertig doden bij toeristisch fort Haïti](https://nos.nl/l/2610088)
-  > In Haïti zijn zeker dertig mensen omgekomen bij een jaarlijkse viering bij de Citadel van Laferrière, een fort uit het begin van de 19e eeuw en een...
-- [Artemis-astronauten na maanmissie: 'Het is iets bijzonders om op aarde te zijn'](https://nos.nl/l/2610087)
-  > "Ik durf eigenlijk niet eens te beginnen met praten. Ik heb nog niet verwerkt wat we zojuist hebben gedaan en ik durf er eigenlijk niet eens aan te...
+- [Auto's zwaarbeschadigd teruggevonden in Tilburg, bestuurders spoorloos](https://nos.nl/l/2610109)
+  > De politie heeft vannacht in Tilburg onderzoek gedaan naar meerdere zwaar beschadigde auto's die verspreid over de weg stonden. De drie voertuigen...
+- [Podcast De Dag: Van onze correspondent... Chiem Balduk (Duitsland)](https://nos.nl/l/2610108)
+  > Van onze correspondent is een serie van de makers van podcast De Dag. Iedere zondag maken we kennis met een van de correspondenten van de NOS, het...
+- [Duitsers betogen voor redding gestrande bultrug, autoriteiten zien geen opties](https://nos.nl/l/2610106)
+  > In de Duitse plaats Wismar hebben ruim 150 mensen geprotesteerd tegen het besluit geen reddingspogingen meer te ondernemen voor een walvis die daar...
+- [Vader Deense koningin Mary overleden in Tasmanië](https://nos.nl/l/2610104)
+  > De vader van de Deense koningin Mary van Denemarken is overleden, zo heeft het Deense koningshuis bekendgemaakt. John Donaldson stierf in het...
+- [Ruim 500 arrestaties in Londen bij demonstratie voor Palestina](https://nos.nl/l/2610102)
+  > In Londen zijn gisteren 523 mensen gearresteerd bij een pro-Palestijnse betoging. Ze werden aangehouden omdat ze openlijk hun steun uitspraken voor...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Marie-Louise Eta wordt bij Union Berlin eerste vrouwelijke hoofdcoach van een mannenteam in Europese topcompetitie](https://www.ad.nl/voetbal/marie-louise-eta-wordt-bij-union-berlin-eerste-vrouwelijke-hoofdcoach-van-een-mannenteam-in-europese-topcompetitie~a21aa68a/)
-  > 1. FC Union Berlin heeft Marie-Louise Eta aangesteld als hoofdtrainer tot het einde van het seizoen. De 34-jarige Duitse is daarmee de eerste...
-- [VS en Iran komen niet tot akkoord na 21 uur onderhandelen, Vance vetrokken na ‘laatste en beste voorstel’](https://www.ad.nl/buitenland/vs-en-iran-komen-niet-tot-akkoord-na-21-uur-onderhandelen-vance-vetrokken-na-laatste-en-beste-voorstel~afb99b51/)
-  > De Iraanse en Amerikaanse delegaties hebben zaterdag na 21 uur overleg in Pakistan geen akkoord bereikt over het beëindigen van de oorlog. De...
-- [We stoppen een zender in een regenjas, dan openbaart zich een illegaal kledingrijk](https://www.ad.nl/binnenland/we-stoppen-een-zender-in-een-regenjas-dan-openbaart-zich-een-illegaal-kledingrijk~aadf7caf/)
-  > Regenjas: 2 euro. Zendertje: 5 euro. Een schimmig internationaal kledingrijk ontdekken: onbetaalbaar. We stoppen het zendertje in de jas, gooien hem...
-- [Carlos Ulberg negeert blessure, wint spectaculair en kroont zich tot UFC-kampioen](https://www.ad.nl/vechtsport/carlos-ulberg-negeert-blessure-wint-spectaculair-en-kroont-zich-tot-ufc-kampioen~a7df8fa9/)
-  > Carlos Ulberg heeft geschiedenis geschreven in de Ultimate Fighting Championship. De vechter uit Nieuw-Zeeland pakte in de nacht van zaterdag op...
-- [Overleg tussen VS en Iran blijft zonder resultaat, Vance vertrokken uit Pakistan](https://www.ad.nl/buitenland/overleg-tussen-vs-en-iran-blijft-zonder-resultaat-vance-vertrokken-uit-pakistan~ac528ac3/)
-  > De vredesgesprekken tussen de Verenigde Staten en Iran hebben geen resultaat opgeleverd. De Amerikaanse vicepresident JD Vance vertrok na 21 uur...
+- [Feyenoord gaat strompelend en vol zorgen naar kraker in Nijmegen](https://www.ad.nl/voetbal/feyenoord-gaat-strompelend-en-vol-zorgen-naar-kraker-in-nijmegen~a959ae33/)
+  > Robin van Persie durfde de lijst met afwezigen niet eens meer op te noemen. „Dat wordt anders een meme”, zei de trainer van Feyenoord. Ook tegen...
+- [Met slagersmes een kokosnoot kraken: dit Nederlandse gezin verkocht álles en leeft nu al vier jaar op zee](https://www.ad.nl/binnenland/met-slagersmes-een-kokosnoot-kraken-dit-nederlandse-gezin-verkocht-alles-en-leeft-nu-al-vier-jaar-op-zee~a170da7e/)
+  > Vrijheid, kristalhelder water en een kokosnoot plukken als je trek hebt. Ilke (46), Martin (47) en hun kinderen Aniek (13), Fedde (15), Hidde (10) en...
+- [Eerste lopers maken zich klaar, volg de hele dag alles van de Rotterdamse marathon](https://www.ad.nl/rotterdam/eerste-lopers-maken-zich-klaar-volg-de-hele-dag-alles-van-de-rotterdamse-marathon~a45c4d96/)
+  > Voor 18.000 lopers is de grote dag aangebroken: van het You’ll Never Walk Alone bij de start tot de finish op de volgepakte Coolsingel, 42,195...
+- [De unieke missie van Tadej Pogacar in Parijs-Roubaix : ‘Hij is ertoe in staat en dan hoop ik dat hij met pensioen gaat’](https://www.ad.nl/wielrennen/de-unieke-missie-van-tadej-pogacar-in-parijs-roubaix-hij-is-ertoe-in-staat-en-dan-hoop-ik-dat-hij-met-pensioen-gaat~aea74b9c/)
+  > Tadej Pogacar kan zich vandaag in Parijs-Roubaix in een bijzonder rijtje fietsen. De Hel van het Noorden is het enige monument dat hij nog nooit...
+- [Stembureaus in Hongarije geopend, toekomst van Orbán staat op het spel](https://www.ad.nl/buitenland/stembureaus-in-hongarije-geopend-toekomst-van-orban-staat-op-het-spel~a54bff0a/)
+  > De Hongaren trekken zondag massaal richting de stembus. Heel Europa kijkt mee want de parlementsverkiezingen worden als cruciaal gezien voor de...
 
 ### Meest gelezen
 
@@ -47,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Hoe extreme rijkdom een land lui en kwetsbaar maakt](https://fd.nl/opinie/1592506/hoe-extreme-rijkdom-een-land-lui-en-kwetsbaar-maakt)
+  > Een enorm oliefonds voedt de Noorse verzorgingsstaat en economie, maar ondermijnt de prikkel om te werken en te hervormen. Noorwegen toont Nederland...
 - [Van samenwerking naar strijd: Nexperia en Chinese eigenaar drijven verder uit elkaar](https://fd.nl/bedrijfsleven/1591937/van-samenwerking-naar-strijd-nexperia-en-chinese-eigenaar-drijven-verder-uit-elkaar)
   > Het Nijmeegse chipbedrijf investeert momenteel flink in productiecapaciteit in Maleisië, als alternatief voor de fabriek in China.
 - [Een heel harmonieuze vve-vergadering](https://fd.nl/samenleving/1592546/een-heel-harmonieuze-vve-vergadering)
@@ -55,8 +56,6 @@
   > Deze week hoor je een essay over het steeds dwingender schoonheidsideaal voor mannen.
 - [Gesprekken VS en Iran geklapt, status wapenstilstand onduidelijk](https://fd.nl/politiek/1592683/onderhandelingen-tussen-vs-en-iran-geklapt-vance-vertrekt-uit-pakistan)
   > Vicepresident Vance vertrokken uit Islamabad. Onduidelijk is of het klappen van de gesprekken ook een einde betekent aan staakt-het-vuren.
-- [‘VS begonnen met ruimen van zeemijnen in Straat van Hormuz’](https://fd.nl/economie/1592787/vs-begonnen-met-ruimen-van-zeemijnen-in-straat-van-hormuz)
-  > Dat meldt de Amerikaanse president Donald Trump zaterdagmiddag via zijn sociale mediakanaal.
 
 ### Meest gelezen
 
