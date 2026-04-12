@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-04-2026 om 22:39*
+*Laatst bijgewerkt: 12-04-2026 om 23:40*
 
 ---
 
@@ -30,8 +30,8 @@
 
 - [Podcast In Het Wiel | ‘Driehoog kippenvel en brok in de keel door zege Wout van Aert in Parijs-Roubaix’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-driehoog-kippenvel-en-brok-in-de-keel-door-zege-wout-van-aert-in-parijs-roubaix~a5ea502e/)
   > Een emotionele dag op de wielerbaan in Roubaix, waar Wout van Aert eindelijk zijn felbegeerde kasseiklassieker won en Marianne Vos net naast de zege...
-- [Leger VS begint maandag aan blokkade van alle schepen van en naar Iran, VK doet niet mee aan blokkade](https://www.ad.nl/buitenland/leger-vs-begint-maandag-aan-blokkade-van-alle-schepen-van-en-naar-iran-vk-doet-niet-mee-aan-blokkade~ac528ac3/)
-  > Het Amerikaanse centrale commando CENTCOM heeft bekendgemaakt dat het maandag om 16.00 uur begint met de uitvoering van een blokkade van al het...
+- [Leger VS begint maandag aan blokkade van alle schepen van en naar Iran, VK doet niet mee](https://www.ad.nl/buitenland/leger-vs-begint-maandag-aan-blokkade-van-alle-schepen-van-en-naar-iran-vk-doet-niet-mee~ac528ac3/)
+  > Het Amerikaanse leger heeft bekendgemaakt dat het maandag om 16.00 uur begint met de uitvoering van een blokkade van al het scheepvaartverkeer dat...
 - [Koningspaar aangekomen in Philadelphia, waar veelbesproken werkbezoek aan de VS begint](https://www.ad.nl/show/koningspaar-aangekomen-in-philadelphia-waar-veelbesproken-werkbezoek-aan-de-vs-begint~a375690f/)
   > Het driedaagse werkbezoek aan de Amerikaanse staten Pennsylvania en Florida is van start gegaan. Koning Willem-Alexander en koningin Máxima zijn...
 - [Dubbelslag van Denzel Dumfries bij spektakelstuk in Como, Inter zet volgende stap richting titel](https://www.ad.nl/voetbal/dubbelslag-van-denzel-dumfries-bij-spektakelstuk-in-como-inter-zet-volgende-stap-richting-titel~a265df09/)
