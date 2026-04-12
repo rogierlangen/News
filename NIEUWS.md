@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-04-2026 om 16:46*
+*Laatst bijgewerkt: 12-04-2026 om 17:38*
 
 ---
 
@@ -8,6 +8,9 @@
 
 ### Laatste nieuws
 
+- [Stembureaus in Hongarije gesloten, historisch hoge opkomst](https://nos.nl/l/2610198)
+  > In Hongarije zijn de stembureaus gesloten. De opkomst vandaag was de hoogste sinds er in 1989 een einde kwam aan het communisme in Hongarije.
+       ...
 - [Presentator Sonja Barend (1940-2026) was 'de koningin van de talkshow'](https://nos.nl/l/2610179)
   > Tv-presentator Sonja Barend, die gisteren op 86-jarige leeftijd overleed, was tientallen jaren lang onafgebroken op televisie. Ze was een wekelijkse...
 - [Trump na mislukte onderhandelingen: marine VS gaat Straat van Hormuz blokkeren](https://nos.nl/l/2610159)
@@ -16,9 +19,6 @@
   > Vanuit Den Helder is Zr.Ms. De Ruyter vertrokken. Het fregat, met tweehonderd man personeel aan boord, heeft als einddoel een internationale...
 - [IJslandse piloot vliegt extreem laag boven huizen tijdens afscheidsvlucht](https://nos.nl/l/2610153)
   > Een piloot van de IJslandse luchtvaartmaatschappij Icelandair heeft paniek veroorzaakt door tijdens zijn afscheidsvlucht laag over bewoond gebied te...
-- [Televisiepresentator Sonja Barend (86) overleden](https://nos.nl/l/2610145)
-  > Televisiepresentator Sonja Barend is op 86-jarige leeftijd overleden. Ze overleed gisteren thuis in het bijzijn van haar familie.
-        Sinds 1966...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [AZ wint dankzij droomstart overtuigend van Heerenveen: opsteker in week van de waarheid](https://www.ad.nl/voetbal/az-wint-dankzij-droomstart-overtuigend-van-heerenveen-opsteker-in-week-van-de-waarheid~a128f978/)
-  > AZ heeft zondag goede zaken in de laatste wedstrijd van speelronde 30 van de VriendenLoterij Eredivisie. De ploeg van Leeroy Echteld rekende...
-- [Manchester City slaat na rust toe op Stamford Bridge: O’Reilly kopt raak tegen Chelsea](https://www.ad.nl/voetbal/manchester-city-slaat-na-rust-toe-op-stamford-bridge-oreilly-kopt-raak-tegen-chelsea~ae333f07/)
-  > Arsenal verloor zaterdag verrassend met 1-2 van Bournemouth. Kan achtervolger Manchester City profiteren en voor een spannende titelstrijd zorgen?...
-- [Het Witte Huis als mijnenveld voor regeringsleiders: dit scenario wil Jetten voorkomen](https://www.ad.nl/politiek/het-witte-huis-als-mijnenveld-voor-regeringsleiders-dit-scenario-wil-jetten-voorkomen~a1b32846/)
-  > Rob Jetten bezoekt Donald Trump maandag op een beladen moment. Het Witte Huis is een mijnenveld voor regeringsleiders. Hoe bereidt de premier zich...
-- [Bij Sonja Barend aan tafel was het altijd spraakmakend: van flirten met Jagger tot ruzie om een crimineel](https://www.ad.nl/show/bij-sonja-barend-aan-tafel-was-het-altijd-spraakmakend-van-flirten-met-jagger-tot-ruzie-om-een-crimineel~ac6422d2/)
-  > Taboedoorbrekend en op het scherpst van de snede: aan haar talkshowtafel vlamde Sonja Barend als geen ander. De talkshowkoningin overleed zaterdag op...
-- [Jannik Sinner verslaat Carlos Alcaraz in finale van Monaco en is weer nummer 1](https://www.ad.nl/tennis/jannik-sinner-verslaat-carlos-alcaraz-in-finale-van-monaco-en-is-weer-nummer-1~a80af362/)
-  > Jannik Sinner is na zijn overwinning in de finale van de Monte Carlo Masters weer de nummer 1 van de wereldranglijst. De 24-jarige Italiaan rekende...
+- [City wint overtuigend bij Chelsea en verhoogt druk op Arsenal, dat volgende week naar Manchester komt](https://www.ad.nl/voetbal/city-wint-overtuigend-bij-chelsea-en-verhoogt-druk-op-arsenal-dat-volgende-week-naar-manchester-komt~ae333f07/)
+  > Manchester City heeft uitstekende zaken gedaan in de strijd om het kampioenschap in de Premier League. De ploeg van Pep Guardiola won zondagavond met...
+- [Van de brand in Hongkong tot honger in Gaza: deze foto’s maken kans op titel World Press Photo 2026](https://www.ad.nl/buitenland/van-de-brand-in-hongkong-tot-honger-in-gaza-deze-fotos-maken-kans-op-titel-world-press-photo-2026~a79d1a95/)
+  > In Hongkong kwamen 168 mensen om het leven bij een brand in een wooncomplex. Het beeld dat fotograaf Tyrone Siu ervan schoot, maakt nu kans om World...
+- [Mark dacht zelf wel een muur te kunnen slopen, maar toen bleek die vol leidingen te zitten](https://www.ad.nl/geld/mark-dacht-zelf-wel-een-muur-te-kunnen-slopen-maar-toen-bleek-die-vol-leidingen-te-zitten~a8989c03/)
+  > Mark Mulder (40) dacht geld te besparen door zelf een muur in de woonkamer te slopen, maar dat pakte anders uit. Iedereen maakt weleens een fout waar...
+- [Vijlbrief stelt terechte vraag: hoe houden we de AOW betaalbaar?](https://www.ad.nl/commentaar/vijlbrief-stelt-terechte-vraag-hoe-houden-we-de-aow-betaalbaar~ace8be5a/)
+  > De AOW-leeftijd blijft wat-ie is, maar daarmee is het probleem nog niet verdwenen: de betaalbaarheid van onze oudedagsvoorziening staat onder druk....
+- [Feyenoord maakt strijd om plek 2 heel spannend: ‘Dat Sandler geen rood kreeg, noem ik een schande’](https://www.ad.nl/voetbal/feyenoord-maakt-strijd-om-plek-2-heel-spannend-dat-sandler-geen-rood-kreeg-noem-ik-een-schande~a117900d/)
+  > Feyenoord leek de strijd om plek twee een beslissend zetje de Rotterdamse kant op te geven. Maar geheel in stijl van dit moeizame seizoen ging er nog...
 
 ### Meest gelezen
 
