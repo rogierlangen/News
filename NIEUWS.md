@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-04-2026 om 21:39*
+*Laatst bijgewerkt: 12-04-2026 om 22:39*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Podcast In Het Wiel | ‘Driehoog kippenvel en brok in de keel door zege Wout van Aert in Parijs-Roubaix’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-driehoog-kippenvel-en-brok-in-de-keel-door-zege-wout-van-aert-in-parijs-roubaix~a5ea502e/)
+  > Een emotionele dag op de wielerbaan in Roubaix, waar Wout van Aert eindelijk zijn felbegeerde kasseiklassieker won en Marianne Vos net naast de zege...
+- [Leger VS begint maandag aan blokkade van alle schepen van en naar Iran, VK doet niet mee aan blokkade](https://www.ad.nl/buitenland/leger-vs-begint-maandag-aan-blokkade-van-alle-schepen-van-en-naar-iran-vk-doet-niet-mee-aan-blokkade~ac528ac3/)
+  > Het Amerikaanse centrale commando CENTCOM heeft bekendgemaakt dat het maandag om 16.00 uur begint met de uitvoering van een blokkade van al het...
 - [Koningspaar aangekomen in Philadelphia, waar veelbesproken werkbezoek aan de VS begint](https://www.ad.nl/show/koningspaar-aangekomen-in-philadelphia-waar-veelbesproken-werkbezoek-aan-de-vs-begint~a375690f/)
   > Het driedaagse werkbezoek aan de Amerikaanse staten Pennsylvania en Florida is van start gegaan. Koning Willem-Alexander en koningin Máxima zijn...
 - [Dubbelslag van Denzel Dumfries bij spektakelstuk in Como, Inter zet volgende stap richting titel](https://www.ad.nl/voetbal/dubbelslag-van-denzel-dumfries-bij-spektakelstuk-in-como-inter-zet-volgende-stap-richting-titel~a265df09/)
   > Denzel Dumfries was zondagavond de grote man bij Inter. De 29-jarige rechtsback maakte in de uitwedstrijd bij Como de 2-3 en 2-4. Como maakte het nog...
 - [Hack bij Booking.com: namen, adressen en telefoonnummers van klanten ingezien](https://www.ad.nl/tech/hack-bij-booking-com-namen-adressen-en-telefoonnummers-van-klanten-ingezien~ada0fbad/)
   > Boekingssite Booking.com laat weten dat ‘onbevoegde derden’ toegang hebben gekregen tot boekingsinformatie van klanten. Sommige klanten van...
-- [Het recht op genot gaat boven alles](https://www.ad.nl/binnenland/het-recht-op-genot-gaat-boven-alles~a7e5bc66/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [Iran vindt ‘dubbele moraal’ van VS grootste obstakel in onderhandelingen, Israël zet strijd tegen Hezbollah voort](https://www.ad.nl/buitenland/iran-vindt-dubbele-moraal-van-vs-grootste-obstakel-in-onderhandelingen-israel-zet-strijd-tegen-hezbollah-voort~ac528ac3/)
-  > De ‘dubbele moraal’ van de Verenigde Staten was het grootste obstakel in de vredesonderhandelingen, oordeelt de Iraanse president Masoud Pezeshkian....
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Ierse politie verwijdert blokkades uit protest tegen hoge brandstofprijzen](https://fd.nl/politiek/1592795/ierse-politie-verwijdert-blokkades-uit-protest-tegen-hoge-brandstofprijzen)
-  > Dublin kondigt extra uitgaven aan om gevolgen van prijsstijgingen voor consumenten en bedrijven te verzachten.
-- [Oppositie dik op kop bij Hongaarse verkiezingen, Orbán geeft verlies toe](https://fd.nl/politiek/1592687/eerste-telling-wijst-op-overwinning-oppositie-bij-hongaarse-verkiezingen)
-  > Met 82% van de stemmen geteld lag de partij van Magyar, Tisza, op koers om 69% van de zetels te behalen, meldde het Hongaarse verkiezingsbureau....
-- [Lidl koopt belang in telecomconcern 1Global](https://fd.nl/bedrijfsleven/1592794/lidl-koopt-belang-in-telecomconcern-1global)
-  > Het Duitse retailconcern wil aanbod mobiele telefonie internationaal uitbouwen.
-- [Nederland is de naïviteit voorbij](https://fd.nl/opinie/1592368/nederland-is-de-naiviteit-voorbij)
-  > De interventies bij Nexperia en Ampleon bewijzen dat de nieuwe geopolitieke realiteit in politiek Den Haag is doorgedrongen.
-- [Fiscus mag niet vooruitlopen met belastingrente](https://fd.nl/bedrijfsleven/1592793/fiscus-mag-niet-vooruitlopen-met-belastingrente)
-  > Hoge Raad herhaalt dat Belastingdienst 4% belastingrente mag opleggen als afdracht op zich laat wachten.
+- [Bidden voor bruine bonen](https://fd.nl/opinie/1592790/bidden-voor-bruine-bonen)
+  > Wat minder vlees en wat meer peulvruchten, adviseert de nieuwe schijf van vijf. Half Nederland ontstak in woede.
+- [Ruim 90% van alle voordeel uit innovatiebox naar ASML, MSD en Booking](https://fd.nl/bedrijfsleven/1592577/ruim-90-vanalle-voordeel-uit-innovatiebox-naar-asml-msd-en-booking)
+  > Het belastingvoordeel voor MSD in Nederland via de innovatiebox was niet eerder bekend. Het farmabedrijf ontving vorig jaar een korting van €922 mln,...
+- [De slimste van de klas](https://fd.nl/opinie/1592458/de-slimste-van-de-klas)
+  > In Estland gebruiken scholieren verplicht AI. Heeft Estland zich laten verleiden door de marketingpraat van OpenAI? Of is dit juist een lichtend...
+- [Hoe MSD goudgeld verdient met het bestverkochte medicijn ter wereld](https://fd.nl/bedrijfsleven/1592261/hoe-msd-goudgeld-verdient-met-het-bestverkochte-medicijn-ter-wereld)
+  > De immuuntherapie Keytruda is uitgegroeid tot een kaskraker die zijn gelijke in de farmaceutische industrie niet kent. En daar komen de komende jaren...
+- [Personalia maandag 13 april](https://fd.nl/bedrijfsleven/1592792/personalia-maandag-13-april)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
