@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-04-2026 om 09:02*
+*Laatst bijgewerkt: 13-04-2026 om 11:19*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Iraans regime executeert meer mensen dan ooit: 1639 in 2025](https://nos.nl/l/2610268)
-  > Iran heeft het aantal executies in 2025 flink opgevoerd. Met gemiddeld vier executies per dag doodde het regime in Teheran vorig jaar zeker 1639...
-- [Trump haalt uit naar paus: 'Slap over misdaad en kernwapens'](https://nos.nl/l/2610266)
-  > De Amerikaanse president Trump heeft in felle bewoordingen uitgehaald naar paus Leo. In een uitgebreid bericht op Truth Social zegt hij dat die Leo...
-- [Wachttijd voor een WIA-uitkering loopt weer verder op](https://nos.nl/l/2610264)
-  > De wachttijd om een verzekeringsarts van het UWV te zien voor een WIA-uitkering is opgelopen tot zeker een jaar. In sommige regio's kan het zelfs...
-- [Koningspaar aangekomen in de VS, vandaag eerste dag werkbezoek](https://nos.nl/l/2610254)
-  > Koning Willem-Alexander en koningin Máxima zijn aangekomen in de Amerikaanse staat Pennsylvania. Ze landden gistermiddag (lokale tijd) in...
-- [Basic-Fit getroffen door hack, gegevens van 200.000 Nederlandse leden gelekt](https://nos.nl/l/2610253)
-  > Sportschoolketen Basic-Fit is getroffen door een hack. Daarbij zijn gegevens van zo'n 200.000 Nederlandse leden, en in totaal een miljoen leden...
+- [Tweede Kamer schrapt morgen alle debatten vanwege staking ambtenaren](https://nos.nl/l/2610279)
+  > Morgen zijn alle debatten en activiteiten in de Tweede Kamer afgelast, omdat rijksambtenaren gaan staken. Kamervoorzitter Thom van Campen verwacht...
+- [Paus reageert op uithaal Trump: 'Blijf me uitspreken tegen oorlog'](https://nos.nl/l/2610277)
+  > Tijdens de pauselijke vlucht aan het begin van een elfdaagse reis door Afrika heeft paus Leo XIV tegen journalisten gereageerd op de directe aanval...
+- [AFM: funderingsschade voor veel woningeigenaren niet te betalen](https://nos.nl/l/2610275)
+  > Zo'n 120.000 Nederlandse woningeigenaren hebben zoveel last van funderingsproblemen dat een hersteloperatie nodig is. Ze kampen bijvoorbeeld met...
+- [Duitse regering verlaagt accijns op brandstof: 17 cent per liter goedkoper](https://nos.nl/l/2610273)
+  > Tanken in Duitsland wordt minder duur. Omdat de prijzen door de oorlog in het Midden-Oosten flink zijn gestegen, gaat de Duitse regering voor zeker...
+- [Politie vindt 50.000 euro cash in teddybeer](https://nos.nl/l/2610271)
+  > De politie heeft in het Limburgse Beek 50.000 euro aan contant geld gevonden in een teddybeer. Een medewerker van een postsorteercentrum in het dorp...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Bij Trump kom je niet met lege handen: wat nemen de Oranjes mee als cadeau naar het Witte Huis?](https://www.ad.nl/buitenland/bij-trump-kom-je-niet-met-lege-handen-wat-nemen-de-oranjes-mee-als-cadeau-naar-het-witte-huis~a5b81097/)
-  > Een hoge onderscheiding, een kaasschaaf of toch een vaas met tulpen? Bij een bezoek aan het Witte Huis kun je niet met lege handen aankomen. Zeker...
-- [Jade Anna deelt haar levenslessen en Mattie maakt fout in de ochtendshow](https://www.ad.nl/show/jade-anna-deelt-haar-levenslessen-en-mattie-maakt-fout-in-de-ochtendshow~ac6f6fd0/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Duitse regering verlaagt accijns op benzine en diesel](https://www.ad.nl/buitenland/duitse-regering-verlaagt-accijns-op-benzine-en-diesel~a1d080cb/)
-  > De Duitse regering wil de prijzen aan de pomp verlagen. Bondskanselier Friedrich Merz kondigde daarvoor een accijnsverlaging op benzine en diesel van...
-- [Waarom Frenkie zo cruciaal wordt in Koemans nieuwe WK‑plannen (en hoe Barça hem daar nu bij helpt)](https://www.ad.nl/voetbal/waarom-frenkie-zo-cruciaal-wordt-in-koemans-nieuwe-wkplannen-en-hoe-barca-hem-daar-nu-bij-helpt~afdebe7f/)
-  > Frenkie de Jong is terug bij FC Barcelona. Mooi op tijd voor het WK én voor het bereiken van een bijzondere mijlpaal, schrijft Oranjevolger Maarten...
-- [Democratische kandidaat Californië haakt af: beschuldigd van misbruik vier vrouwen](https://www.ad.nl/buitenland/democratische-kandidaat-californie-haakt-af-beschuldigd-van-misbruik-vier-vrouwen~a2d835c3/)
-  > De Democratische gouverneurskandidaat in Californië Eric Swalwell heeft zijn campagne opgeschort vanwege beschuldigingen van seksueel misbruik....
+- [Mag een Belg met voorlopig rijbewijs in Nederland rijden?](https://www.ad.nl/auto/mag-een-belg-met-voorlopig-rijbewijs-in-nederland-rijden~a669eee0/)
+  > In Nederland bestaat het voorlopig rijbewijs niet, maar bijvoorbeeld in België wel. Lezer Rianne Hogenbirk-Goossens vraagt zich af of zo’n rijbewijs...
+- [Huiseigenaren komen in totaal 6 miljard tekort voor funderingsherstel, waakhond ziet groeiend probleem](https://www.ad.nl/economie/huiseigenaren-komen-in-totaal-6-miljard-tekort-voor-funderingsherstel-waakhond-ziet-groeiend-probleem~aedcc5ed/)
+  > Bijna een half miljoen huizen van woningeigenaren lopen een hoog risico op funderingsproblemen of hebben een kwetsbare fundering. Daarvoor waarschuwt...
+- [Iran dreigt met wraak als Amerika Straat van Hormuz blokkeert: wat houdt die blokkade in?](https://www.ad.nl/buitenland/iran-dreigt-met-wraak-als-amerika-straat-van-hormuz-blokkeert-wat-houdt-die-blokkade-in~afb0632f/)
+  > Het Amerikaanse leger wil vanaf maandagmiddag een blokkade invoeren voor alle schepen die Iraanse havens in- en uitvaren. Iran noemt dat ‘piraterij’...
+- [Van omsingelde collega tot vastgelopen bus in woonwijk: de Utrechtse buschaos door de ogen van een chauffeur](https://www.ad.nl/binnenland/van-omsingelde-collega-tot-vastgelopen-bus-in-woonwijk-de-utrechtse-buschaos-door-de-ogen-van-een-chauffeur~a3335e87c/)
+  > Al sinds december is het busvervoer in de provincie Utrecht een chaos. De  vervoerder kreeg daarvoor een boete van minstens 1,5 miljoen. Een...
+- [Zeiken, zuigen, schelden, misbaar maken en het erge is: het wordt normaal gevonden](https://www.ad.nl/voetbal/zeiken-zuigen-schelden-misbaar-maken-en-het-erge-is-het-wordt-normaal-gevonden~a9e6b561/)
+  > Columnist Hugo Borst stoort zich wekelijks aan trainers die zich constant beklagen bij de scheidsrechter en vierde officials. „We zien veel te veel...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Eindelijk in de buurtapp](https://fd.nl/samenleving/1592800/eindelijk-in-de-buurtapp)
-  > Frida Boeke heeft eindelijk besloten toe te treden tot de buurtapp, maar heeft wel meteen gemengde gevoelens over al die saamhorigheid.
-- [Europa ademt weer uit: Hongaren stemmen Orbán weg](https://fd.nl/politiek/1592320/europa-ademt-weer-uit-hongaren-stemmen-orban-weg)
-  > De nieuwe editie van de Europa-nieuwsbrief van het FD gaat over het verlies van Viktor Orbán, Poolse oppositiecrypto, de euro in Bulgarije en het...
-- [Ralph Hamers gaat bestuur fintech Banking Circle Group leiden](https://fd.nl/financiele-markten/1592726/ralph-hamers-gaat-bestuur-fintech-banking-circle-group-leiden)
-  > Het betaalbedrijf richt zich op grensoverschrijdende transacties en beschikt over een volledige bankvergunning in een aantal landen.
-- [Rheinmetall gaat met het Nederlandse Destinus kruisraketten produceren](https://fd.nl/bedrijfsleven/1592724/rheinmetall-gaat-met-het-nederlandse-destinus-kruisraketten-produceren)
-  > De joint venture geeft de Nederlanders de kans hun productie uit te breiden. De twee bedrijven verwachten dat de markt jaarlijks goed zal zijn voor...
-- [AI ontwricht wat ons rijk maakt](https://fd.nl/financiele-markten/1592723/ai-ontwricht-wat-ons-rijk-maakt)
-  > De dienstensector levert niet alleen het grootste gedeelte van ons bbp, maar is ook het meest kwetsbaar voor disruptie door kunstmatige...
+- [Kies bij invoering van de digitale euro voor wat écht werkt](https://fd.nl/opinie/1592544/kies-bij-invoering-van-de-digitale-euro-voor-wat-echt-werkt)
+  > Het huidige ontwerp van de digitale euro draagt onvoldoende bij aan meer Europese soevereiniteit. Integendeel: het zal het betaalstelsel in Europa...
+- [Wachttijd voor een WIA‑keuring loopt op](https://fd.nl/politiek/1592729/wachttijd-voor-een-wiakeuring-loopt-op)
+  > In een aantal regio’s moeten aanvragers van een WIA-uitkering nu langer dan een jaar wachten op een keuring door een verzekeringsarts.
+- [Handelsdag voor Europees gas flink uitgebreid](https://fd.nl/financiele-markten/1592806/handelsdag-voor-europees-gas-flink-uitgebreid)
+  > De Europese gasmarkt is de afgelopen jaren sterk veranderd en aantrekkelijker geworden voor wereldwijde spelers. De beurs speelt daar nu op in door...
+- [De huizenkoper is niet bepaald risicomijdend](https://fd.nl/samenleving/1592725/de-huizenkoper-is-niet-bepaald-risicomijdend)
+  > Wetenswaardigheden op het gebied van loopbaan en personal finance.
+- [Verpletterende zege Hongaarse oppositie maakt weg vrij voor hervormingen](https://fd.nl/politiek/1592805/verpletterende-zege-hongaarse-oppositie-maakt-weg-vrij-voor-hervormingen)
+  > Met zijn ruime meerderheid in het parlement kan Péter Magyar zijn belofte inlossen om het autocratische bewind van Orbán te ontmantelen.
 
 ### Meest gelezen
 
