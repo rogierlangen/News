@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-04-2026 om 22:55*
+*Laatst bijgewerkt: 13-04-2026 om 23:51*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [In Zeeland aangespoelde dode walvisachtige blijkt zeldzame Risso’s dolfijn](https://www.ad.nl/binnenland/in-zeeland-aangespoelde-dode-walvisachtige-blijkt-zeldzame-rissos-dolfijn~ad28d7ec/)
+  > De walvisachtige die vrijdag dood aanspoelde op het Banjaardstrand bij het Zeeuwse Kamperland betreft een zeldzame Risso’s dolfijn, ook wel een...
 - [Democratisch Congreslid stapt op na beschuldiging van misbruik vier vrouwen](https://www.ad.nl/buitenland/democratisch-congreslid-stapt-op-na-beschuldiging-van-misbruik-vier-vrouwen~a2d835c3/)
   > De Democratische gouverneurskandidaat in Californië Eric Swalwell zegt te zullen vertrekken uit het Huis van Afgevaardigden. Eerder schortte hij al...
 - [Voetbalpodcast | ‘De verwachting is dat Liverpool op Anfield volle bak op de aanval gaat spelen’](https://www.ad.nl/voetbal/voetbalpodcast-de-verwachting-is-dat-liverpool-op-anfield-volle-bak-op-de-aanval-gaat-spelen~ac8603a9/)
@@ -35,8 +37,6 @@
   > Een 36-jarige man uit Dronten die sinds twee jaar wordt vermist, is vermoedelijk slachtoffer geworden van een misdrijf. Dat laat de politie weten,...
 - [Oudste gorilla ter wereld viert 69e verjaardag in Berlijn](https://www.ad.nl/buitenland/oudste-gorilla-ter-wereld-viert-69e-verjaardag-in-berlijn~a1adec95/)
   > De dierentuin in Berlijn heeft maandag de 69e verjaardag van de gorilla Fatou gevierd, een uitzonderlijk hoge leeftijd voor de apensoort. Ze is...
-- [Lisandro Martínez krijgt rood na haren trekken tegen Leeds United, dat na 45 jaar weer eens wint op Old Trafford](https://www.ad.nl/voetbal/lisandro-martinez-krijgt-rood-na-haren-trekken-tegen-leeds-united-dat-na-45-jaar-weer-eens-wint-op-old-trafford~a714956d/)
-  > Manchester United heeft maandagavond op Old Trafford een pijnlijke nederlaag geleden Leeds United, dat nog strijdt tegen degradatie. De 1-2 zege is...
 
 ### Meest gelezen
 
