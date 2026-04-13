@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-04-2026 om 15:18*
+*Laatst bijgewerkt: 13-04-2026 om 17:08*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Weski bij slot van haar proces: 'Schaamteloos wat OM beweert'](https://nos.nl/l/2610330)
+  > In een emotioneel betoog heeft oud-advocaat Inez Weski de beschuldigingen aan haar adres opnieuw met klem ontkend. Vandaag was de laatste dag van...
+- [Steeds vaker meldingen van data-diefstal bij bedrijven, meer hacks of toeval?](https://nos.nl/l/2610328)
+  > Odido, Booking.com, Basic-Fit: kort na elkaar maken grote bedrijven bekend dat er gegevens zijn gestolen nadat er digitaal is ingebroken. Vinden er...
+- [Ex-top Frans cementbedrijf naar gevangenis voor financieren terrorisme](https://nos.nl/l/2610327)
+  > Een rechtbank in Parijs heeft de Franse cementproducent Lafarge veroordeeld voor het financieren van de terroristische organisaties in Syrië in 2013...
+- [Magyar combineert anti-Orbángeluid met populistische conservatieve agenda](https://nos.nl/l/2610322)
+  > Péter Magyar was twee jaar geleden nog een onbekende figuur. Dat veranderde volkomen toen hij in een veelbekeken interview de aanval opende op de...
 - [Ontboste regenwouden herstellen zich 'snel' op landbouwgrond in Ecuador](https://nos.nl/l/2610315)
   > Ontboste regenwouden herstellen zich sneller dan gedacht, blijkt uit nieuw onderzoek van de Duitse universiteit TU Darmstadt in samenwerking met...
-- [​​​​​​​GroenLinks-PvdA mag als Progressief Nederland aan Kamerverkiezingen meedoen](https://nos.nl/l/2610314)
-  > GroenLinks-PvdA mag als Progressief Nederland (Pro) aan de volgende Tweede Kamerverkiezingen meedoen. Dat heeft de Kiesraad besloten, die het verzoek...
-- [Noorse regering terug op oude nest, 15 jaar na bomaanslag Breivik](https://nos.nl/l/2610309)
-  > Een groot deel van de Noorse regering is weer gevestigd in het oude regeringscomplex in het centrum van Oslo. Het complex raakte in 2011 zwaar...
-- [Man (24) moet 8 jaar de cel in voor verkrachten en aanranden van ouderen](https://nos.nl/l/2610308)
-  > Een 24-jarige man moet acht jaar de cel in voor het verkrachten en aanranden van drie ouderen in een woonzorgcentrum in Breda. Brennan G. krijgt ook...
-- [Kabinet wil voor de zomer excuses maken aan afstandsmoeders en -kinderen](https://nos.nl/l/2610306)
-  > Het kabinet wil nog voor de zomer excuses aanbieden aan afstandsmoeders en -kinderen. Afstandsmoeders zijn vrouwen die tussen 1956 en 1984 gedwongen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Kogel is door de kerk: FC Utrecht strikt Anthony Correia als opvolger van Ron Jans](https://www.ad.nl/voetbal/kogel-is-door-de-kerk-fc-utrecht-strikt-anthony-correia-als-opvolger-van-ron-jans~af946f83/)
-  > Wat al weken in de lucht hing is nu ook door FC Utrecht bevestigd: Anthony Correia is vanaf komende zomer de nieuwe trainer. De in Paramaribo geboren...
-- [Timothy B. schoot moeder dood en maakte haar onderbenen weg: 17 jaar cel en tbs met dwang geëist](https://www.ad.nl/binnenland/timothy-b-schoot-moeder-dood-en-maakte-haar-onderbenen-weg-17-jaar-cel-en-tbs-met-dwang-geeist~a1cab090/)
-  > Het Openbaar Ministerie (OM) eist 17 jaar cel en tbs met dwangverpleging tegen Timothy B. (33) voor het doodschieten van zijn moeder in zijn woning...
-- [Spanning stijgt na ingaan van nieuwe blokkade Straat voor Hormuz, Trump dreigt met aanvallen op schepen](https://www.ad.nl/buitenland/spanning-stijgt-na-ingaan-van-nieuwe-blokkade-straat-voor-hormuz-trump-dreigt-met-aanvallen-op-schepen~ac528ac3/)
-  > De Amerikaanse president Donald Trump heeft gedreigd met aanvallen op Iraanse ‘snelle aanvalsschepen’, als die de blokkade van de Golf van Oman...
-- [Hongarije verkeert na verkiezingen in een feeststemming, en de rest van Europa ook](https://www.ad.nl/buitenland/hongarije-verkeert-na-verkiezingen-in-een-feeststemming-en-de-rest-van-europa-ook~a96253e5/)
-  > Geen enkel land in Europa kreeg zo veel aandacht voor de verkiezingen als Hongarije. En dat is logisch, vertelt verslaggever Sander van Mersbergen...
-- [Scheidsrechter blikt terug op jeugdduel, waarbij Arjen Robben voetbalvader Wilfred Genee wegduwt: ‘Jij moet je er niet mee bemoeien’](https://www.ad.nl/voetbal/scheidsrechter-blikt-terug-op-jeugdduel-waarbij-arjen-robben-voetbalvader-wilfred-genee-wegduwt-jij-moet-je-er-niet-mee-bemoeien~a50a92ae/)
-  > Een opmerkelijk voorval in de wedstrijd tussen Victoria Onder 14 - FC Groningen Onder 14 afgelopen zaterdag. In de rust haalde Robben, jeugdtrainer...
+- [Tijd voor een herwaardering van het gewone gesprek](https://www.ad.nl/commentaar/tijd-voor-een-herwaardering-van-het-gewone-gesprek~a8c73b35/)
+  > De Four Freedoms Award wordt deze week in Middelburg uitgereikt aan president Zelensky en het Oekraïense volk. Zij krijgen de prijs voor hun...
+- [Trump verwijdert AI-foto van hem als Jezus na kritiek](https://www.ad.nl/buitenland/trump-verwijdert-ai-foto-van-hem-als-jezus-na-kritiek~ae67dd9c/)
+  > Een AI-gegenereerde afbeelding van Trump als Jezus is de Amerikaanse president op veel kritiek komen te staan. De afbeelding die hij zondag op zijn...
+- [Hongarije is schade berokkend, maar de democratie is springlevend](https://www.ad.nl/binnenland/hongarije-is-schade-berokkend-maar-de-democratie-is-springlevend~a78e7b5f/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [Vader met drie banen, verbroken verloving via de telefoon: golfer Rory McIlroy zowel geniaal als ongrijpbaar](https://www.ad.nl/andere-sporten/vader-met-drie-banen-verbroken-verloving-via-de-telefoon-golfer-rory-mcilroy-zowel-geniaal-als-ongrijpbaar~a2ee1d34/)
+  > Rory McIlroy is de beste golfer van zijn generatie. Dat stond al vast toen hij op zijn 25ste zijn vierde major won. Toch zou hij tien jaar lang...
+- [Absurde en krenkende teksten: groeiende twijfel over Trump brengt 25ste amendement op tafel](https://www.ad.nl/buitenland/absurde-en-krenkende-teksten-groeiende-twijfel-over-trump-brengt-25ste-amendement-op-tafel~a4315d85/)
+  > Langzaam klinkt in de Verenigde Staten de roep om Donald Trump uit zijn functie te zetten, ook aan Republikeinse kant. Directe aanleiding is zijn...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Hongarije werd onder Orbán het ‘meest corrupte land van de EU’](https://fd.nl/politiek/1592735/hongarije-werd-onder-orban-het-meest-corrupte-land-van-de-eu)
-  > Viktor Orbán is met een termijn van zestien jaar de langstzittende regeringsleider van alle EU-landen.
-- [Hackers breken in bij Booking.com en Basic-Fit](https://fd.nl/tech-en-innovatie/1592820/hackers-breken-in-bij-booking-com-en-basic-fit)
-  > Bij Basic-Fit maakten hackers klantgegevens van een miljoen klanten buit. Bij Booking.com kregen ze toegang tot boekingsgegevens van een onbekend...
-- [Onderzoeker Daniël van Vuuren kan niet zonder wiskunde](https://fd.nl/bedrijfsleven/1592303/onderzoeker-daniel-van-vuuren-zweert-bij-zuiver-denken)
-  > Sinds 1 april is Daniël van Vuuren directeur van onderzoeksbureau SEO Economisch Onderzoek. Hij houdt van wiskunde en zoekt fanatiek naar feiten en...
-- [Kyndryl ziet claims opdoemen](https://fd.nl/financiele-markten/1592815/kyndryl-ziet-claims-opdoemen)
-  > De Amerikaanse koper van DigiD-toeleverancier Solvinity wacht claimzaken over geklungel in de boekhouding. Wellicht komt een streep door de overname...
-- [Sportcity maakt weer verlies, maar wel minder](https://fd.nl/bedrijfsleven/1592818/sportcity-maakt-weer-verlies-maar-wel-minder)
-  > De inkomsten groeien bij de op een na grootste sportscholenketen van Nederland, maar er zijn nog steeds rode cijfers.
+- [Lagere omzet voor LVMH in Golfregio](https://fd.nl/bedrijfsleven/1592743/lagere-omzet-voor-lvmh-in-golfregio)
+  > De omzet in de Golfregio daalde en veel rijke toeristen uit die regio gaven ook minder uit in Europa.
+- [Amerikaanse farmaceut MSD profiteert in Nederland van miljarden aan belastingvoordeel. Hoe zit dat?](https://fd.nl/bedrijfsleven/1592732/amerikaanse-farmaceut-msd-profiteert-in-nederland-van-miljarden-aan-belastingvoordeel-hoe-zit-dat)
+  > Het Amerikaanse farmaconcern MSD ontvangt in Nederland dankzij een fiscale regeling voor innoverende bedrijven miljarden euro’s belastingkorting. Wat...
+- [Amerikaanse blokkade van de Straat van Hormuz formeel ingegaan](https://fd.nl/politiek/1592742/amerikaanse-blokkade-van-de-straat-van-hormuz-formeel-ingegaan)
+  > De VS zijn in staat om zo’n blokkade af te dwingen, schatten experts in.
+- [Goldman Sachs verwacht slechtere resultaten door Iran-oorlog](https://fd.nl/financiele-markten/1592816/goldman-sachs-verwacht-slechtere-resultaten-door-iran-oorlog)
+  > De grootste zakenbank van de Verenigde Staten boekt meer winst, maar beleggers zijn bezorgd over beursgangen en verliezen bij de obligatiehandel.
+- [Damrak trekt met Tsjechische wapenproducent Colt CZ een derde defensiebedrijf](https://fd.nl/financiele-markten/1592739/damrak-trekt-met-tsjechische-wapenproducent-colt-cz-een-derde-defensiebedrijf)
+  > Colt CZ staat ook genoteerd aan de Prague Stock Exchange en krijgt woensdag een tweede notering aan de Euronext Amsterdam.
 
 ### Meest gelezen
 
