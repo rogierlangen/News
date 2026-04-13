@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-04-2026 om 19:19*
+*Laatst bijgewerkt: 13-04-2026 om 20:59*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Eerste veroordeling in Senegal onder strengere anti-lhbti-wet](https://nos.nl/l/2610343)
-  > In Senegal is voor het eerst een persoon veroordeeld onder de strengere anti-lhbti-wet, die vorige maand in werking trad. Dat meldt persbureau AP. De...
-- [Olielek Antwerpen: opruimen olie in Zeeland kan weken duren](https://nos.nl/l/2610342)
-  > Het grote olielek in de Antwerpse haven heeft ook natuurgebieden in Zeeland vervuild. De opruimwerkzaamheden beginnen morgen en gaan naar verwachting...
-- [Eerst zien, dan geloven: Brussel is voorzichtig optimistisch over winst Magyar](https://nos.nl/l/2610341)
-  > De opluchting spat ervan af bij de Europese Commissie. "Jullie hebben het weer gedaan, ondanks alle tegenwerking", zei Ursula von der Leyen, als...
-- [Staking Lufthansa breidt zich uit, ook komende dagen forse hinder voor reizigers](https://nos.nl/l/2610340)
-  > Reizigers die met de Duitse luchtvaartmaatschappij Lufthansa vliegen, moeten ook de komende dagen rekening houden met aanhoudende problemen. Nadat...
-- [Waterschap Limburg ontwikkelt 'nieuwe techniek' die meer medicijnresten verwijdert](https://nos.nl/l/2610339)
-  > Het Waterschap Limburg heeft naar eigen zeggen een nieuwe techniek ontwikkeld die veel meer medicijnresten uit het rioolwater kan halen. Volgens het...
+- [Colombia kondigt plan aan om nijlpaarden van drugsbaron Escobar af te schieten](https://nos.nl/l/2610351)
+  > In Colombia is een plan goedgekeurd om tientallen nijlpaarden af te schieten. De nijlpaarden zijn een van de vele nalatenschappen van drugsbaron...
+- [Opnieuw onschuldige als verdachte in beeld bij Opsporing Verzocht](https://nos.nl/l/2610350)
+  > In tv-programma Opsporing Verzocht is vorige week een jongen ten onrechte getoond als verdachte van een zware mishandeling. De makers van het...
+- [Regenboogvlag weer toegestaan bij New Yorks lhbti-monument](https://nos.nl/l/2610349)
+  > De Amerikaanse regering gaat toch weer akkoord met het hijsen van de regenboogvlag in de vlaggenmast van de staat bij The Stonewall Inn-bar in New...
+- [Amerikaanse zeeblokkade Iran ingegaan, twee schepen omgekeerd](https://nos.nl/l/2610347)
+  > De Amerikaanse zeeblokkade van Iraanse havens en kustplaatsen is vanmiddag om 16.00 uur Nederlandse tijd ingegaan. Kort daarna dreigde de Amerikaanse...
+- [ICE houdt voormalige Braziliaanse inlichtingenchef aan](https://nos.nl/l/2610345)
+  > Amerikaanse en Braziliaanse media melden de aanhouding in de VS van Alexandre Ramagem, een voormalig parlementslid en een oud-chef van de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Anthony Correia kiest met FC Utrecht voor club waar hij van droomde: ‘Deze vervolgstap zag ik vier jaar geleden al voor mezelf’](https://www.ad.nl/voetbal/anthony-correia-kiest-met-fc-utrecht-voor-club-waar-hij-van-droomde-deze-vervolgstap-zag-ik-vier-jaar-geleden-al-voor-mezelf~a734b1d5/)
-  > Met het vastleggen van Telstar-trainer Anthony Correia wil FC Utrecht komende jaren doorgroeien en de strijd aan blijven gaan met clubs als AZ en FC...
-- [Vitesse verdubbelt voorsprong in uitwedstrijd bij Jong FC Utrecht](https://www.ad.nl/voetbal/vitesse-verdubbelt-voorsprong-in-uitwedstrijd-bij-jong-fc-utrecht~a3a93db2/)
-  > Drie wedstrijden in de Keuken Kampioen Divisie vanavond. Met name voor Vitesse staat er veel op het spel. De Arnhemse club, die aan het begin van het...
-- [Okafor zet Leeds United na vijf minuten op voorsprong tegen Manchester United](https://www.ad.nl/voetbal/okafor-zet-leeds-united-na-vijf-minuten-op-voorsprong-tegen-manchester-united~a714956d/)
-  > Manchester United speelt op Old Trafford tegen Leeds United, dat nog tegen degradatie vecht. Volg hier ons liveblog van het laatste duel in...
-- [Geen tanks, wél macht: waarom Donald Trump voorzichtig moet zijn met kritiek op de paus](https://www.ad.nl/buitenland/geen-tanks-wel-macht-waarom-donald-trump-voorzichtig-moet-zijn-met-kritiek-op-de-paus~a06b59c3/)
-  > Een Amerikaanse president die openlijk de paus aanvalt: het is ongehoord. Toch is Donald Trump bepaald niet de eerste machthebber die zich tegen het...
-- [Tombola op de linkerflank bij Feyenoord: negen spelers kregen de kans, maar niemand kon overtuigen](https://www.ad.nl/voetbal/tombola-op-de-linkerflank-bij-feyenoord-negen-spelers-kregen-de-kans-maar-niemand-kon-overtuigen~ad819849/)
-  > Met Tobias van den Elshout toverde Robin van Persie de zoveelste linksbuiten uit de hoge hoed dit seizoen. De jeugdinternational is opgeleid als...
+- [Manchester United verliest thuis van laagvlieger Leeds United, Lisandro Martínez krijgt rood voor haren trekken](https://www.ad.nl/voetbal/manchester-united-verliest-thuis-van-laagvlieger-leeds-united-lisandro-martinez-krijgt-rood-voor-haren-trekken~a714956d/)
+  > Manchester United heeft maandagavond op Old Trafford een pijnlijke nederlaag geleden Leeds United, dat nog strijdt tegen degradatie. Voor het eerst...
+- [Meerderheid voor asielwetten? CDA speelt sleutelrol](https://www.ad.nl/politiek/meerderheid-voor-asielwetten-cda-speelt-sleutelrol~a3fd9ec9/)
+  > Het lot van de strenge asielwetten lijkt in de Eerste Kamer in handen te liggen van het CDA. Minister Bart van den Brink (Asiel, CDA) is nog niet...
+- [Wilfred Genee reageert op duw Arjen Robben tijdens jeugdduel: ‘Hij stond de scheidsrechter stijf te schelden’](https://www.ad.nl/voetbal/wilfred-genee-reageert-op-duw-arjen-robben-tijdens-jeugdduel-hij-stond-de-scheidsrechter-stijf-te-schelden~a50a92ae/)
+  > Een opmerkelijk voorval in de wedstrijd tussen Victoria Onder 14 - FC Groningen onder 14 afgelopen zaterdag. In de rust haalde Robben, jeugdtrainer...
+- [Tegenslag op tegenslag voor weduwe Jolien in Kopen zonder kijken: ‘Best stress over gehad’](https://www.ad.nl/show/tegenslag-op-tegenslag-voor-weduwe-jolien-in-kopen-zonder-kijken-best-stress-over-gehad~a9001e7f/)
+  > Na het overlijden van haar man lukt het Jolien niet om een nieuw huis te vinden voor zichzelf en haar zoontje. Ze schakelt noodgedwongen de hulp van...
+- [Vitesse kan play-offs ruiken na bewogen seizoen: Arnhemmers grijpen koppositie in periodestand](https://www.ad.nl/voetbal/vitesse-kan-play-offs-ruiken-na-bewogen-seizoen-arnhemmers-grijpen-koppositie-in-periodestand~a3a93db2/)
+  > Een zeer bewogen seizoen kan voor Vitesse zomaar een bijzonder einde krijgen. De Arnhemse club, die afgelopen zomer nog dood en begraven leek, won...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Zeeland start met opruimen gelekte stookolie](https://fd.nl/bedrijfsleven/1592749/zeeland-start-met-opruimen-gelekte-stookolie)
+  > Hoe de stookolie in het water belandde is nog onduidelijk, maar de schoonmaak zal weken duren.
+- [Wall Street stijgt na Trumps claim over toenadering Iran](https://fd.nl/financiele-markten/1592748/wall-street-stijgt-na-trumps-claim-over-toenadering-iran)
+  > De Dow Jones pluste einde van de dag 0,4%, de Nasdaq 1,09%, en de S&P 500 0,8%.
 - [Rijksambtenaren gaan staken in de strijd tegen de nullijn](https://fd.nl/politiek/1592744/zeker-nu-is-de-nullijn-uit-den-boze-vinden-rijksambtenaren)
   > De Tweede Kamer veegde de agenda leeg, de ministeries worden niet schoongemaakt: rijksambtenaren zijn boos en dat moeten ze merken in Den Haag.
 - [Hoge belastingkorting voor MSD roept vragen op](https://fd.nl/opinie/1592817/hoge-belastingkorting-voor-msd-roept-vragen-op)
   > Amerikaanse farmaceut kreeg afgelopen jaren €4 mrd aan voordelen uit de innovatiebox, terwijl zijn R&D-afdelingen in Nederland vrijwel zijn verdwenen.
 - [Moet de Nederlandse marine de Straat van Hormuz schoonvegen?](https://fd.nl/politiek/1592807/moet-de-nederlandse-marine-de-straat-van-hormuz-schoonvegen)
   > Nu de Straat van Hormuz dicht blijft, kijken de VS voor hulp bij het bestrijden van mijnen onder meer naar de Koninklijke Marine.
-- [Lagere omzet voor LVMH in Golfregio](https://fd.nl/bedrijfsleven/1592743/lagere-omzet-voor-lvmh-in-golfregio)
-  > De omzet in de Golfregio daalde en veel rijke toeristen uit die regio gaven ook minder uit in Europa.
-- [Amerikaanse farmaceut MSD profiteert in Nederland van miljarden aan belastingvoordeel. Hoe zit dat?](https://fd.nl/bedrijfsleven/1592732/amerikaanse-farmaceut-msd-profiteert-in-nederland-van-miljarden-aan-belastingvoordeel-hoe-zit-dat)
-  > Het Amerikaanse farmaconcern MSD ontvangt in Nederland dankzij een fiscale regeling voor innoverende bedrijven miljarden euro’s belastingkorting. Wat...
 
 ### Meest gelezen
 
