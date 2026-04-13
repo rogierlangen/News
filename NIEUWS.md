@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-04-2026 om 17:08*
+*Laatst bijgewerkt: 13-04-2026 om 19:19*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Weski bij slot van haar proces: 'Schaamteloos wat OM beweert'](https://nos.nl/l/2610330)
-  > In een emotioneel betoog heeft oud-advocaat Inez Weski de beschuldigingen aan haar adres opnieuw met klem ontkend. Vandaag was de laatste dag van...
-- [Steeds vaker meldingen van data-diefstal bij bedrijven, meer hacks of toeval?](https://nos.nl/l/2610328)
-  > Odido, Booking.com, Basic-Fit: kort na elkaar maken grote bedrijven bekend dat er gegevens zijn gestolen nadat er digitaal is ingebroken. Vinden er...
-- [Ex-top Frans cementbedrijf naar gevangenis voor financieren terrorisme](https://nos.nl/l/2610327)
-  > Een rechtbank in Parijs heeft de Franse cementproducent Lafarge veroordeeld voor het financieren van de terroristische organisaties in Syrië in 2013...
-- [Magyar combineert anti-Orbángeluid met populistische conservatieve agenda](https://nos.nl/l/2610322)
-  > Péter Magyar was twee jaar geleden nog een onbekende figuur. Dat veranderde volkomen toen hij in een veelbekeken interview de aanval opende op de...
-- [Ontboste regenwouden herstellen zich 'snel' op landbouwgrond in Ecuador](https://nos.nl/l/2610315)
-  > Ontboste regenwouden herstellen zich sneller dan gedacht, blijkt uit nieuw onderzoek van de Duitse universiteit TU Darmstadt in samenwerking met...
+- [Eerste veroordeling in Senegal onder strengere anti-lhbti-wet](https://nos.nl/l/2610343)
+  > In Senegal is voor het eerst een persoon veroordeeld onder de strengere anti-lhbti-wet, die vorige maand in werking trad. Dat meldt persbureau AP. De...
+- [Olielek Antwerpen: opruimen olie in Zeeland kan weken duren](https://nos.nl/l/2610342)
+  > Het grote olielek in de Antwerpse haven heeft ook natuurgebieden in Zeeland vervuild. De opruimwerkzaamheden beginnen morgen en gaan naar verwachting...
+- [Eerst zien, dan geloven: Brussel is voorzichtig optimistisch over winst Magyar](https://nos.nl/l/2610341)
+  > De opluchting spat ervan af bij de Europese Commissie. "Jullie hebben het weer gedaan, ondanks alle tegenwerking", zei Ursula von der Leyen, als...
+- [Staking Lufthansa breidt zich uit, ook komende dagen forse hinder voor reizigers](https://nos.nl/l/2610340)
+  > Reizigers die met de Duitse luchtvaartmaatschappij Lufthansa vliegen, moeten ook de komende dagen rekening houden met aanhoudende problemen. Nadat...
+- [Waterschap Limburg ontwikkelt 'nieuwe techniek' die meer medicijnresten verwijdert](https://nos.nl/l/2610339)
+  > Het Waterschap Limburg heeft naar eigen zeggen een nieuwe techniek ontwikkeld die veel meer medicijnresten uit het rioolwater kan halen. Volgens het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tijd voor een herwaardering van het gewone gesprek](https://www.ad.nl/commentaar/tijd-voor-een-herwaardering-van-het-gewone-gesprek~a8c73b35/)
-  > De Four Freedoms Award wordt deze week in Middelburg uitgereikt aan president Zelensky en het Oekraïense volk. Zij krijgen de prijs voor hun...
-- [Trump verwijdert AI-foto van hem als Jezus na kritiek](https://www.ad.nl/buitenland/trump-verwijdert-ai-foto-van-hem-als-jezus-na-kritiek~ae67dd9c/)
-  > Een AI-gegenereerde afbeelding van Trump als Jezus is de Amerikaanse president op veel kritiek komen te staan. De afbeelding die hij zondag op zijn...
-- [Hongarije is schade berokkend, maar de democratie is springlevend](https://www.ad.nl/binnenland/hongarije-is-schade-berokkend-maar-de-democratie-is-springlevend~a78e7b5f/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Vader met drie banen, verbroken verloving via de telefoon: golfer Rory McIlroy zowel geniaal als ongrijpbaar](https://www.ad.nl/andere-sporten/vader-met-drie-banen-verbroken-verloving-via-de-telefoon-golfer-rory-mcilroy-zowel-geniaal-als-ongrijpbaar~a2ee1d34/)
-  > Rory McIlroy is de beste golfer van zijn generatie. Dat stond al vast toen hij op zijn 25ste zijn vierde major won. Toch zou hij tien jaar lang...
-- [Absurde en krenkende teksten: groeiende twijfel over Trump brengt 25ste amendement op tafel](https://www.ad.nl/buitenland/absurde-en-krenkende-teksten-groeiende-twijfel-over-trump-brengt-25ste-amendement-op-tafel~a4315d85/)
-  > Langzaam klinkt in de Verenigde Staten de roep om Donald Trump uit zijn functie te zetten, ook aan Republikeinse kant. Directe aanleiding is zijn...
+- [Anthony Correia kiest met FC Utrecht voor club waar hij van droomde: ‘Deze vervolgstap zag ik vier jaar geleden al voor mezelf’](https://www.ad.nl/voetbal/anthony-correia-kiest-met-fc-utrecht-voor-club-waar-hij-van-droomde-deze-vervolgstap-zag-ik-vier-jaar-geleden-al-voor-mezelf~a734b1d5/)
+  > Met het vastleggen van Telstar-trainer Anthony Correia wil FC Utrecht komende jaren doorgroeien en de strijd aan blijven gaan met clubs als AZ en FC...
+- [Vitesse verdubbelt voorsprong in uitwedstrijd bij Jong FC Utrecht](https://www.ad.nl/voetbal/vitesse-verdubbelt-voorsprong-in-uitwedstrijd-bij-jong-fc-utrecht~a3a93db2/)
+  > Drie wedstrijden in de Keuken Kampioen Divisie vanavond. Met name voor Vitesse staat er veel op het spel. De Arnhemse club, die aan het begin van het...
+- [Okafor zet Leeds United na vijf minuten op voorsprong tegen Manchester United](https://www.ad.nl/voetbal/okafor-zet-leeds-united-na-vijf-minuten-op-voorsprong-tegen-manchester-united~a714956d/)
+  > Manchester United speelt op Old Trafford tegen Leeds United, dat nog tegen degradatie vecht. Volg hier ons liveblog van het laatste duel in...
+- [Geen tanks, wél macht: waarom Donald Trump voorzichtig moet zijn met kritiek op de paus](https://www.ad.nl/buitenland/geen-tanks-wel-macht-waarom-donald-trump-voorzichtig-moet-zijn-met-kritiek-op-de-paus~a06b59c3/)
+  > Een Amerikaanse president die openlijk de paus aanvalt: het is ongehoord. Toch is Donald Trump bepaald niet de eerste machthebber die zich tegen het...
+- [Tombola op de linkerflank bij Feyenoord: negen spelers kregen de kans, maar niemand kon overtuigen](https://www.ad.nl/voetbal/tombola-op-de-linkerflank-bij-feyenoord-negen-spelers-kregen-de-kans-maar-niemand-kon-overtuigen~ad819849/)
+  > Met Tobias van den Elshout toverde Robin van Persie de zoveelste linksbuiten uit de hoge hoed dit seizoen. De jeugdinternational is opgeleid als...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Rijksambtenaren gaan staken in de strijd tegen de nullijn](https://fd.nl/politiek/1592744/zeker-nu-is-de-nullijn-uit-den-boze-vinden-rijksambtenaren)
+  > De Tweede Kamer veegde de agenda leeg, de ministeries worden niet schoongemaakt: rijksambtenaren zijn boos en dat moeten ze merken in Den Haag.
+- [Hoge belastingkorting voor MSD roept vragen op](https://fd.nl/opinie/1592817/hoge-belastingkorting-voor-msd-roept-vragen-op)
+  > Amerikaanse farmaceut kreeg afgelopen jaren €4 mrd aan voordelen uit de innovatiebox, terwijl zijn R&D-afdelingen in Nederland vrijwel zijn verdwenen.
+- [Moet de Nederlandse marine de Straat van Hormuz schoonvegen?](https://fd.nl/politiek/1592807/moet-de-nederlandse-marine-de-straat-van-hormuz-schoonvegen)
+  > Nu de Straat van Hormuz dicht blijft, kijken de VS voor hulp bij het bestrijden van mijnen onder meer naar de Koninklijke Marine.
 - [Lagere omzet voor LVMH in Golfregio](https://fd.nl/bedrijfsleven/1592743/lagere-omzet-voor-lvmh-in-golfregio)
   > De omzet in de Golfregio daalde en veel rijke toeristen uit die regio gaven ook minder uit in Europa.
 - [Amerikaanse farmaceut MSD profiteert in Nederland van miljarden aan belastingvoordeel. Hoe zit dat?](https://fd.nl/bedrijfsleven/1592732/amerikaanse-farmaceut-msd-profiteert-in-nederland-van-miljarden-aan-belastingvoordeel-hoe-zit-dat)
   > Het Amerikaanse farmaconcern MSD ontvangt in Nederland dankzij een fiscale regeling voor innoverende bedrijven miljarden euro’s belastingkorting. Wat...
-- [Amerikaanse blokkade van de Straat van Hormuz formeel ingegaan](https://fd.nl/politiek/1592742/amerikaanse-blokkade-van-de-straat-van-hormuz-formeel-ingegaan)
-  > De VS zijn in staat om zo’n blokkade af te dwingen, schatten experts in.
-- [Goldman Sachs verwacht slechtere resultaten door Iran-oorlog](https://fd.nl/financiele-markten/1592816/goldman-sachs-verwacht-slechtere-resultaten-door-iran-oorlog)
-  > De grootste zakenbank van de Verenigde Staten boekt meer winst, maar beleggers zijn bezorgd over beursgangen en verliezen bij de obligatiehandel.
-- [Damrak trekt met Tsjechische wapenproducent Colt CZ een derde defensiebedrijf](https://fd.nl/financiele-markten/1592739/damrak-trekt-met-tsjechische-wapenproducent-colt-cz-een-derde-defensiebedrijf)
-  > Colt CZ staat ook genoteerd aan de Prague Stock Exchange en krijgt woensdag een tweede notering aan de Euronext Amsterdam.
 
 ### Meest gelezen
 
