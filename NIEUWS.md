@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-04-2026 om 20:59*
+*Laatst bijgewerkt: 13-04-2026 om 21:57*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Koningspaar dineert met Trump, Willem-Alexander verwacht 'fantastische avond'](https://nos.nl/l/2610356)
+  > Vanavond schuiven koning Willem-Alexander en koningin Máxima aan voor hun veelbesproken diner in het Witte Huis met de Amerikaanse president Trump,...
 - [Colombia kondigt plan aan om nijlpaarden van drugsbaron Escobar af te schieten](https://nos.nl/l/2610351)
   > In Colombia is een plan goedgekeurd om tientallen nijlpaarden af te schieten. De nijlpaarden zijn een van de vele nalatenschappen van drugsbaron...
 - [Opnieuw onschuldige als verdachte in beeld bij Opsporing Verzocht](https://nos.nl/l/2610350)
@@ -16,8 +18,6 @@
   > De Amerikaanse regering gaat toch weer akkoord met het hijsen van de regenboogvlag in de vlaggenmast van de staat bij The Stonewall Inn-bar in New...
 - [Amerikaanse zeeblokkade Iran ingegaan, twee schepen omgekeerd](https://nos.nl/l/2610347)
   > De Amerikaanse zeeblokkade van Iraanse havens en kustplaatsen is vanmiddag om 16.00 uur Nederlandse tijd ingegaan. Kort daarna dreigde de Amerikaanse...
-- [ICE houdt voormalige Braziliaanse inlichtingenchef aan](https://nos.nl/l/2610345)
-  > Amerikaanse en Braziliaanse media melden de aanhouding in de VS van Alexandre Ramagem, een voormalig parlementslid en een oud-chef van de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Manchester United verliest thuis van laagvlieger Leeds United, Lisandro Martínez krijgt rood voor haren trekken](https://www.ad.nl/voetbal/manchester-united-verliest-thuis-van-laagvlieger-leeds-united-lisandro-martinez-krijgt-rood-voor-haren-trekken~a714956d/)
-  > Manchester United heeft maandagavond op Old Trafford een pijnlijke nederlaag geleden Leeds United, dat nog strijdt tegen degradatie. Voor het eerst...
+- [Oudste gorilla ter wereld viert 69e verjaardag in Berlijn](https://www.ad.nl/buitenland/oudste-gorilla-ter-wereld-viert-69e-verjaardag-in-berlijn~a1adec95/)
+  > De dierentuin in Berlijn heeft maandag de 69e verjaardag van de gorilla Fatou gevierd, een uitzonderlijk hoge leeftijd voor de apensoort. Ze is...
+- [Lisandro Martínez krijgt rood na haren trekken tegen Leeds United, dat na 45 jaar weer eens wint op Old Trafford](https://www.ad.nl/voetbal/lisandro-martinez-krijgt-rood-na-haren-trekken-tegen-leeds-united-dat-na-45-jaar-weer-eens-wint-op-old-trafford~a714956d/)
+  > Manchester United heeft maandagavond op Old Trafford een pijnlijke nederlaag geleden Leeds United, dat nog strijdt tegen degradatie. De 1-2 zege is...
 - [Meerderheid voor asielwetten? CDA speelt sleutelrol](https://www.ad.nl/politiek/meerderheid-voor-asielwetten-cda-speelt-sleutelrol~a3fd9ec9/)
   > Het lot van de strenge asielwetten lijkt in de Eerste Kamer in handen te liggen van het CDA. Minister Bart van den Brink (Asiel, CDA) is nog niet...
 - [Wilfred Genee reageert op duw Arjen Robben tijdens jeugdduel: ‘Hij stond de scheidsrechter stijf te schelden’](https://www.ad.nl/voetbal/wilfred-genee-reageert-op-duw-arjen-robben-tijdens-jeugdduel-hij-stond-de-scheidsrechter-stijf-te-schelden~a50a92ae/)
   > Een opmerkelijk voorval in de wedstrijd tussen Victoria Onder 14 - FC Groningen onder 14 afgelopen zaterdag. In de rust haalde Robben, jeugdtrainer...
 - [Tegenslag op tegenslag voor weduwe Jolien in Kopen zonder kijken: ‘Best stress over gehad’](https://www.ad.nl/show/tegenslag-op-tegenslag-voor-weduwe-jolien-in-kopen-zonder-kijken-best-stress-over-gehad~a9001e7f/)
   > Na het overlijden van haar man lukt het Jolien niet om een nieuw huis te vinden voor zichzelf en haar zoontje. Ze schakelt noodgedwongen de hulp van...
-- [Vitesse kan play-offs ruiken na bewogen seizoen: Arnhemmers grijpen koppositie in periodestand](https://www.ad.nl/voetbal/vitesse-kan-play-offs-ruiken-na-bewogen-seizoen-arnhemmers-grijpen-koppositie-in-periodestand~a3a93db2/)
-  > Een zeer bewogen seizoen kan voor Vitesse zomaar een bijzonder einde krijgen. De Arnhemse club, die afgelopen zomer nog dood en begraven leek, won...
 
 ### Meest gelezen
 
