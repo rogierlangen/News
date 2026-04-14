@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-04-2026 om 20:59*
+*Laatst bijgewerkt: 14-04-2026 om 22:00*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Man doodgestoken op straat in Amsterdam](https://nos.nl/l/2610483)
+  > In Amsterdam is een man doodgestoken op straat. Dat gebeurde op de Tugelaweg in Amsterdam-Oost. De politie is op zoek naar één verdachte, meldt NH...
 - [Staking Lufthansa opnieuw uitgebreid, stakingen gaan door tot vrijdag](https://nos.nl/l/2610474)
   > De piloten van de Duitse luchtvaartmaatschappij Lufthansa gaan eind deze week opnieuw staken. De pilotenvakbond Vereinigung Cockpit (VC) heeft gemeld...
 - [Van Washington door naar Londen: Jetten op kennismakingsbezoek bij Starmer](https://nos.nl/l/2610468)
@@ -16,8 +18,6 @@
   > Bij de kunstbeurs Tefaf in Maastricht is een man staande gehouden die meerdere messen bij zich had. De man bleek een stuk onschuldiger dan verwacht,...
 - [Fransman krijgt schilderij van Picasso in handen met lot van 100 euro](https://nos.nl/l/2610463)
   > De Fransman Ari Hodara heeft voor 100 euro een schilderij van Picasso gekocht. De man was een van de deelnemers aan de verloting van het kunstwerk....
-- [Op het menu bij de Trumps: spinaziesoep, noordzeetong en cola light](https://nos.nl/l/2610461)
-  > Het leek er gisteren even op dat het koninklijk paar en premier Jetten op bezoek bij de Amerikaanse president Trump en zijn vrouw Melania een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Barça staat na rode kaart voor zware opgave in Madrid, Atlético op drempel van halve finale](https://www.ad.nl/voetbal/barca-staat-na-rode-kaart-voor-zware-opgave-in-madrid-atletico-op-drempel-van-halve-finale~a95b48359/)
-  > FC Barcelona beleefde vorige week een belabberde avond tegen Atlético Madrid. In eigen huis werd met 0-2 verloren. De koploper van La Liga hoopt die...
-- [Opruimen dode potvis wordt nog een hele klus: ‘Alleen al de kop weegt tussen de 6000 en 8000 kilo’](https://www.ad.nl/binnenland/opruimen-dode-potvis-wordt-nog-een-hele-klus-alleen-al-de-kop-weegt-tussen-de-6000-en-8000-kilo~a3313c36/)
-  > De dode potvis die al sinds maandag voor de Schouwse kust dreef, is dinsdagavond door de KNRM aan land gebracht. Het dier ligt nu op het strand bij...
-- [Sylvie toont beelden van extravagante verjaardagsfuif, Herman is trots op Joost Klein](https://www.ad.nl/show/sylvie-toont-beelden-van-extravagante-verjaardagsfuif-herman-is-trots-op-joost-klein~ac6f6fd0/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Oranje Leeuwinnen stunten tegen  Frankrijk en doen volop mee om directe plaatsing voor WK](https://www.ad.nl/voetbal/oranje-leeuwinnen-stunten-tegen-frankrijk-en-doen-volop-mee-om-directe-plaatsing-voor-wk~a18b8bc6b/)
-  > De Oranje Leeuwinnen hebben voor een enorme stunt gezorgd in de WK-kwalificatie. In Breda was de gehavende selectie van bondscoach Arjan Veurink met...
-- [PSG schiet hoop van Liverpool en Arne Slot aan duigen: Dembélé scoort op Anfield](https://www.ad.nl/voetbal/psg-schiet-hoop-van-liverpool-en-arne-slot-aan-duigen-dembele-scoort-op-anfield~ac90bad7/)
-  > Arne Slot staat met Liverpool op de rand van uitschakeling in de Champions League. In de return van de kwartfinales moet tegen titelhouder Paris...
+- [Eerste halvefinalisten zijn bekend: hier kun je de laatste kwartfinales bekijken en zo staat het ervoor](https://www.ad.nl/voetbal/eerste-halvefinalisten-zijn-bekend-hier-kun-je-de-laatste-kwartfinales-bekijken-en-zo-staat-het-ervoor~abcdba15/)
+  > In de Champions League staan deze week de kwartfinales op het programma. Dinsdagavond pakten Atlético Madrid en titelhouder Paris Saint-Germain de...
+- [Frenkie de Jong evenaart Phillip Cocu als Nederlander met meeste wedstrijden voor FC Barcelona](https://www.ad.nl/voetbal/frenkie-de-jong-evenaart-phillip-cocu-als-nederlander-met-meeste-wedstrijden-voor-fc-barcelona~ae5f2996/)
+  > Frenkie de Jong viel dinsdag in bij FC Barcelona tegen Atlético Madrid en kwam daarmee op 292 wedstrijden voor de club. De Jong is nu samen met...
+- [Droomstart Barça krijgt geen vervolg, Atlético houdt schade beperkt en staat in halve finale Champions League](https://www.ad.nl/voetbal/droomstart-barca-krijgt-geen-vervolg-atletico-houdt-schade-beperkt-en-staat-in-halve-finale-champions-league~a95b48359/)
+  > In een zinderend Spaans stierengevecht overleefde Atlético Madrid de stoten van FC Barcelona. Ondanks de 1-2 nederlaag schakelden de Madrilenen de...
+- [Arne Slot en Liverpool zien ook laatste kans op prijs verdampen na nieuwe nederlaag tegen PSG](https://www.ad.nl/voetbal/arne-slot-en-liverpool-zien-ook-laatste-kans-op-prijs-verdampen-na-nieuwe-nederlaag-tegen-psg~ac90bad7/)
+  > Liverpool maakte er tegen Paris Saint-Germain veel meer een wedstrijd van dan een week eerder in Parijs. Toch bleef de Franse ploeg overeind en won...
+- [Man doodgestoken in Amsterdam-Oost](https://www.ad.nl/binnenland/man-doodgestoken-in-amsterdam-oost~a7050751/)
+  > Bij een steekpartij op de Tugelaweg in Amsterdam-Oost is dinsdagavond een man overleden. Er zijn nog geen verdachten aangehouden.
 
 ### Meest gelezen
 
