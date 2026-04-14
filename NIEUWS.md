@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-04-2026 om 17:15*
+*Laatst bijgewerkt: 14-04-2026 om 19:23*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Wereldeconomie dreigt te ontsporen als oorlog in Midden-Oosten lang aanhoudt](https://nos.nl/l/2610450)
-  > De wereldeconomie stond er tot voor kort redelijk goed voor maar de oorlog in het Midden-Oosten maakt alles anders. Ook een recessie is niet meer uit...
-- [Man in rolstoel in brand gestoken in Utrecht, zwaargewond](https://nos.nl/l/2610448)
-  > In Utrecht is vanmiddag een man in een elektrische rolstoel door een of meerdere personen in brand gestoken. Dat bevestigt de politie na...
-- [Man (25) uit Den Bosch opgepakt op verdenking van voorbereiden aanslag](https://nos.nl/l/2610444)
-  > De politie heeft een 25-jarige man uit Den Bosch opgepakt omdat hij mogelijk een terroristische aanslag wilde plegen, meldt het Openbaar Ministerie....
-- [Humem (11) overleefde dagen onder puin Turkse beving, trauma speelt hem parten in azc](https://nos.nl/l/2610439)
-  > Vier dagen lag de destijds 8-jarige Humem onder het puin na de zware aardbeving in Turkije en Syrië in 2023. Hij overleefde de ramp, maar hield er...
-- [Energieagentschap ziet 'grootste ontwrichting van de oliemarkt in de geschiedenis'](https://nos.nl/l/2610436)
-  > Vanwege hoge prijzen en tekorten daalt de wereldwijde vraag naar olie voor het eerst sinds de coronapandemie in 2020. Het International...
+- [Fransman krijgt schilderij van Picasso in handen met lot van 100 euro](https://nos.nl/l/2610463)
+  > De Fransman Ari Hodara heeft voor 100 euro een schilderij van Picasso gekocht. De man was een van de deelnemers aan de verloting van het kunstwerk....
+- [Op het menu bij de Trumps: spinaziesoep, noordzeetong en cola light](https://nos.nl/l/2610461)
+  > Het leek er gisteren even op dat het koninklijk paar en premier Jetten op bezoek bij de Amerikaanse president Trump en zijn vrouw Melania een...
+- [BBC: Griekse politie zette gemaskerde migranten in voor 'pushbacks' migranten](https://nos.nl/l/2610458)
+  > De politie in Griekenland rekruteert migranten om andere migranten op een gewelddadige manier terug te sturen over de landgrens met Turkije. Dat...
+- [Brussel dreigt met intrekken subsidie Biënnale Venetië als Rusland meedoet](https://nos.nl/l/2610457)
+  > Brussel dreigt de subsidie voor de Biënnale Venetië in te trekken als Rusland dit jaar mag meedoen. De 61e editie van de prestigieuze kunstexpositie...
+- [PVV dreigt in Eerste Kamer asielwetten niet te steunen](https://nos.nl/l/2610454)
+  > De PVV dreigt in de Eerste Kamer tegen de asielwetten te stemmen als er geen strengere asielmaatregelen komen. "Er moet meer gebeuren dan hier nu...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Verhoeven in Londen voor het eerst oog in oog met boksicoon Oleksandr Usyk: ‘Rico is een legende’](https://www.ad.nl/vechtsport/verhoeven-in-londen-voor-het-eerst-oog-in-oog-met-boksicoon-oleksandr-usyk-rico-is-een-legende~acf7fdf3/)
-  > De kop is eraf: Rico Verhoeven (37) heeft Oleksandr Usyk (39) voor het eerst in de ogen gekeken. Zijn Oekraïense tegenstander om de...
-- [Mascherano stopt als trainer van Inter Miami, Bayern heeft  Brobbey op radar, Wijnaldum wil terug naar Premier League](https://www.ad.nl/voetbal/mascherano-stopt-als-trainer-van-inter-miami-bayern-heeft-brobbey-op-radar-wijnaldum-wil-terug-naar-premier-league~a35ea681/)
-  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
-- [Niet meer aanschurken tegen Poetin: winst van Magyar is opsteker](https://www.ad.nl/commentaar/niet-meer-aanschurken-tegen-poetin-winst-van-magyar-is-opsteker~a07f0f37/)
-  > Europa haalt opgelucht adem, Boedapest viert feest. Onder Péter Magyar lijkt Hongarije een meer pro-Europese koers te gaan varen. De eerste signalen...
-- [Oud-speelsters doen boekje open over bondscoach: ‘Langzaam ontstaat gevoel dat je vastzit in zijn web’](https://www.ad.nl/andere-sporten/oud-speelsters-doen-boekje-open-over-bondscoach-langzaam-ontstaat-gevoel-dat-je-vastzit-in-zijn-web~a5dd30f3/)
-  > Zestien oud-speelsters van de bestrafte basketbalcoach vertellen in een open brief, exclusief gedeeld met het AD, hoe het grensoverschrijdende gedrag...
-- [Kabinet komt met steunpakket: verhoging kilometervergoeding, energienoodfonds, geen lagere accijns](https://www.ad.nl/politiek/kabinet-komt-met-steunpakket-verhoging-kilometervergoeding-energienoodfonds-geen-lagere-accijns~a22b0d3c/)
-  > Het kabinet komt maandag met een pakket aan maatregelen om de gevolgen van de oorlog in Iran te verzachten. Daarin zit een verhoging van de onbelaste...
+- [Geloof helemaal terug bij Barça: Lamine Yamal opent razendsnel de score in return tegen Atlético](https://www.ad.nl/voetbal/geloof-helemaal-terug-bij-barca-lamine-yamal-opent-razendsnel-de-score-in-return-tegen-atletico~a95b48359/)
+  > FC Barcelona beleefde vorige week een belabberde avond tegen Atlético Madrid. Na een dure rode kaart voor Pau Cubarsí werd in eigen huis met 0-2...
+- [LIVE Champions League | Liverpool heeft goals nodig, maar krijgt weinig grip op sterk Paris Saint-Germain](https://www.ad.nl/voetbal/live-champions-league-liverpool-heeft-goals-nodig-maar-krijgt-weinig-grip-op-sterk-paris-saint-germain~ac90bad7/)
+  > Arne Slot staat met Liverpool op de rand van uitschakeling in de Champions League. In de return van de kwartfinales moet tegen titelhouder Paris...
+- [Vandaag Inside is de enige plek die nog enigszins lijkt op de ongedwongen talkshowtafel van weleer](https://www.ad.nl/binnenland/vandaag-inside-is-de-enige-plek-die-nog-enigszins-lijkt-op-de-ongedwongen-talkshowtafel-van-weleer~a95043b2/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Droomdebuut voor Van Asten: verdedigster schiet Oranje op voorsprong tegen Frankrijk](https://www.ad.nl/voetbal/droomdebuut-voor-van-asten-verdedigster-schiet-oranje-op-voorsprong-tegen-frankrijk~a18b8bc6b/)
+  > De Oranje Leeuwinnen spelen in het Rat Verlegh Stadion tegen topland Frankrijk. Wat kan de gehavende ploeg van bondscoach Arjan Veurink in het...
+- [Máxima en Willem-Alexander zingen op school in Miami samen nummer van Lady Gaga en Bruno Mars](https://www.ad.nl/show/maxima-en-willem-alexander-zingen-op-school-in-miami-samen-nummer-van-lady-gaga-en-bruno-mars~acf287b7/)
+  > Niet alleen koningin Máxima, maar ook koning Willem-Alexander blijkt een groot fan van Lady Gaga. De twee zongen samen met kinderen van een school in...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Kabinet komt met pakket maatregelen voor dure energie](https://fd.nl/politiek/1592907/kabinet-komt-met-pakket-maatregelen-voor-dure-energie)
-  > Voorlopig is het kabinet niet van plan de accijnzen op benzine en diesel te verlagen. Wel komt er geld voor de industrie, voor isolatie en voor een...
-- [Staking ambtenaren: lange wachttijden en slachthuizen dicht](https://fd.nl/politiek/1592983/staking-ambtenaren-lange-wachttijden-en-slachthuizen-dicht)
-  > De ambtenarenstaking op dinsdag leidde tot lange wachttijden bij de Belastingtelefoon en de studentenhulplijn van DUO. Ook gingen slachthuizen dicht...
-- [Peking trekt rode lijn: wie vertrekt, riskeert straf](https://fd.nl/samenleving/1592908/peking-trekt-rode-lijn-wie-vertrekt-riskeert-straf)
-  > Een nieuwe wet jaagt bedrijven schrik aan vanwege de brede, abstracte formulering. Zij kunnen niet goed inschatten welke activiteiten bestraft worden...
-- [Veiligheid is ‘beetje economische pijn’ waard, vindt schatkistbewaarder VS](https://fd.nl/economie/1592905/veiligheid-is-beetje-economische-pijn-waard-vindt-schatkistbewaarder-vs)
-  > De Amerikaanse minister van financiën Scott Bessent is niet onder de indruk van de sombere scenario’s van het IMF. ‘Ik denk dat ze achterlopen, en...
-- [Nederlander leidt voorlopig Havenbedrijf Antwerpen-Brugge](https://fd.nl/bedrijfsleven/1592981/nederlander-leidt-voorlopig-havenbedrijf-antwerpen-brugge)
-  > De Nederlander Rob Smeets wordt voorlopig de ceo van het Havenbedrijf Antwerpen-Brugge, een  belangrijke concurrent van Rotterdam.
+- [Oorlog in Iran raakt Amerikaanse consument nog niet, zien ceo’s banken](https://fd.nl/financiele-markten/1592901/oorlog-in-iran-raakt-amerikaanse-consument-nog-niet-zien-ceos-banken)
+  > De grootste Amerikaanse consumentenbanken kwamen dinsdag met solide cijfers. Daaruit bleek dat consumenten vooralsnog weerbarstig zijn, ondanks de...
+- [Minister Van den Brink zoekt met evenwichtsoefening steun voor asielwetten](https://fd.nl/politiek/1592909/minister-van-den-brink-zoekt-met-evenwichtsoefening-steun-voor-asielwetten)
+  > De minister heeft hardliners en gematigdere partijen nodig om de asielwetten door de Eerste Kamer te loodsen. Met een belofte aan de CDA kan Van den...
+- [Op werkbezoek aan de VS benadrukt koning het belang van vrije handel](https://fd.nl/politiek/1592910/op-werkbezoek-aan-de-vs-benadrukt-koning-het-belang-van-vrije-handel)
+  > In toespraken verdedigde koning Willem-Alexander de vrije handel en Navo-samenwerking, zonder president Trump te noemen.
+- [Investeerders staken dit jaar al €1 mrd in jonge bedrijven](https://fd.nl/tech-en-innovatie/1592895/investeerders-staken-dit-jaar-al-1mrd-in-jonge-bedrijven)
+  > Grote kapitaalrondes, zoals voor hotelsoftwarebedrijf Mews, joegen het bedrag omhoog. Maar er zijn zorgen over de afname van het aantal deals.
+- [Orbáns nederlaag is opsteker én opdracht voor EU](https://fd.nl/opinie/1592976/orbans-nederlaag-is-opsteker-en-opdracht-voor-eu)
+  > Brussel moet bedenken hoe het kan voorkomen dat het weer gegijzeld wordt door politici die uit binnenlandse overwegingen voor maximale obstructie...
 
 ### Meest gelezen
 
