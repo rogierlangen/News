@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-04-2026 om 15:17*
+*Laatst bijgewerkt: 14-04-2026 om 17:15*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Olielek dreigt grote gevolgen te hebben voor natuurgebieden Zeeland](https://nos.nl/l/2610432)
-  > Staatsbosbeheer vreest dat het olielek van vorige week in de haven van Antwerpen gevolgen zal hebben voor de Zeeuwse natuur. Met name dieren kunnen...
-- [Douaniers aangehouden voor computervredebreuk en schenden ambtsgeheim](https://nos.nl/l/2610431)
-  > In Rotterdam en Capelle aan den IJssel zijn vandaag vier douaniers aangehouden. Ze worden onder meer verdacht van computervredebreuk en het schenden...
-- [Historisch gesprek tussen Libanon en Israël, 'maar kansrijk is het niet'](https://nos.nl/l/2610427)
-  > Het wordt gezien als een historische ontmoeting: vandaag spreken de ambassadeurs van Libanon en Israël in Washington D.C. na weken van gevechten...
-- [Toezichthouder inlichtingendiensten bezorgd om vergaren bulkdata](https://nos.nl/l/2610425)
-  > De toezichthouder op de Nederlandse inlichtingen- en veiligheidsdiensten maakt zich zorgen over het vergaren van bulkdata door de AIVD en de MIVD. De...
-- [OM eist celstraffen tot 5,5 jaar voor kunstroof Assen](https://nos.nl/l/2610424)
-  > Het Openbaar Ministerie heeft tegen de drie verdachten van de kunstroof in het Drents Museum celstraffen geëist tot 5,5 jaar cel. De hoogste eis is...
+- [Wereldeconomie dreigt te ontsporen als oorlog in Midden-Oosten lang aanhoudt](https://nos.nl/l/2610450)
+  > De wereldeconomie stond er tot voor kort redelijk goed voor maar de oorlog in het Midden-Oosten maakt alles anders. Ook een recessie is niet meer uit...
+- [Man in rolstoel in brand gestoken in Utrecht, zwaargewond](https://nos.nl/l/2610448)
+  > In Utrecht is vanmiddag een man in een elektrische rolstoel door een of meerdere personen in brand gestoken. Dat bevestigt de politie na...
+- [Man (25) uit Den Bosch opgepakt op verdenking van voorbereiden aanslag](https://nos.nl/l/2610444)
+  > De politie heeft een 25-jarige man uit Den Bosch opgepakt omdat hij mogelijk een terroristische aanslag wilde plegen, meldt het Openbaar Ministerie....
+- [Humem (11) overleefde dagen onder puin Turkse beving, trauma speelt hem parten in azc](https://nos.nl/l/2610439)
+  > Vier dagen lag de destijds 8-jarige Humem onder het puin na de zware aardbeving in Turkije en Syrië in 2023. Hij overleefde de ramp, maar hield er...
+- [Energieagentschap ziet 'grootste ontwrichting van de oliemarkt in de geschiedenis'](https://nos.nl/l/2610436)
+  > Vanwege hoge prijzen en tekorten daalt de wereldwijde vraag naar olie voor het eerst sinds de coronapandemie in 2020. Het International...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Geslachtsdiscussie woedt door na historische stap: ‘Bij Mourinho hoor je dit nooit’](https://www.ad.nl/voetbal/geslachtsdiscussie-woedt-door-na-historische-stap-bij-mourinho-hoor-je-dit-nooit~a24a1894/)
-  > Marie-Louise Eta (34) werd zondag de eerste vrouwelijke hoofdcoach van een club uit een topcompetitie in het mannenvoetbal. FC Twente-trainer Corina...
-- [Opsteker voor Bayern: Serge Gnabry lijkt op tijd fit voor beslissingsduel met Real Madrid](https://www.ad.nl/voetbal/opsteker-voor-bayern-serge-gnabry-lijkt-op-tijd-fit-voor-beslissingsduel-met-real-madrid~af0705cb/)
-  > Serge Gnabry is aangesloten bij de laatste training van Bayern München voor het beslissende thuisduel met Real Madrid in de kwartfinale van de...
-- [Duizenden transformatorhuisjes erbij, bezwaar maken tegen locatie kan niet: ‘Gemeente bepaalt’](https://www.ad.nl/wonen/duizenden-transformatorhuisjes-erbij-bezwaar-maken-tegen-locatie-kan-niet-gemeente-bepaalt~ae6a8f7b/)
-  > Transformatorhuisjes verschijnen in steeds meer straten: vorig jaar kwamen er ruim 2100 bij. Veel mensen vinden ze lelijk en zijn bang voor mogelijke...
-- [Band Italiaanse premier en Trump verslechterd: Trump ‘geschokt’ door opstelling Meloni in oorlog met Iran](https://www.ad.nl/buitenland/band-italiaanse-premier-en-trump-verslechterd-trump-geschokt-door-opstelling-meloni-in-oorlog-met-iran~ae67dd9c/)
-  > De Amerikaanse president Donald Trump zegt ‘geschokt’ te zijn door de opstelling van de Italiaanse premier Giorgia Meloni, omdat zij zou weigeren de...
-- [Welke van deze is de echte Bossche bol, en welke de vegan variant? Wij gaan proeven](https://www.ad.nl/binnenland/welke-van-deze-is-de-echte-bossche-bol-en-welke-de-vegan-variant-wij-gaan-proeven~a3831cdf/)
-  > Bakken, room spuiten, chocolade smelten en weer opnieuw proberen. Lucas Vermeulen van De Vegan Bakker in Heusden had tachtig pogingen nodig om de...
+- [Verhoeven in Londen voor het eerst oog in oog met boksicoon Oleksandr Usyk: ‘Rico is een legende’](https://www.ad.nl/vechtsport/verhoeven-in-londen-voor-het-eerst-oog-in-oog-met-boksicoon-oleksandr-usyk-rico-is-een-legende~acf7fdf3/)
+  > De kop is eraf: Rico Verhoeven (37) heeft Oleksandr Usyk (39) voor het eerst in de ogen gekeken. Zijn Oekraïense tegenstander om de...
+- [Mascherano stopt als trainer van Inter Miami, Bayern heeft  Brobbey op radar, Wijnaldum wil terug naar Premier League](https://www.ad.nl/voetbal/mascherano-stopt-als-trainer-van-inter-miami-bayern-heeft-brobbey-op-radar-wijnaldum-wil-terug-naar-premier-league~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Niet meer aanschurken tegen Poetin: winst van Magyar is opsteker](https://www.ad.nl/commentaar/niet-meer-aanschurken-tegen-poetin-winst-van-magyar-is-opsteker~a07f0f37/)
+  > Europa haalt opgelucht adem, Boedapest viert feest. Onder Péter Magyar lijkt Hongarije een meer pro-Europese koers te gaan varen. De eerste signalen...
+- [Oud-speelsters doen boekje open over bondscoach: ‘Langzaam ontstaat gevoel dat je vastzit in zijn web’](https://www.ad.nl/andere-sporten/oud-speelsters-doen-boekje-open-over-bondscoach-langzaam-ontstaat-gevoel-dat-je-vastzit-in-zijn-web~a5dd30f3/)
+  > Zestien oud-speelsters van de bestrafte basketbalcoach vertellen in een open brief, exclusief gedeeld met het AD, hoe het grensoverschrijdende gedrag...
+- [Kabinet komt met steunpakket: verhoging kilometervergoeding, energienoodfonds, geen lagere accijns](https://www.ad.nl/politiek/kabinet-komt-met-steunpakket-verhoging-kilometervergoeding-energienoodfonds-geen-lagere-accijns~a22b0d3c/)
+  > Het kabinet komt maandag met een pakket aan maatregelen om de gevolgen van de oorlog in Iran te verzachten. Daarin zit een verhoging van de onbelaste...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Vastgoedbelegger Annexum moet op zoek naar nieuwe koper voor Maastrichts hotel](https://fd.nl/bedrijfsleven/1592978/vastgoedbelegger-annexum-moet-op-zoek-naar-nieuwe-koper-voor-maastrichts-hotel)
-  > Vermogende particulieren moeten langer wachten op het afsluiten van een teleurstellend vastgoedfonds van Annexum.
-- [Noodkreet over achterstallig onderhoud Duitse waterwegen: ‘Elke week zijn er stremmingen’](https://fd.nl/bedrijfsleven/1592757/noodkreet-over-achterstallig-onderhoud-duitse-waterwegen-elke-week-zijn-er-stremmingen)
-  > Binnenvaartschepen vrezen vaker last te krijgen van versperringen op de vaarroutes. Vakbonden slaan alarm over een te krap budget voor onderhoud en...
-- [Europees akkoord over importquota en -heffingen voor staal](https://fd.nl/politiek/1592977/europees-akkoord-over-importquota-en-heffingen-voor-staal)
-  > Akkoord moet voorkomen dat EU dumpingplaats wordt voor overtollig staal uit andere regio’s.
-- [Obligatiemarkt kijkt verder dan Argentijnse president Milei en ziet onheil naderen](https://fd.nl/financiele-markten/1592354/obligatiemarkt-kijkt-verder-dan-argentijnse-president-milei-en-ziet-naderend-onheil)
-  > Wordt het deze keer wél anders? Die vraag hangt boven de obligatiemarkt nu Argentinië een terugkeer op de internationale markt voor dollarobligaties...
-- [IMF: particuliere beleggers kunnen privatecreditfondsen ontwrichten](https://fd.nl/financiele-markten/1592745/imf-particuliere-beleggers-kunnen-privatecreditfondsen-ontwrichten)
-  > Als beleggers massaal uit zogeheten semiliquide privatecreditfondsen stappen, kan de stress overslaan naar andere delen van het financiële systeem....
+- [Kabinet komt met pakket maatregelen voor dure energie](https://fd.nl/politiek/1592907/kabinet-komt-met-pakket-maatregelen-voor-dure-energie)
+  > Voorlopig is het kabinet niet van plan de accijnzen op benzine en diesel te verlagen. Wel komt er geld voor de industrie, voor isolatie en voor een...
+- [Staking ambtenaren: lange wachttijden en slachthuizen dicht](https://fd.nl/politiek/1592983/staking-ambtenaren-lange-wachttijden-en-slachthuizen-dicht)
+  > De ambtenarenstaking op dinsdag leidde tot lange wachttijden bij de Belastingtelefoon en de studentenhulplijn van DUO. Ook gingen slachthuizen dicht...
+- [Peking trekt rode lijn: wie vertrekt, riskeert straf](https://fd.nl/samenleving/1592908/peking-trekt-rode-lijn-wie-vertrekt-riskeert-straf)
+  > Een nieuwe wet jaagt bedrijven schrik aan vanwege de brede, abstracte formulering. Zij kunnen niet goed inschatten welke activiteiten bestraft worden...
+- [Veiligheid is ‘beetje economische pijn’ waard, vindt schatkistbewaarder VS](https://fd.nl/economie/1592905/veiligheid-is-beetje-economische-pijn-waard-vindt-schatkistbewaarder-vs)
+  > De Amerikaanse minister van financiën Scott Bessent is niet onder de indruk van de sombere scenario’s van het IMF. ‘Ik denk dat ze achterlopen, en...
+- [Nederlander leidt voorlopig Havenbedrijf Antwerpen-Brugge](https://fd.nl/bedrijfsleven/1592981/nederlander-leidt-voorlopig-havenbedrijf-antwerpen-brugge)
+  > De Nederlander Rob Smeets wordt voorlopig de ceo van het Havenbedrijf Antwerpen-Brugge, een  belangrijke concurrent van Rotterdam.
 
 ### Meest gelezen
 
