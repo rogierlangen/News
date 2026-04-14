@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-04-2026 om 07:54*
+*Laatst bijgewerkt: 14-04-2026 om 09:23*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Recordaantal Britten opgenomen in Rock & Roll Hall of Fame](https://nos.nl/l/2610382)
-  > Een recordaantal Britse artiesten wordt dit jaar opgenomen in de Amerikaanse Rock & Roll Hall of Fame. Het gaat om zes van de acht uitverkorenen:...
-- [Nederlandse en Spaanse scholieren in Haren bedreigd met mogelijk vuurwapen](https://nos.nl/l/2610377)
-  > Leerlingen van het Harens Lyceum en Spaanse uitwisselingsscholieren zijn gisteren door een of meerdere personen met een mogelijk vuurwapen bedreigd....
-- [Ambtenaren staken om nullijn, 'schoonmakers en cipiers hebben zware baan'](https://nos.nl/l/2610375)
-  > Rijksambtenaren leggen vandaag opnieuw hun werk neer, uit protest tegen de bevriezing van hun salarissen. Die 'nullijn' werd aangenomen door het...
-- [Cruciale dag voor strenge asielwetten, steun CDA in senaat noodzakelijk](https://nos.nl/l/2610373)
-  > Minister Van den Brink van Asiel en Migratie gaat vandaag een poging doen om de Eerste Kamer te overtuigen van de noodzaak van de strenge asielwetten...
-- [Hoe verder na Orbán? 'Medestanders op sleutelposities zullen tegenwerken'](https://nos.nl/l/2610370)
-  > Na de politieke aardverschuiving in Hongarije afgelopen weekend vragen Hongaren zich hardop af of dit echt het einde is van het tijdperk-Orbán. Zal...
+- [Forum-Kamerlid ook in hoger beroep veroordeeld voor nepfoto met nazivlag](https://nos.nl/l/2610397)
+  > Kamerlid Pepijn van Houwelingen van Forum voor Democratie is ook in hoger beroep veroordeeld voor belediging van de toenmalige ministers Kuipers...
+- [Aangespoeld dier in Zeeland blijkt zeldzame grijze dolfijn](https://nos.nl/l/2610394)
+  > De dolfijn die vrijdag dood aanspoelde in Zeeland blijkt een zeldzame grijze dolfijn. Dat meldt het Reddingsteam Zeedieren Zeeland.
+        Het...
+- [OM wil nog niet zeggen welke strafeis het afsprak met verdachten kunstroof](https://nos.nl/l/2610393)
+  > In ruil voor het teruggeven van de buit, heeft het Openbaar Ministerie procesafspraken gemaakt met twee van de drie hoofdverdachten van de kunstroof...
+- [Oprichter failliete vastgoedgigant Evergrande bekent schuld aan fraude](https://nos.nl/l/2610391)
+  > Hui Ka Yan, de oprichter van de failliete Chinese vastgoedreus Evergrande, heeft schuld bekend aan onder meer fraude en omkoping, meldt de rechtbank...
+- [Amerikaans Congreslid stapt op na beschuldigingen van seksueel misbruik](https://nos.nl/l/2610388)
+  > Het Amerikaanse Congreslid Eric Swalwell stapt op na beschuldigingen van seksueel misbruik van vier vrouwen. Hij gold als een kansrijke kandidaat...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Derde verdachte kunstroof blijft boos: ‘Ik wist dat ze een kraak gingen zetten maar van museum wist ik niks’](https://www.ad.nl/binnenland/derde-verdachte-kunstroof-blijft-boos-ik-wist-dat-ze-een-kraak-gingen-zetten-maar-van-museum-wist-ik-niks~aed52bb0/)
-  > Bernard Z., de enige van de drie verdachten van de kunstroof in Assen die geen deal sloot met het Openbaar Ministerie, vindt dat justitie niet op...
-- [Pakistan doet poging voor nieuwe onderhandelingen, Iran verwijt de VS een gebrek aan politieke wil](https://www.ad.nl/buitenland/pakistan-doet-poging-voor-nieuwe-onderhandelingen-iran-verwijt-de-vs-een-gebrek-aan-politieke-wil~ac528ac3/)
-  > Onderhandelaars uit Iran en de VS zouden later deze week kunnen terugkeren naar de Pakistaanse hoofdstad Islamabad voor hervatting van hun overleg....
-- [Vodafone kampt met storing: deel klanten zonder data, vliegtuigmodus biedt oplossing](https://www.ad.nl/tech/vodafone-kampt-met-storing-deel-klanten-zonder-data-vliegtuigmodus-biedt-oplossing~a3721d49/)
-  > Internetprovider Vodafone kampt met een storing. Klanten kunnen geen gebruik maken van hun mobiele data, zo meldt een woordvoerder. Het betreft enkel...
-- [Duitser vindt lichaam van zijn zus (28) in vriezer, ex-vriend verdacht van misdrijf](https://www.ad.nl/buitenland/duitser-vindt-lichaam-van-zijn-zus-28-in-vriezer-ex-vriend-verdacht-van-misdrijf~a4cd5eeb/)
-  > Een gruwelijke ontdekking afgelopen zondag in het Duitse Bielefeld: een man belde de politie en meldde dat hij het lichaam van zijn 28-jarige zus in...
-- [Bekerfinale niet alleen belangrijk voor NEC en AZ: dit zijn de gevolgen voor verdeling Europese tickets](https://www.ad.nl/voetbal/bekerfinale-niet-alleen-belangrijk-voor-nec-en-az-dit-zijn-de-gevolgen-voor-verdeling-europese-tickets~a740f4ee/)
-  > PSV mag al kampioen zijn, daaronder wacht een zinderende ontknoping om Europese tickets. Welke club in welke competitie en/of voorronde belandt,...
+- [Belgische benzineprijzen vanaf woensdag duurder, ook in Nederland kleine stijging](https://www.ad.nl/economie/belgische-benzineprijzen-vanaf-woensdag-duurder-ook-in-nederland-kleine-stijging~a8779340/)
+  > Niet alleen in Nederland, maar ook in België gaat de benzineprijs omhoog. Dinsdag steeg de prijs daar al, en woensdag stijgt die verder. Dan gaat de...
+- [De opluchting droop nog net niet van Rob Jetten af na zijn bezoek aan Donald Trump](https://www.ad.nl/binnenland/de-opluchting-droop-nog-net-niet-van-rob-jetten-af-na-zijn-bezoek-aan-donald-trump~a0f5832f/)
+  > Als Donald Trump zich verbeeldt dat hij Jezus Christus in eigen persoon is, dan mochten onze koning en koningin dat afgelopen nacht in het Witte Huis...
+- [Carlo Boszhard in shock na heftige gebeurtenis in Married at first sight: 'Heel jammer'](https://www.ad.nl/show/carlo-boszhard-in-shock-na-heftige-gebeurtenis-in-married-at-first-sight-heel-jammer~a3b279b4/)
+  > De nieuwste aflevering van Married at first sight, die sinds dinsdag op Videoland te zien is, bevat een rampzalig moment. Het is de eerste keer in de...
+- [Wijnaldum wil terug naar Premier League, Bayern laat oog vallen op Engelse buitenspeler](https://www.ad.nl/voetbal/wijnaldum-wil-terug-naar-premier-league-bayern-laat-oog-vallen-op-engelse-buitenspeler~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Waar ben jij het meest trots op? Deel jouw verhaal met ons](https://www.ad.nl/home/waar-ben-jij-het-meest-trots-op-deel-jouw-verhaal-met-ons~ab95894d/)
+  > We vieren dit jaar het 80-jarig bestaan van AD en daar zijn we natuurlijk heel trots op. Om daar samen met jullie een feest van te maken, zijn we op...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Een in oude luister hersteld rijksmonument in Noord-Groningen](https://fd.nl/samenleving/1592812/een-in-oude-luister-hersteld-rijksmonument-in-noord-groningen)
-  > ‘De vorige eigenares was er emotioneel enorm mee verbonden, maar het was eigenlijk niet meer dan een luxe fietsenstalling voor haar.’
-- [VS en Iran zoeken ondanks zeeblokkade naar ingang voor nieuwe gesprekken](https://fd.nl/politiek/1592872/vs-en-iran-zoekenondanks-zeeblokkade-naar-ingang-voor-nieuwegesprekken)
-  > Terwijl de Amerikaanse zeeblokkade wordt getest en bondgenoten aandringen op de-escalatie, zoeken Washington en Teheran haastig naar een nieuw...
-- [Op bezoek bij Trump legt Jetten zorgen over Iran en Oekraïne op tafel](https://fd.nl/politiek/1592751/op-bezoek-bij-trump-legt-jetten-zorgen-over-iran-en-oekraine-op-tafel)
-  > De premier zegt dat hij tijdens het bezoek van het koningspaar aan de Amerikaanse president heeft duidelijk gemaakt dat Nederland bereid is om in een...
-- [Live: Chipfondsen duwen AEX omhoog richting 1020 punten](https://fd.nl/financiele-markten/1592740/live-beleggers-gaan-uit-van-hervatting-gesprekken-vs-en-iran)
-  > Beleggers gaan uit van hervatting van de gesprekken tussen Iran en de Verenigde Staten over een definitief staakt-het-vuren.
-- [Moeten studenten zelf hun huisgenoten kunnen kiezen in studentenhuizen?](https://fd.nl/samenleving/1592802/moeten-studenten-zelf-hun-huisgenoten-kunnen-kiezen-in-studentenhuizen)
-  > Pim Lammers, voorzitter van de Plaatselijke Kamer van Verenigingen in Leiden, vindt dat hospiteren sociale cohesie bevordert. Volgens Gijsbert Mul...
+- [Familiebedrijven gooien opvolgers als eigenaar in het diepe](https://fd.nl/bedrijfsleven/1592821/familiebedrijven-gooien-opvolgers-als-eigenaar-in-het-diepe)
+  > Familiebedrijven leren opvolgers wel de kneepjes van het vak, maar volgens onderzoek nauwelijks iets over verantwoordelijkheden van het...
+- [Wie één identiteit benadrukt, maakt zichzelf kwetsbaar](https://fd.nl/opinie/1592797/wie-een-identiteit-benadrukt-maakt-zichzelf-kwetsbaar)
+  > Het inzicht dat je meerdere identiteiten hebt, maakt je weerbaarder in onzekere tijden en stimuleert samenwerking. Voorbeelden uit Hongarije bieden...
+- [Een modern sprookje](https://fd.nl/opinie/1592753/een-modern-sprookje)
+  > Het kost niet veel moeite overeenkomsten te zien in hoe men belegt en hoe men de liefde benadert, schrijft FD-columnist Milou Brand. Beide zijn...
+- [Weggestuurd om je privémening](https://fd.nl/samenleving/1592727/activisme-op-de-werkvloer)
+  > Een vrouw verloor haar opdrachtgever doordat ze op sociale media de verkeerde mening verkondigde, in de ogen van de opdrachtgever dan.
+- [Evergrande-oprichter bekent schuld aan fraude en omkoping](https://fd.nl/bedrijfsleven/1592755/evergrande-oprichter-bekent-schuld-aan-fraude-en-omkoping)
+  > De bekentenis van Hui Ka Yan komt drie jaar nadat hij onder toezicht van de politie werd gesteld op verdenking van criminele activiteiten.
 
 ### Meest gelezen
 
