@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-04-2026 om 13:48*
+*Laatst bijgewerkt: 15-04-2026 om 15:09*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Geef je nu op voor publieksavond NOS Bij Jou in Rotterdam of Groningen](https://nos.nl/l/2610569)
+  > Het nieuws stopt nooit, en lijkt soms ook alleen maar groter en ingewikkelder te worden. Is dat ook zo? Welke keuzes maken onze journalisten...
+- [Vaker discriminatie bij strafbare feiten, ook aantal meldingen neemt toe](https://nos.nl/l/2610567)
+  > Het aantal strafbare feiten met een discriminatieaspect is het afgelopen jaar gestegen. Dat geldt ook voor het aantal meldingen van discriminatie bij...
+- [Vloggende wijkagent die politie-informatie lekte, blijft vastzitten](https://nos.nl/l/2610565)
+  > De Tilburgse wijkagent Erwin van E. (62), die wordt verdacht van het jarenlang doorspelen van vertrouwelijke politie-informatie, aan criminelen,...
 - [Podcast De Dag: Paus Leo XIV vs Donald 'Jezus' Trump](https://nos.nl/l/2610563)
   > Paus Leo de veertiende is niet bang voor Trump. En de president noemt de paus een slappeling en zette een AI-gegenereerde afbeelding online van...
 - [Asielwetten Faber dreigen te sneuvelen; PVV gaat tegen nieuw deel stemmen](https://nos.nl/l/2610558)
-  > De PVV in de Eerste Kamer stemt tegen het deel van de nieuwe asielwetten waarin staat dat hulp aan illegalen niet strafbaar is. Dat heeft...
-- [Verdachte opgepakt voor dubbele mishandeling Rotterdamse buschauffeur](https://nos.nl/l/2610555)
-  > In Rotterdam is een man opgepakt voor het mishandelen van een buschauffeur, meldt de politie. De verdachte zou twee keer geweld hebben gebruikt tegen...
-- [Almelo dreigt COA met boete voor huisvesten statushouders in hotel](https://nos.nl/l/2610552)
-  > De gemeente Almelo eist van het COA dat veertien statushouders zo snel mogelijk uit een hotel vertrekken. Gebeurt dat niet binnen twee weken, dan...
-- [Taliban-documentaire Hila Noorzai terug op NPO Start na arrestatie geïnterviewde](https://nos.nl/l/2610551)
-  > De documentaire Hila voorbij de Taliban is vanaf vandaag weer te zien op NPO Start. De serie werd in januari offline gehaald door AVROTROS nadat een...
+  > De PVV in de Eerste Kamer stemt tegen het nieuwe onderdeel van de asielwetten van voormalig minister Faber. Het gaat om het deel waarin staat dat...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Australische politie onderzoekt beschuldigingen rond Katy Perry](https://www.ad.nl/show/australische-politie-onderzoekt-beschuldigingen-rond-katy-perry~afbe1a62/)
-  > De Australische politie doet onderzoek naar beschuldigingen tegen Katy Perry. Actrice Ruby Rose beschuldigt haar van seksueel misbruik, meldt onder...
-- [Man die vijf mensen neerstak op de Dam wilde ‘belastingbetaler laten boeten’ en zou aanslag ‘zo weer doen’](https://www.ad.nl/binnenland/man-die-vijf-mensen-neerstak-op-de-dam-wilde-belastingbetaler-laten-boeten-en-zou-aanslag-zo-weer-doen~a4ba9bbc/)
-  > De 31-jarige Oekraïner Roman D., verdacht van het neersteken van mensen rond de Dam in maart vorig jaar, zei eind vorig jaar tegen...
-- [Anti-katerpaketten en tosti’s voor Japanners: de Happy People Officer van Almere City is van alle markten thuis](https://www.ad.nl/voetbal/anti-katerpaketten-en-tostis-voor-japanners-de-happy-people-officer-van-almere-city-is-van-alle-markten-thuis~a3809f83/)
-  > Net als grote bedrijven als Google heeft Almere City FC een happy people officer in dienst. Wat doet zo iemand de hele dag? „Soms sta ik hier ook...
-- [Oekraïense president Zelensky komt naar Middelburg: 'Het is tot het laatst spannend geweest'](https://www.ad.nl/binnenland/oekraiense-president-zelensky-komt-naar-middelburg-het-is-tot-het-laatst-spannend-geweest~a7d76bd1/)
-  > President Volodymyr Zelensky van Oekraïne is donderdag in Middelburg om de Four Freedoms Award persoonlijk in ontvangst te nemen. Zijn aanwezigheid...
-- [Italiaanse ambulancebroeder Luca (27) zou op weg naar ziekenhuis zes mensen hebben omgebracht](https://www.ad.nl/buitenland/italiaanse-ambulancebroeder-luca-27-zou-op-weg-naar-ziekenhuis-zes-mensen-hebben-omgebracht~a2650004/)
-  > Hij stond in zijn Italiaanse dorpje bekend als een supersociale jongeman, maar lijkt nu een wrede moordenaar. De 27-jarige ambulancebroeder Luca...
+- [Cruciale week voor tobbend Arsenal: geeft de ploeg het seizoen wéér in het slot uit handen?](https://www.ad.nl/voetbal/cruciale-week-voor-tobbend-arsenal-geeft-de-ploeg-het-seizoen-weer-in-het-slot-uit-handen~ac6314cc/)
+  > Het is de week van de waarheid voor het kwakkelende Arsenal. Mikel Arteta noemt het zelfs de grootste kans sinds hij in 2019 hoofdtrainer werd....
+- [Zoektocht in composthoop leidt tot vondst voor mogelijke genezing van leverkanker](https://www.ad.nl/wetenschap/zoektocht-in-composthoop-leidt-tot-vondst-voor-mogelijke-genezing-van-leverkanker~aa21f28e/)
+  > Een toevallige ontdekking in een composthoop door microbiologen van Wageningen University & Research leidt mogelijk tot een manier om leverkanker te...
+- [Linda de Mol dolblij met schoondochter Chelsey Weimar: ‘Maar ik dacht ook: help, een topmodel’](https://www.ad.nl/show/linda-de-mol-dolblij-met-schoondochter-chelsey-weimar-maar-ik-dacht-ook-help-een-topmodel~a78b1706c/)
+  > Chelsey Weimar is al ruim zes jaar samen met Julian Vahle en heeft een goede band met haar schoonmoeder Linda de Mol (61). De presentatrice hoopt dat...
+- [Madonna brengt komende zomer opvolger van album uit 2005 uit](https://www.ad.nl/show/madonna-brengt-komende-zomer-opvolger-van-album-uit-2005-uit~a981eb26/)
+  > Madonna brengt komende zomer nieuwe muziek uit. De Amerikaanse zangeres kondigde woensdag haar nieuwe album Confessions on a dance floor - part II...
+- [Nieuwe wending in ‘paspoortgate’: NAC stapt naar de rechter en wil uitslag ongeldig laten verklaren](https://www.ad.nl/voetbal/nieuwe-wending-in-paspoortgate-nac-stapt-naar-de-rechter-en-wil-uitslag-ongeldig-laten-verklaren~a295258c/)
+  > ‘Paspoortgate’ is nog niet voorbij. NAC stapt naar de rechter en wil laten toetsen of het duel met Go Ahead Eagles (6-0 nederlaag) alsnog ongeldig...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Nettowinst Morgan Stanley stijgt 30%](https://fd.nl/bedrijfsleven/1592944/nettowinst-morgan-stanley-stijgt-30)
-  > De winst kwam uit op $3,43 per aandeel, ruim boven de verwachting van analisten van $3 per aandeel.
-- [Onderzoek: watervervuiling rond tuinbouwkassen](https://fd.nl/bedrijfsleven/1592943/onderzoek-watervervuiling-rond-tuinbouwkassen)
-  > Glastuinbouwkassen lekken nog altijd giftige stoffen, zo blijkt uit onderzoek van milieuorganisatie Natuur & Milieu.
-- [VS raken dieper in de schulden dan Italië, en daar kan ook Europa last van krijgen](https://fd.nl/financiele-markten/1592932/vs-raken-dieper-in-de-schulden-dan-italie-en-daar-kan-ook-europa-last-van-krijgen)
-  > De Verenigde Staten zijn hard op weg om nog voor het einde van dit decennium Italië in te halen op de ranglijst van landen met de hoogste...
-- [Niet alleen méér windmolens bouwen op zee, maar nu vooral méér groene industrie](https://fd.nl/opinie/1592875/niet-alleen-meer-windmolens-nu-vooral-meer-groene-industrie)
-  > Vattenfall Nederland-ceo Cindy Kroon ziet hoe het kabinet wél geld uittrekt voor 40 gigawatt wind op zee, maar niet voor elektrificatie van de...
-- [TNO wil met mobiele fabriekjes in zeecontainers wereldwijde munitiekorten te lijf](https://fd.nl/tech-en-innovatie/1592888/tno-wil-met-mobiele-fabriekjes-in-zeecontainers-wereldwijde-munitiekorten-te-lijf)
-  > TNO Defensie en Veiligheid kan, na twee jaar testen, in een container de schaarse springstof TNT maken. Het onderzoeksbureau praat nu met bedrijven...
+- [Pro-Russische generaal Radev gaat Bulgaarse politiek opschudden](https://fd.nl/politiek/1592880/pro-russische-generaal-radev-gaat-bulgaarse-politiek-opschudden)
+  > De deelname van de pro-Russische Rumen Radev aan de Bulgaarse parlementsverkiezingen op zondag leidt tot ongerustheid in Kyiv en Brussel.
+- [Partners Hogan Lovells en Cadwalader stemmen in met grote advocatenfusie](https://fd.nl/bedrijfsleven/1593035/partners-hogan-lovells-en-cadwalader-stemmen-in-met-grote-advocatenfusie)
+  > De trans-Atlantische deal heeft een vergelijkbare omvang als de combinatie van Allen & Overy en Shearman & Sterling.
+- [Van diversiteit in de advocatentop is nog geen sprake](https://fd.nl/financiele-markten/1593016/van-diversiteit-in-de-advocatentop-is-nog-geen-sprake)
+  > In april 2007 werd een intentieverklaring ‘diversiteitsbeleid’ opgesteld door de Nederlandse Orde van Advocaten. Hoe staat het met de ambities?
+- [Accel haalt $5 mrd op voor AI-start-ups](https://fd.nl/bedrijfsleven/1593032/accel-haalt-5-mrd-op-voor-ai-start-ups)
+  > Durfinvesteerder start twee nieuwe fondsen.
+- [Brussel lanceert app voor online leeftijdverificatie](https://fd.nl/politiek/1592945/brussel-lanceert-app-voor-online-leeftijdverificatie)
+  > Europese landen kunnen de app ook inzetten als zij besluiten een leeftijdsgrens voor sociale media in te voeren. Verschillende landen, waaronder...
 
 ### Meest gelezen
 
