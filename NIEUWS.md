@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-04-2026 om 21:58*
+*Laatst bijgewerkt: 15-04-2026 om 22:53*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Roep om verkiezingen in Venezuela steeds luider, ‘regime probeert tijd te winnen’](https://nos.nl/l/2610627)
+  > Hoe breek je een dictatoriaal regime af? Stapje voor stapje en eerst van buitenaf, als het aan de Venezolaanse oppositieleider en Nobelprijswinnaar...
+- [Human Rights Watch: China's onderdrukking van katholieken escaleert](https://nos.nl/l/2610626)
+  > Nieuw onderzoek van Human Rights Watch (HRW) wijst uit dat China's onderdrukking van katholieken zwaar is verergerd. Het rapport beschrijft...
 - [Pizzakoeriers in Amsterdam-Zuidoost massaal beroofd van hun... pizza's](https://nos.nl/l/2610624)
   > Pizzakoeriers in Amsterdam-Zuidoost zijn gewaarschuwd. De politie meldt in een bericht op Instagram dat er een opvallende toename is van het aantal...
 - [Koningspaar over bezoek Witte Huis: 'Aangegeven waar de knelpunten zitten'](https://nos.nl/l/2610619)
   > "Ik ben heel dankbaar dat we toch konden gaan om onze verschillen uit te spreken en duidelijk onze mening te geven", zei koning Willem-Alexander...
 - [Omroep BBC wil 2000 medewerkers ontslaan vanwege bezuinigingen](https://nos.nl/l/2610616)
   > Bij de Britse omroep BBC verdwijnen mogelijk 1800 tot 2000 banen, bijna een tiende van het totaal. De BBC zegt dat te doen om de "aanzienlijke...
-- [Twijfel bij deskundigen of online leeftijdscontrole wel gaat werken](https://nos.nl/l/2610613)
-  > Apps die je leeftijd kunnen doorgeven aan websites moeten het internet veiliger maken voor kinderen. De Europese Commissie liet daar technologie voor...
-- [Signalen over naderend bestand Libanon, nieuwe gespreksronde VS en Iran in de maak](https://nos.nl/l/2610610)
-  > Er lijkt beweging te zitten in de onderhandelingen over een staakt-het-vuren in Libanon. Het Israëlische veiligheidskabinet is op dit moment bijeen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Voetbalpodcast | ‘De hunkering om iets te winnen wint van de angst om iets te verliezen’](https://www.ad.nl/voetbal/voetbalpodcast-de-hunkering-om-iets-te-winnen-wint-van-de-angst-om-iets-te-verliezen~ac8603a9/)
+  > Bayern München en Real Madrid maakten in de Champions League alle verwachtingen waar. Na het spektakel in Madrid, was het gisteravond nog...
+- [Petitie voor gratis gordelroosvaccin: ouderen lopen meer risico, maar moeten zelf betalen](https://www.ad.nl/binnenland/petitie-voor-gratis-gordelroosvaccin-ouderen-lopen-meer-risico-maar-moeten-zelf-betalen~a8205d23/)
+  > Gezamenlijke ouderenbonden zijn een petitie gestart om het gordelroosvaccin voor een grotere groep mensen gratis beschikbaar te maken. Steeds meer...
 - [Halvefinalisten Champions League zijn bekend: op deze data zijn de wedstrijden](https://www.ad.nl/voetbal/halvefinalisten-champions-league-zijn-bekend-op-deze-data-zijn-de-wedstrijden~abcdba15/)
   > De affiches in de halve finales van de  Champions League zijn bekend. Dinsdagavond pakten Atlético Madrid en titelhouder Paris Saint-Germain de...
 - [Bayern München halvefinalist in Champions League na zinderend duel met Real Madrid](https://www.ad.nl/voetbal/bayern-munchen-halvefinalist-in-champions-league-na-zinderend-duel-met-real-madrid~a3482e4a/)
   > Bayern München heeft zich geplaatst voor de halve finales van de Champions League. Door late goals van Luis Díaz van Michael Olise werd het 4-3 in de...
 - [Ontbrekende Jurriën Timber als enige Nederlander naar halve finales: Arsenal verder na zwaarbevochten remise](https://www.ad.nl/voetbal/ontbrekende-jurrien-timber-als-enige-nederlander-naar-halve-finales-arsenal-verder-na-zwaarbevochten-remise~a6d4783c7/)
   > Arsenal heeft zich met hangen en wurgen geplaatst voor de halve finale van de Champions League. Tegen Sporting hield de ploeg van Mikel Arteta het in...
-- [Kim is in een sentimentele bui en smoorverliefde Glennis zet vriend in het zonnetje](https://www.ad.nl/show/kim-is-in-een-sentimentele-bui-en-smoorverliefde-glennis-zet-vriend-in-het-zonnetje~ac6f6fd0/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Bultrug Timmy krijgt laatste kans op redding: ondernemers betalen spectaculaire actie met luchtkussens](https://www.ad.nl/buitenland/bultrug-timmy-krijgt-laatste-kans-op-redding-ondernemers-betalen-spectaculaire-actie-met-luchtkussens~a8cd8d65/)
-  > Het wordt een allesbepalende dag voor bultrug Timmy. In de Duitse Kirchsee wordt donderdagochtend een allerlaatste reddingsactie opgezet voor de 12...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Fiscus stuit op vergeten datakluis met bestanden over toeslagenaffaire](https://fd.nl/samenleving/1593074/fiscus-stuit-op-vergeten-datakluis-met-bestanden-over-toeslagenaffaire)
-  > In de kluis zitten volgens de Belastingdienst 64 miljoen bestanden die mogelijk relevant waren voor de al afgeronde parlementaire enquête.
-- [Op vrede hopende beleggers stuwen S&P 500 naar record](https://fd.nl/financiele-markten/1593073/op-vrede-hopende-beleggers-stuwen-s-p-500-naar-record)
-  > De Amerikaanse aandelenindex steeg naar een nooit eerder bereikte eindstand van 7022 punten. Analisten denken dat beleggers rekenen op een snelle...
-- [Lowlands-eigenaar Live Nation schuldig aan illegaal monopolie](https://fd.nl/bedrijfsleven/1592955/lowlands-eigenaar-live-nation-schuldig-aan-illegaal-monopolie)
-  > Volgens de jury heeft de dominante positie van Live Nation geleid tot hogere prijzen voor consumenten. Concertbezoekers zouden gemiddeld $1,72 per...
-- [Regeringsadviseur Wennink: ‘Kabinet te veel bezig met koopkracht in plaats van investeren’](https://fd.nl/bedrijfsleven/1593037/regeringsadviseur-wennink-kabinet-te-veel-bezig-met-koopkracht-in-plaats-van-investeren)
-  > De gewezen topman van chipmachinemaker ASML hekelt het gebrek aan politieke urgentie, terwijl er volgens hem een grote crisis op komst is.
-- [Laatste procenten inflatie Argentinië blijken het hardnekkigst](https://fd.nl/economie/1592949/laatste-procenten-inflatie-argentinie-blijken-het-hardnekkigst)
-  > Economen waarschuwen: het wordt voor president Javier Milei steeds moeilijker om de prijsstijgingen verder terug te dringen, nu de eerste winsten...
+- [Hete aardappel](https://fd.nl/opinie/1593047/hete-aardappel)
+  > Pijnlijke maatregelen, zoals rond de benzineprijzen en de AOW, komen nooit gelegen, ziet FD-columnist Anna Dijkman. Maar zolang het orkest speelt,...
+- [Vakantiegangers boeken volop reizen, maar wel naar andere plekken](https://fd.nl/bedrijfsleven/1593021/vakantiegangersboeken-volop-reizen-maar-wel-naar-andere-plekken)
+  > Nederlanders laten hun zomervakantie niet schieten vanwege de oorlog in het Midden-Oosten, maar ze kiezen wel voor andere bestemmingen. Spanje en...
+- [Dit land met al zijn problemen kan best wel een Partij van de Arbeid gebruiken](https://fd.nl/opinie/1592760/dit-land-kan-een-partij-van-de-arbeid-gebruiken)
+  > In een debat in de Eerste Kamer noemden senatoren 121 keer het woord ‘AOW’. Over de economie of over Iran ging het veel minder. Wie neemt het dan op...
+- [Personalia donderdag 16 april](https://fd.nl/bedrijfsleven/1593034/personalia-donderdag-16-april)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [UWV-baas: ‘Wij hebben echt een ander stelsel nodig, meer gericht op werk’](https://fd.nl/samenleving/1592754/uwv-baas-wij-hebben-echt-een-ander-stelsel-nodig-meer-gericht-op-werk)
+  > De wachttijden voor arbeidsongeschiktheidskeuringen lopen flink op bij uitvoeringsinstantie UWV. Bestuursvoorzitter Maarten Camps wil een nieuw...
 
 ### Meest gelezen
 
