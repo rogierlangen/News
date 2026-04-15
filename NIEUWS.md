@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-04-2026 om 22:53*
+*Laatst bijgewerkt: 15-04-2026 om 23:49*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [AI-versie van overleden Val Kilmer ruim een uur te zien in nieuwe film](https://www.ad.nl/show/ai-versie-van-overleden-val-kilmer-ruim-een-uur-te-zien-in-nieuwe-film~a0d42b7d/)
+  > De vorig jaar overleden acteur Val Kilmer is met behulp van kunstmatige intelligentie een uur en zeventien minuten te zien in de film As Deep as the...
 - [Voetbalpodcast | ‘De hunkering om iets te winnen wint van de angst om iets te verliezen’](https://www.ad.nl/voetbal/voetbalpodcast-de-hunkering-om-iets-te-winnen-wint-van-de-angst-om-iets-te-verliezen~ac8603a9/)
   > Bayern München en Real Madrid maakten in de Champions League alle verwachtingen waar. Na het spektakel in Madrid, was het gisteravond nog...
 - [Petitie voor gratis gordelroosvaccin: ouderen lopen meer risico, maar moeten zelf betalen](https://www.ad.nl/binnenland/petitie-voor-gratis-gordelroosvaccin-ouderen-lopen-meer-risico-maar-moeten-zelf-betalen~a8205d23/)
@@ -35,8 +37,6 @@
   > De affiches in de halve finales van de  Champions League zijn bekend. Dinsdagavond pakten Atlético Madrid en titelhouder Paris Saint-Germain de...
 - [Bayern München halvefinalist in Champions League na zinderend duel met Real Madrid](https://www.ad.nl/voetbal/bayern-munchen-halvefinalist-in-champions-league-na-zinderend-duel-met-real-madrid~a3482e4a/)
   > Bayern München heeft zich geplaatst voor de halve finales van de Champions League. Door late goals van Luis Díaz van Michael Olise werd het 4-3 in de...
-- [Ontbrekende Jurriën Timber als enige Nederlander naar halve finales: Arsenal verder na zwaarbevochten remise](https://www.ad.nl/voetbal/ontbrekende-jurrien-timber-als-enige-nederlander-naar-halve-finales-arsenal-verder-na-zwaarbevochten-remise~a6d4783c7/)
-  > Arsenal heeft zich met hangen en wurgen geplaatst voor de halve finale van de Champions League. Tegen Sporting hield de ploeg van Mikel Arteta het in...
 
 ### Meest gelezen
 
