@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-04-2026 om 20:56*
+*Laatst bijgewerkt: 15-04-2026 om 21:58*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Pizzakoeriers in Amsterdam-Zuidoost massaal beroofd van hun... pizza's](https://nos.nl/l/2610624)
+  > Pizzakoeriers in Amsterdam-Zuidoost zijn gewaarschuwd. De politie meldt in een bericht op Instagram dat er een opvallende toename is van het aantal...
+- [Koningspaar over bezoek Witte Huis: 'Aangegeven waar de knelpunten zitten'](https://nos.nl/l/2610619)
+  > "Ik ben heel dankbaar dat we toch konden gaan om onze verschillen uit te spreken en duidelijk onze mening te geven", zei koning Willem-Alexander...
 - [Omroep BBC wil 2000 medewerkers ontslaan vanwege bezuinigingen](https://nos.nl/l/2610616)
   > Bij de Britse omroep BBC verdwijnen mogelijk 1800 tot 2000 banen, bijna een tiende van het totaal. De BBC zegt dat te doen om de "aanzienlijke...
 - [Twijfel bij deskundigen of online leeftijdscontrole wel gaat werken](https://nos.nl/l/2610613)
   > Apps die je leeftijd kunnen doorgeven aan websites moeten het internet veiliger maken voor kinderen. De Europese Commissie liet daar technologie voor...
 - [Signalen over naderend bestand Libanon, nieuwe gespreksronde VS en Iran in de maak](https://nos.nl/l/2610610)
   > Er lijkt beweging te zitten in de onderhandelingen over een staakt-het-vuren in Libanon. Het Israëlische veiligheidskabinet is op dit moment bijeen...
-- [Tientallen in oorlog verstopte dierenhuiden gevonden in historisch pand Meppel](https://nos.nl/l/2610609)
-  > Een man in Meppel die zijn historische pand aan het verbouwen is, heeft een bijzondere vondst gedaan. Onder drie lagen vloerbedekking lagen 25...
-- [Zo probeert Amerika het scheepsverkeer van en naar Iran af te knijpen](https://nos.nl/l/2610607)
-  > De Verenigde Staten hebben de volledige controle over het scheepsverkeer rond de Straat van Hormuz, claimt het hoofdkwartier van het Amerikaanse...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Vreugde-explosie bij thuispubliek in München: Bayern na late goal tegen Real heel dicht bij halve finale](https://www.ad.nl/voetbal/vreugde-explosie-bij-thuispubliek-in-munchen-bayern-na-late-goal-tegen-real-heel-dicht-bij-halve-finale~a3482e4a/)
-  > Bayern München ontvangt Real Madrid in de returnwedstrijd in de kwartfinale van de Champions League. De eerste helft werd een doelpuntenfestijn met...
-- [Ontbrekende Timber als enige Nederlander naar halve finales: Arsenal moeizaam verder na zwaarbevochten remise](https://www.ad.nl/voetbal/ontbrekende-timber-als-enige-nederlander-naar-halve-finales-arsenal-moeizaam-verder-na-zwaarbevochten-remise~a6d4783c7/)
+- [Halvefinalisten Champions League zijn bekend: op deze data zijn de wedstrijden](https://www.ad.nl/voetbal/halvefinalisten-champions-league-zijn-bekend-op-deze-data-zijn-de-wedstrijden~abcdba15/)
+  > De affiches in de halve finales van de  Champions League zijn bekend. Dinsdagavond pakten Atlético Madrid en titelhouder Paris Saint-Germain de...
+- [Bayern München halvefinalist in Champions League na zinderend duel met Real Madrid](https://www.ad.nl/voetbal/bayern-munchen-halvefinalist-in-champions-league-na-zinderend-duel-met-real-madrid~a3482e4a/)
+  > Bayern München heeft zich geplaatst voor de halve finales van de Champions League. Door late goals van Luis Díaz van Michael Olise werd het 4-3 in de...
+- [Ontbrekende Jurriën Timber als enige Nederlander naar halve finales: Arsenal verder na zwaarbevochten remise](https://www.ad.nl/voetbal/ontbrekende-jurrien-timber-als-enige-nederlander-naar-halve-finales-arsenal-verder-na-zwaarbevochten-remise~a6d4783c7/)
   > Arsenal heeft zich met hangen en wurgen geplaatst voor de halve finale van de Champions League. Tegen Sporting hield de ploeg van Mikel Arteta het in...
 - [Kim is in een sentimentele bui en smoorverliefde Glennis zet vriend in het zonnetje](https://www.ad.nl/show/kim-is-in-een-sentimentele-bui-en-smoorverliefde-glennis-zet-vriend-in-het-zonnetje~ac6f6fd0/)
   > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
 - [Bultrug Timmy krijgt laatste kans op redding: ondernemers betalen spectaculaire actie met luchtkussens](https://www.ad.nl/buitenland/bultrug-timmy-krijgt-laatste-kans-op-redding-ondernemers-betalen-spectaculaire-actie-met-luchtkussens~a8cd8d65/)
   > Het wordt een allesbepalende dag voor bultrug Timmy. In de Duitse Kirchsee wordt donderdagochtend een allerlaatste reddingsactie opgezet voor de 12...
-- [Legerleider Israël: ‘Zuid-Libanon wordt dodelijke zone voor Hezbollah’](https://www.ad.nl/buitenland/legerleider-israel-zuid-libanon-wordt-dodelijke-zone-voor-hezbollah~ac528ac3/)
-  > De Israëlische legerleider Eyal Zamir heeft instructies gegeven om van het hele gebied ten zuiden van de Litani in Libanon een dodelijke zone voor...
 
 ### Meest gelezen
 
