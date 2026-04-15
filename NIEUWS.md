@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-04-2026 om 09:25*
+*Laatst bijgewerkt: 15-04-2026 om 11:04*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Groningen wil jacobskruiskruid te lijf met electrocutie](https://nos.nl/l/2610526)
-  > De provincie Groningen gaat proberen om jacobskruiskruid uit te roeien met elektrische stroomstoten. De bermplant staat bekend om zijn uitbundig...
-- [Leerlingen buiten grote stad krijgen minder vaak bijgesteld advies](https://nos.nl/l/2610524)
-  > De regio waar een kind opgroeit heeft invloed op het schoolniveau waar het terechtkomt. Het schooladvies van leerlingen in het noorden en oosten van...
-- [Protest tegen wetsvoorstel Slowakije om briefstemmen af te schaffen](https://nos.nl/l/2610521)
-  > Een voornemen van de Slowaakse regering om stemmen per post af te schaffen, stuit in Slowakije op verzet. Duizenden mensen gingen gisteren de straat...
-- [COA stopt met pendelbus naar azc-boot in Amsterdamse haven](https://nos.nl/l/2610511)
-  > Het Centraal Orgaan opvang asielzoekers (COA) stopt volgende maand met de pendelbus die nu nog op en neer rijdt tussen de azc-boot in het Westelijk...
-- [Meer dan 250 mensen vermist na kapseizen vluchtelingenboot Andamanse Zee](https://nos.nl/l/2610507)
-  > In de Andamanse Zee, voor de kust van Myanmar, worden zeker 250 mensen vermist nadat een boot was gekapseisd. Op het schip zaten voornamelijk...
+- ['VS stuurt duizenden extra militairen naar Midden-Oosten'](https://nos.nl/l/2610539)
+  > De VS gaat de komende dagen nog eens duizenden extra militairen naar het Midden-Oosten sturen, meldt The Washington Post. Volgens de krant doet het...
+- [VS valt weer vermeende drugsboot aan, vierde in een week tijd](https://nos.nl/l/2610533)
+  > Het Amerikaanse leger heeft opnieuw een vermeende drugsboot aangevallen in het oosten van de Stille Oceaan. Het is onbekend bij welke kust het...
+- [Tweede arrestatie voor in brand steken 69-jarige man in rolstoel](https://nos.nl/l/2610530)
+  > De politie in Utrecht heeft een tweede verdachte gearresteerd voor het in brand steken van een man in een rolstoel. Het gaat om een man van 55 jaar.
+...
+- [Hoop in Hongarije dat Magyar de corruptie van Orbáns systeem ‘verplettert’](https://nos.nl/l/2610529)
+  > Na een groot feest in Boedapest zondagavond, is het nieuws van Péter Magyars overwinning langzaam neergedaald. Een nieuw tijdperk vol hervormingen in...
+- [Hobbyvlieger (50) raakt drone kwijt na twee vluchten rond gevangenis Vught](https://nos.nl/l/2610528)
+  > Een man die tot twee keer toe met zijn drone vloog bij de Extra Beveiligde Inrichting (EBI) in Vught is zijn toestel kwijtgeraakt. Hij schond daarmee...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Nederlandse Tesla-eigenaar gaat viraal met schadeclaim: ‘Vrienden zeggen: besef je wel tegen wie je het opneemt?’](https://www.ad.nl/binnenland/nederlandse-tesla-eigenaar-gaat-viraal-met-schadeclaim-vrienden-zeggen-besef-je-wel-tegen-wie-je-het-opneemt~aa6ded92/)
-  > Een Nederlandse Tesla-eigenaar gaat momenteel viraal met een actie tegen het miljardenbedrijf van Elon Musk. Mischa Sigtermans betaalde jaren geleden...
-- [Michiel Kramer (37) zet na achttien seizoenen punt achter profvoetbal: ‘Het heeft me alles gegeven’](https://www.ad.nl/voetbal/michiel-kramer-37-zet-na-achttien-seizoenen-punt-achter-profvoetbal-het-heeft-me-alles-gegeven~ad04c2f5/)
-  > Michiel Kramer heeft het einde van zijn carrière als profvoetballer aangekondigd. De 37-jarige aanvaller van RKC Waalwijk zet er aan het einde van...
-- [Condoleanceregister Sonja Barend geopend in Beeld & Geluid](https://www.ad.nl/show/condoleanceregister-sonja-barend-geopend-in-beeld-en-geluid~a9bf19d6/)
-  > Het condoleanceregister voor de overleden talkshowhost Sonja Barend is vanaf 11.00 uur geopend bij het media-instituut Beeld & Geluid in Hilversum....
-- [Inspectie maakt zich zorgen over middelbare scholen: ‘Koploper van het negatieve’](https://www.ad.nl/politiek/inspectie-maakt-zich-zorgen-over-middelbare-scholen-koploper-van-het-negatieve~a8bd6526/)
-  > Het gaat nog steeds niet goed met het Nederlandse onderwijs. Op middelbare scholen blijft het taal- en rekenniveau van leerlingen maar dalen, tot...
-- [Dirk Kuyt had andere keuzes willen maken als beginnend trainer: ‘Arne Slot wilde mij twee keer als assistent’](https://www.ad.nl/voetbal/dirk-kuyt-had-andere-keuzes-willen-maken-als-beginnend-trainer-arne-slot-wilde-mij-twee-keer-als-assistent~aa4143c2/)
-  > Dirk Kuyt is inmiddels vier jaar bezig als hoofdtrainer bij ADO Den Haag, Beerschot en FC Dordrecht. Voor de Katwijker had zijn trainersloopbaan er...
+- [Hij had het werk van een collega ‘ingepikt’ en dan is het kennelijk normaal dat je neergestoken wordt](https://www.ad.nl/binnenland/hij-had-het-werk-van-een-collega-ingepikt-en-dan-is-het-kennelijk-normaal-dat-je-neergestoken-wordt~aa0ac4de/)
+  > Het is ronduit idioot: we leven in een land waar je alles zelf kan kiezen, van energieleverancier tot kabelaanbieder. Alles, behalve de persoon die...
+- [Sylvana (26) toont kwetsbare momenten om andere zieken te motiveren: ‘Blijf doorgaan schat, het komt goed’](https://www.ad.nl/dordrecht/sylvana-26-toont-kwetsbare-momenten-om-andere-zieken-te-motiveren-blijf-doorgaan-schat-het-komt-goed~a9409969/)
+  > Ziekenhuisbedden, operaties en sondevoeding zijn al vijf jaar onderdeel van het leven van de 26-jarige Sylvana Visser. Ondanks haar chronische ziekte...
+- [Docuserie Hila voorbij de taliban opnieuw te streamen: ‘Alle vrouwen staan nog steeds achter de serie’](https://www.ad.nl/show/docuserie-hila-voorbij-de-taliban-opnieuw-te-streamen-alle-vrouwen-staan-nog-steeds-achter-de-serie~a3a1d20c/)
+  > De docuserie Hila voorbij de taliban is vanaf woensdag weer te streamen op NPO Start. De reeks werd eerder dit jaar offline gehaald, nadat een van de...
+- [School in rouw om overleden leerling (14): feestelijke laatste schooldag geschrapt](https://www.ad.nl/binnenland/school-in-rouw-om-overleden-leerling-14-feestelijke-laatste-schooldag-geschrapt~a42e31a5/)
+  > Een 14-jarige leerling van het Willem van Oranje College in Wijk en Aalburg is dinsdagmiddag om het leven gekomen bij een verkeersongeluk. Daarom...
+- [‘Gewoon schijt hebben’: hoe een jonge onervaren groep Oranje Leeuwinnen wél Frankrijk versloeg](https://www.ad.nl/voetbal/gewoon-schijt-hebben-hoe-een-jonge-onervaren-groep-oranje-leeuwinnen-wel-frankrijk-versloeg~a4385d58d/)
+  > Elf jaar lang lukte het de Oranje Leeuwinnen niet om Frankrijk te verslaan. Dinsdagavond slaagde een jonge en onervaren groep daar wel in. „Ik zei...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Lossen douchemuntjes en uitgestelde wasjes het probleem op het stroomnet op?](https://fd.nl/economie/1592759/lossen-douchemuntjes-en-uitgestelde-wasjes-het-probleem-op-het-stroomnet-op)
+  > Het beter timen van gebruik van ‘stroomslurpers’ in het huis kan volgens kenners een verschil maken.
+- [Regio nog altijd bepalend voor latere kansen in onderwijs](https://fd.nl/samenleving/1592936/regio-nog-altijd-bepalend-voor-latere-kansen-in-onderwijs)
+  > De onderwijsloopbaan van Nederlandse kleuters, tieners en pubers hangt samen met de regio waarin zij opgroeien – van de keuze uit voorschoolse...
+- [Iraanse havens ‘volledig geblokkeerd’ door VS](https://fd.nl/politiek/1593018/blokkade-iraanse-havens-volledig-geimplementeerd)
+  > De Amerikaanse president Donald Trump heeft de afgelopen uren meermaals gehint op een snel einde aan de oorlog en een terugkeer naar de...
+- [Ondernemer Florentine Gillis: ‘Ik ben niet zo bang om te falen’](https://fd.nl/samenleving/1592811/ondernemer-florentine-gillis-ik-ben-niet-zo-bang-om-te-falen)
+  > Online-intro: Tegen heilige huisjes schoppen, op tijd stoppen. Wat maken professionals mee in hun loopbaan? Deze week: Florentine Gillis (1989),...
 - [Inflatie ontstaat vooral als we de rekening niet oppakken maar doorschuiven](https://fd.nl/opinie/1592882/inflatie-ontstaat-bij-het-doorschuiven-van-de-rekening)
   > De eerste klap van duurdere energie is onvermijdelijk. Maar of inflatie hardnekkig wordt, hangt af van wat daarna gebeurt: lonen, prijzen en beleid....
-- [Arme Amerikanen](https://fd.nl/opinie/1592935/arme-amerikanen)
-  > Sinds het begin van de Iran-oorlog is de benzineprijs in de VS veel harder gestegen dan in Nederland. Extra pijnlijk, omdat de VS een netto-exporteur...
-- [Overvolle agenda zit spontaniteit in de weg: ‘Een opgejaagd leven geldt als teken van succes’](https://fd.nl/samenleving/1592808/over-twee-maanden-heb-ik-een-gaatje)
-  > Restaurant, museum of sportles: we reserveren het ruimschoots op tijd. Door ver vooruit te plannen lopen agenda’s vol en krijgt spontaniteit weinig...
-- [Aegon verkoopt Britse tak aan Standard Life](https://fd.nl/bedrijfsleven/1593014/aegon-verkoopt-britse-tak-aan-standard-life)
-  > Met de verkoop is zo’n £2 mrd (omgerekend €2,3 mrd) gemoeid. Aan het eind van dit jaar moet de transactie afgerond zijn.
-- [Mogelijk ziekenhuisdata gestolen bij hack ChipSoft](https://fd.nl/bedrijfsleven/1593013/mogelijk-toch-ziekenhuisdata-gestolen-bij-hack-chipsoft)
-  > Hackers konden misschien toch meelezen op een website waar patiënten hun dossiers kunnen bekijken.
 
 ### Meest gelezen
 
