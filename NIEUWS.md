@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-04-2026 om 23:46*
+*Laatst bijgewerkt: 15-04-2026 om 02:54*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Eerste reclames voor ongezond eten in VK offline gehaald](https://nos.nl/l/2610488)
+  > Voor het eerst zijn in het Verenigd Koninkrijk twee supermarkten op de vingers getikt voor het overtreden van de reclameregels rond junkfood. Sinds...
+- [Twee doden bij ongeluk met vliegtuigje bij Aken](https://nos.nl/l/2610487)
+  > In de buurt van de Duitse stad Aken is gistermiddag een klein vliegtuigje neergestort. Daarbij zijn twee mensen om het leven gekomen.
+        Het...
 - [Vrouw schuldig aan dood van verdronken jongen (6) bij recreatieplas](https://nos.nl/l/2610486)
   > Een 31-jarige vrouw uit Wapenveld is door de rechter schuldig bevonden aan de dood van een 6-jarige jongen in 2024. De vrouw moet een...
 - [Man doodgestoken op straat in Amsterdam](https://nos.nl/l/2610483)
   > In Amsterdam is een man doodgestoken op straat. Dat gebeurde op de Tugelaweg in Amsterdam-Oost. De politie is op zoek naar één verdachte, meldt NH...
 - [Staking Lufthansa opnieuw uitgebreid, stakingen gaan door tot vrijdag](https://nos.nl/l/2610474)
   > De piloten van de Duitse luchtvaartmaatschappij Lufthansa gaan eind deze week opnieuw staken. De pilotenvakbond Vereinigung Cockpit (VC) heeft gemeld...
-- [Van Washington door naar Londen: Jetten op kennismakingsbezoek bij Starmer](https://nos.nl/l/2610468)
-  > Een dag na zijn diner met president Trump in Washington heeft premier Jetten in Londen een kennismakingsbezoek gebracht aan zijn Britse ambtgenoot...
-- [Man bij Tefaf in de boeien geslagen voor messenbezit: blijkt kok te zijn](https://nos.nl/l/2610467)
-  > Bij de kunstbeurs Tefaf in Maastricht is een man staande gehouden die meerdere messen bij zich had. De man bleek een stuk onschuldiger dan verwacht,...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Tien landen roepen op tot einde van strijd in Libanon, Berendsen bespreekt missie in Straat van Hormuz met Rubio](https://www.ad.nl/buitenland/tien-landen-roepen-op-tot-einde-van-strijd-in-libanon-berendsen-bespreekt-missie-in-straat-van-hormuz-met-rubio~ac528ac3/)
+  > In een gezamenlijke verklaring hebben Canada, Groot-Brittannië, Japan en zeven andere landen opgeroepen tot een ‘onmiddellijk einde aan de...
+- [Wéér gedoe bij afhandeling toeslagenaffaire, nu zijn zzp’ers de klos](https://www.ad.nl/politiek/weer-gedoe-bij-afhandeling-toeslagenaffaire-nu-zijn-zzpers-de-klos~abdd091c/)
+  > 650 zzp’ers die hielpen bij het afhandelen van de toeslagenaffaire dreigen tot wel 10.000 euro te moeten terugbetalen. De Belastingdienst bestraft...
+- [Recordaantal fietsers naar spoedeisende hulp: 81.000 slachtoffers in één jaar](https://www.ad.nl/binnenland/recordaantal-fietsers-naar-spoedeisende-hulp-81-000-slachtoffers-in-een-jaar~a99414b5/)
+  > Het aantal fietsers dat met serieus letsel in het ziekenhuis belandt, blijft hard stijgen. Vorig jaar meldden bijna 81.000 mensen zich op de...
+- [Rechtse Peruaanse kandidaat López eist nietigverklaring eerste ronde verkiezingen](https://www.ad.nl/buitenland/rechtse-peruaanse-kandidaat-lopez-eist-nietigverklaring-eerste-ronde-verkiezingen~ae5e3115/)
+  > De Peruaanse rechtse presidentskandidaat Rafael López Aliaga heeft dinsdag opgeroepen de eerste ronde van de verkiezingen in het land nietig te...
 - [Royal Ballet dankt Timothée Chalamet voor sneer: kaartverkoop door het dak](https://www.ad.nl/show/royal-ballet-dankt-timothee-chalamet-voor-sneer-kaartverkoop-door-het-dak~a025ea58/)
   > Het hoofd van de Royal Ballet and Opera in Londen heeft acteur Timothée Chalamet hartelijk bedankt voor zijn slecht gevallen opmerking over opera en...
-- [Voetbalpodcast | ‘De Koning logeert bij Trump terwijl Oranje moet het WK boycotten? Belachelijk’](https://www.ad.nl/voetbal/voetbalpodcast-de-koning-logeert-bij-trump-terwijl-oranje-moet-het-wk-boycotten-belachelijk~ac8603a9/)
-  > De eerste halve finalisten van de Champions League zijn bekend: PSG en Atletico Madrid. In de AD Voetbalpodcast bespreken Etienne Verhoeff en Sjoerd...
-- [Eerste halvefinalisten zijn bekend: hier kun je de laatste kwartfinales bekijken en zo staat het ervoor](https://www.ad.nl/voetbal/eerste-halvefinalisten-zijn-bekend-hier-kun-je-de-laatste-kwartfinales-bekijken-en-zo-staat-het-ervoor~abcdba15/)
-  > In de Champions League staan deze week de kwartfinales op het programma. Dinsdagavond pakten Atlético Madrid en titelhouder Paris Saint-Germain de...
-- [Frenkie de Jong evenaart Phillip Cocu als Nederlander met meeste wedstrijden voor FC Barcelona](https://www.ad.nl/voetbal/frenkie-de-jong-evenaart-phillip-cocu-als-nederlander-met-meeste-wedstrijden-voor-fc-barcelona~ae5f2996/)
-  > Frenkie de Jong viel dinsdagavond in bij FC Barcelona tegen Atlético Madrid en kwam daarmee op 292 wedstrijden voor de club. De Jong is nu samen met...
-- [Droomstart Barça krijgt geen vervolg, Atlético houdt schade beperkt en staat in halve finale Champions League](https://www.ad.nl/voetbal/droomstart-barca-krijgt-geen-vervolg-atletico-houdt-schade-beperkt-en-staat-in-halve-finale-champions-league~a95b48359/)
-  > In een zinderend Spaans stierengevecht overleefde Atlético Madrid de stoten van FC Barcelona. Ondanks de 1-2 nederlaag schakelden de Madrilenen de...
 
 ### Meest gelezen
 
