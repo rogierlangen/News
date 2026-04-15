@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-04-2026 om 11:04*
+*Laatst bijgewerkt: 15-04-2026 om 13:48*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- ['VS stuurt duizenden extra militairen naar Midden-Oosten'](https://nos.nl/l/2610539)
-  > De VS gaat de komende dagen nog eens duizenden extra militairen naar het Midden-Oosten sturen, meldt The Washington Post. Volgens de krant doet het...
-- [VS valt weer vermeende drugsboot aan, vierde in een week tijd](https://nos.nl/l/2610533)
-  > Het Amerikaanse leger heeft opnieuw een vermeende drugsboot aangevallen in het oosten van de Stille Oceaan. Het is onbekend bij welke kust het...
-- [Tweede arrestatie voor in brand steken 69-jarige man in rolstoel](https://nos.nl/l/2610530)
-  > De politie in Utrecht heeft een tweede verdachte gearresteerd voor het in brand steken van een man in een rolstoel. Het gaat om een man van 55 jaar.
-...
-- [Hoop in Hongarije dat Magyar de corruptie van Orbáns systeem ‘verplettert’](https://nos.nl/l/2610529)
-  > Na een groot feest in Boedapest zondagavond, is het nieuws van Péter Magyars overwinning langzaam neergedaald. Een nieuw tijdperk vol hervormingen in...
-- [Hobbyvlieger (50) raakt drone kwijt na twee vluchten rond gevangenis Vught](https://nos.nl/l/2610528)
-  > Een man die tot twee keer toe met zijn drone vloog bij de Extra Beveiligde Inrichting (EBI) in Vught is zijn toestel kwijtgeraakt. Hij schond daarmee...
+- [Podcast De Dag: Paus Leo XIV vs Donald 'Jezus' Trump](https://nos.nl/l/2610563)
+  > Paus Leo de veertiende is niet bang voor Trump. En de president noemt de paus een slappeling en zette een AI-gegenereerde afbeelding online van...
+- [Asielwetten Faber dreigen te sneuvelen; PVV gaat tegen nieuw deel stemmen](https://nos.nl/l/2610558)
+  > De PVV in de Eerste Kamer stemt tegen het deel van de nieuwe asielwetten waarin staat dat hulp aan illegalen niet strafbaar is. Dat heeft...
+- [Verdachte opgepakt voor dubbele mishandeling Rotterdamse buschauffeur](https://nos.nl/l/2610555)
+  > In Rotterdam is een man opgepakt voor het mishandelen van een buschauffeur, meldt de politie. De verdachte zou twee keer geweld hebben gebruikt tegen...
+- [Almelo dreigt COA met boete voor huisvesten statushouders in hotel](https://nos.nl/l/2610552)
+  > De gemeente Almelo eist van het COA dat veertien statushouders zo snel mogelijk uit een hotel vertrekken. Gebeurt dat niet binnen twee weken, dan...
+- [Taliban-documentaire Hila Noorzai terug op NPO Start na arrestatie geïnterviewde](https://nos.nl/l/2610551)
+  > De documentaire Hila voorbij de Taliban is vanaf vandaag weer te zien op NPO Start. De serie werd in januari offline gehaald door AVROTROS nadat een...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hij had het werk van een collega ‘ingepikt’ en dan is het kennelijk normaal dat je neergestoken wordt](https://www.ad.nl/binnenland/hij-had-het-werk-van-een-collega-ingepikt-en-dan-is-het-kennelijk-normaal-dat-je-neergestoken-wordt~aa0ac4de/)
-  > Het is ronduit idioot: we leven in een land waar je alles zelf kan kiezen, van energieleverancier tot kabelaanbieder. Alles, behalve de persoon die...
-- [Sylvana (26) toont kwetsbare momenten om andere zieken te motiveren: ‘Blijf doorgaan schat, het komt goed’](https://www.ad.nl/dordrecht/sylvana-26-toont-kwetsbare-momenten-om-andere-zieken-te-motiveren-blijf-doorgaan-schat-het-komt-goed~a9409969/)
-  > Ziekenhuisbedden, operaties en sondevoeding zijn al vijf jaar onderdeel van het leven van de 26-jarige Sylvana Visser. Ondanks haar chronische ziekte...
-- [Docuserie Hila voorbij de taliban opnieuw te streamen: ‘Alle vrouwen staan nog steeds achter de serie’](https://www.ad.nl/show/docuserie-hila-voorbij-de-taliban-opnieuw-te-streamen-alle-vrouwen-staan-nog-steeds-achter-de-serie~a3a1d20c/)
-  > De docuserie Hila voorbij de taliban is vanaf woensdag weer te streamen op NPO Start. De reeks werd eerder dit jaar offline gehaald, nadat een van de...
-- [School in rouw om overleden leerling (14): feestelijke laatste schooldag geschrapt](https://www.ad.nl/binnenland/school-in-rouw-om-overleden-leerling-14-feestelijke-laatste-schooldag-geschrapt~a42e31a5/)
-  > Een 14-jarige leerling van het Willem van Oranje College in Wijk en Aalburg is dinsdagmiddag om het leven gekomen bij een verkeersongeluk. Daarom...
-- [‘Gewoon schijt hebben’: hoe een jonge onervaren groep Oranje Leeuwinnen wél Frankrijk versloeg](https://www.ad.nl/voetbal/gewoon-schijt-hebben-hoe-een-jonge-onervaren-groep-oranje-leeuwinnen-wel-frankrijk-versloeg~a4385d58d/)
-  > Elf jaar lang lukte het de Oranje Leeuwinnen niet om Frankrijk te verslaan. Dinsdagavond slaagde een jonge en onervaren groep daar wel in. „Ik zei...
+- [Australische politie onderzoekt beschuldigingen rond Katy Perry](https://www.ad.nl/show/australische-politie-onderzoekt-beschuldigingen-rond-katy-perry~afbe1a62/)
+  > De Australische politie doet onderzoek naar beschuldigingen tegen Katy Perry. Actrice Ruby Rose beschuldigt haar van seksueel misbruik, meldt onder...
+- [Man die vijf mensen neerstak op de Dam wilde ‘belastingbetaler laten boeten’ en zou aanslag ‘zo weer doen’](https://www.ad.nl/binnenland/man-die-vijf-mensen-neerstak-op-de-dam-wilde-belastingbetaler-laten-boeten-en-zou-aanslag-zo-weer-doen~a4ba9bbc/)
+  > De 31-jarige Oekraïner Roman D., verdacht van het neersteken van mensen rond de Dam in maart vorig jaar, zei eind vorig jaar tegen...
+- [Anti-katerpaketten en tosti’s voor Japanners: de Happy People Officer van Almere City is van alle markten thuis](https://www.ad.nl/voetbal/anti-katerpaketten-en-tostis-voor-japanners-de-happy-people-officer-van-almere-city-is-van-alle-markten-thuis~a3809f83/)
+  > Net als grote bedrijven als Google heeft Almere City FC een happy people officer in dienst. Wat doet zo iemand de hele dag? „Soms sta ik hier ook...
+- [Oekraïense president Zelensky komt naar Middelburg: 'Het is tot het laatst spannend geweest'](https://www.ad.nl/binnenland/oekraiense-president-zelensky-komt-naar-middelburg-het-is-tot-het-laatst-spannend-geweest~a7d76bd1/)
+  > President Volodymyr Zelensky van Oekraïne is donderdag in Middelburg om de Four Freedoms Award persoonlijk in ontvangst te nemen. Zijn aanwezigheid...
+- [Italiaanse ambulancebroeder Luca (27) zou op weg naar ziekenhuis zes mensen hebben omgebracht](https://www.ad.nl/buitenland/italiaanse-ambulancebroeder-luca-27-zou-op-weg-naar-ziekenhuis-zes-mensen-hebben-omgebracht~a2650004/)
+  > Hij stond in zijn Italiaanse dorpje bekend als een supersociale jongeman, maar lijkt nu een wrede moordenaar. De 27-jarige ambulancebroeder Luca...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Lossen douchemuntjes en uitgestelde wasjes het probleem op het stroomnet op?](https://fd.nl/economie/1592759/lossen-douchemuntjes-en-uitgestelde-wasjes-het-probleem-op-het-stroomnet-op)
-  > Het beter timen van gebruik van ‘stroomslurpers’ in het huis kan volgens kenners een verschil maken.
-- [Regio nog altijd bepalend voor latere kansen in onderwijs](https://fd.nl/samenleving/1592936/regio-nog-altijd-bepalend-voor-latere-kansen-in-onderwijs)
-  > De onderwijsloopbaan van Nederlandse kleuters, tieners en pubers hangt samen met de regio waarin zij opgroeien – van de keuze uit voorschoolse...
-- [Iraanse havens ‘volledig geblokkeerd’ door VS](https://fd.nl/politiek/1593018/blokkade-iraanse-havens-volledig-geimplementeerd)
-  > De Amerikaanse president Donald Trump heeft de afgelopen uren meermaals gehint op een snel einde aan de oorlog en een terugkeer naar de...
-- [Ondernemer Florentine Gillis: ‘Ik ben niet zo bang om te falen’](https://fd.nl/samenleving/1592811/ondernemer-florentine-gillis-ik-ben-niet-zo-bang-om-te-falen)
-  > Online-intro: Tegen heilige huisjes schoppen, op tijd stoppen. Wat maken professionals mee in hun loopbaan? Deze week: Florentine Gillis (1989),...
-- [Inflatie ontstaat vooral als we de rekening niet oppakken maar doorschuiven](https://fd.nl/opinie/1592882/inflatie-ontstaat-bij-het-doorschuiven-van-de-rekening)
-  > De eerste klap van duurdere energie is onvermijdelijk. Maar of inflatie hardnekkig wordt, hangt af van wat daarna gebeurt: lonen, prijzen en beleid....
+- [Nettowinst Morgan Stanley stijgt 30%](https://fd.nl/bedrijfsleven/1592944/nettowinst-morgan-stanley-stijgt-30)
+  > De winst kwam uit op $3,43 per aandeel, ruim boven de verwachting van analisten van $3 per aandeel.
+- [Onderzoek: watervervuiling rond tuinbouwkassen](https://fd.nl/bedrijfsleven/1592943/onderzoek-watervervuiling-rond-tuinbouwkassen)
+  > Glastuinbouwkassen lekken nog altijd giftige stoffen, zo blijkt uit onderzoek van milieuorganisatie Natuur & Milieu.
+- [VS raken dieper in de schulden dan Italië, en daar kan ook Europa last van krijgen](https://fd.nl/financiele-markten/1592932/vs-raken-dieper-in-de-schulden-dan-italie-en-daar-kan-ook-europa-last-van-krijgen)
+  > De Verenigde Staten zijn hard op weg om nog voor het einde van dit decennium Italië in te halen op de ranglijst van landen met de hoogste...
+- [Niet alleen méér windmolens bouwen op zee, maar nu vooral méér groene industrie](https://fd.nl/opinie/1592875/niet-alleen-meer-windmolens-nu-vooral-meer-groene-industrie)
+  > Vattenfall Nederland-ceo Cindy Kroon ziet hoe het kabinet wél geld uittrekt voor 40 gigawatt wind op zee, maar niet voor elektrificatie van de...
+- [TNO wil met mobiele fabriekjes in zeecontainers wereldwijde munitiekorten te lijf](https://fd.nl/tech-en-innovatie/1592888/tno-wil-met-mobiele-fabriekjes-in-zeecontainers-wereldwijde-munitiekorten-te-lijf)
+  > TNO Defensie en Veiligheid kan, na twee jaar testen, in een container de schaarse springstof TNT maken. Het onderzoeksbureau praat nu met bedrijven...
 
 ### Meest gelezen
 
