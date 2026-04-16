@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-04-2026 om 12:00*
+*Laatst bijgewerkt: 16-04-2026 om 14:58*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Toeslagen checken in bankapp: 'Gezonde klant ook goed voor de bank'](https://nos.nl/l/2610693)
-  > Grote banken zetten in op hulp met het aanvragen van toeslagen. ING en Rabobank hebben speciale teams opgezet om mensen die lastig rondkomen te...
-- [Toezichthouder doet inval bij vleesproducent Esro in Nuenen](https://nos.nl/l/2610689)
-  > De Nederlandse Voedsel- en Warenautoriteit heeft een inval gedaan bij vleesproducent Esro in het Brabantse Nuenen. Rechercheurs van de toezichthouder...
-- [Kabinet: temperatuur veetransporten omlaag, permanent toezicht slachthuizen](https://nos.nl/l/2610688)
-  > Het kabinet wil de regels voor dierentransport aanscherpen. Zo moet de maximum temperatuur tijdens transporten vanaf 1 april volgend jaar van 35 naar...
-- [Eindelijk duidelijk wat Ottomanen in Het Loo doen: 'Politiek meesterwerk'](https://nos.nl/l/2610686)
-  > Minzaam kijken ze neer op de bezoekers van Paleis Het Loo, zeven geschilderde figuren in Ottomaanse kledij op de wanden van de grote trap. Lang was...
-- [Storm in een pot jam: Britten bezorgd om EU-marmeladeregels](https://nos.nl/l/2610685)
-  > James Bond at het bij zijn ontbijt, Jane Austen liet het opdienen in Sense and Sensibility, The Beatles zongen erover in Lucy in the Sky with...
+- [Verdachte van kunstroof Assen die geen deal sloot met justitie wil vrijspraak](https://nos.nl/l/2610723)
+  > De verdachte van de kunstroof in Assen die géén deal sloot met justitie, moet grotendeels worden vrijgesproken. Dat bepleitten zijn advocaten vandaag...
+- [Podcast de Dag: Marco Borsato van gecanceld naar comeback?](https://nos.nl/l/2610719)
+  > Marco Borsato is terug op televisie. Gisteravond at en dronk hij met kok Sergio Herman in het programma Sergio in Italië.
+        In de afgelopen...
+- [Defensie stopt met droneoefeningen bij Weert na incidenten bij vliegveld Kempen](https://nos.nl/l/2610713)
+  > Militairen kunnen voorlopig niet meer oefenen met drones op de Weerterheide. Dat is deels een militair oefenterrein, vlak bij Weert. Het grenst aan...
+- [Provider Caiway gestopt, weduwe oprichter als laatste klant overgezet](https://nos.nl/l/2610712)
+  > Het was ooit een provider met 200.000 klanten in Nederland, maar nu is de allerlaatste klant overgezet. Caiway, een kabelprovider die zijn oorsprong...
+- [Boegbeeld TomTom zwaait af, opvolger moet bedrijf nieuwe richting wijzen](https://nos.nl/l/2610708)
+  > Na 34 jaar en zes maanden zwaait Harold Goddijn af als topman van navigatiebedrijf TomTom. Onder zijn leiding groeide het bedrijf uit van kleine...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Van Gerwen en Van Veen trots op tien jaar Premier League in Rotterdam: ‘Bij elke 180 kreeg ik een bierdouche’](https://www.ad.nl/darts/van-gerwen-en-van-veen-trots-op-tien-jaar-premier-league-in-rotterdam-bij-elke-180-kreeg-ik-een-bierdouche~add0e91e/)
-  > Tienduizend dartsfans, allemaal in het oranje, die speciaal voor jou naar Ahoy komen. Het is een gevoel dat nooit went. Michael van Gerwen weet het...
-- [Brussel wil megabedrijven in Europa om te concurreren met China en VS: fuseren moet makkelijker worden](https://www.ad.nl/economie/brussel-wil-megabedrijven-in-europa-om-te-concurreren-met-china-en-vs-fuseren-moet-makkelijker-worden~a998721b/)
-  > Brussel wil fusies binnen de EU eerder goedkeuren als ze de Europese markt verder vooruithelpen. Dat meldt de Financial Times op basis van...
-- [Nachtmerrie voor makers Nickelodeon, Avatar-film ver voor release gestolen: ‘Mijn hart is gebroken’](https://www.ad.nl/home/nachtmerrie-voor-makers-nickelodeon-avatar-film-ver-voor-release-gestolen-mijn-hart-is-gebroken~abc92d2a/)
-  > De langverwachte animatiefilm Avatar: Aang, the last airbender is ruim een half jaar voor de officiële release in zijn geheel uitgelekt op sociale...
-- [Quiz: Welke NEC-speler won eerder de finale met FC Groningen? Test je kennis over de KNVB-beker](https://www.ad.nl/voetbal/quiz-welke-nec-speler-won-eerder-de-finale-met-fc-groningen-test-je-kennis-over-de-knvb-beker~a9dcc65e/)
-  > De finale van de KNVB-beker wordt zondag in De Kuip gespeeld. Wat weet jij over de routes naar de finale van AZ en NEC? En weet jij ook nog alles van...
-- [Toch natuurvergunning nodig voor luchthavens Rotterdam en Eindhoven](https://www.ad.nl/binnenland/toch-natuurvergunning-nodig-voor-luchthavens-rotterdam-en-eindhoven~ad5549caf/)
-  > De luchthavens van Rotterdam en Eindhoven hebben toch een natuurvergunning nodig. Dat heeft de rechtbank in Gelderland donderdag besloten.
+- [Jutta Leerdam op Forbes-lijst met meest invloedrijke jonge talenten: ‘Dit voelt als een knijp-me-moment’](https://www.ad.nl/schaatsen/jutta-leerdam-op-forbes-lijst-met-meest-invloedrijke-jonge-talenten-dit-voelt-als-een-knijp-me-moment~aaddba3f/)
+  > Na het olympisch succes van twee maanden geleden, heeft Jutta Leerdam een nieuwe mijlpaal bereikt. De 27-jarige schaatster is door het toonaangevende...
+- [Woerden betaalde al 219.000 euro aan de huur van dit fietspad, en hier blijft het niet bij, aldus de rechter](https://www.ad.nl/binnenland/woerden-betaalde-al-219-000-euro-aan-de-huur-van-dit-fietspad-en-hier-blijft-het-niet-bij-aldus-de-rechter~a124e619/)
+  > Al negen jaar lang krijgt de eigenaar van een weiland waarop een openbaar fietspad is aangelegd zes keer zoveel huur als normaal is in de markt. Een...
+- [Ajax ook in oefenduel verslagen door FC Twente](https://www.ad.nl/voetbal/ajax-ook-in-oefenduel-verslagen-door-fc-twente~a4d1a909/)
+  > Ajax heeft een 1-0-nederlaag geleden in een oefenwedstrijd tegen FC Twente. Op sportcomplex De Toekomst bleven de doelpunten lang uit. Na ruim 80...
+- [Verkoper heeft moeite met de verhuizing, maar de twee vrouwen gunt hij wel een financieel voordeeltje](https://www.ad.nl/geld/verkoper-heeft-moeite-met-de-verhuizing-maar-de-twee-vrouwen-gunt-hij-wel-een-financieel-voordeeltje~a146aabe/)
+  > Eigenlijk wil hij zijn fijne huis niet verkopen, maar de twee vrouwen die interesse hebben, gunt hij het wel. Zelfs met een financieel voordeeltje....
+- ['Oma staat voor de deur': toezichthouder kritisch op gezichtsherkenning Ring-deurbellen](https://www.ad.nl/tech/oma-staat-voor-de-deur-toezichthouder-kritisch-op-gezichtsherkenning-ring-deurbellen~a1be2a39/)
+  > Videodeurbellen van Amazon kunnen binnenkort gezichten van bezoekers herkennen met AI. Volgens Amazon worden de beelden ‘extreem veilig’ opgeslagen,...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Met taal naar de heilstaat](https://fd.nl/opinie/1592721/met-taal-naar-de-heilstaat)
-  > OCW heeft een eigen taalgids: voortaan ligt vast welke woorden wel en niet deugen in de strijd tegen discriminatie en racisme. Prijskaartje: €40.000,...
-- [Kleinere bouwbedrijven wankelen door krappe arbeidsmarkt](https://fd.nl/bedrijfsleven/1593282/kleinere-bouwbedrijven-wankelen-door-krappe-arbeidsmarkt)
-  > Het aantal faillissementen in de bouw loopt flink op. Personeelstekort is een van de oorzaken. ‘We moeten opdrachten weigeren omdat er gewoon geen...
-- [Hein Schumacher begint bij chocolademaker Barry Callebaut met winstwaarschuwing](https://fd.nl/bedrijfsleven/1593288/hein-schumacher-begint-bij-chocolademaker-barry-callebaut-met-winstwaarschuwing)
-  > Barry Callebaut staat sinds eind januari onder leiding van de Nederlander Hein Schumacher, die eerder leiding gaf aan Unilever en FrieslandCampina.
-- [Bosch waarschuwt EU: pas CO₂‑regels auto’s aan, anders dreigt groot banenverlies](https://fd.nl/bedrijfsleven/1593078/bosch-waarschuwt-eu-pas-co-regels-autos-aan-andersdreigt-groot-banenverlies)
-  > Duitse toeleveranciers van de autosector weten zich gesteund door hun eigen regering, die Brussel tot concessies wil dwingen.
-- [Niet de gewerkte tijd maar jouw productie wordt hét leidende principe bij werk](https://fd.nl/opinie/1592373/niet-gewerkte-tijd-maar-output-wordt-leidend-principe-bij-werk)
-  > De opkomst van AI verandert de contractuele verhoudingen tussen werkgevers en werknemers ingrijpend – met name in hun relatie tot tijd. Door vast te...
+- [Lufthansa staakt vluchten dochter Cityline per direct](https://fd.nl/bedrijfsleven/1593300/lufthansa-staakt-vluchten-dochter-cityline-per-direct)
+  > Bedrijf onderbouwt maatregel door te wijzen op hoge kerosineprijzen en aanhoudende arbeidsonrust.
+- [AFM tikt cryptobranche op de vingers om misleidende reclame en informatie](https://fd.nl/financiele-markten/1593279/afm-tikt-cryptobranche-op-de-vingers-om-misleidendereclame-en-informatie)
+  > De branche maakt vorderingen, maar moet wel zijn verantwoordelijkheid gaan nemen, aldus de toezichthouder.
+- [Ook beleggers vieren de monsterzege van Peter Magyar](https://fd.nl/financiele-markten/1593298/ook-beleggers-vieren-de-monsterzege-van-peter-magyar)
+  > Beleggers verwachten een beter ondernemersklimaat en minder corruptie in Hongarije. De beurzen, obligatiemarkten en valutamarkten signaleren...
+- [Speelgoed voor weinig!](https://fd.nl/financiele-markten/1593296/speelgoed-voor-weinig)
+  > Intertoys kocht een meerderheidsbelang in Lobbes Speelgoed en Thimble Toys. Nu moet er worden geleverd.
+- [Belegger Mark Mobius (89) was dé kenner van opkomende markten](https://fd.nl/financiele-markten/1593384/belegger-mark-mobius-89-was-de-kenner-van-opkomende-markten)
+  > Als een van de eerste beleggers zag hij het potentieel van opkomende markten. In de loop van zijn carrière bezocht hij meer dan 110 landen met als...
 
 ### Meest gelezen
 
