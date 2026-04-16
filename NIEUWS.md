@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-04-2026 om 14:58*
+*Laatst bijgewerkt: 16-04-2026 om 16:44*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [KLM schrapt tientallen vluchten binnen Europa vanwege oplopende kerosinekosten](https://nos.nl/l/2610734)
+  > KLM schrapt komende maand tachtig retourvluchten. Het gaat om vluchten binnen Europa waar de luchtvaartmaatschappij meerdere keren per dag op vliegt,...
+- [Geen maatregelen om verkeersdruk werk aan A2 bij Vianen te verlichten](https://nos.nl/l/2610733)
+  > Rijkswaterstaat roept weggebruikers vanwege de werkzaamheden aan de A2 bij Vianen dit weekend met klem op niet af te wijken van de omleidingsroute....
+- [Venetië kan zeespiegelstijging overleven, maar dat heeft wel een prijs](https://nos.nl/l/2610729)
+  > Venetië is de stad van de liefde, beroemd om zijn kanalen en gondels, maar door de stijgende zeespiegel wordt de stad bedreigd. Oplossingen om de...
+- [Luchthavens Rotterdam en Eindhoven hebben tóch natuurvergunning nodig, zegt de rechter](https://nos.nl/l/2610725)
+  > Eindhoven Airport en Rotterdam The Hague Airport hebben toch natuurvergunningen nodig, heeft de rechtbank bepaald. Voormalig minister van Natuur en...
 - [Verdachte van kunstroof Assen die geen deal sloot met justitie wil vrijspraak](https://nos.nl/l/2610723)
   > De verdachte van de kunstroof in Assen die géén deal sloot met justitie, moet grotendeels worden vrijgesproken. Dat bepleitten zijn advocaten vandaag...
-- [Podcast de Dag: Marco Borsato van gecanceld naar comeback?](https://nos.nl/l/2610719)
-  > Marco Borsato is terug op televisie. Gisteravond at en dronk hij met kok Sergio Herman in het programma Sergio in Italië.
-        In de afgelopen...
-- [Defensie stopt met droneoefeningen bij Weert na incidenten bij vliegveld Kempen](https://nos.nl/l/2610713)
-  > Militairen kunnen voorlopig niet meer oefenen met drones op de Weerterheide. Dat is deels een militair oefenterrein, vlak bij Weert. Het grenst aan...
-- [Provider Caiway gestopt, weduwe oprichter als laatste klant overgezet](https://nos.nl/l/2610712)
-  > Het was ooit een provider met 200.000 klanten in Nederland, maar nu is de allerlaatste klant overgezet. Caiway, een kabelprovider die zijn oorsprong...
-- [Boegbeeld TomTom zwaait af, opvolger moet bedrijf nieuwe richting wijzen](https://nos.nl/l/2610708)
-  > Na 34 jaar en zes maanden zwaait Harold Goddijn af als topman van navigatiebedrijf TomTom. Onder zijn leiding groeide het bedrijf uit van kleine...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Jutta Leerdam op Forbes-lijst met meest invloedrijke jonge talenten: ‘Dit voelt als een knijp-me-moment’](https://www.ad.nl/schaatsen/jutta-leerdam-op-forbes-lijst-met-meest-invloedrijke-jonge-talenten-dit-voelt-als-een-knijp-me-moment~aaddba3f/)
-  > Na het olympisch succes van twee maanden geleden, heeft Jutta Leerdam een nieuwe mijlpaal bereikt. De 27-jarige schaatster is door het toonaangevende...
-- [Woerden betaalde al 219.000 euro aan de huur van dit fietspad, en hier blijft het niet bij, aldus de rechter](https://www.ad.nl/binnenland/woerden-betaalde-al-219-000-euro-aan-de-huur-van-dit-fietspad-en-hier-blijft-het-niet-bij-aldus-de-rechter~a124e619/)
-  > Al negen jaar lang krijgt de eigenaar van een weiland waarop een openbaar fietspad is aangelegd zes keer zoveel huur als normaal is in de markt. Een...
-- [Ajax ook in oefenduel verslagen door FC Twente](https://www.ad.nl/voetbal/ajax-ook-in-oefenduel-verslagen-door-fc-twente~a4d1a909/)
-  > Ajax heeft een 1-0-nederlaag geleden in een oefenwedstrijd tegen FC Twente. Op sportcomplex De Toekomst bleven de doelpunten lang uit. Na ruim 80...
-- [Verkoper heeft moeite met de verhuizing, maar de twee vrouwen gunt hij wel een financieel voordeeltje](https://www.ad.nl/geld/verkoper-heeft-moeite-met-de-verhuizing-maar-de-twee-vrouwen-gunt-hij-wel-een-financieel-voordeeltje~a146aabe/)
-  > Eigenlijk wil hij zijn fijne huis niet verkopen, maar de twee vrouwen die interesse hebben, gunt hij het wel. Zelfs met een financieel voordeeltje....
-- ['Oma staat voor de deur': toezichthouder kritisch op gezichtsherkenning Ring-deurbellen](https://www.ad.nl/tech/oma-staat-voor-de-deur-toezichthouder-kritisch-op-gezichtsherkenning-ring-deurbellen~a1be2a39/)
-  > Videodeurbellen van Amazon kunnen binnenkort gezichten van bezoekers herkennen met AI. Volgens Amazon worden de beelden ‘extreem veilig’ opgeslagen,...
+- [Ook medische gegevens gestolen bij ransomware-aanval op ChipSoft](https://www.ad.nl/tech/ook-medische-gegevens-gestolen-bij-ransomware-aanval-op-chipsoft~a82d683c/)
+  > Criminele hackers hebben bij de aanval op ChipSoft, een belangrijk softwarebedrijf voor de zorg, medische gegevens gestolen van patiënten. Dat laat...
+- [Heldendaad van koerier Hayder, die Paul (69) redt uit brandende rolstoel: ‘Ik moest daarna wel even huilen’](https://www.ad.nl/binnenland/heldendaad-van-koerier-hayder-die-paul-69-redt-uit-brandende-rolstoel-ik-moest-daarna-wel-even-huilen~afd931f2/)
+  > Als de invalide Paul dinsdagavond in brand vliegt, twijfelt Hayder Alazawy geen moment. Ondanks dat de vlammen uit de elektrische rolstoel slaan,...
+- [Supporters van Bayern München maken excuses na verwonden fotografen bij Champions League-duel](https://www.ad.nl/voetbal/supporters-van-bayern-munchen-maken-excuses-na-verwonden-fotografen-bij-champions-league-duel~a2018775/)
+  > Supporters van Bayern München hebben hun excuses aangeboden nadat meerdere fotografen woensdag door hun toedoen gewond waren geraakt bij het...
+- [Victoria Beckham reageert op gespannen relatie met zoon Brooklyn: ‘Proberen de beste ouders te zijn’](https://www.ad.nl/show/victoria-beckham-reageert-op-gespannen-relatie-met-zoon-brooklyn-proberen-de-beste-ouders-te-zijn~ad431a10/)
+  > Victoria Beckham heeft voor het eerst publiekelijk gereageerd op de gespannen relatie met haar zoon Brooklyn Beckham. Dat deed de 51-jarige Britse...
+- [Opvallende stap van Lionel Messi: Argentijnse sterspeler wordt eigenaar van Spaanse club](https://www.ad.nl/voetbal/opvallende-stap-van-lionel-messi-argentijnse-sterspeler-wordt-eigenaar-van-spaanse-club~a49e902e/)
+  > Lionel Messi is terug in Catalonië. Niet als speler, maar als clubeigenaar. De achtvoudig Ballon d’Or-winnaar is de nieuwe baas van de Spaanse club...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Lufthansa staakt vluchten dochter Cityline per direct](https://fd.nl/bedrijfsleven/1593300/lufthansa-staakt-vluchten-dochter-cityline-per-direct)
-  > Bedrijf onderbouwt maatregel door te wijzen op hoge kerosineprijzen en aanhoudende arbeidsonrust.
-- [AFM tikt cryptobranche op de vingers om misleidende reclame en informatie](https://fd.nl/financiele-markten/1593279/afm-tikt-cryptobranche-op-de-vingers-om-misleidendereclame-en-informatie)
-  > De branche maakt vorderingen, maar moet wel zijn verantwoordelijkheid gaan nemen, aldus de toezichthouder.
-- [Ook beleggers vieren de monsterzege van Peter Magyar](https://fd.nl/financiele-markten/1593298/ook-beleggers-vieren-de-monsterzege-van-peter-magyar)
-  > Beleggers verwachten een beter ondernemersklimaat en minder corruptie in Hongarije. De beurzen, obligatiemarkten en valutamarkten signaleren...
-- [Speelgoed voor weinig!](https://fd.nl/financiele-markten/1593296/speelgoed-voor-weinig)
-  > Intertoys kocht een meerderheidsbelang in Lobbes Speelgoed en Thimble Toys. Nu moet er worden geleverd.
-- [Belegger Mark Mobius (89) was dé kenner van opkomende markten](https://fd.nl/financiele-markten/1593384/belegger-mark-mobius-89-was-de-kenner-van-opkomende-markten)
-  > Als een van de eerste beleggers zag hij het potentieel van opkomende markten. In de loop van zijn carrière bezocht hij meer dan 110 landen met als...
+- [Greenpeace zet gevecht tegen oliebedrijf dat bijna €300 mln schadevergoeding eist in Nederland door](https://fd.nl/samenleving/1593297/greenpeace-zet-gevecht-tegen-amerikaans-oliebedrijf-dat-honderden-miljoenen-schadevergoeding-eist-in-nederland-door)
+  > De milieuorganisatie beschuldigt energiemaatschappij van misbruik van het recht, met de intentie tegenstanders het zwijgen op te leggen. Greenpeace...
+- [‘Carglass-eigenaar Belron wil naar de beurs in Amsterdam’](https://fd.nl/financiele-markten/1593396/carglass-eigenaar-belron-wil-naar-de-beurs-in-amsterdam)
+  > Het bedrijf mikt op een waardering van €30 mrd tot €40 mrd.
+- [Trump: Israël en Libanon komen staakt-het-vuren overeen](https://fd.nl/politiek/1593395/trump-israel-en-libanon-komen-staakt-het-vuren-overeen)
+  > Het bestand zou vanavond om 23.00 uur Nederlandse tijd ingaan en gelden voor tien dagen.
+- [Rotterdam en Eindhoven Airport hebben toch een natuurvergunning nodig](https://fd.nl/bedrijfsleven/1593392/rotterdam-en-eindhoven-airport-hebben-toch-een-natuurvergunning-nodig)
+  > De rechtbank oordeelde dat de luchthavens geen gebruik kunnen maken van eerder verleende toestemmingen voor hun activiteiten.
+- [Royal Swinkels boekt licht hoger bedrijfsresultaat](https://fd.nl/bedrijfsleven/1593393/royal-swinkels-boekt-licht-hoger-bedrijfsresultaat)
+  > De Brabantse bierbrouwer spreekt in een toelichting op de jaarcijfers van een ‘lastig’ 2025. Het brutobedrijfsresultaat (ebit) kwam ruim €4 mln hoger...
 
 ### Meest gelezen
 
