@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-04-2026 om 06:04*
+*Laatst bijgewerkt: 16-04-2026 om 08:46*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Trump kondigt topoverleg aan tussen Israël en Libanon](https://nos.nl/l/2610653)
+  > De Amerikaanse president Trump zegt in een bericht op sociale media dat de leiders van Libanon en Israël vandaag voor het eerst in decennia weer...
+- [Woningmarkt komt in balans: minder huizen verkocht, kopers zijn afwachtender](https://nos.nl/l/2610652)
+  > De woningmarkt lijkt iets meer in balans te komen, doordat er meer woningen worden aangeboden en kopers afwachtender zijn. Dat meldt...
+- [Lijnbus rijdt in sloot bij Friese Terherne, twee mensen naar ziekenhuis](https://nos.nl/l/2610648)
+  > In het Friese dorp Terherne is een lijnbus de sloot in gereden. Er zaten zes personen in de bus toen het ongeluk gebeurde, inclusief de chauffeur....
+- [Doden en tientallen gewonden bij zware Russische aanvallen op Oekraïne](https://nos.nl/l/2610642)
+  > Opnieuw zijn er doden gevallen bij verschillende Russische aanvallen op Oekraïense steden. In Odesa werden zeven mensen gedood en raakten elf mensen...
 - [Brand in raffinaderij verergert brandstofproblemen Australië](https://nos.nl/l/2610636)
   > Een brand in een grote raffinaderij in Australië dreigt de brandstoftekorten die zijn ontstaan door de oorlog in het Midden-Oosten te verergeren. Het...
-- [Wekdienst 16/4: Zelensky is in Middelburg • Laatste kans voor AZ in Conference League](https://nos.nl/l/2610633)
-  > Goedemorgen! De Oekraïense president Zelensky ontvangt in Middelburg een internationale prijs. En het is erop of eronder voor AZ in de kwartfinale...
-- [Dode bij steekpartij in Hoofddorp, een verdachte opgepakt](https://nos.nl/l/2610630)
-  > Bij een steekincident in een woning in Hoofddorp is gisteravond een dode gevallen. Het slachtoffer is nog gereanimeerd door de hulpdiensten, maar was...
-- [Zuid-Korea in de ban van weggelopen wolf 'die niet gekooid wilde blijven'](https://nos.nl/l/2610629)
-  > Sinds de ontsnapping van een jonge wolf uit een Zuid-Koreaanse dierentuin vorige week, houdt het dier het land in zijn greep. Ondanks de inzet van...
-- [Eigenaar Ticketmaster schuldig aan monopolie en te hoge prijzen voor concerten in VS](https://nos.nl/l/2610628)
-  > Live Nation, de entertainmentgigant die ook eigenaar is van Ticketmaster, is schuldig bevonden aan het runnen van een monopolie. Ook vroeg het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hunger Games-acteur Ethan Jamieson opgepakt na aanval met vuurwapen](https://www.ad.nl/show/hunger-games-acteur-ethan-jamieson-opgepakt-na-aanval-met-vuurwapen~ae444fa09/)
-  > Hunger Games-acteur Ethan Jamieson is gearresteerd. De 27-jarige Amerikaan wordt verdacht van mishandeling, nadat hij drie mannen zou hebben...
-- [Barcelona wil nog voor WK Bastoni vastleggen, Givairo Read in beeld bij Europese grootmach­ten](https://www.ad.nl/voetbal/barcelona-wil-nog-voor-wk-bastoni-vastleggen-givairo-read-in-beeld-bij-europese-grootmachten~a35ea681/)
-  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
-- [Hoe Oekraïense robots Russische loopgraven innamen](https://www.ad.nl/buitenland/hoe-oekraiense-robots-russische-loopgraven-innamen~a236035e/)
-  > Voor het eerst is het de Oekraïners gelukt een vijandelijke Russische positie volledig te veroveren zonder de inzet van ook maar één...
-- [Golf aan tweedehands e-bikes op komst: let vooral hierop bij de aanschaf](https://www.ad.nl/economie/golf-aan-tweedehands-e-bikes-op-komst-let-vooral-hierop-bij-de-aanschaf~a6d4b6ed/)
-  > Er komt een golf aan tweedehands e-bikes aan, verwachten deskundigen. Wie er eentje wil aanschaffen, doet er goed aan de batterij en de...
-- [UWV-topman geeft voor hij vertrekt waarschuwing af aan kabinet: Grijp in](https://www.ad.nl/politiek/uwv-topman-geeft-voor-hij-vertrekt-waarschuwing-af-aan-kabinet-grijp-in~a7a38cb09/)
-  > Het UWV kan de groeiende stroom aanvragen voor arbeidsongeschiktheidsuitkeringen niet meer aan. Over een paar jaar staan 200.000 mensen langer dan...
+- [Buitenlandse media jaloers na spektakelstuk: ‘Waren onze beste Premier League-duels maar half zo goed als deze’](https://www.ad.nl/voetbal/buitenlandse-media-jaloers-na-spektakelstuk-waren-onze-beste-premier-league-duels-maar-half-zo-goed-als-deze~a80fb127/)
+  > Wat een wedstrijd woensdag tussen Bayern München en Real Madrid (4-3). Genieten, dat was het ook voor de buitenlandse media. In Duitsland is er...
+- [Hoe Marouane Meftah (22) zijn eigen misdaadserie bij Videoland kreeg: ‘Ik was in paniek toen ik werd gebeld’](https://www.ad.nl/show/hoe-marouane-meftah-22-zijn-eigen-misdaadserie-bij-videoland-kreeg-ik-was-in-paniek-toen-ik-werd-gebeld~a1be1d5e/)
+  > Videoland pakt opnieuw uit met een gewelddadige misdaadserie – deze keer niet in Amsterdam of Rotterdam, maar in Eindhoven. Marouane Meftah, bedenker...
+- [Iran dreigt schepen VS tot zinken te brengen, Israël kondigt gesprek aan met Libanon](https://www.ad.nl/buitenland/iran-dreigt-schepen-vs-tot-zinken-te-brengen-israel-kondigt-gesprek-aan-met-libanon~ac528ac3/)
+  > De militair adviseur van de hoogste Iraanse leider Mojtaba Khamenei heeft gedreigd Amerikaanse schepen tot zinken te brengen als deze in de Straat...
+- [Matcha is overal, maar is het echt gezonder dan koffie? Diëtist legt het uit](https://www.ad.nl/gezond/matcha-is-overal-maar-is-het-echt-gezonder-dan-koffie-dietist-legt-het-uit~ae6ecc06/)
+  > Niet meer weg te slaan van TikTok en vaste prik op het menu van hippe koffietentjes: matcha. Opvallend vanwege zijn felgroene kleur en volgens fans...
+- [Philippe Remarque wordt adjunct-hoofdredacteur van het AD](https://www.ad.nl/achter-de-schermen/philippe-remarque-wordt-adjunct-hoofdredacteur-van-het-ad~af970ce5/)
+  > Philippe Remarque (60) wordt adjunct-hoofdredacteur bij het AD. Remarque was eerder negen jaar hoofdredacteur van de Volkskrant en werkte de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Fastneds omzet uit ‘laden’ stijgt met 40% in eerste kwartaal](https://fd.nl/bedrijfsleven/1593081/fastneds-omzet-uit-laden-stijgt-met-40-in-eerste-kwartaal)
-  > De recordomzet uit de laadstations vloeit volgens het Amsterdamse bedrijf voort uit de opnieuw aantrekkende Europese markt voor elektrische...
-- [Op alle fronten groei bij CM.com](https://fd.nl/tech-en-innovatie/1593079/op-alle-fronten-groei-bij-cm-com)
-  > Het techbedrijf voldoet in het eerste kwartaal van 2026 ruimschoots aan de verwachtingen.
-- [Omzet TomTom daalt maar het bedrijfsresultaat stijgt](https://fd.nl/bedrijfsleven/1592975/omzet-tomtom-daalt-maar-het-bedrijfsresultaat-stijgt)
-  > De Amsterdamse kaartenmaker herhaalt de eerder uitgesproken prognoses voor 2026.
-- [Live: Aziatische beurzen verder omhoog, het regent beursrecords](https://fd.nl/financiele-markten/1592974/live-aziatische-beurzen-verder-omhoog-het-regent-beursrecords)
-  > Beleggers blijven optimistisch over een langdurig staakt-het-vuren tussen de Verenigde Staten en Iran. Aandelenindices staan op recordhoogte in de...
-- [BYD-topvrouw Stella Li: ‘Door weer te investeren in verbrandingsmotoren verliezen Europese autobouwers de race’](https://fd.nl/bedrijfsleven/1592764/byd-topvrouw-stella-li-door-weer-te-investeren-in-verbrandingsmotoren-verliezen-europese-autobouwers-de-race)
-  > De nummer twee van China’s grootste autobouwer snapt helemaal niks van Europese autobedrijven die opnieuw in de ontwikkeling van verbrandingsmotoren...
+- [Minder woningverkopen en dalende prijzen door onzekerheid en stijgende rente](https://fd.nl/economie/1592941/minder-woningverkopen-en-dalende-prijzen-door-onzekerheid-en-stijgende-rente)
+  > De onrust in het Midden-Oosten en stijgende rentes leiden tot meer terughoudendheid bij kopers en verkopers, zien makelaars.
+- [Chinese economie groeit, gevolgen Iran-oorlog nog beperkt](https://fd.nl/economie/1593178/chinese-economie-groeit-gevolgen-iran-oorlog-nog-beperkt)
+  > Door een toename van de productie en de export is het bbp in het eerste kwartaal met 5% gestegen ten opzichte van een jaar geleden.
+- [Onward Medical versterkt vermogen met €40,6 mln](https://fd.nl/bedrijfsleven/1593179/onward-medical-versterkt-vermogen-met-40-6-mln)
+  > Door de kapitaalversterking heeft de onderneming naar eigen zeggen tot in het eerste kwartaal van 2028 weer financiële ruimte.
+- [De mannelijke hoofdrol in al zijn gedaanten](https://fd.nl/samenleving/1592770/de-mannelijke-hoofdrol-in-al-zijn-gedaanten)
+  > De mannelijke filmheld is tegenwoordig veelzijdiger dan ooit. Meester, dienaar, vader, zoon, minnaar of icoon; in deze zeven films zien we hem in...
+- [Door aanhoudende leegstand dalen huurinkomsten bij vastgoedfonds NSI](https://fd.nl/bedrijfsleven/1593176/huurinkomsten-nsi-dalen-door-aanhoudende-leegstand)
+  > De leegstand bij het vastgoedfonds liep in het eerste kwartaal fors op naar ruim 12%. Ook is NSI bezorgd over de herontwikkeling van kantoren door...
 
 ### Meest gelezen
 
