@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-04-2026 om 22:48*
+*Laatst bijgewerkt: 16-04-2026 om 23:47*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Palestijnen leveren verdachte aanslag Parijs 1982 uit aan Frankrijk](https://nos.nl/l/2610773)
+  > De Palestijnse Autoriteit heeft een verdachte van een dodelijke aanslag in Parijs uit 1982 uitgeleverd aan Frankrijk. Het gaat om de 72-jarige Hicham...
 - [Druk op Britse premier Starmer neemt toe na nieuwe onthulling over Mandelson](https://nos.nl/l/2610771)
   > De druk vanuit het Lagerhuis op de Britse premier Starmer neemt wederom toe na onthullingen van The Guardian. De Britse krant schrijft dat het...
 - [Coalitie verdeeld over extra druk op Israël, VVD wil geen veroordeling bondgenoot](https://nos.nl/l/2610769)
@@ -16,8 +18,6 @@
   > Na anderhalve maand oorlog is een staakt-het-vuren in Libanon van kracht gegaan. Eerder vanavond kondigde president Trump aan dat de gevechtspauze...
 - [Tsjechië roept Russische ambassadeur op het matje om lijst met doelwitten](https://nos.nl/l/2610761)
   > Tsjechië heeft de Russische ambassadeur ontboden na Russische dreigementen aan het adres van meerdere Europese bedrijven, waaronder twee uit...
-- [Discussie over veiligheid Leidse grachten na noodlottig ongeval student](https://nos.nl/l/2610756)
-  > De dood van een student in Leiden vorige maand heeft de discussie over de veiligheid van Leidse grachten op scherp gezet. Oppositiepartijen en...
 
 ### Meest gelezen
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [‘DJ Amalia’ houdt wel van een beat, vooral als ze rechten zit te studeren](https://www.ad.nl/show/dj-amalia-houdt-wel-van-een-beat-vooral-als-ze-rechten-zit-te-studeren~a511c75a/)
+  > Een Georgisch likeurtje, een cursus dj’en en een voorzichtig dansje: tijdens haar tweedaagse bezoek aan Amsterdam krijgt prinses Amalia ook het...
 - [De Hypotheker: gemiddelde hypotheekrente naar hoogste punt in twee jaar](https://www.ad.nl/economie/de-hypotheker-gemiddelde-hypotheekrente-naar-hoogste-punt-in-twee-jaar~ac6c3650/)
   > De gemiddelde hypotheekrente ligt momenteel op het hoogste punt in ruim twee jaar, meldt De Hypotheker. Dat komt met name door de oplopende...
 - [Voetbalpodcast | ‘NEC staat garant voor spektakel en dat verwacht ik zondag ook’](https://www.ad.nl/voetbal/voetbalpodcast-nec-staat-garant-voor-spektakel-en-dat-verwacht-ik-zondag-ook~ac8603a9/)
@@ -35,8 +37,6 @@
   > De Londense politie heeft meerdere arrestaties verricht na brandstichtingen op verschillende locaties. Een Perzisch-talige mediaorganisatie, een...
 - [Stand Premier League | Michael van Gerwen en Gian van Veen zonder punten naar huis na deceptie in Rotterdam](https://www.ad.nl/darts/premier-league-speelschema-programma-uitslagen-stand~a9ae7647/)
   > De Premier League Darts is volop onderweg mét Michael van Gerwen en Gian van Veen. Bekijk hieronder de stand, alle uitslagen, het complete programma...
-- [Oranje-international Emegha scoort én mist penalty bij comeback Strasbourg, vroege rode kaart nekt Farioli](https://www.ad.nl/voetbal/oranje-international-emegha-scoort-en-mist-penalty-bij-comeback-strasbourg-vroege-rode-kaart-nekt-farioli~aa67388d/)
-  > Francesco Farioli is met Porto uitgeschakeld in de kwartfinales van de Europa League. Een vroege rode kaart en tegentreffer volgden elkaar snel op:...
 
 ### Meest gelezen
 
