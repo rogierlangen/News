@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-04-2026 om 16:44*
+*Laatst bijgewerkt: 16-04-2026 om 18:09*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Toch patiëntgegevens buitgemaakt bij hacken van softwarebedrijf Chipsoft](https://nos.nl/l/2610742)
+  > Bij de ransomware-aanval op zorgsoftwarebedrijf Chipsoft zijn toch medische patiëntgegevens gestolen, laat het bedrijf weten. Bronnen binnen en...
 - [KLM schrapt tientallen vluchten binnen Europa vanwege oplopende kerosinekosten](https://nos.nl/l/2610734)
   > KLM schrapt komende maand tachtig retourvluchten. Het gaat om vluchten binnen Europa waar de luchtvaartmaatschappij meerdere keren per dag op vliegt,...
 - [Geen maatregelen om verkeersdruk werk aan A2 bij Vianen te verlichten](https://nos.nl/l/2610733)
@@ -16,8 +18,6 @@
   > Venetië is de stad van de liefde, beroemd om zijn kanalen en gondels, maar door de stijgende zeespiegel wordt de stad bedreigd. Oplossingen om de...
 - [Luchthavens Rotterdam en Eindhoven hebben tóch natuurvergunning nodig, zegt de rechter](https://nos.nl/l/2610725)
   > Eindhoven Airport en Rotterdam The Hague Airport hebben toch natuurvergunningen nodig, heeft de rechtbank bepaald. Voormalig minister van Natuur en...
-- [Verdachte van kunstroof Assen die geen deal sloot met justitie wil vrijspraak](https://nos.nl/l/2610723)
-  > De verdachte van de kunstroof in Assen die géén deal sloot met justitie, moet grotendeels worden vrijgesproken. Dat bepleitten zijn advocaten vandaag...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ook medische gegevens gestolen bij ransomware-aanval op ChipSoft](https://www.ad.nl/tech/ook-medische-gegevens-gestolen-bij-ransomware-aanval-op-chipsoft~a82d683c/)
-  > Criminele hackers hebben bij de aanval op ChipSoft, een belangrijk softwarebedrijf voor de zorg, medische gegevens gestolen van patiënten. Dat laat...
-- [Heldendaad van koerier Hayder, die Paul (69) redt uit brandende rolstoel: ‘Ik moest daarna wel even huilen’](https://www.ad.nl/binnenland/heldendaad-van-koerier-hayder-die-paul-69-redt-uit-brandende-rolstoel-ik-moest-daarna-wel-even-huilen~afd931f2/)
-  > Als de invalide Paul dinsdagavond in brand vliegt, twijfelt Hayder Alazawy geen moment. Ondanks dat de vlammen uit de elektrische rolstoel slaan,...
-- [Supporters van Bayern München maken excuses na verwonden fotografen bij Champions League-duel](https://www.ad.nl/voetbal/supporters-van-bayern-munchen-maken-excuses-na-verwonden-fotografen-bij-champions-league-duel~a2018775/)
-  > Supporters van Bayern München hebben hun excuses aangeboden nadat meerdere fotografen woensdag door hun toedoen gewond waren geraakt bij het...
-- [Victoria Beckham reageert op gespannen relatie met zoon Brooklyn: ‘Proberen de beste ouders te zijn’](https://www.ad.nl/show/victoria-beckham-reageert-op-gespannen-relatie-met-zoon-brooklyn-proberen-de-beste-ouders-te-zijn~ad431a10/)
-  > Victoria Beckham heeft voor het eerst publiekelijk gereageerd op de gespannen relatie met haar zoon Brooklyn Beckham. Dat deed de 51-jarige Britse...
-- [Opvallende stap van Lionel Messi: Argentijnse sterspeler wordt eigenaar van Spaanse club](https://www.ad.nl/voetbal/opvallende-stap-van-lionel-messi-argentijnse-sterspeler-wordt-eigenaar-van-spaanse-club~a49e902e/)
-  > Lionel Messi is terug in Catalonië. Niet als speler, maar als clubeigenaar. De achtvoudig Ballon d’Or-winnaar is de nieuwe baas van de Spaanse club...
+- [Oud-international Terence Kongolo (32) stopt met voetballen en slaat een nieuwe weg in](https://www.ad.nl/voetbal/oud-international-terence-kongolo-32-stopt-met-voetballen-en-slaat-een-nieuwe-weg-in~a1b5a5e25/)
+  > Terence Kongolo (32) stopt met voetballen. De voormalig Oranje-international heeft na nieuwe blessures zijn contract laten ontbinden bij het...
+- [Halve finale nóg verder weg voor AZ: B-ploeg in Alkmaar op achterstand tegen Sjachtar](https://www.ad.nl/voetbal/halve-finale-nog-verder-weg-voor-az-b-ploeg-in-alkmaar-op-achterstand-tegen-sjachtar~a201a8d3/)
+  > Het heenduel in de kwartfinale van de Conference League eindigde in een teleurstellende 3-0 nederlaag voor AZ. De Alkmaarders spelen vanavond in...
+- [Gian van Veen verliest zijn eerste partij ooit in Ahoy, geen nieuwe clash met Littler](https://www.ad.nl/darts/gian-van-veen-verliest-zijn-eerste-partij-ooit-in-ahoy-geen-nieuwe-clash-met-littler~a1a3c0bf/)
+  > De Premier League Darts is toe aan speelavond 11 en die is in Ahoy Rotterdam. Kunnen Gian van Veen en Michael van Gerwen het Nederlandse publiek...
+- [Bram en Esra uit B&B vol liefde gaan trouwen](https://www.ad.nl/show/bram-en-esra-uit-benb-vol-liefde-gaan-trouwen~acc70712/)
+  > Bram en Esra uit het derde seizoen van B&B vol liefde gaan trouwen. Dat maakt het dolgelukkige stel donderdag bekend op Instagram. Er is gekozen voor...
+- [Julia stierf bijna terwijl ze op een wachtlijst stond voor psychische hulp, maar droomt nu van de toekomst](https://www.ad.nl/binnenland/julia-stierf-bijna-terwijl-ze-op-een-wachtlijst-stond-voor-psychische-hulp-maar-droomt-nu-van-de-toekomst~a74bbd7e/)
+  > In een huis in Beets droomt Julia Koene met haar vriend over reizen en kinderen. Maar de littekens op haar armen vertellen het verhaal achter dat...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Greenpeace zet gevecht tegen oliebedrijf dat bijna €300 mln schadevergoeding eist in Nederland door](https://fd.nl/samenleving/1593297/greenpeace-zet-gevecht-tegen-amerikaans-oliebedrijf-dat-honderden-miljoenen-schadevergoeding-eist-in-nederland-door)
-  > De milieuorganisatie beschuldigt energiemaatschappij van misbruik van het recht, met de intentie tegenstanders het zwijgen op te leggen. Greenpeace...
+- [Passend budget nodig voor cruciale energieprojecten](https://fd.nl/opinie/1592906/passend-budget-nodig-voor-cruciale-energieprojecten)
+  > Het staatsbedrijf heeft extra geld nodig om de overname van warmtenetten en de realisatie van een groot opslagproject van CO₂ rond te krijgen.
+- [‘Britse regering negeerde negatief veiligheidsonderzoek over Peter Mandelson’](https://fd.nl/politiek/1593397/britse-regering-negeerde-negatief-veiligheidsonderzoek-over-peter-mandelson)
+  > Nieuwe kopzorgen voor Britse premier Keir Starmer, die het parlement eerder vertelde dat de juiste procedures waren gevolgd bij aanstelling van zijn...
+- [Nederlandse en Oekraïense dronebouwers gaan nauwer samenwerken](https://fd.nl/samenleving/1593394/nederlandse-en-oekraiense-dronebouwers-gaan-nauwer-samenwerken)
+  > Voor de productie van onbemande vliegtuigen voor Oekraïne maakt Nederland €248 mln vrij, zo maakte defensieminister Dilan Yesilgöz woensdag al bekend.
+- [Greenpeace strijdt in Nederland door tegen Amerikaans oliebedrijf dat €300 mln eist](https://fd.nl/samenleving/1593297/greenpeace-zet-gevecht-tegen-amerikaans-oliebedrijf-dat-honderden-miljoenen-schadevergoeding-eist-in-nederland-door)
+  > De milieuorganisatie beschuldigt Energy Transfer van misbruik van het recht, met de intentie Greenpeace het zwijgen op te leggen. Greenpeace moet van...
 - [‘Carglass-eigenaar Belron wil naar de beurs in Amsterdam’](https://fd.nl/financiele-markten/1593396/carglass-eigenaar-belron-wil-naar-de-beurs-in-amsterdam)
   > Het bedrijf mikt op een waardering van €30 mrd tot €40 mrd.
-- [Trump: Israël en Libanon komen staakt-het-vuren overeen](https://fd.nl/politiek/1593395/trump-israel-en-libanon-komen-staakt-het-vuren-overeen)
-  > Het bestand zou vanavond om 23.00 uur Nederlandse tijd ingaan en gelden voor tien dagen.
-- [Rotterdam en Eindhoven Airport hebben toch een natuurvergunning nodig](https://fd.nl/bedrijfsleven/1593392/rotterdam-en-eindhoven-airport-hebben-toch-een-natuurvergunning-nodig)
-  > De rechtbank oordeelde dat de luchthavens geen gebruik kunnen maken van eerder verleende toestemmingen voor hun activiteiten.
-- [Royal Swinkels boekt licht hoger bedrijfsresultaat](https://fd.nl/bedrijfsleven/1593393/royal-swinkels-boekt-licht-hoger-bedrijfsresultaat)
-  > De Brabantse bierbrouwer spreekt in een toelichting op de jaarcijfers van een ‘lastig’ 2025. Het brutobedrijfsresultaat (ebit) kwam ruim €4 mln hoger...
 
 ### Meest gelezen
 
