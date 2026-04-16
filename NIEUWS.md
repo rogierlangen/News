@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-04-2026 om 21:49*
+*Laatst bijgewerkt: 16-04-2026 om 22:48*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [De Hypotheker: gemiddelde hypotheekrente naar hoogste punt in twee jaar](https://www.ad.nl/economie/de-hypotheker-gemiddelde-hypotheekrente-naar-hoogste-punt-in-twee-jaar~ac6c3650/)
+  > De gemiddelde hypotheekrente ligt momenteel op het hoogste punt in ruim twee jaar, meldt De Hypotheker. Dat komt met name door de oplopende...
+- [Voetbalpodcast | ‘NEC staat garant voor spektakel en dat verwacht ik zondag ook’](https://www.ad.nl/voetbal/voetbalpodcast-nec-staat-garant-voor-spektakel-en-dat-verwacht-ik-zondag-ook~ac8603a9/)
+  > Wat al een beetje werd aangekondigd kwam uit. AZ was met een B-team niet sterk genoeg voor Sjachtar. De Alkmaarse ploeg speelde met de bekerfinale in...
+- [Meer arrestaties na brandstichting op Joodse plekken in Londen](https://www.ad.nl/buitenland/meer-arrestaties-na-brandstichting-op-joodse-plekken-in-londen~aed61cab/)
+  > De Londense politie heeft meerdere arrestaties verricht na brandstichtingen op verschillende locaties. Een Perzisch-talige mediaorganisatie, een...
 - [Stand Premier League | Michael van Gerwen en Gian van Veen zonder punten naar huis na deceptie in Rotterdam](https://www.ad.nl/darts/premier-league-speelschema-programma-uitslagen-stand~a9ae7647/)
   > De Premier League Darts is volop onderweg mét Michael van Gerwen en Gian van Veen. Bekijk hieronder de stand, alle uitslagen, het complete programma...
 - [Oranje-international Emegha scoort én mist penalty bij comeback Strasbourg, vroege rode kaart nekt Farioli](https://www.ad.nl/voetbal/oranje-international-emegha-scoort-en-mist-penalty-bij-comeback-strasbourg-vroege-rode-kaart-nekt-farioli~aa67388d/)
   > Francesco Farioli is met Porto uitgeschakeld in de kwartfinales van de Europa League. Een vroege rode kaart en tegentreffer volgden elkaar snel op:...
-- [Russo keert volgend jaar met eigen show terug naar Afas Live: ‘Voelt als thuiskomen’](https://www.ad.nl/show/russo-keert-volgend-jaar-met-eigen-show-terug-naar-afas-live-voelt-als-thuiskomen~a24d3a80/)
-  > Russo keert in maart 2027 terug met zijn eigen show in Afas Live. Dat heeft hij donderdagavond bekendgemaakt tijdens zijn concert in Amsterdamse...
-- [Opnieuw twee verdachten aangehouden voor mishandeling Amsterdamse JA21-politicus](https://www.ad.nl/binnenland/opnieuw-twee-verdachten-aangehouden-voor-mishandeling-amsterdamse-ja21-politicus~a8f86eeb/)
-  > De politie heeft deze week opnieuw twee verdachten aangehouden voor de mishandeling van de voormalige Amsterdamse JA21-fractievoorzitter Kevin...
-- [Uitgefloten Littler verliest finale in Ahoy, Van Veen en Van Gerwen sneuvelen snel: ‘Deed pijn aan mijn ogen’](https://www.ad.nl/darts/uitgefloten-littler-verliest-finale-in-ahoy-van-veen-en-van-gerwen-sneuvelen-snel-deed-pijn-aan-mijn-ogen~a1a3c0bf/)
-  > Jonny Clayton heeft de Premier League-avond in Rotterdam Ahoy gewonnen. De darter uit Wales won in de finale met 6-4 van Luke Littler, die bij iedere...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Sterke winststijging voor bouwer TBI](https://fd.nl/bedrijfsleven/1593291/sterke-winststijging-voor-bouwer-tbi)
+  > Een scherpere selectie van projecten voorkomt volgens topman Hendrik de Haan verlieslatende ‘bleeders’ voor bouwbedrijf in de huidige, voor aannemers...
+- [Leven als God in Frankrijk voor 0% belasting – het kan wél](https://fd.nl/opinie/1593082/0-belasting-het-kan-wel)
+  > Je moet alleen hiervoor alleen niet naar het ons zuiderlijk gelegen l’Hexagone, maar naar de Cariben. Al zijn eten, wijn en parkeren duur – de...
+- [Personalia vrijdag 17 april](https://fd.nl/bedrijfsleven/1593387/personalia-vrijdag-17-april)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [Wall Street-koersen kruipen iets verder omhoog](https://fd.nl/financiele-markten/1593406/wall-street-koersen-kruipen-iets-verder-omhoog)
   > Amerikaanse aandelenkoersen liepen donderdag nog iets verder op. Er was optimisme vanwege de wapenstilstand tussen Israël en Libanon en de...
 - [Patiëntgegevens gestolen bij hack ChipSoft](https://fd.nl/bedrijfsleven/1593399/patientgegevens-gestolen-bij-hack-chipsoft)
   > Het bedrijf heeft bevestigd dat bij de hack ook medische gegevens zijn gestolen.
-- [Passend budget nodig voor cruciale energieprojecten](https://fd.nl/opinie/1592906/passend-budget-nodig-voor-cruciale-energieprojecten)
-  > Het staatsbedrijf heeft extra geld nodig om de overname van warmtenetten en de realisatie van een groot opslagproject van CO₂ rond te krijgen.
-- [‘Britse regering negeerde negatief veiligheidsonderzoek over Peter Mandelson’](https://fd.nl/politiek/1593397/britse-regering-negeerde-negatief-veiligheidsonderzoek-over-peter-mandelson)
-  > Nieuwe kopzorgen voor Britse premier Keir Starmer, die het parlement eerder vertelde dat de juiste procedures waren gevolgd bij aanstelling van zijn...
-- [Nederlandse en Oekraïense dronebouwers gaan nauwer samenwerken](https://fd.nl/samenleving/1593394/nederlandse-en-oekraiense-dronebouwers-gaan-nauwer-samenwerken)
-  > Voor de productie van onbemande vliegtuigen voor Oekraïne maakt Nederland €248 mln vrij, zo maakte defensieminister Dilan Yesilgöz woensdag al bekend.
 
 ### Meest gelezen
 
