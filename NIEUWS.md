@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-04-2026 om 03:21*
+*Laatst bijgewerkt: 16-04-2026 om 06:04*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Brand in raffinaderij verergert brandstofproblemen Australië](https://nos.nl/l/2610636)
+  > Een brand in een grote raffinaderij in Australië dreigt de brandstoftekorten die zijn ontstaan door de oorlog in het Midden-Oosten te verergeren. Het...
+- [Wekdienst 16/4: Zelensky is in Middelburg • Laatste kans voor AZ in Conference League](https://nos.nl/l/2610633)
+  > Goedemorgen! De Oekraïense president Zelensky ontvangt in Middelburg een internationale prijs. En het is erop of eronder voor AZ in de kwartfinale...
+- [Dode bij steekpartij in Hoofddorp, een verdachte opgepakt](https://nos.nl/l/2610630)
+  > Bij een steekincident in een woning in Hoofddorp is gisteravond een dode gevallen. Het slachtoffer is nog gereanimeerd door de hulpdiensten, maar was...
 - [Zuid-Korea in de ban van weggelopen wolf 'die niet gekooid wilde blijven'](https://nos.nl/l/2610629)
   > Sinds de ontsnapping van een jonge wolf uit een Zuid-Koreaanse dierentuin vorige week, houdt het dier het land in zijn greep. Ondanks de inzet van...
 - [Eigenaar Ticketmaster schuldig aan monopolie en te hoge prijzen voor concerten in VS](https://nos.nl/l/2610628)
   > Live Nation, de entertainmentgigant die ook eigenaar is van Ticketmaster, is schuldig bevonden aan het runnen van een monopolie. Ook vroeg het...
-- [Roep om verkiezingen in Venezuela steeds luider, ‘regime probeert tijd te winnen’](https://nos.nl/l/2610627)
-  > Hoe breek je een dictatoriaal regime af? Stapje voor stapje en eerst van buitenaf, als het aan de Venezolaanse oppositieleider en Nobelprijswinnaar...
-- [Human Rights Watch: China's onderdrukking van katholieken escaleert](https://nos.nl/l/2610626)
-  > Nieuw onderzoek van Human Rights Watch (HRW) wijst uit dat China's onderdrukking van katholieken zwaar is verergerd. Het rapport beschrijft...
-- [Pizzakoeriers in Amsterdam-Zuidoost massaal beroofd van hun... pizza's](https://nos.nl/l/2610624)
-  > Pizzakoeriers in Amsterdam-Zuidoost zijn gewaarschuwd. De politie meldt in een bericht op Instagram dat er een opvallende toename is van het aantal...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Kans dat je kanker krijgt daalt licht: ‘Maar we zitten nog steeds op hoog niveau’](https://www.ad.nl/gezond/kans-dat-je-kanker-krijgt-daalt-licht-maar-we-zitten-nog-steeds-op-hoog-niveau~a662a812/)
-  > De kans om kanker te krijgen is licht aan het dalen. Vorig jaar kregen in ons land 135.000 mensen te horen dat ze de ziekte hadden, wat minder is dan...
-- [FIFA-voorzitter Infantino bevestigt: Iran doet zeker mee aan WK voetbal](https://www.ad.nl/sport/fifa-voorzitter-infantino-bevestigt-iran-doet-zeker-mee-aan-wk-voetbal~aa6082ba/)
-  > Iran zal meedoen aan het WK voetbal, “dat staat vast”, aldus FIFA-voorzitter Gianni Infantino woensdag. Hij deed die uitspraak tijdens het Invest in...
-- [AI-versie van overleden Val Kilmer ruim een uur te zien in nieuwe film](https://www.ad.nl/show/ai-versie-van-overleden-val-kilmer-ruim-een-uur-te-zien-in-nieuwe-film~a0d42b7d/)
-  > De vorig jaar overleden acteur Val Kilmer is met behulp van kunstmatige intelligentie een uur en zeventien minuten te zien in de film As Deep as the...
-- [Voetbalpodcast | ‘De hunkering om iets te winnen wint van de angst om iets te verliezen’](https://www.ad.nl/voetbal/voetbalpodcast-de-hunkering-om-iets-te-winnen-wint-van-de-angst-om-iets-te-verliezen~ac8603a9/)
-  > Bayern München en Real Madrid maakten in de Champions League alle verwachtingen waar. Na het spektakel in Madrid, was het gisteravond nog...
-- [Petitie voor gratis gordelroosvaccin: ouderen lopen meer risico, maar moeten zelf betalen](https://www.ad.nl/binnenland/petitie-voor-gratis-gordelroosvaccin-ouderen-lopen-meer-risico-maar-moeten-zelf-betalen~a8205d23/)
-  > Gezamenlijke ouderenbonden zijn een petitie gestart om het gordelroosvaccin voor een grotere groep mensen gratis beschikbaar te maken. Steeds meer...
+- [Hunger Games-acteur Ethan Jamieson opgepakt na aanval met vuurwapen](https://www.ad.nl/show/hunger-games-acteur-ethan-jamieson-opgepakt-na-aanval-met-vuurwapen~ae444fa09/)
+  > Hunger Games-acteur Ethan Jamieson is gearresteerd. De 27-jarige Amerikaan wordt verdacht van mishandeling, nadat hij drie mannen zou hebben...
+- [Barcelona wil nog voor WK Bastoni vastleggen, Givairo Read in beeld bij Europese grootmach­ten](https://www.ad.nl/voetbal/barcelona-wil-nog-voor-wk-bastoni-vastleggen-givairo-read-in-beeld-bij-europese-grootmachten~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Hoe Oekraïense robots Russische loopgraven innamen](https://www.ad.nl/buitenland/hoe-oekraiense-robots-russische-loopgraven-innamen~a236035e/)
+  > Voor het eerst is het de Oekraïners gelukt een vijandelijke Russische positie volledig te veroveren zonder de inzet van ook maar één...
+- [Golf aan tweedehands e-bikes op komst: let vooral hierop bij de aanschaf](https://www.ad.nl/economie/golf-aan-tweedehands-e-bikes-op-komst-let-vooral-hierop-bij-de-aanschaf~a6d4b6ed/)
+  > Er komt een golf aan tweedehands e-bikes aan, verwachten deskundigen. Wie er eentje wil aanschaffen, doet er goed aan de batterij en de...
+- [UWV-topman geeft voor hij vertrekt waarschuwing af aan kabinet: Grijp in](https://www.ad.nl/politiek/uwv-topman-geeft-voor-hij-vertrekt-waarschuwing-af-aan-kabinet-grijp-in~a7a38cb09/)
+  > Het UWV kan de groeiende stroom aanvragen voor arbeidsongeschiktheidsuitkeringen niet meer aan. Over een paar jaar staan 200.000 mensen langer dan...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Kilotonnen springstof maken in Nederlandse zeecontainers](https://fd.nl/economie/1593041/kilotonnen-springstof-maken-innederlandsezeecontainers)
-  > Vandaag in Dagkoers: een opvallende defensie-innovatie van TNO met microfabrieken in zeecontainers, en ASML overtrof de omzetverwachtingen van...
-- [Hete aardappel](https://fd.nl/opinie/1593047/hete-aardappel)
-  > Pijnlijke maatregelen, zoals rond de benzineprijzen en de AOW, komen nooit gelegen, ziet FD-columnist Anna Dijkman. Maar zolang het orkest speelt,...
-- [Vakantiegangers boeken volop reizen, maar wel naar andere plekken](https://fd.nl/bedrijfsleven/1593021/vakantiegangersboeken-volop-reizen-maar-wel-naar-andere-plekken)
-  > Nederlanders laten hun zomervakantie niet schieten vanwege de oorlog in het Midden-Oosten, maar ze kiezen wel voor andere bestemmingen. Spanje en...
-- [Dit land met al zijn problemen kan best wel een Partij van de Arbeid gebruiken](https://fd.nl/opinie/1592760/dit-land-kan-een-partij-van-de-arbeid-gebruiken)
-  > In een debat in de Eerste Kamer noemden senatoren 121 keer het woord ‘AOW’. Over de economie of over Iran ging het veel minder. Wie neemt het dan op...
-- [Personalia donderdag 16 april](https://fd.nl/bedrijfsleven/1593034/personalia-donderdag-16-april)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Fastneds omzet uit ‘laden’ stijgt met 40% in eerste kwartaal](https://fd.nl/bedrijfsleven/1593081/fastneds-omzet-uit-laden-stijgt-met-40-in-eerste-kwartaal)
+  > De recordomzet uit de laadstations vloeit volgens het Amsterdamse bedrijf voort uit de opnieuw aantrekkende Europese markt voor elektrische...
+- [Op alle fronten groei bij CM.com](https://fd.nl/tech-en-innovatie/1593079/op-alle-fronten-groei-bij-cm-com)
+  > Het techbedrijf voldoet in het eerste kwartaal van 2026 ruimschoots aan de verwachtingen.
+- [Omzet TomTom daalt maar het bedrijfsresultaat stijgt](https://fd.nl/bedrijfsleven/1592975/omzet-tomtom-daalt-maar-het-bedrijfsresultaat-stijgt)
+  > De Amsterdamse kaartenmaker herhaalt de eerder uitgesproken prognoses voor 2026.
+- [Live: Aziatische beurzen verder omhoog, het regent beursrecords](https://fd.nl/financiele-markten/1592974/live-aziatische-beurzen-verder-omhoog-het-regent-beursrecords)
+  > Beleggers blijven optimistisch over een langdurig staakt-het-vuren tussen de Verenigde Staten en Iran. Aandelenindices staan op recordhoogte in de...
+- [BYD-topvrouw Stella Li: ‘Door weer te investeren in verbrandingsmotoren verliezen Europese autobouwers de race’](https://fd.nl/bedrijfsleven/1592764/byd-topvrouw-stella-li-door-weer-te-investeren-in-verbrandingsmotoren-verliezen-europese-autobouwers-de-race)
+  > De nummer twee van China’s grootste autobouwer snapt helemaal niks van Europese autobedrijven die opnieuw in de ontwikkeling van verbrandingsmotoren...
 
 ### Meest gelezen
 
