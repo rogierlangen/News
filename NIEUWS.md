@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-04-2026 om 20:01*
+*Laatst bijgewerkt: 16-04-2026 om 21:49*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Druk op Britse premier Starmer neemt toe na nieuwe onthulling over Mandelson](https://nos.nl/l/2610771)
+  > De druk vanuit het Lagerhuis op de Britse premier Starmer neemt wederom toe na onthullingen van The Guardian. De Britse krant schrijft dat het...
+- [Coalitie verdeeld over extra druk op Israël, VVD wil geen veroordeling bondgenoot](https://nos.nl/l/2610769)
+  > De drie regeringspartijen zijn het onderling niet eens over het opvoeren van de druk op Israël. D66 en het CDA vinden dat Israël de mensenrechten...
+- [Staakt-het-vuren ingegaan in Libanon: 'Nodig om vrede te bereiken'](https://nos.nl/l/2610766)
+  > Na anderhalve maand oorlog is een staakt-het-vuren in Libanon van kracht gegaan. Eerder vanavond kondigde president Trump aan dat de gevechtspauze...
+- [Tsjechië roept Russische ambassadeur op het matje om lijst met doelwitten](https://nos.nl/l/2610761)
+  > Tsjechië heeft de Russische ambassadeur ontboden na Russische dreigementen aan het adres van meerdere Europese bedrijven, waaronder twee uit...
 - [Discussie over veiligheid Leidse grachten na noodlottig ongeval student](https://nos.nl/l/2610756)
   > De dood van een student in Leiden vorige maand heeft de discussie over de veiligheid van Leidse grachten op scherp gezet. Oppositiepartijen en...
-- [Omslag op komst na heerlijke lentedagen, buien verwacht in het weekend](https://nos.nl/l/2610755)
-  > De afgelopen dagen was het prachtig lenteweer. Vaak scheen de zon en ontstonden er stapelwolken, wat prachtige wolkenluchten opleverde. Ook de...
-- [Toch patiëntgegevens buitgemaakt bij hacken van softwarebedrijf Chipsoft](https://nos.nl/l/2610742)
-  > Bij de ransomware-aanval op zorgsoftwarebedrijf Chipsoft zijn toch medische patiëntgegevens gestolen, laat het bedrijf weten. Bronnen binnen en...
-- [KLM schrapt tientallen vluchten binnen Europa vanwege oplopende kerosinekosten](https://nos.nl/l/2610734)
-  > KLM schrapt komende maand tachtig retourvluchten. Het gaat om vluchten binnen Europa waar de luchtvaartmaatschappij meerdere keren per dag op vliegt,...
-- [Geen maatregelen om verkeersdruk werk aan A2 bij Vianen te verlichten](https://nos.nl/l/2610733)
-  > Rijkswaterstaat roept weggebruikers vanwege de werkzaamheden aan de A2 bij Vianen dit weekend met klem op niet af te wijken van de omleidingsroute....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Max Verstappen gaf engineer Lambiase goedkeuring na ‘ongelooflijk bod’: ‘Dat wilde hij graag horen’](https://www.ad.nl/formule-1/max-verstappen-gaf-engineer-lambiase-goedkeuring-na-ongelooflijk-bod-dat-wilde-hij-graag-horen~a13e5bda/)
-  > Max Verstappen is allesbehalve verbolgen over de beslissing van zijn race-engineer Gianpiero Lambiase om na volgend seizoen te vertrekken bij Red...
-- [AZ-trainer Leeroy Echteld gepikeerd na vragen over sparen van spelers: ‘Jullie begrijpen het toch wel?’](https://www.ad.nl/voetbal/az-trainer-leeroy-echteld-gepikeerd-na-vragen-over-sparen-van-spelers-jullie-begrijpen-het-toch-wel~aaceb2e5/)
-  > AZ-trainer Leeroy Echteld heeft gepikeerd gereageerd op vragen over waarom hij donderdag in de kwartfinale van de Conference League tegen Sjachtar...
-- [Sydney Sweeney en Scooter Braun bevestigen relatie: ‘Bofkont’](https://www.ad.nl/show/sydney-sweeney-en-scooter-braun-bevestigen-relatie-bofkont~a62df8ba/)
-  > Actrice Sydney Sweeney en de voormalige muziekmanager Scooter Braun hebben hun relatie officieel bekendgemaakt op Instagram. In haar stories deelde...
-- [Porto van Farioli in zwaar weer na goal Forest en vroege rode kaart van scheids Makkelie, Antony scoort voor Betis](https://www.ad.nl/voetbal/porto-van-farioli-in-zwaar-weer-na-goal-forest-en-vroege-rode-kaart-van-scheids-makkelie-antony-scoort-voor-betis~aa67388d/)
-  > Freiburg is al zeker van de halve finale van de Europa League. De Duitsers wonnen over twee wedstrijden met maar liefst 6-1 van Celta de Vigo. Om...
-- [School ontruimd na uit de hand gelopen ‘examenstunt’: ‘Eieren, melk en meel vlogen door het gebouw’](https://www.ad.nl/binnenland/school-ontruimd-na-uit-de-hand-gelopen-examenstunt-eieren-melk-en-meel-vlogen-door-het-gebouw~ace15344/)
-  > Leerlingen van het Coenecoop College in Waddinxveen moesten donderdag halsoverkop naar buiten nadat er eieren waren gegooid en het brandalarm afging...
+- [Stand Premier League | Michael van Gerwen en Gian van Veen zonder punten naar huis na deceptie in Rotterdam](https://www.ad.nl/darts/premier-league-speelschema-programma-uitslagen-stand~a9ae7647/)
+  > De Premier League Darts is volop onderweg mét Michael van Gerwen en Gian van Veen. Bekijk hieronder de stand, alle uitslagen, het complete programma...
+- [Oranje-international Emegha scoort én mist penalty bij comeback Strasbourg, vroege rode kaart nekt Farioli](https://www.ad.nl/voetbal/oranje-international-emegha-scoort-en-mist-penalty-bij-comeback-strasbourg-vroege-rode-kaart-nekt-farioli~aa67388d/)
+  > Francesco Farioli is met Porto uitgeschakeld in de kwartfinales van de Europa League. Een vroege rode kaart en tegentreffer volgden elkaar snel op:...
+- [Russo keert volgend jaar met eigen show terug naar Afas Live: ‘Voelt als thuiskomen’](https://www.ad.nl/show/russo-keert-volgend-jaar-met-eigen-show-terug-naar-afas-live-voelt-als-thuiskomen~a24d3a80/)
+  > Russo keert in maart 2027 terug met zijn eigen show in Afas Live. Dat heeft hij donderdagavond bekendgemaakt tijdens zijn concert in Amsterdamse...
+- [Opnieuw twee verdachten aangehouden voor mishandeling Amsterdamse JA21-politicus](https://www.ad.nl/binnenland/opnieuw-twee-verdachten-aangehouden-voor-mishandeling-amsterdamse-ja21-politicus~a8f86eeb/)
+  > De politie heeft deze week opnieuw twee verdachten aangehouden voor de mishandeling van de voormalige Amsterdamse JA21-fractievoorzitter Kevin...
+- [Uitgefloten Littler verliest finale in Ahoy, Van Veen en Van Gerwen sneuvelen snel: ‘Deed pijn aan mijn ogen’](https://www.ad.nl/darts/uitgefloten-littler-verliest-finale-in-ahoy-van-veen-en-van-gerwen-sneuvelen-snel-deed-pijn-aan-mijn-ogen~a1a3c0bf/)
+  > Jonny Clayton heeft de Premier League-avond in Rotterdam Ahoy gewonnen. De darter uit Wales won in de finale met 6-4 van Luke Littler, die bij iedere...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Wall Street-koersen kruipen iets verder omhoog](https://fd.nl/financiele-markten/1593406/wall-street-koersen-kruipen-iets-verder-omhoog)
+  > Amerikaanse aandelenkoersen liepen donderdag nog iets verder op. Er was optimisme vanwege de wapenstilstand tussen Israël en Libanon en de...
 - [Patiëntgegevens gestolen bij hack ChipSoft](https://fd.nl/bedrijfsleven/1593399/patientgegevens-gestolen-bij-hack-chipsoft)
   > Het bedrijf heeft bevestigd dat bij de hack ook medische gegevens zijn gestolen.
 - [Passend budget nodig voor cruciale energieprojecten](https://fd.nl/opinie/1592906/passend-budget-nodig-voor-cruciale-energieprojecten)
@@ -54,8 +56,6 @@
   > Nieuwe kopzorgen voor Britse premier Keir Starmer, die het parlement eerder vertelde dat de juiste procedures waren gevolgd bij aanstelling van zijn...
 - [Nederlandse en Oekraïense dronebouwers gaan nauwer samenwerken](https://fd.nl/samenleving/1593394/nederlandse-en-oekraiense-dronebouwers-gaan-nauwer-samenwerken)
   > Voor de productie van onbemande vliegtuigen voor Oekraïne maakt Nederland €248 mln vrij, zo maakte defensieminister Dilan Yesilgöz woensdag al bekend.
-- [Greenpeace strijdt in Nederland door tegen Amerikaans oliebedrijf dat €300 mln eist](https://fd.nl/samenleving/1593297/greenpeace-zet-gevecht-tegen-amerikaans-oliebedrijf-dat-honderden-miljoenen-schadevergoeding-eist-in-nederland-door)
-  > De milieuorganisatie beschuldigt Energy Transfer van misbruik van het recht, met de intentie Greenpeace het zwijgen op te leggen. Greenpeace moet van...
 
 ### Meest gelezen
 
