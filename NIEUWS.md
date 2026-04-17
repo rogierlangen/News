@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-04-2026 om 15:03*
+*Laatst bijgewerkt: 17-04-2026 om 16:57*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Man (23) deed zich voor als agent en ambulanceverpleegkundige en moet de cel in](https://nos.nl/l/2610850)
-  > Een 23-jarige man uit Groningen moet vijf maanden de cel in omdat hij zich voor heeft gedaan als hulpverlener en politieagent. Hij krijgt ook tien...
-- [Sri Lanka stuurt Iraanse militairen terug, onder wie overlevenden getorpedeerd fregat](https://nos.nl/l/2610848)
-  > Sri Lanka heeft begin deze week 238 Iraanse militairen teruggestuurd naar Iran, onder wie 32 die het land wist te redden uit de zee na een...
-- [Minimumloon voor jongeren stijgt, tot ruim 2 euro per uur erbij](https://nos.nl/l/2610846)
-  > Jongeren tussen de 16 en 20 jaar krijgen vanaf volgend jaar een hoger minimumloon. Het kabinet wil zo de bestaanszekerheid van jongeren verbeteren.
- ...
-- [CDA'er Sybrand Buma nieuwe vicepresident Raad van State](https://nos.nl/l/2610843)
-  > Sybrand Buma wordt de nieuwe vicepresident van de Raad van State. Dat heeft premier Jetten bekengemaakt in zijn wekelijkse persconferentie....
-- [Podcast De Dag: bang voor Mythos, de AI-superhacker](https://nos.nl/l/2610839)
-  > In de tech-wereld gaat het deze week over weinig anders dan het nieuwe AI-model Mythos van Anthropic. Dat lijkt sinds de aankondiging ervan uit te...
+- [Belgisch bedrijf verhuurt vervalste pop-art voor Italiaanse expositie: 'Niet erg professioneel'](https://nos.nl/l/2610864)
+  > De Italiaanse justitie heeft 143 vervalste kunstwerken in beslag genomen die werden toegeschreven aan onder meer Andy Warhol, Keith Haring en Banksy....
+- [Podcast De Stemming: hoepeltjes, visgraten en de keukendeur van Wilders](https://nos.nl/l/2610861)
+  > Vorige week speelde de Eerste Kamer al de hoofdrol in de podcast en dat gebeurt nu opnieuw. Dit keer debatteerden ze daar over de asielwetten en...
+- [Straat van Hormuz weer geopend voor tankers, olieprijs gedaald](https://nos.nl/l/2610858)
+  > De Straat van Hormuz gaat weer open voor de commerciële scheepvaart, zegt de Iraanse minister van Buitenlandse Zaken Araghchi op X. Iran heeft...
+- [In oktober 2027 vakantievluchten op Lelystad Airport, hoopt kabinet](https://nos.nl/l/2610856)
+  > Het kabinet streeft ernaar om Lelystad Airport in oktober 2027 te openen voor vakantievluchten. De voorbereidingen daarvoor worden in gang gezet,...
+- [Zorgorganisaties melden diefstal patiëntgegevens na Chipsoft-hack](https://nos.nl/l/2610854)
+  > Verschillende zorgorganisaties bevestigen dat er patiëntgegevens zijn gestolen na de cyberaanval bij zorgsoftwarebedrijf Chipsoft. Het gaat onder...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De bouwvakkersjaren van succestrainer NEC: ‘Dick kon goed ijzervlechten, maar wij wisten: hij eindigt hier niet’](https://www.ad.nl/voetbal/de-bouwvakkersjaren-van-succestrainer-nec-dick-kon-goed-ijzervlechten-maar-wij-wisten-hij-eindigt-hier-niet~adb0f0f2/)
-  > Tussen de steigers en het stof leerde Dick Schreuder wat een goed fundament betekent. Als ijzervlechter in het bedrijf van zijn vader werkte de...
-- [Buma toch terug naar Den Haag, maar nu als 'onderkoning'](https://www.ad.nl/politiek/buma-toch-terug-naar-den-haag-maar-nu-als-onderkoning~aad627c6/)
-  > Sybrand van Haersma Buma legt de burgemeestersketting van Leeuwarden af om vicepresident van de Raad van State te worden. Voor de CDA’er is straks de...
-- [Met Amalia op stap is wilder dan met een minister](https://www.ad.nl/politiek/met-amalia-op-stap-is-wilder-dan-met-een-minister~a7101bba/)
-  > Het kabinet werkte achter de schermen aan maatregelen om de economische klap van de Iran-oorlog te verzachten. Tegelijkertijd werd het in Den Haag...
-- [NEC geheimzinnig over keeperskeuze in bekerfinale: ‘Dat zien jullie zondag wel’](https://www.ad.nl/voetbal/nec-geheimzinnig-over-keeperskeuze-in-bekerfinale-dat-zien-jullie-zondag-wel~a8d712cb/)
-  > Trainer Dick Schreuder wil nog niet zeggen of Jasper Cillessen zondag het doel van NEC verdedigt in de bekerfinale tegen AZ. „Dat zien jullie komende...
-- [Leeroy Echteld over zijn toekomst bij AZ: ‘Met beker op zak is het fijner praten’](https://www.ad.nl/voetbal/leeroy-echteld-over-zijn-toekomst-bij-az-met-beker-op-zak-is-het-fijner-praten~a234fb22/)
-  > Leeroy Echteld weet niet of zijn toekomst als trainer van AZ afhangt van de uitslag van de bekerfinale zondag tegen NEC. „We gaan na de finale met...
+- [Trump sneert weer naar Navo-landen: ‘Heb verteld dat ze weg moeten blijven uit Straat van Hormuz’](https://www.ad.nl/buitenland/trump-sneert-weer-naar-navo-landen-heb-verteld-dat-ze-weg-moeten-blijven-uit-straat-van-hormuz~ac528ac3/)
+  > De andere Navo-landen zijn te laat met hun aanbod om te komen helpen in de Straat van Hormuz, zegt Donald Trump. En volgens de Amerikaanse president...
+- [Voor het eerst vertelt advocaat over seriemoordenaar Sendric S.: ‘Ik zag geen moordmachine’](https://www.ad.nl/binnenland/voor-het-eerst-vertelt-advocaat-over-seriemoordenaar-sendric-s-ik-zag-geen-moordmachine~ac31c0e1/)
+  > Hij keek seriemoordenaar Sendric S. (25) talloze keren in de ogen. Advocaat Marco Bos zag geen koelbloedige moordmachine. „Hij heeft vréselijke...
+- [Plan doorgevoerd: jongeren vanaf 16 jaar gaan volgend jaar hoger minimumloon verdienen](https://www.ad.nl/geld/plan-doorgevoerd-jongeren-vanaf-16-jaar-gaan-volgend-jaar-hoger-minimumloon-verdienen~a37a19e5/)
+  > Jongeren van 16 tot en met 20 jaar gaan in 2027 een hoger minimumloon verdienen. Minister Hans Vijlbrief (Sociale Zaken) verhoogt de bedragen voor...
+- [Indiase familie boekt voor 47.000 euro tickets, maar KLM weigert ze toegang tot vliegtuig: politie start onderzoek](https://www.ad.nl/buitenland/indiase-familie-boekt-voor-47-000-euro-tickets-maar-klm-weigert-ze-toegang-tot-vliegtuig-politie-start-onderzoek~ab394903/)
+  > De autoriteiten in India zijn een strafrechtelijk onderzoek gestart naar KLM. Aanleiding is een hoogoplopend conflict met een Indiase familie. Zij...
+- [Estavana Polman (33) stopt als handbalster: ‘Het is mooier geworden dan ik ooit had durven dromen’](https://www.ad.nl/andere-sporten/estavana-polman-33-stopt-als-handbalster-het-is-mooier-geworden-dan-ik-ooit-had-durven-dromen~aa39c48f/)
+  > Estavana Polman (33) zet binnenkort een punt achter haar loopbaan als handbalster. Dat maakte de speelster van Rapid Boekarest vrijdagavond bekend...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [DNB-president prijst terughoudend­heid rond brandstofprijzen: ‘Houd het hoofd een beetje koel’](https://fd.nl/economie/1593348/dnb-president-prijst-terughoudendheid-rond-brandstofprijzen-houd-het-hoofd-een-beetje-koel)
-  > Het kabinet kiest niet voor het verlagen van de prijzen aan de pomp als reactie op de gevolgen van het conflict in het Midden-Oosten. Olaf Sleijpen...
-- [CDA’er Sybrand Buma nieuwe ‘onderkoning’ Raad van State](https://fd.nl/politiek/1593582/cdaer-sybrand-buma-nieuwe-onderkoning-raad-van-state)
-  > De huidige burgemeester van Leeuwarden en informateur van het kabinet-Jetten volgt Thom de Graaf op als vicevoorzitter van het hoogste adviesorgaan...
-- [Elon Musk aan de spacecake](https://fd.nl/financiele-markten/1593407/elon-musk-aan-de-spacecake)
-  > Elon Musk ontvouwt plannen voor het maken van chips die het voorstellingsvermogen ver te boven gaan.
-- [Pleidooi voor een politiek van het voortmodderen](https://fd.nl/samenleving/1593356/pleidooi-voor-een-politiek-van-het-voortmodderen)
-  > Politiek is traag, rommelig en vaak onbeholpen – en dat is precies de bedoeling, betoogt bestuurskundige Paul Frissen in zijn nieuwe boek De neutrale...
-- [Kabinet zet verhoging minimumjeugdloon door](https://fd.nl/politiek/1593479/kabinet-zet-verhoging-minimumjeugdloon-door)
-  > Het minimumjeugdloon gaat volgend jaar fors omhoog. Het kabinet-Jetten neemt dat plan over van het vorige kabinet, ondanks forse kritiek van...
+- [Beleggers trekken zich niets aan van doemscenario’s](https://fd.nl/financiele-markten/1593366/beleggers-trekken-zich-niets-aan-van-doemscenarios)
+  > Tekorten en nog hogere energieprijzen kunnen knagen aan de winsten van beursbedrijven. Ook valt een hogere inflatie te verwachten. En mogelijk een...
+- [Kantonrechter: Albert Heijn moet uitzendwerker in dienst nemen](https://fd.nl/bedrijfsleven/1593482/kantonrechter-albert-heijn-moet-uitzendwerker-in-dienst-nemen)
+  > Werk je langer dan drie jaar onafgebroken bij één bedrijf, dan kan er geen sprake meer zijn van uitzendwerk, oordeelde de Haagse rechtbank. De...
+- [Kabinet mikt op opening Lelystad Airport in oktober 2027](https://fd.nl/politiek/1593677/kabinet-mikt-op-opening-lelystad-airport-in-oktober-2027)
+  > ‘Zodra de natuurvergunning er is, kunnen reizigers direct instappen’, zegt minister Karremans.
+- [Trumps aanvallen op de Fed zijn een feest voor Polymarket](https://fd.nl/financiele-markten/1593581/trumps-aanvallen-op-de-fed-zijn-een-feest-voor-polymarket)
+  > De Amerikaanse president verhoogt op onverwachte momenten de druk op de Federal Reserve. Dat roept tal van vragen op. Bijvoorbeeld de vraag wie...
+- [Overheid en bonden opnieuw om de tafel voor rijksambtenaren-cao](https://fd.nl/politiek/1593876/overheid-en-bonden-opnieuw-om-de-tafel-voor-rijksambtenaren-cao)
+  > De gesprekken tussen het Rijk en de vakbonden over de cao voor rijksambtenaren worden hervat. Het heikele punt tussen de partijen is de nullijn.
 
 ### Meest gelezen
 
