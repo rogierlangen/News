@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-04-2026 om 22:46*
+*Laatst bijgewerkt: 17-04-2026 om 23:43*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Twee Amerikaanse militairen gewond bij aanval door bruine beer in Alaska](https://www.ad.nl/buitenland/twee-amerikaanse-militairen-gewond-bij-aanval-door-bruine-beer-in-alaska~a01ffde2/)
+  > Twee Amerikaanse militairen zijn gewond geraakt na een confrontatie met een bruine beer in een bergachtig militair oefengebied in Alaska. Dat heeft...
 - [Frank Lampard leidt Coventry City na 25 jaar terug naar de Premier League](https://www.ad.nl/voetbal/frank-lampard-leidt-coventry-city-na-25-jaar-terug-naar-de-premier-league~ac53c8ef/)
   > Coventry City keert komend seizoen na 25 jaar terug in de Premier League. De ploeg van trainer Frank Lampard stelde promotie vrijdagavond veilig met...
 - [Trump claimt akkoord met Iran over opschorting nucleaire activiteiten, CNN: maandag weer vredesoverleg](https://www.ad.nl/buitenland/trump-claimt-akkoord-met-iran-over-opschorting-nucleaire-activiteiten-cnn-maandag-weer-vredesoverleg~ac528ac3/)
   > Iran heeft er volgens de Amerikaanse president Donald Trump mee ingestemd het eigen nucleaire programma voor onbepaalde tijd stil te leggen. Volgens...
 - [Henk de Jong geraakt door eerbetoon bij De Graafschap: ‘Dit is niet normaal en daar ben ik wel trots op’](https://www.ad.nl/voetbal/henk-de-jong-geraakt-door-eerbetoon-bij-de-graafschap-dit-is-niet-normaal-en-daar-ben-ik-wel-trots-op~af013476/)
   > Cambuur-trainer Henk de Jong (61) stond vrijdagavond met tranen in zijn ogen langs de lijn. De fans van De Graafschap zongen hun voormalig trainer...
-- [Lale Gül doet aangifte tegen Roddelpraat wegens racisme: ‘Dit is gewoon jaren dertig rassenleer’](https://www.ad.nl/show/lale-gul-doet-aangifte-tegen-roddelpraat-wegens-racisme-dit-is-gewoon-jaren-dertig-rassenleer~af7295eb3/)
+- [Aangifte Lale Gül tegen Roddelpraat wegens racisme: ‘Dit is gewoon jaren dertig rassenleer’, presentator doet aangifte tegen Gül](https://www.ad.nl/show/aangifte-lale-gul-tegen-roddelpraat-wegens-racisme-dit-is-gewoon-jaren-dertig-rassenleer-presentator-doet-aangifte-tegen-gul~af7295eb3/)
   > Lale Gül (28) heeft aangifte gedaan tegen Roddelpraat vanwege racisme en discriminatie. Dat vertelde ze vrijdag in RTL Tonight. „Wat ik wil is dat...
-- [ADO Den Haag maakt er weer een feestje van, Vitesse verspeelt punten in strijd om periodetitel](https://www.ad.nl/voetbal/ado-den-haag-maakt-er-weer-een-feestje-van-vitesse-verspeelt-punten-in-strijd-om-periodetitel~a82cf319/)
-  > Vrijdagavond werd de voorlaatste speelronde in de Keuken Kampioen Divisie gespeeld. ADO Den Haag werd vorige week al kampioen, maar maakte er met een...
 
 ### Meest gelezen
 
