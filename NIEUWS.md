@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-04-2026 om 07:55*
+*Laatst bijgewerkt: 17-04-2026 om 09:25*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Naam Aziatische hoornaar was verwarrend, vanaf nu geelpoothoornaar](https://nos.nl/l/2610813)
+  > De Aziatische hoornaar heeft een nieuwe naam. Het insect heet nu de geelpoothoornaar, vernoemd naar zijn kenmerkende felgele pootjes. Dat meldt...
+- [Acht doden bij helikoptercrash op Indonesische deel Borneo](https://nos.nl/l/2610807)
+  > Bij een helikoptercrash op het Indonesische deel van het eiland Borneo zijn alle acht inzittenden omgekomen. Het toestel was opgestegen bij een...
+- [Junta Myanmar viert nieuw jaar, strafkorting voor Aung San Suu Kyi](https://nos.nl/l/2610805)
+  > Het is een lange traditie in Myanmar: bij de viering van het nieuwe jaar krijgen mensen in de gevangenis ook een cadeautje. De nieuwgekozen president...
 - [Wolf die ontsnapte uit Zuid-Koreaanse dierentuin na 9 dagen gevangengenomen](https://nos.nl/l/2610797)
   > Zuid-Koreanen kunnen opgelucht ademhalen: een wolf die ruim een week geleden ontsnapte is gevangen. De twee jaar oude mannetjeswolf Neukgu groef zich...
 - [Eerste Libanezen keren terug naar het zuiden nu staakt-het-vuren is ingegaan](https://nos.nl/l/2610795)
   > Het staakt-het-vuren tussen Libanon en Israël dat gisteravond is ingegaan lijkt vooralsnog stand te houden. De Amerikaanse president Trump maakte...
-- [ANWB: Nederlanders blijven in meivakantie dichter bij huis door stijgende prijzen](https://nos.nl/l/2610793)
-  > Wereldwijde spanningen, geannuleerde vluchten en oplopende ticketprijzen. Wie op vakantie kan, komt dit jaar allerlei obstakels tegen. Met de...
-- [Wekdienst 17/4: 'Hormuz-coalitie' bij elkaar • Internationaal Gerechtshof viert 80-jarig bestaan](https://nos.nl/l/2610785)
-  > Goedemorgen! Zo'n veertig landen overleggen vandaag over het heropenen van de Straat van Hormuz en VN-topman Guterres is in Den Haag voor een...
-- [Cannabis meest gebruikte drug bij betrapte verkeersdeelnemers](https://nos.nl/l/2610777)
-  > Veruit de meeste verkeersdeelnemers die op drugsgebruik zijn betrapt, hadden sporen van cannabis in hun bloed. Dat constateert het Nederlands...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zo vader, zo zoon: Cristiano Ronaldo Jr. schiet vrije trap stijf in de kruising en maakt hattrick voor Al-Nassr O16](https://www.ad.nl/voetbal/zo-vader-zo-zoon-cristiano-ronaldo-jr-schiet-vrije-trap-stijf-in-de-kruising-en-maakt-hattrick-voor-al-nassr-o16~a8730e9a/)
-  > Cristiano Ronaldo Jr., de zoon van de Portugese sterspeler, heeft laten zien dat hij wat van de voetbalgenen van zijn vader heeft overgenomen. De...
-- [FC Utrecht gaat langer door met huurling, Liverpool aast op oud-Feyenoorder](https://www.ad.nl/voetbal/fc-utrecht-gaat-langer-door-met-huurling-liverpool-aast-op-oud-feyenoorder~a35ea681/)
-  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
-- [Libanezen keren terug ondanks wankel bestand, eerste olietanker passeert Straat van Hormuz sinds blokkade VS](https://www.ad.nl/buitenland/libanezen-keren-terug-ondanks-wankel-bestand-eerste-olietanker-passeert-straat-van-hormuz-sinds-blokkade-vs~ac528ac3/)
-  > Vele duizenden Libanezen proberen terug te keren naar het zuiden van het land, nadat ze waren verdreven door de Israëlische aanvallen. Ze keren terug...
-- [Patiënten niet meer opsluiten bij agressie: deze crisisopvang doet het al drie jaar](https://www.ad.nl/binnenland/patienten-niet-meer-opsluiten-bij-agressie-deze-crisisopvang-doet-het-al-drie-jaar~ab7dace3c/)
-  > Vlokken stof op de grond en spinnenwebben in de hoeken. Dit is de kamer waar patiënten van crisisopvang van GGz Centraal in Ermelo afgezonderd kunnen...
-- [Max Verstappen in actie tijdens kwalificatieraces op de Nürburgring: zo ziet zijn weekend eruit](https://www.ad.nl/formule-1/max-verstappen-in-actie-tijdens-kwalificatieraces-op-de-nurburgring-zo-ziet-zijn-weekend-eruit~a6e1fe4a/)
-  > Max Verstappen komt dit weekend in actie op de Nürburgring. Op de Nordschleife worden twee kwalificatieraces gehouden die invloed hebben op het...
+- [Harry Styles zit Ajax mogelijk in de weg: zoektocht naar uitwijklocatie voor Europese play-offs](https://www.ad.nl/voetbal/harry-styles-zit-ajax-mogelijk-in-de-weg-zoektocht-naar-uitwijklocatie-voor-europese-play-offs~a45b9745/)
+  > Ajax kan bij deelname aan de Europese play-offs geen gebruikmaken van de Johan Cruijff Arena. De Britse popster Harry Styles treedt rond die tijd...
+- [Dit zijn de deelnemers van het nieuwe seizoen Beste Zangers](https://www.ad.nl/show/dit-zijn-de-deelnemers-van-het-nieuwe-seizoen-beste-zangers~a8233985/)
+  > Onder anderen Bizzey en Yves Berendse zijn te zien in het nieuwe seizoen van Beste Zangers. Dat maken de artiesten vrijdag bekend in een video op...
+- [Aanbieder van schoollunches TommyTomato maakt doorstart: bedrijf verwacht in mei te kunnen leveren](https://www.ad.nl/economie/aanbieder-van-schoollunches-tommytomato-maakt-doorstart-bedrijf-verwacht-in-mei-te-kunnen-leveren~a8517d2e/)
+  > De failliete aanbieder van groentelunches op scholen TommyTomato maakt een doorstart. Dankzij investeerder Impact First Group is het gelukt om het...
+- [Britse premier Starmer wist niet van negatief advies bij screening topdiplomaat vanwege banden met Epstein](https://www.ad.nl/buitenland/britse-premier-starmer-wist-niet-van-negatief-advies-bij-screening-topdiplomaat-vanwege-banden-met-epstein~aec71644/)
+  > De Britse premier Keir Starmer hoorde donderdag pas dat Peter Mandelson eigenlijk niet door de veiligheidsscreening was gekomen voordat hij...
+- [Opinie: ‘Het kind op straat is een zwart-witfoto geworden’](https://www.ad.nl/praat-mee/opinie-het-kind-op-straat-is-een-zwart-witfoto-geworden~a78defbc/)
+  > Deze week is het de Week van de Rechtvaardige Straat, waarin aandacht wordt gevraagd voor de ruimte op straat. En dan vooral voor kinderen. Want die...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Prosus verkoopt belang van 4,5% in Delivery Hero aan Uber](https://fd.nl/bedrijfsleven/1593351/prosus-verkoopt-belang-van-4-5-in-delivery-hero-aan-uber)
-  > De techinvesteerder bezit 26,8% van de aandelen van de Duitse maaltijdbezorger. In totaal levert de transactie Prosus circa €270 mln op.
-- [Een suikerzoete lamp en koken uit de voorraadkast](https://fd.nl/samenleving/1592894/een-suikerzoete-lamp-en-koken-uit-de-voorraadkast)
-  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
-- [CSU trapt op de rem met schoonmaakbedrijf voor particulieren](https://fd.nl/bedrijfsleven/1592900/csu-trapt-op-de-rem-met-schoonmaakbedrijf-voor-particulieren)
-  > Het bedrijfsonderdeel dat zich richt op schoonmaakwerk voor particulieren groeit nauwelijks. De concurrentie van schoonmakers die zwartwerken is...
-- [Aantal startende bedrijven groeit met 2% na periode van afname](https://fd.nl/bedrijfsleven/1593350/aantal-startende-bedrijven-groeit-met-2-na-periode-van-afname)
-  > In de meeste sectoren was sprake van een stijgende lijn. Alleen in de gezondheidszorg, kunst- en cultuursector en de sport nam het aantal startende...
-- [Hogere huurinkomsten voor winkelbelegger Wereldhave](https://fd.nl/financiele-markten/1593390/hogere-huurinkomsten-voor-winkelbelegger-wereldhave)
-  > De nettohuurinkomsten voor de beursgenoteerde winkelbelegger stegen in het eerste kwartaal met 5,3% op jaarbasis naar €38,9 mln. De bezettingsgraad...
+- [‘Arc de Trump’ bijna de helft groter dan Arc de Triomphe](https://fd.nl/samenleving/1592933/arc-de-trump-bijna-de-helft-groter-dan-arc-de-triomphe)
+  > President Donald Trump wil voor $100 mln een 76 meter hoge triomfboog in Washington laten bouwen. Volgens de voormalig vastgoedontwikkelaar wordt...
+- [Een pleidooi voor de staat als sturende aandeelhouder – want keuzes maken is nodig](https://fd.nl/opinie/1592876/pleidooi-voor-de-staat-als-sturende-aandeelhouder)
+  > Staatsdeelnemingen zijn instrumenten om publieke belangen te waarborgen. Maar die publieke belangen botsen met andere prioriteiten die boardroom of...
+- [Waarom de Amerikanen de VOC beter moeten bestuderen](https://fd.nl/politiek/1593024/waarom-de-amerikanen-de-voc-beter-moeten-bestuderen)
+  > Grote machten komen, veroveren, overschatten zichzelf en ontdekken uiteindelijk dat dwang meer kost dan afstand. In 1766 had de VOC de wijsheid om...
+- [Rundfunk loves Nederlands en we love Rundfunk](https://fd.nl/samenleving/1592728/rundfunk-loves-nederlands-en-we-love-rundfunk)
+  > De podcast van Rundfunk-duo Van Kalmthout en Van de Velde brengt met heerlijke woordvondsten, gezegden en een opeenstapeling van rijmen een ode aan...
+- [AkzoNobel verkoopt Pakistaanse activiteiten](https://fd.nl/bedrijfsleven/1593354/akzo-verkoopt-pakistaanse-activiteiten)
+  > De verffabrikant verkoopt zijn activiteiten aan het Pakistaanse IGI Investments. De transactie heeft een ondernemingswaarde van omgerekend zo’n €50...
 
 ### Meest gelezen
 
