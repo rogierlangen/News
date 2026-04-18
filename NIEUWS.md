@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-04-2026 om 20:41*
+*Laatst bijgewerkt: 18-04-2026 om 21:40*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Atlético Madrid jaagt op gelijkmaker in bekerfinale na bliksemstart van Real Sociedad](https://www.ad.nl/voetbal/atletico-madrid-jaagt-op-gelijkmaker-in-bekerfinale-na-bliksemstart-van-real-sociedad~a7ebc0cd/)
+- [Atlético trekt bekerfinale naar verlenging na wereldgoal, Real Sociedad op overlevingsstand](https://www.ad.nl/voetbal/atletico-trekt-bekerfinale-naar-verlenging-na-wereldgoal-real-sociedad-op-overlevingsstand~a7ebc0cd/)
   > Vanavond staan Atlético Madrid en Real Sociedad tegenover elkaar in de finale van de Copa del Rey. De Madrilenen rekenden in de halve finale af met...
+- [Oranje Leeuwinnen knokken zich naar belangrijk gelijkspel in Frankrijk en zetten grote stap richting WK](https://www.ad.nl/voetbal/oranje-leeuwinnen-knokken-zich-naar-belangrijk-gelijkspel-in-frankrijk-en-zetten-grote-stap-richting-wk~adb73fba/)
+  > De Oranje Leeuwinnen hebben voor de tweede keer deze week een indrukwekkend resultaat geboekt tegen Frankrijk. De uitgedunde selectie van Arjan...
 - [Vernieuwde Cupra Born: veel meer dan een facelift](https://www.ad.nl/auto/vernieuwde-cupra-born-veel-meer-dan-een-facelift~a413c16d/)
   > De Cupra Born is  vernieuwd en technisch verbeterd. De prijslijst begint nu bij nipt minder dan €35.000.
 - [Kampioensfeest voetbalclub uit Culemborg eindigt in ongeval met platte kar: vier lichtgewonden](https://www.ad.nl/112-nieuws-culemborg/kampioensfeest-voetbalclub-uit-culemborg-eindigt-in-ongeval-met-platte-kar-vier-lichtgewonden~a9dd7453/)
   > Een kampioensfeest van voetbalclub Focus '07 uit Culemborg is zaterdagavond abrupt geëindigd met een ernstig ongeval. Omdat er volgens de eerste...
 - [Waarom het kabinet denkt dat de bonden tóch snel een akkoord sluiten over de AOW](https://www.ad.nl/politiek/waarom-het-kabinet-denkt-dat-de-bonden-toch-snel-een-akkoord-sluiten-over-de-aow~a400f778/)
   > Vakbonden leken irrelevant geworden. Tot het minderheidskabinet ze een reden gaf weer ergens boos over te worden. Maar terwijl het kabinet zo de...
-- [Evenepoel topfavoriet: de concurrenten en de tijden dat je moet inschakelen voor belangrijkste passages op een rij](https://www.ad.nl/wielrennen/evenepoel-topfavoriet-de-concurrenten-en-de-tijden-dat-je-moet-inschakelen-voor-belangrijkste-passages-op-een-rij~a20d6e34/)
-  > Zondag staat de zestigste editie van de Amstel Gold Race op het programma. Remco Evenepoel is de grote favoriet voor de eindzege. Wie zijn de...
 
 ### Meest gelezen
 
