@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-04-2026 om 22:39*
+*Laatst bijgewerkt: 18-04-2026 om 23:39*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Trump mag voorlopig toch doorgaan met bouw van balzaal in Witte Huis](https://www.ad.nl/buitenland/trump-mag-voorlopig-toch-doorgaan-met-bouw-van-balzaal-in-witte-huis~a6fe32e0/)
+  > President Donald Trump krijgt toch toestemming om door te gaan met de bouw van een balzaal van 400 miljoen dollar in het Witte Huis. Dat heeft het...
 - [Wieke Kaptein over belangrijke kopgoal: ‘Ik kan eigenlijk helemaal niet koppen’](https://www.ad.nl/voetbal/wieke-kaptein-over-belangrijke-kopgoal-ik-kan-eigenlijk-helemaal-niet-koppen~a423cdb4/)
   > Bij hoekschoppen van Oranje is Wieke Kaptein altijd degene die buiten het strafschopgebied blijft staan. Toch bracht de 20-jarige middenvelder het...
 - [Michael van Gerwen slaat terug naar tegenstander ‘die probeert grappig te zijn’: ‘Hij gaat me nooit verslaan’](https://www.ad.nl/darts/michael-van-gerwen-slaat-terug-naar-tegenstander-die-probeert-grappig-te-zijn-hij-gaat-me-nooit-verslaan~afa6e669/)
@@ -35,8 +37,6 @@
   > Bij een schietpartij in Kyiv zijn zeker zes doden gevallen, meldt de Oekraïense president Zelensky. De schutter werd gedood door de politie tijdens...
 - [Real Sociedad verslaat Atlético Madrid na penalty’s in Spaanse bekerfinale: dure missers van Sørloth en Álvarez](https://www.ad.nl/voetbal/real-sociedad-verslaat-atletico-madrid-na-penaltys-in-spaanse-bekerfinale-dure-missers-van-sorloth-en-alvarez~a7ebc0cd/)
   > Real Sociedad heeft de Copa del Rey gewonnen. Atlético Madrid stond voor het eerst sinds 2013 weer in de finale van de Spaanse beker, maar verloor in...
-- [Oostenrijk waarschuwt voor rattengif in babyvoeding: gerommeld met de potjes](https://www.ad.nl/buitenland/oostenrijk-waarschuwt-voor-rattengif-in-babyvoeding-gerommeld-met-de-potjes~af80ff31/)
-  > In Oostenrijk zijn potjes babyvoeding van het merk HiPP vermengd met rattengif. Het gaat vermoedelijk om een afpersingspoging, meldt voedselwaakhond...
 
 ### Meest gelezen
 
