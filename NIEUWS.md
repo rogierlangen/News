@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-04-2026 om 19:46*
+*Laatst bijgewerkt: 18-04-2026 om 20:41*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Initiatief moet boeren helpen om miljoenen aardappels kwijt te raken](https://nos.nl/l/2611007)
+  > Meer dan 500 miljoen kilo aardappels in Nederland dreigen het risico te lopen om te verrotten. Aardappeltelers zitten met een enorm overschot dat ze...
 - [Maandabonnement voor Amsterdamse clubs, gaan jongeren weer de nacht in?](https://nos.nl/l/2610999)
   > In één nacht van de ene club naar de andere hoppen: dat is het idee achter de nachtpas. Met een maandabonnement kunnen liefhebbers onbeperkt uitgaan...
 - [Botsing tussen politie en linkse demonstranten in Milaan](https://nos.nl/l/2610998)
@@ -16,9 +18,6 @@
   > In de Oekraïense hoofdstad Kyiv zijn zeker zes mensen op straat en in een supermarkt doodgeschoten. De schutter is in de winkel door leden van een...
 - [Open en weer dicht, schepen in onzekerheid rond Straat van Hormuz](https://nos.nl/l/2610976)
   > De schepen die hoopten binnenkort door de Straat van Hormuz te kunnen varen, zullen nog langer moeten wachten. Gisteren opende Iran de zeestraat weer...
-- [Gorinchem voert campagne met flyers uit de papierbak](https://nos.nl/l/2610968)
-  > Het geld is nagenoeg op. Toch gaan de politieke partijen in Gorinchem campagne voeren voor de 'nieuwe' gemeenteraadsverkiezingen op 29 april 2026.
-  ...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Atlético Madrid komt op gelijke hoogte in bekerfinale na dramatische start tegen Real Sociedad](https://www.ad.nl/voetbal/atletico-madrid-komt-op-gelijke-hoogte-in-bekerfinale-na-dramatische-start-tegen-real-sociedad~a7ebc0cd/)
+- [Atlético Madrid jaagt op gelijkmaker in bekerfinale na bliksemstart van Real Sociedad](https://www.ad.nl/voetbal/atletico-madrid-jaagt-op-gelijkmaker-in-bekerfinale-na-bliksemstart-van-real-sociedad~a7ebc0cd/)
   > Vanavond staan Atlético Madrid en Real Sociedad tegenover elkaar in de finale van de Copa del Rey. De Madrilenen rekenden in de halve finale af met...
+- [Vernieuwde Cupra Born: veel meer dan een facelift](https://www.ad.nl/auto/vernieuwde-cupra-born-veel-meer-dan-een-facelift~a413c16d/)
+  > De Cupra Born is  vernieuwd en technisch verbeterd. De prijslijst begint nu bij nipt minder dan €35.000.
+- [Kampioensfeest voetbalclub uit Culemborg eindigt in ongeval met platte kar: vier lichtgewonden](https://www.ad.nl/112-nieuws-culemborg/kampioensfeest-voetbalclub-uit-culemborg-eindigt-in-ongeval-met-platte-kar-vier-lichtgewonden~a9dd7453/)
+  > Een kampioensfeest van voetbalclub Focus '07 uit Culemborg is zaterdagavond abrupt geëindigd met een ernstig ongeval. Omdat er volgens de eerste...
 - [Waarom het kabinet denkt dat de bonden tóch snel een akkoord sluiten over de AOW](https://www.ad.nl/politiek/waarom-het-kabinet-denkt-dat-de-bonden-toch-snel-een-akkoord-sluiten-over-de-aow~a400f778/)
   > Vakbonden leken irrelevant geworden. Tot het minderheidskabinet ze een reden gaf weer ergens boos over te worden. Maar terwijl het kabinet zo de...
-- [Gifbeker nog niet leeg voor Tottenham: goal en assist van Xavi Simons niet genoeg voor overwinning](https://www.ad.nl/voetbal/gifbeker-nog-niet-leeg-voor-tottenham-goal-en-assist-van-xavi-simons-niet-genoeg-voor-overwinning~a65a9df3/)
-  > Tottenham Hotspur heeft in eigen huis met 2-2 gelijkgespeeld tegen Brighton & Hove Albion. Mede dankzij een goal en een assist van Xavi Simons leken...
-- [Nurlaila Karim: ‘Eén wijntje en ik sta in de fik’](https://www.ad.nl/gezond/nurlaila-karim-een-wijntje-en-ik-sta-in-de-fik~a3b740e2/)
-  > Ze zit vet in de overgang, haar rechteroog wordt kleiner als ze moe is en ze baalt een beetje van haar lengte. Musicalactrice Nurlaila Karim in de...
-- [Seksfeesten worden mainstream: ‘Ik ben lang onzeker geweest, maar op zo’n avond voel ik me krachtig’](https://www.ad.nl/binnenland/seksfeesten-worden-mainstream-ik-ben-lang-onzeker-geweest-maar-op-zon-avond-voel-ik-me-krachtig~a6150d87/)
-  > De afgelopen tien jaar zijn het aanbod en de variatie aan erotische feesten in Nederland geëxplodeerd, met Amsterdam voorop. De scene groeit als...
+- [Evenepoel topfavoriet: de concurrenten en de tijden dat je moet inschakelen voor belangrijkste passages op een rij](https://www.ad.nl/wielrennen/evenepoel-topfavoriet-de-concurrenten-en-de-tijden-dat-je-moet-inschakelen-voor-belangrijkste-passages-op-een-rij~a20d6e34/)
+  > Zondag staat de zestigste editie van de Amstel Gold Race op het programma. Remco Evenepoel is de grote favoriet voor de eindzege. Wie zijn de...
 
 ### Meest gelezen
 
