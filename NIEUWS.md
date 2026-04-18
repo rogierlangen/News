@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-04-2026 om 05:10*
+*Laatst bijgewerkt: 18-04-2026 om 07:15*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Dode en vier zwaargewonden bij explosie in Duitse voetgangerstunnel](https://nos.nl/l/2610927)
+  > In de Duitse stad Völklingen is vannacht een man om het leven gekomen bij een explosie. Vier anderen raakten zwaargewond, van wie er twee in...
+- [Wekdienst 18/4: Bloemencorso door Bollenstreek • Amstel Gold Race 60 jaar](https://nos.nl/l/2610924)
+  > Goedemorgen! Het is een weekend vol evenementen. In de Bollenstreek valt te genieten van het bloemencorso en in Zuid-Limburg wordt vandaag en morgen...
+- [Grote zorgen onder veteranen van VN-vredesmacht over oorlog in Libanon](https://nos.nl/l/2610922)
+  > Na weken van Israëlische luchtaanvallen is gisternacht een staakt-het-vuren ingegaan tussen Libanon en Israël. De gevechtspauze zou tien dagen moeten...
 - [Podcast De Dag: Looksmaxxing, de gevaren van de maakbare man](https://nos.nl/l/2610919)
   > Je gezicht slaan met een pan, in de hoop een strakkere kaaklijn te krijgen of zelf peptiden inspuiten, om bruiner te lijken. Alles om te voldoen aan...
 - [Dit jaar van baan wisselen? Pas op voor pensioengat van mogelijk duizenden euro's](https://nos.nl/l/2610917)
   > Wie dit jaar van baan wisselt, moet goed opletten. Een overstap van de ene naar de andere sector kan veel geld kosten, geld dat is bedoeld voor in je...
-- [Belgisch kunstwerk van worsten opgegeten door bezoekers](https://nos.nl/l/2610916)
-  > Bezoekers van een tentoonstelling in Brugge hebben een van de kunstwerken deels verorberd. Het gaat om een vliegengordijn gemaakt van worsten dat...
-- [Stankoverlast door brand in duwbak met huisvuil Botlek](https://nos.nl/l/2610915)
-  > In de Botlek is brand uitgebroken op een boot met huisafval en daardoor kan het vanochtend stinken in Vlaardingen en Schiedam.
-        Er komt bij de...
-- [Vandaag toch nog reddingspoging Duitse bultrug](https://nos.nl/l/2610909)
-  > Reddingswerkers ondernemen later vandaag toch nog een poging om de gestrande bultrug Timmy terug naar zee te krijgen. Het zeezoogdier ligt al...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De regionale voetbalshow is in trek, van Limburg tot Friesland: ‘Het publiek houdt van luchtigheid en gezelligheid’](https://www.ad.nl/voetbal/de-regionale-voetbalshow-is-in-trek-van-limburg-tot-friesland-het-publiek-houdt-van-luchtigheid-en-gezelligheid~afc54cc3/)
-  > Vandaag Inside en Studio Voetbal zijn alom bekend. Maar ook de regionale voetbaltalkshow is razend populair. Wat is hiervoor de verklaring? Op bezoek...
-- [Douwe Bob ging aan zichzelf voorbij na verlies zoontje: ‘Wilde er zo veel mogelijk voor Anouk zijn’](https://www.ad.nl/show/douwe-bob-ging-aan-zichzelf-voorbij-na-verlies-zoontje-wilde-er-zo-veel-mogelijk-voor-anouk-zijn~a3df1abd/)
-  > Zijn nieuwe album Outcast Town is het persoonlijkste dat Douwe Bob (33) ooit maakte. Liedjes over zijn vrouw Anouk, over hun stilgeboren zoontje...
-- [Dode en gewonden na explosie onder voetgangersbrug in Duitsland](https://www.ad.nl/buitenland/dode-en-gewonden-na-explosie-onder-voetgangersbrug-in-duitsland~ae874c02/)
-  > In de Duitse plaats Völklingen, nabij de Franse grens, is in de nacht van vrijdag op zaterdag een man om het leven gekomen na een harde knal onder...
-- [Vorig jaar 60.000 auto’s geïmporteerd met teruggedraaide kilometerteller](https://www.ad.nl/auto/vorig-jaar-60-000-autos-geimporteerd-met-teruggedraaide-kilometerteller~aac1de4e/)
-  > Afgelopen jaar zijn er in Nederland 300.000 tweedehands auto’s geïmporteerd. Maar liefst 60.000 hiervan hadden een kilometerteller waarmee is...
-- [Philips waarschuwt voor nieuw risico met ademapparaten: 3 patiënten met ernstig letsel](https://www.ad.nl/economie/philips-waarschuwt-voor-nieuw-risico-met-ademapparaten-3-patienten-met-ernstig-letsel~a33b4f7c/)
-  > Philips waarschuwt ziekenhuizen en patiënten voor nieuwe problemen met zijn beademingsapparatuur. Na een onderzoek naar honderden klachten zijn drie...
+- [Voor tweede keer in kort tijd olie gelekt in haven Antwerpen door zinkend vrachtschip](https://www.ad.nl/buitenland/voor-tweede-keer-in-kort-tijd-olie-gelekt-in-haven-antwerpen-door-zinkend-vrachtschip~a72e06af/)
+  > Een vrachtschip is na een aanvaring met een meerpaal in de haven van Antwerpen gezonken. Daarbij lijkt veel olie in het water gekomen. Het is de...
+- [‘Ze hebben honger’: Amerikaanse militairen op oorlogsschepen in Midden-Oosten klagen over voedseltekorten](https://www.ad.nl/buitenland/ze-hebben-honger-amerikaanse-militairen-op-oorlogsschepen-in-midden-oosten-klagen-over-voedseltekorten~a2a63e05/)
+  > Amerikaanse oorlogsschepen die worden ingezet voor de strijd tegen Iran kampen met tekorten aan eten en hygiëneproducten. Matrozen en mariniers delen...
+- [En dan neemt Amalia ineens de regie: de camera’s moeten uit](https://www.ad.nl/binnenland/en-dan-neemt-amalia-ineens-de-regie-de-cameras-moeten-uit~a16f026b/)
+  > Tijdens haar tweedaagse solotour door Amsterdam ruikt Amalia vast aan wat het is om alléén in de spotlights te staan. Ze is niet bang te onthullen...
+- [Na blessure en stilte keert Sanne Wevers terug: olympisch kampioene van Rio werkt aan WK-comeback in Rotterdam](https://www.ad.nl/andere-sporten/na-blessure-en-stilte-keert-sanne-wevers-terug-olympisch-kampioene-van-rio-werkt-aan-wk-comeback-in-rotterdam~a5142a57/)
+  > Sanne Wevers (34) werkt aan een comeback en focust zich op de wereldkampioenschappen turnen, die in oktober in Rotterdam plaatsvinden. Dat meldt...
+- [Van een etentje in de golfclub tot Spa Rood in Hotel New York: zo ontstond de nieuwe Rotterdamse coalitie](https://www.ad.nl/binnenland/van-een-etentje-in-de-golfclub-tot-spa-rood-in-hotel-new-york-zo-ontstond-de-nieuwe-rotterdamse-coalitie~a0e77996c/)
+  > In het stadhuis en in restaurantjes door de hele stad werd de afgelopen weken onderhandeld over een nieuw Rotterdams stadsbestuur. Deze site...
 
 ### Meest gelezen
 
@@ -47,6 +46,7 @@
 
 ### Laatste nieuws
 
+- [Chinese overname Lumileds klapt na Amerikaans bezwaar](https://fd.nl/bedrijfsleven/1593906/chinese-overname-lumileds-klapt-na-amerikaans-bezwaar)
 - [‘Het excuus van politici dat ze verantwoording afleggen bij verkiezingen is te gemakkelijk’](https://fd.nl/opinie/1593029/het-excuus-van-politici-dat-ze-wel-verantwoording-afleggen-bij-de-verkiezingen-is-te-gemakkelijk-en-andere-lezersreacties)
   > FD-lezers reageren op drie bedrijven die vrijwel de hele innovatiebox opsouperen, bij sociale media niet de inhoud maar het ontwerp het probleem is,...
 - [Leidt de oorlog tot een wereldwijde recessie? En wat zijn de tegenkrachten?](https://fd.nl/economie/1593364/leidt-de-oorlog-tot-een-wereldwijde-recessie-en-wat-zijn-de-tegenkrachten)
@@ -55,8 +55,6 @@
   > Bij grote Amerikaanse bedrijven zijn woorden als ‘diversiteit’ en ‘inclusie’ in hoog tempo uit de mode geraakt. Ook AEX-bedrijven schrappen de termen...
 - [De taal van de Surinaamse bomen en planten](https://fd.nl/samenleving/1593281/de-taal-van-de-surinaamse-bomen-en-planten)
   > Michelle Piergoelam legde de planten van Suriname vast, en daarmee het verhaal van het land. ‘Als tot slaaf gemaakten ontsnapten, konden zij dankzij...
-- [Zo pessimistisch zijn economen deze oliecrisis niet](https://fd.nl/politiek/1593411/zo-pessimistisch-zijn-economen-deze-oliecrisis-niet)
-  > De diepe recessie die welhaast uit de ergste oliecrisis ooit zou moeten voortkomen, valt vooralsnog behoorlijk mee. Een wereldwijde economische...
 
 ### Meest gelezen
 
