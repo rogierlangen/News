@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-04-2026 om 15:40*
+*Laatst bijgewerkt: 18-04-2026 om 16:49*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Man schiet zeker 6 mensen dood in Kyiv, motief onbekend](https://nos.nl/l/2610984)
+  > In de Oekraïense hoofdstad Kyiv zijn zeker zes mensen op straat en in een supermarkt doodgeschoten. De schutter is in de winkel door leden van een...
 - [Open en weer dicht, schepen in onzekerheid rond Straat van Hormuz](https://nos.nl/l/2610976)
   > De schepen die hoopten binnenkort door de Straat van Hormuz te kunnen varen, zullen nog langer moeten wachten. Gisteren opende Iran de zeestraat weer...
 - [Gorinchem voert campagne met flyers uit de papierbak](https://nos.nl/l/2610968)
@@ -17,8 +19,6 @@
   > Het Japans Meteorologisch Agentschap heeft een nieuwe term in het leven geroepen voor hittegolfachtige temperaturen van meer dan 40 graden. Kokushobi...
 - [Verzekeraar komt met dekking tegen online pesten: 'Belangrijke stap'](https://nos.nl/l/2610964)
   > Voor het eerst komt een Nederlandse verzekeraar met een speciale dekking voor cyberpesten. Het gaat om Univé. Pestdeskundige Tessa Kaufman van de...
-- [Corso kruipt weer door Bollenstreek, 'ongelooflijk wat een werk ze eraan hebben'](https://nos.nl/l/2610957)
-  > In Noordwijk is weer een begin gemaakt met het jaarlijkse Bloemencorso Bollenstreek. De hele dag 'kruipen' de bonte, met bloemen versierde...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Geen droomdebuut: eerste vrouwelijke hoofdtrainer in Europese topcompetitie verliest eerste wedstrijd](https://www.ad.nl/voetbal/geen-droomdebuut-eerste-vrouwelijke-hoofdtrainer-in-europese-topcompetitie-verliest-eerste-wedstrijd~a5e4423f/)
-  > Marie-Louise Eta heeft bij haar debuut in de Bundesliga een nederlaag geleden met 1. FC Union Berlin. De 34-jarige Duitse schreef daarmee...
-- [ANWB slaat alarm: noodsysteem van miljoenen auto’s werkt straks niet meer](https://www.ad.nl/auto/anwb-slaat-alarm-noodsysteem-van-miljoenen-autos-werkt-straks-niet-meer~a79d4376/)
-  > Het noodsysteem van 2 miljoen personenauto’s is eind volgend jaar waardeloos, als het mobiele netwerk 2G definitief wordt uitgeschakeld. Daarmee...
-- [Onderzoek naar dood van man in Lelystad: ‘Verdachte omstandigheden’](https://www.ad.nl/binnenland/onderzoek-naar-dood-van-man-in-lelystad-verdachte-omstandigheden~a71f8d56/)
-  > De politie is een onderzoek begonnen naar het overlijden van een man die ruim een week geleden gewond werd aangetroffen in een woning in Lelystad....
-- [Opmerkelijke beelden in Australische divisie: zwerm meeuwen teistert voetballers](https://www.ad.nl/voetbal/opmerkelijke-beelden-in-australische-divisie-zwerm-meeuwen-teistert-voetballers~ac3526f0/)
-  > Een zwerm meeuwen heeft voor bijzondere beelden gezorgd in de Australische A-League. In een wedstrijd tussen Melbourne Victory en Newcastle Jets...
-- [Twaalf punten boven degradatiestreep, maar tóch degraderen: het overkomt een club in België](https://www.ad.nl/voetbal/twaalf-punten-boven-degradatiestreep-maar-toch-degraderen-het-overkomt-een-club-in-belgie~a21a5c4a/)
-  > Er is een bizarre situatie ontstaan op het tweede niveau in België. RWDM Brussels, dat twaalf punten boven de degradatiestreep eindigde, degradeert...
+- [Lange schorsing dreigt voor oud-Wimbledon-kampioen na geweigerde dopingtest: ‘Voelde me onveilig’](https://www.ad.nl/tennis/lange-schorsing-dreigt-voor-oud-wimbledon-kampioen-na-geweigerde-dopingtest-voelde-me-onveilig~ac0edf92/)
+  > Voormalig Wimbledon-winnares Marketa Vondrousova riskeert een schorsing van maximaal vier jaar. De Tsjechische weigerde ‘s avonds laat een...
+- [Golf van gruwelijke cryptogijzelingen overspoelt Frankrijk: ‘Ze sneden zelfs vingers af’](https://www.ad.nl/buitenland/golf-van-gruwelijke-cryptogijzelingen-overspoelt-frankrijk-ze-sneden-zelfs-vingers-af~a3ca3ca2/)
+  > Frankrijk is in de ban van een golf brute gijzelingen van cryptomiljonairs. Deze week werden nog een Française en haar 11-jarige zoon ontvoerd....
+- [Rode vlag na ‘heel grote crash’ op de Nordschleife, onduidelijkheid over vervolg voor Max Verstappen](https://www.ad.nl/formule-1/rode-vlag-na-heel-grote-crash-op-de-nordschleife-onduidelijkheid-over-vervolg-voor-max-verstappen~a5961b9b/)
+  > Max Verstappen komt dit weekend samen met collega Lucas Auer in actie in Duitsland tijdens NLS 4 en NLS 5 ter voorbereiding op de 24 uur van de...
+- [Schutter opent vuur in Kyiv: vijf doden, tien gewonden](https://www.ad.nl/buitenland/schutter-opent-vuur-in-kyiv-vijf-doden-tien-gewonden~acdbfbb7/)
+  > Bij een schietpartij in Kyiv zijn zeker vijf doden gevallen, meldt de Oekraïense president Zelensky. De schutter werd gedood tijdens een poging om...
+- [Waarom doet Israël mee aan het Eurovisie Songfestival 2026? En waarom is Australië een deelnemer?](https://www.ad.nl/songfestival/waarom-doet-israel-mee-aan-het-eurovisie-songfestival-2026-en-waarom-is-australie-een-deelnemer~a1107592/)
+  > Van 12 tot en met 16 mei is het weer zover: het Eurovisie Songfestival 2026. Nederland doet dit jaar niet mee. Om je zo goed mogelijk voor te...
 
 ### Meest gelezen
 
