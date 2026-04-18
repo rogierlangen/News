@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-04-2026 om 18:58*
+*Laatst bijgewerkt: 18-04-2026 om 19:46*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Atlético Madrid komt op gelijke hoogte in bekerfinale na dramatische start tegen Real Sociedad](https://www.ad.nl/voetbal/atletico-madrid-komt-op-gelijke-hoogte-in-bekerfinale-na-dramatische-start-tegen-real-sociedad~a7ebc0cd/)
+  > Vanavond staan Atlético Madrid en Real Sociedad tegenover elkaar in de finale van de Copa del Rey. De Madrilenen rekenden in de halve finale af met...
+- [Waarom het kabinet denkt dat de bonden tóch snel een akkoord sluiten over de AOW](https://www.ad.nl/politiek/waarom-het-kabinet-denkt-dat-de-bonden-toch-snel-een-akkoord-sluiten-over-de-aow~a400f778/)
+  > Vakbonden leken irrelevant geworden. Tot het minderheidskabinet ze een reden gaf weer ergens boos over te worden. Maar terwijl het kabinet zo de...
 - [Gifbeker nog niet leeg voor Tottenham: goal en assist van Xavi Simons niet genoeg voor overwinning](https://www.ad.nl/voetbal/gifbeker-nog-niet-leeg-voor-tottenham-goal-en-assist-van-xavi-simons-niet-genoeg-voor-overwinning~a65a9df3/)
   > Tottenham Hotspur heeft in eigen huis met 2-2 gelijkgespeeld tegen Brighton & Hove Albion. Mede dankzij een goal en een assist van Xavi Simons leken...
 - [Nurlaila Karim: ‘Eén wijntje en ik sta in de fik’](https://www.ad.nl/gezond/nurlaila-karim-een-wijntje-en-ik-sta-in-de-fik~a3b740e2/)
   > Ze zit vet in de overgang, haar rechteroog wordt kleiner als ze moe is en ze baalt een beetje van haar lengte. Musicalactrice Nurlaila Karim in de...
 - [Seksfeesten worden mainstream: ‘Ik ben lang onzeker geweest, maar op zo’n avond voel ik me krachtig’](https://www.ad.nl/binnenland/seksfeesten-worden-mainstream-ik-ben-lang-onzeker-geweest-maar-op-zon-avond-voel-ik-me-krachtig~a6150d87/)
   > De afgelopen tien jaar zijn het aanbod en de variatie aan erotische feesten in Nederland geëxplodeerd, met Amsterdam voorop. De scene groeit als...
-- [Race met Max Verstappen definitief stilgelegd: coureur (66) overlijdt na zware crash op Nordschleife](https://www.ad.nl/formule-1/race-met-max-verstappen-definitief-stilgelegd-coureur-66-overlijdt-na-zware-crash-op-nordschleife~a5961b9b/)
-  > Autocoureur Juha Miettinen (66) is zaterdagmiddag overleden bij een zware crash op de Nordschleife waarbij zeven auto’s betrokken waren. Dat gebeurde...
-- [Pakt Atlético Madrid na 13 jaar weer de beker ten koste van Real Sociedad?](https://www.ad.nl/voetbal/pakt-atletico-madrid-na-13-jaar-weer-de-beker-ten-koste-van-real-sociedad~a7ebc0cd/)
-  > Vanavond staan Atlético Madrid en Real Sociedad tegenover elkaar in de finale van de Copa del Rey. De Madrilenen rekenden in de halve finale af met...
 
 ### Meest gelezen
 
