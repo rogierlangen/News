@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-04-2026 om 21:40*
+*Laatst bijgewerkt: 18-04-2026 om 22:39*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Burgemeester ziet minder sluipverkeer bij derde weekendafsluiting A2](https://nos.nl/l/2611024)
+  > Na twee weekenden vol verkeerschaos verloopt de derde tijdelijke afsluiting van de A2 bij Vianen rustiger. Dat constateert burgemeester Fröhlich van...
 - [Initiatief moet boeren helpen om miljoenen aardappels kwijt te raken](https://nos.nl/l/2611007)
   > Meer dan 500 miljoen kilo aardappels in Nederland dreigen het risico te lopen om te verrotten. Aardappeltelers zitten met een enorm overschot dat ze...
 - [Maandabonnement voor Amsterdamse clubs, gaan jongeren weer de nacht in?](https://nos.nl/l/2610999)
@@ -16,8 +18,6 @@
   > In de Italiaanse stad Milaan is het onrustig geweest bij een demonstratie tegen rechts-extremisme. Op het plein voor de kathedraal van Milaan was een...
 - [Man schiet zeker 6 mensen dood in Kyiv, motief onbekend](https://nos.nl/l/2610984)
   > In de Oekraïense hoofdstad Kyiv zijn zeker zes mensen op straat en in een supermarkt doodgeschoten. De schutter is in de winkel door leden van een...
-- [Open en weer dicht, schepen in onzekerheid rond Straat van Hormuz](https://nos.nl/l/2610976)
-  > De schepen die hoopten binnenkort door de Straat van Hormuz te kunnen varen, zullen nog langer moeten wachten. Gisteren opende Iran de zeestraat weer...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Atlético trekt bekerfinale naar verlenging na wereldgoal, Real Sociedad op overlevingsstand](https://www.ad.nl/voetbal/atletico-trekt-bekerfinale-naar-verlenging-na-wereldgoal-real-sociedad-op-overlevingsstand~a7ebc0cd/)
-  > Vanavond staan Atlético Madrid en Real Sociedad tegenover elkaar in de finale van de Copa del Rey. De Madrilenen rekenden in de halve finale af met...
-- [Oranje Leeuwinnen knokken zich naar belangrijk gelijkspel in Frankrijk en zetten grote stap richting WK](https://www.ad.nl/voetbal/oranje-leeuwinnen-knokken-zich-naar-belangrijk-gelijkspel-in-frankrijk-en-zetten-grote-stap-richting-wk~adb73fba/)
-  > De Oranje Leeuwinnen hebben voor de tweede keer deze week een indrukwekkend resultaat geboekt tegen Frankrijk. De uitgedunde selectie van Arjan...
-- [Vernieuwde Cupra Born: veel meer dan een facelift](https://www.ad.nl/auto/vernieuwde-cupra-born-veel-meer-dan-een-facelift~a413c16d/)
-  > De Cupra Born is  vernieuwd en technisch verbeterd. De prijslijst begint nu bij nipt minder dan €35.000.
-- [Kampioensfeest voetbalclub uit Culemborg eindigt in ongeval met platte kar: vier lichtgewonden](https://www.ad.nl/112-nieuws-culemborg/kampioensfeest-voetbalclub-uit-culemborg-eindigt-in-ongeval-met-platte-kar-vier-lichtgewonden~a9dd7453/)
-  > Een kampioensfeest van voetbalclub Focus '07 uit Culemborg is zaterdagavond abrupt geëindigd met een ernstig ongeval. Omdat er volgens de eerste...
-- [Waarom het kabinet denkt dat de bonden tóch snel een akkoord sluiten over de AOW](https://www.ad.nl/politiek/waarom-het-kabinet-denkt-dat-de-bonden-toch-snel-een-akkoord-sluiten-over-de-aow~a400f778/)
-  > Vakbonden leken irrelevant geworden. Tot het minderheidskabinet ze een reden gaf weer ergens boos over te worden. Maar terwijl het kabinet zo de...
+- [Wieke Kaptein over belangrijke kopgoal: ‘Ik kan eigenlijk helemaal niet koppen’](https://www.ad.nl/voetbal/wieke-kaptein-over-belangrijke-kopgoal-ik-kan-eigenlijk-helemaal-niet-koppen~a423cdb4/)
+  > Bij hoekschoppen van Oranje is Wieke Kaptein altijd degene die buiten het strafschopgebied blijft staan. Toch bracht de 20-jarige middenvelder het...
+- [Michael van Gerwen slaat terug naar tegenstander ‘die probeert grappig te zijn’: ‘Hij gaat me nooit verslaan’](https://www.ad.nl/darts/michael-van-gerwen-slaat-terug-naar-tegenstander-die-probeert-grappig-te-zijn-hij-gaat-me-nooit-verslaan~afa6e669/)
+  > Michael van Gerwen heeft het zaterdagavond bij de European Darts Grand Prix niet nagelaten om zijn Duitse tegenstander een koekje van eigen deeg te...
+- [Schutter opent vuur in Kyiv: zes doden, tien gewonden, onder wie kind](https://www.ad.nl/buitenland/schutter-opent-vuur-in-kyiv-zes-doden-tien-gewonden-onder-wie-kind~acdbfbb7/)
+  > Bij een schietpartij in Kyiv zijn zeker zes doden gevallen, meldt de Oekraïense president Zelensky. De schutter werd gedood door de politie tijdens...
+- [Real Sociedad verslaat Atlético Madrid na penalty’s in Spaanse bekerfinale: dure missers van Sørloth en Álvarez](https://www.ad.nl/voetbal/real-sociedad-verslaat-atletico-madrid-na-penaltys-in-spaanse-bekerfinale-dure-missers-van-sorloth-en-alvarez~a7ebc0cd/)
+  > Real Sociedad heeft de Copa del Rey gewonnen. Atlético Madrid stond voor het eerst sinds 2013 weer in de finale van de Spaanse beker, maar verloor in...
+- [Oostenrijk waarschuwt voor rattengif in babyvoeding: gerommeld met de potjes](https://www.ad.nl/buitenland/oostenrijk-waarschuwt-voor-rattengif-in-babyvoeding-gerommeld-met-de-potjes~af80ff31/)
+  > In Oostenrijk zijn potjes babyvoeding van het merk HiPP vermengd met rattengif. Het gaat vermoedelijk om een afpersingspoging, meldt voedselwaakhond...
 
 ### Meest gelezen
 
