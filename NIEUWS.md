@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-04-2026 om 16:49*
+*Laatst bijgewerkt: 18-04-2026 om 17:39*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Maandabonnement voor Amsterdamse clubs, gaan jongeren weer de nacht in?](https://nos.nl/l/2610999)
+  > In één nacht van de ene club naar de andere hoppen: dat is het idee achter de nachtpas. Met een maandabonnement kunnen liefhebbers onbeperkt uitgaan...
+- [Botsing tussen politie en linkse demonstranten in Milaan](https://nos.nl/l/2610998)
+  > In de Italiaanse stad Milaan is het onrustig geweest bij een demonstratie tegen rechts-extremisme. Op het plein voor de kathedraal van Milaan was een...
 - [Man schiet zeker 6 mensen dood in Kyiv, motief onbekend](https://nos.nl/l/2610984)
   > In de Oekraïense hoofdstad Kyiv zijn zeker zes mensen op straat en in een supermarkt doodgeschoten. De schutter is in de winkel door leden van een...
 - [Open en weer dicht, schepen in onzekerheid rond Straat van Hormuz](https://nos.nl/l/2610976)
@@ -15,10 +19,6 @@
 - [Gorinchem voert campagne met flyers uit de papierbak](https://nos.nl/l/2610968)
   > Het geld is nagenoeg op. Toch gaan de politieke partijen in Gorinchem campagne voeren voor de 'nieuwe' gemeenteraadsverkiezingen op 29 april 2026.
   ...
-- [Onverdraaglijk warm weer heet in Japan voortaan 'kokushobi'](https://nos.nl/l/2610967)
-  > Het Japans Meteorologisch Agentschap heeft een nieuwe term in het leven geroepen voor hittegolfachtige temperaturen van meer dan 40 graden. Kokushobi...
-- [Verzekeraar komt met dekking tegen online pesten: 'Belangrijke stap'](https://nos.nl/l/2610964)
-  > Voor het eerst komt een Nederlandse verzekeraar met een speciale dekking voor cyberpesten. Het gaat om Univé. Pestdeskundige Tessa Kaufman van de...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Lange schorsing dreigt voor oud-Wimbledon-kampioen na geweigerde dopingtest: ‘Voelde me onveilig’](https://www.ad.nl/tennis/lange-schorsing-dreigt-voor-oud-wimbledon-kampioen-na-geweigerde-dopingtest-voelde-me-onveilig~ac0edf92/)
-  > Voormalig Wimbledon-winnares Marketa Vondrousova riskeert een schorsing van maximaal vier jaar. De Tsjechische weigerde ‘s avonds laat een...
-- [Golf van gruwelijke cryptogijzelingen overspoelt Frankrijk: ‘Ze sneden zelfs vingers af’](https://www.ad.nl/buitenland/golf-van-gruwelijke-cryptogijzelingen-overspoelt-frankrijk-ze-sneden-zelfs-vingers-af~a3ca3ca2/)
-  > Frankrijk is in de ban van een golf brute gijzelingen van cryptomiljonairs. Deze week werden nog een Française en haar 11-jarige zoon ontvoerd....
-- [Rode vlag na ‘heel grote crash’ op de Nordschleife, onduidelijkheid over vervolg voor Max Verstappen](https://www.ad.nl/formule-1/rode-vlag-na-heel-grote-crash-op-de-nordschleife-onduidelijkheid-over-vervolg-voor-max-verstappen~a5961b9b/)
+- [LIVE | Rode vlag na ‘heel grote crash’ op  Nordschleife, nog altijd onduidelijkheid over vervolg voor Max Verstappen](https://www.ad.nl/formule-1/live-rode-vlag-na-heel-grote-crash-op-nordschleife-nog-altijd-onduidelijkheid-over-vervolg-voor-max-verstappen~a5961b9b/)
   > Max Verstappen komt dit weekend samen met collega Lucas Auer in actie in Duitsland tijdens NLS 4 en NLS 5 ter voorbereiding op de 24 uur van de...
-- [Schutter opent vuur in Kyiv: vijf doden, tien gewonden](https://www.ad.nl/buitenland/schutter-opent-vuur-in-kyiv-vijf-doden-tien-gewonden~acdbfbb7/)
-  > Bij een schietpartij in Kyiv zijn zeker vijf doden gevallen, meldt de Oekraïense president Zelensky. De schutter werd gedood tijdens een poging om...
-- [Waarom doet Israël mee aan het Eurovisie Songfestival 2026? En waarom is Australië een deelnemer?](https://www.ad.nl/songfestival/waarom-doet-israel-mee-aan-het-eurovisie-songfestival-2026-en-waarom-is-australie-een-deelnemer~a1107592/)
-  > Van 12 tot en met 16 mei is het weer zover: het Eurovisie Songfestival 2026. Nederland doet dit jaar niet mee. Om je zo goed mogelijk voor te...
+- [Kabinet stelt maandag nationaal crisisplan olie in werking, wat houdt dit eigenlijk in?](https://www.ad.nl/politiek/kabinet-stelt-maandag-nationaal-crisisplan-olie-in-werking-wat-houdt-dit-eigenlijk-in~a992d65f/)
+  > Vanwege de aanhoudende spanningen in het Midden-Oosten activeert het kabinet maandag het Landelijk Crisisplan Olie. Fase 1 treedt dan officieel in...
+- [Doriane Pin kruipt als eerste vrouw achter het stuur van F1-auto van Mercedes: ‘Een unieke ervaring’](https://www.ad.nl/formule-1/doriane-pin-kruipt-als-eerste-vrouw-achter-het-stuur-van-f1-auto-van-mercedes-een-unieke-ervaring~a5152e19/)
+  > Doriane Pin heeft een stukje geschiedenis geschreven bij Mercedes. De Franse coureur werd op het circuit van Silverstone de eerste vrouw ooit die een...
+- [Amerikanen urenlang in wachtrij op Schiphol door storing: ‘Vreselijk!’](https://www.ad.nl/binnenland/amerikanen-urenlang-in-wachtrij-op-schiphol-door-storing-vreselijk~a8be0ed5/)
+  > Reizigers van buiten Europa werden zaterdagochtend urenlang opgehouden op Schiphol door een storing van de digitale zelfbedieningszuilen. Daardoor...
+- [Nieuwe phishingtruc via je agenda: valse link in zo’n afspraak kan je jouw bankgegevens kosten](https://www.ad.nl/tech/nieuwe-phishingtruc-via-je-agenda-valse-link-in-zon-afspraak-kan-je-jouw-bankgegevens-kosten~af29688b/)
+  > Je opent je smartphone om een afspraak te checken, maar tussen je gewone bezigheden door zie je plots iets vreemds. ‘Pakketje klaargezet voor...
 
 ### Meest gelezen
 
