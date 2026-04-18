@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-04-2026 om 17:39*
+*Laatst bijgewerkt: 18-04-2026 om 18:58*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [LIVE | Rode vlag na ‘heel grote crash’ op  Nordschleife, nog altijd onduidelijkheid over vervolg voor Max Verstappen](https://www.ad.nl/formule-1/live-rode-vlag-na-heel-grote-crash-op-nordschleife-nog-altijd-onduidelijkheid-over-vervolg-voor-max-verstappen~a5961b9b/)
-  > Max Verstappen komt dit weekend samen met collega Lucas Auer in actie in Duitsland tijdens NLS 4 en NLS 5 ter voorbereiding op de 24 uur van de...
-- [Kabinet stelt maandag nationaal crisisplan olie in werking, wat houdt dit eigenlijk in?](https://www.ad.nl/politiek/kabinet-stelt-maandag-nationaal-crisisplan-olie-in-werking-wat-houdt-dit-eigenlijk-in~a992d65f/)
-  > Vanwege de aanhoudende spanningen in het Midden-Oosten activeert het kabinet maandag het Landelijk Crisisplan Olie. Fase 1 treedt dan officieel in...
-- [Doriane Pin kruipt als eerste vrouw achter het stuur van F1-auto van Mercedes: ‘Een unieke ervaring’](https://www.ad.nl/formule-1/doriane-pin-kruipt-als-eerste-vrouw-achter-het-stuur-van-f1-auto-van-mercedes-een-unieke-ervaring~a5152e19/)
-  > Doriane Pin heeft een stukje geschiedenis geschreven bij Mercedes. De Franse coureur werd op het circuit van Silverstone de eerste vrouw ooit die een...
-- [Amerikanen urenlang in wachtrij op Schiphol door storing: ‘Vreselijk!’](https://www.ad.nl/binnenland/amerikanen-urenlang-in-wachtrij-op-schiphol-door-storing-vreselijk~a8be0ed5/)
-  > Reizigers van buiten Europa werden zaterdagochtend urenlang opgehouden op Schiphol door een storing van de digitale zelfbedieningszuilen. Daardoor...
-- [Nieuwe phishingtruc via je agenda: valse link in zo’n afspraak kan je jouw bankgegevens kosten](https://www.ad.nl/tech/nieuwe-phishingtruc-via-je-agenda-valse-link-in-zon-afspraak-kan-je-jouw-bankgegevens-kosten~af29688b/)
-  > Je opent je smartphone om een afspraak te checken, maar tussen je gewone bezigheden door zie je plots iets vreemds. ‘Pakketje klaargezet voor...
+- [Gifbeker nog niet leeg voor Tottenham: goal en assist van Xavi Simons niet genoeg voor overwinning](https://www.ad.nl/voetbal/gifbeker-nog-niet-leeg-voor-tottenham-goal-en-assist-van-xavi-simons-niet-genoeg-voor-overwinning~a65a9df3/)
+  > Tottenham Hotspur heeft in eigen huis met 2-2 gelijkgespeeld tegen Brighton & Hove Albion. Mede dankzij een goal en een assist van Xavi Simons leken...
+- [Nurlaila Karim: ‘Eén wijntje en ik sta in de fik’](https://www.ad.nl/gezond/nurlaila-karim-een-wijntje-en-ik-sta-in-de-fik~a3b740e2/)
+  > Ze zit vet in de overgang, haar rechteroog wordt kleiner als ze moe is en ze baalt een beetje van haar lengte. Musicalactrice Nurlaila Karim in de...
+- [Seksfeesten worden mainstream: ‘Ik ben lang onzeker geweest, maar op zo’n avond voel ik me krachtig’](https://www.ad.nl/binnenland/seksfeesten-worden-mainstream-ik-ben-lang-onzeker-geweest-maar-op-zon-avond-voel-ik-me-krachtig~a6150d87/)
+  > De afgelopen tien jaar zijn het aanbod en de variatie aan erotische feesten in Nederland geëxplodeerd, met Amsterdam voorop. De scene groeit als...
+- [Race met Max Verstappen definitief stilgelegd: coureur (66) overlijdt na zware crash op Nordschleife](https://www.ad.nl/formule-1/race-met-max-verstappen-definitief-stilgelegd-coureur-66-overlijdt-na-zware-crash-op-nordschleife~a5961b9b/)
+  > Autocoureur Juha Miettinen (66) is zaterdagmiddag overleden bij een zware crash op de Nordschleife waarbij zeven auto’s betrokken waren. Dat gebeurde...
+- [Pakt Atlético Madrid na 13 jaar weer de beker ten koste van Real Sociedad?](https://www.ad.nl/voetbal/pakt-atletico-madrid-na-13-jaar-weer-de-beker-ten-koste-van-real-sociedad~a7ebc0cd/)
+  > Vanavond staan Atlético Madrid en Real Sociedad tegenover elkaar in de finale van de Copa del Rey. De Madrilenen rekenden in de halve finale af met...
 
 ### Meest gelezen
 
