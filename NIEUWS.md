@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-04-2026 om 19:46*
+*Laatst bijgewerkt: 19-04-2026 om 20:43*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [NEC-trainer Dick Schreuder: ‘Ik wil woensdag iedereen met een lach terug op de training’](https://www.ad.nl/voetbal/nec-trainer-dick-schreuder-ik-wil-woensdag-iedereen-met-een-lach-terug-op-de-training~a497458b/)
-  > NEC-trainer Dick Schreuder zocht niet naar excuses na de 5-1 nederlaag tegen AZ in de bekerfinale. „AZ was gewoon veel beter. De winst van AZ was een...
-- [Jolanda (41) stapte met knikkende knieën een parenclub binnen, nu is het haar levensstijl](https://www.ad.nl/binnenland/jolanda-41-stapte-met-knikkende-knieen-een-parenclub-binnen-nu-is-het-haar-levensstijl~a2a73458/)
-  > Zenuwachtig loopt Jolanda van der Kaa (41) op haar 25ste richting de deur van een parenclub. „Ik dacht echt: wat ben ik in hemelsnaam aan het doen?”,...
-- [Iran wijst gesprekken met VS af, onduidelijk wanneer JD Vance naar Pakistan vertrekt](https://www.ad.nl/buitenland/iran-wijst-gesprekken-met-vs-af-onduidelijk-wanneer-jd-vance-naar-pakistan-vertrekt~ac528ac3/)
-  > Volgens staatspersbureau Irna zou Iran de tweede ronde gesprekken maandag hebben afgewezen. Het land wil niet praten met de Verenigde Staten. Onder...
-- [Dit zijn de topscorers van het KNVB-bekertoernooi van dit seizoen](https://www.ad.nl/voetbal/dit-zijn-de-topscorers-van-het-knvb-bekertoernooi-van-dit-seizoen~ac795eed/)
-  > Troy Parrott, Milan Zonneveld en Siemen Krikke mogen zich topscorers van dit seizoen in de KNVB-beker noemen. Ze scoorden dit seizoen vijf keer in...
-- [Peer Koopmeiners kan bekerfinale van vorig jaar nu echt vergeten: ‘Het trauma is weg’](https://www.ad.nl/voetbal/peer-koopmeiners-kan-bekerfinale-van-vorig-jaar-nu-echt-vergeten-het-trauma-is-weg~a31f590b/)
-  > AZ-middenvelders Peer Koopmeiners, Sven Mijnans, Jordy Clasie en Kees Smit waren zondagavond door het dolle heen in de Kuip, waar ze in de...
+- [Voetbalpodcast | ‘Dik verdiende zege voor AZ en de keuze van Leeroy Echteld pakte goed uit’](https://www.ad.nl/voetbal/voetbalpodcast-dik-verdiende-zege-voor-az-en-de-keuze-van-leeroy-echteld-pakte-goed-uit~ac8603a9/)
+  > Het voetbalweekend in Nederland stond in het teken van de finale van de Eurojackpot KNVB Beker. Die werd gewonnen door AZ, dat met een 5-1 zege op...
+- [AZ-trainer Leeroy Echteld: een vaderfiguur met het hart op de tong](https://www.ad.nl/voetbal/az-trainer-leeroy-echteld-een-vaderfiguur-met-het-hart-op-de-tong~a161f0c0/)
+  > Dertien jaar moest AZ wachten op een prijs. Onder leiding van Leeroy Echteld lukte het eindelijk weer eens, na een zeer overtuigende KNVB-bekerfinale...
+- [Leeroy Echteld wil graag door bij AZ, naam van José Mourinho zingt rond bij Real Madrid](https://www.ad.nl/voetbal/leeroy-echteld-wil-graag-door-bij-az-naam-van-jose-mourinho-zingt-rond-bij-real-madrid~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Trump: ‘Iraans schip dat Amerikaanse blokkade probeerde te doorbreken beschoten en ingenomen’](https://www.ad.nl/buitenland/trump-iraans-schip-dat-amerikaanse-blokkade-probeerde-te-doorbreken-beschoten-en-ingenomen~ac528ac3/)
+  > De Amerikaanse marine heeft ‘een gat in de machinekamer’ geschoten van een onder Iraanse vlag varend vrachtschip. Dat schrijft Donald Trump op Truth...
+- [Auto van Jesy Nelson vol met medische spullen voor kinderen gestolen](https://www.ad.nl/show/auto-van-jesy-nelson-vol-met-medische-spullen-voor-kinderen-gestolen~a09ec442/)
+  > De auto van de Britse zangeres Jesy Nelson is gestolen. In de auto lagen medische hulpmiddelen voor haar tweeling, die lijdt aan een zeldzame...
 
 ### Meest gelezen
 
