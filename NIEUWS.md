@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-04-2026 om 18:57*
+*Laatst bijgewerkt: 19-04-2026 om 19:46*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [NEC-trainer Dick Schreuder: ‘Ik wil woensdag iedereen met een lach terug op de training’](https://www.ad.nl/voetbal/nec-trainer-dick-schreuder-ik-wil-woensdag-iedereen-met-een-lach-terug-op-de-training~a497458b/)
+  > NEC-trainer Dick Schreuder zocht niet naar excuses na de 5-1 nederlaag tegen AZ in de bekerfinale. „AZ was gewoon veel beter. De winst van AZ was een...
+- [Jolanda (41) stapte met knikkende knieën een parenclub binnen, nu is het haar levensstijl](https://www.ad.nl/binnenland/jolanda-41-stapte-met-knikkende-knieen-een-parenclub-binnen-nu-is-het-haar-levensstijl~a2a73458/)
+  > Zenuwachtig loopt Jolanda van der Kaa (41) op haar 25ste richting de deur van een parenclub. „Ik dacht echt: wat ben ik in hemelsnaam aan het doen?”,...
+- [Iran wijst gesprekken met VS af, onduidelijk wanneer JD Vance naar Pakistan vertrekt](https://www.ad.nl/buitenland/iran-wijst-gesprekken-met-vs-af-onduidelijk-wanneer-jd-vance-naar-pakistan-vertrekt~ac528ac3/)
+  > Volgens staatspersbureau Irna zou Iran de tweede ronde gesprekken maandag hebben afgewezen. Het land wil niet praten met de Verenigde Staten. Onder...
+- [Dit zijn de topscorers van het KNVB-bekertoernooi van dit seizoen](https://www.ad.nl/voetbal/dit-zijn-de-topscorers-van-het-knvb-bekertoernooi-van-dit-seizoen~ac795eed/)
+  > Troy Parrott, Milan Zonneveld en Siemen Krikke mogen zich topscorers van dit seizoen in de KNVB-beker noemen. Ze scoorden dit seizoen vijf keer in...
 - [Peer Koopmeiners kan bekerfinale van vorig jaar nu echt vergeten: ‘Het trauma is weg’](https://www.ad.nl/voetbal/peer-koopmeiners-kan-bekerfinale-van-vorig-jaar-nu-echt-vergeten-het-trauma-is-weg~a31f590b/)
   > AZ-middenvelders Peer Koopmeiners, Sven Mijnans, Jordy Clasie en Kees Smit waren zondagavond door het dolle heen in de Kuip, waar ze in de...
-- [Remco Evenepoel geeft vertrekkend Amstel Gold Race-directeur Leo van Vliet het ultieme afscheidscadeau](https://www.ad.nl/wielrennen/remco-evenepoel-geeft-vertrekkend-amstel-gold-race-directeur-leo-van-vliet-het-ultieme-afscheidscadeau~a8a967f0/)
-  > Koersdirecteur Leo van Vliet kon zich geen beter afscheid wensen. Met Remco Evenepoel komt er een absolute toprenner bij op de erelijst van de Amstel...
-- [Oekraïense agenten geschorst die vluchtten tijdens dodelijke schietpartij in Kyiv](https://www.ad.nl/buitenland/oekraiense-agenten-geschorst-die-vluchtten-tijdens-dodelijke-schietpartij-in-kyiv~abed8497/)
-  > Twee Oekraïense politieagenten zijn geschorst nadat er online een video was verschenen waarop te zien is hoe zij vluchten van de plek van een...
-- [AZ revancheert zich met ruime zege in bekerfinale, NEC ook na zesde poging met lege handen](https://www.ad.nl/voetbal/az-revancheert-zich-met-ruime-zege-in-bekerfinale-nec-ook-na-zesde-poging-met-lege-handen~a0895a04/)
-  > AZ heeft zondagavond in de Kuip voor de vijfde keer in de historie de Eurojackpot KNVB Beker gewonnen. Het team van Leeroy Echteld had een oplossing...
-- [In haar achtertuin wordt Nathalia 27 keer gestoken door haar ex: 'Ik leef, maar hij heeft deel van mij vermoord'](https://www.ad.nl/binnenland/in-haar-achtertuin-wordt-nathalia-27-keer-gestoken-door-haar-ex-ik-leef-maar-hij-heeft-deel-van-mij-vermoord~a67cc144/)
-  > Nathalia (33) werd door haar ex 27 keer gestoken met een keukenmes. Artsen noemden het een wonder dat ze het overleefde. Voor haar voelde dat lange...
 
 ### Meest gelezen
 
