@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-04-2026 om 21:40*
+*Laatst bijgewerkt: 19-04-2026 om 22:40*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Olympia 2036 in Keulen? Meerderheid steunt poging van Duitse steden](https://nos.nl/l/2611171)
+  > Keulen en het Ruhrgebied gaan een poging doen om de Olympische Spelen binnen te halen. Dat is de uitkomst van referenda die gisteren in zeventien...
 - [Ayoub Kharkhach wint Annie M.G. Schmidtprijs](https://nos.nl/l/2611168)
   > Ayoub Kharkhach heeft de Annie M.G. Schmidtprijs gewonnen. Hij kreeg de prijs voor het beste Nederlandstalige theaterlied van het jaar voor zijn...
 - [Pro-Russische oud-president Radev stevent af op verkiezingszege Bulgarije](https://nos.nl/l/2611144)
@@ -16,8 +18,6 @@
   > Dit jaar blijft het voorjaar maar geven. Het is sinds maart al heel zonnig, en de komende week komen er nog een hoop zonuren bij. Toch wordt het maar...
 - [Twee jaar na legalisering kan Duitser te makkelijk wiet kopen, vindt regering](https://nos.nl/l/2611137)
   > Twee jaar na de legalisering van wiet in Duitsland lijken de meeste zorgen van tegenstanders ongegrond. Uit eerste, voorlopige onderzoeksresultaten...
-- [Congo en rebellen sluiten akkoord over leveren van humanitaire hulp](https://nos.nl/l/2611127)
-  > De Democratische Republiek Congo en de rebellengroepering M23 hebben een overeenkomst gesloten over het leveren van humanitaire hulp. Ook zullen...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Pro-Russische kandidaat Radev aan kop in Bulgaarse exitpolls](https://fd.nl/samenleving/1593918/pro-russische-kandidaat-radev-aan-kop-in-bulgaarse-exitpolls)
-  > De partij van de voormalige militair lijkt iets minder dan 40% van de stemmen te krijgen. Daardoor zal hij op zoek moeten naar een coalitiepartner.
-- [Oorlog vergt nieuwe vrienden, zoals het VK](https://fd.nl/economie/1593909/oorlog-vergt-nieuwe-vrienden-zoals-het-vk)
-  > Strategische autonomie is geen abstract onderwerp meer, maar bittere noodzaak.
-- [Commissaris van de Koning in Groningen doet aangifte tegen FDF](https://fd.nl/samenleving/1593917/commissaris-van-de-koning-in-groningen-doet-aangifte-tegen-fdf)
-  > De boerenorganisatie dreigt met ‘oorlog’, vanwege de onteigeningen van een boerenbedrijf in Lucaswolde.
-- [American Airlines wil niet fuseren met United](https://fd.nl/bedrijfsleven/1593915/american-airlines-wil-niet-fuseren-met-united)
-  > Een combinatie tussen beide luchtvaartbedrijven zou volgens American slecht zijn voor de consument.
-- [Rattengif aangetroffen in babyvoeding in Oostenrijk](https://fd.nl/bedrijfsleven/1593803/rattengif-aangetroffen-in-babyvoeding-in-oostenrijk)
-  > Aan de potjes met wortel en aardappel was te zien dat ermee geknoeid was.
+- [Smeken om irrelevantie](https://fd.nl/opinie/1593800/smeken-om-irrelevantie)
+  > De grote automerken doen alsof het hen allemaal maar overkomt, denkt FD-columnist Mathijs Bouman. Ondertussen gaat elders op de wereld de transitie...
+- [Amsterdamse RAI gaat binnen paar weken in de verkoop](https://fd.nl/bedrijfsleven/1593289/amsterdamse-rai-gaat-binnen-paar-weken-in-de-verkoop)
+  > De koper van het 75%-belang moet flink investeren in modernisering van het congrescomplex en in de bouw van kantoren en woningen.
+- [Eindelijk actie rond het socialemediagebruik van kinderen](https://fd.nl/opinie/1592887/nepwimpers-en-naaktfoto-s-in-je-eigen-spiegelpaleis)
+  > Uren per dag zwerven kinderen zonder toezicht rond in een virtueel ‘spiegelpaleis’, schreef Roxane van Iperen over het socialemediagebruik van...
+- [BlackRock-strateeg ziet buiten de VS meer ‘spannende kansen’](https://fd.nl/financiele-markten/1592032/blackrock-strateeg-ziet-buiten-de-vs-meer-spannende-kansen)
+  > Volgens Helen Jewell was ‘DeepSeek Day’ de dag waarop mensen zich realiseerden dat de VS misschien toch niet zo exceptioneel zijn.
+- [Personalia maandag 20 april](https://fd.nl/bedrijfsleven/1593912/personalia-maandag-20-april)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
