@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-04-2026 om 23:39*
+*Laatst bijgewerkt: 19-04-2026 om 03:23*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Bouw van Trumps balzaal kan voorlopig doorgaan, oordeelt hof van beroep](https://nos.nl/l/2611028)
+  > President Trump kan voorlopig doorgaan met de bouw van de 400 miljoen dollar kostende balzaal in het Witte Huis. Dat heeft een Amerikaans federaal...
+- [Babyvoeding uit de schappen in Oostenrijk na vondst rattengif](https://nos.nl/l/2611027)
+  > In Oostenrijk zijn potjes babyvoeding uit de schappen gehaald nadat in een van de maaltijden rattengif was aangetroffen. De politie waarschuwt dat...
+- [Brazilië, Mexico en Spanje beloven meer hulp aan door VS geblokkeerd Cuba](https://nos.nl/l/2611026)
+  > Brazilië, Mexico en Spanje beloven meer hulp aan Cuba, het communistisch geleide eiland in de Caribische Zee dat door een Amerikaanse blokkade kampt...
 - [Burgemeester ziet minder sluipverkeer bij derde weekendafsluiting A2](https://nos.nl/l/2611024)
   > Na twee weekenden vol verkeerschaos verloopt de derde tijdelijke afsluiting van de A2 bij Vianen rustiger. Dat constateert burgemeester Fröhlich van...
 - [Initiatief moet boeren helpen om miljoenen aardappels kwijt te raken](https://nos.nl/l/2611007)
   > Meer dan 500 miljoen kilo aardappels in Nederland dreigen het risico te lopen om te verrotten. Aardappeltelers zitten met een enorm overschot dat ze...
-- [Maandabonnement voor Amsterdamse clubs, gaan jongeren weer de nacht in?](https://nos.nl/l/2610999)
-  > In één nacht van de ene club naar de andere hoppen: dat is het idee achter de nachtpas. Met een maandabonnement kunnen liefhebbers onbeperkt uitgaan...
-- [Botsing tussen politie en linkse demonstranten in Milaan](https://nos.nl/l/2610998)
-  > In de Italiaanse stad Milaan is het onrustig geweest bij een demonstratie tegen rechts-extremisme. Op het plein voor de kathedraal van Milaan was een...
-- [Man schiet zeker 6 mensen dood in Kyiv, motief onbekend](https://nos.nl/l/2610984)
-  > In de Oekraïense hoofdstad Kyiv zijn zeker zes mensen op straat en in een supermarkt doodgeschoten. De schutter is in de winkel door leden van een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Seoul meldt meerdere door Noord-Korea afgevuurde ballistische raketten](https://www.ad.nl/buitenland/seoul-meldt-meerdere-door-noord-korea-afgevuurde-ballistische-raketten~a2a20c72/)
+  > Noord-Korea heeft zondag meerdere ballistische raketten afgevuurd, meldt het Zuid-Koreaanse persbureau Yonhap. Eerder had het persbureau al de...
+- [Ondanks hernieuwde sluiting van Straat van Hormuz gaat overleg tussen Iran en VS nog door](https://www.ad.nl/buitenland/ondanks-hernieuwde-sluiting-van-straat-van-hormuz-gaat-overleg-tussen-iran-en-vs-nog-door~ac528ac3/)
+  > Iran heeft de Straat van Hormuz opnieuw geblokkeerd en ziet schepen die er toch door willen als doelwit. De Amerikaanse president Trump heeft laten...
+- [Militairen in het Russische leger betalen fors voor hun veiligheid: ‘Als je niet naar de frontlinie wilt, betaal je’](https://www.ad.nl/buitenland/militairen-in-het-russische-leger-betalen-fors-voor-hun-veiligheid-als-je-niet-naar-de-frontlinie-wilt-betaal-je~a0499f17/)
+  > Russische contractsoldaten die vechten in Oekraïne moeten hun officieren betalen voor verlof, een ziekenhuisbehandeling en om te voorkomen dat zij...
 - [Trump mag voorlopig toch doorgaan met bouw van balzaal in Witte Huis](https://www.ad.nl/buitenland/trump-mag-voorlopig-toch-doorgaan-met-bouw-van-balzaal-in-witte-huis~a6fe32e0/)
   > President Donald Trump krijgt toch toestemming om door te gaan met de bouw van een balzaal van 400 miljoen dollar in het Witte Huis. Dat heeft het...
 - [Wieke Kaptein over belangrijke kopgoal: ‘Ik kan eigenlijk helemaal niet koppen’](https://www.ad.nl/voetbal/wieke-kaptein-over-belangrijke-kopgoal-ik-kan-eigenlijk-helemaal-niet-koppen~a423cdb4/)
   > Bij hoekschoppen van Oranje is Wieke Kaptein altijd degene die buiten het strafschopgebied blijft staan. Toch bracht de 20-jarige middenvelder het...
-- [Michael van Gerwen slaat terug naar tegenstander ‘die probeert grappig te zijn’: ‘Hij gaat me nooit verslaan’](https://www.ad.nl/darts/michael-van-gerwen-slaat-terug-naar-tegenstander-die-probeert-grappig-te-zijn-hij-gaat-me-nooit-verslaan~afa6e669/)
-  > Michael van Gerwen heeft het zaterdagavond bij de European Darts Grand Prix niet nagelaten om zijn Duitse tegenstander een koekje van eigen deeg te...
-- [Schutter opent vuur in Kyiv: zes doden, tien gewonden, onder wie kind](https://www.ad.nl/buitenland/schutter-opent-vuur-in-kyiv-zes-doden-tien-gewonden-onder-wie-kind~acdbfbb7/)
-  > Bij een schietpartij in Kyiv zijn zeker zes doden gevallen, meldt de Oekraïense president Zelensky. De schutter werd gedood door de politie tijdens...
-- [Real Sociedad verslaat Atlético Madrid na penalty’s in Spaanse bekerfinale: dure missers van Sørloth en Álvarez](https://www.ad.nl/voetbal/real-sociedad-verslaat-atletico-madrid-na-penaltys-in-spaanse-bekerfinale-dure-missers-van-sorloth-en-alvarez~a7ebc0cd/)
-  > Real Sociedad heeft de Copa del Rey gewonnen. Atlético Madrid stond voor het eerst sinds 2013 weer in de finale van de Spaanse beker, maar verloor in...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Luisterverhaal: Na Trumps Groenland-dreigement kijken IJslanders met andere ogen naar de EU](https://fd.nl/samenleving/1593776/luisterverhaal-na-trumps-groenland-dreigement-kijken-ijslanders-met-andere-ogen-naar-de-eu)
+  > Deze week hoor je het verhaal van IJsland, waar toetreding tot de EU een hot topic is.
 - [Verenigde Staten wijzen Franse hulpverzoeken in onderzoek X af](https://fd.nl/tech-en-innovatie/1593908/verenigde-staten-wijzen-franse-hulpverzoeken-in-onderzoek-x-af)
   > De Franse justitie onderzoekt onder meer of X zich in de Franse verkiezingen heeft gemengd door zijn eigen algoritmen te misbruiken.
 - [Iran: Straat van Hormuz weer gesloten](https://fd.nl/politiek/1593907/olie-en-gastankers-varen-door-straat-van-hormuz)
@@ -54,8 +56,6 @@
   > Minister van Financiën Eelco Heinen (VVD) ziet een sleutelrol voor zichzelf en zijn ambtgenoten om Europa een leidende rol in de wereld te laten...
 - [Chinese overname Lumileds klapt na Amerikaans bezwaar](https://fd.nl/bedrijfsleven/1593906/chinese-overname-lumileds-klapt-na-amerikaans-bezwaar)
   > De voormalig Philips-tak zou worden overgenomen door de Chinese ledchipmaker San’an.
-- [‘Het excuus van politici dat ze verantwoording afleggen bij verkiezingen is te gemakkelijk’](https://fd.nl/opinie/1593029/het-excuus-van-politici-dat-ze-wel-verantwoording-afleggen-bij-de-verkiezingen-is-te-gemakkelijk-en-andere-lezersreacties)
-  > FD-lezers reageren op drie bedrijven die vrijwel de hele innovatiebox opsouperen, bij sociale media niet de inhoud maar het ontwerp het probleem is,...
 
 ### Meest gelezen
 
