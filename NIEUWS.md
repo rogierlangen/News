@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-04-2026 om 13:11*
+*Laatst bijgewerkt: 19-04-2026 om 14:44*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Schlagerzanger Heino klaagt AfD aan voor misbruik van zijn naam in campagne](https://nos.nl/l/2611104)
+  > De Duitse schlagerzanger Heino (87) klaagt de politieke partij AfD aan vanwege het ongevraagd gebruiken van zijn naam in een verkiezingscampagne. Een...
+- [Twee doden in Oekraïne door Russische aanvallen](https://nos.nl/l/2611102)
+  > Door Russische aanvallen in Oekraïne zijn vannacht twee mensen gedood en vier mensen gewond geraakt. Een jongen van 16 kwam om het leven bij een...
+- [Zwitserse voetbalclub boycot concert Kanye West: 'Past niet bij onze waarden'](https://nos.nl/l/2611098)
+  > Een optreden van Kanye West in Zwitserland gaat niet door. De omstreden Amerikaanse artiest zou in juni een concert geven in het stadion van FC...
 - ['Oscars van de wetenschap' uitgereikt, ook prijs voor Vlaamse wetenschapper](https://nos.nl/l/2611090)
   > In Los Angeles was vannacht de uitreiking van de Breakthrough Prizes, de 'Oscars van de wetenschap'. Dit jaar werden er zes prijzen van elk 3 miljoen...
 - [Paus Leo: tirannen-speech geen aanval op Trump](https://nos.nl/l/2611086)
   > Paus Leo XIV stelt dat hij niet opnieuw met de Amerikaanse president in een discussie wilde belanden toen hij afgelopen donderdag zei dat de wereld...
-- [Finalespanning loopt op: honderden supportersbussen AZ en NEC naar De Kuip](https://nos.nl/l/2611085)
-  > De bekerkoorts loopt al dagen op bij voetbalsupporters in zowel Alkmaar als Nijmegen. Duizenden fans van AZ en NEC trekken vanmiddag richting De Kuip...
-- [Man (37) onder 'verdachte omstandigheden' dood gevonden in hotel Katwoude](https://nos.nl/l/2611084)
-  > In een hotel in Katwoude, in de buurt van Volendam, is gisteren een 37-jarige man dood gevonden. De politie spreekt van "verdachte omstandigheden" en...
-- [Is AI 'kind van God'? Of einde van de mensheid? Anthropic zit in een spagaat](https://nos.nl/l/2611083)
-  > Het is op z'n zachtst gezegd een opmerkelijke vraag. Kan AI (kunstmatige intelligentie) een 'kind van God' zijn? Het Amerikaanse AI-bedrijf Anthropic...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Verstappen kan overwinning op Nürburgring vergeten wegens schade aan de auto, teamgenoot op de baan](https://www.ad.nl/formule-1/verstappen-kan-overwinning-op-nurburgring-vergeten-wegens-schade-aan-de-auto-teamgenoot-op-de-baan~a94dac44/)
-  > Max Verstappen en teamgenoot Lucas Auer kunnen de zege op de Nürburgring vergeten. Door schade stond de auto van de coureurs minutenlang binnen....
-- [LIVE Premier League | Liverpool ontsnapt aan vroege achterstand in Merseyside-derby](https://www.ad.nl/voetbal/live-premier-league-liverpool-ontsnapt-aan-vroege-achterstand-in-merseyside-derby~a91f03d7/)
-  > Liverpool koerst in een moeilijk seizoen alsnog af op een ticket voor de Champions League. De ploeg van Arne Slot staat voorlopig op een veilige...
-- [Kopgroep met Nederlander en voormalig bergkoning in Tour zien peloton naderen in Limburgse heuvelland](https://www.ad.nl/wielrennen/kopgroep-met-nederlander-en-voormalig-bergkoning-in-tour-zien-peloton-naderen-in-limburgse-heuvelland~a5a30fa9/)
+- [Kinderen die schokkende zedenmisdrijven plegen, zijn die nog te redden? Dit zeggen experts erover](https://www.ad.nl/binnenland/kinderen-die-schokkende-zedenmisdrijven-plegen-zijn-die-nog-te-redden-dit-zeggen-experts-erover~a3671724/)
+  > Twee jongens van 13 en 14 jaar verkrachtten twee jaar geleden een 11-jarig meisje in Breda en deelden de beelden online. Hoe kan iemand op die...
+- [Remco Evenepoel samen met titelhouder en Fransman na demarrage op kop, Nederlandse vluchter hard ten val](https://www.ad.nl/wielrennen/remco-evenepoel-samen-met-titelhouder-en-fransman-na-demarrage-op-kop-nederlandse-vluchter-hard-ten-val~a5a30fa9/)
   > De Amstel Gold Race is toe aan de 60ste editie. Het is de laatste met Leo van Vliet als koersdirecteur. Wie wordt in het Limburgse heuvelland de...
-- [Biergooier Gerard Joling ‘in contact met management’, organisatie viert door: ‘Laten sfeer niet verpesten’](https://www.ad.nl/show/biergooier-gerard-joling-in-contact-met-management-organisatie-viert-door-laten-sfeer-niet-verpesten~ab0b90fa/)
-  > De bezoeker die vrijdagavond een beker bier naar Gerard Joling gooide en hem vervolgens op het podium een duw gaf, heeft inmiddels contact met het...
-- [Lieve werd 23 jaar geleden gevonden in portiek: ‘Zolang ik niet op zoek ga naar antwoorden, kan het ook geen pijn doen’](https://www.ad.nl/mezza/lieve-werd-23-jaar-geleden-gevonden-in-portiek-zolang-ik-niet-op-zoek-ga-naar-antwoorden-kan-het-ook-geen-pijn-doen~ae8b10fd/)
-  > Drieëntwintig jaar geleden werd baby Lieve gevonden in een portiek, gewikkeld in een theedoek en een plastic tasje. Haar verhaal staat niet op...
+- [Aké en Reijnders op de bank bij Manchester City in topper tegen Arsenal, Timber ontbreekt](https://www.ad.nl/voetbal/ake-en-reijnders-op-de-bank-bij-manchester-city-in-topper-tegen-arsenal-timber-ontbreekt~a7148eb9/)
+  > Wordt Arsenal na 22 jaar eindelijk weer eens kampioen van Engeland? Met nog zes wedstrijden te gaan is de koploper van de Premier League daar nog...
+- [Zowel vrouwen als mannen kunnen incontinent worden: dit helpt volgens fysiotherapeut](https://www.ad.nl/gezond/zowel-vrouwen-als-mannen-kunnen-incontinent-worden-dit-helpt-volgens-fysiotherapeut~a3e43d87/)
+  > Telkens niet op tijd de wc halen, of niet kunnen hoesten, lachen of iets zwaars tillen zonder urine te verliezen: incontinentie kan een vervelende...
+- [Superfan Billie Eilish in tranen na serenade van Justin Bieber op Coachella: miljoenen views](https://www.ad.nl/show/superfan-billie-eilish-in-tranen-na-serenade-van-justin-bieber-op-coachella-miljoenen-views~ad78c9a0/)
+  > Billie Eilish (24), die van jongs af aan superfan is van popster Justin Bieber (31), had zaterdag de avond van haar leven. De Amerikaanse zangeres...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Even niet scheiden](https://fd.nl/opinie/1593911/even-niet-scheiden)
+  > De dalende huizenprijzen kunnen aanleiding zijn voor oncontroleerbare angstaanvallen. Columnist Mathijs Rotteveel weet er alles van.
 - [Rekening van Saoedisch schandaal blijft maar oplopen voor Strukton](https://fd.nl/bedrijfsleven/1592444/rekening-van-saoedisch-schandaal-blijft-maar-oplopen-voor-strukton)
   > Het bedrijf moest een betalingsregeling afspreken met het OM. Ondertussen kreeg een advocaat een claim van €1,7 mln toegewezen.
 - [Gezocht: onafhankelijke expert voor miljoenenclaim over Rembrandt](https://fd.nl/samenleving/1593412/gezocht-onafhankelijke-expert-voor-miljoenenclaim-over-rembrandt)
@@ -54,8 +56,6 @@
   > Roep van de oppositie om af te treden wegens Mandelson-affaire klinkt steeds luider.
 - [Fiscus legt voor €14 mln beslag op vastgoed van verhuurder Change](https://fd.nl/bedrijfsleven/1593413/fiscus-legt-voor-14-mln-beslag-op-vastgoed-van-verhuurder-change)
   > Het beslag betreft vastgoed van de woningverhuurder in Utrecht. Change raakte eerder in opspraak vanwege conflicten met huurders en een dispuut met...
-- [Brussel adviseert thuiswerken en ‘ecorijden’ in energieplan](https://fd.nl/politiek/1593799/brussel-adviseert-thuiswerken-en-ecorijden-in-energieplan)
-  > Europese Commissie komt woensdag met een overzicht van maatregelen en aanbevelingen waarmee EU-landen de crisis op de olie- en gasmarkt te lijf...
 
 ### Meest gelezen
 
