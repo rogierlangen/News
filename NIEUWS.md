@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-04-2026 om 03:23*
+*Laatst bijgewerkt: 19-04-2026 om 06:00*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Van onze correspondent... Laura van Megen (China)](https://nos.nl/l/2611036)
+  > Van onze Correspondent is een serie van de makers van podcast De Dag. Iedere zondag maken we kennis met een van de correspondenten van de NOS, het...
+- [Bulgaren naar de stembus: pro-Russische oud-president grote kanshebber](https://nos.nl/l/2611033)
+  > Stemden de Hongaren een week geleden nog hun premier Viktor Orbán weg, in een ander EU-land kan er vandaag toch weer een pro-Russische leider aan de...
 - [Bouw van Trumps balzaal kan voorlopig doorgaan, oordeelt hof van beroep](https://nos.nl/l/2611028)
   > President Trump kan voorlopig doorgaan met de bouw van de 400 miljoen dollar kostende balzaal in het Witte Huis. Dat heeft een Amerikaans federaal...
 - [Babyvoeding uit de schappen in Oostenrijk na vondst rattengif](https://nos.nl/l/2611027)
   > In Oostenrijk zijn potjes babyvoeding uit de schappen gehaald nadat in een van de maaltijden rattengif was aangetroffen. De politie waarschuwt dat...
 - [Brazilië, Mexico en Spanje beloven meer hulp aan door VS geblokkeerd Cuba](https://nos.nl/l/2611026)
   > Brazilië, Mexico en Spanje beloven meer hulp aan Cuba, het communistisch geleide eiland in de Caribische Zee dat door een Amerikaanse blokkade kampt...
-- [Burgemeester ziet minder sluipverkeer bij derde weekendafsluiting A2](https://nos.nl/l/2611024)
-  > Na twee weekenden vol verkeerschaos verloopt de derde tijdelijke afsluiting van de A2 bij Vianen rustiger. Dat constateert burgemeester Fröhlich van...
-- [Initiatief moet boeren helpen om miljoenen aardappels kwijt te raken](https://nos.nl/l/2611007)
-  > Meer dan 500 miljoen kilo aardappels in Nederland dreigen het risico te lopen om te verrotten. Aardappeltelers zitten met een enorm overschot dat ze...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Seoul meldt meerdere door Noord-Korea afgevuurde ballistische raketten](https://www.ad.nl/buitenland/seoul-meldt-meerdere-door-noord-korea-afgevuurde-ballistische-raketten~a2a20c72/)
-  > Noord-Korea heeft zondag meerdere ballistische raketten afgevuurd, meldt het Zuid-Koreaanse persbureau Yonhap. Eerder had het persbureau al de...
-- [Ondanks hernieuwde sluiting van Straat van Hormuz gaat overleg tussen Iran en VS nog door](https://www.ad.nl/buitenland/ondanks-hernieuwde-sluiting-van-straat-van-hormuz-gaat-overleg-tussen-iran-en-vs-nog-door~ac528ac3/)
-  > Iran heeft de Straat van Hormuz opnieuw geblokkeerd en ziet schepen die er toch door willen als doelwit. De Amerikaanse president Trump heeft laten...
-- [Militairen in het Russische leger betalen fors voor hun veiligheid: ‘Als je niet naar de frontlinie wilt, betaal je’](https://www.ad.nl/buitenland/militairen-in-het-russische-leger-betalen-fors-voor-hun-veiligheid-als-je-niet-naar-de-frontlinie-wilt-betaal-je~a0499f17/)
-  > Russische contractsoldaten die vechten in Oekraïne moeten hun officieren betalen voor verlof, een ziekenhuisbehandeling en om te voorkomen dat zij...
-- [Trump mag voorlopig toch doorgaan met bouw van balzaal in Witte Huis](https://www.ad.nl/buitenland/trump-mag-voorlopig-toch-doorgaan-met-bouw-van-balzaal-in-witte-huis~a6fe32e0/)
-  > President Donald Trump krijgt toch toestemming om door te gaan met de bouw van een balzaal van 400 miljoen dollar in het Witte Huis. Dat heeft het...
-- [Wieke Kaptein over belangrijke kopgoal: ‘Ik kan eigenlijk helemaal niet koppen’](https://www.ad.nl/voetbal/wieke-kaptein-over-belangrijke-kopgoal-ik-kan-eigenlijk-helemaal-niet-koppen~a423cdb4/)
-  > Bij hoekschoppen van Oranje is Wieke Kaptein altijd degene die buiten het strafschopgebied blijft staan. Toch bracht de 20-jarige middenvelder het...
+- [Evenepoel topfavoriet: de concurrenten en de tijden dat je moet inschakelen voor belangrijkste passages op een rij](https://www.ad.nl/wielrennen/evenepoel-topfavoriet-de-concurrenten-en-de-tijden-dat-je-moet-inschakelen-voor-belangrijkste-passages-op-een-rij~a20d6e34/)
+  > Zondag staat de zestigste editie van de Amstel Gold Race op het programma. Remco Evenepoel is de grote favoriet voor de eindzege. Wie zijn de...
+- [Volkswagen ID3 wordt ID3 Neo: meer knoppen en meer sfeer aan boord](https://www.ad.nl/auto/volkswagen-id3-wordt-id3-neo-meer-knoppen-en-meer-sfeer-aan-boord~a3cf7b33/)
+  > De elektrische Volkswagen ID3 gaat zijn leven verder als ID3 Neo. De auto krijgt de nieuwe ID-ontwerpstijl en hoewel de ID Polo nog niet is onthuld,...
+- [Bekerfinale niet alleen belangrijk voor NEC en AZ: dit zijn de gevolgen voor verdeling Europese tickets](https://www.ad.nl/voetbal/bekerfinale-niet-alleen-belangrijk-voor-nec-en-az-dit-zijn-de-gevolgen-voor-verdeling-europese-tickets~a740f4ee/)
+  > PSV mag al kampioen zijn, daaronder wacht een zinderende ontknoping om Europese tickets. Welke club in welke competitie en/of voorronde belandt,...
+- [Er zijn dagen dat je stoer moet doen en er zijn dagen dat je bescheiden moet zijn](https://www.ad.nl/mezza/er-zijn-dagen-dat-je-stoer-moet-doen-en-er-zijn-dagen-dat-je-bescheiden-moet-zijn~a9b1caf6/)
+  > Mezza-columnist Beau is op een berg in Italië en denkt na over wat hij wil gaan doen met de rest van zijn tv-carrière.
+- [Brownies & Downies zit in de winter stampvol, dan belt de buurman met mededeling: ‘We twijfelden een uurtje’](https://www.ad.nl/binnenland/brownies-en-downies-zit-in-de-winter-stampvol-dan-belt-de-buurman-met-mededeling-we-twijfelden-een-uurtje~a0cd1964/)
+  > In de winter zijn alle stoelen bezet en in de zomer puilt het terras uit. Het is bij Brownies & Downies in Wijchen dringen geblazen en in het weekend...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Tbs’ers zoeken werk in Almere](https://fd.nl/samenleving/1593380/tbsers-zoeken-werk-in-almere)
+  > Hoe is het om een tbs’er in dienst te nemen? ‘Geweld tijdens het werk heb ik nog nooit meegemaakt.’
+- [Kyivs rekensom voor de zege: elke maand 50.000 Russen doden](https://fd.nl/politiek/1593019/kyivs-rekensom-voor-de-zege-elke-maand-50-000-russen-doden)
+  > De Russische verliezen in Oekraïne nemen toe. Poetins soldaten zijn kansloos tegen Oekraïense drones. Doel van Kyiv? De Russen sneller uitschakelen...
 - [Luisterverhaal: Na Trumps Groenland-dreigement kijken IJslanders met andere ogen naar de EU](https://fd.nl/samenleving/1593776/luisterverhaal-na-trumps-groenland-dreigement-kijken-ijslanders-met-andere-ogen-naar-de-eu)
   > Deze week hoor je het verhaal van IJsland, waar toetreding tot de EU een hot topic is.
 - [Verenigde Staten wijzen Franse hulpverzoeken in onderzoek X af](https://fd.nl/tech-en-innovatie/1593908/verenigde-staten-wijzen-franse-hulpverzoeken-in-onderzoek-x-af)
   > De Franse justitie onderzoekt onder meer of X zich in de Franse verkiezingen heeft gemengd door zijn eigen algoritmen te misbruiken.
 - [Iran: Straat van Hormuz weer gesloten](https://fd.nl/politiek/1593907/olie-en-gastankers-varen-door-straat-van-hormuz)
   > Twee schepen in de Straat van Hormuz zijn beschoten, meldt het Britse maritiem agentschap UKMTO. Geen enkel schip mag nog door de zee-engte, zegt de...
-- [Heinen (Financiën) wil voor VK nieuw ‘toegangskaartje’ bij EU regelen](https://fd.nl/economie/1593905/heinen-financien-wil-nieuw-toegangskaartje-voor-vk-bij-eu-regelen)
-  > Minister van Financiën Eelco Heinen (VVD) ziet een sleutelrol voor zichzelf en zijn ambtgenoten om Europa een leidende rol in de wereld te laten...
-- [Chinese overname Lumileds klapt na Amerikaans bezwaar](https://fd.nl/bedrijfsleven/1593906/chinese-overname-lumileds-klapt-na-amerikaans-bezwaar)
-  > De voormalig Philips-tak zou worden overgenomen door de Chinese ledchipmaker San’an.
 
 ### Meest gelezen
 
