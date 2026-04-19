@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-04-2026 om 16:48*
+*Laatst bijgewerkt: 19-04-2026 om 17:39*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Twee jaar na legalisering kan Duitser te makkelijk wiet kopen, vindt regering](https://nos.nl/l/2611137)
+  > Twee jaar na de legalisering van wiet in Duitsland lijken de meeste zorgen van tegenstanders ongegrond. Uit eerste, voorlopige onderzoeksresultaten...
 - [Congo en rebellen sluiten akkoord over leveren van humanitaire hulp](https://nos.nl/l/2611127)
   > De Democratische Republiek Congo en de rebellengroepering M23 hebben een overeenkomst gesloten over het leveren van humanitaire hulp. Ook zullen...
 - [Acht kinderen gedood bij schietpartij in Louisiana na huiselijke ruzie](https://nos.nl/l/2611126)
@@ -16,8 +18,6 @@
   > Om de stijgende energieprijzen het hoofd te bieden presenteert de Europese Commissie komende week een reeks suggesties om de afhankelijkheid van...
 - [Provincie Groningen doet aangifte tegen Farmers Defence Force](https://nos.nl/l/2611115)
   > De provincie Groningen doet morgen aangifte tegen Farmers Defence Force (FDF). Dat bevestigt commissaris van de Koning René Paas aan RTV Noord. De...
-- [Schlagerzanger Heino klaagt AfD aan voor misbruik van zijn naam in campagne](https://nos.nl/l/2611104)
-  > De Duitse schlagerzanger Heino (87) klaagt de politieke partij AfD aan vanwege het ongevraagd gebruiken van zijn naam in een verkiezingscampagne. Een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Wie slaat slag in titelstrijd? Manchester City en Arsenal zoeken naar doelpunt](https://www.ad.nl/voetbal/wie-slaat-slag-in-titelstrijd-manchester-city-en-arsenal-zoeken-naar-doelpunt~a7148eb9/)
-  > Wordt Arsenal na 22 jaar eindelijk weer eens kampioen van Engeland? Met nog zes wedstrijden te gaan is de koploper van de Premier League daar nog...
-- [Correspondent Karlijn blikt terug: hoe Trump het leven van gewone Amerikanen én van haarzelf opslokte](https://www.ad.nl/buitenland/correspondent-karlijn-blikt-terug-hoe-trump-het-leven-van-gewone-amerikanen-en-van-haarzelf-opslokte~a82b59af/)
-  > Correspondent Karlijn van Houwelingen verlaat na ruim tien jaar de VS. Ze maakte het tijdperk Trump van meet af aan mee. Wat blijft haar bij? Vooral...
-- [Tweevoudig bekerwinnaar Jens Toornstra bij finale als grasmeester in de Kuip: ‘Dit is een van mijn opdrachten’](https://www.ad.nl/voetbal/tweevoudig-bekerwinnaar-jens-toornstra-bij-finale-als-grasmeester-in-de-kuip-dit-is-een-van-mijn-opdrachten~a0851374/)
-  > Jens Toornstra had vanavond een bijzondere rol voorafgaand aan de bekerfinale tussen AZ en NEC. De 37-jarige middenvelder van Sparta is in de Kuip...
-- [De Wit zet AZ op verdiende voorsprong, Goes voorkomt snelle gelijkmaker NEC](https://www.ad.nl/voetbal/de-wit-zet-az-op-verdiende-voorsprong-goes-voorkomt-snelle-gelijkmaker-nec~a0895a04/)
-  > AZ en NEC staan tegenover elkaar in de finale van de Eurojackpot KNVB Beker. Voor AZ lonkt de eerste bekerwinst sinds 2013, terwijl NEC in zijn zesde...
-- [Acht kinderen gedood bij schietpartij in Louisiana](https://www.ad.nl/buitenland/acht-kinderen-gedood-bij-schietpartij-in-louisiana~a03e5daf/)
-  > Bij een drama in de huiselijke sfeer zijn acht Amerikaanse kinderen gedood. Dat meldt de politie in de staat Louisiana.
+- [Virgil van Dijk de held van Liverpool in derby tegen Everton met winnende goal in 100ste minuut: 'Moeten blijven vechten'](https://www.ad.nl/voetbal/virgil-van-dijk-de-held-van-liverpool-in-derby-tegen-everton-met-winnende-goal-in-100ste-minuut-moeten-blijven-vechten~a91f03d7/)
+  > Dankzij een doelpunt van Virgil van Dijk in de 100ste minuut heeft Liverpool de 248ste editie van de Merseyside-derby met 1-2 gewonnen. Lang leek...
+- [Gaat het wéér mis voor Arsenal? Manchester City verslaat koploper en komt in verliespunten gelijk](https://www.ad.nl/voetbal/gaat-het-weer-mis-voor-arsenal-manchester-city-verslaat-koploper-en-komt-in-verliespunten-gelijk~a7148eb9/)
+  > De titelstrijd in de Premier League ligt weer volledig open nadat Manchester City de topper van Arsenal met 2-1 won. De Londense koploper had bij een...
+- [Bayern München voor 35ste keer landskampioen na eenvoudige zege op VfB Stuttgart](https://www.ad.nl/voetbal/bayern-munchen-voor-35ste-keer-landskampioen-na-eenvoudige-zege-op-vfb-stuttgart~aa2103ab/)
+  > Bayern München is voor de 35ste keer in de clubgeschiedenis kampioen van Duitsland geworden. De ploeg van Vincent Kompany had na de nederlaag van...
+- [Goedkoopste benzineauto wordt nóg goedkoper, ook goedkope elektrische nieuwkomer op komst](https://www.ad.nl/auto/goedkoopste-benzineauto-wordt-nog-goedkoper-ook-goedkope-elektrische-nieuwkomer-op-komst~a931780b/)
+  > Twee autofabrikanten spannen zich in om het autorijden betaalbaar te houden. De Kia Picanto was al de goedkoopste benzineauto van Nederland en wordt...
+- [Nog grotere crisis nodig om urgentie van een eensgezind Europa te zien](https://www.ad.nl/commentaar/nog-grotere-crisis-nodig-om-urgentie-van-een-eensgezind-europa-te-zien~a44b92c3/)
+  > Onafhankelijker worden van Amerika staat hoog op de agenda, maar over de omgang met onze bondgenoot op korte termijn komt Europa maar niet op één...
 
 ### Meest gelezen
 
