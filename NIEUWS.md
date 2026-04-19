@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-04-2026 om 22:40*
+*Laatst bijgewerkt: 19-04-2026 om 23:41*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Iran dreigt met vergelding na Amerikaanse aanval op Iraans schip](https://www.ad.nl/buitenland/iran-dreigt-met-vergelding-na-amerikaanse-aanval-op-iraans-schip~ac528ac3/)
+  > Iran heeft in de nacht van zondag op maandag gedreigd met vergelding vanwege de Amerikaanse aanval op het onder Iraanse vlag varende vrachtschip...
 - [Pro-Russische Rumen Radev claimt verkiezingsoverwinning in Bulgarije](https://www.ad.nl/buitenland/pro-russische-rumen-radev-claimt-verkiezingsoverwinning-in-bulgarije~ac61c92b/)
   > Voormalig president Rumen Radev, die zich verzet tegen sancties tegen Rusland en militaire steun aan Oekraïne, heeft de overwinning geclaimd in de...
 - [Vincent Kompany gaat voor meer prijzen met Bayern München: ‘We kunnen elke wedstrijd winnen’](https://www.ad.nl/voetbal/vincent-kompany-gaat-voor-meer-prijzen-met-bayern-munchen-we-kunnen-elke-wedstrijd-winnen~aa2103ab/)
@@ -35,8 +37,6 @@
   > Het voetbalweekend in Nederland stond in het teken van de finale van de Eurojackpot KNVB Beker. Die werd gewonnen door AZ, dat met een 5-1 zege op...
 - [AZ-trainer Leeroy Echteld is er eentje van de oude stempel: ‘Ik zeg het gewoon recht in je gezicht’](https://www.ad.nl/voetbal/az-trainer-leeroy-echteld-is-er-eentje-van-de-oude-stempel-ik-zeg-het-gewoon-recht-in-je-gezicht~a161f0c0/)
   > Dertien jaar moest AZ wachten op een prijs. Onder leiding van Leeroy Echteld lukte het eindelijk weer eens, na een zeer overtuigende KNVB-bekerfinale...
-- [Leeroy Echteld wil graag door bij AZ, naam van José Mourinho zingt rond bij Real Madrid](https://www.ad.nl/voetbal/leeroy-echteld-wil-graag-door-bij-az-naam-van-jose-mourinho-zingt-rond-bij-real-madrid~a35ea681/)
-  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
 
 ### Meest gelezen
 
