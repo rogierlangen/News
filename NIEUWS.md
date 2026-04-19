@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-04-2026 om 20:43*
+*Laatst bijgewerkt: 19-04-2026 om 21:40*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Ayoub Kharkhach wint Annie M.G. Schmidtprijs](https://nos.nl/l/2611168)
+  > Ayoub Kharkhach heeft de Annie M.G. Schmidtprijs gewonnen. Hij kreeg de prijs voor het beste Nederlandstalige theaterlied van het jaar voor zijn...
 - [Pro-Russische oud-president Radev stevent af op verkiezingszege Bulgarije](https://nos.nl/l/2611144)
   > De parlementsverkiezingen in Bulgarije lijken zoals verwacht uit te lopen op een overwinning voor de centrumlinkse partij Progressief Bulgarije van...
 - [Komende dagen veel zon en vrijwel droog, past in trend](https://nos.nl/l/2611143)
@@ -16,8 +18,6 @@
   > Twee jaar na de legalisering van wiet in Duitsland lijken de meeste zorgen van tegenstanders ongegrond. Uit eerste, voorlopige onderzoeksresultaten...
 - [Congo en rebellen sluiten akkoord over leveren van humanitaire hulp](https://nos.nl/l/2611127)
   > De Democratische Republiek Congo en de rebellengroepering M23 hebben een overeenkomst gesloten over het leveren van humanitaire hulp. Ook zullen...
-- [Acht kinderen gedood bij schietpartij in Louisiana na huiselijke ruzie](https://nos.nl/l/2611126)
-  > In de Amerikaanse staat Louisiana zijn zeker acht kinderen gedood bij een schietpartij. Volgens de politie waren de slachtoffers tussen de een en...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Pro-Russische Rumen Radev claimt verkiezingsoverwinning in Bulgarije](https://www.ad.nl/buitenland/pro-russische-rumen-radev-claimt-verkiezingsoverwinning-in-bulgarije~ac61c92b/)
+  > Voormalig president Rumen Radev, die zich verzet tegen sancties tegen Rusland en militaire steun aan Oekraïne, heeft de overwinning geclaimd in de...
+- [Vincent Kompany gaat voor meer prijzen met Bayern München: ‘We kunnen elke wedstrijd winnen’](https://www.ad.nl/voetbal/vincent-kompany-gaat-voor-meer-prijzen-met-bayern-munchen-we-kunnen-elke-wedstrijd-winnen~aa2103ab/)
+  > Bayern München is voor de 35ste keer in de clubgeschiedenis kampioen van Duitsland geworden. De ploeg van Vincent Kompany had na de nederlaag van...
 - [Voetbalpodcast | ‘Dik verdiende zege voor AZ en de keuze van Leeroy Echteld pakte goed uit’](https://www.ad.nl/voetbal/voetbalpodcast-dik-verdiende-zege-voor-az-en-de-keuze-van-leeroy-echteld-pakte-goed-uit~ac8603a9/)
   > Het voetbalweekend in Nederland stond in het teken van de finale van de Eurojackpot KNVB Beker. Die werd gewonnen door AZ, dat met een 5-1 zege op...
-- [AZ-trainer Leeroy Echteld: een vaderfiguur met het hart op de tong](https://www.ad.nl/voetbal/az-trainer-leeroy-echteld-een-vaderfiguur-met-het-hart-op-de-tong~a161f0c0/)
+- [AZ-trainer Leeroy Echteld is er eentje van de oude stempel: ‘Ik zeg het gewoon recht in je gezicht’](https://www.ad.nl/voetbal/az-trainer-leeroy-echteld-is-er-eentje-van-de-oude-stempel-ik-zeg-het-gewoon-recht-in-je-gezicht~a161f0c0/)
   > Dertien jaar moest AZ wachten op een prijs. Onder leiding van Leeroy Echteld lukte het eindelijk weer eens, na een zeer overtuigende KNVB-bekerfinale...
 - [Leeroy Echteld wil graag door bij AZ, naam van José Mourinho zingt rond bij Real Madrid](https://www.ad.nl/voetbal/leeroy-echteld-wil-graag-door-bij-az-naam-van-jose-mourinho-zingt-rond-bij-real-madrid~a35ea681/)
   > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
-- [Trump: ‘Iraans schip dat Amerikaanse blokkade probeerde te doorbreken beschoten en ingenomen’](https://www.ad.nl/buitenland/trump-iraans-schip-dat-amerikaanse-blokkade-probeerde-te-doorbreken-beschoten-en-ingenomen~ac528ac3/)
-  > De Amerikaanse marine heeft ‘een gat in de machinekamer’ geschoten van een onder Iraanse vlag varend vrachtschip. Dat schrijft Donald Trump op Truth...
-- [Auto van Jesy Nelson vol met medische spullen voor kinderen gestolen](https://www.ad.nl/show/auto-van-jesy-nelson-vol-met-medische-spullen-voor-kinderen-gestolen~a09ec442/)
-  > De auto van de Britse zangeres Jesy Nelson is gestolen. In de auto lagen medische hulpmiddelen voor haar tweeling, die lijdt aan een zeldzame...
 
 ### Meest gelezen
 
