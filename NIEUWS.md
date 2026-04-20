@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-04-2026 om 20:53*
+*Laatst bijgewerkt: 20-04-2026 om 21:52*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Tim Cook stopt na bijna vijftien jaar als directeur van Apple](https://nos.nl/l/2611365)
+  > Tim Cook stapt na deze zomer op als directeur van techgigant Apple. Hij wordt opgevolgd door John Ternus, die nu nog actief is als leidinggevende bij...
+- [Meerdere schoten nodig om ontsnapte koe te doden, keel uiteindelijk doorgesneden](https://nos.nl/l/2611364)
+  > Een koe die bij een slachthuis in de stad Groningen ontsnapte is meerdere keren door de politie beschoten en vervolgens de keel doorgesneden, meldt...
+- [FBI-directeur eist kwart miljard dollar na artikel over drankmisbruik](https://nos.nl/l/2611362)
+  > In de VS heeft FBI-directeur Kash Patel tijdschrift The Atlantic aangeklaagd. Hij eist een schadevergoeding van 250 miljoen dollar vanwege een...
 - [Man opent vuur bij Mexicaans tempelcomplex: 2 doden, 6 gewonden](https://nos.nl/l/2611357)
   > Een gewapende man heeft in het Mexicaanse tempelcomplex Teotihuacán het vuur geopend op bezoekers. Een vrouw werd gedood, zes anderen raakten gewond....
 - [Fabrikant en politie: rattengif in babyvoeding is poging tot afpersing](https://nos.nl/l/2611356)
   > Het rattengif dat de afgelopen dagen in Oostenrijk, Tsjechië en Slowakije in potjes babyvoeding is gevonden, heeft te maken met een poging...
-- [Prefab bouwen tegen de woningnood: de vraag is hoe snel dat kan](https://nos.nl/l/2611351)
-  > Als je de komende jaren van plan bent een nieuwbouwhuis te kopen, is de kans groot dat die uit de fabriek komt. Minister Boekholt-O'Sullivan van...
-- [Artiest D4vd aangeklaagd voor moord vanwege dood meisje in kofferbak](https://nos.nl/l/2611350)
-  > De Amerikaanse artiest D4vd is aangeklaagd voor de moord op een tienermeisje. Dat maakt het Amerikaanse Openbaar Ministerie vandaag bekend.
-       ...
-- [Zoöloog Desmond Morris (De Naakte Aap) overleden op 98-jarige leeftijd](https://nos.nl/l/2611349)
-  > De Britse zoöloog Desmond Morris is op 98-jarige leeftijd overleden. Als presentator en schrijver liet hij jarenlang het grote publiek nadenken over...
 
 ### Meest gelezen
 
@@ -28,8 +27,8 @@
 
 ### Laatste nieuws
 
-- [Apple-topman Tim Cook stapt op, wordt opgevolgd door John Ternus](https://www.ad.nl/tech/apple-topman-tim-cook-stapt-op-wordt-opgevolgd-door-john-ternus~aae6771c/)
-  > Tim Cook stopt als topman van Apple. Het Amerikaanse bedrijf meldt dat hij de komende maanden nog in functie blijft, maar vanaf september wordt...
+- [Apple zet koers naar AI-tijdperk: Tim Cook vertrekt, John Ternus wordt nieuwe ceo](https://www.ad.nl/tech/apple-zet-koers-naar-ai-tijdperk-tim-cook-vertrekt-john-ternus-wordt-nieuwe-ceo~aae6771c/)
+  > Tim Cook stopt als topman van Apple. Het Amerikaanse bedrijf meldt dat hij de komende maanden nog in functie blijft, maar vanaf september wordt hij...
 - [Krankzinnig scenario: FC Den Bosch kan vrijdag beter verliezen van ADO Den Haag om play-offs in te gaan](https://www.ad.nl/voetbal/krankzinnig-scenario-fc-den-bosch-kan-vrijdag-beter-verliezen-van-ado-den-haag-om-play-offs-in-te-gaan~a62fac09/)
   > FC Den Bosch heeft maandagavond in de inhaalwedstrijd tegen Jong FC Utrecht met 1-1 gelijkgespeeld. Dat betekent dat de Brabantse club als negende...
 - [Britt Dekker heeft familie-uitbreiding, Emma Kok laat zien wat er bij haar theatertour komt kijken](https://www.ad.nl/show/britt-dekker-heeft-familie-uitbreiding-emma-kok-laat-zien-wat-er-bij-haar-theatertour-komt-kijken~a99af07b/)
