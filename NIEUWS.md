@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-04-2026 om 15:18*
+*Laatst bijgewerkt: 20-04-2026 om 17:09*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Ruim twintig doden doordat bus van berg stort in noorden van India](https://nos.nl/l/2611335)
+  > In het door India bestuurde deel van de regio Kashmir is een fataal busongeluk gebeurd. Door onbekende oorzaak reed een passagiersbus van een berg....
+- [Buurtbewoners van doodgestoken meisje Blerick: 'Het was zo'n lief kind'](https://nos.nl/l/2611334)
+  > Wat zich precies heeft afgespeeld rond de dood van het meisje dat in het Venlose stadsdeel Blerick is doodgestoken, is nog onbekend. Buurtbewoners...
+- [Onbekenden vernielen bijenkasten van imker uit Joure voor zesde keer](https://nos.nl/l/2611328)
+  > Honderdduizenden dode bijen en veel materiële en financiële schade. Imker Peter Bruinsma-Speksnijder uit Joure is afgelopen weekend voor de zesde...
+- [Frankrijk wil Elon Musk ondervragen in onderzoek naar kinderporno en deepfakes op X](https://nos.nl/l/2611327)
+  > Franse openbaar aanklagers hebben Elon Musk en de voormalige ceo van X, Linda Yaccarino, uitgenodigd voor een "vrijwillig verhoor". Reden hiervoor is...
 - [Claim tegen Odido in de maak na datahack, zaak kan jaren voortslepen](https://nos.nl/l/2611325)
   > Een Nederlandse stichting die is opgericht door twee privacyorganisaties wil een massaclaim starten tegen Odido. De organisatie wil geld zien nadat...
-- [Brandstichting bij synagoge in Londen, twee jonge mannen aangehouden](https://nos.nl/l/2611318)
-  > De Britse politie heeft twee mannen aangehouden voor brandstichting in een synagoge in Londen. Het incident vond gisterochtend plaats. Er raakte...
-- [Podcast De Dag: de kerosine-crisis en hoe de oorlog het vliegverkeer treft](https://nos.nl/l/2611312)
-  > Het kabinet stelt een crisisplan in werking, omdat er meer brandstoftekorten worden verwacht door de oorlog in het Midden-Oosten. Het vliegverkeer...
-- [​​​​​​​Nieuw-Zeeland roept noodtoestand uit in hoofdstad na recordhoeveelheid regen](https://nos.nl/l/2611288)
-  > Nieuw-Zeeland heeft de noodtoestand uitgeroepen voor de hoofdstad Wellington en de omliggende regio. De stad kreeg vandaag een recordhoeveelheid van...
-- [Oorlog in Midden-Oosten brengt voedselzekerheid in delen van wereld in gevaar](https://nos.nl/l/2611260)
-  > De oorlog in het Midden-Oosten kan grote gevolgen hebben voor de voedselprijzen in delen van de wereld. Hoe langer de blokkade van de Straat van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De arts zegt dat je door mag gaan, maar Paul (41) kreeg oude leven niet terug na kanker](https://www.ad.nl/binnenland/de-arts-zegt-dat-je-door-mag-gaan-maar-paul-41-kreeg-oude-leven-niet-terug-na-kanker~aba350e0/)
-  > Terwijl vrienden genoten van het studentenleven, ging Paul Rhebergen (41) ziekenhuis in en uit. Op zijn 22ste kreeg hij acute leukemie. Hij genas,...
-- [FBI-baas Patel eist 250 miljoen dollar van tijdschrift om artikel over alcoholprobleem](https://www.ad.nl/buitenland/fbi-baas-patel-eist-250-miljoen-dollar-van-tijdschrift-om-artikel-over-alcoholprobleem~a68aafc4/)
-  > De baas van de Amerikaanse veiligheidsdienst FBI, Kash Patel, begint een smaadzaak tegen het tijdschrift The Atlantic en een journalist van dit blad,...
-- [Braziliaan­se triatlete (38) verdronken bij Ironman: ‘We hebben haar gewaarschuwd dat ze te zwak was’](https://www.ad.nl/sport/braziliaanse-triatlete-38-verdronken-bij-ironman-we-hebben-haar-gewaarschuwd-dat-ze-te-zwak-was~ae777483/)
-  > De Braziliaanse triatlete Mara Flavia Araújo (38) is om het leven gekomen tijdens de prestigieuze Ironman van Texas. Ze verdronk zaterdag tijdens het...
-- [Drie zwaargewonden bij botsing tussen vrachtwagen en auto’s op A16 bij Prinsenbeek](https://www.ad.nl/binnenland/drie-zwaargewonden-bij-botsing-tussen-vrachtwagen-en-autos-op-a16-bij-prinsenbeek~ab7ff71f/)
-  > Meerdere auto’s en een vrachtwagen zijn maandagmiddag gebotst op de A16 ter hoogte van Prinsenbeek. Drie mensen raakten hierbij zwaargewond. Twee...
-- [Wanneer staat je belastingteruggave op je rekening en vier andere vragen](https://www.ad.nl/geld/wanneer-staat-je-belastingteruggave-op-je-rekening-en-vier-andere-vragen~a0ff396e/)
-  > Heb jij je belastingaangifte al gedaan? Je hebt nog iets meer dan een week om die in te dienen. Geldredacteur Maartje Huijben beantwoordt vijf...
+- [Het grootste probleem is niet de hoge benzineprijs maar jaren van nietsdoen](https://www.ad.nl/commentaar/het-grootste-probleem-is-niet-de-hoge-benzineprijs-maar-jaren-van-nietsdoen~a24b4c61/)
+  > Het noodpakket van het kabinet om burgers en bedrijven te helpen met de hoge energieprijzen, krijgt weinig applaus. Toch is het goed dat wordt...
+- [F1 voert aanpassingen door om racen veiliger en spectaculairder te maken, voor Verstappen is dit slechts het begin](https://www.ad.nl/formule-1/f1-voert-aanpassingen-door-om-racen-veiliger-en-spectaculairder-te-maken-voor-verstappen-is-dit-slechts-het-begin~acb5e5f2/)
+  > Om de onvrede bij fans en coureurs weg te nemen, zijn alle F1-stakeholders vandaag tijdens een vergadering een aantal beperkte ‘verfijningen’...
+- [Hagi nieuwe bondscoach van Roemenië, Bournemouth presenteert opvolger van Iraola](https://www.ad.nl/voetbal/hagi-nieuwe-bondscoach-van-roemenie-bournemouth-presenteert-opvolger-van-iraola~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Staatsmedia Libanon: Israël valt zuiden aan met drones ondanks bestand](https://www.ad.nl/buitenland/staatsmedia-libanon-israel-valt-zuiden-aan-met-drones-ondanks-bestand~ac528ac3/)
+  > Israël heeft het zuiden van Libanon aangevallen met drones, melden Libanese staatsmedia. Er geldt momenteel een tien dagen durend bestand tussen de...
+- [Britse premier ontslaat topambtenaar nadat waarschuwing over Mandelson en Epstein werd achtergehouden](https://www.ad.nl/buitenland/britse-premier-ontslaat-topambtenaar-nadat-waarschuwing-over-mandelson-en-epstein-werd-achtergehouden~af416576/)
+  > De Britse premier Keir Starmer heeft het parlement ‘per ongeluk’ misleid over de aanstelling van Peter Mandelson als ambassadeur in de Verenigde...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘DNB zet stap naar Duitse Lidl-cloud’](https://fd.nl/tech-en-innovatie/1593935/dnb-zet-stap-naar-duitse-lidl-cloud)
-  > De Nederlandsche Bank (DNB) gaat volgens De Telegraaf in zee met het Duitse Schwarz Digits, de IT-tak van het moederconcern van supermarktketen Lidl.
-- [Vitol is de missers van zijn sterrenhandelaar alweer te boven](https://fd.nl/financiele-markten/1593859/vitol-is-de-missers-van-zijn-sterrenhandelaar-alweer-te-boven)
-  > Grondstoffenhandelaar Vitol verloor honderden miljoenen dollars toen de Iran-oorlog uitbrak, maar wist al snel te profiteren van de...
-- [Vrachtvervoer met elektrische trucks ‘bevalt goed’ maar is nog lang niet de norm](https://fd.nl/bedrijfsleven/1593931/vrachtvervoer-met-elektrische-trucks-bevalt-goed-maar-is-nog-lang-niet-de-norm)
-  > Bouwer van Europese laadstations Milence ziet dat elektrische vrachtwagens steeds goedkoper in het gebruik worden. Maar ‘groen’ vervoer heeft met...
-- [Eli Lilly neemt biotechbedrijf Kelonia over](https://fd.nl/financiele-markten/1593932/eli-lilly-neemt-biotechbedrijf-kelonia-over)
-  > De waarde van de deal kan oplopen tot $7 mrd.
-- [Snel denkende wiskundige moet ASML technologisch aan kop houden](https://fd.nl/bedrijfsleven/1593925/snel-denkende-wiskundige-moet-asml-technologisch-aan-kop-houden)
-  > Woensdag treedt Marco Pieters officieel toe tot de raad van bestuur van ASML. Als chief technology officer volgt de 49-jarige wiskundige een grote...
+- [Energiebedrijven vechten belasting op overwinst massaal aan](https://fd.nl/politiek/1593855/energiebedrijven-vechten-belasting-op-overwinst-massaal-aan)
+  > Minister Heinen waarschuwt dat nieuwe heffingen vanwege de hoge olie- en gasprijzen bij de rechter zouden kunnen sneuvelen.
+- [Starmer: ambtenaren hielden negatieve screening Mandelson bewust achter](https://fd.nl/politiek/1593863/starmer-ambtenaren-hielden-negatieve-screening-mandelson-bewust-achter)
+  > De Britse premier verdedigde zich maandag in het parlement voor het schandaal rond de benoeming van Peter Mandelson, dat grote schade blijft...
+- [Berlijn roept Russische ambassadeur op het matje na dreigement](https://fd.nl/politiek/1593862/berlijn-roept-russische-ambassadeur-op-het-matje-na-dreigement)
+  > Duitse regering na publicatie lijst met mogelijke militaire doelen: we laten ons niet intimideren.
+- [Oekraïense aanval op Russische oliehaven](https://fd.nl/politiek/1593860/oekraiense-aanval-op-russische-oliehaven)
+  > Infrastructuur voor olietransport is beschadigd geraakt.
+- [Musk komt niet opdagen bij verhoor door Franse justitie](https://fd.nl/tech-en-innovatie/1593936/musk-komt-niet-opdagen-bij-verhoor-door-franse-justitie)
+  > Het verhoor maakt deel uit van een Frans strafrechtelijk onderzoek naar Musks AI-bedrijf X en AI-chatbot Grok.
 
 ### Meest gelezen
 
