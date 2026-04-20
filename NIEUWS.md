@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-04-2026 om 17:09*
+*Laatst bijgewerkt: 20-04-2026 om 19:13*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Ruim twintig doden doordat bus van berg stort in noorden van India](https://nos.nl/l/2611335)
-  > In het door India bestuurde deel van de regio Kashmir is een fataal busongeluk gebeurd. Door onbekende oorzaak reed een passagiersbus van een berg....
-- [Buurtbewoners van doodgestoken meisje Blerick: 'Het was zo'n lief kind'](https://nos.nl/l/2611334)
-  > Wat zich precies heeft afgespeeld rond de dood van het meisje dat in het Venlose stadsdeel Blerick is doodgestoken, is nog onbekend. Buurtbewoners...
-- [Onbekenden vernielen bijenkasten van imker uit Joure voor zesde keer](https://nos.nl/l/2611328)
-  > Honderdduizenden dode bijen en veel materiële en financiële schade. Imker Peter Bruinsma-Speksnijder uit Joure is afgelopen weekend voor de zesde...
-- [Frankrijk wil Elon Musk ondervragen in onderzoek naar kinderporno en deepfakes op X](https://nos.nl/l/2611327)
-  > Franse openbaar aanklagers hebben Elon Musk en de voormalige ceo van X, Linda Yaccarino, uitgenodigd voor een "vrijwillig verhoor". Reden hiervoor is...
-- [Claim tegen Odido in de maak na datahack, zaak kan jaren voortslepen](https://nos.nl/l/2611325)
-  > Een Nederlandse stichting die is opgericht door twee privacyorganisaties wil een massaclaim starten tegen Odido. De organisatie wil geld zien nadat...
+- [Prefab bouwen tegen de woningnood: de vraag is hoe snel dat kan](https://nos.nl/l/2611351)
+  > Als je de komende jaren van plan bent een nieuwbouwhuis te kopen, is de kans groot dat die uit de fabriek komt. Minister Boekholt-O'Sullivan van...
+- [Artiest D4vd aangeklaagd voor moord vanwege dood meisje in kofferbak](https://nos.nl/l/2611350)
+  > De Amerikaanse artiest D4vd is aangeklaagd voor de moord op een tienermeisje. Dat maakt het Amerikaanse Openbaar Ministerie vandaag bekend.
+       ...
+- [Zoöloog Desmond Morris (De Naakte Aap) overleden op 98-jarige leeftijd](https://nos.nl/l/2611349)
+  > De Britse zoöloog Desmond Morris is op 98-jarige leeftijd overleden. Als presentator en schrijver liet hij jarenlang het grote publiek nadenken over...
+- [Waarschuwing voor erectiemiddelen na vondst gevaarlijke ingrediënten](https://nos.nl/l/2611348)
+  > Consumenten wordt streng afgeraden om vier soorten libidoverhogende middelen te kopen of gebruiken. Het gaat om LibiForMe, Mr Stiff, Night Longer...
+- [Gemengde reacties op steunmaatregelen kabinet om Iran-oorlog](https://nos.nl/l/2611346)
+  > Het steunpakket waarmee het kabinet reageert op de gestegen brandstofprijzen, leidt tot gemengde reacties. Het zit vol met gerichte maatregelen voor...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Het grootste probleem is niet de hoge benzineprijs maar jaren van nietsdoen](https://www.ad.nl/commentaar/het-grootste-probleem-is-niet-de-hoge-benzineprijs-maar-jaren-van-nietsdoen~a24b4c61/)
-  > Het noodpakket van het kabinet om burgers en bedrijven te helpen met de hoge energieprijzen, krijgt weinig applaus. Toch is het goed dat wordt...
-- [F1 voert aanpassingen door om racen veiliger en spectaculairder te maken, voor Verstappen is dit slechts het begin](https://www.ad.nl/formule-1/f1-voert-aanpassingen-door-om-racen-veiliger-en-spectaculairder-te-maken-voor-verstappen-is-dit-slechts-het-begin~acb5e5f2/)
-  > Om de onvrede bij fans en coureurs weg te nemen, zijn alle F1-stakeholders vandaag tijdens een vergadering een aantal beperkte ‘verfijningen’...
-- [Hagi nieuwe bondscoach van Roemenië, Bournemouth presenteert opvolger van Iraola](https://www.ad.nl/voetbal/hagi-nieuwe-bondscoach-van-roemenie-bournemouth-presenteert-opvolger-van-iraola~a35ea681/)
-  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
-- [Staatsmedia Libanon: Israël valt zuiden aan met drones ondanks bestand](https://www.ad.nl/buitenland/staatsmedia-libanon-israel-valt-zuiden-aan-met-drones-ondanks-bestand~ac528ac3/)
-  > Israël heeft het zuiden van Libanon aangevallen met drones, melden Libanese staatsmedia. Er geldt momenteel een tien dagen durend bestand tussen de...
-- [Britse premier ontslaat topambtenaar nadat waarschuwing over Mandelson en Epstein werd achtergehouden](https://www.ad.nl/buitenland/britse-premier-ontslaat-topambtenaar-nadat-waarschuwing-over-mandelson-en-epstein-werd-achtergehouden~af416576/)
-  > De Britse premier Keir Starmer heeft het parlement ‘per ongeluk’ misleid over de aanstelling van Peter Mandelson als ambassadeur in de Verenigde...
+- [President Erdogan belooft strengere vuurwapenregels na twee schietpartijen op scholen](https://www.ad.nl/buitenland/president-erdogan-belooft-strengere-vuurwapenregels-na-twee-schietpartijen-op-scholen~a1543936/)
+  > Turkije gaat de vuurwapenwetgeving aanscherpen na de schietpartijen op twee scholen in het land. Het gaat volgens president Recep Tayyip Erdogan...
+- [Zanger D4vd aangeklaagd voor moord op meisje dat in zijn kofferbak lag](https://www.ad.nl/show/zanger-d4vd-aangeklaagd-voor-moord-op-meisje-dat-in-zijn-kofferbak-lag~a2395b7c/)
+  > De Amerikaanse zanger D4vd is aangeklaagd voor de moord op een 14-jarig meisje. Dat heeft openbaar aanklager Nathan Hochman maandag bekendgemaakt....
+- [Links wil oliewinsten afsnoepen, maar dit is waarom het kabinet blijft weigeren](https://www.ad.nl/politiek/links-wil-oliewinsten-afsnoepen-maar-dit-is-waarom-het-kabinet-blijft-weigeren~a464de93e/)
+  > Worden oliemaatschappijen stinkend rijk door de hoge prijzen? En loopt de schatkist onderhand niet vol door btw-inkomsten op brandstof? Het kabinet...
+- [Twee jongens verstoren uitzending Eva Jinek: ‘Waar kunnen we hier ergens een drankje krijgen?’](https://www.ad.nl/show/twee-jongens-verstoren-uitzending-eva-jinek-waar-kunnen-we-hier-ergens-een-drankje-krijgen~ab22e3d9/)
+  > Twee jongens hebben maandagavond kortstondig de uitzending van Eva Jinek onderbroken op NPO 1. Tijdens het gesprek met Peter Pannekoek kwam het duo...
+- [Na 12 gebroken ribben, een gebroken nek en een mystieke ervaring: ‘Dit is te groot om alleen te dragen’](https://www.ad.nl/binnenland/na-12-gebroken-ribben-een-gebroken-nek-en-een-mystieke-ervaring-dit-is-te-groot-om-alleen-te-dragen~a141bca2/)
+  > Het paard heette Torpedo. Toen het op hol sloeg, bleek die naam angstaanjagend passend. Marianne Blankenstein overleefde het ongeluk ternauwernood en...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Energiebedrijven vechten belasting op overwinst massaal aan](https://fd.nl/politiek/1593855/energiebedrijven-vechten-belasting-op-overwinst-massaal-aan)
-  > Minister Heinen waarschuwt dat nieuwe heffingen vanwege de hoge olie- en gasprijzen bij de rechter zouden kunnen sneuvelen.
-- [Starmer: ambtenaren hielden negatieve screening Mandelson bewust achter](https://fd.nl/politiek/1593863/starmer-ambtenaren-hielden-negatieve-screening-mandelson-bewust-achter)
-  > De Britse premier verdedigde zich maandag in het parlement voor het schandaal rond de benoeming van Peter Mandelson, dat grote schade blijft...
-- [Berlijn roept Russische ambassadeur op het matje na dreigement](https://fd.nl/politiek/1593862/berlijn-roept-russische-ambassadeur-op-het-matje-na-dreigement)
-  > Duitse regering na publicatie lijst met mogelijke militaire doelen: we laten ons niet intimideren.
-- [Oekraïense aanval op Russische oliehaven](https://fd.nl/politiek/1593860/oekraiense-aanval-op-russische-oliehaven)
-  > Infrastructuur voor olietransport is beschadigd geraakt.
-- [Musk komt niet opdagen bij verhoor door Franse justitie](https://fd.nl/tech-en-innovatie/1593936/musk-komt-niet-opdagen-bij-verhoor-door-franse-justitie)
-  > Het verhoor maakt deel uit van een Frans strafrechtelijk onderzoek naar Musks AI-bedrijf X en AI-chatbot Grok.
+- [Werkgevers zien een thuiswerkplicht bij oliecrisis niet zitten](https://fd.nl/politiek/1593853/werkgevers-zien-een-thuiswerkplicht-bij-oliecrisis-niet-zitten)
+  > Een thuiswerkplicht is een van de mogelijke maatregelen bij brandstoftekorten volgens het landelijk crisisplan olie. Werkgeversorganisatie AWVN ziet...
+- [VS beginnen met terugbetalen importheffingen](https://fd.nl/bedrijfsleven/1593868/vs-beginnen-met-terugbetalen-importheffingen)
+  > Het Hooggerechtshof verklaarde die heffingen in februari onwettig. Bedrijven kunnen naar schatting ruim $166 mrd aan betaalde heffingen terugvorderen.
+- [Grote koerswinsten voor ontwikkelaars psychedelicatherapie](https://fd.nl/financiele-markten/1593867/grote-koerswinsten-voor-ontwikkelaars-psychedelicatherapie)
+  > In het weekend tekende de Amerikaanse president Donald Trump een decreet dat moet zorgen voor een snellere goedkeuring van de behandelingen.
+- [Geen kansengelijkheid, geen goed onderwijs](https://fd.nl/opinie/1593937/geen-kansengelijkheid-geen-goed-onderwijs)
+  > Het Nederlandse onderwijs moet de grote gelijkmaker zijn. Dat is het nog steeds niet. Ouders, betrokken instanties en de politiek moeten blijven...
+- [ECB-baas Lagarde: impact oorlog nog lastig te duiden](https://fd.nl/financiele-markten/1593865/ecb-baas-lagarde-impact-oorlog-nog-lastig-te-duiden)
+  > Baas ECB ziet te veel onzekerheid rond Iran-oorlog om al iets over gevolgen voor het rentebeleid te kunnen zeggen.
 
 ### Meest gelezen
 
