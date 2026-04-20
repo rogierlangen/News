@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-04-2026 om 19:13*
+*Laatst bijgewerkt: 20-04-2026 om 20:53*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Man opent vuur bij Mexicaans tempelcomplex: 2 doden, 6 gewonden](https://nos.nl/l/2611357)
+  > Een gewapende man heeft in het Mexicaanse tempelcomplex Teotihuacán het vuur geopend op bezoekers. Een vrouw werd gedood, zes anderen raakten gewond....
+- [Fabrikant en politie: rattengif in babyvoeding is poging tot afpersing](https://nos.nl/l/2611356)
+  > Het rattengif dat de afgelopen dagen in Oostenrijk, Tsjechië en Slowakije in potjes babyvoeding is gevonden, heeft te maken met een poging...
 - [Prefab bouwen tegen de woningnood: de vraag is hoe snel dat kan](https://nos.nl/l/2611351)
   > Als je de komende jaren van plan bent een nieuwbouwhuis te kopen, is de kans groot dat die uit de fabriek komt. Minister Boekholt-O'Sullivan van...
 - [Artiest D4vd aangeklaagd voor moord vanwege dood meisje in kofferbak](https://nos.nl/l/2611350)
@@ -15,10 +19,6 @@
        ...
 - [Zoöloog Desmond Morris (De Naakte Aap) overleden op 98-jarige leeftijd](https://nos.nl/l/2611349)
   > De Britse zoöloog Desmond Morris is op 98-jarige leeftijd overleden. Als presentator en schrijver liet hij jarenlang het grote publiek nadenken over...
-- [Waarschuwing voor erectiemiddelen na vondst gevaarlijke ingrediënten](https://nos.nl/l/2611348)
-  > Consumenten wordt streng afgeraden om vier soorten libidoverhogende middelen te kopen of gebruiken. Het gaat om LibiForMe, Mr Stiff, Night Longer...
-- [Gemengde reacties op steunmaatregelen kabinet om Iran-oorlog](https://nos.nl/l/2611346)
-  > Het steunpakket waarmee het kabinet reageert op de gestegen brandstofprijzen, leidt tot gemengde reacties. Het zit vol met gerichte maatregelen voor...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [President Erdogan belooft strengere vuurwapenregels na twee schietpartijen op scholen](https://www.ad.nl/buitenland/president-erdogan-belooft-strengere-vuurwapenregels-na-twee-schietpartijen-op-scholen~a1543936/)
-  > Turkije gaat de vuurwapenwetgeving aanscherpen na de schietpartijen op twee scholen in het land. Het gaat volgens president Recep Tayyip Erdogan...
-- [Zanger D4vd aangeklaagd voor moord op meisje dat in zijn kofferbak lag](https://www.ad.nl/show/zanger-d4vd-aangeklaagd-voor-moord-op-meisje-dat-in-zijn-kofferbak-lag~a2395b7c/)
-  > De Amerikaanse zanger D4vd is aangeklaagd voor de moord op een 14-jarig meisje. Dat heeft openbaar aanklager Nathan Hochman maandag bekendgemaakt....
-- [Links wil oliewinsten afsnoepen, maar dit is waarom het kabinet blijft weigeren](https://www.ad.nl/politiek/links-wil-oliewinsten-afsnoepen-maar-dit-is-waarom-het-kabinet-blijft-weigeren~a464de93e/)
-  > Worden oliemaatschappijen stinkend rijk door de hoge prijzen? En loopt de schatkist onderhand niet vol door btw-inkomsten op brandstof? Het kabinet...
-- [Twee jongens verstoren uitzending Eva Jinek: ‘Waar kunnen we hier ergens een drankje krijgen?’](https://www.ad.nl/show/twee-jongens-verstoren-uitzending-eva-jinek-waar-kunnen-we-hier-ergens-een-drankje-krijgen~ab22e3d9/)
-  > Twee jongens hebben maandagavond kortstondig de uitzending van Eva Jinek onderbroken op NPO 1. Tijdens het gesprek met Peter Pannekoek kwam het duo...
-- [Na 12 gebroken ribben, een gebroken nek en een mystieke ervaring: ‘Dit is te groot om alleen te dragen’](https://www.ad.nl/binnenland/na-12-gebroken-ribben-een-gebroken-nek-en-een-mystieke-ervaring-dit-is-te-groot-om-alleen-te-dragen~a141bca2/)
-  > Het paard heette Torpedo. Toen het op hol sloeg, bleek die naam angstaanjagend passend. Marianne Blankenstein overleefde het ongeluk ternauwernood en...
+- [Apple-topman Tim Cook stapt op, wordt opgevolgd door John Ternus](https://www.ad.nl/tech/apple-topman-tim-cook-stapt-op-wordt-opgevolgd-door-john-ternus~aae6771c/)
+  > Tim Cook stopt als topman van Apple. Het Amerikaanse bedrijf meldt dat hij de komende maanden nog in functie blijft, maar vanaf september wordt...
+- [Krankzinnig scenario: FC Den Bosch kan vrijdag beter verliezen van ADO Den Haag om play-offs in te gaan](https://www.ad.nl/voetbal/krankzinnig-scenario-fc-den-bosch-kan-vrijdag-beter-verliezen-van-ado-den-haag-om-play-offs-in-te-gaan~a62fac09/)
+  > FC Den Bosch heeft maandagavond in de inhaalwedstrijd tegen Jong FC Utrecht met 1-1 gelijkgespeeld. Dat betekent dat de Brabantse club als negende...
+- [Britt Dekker heeft familie-uitbreiding, Emma Kok laat zien wat er bij haar theatertour komt kijken](https://www.ad.nl/show/britt-dekker-heeft-familie-uitbreiding-emma-kok-laat-zien-wat-er-bij-haar-theatertour-komt-kijken~a99af07b/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Abdi Nageeye voelt opluchting na 21ste plek in Boston, ruim achter recordtijd van winnaar John Korir](https://www.ad.nl/andere-sporten/abdi-nageeye-voelt-opluchting-na-21ste-plek-in-boston-ruim-achter-recordtijd-van-winnaar-john-korir~ac4d6610/)
+  > Geloof het of niet, voor Abdi Nageeye voelde zijn 21ste plek in de Boston Marathon als een bevrijding. Want na maanden tobben met hamstringklachten...
+- [Stel in Kopen zonder kijken heeft budget van ruim negen ton, maar makelaar Alex worstelt met hun eisen](https://www.ad.nl/show/stel-in-kopen-zonder-kijken-heeft-budget-van-ruim-negen-ton-maar-makelaar-alex-worstelt-met-hun-eisen~a474479c/)
+  > Een budget van ruim negen ton is geen garantie voor een simpele zoektocht naar een nieuwe woning. Dat ondervonden Kim (32) en Wilko (31) maandag in...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Wall Street na rally weer in het rood](https://fd.nl/financiele-markten/1593962/wall-street-na-rally-weer-in-het-rood)
+  > De oorlog in Iran lijkt minder snel opgelost te worden dan verwacht. Dat drukte de koersen op Wall Street.
+- [Groep Markuszower verder als De Nederlandse Alliantie](https://fd.nl/politiek/1593993/groep-markuszower-verder-als-de-nederlandse-alliantie)
+  > De groep, nu aangevoerd door Gidi Markuszower, is een afsplitsing van de PVV van Geert Wilders.
 - [Werkgevers zien een thuiswerkplicht bij oliecrisis niet zitten](https://fd.nl/politiek/1593853/werkgevers-zien-een-thuiswerkplicht-bij-oliecrisis-niet-zitten)
   > Een thuiswerkplicht is een van de mogelijke maatregelen bij brandstoftekorten volgens het landelijk crisisplan olie. Werkgeversorganisatie AWVN ziet...
 - [VS beginnen met terugbetalen importheffingen](https://fd.nl/bedrijfsleven/1593868/vs-beginnen-met-terugbetalen-importheffingen)
   > Het Hooggerechtshof verklaarde die heffingen in februari onwettig. Bedrijven kunnen naar schatting ruim $166 mrd aan betaalde heffingen terugvorderen.
 - [Grote koerswinsten voor ontwikkelaars psychedelicatherapie](https://fd.nl/financiele-markten/1593867/grote-koerswinsten-voor-ontwikkelaars-psychedelicatherapie)
   > In het weekend tekende de Amerikaanse president Donald Trump een decreet dat moet zorgen voor een snellere goedkeuring van de behandelingen.
-- [Geen kansengelijkheid, geen goed onderwijs](https://fd.nl/opinie/1593937/geen-kansengelijkheid-geen-goed-onderwijs)
-  > Het Nederlandse onderwijs moet de grote gelijkmaker zijn. Dat is het nog steeds niet. Ouders, betrokken instanties en de politiek moeten blijven...
-- [ECB-baas Lagarde: impact oorlog nog lastig te duiden](https://fd.nl/financiele-markten/1593865/ecb-baas-lagarde-impact-oorlog-nog-lastig-te-duiden)
-  > Baas ECB ziet te veel onzekerheid rond Iran-oorlog om al iets over gevolgen voor het rentebeleid te kunnen zeggen.
 
 ### Meest gelezen
 
