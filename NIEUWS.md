@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-04-2026 om 21:52*
+*Laatst bijgewerkt: 20-04-2026 om 22:50*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [LIVE VS | Minister van Arbeid stapt uit kabinet Trump, derde vrouw in enkele weken tijd](https://www.ad.nl/buitenland/live-vs-minister-van-arbeid-stapt-uit-kabinet-trump-derde-vrouw-in-enkele-weken-tijd~ae67dd9c/)
+  > De Amerikaanse minister van Arbeid, Lori Chavez-DeRemer, stapt uit de regering van president Donald Trump. Ze is al de derde vrouw die verdwijnt uit...
+- [Voetbalpodcast | ‘Als volger zou ik het leuk vinden als de kleurrijke Leeroy Echteld trainer blijft bij AZ’](https://www.ad.nl/voetbal/voetbalpodcast-als-volger-zou-ik-het-leuk-vinden-als-de-kleurrijke-leeroy-echteld-trainer-blijft-bij-az~ac8603a9/)
+  > Wie wordt volgend seizoen de trainer van AZ? Moet je door met de trainer die de KNVB-beker won? Of moet je kiezen voor een fris nieuw gezicht?
+- [Scholen slaan alarm om dakloze leerlingen: ‘Kinderen gaan eraan kapot’](https://www.ad.nl/binnenland/scholen-slaan-alarm-om-dakloze-leerlingen-kinderen-gaan-eraan-kapot~a72175cc/)
+  > Scholen vragen steeds vaker hulp voor dak- en thuisloze leerlingen. Onderwijzers zien leerlingen lijden onder de woningnood en slaan alarm. Dat...
+- [Den Bosch-keeper over bizar scenario op laatste speeldag: ‘Het zit niet in mij om ballen door te laten gaan’](https://www.ad.nl/voetbal/den-bosch-keeper-over-bizar-scenario-op-laatste-speeldag-het-zit-niet-in-mij-om-ballen-door-te-laten-gaan~a47422e0/)
+  > FC Den Bosch kan zich gaan opmaken voor een bijzondere wedstrijd, vrijdagavond thuis tegen kampioen ADO Den Haag in de laatste speelronde van de...
 - [Apple zet koers naar AI-tijdperk: Tim Cook vertrekt, John Ternus wordt nieuwe ceo](https://www.ad.nl/tech/apple-zet-koers-naar-ai-tijdperk-tim-cook-vertrekt-john-ternus-wordt-nieuwe-ceo~aae6771c/)
-  > Tim Cook stopt als topman van Apple. Het Amerikaanse bedrijf meldt dat hij de komende maanden nog in functie blijft, maar vanaf september wordt hij...
-- [Krankzinnig scenario: FC Den Bosch kan vrijdag beter verliezen van ADO Den Haag om play-offs in te gaan](https://www.ad.nl/voetbal/krankzinnig-scenario-fc-den-bosch-kan-vrijdag-beter-verliezen-van-ado-den-haag-om-play-offs-in-te-gaan~a62fac09/)
-  > FC Den Bosch heeft maandagavond in de inhaalwedstrijd tegen Jong FC Utrecht met 1-1 gelijkgespeeld. Dat betekent dat de Brabantse club als negende...
-- [Britt Dekker heeft familie-uitbreiding, Emma Kok laat zien wat er bij haar theatertour komt kijken](https://www.ad.nl/show/britt-dekker-heeft-familie-uitbreiding-emma-kok-laat-zien-wat-er-bij-haar-theatertour-komt-kijken~a99af07b/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Abdi Nageeye voelt opluchting na 21ste plek in Boston, ruim achter recordtijd van winnaar John Korir](https://www.ad.nl/andere-sporten/abdi-nageeye-voelt-opluchting-na-21ste-plek-in-boston-ruim-achter-recordtijd-van-winnaar-john-korir~ac4d6610/)
-  > Geloof het of niet, voor Abdi Nageeye voelde zijn 21ste plek in de Boston Marathon als een bevrijding. Want na maanden tobben met hamstringklachten...
-- [Stel in Kopen zonder kijken heeft budget van ruim negen ton, maar makelaar Alex worstelt met hun eisen](https://www.ad.nl/show/stel-in-kopen-zonder-kijken-heeft-budget-van-ruim-negen-ton-maar-makelaar-alex-worstelt-met-hun-eisen~a474479c/)
-  > Een budget van ruim negen ton is geen garantie voor een simpele zoektocht naar een nieuwe woning. Dat ondervonden Kim (32) en Wilko (31) maandag in...
+  > Tim Cook stopt als topman van Apple. Het Amerikaanse bedrijf meldt dat hij de komende maanden nog in functie blijft, maar vanaf september wordt...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Wall Street na rally weer in het rood](https://fd.nl/financiele-markten/1593962/wall-street-na-rally-weer-in-het-rood)
-  > De oorlog in Iran lijkt minder snel opgelost te worden dan verwacht. Dat drukte de koersen op Wall Street.
-- [Groep Markuszower verder als De Nederlandse Alliantie](https://fd.nl/politiek/1593993/groep-markuszower-verder-als-de-nederlandse-alliantie)
-  > De groep, nu aangevoerd door Gidi Markuszower, is een afsplitsing van de PVV van Geert Wilders.
-- [Werkgevers zien een thuiswerkplicht bij oliecrisis niet zitten](https://fd.nl/politiek/1593853/werkgevers-zien-een-thuiswerkplicht-bij-oliecrisis-niet-zitten)
-  > Een thuiswerkplicht is een van de mogelijke maatregelen bij brandstoftekorten volgens het landelijk crisisplan olie. Werkgeversorganisatie AWVN ziet...
-- [VS beginnen met terugbetalen importheffingen](https://fd.nl/bedrijfsleven/1593868/vs-beginnen-met-terugbetalen-importheffingen)
-  > Het Hooggerechtshof verklaarde die heffingen in februari onwettig. Bedrijven kunnen naar schatting ruim $166 mrd aan betaalde heffingen terugvorderen.
-- [Grote koerswinsten voor ontwikkelaars psychedelicatherapie](https://fd.nl/financiele-markten/1593867/grote-koerswinsten-voor-ontwikkelaars-psychedelicatherapie)
-  > In het weekend tekende de Amerikaanse president Donald Trump een decreet dat moet zorgen voor een snellere goedkeuring van de behandelingen.
+- [Voorkennis](https://fd.nl/opinie/1593941/voorkennis)
+  > Wist ene ‘romanticpaul’ meer toen hij op de goksite Polymarket flink begon in te zetten op de verloving van Taylor Swift?
+- [God, Rome en het Witte Huis](https://fd.nl/opinie/1593847/god-rome-en-het-witte-huis)
+  > Een Amerikaanse president die openlijk de paus aanvalt: zelfs in tijden van oorlog en abortusruzies bleef de toon ooit respectvol. Tot nu.
+- [Econoom Brad Setser: ‘Europa heeft een Trump nodig, maar dan slimmer en gerichter’](https://fd.nl/economie/1593798/econoom-brad-setser-europa-heeft-een-trump-nodig-maar-dan-slimmer-en-gerichter)
+  > Hoogwaardige, hyperconcurrerende Chinese exporten bedreigen de Europese auto-industrie, zegt de Amerikaanse econoom Brad Setser. Tijd voor actie,...
+- [Vrees voor meer beleggingsfraude door versoepeling beursregels mkb](https://fd.nl/financiele-markten/1592819/vrees-voor-meer-beleggingsfraude-door-versoepeling-beursregels-mkb)
+  > Minister Heinen versoepelt de regels voor mkb-bedrijven die de kapitaalmarkt opgaan. Daardoor lopen beleggers in kleine bedrijven straks beduidend...
+- [Personalia dinsdag 21 april](https://fd.nl/bedrijfsleven/1593929/personalia-dinsdag-21-april)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
