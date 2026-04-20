@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-04-2026 om 13:52*
+*Laatst bijgewerkt: 20-04-2026 om 15:18*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Claim tegen Odido in de maak na datahack, zaak kan jaren voortslepen](https://nos.nl/l/2611325)
+  > Een Nederlandse stichting die is opgericht door twee privacyorganisaties wil een massaclaim starten tegen Odido. De organisatie wil geld zien nadat...
 - [Brandstichting bij synagoge in Londen, twee jonge mannen aangehouden](https://nos.nl/l/2611318)
   > De Britse politie heeft twee mannen aangehouden voor brandstichting in een synagoge in Londen. Het incident vond gisterochtend plaats. Er raakte...
 - [Podcast De Dag: de kerosine-crisis en hoe de oorlog het vliegverkeer treft](https://nos.nl/l/2611312)
   > Het kabinet stelt een crisisplan in werking, omdat er meer brandstoftekorten worden verwacht door de oorlog in het Midden-Oosten. Het vliegverkeer...
 - [​​​​​​​Nieuw-Zeeland roept noodtoestand uit in hoofdstad na recordhoeveelheid regen](https://nos.nl/l/2611288)
   > Nieuw-Zeeland heeft de noodtoestand uitgeroepen voor de hoofdstad Wellington en de omliggende regio. De stad kreeg vandaag een recordhoeveelheid van...
-- [Oorlog in Midden-Oosten kan voedselzekerheid in delen van wereld in gevaar brengen](https://nos.nl/l/2611260)
+- [Oorlog in Midden-Oosten brengt voedselzekerheid in delen van wereld in gevaar](https://nos.nl/l/2611260)
   > De oorlog in het Midden-Oosten kan grote gevolgen hebben voor de voedselprijzen in delen van de wereld. Hoe langer de blokkade van de Straat van...
-- [Grammofoonmuseum ontdekt stokoude opname van het Wilhelmus](https://nos.nl/l/2611246)
-  > Het Nationaal Grammofoonmuseum in Nieuwleusen heeft een zeldzame wasrolopname ontdekt van het Wilhelmus uit 1905. Het volkslied werd gespeeld door de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘2 cent extra kilometervergoeding lijkt weinig, maar is veel lucratiever dan je denkt’](https://www.ad.nl/binnenland/2-cent-extra-kilometervergoeding-lijkt-weinig-maar-is-veel-lucratiever-dan-je-denkt~a10c0e9e/)
-  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag: verhoging van de kilometervergoeding? Ik vind het ov een prima alternatief.
-- [Waarom Ajax door de bekerwinst van AZ nóg meer moet vrezen voor spelen van play-offs om Europees voetbal](https://www.ad.nl/voetbal/waarom-ajax-door-de-bekerwinst-van-az-nog-meer-moet-vrezen-voor-spelen-van-play-offs-om-europees-voetbal~a740f4ee/)
-  > Dat AZ de Eurojackpot KNVB Beker heeft gewonnen, kan weleens zeer ongunstig uitpakken voor Ajax. De Amsterdammers staan momenteel vijfde in de...
-- [Pakistan voert afzonderlijke gesprekken met VS en Iran, Qatar laat weer buitenlandse vliegtuigen toe](https://www.ad.nl/buitenland/pakistan-voert-afzonderlijke-gesprekken-met-vs-en-iran-qatar-laat-weer-buitenlandse-vliegtuigen-toe~ac528ac3/)
-  > De Pakistaanse minister van Binnenlandse Zaken heeft twee aparte gesprekken gevoerd met diplomatieke vertegenwoordigers van Iran en de Verenigde...
-- [Odido-claim slaagt 'hoogstwaarschijnlijk', volgens expert: 'Het oogt heel professioneel'](https://www.ad.nl/tech/odido-claim-slaagt-hoogstwaarschijnlijk-volgens-expert-het-oogt-heel-professioneel~aacc187f/)
-  > Er komt een massaclaim tegen Odido, maar dat betekent niet dat je als gedupeerde morgen al je geld hebt. Dit soort procedures duren vaak vele jaren....
-- [Vader Amy Winehouse verliest rechtszaak tegen twee vriendinnen van dochter over kleding](https://www.ad.nl/show/vader-amy-winehouse-verliest-rechtszaak-tegen-twee-vriendinnen-van-dochter-over-kleding~abc7104b/)
-  > Mitch Winehouse heeft een rechtszaak verloren tegen twee vriendinnen van zijn overleden dochter Amy Winehouse. Dat meldt persbureau AFP.
+- [De arts zegt dat je door mag gaan, maar Paul (41) kreeg oude leven niet terug na kanker](https://www.ad.nl/binnenland/de-arts-zegt-dat-je-door-mag-gaan-maar-paul-41-kreeg-oude-leven-niet-terug-na-kanker~aba350e0/)
+  > Terwijl vrienden genoten van het studentenleven, ging Paul Rhebergen (41) ziekenhuis in en uit. Op zijn 22ste kreeg hij acute leukemie. Hij genas,...
+- [FBI-baas Patel eist 250 miljoen dollar van tijdschrift om artikel over alcoholprobleem](https://www.ad.nl/buitenland/fbi-baas-patel-eist-250-miljoen-dollar-van-tijdschrift-om-artikel-over-alcoholprobleem~a68aafc4/)
+  > De baas van de Amerikaanse veiligheidsdienst FBI, Kash Patel, begint een smaadzaak tegen het tijdschrift The Atlantic en een journalist van dit blad,...
+- [Braziliaan­se triatlete (38) verdronken bij Ironman: ‘We hebben haar gewaarschuwd dat ze te zwak was’](https://www.ad.nl/sport/braziliaanse-triatlete-38-verdronken-bij-ironman-we-hebben-haar-gewaarschuwd-dat-ze-te-zwak-was~ae777483/)
+  > De Braziliaanse triatlete Mara Flavia Araújo (38) is om het leven gekomen tijdens de prestigieuze Ironman van Texas. Ze verdronk zaterdag tijdens het...
+- [Drie zwaargewonden bij botsing tussen vrachtwagen en auto’s op A16 bij Prinsenbeek](https://www.ad.nl/binnenland/drie-zwaargewonden-bij-botsing-tussen-vrachtwagen-en-autos-op-a16-bij-prinsenbeek~ab7ff71f/)
+  > Meerdere auto’s en een vrachtwagen zijn maandagmiddag gebotst op de A16 ter hoogte van Prinsenbeek. Drie mensen raakten hierbij zwaargewond. Twee...
+- [Wanneer staat je belastingteruggave op je rekening en vier andere vragen](https://www.ad.nl/geld/wanneer-staat-je-belastingteruggave-op-je-rekening-en-vier-andere-vragen~a0ff396e/)
+  > Heb jij je belastingaangifte al gedaan? Je hebt nog iets meer dan een week om die in te dienen. Geldredacteur Maartje Huijben beantwoordt vijf...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [VS keren terug in Afrikaanse aidsbestrijding in ruil voor mineralen en data](https://fd.nl/samenleving/1592810/vs-keren-terug-in-afrikaanse-aidsbestrijding-maar-willen-mineralen-en-data-terug)
-  > Zuid-Afrika zoekt naar alternatieve geldbronnen nu Trump vorig jaar het aidsfonds heeft ontmanteld. De VS bieden nu opnieuw hulp aan maar willen daar...
-- [‘Chinese Netflix’: binnen 5 jaar meeste content gemaakt met AI](https://fd.nl/tech-en-innovatie/1593857/chinese-netflix-binnen-5-jaar-meeste-content-gemaakt-met-ai)
-  > Het Chinese streamingbedrijf iQiyi verwacht dat kunstmatige intelligentie binnen vijf jaar het grootste deel van zijn films en series produceert.
-- [RIVM: verbod op filtersigaret goed voor milieu, geen gezondheidsschade](https://fd.nl/samenleving/1593930/rivm-verbod-op-filtersigaret-goed-voor-milieu-geen-gezondheidsschade)
-  > Een verbod op filters in sigaretten zou de hoeveelheid microplastics in het milieu verminderen, zonder dat rokers daar gezondheidsnadeel van...
-- [Veel meer klachten over financiële dienstverleners bij Kifid](https://fd.nl/financiele-markten/1593928/veel-meer-klachten-over-financiele-dienstverleners-bij-kifid)
-  > Klachteninstituut Kifid ontving vorig jaar 30% meer klachten. Meer dan de helft van alle klachten werd niet in behandeling genomen.
-- [Amsterdams Fairphone groeit hard en profiteert van geopolitiek rumoer](https://fd.nl/tech-en-innovatie/1593926/amsterdams-fairphone-groeit-hard-en-profiteert-van-geopolitiek-rumoer)
-  > Het bedrijf levert een duurzaam geproduceerde telefoon en zag de verkopen met 42% stijgen. De groeiende voorkeur voor Europese technologie hielp...
+- [‘DNB zet stap naar Duitse Lidl-cloud’](https://fd.nl/tech-en-innovatie/1593935/dnb-zet-stap-naar-duitse-lidl-cloud)
+  > De Nederlandsche Bank (DNB) gaat volgens De Telegraaf in zee met het Duitse Schwarz Digits, de IT-tak van het moederconcern van supermarktketen Lidl.
+- [Vitol is de missers van zijn sterrenhandelaar alweer te boven](https://fd.nl/financiele-markten/1593859/vitol-is-de-missers-van-zijn-sterrenhandelaar-alweer-te-boven)
+  > Grondstoffenhandelaar Vitol verloor honderden miljoenen dollars toen de Iran-oorlog uitbrak, maar wist al snel te profiteren van de...
+- [Vrachtvervoer met elektrische trucks ‘bevalt goed’ maar is nog lang niet de norm](https://fd.nl/bedrijfsleven/1593931/vrachtvervoer-met-elektrische-trucks-bevalt-goed-maar-is-nog-lang-niet-de-norm)
+  > Bouwer van Europese laadstations Milence ziet dat elektrische vrachtwagens steeds goedkoper in het gebruik worden. Maar ‘groen’ vervoer heeft met...
+- [Eli Lilly neemt biotechbedrijf Kelonia over](https://fd.nl/financiele-markten/1593932/eli-lilly-neemt-biotechbedrijf-kelonia-over)
+  > De waarde van de deal kan oplopen tot $7 mrd.
+- [Snel denkende wiskundige moet ASML technologisch aan kop houden](https://fd.nl/bedrijfsleven/1593925/snel-denkende-wiskundige-moet-asml-technologisch-aan-kop-houden)
+  > Woensdag treedt Marco Pieters officieel toe tot de raad van bestuur van ASML. Als chief technology officer volgt de 49-jarige wiskundige een grote...
 
 ### Meest gelezen
 
