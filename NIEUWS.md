@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-04-2026 om 03:17*
+*Laatst bijgewerkt: 21-04-2026 om 06:04*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Zanger D4vd zegt onschuldig te zijn in zaak rond dood meisje in kofferbak](https://nos.nl/l/2611381)
+  > Zanger D4vd heeft in Los Angeles gezegd onschuldig te zijn in de zaak rond de dood van de 14-jarige Celeste Rivas Hernandez.
+        D4vd verscheen...
+- [Mogelijk verbod op bestrijdingsmiddelen met PFAS: vrees voor aardappelziekte](https://nos.nl/l/2611376)
+  > Akkers vol aardappelen worden waarschijnlijk minder vanzelfsprekend in Nederland, terwijl ze economisch belangrijk zijn voor akkerbouwbedrijven. De...
+- [Spannende dag voor politiek Den Haag: gaan asielwetten het halen of niet?](https://nos.nl/l/2611375)
+  > Halen de asielwetten van oud PVV-minister Faber de eindstreep? De discussies over de twee wetten houden de politiek al lange tijd bezig maar nu spant...
+- [Wekdienst 21/4: Eerste Kamer stemt over asielwetten • AZ gehuldigd in Alkmaar](https://nos.nl/l/2611374)
+  > Goedemorgen! De Eerste Kamer buigt zich vandaag over twee asielwetten en de strafbaarstelling van illegaliteit. En in Alkmaar wordt bekerwinnaar AZ...
 - [Opnieuw doden na Israëlische aanvallen in Gaza](https://nos.nl/l/2611371)
   > Bij Israëlische aanvallen in Gaza zijn gisteren zeker vijf Palestijnen gedood, melden Palestijnse autoriteiten. De slachtoffers vielen op meerdere...
-- [Blue Origin moet raketten voorlopig aan grond houden na mislukte satellietlancering](https://nos.nl/l/2611370)
-  > De nieuwste raket van ruimtebedrijf Blue Origin moet van de Amerikaanse luchtvaartautoriteit FAA voorlopig aan de grond blijven. Het bedrijf van...
-- [Wilde staking in Belgische plaats Bredene na mishandeling van buschauffeur](https://nos.nl/l/2611369)
-  > In de Belgische kustplaats Bredene hebben alle buschauffeurs spontaan het werk stilgelegd nadat een van de buschauffeurs een kopstoot kreeg van een...
-- [ME ingezet in Loosdrecht bij demonstratie tegen komst azc](https://nos.nl/l/2611368)
-  > De politie heeft gisteravond het gebied rond het gemeentehuis in Loosdrecht ontruimd. Dat gebeurde tijdens een demonstratie tegen de komst van een...
-- [Tim Cook stopt na bijna vijftien jaar als directeur van Apple](https://nos.nl/l/2611365)
-  > Tim Cook stapt na deze zomer op als directeur van techgigant Apple. Hij wordt opgevolgd door John Ternus, die nu nog actief is als leidinggevende bij...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Artsen schrikken van proef die aantal wurgingen in kaart brengt: ‘Echt heel veel’](https://www.ad.nl/binnenland/artsen-schrikken-van-proef-die-aantal-wurgingen-in-kaart-brengt-echt-heel-veel~afffc6e4/)
-  > Een schrikbarend aantal vrouwen blijkt dagelijks het slachtoffer te worden van wurging. Voor het eerst hebben forensisch artsen in kaart gebracht hoe...
-- [Man schiet op toeristen bij piramides van Teotihuacán in Mexico: vrouw gedood, dertien gewonden](https://www.ad.nl/buitenland/man-schiet-op-toeristen-bij-piramides-van-teotihuacan-in-mexico-vrouw-gedood-dertien-gewonden~a11395a2/)
-  > Bij de historische piramides in de oude Mexicaanse stad Teotihuacán heeft een dodelijke schietpartij plaatsgevonden. De schutter doodde een Canadese...
-- [Nederlander tankt toch niet massaal over de grens: ‘Effect veel kleiner dan gedacht’](https://www.ad.nl/binnenland/nederlander-tankt-toch-niet-massaal-over-de-grens-effect-veel-kleiner-dan-gedacht~a55f8b39/)
-  > Nederlanders klagen steen en been over de hoge brandstofprijzen, maar massaal de grens over om goedkoper te tanken? Dat valt wel mee. Slechts een...
-- [VN: wederopbouw van Gaza kost komende tien jaar 71,4 miljard dollar](https://www.ad.nl/buitenland/vn-wederopbouw-van-gaza-kost-komende-tien-jaar-71-4-miljard-dollar~ac528ac3/)
-  > Israël heeft het zuiden van Libanon aangevallen met drones, melden Libanese staatsmedia. Er geldt momenteel een tien dagen durend bestand tussen de...
-- [Amnesty is somber over huidige ‘gevaarlijke wereldorde’ en roept op tot verzet](https://www.ad.nl/buitenland/amnesty-is-somber-over-huidige-gevaarlijke-wereldorde-en-roept-op-tot-verzet~aa976230/)
-  > Amnesty International heeft bij het verschijnen van een jaarrapport over mensenrechten in de wereld opgeroepen tot verzet tegen de opkomst van een...
+- [D-day rond asielwetten: kan kabinet tóch een meerderheid krijgen?](https://www.ad.nl/politiek/d-day-rond-asielwetten-kan-kabinet-toch-een-meerderheid-krijgen~a38ba819/)
+  > Het is D-day voor de asielwetten. Het wordt ongemeen spannend: het kabinet houdt er al rekening mee dat de wetten zomaar kunnen stranden in de Eerste...
+- [Zanger D4vd zegt onschuldig te zijn in moordzaak 14-jarig meisje](https://www.ad.nl/show/zanger-d4vd-zegt-onschuldig-te-zijn-in-moordzaak-14-jarig-meisje~a2395b7c/)
+  > De Amerikaanse zanger D4vd is aangeklaagd voor de moord op een 14-jarig meisje. Zelf zegt hij onschuldig te zijn. Dat verklaarde zijn verdediging...
+- [Ayoub dacht dat muziek verboden was, nu wint hij de Annie M.G. Schmidtprijs: ‘Enorme eer’](https://www.ad.nl/show/ayoub-dacht-dat-muziek-verboden-was-nu-wint-hij-de-annie-m-g-schmidtprijs-enorme-eer~a6ec76bb/)
+  > Het winnen van de prestigieuze Annie M.G. Schmidtprijs voelt voor Goudse kleinkunstenaar Ayoub Kharkhach (28) als een beloning voor al zijn harde...
+- [Feyenoord zoekt houvast in moeizaam seizoen: tien lichtpuntjes voor de laatste sprint](https://www.ad.nl/voetbal/feyenoord-zoekt-houvast-in-moeizaam-seizoen-tien-lichtpuntjes-voor-de-laatste-sprint~a9c94e2e/)
+  > Dat concurrent voor plek 2 NEC een forse nederlaag leed in de bekerfinale tegen AZ (5-1), voorkwam dat ze in Nijmegen kunnen surfen op...
+- [Suzanne Schulting verlengt contract en blijft langebaan en shorttrack combineren](https://www.ad.nl/schaatsen/suzanne-schulting-verlengt-contract-en-blijft-langebaan-en-shorttrack-combineren~a45f2613/)
+  > Suzanne Schulting blijft langebaanschaatsen en shorttrack combineren. De 28-jarige Friezin heeft contract bij  Team Essent, de ploeg van Sven Kramer...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Autoracer John Ternus moet de innovatiemotor van Apple weer aan de praat krijgen](https://fd.nl/bedrijfsleven/1593995/autoracer-john-ternus-moet-de-innovatiemotor-van-apple-weer-aan-de-praat-krijgen)
+  > De inkomende ceo van Apple lijkt in veel opzichten op Tim Cook. Kan hij wel voor grootse innovatie zorgen?
+- [Live: Olieprijs staat iets lager, beurzen omhoog](https://fd.nl/financiele-markten/1593996/live-olieprijs-staat-iets-lager-beurzen-omhoog)
+  > De grote vraag voor beleggers is of de Verenigde Staten en Iran vandaag hun gesprekken over een permanent staakt-het-vuren gaan hervatten in Pakistan.
+- [Tim Cook stopt als Apple-ceo, veteraan John Ternus nieuwe topman](https://fd.nl/bedrijfsleven/1593994/tim-cook-stopt-als-apple-ceo-veteraan-john-ternusnieuwe-topman)
+  > Na een periode van vijftien jaar aan het hoofd van Apple stopt Tim Cook als ceo. Zijn opvolger is John Ternus, de huidige topman van de hardwaretak.
+- [Moet ecocide strafbaar gesteld worden?](https://fd.nl/samenleving/1593477/moet-ecocide-strafbaar-gesteld-worden)
+  > Lammert van Raan diende in 2023 als PvdD-Kamerlid daartoe een wetsvoorstel in. Advocaat Monique van der Linden wijst op de antirechtstatelijkheid van...
 - [Pandjesbazen, verkoop je huurwoning toch maar niet!](https://fd.nl/economie/1593938/pandjesbazen-verkoopje-huurwoningtoch-maar-niet)
   > Vandaag in Dagkoers: het kabinet komt met energiepakket, versoepeling van de beursregels voor mkb-ondernemingen & nieuwe regels om verkoopgolf...
-- [Voorkennis](https://fd.nl/opinie/1593941/voorkennis)
-  > Wist ene ‘romanticpaul’ meer toen hij op de goksite Polymarket flink begon in te zetten op de verloving van Taylor Swift?
-- [God, Rome en het Witte Huis](https://fd.nl/opinie/1593847/god-rome-en-het-witte-huis)
-  > Een Amerikaanse president die openlijk de paus aanvalt: zelfs in tijden van oorlog en abortusruzies bleef de toon ooit respectvol. Tot nu.
-- [Econoom Brad Setser: ‘Europa heeft een Trump nodig, maar dan slimmer en gerichter’](https://fd.nl/economie/1593798/econoom-brad-setser-europa-heeft-een-trump-nodig-maar-dan-slimmer-en-gerichter)
-  > Hoogwaardige, hyperconcurrerende Chinese exporten bedreigen de Europese auto-industrie, zegt de Amerikaanse econoom Brad Setser. Tijd voor actie,...
-- [Vrees voor meer beleggingsfraude door versoepeling beursregels mkb](https://fd.nl/financiele-markten/1592819/vrees-voor-meer-beleggingsfraude-door-versoepeling-beursregels-mkb)
-  > Minister Heinen versoepelt de regels voor mkb-bedrijven die de kapitaalmarkt opgaan. Daardoor lopen beleggers in kleine bedrijven straks beduidend...
 
 ### Meest gelezen
 
