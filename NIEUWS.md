@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-04-2026 om 18:00*
+*Laatst bijgewerkt: 21-04-2026 om 20:04*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Aanslag op tempel brengt Mexico opnieuw in lastig parket in aanloop naar WK](https://nos.nl/l/2611494)
+  > Het zijn videobeelden die Mexicaanse nieuwskanalen op dinsdag beheersen: tientallen veelal buitenlandse toeristen die op de grond liggen bij het...
+- [Zelensky meldt reparatie van pijpleiding waar Oekraïne en Hongarije over ruzieden](https://nos.nl/l/2611492)
+  > De Droezjba-pijpleiding is hersteld, zegt de Oekraïense president Zelensky. Over de beschadigde oliepijpleiding, die vanuit Rusland via Oekraïne olie...
+- [Terreur Joodse kolonisten neemt nog verder toe: 'Ze doen wat ze willen'](https://nos.nl/l/2611485)
+  > Mensenrechtenorganisaties slaan voor de zoveelste keer alarm over de terreur door Joodse kolonisten en de etnische zuivering van Palestijnen als...
+- [COA moet dwangsommen betalen om hotel in Epe](https://nos.nl/l/2611484)
+  > Het gaat het Centraal Orgaan opvang asielzoekers (COA) niet lukken om mensen die zijn ondergebracht in een hotel in Epe op tijd over andere locaties...
 - [Stroomnet Utrecht nu echt vol, helemaal geen nieuwe of zwaardere aansluitingen meer](https://nos.nl/l/2611482)
-  > Aanvragen voor zware stroomaansluitingen moesten in de regio Utrecht al wachten. Maar het stroomnet gaat per 1 juli voor een deel van de provincie...
-- [Opnieuw maatregelen om Groningse 'Mario Kart-bocht' veiliger te maken](https://nos.nl/l/2611481)
-  > Bij twee scherpe bochten tussen de zuidelijke en westelijke ringweg in Groningen neemt de provincie extra maatregelen om automobilisten te...
-- [Nederlanders in Istanbul stierven net als Duits gezin door bestrijdingsmiddel](https://nos.nl/l/2611476)
-  > De twee minderjarige Nederlandse broers die vorig jaar augustus dood werden gevonden in hun hotelkamer in Istanbul, zijn overleden aan vergiftiging...
-- [Proef met onderzoek naar verwurging levert veel meer aanvragen op dan verwacht](https://nos.nl/l/2611471)
-  > Forensisch artsen in Rotterdam krijgen veel meer aanvragen dan verwacht voor onderzoeken naar pogingen tot wurging. Sinds 1 december 2025 loopt er...
-- ['Meer hulp nodig voor mensen met ernstige psychische aandoeningen'](https://nos.nl/l/2611468)
-  > Er is meer nodig om veiligheidsrisico's voor mensen met ernstige psychische klachten te verminderen. Dat concludeert de Onderzoeksraad voor...
+  > Aanvragen voor zware stroomaansluitingen moesten in de regio Utrecht al wachten. Maar het stroomnet gaat per 1 juli voor het deel rond de stad...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Bondgenoten-kandidaat Chess breekt na alle ophef over haar privéleven: ‘Mensen denken dat ik een heks ben’](https://www.ad.nl/show/bondgenoten-kandidaat-chess-breekt-na-alle-ophef-over-haar-priveleven-mensen-denken-dat-ik-een-heks-ben~a97723c7/)
-  > De Bondgenoten-kandidaat Chess van de Worp is dinsdagavond in tranen uitgebarsten in het SBS 6-programma. De 28-jarige deelnemer is al wekenlang...
-- [‘Pauzeknop’ voor álle aansluitingen op stroomnet in groot deel van provincie Utrecht](https://www.ad.nl/binnenland/pauzeknop-voor-alle-aansluitingen-op-stroomnet-in-groot-deel-van-provincie-utrecht~a87e1aa2/)
-  > In een groot deel van de provincie Utrecht is vanaf 1 juli geen laadpaal of warmtepomp nog aan te sluiten op het stroomnet, geen meterkast uit te...
-- [Vincent Kompany slaat aanbod van Engelse zenders af: ‘Als ik dat doe, heb ik straks geen gezin meer’](https://www.ad.nl/voetbal/vincent-kompany-slaat-aanbod-van-engelse-zenders-af-als-ik-dat-doe-heb-ik-straks-geen-gezin-meer~aa573dc3/)
-  > Vincent Kompany heeft geen trek om het WK komende zomer te duiden op de Engelse televisie. Daily Mail schreef rechtenhouders BBC en ITV lonkten naar...
-- [Waarom (bijna) iedereen meeleeft met reuzenwalvis Timmy: ‘Mensen hebben hem in het hart gesloten’](https://www.ad.nl/buitenland/waarom-bijna-iedereen-meeleeft-met-reuzenwalvis-timmy-mensen-hebben-hem-in-het-hart-gesloten~af717fc7/)
-  > De halve wereld lijkt begaan met het lot van de gestrande en verzwakte bultrugwalvis Timmy. Wat schuilt daarachter? Op zoek naar antwoorden op het...
-- [Aziatische snacks niet aan te slepen: Nederlanders stappen over op gyoza, laten bitterballen links liggen](https://www.ad.nl/binnenland/aziatische-snacks-niet-aan-te-slepen-nederlanders-stappen-over-op-gyoza-laten-bitterballen-links-liggen~a54fbc88/)
-  > De oer-Hollandse kroket, frikandel en bitterbal verliezen razendsnel terrein. Waar deze klassiekers jarenlang de absolute koningen van de borrel...
+- [Sandra wijst Rob voor het altaar af in Married at first sight: ‘Ik kan het niet’](https://www.ad.nl/show/sandra-wijst-rob-voor-het-altaar-af-in-married-at-first-sight-ik-kan-het-niet~a3251726/)
+  > Voor het eerst in de geschiedenis van de Nederlandse editie van Married at first sight heeft een bruid ‘nee’ gezegd voor het altaar. Het gaat om...
+- [‘Er moet ingegrepen worden op het continu zwartmaken van Renze door Beau en Humberto’](https://www.ad.nl/show/er-moet-ingegrepen-worden-op-het-continu-zwartmaken-van-renze-door-beau-en-humberto~a2b3006b/)
+  > Er gaat sinds het stoppen van RTL Tonight geen week voorbij zonder dat Beau van Erven Dorens en Humberto Tan de aanval openen op hun collega Renze...
+- [Oekraïne wil inspelen op het ego van Trump: voorstel om deel van Donbas om te dopen tot ‘Donnyland’](https://www.ad.nl/buitenland/oekraine-wil-inspelen-op-het-ego-van-trump-voorstel-om-deel-van-donbas-om-te-dopen-tot-donnyland~a6096833/)
+  > Om de Amerikaanse president Donald Trump te paaien in de vredesonderhandelingen met Rusland, zou Oekraïne een wel heel opmerkelijk plan hebben...
+- [Tranen bij AZ-captain Jordy Clasie wanneer iedereen in Alkmaar losgaat bij huldiging na bekerwinst](https://www.ad.nl/voetbal/tranen-bij-az-captain-jordy-clasie-wanneer-iedereen-in-alkmaar-losgaat-bij-huldiging-na-bekerwinst~a79c404f/)
+  > In Alkmaar zijn dinsdagavond duizenden supporters bijeengekomen voor de huldiging van de spelers en staf van AZ na de winst van de Eurojackpot KNVB...
+- [Vance niet onderweg naar Pakistan, omdat Iran nog niet heeft toegezegd mee te doen aan gesprekken](https://www.ad.nl/buitenland/vance-niet-onderweg-naar-pakistan-omdat-iran-nog-niet-heeft-toegezegd-mee-te-doen-aan-gesprekken~ac528ac3/)
+  > De Amerikaanse vicepresident JD Vance heeft zijn reis naar de Pakistaanse hoofdstad Islamabad voorlopig afgeblazen, omdat Iran nog niet heeft...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Vance voorlopig niet naar Pakistan voor onderhandelingen](https://fd.nl/politiek/1594092/vance-voorlopig-niet-naar-pakistan-voor-onderhandelingen)
+  > De Amerikaanse onderhandelaars die dinsdag naar Islamabad zouden afreizen, blijven voorlopig in de VS. Iran heeft nog niet ingestemd met...
+- [‘Meer aansluitingen stroomnet onverantwoord’: regio Utrecht krijgt per juli aansluitstop](https://fd.nl/politiek/1594091/aansluitstop-voor-stroom-utrecht-per-juli-definitief)
+  > Voor andere provincies waar de zware maatregel dreigde is een oplossing gevonden, maar in de regio Utrecht krijgt vanaf juli niemand meer een nieuwe...
 - [Aanpassing van huurwet leidt niet tot meer aanbod](https://fd.nl/opinie/1594020/aanpassing-van-huurwet-leidt-niet-tot-meer-aanbod)
   > Wat de versoepeling wél vrijwel zeker veroorzaakt, zijn hogere huren.
 - [ASM is eerste kwartaal beter gestart dan analisten hadden verwacht](https://fd.nl/bedrijfsleven/1593965/asm-is-eerste-kwartaal-beter-gestart-dan-analisten-hadden-verwacht)
   > De chipmachinefabrikant profiteert van aanhoudend sterke vraag vanwege AI, maar wijst ook op druk op de toeleveringsketen om aan de grote vraag te...
 - [Lucht voor zonnebedrijf Enstall na deal met eigenaren en schuldeisers](https://fd.nl/bedrijfsleven/1593972/lucht-voor-zonnebedrijf-enstall-na-deal-met-eigenaren-en-schuldeisers)
   > De aandeelhouders steken €100 mln aan vers kapitaal in het bedrijf, dat door een deal met zijn kredietverstrekkers jaarlijks €60 mln aan cash...
-- [De staatssecretaris hoort bij de groenteveredelaar vooral de roep om stabiel beleid](https://fd.nl/politiek/1594086/de-staatssecretaris-hoort-bij-de-groenteveredelaar-vooral-de-roep-om-stabiel-beleid)
-  > Veredelaar Rijk Zwaan geeft trots een kijkje in de keuken en zegt ook: ‘We doen het als Nederland lang niet zo slecht.’
-- [VS trekken Braziliaanse zeldzame aardmetalen naar zich toe met miljardenovername](https://fd.nl/bedrijfsleven/1594090/vs-trekken-braziliaanse-zeldzame-aardmetalen-naar-zich-toe-met-miljardenovername)
-  > USA Rare Earth neemt het Braziliaanse Serra Verde over. De Amerikanen willen op deze manier hun afhankelijkheid van China verkleinen.
 
 ### Meest gelezen
 
