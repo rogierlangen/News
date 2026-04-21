@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-04-2026 om 16:12*
+*Laatst bijgewerkt: 21-04-2026 om 18:00*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Stroomnet Utrecht nu echt vol, helemaal geen nieuwe of zwaardere aansluitingen meer](https://nos.nl/l/2611482)
+  > Aanvragen voor zware stroomaansluitingen moesten in de regio Utrecht al wachten. Maar het stroomnet gaat per 1 juli voor een deel van de provincie...
+- [Opnieuw maatregelen om Groningse 'Mario Kart-bocht' veiliger te maken](https://nos.nl/l/2611481)
+  > Bij twee scherpe bochten tussen de zuidelijke en westelijke ringweg in Groningen neemt de provincie extra maatregelen om automobilisten te...
+- [Nederlanders in Istanbul stierven net als Duits gezin door bestrijdingsmiddel](https://nos.nl/l/2611476)
+  > De twee minderjarige Nederlandse broers die vorig jaar augustus dood werden gevonden in hun hotelkamer in Istanbul, zijn overleden aan vergiftiging...
+- [Proef met onderzoek naar verwurging levert veel meer aanvragen op dan verwacht](https://nos.nl/l/2611471)
+  > Forensisch artsen in Rotterdam krijgen veel meer aanvragen dan verwacht voor onderzoeken naar pogingen tot wurging. Sinds 1 december 2025 loopt er...
 - ['Meer hulp nodig voor mensen met ernstige psychische aandoeningen'](https://nos.nl/l/2611468)
   > Er is meer nodig om veiligheidsrisico's voor mensen met ernstige psychische klachten te verminderen. Dat concludeert de Onderzoeksraad voor...
-- [Nederlandse werkenden meest productief in 20 jaar, hoe kan dat?](https://nos.nl/l/2611466)
-  > Het is cruciaal voor de economische groei en welvaart van een land: de arbeidsproductiviteit. Die geeft aan hoeveel werk je gedaan krijgt in een uur...
-- [Partijen teleurgesteld over sneuvelen asielwet: 'een blamage' en 'diep triest'](https://nos.nl/l/2611464)
-  > "Een blamage", "diep triest" en "een verdrietige dag": meerdere fractieleiders in de Tweede Kamer zijn teleurgesteld dat de asielnoodmaatregelenwet...
-- [Ophokplicht voor pluimvee vervalt, behalve in Gelderse Vallei](https://nos.nl/l/2611462)
-  > De ophok- en afschermplicht die in verband met de vogelgriep gold voor pluimvee wordt in bijna het hele land ingetrokken. Alleen in de Gelderse...
-- [Inlichtingendienst: Rusland en China leren van oorlog Oekraïne, worden er sterker van](https://nos.nl/l/2611461)
-  > Het Russische leger leert veel en snel van de oorlog in Oekraïne. Volgens de Militaire Inlichtingen- en Veiligheidsdienst (MIVD) is de Russische...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Kamer eist dat Toeslagen-zzp’ers tóch niet beboet worden](https://www.ad.nl/politiek/kamer-eist-dat-toeslagen-zzpers-toch-niet-beboet-worden~a350974d/)
-  > Een meerderheid van de Tweede Kamer wil dat het kabinet haar belofte nakomt richting de zzp’ers die hebben geholpen bij de afhandeling van de...
-- [Strenge wet van Faber ligt in de prullenbak, maar via achterdeurtje wordt streng asielbeleid alsnog geregeld](https://www.ad.nl/politiek/strenge-wet-van-faber-ligt-in-de-prullenbak-maar-via-achterdeurtje-wordt-streng-asielbeleid-alsnog-geregeld~a1a391e8/)
-  > De asielnoodmaatregelenwet is dood, leve de asielmaatregelenwet! Want dat de strenge wet van oud-PVV-minister Marjolein Faber is gesneuveld in de...
-- [Derde zege op rij voor Pogacar? Dit zijn de concurrenten en de tijden dat je moet inschakelen](https://www.ad.nl/wielrennen/derde-zege-op-rij-voor-pogacar-dit-zijn-de-concurrenten-en-de-tijden-dat-je-moet-inschakelen~aa20ca27/)
-  > Met Luik-Bastenaken-Luik staat zondag de laatste voorjaarsklassieker van het wielerseizoen op het programma. ‘La Doyenne’ is een van de vijf...
-- [Twee sterren voor Michael Jackson-film: meest omstreden artiest ooit wordt vereerd als de Here Jezus](https://www.ad.nl/show/twee-sterren-voor-michael-jackson-film-meest-omstreden-artiest-ooit-wordt-vereerd-als-de-here-jezus~a45d5135/)
-  > De biografische speelfilm over Michael Jackson, donderdag in de bioscoop, slalomt listig om alles wat ook maar enigszins ruikt naar controverse. Een...
-- [Flick wil na titel verlengen bij Barcelona, Liverpool wil zich versterken met 19-jarige aanvaller](https://www.ad.nl/voetbal/flick-wil-na-titel-verlengen-bij-barcelona-liverpool-wil-zich-versterken-met-19-jarige-aanvaller~a35ea681/)
-  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Bondgenoten-kandidaat Chess breekt na alle ophef over haar privéleven: ‘Mensen denken dat ik een heks ben’](https://www.ad.nl/show/bondgenoten-kandidaat-chess-breekt-na-alle-ophef-over-haar-priveleven-mensen-denken-dat-ik-een-heks-ben~a97723c7/)
+  > De Bondgenoten-kandidaat Chess van de Worp is dinsdagavond in tranen uitgebarsten in het SBS 6-programma. De 28-jarige deelnemer is al wekenlang...
+- [‘Pauzeknop’ voor álle aansluitingen op stroomnet in groot deel van provincie Utrecht](https://www.ad.nl/binnenland/pauzeknop-voor-alle-aansluitingen-op-stroomnet-in-groot-deel-van-provincie-utrecht~a87e1aa2/)
+  > In een groot deel van de provincie Utrecht is vanaf 1 juli geen laadpaal of warmtepomp nog aan te sluiten op het stroomnet, geen meterkast uit te...
+- [Vincent Kompany slaat aanbod van Engelse zenders af: ‘Als ik dat doe, heb ik straks geen gezin meer’](https://www.ad.nl/voetbal/vincent-kompany-slaat-aanbod-van-engelse-zenders-af-als-ik-dat-doe-heb-ik-straks-geen-gezin-meer~aa573dc3/)
+  > Vincent Kompany heeft geen trek om het WK komende zomer te duiden op de Engelse televisie. Daily Mail schreef rechtenhouders BBC en ITV lonkten naar...
+- [Waarom (bijna) iedereen meeleeft met reuzenwalvis Timmy: ‘Mensen hebben hem in het hart gesloten’](https://www.ad.nl/buitenland/waarom-bijna-iedereen-meeleeft-met-reuzenwalvis-timmy-mensen-hebben-hem-in-het-hart-gesloten~af717fc7/)
+  > De halve wereld lijkt begaan met het lot van de gestrande en verzwakte bultrugwalvis Timmy. Wat schuilt daarachter? Op zoek naar antwoorden op het...
+- [Aziatische snacks niet aan te slepen: Nederlanders stappen over op gyoza, laten bitterballen links liggen](https://www.ad.nl/binnenland/aziatische-snacks-niet-aan-te-slepen-nederlanders-stappen-over-op-gyoza-laten-bitterballen-links-liggen~a54fbc88/)
+  > De oer-Hollandse kroket, frikandel en bitterbal verliezen razendsnel terrein. Waar deze klassiekers jarenlang de absolute koningen van de borrel...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘Businessscholen zijn er al lang niet meer alleen voor het opleiden van ceo’s en managers’](https://fd.nl/bedrijfsleven/1594017/businessscholen-zijn-er-al-lang-niet-meer-alleen-voor-het-opleiden-van-ceos-en-managers)
-  > De Rotterdam School of Management wijst kritiek op het niveau van Nederlandse businessschools van de hand. ‘Of we de beste managers opleiden, vind ik...
-- [Na Vesteda krijgt ook woningbelegger Bouwinvest te maken met een uitstroom van investeerders](https://fd.nl/economie/1593971/na-vesteda-krijgt-ook-woningbelegger-bouwinvest-te-maken-met-een-uitstroom-van-investeerders)
-  > Zo groot als bij Vesteda zijn de terugbetalingsverzoeken bij Bouwinvest niet. Toch dienden investeerders vorig jaar en in het eerste kwartaal van dit...
-- [Basic-Fit wil hard groeien met franchise, maar dat duurt wel even](https://fd.nl/bedrijfsleven/1594084/basic-fit-wil-hard-groeien-met-franchise-maar-dat-duurt-wel-even)
-  > Ceo René Moos benadrukt op een beleggersdag dat de overname van Clever Fit-vestigingen en de bouw van een franchisetak tijd kosten.
-- [Britse bank Barclays laat de verkoop van risico’s doorlichten](https://fd.nl/financiele-markten/1594083/britse-bank-barclays-gaat-verkoop-van-risicos-doorlichten)
-  > Op verzoek van de toezichthouder laat de bank onderzoeken of het doorverkopen van risico’s op leningen aan investeerders veilig gebeurt. De...
-- [Vogelgriep op zijn retour, ophokplicht grotendeels ingetrokken](https://fd.nl/samenleving/1594023/vogelgriep-op-zijn-retour-ophokplicht-grotendeels-ingetrokken)
-  > Alleen gebieden in en rond de Gelderse Vallei blijven onder de strenge regels vallen. Volgens het ministerie van Landbouw is het risico daar groter...
+- [Aanpassing van huurwet leidt niet tot meer aanbod](https://fd.nl/opinie/1594020/aanpassing-van-huurwet-leidt-niet-tot-meer-aanbod)
+  > Wat de versoepeling wél vrijwel zeker veroorzaakt, zijn hogere huren.
+- [ASM is eerste kwartaal beter gestart dan analisten hadden verwacht](https://fd.nl/bedrijfsleven/1593965/asm-is-eerste-kwartaal-beter-gestart-dan-analisten-hadden-verwacht)
+  > De chipmachinefabrikant profiteert van aanhoudend sterke vraag vanwege AI, maar wijst ook op druk op de toeleveringsketen om aan de grote vraag te...
+- [Lucht voor zonnebedrijf Enstall na deal met eigenaren en schuldeisers](https://fd.nl/bedrijfsleven/1593972/lucht-voor-zonnebedrijf-enstall-na-deal-met-eigenaren-en-schuldeisers)
+  > De aandeelhouders steken €100 mln aan vers kapitaal in het bedrijf, dat door een deal met zijn kredietverstrekkers jaarlijks €60 mln aan cash...
+- [De staatssecretaris hoort bij de groenteveredelaar vooral de roep om stabiel beleid](https://fd.nl/politiek/1594086/de-staatssecretaris-hoort-bij-de-groenteveredelaar-vooral-de-roep-om-stabiel-beleid)
+  > Veredelaar Rijk Zwaan geeft trots een kijkje in de keuken en zegt ook: ‘We doen het als Nederland lang niet zo slecht.’
+- [VS trekken Braziliaanse zeldzame aardmetalen naar zich toe met miljardenovername](https://fd.nl/bedrijfsleven/1594090/vs-trekken-braziliaanse-zeldzame-aardmetalen-naar-zich-toe-met-miljardenovername)
+  > USA Rare Earth neemt het Braziliaanse Serra Verde over. De Amerikanen willen op deze manier hun afhankelijkheid van China verkleinen.
 
 ### Meest gelezen
 
