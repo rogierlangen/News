@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-04-2026 om 19:20*
+*Laatst bijgewerkt: 22-04-2026 om 21:00*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Rechter stelt omwonenden in ongelijk, asielopvang in Loosdrecht kan doorgaan](https://nos.nl/l/2611600)
-  > Humane opvang van asielzoekers weegt zwaarder dan het belang van omwonenden om daar inspraak in te hebben. Tot die conclusie komt de rechter nadat...
-- [Het stroomnet gaat voor het eerst helemaal op slot: wat zijn de gevolgen?](https://nos.nl/l/2611599)
-  > Het gaat in Nederland vaak over de problemen op het stroomnet, maar een aansluitstop zoals er op 1 juli in de regio Utrecht komt, is nieuw. Voor...
-- [Politiemedewerker verdacht van verkrachting tienermeisje in Nieuwegein](https://nos.nl/l/2611598)
-  > Een medewerker van de politie wordt ervan verdacht eind vorig jaar een tienermeisje te hebben verkracht in Nieuwegein. Dat bevestigt het Openbaar...
-- [Huurverhoging valt bewoners van grootste flat van Nederland rauw op het dak](https://nos.nl/l/2611597)
-  > Veel van de meer dan 1500 bewoners van twee enorme flatgebouwen in Zeist zijn woedend over een aangekondigde huurverhoging. Ze wijzen er op dat ze...
-- [Kabinet kijkt naar goedkoop ov-ticket zoals in Duitsland, dit leverde het daar op](https://nos.nl/l/2611596)
-  > Het wordt in Duitsland de 'grootste ov-revolutie' ooit genoemd: het Deutschlandticket. Voor een vast laag bedrag per maand onbeperkt met het ov...
+- [Rechter haalt hond met overgewicht uit huis in Haaksbergen: 'Verwaarlozing'](https://nos.nl/l/2611611)
+  > Een 67-jarige man uit Haaksbergen moet afscheid nemen van zijn hond Lizzy. Het dier werd continu gevoerd en lijdt aan zwaar overgewicht. De...
+- [Steun in Kamer voor energieplan met goedkopere trein en lagere vrachtwagenheffing](https://nos.nl/l/2611610)
+  > Ondanks kritiek is er in de Tweede Kamer brede steun voor de kabinetsplannen om de hoge energieprijzen te compenseren. Het kabinet ging mee mee in...
+- [Nederlands OM eist 30 jaar cel tegen Syriër die handlanger van Assad zou zijn](https://nos.nl/l/2611608)
+  > Het Nederlandse Openbaar Ministerie eist 30 jaar celstraf tegen een Syrische man die in 2013 en 2014 mensen zou hebben gemarteld in Syrië. Volgens...
+- [Duitse stichting wil honderden schedels uit koloniale tijd teruggeven](https://nos.nl/l/2611606)
+  > Een groep onderzoekers in Duitsland wil honderden uit West-Afrika meegenomen schedels teruggeven. Een Berlijnse stichting deed de afgelopen jaren...
+- [Bandenfabriek Enschede sluit, maar personeel kan zo weer aan de bak](https://nos.nl/l/2611603)
+  > Veel van de 500 mensen die eind juni hun baan verliezen bij de sluiting van bandenfabriek Apollo Vredestein in Enschede, kunnen elders aan het werk.
+...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Wayne (12) kwam om het leven bij ongeluk in Steyl, tiener redde ‘in laatste daad van liefde’ vier mensenlevens](https://www.ad.nl/binnenland/wayne-12-kwam-om-het-leven-bij-ongeluk-in-steyl-tiener-redde-in-laatste-daad-van-liefde-vier-mensenlevens~a51e429e/)
-  > De jongen die afgelopen weekend om het leven kwam bij een aanrijding in het Limburgse Steyl is de 12-jarige Wayne Bastiaans. De tiener heeft in ‘zijn...
-- [Haaland zet City snel op voorsprong tegen Burnley, Hartman en Flemming missen kansen](https://www.ad.nl/voetbal/haaland-zet-city-snel-op-voorsprong-tegen-burnley-hartman-en-flemming-missen-kansen~aad2a741/)
-  > Manchester City komt vanavond in punten gelijk met Arsenal als het de uitwedstrijd bij Burnley wint. Als dat gebeurt, betekent dat ook degradatie...
-- [Telefoonnummer 1 tot 5 dollar, ID-nummers meer: wat zijn gehackte gegevens eigenlijk waard online?](https://www.ad.nl/binnenland/telefoonnummer-1-tot-5-dollar-id-nummers-meer-wat-zijn-gehackte-gegevens-eigenlijk-waard-online~afd082da/)
-  > Na de massaclaim tegen internetprovider Odido krijgen gedupeerden van het datalek honderden euro’s, als het aan de eisers ligt. De vraag is: wat zijn...
-- [Met belofte over goedkope treinkaart, en sussende teksten, manoeuvreert Jetten door energiedebat](https://www.ad.nl/politiek/met-belofte-over-goedkope-treinkaart-en-sussende-teksten-manoeuvreert-jetten-door-energiedebat~a3731e8c/)
-  > De spaarzame houding van het kabinet blijft voorlopig staan. Oppositiepartijen roepen hard om meer compensatie voor de gestegen brandstofprijzen. De...
-- [Het ging uit tussen Esther en ‘bonusvader’ Ramon: ‘De oudste zei laatst: we redden ons wel zonder man thuis’](https://www.ad.nl/mezza/het-ging-uit-tussen-esther-en-bonusvader-ramon-de-oudste-zei-laatst-we-redden-ons-wel-zonder-man-thuis~a0781cdf/)
-  > Na de plotselinge dood van haar man vond Esther (47) via een datingsite opnieuw de liefde bij Ramon. ‘Ik miste de romantiek’, vertelt ze in deze...
+- [Manchester City komt op gelijke hoogte met Arsenal, Hartman en Flemming degraderen met Burnley](https://www.ad.nl/voetbal/manchester-city-komt-op-gelijke-hoogte-met-arsenal-hartman-en-flemming-degraderen-met-burnley~aad2a741/)
+  > Manchester City is in de Premier League op gelijke hoogte gekomen met Arsenal. De ploeg van Pep Guardiola won woensdagavond met 0-1 op bezoek bij...
+- [Jude Bellingham ziet Jesper de Jong verliezen in eerste ronde van tennistoernooi Madrid](https://www.ad.nl/tennis/jude-bellingham-ziet-jesper-de-jong-verliezen-in-eerste-ronde-van-tennistoernooi-madrid~a97d4d95/)
+  > Jesper de Jong is er niet in geslaagd om de tweede ronde te bereiken van het masterstoernooi van Madrid. De mondiale nummer 109 verloor na ruim 2,5...
+- [Paul Simonis dichtbij terugkeer naar Sparta, waar hij al vijftien jaar jeugdtrainer was](https://www.ad.nl/voetbal/paul-simonis-dichtbij-terugkeer-naar-sparta-waar-hij-al-vijftien-jaar-jeugdtrainer-was~a8517053/)
+  > Paul Simonis staat op het punt terug te keren in de Eredivisie. De 41-jarige coach is met Sparta Rotterdam, de club die hij als jeugdtrainer lang...
+- [Opmerkelijk moment: Lamine Yamal blesseert zich bij penalty en moet naar de kant](https://www.ad.nl/voetbal/opmerkelijk-moment-lamine-yamal-blesseert-zich-bij-penalty-en-moet-naar-de-kant~a4deb854/)
+  > FC Barcelona stevent af op de landstitel in Spanje en komt vanavond bij winst op Celta de Vigo weer negen punten boven achtervolger Real Madrid....
+- [Handhavingsdroom Telstar springlevend na klinkende zege op dramatisch Sparta](https://www.ad.nl/voetbal/handhavingsdroom-telstar-springlevend-na-klinkende-zege-op-dramatisch-sparta~a731fe4e/)
+  > De handhavingsdroom van Telstar in de eredivisie blijft springlevend. Sem van Duijn zorgde met twee treffers voor groot feest in Velsen-Zuid na de...
 
 ### Meest gelezen
 
@@ -46,15 +47,15 @@
 
 ### Laatste nieuws
 
+- [Wall Street opgelucht door verlengde wapenstilstand](https://fd.nl/bedrijfsleven/1594149/wall-street-opgelucht-door-verlengde-wapenstilstand)
+  > De wapenstilstand, die op zijn einde liep, gaat voorlopig nog even door. Geen verdere escalatie van het conflict dus, en dat is goed nieuws voor Wall...
 - [Beleggers zelf verantwoordelijk voor uitpluizen van mkb-bedrijven](https://fd.nl/opinie/1594134/beleggers-zelf-verantwoordelijk-voor-uitpluizen-van-mkb-bedrijven)
   > Van beleggers mag een zekere verantwoordelijkheid verwacht worden. Als iets te mooi is om waar te zijn, dan is dat ook zo.
 - [ABN Amro verwacht lagere groei voor bouwmarkten](https://fd.nl/bedrijfsleven/1594148/abn-amro-verwacht-lagere-groei-voor-bouwmarkten)
 - [ILO: jaarlijks 840.000 slachtoffers door slechte werkomgeving](https://fd.nl/samenleving/1594187/ilo-jaarlijks-840-000-slachtoffers-door-slechte-werkomgeving)
   > Internationale arbeidsorganisatie ILO schat dat psychosociale problemen op het werk jaarlijks 1,37% van het wereldwijde bbp kosten.
-- [Kamer mort, maar dwingt slechts kleine uitbreiding energiepakket af](https://fd.nl/politiek/1594147/kamer-mort-maar-dwingt-slechts-kleine-uitbreiding-energiepakket-af)
-  > Een groot deel van de oppositie wilde dat het kabinet ingrijpt om tanken goedkoper te maken, maar wist dat woensdag niet af te dwingen. Alleen een...
-- [Luchtvaartmaatschappijen moeten vrezen voor lucratieve landingstijden door annuleringen](https://fd.nl/bedrijfsleven/1594186/luchtvaartmaatschappijen-moeten-vrezen-voor-lucratieve-landingstijden-door-annuleringen)
-  > Nu luchtvaartmaatschappijen vluchten moeten schrappen door hoge kerosineprijzen, zijn hun landingsrechten niet meer zeker.
+- [Kabinet houdt poot stijf: geen accijnsverlaging brandstof](https://fd.nl/politiek/1594147/kamer-mort-maar-dwingt-slechts-kleine-uitbreiding-energiepakket-af)
+  > Een groot deel van de oppositie wilde dat het kabinet ingrijpt om tanken goedkoper te maken, maar wist dat woensdag niet af te dwingen. Een voorstel...
 
 ### Meest gelezen
 
