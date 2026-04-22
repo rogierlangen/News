@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-04-2026 om 22:51*
+*Laatst bijgewerkt: 22-04-2026 om 23:49*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Twee doden en dertig gewonden bij chemisch lek in Amerikaanse raffinaderij](https://nos.nl/l/2611625)
+  > Bij een chemisch lek in een raffinaderij waar zilver werd gezuiverd in de Amerikaanse staat West Virginia zijn twee mensen om het leven gekomen en...
 - [Onrust rond de Perzische Golf raakt pensioenfondsen, maar vooralsnog beperkt](https://nos.nl/l/2611624)
   > Nederlandse pensioenfondsen hebben last van de oorlog in de Perzische Golf. Door de onrust daalde de dekkingsgraad van ambtenarenpensioenfonds ABP in...
 - [Mexicaans tempelcomplex Teotihuacán weer geopend, onder zware beveiliging](https://nos.nl/l/2611619)
@@ -16,8 +18,6 @@
   > In Griekenland is de juridische onschendbaarheid van dertien parlementariërs opgeheven, omdat ze verdacht worden van fraude. Een meerderheid van het...
 - [Rechter haalt hond met overgewicht uit huis in Haaksbergen: 'Verwaarlozing'](https://nos.nl/l/2611611)
   > Een 67-jarige man uit Haaksbergen moet afscheid nemen van zijn hond Lizzy. Het dier werd continu gevoerd en lijdt aan zwaar overgewicht. De...
-- [Steun in Kamer voor energieplan met goedkopere trein en lagere vrachtwagenheffing](https://nos.nl/l/2611610)
-  > Ondanks kritiek is er in de Tweede Kamer brede steun voor de kabinetsplannen om de hoge energieprijzen te compenseren. Het kabinet ging mee mee in...
 
 ### Meest gelezen
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Voetbalpodcast | ‘Er is flink gevloekt in Almelo, Rotterdam, Breda en Volendam’](https://www.ad.nl/voetbal/voetbalpodcast-er-is-flink-gevloekt-in-almelo-rotterdam-breda-en-volendam~ac8603a9/)
+  > De strijd tegen degradatie wordt ongemeen spannend. Met de zege van Telstar op Sparta zet de ploeg een enorme stap naar lijfsbehoud. Dit weekend kan...
 - [Bijzondere mijlpaal voor Frenkie de Jong bij FC Barcelona, Lamine Yamal loopt blessure op bij penalty](https://www.ad.nl/voetbal/bijzondere-mijlpaal-voor-frenkie-de-jong-bij-fc-barcelona-lamine-yamal-loopt-blessure-op-bij-penalty~a4deb854/)
   > Frenkie de Jong heeft een bijzondere avond beleefd met FC Barcelona. De Oranje-international mag zich officieel de Nederlander noemen met de meeste...
 - [‘Vijf Palestijnen gedood bij Israëlische aanvallen in Gaza, onder wie drie kinderen’](https://www.ad.nl/buitenland/vijf-palestijnen-gedood-bij-israelische-aanvallen-in-gaza-onder-wie-drie-kinderen~ac528ac3/)
@@ -35,8 +37,6 @@
   > Lazio heeft zich woensdagavond geplaatst voor de finale van de Coppa Italia. De club uit Rome speelt op woensdag 13 mei tegen Inter in de finale in...
 - [Arsenal is na 200 dagen koppositie kwijt aan Manchester City, Hartman en Flemming degraderen met Burnley](https://www.ad.nl/voetbal/arsenal-is-na-200-dagen-koppositie-kwijt-aan-manchester-city-hartman-en-flemming-degraderen-met-burnley~aad2a741/)
   > Manchester City is in de Premier League op gelijke hoogte gekomen met Arsenal. De ploeg van Pep Guardiola won woensdagavond met 0-1 op bezoek bij...
-- [Jude Bellingham ziet Jesper de Jong verliezen in eerste ronde van tennistoernooi Madrid](https://www.ad.nl/tennis/jude-bellingham-ziet-jesper-de-jong-verliezen-in-eerste-ronde-van-tennistoernooi-madrid~a97d4d95/)
-  > Jesper de Jong is er niet in geslaagd om de tweede ronde te bereiken van het masterstoernooi van Madrid. De mondiale nummer 109 verloor na ruim 2,5...
 
 ### Meest gelezen
 
