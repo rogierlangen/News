@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-04-2026 om 13:53*
+*Laatst bijgewerkt: 22-04-2026 om 15:18*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Brandstof delen en meer elektriciteit produceren: zo wil Europa de energiecrisis aanpakken](https://nos.nl/l/2611572)
+  > In de strijd tegen de stijgende energieprijzen wil de Europese Commissie in kaart brengen wat de brandstofvoorraden van alle EU-lidstaten zijn....
+- [Podcast De Dag: de zware klus van asielminister Van den Brink](https://nos.nl/l/2611569)
+  > Het was spannend tot het laatste moment, maar een groot deel van de asielplannen van het kabinet werd weggestemd in de Eerste Kamer. De wetten van...
+- [Splitsing Christelijke Gereformeerde Kerken Groningen door standpunt over lhbti'ers](https://nos.nl/l/2611568)
+  > Er doet zich opnieuw een splitsing voor in de Christelijke Gereformeerde Kerken (CGK). Nadat in november tientallen kerken hadden aangekondigd zich...
+- [Consumentenvertrouwen laag, maar huishoudens geven niet minder uit](https://nos.nl/l/2611565)
+  > Nederlanders maken zich zorgen over hun persoonlijke financiën en vinden dat het geen gunstige tijd is voor grote aankopen, meldt het CBS. Het...
 - [Overwinning voor Democraten in Virginia in strijd om kiesdistricten](https://nos.nl/l/2611561)
   > In de Amerikaanse staat Virginia is een voorstel goedgekeurd om kiesdistricten opnieuw in te delen. In een referendum konden kiezers stemmen over de...
-- [Gezin van doodgestoken meisje Blerick was in beeld bij hulpverleners](https://nos.nl/l/2611558)
-  > Het gezin van het meisje uit Blerick dat maandag werd doodgestoken, was in het verleden in beeld bij hulpverleningsinstanties. Dat bevestigt Veilig...
-- [Miljardenlening EU aan Oekraïne nabij na hervatting olieleverantie door pijplijn](https://nos.nl/l/2611550)
-  > Oekraïne krijgt de beloofde lening van 90 miljard euro van de EU. EU-ambassadeurs hebben woensdag ingestemd met de uitbetaling en zijn begonnen met...
-- [Klantgegevens uitgelekt van cosmeticamerk Rituals](https://nos.nl/l/2611544)
-  > Van cosmeticamerk Rituals zijn klantgegevens naar buiten gekomen na een datalek. Degenen om wie het gaat zijn geïnformeerd. Rituals is actief in 33...
-- [OM: verdachte schoot twee Syrische tieners dood na 'prankcall'](https://nos.nl/l/2611543)
-  > De man die ervan wordt verdacht dat hij twee jonge asielzoekers heeft doodgeschoten in een park in Amsterdam Nieuw-West werd vlak daarvoor gebeld...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Youtuber woedend op justitie om verband met dodelijke schietpartij onschuldige jongens: ‘Te gek voor woorden’](https://www.ad.nl/binnenland/youtuber-woedend-op-justitie-om-verband-met-dodelijke-schietpartij-onschuldige-jongens-te-gek-voor-woorden~ae491140/)
-  > Youtuber RouandYT is woedend omdat zijn kanaal door justitie in verband wordt gebracht met de dodelijke schietpartij in Amsterdam eerder dit jaar. ...
-- [Ranking Frenkie: waar staat record-Nederlander in het rijtje met Cruijff, Koeman en Neeskens?](https://www.ad.nl/voetbal/ranking-frenkie-waar-staat-record-nederlander-in-het-rijtje-met-cruijff-koeman-en-neeskens~ae6327c9/)
-  > In zijn zevende seizoen bij FC Barcelona onttroont Frenkie de Jong, met 293 duels, Phillip Cocu als Nederlander met de meeste wedstrijden voor FC...
-- [Jörgen Raymann gaat samen met andere comedians satirische show maken voor Omroep Zwart](https://www.ad.nl/show/jorgen-raymann-gaat-samen-met-andere-comedians-satirische-show-maken-voor-omroep-zwart~a09f1bdf/)
-  > Jörgen Raymann maakt zijn comeback met een humoristische sketchshow Die Andere Late Night. Dit doet hij samen met een nieuwe generatie comedians voor...
-- [Dit is de oplossing om wél een laadpaal of inductiekookplaat te gebruiken als de stroomstop is ingegaan](https://www.ad.nl/binnenland/dit-is-de-oplossing-om-wel-een-laadpaal-of-inductiekookplaat-te-gebruiken-als-de-stroomstop-is-ingegaan~ac5268b1/)
-  > Als per 1 juli een algemene aansluitstop op het stroomnet gaat gelden in een groot deel van de provincie Utrecht, kan niemand nog rekenen op...
-- [Noors hof meldt tekort op jaarrekening, maar rept met geen woord over zaak-Høiby](https://www.ad.nl/show/noors-hof-meldt-tekort-op-jaarrekening-maar-rept-met-geen-woord-over-zaak-hoiby~adb0a2c6/)
-  > De jaarrekening van het Noorse koninklijk hof toont over het afgelopen jaar een tekort van ongeveer 2 miljoen Noorse kronen, omgerekend ruim 183.000...
+- [Oekraïne moet op zoek naar nieuwe bondscoach, Flick wil na titel verlengen bij Barcelona](https://www.ad.nl/voetbal/oekraine-moet-op-zoek-naar-nieuwe-bondscoach-flick-wil-na-titel-verlengen-bij-barcelona~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Hockeyer Nicolás over zijn relatie met Rob Jetten: ‘Ik ben voor tegenstanders de partner van..., of die homo’](https://www.ad.nl/show/hockeyer-nicolas-over-zijn-relatie-met-rob-jetten-ik-ben-voor-tegenstanders-de-partner-van-of-die-homo~a8aa41b4a/)
+  > De 28-jarige Argentijnse tophockeyer Nicolás Keenan spreekt zich in de nieuwste editie van L’HOMO. uitgebreid uit over zijn relatie met premier Rob...
+- [Gemeente stelt opvang asielzoekers in Loosdrecht uit, politie kan veiligheid niet garanderen](https://www.ad.nl/binnenland/gemeente-stelt-opvang-asielzoekers-in-loosdrecht-uit-politie-kan-veiligheid-niet-garanderen~a1c48bee/)
+  > De gemeente Wijdemeren stelt de opvang van asielzoekers in het leegstaande gemeentehuis in Loosdrecht uit omdat er niet genoeg politiecapaciteit is....
+- [Tweede Franse blauwhelm overleden door aanval in Libanon](https://www.ad.nl/buitenland/tweede-franse-blauwhelm-overleden-door-aanval-in-libanon~ac528ac3/)
+  > Een tweede slachtoffer van een aanval op de VN-vredesmissie in Libanon is overleden, meldt de Franse president Emmanuel Macron. Door de aanval...
+- [Fatbikeverbod in Enschede werkt: ‘Ministerie vroeg hoe we het hebben aangepakt’](https://www.ad.nl/binnenland/fatbikeverbod-in-enschede-werkt-ministerie-vroeg-hoe-we-het-hebben-aangepakt~a0a1837f/)
+  > Alle ogen zijn gericht op Enschede nu de stad een verbod heeft uitgevaardigd op fatbikes. Op dag één leek het verbod nog weinig uit te richten, maar...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Roep in Tweede Kamer om meer risico’s te nemen op het stroomnet](https://fd.nl/politiek/1594138/roep-in-tweede-kamer-om-meer-risicos-te-nemen-op-het-stroomnet)
-  > Een nieuwe stroomaansluiting zit er in de regio Utrecht per 1 juli niet meer in. Kan de netbeheerder dit niet voorkomen door het stroomnet ‘ietsje...
-- [Onderzoek: ‘Advocatuur moet open voor externe aandeelhouders’](https://fd.nl/bedrijfsleven/1594128/onderzoek-advocatuur-moet-open-voor-externe-aandeelhouders)
-  > Het openbreken van de advocatuur voor andere organisatiemodellen en andere soorten aandeelhouders komt de dienstverlening waarschijnlijk ten goede,...
-- [Rosalía: vernieuwer in de muziek die wel geld weet te verdienen](https://fd.nl/samenleving/1594124/rosalia-vernieuwer-in-de-muziek-die-wel-geld-weet-te-verdienen)
-  > Vanavond treedt Rosalía op in Amsterdam. Wat maakt de Spaanse singer-songwriter zo succesvol, met name ook wat haar inkomsten betreft?
-- [Gegevens van Rituals‑klanten buitgemaakt bij datalek](https://fd.nl/bedrijfsleven/1594071/gegevens-van-ritualsklanten-buitgemaakt-bij-datalek)
-  > Bij het lek zijn gegevens als namen, adressen, e-mailadressen en telefoonnummers gestolen. Wachtwoorden en betaalgegevens zijn volgens het bedrijf...
-- [Hongaarse blokkade van lening aan Oekraïne lijkt voorbij](https://fd.nl/politiek/1594135/hongaarse-blokkade-van-lening-aan-oekraine-lijkt-voorbij)
-  > Tijdens een bijeenkomst van 27 EU-ambassadeurs, onder wie die van Boedapest, maakte niemand meer bezwaar tegen de lening.
+- [Zweedse beleggers duiken massaal op ‘vergeten’ AI-fonds](https://fd.nl/financiele-markten/1594074/zweedse-beleggers-duiken-massaal-op-vergeten-ai-fonds)
+  > Het Zweedse chipbedrijf Sivers Semiconductors werkt aan fotonische chips, maar werd door beleggers over het hoofd gezien. Tot vorige maand.
+- [Provincie Groningen trekt beroep tegen zoutwinning in](https://fd.nl/bedrijfsleven/1594075/provincie-groningen-trekt-beroep-tegen-zoutwinning-in)
+  > Acute zorgen over de veilige afsluiting van zoutcavernes zijn weggenomen, meldt de provincie.
+- [Paniek op hoog niveau rond het grote AI-gevaar dat Mythos heet](https://fd.nl/bedrijfsleven/1593841/paniek-op-hoog-niveau-rond-het-grote-ai-gevaar-dat-mythos-heet)
+  > Anthropic schiep met Mythos een AI-model dat razendsnel beveiligingssystemen kan hacken. Het kan een gevaarlijk wapen blijken, al helemaal omdat het...
+- [Retourtje Dallas, of toch thuis voetbal kijken?](https://fd.nl/financiele-markten/1594133/retourtje-dallas-of-toch-thuis-voetbal-kijken)
+  > Het WK voetbal live bezoeken in een Amerikaans stadion schijnt onbetaalbaar te zijn. Maar wat zijn dan de kosten voor de eerste wedstrijd van het...
+- [Ruim vijftig landen buigen zich in Colombia over de vraag: hoe komen we van fossiele brandstoffen af?](https://fd.nl/politiek/1594130/ruim-vijftig-landen-buigen-zich-in-colombia-over-de-vraag-hoe-komen-we-van-fossiele-brandstoffen-af)
+  > Ruim vijftig landen die willen minderen met fossiele brandstoffen komen in Colombia bij elkaar voor de Taff-conferentie. Olielanden zijn niet...
 
 ### Meest gelezen
 
