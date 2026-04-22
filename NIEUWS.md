@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-04-2026 om 21:00*
+*Laatst bijgewerkt: 22-04-2026 om 22:51*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Onrust rond de Perzische Golf raakt pensioenfondsen, maar vooralsnog beperkt](https://nos.nl/l/2611624)
+  > Nederlandse pensioenfondsen hebben last van de oorlog in de Perzische Golf. Door de onrust daalde de dekkingsgraad van ambtenarenpensioenfonds ABP in...
+- [Mexicaans tempelcomplex Teotihuacán weer geopend, onder zware beveiliging](https://nos.nl/l/2611619)
+  > Het Mexicaanse tempelcomplex Teotihuacán is onder zware beveiliging weer geopend voor bezoekers, enkele dagen na de dodelijke schietpartij. Bijna 300...
+- [Dertien Griekse parlementariërs verliezen immuniteit in fraudeonderzoek](https://nos.nl/l/2611618)
+  > In Griekenland is de juridische onschendbaarheid van dertien parlementariërs opgeheven, omdat ze verdacht worden van fraude. Een meerderheid van het...
 - [Rechter haalt hond met overgewicht uit huis in Haaksbergen: 'Verwaarlozing'](https://nos.nl/l/2611611)
   > Een 67-jarige man uit Haaksbergen moet afscheid nemen van zijn hond Lizzy. Het dier werd continu gevoerd en lijdt aan zwaar overgewicht. De...
 - [Steun in Kamer voor energieplan met goedkopere trein en lagere vrachtwagenheffing](https://nos.nl/l/2611610)
   > Ondanks kritiek is er in de Tweede Kamer brede steun voor de kabinetsplannen om de hoge energieprijzen te compenseren. Het kabinet ging mee mee in...
-- [Nederlands OM eist 30 jaar cel tegen Syriër die handlanger van Assad zou zijn](https://nos.nl/l/2611608)
-  > Het Nederlandse Openbaar Ministerie eist 30 jaar celstraf tegen een Syrische man die in 2013 en 2014 mensen zou hebben gemarteld in Syrië. Volgens...
-- [Duitse stichting wil honderden schedels uit koloniale tijd teruggeven](https://nos.nl/l/2611606)
-  > Een groep onderzoekers in Duitsland wil honderden uit West-Afrika meegenomen schedels teruggeven. Een Berlijnse stichting deed de afgelopen jaren...
-- [Bandenfabriek Enschede sluit, maar personeel kan zo weer aan de bak](https://nos.nl/l/2611603)
-  > Veel van de 500 mensen die eind juni hun baan verliezen bij de sluiting van bandenfabriek Apollo Vredestein in Enschede, kunnen elders aan het werk.
-...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Manchester City komt op gelijke hoogte met Arsenal, Hartman en Flemming degraderen met Burnley](https://www.ad.nl/voetbal/manchester-city-komt-op-gelijke-hoogte-met-arsenal-hartman-en-flemming-degraderen-met-burnley~aad2a741/)
+- [Bijzondere mijlpaal voor Frenkie de Jong bij FC Barcelona, Lamine Yamal loopt blessure op bij penalty](https://www.ad.nl/voetbal/bijzondere-mijlpaal-voor-frenkie-de-jong-bij-fc-barcelona-lamine-yamal-loopt-blessure-op-bij-penalty~a4deb854/)
+  > Frenkie de Jong heeft een bijzondere avond beleefd met FC Barcelona. De Oranje-international mag zich officieel de Nederlander noemen met de meeste...
+- [‘Vijf Palestijnen gedood bij Israëlische aanvallen in Gaza, onder wie drie kinderen’](https://www.ad.nl/buitenland/vijf-palestijnen-gedood-bij-israelische-aanvallen-in-gaza-onder-wie-drie-kinderen~ac528ac3/)
+  > Een Israëlische luchtaanval heeft woensdag vijf Palestijnen gedood in het noorden van de Gazastrook. Onder de slachtoffers zijn drie kinderen, hebben...
+- [Bayern München en Lazio naar bekerfinales, jonge keeper pakt vier penalty’s van Atalanta](https://www.ad.nl/voetbal/bayern-munchen-en-lazio-naar-bekerfinales-jonge-keeper-pakt-vier-penaltys-van-atalanta~ae260393/)
+  > Lazio heeft zich woensdagavond geplaatst voor de finale van de Coppa Italia. De club uit Rome speelt op woensdag 13 mei tegen Inter in de finale in...
+- [Arsenal is na 200 dagen koppositie kwijt aan Manchester City, Hartman en Flemming degraderen met Burnley](https://www.ad.nl/voetbal/arsenal-is-na-200-dagen-koppositie-kwijt-aan-manchester-city-hartman-en-flemming-degraderen-met-burnley~aad2a741/)
   > Manchester City is in de Premier League op gelijke hoogte gekomen met Arsenal. De ploeg van Pep Guardiola won woensdagavond met 0-1 op bezoek bij...
 - [Jude Bellingham ziet Jesper de Jong verliezen in eerste ronde van tennistoernooi Madrid](https://www.ad.nl/tennis/jude-bellingham-ziet-jesper-de-jong-verliezen-in-eerste-ronde-van-tennistoernooi-madrid~a97d4d95/)
   > Jesper de Jong is er niet in geslaagd om de tweede ronde te bereiken van het masterstoernooi van Madrid. De mondiale nummer 109 verloor na ruim 2,5...
-- [Paul Simonis dichtbij terugkeer naar Sparta, waar hij al vijftien jaar jeugdtrainer was](https://www.ad.nl/voetbal/paul-simonis-dichtbij-terugkeer-naar-sparta-waar-hij-al-vijftien-jaar-jeugdtrainer-was~a8517053/)
-  > Paul Simonis staat op het punt terug te keren in de Eredivisie. De 41-jarige coach is met Sparta Rotterdam, de club die hij als jeugdtrainer lang...
-- [Opmerkelijk moment: Lamine Yamal blesseert zich bij penalty en moet naar de kant](https://www.ad.nl/voetbal/opmerkelijk-moment-lamine-yamal-blesseert-zich-bij-penalty-en-moet-naar-de-kant~a4deb854/)
-  > FC Barcelona stevent af op de landstitel in Spanje en komt vanavond bij winst op Celta de Vigo weer negen punten boven achtervolger Real Madrid....
-- [Handhavingsdroom Telstar springlevend na klinkende zege op dramatisch Sparta](https://www.ad.nl/voetbal/handhavingsdroom-telstar-springlevend-na-klinkende-zege-op-dramatisch-sparta~a731fe4e/)
-  > De handhavingsdroom van Telstar in de eredivisie blijft springlevend. Sem van Duijn zorgde met twee treffers voor groot feest in Velsen-Zuid na de...
 
 ### Meest gelezen
 
@@ -47,15 +46,16 @@
 
 ### Laatste nieuws
 
-- [Wall Street opgelucht door verlengde wapenstilstand](https://fd.nl/bedrijfsleven/1594149/wall-street-opgelucht-door-verlengde-wapenstilstand)
-  > De wapenstilstand, die op zijn einde liep, gaat voorlopig nog even door. Geen verdere escalatie van het conflict dus, en dat is goed nieuws voor Wall...
-- [Beleggers zelf verantwoordelijk voor uitpluizen van mkb-bedrijven](https://fd.nl/opinie/1594134/beleggers-zelf-verantwoordelijk-voor-uitpluizen-van-mkb-bedrijven)
-  > Van beleggers mag een zekere verantwoordelijkheid verwacht worden. Als iets te mooi is om waar te zijn, dan is dat ook zo.
-- [ABN Amro verwacht lagere groei voor bouwmarkten](https://fd.nl/bedrijfsleven/1594148/abn-amro-verwacht-lagere-groei-voor-bouwmarkten)
-- [ILO: jaarlijks 840.000 slachtoffers door slechte werkomgeving](https://fd.nl/samenleving/1594187/ilo-jaarlijks-840-000-slachtoffers-door-slechte-werkomgeving)
-  > Internationale arbeidsorganisatie ILO schat dat psychosociale problemen op het werk jaarlijks 1,37% van het wereldwijde bbp kosten.
-- [Kabinet houdt poot stijf: geen accijnsverlaging brandstof](https://fd.nl/politiek/1594147/kamer-mort-maar-dwingt-slechts-kleine-uitbreiding-energiepakket-af)
-  > Een groot deel van de oppositie wilde dat het kabinet ingrijpt om tanken goedkoper te maken, maar wist dat woensdag niet af te dwingen. Een voorstel...
+- [Goed nieuws?](https://fd.nl/opinie/1594189/goed-nieuws)
+  > Slimmer, sneller en efficiënter werken is immers de belangrijkste sleutel tot onze welvaart.
+- [Noodlijdende ondernemers maken er vaak een potje van](https://fd.nl/bedrijfsleven/1594122/noodlijdende-ondernemers-maken-er-vaak-een-potje-van)
+  > Adviseurs signaleren een gebrek aan gedegen financiële en commerciële kennis. ‘Soms maken ze wel omzet, maar zijn ze geen geld aan het verdienen. Van...
+- [Markt voor vakantiehuizen koelt in hoog tempo af](https://fd.nl/bedrijfsleven/1593998/markt-voor-vakantiehuizen-koelt-in-hoog-tempo-af)
+  > Particulieren en beleggers zetten onrendabele vakantiehuisjes massaal te koop, makelaars verwachten prijsdalingen.
+- [De ‘kolonie’ Groningen profiteerde al die jaren zelf volop van de gasbaten](https://fd.nl/opinie/1593294/de-kolonien-profiteerden-zelf-volop-van-de-gasbaten)
+  > Anders dan wordt voorgesteld zijn de noordelijke provincies geen wingewesten of ‘pinautomaat van de Randstad’. Dit soort koloniale retoriek is...
+- [Personalia donderdag 23 april](https://fd.nl/bedrijfsleven/1594139/personalia-donderdag-23-april)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
