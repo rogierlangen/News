@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-04-2026 om 17:07*
+*Laatst bijgewerkt: 22-04-2026 om 19:20*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Taakstraf en boete voor man die met drones drugs dropte in gevangenissen](https://nos.nl/l/2611582)
-  > Een 34-jarige man uit Rijsenhout is veroordeeld tot een taakstraf van 120 uur een boete van 10.000 euro (waarvan de helft voorwaardelijk) en een...
-- [Lof en harde kritiek in Tweede Kamer voor energiemaatregelen van het kabinet](https://nos.nl/l/2611579)
-  > "Een flutpakket", "een druppel op de gloeiende plaat", "onbegrijpelijk" en "miezerig". Maar ook "best goed", "verstandig" en "een goed idee". De...
-- [Opnieuw drie veroordelingen voor rellen bij asielprotest op Haagse Malieveld](https://nos.nl/l/2611577)
-  > De rechtbank in Den Haag heeft opnieuw drie mensen veroordeeld voor de rellen bij het asielprotest in september vorig jaar. Bij die rellen werd zwaar...
-- [Tweede militair VN-vredesmacht overlijdt na aanval tijdens wapenstilstand](https://nos.nl/l/2611576)
-  > Een tweede slachtoffer van de aanslag op militairen van de VN-vredesmacht Unifil in Libanon is vanochtend overleden. Dat meldt de Franse president...
-- [Brandstof delen en meer elektriciteit produceren: zo wil Europa de energiecrisis aanpakken](https://nos.nl/l/2611572)
-  > In de strijd tegen de stijgende energieprijzen wil de Europese Commissie in kaart brengen wat de brandstofvoorraden van alle EU-lidstaten zijn....
+- [Rechter stelt omwonenden in ongelijk, asielopvang in Loosdrecht kan doorgaan](https://nos.nl/l/2611600)
+  > Humane opvang van asielzoekers weegt zwaarder dan het belang van omwonenden om daar inspraak in te hebben. Tot die conclusie komt de rechter nadat...
+- [Het stroomnet gaat voor het eerst helemaal op slot: wat zijn de gevolgen?](https://nos.nl/l/2611599)
+  > Het gaat in Nederland vaak over de problemen op het stroomnet, maar een aansluitstop zoals er op 1 juli in de regio Utrecht komt, is nieuw. Voor...
+- [Politiemedewerker verdacht van verkrachting tienermeisje in Nieuwegein](https://nos.nl/l/2611598)
+  > Een medewerker van de politie wordt ervan verdacht eind vorig jaar een tienermeisje te hebben verkracht in Nieuwegein. Dat bevestigt het Openbaar...
+- [Huurverhoging valt bewoners van grootste flat van Nederland rauw op het dak](https://nos.nl/l/2611597)
+  > Veel van de meer dan 1500 bewoners van twee enorme flatgebouwen in Zeist zijn woedend over een aangekondigde huurverhoging. Ze wijzen er op dat ze...
+- [Kabinet kijkt naar goedkoop ov-ticket zoals in Duitsland, dit leverde het daar op](https://nos.nl/l/2611596)
+  > Het wordt in Duitsland de 'grootste ov-revolutie' ooit genoemd: het Deutschlandticket. Voor een vast laag bedrag per maand onbeperkt met het ov...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Opnieuw meerdere lhbti-organisaties van Instagram gegooid, onduidelijk waarom: ‘We tasten in het duister’](https://www.ad.nl/binnenland/opnieuw-meerdere-lhbti-organisaties-van-instagram-gegooid-onduidelijk-waarom-we-tasten-in-het-duister~af9198a6/)
-  > Opnieuw raken veel lhbti-organisaties en andere minderheidsgroepen de toegang kwijt tot hun Instagramaccounts. Bij meldpunt Repro Uncensored kwamen...
-- [Willem-Alexander weer op de schaatsen? Dokkum legt ijsvloer aan voor ‘Elfstedensfeer’ op Koningsdag](https://www.ad.nl/show/willem-alexander-weer-op-de-schaatsen-dokkum-legt-ijsvloer-aan-voor-elfstedensfeer-op-koningsdag~a729c4aa/)
-  > Bij koning Willem-Alexander staat Dokkum waarschijnlijk vooral in het geheugen gegrift als de plek waar hij in 1986 de Elfstedentocht reed. En dus...
-- [Rob Jetten heeft mazzel dat de oppositie zelf heeft gefaald](https://www.ad.nl/binnenland/rob-jetten-heeft-mazzel-dat-de-oppositie-zelf-heeft-gefaald~aa83de18/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Chelsea ontslaat Liam Rosenior al na vier maanden: trainer had nog contract tot medio 2032](https://www.ad.nl/voetbal/chelsea-ontslaat-liam-rosenior-al-na-vier-maanden-trainer-had-nog-contract-tot-medio-2032~ae2b1fea/)
-  > Liam Rosenior is al na vier maanden ontslagen als trainer van Chelsea. Dinsdagavond verloor de club uit Londen voor de zevende keer in acht duels,...
-- [Raisa Blommestijn had verbijsterende dubbelrol bij ontslag ON!-oprichter Arnold Karskens, oordeelt Hof](https://www.ad.nl/show/raisa-blommestijn-had-verbijsterende-dubbelrol-bij-ontslag-on-oprichter-arnold-karskens-oordeelt-hof~aa4ce1e6/)
-  > Het interne onderzoek dat werd gebruikt om het ontslag van Arnold Karskens bij publieke omroep Ongehoord Nederland (ON!) te rechtvaardigen is volgens...
+- [Wayne (12) kwam om het leven bij ongeluk in Steyl, tiener redde ‘in laatste daad van liefde’ vier mensenlevens](https://www.ad.nl/binnenland/wayne-12-kwam-om-het-leven-bij-ongeluk-in-steyl-tiener-redde-in-laatste-daad-van-liefde-vier-mensenlevens~a51e429e/)
+  > De jongen die afgelopen weekend om het leven kwam bij een aanrijding in het Limburgse Steyl is de 12-jarige Wayne Bastiaans. De tiener heeft in ‘zijn...
+- [Haaland zet City snel op voorsprong tegen Burnley, Hartman en Flemming missen kansen](https://www.ad.nl/voetbal/haaland-zet-city-snel-op-voorsprong-tegen-burnley-hartman-en-flemming-missen-kansen~aad2a741/)
+  > Manchester City komt vanavond in punten gelijk met Arsenal als het de uitwedstrijd bij Burnley wint. Als dat gebeurt, betekent dat ook degradatie...
+- [Telefoonnummer 1 tot 5 dollar, ID-nummers meer: wat zijn gehackte gegevens eigenlijk waard online?](https://www.ad.nl/binnenland/telefoonnummer-1-tot-5-dollar-id-nummers-meer-wat-zijn-gehackte-gegevens-eigenlijk-waard-online~afd082da/)
+  > Na de massaclaim tegen internetprovider Odido krijgen gedupeerden van het datalek honderden euro’s, als het aan de eisers ligt. De vraag is: wat zijn...
+- [Met belofte over goedkope treinkaart, en sussende teksten, manoeuvreert Jetten door energiedebat](https://www.ad.nl/politiek/met-belofte-over-goedkope-treinkaart-en-sussende-teksten-manoeuvreert-jetten-door-energiedebat~a3731e8c/)
+  > De spaarzame houding van het kabinet blijft voorlopig staan. Oppositiepartijen roepen hard om meer compensatie voor de gestegen brandstofprijzen. De...
+- [Het ging uit tussen Esther en ‘bonusvader’ Ramon: ‘De oudste zei laatst: we redden ons wel zonder man thuis’](https://www.ad.nl/mezza/het-ging-uit-tussen-esther-en-bonusvader-ramon-de-oudste-zei-laatst-we-redden-ons-wel-zonder-man-thuis~a0781cdf/)
+  > Na de plotselinge dood van haar man vond Esther (47) via een datingsite opnieuw de liefde bij Ramon. ‘Ik miste de romantiek’, vertelt ze in deze...
 
 ### Meest gelezen
 
@@ -46,16 +46,15 @@
 
 ### Laatste nieuws
 
+- [Beleggers zelf verantwoordelijk voor uitpluizen van mkb-bedrijven](https://fd.nl/opinie/1594134/beleggers-zelf-verantwoordelijk-voor-uitpluizen-van-mkb-bedrijven)
+  > Van beleggers mag een zekere verantwoordelijkheid verwacht worden. Als iets te mooi is om waar te zijn, dan is dat ook zo.
+- [ABN Amro verwacht lagere groei voor bouwmarkten](https://fd.nl/bedrijfsleven/1594148/abn-amro-verwacht-lagere-groei-voor-bouwmarkten)
+- [ILO: jaarlijks 840.000 slachtoffers door slechte werkomgeving](https://fd.nl/samenleving/1594187/ilo-jaarlijks-840-000-slachtoffers-door-slechte-werkomgeving)
+  > Internationale arbeidsorganisatie ILO schat dat psychosociale problemen op het werk jaarlijks 1,37% van het wereldwijde bbp kosten.
 - [Kamer mort, maar dwingt slechts kleine uitbreiding energiepakket af](https://fd.nl/politiek/1594147/kamer-mort-maar-dwingt-slechts-kleine-uitbreiding-energiepakket-af)
   > Een groot deel van de oppositie wilde dat het kabinet ingrijpt om tanken goedkoper te maken, maar wist dat woensdag niet af te dwingen. Alleen een...
 - [Luchtvaartmaatschappijen moeten vrezen voor lucratieve landingstijden door annuleringen](https://fd.nl/bedrijfsleven/1594186/luchtvaartmaatschappijen-moeten-vrezen-voor-lucratieve-landingstijden-door-annuleringen)
   > Nu luchtvaartmaatschappijen vluchten moeten schrappen door hoge kerosineprijzen, zijn hun landingsrechten niet meer zeker.
-- [Critici missen ‘woekertaks’ voor oliebedrijven in Brussels energieplan](https://fd.nl/politiek/1594183/critici-missen-woekertaks-voor-oliebedrijven-in-brussels-energieplan)
-  > De Europese Commissie hamert op snellere elektrificatie om de afhankelijkheid van fossiele brandstoffen af te bouwen. Die oproep krijgt bijval, maar...
-- [Het vlot nog niet erg met de kopjes koffie van Jetten](https://fd.nl/politiek/1594181/het-vlot-nog-niet-erg-met-de-kopjes-koffie-van-jetten)
-  > De oppositie laat geen gelegenheid onbenut om hardop te vertellen wat ze vindt van de bezuinigingen en lastenverhogingen. Achter de schermen moet...
-- [Belgische brouwer Duvel Moortgat koopt twee Amerikaanse biermerken](https://fd.nl/bedrijfsleven/1594182/belgische-brouwer-duvel-moortgat-koopt-twee-amerikaanse-biermerken)
-  > Het betreft biermerk Stone, dat Duvel Moortgat overneemt van de Japanse brouwer Sapporo, en het pilsmerk Trumer, dat wordt overgenomen van brouwerij...
 
 ### Meest gelezen
 
