@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-04-2026 om 02:56*
+*Laatst bijgewerkt: 22-04-2026 om 05:31*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Wekdienst 22/4: Helm weer te zien in Roemenië • Kamerdebat compensatie energieprijzen](https://nos.nl/l/2611513)
+  > Goedemorgen! De gestolen Roemeense gouden helm en twee armbanden zijn weer te zien in een museum in Boekarest en in de Tweede Kamer is een debat over...
+- [Trump verlengt eenzijdig bestand met Iran, geen nieuwe aanvallen gemeld](https://nos.nl/l/2611510)
+  > De Amerikaanse president Trump zegt dat het bestand met Iran wordt verlengd. Het tijdelijke staakt-het-vuren blijft gelden totdat Iran een...
 - [Dode door steekincident Hoensbroek](https://nos.nl/l/2611509)
   > In Hoensbroek, in Limburg, is gisteravond een man om het leven gekomen bij een steekincident. Dat gebeurde rond 22.30 uur in een woning. 
         De...
 - [Verenigd Koninkrijk verbiedt tabak voor iedereen geboren na 2008](https://nos.nl/l/2611508)
   > Britse kinderen en jongeren onder de 18 zullen nooit in hun leven legaal sigaretten kunnen kopen. Een wet daarvoor is aangenomen door het Britse...
 - [Ov-kortingskaart in beeld als maatregel tegen energiecrisis](https://nos.nl/l/2611507)
-  > Er komt komende zomer mogelijk een speciale kortingskaart voor het openbaar vervoer. Voor een vast bedrag per maand kunnen mensen dan drie maanden...
-- [Opnieuw onrustig anti-azc-protest Loosdrecht, twee aanhoudingen](https://nos.nl/l/2611506)
-  > Voor de tweede avond op rij is er in Loosdrecht gedemonstreerd tegen de komst van een noodopvang voor asielzoekers. De Mobiele Eenheid heeft charges...
-- [Letschert onder vuur om aanpak pro-Palestinaprotest op universiteit Maastricht](https://nos.nl/l/2611505)
-  > Minister Letschert van Onderwijs is onder vuur komen te liggen van een deel van de Tweede Kamer. Vooral rechtse partijen hadden kritiek op haar...
+  > Er komt komende zomer mogelijk een speciale kortingskaart voor het openbaar vervoer. Voor 49 euro per maand kunnen mensen dan drie maanden lang...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Burgemeester Utrecht: we gaan het er niet bij laten zitten](https://www.ad.nl/utrecht/burgemeester-utrecht-we-gaan-het-er-niet-bij-laten-zitten~a54e8832/)
-  > De Utrechtse burgemeester Sharon Dijksma noemt de aangekondigde stop op stroomnetaansluitingen ‘een bittere pil’. Dat schrijft zij op Instagram.
-- [Politie waarschuwt voor nepklusjesmannen: ‘Ze saboteren je huis en eisen geld via QR-code’](https://www.ad.nl/binnenland/politie-waarschuwt-voor-nepklusjesmannen-ze-saboteren-je-huis-en-eisen-geld-via-qr-code~a6b816397/)
-  > Wie met spoed een elektricien, loodgieter of dakdekker zoekt, dreigt in de valkuil te lopen van criminelen. De politie waarschuwt in een interview...
-- [Alligator Alcatraz, het beruchte dententiecentrum in Florida, mag van de rechter open blijven](https://www.ad.nl/buitenland/alligator-alcatraz-het-beruchte-dententiecentrum-in-florida-mag-van-de-rechter-open-blijven~ae67dd9c/)
-  > Een Amerikaans hof van beroep heeft bepaald dat ‘Alligator Alcatraz’, een berucht detentiecentrum voor immigranten in Florida, toch niet hoeft te...
-- [Politie grijpt opnieuw in bij azc-protest Loosdrecht](https://www.ad.nl/binnenland/politie-grijpt-opnieuw-in-bij-azc-protest-loosdrecht~a8d0ed90/)
-  > De mobiele eenheid heeft opnieuw moeten ingrijpen bij een demonstratie tegen de opvang van asielzoekers in Loosdrecht. Er zijn minstens twee personen...
-- [Josh Groban vraagt vriendin ten huwelijk in Disneyland](https://www.ad.nl/show/josh-groban-vraagt-vriendin-ten-huwelijk-in-disneyland~a7b46277/)
-  > De Amerikaanse zanger en acteur Josh Groban en de Engelse toneelactrice Natalie McQueen gaan trouwen. Het duo liet dat dinsdag weten via Instagram.
+- [‘Aartsluie’ premier op dood spoor: hoe Keir Starmer de meest gehate man van het VK werd](https://www.ad.nl/buitenland/aartsluie-premier-op-dood-spoor-hoe-keir-starmer-de-meest-gehate-man-van-het-vk-werd~a88e6f3d/)
+  > De nasleep van het Mandelson-schandaal zet de Britse premier Keir Starmer op een dood spoor. Met de meest gehate man van het Verenigd Koninkrijk aan...
+- [Kabinet onderzoekt of Kanye West toch geweigerd kan worden](https://www.ad.nl/show/kabinet-onderzoekt-of-kanye-west-toch-geweigerd-kan-worden~a4a38484/)
+  > Het kabinet onderzoekt of de Amerikaanse rapper Ye, voorheen bekend als Kanye West, toch geweigerd kan worden. Minister David van Weel (Veiligheid,...
+- [Ayase Ueda en Mika Godts hebben betere statistieken, maar Ismael Saibari maakt pas écht het verschil](https://www.ad.nl/voetbal/ayase-ueda-en-mika-godts-hebben-betere-statistieken-maar-ismael-saibari-maakt-pas-echt-het-verschil~aebf787f/)
+  > Ayase Ueda wordt dit seizoen topscorer van de eredivisie. Kijk je naar goals plus assists, dan gaat momenteel Mika Godts aan kop. Maar er is één man...
+- [Politie schiet persoon die dreigde met mes neer in Tiel: slachtoffer naar het ziekenhuis](https://www.ad.nl/tiel/politie-schiet-persoon-die-dreigde-met-mes-neer-in-tiel-slachtoffer-naar-het-ziekenhuis~a2b85259/)
+  > Op de Lutterveldweg in Tiel heeft de politie ingegrepen bij een incident met een verward persoon, die mogelijk met een mes dreigde. Daarbij heeft een...
+- [Zware explosies bij plofkraak in Haarlem: pand zwaar beschadigd](https://www.ad.nl/112-nieuws-haarlem/zware-explosies-bij-plofkraak-in-haarlem-pand-zwaar-beschadigd~aa6a53f6/)
+  > Bij een plofkraak op een geldautomaat aan de Santpoorterstraat in Haarlem is afgelopen nacht grote schade ontstaan. Omwonenden werden opgeschrikt...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Voorspelbare chaos](https://fd.nl/opinie/1594021/voorspelbare-chaos)
-  > Concurrentie tussen banken wordt door het IBAN kunstmatig beperkt. Pak het aan in een kapitaalmarktunie, stelt FD-columnist Mathijs Bouman voor.
-- [Unica gaat stug door met overnames](https://fd.nl/bedrijfsleven/1594002/unica-gaat-stug-door-met-overnames)
-  > De omzet bij het installatiebedrijf passeert voor het eerst de grens van €1 mrd, gedreven door overnames en een grotere vraag. Het bedrijf uit...
-- [Overprikkeld zijn is een kwestie van aandacht](https://fd.nl/opinie/1593970/overprikkeld-zijn-is-een-kwestie-van-aandacht)
-  > We voelen ons snel overprikkeld, maar ligt dat echt aan te veel prikkels – of aan hoe ons brein ermee omgaat?
-- [Benoeming Warsh tot Fed-voorzitter komt bij hoorzitting Senaat niet dichterbij](https://fd.nl/financiele-markten/1594026/benoeming-warsh-tot-fed-voorzitter-komt-bij-hoorzitting-senaat-niet-dichterbij)
-  > De weg naar het Fed-voorzitterschap is nog altijd geblokkeerd voor Kevin Warsh.
-- [AI-giganten moeten nog sneller bedrijfsobligaties uitzetten om hun miljardeninvesteringen te financieren](https://fd.nl/financiele-markten/1594082/ai-giganten-moeten-nog-sneller-bedrijfsobligaties-uitzetten-om-hun-miljardeninvesteringen-te-financieren)
-  > Alphabet, Microsoft, Oracle, Amazon en Meta haalden de eerste drie maanden van dit jaar vrijwel evenveel geld op met obligaties als in heel 2025.
+- [AkzoNobel houdt marges op peil ondanks Iran-oorlog](https://fd.nl/bedrijfsleven/1594115/akzonobel-houdt-marges-op-peil-ondanks-iran-oorlog)
+  > De verf- en coatingmaker slaagt erin hogere grondstoffenprijzen door te berekenen aan klanten. De omzet daalde in het eerste kwartaal licht.
+- [Iran-oorlog raakt Vopak nog niet, tankopslagbedrijf handhaaft de verwachtingen](https://fd.nl/bedrijfsleven/1593974/iran-oorlog-raakt-vopak-nog-niet-tankopslagbedrijf-handhaaft-de-verwachtingen)
+  > Het tankopslagbedrijf boekte in het eerste kwartaal een brutobedrijfsresultaat van €295 mln. Analisten gingen uit van €286 mln.
+- [Live: Trump stuurt wederom de financiële markten](https://fd.nl/financiele-markten/1594031/live-trump-stuurt-wederom-de-financiele-markten)
+  > Zonder een hervatting van het overleg verlengt de Amerikaanse president Trump op het laatste moment de wapenstilstand.
+- [Minister benadrukt: natuurvergunning is absolute voorwaarde voor opening Lelystad Airport](https://fd.nl/politiek/1594033/minister-benadrukt-natuurvergunning-is-absolute-voorwaarde-voor-opening-lelystad-airport)
+  > Partijen reageerden verbaasd op het feit dat infrastructuurminister Vincent Karremans (VVD) al een datum had voorgesteld om de luchthaven te openen.
+- [Alex van Warmerdam, ontregelende perfectionist](https://fd.nl/samenleving/1593481/alex-van-warmerdam-ontregelende-perfectionist)
+  > Alex van Warmerdam is regisseur, acteur, schrijver, dichter en componist. En dat alles met het fileermes. Profiel van een homo universalis.
 
 ### Meest gelezen
 
