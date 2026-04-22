@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-04-2026 om 05:31*
+*Laatst bijgewerkt: 22-04-2026 om 07:56*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Vol stroomnet Utrecht is een bittere pil: 'Waardeloos dat dit nodig is'](https://nos.nl/l/2611522)
+  > "Een bittere pil voor Utrecht", noemt burgemeester Sharon Dijksma het volle stroomnet in haar stad. De voorzitter van de Nederlandse Vereniging...
+- [Kabinet onderzoekt of Kanye West toch geweigerd kan worden](https://nos.nl/l/2611521)
+  > Het kabinet onderzoekt of rapper Kanye West, ook bekend als Ye, toch geweigerd kan worden. Minister Van den Brink van Asiel en Migratie laat bekijken...
+- [Grote zorgen onder Nederlanders over persoonlijke financiën door oorlog in Midden-Oosten](https://nos.nl/l/2611517)
+  > De oorlog in het Midden-Oosten raakt inmiddels ook het vertrouwen van Nederlandse consumenten. Vanwege zorgen over stijgende prijzen, bijvoorbeeld...
 - [Wekdienst 22/4: Helm weer te zien in Roemenië • Kamerdebat compensatie energieprijzen](https://nos.nl/l/2611513)
   > Goedemorgen! De gestolen Roemeense gouden helm en twee armbanden zijn weer te zien in een museum in Boekarest en in de Tweede Kamer is een debat over...
 - [Trump verlengt eenzijdig bestand met Iran, geen nieuwe aanvallen gemeld](https://nos.nl/l/2611510)
   > De Amerikaanse president Trump zegt dat het bestand met Iran wordt verlengd. Het tijdelijke staakt-het-vuren blijft gelden totdat Iran een...
-- [Dode door steekincident Hoensbroek](https://nos.nl/l/2611509)
-  > In Hoensbroek, in Limburg, is gisteravond een man om het leven gekomen bij een steekincident. Dat gebeurde rond 22.30 uur in een woning. 
-        De...
-- [Verenigd Koninkrijk verbiedt tabak voor iedereen geboren na 2008](https://nos.nl/l/2611508)
-  > Britse kinderen en jongeren onder de 18 zullen nooit in hun leven legaal sigaretten kunnen kopen. Een wet daarvoor is aangenomen door het Britse...
-- [Ov-kortingskaart in beeld als maatregel tegen energiecrisis](https://nos.nl/l/2611507)
-  > Er komt komende zomer mogelijk een speciale kortingskaart voor het openbaar vervoer. Voor 49 euro per maand kunnen mensen dan drie maanden lang...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘Aartsluie’ premier op dood spoor: hoe Keir Starmer de meest gehate man van het VK werd](https://www.ad.nl/buitenland/aartsluie-premier-op-dood-spoor-hoe-keir-starmer-de-meest-gehate-man-van-het-vk-werd~a88e6f3d/)
-  > De nasleep van het Mandelson-schandaal zet de Britse premier Keir Starmer op een dood spoor. Met de meest gehate man van het Verenigd Koninkrijk aan...
-- [Kabinet onderzoekt of Kanye West toch geweigerd kan worden](https://www.ad.nl/show/kabinet-onderzoekt-of-kanye-west-toch-geweigerd-kan-worden~a4a38484/)
-  > Het kabinet onderzoekt of de Amerikaanse rapper Ye, voorheen bekend als Kanye West, toch geweigerd kan worden. Minister David van Weel (Veiligheid,...
-- [Ayase Ueda en Mika Godts hebben betere statistieken, maar Ismael Saibari maakt pas écht het verschil](https://www.ad.nl/voetbal/ayase-ueda-en-mika-godts-hebben-betere-statistieken-maar-ismael-saibari-maakt-pas-echt-het-verschil~aebf787f/)
-  > Ayase Ueda wordt dit seizoen topscorer van de eredivisie. Kijk je naar goals plus assists, dan gaat momenteel Mika Godts aan kop. Maar er is één man...
-- [Politie schiet persoon die dreigde met mes neer in Tiel: slachtoffer naar het ziekenhuis](https://www.ad.nl/tiel/politie-schiet-persoon-die-dreigde-met-mes-neer-in-tiel-slachtoffer-naar-het-ziekenhuis~a2b85259/)
-  > Op de Lutterveldweg in Tiel heeft de politie ingegrepen bij een incident met een verward persoon, die mogelijk met een mes dreigde. Daarbij heeft een...
-- [Zware explosies bij plofkraak in Haarlem: pand zwaar beschadigd](https://www.ad.nl/112-nieuws-haarlem/zware-explosies-bij-plofkraak-in-haarlem-pand-zwaar-beschadigd~aa6a53f6/)
-  > Bij een plofkraak op een geldautomaat aan de Santpoorterstraat in Haarlem is afgelopen nacht grote schade ontstaan. Omwonenden werden opgeschrikt...
+- [Flemming wordt ‘babs’ voor 100% NL Trouwmarathon: ‘Spannender dan zingen’](https://www.ad.nl/show/flemming-wordt-babs-voor-100-nl-trouwmarathon-spannender-dan-zingen~a8d25ee0/)
+  > Giorgio Hokstam en Ingrid Jansen hebben Flemming gestrikt als ‘babs’ voor de 100% NL Trouwmarathon, die op 2 juni plaatsvindt. Dat heeft de 30-jarige...
+- [Luisteraar Thom ontmaskert de Fluisteraar op Radio Veronica en wint bijna 25.000 euro: ‘Ik ga met pensioen’](https://www.ad.nl/show/luisteraar-thom-ontmaskert-de-fluisteraar-op-radio-veronica-en-wint-bijna-25-000-euro-ik-ga-met-pensioen~a3898c80/)
+  > De 25-jarige Thom uit Emmen heeft woensdagochtend geraden wie de Fluisteraar op Radio Veronica is. Daarmee won hij maar liefst 24.800 euro. Wie zat...
+- [Grote zorgen onder Nederlanders over eigen geld, vertrouwen daalt flink door oorlog in Midden-Oosten](https://www.ad.nl/economie/grote-zorgen-onder-nederlanders-over-eigen-geld-vertrouwen-daalt-flink-door-oorlog-in-midden-oosten~a7fab7b3/)
+  > Het consumentenvertrouwen in Nederland is hard gedaald. De vertrouwensgraadmeter van het Centraal Bureau voor de Statistiek (CBS) laat de op een na...
+- [57 palen op de stoep voor vleermuizen zorgen voor woede op bedrijventerrein: 'Pure waanzin'](https://www.ad.nl/binnenland/57-palen-op-de-stoep-voor-vleermuizen-zorgen-voor-woede-op-bedrijventerrein-pure-waanzin~a345521c/)
+  > ‘Huh, wat is dat?’ Dat dachten ondernemers toen zij ’s ochtends bij hun zaak aankwamen. Pal voor hun deuren staan ineens meerdere palen met een net...
+- [Deze ‘handige’ ondernemer (47) zet Giethoorn op z’n kop: ‘Hij is een kleine ramp’](https://www.ad.nl/binnenland/deze-handige-ondernemer-47-zet-giethoorn-op-zn-kop-hij-is-een-kleine-ramp~ab9126ec/)
+  > Hij verhuurt boten zonder er een vergunning voor te bezitten. Chris Mulder (47) uit Apeldoorn bouwde met slimme online marketing een imperium op in...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [AkzoNobel houdt marges op peil ondanks Iran-oorlog](https://fd.nl/bedrijfsleven/1594115/akzonobel-houdt-marges-op-peil-ondanks-iran-oorlog)
-  > De verf- en coatingmaker slaagt erin hogere grondstoffenprijzen door te berekenen aan klanten. De omzet daalde in het eerste kwartaal licht.
-- [Iran-oorlog raakt Vopak nog niet, tankopslagbedrijf handhaaft de verwachtingen](https://fd.nl/bedrijfsleven/1593974/iran-oorlog-raakt-vopak-nog-niet-tankopslagbedrijf-handhaaft-de-verwachtingen)
-  > Het tankopslagbedrijf boekte in het eerste kwartaal een brutobedrijfsresultaat van €295 mln. Analisten gingen uit van €286 mln.
-- [Live: Trump stuurt wederom de financiële markten](https://fd.nl/financiele-markten/1594031/live-trump-stuurt-wederom-de-financiele-markten)
-  > Zonder een hervatting van het overleg verlengt de Amerikaanse president Trump op het laatste moment de wapenstilstand.
-- [Minister benadrukt: natuurvergunning is absolute voorwaarde voor opening Lelystad Airport](https://fd.nl/politiek/1594033/minister-benadrukt-natuurvergunning-is-absolute-voorwaarde-voor-opening-lelystad-airport)
-  > Partijen reageerden verbaasd op het feit dat infrastructuurminister Vincent Karremans (VVD) al een datum had voorgesteld om de luchthaven te openen.
-- [Alex van Warmerdam, ontregelende perfectionist](https://fd.nl/samenleving/1593481/alex-van-warmerdam-ontregelende-perfectionist)
-  > Alex van Warmerdam is regisseur, acteur, schrijver, dichter en componist. En dat alles met het fileermes. Profiel van een homo universalis.
+- [Nationale Theater-directeur John de Weerd: ‘Stippel geen pad uit’](https://fd.nl/samenleving/1593923/nationale-theater-directeur-john-de-weerd-stippel-geen-pad-uit)
+  > Kunstenaar op kantoor, maandagochtendblues. Wat maken professionals mee in hun loopbaan? Deze week: John de Weerd (1983), directeur theater van Het...
+- [Consumentenvertrouwen zakt in april naar dieptepunt](https://fd.nl/economie/1594117/consumentenvertrouwen-zakt-in-april-naar-dieptepunt)
+  > Alleen aan het begin van de coronapandemie was de daling van het vertrouwen groter, aldus het CBS.
+- [Sanctieregels gelden wél voor crypto-activa, het probleem zit in de handhaving](https://fd.nl/opinie/1593851/sanctieregels-gelden-wel-voor-crypto-activa-het-grote-probleem-zit-in-de-handhaving-ervan)
+  > Wie denkt dat met crypto sancties makkelijk te omzeilen zijn, komt bedrogen uit. Regels sluiten namelijk handhaving niet uit, maar in de praktijk...
+- [Filigrein: de traditie van verfijning](https://fd.nl/samenleving/1593849/filigrein-de-traditie-van-verfijning)
+  > Het oude ambacht filigrein, bekend van de Zeeuwse knop, dreigt te verdwijnen. ‘Helaas is er niemand die kan wat ik doe.’
+- [Lufthansa schrapt 20.000 Europese vluchten door hoge brandstofprijzen](https://fd.nl/samenleving/1594116/lufthansa-schrapt-20-000-europese-vluchten-door-hoge-brandstofprijzen)
+  > Lufthansa spreekt van ‘onrendabele routes’ in Frankfurt en München.
 
 ### Meest gelezen
 
