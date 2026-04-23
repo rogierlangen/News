@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-04-2026 om 23:49*
+*Laatst bijgewerkt: 23-04-2026 om 03:19*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Enkele Congresleden VS overwegen gratie aan Ghislaine Maxwell in ruil voor informatie over Epstein](https://www.ad.nl/buitenland/enkele-congresleden-vs-overwegen-gratie-aan-ghislaine-maxwell-in-ruil-voor-informatie-over-epstein~ae67dd9c/)
+  > Sommige leden van de Toezichtscommissie, de belangrijkste onderzoekscommissie van het Amerikaanse Huis van Afgevaardigden, overwegen presidentiële...
+- [Verenigd Koninkrijk en Frankrijk sluiten nieuwe driejarige deal om migrantenoversteek in te perken](https://www.ad.nl/buitenland/verenigd-koninkrijk-en-frankrijk-sluiten-nieuwe-driejarige-deal-om-migrantenoversteek-in-te-perken~a9086871/)
+  > Het Verenigd Koninkrijk en Frankrijk hebben een nieuwe driejarige overeenkomst gesloten om te voorkomen dat migranten zonder geldige...
+- [Telefoon gebruiken in auto leidt tot ongelukken, maar we kunnen het niet laten](https://www.ad.nl/auto/telefoon-gebruiken-in-auto-leidt-tot-ongelukken-maar-we-kunnen-het-niet-laten~a759459e/)
+  > Hoewel het smartphonegebruik in het verkeer voor het eerst sinds jaren niet meer stijgt, blijft de impact op de verkeersveiligheid alarmerend groot....
+- [ME grijpt in bij nieuw protest tegen opvang asielzoekers in Loosdrecht: meerdere aanhoudingen, agent gewond](https://www.ad.nl/binnenland/me-grijpt-in-bij-nieuw-protest-tegen-opvang-asielzoekers-in-loosdrecht-meerdere-aanhoudingen-agent-gewond~a1c48bee/)
+  > De mobiele eenheid heeft woensdagavond opgetreden bij een azc-protest in Loosdrecht. Het is voor de derde avond op rij dat in de Noord-Hollandse...
 - [Voetbalpodcast | ‘Er is flink gevloekt in Almelo, Rotterdam, Breda en Volendam’](https://www.ad.nl/voetbal/voetbalpodcast-er-is-flink-gevloekt-in-almelo-rotterdam-breda-en-volendam~ac8603a9/)
   > De strijd tegen degradatie wordt ongemeen spannend. Met de zege van Telstar op Sparta zet de ploeg een enorme stap naar lijfsbehoud. Dit weekend kan...
-- [Bijzondere mijlpaal voor Frenkie de Jong bij FC Barcelona, Lamine Yamal loopt blessure op bij penalty](https://www.ad.nl/voetbal/bijzondere-mijlpaal-voor-frenkie-de-jong-bij-fc-barcelona-lamine-yamal-loopt-blessure-op-bij-penalty~a4deb854/)
-  > Frenkie de Jong heeft een bijzondere avond beleefd met FC Barcelona. De Oranje-international mag zich officieel de Nederlander noemen met de meeste...
-- [‘Vijf Palestijnen gedood bij Israëlische aanvallen in Gaza, onder wie drie kinderen’](https://www.ad.nl/buitenland/vijf-palestijnen-gedood-bij-israelische-aanvallen-in-gaza-onder-wie-drie-kinderen~ac528ac3/)
-  > Een Israëlische luchtaanval heeft woensdag vijf Palestijnen gedood in het noorden van de Gazastrook. Onder de slachtoffers zijn drie kinderen, hebben...
-- [Bayern München en Lazio naar bekerfinales, jonge keeper pakt vier penalty’s van Atalanta](https://www.ad.nl/voetbal/bayern-munchen-en-lazio-naar-bekerfinales-jonge-keeper-pakt-vier-penaltys-van-atalanta~ae260393/)
-  > Lazio heeft zich woensdagavond geplaatst voor de finale van de Coppa Italia. De club uit Rome speelt op woensdag 13 mei tegen Inter in de finale in...
-- [Arsenal is na 200 dagen koppositie kwijt aan Manchester City, Hartman en Flemming degraderen met Burnley](https://www.ad.nl/voetbal/arsenal-is-na-200-dagen-koppositie-kwijt-aan-manchester-city-hartman-en-flemming-degraderen-met-burnley~aad2a741/)
-  > Manchester City is in de Premier League op gelijke hoogte gekomen met Arsenal. De ploeg van Pep Guardiola won woensdagavond met 0-1 op bezoek bij...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Laag consumentenvertrouwen: hoe erg is dat eigenlijk?](https://fd.nl/economie/1594145/laag-consumentenvertrouwen-hoe-erg-is-dat-eigenlijk)
+  > Vandaag in Dagkoers: een opvallende tegenstelling in het consumentenvertrouwen, massale verkoop van recreatiewoningen en paradijsvogel Rosalía...
 - [Goed nieuws?](https://fd.nl/opinie/1594189/goed-nieuws)
   > Slimmer, sneller en efficiënter werken is immers de belangrijkste sleutel tot onze welvaart.
 - [Noodlijdende ondernemers maken er vaak een potje van](https://fd.nl/bedrijfsleven/1594122/noodlijdende-ondernemers-maken-er-vaak-een-potje-van)
@@ -54,8 +56,6 @@
   > Particulieren en beleggers zetten onrendabele vakantiehuisjes massaal te koop, makelaars verwachten prijsdalingen.
 - [De ‘kolonie’ Groningen profiteerde al die jaren zelf volop van de gasbaten](https://fd.nl/opinie/1593294/de-kolonien-profiteerden-zelf-volop-van-de-gasbaten)
   > Anders dan wordt voorgesteld zijn de noordelijke provincies geen wingewesten of ‘pinautomaat van de Randstad’. Dit soort koloniale retoriek is...
-- [Personalia donderdag 23 april](https://fd.nl/bedrijfsleven/1594139/personalia-donderdag-23-april)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
