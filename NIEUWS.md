@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-04-2026 om 21:54*
+*Laatst bijgewerkt: 23-04-2026 om 22:52*
 
 ---
 
@@ -28,6 +28,8 @@
 
 ### Laatste nieuws
 
+- [Voetbalpodcast | ‘Feyenoord is onthoofd en de timing is heel slecht’](https://www.ad.nl/voetbal/voetbalpodcast-feyenoord-is-onthoofd-en-de-timing-is-heel-slecht~ac8603a9/)
+  > Feyenoord moet met spoed op zoek naar een vervanger voor Dennis te Kloese. Op 1 juli neemt de algemeen directeur en technisch directeur van de club...
 - [Stand Premier League Darts | Van Veen stijgt een plek na avond in Liverpool, Van Gerwen nog altijd in top 4](https://www.ad.nl/darts/premier-league-speelschema-programma-uitslagen-stand~a9ae7647/)
   > De Premier League Darts is volop onderweg mét Michael van Gerwen en Gian van Veen. Bekijk hieronder de stand, alle uitslagen, het complete programma...
 - [Van Gerwen verliest van Littler ondanks torenhoog gemiddelde, ook Van Veen loopt finale in Liverpool net mis](https://www.ad.nl/darts/van-gerwen-verliest-van-littler-ondanks-torenhoog-gemiddelde-ook-van-veen-loopt-finale-in-liverpool-net-mis~aea2e467/)
@@ -36,8 +38,6 @@
   > Het is Ace, een AI-gestuurde robot van computerbedrijf Sony, gelukt toptafeltennissers te verslaan in hun eigen sport. De robot won in een nieuwe...
 - [PSV walst dankzij uitblinker Bajraktarevic over PEC heen en gaat met goed gevoel naar Ibiza](https://www.ad.nl/voetbal/psv-walst-dankzij-uitblinker-bajraktarevic-over-pec-heen-en-gaat-met-goed-gevoel-naar-ibiza~a266b7ae8/)
   > PSV gaat met een uitstekend gevoel naar het uitje op Ibiza. De landskampioen walste na rust over een tam PEC Zwolle heen (6-1). Daarmee delen de...
-- [Ook UEFA-baas snapt weinig van handsregel: 'Is het een penalty? Is het geen penalty? Niemand weet het'](https://www.ad.nl/sport/ook-uefa-baas-snapt-weinig-van-handsregel-is-het-een-penalty-is-het-geen-penalty-niemand-weet-het~a6868376/)
-  > Aleksander Ceferin, voorzitter van de Europese voetbalbond UEFA, heeft sinds de invoering van de videoscheidsrechter (VAR) vaak moeite met de...
 
 ### Meest gelezen
 
@@ -47,16 +47,15 @@
 
 ### Laatste nieuws
 
-- [Wall Street in mineur, ondanks beter dan verwachte kwartaalcijfers](https://fd.nl/financiele-markten/1594391/wall-street-in-mineur-ondanks-beter-dan-verwachte-kwartaalcijfers)
-  > Volgens persbureau Bloomberg heeft bijna 80% van de bedrijven in de index tot dusver de winstverwachtingen voor het eerste kwartaal overtroffen.
-- [EU-voorzitters willen tempo maken nu Hongaarse blokkade uit de weg is](https://fd.nl/politiek/1594264/eu-voorzitters-willen-tempo-maken-nu-hongaarse-blokkade-uit-de-weg-is)
-  > Het landenblok moet de onderhandelingen over toetreding van Oekraïne nu ‘zonder uitstel’ starten, zeggen Ursula von der Leyen en António Costa.
-- [Adyen doet eerste overname: €750 mln voor Duits platform Talon.One](https://fd.nl/bedrijfsleven/1594263/adyen-doet-eerste-overname-en-betaalt-750-mln-voor-duits-platform-talon-one)
-  > Het is voor het eerst dat het in Amsterdam gevestigde betaalbedrijf een acquisitie doet.
-- [Rijksoverheid gaat in zee met Lidl-cloudbedrijf Stackit](https://fd.nl/samenleving/1594174/rijksoverheid-gaat-in-zee-met-lidl-cloudbedrijf-stackit)
-  > De rijksoverheid wil hiermee minder afhankelijk worden van Amerikaanse cloudaanbieders. Stackit valt onder het Lidl-concern.
-- [Energiepakket is beperkt en dat is maar goed ook](https://fd.nl/opinie/1594070/energiepakket-is-beperkt-en-dat-is-maar-goed-ook)
-  > Goed dat het kabinet niet grijpt naar verlaging van de brandstofaccijns. Want verlaging stimuleert de vraag, terwijl het aanbod van olie er niet...
+- [Geslaagde transitie](https://fd.nl/opinie/1594255/geslaagde-transitie)
+  > Zonder de maatregelen van begin deze eeuw zou vandaag de dag de krapte op de arbeidsmarkt veel groter zijn geweest en het pensioen lager.
+- [Geslaagde transitie](https://fd.nl/opinie/1594162/geslaagde-transitie)
+- [Klein Duimpje Arx Robotics plaagt de reus Rheinmetall](https://fd.nl/bedrijfsleven/1594119/klein-duimpje-arx-robotics-plaagt-de-reus-rheinmetall)
+  > Wil je oorlogen winnen, dan moet drones bouwen met onderdelen die andere fabrikanten al hebben liggen, doceert de ceo van start-up Arx Robotics op...
+- [Mijn financiële flop 10](https://fd.nl/opinie/1594118/mijn-financiele-flop-10)
+  > Dat broodje zilver dat ik renteloos in een kluis liet liggen: ik verkocht het vóór de hausse. En zo zijn er wel meer keuzes die bevestigen: rijk...
+- [Personalia vrijdag 24 april](https://fd.nl/bedrijfsleven/1594248/personalia-vrijdag-24-april)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
