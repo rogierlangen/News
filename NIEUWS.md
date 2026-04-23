@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-04-2026 om 06:08*
+*Laatst bijgewerkt: 23-04-2026 om 08:54*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Treinbotsing in Denemarken: meerdere gewonden, hulpdiensten massaal ter plaatse](https://nos.nl/l/2611636)
-  > Bij een treinbotsing in Denemarken zijn meerdere mensen gewond geraakt, meldt Ekstra Bladet op basis van hulpdiensten. Volgens de eerste berichten...
-- [EU-regeringsleiders bij elkaar in Cyprus, top in teken oorlog Midden-Oosten](https://nos.nl/l/2611634)
-  > De oorlog in het Midden-Oosten drukt een grote stempel op de top van EU-regeringsleiders in Cyprus. Dat land organiseert als roulerend voorzitter van...
-- [Brandweer Toronto druk met 'levensgevaarlijke' ijsstunt Drake](https://nos.nl/l/2611633)
-  > De brandweer van Toronto heeft een enorm blok ijs dat door rapper Drake was neergelegd laten smelten met warm water. Volgens de burgemeester van de...
-- [Wekdienst 23/4: Debat over voorjaarsnota • EU-top in Cyprus](https://nos.nl/l/2611630)
-  > Goedemorgen! Vandaag debatteert de Tweede Kamer over de voorjaarsnota en in Cyprus komen EU-leiders bij elkaar voor een informele top. 
-        Eerst...
-- [Jonge Ierse kalfjes nog steeds op de boot naar Nederland, ondanks misstanden](https://nos.nl/l/2611629)
-  > De import van jonge kalfjes van Ierland naar Nederland gaat door, ondanks jarenlange kritiek. Dat blijkt uit onderzoek van de NOS. Tijdens die reis...
+- [Droogte houdt aan: brandweer extra alert op natuurbranden](https://nos.nl/l/2611659)
+  > Door de aanhoudende droogte is het risico op natuurbranden toegenomen in Noord-Brabant en de noordelijke helft van Zuid-Holland. In die regio's geldt...
+- [Sluiting azc Hardenberg volgens gelekte memo COA niet grootste prioriteit](https://nos.nl/l/2611655)
+  > De sluiting van het azc in Hardenberg heeft niet de grootste prioriteit bij het Centraal Orgaan opvang asielzoekers (COA). Dat staat in een interne...
+- ['Paus' probeerde Vlaamse priester op te lichten: 'I'm pope Leo from Italy'](https://nos.nl/l/2611642)
+  > Criminelen hebben geprobeerd een priester uit het Vlaamse Zonhoven op te lichten door zich voor te doen als paus Leo XIV. 'De paus' stuurde onder...
+- [Meer dan dertig doden bij aanvallen op dorpen Noord-Nigeria](https://nos.nl/l/2611640)
+  > Bij meerdere aanvallen door jihadisten en bendes in het noorden van Nigeria zijn volgens de plaatselijke autoriteiten meer dan dertig mensen gedood.
+...
+- [Frontale treinbotsing in Denemarken: meerdere gewonden, vijf in kritieke toestand](https://nos.nl/l/2611636)
+  > In Denemarken zijn zeventien mensen gewond geraakt bij een frontale botsing tussen twee treinen. Vijf van hen verkeren in kritieke toestand, melden...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Glory-kampioen Tarik Khbabez stapt na afpakken wereldtitel naar de rechter: ‘Laat me gewoon gaan’](https://www.ad.nl/vechtsport/glory-kampioen-tarik-khbabez-stapt-na-afpakken-wereldtitel-naar-de-rechter-laat-me-gewoon-gaan~aaf581c8/)
-  > Eigenlijk had Tarik Khbabez (34) zaterdag zijn wereldtitel bij Glory moeten verdedigen. Maar die titel werd afgepakt en dat krijgt nu een vervelend...
-- [Speciale gezant van Donald Trump wil Italië plek van Iran laten innemen op WK](https://www.ad.nl/voetbal/speciale-gezant-van-donald-trump-wil-italie-plek-van-iran-laten-innemen-op-wk~adfe3a99/)
-  > Een speciale gezant van de Amerikaanse president Donald Trump heeft voorgesteld om Iran te vervangen door Italië op het komende wereldkampioenschap...
-- [Israëlische aanval treft journalisten in Libanon: vermiste verslaggever dood onder het puin gevonden](https://www.ad.nl/buitenland/israelische-aanval-treft-journalisten-in-libanon-vermiste-verslaggever-dood-onder-het-puin-gevonden~aa6e0279/)
-  > Het lichaam van journalist Amal Khalil is onder het puin gevonden in Tayri, meldt haar werkgever, de Libanese krant Al Akhbar. Twee journalisten van...
-- [Jaar na overlijden Jonnie Boer probeert Thérèse door te gaan: ‘Hey schat, we gaan weer aan het werk’](https://www.ad.nl/binnenland/jaar-na-overlijden-jonnie-boer-probeert-therese-door-te-gaan-hey-schat-we-gaan-weer-aan-het-werk~a81c767b6/)
-  > Een jaar geleden overleed topchef Jonnie Boer onverwacht, pas 60 jaar oud. „Het verdriet is er elke dag’’, zegt zijn weduwe Thérèse. Toch moest ze...
-- [VS: aanvallen op vrachtschepen geen schending van bestand, lichaam van de Libanese journalist gevonden](https://www.ad.nl/buitenland/vs-aanvallen-op-vrachtschepen-geen-schending-van-bestand-lichaam-van-de-libanese-journalist-gevonden~ac528ac3/)
-  > De Verenigde Staten vinden niet dat Iran het staakt-het-vuren heeft geschonden door twee vrachtschepen in beslag te nemen in de Straat van Hormuz....
+- [Miami Vice keert terug als film, met Michael B. Jordan en Austin Butler](https://www.ad.nl/show/miami-vice-keert-terug-als-film-met-michael-b-jordan-en-austin-butler~ab5eac41/)
+  > Michael B. Jordan en Austin Butler gaan de hoofdrollen spelen in de nieuwe film Miami Vice ‘85. Dat meldt vakblad The Hollywood Reporter. De film...
+- [Saoedi-Arabië ontslaat bondscoach, Frenkie de Jong gelooft in kansen Oranje op WK](https://www.ad.nl/wk-voetbal/saoedi-arabie-ontslaat-bondscoach-frenkie-de-jong-gelooft-in-kansen-oranje-op-wk~a61805da/)
+  > Over iets meer dan twee maanden begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste...
+- [Seizoen Sparta dreigt als nachtkaars uit te gaan na pijnlijke avond bij Telstar: ‘We moeten ons schamen’](https://www.ad.nl/rotterdam/seizoen-sparta-dreigt-als-nachtkaars-uit-te-gaan-na-pijnlijke-avond-bij-telstar-we-moeten-ons-schamen~ae2fa0449/)
+  > De tactische zet van Maurice Steijn bleek geen meesterzet. Sparta beleefde een dramatische avond bij degradatiekandidaat Telstar: 4-1. Het seizoen...
+- [Gedupeerden bankfraude krijgen sneller schade vergoed, ook bij nalatigheid](https://www.ad.nl/binnenland/gedupeerden-bankfraude-krijgen-sneller-schade-vergoed-ook-bij-nalatigheid~a48b8f40/)
+  > Banken moeten slachtoffers van bankhelpdeskfraude veel sneller compenseren voor financiële schade, ook als de klant nalatig is geweest.
+- [Elke mislukte tackle is geld waard: de KNVB incasseert miljoenen, maar waar blijft het geld na gele of rode kaart?](https://www.ad.nl/voetbal/elke-mislukte-tackle-is-geld-waard-de-knvb-incasseert-miljoenen-maar-waar-blijft-het-geld-na-gele-of-rode-kaart~ab5855f6/)
+  > Schelden, tackelen, vasthouden. Wie op het voetbalveld een gele kaart pakt, krijgt meestal ook een boete. Maar wat gebeurt er eigenlijk met dat geld?...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Als het aan Lidl ligt, eten varkens straks de supermarktrestjes](https://fd.nl/bedrijfsleven/1594151/als-het-aan-lidl-ligt-eten-varkens-straks-de-supermarktrestjes)
-  > Vanaf donderdag moeten Lidl-werknemers ook aan veevoer denken voordat ze beschimmelde aardbeien en afgekeurde asperges weggooien. Zo wil de...
-- [Resultaat Fugro duikt in de min, orderboek krimpt](https://fd.nl/bedrijfsleven/1594136/resultaat-fugro-duikt-in-de-min-orderboek-krimpt)
-  > De omzet kwam uit op ruim €418 mln, tegen €450 mln in hetzelfde kwartaal een jaar eerder. Fugro zit al langer in zwaar weer en beleefde een uiterst...
-- [Opkomende markten bezorgen Heineken omzetgroei](https://fd.nl/bedrijfsleven/1594184/opkomende-markten-bezorgen-heineken-omzetgroei)
-  > In Europa verkocht de brouwer minder bier en daalde de omzet.
-- [Tesla voert investeringen stevig op en boekt meer omzet](https://fd.nl/bedrijfsleven/1594238/tesla-voert-investeringen-stevig-op-en-boekt-meer-omzet)
-  > Het Amerikaanse autobedrijf onder leiding van Elon Musk kondigt $25 mrd aan investeringen aan. De vrije kasstroom was in het meest recente kwartaal...
-- [Besi overtreft toch al hoge verwachtingen met nieuwe orders](https://fd.nl/bedrijfsleven/1594150/besi-overtreft-toch-al-hoge-verwachtingen-met-nieuwe-orders)
-  > Het bedrijf meldt een groei van nieuwe orders dankzij de vraag naar geheugenchips voor kunstmatige intelligentie.
+- [Nederlandse landbouwgrond is duur, in de EU is alleen Malta duurder](https://fd.nl/economie/1593856/nederlandse-landbouwgrond-is-duur-in-de-eu-is-alleen-malta-duurder)
+  > Alleen een eiland in de Middellandse Zee troeft Nederland af met duurdere landbouwgrond in de Europese Unie. Malta is namelijk klein: de kustlijn...
+- [Tegenvaller ASML: belangrijkste klant vindt nieuwste chipmachine te duur](https://fd.nl/bedrijfsleven/1594153/tegenvaller-asml-belangrijkste-klant-vindt-nieuwste-chipmachine-te-duur)
+  > Chipbedrijf TSMC vindt de nieuwste generatie euv-modellen van ASML à €350 mln te duur. Het wil daarom meer waarde uit de huidige modellen halen.
+- [Relx dendert door in het eerste kwartaal](https://fd.nl/bedrijfsleven/1594240/relx-dendert-door-in-het-eerste-kwartaal)
+  > Van een ondermijnende invloed van AI op het verdienmodel van het bedrijf valt in de cijfers over het eerste kwartaal niets te bespeuren.
+- [ING: handelsoverschot eurozone smelt weg, vooral door concurrentie China](https://fd.nl/economie/1594188/ing-handelsoverschot-eurozone-smelt-weg-vooral-door-concurrentie-china)
+  > Het hoge handelsoverschot van de eurozone zal dit jaar sterk dalen en bij een langer durende oorlog in het Midden-Oosten mogelijk zelfs omslaan in...
+- [Audemars Piguet-ceo Ilaria Resta: ‘Ik heb niet veel nodig’](https://fd.nl/samenleving/1594022/audemars-piguet-ceo-ilaria-resta-ik-heb-niet-veel-nodig)
+  > Ilaria Resta, ceo van Audemars Piguet, noemt andere horlogemerken geen concurrenten en brengt haar vrije tijd het liefst door met een rugzak in de...
 
 ### Meest gelezen
 
