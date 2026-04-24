@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-04-2026 om 06:10*
+*Laatst bijgewerkt: 24-04-2026 om 09:01*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Vier jaar cel voor brandstichting Arnhem, vrijspraak voor twee anderen](https://nos.nl/l/2611806)
+  > De rechtbank heeft Koert H. (58) veroordeeld tot vier jaar cel voor de verwoestende brand in de binnenstad van Arnhem in maart vorig jaar. Twee...
+- [44 Thaise politici vervolgd die majesteitsschenniswet wilden versoepelen](https://nos.nl/l/2611803)
+  > Het Thaise hooggerechtshof heeft een zaak in behandeling genomen tegen 44 oppositieleden, die in 2021 probeerden de strenge wet op het verbod van...
+- ['VS denkt aan sancties tegen dwarsliggers binnen NAVO'](https://nos.nl/l/2611794)
+  > Een "schorsing" van Spanje binnen de NAVO, heroverweging van de Britse claim op de Falklandeilanden of landen die 'moeilijk' doen hoge posten...
+- ['Angstcultuur bij opleiding verzekeringsartsen UWV in Amsterdam'](https://nos.nl/l/2611790)
+  > Basisartsen die bij het UWV in Amsterdam tot verzekeringsarts worden opgeleid, hebben te maken met een angstcultuur. Ook is de werkdruk te hoog. Dat...
 - [Commando vervolgd die met voorkennis 4 ton won met weddenschap op arrestatie Maduro](https://nos.nl/l/2611787)
-  > Een sergeant-majoor van de Amerikaanse Special Forces is opgepakt omdat hij met voorkennis een weddenschap afsloot op de val van de Venezolaanse...
-- ['Frontlijnlidstaat' Cyprus is trots op zijn strenge asielbeleid](https://nos.nl/l/2611781)
-  > De laatste hoge hekken worden neergezet bij het asielopvang- en detentiecentrum Limnes in het zuiden van Cyprus. De wipwaps voor de kinderen zijn in...
-- [Wekdienst 24/4: Top fossiele brandstoffen in Colombia van start • Lintjesregen](https://nos.nl/l/2611778)
-  > Goedemorgen! In het Colombiaanse Santa Marta begint een zesdaagse conferentie over de afbouw van fossiele brandstoffen en duizenden mensen krijgen...
-- [Dode gemeld bij zwaar ongeluk Weert, auto in tweeën gespleten](https://nos.nl/l/2611775)
-  > In de buurt van Weert is afgelopen nacht een persoon om het leven gekomen door een auto-ongeluk, melden lokale persfotografen. Het voertuig heeft met...
-- [Mount Everest voorlopig onbeklimbaar door gletsjerbrok, vrees voor 'files'](https://nos.nl/l/2611774)
-  > Hoewel het piekseizoen is voor bergbeklimmers op Mount Everest kan voorlopig niemand het hoogste punt van de wereld bereiken. Een instabiel brok ijs...
+  > Een sergeant-majoor van de Amerikaanse Special Forces is opgepakt omdat hij met voorkennis weddenschappen afsloot op de val van de Venezolaanse...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tijden GP van Miami | Max Verstappen volgende week weer in actie tijdens sprintraceweekend in Amerika](https://www.ad.nl/formule-1/tijden-gp-van-miami-max-verstappen-volgende-week-weer-in-actie-tijdens-sprintraceweekend-in-amerika~ae174dcc/)
-  > Door de geschrapte races in Bahrein en Saoedi-Arabie duurt het een maand voordat de Formule 1 weer in actie komt. Max Verstappen en zijn collega’s...
-- [‘Hij kan Bolt van de troon stoten’: wie is Gout Gout, de 18-jarige Adidas-miljonair met een typefout als naam?](https://www.ad.nl/sport/hij-kan-bolt-van-de-troon-stoten-wie-is-gout-gout-de-18-jarige-adidas-miljonair-met-een-typefout-als-naam~ab13eec2/)
-  > Hij loopt de 200 meter sneller dan Usain Bolt deed op zijn leeftijd, heeft een excentrieke naam en tekende al een contract van zes miljoen bij...
-- [Littler heeft Van Veen nog altijd niet gesproken na incident: ‘Ik ben niet het type dat naar hem toe stapt’](https://www.ad.nl/darts/littler-heeft-van-veen-nog-altijd-niet-gesproken-na-incident-ik-ben-niet-het-type-dat-naar-hem-toe-stapt~acf87918/)
-  > Luke Littler heeft Gian van Veen nog geen excuses aangeboden na het dartsrelletje in de Premier League. Volgens de wereldkampioen is het niet aan hem...
-- [Voor de spiegel zag de outfit van Máxima er ongetwijfeld fantastisch uit, maar dat werd flink verpest](https://www.ad.nl/show/voor-de-spiegel-zag-de-outfit-van-maxima-er-ongetwijfeld-fantastisch-uit-maar-dat-werd-flink-verpest~af907005/)
-  > Máxima introduceerde een Griekse cape, Amalia koos voor een spijkerbroek en Josephine van Denemarken leek wel een engel in haar witte jurk met tere...
-- [Enorm ijsblok van 30 meter blokkeert route naar top Mount Everest, vrees voor lange files](https://www.ad.nl/buitenland/enorm-ijsblok-van-30-meter-blokkeert-route-naar-top-mount-everest-vrees-voor-lange-files~ae2e40fb/)
-  > Het seizoen voor bergbeklimmers die het willen wagen de hoogste berg ter wereld, de Mount Everest, te beklimmen, zou in volle gang moeten zijn. Er is...
+- [Jan en Rianne uit Boer zoekt Vrouw verwelkomen vierde kindje](https://www.ad.nl/show/jan-en-rianne-uit-boer-zoekt-vrouw-verwelkomen-vierde-kindje~a6e57629/)
+  > Jan en Rianne, die elkaar meer dan tien jaar geleden leerden kennen in Boer zoekt Vrouw, hebben een zoontje gekregen. Dat bevestigt het gelukkige...
+- [Van trouwste megafoon tot bitterste criticus: Tucker Carlson laat Trump keihard vallen](https://www.ad.nl/buitenland/van-trouwste-megafoon-tot-bitterste-criticus-tucker-carlson-laat-trump-keihard-vallen~a9f33fb9/)
+  > Tucker Carlson, jarenlang de luidste megafoon van Donald Trump, zei deze week publiekelijk spijt te hebben van zijn steun aan de president. Hij is...
+- [Spanje geschorst als Navo-lid? Premier zegt zich ‘niets aan te trekken’ van dreigementen VS](https://www.ad.nl/buitenland/spanje-geschorst-als-navo-lid-premier-zegt-zich-niets-aan-te-trekken-van-dreigementen-vs~ae67dd9c/)
+  > Spanje trekt zich niets aan van berichten dat de Verenigde Staten het land willen straffen voor zijn verzet tegen bijvoorbeeld de Iran-oorlog en een...
+- [Tweevoudig olympisch kampioene Van Rouwendaal aan de slag bij zwembond](https://www.ad.nl/andere-sporten/tweevoudig-olympisch-kampioene-van-rouwendaal-aan-de-slag-bij-zwembond~ac0b1448/)
+  > Oud-zwemster Sharon van Rouwendaal gaat aan de slag bij zwembond KNZB. De tweevoudig olympisch kampioene zal in samenwerking met bondscoach Marcel...
+- [Uitspraak stadsbrand Arnhem: vrijspraak voor twee verdachten, vier jaar celstraf voor Koert H.](https://www.ad.nl/binnenland/uitspraak-stadsbrand-arnhem-vrijspraak-voor-twee-verdachten-vier-jaar-celstraf-voor-koert-h~a31f6fcd/)
+  > Een celstraf van vier jaar: dat is de straf die de rechtbank in Arnhem uitsprak tegen Koert H. (58). Hij staat terecht voor de grote brand die op 6...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Flow Traders profiteert van hogere handelsvolumes](https://fd.nl/financiele-markten/1594140/flow-traders-profiteert-van-hogere-handelsvolumes)
-  > Winst is hoger dan analisten hadden verwacht.
-- [Trump: staakt-het-vuren Israël en Libanon verlengd](https://fd.nl/politiek/1594308/trump-staakt-het-vuren-israel-en-libanon-verlengd)
-  > De twee landen kwamen vorige week een tiendaags bestand overeen, maar hebben nog niet gereageerd op de aankondiging van de Amerikaanse president.
-- [Hogere winst logistiek belegger WDP door nieuwe projecten en hogere huren](https://fd.nl/bedrijfsleven/1594394/hogere-winst-logistiek-belegger-wdp-door-nieuwe-projecten-en-hogere-huren)
-  > Voor heel 2026 verwacht de logistiek vastgoedbelegger een winst van €1,60 per aandeel, een stijging van 5% ten opzichte van vorig jaar.
-- [Opnieuw omzetkrimp bij lichtbedrijf Signify](https://fd.nl/bedrijfsleven/1594393/opnieuw-omzetkrimp-bij-lichtbedrijf-signify)
-  > Signify verkocht in het eerste kwartaal minder lampen en verlichtingssystemen dan in dezelfde periode vorig jaar. De omzet daalde met ruim 5% naar...
-- [Live: Lichtrode start verwacht op Europese beurzen](https://fd.nl/financiele-markten/1594307/live-verlengd-staakt-het-vuren-in-libanon-nog-weinig-invloed-op-aziatische-beurzen)
-  > Er varen vooralsnog geen schepen door de Straat van Hormuz. Ondertussen kijken beleggers naar beursgenoteerde bedrijven die vandaag hun...
+- [De toekomst is onzeker, maar wel te vatten](https://fd.nl/opinie/1594062/de-toekomst-is-onzeker-maar-wel-te-vatten)
+  > De oorlog in de Golfregio brengt ongewisheid over onze toekomstige economie. Waar staan we over een jaar? Ramingen kunnen dat niet voorspellen, maar...
+- [Ondanks krimp economie houdt de Argentijnse president Milei vast aan zijn koers](https://fd.nl/economie/1594311/ondanks-krimp-economie-houdt-de-argentijnse-president-milei-vast-aan-zijn-koers)
+  > De economische activiteit daalde met 2,6% ten opzichte van januari, de grootste maandelijkse terugval sinds president Milei eind 2023 aantrad.
+- [Het verhaal van Taj toont de donkerste kanten van adoptie](https://fd.nl/samenleving/1593031/het-verhaal-van-taj-toont-de-donkerste-kanten-van-adoptie)
+  > Het hartverscheurende adoptieverhaal van de Indiase Taj is krachtig vertaald naar audio in de BBC-podcast ‘Stop Rewind: The Lost Boy’. Met een...
+- [Servische accountants maken het hun Nederlandse collega’s makkelijker – maar niet de toezichthouder](https://fd.nl/financiele-markten/1594008/servische-accountants-maken-het-hun-nederlandse-collegas-makkelijker-maar-niet-de-toezichthouder)
+  > In Belgrado werken honderden accountants aan de administratie van Nederlandse bedrijven. De AFM maakt zich zorgen over het waarborgen van de...
+- [Kwartaalcijfers kunstmestfabrikant Yara beter dan verwacht](https://fd.nl/bedrijfsleven/1594310/sterke-kwartaalcijfers-kunstmestfabrikant-yara)
+  > Het bedrijf, met een grote locatie in het Zeeuwse Sluiskil, profiteerde van hogere prijzen, betere marges op kunstmest en eigen kostenbesparingen.
 
 ### Meest gelezen
 
