@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-04-2026 om 09:01*
+*Laatst bijgewerkt: 24-04-2026 om 11:09*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Vier jaar cel voor brandstichting Arnhem, vrijspraak voor twee anderen](https://nos.nl/l/2611806)
-  > De rechtbank heeft Koert H. (58) veroordeeld tot vier jaar cel voor de verwoestende brand in de binnenstad van Arnhem in maart vorig jaar. Twee...
-- [44 Thaise politici vervolgd die majesteitsschenniswet wilden versoepelen](https://nos.nl/l/2611803)
-  > Het Thaise hooggerechtshof heeft een zaak in behandeling genomen tegen 44 oppositieleden, die in 2021 probeerden de strenge wet op het verbod van...
-- ['VS denkt aan sancties tegen dwarsliggers binnen NAVO'](https://nos.nl/l/2611794)
-  > Een "schorsing" van Spanje binnen de NAVO, heroverweging van de Britse claim op de Falklandeilanden of landen die 'moeilijk' doen hoge posten...
-- ['Angstcultuur bij opleiding verzekeringsartsen UWV in Amsterdam'](https://nos.nl/l/2611790)
-  > Basisartsen die bij het UWV in Amsterdam tot verzekeringsarts worden opgeleid, hebben te maken met een angstcultuur. Ook is de werkdruk te hoog. Dat...
-- [Commando vervolgd die met voorkennis 4 ton won met weddenschap op arrestatie Maduro](https://nos.nl/l/2611787)
-  > Een sergeant-majoor van de Amerikaanse Special Forces is opgepakt omdat hij met voorkennis weddenschappen afsloot op de val van de Venezolaanse...
+- [Kabinet schrapt bezuiniging op bijstand, snijdt nu in kindgebonden budget](https://nos.nl/l/2611816)
+  > Het kabinet draait een bezuiniging op hulp bij de bijstandsuitkering terug. Met het potje van 30 miljoen euro worden mensen opgespoord die recht...
+- [Mega-octopus maakte oerzeeën onveilig: 'Intelligent en onverwacht agressief'](https://nos.nl/l/2611814)
+  > Niet alleen monsters als de mosasaurus, plesiosaurus en reuzenhaai bevolkten de oerzeeën, ook een enorme octopus stond er bovenaan de voedselketen....
+- [17-jarige opgepakt voor aanslag op kantoor Amsterdam-Zuid](https://nos.nl/l/2611812)
+  > De politie heeft een 17-jarige jongen uit Uithoorn aangehouden in verband met de explosie in maart op de Amsterdamse Zuidas. Volgens de politie ging...
+- [Minister Van Weel: relschoppers Loosdrecht 'tuig'](https://nos.nl/l/2611810)
+  > Alle begrip voor bezorgde burgers, maar bij geweld tijdens een demonstratie "trekken we een grens". Dat zegt minister Van Weel van Justitie en...
+- [Nederland en Colombia brengen landen samen die van fossiele brandstoffen af willen](https://nos.nl/l/2611809)
+  > Terwijl de brandstofprijzen het wereldnieuws domineren door de oorlog in het Midden-Oosten, gaan ruim vijftig landen vanaf vandaag in Colombia met...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Jan en Rianne uit Boer zoekt Vrouw verwelkomen vierde kindje](https://www.ad.nl/show/jan-en-rianne-uit-boer-zoekt-vrouw-verwelkomen-vierde-kindje~a6e57629/)
-  > Jan en Rianne, die elkaar meer dan tien jaar geleden leerden kennen in Boer zoekt Vrouw, hebben een zoontje gekregen. Dat bevestigt het gelukkige...
-- [Van trouwste megafoon tot bitterste criticus: Tucker Carlson laat Trump keihard vallen](https://www.ad.nl/buitenland/van-trouwste-megafoon-tot-bitterste-criticus-tucker-carlson-laat-trump-keihard-vallen~a9f33fb9/)
-  > Tucker Carlson, jarenlang de luidste megafoon van Donald Trump, zei deze week publiekelijk spijt te hebben van zijn steun aan de president. Hij is...
-- [Spanje geschorst als Navo-lid? Premier zegt zich ‘niets aan te trekken’ van dreigementen VS](https://www.ad.nl/buitenland/spanje-geschorst-als-navo-lid-premier-zegt-zich-niets-aan-te-trekken-van-dreigementen-vs~ae67dd9c/)
-  > Spanje trekt zich niets aan van berichten dat de Verenigde Staten het land willen straffen voor zijn verzet tegen bijvoorbeeld de Iran-oorlog en een...
-- [Tweevoudig olympisch kampioene Van Rouwendaal aan de slag bij zwembond](https://www.ad.nl/andere-sporten/tweevoudig-olympisch-kampioene-van-rouwendaal-aan-de-slag-bij-zwembond~ac0b1448/)
-  > Oud-zwemster Sharon van Rouwendaal gaat aan de slag bij zwembond KNZB. De tweevoudig olympisch kampioene zal in samenwerking met bondscoach Marcel...
-- [Uitspraak stadsbrand Arnhem: vrijspraak voor twee verdachten, vier jaar celstraf voor Koert H.](https://www.ad.nl/binnenland/uitspraak-stadsbrand-arnhem-vrijspraak-voor-twee-verdachten-vier-jaar-celstraf-voor-koert-h~a31f6fcd/)
-  > Een celstraf van vier jaar: dat is de straf die de rechtbank in Arnhem uitsprak tegen Koert H. (58). Hij staat terecht voor de grote brand die op 6...
+- [Kansspelautoriteit grijpt in: goksites schrappen weddenschappen eigen doelpunten om matchfixingrisico](https://www.ad.nl/economie/kansspelautoriteit-grijpt-in-goksites-schrappen-weddenschappen-eigen-doelpunten-om-matchfixingrisico~abf47d91/)
+  > Na ingrijpen van de Kansspelautoriteit (Ksa) hebben twee online goksites hun weddenschappen op eigen doelpunten geschrapt. Volgens de toezichthouder...
+- [Vliegende auto komt dichterbij: Chinese XPeng wil volgend jaar starten met grootschalige productie](https://www.ad.nl/auto/vliegende-auto-komt-dichterbij-chinese-xpeng-wil-volgend-jaar-starten-met-grootschalige-productie~a8383f8e/)
+  > De Chinese fabrikant van elektrische auto’s XPeng verwacht volgend jaar te beginnen met de grootschalige productie van zijn vliegende auto’s. Dat...
+- [Libanon en Israël blij met verlenging wapenstilstand, Trump wordt bedankt voor ‘het leiden van historisch moment’](https://www.ad.nl/buitenland/libanon-en-israel-blij-met-verlenging-wapenstilstand-trump-wordt-bedankt-voor-het-leiden-van-historisch-moment~ac528ac3/)
+  > Ambassadeurs van Israël en Libanon hebben gereageerd op de verlenging van het staakt-het-vuren. De verlenging kwam tot stand in een gesprek tussen...
+- [Hearts staat al maanden bovenaan in Schotland, maar nu begint het pas echt: ‘Ik wil het niet jinxen’](https://www.ad.nl/voetbal/hearts-staat-al-maanden-bovenaan-in-schotland-maar-nu-begint-het-pas-echt-ik-wil-het-niet-jinxen~a2da4e3b/)
+  > Heart of Midlothian uit Edinburgh staat al sinds augustus bovenaan in Schotland, maar het seizoen begint nu pas echt. Kan de club uit Edinburgh de...
+- [Nieuwe dresscode in Tokio: oproep aan werkenden om korte broek te dragen vanwege energieprijzen](https://www.ad.nl/buitenland/nieuwe-dresscode-in-tokio-oproep-aan-werkenden-om-korte-broek-te-dragen-vanwege-energieprijzen~a780670f/)
+  > De autoriteiten in de Japanse hoofdstad Tokio moedigen medewerkers aan om korte broeken te dragen. Zo moet met de stijgende energieprijzen de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [De toekomst is onzeker, maar wel te vatten](https://fd.nl/opinie/1594062/de-toekomst-is-onzeker-maar-wel-te-vatten)
-  > De oorlog in de Golfregio brengt ongewisheid over onze toekomstige economie. Waar staan we over een jaar? Ramingen kunnen dat niet voorspellen, maar...
-- [Ondanks krimp economie houdt de Argentijnse president Milei vast aan zijn koers](https://fd.nl/economie/1594311/ondanks-krimp-economie-houdt-de-argentijnse-president-milei-vast-aan-zijn-koers)
-  > De economische activiteit daalde met 2,6% ten opzichte van januari, de grootste maandelijkse terugval sinds president Milei eind 2023 aantrad.
-- [Het verhaal van Taj toont de donkerste kanten van adoptie](https://fd.nl/samenleving/1593031/het-verhaal-van-taj-toont-de-donkerste-kanten-van-adoptie)
-  > Het hartverscheurende adoptieverhaal van de Indiase Taj is krachtig vertaald naar audio in de BBC-podcast ‘Stop Rewind: The Lost Boy’. Met een...
-- [Servische accountants maken het hun Nederlandse collega’s makkelijker – maar niet de toezichthouder](https://fd.nl/financiele-markten/1594008/servische-accountants-maken-het-hun-nederlandse-collegas-makkelijker-maar-niet-de-toezichthouder)
-  > In Belgrado werken honderden accountants aan de administratie van Nederlandse bedrijven. De AFM maakt zich zorgen over het waarborgen van de...
-- [Kwartaalcijfers kunstmestfabrikant Yara beter dan verwacht](https://fd.nl/bedrijfsleven/1594310/sterke-kwartaalcijfers-kunstmestfabrikant-yara)
-  > Het bedrijf, met een grote locatie in het Zeeuwse Sluiskil, profiteerde van hogere prijzen, betere marges op kunstmest en eigen kostenbesparingen.
+- [Duitse ondernemingen stuk somberder door conflict in Midden-Oosten](https://fd.nl/economie/1594426/duitse-ondernemingen-stuk-somberder-door-conflict-in-midden-oosten)
+  > De index van het Ifo-instituut daalde in april naar 83,3, van een herziene 85,9 een maand eerder. Het is het laagste niveau sinds augustus 2023.
+- [EU ijvert voor tweestatenoplossing maar krijgt Israël moeilijk onder druk gezet](https://fd.nl/politiek/1594167/eu-ijvert-voor-tweestatenoplossing-maar-krijgt-israel-moeilijk-onder-druk-gezet)
+  > Niet alleen het opschorten van het associatieakkoord blijkt onhaalbaar, zelfs economische maatregelen liggen erg moeilijk.
+- [Private-equityfirma Waterland haalt recordbedrag op met nieuwe fondsen](https://fd.nl/financiele-markten/1594398/private-equityfirma-waterland-haalt-recordbedrag-op-met-nieuwe-fondsen)
+  > Het Nederlandse Waterland is met nieuwe fondsen van samen €4,6 mrd gegroeid naar een totaal beheerd vermogen van meer dan €20 mrd. Daarmee is het een...
+- [Apple-belegger blijft na tijdperk Cook met goedgevulde portefeuille achter](https://fd.nl/financiele-markten/1594259/apple-belegger-blijft-na-tijdperk-cook-met-goedgevulde-portefeuille-achter)
+  > Onder topman Tim Cook groeide Apple uit tot een cashmachine en daar deelden beleggers in mee, ook in Nederland.
+- [De ketting met het kruisje is terug](https://fd.nl/samenleving/1594126/de-ketting-met-het-kruisje-is-terug)
+  > Een ketting met een kruisje een davidster of een hamsa: een religieus geladen sieraad biedt hoop in bange dagen, weten ook luxejuwelenhuizen.
 
 ### Meest gelezen
 
