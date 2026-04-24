@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-04-2026 om 21:55*
+*Laatst bijgewerkt: 24-04-2026 om 22:48*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Werkbus ramt auto door gevel huis Geldrop](https://nos.nl/l/2611893)
+  > De chauffeur van een werkbus heeft een ravage aangericht bij een huis in Geldrop. De bestuurder reed gisteravond op hoge snelheid door een muur bij...
 - [Negen Nederlanders aangehouden voor plofkraken in Duitsland en Zwitserland](https://nos.nl/l/2611885)
   > De politie heeft vorige week zes mannen aangehouden die verdacht worden van betrokkenheid bij plofkraken over de grens. Zij zouden deel uitmaken van...
 - [VS wil mogelijkheden voor federale doodstraf verruimen met vuurpeloton en gas](https://nos.nl/l/2611884)
@@ -16,8 +18,6 @@
   > "Ongelofelijk hoeveel impact een meisje die ik niet persoonlijk kende, kan hebben", schrijft een vrouw op het online condoleanceregister van Jade...
 - [Brabants vleesverwerkend bedrijf moet per direct producten terugroepen](https://nos.nl/l/2611873)
   > Een vleesverwerkend bedrijf in Noord-Brabant moet van de Nederlandse Voedsel- en Warenautoriteit (NVWA) per direct alle producten terugroepen. Het...
-- [Spanje benadrukt toewijding aan NAVO na gelekte Pentagon-mail over mogelijke sancties](https://nos.nl/l/2611872)
-  > De Spaanse premier Sánchez heeft benadrukt dat Spanje toegewijd lid is van de NAVO. Dat deed hij in reactie op e-mail die zou circuleren binnen de...
 
 ### Meest gelezen
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Amerikaanse miljonair (75) jaagt in Afrika op zeldzame antilope, maar wordt vertrapt door olifanten](https://www.ad.nl/buitenland/amerikaanse-miljonair-75-jaagt-in-afrika-op-zeldzame-antilope-maar-wordt-vertrapt-door-olifanten~af309387/)
+  > Een rijke Amerikaanse trofeejager is diep in de Afrikaanse jungle vertrapt door een kudde olifanten. Ernie Dosio (75) was op zoek naar een zeldzame...
 - [FC Barcelona kan nieuwe landstitel ruiken na puntenverlies van Real Madrid](https://www.ad.nl/voetbal/fc-barcelona-kan-nieuwe-landstitel-ruiken-na-puntenverlies-van-real-madrid~a268f59b/)
   > Real Madrid heeft in de strijd om de Spaanse landstitel duur puntenverlies geleden. De ploeg van coach Álvaro Arbeloa speelde met 1-1 gelijk tegen...
 - [Witkoff en Kushner naar Pakistan voor overleg, VS blokkeert cryptomunten gelinkt aan Iran](https://www.ad.nl/buitenland/witkoff-en-kushner-naar-pakistan-voor-overleg-vs-blokkeert-cryptomunten-gelinkt-aan-iran~ac528ac3/)
@@ -35,8 +37,6 @@
   > Het duel tussen SC Cambuur en Vitesse in de Keuken Kampioen Divisie is definitief gestaakt en wordt ook niet meer uitgespeeld Met nog enkele minuten...
 - [Doden in Gaza bij Israëlische aanvallen, onder wie politieagenten](https://www.ad.nl/buitenland/doden-in-gaza-bij-israelische-aanvallen-onder-wie-politieagenten~a5a2256f/)
   > Ten minste twaalf mensen zijn vrijdag omgekomen bij Israëlische aanvallen in Gaza, zeggen de autoriteiten in het gebied. Onder hen zouden ook zes...
-- [Alle clubs uit eerste divisie zijn bekend: dit is het programma van play-offs om promotie](https://www.ad.nl/voetbal/alle-clubs-uit-eerste-divisie-zijn-bekend-dit-is-het-programma-van-play-offs-om-promotie~a69c3b1d/)
-  > FC Den Bosch veroverde vrijdag het laatste ticket voor de play-offs. Daarmee houdt de club kans op promotie naar de VriendenLoterij Eredivisie. Zes...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Zicht op nieuwe gesprekken Iran en VS en omzet Intel drijven koersen omhoog](https://fd.nl/financiele-markten/1594454/zicht-op-nieuwe-gesprekken-iran-en-vs-en-omzet-intel-drijven-koersen-omhoog)
-  > Op de Amerikaanse beurzen steeg het aandeel van Intel 24% na een meevallende omzetverwachting voor het tweede kwartaal.
-- [FBI-directeur Kash Patel ligt onder vuur en slaat wild om zich heen](https://fd.nl/samenleving/1594441/fbi-directeur-kash-patel-ligt-onder-vuur-en-slaat-wild-om-zich-heen)
-  > Democraten in het Amerikaanse Congres eisen het vertrek van de FBI-directeur na belastende berichtgeving. Hij zou een drankprobleem hebben...
-- [Overheid niet eerder weg bij Solvinity (DigiD) om ‘gevaar continuïteit’](https://fd.nl/politiek/1594347/overheid-niet-eerder-weg-bij-solvinity-digid-om-gevaar-continuiteit)
-  > De Nederlandse overheid gaat voor de DigiD-dienstverlening niet eerder weg bij IT-bedrijf Solvinity, ook al lag er nog een mogelijkheid om dat te...
-- [Stilstand verergert tekort aan advocaten, gooi de luiken open](https://fd.nl/opinie/1594313/stilstand-verergert-tekort-aan-advocaten-gooi-de-luiken-open)
-  > Externe aandeelhouders toelaten in de advocatuur hoeft niet ten koste te gaan van onafhankelijkheid. De Nederlandse Orde van Advocaten moet de ruimte...
-- [Google steekt tot $40 mrd in AI-start-up Anthropic](https://fd.nl/bedrijfsleven/1594346/google-steekt-tot-40-mrd-in-ai-start-up-anthropic)
-  > Google investeert $10 mrd in het Amerikaanse bedrijf voor kunstmatige intelligentie Anthropic.
+- [Afpersingshoogleraar: ‘Het is geen grote stap van ransomware naar ransomwar’](https://fd.nl/tech-en-innovatie/1594028/afpersingshoogleraar-het-is-geen-grote-stap-van-ransomware-naar-ransomwar)
+  > Cyberaanvallen zijn aan de orde van de dag. Toch is er al vijf jaar geen kritieke westerse infrastructuur meer aangevallen. Anja Shortland is er niet...
+- [Private-equityfirma’s Waterland en Main halen recordbedragen op](https://fd.nl/bedrijfsleven/1594325/private-equityfirmas-waterland-en-main-halen-recordbedragen-op)
+  > De Nederlandse investeerders halen miljarden op, terwijl private equity moeite heeft met het vullen van nieuwe fondsen.
+- [Opeens willen ook grote en rijke landen bij de EU horen](https://fd.nl/politiek/1594312/opeens-willen-ook-grote-en-rijke-landen-bij-de-eu-horen)
+  > Bijna 56% van de Canadezen is voorstander van EU-lidmaatschap. Europa lijkt niet langer louter de vluchtplaats voor relatief kleine en arme landen,...
+- [Iran-oorlog is bijzaak op beurscongres TradeTech: ‘Er speelt altijd wel iets’](https://fd.nl/financiele-markten/1594168/iran-oorlog-is-bijzaak-op-beurscongres-tradetech-er-speelt-altijd-wel-iets)
+  > Terwijl de Straat van Hormuz de krantenpagina’s vult, maken beurshandelaren zich op hun jaarlijkse congres vooral druk om waar ze zo snel en goed...
+- [In beeld: Mexico, het land dat zijn vader vastlegde](https://fd.nl/samenleving/1594129/in-beeld-mexico-het-land-dat-zijn-vader-vastlegde)
+  > Bijna vijftig jaar nadat zijn vader met een compacte Leica-camera door Mexico reisde, deed fotograaf Guido de Bruin hetzelfde. ‘We delen een...
 
 ### Meest gelezen
 
