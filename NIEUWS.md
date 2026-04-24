@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-04-2026 om 18:59*
+*Laatst bijgewerkt: 24-04-2026 om 19:56*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tiental Vitesse scoort in Leeuwarden, Den Bosch-fans juichen voor goal ADO: wie pakt laatste ticket voor play-offs?](https://www.ad.nl/voetbal/tiental-vitesse-scoort-in-leeuwarden-den-bosch-fans-juichen-voor-goal-ado-wie-pakt-laatste-ticket-voor-play-offs~a2c8bf98/)
+- [Tiental Vitesse mag toch nog dromen van play-offs: FC Dordrecht maakt gelijk tegen Willem II, spanning in Den Bosch](https://www.ad.nl/voetbal/tiental-vitesse-mag-toch-nog-dromen-van-play-offs-fc-dordrecht-maakt-gelijk-tegen-willem-ii-spanning-in-den-bosch~a2c8bf98/)
   > Tijdens de laatste speelronde van de Keuken Kampioen Divisie kunnen alleen FC Den Bosch en Vitesse nog een play-offticket bemachtigen. FC Den Bosch...
-- [Haren van mishandelde jongen afgeknipt, 7 minderjarigen opgepakt](https://www.ad.nl/binnenland/haren-van-mishandelde-jongen-afgeknipt-7-minderjarigen-opgepakt~a373723c/)
+- [Bredase senioren mogen balkon niet op: ‘Gisteren heb ik gezondigd, maar dan zit je steeds naar boven te kijken’](https://www.ad.nl/binnenland/bredase-senioren-mogen-balkon-niet-op-gisteren-heb-ik-gezondigd-maar-dan-zit-je-steeds-naar-boven-te-kijken~a5c626d4/)
+  > Frustratie in de Bredase seniorenresidentie Ruitersbos. Ruim drie weken geleden viel een betonnen isolatieplaat naar beneden, en sindsdien mogen...
+- [Bilal Wahib verwacht eerste kindje met verloofde Sophie en Frans Bauer verrast met hitlijstmijlpaal](https://www.ad.nl/show/bilal-wahib-verwacht-eerste-kindje-met-verloofde-sophie-en-frans-bauer-verrast-met-hitlijstmijlpaal~a99af07b/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Antje Monteiro redde drie elzen in haar tuin van de kap: ‘Bleek dat ik juist voor die bomen allergisch ben’](https://www.ad.nl/gezond/antje-monteiro-redde-drie-elzen-in-haar-tuin-van-de-kap-bleek-dat-ik-juist-voor-die-bomen-allergisch-ben~a155881a/)
+  > Zakelijke telefoontjes doet ze lopend en van een erfelijke aanleg voor hart- en vaatziekten ondervindt Antje Monteiro geen last. En als ze niet kan...
+- [Haren van mishandelde jongen afgeknipt, zeven minderjarigen opgepakt](https://www.ad.nl/binnenland/haren-van-mishandelde-jongen-afgeknipt-zeven-minderjarigen-opgepakt~a373723c/)
   > Zeven minderjarigen uit Tilburg zijn vrijdag aangehouden nadat eerder deze week een jongen in een parkeergarage is aangevallen. De mishandeling vond...
-- [Als buurman takjes van rododendron breekt bij ramen lappen barst de bom: ‘Dat was de druppel’](https://www.ad.nl/binnenland/als-buurman-takjes-van-rododendron-breekt-bij-ramen-lappen-barst-de-bom-dat-was-de-druppel~add820c7/)
-  > Een rododendron die zou zijn ‘gemolesteerd’, slakken op het keukenraam en een buurman die de deur dichtgooit. Een burenconflict is in de rechtbank...
-- [Jade Anna betrapt op valse recensie in webshop: ‘Jan’ geeft vijf sterren, maar hij bestaat niet](https://www.ad.nl/show/jade-anna-betrapt-op-valse-recensie-in-webshop-jan-geeft-vijf-sterren-maar-hij-bestaat-niet~a58f5291/)
-  > Influencer Jade Anna van Vliet (21) is met haar bedrijf betrapt op het plaatsen van een valse vijfsterrenrecensie bij een eigen product. Al voordat...
-- [Henk de Jong keert na afscheid bij SC Cambuur nooit meer terug als hoofdtrai­ner: ‘Is ook beter voor mezelf’](https://www.ad.nl/voetbal/henk-de-jong-keert-na-afscheid-bij-sc-cambuur-nooit-meer-terug-als-hoofdtrainer-is-ook-beter-voor-mezelf~aa2bb99c/)
-  > Henk de Jong zit vrijdag voor de laatste keer in de dug-out als hoofdtrainer. De succesvolle Cambuur-coach neemt afscheid in de thuiswedstrijd tegen...
 
 ### Meest gelezen
 
