@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-04-2026 om 19:56*
+*Laatst bijgewerkt: 24-04-2026 om 20:58*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Negen Nederlanders aangehouden voor plofkraken in Duitsland en Zwitserland](https://nos.nl/l/2611885)
+  > De politie heeft vorige week zes mannen aangehouden die verdacht worden van betrokkenheid bij plofkraken over de grens. Zij zouden deel uitmaken van...
+- [VS wil mogelijkheden voor federale doodstraf verruimen met vuurpeloton en gas](https://nos.nl/l/2611884)
+  > De VS gaat onder meer vuurpelotons, elektrocutie en een dodelijk gas inzetten om de doodstraf uit te voeren voor federale straffen. Dat staat in een...
+- [Veel reacties op overlijden influencer Jade Kops (19), 'Iets bijzonders achtergelaten'](https://nos.nl/l/2611882)
+  > "Ongelofelijk hoeveel impact een meisje die ik niet persoonlijk kende, kan hebben", schrijft een vrouw op het online condoleanceregister van Jade...
 - [Brabants vleesverwerkend bedrijf moet per direct producten terugroepen](https://nos.nl/l/2611873)
   > Een vleesverwerkend bedrijf in Noord-Brabant moet van de Nederlandse Voedsel- en Warenautoriteit (NVWA) per direct alle producten terugroepen. Het...
 - [Spanje benadrukt toewijding aan NAVO na gelekte Pentagon-mail over mogelijke sancties](https://nos.nl/l/2611872)
   > De Spaanse premier Sánchez heeft benadrukt dat Spanje toegewijd lid is van de NAVO. Dat deed hij in reactie op e-mail die zou circuleren binnen de...
-- [Nieuwe regels voor 'probleemwolven' goed nieuws voor hobbyhouders in Westbroek](https://nos.nl/l/2611871)
-  > Het kabinet versoepelt de regels voor het aanpakken van wolven. Volgens staatssecretaris Erkens is dit nodig omdat het draagvlak afneemt en er te...
-- [Premier Tusk noemt loyaliteit van de VS 'belangrijkste vraag binnen de NAVO'](https://nos.nl/l/2611868)
-  > Wat tot nu toe vooral voorzichtig en diplomatiek werd geformuleerd, zegt de Poolse premier Donald Tusk nu openlijk. Hij trekt de loyaliteit van de VS...
-- [Langgezochte verdachte van Tadamon-bloedbad in Syrië gearresteerd](https://nos.nl/l/2611863)
-  > Een voormalige Syrische inlichtingenofficier is opgepakt in de provincie Hama. Hij wordt verdacht van een bloedbad in Damascus in 2013 waarbij naar...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tiental Vitesse mag toch nog dromen van play-offs: FC Dordrecht maakt gelijk tegen Willem II, spanning in Den Bosch](https://www.ad.nl/voetbal/tiental-vitesse-mag-toch-nog-dromen-van-play-offs-fc-dordrecht-maakt-gelijk-tegen-willem-ii-spanning-in-den-bosch~a2c8bf98/)
-  > Tijdens de laatste speelronde van de Keuken Kampioen Divisie kunnen alleen FC Den Bosch en Vitesse nog een play-offticket bemachtigen. FC Den Bosch...
-- [Bredase senioren mogen balkon niet op: ‘Gisteren heb ik gezondigd, maar dan zit je steeds naar boven te kijken’](https://www.ad.nl/binnenland/bredase-senioren-mogen-balkon-niet-op-gisteren-heb-ik-gezondigd-maar-dan-zit-je-steeds-naar-boven-te-kijken~a5c626d4/)
-  > Frustratie in de Bredase seniorenresidentie Ruitersbos. Ruim drie weken geleden viel een betonnen isolatieplaat naar beneden, en sindsdien mogen...
-- [Bilal Wahib verwacht eerste kindje met verloofde Sophie en Frans Bauer verrast met hitlijstmijlpaal](https://www.ad.nl/show/bilal-wahib-verwacht-eerste-kindje-met-verloofde-sophie-en-frans-bauer-verrast-met-hitlijstmijlpaal~a99af07b/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Antje Monteiro redde drie elzen in haar tuin van de kap: ‘Bleek dat ik juist voor die bomen allergisch ben’](https://www.ad.nl/gezond/antje-monteiro-redde-drie-elzen-in-haar-tuin-van-de-kap-bleek-dat-ik-juist-voor-die-bomen-allergisch-ben~a155881a/)
-  > Zakelijke telefoontjes doet ze lopend en van een erfelijke aanleg voor hart- en vaatziekten ondervindt Antje Monteiro geen last. En als ze niet kan...
-- [Haren van mishandelde jongen afgeknipt, zeven minderjarigen opgepakt](https://www.ad.nl/binnenland/haren-van-mishandelde-jongen-afgeknipt-zeven-minderjarigen-opgepakt~a373723c/)
-  > Zeven minderjarigen uit Tilburg zijn vrijdag aangehouden nadat eerder deze week een jongen in een parkeergarage is aangevallen. De mishandeling vond...
+- [Zwarte avond Vitesse: supporters gooien vuurwerk naar Cambuur-fans, wedstrijd gestaakt én geen play-offs](https://www.ad.nl/voetbal/zwarte-avond-vitesse-supporters-gooien-vuurwerk-naar-cambuur-fans-wedstrijd-gestaakt-en-geen-play-offs~a0e93c5a/)
+  > Het duel tussen SC Cambuur en Vitesse in de Keuken Kampioen Divisie is definitief gestaakt. Met nog enkele minuten speeltijd op de klok en bij een...
+- [Doden in Gaza bij Israëlische aanvallen, onder wie politieagenten](https://www.ad.nl/buitenland/doden-in-gaza-bij-israelische-aanvallen-onder-wie-politieagenten~a5a2256f/)
+  > Ten minste twaalf mensen zijn vrijdag omgekomen bij Israëlische aanvallen in Gaza, zeggen de autoriteiten in het gebied. Onder hen zouden ook zes...
+- [Alle clubs uit eerste divisie zijn bekend: dit is het programma van play-offs om promotie](https://www.ad.nl/voetbal/alle-clubs-uit-eerste-divisie-zijn-bekend-dit-is-het-programma-van-play-offs-om-promotie~a69c3b1d/)
+  > FC Den Bosch veroverde vrijdag het laatste ticket voor de play-offs. Daarmee houdt de club kans op promotie naar de VriendenLoterij Eredivisie. Zes...
+- [Dit is de winnaar van Heel Holland bakt elke dag: ‘Echt onwerkelijk’](https://www.ad.nl/show/dit-is-de-winnaar-van-heel-holland-bakt-elke-dag-echt-onwerkelijk~a50b5d7a/)
+  > Deelnemer Zeinab Alhashime (29) heeft vrijdagavond glansrijk revanche genomen voor een eerder verloren finale in Heel Holland bakt. Vier jaar later...
+- [Regering VS wil doodstraf uitbreiden, mogelijk ook vuurpeloton, elektrocutie of gas](https://www.ad.nl/buitenland/regering-vs-wil-doodstraf-uitbreiden-mogelijk-ook-vuurpeloton-elektrocutie-of-gas~a9701a0e/)
+  > Het Amerikaanse ministerie van Justitie wil de doodstraf op federaal niveau uitbreiden en het ook mogelijk maken om die uit te voeren met een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Zicht op nieuwe gesprekken Iran en VS en omzet Intel drijven koersen omhoog](https://fd.nl/financiele-markten/1594454/zicht-op-nieuwe-gesprekken-iran-en-vs-en-omzet-intel-drijven-koersen-omhoog)
+  > Op de Amerikaanse beurzen steeg het aandeel van Intel 24% na een meevallende omzetverwachting voor het tweede kwartaal.
+- [FBI-directeur Kash Patel ligt onder vuur en slaat wild om zich heen](https://fd.nl/samenleving/1594441/fbi-directeur-kash-patel-ligt-onder-vuur-en-slaat-wild-om-zich-heen)
+  > Democraten in het Amerikaanse Congres eisen het vertrek van de FBI-directeur na belastende berichtgeving. Hij zou een drankprobleem hebben...
 - [Overheid niet eerder weg bij Solvinity (DigiD) om ‘gevaar continuïteit’](https://fd.nl/politiek/1594347/overheid-niet-eerder-weg-bij-solvinity-digid-om-gevaar-continuiteit)
   > De Nederlandse overheid gaat voor de DigiD-dienstverlening niet eerder weg bij IT-bedrijf Solvinity, ook al lag er nog een mogelijkheid om dat te...
 - [Stilstand verergert tekort aan advocaten, gooi de luiken open](https://fd.nl/opinie/1594313/stilstand-verergert-tekort-aan-advocaten-gooi-de-luiken-open)
   > Externe aandeelhouders toelaten in de advocatuur hoeft niet ten koste te gaan van onafhankelijkheid. De Nederlandse Orde van Advocaten moet de ruimte...
 - [Google steekt tot $40 mrd in AI-start-up Anthropic](https://fd.nl/bedrijfsleven/1594346/google-steekt-tot-40-mrd-in-ai-start-up-anthropic)
   > Google investeert $10 mrd in het Amerikaanse bedrijf voor kunstmatige intelligentie Anthropic.
-- [Het geheim van het kabinet‑Jetten: de route naar politieke meerderheden](https://fd.nl/politiek/1594164/het-geheim-van-het-kabinetjetten-de-route-naar-politieke-meerderheden)
-  > Na het wegstemmen van een asielwet in de Eerste Kamer aan het begin van de week, put de coalitie aan het eind weer hoop uit de steun voor het...
-- [Kabinet stuurt wet voor behoud personeel in crisistijd naar Kamer](https://fd.nl/politiek/1594445/kabinet-stuurt-wet-voor-behoud-personeel-in-crisistijd-naar-kamer)
-  > De wet geeft bedrijven verschillende opties die het makkelijker maken om personeel in dienst te houden.
 
 ### Meest gelezen
 
