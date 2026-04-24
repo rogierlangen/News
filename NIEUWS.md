@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-04-2026 om 20:58*
+*Laatst bijgewerkt: 24-04-2026 om 21:55*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [FC Barcelona kan nieuwe landstitel ruiken na puntenverlies van Real Madrid](https://www.ad.nl/voetbal/fc-barcelona-kan-nieuwe-landstitel-ruiken-na-puntenverlies-van-real-madrid~a268f59b/)
+  > Real Madrid heeft in de strijd om de Spaanse landstitel duur puntenverlies geleden. De ploeg van coach Álvaro Arbeloa speelde met 1-1 gelijk tegen...
+- [Witkoff en Kushner naar Pakistan voor overleg, VS blokkeert cryptomunten gelinkt aan Iran](https://www.ad.nl/buitenland/witkoff-en-kushner-naar-pakistan-voor-overleg-vs-blokkeert-cryptomunten-gelinkt-aan-iran~ac528ac3/)
+  > Het Witte Huis bevestigt dat gezanten Steve Witkoff en Jared Kushner zaterdag naar Pakistan gaan voor overleg met Iran. Volgens Iraanse berichten...
 - [Zwarte avond Vitesse: supporters gooien vuurwerk naar Cambuur-fans, wedstrijd gestaakt én geen play-offs](https://www.ad.nl/voetbal/zwarte-avond-vitesse-supporters-gooien-vuurwerk-naar-cambuur-fans-wedstrijd-gestaakt-en-geen-play-offs~a0e93c5a/)
-  > Het duel tussen SC Cambuur en Vitesse in de Keuken Kampioen Divisie is definitief gestaakt. Met nog enkele minuten speeltijd op de klok en bij een...
+  > Het duel tussen SC Cambuur en Vitesse in de Keuken Kampioen Divisie is definitief gestaakt en wordt ook niet meer uitgespeeld Met nog enkele minuten...
 - [Doden in Gaza bij Israëlische aanvallen, onder wie politieagenten](https://www.ad.nl/buitenland/doden-in-gaza-bij-israelische-aanvallen-onder-wie-politieagenten~a5a2256f/)
   > Ten minste twaalf mensen zijn vrijdag omgekomen bij Israëlische aanvallen in Gaza, zeggen de autoriteiten in het gebied. Onder hen zouden ook zes...
 - [Alle clubs uit eerste divisie zijn bekend: dit is het programma van play-offs om promotie](https://www.ad.nl/voetbal/alle-clubs-uit-eerste-divisie-zijn-bekend-dit-is-het-programma-van-play-offs-om-promotie~a69c3b1d/)
   > FC Den Bosch veroverde vrijdag het laatste ticket voor de play-offs. Daarmee houdt de club kans op promotie naar de VriendenLoterij Eredivisie. Zes...
-- [Dit is de winnaar van Heel Holland bakt elke dag: ‘Echt onwerkelijk’](https://www.ad.nl/show/dit-is-de-winnaar-van-heel-holland-bakt-elke-dag-echt-onwerkelijk~a50b5d7a/)
-  > Deelnemer Zeinab Alhashime (29) heeft vrijdagavond glansrijk revanche genomen voor een eerder verloren finale in Heel Holland bakt. Vier jaar later...
-- [Regering VS wil doodstraf uitbreiden, mogelijk ook vuurpeloton, elektrocutie of gas](https://www.ad.nl/buitenland/regering-vs-wil-doodstraf-uitbreiden-mogelijk-ook-vuurpeloton-elektrocutie-of-gas~a9701a0e/)
-  > Het Amerikaanse ministerie van Justitie wil de doodstraf op federaal niveau uitbreiden en het ook mogelijk maken om die uit te voeren met een...
 
 ### Meest gelezen
 
