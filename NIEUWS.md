@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-04-2026 om 13:46*
+*Laatst bijgewerkt: 24-04-2026 om 15:11*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Duizenden deelscooters geveild na faillissement: 'We laten ze er niet mee wegkomen'](https://nos.nl/l/2611850)
+  > Duizenden felgroene scooters zo ver als het oog reikt, verlaten op een industrieterrein in het Noord-Hollandse Middenmeer. Ze zijn eigendom van het...
+- [Kabinet: we zitten in een sluimeroorlog in vredestijd](https://nos.nl/l/2611849)
+  > "Er is echt een sluimeroorlog aan de gang, terwijl we in vredestijd leven", reageert minister Van Weel van Justitie en Veiligheid op het alarmerende...
+- [Studentencorps ASC/AVSV krijgt weer bestuursbeurzen, onder voorwaarden](https://nos.nl/l/2611843)
+  > Bestuurders van studentencorps ASC/AVSV kunnen weer een beurs krijgen. Dat hebben de Universiteit van Amsterdam (UvA), de Vrije Universiteit (VU) en...
 - [Nog eens 25 miljoen voor Einstein Telescope, 'binnenhalen is regeringsprioriteit'](https://nos.nl/l/2611842)
   > Nederland trekt nog eens 25 miljoen euro extra uit om de Einstein Telescope naar de grensregio Zuid-Limburg te halen. Het kabinet ziet dat als...
-- [Influencer Jade Kops (19) overleden, 'zette zich in voor lotgenoten met kanker'](https://nos.nl/l/2611835)
+- [Influencer Jade Kops (19) overleden, zette zich in voor lotgenoten met kanker](https://nos.nl/l/2611835)
   > Jade Kops, van het Instagram-account mijnlevenmetkanker, is na een langdurig ziekbed overleden. Kops praatte op sociale media over haar leven en hoe...
-- [Dit jaar opvallend veel lintjes uitgereikt, vooral aan vrijwilligers](https://nos.nl/l/2611833)
-  > Meer dan 3600 Nederlanders hebben vandaag een koninklijke onderscheiding gekregen voor hun verdiensten voor de samenleving. Dat zijn er enkele...
-- [Israëlische premier Netanyahu behandeld voor prostaatkanker](https://nos.nl/l/2611827)
-  > De Israëlische premier Benjamin Netanyahu is behandeld voor prostaatkanker. Dat schrijft hij op X naar aanleiding van de publicatie van zijn...
-- [Podcast De Dag: Nasrah Habiballah over afscheid van Israël en Palestijnse Gebieden](https://nos.nl/l/2611825)
-  > Nasrah Habiballah neemt na 3,5 jaar afscheid als correspondent voor Israël en de Palestijnse Gebieden. Drieëneenhalf jaar die bijna geheel in het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Jan Hillenius hoofdredacteur nieuwe latenightshow Renze Klamer](https://www.ad.nl/show/jan-hillenius-hoofdredacteur-nieuwe-latenightshow-renze-klamer~a361038d/)
-  > Jan Hillenius (54) wordt hoofdredacteur van de nieuwe latenightshow van Renze Klamer van RTL. De Hagenaar was vorig jaar al gevraagd door producent...
-- [UEFA velt oordeel: Benfica-speler die Vinícius Júnior bejegende zes wedstrijden geschorst](https://www.ad.nl/voetbal/uefa-velt-oordeel-benfica-speler-die-vinicius-junior-bejegende-zes-wedstrijden-geschorst~a7237664/)
-  > De UEFA heeft Benfica-speler Gianluca Prestianni voor zes wedstrijden geschorst, waarvan drie voorwaardelijk. Dat meldt de Europese voetbalbond in...
-- [Weer tegenvaller Feyenoord: Jakub Moder rest van het seizoen uitgeschakeld](https://www.ad.nl/voetbal/weer-tegenvaller-feyenoord-jakub-moder-rest-van-het-seizoen-uitgeschakeld~a7ba5ec4/)
-  > Middenvelder Jakub Moder (27) is de rest van het seizoen uitgeschakeld. Dat heeft Feyenoord-coach Robin van Persie vrijdag bekendgemaakt. „Moder is...
-- [Israël schendt staakt-het-vuren nu al: twee doden in Libanon, ‘Grote kans op doorbraak tussen VS en Iran vanavond’](https://www.ad.nl/buitenland/israel-schendt-staakt-het-vuren-nu-al-twee-doden-in-libanon-grote-kans-op-doorbraak-tussen-vs-en-iran-vanavond~ac528ac3/)
-  > Bij een Israëlische aanval op het zuiden van Libanon zijn volgens de Libanese autoriteiten twee doden gevallen. Donderdag ging Israël nog akkoord met...
-- [Welke mensen uit jouw gemeente hebben vandaag een lintje gekregen? Bekijk het hier](https://www.ad.nl/binnenland/welke-mensen-uit-jouw-gemeente-hebben-vandaag-een-lintje-gekregen-bekijk-het-hier~ab58b329/)
-  > Een speciale dag voor meer dan 3600 Nederlanders: koning Willem-Alexander trakteert ze, vlak voor zijn verjaardag, op een lintje. Van een 98-jarige...
+- [Wat zit er in je shampoo en make-up? Na week zonder ‘chemische’ producten al minder gif in lichaam](https://www.ad.nl/buitenland/wat-zit-er-in-je-shampoo-en-make-up-na-week-zonder-chemische-producten-al-minder-gif-in-lichaam~a672d891/)
+  > Flacons, crèmes, tubetjes: we doen elke dag van alles om er mooier, jonger en vitaler uit te zien. Maar is onze ‘beautyroutine’ wel zo gezond? Dat is...
+- [Justitie stopt onderzoek naar renovatie centrale bank, Navo-landen trekken zich niets aan van dreigement Trump](https://www.ad.nl/buitenland/justitie-stopt-onderzoek-naar-renovatie-centrale-bank-navo-landen-trekken-zich-niets-aan-van-dreigement-trump~ae67dd9c/)
+  > Europese Navo-landen zeggen zich niets aan te trekken van vermeende plannen van president Donald Trump om bondgenoten die niet meewerken te straffen....
+- [Colombiaan (30), ex-teamgenoot van Pogacar, overleden door infectie in knie die hij opliep bij val in Franse koers](https://www.ad.nl/wielrennen/colombiaan-30-ex-teamgenoot-van-pogacar-overleden-door-infectie-in-knie-die-hij-opliep-bij-val-in-franse-koers~abc4808a/)
+  > Wielrenner Cristian Camilo Muñoz is vrijdag overleden. Dat maakte de Colombiaanse wielerbond bekend in een bericht op zijn website. De 30-jarige...
+- [AD Sportwereld volgt het WK voetbal op de voet, dit kun je verwachten](https://www.ad.nl/wk-voetbal/ad-sportwereld-volgt-het-wk-voetbal-op-de-voet-dit-kun-je-verwachten~ad8adfec/)
+  > Het grootste WK voetbal ooit, dat over ruim 40 dagen van start gaat, draait dag en nacht door. 104 wedstrijden in vijf weken tijd, nieuws uit het...
+- [Óscar García heeft Davy Klaassen niet terug voor belangrijk duel met NAC: ‘Weten dat er veel op het spel staat’](https://www.ad.nl/voetbal/oscar-garcia-heeft-davy-klaassen-niet-terug-voor-belangrijk-duel-met-nac-weten-dat-er-veel-op-het-spel-staat~a61b65d0/)
+  > Davy Klaassen is nog altijd niet fit en kan zaterdag niet met de selectie van Ajax afreizen naar het uitduel met NAC Breda. Dat zei trainer Óscar...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [De mammoet is allang weg, de grote vraag blijft: hoe komen wij uit die grot?](https://fd.nl/opinie/1594306/hoe-komen-we-uit-die-grot)
-  > Onze stam zit anno nu nog altijd verdeeld in de grot. De mensheid wil elkaar niet leren begrijpen. Dat zien we in Europa, dat zien we in de Verenigde...
-- [‘Onveilige werksfeer bij opleidingsplek verzekeringsartsen UWV’](https://fd.nl/samenleving/1594327/onveilige-werksfeer-bij-opleidingsplek-verzekeringsartsen-uwv)
-  > De registratiecommissie Geneeskundig Specialisten (RGS) onderzoekt de werkcultuur bij een aantal opleidingsplekken van het UWV.
-- [‘Iraanse minister Araghchi naar Pakistan voor onderhandelingen VS’](https://fd.nl/politiek/1594433/iraanse-minister-araghchi-naar-pakistan-voor-onderhandelingen-vs)
-  > Abbas Araghchi reist mogelijk vrijdagavond naar de hoofdstad Islamabad voor een mogelijke tweede ronde vredesonderhandelingen.
-- [Porsche neemt nu helemaal afscheid van belang in Bugatti](https://fd.nl/bedrijfsleven/1594326/porsche-neemt-nu-helemaal-afscheid-van-belang-in-bugatti)
-  > Porsche had Bugatti in 2021 ondergebracht in een joint venture samen met de Kroatische Rimac Group, die een aandeel van 55% verwierf.
-- [Nederland werd in 2025 efficiënter, maar is dat een echte trendbreuk?](https://fd.nl/economie/1594320/nederland-werd-in-2025-efficienter-maar-is-dat-een-echte-trendbreuk)
-  > De Nederlandse arbeidsproductiviteit maakte in 2025 na twee jaar daling een sprong van 2,4%. Een voorbode van hogere groeicijfers? Voor die conclusie...
+- [Amerikaans consumentenvertrouwen zakt naar laagste punt sinds 1978](https://fd.nl/economie/1594444/amerikaans-consumentenvertrouwen-zakt-naar-laagste-punt-sinds-1978)
+  > Zorgen over de economische gevolgen van de oorlog met Iran leidden ertoe dat de definitieve index voor april op het laagste niveau belandde sinds de...
+- [Aanklagers stoppen onderzoek naar Fed-voorzitter Powell](https://fd.nl/financiele-markten/1594344/aanklagers-stoppen-onderzoek-naar-fed-voorzitter-powell)
+  > Het strafrechtelijk onderzoek naar Jerome Powell blokkeerde de benoeming van Kevin Warsh als opvolger van de huidige Fed-baas.
+- [In Peking staan de auto’s van de toekomst naast Europese oldtimers](https://fd.nl/bedrijfsleven/1594436/in-peking-staan-de-autos-van-de-toekomst-naast-europese-oldtimers)
+  > De tweejaarlijkse autobeurs in de Chinese hoofdstad Peking wordt dit jaar gedomineerd door AI, een batterijenruzie en autonoom rijden.
+- [Overslag gelijk gebleven, toch hogere omzet en winst voor haven van Amsterdam](https://fd.nl/bedrijfsleven/1594321/overslag-gelijk-toch-hogere-omzet-en-winst-voor-haven-van-amsterdam)
+  > Hogere inkomsten uit havengelden en grondcontracten stuwden de resultaten. De haven slaagde er niet in de doorvoer van olieproducten terug te dringen.
+- [Duurzaam bouwen duur? Niet per se](https://fd.nl/financiele-markten/1594131/duurzaam-bouwen-duur-niet-per-se)
+  > Aandacht voor aandeelhouderswaarde hoeft duurzame doelen niet in de weg te staan in de bouwsector.
 
 ### Meest gelezen
 
