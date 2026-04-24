@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-04-2026 om 15:11*
+*Laatst bijgewerkt: 24-04-2026 om 17:02*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Duizenden deelscooters geveild na faillissement: 'We laten ze er niet mee wegkomen'](https://nos.nl/l/2611850)
-  > Duizenden felgroene scooters zo ver als het oog reikt, verlaten op een industrieterrein in het Noord-Hollandse Middenmeer. Ze zijn eigendom van het...
-- [Kabinet: we zitten in een sluimeroorlog in vredestijd](https://nos.nl/l/2611849)
-  > "Er is echt een sluimeroorlog aan de gang, terwijl we in vredestijd leven", reageert minister Van Weel van Justitie en Veiligheid op het alarmerende...
-- [Studentencorps ASC/AVSV krijgt weer bestuursbeurzen, onder voorwaarden](https://nos.nl/l/2611843)
-  > Bestuurders van studentencorps ASC/AVSV kunnen weer een beurs krijgen. Dat hebben de Universiteit van Amsterdam (UvA), de Vrije Universiteit (VU) en...
-- [Nog eens 25 miljoen voor Einstein Telescope, 'binnenhalen is regeringsprioriteit'](https://nos.nl/l/2611842)
-  > Nederland trekt nog eens 25 miljoen euro extra uit om de Einstein Telescope naar de grensregio Zuid-Limburg te halen. Het kabinet ziet dat als...
-- [Influencer Jade Kops (19) overleden, zette zich in voor lotgenoten met kanker](https://nos.nl/l/2611835)
-  > Jade Kops, van het Instagram-account mijnlevenmetkanker, is na een langdurig ziekbed overleden. Kops praatte op sociale media over haar leven en hoe...
+- [Premier Tusk noemt loyaliteit van de VS 'belangrijkste vraag binnen de NAVO'](https://nos.nl/l/2611868)
+  > Wat tot nu toe vooral voorzichtig en diplomatiek werd geformuleerd, zegt de Poolse premier Donald Tusk nu openlijk. Hij trekt de loyaliteit van de VS...
+- [Langgezochte verdachte van Tadamon-bloedbad in Syrië gearresteerd](https://nos.nl/l/2611863)
+  > Een voormalige Syrische inlichtingenofficier is opgepakt in de provincie Hama. Hij wordt verdacht van een bloedbad in Damascus in 2013 waarbij naar...
+- [Gokbedrijven aangesproken op wedden op eigen doelpunten](https://nos.nl/l/2611861)
+  > Goksites Holland Casino Online en Vbet zijn door de Kansspelautoriteit aangesproken op het aanbieden van verboden weddenschappen. 
+        De...
+- [Aantal noodopvangplekken in Loosdrecht na protesten naar beneden bijgesteld](https://nos.nl/l/2611859)
+  > Het aantal tijdelijke noodopvangplekken voor asielzoekers in Loosdrecht wordt naar beneden bijgesteld: van de beoogde 110 naar 70 plaatsen. Dat heeft...
+- [Meta ontslaat duizenden werknemers om te investeren in AI, waarom eigenlijk?](https://nos.nl/l/2611855)
+  > Na ontslagrondes bij grote techbedrijven als Amazon en Oracle, kondigde ook Meta gisteren aan duizenden banen te schrappen. 8000 werknemers van het...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Wat zit er in je shampoo en make-up? Na week zonder ‘chemische’ producten al minder gif in lichaam](https://www.ad.nl/buitenland/wat-zit-er-in-je-shampoo-en-make-up-na-week-zonder-chemische-producten-al-minder-gif-in-lichaam~a672d891/)
-  > Flacons, crèmes, tubetjes: we doen elke dag van alles om er mooier, jonger en vitaler uit te zien. Maar is onze ‘beautyroutine’ wel zo gezond? Dat is...
-- [Justitie stopt onderzoek naar renovatie centrale bank, Navo-landen trekken zich niets aan van dreigement Trump](https://www.ad.nl/buitenland/justitie-stopt-onderzoek-naar-renovatie-centrale-bank-navo-landen-trekken-zich-niets-aan-van-dreigement-trump~ae67dd9c/)
-  > Europese Navo-landen zeggen zich niets aan te trekken van vermeende plannen van president Donald Trump om bondgenoten die niet meewerken te straffen....
-- [Colombiaan (30), ex-teamgenoot van Pogacar, overleden door infectie in knie die hij opliep bij val in Franse koers](https://www.ad.nl/wielrennen/colombiaan-30-ex-teamgenoot-van-pogacar-overleden-door-infectie-in-knie-die-hij-opliep-bij-val-in-franse-koers~abc4808a/)
-  > Wielrenner Cristian Camilo Muñoz is vrijdag overleden. Dat maakte de Colombiaanse wielerbond bekend in een bericht op zijn website. De 30-jarige...
-- [AD Sportwereld volgt het WK voetbal op de voet, dit kun je verwachten](https://www.ad.nl/wk-voetbal/ad-sportwereld-volgt-het-wk-voetbal-op-de-voet-dit-kun-je-verwachten~ad8adfec/)
-  > Het grootste WK voetbal ooit, dat over ruim 40 dagen van start gaat, draait dag en nacht door. 104 wedstrijden in vijf weken tijd, nieuws uit het...
-- [Óscar García heeft Davy Klaassen niet terug voor belangrijk duel met NAC: ‘Weten dat er veel op het spel staat’](https://www.ad.nl/voetbal/oscar-garcia-heeft-davy-klaassen-niet-terug-voor-belangrijk-duel-met-nac-weten-dat-er-veel-op-het-spel-staat~a61b65d0/)
-  > Davy Klaassen is nog altijd niet fit en kan zaterdag niet met de selectie van Ajax afreizen naar het uitduel met NAC Breda. Dat zei trainer Óscar...
+- [Dit is de dag dat de ON’ers in het zonnetje worden gezet, en terecht](https://www.ad.nl/commentaar/dit-is-de-dag-dat-de-oners-in-het-zonnetje-worden-gezet-en-terecht~ad05399b/)
+  > Was het maar elke dag Koningsdag, schrijft Hans Nijenhuis in dit commentaar.
+- [Nederlandse bende opgepakt voor serie plofkraken in Duitsland en Zwitserland](https://www.ad.nl/binnenland/nederlandse-bende-opgepakt-voor-serie-plofkraken-in-duitsland-en-zwitserland~ad191587/)
+  > De politie heeft negen Nederlanders aangehouden voor het plegen van plofkraken in Duitsland en Zwitserland. Het gaat om mannen van 25 tot 39 jaar....
+- [Millwall overweegt juridische stappen vanwege Ku Klux Klan-figuur met clublogo in kinderboek](https://www.ad.nl/voetbal/millwall-overweegt-juridische-stappen-vanwege-ku-klux-klan-figuur-met-clublogo-in-kinderboek~a29eef4b/)
+  > Millwall denkt na over juridische stappen tegen de Londense gemeente Westminster vanwege het gebruik van het clublogo in een kinderboek. In het boek...
+- [Nieuwe dag van nagelbijten voor supporters van Vitesse: op 1 mei is de eerste stap bij de Hoge Raad](https://www.ad.nl/voetbal/nieuwe-dag-van-nagelbijten-voor-supporters-van-vitesse-op-1-mei-is-de-eerste-stap-bij-de-hoge-raad~ab1b9ede/)
+  > Er komt opnieuw een dag van nagelbijten aan voor supporters van Vitesse. Op 1 mei zal de advocaat-generaal van de Hoge Raad bekendmaken of de...
+- [Zijn relatie strandde, zijn clubliefde bleef: Waudiz reist de halve wereld over om uit zijn dak te gaan in Velsen-Zuid](https://www.ad.nl/voetbal/zijn-relatie-strandde-zijn-clubliefde-bleef-waudiz-reist-de-halve-wereld-over-om-uit-zijn-dak-te-gaan-in-velsen-zuid~ac06d599/)
+  > Midden in de fanatieke aanhang van Telstar valt één man op: Waudiz. In zijn opvallende rode jas springt hij met zijn sjaal boven zijn hoofd, precies...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaans consumentenvertrouwen zakt naar laagste punt sinds 1978](https://fd.nl/economie/1594444/amerikaans-consumentenvertrouwen-zakt-naar-laagste-punt-sinds-1978)
-  > Zorgen over de economische gevolgen van de oorlog met Iran leidden ertoe dat de definitieve index voor april op het laagste niveau belandde sinds de...
-- [Aanklagers stoppen onderzoek naar Fed-voorzitter Powell](https://fd.nl/financiele-markten/1594344/aanklagers-stoppen-onderzoek-naar-fed-voorzitter-powell)
-  > Het strafrechtelijk onderzoek naar Jerome Powell blokkeerde de benoeming van Kevin Warsh als opvolger van de huidige Fed-baas.
-- [In Peking staan de auto’s van de toekomst naast Europese oldtimers](https://fd.nl/bedrijfsleven/1594436/in-peking-staan-de-autos-van-de-toekomst-naast-europese-oldtimers)
-  > De tweejaarlijkse autobeurs in de Chinese hoofdstad Peking wordt dit jaar gedomineerd door AI, een batterijenruzie en autonoom rijden.
-- [Overslag gelijk gebleven, toch hogere omzet en winst voor haven van Amsterdam](https://fd.nl/bedrijfsleven/1594321/overslag-gelijk-toch-hogere-omzet-en-winst-voor-haven-van-amsterdam)
-  > Hogere inkomsten uit havengelden en grondcontracten stuwden de resultaten. De haven slaagde er niet in de doorvoer van olieproducten terug te dringen.
-- [Duurzaam bouwen duur? Niet per se](https://fd.nl/financiele-markten/1594131/duurzaam-bouwen-duur-niet-per-se)
-  > Aandacht voor aandeelhouderswaarde hoeft duurzame doelen niet in de weg te staan in de bouwsector.
+- [Het geheim van het kabinet‑Jetten: de route naar politieke meerderheden](https://fd.nl/politiek/1594164/het-geheim-van-het-kabinetjetten-de-route-naar-politieke-meerderheden)
+  > Na het wegstemmen van een asielwet in de Eerste Kamer aan het begin van de week, put de coalitie aan het eind weer hoop uit de steun voor het...
+- [Kabinet stuurt wet voor behoud personeel in crisistijd naar Kamer](https://fd.nl/politiek/1594445/kabinet-stuurt-wet-voor-behoud-personeel-in-crisistijd-naar-kamer)
+  > De wet geeft bedrijven verschillende opties die het makkelijker maken om personeel in dienst te houden.
+- [Stilletjes aan houden beleggers weer rekening met een langere oorlog](https://fd.nl/financiele-markten/1594427/stilletjes-aan-houden-beleggers-weer-rekening-met-een-langere-oorlog)
+  > De Straat van Hormuz leek open te gaan, maar van een grote stroom schepen is geen sprake. De olieprijs krabbelde in een week 17% omhoog.
+- [Kabinet trekt €428 mln uit voor onderzoek en wetenschap](https://fd.nl/samenleving/1594323/kabinet-trekt428mln-uit-voor-onderzoek-en-wetenschap)
+  > In het regeerakkoord spraken D66, CDA en VVD af om €1,5 mrd te steken in het Nederlandse onderwijs. Het kabinet presenteert nu voor het eerst plannen...
+- [AFM vindt nieuw accountantskopstuk op Curaçao](https://fd.nl/financiele-markten/1594345/afm-vindt-nieuw-accountantskopstuk-op-curacao)
+  > Richard Doornbosch wordt bestuurslid kapitaalmarkten en accountancy bij de toezichthouder.
 
 ### Meest gelezen
 
