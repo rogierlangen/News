@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-04-2026 om 22:41*
+*Laatst bijgewerkt: 25-04-2026 om 23:42*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Explosief in bus eist 13 levens in Colombia, geweld escaleert](https://nos.nl/l/2612011)
+  > Een explosief in een bus heeft in het zuidwesten van Colombia aan dertien mensen het leven gekost. De bus reed over de Pan-Amerikaanse snelweg in...
 - [Vredesonderhandelingen tussen VS en Iran verder uit zicht, conflict zit muurvast](https://nos.nl/l/2612005)
   > De kans lijkt klein dat de Verenigde Staten en Iran op korte termijn zullen onderhandelen over een einde aan de oorlog in het Midden-Oosten. Een...
 - [Verslagen Viktor Orbán weg uit Hongaars parlement, gaat zijn partij reorganiseren](https://nos.nl/l/2611992)
@@ -16,8 +18,6 @@
   > Op de provinciale weg N35 tussen Wierden en Nijverdal zijn vijf mensen gewond geraakt bij een ongeluk met een brandweerwagen. De wagen sloeg over de...
 - [Eerste Kamerlid Greet Prins (72) overleden, was nog bij stemming asielwet](https://nos.nl/l/2611983)
   > Greet Prins, vicefractievoorzitter van het CDA in de Eerste Kamer, is op 72-jarige leeftijd overleden. Het Eerste Kamerlid leed aan de zenuw- en...
-- [Milieucrisis in Gaza door grote bergen afval: 'Kinderen hebben huidziekten'](https://nos.nl/l/2611979)
-  > In Gaza groeit de dreiging van een milieucrisis. Al ruim twee jaar ligt de verwerking van afval vrijwel stil en stapelt het vuil zich op. Grondwater...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Glory-historie in Ahoy: Chico Kwasi tweede ooit met wereldtitels in twee verschillende divisies](https://www.ad.nl/vechtsport/glory-historie-in-ahoy-chico-kwasi-tweede-ooit-met-wereldtitels-in-twee-verschillende-divisies~a9b7dd49/)
+- [Gezin van verdachte aanslag met molotovcocktails VS opnieuw vastgezet](https://www.ad.nl/buitenland/gezin-van-verdachte-aanslag-met-molotovcocktails-vs-opnieuw-vastgezet~adccfc84/)
+  > Amerikaanse immigratieagenten hebben zaterdag de familie van een man die ervan wordt beschuldigd vorig jaar Joodse demonstranten in de Amerikaanse...
+- [Zeker 14 doden door bomaanslag in Colombia](https://www.ad.nl/buitenland/zeker-14-doden-door-bomaanslag-in-colombia~a4352d49/)
+  > Bij een bomaanslag in het zuidwesten van Colombia zijn zaterdag 14 mensen om het leven gekomen. Zeventien anderen raakten gewond.
+- [Glory-historie in Ahoy: Chico Kwasi tweede ooit met wereldtitels in twee divisies: ‘Alle haters geloofden me niet’](https://www.ad.nl/vechtsport/glory-historie-in-ahoy-chico-kwasi-tweede-ooit-met-wereldtitels-in-twee-divisies-alle-haters-geloofden-me-niet~a9b7dd49/)
   > Chico Kwasi, de 28-jarige kickbokser uit Purmerend, is de tweede kickbokser in de historie van Glory die wereldkampioen is in twee gewichtsklasses...
 - [Strijd om plek 2: dit is het resterende programma van Feyenoord, NEC, FC Twente en Ajax](https://www.ad.nl/voetbal/strijd-om-plek-2-dit-is-het-resterende-programma-van-feyenoord-nec-fc-twente-en-ajax~a3da7ce4/)
   > De strijd om de cruciale tweede plek is nog altijd razendspannend in de VriendenLoterij eredivisie. Vier clubs azen op deze positie, die recht geeft...
 - [Verkeerstoren Suriname onbemand, KLM wijkt uit naar Trinidad](https://www.ad.nl/buitenland/verkeerstoren-suriname-onbemand-klm-wijkt-uit-naar-trinidad~ad7ab9b0/)
   > Een KLM-vlucht naar Suriname is zaterdag uitgeweken naar Trinidad en Tobago omdat er geen luchtverkeersleiders aanwezig waren op de internationale...
-- [Gretig NEC speelt gelijk bij FC Twente en houdt zicht op CL-ticket, Feyenoord lachende derde](https://www.ad.nl/voetbal/gretig-nec-speelt-gelijk-bij-fc-twente-en-houdt-zicht-op-cl-ticket-feyenoord-lachende-derde~abbdc3ff/)
-  > NEC heeft op bezoek bij FC Twente gelijkgespeeld. Het spannende duel om plek drie eindigde in 1-1. Dat is voor Feyenoord en Ajax goed nieuws in de...
-- [Robert Eenhoorn staat open voor directeurschap Feyenoord, Van Persie wil Advocaat aan boord houden](https://www.ad.nl/voetbal/robert-eenhoorn-staat-open-voor-directeurschap-feyenoord-van-persie-wil-advocaat-aan-boord-houden~ac2d9027/)
-  > Achter de schermen wordt bij Feyenoord een strijd gevoerd over hoe de vacature van de vertrekkende directeur Dennis te Kloese ingevuld moet worden....
 
 ### Meest gelezen
 
