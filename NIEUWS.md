@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-04-2026 om 11:46*
+*Laatst bijgewerkt: 25-04-2026 om 13:14*
 
 ---
 
@@ -10,8 +10,8 @@
 
 - [Provincies willen 1,2 miljoen zien van bedrijf dat bushalteborden zou plaatsen](https://nos.nl/l/2611928)
   > De provincies Overijssel, Gelderland en Flevoland willen een bedrijf aansprakelijk stellen voor 1,2 miljoen euro. Het gaat om het bedrijf Surtronic,...
-- [Klimaatprotest op A12 bij Utrecht, forse verkeershinder](https://nos.nl/l/2611926)
-  > Demonstranten van protestbeweging Extinction Rebellion hebben de snelweg A12 ter hoogte van De Meern bezet. Een groep mensen is op de snelweg gaan...
+- [Politie grijpt in bij klimaatprotest op A12 bij Utrecht, forse verkeershinder](https://nos.nl/l/2611926)
+  > Bij een klimaatprotest op de snelweg A12 bij Utrecht is de politie begonnen met het wegslepen van demonstranten. Betogers van onder meer Extinction...
 - [Palestijnen op de Westelijke Jordaanoever en een stad in Gaza naar de stembus](https://nos.nl/l/2611925)
   > Palestijnen op de Westelijke Jordaanoever en in de Gazaanse stad Deir-al-Balah kunnen vandaag naar de stembus om lokale bestuurders te kiezen. Vooral...
 - [Onrust in Mali, schietpartijen op meerdere plaatsen](https://nos.nl/l/2611924)
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘Mijn Amerikaanse managers vonden het lastig dat ik niet meer dan 40 uur per week werk’](https://www.ad.nl/werk/mijn-amerikaanse-managers-vonden-het-lastig-dat-ik-niet-meer-dan-40-uur-per-week-werk~a20f9518/)
-  > Henk (44) werkt als productieplanner in de chemie. Hij is verantwoordelijk voor een aantal fabrieken die op elkaar afgestemd moeten zijn, zodat het...
-- [Ontdek de Máxima in jezelf: Kies voor ‘wauwmouwen’ en kleuren die een beetje vloeken](https://www.ad.nl/gezond/ontdek-de-maxima-in-jezelf-kies-voor-wauwmouwen-en-kleuren-die-een-beetje-vloeken~a3e22506/)
-  > Of ze nu in een uitbundige jurk verschijnt of juist verrassend eenvoudig: Máxima weet altijd de aandacht te trekken en is met recht het grootste...
-- [Van de prinsessen in Friesland tot een oranje tompouce in The masked singer: dit is de Koningsdag-programmering](https://www.ad.nl/show/van-de-prinsessen-in-friesland-tot-een-oranje-tompouce-in-the-masked-singer-dit-is-de-koningsdag-programmering~ade5fd8a/)
-  > Maandag 27 april is de dag waarop heel Nederland oranje kleurt en we proosten op de verjaardag van koning Willem-Alexander. Niet zo van het eindeloze...
-- [Kijkers Flikken Maastricht massaal op verkeerde been gezet: grote plottwist vlak voor seizoensfinale](https://www.ad.nl/show/kijkers-flikken-maastricht-massaal-op-verkeerde-been-gezet-grote-plottwist-vlak-voor-seizoensfinale~a41bd00d/)
-  > De makers van Flikken Maastricht hebben in de voorlaatste aflevering van het twintigste seizoen een enorme verrassing in petto voor de kijkers. Deze...
-- [Het is geen vraag meer óf het gebeurt, maar wanneer: marathonwereld balanceert op rand van historie](https://www.ad.nl/andere-sporten/het-is-geen-vraag-meer-of-het-gebeurt-maar-wanneer-marathonwereld-balanceert-op-rand-van-historie~abab5de0/)
-  > Sabastian Sawe en Jacob Kiplimo zijn zondag de blikvangers bij de Londen Marathon en wakkeren de droom aan van een tijd onder de twee uur. Kenners en...
+- [Dochter Bert van Leeuwen (30) heeft MS en vertelt daar openhartig over: ‘Zoektocht hoe ik dit qua werk ga doen’](https://www.ad.nl/show/dochter-bert-van-leeuwen-30-heeft-ms-en-vertelt-daar-openhartig-over-zoektocht-hoe-ik-dit-qua-werk-ga-doen~ae198751/)
+  > Carlijn van Leeuwen, dochter van tv-presentator Bert van Leeuwen, heeft multiple sclerose (MS). Dat laat ze op Instagram weten. In een filmpje...
+- [Auto rijdt door gevel van supermarkt in Dongen: ‘Heel veel engeltjes op onze schouders’](https://www.ad.nl/binnenland/auto-rijdt-door-gevel-van-supermarkt-in-dongen-heel-veel-engeltjes-op-onze-schouders~ad045720/)
+  > Een opmerkelijk incident zaterdagochtend in Dongen: rond tien uur reed een auto dwars door de gevel van de Jumbo-supermarkt aan de Mgr....
+- [‘Ik sta helemaal te shaken’: Will (69) én Mart (67) nomineren elkaar in het geheim en krijgen allebei koninklijk lintje](https://www.ad.nl/binnenland/ik-sta-helemaal-te-shaken-will-69-en-mart-67-nomineren-elkaar-in-het-geheim-en-krijgen-allebei-koninklijk-lintje~ad37494d/)
+  > Maandenlang geheim moeten houden dat je partner een koninklijke onderscheiding krijgt, is bijzonder én knap lastig. Maar wat als je partner hetzelfde...
+- [Bauke is dol op Engels auto’s en vooral zijn Rover 75: ‘Dat beige leren interieur, houten stuur, houten dashboard’](https://www.ad.nl/auto/bauke-is-dol-op-engels-autos-en-vooral-zijn-rover-75-dat-beige-leren-interieur-houten-stuur-houten-dashboard~a1970d68/)
+  > Bouke van der Wal (vandaag 67 geworden) werd al in zijn studententijd verliefd op Engelse auto’s en is nog altijd met het virus besmet. Al meer dan...
+- [Collin Veijer schrijft geschiedenis: Nederland heeft eindelijk weer een polesitter in de Moto2](https://www.ad.nl/andere-sporten/collin-veijer-schrijft-geschiedenis-nederland-heeft-eindelijk-weer-een-polesitter-in-de-moto2~a2d24366/)
+  > Collin Veijer heeft voor het eerst in zijn carrière pole position veroverd in de Moto2. De Nederlandse wegracer was de snelste in de kwalificatie...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [‘Oekraïne en Azerbeidzjan sluiten deal over veiligheid en energie’](https://fd.nl/politiek/1594456/oekraine-en-azerbeidzjan-sluiten-deal-over-veiligheid-en-energie)
+  > Kyiv en Bakoe zouden afspraken hebben gemaakt over energie en veiligheid.
 - [Amerikanen naar Islamabad voor onderhandelingen, Iran ontkent gesprekken](https://fd.nl/politiek/1594372/amerikanen-naar-islamabad-voor-onderhandelingen-iran-ontkent-gesprekken)
   > Een delegatie vanuit Washington vertrekt op zaterdag naar Islamabad voor onderhandelingen, maar Iran ontkent dat directe gesprekken plaatsvinden.
 - [Een economisch mirakel in Nederland? En gaat China ons kapot concurreren?](https://fd.nl/economie/1594328/een-economisch-mirakel-in-nederland-en-gaat-china-ons-kapot-concurreren)
@@ -54,8 +56,6 @@
   > Cyberaanvallen zijn aan de orde van de dag. Toch is er al vijf jaar geen kritieke westerse infrastructuur meer aangevallen. Anja Shortland is er niet...
 - [Private-equityfirma’s Waterland en Main halen recordbedragen op](https://fd.nl/bedrijfsleven/1594325/private-equityfirmas-waterland-en-main-halen-recordbedragen-op)
   > De Nederlandse investeerders halen miljarden op, terwijl private equity moeite heeft met het vullen van nieuwe fondsen.
-- [Opeens willen ook grote en rijke landen bij de EU horen](https://fd.nl/politiek/1594312/opeens-willen-ook-grote-en-rijke-landen-bij-de-eu-horen)
-  > Bijna 56% van de Canadezen is voorstander van EU-lidmaatschap. Europa lijkt niet langer louter de vluchtplaats voor relatief kleine en arme landen,...
 
 ### Meest gelezen
 
