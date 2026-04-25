@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-04-2026 om 20:45*
+*Laatst bijgewerkt: 25-04-2026 om 21:40*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Vredesonderhandelingen tussen VS en Iran verder uit zicht, conflict zit muurvast](https://nos.nl/l/2612005)
+  > De kans lijkt klein dat de Verenigde Staten en Iran op korte termijn zullen onderhandelen over een einde aan de oorlog in het Midden-Oosten. Een...
 - [Verslagen Viktor Orbán weg uit Hongaars parlement, gaat zijn partij reorganiseren](https://nos.nl/l/2611992)
   > Vertrekkend premier Viktor Orbán van Hongarije neemt zijn parlementszetel niet in na de verkiezingsnederlaag van zijn partij Fidesz. Hij wil zich...
 - [Brandweerauto slaat na botsing over de kop, vijf gewonden](https://nos.nl/l/2611985)
@@ -16,8 +18,6 @@
   > Greet Prins, vicefractievoorzitter van het CDA in de Eerste Kamer, is op 72-jarige leeftijd overleden. Het Eerste Kamerlid leed aan de zenuw- en...
 - [Milieucrisis in Gaza door grote bergen afval: 'Kinderen hebben huidziekten'](https://nos.nl/l/2611979)
   > In Gaza groeit de dreiging van een milieucrisis. Al ruim twee jaar ligt de verwerking van afval vrijwel stil en stapelt het vuil zich op. Grondwater...
-- [Dode bij kettingbotsing op A12 vlak bij Duitse grenscontroles](https://nos.nl/l/2611975)
-  > In Babberich, in Gelderland, is op de A12 vlak bij de Duitse grens iemand overleden bij een kettingbotsing. Bij het ongeluk waren zeven auto's...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Robert Eenhoorn wil directeur van Feyenoord worden, Robin van Persie hoopt op langer verblijf Dick Advocaat](https://www.ad.nl/voetbal/robert-eenhoorn-wil-directeur-van-feyenoord-worden-robin-van-persie-hoopt-op-langer-verblijf-dick-advocaat~ac2d9027/)
+- [Schrijft Chico Kwasi historie en stapt hij in voetsporen UFC-fenomeen Alex Pereira?](https://www.ad.nl/vechtsport/schrijft-chico-kwasi-historie-en-stapt-hij-in-voetsporen-ufc-fenomeen-alex-pereira~a9b7dd49/)
+  > Chico Kwasi, de 28-jarige kickbokser uit Purmerend, kan de tweede kickbokser in de historie van Glory worden die wereldkampioen is in twee...
+- [Strijd om plek 2: dit is het resterende programma van Feyenoord, NEC, FC Twente en Ajax](https://www.ad.nl/voetbal/strijd-om-plek-2-dit-is-het-resterende-programma-van-feyenoord-nec-fc-twente-en-ajax~a3da7ce4/)
+  > De strijd om de cruciale tweede plek is nog altijd razendspannend in de VriendenLoterij eredivisie. Vier clubs azen op deze positie, die recht geeft...
+- [Verkeerstoren Suriname onbemand, KLM wijkt uit naar Trinidad](https://www.ad.nl/buitenland/verkeerstoren-suriname-onbemand-klm-wijkt-uit-naar-trinidad~ad7ab9b0/)
+  > Een KLM-vlucht naar Suriname is zaterdag uitgeweken naar Trinidad en Tobago omdat er geen luchtverkeersleiders aanwezig waren op de internationale...
+- [Gretig NEC speelt gelijk bij FC Twente en houdt zicht op CL-ticket, Feyenoord lachende derde](https://www.ad.nl/voetbal/gretig-nec-speelt-gelijk-bij-fc-twente-en-houdt-zicht-op-cl-ticket-feyenoord-lachende-derde~abbdc3ff/)
+  > NEC heeft op bezoek bij FC Twente gelijkgespeeld. Het spannende duel om plek drie eindigde in 1-1. Dat is voor Feyenoord en Ajax goed nieuws in de...
+- [Robert Eenhoorn staat open voor directeurschap Feyenoord, Van Persie wil Advocaat aan boord houden](https://www.ad.nl/voetbal/robert-eenhoorn-staat-open-voor-directeurschap-feyenoord-van-persie-wil-advocaat-aan-boord-houden~ac2d9027/)
   > Achter de schermen wordt bij Feyenoord een strijd gevoerd over hoe de vacature van de vertrekkende directeur Dennis te Kloese ingevuld moet worden....
-- [Jihadisten claimen betrokkenheid bij aanvallen in Mali](https://www.ad.nl/buitenland/jihadisten-claimen-betrokkenheid-bij-aanvallen-in-mali~aaaeb033/)
-  > De jihadistische groep JNIM bevestigt dat het betrokken is bij de golf van aanvallen in Mali. Die zouden onder meer gericht zijn geweest tegen de...
-- [Eerste dode bij grenscontrole en zorgen nemen toe: ‘Er lijkt geen einde aan te komen’](https://www.ad.nl/binnenland/eerste-dode-bij-grenscontrole-en-zorgen-nemen-toe-er-lijkt-geen-einde-aan-te-komen~a890e8008/)
-  > Voor het eerst is een inzittende om het leven gekomen bij een kettingbotsing tijdens een grenscontrole op de A12 bij Babberich. Burgemeesters en...
-- [Mika Godts helpt Ajax met weergaloze treffer en knappe assist aan broodnodige zege in Breda](https://www.ad.nl/voetbal/mika-godts-helpt-ajax-met-weergaloze-treffer-en-knappe-assist-aan-broodnodige-zege-in-breda~aadaa263/)
-  > Ajax heeft na Heracles ook degradatiekandidaat NAC opzij gezet. Mika Godts stal in het matige duel de show met een wereldgoal: 0-2.
-- [Verbluffende Gernot Trauner vindt de ophef over zijn terugkeer wat overdreven](https://www.ad.nl/voetbal/verbluffende-gernot-trauner-vindt-de-ophef-over-zijn-terugkeer-wat-overdreven~a1f8313c/)
-  > Gernot Trauner keerde na 320 dagen afwezigheid ijzersterk terug bij Feyenoord. Robin van Persie ziet het als een enorme kwaliteitsimpuls. De...
 
 ### Meest gelezen
 
