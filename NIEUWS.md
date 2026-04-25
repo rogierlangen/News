@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-04-2026 om 19:50*
+*Laatst bijgewerkt: 25-04-2026 om 20:45*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘Zlatan-achtig’: bekijk hier de indrukwekkende solo van Ajax-aanvaller Mika Godts](https://www.ad.nl/voetbal/zlatan-achtig-bekijk-hier-de-indrukwekkende-solo-van-ajax-aanvaller-mika-godts~a0e82ebc/)
-  > Een kandidaat voor doelpunt van het seizoen: Mika Godts soleerde in de 41ste minuut van NAC-Ajax voorbij een aantal verdedigers van de Bredanaars...
-- [Stroomnet vol want de ganzen gingen voor](https://www.ad.nl/politiek/stroomnet-vol-want-de-ganzen-gingen-voor~a800b7c2/)
-  > De overheid dacht lang dat het wel zou meevallen met de drukte op het stroomnet. Het resultaat: nieuwbouwprojecten moeten in de koelkast. En hoewel...
-- [Kortsluiting in Ahoy: Glory-kickboksers vechten verder na klinken van de bel](https://www.ad.nl/vechtsport/kortsluiting-in-ahoy-glory-kickboksers-vechten-verder-na-klinken-van-de-bel~a9b7dd49/)
-  > Chico Kwasi, de 28-jarige kickbokser uit Purmerend, kan de tweede kickbokser in de historie van Glory worden die wereldkampioen is in twee...
-- [NEC uit het niets naast Twente: Linssen heeft maar één kans nodig](https://www.ad.nl/voetbal/nec-uit-het-niets-naast-twente-linssen-heeft-maar-een-kans-nodig~abbdc3ff/)
-  > De kraker van het weekend wordt gespeeld in Enschede. Nummer vier FC Twente neemt het op tegen nummer drie NEC. Wie staat na zaterdagavond op de plek...
-- [Bijna tweede treffer voor Godts, Ajax komt ondanks matige tweede helft niet in problemen](https://www.ad.nl/voetbal/bijna-tweede-treffer-voor-godts-ajax-komt-ondanks-matige-tweede-helft-niet-in-problemen~aadaa263/)
-  > Voor Ajax staan nog vier belangrijke duels op het programma. De eerste stop van de Amsterdammers is in Breda voor een uitwedstrijd tegen NAC. Ajax...
+- [Robert Eenhoorn wil directeur van Feyenoord worden, Robin van Persie hoopt op langer verblijf Dick Advocaat](https://www.ad.nl/voetbal/robert-eenhoorn-wil-directeur-van-feyenoord-worden-robin-van-persie-hoopt-op-langer-verblijf-dick-advocaat~ac2d9027/)
+  > Achter de schermen wordt bij Feyenoord een strijd gevoerd over hoe de vacature van de vertrekkende directeur Dennis te Kloese ingevuld moet worden....
+- [Jihadisten claimen betrokkenheid bij aanvallen in Mali](https://www.ad.nl/buitenland/jihadisten-claimen-betrokkenheid-bij-aanvallen-in-mali~aaaeb033/)
+  > De jihadistische groep JNIM bevestigt dat het betrokken is bij de golf van aanvallen in Mali. Die zouden onder meer gericht zijn geweest tegen de...
+- [Eerste dode bij grenscontrole en zorgen nemen toe: ‘Er lijkt geen einde aan te komen’](https://www.ad.nl/binnenland/eerste-dode-bij-grenscontrole-en-zorgen-nemen-toe-er-lijkt-geen-einde-aan-te-komen~a890e8008/)
+  > Voor het eerst is een inzittende om het leven gekomen bij een kettingbotsing tijdens een grenscontrole op de A12 bij Babberich. Burgemeesters en...
+- [Mika Godts helpt Ajax met weergaloze treffer en knappe assist aan broodnodige zege in Breda](https://www.ad.nl/voetbal/mika-godts-helpt-ajax-met-weergaloze-treffer-en-knappe-assist-aan-broodnodige-zege-in-breda~aadaa263/)
+  > Ajax heeft na Heracles ook degradatiekandidaat NAC opzij gezet. Mika Godts stal in het matige duel de show met een wereldgoal: 0-2.
+- [Verbluffende Gernot Trauner vindt de ophef over zijn terugkeer wat overdreven](https://www.ad.nl/voetbal/verbluffende-gernot-trauner-vindt-de-ophef-over-zijn-terugkeer-wat-overdreven~a1f8313c/)
+  > Gernot Trauner keerde na 320 dagen afwezigheid ijzersterk terug bij Feyenoord. Robin van Persie ziet het als een enorme kwaliteitsimpuls. De...
 
 ### Meest gelezen
 
