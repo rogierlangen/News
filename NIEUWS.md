@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-04-2026 om 16:50*
+*Laatst bijgewerkt: 25-04-2026 om 17:41*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Het volle stroomnet en woningbouw: 'Kijken naar slimmere oplossingen'](https://nos.nl/l/2611970)
+  > Het volle stroomnet leidt ertoe dat veel woningbouwplannen vooruit worden geschoven of helemaal worden afgeblazen. Toch is er een manier die het...
+- [Belgisch militair vliegtuig beschoten in Haïti](https://nos.nl/l/2611963)
+  > In Haïti is een Belgisch militair transportvliegtuig beschoten. Aan boord van het toestel zaten zo'n tachtig militairen uit Tsjaad, die daar waren...
 - [Oorlogsmuseum Medemblik blij met WOII-materiaal: 'Breng het naar ons'](https://nos.nl/l/2611947)
   > Het Oorlogsmuseum Medemblik ontving het afgelopen jaar een grote hoeveelheid vaak uniek materiaal uit de Tweede Wereldoorlog. Om zoveel mogelijk...
 - [Tientallen luiaards voor dierenpark in Florida omgekomen van de kou](https://nos.nl/l/2611938)
   > Nog voordat een nieuwe dierentuin in de Amerikaanse staat Florida open zou gaan, zijn 31 luiaards die er zouden worden gehuisvest, al doodgegaan....
 - [Kabinet houdt DigiD-contract bij Solvinity, ondanks zorgen van Kamer](https://nos.nl/l/2611935)
   > Het kabinet heeft besloten dat het DigiD-contract met het cloudbedrijf Solvinity de komende twee jaar niet wordt opgezegd. Staatssecretaris Van der...
-- [Provincies willen 1,2 miljoen zien van bedrijf dat bushalteborden zou plaatsen](https://nos.nl/l/2611928)
-  > De provincies Overijssel, Gelderland en Flevoland willen een bedrijf aansprakelijk stellen voor 1,2 miljoen euro. Het gaat om het bedrijf Surtronic,...
-- [Politie grijpt in bij protest op A12 bij Utrecht, 400 aanhoudingen](https://nos.nl/l/2611926)
-  > Bij een klimaatprotest op de snelweg A12 bij Utrecht heeft de politie alle demonstranten weggesleept. Betogers van onder meer Extinction Rebellion...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Geen rampenplan, wel een radioactieve wolk: crisismanager Marius moest Nederland in een paar uur redden](https://www.ad.nl/binnenland/geen-rampenplan-wel-een-radioactieve-wolk-crisismanager-marius-moest-nederland-in-een-paar-uur-redden~a33c1765/)
+- [Proost, majesteit: zes dranktips voor een extra feestelijk oranjegevoel](https://www.ad.nl/gezond/proost-majesteit-zes-dranktips-voor-een-extra-feestelijk-oranjegevoel~aa7fb2f2/)
+  > Of je nu met Koningsnacht al je kruit verschiet of je energie opspaart voor de struintocht over de vrijmarkt, op 27 april nemen we het ervan. In de...
+- [Ajax heeft op bezoek bij NAC overwinning nodig, Regeer keert meteen terug in basis](https://www.ad.nl/voetbal/ajax-heeft-op-bezoek-bij-nac-overwinning-nodig-regeer-keert-meteen-terug-in-basis~aadaa263/)
+  > Voor Ajax staan nog vier belangrijke duels op het programma. De eerste stop van de Amsterdammers is in Breda voor een uitwedstrijd tegen NAC. Volg...
+- [Hoe één man Nederland halsoverkop moest redden toen gifwolk van Tsjernobyl onze kant opkwam](https://www.ad.nl/binnenland/hoe-een-man-nederland-halsoverkop-moest-redden-toen-gifwolk-van-tsjernobyl-onze-kant-opkwam~a33c1765/)
   > Gingen de koeien dood? Konden zwangere vrouwen nog naar buiten? Marius Enthoven - inmiddels 86 - was dé man die precies veertig jaar geleden na de...
 - [Feyenoord doet goede zaken in jacht op plek 2: onmachtig FC Groningen eenvoudig verslagen](https://www.ad.nl/voetbal/feyenoord-doet-goede-zaken-in-jacht-op-plek-2-onmachtig-fc-groningen-eenvoudig-verslagen~a5db1028a/)
   > Een keer een overwinning zonder al teveel in problemen te zijn gekomen. Robin van Persie sprak het al een paar keer na de winterstop als wens uit. FC...
 - [Trump stuurt zijn onderhandelaars toch niet naar Pakistan voor gesprekken over Iran](https://www.ad.nl/buitenland/trump-stuurt-zijn-onderhandelaars-toch-niet-naar-pakistan-voor-gesprekken-over-iran~ac528ac3/)
   > De Amerikaanse president Trump stuurt zijn onderhandelaars Steve Witkoff en Jared Kushner toch niet naar Pakistan voor gesprekken over Iran. De...
-- [Liverpool zet enorme stap richting CL-ticket met moeizame zege op Crystal Palace](https://www.ad.nl/voetbal/liverpool-zet-enorme-stap-richting-cl-ticket-met-moeizame-zege-op-crystal-palace~a511dfbd/)
-  > Liverpool heeft in eigen huis drie belangrijke punten gepakt in de strijd om een Champions League-ticket. De ploeg van Arne Slot was met 3-1 te sterk...
-- [WK met Oranje in gevaar? Xavi Simons verstapt zich en moet per brancard van het veld](https://www.ad.nl/voetbal/wk-met-oranje-in-gevaar-xavi-simons-verstapt-zich-en-moet-per-brancard-van-het-veld~a2ef95f6/)
-  > Xavi Simons is zaterdag in een competitieduel van zijn club Tottenham Hotspur met Wolverhampton Wanderers geblesseerd uitgevallen. Na een uur spelen...
 
 ### Meest gelezen
 
