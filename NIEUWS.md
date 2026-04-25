@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-04-2026 om 21:40*
+*Laatst bijgewerkt: 25-04-2026 om 22:41*
 
 ---
 
@@ -27,8 +27,8 @@
 
 ### Laatste nieuws
 
-- [Schrijft Chico Kwasi historie en stapt hij in voetsporen UFC-fenomeen Alex Pereira?](https://www.ad.nl/vechtsport/schrijft-chico-kwasi-historie-en-stapt-hij-in-voetsporen-ufc-fenomeen-alex-pereira~a9b7dd49/)
-  > Chico Kwasi, de 28-jarige kickbokser uit Purmerend, kan de tweede kickbokser in de historie van Glory worden die wereldkampioen is in twee...
+- [Glory-historie in Ahoy: Chico Kwasi tweede ooit met wereldtitels in twee verschillende divisies](https://www.ad.nl/vechtsport/glory-historie-in-ahoy-chico-kwasi-tweede-ooit-met-wereldtitels-in-twee-verschillende-divisies~a9b7dd49/)
+  > Chico Kwasi, de 28-jarige kickbokser uit Purmerend, is de tweede kickbokser in de historie van Glory die wereldkampioen is in twee gewichtsklasses...
 - [Strijd om plek 2: dit is het resterende programma van Feyenoord, NEC, FC Twente en Ajax](https://www.ad.nl/voetbal/strijd-om-plek-2-dit-is-het-resterende-programma-van-feyenoord-nec-fc-twente-en-ajax~a3da7ce4/)
   > De strijd om de cruciale tweede plek is nog altijd razendspannend in de VriendenLoterij eredivisie. Vier clubs azen op deze positie, die recht geeft...
 - [Verkeerstoren Suriname onbemand, KLM wijkt uit naar Trinidad](https://www.ad.nl/buitenland/verkeerstoren-suriname-onbemand-klm-wijkt-uit-naar-trinidad~ad7ab9b0/)
