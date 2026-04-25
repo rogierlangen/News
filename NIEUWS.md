@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-04-2026 om 23:44*
+*Laatst bijgewerkt: 25-04-2026 om 02:50*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [WHO: nieuwe behandeling tegen malaria voor baby's goedgekeurd](https://nos.nl/l/2611896)
+  > De eerste malariabehandeling speciaal voor pasgeborenen is goedgekeurd. Dat meldt de Wereldgezondheidsorganisatie van de Verenigde Naties (WHO). Het...
 - [Minutenwijzer klok Domtoren teruggehangen na valpartij](https://nos.nl/l/2611895)
   > De Domtoren in Utrecht geeft aan alle kanten weer de juiste tijd aan, want de minutenwijzer die in januari naar beneden viel is teruggeplaatst. Hij...
 - [Excuses ChatGPT-baas voor niet waarschuwen over vrouw die bloedbad aanrichtte](https://nos.nl/l/2611894)
@@ -16,8 +18,6 @@
   > De chauffeur van een werkbus heeft een ravage aangericht bij een huis in Geldrop. De bestuurder reed gisteravond op hoge snelheid door een muur bij...
 - [Negen Nederlanders aangehouden voor plofkraken in Duitsland en Zwitserland](https://nos.nl/l/2611885)
   > De politie heeft vorige week zes mannen aangehouden die verdacht worden van betrokkenheid bij plofkraken over de grens. Zij zouden deel uitmaken van...
-- [VS wil mogelijkheden voor federale doodstraf verruimen met vuurpeloton en gas](https://nos.nl/l/2611884)
-  > De VS gaat onder meer vuurpelotons, elektrocutie en een dodelijk gas inzetten om de doodstraf uit te voeren voor federale straffen. Dat staat in een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ellen DeGeneres keert terug als Dory in nieuwe Pixar-film](https://www.ad.nl/show/ellen-degeneres-keert-terug-als-dory-in-nieuwe-pixar-film~aca94be3/)
+- [‘Huiselijk geweld tegen 65-plussers blijft onder de radar’: Veilig Thuis denkt dat er veel meer dan 2100 gevallen zijn](https://www.ad.nl/binnenland/huiselijk-geweld-tegen-65-plussers-blijft-onder-de-radar-veilig-thuis-denkt-dat-er-veel-meer-dan-2100-gevallen-zijn~ab4b8d43/)
+  > Zijn er echt maar 2100 ouderen thuis slachtoffer van mishandeling? Hulporganisatie Veilig Thuis denkt dat het veel vaker voorkomt, maar dat...
+- [Argentinië wil weer onderhandelen met Britten over Falklands na gelekte mail Pentagon](https://www.ad.nl/buitenland/argentinie-wil-weer-onderhandelen-met-britten-over-falklands-na-gelekte-mail-pentagon~a19c9028/)
+  > De Argentijnse regering heeft vrijdag gezegd opnieuw te willen onderhandelen met het Verenigd Koninkrijk over de Falklandeilanden. De eilandengroep...
+- [‘Uitroeien malaria is geen droom meer’: WHO keurt eerste medicijn voor baby’s goed](https://www.ad.nl/buitenland/uitroeien-malaria-is-geen-droom-meer-who-keurt-eerste-medicijn-voor-babys-goed~a3246902/)
+  > Het eerste malariamedicijn dat specifiek is ontwikkeld voor pasgeborenen en jonge baby’s met een gewicht tussen 2 en 5 kilo, is officieel...
+- [Ellen DeGeneres keert terug als Dory in nieuwe Pixar-film: nieuwe avonturen van visje voorlopig nog geheim](https://www.ad.nl/show/ellen-degeneres-keert-terug-als-dory-in-nieuwe-pixar-film-nieuwe-avonturen-van-visje-voorlopig-nog-geheim~aca94be3/)
   > De Amerikaanse stand-upcomédienne Ellen DeGeneres (68) is weer te horen als het bekende blauwe doktersvisje Dory in de nieuwe korte film van Pixar....
 - [Amerikaanse miljonair (75) jaagt in Afrika op zeldzame antilope, maar wordt vertrapt door olifanten](https://www.ad.nl/buitenland/amerikaanse-miljonair-75-jaagt-in-afrika-op-zeldzame-antilope-maar-wordt-vertrapt-door-olifanten~af309387/)
   > Een rijke Amerikaanse trofeejager is diep in de Afrikaanse jungle vertrapt door een kudde olifanten. Ernie Dosio (75) was op zoek naar een zeldzame...
-- [FC Barcelona kan nieuwe landstitel ruiken na puntenverlies van Real Madrid](https://www.ad.nl/voetbal/fc-barcelona-kan-nieuwe-landstitel-ruiken-na-puntenverlies-van-real-madrid~a268f59b/)
-  > Real Madrid heeft in de strijd om de Spaanse landstitel duur puntenverlies geleden. De ploeg van coach Álvaro Arbeloa speelde met 1-1 gelijk tegen...
-- [Witkoff en Kushner naar Pakistan voor overleg, VS blokkeert cryptomunten gelinkt aan Iran](https://www.ad.nl/buitenland/witkoff-en-kushner-naar-pakistan-voor-overleg-vs-blokkeert-cryptomunten-gelinkt-aan-iran~ac528ac3/)
-  > Het Witte Huis bevestigt dat gezanten Steve Witkoff en Jared Kushner zaterdag naar Pakistan gaan voor overleg met Iran. Volgens Iraanse berichten...
-- [Zwarte avond Vitesse: supporters gooien vuurwerk naar Cambuur-fans, wedstrijd gestaakt én geen play-offs](https://www.ad.nl/voetbal/zwarte-avond-vitesse-supporters-gooien-vuurwerk-naar-cambuur-fans-wedstrijd-gestaakt-en-geen-play-offs~a0e93c5a/)
-  > Het duel tussen SC Cambuur en Vitesse in de Keuken Kampioen Divisie is definitief gestaakt en wordt ook niet meer uitgespeeld Met nog enkele minuten...
 
 ### Meest gelezen
 
