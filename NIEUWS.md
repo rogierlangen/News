@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-04-2026 om 08:59*
+*Laatst bijgewerkt: 25-04-2026 om 09:58*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Bus rijdt sloot in bij Heinenoord, chauffeur bewusteloos naar ziekenhuis](https://nos.nl/l/2611919)
+  > Langs de provinciale weg N217 bij Heinenoord in Zuid-Holland is een streekbus in een sloot terechtgekomen. De chauffeur was onwel geworden achter het...
+- [Race tegen de klok bij VN: Nederlander zoekt oplossing voor killerrobots](https://nos.nl/l/2611918)
+  > Stel je voor: een militair op het slagveld wil zich op het allerlaatste moment overgeven. Hij heeft geen schijn van kans want het systeem dat hem op...
 - [Eigenares uitvaartcentrum VS krijgt tientallen jaren cel voor verbergen 189 lichamen](https://nos.nl/l/2611911)
   > De voormalige eigenares van een uitvaartcentrum in de Amerikaanse staat Colorado die samen met haar man 189 ontbindende lichamen verborg, is...
 - [Dodelijke luchtaanval Rusland op Oekraïne, schade door drones in Roemenië](https://nos.nl/l/2611908)
   > Rusland heeft vannacht weer een massale luchtaanval op Oekraïne uitgevoerd. Daarbij zijn kruisraketten, ballistische raketten en drones ingezet. Voor...
 - [Goedkope elektrische auto's uit China winnen terrein door wereldwijde energiecrisis](https://nos.nl/l/2611907)
   > China's export van elektrische en hybride auto's bereikte vorige maand een recordniveau. Door stijgende olieprijzen en de onzekerheid rond de oorlog...
-- [Wekdienst 25/4: Verkiezingen in Palestijnse gebieden • Johannen gratis naar Arena](https://nos.nl/l/2611905)
-  > Goedemorgen! Inwoners van de Westelijke Jordaanoever en een stad in Gaza kunnen vandaag naar de stembus en wie Johan heet of iets dat daarop lijkt...
-- [Podcast De Dag: de lange arm van de Iraanse ex-kroonprins](https://nos.nl/l/2611901)
-  > Afgelopen zondag zond Nieuwsuur een reportage uit over intimidaties en bedreigingen in naam van aanhangers van Reza Pahlavi, de zoon van de verdreven...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Wordt niemand minder dan Pep Guardiola de nieuwe bondscoach van Italië? ‘Als we radicaal willen veranderen, is hij de juiste man’](https://www.ad.nl/voetbal/wordt-niemand-minder-dan-pep-guardiola-de-nieuwe-bondscoach-van-italie-als-we-radicaal-willen-veranderen-is-hij-de-juiste-man~acfa1ea2/)
+- [VS slaat alarm over vermeende diefstal van AI-kennis door Chinese bedrijven](https://www.ad.nl/buitenland/vs-slaat-alarm-over-vermeende-diefstal-van-ai-kennis-door-chinese-bedrijven~a514d7e7/)
+  > De Amerikaanse regering slaat wereldwijd alarm over vermeende diefstal van AI-kennis door Chinese bedrijven. Het ministerie van Buitenlandse Zaken...
+- [WK-finale bereikt absurd prijsniveau: kaartjes op doorverkoopsite FIFA kosten tot bijna 2 miljoen euro](https://www.ad.nl/voetbal/wk-finale-bereikt-absurd-prijsniveau-kaartjes-op-doorverkoopsite-fifa-kosten-tot-bijna-2-miljoen-euro~a9baf6b5/)
+  > De prijzen voor tweedehandstickets voor de WK-finale lopen volledig uit de hand. Op het officiële doorverkoopplatform van de FIFA worden kaarten...
+- [Grootste vermogensoverdracht ooit: boomers laten 1000 miljard na en dat kan land op z'n kop zetten](https://www.ad.nl/economie/grootste-vermogensoverdracht-ooit-boomers-laten-1000-miljard-na-en-dat-kan-land-op-z-n-kop-zetten~ac1b6c0f/)
+  > Er wordt wat af gepraat over alle plannen voor langer werken, en minder aow, en minder koopkracht. Maar er is ook een heel ander verhaal te...
+- [The Voice ondanks tranen Willie Wartaal geen kijkcijferhit meer: Flikken en 2 voor 12 scoren hoger](https://www.ad.nl/show/the-voice-ondanks-tranen-willie-wartaal-geen-kijkcijferhit-meer-flikken-en-2-voor-12-scoren-hoger~af1160fc/)
+  > The Voice of Holland is niet meer het grote kijkcijferkanon van weleer. Naar de eerste halve finale waarin de kandidaten uit de teams van Willie...
+- [Mission impossible voor Italië... of niet? Pep Guardiola als bondscoach lijkt minder onmogelijk dan het is](https://www.ad.nl/voetbal/mission-impossible-voor-italie-of-niet-pep-guardiola-als-bondscoach-lijkt-minder-onmogelijk-dan-het-is~acfa1ea2/)
   > Een verrassende naam duikt op als mogelijke nieuwe bondscoach van Italië. Niemand minder dan Pep Guardiola (55) zou heel hoog op het verlanglijstje...
-- [Hij programmeert systemen die precies weten wanneer jij iets koopt, maar Tom (53) twijfelt: ‘Dit knaagt’](https://www.ad.nl/economie/hij-programmeert-systemen-die-precies-weten-wanneer-jij-iets-koopt-maar-tom-53-twijfelt-dit-knaagt~a3230b6e/)
-  > Software-engineer Tom (53) heeft slapeloze nachten van de onethische kanten van de AI-toepassingen die hij op zijn werk moet bouwen. Dat vertelt hij...
-- [Eerste verkiezingen in Gazastrook sinds 20 jaar, Duitsland stuurt ‘alvast’ mijnenjagers naar Straat van Hormuz](https://www.ad.nl/buitenland/eerste-verkiezingen-in-gazastrook-sinds-20-jaar-duitsland-stuurt-alvast-mijnenjagers-naar-straat-van-hormuz~ac528ac3/)
-  > In de Gazastrook vinden vandaag de eerste verkiezingen plaats sinds 2006. Het gaat om lokale verkiezingen in de stad Deir-al-Balah, een van de...
-- [Thuis goede koffie zetten? Dit zijn de beste apparaten voor filterkoffie](https://www.ad.nl/wonen/thuis-goede-koffie-zetten-dit-zijn-de-beste-apparaten-voor-filterkoffie~a5fc8ccb/)
-  > Wil je thuis de beste filterkoffie zetten zonder veel te betalen? De Consumentenbond testte 130 apparaten op koffiekwaliteit, snelheid en...
-- [Rotterdamse Daan Alferink blijft België veroveren: na succesvolle tv-carrière opent hij nu koffiebar](https://www.ad.nl/show/rotterdamse-daan-alferink-blijft-belgie-veroveren-na-succesvolle-tv-carriere-opent-hij-nu-koffiebar~aec34f1e/)
-  > Alleen al de gedachte aan een nachtje feesten maakt hem chagrijnig. Maar geef Daan Alferink (31) drie espresso’s en de tv-interieurstylist is...
 
 ### Meest gelezen
 
