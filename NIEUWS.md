@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-04-2026 om 17:41*
+*Laatst bijgewerkt: 25-04-2026 om 18:59*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Het volle stroomnet en woningbouw: 'Kijken naar slimmere oplossingen'](https://nos.nl/l/2611970)
-  > Het volle stroomnet leidt ertoe dat veel woningbouwplannen vooruit worden geschoven of helemaal worden afgeblazen. Toch is er een manier die het...
-- [Belgisch militair vliegtuig beschoten in Haïti](https://nos.nl/l/2611963)
-  > In Haïti is een Belgisch militair transportvliegtuig beschoten. Aan boord van het toestel zaten zo'n tachtig militairen uit Tsjaad, die daar waren...
-- [Oorlogsmuseum Medemblik blij met WOII-materiaal: 'Breng het naar ons'](https://nos.nl/l/2611947)
-  > Het Oorlogsmuseum Medemblik ontving het afgelopen jaar een grote hoeveelheid vaak uniek materiaal uit de Tweede Wereldoorlog. Om zoveel mogelijk...
-- [Tientallen luiaards voor dierenpark in Florida omgekomen van de kou](https://nos.nl/l/2611938)
-  > Nog voordat een nieuwe dierentuin in de Amerikaanse staat Florida open zou gaan, zijn 31 luiaards die er zouden worden gehuisvest, al doodgegaan....
-- [Kabinet houdt DigiD-contract bij Solvinity, ondanks zorgen van Kamer](https://nos.nl/l/2611935)
-  > Het kabinet heeft besloten dat het DigiD-contract met het cloudbedrijf Solvinity de komende twee jaar niet wordt opgezegd. Staatssecretaris Van der...
+- [Brandweerauto belandt bij Wierden op de kop in weiland, vijf gewonden](https://nos.nl/l/2611985)
+  > Op de provinciale weg N35 tussen Wierden en Nijverdal zijn vijf mensen gewond geraakt bij een ongeluk met een brandweerwagen. De wagen belandde op...
+- [Eerste Kamerlid Greet Prins (72) overleden, was nog bij stemming asielwet](https://nos.nl/l/2611983)
+  > Greet Prins, vicefractievoorzitter van het CDA in de Eerste Kamer, is op 72-jarige leeftijd overleden. Het Eerste Kamerlid leed aan de zenuw- en...
+- [Milieucrisis in Gaza door grote bergen afval: 'Kinderen hebben huidziekten'](https://nos.nl/l/2611979)
+  > In Gaza groeit de dreiging van een milieucrisis. Al ruim twee jaar ligt de verwerking van afval vrijwel stil en stapelt het vuil zich op. Grondwater...
+- [Dode bij kettingbotsing op A12 vlak bij Duitse grenscontroles](https://nos.nl/l/2611975)
+  > In Babberich, in Gelderland, is op de A12 vlak bij de Duitse grens iemand overleden bij een kettingbotsing. Bij het ongeluk waren zeven auto's...
+- ['Pa Tokkie' Gerrie Ruijmgaart (73) overleden](https://nos.nl/l/2611973)
+  > Amsterdammer Gerrie Ruijmgaart is overleden. Hij werd begin deze eeuw bekend als pa Tokkie, door zijn verschijning in een documentaire en een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Proost, majesteit: zes dranktips voor een extra feestelijk oranjegevoel](https://www.ad.nl/gezond/proost-majesteit-zes-dranktips-voor-een-extra-feestelijk-oranjegevoel~aa7fb2f2/)
-  > Of je nu met Koningsnacht al je kruit verschiet of je energie opspaart voor de struintocht over de vrijmarkt, op 27 april nemen we het ervan. In de...
-- [Ajax heeft op bezoek bij NAC overwinning nodig, Regeer keert meteen terug in basis](https://www.ad.nl/voetbal/ajax-heeft-op-bezoek-bij-nac-overwinning-nodig-regeer-keert-meteen-terug-in-basis~aadaa263/)
+- [Ajax verdubbelt voorsprong door dribbel die doet denken aan legendarisch goal Zlatan](https://www.ad.nl/voetbal/ajax-verdubbelt-voorsprong-door-dribbel-die-doet-denken-aan-legendarisch-goal-zlatan~aadaa263/)
   > Voor Ajax staan nog vier belangrijke duels op het programma. De eerste stop van de Amsterdammers is in Breda voor een uitwedstrijd tegen NAC. Volg...
-- [Hoe één man Nederland halsoverkop moest redden toen gifwolk van Tsjernobyl onze kant opkwam](https://www.ad.nl/binnenland/hoe-een-man-nederland-halsoverkop-moest-redden-toen-gifwolk-van-tsjernobyl-onze-kant-opkwam~a33c1765/)
-  > Gingen de koeien dood? Konden zwangere vrouwen nog naar buiten? Marius Enthoven - inmiddels 86 - was dé man die precies veertig jaar geleden na de...
-- [Feyenoord doet goede zaken in jacht op plek 2: onmachtig FC Groningen eenvoudig verslagen](https://www.ad.nl/voetbal/feyenoord-doet-goede-zaken-in-jacht-op-plek-2-onmachtig-fc-groningen-eenvoudig-verslagen~a5db1028a/)
-  > Een keer een overwinning zonder al teveel in problemen te zijn gekomen. Robin van Persie sprak het al een paar keer na de winterstop als wens uit. FC...
-- [Trump stuurt zijn onderhandelaars toch niet naar Pakistan voor gesprekken over Iran](https://www.ad.nl/buitenland/trump-stuurt-zijn-onderhandelaars-toch-niet-naar-pakistan-voor-gesprekken-over-iran~ac528ac3/)
-  > De Amerikaanse president Trump stuurt zijn onderhandelaars Steve Witkoff en Jared Kushner toch niet naar Pakistan voor gesprekken over Iran. De...
+- [Israëlische premier Netanyahu beveelt zware aanvallen op doelen Hezbollah in Libanon, ondanks staakt-het-vuren](https://www.ad.nl/buitenland/israelische-premier-netanyahu-beveelt-zware-aanvallen-op-doelen-hezbollah-in-libanon-ondanks-staakt-het-vuren~aadf3777/)
+  > De Israëlische premier Benjamin Netanyahu heeft opdracht gegeven tot ‘krachtige aanvallen op doelen van Hezbollah in Libanon’. Dat staat in een korte...
+- [Heerenveen ontdoet zich in eigen huis met moeite van Fortuna Sittard en doet goede zaken op de ranglijst](https://www.ad.nl/voetbal/heerenveen-ontdoet-zich-in-eigen-huis-met-moeite-van-fortuna-sittard-en-doet-goede-zaken-op-de-ranglijst~aa73e459/)
+  > Heerenveen heeft andermaal drie belangrijke punten bijgeschreven in de Vriendenloterij eredivisie. De Friezen waren in eigen huis met 2-1 te sterk...
+- [Historische avond in Ahoy? Chico Kwasi kan in voetsporen UFC-fenomeen Alex Pereira treden](https://www.ad.nl/vechtsport/historische-avond-in-ahoy-chico-kwasi-kan-in-voetsporen-ufc-fenomeen-alex-pereira-treden~a9b7dd49/)
+  > Chico Kwasi, de 28-jarige kickbokser uit Purmerend, kan de tweede kickbokser in de historie van Glory worden die wereldkampioen is in twee...
+- [Datingprofiel van Antoine viel Cato direct op: 'Hij had een foto met een soeplepel aan zijn pet'](https://www.ad.nl/binnenland/datingprofiel-van-antoine-viel-cato-direct-op-hij-had-een-foto-met-een-soeplepel-aan-zijn-pet~ad549901/)
+  > Cato (24) begon met online daten omdat het in het echte leven nog onwennig voelde. Antoine (24) zocht ook naar een match tijdens de pandemie. Vier...
 
 ### Meest gelezen
 
@@ -50,8 +50,8 @@
   > Op verschillende locaties bij de Malinese hoofdstad Bamako hebben aanvallen plaatsgevonden op militaire doelwitten.
 - [‘Oekraïne en Azerbeidzjan sluiten deal over veiligheid en energie’](https://fd.nl/politiek/1594456/oekraine-en-azerbeidzjan-sluiten-deal-over-veiligheid-en-energie)
   > Kyiv en Bakoe zouden afspraken hebben gemaakt over energie en veiligheid.
-- [Amerikanen naar Islamabad voor onderhandelingen, Iran ontkent gesprekken](https://fd.nl/politiek/1594372/amerikanen-naar-islamabad-voor-onderhandelingen-iran-ontkent-gesprekken)
-  > Een delegatie vanuit Washington vertrekt op zaterdag naar Islamabad voor onderhandelingen, maar Iran ontkent dat directe gesprekken plaatsvinden.
+- [Amerikanen toch niet naar Islamabad voor onderhandelingen over Iran-oorlog](https://fd.nl/politiek/1594372/amerikanen-naar-islamabad-voor-onderhandelingen-iran-ontkent-gesprekken)
+  > Een delegatie vanuit Washington zou zaterdag naar Islamabad vertrekken voor onderhandelingen, maar dat ging op het laatste moment niet door.
 - [Een economisch mirakel in Nederland? En gaat China ons kapot concurreren?](https://fd.nl/economie/1594328/een-economisch-mirakel-in-nederland-en-gaat-china-ons-kapot-concurreren)
   > In deze Toegevoegde Waarde kijken Anna Dijkman en Marijn Jongsma naar de fraaie groei van de arbeidsproductiviteit in Nederland, vrezen ze een China...
 - [Afpersingshoogleraar: ‘Het is geen grote stap van ransomware naar ransomwar’](https://fd.nl/tech-en-innovatie/1594028/afpersingshoogleraar-het-is-geen-grote-stap-van-ransomware-naar-ransomwar)
