@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-04-2026 om 13:14*
+*Laatst bijgewerkt: 25-04-2026 om 14:48*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Tientallen luiaards voor dierenpark in Florida omgekomen van de kou](https://nos.nl/l/2611938)
+  > Nog voordat een nieuwe dierentuin in de Amerikaanse staat Florida open zou gaan, zijn 31 luiaards die er zouden worden gehuisvest, al doodgegaan....
+- [Kabinet verlengt DigiD-contract toch, tegen wil van Tweede Kamer](https://nos.nl/l/2611935)
+  > Het kabinet staat, tegen de wens van de Tweede Kamer in, toe dat het DigiD-contract met het cloudbedrijf Solvinity voor twee jaar wordt verlengd. Dit...
 - [Provincies willen 1,2 miljoen zien van bedrijf dat bushalteborden zou plaatsen](https://nos.nl/l/2611928)
   > De provincies Overijssel, Gelderland en Flevoland willen een bedrijf aansprakelijk stellen voor 1,2 miljoen euro. Het gaat om het bedrijf Surtronic,...
-- [Politie grijpt in bij klimaatprotest op A12 bij Utrecht, forse verkeershinder](https://nos.nl/l/2611926)
-  > Bij een klimaatprotest op de snelweg A12 bij Utrecht is de politie begonnen met het wegslepen van demonstranten. Betogers van onder meer Extinction...
+- [Politie grijpt in bij protest op A12 bij Utrecht, verkeer komt weer op gang](https://nos.nl/l/2611926)
+  > Bij een klimaatprotest op de snelweg A12 bij Utrecht heeft de politie alle demonstranten weggesleept. Betogers van onder meer Extinction Rebellion...
 - [Palestijnen op de Westelijke Jordaanoever en een stad in Gaza naar de stembus](https://nos.nl/l/2611925)
   > Palestijnen op de Westelijke Jordaanoever en in de Gazaanse stad Deir-al-Balah kunnen vandaag naar de stembus om lokale bestuurders te kiezen. Vooral...
-- [Onrust in Mali, schietpartijen op meerdere plaatsen](https://nos.nl/l/2611924)
-  > In een aantal steden in Mali is het onrustig. Er zijn al uren berichten over schietpartijen, ook bij het vliegveld van de hoofdstad Bamako. Wat er...
-- [Bus rijdt sloot in bij Heinenoord, chauffeur bewusteloos naar ziekenhuis](https://nos.nl/l/2611919)
-  > Langs de provinciale weg N217 bij Heinenoord in Zuid-Holland is een streekbus in een sloot terechtgekomen. De chauffeur was onwel geworden achter het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dochter Bert van Leeuwen (30) heeft MS en vertelt daar openhartig over: ‘Zoektocht hoe ik dit qua werk ga doen’](https://www.ad.nl/show/dochter-bert-van-leeuwen-30-heeft-ms-en-vertelt-daar-openhartig-over-zoektocht-hoe-ik-dit-qua-werk-ga-doen~ae198751/)
-  > Carlijn van Leeuwen, dochter van tv-presentator Bert van Leeuwen, heeft multiple sclerose (MS). Dat laat ze op Instagram weten. In een filmpje...
-- [Auto rijdt door gevel van supermarkt in Dongen: ‘Heel veel engeltjes op onze schouders’](https://www.ad.nl/binnenland/auto-rijdt-door-gevel-van-supermarkt-in-dongen-heel-veel-engeltjes-op-onze-schouders~ad045720/)
-  > Een opmerkelijk incident zaterdagochtend in Dongen: rond tien uur reed een auto dwars door de gevel van de Jumbo-supermarkt aan de Mgr....
-- [‘Ik sta helemaal te shaken’: Will (69) én Mart (67) nomineren elkaar in het geheim en krijgen allebei koninklijk lintje](https://www.ad.nl/binnenland/ik-sta-helemaal-te-shaken-will-69-en-mart-67-nomineren-elkaar-in-het-geheim-en-krijgen-allebei-koninklijk-lintje~ad37494d/)
-  > Maandenlang geheim moeten houden dat je partner een koninklijke onderscheiding krijgt, is bijzonder én knap lastig. Maar wat als je partner hetzelfde...
-- [Bauke is dol op Engels auto’s en vooral zijn Rover 75: ‘Dat beige leren interieur, houten stuur, houten dashboard’](https://www.ad.nl/auto/bauke-is-dol-op-engels-autos-en-vooral-zijn-rover-75-dat-beige-leren-interieur-houten-stuur-houten-dashboard~a1970d68/)
-  > Bouke van der Wal (vandaag 67 geworden) werd al in zijn studententijd verliefd op Engelse auto’s en is nog altijd met het virus besmet. Al meer dan...
-- [Collin Veijer schrijft geschiedenis: Nederland heeft eindelijk weer een polesitter in de Moto2](https://www.ad.nl/andere-sporten/collin-veijer-schrijft-geschiedenis-nederland-heeft-eindelijk-weer-een-polesitter-in-de-moto2~a2d24366/)
-  > Collin Veijer heeft voor het eerst in zijn carrière pole position veroverd in de Moto2. De Nederlandse wegracer was de snelste in de kwalificatie...
+- [Feyenoord beloont zichzelf met vroege goal, FC Groningen profiteert niet van fout Valente](https://www.ad.nl/voetbal/feyenoord-beloont-zichzelf-met-vroege-goal-fc-groningen-profiteert-niet-van-fout-valente~a5db1028a/)
+  > Feyenoord moet nog aan de bak in de strijd om een direct Champions League-ticket. De Rotterdammers verkeren niet in de beste vorm en krijgen bezoek...
+- [Roemenië boos op Rusland na schending luchtruim met drones](https://www.ad.nl/buitenland/roemenie-boos-op-rusland-na-schending-luchtruim-met-drones~adfb97be/)
+  > Roemenië heeft boos gereageerd op een schending van het luchtruim door drones tijdens Russische aanvallen op Oekraïne. Dat laatste land is klaar voor...
+- [Boeren blijven met 500 miljoen overtollige aardappelen zitten: ‘Dit is extreem’](https://www.ad.nl/binnenland/boeren-blijven-met-500-miljoen-overtollige-aardappelen-zitten-dit-is-extreem~a1a5d13e/)
+  > Nederland kampt met een gigantisch overschot aan aardappelen. Door groeizaam weer en importheffingen van Donald Trump dreigen 500 miljoen prima...
+- [Deze slimme trucjes in je testament besparen je kinderen tienduizenden euro’s aan erfbelasting](https://www.ad.nl/geld/deze-slimme-trucjes-in-je-testament-besparen-je-kinderen-tienduizenden-euros-aan-erfbelasting~a1e55303/)
+  > De babyboomers met een eigen huis laten de komende decennia veel vermogen na. Hoe zorg je dat jouw nabestaanden zo min mogelijk erfbelasting betalen?...
+- [Familie Tokkie met droevige mededeling in gezamenlijke videoboodschap: Gerrie is overleden](https://www.ad.nl/show/familie-tokkie-met-droevige-mededeling-in-gezamenlijke-videoboodschap-gerrie-is-overleden~ac98c4fd/)
+  > Gerrie Ruijmgaart, beter bekend als pa Tokkie, is overleden. Dat heeft zijn familie via sociale media bekendgemaakt. Ruijmgaart is 73 jaar geworden....
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Aanvallen op Malinese hoofdstad Bamako](https://fd.nl/politiek/1594457/aanvallen-op-malinese-hoofdstad-bamako)
+  > Op verschillende locaties bij de Malinese hoofdstad Bamako hebben aanvallen plaatsgevonden op militaire doelwitten.
 - [‘Oekraïne en Azerbeidzjan sluiten deal over veiligheid en energie’](https://fd.nl/politiek/1594456/oekraine-en-azerbeidzjan-sluiten-deal-over-veiligheid-en-energie)
   > Kyiv en Bakoe zouden afspraken hebben gemaakt over energie en veiligheid.
 - [Amerikanen naar Islamabad voor onderhandelingen, Iran ontkent gesprekken](https://fd.nl/politiek/1594372/amerikanen-naar-islamabad-voor-onderhandelingen-iran-ontkent-gesprekken)
@@ -54,8 +56,6 @@
   > In deze Toegevoegde Waarde kijken Anna Dijkman en Marijn Jongsma naar de fraaie groei van de arbeidsproductiviteit in Nederland, vrezen ze een China...
 - [Afpersingshoogleraar: ‘Het is geen grote stap van ransomware naar ransomwar’](https://fd.nl/tech-en-innovatie/1594028/afpersingshoogleraar-het-is-geen-grote-stap-van-ransomware-naar-ransomwar)
   > Cyberaanvallen zijn aan de orde van de dag. Toch is er al vijf jaar geen kritieke westerse infrastructuur meer aangevallen. Anja Shortland is er niet...
-- [Private-equityfirma’s Waterland en Main halen recordbedragen op](https://fd.nl/bedrijfsleven/1594325/private-equityfirmas-waterland-en-main-halen-recordbedragen-op)
-  > De Nederlandse investeerders halen miljarden op, terwijl private equity moeite heeft met het vullen van nieuwe fondsen.
 
 ### Meest gelezen
 
