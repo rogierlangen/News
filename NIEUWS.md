@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-04-2026 om 14:50*
+*Laatst bijgewerkt: 26-04-2026 om 15:48*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Touwbrug die leefgebieden van orang-oetans verbindt eindelijk gebruikt](https://nos.nl/l/2612088)
+  > Op het Indonesische eiland Sumatra is voor het eerst een orang-oetan een speciaal voor hen aangelegde touwbrug overgestoken. De brug werd twee jaar...
+- [Dolle Mina's komen op spandoeken met tegengeluid over asielopvang in Apeldoorn](https://nos.nl/l/2612083)
+  > Dolle Mina's hebben vanochtend in Apeldoorn spandoeken opgehangen bij een geplande vluchtelingenopvang. Daarop stonden teksten als "Iedereen is van...
+- [Na een frisse nacht begint Koningsdag zonnig, later op de dag meer bewolking](https://nos.nl/l/2612081)
+  > Op sommige dagen is het weer net wat belangrijker dan op andere en Koningsdag is daar één van. Dat begint al in de nacht. Die verloopt droog, met...
 - [Minister weerspreekt energiebedrijven die hogere rekening voorzien door groen gas](https://nos.nl/l/2612078)
   > De verplichte bijmenging van groen gas vanaf 2027 zal niet tot een veel hogere gasrekening leiden, denkt minister Van Veldhoven van Klimaat en Groene...
 - [Autobom ontploft bij politiebureau Belfast, 'wonder dat er geen gewonden zijn'](https://nos.nl/l/2612075)
   > Bij een politiebureau in Belfast in Noord-Ierland is een autobom ontploft. Dat gebeurde nadat de auto van een bezorger was gekaapt, zo heeft de...
-- [Gevechten in Mali tussen leger en gewapende groepen laaien opnieuw op](https://nos.nl/l/2612073)
-  > In Mali zijn vandaag opnieuw gevechten gemeld, een dag na gecoördineerde aanvallen in het land. Een separatistische beweging zegt steun te krijgen...
-- [40 jaar na grootste kernramp uit de geschiedenis: 'Pijn van Tsjernobyl blijft'](https://nos.nl/l/2612067)
-  > In Oekraïne en op andere plekken wordt stilgestaan bij de grootste kernramp uit de geschiedenis, vandaag 40 jaar geleden. Na een grote brand in de...
-- [Parachutist overlijdt bij landing in Rhoon](https://nos.nl/l/2612059)
-  > In Rhoon, net onder Rotterdam, is aan het eind van de ochtend een parachutist om het leven gekomen. Volgens de politie gebeurde dat bij de landing...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zwarte dag in Almelo: Heracles degradeert na nederlaag tegen Volendam in door vuurwerk ontsierd duel](https://www.ad.nl/voetbal/zwarte-dag-in-almelo-heracles-degradeert-na-nederlaag-tegen-volendam-in-door-vuurwerk-ontsierd-duel~ad7f1486/)
-  > Heracles is gedegradeerd uit de eredivisie. In het eigen huis verloor de ploeg uit Almelo met 0-2 van FC Volendam. De middag werd ontsierd nadat er...
-- [Demi Vollering jaagt na goede generale op derde zege in Luik](https://www.ad.nl/wielrennen/demi-vollering-jaagt-na-goede-generale-op-derde-zege-in-luik~ab2b6dea/)
-  > Na de zege van Tadej Pogacar in Luik-Bastenaken-Luik voor mannen, richten we onze blik op de vrouwen. Demi Vollering gaat voor haar derde eindzege in...
-- [Ook al hebben telers dit jaar wel 500 miljoen kilo piepers over, patat blijft duur: ‘Snackbars hadden al ingekocht’](https://www.ad.nl/binnenland/ook-al-hebben-telers-dit-jaar-wel-500-miljoen-kilo-piepers-over-patat-blijft-duur-snackbars-hadden-al-ingekocht~a6a28e6f/)
-  > Aardappeltelers kampen dit jaar met wel 500 miljoen kilo aan onverkochte aardappelen. Toch kost een patatje in de snackbar nog altijd bijna 5 euro....
-- [Ontdek de Máxima in jezelf: kies voor ‘wauwmouwen’ en kleuren die een beetje vloeken](https://www.ad.nl/gezond/ontdek-de-maxima-in-jezelf-kies-voor-wauwmouwen-en-kleuren-die-een-beetje-vloeken~a3e22506/)
-  > Of ze nu in een uitbundige jurk verschijnt of juist verrassend eenvoudig: Máxima weet altijd de aandacht te trekken en is met recht het grootste...
-- [Met pijn in het hart stopt Ineke met haar buurtkastje voor arme mensen: ‘Ik word gek van het vlees en de vis’](https://www.ad.nl/binnenland/met-pijn-in-het-hart-stopt-ineke-met-haar-buurtkastje-voor-arme-mensen-ik-word-gek-van-het-vlees-en-de-vis~a93ede69c/)
-  > Drieënhalf jaar geleden zette Ineke Westerduin in Leusden een weggeefkastje aan de weg voor haar huis. Nu haalt ze het weg: het constante opruimen...
+- [Demi Vollering wint Luik-Bastenaken-Luik met veel machtsvertoon en pakt record met derde zege](https://www.ad.nl/wielrennen/demi-vollering-wint-luik-bastenaken-luik-met-veel-machtsvertoon-en-pakt-record-met-derde-zege~ab2b6dea/)
+  > Demi Vollering mag zich de koningin van Luik-Bastenaken-Luik noemen. De 29-jarige Nederlandse won zondag met veel machtsvertoon en is nu de eerste...
+- [Acrobatische inbreker maakte 10 miljoen euro buit bij voetballers, sterrenkoks en politici](https://www.ad.nl/buitenland/acrobatische-inbreker-maakte-10-miljoen-euro-buit-bij-voetballers-sterrenkoks-en-politici~a3486721/)
+  > In Parijs is een beruchte crimineel opgepakt die acrobatische toeren uithaalde om rappers, chef-koks en politici van hun dure horloges, chique...
+- [Chelsea verdedigt minimale voorsprong in halve finale tegen Leeds United](https://www.ad.nl/voetbal/chelsea-verdedigt-minimale-voorsprong-in-halve-finale-tegen-leeds-united~a2de66af/)
+  > Leeds United kan voor het eerst sinds 1973 weer de finale van de FA Cup bereiken. Daarvoor moet de huidige nummer 15 van de Premier League Chelsea...
+- [Jeroens kunst gaat de hele wereld over: ‘Afrojack belde me of ik zijn podium wilde ontwerpen’](https://www.ad.nl/rotterdam/jeroens-kunst-gaat-de-hele-wereld-over-afrojack-belde-me-of-ik-zijn-podium-wilde-ontwerpen~a3ea61d1/)
+  > De Rotterdamse kunstenaar Jeej mocht de podia ontwerpen voor de Nederlandse superster Afrojack en voor de beroemde Amerikaanse festivals Miami Ultra...
+- [Een smartwatch om je stress te meten? Het zou de dokter kunnen helpen](https://www.ad.nl/wetenschap/een-smartwatch-om-je-stress-te-meten-het-zou-de-dokter-kunnen-helpen~a0670953/)
+  > Als je bij de dokter komt en zegt ‘stress’ te hebben is dat moeilijk meetbaar. Moet de huisarts voortaan meetapparatuur zoals een smartwatch...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Dwarsliggende senator akkoord met benoeming Warsh als Fed-voorzitter](https://fd.nl/politiek/1594375/dwarsliggende-senator-akkoord-met-benoeming-warsh-als-fed-voorzitter)
+  > De Republikeinse senator Thom Tillis zegt nu ook definitief toe in te zullen stemmen met de benoeming van Kevin Warsh als Fed-voorzitter.
 - [Magyar woensdag naar Brussel om geblokkeerde tegoeden te bespreken](https://fd.nl/politiek/1594374/magyar-woensdag-naar-brussel-om-geblokkeerde-tegoeden-te-bespreken)
   > De aanstaande Hongaarse premier Péter Magyar reist op woensdag naar Brussel om te spreken over et vrijgeven van geblokkeerde tegoeden.
 - [Frankrijk haalt obstakels weg voor ‘industriële kathedralen’](https://fd.nl/politiek/1594431/frankrijk-haalt-obstakels-weg-voor-industriele-kathedralen)
@@ -54,8 +56,6 @@
   > Energiebedrijf RWE heeft een vergunning gekregen voor de bouw van een waterstoffabriek op de Tweede Maasvlakte. De fabriek zou de grootste...
 - [Duitse aankoop leuke opsteker voor de aandeelhouders van Adyen](https://fd.nl/financiele-markten/1594442/duitse-aankoop-leuke-opsteker-voor-de-aandeelhouders-van-adyen)
   > Adyen schuift met de aankoop van Talon.One dichter naar de consument toe. Het raakt betrokken bij het koopbesluit, terwijl de betaalinstelling tot nu...
-- [Jaar cel geëist tegen tweetal achter failliet Air Hollandia](https://fd.nl/bedrijfsleven/1594317/jaar-cel-geeist-tegen-tweetal-achter-failliet-air-hollandia)
-  > De geldstromen achter het luchtvaartbedrijf waren schimmig. De directeur zou een loopjongen zijn van een zakenman die sancties zou hebben gebroken.
 
 ### Meest gelezen
 
