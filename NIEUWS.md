@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-04-2026 om 13:15*
+*Laatst bijgewerkt: 26-04-2026 om 14:50*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Minister weerspreekt energiebedrijven die hogere rekening voorzien door groen gas](https://nos.nl/l/2612078)
+  > De verplichte bijmenging van groen gas vanaf 2027 zal niet tot een veel hogere gasrekening leiden, denkt minister Van Veldhoven van Klimaat en Groene...
+- [Autobom ontploft bij politiebureau Belfast, 'wonder dat er geen gewonden zijn'](https://nos.nl/l/2612075)
+  > Bij een politiebureau in Belfast in Noord-Ierland is een autobom ontploft. Dat gebeurde nadat de auto van een bezorger was gekaapt, zo heeft de...
+- [Gevechten in Mali tussen leger en gewapende groepen laaien opnieuw op](https://nos.nl/l/2612073)
+  > In Mali zijn vandaag opnieuw gevechten gemeld, een dag na gecoördineerde aanvallen in het land. Een separatistische beweging zegt steun te krijgen...
+- [40 jaar na grootste kernramp uit de geschiedenis: 'Pijn van Tsjernobyl blijft'](https://nos.nl/l/2612067)
+  > In Oekraïne en op andere plekken wordt stilgestaan bij de grootste kernramp uit de geschiedenis, vandaag 40 jaar geleden. Na een grote brand in de...
 - [Parachutist overlijdt bij landing in Rhoon](https://nos.nl/l/2612059)
   > In Rhoon, net onder Rotterdam, is aan het eind van de ochtend een parachutist om het leven gekomen. Volgens de politie gebeurde dat bij de landing...
-- [Wereldleiders na mislukte aanslag op regering-Trump: 'Geweld nooit de oplossing'](https://nos.nl/l/2612057)
-  > Wereldwijd is met afschuw gereageerd op de mislukte aanslag tijdens het Correspondents' Dinner in Washington. Premier Jetten noemt het een schokkende...
-- [Amsterdam komt moeilijk af van hardnekkig imago dat op Koningsdag alles mag](https://nos.nl/l/2612044)
-  > "Amsterdam is te druk, de gemeente roept op om niet meer te komen." Die waarschuwing klinkt bijna elk jaar op Koningsdag in de hoofdstad, de drukste...
-- [Agent schiet op man in Goes na ruzie in relationele sfeer](https://nos.nl/l/2612033)
-  > In Goes heeft de politie vannacht een man neergeschoten. De politie kwam in actie na een melding in de gemeente Kapelle over een ruzie waarbij sprake...
-- ['Schutter Correspondents' Dinner wilde aanslag plegen op regering-Trump'](https://nos.nl/l/2612026)
-  > De man die vannacht buiten de balzaal van het Correspondents' Dinner in Washington werd opgepakt, was van plan een aanslag te plegen op mensen uit de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Koers barst volledig los: Pogacar en Seixas rijden samen weg uit peloton](https://www.ad.nl/wielrennen/koers-barst-volledig-los-pogacar-en-seixas-rijden-samen-weg-uit-peloton~aba1fa6a/)
-  > Luik-Bastenaken-Luik is begonnen. Het is de laatste voorjaarsklassieker van het wielerseizoen. Tadej Pogacar kan het monument voor de vierde keer in...
-- [Pijn? Zelfs even ongegeneerd schelden heeft een pijnverminderend effect](https://www.ad.nl/mezza/pijn-zelfs-even-ongegeneerd-schelden-heeft-een-pijnverminderend-effect~afacd3e7/)
-  > Zouden we echt uitsterven als mannen baringspijn moesten verdragen? En waarom doet op een legoblokje stappen je de ene dag schreeuwen van ellende en...
-- [Jos Verstappen slaat over de kop tijdens rally in België: ‘Het was een grote klapper’](https://www.ad.nl/formule-1/jos-verstappen-slaat-over-de-kop-tijdens-rally-in-belgie-het-was-een-grote-klapper~a1d6b272/)
-  > Jos Verstappen is hard gecrasht tijdens een rally in België. De 54-jarige voormalig Formule 1-coureur stapte ongedeerd uit zijn auto.
-- [Republikeinen mogen niet met opblaasdino langs route in Dokkum staan: ‘Wim is gemuilkorfd’](https://www.ad.nl/binnenland/republikeinen-mogen-niet-met-opblaasdino-langs-route-in-dokkum-staan-wim-is-gemuilkorfd~a7fed306/)
-  > De antimonarchistische groep Republiek mag geen grote opblaasbare dino langs de looproute van de koninklijke familie neerzetten tijdens de viering...
-- [Heracles heeft de beste kansen in kelderkraker tegen Volendam, Veerman kopt bal van de lijn](https://www.ad.nl/voetbal/heracles-heeft-de-beste-kansen-in-kelderkraker-tegen-volendam-veerman-kopt-bal-van-de-lijn~ad7f1486/)
-  > Heracles Almelo kan degradatie uit de VriendenLoterij Eredivisie amper meer voorkomen. Met nog vier speelrondes te gaan lijkt de achterstand op de...
+- [Zwarte dag in Almelo: Heracles degradeert na nederlaag tegen Volendam in door vuurwerk ontsierd duel](https://www.ad.nl/voetbal/zwarte-dag-in-almelo-heracles-degradeert-na-nederlaag-tegen-volendam-in-door-vuurwerk-ontsierd-duel~ad7f1486/)
+  > Heracles is gedegradeerd uit de eredivisie. In het eigen huis verloor de ploeg uit Almelo met 0-2 van FC Volendam. De middag werd ontsierd nadat er...
+- [Demi Vollering jaagt na goede generale op derde zege in Luik](https://www.ad.nl/wielrennen/demi-vollering-jaagt-na-goede-generale-op-derde-zege-in-luik~ab2b6dea/)
+  > Na de zege van Tadej Pogacar in Luik-Bastenaken-Luik voor mannen, richten we onze blik op de vrouwen. Demi Vollering gaat voor haar derde eindzege in...
+- [Ook al hebben telers dit jaar wel 500 miljoen kilo piepers over, patat blijft duur: ‘Snackbars hadden al ingekocht’](https://www.ad.nl/binnenland/ook-al-hebben-telers-dit-jaar-wel-500-miljoen-kilo-piepers-over-patat-blijft-duur-snackbars-hadden-al-ingekocht~a6a28e6f/)
+  > Aardappeltelers kampen dit jaar met wel 500 miljoen kilo aan onverkochte aardappelen. Toch kost een patatje in de snackbar nog altijd bijna 5 euro....
+- [Ontdek de Máxima in jezelf: kies voor ‘wauwmouwen’ en kleuren die een beetje vloeken](https://www.ad.nl/gezond/ontdek-de-maxima-in-jezelf-kies-voor-wauwmouwen-en-kleuren-die-een-beetje-vloeken~a3e22506/)
+  > Of ze nu in een uitbundige jurk verschijnt of juist verrassend eenvoudig: Máxima weet altijd de aandacht te trekken en is met recht het grootste...
+- [Met pijn in het hart stopt Ineke met haar buurtkastje voor arme mensen: ‘Ik word gek van het vlees en de vis’](https://www.ad.nl/binnenland/met-pijn-in-het-hart-stopt-ineke-met-haar-buurtkastje-voor-arme-mensen-ik-word-gek-van-het-vlees-en-de-vis~a93ede69c/)
+  > Drieënhalf jaar geleden zette Ineke Westerduin in Leusden een weggeefkastje aan de weg voor haar huis. Nu haalt ze het weg: het constante opruimen...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Magyar woensdag naar Brussel om geblokkeerde tegoeden te bespreken](https://fd.nl/politiek/1594374/magyar-woensdag-naar-brussel-om-geblokkeerde-tegoeden-te-bespreken)
+  > De aanstaande Hongaarse premier Péter Magyar reist op woensdag naar Brussel om te spreken over et vrijgeven van geblokkeerde tegoeden.
 - [Frankrijk haalt obstakels weg voor ‘industriële kathedralen’](https://fd.nl/politiek/1594431/frankrijk-haalt-obstakels-weg-voor-industriele-kathedralen)
   > Een nieuwe wet moet de administratieve lasten voor bedrijven verminderen en de industrie een impuls geven. Grote projecten kunnen zo net als de...
 - [RWE sleept vergunning binnen voor bouw megawaterstoffabriek op Tweede Maasvlakte](https://fd.nl/bedrijfsleven/1594373/rwe-sleept-vergunning-binnen-voor-bouw-megawaterstoffabriek-op-tweede-maasvlakte)
@@ -54,8 +56,6 @@
   > Adyen schuift met de aankoop van Talon.One dichter naar de consument toe. Het raakt betrokken bij het koopbesluit, terwijl de betaalinstelling tot nu...
 - [Jaar cel geëist tegen tweetal achter failliet Air Hollandia](https://fd.nl/bedrijfsleven/1594317/jaar-cel-geeist-tegen-tweetal-achter-failliet-air-hollandia)
   > De geldstromen achter het luchtvaartbedrijf waren schimmig. De directeur zou een loopjongen zijn van een zakenman die sancties zou hebben gebroken.
-- [Van Apple Watch naar Oura Ring: schermloze sportgadgets domineren de wedstrijd](https://fd.nl/tech-en-innovatie/1593934/van-apple-watch-naar-oura-ring-schermloze-sportgadgets-domineren-de-wedstrijd)
-  > Met $11 mrd is Oura, dat slimme ringen maakt, de meest waardevolle start-up ooit in Finland. Google en Garmin volgen uitdagers als Whoop en Oura op...
 
 ### Meest gelezen
 
