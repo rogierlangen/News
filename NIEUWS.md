@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-04-2026 om 10:53*
+*Laatst bijgewerkt: 26-04-2026 om 11:41*
 
 ---
 
@@ -29,16 +29,16 @@
 
 ### Laatste nieuws
 
+- [David (54) dacht goed te zijn in beleggen, maar verloor 18.000 euro](https://www.ad.nl/geld/david-54-dacht-goed-te-zijn-in-beleggen-maar-verloor-18-000-euro~a73dfa73/)
+  > David van Duin (54) dacht dat hij zelf voldoende kennis had om te beleggen. Dat kostte hem uiteindelijk 18.000 euro. Iedereen maakt weleens een fout...
+- [Collin Veijer haalt het podium bij Moto2-race in Jerez: ‘Een heerlijk resultaat’](https://www.ad.nl/andere-sporten/collin-veijer-haalt-het-podium-bij-moto2-race-in-jerez-een-heerlijk-resultaat~ab67d544/)
+  > De winst was een brug te ver voor Collin Veijer. Maar de Moto2-coureur uit Staphorst leverde met een derde plaats wel een vorstelijke prestatie op...
+- [Excelsior op jacht naar ruime zege tegen dramatisch tiental FC Utrecht, tweede goal Sanches Fernandes](https://www.ad.nl/voetbal/excelsior-op-jacht-naar-ruime-zege-tegen-dramatisch-tiental-fc-utrecht-tweede-goal-sanches-fernandes~a0a96ed8/)
+  > Excelsior domineert in de eerste helft tegen FC Utrecht, dat na een half uur spelen met tien man staat na rood voor Matisse Didden. De thuisploeg...
+- [België rouwt om dood jonge renner: neefje (21) van oud-prof Sep Vanmarcke verongelukt tijdens training](https://www.ad.nl/wielrennen/belgie-rouwt-om-dood-jonge-renner-neefje-21-van-oud-prof-sep-vanmarcke-verongelukt-tijdens-training~a8301c03/)
+  > Wielrenner Milan Bral is op 21-jarige leeftijd overleden. De Belg, het neefje van ex-prof Sep Vanmarcke, werd zaterdagmiddag tijdens een training in...
 - [Wat een wereldrecord! Keniaan loopt in Londen als eerste marathon onder de twee uur](https://www.ad.nl/andere-sporten/wat-een-wereldrecord-keniaan-loopt-in-londen-als-eerste-marathon-onder-de-twee-uur~a951457e/)
-  > Sabastian Sawe (31) is de eerste man die in een officiële marathon onder de twee uur heeft gelopen. De Keniaan won de London Marathon in 1.59.30.
-- [LIVE eredivisie | Excelsior profiteert direct van rode kaart FC Utrecht: Sanches Fernandes verdubbelt voorsprong](https://www.ad.nl/voetbal/live-eredivisie-excelsior-profiteert-direct-van-rode-kaart-fc-utrecht-sanches-fernandes-verdubbelt-voorsprong~a0a96ed8/)
-  > Excelsior domineert in de eerste helft tegen FC Utrecht. De degradatiekandidaat kan de punten goed gebruiken, terwijl FC Utrecht nog speelt om de...
-- [Daphne van Domselaar: ‘Ik ben niet over mijn grenzen gegaan, maar zat er wel dicht tegenaan’](https://www.ad.nl/voetbal/daphne-van-domselaar-ik-ben-niet-over-mijn-grenzen-gegaan-maar-zat-er-wel-dicht-tegenaan~a0dd4e47/)
-  > Ze was de revelatie van het EK in 2022 en werkte zich gestaag naar de top. Maar het afgelopen jaar was voor Daphne van Domselaar (26), keepster van...
-- [Pommelien Thijs onthult: Netflix werkt aan Knokke Off-film](https://www.ad.nl/show/pommelien-thijs-onthult-netflix-werkt-aan-knokke-off-film~a09f6175/)
-  > Na drie seizoenen krijgt de Vlaamse Netflixserie Knokke Off toch een vervolg. De streamingdienst ontwikkelt momenteel een vervolgfilm, heeft...
-- [Praat mee: maakt de aanhoudende dreiging van een schietincident Trump kwetsbaarder of juist sterker?](https://www.ad.nl/praat-mee/praat-mee-maakt-de-aanhoudende-dreiging-van-een-schietincident-trump-kwetsbaarder-of-juist-sterker~af0647dd/)
-  > Het jaarlijkse White House Correspondents’ Dinner in Washington DC werd zaterdag opgeschrikt door schoten bij de ingang van de zaal. President Trump...
+  > Sabastian Sawe (31) is de eerste man die in een officiële marathon onder de twee uur heeft gelopen. De Keniaan won de Londen Marathon in 1.59.30.
 
 ### Meest gelezen
 
