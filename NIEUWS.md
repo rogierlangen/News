@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-04-2026 om 20:45*
+*Laatst bijgewerkt: 26-04-2026 om 21:42*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Israëlische oud-premiers Bennett en Lapid samen de verkiezingen in](https://nos.nl/l/2612130)
+  > Twee voormalige Israëlische premiers, Naftali Bennett en Yair Lapid, hebben aangekondigd met een gezamenlijke lijst de parlementsverkiezingen dit...
 - [Rotterdams coldcaseteam ijvert voor doorbraak in 25 jaar oude moordzaak](https://nos.nl/l/2612121)
   > Met het uitdelen van oranje bandjes is vandaag op de Coolsingel in Rotterdam aandacht gevraagd voor een 25 jaar oude coldcasezaak. In de nacht van 28...
 - [Dit weten we over Cole Tomas Allen, vermoedelijke schutter op galadiner met Trump](https://nos.nl/l/2612111)
@@ -16,8 +18,6 @@
   > Een ambulance en een auto met aanhanger zijn op elkaar gebotst op de autoweg N50 tussen Kampen en Emmeloord. De ambulance vervoerde op het moment van...
 - [Homoseksuele Adam en Eva te zien in gerenoveerde kapel in Heule](https://nos.nl/l/2612096)
   > In het Belgische dorp Heule is een door brand verwoeste kapel na vijf jaar weer opengegaan. Daarin is door de Zusters van Liefde ruimte gemaakt voor...
-- [Touwbrug die leefgebieden van orang-oetans verbindt eindelijk gebruikt](https://nos.nl/l/2612088)
-  > Op het Indonesische eiland Sumatra is voor het eerst een orang-oetan een speciaal voor hen aangelegde touwbrug overgestoken. De brug werd twee jaar...
 
 ### Meest gelezen
 
@@ -27,7 +27,9 @@
 
 ### Laatste nieuws
 
-- [‘Grootste hulpvloot ooit’ vertrokken naar Gaza, ook zes Nederlandse activisten aan boord](https://www.ad.nl/buitenland/grootste-hulpvloot-ooit-vertrokken-naar-gaza-ook-zes-nederlandse-activisten-aan-boord~ac528ac3/)
+- [Internazionale verspeelt punten in titelstrijd na 2-0 voorsprong, AC Milan en Juventus spelen bloedeloos gelijk](https://www.ad.nl/voetbal/internazionale-verspeelt-punten-in-titelstrijd-na-2-0-voorsprong-ac-milan-en-juventus-spelen-bloedeloos-gelijk~ac3ef90f/)
+  > Internazionale heeft op weg naar de 21ste landstitel punten verspeeld. De club uit Milaan gaf een 0-2 voorsprong tegen Torino uit handen en liet de...
+- [LIVE Midden-Oosten | ‘Grootste hulpvloot ooit’ vertrokken naar Gaza, Libanon meldt 14 doden door aanvallen Israël](https://www.ad.nl/buitenland/live-midden-oosten-grootste-hulpvloot-ooit-vertrokken-naar-gaza-libanon-meldt-14-doden-door-aanvallen-israel~ac528ac3/)
   > Activisten uit diverse landen zijn vanuit Sicilië aan boord van 56 schepen met humanitaire hulp vertrokken naar de Gazastrook. Dat meldt de Global...
 - [Staatsbezoek koning Charles aan VS gaat zonder wijzigingen door](https://www.ad.nl/buitenland/staatsbezoek-koning-charles-aan-vs-gaat-zonder-wijzigingen-door~ae67dd9c/)
   > De Amerikaanse president Donald Trump is door agenten van de Secret Service van het podium geëvacueerd tijdens het Correspondents’ Dinner. Dat...
@@ -35,8 +37,6 @@
   > De degradatiekraker tussen Huesca en Zaragoza op het tweede niveau in Spanje is zondagavond compleet uit de hand gelopen. Doelman Esteban Andrada...
 - [Alonso wil ondanks vaderschap en slechte seizoensstart door in F1: ‘Ik voel me gelukkig tijdens het rijden’](https://www.ad.nl/formule-1/alonso-wil-ondanks-vaderschap-en-slechte-seizoensstart-door-in-f1-ik-voel-me-gelukkig-tijdens-het-rijden~a1bd689a/)
   > Fernando Alonso heeft te kennen gegeven dat hij ook volgend jaar nog in de Formule 1 wil rijden. De 44-jarige Spanjaard, wiens contract bij Aston...
-- [Transavia schrapt vluchten in mei en juni vanwege kerosineprijzen](https://www.ad.nl/binnenland/transavia-schrapt-vluchten-in-mei-en-juni-vanwege-kerosineprijzen~aaf1aaf4/)
-  > Luchtvaartmaatschappij Transavia schrapt een deel van haar vluchten in mei en juni nu de prijzen voor vliegtuigbrandstof sterk stijgen als gevolg van...
 
 ### Meest gelezen
 
