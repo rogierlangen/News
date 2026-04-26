@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-04-2026 om 15:48*
+*Laatst bijgewerkt: 26-04-2026 om 16:51*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Homoseksuele Adam en Eva te zien in gerenoveerde kapel in Heule](https://nos.nl/l/2612096)
+  > In het Belgische dorp Heule is een door brand verwoeste kapel na vijf jaar weer opengegaan. Daarbij is door de Zusters van Liefde plaatsgemaakt voor...
 - [Touwbrug die leefgebieden van orang-oetans verbindt eindelijk gebruikt](https://nos.nl/l/2612088)
   > Op het Indonesische eiland Sumatra is voor het eerst een orang-oetan een speciaal voor hen aangelegde touwbrug overgestoken. De brug werd twee jaar...
 - [Dolle Mina's komen op spandoeken met tegengeluid over asielopvang in Apeldoorn](https://nos.nl/l/2612083)
@@ -16,8 +18,6 @@
   > Op sommige dagen is het weer net wat belangrijker dan op andere en Koningsdag is daar één van. Dat begint al in de nacht. Die verloopt droog, met...
 - [Minister weerspreekt energiebedrijven die hogere rekening voorzien door groen gas](https://nos.nl/l/2612078)
   > De verplichte bijmenging van groen gas vanaf 2027 zal niet tot een veel hogere gasrekening leiden, denkt minister Van Veldhoven van Klimaat en Groene...
-- [Autobom ontploft bij politiebureau Belfast, 'wonder dat er geen gewonden zijn'](https://nos.nl/l/2612075)
-  > Bij een politiebureau in Belfast in Noord-Ierland is een autobom ontploft. Dat gebeurde nadat de auto van een bezorger was gekaapt, zo heeft de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Demi Vollering wint Luik-Bastenaken-Luik met veel machtsvertoon en pakt record met derde zege](https://www.ad.nl/wielrennen/demi-vollering-wint-luik-bastenaken-luik-met-veel-machtsvertoon-en-pakt-record-met-derde-zege~ab2b6dea/)
-  > Demi Vollering mag zich de koningin van Luik-Bastenaken-Luik noemen. De 29-jarige Nederlandse won zondag met veel machtsvertoon en is nu de eerste...
-- [Acrobatische inbreker maakte 10 miljoen euro buit bij voetballers, sterrenkoks en politici](https://www.ad.nl/buitenland/acrobatische-inbreker-maakte-10-miljoen-euro-buit-bij-voetballers-sterrenkoks-en-politici~a3486721/)
-  > In Parijs is een beruchte crimineel opgepakt die acrobatische toeren uithaalde om rappers, chef-koks en politici van hun dure horloges, chique...
-- [Chelsea verdedigt minimale voorsprong in halve finale tegen Leeds United](https://www.ad.nl/voetbal/chelsea-verdedigt-minimale-voorsprong-in-halve-finale-tegen-leeds-united~a2de66af/)
-  > Leeds United kan voor het eerst sinds 1973 weer de finale van de FA Cup bereiken. Daarvoor moet de huidige nummer 15 van de Premier League Chelsea...
-- [Jeroens kunst gaat de hele wereld over: ‘Afrojack belde me of ik zijn podium wilde ontwerpen’](https://www.ad.nl/rotterdam/jeroens-kunst-gaat-de-hele-wereld-over-afrojack-belde-me-of-ik-zijn-podium-wilde-ontwerpen~a3ea61d1/)
-  > De Rotterdamse kunstenaar Jeej mocht de podia ontwerpen voor de Nederlandse superster Afrojack en voor de beroemde Amerikaanse festivals Miami Ultra...
-- [Een smartwatch om je stress te meten? Het zou de dokter kunnen helpen](https://www.ad.nl/wetenschap/een-smartwatch-om-je-stress-te-meten-het-zou-de-dokter-kunnen-helpen~a0670953/)
-  > Als je bij de dokter komt en zegt ‘stress’ te hebben is dat moeilijk meetbaar. Moet de huisarts voortaan meetapparatuur zoals een smartwatch...
+- [Film over Michael Jackson gehaat door recensenten, maar geliefd bij bioscooppubliek](https://www.ad.nl/show/film-over-michael-jackson-gehaat-door-recensenten-maar-geliefd-bij-bioscooppubliek~a9e5a688/)
+  > Recensenten maakten gehakt van Michael, de film over het leven van de overleden popster Michael Jackson. Toch heeft de rolprent een succesvol eerste...
+- [Jos Hermens over historische marathon: ‘Hier hebben we het over 20 of 30 jaar nog over’](https://www.ad.nl/andere-sporten/jos-hermens-over-historische-marathon-hier-hebben-we-het-over-20-of-30-jaar-nog-over~a37aea59/)
+  > De Keniaan Sabastian Sawe (31) liep in Londen als eerste mens een officiële marathon onder de twee uur. Atletenmanager Jos Hermens geldt als een van...
+- [Ernest Faber na degradatie Heracles: ‘Als we dat blijven doen, gaat het niet veel worden met deze club’](https://www.ad.nl/voetbal/ernest-faber-na-degradatie-heracles-als-we-dat-blijven-doen-gaat-het-niet-veel-worden-met-deze-club~af415229/)
+  > Zondagmiddag viel het doek voor Heracles. Door de 0-2 nederlaag tegen FC Volendam spelen de Almeloërs volgend seizoen in de Keuken Kampioen Divisie....
+- [Charles begint aan riskant staatsbezoek aan de VS: angst voor pijnlijke Epstein-vragen](https://www.ad.nl/buitenland/charles-begint-aan-riskant-staatsbezoek-aan-de-vs-angst-voor-pijnlijke-epstein-vragen~a2399d21/)
+  > Charles en Camilla beginnen maandag aan een beladen vierdaags staatsbezoek aan de VS. Net als in Nederland is er in Engeland felle discussie over het...
+- [Crisis voor even vergeten: Chelsea bereikt finale dankzij minimale zege op Leeds United](https://www.ad.nl/voetbal/crisis-voor-even-vergeten-chelsea-bereikt-finale-dankzij-minimale-zege-op-leeds-united~a2de66af/)
+  > Chelsea heeft voor de veertiende keer de finale van de FA Cup gehaald. The Blues waren met 1-0 te sterk voor Leeds United en staan op 16 mei...
 
 ### Meest gelezen
 
