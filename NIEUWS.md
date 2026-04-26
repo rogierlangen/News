@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-04-2026 om 22:43*
+*Laatst bijgewerkt: 26-04-2026 om 23:44*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Xavi Simons mist WK door zware knieblessure: ‘Ik ben er kapot van’](https://www.ad.nl/wk-voetbal/xavi-simons-mist-wk-door-zware-knieblessure-ik-ben-er-kapot-van~a12e64b4/)
+  > Xavi Simons mist het WK voetbal door een zware knieblessure. Zijn club Tottenham Hotspur bevestigt tegenover verschillende media dat de...
+- [Voetbalpodcast | ‘Heracles was echt wel het zwakste team in de Eredivisie dit seizoen’](https://www.ad.nl/voetbal/voetbalpodcast-heracles-was-echt-wel-het-zwakste-team-in-de-eredivisie-dit-seizoen~ac8603a9/)
+  > De kampioen was al langer bekend in de Eredivisie. Na deze speelronde is ook de eerste degradant een feit: Heracles Almelo.
+- [Groei defensie-uitgaven minder sterk gestegen door wegvallen Oekraïnesteun VS](https://www.ad.nl/economie/groei-defensie-uitgaven-minder-sterk-gestegen-door-wegvallen-oekrainesteun-vs~a195fe76/)
+  > De steile stijging van de wereldwijde defensie-uitgaven vlakt wat af. In 2024 werd nog de grootste groei in decennia geboekt, maar de Verenigde...
 - [Mijnans én oud-speler FC Groningen gelinkt aan AC Milan, Fariolo geeft aan FC Porto trouw te blijven](https://www.ad.nl/voetbal/mijnans-en-oud-speler-fc-groningen-gelinkt-aan-ac-milan-fariolo-geeft-aan-fc-porto-trouw-te-blijven~a35ea681/)
   > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
 - [Podcast In Het Wiel | ‘Het is Pogacaresque wat Paul Seixas doet’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-het-is-pogacaresque-wat-paul-seixas-doet~a5ea502e/)
   > We wisten dat Paul Seixas goed was, maar na Luik-Bastenaken-Luik bestaat er helemaal geen twijfel meer. Het Franse supertalent was de enige die op La...
-- [Internazionale verspeelt punten in titelstrijd na 2-0 voorsprong, AC Milan en Juventus spelen bloedeloos gelijk](https://www.ad.nl/voetbal/internazionale-verspeelt-punten-in-titelstrijd-na-2-0-voorsprong-ac-milan-en-juventus-spelen-bloedeloos-gelijk~ac3ef90f/)
-  > Internazionale heeft op weg naar de 21ste landstitel punten verspeeld. De club uit Milaan gaf een 0-2 voorsprong tegen Torino uit handen en liet de...
-- [LIVE Midden-Oosten | ‘Grootste hulpvloot ooit’ vertrokken naar Gaza, Libanon meldt 14 doden door aanvallen Israël](https://www.ad.nl/buitenland/live-midden-oosten-grootste-hulpvloot-ooit-vertrokken-naar-gaza-libanon-meldt-14-doden-door-aanvallen-israel~ac528ac3/)
-  > Activisten uit diverse landen zijn vanuit Sicilië aan boord van 56 schepen met humanitaire hulp vertrokken naar de Gazastrook. Dat meldt de Global...
-- [Staatsbezoek koning Charles aan VS gaat zonder wijzigingen door](https://www.ad.nl/buitenland/staatsbezoek-koning-charles-aan-vs-gaat-zonder-wijzigingen-door~ae67dd9c/)
-  > De Amerikaanse president Donald Trump is door agenten van de Secret Service van het podium geëvacueerd tijdens het Correspondents’ Dinner. Dat...
 
 ### Meest gelezen
 
