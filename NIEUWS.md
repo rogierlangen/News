@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-04-2026 om 03:28*
+*Laatst bijgewerkt: 26-04-2026 om 06:09*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Schoten gelost in hotel bij Correspondent's Diner, Trump afgevoerd en geen gewonden](https://nos.nl/l/2612012)
-  > De Amerikaanse president Trump is door agenten van de Secret Service geëvacueerd tijdens het Correspondents' Dinner van het Witte Huis. Dat gebeurde...
+- [Wekdienst 26/4: Kernramp Tsjernobyl herdacht • Vrijmarkt voor Koningsdag begint al in Utrecht](https://nos.nl/l/2612024)
+  > Goedemorgen! Vandaag wordt de kernramp van Tsjernobyl herdacht en begint in Utrecht de vrijmarkt voor Koningsdag al vroeg.
+        Het weer: vandaag...
+- [Van onze correspondent... Dick Drayer (Caribisch Gebied)](https://nos.nl/l/2612020)
+  > Van onze correspondent is een serie van de makers van podcast De Dag. Iedere zondag maken we kennis met een van de correspondenten van de NOS, het...
+- [Trump over mislukte aanslag bij Correspondent's Dinner: verdachte had meerdere wapens](https://nos.nl/l/2612013)
+  > De man die door de beveiliging probeerde te breken bij het Correspondents' Dinner had meerdere wapens bij zich. Ook droeg hij een kogelwerend vest....
+- [Schutter opgepakt bij Correspondent's Dinner, Trump en kabinet in veiligheid gebracht](https://nos.nl/l/2612012)
+  > De Amerikaanse president Trump is door agenten van de Secret Service geëvacueerd tijdens het jaarlijkse Correspondents' Dinner van het Witte Huis....
 - [Explosief in bus eist 13 levens in Colombia, geweld escaleert](https://nos.nl/l/2612011)
   > Een explosief in een bus heeft in het zuidwesten van Colombia aan dertien mensen het leven gekost. De bus reed over de Pan-Amerikaanse snelweg in...
-- [Vredesonderhandelingen tussen VS en Iran verder uit zicht, conflict zit muurvast](https://nos.nl/l/2612005)
-  > De kans lijkt klein dat de Verenigde Staten en Iran op korte termijn zullen onderhandelen over een einde aan de oorlog in het Midden-Oosten. Een...
-- [Verslagen Viktor Orbán weg uit Hongaars parlement, gaat zijn partij reorganiseren](https://nos.nl/l/2611992)
-  > Vertrekkend premier Viktor Orbán van Hongarije neemt zijn parlementszetel niet in na de verkiezingsnederlaag van zijn partij Fidesz. Hij wil zich...
-- [Brandweerauto slaat na botsing over de kop, vijf gewonden](https://nos.nl/l/2611985)
-  > Op de provinciale weg N35 tussen Wierden en Nijverdal zijn vijf mensen gewond geraakt bij een ongeluk met een brandweerwagen. De wagen sloeg over de...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Dochter treft moeder aan met blauwe plekken: nu onthult personeel misstanden bij zorginstelling](https://www.ad.nl/binnenland/dochter-treft-moeder-aan-met-blauwe-plekken-nu-onthult-personeel-misstanden-bij-zorginstelling~ad960634/)
-  > Uitschelden, duwen en signalen van mishandeling van kwetsbare, dementerende bewoners. Oud-medewerkers spreken zich uit over ernstige misstanden die...
-- [Trump geëvacueerd tijdens Correspondents’ Dinner na schietincident](https://www.ad.nl/buitenland/trump-geevacueerd-tijdens-correspondents-dinner-na-schietincident~a978b324/)
-  > De Amerikaanse president Donald Trump is door agenten van de Secret Service van het podium geëvacueerd tijdens het Correspondents’ Dinner van het...
-- [Gezin van verdachte aanslag met molotovcocktails VS opnieuw vastgezet](https://www.ad.nl/buitenland/gezin-van-verdachte-aanslag-met-molotovcocktails-vs-opnieuw-vastgezet~adccfc84/)
-  > Amerikaanse immigratieagenten hebben zaterdag de familie van een man die ervan wordt beschuldigd vorig jaar Joodse demonstranten in de Amerikaanse...
-- [Zeker 14 doden door bomaanslag in Colombia](https://www.ad.nl/buitenland/zeker-14-doden-door-bomaanslag-in-colombia~a4352d49/)
-  > Bij een bomaanslag in het zuidwesten van Colombia zijn zaterdag 14 mensen om het leven gekomen. Zeventien anderen raakten gewond.
-- [Glory-historie in Ahoy: Chico Kwasi tweede ooit met wereldtitels in twee divisies: ‘Alle haters geloofden me niet’](https://www.ad.nl/vechtsport/glory-historie-in-ahoy-chico-kwasi-tweede-ooit-met-wereldtitels-in-twee-divisies-alle-haters-geloofden-me-niet~a9b7dd49/)
-  > Chico Kwasi, de 28-jarige kickbokser uit Purmerend, is de tweede kickbokser in de Glory-historie die op hetzelfde moment wereldkampioen is in twee...
+- [Het is geen vraag meer óf het gebeurt, maar wanneer: marathonwereld balanceert op rand van historie](https://www.ad.nl/andere-sporten/het-is-geen-vraag-meer-of-het-gebeurt-maar-wanneer-marathonwereld-balanceert-op-rand-van-historie~abab5de0/)
+  > Sabastian Sawe en Jacob Kiplimo zijn zondag de blikvangers bij de Londen Marathon en wakkeren de droom aan van een tijd onder de twee uur. Kenners en...
+- [De wereldgoal van Mika Godts stap voor stap ontleed: ‘Het is goed dat ik nog niet met Zlatan word vergeleken’](https://www.ad.nl/voetbal/de-wereldgoal-van-mika-godts-stap-voor-stap-ontleed-het-is-goed-dat-ik-nog-niet-met-zlatan-word-vergeleken~a924069c/)
+  > Met 14 balcontacten slalomde Mika Godts zo’n 50 meter, langs 4 NAC-spelers naar één wereldgoal. Eén die verdacht veel leek op de legendarische solo...
+- [Melania dook meteen weg, maar Donald Trump reageerde amper na klap: ‘Dacht dat er een dienblad viel’](https://www.ad.nl/buitenland/melania-dook-meteen-weg-maar-donald-trump-reageerde-amper-na-klap-dacht-dat-er-een-dienblad-viel~aa17f845/)
+  > Het was een harde knal. Donald Trump dacht aan een vallend dienblad. Zijn vrouw Melania dook meteen weg. Het jaarlijkse White House Correspondents’...
+- [Ik heb een haast en een drift die niet te stuiten zijn](https://www.ad.nl/mezza/ik-heb-een-haast-en-een-drift-die-niet-te-stuiten-zijn~af1bb2bb/)
+  > Beau van Erven Dorens heeft het vuur weer gevonden, schrijft hij in zijn column in ons weekendmagazine Mezza. Hij blikt hij terug op zijn acties als...
+- [Jij, jij en nog eens jij: ‘De een wel met ‘u’ aanspreken en de ander niet, is onzin en achterhaald’](https://www.ad.nl/binnenland/jij-jij-en-nog-eens-jij-de-een-wel-met-u-aanspreken-en-de-ander-niet-is-onzin-en-achterhaald~a0eeae9d/)
+  > Een sollicitant in Brabant werd onlangs afgewezen omdat hij zijn potentiële baas met u aansprak. Want: oubollig. Ook media, banken en...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Van Apple Watch naar Oura Ring: schermloze sportgadgets domineren de wedstrijd](https://fd.nl/tech-en-innovatie/1593934/van-apple-watch-naar-oura-ring-schermloze-sportgadgets-domineren-de-wedstrijd)
+  > Met $11 mrd is Oura, dat slimme ringen maakt, de meest waardevolle start-up ooit in Finland. Google en Garmin volgen uitdagers als Whoop en Oura op...
+- [Donald Trump ongedeerd na schietincident bij Correspondent’s Diner in Washington](https://fd.nl/politiek/1594459/donald-trump-ongedeerd-na-schietincident-bij-correspondents-diner-in-washington)
+  > De verdachte is een 31-jarige man uit Californië. Hij handelde waarschijnlijk alleen en was zwaar bewapend.
 - [Luisterverhaal: Hoe een kapsalon in de Limburgse heuvels een schakel werd in de mensensmokkel over het Kanaal](https://fd.nl/samenleving/1594252/luisterverhaal-hoe-een-kapsalon-in-de-limburgse-heuvels-een-schakel-werd-in-de-mensensmokkel-over-het-kanaal)
   > Deze week hoor je het verhaal over een Syrische kapper uit Heerlen, die verdacht wordt van mensensmokkel.
 - [Aanvallen op Malinese hoofdstad Bamako](https://fd.nl/politiek/1594457/aanvallen-op-malinese-hoofdstad-bamako)
   > Op verschillende locaties bij de Malinese hoofdstad Bamako hebben aanvallen plaatsgevonden op militaire doelwitten.
 - [‘Oekraïne en Azerbeidzjan sluiten deal over veiligheid en energie’](https://fd.nl/politiek/1594456/oekraine-en-azerbeidzjan-sluiten-deal-over-veiligheid-en-energie)
   > Kyiv en Bakoe zouden afspraken hebben gemaakt over energie en veiligheid.
-- [Amerikanen toch niet naar Islamabad voor onderhandelingen over Iran-oorlog](https://fd.nl/politiek/1594372/amerikanen-naar-islamabad-voor-onderhandelingen-iran-ontkent-gesprekken)
-  > Een delegatie vanuit Washington zou zaterdag naar Islamabad vertrekken voor onderhandelingen, maar dat ging op het laatste moment niet door.
-- [Een economisch mirakel in Nederland? En gaat China ons kapot concurreren?](https://fd.nl/economie/1594328/een-economisch-mirakel-in-nederland-en-gaat-china-ons-kapot-concurreren)
-  > In deze Toegevoegde Waarde kijken Anna Dijkman en Marijn Jongsma naar de fraaie groei van de arbeidsproductiviteit in Nederland, vrezen ze een China...
 
 ### Meest gelezen
 
