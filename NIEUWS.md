@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-04-2026 om 21:42*
+*Laatst bijgewerkt: 26-04-2026 om 22:43*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Mali bevestigt dood defensieminister in aanval jihadisten en separatisten](https://nos.nl/l/2612138)
+  > De Malinese staatstelevisie heeft bevestigd dat defensieminister Sadio Camara is omgekomen bij een aanval van tegenstanders van de junta die het land...
 - [Israëlische oud-premiers Bennett en Lapid samen de verkiezingen in](https://nos.nl/l/2612130)
   > Twee voormalige Israëlische premiers, Naftali Bennett en Yair Lapid, hebben aangekondigd met een gezamenlijke lijst de parlementsverkiezingen dit...
 - [Rotterdams coldcaseteam ijvert voor doorbraak in 25 jaar oude moordzaak](https://nos.nl/l/2612121)
@@ -16,8 +18,6 @@
   > De man die ervan wordt verdacht een aanslag te hebben willen plegen op de Amerikaanse president Trump is een 31-jarige leraar en...
 - [Botsing tussen ambulance met patiënt en auto met aanhanger op N50](https://nos.nl/l/2612110)
   > Een ambulance en een auto met aanhanger zijn op elkaar gebotst op de autoweg N50 tussen Kampen en Emmeloord. De ambulance vervoerde op het moment van...
-- [Homoseksuele Adam en Eva te zien in gerenoveerde kapel in Heule](https://nos.nl/l/2612096)
-  > In het Belgische dorp Heule is een door brand verwoeste kapel na vijf jaar weer opengegaan. Daarin is door de Zusters van Liefde ruimte gemaakt voor...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Mijnans én oud-speler FC Groningen gelinkt aan AC Milan, Fariolo geeft aan FC Porto trouw te blijven](https://www.ad.nl/voetbal/mijnans-en-oud-speler-fc-groningen-gelinkt-aan-ac-milan-fariolo-geeft-aan-fc-porto-trouw-te-blijven~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Podcast In Het Wiel | ‘Het is Pogacaresque wat Paul Seixas doet’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-het-is-pogacaresque-wat-paul-seixas-doet~a5ea502e/)
+  > We wisten dat Paul Seixas goed was, maar na Luik-Bastenaken-Luik bestaat er helemaal geen twijfel meer. Het Franse supertalent was de enige die op La...
 - [Internazionale verspeelt punten in titelstrijd na 2-0 voorsprong, AC Milan en Juventus spelen bloedeloos gelijk](https://www.ad.nl/voetbal/internazionale-verspeelt-punten-in-titelstrijd-na-2-0-voorsprong-ac-milan-en-juventus-spelen-bloedeloos-gelijk~ac3ef90f/)
   > Internazionale heeft op weg naar de 21ste landstitel punten verspeeld. De club uit Milaan gaf een 0-2 voorsprong tegen Torino uit handen en liet de...
 - [LIVE Midden-Oosten | ‘Grootste hulpvloot ooit’ vertrokken naar Gaza, Libanon meldt 14 doden door aanvallen Israël](https://www.ad.nl/buitenland/live-midden-oosten-grootste-hulpvloot-ooit-vertrokken-naar-gaza-libanon-meldt-14-doden-door-aanvallen-israel~ac528ac3/)
   > Activisten uit diverse landen zijn vanuit Sicilië aan boord van 56 schepen met humanitaire hulp vertrokken naar de Gazastrook. Dat meldt de Global...
 - [Staatsbezoek koning Charles aan VS gaat zonder wijzigingen door](https://www.ad.nl/buitenland/staatsbezoek-koning-charles-aan-vs-gaat-zonder-wijzigingen-door~ae67dd9c/)
   > De Amerikaanse president Donald Trump is door agenten van de Secret Service van het podium geëvacueerd tijdens het Correspondents’ Dinner. Dat...
-- [Spaanse degradatiekraker loopt uit de hand: keeper van Zaragoza slaat tegenstander bont en blauw](https://www.ad.nl/voetbal/spaanse-degradatiekraker-loopt-uit-de-hand-keeper-van-zaragoza-slaat-tegenstander-bont-en-blauw~a643dc7c/)
-  > De degradatiekraker tussen Huesca en Zaragoza op het tweede niveau in Spanje is zondagavond compleet uit de hand gelopen. Doelman Esteban Andrada...
-- [Alonso wil ondanks vaderschap en slechte seizoensstart door in F1: ‘Ik voel me gelukkig tijdens het rijden’](https://www.ad.nl/formule-1/alonso-wil-ondanks-vaderschap-en-slechte-seizoensstart-door-in-f1-ik-voel-me-gelukkig-tijdens-het-rijden~a1bd689a/)
-  > Fernando Alonso heeft te kennen gegeven dat hij ook volgend jaar nog in de Formule 1 wil rijden. De 44-jarige Spanjaard, wiens contract bij Aston...
 
 ### Meest gelezen
 
