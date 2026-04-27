@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-04-2026 om 11:47*
+*Laatst bijgewerkt: 27-04-2026 om 14:05*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Poolse influencer haalt met dagenlange livestream miljoenen op voor kinderen met kanker](https://nos.nl/l/2612201)
+  > De Poolse influencer Piotr Garkowski heeft het wereldrecord verbroken voor het meeste geld inzamelen tijdens een livestream. Negen dagen lang...
+- [Wind in opkomst: zo'n honderd grote vrachtschepen gebruiken windkracht](https://nos.nl/l/2612197)
+  > Op het eerste oog is er niets bijzonders aan het Nederlandse vrachtschip de Amadeus Saffier. Het levert goederen af in havens in en rond Europa....
+- [Fransman likt aan rietje in Singapore, riskeert paar jaar cel](https://nos.nl/l/2612196)
+  > Een 18-jarige Fransman is in Singapore aangeklaagd omdat hij aan een rietje uit een drankautomaat likte en het vervolgens teruglegde, schrijven...
+- [Koninklijke familie voltooit bezoek aan Dokkum: 'Tige tank'](https://nos.nl/l/2612191)
+  > De koninklijke familie heeft 'Keningsdei' in Friesland gevierd met schaatsen, fierljeppen en andere typisch Friese gebruiken.
+        Zo lag in de...
 - [Indiaas farmabedrijf wil Organon uit Oss voor miljarden overnemen](https://nos.nl/l/2612185)
   > Het farmaceutische bedrijf Organon, met een productielocatie in Oss, wordt waarschijnlijk overgenomen door het Indiase Sun Pharmaceutical. Het...
-- [42 doden na familieruzie om waterbron in Tsjaad](https://nos.nl/l/2612184)
-  > Op zaterdag is een geschil tussen twee families over een waterbron in Tsjaad compleet uit de hand gelopen. Er vielen zeker 42 doden en tien anderen...
-- [Charles op staatsbezoek in VS: hoe een diplomatieke meesterzet een mijnenveld werd](https://nos.nl/l/2612180)
-  > Aan hoofdpijndossiers geen gebrek dezer dagen in Downing Street, het machtscentrum van de Britse politiek. En allemaal hebben ze een link met...
-- [Podcast De Dag: Thomas Plantenga, CEO van Vinted](https://nos.nl/l/2612178)
-  > Thomas Plantenga is de CEO van Vinted, het tweedehands (kleding)verkoopplatform waarvan de omzet deze maand steeg tot boven de 1 miljard euro. Hij is...
-- [China blokkeert overname van AI-bedrijf Manus door Meta](https://nos.nl/l/2612176)
-  > China wil dat de overname van het AI-bedrijf Manus door het Amerikaanse Meta wordt teruggedraaid. Een duidelijke reden waarom de autoriteiten de deal...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Drukwerk-zanger Harry Slinger heeft darmkanker](https://www.ad.nl/show/drukwerk-zanger-harry-slinger-heeft-darmkanker~ad70ef89/)
-  > Drukwerk-zanger Harry Slinger heeft darmkanker. Dat meldt de band op Facebook. Volgens de groep kan de kanker operatief worden verwijderd en staat de...
-- [Oekraïners getuigen over gruwelijke praktijken in Russische gevangenschap](https://www.ad.nl/buitenland/oekrainers-getuigen-over-gruwelijke-praktijken-in-russische-gevangenschap~a17cfeea/)
-  > Ontvoeringen met een kap over het hoofd en martelingen die verdachten niet overleven. Opnieuw komen er verhalen naar buiten over hoe de Russische...
-- [LIVE Koningsdag 2026 | Koning bedankt Dokkum voor ‘onvergetelijke Keningsdei’, drie demonstraties langs route](https://www.ad.nl/binnenland/live-koningsdag-2026-koning-bedankt-dokkum-voor-onvergetelijke-keningsdei-drie-demonstraties-langs-route~a2803fe4/)
-  > Vrijmarkten, festivals en oranjebitter. Koningsdag 2026 is begonnen! Koning Willem-Alexander viert maandag zijn 59ste verjaardag in Dokkum. Bij...
-- [Prinses Ariane verrast met pittige studiekeuze: na de zomer naar TU Delft voor Lucht- en Ruimtevaarttechniek](https://www.ad.nl/show/prinses-ariane-verrast-met-pittige-studiekeuze-na-de-zomer-naar-tu-delft-voor-lucht-en-ruimtevaarttechniek~a860f38f/)
-  > Prinses Ariane (19) begint na haar tussenjaar aan de studie Lucht- en Ruimtevaarttechniek aan de TU Delft. Dat onthulde de prinses tijdens de viering...
-- [Nog meer bemoeienis in je nieuwe auto: noodremsysteem en ADDW verplicht vanaf 1 juli](https://www.ad.nl/auto/nog-meer-bemoeienis-in-je-nieuwe-auto-noodremsysteem-en-addw-verplicht-vanaf-1-juli~adc18166/)
-  > Alle nieuwe auto’s die vanaf 1 juli in de EU worden verkocht, moeten verplicht zijn uitgerust met een noodremsignaal en een camera die het gezicht...
+- [Gianni zoekt in Italiaans dorp naar achtergelaten drollen, dankzij dna-onderzoek kan baasje worden beboet](https://www.ad.nl/buitenland/gianni-zoekt-in-italiaans-dorp-naar-achtergelaten-drollen-dankzij-dna-onderzoek-kan-baasje-worden-beboet~ac81b9c9/)
+  > Het Italiaanse plaatsje Carmagnola heeft een inventieve manier gevonden om overlast van hondenpoep te bestrijden: dna. Alle honden in het dorp kregen...
+- [Schulden, vertrekkende sterkhouders en een afzwaaiende succescoach: Cambuur staat voor complexe puzzel](https://www.ad.nl/voetbal/schulden-vertrekkende-sterkhouders-en-een-afzwaaiende-succescoach-cambuur-staat-voor-complexe-puzzel~aedeb7fb/)
+  > Na drie jaar KKD-voetbal, meldt Cambuur zich met ingang van volgend seizoen weer op het hoogste niveau. Een heugelijk moment, waar de Leeuwardense...
+- [Anthony Joshua (36) kondigt nieuw gevecht aan, maar niet tegen Tyson Fury](https://www.ad.nl/vechtsport/anthony-joshua-36-kondigt-nieuw-gevecht-aan-maar-niet-tegen-tyson-fury~a50bb135/)
+  > Bokser Anthony Joshua heeft zijn rentree in de ring aangekondigd. De tweevoudig verenigd wereldkampioen zwaargewicht werd recentelijk uitgedaagd door...
+- [Rechter: Duitse grenscontroles schenden Schengenverdrag](https://www.ad.nl/buitenland/rechter-duitse-grenscontroles-schenden-schengenverdrag~abe8e133/)
+  > De Duitse grenscontroles schenden het Schengenverdrag van de EU, heeft een rechtbank in het Duitse Koblenz geoordeeld. Sinds 2024 zijn er...
+- [Marylene (23): 'Voor mijn woning met vier slaapkamers betaal ik 1280 euro hypotheek'](https://www.ad.nl/geld/marylene-23-voor-mijn-woning-met-vier-slaapkamers-betaal-ik-1280-euro-hypotheek~a9b214d11/)
+  > Marylene  ’t Lam is een spaarder en neemt zelfgekookte maaltijden mee naar haar werk. Zo kon ze flink investeren in haar woning, vertelt ze in deze...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaanse krantenmagnaat blaast lokale blaadjes nieuw leven in](https://fd.nl/bedrijfsleven/1592942/amerikaanse-krantenmagnaat-blaast-lokale-blaadjes-nieuw-leven-in)
-  > Toen David Hoffmann – geschat vermogen: $2,6 mrd – nergens een krant kon vinden die over de ijshockeywedstrijd van zijn kleinzoon schreef, kwan hij...
+- [Shell neemt Canadees schaliebedrijf over voor $16,4 mrd](https://fd.nl/bedrijfsleven/1594479/shell-neemt-canadees-schaliebedrijf-over-voor-16-4-mrd)
+  > Door de overname neemt Shells dagelijkse productie toe met 370.000 vaten aan olie-equivalent, aldus de Britse onderneming.
+- [Regering-Meloni slaagt er niet in de eigen begrotingsdoelen te halen](https://fd.nl/economie/1594430/regering-meloni-slaagt-er-niet-in-de-eigen-begrotingsdoelen-te-halen)
+  > De Italiaanse regering had zichzelf ten doel gesteld het begrotingstekort vorig jaar terug te brengen naar de EU-norm van 3%, maar dat is niet...
+- [Roemeense regeringscrisis lijkt onafwendbaar na aankondiging monsterverbond](https://fd.nl/politiek/1594467/roemeense-regeringscrisis-lijkt-onafwendbaar-na-aankondiging-monsterverbond)
+  > De sociaaldemocratische PSD gaat met de radicaalrechtse partij AUR een vertrouwensstemming voorbereiden tegen de minderheidsregering van premier Ilie...
+- [Amerikaanse krantenmagnaat blaast lokale bladen nieuw leven in](https://fd.nl/bedrijfsleven/1592942/amerikaanse-krantenmagnaat-blaast-lokale-blaadjes-nieuw-leven-in)
+  > Toen David Hoffmann – geschat vermogen: $2,6 mrd – nergens een krant kon vinden die over de ijshockeywedstrijd van zijn kleinzoon schreef, kwam hij...
 - [Martin van den Brink stapt op als commissaris bij ASM](https://fd.nl/bedrijfsleven/1594478/martin-van-den-brink-stapt-op-als-commissaris-bij-asm)
   > De chipmachinefabrikant uit Almere voorziet dat er op termijn sprake van belangenverstrengeling kan optreden als het voormalig technisch brein van...
-- [Honderden miljoenen aan pensioengeld voor start-ups zijn welkom, maar lang niet genoeg](https://fd.nl/tech-en-innovatie/1594429/honderden-miljoenen-aan-pensioengeld-voor-start-ups-zijn-welkom-maar-lang-niet-genoeg)
-  > PME steekt €400 mln extra in start-ups. De hoop is dat het pensioengeld ook andere beleggers in beweging brengt.
-- [BYD mag voorlopig niet bij Europese autolobbyclub](https://fd.nl/bedrijfsleven/1594458/byd-mag-voorlopig-niet-bij-europese-autolobbyclub)
-  > In ieder geval één Europese autofabrikant zou kijken of het mogelijk is om het Chinese bedrijf buiten de deur te houden.
-- [Brussel trekt steun in voor Biënnale](https://fd.nl/politiek/1594463/brussel-trekt-steun-in-voor-biennale)
-  > De Europa-nieuwsbrief van het FD gaat dit keer over Brusselse ergernis over de Biënnale, frictie tussen Slowakije en de nieuwe regering in Hongarije...
 
 ### Meest gelezen
 
