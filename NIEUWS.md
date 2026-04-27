@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-04-2026 om 21:56*
+*Laatst bijgewerkt: 27-04-2026 om 22:59*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Ruiten ingegooid bij gemeentehuis Loosdrecht waar asielopvang komt](https://nos.nl/l/2612245)
+  > Bij het gemeentehuis van Wijdemeren in Loosdrecht zijn gisteravond vernielingen aangebracht. Ruiten en toegangsdeuren zijn ingegooid met stoeptegels...
 - [IS doodt tientallen mensen in Oost-Nigeria](https://nos.nl/l/2612244)
   > Bij een aanval van terreurgroep IS in de Nigeriaanse staat Adamawa, nabij de grens met Kameroen, zijn zeker 29 mensen om het leven gekomen. Dat meldt...
 - [Schutter Correspondents' Dinner aangeklaagd voor moordpoging op president Trump](https://nos.nl/l/2612232)
@@ -16,8 +18,6 @@
   > De Duitse grenscontroles zijn een schending van het Schengenverdrag van de EU. Dat oordeelt een rechtbank in het Duitse Koblenz. Volgens de rechter...
 - [Zonnige en gemoedelijke Koningsdag, drukte in steden](https://nos.nl/l/2612225)
   > Nederland heeft vandaag op een overwegend zonnige dag weer uitbundig Koningsdag gevierd. Op sommige plekken zoals Amsterdam en Utrecht werd het...
-- [Redding van walvis Timmy nadert finale, na weken mediastorm](https://nos.nl/l/2612219)
-  > Al bijna twee maanden dobbert en ligt een bultrugwalvis voor de Duitse Oostzeekust. De een noemt hem Timmy, de ander Hope. Nu eens ligt hij op een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Trump ontvangt Charles en Camilla in het Witte Huis](https://www.ad.nl/buitenland/trump-ontvangt-charles-en-camilla-in-het-witte-huis~aa43ddef/)
+- [Nieuwe dreun voor berucht Mexicaans drugskartel: opvolger van gedode El Mencho gearresteerd](https://www.ad.nl/buitenland/nieuwe-dreun-voor-berucht-mexicaans-drugskartel-opvolger-van-gedode-el-mencho-gearresteerd~ae03366f/)
+  > De pas aangestelde leider van het Mexicaanse Jaliscokartel-Nieuwe Generatie (CJNG), een van de grootste criminele bendes in het land, is in Mexico...
+- [Trump wil immigratiedienst ICE hernoemen naar NICE](https://www.ad.nl/buitenland/trump-wil-immigratiedienst-ice-hernoemen-naar-nice~ae67dd9c/)
+  > President Donald Trump wil de naam van de omstreden immigratiedienst ICE veranderen in NICE: National Immigration and Customs Enforcement. Een...
+- [Gemeentehuis Loosdrecht vernield, stoeptegels en verkeersboden door ramen gegooid](https://www.ad.nl/binnenland/gemeentehuis-loosdrecht-vernield-stoeptegels-en-verkeersboden-door-ramen-gegooid~ad0e8e89/)
+  > Het gemeentehuis in Loosdrecht is maandagavond laat het doelwit geweest van vernielingen, bevestigt een woordvoerder van de gemeente Wijdemeren na...
+- [Britse koning Charles en Camilla drinken thee met Trump en Melania in het Witte Huis](https://www.ad.nl/buitenland/britse-koning-charles-en-camilla-drinken-thee-met-trump-en-melania-in-het-witte-huis~aa43ddef/)
   > De Amerikaanse president Donald Trump en zijn vrouw Melania hebben de Britse koning Charles en zijn vrouw Camilla ontvangen in het Witte Huis....
 - [Manchester United zet reuzenstap richting Champions League-voetbal met benauwde zege op Brentford](https://www.ad.nl/voetbal/manchester-united-zet-reuzenstap-richting-champions-league-voetbal-met-benauwde-zege-op-brentford~ab60213b/)
   > Manchester United heeft uitstekende zaken gedaan in de strijd om een Champions League-ticket. De nummer drie van de Premier League versloeg in eigen...
-- [Een topzanger brult naar de winst in The masked singer, maar déze namen zorgden voor de grootste shock](https://www.ad.nl/show/een-topzanger-brult-naar-de-winst-in-the-masked-singer-maar-deze-namen-zorgden-voor-de-grootste-shock~a09dba0a/)
-  > Koningsdag werd maandagavond knallend afgesloten bij RTL 4 met een speciale, eenmalige oranje-editie van The masked singer. Waar de zenuwen hoog...
-- [Beau Greaves in tranen nadat ze als eerst vrouw PDC-titel wint: ‘Nooit gedacht dat ik een van deze zou winnen’](https://www.ad.nl/darts/beau-greaves-in-tranen-nadat-ze-als-eerst-vrouw-pdc-titel-wint-nooit-gedacht-dat-ik-een-van-deze-zou-winnen~a3ea419a/)
-  > Beau Greaves heeft geschiedenis geschreven bij de PDC. Zij heeft als eerste vrouw een titel gewonnen op het hoogste niveau bij de mannen. Greaves was...
-- [Twee gewonden bij steekpartij na Kingsland Festival in het Olympisch Stadion in Amsterdam](https://www.ad.nl/binnenland/twee-gewonden-bij-steekpartij-na-kingsland-festival-in-het-olympisch-stadion-in-amsterdam~a70a95ea/)
-  > Bij een steekpartij na afloop van het Kingsland Festival in het Olympisch Stadion in Amsterdam zijn twee personen gewond geraakt. De politie heeft...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Tussen Beiroet en Jeruzalem staat Teheran](https://fd.nl/opinie/1594476/tussen-beiroet-en-jeruzalem-staat-teheran)
+  > Terwijl leiders in Washington vrede bezweren, houdt Hezbollah het conflict in leven. Zolang Teheran de lijnen uitzet, blijft normalisatie tussen...
+- [Spiegelpaleis](https://fd.nl/opinie/1594470/spiegelpaleis)
+  > Opiniemakers als Tucker Carlson richten hun paranoia nu op Trump zelf. Voor de president is het vooral de vraag of hij het beest dat hij zelf gevoed...
+- [Banken eisen meer actie van sociale media tegen internetcriminelen](https://fd.nl/financiele-markten/1594324/banken-eisen-meer-actie-van-sociale-media-tegen-internetcriminelen)
+  > Sociale media doen te weinig om criminelen van hun platformen te verwijderen, zeggen de banken. Zij doen een oproep tot meer samenwerking bij de...
+- [Personalia dinsdag 28 april](https://fd.nl/bedrijfsleven/1594477/personalia-dinsdag-28-april)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [Rustig begin van de week op New Yorkse beurzen](https://fd.nl/financiele-markten/1594596/rustig-begin-van-de-week-op-new-yorkse-beurzen)
   > Beleggers wachtten de week vol kwartaalcijfers en rentebesluiten af en brachten de indices maar nauwelijks in beweging. Farmabedrijf Organon kreeg er...
-- [Trump bespreekt Iraans vredesvoorstel](https://fd.nl/politiek/1594472/trump-bespreekt-iraans-vredesvoorstel)
-  > Iran zou eerst de Straat van Hormuz willen openen, om daarna pas te onderhandelen over zijn kernprogramma.
-- [Mislukte aanslag bij persgala legt kwetsbaarheid Trump bloot](https://fd.nl/politiek/1594471/ondanks-mislukken-van-aanslag-bij-persgala-is-trump-kwetsbaarder-dan-gedacht)
-  > Dat een schutter toegang wist te krijgen tot het White House Correspondents’ Dinner, waar Donald Trump de hoofdgast was, toont de...
-- [Recreatiemarkt gebaat bij duidelijkheid](https://fd.nl/opinie/1594435/recreatiemarkt-gebaat-bij-duidelijkheid)
-  > Onvoorspelbaar beleid jaagt de investeerders weg die nodig zijn voor de vernieuwing van recreatieparken.
-- [China probeert Meta’s AI-deal terug te draaien](https://fd.nl/tech-en-innovatie/1594484/china-probeert-metas-ai-deal-terug-te-draaien)
-  > De verkoop van AI-bedrijf Manus aan een Amerikaanse partij botst met China’s ambitie om wereldwijd leidend te worden in de ontwikkeling van...
 
 ### Meest gelezen
 
