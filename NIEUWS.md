@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-04-2026 om 06:31*
+*Laatst bijgewerkt: 27-04-2026 om 09:22*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Verdachte opgepakt voor brandstichting lhbti-club in Engeland](https://nos.nl/l/2612170)
+  > De Britse politie heeft een 51-jarige man opgepakt voor brandstichting bij een queer club in Milton Keynes, een stad ten noordwesten van Londen. In...
+- [Oud-topbestuurder ASML plots weg als commissaris bij ASMI](https://nos.nl/l/2612166)
+  > Voormalig ASML-bestuurder Martin van den Brink is per direct vertrokken als commissaris van chiptoeleverancier ASM International. Het concern heeft...
+- [Striptekenaar Dick Matena overleden (83), bekend van 'verstrippen' De Avonden en Kruimeltje](https://nos.nl/l/2612165)
+  > Striptekenaar Dick Matena is gisteren op 83-jarige leeftijd overleden. Dat heeft de hoofdredacteur van het tijdschrift Eppo, waar Matena al jaren...
 - [NOS Koningsdag-enquête: meer waardering voor de koning, maar kosten te hoog](https://nos.nl/l/2612146)
   > De waardering voor de manier waarop koning Willem-Alexander zijn koningschap invult neemt na de flinke dip in de coronaperiode geleidelijk weer toe....
-- [NS wil nog minder stroom gebruiken bij treinrit: 'Kan mooi naar huishoudens toe'](https://nos.nl/l/2612145)
+- [NS wil minder stroom gebruiken bij treinrit: 'Kan mooi naar huishoudens toe'](https://nos.nl/l/2612145)
   > Door het volle energienet wordt de roep om vooral minder stroom te gebruiken steeds luider. Het stroomnet uitbreiden duurt lang, langer dan het kost...
-- [Wekdienst 27/4: Koninklijke familie in Dokkum • Feestelijkheden in hele land](https://nos.nl/l/2612144)
-  > Goedemorgen. Het is Koningsdag. De koning wordt 59 en viert zijn verjaardag met zijn familie in Dokkum. In het hele land wordt Koningsdag gevierd met...
-- [Noord-Korea opent gedenkplek voor in Rusland gesneuvelde militairen](https://nos.nl/l/2612143)
-  > Noord-Korea heeft een gedenkplek geopend voor de militairen uit het land die sneuvelden in de strijd tegen Oekraïne. Pyongyang stuurde vanaf november...
-- [Defensie-uitgaven NAVO-landen groeiden in decennia niet zo snel](https://nos.nl/l/2612142)
-  > De wereldwijd defensie-uitgaven zijn het afgelopen jaar opnieuw gestegen, ten opzichte van 2024 met 2,9 procent naar bijna 2500 miljard euro. Met het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Trump reageert geïrriteerd als journalist citaten uit manifest schutter voorleest: ‘Ik ben geen pedofiel’](https://www.ad.nl/buitenland/trump-reageert-geirriteerd-als-journalist-citaten-uit-manifest-schutter-voorleest-ik-ben-geen-pedofiel~a21c7fb5/)
-  > De Amerikaanse president Donald Trump heeft in een interview met CBS fel gereageerd op het manifest van de vermeende schutter tijdens het persgala in...
-- [Quiz | Test hier jouw kennis over het afgelopen sportweekend](https://www.ad.nl/andere-sporten/quiz-test-hier-jouw-kennis-over-het-afgelopen-sportweekend~aea3171d/)
-  > Elke maandagochtend kun je jouw kennis testen over het afgelopen sportweekend. Heb jij al het sportnieuws op de voet gevolgd en kun je alle zeven...
-- [Waarde Bitcoin stijgt naar hoogste niveau in maanden na hoopvol bericht over oorlog Midden-Oosten](https://www.ad.nl/geld/waarde-bitcoin-stijgt-naar-hoogste-niveau-in-maanden-na-hoopvol-bericht-over-oorlog-midden-oosten~a64d65be/)
-  > De waarde van bitcoin is gestegen tot het hoogste niveau in bijna drie maanden. De handel wordt gesteund door optimisme rond de oorlog in het...
-- [Ronettes-zangeres Nedra Talley Ross, van klassieker Be my baby, op 80-jarige leeftijd overleden](https://www.ad.nl/show/ronettes-zangeres-nedra-talley-ross-van-klassieker-be-my-baby-op-80-jarige-leeftijd-overleden~a4ed0316/)
-  > De Amerikaanse zangeres Nedra Talley Ross is op 80-jarige leeftijd overleden. Talley Ross was het laatst levende lid van meidengroep The Ronettes,...
-- [Amalia volgt moeder Máxima op de voet in waardering Nederlanders, meer mensen tevreden over koning](https://www.ad.nl/show/amalia-volgt-moeder-maxima-op-de-voet-in-waardering-nederlanders-meer-mensen-tevreden-over-koning~a1a669d3/)
-  > Zowel de steun voor de monarchie als de rapportcijfers voor koning Willem-Alexander, koningin Máxima en prinses Amalia blijven dit jaar gelijk ten...
+- [Koninklijk gezin eert Dokkum met kleding in vlagkleuren: ‘Een bewuste knipoog’](https://www.ad.nl/show/koninklijk-gezin-eert-dokkum-met-kleding-in-vlagkleuren-een-bewuste-knipoog~a2e20aa8/)
+  > Het is royalty-expert Josine Droogendijk direct opgevallen: het koninklijk gezin heeft vandaag hun kleding feilloos op elkaar afgestemd. Samen vormen...
+- [Sjaak heeft duizenden topwijnen in zijn kelder, zelfs fles uit gezonken VOC-schip: ‘Kost 2000 euro’](https://www.ad.nl/binnenland/sjaak-heeft-duizenden-topwijnen-in-zijn-kelder-zelfs-fles-uit-gezonken-voc-schip-kost-2000-euro~a74c99ed/)
+  > In de kelder onder zijn huis liggen duizenden flessen, van klassieke topwijnen tot zeldzame verzamelstukken. Zoals die fles uit een gezonken...
+- [Welke ‘Koning’ zoeken we? Test je kennis in de Koningsdag Voetbalquiz!](https://www.ad.nl/voetbal/welke-koning-zoeken-we-test-je-kennis-in-de-koningsdag-voetbalquiz~a76b3805/)
+  > Trek je Oranje-shirt aan en leg de tompoucen even aan de kant! Speciaal voor Koningsdag hebben we een voetbalquiz gemaakt met een koninklijk tintje....
+- [Smetvrees breekt Leontien van Moorsel op: oud-wielrenster verlaat The bicycle race](https://www.ad.nl/show/smetvrees-breekt-leontien-van-moorsel-op-oud-wielrenster-verlaat-the-bicycle-race~a5a92b7d/)
+  > Leontien van Moorsel heeft besloten vroegtijdig te stoppen met het televisieprogramma The bicycle race, bleek zondagavond tijdens het SBS6-programma....
+- [LIVE Koningsdag 2026 | Koninklijke familie aangekomen in Dokkum voor viering Keningsdei: ‘We hebben er zin in!’](https://www.ad.nl/binnenland/live-koningsdag-2026-koninklijke-familie-aangekomen-in-dokkum-voor-viering-keningsdei-we-hebben-er-zin-in~a2803fe4/)
+  > Vrijmarkten, festivals en oranjebitter. Koningsdag 2026 is begonnen! Koning Willem-Alexander viert maandag zijn 59ste verjaardag in Dokkum. Maar ook...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Een huisgenoot? Op jouw leeftijd?](https://fd.nl/samenleving/1594397/een-huisgenoot-op-jouw-leeftijd)
-  > Het beviel Frida Boeke goed, een huisgenoot, ondanks de bekrompen ideeën van haar omgeving, volgens welke je zonder liefdespartner alleen behoort te...
-- [Met de handelsroutes verschuift ook de economische macht in de Perzische Golf](https://fd.nl/economie/1594260/met-de-handelsroutes-verschuift-ook-de-economische-macht-in-de-perzische-golf)
-  > De oorlog in het Midden-Oosten dwingt economieën tot veranderingen, waarmee de regio volgens experts uiteindelijk weerbaar zal blijken.
-- [Als junior moet je kritischer zijn om aan de bak te komen](https://fd.nl/samenleving/1594396/als-junior-moet-je-kritischer-zijn-om-aan-de-bak-te-komen)
-  > Voor starters is een baan in sectoren als de advocatuur en de financiële dienstverlening lastiger te vinden. Hoe kunnen junioren toch een kans maken?
-- [Dwarsliggende senator akkoord met benoeming Warsh als Fed-voorzitter](https://fd.nl/politiek/1594375/dwarsliggende-senator-akkoord-met-benoeming-warsh-als-fed-voorzitter)
-  > De Republikeinse senator Thom Tillis zegt nu ook definitief toe in te zullen stemmen met de benoeming van Kevin Warsh als Fed-voorzitter.
-- [Magyar woensdag naar Brussel om geblokkeerde tegoeden te bespreken](https://fd.nl/politiek/1594374/magyar-woensdag-naar-brussel-om-geblokkeerde-tegoeden-te-bespreken)
-  > De aanstaande Hongaarse premier Péter Magyar reist op woensdag naar Brussel om te spreken over et vrijgeven van geblokkeerde tegoeden.
+- [Brussel trekt steun in voor Biënnale](https://fd.nl/politiek/1594463/brussel-trekt-steun-in-voor-biennale)
+  > De Europa-nieuwsbrief van het FD gaat dit keer over Brusselse ergernis over de Biënnale, frictie tussen Slowakije en de nieuwe regering in Hongarije...
+- [Italië voert bonus in voor advocaten van terugkerende migranten](https://fd.nl/politiek/1594466/italie-voert-bonus-in-voor-advocaten-van-terugkerende-migranten)
+  > Advocaten en hulpverleners die migranten van buiten de EU helpen bij vrijwillig vertrek, krijgen €615 uitgekeerd, heeft de regering-Meloni besloten.
+- [Bitcoinbelegger hoopt op cryptowet, maar die dreigt te sneuvelen](https://fd.nl/financiele-markten/1594161/bitcoinbelegger-hoopt-op-cryptowet-maar-die-dreigt-te-sneuvelen)
+  > Cryptobeleggers handelen dit jaar weinig en zijn pessimistisch. Ze hopen dat de Clarity Act de cryptomarkt uit zijn winterslaap haalt. Maar de tijd...
+- [Indiaas farmabedrijf koopt Organon](https://fd.nl/bedrijfsleven/1594465/indiase-farmabedrijf-koopt-organon)
+  > Sun Pharma uit Mumbai biedt $14 per aandeel voor het van oorsprong Brabantse bedrijf.
+- [Wie klimaatdoelen loslaat, maakt Nederland kwetsbaar](https://fd.nl/opinie/1594006/wie-klimaatdoelen-loslaat-maakt-nederland-kwetsbaar)
+  > In boardrooms en aan beleidstafels lijkt klimaat minder prioriteit te krijgen. Dat heeft niet alleen gevolgen voor natuur en milieu, maar tast ook...
 
 ### Meest gelezen
 
