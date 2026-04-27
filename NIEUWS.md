@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-04-2026 om 23:44*
+*Laatst bijgewerkt: 27-04-2026 om 03:32*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Defensie-uitgaven NAVO-landen groeiden in decennia niet zo snel](https://nos.nl/l/2612142)
+  > De wereldwijd defensie-uitgaven zijn het afgelopen jaar opnieuw gestegen, ten opzichte van 2024 met 2,9 procent naar bijna 2500 miljard euro. Met het...
+- [Dode bij opbouw podium voor Shakira-concert in Rio de Janeiro](https://nos.nl/l/2612141)
+  > In Rio de Janeiro is een arbeider omgekomen bij de bouw van een podium voor popster Shakira. De 28-jarige man raakte bekneld tijdens de...
+- [Duwbak onderweg voor nieuwe reddingspoging Duitse bultrug](https://nos.nl/l/2612140)
+  > Reddingswerkers willen toch nog een poging doen om bultrug Timmy te redden, die al weken vastzit voor de Duitse Oostzeekust. Er is een schip onderweg...
 - [Mali bevestigt dood defensieminister in aanval jihadisten en separatisten](https://nos.nl/l/2612138)
   > De Malinese staatstelevisie heeft bevestigd dat defensieminister Sadio Camara is omgekomen bij een aanval van tegenstanders van de junta die het land...
 - [Israëlische oud-premiers Bennett en Lapid samen de verkiezingen in](https://nos.nl/l/2612130)
   > Twee voormalige Israëlische premiers, Naftali Bennett en Yair Lapid, hebben aangekondigd met een gezamenlijke lijst de parlementsverkiezingen dit...
-- [Rotterdams coldcaseteam ijvert voor doorbraak in 25 jaar oude moordzaak](https://nos.nl/l/2612121)
-  > Met het uitdelen van oranje bandjes is vandaag op de Coolsingel in Rotterdam aandacht gevraagd voor een 25 jaar oude coldcasezaak. In de nacht van 28...
-- [Dit weten we over Cole Tomas Allen, vermoedelijke schutter op galadiner met Trump](https://nos.nl/l/2612111)
-  > De man die ervan wordt verdacht een aanslag te hebben willen plegen op de Amerikaanse president Trump is een 31-jarige leraar en...
-- [Botsing tussen ambulance met patiënt en auto met aanhanger op N50](https://nos.nl/l/2612110)
-  > Een ambulance en een auto met aanhanger zijn op elkaar gebotst op de autoweg N50 tussen Kampen en Emmeloord. De ambulance vervoerde op het moment van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Xavi Simons mist WK door zware knieblessure: ‘Ik ben er kapot van’](https://www.ad.nl/wk-voetbal/xavi-simons-mist-wk-door-zware-knieblessure-ik-ben-er-kapot-van~a12e64b4/)
-  > Xavi Simons mist het WK voetbal door een zware knieblessure. Zijn club Tottenham Hotspur bevestigt tegenover verschillende media dat de...
-- [Voetbalpodcast | ‘Heracles was echt wel het zwakste team in de Eredivisie dit seizoen’](https://www.ad.nl/voetbal/voetbalpodcast-heracles-was-echt-wel-het-zwakste-team-in-de-eredivisie-dit-seizoen~ac8603a9/)
-  > De kampioen was al langer bekend in de Eredivisie. Na deze speelronde is ook de eerste degradant een feit: Heracles Almelo.
-- [Groei defensie-uitgaven minder sterk gestegen door wegvallen Oekraïnesteun VS](https://www.ad.nl/economie/groei-defensie-uitgaven-minder-sterk-gestegen-door-wegvallen-oekrainesteun-vs~a195fe76/)
-  > De steile stijging van de wereldwijde defensie-uitgaven vlakt wat af. In 2024 werd nog de grootste groei in decennia geboekt, maar de Verenigde...
-- [Mijnans én oud-speler FC Groningen gelinkt aan AC Milan, Fariolo geeft aan FC Porto trouw te blijven](https://www.ad.nl/voetbal/mijnans-en-oud-speler-fc-groningen-gelinkt-aan-ac-milan-fariolo-geeft-aan-fc-porto-trouw-te-blijven~a35ea681/)
-  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
-- [Podcast In Het Wiel | ‘Het is Pogacaresque wat Paul Seixas doet’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-het-is-pogacaresque-wat-paul-seixas-doet~a5ea502e/)
-  > We wisten dat Paul Seixas goed was, maar na Luik-Bastenaken-Luik bestaat er helemaal geen twijfel meer. Het Franse supertalent was de enige die op La...
+- [Weg van Trump en big tech: Nederlandse data belanden straks bij moederbedrijf van Lidl](https://www.ad.nl/economie/weg-van-trump-en-big-tech-nederlandse-data-belanden-straks-bij-moederbedrijf-van-lidl~ab2a98010/)
+  > Data van Nederlanders worden straks niet alleen opgeslagen bij Amerikaanse techreuzen als Google of Microsoft, maar ook bij het moederbedrijf van...
+- [LIVE VS | Aanvallen op vermeende drugsboten gaan door; dodental naar 185](https://www.ad.nl/buitenland/live-vs-aanvallen-op-vermeende-drugsboten-gaan-door-dodental-naar-185~ae67dd9c/)
+  > Opnieuw zijn drie mensen gedood bij een aanval van het Amerikaanse leger op een vermeende drugsboot in het oostelijke deel van de Stille Oceaan....
+- [Gevecht om waterput in Tsjaad loopt volledig uit de hand: zeker 42 doden](https://www.ad.nl/buitenland/gevecht-om-waterput-in-tsjaad-loopt-volledig-uit-de-hand-zeker-42-doden~a85931c1/)
+  > Een conflict om een waterbron in het oosten van Tsjaad is volledig uit de hand gelopen. Volgens een regeringsbron kwamen zaterdag zeker 42 mensen om...
+- [Iraanse Buitenlandminister op bezoek bij Poetin in Sint-Petersburg](https://www.ad.nl/buitenland/iraanse-buitenlandminister-op-bezoek-bij-poetin-in-sint-petersburg~ac528ac3/)
+  > De Iraanse minister van Buitenlandse Zaken Araghchi zal maandag de Russische president Poetin ontmoeten in Sint-Petersburg. En nadat de...
+- [Opnieuw reddingspoging bultrug Timmy: schip wil hem naar diepe wateren brengen](https://www.ad.nl/buitenland/opnieuw-reddingspoging-bultrug-timmy-schip-wil-hem-naar-diepe-wateren-brengen~a3fe9e54/)
+  > Een schip dat bultrug Timmy moet redden, is onderweg naar de plek waar de walvis nog steeds is gestrand, voor de Duitse Oostzeekust. De redders...
 
 ### Meest gelezen
 
