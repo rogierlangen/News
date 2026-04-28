@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-04-2026 om 22:59*
+*Laatst bijgewerkt: 28-04-2026 om 00:00*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [‘Dances With Wolves’-acteur veroordeeld tot levenslange celstraf wegens seksueel misbruik](https://www.ad.nl/show/dances-with-wolves-acteur-veroordeeld-tot-levenslange-celstraf-wegens-seksueel-misbruik~a9310370/)
+  > Acteur Nathan Chasing Horse is in de Verenigde Staten veroordeeld tot een levenslange gevangenisstraf voor het seksueel misbruiken van inheemse...
+- [Voetbalpodcast | ‘Dick Advocaat moet eigenlijk na dit seizoen stoppen bij Feyenoord als adviseur’](https://www.ad.nl/voetbal/voetbalpodcast-dick-advocaat-moet-eigenlijk-na-dit-seizoen-stoppen-bij-feyenoord-als-adviseur~ac8603a9/)
+  > Er kan een streep door de naam van Xavi Simons voor het WK voetbal. Daarmee heeft Ronald Koeman een anderhalve maand voor het toernooi een tweede...
 - [Nieuwe dreun voor berucht Mexicaans drugskartel: opvolger van gedode El Mencho gearresteerd](https://www.ad.nl/buitenland/nieuwe-dreun-voor-berucht-mexicaans-drugskartel-opvolger-van-gedode-el-mencho-gearresteerd~ae03366f/)
   > De pas aangestelde leider van het Mexicaanse Jaliscokartel-Nieuwe Generatie (CJNG), een van de grootste criminele bendes in het land, is in Mexico...
 - [Trump wil immigratiedienst ICE hernoemen naar NICE](https://www.ad.nl/buitenland/trump-wil-immigratiedienst-ice-hernoemen-naar-nice~ae67dd9c/)
   > President Donald Trump wil de naam van de omstreden immigratiedienst ICE veranderen in NICE: National Immigration and Customs Enforcement. Een...
 - [Gemeentehuis Loosdrecht vernield, stoeptegels en verkeersboden door ramen gegooid](https://www.ad.nl/binnenland/gemeentehuis-loosdrecht-vernield-stoeptegels-en-verkeersboden-door-ramen-gegooid~ad0e8e89/)
   > Het gemeentehuis in Loosdrecht is maandagavond laat het doelwit geweest van vernielingen, bevestigt een woordvoerder van de gemeente Wijdemeren na...
-- [Britse koning Charles en Camilla drinken thee met Trump en Melania in het Witte Huis](https://www.ad.nl/buitenland/britse-koning-charles-en-camilla-drinken-thee-met-trump-en-melania-in-het-witte-huis~aa43ddef/)
-  > De Amerikaanse president Donald Trump en zijn vrouw Melania hebben de Britse koning Charles en zijn vrouw Camilla ontvangen in het Witte Huis....
-- [Manchester United zet reuzenstap richting Champions League-voetbal met benauwde zege op Brentford](https://www.ad.nl/voetbal/manchester-united-zet-reuzenstap-richting-champions-league-voetbal-met-benauwde-zege-op-brentford~ab60213b/)
-  > Manchester United heeft uitstekende zaken gedaan in de strijd om een Champions League-ticket. De nummer drie van de Premier League versloeg in eigen...
 
 ### Meest gelezen
 
