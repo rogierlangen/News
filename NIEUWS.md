@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-04-2026 om 17:49*
+*Laatst bijgewerkt: 28-04-2026 om 19:46*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Archeoloog, journalist en andere gevangenen uitgeruild door Polen en Belarus](https://nos.nl/l/2612338)
+  > Belarus en Polen hebben gevangenen geruild. Onder anderen een Russische architect werd vrijgelaten uit een Poolse gevangenis. De Belarussische...
+- [Prinsessen droegen tas van Libanese ontwerper: 'Erkenning voor onze inspanningen'](https://nos.nl/l/2612335)
+  > De trendwatchers zagen het gisteren meteen: prinses Amalia kwam naar Dokkum met een opvallend tasje. Het was een gouden clutch bag met parkietjes van...
+- [Grote brand in Haagse duinen, NL Alert om gebied te verlaten](https://nos.nl/l/2612333)
+  > In de duinen van Den Haag woedt een grote brand. De brandweer is met tientallen voertuigen aanwezig om het vuur te blussen. Er is een NL-Alert...
+- [Chipsoft: alle gestolen data van ransomware-aanval vernietigd](https://nos.nl/l/2612332)
+  > De patiëntgegevens die begin deze maand werden gestolen bij softwareleverancier Chipsoft zijn vernietigd. Dat meldt het bedrijf in een verklaring....
 - [Overwerk als oplossing voor arbeidstekort, Japan kiest voor soepelere regels](https://nos.nl/l/2612330)
   > Het Japanse kabinet wil de arbeidsregels in Japan flink versoepelen. Door overwerk te stimuleren, hoopt het kabinet groeiende personeelstekorten op...
-- [Google en Pentagon sluiten AI-deal, zorgen bij deel personeel](https://nos.nl/l/2612327)
-  > AI-modellen van Google kunnen gebruikt gaan worden voor geheime militaire informatie van het Amerikaanse leger. Het bedrijf heeft daarvoor een deal...
-- [Reddingspoging bultrug Timmy aan de gang, nog lange weg te gaan](https://nos.nl/l/2612325)
-  > In Duitsland is de ultieme reddingsactie aan de gang voor bultrug Timmy. Het dier zit al weken vast voor de Duitse Oostzeekust. Sinds begin maart is...
-- [Grote politieactie tegen Hells Angels in Duitsland, lokale club verboden](https://nos.nl/l/2612324)
-  > De Duitse politie heeft vanochtend met 1200 man invallen gedaan bij leden van Hells Angels. Op tientallen adressen in de deelstaat...
-- [Opnieuw ramt auto de gevel van Olga en Aad: 'Kregen hartverzakking'](https://nos.nl/l/2612317)
-  > De woning in Breda waar gisteravond een auto naar binnen reed, is al eens eerder geraakt bij een vergelijkbaar ongeluk. Ook toen richtte een auto een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Wessel Nijman wint Nederlands onderonsje in finale en verovert zijn vijfde PDC-titel van het jaar](https://www.ad.nl/darts/wessel-nijman-wint-nederlands-onderonsje-in-finale-en-verovert-zijn-vijfde-pdc-titel-van-het-jaar~af01c8d61/)
-  > Wessel Nijman is bezig aan een uitstekend 2026. De 25-jarige Nederlandse darter won dinsdag Players Championship 12. Hij versloeg landgenoot Jermaine...
-- [ChipSoft meldt dat gestolen patiëntgegevens na hack zijn vernietigd](https://www.ad.nl/binnenland/chipsoft-meldt-dat-gestolen-patientgegevens-na-hack-zijn-vernietigd~a2d420232/)
-  > De patiëntengegevens die zijn gestolen bij de hack op softwareleverancier ChipSoft zijn nergens gepubliceerd en de gegevens zijn inmiddels...
-- [Meet de politie met twee maten? Gelukkig wel](https://www.ad.nl/commentaar/meet-de-politie-met-twee-maten-gelukkig-wel~a10922ae/)
-  > De politie probeerde in Loosdrecht én op de A12 precies te doen wat de situatie vraagt, schrijft Hans Nijenhuis in dit commentaar.
-- [‘Daar moet een vent overheen’: huisarts op non-ac­tief nadat hij seksuele opmerkingen zou hebben gemaakt](https://www.ad.nl/binnenland/daar-moet-een-vent-overheen-huisarts-op-non-actief-nadat-hij-seksuele-opmerkingen-zou-hebben-gemaakt~a3b26f50/)
-  > „Zit je niet lekker in je vel? Dan moet er maar een vent overheen.” Een huisarts van Huisartsenpost Midden-Holland in Gouda zou voor een onveilige...
-- [Gerard is klaar met reallifesoap, Emma deelt emotionele post over Jade](https://www.ad.nl/show/gerard-is-klaar-met-reallifesoap-emma-deelt-emotionele-post-over-jade~a5c9c70c/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Spektakel in halve finale: Olise pegelt bal tegen touwen en maakt gelijk voor Bayern tegen PSG](https://www.ad.nl/voetbal/spektakel-in-halve-finale-olise-pegelt-bal-tegen-touwen-en-maakt-gelijk-voor-bayern-tegen-psg~a67161fb/)
+  > De eerste halve finale van de Champions League is een ware kraker. Titelhouder Paris Saint-Germain neemt het in eigen huis op tegen Bayern München....
+- [Voormalig FBI-directeur James Comey opnieuw aangeklaagd, volgens CNN vanwege ‘schelpenfoto’](https://www.ad.nl/buitenland/voormalig-fbi-directeur-james-comey-opnieuw-aangeklaagd-volgens-cnn-vanwege-schelpenfoto~a18dccf8/)
+  > Voormalig FBI-directeur James Comey is opnieuw aangeklaagd, meldden Amerikaanse media. Volgens CNN vanwege een foto van schelpen die de...
+- [Nieuwe regel: spelers die discrimineren met hand voor mond krijgen op WK rood](https://www.ad.nl/voetbal/nieuwe-regel-spelers-die-discrimineren-met-hand-voor-mond-krijgen-op-wk-rood~a46a476c/)
+  > Voetballers die hun mond met een hand bedekken om discriminerend gedrag te verbergen, krijgen op het WK rood. De internationale spelregelorganisatie...
+- [Reddingsteam vervoert bultrug Timmy in waterbak naar Noordzee](https://www.ad.nl/buitenland/reddingsteam-vervoert-bultrug-timmy-in-waterbak-naar-noordzee~a407b26f/)
+  > Bultrug Timmy, die weken vastlag voor de kust van Duitsland, is onderweg naar de Noordzee. Hij ligt in de waterbak van een schip en wordt naar diepe...
+- [Kitesurfer overleden na harde val op Tjeukemeer bij Delfstrahuizen](https://www.ad.nl/binnenland/kitesurfer-overleden-na-harde-val-op-tjeukemeer-bij-delfstrahuizen~aafc6ef8/)
+  > Op het water bij het Friese Delfstrahuizen is dinsdagavond een kitesurfer overleden. De politie laat weten dat de man hard ten val is gekomen en dat...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Spotify’s verwachtingen voor tweede kwartaal stellen beleggers teleur](https://fd.nl/bedrijfsleven/1594631/spotifys-verwachtingen-voor-tweede-kwartaal-stellen-beleggers-teleur)
+  > Wel wist het muziekplatform meer actieve luisteraars en betalende abonnees te trekken in het eerste kwartaal.
+- [EQT haalt €3,1 mrd op voor Europees vastgoedfonds](https://fd.nl/bedrijfsleven/1594630/eqt-haalt-3-1-mrd-op-voor-europees-vastgoedfonds)
+  > De Zweedse private-equityfirma overtrof het doel van €2,5 mrd ruim.
+- [Sociale media moeten criminelen aanpakken, niet faciliteren](https://fd.nl/tech-en-innovatie/1594505/sociale-media-moeten-criminelen-aanpakken-niet-faciliteren)
+  > Als bedrijven als Meta, TikTok en Google niet vrijwillig actie ondernemen tegen criminaliteit via hun sociale media, moeten strengere Europese regels...
+- [Estland en Finland: ‘Amerikaanse defensieleveringen vertraagd door Iran-oorlog’](https://fd.nl/politiek/1594629/estland-en-finland-amerikaanse-defensieleveringen-vertraagd-door-iran-oorlog)
+  > Estland moet langer wachten op de levering van materieel voor het Himars-raketsysteem.
 - [Voormalig HAL-bestuurder Martijn van der Vorm overleden](https://fd.nl/samenleving/1594626/voormalig-hal-bestuurder-martijn-van-der-vorm-overleden)
-  > Van der Vorm was veertig jaar verbonden aan HAL, waarvan 21 jaar als voorzitter van de raad van bestuur. Tot zijn afscheid in mei was hij...
-- [Minder goederen in haven van Antwerpen en Brugge door stakingen en winterweer](https://fd.nl/bedrijfsleven/1594625/minder-goederen-in-haven-van-antwerpen-en-brugge-door-stakingen-en-winterweer)
-  > De totale overslag kwam in het eerste kwartaal uit op 65,5 miljoen ton. Dat is een daling van 3,2% ten opzichte van dezelfde periode een jaar eerder....
-- [‘China start export brandstoffen weer op’](https://fd.nl/politiek/1594627/china-start-export-brandstoffen-weer-op)
-  > China zou vooral vliegtuigbrandstof willen leveren aan Aziatische landen waar de voorraden nu erg laag zijn.
-- [Shell koopt met miljardenovername in Canada de gewenste reserves in](https://fd.nl/bedrijfsleven/1594506/shell-koopt-met-miljardenovername-in-canada-de-gewenste-reserves-in)
-  > De grootste overname van Shell in tien jaar tijd valt goed bij analisten. Het bedrijf vult zo zijn oliereserves aan, die op de langere termijn op...
-- [Slechtste kwartaal in drie jaar voor Chinese autofabrikant BYD](https://fd.nl/bedrijfsleven/1594521/slechtste-kwartaal-in-drie-jaar-voor-chinese-autofabrikant-byd)
-  > Buiten China timmert de grootste elektrische-autobouwer ter wereld wel aan de weg. De export nam met 50% toe, mede door de hoge olieprijzen.
+  > Van der Vorm was veertig jaar verbonden aan HAL, waarvan 21 jaar als voorzitter van de raad van bestuur. Tot zijn afscheid in mei 2025 was hij...
 
 ### Meest gelezen
 
