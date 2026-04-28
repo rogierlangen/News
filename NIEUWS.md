@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-04-2026 om 19:46*
+*Laatst bijgewerkt: 28-04-2026 om 21:10*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Koning Charles krijgt luid applaus in Congres, benoemt ook pijnpunten](https://nos.nl/l/2612347)
+  > De relatie tussen Europa en de Verenigde Staten is belangrijker dan ooit, zei koning Charles in zijn toespraak in het Amerikaanse Congres.
+       ...
+- [Oud-FBI-directeur Comey opnieuw aangeklaagd, dit keer om 'schelpendoodsbedreiging'](https://nos.nl/l/2612346)
+  > Het Amerikaanse ministerie van Justitie heeft oud-FBI directeur James Comey opnieuw aangeklaagd. Hij wordt beschuldigd van het bedreigen met de dood...
+- [Kartelbaas 'de Tuinman' opgepakt bij militaire operatie in Mexico](https://nos.nl/l/2612343)
+  > Mexicaanse militairen hebben Audias Flores Silva, een van de hoogstgeplaatste leiders van het Jaliscokartel (CJNG), maandag opgepakt bij een operatie...
 - [Archeoloog, journalist en andere gevangenen uitgeruild door Polen en Belarus](https://nos.nl/l/2612338)
-  > Belarus en Polen hebben gevangenen geruild. Onder anderen een Russische architect werd vrijgelaten uit een Poolse gevangenis. De Belarussische...
+  > Belarus en Polen hebben gevangenen geruild. Onder anderen een Russische archeoloog werd vrijgelaten uit een Poolse gevangenis. De Belarussische...
 - [Prinsessen droegen tas van Libanese ontwerper: 'Erkenning voor onze inspanningen'](https://nos.nl/l/2612335)
   > De trendwatchers zagen het gisteren meteen: prinses Amalia kwam naar Dokkum met een opvallend tasje. Het was een gouden clutch bag met parkietjes van...
-- [Grote brand in Haagse duinen, NL Alert om gebied te verlaten](https://nos.nl/l/2612333)
-  > In de duinen van Den Haag woedt een grote brand. De brandweer is met tientallen voertuigen aanwezig om het vuur te blussen. Er is een NL-Alert...
-- [Chipsoft: alle gestolen data van ransomware-aanval vernietigd](https://nos.nl/l/2612332)
-  > De patiëntgegevens die begin deze maand werden gestolen bij softwareleverancier Chipsoft zijn vernietigd. Dat meldt het bedrijf in een verklaring....
-- [Overwerk als oplossing voor arbeidstekort, Japan kiest voor soepelere regels](https://nos.nl/l/2612330)
-  > Het Japanse kabinet wil de arbeidsregels in Japan flink versoepelen. Door overwerk te stimuleren, hoopt het kabinet groeiende personeelstekorten op...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Spektakel in halve finale: Olise pegelt bal tegen touwen en maakt gelijk voor Bayern tegen PSG](https://www.ad.nl/voetbal/spektakel-in-halve-finale-olise-pegelt-bal-tegen-touwen-en-maakt-gelijk-voor-bayern-tegen-psg~a67161fb/)
-  > De eerste halve finale van de Champions League is een ware kraker. Titelhouder Paris Saint-Germain neemt het in eigen huis op tegen Bayern München....
-- [Voormalig FBI-directeur James Comey opnieuw aangeklaagd, volgens CNN vanwege ‘schelpenfoto’](https://www.ad.nl/buitenland/voormalig-fbi-directeur-james-comey-opnieuw-aangeklaagd-volgens-cnn-vanwege-schelpenfoto~a18dccf8/)
-  > Voormalig FBI-directeur James Comey is opnieuw aangeklaagd, meldden Amerikaanse media. Volgens CNN vanwege een foto van schelpen die de...
+- [Voetbal op z'n mooist! PSG en Bayern scoren samen negen keer, Parijzenaars met één doelpunt meer in de tas naar München](https://www.ad.nl/voetbal/voetbal-op-z-n-mooist-psg-en-bayern-scoren-samen-negen-keer-parijzenaars-met-een-doelpunt-meer-in-de-tas-naar-munchen~a67161fb/)
+  > Er gaan mensen naar Parijs om in het Louvre de Mona Lisa te bekijken. Maar inmiddels is Paris Saint-Germain ook een soort kunstvorm die in de stad is...
+- [Vrolijke Renault Twingo blijkt serieuze prijsvechter](https://www.ad.nl/auto/vrolijke-renault-twingo-blijkt-serieuze-prijsvechter~a394a60f/)
+  > De kleine Renault Twingo was 30 jaar geleden een hit door zijn vrolijke uiterlijk, slimme indeling en verrassend grote interieurruimte. Nu is hij...
+- [Nieuw album Ariana Grande komt op 31 juli uit](https://www.ad.nl/show/nieuw-album-ariana-grande-komt-op-31-juli-uit~ac36d421e/)
+  > Ariana Grande brengt op 31 juli haar nieuwe album Petal uit. Dat maakte de zangeres bekend op Instagram. Grande schreef het album samen met de...
+- [Voormalig FBI-directeur Comey aangeklaagd voor bedreigen president Trump ‘via schelpenfoto’](https://www.ad.nl/buitenland/voormalig-fbi-directeur-comey-aangeklaagd-voor-bedreigen-president-trump-via-schelpenfoto~a18dccf8/)
+  > Voormalig FBI-directeur James Comey is opnieuw aangeklaagd, meldden Amerikaanse media. Hij is aangeklaagd voor het bedreigen van president Donald...
 - [Nieuwe regel: spelers die discrimineren met hand voor mond krijgen op WK rood](https://www.ad.nl/voetbal/nieuwe-regel-spelers-die-discrimineren-met-hand-voor-mond-krijgen-op-wk-rood~a46a476c/)
   > Voetballers die hun mond met een hand bedekken om discriminerend gedrag te verbergen, krijgen op het WK rood. De internationale spelregelorganisatie...
-- [Reddingsteam vervoert bultrug Timmy in waterbak naar Noordzee](https://www.ad.nl/buitenland/reddingsteam-vervoert-bultrug-timmy-in-waterbak-naar-noordzee~a407b26f/)
-  > Bultrug Timmy, die weken vastlag voor de kust van Duitsland, is onderweg naar de Noordzee. Hij ligt in de waterbak van een schip en wordt naar diepe...
-- [Kitesurfer overleden na harde val op Tjeukemeer bij Delfstrahuizen](https://www.ad.nl/binnenland/kitesurfer-overleden-na-harde-val-op-tjeukemeer-bij-delfstrahuizen~aafc6ef8/)
-  > Op het water bij het Friese Delfstrahuizen is dinsdagavond een kitesurfer overleden. De politie laat weten dat de man hard ten val is gekomen en dat...
 
 ### Meest gelezen
 
@@ -46,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Nieuwe vlaag AI-zorgen op Wall Street](https://fd.nl/financiele-markten/1594547/nieuwe-vlaag-ai-zorgen-op-wall-street)
+  > Na slecht nieuws over OpenAI, dat zelf niet beursgenoteerd is, daalden de koersen van techbedrijven die deals hebben met de AI-pionier.
 - [Spotify’s verwachtingen voor tweede kwartaal stellen beleggers teleur](https://fd.nl/bedrijfsleven/1594631/spotifys-verwachtingen-voor-tweede-kwartaal-stellen-beleggers-teleur)
   > Wel wist het muziekplatform meer actieve luisteraars en betalende abonnees te trekken in het eerste kwartaal.
 - [EQT haalt €3,1 mrd op voor Europees vastgoedfonds](https://fd.nl/bedrijfsleven/1594630/eqt-haalt-3-1-mrd-op-voor-europees-vastgoedfonds)
@@ -54,8 +57,6 @@
   > Als bedrijven als Meta, TikTok en Google niet vrijwillig actie ondernemen tegen criminaliteit via hun sociale media, moeten strengere Europese regels...
 - [Estland en Finland: ‘Amerikaanse defensieleveringen vertraagd door Iran-oorlog’](https://fd.nl/politiek/1594629/estland-en-finland-amerikaanse-defensieleveringen-vertraagd-door-iran-oorlog)
   > Estland moet langer wachten op de levering van materieel voor het Himars-raketsysteem.
-- [Voormalig HAL-bestuurder Martijn van der Vorm overleden](https://fd.nl/samenleving/1594626/voormalig-hal-bestuurder-martijn-van-der-vorm-overleden)
-  > Van der Vorm was veertig jaar verbonden aan HAL, waarvan 21 jaar als voorzitter van de raad van bestuur. Tot zijn afscheid in mei 2025 was hij...
 
 ### Meest gelezen
 
