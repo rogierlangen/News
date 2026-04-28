@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-04-2026 om 15:29*
+*Laatst bijgewerkt: 28-04-2026 om 17:49*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Man vast in onderzoek bomaanslag Noord-Ierland, New IRA eist terreurdaad op](https://nos.nl/l/2612307)
-  > In Noord-Ierland is een 66-jarige man opgepakt op verdenking van betrokkenheid bij de aanslag die zondag werd gepleegd met een autobom. De politie...
-- [Grote zorgen over lot gevangenen en terdoodveroordeelden Iran](https://nos.nl/l/2612303)
-  > 18 jaar was de Iraanse zanger Amirhoessein Hatami, toen hij op 12 april werd geëxecuteerd. Jeugdkampioen worstelen Saleh Mohammadi was een jaar...
-- [Verenigde Arabische Emiraten stappen uit oliekartel OPEC](https://nos.nl/l/2612297)
-  > De Verenigde Arabische Emiraten stappen uit de OPEC. Met ingang van 1 mei, komende vrijdag dus, verlaat het land het oliekartel. Ook aan de...
-- [Zelensky veroordeelt Israël voor aankoop gestolen graan van Rusland](https://nos.nl/l/2612289)
-  > De Oekraïense president Zelensky veroordeelt Israël voor het kopen van graan dat Rusland heeft gestolen uit Oekraïne. In een bericht op X schrijft...
-- [Celstraf van 17 jaar voor doden moeder in Landsmeer](https://nos.nl/l/2612287)
-  > De rechtbank in Amsterdam heeft een 33-jarige man uit Landsmeer veroordeeld tot zeventien jaar cel voor het doden van zijn moeder en het wegmaken van...
+- [Overwerk als oplossing voor arbeidstekort, Japan kiest voor soepelere regels](https://nos.nl/l/2612330)
+  > Het Japanse kabinet wil de arbeidsregels in Japan flink versoepelen. Door overwerk te stimuleren, hoopt het kabinet groeiende personeelstekorten op...
+- [Google en Pentagon sluiten AI-deal, zorgen bij deel personeel](https://nos.nl/l/2612327)
+  > AI-modellen van Google kunnen gebruikt gaan worden voor geheime militaire informatie van het Amerikaanse leger. Het bedrijf heeft daarvoor een deal...
+- [Reddingspoging bultrug Timmy aan de gang, nog lange weg te gaan](https://nos.nl/l/2612325)
+  > In Duitsland is de ultieme reddingsactie aan de gang voor bultrug Timmy. Het dier zit al weken vast voor de Duitse Oostzeekust. Sinds begin maart is...
+- [Grote politieactie tegen Hells Angels in Duitsland, lokale club verboden](https://nos.nl/l/2612324)
+  > De Duitse politie heeft vanochtend met 1200 man invallen gedaan bij leden van Hells Angels. Op tientallen adressen in de deelstaat...
+- [Opnieuw ramt auto de gevel van Olga en Aad: 'Kregen hartverzakking'](https://nos.nl/l/2612317)
+  > De woning in Breda waar gisteravond een auto naar binnen reed, is al eens eerder geraakt bij een vergelijkbaar ongeluk. Ook toen richtte een auto een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tadej Pogacar verslagen in ultrakorte proloog Ronde van Romandië, Fransman pakt eerste leiderstrui](https://www.ad.nl/wielrennen/tadej-pogacar-verslagen-in-ultrakorte-proloog-ronde-van-romandie-fransman-pakt-eerste-leiderstrui~a071fce1/)
-  > Dorian Godon heeft de proloog in de Ronde van Romandië gewonnen. De Fransman van INEOS Grenadiers werkte het parkoers van slechts 3,2 kilometer het...
-- [Is de zomerhit van 2026 al bekend? Opnieuw massaal meegezongen met Nederlandse volkszanger](https://www.ad.nl/show/is-de-zomerhit-van-2026-al-bekend-opnieuw-massaal-meegezongen-met-nederlandse-volkszanger~a02e3bd6/)
-  > Krijgen Mart Hoogkamer, Marco Schuitmaker en Yves Berendse deze zomer een opvolger? Daar heeft het alle schijn van. Justen de Wildt speelt namelijk...
-- [Volop afval en veel braaksel: schoonmakers NS krijgen ‘vervelende verrassing’ na Koningsdag](https://www.ad.nl/binnenland/volop-afval-en-veel-braaksel-schoonmakers-ns-krijgen-vervelende-verrassing-na-koningsdag~a46893a1/)
-  > Het ‘uitbundig vieren’ van Koningsdag heeft voor veel achtergelaten afval gezorgd in treinen, meldt de NS. De treinvervoerder besloot in de nacht van...
-- [Rechter schrapt boete na blik op Google Street View: moet je voortaan eerst op Google kijken voordat je betaalt?](https://www.ad.nl/amersfoort/rechter-schrapt-boete-na-blik-op-google-street-view-moet-je-voortaan-eerst-op-google-kijken-voordat-je-betaalt~a1227074c/)
-  > De herkenbare envelop valt op de mat en veel mensen weten genoeg: een boete. Dat overkwam ook een bestuurder in mei 2024 na een snelheidsovertreding...
-- [Duitse bondscoach maakt selectie later bekend, FIFA voert extra moment in om gele kaarten te schrappen](https://www.ad.nl/wk-voetbal/duitse-bondscoach-maakt-selectie-later-bekend-fifa-voert-extra-moment-in-om-gele-kaarten-te-schrappen~a61805da/)
-  > Over minder dan vijftig dagen begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste...
+- [Wessel Nijman wint Nederlands onderonsje in finale en verovert zijn vijfde PDC-titel van het jaar](https://www.ad.nl/darts/wessel-nijman-wint-nederlands-onderonsje-in-finale-en-verovert-zijn-vijfde-pdc-titel-van-het-jaar~af01c8d61/)
+  > Wessel Nijman is bezig aan een uitstekend 2026. De 25-jarige Nederlandse darter won dinsdag Players Championship 12. Hij versloeg landgenoot Jermaine...
+- [ChipSoft meldt dat gestolen patiëntgegevens na hack zijn vernietigd](https://www.ad.nl/binnenland/chipsoft-meldt-dat-gestolen-patientgegevens-na-hack-zijn-vernietigd~a2d420232/)
+  > De patiëntengegevens die zijn gestolen bij de hack op softwareleverancier ChipSoft zijn nergens gepubliceerd en de gegevens zijn inmiddels...
+- [Meet de politie met twee maten? Gelukkig wel](https://www.ad.nl/commentaar/meet-de-politie-met-twee-maten-gelukkig-wel~a10922ae/)
+  > De politie probeerde in Loosdrecht én op de A12 precies te doen wat de situatie vraagt, schrijft Hans Nijenhuis in dit commentaar.
+- [‘Daar moet een vent overheen’: huisarts op non-ac­tief nadat hij seksuele opmerkingen zou hebben gemaakt](https://www.ad.nl/binnenland/daar-moet-een-vent-overheen-huisarts-op-non-actief-nadat-hij-seksuele-opmerkingen-zou-hebben-gemaakt~a3b26f50/)
+  > „Zit je niet lekker in je vel? Dan moet er maar een vent overheen.” Een huisarts van Huisartsenpost Midden-Holland in Gouda zou voor een onveilige...
+- [Gerard is klaar met reallifesoap, Emma deelt emotionele post over Jade](https://www.ad.nl/show/gerard-is-klaar-met-reallifesoap-emma-deelt-emotionele-post-over-jade~a5c9c70c/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Rapport: op Schiphol meer plekken nodig voor ijsvrij maken vliegtuigen na winterchaos](https://fd.nl/bedrijfsleven/1594618/rapport-op-schiphol-meer-plekken-nodig-voor-ijsvrij-maken-vliegtuigen-na-winterchaos)
-  > Er was te weinig ruimte om vliegtuigen ijsvrij te maken en de luchthaven schoot pas na vier dagen in een crisisstand, blijkt uit een evaluatie van...
-- [Deal of geen deal, de Straat van Hormuz is nog lang niet back in business](https://fd.nl/economie/1594514/deal-of-geen-deal-de-straat-van-hormuz-is-nog-lang-niet-back-to-business)
-  > De Straat van Hormuz zit potdicht, nu deze door zowel de VS als Iran geblokkeerd wordt. Maar ook als hij weer open is, kan het nog een tijd duren...
-- [Belasting op arbeid voor vierde jaar op rij toegenomen in Oeso-landen](https://fd.nl/politiek/1594616/belasting-op-arbeid-voor-vierde-jaar-op-rij-toegenomen-in-oeso-landen)
-  > Het oplopende verschil tussen totale loonkosten en het netto-inkomen staat haaks op pleidooien om arbeid goedkoper te maken.
-- [Zelensky boos op Israël wegens import van door Rusland ‘gestolen graan’](https://fd.nl/politiek/1594515/zelensky-boos-op-israel-wegens-import-van-door-rusland-gestolen-graan)
-  > Oekraïne bereidt sancties voor tegen personen die in beslag genomen graan uit de Oekraïense bezette gebieden vervoeren en naar andere landen...
-- [Amerikaanse overheid versterkt greep op voorspellingsbeurzen na voorkenniszaken](https://fd.nl/financiele-markten/1594513/amerikaanse-overheid-versterkt-greep-op-voorspellingsbeurzen-na-voorkenniszaken)
-  > Voorspellingsplatforms zoals Polymarket kregen tot nu toe ruim baan van de regering-Trump. Een aantal schandalen brengt daar verandering in.
+- [Voormalig HAL-bestuurder Martijn van der Vorm overleden](https://fd.nl/samenleving/1594626/voormalig-hal-bestuurder-martijn-van-der-vorm-overleden)
+  > Van der Vorm was veertig jaar verbonden aan HAL, waarvan 21 jaar als voorzitter van de raad van bestuur. Tot zijn afscheid in mei was hij...
+- [Minder goederen in haven van Antwerpen en Brugge door stakingen en winterweer](https://fd.nl/bedrijfsleven/1594625/minder-goederen-in-haven-van-antwerpen-en-brugge-door-stakingen-en-winterweer)
+  > De totale overslag kwam in het eerste kwartaal uit op 65,5 miljoen ton. Dat is een daling van 3,2% ten opzichte van dezelfde periode een jaar eerder....
+- [‘China start export brandstoffen weer op’](https://fd.nl/politiek/1594627/china-start-export-brandstoffen-weer-op)
+  > China zou vooral vliegtuigbrandstof willen leveren aan Aziatische landen waar de voorraden nu erg laag zijn.
+- [Shell koopt met miljardenovername in Canada de gewenste reserves in](https://fd.nl/bedrijfsleven/1594506/shell-koopt-met-miljardenovername-in-canada-de-gewenste-reserves-in)
+  > De grootste overname van Shell in tien jaar tijd valt goed bij analisten. Het bedrijf vult zo zijn oliereserves aan, die op de langere termijn op...
+- [Slechtste kwartaal in drie jaar voor Chinese autofabrikant BYD](https://fd.nl/bedrijfsleven/1594521/slechtste-kwartaal-in-drie-jaar-voor-chinese-autofabrikant-byd)
+  > Buiten China timmert de grootste elektrische-autobouwer ter wereld wel aan de weg. De export nam met 50% toe, mede door de hoge olieprijzen.
 
 ### Meest gelezen
 
