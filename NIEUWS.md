@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-04-2026 om 21:10*
+*Laatst bijgewerkt: 28-04-2026 om 22:59*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- ['Amerikaanse ambassadeur in Oekraïne stopt uit onvrede over Trumps beleid'](https://nos.nl/l/2612354)
+  > De waarnemend Amerikaanse ambassadeur in Oekraïne, Julie Davis, stopt. Dat doet ze uit onvrede over het buitenlandbeleid van president Donald Trump,...
 - [Koning Charles krijgt luid applaus in Congres, benoemt ook pijnpunten](https://nos.nl/l/2612347)
   > De relatie tussen Europa en de Verenigde Staten is belangrijker dan ooit, zei koning Charles in zijn toespraak in het Amerikaanse Congres.
        ...
@@ -17,8 +19,6 @@
   > Mexicaanse militairen hebben Audias Flores Silva, een van de hoogstgeplaatste leiders van het Jaliscokartel (CJNG), maandag opgepakt bij een operatie...
 - [Archeoloog, journalist en andere gevangenen uitgeruild door Polen en Belarus](https://nos.nl/l/2612338)
   > Belarus en Polen hebben gevangenen geruild. Onder anderen een Russische archeoloog werd vrijgelaten uit een Poolse gevangenis. De Belarussische...
-- [Prinsessen droegen tas van Libanese ontwerper: 'Erkenning voor onze inspanningen'](https://nos.nl/l/2612335)
-  > De trendwatchers zagen het gisteren meteen: prinses Amalia kwam naar Dokkum met een opvallend tasje. Het was een gouden clutch bag met parkietjes van...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Voetbal op z'n mooist! PSG en Bayern scoren samen negen keer, Parijzenaars met één doelpunt meer in de tas naar München](https://www.ad.nl/voetbal/voetbal-op-z-n-mooist-psg-en-bayern-scoren-samen-negen-keer-parijzenaars-met-een-doelpunt-meer-in-de-tas-naar-munchen~a67161fb/)
+- [Voetbalpodcast | ‘We hebben prachtige Champions League-duels dit seizoen, maar PSG-Bayern overtrof alles’](https://www.ad.nl/voetbal/voetbalpodcast-we-hebben-prachtige-champions-league-duels-dit-seizoen-maar-psg-bayern-overtrof-alles~ac8603a9/)
+  > De liefhebber van aanvallend voetbal komt dit seizoen in de Champions League behoorlijk aan zijn of haar trekken. Helemaal als Bayern München speelt....
+- [Harry Kane komt met opvallende conclusie na CL-spektakel: ‘De verdediging was uitstekend vandaag’](https://www.ad.nl/voetbal/harry-kane-komt-met-opvallende-conclusie-na-cl-spektakel-de-verdediging-was-uitstekend-vandaag~ad299823/)
+  > Spits Harry Kane had een bijzondere conclusie na de spectaculaire halve finale van de Champions League tegen Paris Saint-Germain. Bayern München ging...
+- [VS geeft paspoorten uit met groot portret van Trump ter ere van 250-jarig bestaan](https://www.ad.nl/buitenland/vs-geeft-paspoorten-uit-met-groot-portret-van-trump-ter-ere-van-250-jarig-bestaan~ae67dd9c/)
+  > Ter gelegenheid van het 250-jarig bestaan ​​van de Verenigde Staten zal dit jaar een reeks Amerikaanse paspoorten worden uitgegeven met een grote...
+- [Negen goals! PSG wint onvergetelijk duel met Bayern in Parijs, maar finaleplek in CL is nog verre van binnen](https://www.ad.nl/voetbal/negen-goals-psg-wint-onvergetelijk-duel-met-bayern-in-parijs-maar-finaleplek-in-cl-is-nog-verre-van-binnen~a67161fb/)
   > Er gaan mensen naar Parijs om in het Louvre de Mona Lisa te bekijken. Maar inmiddels is Paris Saint-Germain ook een soort kunstvorm die in de stad is...
 - [Vrolijke Renault Twingo blijkt serieuze prijsvechter](https://www.ad.nl/auto/vrolijke-renault-twingo-blijkt-serieuze-prijsvechter~a394a60f/)
   > De kleine Renault Twingo was 30 jaar geleden een hit door zijn vrolijke uiterlijk, slimme indeling en verrassend grote interieurruimte. Nu is hij...
-- [Nieuw album Ariana Grande komt op 31 juli uit](https://www.ad.nl/show/nieuw-album-ariana-grande-komt-op-31-juli-uit~ac36d421e/)
-  > Ariana Grande brengt op 31 juli haar nieuwe album Petal uit. Dat maakte de zangeres bekend op Instagram. Grande schreef het album samen met de...
-- [Voormalig FBI-directeur Comey aangeklaagd voor bedreigen president Trump ‘via schelpenfoto’](https://www.ad.nl/buitenland/voormalig-fbi-directeur-comey-aangeklaagd-voor-bedreigen-president-trump-via-schelpenfoto~a18dccf8/)
-  > Voormalig FBI-directeur James Comey is opnieuw aangeklaagd, meldden Amerikaanse media. Hij is aangeklaagd voor het bedreigen van president Donald...
-- [Nieuwe regel: spelers die discrimineren met hand voor mond krijgen op WK rood](https://www.ad.nl/voetbal/nieuwe-regel-spelers-die-discrimineren-met-hand-voor-mond-krijgen-op-wk-rood~a46a476c/)
-  > Voetballers die hun mond met een hand bedekken om discriminerend gedrag te verbergen, krijgen op het WK rood. De internationale spelregelorganisatie...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Nieuwe vlaag AI-zorgen op Wall Street](https://fd.nl/financiele-markten/1594547/nieuwe-vlaag-ai-zorgen-op-wall-street)
-  > Na slecht nieuws over OpenAI, dat zelf niet beursgenoteerd is, daalden de koersen van techbedrijven die deals hebben met de AI-pionier.
-- [Spotify’s verwachtingen voor tweede kwartaal stellen beleggers teleur](https://fd.nl/bedrijfsleven/1594631/spotifys-verwachtingen-voor-tweede-kwartaal-stellen-beleggers-teleur)
-  > Wel wist het muziekplatform meer actieve luisteraars en betalende abonnees te trekken in het eerste kwartaal.
-- [EQT haalt €3,1 mrd op voor Europees vastgoedfonds](https://fd.nl/bedrijfsleven/1594630/eqt-haalt-3-1-mrd-op-voor-europees-vastgoedfonds)
-  > De Zweedse private-equityfirma overtrof het doel van €2,5 mrd ruim.
-- [Sociale media moeten criminelen aanpakken, niet faciliteren](https://fd.nl/tech-en-innovatie/1594505/sociale-media-moeten-criminelen-aanpakken-niet-faciliteren)
-  > Als bedrijven als Meta, TikTok en Google niet vrijwillig actie ondernemen tegen criminaliteit via hun sociale media, moeten strengere Europese regels...
-- [Estland en Finland: ‘Amerikaanse defensieleveringen vertraagd door Iran-oorlog’](https://fd.nl/politiek/1594629/estland-en-finland-amerikaanse-defensieleveringen-vertraagd-door-iran-oorlog)
-  > Estland moet langer wachten op de levering van materieel voor het Himars-raketsysteem.
+- [Vermogensbeheerder Blue Owl weet beleggers aan boord te houden](https://fd.nl/financiele-markten/1594623/vermogensbeheerder-blue-owl-weet-beleggers-aan-boord-te-houden)
+  > Bedrijven die met grote kortingen beleggers proberen uit te kopen bij een fonds van vermogensbeheerder Blue Owl zijn hier niet in geslaagd. Minder...
+- [Slaap als de schoonmaakploeg na Koningsdag](https://fd.nl/opinie/1594599/slaap-als-de-schoonmaakploeg-na-koningsdag)
+  > Na een dag Koningsdagverdwazing staat de stad er ’s ochtends weer verrassend schoon bij. In je hoofd gebeurt elke nacht precies hetzelfde – als je...
+- [Deeltijdontslag](https://fd.nl/opinie/1594522/deeltijdontslag)
+  > De Commissie-Borstlap schreef in 2020 een rapport, met als kern: externe flexibiliteit inwisselen voor interne wendbaarheid. Van dat  idee is niets...
+- [Personalia woensdag 29 april](https://fd.nl/bedrijfsleven/1594628/personalia-woensdag-29-april)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Voedingsindustrie gaat dure energie voelen, consument betaalt](https://fd.nl/economie/1594517/voedingsindustrie-gaat-dure-energie-voelen-consument-betaalt)
+  > De sector is nog zeer afhankelijk van aardgas en andere fossiele brandstoffen, schrijven onderzoekers van ABN Amro in een woensdag verschenen rapport.
 
 ### Meest gelezen
 
