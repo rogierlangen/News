@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-04-2026 om 17:42*
+*Laatst bijgewerkt: 29-04-2026 om 19:42*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Plaquette onthuld, op Sicilië kennen ze Michiel de Ruyter nu ook](https://nos.nl/l/2612449)
+  > Precies 350 jaar nadat hij dodelijk gewond raakte bij een zeeslag is admiraal Michiel de Ruyter vandaag geëerd met een plaquette in de Italiaanse...
 - [Nederlandse kabinet maakt zich weinig zorgen om generaal pardon Spanje](https://nos.nl/l/2612442)
   > Het kabinet maakt zich weinig zorgen over het generaal pardon dat Spanje geeft aan immigranten zonder geldige papieren. In de Tweede Kamer zijn...
 - [Fossiele brandstoffen blijven op agenda na top Colombia, denkt Van Veldhoven](https://nos.nl/l/2612440)
@@ -17,8 +19,6 @@
 - [Meer dan 800 kerken luidden klokken voor de Babayants in Kampen](https://nos.nl/l/2612436)
   > Meer dan 800 kerken verspreid over heel Nederland hebben vanmiddag vijf minuten lang de klokken geluid.
         De actie was bedoeld als...
-- [Dit is wat we nu weten over de brand op het militaire oefenterrein 't Harde](https://nos.nl/l/2612430)
-  > Op militair oefen- en schietterrein 't Harde op de Veluwe is aan het eind van de ochtend een grote brand ontstaan die nog steeds woedt. Het vuur is...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Brandweer slaat alarm na natuurbrand op de Veluwe: risico op onbeheersbare branden groeit](https://www.ad.nl/binnenland/brandweer-slaat-alarm-na-natuurbrand-op-de-veluwe-risico-op-onbeheersbare-branden-groeit~a3500a6b/)
-  > De natuur is op dit moment ‘extreem brandbaar’. Een vuurzee als in ’t Harde deze woensdag lijkt steeds minder uitzonderlijk te worden. Daarvoor...
-- [Te veel vitamines slikken kan gevaarlijk zijn, zo herken je wanneer je moet oppassen](https://www.ad.nl/gezond/te-veel-vitamines-slikken-kan-gevaarlijk-zijn-zo-herken-je-wanneer-je-moet-oppassen~a80611cf/)
-  > Voor meer energie, een betere weerstand of een stralende huid lijken vitamines een makkelijke oplossing. Maar werken ze echt? En zijn ze wel zo...
-- [Rookpluim natuurbrand Veluwe bereikt Engeland, luchtmacht breidt inzet blushelikopters uit](https://www.ad.nl/binnenland/rookpluim-natuurbrand-veluwe-bereikt-engeland-luchtmacht-breidt-inzet-blushelikopters-uit~a474434b/)
-  > De rook van de grote natuurbrand op de Veluwe heeft ook Engeland bereikt. Op satellietbeelden is zichtbaar dat de rookpluim over Norwich trekt....
-- [Waarom de automobilist stiekem blij mag zijn met groen licht voor fietsers](https://www.ad.nl/commentaar/waarom-de-automobilist-stiekem-blij-mag-zijn-met-groen-licht-voor-fietsers~a83d9f1a/)
-  > Apps om verkeerslichten op groen te zetten zijn niet alleen gunstig voor fietsers, schrijft Hans Nijenhuis in dit commentaar.
-- [Talpa-baas John de Mol uitgeroepen tot invloedrijkste tv-maker](https://www.ad.nl/show/talpa-baas-john-de-mol-uitgeroepen-tot-invloedrijkste-tv-maker~a92997b6/)
-  > John de Mol is uitgeroepen tot de invloedrijkste tv-maker in de geschiedenis van de Nederlandse televisie. De Talpa-baas voert een lijst aan van 75...
+- [FIFA verhoogt premies na kritiek, Iraanse delegatie ziet af van FIFA-congres](https://www.ad.nl/wk-voetbal/fifa-verhoogt-premies-na-kritiek-iraanse-delegatie-ziet-af-van-fifa-congres~a61805da/)
+  > Over minder dan vijftig dagen begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste...
+- [Disney+ en Steven Spielberg werken aan serie over spookje Casper](https://www.ad.nl/show/disney-en-steven-spielberg-werken-aan-serie-over-spookje-casper~ae942a2b/)
+  > Disney+ werkt aan een nieuwe liveactionserie gebaseerd op de animatie rondom Casper the Friendly Ghost. Bij het project is Steven Spielberg betrokken...
+- [Atlético laat in eigen huis de bal aan Arsenal, beide ploegen zijn gevaarlijk](https://www.ad.nl/voetbal/atletico-laat-in-eigen-huis-de-bal-aan-arsenal-beide-ploegen-zijn-gevaarlijk~adad0c9e/)
+  > Arsenal maakt nog kans op de landstitel en hoopt natuurlijk ook de finale van de Champions League te bereiken. Wat kan de ploeg van Mikel Arteta op...
+- [Brian (39) vond knappe Kitty (40) via een app, maar schrok: ‘Als ik even niet appte, stuurde ze een vraagteken’](https://www.ad.nl/mezza/brian-39-vond-knappe-kitty-40-via-een-app-maar-schrok-als-ik-even-niet-appte-stuurde-ze-een-vraagteken~a274c0919/)
+  > Eerst kon Brian (39) zijn geluk niet op met Kitty (40). Pas later merkte hij hoe benauwend haar aandacht werd, vertelt hij in deze rubriek BV De...
+- [Omvang vuurzee Veluwe is 500 hectare, gelijk aan 700 voetbalvelden](https://www.ad.nl/binnenland/omvang-vuurzee-veluwe-is-500-hectare-gelijk-aan-700-voetbalvelden~a474434b/)
+  > De brandweer verwacht dat de natuurbrand op het militaire oefenterrein bij ‘t Harde niet verder uitbreidt. Dat zegt een woordvoerder van de...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [NXP Semiconductors stijgt op de Amerikaanse Nasdaq met 25% in waarde](https://fd.nl/financiele-markten/1594803/nxp-semiconductors-stijgt-op-de-amerikaanse-nasdaq-met-25-in-waarde)
-  > Het Nederlandse chipbedrijf NXP Semiconductors steeg woensdag op de Amerikaanse beurs Nasdaq met 25%, als gevolg van sterke kwartaalcijfers
-- [Russische economie kromp in het eerste kwartaal van dit jaar](https://fd.nl/economie/1594801/russische-economie-kromp-in-het-eerste-kwartaal-van-dit-jaar)
-  > De Russische olieverkopen leden tot en met februari nog onder westerse sancties. De groei in maart kwam uit op 1,8%.
-- [Export Amerikaanse olie bereikt recordhoogte](https://fd.nl/economie/1594903/export-amerikaanse-olie-bereikt-recordhoogte)
-  > De uitvoer is vorige week gestegen naar ruim zes miljoen vaten per dag, meldt persbureau Bloomberg.
-- [‘Europese kampioen’ in de maak: Finse liftenbouwer Kone slokt het Duitse TK Elevator op](https://fd.nl/bedrijfsleven/1594892/europese-kampioen-in-de-maak-finse-liftenbouwer-kone-slokt-het-duitse-tk-elevator-op)
-  > Met de overname wordt het Finse bedrijf een dominante speler in de sector. Brussel moet bepalen of de overname past binnen de nieuwe...
-- [Zonder de Opec verdwijnt de rem op de olieprijs, en dat is niet per se goed nieuws](https://fd.nl/economie/1594786/zonder-de-opec-verdwijnt-de-rem-op-de-olieprijs-en-dat-is-niet-per-se-goed-nieuws)
-  > Met het vertrek van de Verenigde Arabische Emiraten kalft de marktmacht van oliekartel Opec+ verder af. Of we daarmee blij moeten zijn, is maar de...
+- [UMG wil deel van zijn belang in Spotify verkopen](https://fd.nl/bedrijfsleven/1594906/umg-wil-deel-van-zijn-belang-in-spotify-verkopen)
+  > Het platenlabel gebruikt de opbrengst om meer eigen aandelen in te kopen.
+- [Bedenker van aandelenlease Piet Hein Bloemink (82) overleden](https://fd.nl/financiele-markten/1594904/bedenker-van-aandelenlease-piet-hein-bloemink-82-overleden)
+  > Dinsdag overleed Piet Hein Bloemink, uitvinder van de aandelenlease en de man achter Legio Lease.
+- [TotalEnergies profiteert van hoge olieprijs en koopt meer eigen aandelen](https://fd.nl/bedrijfsleven/1594793/totalenergies-profiteert-van-hoge-olieprijs-en-koopt-meer-eigen-aandelen)
+  > De winst van het Franse energiebedrijf TotalEnergies stijgt in eerste kwartaal.
+- [Powell blijft voorlopig in bestuur Fed en waarschuwt voor gevolgen Iran-oorlog](https://fd.nl/economie/1594905/fed-houdt-de-rente-gelijk-en-waarschuwt-voor-gevolgen-iran-oorlog)
+  > Bij het laatste besluit onder Jerome Powell blijft de rente op hetzelfde niveau. De huidige Fed-voorzitter blijft voorlopig wel aan in het bestuur,...
+- [Handelstekort Hongkong loopt op tot hoogste punt sinds 1952](https://fd.nl/financiele-markten/1594796/handelstekort-hongkong-loopt-op-tot-hoogste-punt-sinds-1952)
+  > Onzekerheid stimuleert de Chinese import, die in veel gevallen loopt via Hongkong. Vooral telecomapparatuur is in trek.
 
 ### Meest gelezen
 
