@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-04-2026 om 07:25*
+*Laatst bijgewerkt: 29-04-2026 om 10:09*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Rotterdamse ondernemer en weldoener Martijn van der Vorm (67) overleden](https://nos.nl/l/2612383)
+  > De Rotterdamse ondernemer Martijn van der Vorm is op 67-jarige leeftijd overleden. Dat heeft investeringsmaatschappij HAL bekendgemaakt. De voormalig...
+- [Klimmers Mount Everest kunnen weer verder, ijsblok omzeild](https://nos.nl/l/2612377)
+  > Bergbeklimmers op de Mount Everest kunnen na twee weken oponthoud hun klim voortzetten. Een instabiel blok gletsjerijs belemmerde de tocht, maar een...
+- [Brussel berispt Meta om gebruik platforms door kinderen, miljardenboete dreigt](https://nos.nl/l/2612374)
+  > Meta, het Amerikaanse moederbedrijf van onder meer Facebook en Instagram, doet te weinig om te voorkomen dat kinderen onder de dertien jaar zijn...
 - [Burgemeester Roosendaal ernstig gewond na val van fiets](https://nos.nl/l/2612365)
   > De Roosendaalse burgemeester Mark Buijs (57) is gisteren ernstig gewond geraakt bij een verkeersongeluk in Zeeland. Volgens de gemeente is het...
 - [Oliecrisis in Azië door oorlog Midden-Oosten, 'kan leiden tot recessie'](https://nos.nl/l/2612360)
   > In Nederland zijn de prijzen aan de pomp flink opgelopen, maar in Azië leidt de blokkade van de Straat van Hormuz tot veel zwaardere gevolgen. Uit...
-- [Wekdienst 29/4: Gorinchem opnieuw naar de stembus • Tweede halve finale Champions League](https://nos.nl/l/2612359)
-  > Goedemorgen! In Gorinchem wordt vandaag opnieuw gestemd voor een nieuwe gemeenteraad: er waren signalen van stemfraude bij de vorige verkiezingen in...
-- [Politieke impasse Kosovo houdt aan: derde vervroegde verkiezing op rij](https://nos.nl/l/2612358)
-  > Voor de derde keer in een jaar tijd moet Kosovo naar de stembus, nadat het parlement er opnieuw niet in is geslaagd om tijdig een nieuwe president...
-- [Stemlokalen Gorinchem open, nog altijd vragen over verkiezingsfraude](https://nos.nl/l/2612357)
-  > Inwoners van Gorinchem mogen vandaag opnieuw naar de stembus voor de gemeenteraadsverkiezingen. Een meerderheid van de raad besloot vorige maand om...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nederlands minimumloon een van hoogste in EU, steeg afgelopen vijf jaar met 33 procent](https://www.ad.nl/economie/nederlands-minimumloon-een-van-hoogste-in-eu-steeg-afgelopen-vijf-jaar-met-33-procent~a4380a2f/)
-  > Bijna nergens in Europa ligt het minimumloon hoger dan in Nederland. Alleen in Luxemburg en Ierland is dat het geval. Het aantal mensen van 15 jaar...
-- [Winkelier Toon (84) strijdt voor zijn buurtsupertje: ‘Ze moeten me niet afschuiven’](https://www.ad.nl/binnenland/winkelier-toon-84-strijdt-voor-zijn-buurtsupertje-ze-moeten-me-niet-afschuiven~a4101af4/)
-  > Toon Stratman (84) heeft er oprecht buikpijn van. Zijn buurtwinkel in Eindhoven verpaupert: het dak lekt, er zit schimmel en de stoep ligt open. Maar...
-- [Geen ladder meer nodig: ondernemers Ruud en Peter laten ramen wassen door drone met hogedruk](https://www.ad.nl/binnenland/geen-ladder-meer-nodig-ondernemers-ruud-en-peter-laten-ramen-wassen-door-drone-met-hogedruk~a4f99134/)
-  > Bijna 2 meter breed is de drone. Vier rotoren moeten het 15 kilo zware apparaat straks de lucht in tillen. Een hogedrukspuit is onder de drone...
-- [Drukte op Veluwe loopt uit de hand: 12.000 voetbalvelden extra nodig vanwege toeristen en recreanten](https://www.ad.nl/binnenland/drukte-op-veluwe-loopt-uit-de-hand-12-000-voetbalvelden-extra-nodig-vanwege-toeristen-en-recreanten~a17a5bda/)
-  > Op de Veluwe is het vaak veel te druk en dat wordt alleen maar erger. Gemeenten en verschillende organisaties trekken daarover aan de bel. Om de...
-- ['Billie viert Willie': fans verbijsterd door shirt van zangeres bij viraal interview](https://www.ad.nl/show/billie-viert-willie-fans-verbijsterd-door-shirt-van-zangeres-bij-viraal-interview~a5eb0b22/)
-  > Is wereldster Billie Eilish (24) fan van onze Koningsdag? De zangeres vertelt interessante dingen in een nieuw interview met Elle, maar Nederlandse...
+- [Viktor Verhulst reageert met kwinkslag op bodyshaming: ‘Ik ben nu 24 uur aan het vasten’](https://www.ad.nl/show/viktor-verhulst-reageert-met-kwinkslag-op-bodyshaming-ik-ben-nu-24-uur-aan-het-vasten~ad2bbb3c/)
+  > Viktor Verhulst (31), de zoon van Gert Verhulst (58) is onlangs geconfronteerd met bodyshaming. Het is de eerste keer dat hem dat overkwam, vertelt...
+- [Trumps gezicht op Amerikaanse paspoorten: ‘Zolang de voorraad strekt’](https://www.ad.nl/buitenland/trumps-gezicht-op-amerikaanse-paspoorten-zolang-de-voorraad-strekt~af6ceea1/)
+  > De beeltenis van president Trump zal binnenkort op een aantal Amerikaanse paspoorten verschijnen. Dat hebben regeringsfunctionarissen laten weten aan...
+- [Voetbalwereld geniet na van waanzinnig duel in Parijs: ‘Knotsgek, weergaloos, adembenemend’](https://www.ad.nl/voetbal/voetbalwereld-geniet-na-van-waanzinnig-duel-in-parijs-knotsgek-weergaloos-adembenemend~a3c716aa/)
+  > De voetbalwereld raakt niet uitgesproken over het enorme spektakel in de halve finale van de Champions League. Paris Saint-Germain won het duel...
+- [Coureurs moeten rekening houden met regen en onweer tijdens GP van Miami](https://www.ad.nl/formule-1/coureurs-moeten-rekening-houden-met-regen-en-onweer-tijdens-gp-van-miami~ab65c26a/)
+  > Tijdens de Grand Prix in Miami kan het flink gaan regenen en onweren. Vooral op zondag kan het weer een belangrijke rol spelen tijdens de race,...
+- [Tijden GP van Miami | Max Verstappen deze week weer in actie tijdens sprintraceweekend in VS](https://www.ad.nl/formule-1/tijden-gp-van-miami-max-verstappen-deze-week-weer-in-actie-tijdens-sprintraceweekend-in-vs~ae174dcc/)
+  > Door de geschrapte races in Bahrein en Saoedi-Arabië heeft het Formule 1-seizoen een maand stilgelegen. Dit weekend pakken Max Verstappen en zijn...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [‘Europa zou een omgekeerde Opec moeten optuigen’](https://fd.nl/financiele-markten/1594432/europa-zou-een-omgekeerde-opec-moeten-optuigen)
+  > Als het aan econoom Isabella Weber ligt, bundelen kopers van olie hun krachten om een prijsplafond af te dwingen. Net zoals tijdens de Eerste...
+- [‘Gazumping’ is het nieuwe normaal bij het binnenhalen van traders](https://fd.nl/financiele-markten/1594003/gazumping-is-het-nieuwe-normaal-bij-het-binnenhalen-van-traders)
+  > De concurrentie tussen hedgefondsen is een salarisgoudmijn voor gewilde traders. De kosten van de opwaartse beloningsspiraal komen via ondoorzichtige...
+- [Picnic-cfo Pieter Everard: ‘Ik mail mezelf ’s nachts met ideeën’](https://fd.nl/samenleving/1594657/picnic-ceo-pieter-everard-ik-mail-mezelf-s-nachts-met-ideeen)
+  > Steeds positiever leren denken, niet meer alleen de grote lijnen zien: wat maken professionals mee in hun loopbaan? Deze week: Pieter Everard (1983),...
 - [Meta doet te weinig om kinderen van platforms te weren, meent Brussel](https://fd.nl/politiek/1594549/meta-doet-te-weinig-om-kinderen-van-platforms-te-weren-meent-brussel)
   > De Europese Commissie stelt dat het Amerikaanse technologiebedrijf de digitaledienstenwet (DSA) overtreedt met ontoereikende leeftijdsverificatie op...
 - [Booking verlaagt omzetprognose vanwege oorlog in Midden-Oosten](https://fd.nl/tech-en-innovatie/1594656/booking-verlaagt-omzetprognose-vanwege-oorlog-in-midden-oosten)
   > Het Amerikaanse moederbedrijf van Booking.com zegt dat de groei van het aantal boekingen lager ligt door de oorlog in het Midden-Oosten. De koers...
-- [Grote bedrijven zwakke plek in eerste kwartaal KPN](https://fd.nl/bedrijfsleven/1594550/grote-bedrijven-zwakke-plek-in-eerste-kwartaal-kpn)
-  > De omzet van KPN nam in het eerste kwartaal toe met 0,6%, waar dat in het vierde kwartaal van vorig jaar nog 2,7% was.
-- [Fit is het nieuwe statussymbool](https://fd.nl/samenleving/1594319/fit-is-het-nieuwe-statussymbool)
-  > Het echte statussymbool dezer dagen is een strak en gespierd lichaam, vooral voor vrouwen. ‘Je laat zo zien dat je tijd hebt; het échte teken van...
-- [Voormalig FBI-directeur Comey opnieuw aangeklaagd](https://fd.nl/politiek/1594655/voormalig-fbi-directeur-comey-opnieuw-aangeklaagd)
-  > De zaak draait om een foto die Comey in mei vorig jaar op Instagram plaatste. Op de foto zijn schelpen te zien die samen de nummers 86 en 47 vormen.
 
 ### Meest gelezen
 
