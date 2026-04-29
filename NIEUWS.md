@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-04-2026 om 00:02*
+*Laatst bijgewerkt: 29-04-2026 om 04:31*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- ['Amerikaanse ambassadeur in Oekraïne stopt uit onvrede over Trumps beleid'](https://nos.nl/l/2612354)
-  > De waarnemend Amerikaanse ambassadeur in Oekraïne, Julie Davis, stopt. Dat doet ze uit onvrede over het buitenlandbeleid van president Donald Trump,...
-- [Koning Charles krijgt luid applaus in Congres, benoemt ook pijnpunten](https://nos.nl/l/2612347)
-  > De relatie tussen Europa en de Verenigde Staten is belangrijker dan ooit, zei koning Charles in zijn toespraak in het Amerikaanse Congres.
-       ...
-- [Oud-FBI-directeur Comey opnieuw aangeklaagd, dit keer om 'schelpendoodsbedreiging'](https://nos.nl/l/2612346)
-  > Het Amerikaanse ministerie van Justitie heeft oud-FBI directeur James Comey opnieuw aangeklaagd. Hij wordt beschuldigd van het bedreigen met de dood...
-- [Kartelbaas 'de Tuinman' opgepakt bij militaire operatie in Mexico](https://nos.nl/l/2612343)
-  > Mexicaanse militairen hebben Audias Flores Silva, een van de hoogstgeplaatste leiders van het Jaliscokartel (CJNG), maandag opgepakt bij een operatie...
-- [Archeoloog, journalist en andere gevangenen uitgeruild door Polen en Belarus](https://nos.nl/l/2612338)
-  > Belarus en Polen hebben gevangenen geruild. Onder anderen een Russische archeoloog werd vrijgelaten uit een Poolse gevangenis. De Belarussische...
+- [Wekdienst 29/4: Gorinchem opnieuw naar de stembus • Tweede halve finale Champions League](https://nos.nl/l/2612359)
+  > Goedemorgen! In Gorinchem wordt vandaag opnieuw gestemd voor een nieuwe gemeenteraad: er waren signalen van stemfraude bij de vorige verkiezingen in...
+- [Politieke impasse Kosovo houdt aan: derde vervroegde verkiezing op rij](https://nos.nl/l/2612358)
+  > Voor de derde keer in een jaar tijd moet Kosovo naar de stembus, nadat het parlement er opnieuw niet in is geslaagd om tijdig een nieuwe president...
+- [Gorinchem gaat weer naar de stembus, nog altijd vragen over verkiezingsfraude](https://nos.nl/l/2612357)
+  > Inwoners van Gorinchem mogen vandaag opnieuw naar de stembus voor de gemeenteraadsverkiezingen. Een meerderheid van de raad besloot vorige maand om...
+- [Europees klimaatrapport: heet en droog 2025 leidde tot grote natuurbranden](https://nos.nl/l/2612356)
+  > Het was een heet en droog jaar in Europa. Een nieuw rapport laat zien dat 2025 in het noordwestelijke en centrale deel van Europa een van de tien...
+- [Beeltenis Trump duikt nu ook op op speciale Amerikaanse paspoorten](https://nos.nl/l/2612355)
+  > Amerikaanse aanhangers van de regering-Trump kunnen binnenkort rondreizen met een paspoort voorzien van een beeltenis van de president. Ter...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hoogste Amerikaanse diplomaat in Oekraïne stapt op vanwege Trump](https://www.ad.nl/buitenland/hoogste-amerikaanse-diplomaat-in-oekraine-stapt-op-vanwege-trump~adfb97be/)
-  > De hoogste Amerikaanse diplomaat in Oekraïne, zaakgelastigde Julie Davis, vertrekt vanwege een meningsverschil met president Donald Trump, meldt de...
-- [Cara Delevingne voor het eerst op solotournee met haar muziek](https://www.ad.nl/show/cara-delevingne-voor-het-eerst-op-solotournee-met-haar-muziek~a534bb4e/)
-  > De Britse actrice Cara Delevingne gaat op solotour met haar aankomende muziek. Delevingne staat in juni in onder meer Parijs, Berlijn en New York,...
-- [Voetbalpodcast | ‘We hebben prachtige Champions League-duels dit seizoen, maar PSG-Bayern overtrof alles’](https://www.ad.nl/voetbal/voetbalpodcast-we-hebben-prachtige-champions-league-duels-dit-seizoen-maar-psg-bayern-overtrof-alles~ac8603a9/)
-  > De liefhebber van aanvallend voetbal komt dit seizoen in de Champions League behoorlijk aan zijn of haar trekken. Helemaal als Bayern München speelt....
-- [Harry Kane komt met opvallende conclusie na CL-spektakel: ‘De verdediging was uitstekend vandaag’](https://www.ad.nl/voetbal/harry-kane-komt-met-opvallende-conclusie-na-cl-spektakel-de-verdediging-was-uitstekend-vandaag~ad299823/)
-  > Spits Harry Kane had een bijzondere conclusie na de spectaculaire halve finale van de Champions League tegen Paris Saint-Germain. Bayern München ging...
-- [VS geeft paspoorten uit met groot portret van Trump ter ere van 250-jarig bestaan](https://www.ad.nl/buitenland/vs-geeft-paspoorten-uit-met-groot-portret-van-trump-ter-ere-van-250-jarig-bestaan~ae67dd9c/)
-  > Ter gelegenheid van het 250-jarig bestaan ​​van de Verenigde Staten zal dit jaar een reeks Amerikaanse paspoorten worden uitgegeven met een grote...
+- [Van trots van vier pagina’s onder ‘Woeste Willem’ naar miljoenen kijkers, luisteraars en lezers per dag](https://www.ad.nl/binnenland/van-trots-van-vier-paginas-onder-woeste-willem-naar-miljoenen-kijkers-luisteraars-en-lezers-per-dag~ae5aa492/)
+  > Het AD bestaat 80 jaar. Daar zijn we als redactie best trots op. En dat moet worden gevierd – dat zou Willem Pluygers, de man die de krant net na de...
+- [Bizarre camper met Volvo als basis is duurste kampeerauto ter wereld](https://www.ad.nl/auto/bizarre-camper-met-volvo-als-basis-is-duurste-kampeerauto-ter-wereld~a2cbcac6/)
+  > De duurste camper ter wereld is een rijdend paleis, gebouwd op een Volvo-chassis. Het prijskaartje overtreft dat van menig luxe villa.
+- [Amerikaanse imker zet zwerm bijen in tegen huisuitzetting van zieke vriend: zes maanden cel](https://www.ad.nl/buitenland/amerikaanse-imker-zet-zwerm-bijen-in-tegen-huisuitzetting-van-zieke-vriend-zes-maanden-cel~a7a4a7c9/)
+  > Een zwerm bijen als wapen tegen een huisuitzetting. Het klinkt als een bizar filmplot, maar de Amerikaanse imker Rebecca Woods deed het echt. Haar...
+- [Kelly wilde moeder worden, maar kreeg geen kind: ‘Het was als een bingo, waarbij mijn nummers niet vielen’](https://www.ad.nl/binnenland/kelly-wilde-moeder-worden-maar-kreeg-geen-kind-het-was-als-een-bingo-waarbij-mijn-nummers-niet-vielen~a8563c6f/)
+  > Kelly van Goens wist lange tijd niet waar ze wilde wonen of wat voor werk ze wilde doen. Maar ze wist wel heel zeker dat ze moeder wilde worden. Wat...
+- [Gorinchem stemt vandaag opnieuw na vermoedelijke fraude bij verkiezingen, lagere opkomst verwacht](https://www.ad.nl/binnenland/gorinchem-stemt-vandaag-opnieuw-na-vermoedelijke-fraude-bij-verkiezingen-lagere-opkomst-verwacht~ab732f46/)
+  > Gorinchem schrijft vandaag geschiedenis: 31.007 kiesgerechtigden in die gemeente mogen opnieuw stemmen voor een nieuwe gemeenteraad. De uitslag van...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Jan Jaap van der Wal: ‘België gaf mij nieuwe adem’](https://fd.nl/samenleving/1594316/jan-jaap-van-der-wal-belgie-gaf-mij-nieuwe-adem)
+  > Jan Jaap van der Wal wist in Nederland ‘even niet meer hoe het verder moest’. In België verwierf hij succes. ‘Ik durf dingen aan te kaarten die de...
+- [Evelyn Austin: ‘De rechtszaak tegen Meta is uit pure kwaadheid geboren’](https://fd.nl/tech-en-innovatie/1594019/evelyn-austin-de-rechtszaak-tegen-meta-is-uit-pure-kwaadheid-geboren)
+  > De directeur van Bits of Freedom was al gaan geloven in de onaantastbaarheid van big tech. Tot ze de advocaten van Meta in de rechtszaal zag zitten.
+- [Waarom blijft de belasting op arbeid maar stijgen?](https://fd.nl/economie/1594622/waarom-blijft-de-belasting-op-arbeid-maar-stijgen)
+  > Vandaag in de FD Dagkoers: de belastingdruk op arbeid neemt toe, de zoektocht naar miljoeneninvesteringen in de glastuinbouw en hoeveel olietankers...
+- [Europa warmt sneller op dan de rest van de wereld – met meer bosbranden en ijsverlies tot gevolg](https://fd.nl/samenleving/1594609/europa-warmt-sneller-op-dan-de-rest-van-de-wereld-met-meer-bosbranden-en-ijsverlies-tot-gevolg)
+  > Europa moet meer doen om zich te beschermen tegen de gevolgen van klimaatverandering, waarschuwen onderzoekers in een nieuw rapport.
 - [Vermogensbeheerder Blue Owl weet beleggers aan boord te houden](https://fd.nl/financiele-markten/1594623/vermogensbeheerder-blue-owl-weet-beleggers-aan-boord-te-houden)
   > Bedrijven die met grote kortingen beleggers proberen uit te kopen bij een fonds van vermogensbeheerder Blue Owl zijn hier niet in geslaagd. Minder...
-- [Slaap als de schoonmaakploeg na Koningsdag](https://fd.nl/opinie/1594599/slaap-als-de-schoonmaakploeg-na-koningsdag)
-  > Na een dag Koningsdagverdwazing staat de stad er ’s ochtends weer verrassend schoon bij. In je hoofd gebeurt elke nacht precies hetzelfde – als je...
-- [Deeltijdontslag](https://fd.nl/opinie/1594522/deeltijdontslag)
-  > De Commissie-Borstlap schreef in 2020 een rapport, met als kern: externe flexibiliteit inwisselen voor interne wendbaarheid. Van dat  idee is niets...
-- [Personalia woensdag 29 april](https://fd.nl/bedrijfsleven/1594628/personalia-woensdag-29-april)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Voedingsindustrie gaat dure energie voelen, consument betaalt](https://fd.nl/economie/1594517/voedingsindustrie-gaat-dure-energie-voelen-consument-betaalt)
-  > De sector is nog zeer afhankelijk van aardgas en andere fossiele brandstoffen, schrijven onderzoekers van ABN Amro in een woensdag verschenen rapport.
 
 ### Meest gelezen
 
