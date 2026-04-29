@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-04-2026 om 22:59*
+*Laatst bijgewerkt: 29-04-2026 om 00:02*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Hoogste Amerikaanse diplomaat in Oekraïne stapt op vanwege Trump](https://www.ad.nl/buitenland/hoogste-amerikaanse-diplomaat-in-oekraine-stapt-op-vanwege-trump~adfb97be/)
+  > De hoogste Amerikaanse diplomaat in Oekraïne, zaakgelastigde Julie Davis, vertrekt vanwege een meningsverschil met president Donald Trump, meldt de...
+- [Cara Delevingne voor het eerst op solotournee met haar muziek](https://www.ad.nl/show/cara-delevingne-voor-het-eerst-op-solotournee-met-haar-muziek~a534bb4e/)
+  > De Britse actrice Cara Delevingne gaat op solotour met haar aankomende muziek. Delevingne staat in juni in onder meer Parijs, Berlijn en New York,...
 - [Voetbalpodcast | ‘We hebben prachtige Champions League-duels dit seizoen, maar PSG-Bayern overtrof alles’](https://www.ad.nl/voetbal/voetbalpodcast-we-hebben-prachtige-champions-league-duels-dit-seizoen-maar-psg-bayern-overtrof-alles~ac8603a9/)
   > De liefhebber van aanvallend voetbal komt dit seizoen in de Champions League behoorlijk aan zijn of haar trekken. Helemaal als Bayern München speelt....
 - [Harry Kane komt met opvallende conclusie na CL-spektakel: ‘De verdediging was uitstekend vandaag’](https://www.ad.nl/voetbal/harry-kane-komt-met-opvallende-conclusie-na-cl-spektakel-de-verdediging-was-uitstekend-vandaag~ad299823/)
   > Spits Harry Kane had een bijzondere conclusie na de spectaculaire halve finale van de Champions League tegen Paris Saint-Germain. Bayern München ging...
 - [VS geeft paspoorten uit met groot portret van Trump ter ere van 250-jarig bestaan](https://www.ad.nl/buitenland/vs-geeft-paspoorten-uit-met-groot-portret-van-trump-ter-ere-van-250-jarig-bestaan~ae67dd9c/)
   > Ter gelegenheid van het 250-jarig bestaan ​​van de Verenigde Staten zal dit jaar een reeks Amerikaanse paspoorten worden uitgegeven met een grote...
-- [Negen goals! PSG wint onvergetelijk duel met Bayern in Parijs, maar finaleplek in CL is nog verre van binnen](https://www.ad.nl/voetbal/negen-goals-psg-wint-onvergetelijk-duel-met-bayern-in-parijs-maar-finaleplek-in-cl-is-nog-verre-van-binnen~a67161fb/)
-  > Er gaan mensen naar Parijs om in het Louvre de Mona Lisa te bekijken. Maar inmiddels is Paris Saint-Germain ook een soort kunstvorm die in de stad is...
-- [Vrolijke Renault Twingo blijkt serieuze prijsvechter](https://www.ad.nl/auto/vrolijke-renault-twingo-blijkt-serieuze-prijsvechter~a394a60f/)
-  > De kleine Renault Twingo was 30 jaar geleden een hit door zijn vrolijke uiterlijk, slimme indeling en verrassend grote interieurruimte. Nu is hij...
 
 ### Meest gelezen
 
