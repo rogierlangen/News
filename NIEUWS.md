@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-04-2026 om 22:55*
+*Laatst bijgewerkt: 30-04-2026 om 23:56*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Jury Biënnale van Venetië treedt vlak voor kunstevenement af](https://nos.nl/l/2612584)
+  > De jury van de Biënnale van Venetië is slechts negen dagen voor de opening van het kunstevenement afgetreden. De vijfkoppige jury meldt het vertrek...
 - [Ruim drie jaar na inbraak keramiekmuseum komt verdachte voor de rechter](https://nos.nl/l/2612574)
   > Ruim drie jaar na de inbraak in Keramiekmuseum Princessehof in Leeuwarden, heeft de politie een verdachte opgepakt. De 22-jarige man uit Almere staat...
 - [Relatie VS en Duitsland bekoelt, Trump zinspeelt op afbouw troepen](https://nos.nl/l/2612573)
@@ -16,8 +18,6 @@
   > Na de grote natuurbrand op een militair oefenterrein bij 't Harde woensdag, braken er gisteren nog meer branden op een aantal plekken in het land...
 - [Miljardairszoon Ambani wil nijlpaarden van drugsbaron Escobar opvangen in India](https://nos.nl/l/2612570)
   > Anant Ambani wil tachtig nijlpaarden van de beruchte Colombiaanse drugsbaron Pablo Escobar opvangen in India. De zoon van de puissant rijke zakenman...
-- [Meta heft blokkade van queer sites deels weer op](https://nos.nl/l/2612566)
-  > Net zo plotseling als ze vorige week werden geblokkeerd, heeft techgigant Meta een aantal queer accounts teruggeplaatst. Zo zijn The Queer Agenda en...
 
 ### Meest gelezen
 
@@ -27,7 +27,9 @@
 
 ### Laatste nieuws
 
-- [Ondernemersorganisatie FME: Nederlandse tech­industrie heeft steeds meer last van handelsoorlog Trump](https://www.ad.nl/buitenland/ondernemersorganisatie-fme-nederlandse-techindustrie-heeft-steeds-meer-last-van-handelsoorlog-trump~ae67dd9c/)
+- [VS waarschuwen bondgenoten om geen steun te geven aan Gaza-flotilla](https://www.ad.nl/buitenland/vs-waarschuwen-bondgenoten-om-geen-steun-te-geven-aan-gaza-flotilla~ac528ac3/)
+  > De Verenigde Staten steunen Israël na het onderscheppen van de Global Sumud Flotilla, een vloot met humanitaire hulp voor Gaza, voor de kust van het...
+- [Ondernemers: Nederlandse techindustrie heeft steeds meer last van handelsoorlog Trump](https://www.ad.nl/buitenland/ondernemers-nederlandse-techindustrie-heeft-steeds-meer-last-van-handelsoorlog-trump~ae67dd9c/)
   > De Nederlandse technologische industrie heeft steeds meer last van de handelsoorlog die de Amerikaanse president Donald Trump vorig jaar ontketende....
 - [ING: huizenprijzen stijgen dit jaar niet verder door hoger woningaanbod](https://www.ad.nl/economie/ing-huizenprijzen-stijgen-dit-jaar-niet-verder-door-hoger-woningaanbod~a0863798/)
   > De huizenprijzen zullen naar verwachting de rest van dit jaar niet meer stijgen, voorspelt ING in een rapport over de woningmarkt. In de grote steden...
@@ -35,8 +37,6 @@
   > Danny Makkelie kreeg er in de Spaanse en Engelse media flink van langs de dag na Atlético Madrid-Arsenal. Maar was dat wel zo terecht vragen Etienne...
 - [Stand Premier League  | Michael van Gerwen nog altijd in top 4, maar Gian van Veen én Luke Humphries hijgen in de nek](https://www.ad.nl/darts/premier-league-speelschema-programma-uitslagen-stand~a9ae7647/)
   > De Premier League Darts is volop onderweg mét Michael van Gerwen en Gian van Veen. Bekijk hieronder de stand, alle uitslagen, het complete programma...
-- [Crystal Palace mede dankzij snelste Conference Lea­gue-goal ooit dicht bij finale, Emegha verliest met Strasbourg](https://www.ad.nl/voetbal/crystal-palace-mede-dankzij-snelste-conference-league-goal-ooit-dicht-bij-finale-emegha-verliest-met-strasbourg~a34436d2/)
-  > Crystal Palace heeft mede dankzij de snelste goal in de geschiedenis van de Conference League een grote stap gezet richting de finale. Sjachtar...
 
 ### Meest gelezen
 
