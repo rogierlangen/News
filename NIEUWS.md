@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-04-2026 om 10:09*
+*Laatst bijgewerkt: 30-04-2026 om 12:16*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Israël onderschept Gaza-flotilla voor kust van Kreta, ook Nederlanders aan boord](https://nos.nl/l/2612490)
-  > Israëlische troepen hebben een vloot van tientallen schepen onderschept voor de kust van het Griekse eiland Kreta. De boten, met aan boord ook een...
-- [Minister hoopt met 'startbanen' meer statushouders aan het werk te krijgen](https://nos.nl/l/2612489)
-  > In ruim tachtig gemeenten gaan nieuwkomers met een verblijfsvergunning hun inburgering combineren met werken. Minister Aartsen van Werk en...
-- [FNV: honderden ASML-medewerkers last van hoofdpijn en ademhalingsproblemen](https://nos.nl/l/2612488)
-  > Een groot deel van de ASML-medewerkers die in zogenoemde cleanrooms werken, ervaren gezondheidsklachten door het werken met een mondkapje op. Dat...
-- [Economie groeit amper, consumenten steeds voorzichtiger](https://nos.nl/l/2612480)
-  > De economie is in de eerste drie maanden van dit jaar amper gegroeid. Hoewel huishoudens nog wel bleven uitgeven, bleef de economische groei in de...
-- [Air France-KLM vreest miljarden extra kosten door hoge kerosineprijzen](https://nos.nl/l/2612478)
-  > Air France-KLM verwacht dit jaar veel meer kwijt te zijn aan brandstof dan vorig jaar. De luchtvaartmaatschappij denkt over heel 2026 bijna 8 miljard...
+- [Provincie Zeeland hoeft strandbezoekers niet extra te waarschuwen voor PFAS](https://nos.nl/l/2612510)
+  > De provincie Zeeland controleert zwemlocaties voldoende op PFAS en hoeft strandbezoekers niet extra te waarschuwen. Dat heeft de rechter bepaald in...
+- [België wil kernreactoren overnemen: ontmanteling gestaakt, oude reactoren open](https://nos.nl/l/2612507)
+  > België stopt per direct met de ontmanteling van de kerncentrales in het land. Het land is onderhandelingen gestart met energiebedrijf Engie om de...
+- [Lennard Swolfs nieuwe NOS-correspondent Israël en Palestijnse Gebieden](https://nos.nl/l/2612506)
+  > Lennard Swolfs (31) wordt de nieuwe correspondent voor de NOS in Israël en de Palestijnse Gebieden. Hij volgt per 1 juni Nasrah Habiballah op, die na...
+- [Brits parlement wil 25 miljoen pond extra uitgeven aan veiligheid Joodse gemeenschap](https://nos.nl/l/2612504)
+  > Het Britse parlement wil 25 miljoen pond extra uitgeven aan de veiligheid van de Joodse gemeenschap in het Verenigd Koninkrijk. Minister van...
+- [Wereldwijd gaat het slecht met persvrijheid, Nederland klimt wel een plekje](https://nos.nl/l/2612502)
+  > Het gaat slecht met de persvrijheid wereldwijd, blijkt uit de Persvrijheidsindex van Reporters without Borders (RSF). Nederland steeg wel een plek...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘Omstreden Russisch schip met gestolen Oekraïens graan wordt niet gelost in Israël’](https://www.ad.nl/buitenland/omstreden-russisch-schip-met-gestolen-oekraiens-graan-wordt-niet-gelost-in-israel~adfb97be/)
-  > Een lading graan die vermoedelijk afkomstig is uit bezet Oekraïens gebied wordt niet gelost in Israël. Oekraïne zegt dat het graan door Rusland is...
-- [Vrouw op Thaise luchthaven betrapt met dertig schildpadden onder haar kleding](https://www.ad.nl/buitenland/vrouw-op-thaise-luchthaven-betrapt-met-dertig-schildpadden-onder-haar-kleding~ad86581c/)
-  > Een vrouw heeft in Thailand geprobeerd met dertig schildpadden onder haar kleding een vlucht naar Taiwan te pakken. Ze werd op een luchthaven...
-- [Gedegradeerd Burnley moet op zoek naar nieuwe trainer, Stones vertrekt bij ManCity](https://www.ad.nl/voetbal/gedegradeerd-burnley-moet-op-zoek-naar-nieuwe-trainer-stones-vertrekt-bij-mancity~a35ea681/)
-  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
-- [Praat mee: ik wil best meer betalen voor water als ik lang mag blijven douchen](https://www.ad.nl/praat-mee/praat-mee-ik-wil-best-meer-betalen-voor-water-als-ik-lang-mag-blijven-douchen~ae252ecd/)
-  > Er dreigt zo’n groot tekort aan drinkwater te ontstaan dat consumenten er straks meer voor moeten betalen. In de Kwestie leggen we onze lezers...
-- [Oekraïense stad afgesloten van de buitenwereld: ‘Op straat liggen lichamen van soldaten’](https://www.ad.nl/buitenland/oekraiense-stad-afgesloten-van-de-buitenwereld-op-straat-liggen-lichamen-van-soldaten~a7d88d0e/)
-  > Ze bakt brood in een pan. Het water in de emmer bij de kachel is bevroren. In de straten liggen lichamen die door honden zijn aanvreten. Oleshky, een...
+- [Peter Pannekoek vervangt Dolf Jansen bij Spijkers met koppen: ‘Wees gerust, hij is niet dood’](https://www.ad.nl/show/peter-pannekoek-vervangt-dolf-jansen-bij-spijkers-met-koppen-wees-gerust-hij-is-niet-dood~a23c5b8b/)
+  > Peter Pannekoek vervangt Dolf Jansen zaterdag als presentator bij het radioprogramma Spijkers met koppen op NPO Radio 2. De cabaretier neemt de...
+- [Lennard Swolfs volgt Nasrah Habiballah op als NOS-correspondent in Israël en Palestijnse gebieden](https://www.ad.nl/binnenland/lennard-swolfs-volgt-nasrah-habiballah-op-als-nos-correspondent-in-israel-en-palestijnse-gebieden~a397e092/)
+  > De NOS heeft een nieuwe correspondent in Israël en de Palestijnse gebieden. Lennard Swolfs volgt Nasrah Habiballah op, die na drie jaar op de post...
+- [1,5 jaar nadat Patricia’s auto werd gestolen, is hij terecht dankzij speurwerk van Poolse politie](https://www.ad.nl/binnenland/1-5-jaar-nadat-patricias-auto-werd-gestolen-is-hij-terecht-dankzij-speurwerk-van-poolse-politie~a5e81139/)
+  > Anderhalf jaar heeft ze erop moeten wachten, maar nu is de gestolen auto van Patricia Hallegraeff terug. Dieven stalen haar voertuig op geraffineerde...
+- [Trump grapt over oren Nasa-baas: ‘Heb je die vraag gehoord? Met die prachtige oren van je?’](https://www.ad.nl/buitenland/trump-grapt-over-oren-nasa-baas-heb-je-die-vraag-gehoord-met-die-prachtige-oren-van-je~ac5183a9/)
+  > De Amerikaanse president Donald Trump is weer uit de bocht gevlogen. Deze keer gebeurde dat tijdens de ontvangst van de astronauten die eerder deze...
+- [Mathieu van der Poel gaat naar Tour de France en mikt op wereldtitel mountainbike](https://www.ad.nl/wielrennen/mathieu-van-der-poel-gaat-naar-tour-de-france-en-mikt-op-wereldtitel-mountainbike~a211c33b/)
+  > Mathieu van der Poel (31) rijdt deze zomer de Tour de France. Dat zei de Nederlandse wielrenner in een interview met de Spaanse sportkrant AS. Ook is...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Wij hebben niets te verbergen](https://fd.nl/opinie/1594497/wij-hebben-niets-te-verbergen)
+  > Met mijn man besprak ik aan het ontbijt de onmogelijkheid te verdwijnen, of alleen al anoniem te blijven in het digitale tijdperk. Pinnen, tanken,...
+- [Particulieren bezitten een derde van Nederland](https://fd.nl/samenleving/1594821/particulieren-bezitten-een-derde-van-nederland)
+  > Van wie is Nederland? Van 4,4 miljoen eigenaren, concludeert het Kadaster na onderzoek. De overheid bezit het grootste deel, gevolgd door...
+- [Bill Ackman is na teleurstellende beursgang nog lang geen Warren Buffett](https://fd.nl/financiele-markten/1594787/bill-ackman-is-nog-geen-warren-buffett)
+  > De beursgang van Pershing Square van woensdag op Wall Street was geen succes. Een gemiddelde belegger staat na een dag al 8,5% in de min.
+- [Rijksambtenaren krijgen toch loonsverhoging van 2,7%](https://fd.nl/politiek/1594968/rijksambtenaren-krijgen-toch-loonsverhoging-van-2-7)
+  > Na maanden van actie en stakingen ligt er een loonbod van 2,7% plus een eenmalige uitkering
 - [Het mysterie Adyen: succesvol en toch minder waard dan broertje Stripe](https://fd.nl/financiele-markten/1594805/het-mysterie-adyen-succesvol-en-toch-minder-waard-dan-broertje-stripe)
   > Stripe is bijna vijf keer zoveel waard als Adyen, terwijl de Amsterdammers meer omzet draaien. Met de aankoop van Talon.One zet Adyen een belangrijke...
-- [Waarom ik wel en niet in astrologie geloof](https://fd.nl/samenleving/1594777/waarom-ik-wel-en-niet-in-astrologie-geloof)
-  > Als je mensen opsluit in hokjes, kunnen ze er soms niet meer uit, ondervindt Joris van Os op een dramatisch reisje naar Amsterdam.
-- [Wat gebeurt er als de Verenigde Staten Israël dumpen?](https://fd.nl/opinie/1594507/wat-gebeurt-er-als-de-verenigde-staten-israel-dumpen)
-  > De oorlog met Iran en het geweld in Gaza versnellen een kentering in de VS. Als de Amerikaanse steun wegvalt, blijft voor Israël vooral één vraag...
-- [Hamburgers maken vleesvervangers volgens nieuwe methode](https://fd.nl/bedrijfsleven/1594480/met-een-restproduct-van-de-buren-maakt-microharvest-kippen-overbodig)
-  > De wereld hunkert naar vleesvervangers. De Hamburgse start-up Microharvest ontwikkelde een nieuw proces dat via fermentatie in recordtempo...
-- [Op lange termijn geen oliezorgen](https://fd.nl/financiele-markten/1594817/op-lange-termijn-geen-oliezorgen)
-  > Op korte termijn zal de olieprijs nog wel even hoog blijven, maar voor de periode daarna is het een heel ander verhaal, zegt FD-columnist Corné van...
 
 ### Meest gelezen
 
