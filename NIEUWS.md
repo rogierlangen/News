@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-04-2026 om 22:59*
+*Laatst bijgewerkt: 30-04-2026 om 00:02*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Ook korte tijd natuurbrand op militair oefenterrein in Assen, NL-alert verstuurd](https://nos.nl/l/2612462)
+  > Op een militair oefenterrein in Assen heeft gisteravond een natuurbrand gewoed. De heidebrand in natuurgebied Baggelhuizen nam op zijn hoogtepunt 50...
 - [Genomineerden beste journalistieke boek van het jaar bekend](https://nos.nl/l/2612461)
   > De kanshebbers voor de Brusseprijs voor het beste journalistieke boek van het jaar zijn bekend. De shortlist met vijf genomineerden werd op NPO Radio...
 - [Nationale strategie moet drinkwaterprobleem aanpakken](https://nos.nl/l/2612460)
   > Er moet een nationale aanpak komen zodat ook in de toekomst voldoende drinkwater beschikbaar is. Met dat advies komt de Raad voor de leefomgeving en...
 - [Weinig verschuivingen bij herverkiezingen, Democraten Gorinchem blijft grootste](https://nos.nl/l/2612459)
   > Bij de opnieuw gehouden gemeenteraadsverkiezingen in Gorinchem zijn weinig verschillen ten opzichte van de gemeenteraadsverkiezingen van maart. Dat...
-- [Pride Amsterdam genomineerd voor werelderfgoedlijst Unesco](https://nos.nl/l/2612456)
-  > Pride Amsterdam is genomineerd voor de werelderfgoedlijst van Unesco. Minister Letschert van Onderwijs, Cultuur en Wetenschap heeft dat...
-- ['Constructief gesprek' Magyar en Von der Leyen in Brussel over EU-subsidies](https://nos.nl/l/2612452)
-  > Het is nog tien dagen wachten tot de aanstaande Hongaarse premier Magyar officieel in functie treedt, maar toch was hij vandaag al in Brussel....
+- [Pride Amsterdam genomineerd voor erfgoedlijst Unesco](https://nos.nl/l/2612456)
+  > Pride Amsterdam is genomineerd voor de immateriële erfgoedlijst van Unesco. Minister Letschert van Onderwijs, Cultuur en Wetenschap heeft dat...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Voetbalpodcast | ‘Hoofdrol voor Danny Makkelie in halve finale Champions League is niet lekker’](https://www.ad.nl/voetbal/voetbalpodcast-hoofdrol-voor-danny-makkelie-in-halve-finale-champions-league-is-niet-lekker~ac8603a9/)
+  > De tweede halve finale van de Champions League werd een compleet ander duel dan Paris Saint-Germain - Bayern München. Atlético Madrid en Arsenal...
 - [Cristiano Ronaldo bijna kampioen met Al-Nassr, woede bij rivaal: ‘Dit is voetbal, geen oorlog’](https://www.ad.nl/voetbal/cristiano-ronaldo-bijna-kampioen-met-al-nassr-woede-bij-rivaal-dit-is-voetbal-geen-oorlog~ad0fd0b2/)
   > Cristiano Ronaldo heeft woensdagavond een volgende stap gezet richting de historische mijlpaal van duizend goals. Tijdens de topper in de Saudi Pro...
 - [Uitslag herverkiezingen bekend: Democraten Gorinchem wederom de grootste](https://www.ad.nl/binnenland/uitslag-herverkiezingen-bekend-democraten-gorinchem-wederom-de-grootste~a5accedf/)
   > De politieke verhoudingen in Gorinchem zijn bij de opnieuw gehouden gemeenteraadsverkiezingen grotendeels hetzelfde gebleven. De grote winnaar van 18...
 - [Echtgenote van man die plots overleed bij tandartsbezoek wil gerechtigheid: ‘Ik voel zo de leegte zonder jou’](https://www.ad.nl/binnenland/echtgenote-van-man-die-plots-overleed-bij-tandartsbezoek-wil-gerechtigheid-ik-voel-zo-de-leegte-zonder-jou~a9ffe6b8/)
   > Hij was een stoere biker, de spil van zijn gezin en de gerespecteerde president van een motorclub. Begin januari eindigde zijn leven op 52-jarige...
-- [Hoofdrol voor Danny Makkelie in halve finale: Atlético Madrid en Arsenal scoren alleen uit penalty's](https://www.ad.nl/voetbal/hoofdrol-voor-danny-makkelie-in-halve-finale-atletico-madrid-en-arsenal-scoren-alleen-uit-penalty-s~adad0c9e/)
+- [Hoofdrol voor Danny Makkelie in halve finale: Atlético Madrid en Arsenal scoren alleen uit penalty’s](https://www.ad.nl/voetbal/hoofdrol-voor-danny-makkelie-in-halve-finale-atletico-madrid-en-arsenal-scoren-alleen-uit-penaltys~adad0c9e/)
   > Drie mogelijke strafschoppen, twee toegekend door scheidsrechter Danny Makkelie en eentje niet na ingrijpen van de VAR, bepaalden woensdagavond het...
-- [Bosbranden in Epe aangestoken, brandweer vindt vuurwerkresten: ‘Dit is onacceptabel’](https://www.ad.nl/epe/bosbranden-in-epe-aangestoken-brandweer-vindt-vuurwerkresten-dit-is-onacceptabel~a0d8c6836/)
-  > Op twee verschillende plekken niet ver bij elkaar vandaan zijn in Epe woensdag bosbrandjes uitgebroken. De oorzaak: brandstichting door middel van...
 
 ### Meest gelezen
 
