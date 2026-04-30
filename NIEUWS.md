@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-04-2026 om 15:12*
+*Laatst bijgewerkt: 30-04-2026 om 17:25*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Brand zet woonwinkels Waalwijk in lichterlaaie](https://nos.nl/l/2612533)
-  > Op een woonboulevard in Waalwijk is brand uitgebroken. De brand ontstond in woonwinkel Kwantum en heeft zich uitgebreid naar de leegstaande...
-- [Grootste Vikingschat ooit ontdekt in Noorwegen](https://nos.nl/l/2612528)
-  > In Noorwegen is de grootste Vikingschat ooit gevonden. Het gaat om bijna 3000 zilveren munten uit de Vikingtijd. "Dit is werkelijk een unieke...
-- [Fransman (40) beschuldigd van verkrachting en seksueel misbruik van 34 kinderen](https://nos.nl/l/2612520)
-  > In een Frans dorpje vlak bij Lyon is een 40-jarige man aangeklaagd voor verkrachting en ander seksueel misbruik van 34 jongetjes tussen de 3 en 9...
-- [Podcast De Dag: Martijn van Leerdam, predikant-directeur van de Pauluskerk](https://nos.nl/l/2612519)
-  > Martijn van Leerdam is predikant-directeur bij de Pauluskerk. Een kerk in het centrum van Rotterdam, waar daklozen iedere dag terechtkunnen voor warm...
-- [Politie pakt Spanjaarden en Colombianen op voor handel in nepcocaïne](https://nos.nl/l/2612517)
-  > Op een parkeerplaats in Haarlem heeft de politie een groep van elf Colombianen en Spanjaarden gearresteerd. Dat gebeurde vorige week vrijdag. De...
+- [Overheid vult gasbergingen voor de winter met groot financieel risico](https://nos.nl/l/2612551)
+  > Vanwege de hoge gasprijs als gevolg van de oorlog in de Perzische Golf, zien energiebedrijven geen brood in het vullen van de seizoensopslagen voor...
+- [Langer onderzoek naar verdachte moord Lisa, strafzaak pas in januari](https://nos.nl/l/2612550)
+  > De verdachte van de moord op de 17-jarige Lisa uit Abcoude is al onderzocht maar wordt nog eens zeven weken opgenomen in het Pieter Baan Centrum...
+- [Rabobank: boodschappen worden richting Kerstmis flink duurder](https://nos.nl/l/2612549)
+  > Ondanks de oorlog in de Golfregio loopt de inflatie nog maar gematigd op, maar economen van Rabobank waarschuwen nu voor de langetermijneffecten....
+- [Niet de eerste brand bij militaire oefeningen, defensie overweegt aanpassingen](https://nos.nl/l/2612547)
+  > Vier natuurbranden op militaire terreinen in twee dagen. De brandweer heeft de brand bij 't Harde nog altijd niet onder controle. En gisteren...
+- [Horen deze branden bij een veranderend klimaat? Vijf vragen over natuurbranden](https://nos.nl/l/2612539)
+  > Al twee dagen wordt het nieuws beheerst door flinke natuurbranden. Maar geen expert keek vreemd op toen juist gisteren de vlam in de pan sloeg, net...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Generaal Eichelsheim: stoppen met militaire oefeningen niet nodig na branden, wel extra maatregelen](https://www.ad.nl/binnenland/generaal-eichelsheim-stoppen-met-militaire-oefeningen-niet-nodig-na-branden-wel-extra-maatregelen~a369e3e1/)
-  > Commandant der Strijdkrachten generaal Onno Eichelsheim laat weten dat stoppen met militaire oefeningen niet nodig is na de branden op militaire...
-- [Feyenoord kan de massale schreeuw om Robert Eenhoorn nauwelijks nog negeren](https://www.ad.nl/voetbal/feyenoord-kan-de-massale-schreeuw-om-robert-eenhoorn-nauwelijks-nog-negeren~ae2a6ae7/)
-  > Robert Eenhoorn is voor veel partijen in en rond de Kuip de droomkandidaat om algemeen directeur van Feyenoord te worden. De voormalig directeur van...
-- [Jennifer Hoffman (45): ‘Zeg maar gerust dat ik bejaard zwanger ben, zoals mijn arts ook wel liet merken’](https://www.ad.nl/show/jennifer-hoffman-45-zeg-maar-gerust-dat-ik-bejaard-zwanger-ben-zoals-mijn-arts-ook-wel-liet-merken~a5b2a543/)
-  > Jennifer Hoffman besloot een andere arts te kiezen, omdat opmerkingen die haar eerste arts maakte over haar zwangerschap haar tegen de borst...
-- [PEC neemt doelman definitief over van FC Utrecht, Mathijsen nieuwe td van Fortuna](https://www.ad.nl/voetbal/pec-neemt-doelman-definitief-over-van-fc-utrecht-mathijsen-nieuwe-td-van-fortuna~a35ea681/)
-  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
-- [1500 asielzoekers geëvacueerd wegens grote natuurbrand in Weert, nabijgelegen vliegveld ontruimd](https://www.ad.nl/binnenland/1500-asielzoekers-geevacueerd-wegens-grote-natuurbrand-in-weert-nabijgelegen-vliegveld-ontruimd~a096cec0/)
+- [Wanneer staat je belastingteruggave op je rekening en vier andere vragen](https://www.ad.nl/geld/wanneer-staat-je-belastingteruggave-op-je-rekening-en-vier-andere-vragen~a0ff396e/)
+  > Heb jij je belastingaangifte al gedaan? Je hebt nog tot middernacht om je belastingaangifte in te dienen. Geldredacteur Maartje Huijben beantwoordt...
+- [Temptation Island-presentator Rijk Hofman gaat viraal met gezichtsuitdrukking: ‘Hier slipte ik bijna’](https://www.ad.nl/show/temptation-island-presentator-rijk-hofman-gaat-viraal-met-gezichtsuitdrukking-hier-slipte-ik-bijna~a057e987/)
+  > Rijk Hofman (29) mag in Temptation Island: Benelux geen oordeel geven, maar zijn blik lijkt hem te verraden. De presentator kan zijn...
+- [Het stroomnet zat vol, het water raakt op: hoe vaak moeten we dit herhalen?](https://www.ad.nl/commentaar/het-stroomnet-zat-vol-het-water-raakt-op-hoe-vaak-moeten-we-dit-herhalen~a84c18157/)
+  > Wacht de waterleiding hetzelfde lot als ons overvolle stroomnet? Wéér staat een onmisbare basisvoorziening onder grote druk en wéér wordt er met alle...
+- [NL-Alert voor groot deel van West-Brabant, defensie gaat door met militaire oefeningen](https://www.ad.nl/binnenland/nl-alert-voor-groot-deel-van-west-brabant-defensie-gaat-door-met-militaire-oefeningen~a096cec0/)
   > Op verschillende plekken in Nederland woeden donderdag natuurbranden. De brandweer is onder meer uitgerukt bij de Oirschotse Heide, op een...
+- [Elk jaar tientallen natuurbranden tijdens legeroefeningen, maar pauzeren bij droogte is voor generaal geen optie](https://www.ad.nl/binnenland/elk-jaar-tientallen-natuurbranden-tijdens-legeroefeningen-maar-pauzeren-bij-droogte-is-voor-generaal-geen-optie~affe54ac/)
+  > De vier grote natuurbranden op militaire oefenterreinen in twee dagen tijd vallen op, maar zijn zeker niet de enige incidenten. Vorig jaar ging het...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Nieuwe fusieregels moeten Europese kampioenen aanmoedigen](https://fd.nl/bedrijfsleven/1594984/nieuwe-fusieregels-moeten-europese-kampioenen-aanmoedigen)
-  > De Europese Commissie wil haar regels rond fusies en overnames grondig hervormen. Dit moet bedrijven meer ruimte geven om te groeien en zo de...
-- [Tel Aviv presteert dit jaar vijf keer zo goed als Wall Street](https://fd.nl/financiele-markten/1594975/tel-aviv-presteert-dit-jaar-vijf-keer-zo-goed-als-wall-street)
-  > De Israëlische aandelenmarkt verslaat in de eerste vier maanden van het jaar zo’n beetje alle beurzen van geïndustrialiseerde landen.
-- [Ster ziet trendbreuk in publieke reclame-inkomsten door minder kijktijd](https://fd.nl/samenleving/1594981/ster-ziet-trendbreuk-in-publieke-reclame-inkomsten-door-minder-kijktijd)
-  > Kijkers verhuizen van traditionele tv naar online kanalen, maar de Ster mag hen daar niet volgen.
-- [De nieuwe Airbus-topvrouw bereikt meer met invloed dan met macht](https://fd.nl/bedrijfsleven/1594822/de-nieuwe-airbus-topvrouw-bereikt-meer-met-invloed-dan-met-macht)
-  > De Spaanse Amparo Moraleda wordt dit najaar ceo van de vliegtuigbouwer Airbus. Haar benoeming is nu al aanleiding voor de Spaanse regering om meer op...
-- [Belgische regering wil kerncentrales kopen van Engie](https://fd.nl/economie/1594826/belgische-regering-wil-kerncentrales-kopen-van-engie)
-  > Het gaat om twee nog werkende reactoren en vijf al stilgelegde centrales. De ontmanteling van deze centrales wordt per direct stilgelegd.
+- [Eli Lilly verhoogt omzet- en winstverwachting](https://fd.nl/bedrijfsleven/1594988/eli-lilly-verhoogt-omzet-en-winstverwachting)
+  > Het aandeel van Eli Lilly steeg bij opening van de handel in New York met 7,3%.
+- [Kosovaren opnieuw naar de stembus in slepend conflict over nieuwe president](https://fd.nl/politiek/1594987/kosovaren-opnieuw-naar-de-stembus-in-slepend-conflict-over-nieuwe-president)
+  > Voor de derde keer binnen een jaar zijn verkiezingen noodzakelijk omdat het parlement er niet in is geslaagd een nieuwe president aan te wijzen.
+- [EY velt opnieuw geen oordeel over jaarverslag Ebusco door slechte interne controle](https://fd.nl/bedrijfsleven/1594963/ey-velt-opnieuw-geen-oordeel-over-jaarverslag-ebusco-door-slechte-interne-controle)
+  > Het busbedrijf deelde donderdag zijn resultaten over 2025. Het meldt een nettoverlies van €71 mln op een omzet van €76,6 mln.
+- [Duits-Amerikaanse relatie verslechtert, VS dreigen troepen weg te halen](https://fd.nl/politiek/1594831/duits-amerikaanse-relatie-verslechtert-vs-dreigen-troepen-weg-te-halen)
+  > De Duitse bondskanselier Friedrich Merz zei maandag dat de VS werden vernederd door het Iraanse regime. Trump reageerde boos en voegde later toe dat...
+- [Cloudbedrijven ontstemd over contract overheid met Lidl-cloud](https://fd.nl/tech-en-innovatie/1594986/cloudbedrijven-ontstemd-over-contract-overheid-met-lidl-cloud)
+  > Nederlandse cloudbedrijven voelen zich gepasseerd bij een nieuw contract dat de overheid is aangegaan met het Duitse Stackit, het cloudbedrijf van...
 
 ### Meest gelezen
 
