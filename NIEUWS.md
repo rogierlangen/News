@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-04-2026 om 23:56*
+*Laatst bijgewerkt: 01-05-2026 om 04:07*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Dreigingsniveau terrorisme Verenigd Koninkrijk verhoogd, kort na aanslag op Joodse mannen](https://nos.nl/l/2612587)
+  > Het dreigingsniveau voor terrorisme is in het Verenigd Koninkrijk verhoogd van "aanzienlijk" naar "ernstig". Dat doet de Britse overheid kort na de...
+- [Emmense kandidaat-wethouder trekt zich terug na eenzijdig ongeluk onder invloed](https://nos.nl/l/2612586)
+  > Een kandidaat-wethouder in Emmen heeft zich teruggetrokken omdat hij met drank op achter het stuur heeft gezeten. Hij veroorzaakte toen een eenzijdig...
+- [The New York Times: mogelijk zelfmoordbriefje van Epstein al jaren geheimgehouden](https://nos.nl/l/2612585)
+  > Een mogelijk zelfmoordbriefje van zedendeliquent Jeffrey Epstein is jarenlang verborgen gehouden voor publiek en onderzoekers door een rechtbank in...
 - [Jury Biënnale van Venetië treedt vlak voor kunstevenement af](https://nos.nl/l/2612584)
   > De jury van de Biënnale van Venetië is slechts negen dagen voor de opening van het kunstevenement afgetreden. De vijfkoppige jury meldt het vertrek...
 - [Ruim drie jaar na inbraak keramiekmuseum komt verdachte voor de rechter](https://nos.nl/l/2612574)
   > Ruim drie jaar na de inbraak in Keramiekmuseum Princessehof in Leeuwarden, heeft de politie een verdachte opgepakt. De 22-jarige man uit Almere staat...
-- [Relatie VS en Duitsland bekoelt, Trump zinspeelt op afbouw troepen](https://nos.nl/l/2612573)
-  > Eerst een "geweldige leider", nu een man die "niet weet waar hij het over heeft". De Duitse bondskanselier heeft in twee maanden tijd de grilligheid...
-- [Twee dagen met natuurbranden, Frankrijk en Duitsland sturen hulp](https://nos.nl/l/2612572)
-  > Na de grote natuurbrand op een militair oefenterrein bij 't Harde woensdag, braken er gisteren nog meer branden op een aantal plekken in het land...
-- [Miljardairszoon Ambani wil nijlpaarden van drugsbaron Escobar opvangen in India](https://nos.nl/l/2612570)
-  > Anant Ambani wil tachtig nijlpaarden van de beruchte Colombiaanse drugsbaron Pablo Escobar opvangen in India. De zoon van de puissant rijke zakenman...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [VS waarschuwen bondgenoten om geen steun te geven aan Gaza-flotilla](https://www.ad.nl/buitenland/vs-waarschuwen-bondgenoten-om-geen-steun-te-geven-aan-gaza-flotilla~ac528ac3/)
-  > De Verenigde Staten steunen Israël na het onderscheppen van de Global Sumud Flotilla, een vloot met humanitaire hulp voor Gaza, voor de kust van het...
-- [Ondernemers: Nederlandse techindustrie heeft steeds meer last van handelsoorlog Trump](https://www.ad.nl/buitenland/ondernemers-nederlandse-techindustrie-heeft-steeds-meer-last-van-handelsoorlog-trump~ae67dd9c/)
-  > De Nederlandse technologische industrie heeft steeds meer last van de handelsoorlog die de Amerikaanse president Donald Trump vorig jaar ontketende....
-- [ING: huizenprijzen stijgen dit jaar niet verder door hoger woningaanbod](https://www.ad.nl/economie/ing-huizenprijzen-stijgen-dit-jaar-niet-verder-door-hoger-woningaanbod~a0863798/)
-  > De huizenprijzen zullen naar verwachting de rest van dit jaar niet meer stijgen, voorspelt ING in een rapport over de woningmarkt. In de grote steden...
-- [Voetbalpodcast | ‘Weghorst naar het WK: dat kan toch eigenlijk niet meer?’](https://www.ad.nl/voetbal/voetbalpodcast-weghorst-naar-het-wk-dat-kan-toch-eigenlijk-niet-meer~ac8603a9/)
-  > Danny Makkelie kreeg er in de Spaanse en Engelse media flink van langs de dag na Atlético Madrid-Arsenal. Maar was dat wel zo terecht vragen Etienne...
-- [Stand Premier League  | Michael van Gerwen nog altijd in top 4, maar Gian van Veen én Luke Humphries hijgen in de nek](https://www.ad.nl/darts/premier-league-speelschema-programma-uitslagen-stand~a9ae7647/)
-  > De Premier League Darts is volop onderweg mét Michael van Gerwen en Gian van Veen. Bekijk hieronder de stand, alle uitslagen, het complete programma...
+- [Meest schadelijke drug bezorgt politie overwerk: ‘Crack is Rupsje Nooitgenoeg’](https://www.ad.nl/binnenland/meest-schadelijke-drug-bezorgt-politie-overwerk-crack-is-rupsje-nooitgenoeg~ab50b430/)
+  > De politie registreerde vorig jaar bijna vierduizend incidenten die met de harddrug crack te maken hadden. Een kwart meer dan vorig jaar. Wat is...
+- [Politie: vorig jaar weer meer en heftiger geweld tegen agenten](https://www.ad.nl/binnenland/politie-vorig-jaar-weer-meer-en-heftiger-geweld-tegen-agenten~ab73222a/)
+  > Er was afgelopen jaar meer geweld tegen agenten en het gebruikte geweld was heftiger, concludeert de politie na de publicatie van cijfers over het...
+- [Aanklager Washington geeft nieuwe beelden vrij van schutter Correspondents’ Dinner](https://www.ad.nl/buitenland/aanklager-washington-geeft-nieuwe-beelden-vrij-van-schutter-correspondents-dinner~a9df02b5/)
+  > De federale aanklager van Washington heeft donderdag een nieuwe video vrijgegeven waarop te zien is hoe de verdachte van de schietpartij op het White...
+- [Man in Texas geëxecuteerd ondanks steun rappers en advocaten](https://www.ad.nl/buitenland/man-in-texas-geexecuteerd-ondanks-steun-rappers-en-advocaten~a5a2e42f/)
+  > In de Amerikaanse staat Texas is een man geëxecuteerd die werd veroordeeld vanwege de moord op twee muziekproducenten bij een roofoverval in 2008. De...
+- [VS dringen aan op rechtstreekse gesprekken tussen Israël en Libanon](https://www.ad.nl/buitenland/vs-dringen-aan-op-rechtstreekse-gesprekken-tussen-israel-en-libanon~ac528ac3/)
+  > De Verenigde Staten dringen aan op rechtstreekse gesprekken tussen Libanon en Israël. ‘Libanon staat op een kruispunt. De bevolking heeft een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Directeur vertrekt en vlak daarna wordt een ernstige ziekte ondekt, dus eist hij zijn baan terug](https://fd.nl/samenleving/1594891/directeur-vertrekt-en-vlak-daarna-wordt-een-ernstige-ziekte-ondekt-dus-eist-hij-zijn-baan-terug)
+  > Twee maanden na zijn vertrek als directeur van een medische kernreactor kreeg Hermen de diagnose longkanker. Nu strijdt hij voor het pensioen,...
+- [Morgan Stanley-bankier Jim Caron: ‘De wereld draait naar een nieuw groeimodel, net als na de Tweede Wereldoorlog’](https://fd.nl/financiele-markten/1594501/morgan-stanley-bankier-jim-caron-de-wereld-draait-naar-een-nieuw-groeimodel-net-als-na-de-tweede-wereldoorlog)
+  > De rules-based order loopt ten einde, het is nu ieder voor zich, ziet Jim Caron van Morgan Stanley. Reden tot paniek? Welnee. ‘Over 25 jaar kijken we...
+- [Hoge energieprijs zet centrale banken klem](https://fd.nl/economie/1594991/hoge-energieprijs-zet-centrale-banken-klem)
+  > Vandaag in Dagkoers: Nederlandse economie groeit maar nét, centrale banken laten beleidsrente ongewijzigd en paradepaardje Honda verliest grip op de...
 - [Hoera, ik ben armer geworden!](https://fd.nl/opinie/1594978/hoera-ik-ben-armer-geworden)
   > Armer worden blijkt ineens lucratief – dankzij een fiscus die het zelf ook niet meer kan volgen.
 - [Groeiend aantal ondernemers stelt investeringen uit](https://fd.nl/bedrijfsleven/1594974/groeiend-aantal-ondernemers-stelt-investeringen-uit)
   > Uit een peiling onder leden van de FME, de club voor de Nederlandse technologische industrie, blijkt verder dat bij 80% van de bedrijven de...
-- [Weg met Opec!](https://fd.nl/opinie/1594837/weg-met-opec)
-  > De wereld is veel beter af met een zwakker oliekartel, denkt FD-columnist Mathijs Bouman.
-- [Herstel van olieschok kan volgens analisten zomaar acht maanden duren](https://fd.nl/financiele-markten/1594833/herstel-van-olieschok-kan-volgens-analisten-zomaar-acht-maanden-duren)
-  > Analisten waarschuwen dat de langdurige verstoring rond de Straat van Hormuz het huidige olietekort kan verdubbelen. En de geschiedenis toont aan dat...
-- [Marktlink Capital wil met private-equityfirma Inflexion Europa in](https://fd.nl/bedrijfsleven/1594551/marktlink-capital-wil-met-private-equityfirma-inflexion-europa-in)
-  > De investeringsmaatschappij haalt met de nieuwe aandeelhouder kapitaal binnen om mee te doen aan de consolidatieslag binnen Europa.
 
 ### Meest gelezen
 
