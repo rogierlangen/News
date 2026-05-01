@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-05-2026 om 07:26*
+*Laatst bijgewerkt: 01-05-2026 om 09:49*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Verdachte mesaanval bij synagoge in Londen, verdacht van nog een poging tot moord](https://nos.nl/l/2612607)
+- [Defensie onderzoekt protocollen voor droogte, schietverbod op terreinen in België](https://nos.nl/l/2612624)
+  > De protocollen van Defensie over oefeningen in droge periodes worden waarschijnlijk aangepast. Dat heeft staatssecretaris van Defensie Boswijk gezegd...
+- [Brandweer nog volop bezig met natuurbranden, met Franse en Duitse hulp](https://nos.nl/l/2612612)
+  > De brandweer is nog druk bezig met het blussen van de verschillende natuurbranden, vandaag ook met hulp van Duitse en Franse collega's. Volgens de...
+- [Nieuwe beelden nemen vragen over aanslag op Correspondents' Dinner niet weg](https://nos.nl/l/2612610)
+  > Het Amerikaanse Openbaar Ministerie heeft duidelijkere beelden vrijgegeven van het moment dat een man met een geweer probeerde door te dringen tot...
+- [Oscar Russische filmer kwijtgeraakt tijdens Lufthansa-vlucht](https://nos.nl/l/2612608)
+  > De award van Oscarwinnaar Pavel Talankin is kwijt. Hij moest de prijs gedwongen inchecken toen hij met Lufthansa van New York naar Frankfurt wilde...
+- [Verdachte mesaanval bij synagoge in Londen verdacht van nog een poging tot moord](https://nos.nl/l/2612607)
   > De 45-jarige verdachte van de aanslag op twee Joodse mannen in Londen afgelopen woensdag wordt verdacht van een dubbele poging tot moord en bezit van...
-- [Apple-topman Tim Cook sluit af met recordwinst](https://nos.nl/l/2612606)
-  > Techgigant Apple boekte het eerste kwartaal van dit jaar een recordwinst van 29,58 miljard dollar; 22 procent meer dan in dezelfde periode vorig...
-- [Rellen in Alice Springs na moord op kleuter, menigte eist verdachte op](https://nos.nl/l/2612602)
-  > In de Australische stad Alice Springs zijn rellen uitgebroken na de moord op een 5-jarig meisje. De menigte wilde de verdachte die daarvoor werd...
-- [Ontruimde Kempen Airport waarschuwde Defensie meermaals voor brandgevaar](https://nos.nl/l/2612601)
-  > Vliegveld Kempen Airport, dat gisteren ontruimd werd vanwege een grote natuurbrand op een militair oefenterrein bij Weert, had Defensie vlak voor die...
-- [Man verdacht van voorbereiden aanslag op prinsessen Amalia en Alexia](https://nos.nl/l/2612594)
-  > Justitie verdenkt een man van 33 van het voorbereiden van een aanslag op de prinsessen Amalia en Alexia, in februari van dit jaar. Komende maandag is...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dries Roelvink bespeelt het Concertgebouw alsof het zijn stamcafé is](https://www.ad.nl/show/dries-roelvink-bespeelt-het-concertgebouw-alsof-het-zijn-stamcafe-is~ab76bdeb/)
-  > Dries Roelvink bespeelde donderdagavond het Concertgebouw alsof het zijn stamcafé was. En daar leek het met een Julio Iglesias-imitator, onafgebroken...
-- [Manager weigert ‘verplichte’ training en verliest na 8 jaar zijn baan, maar krijgt wel 280.000 euro mee](https://www.ad.nl/binnenland/manager-weigert-verplichte-training-en-verliest-na-8-jaar-zijn-baan-maar-krijgt-wel-280-000-euro-mee~ae413d8e/)
-  > Na acht jaar trouwe dienst op staande voet ontslagen worden, simpelweg omdat je een verplichte training weigert. Het overkwam een senior it-manager...
-- [George Russell keek jaloers naar Max Verstappen, Isack Hadjar tempert verwachtingen bij Red Bull](https://www.ad.nl/formule-1/george-russell-keek-jaloers-naar-max-verstappen-isack-hadjar-tempert-verwachtingen-bij-red-bull~ab65c26a/)
-  > Na een onderbreking van vijf weken gaat de Formule 1 dit weekend verder met race vier, de Grand Prix van Miami. Volg hier ons liveblog.
-- [Oud-PSV’er Max na een maand weg bij Japanse club, PEC neemt doelman definitief over van FC Utrecht](https://www.ad.nl/voetbal/oud-psver-max-na-een-maand-weg-bij-japanse-club-pec-neemt-doelman-definitief-over-van-fc-utrecht~a35ea681/)
+- [Dynamisch stroomcontract? Zet vanmiddag alles aan en het geld loopt binnen](https://www.ad.nl/binnenland/dynamisch-stroomcontract-zet-vanmiddag-alles-aan-en-het-geld-loopt-binnen~af3c0cf2/)
+  > Wie een dynamisch energiecontract heeft, kan vanaf 12.00 uur een aardig zakcentje verdienen. De prijs voor stroom daalt naar het laagste niveau ooit:...
+- [Praat mee: defensie moet altijd kunnen oefenen, ook bij droogte en brandgevaar in de natuur](https://www.ad.nl/praat-mee/praat-mee-defensie-moet-altijd-kunnen-oefenen-ook-bij-droogte-en-brandgevaar-in-de-natuur~a9251739/)
+  > In nog geen week tijd zijn er vier natuurbranden uitgebroken op militaire oefenterreinen. In de Kwestie leggen we onze lezers daarover een stelling...
+- [Minister drukt fatbikeplan door: hoe kansrijk is het? ‘Bewijs maar eens dat die fiets het probleem is’](https://www.ad.nl/politiek/minister-drukt-fatbikeplan-door-hoe-kansrijk-is-het-bewijs-maar-eens-dat-die-fiets-het-probleem-is~a5930eb1/)
+  > Minister Vincent Karremans (VVD, Verkeer) gaat er alsnog voor. Hij wil aparte regels – zoals een minimumleeftijd en gebiedsverboden – voor fatbikes....
+- [TransferTalk | Oud-PSV’er Max na een maand weg bij Japanse club, Modric waarschijnlijk langer bij AC Milan](https://www.ad.nl/voetbal/transfertalk-oud-psver-max-na-een-maand-weg-bij-japanse-club-modric-waarschijnlijk-langer-bij-ac-milan~a35ea681/)
   > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
-- [Op één beroepsgroep na moet iedereen in Nederland gewoon werken vandaag: waarom?](https://www.ad.nl/economie/op-een-beroepsgroep-na-moet-iedereen-in-nederland-gewoon-werken-vandaag-waarom~ad832aff/)
-  > Geen grote demonstraties, feesten en zelfs geen vrije dag. De internationale feestdag Dag van de Arbeid (1 mei) gaat in Nederland stilletjes voorbij....
+- [Dubbele beenbreuk en dan dit: ambulance komt vast te zitten op het veld, medespelers helpen met duwen](https://www.ad.nl/voetbal/dubbele-beenbreuk-en-dan-dit-ambulance-komt-vast-te-zitten-op-het-veld-medespelers-helpen-met-duwen~a446397e/)
+  > Een dubbele beenbreuk oplopen is al erg genoeg, maar voor Alexandru Git, speler van Voluntari op het tweede niveau in Roemenië, werd het allemaal nog...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Gezocht: meesterwerken van miljoenen om schuld Sotheby’s af te lossen](https://fd.nl/bedrijfsleven/1594880/gezocht-meesterwerken-van-miljoenen-om-schuld-sothebys-af-te-lossen)
-  > Het prestigieuze veilinghuis is dringend op zoek naar manieren om zijn schulden af te lossen. Tegelijkertijd wordt het moeilijker om kunst binnen te...
-- [Apple boekt recordomzet dankzij ‘populairste iPhone ooit’](https://fd.nl/financiele-markten/1594840/apple-boekt-recordomzet-dankzij-populairste-iphone-ooit)
-  > Technologiebedrijf Apple heeft in de eerste drie maanden van dit jaar een omzet van $111,2 mrd behaald. Vooral de iPhone 17 deed het goed.
-- [Een Rotterdams grand café, kunst met pixels en crèmes met goud](https://fd.nl/samenleving/1594885/een-rotterdams-grand-cafe-kunst-met-pixels-en-cremes-met-goud)
-  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
-- [Aalberts vaart mee op verhoogde vraag naar chips](https://fd.nl/bedrijfsleven/1595042/aalberts-vaart-mee-op-verhoogde-vraag-naar-chips)
-  > Ceo Stéphane Simonetta zei eerder pas herstel te verwachten in de tweede helft van het jaar.
-- [Verlaten plek in Berlijn wordt romandecor](https://fd.nl/samenleving/1594890/verlaten-plek-in-berlijn-wordt-romandecor)
-  > Het voormalige arbeiderssanatorium Beelitz, bij Berlijn, is een van de mooiste verlaten plekken van Duitsland. Schrijver Ulla Lenze koos de...
+- [De Remind-app detecteert signalen van dementie: ‘Het is een Fitbit voor je brein’](https://fd.nl/tech-en-innovatie/1594784/de-remind-app-detecteert-signalen-van-dementie-het-is-een-fitbit-voor-je-brein)
+  > Combineer twee vragenlijsten, een geheugentest en een schat aan spraak- en typanalyses met AI en je krijgt een app die vroege signalen van dementie...
+- [We moeten dringend ontsnappen uit de gasfuik](https://fd.nl/opinie/1593846/we-moeten-dringend-ontsnappen-uit-de-gasfuik)
+  > In Nederland komt 35% van de stroom uit gas: dubbel het Europese gemiddelde. Steeds meer Nederlanders wekken zelf stroom op. Een kans voor de...
+- [Dient de volgende militaire invasie zich aan? Trump buigt zich over de Falklandeilanden](https://fd.nl/samenleving/1594508/dient-de-volgende-militaire-invasie-zich-aan-trump-buigt-zich-over-de-falklandeilanden)
+  > Donald Trump vindt het ineens onlogisch dat op de Falklandeilanden de Britse vlag wappert. De Amerikaanse president steunt de Argentijnse leider...
+- [Een ietwat weemoedig tijdsbeeld van de coronacrisis](https://fd.nl/samenleving/1594462/een-ietwat-weemoedig-tijdsbeeld-van-de-coronacrisis)
+  > Dj Kwammie Rocket neemt ons in een mozaïekvertelling nog eens mee naar die polariserende, angstige, ontregelende coronajaren.
+- [Energiecrises vragen geen pleisters maar preventie](https://fd.nl/opinie/1594160/energiecrises-vragen-geen-pleisters-maar-preventie)
+  > Europa geeft honderden miljarden uit om stijgende energieprijzen te dempen, maar blijft de echte oplossing uitstellen: huishoudens structureel minder...
 
 ### Meest gelezen
 
