@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-05-2026 om 04:07*
+*Laatst bijgewerkt: 01-05-2026 om 07:26*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Dreigingsniveau terrorisme Verenigd Koninkrijk verhoogd, kort na aanslag op Joodse mannen](https://nos.nl/l/2612587)
-  > Het dreigingsniveau voor terrorisme is in het Verenigd Koninkrijk verhoogd van "aanzienlijk" naar "ernstig". Dat doet de Britse overheid kort na de...
-- [Emmense kandidaat-wethouder trekt zich terug na eenzijdig ongeluk onder invloed](https://nos.nl/l/2612586)
-  > Een kandidaat-wethouder in Emmen heeft zich teruggetrokken omdat hij met drank op achter het stuur heeft gezeten. Hij veroorzaakte toen een eenzijdig...
-- [The New York Times: mogelijk zelfmoordbriefje van Epstein al jaren geheimgehouden](https://nos.nl/l/2612585)
-  > Een mogelijk zelfmoordbriefje van zedendeliquent Jeffrey Epstein is jarenlang verborgen gehouden voor publiek en onderzoekers door een rechtbank in...
-- [Jury Biënnale van Venetië treedt vlak voor kunstevenement af](https://nos.nl/l/2612584)
-  > De jury van de Biënnale van Venetië is slechts negen dagen voor de opening van het kunstevenement afgetreden. De vijfkoppige jury meldt het vertrek...
-- [Ruim drie jaar na inbraak keramiekmuseum komt verdachte voor de rechter](https://nos.nl/l/2612574)
-  > Ruim drie jaar na de inbraak in Keramiekmuseum Princessehof in Leeuwarden, heeft de politie een verdachte opgepakt. De 22-jarige man uit Almere staat...
+- [Verdachte mesaanval bij synagoge in Londen, verdacht van nog een poging tot moord](https://nos.nl/l/2612607)
+  > De 45-jarige verdachte van de aanslag op twee Joodse mannen in Londen afgelopen woensdag wordt verdacht van een dubbele poging tot moord en bezit van...
+- [Apple-topman Tim Cook sluit af met recordwinst](https://nos.nl/l/2612606)
+  > Techgigant Apple boekte het eerste kwartaal van dit jaar een recordwinst van 29,58 miljard dollar; 22 procent meer dan in dezelfde periode vorig...
+- [Rellen in Alice Springs na moord op kleuter, menigte eist verdachte op](https://nos.nl/l/2612602)
+  > In de Australische stad Alice Springs zijn rellen uitgebroken na de moord op een 5-jarig meisje. De menigte wilde de verdachte die daarvoor werd...
+- [Ontruimde Kempen Airport waarschuwde Defensie meermaals voor brandgevaar](https://nos.nl/l/2612601)
+  > Vliegveld Kempen Airport, dat gisteren ontruimd werd vanwege een grote natuurbrand op een militair oefenterrein bij Weert, had Defensie vlak voor die...
+- [Man verdacht van voorbereiden aanslag op prinsessen Amalia en Alexia](https://nos.nl/l/2612594)
+  > Justitie verdenkt een man van 33 van het voorbereiden van een aanslag op de prinsessen Amalia en Alexia, in februari van dit jaar. Komende maandag is...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Meest schadelijke drug bezorgt politie overwerk: ‘Crack is Rupsje Nooitgenoeg’](https://www.ad.nl/binnenland/meest-schadelijke-drug-bezorgt-politie-overwerk-crack-is-rupsje-nooitgenoeg~ab50b430/)
-  > De politie registreerde vorig jaar bijna vierduizend incidenten die met de harddrug crack te maken hadden. Een kwart meer dan vorig jaar. Wat is...
-- [Politie: vorig jaar weer meer en heftiger geweld tegen agenten](https://www.ad.nl/binnenland/politie-vorig-jaar-weer-meer-en-heftiger-geweld-tegen-agenten~ab73222a/)
-  > Er was afgelopen jaar meer geweld tegen agenten en het gebruikte geweld was heftiger, concludeert de politie na de publicatie van cijfers over het...
-- [Aanklager Washington geeft nieuwe beelden vrij van schutter Correspondents’ Dinner](https://www.ad.nl/buitenland/aanklager-washington-geeft-nieuwe-beelden-vrij-van-schutter-correspondents-dinner~a9df02b5/)
-  > De federale aanklager van Washington heeft donderdag een nieuwe video vrijgegeven waarop te zien is hoe de verdachte van de schietpartij op het White...
-- [Man in Texas geëxecuteerd ondanks steun rappers en advocaten](https://www.ad.nl/buitenland/man-in-texas-geexecuteerd-ondanks-steun-rappers-en-advocaten~a5a2e42f/)
-  > In de Amerikaanse staat Texas is een man geëxecuteerd die werd veroordeeld vanwege de moord op twee muziekproducenten bij een roofoverval in 2008. De...
-- [VS dringen aan op rechtstreekse gesprekken tussen Israël en Libanon](https://www.ad.nl/buitenland/vs-dringen-aan-op-rechtstreekse-gesprekken-tussen-israel-en-libanon~ac528ac3/)
-  > De Verenigde Staten dringen aan op rechtstreekse gesprekken tussen Libanon en Israël. ‘Libanon staat op een kruispunt. De bevolking heeft een...
+- [Dries Roelvink bespeelt het Concertgebouw alsof het zijn stamcafé is](https://www.ad.nl/show/dries-roelvink-bespeelt-het-concertgebouw-alsof-het-zijn-stamcafe-is~ab76bdeb/)
+  > Dries Roelvink bespeelde donderdagavond het Concertgebouw alsof het zijn stamcafé was. En daar leek het met een Julio Iglesias-imitator, onafgebroken...
+- [Manager weigert ‘verplichte’ training en verliest na 8 jaar zijn baan, maar krijgt wel 280.000 euro mee](https://www.ad.nl/binnenland/manager-weigert-verplichte-training-en-verliest-na-8-jaar-zijn-baan-maar-krijgt-wel-280-000-euro-mee~ae413d8e/)
+  > Na acht jaar trouwe dienst op staande voet ontslagen worden, simpelweg omdat je een verplichte training weigert. Het overkwam een senior it-manager...
+- [George Russell keek jaloers naar Max Verstappen, Isack Hadjar tempert verwachtingen bij Red Bull](https://www.ad.nl/formule-1/george-russell-keek-jaloers-naar-max-verstappen-isack-hadjar-tempert-verwachtingen-bij-red-bull~ab65c26a/)
+  > Na een onderbreking van vijf weken gaat de Formule 1 dit weekend verder met race vier, de Grand Prix van Miami. Volg hier ons liveblog.
+- [Oud-PSV’er Max na een maand weg bij Japanse club, PEC neemt doelman definitief over van FC Utrecht](https://www.ad.nl/voetbal/oud-psver-max-na-een-maand-weg-bij-japanse-club-pec-neemt-doelman-definitief-over-van-fc-utrecht~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Op één beroepsgroep na moet iedereen in Nederland gewoon werken vandaag: waarom?](https://www.ad.nl/economie/op-een-beroepsgroep-na-moet-iedereen-in-nederland-gewoon-werken-vandaag-waarom~ad832aff/)
+  > Geen grote demonstraties, feesten en zelfs geen vrije dag. De internationale feestdag Dag van de Arbeid (1 mei) gaat in Nederland stilletjes voorbij....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Directeur vertrekt en vlak daarna wordt een ernstige ziekte ondekt, dus eist hij zijn baan terug](https://fd.nl/samenleving/1594891/directeur-vertrekt-en-vlak-daarna-wordt-een-ernstige-ziekte-ondekt-dus-eist-hij-zijn-baan-terug)
-  > Twee maanden na zijn vertrek als directeur van een medische kernreactor kreeg Hermen de diagnose longkanker. Nu strijdt hij voor het pensioen,...
-- [Morgan Stanley-bankier Jim Caron: ‘De wereld draait naar een nieuw groeimodel, net als na de Tweede Wereldoorlog’](https://fd.nl/financiele-markten/1594501/morgan-stanley-bankier-jim-caron-de-wereld-draait-naar-een-nieuw-groeimodel-net-als-na-de-tweede-wereldoorlog)
-  > De rules-based order loopt ten einde, het is nu ieder voor zich, ziet Jim Caron van Morgan Stanley. Reden tot paniek? Welnee. ‘Over 25 jaar kijken we...
-- [Hoge energieprijs zet centrale banken klem](https://fd.nl/economie/1594991/hoge-energieprijs-zet-centrale-banken-klem)
-  > Vandaag in Dagkoers: Nederlandse economie groeit maar nét, centrale banken laten beleidsrente ongewijzigd en paradepaardje Honda verliest grip op de...
-- [Hoera, ik ben armer geworden!](https://fd.nl/opinie/1594978/hoera-ik-ben-armer-geworden)
-  > Armer worden blijkt ineens lucratief – dankzij een fiscus die het zelf ook niet meer kan volgen.
-- [Groeiend aantal ondernemers stelt investeringen uit](https://fd.nl/bedrijfsleven/1594974/groeiend-aantal-ondernemers-stelt-investeringen-uit)
-  > Uit een peiling onder leden van de FME, de club voor de Nederlandse technologische industrie, blijkt verder dat bij 80% van de bedrijven de...
+- [Gezocht: meesterwerken van miljoenen om schuld Sotheby’s af te lossen](https://fd.nl/bedrijfsleven/1594880/gezocht-meesterwerken-van-miljoenen-om-schuld-sothebys-af-te-lossen)
+  > Het prestigieuze veilinghuis is dringend op zoek naar manieren om zijn schulden af te lossen. Tegelijkertijd wordt het moeilijker om kunst binnen te...
+- [Apple boekt recordomzet dankzij ‘populairste iPhone ooit’](https://fd.nl/financiele-markten/1594840/apple-boekt-recordomzet-dankzij-populairste-iphone-ooit)
+  > Technologiebedrijf Apple heeft in de eerste drie maanden van dit jaar een omzet van $111,2 mrd behaald. Vooral de iPhone 17 deed het goed.
+- [Een Rotterdams grand café, kunst met pixels en crèmes met goud](https://fd.nl/samenleving/1594885/een-rotterdams-grand-cafe-kunst-met-pixels-en-cremes-met-goud)
+  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
+- [Aalberts vaart mee op verhoogde vraag naar chips](https://fd.nl/bedrijfsleven/1595042/aalberts-vaart-mee-op-verhoogde-vraag-naar-chips)
+  > Ceo Stéphane Simonetta zei eerder pas herstel te verwachten in de tweede helft van het jaar.
+- [Verlaten plek in Berlijn wordt romandecor](https://fd.nl/samenleving/1594890/verlaten-plek-in-berlijn-wordt-romandecor)
+  > Het voormalige arbeiderssanatorium Beelitz, bij Berlijn, is een van de mooiste verlaten plekken van Duitsland. Schrijver Ulla Lenze koos de...
 
 ### Meest gelezen
 
