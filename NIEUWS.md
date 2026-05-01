@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-05-2026 om 11:10*
+*Laatst bijgewerkt: 01-05-2026 om 13:27*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Opnieuw brand bij belangrijke Russische olieraffinaderij](https://nos.nl/l/2612635)
-  > Voor de vierde keer in twee weken is brand uitgebroken bij de olieraffinaderij in de Zuid-Russische havenstad Toeapse. Waarschijnlijk zit het...
-- [14-jarige Maxim al twee weken vermist, zoektocht uitgebreid naar Polen](https://nos.nl/l/2612633)
-  > De politie heeft de zoektocht naar een vermiste jongen uit Apeldoorn uitgebreid naar Polen. De 14-jarige Maxim vertrok zaterdag 18 april op zijn...
-- [Rotterdamse politie krijgt nieuwe tips na oproep in coldcasezaak](https://nos.nl/l/2612632)
-  > De politie in Rotterdam is "onder de indruk" van de verhalen die deze week door mensen werden gedeeld naar aanleiding van een oproep in de...
-- [COA wil af van boerderij waarvoor het miljoenen betaalde, maar die het nooit gebruikte](https://nos.nl/l/2612631)
-  > Het Centraal Orgaan opvang Asielzoekers (COA) gaat een boerderij verkopen waar volgens oorspronkelijke plannen een aanmeldcentrum zou komen. Het gaat...
-- [Defensie onderzoekt protocollen voor droogte, schietverbod op terreinen in België](https://nos.nl/l/2612624)
-  > De protocollen van Defensie over oefeningen in droge periodes worden waarschijnlijk aangepast. Dat heeft staatssecretaris van Defensie Boswijk gezegd...
+- [Bijna alle activisten Gaza-flotilla vrij, twee leden naar Israël voor verhoor](https://nos.nl/l/2612653)
+  > Bijna alle door Israël opgepakte activisten van een vloot schepen die onderweg was naar Gaza, zijn vrijgelaten op Kreta door het Israëlische leger....
+- [Podcast De Dag: Roy Meijer, jonge boer](https://nos.nl/l/2612644)
+  > Roy Meijer is 33 jaar, melkveehouder en de afgelopen 5,5 jaar was hij de voorman van het Nederlands Agrarisch Jongeren Kontakt (NAJK) - een...
+- [Oprichter Brits modemerk Superdry veroordeeld voor verkrachting](https://nos.nl/l/2612641)
+  > Een van de oprichters van het modemerk Superdry is schuldig bevonden aan verkrachting. De 54-jarige James Holder werd na een proces van vijf dagen in...
+- [Humanitaire crisis verdiept zich in afgelegen gebieden Zuid-Sudan](https://nos.nl/l/2612638)
+  > Het jongste land ter wereld, Zuid-Sudan, heeft te maken met nieuwe gevechten. Honderdduizenden mensen zijn op de vlucht geslagen voor het geweld dat...
+- [Duizenden mensen bewijzen met erehaag laatste eer aan overleden Jade Kops (19)](https://nos.nl/l/2612637)
+  > Duizenden mensen hebben de overleden Jade Kops de laatste eer bewezen. De 19-jarige vertelde op sociale media over haar leven met kanker en overleed...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [PSV zonder Ismael Saibari en Anass Salah-Eddine in topper tegen Ajax, andere sterkhouder maakt mogelijk rentree](https://www.ad.nl/voetbal/psv-zonder-ismael-saibari-en-anass-salah-eddine-in-topper-tegen-ajax-andere-sterkhouder-maakt-mogelijk-rentree~a702b7236/)
-  > PSV kan zaterdag in de uitwedstrijd tegen Ajax niet beschikken over Ismael Saibari en Anass Salah-Eddine. Beide spelers zijn niet op tijd hersteld...
-- [Vrouw (84) overleden na ongeval met zonnetrein in Vlissingen](https://www.ad.nl/binnenland/vrouw-84-overleden-na-ongeval-met-zonnetrein-in-vlissingen~a13d4fe5/)
-  > Een 84-jarige fietsster is vrijdagmorgen om het leven gekomen, nadat zij onder de zonnetrein in Vlissingen terecht kwam. Het ongeval vond plaats rond...
-- [Bridget deelt update over zieke moeder en Rob verlangt naar de barbecue](https://www.ad.nl/show/bridget-deelt-update-over-zieke-moeder-en-rob-verlangt-naar-de-barbecue~a5c9c70c/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Burgemeesters willen meer maatregelen bij legeroefening tijdens droogte](https://www.ad.nl/binnenland/burgemeesters-willen-meer-maatregelen-bij-legeroefening-tijdens-droogte~a53351ec/)
-  > Burgemeesters uit Ede en Weert doen een dringend beroep op de krijgsmacht om extra maatregelen te nemen bij oefeningen tijdens langdurige droogte....
-- [Lindsey Vonn sluit ook na acht operaties (en meer zullen volgen) comeback niet uit: ‘Dat kan ik emotioneel niet aan’](https://www.ad.nl/sport/lindsey-vonn-sluit-ook-na-acht-operaties-en-meer-zullen-volgen-comeback-niet-uit-dat-kan-ik-emotioneel-niet-aan~abc7e849/)
-  > Het is inmiddels bijna drie maanden geleden, maar ski-icoon Lindsey Vonn (41) heeft haar zware val op de Winterspelen emotioneel nog geen plaats...
+- [Vrouw raakt duizenden euro’s kwijt aan ‘bekende zanger’, maar weigert relatie te verbreken](https://www.ad.nl/binnenland/vrouw-raakt-duizenden-euros-kwijt-aan-bekende-zanger-maar-weigert-relatie-te-verbreken~ac257652/)
+  > „Ik kan niet zomaar een punt achter deze relatie zetten. Zijn zoon noemt me mama.’’ Hoewel deze vrouw ons zelf heeft gebeld, wil ze haar relatie met...
+- [Ajax gaat erehaag vormen voor rivaal PSV: ‘Dat is het respect dat een kampioen verdient’](https://www.ad.nl/voetbal/ajax-gaat-erehaag-vormen-voor-rivaal-psv-dat-is-het-respect-dat-een-kampioen-verdient~acca9dce/)
+  > Ajax gaat morgen een erehaag vormen voor PSV. Dat heeft interim-coach Oscar Garcia bevestigd tijdens de persconferentie. „De club heeft dat besloten,...
+- [Tadej Pogacar zet journalist op het verkeerde been: ‘Ik ben liever naakt’](https://www.ad.nl/wielrennen/tadej-pogacar-zet-journalist-op-het-verkeerde-been-ik-ben-liever-naakt~a85b83c3/)
+  > Tadej Pogacar doet deze week mee aan de Ronde van Romandië, waar hij na twee etappes en een proloog aan de leiding staat in het algemeen klassement....
+- [‘Ongeloof’ bij burgemeester over defensie-standpunt, brand bij Weert laait wat op](https://www.ad.nl/binnenland/ongeloof-bij-burgemeester-over-defensie-standpunt-brand-bij-weert-laait-wat-op~a096cec0/)
+  > Burgemeester Raymond Vlecken uit Weert is verbaasd over het standpunt dat defensie inneemt als het gaat om de oefeningen in natuurgebieden, zei hij...
+- [Reacties op natuurbranden: ‘Kennelijk geen nijpend watertekort en de buren komen wel helpen’](https://www.ad.nl/praat-mee/reacties-op-natuurbranden-kennelijk-geen-nijpend-watertekort-en-de-buren-komen-wel-helpen~abc2a99e/)
+  > ‘Defensie heeft kennelijk de macht in Nederland. Het maakt niet uit dat er een tijd is van grote droogte, want er moet geoefend worden’ en ‘Zo snel...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Beurs-exit dreigt voor Chinese eigenaar van Nexperia](https://fd.nl/bedrijfsleven/1595044/beurs-exit-dreigt-voor-chinese-eigenaar-van-nexperia)
-  > De accountant weigert Wingtechs resultaten over 2025 goed te keuren. Dit omdat hij geen controles kan uitvoeren op de buitenlandse activiteiten van...
-- [Waarom belasting innen als je ook geld kunt lenen?](https://fd.nl/economie/1593997/waarom-belasting-innen-als-je-ook-geld-kunt-lenen)
-  > De schuldenberg van de Verenigde Staten loopt op tot 129% van het bbp dit jaar, maar kan tegen 2030 verder stijgen naar 142% van het bbp.
-- [Amerikaanse steun voor Trump brokkelt verder af](https://fd.nl/politiek/1595045/amerikaanse-steun-voor-trump-brokkelt-verder-af)
-  > Bijna 60% keurt het beleid van de Amerikaanse president af, blijkt uit meerdere peilingen. Vooral het economisch beleid en de immigratieaanpak moeten...
-- [Grondstoffenjournalist Javier Blas: ‘Met het vertrek van de Emiraten is de Opec stervende’](https://fd.nl/financiele-markten/1594980/grondstoffenjournalist-javier-blas-met-het-vertrek-van-de-emiraten-is-de-opec-stervende)
-  > De gerenommeerde analist denkt dat er na de Iran-oorlog een periode van overaanbod kan aanbreken. Helemaal als de Emiraten meer gaan produceren nu ze...
-- [Brussel belooft betere regelgeving, maar kan het niet alleen](https://fd.nl/politiek/1594843/brussel-belooft-betere-regelgeving-maar-kan-het-niet-alleen)
-  > De Europese Commissie wil het wetgevingsproces van de EU verbeteren, maar wijst daarbij ook op de rol van lidstaten en het Europees Parlement.
+- [VodafoneZiggo ziet zichzelf op weg naar ‘commerciële turnaround’](https://fd.nl/bedrijfsleven/1594874/vodafoneziggo-ziet-zichzelf-op-weg-naar-commerciele-turnaround)
+  > Het aantal klanten dat per saldo wegloopt bij Ziggo is in het eerste kwartaal van dit jaar opnieuw gedaald.
+- [Belgische bedrijfseconoom laat Bayern München weer swingen](https://fd.nl/bedrijfsleven/1594972/belgische-bedrijfseconoom-laat-bayern-munchen-weer-swingen)
+  > Woensdag speelt Bayern in de Champions League de tweede wedstrijd tegen Paris Saint-Germain. Onder leiding van de Belgische trainer Vincent Kompany...
+- [Arme landen lenen zelfs in Zwitserse francs: ‘In een crisis ben je dan echt het haasje’](https://fd.nl/financiele-markten/1594606/arme-landen-lenen-zelfs-in-zwitserse-francs-in-een-crisis-ben-je-dan-echt-het-haasje)
+  > Arme landen hebben de risico’s van leningen in harde valuta’s nauwelijks in kaart gebracht, zegt de directeur van het Nederlandse valutafonds TCX.
+- [Keuze voor nieuwe ceo Lululemon leidt tot kritiek](https://fd.nl/bedrijfsleven/1594873/keuze-voor-nieuwe-ceo-lululemon-leidt-tot-kritiek)
+  > Ook de oprichter van het yogakledingmerk keurt Heidi O’Neills aanstelling af. Volgens hem is de nieuwe topvrouw zo bezig met financiën dat ze het...
+- [Analisten verwachten weer minder winst voor Toyota](https://fd.nl/bedrijfsleven/1594868/analisten-verwachten-weer-minder-winst-voor-toyota)
+  > De autofabrikant wordt over het eerste kwartaal ingeschat op een operationele winst van $5,17 mrd. Dat is 27% minder dan hetzelfde kwartaal van vorig...
 
 ### Meest gelezen
 
