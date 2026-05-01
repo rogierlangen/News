@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-05-2026 om 22:56*
+*Laatst bijgewerkt: 01-05-2026 om 23:57*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Trump in brief aan Congres: vijandelijkheden met Iran zijn beëindigd, president ‘niet blij met vredesvoorstel’](https://www.ad.nl/buitenland/trump-in-brief-aan-congres-vijandelijkheden-met-iran-zijn-beeindigd-president-niet-blij-met-vredesvoorstel~ac528ac3/)
+  > De Amerikaanse president Donald Trump heeft vrijdag in een brief aan de leiders van het Amerikaanse Congres geschreven dat de vijandelijkheden met...
+- [LIVE Formule 1 | Isack Hadjar snapt niets van gat met teamgenoot Max Verstappen: ‘Ik weet dat ik kan rijden’](https://www.ad.nl/formule-1/live-formule-1-isack-hadjar-snapt-niets-van-gat-met-teamgenoot-max-verstappen-ik-weet-dat-ik-kan-rijden~ab65c26a/)
+  > Na een onderbreking van vijf weken gaat de Formule 1 dit weekend verder met race vier, de Grand Prix van Miami. Volg hier ons liveblog.
 - [VS trekken 5.000 militairen terug uit Duitsland na clash tussen Trump en Duitse bondskanselier Merz](https://www.ad.nl/buitenland/vs-trekken-5-000-militairen-terug-uit-duitsland-na-clash-tussen-trump-en-duitse-bondskanselier-merz~ae67dd9c/)
   > De VS gaan 5000 militairen uit Duitsland terugtrekken. De Amerikaanse minister van Defensie Pete Hegseth heeft daarvoor de opdracht gegeven, aldus...
 - [Twee jaar geblesseerd, nu is Yanick van Osch de held in Waalwijk: RKC door in de play-offs](https://www.ad.nl/voetbal/twee-jaar-geblesseerd-nu-is-yanick-van-osch-de-held-in-waalwijk-rkc-door-in-de-play-offs~ab104176/)
   > RKC Waalwijk heeft zich geplaatst voor de kwartfinales van de play-offs om promotie, waarin het gaat spelen tegen Willem II. RKC-keeper Yanick van...
 - [Tijden Formule 1 Grand Prix van Miami | Max Verstappen weer in actie tijdens sprintraceweekend in VS](https://www.ad.nl/formule-1/tijden-formule-1-grand-prix-van-miami-max-verstappen-weer-in-actie-tijdens-sprintraceweekend-in-vs~ae174dcc/)
   > Door de geschrapte races in Bahrein en Saoedi-Arabië heeft het Formule 1-seizoen een maand stilgelegen. Dit weekend pakken Max Verstappen en zijn...
-- [Ridgeciano Haps viert feest met Venezia, Calvin Stengs degradeert na 42 speelminuten met Pisa](https://www.ad.nl/voetbal/ridgeciano-haps-viert-feest-met-venezia-calvin-stengs-degradeert-na-42-speelminuten-met-pisa~adb44abc/)
-  > Lecce heeft in de Serie A de degradatie van Pisa en Hellas Verona definitief gemaakt. De nummer 17 uit de Italiaanse competitie won vrijdagavond met...
-- [Max Verstappen complimenteus na beste kwalificatie van het jaar: ‘Enorme vooruitgang’](https://www.ad.nl/formule-1/max-verstappen-complimenteus-na-beste-kwalificatie-van-het-jaar-enorme-vooruitgang~a1e7e39a/)
-  > Max Verstappen begint zaterdag (18.00 uur Nederlandse tijd) als vijfde aan de sprintrace in Miami. Pole ging voor de verandering niet naar Mercedes....
 
 ### Meest gelezen
 
