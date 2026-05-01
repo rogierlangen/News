@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-05-2026 om 16:04*
+*Laatst bijgewerkt: 01-05-2026 om 18:01*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Geweldpleger gemeentehuis Loosdrecht krijgt wekenlange celstraf](https://nos.nl/l/2612668)
-  > De man die deze week ruiten ingooide bij het gemeentehuis in Loosdrecht, heeft een gevangenisstraf van zes weken gekregen. Twee weken daarvan zijn...
-- [Save the Children: Frontex geeft vertekend beeld van migratiecijfers](https://nos.nl/l/2612666)
-  > De Europese Unie geeft een zeer vertekend beeld van het aantal migranten dat Europa binnenkomt via de zogenoemde Balkanroute, zegt Save the Children....
-- [Autoriteit Financiële Markten: verstandig om te beleggen als je genoeg spaargeld hebt](https://nos.nl/l/2612660)
-  > De Autoriteit Financiële Markten (AFM) adviseert mensen die voldoende spaargeld hebben om te gaan beleggen. Volgens de AFM heeft een op de drie...
-- [Brand in bos bij Kootwijk onder controle, A1 ter hoogte van Stroe weer open](https://nos.nl/l/2612657)
-  > De grote brand in een bosrijk gebied in de Gelderse plaats Kootwijk is onder controle. Dat meldt de veiligheidsregio Gelderland-Midden.
-        De...
-- [Oscar van Russische filmmaker die zoekraakte op vliegveld weer boven water](https://nos.nl/l/2612655)
-  > De Oscar die de Russische filmmaker Pavel Talankin voor zijn vlucht van New York naar Frankfurt moest inleveren en vervolgens zoekraakte, is weer...
+- [Marineschip Evertsen komt binnenkort terug naar Nederland](https://nos.nl/l/2612686)
+  > Het Nederlandse marineschip Zr. Ms. Evertsen keert begin deze maand terug naar Nederland. De inzet wordt niet verlengd, schrijven defensieminister...
+- [Zorgen én optimisme over vrijhandelsverdrag Europa en Latijns-Amerika](https://nos.nl/l/2612683)
+  > Een Europa dat militair en economisch meer op eigen benen moet staan, onafhankelijker van de Verenigde Staten, daar gaat het de laatste tijd veel...
+- [FNV dreigt met ov-staking in juni, zonder met details te komen](https://nos.nl/l/2612682)
+  > Vakbond FNV dreigt half juni te gaan staken in het openbaar vervoer. Wanneer die staking precies is en hoelang die zou duren is nog onduidelijk.
+    ...
+- [Brand 't Harde nog niet onder controle, bluswerkzaamheden gaan door](https://nos.nl/l/2612678)
+  > De brand die woensdag ontstond op het militaire oefenterrein 't Harde is nog altijd niet onder controle. De brandweer was vanmiddag nog volop bezig...
+- [Bijzondere WO II-beelden ontdekt van Duitse aftocht in Drachten](https://nos.nl/l/2612677)
+  > Er zijn bijzondere beelden opgedoken van de aftocht van Duitse troepen uit Drachten na de capitulatie van nazi-Duitsland. Op de beelden is te zien...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Misschien zou het helpen als er vanuit het Torentje meer leiderschap wordt getoond](https://www.ad.nl/binnenland/misschien-zou-het-helpen-als-er-vanuit-het-torentje-meer-leiderschap-wordt-getoond~ac913b25/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Vakbond dreigt met stakingen in openbaar vervoer: ‘Dit is pure afbraak van sociale zekerheid’](https://www.ad.nl/binnenland/vakbond-dreigt-met-stakingen-in-openbaar-vervoer-dit-is-pure-afbraak-van-sociale-zekerheid~aa27c966/)
-  > De FNV is medio juni van plan te gaan staken in het openbaar vervoer. De grootste vakbond van Nederland is niet te spreken over de kabinetsplannen...
-- [Max Verstappen heeft extra lange eerste vrije training voor de boeg in Miami](https://www.ad.nl/formule-1/max-verstappen-heeft-extra-lange-eerste-vrije-training-voor-de-boeg-in-miami~a6db0629/)
-  > De Formule 1 is na een pauze van vijf weken weer terug. In Miami gaan Max Verstappen en zijn collega’s beginnen aan het raceweekend met een extra...
-- [Egotripperij, politiek en een gestrande reuzenwalvis: wie vechten om de aandacht in Timmy-gate?](https://www.ad.nl/buitenland/egotripperij-politiek-en-een-gestrande-reuzenwalvis-wie-vechten-om-de-aandacht-in-timmy-gate~a7912050/)
-  > De lotgevallen van reuzenwalvis Timmy trekken in Duitsland en internationaal veel bekijks. Verschillende ego’s vechten over de (bult)rug van Timmy,...
-- [Deze maatregelen moeten voorkomen dat de Veluwe compleet afbrandt, maar dat is niet genoeg](https://www.ad.nl/binnenland/deze-maatregelen-moeten-voorkomen-dat-de-veluwe-compleet-afbrandt-maar-dat-is-niet-genoeg~a817ec38/)
-  > De grote brand bij ’t Harde laat zien hoe kwetsbaar de Veluwe in droge periodes is. Om te voorkomen dat het natuurgebied bij brand volledig in...
+- [Petra (43) mag naar Olympische Spelen van het bodybuilden: ‘Die zilveren plak was de mooiste’](https://www.ad.nl/binnenland/petra-43-mag-naar-olympische-spelen-van-het-bodybuilden-die-zilveren-plak-was-de-mooiste~aa55255b/)
+  > Ze sloeg een jaartje over, maar kwam sterker dan ooit terug. Petra Behage (43) uit Goes haalde afgelopen weekend twee gouden en een zilveren medaille...
+- [Verhoogde importheffing op auto’s door Trump zet kwaad bloed in Europa: ‘Zo behandel je partners niet’](https://www.ad.nl/buitenland/verhoogde-importheffing-op-autos-door-trump-zet-kwaad-bloed-in-europa-zo-behandel-je-partners-niet~ae67dd9c/)
+  > De Amerikaanse president Donald Trump gaat de importheffing op auto’s en vrachtwagens uit de Europese Unie verhogen naar 25 procent. De voorzitter...
+- [Flick stelt dat Yamal op WK te zien is, Iraanse bond wil voorwaarden aan WK-deelname](https://www.ad.nl/wk-voetbal/flick-stelt-dat-yamal-op-wk-te-zien-is-iraanse-bond-wil-voorwaarden-aan-wk-deelname~a61805da/)
+  > Over minder dan vijftig dagen begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste...
+- [Portugees international vertrekt na acht jaar bij Leicester, oud-PSV’er Max na een maand weg bij Japanse club](https://www.ad.nl/voetbal/portugees-international-vertrekt-na-acht-jaar-bij-leicester-oud-psver-max-na-een-maand-weg-bij-japanse-club~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Stroom zo goedkoop dat Aljo geld toe krijgt: ‘Een vriend kwam zijn auto hier laden’](https://www.ad.nl/economie/stroom-zo-goedkoop-dat-aljo-geld-toe-krijgt-een-vriend-kwam-zijn-auto-hier-laden~aa348c3b/)
+  > Stroom gebruiken en geld toe krijgen? Aljo Hartgers (44) uit Oosterbeek weet hoe hij optimaal profiteert van de extreem lage dynamische...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [FNV-voorzitter Hans Spekman: ‘Leg winstbelasting en hypotheekrenteaftrek ook op tafel in onderhandelingen’](https://fd.nl/politiek/1595083/fnv-voorzitter-hans-spekman-leg-winstbelasting-en-hypotheekrenteaftrek-ook-op-tafel-in-onderhandelingen)
+  > Terwijl het kabinet miljarden zoekt bij de WW, WIA en AOW, schuift de nieuwe FNV-voorzitter Hans Spekman de hypotheekrenteaftrek en de winstbelasting...
+- [Trump verhoogt heffingen op EU-voertuigen, nieuw handelsconflict dreigt](https://fd.nl/politiek/1595069/trump-verhoogt-heffingen-op-eu-voertuigen-nieuw-handelsconflict-dreigt)
+  > De Amerikaanse president kondigde vrijdag aan dat de heffingen op Europese auto's en vrachtwagens stijgen van 15% naar 25%. De vraag is of hij die...
+- [Vion verkoopt laatste van drie Duitse slachtlocaties](https://fd.nl/bedrijfsleven/1595106/vion-verkoopt-laatste-van-drie-duitse-slachtlocaties)
+  > De vleesverwerker stevent af op het einde van een langlopend verkoopproces.
+- [Cloudbedrijf Nebius koopt Eigen AI](https://fd.nl/bedrijfsleven/1595068/cloudbedrijf-nebius-koopt-eigen-ai)
+  > Nebius betaalt omgerekend $643 mln in contanten en aandelen voor het bedrijf, dat zich richt op het verbeteren van de prestaties van AI-chips.
 - [Nieuw chemiebedrijf Velogy krijgt hoofdkantoor in Rotterdam](https://fd.nl/bedrijfsleven/1595067/nieuw-chemiebedrijf-velogy-krijgt-hoofdkantoor-in-rotterdam)
   > Velogy bestiert oude fabrieken van LyondellBasell, die al vanuit Rotterdam geleid werden. De petrochemische activiteiten van Sabic in Europa komen...
-- [RAI Amsterdam draait ‘beste oneven jaar in geschiedenis’](https://fd.nl/bedrijfsleven/1595078/rai-amsterdam-draait-beste-oneven-jaar-in-geschiedenis)
-  > Het beurs- en congresbedrijf overtreft met de omzet en de winst het ‘beter vergelijkbare jaar 2023’ en rekent op een goed beursjaar in 2026.
-- [Japan besteedt alvast $35 mrd aan een gevecht tegen de wind](https://fd.nl/financiele-markten/1595051/japan-besteedt-alvast-35-mrd-aan-een-gevecht-tegen-de-wind)
-  > Het Japanse ministerie van financiën greep donderdag in op de valutamarkten, waardoor de yen ruim 3% aandikte tegenover de Amerikaanse dollar. De...
-- [Nederlands grootste autobedrijf boekt iets meer winst, blijft bedrijven overnemen](https://fd.nl/bedrijfsleven/1595081/nederlands-grootste-autobedrijf-boekt-iets-meer-winst-blijft-bedrijven-overnemen)
-  > Van Mossel Automotive Group gaat verder uitbreiden over de grens en zal binnen twee weken twee nieuwe buitenlandse overnames bekendmaken.
-- [De AI-strategie van Apple: liever lui dan arm](https://fd.nl/financiele-markten/1595061/de-ai-strategie-van-apple-liever-lui-dan-arm)
-  > Waar de andere techbedrijven hun geld in een zwart AI-gat gooien, koopt Apple er eigen aandelen van terug. Wat de winnende strategie zal zijn, moet...
 
 ### Meest gelezen
 
