@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-05-2026 om 21:48*
+*Laatst bijgewerkt: 02-05-2026 om 22:49*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [17-jarige gewond na steekpartij in Rotterdam, ook schoten gelost](https://nos.nl/l/2612833)
+  > Een jongen van 17 jaar is zaterdagavond gewond geraakt bij een steekpartij in Rotterdam. Rond hetzelfde tijdstip werden in die straat ook schoten...
 - [Tienduizenden bezoekers bij illegale rave op militair terrein in Frankrijk](https://nos.nl/l/2612817)
   > Zo'n 30.000 tot 40.000 mensen zijn zaterdag afgekomen op een illegale rave op een militair oefenterrein in Frankrijk, meldt persbureau AFP. Gisteren...
 - [Onweersbuien trekken over Nederland, code geel behalve in noordelijke provincies](https://nos.nl/l/2612801)
@@ -16,8 +18,6 @@
   > Het 26e seizoen van het populaire televisieprogramma Wie is de Mol? is gewonnen door radio-dj en komiek Bram Krikke. Hij wint een bedrag van 13.280...
 - [Jong kind zwaargewond na klap van molenwiek in Hei- en Boeicop](https://nos.nl/l/2612793)
   > Een jong kind is vanmiddag zwaargewond geraakt nadat hij of zij werd geraakt door een molenwiek in Hei- en Boeicop in de Utrechtse gemeente...
-- [Verdachte van vergiftigen babyvoeding opgepakt in Oostenrijk](https://nos.nl/l/2612789)
-  > De Oostenrijkse politie heeft in de deelstaat Burgenland een 39-jarige man opgepakt die ervan wordt verdacht rattengif in babyvoeding te hebben...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tijden GP van Miami | Zo laat begint Max Verstappen zondag aan de race en dit is de startopstelling](https://www.ad.nl/formule-1/tijden-gp-van-miami-zo-laat-begint-max-verstappen-zondag-aan-de-race-en-dit-is-de-startopstelling~ae174dcc/)
-  > Max Verstappen greep zaterdagavond net naast poleposition voor de Grand Prix van Miami. De Nederlander start zondag vanaf P2, waarmee hij veruit zijn...
-- [Francesco Farioli kampioen met FC Porto, Lukas Podolski wint Poolse beker met jeugdliefde](https://www.ad.nl/voetbal/francesco-farioli-kampioen-met-fc-porto-lukas-podolski-wint-poolse-beker-met-jeugdliefde~a4177c09/)
-  > FC Porto is zaterdagavond kampioen van Portugal geworden. De ploeg van de Italiaanse trainer Francesco Farioli won in het Estádio do Dragão met 1-0...
-- [Na spectaculaire slotfase loopt NEC dreun op in strijd om Champions League-ticket: gelijkspel tegen Telstar](https://www.ad.nl/voetbal/na-spectaculaire-slotfase-loopt-nec-dreun-op-in-strijd-om-champions-league-ticket-gelijkspel-tegen-telstar~a9d1c544/)
-  > In de spannende strijd om een Champions League-ticket komt NEC niet verder dan een gelijkspel tegen Telstar. In een spectaculaire slotfase van het...
-- [Max Verstappen start na uitstekende kwalificatie vanaf tweede plek: ‘Er is licht aan het einde van de tunnel’](https://www.ad.nl/formule-1/max-verstappen-start-na-uitstekende-kwalificatie-vanaf-tweede-plek-er-is-licht-aan-het-einde-van-de-tunnel~a9aba043/)
-  > Max Verstappen heeft nét naast poleposition gegrepen voor de Grand Prix van Miami. De Nederlander start zondag vanaf P2, waarmee hij veruit zijn...
+- [Illegale rave op militair terrein in Frankrijk trekt tienduizenden feestgangers](https://www.ad.nl/buitenland/illegale-rave-op-militair-terrein-in-frankrijk-trekt-tienduizenden-feestgangers~a24a6bba/)
+  > Een illegale technorave op een militair terrein in Zuid-Frankrijk heeft zaterdagavond tot zo’n 40.000 feestgangers bijeengebracht. De autoriteiten...
 - [Stevens en Huntelaar zien Schalke 04 promoveren: ‘We hebben een fantastisch seizoen gehad’](https://www.ad.nl/voetbal/stevens-en-huntelaar-zien-schalke-04-promoveren-we-hebben-een-fantastisch-seizoen-gehad~a4bec5c9/)
   > Schalke 04 keert na drie jaar terug naar de Bundesliga. De club uit Gelsenkirchen won zaterdagavond met 1-0 van Fortuna Düsseldorf door een goal van...
+- [Tijden GP van Miami | Zo laat begint Max Verstappen zondag aan de race en dit is de startopstelling](https://www.ad.nl/formule-1/tijden-gp-van-miami-zo-laat-begint-max-verstappen-zondag-aan-de-race-en-dit-is-de-startopstelling~ae174dcc/)
+  > Max Verstappen greep zaterdagavond net naast poleposition voor de Grand Prix van Miami. De Nederlander start zondag vanaf P2, waarmee hij veruit zijn...
+- [Farioli en De Jong kampioen met Porto, Podolski wint Poolse beker met jeugdliefde](https://www.ad.nl/voetbal/farioli-en-de-jong-kampioen-met-porto-podolski-wint-poolse-beker-met-jeugdliefde~a4177c09/)
+  > FC Porto is zaterdagavond kampioen van Portugal geworden. De ploeg van de Italiaanse trainer Francesco Farioli won in het Estádio do Dragão met 1-0...
+- [Na spectaculaire slotfase loopt NEC dreun op in strijd om Champions League-ticket: gelijkspel tegen Telstar](https://www.ad.nl/voetbal/na-spectaculaire-slotfase-loopt-nec-dreun-op-in-strijd-om-champions-league-ticket-gelijkspel-tegen-telstar~a9d1c544/)
+  > In de spannende strijd om een Champions League-ticket kwam NEC zaterdagavond niet verder dan een gelijkspel tegen Telstar. In een spectaculaire...
 
 ### Meest gelezen
 
