@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-05-2026 om 10:00*
+*Laatst bijgewerkt: 02-05-2026 om 11:49*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Cybercrimebaas waarschuwt voor grote golf online criminaliteit: ‘AI geeft criminelen ongekende krachten’](https://www.ad.nl/binnenland/cybercrimebaas-waarschuwt-voor-grote-golf-online-criminaliteit-ai-geeft-criminelen-ongekende-krachten~aee60768/)
-  > Artificial Intelligence (AI) is de komende jaren een van de grootste wapens van de onderwereld. Sterker, in een handomdraai kan AI van de meest...
-- [Ontwerper klaagt Kim Kardashian aan voor naam ondergoedlijn](https://www.ad.nl/show/ontwerper-klaagt-kim-kardashian-aan-voor-naam-ondergoedlijn~a399eaaa/)
-  > Kim Kardashian wordt door een kledingontwerpster uit New York aangeklaagd voor inbreuk op een handelsmerk. Dat meldt Page Six op basis van...
-- [Voormalig Formule 1-coureur en paralympisch kampioen Alessandro Zanardi (59) overleden](https://www.ad.nl/formule-1/voormalig-formule-1-coureur-en-paralympisch-kampioen-alessandro-zanardi-59-overleden~ab0686562/)
-  > Voormalig Formule 1-coureur en paralympisch kampioen Alessandro ‘Alex’ Zanardi is op 59-jarige leeftijd overleden. Dat heeft zijn familie zaterdag...
-- [Na dagen blussen op Veluwe: eindelijk sein brandmeester bij legerterrein ‘t Harde](https://www.ad.nl/binnenland/na-dagen-blussen-op-veluwe-eindelijk-sein-brandmeester-bij-legerterrein-t-harde~ae245f6f/)
-  > De brandweer heeft het sein brand meester gegeven voor de grote natuurbrand in ‘t Harde. Dat meldt de Veiligheidsregio Noord- en Oost-Gelderland. De...
-- [Dennis komt al 33 jaar bij Manchester United: ‘In de Maserati van Jordi Cruijff praatten we over onze club’](https://www.ad.nl/voetbal/dennis-komt-al-33-jaar-bij-manchester-united-in-de-maserati-van-jordi-cruijff-praatten-we-over-onze-club~a5f0ae78/)
-  > Hij zat in de Maserati van Jordi Cruijff, dronk een biertje met Eric Cantona en zat in de ontbijtzaal met Cristiano Ronaldo. Als secretaris van de...
+- [William en Catherine delen nieuw kiekje van jarige prinses Charlotte](https://www.ad.nl/show/william-en-catherine-delen-nieuw-kiekje-van-jarige-prinses-charlotte~add7d6d0/)
+  > William en Catherine hebben zaterdagochtend hun dochter Charlotte gefeliciteerd met haar elfde verjaardag. De prins en prinses van Wales deelden een...
+- [De sushi uit deze supermarkt moet je hebben: ‘Kraakverse vis en mooie rijst’](https://www.ad.nl/gezond/de-sushi-uit-deze-supermarkt-moet-je-hebben-kraakverse-vis-en-mooie-rijst~a18ee36e/)
+  > In Japan is sushi als een boterham met kaas voor ons. Je eet het als snelle lunch, maar ook als snackje tussendoor. Ook wij zijn inmiddels dol op de...
+- [Ongekende patstelling van een uur zorgt voor langste frame ooit op WK snooker: ‘Schande voor onze sport’](https://www.ad.nl/andere-sporten/ongekende-patstelling-van-een-uur-zorgt-voor-langste-frame-ooit-op-wk-snooker-schande-voor-onze-sport~a03a3f9b/)
+  > Bizarre toestanden op het WK snooker. In de halve finale tussen toppers Mark Allen en Wu Yize werd er door een krankzinnige ligging van de rode...
+- [Voormalig discobaas Hugo (72) over zijn nieuwe leven: ‘Ik had alles, maar ik zat in de verkeerde film’](https://www.ad.nl/binnenland/voormalig-discobaas-hugo-72-over-zijn-nieuwe-leven-ik-had-alles-maar-ik-zat-in-de-verkeerde-film~a69cb69d/)
+  > Hij had het allemaal: de beste discotheek van de stad, auto’s en luxe vakanties. Hugo van Rooij (72) knippert even met zijn ogen als hij eraan...
+- [Roxy geniet van spamomentje en Gordon neemt afscheid van geliefde horecazaak](https://www.ad.nl/show/roxy-geniet-van-spamomentje-en-gordon-neemt-afscheid-van-geliefde-horecazaak~a5c9c70c/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [AFM: grote groep spaarders loopt rendement mis door niet te beleggen](https://fd.nl/financiele-markten/1595197/afm-grote-groep-spaarders-loopt-rendement-mis-door-niet-te-beleggen)
+  > Volgens de AFM kan het raadzaam zijn om het beschikbare vermogen meer te laten renderen, aangezien ze later mogelijk juist geld tekortkomen.
 - [Franse bankier: ‘Miljardairs hebben waarde gecreëerd, banen gecreëerd, een economie opgebouwd’](https://fd.nl/economie/1594607/franse-bankier-miljardairs-hebben-waarde-gecreeerd-banen-gecreeerd-een-economie-opgebouwd)
   > Onder veel Fransen leeft het idee dat de supperrijken maar meer belasting moeten betalen om sociale voorzieningen betaalbaar te houden. Nicolas...
 - [‘GameStop bereidt bod op eBay voor’](https://fd.nl/bedrijfsleven/1595195/gamestop-bereidt-bod-op-ebay-voor)
@@ -54,8 +56,6 @@
   > Ingreep volgt na ergernis Donald Trump over kritische uitlatingen bondskanselier Friedrich Merz over de oorlog rond Iran.
 - [Oorlog met Iran vertraagt wapenleveringen VS aan Europa](https://fd.nl/politiek/1595115/oorlog-met-iran-vertraagt-wapenleveringen-vs-aan-europa)
   > Dat meldde de Britse zakenkrant Financial Times vrijdag op basis van ingewijden.
-- [OpenAI in het beklaagdenbankje: Musk verwijt Altman verraad aan idealen](https://fd.nl/bedrijfsleven/1595064/openai-in-het-beklaagdenbankje-musk-verwijt-altman-verraad-aan-idealen)
-  > Elon Musk is medeoprichter en een van de eerste geldschieters van OpenAI, het bedrijf achter ChatGPT. Hij eist $130 mrd schadevergoeding en wil dat...
 
 ### Meest gelezen
 
