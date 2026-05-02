@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-05-2026 om 16:54*
+*Laatst bijgewerkt: 02-05-2026 om 17:49*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Verdachte van vergiftigen babyvoeding opgepakt in Oostenrijk](https://nos.nl/l/2612789)
+  > De Oostenrijkse politie heeft in de deelstaat Burgenland een 39-jarige man opgepakt die ervan wordt verdacht rattengif in babyvoeding te hebben...
 - [Britse tweelingzussen ontdekken na decennia dat ze niet dezelfde vader hebben](https://nos.nl/l/2612780)
   > Twee Britse tweelingzussen hebben na decennia ontdekt dat ze twee verschillende vaders hebben. Daar kwamen ze achter door DNA-onderzoek.
         De...
@@ -17,8 +19,6 @@
   > De politie heeft gisteravond acht verdachten aangehouden na een steekincident in Winschoten waarbij meerdere personen betrokken waren. Drie mensen...
 - ['Weghalen militairen VS uit Duitsland ondermijnt Amerikaanse geloofwaardigheid'](https://nos.nl/l/2612763)
   > De Verenigde Staten trekken 5000 militairen terug uit Duitsland, heeft het Pentagon bekendgemaakt. Volgens experts is dat vooral een signaal van...
-- [Rechte Utrechtse sloten krijgen weer bochten: 'Rondje fietsen wordt genieten'](https://nos.nl/l/2612753)
-  > Duizenden meters aan sloten en beken in de provincie Utrecht die nu nog recht zijn, moeten weer gaan kronkelen. Daardoor moet de variatie in de...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Verstappen schuift toch nog plekje op in sprintrace door tijdstraf voor Antonelli, Norris overtuigend naar de zege](https://www.ad.nl/formule-1/verstappen-schuift-toch-nog-plekje-op-in-sprintrace-door-tijdstraf-voor-antonelli-norris-overtuigend-naar-de-zege~a04a7dac/)
+- [Ajax-coach Óscar García verklaart defensief middenveld tegen PSV: ‘Wout is ziek’](https://www.ad.nl/voetbal/ajax-coach-oscar-garcia-verklaart-defensief-middenveld-tegen-psv-wout-is-ziek~acdaa3bb/)
+  > PSV speelt alleen nog maar voor de eer in de Johan Cruijff Arena, maar Ajax heeft de punten heel hard nodig. De Amsterdammers willen de play-offs...
+- [Eigen goal Diant Ramaj (ex-Ajax) tegen Bayern, ook PSG speelt gelijk in aanloop naar kraker in München](https://www.ad.nl/voetbal/eigen-goal-diant-ramaj-ex-ajax-tegen-bayern-ook-psg-speelt-gelijk-in-aanloop-naar-kraker-in-munchen~a31576d4/)
+  > Bayern München heeft in de Bundesliga op het laatste moment nog een nederlaag kunnen voorkomen. In de 100ste minuut kreeg FC Heidenheim-keeper Diant...
+- [De allerbeste koptelefoon kost 500 euro, maar een van 40 euro valt ook op](https://www.ad.nl/tech/de-allerbeste-koptelefoon-kost-500-euro-maar-een-van-40-euro-valt-ook-op~a8ad2b1a/)
+  > Ongestoord werken in een kantoortuin, dat vervelende gesprek in de trein buitensluiten met je favoriete muziek of een podcast luisteren: een...
+- [Tijden GP van Miami | Zo laat begint Max Verstappen vanavond aan de kwalificatie voor de race van morgen](https://www.ad.nl/formule-1/tijden-gp-van-miami-zo-laat-begint-max-verstappen-vanavond-aan-de-kwalificatie-voor-de-race-van-morgen~ae174dcc/)
+  > Door de geschrapte races in Bahrein en Saoedi-Arabië heeft het Formule 1-seizoen een maand stilgelegen. Dit weekend pakken Max Verstappen en zijn...
+- [Verstappen schuift nog plekje op in sprintrace door tijdstraf Antonelli: ‘Fijn dat ik weer met auto’s voor me kan vechten’](https://www.ad.nl/formule-1/verstappen-schuift-nog-plekje-op-in-sprintrace-door-tijdstraf-antonelli-fijn-dat-ik-weer-met-autos-voor-me-kan-vechten~a04a7dac/)
   > Na een hoopvolle vrijdag is Max Verstappen bij de sprintrace in Miami vijfde geworden. Na een fraai gevecht eindigde de Nederlander toch nog voor...
-- [Kim Kardashian en Lewis Hamilton knuffelen op het strand: hoe bouw je een relatie op als de wereld meekijkt?](https://www.ad.nl/show/kim-kardashian-en-lewis-hamilton-knuffelen-op-het-strand-hoe-bouw-je-een-relatie-op-als-de-wereld-meekijkt~a380662a/)
-  > Weer een wereldberoemd koppel aan het sterrenfirmament: Kim Kardashian en Lewis Hamilton zijn een setje. Heeft het kans van slagen als twee zulke...
-- [Van schoonmaker zonder papieren tot bisschop: kritiek op Trump klinkt door in keuze van paus](https://www.ad.nl/buitenland/van-schoonmaker-zonder-papieren-tot-bisschop-kritiek-op-trump-klinkt-door-in-keuze-van-paus~ac7aa3c7/)
-  > Paus Leo XIV heeft een voormalig migrant zonder papieren benoemd tot bisschop in de Amerikaanse staat West Virginia. De paus durfde zich al eerder...
-- [LIVE eredivisie | Groningen schiet uit de startblokken: De Jonge kopt in alle vrijheid raak](https://www.ad.nl/voetbal/live-eredivisie-groningen-schiet-uit-de-startblokken-de-jonge-kopt-in-alle-vrijheid-raak~a29ae2cd/)
-  > FC Groningen en Excelsior spelen met verschillende belangen in de Euroborg, maar beide ploegen hebben de punten hard nodig. FC Groningen wil graag...
-- [Wieffer valt geblesseerd uit bij Brighton, teamgenoot van Brobbey krijgt rood na harentrekken](https://www.ad.nl/voetbal/wieffer-valt-geblesseerd-uit-bij-brighton-teamgenoot-van-brobbey-krijgt-rood-na-harentrekken~a5ffaba4/)
-  > Mats Wieffer heeft zaterdag mogelijk een enkelblessure opgelopen. De voormalig Feyenoord-middenvelder moest in de uitwedstrijd bij Newcastle United...
 
 ### Meest gelezen
 
