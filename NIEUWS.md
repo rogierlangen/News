@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-05-2026 om 22:49*
+*Laatst bijgewerkt: 02-05-2026 om 23:51*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [LIVE VS | Producent abortuspil start spoedprocedure bij Hooggerechtshof na verzendverbod](https://www.ad.nl/buitenland/live-vs-producent-abortuspil-start-spoedprocedure-bij-hooggerechtshof-na-verzendverbod~ae67dd9c/)
+  > Een van de twee producenten van de abortuspil mifepriston heeft zaterdag een spoedprocedure opgestart bij het Amerikaans Hooggerechtshof. De...
 - [Illegale rave op militair terrein in Frankrijk trekt tienduizenden feestgangers](https://www.ad.nl/buitenland/illegale-rave-op-militair-terrein-in-frankrijk-trekt-tienduizenden-feestgangers~a24a6bba/)
   > Een illegale technorave op een militair terrein in Zuid-Frankrijk heeft zaterdagavond tot zo’n 40.000 feestgangers bijeengebracht. De autoriteiten...
 - [Stevens en Huntelaar zien Schalke 04 promoveren: ‘We hebben een fantastisch seizoen gehad’](https://www.ad.nl/voetbal/stevens-en-huntelaar-zien-schalke-04-promoveren-we-hebben-een-fantastisch-seizoen-gehad~a4bec5c9/)
@@ -34,9 +36,7 @@
 - [Tijden GP van Miami | Zo laat begint Max Verstappen zondag aan de race en dit is de startopstelling](https://www.ad.nl/formule-1/tijden-gp-van-miami-zo-laat-begint-max-verstappen-zondag-aan-de-race-en-dit-is-de-startopstelling~ae174dcc/)
   > Max Verstappen greep zaterdagavond net naast poleposition voor de Grand Prix van Miami. De Nederlander start zondag vanaf P2, waarmee hij veruit zijn...
 - [Farioli en De Jong kampioen met Porto, Podolski wint Poolse beker met jeugdliefde](https://www.ad.nl/voetbal/farioli-en-de-jong-kampioen-met-porto-podolski-wint-poolse-beker-met-jeugdliefde~a4177c09/)
-  > FC Porto is zaterdagavond kampioen van Portugal geworden. De ploeg van de Italiaanse trainer Francesco Farioli won in het Estádio do Dragão met 1-0...
-- [Na spectaculaire slotfase loopt NEC dreun op in strijd om Champions League-ticket: gelijkspel tegen Telstar](https://www.ad.nl/voetbal/na-spectaculaire-slotfase-loopt-nec-dreun-op-in-strijd-om-champions-league-ticket-gelijkspel-tegen-telstar~a9d1c544/)
-  > In de spannende strijd om een Champions League-ticket kwam NEC zaterdagavond niet verder dan een gelijkspel tegen Telstar. In een spectaculaire...
+  > FC Porto is zaterdagavond voor de 31ste keer kampioen van Portugal geworden. De ploeg van de Italiaanse trainer Francesco Farioli won in het Estádio...
 
 ### Meest gelezen
 
