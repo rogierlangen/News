@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-05-2026 om 19:06*
+*Laatst bijgewerkt: 02-05-2026 om 20:49*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Winnaar en mol Wie is de Mol zijn bekend](https://nos.nl/l/2612800)
-  > Het 26e seizoen van het populaire televisieprogramma Wie is de Mol? is gewonnen door tv-presentator en komiek Bram Krikke. Hij versloeg in de finale...
+- [Tienduizenden bezoekers bij illegale rave op militair terrein in Frankrijk](https://nos.nl/l/2612817)
+  > Zo'n 30.000 tot 40.000 mensen zijn zaterdag afgekomen op een illegale rave op een militair oefenterrein in Frankrijk, meldt persbureau AFP. Gisteren...
+- [Onweersbuien trekken over Nederland, code geel behalve in noordelijke provincies](https://nos.nl/l/2612801)
+  > Na ruim een maand droogte trekken er nu vanuit het zuiden regen- en onweersbuien over het land. Plaatselijk kunnen die gepaard gaan met hagelstenen...
+- [Winnaar en mol Wie is de Mol zijn bekend: 'Ben er met gestrekt been ingegaan'](https://nos.nl/l/2612800)
+  > Het 26e seizoen van het populaire televisieprogramma Wie is de Mol? is gewonnen door radio-dj en komiek Bram Krikke. Hij wint een bedrag van 13.280...
 - [Jong kind zwaargewond na klap van molenwiek in Hei- en Boeicop](https://nos.nl/l/2612793)
   > Een jong kind is vanmiddag zwaargewond geraakt nadat hij of zij werd geraakt door een molenwiek in Hei- en Boeicop in de Utrechtse gemeente...
 - [Verdachte van vergiftigen babyvoeding opgepakt in Oostenrijk](https://nos.nl/l/2612789)
   > De Oostenrijkse politie heeft in de deelstaat Burgenland een 39-jarige man opgepakt die ervan wordt verdacht rattengif in babyvoeding te hebben...
-- [Britse tweelingzussen ontdekken na decennia dat ze niet dezelfde vader hebben](https://nos.nl/l/2612780)
-  > Twee Britse tweelingzussen hebben na decennia ontdekt dat ze twee verschillende vaders hebben. Daar kwamen ze achter door DNA-onderzoek.
-        De...
-- [Toerisme in het slop: in de VS voelen ze de 'Trump-dip'](https://nos.nl/l/2612777)
-  > De Verenigde Staten raken uit de gratie als vakantiebestemming. Hoewel toerisme vorig jaar wereldwijd een recordjaar beleefde, kwamen ruim 5 procent...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nog voor alle huurders konden profiteren van huurverlaging wordt de wet weer aangepast](https://www.ad.nl/politiek/nog-voor-alle-huurders-konden-profiteren-van-huurverlaging-wordt-de-wet-weer-aangepast~ad822486/)
-  > Toen minister Boekholt in de Kamer secondenlang zweeg op de vraag naar de maximale huurprijs, werd zichtbaar hoe ingewikkeld de regels zijn. En als...
-- [NEC zoekt naar zege tegen Telstar in strijd om Champions League-ticket](https://www.ad.nl/voetbal/nec-zoekt-naar-zege-tegen-telstar-in-strijd-om-champions-league-ticket~a9d1c544/)
+- [Komt er een stunt in degradatiestrijd? Telstar op voorsprong tegen NEC](https://www.ad.nl/voetbal/komt-er-een-stunt-in-degradatiestrijd-telstar-op-voorsprong-tegen-nec~a9d1c544/)
   > NEC heeft na twee gelijkspelletjes op rij (tegen Feyenoord en FC Twente) een zege nodig. Telstar komt op bezoek in Nijmegen en kan een goede stap...
-- [Dit is de Mol van 2026: ‘Wat een opluchting’](https://www.ad.nl/show/dit-is-de-mol-van-2026-wat-een-opluchting~ac413c26/)
-  > Daan Boom (36) is de Mol in dit seizoen van Wie is de Mol?. Dat werd zaterdagavond onthuld tijdens een live-uitzending van het populaire...
-- [Excelsior zet met terechte overwinning in Groningen reuzenstap richting lijfsbehoud](https://www.ad.nl/voetbal/excelsior-zet-met-terechte-overwinning-in-groningen-reuzenstap-richting-lijfsbehoud~a29ae2cd/)
-  > Een ontknoping van jewelste in de Euroborg. Excelsior maakte een minuut voor tijd de winnende treffer (2-3) en lijkt zich op te gaan maken voor nog...
-- [Norris rijdt ‘vrij ontspannen’ naar eerste zege van seizoen, Nederlands talent grijpt net naast winst in F2](https://www.ad.nl/formule-1/norris-rijdt-vrij-ontspannen-naar-eerste-zege-van-seizoen-nederlands-talent-grijpt-net-naast-winst-in-f2~ab65c26a/)
-  > Na een onderbreking van vijf weken gaat de Formule 1 dit weekend verder met race nummer 4, de Grand Prix van Miami. Volg hier op de voet wat er...
+- [Schalke 04 keert na drie jaar terug naar Bundesliga: ‘We hebben een fantastisch seizoen gehad’](https://www.ad.nl/voetbal/schalke-04-keert-na-drie-jaar-terug-naar-bundesliga-we-hebben-een-fantastisch-seizoen-gehad~a4bec5c9/)
+  > Schalke 04 keert na drie jaar terug naar de Bundesliga. De club uit Gelsenkirchen won zaterdagavond met 1-0 van Fortuna Düsseldorf door een goal van...
+- [Ajax houdt dankzij late goal van Mika Godts tegen PSV hoop op Champions League](https://www.ad.nl/voetbal/ajax-houdt-dankzij-late-goal-van-mika-godts-tegen-psv-hoop-op-champions-league~acdaa3bb/)
+  > Ajax heeft zaterdagavond, net als eerder dit seizoen in Eindhoven, op de valreep een punt gered tegen PSV. Mika Godts tekende tegen de uitgefeeste...
+- [Nederlandse toeristen moeten gered worden uit Poolse bergen, één van hen wordt gevonden in Slowakije](https://www.ad.nl/buitenland/nederlandse-toeristen-moeten-gered-worden-uit-poolse-bergen-een-van-hen-wordt-gevonden-in-slowakije~aae8d04e/)
+  > Een groep Nederlandse toeristen is deze week door reddingswerkers geëvacueerd uit het Poolse Tatra-gebergte. Ze hadden hun tocht niet goed gepland....
+- [Max Verstappen als snelste door naar Q3, kan Nederlander poleposition pakken in Miami?](https://www.ad.nl/formule-1/max-verstappen-als-snelste-door-naar-q3-kan-nederlander-poleposition-pakken-in-miami~a9aba043/)
+  > Na zijn vijfde plek eerder vandaag in de sprintrace hoopt Max Verstappen nóg een stap voorwaarts te zetten in de kwalificatie voor de GP van Miami....
 
 ### Meest gelezen
 
