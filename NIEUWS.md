@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-05-2026 om 20:49*
+*Laatst bijgewerkt: 02-05-2026 om 21:48*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Komt er een stunt in degradatiestrijd? Telstar op voorsprong tegen NEC](https://www.ad.nl/voetbal/komt-er-een-stunt-in-degradatiestrijd-telstar-op-voorsprong-tegen-nec~a9d1c544/)
-  > NEC heeft na twee gelijkspelletjes op rij (tegen Feyenoord en FC Twente) een zege nodig. Telstar komt op bezoek in Nijmegen en kan een goede stap...
-- [Schalke 04 keert na drie jaar terug naar Bundesliga: ‘We hebben een fantastisch seizoen gehad’](https://www.ad.nl/voetbal/schalke-04-keert-na-drie-jaar-terug-naar-bundesliga-we-hebben-een-fantastisch-seizoen-gehad~a4bec5c9/)
+- [Tijden GP van Miami | Zo laat begint Max Verstappen zondag aan de race en dit is de startopstelling](https://www.ad.nl/formule-1/tijden-gp-van-miami-zo-laat-begint-max-verstappen-zondag-aan-de-race-en-dit-is-de-startopstelling~ae174dcc/)
+  > Max Verstappen greep zaterdagavond net naast poleposition voor de Grand Prix van Miami. De Nederlander start zondag vanaf P2, waarmee hij veruit zijn...
+- [Francesco Farioli kampioen met FC Porto, Lukas Podolski wint Poolse beker met jeugdliefde](https://www.ad.nl/voetbal/francesco-farioli-kampioen-met-fc-porto-lukas-podolski-wint-poolse-beker-met-jeugdliefde~a4177c09/)
+  > FC Porto is zaterdagavond kampioen van Portugal geworden. De ploeg van de Italiaanse trainer Francesco Farioli won in het Estádio do Dragão met 1-0...
+- [Na spectaculaire slotfase loopt NEC dreun op in strijd om Champions League-ticket: gelijkspel tegen Telstar](https://www.ad.nl/voetbal/na-spectaculaire-slotfase-loopt-nec-dreun-op-in-strijd-om-champions-league-ticket-gelijkspel-tegen-telstar~a9d1c544/)
+  > In de spannende strijd om een Champions League-ticket komt NEC niet verder dan een gelijkspel tegen Telstar. In een spectaculaire slotfase van het...
+- [Max Verstappen start na uitstekende kwalificatie vanaf tweede plek: ‘Er is licht aan het einde van de tunnel’](https://www.ad.nl/formule-1/max-verstappen-start-na-uitstekende-kwalificatie-vanaf-tweede-plek-er-is-licht-aan-het-einde-van-de-tunnel~a9aba043/)
+  > Max Verstappen heeft nét naast poleposition gegrepen voor de Grand Prix van Miami. De Nederlander start zondag vanaf P2, waarmee hij veruit zijn...
+- [Stevens en Huntelaar zien Schalke 04 promoveren: ‘We hebben een fantastisch seizoen gehad’](https://www.ad.nl/voetbal/stevens-en-huntelaar-zien-schalke-04-promoveren-we-hebben-een-fantastisch-seizoen-gehad~a4bec5c9/)
   > Schalke 04 keert na drie jaar terug naar de Bundesliga. De club uit Gelsenkirchen won zaterdagavond met 1-0 van Fortuna Düsseldorf door een goal van...
-- [Ajax houdt dankzij late goal van Mika Godts tegen PSV hoop op Champions League](https://www.ad.nl/voetbal/ajax-houdt-dankzij-late-goal-van-mika-godts-tegen-psv-hoop-op-champions-league~acdaa3bb/)
-  > Ajax heeft zaterdagavond, net als eerder dit seizoen in Eindhoven, op de valreep een punt gered tegen PSV. Mika Godts tekende tegen de uitgefeeste...
-- [Nederlandse toeristen moeten gered worden uit Poolse bergen, één van hen wordt gevonden in Slowakije](https://www.ad.nl/buitenland/nederlandse-toeristen-moeten-gered-worden-uit-poolse-bergen-een-van-hen-wordt-gevonden-in-slowakije~aae8d04e/)
-  > Een groep Nederlandse toeristen is deze week door reddingswerkers geëvacueerd uit het Poolse Tatra-gebergte. Ze hadden hun tocht niet goed gepland....
-- [Max Verstappen als snelste door naar Q3, kan Nederlander poleposition pakken in Miami?](https://www.ad.nl/formule-1/max-verstappen-als-snelste-door-naar-q3-kan-nederlander-poleposition-pakken-in-miami~a9aba043/)
-  > Na zijn vijfde plek eerder vandaag in de sprintrace hoopt Max Verstappen nóg een stap voorwaarts te zetten in de kwalificatie voor de GP van Miami....
 
 ### Meest gelezen
 
