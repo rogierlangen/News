@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-05-2026 om 08:49*
+*Laatst bijgewerkt: 03-05-2026 om 10:08*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Yesilgöz over weghalen Amerikaanse militairen: 'We moeten het hoofd koel houden'](https://nos.nl/l/2612872)
+  > "We moeten het hoofd koel houden", zegt minister Yesilgöz (Defensie) over het besluit van de Amerikaanse president om duizenden militairen uit...
+- [Gemeentehuis en theater in IJsselstein beschadigd na onrust over noodopvang](https://nos.nl/l/2612868)
+  > In IJsselstein zijn afgelopen nacht het gemeentehuis en het theater beschadigd. Met bakstenen zijn meerdere ramen ingegooid en ook de toegangsdeur is...
 - [Oekraïne valt opnieuw Russische olie-industrie aan, tankers geraakt](https://nos.nl/l/2612860)
   > De Oekraïense president Zelensky zegt dat het leger vannacht twee olietankers uit de Russische schaduwvloot in de haven van Novorossiejsk aan de...
 - [Wekdienst 3/5: Herdenking koloniaal verleden op de Dam • Max Verstappen rijdt de Grand Prix van Miami](https://nos.nl/l/2612854)
   > Goedemorgen! Vandaag is de Nationale Herdenking Nederlands Koloniaal Verleden op de Dam in Amsterdam. En Max Verstappen komt eerder in actie dan...
 - [Leerlingen komen met desinformatie over Holocaust de klas in: 'Zien ze op TikTok'](https://nos.nl/l/2612848)
   > Geschiedenis- en maatschappijleerdocenten krijgen geregeld reacties en vragen van leerlingen met desinformatie over de Holocaust. Dat blijkt uit een...
-- [Franse brouwer moet stoppen met John Lemon-bier na klacht Yoko Ono](https://nos.nl/l/2612846)
-  > Een kleine brouwerij in Frankrijk moet stoppen met de verkoop van een populair speciaalbier onder de naam John Lemon. Yoko Ono, de weduwe van John...
-- [Acht huizen ontruimd na brand in centrum Hoogeveen](https://nos.nl/l/2612837)
-  > In Hoogeveen heeft een grote brand gewoed. Bewoners van acht huizen zijn geëvacueerd. Het vuur is inmiddels onder controle. Er zijn geen gewonden...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Koos wilde weer ergens bij horen en dus zocht hij op z’n 80ste een nieuwe baan](https://www.ad.nl/economie/koos-wilde-weer-ergens-bij-horen-en-dus-zocht-hij-op-zn-80ste-een-nieuwe-baan~af87bfe3/)
-  > Af en toe kloppen er tachtigers aan bij Anne-Marije Buckens, die al vijftien jaar een bedrijf heeft waarmee ze 50-plussers aan werk helpt. Zo ook...
-- [Timmy is spoorloos! Haperende tracker zorgt voor spanning over lot van geliefde bultrug](https://www.ad.nl/buitenland/timmy-is-spoorloos-haperende-tracker-zorgt-voor-spanning-over-lot-van-geliefde-bultrug~afd2d071/)
-  > Het bekendste zwemmende zoogdier van dit moment, bultrug Timmy, heeft de eerste dag na zijn reddingsmissie erop zitten. Na een grote ontlading voor...
-- [Voorkom een dure miskoop: zo kies je het matras waarop je écht lekker ligt](https://www.ad.nl/wonen/voorkom-een-dure-miskoop-zo-kies-je-het-matras-waarop-je-echt-lekker-ligt~aa11a092/)
-  > Gemiddeld lig je zo’n acht uur per etmaal in bed. Het is dus van belang dat je matras goed is. Ook een kussen en dekbed zijn belangrijk voor een...
-- [Met meer empathie wordt de samenleving beter: ‘Geef je aandacht aan je mobiel, of degene naast je?’](https://www.ad.nl/mezza/met-meer-empathie-wordt-de-samenleving-beter-geef-je-aandacht-aan-je-mobiel-of-degene-naast-je~aa5df52b/)
-  > Felle discussies, gescheld op sociale media en geen caissière meer voor een praatje: wie om zich heen kijkt, ziet de samenleving verharden. Tijd om...
-- [Nog drie weken volhouden, dan kan Feyenoord terug naar het voetbal dat ze in Rotterdam wilden spelen](https://www.ad.nl/voetbal/nog-drie-weken-volhouden-dan-kan-feyenoord-terug-naar-het-voetbal-dat-ze-in-rotterdam-wilden-spelen~ab763c99/)
-  > Robin van Persie zou als trainer het liefst op Luis Enrique willen lijken, maar de zware periode waarin Feyenoord verkeert, liet hem qua aanpak...
+- [FC Volendam moet aan de bak tegen Heerenveen in strijd tegen degradatie](https://www.ad.nl/voetbal/fc-volendam-moet-aan-de-bak-tegen-heerenveen-in-strijd-tegen-degradatie~a3efb6f1/)
+  > Heerenveen en FC Volendam spelen voor cruciale punten in Volendam. De bezoekers staan er goed voor in de strijd om de play-offplekken, terwijl de...
+- [Hoe de ‘Bram-tunnel’ Nederland verblindde, maar stille sloper Daan de Mol bleek](https://www.ad.nl/show/hoe-de-bram-tunnel-nederland-verblindde-maar-stille-sloper-daan-de-mol-bleek~a9a45637/)
+  > Terwijl bijna de helft van Nederland zich wekenlang blindstaarde op alle ‘verdachte’ acties van Bram Krikke, voltrok zich in de schaduw van de...
+- [Opgeleefd Arsenal snakt naar Oranje-international Jurriën Timber](https://www.ad.nl/voetbal/opgeleefd-arsenal-snakt-naar-oranje-international-jurrien-timber~a95bbf0f/)
+  > Arsenal heeft met een zege op Fulham (3-0), daags voor de return in de Champions League tegen Atlético Madrid, de koppositie in de Premier League...
+- [Miljuschka Witzenhausen voor het eerst in tien jaar op vakantie: ‘Spannend en verademend’](https://www.ad.nl/show/miljuschka-witzenhausen-voor-het-eerst-in-tien-jaar-op-vakantie-spannend-en-verademend~a9c11089/)
+  > Miljuschka Witzenhausen gaat voor het eerst in tien jaar op vakantie. In haar wekelijkse nieuwsbrief schrijft de culinair expert zondag dat de...
+- [Candese premier schuift aan bij Europese Politieke Gemeenschap: eerste leider buiten Europa op top](https://www.ad.nl/buitenland/candese-premier-schuift-aan-bij-europese-politieke-gemeenschap-eerste-leider-buiten-europa-op-top~a73b5771/)
+  > De Canadese premier Mark Carney is aangekomen in Armenië. Hij zal daar deelnemen aan een top van de Europese Politieke Gemeenschap (EPG), als eerste...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Zo bestrijdt een Schotse voetbalclub van fans zijn veel rijkere rivalen: met data en AI](https://fd.nl/samenleving/1594518/zo-bestrijdt-een-schotse-voetbalclub-van-fans-zijn-veel-rijkere-rivalen-met-data-en-ai)
+  > Een Schotse club die eigendom is van zijn supporters, beleeft met hulp van dataspecialisten het spannendste seizoen in de Schotse voetbalcompetitie...
+- [Trump bestudeert Iraans vredesvoorstel, maar sluit nieuwe bombardementen niet uit](https://fd.nl/politiek/1595201/trump-bestudeert-iraans-vredesvoorstel-maar-sluit-nieuwe-bombardementen-niet-uit)
+  > Iran heeft dit weekend een veertienpuntenplan ingediend als antwoord op Amerikaanse vredesvoorstellen.
+- [Ondanks reeks rechtszaken blijft ruzie tussen aandeelhouders Facilitylinq maar voortduren](https://fd.nl/bedrijfsleven/1594870/ondanks-reeks-rechtszaken-blijft-ruzie-tussen-aandeelhouders-facilitylinq-maar-voortduren)
+  > Twee aandeelhouders willen een minderheidsaandeelhouder en voormalig directeur uitstoten, maar dat verzoek is volgens de rechter ‘nogal dun’.
 - [Amerikaanse automakers zien kosten dit jaar met $5 mrd toenemen door Iran-oorlog](https://fd.nl/bedrijfsleven/1595117/amerikaanse-automakers-zien-kosten-dit-jaar-met-5-mrd-toenemen-door-iran-oorlog)
   > Prijzen voor grondstoffen zoals aluminium en verf zijn sinds het begin van de oorlog in het Midden-Oosten gestegen.
 - [Hersenloze heffingen voor het COA](https://fd.nl/samenleving/1595076/hersenloze-heffingen-voor-het-coa)
   > Het COA krijgt steeds meer boetes. Die moeten een prikkel zijn voor een snellere doorstroom van asielzoekers. Maar die heffingen zijn onzinnig,...
-- [Oost-Europese groei niet langer afhankelijk van goedkope export](https://fd.nl/economie/1595046/oost-europese-groei-niet-langer-afhankelijk-van-goedkope-export)
-  > De economieën van de Oost-Europese EU-lidstaten hebben minder last van de Iran-oorlog dan West-Europa. Toch staat de regio onder druk om zijn...
-- [Met Greg Abel aan het roer trekt Berkshire geen volle zalen meer](https://fd.nl/financiele-markten/1595200/met-greg-abel-aan-het-roer-trekt-berkshire-geen-volle-zalen-meer)
-  > Nieuwe topman leidde voor het eerst jaarvergadering van Amerikaanse investeerder. Voorheen verzamelden jaarlijks zo’n veertigduizend fans om in Omaha...
-- [Verbeter fiscale situatie kennismigrant, ook voor óns](https://fd.nl/opinie/1594780/verbeter-fiscale-situatie-kennismigrant-ook-voor-ons)
-  > Nederland trekt minder kennismigranten. Doordat ons fiscaal beleid voor mondiaal toptalent relatief onaantrekkelijk is geworden, daalt ons land als...
 
 ### Meest gelezen
 
