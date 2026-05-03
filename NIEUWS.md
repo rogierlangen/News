@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-05-2026 om 20:51*
+*Laatst bijgewerkt: 03-05-2026 om 21:49*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hardloopsensatie Mikky Keetels wint 3 weken na ‘Rotterdam’ marathon van Vancouver in parkoersrecord](https://www.ad.nl/andere-sporten/hardloopsensatie-mikky-keetels-wint-3-weken-na-rotterdam-marathon-van-vancouver-in-parkoersrecord~ac0f210f/)
+- [Emmanuel Emegha valt geblesseerd uit, Ronald Koeman liet Georginio Wijnaldum weten dat hij niet naar WK gaat](https://www.ad.nl/wk-voetbal/emmanuel-emegha-valt-geblesseerd-uit-ronald-koeman-liet-georginio-wijnaldum-weten-dat-hij-niet-naar-wk-gaat~a20bebd8/)
+  > Emmanuel Emegha is zondagavond bij RC Strasbourg uitgevallen met een spierblessure. Volgens Ronald Koeman maakt de spits weinig kans meer op het WK....
+- [Real Madrid stelt titelfeestje FC Barcelona uit, Frenkie de Jong kan volgende week in Clásico kampioen worden](https://www.ad.nl/voetbal/real-madrid-stelt-titelfeestje-fc-barcelona-uit-frenkie-de-jong-kan-volgende-week-in-clasico-kampioen-worden~a20d1b61/)
+  > FC Barcelona heeft zich nog niet gekroond tot landskampioen. Daarvoor moest rivaal Real Madrid zondagavond punten verspelen bij Espanyol, maar de...
+- [Hardloopsensatie Mikky Keetels wint drie weken na ‘Rotterdam’ marathon van Vancouver in parkoersrecord](https://www.ad.nl/andere-sporten/hardloopsensatie-mikky-keetels-wint-drie-weken-na-rotterdam-marathon-van-vancouver-in-parkoersrecord~ac0f210f/)
   > Atlete Mikky Keetels heeft de marathon van Vancouver gewonnen. De 27-jarige Nederlands kampioene op de marathon legde de 42,195 kilometer af in een...
 - [Denzel Dumfries voor tweede keer kampioen met Inter, bijrol voor Stefan de Vrij](https://www.ad.nl/voetbal/denzel-dumfries-voor-tweede-keer-kampioen-met-inter-bijrol-voor-stefan-de-vrij~a56da449/)
   > Inter is zondagavond voor de 21ste keer kampioen van de Serie A geworden. De ploeg van trainer Cristian Chivu won in San Siro met 2-0 van Parma.
-- [Vinícius scoort tweemaal fraai voor Real, wordt kampioensfeestje van rivaal Barça uitgesteld?](https://www.ad.nl/voetbal/vinicius-scoort-tweemaal-fraai-voor-real-wordt-kampioensfeestje-van-rivaal-barca-uitgesteld~a20d1b61/)
-  > Real Madrid moet vanavond winnen op bezoek bij RCD Espanyol. Als de Madrilenen puntenverlies lijden, dan is FC Barcelona kampioen. Volg hier ons...
 - [Tijden GP Canada | Max Verstappen over drie weken pas weer in actie tijdens volgend sprintraceweekend](https://www.ad.nl/formule-1/tijden-gp-canada-max-verstappen-over-drie-weken-pas-weer-in-actie-tijdens-volgend-sprintraceweekend~ab4cf035/)
   > Na een onderbreking van vijf weken moeten de Formule 1-coureurs weer een tijdje wachten op de volgende race. De Grand Prix van Canada staat voor over...
-- [Verstappen nog niet zeker van P5: FIA kijkt naar meerdere incidenten, ook Leclerc en Russell worden onderzocht](https://www.ad.nl/formule-1/verstappen-nog-niet-zeker-van-p5-fia-kijkt-naar-meerdere-incidenten-ook-leclerc-en-russell-worden-onderzocht~a83fb1f9/)
-  > Max Verstappen eindigde tijdens de Grand Prix van Miami op de vijfde plek, maar deze einduitslag is nog niet definitief. De coureur van Red Bull...
 
 ### Meest gelezen
 
