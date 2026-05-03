@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-05-2026 om 19:05*
+*Laatst bijgewerkt: 03-05-2026 om 20:51*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Radicaal-linkse Mélechon kandidaat bij Franse verkiezingen volgend jaar](https://nos.nl/l/2612969)
+  > De radicaal-linkse Franse politicus Jean-Luc Mélenchon doet voor zijn partij La France Insoumise mee aan de presidentsverkiezingen volgend jaar. "Ja,...
+- [Merz: woordenwisseling met Trump niet reden voor Amerikaanse terugtrekking](https://nos.nl/l/2612967)
+  > Er is geen verband tussen het terugtrekken van 5000 Amerikaanse militairen uit Duitsland en de publieke woordenwisseling tussen de Amerikaanse...
 - [Tientallen doden bij aanvallen op Fulani-herders in West-Nigeria](https://nos.nl/l/2612963)
   > In het westen van Nigeria zijn tientallen Fulani-herders gedood door milities die door de overheid worden ondersteund. Ze werden ervan beschuldigd...
 - [Nederlandse flotilla-opvarenden geland op Schiphol, leiders actie langer vast](https://nos.nl/l/2612962)
   > Twee van de Nederlandse activisten die donderdag door Israël werden onderschept op een vloot richting Gaza, zijn aangekomen op Schiphol. Dertig...
-- [Hantavirus op Nederlands cruiseschip, zeker 2 mensen overleden](https://nos.nl/l/2612960)
-  > Op een Nederlands cruiseschip in de Atlantische Oceaan zijn minstens twee mensen omgekomen aan een luchtweginfectie, waarschijnlijk na een besmetting...
-- ['Debat over asiel ontspoort steeds verder', bestuurders willen beter beleid uit Den Haag](https://nos.nl/l/2612958)
-  > Het debat over asiel en migratie ontspoort steeds verder, vindt Sharon Dijksma, voorzitter van de Vereniging van Nederlandse Gemeenten (VNG). Ze...
-- [Kou en sneeuw in Zuidoost-Europa, ook in Nederland minder warm](https://nos.nl/l/2612955)
-  > Wie afgelopen meivakantie afreisde naar Griekenland, Turkije of Cyprus in de hoop daar warm lenteweer te treffen is waarschijnlijk van een koude...
+- [Hantavirus op Nederlands cruiseschip, zeker drie doden](https://nos.nl/l/2612960)
+  > Op een Nederlands cruiseschip in de Atlantische Oceaan zijn zeker drie mensen overleden door een luchtweginfectie, mogelijk na een besmetting met het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hoe breng je waakzaam zijn in de praktijk?](https://www.ad.nl/binnenland/hoe-breng-je-waakzaam-zijn-in-de-praktijk~a461eb40/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [Real Madrid heeft zege nodig op bezoek bij Espanyol, bij puntenverlies is Barça kampioen](https://www.ad.nl/voetbal/real-madrid-heeft-zege-nodig-op-bezoek-bij-espanyol-bij-puntenverlies-is-barca-kampioen~a20d1b61/)
+- [Hardloopsensatie Mikky Keetels wint 3 weken na ‘Rotterdam’ marathon van Vancouver in parkoersrecord](https://www.ad.nl/andere-sporten/hardloopsensatie-mikky-keetels-wint-3-weken-na-rotterdam-marathon-van-vancouver-in-parkoersrecord~ac0f210f/)
+  > Atlete Mikky Keetels heeft de marathon van Vancouver gewonnen. De 27-jarige Nederlands kampioene op de marathon legde de 42,195 kilometer af in een...
+- [Denzel Dumfries voor tweede keer kampioen met Inter, bijrol voor Stefan de Vrij](https://www.ad.nl/voetbal/denzel-dumfries-voor-tweede-keer-kampioen-met-inter-bijrol-voor-stefan-de-vrij~a56da449/)
+  > Inter is zondagavond voor de 21ste keer kampioen van de Serie A geworden. De ploeg van trainer Cristian Chivu won in San Siro met 2-0 van Parma.
+- [Vinícius scoort tweemaal fraai voor Real, wordt kampioensfeestje van rivaal Barça uitgesteld?](https://www.ad.nl/voetbal/vinicius-scoort-tweemaal-fraai-voor-real-wordt-kampioensfeestje-van-rivaal-barca-uitgesteld~a20d1b61/)
   > Real Madrid moet vanavond winnen op bezoek bij RCD Espanyol. Als de Madrilenen puntenverlies lijden, dan is FC Barcelona kampioen. Volg hier ons...
-- [Stand Formule 1 | Kimi Antonelli loopt verder uit na nieuwe zege, Max Verstappen klimt twee plaatsen](https://www.ad.nl/formule-1/stand-formule-1-kimi-antonelli-loopt-verder-uit-na-nieuwe-zege-max-verstappen-klimt-twee-plaatsen~a8a75660/)
-  > Kimi Antonelli heeft zijn leidende positie in de WK-stand verder verstevigd. De Italiaanse Mercedes-coureur boekte in Miami zijn derde zege op rij en...
-- [Vader en buren probeerden kind tevergeefs uit brandend huis Oldenzaal te redden](https://www.ad.nl/oldenzaal/vader-en-buren-probeerden-kind-tevergeefs-uit-brandend-huis-oldenzaal-te-redden~aa02d9617/)
-  > Bij een brand in een woning in Oldenzaal is zondagmiddag een kind om het leven gekomen. De vader en buren probeerden tevergeefs het kind te redden....
-- [Max Verstappen grijpt naast eerste podiumplaats na strategische gok Red Bull, Kimi Antonelli boekt derde zege op rij](https://www.ad.nl/formule-1/max-verstappen-grijpt-naast-eerste-podiumplaats-na-strategische-gok-red-bull-kimi-antonelli-boekt-derde-zege-op-rij~af2ad699/)
-  > Max Verstappen heeft de stijgende lijn van het raceweekend in Miami niet door kunnen zetten in de race. Na een tweede plek in de kwalificatie spinde...
+- [Tijden GP Canada | Max Verstappen over drie weken pas weer in actie tijdens volgend sprintraceweekend](https://www.ad.nl/formule-1/tijden-gp-canada-max-verstappen-over-drie-weken-pas-weer-in-actie-tijdens-volgend-sprintraceweekend~ab4cf035/)
+  > Na een onderbreking van vijf weken moeten de Formule 1-coureurs weer een tijdje wachten op de volgende race. De Grand Prix van Canada staat voor over...
+- [Verstappen nog niet zeker van P5: FIA kijkt naar meerdere incidenten, ook Leclerc en Russell worden onderzocht](https://www.ad.nl/formule-1/verstappen-nog-niet-zeker-van-p5-fia-kijkt-naar-meerdere-incidenten-ook-leclerc-en-russell-worden-onderzocht~a83fb1f9/)
+  > Max Verstappen eindigde tijdens de Grand Prix van Miami op de vijfde plek, maar deze einduitslag is nog niet definitief. De coureur van Red Bull...
 
 ### Meest gelezen
 
