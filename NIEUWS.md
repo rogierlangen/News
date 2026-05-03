@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-05-2026 om 22:50*
+*Laatst bijgewerkt: 03-05-2026 om 23:53*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Verstappen krijgt tijdstraf voor incident tijdens GP Miami, maar behoudt P5 dankzij zware straf voor Leclerc](https://www.ad.nl/formule-1/verstappen-krijgt-tijdstraf-voor-incident-tijdens-gp-miami-maar-behoudt-p5-dankzij-zware-straf-voor-leclerc~a83fb1f9/)
+- [LIVE Midden-Oosten | Elke Amerikaanse inmenging in Hormuz is schending van staakt-het-vuren, waarschuwt Iran](https://www.ad.nl/buitenland/live-midden-oosten-elke-amerikaanse-inmenging-in-hormuz-is-schending-van-staakt-het-vuren-waarschuwt-iran~ac528ac3/)
+  > Elke poging van de VS om zich te mengen in de Straat van Hormuz wordt beschouwd als een schending van het staakt-het-vuren. Dat zegt Iran in reactie...
+- [LIVE Oorlog Oekraïne | VK wil meedoen aan Europese lening van 90 miljard voor Oekraïne](https://www.ad.nl/buitenland/live-oorlog-oekraine-vk-wil-meedoen-aan-europese-lening-van-90-miljard-voor-oekraine~adfb97be/)
+  > Het Verenigd Koninkrijk staat op het punt onderhandelingen te starten om zich aan te sluiten bij het leningsplan ter waarde van 90 miljard euro van...
+- [Voetbalpodcast | ‘Het seizoen van Feyenoord is gered, maar niet geslaagd’](https://www.ad.nl/voetbal/voetbalpodcast-het-seizoen-van-feyenoord-is-gered-maar-niet-geslaagd~ac8603a9/)
+  > Feyenoord lijkt de strijd om plek 2 te hebben beslist. De Rotterdammers wonnen zondag met 1-2 bij Fortuna Sittard, terwijl NEC, Ajax en FC Twente...
+- [Max Verstappen krijgt tijdstraf in Miami, maar behoudt P5 door zwaardere straf Charles Leclerc](https://www.ad.nl/formule-1/max-verstappen-krijgt-tijdstraf-in-miami-maar-behoudt-p5-door-zwaardere-straf-charles-leclerc~a83fb1f9/)
   > Max Verstappen heeft een straf ontvangen voor een incident tijdens de Grand Prix van Miami. Er wordt vijf seconden toegevoegd aan zijn totale...
 - [Emegha valt geblesseerd uit, Koeman liet Wijnaldum weten dat hij niet naar WK gaat](https://www.ad.nl/wk-voetbal/emegha-valt-geblesseerd-uit-koeman-liet-wijnaldum-weten-dat-hij-niet-naar-wk-gaat~a20bebd8/)
   > Emmanuel Emegha is zondagavond bij RC Strasbourg uitgevallen met een spierblessure. Volgens Ronald Koeman maakt de spits weinig kans meer op het WK....
-- [Real Madrid stelt titelfeestje FC Barcelona uit, Frenkie de Jong kan volgende week in Clásico kampioen worden](https://www.ad.nl/voetbal/real-madrid-stelt-titelfeestje-fc-barcelona-uit-frenkie-de-jong-kan-volgende-week-in-clasico-kampioen-worden~a20d1b61/)
-  > FC Barcelona heeft zich nog niet gekroond tot landskampioen. Daarvoor moest rivaal Real Madrid zondagavond punten verspelen bij RCD Espanyol, maar de...
-- [Hardloopsensatie Mikky Keetels wint drie weken na ‘Rotterdam’ marathon van Vancouver in parkoersrecord](https://www.ad.nl/andere-sporten/hardloopsensatie-mikky-keetels-wint-drie-weken-na-rotterdam-marathon-van-vancouver-in-parkoersrecord~ac0f210f/)
-  > Atlete Mikky Keetels heeft de marathon van Vancouver gewonnen. De 27-jarige Nederlands kampioene op de marathon legde de 42,195 kilometer af in een...
-- [Denzel Dumfries voor tweede keer kampioen met Inter, bijrol voor Stefan de Vrij](https://www.ad.nl/voetbal/denzel-dumfries-voor-tweede-keer-kampioen-met-inter-bijrol-voor-stefan-de-vrij~a56da449/)
-  > Inter is zondagavond voor de 21ste keer kampioen van de Serie A geworden. De ploeg van trainer Cristian Chivu won in San Siro met 2-0 van Parma.
 
 ### Meest gelezen
 
