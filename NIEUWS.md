@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-05-2026 om 17:52*
+*Laatst bijgewerkt: 03-05-2026 om 19:05*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Tientallen doden bij aanvallen op Fulani-herders in West-Nigeria](https://nos.nl/l/2612963)
+  > In het westen van Nigeria zijn tientallen Fulani-herders gedood door milities die door de overheid worden ondersteund. Ze werden ervan beschuldigd...
+- [Nederlandse flotilla-opvarenden geland op Schiphol, leiders actie langer vast](https://nos.nl/l/2612962)
+  > Twee van de Nederlandse activisten die donderdag door Israël werden onderschept op een vloot richting Gaza, zijn aangekomen op Schiphol. Dertig...
+- [Hantavirus op Nederlands cruiseschip, zeker 2 mensen overleden](https://nos.nl/l/2612960)
+  > Op een Nederlands cruiseschip in de Atlantische Oceaan zijn minstens twee mensen omgekomen aan een luchtweginfectie, waarschijnlijk na een besmetting...
+- ['Debat over asiel ontspoort steeds verder', bestuurders willen beter beleid uit Den Haag](https://nos.nl/l/2612958)
+  > Het debat over asiel en migratie ontspoort steeds verder, vindt Sharon Dijksma, voorzitter van de Vereniging van Nederlandse Gemeenten (VNG). Ze...
 - [Kou en sneeuw in Zuidoost-Europa, ook in Nederland minder warm](https://nos.nl/l/2612955)
   > Wie afgelopen meivakantie afreisde naar Griekenland, Turkije of Cyprus in de hoop daar warm lenteweer te treffen is waarschijnlijk van een koude...
-- [Drie Nederlanders omgekomen bij zwaar verkeersongeval in Frankrijk](https://nos.nl/l/2612954)
-  > In Noord-Frankrijk zijn drie Nederlanders omgekomen bij een zwaar verkeersongeluk. Dat bevestigt het ministerie van Buitenlandse Zaken na...
-- [Nazi-kolos in Neurenberg wordt operahuis: 'Mag juist geen ruïne worden'](https://nos.nl/l/2612949)
-  > Een loodzware deur zwiept open. Links een eindeloze zuilenrij, rechts immense raampartijen. De bouwmeester wijst naar een trap. "Die is vijfhonderd...
-- [Kogel verdachte gevonden in vest neergeschoten agent Correspondents' Dinner](https://nos.nl/l/2612943)
-  > De Amerikaanse politie heeft bewijs gevonden dat een agent die werd neergeschoten bij het White House Correspondents' Dinner, is geraakt door de...
-- [Granaat gaat af in Oostenrijks kampvuur, vijf kinderen gewond](https://nos.nl/l/2612936)
-  > In het Oostenrijkse Freistadt zijn vijf kinderen gewond geraakt toen een oude granaat afging in een kampvuur. Volgens een begeleider was er een harde...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Alpine-coureur Pierre Gasly slaat over de kop en belandt in muur tijdens GP van Miami](https://www.ad.nl/formule-1/alpine-coureur-pierre-gasly-slaat-over-de-kop-en-belandt-in-muur-tijdens-gp-van-miami~af533a2e/)
-  > Een opmerkelijke crash van Pierre Gasly tijdens de Grand Prix van Miami. De Franse coureur van Alpine sloeg vroeg in de Grand Prix van Miami over de...
-- [In de vrouwenkliniek loopt het storm: ‘In het ziekenhuis zag ik bijna nooit iemand voor de overgang’](https://www.ad.nl/gezond/in-de-vrouwenkliniek-loopt-het-storm-in-het-ziekenhuis-zag-ik-bijna-nooit-iemand-voor-de-overgang~adfb7717/)
-  > Hormonen voor, hormonen na. Ineens heeft iedereen het wél over de overgang. Dat merken ze bij vrouwenkliniek Ellesie. De wachttijd voor hulp bij...
-- [Oranje Leeuwin Brugts naar finale Champions League, PSV vrouwen heeft landstitel voor het grijpen](https://www.ad.nl/voetbal/oranje-leeuwin-brugts-naar-finale-champions-league-psv-vrouwen-heeft-landstitel-voor-het-grijpen~ab79f6a3/)
-  > Esmee Brugts staat met FC Barcelona in de finale van de Champions League. De 22-jarige vleugelverdedigster schakelde met haar club Bayern München in...
-- [Arne Slot met Liverpool onderuit bij Manchester United: Champions League-ticket nog niet binnen](https://www.ad.nl/voetbal/arne-slot-met-liverpool-onderuit-bij-manchester-united-champions-league-ticket-nog-niet-binnen~a9d4abc7/)
-  > Manchester United gaat volgend seizoen de Champions League in. De ploeg van Michael Carrick won zaterdag op Old Trafford met 3-2 van Liverpool. De...
-- [Praten over en de oorlog herdenken moet: ‘Oorlog hoort bij opvoeden’](https://www.ad.nl/gezond/praten-over-en-de-oorlog-herdenken-moet-oorlog-hoort-bij-opvoeden~a777af8e/)
-  > De Tweede Wereldoorlog is deze dagen overal: op de televisie, op school en op sociale media. Daar moeten we over praten met onze kinderen, zodat zij...
+- [Hoe breng je waakzaam zijn in de praktijk?](https://www.ad.nl/binnenland/hoe-breng-je-waakzaam-zijn-in-de-praktijk~a461eb40/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Real Madrid heeft zege nodig op bezoek bij Espanyol, bij puntenverlies is Barça kampioen](https://www.ad.nl/voetbal/real-madrid-heeft-zege-nodig-op-bezoek-bij-espanyol-bij-puntenverlies-is-barca-kampioen~a20d1b61/)
+  > Real Madrid moet vanavond winnen op bezoek bij RCD Espanyol. Als de Madrilenen puntenverlies lijden, dan is FC Barcelona kampioen. Volg hier ons...
+- [Stand Formule 1 | Kimi Antonelli loopt verder uit na nieuwe zege, Max Verstappen klimt twee plaatsen](https://www.ad.nl/formule-1/stand-formule-1-kimi-antonelli-loopt-verder-uit-na-nieuwe-zege-max-verstappen-klimt-twee-plaatsen~a8a75660/)
+  > Kimi Antonelli heeft zijn leidende positie in de WK-stand verder verstevigd. De Italiaanse Mercedes-coureur boekte in Miami zijn derde zege op rij en...
+- [Vader en buren probeerden kind tevergeefs uit brandend huis Oldenzaal te redden](https://www.ad.nl/oldenzaal/vader-en-buren-probeerden-kind-tevergeefs-uit-brandend-huis-oldenzaal-te-redden~aa02d9617/)
+  > Bij een brand in een woning in Oldenzaal is zondagmiddag een kind om het leven gekomen. De vader en buren probeerden tevergeefs het kind te redden....
+- [Max Verstappen grijpt naast eerste podiumplaats na strategische gok Red Bull, Kimi Antonelli boekt derde zege op rij](https://www.ad.nl/formule-1/max-verstappen-grijpt-naast-eerste-podiumplaats-na-strategische-gok-red-bull-kimi-antonelli-boekt-derde-zege-op-rij~af2ad699/)
+  > Max Verstappen heeft de stijgende lijn van het raceweekend in Miami niet door kunnen zetten in de race. Na een tweede plek in de kwalificatie spinde...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Afwachten kan en mag niet als het draait om drinkwater](https://fd.nl/opinie/1594865/afwachten-kan-en-mag-niet-als-het-draait-om-drinkwater)
+  > Verder vooruitkijken dan een kabinetsperiode om de meest basale levensvoorzieningen te beschermen, is de belangrijkste taak van de overheid.
 - [‘Marco Rubio ontmoet de paus’](https://fd.nl/politiek/1595123/marco-rubio-ontmoet-de-paus)
   > Het bezoek van de Amerikaanse minister van buitenlandse zaken volgt op aanvallen van president Donald Trump op de leider van de katholieke kerk.
 - [Opec+ verhoogt productiedoel, Emiraten versnellen investeringen](https://fd.nl/economie/1595122/opec-verhoogt-productiedoel-emiraten-versnellen-investeringen)
@@ -54,8 +56,6 @@
   > De vraag is of de beloofde stijging van de winstgevendheid van Philips nog wel houdbaar is, aangezien concurrent GE Healthcare worstelt met...
 - [Nog even en dan worden niet alleen vluchten, maar ook scheepsroutes geschrapt](https://fd.nl/bedrijfsleven/1594800/nog-even-en-dan-worden-niet-alleen-vluchten-maar-ook-scheepsroutes-geschrapt)
   > Goederen uit Azië zullen spoedig niet alleen nog duurder, maar ook slechter leverbaar worden, waarschuwt het Nederlandse Spotbarge, een bedrijf dat...
-- [Oekraïne valt Russische tankers en oliehaven aan](https://fd.nl/economie/1595118/rusland-waarschuwt-voor-hogere-olieprijs-na-aanvallen-oekraine)
-  > Oekraïne heeft olieknooppunt Primorsk en twee tankers van de Russische schaduwvloot beschoten. Rusland waarschuwt voor een stijging van de olieprijs.
 
 ### Meest gelezen
 
