@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-05-2026 om 14:12*
+*Laatst bijgewerkt: 04-05-2026 om 16:50*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Monstertruck rijdt in op menigte bij stuntshow in Colombia, drie doden](https://nos.nl/l/2613112)
-  > Bij een ongeluk met een monstertruck in het zuidwesten van Colombia zijn gisteren drie doden gevallen. Onder de dodelijke slachtoffers waren twee...
-- [Eén Duitser op een geallieerd ereveld: 'De vijandigheid van toen is er niet meer'](https://nos.nl/l/2613109)
-  > Wanneer zo'n 500 mensen vandaag de doden herdenken op begraafplaats Westduin in Den Haag, lopen zij voor het eerst ook langs de grafsteen van een...
-- [Podcast De Dag: met de Jostiband naar een nazi-moordcentrum](https://nos.nl/l/2613103)
-  > Vijf leden van de Jostiband reisden naar Slot Hartheim in Oostenrijk, waar in de Tweede Wereldoorlog tienduizenden mensen zoals zij, mensen met een...
-- [Vliegbasis Gilze-Rijen deels ontruimd om 'verdachte situatie'](https://nos.nl/l/2613102)
-  > De vliegbasis in Gilze-Rijen is uit voorzorg deels ontruimd vanwege een verdachte situatie. Dat meldt de Koninklijke Marechaussee. Die doet onderzoek...
-- [Verdachte van plan voor aanslag op Amalia en Alexia ontkent: 'Geen kwaad in me'](https://nos.nl/l/2613065)
-  > De 33-jarige man die wordt verdacht van het beramen van een aanslag op de prinsessen Amalia en Alexia ontkent dat hij hen wilde doden of bedreigen....
+- [Grote drugsvangst bij Canarische Eilanden, 'Nederlanders onder arrestanten'](https://nos.nl/l/2613138)
+  > De Spaanse politie heeft tienduizenden kilo's cocaïne onderschept ten zuiden van de Canarische Eilanden. Volgens de Guardia Civil lag er tussen de...
+- [Hogere heffingen op Europese auto's? 'Zoveelste dreigement, maar alles heeft impact'](https://nos.nl/l/2613135)
+  > Even was het rustig rond de importheffingen, maar vorige week zette president Trump zijn favoriete economische drukmiddel weer in. Hij dreigde vanaf...
+- [Zes doden bij Russische raketaanval in de omgeving van Charkiv](https://nos.nl/l/2613132)
+  > Bij een Russische raketaanval op de Oekraïense stad Merefa zijn zeker zes doden gevallen. Dat melden lokale functionarissen. Ook raakten zeker dertig...
+- [Auto rijdt in op voetgangers in Leipzig, twee doden](https://nos.nl/l/2613129)
+  > In het centrum van de Duitse stad Leipzig is een auto ingereden op een groep voetgangers. Het is niet duidelijk of de automobilist dat bewust deed of...
+- [Emiraten melden raket- en droneaanvallen door Iran, brand op industrieterrein](https://nos.nl/l/2613128)
+  > De Verenigde Arabische Emiraten (VAE) stellen dat Iran meerdere aanvalsgolven met raketten en drones heeft uitgevoerd op de Emiraten. Er worden drie...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Feyenoord-talent Koos (17) maakt fatale vergissing bij vluchtpoging in Wezep: ‘Toen is alles fout gegaan’](https://www.ad.nl/binnenland/feyenoord-talent-koos-17-maakt-fatale-vergissing-bij-vluchtpoging-in-wezep-toen-is-alles-fout-gegaan~a7a4373c/)
-  > Koos van den Bosch (17) is een veelbelovend Feyenoord-talent. Maar tijdens de Razzia van Rotterdam in 1944 komt hij in De Kuip als dwangarbeider...
-- [Passagier Nederlands cruiseschip laat van zich horen: ‘Kaapverdië wil niets met ons te maken hebben’](https://www.ad.nl/buitenland/passagier-nederlands-cruiseschip-laat-van-zich-horen-kaapverdie-wil-niets-met-ons-te-maken-hebben~ab45e175/)
-  > Passagiers op het Nederlandse cruiseschip MV Hondius, waar onlangs drie opvarenden zijn overleden, voelen zich weggestuurd door Kaapverdië. „De...
-- [Het Monument op de Dam was net helemaal opgepoetst: en toen ging om 05.00 uur de telefoon](https://www.ad.nl/binnenland/het-monument-op-de-dam-was-net-helemaal-opgepoetst-en-toen-ging-om-05-00-uur-de-telefoon~a5ee236c/)
-  > Het Nationaal Monument op de Dam is op tijd schoon voor de dodenherdenking. Rond 13.30 uur was de klus geklaard, nog geen negen uur nadat het...
-- [Flikken Rotterdam-actrice Ortál Vriend in verwachting van eerste kind](https://www.ad.nl/show/flikken-rotterdam-actrice-ortal-vriend-in-verwachting-van-eerste-kind~a6aaad93/)
-  > Ortál Vriend is in verwachting. Dat deelt de Flikken Rotterdam-actrice maandag in een bericht op Instagram.
-- [Nederlandse verliest haar man tijdens cruise, raakt onwel en komt twee weken later ook te overlijden](https://www.ad.nl/binnenland/nederlandse-verliest-haar-man-tijdens-cruise-raakt-onwel-en-komt-twee-weken-later-ook-te-overlijden~a1a03868/)
-  > Wat de droomreis van een echtpaar uit het Friese Haulerwijk moest zijn, is geëindigd in een onvoorstelbaar drama. Tijdens een cruise op de...
+- [Trainer Rick Kruys waarschuwt voor telefoongebruik bij spelers: ‘Die schermen slopen je concentratie’](https://www.ad.nl/binnenland/trainer-rick-kruys-waarschuwt-voor-telefoongebruik-bij-spelers-die-schermen-slopen-je-concentratie~af86fde9/)
+  > Bij voetbalclub FC Volendam spreekt de trainer zijn spelers aan op hun schermtijd. Te veel scrollen op de telefoon zou funest zijn voor de...
+- [LIVE Dodenherdenking | Al honderden mensen op de Dam voor nationale herdenking](https://www.ad.nl/binnenland/live-dodenherdenking-al-honderden-mensen-op-de-dam-voor-nationale-herdenking~a69c7901/)
+  > Op de Dam in Amsterdam hebben zich rond 18.00 uur al honderden mensen verzameld voor de Nationale Herdenking. Die begint daar iets voor 20.00 uur....
+- [Tweede besmetting met hantavirus vastgesteld: overleden Nederlandse vrouw (69) had virus ook](https://www.ad.nl/binnenland/tweede-besmetting-met-hantavirus-vastgesteld-overleden-nederlandse-vrouw-69-had-virus-ook~a1a03868/)
+  > De Nederlandse vrouw die van het cruiseschip MV Hondius ging en in Zuid-Afrika overleed, is positief getest op het hantavirus. Dat meldt het...
+- [Lang en Kleine vormen nieuw muzikaal duo: voetballer en rapper brengen samen nummer uit](https://www.ad.nl/show/lang-en-kleine-vormen-nieuw-muzikaal-duo-voetballer-en-rapper-brengen-samen-nummer-uit~a2a9fac8/)
+  > Lil Kleine is een samenwerking aangegaan met Galatasaray-voetballer Noa Lang. Op Instagram is een clipje te zien van het nummer Ewa safi, dat ze...
+- [Chelsea volledig de weg kwijt: Nottingham Forest trakteert ‘The Blues’ op zesde nederlaag op rij](https://www.ad.nl/voetbal/chelsea-volledig-de-weg-kwijt-nottingham-forest-trakteert-the-blues-op-zesde-nederlaag-op-rij~a81a0ebf/)
+  > Chelsea heeft zich in eigen huis geblameerd tegen Nottingham Forest. De vijfvoudig Premier League-kampioen werd over de knie gelegd (1-3) en verloor...
 
 ### Meest gelezen
 
@@ -46,7 +46,16 @@
 
 ### Laatste nieuws
 
-- Fout bij ophalen: The read operation timed out
+- [Auto rijdt in op menigte in centrum Leipzig, twee doden en meerdere gewonden](https://fd.nl/samenleving/1595589/auto-rijdt-in-op-menigte-in-centrum-leipzig-twee-doden-en-meerdere-gewonden)
+  > Het voertuig reed de voetgangerszone bij het plein Augustusplatz in, aldus de politie. De dader is aangehouden.
+- [LTO: overheid moet boeren meer steunen](https://fd.nl/bedrijfsleven/1595688/lto-overheid-moet-boeren-meer-steunen)
+  > De belangenorganisatie voor boeren en tuinders meent dat de €25 mln die het kabinet beschikbaar stelt onvoldoende is.
+- [Topceo’s techsector: laten we als één Europa handelen](https://fd.nl/opinie/1594611/topceos-techsector-laten-we-als-een-europa-handelen)
+  > Ceo’s van Airbus, ASML, Ericsson, Mistral AI, Nokia, SAP en Siemens roepen overheden in Europa op om samen de technologische en industriële kracht...
+- [Europese techbedrijven roepen op tot versimpeling van regelgeving](https://fd.nl/bedrijfsleven/1595161/europese-techbedrijven-roepen-op-tot-versimpeling-van-regelgeving)
+  > Volgens zeven toonaangevende Europese bedrijven, waaronder ASML, is een vereenvoudiging nodig om het concurrentievermogen van Europa te behouden.
+- [Amerikaans geld voor defensiestart-up uit Delft](https://fd.nl/bedrijfsleven/1595587/amerikaans-geld-voor-defensiestart-up-uit-delft)
+  > Met nieuwe technologie van Vydar zijn drones niet langer afhankelijk van kwetsbaar gps om te navigeren.
 
 ### Meest gelezen
 
