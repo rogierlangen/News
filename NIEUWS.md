@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-05-2026 om 11:52*
+*Laatst bijgewerkt: 04-05-2026 om 14:12*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Fries echtpaar overleden na mogelijke uitbraak hantavirus op cruiseschip](https://nos.nl/l/2613055)
-  > Twee van de drie mensen die overleden na een mogelijke virusuitbraak op een cruiseschip komen uit het Friese dorp Haulerwijk. Het zou gaan om een...
-- [Iran claimt aanval op Amerikaans fregat in Straat van Hormuz, VS ontkent](https://nos.nl/l/2613048)
-  > Iran heeft een Amerikaans marinefregat aangevallen, schrijft het Iraanse staatspersbureau Fars. Volgens het persbureau werd het oorlogsschip geraakt...
-- [Droneaanval op wolkenkrabber in Moskou, in aanloop naar nationale feestdag](https://nos.nl/l/2613043)
-  > In Moskou is afgelopen nacht een wolkenkrabber door een Oekraïense drone geraakt, zegt burgemeester Sobjanin van de Russische hoofdstad. Er zouden...
-- [Agenten niet vervolgd voor fatale achtervolging met drie doden in Den Haag](https://nos.nl/l/2613034)
-  > De politieagenten die eind vorig jaar een auto in Den Haag achtervolgden, zijn niet verantwoordelijk voor de fatale crash die daarop volgde. Dat...
-- [Politie zoekt drie verdachten na bekladding Nationaal Monument](https://nos.nl/l/2613032)
-  > Drie verdachten worden gezocht voor het bekladden van het Nationaal Monument op de Dam. Dat meldt de Amsterdamse politie. Vanochtend vroeg werd het...
+- [Monstertruck rijdt in op menigte bij stuntshow in Colombia, drie doden](https://nos.nl/l/2613112)
+  > Bij een ongeluk met een monstertruck in het zuidwesten van Colombia zijn gisteren drie doden gevallen. Onder de dodelijke slachtoffers waren twee...
+- [Eén Duitser op een geallieerd ereveld: 'De vijandigheid van toen is er niet meer'](https://nos.nl/l/2613109)
+  > Wanneer zo'n 500 mensen vandaag de doden herdenken op begraafplaats Westduin in Den Haag, lopen zij voor het eerst ook langs de grafsteen van een...
+- [Podcast De Dag: met de Jostiband naar een nazi-moordcentrum](https://nos.nl/l/2613103)
+  > Vijf leden van de Jostiband reisden naar Slot Hartheim in Oostenrijk, waar in de Tweede Wereldoorlog tienduizenden mensen zoals zij, mensen met een...
+- [Vliegbasis Gilze-Rijen deels ontruimd om 'verdachte situatie'](https://nos.nl/l/2613102)
+  > De vliegbasis in Gilze-Rijen is uit voorzorg deels ontruimd vanwege een verdachte situatie. Dat meldt de Koninklijke Marechaussee. Die doet onderzoek...
+- [Verdachte van plan voor aanslag op Amalia en Alexia ontkent: 'Geen kwaad in me'](https://nos.nl/l/2613065)
+  > De 33-jarige man die wordt verdacht van het beramen van een aanslag op de prinsessen Amalia en Alexia ontkent dat hij hen wilde doden of bedreigen....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Luchtalarm gaat ondanks afspraken tóch af op dag van Dodenherdenking: ‘Stond nog gepland in agenda’](https://www.ad.nl/rotterdam/luchtalarm-gaat-ondanks-afspraken-toch-af-op-dag-van-dodenherdenking-stond-nog-gepland-in-agenda~a0d07090/)
-  > Maandag om klokslag 12.00 uur ging het luchtalarm af in de regio Rotterdam. Op zich niets bijzonders: elke eerste maandag van de maand worden de...
-- [Droomreis ‘abrupt afgebroken’: overleden Nederlanders op cruise hielden van de natuur](https://www.ad.nl/binnenland/droomreis-abrupt-afgebroken-overleden-nederlanders-op-cruise-hielden-van-de-natuur~a1a03868/)
-  > De twee Nederlanders die zijn overleden tijdens hun reis met een cruiseschip in de Atlantische Oceaan, komen uit het Friese Haulerwijk. Het gaat om...
-- [Buitenlandse media zien hoe Max Verstappen juist na slippertje bij de start zijn uitzonderlijke klasse toonde](https://www.ad.nl/formule-1/buitenlandse-media-zien-hoe-max-verstappen-juist-na-slippertje-bij-de-start-zijn-uitzonderlijke-klasse-toonde~a6da72ce/)
-  > Max Verstappen beleefde een bewogen weekend in Miami. De Nederlander maakte zondag in de hoofdrace een slippertje bij de start, maar hield daarna...
-- [Zijn de regels voor het inhalen veranderd? Wij worden telkens ‘afgesneden’](https://www.ad.nl/auto/zijn-de-regels-voor-het-inhalen-veranderd-wij-worden-telkens-afgesneden~a3885fcb/)
-  > Nadat zij door een andere automobilist zijn ingehaald, merken Frank en Marja van den Berg vaak dat ze worden ‘afgesneden’. Zijn de verkeersregels...
-- [‘Ali B niet bij uitspraak aanwezig, maar suggestie van vluchten is absolute onzin’](https://www.ad.nl/show/ali-b-niet-bij-uitspraak-aanwezig-maar-suggestie-van-vluchten-is-absolute-onzin~a7fcac77/)
-  > Ali B zal donderdag niet aanwezig zijn bij de uitspraak van het gerechtshof in zijn zedenzaak. Dat laat zijn advocaat Bart Swier maandagmiddag weten...
+- [Feyenoord-talent Koos (17) maakt fatale vergissing bij vluchtpoging in Wezep: ‘Toen is alles fout gegaan’](https://www.ad.nl/binnenland/feyenoord-talent-koos-17-maakt-fatale-vergissing-bij-vluchtpoging-in-wezep-toen-is-alles-fout-gegaan~a7a4373c/)
+  > Koos van den Bosch (17) is een veelbelovend Feyenoord-talent. Maar tijdens de Razzia van Rotterdam in 1944 komt hij in De Kuip als dwangarbeider...
+- [Passagier Nederlands cruiseschip laat van zich horen: ‘Kaapverdië wil niets met ons te maken hebben’](https://www.ad.nl/buitenland/passagier-nederlands-cruiseschip-laat-van-zich-horen-kaapverdie-wil-niets-met-ons-te-maken-hebben~ab45e175/)
+  > Passagiers op het Nederlandse cruiseschip MV Hondius, waar onlangs drie opvarenden zijn overleden, voelen zich weggestuurd door Kaapverdië. „De...
+- [Het Monument op de Dam was net helemaal opgepoetst: en toen ging om 05.00 uur de telefoon](https://www.ad.nl/binnenland/het-monument-op-de-dam-was-net-helemaal-opgepoetst-en-toen-ging-om-05-00-uur-de-telefoon~a5ee236c/)
+  > Het Nationaal Monument op de Dam is op tijd schoon voor de dodenherdenking. Rond 13.30 uur was de klus geklaard, nog geen negen uur nadat het...
+- [Flikken Rotterdam-actrice Ortál Vriend in verwachting van eerste kind](https://www.ad.nl/show/flikken-rotterdam-actrice-ortal-vriend-in-verwachting-van-eerste-kind~a6aaad93/)
+  > Ortál Vriend is in verwachting. Dat deelt de Flikken Rotterdam-actrice maandag in een bericht op Instagram.
+- [Nederlandse verliest haar man tijdens cruise, raakt onwel en komt twee weken later ook te overlijden](https://www.ad.nl/binnenland/nederlandse-verliest-haar-man-tijdens-cruise-raakt-onwel-en-komt-twee-weken-later-ook-te-overlijden~a1a03868/)
+  > Wat de droomreis van een echtpaar uit het Friese Haulerwijk moest zijn, is geëindigd in een onvoorstelbaar drama. Tijdens een cruise op de...
 
 ### Meest gelezen
 
@@ -46,16 +46,7 @@
 
 ### Laatste nieuws
 
-- [Arcadis zit plots in de lift: broos herstel geeft beleggers weer vertrouwen](https://fd.nl/financiele-markten/1595225/arcadis-zit-plots-in-de-lift-broos-herstel-geeft-beleggers-weer-vertrouwen)
-  > Wat zit er achter het wonderlijk snelle herstel van het vertrouwen in ingenieursbureau Arcadis? Het aandeel schoot omhoog na publicatie van de...
-- [O, daar begint weer iemand te boren](https://fd.nl/samenleving/1595156/o-daar-begint-weer-iemand-te-boren)
-  > Hakken, schuren, boren: de stadbewoner heeft altijd wel ergens een verbouwende buur. Liddie Austin wordt soms wanhopig als het lawaai weer eens haar...
-- [Woningcorporaties verder in het nauw door ‘onverklaarbaar’ hoge onderhoudskosten](https://fd.nl/samenleving/1591787/woningcorporaties-verder-in-het-nauw-door-onverklaarbaar-hoge-onderhoudskosten)
-  > De uitgaven van corporaties aan het onderhoud van sociale huurwoningen zijn de afgelopen acht jaar met 60% gestegen. Hoe kan dat? Het FD bevroeg...
-- [Monument op de Dam beklad op de dag van de Nationale Dodenherdenking](https://fd.nl/politiek/1595227/monument-op-de-dam-beklad-op-de-dag-van-de-nationale-dodenherdenking)
-  > De burgemeester van Amsterdam, Femke Halsema, spreekt in een verklaring van een ‘ongelooflijk laffe daad’.
-- [Oud-gouverneur Hongaarse centrale bank: ‘Orbán is wraakzuchtig’](https://fd.nl/politiek/1595158/oud-gouverneur-hongaarse-centrale-bank-orban-is-wraakzuchtig)
-  > András Simor weet als geen ander hoever de macht van de Hongaarse premier reikte. Als gouverneur van de centrale bank werd hij aangevallen omdat hij...
+- Fout bij ophalen: The read operation timed out
 
 ### Meest gelezen
 
