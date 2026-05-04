@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-05-2026 om 20:19*
+*Laatst bijgewerkt: 04-05-2026 om 22:05*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Waar komt je familienaam vandaan en wat deed opa in de oorlog: zo ga je op zoek naar je familiegeschiedenis](https://www.ad.nl/gezond/waar-komt-je-familienaam-vandaan-en-wat-deed-opa-in-de-oorlog-zo-ga-je-op-zoek-naar-je-familiegeschiedenis~a38f5fda/)
-  > Meestal weet je maar weinig van je voorouders. Wat ze deden voor werk, hoe ze in het leven stonden. Terwijl een deel van hen voortleeft in jou, of je...
-- [Manchester City verdiend aan de leiding tegen Everton na heerlijke goal Jérémy Doku](https://www.ad.nl/voetbal/manchester-city-verdiend-aan-de-leiding-tegen-everton-na-heerlijke-goal-jeremy-doku~ab10e6ea/)
-  > De ontknoping in de Premier League nadert. Arsenal staat bovenaan en heeft zes punten meer dan Manchester City, maar de ploeg van Pep Guardiola lijkt...
-- [Jutta gaat helemaal op in Amerikaanse cultuur, Suzanne waagt dansje op dansvloer](https://www.ad.nl/show/jutta-gaat-helemaal-op-in-amerikaanse-cultuur-suzanne-waagt-dansje-op-dansvloer~a9ff34b1/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Oekraïense drone raakt luxe flat in Moskou en dat maakt Poetin nerveus](https://www.ad.nl/buitenland/oekraiense-drone-raakt-luxe-flat-in-moskou-en-dat-maakt-poetin-nerveus~a952697b/)
-  > Een luxe appartementencomplex midden in Moskou is maandagochtend vroeg getroffen door een Oekraïense drone. Niemand raakte gewond, maar het was...
-- [Oekraïne en Rusland kondigen tijdelijk staakt-het-vuren aan](https://www.ad.nl/buitenland/oekraine-en-rusland-kondigen-tijdelijk-staakt-het-vuren-aan~adfb97be/)
-  > President Poetin heeft maandag een bestand van twee dagen aangekondigd. President Zelensky kondigde daarop zijn eigen wapenstilstand aan, die op 6...
+- [Blake Lively en Justin Baldoni schikken in veelbesproken It ends with us-zaak](https://www.ad.nl/show/blake-lively-en-justin-baldoni-schikken-in-veelbesproken-it-ends-with-us-zaak~a7989a82/)
+  > Blake Lively en Justin Baldoni hebben een schikking getroffen in de zaak die Lively had aangespannen tegen haar tegenspeler in de film It ends with...
+- [Noslin helpt Lazio aan winst op Cremonese, Malen draagt met assist bij aan ruime zege AS Roma](https://www.ad.nl/voetbal/noslin-helpt-lazio-aan-winst-op-cremonese-malen-draagt-met-assist-bij-aan-ruime-zege-as-roma~a2e5eaf0/)
+  > Tijjani Noslin heeft Lazio aan een uitzege op Cremonese geholpen. De aanvaller uit Amsterdam mocht na rust invallen en bereidde de gelijkmaker van...
+- [Manchester City redt punt in krankzinnige slotfase tegen Everton, maar verliest terrein op Arsenal](https://www.ad.nl/voetbal/manchester-city-redt-punt-in-krankzinnige-slotfase-tegen-everton-maar-verliest-terrein-op-arsenal~ab10e6ea/)
+  > Manchester City heeft zichzelf een slechte dienst bewezen in de titelstrijd met Arsenal. De ploeg van Pep Guardiola leek na een spectaculaire tweede...
+- [Reizigers cruiseschip tastten in duister toen hantavirus nog niet was aangetoond: ‘Heel eng’](https://www.ad.nl/buitenland/reizigers-cruiseschip-tastten-in-duister-toen-hantavirus-nog-niet-was-aangetoond-heel-eng~ac781c5c/)
+  > Het waren beangstigende momenten op het cruiseschip op de Atlantische Oceaan toen een Nederlands stel overleed. „Het was heel eng, omdat we eerst...
+- [Neymar wordt op training voorbij gedribbeld door zoon van Robinho, en mept hem dan maar tegen de grond](https://www.ad.nl/voetbal/neymar-wordt-op-training-voorbij-gedribbeld-door-zoon-van-robinho-en-mept-hem-dan-maar-tegen-de-grond~a752b94f/)
+  > Het is hommeles bij Santos. Tijdens een training liepen de gemoederen hoog op tussen Neymar (34) en Robinho Júnior (18), zoon van oud-international...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Techbedrijf Palantir draait beter eerste kwartaal dan verwacht](https://fd.nl/bedrijfsleven/1595702/techbedrijf-palantir-draait-beter-eerste-kwartaal-dan-verwacht)
+  > Het bedrijf realiseerde de snelste omzetgroei sinds de beursnotering in 2020.
 - [Amazon drukt Dow Jones met logistiek aanvalsplan](https://fd.nl/financiele-markten/1595624/amazon-drukt-dow-jones-met-logistiek-aanvalsplan)
   > Ondertussen stapelden ook maandag de nieuwe berichten over wapengekletter in het Midden-Oosten zich op.
 - [Trump maakt de VS onbetrouwbaar](https://fd.nl/opinie/1595380/trump-maakt-de-vs-onbetrouwbaar)
@@ -54,8 +56,6 @@
   > Het is niet de eerste keer dat Euronext een waarschuwing uitdeelt aan de Nederlandse bouwer van statiegeldinnamemachines.
 - [Defensiebedrijf CSG duikt omlaag op Damrak na rapport vol kritiek](https://fd.nl/financiele-markten/1595686/defensiebedrijf-csg-duikt-omlaag-op-damrak-na-rapport-vol-kritiek)
   > De belangrijkste beschuldiging van shortseller Hunterbrook is dat CSG vooral een doorverkoper van oude munitie is, met veel juridische problemen. CSG...
-- [‘Brussel wil uitstootlasten industrie verlichten’](https://fd.nl/politiek/1595590/brussel-wil-uitstootlasten-industrie-verlichten)
-  > Extra gratis CO₂-emissierechten leveren een besparing van €4 mrd op voor het bedrijfsleven.
 
 ### Meest gelezen
 
