@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-05-2026 om 22:05*
+*Laatst bijgewerkt: 04-05-2026 om 23:57*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Bevrijdingsvuur in Wageningen ontstoken: 'Offers voor bevrijding nooit vergeten'](https://nos.nl/l/2613161)
+  > Het Bevrijdingsvuur is traditiegetrouw kort na middernacht ontstoken voor het historische Hotel de Wereld in Wageningen. Daar werd op 5 mei 1945 het...
 - [Armenië toneel van topoverleg over op zichzelf aangewezen Europa: 'Pijnlijke les'](https://nos.nl/l/2613150)
   > Als we iets geleerd hebben de laatste tijd, is het dat we veel te afhankelijk zijn. Dat zei Commissievoorzitter Von der Leyen vandaag op een top voor...
 - [Politie schiet man neer in Rotterdam na bedreiging met vuurwapen](https://nos.nl/l/2613145)
@@ -16,8 +18,6 @@
   > In Amsterdam zijn de twee minuten stilte tijdens de Nationale Herdenking nagenoeg vlekkeloos verlopen. Op de herdenkingsavond zijn in totaal dertien...
 - [Zes gifkikkers gevonden bij toilet Schiphol](https://nos.nl/l/2613142)
   > De douane heeft vorige week zes gifkikkers gevonden in een toiletruimte op Schiphol. De diertjes zaten in een bakje dat was gedumpt in de prullenbak...
-- [Grote drugsvangst bij Canarische Eilanden, 'Nederlanders onder arrestanten'](https://nos.nl/l/2613138)
-  > De Spaanse politie heeft tienduizenden kilo's cocaïne onderschept ten zuiden van de Canarische Eilanden. Volgens de Guardia Civil lag er tussen de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Blake Lively en Justin Baldoni schikken in veelbesproken It ends with us-zaak](https://www.ad.nl/show/blake-lively-en-justin-baldoni-schikken-in-veelbesproken-it-ends-with-us-zaak~a7989a82/)
-  > Blake Lively en Justin Baldoni hebben een schikking getroffen in de zaak die Lively had aangespannen tegen haar tegenspeler in de film It ends with...
-- [Noslin helpt Lazio aan winst op Cremonese, Malen draagt met assist bij aan ruime zege AS Roma](https://www.ad.nl/voetbal/noslin-helpt-lazio-aan-winst-op-cremonese-malen-draagt-met-assist-bij-aan-ruime-zege-as-roma~a2e5eaf0/)
-  > Tijjani Noslin heeft Lazio aan een uitzege op Cremonese geholpen. De aanvaller uit Amsterdam mocht na rust invallen en bereidde de gelijkmaker van...
-- [Manchester City redt punt in krankzinnige slotfase tegen Everton, maar verliest terrein op Arsenal](https://www.ad.nl/voetbal/manchester-city-redt-punt-in-krankzinnige-slotfase-tegen-everton-maar-verliest-terrein-op-arsenal~ab10e6ea/)
-  > Manchester City heeft zichzelf een slechte dienst bewezen in de titelstrijd met Arsenal. De ploeg van Pep Guardiola leek na een spectaculaire tweede...
+- [Schietpartij in Washington nabij Witte Huis: verdachte en omstander in ziekenhuis](https://www.ad.nl/buitenland/schietpartij-in-washington-nabij-witte-huis-verdachte-en-omstander-in-ziekenhuis~a0e2f412/)
+  > In Washington heeft niet ver van het Witte Huis een schietpartij plaatsgevonden, waarbij agenten iemand hebben neergeschoten. Het Witte Huis werd...
 - [Reizigers cruiseschip tastten in duister toen hantavirus nog niet was aangetoond: ‘Heel eng’](https://www.ad.nl/buitenland/reizigers-cruiseschip-tastten-in-duister-toen-hantavirus-nog-niet-was-aangetoond-heel-eng~ac781c5c/)
   > Het waren beangstigende momenten op het cruiseschip op de Atlantische Oceaan toen een Nederlands stel overleed. „Het was heel eng, omdat we eerst...
-- [Neymar wordt op training voorbij gedribbeld door zoon van Robinho, en mept hem dan maar tegen de grond](https://www.ad.nl/voetbal/neymar-wordt-op-training-voorbij-gedribbeld-door-zoon-van-robinho-en-mept-hem-dan-maar-tegen-de-grond~a752b94f/)
-  > Het is hommeles bij Santos. Tijdens een training liepen de gemoederen hoog op tussen Neymar (34) en Robinho Júnior (18), zoon van oud-international...
+- [Voetbalpodcast | ‘We zijn eindelijk bevrijd van paspoortgate’](https://www.ad.nl/voetbal/voetbalpodcast-we-zijn-eindelijk-bevrijd-van-paspoortgate~ac8603a9/)
+  > Paspoortgate is afgerond. Tenminste, de rechter besliste in het voordeel van de KNVB. In de AD Voetbalpodcast ronden Etienne Verhoeff en Johan Inan...
+- [WO II-veteranen (103 en 105) ontsteken bevrijdingsvuur in Wageningen](https://www.ad.nl/binnenland/wo-ii-veteranen-103-en-105-ontsteken-bevrijdingsvuur-in-wageningen~ae10fe01/)
+  > In Wageningen heeft burgemeester Floor Vermeulen rond middernacht traditiegetrouw het Nationaal Bevrijdingsvuur aangestoken, als startsein voor de...
+- [Auto rijdt in op menigte in Leipzig: man (77) en vrouw (63) gedood en ruim twintig gewonden](https://www.ad.nl/buitenland/auto-rijdt-in-op-menigte-in-leipzig-man-77-en-vrouw-63-gedood-en-ruim-twintig-gewonden~aa32f814/)
+  > Een auto is in het Duitse Leipzig ingereden op een groep mensen. Daarbij zijn zeker twee doden gevallen en meer dan twintig personen gewond geraakt,...
 
 ### Meest gelezen
 
@@ -46,16 +46,15 @@
 
 ### Laatste nieuws
 
-- [Techbedrijf Palantir draait beter eerste kwartaal dan verwacht](https://fd.nl/bedrijfsleven/1595702/techbedrijf-palantir-draait-beter-eerste-kwartaal-dan-verwacht)
-  > Het bedrijf realiseerde de snelste omzetgroei sinds de beursnotering in 2020.
-- [Amazon drukt Dow Jones met logistiek aanvalsplan](https://fd.nl/financiele-markten/1595624/amazon-drukt-dow-jones-met-logistiek-aanvalsplan)
-  > Ondertussen stapelden ook maandag de nieuwe berichten over wapengekletter in het Midden-Oosten zich op.
-- [Trump maakt de VS onbetrouwbaar](https://fd.nl/opinie/1595380/trump-maakt-de-vs-onbetrouwbaar)
-  > Bij de Amerikaanse president Trump is zowel de waarde van woorden als die van afspraken gedevalueerd.
-- [Envipco opnieuw naar het strafbankje](https://fd.nl/bedrijfsleven/1595591/envipco-opnieuw-naar-het-strafbankje)
-  > Het is niet de eerste keer dat Euronext een waarschuwing uitdeelt aan de Nederlandse bouwer van statiegeldinnamemachines.
-- [Defensiebedrijf CSG duikt omlaag op Damrak na rapport vol kritiek](https://fd.nl/financiele-markten/1595686/defensiebedrijf-csg-duikt-omlaag-op-damrak-na-rapport-vol-kritiek)
-  > De belangrijkste beschuldiging van shortseller Hunterbrook is dat CSG vooral een doorverkoper van oude munitie is, met veel juridische problemen. CSG...
+- [Overvolle fondsen](https://fd.nl/opinie/1595284/overvolle-fondsen)
+- [Groeiende groep werknemers heeft Bevrijdingsdag betaald vrij](https://fd.nl/bedrijfsleven/1595157/groeiende-groep-werknemers-heeft-bevrijdingsdag-betaald-vrij)
+  > Hoewel steeds meer mensen betaald vrij zijn op Bevrijdingsdag, weet niet iedereen of dat ook voor hen geldt. ‘Is 5 mei een vrije dag?’, was vorige...
+- [Cryptogoksites ook na verbod Polymarket nog actief in Nederland](https://fd.nl/financiele-markten/1594902/cryptogoksites-ook-na-verbod-polymarket-nog-actief-in-nederland)
+  > Veruit de meeste cryptogokkers lijden verlies. Ook kunnen ze op ‘voorspellingsmarkten’ slachtoffer worden van marktmanipulatie en handel met...
+- [Merz krijgt straf van Trump](https://fd.nl/opinie/1595065/merz-krijgt-straf-van-trump)
+  > Trumps dreigement om troepen uit Duitsland terug te trekken lijkt een straf voor Berlijn, maar raakt vooral de VS en de Navo – en speelt Poetin in de...
+- [Personalia dinsdag 5 mei](https://fd.nl/bedrijfsleven/1595689/personalia-dinsdag-5-mei)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
