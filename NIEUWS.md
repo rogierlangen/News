@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-05-2026 om 11:18*
+*Laatst bijgewerkt: 05-05-2026 om 16:27*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [ING schikt in witwaszaak oud-Eurocommissaris voor 1,6 miljoen](https://nos.nl/l/2613202)
-  > ING treft in de Belgische witwaszaak rond oud-politicus Didier Reynders een schikking voor 1,6 miljoen euro. Dat meldt het Brusselse parket. De bank...
-- [Nieuw onderzoek: grootschalig geweld in Nederlandse strafkampen na oorlog](https://nos.nl/l/2613199)
-  > Na de Tweede Wereldoorlog vond grootschalig geweld plaats in Nederlandse interneringskampen waar mensen vastzaten die werden beschuldigd van...
-- [Uitbuiting in Verenigd Koninkrijk naar recordhoogte, roep om actie van regering](https://nos.nl/l/2613198)
-  > Het aantal gevallen van uitbuiting in het Verenigd Koninkrijk is gestegen tot recordhoogte en zal de komende tien jaar blijven toenemen. Daarvoor...
-- [Artiesten Bevrijdingsfestivals krijgen ruimte om 'vrijheid' te belichten](https://nos.nl/l/2613192)
-  > Vandaag wordt op veertien officiële Bevrijdingsfestivals in alle provincies in Nederland de bevrijding gevierd en stilgestaan bij het belang van...
-- [Gloednieuw vakantieverblijf voor kinderen met beperking in brand gestoken](https://nos.nl/l/2613191)
-  > Het nieuwe vakantieverblijf van een stichting voor kinderen en jongeren met een beperking in Heel (Limburg) blijkt toch in brand gestoken. Dat...
+- [Rolling Stones komen met nieuw studioalbum](https://nos.nl/l/2613243)
+  > De Rolling Stones hebben een nieuw studio-album aangekondigd, Foreign Tongues. Het album komt op 10 juli uit, bijna drie jaar na de lancering van hun...
+- [Dodelijk ongeval in file op A1 richting Duitsland](https://nos.nl/l/2613239)
+  > Bij een ongeval op de A1 ter hoogte van De Lutte is vanmiddag iemand omgekomen. Een busje botste volgens RTV Oost achterop een vrachtwagen die in de...
+- [VS ziet in recente Iraanse aanvallen geen reden oorlog te hervatten](https://nos.nl/l/2613237)
+  > De Iraanse en Amerikaanse aanvallen van gisteren waren volgens de VS geen schending van het staakt-het-vuren. Generaal Caine en defensieminister...
+- [Volgende week winactie bij inleveren blikjes en flesjes met statiegeld](https://nos.nl/l/2613236)
+  > Vanaf volgende week is de eerste winactie bij het inleveren van blikjes en flesjes via statiegeldautomaten die via Tikkie uitbetalen, meldt...
+- [Meldpunt voor problemen met sportsubsidieregeling: 'Dit is niet meer verantwoord'](https://nos.nl/l/2613233)
+  > De belangenvereniging van sportbestuurders RVVB stelt een meldpunt in voor clubs die zich gedupeerd voelen door de problemen met een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Prima start voor nieuw Koreaans automerk in Nederland](https://www.ad.nl/auto/prima-start-voor-nieuw-koreaans-automerk-in-nederland~a54c94d5/)
-  > Hoewel de merknaam synoniem staat voor ‘het begin’, was Nederland niet van de partij toen Genesis als separaat merk begon. Sterker nog, het heeft...
-- [Zangeres Karsu wil naar Eurovisie Songfestival: ‘Eerste keer dat ik dit uitspreek’](https://www.ad.nl/show/zangeres-karsu-wil-naar-eurovisie-songfestival-eerste-keer-dat-ik-dit-uitspreek~a8b9dd58/)
-  > Als Nederland volgend jaar weer van de partij is bij het Eurovisie Songfestival, dan ziet Karsu Dönmez (36) het wel zitten om mee te doen. Het...
-- [Na Odido hackt ShinyHunters nu onderwijssoftware: 44 instellingen in Nederland getroffen](https://www.ad.nl/tech/na-odido-hackt-shinyhunters-nu-onderwijssoftware-44-instellingen-in-nederland-getroffen~ab607b47/)
-  > Het bedrijf achter onderwijssoftware Canvas is slachtoffer van een cyberaanval. Dat meldt het Amerikaanse moederbedrijf Instructure. Er zouden...
-- [Instagram Jade Kops blijft 'herinneringsboek' aan haar leven](https://www.ad.nl/westland/instagram-jade-kops-blijft-herinneringsboek-aan-haar-leven~a0fae251/)
-  > Het Instagramaccount @mijnlevenmetkanker_ van Jade Kops blijft bestaan als een herinneringsboek aan Jade haar leven. Dat deelt de familie van de...
-- [Nederlandse ijshockeyers verliezen alle wedstrijden op het WK, maar degraderen tóch niet](https://www.ad.nl/andere-sporten/nederlandse-ijshockeyers-verliezen-alle-wedstrijden-op-het-wk-maar-degraderen-toch-niet~ae9fd40d/)
-  > Het is het Nederlands ijshockeyteam niet gelukt om het WK in China (groep 1B) af te sluiten met een overwinning. Ook Spanje was sterker dan Oranje:...
+- [RKC en Willem II tegenover elkaar, Mounir El Allouchi van de partij](https://www.ad.nl/voetbal/rkc-en-willem-ii-tegenover-elkaar-mounir-el-allouchi-van-de-partij~a4783a57/)
+  > RKC Waalwijk kwam in de eerste ronde van de play-offs om promotie goed weg tegen Roda JC. De volgende halte is Willem II, dat derde werd in de Keuken...
+- [Hoe hard en waarom Ajax in de tweede helft structureel door het ijs zakt](https://www.ad.nl/voetbal/hoe-hard-en-waarom-ajax-in-de-tweede-helft-structureel-door-het-ijs-zakt~a3501150/)
+  > Ajax viel tegen PSV weer eens stil in de tweede helft. Interim-trainer Óscar García noemt de fysieke staat van zijn ploeg ‘zorgelijk’. Hoe komt het...
+- [The Rolling Stones bevestigen lancering nieuw album, werd binnen een maand geschreven: ‘We zijn in topvorm’](https://www.ad.nl/show/the-rolling-stones-bevestigen-lancering-nieuw-album-werd-binnen-een-maand-geschreven-we-zijn-in-topvorm~a2acc469/)
+  > Na weken vol hints en speculatie bevestigen The Rolling Stones dat er een nieuw album uitkomt. Op 10 juli lanceert de Britse band het album Foreign...
+- [Bevrijdingsfestival Zwolle te laat met 5-voor-5 moment](https://www.ad.nl/binnenland/bevrijdingsfestival-zwolle-te-laat-met-5-voor-5-moment~a1a16b8e/)
+  > Na een rustig verlopen dodenherdenking kunnen de vlaggen van halfstok weer richting de toppen van de masten worden gehesen. Nederland viert vandaag...
+- [Opmerkelijke overstap: directeur Milieudefensie gaat werken voor Tata Steel](https://www.ad.nl/economie/opmerkelijke-overstap-directeur-milieudefensie-gaat-werken-voor-tata-steel~acf28399/)
+  > Milieudefensie-directeur Donald Pols gaat in juni aan de slag bij Tata Steel Nederland. Hij moet per direct stoppen bij de milieuclub, die ‘zeer...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Japans toiletpottenbedrijf profiteert van rol in AI-revolutie](https://fd.nl/financiele-markten/1595690/japans-toiletpottenbedrijf-profiteert-van-rol-in-ai-revolutie)
-  > Het bedrijf blijkt buiten de badkamer onmisbaar in een totaal andere tak van sport. Het aandeel steeg na een aankondiging over AI-investeringen met...
-- [Ex-topman biotechbedrijf Linxis krijgt bijna twee ton mee](https://fd.nl/bedrijfsleven/1595710/ex-topman-biotechbedrijf-linxis-krijgt-bijna-twee-ton-mee)
-  > Jarenlang is er geprocedeerd tussen een bedrijf en de weggestuurde topman. Hij claimde ook de octrooien. De rechter oordeelde dat hij daar geen...
-- [Nederlandse bedrijven hekkensluiter in EU met investeringen](https://fd.nl/economie/1595683/nederlandse-bedrijven-investeren-ondermaats-binnen-de-eu)
-  > In het vierde kwartaal van 2025 bereikte het investeringsniveau door bedrijven het laagste punt in ruim tien jaar.
-- [De EU Inc. wordt zevenentwintigkoppig monster](https://fd.nl/opinie/1595060/de-eu-inc-wordt-zevenentwintigkoppig-monster)
-  > Eén nieuwe Europese rechtsvorm voor alle EU-lidstaten. Het klinkt als een enorme stap vooruit voor grensoverschrijdend ondernemerschap. Toch zitten...
-- [Designer Dirk van der Kooij: ‘Zomaar met iets geks op de proppen komen is niet leuk’](https://fd.nl/samenleving/1595280/designer-dirk-van-der-kooij-zomaar-met-iets-geks-op-de-proppen-komen-is-niet-leuk)
-  > Dirk van der Kooij transformeert met behulp van robots afgedankt plastic tot meubels. ‘De uitdaging is om van ogenschijnlijk waardeloos materiaal een...
+- [Toezichthouder greep minder vaak in bij gevoelige overnames](https://fd.nl/politiek/1595633/toezichthouder-greep-minder-vaak-in-bij-gevoelige-overnames)
+  > Hoewel het aantal onderzoeken naar overnames die de nationale veiligheid raken vorig jaar steeg, zag toezichthouder Bureau Toetsing Investeringen...
+- [Uitzendsector dijt uit met niet-gereguleerde bedrijven](https://fd.nl/samenleving/1595714/uitzendsector-dijt-uit-met-niet-gereguleerde-bedrijven)
+  > Steeds meer uitleners van personeel opereren onder de radar, laat nieuw onderzoek zien. Branchewaakhond SNCU is bezorgd over de toename.
+- [Directeur Milieudefensie maakt opvallende overstap naar Tata Steel](https://fd.nl/bedrijfsleven/1595629/directeur-milieudefensie-maakt-opvallende-overstap-naar-tata-steel)
+  > Algemeen directeur Donald Pols verlaat Milieudefensie om directeur duurzaamheid te worden bij de staalfabrikant.
+- [Finfluencers: vloek of zegen bij Europese behoefte aan investeringen?](https://fd.nl/politiek/1595625/finfluencers-vloek-of-zegen-bij-europese-behoefte-aan-investeringen)
+  > Finfluencers kunnen helpen geld op een verantwoorde wijze te laten rollen in de EU, meent het Europarlement. Mits het kaf van het koren wordt...
+- [ASR neemt pensioenverplichtingen Kring Bavaria over](https://fd.nl/bedrijfsleven/1595631/asr-neemt-pensioenverplichtingen-kring-bavaria-over)
+  > De regelingen waren ondergebracht bij Centraal Beheer APF, dat het aantal pensioenkringen dat het bedient wil verlagen.
 
 ### Meest gelezen
 
