@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-05-2026 om 09:09*
+*Laatst bijgewerkt: 05-05-2026 om 11:18*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Steeds meer Nederlanders elke 5 mei betaald vrij, ook kinderopvang blijft dicht](https://nos.nl/l/2613185)
-  > Steeds meer mensen zijn elk jaar betaald vrij op Bevrijdingsdag. Dit wordt steeds vaker vastgelegd in cao's. Het Financieele Dagblad vroeg...
-- [Prominente Oostenrijkse politicus veroordeeld voor vriendjespolitiek](https://nos.nl/l/2613176)
-  > In Oostenrijk is een prominente politicus veroordeeld voor ambtsmisbruik. August Wöginger, de fractieleider van regeringspartij ÖVP, kreeg in de...
-- [Wekdienst 5/5: Het is Bevrijdingsdag • Solidariteitsbijeenkomst voor Iraanse politieke gevangenen](https://nos.nl/l/2613171)
-  > Goedemorgen! Vandaag wordt door het hele land de vrijheid gevierd, het is Bevrijdingsdag. En in Scheveningen is bij het Oranjehotel een...
-- [Negen mijnwerkers omgekomen door explosie in kolenmijn in Colombia](https://nos.nl/l/2613166)
-  > Negen mijnwerkers zijn omgekomen door een explosie in een kolenmijn in de gemeente Sutatausa in Centraal-Colombia.
-        Volgens autoriteiten...
-- [Zeker 26 doden en tientallen gewonden bij explosie in Chinese vuurwerkfabriek](https://nos.nl/l/2613165)
-  > Bij een explosie in een vuurwerkfabriek in de provincie Hunan, in het zuiden van China, zijn zeker 26 mensen om het leven gekomen en 61 mensen gewond...
+- [ING schikt in witwaszaak oud-Eurocommissaris voor 1,6 miljoen](https://nos.nl/l/2613202)
+  > ING treft in de Belgische witwaszaak rond oud-politicus Didier Reynders een schikking voor 1,6 miljoen euro. Dat meldt het Brusselse parket. De bank...
+- [Nieuw onderzoek: grootschalig geweld in Nederlandse strafkampen na oorlog](https://nos.nl/l/2613199)
+  > Na de Tweede Wereldoorlog vond grootschalig geweld plaats in Nederlandse interneringskampen waar mensen vastzaten die werden beschuldigd van...
+- [Uitbuiting in Verenigd Koninkrijk naar recordhoogte, roep om actie van regering](https://nos.nl/l/2613198)
+  > Het aantal gevallen van uitbuiting in het Verenigd Koninkrijk is gestegen tot recordhoogte en zal de komende tien jaar blijven toenemen. Daarvoor...
+- [Artiesten Bevrijdingsfestivals krijgen ruimte om 'vrijheid' te belichten](https://nos.nl/l/2613192)
+  > Vandaag wordt op veertien officiële Bevrijdingsfestivals in alle provincies in Nederland de bevrijding gevierd en stilgestaan bij het belang van...
+- [Gloednieuw vakantieverblijf voor kinderen met beperking in brand gestoken](https://nos.nl/l/2613191)
+  > Het nieuwe vakantieverblijf van een stichting voor kinderen en jongeren met een beperking in Heel (Limburg) blijkt toch in brand gestoken. Dat...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nederlandse wegpiraat treitert Duitse lesauto en zoekt confrontatie bij stoplicht: ‘Hij zit er bovenop, hè!’](https://www.ad.nl/binnenland/nederlandse-wegpiraat-treitert-duitse-lesauto-en-zoekt-confrontatie-bij-stoplicht-hij-zit-er-bovenop-he~ab148ce7/)
-  > Een chauffeur van een Nederlands bedrijf is op staande voet ontslagen nadat hij in Duitsland gevaarlijke capriolen uithaalde bij een lesauto....
-- [Waarom gemeenten wéér in actie komen (en noodopvang regelen)](https://www.ad.nl/binnenland/waarom-gemeenten-weer-in-actie-komen-en-noodopvang-regelen~addbef72/)
-  > Nederland komt duizenden opvangplekken voor asielzoekers tekort. Steeds zijn het dezelfde gemeenten die bijspringen met sporthallen en hotels....
-- [Oud-coureur Montoya wil straf voor Max Verstappen na kritiek op nieuwe regels: ‘Zet hem aan de kant’](https://www.ad.nl/formule-1/oud-coureur-montoya-wil-straf-voor-max-verstappen-na-kritiek-op-nieuwe-regels-zet-hem-aan-de-kant~a957d1843/)
-  > Dat Max Verstappen een hekel heeft aan de nieuwe reglementen in de Formule 1, kan niemand zijn ontgaan. De viervoudig wereldkampioen van Red Bull...
-- [Nieuw record voor benzineprijzen in Nederland, terwijl prijzen in Duitsland juist zakken](https://www.ad.nl/economie/nieuw-record-voor-benzineprijzen-in-nederland-terwijl-prijzen-in-duitsland-juist-zakken~a4ff7aca6/)
-  > De adviesprijs voor benzine in Nederland is dinsdag verder gestegen. Daarmee is benzine op Bevrijdingsdag duurder dan ooit, volgt uit cijfers van...
-- [Eindelijk was Chantal uit de schulden, maar toch jaagt ze er in een paar weken 2000 euro doorheen](https://www.ad.nl/geld/eindelijk-was-chantal-uit-de-schulden-maar-toch-jaagt-ze-er-in-een-paar-weken-2000-euro-doorheen~ae13076c/)
-  > Chantal (50) heeft geen schulden meer, haar financiën zijn weer overzichtelijk én ze heeft een buffer opgebouwd. Maar dan gaat het toch mis en raakt...
+- [Prima start voor nieuw Koreaans automerk in Nederland](https://www.ad.nl/auto/prima-start-voor-nieuw-koreaans-automerk-in-nederland~a54c94d5/)
+  > Hoewel de merknaam synoniem staat voor ‘het begin’, was Nederland niet van de partij toen Genesis als separaat merk begon. Sterker nog, het heeft...
+- [Zangeres Karsu wil naar Eurovisie Songfestival: ‘Eerste keer dat ik dit uitspreek’](https://www.ad.nl/show/zangeres-karsu-wil-naar-eurovisie-songfestival-eerste-keer-dat-ik-dit-uitspreek~a8b9dd58/)
+  > Als Nederland volgend jaar weer van de partij is bij het Eurovisie Songfestival, dan ziet Karsu Dönmez (36) het wel zitten om mee te doen. Het...
+- [Na Odido hackt ShinyHunters nu onderwijssoftware: 44 instellingen in Nederland getroffen](https://www.ad.nl/tech/na-odido-hackt-shinyhunters-nu-onderwijssoftware-44-instellingen-in-nederland-getroffen~ab607b47/)
+  > Het bedrijf achter onderwijssoftware Canvas is slachtoffer van een cyberaanval. Dat meldt het Amerikaanse moederbedrijf Instructure. Er zouden...
+- [Instagram Jade Kops blijft 'herinneringsboek' aan haar leven](https://www.ad.nl/westland/instagram-jade-kops-blijft-herinneringsboek-aan-haar-leven~a0fae251/)
+  > Het Instagramaccount @mijnlevenmetkanker_ van Jade Kops blijft bestaan als een herinneringsboek aan Jade haar leven. Dat deelt de familie van de...
+- [Nederlandse ijshockeyers verliezen alle wedstrijden op het WK, maar degraderen tóch niet](https://www.ad.nl/andere-sporten/nederlandse-ijshockeyers-verliezen-alle-wedstrijden-op-het-wk-maar-degraderen-toch-niet~ae9fd40d/)
+  > Het is het Nederlands ijshockeyteam niet gelukt om het WK in China (groep 1B) af te sluiten met een overwinning. Ook Spanje was sterker dan Oranje:...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Op top van Europese leiders in Armenië is rol van VS hét gespreksthema](https://fd.nl/politiek/1595708/op-top-van-europese-leiders-in-armenie-is-rol-van-vs-het-gespreksthema)
-  > Tijdens de top van de Europese Politieke Gemeenschap in Armenië ligt het besluit van president Donald Trump om 5000 Amerikaanse troepen terug te...
-- [Miljardenwinsten bij olieconcerns door Iran-oorlog wakkeren roep om woekertaks aan](https://fd.nl/financiele-markten/1595678/miljardenwinsten-bij-olieconcerns-door-iran-oorlog-wakkeren-roep-om-woekertaks-aan)
-  > Door de oorlog in het Midden-Oosten zagen olieconcerns de prijs van Brent van gemiddeld $67 in januari en februari naar $99 oplopen in maart....
-- [Populistische storm dreigt Labour en Tory’s weg te vagen](https://fd.nl/politiek/1594790/populistische-storm-dreigt-labour-en-torys-weg-te-vagen)
-  > Ontevreden Britse kiezers lopen over naar het rechtse Reform UK en de linkse Green Party. Overleeft premier Keir Starmer het verwachte electorale...
-- [Een bedrijf met de hele familie](https://fd.nl/samenleving/1595226/een-bedrijf-met-de-hele-familie)
-  > Femmetje de Wind heeft een dochter met een ondernemende geest, dus is het zaak niet meteen met praktische bezwaren op de proppen te komen.
-- [Baas in eigen buidel](https://fd.nl/financiele-markten/1595704/baas-in-eigen-buidel)
-  > Oef, inspraak – gewaagd concept! Wat als de pensioenfondsdeelnemers het ‘verkeerde’ antwoord geven en kiezen voor rendement boven de planeet?
+- [Japans toiletpottenbedrijf profiteert van rol in AI-revolutie](https://fd.nl/financiele-markten/1595690/japans-toiletpottenbedrijf-profiteert-van-rol-in-ai-revolutie)
+  > Het bedrijf blijkt buiten de badkamer onmisbaar in een totaal andere tak van sport. Het aandeel steeg na een aankondiging over AI-investeringen met...
+- [Ex-topman biotechbedrijf Linxis krijgt bijna twee ton mee](https://fd.nl/bedrijfsleven/1595710/ex-topman-biotechbedrijf-linxis-krijgt-bijna-twee-ton-mee)
+  > Jarenlang is er geprocedeerd tussen een bedrijf en de weggestuurde topman. Hij claimde ook de octrooien. De rechter oordeelde dat hij daar geen...
+- [Nederlandse bedrijven hekkensluiter in EU met investeringen](https://fd.nl/economie/1595683/nederlandse-bedrijven-investeren-ondermaats-binnen-de-eu)
+  > In het vierde kwartaal van 2025 bereikte het investeringsniveau door bedrijven het laagste punt in ruim tien jaar.
+- [De EU Inc. wordt zevenentwintigkoppig monster](https://fd.nl/opinie/1595060/de-eu-inc-wordt-zevenentwintigkoppig-monster)
+  > Eén nieuwe Europese rechtsvorm voor alle EU-lidstaten. Het klinkt als een enorme stap vooruit voor grensoverschrijdend ondernemerschap. Toch zitten...
+- [Designer Dirk van der Kooij: ‘Zomaar met iets geks op de proppen komen is niet leuk’](https://fd.nl/samenleving/1595280/designer-dirk-van-der-kooij-zomaar-met-iets-geks-op-de-proppen-komen-is-niet-leuk)
+  > Dirk van der Kooij transformeert met behulp van robots afgedankt plastic tot meubels. ‘De uitdaging is om van ogenschijnlijk waardeloos materiaal een...
 
 ### Meest gelezen
 
