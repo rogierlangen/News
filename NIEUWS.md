@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-05-2026 om 18:13*
+*Laatst bijgewerkt: 05-05-2026 om 20:10*
 
 ---
 
@@ -8,17 +8,18 @@
 
 ### Laatste nieuws
 
+- [Iran ontkent aanvallen VAE, dreigt met 'vernietigende' reactie](https://nos.nl/l/2613264)
+  > Iran ontkent aanvallen te hebben uitgevoerd op de Verenigde Arabische Emiraten (VAE). De VAE meldde vanmiddag in een bericht op X dat het land te...
+- [WHO zoekt passagiers van dezelfde vlucht als met hantavirus besmette vrouw](https://nos.nl/l/2613263)
+  > De Wereldgezondheidsorganisatie (WHO) is op zoek naar passagiers die op 25 april op dezelfde vlucht zaten als de Nederlandse vrouw die overleed aan...
+- [Goudkoorts in Suriname aangewakkerd door stijgende prijs](https://nos.nl/l/2613261)
+  > Beleggen in goud is een trend die steeds steeds terugkeert in tijden van onzekerheid. En dat is zeker ook nu het geval. 
+        In de afgelopen vijf...
 - [Opnieuw internetblokkades in steden, Russen nemen recordbedragen geld op](https://nos.nl/l/2613252)
   > Met nog vier dagen te gaan voor de Dag van de Overwinning, bereiden Russen zich voor op verregaande internetbeperkingen.
         Volgens Bloomberg...
 - [Armenië richt blik op Europese Unie door bekoelde band met Rusland](https://nos.nl/l/2613244)
   > In de residentie van de Armeense president in Jerevan verzamelde zich vanochtend de top van de EU: voorzitter van de Europese Commissie Von der...
-- [Rolling Stones komen met nieuw studioalbum](https://nos.nl/l/2613243)
-  > De Rolling Stones hebben een nieuw studio-album aangekondigd, Foreign Tongues. Het komt op 10 juli uit, bijna drie jaar na de lancering van hun...
-- [Dodelijk ongeval in file op A1 richting Duitsland](https://nos.nl/l/2613239)
-  > Bij een ongeval op de A1 ter hoogte van De Lutte is vanmiddag iemand omgekomen. Een busje botste volgens RTV Oost achterop een vrachtwagen die in de...
-- [VS ziet in recente Iraanse aanvallen geen reden oorlog te hervatten](https://nos.nl/l/2613237)
-  > De Iraanse en Amerikaanse aanvallen van gisteren waren volgens de VS geen schending van het staakt-het-vuren. Generaal Caine en defensieminister...
 
 ### Meest gelezen
 
@@ -28,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Marleen (25) overleeft steekpartij op station Overvecht, en eert haar redders met kunstwerk: ‘Ik dacht echt dat ik daar ook dood zou gaan’](https://www.ad.nl/binnenland/marleen-25-overleeft-steekpartij-op-station-overvecht-en-eert-haar-redders-met-kunstwerk-ik-dacht-echt-dat-ik-daar-ook-dood-zou-gaan~a8ab18db/)
-  > Nederland is nog in de ban van de afgrijselijke moord op de Abcoudese Lisa (17) als een maand later, op 19 september 2025, op station Utrecht...
-- [FNV-voorzitter Hans Spekman: ‘Ik had nooit gedacht dat ik de 60 zou halen’](https://www.ad.nl/mezza/fnv-voorzitter-hans-spekman-ik-had-nooit-gedacht-dat-ik-de-60-zou-halen~a0e7c7fe/)
-  > Verleden en heden liggen bij Hans Spekman (60) dicht bij elkaar. De jongen die opgroeide zonder vader en met een worstelende moeder, klinkt nog...
-- [NAC Breda accepteert uitspraak in ‘paspoortgate’ en ziet af van verdere procedures](https://www.ad.nl/voetbal/nac-breda-accepteert-uitspraak-in-paspoortgate-en-ziet-af-van-verdere-procedures~aa1bb519/)
-  > NAC Breda legt zich neer bij de rechterlijke uitspraak in het kort geding tegen de KNVB. De nummer 17 van de Eredivisie stapte naar de rechter omdat...
-- [Luis Enrique motiveert spelers Paris Saint-Germain met uitspraak Rafael Nadal](https://www.ad.nl/voetbal/luis-enrique-motiveert-spelers-paris-saint-germain-met-uitspraak-rafael-nadal~aac44c259/)
-  > Trainer Luis Enrique van Paris Saint-Germain heeft een uitspraak van tennisser Rafael Nadal aangehaald om zijn spelers te motiveren voor het tweede...
-- [Zangeres Karsu gilt van de spanning in helikopter, vrijheidsvuur in Vlissingen ontstoken](https://www.ad.nl/binnenland/zangeres-karsu-gilt-van-de-spanning-in-helikopter-vrijheidsvuur-in-vlissingen-ontstoken~a1a16b8e/)
-  > Na een rustig verlopen dodenherdenking kunnen de vlaggen van halfstok weer richting de toppen van de masten worden gehesen. Nederland viert vandaag...
+- [LIVE Hantavirus | WHO zoekt passagiers van vlucht naar Zuid-Afrika, waar Nederlandse in zat die door virus overleed](https://www.ad.nl/binnenland/live-hantavirus-who-zoekt-passagiers-van-vlucht-naar-zuid-afrika-waar-nederlandse-in-zat-die-door-virus-overleed~a3f98549/)
+  > De Wereldgezondheidsorganisatie (WHO) is bezig de passagiers op te sporen van de vlucht waarmee de Nederlandse vrouw die overleed aan het hantavirus...
+- [Experts vrezen dat bultrug Timmy ‘zeer waarschijnlijk’ dood is: ‘Op 2 mei voor het laatst gezien’](https://www.ad.nl/buitenland/experts-vrezen-dat-bultrug-timmy-zeer-waarschijnlijk-dood-is-op-2-mei-voor-het-laatst-gezien~a2a2851a/)
+  > Deskundigen van het Duitse Oceanografisch Museum vrezen dat de bultrug Timmy ‘zeer waarschijnlijk’ is overleden. De walvis strandde meerdere keren...
+- [LIVE Oorlog Oekraïne | Rusland maakt dodelijke slachtoffers in Oekraïne, Zelensky spreekt over ‘cynische terreuraanval’](https://www.ad.nl/buitenland/live-oorlog-oekraine-rusland-maakt-dodelijke-slachtoffers-in-oekraine-zelensky-spreekt-over-cynische-terreuraanval~adfb97be/)
+  > In Oekraïne zijn op verschillende plaatsen doden gevallen door Russische aanvallen. In de stad Zaporizja zijn zeker twaalf doden gevallen, meldde de...
+- [Rotterdam test ‘Spel Bel’ voor buitenspelende kinderen: ‘Mijn dochters maken nieuwe vrienden’](https://www.ad.nl/binnenland/rotterdam-test-spel-bel-voor-buitenspelende-kinderen-mijn-dochters-maken-nieuwe-vrienden~a68b2717/)
+  > In een speeltuin in Rotterdam‑Blijdorp hangt sinds anderhalve week een bijzondere deurbel. Wie hem indrukt, laat ouders in de buurt weten: er wordt...
+- [Xavi Simons geeft teken van leven na knie-operatie: Oranje-international wacht lange revalidatie](https://www.ad.nl/voetbal/xavi-simons-geeft-teken-van-leven-na-knie-operatie-oranje-international-wacht-lange-revalidatie~a37ad209/)
+  > Xavi Simons is dinsdag geopereerd aan zijn rechterknie. De 23-jarige international en zijn club Tottenham Hotspur meldden de operatie via social...
 
 ### Meest gelezen
 
