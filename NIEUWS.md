@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-05-2026 om 06:33*
+*Laatst bijgewerkt: 06-05-2026 om 09:26*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Onrust bij azc-protest in Apeldoorn](https://nos.nl/l/2613284)
-  > In Apeldoorn zijn gisteravond ongeregeldheden uitgebroken bij een protest tegen de komst van een noodopvang in de stad. Op een rotonde hadden zich...
-- [Verwaarlozing huisdieren steeds ernstiger: 'Vermagerd en in zwaar vervuilde huizen'](https://nos.nl/l/2613283)
-  > De verwaarlozing van huisdieren zoals honden en katten wordt steeds ernstiger, ziet de Landelijke Inspectiedienst Dierenwelzijn (LID). Het gaat om...
-- [Op je 82ste nog hongerig: Rolling Stones lanceren nieuwe album vol energie](https://nos.nl/l/2613281)
-  > Na de officiële aankondiging gisteren van hun 25ste album, Foreign Tongues, kwamen de Rolling Stones naar een monumentaal bankgebouw in de hippe wijk...
-- [Uitbraken zoals op de Hondius zijn zeldzaam, maar cruiseschepen zijn voorbereid](https://nos.nl/l/2613279)
-  > Miljoenen vakantiegangers stappen jaarlijks aan boord van een cruiseschip voor een reis op zee. Een uitbraak met ernstig zieken zoals we op het...
-- [Man in VS aangeklaagd die miljardair voor 450 miljoen dollar oplichtte](https://nos.nl/l/2613278)
-  > Een man wordt in de VS verdacht een Mexicaanse miljardair voor ongeveer 450 miljoen dollar (omgerekend zo'n 384 miljoen euro) te hebben opgelicht.
-  ...
+- [Invallen in Duitsland bij extreemrechtse criminele groepen](https://nos.nl/l/2613302)
+  > De Duitse politie voert sinds vanochtend huiszoekingen uit bij vermoedelijke leden van extreemrechtse criminele groepen. In twaalf van de zestien...
+- [Noord-Korea past grondwet aan en noemt Zuid-Korea een aparte staat](https://nos.nl/l/2613301)
+  > Noord-Korea heeft zijn grondwet aangepast om Zuid-Korea een aparte staat te kunnen noemen. In een concepttekst, ingezien door persbureau Reuters,...
+- [Aantal kinderen in noodopvang in vier jaar verdrievoudigd: 'We meten met twee maten'](https://nos.nl/l/2613299)
+  > Het aantal kinderen in de noodopvang is sinds 2022 verdrievoudigd. Dat blijkt uit cijfers die het Kinderrechtencollectief opvroeg bij het Centraal...
+- [Na een jaar raakt het geduld in Duitsland met bondskanselier Merz op](https://nos.nl/l/2613298)
+  > "Blijf geduldig." Dat is de raad die Friedrich Merz zichzelf zou geven, als hij terug in de tijd zou kunnen. De Duitse bondskanselier gaf dat...
+- [Straat in Spijkenisse opgeschrikt door derde explosie in week tijd](https://nos.nl/l/2613293)
+  > De Crocusstraat in Spijkenisse is afgelopen nacht voor de derde keer in korte tijd doelwit geweest van een explosie. Bewoners maken zich zorgen. "Dit...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Elk jaar op 16 mei krijgt agent Tuncay een appje van de man wiens leven hij redde: ‘Ik word er nog steeds een beetje stil van’](https://www.ad.nl/binnenland/elk-jaar-op-16-mei-krijgt-agent-tuncay-een-appje-van-de-man-wiens-leven-hij-redde-ik-word-er-nog-steeds-een-beetje-stil-van~a605d3d1/)
-  > Ook dit jaar zal het weer zo zijn, op 16 mei. Dan krijgt agent Tuncay een appje binnen op zijn telefoon. De afzender? De man die hij in 2021 het...
-- [Frans Muller stopt in 2027 als topman Moederbedrijf Bol.com, Ahold Delhaize, Fransman aan het roer](https://www.ad.nl/economie/frans-muller-stopt-in-2027-als-topman-moederbedrijf-bol-com-ahold-delhaize-fransman-aan-het-roer~aabb3ddc/)
-  > Ahold Delhaize, het moederbedrijf van onder andere Albert Heijn en Bol.com, wil Thierry Garnier in 2027 benoemen tot nieuwe topman. Garnier moet in...
-- [Persoonlijke spullen van Matthew Perry geveild voor goed doel](https://www.ad.nl/show/persoonlijke-spullen-van-matthew-perry-geveild-voor-goed-doel~a1792752/)
-  > Spullen van de overleden Friends-acteur Matthew Perry worden op 5 juni geveild. De opbrengst gaat naar The Matthew Perry Foundation die zich inzet...
-- [Ook onder Poetin groeit oorlogsmoeheid: Russen grijpen naar antidepressiva](https://www.ad.nl/buitenland/ook-onder-poetin-groeit-oorlogsmoeheid-russen-grijpen-naar-antidepressiva~af6702c2/)
-  > We horen hier zelden iets over, maar nu blijkt dat ook de Russen beetje bij beetje oorlogsmoe worden. En opvallend: het zijn niet zozeer Oekraïense...
-- [Frustratie bij Diego Simeone: Atlético-coach zoekt vlak voor eindsignaal confrontatie met oude bekende](https://www.ad.nl/voetbal/frustratie-bij-diego-simeone-atletico-coach-zoekt-vlak-voor-eindsignaal-confrontatie-met-oude-bekende~a933d4e1/)
-  > Arsenal plaatste zich dinsdagavond voor de finale van de Champions League, door Atlético Madrid met 1-0 te verslaan in de return in Londen. Het...
+- [Meloni kan lachen om AI-lingeriefoto, maar is ook kritisch: ‘Veel anderen kunnen zich niet verdedigen’](https://www.ad.nl/buitenland/meloni-kan-lachen-om-ai-lingeriefoto-maar-is-ook-kritisch-veel-anderen-kunnen-zich-niet-verdedigen~ae87aefb/)
+  > De Italiaanse premier Giorgia Meloni uit kritiek op een door AI gegenereerde nepafbeelding van zichzelf. Op de afbeelding, die veel wordt gedeeld, is...
+- [Voorspel de Giro en maak kans op prachtige prijzen!](https://www.ad.nl/wielrennen/voorspel-de-giro-en-maak-kans-op-prachtige-prijzen~a0213cc3/)
+  > Tussen 8 en 31 mei wordt de eerste grote ronde van het jaar bij de mannen verreden: de Giro d’Italia. Hieronder kun je vier voorspellingen doen voor...
+- [LIVE Hantavirus | Na Kaapverdië weigert ook Tenerife cruiseschip, besmettelijke Andesvariant ontdekt](https://www.ad.nl/binnenland/live-hantavirus-na-kaapverdie-weigert-ook-tenerife-cruiseschip-besmettelijke-andesvariant-ontdekt~a3f98549/)
+  > Een man die besmet is met het hantavirus wordt behandeld in Zürich. Intussen zegt de president van de Canarische Eilanden, Fernando Clavijo, de...
+- [Julius Jaspers toont herstel na hersenbloeding in documentaire: ‘Ik ben niet zielig’](https://www.ad.nl/show/julius-jaspers-toont-herstel-na-hersenbloeding-in-documentaire-ik-ben-niet-zielig~a6406ca1/)
+  > Julius Jaspers laat in een vierdelige online documentairereeks zien hoe zijn leven eruitziet na zijn hersenbloeding, meldt de Hersenstichting. De...
+- [Kogel is door de kerk: Ricky van Wolfswinkel (37) stopt na dit seizoen met voetballen](https://www.ad.nl/voetbal/kogel-is-door-de-kerk-ricky-van-wolfswinkel-37-stopt-na-dit-seizoen-met-voetballen~a38131c7/)
+  > Ricky van Wolfswinkel heeft de knoop doorgehakt: de 37-jarige spits van FC Twente stopt na dit seizoen met voetballen. Van Wolfswinkel heeft zijn...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [De bonkige keramiek van Nellie Jonsson](https://fd.nl/samenleving/1595576/de-bonkige-keramiek-van-nellie-jonsson)
-  > De Zweedse keramist Nellie Jonsson wil niet alleen mooie ontwerpen maken. ‘Pas als de balans tussen mooi en ongemakkelijk goed is, ben ik tevreden.’
-- [Ahold Delhaize handhaaft verwachtingen ondanks oorlog in Iran](https://fd.nl/bedrijfsleven/1595729/ahold-delhaize-handhaaft-verwachtingen-ondanks-oorlog-in-iran)
-  > De eerstekwartaalcijfers van het bedrijf zijn zoals verwacht. De omzetdaling van 4,3% is geheel te wijten aan de zwakke dollar.
-- [Harald Seidel stapt na vier jaar op als topman bij DAF](https://fd.nl/bedrijfsleven/1595728/harald-seidel-stapt-na-vier-jaar-op-als-topman-bij-daf)
-  > Seidel wordt per 1 juli vervangen door de Amerikaan Jim Walenczak, nu nog vicepresident en general manager bij Kenworth Truck Company, net als DAF...
-- [Adyen houdt ondanks lagere groei vast aan doelstellingen voor 2026](https://fd.nl/financiele-markten/1595726/adyen-houdt-ondanks-lagere-groei-vast-aan-doelstellingen-voor-2026)
-  > In het eerste kwartaal stegen de netto-inkomsten van de betaalverwerker met 16%. Het bedrijf verwacht voor geheel 2026 een groei met minimaal 20%.
-- [Live Nation boekt verlies van $389 mln in eerste kwartaal door hoge juridische kosten](https://fd.nl/bedrijfsleven/1595725/live-nation-boekt-verlies-van-389-mln-in-eerste-kwartaal-door-hoge-juridische-kosten)
-  > Het moederbedrijf van Ticketmaster en Mojo maakte $450 mln aan juridische kosten. Vorig jaar boekte het bedrijf nog een winst van $23 mln in het...
+- [Budgetten wethouders berusten op nattevingerwerk](https://fd.nl/opinie/1595381/budgetten-wethouders-berusten-op-nattevingerwerk)
+  > Terwijl bedrijven hun investeringen tot achter de komma doorrekenen en de rijksoverheid leunt op CPB-modellen, moeten wethouders taken uitvoeren op...
+- [Europa moet in zichzelf investeren](https://fd.nl/financiele-markten/1595780/europa-moet-in-zichzelf-investeren)
+  > Beleggers zien potentie op het gebied van energietransitie, digitale onafhankelijkheid en moderne veiligheid. Maar kapitaal volgt rendement, niet...
+- [Aanvraag merkbescherming Taylor Swift is vooral voor de show](https://fd.nl/opinie/1595580/aanvraag-merkbescherming-taylor-swift-is-vooral-voor-de-show)
+  > Door middel van het merkenrecht probeert Taylor Swift het gebruik van haar stem en beeltenis door deepfakes tegen te gaan. Het merkenrecht biedt...
+- [Laadpaalbedrijf Milence haalt €120 mln op in financieringsronde](https://fd.nl/bedrijfsleven/1595777/laadstationbedrijf-milence-haalt-120-mln-op-in-financieringsronde)
+  > Milence krijgt de financiering van een consortium van internationale kredietverstrekkers, waaronder Invest-NL, Edmond de Rothschild Asset Management...
+- [Tineke Ceelen: ‘Mijn valkuil? Elke strijd ging ik aan’](https://fd.nl/samenleving/1595676/tineke-ceelen-mijn-valkuil-elke-strijd-ging-ik-aan)
+  > Elke strijd aangaan, het stokje overgeven: wat maken professionals mee in hun loopbaan? Deze week Tineke Ceelen (1963), die na 22 jaar afscheid heeft...
 
 ### Meest gelezen
 
