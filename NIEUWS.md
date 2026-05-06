@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-05-2026 om 22:00*
+*Laatst bijgewerkt: 06-05-2026 om 23:53*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Kerstin Casparij en Vivianne Miedema zonder zelf te spelen kampioen met Manchester City](https://www.ad.nl/voetbal/kerstin-casparij-en-vivianne-miedema-zonder-zelf-te-spelen-kampioen-met-manchester-city~a7e153b85/)
-  > Het vrouwenteam van Manchester City is woensdagavond kampioen geworden van de FA Women’s Super League, zonder zelf te spelen.
+- [Voetbalpodcast | ‘Bayern München speelde met de vingers in het stopcontact’](https://www.ad.nl/voetbal/voetbalpodcast-bayern-munchen-speelde-met-de-vingers-in-het-stopcontact~ac8603a9/)
+  > Na het spektakel van vorige week dinsdag in Parijs (5-4), viel de return van woensdagavond in München misschien wat tegen. Niet voor de supporters...
+- [Huurders steeds slechter af dan kopers: ‘De kloof groeit’](https://www.ad.nl/wonen/huurders-steeds-slechter-af-dan-kopers-de-kloof-groeit~a81a4ab3/)
+  > De tweedeling tussen kopers en huurders groeit. Huurders zijn structureel een groter deel van hun inkomen kwijt aan woonlasten dan woningeigenaren....
+- [Finse oud-speler van PSV en Feyenoord wordt assistent in Helmond, Noa Lang keert deze zomer terug naar Napoli](https://www.ad.nl/voetbal/finse-oud-speler-van-psv-en-feyenoord-wordt-assistent-in-helmond-noa-lang-keert-deze-zomer-terug-naar-napoli~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Manchester City kampioen zonder zelf te spelen, speelsters steunen afwezige Vivianne Miedema](https://www.ad.nl/voetbal/manchester-city-kampioen-zonder-zelf-te-spelen-speelsters-steunen-afwezige-vivianne-miedema~a7e153b85/)
+  > Het vrouwenteam van Manchester City is woensdagavond kampioen geworden van de FA Women’s Super League, zonder zelf te spelen. De selectie van City...
 - [De Afhaalchinees, Hila en Wakker in Paraguay genomineerd voor Zilveren Nipkowschijf](https://www.ad.nl/show/de-afhaalchinees-hila-en-wakker-in-paraguay-genomineerd-voor-zilveren-nipkowschijf~a364c9d8/)
   > De televisieprogramma’s De Afhaalchinees: Thuisbezorgd (Omroep Zwart), Hila voorbij de taliban (AvroTros) en Wakker in Paraguay (VPRO) zijn de drie...
-- [Paris Saint-Germain kan het ook zakelijker en staat opnieuw in finale, Bayern stelt teleur in return](https://www.ad.nl/voetbal/paris-saint-germain-kan-het-ook-zakelijker-en-staat-opnieuw-in-finale-bayern-stelt-teleur-in-return~ae44bca3/)
-  > Paris Saint-Germain krijgt op zaterdag 30 mei de kans om voor het tweede jaar op rij de Champions League te winnen. Na het spektakel van vorige week...
-- [Argentinië levert duizenden hantavirustests aan getroffen landen, waaronder Nederland](https://www.ad.nl/buitenland/argentinie-levert-duizenden-hantavirustests-aan-getroffen-landen-waaronder-nederland~ae44746d/)
-  > Om de uitbraak van het hantavirus in te dammen stuurt Argentinië de getroffen landen duizenden tests om het virus op te sporen. Ook Nederland maakt...
-- [Waarom de overduidelijke handsbal van PSG tóch geen strafschop is](https://www.ad.nl/voetbal/waarom-de-overduidelijke-handsbal-van-psg-toch-geen-strafschop-is~a1a0d37e/)
-  > Bayern München claimde woensdagavond tegen Paris Saint-Germain massaal een strafschop. Na een halfuur maakte PSG-speler João Neves overduidelijk...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Wall Street hoopvol over vrede en AI](https://fd.nl/bedrijfsleven/1595827/wall-street-hoopvol-over-vrede-en-ai)
-  > De Amerikaanse beurs kleurt groen vanwege optimisme over een einde van de Iran-oorlog. De AI-boom blijft techaandelen naar grote hoogtes duwen.
-- [Anthropic gaat rekenkracht huren van Elon Musks SpaceX](https://fd.nl/bedrijfsleven/1595757/anthropic-gaat-rekenkracht-huren-van-elons-musks-spacex)
-  > SpaceX, dat eerder dit jaar Elon Musks andere bedrijf xAI overnam, heeft rekenkracht in datacenters over.
-- [UBS kijkt voor overnames naar de VS](https://fd.nl/financiele-markten/1595756/ubs-kijkt-voor-overnames-naar-de-vs)
-  > Zwitserse vermogensbeheerder gaat op jacht nu het mega-overname van Credit Suisse heeft verwerkt
-- [Sectoraal uitzendverbod is logische volgende stap](https://fd.nl/opinie/1595738/sectoraal-uitzendverbod-is-logische-volgende-stap)
-  > Duizenden uitzendbureaus opereren onder de radar. De deregulering in de uitzendsector terugdraaien wordt een monsterklus.
-- [CNN-oprichter Ted Turner overleden](https://fd.nl/samenleving/1595753/cnn-oprichter-ted-turner-overleden)
-  > Turner is de grondlegger van de Amerikaanse nieuwszender die als eerste in de wereld 24 uur per dag uitzond.
+- [Baguettes en bloemen](https://fd.nl/opinie/1595802/baguettes-en-bloemen)
+  > Op 1 mei brood kopen in Frankrijk toont aan hoe vreselijk moeilijk het is om er iets te veranderen.
+- [Woonlasten dalen, maar niet voor jonge starters en huurders](https://fd.nl/economie/1595796/woonlasten-dalen-maar-niet-voor-jonge-starters-en-huurders)
+  > De afgelopen zes jaar zijn de woonlasten bijna overal in Nederland gedaald. Huurders en koopstarters profiteerden echter een stuk minder dan zittende...
+- [Hotels laten in claimzaak beslag leggen op administratie Booking](https://fd.nl/tech-en-innovatie/1595789/hotels-laten-in-claimzaak-beslag-leggen-op-administratie-booking)
+  > Volgens de hotels blokkeert Booking toegang tot hun facturen, terwijl ze die nodig hebben in hun claimzaak tegen het bedrijf. De hotels eisen een...
+- [Vage missies fnuiken kerntaak universiteiten](https://fd.nl/opinie/1595705/vage-missies-fnuiken-kerntaak-universiteiten)
+  > Nederlandse universiteiten benadrukken (vrijwel) allemaal ‘positieve impact’ te willen creëren. Kunnen universiteiten weer gewoon aan...
+- [Personalia donderdag 7 mei](https://fd.nl/bedrijfsleven/1595732/personalia-donderdag-7-mei)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
