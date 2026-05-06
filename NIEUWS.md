@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-05-2026 om 20:26*
+*Laatst bijgewerkt: 06-05-2026 om 22:00*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Staakt-het-vuren op Russische feestdag onder druk na aanvallen op Oekraïne](https://nos.nl/l/2613401)
+  > Het door Rusland eenzijdig aangekondigde staakt-het-vuren voor 9 mei, waarop Rusland de Dag van de Overwinning viert, lijkt steeds verder uit zicht...
 - [Betogers tegen komst azc lopen met fakkels snelweg bij Den Bosch op](https://nos.nl/l/2613395)
   > Betogers die tegen een geplande opvang voor jonge asielzoekers zijn, zijn bij Den Bosch korte tijd de snelweg A59 opgelopen. De snelweg richting...
 - [Israël valt Beiroet aan, eerste keer sinds ingaan van staakt-het-vuren](https://nos.nl/l/2613394)
@@ -16,8 +18,6 @@
   > De politie heeft een 40-jarige man uit Drunen opgespoord die ervan wordt verdacht dat hij een 'complete' badkamer heeft gedumpt in natuurgebied...
 - [Drie jaar cel geëist tegen rechtbankmedewerker die info verkocht aan criminelen](https://nos.nl/l/2613389)
   > Tegen oud-rechtbankmedewerker Sana C. is vier jaar cel geëist, waarvan een jaar voorwaardelijk. De 35-jarige vrouw wordt ervan verdacht dat ze tegen...
-- [Studenten gewaarschuwd voor phishing na hack softwarebedrijf](https://nos.nl/l/2613377)
-  > Nederlandse universiteiten waarschuwen hun studenten voor phishing na een hackaanval waarbij de gegevens van miljoenen docenten en studenten...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Bayern München heeft twee goals nodig tegen PSG, woede richting arbitrage niet terecht](https://www.ad.nl/voetbal/bayern-munchen-heeft-twee-goals-nodig-tegen-psg-woede-richting-arbitrage-niet-terecht~ae44bca3/)
-  > De heenwedstrijd tussen Paris Saint-Germain en Bayern München eindigde vorige week in 5-4. Vanavond strijden de topteams om een plek in de finale...
-- [Unicum: Finse violiste Linda Lampenius mag live spelen op songfestival](https://www.ad.nl/show/unicum-finse-violiste-linda-lampenius-mag-live-spelen-op-songfestival~a400f075/)
-  > De Finse violiste Linda Lampenius mag tijdens het Eurovisie Songfestival live op haar viool spelen. Dat heeft de Finse omroep Yle woensdag...
-- [Crisis Real Madrid compleet: 20 miljoen handtekeningen voor vertrek Kylian Mbappé, teamgenoten vliegen elkaar in de haren](https://www.ad.nl/voetbal/crisis-real-madrid-compleet-20-miljoen-handtekeningen-voor-vertrek-kylian-mbappe-teamgenoten-vliegen-elkaar-in-de-haren~afdae8e35/)
-  > Real Madrid-fans zijn helemaal klaar met Kylian Mbappé. De Fransman wordt verantwoordelijk gehouden voor de prijzendroogte van Real Madrid dit...
-- [Airen Mylene emotioneel na nieuwe versie Het Tietenlied: ‘Voel me omarmd door het nummer’](https://www.ad.nl/show/airen-mylene-emotioneel-na-nieuwe-versie-het-tietenlied-voel-me-omarmd-door-het-nummer~a6eafb9f/)
-  > Het wordt donderdag een spannende dag voor Airen Mylene (40). De Radio 538-ster laat haar borstimplantaten verwijderen en houdt daardoor bijna geen...
-- [Superfan Suze (17) vangt usb-stick met nieuw nummer van Bankzitters: ‘Een droom die uitkomt’](https://www.ad.nl/zoetermeer/superfan-suze-17-vangt-usb-stick-met-nieuw-nummer-van-bankzitters-een-droom-die-uitkomt~a65cca8e0/)
-  > Een nieuw nummer letterlijk het publiek in droppen: de populaire artiesten Bankzitters deden het afgelopen Bevrijdingsdag. Een usb-stick met daarop...
+- [Kerstin Casparij en Vivianne Miedema zonder zelf te spelen kampioen met Manchester City](https://www.ad.nl/voetbal/kerstin-casparij-en-vivianne-miedema-zonder-zelf-te-spelen-kampioen-met-manchester-city~a7e153b85/)
+  > Het vrouwenteam van Manchester City is woensdagavond kampioen geworden van de FA Women’s Super League, zonder zelf te spelen.
+- [De Afhaalchinees, Hila en Wakker in Paraguay genomineerd voor Zilveren Nipkowschijf](https://www.ad.nl/show/de-afhaalchinees-hila-en-wakker-in-paraguay-genomineerd-voor-zilveren-nipkowschijf~a364c9d8/)
+  > De televisieprogramma’s De Afhaalchinees: Thuisbezorgd (Omroep Zwart), Hila voorbij de taliban (AvroTros) en Wakker in Paraguay (VPRO) zijn de drie...
+- [Paris Saint-Germain kan het ook zakelijker en staat opnieuw in finale, Bayern stelt teleur in return](https://www.ad.nl/voetbal/paris-saint-germain-kan-het-ook-zakelijker-en-staat-opnieuw-in-finale-bayern-stelt-teleur-in-return~ae44bca3/)
+  > Paris Saint-Germain krijgt op zaterdag 30 mei de kans om voor het tweede jaar op rij de Champions League te winnen. Na het spektakel van vorige week...
+- [Argentinië levert duizenden hantavirustests aan getroffen landen, waaronder Nederland](https://www.ad.nl/buitenland/argentinie-levert-duizenden-hantavirustests-aan-getroffen-landen-waaronder-nederland~ae44746d/)
+  > Om de uitbraak van het hantavirus in te dammen stuurt Argentinië de getroffen landen duizenden tests om het virus op te sporen. Ook Nederland maakt...
+- [Waarom de overduidelijke handsbal van PSG tóch geen strafschop is](https://www.ad.nl/voetbal/waarom-de-overduidelijke-handsbal-van-psg-toch-geen-strafschop-is~a1a0d37e/)
+  > Bayern München claimde woensdagavond tegen Paris Saint-Germain massaal een strafschop. Na een halfuur maakte PSG-speler João Neves overduidelijk...
 
 ### Meest gelezen
 
