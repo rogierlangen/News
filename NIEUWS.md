@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-05-2026 om 18:20*
+*Laatst bijgewerkt: 06-05-2026 om 20:26*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Betogers tegen komst azc lopen met fakkels snelweg bij Den Bosch op](https://nos.nl/l/2613395)
+  > Betogers die tegen een geplande opvang voor jonge asielzoekers zijn, zijn bij Den Bosch korte tijd de snelweg A59 opgelopen. De snelweg richting...
+- [Israël valt Beiroet aan, eerste keer sinds ingaan van staakt-het-vuren](https://nos.nl/l/2613394)
+  > Israël heeft voor het eerst sinds het staakt-het-vuren met Libanon is ingegaan een aanval uitgevoerd op hoofdstad Beiroet. Volgens de Israëlische...
+- [Badkamer gedumpt in natuurgebied bij Tilburg, politie vindt verdachte](https://nos.nl/l/2613392)
+  > De politie heeft een 40-jarige man uit Drunen opgespoord die ervan wordt verdacht dat hij een 'complete' badkamer heeft gedumpt in natuurgebied...
+- [Drie jaar cel geëist tegen rechtbankmedewerker die info verkocht aan criminelen](https://nos.nl/l/2613389)
+  > Tegen oud-rechtbankmedewerker Sana C. is vier jaar cel geëist, waarvan een jaar voorwaardelijk. De 35-jarige vrouw wordt ervan verdacht dat ze tegen...
 - [Studenten gewaarschuwd voor phishing na hack softwarebedrijf](https://nos.nl/l/2613377)
   > Nederlandse universiteiten waarschuwen hun studenten voor phishing na een hackaanval waarbij de gegevens van miljoenen docenten en studenten...
-- [Hoogste eindstand ooit op Amsterdamse beurs door optimisme over Midden-Oosten](https://nos.nl/l/2613375)
-  > De AEX-index op de Amsterdamse beurs heeft de hoogste slotstand ooit bereikt. Door optimisme over een snel einde aan de oorlog in het Midden-Oosten...
-- [Vier Hagenaren opgepakt op verdenking van wegsluizen miljoenen aan coronasteun](https://nos.nl/l/2613374)
-  > In Den Haag zijn vier mannen opgepakt die ervan worden verdacht 8 miljoen euro aan coronasteun te hebben weggesluisd in binnen- en buitenland.
-      ...
-- [CNN-oprichter Ted Turner (87) overleden, begon 's werelds eerste 24-uurszender](https://nos.nl/l/2613373)
-  > Ted Turner, de grondlegger van de Amerikaanse nieuwszender CNN, is op 87-jarige leeftijd overleden. Het tv-station was in 1980 de eerste zender ter...
-- [Asielzoekers volgende week naar Loosdrecht, later dan gepland vanwege protesten](https://nos.nl/l/2613370)
-  > De eerste asielzoekers zullen volgende week intrekken bij de tijdelijke noodopvang in Loosdrecht. Dat meldt persbureau ANP op basis van een...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Overwinning voor Angelina Jolie: Brad Pitt krijgt geen inzage in berichten in zaak over Franse wijngaard](https://www.ad.nl/show/overwinning-voor-angelina-jolie-brad-pitt-krijgt-geen-inzage-in-berichten-in-zaak-over-franse-wijngaard~a75ce3fd/)
-  > Een rechter heeft in het langslepende conflict tussen Angelina Jolie en Brad Pitt over hun oude Franse wijngaard besloten dat Pitt geen inzage krijgt...
-- [Busra verloor verloofde, broertjes en neef bij ongeluk en raakte verslaafd: ‘Was aan het overleven’](https://www.ad.nl/binnenland/busra-verloor-verloofde-broertjes-en-neef-bij-ongeluk-en-raakte-verslaafd-was-aan-het-overleven~ae95a8e90/)
-  > Het had de gelukkigste week van haar leven moeten worden, door de bruiloft. Maar Busra Igdir (29) verloor in één nacht haar verloofde, twee broertjes...
-- [Almere City en De Graafschap openen jacht op tweede treffer](https://www.ad.nl/voetbal/almere-city-en-de-graafschap-openen-jacht-op-tweede-treffer~aa8b3899/)
-  > Almere City overleefde de eerste ronde van de play-offs met glans. Over twee wedstrijden werd Den Bosch met 6-2 verslagen. Tegen De Graafschap gaat...
-- [Prijswinnende serie The Bear eindigt met vijfde seizoen: dit is wanneer het is te zien](https://www.ad.nl/show/prijswinnende-serie-the-bear-eindigt-met-vijfde-seizoen-dit-is-wanneer-het-is-te-zien~a50ecd23/)
-  > Hitserie The Bear stopt, zoals verwacht, na het vijfde seizoen. De laatste reeks van de serie is vanaf 26 juni te zien, maakte streamingdienst...
-- [Nederlandse vrouw (43) opgepakt voor ontvoering dochter naar Spanje, politie treft gezin aan bij huiszoeking](https://www.ad.nl/buitenland/nederlandse-vrouw-43-opgepakt-voor-ontvoering-dochter-naar-spanje-politie-treft-gezin-aan-bij-huiszoeking~a72e4310/)
-  > De Spaanse politie heeft een 43-jarige vrouw uit Nederland gearresteerd op verdenking van de ontvoering van haar 8-jarige dochter. De vrouw zou haar...
+- [Bayern München heeft twee goals nodig tegen PSG, woede richting arbitrage niet terecht](https://www.ad.nl/voetbal/bayern-munchen-heeft-twee-goals-nodig-tegen-psg-woede-richting-arbitrage-niet-terecht~ae44bca3/)
+  > De heenwedstrijd tussen Paris Saint-Germain en Bayern München eindigde vorige week in 5-4. Vanavond strijden de topteams om een plek in de finale...
+- [Unicum: Finse violiste Linda Lampenius mag live spelen op songfestival](https://www.ad.nl/show/unicum-finse-violiste-linda-lampenius-mag-live-spelen-op-songfestival~a400f075/)
+  > De Finse violiste Linda Lampenius mag tijdens het Eurovisie Songfestival live op haar viool spelen. Dat heeft de Finse omroep Yle woensdag...
+- [Crisis Real Madrid compleet: 20 miljoen handtekeningen voor vertrek Kylian Mbappé, teamgenoten vliegen elkaar in de haren](https://www.ad.nl/voetbal/crisis-real-madrid-compleet-20-miljoen-handtekeningen-voor-vertrek-kylian-mbappe-teamgenoten-vliegen-elkaar-in-de-haren~afdae8e35/)
+  > Real Madrid-fans zijn helemaal klaar met Kylian Mbappé. De Fransman wordt verantwoordelijk gehouden voor de prijzendroogte van Real Madrid dit...
+- [Airen Mylene emotioneel na nieuwe versie Het Tietenlied: ‘Voel me omarmd door het nummer’](https://www.ad.nl/show/airen-mylene-emotioneel-na-nieuwe-versie-het-tietenlied-voel-me-omarmd-door-het-nummer~a6eafb9f/)
+  > Het wordt donderdag een spannende dag voor Airen Mylene (40). De Radio 538-ster laat haar borstimplantaten verwijderen en houdt daardoor bijna geen...
+- [Superfan Suze (17) vangt usb-stick met nieuw nummer van Bankzitters: ‘Een droom die uitkomt’](https://www.ad.nl/zoetermeer/superfan-suze-17-vangt-usb-stick-met-nieuw-nummer-van-bankzitters-een-droom-die-uitkomt~a65cca8e0/)
+  > Een nieuw nummer letterlijk het publiek in droppen: de populaire artiesten Bankzitters deden het afgelopen Bevrijdingsdag. Een usb-stick met daarop...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Wall Street hoopvol over vrede en AI](https://fd.nl/bedrijfsleven/1595827/wall-street-hoopvol-over-vrede-en-ai)
+  > De Amerikaanse beurs kleurt groen vanwege optimisme over een einde van de Iran-oorlog. De AI-boom blijft techaandelen naar grote hoogtes duwen.
+- [Anthropic gaat rekenkracht huren van Elon Musks SpaceX](https://fd.nl/bedrijfsleven/1595757/anthropic-gaat-rekenkracht-huren-van-elons-musks-spacex)
+  > SpaceX, dat eerder dit jaar Elon Musks andere bedrijf xAI overnam, heeft rekenkracht in datacenters over.
+- [UBS kijkt voor overnames naar de VS](https://fd.nl/financiele-markten/1595756/ubs-kijkt-voor-overnames-naar-de-vs)
+  > Zwitserse vermogensbeheerder gaat op jacht nu het mega-overname van Credit Suisse heeft verwerkt
 - [Sectoraal uitzendverbod is logische volgende stap](https://fd.nl/opinie/1595738/sectoraal-uitzendverbod-is-logische-volgende-stap)
   > Duizenden uitzendbureaus opereren onder de radar. De deregulering in de uitzendsector terugdraaien wordt een monsterklus.
 - [CNN-oprichter Ted Turner overleden](https://fd.nl/samenleving/1595753/cnn-oprichter-ted-turner-overleden)
   > Turner is de grondlegger van de Amerikaanse nieuwszender die als eerste in de wereld 24 uur per dag uitzond.
-- [Grondstoffenbedrijf AMG overtreft verwachtingen](https://fd.nl/bedrijfsleven/1595801/grondstoffenbedrijf-amg-overtreft-verwachtingen)
-  > Het bedrijf dankt de meevallende cijfers aan sterke prestaties van de vanadiumtak. Bij lithium waren de resultaten minder. Prijsstijgingen werken pas...
-- [Arbeidsinspectie houdt vier verdachten aan voor fraude met NOW-coronasteun](https://fd.nl/bedrijfsleven/1595750/arbeidsinspectie-houdt-vier-verdachten-aan-voor-fraude-met-now-coronasteun)
-  > De zaak draait om twee Haagse uitzendbureaus die tijdens de coronapandemie steun aanvroegen. Ruim €8 mln aan subsidies zou onterecht zijn verkregen...
-- [Apollo biedt dagelijks inzage in de waarde van privatecreditleningen](https://fd.nl/bedrijfsleven/1595748/apollo-biedt-dagelijks-inzage-in-de-waarde-van-privatecreditleningen)
-  > Toezichthouders zijn bezorgd over de ondoorzichtigheid in de privatecreditmarkt. Vermogensbeheerder Apollo gaat nu dagelijks melding maken van de...
 
 ### Meest gelezen
 
