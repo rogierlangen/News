@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-05-2026 om 11:51*
+*Laatst bijgewerkt: 06-05-2026 om 14:24*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Rusland doodt 26 Oekraïners ondanks eenzijdig bestand](https://nos.nl/l/2613353)
+  > Bij Russische luchtaanvallen op verschillende Oekraïense steden zijn gisteren en vannacht ten minste 26 burgers gedood en zeker 118 mensen gewond...
+- [Podcast De Dag: een politieke aardverschuiving in het Verenigd Koninkrijk](https://nos.nl/l/2613346)
+  > Morgen gaan de Britten naar de stembus voor lokale en regionale verkiezingen. Op het eerste gezicht niet spannend, maar de uitslag kan grote gevolgen...
+- [Amsterdamse beurs tikt record aan door optimisme over Midden-Oosten](https://nos.nl/l/2613343)
+  > De beursgraadmeter AEX is aan het begin van de middag naar een record gestegen. Oorzaak is nieuw optimisme over een snel einde van de oorlog in het...
 - [Ryanair-topman klaar met laveloze passagiers, pleit voor alcoholverbod in de ochtend](https://nos.nl/l/2613339)
   > Om overlast op ochtendvluchten te verminderen, wil Ryanair-baas Michael O'Leary dat het op luchthavens verboden wordt om alcohol te schenken in de...
 - ['VS en Iran bijna eens over voorstel van één pagina voor einde oorlog'](https://nos.nl/l/2613334)
   > Het Witte Huis denkt dicht bij een akkoord te zijn met Iran over een conceptovereenkomst voor een einde aan de oorlog. Dat meldt de Amerikaanse...
-- [Belangrijk en verloren gewaand Bijbelmanuscript uit de 6e eeuw teruggevonden](https://nos.nl/l/2613326)
-  > Een team van Schotse wetenschappers heeft 42 verloren gewaande pagina's van een eeuwenoud Bijbelmanuscript uit de 6e eeuw teruggevonden en kunnen...
-- [Passagiers van schip met hantavirus geëvacueerd: Nederlander, Brit en Duitse](https://nos.nl/l/2613323)
-  > Drie opvarenden van cruiseschip Hondius zijn van boord gehaald, meldt de Wereldgezondheidsorganisatie (WHO). Twee van hen hebben acute symptomen van...
-- [Cel geëist tegen vader Bolle Jos voor witwassen, kreeg horloge van 110.000 euro](https://nos.nl/l/2613321)
-  > Het Openbaar Ministerie heeft zeven maanden celstraf geëist in de witwaszaak tegen de vader van de voortvluchtige drugscrimineel Jos Leijdekkers, die...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van Nederland - West-Duitsland in 1988 tot Barcelona - PSG in 2017: dit vonden jullie de mooiste voetbalwedstrijden ooit](https://www.ad.nl/voetbal/van-nederland-west-duitsland-in-1988-tot-barcelona-psg-in-2017-dit-vonden-jullie-de-mooiste-voetbalwedstrijden-ooit~a61d7bcf/)
-  > In de AD Voetbalpodcast bespraken Etienne Verhoef en Mikos Gouka de mooiste voetbalwedstrijden. Daarop volgde een oproep op deze site. Hieronder een...
-- [AEX stijgt naar nieuw record door kelderende olieprijs na uitspraken Trump over Iran](https://www.ad.nl/economie/aex-stijgt-naar-nieuw-record-door-kelderende-olieprijs-na-uitspraken-trump-over-iran~af2b5c4c/)
-  > De olieprijzen gingen woensdag voor de tweede dag op rij stevig omlaag. Hierdoor stijgt Amsterdamse AEX-index naar nieuw record. De prijzen daalden...
-- [Asociale wegpiraat die Duitse rij-instructeur intimideerde mogelijk vervolgd, politie start onderzoek](https://www.ad.nl/buitenland/asociale-wegpiraat-die-duitse-rij-instructeur-intimideerde-mogelijk-vervolgd-politie-start-onderzoek~adfdf83a/)
-  > De Duitse politie is een strafrechtelijk onderzoek gestart naar de bestuurder van een Nederlandse bestelwagen die vorige week in Gronau een...
-- [Moeten buitenlandse vrachtwagenchauffeurs aan de Nederlandse eisen voldoen?](https://www.ad.nl/auto/moeten-buitenlandse-vrachtwagenchauffeurs-aan-de-nederlandse-eisen-voldoen~af47b5a5/)
-  > In hoeverre moeten buitenlandse vrachtauto’s hier aan de Nederlandse eisen voldoen, vraagt lezer Harrie Pol zich af. Onze auto-expert Niek Schenk...
-- [Neonazi van amper 16 jaar oud: Duitse politie valt binnen bij jeugdbendes die online leden ronselen](https://www.ad.nl/buitenland/neonazi-van-amper-16-jaar-oud-duitse-politie-valt-binnen-bij-jeugdbendes-die-online-leden-ronselen~a0a81aeb/)
-  > Ruim zeshonderd politieagenten zijn vanmorgen in heel Duitsland op zo’n vijftig locaties binnengevallen. Het doelwit: 36 vermoedelijke leden van...
+- [Dit zijn de trucs tegen kalkaanslag op douchewand: keukenpapier, azijn en een glaskrabber](https://www.ad.nl/wonen/dit-zijn-de-trucs-tegen-kalkaanslag-op-douchewand-keukenpapier-azijn-en-een-glaskrabber~a2327c72/)
+  > Witte vlekken die maar blijven terugkomen en een douchewand die nooit echt schoon lijkt: kalkaanslag op je douchewand verschijnt snel, maar is een...
+- [Mogelijke WOII-bom gevonden in Weesp, geen treinverkeer mogelijk](https://www.ad.nl/112-nieuws-amsterdam/mogelijke-woii-bom-gevonden-in-weesp-geen-treinverkeer-mogelijk~a0a57420/)
+  > Bij graafwerkzaamheden in Weesp is woensdagmiddag een mogelijke bom uit de Tweede Wereldoorlog aangetroffen. Het treinverkeer rondom Amsterdam is...
+- [Vier Franse topmannen in korte tijd: waarom Nederlandse bedrijven kiezen voor ‘daadkracht uit Parijs’](https://www.ad.nl/economie/vier-franse-topmannen-in-korte-tijd-waarom-nederlandse-bedrijven-kiezen-voor-daadkracht-uit-parijs~a7967509/)
+  > ABN Amro heeft er één, net als AkzoNobel en ASML. En nu krijgt ook Ahold een Fransman als hoogste baas. Wat zegt dit en wat zijn de valkuilen?...
+- [Thailand treedt strenger op tegen losbandig gedrag toeristen na ophef over seks in tuktuk](https://www.ad.nl/buitenland/thailand-treedt-strenger-op-tegen-losbandig-gedrag-toeristen-na-ophef-over-seks-in-tuktuk~af90e3ef/)
+  > Thailand wil het toezicht op ‘ongepast gedrag’ van toeristen aanscherpen, meldt het kantoor van de Thaise premier. Toeristen die zich gedragen ‘in...
+- [‘De overstap van Milieudefensie naar Tata Steel is gedurfd en hoopgevend!’](https://www.ad.nl/binnenland/de-overstap-van-milieudefensie-naar-tata-steel-is-gedurfd-en-hoopgevend~aae0f1d1/)
+  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag: is de overstap van Donald Pols van Milieudefensie naar Tata Steel...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Lufthansa verwacht hogere brandstofrekening van €1,7 mrd](https://fd.nl/bedrijfsleven/1595786/lufthansa-verwacht-hogere-brandstofrekening-van-1-7-mrd)
-  > De grootste luchtvaartmaatschappij van Europa zegt in het eerste kwartaal juist te hebben geprofiteerd van het wegvallen van vluchten naar het...
-- [Recordbedrag aan dividend uitgekeerd in eerste kwartaal](https://fd.nl/financiele-markten/1595783/recordbedrag-aan-dividend-uitgekeerd-in-eerste-kwartaal)
-  > De piek is wereldwijd, maar de stijging van het uitgekeerde dividend is volledig toe te schrijven aan de ontwikkelde markten.
-- [Zuid-Korea en Japan mikken op miljarden met wapenexport](https://fd.nl/bedrijfsleven/1595160/zuid-korea-en-japan-mikken-op-miljarden-met-wapenexport)
-  > Amerikaanse wapenfabrikanten kunnen, door de Iran-oorlog, beloofde leveringen niet nakomen. Defensiebedrijven uit Zuid-Korea en Japan springen in dat...
-- [Uit het dagboek van John Evelyn](https://fd.nl/samenleving/1595579/uit-het-dagboek-van-john-evelyn)
-  > Sommige verzamelobjecten kun je maar beter niet in huis halen, zeker wanneer je in het bovennatuurlijke gelooft. Pas vooral op met antiek, waar een...
-- [‘Landen maken zich meer zorgen over de vraag: hoe kan ik voedsel voor mijn bevolking garanderen?’](https://fd.nl/politiek/1595196/landen-maken-zich-meer-zorgen-over-de-vraag-hoe-kan-ik-voedsel-voor-mijn-bevolking-garanderen)
-  > Voor de wereldwijde voedselvoorziening is een nieuw tijdperk aangebroken, waarin machtsblokken zich meer toe-eigenen, volgens experts.
+- [Strategy gaat toch bitcoin verkopen, maar dat is juist het goede nieuws](https://fd.nl/financiele-markten/1595793/strategy-gaat-toch-bitcoin-verkopen-maar-dat-is-juist-het-goede-nieuws)
+  > Nooit zou Michael Saylor bitcoin verkopen en nu gaat hij het toch doen terwijl het niet hoeft. De ceo van softwarebedrijf Strategy verkoopt het als...
+- [Oplevende AI-angst bij Wolters Kluwer](https://fd.nl/financiele-markten/1595737/oplevende-ai-angst-bij-wolters-kluwer)
+  > Waar zit de twijfel? Moeilijk te zeggen. Het bedrijf groeit net zo hard als in 2025 en houdt vast aan zijn eerder uitgesproken verwachtingen voor dit...
+- [Chiphausse tilt Samsung naar plek in eliteclub op beurs](https://fd.nl/financiele-markten/1595784/chiphausse-tilt-samsung-naar-plek-in-eliteclub-op-beurs)
+  > Beleggers krijgen maar geen genoeg van chipbedrijven op de beurs. De toonaangevende SOX-index steeg dit jaar 55%. Intel is een van de uitblinkers,...
+- [Bayer koopt oogmedicijnenbedrijf Perfuse voor maximaal $2,45 mrd](https://fd.nl/bedrijfsleven/1595743/bayer-koopt-oogmedicijnenbedrijf-perfuse-voor-maximaal-2-45-mrd)
+  > Het Duitse Bayer koopt Perfuse Therapeutics, dat een veelbelovend oogmedicijn ontwikkelt.
+- [IMF-statisticus: ‘Als je basiscijfers niet kloppen, dan ben je in het donker aan het sturen’](https://fd.nl/economie/1595124/imf-statisticus-als-je-basiscijfers-niet-kloppen-dan-ben-je-in-het-donker-aan-het-sturen)
+  > Beroerde statistieken kunnen landen in het ongeluk storten, weet IMF-hoofdstatisticus Bert Kroese, en zijn vak is er niet gemakkelijker op geworden....
 
 ### Meest gelezen
 
