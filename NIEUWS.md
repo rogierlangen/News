@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-05-2026 om 14:25*
+*Laatst bijgewerkt: 07-05-2026 om 16:54*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Hantavirus vastgesteld bij patiënt van cruiseschip in ziekenhuis Nijmegen](https://nos.nl/l/2613466)
-  > Bij een patiënt in ziekenhuis Radboudumc in Nijmegen is het hantavirus vastgesteld. Het gaat om een passagier van het Nederlandse cruiseschip...
-- [Brand op militair terrein 't Harde veroorzaakt door oefening met springstoffen](https://nos.nl/l/2613464)
-  > De natuurbrand die op 29 april uitbrak op het militaire oefenterrein in 't Harde is veroorzaakt door een oefening met springstoffen. Dat heeft de...
-- ['Overheid moet stoppen met algoritmes die leiden tot discriminatie'](https://nos.nl/l/2613460)
-  > De overheid moet stoppen met het gebruiken van algoritmes om fraude en criminaliteit op te sporen. Steeds meer overheidsinstanties maken gebruik van...
-- [Lagere straf in zaak dubbele moord in McDonald's Zwolle](https://nos.nl/l/2613457)
-  > Veysel Ü., die in 2022 twee mannen heeft doodgeschoten in een McDonald's in Zwolle, krijgt in hoger beroep een iets lagere straf. Hij moet 26 en een...
-- [Ali B gaat naar Hoge Raad, mag procedure afwachten in vrijheid](https://nos.nl/l/2613453)
-  > Ali B gaat in cassatie bij de Hoge Raad, de hoogste rechter in Nederland. Die procedure mag hij in vrijheid afwachten. Volgens het Openbaar...
+- [Storingen door brand Almere: huisartsen getroffen, Universiteit Utrecht morgen dicht](https://nos.nl/l/2613485)
+  > Het gaat nog uren duren voor de grote brand in een datacentrum in Almere onder controle is. Bij de brand is veel rook ontstaan, daarnaast ervaren...
+- [Zuivering Chinese legertop gaat door: twee oud-ministers ter dood veroordeeld](https://nos.nl/l/2613478)
+  > Twee voormalige ministers van Defensie zijn veroordeeld tot de doodstraf wegens corruptie, melden Chinese staatsmedia. Het gaat om Wei Fenghe en Li...
+- [Peter Gillis krijgt celstraf voor belastingfraude en taakstraf voor mishandelen ex](https://nos.nl/l/2613477)
+  > Peter Gillis is veroordeeld tot een celstraf van achttien maanden, waarvan zes maanden voorwaardelijk, voor belastingfraude. Daarnaast kreeg de...
+- [Podcast De Dag: in het spoor van het hantavirus](https://nos.nl/l/2613475)
+  > In deze aflevering van De Dag reconstrueren we wat er gebeurde aan boord van de MV Hondius. Hoe kon het virus zich verspreiden? En hoe gevaarlijk is...
+- [Lagere eis, hogere straf in hoger beroep Ali B: hoe zit dat?](https://nos.nl/l/2613474)
+  > In 2024 werd er drie jaar cel geëist tegen Ali B en kreeg hij er twee. Nu, in hoger beroep, eiste het Openbaar Ministerie (OM) twee en een half jaar,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Rubio bezoekt paus na felle kritiek van Trump: VS spreekt van ‘sterke relatie’](https://www.ad.nl/buitenland/rubio-bezoekt-paus-na-felle-kritiek-van-trump-vs-spreekt-van-sterke-relatie~ae67dd9c/)
-  > De ontmoeting tussen de Amerikaanse minister van Buitenlandse Zaken Marco Rubio en de paus heeft volgens de VS blijk gegeven van de sterke onderlinge...
-- [Tussen de kleding van haar tante vond Marie-Louise ineens een envelop met geld](https://www.ad.nl/geld/tussen-de-kleding-van-haar-tante-vond-marie-louise-ineens-een-envelop-met-geld~a89848ee/)
-  > De tante van Marie-Louise (64) kon veeleisend zijn. Ze stierf in coronatijd, waardoor Marie-Louise geen afscheid van haar kon nemen. „Vanwege het...
-- [‘Hogere straf voor Ali B is steun voor alle slachtoffers die zo veel drek over zich heen krijgen’](https://www.ad.nl/binnenland/hogere-straf-voor-ali-b-is-steun-voor-alle-slachtoffers-die-zo-veel-drek-over-zich-heen-krijgen~ab56b92e/)
-  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag: de hogere straf is een steun in de rug voor vrouwen die aangifte doen van...
-- [Consument betaalt de miljarden extra winst van oliemaatschappijen](https://www.ad.nl/economie/consument-betaalt-de-miljarden-extra-winst-van-oliemaatschappijen~a406829d/)
-  > De oorlog tussen Iran en de VS legt de oliemaatschappijen geen windeieren. Na Total en BP meldde woensdag Shell een winstexplosie door de gestegen...
-- [Laatste wens van Ricky van Wolfswinkel in De Grolsch Veste: scoren tegen Sparta, ‘dan is de cirkel rond’](https://www.ad.nl/voetbal/laatste-wens-van-ricky-van-wolfswinkel-in-de-grolsch-veste-scoren-tegen-sparta-dan-is-de-cirkel-rond~ae0c5508/)
-  > Ricky van Wolfswinkel (37) trof bij FC Twente een sfeer die hij nergens anders meemaakte. Het afscheid van de gezichtsbepalende aanvaller betekent...
+- [Babynieuws voor Kika en Roxeanne zit op een roze wolk](https://www.ad.nl/show/babynieuws-voor-kika-en-roxeanne-zit-op-een-roze-wolk~a9ff34b1/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Mark Diemers weg bij Cambuur, Niklas Süle (30) zet punt achter loopbaan, Youri Mulder langer bij Schalke](https://www.ad.nl/voetbal/mark-diemers-weg-bij-cambuur-niklas-sule-30-zet-punt-achter-loopbaan-youri-mulder-langer-bij-schalke~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
+- [Twee vliegtuigpassagiers met klachten negatief getest op hantavirus](https://www.ad.nl/binnenland/twee-vliegtuigpassagiers-met-klachten-negatief-getest-op-hantavirus~a3f98549/)
+  > Twee vliegtuigpassagiers die klachten hadden nadat zij in contact waren gekomen met een hantapatiënt, zijn negatief getest. Dat meldt het RIVM. In...
+- [Geld terug omdat alle ligbedjes bij het hotelzwembad bezet waren: is dit het einde van handdoekje leggen?](https://www.ad.nl/binnenland/geld-terug-omdat-alle-ligbedjes-bij-het-hotelzwembad-bezet-waren-is-dit-het-einde-van-handdoekje-leggen~ab724790/)
+  > Een Duitse rechter bepaalde dat een familie die tijdens een vakantie niet aan het zwembad kon liggen, omdat alle ligbedjes geclaimd waren, recht...
+- [Ruzie rond bultrug Timmy laait op: Duitse autoriteiten eisen gps-gegevens van walvis](https://www.ad.nl/buitenland/ruzie-rond-bultrug-timmy-laait-op-duitse-autoriteiten-eisen-gps-gegevens-van-walvis~aca23431/)
+  > Het ministerie van Milieu van de Noord-Duitse deelstaat Mecklenburg-Voor-Pommeren eist dat de organisatie achter de vrijlatingsoperatie van bultrug...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Burgemeester van New York ligt voor het eerst met Wall Street in de clinch](https://fd.nl/financiele-markten/1595902/burgemeester-van-new-york-ligt-het-voor-het-eerst-met-wall-street-in-de-clinch)
-  > De plannen en de retoriek van de New Yorkse burgemeester Mamdani zorgen voor irritatie op Wall Street. Ken Griffin, de ceo van Citadel, is niet blij...
-- [Heidi O’Neill moet van Lululemon weer hét merk in de sportschool maken](https://fd.nl/bedrijfsleven/1595787/muggenzifter-oneill-moet-lululemon-weer-het-merk-in-de-sportschool-maken)
-  > Heidi O’Neill begint in september als nieuwe topvrouw van het noodlijdende Canadese sportmerk Lululemon. Het is aan haar om de negatieve trend te...
-- [Het Pols-effect kan Tata Steel geld opleveren](https://fd.nl/financiele-markten/1595903/het-pols-effect-kan-tata-steel-geld-opleveren)
-  > Het toezicht op Tata Steel is steeds meer geld gaan kosten. Met intensiever toezicht zijn ook de boetes opgelopen. Kan Donald Pols, de nieuwe...
-- [Cyberbeveiligingswet komt eraan, maar bedrijven lopen mijlenver achter](https://fd.nl/bedrijfsleven/1595887/cyberbeveiligingswet-komt-eraan-maar-bedrijven-lopen-mijlenver-achter)
-  > Duizenden bedrijven krijgen te maken met de nieuwe wet, die nog dit jaar in werking moet treden. Voor elke mogelijke IT-verstoring moet straks een...
-- [AI stuwt omzet clouddiensten dit jaar tot boven $500 mrd](https://fd.nl/bedrijfsleven/1595897/ai-stuwt-omzet-clouddiensten-dit-jaar-tot-boven-500-mrd)
-  > AWS van Amazon en Azure van Microsoft blijven grootste marktleiders in diensten voor cloudinfrastructuur en -platforms.
+- [Vopak neemt meerderheidsbelang in batterijopslagbedrijf GES](https://fd.nl/bedrijfsleven/1595914/vopak-neemt-meerderheidsbelang-in-batterijopslagbedrijf-ges)
+  > GES ontwikkelt, realiseert en beheert grootschalige batterijopslagsystemen. Een bedrag voor de transactie is niet bekendgemaakt.
+- [Maersk wil dat klanten hogere energiekosten betalen](https://fd.nl/bedrijfsleven/1595913/maersk-wil-dat-klanten-hogere-energiekosten-betalen)
+  > Het scheepvaartbedrijf zegt maandelijks $500 mln extra kosten te maken door de hoge energieprijzen.
+- [Buitenlandminister Rubio bezoekt Vaticaan na felle kritiek Trump richting paus](https://fd.nl/samenleving/1595907/buitenlandminister-rubio-bezoekt-vaticaan-na-felle-kritiek-trump-richting-paus)
+  > De Amerikaanse minister van buitenlandse zaken Rubio had donderdag een aantal uitgebreide gesprekken in het Vaticaan. Zijn president laat zich al...
+- [Achmea voegt activiteiten samen, schrapt 350 banen](https://fd.nl/bedrijfsleven/1595910/achmea-voegt-activiteiten-samen-schrapt-350-banen)
+  > Merken als Centraal Beheer, Interpolis en Zilveren Kruis hebben nu nog eigen teams voor het aan de man brengen van polissen, marketing en het contact...
+- [Magnum-ceo Ter Kulve: ingrijpen bij Ben & Jerry’s was onvermijdelijk](https://fd.nl/bedrijfsleven/1595842/magnum-ceo-ter-kulve-ingrijpen-bij-ben-jerrys-was-onvermijdelijk)
+  > Tijdens de eerste aandeelhoudersvergadering van ijsjesmaker Magnum overheerst het conflict tussen het bedrijf en het voormalige bestuur van de Ben &...
 
 ### Meest gelezen
 
