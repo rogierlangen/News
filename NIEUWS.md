@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-05-2026 om 06:40*
+*Laatst bijgewerkt: 07-05-2026 om 09:36*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Veel meer winst voor Shell sinds begin oorlog Midden-Oosten](https://nos.nl/l/2613421)
-  > Shell boekte in het eerste kwartaal een winst van ruim 5,7 miljard dollar, omgerekend 4,8 miljard euro. De oorlog in het Midden-Oosten leveren bijna...
-- [Van Bolle Jos tot Afghanistan en de afhaalchinees: hun verhalen wonnen een Tegel](https://nos.nl/l/2613415)
-  > Het programma Boos van Tim Hofman, de onthulling van Follow the Money over Bolle Jos, de serie De Afhaalchinees en de documentairereeks Hila voorbij...
-- [Duitser krijgt schadevergoeding om handdoekjeleggen op Kos](https://nos.nl/l/2613414)
-  > Een Duitse toerist moet van zijn reisorganisatie honderden euro's schadevergoeding krijgen omdat hij op vakantie in Griekenland geen ligstoel bij het...
-- [Wekdienst 7/5: Uitspraak hoger beroep Ali B • Britten naar de stembus](https://nos.nl/l/2613410)
-  > Goedemorgen! Vandaag is de uitspraak in het hoger beroep in de zedenzaak tegen Ali B en in het Verenigd Koninkrijk mogen miljoenen mensen naar de...
-- [Oud-burgemeester Giuliani (81) van de intensive care](https://nos.nl/l/2613409)
-  > Oud-burgemeester Giuliani van New York is weer van de intensive care af. Hij werd begin afgelopen weekend in kritieke toestand opgenomen met...
+- [Zwaardere straf voor Ali B in hoger beroep: drie jaar cel voor twee verkrachtingen](https://nos.nl/l/2613431)
+  > Ali B moet drie jaar de gevangenis in. Het gerechtshof in Amsterdam gaf de rapper in het hoger beroep van de geruchtmakende zedenzaak een hogere...
+- [Servers pornosite met misbruikcontent en drogeervideo's staan in Nederland](https://nos.nl/l/2613430)
+  > De website Motherless, waar op grote schaal beelden kunnen worden gevonden die duiden op misbruik en soms zelfs kinderporno, staat al zeker sinds...
+- [Actrice die inspiratie was voor Avatar klaagt regisseur Cameron aan: 'Gezicht gestolen'](https://nos.nl/l/2613427)
+  > Actrice Q'orianka Kilcher klaagt regisseur James Cameron aan, omdat hij haar gezicht heeft gebruikt voor de Avatar-filmreeks. Cameron gaf de aliens...
+- [Stewardess mogelijk ook besmet met hanta, ligt in Amsterdam UMC](https://nos.nl/l/2613426)
+  > Een stewardess uit Haarlem is in het ziekenhuis opgenomen met symptomen van het hantavirus. Dat meldt het ministerie van Volksgezondheid.
+        De...
+- [Songfestival breekt met eigen regels: na 26 jaar livemuziek terug in liveshow](https://nos.nl/l/2613425)
+  > De organisatie van het Eurovisie Songfestival strijkt over het hart: voor het eerst sinds 1999 krijgt een deelnemer toestemming om live op het podium...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Tweede evacuatievlucht vertrekt naar Nederland, GGD heeft alle passagiers KLM-toestel in beeld](https://www.ad.nl/binnenland/tweede-evacuatievlucht-vertrekt-naar-nederland-ggd-heeft-alle-passagiers-klm-toestel-in-beeld~a3f98549/)
-  > De GGD heeft alle passagiers in beeld die eind vorige maand in een KLM-toestel zaten met een vrouw die het hantavirus had. Dat meldt de NOS. Volg...
-- [Duitse media kritisch op arbitrage én eigen ploeg: ‘Bayern was simpelweg niet sterk genoeg om PSG te verslaan’](https://www.ad.nl/voetbal/duitse-media-kritisch-op-arbitrage-en-eigen-ploeg-bayern-was-simpelweg-niet-sterk-genoeg-om-psg-te-verslaan~a82159cc/)
-  > Duitse media zijn verdeeld over de prestatie van Bayern München in de halve finale van de Champions League. Met name scheidsrechter João Pinheiro...
-- [Geen symptomen bij inzittenden van urenlange vlucht die Nederlandse met hantavirus nam](https://www.ad.nl/buitenland/geen-symptomen-bij-inzittenden-van-urenlange-vlucht-die-nederlandse-met-hantavirus-nam~a902a993/)
-  > De inzittenden van een vlucht vorige maand waarin een vrouw met het hantavirus zat, hebben vooralsnog geen symptomen. Op 25 april vloog de zieke...
-- [Ali B ‘knokte voor zijn onschuld’, nu nadert het uur van de waarheid](https://www.ad.nl/binnenland/ali-b-knokte-voor-zijn-onschuld-nu-nadert-het-uur-van-de-waarheid~a701de36/)
-  > ‘Hij heeft geknokt voor zijn onschuld’, zoals hij meermaals zei. Deze donderdag hoort Ali B van het gerechtshof in Amsterdam of hij de gevangenis in...
-- [Demonstratie in Ter Apel tegen azc’s gaat zaterdag niet door](https://www.ad.nl/binnenland/demonstratie-in-ter-apel-tegen-azcs-gaat-zaterdag-niet-door~a39a7713/)
-  > De voor zaterdagmiddag geplande demonstratie van Defend Netherlands tegen azc's in Ter Apel gaat niet door. De initiatiefnemer zegt de kennisgeving...
+- [Praat mee: hogere straf voor Ali B, steun in de rug voor vrouwen die aangifte doen?](https://www.ad.nl/praat-mee/praat-mee-hogere-straf-voor-ali-b-steun-in-de-rug-voor-vrouwen-die-aangifte-doen~a1e42704/)
+  > Rapper Ali B krijgt in hoger beroep een zwaardere straf, namelijk drie jaar cel in plaats van twee. In de Kwestie leggen we onze lezers daarover een...
+- [Jongens van 13 openhartig over vapen: ‘Het begon door groepsdruk, nu ben ik verslaafd’](https://www.ad.nl/binnenland/jongens-van-13-openhartig-over-vapen-het-begon-door-groepsdruk-nu-ben-ik-verslaafd~aad28f05/)
+  > Ze zijn 13 jaar en weten nu al wat vapen met je doet. Quinten hijst elke dag aan de maffe smaakjes en is verslaafd. Tyson vapet af en toe maar wil...
+- [Vijf besmettingen op schip vastgesteld, sfeer op cruise is ‘overwegend goed en kalm’](https://www.ad.nl/binnenland/vijf-besmettingen-op-schip-vastgesteld-sfeer-op-cruise-is-overwegend-goed-en-kalm~a3f98549/)
+  > Bij vijf mensen op het Hondius-cruiseschip is het hantavirus vastgesteld. Dat meldt de Wereldgezondheidsorganisatie donderdagochtend. Volg alle...
+- [Vivianne Miedema deelt dag na kampioenschap verdrietig bericht over moeder: ‘Ontzettend moeilijk geweest’](https://www.ad.nl/voetbal/vivianne-miedema-deelt-dag-na-kampioenschap-verdrietig-bericht-over-moeder-ontzettend-moeilijk-geweest~a7328de3/)
+  > Vivianne Miedema ontbrak bij het kampioenschapsfeest van haar club Manchester City. Een dag later maakte ze op Instagram de reden bekend: de moeder...
+- [TransferTalk | Niklas Süle (30) zet punt achter loopbaan, Youri Mulder langer bij Schalke](https://www.ad.nl/voetbal/transfertalk-niklas-sule-30-zet-punt-achter-loopbaan-youri-mulder-langer-bij-schalke~a35ea681/)
+  > De transfermarkt is sinds begin februari gesloten, maar ook in deze periode is er volop nieuws rond trainers en spelers. Volg het hier!
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [De Salone di Mobile, editie 2026](https://fd.nl/samenleving/1595706/de-salone-di-mobile-editie-2026)
-  > Geopolitieke spanningen, de Straat van Hormuz en de oorlog in Iran waren ver weg op de Milanese designbeurs. Wel waren er zorgen over de dominante...
-- [Winst Shell schiet omhoog door Iranoorlog](https://fd.nl/financiele-markten/1595791/winst-shell-schiet-omhoog-door-iranoorlog)
-  > De extra inkomsten door de hoge olie- en gasprijzen compenseren ruimschoots voor de schade die Shell lijdt door de oorlog.
-- [BAM houdt werkvoorraad gelijk op €13 mrd in eerste kwartaal](https://fd.nl/bedrijfsleven/1595830/bam-houdt-werkvoorraad-gelijk-op-13-mrd-in-eerste-kwartaal)
-  > Het Bunnikse bouwconcern ziet echter een afname van de toekomstige omzet met €300 mln ten opzichte van het eerste kwartaal in 2025.
-- [ForFarmers ‘versterkt marktpositie’ door overnames](https://fd.nl/bedrijfsleven/1595885/forfarmers-versterkt-marktpositie-door-overnames)
-  > De beursgenoteerde veevoerproducent heeft goedkeuring van zijn aandeelhouders gekregen voor het aangaan van een joint venture met het Poolse KPS.
-- [Onrust in de wereld maakt klanten Van Lanschot Kempen voorzichtig](https://fd.nl/financiele-markten/1595829/licht-lagere-instroom-bij-van-lanschot-kempen-in-eerste-kwartaal)
-  > Nieuwe klanten zetten minder grote stappen in hun beleggingsportefeuille dan gebruikelijk.
+- [Brand uitgebroken bij datacenter van NorthC in Almere](https://fd.nl/economie/1595893/brand-uitgebroken-bij-datacenter-van-northc-in-almere)
+  > Veel rook bij brand in datacentrum van NorthC Datacenters in Almere.
+- [Aantal schulden en betalingsachterstanden daalt verder](https://fd.nl/samenleving/1595831/aantal-schulden-en-betalingsachterstanden-daalt-verder)
+  > De daling is zichtbaar bij bijna alle leeftijdsgroepen. Vanaf later dit jaar moeten ook aankopen via populaire buy now, pay later-diensten bij het...
+- [Niet normaal die winsten](https://fd.nl/financiele-markten/1595892/niet-normaal-die-winsten)
+  > De winstcijfers van grote techbedrijven over het eerste kwartaal zijn abnormaal goed, maar de vraag is of beleggers in AI genoeg gaan verdienen aan...
+- [Oefenen voor naderend onheil gaat helaas ten koste van de natuur](https://fd.nl/opinie/1595712/oefenen-voor-naderend-onheil-gaat-helaas-ten-koste-van-de-natuur)
+  > De politiek erkent misschien wel het belang van natuur, maar kiest toch telkens weer voor economie en veiligheid, schrijft filosoof René ten Bos.
+- [Europarlement en lidstaten alsnog akkoord over aanpassingen van AI-wet](https://fd.nl/politiek/1595891/europarlement-en-lidstaten-alsnog-akkoord-over-aanpassingen-van-ai-wet)
+  > De ontwikkeling van AI waaraan een hoog risico kleeft, moet niet al in augustus aan strenge regels voldoen, maar pas in december 2027. Ook komt er...
 
 ### Meest gelezen
 
