@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-05-2026 om 13:59*
+*Laatst bijgewerkt: 08-05-2026 om 15:46*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Kabinet compenseert vuurwerkhandelaren voor 100 miljoen euro](https://nos.nl/l/2613612)
+  > Het kabinet trekt in totaal 100 miljoen euro uit voor de compensatie van ondernemers in de vuurwerkbranche, die te lijden zal krijgen van het...
+- [Prijs Switch 2 stijgt, waarschijnlijk door tekort aan computerchips](https://nos.nl/l/2613608)
+  > De prijs van de Switch 2, de spelcomputer die videogamebedrijf Nintendo vorig jaar uitbracht, wordt wereldwijd verhoogd. Vanaf 1 september zal de...
+- [Podcast De Dag: zingend oud worden](https://nos.nl/l/2613606)
+  > The Rolling Stones zijn de tachtig gepasseerd maar deze week kondigden ze een nieuw album aan. Ook Paul McCartney (83) komt met een nieuwe plaat. En...
 - [Wapens en stapels geld: Belgische politie rolt Turkse maffiabende op](https://nos.nl/l/2613600)
   > Met 26 huiszoekingen en 18 aanhoudingen denkt de Belgische politie een netwerk van de Turkse maffia te hebben opgerold. De bende zou op grote schaal...
-- [Gijzeling in Duits bankgebouw voorbij, daders gevlucht](https://nos.nl/l/2613598)
+- [Onduidelijk of gevluchte gijzelnemers Duitse bank iets hebben buitgemaakt](https://nos.nl/l/2613598)
   > De gijzeling in een bank in de Duitse plaats Sinzig, zo'n 25 kilometer ten zuiden van Bonn, is voorbij. De politie is het bankgebouw binnengegaan en...
-- [Podcast De Stemming: spoednood, brievenbussen en koffievlekken](https://nos.nl/l/2613594)
-  > Joost Vullings en Marleen de Rooy bespreken de explosie die donderdagavond plaatsvond bij het partijkantoor van D66 in Den Haag. Hoe gaat de politiek...
-- ['Uitzonderlijke brand' bij datacentrum Almere verwoest drie verdiepingen](https://nos.nl/l/2613590)
-  > Door de brand bij het datacentrum in Almere zijn drie verdiepingen van het gebouw volledig verwoest. Het gaat om elektriciteitsruimtes met...
-- [Ondanks eenzijdig staakt-het-vuren honderden drone-aanvallen in Rusland en Oekraïne](https://nos.nl/l/2613589)
-  > Afgelopen nacht hebben Rusland en Oekraïne over en weer honderden drone-aanvallen uitgevoerd, ondanks een staakt-het-vuren dat was aangekondigd. Dat...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Giro d’Italia | Hond zorgt voor schrikmoment, kan Dylan Groenewegen in massasprint eerste roze trui pakken?](https://www.ad.nl/giro/live-giro-ditalia-hond-zorgt-voor-schrikmoment-kan-dylan-groenewegen-in-massasprint-eerste-roze-trui-pakken~a4a65020/)
-  > De 109de editie van de Giro d’Italia begint met een etappe van 147 kilometer in Bulgarije. Onderweg worden de eerste bergpunten verdeeld, waarna in...
-- [Spaanse passagier van KLM-vlucht vertoont mogelijke hantaklachten](https://www.ad.nl/binnenland/spaanse-passagier-van-klm-vlucht-vertoont-mogelijke-hantaklachten~a3f98549/)
-  > De Spaanse autoriteiten hebben een mogelijk hantageval gevonden in Alicante. Het gaat om een passagier van het KLM-vliegtuig waar de 69-jarige...
-- [Zeker drie Nederlanders aan boord van hantavirus-schip waren op vogelspotreis](https://www.ad.nl/binnenland/zeker-drie-nederlanders-aan-boord-van-hantavirus-schip-waren-op-vogelspotreis~a479adfa/)
-  > Drie Nederlanders die nog aan boord van het cruiseschip de Hondius zijn, waren op reis via vogelspotreisorganisatie BirdingBreaks. Aan boord brak het...
-- [Rico Verhoeven voelt tendens rond boksclash omslaan: ‘Mensen zien nu: o, dit is niet zomaar een kickbokser’](https://www.ad.nl/vechtsport/rico-verhoeven-voelt-tendens-rond-boksclash-omslaan-mensen-zien-nu-o-dit-is-niet-zomaar-een-kickbokser~a5a96949/)
-  > Nog twee dagen en dan reist Rico Verhoeven af naar Egypte voor het gevecht van zijn leven: de boksclash met Oleksandr Usyk op zaterdag 23 mei om de...
-- [Robin van Persie rekent zich nog niet rijk met Feyenoord: ‘We moeten van AZ winnen’](https://www.ad.nl/voetbal/robin-van-persie-rekent-zich-nog-niet-rijk-met-feyenoord-we-moeten-van-az-winnen~a11e5fbe/)
-  > Feyenoord is volgens Robin van Persie pas zeker van de Champions League als AZ over de knie is gelegd. De trainer heeft ook intern aangegeven dat hij...
+- [Kabinet: 100 miljoen euro om vuurwerkhandelaren te compenseren](https://www.ad.nl/politiek/kabinet-100-miljoen-euro-om-vuurwerkhandelaren-te-compenseren~a95eed915/)
+  > Het kabinet zet 100 miljoen euro opzij om ondernemers te compenseren die getroffen worden door het aankomende vuurwerkverbod. Dat meldt...
+- [Geef statushouders eerder taallessen zodat ze sneller kunnen werken](https://www.ad.nl/binnenland/geef-statushouders-eerder-taallessen-zodat-ze-sneller-kunnen-werken~a28f4a07/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [De opkomst en ondergang van Peter Gillis: van Quote500 en Massa is kassa naar fraudezaken en celstraf](https://www.ad.nl/show/de-opkomst-en-ondergang-van-peter-gillis-van-quote500-en-massa-is-kassa-naar-fraudezaken-en-celstraf~aa4ca87a/)
+  > Zijn vakantieparken in Nederland waren al dicht, een celstraf dreigde al en nu is ook het einde in zicht van de realitysoap die hem nationale...
+- [Bekijk en volg morgen live op deze site de gevechten van Boxing Gladiators: dit is het programma](https://www.ad.nl/vechtsport/bekijk-en-volg-morgen-live-op-deze-site-de-gevechten-van-boxing-gladiators-dit-is-het-programma~a88c00f6/)
+  > Zaterdag vindt de tweede editie van Boxing Gladiators plaats in Rotterdam, te zien via deze site en Videoland. Na een uitverkochte eerste editie in...
+- [Meer ruimte nodig, maar geen toestemming: Geoffrey en Taritha botsen met gemeente Lopik over dakopbouw](https://www.ad.nl/binnenland/meer-ruimte-nodig-maar-geen-toestemming-geoffrey-en-taritha-botsen-met-gemeente-lopik-over-dakopbouw~ad891c8f/)
+  > Geoffrey en Taritha zouden maar wat graag een dakopbouw op hun hoekhuis aan de Meeuwenlaan laten plaatsen. Daarmee zouden ze twee extra kamers kunnen...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Meer zelfvoorziening in medicijnen? Daar komt weinig van terecht](https://fd.nl/bedrijfsleven/1595736/meer-zelfvoorziening-in-medicijnen-daar-komt-weinig-van-terecht)
-  > Het van oorsprong Nederlandse farmabedrijf Organon komt in Indiase handen. Dat roept ongemakkelijke vragen op, want Nederland wil voor medicijnen...
-- [Europese Commissie versoepelt regels voor luchtvaart door kerosineschaarste](https://fd.nl/bedrijfsleven/1595930/europese-commissie-versoepelt-regels-voor-luchtvaart-door-kerosineschaarste)
-  > Europese maatschappijen mogen meer brandstof aan boord nemen als er tekorten op bestemmingen zijn. De hoge brandstofprijzen blijven volgens de...
-- [Boete van €486.000 voor voormalige handelaar pensioenfonds](https://fd.nl/samenleving/1596051/boete-van-486-000-voor-voormalige-handelaar-pensioenfonds)
-  > Medewerker van pensioenfonds was betrokken bij het ontduiken van €200 mln aan dividendbelasting in Nederland.
-- [Anthropic jaagt op waarde van $900 mrd en kan OpenAI voorbijstreven](https://fd.nl/bedrijfsleven/1596048/anthropic-jaagt-op-waarde-van-900mrd-en-kan-openai-voorbijstreven)
-  > Deze zomer zou het Amerikaanse AI-bedrijf $50 mrd willen ophalen. De financieringsronde is bedoeld om de snelle groei van AI-tool Claude te...
-- [Nederlandse vermogensbeheerders en verzekeraars steken meer geld in defensie](https://fd.nl/financiele-markten/1595925/nederlandse-vermogensbeheerders-en-verzekeraars-steken-meer-geld-in-defensie)
-  > Door de oorlog in Oekraïne is investeren in de defensie-industrie veel minder omstreden geworden. Dat is onder andere zichtbaar in het beleid van...
+- [Deze handelsplatforms gaan door het dak dankzij verliezende beleggers](https://fd.nl/financiele-markten/1596058/deze-handelsplatformsgaan-door-het-dak-dankzij-verliezende-beleggers)
+  > Cfd-brokers als Plus500 en IG Markets blijven maar binnenlopen dankzij overmoedige speculanten. Slimmeriken beleggen dus niet in cfd’s, maar in de...
+- [Technisch gezien is AEX de weg naar 1100 punten ingeslagen](https://fd.nl/financiele-markten/1596054/technisch-gezien-is-aex-de-weg-naar-1100-punten-ingeslagen)
+  > Aandelenbeleggers hebben last van fomo. Aan de inschattingen van de obligatiemarkt gaan ze helemaal voorbij.
+- [Zeeuws cruiseschip wordt wereldnieuws: vier vragen over het hantavirus](https://fd.nl/economie/1595931/zeeuws-cruiseschip-wordt-wereldnieuws-vier-vragen-over-het-hantavirus)
+  > Het nieuws over de uitbraak van het hantavirus op de MV Hondius leidde tot internationale ophef. Hoe gevaarlijk is het zeldzame virus waar drie...
+- [Opnieuw hack bij Canvas, hackers stellen nieuwe deadline](https://fd.nl/bedrijfsleven/1596057/opnieuw-hack-bij-canvas-hackers-stellen-nieuwe-deadline)
+  > Dat hackersgroep Shinyhunters de deadline verschuift, wijst erop dat Canvas vooralsnog weigert losgeld te betalen.
+- [ABN Amro mocht rekening vermogensbeheerder Libische staatsfonden niet opzeggen](https://fd.nl/bedrijfsleven/1596056/abn-amro-mocht-rekening-vermogensbeheerder-libische-staatsfonden-niet-opzeggen)
+  > De kortgedingrechter oordeelde dat de bankrelatie mocht worden opgeheven. Hoger beroep maakt dat oordeel ongedaan.
 
 ### Meest gelezen
 
