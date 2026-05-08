@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-05-2026 om 03:42*
+*Laatst bijgewerkt: 08-05-2026 om 06:00*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Nog geen motief bekend voor gooien vuurwerkbom partijkantoor D66, verdachte zit vast](https://nos.nl/l/2613523)
-  > Het is nog niet bekend wat het motief was voor het gooien van een vuurwerkbom in het partijkantoor van D66 in Den Haag, iets na 21.00 uur...
-- [Hackers dringen opnieuw binnen in app die op universiteiten wordt gebruikt](https://nos.nl/l/2613522)
-  > Op een app die veel wordt gebruikt op Nederlandse universiteiten en hogescholen heeft gisteravond korte tijd een boodschap gestaan van hackersbende...
-- [Nieuwe Israëlische luchtaanvallen in zuiden Libanon, ondanks bestand](https://nos.nl/l/2613521)
-  > Bij Israëlische luchtaanvallen in het zuiden van Libanon zijn gisteren zeker twaalf mensen gedood, meldt het Libanese ministerie van Gezondheid. De...
-- [Beschietingen over en weer tussen Iran en VS, bestand houdt het nog volgens Trump](https://nos.nl/l/2613519)
-  > Iran en Amerika beschuldigen elkaar ervan dat ze het staakt-het-vuren hebben geschonden. Gisteravond laat (Nederlandse tijd) waren er verschillende...
-- [In brand gestoken man in rolstoel mag brandwondencentrum verlaten](https://nos.nl/l/2613517)
-  > De man die vorige maand in zijn rolstoel in brand werd gestoken in Utrecht, mag het brandwondencentrum binnenkort verlaten. Hij maakt het naar...
+- [Britten vieren 100ste verjaardag van geliefd instituut: sir David Attenborough](https://nos.nl/l/2613534)
+  > Zijn stem is er een uit duizenden. Miljoenen tv-kijkers en natuurliefhebbers over de hele wereld zullen die onmiddellijk herkennen. De lichtelijk...
+- [Nog weinig stemmen geteld in VK, Reform van Farage op winst](https://nos.nl/l/2613529)
+  > In het Verenigd Koninkrijk worden de stemmen geteld na de lokale en regionale verkiezingen. Hoewel er nog niet veel stemmen zijn geteld, heeft op...
+- [Gascentrales staan vaker stil, steun nodig om ze open te kunnen houden](https://nos.nl/l/2613527)
+  > Op de fiets naar de gascentrale in de Eemshaven weet Marianne Medendorp al of het een drukke werkdag wordt. Schijnt de zon en waait het hard, dan...
+- [Wekdienst 8/5: Start eindexamens • Honderdste verjaardag David Attenborough](https://nos.nl/l/2613526)
+  > Goedemorgen! Vandaag starten de eindexamens op middelbare scholen, ook is Sir David Attenborough 100 jaar geworden.
+        Eerst het weer: het is...
+- [Eindexamens beginnen met voor het eerst ook een hulplijn tegen stress](https://nos.nl/l/2613524)
+  > Bijna 145.000 leerlingen beginnen vandaag aan hun centrale examens. Voor vmbo gl en tl staat wiskunde op het programma, voor havo filosofie en...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [LIVE VS | Trump lijdt verlies in rechtbank over invoerheffingen en DOGE](https://www.ad.nl/buitenland/live-vs-trump-lijdt-verlies-in-rechtbank-over-invoerheffingen-en-doge~ae67dd9c/)
-  > President Donald Trump heeft er donderdag in de rechtbank twee keer van langs gekregen. Zowel zijn invoerheffingen van 10 procent op het grootste...
-- [Nederlanders met machinegeweren bewaakten recordpartij van 30.000 kilo cocaïne](https://www.ad.nl/binnenland/nederlanders-met-machinegeweren-bewaakten-recordpartij-van-30-000-kilo-cocaine~af9c477f/)
-  > Het was de grootste drugsvangst ooit: 30.000 kilo cocaïne nam de Spaanse politie vorige week vrijdag in beslag. De monsterpartij drugs werd bewaakt...
-- [VU koppelt systemen los na hack, ook universiteiten in VS de dupe](https://www.ad.nl/binnenland/vu-koppelt-systemen-los-na-hack-ook-universiteiten-in-vs-de-dupe~ab00f9a6/)
-  > De Vrije Universiteit Amsterdam heeft alle systemen die in verbinding staan met onderwijssoftware Canvas losgekoppeld. Dat liet de...
-- [Singapore plaatst twee inwoners uit voorzorg in quarantaine na uitbraak op cruiseschip](https://www.ad.nl/buitenland/singapore-plaatst-twee-inwoners-uit-voorzorg-in-quarantaine-na-uitbraak-op-cruiseschip~a50c3e47/)
-  > Singapore heeft twee inwoners uit voorzorg in quarantaine geplaatst. De twee zaten op het cruiseschip dat in verband wordt gebracht met een dodelijke...
-- [LIVE Oorlog Oekraïne | Russische luchtafweer stopt tientallen drones richting Moskou ondanks bestand](https://www.ad.nl/buitenland/live-oorlog-oekraine-russische-luchtafweer-stopt-tientallen-drones-richting-moskou-ondanks-bestand~adfb97be/)
-  > Russische luchtverdedigingseenheden hebben in een periode van ongeveer vijftien uur meer dan vijftig drones onderschept die op weg waren naar Moskou....
+- [Max Verstappen in actie tijdens de 24 uur van de Nürburgring: zo ziet het weekend eruit](https://www.ad.nl/formule-1/max-verstappen-in-actie-tijdens-de-24-uur-van-de-nurburgring-zo-ziet-het-weekend-eruit~a53702ce/)
+  > Na een beter Formule 1-weekend in Miami gaat de blik van Max Verstappen nu naar zijn GT3-auto. De coureur was de afgelopen maanden al twee keer te...
+- [Geniet maar extra van die heerlijke zon, na het weekend is het andere koek](https://www.ad.nl/binnenland/geniet-maar-extra-van-die-heerlijke-zon-na-het-weekend-is-het-andere-koek~a28c7445/)
+  > Overal in het land liggen de temperaturen vandaag tussen de 17 en 19 graden. Waar de zon er in het oosten en noorden flink doorkomt, trekken er over...
+- [Helpt Dylan Groenewegen zijn nieuwe ploeg vandaag meteen aan de roze trui? ‘Ik ben er klaar voor’](https://www.ad.nl/giro/helpt-dylan-groenewegen-zijn-nieuwe-ploeg-vandaag-meteen-aan-de-roze-trui-ik-ben-er-klaar-voor~a3b1a043/)
+  > Dylan Groenewegen (32) won al vaak en veel. Maar in de Giro aast hij vandaag direct op een primeur: zijn eerste ritzege. Bijkomende hoofdprijs: het...
+- [Robbie Williams vergelijkt haar met Whitney Houston: wie is de 27-jarige superster Olivia Dean?](https://www.ad.nl/show/robbie-williams-vergelijkt-haar-met-whitney-houston-wie-is-de-27-jarige-superster-olivia-dean~a447d157/)
+  > Opeens was ze daar: de Britse zangeres Olivia Dean. Ze haalde een miljard streams met haar monsterhit Man I need en staat zaterdag in de Ziggo Dome....
+- [Duitser met dementie laat zijn blinde vrouw (91) achter in auto en vergeet waar die staat: vrouw na dagen gevonden](https://www.ad.nl/buitenland/duitser-met-dementie-laat-zijn-blinde-vrouw-91-achter-in-auto-en-vergeet-waar-die-staat-vrouw-na-dagen-gevonden~ad682a6e/)
+  > Een 91-jarige blinde vrouw uit Duitsland is dagenlang spoorloos geweest, nadat haar echtgenoot haar achterliet in hun gestrande auto. Hij ging hulp...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Oekraïense drones kunnen het overwinningsfeestje van Poetin verpesten](https://fd.nl/economie/1595849/oekraiense-drones-kunnen-het-overwinningsfeestje-van-poetin-verpesten)
-  > In deze Dagkoers: hoe Oekraïne de Russische herdenkingsparade kan verstoren, waarom Europa nog niet akkoord is met de handelsdeal met de VS en hoe...
-- [Na de aanval op wapenbedrijf CSG ligt shortseller Hunterbrook nu zelf onder vuur](https://fd.nl/financiele-markten/1595895/na-de-aanval-op-wapenbedrijf-csg-ligt-shortseller-hunterbrook-nu-zelf-onder-vuur)
-  > Het rapport van shortseller Hunterbrook op wapenbedrijf CSG, dat eerder deze week hard onderuit ging, zou vooral oude informatie bevatten.
-- [Waarom wij liever slaaf zijn dan vrij](https://fd.nl/opinie/1595837/waarom-wij-liever-slaaf-zijn-dan-vrij)
-  > Van Terschelling tot Den Haag: achter de Nederlandse vrijheidsliefde schuilt een opvallende hang naar bestuur en betutteling.
-- [Groene Goeroe of Grote Greenwasher?](https://fd.nl/opinie/1595909/groene-goeroe-of-grote-greenwasher)
-  > Een overstap van Milieudefensie naar Tata Steel is een opvallende stap, maar het is afwachten.
-- [Belasting op papieren winst na ‘slecht vertrek’ wekt verbazing bij fiscalisten](https://fd.nl/bedrijfsleven/1595900/belasting-op-papieren-winst-na-slecht-vertrek-wekt-verbazing-bij-fiscalisten)
-  > Een werknemer die onder verwijtbare omstandigheden vertrekt en aandelen moet teruggeven, kan voor een fiscale verrassing komen te staan.
+- [Beschietingen tussen VS en Iran, ook VAE aangevallen](https://fd.nl/politiek/1596005/beschietingen-tussen-vs-en-iran-ook-vae-aangevallen)
+  > Iraanse strijdkrachten hebben donderdag Amerikaanse schepen beschoten met onder meer drones en raketten. Vrijdagochtend meldden ook de Verenigde...
+- [Bedrijfsresultaat in de lift, maar Sif voorziet moeizaam 2027 en 2028](https://fd.nl/bedrijfsleven/1596004/bedrijfsresultaat-in-de-lift-maar-sif-voorziet-moeizaam-2027-en-2028)
+  > De vraag naar funderingen voor windmolens op zee valt tijdelijk terug, zo blijkt uit de kwartaalupdate die het bedrijf vrijdagochtend publiceerde.
+- [Geschokte reacties na vuurwerkbom bij partijkantoor D66](https://fd.nl/politiek/1596003/geschokte-reacties-na-vuurwerkbom-bij-partijkantoor-d66)
+  > Op het moment van de aanslag waren er circa dertig mensen van de Jonge Democraten aanwezig in het pand. De politie heeft een verdachte opgepakt.
+- [Het intieme werk van Tracey Emin](https://fd.nl/samenleving/1595742/het-intieme-werk-van-tracey-emin)
+  > Verlies, liefde, seks en ziekte. Tracey Emin verwerkt haar intieme ervaringen in haar kunst. Het maakt haar retrospectief in het Londense Tate Modern...
+- [Live: Aandelen lager, olieprijs hoger na schotenwisseling tussen VS en Iran](https://fd.nl/financiele-markten/1595923/live-aandelen-lager-olieprijs-hoger-na-schotenwisseling-tussen-vs-en-iran)
+  > Beleggers nemen gas terug na vijandelijkheden over en weer. In Amsterdam geven Heijmans en SIF duiding over het eerste kwartaal. Vanmiddag komen er...
 
 ### Meest gelezen
 
