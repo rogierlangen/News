@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-05-2026 om 06:00*
+*Laatst bijgewerkt: 08-05-2026 om 07:54*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Drie hikers gedood door vulkaanuitbarsting op Indonesisch eiland](https://nos.nl/l/2613548)
+  > Op het Indonesische eiland Halmahera is een groep wandelaars overvallen door een uitbarsting van de vulkaan Dukono. Drie van de twintig toeristen...
+- [Jetten na aanslag op D66-kantoor: 'We laten ons niet intimideren'](https://nos.nl/l/2613542)
+  > Premier Jetten noemt het gooien van een vuurwerkbom door de brievenbus van het D66-partijkantoor "een kansloze actie". "Vrij kansloos als je denkt...
+- [Marsrover Curiosity na zes dagen bevrijd van steen aan boor](https://nos.nl/l/2613539)
+  > NASA is erin geslaagd Marsrover Curiosity na enkele dagen te bevrijden van een flinke steen die aan zijn boor was blijven hangen. Het was voor het...
+- [Meer dan 2500 honderdplussers in Nederland](https://nos.nl/l/2613536)
+  > Nederland telt ruim 2500 mensen die ouder zijn dan 100. Begin dit jaar waren het er 2551, heeft het Centraal Bureau voor de Statistiek berekend. Het...
 - [Britten vieren 100ste verjaardag van geliefd instituut: sir David Attenborough](https://nos.nl/l/2613534)
   > Zijn stem is er een uit duizenden. Miljoenen tv-kijkers en natuurliefhebbers over de hele wereld zullen die onmiddellijk herkennen. De lichtelijk...
-- [Nog weinig stemmen geteld in VK, Reform van Farage op winst](https://nos.nl/l/2613529)
-  > In het Verenigd Koninkrijk worden de stemmen geteld na de lokale en regionale verkiezingen. Hoewel er nog niet veel stemmen zijn geteld, heeft op...
-- [Gascentrales staan vaker stil, steun nodig om ze open te kunnen houden](https://nos.nl/l/2613527)
-  > Op de fiets naar de gascentrale in de Eemshaven weet Marianne Medendorp al of het een drukke werkdag wordt. Schijnt de zon en waait het hard, dan...
-- [Wekdienst 8/5: Start eindexamens • Honderdste verjaardag David Attenborough](https://nos.nl/l/2613526)
-  > Goedemorgen! Vandaag starten de eindexamens op middelbare scholen, ook is Sir David Attenborough 100 jaar geworden.
-        Eerst het weer: het is...
-- [Eindexamens beginnen met voor het eerst ook een hulplijn tegen stress](https://nos.nl/l/2613524)
-  > Bijna 145.000 leerlingen beginnen vandaag aan hun centrale examens. Voor vmbo gl en tl staat wiskunde op het programma, voor havo filosofie en...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Max Verstappen in actie tijdens de 24 uur van de Nürburgring: zo ziet het weekend eruit](https://www.ad.nl/formule-1/max-verstappen-in-actie-tijdens-de-24-uur-van-de-nurburgring-zo-ziet-het-weekend-eruit~a53702ce/)
-  > Na een beter Formule 1-weekend in Miami gaat de blik van Max Verstappen nu naar zijn GT3-auto. De coureur was de afgelopen maanden al twee keer te...
-- [Geniet maar extra van die heerlijke zon, na het weekend is het andere koek](https://www.ad.nl/binnenland/geniet-maar-extra-van-die-heerlijke-zon-na-het-weekend-is-het-andere-koek~a28c7445/)
-  > Overal in het land liggen de temperaturen vandaag tussen de 17 en 19 graden. Waar de zon er in het oosten en noorden flink doorkomt, trekken er over...
-- [Helpt Dylan Groenewegen zijn nieuwe ploeg vandaag meteen aan de roze trui? ‘Ik ben er klaar voor’](https://www.ad.nl/giro/helpt-dylan-groenewegen-zijn-nieuwe-ploeg-vandaag-meteen-aan-de-roze-trui-ik-ben-er-klaar-voor~a3b1a043/)
-  > Dylan Groenewegen (32) won al vaak en veel. Maar in de Giro aast hij vandaag direct op een primeur: zijn eerste ritzege. Bijkomende hoofdprijs: het...
-- [Robbie Williams vergelijkt haar met Whitney Houston: wie is de 27-jarige superster Olivia Dean?](https://www.ad.nl/show/robbie-williams-vergelijkt-haar-met-whitney-houston-wie-is-de-27-jarige-superster-olivia-dean~a447d157/)
-  > Opeens was ze daar: de Britse zangeres Olivia Dean. Ze haalde een miljard streams met haar monsterhit Man I need en staat zaterdag in de Ziggo Dome....
-- [Duitser met dementie laat zijn blinde vrouw (91) achter in auto en vergeet waar die staat: vrouw na dagen gevonden](https://www.ad.nl/buitenland/duitser-met-dementie-laat-zijn-blinde-vrouw-91-achter-in-auto-en-vergeet-waar-die-staat-vrouw-na-dagen-gevonden~ad682a6e/)
-  > Een 91-jarige blinde vrouw uit Duitsland is dagenlang spoorloos geweest, nadat haar echtgenoot haar achterliet in hun gestrande auto. Hij ging hulp...
+- [Vulkaan op Indonesisch eiland barst uit: drie wandelaars omgekomen, tien anderen nog vermist](https://www.ad.nl/buitenland/vulkaan-op-indonesisch-eiland-barst-uit-drie-wandelaars-omgekomen-tien-anderen-nog-vermist~a29483b3/)
+  > Bij een uitbarsting van de vulkaan Dukono op het Indonesische eiland Halmahera zijn zeker drie wandelaars om het leven gekomen. Twee van de...
+- [Obama zenuwachtig, Queen smelt: zeven momenten die David Attenborough (100) onvergetelijk maken](https://www.ad.nl/buitenland/obama-zenuwachtig-queen-smelt-zeven-momenten-die-david-attenborough-100-onvergetelijk-maken~a8e4bdf8/)
+  > Heel Brits, altijd helemaal zichzelf, én voor de duvel niet bang. David Attenborough – ’s werelds beroemdste bioloog – wordt vandaag 100 jaar....
+- [Pijnlijk voor Nintendo en balen voor de fans: Switch 2 wordt (noodgedwongen) een stukje duurder](https://www.ad.nl/games/pijnlijk-voor-nintendo-en-balen-voor-de-fans-switch-2-wordt-noodgedwongen-een-stukje-duurder~a6137cf4/)
+  > Nintendo verhoogt de prijs van de Switch 2. De spelcomputer wordt in Europa zo’n 30 euro duurder en gaat daarmee 500 euro kosten. Tegelijkertijd...
+- [Hoogspanning bij WK-debutant Curaçao nu bondsbestuur rentree Dick Advocaat dwarsboomt](https://www.ad.nl/wk-voetbal/hoogspanning-bij-wk-debutant-curacao-nu-bondsbestuur-rentree-dick-advocaat-dwarsboomt~a2becb63/)
+  > Dick Advocaat keert vooralsnog niet terug als bondscoach bij Curaçao. Het bondsbestuur van de WK-debutant legt de hardop uitgesproken wens van de...
+- [KLM-stewardess test negatief op hantavirus na contact met besmette Nederlandse die later overleed](https://www.ad.nl/binnenland/klm-stewardess-test-negatief-op-hantavirus-na-contact-met-besmette-nederlandse-die-later-overleed~a3f98549/)
+  > Bij de stewardess van KLM die werd getest op het hantavirus is de uitslag van de test negatief. Dat bevestigt de Wereldgezondheidsorganisatie (WHO)....
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Beschietingen tussen VS en Iran, ook VAE aangevallen](https://fd.nl/politiek/1596005/beschietingen-tussen-vs-en-iran-ook-vae-aangevallen)
-  > Iraanse strijdkrachten hebben donderdag Amerikaanse schepen beschoten met onder meer drones en raketten. Vrijdagochtend meldden ook de Verenigde...
-- [Bedrijfsresultaat in de lift, maar Sif voorziet moeizaam 2027 en 2028](https://fd.nl/bedrijfsleven/1596004/bedrijfsresultaat-in-de-lift-maar-sif-voorziet-moeizaam-2027-en-2028)
-  > De vraag naar funderingen voor windmolens op zee valt tijdelijk terug, zo blijkt uit de kwartaalupdate die het bedrijf vrijdagochtend publiceerde.
-- [Geschokte reacties na vuurwerkbom bij partijkantoor D66](https://fd.nl/politiek/1596003/geschokte-reacties-na-vuurwerkbom-bij-partijkantoor-d66)
-  > Op het moment van de aanslag waren er circa dertig mensen van de Jonge Democraten aanwezig in het pand. De politie heeft een verdachte opgepakt.
-- [Het intieme werk van Tracey Emin](https://fd.nl/samenleving/1595742/het-intieme-werk-van-tracey-emin)
-  > Verlies, liefde, seks en ziekte. Tracey Emin verwerkt haar intieme ervaringen in haar kunst. Het maakt haar retrospectief in het Londense Tate Modern...
-- [Live: Aandelen lager, olieprijs hoger na schotenwisseling tussen VS en Iran](https://fd.nl/financiele-markten/1595923/live-aandelen-lager-olieprijs-hoger-na-schotenwisseling-tussen-vs-en-iran)
-  > Beleggers nemen gas terug na vijandelijkheden over en weer. In Amsterdam geven Heijmans en SIF duiding over het eerste kwartaal. Vanmiddag komen er...
+- [Athora sluit woekerspolisaffaire af na akkoord over compensatie](https://fd.nl/financiele-markten/1596010/athora-sluit-woekerspolisaffaire-af-na-akkoord-over-compensatie)
+  > Eerder al gingen de polishouders van Achmea, NN en ASR akkoord met de aangeboden compensatie.
+- [AI kan veel, maar zelfstandig beleggen is nog een brug te ver](https://fd.nl/financiele-markten/1595896/ai-kan-veel-maar-zelfstandig-beleggen-is-nog-een-brug-te-ver)
+  > Toezichthouder AFM zwengelt het debat over de implicaties van het gebruik van AI op financiële markten aan. Voor nu blijft een menselijke hand nodig...
+- [Toyota verwacht 22% lagere bedrijfswinst door Midden-Oosten en importheffingen](https://fd.nl/bedrijfsleven/1596008/toyota-verwacht-22-lagere-bedrijfswinst-door-midden-oosten-en-importheffingen)
+  > Vrijdag presenteerde autobouwer Toyota de resultaten van het afgelopen gebroken boekjaar. Ook bracht het verwachtingen voor het volgende boekjaar...
+- [Vrolijke botervloten en meubels van restjes](https://fd.nl/samenleving/1595785/vrolijke-botervloten-en-meubels-van-restjes)
+  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
+- [Orderboek Heijmans groeit met 40%, bouwer handhaaft winstdoel 2026](https://fd.nl/bedrijfsleven/1596006/orderboek-heijmans-groeit-met-40-bouwer-handhaaft-winstdoel-2026)
+  > Het Rosmalense bouwbedrijf maakt zich zorgen over het volle energienet en de achterblijvende projectfinanciering van beleggers.
 
 ### Meest gelezen
 
