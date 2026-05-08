@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-05-2026 om 21:06*
+*Laatst bijgewerkt: 08-05-2026 om 22:59*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [LIVE hantavirus | WHO bevestigt zes besmettingen op Hondius, Nederlandse opvarenden gaan zes weken in thuisquarantaine](https://www.ad.nl/binnenland/live-hantavirus-who-bevestigt-zes-besmettingen-op-hondius-nederlandse-opvarenden-gaan-zes-weken-in-thuisquarantaine~a3f98549/)
+  > Volgens de Wereldgezondheidsorganisatie (WHO) zijn tot dusver zes opvarenden van het cruiseschip Hondius besmet met het hantavirus. De Nederlandse...
+- [Iran: gevechten met Amerikaanse marine in Straat van Hormuz zijn beëindigd](https://www.ad.nl/buitenland/iran-gevechten-met-amerikaanse-marine-in-straat-van-hormuz-zijn-beeindigd~ac528ac3/)
+  > Het Iraanse leger heeft verklaard dat de gevechten met Amerikaanse oorlogsschepen in de Straat van Hormuz zijn beëindigd. ‘Na een tijdje van...
+- [Bekijk en volg vanavond live op deze site de gevechten van Boxing Gladiators: dit is het programma](https://www.ad.nl/vechtsport/bekijk-en-volg-vanavond-live-op-deze-site-de-gevechten-van-boxing-gladiators-dit-is-het-programma~a88c00f6/)
+  > Zaterdag vindt de tweede editie van Boxing Gladiators plaats in Rotterdam, te zien via deze site en Videoland. Na een uitverkochte eerste editie in...
+- [Podcast In Het Wiel | ‘Het waren op hol geslagen stieren in een finishstraat van vijf meter breed’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-het-waren-op-hol-geslagen-stieren-in-een-finishstraat-van-vijf-meter-breed~a5ea502e/)
+  > De kop is eraf, de Giro d’Italia is begonnen. Met ook helaas een eerste grote valpartij, waar Dylan Groenewegen een van de slachtoffers was. Weg roze...
 - [Dit is de winnaar van The Voice: ‘Ik kan wel janken’](https://www.ad.nl/show/dit-is-de-winnaar-van-the-voice-ik-kan-wel-janken~a953c76e/)
   > Het Nederlandse publiek heeft Ruben vrijdagavond gekozen tot de winnaar van The Voice. De ontknoping, die live werd bekendgemaakt in RTL Tonight,...
-- [Verdachte van aanslag op partijkantoor D66 maandag voorgeleid](https://www.ad.nl/binnenland/verdachte-van-aanslag-op-partijkantoor-d66-maandag-voorgeleid~a29cf76b/)
-  > De 37-jarige man die donderdagavond is aangehouden na een explosie bij het partijkantoor van D66 in Den Haag wordt maandag voorgeleid. Dat zei...
-- [Gesprekken tussen kamp-Mourinho en Real Madrid van start, club uit MLS heeft interesse in Lewandowski](https://www.ad.nl/voetbal/gesprekken-tussen-kamp-mourinho-en-real-madrid-van-start-club-uit-mls-heeft-interesse-in-lewandowski~a488141d/)
-  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
-- [PSV Vrouwen doorbreekt hegemonie van FC Twente en Ajax met eerste landstitel in clubgeschiedenis](https://www.ad.nl/voetbal/psv-vrouwen-doorbreekt-hegemonie-van-fc-twente-en-ajax-met-eerste-landstitel-in-clubgeschiedenis~adfe0a53/)
-  > De vrouwen van PSV zijn voor het eerst in de geschiedenis landskampioen geworden. Door de thuiszege op De Herdgang tegen ADO Den Haag (2-0) zijn de...
-- [Te laat bezwaar gemaakt? 'Dan geen compensatie voor onwettige box 3-heffing'](https://www.ad.nl/politiek/te-laat-bezwaar-gemaakt-dan-geen-compensatie-voor-onwettige-box-3-heffing~a4290f76/)
-  > Het kabinet kan waarschijnlijk opgelucht ademhalen: mensen die niet op tijd bezwaar hebben gemaakt tegen de onwettige box 3-heffing, hoeven geen...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Personalia zaterdag 9 mei](https://fd.nl/bedrijfsleven/1596052/personalia-zaterdag-9-mei)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Lachen met Lula, huilen met de AfD](https://fd.nl/opinie/1595916/lachen-met-lula-huilen-met-de-afd)
+  > Terwijl de Braziliaanse president Lula da Silva het over zielzorg en humor heeft, domineren elders irrationele woede en wraakpolitiek.
 - [Sterk banenrapport leidt tot optimisme op Amerikaanse beurs](https://fd.nl/financiele-markten/1596103/sterk-banenrapport-leidt-tot-optimisme-op-amerikaanse-beurs)
   > Opnieuw zaten chipaandelen in de lift. En ondanks tegenwind komen er banen bij op de Amerikaanse arbeidsmarkt.
 - [Trump kondigt gevechtspauze aan tussen Rusland en Oekraïne](https://fd.nl/politiek/1595935/trump-kondigt-gevechtspauze-aan-tussen-rusland-en-oekraine)
   > Staakt-het-vuren moet ingaan tussen 9 en 11 mei.
 - [‘Intel en Apple gaan samen chips produceren’](https://fd.nl/bedrijfsleven/1595934/intel-en-apple-gaan-samen-chips-produceren)
   > Het is volgens The Wall Street Journal nog onduidelijk voor welke Apple-producten Intel chips zou gaan maken.
-- [De nieuwe industriepolitiek is een collectieve fabriek](https://fd.nl/opinie/1596044/de-nieuwe-industriepolitiek-is-een-collectieve-fabriek)
-  > De voorzet voor een nieuwe industriepolitiek is gegeven. Nu moet het kabinet de bal nog inkoppen.
-- [Moderna werkt aan vaccin tegen hantavirus](https://fd.nl/bedrijfsleven/1596078/moderna-werkt-aan-vaccin-tegen-hantavirus)
-  > Onderzoek van Amerikaanse farmaceut vindt plaats in weerwil van het feit dat experts menen dat de gevaren van het virus gering zijn.
 
 ### Meest gelezen
 
