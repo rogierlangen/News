@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-05-2026 om 15:46*
+*Laatst bijgewerkt: 08-05-2026 om 17:23*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Gespannen start Biënnale van Venetië met protest tegen Israël en Rusland](https://nos.nl/l/2613627)
+  > De Biënnale van Venetië, 's werelds oudste en belangrijkste tentoonstelling voor hedendaagse kunst, beleeft dit jaar een zeer gespannen editie. Felle...
+- [Ze is 102 en eet elke dag komkommer: waarom sommige mensen gezond oud worden](https://nos.nl/l/2613625)
+  > "Ik denk een rustig leven." Dat is de verklaring van Eva Meis voor het bereiken van de respectabele leeftijd van 102 jaar. Een volgende verjaardag...
+- [Wolf in Zuid-Holland waargenomen, als laatste provincie](https://nos.nl/l/2613621)
+  > Na alle andere provincies in Nederland is nu ook in Zuid-Holland een wolf gezien. De provincie meldt dat de wolf op 17 april werd waargenomen in de...
 - [Kabinet compenseert vuurwerkhandelaren voor 100 miljoen euro](https://nos.nl/l/2613612)
   > Het kabinet trekt in totaal 100 miljoen euro uit voor de compensatie van ondernemers in de vuurwerkbranche, die te lijden zal krijgen van het...
 - [Prijs Switch 2 stijgt, waarschijnlijk door tekort aan computerchips](https://nos.nl/l/2613608)
   > De prijs van de Switch 2, de spelcomputer die videogamebedrijf Nintendo vorig jaar uitbracht, wordt wereldwijd verhoogd. Vanaf 1 september zal de...
-- [Podcast De Dag: zingend oud worden](https://nos.nl/l/2613606)
-  > The Rolling Stones zijn de tachtig gepasseerd maar deze week kondigden ze een nieuw album aan. Ook Paul McCartney (83) komt met een nieuwe plaat. En...
-- [Wapens en stapels geld: Belgische politie rolt Turkse maffiabende op](https://nos.nl/l/2613600)
-  > Met 26 huiszoekingen en 18 aanhoudingen denkt de Belgische politie een netwerk van de Turkse maffia te hebben opgerold. De bende zou op grote schaal...
-- [Onduidelijk of gevluchte gijzelnemers Duitse bank iets hebben buitgemaakt](https://nos.nl/l/2613598)
-  > De gijzeling in een bank in de Duitse plaats Sinzig, zo'n 25 kilometer ten zuiden van Bonn, is voorbij. De politie is het bankgebouw binnengegaan en...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Kabinet: 100 miljoen euro om vuurwerkhandelaren te compenseren](https://www.ad.nl/politiek/kabinet-100-miljoen-euro-om-vuurwerkhandelaren-te-compenseren~a95eed915/)
-  > Het kabinet zet 100 miljoen euro opzij om ondernemers te compenseren die getroffen worden door het aankomende vuurwerkverbod. Dat meldt...
-- [Geef statushouders eerder taallessen zodat ze sneller kunnen werken](https://www.ad.nl/binnenland/geef-statushouders-eerder-taallessen-zodat-ze-sneller-kunnen-werken~a28f4a07/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [De opkomst en ondergang van Peter Gillis: van Quote500 en Massa is kassa naar fraudezaken en celstraf](https://www.ad.nl/show/de-opkomst-en-ondergang-van-peter-gillis-van-quote500-en-massa-is-kassa-naar-fraudezaken-en-celstraf~aa4ca87a/)
-  > Zijn vakantieparken in Nederland waren al dicht, een celstraf dreigde al en nu is ook het einde in zicht van de realitysoap die hem nationale...
-- [Bekijk en volg morgen live op deze site de gevechten van Boxing Gladiators: dit is het programma](https://www.ad.nl/vechtsport/bekijk-en-volg-morgen-live-op-deze-site-de-gevechten-van-boxing-gladiators-dit-is-het-programma~a88c00f6/)
-  > Zaterdag vindt de tweede editie van Boxing Gladiators plaats in Rotterdam, te zien via deze site en Videoland. Na een uitverkochte eerste editie in...
-- [Meer ruimte nodig, maar geen toestemming: Geoffrey en Taritha botsen met gemeente Lopik over dakopbouw](https://www.ad.nl/binnenland/meer-ruimte-nodig-maar-geen-toestemming-geoffrey-en-taritha-botsen-met-gemeente-lopik-over-dakopbouw~ad891c8f/)
-  > Geoffrey en Taritha zouden maar wat graag een dakopbouw op hun hoekhuis aan de Meeuwenlaan laten plaatsen. Daarmee zouden ze twee extra kamers kunnen...
+- [Van blessure herstelde Wout Weghorst en Owen Wijndal inzetbaar voor Ajax tegen FC Utrecht](https://www.ad.nl/voetbal/van-blessure-herstelde-wout-weghorst-en-owen-wijndal-inzetbaar-voor-ajax-tegen-fc-utrecht~af5e7dd6/)
+  > Wout Weghorst en Owen Wijndal zijn hersteld van hun blessures en zijn zondag beschikbaar voor Ajax in het duel met FC Utrecht. Dat zegt trainer Óscar...
+- [Robot vervangt autoverkoper: Chinees merk start proef in Nederland](https://www.ad.nl/auto/robot-vervangt-autoverkoper-chinees-merk-start-proef-in-nederland~af535af9/)
+  > Bij sommige Nederlandse autodealers staat straks geen verkoper meer klaar om klanten te ontvangen, maar een humanoïde (mensvormige) robot. Automerk...
+- [Blauw pak, brede lach en een gevaarlijke Brit: Gradus Kraus treft bij Boxing Gladiators eveneens ongeslagen tegenstander](https://www.ad.nl/vechtsport/blauw-pak-brede-lach-en-een-gevaarlijke-brit-gradus-kraus-treft-bij-boxing-gladiators-eveneens-ongeslagen-tegenstander~aeb299a9/)
+  > Eind januari pakte Gradus Kraus zijn tiende zege, waardoor hij ongeslagen bleef. De bokser uit Oss gaf na afloop te kennen dat de lat voor zijn...
+- [Speedboten, moederschepen en duizenden kilo’s coke: dit is de nieuwe smokkelroute naar Europa](https://www.ad.nl/buitenland/speedboten-moederschepen-en-duizenden-kilos-coke-dit-is-de-nieuwe-smokkelroute-naar-europa~ab9f3a46/)
+  > De grootste cokevangst ooit, die werd bewaakt door zwaarbewapende Nederlanders, zette deze week de schijnwerpers op een nieuwe smokkelmethode. In...
+- [Drempel voor politiek geweld ligt griezelig laag](https://www.ad.nl/commentaar/drempel-voor-politiek-geweld-ligt-griezelig-laag~ad58c067/)
+  > En wéér was het raak: voor de tweede keer in negen maanden is het partijbureau van D66 doelwit geworden van een aanval. Zelfs als dit het werk is...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Hongaarse fraudeurs zweten plots peentjes](https://fd.nl/politiek/1596009/hongaarse-fraudeurs-zweten-plots-peentjes)
+  > Als premier Péter Magyar zijn belofte waarmaakt en Hongarije doet toetreden tot het Europees Openbaar Ministerie, kunnen fraudezaken van jaren...
+- [Kabinet compenseert ondernemers in vuurwerkbranche voor €100 mln](https://fd.nl/bedrijfsleven/1596077/kabinet-compenseert-ondernemers-in-vuurwerkbranche-voor-100-mln)
+  > Met de aangekondigde compensatie is aan de laatste voorwaarde voldaan voor het instellen van een vuurwerkverbod. Dat zou kunnen betekenen dat het...
+- [De lonkende lokkertjes van de miljardenmachine van Main](https://fd.nl/financiele-markten/1596045/de-lonkende-lokkertjes-van-de-miljardenmachine-van-main)
+  > Private-equityfirma Main Capital haalt miljarden op voor nieuwe investeringen in softwarebedrijven. Maar de goudgerande rendementen uit het verleden...
 - [Deze handelsplatforms gaan door het dak dankzij verliezende beleggers](https://fd.nl/financiele-markten/1596058/deze-handelsplatformsgaan-door-het-dak-dankzij-verliezende-beleggers)
   > Cfd-brokers als Plus500 en IG Markets blijven maar binnenlopen dankzij overmoedige speculanten. Slimmeriken beleggen dus niet in cfd’s, maar in de...
 - [Technisch gezien is AEX de weg naar 1100 punten ingeslagen](https://fd.nl/financiele-markten/1596054/technisch-gezien-is-aex-de-weg-naar-1100-punten-ingeslagen)
   > Aandelenbeleggers hebben last van fomo. Aan de inschattingen van de obligatiemarkt gaan ze helemaal voorbij.
-- [Zeeuws cruiseschip wordt wereldnieuws: vier vragen over het hantavirus](https://fd.nl/economie/1595931/zeeuws-cruiseschip-wordt-wereldnieuws-vier-vragen-over-het-hantavirus)
-  > Het nieuws over de uitbraak van het hantavirus op de MV Hondius leidde tot internationale ophef. Hoe gevaarlijk is het zeldzame virus waar drie...
-- [Opnieuw hack bij Canvas, hackers stellen nieuwe deadline](https://fd.nl/bedrijfsleven/1596057/opnieuw-hack-bij-canvas-hackers-stellen-nieuwe-deadline)
-  > Dat hackersgroep Shinyhunters de deadline verschuift, wijst erop dat Canvas vooralsnog weigert losgeld te betalen.
-- [ABN Amro mocht rekening vermogensbeheerder Libische staatsfonden niet opzeggen](https://fd.nl/bedrijfsleven/1596056/abn-amro-mocht-rekening-vermogensbeheerder-libische-staatsfonden-niet-opzeggen)
-  > De kortgedingrechter oordeelde dat de bankrelatie mocht worden opgeheven. Hoger beroep maakt dat oordeel ongedaan.
 
 ### Meest gelezen
 
