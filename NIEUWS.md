@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-05-2026 om 07:54*
+*Laatst bijgewerkt: 08-05-2026 om 09:27*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Drie hikers gedood door vulkaanuitbarsting op Indonesisch eiland](https://nos.nl/l/2613548)
-  > Op het Indonesische eiland Halmahera is een groep wandelaars overvallen door een uitbarsting van de vulkaan Dukono. Drie van de twintig toeristen...
-- [Jetten na aanslag op D66-kantoor: 'We laten ons niet intimideren'](https://nos.nl/l/2613542)
-  > Premier Jetten noemt het gooien van een vuurwerkbom door de brievenbus van het D66-partijkantoor "een kansloze actie". "Vrij kansloos als je denkt...
-- [Marsrover Curiosity na zes dagen bevrijd van steen aan boor](https://nos.nl/l/2613539)
-  > NASA is erin geslaagd Marsrover Curiosity na enkele dagen te bevrijden van een flinke steen die aan zijn boor was blijven hangen. Het was voor het...
-- [Meer dan 2500 honderdplussers in Nederland](https://nos.nl/l/2613536)
-  > Nederland telt ruim 2500 mensen die ouder zijn dan 100. Begin dit jaar waren het er 2551, heeft het Centraal Bureau voor de Statistiek berekend. Het...
-- [Britten vieren 100ste verjaardag van geliefd instituut: sir David Attenborough](https://nos.nl/l/2613534)
-  > Zijn stem is er een uit duizenden. Miljoenen tv-kijkers en natuurliefhebbers over de hele wereld zullen die onmiddellijk herkennen. De lichtelijk...
+- [OM haalt site met stiekem gefilmde misbruikbeelden Motherless offline](https://nos.nl/l/2613560)
+  > De pornosite Motherless, waar beelden van vrouwen te vinden waren die werden misbruikt of stiekem werden gefilmd, is gisteravond laat uit de lucht...
+- [Vrachtwagen en busje in brand bij tankstation langs A16](https://nos.nl/l/2613558)
+  > Bij een tankstation langs de A16 ter hoogte van Hendrik-Ido-Ambacht staan een vrachtwagen en een bestelbusje in brand, meldt de regionale omroep...
+- [Doden door grote brand op Mexicaans festival](https://nos.nl/l/2613557)
+  > Een brand in een Mexicaans pretpark heeft aan zeker vijf mensen het leven gekost. Het vuur brak uit in een grote evenementenhal tijdens een concert.
+...
+- [Starmer erkent slechte uitslag van zijn Labour, maar wil wel aanblijven](https://nos.nl/l/2613556)
+  > De Britse premier Starmer zegt verantwoordelijkheid te nemen voor de slechte uitslag van zijn Labour-partij. De sociaaldemocraten stevenen af op een...
+- [Nederlandse stewardess test negatief op hantavirus, wel meer Britse besmettingen](https://nos.nl/l/2613552)
+  > De Nederlandse KLM-stewardess die was opgenomen vanwege een mogelijke besmetting met het hantavirus, heeft het virus niet. Dat hebben tests...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Vulkaan op Indonesisch eiland barst uit: drie wandelaars omgekomen, tien anderen nog vermist](https://www.ad.nl/buitenland/vulkaan-op-indonesisch-eiland-barst-uit-drie-wandelaars-omgekomen-tien-anderen-nog-vermist~a29483b3/)
-  > Bij een uitbarsting van de vulkaan Dukono op het Indonesische eiland Halmahera zijn zeker drie wandelaars om het leven gekomen. Twee van de...
-- [Obama zenuwachtig, Queen smelt: zeven momenten die David Attenborough (100) onvergetelijk maken](https://www.ad.nl/buitenland/obama-zenuwachtig-queen-smelt-zeven-momenten-die-david-attenborough-100-onvergetelijk-maken~a8e4bdf8/)
-  > Heel Brits, altijd helemaal zichzelf, én voor de duvel niet bang. David Attenborough – ’s werelds beroemdste bioloog – wordt vandaag 100 jaar....
-- [Pijnlijk voor Nintendo en balen voor de fans: Switch 2 wordt (noodgedwongen) een stukje duurder](https://www.ad.nl/games/pijnlijk-voor-nintendo-en-balen-voor-de-fans-switch-2-wordt-noodgedwongen-een-stukje-duurder~a6137cf4/)
-  > Nintendo verhoogt de prijs van de Switch 2. De spelcomputer wordt in Europa zo’n 30 euro duurder en gaat daarmee 500 euro kosten. Tegelijkertijd...
-- [Hoogspanning bij WK-debutant Curaçao nu bondsbestuur rentree Dick Advocaat dwarsboomt](https://www.ad.nl/wk-voetbal/hoogspanning-bij-wk-debutant-curacao-nu-bondsbestuur-rentree-dick-advocaat-dwarsboomt~a2becb63/)
-  > Dick Advocaat keert vooralsnog niet terug als bondscoach bij Curaçao. Het bondsbestuur van de WK-debutant legt de hardop uitgesproken wens van de...
-- [KLM-stewardess test negatief op hantavirus na contact met besmette Nederlandse die later overleed](https://www.ad.nl/binnenland/klm-stewardess-test-negatief-op-hantavirus-na-contact-met-besmette-nederlandse-die-later-overleed~a3f98549/)
-  > Bij de stewardess van KLM die werd getest op het hantavirus is de uitslag van de test negatief. Dat bevestigt de Wereldgezondheidsorganisatie (WHO)....
+- [Gijzelingssituatie gemeld in bank in Duitse plaats Sinzig](https://www.ad.nl/buitenland/gijzelingssituatie-gemeld-in-bank-in-duitse-plaats-sinzig~ab7e1221/)
+  > Er is een gijzelingssituatie gemeld bij een bank in de Duitse plaats Sinzig, in de deelstaat Rijnland-Palts.
+- [Dichter bij magische grens, bijna kampioen en onenigheid met fans: Cristiano Ronaldo juicht én provoceert in Saoedi-Arabië](https://www.ad.nl/voetbal/dichter-bij-magische-grens-bijna-kampioen-en-onenigheid-met-fans-cristiano-ronaldo-juicht-en-provoceert-in-saoedi-arabie~aafccc57/)
+  > Cristiano Ronaldo heeft een fraaie mijlpaal bereikt in Saoedi-Arabië. De Portugese superster maakte donderdagavond tegen Al Shabab zijn honderdste...
+- [Wars van politiek gekonkel en voor de duvel niet bang: dit is Robert Eenhoorn, de gedroomde nieuwe baas van Feyenoord](https://www.ad.nl/voetbal/wars-van-politiek-gekonkel-en-voor-de-duvel-niet-bang-dit-is-robert-eenhoorn-de-gedroomde-nieuwe-baas-van-feyenoord~a0faca53/)
+  > Hard, compromisloos en niet bang om oorlogjes te voeren. Maar tegelijkertijd heeft hij óók een gevoelige, warme kant. Wie is Robert Eenhoorn (58), de...
+- [Speelronde 33 in eredivisie begint zondag om 16.45 uur en dat late tijdstip zorgt voor woede en onbegrip](https://www.ad.nl/voetbal/speelronde-33-in-eredivisie-begint-zondag-om-16-45-uur-en-dat-late-tijdstip-zorgt-voor-woede-en-onbegrip~a732751b/)
+  > De laatste twee speelrondes van de VriendenLoterij eredivisie beginnen traditioneel altijd om 14.30 uur. Daar komt zondag voor het eerst verandering...
+- [Verdachte van explosie bij partijkantoor D66 is man (37) zonder vaste woon- of verblijfplaats](https://www.ad.nl/den-haag/verdachte-van-explosie-bij-partijkantoor-d66-is-man-37-zonder-vaste-woon-of-verblijfplaats~a17995e1/)
+  > Krak, krak, krak. Voetgangers die vrijdag het partijkantoor van D66 in het Haagse centrum passeren, horen het glas onder hun schoenen breken. Het...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Athora sluit woekerspolisaffaire af na akkoord over compensatie](https://fd.nl/financiele-markten/1596010/athora-sluit-woekerspolisaffaire-af-na-akkoord-over-compensatie)
-  > Eerder al gingen de polishouders van Achmea, NN en ASR akkoord met de aangeboden compensatie.
-- [AI kan veel, maar zelfstandig beleggen is nog een brug te ver](https://fd.nl/financiele-markten/1595896/ai-kan-veel-maar-zelfstandig-beleggen-is-nog-een-brug-te-ver)
-  > Toezichthouder AFM zwengelt het debat over de implicaties van het gebruik van AI op financiële markten aan. Voor nu blijft een menselijke hand nodig...
-- [Toyota verwacht 22% lagere bedrijfswinst door Midden-Oosten en importheffingen](https://fd.nl/bedrijfsleven/1596008/toyota-verwacht-22-lagere-bedrijfswinst-door-midden-oosten-en-importheffingen)
-  > Vrijdag presenteerde autobouwer Toyota de resultaten van het afgelopen gebroken boekjaar. Ook bracht het verwachtingen voor het volgende boekjaar...
-- [Vrolijke botervloten en meubels van restjes](https://fd.nl/samenleving/1595785/vrolijke-botervloten-en-meubels-van-restjes)
-  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
-- [Orderboek Heijmans groeit met 40%, bouwer handhaaft winstdoel 2026](https://fd.nl/bedrijfsleven/1596006/orderboek-heijmans-groeit-met-40-bouwer-handhaaft-winstdoel-2026)
-  > Het Rosmalense bouwbedrijf maakt zich zorgen over het volle energienet en de achterblijvende projectfinanciering van beleggers.
+- [Sparen of beurs: Nederland kan financieel vaardiger](https://fd.nl/opinie/1595581/sparen-of-beurs-nederland-kan-financieel-vaardiger)
+  > Hebben Nederlanders voldoende buffer voor onzekere tijden? Gebruiken ze buffers handig voor een goede ‘oude dag’? De cijfers zeggen van niet.
+- [Privacywaakhond AP legt taxi-app Yango een boete op van €100 mln](https://fd.nl/bedrijfsleven/1595927/privacywaakhond-ap-legt-taxi-app-yango-een-boete-op-van-100-mln)
+  > Taxi-app wordt gebruikt in Finland en Noorwegen, maar het bedrijf is in Nederland gevestigd.  Persoonsgegevens van de klanten belandden op...
+- [Labour afgestraft in vroege Britse verkiezingsuitslagen, partij Farage domineert](https://fd.nl/politiek/1595924/labour-afgestraft-in-vroege-britse-verkiezingsuitslagen-partij-farage-domineert)
+  > De uitslagen van de Britse lokale verkiezingen druppelen in de loop van vrijdag binnen. De partij van premier Keir Starmer gaat zeer hard onderuit in...
+- [Commerzbank schrapt extra banen om avances UniCredit af te slaan](https://fd.nl/financiele-markten/1595926/commerzbank-schrapt-extra-banen-om-avances-unicredit-af-te-slaan)
+  > De Duitse bank schrapt tot 2030 nog eens 3000 voltijdbanen, bovenop de 3900 die ceo Bettina Orlopp begin vorig jaar al had aangekondigd.
+- [Russische tegoeden bij Euroclear leveren minder op door lagere rente](https://fd.nl/financiele-markten/1596012/russische-tegoeden-bij-euroclear-leveren-minder-op-door-lagere-rente)
+  > In juli gaat er weer een betaling van €1,4 mrd naar Oekraïne. In totaal maakte de effectenbewaarinstelling al €6,6 mrd van wat het verdiende aan...
 
 ### Meest gelezen
 
