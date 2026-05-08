@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-05-2026 om 09:27*
+*Laatst bijgewerkt: 08-05-2026 om 11:21*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [OM haalt site met stiekem gefilmde misbruikbeelden Motherless offline](https://nos.nl/l/2613560)
-  > De pornosite Motherless, waar beelden van vrouwen te vinden waren die werden misbruikt of stiekem werden gefilmd, is gisteravond laat uit de lucht...
-- [Vrachtwagen en busje in brand bij tankstation langs A16](https://nos.nl/l/2613558)
-  > Bij een tankstation langs de A16 ter hoogte van Hendrik-Ido-Ambacht staan een vrachtwagen en een bestelbusje in brand, meldt de regionale omroep...
-- [Doden door grote brand op Mexicaans festival](https://nos.nl/l/2613557)
-  > Een brand in een Mexicaans pretpark heeft aan zeker vijf mensen het leven gekost. Het vuur brak uit in een grote evenementenhal tijdens een concert.
-...
-- [Starmer erkent slechte uitslag van zijn Labour, maar wil wel aanblijven](https://nos.nl/l/2613556)
-  > De Britse premier Starmer zegt verantwoordelijkheid te nemen voor de slechte uitslag van zijn Labour-partij. De sociaaldemocraten stevenen af op een...
-- [Nederlandse stewardess test negatief op hantavirus, wel meer Britse besmettingen](https://nos.nl/l/2613552)
-  > De Nederlandse KLM-stewardess die was opgenomen vanwege een mogelijke besmetting met het hantavirus, heeft het virus niet. Dat hebben tests...
+- [Verouderd beton in kelder Vitens leidde tot kookadviezen regio Amersfoort](https://nos.nl/l/2613576)
+  > De verontreiniging van het drinkwater in de regio Amersfoort rond de jaarwisseling is ontstaan door schade aan het beton van een drinkwaterkelder....
+- [Door oorlog vertraagde kunst na twee maanden aangekomen Drents Museum](https://nos.nl/l/2613575)
+  > De kunstwerken van Indiase kunstenaar Amrita Sher-Gil zijn na twee maanden wachten aangekomen in het Drents Museum. Het transport van de stukken werd...
+- [Gijzeling in Duitse bank, vermoedelijk meerdere mensen vastgehouden](https://nos.nl/l/2613569)
+  > In de Duitse plaats Sinzig, zo'n 25 kilometer ten zuiden van Bonn, is in een bank een gijzeling gaande. Volgens de regionale omroep SWR kreeg de...
+- [Dodental vuurwerkramp China loopt op naar 37](https://nos.nl/l/2613567)
+  > Het dodental van de explosie maandag in een vuurwerkfabriek in China is opgelopen naar 37. De dag na de ramp spraken staatsmedia nog over 26 doden....
+- [Boete van 100 miljoen euro voor taxi-app die gebruikersgegevens in Rusland opsloeg](https://nos.nl/l/2613566)
+  > Het bedrijf achter taxi-app Yango krijgt een boete van 100 miljoen euro omdat het data van bestuurders en klanten op Russische servers heeft bewaard....
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Gijzelingssituatie gemeld in bank in Duitse plaats Sinzig](https://www.ad.nl/buitenland/gijzelingssituatie-gemeld-in-bank-in-duitse-plaats-sinzig~ab7e1221/)
-  > Er is een gijzelingssituatie gemeld bij een bank in de Duitse plaats Sinzig, in de deelstaat Rijnland-Palts.
-- [Dichter bij magische grens, bijna kampioen en onenigheid met fans: Cristiano Ronaldo juicht én provoceert in Saoedi-Arabië](https://www.ad.nl/voetbal/dichter-bij-magische-grens-bijna-kampioen-en-onenigheid-met-fans-cristiano-ronaldo-juicht-en-provoceert-in-saoedi-arabie~aafccc57/)
-  > Cristiano Ronaldo heeft een fraaie mijlpaal bereikt in Saoedi-Arabië. De Portugese superster maakte donderdagavond tegen Al Shabab zijn honderdste...
-- [Wars van politiek gekonkel en voor de duvel niet bang: dit is Robert Eenhoorn, de gedroomde nieuwe baas van Feyenoord](https://www.ad.nl/voetbal/wars-van-politiek-gekonkel-en-voor-de-duvel-niet-bang-dit-is-robert-eenhoorn-de-gedroomde-nieuwe-baas-van-feyenoord~a0faca53/)
-  > Hard, compromisloos en niet bang om oorlogjes te voeren. Maar tegelijkertijd heeft hij óók een gevoelige, warme kant. Wie is Robert Eenhoorn (58), de...
-- [Speelronde 33 in eredivisie begint zondag om 16.45 uur en dat late tijdstip zorgt voor woede en onbegrip](https://www.ad.nl/voetbal/speelronde-33-in-eredivisie-begint-zondag-om-16-45-uur-en-dat-late-tijdstip-zorgt-voor-woede-en-onbegrip~a732751b/)
-  > De laatste twee speelrondes van de VriendenLoterij eredivisie beginnen traditioneel altijd om 14.30 uur. Daar komt zondag voor het eerst verandering...
-- [Verdachte van explosie bij partijkantoor D66 is man (37) zonder vaste woon- of verblijfplaats](https://www.ad.nl/den-haag/verdachte-van-explosie-bij-partijkantoor-d66-is-man-37-zonder-vaste-woon-of-verblijfplaats~a17995e1/)
-  > Krak, krak, krak. Voetgangers die vrijdag het partijkantoor van D66 in het Haagse centrum passeren, horen het glas onder hun schoenen breken. Het...
+- [OM haalt pornosite met video’s van seks met bewustelo­ze vrouwen offline](https://www.ad.nl/binnenland/om-haalt-pornosite-met-videos-van-seks-met-bewusteloze-vrouwen-offline~a5c75d0c/)
+  > De pornowebsite Motherless is donderdagavond offline gehaald door de Nederlandse autoriteiten. Het Openbaar Ministerie bevestigt vrijdag...
+- [Dit is de beste vaatwasser en je kunt hem zelfs op afstand bedienen](https://www.ad.nl/wonen/dit-is-de-beste-vaatwasser-en-je-kunt-hem-zelfs-op-afstand-bedienen~a3ee76f1/)
+  > Een vaatwasser kopen is niet simpel: ze lijken op elkaar, maar kunnen ook behoorlijk verschillen. De Consumentenbond testte veertig vrijstaande...
+- [André Hazes krijgt reallifesoap op RTL 5 en Videoland, ook vriendin Noa te zien: ‘Nieuwe fase’](https://www.ad.nl/show/andre-hazes-krijgt-reallifesoap-op-rtl-5-en-videoland-ook-vriendin-noa-te-zien-nieuwe-fase~aca6d059/)
+  > André Hazes (32) krijgt zijn eigen realityserie op RTL 5 en Videoland, maakt RTL vrijdag bekend. In het programma komen ook zijn zoontje Dré en...
+- [Schrijver Benzakour bevrijdde gekooide vogeltjes op Bali: ‘Bankrekening werd leger, maar hart werd rijker’](https://www.ad.nl/binnenland/schrijver-benzakour-bevrijdde-gekooide-vogeltjes-op-bali-bankrekening-werd-leger-maar-hart-werd-rijker~a8c66f4c/)
+  > Na een bijzondere vriendschap met een winterkoninkje in het park, besloot schrijver Mohammed Benzakour gekooide vogeltjes te gaan bevrijden in...
+- [Star Wars-ster Mark Hamill biedt excuses aan na delen AI-foto van dode Donald Trump](https://www.ad.nl/show/star-wars-ster-mark-hamill-biedt-excuses-aan-na-delen-ai-foto-van-dode-donald-trump~a535efc8/)
+  > Mark Hamill heeft zijn excuses aangeboden voor een door AI gegenereerde foto van een overleden president Donald Trump die hij op sociale media...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Sparen of beurs: Nederland kan financieel vaardiger](https://fd.nl/opinie/1595581/sparen-of-beurs-nederland-kan-financieel-vaardiger)
-  > Hebben Nederlanders voldoende buffer voor onzekere tijden? Gebruiken ze buffers handig voor een goede ‘oude dag’? De cijfers zeggen van niet.
-- [Privacywaakhond AP legt taxi-app Yango een boete op van €100 mln](https://fd.nl/bedrijfsleven/1595927/privacywaakhond-ap-legt-taxi-app-yango-een-boete-op-van-100-mln)
-  > Taxi-app wordt gebruikt in Finland en Noorwegen, maar het bedrijf is in Nederland gevestigd.  Persoonsgegevens van de klanten belandden op...
-- [Labour afgestraft in vroege Britse verkiezingsuitslagen, partij Farage domineert](https://fd.nl/politiek/1595924/labour-afgestraft-in-vroege-britse-verkiezingsuitslagen-partij-farage-domineert)
-  > De uitslagen van de Britse lokale verkiezingen druppelen in de loop van vrijdag binnen. De partij van premier Keir Starmer gaat zeer hard onderuit in...
-- [Commerzbank schrapt extra banen om avances UniCredit af te slaan](https://fd.nl/financiele-markten/1595926/commerzbank-schrapt-extra-banen-om-avances-unicredit-af-te-slaan)
-  > De Duitse bank schrapt tot 2030 nog eens 3000 voltijdbanen, bovenop de 3900 die ceo Bettina Orlopp begin vorig jaar al had aangekondigd.
-- [Russische tegoeden bij Euroclear leveren minder op door lagere rente](https://fd.nl/financiele-markten/1596012/russische-tegoeden-bij-euroclear-leveren-minder-op-door-lagere-rente)
-  > In juli gaat er weer een betaling van €1,4 mrd naar Oekraïne. In totaal maakte de effectenbewaarinstelling al €6,6 mrd van wat het verdiende aan...
+- [Anthropic jaagt op waarde van $900 mrd en kan OpenAI voorbijstreven](https://fd.nl/bedrijfsleven/1596048/anthropic-jaagt-op-waarde-van-900mrd-en-kan-openai-voorbijstreven)
+  > Deze zomer zou het Amerikaanse AI-bedrijf $50 mrd willen ophalen. De financieringsronde is bedoeld om de snelle groei van AI-tool Claude te...
+- [Ook nieuwe heffingen VS sneuvelen bij de rechter](https://fd.nl/economie/1596047/ook-nieuwe-heffingen-vs-sneuvelen-bij-de-rechter)
+  > Met de nieuwe uitspraak schrapt de rechter alleen de heffingen voor de staat Washington en twee private klagers: speelgoedbedrijf Basic Fun! en...
+- [Snelgroeiende Waalse drogisterijketen bindt de strijd aan met Kruidvat en Etos](https://fd.nl/bedrijfsleven/1596046/snelgroeiende-waalse-drogisterijketen-bindt-de-strijd-aan-met-kruidvat-en-etos)
+  > Drogisterijketen Medi-Market uit België wil de komende vijf jaar 80 winkels in Nederland openen. Na een eerste winkel in Maastricht opende vrijdag...
+- [Oproep 27 Europarlementariërs aan EU-lidstaten: maak vaart met een Europese defensie-unie](https://fd.nl/opinie/1595733/defensie-unie-is-hard-nodig-maar-eu-lidstaten-trappen-op-de-rem)
+  > Oorlog en instabiliteit vereisen een grotere autonomie op defensiegebied. In veel EU-lidstaten prevaleert nog het nationale eigenbelang en dat...
+- [Nederland maakt ruimte voor defensie](https://fd.nl/samenleving/1594828/nederland-maakt-ruimte-voor-defensie)
+  > De Europese Unie wil haar verdediging meer zelf ter hand nemen, nu de Verenigde Staten onder Trump een onzekere bondgenoot zijn. Dat betekent ook...
 
 ### Meest gelezen
 
