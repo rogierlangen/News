@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-05-2026 om 17:23*
+*Laatst bijgewerkt: 08-05-2026 om 19:24*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Gespannen start Biënnale van Venetië met protest tegen Israël en Rusland](https://nos.nl/l/2613627)
+- [Nederlandse opvarenden Hondius gaan zes weken in thuisquarantaine](https://nos.nl/l/2613635)
+  > Nederlanders aan boord van het cruiseschip Hondius gaan zes weken in thuisquarantaine. Dat schrijven minister Hermans van Volksgezondheid en minister...
+- [Zwaluwnesten in Leeuwarden met de grond gelijk gemaakt, gemeente zegt sorry](https://nos.nl/l/2613631)
+  > In Leeuwarden is per ongeluk een zandheuvel met nesten van oeverzwaluwen met de grond gelijkgemaakt. Leeuwarden neemt de verantwoordelijkheid op...
+- [Op Trumps verzoek driedaags bestand tussen Oekraïne en Rusland](https://nos.nl/l/2613630)
+  > De Amerikaanse president Trump zegt dat er op zijn verzoek een tijdelijk staakt-het-vuren komt tussen Rusland en Oekraïne. Dat geldt morgen,...
+- [Schrijver en strijdbaar zieke Karin Spaink (68) overleden](https://nos.nl/l/2613629)
+  > "Als alles volgens plan is verlopen, ben ik vanochtend overleden." Met die woorden kondigt journalist en activist Karin Spaink haar eigen dood aan,...
+- [Gesloten paviljoens op gespannen Biënnale van Venetië vol protest](https://nos.nl/l/2613627)
   > De Biënnale van Venetië, 's werelds oudste en belangrijkste tentoonstelling voor hedendaagse kunst, beleeft dit jaar een zeer gespannen editie. Felle...
-- [Ze is 102 en eet elke dag komkommer: waarom sommige mensen gezond oud worden](https://nos.nl/l/2613625)
-  > "Ik denk een rustig leven." Dat is de verklaring van Eva Meis voor het bereiken van de respectabele leeftijd van 102 jaar. Een volgende verjaardag...
-- [Wolf in Zuid-Holland waargenomen, als laatste provincie](https://nos.nl/l/2613621)
-  > Na alle andere provincies in Nederland is nu ook in Zuid-Holland een wolf gezien. De provincie meldt dat de wolf op 17 april werd waargenomen in de...
-- [Kabinet compenseert vuurwerkhandelaren voor 100 miljoen euro](https://nos.nl/l/2613612)
-  > Het kabinet trekt in totaal 100 miljoen euro uit voor de compensatie van ondernemers in de vuurwerkbranche, die te lijden zal krijgen van het...
-- [Prijs Switch 2 stijgt, waarschijnlijk door tekort aan computerchips](https://nos.nl/l/2613608)
-  > De prijs van de Switch 2, de spelcomputer die videogamebedrijf Nintendo vorig jaar uitbracht, wordt wereldwijd verhoogd. Vanaf 1 september zal de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van blessure herstelde Wout Weghorst en Owen Wijndal inzetbaar voor Ajax tegen FC Utrecht](https://www.ad.nl/voetbal/van-blessure-herstelde-wout-weghorst-en-owen-wijndal-inzetbaar-voor-ajax-tegen-fc-utrecht~af5e7dd6/)
-  > Wout Weghorst en Owen Wijndal zijn hersteld van hun blessures en zijn zondag beschikbaar voor Ajax in het duel met FC Utrecht. Dat zegt trainer Óscar...
-- [Robot vervangt autoverkoper: Chinees merk start proef in Nederland](https://www.ad.nl/auto/robot-vervangt-autoverkoper-chinees-merk-start-proef-in-nederland~af535af9/)
-  > Bij sommige Nederlandse autodealers staat straks geen verkoper meer klaar om klanten te ontvangen, maar een humanoïde (mensvormige) robot. Automerk...
-- [Blauw pak, brede lach en een gevaarlijke Brit: Gradus Kraus treft bij Boxing Gladiators eveneens ongeslagen tegenstander](https://www.ad.nl/vechtsport/blauw-pak-brede-lach-en-een-gevaarlijke-brit-gradus-kraus-treft-bij-boxing-gladiators-eveneens-ongeslagen-tegenstander~aeb299a9/)
-  > Eind januari pakte Gradus Kraus zijn tiende zege, waardoor hij ongeslagen bleef. De bokser uit Oss gaf na afloop te kennen dat de lat voor zijn...
-- [Speedboten, moederschepen en duizenden kilo’s coke: dit is de nieuwe smokkelroute naar Europa](https://www.ad.nl/buitenland/speedboten-moederschepen-en-duizenden-kilos-coke-dit-is-de-nieuwe-smokkelroute-naar-europa~ab9f3a46/)
-  > De grootste cokevangst ooit, die werd bewaakt door zwaarbewapende Nederlanders, zette deze week de schijnwerpers op een nieuwe smokkelmethode. In...
-- [Drempel voor politiek geweld ligt griezelig laag](https://www.ad.nl/commentaar/drempel-voor-politiek-geweld-ligt-griezelig-laag~ad58c067/)
-  > En wéér was het raak: voor de tweede keer in negen maanden is het partijbureau van D66 doelwit geworden van een aanval. Zelfs als dit het werk is...
+- [Ajax-talent Jorthy Mokio verkiest Congolees elftal boven België: ‘Beslissing van het hart’](https://www.ad.nl/voetbal/ajax-talent-jorthy-mokio-verkiest-congolees-elftal-boven-belgie-beslissing-van-het-hart~a60783cf/)
+  > Jorthy Mokio (18) heeft de knoop doorgehakt: hij gaat voor de Democratische Republiek Congo spelen en niet voor België. ‘Ik ben Congolees in hart en...
+- [Talpa vindt invulling voor contract Yvonne Coldeweijer: roddelkoningin krijgt nieuwe rubriek op platform Kijk](https://www.ad.nl/show/talpa-vindt-invulling-voor-contract-yvonne-coldeweijer-roddelkoningin-krijgt-nieuwe-rubriek-op-platform-kijk~a42026e0/)
+  > Yvonne Coldeweijer gaat video’s maken voor het videoplatform van Talpa, Kijk. De rubriek heet Colder Cast. Daarmee wordt duidelijk dat de...
+- [Na zestig jaar stopt de FIFA de samenwerking met Panini, de reden kunt u wel raden](https://www.ad.nl/voetbal/na-zestig-jaar-stopt-de-fifa-de-samenwerking-met-panini-de-reden-kunt-u-wel-raden~a808c847/)
+  > Columnist Sjoerd Mossou ziet hoe Gianni Infantino het WK heeft omgeturnd tot een soort ‘hoogmis van de hypercommercie’, waarbij voetbalsupporters...
+- [Nederlandse opvarenden Hondius-cruise gaan zes weken in thuisquarantaine](https://www.ad.nl/binnenland/nederlandse-opvarenden-hondius-cruise-gaan-zes-weken-in-thuisquarantaine~a3f98549/)
+  > De Nederlandse opvarenden van het cruiseschip Hondius gaan nadat zij gerepatrieerd zijn zes weken in thuisquarantaine. Het schip is onderweg naar...
+- [Leendert de Ridder (Mees Kees): ‘Ik voel me nogal een boomer, want ik zit nog op Facebook](https://www.ad.nl/mezza/leendert-de-ridder-mees-kees-ik-voel-me-nogal-een-boomer-want-ik-zit-nog-op-facebook~a36f1c77/)
+  > De van zijn rol als Mees Kees bekende acteur en presentator zou er nét even wat droger willen uitzien, kan helaas niet hardlopen vanwege zijn...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Trump kondigt gevechtspauze aan tussen Rusland en Oekraïne](https://fd.nl/politiek/1595935/trump-kondigt-gevechtspauze-aan-tussen-rusland-en-oekraine)
+  > Staakt-het-vuren moet ingaan tussen 9 en 11 mei.
+- [‘Intel en Apple gaan samen chips produceren’](https://fd.nl/bedrijfsleven/1595934/intel-en-apple-gaan-samen-chips-produceren)
+  > Het is volgens The Wall Street Journal nog onduidelijk voor welke Apple-producten Intel chips zou gaan maken.
+- [De nieuwe industriepolitiek is een collectieve fabriek](https://fd.nl/opinie/1596044/de-nieuwe-industriepolitiek-is-een-collectieve-fabriek)
+  > De voorzet voor een nieuwe industriepolitiek is gegeven. Nu moet het kabinet de bal nog inkoppen.
+- [Moderna werkt aan vaccin tegen hantavirus](https://fd.nl/bedrijfsleven/1596078/moderna-werkt-aan-vaccin-tegen-hantavirus)
+  > Onderzoek van Amerikaanse farmaceut vindt plaats in weerwil van het feit dat experts menen dat de gevaren van het virus gering zijn.
 - [Hongaarse fraudeurs zweten plots peentjes](https://fd.nl/politiek/1596009/hongaarse-fraudeurs-zweten-plots-peentjes)
   > Als premier Péter Magyar zijn belofte waarmaakt en Hongarije doet toetreden tot het Europees Openbaar Ministerie, kunnen fraudezaken van jaren...
-- [Kabinet compenseert ondernemers in vuurwerkbranche voor €100 mln](https://fd.nl/bedrijfsleven/1596077/kabinet-compenseert-ondernemers-in-vuurwerkbranche-voor-100-mln)
-  > Met de aangekondigde compensatie is aan de laatste voorwaarde voldaan voor het instellen van een vuurwerkverbod. Dat zou kunnen betekenen dat het...
-- [De lonkende lokkertjes van de miljardenmachine van Main](https://fd.nl/financiele-markten/1596045/de-lonkende-lokkertjes-van-de-miljardenmachine-van-main)
-  > Private-equityfirma Main Capital haalt miljarden op voor nieuwe investeringen in softwarebedrijven. Maar de goudgerande rendementen uit het verleden...
-- [Deze handelsplatforms gaan door het dak dankzij verliezende beleggers](https://fd.nl/financiele-markten/1596058/deze-handelsplatformsgaan-door-het-dak-dankzij-verliezende-beleggers)
-  > Cfd-brokers als Plus500 en IG Markets blijven maar binnenlopen dankzij overmoedige speculanten. Slimmeriken beleggen dus niet in cfd’s, maar in de...
-- [Technisch gezien is AEX de weg naar 1100 punten ingeslagen](https://fd.nl/financiele-markten/1596054/technisch-gezien-is-aex-de-weg-naar-1100-punten-ingeslagen)
-  > Aandelenbeleggers hebben last van fomo. Aan de inschattingen van de obligatiemarkt gaan ze helemaal voorbij.
 
 ### Meest gelezen
 
