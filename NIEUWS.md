@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-05-2026 om 09:23*
+*Laatst bijgewerkt: 09-05-2026 om 11:00*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Premier Jetten naar Caribisch Nederland voor eerste werkbezoek](https://nos.nl/l/2613677)
+- [Amsterdams festival met 20.000 bezoekers op allerlaatste moment afgelast, tent afgekeurd](https://nos.nl/l/2613683)
+  > Housefestival Music On, dat dit weekend zou plaatsvinden in Amsterdam, is kort voor de start afgelast. De organisatie van het festival meldt op...
+- [Oefenen voor als de stroom uitvalt, 'dan red je het niet met zes flessen water'](https://nos.nl/l/2613682)
+  > Net als in veel andere steden en dorpen oefent Hilversum in een wijkcentrum met een noodscenario voor het geval van een crisis of groot ongeluk,...
+- [Opnieuw papierfabriek in Eerbeek failliet verklaard, maar 'hoop nog niet vervlogen'](https://nos.nl/l/2613680)
+  > We hebben al verschillende industrieën zien verdwijnen in Nederland. De auto-industrie is er niet meer en ook de textielindustrie is ten onder...
+- [Nederlandse toerist brengt mazelen naar Panama, sinds 1995 geen lokale gevallen](https://nos.nl/l/2613679)
+  > Twee toeristen, onder wie een 21-jarige Nederlander, zijn naar Panama gereisd terwijl ze de mazelen hadden. Daarover schrijven Panamese media. De...
+- [Premier Jetten naar Caribische eilanden voor eerste werkbezoek](https://nos.nl/l/2613677)
   > Minister-president Jetten is in het Caribisch gebied voor een werkbezoek. Tot en met 14 mei zal hij Sint-Maarten, Saba, Sint-Eustatius, Bonaire,...
-- [Dode (37) bij woningbrand in Geldrop](https://nos.nl/l/2613676)
-  > Bij een woningbrand in Geldrop is vanochtend de 37-jarige bewoner om het leven gekomen.
-        Omwonenden belden vanochtend de brandweer toen zij...
-- [VS blijft doorgaan met beschieten van drugsboten](https://nos.nl/l/2613673)
-  > Het Amerikaanse leger heeft in de Stille Oceaan opnieuw een boot gebombardeerd omdat die drugs zou vervoeren. Van de drie opvarenden zijn daarbij...
-- [Vier mannen in VS veroordeeld voor moord op Haïtiaanse president](https://nos.nl/l/2613672)
-  > In de Amerikaanse staat Florida zijn vier mannen veroordeeld voor hun rol bij de moord op de Haïtiaanse president Jovenel Moïse. In de nacht van 7...
-- [Ziggo-klanten krijgen live eredivisievoetbal in basispakket, prijs gaat omhoog](https://nos.nl/l/2613670)
-  > Vanaf komend seizoen zijn voor klanten van Ziggo alle voetbalwedstrijden in de eredivisie live te zien, zonder dat daarvoor een extra pakket nodig...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tegenvaller voor The Voice of Holland: minst bekeken finale ooit](https://www.ad.nl/show/tegenvaller-voor-the-voice-of-holland-minst-bekeken-finale-ooit~ac01ca7a/)
-  > De finale van The Voice of Holland is vrijdagavond op RTL 4 bekeken door bijna 1,3 miljoen mensen. Dat meldt het Nationaal Media Onderzoek (NMO). De...
-- [Tientallen doden bij aanvallen op Zuid-Libanon, Israël gelast evacuatie negen dorpen](https://www.ad.nl/buitenland/tientallen-doden-bij-aanvallen-op-zuid-libanon-israel-gelast-evacuatie-negen-dorpen~ac528ac3/)
-  > Bij grootschalige Israëlische aanvallen in Zuid-Libanon zijn vrijdag zeker 31 mensen omgekomen, onder wie een hulpverlener. Dat meldt het Libanese...
-- [Marleen (52) is al om 07.15 uur op kantoor om een plekje te veroveren: ‘Behoefte aan een eigen bureau’](https://www.ad.nl/economie/marleen-52-is-al-om-07-15-uur-op-kantoor-om-een-plekje-te-veroveren-behoefte-aan-een-eigen-bureau~ac1df908/)
-  > Een prachtig nieuw kantoorpand, maar het aantal werkplekken houdt niet over. Marleen (52) raakt er gestrest van, vertelt ze aan Anne-Marije Buckens,...
-- [Southampton door Middlesbrough beticht van spionage voor promotieduel, bond start onderzoek](https://www.ad.nl/voetbal/southampton-door-middlesbrough-beticht-van-spionage-voor-promotieduel-bond-start-onderzoek~a0df65e3/)
-  > Southampton wordt beticht van spioneren bij een besloten training van Middlesbrough. De overkoepelende English Football League (EFL) is een onderzoek...
-- [Messi wil Neymar zien op WK, FIFA pakt uit met drie openingsceremonies met popsterren als Katy Perry en J Balvin](https://www.ad.nl/wk-voetbal/messi-wil-neymar-zien-op-wk-fifa-pakt-uit-met-drie-openingsceremonies-met-popsterren-als-katy-perry-en-j-balvin~a61805da/)
-  > Over minder dan vijftig dagen begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste...
+- [Liverpool met vier Nederlanders aan de aftrap, Hato start bij Chelsea](https://www.ad.nl/voetbal/liverpool-met-vier-nederlanders-aan-de-aftrap-hato-start-bij-chelsea~aa707424/)
+  > Het Liverpool van Arne Slot neemt het vandaag op Anfield op tegen het kwakkelende Chelsea. Of The Reds vanmiddag weer drie punten mogen bijschrijven,...
+- [Tchouaméni gewoon in wedstrijdselectie Real na knokpartij met Valverde: ‘Niet publiekelijk aan schandpaal nagelen’](https://www.ad.nl/voetbal/tchouameni-gewoon-in-wedstrijdselectie-real-na-knokpartij-met-valverde-niet-publiekelijk-aan-schandpaal-nagelen~ae675765/)
+  > Aurélien Tchouaméni zit gewoon bij de wedstrijdselectie van Real Madrid voor de uitwedstrijd tegen FC Barcelona, ondanks zijn aanvaring met...
+- [Niemand wil meer tegen de ‘vrouwelijke Verhoeven’ kickboksen, dus stapt Marieke (31) vandaag ongewapend de boksring in](https://www.ad.nl/vechtsport/niemand-wil-meer-tegen-de-vrouwelijke-verhoeven-kickboksen-dus-stapt-marieke-31-vandaag-ongewapend-de-boksring-in~a366a6da/)
+  > Bijna niemand wil meer tegen haar kickboksen. Na zes jaar is Marieke Calis (31) nog altijd ongeslagen in het profcircuit. En dus stapt de...
+- ['Geheim' plan en waarschuwing voor zwaar weer: buitenlandse media volgen virusschip op de voet](https://www.ad.nl/buitenland/geheim-plan-en-waarschuwing-voor-zwaar-weer-buitenlandse-media-volgen-virusschip-op-de-voet~a08e48d9/)
+  > De uitbraak van het hantavirus op het Nederlandse cruiseschip MV Hondius is ook voer voor gesprek bij buitenlandse media. Niet alleen omdat het virus...
+- [Bekijk en volg vanavond live op deze site de gevechten van Boxing Gladiators: dit is het programma](https://www.ad.nl/vechtsport/bekijk-en-volg-vanavond-live-op-deze-site-de-gevechten-van-boxing-gladiators-dit-is-het-programma~a88c00f6/)
+  > Vanavond vindt de tweede editie van Boxing Gladiators plaats in Rotterdam, te zien via deze site en Videoland. Na een uitverkochte eerste editie in...
 
 ### Meest gelezen
 
@@ -47,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [‘Nederland strijdt met België om het binnenhalen van rakettenproductie’](https://fd.nl/economie/1595941/nederland-aast-net-als-belgie-op-het-binnenhalen-van-rakettenproductie)
+  > Volgens de Belgische zakenkrant De Tijd hebben zowel Nederland als België goede papieren om een productielijn van het Amerikaanse defensiebedrijf...
 - [China exporteert weer meer naar de VS, zo blijkt vlak voor ontmoeting Trump en Xi](https://fd.nl/economie/1596104/china-exporteert-weer-meer-naar-de-vs-zo-blijkt-vlak-voor-ontmoeting-trump-en-xi)
   > Het Chinese exportoverschot naar de VS is in april toegenomen ten opzichte van een jaar geleden. Volgende week spreken president Trump en president...
 - [De hand van de knip als voorwaarde voor verdere Europese integratie](https://fd.nl/opinie/1595735/de-hand-van-de-knip-als-voorwaarde-voor-verdere-europese-integratie)
@@ -55,8 +56,6 @@
   > Drie perioden van snelle welvaartsgroei liggen achter ons. Vandaag de dag is er nog wel sprake van progressie, schrijft FD-columnist Mathijs Bouman,...
 - [Het geheim van kwantum-wereldspelers in Delft: ‘Iedereen gunt elkaar succes’](https://fd.nl/tech-en-innovatie/1596014/het-geheim-van-kwantum-wereldspelers-in-delft-iedereen-gunt-elkaar-succes)
   > Voor elk onderdeel van de kwantumcomputer kent Delft een potentiële marktleider. De bedrijven haalden vorige week recordinvesteringen op. De...
-- [‘Wij willen niet roepen dat investeren in defensie belangrijk is en het vervolgens niet doen’](https://fd.nl/samenleving/1596013/wij-willen-niet-roepen-dat-investeren-in-defensie-belangrijk-is-en-het-vervolgens-niet-doen)
-  > Leden van de koninklijke familie in camouflagekleding, de financiële wereld die zijn bedenkingen steeds meer laat varen en wachtrijen om reservist te...
 
 ### Meest gelezen
 
