@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-05-2026 om 20:50*
+*Laatst bijgewerkt: 09-05-2026 om 21:51*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE | Tony Jas verslaat taaie Pool, zometeen Gradus Kraus aan de beurt bij hoofdgevecht Boxing Gladiators](https://www.ad.nl/vechtsport/live-tony-jas-verslaat-taaie-pool-zometeen-gradus-kraus-aan-de-beurt-bij-hoofdgevecht-boxing-gladiators~a3029158/)
-  > Boksrevelatie Gradus Kraus hoopt vanavond voor de elfde keer op rij zijn partij om te zetten in winst. Dat doet hij in Topsportcentrum Rotterdam...
-- [Derby van Praag loopt compleet uit de hand: fans van Slavia Praag rennen met fakkels richting het uitvak](https://www.ad.nl/voetbal/derby-van-praag-loopt-compleet-uit-de-hand-fans-van-slavia-praag-rennen-met-fakkels-richting-het-uitvak~ac3d4da8/)
+- [Manchester City wint, Pep Guardiola hoopt op misstap Arsenal: ‘Come on you Irons!’](https://www.ad.nl/voetbal/manchester-city-wint-pep-guardiola-hoopt-op-misstap-arsenal-come-on-you-irons~ab72134e/)
+  > Manchester City heeft zaterdagavond de thuiswedstrijd tegen Brentford met 3-0 gewonnen. Jérémy Doku, Erling Haaland en invaller Omar Marmoush...
+- [Wessel Nijman neemt goede vorm niet mee naar Graz en wordt afgedroogd, ook slechte dag voor Gian van Veen](https://www.ad.nl/darts/wessel-nijman-neemt-goede-vorm-niet-mee-naar-graz-en-wordt-afgedroogd-ook-slechte-dag-voor-gian-van-veen~a8880ca7/)
+  > Wessel Nijman, de man die dit jaar zo goed in vorm is op de vloertoernooien, is op de Austrian Darts Open afgedroogd door Niko Springer. De Duitser...
+- [Gradus Kraus geeft Engelse opponent geen schijn van kans in hoofdgevecht Boxing Gladiators in Rotterdam](https://www.ad.nl/vechtsport/gradus-kraus-geeft-engelse-opponent-geen-schijn-van-kans-in-hoofdgevecht-boxing-gladiators-in-rotterdam~a3029158/)
+  > Gradus Kraus (24) blijft doordenderen. De boksrevelatie uit Oss trakteerde zo’n 2000 Nederlandse fans in het Topsportcentrum in Rotterdam wéér op een...
+- [Planning Hondius bekend: cruiseschip zondagochtend 5.30 uur bij Tenerife, daarna naar Rotterdam](https://www.ad.nl/binnenland/planning-hondius-bekend-cruiseschip-zondagochtend-5-30-uur-bij-tenerife-daarna-naar-rotterdam~a3f98549/)
+  > Het Nederlandse cruiseschip MV Hondius komt zondagochtend aan bij Tenerife. Het gaat voor anker in de buurt van Granadilla de Abona, aan de zuidkant...
+- [Slavia Praag bijna kampioen, maar dan valt harde kern spelers en fans van Sparta Praag aan: ‘Grote schande’](https://www.ad.nl/voetbal/slavia-praag-bijna-kampioen-maar-dan-valt-harde-kern-spelers-en-fans-van-sparta-praag-aan-grote-schande~ac3d4da8/)
   > De stadsderby tussen de Tsjechische rivalen Slavia Praag en Sparta Praag is zaterdagavond compleet uit de hand gelopen. In de 97ste minuut renden...
-- [Poetin bereid om Zelensky te ontmoeten buiten Rusland of Oekraïne: ‘Maar alleen bij vredesakkoord’](https://www.ad.nl/buitenland/poetin-bereid-om-zelensky-te-ontmoeten-buiten-rusland-of-oekraine-maar-alleen-bij-vredesakkoord~adfb97be/)
-  > De Russische president Vladimir Poetin is bereid om de Oekraïense president Volodymyr Zelensky te ontmoeten in een derde land. Volgens Poetin moet...
-- [ME grijpt in bij protest tegen noodopvang in Apeldoorn, drie aanhoudingen](https://www.ad.nl/binnenland/me-grijpt-in-bij-protest-tegen-noodopvang-in-apeldoorn-drie-aanhoudingen~ab44b26d/)
-  > Bij een nieuwe demonstratie tegen de komst van een noodopvang voor asielzoekers in Apeldoorn zijn vanavond minstens drie mensen opgepakt. Het protest...
-- [Almere City mag met Willem II gaan strijden om finaleticket, De Graafschap blijft in KKD](https://www.ad.nl/voetbal/almere-city-mag-met-willem-ii-gaan-strijden-om-finaleticket-de-graafschap-blijft-in-kkd~aa600691/)
-  > Almere City is de volgende tegenstander van Willem II in de play-offs. De ploeg van Jeroen Rijsdijk had op De Vijverberg genoeg aan een gelijkspel...
 
 ### Meest gelezen
 
