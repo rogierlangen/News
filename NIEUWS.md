@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-05-2026 om 22:51*
+*Laatst bijgewerkt: 09-05-2026 om 23:53*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Twee zwaargewonden na botsing tijdens wingsuit-sprong in Oostenrijk](https://nos.nl/l/2613753)
+  > Bij een wingsuit-sprong uit een vliegtuig in Oostenrijk zijn twee vrouwen ernstig gewond geraakt. Ze botsten in de lucht op elkaar en stortten neer....
 - [Doden door Israëlische aanvallen in Zuid-Libanon en bij hoofdstad Beiroet](https://nos.nl/l/2613745)
   > In Libanon zijn door Israëlische luchtaanvallen de afgelopen dag 39 doden gevallen, meldt het Libanese ministerie van Volksgezondheid. De meeste...
 - [Songfestival geeft Israël waarschuwing vanwege oproep tot stemmen](https://nos.nl/l/2613735)
@@ -16,8 +18,6 @@
   > Zo'n 29 opvarenden van cruiseschip Hondius, waar drie passagiers zijn overleden aan het hantavirus, vliegen morgen naar Eindhoven. De groep bestaat...
 - [Vastgezette activisten Gaza-vloot komen vrij](https://nos.nl/l/2613718)
   > Twee activisten die meevoeren met een vloot naar Gaza worden vrijgelaten uit de Israëlische gevangenis. Dat zeggen hun advocaten. Waarschijnlijk...
-- [Alle stemmen in Engeland geteld: megawinst Reform UK, debacle Starmer](https://nos.nl/l/2613707)
-  > Zoals zich al aftekende is de rechts-populistische Reform UK-partij van Nigel Farage de grote winnaar geworden bij de regionale en gemeentelijke...
 
 ### Meest gelezen
 
