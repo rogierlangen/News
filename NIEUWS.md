@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-05-2026 om 17:04*
+*Laatst bijgewerkt: 09-05-2026 om 19:08*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Songfestival geeft Israël formele waarschuwing vanwege oproep tot stemmen](https://nos.nl/l/2613735)
+  > De organisatie van het Eurovisie Songfestival heeft een formele waarschuwing gegeven aan de Israëlische omroep KAN voor het overtreden van de regels....
+- [Groep opvarenden van cruiseschip Hondius per chartervlucht naar Eindhoven](https://nos.nl/l/2613732)
+  > Zo'n 29 opvarenden van cruiseschip Hondius, waar drie passagiers zijn overleden aan het hantavirus, vliegen morgen naar Eindhoven. De groep bestaat...
 - [Vastgezette activisten Gaza-vloot komen vrij](https://nos.nl/l/2613718)
   > Twee activisten die meevoeren met een vloot naar Gaza worden vrijgelaten uit de Israëlische gevangenis. Dat zeggen hun advocaten. Waarschijnlijk...
 - [Reform UK wint enorm aantal zetels bij Britse verkiezingen, Starmer wil blijven](https://nos.nl/l/2613707)
   > Zoals zich al aftekende is de rechts-populistische Reform UK-partij van Nigel Farage de grote winnaar geworden bij de regionale en gemeentelijke...
-- [Afgelast housefestival Amsterdam mag ook van de rechter niet doorgaan](https://nos.nl/l/2613705)
+- [Afgelast housefestival Amsterdam mag ook van rechter niet doorgaan, compensatie voor bezoekers](https://nos.nl/l/2613705)
   > Het Amsterdamse housefestival Music On, dat voor dit weekend stond gepland, mag van de rechter niet doorgaan. Dat is de uitkomst van een kort geding...
-- [Op fiets verdwenen Nederlander (14) gevonden in Oost-Polen, ouders opgelucht](https://nos.nl/l/2613700)
-  > In de Oost-Poolse stad Bialystok is een vermiste Nederlandse tiener gevonden. De 14-jarige Maxim vertrok drie weken geleden op de fiets vanuit...
-- [Magyar beëdigd als premier Hongarije: 'Zal niet heersen, maar dienen'](https://nos.nl/l/2613697)
-  > Péter Magyar is nu echt de nieuwe premier van Hongarije. Op een feestelijke bijeenkomst in het parlement is hij beëdigd. Langs de oevers van de Donau...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Premier League | Aké en Reijnders voor het eerst sinds januari in de basis in competitie, kansjes voor Haaland](https://www.ad.nl/voetbal/live-premier-league-ake-en-reijnders-voor-het-eerst-sinds-januari-in-de-basis-in-competitie-kansjes-voor-haaland~ab72134e/)
-  > Manchester City heeft na het spectaculaire gelijkspel tegen Everton (3-3) de Premier League-titel niet meer in eigen hand. ‘The Citizens’ moeten zich...
-- [Ongeveer 29 opvarenden Hondius vliegen zondag naar Eindhoven](https://www.ad.nl/binnenland/ongeveer-29-opvarenden-hondius-vliegen-zondag-naar-eindhoven~a3f98549/)
-  > Circa 29 opvarenden van het cruiseschip m/v Hondius vliegen zondag van Tenerife naar Eindhoven. Dat meldt het ministerie van Buitenlandse Zaken....
-- [Bestuurders moeten remmen voor koe op de snelweg: ‘Het wilde westen, maar dan op A2’](https://www.ad.nl/binnenland/bestuurders-moeten-remmen-voor-koe-op-de-snelweg-het-wilde-westen-maar-dan-op-a2~ad837ca2/)
-  > Bestuurders moesten op de A2 bij Den Bosch ineens remmen voor een bijzondere weggebruiker. Zaterdagmiddag liep plots een koe over de parallelbaan...
-- [Het arme Marokkaanse volk had alle hoop op hem gevestigd: maar 'Koning van de Armen' baadt zelf in luxe](https://www.ad.nl/buitenland/het-arme-marokkaanse-volk-had-alle-hoop-op-hem-gevestigd-maar-koning-van-de-armen-baadt-zelf-in-luxe~a1186f78/)
-  > Hij is de meest mysterieuze koning ter wereld. Over zijn privéleven is zo goed als niets bekend. Maar in een Franse biografie wordt nu voor het eerst...
-- [Willem II mede dankzij goal Mounir El Allouchi door na gelijkspel tegen RKC, einde loopbaan voor Michiel Kramer](https://www.ad.nl/voetbal/willem-ii-mede-dankzij-goal-mounir-el-allouchi-door-na-gelijkspel-tegen-rkc-einde-loopbaan-voor-michiel-kramer~a767e84b7/)
-  > Willem II heeft de volgende ronde van de play-offs bereikt. De Tilburgers hadden in eigen huis voldoende aan een gelijkspel tegen RKC (1-1) om de...
+- [Let op, behoud van de hypotheekrenteaftrek is minder zeker dan het lijkt](https://www.ad.nl/politiek/let-op-behoud-van-de-hypotheekrenteaftrek-is-minder-zeker-dan-het-lijkt~ae3c903b/)
+  > Deze zomer volgt de test voor dit minderheidskabinet: kan het nog wat voor elkaar krijgen of niet? Premier Jetten hoopt op een deal met de oppositie...
+- [Hoop doet leven voor De Graafschap: thuisploeg vlak na rust naast Almere City](https://www.ad.nl/voetbal/hoop-doet-leven-voor-de-graafschap-thuisploeg-vlak-na-rust-naast-almere-city~aa600691/)
+  > Almere City heeft zichzelf in een uitstekende uitgangspositie gemanoeuvreerd in het tweeluik met De Graafschap. De ploeg van Jeroen Rijsdijk won in...
+- [Inter wint eerste wedstrijd als kampioen, Atlético Madrid verliest in eigen huis](https://www.ad.nl/voetbal/inter-wint-eerste-wedstrijd-als-kampioen-atletico-madrid-verliest-in-eigen-huis~a5eac5010/)
+  > Internazionale heeft zaterdagavond de eerste wedstrijd als kampioen in de Serie A met 0-3 van Lazio gewonnen. Bayern München, dat op 19 april al de...
+- [LIVE | Aftellen tot Gradus Kraus bij Boxing Gladiators in Rotterdam, Mike Horn wint Benelux-titel in het middengewicht](https://www.ad.nl/vechtsport/live-aftellen-tot-gradus-kraus-bij-boxing-gladiators-in-rotterdam-mike-horn-wint-benelux-titel-in-het-middengewicht~a3029158/)
+  > In het Topsportcentrum Rotterdam vindt de tweede editie van Boxing Gladiators plaats, te zien via deze site en Videoland. Gradus Kraus vecht vanavond...
+- [Manchester City wint met Aké en Reijnders van Brentford, maar moet hopen op misstap van Arsenal](https://www.ad.nl/voetbal/manchester-city-wint-met-ake-en-reijnders-van-brentford-maar-moet-hopen-op-misstap-van-arsenal~ab72134e/)
+  > Manchester City heeft zaterdagavond de thuiswedstrijd tegen Brentford met 3-0 gewonnen. Jérémy Doku, Erling Haaland en invaller Omar Marmoush...
 
 ### Meest gelezen
 
