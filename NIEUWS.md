@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-05-2026 om 04:25*
+*Laatst bijgewerkt: 09-05-2026 om 07:09*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Grote branden bij metaalverwerkingsbedrijven in Amsterdam en Swalmen](https://nos.nl/l/2613652)
-  > In Amsterdam en Swalmen (Limburg) woeden sinds vannacht grote branden bij metaalverwerkingsbedrijven. De brandweer is bij beide branden met veel...
-- [VS schiet op Iraanse tankers, maar staakt-het-vuren 'houdt stand'](https://nos.nl/l/2613651)
-  > Het Amerikaanse leger heeft gisteren twee Iraanse olietankers uitgeschakeld. Volgens de Amerikanen probeerden de tankers ondanks restricties een...
-- [Hantavirus vastgesteld bij overleden Duitse vrouw, zes gevallen nu bevestigd](https://nos.nl/l/2613650)
-  > Bij de Duitse vrouw van 65 die aan boord van het Nederlandse cruiseschip Hondius overleed, is het hantavirus vastgesteld. Daarmee komt het aantal...
-- [Amerikaanse regering geeft geheime documenten over ufo's vrij, ook Nederland genoemd](https://nos.nl/l/2613649)
-  > Op bevel van Donald Trump heeft het Amerikaanse ministerie van Defensie tientallen tot nu toe geheime documenten over vermeende ufo-waarnemingen...
-- [Speciale verjaardagsshow voor 100-jarige sir David Attenborough met rol voor koning Charles](https://nos.nl/l/2613648)
-  > In de Royal Albert Hall in Londen werd gisteravond de Britse documentairemaker en tv-persoonlijkheid David Attenborough geëerd vanwege zijn 100e...
+- [Russische Dag van de Overwinning soberder door oorlog in Oekraïne](https://nos.nl/l/2613665)
+  > In Rusland is de jaarlijkse Dag van de Overwinning begonnen, de herdenking van de overwinning van de Sovjet-Unie op nazi-Duitsland in de Tweede...
+- [Podcast De Dag: de nieuwe grenslijnen in Gaza](https://nos.nl/l/2613660)
+  > Het Israëlische leger neemt stukje bij beetje meer grondgebied in de Gazastrook in. De zogenoemde 'gele lijn' die werd afgesproken in het vredesplan...
+- [Traceren hantavirus na uitbraak op Hondius is wereldwijde operatie: een overzicht](https://nos.nl/l/2613659)
+  > In meerdere landen zijn gezondheidsinstanties bezig passagiers op te sporen die aan boord zijn geweest van het cruiseschip Hondius. Mogelijk zijn ze...
+- [Steeds meer jongens en mannen met problematisch gedrag beïnvloed door manosphere](https://nos.nl/l/2613655)
+  > Het aantal jongens met problematisch gedrag dat beïnvloed is door de manosphere neemt toe. Dat zien forensische instellingen die jongens en...
+- [Wekdienst 9/5: Russische parade zonder tanks • Magyar treedt aan als premier Hongarije](https://nos.nl/l/2613654)
+  > Goedemorgen! In Hongarije wordt Peter Magyar geïnstalleerd als de nieuwe premier, en in Moskou wordt de overwinning op nazi-Duitsland gevierd met de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ex-speler Club Brugge valt 21 meter naakt van balkon in Thailand: ‘Ik had er niet meer kunnen zijn’](https://www.ad.nl/buitenland/ex-speler-club-brugge-valt-21-meter-naakt-van-balkon-in-thailand-ik-had-er-niet-meer-kunnen-zijn~a68597c6/)
-  > Hij viel begin januari spiernaakt van een hotelbalkon in de Thaise badplaats Pattaya. Zeven verdiepingen, 21 meter naar beneden. Na een maandenlange...
-- [Dit stepje kost ruim 20.000 euro en rijdt 160 km/u](https://www.ad.nl/auto/dit-stepje-kost-ruim-20-000-euro-en-rijdt-160-km-u~ad918a0d/)
-  > In Nederland zijn de meeste e-scooters - snelle elektrische steps - verboden. Maar in veel landen mag je gewoon de weg op, dus ook met de nieuwste Bo...
-- [Wim Beelen wil 20 miljoen in pretpark steken en beschuldigt Hennie van der Most van diefstal: ‘Superpijnlijk’](https://www.ad.nl/binnenland/wim-beelen-wil-20-miljoen-in-pretpark-steken-en-beschuldigt-hennie-van-der-most-van-diefstal-superpijnlijk~a7fa631c/)
-  > De man die het pretpark van Hennie van der Most kocht, heeft grote plannen. Tientallen miljoenen wil Wim Beelen investeren om het pretpark in...
-- [Giro d’Italia etappe 2 | Punchers strijden op heuvelachtig parkoers om dagzege en (waarschijnlijk) roze trui](https://www.ad.nl/giro/giro-ditalia-etappe-2-punchers-strijden-op-heuvelachtig-parkoers-om-dagzege-en-waarschijnlijk-roze-trui~a7a794c1/)
-  > Nadat de eerste rit in de Giro d’Italia werd beslist met een vlakke sprint, zijn vandaag waarschijnlijk de punchers aan de beurt in Bulgarije. Veel...
-- [Nepal laat recordaantal beklimmers toe op Mount Everest, vrees voor opstoppingen in extreme kou](https://www.ad.nl/buitenland/nepal-laat-recordaantal-beklimmers-toe-op-mount-everest-vrees-voor-opstoppingen-in-extreme-kou~a2655eba/)
-  > Nepal heeft dit seizoen een recordaantal van 492 vergunningen afgegeven voor de beklimming van de Mount Everest. Dat blijkt vrijdag uit gegevens van...
+- [Minister Heinen heropent jacht op Russische miljarden in Brussel, want Oekraïne heeft meer geld nodig](https://www.ad.nl/politiek/minister-heinen-heropent-jacht-op-russische-miljarden-in-brussel-want-oekraine-heeft-meer-geld-nodig~a8a4e682/)
+  > Nederland heeft in Brussel een nieuwe zwengel gegeven aan een zeer gevoelig thema. Het gebruik van bevroren Russische tegoeden om de oorlog in...
+- [Ook Trump schrikt van WK-prijzen, FIFA-baas Infantino doet vreemde belofte: ‘Voor 2 miljoen breng ik zelf een hotdog’](https://www.ad.nl/voetbal/ook-trump-schrikt-van-wk-prijzen-fifa-baas-infantino-doet-vreemde-belofte-voor-2-miljoen-breng-ik-zelf-een-hotdog~a3eb123e3/)
+  > Ook de Amerikaanse president Donald Trump (79) heeft zich gemengd in de discussie over de torenhoge prijzen voor WK-tickets en is verbaasd. „Iedereen...
+- [Coaches van The Voice of Holland alweer zin in het nieuwe seizoen: ‘Wil dit nog wel tien jaar doen’](https://www.ad.nl/show/coaches-van-the-voice-of-holland-alweer-zin-in-het-nieuwe-seizoen-wil-dit-nog-wel-tien-jaar-doen~aea8932b/)
+  > De coaches van The Voice of Holland kijken al erg uit naar het volgende seizoen van de talentenjacht. In aanloop naar de finale van de huidige reeks...
+- [Bergen ontlasting of bloed door het hele huis: Michel ruimt op waar niemand meer naar binnen durft](https://www.ad.nl/binnenland/bergen-ontlasting-of-bloed-door-het-hele-huis-michel-ruimt-op-waar-niemand-meer-naar-binnen-durft~aff207bd/)
+  > Michel Dirkse (48) en zijn team komen in huizen waar andere schoonmakers niet durven te komen. Ze halen bloed weg na gewelddadige drama’s en maken...
+- [Max Verstappen komende week in actie tijdens de 24 uur van de Nürburgring: zo ziet het weekend eruit](https://www.ad.nl/formule-1/max-verstappen-komende-week-in-actie-tijdens-de-24-uur-van-de-nurburgring-zo-ziet-het-weekend-eruit~a53702ce/)
+  > Na een beter Formule 1-weekend in Miami gaat de blik van Max Verstappen nu naar zijn GT3-auto. De coureur was de afgelopen maanden al twee keer te...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Personalia zaterdag 9 mei](https://fd.nl/bedrijfsleven/1596052/personalia-zaterdag-9-mei)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Lachen met Lula, huilen met de AfD](https://fd.nl/opinie/1595916/lachen-met-lula-huilen-met-de-afd)
-  > Terwijl de Braziliaanse president Lula da Silva het over zielzorg en humor heeft, domineren elders irrationele woede en wraakpolitiek.
-- [Sterk banenrapport leidt tot optimisme op Amerikaanse beurs](https://fd.nl/financiele-markten/1596103/sterk-banenrapport-leidt-tot-optimisme-op-amerikaanse-beurs)
-  > Opnieuw zaten chipaandelen in de lift. En ondanks tegenwind komen er banen bij op de Amerikaanse arbeidsmarkt.
-- [Trump kondigt gevechtspauze aan tussen Rusland en Oekraïne](https://fd.nl/politiek/1595935/trump-kondigt-gevechtspauze-aan-tussen-rusland-en-oekraine)
-  > Staakt-het-vuren moet ingaan tussen 9 en 11 mei.
-- [‘Intel en Apple gaan samen chips produceren’](https://fd.nl/bedrijfsleven/1595934/intel-en-apple-gaan-samen-chips-produceren)
-  > Het is volgens The Wall Street Journal nog onduidelijk voor welke Apple-producten Intel chips zou gaan maken.
+- [De hand van de knip als voorwaarde voor verdere Europese integratie](https://fd.nl/opinie/1595735/de-hand-van-de-knip-als-voorwaarde-voor-verdere-europese-integratie)
+  > Nederland blijft in zijn rol als zuinige boekhouder van Europa vervallen. Om de ambitie van de leidende rol in Europa te kunnen pakken, moeten we ook...
+- [Het slechtste nieuws van onze tijd: de mondiale vooruitgang stokt](https://fd.nl/politiek/1596016/het-slechtste-nieuws-van-onze-tijd-de-mondiale-vooruitgang-stokt)
+  > Drie perioden van snelle welvaartsgroei liggen achter ons. Vandaag de dag is er nog wel sprake van progressie, schrijft FD-columnist Mathijs Bouman,...
+- [Het geheim van kwantum-wereldspelers in Delft: ‘Iedereen gunt elkaar succes’](https://fd.nl/tech-en-innovatie/1596014/het-geheim-van-kwantum-wereldspelers-in-delft-iedereen-gunt-elkaar-succes)
+  > Voor elk onderdeel van de kwantumcomputer kent Delft een potentiële marktleider. De bedrijven haalden vorige week recordinvesteringen op. De...
+- [‘Wij willen niet roepen dat investeren in defensie belangrijk is en het vervolgens niet doen’](https://fd.nl/samenleving/1596013/wij-willen-niet-roepen-dat-investeren-in-defensie-belangrijk-is-en-het-vervolgens-niet-doen)
+  > Leden van de koninklijke familie in camouflagekleding, de financiële wereld die zijn bedenkingen steeds meer laat varen en wachtrijen om reservist te...
+- [Modeontwerper wordt kunstenaar](https://fd.nl/samenleving/1595744/modeontwerper-wordt-kunstenaar)
+  > Bas Kosters – ja, die van de penislegging – is niet langer modeontwerper. Hij is nu autonoom kunstenaar. ‘Mijn mode was voor een nichepubliek.’
 
 ### Meest gelezen
 
