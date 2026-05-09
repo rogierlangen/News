@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-05-2026 om 15:57*
+*Laatst bijgewerkt: 09-05-2026 om 17:04*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘We hebben iemand geraakt’: man overleden na aanrijding door vliegtuig op Amerikaanse luchthaven](https://www.ad.nl/buitenland/we-hebben-iemand-geraakt-man-overleden-na-aanrijding-door-vliegtuig-op-amerikaanse-luchthaven~ae07199f/)
-  > Een vliegtuig dat vrijdagavond vertrok van de internationale luchthaven van Denver heeft tijdens het opstijgen een voetganger geraakt. Daarbij raakte...
-- [Festivalgangers reageren op nieuws over last-minute afgelast dancefestival: ‘Ik had mijn vakantie erop afgestemd’](https://www.ad.nl/binnenland/festivalgangers-reageren-op-nieuws-over-last-minute-afgelast-dancefestival-ik-had-mijn-vakantie-erop-afgestemd~a8383993/)
-  > Festivalgangers zijn teleurgesteld na het nieuws dat housefestival Music On, dat zaterdag en zondag in Amsterdam-Oost zou plaatsvinden, op het...
-- [Tweeluik nieuw leven ingeblazen: Jean-Paul Boëtius schiet RKC dichter bij Willem II](https://www.ad.nl/voetbal/tweeluik-nieuw-leven-ingeblazen-jean-paul-boetius-schiet-rkc-dichter-bij-willem-ii~a767e84b7/)
-  > Willem II won de heenwedstrijd in de play-offs op bezoek bij RKC dinsdag met 0-1. De ploeg van trainer John Stegeman hoopt de klus vanavond in eigen...
-- [Giro d’Italia | Alle klassementen, de Nederlandse deelnemers en de uitdagers van Jonas Vingegaard](https://www.ad.nl/giro/giro-ditalia-alle-klassementen-de-nederlandse-deelnemers-en-de-uitdagers-van-jonas-vingegaard~aa7ab621/)
-  > Tussen 8 en 31 mei wordt de eerste grote ronde van het jaar bij de mannen verreden: de Giro d’Italia. Wie gaat Jonas Vingegaard bij zijn debuut uit...
-- [LIVE | Kris-Anne Mulder wint eerste partij Boxing Gladiators in Rotterdam, vanavond Gradus Kraus](https://www.ad.nl/vechtsport/live-kris-anne-mulder-wint-eerste-partij-boxing-gladiators-in-rotterdam-vanavond-gradus-kraus~a3029158/)
-  > Vanavond vindt in het Topsportcentrum Rotterdam de tweede editie van Boxing Gladiators plaats, te zien via deze site en Videoland. Na een...
+- [LIVE Premier League | Aké en Reijnders voor het eerst sinds januari in de basis in competitie, kansjes voor Haaland](https://www.ad.nl/voetbal/live-premier-league-ake-en-reijnders-voor-het-eerst-sinds-januari-in-de-basis-in-competitie-kansjes-voor-haaland~ab72134e/)
+  > Manchester City heeft na het spectaculaire gelijkspel tegen Everton (3-3) de Premier League-titel niet meer in eigen hand. ‘The Citizens’ moeten zich...
+- [Ongeveer 29 opvarenden Hondius vliegen zondag naar Eindhoven](https://www.ad.nl/binnenland/ongeveer-29-opvarenden-hondius-vliegen-zondag-naar-eindhoven~a3f98549/)
+  > Circa 29 opvarenden van het cruiseschip m/v Hondius vliegen zondag van Tenerife naar Eindhoven. Dat meldt het ministerie van Buitenlandse Zaken....
+- [Bestuurders moeten remmen voor koe op de snelweg: ‘Het wilde westen, maar dan op A2’](https://www.ad.nl/binnenland/bestuurders-moeten-remmen-voor-koe-op-de-snelweg-het-wilde-westen-maar-dan-op-a2~ad837ca2/)
+  > Bestuurders moesten op de A2 bij Den Bosch ineens remmen voor een bijzondere weggebruiker. Zaterdagmiddag liep plots een koe over de parallelbaan...
+- [Het arme Marokkaanse volk had alle hoop op hem gevestigd: maar 'Koning van de Armen' baadt zelf in luxe](https://www.ad.nl/buitenland/het-arme-marokkaanse-volk-had-alle-hoop-op-hem-gevestigd-maar-koning-van-de-armen-baadt-zelf-in-luxe~a1186f78/)
+  > Hij is de meest mysterieuze koning ter wereld. Over zijn privéleven is zo goed als niets bekend. Maar in een Franse biografie wordt nu voor het eerst...
+- [Willem II mede dankzij goal Mounir El Allouchi door na gelijkspel tegen RKC, einde loopbaan voor Michiel Kramer](https://www.ad.nl/voetbal/willem-ii-mede-dankzij-goal-mounir-el-allouchi-door-na-gelijkspel-tegen-rkc-einde-loopbaan-voor-michiel-kramer~a767e84b7/)
+  > Willem II heeft de volgende ronde van de play-offs bereikt. De Tilburgers hadden in eigen huis voldoende aan een gelijkspel tegen RKC (1-1) om de...
 
 ### Meest gelezen
 
