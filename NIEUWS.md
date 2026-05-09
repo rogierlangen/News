@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-05-2026 om 22:59*
+*Laatst bijgewerkt: 09-05-2026 om 00:05*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Speciale verjaardagsshow voor 100-jarige sir David Attenborough met rol voor koning Charles](https://nos.nl/l/2613648)
+  > In de Royal Albert Hall in Londen werd gisteravond de Britse documentairemaker en tv-persoonlijkheid David Attenborough geëerd vanwege zijn 100e...
 - [Besluit over azc in Den Bosch uitgesteld vanwege extra informatieavonden](https://nos.nl/l/2613640)
   > De gemeente Den Bosch stelt een besluit uit over een gepland asielzoekerscentrum op de grens van Engelen en Den Bosch. Na meerdere protesten tegen de...
 - [Imam lichtgewond na steekpartij bij moskee Maassluis](https://nos.nl/l/2613639)
@@ -17,8 +19,6 @@
   > Nederlanders aan boord van het cruiseschip Hondius gaan zes weken in thuisquarantaine. Dat schrijven minister Hermans van Volksgezondheid en minister...
 - [Zwaluwnesten in Leeuwarden met de grond gelijk gemaakt, gemeente zegt sorry](https://nos.nl/l/2613631)
   > In Leeuwarden is per ongeluk een zandheuvel met nesten van oeverzwaluwen met de grond gelijkgemaakt. Leeuwarden neemt de verantwoordelijkheid op...
-- [Op Trumps verzoek driedaags bestand tussen Oekraïne en Rusland](https://nos.nl/l/2613630)
-  > De Amerikaanse president Trump zegt dat er op zijn verzoek een tijdelijk staakt-het-vuren komt tussen Rusland en Oekraïne. Dat geldt morgen,...
 
 ### Meest gelezen
 
@@ -28,8 +28,8 @@
 
 ### Laatste nieuws
 
-- [LIVE hantavirus | WHO bevestigt zes besmettingen op Hondius, Nederlandse opvarenden gaan zes weken in thuisquarantaine](https://www.ad.nl/binnenland/live-hantavirus-who-bevestigt-zes-besmettingen-op-hondius-nederlandse-opvarenden-gaan-zes-weken-in-thuisquarantaine~a3f98549/)
-  > Volgens de Wereldgezondheidsorganisatie (WHO) zijn tot dusver zes opvarenden van het cruiseschip Hondius besmet met het hantavirus. De Nederlandse...
+- [Overleden Duitse vrouw op Hondius had hantavirus, WHO bevestigt zes besmettingen op cruiseschip](https://www.ad.nl/binnenland/overleden-duitse-vrouw-op-hondius-had-hantavirus-who-bevestigt-zes-besmettingen-op-cruiseschip~a3f98549/)
+  > Bij de Duitse vrouw die op 2 mei aan boord van de Hondius overleed, is het hantavirus vastgesteld. Dat meldt de Wereldgezondheidsorganisatie (WHO)....
 - [Iran: gevechten met Amerikaanse marine in Straat van Hormuz zijn beëindigd](https://www.ad.nl/buitenland/iran-gevechten-met-amerikaanse-marine-in-straat-van-hormuz-zijn-beeindigd~ac528ac3/)
   > Het Iraanse leger heeft verklaard dat de gevechten met Amerikaanse oorlogsschepen in de Straat van Hormuz zijn beëindigd. ‘Na een tijdje van...
 - [Bekijk en volg vanavond live op deze site de gevechten van Boxing Gladiators: dit is het programma](https://www.ad.nl/vechtsport/bekijk-en-volg-vanavond-live-op-deze-site-de-gevechten-van-boxing-gladiators-dit-is-het-programma~a88c00f6/)
