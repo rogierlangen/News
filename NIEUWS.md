@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-05-2026 om 21:51*
+*Laatst bijgewerkt: 09-05-2026 om 22:51*
 
 ---
 
@@ -9,7 +9,7 @@
 ### Laatste nieuws
 
 - [Doden door Israëlische aanvallen in Zuid-Libanon en bij hoofdstad Beiroet](https://nos.nl/l/2613745)
-  > In Libanon zijn door Israëlische luchtaanvallen vandaag zeker zeventien doden gevallen, melden Libanese staatsmedia en het ministerie van...
+  > In Libanon zijn door Israëlische luchtaanvallen de afgelopen dag 39 doden gevallen, meldt het Libanese ministerie van Volksgezondheid. De meeste...
 - [Songfestival geeft Israël waarschuwing vanwege oproep tot stemmen](https://nos.nl/l/2613735)
   > De organisatie van het Eurovisie Songfestival heeft een waarschuwing gegeven aan de Israëlische omroep KAN voor het overtreden van de regels. Dat...
 - [Groep opvarenden van cruiseschip Hondius per chartervlucht naar Eindhoven](https://nos.nl/l/2613732)
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Gradus Kraus geeft Brit geen schijn van kans bij Boxing Gladiators in Rotterdam: ‘Ik kan de hele wereld aan’](https://www.ad.nl/vechtsport/gradus-kraus-geeft-brit-geen-schijn-van-kans-bij-boxing-gladiators-in-rotterdam-ik-kan-de-hele-wereld-aan~a3029158/)
+  > Gradus Kraus (24) dendert door. De boksrevelatie uit Oss trakteerde zo’n 2000 Nederlandse fans in het Topsportcentrum in Rotterdam wéér op een...
+- [Iran dreigt Amerikaanse bases aan te vallen bij aanvallen op olietankers](https://www.ad.nl/buitenland/iran-dreigt-amerikaanse-bases-aan-te-vallen-bij-aanvallen-op-olietankers~ac528ac3/)
+  > De Iraanse Revolutionaire Garde heeft zaterdag gedreigd Amerikaanse bases ‘in de regio’ en ‘vijandige schepen’ aan te vallen als er Iraanse...
+- [Slavia Praag bijna kampioen, maar dan valt harde kern spelers en fans van Sparta Praag aan: ‘Grote schande’](https://www.ad.nl/voetbal/slavia-praag-bijna-kampioen-maar-dan-valt-harde-kern-spelers-en-fans-van-sparta-praag-aan-grote-schande~ac3d4da8/)
+  > De stadsderby tussen de Tsjechische rivalen Slavia Praag en Sparta Praag is zaterdagavond compleet uit de hand gelopen. In de 97ste minuut renden...
 - [Manchester City wint, Pep Guardiola hoopt op misstap Arsenal: ‘Come on you Irons!’](https://www.ad.nl/voetbal/manchester-city-wint-pep-guardiola-hoopt-op-misstap-arsenal-come-on-you-irons~ab72134e/)
   > Manchester City heeft zaterdagavond de thuiswedstrijd tegen Brentford met 3-0 gewonnen. Jérémy Doku, Erling Haaland en invaller Omar Marmoush...
 - [Wessel Nijman neemt goede vorm niet mee naar Graz en wordt afgedroogd, ook slechte dag voor Gian van Veen](https://www.ad.nl/darts/wessel-nijman-neemt-goede-vorm-niet-mee-naar-graz-en-wordt-afgedroogd-ook-slechte-dag-voor-gian-van-veen~a8880ca7/)
   > Wessel Nijman, de man die dit jaar zo goed in vorm is op de vloertoernooien, is op de Austrian Darts Open afgedroogd door Niko Springer. De Duitser...
-- [Gradus Kraus geeft Engelse opponent geen schijn van kans in hoofdgevecht Boxing Gladiators in Rotterdam](https://www.ad.nl/vechtsport/gradus-kraus-geeft-engelse-opponent-geen-schijn-van-kans-in-hoofdgevecht-boxing-gladiators-in-rotterdam~a3029158/)
-  > Gradus Kraus (24) blijft doordenderen. De boksrevelatie uit Oss trakteerde zo’n 2000 Nederlandse fans in het Topsportcentrum in Rotterdam wéér op een...
-- [Planning Hondius bekend: cruiseschip zondagochtend 5.30 uur bij Tenerife, daarna naar Rotterdam](https://www.ad.nl/binnenland/planning-hondius-bekend-cruiseschip-zondagochtend-5-30-uur-bij-tenerife-daarna-naar-rotterdam~a3f98549/)
-  > Het Nederlandse cruiseschip MV Hondius komt zondagochtend aan bij Tenerife. Het gaat voor anker in de buurt van Granadilla de Abona, aan de zuidkant...
-- [Slavia Praag bijna kampioen, maar dan valt harde kern spelers en fans van Sparta Praag aan: ‘Grote schande’](https://www.ad.nl/voetbal/slavia-praag-bijna-kampioen-maar-dan-valt-harde-kern-spelers-en-fans-van-sparta-praag-aan-grote-schande~ac3d4da8/)
-  > De stadsderby tussen de Tsjechische rivalen Slavia Praag en Sparta Praag is zaterdagavond compleet uit de hand gelopen. In de 97ste minuut renden...
 
 ### Meest gelezen
 
