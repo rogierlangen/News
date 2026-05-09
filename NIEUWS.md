@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-05-2026 om 07:09*
+*Laatst bijgewerkt: 09-05-2026 om 09:23*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Russische Dag van de Overwinning soberder door oorlog in Oekraïne](https://nos.nl/l/2613665)
-  > In Rusland is de jaarlijkse Dag van de Overwinning begonnen, de herdenking van de overwinning van de Sovjet-Unie op nazi-Duitsland in de Tweede...
-- [Podcast De Dag: de nieuwe grenslijnen in Gaza](https://nos.nl/l/2613660)
-  > Het Israëlische leger neemt stukje bij beetje meer grondgebied in de Gazastrook in. De zogenoemde 'gele lijn' die werd afgesproken in het vredesplan...
-- [Traceren hantavirus na uitbraak op Hondius is wereldwijde operatie: een overzicht](https://nos.nl/l/2613659)
-  > In meerdere landen zijn gezondheidsinstanties bezig passagiers op te sporen die aan boord zijn geweest van het cruiseschip Hondius. Mogelijk zijn ze...
-- [Steeds meer jongens en mannen met problematisch gedrag beïnvloed door manosphere](https://nos.nl/l/2613655)
-  > Het aantal jongens met problematisch gedrag dat beïnvloed is door de manosphere neemt toe. Dat zien forensische instellingen die jongens en...
-- [Wekdienst 9/5: Russische parade zonder tanks • Magyar treedt aan als premier Hongarije](https://nos.nl/l/2613654)
-  > Goedemorgen! In Hongarije wordt Peter Magyar geïnstalleerd als de nieuwe premier, en in Moskou wordt de overwinning op nazi-Duitsland gevierd met de...
+- [Premier Jetten naar Caribisch Nederland voor eerste werkbezoek](https://nos.nl/l/2613677)
+  > Minister-president Jetten is in het Caribisch gebied voor een werkbezoek. Tot en met 14 mei zal hij Sint-Maarten, Saba, Sint-Eustatius, Bonaire,...
+- [Dode (37) bij woningbrand in Geldrop](https://nos.nl/l/2613676)
+  > Bij een woningbrand in Geldrop is vanochtend de 37-jarige bewoner om het leven gekomen.
+        Omwonenden belden vanochtend de brandweer toen zij...
+- [VS blijft doorgaan met beschieten van drugsboten](https://nos.nl/l/2613673)
+  > Het Amerikaanse leger heeft in de Stille Oceaan opnieuw een boot gebombardeerd omdat die drugs zou vervoeren. Van de drie opvarenden zijn daarbij...
+- [Vier mannen in VS veroordeeld voor moord op Haïtiaanse president](https://nos.nl/l/2613672)
+  > In de Amerikaanse staat Florida zijn vier mannen veroordeeld voor hun rol bij de moord op de Haïtiaanse president Jovenel Moïse. In de nacht van 7...
+- [Ziggo-klanten krijgen live eredivisievoetbal in basispakket, prijs gaat omhoog](https://nos.nl/l/2613670)
+  > Vanaf komend seizoen zijn voor klanten van Ziggo alle voetbalwedstrijden in de eredivisie live te zien, zonder dat daarvoor een extra pakket nodig...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Minister Heinen heropent jacht op Russische miljarden in Brussel, want Oekraïne heeft meer geld nodig](https://www.ad.nl/politiek/minister-heinen-heropent-jacht-op-russische-miljarden-in-brussel-want-oekraine-heeft-meer-geld-nodig~a8a4e682/)
-  > Nederland heeft in Brussel een nieuwe zwengel gegeven aan een zeer gevoelig thema. Het gebruik van bevroren Russische tegoeden om de oorlog in...
-- [Ook Trump schrikt van WK-prijzen, FIFA-baas Infantino doet vreemde belofte: ‘Voor 2 miljoen breng ik zelf een hotdog’](https://www.ad.nl/voetbal/ook-trump-schrikt-van-wk-prijzen-fifa-baas-infantino-doet-vreemde-belofte-voor-2-miljoen-breng-ik-zelf-een-hotdog~a3eb123e3/)
-  > Ook de Amerikaanse president Donald Trump (79) heeft zich gemengd in de discussie over de torenhoge prijzen voor WK-tickets en is verbaasd. „Iedereen...
-- [Coaches van The Voice of Holland alweer zin in het nieuwe seizoen: ‘Wil dit nog wel tien jaar doen’](https://www.ad.nl/show/coaches-van-the-voice-of-holland-alweer-zin-in-het-nieuwe-seizoen-wil-dit-nog-wel-tien-jaar-doen~aea8932b/)
-  > De coaches van The Voice of Holland kijken al erg uit naar het volgende seizoen van de talentenjacht. In aanloop naar de finale van de huidige reeks...
-- [Bergen ontlasting of bloed door het hele huis: Michel ruimt op waar niemand meer naar binnen durft](https://www.ad.nl/binnenland/bergen-ontlasting-of-bloed-door-het-hele-huis-michel-ruimt-op-waar-niemand-meer-naar-binnen-durft~aff207bd/)
-  > Michel Dirkse (48) en zijn team komen in huizen waar andere schoonmakers niet durven te komen. Ze halen bloed weg na gewelddadige drama’s en maken...
-- [Max Verstappen komende week in actie tijdens de 24 uur van de Nürburgring: zo ziet het weekend eruit](https://www.ad.nl/formule-1/max-verstappen-komende-week-in-actie-tijdens-de-24-uur-van-de-nurburgring-zo-ziet-het-weekend-eruit~a53702ce/)
-  > Na een beter Formule 1-weekend in Miami gaat de blik van Max Verstappen nu naar zijn GT3-auto. De coureur was de afgelopen maanden al twee keer te...
+- [Tegenvaller voor The Voice of Holland: minst bekeken finale ooit](https://www.ad.nl/show/tegenvaller-voor-the-voice-of-holland-minst-bekeken-finale-ooit~ac01ca7a/)
+  > De finale van The Voice of Holland is vrijdagavond op RTL 4 bekeken door bijna 1,3 miljoen mensen. Dat meldt het Nationaal Media Onderzoek (NMO). De...
+- [Tientallen doden bij aanvallen op Zuid-Libanon, Israël gelast evacuatie negen dorpen](https://www.ad.nl/buitenland/tientallen-doden-bij-aanvallen-op-zuid-libanon-israel-gelast-evacuatie-negen-dorpen~ac528ac3/)
+  > Bij grootschalige Israëlische aanvallen in Zuid-Libanon zijn vrijdag zeker 31 mensen omgekomen, onder wie een hulpverlener. Dat meldt het Libanese...
+- [Marleen (52) is al om 07.15 uur op kantoor om een plekje te veroveren: ‘Behoefte aan een eigen bureau’](https://www.ad.nl/economie/marleen-52-is-al-om-07-15-uur-op-kantoor-om-een-plekje-te-veroveren-behoefte-aan-een-eigen-bureau~ac1df908/)
+  > Een prachtig nieuw kantoorpand, maar het aantal werkplekken houdt niet over. Marleen (52) raakt er gestrest van, vertelt ze aan Anne-Marije Buckens,...
+- [Southampton door Middlesbrough beticht van spionage voor promotieduel, bond start onderzoek](https://www.ad.nl/voetbal/southampton-door-middlesbrough-beticht-van-spionage-voor-promotieduel-bond-start-onderzoek~a0df65e3/)
+  > Southampton wordt beticht van spioneren bij een besloten training van Middlesbrough. De overkoepelende English Football League (EFL) is een onderzoek...
+- [Messi wil Neymar zien op WK, FIFA pakt uit met drie openingsceremonies met popsterren als Katy Perry en J Balvin](https://www.ad.nl/wk-voetbal/messi-wil-neymar-zien-op-wk-fifa-pakt-uit-met-drie-openingsceremonies-met-popsterren-als-katy-perry-en-j-balvin~a61805da/)
+  > Over minder dan vijftig dagen begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste...
 
 ### Meest gelezen
 
@@ -46,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [China exporteert weer meer naar de VS, zo blijkt vlak voor ontmoeting Trump en Xi](https://fd.nl/economie/1596104/china-exporteert-weer-meer-naar-de-vs-zo-blijkt-vlak-voor-ontmoeting-trump-en-xi)
+  > Het Chinese exportoverschot naar de VS is in april toegenomen ten opzichte van een jaar geleden. Volgende week spreken president Trump en president...
 - [De hand van de knip als voorwaarde voor verdere Europese integratie](https://fd.nl/opinie/1595735/de-hand-van-de-knip-als-voorwaarde-voor-verdere-europese-integratie)
   > Nederland blijft in zijn rol als zuinige boekhouder van Europa vervallen. Om de ambitie van de leidende rol in Europa te kunnen pakken, moeten we ook...
 - [Het slechtste nieuws van onze tijd: de mondiale vooruitgang stokt](https://fd.nl/politiek/1596016/het-slechtste-nieuws-van-onze-tijd-de-mondiale-vooruitgang-stokt)
@@ -54,8 +57,6 @@
   > Voor elk onderdeel van de kwantumcomputer kent Delft een potentiële marktleider. De bedrijven haalden vorige week recordinvesteringen op. De...
 - [‘Wij willen niet roepen dat investeren in defensie belangrijk is en het vervolgens niet doen’](https://fd.nl/samenleving/1596013/wij-willen-niet-roepen-dat-investeren-in-defensie-belangrijk-is-en-het-vervolgens-niet-doen)
   > Leden van de koninklijke familie in camouflagekleding, de financiële wereld die zijn bedenkingen steeds meer laat varen en wachtrijen om reservist te...
-- [Modeontwerper wordt kunstenaar](https://fd.nl/samenleving/1595744/modeontwerper-wordt-kunstenaar)
-  > Bas Kosters – ja, die van de penislegging – is niet langer modeontwerper. Hij is nu autonoom kunstenaar. ‘Mijn mode was voor een nichepubliek.’
 
 ### Meest gelezen
 
