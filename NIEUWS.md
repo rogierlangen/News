@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-05-2026 om 19:08*
+*Laatst bijgewerkt: 09-05-2026 om 20:50*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Songfestival geeft Israël formele waarschuwing vanwege oproep tot stemmen](https://nos.nl/l/2613735)
-  > De organisatie van het Eurovisie Songfestival heeft een formele waarschuwing gegeven aan de Israëlische omroep KAN voor het overtreden van de regels....
+- [Doden door Israëlische aanvallen in Zuid-Libanon en bij hoofdstad Beiroet](https://nos.nl/l/2613745)
+  > In Libanon zijn door Israëlische luchtaanvallen vandaag zeker zeventien doden gevallen, melden Libanese staatsmedia en het ministerie van...
+- [Songfestival geeft Israël waarschuwing vanwege oproep tot stemmen](https://nos.nl/l/2613735)
+  > De organisatie van het Eurovisie Songfestival heeft een waarschuwing gegeven aan de Israëlische omroep KAN voor het overtreden van de regels. Dat...
 - [Groep opvarenden van cruiseschip Hondius per chartervlucht naar Eindhoven](https://nos.nl/l/2613732)
   > Zo'n 29 opvarenden van cruiseschip Hondius, waar drie passagiers zijn overleden aan het hantavirus, vliegen morgen naar Eindhoven. De groep bestaat...
 - [Vastgezette activisten Gaza-vloot komen vrij](https://nos.nl/l/2613718)
   > Twee activisten die meevoeren met een vloot naar Gaza worden vrijgelaten uit de Israëlische gevangenis. Dat zeggen hun advocaten. Waarschijnlijk...
-- [Reform UK wint enorm aantal zetels bij Britse verkiezingen, Starmer wil blijven](https://nos.nl/l/2613707)
+- [Alle stemmen in Engeland geteld: megawinst Reform UK, debacle Starmer](https://nos.nl/l/2613707)
   > Zoals zich al aftekende is de rechts-populistische Reform UK-partij van Nigel Farage de grote winnaar geworden bij de regionale en gemeentelijke...
-- [Afgelast housefestival Amsterdam mag ook van rechter niet doorgaan, compensatie voor bezoekers](https://nos.nl/l/2613705)
-  > Het Amsterdamse housefestival Music On, dat voor dit weekend stond gepland, mag van de rechter niet doorgaan. Dat is de uitkomst van een kort geding...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Let op, behoud van de hypotheekrenteaftrek is minder zeker dan het lijkt](https://www.ad.nl/politiek/let-op-behoud-van-de-hypotheekrenteaftrek-is-minder-zeker-dan-het-lijkt~ae3c903b/)
-  > Deze zomer volgt de test voor dit minderheidskabinet: kan het nog wat voor elkaar krijgen of niet? Premier Jetten hoopt op een deal met de oppositie...
-- [Hoop doet leven voor De Graafschap: thuisploeg vlak na rust naast Almere City](https://www.ad.nl/voetbal/hoop-doet-leven-voor-de-graafschap-thuisploeg-vlak-na-rust-naast-almere-city~aa600691/)
-  > Almere City heeft zichzelf in een uitstekende uitgangspositie gemanoeuvreerd in het tweeluik met De Graafschap. De ploeg van Jeroen Rijsdijk won in...
-- [Inter wint eerste wedstrijd als kampioen, Atlético Madrid verliest in eigen huis](https://www.ad.nl/voetbal/inter-wint-eerste-wedstrijd-als-kampioen-atletico-madrid-verliest-in-eigen-huis~a5eac5010/)
-  > Internazionale heeft zaterdagavond de eerste wedstrijd als kampioen in de Serie A met 0-3 van Lazio gewonnen. Bayern München, dat op 19 april al de...
-- [LIVE | Aftellen tot Gradus Kraus bij Boxing Gladiators in Rotterdam, Mike Horn wint Benelux-titel in het middengewicht](https://www.ad.nl/vechtsport/live-aftellen-tot-gradus-kraus-bij-boxing-gladiators-in-rotterdam-mike-horn-wint-benelux-titel-in-het-middengewicht~a3029158/)
-  > In het Topsportcentrum Rotterdam vindt de tweede editie van Boxing Gladiators plaats, te zien via deze site en Videoland. Gradus Kraus vecht vanavond...
-- [Manchester City wint met Aké en Reijnders van Brentford, maar moet hopen op misstap van Arsenal](https://www.ad.nl/voetbal/manchester-city-wint-met-ake-en-reijnders-van-brentford-maar-moet-hopen-op-misstap-van-arsenal~ab72134e/)
-  > Manchester City heeft zaterdagavond de thuiswedstrijd tegen Brentford met 3-0 gewonnen. Jérémy Doku, Erling Haaland en invaller Omar Marmoush...
+- [LIVE | Tony Jas verslaat taaie Pool, zometeen Gradus Kraus aan de beurt bij hoofdgevecht Boxing Gladiators](https://www.ad.nl/vechtsport/live-tony-jas-verslaat-taaie-pool-zometeen-gradus-kraus-aan-de-beurt-bij-hoofdgevecht-boxing-gladiators~a3029158/)
+  > Boksrevelatie Gradus Kraus hoopt vanavond voor de elfde keer op rij zijn partij om te zetten in winst. Dat doet hij in Topsportcentrum Rotterdam...
+- [Derby van Praag loopt compleet uit de hand: fans van Slavia Praag rennen met fakkels richting het uitvak](https://www.ad.nl/voetbal/derby-van-praag-loopt-compleet-uit-de-hand-fans-van-slavia-praag-rennen-met-fakkels-richting-het-uitvak~ac3d4da8/)
+  > De stadsderby tussen de Tsjechische rivalen Slavia Praag en Sparta Praag is zaterdagavond compleet uit de hand gelopen. In de 97ste minuut renden...
+- [Poetin bereid om Zelensky te ontmoeten buiten Rusland of Oekraïne: ‘Maar alleen bij vredesakkoord’](https://www.ad.nl/buitenland/poetin-bereid-om-zelensky-te-ontmoeten-buiten-rusland-of-oekraine-maar-alleen-bij-vredesakkoord~adfb97be/)
+  > De Russische president Vladimir Poetin is bereid om de Oekraïense president Volodymyr Zelensky te ontmoeten in een derde land. Volgens Poetin moet...
+- [ME grijpt in bij protest tegen noodopvang in Apeldoorn, drie aanhoudingen](https://www.ad.nl/binnenland/me-grijpt-in-bij-protest-tegen-noodopvang-in-apeldoorn-drie-aanhoudingen~ab44b26d/)
+  > Bij een nieuwe demonstratie tegen de komst van een noodopvang voor asielzoekers in Apeldoorn zijn vanavond minstens drie mensen opgepakt. Het protest...
+- [Almere City mag met Willem II gaan strijden om finaleticket, De Graafschap blijft in KKD](https://www.ad.nl/voetbal/almere-city-mag-met-willem-ii-gaan-strijden-om-finaleticket-de-graafschap-blijft-in-kkd~aa600691/)
+  > Almere City is de volgende tegenstander van Willem II in de play-offs. De ploeg van Jeroen Rijsdijk had op De Vijverberg genoeg aan een gelijkspel...
 
 ### Meest gelezen
 
