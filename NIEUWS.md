@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-05-2026 om 19:11*
+*Laatst bijgewerkt: 10-05-2026 om 20:54*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Letse defensieminister stapt op vanwege neergestorte Oekraïense drones](https://nos.nl/l/2613881)
+  > In Letland is Andris Spruds opgestapt als minister van Defensie. Hij heeft zijn ontslag bekendgemaakt op een persconferentie. Spruds wordt verweten...
 - [Nederlandse cruisepassagiers geland in Eindhoven, gaan nu in thuisquarantaine](https://nos.nl/l/2613863)
   > De acht Nederlandse passagiers die tot vanmiddag vastzaten op cruiseschip de Hondius zijn vanavond aangekomen in Eindhoven. Een toestel dat was...
 - [Bulkschip bij Qatar getroffen, ook VAE en Koeweit melden droneaanvallen](https://nos.nl/l/2613841)
@@ -16,8 +18,6 @@
   > Een deel van Nederland gaat de nieuwe week met code geel beginnen. In de provincies Noord-Holland, Friesland, Groningen en Flevoland en ook op de...
 - [Tientallen aanhoudingen bij azc-protest Apeldoorn, vuurwerk gegooid naar agenten](https://nos.nl/l/2613829)
   > Bij een demonstratie tegen de komst van een asielzoekerscentrum in Apeldoorn zijn gisteravond 26 mensen aangehouden, meldt de politie. Eén man is...
-- [Leiden Marathon na overlijden 15-jarige loopster: 'Afschuwelijk nieuws'](https://nos.nl/l/2613824)
-  > "Dit is het ergste wat je kan overkomen", zegt voorzitter Tjeerd Scheffer van de Leiden Marathon nadat een meisje van 15 overleed tijdens haar...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Podcast In Het Wiel | ‘Dylan Groenewegen wint sowieso nog een etappe deze Giro’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-dylan-groenewegen-wint-sowieso-nog-een-etappe-deze-giro~a5ea502e/)
-  > Net niet voor Dylan Groenewegen in de derde etappe van de Giro d'Italia. De sprinter van de Unibet Rose Rockets kwam centimeters tekort om Paul...
-- [Koudste Hemelvaart in ruim 10 jaar op komst: ‘Ronduit fris en veel kans op regenbuien’](https://www.ad.nl/binnenland/koudste-hemelvaart-in-ruim-10-jaar-op-komst-ronduit-fris-en-veel-kans-op-regenbuien~a3f1c74b/)
-  > Weeronline verwacht dat het donderdag de koudste Hemelvaart wordt sinds 2014. Volgens het weerbureau wordt het niet warmer dan 13 graden, terwijl de...
-- [Nog spanning voor zeven clubs: wie gaan Europa in en welke club speelt zich op slotdag veilig?](https://www.ad.nl/voetbal/nog-spanning-voor-zeven-clubs-wie-gaan-europa-in-en-welke-club-speelt-zich-op-slotdag-veilig~a0dfd432/)
-  > De ontknoping van het eredivisieseizoen nadert: volgende week zondag om 14.30 uur is de allerlaatste speelronde. Voor zeven clubs is het nog razend...
-- [NAC-trainer spreekt niet van zwarte dag en wijst naar Excelsior en Volendam: ‘Heeft weinig met fair play te maken’](https://www.ad.nl/voetbal/nac-trainer-spreekt-niet-van-zwarte-dag-en-wijst-naar-excelsior-en-volendam-heeft-weinig-met-fair-play-te-maken~a31efa34/)
-  > De klap van de degradatie is ‘ongelooflijk hard aangekomen’ bij NAC-trainer Carl Hoefkens. Maar of er door het vuurwerk en de daaropvolgende staking...
-- [Zak met geld én berg huiswerk voor Feyenoord, maar Robin van Persie weet zeker: ‘Ik ben volgend jaar ook trainer’](https://www.ad.nl/voetbal/zak-met-geld-en-berg-huiswerk-voor-feyenoord-maar-robin-van-persie-weet-zeker-ik-ben-volgend-jaar-ook-trainer~aed1ed80/)
-  > Feyenoord viert het bereiken van de tweede plek deze week met een trip naar Londen. Dat de club qua puntenaantal de slechtste nummer twee in jaren...
+- [LIVE Midden-Oosten | Trump noemt Iraans vredesvoorstel volkomen onacceptabel: ‘Ik vind het niets’](https://www.ad.nl/buitenland/live-midden-oosten-trump-noemt-iraans-vredesvoorstel-volkomen-onacceptabel-ik-vind-het-niets~ac528ac3/)
+  > De Amerikaanse president Donald Trump noemt het Iraanse voorstel aan de Verenigde Staten ‘volkomen onacceptabel‘. ‘Ik heb zojuist de reactie gelezen...
+- [Kevin Doets grijpt zes dagen na eerste PDC-titel in droomweek net naast eerste Euro Tour-zege](https://www.ad.nl/darts/kevin-doets-grijpt-zes-dagen-na-eerste-pdc-titel-in-droomweek-net-naast-eerste-euro-tour-zege~a5e8af41/)
+  > Kevin Doets heeft een historische week net niet kunnen bekronen met een nieuwe stunt. De darter uit Almere beleefde de week van zijn leven, waarin...
+- [Barça op titelkoers in Clásico tegen in crisis verkerend Real, Frenkie de Jong valt in](https://www.ad.nl/voetbal/barca-op-titelkoers-in-clasico-tegen-in-crisis-verkerend-real-frenkie-de-jong-valt-in~ad9e972f/)
+  > El Clásico is altijd een beladen confrontatie, maar vanavond staat de landstitel ook nog eens op het spel. FC Barcelona is bij een zege óf gelijkspel...
+- [Sebastiaan stond tussen harde kern Slavia bij ontspoorde derby van Praag: ‘Drie minuten geduld was te veel gevraagd’](https://www.ad.nl/voetbal/sebastiaan-stond-tussen-harde-kern-slavia-bij-ontspoorde-derby-van-praag-drie-minuten-geduld-was-te-veel-gevraagd~ae344a62/)
+  > Sebastiaan Helder (39) uit Hellendoorn stond zaterdagavond tussen de harde kern van Slavia Praag, dat tegen rivaal Sparta Praag op weg was naar het...
+- [Vernieti­gen­de cijfers voor Ajax: de pijnlijke gevolgen van de rake kopbal van Mike van der Hoorn](https://www.ad.nl/voetbal/vernietigende-cijfers-voor-ajax-de-pijnlijke-gevolgen-van-de-rake-kopbal-van-mike-van-der-hoorn~a06ed679/)
+  > Het Ajax-publiek hield tegen FC Utrecht lang hoop op een Champions League-ticket, maar keerde toch naar huis met de vrees zonder Europees voetbal te...
 
 ### Meest gelezen
 
