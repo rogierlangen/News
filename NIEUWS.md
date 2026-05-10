@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-05-2026 om 13:39*
+*Laatst bijgewerkt: 10-05-2026 om 14:57*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Nederlandse Hondius-passagiers vanuit Tenerife vertrokken naar Eindhoven](https://nos.nl/l/2613815)
+  > De Nederlandse passagiers die tot vandaag nog aan boord waren van het cruiseschip de Hondius zijn met het vliegtuig vertrokken vanaf Tenerife naar...
+- [Oorlog raakt Iraniërs hard in de portemonnee: 'Prijzen stijgen binnen een dag'](https://nos.nl/l/2613810)
+  > Ruim twee maanden nadat de VS en Israël de aanval openden op Iran, is het effect van de oorlog en de blokkade van de Straat van Hormuz goed voelbaar...
 - [15-jarige deelneemster overleden tijdens halve marathon in Leiden](https://nos.nl/l/2613797)
   > Tijdens de halve marathon in Leiden is een 15-jarige deelneemster uit Oegstgeest overleden. Dat meldt de organisatie. De hardloopster werd tijdens...
 - [Britse parachutisten naar afgelegen eiland voor man met hantavirus-symptomen](https://nos.nl/l/2613796)
   > Een team van militairen en artsen is aangekomen op een afgelegen eiland in de Atlantische Oceaan om een Britse man te helpen die misschien het...
 - [Nieuwe beelden van begin Tweede Wereldoorlog in Zuid-Limburg opgedoken](https://nos.nl/l/2613789)
   > Nieuwe filmbeelden laten zien hoe het Duitse leger Nederland binnendrong en op verzet stuitte in Zuid-Limburg. Tot nu toe zijn er van de strijd in...
-- [Politie vindt 340.000 euro cash en wapens in slaapkamer Zutphenaar](https://nos.nl/l/2613787)
-  > De politie heeft in de woning van een 23-jarige man uit Zutphen 340.000 euro contant geld gevonden. Agenten vielen bij de man binnen in een onderzoek...
-- [Belgische jongen (7) overlijdt na val uit springkussen](https://nos.nl/l/2613783)
-  > Een jongen van 7 is overleden na een ongeluk met een springkussen op een jeugdvoetbaltoernooi in het Belgische Hamme, in Oost-Vlaanderen. Een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Oorlog Oekraïne | Rusland en Oekraïne beschuldigen elkaar van schenden bestand, Duitsland sceptisch over voorstel Poetin](https://www.ad.nl/buitenland/live-oorlog-oekraine-rusland-en-oekraine-beschuldigen-elkaar-van-schenden-bestand-duitsland-sceptisch-over-voorstel-poetin~adfb97be/)
-  > Rusland en Oekraïne hebben elkaar beschuldigd van schendingen van het tijdelijke staakt-het-vuren. De landen gingen eerder op Amerikaans verzoek...
-- [Ajax opnieuw met Dolberg in spits tegen FC Utrecht, ook Gloukh start](https://www.ad.nl/voetbal/ajax-opnieuw-met-dolberg-in-spits-tegen-fc-utrecht-ook-gloukh-start~aa29535d/)
+- [Nigel Farage, de nieuwe premier van Engeland? Of toch maar niet?](https://www.ad.nl/buitenland/nigel-farage-de-nieuwe-premier-van-engeland-of-toch-maar-niet~aa818fe3/)
+  > De lokale Britse verkiezingen zijn uitgelopen op een monsterzege voor de rechtse populist Nigel Farage. Betekent dit dan automatisch dat hij de...
+- [Ajax zorgt vroeg in de wedstrijd voor eerste gevaar in cruciaal duel met FC Utrecht](https://www.ad.nl/voetbal/ajax-zorgt-vroeg-in-de-wedstrijd-voor-eerste-gevaar-in-cruciaal-duel-met-fc-utrecht~aa29535d/)
   > Ajax wil er alles aan doen om de play-offs voor Europees voetbal te vermijden. Dan moet er in eigen huis gewonnen worden FC Utrecht, dat zelf...
-- [Volgens Jeugdzorg was Bodine een probleemkind, zij draait het om: ‘Jeugdzorg beschadigt kinderen verder’](https://www.ad.nl/mezza/volgens-jeugdzorg-was-bodine-een-probleemkind-zij-draait-het-om-jeugdzorg-beschadigt-kinderen-verder~a4d01f26/)
-  > Van een onbevangen kind werd journalist Bodine van Someren (32) in 25 jaar tijd een vrouw die moest vechten voor haar bestaan. ‘Dit is een...
-- [Praat mee: er zijn te veel shows met bekende Nederlanders op tv](https://www.ad.nl/praat-mee/praat-mee-er-zijn-te-veel-shows-met-bekende-nederlanders-op-tv~ac80e1ba/)
-  > Wie zaterdagavond op prime time de tv aanzette, zag weer twee grote tv-shows met BN’ers. Ze scoorden allebei geen geweldige kijkcijfers. In de...
-- [Nederlanders gaan van boord cruiseschip, weken na virusuitbraak](https://www.ad.nl/binnenland/nederlanders-gaan-van-boord-cruiseschip-weken-na-virusuitbraak~a3f98549/)
-  > De eerste Nederlandse passagiers zijn van boord van het Hondius-schip gegaan. AD-verslaggever Raymond Boere is aanwezig bij de zwaarbeveiligde...
+- [Droomstart Volendam tegen Excelsior, volg hier de degradatiestrijd](https://www.ad.nl/voetbal/droomstart-volendam-tegen-excelsior-volg-hier-de-degradatiestrijd~a3515a8f/)
+  > Onder in de Vriendeloterij eredivisie spelen Excelsior en FC Volendam een onderling duel in strijd om lijfsbehoud. Telstar heeft ook nog grote kans...
+- [Rampstart van Feyenoord in duel waarin tweede plek veiliggesteld kan worden: AZ scoort binnen minuut](https://www.ad.nl/voetbal/rampstart-van-feyenoord-in-duel-waarin-tweede-plek-veiliggesteld-kan-worden-az-scoort-binnen-minuut~acae585d/)
+  > Het kan een mooie dag worden voor Feyenoord. Hoewel de achterstand op landskampioen PSV groot is, kunnen de Rotterdammers wel definitief een...
+- [Landskampioen PSV met 18-jarige basisdebutant op bezoek bij Go Ahead Eagles](https://www.ad.nl/voetbal/landskampioen-psv-met-18-jarige-basisdebutant-op-bezoek-bij-go-ahead-eagles~ae56d654/)
+  > Landskampioen PSV gaat op bezoek bij Go Ahead Eagles, waar de ploeg van Peter Bosz vorig jaar nog verloor (3-2). De club uit Deventer heeft zichzelf...
 
 ### Meest gelezen
 
@@ -47,7 +47,7 @@
 ### Laatste nieuws
 
 - [Wordt een renteverhoging het eerste wapenfeit van Kevin Warsh?](https://fd.nl/financiele-markten/1595945/wordt-een-renteverhoging-het-eerste-wapenfeit-van-kevin-warsh)
-  > De beoogde nieuwe Fed-voorzitter dankte zijn nominatie aan de mogelijkheden die hij zag om de rente te verlagen in de VS. Zorgen over inflatie lijken...
+  > De beoogde nieuwe Fed-voorzitter dankt zijn nominatie aan de mogelijkheden die hij zag om de rente te verlagen in de VS. Zorgen over inflatie lijken...
 - [Econowind: tegenvaller in nieuwe orders voor stalen ‘zeilen’](https://fd.nl/bedrijfsleven/1596049/econowind-tegenvaller-in-nieuwe-orders-voor-stalen-zeilen)
   > De producent uit Lelystad gaat snijden in de kosten nu een eerder verwachte groeiverdubbeling niet langer haalbaar is.
 - [Exploitant Mövenpick-hotels heeft miljoenen huurschuld bij eigenaar Deka](https://fd.nl/bedrijfsleven/1596053/exploitant-movenpick-hotels-heeft-miljoenen-huurschuld-bij-eigenaar-deka)
