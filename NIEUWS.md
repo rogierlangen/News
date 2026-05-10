@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-05-2026 om 08:57*
+*Laatst bijgewerkt: 10-05-2026 om 10:20*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Belgische jongen (7) overlijdt na val uit springkussen](https://nos.nl/l/2613783)
+  > Een jongen van 7 is overleden na een ongeluk met een springkussen op een jeugdvoetbaltoernooi in het Belgische Hamme, in Oost-Vlaanderen. Een...
 - [De Britse premier Starmer wankelt (weer), wat kan hem het laatste zetje geven?](https://nos.nl/l/2613780)
   > Wat gebeurt er met de Britse premier Starmer? Die vraag wordt voor de zoveelste keer gesteld na de dramatische verkiezingsnederlaag bij de lokale en...
 - [Aanslag in Pakistan kost veertien politieagenten het leven](https://nos.nl/l/2613774)
@@ -16,8 +18,6 @@
   > Goedemorgen! De passagiers van cruiseschip Hondius worden per vliegtuig naar Eindhoven gebracht. Verder is het een spannende voorlaatste speeldag in...
 - [Cruiseschip Hondius bij Tenerife, eerste groep passagiers van boord](https://nos.nl/l/2613767)
   > Een eerste groep passagiers is van boord van het Nederlandse cruiseschip Hondius gegaan. De passagiers worden naar de haven van Granadilla op...
-- [Van onze correspondent... Saskia Houttuin (Frankrijk)](https://nos.nl/l/2613764)
-  > Van onze correspondent... is een serie van de makers van podcast De Dag. Iedere zondag maken we kennis met een van de correspondenten van de NOS, het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Als Olivia Dean het hele concert alleen maar So Easy zou zingen, zou het al een prachtige avond zijn](https://www.ad.nl/show/als-olivia-dean-het-hele-concert-alleen-maar-so-easy-zou-zingen-zou-het-al-een-prachtige-avond-zijn~a904d1bc/)
-  > We waren nog maar net bekomen van Raye of de volgende soulzangeres uit Engeland stond alweer in de Ziggo Dome. Het optreden van Olilvia Dean was er...
-- [Slot plant grote renovatie bij Liverpool: Reijnen moet defensieve chaos stoppen, Dumfries en Van Hecke ook in beeld](https://www.ad.nl/voetbal/slot-plant-grote-renovatie-bij-liverpool-reijnen-moet-defensieve-chaos-stoppen-dumfries-en-van-hecke-ook-in-beeld~afd92211/)
-  > Arne Slot werkt aan een renovatieplan van Liverpool, dat zaterdag op Anfield tegen Chelsea (1-1) naliet zich definitief te verzekeren van Champions...
-- [Nederlandse opvarenden mogen als tweede van boord, na Spanjaarden: ‘Ze willen snel naar huis’](https://www.ad.nl/binnenland/nederlandse-opvarenden-mogen-als-tweede-van-boord-na-spanjaarden-ze-willen-snel-naar-huis~a3f98549/)
-  > De evacuatie van opvarenden van cruiseschip Hondius is een forse operatie, waarbij 23 landen betrokken zijn. De Spaanse gezondheidsminister Mónica...
-- [Welke inbouwkoelkast met vriezer scoort het beste cijfer? ‘Deze is stil en groot’](https://www.ad.nl/wonen/welke-inbouwkoelkast-met-vriezer-scoort-het-beste-cijfer-deze-is-stil-en-groot~a1bea5af/)
-  > Een inbouwkoelkast verdwijnt achter een meubelpaneel en is zo één met je keuken. Welke is stil, heeft genoeg vriesruimte en is energiezuinig?. De...
-- [Christina Curry en partner Kevin krijgen een meisje: ‘Ik heb zoveel liefde gevoeld’](https://www.ad.nl/show/christina-curry-en-partner-kevin-krijgen-een-meisje-ik-heb-zoveel-liefde-gevoeld~a7ff7517/)
-  > Christina Curry is in verwachting van een meisje. Dat maakte de dochter van Patricia Paay bekend via Instagram. Daar deelde ze beelden van de...
+- [Cesar Zuiderwijk mist zijn overleden maatje George Kooymans nog elke dag: ‘Het was een kanjer’](https://www.ad.nl/den-haag/cesar-zuiderwijk-mist-zijn-overleden-maatje-george-kooymans-nog-elke-dag-het-was-een-kanjer~a8c3b003/)
+  > Cesar Zuiderwijk heeft een heftig jaar achter de rug. Hij tobde met gezondheidsproblemen, moest afscheid nemen van zijn bandgenoot George Kooymans en...
+- [Zinderende strijd om plek 3 en volop spanning onderin: deze duels mag je niet missen op voorlaatste speeldag](https://www.ad.nl/voetbal/zinderende-strijd-om-plek-3-en-volop-spanning-onderin-deze-duels-mag-je-niet-missen-op-voorlaatste-speeldag~a46f9683/)
+  > Nog twee speelronden te gaan in de Vriendenloterij eredivisie en dus stijgt de spanning naar het kookpunt. Wat staat er nog op het spel tijdens de...
+- [Springkasteel ‘door wind de lucht in geblazen’ in België, Jean (7) overlijdt na zware val: ‘Een talent en een geweldige vriend’](https://www.ad.nl/buitenland/springkasteel-door-wind-de-lucht-in-geblazen-in-belgie-jean-7-overlijdt-na-zware-val-een-talent-en-een-geweldige-vriend~a2346f63/)
+  > Bij een tragisch ongeluk met een springkasteel op een voetbaltoernooi in het Belgische Hamme is zaterdag de 7-jarige Jean om het leven gekomen. Het...
+- [Winst voor Israël zou doemscenario zijn voor Eurovisie Songfestival: dan barst de bom](https://www.ad.nl/songfestival/winst-voor-israel-zou-doemscenario-zijn-voor-eurovisie-songfestival-dan-barst-de-bom~a1fecaec/)
+  > Nederland doet komende week niet mee aan het Eurovisie Songfestival in Wenen, en toch wordt dit een van de spannendste edities ooit. De toekomst van...
+- [UAE verliest na Vine en Soler ook Yates, Kelderman begint wel aan derde etappe in Bulgarije](https://www.ad.nl/giro/uae-verliest-na-vine-en-soler-ook-yates-kelderman-begint-wel-aan-derde-etappe-in-bulgarije~aefc9185/)
+  > De korte hellingen in de Giro d’Italia-etappe van gisteren stelden niet teleur, maar de sprinters zullen blij zijn dat zij vandaag waarschijnlijk...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Winst oliebedrijf Saudi Aramco flink gestegen](https://fd.nl/bedrijfsleven/1596108/winst-oliebedrijf-saudi-aramco-flink-gestegen)
+  > Het grootste oliebedrijf ter wereld profiteerde in het eerste kwartaal van het jaar van de hoge olieprijs.
+- [Premier Mark Carney runt Canada als een bedrijf](https://fd.nl/politiek/1595727/premier-mark-carney-runt-canada-als-een-bedrijf)
+  > Geconfronteerd met economische tegenwind en spanningen met de VS leunt de premier op een kleine groep vertrouwelingen om handelsdeals te sluiten en...
+- [Beëdigde premier Magyar start offensief tegen Orbán-netwerk](https://fd.nl/politiek/1596107/beedigde-premier-magyar-start-offensief-tegen-orban-netwerk)
+  > Magyar benadrukte zaterdag zijn intentie om het autocratische regime van Orbán te ontmantelen en corruptie onder zijn bewind te vervolgen.
+- [Woningfonds Amvest trekt wél nieuwe investeerders aan](https://fd.nl/bedrijfsleven/1595928/woningfonds-amvest-trekt-wel-nieuwe-investeerders-aan)
+  > Het woningfonds wist het aantal terugbetalingsverzoeken van beleggers vorig jaar flink terug te dringen. Terwijl beleggers uitstappen bij Vesteda,...
 - [Cruiseschip Hondius aangekomen in haven van Tenerife](https://fd.nl/samenleving/1596106/cruiseschip-hondius-aangekomen-in-haven-van-tenerife)
   > Een uitbraak van het hantavirus op het schip zorgde voor internationale onrust. De 147 opvarenden worden vandaag geëvacueerd.
-- [Bonden blij met aangescherpt wetsvoorstel voor meer rechten flexwerkers](https://fd.nl/politiek/1594142/bonden-blij-met-aangescherpt-wetsvoorstel-voor-meer-rechten-flexwerkers)
-  > Dinsdag stemt de Tweede Kamer over het wetsvoorstel dat meer rechten regelt voor flexwerkers. Dankzij een amendement kan de minister hard ingrijpen...
-- [De overstap van Donald Pols naar Tata Steel laat zien dat het systeem werkt](https://fd.nl/opinie/1596007/de-overstap-van-pols-laat-zien-dat-het-systeem-werkt)
-  > Voor een echte groene transitie zijn externe activisten én hervormers binnen het bedrijf nodig. Het binnenhalen van Donald Pols door vervuiler Tata...
-- [De golfsport zoekt liefhebbers, ook in Bruinisse](https://fd.nl/samenleving/1595845/de-golfsport-zoekt-liefhebbers-ook-in-bruinisse)
-  > De liefde voor golf gaat in golven: tijdens corona was het populair, daarna minder, nu weer wat meer. Ook bij golfclub Grevelingenhout groeit het...
-- [Rijke Europeanen kopen grond in Uruguay, als investering én als vluchthaven: ‘Ze zijn allemaal bang’](https://fd.nl/bedrijfsleven/1594967/rijke-europeanen-kopen-grond-in-uruguay-als-investering-en-als-vluchthaven-ze-zijn-allemaal-bang)
-  > Rijke Europeanen kopen landbouwgrond op de pampa in Uruguay. Naast een renderende investering biedt Uruguay zo een veilige vluchthaven, is de...
 
 ### Meest gelezen
 
