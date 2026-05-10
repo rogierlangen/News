@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-05-2026 om 20:54*
+*Laatst bijgewerkt: 10-05-2026 om 21:52*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [President Trump kraakt Irans tegenvoorstel voor beëindiging oorlog](https://nos.nl/l/2613889)
+  > De Amerikaanse president Trump heeft het Iraanse tegenvoorstel voor beëindiging van de oorlog in het Midden-Oosten naar de prullenbak verwezen....
 - [Letse defensieminister stapt op vanwege neergestorte Oekraïense drones](https://nos.nl/l/2613881)
   > In Letland is Andris Spruds opgestapt als minister van Defensie. Hij heeft zijn ontslag bekendgemaakt op een persconferentie. Spruds wordt verweten...
 - [Nederlandse cruisepassagiers geland in Eindhoven, gaan nu in thuisquarantaine](https://nos.nl/l/2613863)
@@ -16,8 +18,6 @@
   > Voor de kust van Qatar is een bulkschip getroffen door een drone of projectiel. Er was een korte tijd brand aan boord. Er zijn geen gewonden gemeld....
 - [Hemelvaartweek: fris en wisselvallig, dikke jas kan weer even uit de kast](https://nos.nl/l/2613839)
   > Een deel van Nederland gaat de nieuwe week met code geel beginnen. In de provincies Noord-Holland, Friesland, Groningen en Flevoland en ook op de...
-- [Tientallen aanhoudingen bij azc-protest Apeldoorn, vuurwerk gegooid naar agenten](https://nos.nl/l/2613829)
-  > Bij een demonstratie tegen de komst van een asielzoekerscentrum in Apeldoorn zijn gisteravond 26 mensen aangehouden, meldt de politie. Eén man is...
 
 ### Meest gelezen
 
@@ -27,12 +27,12 @@
 
 ### Laatste nieuws
 
-- [LIVE Midden-Oosten | Trump noemt Iraans vredesvoorstel volkomen onacceptabel: ‘Ik vind het niets’](https://www.ad.nl/buitenland/live-midden-oosten-trump-noemt-iraans-vredesvoorstel-volkomen-onacceptabel-ik-vind-het-niets~ac528ac3/)
+- [Barça kroont zich tot kampioen tegen in crisis verkerend Real Madrid, derde Spaanse titel voor Frenkie de Jong](https://www.ad.nl/voetbal/barca-kroont-zich-tot-kampioen-tegen-in-crisis-verkerend-real-madrid-derde-spaanse-titel-voor-frenkie-de-jong~ad9e972f/)
+  > FC Barcelona heeft in El Clásico tegen aartsrivaal Real Madrid de landstitel veroverd. Barça had genoeg aan een gelijkspel, maar won dikverdiend in...
+- [Trump noemt Iraans vredesvoorstel volkomen onacceptabel: ‘Ik vind het niets’](https://www.ad.nl/buitenland/trump-noemt-iraans-vredesvoorstel-volkomen-onacceptabel-ik-vind-het-niets~ac528ac3/)
   > De Amerikaanse president Donald Trump noemt het Iraanse voorstel aan de Verenigde Staten ‘volkomen onacceptabel‘. ‘Ik heb zojuist de reactie gelezen...
-- [Kevin Doets grijpt zes dagen na eerste PDC-titel in droomweek net naast eerste Euro Tour-zege](https://www.ad.nl/darts/kevin-doets-grijpt-zes-dagen-na-eerste-pdc-titel-in-droomweek-net-naast-eerste-euro-tour-zege~a5e8af41/)
+- [Kevin Doets beleeft week van zijn leven met tweede finale in zes dagen, maar Euro Tour-titel ontglipt](https://www.ad.nl/darts/kevin-doets-beleeft-week-van-zijn-leven-met-tweede-finale-in-zes-dagen-maar-euro-tour-titel-ontglipt~a5e8af41/)
   > Kevin Doets heeft een historische week net niet kunnen bekronen met een nieuwe stunt. De darter uit Almere beleefde de week van zijn leven, waarin...
-- [Barça op titelkoers in Clásico tegen in crisis verkerend Real, Frenkie de Jong valt in](https://www.ad.nl/voetbal/barca-op-titelkoers-in-clasico-tegen-in-crisis-verkerend-real-frenkie-de-jong-valt-in~ad9e972f/)
-  > El Clásico is altijd een beladen confrontatie, maar vanavond staat de landstitel ook nog eens op het spel. FC Barcelona is bij een zege óf gelijkspel...
 - [Sebastiaan stond tussen harde kern Slavia bij ontspoorde derby van Praag: ‘Drie minuten geduld was te veel gevraagd’](https://www.ad.nl/voetbal/sebastiaan-stond-tussen-harde-kern-slavia-bij-ontspoorde-derby-van-praag-drie-minuten-geduld-was-te-veel-gevraagd~ae344a62/)
   > Sebastiaan Helder (39) uit Hellendoorn stond zaterdagavond tussen de harde kern van Slavia Praag, dat tegen rivaal Sparta Praag op weg was naar het...
 - [Vernieti­gen­de cijfers voor Ajax: de pijnlijke gevolgen van de rake kopbal van Mike van der Hoorn](https://www.ad.nl/voetbal/vernietigende-cijfers-voor-ajax-de-pijnlijke-gevolgen-van-de-rake-kopbal-van-mike-van-der-hoorn~a06ed679/)
