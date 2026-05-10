@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-05-2026 om 16:00*
+*Laatst bijgewerkt: 10-05-2026 om 17:54*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Bulkschip bij Qatar getroffen, ook VAE en Koeweit melden droneaanvallen](https://nos.nl/l/2613841)
+  > Voor de kust van Qatar is een bulkschip getroffen door een drone of projectiel. Er was een korte tijd brand aan boord. Er zijn geen gewonden gemeld....
+- [Hemelvaartweek: fris en wisselvallig, dikke jas kan weer even uit de kast](https://nos.nl/l/2613839)
+  > Een deel van Nederland gaat de nieuwe week met code geel beginnen. In de provincies Noord-Holland, Friesland, Groningen en Flevoland en ook op de...
 - [Tientallen aanhoudingen bij azc-protest Apeldoorn, vuurwerk gegooid naar agenten](https://nos.nl/l/2613829)
   > Bij een demonstratie tegen de komst van een asielzoekerscentrum in Apeldoorn zijn gisteravond 26 mensen aangehouden, meldt de politie. Eén man is...
-- [Leiden Marathon na overlijden 15-jarige loopster: 'Ergste wat je kan overkomen'](https://nos.nl/l/2613824)
+- [Leiden Marathon na overlijden 15-jarige loopster: 'Afschuwelijk nieuws'](https://nos.nl/l/2613824)
   > "Dit is het ergste wat je kan overkomen", zegt voorzitter Tjeerd Scheffer van de Leiden Marathon nadat een meisje van 15 overleed tijdens haar...
 - [Nederlandse Hondius-passagiers vanuit Tenerife vertrokken naar Eindhoven](https://nos.nl/l/2613815)
   > De acht Nederlandse passagiers die tot vandaag nog aan boord waren van het cruiseschip de Hondius zijn met het vliegtuig vertrokken vanaf Tenerife...
-- [Oorlog raakt Iraniërs hard in de portemonnee: 'Prijzen stijgen binnen een dag'](https://nos.nl/l/2613810)
-  > Ruim twee maanden nadat de VS en Israël de aanval openden op Iran, is het effect van de oorlog en de blokkade van de Straat van Hormuz goed voelbaar...
-- [15-jarige deelneemster overleden tijdens halve marathon in Leiden](https://nos.nl/l/2613797)
-  > Tijdens de halve marathon in Leiden is een 15-jarige deelneemster uit Oegstgeest overleden. Dat meldt de organisatie. De hardloopster werd tijdens...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [23-jarige Zutphenaar heeft 340.000 euro cash, twee zilverbaren en wapens in slaapkamer](https://www.ad.nl/binnenland/23-jarige-zutphenaar-heeft-340-000-euro-cash-twee-zilverbaren-en-wapens-in-slaapkamer~aee4263d/)
-  > Een doos vol biljetten van 50 euro. Allemaal in keurige stapeltjes met elastiekjes erom. In een woning in Zutphen vinden agenten een grote...
-- [PSV vlak voor rust op voorsprong tegen Go Ahead: Pepi kopt raak](https://www.ad.nl/voetbal/psv-vlak-voor-rust-op-voorsprong-tegen-go-ahead-pepi-kopt-raak~ae56d654/)
-  > Landskampioen PSV gaat op bezoek bij Go Ahead Eagles, waar de ploeg van Peter Bosz vorig jaar nog verloor (3-2). De club uit Deventer heeft zichzelf...
-- [Feyenoord ontsnapt vlak na rust aan grotere achterstand in duel waarin CL-ticket gepakt kan worden](https://www.ad.nl/voetbal/feyenoord-ontsnapt-vlak-na-rust-aan-grotere-achterstand-in-duel-waarin-cl-ticket-gepakt-kan-worden~acae585d/)
-  > Feyenoord kan vandaag een Champions League-ticket pakken voor volgend seizoen. Dan moeten de Rotterdammers zien af te rekenen met AZ. De start was...
-- [Arsenal dicht bij openingstreffer, West Ham houdt miraculeus stand dankzij doelman](https://www.ad.nl/voetbal/arsenal-dicht-bij-openingstreffer-west-ham-houdt-miraculeus-stand-dankzij-doelman~afccc20e/)
-  > Voor Arsenal wordt het een cruciale maand. Nadat de ploeg van Mikel Arteta de Champions League-finale bereikte, moet het nu op bezoek bij West Ham...
-- [In beschermende pakken van boord: zo werden Nederlanders na dodelijke virusuitbraak teruggevlogen naar huis](https://www.ad.nl/nieuws/in-beschermende-pakken-van-boord-zo-werden-nederlanders-na-dodelijke-virusuitbraak-teruggevlogen-naar-huis~afe955fb/)
-  > Tenerife nam extreme maatregelen. Niemand mocht met de opvarenden van de MV Hondius in contact komen. Onder strikte begeleiding zijn de eerste...
+- [Ambulances klaar op Eindhoven Airport om opvarenden Hondius te vervoeren](https://www.ad.nl/binnenland/ambulances-klaar-op-eindhoven-airport-om-opvarenden-hondius-te-vervoeren~a3f98549/)
+  > De Nederlandse repatriëringsvlucht met passagiers die eerder vandaag werden geëvacueerd van het cruiseschip m/v Hondius is vertrokken vanaf Tenerife....
+- [Barça kan titel pakken in Clásico: Frenkie de Jong op bank, Tchouaméni ondanks knokpartij met ploeggenoot in Real-basis](https://www.ad.nl/voetbal/barca-kan-titel-pakken-in-clasico-frenkie-de-jong-op-bank-tchouameni-ondanks-knokpartij-met-ploeggenoot-in-real-basis~ad9e972f/)
+  > El Clásico is altijd een beladen confrontatie, maar vanavond staat de landstitel ook nog eens op het spel. FC Barcelona is bij een zege verzekerd van...
+- [Bedrijven moeten zich voorbereiden op ‘black-out’: ‘Aanvallen gaan steeds verder’](https://www.ad.nl/binnenland/bedrijven-moeten-zich-voorbereiden-op-black-out-aanvallen-gaan-steeds-verder~a9295604/)
+  > Bedrijven zijn volstrekt onvoldoende voorbereid op noodsituaties. Slechts een vijfde van de ondernemers heeft voorzorgsmaatregelen genomen. Dat...
+- [Arsenal ontsnapt in blessuretijd na minutenlange VAR-ingreep en pakt gouden punten in titelstrijd](https://www.ad.nl/voetbal/arsenal-ontsnapt-in-blessuretijd-na-minutenlange-var-ingreep-en-pakt-gouden-punten-in-titelstrijd~afccc20e/)
+  > Arsenal heeft een nieuwe stap gezet richting de eerste landstitel sinds 2004. De ploeg van Mikel Arteta won een zinderend duel met West Ham met 0-1,...
+- [Apart slapen: ongezellig of goed voor je relatie? ‘Probeer het eens een maand’](https://www.ad.nl/gezond/apart-slapen-ongezellig-of-goed-voor-je-relatie-probeer-het-eens-een-maand~a70669c5/)
+  > Ieder een eigen (dek)bed of zelfs een aparte slaapkamer. Klinkt ongezellig en niet sexy. Toch is de slaapscheiding, ofwel het apart slapen, in...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Air France-KLM overweegt naamswijziging](https://fd.nl/bedrijfsleven/1595951/air-france-klm-overweegt-naamswijziging)
+  > Het idee komt voort uit de wens om een meerderheidsbelang in rivaal SAS te verwerven.
 - [Russische tegoeden alsnog confisqueren? ‘Kan beleggers afschrikken’](https://fd.nl/financiele-markten/1596076/russische-tegoeden-alsnog-confisqueren-kan-beleggers-afschrikken)
   > De discussie in Europa over inname van bevroren Russische tegoeden steekt de kop weer op. Ceo Valerie Urbain van Euroclear, waar de miljarden staan...
 - [Partijgenoten zagen aan stoelpoten Keir Starmer na verkiezingsnederlaag](https://fd.nl/politiek/1595946/partijgenoten-zagen-aan-stoelpoten-keir-starmer-na-verkiezingsnederlaag)
@@ -54,8 +56,6 @@
   > Door een kabel te trekken naar een nabijgelegen zonnepark kan NRG Pallas ook de komende jaren medische isotopen blijven maken voor de behandeling van...
 - [Wordt een renteverhoging het eerste wapenfeit van Kevin Warsh?](https://fd.nl/financiele-markten/1595945/wordt-een-renteverhoging-het-eerste-wapenfeit-van-kevin-warsh)
   > De beoogde nieuwe Fed-voorzitter dankt zijn nominatie aan de mogelijkheden die hij zag om de rente te verlagen in de VS. Zorgen over inflatie lijken...
-- [Econowind: tegenvaller in nieuwe orders voor stalen ‘zeilen’](https://fd.nl/bedrijfsleven/1596049/econowind-tegenvaller-in-nieuwe-orders-voor-stalen-zeilen)
-  > De producent uit Lelystad gaat snijden in de kosten nu een eerder verwachte groeiverdubbeling niet langer haalbaar is.
 
 ### Meest gelezen
 
