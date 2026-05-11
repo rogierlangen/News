@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-05-2026 om 15:57*
+*Laatst bijgewerkt: 11-05-2026 om 18:00*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Onderzoek naar NPO: kwaliteit ON! onder druk en te veel 'kapiteins' bij omroepen](https://nos.nl/l/2613968)
-  > De betrouwbaarheid van de nieuwsvoorziening van omroep Ongehoord Nederland (ON!) staat onder druk. Die conclusie trekt een evaluatiecommissie in een...
-- [OM: verdachte van aanslag op D66-partijkantoor had terroristisch motief](https://nos.nl/l/2613959)
-  > De man die werd opgepakt na een explosie bij het D66-partijkantoor in Den Haag had een terroristisch oogmerk, zegt het Openbaar Ministerie. Het...
-- [Poetin draagt EU-onderhandelaar voor vredesbesprekingen voor, Europa 'not amused'](https://nos.nl/l/2613949)
-  > De suggestie van de Russische president Poetin om de Duitse oud-bondskanselier Schröder te benoemen tot onderhandelaar over Oekraïne namens de...
-- [Twaalf aanhoudingen bij derde azc-protest op rij in Apeldoorn](https://nos.nl/l/2613946)
-  > De politie heeft gisteravond opnieuw mensen aangehouden bij een demonstratie tegen de komst van een asielzoekerscentrum in Apeldoorn. In totaal zijn...
-- [Kabinet komt 'binnen paar weken' met voorstel na ultimatum vakbonden](https://nos.nl/l/2613945)
-  > Het kabinet komt binnen een aantal weken met een voorstel dat de werkgevers en werknemers weer aan tafel moet krijgen. Dat zegt minister Vijlbrief...
+- ['Overleden hardloopster (15) heel sportief', maar altijd extra risico jonge sporter](https://nos.nl/l/2613989)
+  > Het is nog niet bekend wat heeft geleid tot het overlijden van een meisje van 15 bij een hardloopevenement, gisteren in Leiden. Het meisje liep een...
+- [Vrouwen lastiggevallen bij Sloterplas in Amsterdam, politie zet extra agenten in](https://nos.nl/l/2613988)
+  > In iets meer dan twee maanden tijd zijn tientallen vrouwen lastiggevallen rondom de Sloterplas in Amsterdam. De vrouwen zijn onder meer uitgescholden...
+- [Ere Zilveren Nipkowschijf voor NOS Jeugdjournaal](https://nos.nl/l/2613985)
+  > Het NOS Jeugdjournaal krijgt de prestigieuze Ere Zilveren Nipkowschijf. Dat is zojuist bekendgemaakt door Eva Jinek in de talkshow Eva. Het...
+- [Wenen op scherp voor beladen jubileum Eurovisie Songfestival](https://nos.nl/l/2613981)
+  > In Oostenrijk is de week van het Eurovisie Songfestival afgetrapt. De 70ste editie van het Europese liedjesfestijn moet een groots jubileum opleveren...
+- [Opnieuw meer tieners verdacht van zware misdrijven: 'Zorgelijke ontwikkeling'](https://nos.nl/l/2613980)
+  > Het aantal tieners dat wordt verdacht van zware misdrijven is vorig jaar opnieuw gestegen. Dat meldt het Openbaar Ministerie in het vandaag...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dick Advocaat toch met Curaçao naar het WK, Fred Rutten trekt zich terug](https://www.ad.nl/voetbal/dick-advocaat-toch-met-curacao-naar-het-wk-fred-rutten-trekt-zich-terug~a63ed30f8/)
-  > Dick Advocaat keert per direct toch terug als bondscoach van Curaçao. De 78-jarige Hagenaar lost Fred Rutten af, die hem opvolgde toen Advocaat in...
-- [Actievoerders zeggen op te komen voor de beschaving, maar vormen zelf een bedreiging](https://www.ad.nl/binnenland/actievoerders-zeggen-op-te-komen-voor-de-beschaving-maar-vormen-zelf-een-bedreiging~a514db61/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Familie reageert op overlijden Rosalie (15) bij halve marathon Leiden: ‘Organisatie treft geen enkele blaam’](https://www.ad.nl/binnenland/familie-reageert-op-overlijden-rosalie-15-bij-halve-marathon-leiden-organisatie-treft-geen-enkele-blaam~a6f496a1/)
-  > Het meisje dat zondag overleed bij de halve marathon in Leiden is de 15-jarige Rosalie. De familie van het meisje laat in een verklaring weten dat ze...
-- [Droomreis Jolanda (64) verandert in nachtmerrie op cruiseschip: ‘Na de derde zieke gingen alle alarmbellen af’](https://www.ad.nl/binnenland/droomreis-jolanda-64-verandert-in-nachtmerrie-op-cruiseschip-na-de-derde-zieke-gingen-alle-alarmbellen-af~a0cf3125/)
-  > Jolanda Balm stapte samen met haar man Oscar aan boord van de MV Hondius, voor een cruise langs afgelegen eilanden met zeldzame vogels. Onvergetelijk...
-- [Giftige manosfeer wint terrein op scholen: ‘Leerling zei dat een vrouw gewoon beschikbaar moet zijn voor hem’](https://www.ad.nl/politiek/giftige-manosfeer-wint-terrein-op-scholen-leerling-zei-dat-een-vrouw-gewoon-beschikbaar-moet-zijn-voor-hem~ac4daf55/)
-  > Vrouwen zijn minderwaardig, homo’s zijn zwak en mannen moeten op en top gespierd zijn: giftige denkbeelden van de ‘manosfeer’ dringen door op...
+- [Giro-start in Bulgarije zorgt voor ingewikkelde logistieke operatie: ‘Dit hebben we nog nooit meegemaakt’](https://www.ad.nl/giro/giro-start-in-bulgarije-zorgt-voor-ingewikkelde-logistieke-operatie-dit-hebben-we-nog-nooit-meegemaakt~ab8ba608/)
+  > Per vliegtuig, bus en boot heeft het hele Giro-peloton zich na de derde etappe van Bulgarije naar het zuiden van Italië moeten verplaatsen. Een...
+- [Ere Zilveren Nipkowschijf voor NOS Jeugdjournaal: ‘Houdt jong en oud bij de les’](https://www.ad.nl/show/ere-zilveren-nipkowschijf-voor-nos-jeugdjournaal-houdt-jong-en-oud-bij-de-les~a975c66b/)
+  > Het jubilerende NOS Jeugdjournaal is bekroond met de Ere Zilveren Nipkowschijf. Dat maakte Eva Jinek vanavond bekend in haar talkshow op NPO 1. Met...
+- [8 tips die écht helpen tegen lage rugpijn: ‘Het advies om te rusten is allang achterhaald’](https://www.ad.nl/gezond/8-tips-die-echt-helpen-tegen-lage-rugpijn-het-advies-om-te-rusten-is-allang-achterhaald~aeffeb09/)
+  > 60 tot 90 procent van de Nederlanders krijgt ooit te maken met lage rugklachten. En de meesten doen precies het verkeerde: rusten, een scan laten...
+- [Frenkie de Jong geniet van huldiging Barcelona in open bus: ‘De supporters steunen ons het hele seizoen’](https://www.ad.nl/voetbal/frenkie-de-jong-geniet-van-huldiging-barcelona-in-open-bus-de-supporters-steunen-ons-het-hele-seizoen~a80c9bbc/)
+  > FC Barcelona pakte zondagavond in El Clásico tegen Real Madrid de Spaanse landstitel door in eigen huis met 2-0 te winnen. Een dag later liep de stad...
+- [Hondius meert aan op Tenerife vanwege harde wind, opvarenden van boord gehaald](https://www.ad.nl/binnenland/hondius-meert-aan-op-tenerife-vanwege-harde-wind-opvarenden-van-boord-gehaald~a3f98549/)
+  > Nu de Hondius is aangemeerd in de haven van Granadilla op Tenerife, worden opvarenden aan wal gehaald. Eerder gebeurde dat nog met behulp van een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [ACM: tankstations verdienen niet extra ondanks hogere pompprijzen](https://fd.nl/economie/1596195/acm-tankstations-verdienen-niet-extra-ondanks-hogere-pompprijzen)
-  > De spanningen in het Midden-Oosten hebben de olie- en brandstofprijzen fors opgedreven. Vooral raffinaderijen en olieconcerns verdienen daaraan,...
-- [Damen Shipyards levert eerste schip voor Taiwanees windpark](https://fd.nl/bedrijfsleven/1596156/damen-shipyards-levert-twee-schepen-voor-taiwanees-windpark)
-  > Het Nederlandse scheepvaartbedrijf heeft één van twee schepen afgeleverd in Vietnam, aan een Japans-Taiwanese joint-venture in de offshore...
-- [Eindhovens Eyeo haalt €40 mln op om camera’s ‘drie keer beter te maken’](https://fd.nl/tech-en-innovatie/1596197/eindhovens-eyeo-haalt-40-mln-op-om-cameras-drie-keer-beter-te-maken)
-  > Het bedrijf heeft een investering gekregen van €40 mln voor zijn technologie om beeldsensoren krachtiger te maken.
-- [EU wijst suggestie van Poetin af om via Schröder te onderhandelen](https://fd.nl/politiek/1596196/eu-wijst-suggestie-van-poetin-af-om-via-schroder-te-onderhandelen)
-  > De Europese buitenlandministers betwijfelen of de Russische president echt klaar is om te onderhandelen over vrede in Oekraïne.
-- [Wie is ‘Judge Jeanine’ die al bijna veertig jaar trouw aan Trump is?](https://fd.nl/politiek/1596136/wie-is-judge-jeanine-die-al-bijna-veertig-jaar-trouw-aan-trump-is)
-  > Dat de voormalige presentatrice van Fox News in de ogen van critici op tv geregeld over de schreef ging, ziet ze niet als haar probleem.
+- [Berlijn moet toon matigen bij debat over Commerzbank](https://fd.nl/opinie/1596178/berlijn-moet-toon-matigen-bij-debat-over-commerzbank)
+  > Doorslaggevend bij een overname van Commerzbank zou moeten zijn of aandeelhouders het plan van UniCredit geloofwaardig vinden en het bod voldoende.
+- [Vastned bevestigt winstverwachting na stabiel eerste kwartaal](https://fd.nl/bedrijfsleven/1596199/vastned-bevestigt-winstverwachting-na-stabiel-eerste-kwartaal)
+  > Wel verwacht de vastgoedbelegger een mogelijke impact op de resultaten door de geopolitieke onrust en een dalend consumentenvertrouwen.
+- [Techbedrijf Bird schrapt 20% van de banen](https://fd.nl/tech-en-innovatie/1596203/techbedrijf-bird-schrapt-20-van-de-banen)
+  > Ongeveer de helft van de ontslagen valt in Nederland. Volgens ceo Robert Vis is de ontslagronde het gevolg van het verschuiven van de bedrijfsfocus...
+- [Duits TKMS wil geen biedingenstrijd rond German Naval Yards](https://fd.nl/bedrijfsleven/1596200/duits-tkms-wil-geen-biedingenstrijd-rond-german-naval-yards)
+  > Het Duitse TKMS zegt geen biedingsstrijd met Rheinmetall te willen voor de overname van GNYK.
+- [EU voert sancties in tegen gewelddadige Israëlische kolonisten op Westelijke Jordaanoever](https://fd.nl/politiek/1596198/eu-voert-sancties-in-tegen-gewelddadige-israelische-kolonisten-op-westelijke-jordaanoever)
+  > De maatregel kan er komen, doordat Hongarije na meer dan een jaar zijn verzet heeft laten varen. Drie kolonisten en vier kolonistengroepen komen op...
 
 ### Meest gelezen
 
