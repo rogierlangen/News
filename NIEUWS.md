@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-05-2026 om 12:14*
+*Laatst bijgewerkt: 11-05-2026 om 15:57*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Premier Starmer in grote speech na nederlaag: 'Ga critici tegendeel bewijzen'](https://nos.nl/l/2613942)
-  > De Britse premier Starmer heeft in zijn eerste grote toespraak na de dramatische verkiezingsnederlaag van zijn Labour-partij de verantwoordelijkheid...
-- [Vliegtuig ontruimd na verontrustende wifi-naam: 'Er is een bom aan boord'](https://nos.nl/l/2613941)
-  > Een KLM-vlucht van Málaga naar Schiphol is zaterdagavond uren vertraagd na een bommelding. Aanleiding was een dreigende tekst die zichtbaar was via...
-- [Filipijns parlement stemt voor afzetting vicepresident Duterte](https://nos.nl/l/2613936)
-  > Een grote meerderheid van het Filipijnse Huis van Afgevaardigden heeft gestemd voor de afzetting van vicepresident Sara Duterte. Zij wordt verdacht...
-- [Verdwenen schilderij Goudstikker duikt op bij nazaat Nederlandse collaborateur](https://nos.nl/l/2613935)
-  > Een verdwenen schilderij uit de collectie van de Joodse kunsthandelaar Jacques Goudstikker blijkt in bezit te zijn van nazaten van een van de...
-- [Thaise oud-premier Thaksin op borgtocht vrijgelaten, moet thuisblijven met enkelband](https://nos.nl/l/2613929)
-  > De Thaise oud-premier Thaksin Shinawatra is weer op vrije voeten. Thaksin werd veroordeeld tot een gevangenisstraf van een jaar voor corruptie, maar...
+- [Onderzoek naar NPO: kwaliteit ON! onder druk en te veel 'kapiteins' bij omroepen](https://nos.nl/l/2613968)
+  > De betrouwbaarheid van de nieuwsvoorziening van omroep Ongehoord Nederland (ON!) staat onder druk. Die conclusie trekt een evaluatiecommissie in een...
+- [OM: verdachte van aanslag op D66-partijkantoor had terroristisch motief](https://nos.nl/l/2613959)
+  > De man die werd opgepakt na een explosie bij het D66-partijkantoor in Den Haag had een terroristisch oogmerk, zegt het Openbaar Ministerie. Het...
+- [Poetin draagt EU-onderhandelaar voor vredesbesprekingen voor, Europa 'not amused'](https://nos.nl/l/2613949)
+  > De suggestie van de Russische president Poetin om de Duitse oud-bondskanselier Schröder te benoemen tot onderhandelaar over Oekraïne namens de...
+- [Twaalf aanhoudingen bij derde azc-protest op rij in Apeldoorn](https://nos.nl/l/2613946)
+  > De politie heeft gisteravond opnieuw mensen aangehouden bij een demonstratie tegen de komst van een asielzoekerscentrum in Apeldoorn. In totaal zijn...
+- [Kabinet komt 'binnen paar weken' met voorstel na ultimatum vakbonden](https://nos.nl/l/2613945)
+  > Het kabinet komt binnen een aantal weken met een voorstel dat de werkgevers en werknemers weer aan tafel moet krijgen. Dat zegt minister Vijlbrief...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Mysterieuze pieptoon houdt dorp wakker: ‘Het is doordringend en irritant’](https://www.ad.nl/binnenland/mysterieuze-pieptoon-houdt-dorp-wakker-het-is-doordringend-en-irritant~a30294ac/)
-  > Een pieptoon die steeds harder wordt en je ’s nachts wakker houdt: het is dagelijkse kost voor inwoners van Koudekerk. Maar zorgen dat het geluid...
-- [Gedegradeerd NAC moet restant van gestaakt thuisduel met Heerenveen uitspelen in Friesland](https://www.ad.nl/voetbal/gedegradeerd-nac-moet-restant-van-gestaakt-thuisduel-met-heerenveen-uitspelen-in-friesland~a3fa3c95/)
-  > De voorlaatste speelronde in de eredivisie krijgt een opvallend staartje. De thuiswedstrijd van NAC tegen Heerenveen werd zondagmiddag definitief...
-- [Verkeersregelaar doet aangifte na ‘poging doodslag’ op A2, stel reageert dat filmpje ‘niet hele verhaal laat zien’](https://www.ad.nl/auto/verkeersregelaar-doet-aangifte-na-poging-doodslag-op-a2-stel-reageert-dat-filmpje-niet-hele-verhaal-laat-zien~aaa799c5/)
-  > De verkeersregelaar die zondag op de motorkap van een auto werd meegesleurd na een ruzie met een stel op de A2 bij knooppunt Everdingen, gaat...
-- [Kimberley Klaver onthult geslacht derde kindje en Roxeanne Hazes zingt liedje voor vader](https://www.ad.nl/show/kimberley-klaver-onthult-geslacht-derde-kindje-en-roxeanne-hazes-zingt-liedje-voor-vader~a42085f1/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Gradus Kraus sloeg tegenstander knock-out met gebroken hand: ‘Voelde gelijk dat het niet goed zat’](https://www.ad.nl/vechtsport/gradus-kraus-sloeg-tegenstander-knock-out-met-gebroken-hand-voelde-gelijk-dat-het-niet-goed-zat~ae3c26e2/)
-  > Gradus Kraus (24) moet het - tot zijn eigen afgrijzen - even rustig aan doen. De Osse bokssensatie zorgde zaterdagavond in Rotterdam voor spektakel...
+- [Dick Advocaat toch met Curaçao naar het WK, Fred Rutten trekt zich terug](https://www.ad.nl/voetbal/dick-advocaat-toch-met-curacao-naar-het-wk-fred-rutten-trekt-zich-terug~a63ed30f8/)
+  > Dick Advocaat keert per direct toch terug als bondscoach van Curaçao. De 78-jarige Hagenaar lost Fred Rutten af, die hem opvolgde toen Advocaat in...
+- [Actievoerders zeggen op te komen voor de beschaving, maar vormen zelf een bedreiging](https://www.ad.nl/binnenland/actievoerders-zeggen-op-te-komen-voor-de-beschaving-maar-vormen-zelf-een-bedreiging~a514db61/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [Familie reageert op overlijden Rosalie (15) bij halve marathon Leiden: ‘Organisatie treft geen enkele blaam’](https://www.ad.nl/binnenland/familie-reageert-op-overlijden-rosalie-15-bij-halve-marathon-leiden-organisatie-treft-geen-enkele-blaam~a6f496a1/)
+  > Het meisje dat zondag overleed bij de halve marathon in Leiden is de 15-jarige Rosalie. De familie van het meisje laat in een verklaring weten dat ze...
+- [Droomreis Jolanda (64) verandert in nachtmerrie op cruiseschip: ‘Na de derde zieke gingen alle alarmbellen af’](https://www.ad.nl/binnenland/droomreis-jolanda-64-verandert-in-nachtmerrie-op-cruiseschip-na-de-derde-zieke-gingen-alle-alarmbellen-af~a0cf3125/)
+  > Jolanda Balm stapte samen met haar man Oscar aan boord van de MV Hondius, voor een cruise langs afgelegen eilanden met zeldzame vogels. Onvergetelijk...
+- [Giftige manosfeer wint terrein op scholen: ‘Leerling zei dat een vrouw gewoon beschikbaar moet zijn voor hem’](https://www.ad.nl/politiek/giftige-manosfeer-wint-terrein-op-scholen-leerling-zei-dat-een-vrouw-gewoon-beschikbaar-moet-zijn-voor-hem~ac4daf55/)
+  > Vrouwen zijn minderwaardig, homo’s zijn zwak en mannen moeten op en top gespierd zijn: giftige denkbeelden van de ‘manosfeer’ dringen door op...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Alphabet zit Nvidia op de hielen als ’s werelds waardevolste bedrijf](https://fd.nl/financiele-markten/1596140/alphabet-zit-nvidia-op-de-hielen-als-swerelds-waardevolste-bedrijf)
-  > Het Gemini-taalmodel. De Google Cloud. AI-chips. Alphabet heeft het allemaal. Beleggers waarderen dat, zeggen analisten, en dat is te zien aan de...
-- [Lagarde vindt invoering digitale euro te lang duren](https://fd.nl/financiele-markten/1595971/dominante-dollar-dwarsboomt-lagardes-ambities-voor-digitale-euro)
-  > In de wedloop over de toekomst van geld heeft de Amerikaanse dollar tot frustratie van ECB-president Christine Lagarde een enorme voorsprong. ‘De...
-- [Prosus doet opeens zaken met een activist bij Delivery Hero](https://fd.nl/financiele-markten/1596146/prosus-doet-opeens-zaken-met-een-activist-bij-delivery-hero)
-  > De eigenaar van Thuisbezorgd.nl moet zijn belang in de Duitse maaltijdbezorger op last van de Europese Commissie terugbrengen. De koper van een...
-- [De Belastingdienst is niet het echte probleem](https://fd.nl/financiele-markten/1596143/de-belastingdienst-is-niet-het-echte-probleem)
-  > Ons fiscale stelsel kampt met groeiende complexiteit. De oorzaak ligt in het parlement en de politieke drang om allerlei maatschappelijke pijntjes te...
-- [ECB-topfunctionaris: ‘Duitsers moeten verzet staken tegen bankenfusie’](https://fd.nl/financiele-markten/1596144/ecb-topfunctionaris-duitsers-moeten-verzet-staken-tegen-bankenfusie)
-  > Volgens ECB-vicepresident Luis de Guindos past de tegenwerking van Commerzbank en de Duitse regering tegen het vijandelijke bod door UniCredit niet...
+- [ACM: tankstations verdienen niet extra ondanks hogere pompprijzen](https://fd.nl/economie/1596195/acm-tankstations-verdienen-niet-extra-ondanks-hogere-pompprijzen)
+  > De spanningen in het Midden-Oosten hebben de olie- en brandstofprijzen fors opgedreven. Vooral raffinaderijen en olieconcerns verdienen daaraan,...
+- [Damen Shipyards levert eerste schip voor Taiwanees windpark](https://fd.nl/bedrijfsleven/1596156/damen-shipyards-levert-twee-schepen-voor-taiwanees-windpark)
+  > Het Nederlandse scheepvaartbedrijf heeft één van twee schepen afgeleverd in Vietnam, aan een Japans-Taiwanese joint-venture in de offshore...
+- [Eindhovens Eyeo haalt €40 mln op om camera’s ‘drie keer beter te maken’](https://fd.nl/tech-en-innovatie/1596197/eindhovens-eyeo-haalt-40-mln-op-om-cameras-drie-keer-beter-te-maken)
+  > Het bedrijf heeft een investering gekregen van €40 mln voor zijn technologie om beeldsensoren krachtiger te maken.
+- [EU wijst suggestie van Poetin af om via Schröder te onderhandelen](https://fd.nl/politiek/1596196/eu-wijst-suggestie-van-poetin-af-om-via-schroder-te-onderhandelen)
+  > De Europese buitenlandministers betwijfelen of de Russische president echt klaar is om te onderhandelen over vrede in Oekraïne.
+- [Wie is ‘Judge Jeanine’ die al bijna veertig jaar trouw aan Trump is?](https://fd.nl/politiek/1596136/wie-is-judge-jeanine-die-al-bijna-veertig-jaar-trouw-aan-trump-is)
+  > Dat de voormalige presentatrice van Fox News in de ogen van critici op tv geregeld over de schreef ging, ziet ze niet als haar probleem.
 
 ### Meest gelezen
 
