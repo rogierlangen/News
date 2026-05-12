@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-05-2026 om 07:44*
+*Laatst bijgewerkt: 12-05-2026 om 10:35*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Japanse chipszakken in zwart-wit door olietekort](https://nos.nl/l/2614042)
-  > Japanners eten populaire chips en andere snacks binnenkort uit zwart-witzakken. De Japanse snackfabrikant Calbee stopt noodgedwongen met de...
-- [Bendegeweld in hoofdstad van Haïti, honderden inwoners op de vlucht](https://nos.nl/l/2614039)
-  > Uit angst voor bendegeweld zijn honderden inwoners van de hoofdstad van Haïti hun huis uit gevlucht. Port-au-Prince wordt al jaren geteisterd door...
-- [Michael Berg wint thrillerprijs voor 'ijzersterk' boek Terugkeer](https://nos.nl/l/2614038)
-  > Schrijver Michael Berg is met zijn boek Terugkeer de winnaar geworden van de Hebban Thrillerprijs. Dat werd bekendgemaakt in het NOS Radio 1...
-- [Boete van bijna 7 miljoen voor PostNL vanwege te late bezorging](https://nos.nl/l/2614037)
-  > PostNL moet een boete van 6,9 miljoen euro betalen omdat het bedrijf in 2023 te veel post te laat heeft bezorgd. Dat jaar heeft PostNL niet voldaan...
-- [Vertrouwen in politici en Tweede Kamer op dieptepunt](https://nos.nl/l/2614036)
-  > Het vertrouwen in politici was in tien jaar nog nooit zo laag als vorig jaar. In 2025 had maar 21,2 procent van de Nederlanders van 15 jaar en ouder...
+- [Voor zesde keer in jaar tijd betogers in Brussel tegen hervormingsplannen regering](https://nos.nl/l/2614061)
+  > In Brussel lopen enkele duizenden demonstranten mee in een betoging tegen bezuinigingsmaatregelen van de Belgische regering. Ze vinden dat de...
+- ['Groter risico op energiearmoede' als huishoudens moeten betalen voor CO2-uitstoot](https://nos.nl/l/2614060)
+  > Na grote bedrijven moeten ook huishoudens en kleinere bedrijven gaan betalen voor hun CO2-uitstoot. Het was al bekend dat dat na uitstel per 2028...
+- [Britse premier Starmer wil aanblijven ondanks grote druk om op te stappen](https://nos.nl/l/2614059)
+  > De Britse premier Starmer wil niet aftreden, ondanks grote druk op hem binnen zijn eigen partij en zelfs binnen het kabinet om te vertrekken. "Het...
+- [Opnieuw een dode op de Mount Everest, maar beklimming blijft populair](https://nos.nl/l/2614058)
+  > Op de Mount Everest is opnieuw een dodelijk ongeluk gebeurd. Een 21-jarige Nepalese gids kwam om het leven toen hij in een gletsjerspleet viel.
+     ...
+- [Eurovisie Songfestival van start: met Israël maar zonder Nederland](https://nos.nl/l/2614055)
+  > Vanavond barst het Eurovisie Songfestival los in de Wiener Stadthalle. Dit jaar voor het eerst in 24 jaar in afwezigheid van Nederland. Omroep...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Waarom doet Israël mee aan het Eurovisie Songfestival 2026? En waarom is Australië een deelnemer?](https://www.ad.nl/songfestival/waarom-doet-israel-mee-aan-het-eurovisie-songfestival-2026-en-waarom-is-australie-een-deelnemer~a1107592/)
-  > Van 12 tot en met 16 mei is het weer zover: het Eurovisie Songfestival 2026. Nederland doet dit jaar niet mee. Om je zo goed mogelijk voor te...
-- [Rentree van Memphis Depay aanstaande: topscorer aller tijden van Oranje lijkt op tijd fit voor WK](https://www.ad.nl/voetbal/rentree-van-memphis-depay-aanstaande-topscorer-aller-tijden-van-oranje-lijkt-op-tijd-fit-voor-wk~a5c2e71c/)
-  > Memphis Depay staat voor een terugkeer bij Corinthians. Volgens verschillende Braziliaanse media maakt de aanvaller deel uit van de selectie van zijn...
-- [Ayase Ueda, Ricardo Pepi of toch Bryan Linssen? Kies hier jouw elftal van het eredivisieseizoen](https://www.ad.nl/voetbal/ayase-ueda-ricardo-pepi-of-toch-bryan-linssen-kies-hier-jouw-elftal-van-het-eredivisieseizoen~ac84316c/)
-  > De eredivisie nadert zijn ontknoping: komend weekend is de laatste speelronde. Hoog tijd om de balans op te maken. Wie verdienen volgens jou een...
-- [Heeft LeBron James (41) zijn laatste wedstrijd gespeeld in de NBA? Pensioen nadert na uitschakeling Lakers](https://www.ad.nl/andere-sporten/heeft-lebron-james-41-zijn-laatste-wedstrijd-gespeeld-in-de-nba-pensioen-nadert-na-uitschakeling-lakers~a4ffb02d/)
-  > Heeft LeBron James (41) zijn laatste wedstrijd als basketballer gespeeld? De LA Lakers verloren vannacht voor de vierde maal op rij van Oklahoma City...
-- [Gloednieuw Nederlands schip jaagt Franse vissers de gordijnen in: 'Betekent het einde voor ons'](https://www.ad.nl/buitenland/gloednieuw-nederlands-schip-jaagt-franse-vissers-de-gordijnen-in-betekent-het-einde-voor-ons~a4426ed9/)
-  > Franse vissers zijn – alweer – boos op hun Nederlandse collega’s. Er komt namelijk een gloednieuwe vissersboot, maatje XXL, aan. „Als die één keer...
+- [Artsen dachten aan stress, maar nu ligt Franse vrouw in kritieke toestand door hantavirus](https://www.ad.nl/binnenland/artsen-dachten-aan-stress-maar-nu-ligt-franse-vrouw-in-kritieke-toestand-door-hantavirus~a3f98549/)
+  > Een Franse passagier van het cruiseschip werd aanvankelijk gerustgesteld door artsen aan boord. Haar klachten zouden door stress en angst worden...
+- [Wilfred Genee gaat liefdeskoppels interviewen: ‘Wat is het geheim van hun relatie?’](https://www.ad.nl/show/wilfred-genee-gaat-liefdeskoppels-interviewen-wat-is-het-geheim-van-hun-relatie~ac064fbb/)
+  > Wilfred Genee (58) ontbreekt deze week aan tafel bij Vandaag Inside.  De presentator vertrekt vandaag naar Curaçao voor opnamen van een nieuw...
+- [Britse premier Starmer lijkt niet te zwichten voor de druk: hij blijft doorgaan met land besturen](https://www.ad.nl/buitenland/britse-premier-starmer-lijkt-niet-te-zwichten-voor-de-druk-hij-blijft-doorgaan-met-land-besturen~a4fba247/)
+  > De Britse premier Keir Starmer is niet van plan op te stappen. Dat heeft hij zijn kabinet dinsdag laten weten. En dat terwijl de druk op de premier...
+- [Opmerkelijk oorlogsverhaal verfilmd: deze vrouwen waren proefkonijn voor Adolf Hitler](https://www.ad.nl/show/opmerkelijk-oorlogsverhaal-verfilmd-deze-vrouwen-waren-proefkonijn-voor-adolf-hitler~aa9f7677/)
+  > Bijna drie jaar lang fungeerde de Duitse secretaresse Margot Wölk naar eigen zeggen letterlijk als proefkonijn voor Adolf Hitler. Zij moest, samen...
+- [Advocatenkantoor moet miljoenenvergoeding betalen aan dj Tiësto](https://www.ad.nl/show/advocatenkantoor-moet-miljoenenvergoeding-betalen-aan-dj-tiesto~a31a9016/)
+  > Het gerechtshof in Amsterdam heeft dj Tiësto dinsdag in hoger beroep in het gelijk gesteld in een rechtszaak die hij had aangespannen tegen een...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Industrieel toeleverancier Kendrion maakt winstsprong](https://fd.nl/bedrijfsleven/1596215/industrieel-toeleverancier-kendrion-maakt-winstsprong)
-  > Kendrion zegt dat er veel vraag is naar zijn industriële producten die klanten helpen automatiseren en robotiseren.
-- [Een opgeknapte boerderij in het Gelderse Westervoort](https://fd.nl/samenleving/1596112/een-opgeknapte-boerderij-in-het-gelderse-westervoort)
-  > De verbouwing had heel wat voeten in de aarde. Mirian: ‘We hebben eigenlijk een nieuw huis in het oude gebouwd.’
-- [PostNL krijgt €7 mln boete voor langzame bezorging](https://fd.nl/politiek/1596212/postnl-krijgt-7-mln-boete-voor-langzame-bezorging)
-  > PostNL krijgt van de Autoriteit Consument en Markt een boete omdat het in 2023 minder dan 90% van de brievenbuspost op tijd bezorgde. Dat is onder...
-- [Moederbedrijf Canvas sluit deal met hackers, niet bekend of losgeld is betaald](https://fd.nl/bedrijfsleven/1596211/moederbedrijf-canvas-sluit-deal-met-hackers-niet-bekend-of-losgeld-is-betaald)
-  > De overeenkomst volgt nadat hackersgroep ShinyHunters data van miljoenen gebruikers van onderwijsplatform Canvas had buitgemaakt.
-- [Hogere kabelproductie in fabriek Eemshaven helpt omzet van TKH](https://fd.nl/bedrijfsleven/1596210/hogere-productie-in-eemshaven-stuwt-resultaat-tkh-group)
-  > De omzet steeg in het eerste kwartaal autonoom met 9,6% ten opzichte van dezelfde periode vorig jaar.
+- [Hoeveel uren declareren zelfstandige ondernemers?](https://fd.nl/samenleving/1596139/hoeveel-uren-declareren-zelfstandige-ondernemers)
+  > Wetenswaardigheden op het gebied van loopbaan en personal finance.
+- [Powell vertrekt na deze week als Fed-voorzitter: wat is zijn erfenis?](https://fd.nl/financiele-markten/1596113/powell-vertrekt-na-deze-week-als-fed-voorzitter-wat-is-zijn-erfenis)
+  > Donald Trump koos voor Jerome Powell als Fed-voorzitter, maar zei daar later spijt van te hebben. De mannen botsten vaak, omdat Powell de...
+- [Tiësto wint miljoenenclaim van advocatenkantoor Greenberg Traurig](https://fd.nl/bedrijfsleven/1596310/tiesto-wint-miljoenenclaim-van-advocatenkantoor-greenberg-traurig)
+  > Het kantoor schoot tekort met fiscaal advies aan Tijs Verwest, bekend als dj Tiësto. De artiest betaalde als gevolg jarenlang te weinig belasting in...
+- [Ondanks de belofte van AI blijft het échte vakmanschap van experts onmisbaar](https://fd.nl/opinie/1596207/het-vakmanschap-van-experts-blijft-onmisbaar)
+  > Door AI gegenereerde teksten worden steeds beter, maar leggen het nog af bij die van wetenschappers. Het begrijpt namelijk te weinig van kwaliteit –...
+- [Britse rente piekt terwijl premierschap Starmer op instorten staat](https://fd.nl/financiele-markten/1596218/britse-rente-piekt-terwijl-premierschap-starmer-op-instorten-staat)
+  > De Labour-premier zit dinsdagochtend een cruciale kabinetsvergadering voor. Het verzet tegen zijn leiderschap heeft zijn ministersploeg bereikt. Een...
 
 ### Meest gelezen
 
