@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-05-2026 om 16:22*
+*Laatst bijgewerkt: 12-05-2026 om 18:59*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Duitse NAVO-militairen aangevallen in Brunssum](https://nos.nl/l/2614103)
-  > Twee Duitse militairen van het NAVO-hoofdkwartier in Brunssum zijn door onbekenden aangevallen. Volgens het Duitse persbureau DPA raakten ze...
+- [Politie pakt meer wapens af van minderjarigen, vooral verboden steekwapens](https://nos.nl/l/2614117)
+  > De politie heeft vorig jaar meer wapens van minderjarigen afgepakt. In 2025 gebeurde dat 2300 keer. Dat waren voornamelijk verboden steekwapens, maar...
+- [Van Weel praat met collega Sierra Leone over uitlevering crimineel Jos Leijdekkers](https://nos.nl/l/2614113)
+  > Minister Van Weel van Justitie heeft een gesprek gevoerd met zijn ambtsgenoot uit Sierra Leone over de uitlevering van crimineel Jos Leijdekkers, ook...
+- [Doorbraak in Polen: erkenning voor homostellen die in buitenland trouwden](https://nos.nl/l/2614107)
+  > Polen gaat huwelijken tussen mensen van hetzelfde geslacht die in andere Europese landen zijn gesloten, nu toch erkennen. Dat heeft de regering van...
+- [Twee Duitse NAVO-militairen aangevallen in Brunssum](https://nos.nl/l/2614103)
+  > Twee Duitse militairen van het NAVO-hoofdkwartier in Brunssum zijn door onbekenden aangevallen. De militairen hebben aangifte gedaan.
+        Het...
 - [Leven in de VS duurder sinds oorlog met Iran, vooral benzineprijs gestegen](https://nos.nl/l/2614102)
   > De inflatie in de Verenigde Staten is flink opgelopen sinds de oorlog met Iran. Vergeleken met april vorig jaar was het leven 3,8 procent duurder,...
-- ['Caribisch Nederland onvoorbereid op ramp, Saba heeft maar voor één dag drinkwater'](https://nos.nl/l/2614101)
-  > Bij een crisis of een ramp zijn er nauwelijks voorraden in Caribisch Nederland, concludeert de Algemene Rekenkamer. Op het eiland Saba is er...
-- [Tweede Kamer stemt voor meer zekerheid voor tijdelijke werknemers](https://nos.nl/l/2614098)
-  > De Tweede Kamer heeft ingestemd met een wetsvoorstel dat ervoor moet zorgen dat meer werknemers een vast contract krijgen en dat uitzendkrachten en...
-- [Eerste asielzoekers aangekomen in tijdelijke noodopvang Loosdrecht](https://nos.nl/l/2614097)
-  > In Loosdrecht is vandaag de eerste groep bewoners van de tijdelijke noodopvang voor asielzoekers aangekomen. Vorige maand waren er heftige protesten...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Klassement Giro: Arensman na eerste weekend in top 5, Uruguayaan blijft in het roze](https://www.ad.nl/giro/klassement-giro-arensman-na-eerste-weekend-in-top-5-uruguayaan-blijft-in-het-roze~aa7ab621/)
-  > Tussen 8 en 31 mei wordt de eerste grote ronde van het jaar bij de mannen verreden: de Giro d’Italia. Wie gaat Jonas Vingegaard bij zijn debuut uit...
-- [Onder zijn jasje draagt Boy George op het songfestival een heel toepasselijk overhemd](https://www.ad.nl/show/onder-zijn-jasje-draagt-boy-george-op-het-songfestival-een-heel-toepasselijk-overhemd~ad412732/)
-  > Boy George (64) levert dinsdagavond een opvallende bijdrage in de eerste halve finale van het Eurovisie Songfestival. De Culture Club-frontman zingt...
-- [Na Hanta-fout in Radboudumc: was het wel verstandig passagiers van schip naar hier te halen? RIVM twijfelt niet](https://www.ad.nl/binnenland/na-hanta-fout-in-radboudumc-was-het-wel-verstandig-passagiers-van-schip-naar-hier-te-halen-rivm-twijfelt-niet~a1737a80/)
-  > Was het, met de kennis van nu, wel verstandig om passagiers het cruiseschip de Hondius te laten verlaten? Ja, zegt het Rijksinstituut voor...
-- [Vakbonden staan klaar om actie te voeren en dat zal de reiziger gaan merken](https://www.ad.nl/economie/vakbonden-staan-klaar-om-actie-te-voeren-en-dat-zal-de-reiziger-gaan-merken~aa6b6c603/)
-  > Het dreigt een hete zomer te worden. Niet door de zon, maar door een golf van stakingen die ons land plat kan leggen als het kabinet de bezuinigingen...
-- [Opvarenden eerste vlucht testen negatief, ‘mondkapjes op schepen zou helpen’](https://www.ad.nl/binnenland/opvarenden-eerste-vlucht-testen-negatief-mondkapjes-op-schepen-zou-helpen~a3f98549/)
-  > Alle opvarenden van het cruiseschip die op de eerste repatriëringsvlucht naar Eindhoven zaten, zijn negatief getest op het hantavirus. Volg alle...
+- [Opnieuw blinkt Nederland uit in halfbakken maatregelen](https://www.ad.nl/binnenland/opnieuw-blinkt-nederland-uit-in-halfbakken-maatregelen~a8709186/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Indrukwekkende Michael Van Gerwen pakt eerste vloertoernooi sinds 2024: ‘Schrijf me nog niet af’](https://www.ad.nl/darts/indrukwekkende-michael-van-gerwen-pakt-eerste-vloertoernooi-sinds-2024-schrijf-me-nog-niet-af~ae99994a/)
+  > Michael van Gerwen heeft Players Championship 15 op zijn naam geschreven. De Nederlander won het vloertoernooi dankzij een 8-5 zege op landgenoot...
+- [Een psychose veranderde haar leven, nu maakt Suus (35) mensen blij met positieve stoepkrijtboodschappen](https://www.ad.nl/binnenland/een-psychose-veranderde-haar-leven-nu-maakt-suus-35-mensen-blij-met-positieve-stoepkrijtboodschappen~ac872f86/)
+  > Suus schrijft positieve boodschappen op straat om mensen op te vrolijken. En dat doet ze gewoon met gekleurd stoepkrijt. Ze begon hiermee na een...
+- [‘Binnen de NOS is veel verzet tegen het uitzenden van het songfestival’](https://www.ad.nl/show/binnen-de-nos-is-veel-verzet-tegen-het-uitzenden-van-het-songfestival~a14c4de8/)
+  > ‘We’ doen niet mee aan het Eurovisie Songfestival, maar we zenden het wél uit? Daarover bestaat ook veel kritiek binnen de NOS, die nu bij hoge...
+- [Man krijgt celstraf voor stelen onuitgebrachte muziek van Beyoncé](https://www.ad.nl/show/man-krijgt-celstraf-voor-stelen-onuitgebrachte-muziek-van-beyonce~adc11e99/)
+  > De man die ervan werd beschuldigd onuitgebrachte muziek van Beyoncé te hebben gestolen, moet de gevangenis in. Dat melden verschillende Amerikaanse...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [ASML en vakbonden bereiken akkoord over concept sociaal plan](https://fd.nl/bedrijfsleven/1596587/asml-en-vakbonden-bereiken-akkoord-over-concept-sociaal-plan)
-  > Het voorkomen van gedwongen ontslagen staat daarbij centraal, is te lezen in een persbericht op de site.
-- [Belangrijke gasinstallatie Emiraten volgend jaar pas weer volledig in bedrijf](https://fd.nl/bedrijfsleven/1596583/belangrijke-gasinstallatie-emiraten-volgend-jaar-pas-weer-volledig-in-bedrijf)
-  > De inkomsten van de gasdivisies van Adnoc zijn door de oorlog in Iran hard teruggelopen.
-- [EU-Hof geeft uitgevers steun in de rug voor onderhandelingen met big tech](https://fd.nl/bedrijfsleven/1596681/eu-hof-geeft-uitgevers-steun-in-de-rug-voor-onderhandelingen-met-big-tech)
-  > Nieuwsuitgevers kunnen door uitspraak Hof beter onderhandelen over een vergoeding voor het gebruik van hun nieuws door Google en Meta.
-- [Record: zesde schorsing voor een advocaat van Gerard Sanderink](https://fd.nl/bedrijfsleven/1596581/record-zesde-schorsing-voor-een-advocaat-van-gerard-sanderink)
-  > Nooit eerder kregen zoveel advocaten van slechts één cliënt te maken met sancties van de tuchtrechter.
-- [Lotus Bakeries breidt Belgische fabriek uit](https://fd.nl/bedrijfsleven/1596679/lotus-bakeries-breidt-belgische-fabriek-uit)
-  > In het Vlaamse Lembeke wordt een productiehal bijgebouwd, schrijft het bedrijf dinsdag in een persbericht.
+- [Tweede Kamer stemt in met wet die nulurencontract in de ban doet](https://fd.nl/politiek/1596684/tweede-kamer-stemt-in-met-wet-die-nulurencontract-in-de-ban-doet)
+  > ‘Met dit wetsvoorstel krijgen mensen meer zekerheid over hoeveel uren ze werken en hoe hoog hun inkomen is’, zegt minister Hans Vijlbrief van Sociale...
+- [Klimaatheffing goed idee, maar niet als melkkoe](https://fd.nl/opinie/1596678/klimaatheffing-goed-idee-maar-niet-als-melkkoe)
+  > Er is veel voor te zeggen om ook autobrandstof en gas voor huishoudens onder de CO₂-emissiehandel te laten vallen. Maar dan wel onder de juiste...
+- [‘Groot tekort aan brandstof in Nederland en Europa mocht er oorlog uitbreken’](https://fd.nl/politiek/1596579/groot-tekort-aan-brandstof-in-nederland-en-europa-mocht-er-oorlog-uitbreken)
+  > De energievoorziening in Europese landen is ingesteld op vredestijd en niet klaar voor crises. Nederland dreigt zelfs de Navo-troepen niet te kunnen...
+- [Groeiende vraag naar batterijen en transformatorhuisjes stuwt omzet Alfen omhoog](https://fd.nl/bedrijfsleven/1596677/groeiende-vraag-naar-batterijen-en-transformatorhuisjes-stuwt-omzet-alfen-omhoog)
+  > Het bedrijf uit Almere zag de omzet met 25% toenemen op jaarbasis.
+- [Tesla investeert extra in Duitse fabriek om batterijproductie op te voeren](https://fd.nl/bedrijfsleven/1596683/tesla-investeert-extra-in-duitse-fabriek-om-batterijproductie-op-te-voeren)
+  > De investering komt bovenop de al aangekondigde hogere productie van Tesla’s model Y. Het bedrijf verwacht dat er 1500 banen bij komen.
 
 ### Meest gelezen
 
