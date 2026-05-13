@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-05-2026 om 13:17*
+*Laatst bijgewerkt: 13-05-2026 om 16:22*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Internetbank Bunq wil uitbreiden naar Latijns-Amerika](https://nos.nl/l/2614222)
-  > Onlinebank Bunq breidt na Europa en de Verenigde Staten uit naar Zuid-Amerika. De Nederlandse bank heeft een aanvraag gedaan voor een bankvergunning...
-- [Deel huizenbezitters raakt hypotheekrenteaftrek kwijt, 'kabinet moet iets bedenken'](https://nos.nl/l/2614217)
-  > Het kabinet moet nu echt een besluit nemen over de hypotheekrenteaftrek, omdat er vanaf 2031 anders chaos kan ontstaan. Daarvoor waarschuwen...
-- [Tijdelijke stroomvoorziening in datacentrum in Almere, klanten starten weer op](https://nos.nl/l/2614211)
-  > Het datacentrum NorthC in Almere waar vorige week brand woedde, heeft vanmorgen een tijdelijke stroomvoorziening opgestart. Dat meldt het bedrijf in...
-- [Safaripark Beekse Bergen urenlang dicht na ontsnapping cheeta](https://nos.nl/l/2614206)
-  > Safaripark Beekse Bergen is een groot deel van de dag dicht geweest nadat een cheeta was ontsnapt uit zijn verblijf. Omdat het roofdier zich op het...
-- [Kabinet wil minimumleeftijd sekswerk nu echt verhogen naar 21 jaar](https://nos.nl/l/2614201)
-  > Het kabinet wil werk gaan maken van een wettelijke verhoging van de minimumleeftijd voor sekswerk van 18 naar 21 jaar. Dat idee ligt er al sinds...
+- [Waardering en scepsis na advies Gezondheidsraad om long covid serieus te nemen](https://nos.nl/l/2614245)
+  > Long covid, het Q-koortsvermoeidheidssyndroom, ME en het post-sepsissyndroom zijn belangrijke gezondheidsproblemen in Nederland. Een langlopend...
+- [Drukste spits van het jaar in aanloop naar hemelvaartsweekend](https://nos.nl/l/2614244)
+  > Het is vanmiddag zeer druk op de weg. De ANWB spreekt van de drukste spits van het jaar, met om 17.00 uur ruim 1000 kilometer file.
+        De...
+- [Advocaat van TikTok en Meta wordt voorzitter privacywaakhond AP](https://nos.nl/l/2614241)
+  > Geert Potjewijd wordt per 1 augustus van dit jaar de nieuwe bestuursvoorzitter van de Autoriteit Persoonsgegevens (AP). De voormalig advocaat van...
+- [Dode man (73) gevonden in woning Amsterdam, politie vermoedt misdrijf](https://nos.nl/l/2614235)
+  > In een woning in het centrum van Amsterdam is deze week het lichaam van een 73-jarige man gevonden. De politie vermoedt dat de bewoner door een...
+- [Milka schuldig aan misleidende 'krimpflatie', zegt Duitse rechter](https://nos.nl/l/2614230)
+  > De verpakking van de chocoladereep werd in Duitsland al verkozen tot Mogelpackung (meest misleidende verpakking) van het jaar, maar nu heeft ook de...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Het is om je dood te schamen: we jagen in dit land inmiddels onze eigen mensen weg](https://www.ad.nl/binnenland/het-is-om-je-dood-te-schamen-we-jagen-in-dit-land-inmiddels-onze-eigen-mensen-weg~a7257a81/)
-  > We jagen onze eigen mensen weg. Zover is het inmiddels gekomen in dit land. Daar moeten we ons met z’n allen dood over schamen, schrijft Angela de...
-- [We zitten dagelijks twee uur op sociale media, en maken ons daar flink zorgen om](https://www.ad.nl/tech/we-zitten-dagelijks-twee-uur-op-sociale-media-en-maken-ons-daar-flink-zorgen-om~a2d6a598/)
-  > Een maand lang zonder sociale media, ga er maar aanstaan. Instagram op zwart, geen TikTok en een maand niet appen. Toch is dat precies waar...
-- [Engels voetbal in ban van spionagerel: manager Middlesbrough in tranen, manager Southampton loopt boos weg](https://www.ad.nl/voetbal/engels-voetbal-in-ban-van-spionagerel-manager-middlesbrough-in-tranen-manager-southampton-loopt-boos-weg~ad07c7f7/)
-  > Een grote rel over spionage houdt Engelse voetballiefhebbers al dagenlang in een greep. Southampton zou stiekem een spion naar de training van...
-- [Opnieuw stortvloed aan frauduleuze FIFA-sites: ‘Trap er niet in’](https://www.ad.nl/tech/opnieuw-stortvloed-aan-frauduleuze-fifa-sites-trap-er-niet-in~afecb5d2/)
-  > WK-sites met gigantische kortingen op merchandise? Trap er niet in. Opnieuw is sprake van een explosie aan verdachte FIFA-domeinnamen, blijkt uit...
-- [Scholieren klagen over moeilijke examens en ontbrekend drinkwater: na vier dagen al 165.000 meldingen](https://www.ad.nl/binnenland/scholieren-klagen-over-moeilijke-examens-en-ontbrekend-drinkwater-na-vier-dagen-al-165-000-meldingen~a106f32d/)
-  > Scholieren ventileren dit jaar flink wat klachten over de examens, constateert het Landelijk Aktie Komitee Scholieren (LAKS). De...
+- [Xi en Trump lijken tegenpolen, maar hebben opvallend veel gemeen: ‘Hij is briljant’](https://www.ad.nl/buitenland/xi-en-trump-lijken-tegenpolen-maar-hebben-opvallend-veel-gemeen-hij-is-briljant~a99f195c/)
+  > Xi Jinping is onverstoorbaar en kalm, Donald Trump een wervelwind zonder remmingen. De twee machtigste mannen, die elkaar woensdag in Peking treffen,...
+- [Portugees na succesvolle vlucht met ruime marge in roze trui: bekijk hier alle klassementen in de Giro](https://www.ad.nl/giro/portugees-na-succesvolle-vlucht-met-ruime-marge-in-roze-trui-bekijk-hier-alle-klassementen-in-de-giro~aa7ab621/)
+  > Tussen 8 en 31 mei wordt de eerste grote ronde van het jaar bij de mannen verreden: de Giro d’Italia. Wie gaat Jonas Vingegaard bij zijn debuut uit...
+- [Doden door grootschalige Russische aanval op Oekraïne](https://www.ad.nl/buitenland/doden-door-grootschalige-russische-aanval-op-oekraine~adfb97be/)
+  > Door grootschalige aanvallen op Oekraïne zijn woensdag zeker zes mensen gedood, schrijft president Zelensky op X. Volgens Zelensky lanceerde Rusland...
+- [Igor Arrieta wint rit in Giro ondanks val én nemen van verkeerde afslag, roze trui wisselt weer van schouders](https://www.ad.nl/giro/igor-arrieta-wint-rit-in-giro-ondanks-val-en-nemen-van-verkeerde-afslag-roze-trui-wisselt-weer-van-schouders~a83f992d/)
+  > Een ongekende finale in de vijfde rit van de Giro. De Spanjaard Igor Arrieta wint na een valpartij én nadat hij verkeerd reed tóch de etappe met...
+- [Eindexamenstress: van welk moment word jij nog steeds zwetend wakker? Deel het met ons!](https://www.ad.nl/home/eindexamenstress-van-welk-moment-word-jij-nog-steeds-zwetend-wakker-deel-het-met-ons~aed5ae33/)
+  > De examens liggen al lang en breed achter je. Toch word je zo nu en dan nog zwetend wakker na een eindexamennachtmerrie. Een black-out tijdens...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Advies: niets doen geen optie bij dertigjaarstermijn hypotheekrenteaftrek](https://fd.nl/politiek/1596744/advies-niets-doen-geen-optie-bij-dertigjaarstermijn-hypotheekrenteaftrek)
-  > Ambtenaren van Financiën voorzien grote problemen vanaf 2031. Dan verliezen veel huizenbezitters het recht op hypotheekrenteaftrek.
-- [IEA waarschuwt voor nog hogere prijzen op de oliemarkt](https://fd.nl/economie/1596740/iea-waarschuwt-voor-nog-hogere-prijzen-op-de-oliemarkt)
-  > De voorraden ruwe olie slinken wereldwijd in recordtempo, waarschuwt de energiewaakhond woensdag in zijn maandrapport. Dat kan de prijzen opdrijven...
-- [Wat gloort er aan de horizon? Geen idee](https://fd.nl/opinie/1596735/wat-gloort-er-aan-de-horizon-geen-idee)
-  > De toekomst als lichtpunt – ‘dat gaan we doen!’ – heeft plaatsgemaakt voor de toekomst als zwart gat – ‘wat mogen we verwachten?’ – stelt...
-- [Brussel wil spoorbedrijven dwingen tot één ticket en meer transparantie](https://fd.nl/politiek/1596742/brussel-dwingt-spoorbedrijven-tot-een-ticket-en-meer-transparantie)
-  > De Europese Commissie wil het treinverkeer binnen Europa stimuleren. Reizigers krijgen meer rechten, grote spoorbedrijven moeten ook tickets van...
-- [NS-topman Wouter Koolmees gaat vier jaar langer door](https://fd.nl/economie/1596610/ns-topman-wouter-koolmees-gaat-vier-jaar-langer-door)
-  > Wouter Koolmees is herbenoemd als president-directeur van NS. De voormalige D66-politicus begint op 1 november 2026 aan een nieuwe termijn.
+- [Oud-medewerker legt voor half miljoen beslag bij maker van vliegende auto’s](https://fd.nl/bedrijfsleven/1596627/oud-medewerker-legt-voor-half-miljoen-beslag-bij-maker-van-vliegende-autos)
+  > PAL-V maakt vliegende auto’s. Al jaren is het een belofte, maar de wagens worden nog niet verkocht. Een voormalige medewerker legt beslag, want hij...
+- [Beleggersvereniging VEB ruziet met eigen accountant en zet die aan de dijk](https://fd.nl/financiele-markten/1596628/beleggersvereniging-veb-ruziet-met-eigen-accountant-en-zet-die-aan-de-dijk)
+  > De vereniging klaagt onder meer over ‘onaanvaardbaar hoge kosten’ en wil een nieuwe accountant inhuren.
+- [Ongeduldig JPMorgan wacht op komst nieuwe ceo Heineken](https://fd.nl/financiele-markten/1596623/ongeduldig-jpmorgan-wacht-op-komst-nieuwe-ceo-heineken)
+  > JPMorgan verlaagt het beleggingsadvies voor Heineken, omdat het aandeel ondermaats presteert en verbetering voorlopig uitblijft. Heineken moet eerst...
+- [PGGM-ceo vertrekt nu overgang naar nieuwe stelsel achter de rug is](https://fd.nl/financiele-markten/1596626/pggm-ceo-vertrekt-nu-overgang-naar-nieuwe-stelsel-achter-de-rug-is)
+  > De aankondiging van het vertrek van Edwin Velzel komt vlak nadat pensioenfonds PFZW, de grootste klant van PGGM, ook al had laten weten dat zijn...
+- [Schatkist loopt €170 mln mis door onvindbare oud-studenten](https://fd.nl/politiek/1596747/schatkist-loopt-170-mln-mis-door-onvindbare-oud-studenten)
+  > Studieschulden van oud-studenten in het buitenland zijn lastig te innen. Bovendien verjaart de schuld van onvindbare debiteuren na vijf jaar. Het...
 
 ### Meest gelezen
 
