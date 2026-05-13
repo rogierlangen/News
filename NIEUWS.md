@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-05-2026 om 00:03*
+*Laatst bijgewerkt: 13-05-2026 om 04:50*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Favoriet Finland door naar finale songfestival, net als België en Israël](https://nos.nl/l/2614143)
-  > Favorieten Finland en Griekenland zijn door naar de finale van het Eurovisie Songfestival in Wenen. België verraste in de eerste halve finale en is...
-- [Burgemeester die opstapte om azc-conflict vervangt collega na fietsongeluk](https://nos.nl/l/2614136)
-  > Erik van Merrienboer wordt waarnemend burgemeester van Roosendaal. Hij vervangt Mark Buijs die nog herstellende is van een zwaar fietsongeluk vorige...
-- ['Ook Saudi-Arabië voerde geheime luchtaanvallen uit op Iran'](https://nos.nl/l/2614134)
-  > Saudi-Arabië heeft Iran tijdens de oorlog in het Midden-Oosten meerdere keren aangevallen. Dat meldt persbureau Reuters op basis van twee westerse en...
-- [Duizenden mbo-studenten hebben geen stageplek, vooral tekort in zorgsector](https://nos.nl/l/2614132)
-  > Het tekort aan stageplekken in het mbo is in twee jaar verdubbeld. Dat staat in een overzicht van de Samenwerkingsorganisatie Beroepsonderwijs...
-- [Brandstichting bij noodopvang Loosdrecht, betogers houden brandweer tegen](https://nos.nl/l/2614129)
-  > Bij de noodopvang in Loosdrecht, waar vandaag de eerste groep van vijftien asielzoekers is aangekomen, is vanavond brand gesticht. Betogers hadden...
+- [Wekdienst 13/5: Marineschip Evertsen na maanden terug • Play-offs promotie Eredivisie](https://nos.nl/l/2614150)
+  > Goedemorgen! Centraal- en Oost-Europese landen houden topoverleg in Boekarest en marineschip Evertsen komt weer aan in Nederland.
+        Eerst het...
+- [Nederland importeert nog steeds vloeibaar gas uit Rusland](https://nos.nl/l/2614149)
+  > Nederland haalde in de eerste drie maanden van dit jaar nog altijd 12 procent van zijn vloeibaar aardgas (lng) uit Rusland. Dat blijkt uit cijfers...
+- [Ook in Apeldoorn en Den Haag onrust bij asielprotesten](https://nos.nl/l/2614148)
+  > In Apeldoorn en Den Haag is het gisteravond onrustig geweest bij demonstraties over de komst van noodopvanglocaties. In Apeldoorn werden zeker vijf...
+- [Britse pedoseksueel fakete beroerte om onder straf uit te komen](https://nos.nl/l/2614147)
+  > In Engeland heeft een pedoseksueel geprobeerd om zijn rechtszaak te ontlopen door te doen alsof hij ernstig ziek was. Dat mislukte en gisteren kreeg...
+- [Politie gebruikte vorig jaar vaker geweld, 'komt door verharde samenleving'](https://nos.nl/l/2614146)
+  > Politieagenten hebben afgelopen jaar meer geweld toegepast dan het jaar ervoor. Het aantal geweldsincidenten steeg met 9 procent naar ruim 25.000. In...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Conan O’Brien keert voor de derde keer terug als presentator Oscars](https://www.ad.nl/show/conan-obrien-keert-voor-de-derde-keer-terug-als-presentator-oscars~a7e278f7/)
-  > Conan O’Brien presenteert ook in 2027 de uitreiking van de Academy Awards, ofwel de Oscars. Dat heeft de organisatie achter de prestigieuze...
-- [Voetbalpodcast | ‘Voor de lieve vrede in huize Bosz moet FC Twente zondag winnen’](https://www.ad.nl/voetbal/voetbalpodcast-voor-de-lieve-vrede-in-huize-bosz-moet-fc-twente-zondag-winnen~ac8603a9/)
-  > FC Twente is één punt verwijderd van Europees voetbal. Dat punt moet dan gepakt worden in Eindhoven tegen PSV. Bij winst wacht deze zomer de...
-- [Eigen goal in wedstrijd tegen aartsrivaal vertraagt kampioensfeestje Ronaldo en Al Nassr](https://www.ad.nl/voetbal/eigen-goal-in-wedstrijd-tegen-aartsrivaal-vertraagt-kampioensfeestje-ronaldo-en-al-nassr~a976799d/)
-  > Cristiano Ronaldo en Al Nassr leken op weg naar het landskampioenschap in Saoedi-Arabië, maar een knullige eigen goal in de laatste minuut van de...
-- [Podcast In Het Wiel | ‘Een masterclass van Movistar, tot Mas op kop kwam’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-een-masterclass-van-movistar-tot-mas-op-kop-kwam~a5ea502e/)
-  > Een rare dag in de Giro: zowaar een (bijna) masterclass van Movistar in een rit die uiteindelijk veel te zwaar was voor de echte sprinters, waar Egan...
-- [Brand gesticht bij noodopvang waar asielzoekers en medewerkers binnen zaten: ‘Grens overschreden’](https://www.ad.nl/binnenland/brand-gesticht-bij-noodopvang-waar-asielzoekers-en-medewerkers-binnen-zaten-grens-overschreden~aa7253f5/)
-  > Bij de opvanglocatie voor asielzoekers in Loosdrecht is dinsdagavond brand ontstaan nadat betogers er met fakkels gooiden. De relschoppers hielden...
+- [Discussie of je auto moet laten uitrollen of in zijn vrij moet zetten in de bergen is eindelijk beëindigd](https://www.ad.nl/auto/discussie-of-je-auto-moet-laten-uitrollen-of-in-zijn-vrij-moet-zetten-in-de-bergen-is-eindelijk-beeindigd~a9e0fe96/)
+  > Veel automobilisten laten op vakantie de auto in de vrijstand de helling afrollen omdat dit brandstof zou besparen. Maar moderne motoren werken...
+- [‘Superkwark’ skyr vliegt winkels uit, maar is het eigenlijk wel beter dan gewone kwark?](https://www.ad.nl/economie/superkwark-skyr-vliegt-winkels-uit-maar-is-het-eigenlijk-wel-beter-dan-gewone-kwark~a3eb661b/)
+  > Liefhebbers van de ‘superkwark’ skyr kunnen zomaar eens voor lege schappen komen te staan. Leveranciers kunnen de vraag, die wordt aangejaagd door...
+- [Giro etappe 5 | Pittige heuvels in lange koers naar Potenza, kansen voor de vroege vlucht?](https://www.ad.nl/giro/giro-etappe-5-pittige-heuvels-in-lange-koers-naar-potenza-kansen-voor-de-vroege-vlucht~a83f992d/)
+  > De vijfde etappe is lastig te voorspellen. Een sprint van een uitgedund peloton? Een dag voor de klassementsmannen? Of toch de vluchters? De renners...
+- [LIVE play-offs | Almere City ontvangt Willem II in heenwedstrijd van halve finale](https://www.ad.nl/voetbal/live-play-offs-almere-city-ontvangt-willem-ii-in-heenwedstrijd-van-halve-finale~a7b4c065/)
+  > Almere City of Willem II: een van deze clubs zal het volgende week in de finale van de play-offs promotie/degradatie opnemen tegen een team uit de...
+- [LIVE Premier League | Manchester City moet winnen van Crystal Palace om druk te houden op koploper Arsenal](https://www.ad.nl/voetbal/live-premier-league-manchester-city-moet-winnen-van-crystal-palace-om-druk-te-houden-op-koploper-arsenal~a6c29b73/)
+  > Manchester City maakt nog altijd kans op deze zevende titel in negen jaar in de Premier League. De ploeg van trainer Pep Guardiola is echter in de...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Hoofdofficier Michiel Zwinkels: ‘Bij de politie is alles met cijfers al snel ingewikkeld – nog steeds’](https://fd.nl/samenleving/1596217/hoofdofficier-michiel-zwinkels-bij-de-politie-is-alles-met-cijfers-al-snel-ingewikkeld-nog-steeds)
+  > Zwinkels trad in zijn vaders voetsporen en jaagt op fraudeurs en milieucriminelen. ‘In het circuit werd rondgevraagd waar mijn kinderen op school...
+- [Het festival als maatschappelijke proeftuin: ‘Wat hier werkt, kan je doorvertalen naar de stad’](https://fd.nl/samenleving/1595949/het-festival-als-maatschappelijke-proeftuin-wat-hier-werkt-kan-je-doorvertalen-naar-de-stad)
+  > Festivals zijn allang niet meer alleen een plek voor muziek. Steeds vaker fungeren ze als proefsteden waar oplossingen voor maatschappelijke...
+- [Hypotheekrenteaftrek laat kabinet wankelen](https://fd.nl/economie/1596680/hypotheekrenteaftrek-laat-kabinet-wankelen)
+  > Vandaag in de Dagkoers: de politieke partij Pro heeft de hypotheekrenteaftrek terug op de agenda gezet; de positie van de Britse premier Keir Starmer...
 - [De toekomstige pijn van huidig leed](https://fd.nl/opinie/1596477/de-toekomstige-pijn-van-huidig-leed)
   > Oorlog stopt niet wanneer de wapens zwijgen. De diepste schade nestelt zich in lichamen die nog geboren moeten worden.
 - [Half jaar Wennink](https://fd.nl/opinie/1596584/half-jaar-wennink)
   > De politiek heeft wel de ideeën, maar niet de spirit van Wennink overgenomen.
-- [Markt trekt zich weinig aan van ‘Hormuz’ en duwt koperprijs boven $14.000](https://fd.nl/financiele-markten/1596313/markt-trekt-zich-weinig-aan-van-hormuz-en-duwt-koperprijs-boven-14-000)
-  > Beleggers zien koper steeds meer als graadmeter voor de AI-economie, terwijl productieproblemen en lage voorraden de markt extra krap maken.
-- [Helft Nederlanders ziet beleggen als gokken](https://fd.nl/financiele-markten/1596312/helft-nederlanders-ziet-beleggen-als-gokken)
-  > Vooral de angst om geld te verliezen en onzekerheid over het instapmoment weerhouden Nederlanders ervan te beleggen, blijkt uit onderzoek van ING.
-- [Investeringsfonds van oud-studenten zoekt op meerdere universiteiten naar nieuwe ASML](https://fd.nl/tech-en-innovatie/1596311/investeringsfonds-van-oud-studenten-zoekt-op-meerdere-universiteiten-naar-nieuwe-asml)
-  > Investeerder Graduate Ventures, een initiatief van onder anderen Frans van Houten en Michiel Muller, gooit het net verder uit bij universiteiten in...
 
 ### Meest gelezen
 
