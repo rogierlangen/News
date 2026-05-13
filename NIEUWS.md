@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-05-2026 om 22:15*
+*Laatst bijgewerkt: 13-05-2026 om 00:03*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Conan O’Brien keert voor de derde keer terug als presentator Oscars](https://www.ad.nl/show/conan-obrien-keert-voor-de-derde-keer-terug-als-presentator-oscars~a7e278f7/)
+  > Conan O’Brien presenteert ook in 2027 de uitreiking van de Academy Awards, ofwel de Oscars. Dat heeft de organisatie achter de prestigieuze...
 - [Voetbalpodcast | ‘Voor de lieve vrede in huize Bosz moet FC Twente zondag winnen’](https://www.ad.nl/voetbal/voetbalpodcast-voor-de-lieve-vrede-in-huize-bosz-moet-fc-twente-zondag-winnen~ac8603a9/)
   > FC Twente is één punt verwijderd van Europees voetbal. Dat punt moet dan gepakt worden in Eindhoven tegen PSV. Bij winst wacht deze zomer de...
 - [Eigen goal in wedstrijd tegen aartsrivaal vertraagt kampioensfeestje Ronaldo en Al Nassr](https://www.ad.nl/voetbal/eigen-goal-in-wedstrijd-tegen-aartsrivaal-vertraagt-kampioensfeestje-ronaldo-en-al-nassr~a976799d/)
@@ -35,8 +37,6 @@
   > Een rare dag in de Giro: zowaar een (bijna) masterclass van Movistar in een rit die uiteindelijk veel te zwaar was voor de echte sprinters, waar Egan...
 - [Brand gesticht bij noodopvang waar asielzoekers en medewerkers binnen zaten: ‘Grens overschreden’](https://www.ad.nl/binnenland/brand-gesticht-bij-noodopvang-waar-asielzoekers-en-medewerkers-binnen-zaten-grens-overschreden~aa7253f5/)
   > Bij de opvanglocatie voor asielzoekers in Loosdrecht is dinsdagavond brand ontstaan nadat betogers er met fakkels gooiden. De relschoppers hielden...
-- [Bridget is trots op haar dappere mama en Samuel heldert ‘misverstand’ op](https://www.ad.nl/show/bridget-is-trots-op-haar-dappere-mama-en-samuel-heldert-misverstand-op~a42085f1/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Iran-oorlog en rente raken pensioenvermogen deelnemers BpfBouw, PFZW en PMT](https://fd.nl/financiele-markten/1596480/iran-oorlog-en-rente-raken-pensioenvermogen-deelnemers-bpfbouw-pfzw-en-pmt)
-  > De drie grote pensioenfondsen publiceerden voor het eerst sinds de overstap naar het nieuwe pensioenstelsel een kwartaalrapport.
-- [‘Nederland onderschatte waterregels, pragmatische aanpak niet effectief’](https://fd.nl/politiek/1596676/nederland-onderschatte-waterregels-pragmatische-aanpak-niet-effectief)
-  > Nederland wilde juist een gidsland zijn, maar zal een deel van de doelen zelf niet halen.
-- [Rabobank: bij voortduren Iran‑crisis dreigt tekort aan kerosine en stookolie](https://fd.nl/economie/1596193/rabobank-bij-voortduren-irancrisis-dreigt-tekort-aan-kerosine-en-stookolie)
-  > Europese olievoorraden zijn voorlopig groot genoeg om de energiecrisis op te vangen, concludeert Rabobank. Duurt de blokkade van de Straat van Hormuz...
-- [Brand bij noodopvang voor asielzoekers in Loosdrecht](https://fd.nl/samenleving/1596729/brand-bij-noodopvang-voor-asielzoekers-in-loosdrecht)
-  > Tegenstanders van de opvang hadden fakkels gegooid. De brandweer heeft de brand geblust.
-- [Hoge Amerikaanse inflatie en onzekerheid Iran kleuren beurzen rood](https://fd.nl/financiele-markten/1596688/hoge-amerikaanse-inflatie-en-onzekerheid-iran-kleuren-beurzen-rood)
-  > De breed samengestelde S&P 500 eindigde dinsdag bijna 0,2% lager. En de techzware Nasdaq daalde met 0,7%. De Dow Jones-index pluste 0,1%.
+- [De toekomstige pijn van huidig leed](https://fd.nl/opinie/1596477/de-toekomstige-pijn-van-huidig-leed)
+  > Oorlog stopt niet wanneer de wapens zwijgen. De diepste schade nestelt zich in lichamen die nog geboren moeten worden.
+- [Half jaar Wennink](https://fd.nl/opinie/1596584/half-jaar-wennink)
+  > De politiek heeft wel de ideeën, maar niet de spirit van Wennink overgenomen.
+- [Markt trekt zich weinig aan van ‘Hormuz’ en duwt koperprijs boven $14.000](https://fd.nl/financiele-markten/1596313/markt-trekt-zich-weinig-aan-van-hormuz-en-duwt-koperprijs-boven-14-000)
+  > Beleggers zien koper steeds meer als graadmeter voor de AI-economie, terwijl productieproblemen en lage voorraden de markt extra krap maken.
+- [Helft Nederlanders ziet beleggen als gokken](https://fd.nl/financiele-markten/1596312/helft-nederlanders-ziet-beleggen-als-gokken)
+  > Vooral de angst om geld te verliezen en onzekerheid over het instapmoment weerhouden Nederlanders ervan te beleggen, blijkt uit onderzoek van ING.
+- [Investeringsfonds van oud-studenten zoekt op meerdere universiteiten naar nieuwe ASML](https://fd.nl/tech-en-innovatie/1596311/investeringsfonds-van-oud-studenten-zoekt-op-meerdere-universiteiten-naar-nieuwe-asml)
+  > Investeerder Graduate Ventures, een initiatief van onder anderen Frans van Houten en Michiel Muller, gooit het net verder uit bij universiteiten in...
 
 ### Meest gelezen
 
