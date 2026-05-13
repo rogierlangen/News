@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-05-2026 om 04:50*
+*Laatst bijgewerkt: 13-05-2026 om 07:51*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Wekdienst 13/5: Marineschip Evertsen na maanden terug • Play-offs promotie Eredivisie](https://nos.nl/l/2614150)
-  > Goedemorgen! Centraal- en Oost-Europese landen houden topoverleg in Boekarest en marineschip Evertsen komt weer aan in Nederland.
-        Eerst het...
-- [Nederland importeert nog steeds vloeibaar gas uit Rusland](https://nos.nl/l/2614149)
-  > Nederland haalde in de eerste drie maanden van dit jaar nog altijd 12 procent van zijn vloeibaar aardgas (lng) uit Rusland. Dat blijkt uit cijfers...
-- [Ook in Apeldoorn en Den Haag onrust bij asielprotesten](https://nos.nl/l/2614148)
-  > In Apeldoorn en Den Haag is het gisteravond onrustig geweest bij demonstraties over de komst van noodopvanglocaties. In Apeldoorn werden zeker vijf...
-- [Britse pedoseksueel fakete beroerte om onder straf uit te komen](https://nos.nl/l/2614147)
-  > In Engeland heeft een pedoseksueel geprobeerd om zijn rechtszaak te ontlopen door te doen alsof hij ernstig ziek was. Dat mislukte en gisteren kreeg...
-- [Politie gebruikte vorig jaar vaker geweld, 'komt door verharde samenleving'](https://nos.nl/l/2614146)
-  > Politieagenten hebben afgelopen jaar meer geweld toegepast dan het jaar ervoor. Het aantal geweldsincidenten steeg met 9 procent naar ruim 25.000. In...
+- [Wat kun je doen om datadiefstal te voorkomen?](https://nos.nl/l/2614162)
+  > Je geboortedatum, telefoonnummer, adres of zelfs een kopie van een identiteitsbewijs: bedrijven vragen consumenten om allerlei informatie, terwijl...
+- ['Gebrek aan politie leidde mede tot schrappen opvang in Coevorden'](https://nos.nl/l/2614161)
+  > Coevorden heeft de opvang van minderjarige statushouders in een woonwijk vorig jaar mede geschrapt omdat de gemeente vreesde niet genoeg politie op...
+- [Vorig jaar verdronken 100 inwoners van Nederland, vooral 60-plussers](https://nos.nl/l/2614158)
+  > In Nederland overleden vorig jaar honderd inwoners door verdrinking. Dat blijkt uit voorlopige cijfers van het CBS over doodsoorzaken.
+        Het...
+- [New York Times: raketbases Iran geenszins uitgeschakeld](https://nos.nl/l/2614157)
+  > Iran heeft nog steeds toegang tot het merendeel van zijn raketbases langs de Straat van Hormuz. Dat meldt The New York Times op basis van geheime...
+- [Ook pensioenfondsen onder nieuwe stelsel krijgen klappen op de beurs](https://nos.nl/l/2614155)
+  > Ook de pensioenfondsen die al zijn overgestapt naar het nieuwe pensioenstelsel hebben last van de oorlog in het Midden-Oosten. Dat blijkt uit hun...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Discussie of je auto moet laten uitrollen of in zijn vrij moet zetten in de bergen is eindelijk beëindigd](https://www.ad.nl/auto/discussie-of-je-auto-moet-laten-uitrollen-of-in-zijn-vrij-moet-zetten-in-de-bergen-is-eindelijk-beeindigd~a9e0fe96/)
-  > Veel automobilisten laten op vakantie de auto in de vrijstand de helling afrollen omdat dit brandstof zou besparen. Maar moderne motoren werken...
-- [‘Superkwark’ skyr vliegt winkels uit, maar is het eigenlijk wel beter dan gewone kwark?](https://www.ad.nl/economie/superkwark-skyr-vliegt-winkels-uit-maar-is-het-eigenlijk-wel-beter-dan-gewone-kwark~a3eb661b/)
-  > Liefhebbers van de ‘superkwark’ skyr kunnen zomaar eens voor lege schappen komen te staan. Leveranciers kunnen de vraag, die wordt aangejaagd door...
-- [Giro etappe 5 | Pittige heuvels in lange koers naar Potenza, kansen voor de vroege vlucht?](https://www.ad.nl/giro/giro-etappe-5-pittige-heuvels-in-lange-koers-naar-potenza-kansen-voor-de-vroege-vlucht~a83f992d/)
-  > De vijfde etappe is lastig te voorspellen. Een sprint van een uitgedund peloton? Een dag voor de klassementsmannen? Of toch de vluchters? De renners...
-- [LIVE play-offs | Almere City ontvangt Willem II in heenwedstrijd van halve finale](https://www.ad.nl/voetbal/live-play-offs-almere-city-ontvangt-willem-ii-in-heenwedstrijd-van-halve-finale~a7b4c065/)
-  > Almere City of Willem II: een van deze clubs zal het volgende week in de finale van de play-offs promotie/degradatie opnemen tegen een team uit de...
-- [LIVE Premier League | Manchester City moet winnen van Crystal Palace om druk te houden op koploper Arsenal](https://www.ad.nl/voetbal/live-premier-league-manchester-city-moet-winnen-van-crystal-palace-om-druk-te-houden-op-koploper-arsenal~a6c29b73/)
-  > Manchester City maakt nog altijd kans op deze zevende titel in negen jaar in de Premier League. De ploeg van trainer Pep Guardiola is echter in de...
+- [Real Madrid-icoon wil José Mourinho niet terug: ‘Ik denk dat andere trainer capabeler zijn’](https://www.ad.nl/voetbal/real-madrid-icoon-wil-jose-mourinho-niet-terug-ik-denk-dat-andere-trainer-capabeler-zijn~a1e18432/)
+  > José Mourinho terug naar Real Madrid? Geen goed idee, vind clubicoon Iker Casillas. De Spaanse oud-topkeeper hoopt dat zijn club voor een andere...
+- [Woensdag hagelbuien en onweer, maar volgende week stijgt de temperatuur naar 20 graden](https://www.ad.nl/binnenland/woensdag-hagelbuien-en-onweer-maar-volgende-week-stijgt-de-temperatuur-naar-20-graden~afbc07cf/)
+  > Nadat net het lenteweer was begonnen, de zon weer begon te schijnen en de T-shirts weer uit de kast mochten, sloeg het de afgelopen dagen een heel...
+- [Verkeersdiensten verwachten extra drukke avondspits die al vroeg begint door hemelvaartsweekend](https://www.ad.nl/binnenland/verkeersdiensten-verwachten-extra-drukke-avondspits-die-al-vroeg-begint-door-hemelvaartsweekend~afa03f71/)
+  > De verkeersdiensten verwachten woensdag een extra drukke avondspits, die bovendien eerder op gang komt dan gewoonlijk. Dat komt doordat veel mensen...
+- [Recordhoeveelheid sneeuw in Europa rond half mei, perfect skiweer en zelfs de dalen zijn wit](https://www.ad.nl/buitenland/recordhoeveelheid-sneeuw-in-europa-rond-half-mei-perfect-skiweer-en-zelfs-de-dalen-zijn-wit~afe589c4/)
+  > De Alpen hebben te maken met een uitzonderlijk laat winteroffensief. Waar mensen afgelopen weekend nog in hun T-shirt genoten van zomerse...
+- [Ayase Ueda, Ricardo Pepi of toch Bryan Linssen? Kies hier jouw elftal van het eredivisieseizoen](https://www.ad.nl/voetbal/ayase-ueda-ricardo-pepi-of-toch-bryan-linssen-kies-hier-jouw-elftal-van-het-eredivisieseizoen~ac84316c/)
+  > De eredivisie nadert zijn ontknoping: komend weekend is de laatste speelronde. Hoog tijd om de balans op te maken. Wie verdienen volgens jou een...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Hoofdofficier Michiel Zwinkels: ‘Bij de politie is alles met cijfers al snel ingewikkeld – nog steeds’](https://fd.nl/samenleving/1596217/hoofdofficier-michiel-zwinkels-bij-de-politie-is-alles-met-cijfers-al-snel-ingewikkeld-nog-steeds)
-  > Zwinkels trad in zijn vaders voetsporen en jaagt op fraudeurs en milieucriminelen. ‘In het circuit werd rondgevraagd waar mijn kinderen op school...
-- [Het festival als maatschappelijke proeftuin: ‘Wat hier werkt, kan je doorvertalen naar de stad’](https://fd.nl/samenleving/1595949/het-festival-als-maatschappelijke-proeftuin-wat-hier-werkt-kan-je-doorvertalen-naar-de-stad)
-  > Festivals zijn allang niet meer alleen een plek voor muziek. Steeds vaker fungeren ze als proefsteden waar oplossingen voor maatschappelijke...
-- [Hypotheekrenteaftrek laat kabinet wankelen](https://fd.nl/economie/1596680/hypotheekrenteaftrek-laat-kabinet-wankelen)
-  > Vandaag in de Dagkoers: de politieke partij Pro heeft de hypotheekrenteaftrek terug op de agenda gezet; de positie van de Britse premier Keir Starmer...
-- [De toekomstige pijn van huidig leed](https://fd.nl/opinie/1596477/de-toekomstige-pijn-van-huidig-leed)
-  > Oorlog stopt niet wanneer de wapens zwijgen. De diepste schade nestelt zich in lichamen die nog geboren moeten worden.
-- [Half jaar Wennink](https://fd.nl/opinie/1596584/half-jaar-wennink)
-  > De politiek heeft wel de ideeën, maar niet de spirit van Wennink overgenomen.
+- [Anneke Valk: ‘Ik weet hoe kwetsbaar het leven is’](https://fd.nl/samenleving/1595974/anneke-valk-ik-weet-hoe-kwetsbaar-het-leven-is)
+  > Online-intro: Wat maken professionals mee in hun loopbaan? Deze week: Anneke Valk (1988), spreker en biologiedocent aan Wageningen University &...
+- [Hoe hoog moet een mens reiken?](https://fd.nl/samenleving/1595973/hoe-hoog-moet-een-mens-reiken)
+  > ‘Mijn uitdaging van gisteren is de standaard van vandaag’, schreef Raounak Khaddari ooit trots op haar website. Het leek ambitie, maar was...
+- [‘Iraans raketarsenaal nog altijd aanzienlijk’](https://fd.nl/politiek/1596730/iraans-raketarsenaal-nog-altijd-aanzienlijk)
+  > Van het Iraanse raketarsenaal is een groter deel intact dan de Amerikaanse overheid beweert, schrijft New York Times.
+- [BBP per inwoner in Nederland gegroeid in 2025](https://fd.nl/economie/1596601/bbp-per-inwoner-nederland-gegroeid-in-2025)
+  > Het bruto binnenlands product nam afgelopen jaar toe vanwege een relatief kleinere bevolkingsgroei.
+- [Zorgen over conflict Midden-Oosten nemen toe bij ABN Amro](https://fd.nl/financiele-markten/1596600/abn-amro-snijdt-in-kosten-en-verslaat-analistenverwachting-ruimschoots)
+  > De bank verslaat de analistenverwachtingen ruimschoots met een nettowinst van €693 mln over het eerste kwartaal, maar verlaagt ook zijn economische...
 
 ### Meest gelezen
 
