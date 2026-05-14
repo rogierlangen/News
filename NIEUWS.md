@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-05-2026 om 15:22*
+*Laatst bijgewerkt: 14-05-2026 om 17:56*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Grote zoekactie op Saba naar vermiste wandelaar](https://nos.nl/l/2614366)
+  > Op het Caribische eiland Saba zijn de hulpdiensten een grootschalige zoekactie gestart naar een vermiste Nederlandse wandelaar. De man, een vijftiger...
+- [21 jaar cel voor Nederlander die brand stichtte in Milaan waarbij drie mensen stierven](https://nos.nl/l/2614365)
+  > In Italië is de Nederlander Washi L. (28) veroordeeld tot 21 jaar gevangenisstraf voor brandstichting in een meubelmagazijn waarbij drie Chinezen om...
+- [Kabinet maakt extra geld vrij voor Knarrenhofjes, maar wachtlijst blijft lang](https://nos.nl/l/2614351)
+  > Het kabinet maakt meer geld vrij voor het realiseren van woningen voor ouderen die zelfstandig willen blijven wonen. Er is dit jaar 40 miljoen euro...
 - [Knight Rider-auto staat in een museum in Chicago, maar krijgt boete uit New York](https://nos.nl/l/2614346)
   > Hoe kan dit?, vroegen de medewerkers van het Volo Museum in de buurt van Chicago zich af toen er een boete op de deurmat belandde voor de Knight...
 - [Schip zet plotseling koers richting Iran, lijkt gekaapt door Revolutionaire Garde](https://nos.nl/l/2614345)
   > In de Golf van Oman is een klein schip vermoedelijk gekaapt. Het lijkt koers te hebben gezet richting de Iraanse kust. Het gaat om de Hui Chuan, die...
-- [Motorrijder (27) raast met bijna 200km over Brabantse dijk, rijbewijs kwijt](https://nos.nl/l/2614343)
-  > De politie heeft per direct het rijbewijs ingenomen van een 27-jarige motorrijder die gisteren met 194 km per uur over de dijk langs de Maas bij het...
-- [Britse gezondheidsminister Streeting stapt op, premier Starmer verder in het nauw](https://nos.nl/l/2614342)
-  > De positie van de Britse premier Starmer is vandaag opnieuw wankeler geworden. Zijn minister van Volksgezondheid Wes Streeting heeft zijn...
-- [Truckersfestival bij Alkmaar afgelast om broedende ransuil](https://nos.nl/l/2614335)
-  > Het tweedaagse tractor- en truckersfestival Power Valley gaat dit jaar niet door. Dat komt omdat in het recreatiegebied vlakbij Alkmaar waar het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Absurde actie in Giro d’Italia: man probeert renners ten val te brengen](https://www.ad.nl/giro/absurde-actie-in-giro-ditalia-man-probeert-renners-ten-val-te-brengen~a7c522c5/)
-  > Een toeschouwer heeft tijdens de zesde etappe van de Giro d’Italia voor een gevaarlijk moment gezorgd. De man kwam tot viermaal toe dicht bij het...
-- [Martijn Krabbé vraagt Chantal Janzen om nieuwe reeks Kopen zonder kijken te presenteren, zij zegt ja](https://www.ad.nl/show/martijn-krabbe-vraagt-chantal-janzen-om-nieuwe-reeks-kopen-zonder-kijken-te-presenteren-zij-zegt-ja~aa4d8836/)
-  > Chantal Janzen gaat het volgende seizoen van de RTL-hit Kopen zonder kijken presenteren. Dat heeft Martijn Krabbé donderdag bekendgemaakt. ‘Ik ben...
-- [Na brandstichting bij azc en rellen in Loosdrecht klinkt er een tegengeluid: lieve kaartjes voor vluchtelingen](https://www.ad.nl/binnenland/na-brandstichting-bij-azc-en-rellen-in-loosdrecht-klinkt-er-een-tegengeluid-lieve-kaartjes-voor-vluchtelingen~a93bfbf9/)
-  > De onlusten bij de noodopvang in Loosdrecht leiden tot tal van publieke hartenkreten dat het geweld moet stoppen en tot het sturen van kaartjes naar...
-- [Kees Smit sluit langer verblijf bij AZ niet uit: ‘Ik wil volgend seizoen veel spelen’](https://www.ad.nl/voetbal/kees-smit-sluit-langer-verblijf-bij-az-niet-uit-ik-wil-volgend-seizoen-veel-spelen~afb19507c/)
-  > Kees Smit heeft de deur voor een langer verblijf bij AZ toch weer op een kiertje gezet. Het 20-jarige talent liet eerder juist weten waarschijnlijk...
-- [‘Hij komt hier niet levend uit’: hoe NSB-burgemeester na de oorlog werd gemarteld](https://www.ad.nl/molenlanden/hij-komt-hier-niet-levend-uit-hoe-nsb-burgemeester-na-de-oorlog-werd-gemarteld~a741c005/)
-  > Hij werd levend begraven, in prikkeldraad gegooid en nachtenlang mishandeld. Zijn dochters moesten toekijken. De man die dit overkwam was Peter...
+- [Longarts Sander de Hosson wil de dood bespreekbaar maken voor kinderen: ‘Oma is nu een sterretje, is verwarrend’](https://www.ad.nl/mezza/longarts-sander-de-hosson-wil-de-dood-bespreekbaar-maken-voor-kinderen-oma-is-nu-een-sterretje-is-verwarrend~a0aecf0a/)
+  > Sterven was vroeger veel meer ingebed in het leven. In ons weekendmagazine Mezza vertelt longarts Sander de Hosson over zijn missie om meer...
+- [Ancelotti tot medio 2030 bondscoach van Brazilië, Madonna, Shakira en BTS in halftime-show tijdens finale](https://www.ad.nl/wk-voetbal/ancelotti-tot-medio-2030-bondscoach-van-brazilie-madonna-shakira-en-bts-in-halftime-show-tijdens-finale~a61805da/)
+  > Over minder dan dertig dagen begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste...
+- [Beperk je schermtijd: advies van expert én een verrassend hulpmiddel: ‘Apps weigeren hardnekkig dienst’](https://www.ad.nl/tech/beperk-je-schermtijd-advies-van-expert-en-een-verrassend-hulpmiddel-apps-weigeren-hardnekkig-dienst~aa9b474bb/)
+  > De tijd vliegt, maar de schermtijd helemaal. Techjournalist Anton Damen is er helemaal klaar mee en schakelt hulptroepen in om zijn smartphone het...
+- [Griekse topfavo­riet is gebles­seerd, complete verrassing wint halve finale in poll onder pers en publiek](https://www.ad.nl/show/griekse-topfavoriet-is-geblesseerd-complete-verrassing-wint-halve-finale-in-poll-onder-pers-en-publiek~aa373b41/)
+  > De tweede halve finale van het Eurovisie Songfestival staat vanavond op het programma in Wenen. Uiteraard zonder Nederland, vanwege de boycot van...
+- [Demonstratierecht is een groot goed, maar niet voor iedereen heilig](https://www.ad.nl/commentaar/demonstratierecht-is-een-groot-goed-maar-niet-voor-iedereen-heilig~a4f21da1/)
+  > Het demonstratierecht is een groot goed in Nederland, maar slechts heilig voor degenen die daarbij ook wet- en regelgeving en fatsoensnormen in acht...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Britse koning Charles bezoekt Joodse wijk in Londen na geweld](https://fd.nl/politiek/1596762/britse-koning-charles-bezoekt-joodse-wijk-in-londen-na-geweld)
-  > De Britse koning Charles heeft donderdag een bezoek gebracht aan de Joodse gemeenschap van Londen, na verschillende gevallen van antisemitisch geweld.
-- [Lets kabinet gevallen na incident met neergestorte drones](https://fd.nl/politiek/1596758/letse-kabinet-valt-na-incident-met-neergestorte-drones)
-  > Het einde van de toch als instabiele regering komt enkele maanden voor de parlementsverkiezingen in oktober.
-- [India verbiedt tijdelijk de export van suiker](https://fd.nl/politiek/1596635/india-verbiedt-tijdelijk-de-export-van-suiker)
-  > De Indiase regering heeft de export van suiker voor de duur van vier maanden verboden. De regering probeert zo te voorkomen dat er tekorten in eigen...
-- [CBS-data al dagen niet beschikbaar door brand datacenter](https://fd.nl/economie/1596612/cbs-data-al-dagen-niet-beschikbaar-door-brand-datacenter)
-  > Zowel werknemers als beleidsmakers hebben door de brand geen toegang tot systemen. Ook dreigt data te laat geleverd te worden voor zowel de eigen...
-- [Duitse rechter tikt producent Milka-repen op vingers om krimpflatie](https://fd.nl/bedrijfsleven/1596759/duitse-rechter-geeft-producent-milka-repen-reprimande-om-krimpflatie)
-  > Een Duitse rechter heeft de producent van Milka-chocolade op de vingers getikt wegens het misleiden van consumenten. Het gewicht van chocoladerepen...
+- [China vol zelfvertrouwen bij ontvangst Trump in Peking](https://fd.nl/politiek/1596640/china-vol-zelfvertrouwen-bij-ontvangst-trump-in-peking)
+  > Donald Trump prees Xi Jinping donderdag bij zijn bezoek aan China de hemel in. Is de strijdbijl plots begraven?
+- [Turkse centrale bank: inflatie fors hoger](https://fd.nl/politiek/1596764/turkse-centrale-bank-inflatie-fors-hoger)
+  > De Turkse centrale bank heeft donderdag haar inflatieverwachting fors verhoogd. De bank rekent op een inflatie van maximaal 26% aan het einde van het...
+- [Verdachte babymelk Danone per ongeluk toch in Belgische schappen](https://fd.nl/bedrijfsleven/1596637/verdachte-babymelk-danone-per-ongeluk-toch-in-belgische-schappen)
+  > Door leveringsfouten is teruggeroepen melkpoeder van het merk Nutrilon toch in de verkoop gekomen.
+- [Berlijn in rep en roer: Tsjechische kaper op de kust bij tankbouwer KNDS](https://fd.nl/bedrijfsleven/1596754/berlijn-in-rep-en-roer-tsjechische-kaper-op-de-kust-bij-tankbouwer-knds)
+  > Berlijn is er nog niet over uit in welke mate het wil participeren in Frans-Duits defensiebedrijf. Ondertussen is de beursgang van het concern in...
+- [‘Nederlandse investeerders bezorgd over effect AI op hun bedrijven’](https://fd.nl/bedrijfsleven/1596755/nederlandse-investeerders-bezorgd-over-effect-ai-op-hun-bedrijven)
+  > Tegelijkertijd wil men de AI-boot niet missen, zegt voorzitter Martijn van Dam van de Nederlandse Vereniging van Participatiemaatschappijen (NVP).
 
 ### Meest gelezen
 
