@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-05-2026 om 21:15*
+*Laatst bijgewerkt: 14-05-2026 om 23:00*
 
 ---
 
@@ -8,6 +8,9 @@
 
 ### Laatste nieuws
 
+- ['Wurglied' Roemenië naar finale songfestival, BBC zendt lhbti-video niet uit](https://nos.nl/l/2614382)
+  > Ook in de tweede halve finale van het Eurovisie Songfestival zijn alle acts die hoog staan bij de bookmakers doorgegaan naar de finale.
+        Waar...
 - [Resten gigantische dinosaurus gevonden in Thailand, grootste in Zuidoost-Azië ooit](https://nos.nl/l/2614376)
   > Britse en Thaise wetenschappers hebben de skeletresten van een reusachtige dinosaurus ontdekt in de noordoostelijke provincie Chaiyaphum in Thailand....
 - [Vernielingen en arrestaties bij omstreden vlaggenmars in Jeruzalem](https://nos.nl/l/2614374)
@@ -16,8 +19,6 @@
   > De politie heeft de twee vrouwen aangehouden uit de gemeente Stadskanaal (Oost-Groningen) die worden verdacht van ernstige kindermishandeling. De...
 - [Trump geeft met deal hoop aan Amerikaanse sojaboeren](https://nos.nl/l/2614369)
   > De Amerikaanse president Trump zegt een deal te hebben bereikt met China over energie, vliegtuigen en sojabonen. De details zijn nog niet bekend,...
-- [Grote zoekactie op Saba naar vermiste wandelaar](https://nos.nl/l/2614366)
-  > Op het Caribische eiland Saba zijn de hulpdiensten een grootschalige zoekactie gestart naar een vermiste Nederlandse wandelaar. De man, een vijftiger...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Noodverordening na vernielingen bij huizen in kindermishandelingszaak](https://www.ad.nl/binnenland/noodverordening-na-vernielingen-bij-huizen-in-kindermishandelingszaak~a48304c4/)
-  > In een gedeelte van Stadskanaal geldt een noodverordening nadat de openbare orde is verstoord bij de huizen van verdachten in een...
-- [Play-offs ver weg voor Van Gerwen en Van Veen: Humphries kan in finale genadeslag geven](https://www.ad.nl/darts/play-offs-ver-weg-voor-van-gerwen-en-van-veen-humphries-kan-in-finale-genadeslag-geven~a2b54f85/)
-  > Michael van Gerwen won afgelopen dinsdag zijn eerste vloertoernooi sinds oktober 2024. Trekt hij die goede vorm door in Birmingham? Zowel Van Gerwen...
-- [Podcast In Het Wiel | ‘Hoeveel geld er ook wordt betaald, iemand moet dit overrulen’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-hoeveel-geld-er-ook-wordt-betaald-iemand-moet-dit-overrulen~a5ea502e/)
-  > Het was opnieuw gekkenhuis in de Giro. Het scenario waar iedereen al voor vreesde, werd werkelijkheid: op de kletsnatte Napolitaanse klinkers ging...
-- [Actie om vluchtelingen welkom te heten in IJsselstein afgeblazen: organisatie is bang voor ongeregeldheden](https://www.ad.nl/ijsselstein/actie-om-vluchtelingen-welkom-te-heten-in-ijsselstein-afgeblazen-organisatie-is-bang-voor-ongeregeldheden~a7ea4753/)
-  > Een actie om vluchtelingen te laten weten dat ze welkom zijn in IJsselstein gaat zaterdag tóch niet door. De organisatoren zijn bang voor...
-- [Wat een Johan Derksen over vrouwen zegt, is heus niet wat iedereen vindt](https://www.ad.nl/binnenland/wat-een-johan-derksen-over-vrouwen-zegt-is-heus-niet-wat-iedereen-vindt~a98b31b0/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Wat gebeurt er als Australië het songfestival wint?](https://www.ad.nl/songfestival/wat-gebeurt-er-als-australie-het-songfestival-wint~a9d72555/)
+  > Delta Goodrem is een van de topfavorieten om het Eurovisie Songfestival te winnen. De 41-jarige Australische zangeres plaatste zich donderdagavond...
+- [‘Een absolute topnaam en een klassieker in de Nederlandse voetbalgeschiedenis’](https://www.ad.nl/voetbal/een-absolute-topnaam-en-een-klassieker-in-de-nederlandse-voetbalgeschiedenis~a42af5cd9/)
+  > Wie heeft de allermooiste voetbalnaam van de Nederlandse voetballers en wie wordt internationaal de winnaar? In de AD Voetbalpodcast onthullen...
+- [Van Gerwen en Van Veen lopen play-offs in Londen mis: voor tweede jaar op rij geen Nederlander](https://www.ad.nl/darts/van-gerwen-en-van-veen-lopen-play-offs-in-londen-mis-voor-tweede-jaar-op-rij-geen-nederlander~a2b54f85/)
+  > Luke Humphries heeft de Premier League-avond in Birmingham op zijn naam geschreven door Gerwyn Price in de finale met 6-4 te verslaan. Dat heeft...
+- [Dodental in Kyiv loopt op naar 16, dag van rouw afgekondigd](https://www.ad.nl/buitenland/dodental-in-kyiv-loopt-op-naar-16-dag-van-rouw-afgekondigd~adfb97be/)
+  > Het dodental door de zware Russische aanvallen op Kyiv is opgelopen tot zeker zestien, onder wie twee kinderen. Volg alle ontwikkelingen over de...
+- [Max Verstappen met 300 kilometer per uur door de pikkedonkere bossen: ‘Dat is even twee keer slikken’](https://www.ad.nl/formule-1/max-verstappen-met-300-kilometer-per-uur-door-de-pikkedonkere-bossen-dat-is-even-twee-keer-slikken~afc8f6dc/)
+  > Met bijna 300 kilometer per uur dwars door de pikkedonkere bossen van de Eifel scheuren. Max Verstappen kon niet wachten op die eerste ervaring bij...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Recycler Pryme sluit fabriek, herstructureert en verdwijnt van de beurs](https://fd.nl/bedrijfsleven/1596619/recycler-pryme-sluit-fabriek-herstructureert-en-verdwijnt-van-de-beurs)
+  > Het noodlijdende bedrijf hoopt zijn plasticrecyclingtechniek later alsnog toe te passen in fabrieken.
+- [Chantage door AI](https://fd.nl/opinie/1596766/chantage-door-ai)
+  > Chatbot Claude gedraagt zich soms als een kwaadaardige AI omdat het is getraind met, onder andere, teksten waarin AI de slechterik is.
+- [Moeten we rellen tegen de rijkste 0,01%?](https://fd.nl/opinie/1596145/moeten-we-rellen-tegen-de-rijkste-0-01)
+  > Geen idee wat ze bij het Centraal Planbureau stemmen, maar de timing van hun oproep tot belastingverhoging komt het op bezuinigingsgebied falende...
+- [Personalia vrijdag 15 mei](https://fd.nl/bedrijfsleven/1596760/personalia-vrijdag-15-mei)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [Amerikaanse beurzen eindigen stevig in het groen](https://fd.nl/financiele-markten/1596768/amerikaanse-beurzen-eindigen-stevig-in-het-groen)
   > Voor Wall Street was het een goede dag. Het Amerikaanse beursdebuut van Cerebras Systems is donderdag bruisend verlopen.
-- [Steek de kop niet wéér in het zand over hypotheekrenteaftrek](https://fd.nl/opinie/1596763/steek-de-kop-niet-weer-in-het-zand-over-hypotheekrenteaftrek)
-  > Het is niet bepaald de eerste keer dat deskundigen waarschuwen dat de dertigjaarstermijn onuitvoerbaar is. Dit keer moet Den Haag het ter harte nemen.
-- [China blaakt van zelfvertrouwen bij ontvangst Trump in Peking](https://fd.nl/politiek/1596640/china-vol-zelfvertrouwen-bij-ontvangst-trump-in-peking)
-  > Bij zijn bezoek aan China prees Donald Trump zijn ambtgenoot Xi Jinping donderdag de hemel in. De Chinese president liet de VS al eerdere merken dat...
-- [Turkse centrale bank: inflatie fors hoger](https://fd.nl/politiek/1596764/turkse-centrale-bank-inflatie-fors-hoger)
-  > De Turkse centrale bank heeft donderdag haar inflatieverwachting fors verhoogd. De bank rekent op een inflatie van maximaal 26% aan het einde van het...
-- [Verdachte babymelk Danone per ongeluk toch in Belgische schappen](https://fd.nl/bedrijfsleven/1596637/verdachte-babymelk-danone-per-ongeluk-toch-in-belgische-schappen)
-  > Door leveringsfouten is teruggeroepen melkpoeder van het merk Nutrilon toch in de verkoop gekomen.
 
 ### Meest gelezen
 
