@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-05-2026 om 00:04*
+*Laatst bijgewerkt: 14-05-2026 om 04:48*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Netflix gaat vanaf volgend jaar ook in Nederland reclames uitzenden](https://nos.nl/l/2614283)
+- [Minister: 'Cuba zit volledig zonder diesel en stookolie door Amerikaanse blokkade'](https://nos.nl/l/2614285)
+  > Cuba heeft helemaal geen diesel en stookolie meer. Dat heeft de minister van Energie en Mijnbouw gezegd op de staatstelevisie.
+        Volgens de...
+- [Senaat VS akkoord met benoeming Warsh als nieuwe baas centrale bank](https://nos.nl/l/2614284)
+  > De Amerikaanse Senaat heeft ingestemd met de benoeming van Kevin Warsh als nieuwe voorzitter van de centrale bank, de Federal Reserve (Fed). Hij...
+- [Netflix biedt vanaf volgend jaar goedkoper abonnement met reclame aan in Nederland](https://nos.nl/l/2614283)
   > Netflix komt volgend jaar ook in Nederland met een goedkoper abonnement met reclame. Het streamingplatform biedt kijkers daarmee straks de keuze:...
 - [Schade aan daken, auto's en bomen in Eersel door windhoos](https://nos.nl/l/2614282)
   > Een windhoos heeft vanmiddag in Eersel een ravage aangericht. Volgens Omroep Brabant waaiden bij meerdere huizen dakpannen van het dak. Ook waaiden...
 - [Vier aanhoudingen en waterkanon ingezet bij protest noodopvang Loosdrecht](https://nos.nl/l/2614280)
   > Een protest tegen opvang van asielzoekers in Loosdrecht is opnieuw uit de hand gelopen. Aanvankelijk verliep de demonstratie vreedzaam in een...
-- [Coalitie met PVV in Rucphen, mogelijk met eerste PVV-wethouder](https://nos.nl/l/2614278)
-  > Rucphen lijkt de eerste gemeente van Nederland te worden waar de PVV gaat meebesturen. Drie partijen, waaronder de PVV, hebben vanavond een...
-- [Cruiseschip met 1700 opvarenden voor anker bij Bordeaux na uitbraak norovirus](https://nos.nl/l/2614275)
-  > In Frankrijk is op een Brits cruiseschip met 1700 opvarenden het norovirus vastgesteld, een erg besmettelijk virus dat buikgriep veroorzaakt. Dat...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Twee jaar cel voor man die dodelijke drugs leverde aan Matthew Perry: ‘Deze fout zal me voor altijd achtervolgen’](https://www.ad.nl/show/twee-jaar-cel-voor-man-die-dodelijke-drugs-leverde-aan-matthew-perry-deze-fout-zal-me-voor-altijd-achtervolgen~a9260fd3/)
-  > Een man die betrokken was bij de drugsoverdosis van Friends-ster Matthew Perry is veroordeeld tot twee jaar gevangenisstraf. De rechter tilde zwaar...
-- [Wordt Arsenal voor het eerst sinds 2004 kampioen? Het resterende programma in de titelstrijd](https://www.ad.nl/voetbal/wordt-arsenal-voor-het-eerst-sinds-2004-kampioen-het-resterende-programma-in-de-titelstrijd~ac2bf7b5/)
-  > De Premier League nadert zijn ontknoping: koploper Arsenal moet nog twee speelronden overleven om zich voor het eerst sinds 2004 tot landskampioen te...
-- [LIVE Hantavirus | Medewerkers Radboudumc niet besmettelijk geweest voor anderen, aldus ziekenhuis](https://www.ad.nl/binnenland/live-hantavirus-medewerkers-radboudumc-niet-besmettelijk-geweest-voor-anderen-aldus-ziekenhuis~a3f98549/)
-  > De twaalf medewerkers van het Radboudumc die uit voorzorg in quarantaine zitten omdat ze mogelijk zijn blootgesteld aan het hantavirus, zijn niet...
-- [Voetbalpodcast | ‘Ismael Saibari is speler van het jaar in de eredivisie’](https://www.ad.nl/voetbal/voetbalpodcast-ismael-saibari-is-speler-van-het-jaar-in-de-eredivisie~a42af5cd9/)
-  > De vulkaan van Real Madrid blijft maar uitbarsten. Deze keer was het de voorzitter die flink van zich lied horen. Hoe staat Ajax ervoor richting de...
-- [Barça twee dagen na kampioensfeest onderuit tegen laagvlieger, Frenkie de Jong niet bij selectie](https://www.ad.nl/voetbal/barca-twee-dagen-na-kampioensfeest-onderuit-tegen-laagvlieger-frenkie-de-jong-niet-bij-selectie~a38ee6802/)
-  > Barcelona heeft woensdagavond averij opgelopen op bezoek bij Deportivo Alavés: 1-0. De benen voelden ongetwijfeld nog zwaar aan bij Barcelona, want...
+- [Zo verliep het achter de schermen bij drama afgelast festival Amsterdam: ‘Dit is onbestaanbaar’](https://www.ad.nl/show/zo-verliep-het-achter-de-schermen-bij-drama-afgelast-festival-amsterdam-dit-is-onbestaanbaar~ad47ec6c/)
+  > De bekende Nederlandse festivalorganisator Loveland hoorde naar eigen zeggen pas drie dagen voor Music On dat er geen positief advies zou komen voor...
+- [Amerikaan emigreert uit VS naar Nederland: ‘We weten dat we in een huizencrisis zijn gestapt’](https://www.ad.nl/wonen/amerikaan-emigreert-uit-vs-naar-nederland-we-weten-dat-we-in-een-huizencrisis-zijn-gestapt~ab872a4d/)
+  > Parker Woodroof (41) gaf zijn huis en baan aan de universiteit in de VS op om met zijn gezin een vriendelijker politiek klimaat op te zoeken in...
+- [Luxeveiling breekt record: Porsche met gouden velgen van ‘foute’ verpleegster verkocht voor 66.666 euro](https://www.ad.nl/buitenland/luxeveiling-breekt-record-porsche-met-gouden-velgen-van-foute-verpleegster-verkocht-voor-66-666-euro~a8bff7ed/)
+  > Een gesloten veiling van 25 in beslag genomen luxevoertuigen in het Belgische Bornem heeft een recordaantal biedingen en een verrassend hoge...
+- [Wetenschappers ontwikkelden vaccin tegen hantavirus, maar moesten stoppen door geldtekort](https://www.ad.nl/buitenland/wetenschappers-ontwikkelden-vaccin-tegen-hantavirus-maar-moesten-stoppen-door-geldtekort~a632b2fd/)
+  > Chileense wetenschappers ontwikkelden jaren geleden bijna een vaccin tegen het hantavirus, maar moesten hun onderzoek stopzetten wegens geldtekort....
+- [Slechts 2 cent per liter: in deze landen is benzine nog altijd spotgoedkoop](https://www.ad.nl/auto/slechts-2-cent-per-liter-in-deze-landen-is-benzine-nog-altijd-spotgoedkoop~a07f3a90/)
+  > Sinds de blokkade van de Straat van Hormuz lopen de benzineprijzen enorm op, maar niet alle automobilisten worden even hard getroffen. In drie landen...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [De kerk als activistisch belegger strijdt steeds vaker voor mens en klimaat](https://fd.nl/financiele-markten/1596739/de-kerk-als-activistisch-belegger-strijdt-steeds-vaker-voor-mens-en-klimaat)
+  > Kerken en kerkelijke instellingen willen een vuist maken om bedrijven te dwingen zich harder in te spannen voor een betere wereld.
+- [Vogelvrij! Bestuurders bij musea en cultuurcentra voelen zich onveilig](https://fd.nl/samenleving/1596188/vogelvrij-bestuurders-bij-musea-en-cultuurcentra-voelen-zich-onveilig)
+  > Het ontslag van directeur Birgit Donker van het Nederlands Fotomuseum veroorzaakte een schokgolf in de cultuursector. De positie van de bestuurder is...
+- [Luxe reisplanners: ‘Nee is in dit vak geen antwoord’](https://fd.nl/samenleving/1596142/luxe-reisplanners-nee-is-in-dit-vak-geen-antwoord)
+  > Een wereldreis per privéjet, kaartjes voor de uitverkochte Grand Prix van Monaco en safari’s met een eigen kok: geen verzoek gaat te ver voor deze...
+- [IT-iconen Baan en Nederlof: ‘Veel softwarebedrijven stelen winsten  klanten’](https://fd.nl/tech-en-innovatie/1596154/it-iconen-baan-en-nederlof-veel-softwarebedrijven-stelen-winsten-klanten)
+  > Techondernemers Jan Baan en Ad Nederlof werken opgeteld al meer dan honderd jaar in de top van de nationale en internationale IT-industrie. Ze vinden...
 - [Nu oliebedrijven weer profiteren, klinkt het populisme van de woekertaks](https://fd.nl/opinie/1596180/het-populisme-van-de-woekertaks)
   > De invoering van een heffing op de overwinsten van oliebedrijven klinkt weer luider, maar eerdere pogingen strandden op juridische bezwaren en een...
-- [Technologieaandelen duwen S&P 500 naar nieuw record](https://fd.nl/financiele-markten/1596621/technologieaandelen-duwen-s-p-500-naar-nieuw-record)
-  > Onder meer Alibaba en Nebius kwamen bij hun kwartaalcijfers met positieve geluiden over kunstmatige intelligentie.
-- [De Brauw-advocaat nieuwe voorzitter privacywaakhond AP](https://fd.nl/bedrijfsleven/1596632/de-brauw-advocaat-nieuwe-voorzitter-privacywaakhondap)
-  > Geert Potjewijd had als advocaat onder meer grote technologiebedrijven TikTok en Meta als klant.
-- [Geweld in Loosdrecht leidt tot afschuw in Den Haag, waar asiel weer hoog op de agenda staat](https://fd.nl/politiek/1596631/geweld-in-loosdrecht-leidt-tot-afschuw-in-den-haag-waar-asiel-weer-hoog-op-de-agenda-staat)
-  > De gewelddadige protesten tegen asielopvang zetten burgemeesters, wethouders en raadsleden onder druk.
-- [Oud-medewerker legt voor half miljoen beslag bij maker van vliegende auto’s](https://fd.nl/bedrijfsleven/1596627/oud-medewerker-legt-voor-half-miljoen-beslag-bij-maker-van-vliegende-autos)
-  > PAL-V maakt vliegende auto’s. Al jaren is het een belofte, maar de wagens worden nog niet verkocht. Een voormalige medewerker legt beslag, want hij...
 
 ### Meest gelezen
 
