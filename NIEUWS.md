@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-05-2026 om 03:51*
+*Laatst bijgewerkt: 15-05-2026 om 07:27*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Man (27) overleden na schietpartij in Vaals](https://nos.nl/l/2614389)
-  > Bij een nachtelijke schietpartij in het Limburgse dorp Vaals is een man om het leven gekomen. Dat meldt de politie. Het slachtoffer is een man van 27...
-- [Vijf Italianen overleden na duikongeluk op 50 meter diepte in Malediven](https://nos.nl/l/2614388)
-  > Vijf Italianen zijn omgekomen bij een duikongeluk in de Malediven, zo meldt het Italiaanse ministerie van Buitenlandse Zaken. De vijf zouden...
-- [Jetten kondigt jaarlijkse 'koninkrijksconferentie' aan met Aruba, Curaçao en Sint-Maarten](https://nos.nl/l/2614387)
-  > Er komt een jaarlijkse 'koninkrijksconferentie' waarbij de vier landen uit het Nederlandse koninkrijk op basis van gelijkwaardigheid met elkaar gaan...
-- [Vogelgriep ontdekt op pluimveebedrijf Biddinghuizen, 55.000 kippen gedood](https://nos.nl/l/2614386)
-  > Op een pluimveebedrijf in Biddinghuizen is vogelgriep vastgesteld, zo meldt het ministerie van Landbouw, Visserij, Voedselzekerheid en Natuur in een...
-- ['Wurglied' Roemenië naar finale songfestival, BBC zendt lhbti-video niet uit](https://nos.nl/l/2614382)
-  > Ook in de tweede halve finale van het Eurovisie Songfestival zijn alle acts die hoog staan bij de bookmakers doorgegaan naar de finale.
-        Waar...
+- [50e editie sloeproeiwedstrijd op Waddenzee gaat niet door vanwege slecht weer](https://nos.nl/l/2614404)
+  > De 50e editie van de Harlingen-Terschelling Roeirace gaat niet door vanwege het slechte weer. Dat heeft de organisatie bekendgemaakt.
+        Bij de...
+- [Bosbrand na dodelijke crash medisch vliegtuigje in VS](https://nos.nl/l/2614400)
+  > In de Amerikaanse staat New Mexico zijn vier mensen omgekomen bij een ongeluk met een medisch vliegtuigje. Door de crash brak er een bosbrand uit in...
+- [Dodental in Kyiv door Russische luchtaanvallen opgelopen naar 24](https://nos.nl/l/2614398)
+  > Het dodental door Russische aanvallen op de Oekraïense hoofdstad Kyiv is opgelopen naar 24, onder wie kinderen. Dat meldt de landelijke...
+- [Abortuspil voorlopig toch nog beschikbaar via post in VS](https://nos.nl/l/2614396)
+  > Een veelgebruikte abortuspil blijft in de Verenigde Staten voorlopig toch beschikbaar via de post. Het Hooggerechtshof draait voorlopig een...
+- [Wekdienst 15/5: Suzan & Freek beginnen concertreeks • Palestijnen herdenken Nakba](https://nos.nl/l/2614394)
+  > Goedemorgen! Suzan & Freek beginnen vandaag aan hun reeks stadionconcerten in de GelreDome in Arnhem en in Amsterdam, Rotterdam en Utrecht wordt de...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Trump: ik ga niet veel meer geduld hebben met Iran, China wil ‘zo snel mogelijk algemeen en duurzaam staakt-het-vuren’](https://www.ad.nl/buitenland/trump-ik-ga-niet-veel-meer-geduld-hebben-met-iran-china-wil-zo-snel-mogelijk-algemeen-en-duurzaam-staakt-het-vuren~ac528ac3/)
-  > De Amerikaanse president Donald Trump heeft gezegd dat hij niet veel meer geduld met Iran zal hebben. Hij deed die uitspraak in een interview op Fox...
-- [Hooggerechtshof VS bepaalt dat abortuspil toch tijdelijk per post mag worden verstuurd](https://www.ad.nl/buitenland/hooggerechtshof-vs-bepaalt-dat-abortuspil-toch-tijdelijk-per-post-mag-worden-verstuurd~aac091f1/)
-  > Het Amerikaanse Hooggerechtshof heeft donderdag besloten de toegang tot de abortuspil mifepristone na een telefonisch consult per post toch tijdelijk...
-- [Man (27) om het leven gekomen bij schietpartij in Limburgse plaats Vaals](https://www.ad.nl/vaals/man-27-om-het-leven-gekomen-bij-schietpartij-in-limburgse-plaats-vaals~a3bb62e9/)
-  > Bij een schietpartij op de Parklaan in het Limburgse Vaals is een persoon overleden. Het gaat om een 27-jarige man uit de gemeente Vaals. Dat meldt...
-- [Vogelgriep vastgesteld bij pluimveebedrijf in Biddinghuizen: 55.000 kippen geruimd](https://www.ad.nl/binnenland/vogelgriep-vastgesteld-bij-pluimveebedrijf-in-biddinghuizen-55-000-kippen-geruimd~aee3b2de/)
-  > In Biddinghuizen, in de provincie Flevoland, is vogelgriep vastgesteld op een leghennenbedrijf, meldt het ministerie van Landbouw, Visserij,...
-- [Gasprijs gaat nog verder stijgen: wie niet isoleert, betaalt zich blauw](https://www.ad.nl/economie/gasprijs-gaat-nog-verder-stijgen-wie-niet-isoleert-betaalt-zich-blauw~a4b61b47/)
-  > De nieuwe CO2-heffing op aardgas, die over anderhalf jaar wordt ingevoerd, geeft mensen in een slecht geïsoleerde woning geen keuze: ze moeten als de...
+- [Tientallen winkels Gall & Gall plat door staking, kopers voor dichte deur](https://www.ad.nl/economie/tientallen-winkels-gall-en-gall-plat-door-staking-kopers-voor-dichte-deur~a64d2119/)
+  > Tientallen filialen van drankenwinkel Gall & Gall zijn vandaag dicht door een staking. De werknemers willen een betere cao. Onder meer in Amsterdam,...
+- [AD-lezers kiezen allermooiste voetbalnaam uit geschiedenis: ‘Vroeger was ik er nooit zo blij mee’](https://www.ad.nl/voetbal/ad-lezers-kiezen-allermooiste-voetbalnaam-uit-geschiedenis-vroeger-was-ik-er-nooit-zo-blij-mee~a409f097/)
+  > De allermooiste voetbalnaam uit de geschiedenis is bekend. De lezers van deze site en luisteraars van AD voetbalpodcast hebben de afgelopen weken...
+- [Fenix groeit in één jaar uit tot publiekstrekker: half miljoen bezoekers en wijk die bruist als nooit tevoren](https://www.ad.nl/binnenland/fenix-groeit-in-een-jaar-uit-tot-publiekstrekker-half-miljoen-bezoekers-en-wijk-die-bruist-als-nooit-tevoren~a66f5859/)
+  > Migratiemuseum Fenix bestaat één jaar. Dat een vergeten havenloods zou uitgroeien tot zo’n groot succes, voorzag (bijna) niemand. Een terugblik naar...
+- [Eredivisie brengt ode aan 70-jarig bestaan met nieuwe wedstrijdbal](https://www.ad.nl/voetbal/eredivisie-brengt-ode-aan-70-jarig-bestaan-met-nieuwe-wedstrijdbal~ad370560/)
+  > Derbystar heeft de nieuwe bal voor de VriendenLoterij Eredivisie bekendgemaakt. De bal viert het 70-jarig bestaan van de eredivisie met het thema...
+- [Italiaanse politie arresteert twee mannen (19 en 20) die probeerden renners in Giro-etappe te laten vallen](https://www.ad.nl/giro/italiaanse-politie-arresteert-twee-mannen-19-en-20-die-probeerden-renners-in-giro-etappe-te-laten-vallen~a7c522c5/)
+  > De twee toeschouwers van 19 en 20 jaar oud die tijdens de zesde etappe van de Giro d’Italia bewust renners in gevaar brachten, zijn gearresteerd door...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Met welke deals vertrekt Trump uit China?](https://fd.nl/economie/1596625/met-welke-deals-vertrekt-trump-uit-china)
-  > Vandaag in Dagkoers: hoe Donald Trumps staatsbezoek aan China verliep; Nederlandse asfaltcentrales in zwaar weer; en de erfenis van Fed-voorzitter...
-- [Recycler Pryme sluit fabriek, herstructureert en verdwijnt van de beurs](https://fd.nl/bedrijfsleven/1596619/recycler-pryme-sluit-fabriek-herstructureert-en-verdwijnt-van-de-beurs)
-  > Het noodlijdende bedrijf hoopt zijn plasticrecyclingtechniek later alsnog toe te passen in fabrieken.
-- [Chantage door AI](https://fd.nl/opinie/1596766/chantage-door-ai)
-  > Chatbot Claude gedraagt zich soms als een kwaadaardige AI omdat het is getraind met, onder andere, teksten waarin AI de slechterik is.
-- [Moeten we rellen tegen de rijkste 0,01%?](https://fd.nl/opinie/1596145/moeten-we-rellen-tegen-de-rijkste-0-01)
-  > Geen idee wat ze bij het Centraal Planbureau stemmen, maar de timing van hun oproep tot belastingverhoging komt het op bezuinigingsgebied falende...
-- [Personalia vrijdag 15 mei](https://fd.nl/bedrijfsleven/1596760/personalia-vrijdag-15-mei)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Nederland is eigenlijk te volgebouwd om nog zo uitgebreid te boeren](https://fd.nl/opinie/1596307/nederland-te-vol-om-te-boeren)
+  > Hoewel landbouw meer dan de helft van ons landoppervlak claimt, vertegenwoordigt die grond economisch een fractie van de waarde van woon- en...
+- [In een steeds instabielere wereld verdwijnt het taboe op kernwapens](https://fd.nl/politiek/1594965/in-een-steeds-instabielere-wereld-verdwijnt-het-taboe-op-kernwapens)
+  > De Iran-oorlog moest een streep zetten door de wens van Teheran om een kernwapen te bouwen. Maar door de internationale spanningen neemt de...
+- [Fagron opnieuw gewaarschuwd door Amerikaanse toezichthouder](https://fd.nl/bedrijfsleven/1596788/fagron-opnieuw-gewarschuwd-door-amerikaanse-toezichthouder)
+  > Volgens de Amerikaanse FDA zijn er problemen in een fabriek van het apotheekbedrijf in Boston.
+- [Een brasserie in Haarlem en een alarmerende natuurfilm in Artis](https://fd.nl/samenleving/1596761/een-brasserie-in-haarlem-en-een-alarmerende-natuurfilm-in-artis)
+  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
+- [Drone vliegt luchtruim van Finland binnen](https://fd.nl/politiek/1596673/drone-vliegt-finse-luchtruim-binnen)
+  > De Finse autoriteiten waarschuwden burgers om binnen te blijven, maar inmiddels is dat advies ingetrokken.
 
 ### Meest gelezen
 
