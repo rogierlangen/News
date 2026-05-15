@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-05-2026 om 15:21*
+*Laatst bijgewerkt: 15-05-2026 om 17:43*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Amsterdam profiteert van Harrymania, maar economische winst vooral lokaal](https://nos.nl/l/2614452)
-  > Honderdduizenden Harries, zo worden fans van Harry Styles genoemd, zijn de komende dagen in Amsterdam te vinden voor een concertreeks van de Britse...
-- [Stoomboot De Majesteit te koop: 'Bezit van alle Rotterdammers'](https://nos.nl/l/2614449)
-  > Het schip De Majesteit maakt al decennialang deel uit van het uitzicht vanaf de Maasboulevard in Rotterdam. Of dat zo blijft moet nog blijken, want...
-- [Kabinet wil kippen in Nederland gaan vaccineren](https://nos.nl/l/2614447)
-  > Het kabinet komt met een plan om legkippen verplicht te vaccineren. Uit experimenten is gebleken dat de vaccins werken en dat de eieren van...
-- [Celstraf voor man die lichaam vriend probeerde te verbergen na ongeluk drugslab](https://nos.nl/l/2614446)
-  > De rechtbank in Den Bosch heeft een 44-jarige man veroordeeld tot drie jaar cel, waarvan één jaar voorwaardelijk, voor zijn rol in een drugslab in...
-- [Podcast De Dag: de AI-oorlog tussen China en de Verenigde Staten](https://nos.nl/l/2614443)
-  > De Amerikaanse president Donald Trump en president Xi van China ontmoetten elkaar deze week. Ze praatten over handel en economische samenwerking,...
+- [Na rellen Loosdrecht laat 'stille meerderheid' van zich horen](https://nos.nl/l/2614465)
+  > Waar Loosdrecht de laatste weken geregeld in het nieuws was vanwege grimmige demonstraties tegen de noodopvang van asielzoekers, zijn er steeds meer...
+- [Luxeconcern LVMH verkoopt modehuis Marc Jacobs](https://nos.nl/l/2614463)
+  > Het Franse luxeconcern Louis Vuitton Moët Hennessy (LVMH) doet modehuis Marc Jacobs van de hand. Het merk wordt verkocht aan de Amerikaanse bedrijven...
+- [Russische dissident Litvinova (80) pleegt zelfmoord in Moskou](https://nos.nl/l/2614460)
+  > In Rusland is afgelopen woensdag het lichaam van de dissident Nina Michailovna Litvinova aangetroffen op straat in het centrum van Moskou. Russische...
+- [Twee jongens (15 en 17) aangehouden in onderzoek naar dode man in Amsterdam](https://nos.nl/l/2614459)
+  > De politie heeft twee jongens van 15 en 17 jaar uit Amsterdam aangehouden voor betrokkenheid bij de dood van een 73-jarige man in de stad. Het...
+- [Zelfs met dit grauwe weer draait Oerrock helemaal op zonne-energie](https://nos.nl/l/2614455)
+  > Achter de schermen van het Friese festival Oerrock gaat het dit keer anders dan andere jaren. Het evenement draait voor het eerst volledig op...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Vingegaard voltooit beulwerk van ploeg en maakt favorietenstatus waar, Arensman verliest bijna 2 minuten](https://www.ad.nl/giro/vingegaard-voltooit-beulwerk-van-ploeg-en-maakt-favorietenstatus-waar-arensman-verliest-bijna-2-minuten~a13781c5/)
-  > Jonas Vingegaard maakt direct duidelijk hoe de verhoudingen zijn in deze Giro. De Deen won op Blockhaus na een solo van een kleine vijf kilometer. Al...
-- [Van Persie wil Zechiël een kans geven, Oud-Feyenoorder verlaat Bournemouth](https://www.ad.nl/voetbal/van-persie-wil-zechiel-een-kans-geven-oud-feyenoorder-verlaat-bournemouth~a488141d/)
-  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
-- [Ondanks miljoenen verkochte tickets vallen hotelboekingen tegen in VS, vooral in Oranje-speelstad Kansas](https://www.ad.nl/wk-voetbal/ondanks-miljoenen-verkochte-tickets-vallen-hotelboekingen-tegen-in-vs-vooral-in-oranje-speelstad-kansas~a945110a6/)
-  > Het aantal hotelboekingen in Amerikaanse speelsteden dit WK valt tegen. Zo’n 80 procent van de hotels meldt dat er minder boekingen zijn dan...
-- [Óscar García waagt zich alvast aan voorspelling: ‘Ik weet zeker dat Ajax volgend jaar kampioen wordt’](https://www.ad.nl/voetbal/oscar-garcia-waagt-zich-alvast-aan-voorspelling-ik-weet-zeker-dat-ajax-volgend-jaar-kampioen-wordt~aff0f0f7/)
-  > Trainer Óscar García van Ajax denkt dat de landstitel komend seizoen weer naar de Amsterdammers gaat. Dat zegt de Spanjaard in een interview met...
-- [Deel opvarenden van de Hondius gaat in quarantaine in Rotterdamse haven](https://www.ad.nl/binnenland/deel-opvarenden-van-de-hondius-gaat-in-quarantaine-in-rotterdamse-haven~a4d24760/)
-  > In de Rotterdamse haven worden 23 portakabins klaargemaakt om de buitenlandse opvarenden van cruiseschip Hondius op te vangen. Of ze daar...
+- [Minderjarige jongen uit Stadskanaal aangehouden voor vernieling bij huis van mishandelde kinderen](https://www.ad.nl/binnenland/minderjarige-jongen-uit-stadskanaal-aangehouden-voor-vernieling-bij-huis-van-mishandelde-kinderen~a2ce4172/)
+  > De politie heeft een minderjarige jongen aangehouden in Stadskanaal. De jongen wordt ervan verdacht vernieling te hebben gepleegd bij een huis van de...
+- [Dreun voor Mika Godts: Ajax-uitblinker niet opgeroepen voor WK-selectie van België: ‘Zijn positie al vierdubbel bezet’](https://www.ad.nl/wk-voetbal/dreun-voor-mika-godts-ajax-uitblinker-niet-opgeroepen-voor-wk-selectie-van-belgie-zijn-positie-al-vierdubbel-bezet~a555cbf3/)
+  > Mika Godts is niet opgeroepen voor de WK-selectie van België. De 20-jarige aanvaller behoort niet tot de 26-koppige groep die bondscoach Rudi García...
+- [Van rechtszaak Ferry Doedens tot ongemakkelijk moment voor Dotan: test je showbizzkennis](https://www.ad.nl/quiz/van-rechtszaak-ferry-doedens-tot-ongemakkelijk-moment-voor-dotan-test-je-showbizzkennis~a7cee5bb/)
+  > Deze week verscheen Ferry Doedens voor de rechter en beleefde Dotan een ongemakkelijk moment tijdens een optreden in Polen. Maar er gebeurde nog veel...
+- [Alleen de echte nieuwsjunk maakt deze wekelijkse quiz foutloos](https://www.ad.nl/quiz/alleen-de-echte-nieuwsjunk-maakt-deze-wekelijkse-quiz-foutloos~aab519ab/)
+  > Deze week kreeg Ferry Doedens een boete wegens rijden onder invloed van drugs en werd een man veroordeeld tot een celstraf voor het stelen van...
+- [Marco Borsato aan de beterende hand na fietsongeluk: ‘Hij heeft het echt zwaar gehad’](https://www.ad.nl/show/marco-borsato-aan-de-beterende-hand-na-fietsongeluk-hij-heeft-het-echt-zwaar-gehad~a8281bc3/)
+  > Het gaat weer een stuk beter met Marco Borsato na zijn fietsongeluk vorige maand. Zijn moeder Mary zei vrijdag in de uitzending van RTL Boulevard dat...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Obligatierente schiet wereldwijd omhoog door olieoorlog](https://fd.nl/financiele-markten/1596811/obligatierente-schiet-wereldwijd-omhoog-door-olieoorlog)
+  > De Amerikaanse rente op tienjarig staatsobligaties steeg vrijdag liefst 9 basispunten naar 4,58% – het hoogste niveau in een jaar
+- [Beursgang Nvidia-concurrent biedt vertrouwen voor beursplannen OpenAI en SpaceX](https://fd.nl/financiele-markten/1596907/beursgang-nvidia-concurrent-biedt-vertrouwen-voor-beursplannen-openai-en-spacex)
+  > Een tegenstrever van Nvidia heeft een uiterst succesvol beursdebuut gemaakt.
+- [Diversiteit in Amerikaanse boardrooms neemt af onder druk van Trump](https://fd.nl/bedrijfsleven/1596810/diversiteit-in-amerikaanse-boardrooms-neemt-af-onder-druk-van-trump)
+  > Bedrijven staan onder druk van president Trump, die diversiteitsbeleid als ‘illegaal’ bestempelt.
 - [Chip- en energiesector in de spotlights tijdens bezoek Indiase premier Modi](https://fd.nl/economie/1596912/chip-en-energiesector-in-de-spotlights-tijdens-bezoek-indiase-premier-modi)
   > De Indiase premier Modi bezoekt dit weekend Nederland en wil de economische banden verder verdiepen, onder andere op het gebied van chiptechnologie...
 - [Beslag op kasteel Jan-Dirk Paarlberg blijft in stand](https://fd.nl/samenleving/1596807/beslag-op-paarlberg-kasteel-blijft-in-stand)
   > De ex-vriendin van de veroordeelde zakenman wist volgens de rechtbank dat de vastgoeddeal met de buitenplaats langs de Vecht bedoeld was om diens...
-- [Tata Steel Nederland lijdt opnieuw ruim €200 mln verlies](https://fd.nl/bedrijfsleven/1596792/tata-steel-nederland-lijdt-opnieuw-ruim-200-mln-verlies)
-  > Het moederbedrijf waarschuwt dat het fundamentele risico’s ziet voor het voortbestaan van de Nederlandse divisie van Tata Steel.
-- [Kabinet wil vaccinatieplicht voor legkippen tegen vogelgriep](https://fd.nl/economie/1596804/kabinet-wil-vaccinatieplicht-voor-legkippen-tegen-vogelgriep)
-  > De sector maakt zich wel zorgen voor de gevolgen van de plicht voor de export van eieren.
-- [Inflatiezorgen schemeren door tussen recordstanden op de beurs](https://fd.nl/financiele-markten/1596886/inflatiezorgen-schemeren-door-tussen-recordstanden-op-de-beurs)
-  > Na een exceptioneel sterk eerste kwartaal voor de grote techbedrijven, begint angst voor inflatie toch door te werken bij beleggers. De Straat van...
 
 ### Meest gelezen
 
