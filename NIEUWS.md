@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-05-2026 om 10:28*
+*Laatst bijgewerkt: 15-05-2026 om 12:56*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- ['Wasdroger uit aub', Utrecht ziet heil in alert bij overvol stroomnetwerk](https://nos.nl/l/2614417)
-  > Utrechters krijgen mogelijk in de toekomst een melding als ergens sprake is van overbelasting van het stroomnet. Inwoners ontvangen dan een...
-- [Burgemeester over onrust Stadskanaal: 'Vernielingen helpen de kinderen niet'](https://nos.nl/l/2614415)
-  > Burgemeester Klaas Sloots van Stadskanaal roept in een brief op om politie en justitie hun werk te laten doen en het recht niet in eigen hand te...
-- [Nieuwe Fed-baas direct klem tussen Trump en markten: 'Niet te benijden positie'](https://nos.nl/l/2614414)
-  > "De rente zou veel lager moeten zijn dan hij nu is. Als Kevin op zijn plek zit, dan gaat de rente omlaag", zei de Amerikaanse president Donald Trump...
-- [Opnieuw ebola-uitbraak in Congo, zeker 65 doden: 'Risico op verdere verspreiding'](https://nos.nl/l/2614409)
-  > In een afgelegen provincie van de Democratische Republiek Congo is ebola uitgebroken. Daarbij zijn tot nu toe 65 doden gevallen, zo meldt Afrikaanse...
-- [CIA-baas brengt hoogst ongebruikelijk bezoek aan Cuba](https://nos.nl/l/2614408)
-  > In de Cubaanse hoofdstad Havana heeft gisteren een opmerkelijk bezoek plaatsgevonden. De Amerikaanse CIA-directeur John Ratcliffe bezocht zijn...
+- [Hormonale aandoening die miljoenen vrouwen treft krijgt nieuwe naam](https://nos.nl/l/2614435)
+  > Een hormonale aandoening die 1 op de 8 vrouwen wereldwijd treft, heeft een nieuwe naam gekregen. Polycysteus ovarium syndroom (PCOS) heet voortaan...
+- [Zoektocht naar Italiaanse grotduikers op Malediven gaat door, OM begint onderzoek](https://nos.nl/l/2614434)
+  > Op het atol Vaavu in de Malediven wordt nog altijd gezocht naar vier Italiaanse duikers die sinds gisteren worden vermist. Ze hoorden bij een groep...
+- [Tientallen doden door bendegeweld rondom Haïtiaanse hoofdstad](https://nos.nl/l/2614428)
+  > Bij geweld tussen gewapende bendes rondom de Haïtiaanse hoofdstad Port-au-Prince zijn sinds zaterdag zeker 78 doden gevallen, onder wie tien burgers....
+- [Trump verlaat China: kou uit de lucht, nog geen concrete uitkomsten](https://nos.nl/l/2614424)
+  > Minder dan 48 uur na aankomst heeft de Amerikaanse president Trump Peking weer verlaten. Voor gastland China lijken de beoogde doelen behaald: het...
+- [Kritiek op nieuwe luchtverkeersregels van het kabinet](https://nos.nl/l/2614420)
+  > Mensen die in de buurt van Schiphol wonen, worden niet voldoende beschermd. Dat is de conclusie van de onafhankelijke Commissie voor de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Markuszower staat achter uitspraak over geweld tegen Palestijnse vluchtelingen: ‘Had wel gepaster gemoeten’](https://www.ad.nl/politiek/markuszower-staat-achter-uitspraak-over-geweld-tegen-palestijnse-vluchtelingen-had-wel-gepaster-gemoeten~a7ceec06/)
-  > Gidi Markuszower vindt dat hij zich voor de camera van het communistische platform Left Laser ‘beter, scherper en gepaster’ had moeten uitspreken...
-- [Er moeten toch wel meer mensen die ondervoede en vervuilde kinderen uit Stadskanaal hebben gezien?](https://www.ad.nl/binnenland/er-moeten-toch-wel-meer-mensen-die-ondervoede-en-vervuilde-kinderen-uit-stadskanaal-hebben-gezien~a7a3382c/)
-  > We denken dat we zo mondig zijn, hebben online het hoogste woord. Maar een moeder in haar gezicht aanspreken omdat haar kind er ondervoed en vervuild...
-- [Max Verstappen helpt zijn team richting strijd om pole voor 24 uur van Nürburgring](https://www.ad.nl/formule-1/max-verstappen-helpt-zijn-team-richting-strijd-om-pole-voor-24-uur-van-nurburgring~a5bdd279/)
-  > Max Verstappen heeft zich vrijdag in aanloop naar de 24 uur van de Nürburgring geplaatst voor de allesbeslissende topkwalificatie, later vandaag...
-- [Beveiligers Schiphol slaan alarm: werkdruk torenhoog en veiligheid staat onder druk](https://www.ad.nl/economie/beveiligers-schiphol-slaan-alarm-werkdruk-torenhoog-en-veiligheid-staat-onder-druk~a15482a8/)
-  > Beveiligers op Schiphol slaan alarm. Volgens vakbond FNV is de werkdruk torenhoog en schiet de veiligheidscultuur ernstig tekort. Sommige medewerkers...
-- [Zet je vriendjes bij elkaar, wie traint jouw kind en andere dilemma’s over teamindelingen: zo voorkom je gedoe](https://www.ad.nl/voetbal/zet-je-vriendjes-bij-elkaar-wie-traint-jouw-kind-en-andere-dilemmas-over-teamindelingen-zo-voorkom-je-gedoe~a5213f2d/)
-  > Het is weer de tijd van de teamindelingen. Bij veel amateurclubs leidt dit tot hoofdbrekens, discussie en soms ook boze leden. Hoe voorkom je dit?...
+- [VS en VK haalden hoogverrijkt uranium uit Venezuela: ‘Mijlpaal voor nucleaire veiligheid’](https://www.ad.nl/buitenland/vs-en-vk-haalden-hoogverrijkt-uranium-uit-venezuela-mijlpaal-voor-nucleaire-veiligheid~a55f6a26/)
+  > De Verenigde Staten en het Verenigd Koninkrijk hebben hoogverrijkt uranium uit Venezuela weggehaald en naar de VS gebracht. Dat meldden de landen in...
+- [Max Verstappen en zijn team grijpen naast pole en moeten genoegen nemen met P4 voor 24 uursrace](https://www.ad.nl/formule-1/max-verstappen-en-zijn-team-grijpen-naast-pole-en-moeten-genoegen-nemen-met-p4-voor-24-uursrace~a380910a/)
+  > Max Verstappen en zijn teamgenoten Daniel Juncadella, Lucas Auer en Jules Gounon beginnen zaterdag (15.00 uur) vanaf de vierde plek aan de 24 uur van...
+- [Speelschema WK voetbal 2026 | Op deze dagen komt het Nederlands elftal in actie](https://www.ad.nl/voetbal/speelschema-wk-voetbal-2026-op-deze-dagen-komt-het-nederlands-elftal-in-actie~ad85207c/)
+  > Het Nederlands elftal en 47 andere landen strijden in Canada, Mexico en de Verenigde Staten om de wereldtitel. Van donderdag 11 juni tot en met...
+- [Trump schrijft geschiedenis met ‘eigen’ vliegveld: voor het eerst vernoemd naar zittende president](https://www.ad.nl/buitenland/trump-schrijft-geschiedenis-met-eigen-vliegveld-voor-het-eerst-vernoemd-naar-zittende-president~a9e96b71/)
+  > Palm Beach International Airport in Florida wordt vanaf 9 juli officieel vernoemd naar de Amerikaanse president Donald Trump. Dat heeft de Federal...
+- [Vier sterren voor Lemming: Merijn Scholten kan ook boeien zónder gekke stemmetjes of ironie](https://www.ad.nl/show/vier-sterren-voor-lemming-merijn-scholten-kan-ook-boeien-zonder-gekke-stemmetjes-of-ironie~aa3543a7/)
+  > Moet lanterfanten een olympische sport worden? Wel als het aan Merijn Scholten ligt. In zijn fijne voorstelling Lemming pleit hij voor...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Commissie: milieustudie Schiphol schiet tekort, hinder voor omwonenden kan blijven bestaan](https://fd.nl/politiek/1596793/commissie-milieustudie-schiphol-schiet-tekort-hinder-voor-omwonenden-kan-blijven-bestaan)
-  > De gevolgen van het Luchthavenverkeersbesluit voor het milieu lijken in de studie kleiner dan ze daadwerkelijk zijn, schrijft de commissie.
-- [Corrigeren van nepnieuws is niet genoeg voor de EU](https://fd.nl/politiek/1596877/corrigeren-van-nepnieuws-is-niet-genoeg-voor-de-eu)
-  > Brussel kon de brexit niet voorkomen met een blog voor het weerleggen van onzinverhalen van Britse tabloids. Tien jaar later denkt het na over andere...
-- [Zakendoen bij een wijntje gaat prima in Nederlandse en Franse techsector](https://fd.nl/tech-en-innovatie/1596607/zakendoen-bij-een-wijntje-gaat-prima-in-nederlandse-en-franse-techsector)
-  > In de techwereld leven geen ouderwetse opvattingen over ‘cultuurverschillen’ tussen Fransen en Nederlanders. Fransen investeren steeds meer in...
-- [Saltibarsciai: koude soep als citymarketing](https://fd.nl/politiek/1596616/saltibarsciai-koude-soep-als-citymarketing)
-  > Eind mei oogt de Litouwse hoofdstad Vilnius drie dagen lang alsof Barbie een staatsgreep heeft gepleegd, als marketinginstrument én als zacht...
-- [Veel winkels Gall & Gall dicht door staking](https://fd.nl/bedrijfsleven/1596884/veel-winkels-gall-gall-dicht-door-staking)
-  > Tientallen winkels van Gall & Gall blijven vrijdag gesloten omdat werknemers staken voor een betere cao. Een laatste loonbod werd verworpen door...
+- [Japanse lange rente naar recordhoogte, en daarvoor is één hoofdschuldige](https://fd.nl/financiele-markten/1596913/japanse-lange-rente-naar-recordhoogte-en-daarvoor-is-een-hoofdschuldige)
+  > Japan kent sinds 1999 al 30-jarige obligaties, maar nog nooit was de rente daarop zo hoog: ruim 4%.
+- [In Amsterdam stuit Harry Styles op de grenzen van zijn succes](https://fd.nl/bedrijfsleven/1596186/in-amsterdam-stuit-harry-styles-op-de-grenzen-van-zijn-succes)
+  > Vanaf zaterdag geeft popartiest Harry Styles tien concerten in de Johan Cruijff Arena. Dat blijkt zelfs voor deze superster een ambitieus project. Er...
+- [Angst voor verlies houdt veel Nederlanders weg van de beurs](https://fd.nl/financiele-markten/1596885/angst-voor-verlies-houdt-veel-nederlanders-weg-van-de-beurs)
+  > Ruim een derde van de niet-beleggende Nederlanders is bang om geld te verliezen met beleggen in aandelen, beleggingsfondsen of indextrackers.
+- [Kabinet strijdt niet alleen met de oppositie, maar ook met het straatgeweld](https://fd.nl/politiek/1596791/kabinet-strijdt-niet-alleen-met-oppositie-maar-ook-met-het-straatgeweld)
+  > Politiek geweld om een ander beleid af te dwingen, zoals deze week in Loosdrecht, zagen we wel vaker in Nederland. En soms werkt het nog ook.
+- [Weinig Italianen zullen erom rouwen dat ITA in handen van Lufthansa komt](https://fd.nl/bedrijfsleven/1596794/weinig-italianen-zullen-erom-rouwen-dat-ita-in-handen-van-lufthansa-komt)
+  > De Duitse luchtvaartmaatschappij Lufthansa neemt het voormalige Alitalia over. Daarmee komt er een einde aan de saga rond de eeuwig tobbende...
 
 ### Meest gelezen
 
