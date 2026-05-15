@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-05-2026 om 07:27*
+*Laatst bijgewerkt: 15-05-2026 om 10:28*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [50e editie sloeproeiwedstrijd op Waddenzee gaat niet door vanwege slecht weer](https://nos.nl/l/2614404)
-  > De 50e editie van de Harlingen-Terschelling Roeirace gaat niet door vanwege het slechte weer. Dat heeft de organisatie bekendgemaakt.
-        Bij de...
-- [Bosbrand na dodelijke crash medisch vliegtuigje in VS](https://nos.nl/l/2614400)
-  > In de Amerikaanse staat New Mexico zijn vier mensen omgekomen bij een ongeluk met een medisch vliegtuigje. Door de crash brak er een bosbrand uit in...
-- [Dodental in Kyiv door Russische luchtaanvallen opgelopen naar 24](https://nos.nl/l/2614398)
-  > Het dodental door Russische aanvallen op de Oekraïense hoofdstad Kyiv is opgelopen naar 24, onder wie kinderen. Dat meldt de landelijke...
-- [Abortuspil voorlopig toch nog beschikbaar via post in VS](https://nos.nl/l/2614396)
-  > Een veelgebruikte abortuspil blijft in de Verenigde Staten voorlopig toch beschikbaar via de post. Het Hooggerechtshof draait voorlopig een...
-- [Wekdienst 15/5: Suzan & Freek beginnen concertreeks • Palestijnen herdenken Nakba](https://nos.nl/l/2614394)
-  > Goedemorgen! Suzan & Freek beginnen vandaag aan hun reeks stadionconcerten in de GelreDome in Arnhem en in Amsterdam, Rotterdam en Utrecht wordt de...
+- ['Wasdroger uit aub', Utrecht ziet heil in alert bij overvol stroomnetwerk](https://nos.nl/l/2614417)
+  > Utrechters krijgen mogelijk in de toekomst een melding als ergens sprake is van overbelasting van het stroomnet. Inwoners ontvangen dan een...
+- [Burgemeester over onrust Stadskanaal: 'Vernielingen helpen de kinderen niet'](https://nos.nl/l/2614415)
+  > Burgemeester Klaas Sloots van Stadskanaal roept in een brief op om politie en justitie hun werk te laten doen en het recht niet in eigen hand te...
+- [Nieuwe Fed-baas direct klem tussen Trump en markten: 'Niet te benijden positie'](https://nos.nl/l/2614414)
+  > "De rente zou veel lager moeten zijn dan hij nu is. Als Kevin op zijn plek zit, dan gaat de rente omlaag", zei de Amerikaanse president Donald Trump...
+- [Opnieuw ebola-uitbraak in Congo, zeker 65 doden: 'Risico op verdere verspreiding'](https://nos.nl/l/2614409)
+  > In een afgelegen provincie van de Democratische Republiek Congo is ebola uitgebroken. Daarbij zijn tot nu toe 65 doden gevallen, zo meldt Afrikaanse...
+- [CIA-baas brengt hoogst ongebruikelijk bezoek aan Cuba](https://nos.nl/l/2614408)
+  > In de Cubaanse hoofdstad Havana heeft gisteren een opmerkelijk bezoek plaatsgevonden. De Amerikaanse CIA-directeur John Ratcliffe bezocht zijn...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tientallen winkels Gall & Gall plat door staking, kopers voor dichte deur](https://www.ad.nl/economie/tientallen-winkels-gall-en-gall-plat-door-staking-kopers-voor-dichte-deur~a64d2119/)
-  > Tientallen filialen van drankenwinkel Gall & Gall zijn vandaag dicht door een staking. De werknemers willen een betere cao. Onder meer in Amsterdam,...
-- [AD-lezers kiezen allermooiste voetbalnaam uit geschiedenis: ‘Vroeger was ik er nooit zo blij mee’](https://www.ad.nl/voetbal/ad-lezers-kiezen-allermooiste-voetbalnaam-uit-geschiedenis-vroeger-was-ik-er-nooit-zo-blij-mee~a409f097/)
-  > De allermooiste voetbalnaam uit de geschiedenis is bekend. De lezers van deze site en luisteraars van AD voetbalpodcast hebben de afgelopen weken...
-- [Fenix groeit in één jaar uit tot publiekstrekker: half miljoen bezoekers en wijk die bruist als nooit tevoren](https://www.ad.nl/binnenland/fenix-groeit-in-een-jaar-uit-tot-publiekstrekker-half-miljoen-bezoekers-en-wijk-die-bruist-als-nooit-tevoren~a66f5859/)
-  > Migratiemuseum Fenix bestaat één jaar. Dat een vergeten havenloods zou uitgroeien tot zo’n groot succes, voorzag (bijna) niemand. Een terugblik naar...
-- [Eredivisie brengt ode aan 70-jarig bestaan met nieuwe wedstrijdbal](https://www.ad.nl/voetbal/eredivisie-brengt-ode-aan-70-jarig-bestaan-met-nieuwe-wedstrijdbal~ad370560/)
-  > Derbystar heeft de nieuwe bal voor de VriendenLoterij Eredivisie bekendgemaakt. De bal viert het 70-jarig bestaan van de eredivisie met het thema...
-- [Italiaanse politie arresteert twee mannen (19 en 20) die probeerden renners in Giro-etappe te laten vallen](https://www.ad.nl/giro/italiaanse-politie-arresteert-twee-mannen-19-en-20-die-probeerden-renners-in-giro-etappe-te-laten-vallen~a7c522c5/)
-  > De twee toeschouwers van 19 en 20 jaar oud die tijdens de zesde etappe van de Giro d’Italia bewust renners in gevaar brachten, zijn gearresteerd door...
+- [Markuszower staat achter uitspraak over geweld tegen Palestijnse vluchtelingen: ‘Had wel gepaster gemoeten’](https://www.ad.nl/politiek/markuszower-staat-achter-uitspraak-over-geweld-tegen-palestijnse-vluchtelingen-had-wel-gepaster-gemoeten~a7ceec06/)
+  > Gidi Markuszower vindt dat hij zich voor de camera van het communistische platform Left Laser ‘beter, scherper en gepaster’ had moeten uitspreken...
+- [Er moeten toch wel meer mensen die ondervoede en vervuilde kinderen uit Stadskanaal hebben gezien?](https://www.ad.nl/binnenland/er-moeten-toch-wel-meer-mensen-die-ondervoede-en-vervuilde-kinderen-uit-stadskanaal-hebben-gezien~a7a3382c/)
+  > We denken dat we zo mondig zijn, hebben online het hoogste woord. Maar een moeder in haar gezicht aanspreken omdat haar kind er ondervoed en vervuild...
+- [Max Verstappen helpt zijn team richting strijd om pole voor 24 uur van Nürburgring](https://www.ad.nl/formule-1/max-verstappen-helpt-zijn-team-richting-strijd-om-pole-voor-24-uur-van-nurburgring~a5bdd279/)
+  > Max Verstappen heeft zich vrijdag in aanloop naar de 24 uur van de Nürburgring geplaatst voor de allesbeslissende topkwalificatie, later vandaag...
+- [Beveiligers Schiphol slaan alarm: werkdruk torenhoog en veiligheid staat onder druk](https://www.ad.nl/economie/beveiligers-schiphol-slaan-alarm-werkdruk-torenhoog-en-veiligheid-staat-onder-druk~a15482a8/)
+  > Beveiligers op Schiphol slaan alarm. Volgens vakbond FNV is de werkdruk torenhoog en schiet de veiligheidscultuur ernstig tekort. Sommige medewerkers...
+- [Zet je vriendjes bij elkaar, wie traint jouw kind en andere dilemma’s over teamindelingen: zo voorkom je gedoe](https://www.ad.nl/voetbal/zet-je-vriendjes-bij-elkaar-wie-traint-jouw-kind-en-andere-dilemmas-over-teamindelingen-zo-voorkom-je-gedoe~a5213f2d/)
+  > Het is weer de tijd van de teamindelingen. Bij veel amateurclubs leidt dit tot hoofdbrekens, discussie en soms ook boze leden. Hoe voorkom je dit?...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Nederland is eigenlijk te volgebouwd om nog zo uitgebreid te boeren](https://fd.nl/opinie/1596307/nederland-te-vol-om-te-boeren)
-  > Hoewel landbouw meer dan de helft van ons landoppervlak claimt, vertegenwoordigt die grond economisch een fractie van de waarde van woon- en...
-- [In een steeds instabielere wereld verdwijnt het taboe op kernwapens](https://fd.nl/politiek/1594965/in-een-steeds-instabielere-wereld-verdwijnt-het-taboe-op-kernwapens)
-  > De Iran-oorlog moest een streep zetten door de wens van Teheran om een kernwapen te bouwen. Maar door de internationale spanningen neemt de...
-- [Fagron opnieuw gewaarschuwd door Amerikaanse toezichthouder](https://fd.nl/bedrijfsleven/1596788/fagron-opnieuw-gewarschuwd-door-amerikaanse-toezichthouder)
-  > Volgens de Amerikaanse FDA zijn er problemen in een fabriek van het apotheekbedrijf in Boston.
-- [Een brasserie in Haarlem en een alarmerende natuurfilm in Artis](https://fd.nl/samenleving/1596761/een-brasserie-in-haarlem-en-een-alarmerende-natuurfilm-in-artis)
-  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
-- [Drone vliegt luchtruim van Finland binnen](https://fd.nl/politiek/1596673/drone-vliegt-finse-luchtruim-binnen)
-  > De Finse autoriteiten waarschuwden burgers om binnen te blijven, maar inmiddels is dat advies ingetrokken.
+- [Commissie: milieustudie Schiphol schiet tekort, hinder voor omwonenden kan blijven bestaan](https://fd.nl/politiek/1596793/commissie-milieustudie-schiphol-schiet-tekort-hinder-voor-omwonenden-kan-blijven-bestaan)
+  > De gevolgen van het Luchthavenverkeersbesluit voor het milieu lijken in de studie kleiner dan ze daadwerkelijk zijn, schrijft de commissie.
+- [Corrigeren van nepnieuws is niet genoeg voor de EU](https://fd.nl/politiek/1596877/corrigeren-van-nepnieuws-is-niet-genoeg-voor-de-eu)
+  > Brussel kon de brexit niet voorkomen met een blog voor het weerleggen van onzinverhalen van Britse tabloids. Tien jaar later denkt het na over andere...
+- [Zakendoen bij een wijntje gaat prima in Nederlandse en Franse techsector](https://fd.nl/tech-en-innovatie/1596607/zakendoen-bij-een-wijntje-gaat-prima-in-nederlandse-en-franse-techsector)
+  > In de techwereld leven geen ouderwetse opvattingen over ‘cultuurverschillen’ tussen Fransen en Nederlanders. Fransen investeren steeds meer in...
+- [Saltibarsciai: koude soep als citymarketing](https://fd.nl/politiek/1596616/saltibarsciai-koude-soep-als-citymarketing)
+  > Eind mei oogt de Litouwse hoofdstad Vilnius drie dagen lang alsof Barbie een staatsgreep heeft gepleegd, als marketinginstrument én als zacht...
+- [Veel winkels Gall & Gall dicht door staking](https://fd.nl/bedrijfsleven/1596884/veel-winkels-gall-gall-dicht-door-staking)
+  > Tientallen winkels van Gall & Gall blijven vrijdag gesloten omdat werknemers staken voor een betere cao. Een laatste loonbod werd verworpen door...
 
 ### Meest gelezen
 
