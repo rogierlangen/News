@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-05-2026 om 12:56*
+*Laatst bijgewerkt: 15-05-2026 om 15:21*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Hormonale aandoening die miljoenen vrouwen treft krijgt nieuwe naam](https://nos.nl/l/2614435)
-  > Een hormonale aandoening die 1 op de 8 vrouwen wereldwijd treft, heeft een nieuwe naam gekregen. Polycysteus ovarium syndroom (PCOS) heet voortaan...
-- [Zoektocht naar Italiaanse grotduikers op Malediven gaat door, OM begint onderzoek](https://nos.nl/l/2614434)
-  > Op het atol Vaavu in de Malediven wordt nog altijd gezocht naar vier Italiaanse duikers die sinds gisteren worden vermist. Ze hoorden bij een groep...
-- [Tientallen doden door bendegeweld rondom Haïtiaanse hoofdstad](https://nos.nl/l/2614428)
-  > Bij geweld tussen gewapende bendes rondom de Haïtiaanse hoofdstad Port-au-Prince zijn sinds zaterdag zeker 78 doden gevallen, onder wie tien burgers....
-- [Trump verlaat China: kou uit de lucht, nog geen concrete uitkomsten](https://nos.nl/l/2614424)
-  > Minder dan 48 uur na aankomst heeft de Amerikaanse president Trump Peking weer verlaten. Voor gastland China lijken de beoogde doelen behaald: het...
-- [Kritiek op nieuwe luchtverkeersregels van het kabinet](https://nos.nl/l/2614420)
-  > Mensen die in de buurt van Schiphol wonen, worden niet voldoende beschermd. Dat is de conclusie van de onafhankelijke Commissie voor de...
+- [Amsterdam profiteert van Harrymania, maar economische winst vooral lokaal](https://nos.nl/l/2614452)
+  > Honderdduizenden Harries, zo worden fans van Harry Styles genoemd, zijn de komende dagen in Amsterdam te vinden voor een concertreeks van de Britse...
+- [Stoomboot De Majesteit te koop: 'Bezit van alle Rotterdammers'](https://nos.nl/l/2614449)
+  > Het schip De Majesteit maakt al decennialang deel uit van het uitzicht vanaf de Maasboulevard in Rotterdam. Of dat zo blijft moet nog blijken, want...
+- [Kabinet wil kippen in Nederland gaan vaccineren](https://nos.nl/l/2614447)
+  > Het kabinet komt met een plan om legkippen verplicht te vaccineren. Uit experimenten is gebleken dat de vaccins werken en dat de eieren van...
+- [Celstraf voor man die lichaam vriend probeerde te verbergen na ongeluk drugslab](https://nos.nl/l/2614446)
+  > De rechtbank in Den Bosch heeft een 44-jarige man veroordeeld tot drie jaar cel, waarvan één jaar voorwaardelijk, voor zijn rol in een drugslab in...
+- [Podcast De Dag: de AI-oorlog tussen China en de Verenigde Staten](https://nos.nl/l/2614443)
+  > De Amerikaanse president Donald Trump en president Xi van China ontmoetten elkaar deze week. Ze praatten over handel en economische samenwerking,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [VS en VK haalden hoogverrijkt uranium uit Venezuela: ‘Mijlpaal voor nucleaire veiligheid’](https://www.ad.nl/buitenland/vs-en-vk-haalden-hoogverrijkt-uranium-uit-venezuela-mijlpaal-voor-nucleaire-veiligheid~a55f6a26/)
-  > De Verenigde Staten en het Verenigd Koninkrijk hebben hoogverrijkt uranium uit Venezuela weggehaald en naar de VS gebracht. Dat meldden de landen in...
-- [Max Verstappen en zijn team grijpen naast pole en moeten genoegen nemen met P4 voor 24 uursrace](https://www.ad.nl/formule-1/max-verstappen-en-zijn-team-grijpen-naast-pole-en-moeten-genoegen-nemen-met-p4-voor-24-uursrace~a380910a/)
-  > Max Verstappen en zijn teamgenoten Daniel Juncadella, Lucas Auer en Jules Gounon beginnen zaterdag (15.00 uur) vanaf de vierde plek aan de 24 uur van...
-- [Speelschema WK voetbal 2026 | Op deze dagen komt het Nederlands elftal in actie](https://www.ad.nl/voetbal/speelschema-wk-voetbal-2026-op-deze-dagen-komt-het-nederlands-elftal-in-actie~ad85207c/)
-  > Het Nederlands elftal en 47 andere landen strijden in Canada, Mexico en de Verenigde Staten om de wereldtitel. Van donderdag 11 juni tot en met...
-- [Trump schrijft geschiedenis met ‘eigen’ vliegveld: voor het eerst vernoemd naar zittende president](https://www.ad.nl/buitenland/trump-schrijft-geschiedenis-met-eigen-vliegveld-voor-het-eerst-vernoemd-naar-zittende-president~a9e96b71/)
-  > Palm Beach International Airport in Florida wordt vanaf 9 juli officieel vernoemd naar de Amerikaanse president Donald Trump. Dat heeft de Federal...
-- [Vier sterren voor Lemming: Merijn Scholten kan ook boeien zónder gekke stemmetjes of ironie](https://www.ad.nl/show/vier-sterren-voor-lemming-merijn-scholten-kan-ook-boeien-zonder-gekke-stemmetjes-of-ironie~aa3543a7/)
-  > Moet lanterfanten een olympische sport worden? Wel als het aan Merijn Scholten ligt. In zijn fijne voorstelling Lemming pleit hij voor...
+- [Vingegaard voltooit beulwerk van ploeg en maakt favorietenstatus waar, Arensman verliest bijna 2 minuten](https://www.ad.nl/giro/vingegaard-voltooit-beulwerk-van-ploeg-en-maakt-favorietenstatus-waar-arensman-verliest-bijna-2-minuten~a13781c5/)
+  > Jonas Vingegaard maakt direct duidelijk hoe de verhoudingen zijn in deze Giro. De Deen won op Blockhaus na een solo van een kleine vijf kilometer. Al...
+- [Van Persie wil Zechiël een kans geven, Oud-Feyenoorder verlaat Bournemouth](https://www.ad.nl/voetbal/van-persie-wil-zechiel-een-kans-geven-oud-feyenoorder-verlaat-bournemouth~a488141d/)
+  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
+- [Ondanks miljoenen verkochte tickets vallen hotelboekingen tegen in VS, vooral in Oranje-speelstad Kansas](https://www.ad.nl/wk-voetbal/ondanks-miljoenen-verkochte-tickets-vallen-hotelboekingen-tegen-in-vs-vooral-in-oranje-speelstad-kansas~a945110a6/)
+  > Het aantal hotelboekingen in Amerikaanse speelsteden dit WK valt tegen. Zo’n 80 procent van de hotels meldt dat er minder boekingen zijn dan...
+- [Óscar García waagt zich alvast aan voorspelling: ‘Ik weet zeker dat Ajax volgend jaar kampioen wordt’](https://www.ad.nl/voetbal/oscar-garcia-waagt-zich-alvast-aan-voorspelling-ik-weet-zeker-dat-ajax-volgend-jaar-kampioen-wordt~aff0f0f7/)
+  > Trainer Óscar García van Ajax denkt dat de landstitel komend seizoen weer naar de Amsterdammers gaat. Dat zegt de Spanjaard in een interview met...
+- [Deel opvarenden van de Hondius gaat in quarantaine in Rotterdamse haven](https://www.ad.nl/binnenland/deel-opvarenden-van-de-hondius-gaat-in-quarantaine-in-rotterdamse-haven~a4d24760/)
+  > In de Rotterdamse haven worden 23 portakabins klaargemaakt om de buitenlandse opvarenden van cruiseschip Hondius op te vangen. Of ze daar...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Japanse lange rente naar recordhoogte, en daarvoor is één hoofdschuldige](https://fd.nl/financiele-markten/1596913/japanse-lange-rente-naar-recordhoogte-en-daarvoor-is-een-hoofdschuldige)
-  > Japan kent sinds 1999 al 30-jarige obligaties, maar nog nooit was de rente daarop zo hoog: ruim 4%.
-- [In Amsterdam stuit Harry Styles op de grenzen van zijn succes](https://fd.nl/bedrijfsleven/1596186/in-amsterdam-stuit-harry-styles-op-de-grenzen-van-zijn-succes)
-  > Vanaf zaterdag geeft popartiest Harry Styles tien concerten in de Johan Cruijff Arena. Dat blijkt zelfs voor deze superster een ambitieus project. Er...
-- [Angst voor verlies houdt veel Nederlanders weg van de beurs](https://fd.nl/financiele-markten/1596885/angst-voor-verlies-houdt-veel-nederlanders-weg-van-de-beurs)
-  > Ruim een derde van de niet-beleggende Nederlanders is bang om geld te verliezen met beleggen in aandelen, beleggingsfondsen of indextrackers.
-- [Kabinet strijdt niet alleen met de oppositie, maar ook met het straatgeweld](https://fd.nl/politiek/1596791/kabinet-strijdt-niet-alleen-met-oppositie-maar-ook-met-het-straatgeweld)
-  > Politiek geweld om een ander beleid af te dwingen, zoals deze week in Loosdrecht, zagen we wel vaker in Nederland. En soms werkt het nog ook.
-- [Weinig Italianen zullen erom rouwen dat ITA in handen van Lufthansa komt](https://fd.nl/bedrijfsleven/1596794/weinig-italianen-zullen-erom-rouwen-dat-ita-in-handen-van-lufthansa-komt)
-  > De Duitse luchtvaartmaatschappij Lufthansa neemt het voormalige Alitalia over. Daarmee komt er een einde aan de saga rond de eeuwig tobbende...
+- [Chip- en energiesector in de spotlights tijdens bezoek Indiase premier Modi](https://fd.nl/economie/1596912/chip-en-energiesector-in-de-spotlights-tijdens-bezoek-indiase-premier-modi)
+  > De Indiase premier Modi bezoekt dit weekend Nederland en wil de economische banden verder verdiepen, onder andere op het gebied van chiptechnologie...
+- [Beslag op kasteel Jan-Dirk Paarlberg blijft in stand](https://fd.nl/samenleving/1596807/beslag-op-paarlberg-kasteel-blijft-in-stand)
+  > De ex-vriendin van de veroordeelde zakenman wist volgens de rechtbank dat de vastgoeddeal met de buitenplaats langs de Vecht bedoeld was om diens...
+- [Tata Steel Nederland lijdt opnieuw ruim €200 mln verlies](https://fd.nl/bedrijfsleven/1596792/tata-steel-nederland-lijdt-opnieuw-ruim-200-mln-verlies)
+  > Het moederbedrijf waarschuwt dat het fundamentele risico’s ziet voor het voortbestaan van de Nederlandse divisie van Tata Steel.
+- [Kabinet wil vaccinatieplicht voor legkippen tegen vogelgriep](https://fd.nl/economie/1596804/kabinet-wil-vaccinatieplicht-voor-legkippen-tegen-vogelgriep)
+  > De sector maakt zich wel zorgen voor de gevolgen van de plicht voor de export van eieren.
+- [Inflatiezorgen schemeren door tussen recordstanden op de beurs](https://fd.nl/financiele-markten/1596886/inflatiezorgen-schemeren-door-tussen-recordstanden-op-de-beurs)
+  > Na een exceptioneel sterk eerste kwartaal voor de grote techbedrijven, begint angst voor inflatie toch door te werken bij beleggers. De Straat van...
 
 ### Meest gelezen
 
