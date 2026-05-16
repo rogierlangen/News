@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-05-2026 om 17:02*
+*Laatst bijgewerkt: 16-05-2026 om 19:11*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Verdachte Rwandese genocide Félicien Kabuga overleden in Den Haag](https://nos.nl/l/2614598)
+  > Félicien Kabuga, die werd verdacht van het mede aanstichten van de genocide in Rwanda in 1994, is overleden in een ziekenhuis in Den Haag.
+       ...
+- [Auto rijdt in op voetgangers in Italiaanse stad Modena, bestuurder opgepakt](https://nos.nl/l/2614584)
+  > In het centrum van de Italiaanse stad Modena is een automobilist met hoge snelheid ingereden op voetgangers. Daarbij zijn acht mensen gewond geraakt,...
 - [Maledivische duiker komt om bij zoektocht naar overleden Italiaanse grotduikers](https://nos.nl/l/2614580)
   > Een duiker van het Maledivische leger is omgekomen bij een zoekactie naar de vier nog altijd vermiste Italiaanse duikers. Zij kwamen deze week om bij...
 - [Tienduizenden demonstranten in Londen bij twee protesten](https://nos.nl/l/2614577)
   > Tienduizenden mensen zijn in de Britse hoofdstad Londen op de been voor twee protesten die gelijktijdig plaatsvinden. Zo'n 4000 agenten zijn ingezet...
 - [Britse oud-minister Streeting stelt zich kandidaat voor partijleiderschap](https://nos.nl/l/2614576)
   > De deze week afgetreden Britse minister van Volksgezondheid Streeting stelt zich kandidaat voor het partijleiderschap van Labour, en daarmee voor het...
-- ['Nationaal protest' tegen asielbeleid in meerdere steden, geen massale opkomst](https://nos.nl/l/2614566)
-  > In meerdere steden is gedemonstreerd tegen de asielopvang en de bezuiniging op de zorg onder de verzamelnaam 'Nationaal Protest'. De protesten lijken...
-- [Nederlandse ASML en Indiase Tata Electronics sluiten elkaar in de armen](https://nos.nl/l/2614563)
-  > De Nederlandse chipmachineproducent ASML gaat nauw samenwerken met het Indiase Tata Electronics. Dat is bekendgemaakt tijdens het bezoek van de...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Brenda helpt gevangenen terug de maatschappij in: ‘Soms zijn ze al jaren niet in supermarkt geweest’](https://www.ad.nl/binnenland/brenda-helpt-gevangenen-terug-de-maatschappij-in-soms-zijn-ze-al-jaren-niet-in-supermarkt-geweest~a9b929dd/)
-  > Simpele zaken als het kopen van brood of melk bij de supermarkt zijn voor mensen die lang vastgezeten hebben soms een grote mentale belasting....
-- [Teamgenoot Max Verstappen verliest de leiding, zware crashes voor concurrentie](https://www.ad.nl/formule-1/teamgenoot-max-verstappen-verliest-de-leiding-zware-crashes-voor-concurrentie~af32a412/)
+- [Kabinet voelt draagvlak afkalven en er komt een nieuw probleem bij: de stijgende gasrekening](https://www.ad.nl/politiek/kabinet-voelt-draagvlak-afkalven-en-er-komt-een-nieuw-probleem-bij-de-stijgende-gasrekening~a99fdf73/)
+  > Iedereen die op gas stookt, gaat straks meer betalen door een nieuwe CO2-heffing. En dat terwijl de energieprijzen al zo hoog zijn en alternatieven...
+- [Droomseizoen Hearts eindigt in tranen, club spreekt schande van velbestorming: ‘Niemand verdiende deze schandelijke taferelen’](https://www.ad.nl/voetbal/droomseizoen-hearts-eindigt-in-tranen-club-spreekt-schande-van-velbestorming-niemand-verdiende-deze-schandelijke-taferelen~a2b1151c/)
+  > Heart of Midlothian had zaterdag de kans om voor het eerst in 66 jaar kampioen van Schotland te worden. Tot de 88ste minuut was dat nog het geval,...
+- [Team van Max Verstappen grijpt in lastige omstandigheden weer de leiding op de Nordschleife](https://www.ad.nl/formule-1/team-van-max-verstappen-grijpt-in-lastige-omstandigheden-weer-de-leiding-op-de-nordschleife~af32a412/)
   > Max Verstappen heeft zijn eerste 2,5 uur in de auto erop zitten tijdens de 24 uur van de Nürburgring. Samen met Lucas Auer, Jules Gounon en Daniel...
-- [Tienduizenden mensen de straat op in Londen bij twee grote demonstraties, politie spreekt van grootste operatie in jaren](https://www.ad.nl/buitenland/tienduizenden-mensen-de-straat-op-in-londen-bij-twee-grote-demonstraties-politie-spreekt-van-grootste-operatie-in-jaren~a2fab7ab/)
-  > In Londen zijn zaterdag tienduizenden mensen op de been gekomen voor een anti-immigratieprotest en een pro-Palestijnse demonstratie die gelijktijdig...
-- [Veel dna-materiaal is twee dagen na verkrachting niet goed te vinden, Athina werkt aan oplossing](https://www.ad.nl/wetenschap/veel-dna-materiaal-is-twee-dagen-na-verkrachting-niet-goed-te-vinden-athina-werkt-aan-oplossing~ab57826a/)
-  > Dna-bewijs van een misdrijf verzamelen: films en tv-series laten het zo simpel lijken. De werkelijkheid is evenwel weerbarstiger, zeker in geval van...
-- [Wolfsburg ontloopt directe degradatie, Ramon Hendriks met Stuttgart de Champions League in](https://www.ad.nl/voetbal/wolfsburg-ontloopt-directe-degradatie-ramon-hendriks-met-stuttgart-de-champions-league-in~abe3a4ed/)
-  > FC Heidenheim en FC St. Pauli zijn gedegradeerd uit de Bundesliga. De twee ploegen eindigden na nederlagen op de laatste speeldag op respectievelijk...
+- [Hantavirus vastgesteld bij Canadese opvarende cruiseschip Hondius](https://www.ad.nl/buitenland/hantavirus-vastgesteld-bij-canadese-opvarende-cruiseschip-hondius~a4826798/)
+  > Een Canadese opvarende van het Nederlandse cruiseschip Hondius is positief getest op het Hantavirus. Dat bevestigt een Canadese...
+- [Froukje de Both kreeg ooit een whiplash: ‘Die stijve nek heb ik maar geaccepteerd’](https://www.ad.nl/mezza/froukje-de-both-kreeg-ooit-een-whiplash-die-stijve-nek-heb-ik-maar-geaccepteerd~af188f90/)
+  > De presentatrice kan bijna niet over haar schouder kijken, beweegt omdat het moet en ontspant ‘als ik mijn wekker niet voor de ochtendshow hoef te...
 
 ### Meest gelezen
 
