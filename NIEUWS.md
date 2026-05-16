@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-05-2026 om 20:54*
+*Laatst bijgewerkt: 16-05-2026 om 21:54*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Verstappen kijkt tevreden terug op zijn eerste uren, nacht valt op de Nürburgring: ‘Komende uren worden spannend’](https://www.ad.nl/formule-1/verstappen-kijkt-tevreden-terug-op-zijn-eerste-uren-nacht-valt-op-de-nurburgring-komende-uren-worden-spannend~af32a412/)
+  > Max Verstappen kijkt met een hoop tevredenheid terug op zijn debuut tijdens de 24 uur van de Nürburgring. De Nederlander nam 2,5 uur voor zijn...
 - [Podcast In Het Wiel | ‘Het parkoers lag er zo verschrikkelijk mooi bij voor een toprit’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-het-parkoers-lag-er-zo-verschrikkelijk-mooi-bij-voor-een-toprit~a5ea502e/)
   > De muurtjesrit die zo mooi had moeten worden, viel dan toch een beetje tegen. Na een doldwaze openingsfase met een gemiddeld tempo van 52 kilometer...
-- [Teamgenoot van Max Verstappen verliest de leiding aan andere Mercedes op donkere Nordschleife](https://www.ad.nl/formule-1/teamgenoot-van-max-verstappen-verliest-de-leiding-aan-andere-mercedes-op-donkere-nordschleife~af32a412/)
-  > Max Verstappen heeft zijn eerste 2,5 uur in de auto erop zitten tijdens de 24 uur van de Nürburgring. Samen met Lucas Auer, Jules Gounon en Daniel...
 - [Protest kermisexploitanten Purmerend tegen vervroegde sluiting](https://www.ad.nl/binnenland/protest-kermisexploitanten-purmerend-tegen-vervroegde-sluiting~a33f84bf/)
   > Exploitanten van de voorjaarskermis in Purmerend zijn uit protest later dichtgegaan dan de 21.00 uur die door de gemeente was opgelegd. Burgemeester...
+- [Willem II wint ook thuis van Almere City en is één horde verwijderd van terugkeer in eredivisie](https://www.ad.nl/voetbal/willem-ii-wint-ook-thuis-van-almere-city-en-is-een-horde-verwijderd-van-terugkeer-in-eredivisie~afe84511/)
+  > Willem II heeft zich verzekerd van een finaleplaats in de play-offs om promotie/degradatie. In eigen huis wonnen de Tilburgers de return met 2-0 van...
 - [Spaanse stierspin gevonden in Nunspeet: ‘Wat een indrukwekkend dier’](https://www.ad.nl/binnenland/spaanse-stierspin-gevonden-in-nunspeet-wat-een-indrukwekkend-dier~a8657abd/)
   > Hij is dik, zwart, vijf centimeter groot, heeft enorme kaken en een venijnige beet: de Spaanse stierspin. Hoewel de spin van nature alleen voorkomt...
-- [Gedesillusioneerde Cristiano Ronaldo laat zich niet zien bij ophalen medaille na verloren finale met Al-Nassr](https://www.ad.nl/voetbal/gedesillusioneerde-cristiano-ronaldo-laat-zich-niet-zien-bij-ophalen-medaille-na-verloren-finale-met-al-nassr~a5b32b0e/)
-  > Cristiano Ronaldo heeft een gevoelige nederlaag geleden met Al-Nassr. De Saoedische club verloor de finale van de Asian Champions League 2, de...
 
 ### Meest gelezen
 
