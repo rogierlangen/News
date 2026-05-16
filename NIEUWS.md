@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-05-2026 om 00:01*
+*Laatst bijgewerkt: 16-05-2026 om 04:30*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Irakees opgepakt die vermoedelijk achter aanslagen op Joodse doelen in Nederland zat](https://nos.nl/l/2614494)
-  > Een Irakees die ervan wordt verdacht onder meer de aanslagen op meerdere Joodse instellingen in Nederland te hebben gecoördineerd is opgepakt en...
+- [Wekdienst 16/5: Jetten ontvangt Indiase premier • Harry Styles trapt af in Amsterdam](https://nos.nl/l/2614498)
+  > Goedemorgen! De Indiase premier Narendra Modi brengt een bezoek aan Nederland en Harry Styles begint aan zijn record brekende concertreeks in...
+- [John Travolta ontvangt erepalm tijdens filmfestival Cannes: 'Beter dan een Oscar'](https://nos.nl/l/2614496)
+  > John Travolta is gisteren tijdens het filmfestival van Cannes verrast met een erepalm. De 72-jarige acteur krijgt de prijs voor zijn gehele oeuvre. 
+...
+- [Politie grijpt opnieuw in bij azc-demonstratie in Apeldoorn, drie arrestaties](https://nos.nl/l/2614495)
+  > De politie heeft opnieuw ingegrepen bij een asielprotest in Apeldoorn. Betogers gaan daar al meerdere dagen de straat op om te demonstreren tegen de...
+- [Irakees opgepakt die vermoedelijk achter aanslagen op joodse doelen in Nederland zat](https://nos.nl/l/2614494)
+  > Een Irakees die ervan wordt verdacht onder meer de aanslagen op meerdere joodse instellingen in Nederland te hebben gecoördineerd is opgepakt en...
 - [Burgemeester biedt inwoners Loosdrecht excuses aan, 'had anders gemoeten'](https://nos.nl/l/2614493)
   > De gemeente Wijdemeren heeft inwoners "overvallen" met het besluit om vluchtelingen op te vangen in Loosdrecht, erkent waarnemend burgemeester Mark...
-- [Grenswacht Frontex meldt daling illegale oversteken naar EU](https://nos.nl/l/2614490)
-  > De Europese grensbewakingsdienst Frontex zag in de eerste vier maanden van dit jaar een sterke afname van het aantal keren dat de grenzen van de...
-- [Hennis-Plasschaert stopt als gezant in Libanon en wordt ondersecretaris-generaal VN](https://nos.nl/l/2614489)
-  > Jeanine Hennis-Plasschaert, de speciale gezant voor Libanon van de Verenigde Naties (VN), krijgt een nieuwe rol binnen het internationale...
-- [Staakt-het-vuren Israël en Libanon met 45 dagen verlengd](https://nos.nl/l/2614487)
-  > Israël en Libanon hebben afgesproken hun fragiele staakt-het-vuren met 45 dagen te verlengen. Dat heeft het Amerikaanse ministerie van Buitenlandse...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Britse hantapatiënt in Nederlands ziekenhuis mag naar het VK, WHO: risico hantavirus blijft laag](https://www.ad.nl/buitenland/britse-hantapatient-in-nederlands-ziekenhuis-mag-naar-het-vk-who-risico-hantavirus-blijft-laag~a051c7fa5/)
-  > De Britse opvarende van het cruiseschip Hondius die in een ziekenhuis in Nederland ligt met het hantavirus, is voldoende hersteld om naar het...
-- [Liverpool en Slot na pijnlijke nederlaag tegen Villa nog niet zeker van CL-ticket: ‘We staan volledig onder druk’](https://www.ad.nl/voetbal/liverpool-en-slot-na-pijnlijke-nederlaag-tegen-villa-nog-niet-zeker-van-cl-ticket-we-staan-volledig-onder-druk~a08c57ec/)
-  > Liverpool is er vrijdagavond niet in geslaagd om het Champions League-ticket voor komend seizoen veilig te stellen. Op bezoek bij concurrent Aston...
-- [Podcast In Het Wiel | ‘Vingegaard heeft niet het achterste van zijn toch laten zien’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-vingegaard-heeft-niet-het-achterste-van-zijn-toch-laten-zien~a5ea502e/)
-  > Jonas Vingegaard heeft een eerste stap gezet richting zijn grote ronde-trilogie. Op de Blockhaus bleef alleen Felix Gall nog een beetje in de buurt,...
-- [Hennis-Plasschaert stopt als VN-gezant voor Libanon](https://www.ad.nl/binnenland/hennis-plasschaert-stopt-als-vn-gezant-voor-libanon~afcdfffe/)
-  > Jeanine Hennis-Plasschaert stopt als gezant voor Libanon, maakten de Verenigde Naties vrijdagavond bekend. Ze krijgt een nieuwe functie:...
-- [Suzan & Freek vieren het leven in GelreDome, maar de emoties zijn voelbaar op elke rij](https://www.ad.nl/show/suzan-en-freek-vieren-het-leven-in-gelredome-maar-de-emoties-zijn-voelbaar-op-elke-rij~adae84e9/)
-  > Met het eerste van maar liefst tien concerten in GelreDome vieren Suzan & Freek vrijdagavond het leven. Het leed wordt niet vergeten, maar gedeeld...
+- [Zo voorkom je dat je wordt vergiftigd door het interieur van je nieuwe auto](https://www.ad.nl/auto/zo-voorkom-je-dat-je-wordt-vergiftigd-door-het-interieur-van-je-nieuwe-auto~aba374fb/)
+  > Een nieuw Duitse onderzoek onthult de mogelijke gevaren die de geur van een nieuwe auto met zich mee kan brengen. Die geur kan afkomstig zijn van...
+- [Voorbeschouwing etappe 8 Giro d’Italia | Krijgen de vluchters de ruimte tijdens zware muurtjesrit?](https://www.ad.nl/giro/voorbeschouwing-etappe-8-giro-ditalia-krijgen-de-vluchters-de-ruimte-tijdens-zware-muurtjesrit~aac3505d/)
+  > De Blockhaus heeft het algemeen klassement flink opgeschud. Het was Jonas Vingegaard die als eerste bovenkwam en daarmee zijn favorietenstatus...
+- [LIVE play-offs | Almere City moet achterstand repareren in return tegen Willem II, welke club mag blijven dromen van promotie?](https://www.ad.nl/voetbal/live-play-offs-almere-city-moet-achterstand-repareren-in-return-tegen-willem-ii-welke-club-mag-blijven-dromen-van-promotie~afe84511/)
+  > Willem II won woensdag op bezoek bij Almere City (0-1) en verschafte zichzelf daarmee een goede uitgangspositie voor de return van vanavond in...
+- [Tatjana Simic twijfelde over terugkeer Kees Flodder: 'Geen zin om op mijn 62ste een of andere griet uit te hangen'](https://www.ad.nl/show/tatjana-simic-twijfelde-over-terugkeer-kees-flodder-geen-zin-om-op-mijn-62ste-een-of-andere-griet-uit-te-hangen~a0b08b74/)
+  > Na jaren wikken en wegen besloot Tatjana Simic (62) tóch weer in de huid te kruipen van Kees Flodder. Zolang het iconische personage en de nieuwe...
+- [Man in kritieke toestand na aanval door haai in westen van Australië](https://www.ad.nl/buitenland/man-in-kritieke-toestand-na-aanval-door-haai-in-westen-van-australie~ac8a7e28/)
+  > Aan de westkust van Australië is zaterdag een man van in de dertig aangevallen door een haai. Hij verkeert in kritieke toestand, melden de lokale...
 
 ### Meest gelezen
 
@@ -46,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Wat heeft de Iran-oorlog met boksen te maken? En wanneer zijn de olievoorraden uitgeput?](https://fd.nl/economie/1596917/wat-heeft-de-iran-oorlog-met-boksen-te-maken-en-wanneer-zijn-de-olievoorraden-uitgeput)
+  > Tijdens de wapenstilstand lijkt er nog geen oplossing in zicht, hoe kon Iran zo tegen het grote VS opboksen? En als dit nog langer doorgaat met een...
 - [Hardo, de kunstenaar voor wie de financiële wereld een speeltuin is](https://fd.nl/samenleving/1596752/hardo-de-kunstenaar-voor-wie-de-financiele-wereld-een-speeltuin-is)
   > Een Nederlandse grondstoffenhandelaar maakt grote kunstwerken over de financiële wereld, met dank aan PowerPoint, grote verbeeldingskracht en...
 - [Nu graag uw stem bij het feest van de liefde](https://fd.nl/opinie/1596685/nu-graag-uw-stem-bij-het-feest-van-de-liefde)
@@ -54,8 +57,6 @@
   > Een deel van de Asfaltcentrales stoot al jarenlang te hoge concentraties gevaarlijke stoffen uit, blijkt uit onderzoek van het FD.
 - [CO₂-prijs voor gas en benzine is logisch en broodnodig](https://fd.nl/politiek/1596881/co-prijs-voor-gas-en-benzine-is-logisch-en-broodnodig)
   > Het Planbureau voor de Leefomgeving berekende de kosten van het nieuwe CO₂-emissiehandelssysteem voor burgers. Dat bracht een flinke schok teweeg....
-- [Heimwee naar mooiere tijden](https://fd.nl/samenleving/1596641/heimwee-naar-mooiere-tijden)
-  > Noémi Sarpe werd geboren in 1998, maar verlangt toch terug naar de schoonheid van de decennia voor ze er was. Die esthetiek wil ze herscheppen op...
 
 ### Meest gelezen
 
