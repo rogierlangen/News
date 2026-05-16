@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-05-2026 om 04:30*
+*Laatst bijgewerkt: 16-05-2026 om 07:19*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Wekdienst 16/5: Jetten ontvangt Indiase premier • Harry Styles trapt af in Amsterdam](https://nos.nl/l/2614498)
-  > Goedemorgen! De Indiase premier Narendra Modi brengt een bezoek aan Nederland en Harry Styles begint aan zijn record brekende concertreeks in...
-- [John Travolta ontvangt erepalm tijdens filmfestival Cannes: 'Beter dan een Oscar'](https://nos.nl/l/2614496)
-  > John Travolta is gisteren tijdens het filmfestival van Cannes verrast met een erepalm. De 72-jarige acteur krijgt de prijs voor zijn gehele oeuvre. 
-...
-- [Politie grijpt opnieuw in bij azc-demonstratie in Apeldoorn, drie arrestaties](https://nos.nl/l/2614495)
-  > De politie heeft opnieuw ingegrepen bij een asielprotest in Apeldoorn. Betogers gaan daar al meerdere dagen de straat op om te demonstreren tegen de...
-- [Irakees opgepakt die vermoedelijk achter aanslagen op joodse doelen in Nederland zat](https://nos.nl/l/2614494)
-  > Een Irakees die ervan wordt verdacht onder meer de aanslagen op meerdere joodse instellingen in Nederland te hebben gecoördineerd is opgepakt en...
-- [Burgemeester biedt inwoners Loosdrecht excuses aan, 'had anders gemoeten'](https://nos.nl/l/2614493)
-  > De gemeente Wijdemeren heeft inwoners "overvallen" met het besluit om vluchtelingen op te vangen in Loosdrecht, erkent waarnemend burgemeester Mark...
+- ['Er is iets gaande' in het Kremlin, toch heeft Poetin 'touwtjes strak in handen'](https://nos.nl/l/2614507)
+  > Nog geen week geleden lijkt er iets van hoop te gloren. Na de jaarlijkse overwinningsparade zinspeelt de Russische president Poetin op een mogelijk...
+- [Trump: tweede man van Islamitische Staat gedood](https://nos.nl/l/2614505)
+  > De Verenigde Staten hebben de nummer twee van terreurbeweging Islamitische Staat (IS) uitgeschakeld, schrijft de Amerikaanse president Trump op zijn...
+- [Tientallen gevaarlijk vervuilde PFAS-locaties ontdekt, maar is 'topje van ijsberg'](https://nos.nl/l/2614501)
+  > Op zo'n zestig plekken in Nederland is nu duidelijk dat de PFAS-vervuiling zo ernstig is dat daar zo snel mogelijk moet worden schoongemaakt, blijkt...
+- [Podcast De Dag: een week in Loosdrecht](https://nos.nl/l/2614500)
+  > Nieuwsuurverslaggever Marijn Duintjer Tebbens was de afgelopen tijd veel in Loosdrecht om daar te praten met inwoners over de protesten tegen de...
+- [Twee mannen, twee vrouwen: stoelendans voor opvolging Starmer kan beginnen](https://nos.nl/l/2614499)
+  > Het is vrijwel zeker dat de Britse Labourpartij afstevent op leiderschapsverkiezingen. De stoelendans rond premier Starmer kan nu beginnen, al zullen...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zo voorkom je dat je wordt vergiftigd door het interieur van je nieuwe auto](https://www.ad.nl/auto/zo-voorkom-je-dat-je-wordt-vergiftigd-door-het-interieur-van-je-nieuwe-auto~aba374fb/)
-  > Een nieuw Duitse onderzoek onthult de mogelijke gevaren die de geur van een nieuwe auto met zich mee kan brengen. Die geur kan afkomstig zijn van...
-- [Voorbeschouwing etappe 8 Giro d’Italia | Krijgen de vluchters de ruimte tijdens zware muurtjesrit?](https://www.ad.nl/giro/voorbeschouwing-etappe-8-giro-ditalia-krijgen-de-vluchters-de-ruimte-tijdens-zware-muurtjesrit~aac3505d/)
-  > De Blockhaus heeft het algemeen klassement flink opgeschud. Het was Jonas Vingegaard die als eerste bovenkwam en daarmee zijn favorietenstatus...
-- [LIVE play-offs | Almere City moet achterstand repareren in return tegen Willem II, welke club mag blijven dromen van promotie?](https://www.ad.nl/voetbal/live-play-offs-almere-city-moet-achterstand-repareren-in-return-tegen-willem-ii-welke-club-mag-blijven-dromen-van-promotie~afe84511/)
-  > Willem II won woensdag op bezoek bij Almere City (0-1) en verschafte zichzelf daarmee een goede uitgangspositie voor de return van vanavond in...
-- [Tatjana Simic twijfelde over terugkeer Kees Flodder: 'Geen zin om op mijn 62ste een of andere griet uit te hangen'](https://www.ad.nl/show/tatjana-simic-twijfelde-over-terugkeer-kees-flodder-geen-zin-om-op-mijn-62ste-een-of-andere-griet-uit-te-hangen~a0b08b74/)
-  > Na jaren wikken en wegen besloot Tatjana Simic (62) tóch weer in de huid te kruipen van Kees Flodder. Zolang het iconische personage en de nieuwe...
-- [Man in kritieke toestand na aanval door haai in westen van Australië](https://www.ad.nl/buitenland/man-in-kritieke-toestand-na-aanval-door-haai-in-westen-van-australie~ac8a7e28/)
-  > Aan de westkust van Australië is zaterdag een man van in de dertig aangevallen door een haai. Hij verkeert in kritieke toestand, melden de lokale...
+- [Met de nieuwe nachtrein naar de Alpen: ‘Een verademing vergeleken met eerdere treinen’](https://www.ad.nl/mezza/met-de-nieuwe-nachtrein-naar-de-alpen-een-verademing-vergeleken-met-eerdere-treinen~a8e861b6/)
+  > Een nachtelijke treinrit biedt geen garantie voor een goede nachtrust, want oude, rammelende slaapwagons. Na een flinke upgrade van de Nightjet van...
+- [Iedereen buiten Glasgow hoopt op titel van Hearts: ‘Iedereen is wel klaar met die Ugly Twins’](https://www.ad.nl/voetbal/iedereen-buiten-glasgow-hoopt-op-titel-van-hearts-iedereen-is-wel-klaar-met-die-ugly-twins~a2da4e3b/)
+  > Heart of Midlothian uit Edinburgh staat al sinds september bovenaan in Schotland, maar alles komt aan op de laatste speeldag. Krijgt Schotland...
+- [Oeganda bevestigt na Congo ook ebola-uitbraak: man (59) overlijdt in ziekenhuis in Kampala](https://www.ad.nl/buitenland/oeganda-bevestigt-na-congo-ook-ebola-uitbraak-man-59-overlijdt-in-ziekenhuis-in-kampala~a519d0ecd/)
+  > Er is een ebola-uitbraak in Oeganda; dat heeft het Oegandese ministerie van Gezondheid bevestigd. Een man is aan de ziekte overleden. Ook in het...
+- [John Travolta ontroerd in Cannes na onverwachte oeuvreprijs: ‘Zonder mijn familie had ik dit nooit bereikt’](https://www.ad.nl/show/john-travolta-ontroerd-in-cannes-na-onverwachte-oeuvreprijs-zonder-mijn-familie-had-ik-dit-nooit-bereikt~ae2fbd62/)
+  > Steracteur John Travolta kon zijn tranen niet bedwingen tijdens de wereldpremière van zijn regiedebuut op het Filmfestival van Cannes. Toen hij...
+- [De man die voor ons munitie wil maken, gaat van faillissement naar faillissement: ‘Mensen zijn woest’](https://www.ad.nl/binnenland/de-man-die-voor-ons-munitie-wil-maken-gaat-van-faillissement-naar-faillissement-mensen-zijn-woest~a4e92829/)
+  > Zijn bedrijven vallen om als dominostenen, maar nu hij onlangs ook persoonlijk failliet is verklaard weigert hij zijn zeldzame Lamborghini in te...
 
 ### Meest gelezen
 
@@ -47,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [‘De kern is dat “het monster” diep menselijk is, en de meute zich monsterlijk gedraagt’](https://fd.nl/opinie/1596910/de-kern-is-dat-het-monster-diep-menselijk-is-en-de-meute-zich-monsterlijk-gedraagt-en-andere-lezersreacties)
+  > FD-lezers reageren op het monster van Frankenstein in Loosdrecht, het maken van moeilijke keuzes bij een vergrijzende bevolking, heel veel...
 - [Wat heeft de Iran-oorlog met boksen te maken? En wanneer zijn de olievoorraden uitgeput?](https://fd.nl/economie/1596917/wat-heeft-de-iran-oorlog-met-boksen-te-maken-en-wanneer-zijn-de-olievoorraden-uitgeput)
   > Tijdens de wapenstilstand lijkt er nog geen oplossing in zicht, hoe kon Iran zo tegen het grote VS opboksen? En als dit nog langer doorgaat met een...
 - [Hardo, de kunstenaar voor wie de financiële wereld een speeltuin is](https://fd.nl/samenleving/1596752/hardo-de-kunstenaar-voor-wie-de-financiele-wereld-een-speeltuin-is)
@@ -55,8 +56,6 @@
   > Een alternatieve Songfestivalliedjeslijst, om diversiteit aan historie aan actualiteit te kunnen koppelen. Mét moderne klassiekers als ‘Drü isch die...
 - [Miljoenenboetes dreigen voor asfaltcentrales na jarenlang overschrijden van uitstootnormen](https://fd.nl/bedrijfsleven/1596609/miljoenenboetes-dreigen-voor-asfaltcentrales-na-jarenlang-overschrijden-van-uitstootnormen)
   > Een deel van de Asfaltcentrales stoot al jarenlang te hoge concentraties gevaarlijke stoffen uit, blijkt uit onderzoek van het FD.
-- [CO₂-prijs voor gas en benzine is logisch en broodnodig](https://fd.nl/politiek/1596881/co-prijs-voor-gas-en-benzine-is-logisch-en-broodnodig)
-  > Het Planbureau voor de Leefomgeving berekende de kosten van het nieuwe CO₂-emissiehandelssysteem voor burgers. Dat bracht een flinke schok teweeg....
 
 ### Meest gelezen
 
