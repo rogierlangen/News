@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-05-2026 om 09:43*
+*Laatst bijgewerkt: 16-05-2026 om 11:04*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Presentator Bas Westerweel op 62-jarige leeftijd overleden](https://nos.nl/l/2614531)
+  > Oud-presentator Bas Westerweel is op 62-jarige leeftijd overleden. Hij overleed in de nacht op donderdag op vrijdag in zijn slaap in zijn woning in...
+- [Rechter verbiedt Zeeuwse om nog dieren te houden na verwaarlozing herders](https://nos.nl/l/2614529)
+  > Een vrouw uit Hulst mag de komende tien jaar geen dieren meer houden. Dat heeft de rechter in Middelburg besloten omdat bij controle door de...
+- [Oude spullen moeten de haperende Europese economie redden](https://nos.nl/l/2614525)
+  > In een niet al te verre toekomst moeten alle producten in Europa worden gemaakt van oude spullen. Je levert bijvoorbeeld je afgedankte kleding in en...
 - [Been geamputeerd van deelnemer Survivor Greece, tv-programma stilgelegd](https://nos.nl/l/2614524)
   > Bij het Griekse tv-programma Survivor Greece is een deelnemer zwaargewond geraakt. Een deel van zijn been moest geamputeerd worden. Het programma is...
 - [Nederland geeft historische objecten terug aan India](https://nos.nl/l/2614521)
   > Nederland geeft twee eeuwenoude objecten terug aan India. Het gaat om de zogeheten Chola Plates, historische ringen met beschreven koperen platen, nu...
-- [Politie ontruimt deel winkelcentrum Leidschendam na run op horloge](https://nos.nl/l/2614519)
-  > De politie heeft vanochtend een deel van een groot winkelcentrum in Leidschendam ontruimd nadat een run was ontstaan op een speciale editie van een...
-- [Zes gewonden bij ongeluk in Tilburg, positieve blaastest bestuurder](https://nos.nl/l/2614516)
-  > Bij een ongeluk op de Ringbaan Noord in Tilburg zijn vannacht zes mensen gewond geraakt. Volgens de politie zijn de slachtoffers "veelal tieners".
-  ...
-- [Dode en vier zwaargewonden bij auto-ongeluk België, alle slachtoffers minderjarig](https://nos.nl/l/2614511)
-  > In Brasschaat, niet ver over de grens in België, is gisteravond een ernstig auto-ongeluk gebeurd. Een van de inzittenden, een jongen, is daarbij om...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nieuwe aangifte van verkrachting brengt Patrick Bruel verder in het nauw](https://www.ad.nl/show/nieuwe-aangifte-van-verkrachting-brengt-patrick-bruel-verder-in-het-nauw~a7b64c7c/)
-  > De aanklachten van seksueel wangedrag tegen de Franse zanger Patrick Bruel stapelen zich op. De Franse tv-presentatrice Flavie Flament meldde op haar...
-- [Chelsea jaagt op Xabi Alonso, maar Stamford Bridge staat bekend als trainerskerkhof: ‘Compleet verrot’](https://www.ad.nl/voetbal/chelsea-jaagt-op-xabi-alonso-maar-stamford-bridge-staat-bekend-als-trainerskerkhof-compleet-verrot~acd54380/)
-  > Chelsea probeert aan de vooravond van de FA Cup-finale met Manchester City op Wembley Xabi Alonso te strikken als hoofdcoach. Vriend en vijand...
-- [YouTube, Snap en TikTok treffen schikking met school in VS om claims over verslaving en zorgkosten](https://www.ad.nl/buitenland/youtube-snap-en-tiktok-treffen-schikking-met-school-in-vs-om-claims-over-verslaving-en-zorgkosten~a25b0a87/)
-  > YouTube, Snap en TikTok hebben in de Verenigde Staten een zaak geschikt rond beschuldigingen over de verslavende werking van de socialmedia en hogere...
-- [Ambtenaar Jim B. was met zijn info goud waard voor de onderwereld: ‘Thanks broeder, whahaha, tempo team’](https://www.ad.nl/binnenland/ambtenaar-jim-b-was-met-zijn-info-goud-waard-voor-de-onderwereld-thanks-broeder-whahaha-tempo-team~a7f62ca6/)
-  > Hij was goud waard voor de onderwereld. Razendsnel zocht hij voor criminelen adressen op van potentiële doelwitten. Voor 50 euro per persoon verkocht...
-- [In mei wil iedereen vrij, salarisadministrateur Ronald (61) werkt zich suf](https://www.ad.nl/economie/in-mei-wil-iedereen-vrij-salarisadministrateur-ronald-61-werkt-zich-suf~a04ce632/)
-  > Handig schuiven met vrije dagen rond Hemelvaart en Pinksteren levert gewilde minivakanties op. Maar niet voor iedereen. Salarisadministrateur Ronald...
+- [Grote zorgen nu controles op Schiphol op de schop gaan: ‘Wachttijden kunnen deze zomer oplopen’](https://www.ad.nl/binnenland/grote-zorgen-nu-controles-op-schiphol-op-de-schop-gaan-wachttijden-kunnen-deze-zomer-oplopen~a0f51afd/)
+  > Gaat een nieuwe opzet van de controles op Schiphol deze zomer leiden tot langere wachtrijen voor passagiers en onveilige situaties? Vakbonden en...
+- [Presentator Bas Westerweel onverwachts overleden](https://www.ad.nl/show/presentator-bas-westerweel-onverwachts-overleden~a1dd7a19/)
+  > Bas Westerweel is onverwachts overleden. De presentator werd vrijdag aangetroffen in zijn appartement in Enschede, meldt RTL Boulevard. Westerweel is...
+- [Fans in spanning: ‘Laat het Telstar-sprookje alsjeblieft een sprookjesboek worden’](https://www.ad.nl/voetbal/fans-in-spanning-laat-het-telstar-sprookje-alsjeblieft-een-sprookjesboek-worden~a1fb8165/)
+  > Telstar veroverde dit seizoen de harten van voetbalsupporters in heel Nederland. Toch valt het te bezien of de knuffelclub in de eredivisie blijft....
+- [Álvaro Arbeloa ziet José Mourinho als ideale opvolger bij Real Madrid: ‘Hij is een van ons’](https://www.ad.nl/voetbal/alvaro-arbeloa-ziet-jose-mourinho-als-ideale-opvolger-bij-real-madrid-hij-is-een-van-ons~af4a209f/)
+  > Trainer Álvaro Arbeloa is gelukkig als José Mourinho hem opvolgt bij Real Madrid. „Voor mij, als voormalig speler en fan van deze club, is Mourinho...
+- [Rookvrije terrassen leiden tot felle discussies: komen voorstander Birte en tegenstander Wouter dichter tot elkaar?](https://www.ad.nl/binnenland/rookvrije-terrassen-leiden-tot-felle-discussies-komen-voorstander-birte-en-tegenstander-wouter-dichter-tot-elkaar~aa71a9df/)
+  > Zijn rokers op het terras asocialen die de gezondheid van anderen schaden? Of hebben zij recht op hun peuk? Het Utrechtse streven om terrassen...
 
 ### Meest gelezen
 
@@ -47,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [CNV: ‘Jongste premier ooit raakt jongeren harder dan ooit’](https://fd.nl/politiek/1596743/cnv-jongste-premier-ooit-raakt-jongeren-harder-dan-ooit)
+  > In een enquête van de vakbond tonen jongeren zich bezorgd over voorgenomen bezuinigingen op de sociale zekerheid. Vooral versobering van de WW baart...
 - [Russische rechtbank beveelt Euroclear tot betaling van €200 mrd](https://fd.nl/politiek/1596953/russische-rechtbank-beveelt-euroclear-tot-betaling-van-200-mrd)
   > De Belgische effectenbewaarinstelling beheert bevroren Russische tegoeden en betwist de uitspraak.
 - [Jeanine Hennis-Plasschaert wordt ondersecretaris-generaal VN](https://fd.nl/politiek/1596841/jeanine-hennis-plasschaert-wordt-ondersecretaris-generaal-vn)
@@ -55,8 +56,6 @@
   > FD-lezers reageren op het monster van Frankenstein in Loosdrecht, het maken van moeilijke keuzes bij een vergrijzende bevolking, heel veel...
 - [Wat heeft de Iran-oorlog met boksen te maken? En wanneer zijn de olievoorraden uitgeput?](https://fd.nl/economie/1596917/wat-heeft-de-iran-oorlog-met-boksen-te-maken-en-wanneer-zijn-de-olievoorraden-uitgeput)
   > Tijdens de wapenstilstand lijkt er nog geen oplossing in zicht, hoe kon Iran zo tegen het grote VS opboksen? En als dit nog langer doorgaat met een...
-- [Hardo, de kunstenaar voor wie de financiële wereld een speeltuin is](https://fd.nl/samenleving/1596752/hardo-de-kunstenaar-voor-wie-de-financiele-wereld-een-speeltuin-is)
-  > Een Nederlandse grondstoffenhandelaar maakt grote kunstwerken over de financiële wereld, met dank aan PowerPoint, grote verbeeldingskracht en...
 
 ### Meest gelezen
 
