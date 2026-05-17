@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-05-2026 om 19:14*
+*Laatst bijgewerkt: 17-05-2026 om 20:58*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Twee gevechtsvliegtuigen neergestort na botsing tijdens luchtshow in VS](https://nos.nl/l/2614753)
+  > Twee gevechtsvliegtuigen zijn in de Amerikaanse staat Idaho in de lucht tegen elkaar gebotst. De vier bemanningsleden konden zich met de schietstoel...
+- [Artiesten Brussels Pride mishandeld op straat: 'Aangevallen omdat ik homo ben'](https://nos.nl/l/2614751)
+  > In België hebben drie artiesten laten weten te zijn mishandeld nadat ze hadden opgetreden op Brussels Pride. Ze zeggen te zijn aangevallen door een...
+- [Mars in Tsjechië voor behoud publieke omroep: ‘Willen geen Hongarije worden’](https://nos.nl/l/2614747)
+  > In Tsjechië hebben duizenden mensen geprotesteerd tegen geplande hervormingen van de publieke omroep. De regering van de populistische premier Babis...
 - [Vrouw (67) overleden na koeienaanval in Oostenrijk, man zwaargewond](https://nos.nl/l/2614745)
   > Bij een aanval van een kudde koeien in een weide in Oostenrijk is vanmiddag een 67-jarige vrouw overleden. Haar 65-jarige echtgenoot is zwaargewond...
 - [Franse erfgoedwet doet door Nederlander gerund oorlogsmuseum de das om](https://nos.nl/l/2614743)
   > Na twintig jaar valt het doek voor Romagne 14-18, de omvangrijke privécollectie van de Nederlandse Fransman Jean-Paul de Vries. Door strengere...
-- [Dorpsfeesten en festivals zuchten onder regeldruk: 'Komt steeds meer bij kijken'](https://nos.nl/l/2614736)
-  > Lokale festivals en dorpsfeesten hebben moeite om overeind te blijven. Dat komt door het toenemende aantal regels, stijgende kosten en veel...
-- [Experts: klimaatverandering is 'catastrofale dreiging voor volksgezondheid'](https://nos.nl/l/2614735)
-  > Klimaatverandering moet in Europa worden behandeld als internationale noodsituatie voor de volksgezondheid. Dat stelt een speciale commissie die is...
-- [Geduld is zulk een schone zaak, vanaf donderdag kans op neerslag klein](https://nos.nl/l/2614712)
-  > Oude wijsheden doen het soms best goed en nu dus ook deze. Het weer gaat namelijk echt wel opknappen, maar ga er niet meteen van uit dat dit morgen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Voetbalpodcast | ‘Anthony Correia is de trainer van dit seizoen voor mij’](https://www.ad.nl/voetbal/voetbalpodcast-anthony-correia-is-de-trainer-van-dit-seizoen-voor-mij~a42af5cd9/)
+  > De slotronde van de Eredivisie bracht voldoende spektakel en voor menig supporter nog voldoening. De laatste tickets werden verdeeld. NEC mag...
+- [Woede om opgedoken video: kinderen halen zeldzame dolfijn uit rivier om mee te poseren](https://www.ad.nl/buitenland/woede-om-opgedoken-video-kinderen-halen-zeldzame-dolfijn-uit-rivier-om-mee-te-poseren~a306389a/)
+  > Het dier wordt met uitsterven bedreigd, maar dat weerhield kinderen in India er niet van een zeldzame dolfijn uit de rivier de Ganges te vangen. Het...
+- [Podcast In Het Wiel | ‘Giulio Ciccone heeft een leeuwenhart, het is grinta op zijn mooist’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-giulio-ciccone-heeft-een-leeuwenhart-het-is-grinta-op-zijn-mooist~a5ea502e/)
+  > Waar we dachten aan een dag voor de vluchters, was het vandaag toch gewoon voor de favorieten in de Giro d'Italia. Hoewel Giulio Ciccone er alles aan...
+- [Vier mensen, onder wie een kind, naar ziekenhuis na koolmonoxidevergiftiging in woning in Kaatsheuvel](https://www.ad.nl/binnenland/vier-mensen-onder-wie-een-kind-naar-ziekenhuis-na-koolmonoxidevergiftiging-in-woning-in-kaatsheuvel~a801d7a6/)
+  > Meerdere mensen, onder wie een kind, zijn zondagavond onwel geworden in een huis aan het Ferdinand Bolplein in Kaatsheuvel. Dit komt vermoedelijk...
 - [Kinderen lezen niet, omdat hun ouders dat ook niet doen](https://www.ad.nl/binnenland/kinderen-lezen-niet-omdat-hun-ouders-dat-ook-niet-doen~a59e2f57/)
   > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [Bij alleenstaande moeder Laura staat de deur altijd open voor vluchtelingen: ‘Nog nooit onveilig gevoeld’](https://www.ad.nl/binnenland/bij-alleenstaande-moeder-laura-staat-de-deur-altijd-open-voor-vluchtelingen-nog-nooit-onveilig-gevoeld~a30ab327/)
-  > Buiten woedt al weken een fel debat over de opvang van vluchtelingen. Binnen klinkt vooral gelach. „Dit zijn dus de mensen waar iedereen zo bang voor...
-- [Mercedes S-Klasse: het beste verbeterd](https://www.ad.nl/auto/mercedes-s-klasse-het-beste-verbeterd~a8e814c8/)
-  > Even dachten we dat Mercedes met de huidige S-klasse zo’n beetje de ultieme auto in het programma had. Maar dat blijkt een utopie; er viel toch nog...
-- [Ajax, FC Utrecht, Heerenveen en FC Groningen strijden om laatste Europese ticket: dit is het programma](https://www.ad.nl/voetbal/ajax-fc-utrecht-heerenveen-en-fc-groningen-strijden-om-laatste-europese-ticket-dit-is-het-programma~adf4f522/)
-  > Ajax, FC Utrecht, Heerenveen en FC Groningen zijn de vier clubs die in de play-offs gaan strijden om een plek in de voorronde van de Conference...
-- [Duitse politie schiet tijger dood, beest ontsnapte uit verblijf van beroemde ‘tijgerkoningin’ Carmen](https://www.ad.nl/buitenland/duitse-politie-schiet-tijger-dood-beest-ontsnapte-uit-verblijf-van-beroemde-tijgerkoningin-carmen~a1d523a1f/)
-  > De Duitse politie heeft zondag een tijger doodgeschoten die ontsnapt was uit een particulier beheerd verblijf. Het roofdier verbleef bij de omstreden...
 
 ### Meest gelezen
 
