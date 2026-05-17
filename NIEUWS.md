@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-05-2026 om 15:00*
+*Laatst bijgewerkt: 17-05-2026 om 17:01*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Tientallen voetbalsupporters met elkaar op de vuist bij tankstation langs A28](https://nos.nl/l/2614686)
-  > Voetbalsupporters zijn langs de A28 bij Putten met elkaar op de vuist gegaan. Daarbij is zeker één person gewond geraakt. Er is nog niemand...
-- [Zeldzaam grote evacuatie in Duitsland om ontmanteling van WO II-bommen](https://nos.nl/l/2614681)
-  > In Duitsland worden vandaag op meerdere plekken bommen uit de Tweede Wereldoorlog ontmanteld. Tienduizenden mensen, toeristen en werknemers zijn...
-- [Systemen universiteit Utrecht draaien morgen weer na brand in datacenter](https://nos.nl/l/2614674)
-  > Bijna twee weken na de brand in een datacentrum in Almere komen de systemen van de Universiteit Utrecht weer beschikbaar, meldt de universiteit....
-- [Tijger van Duitse showdompteur ontsnapt, politie schiet dier neer](https://nos.nl/l/2614673)
-  > In de buurt van Leipzig is een tijger ontsnapt. Het dier heeft iemand verwond en werd daarna doodgeschoten door de Duitse politie.
-        De tijger...
-- [Opluchting bij organisatie songfestival, maar problemen nog lang niet voorbij](https://nos.nl/l/2614670)
-  > Met Bulgarije als onverwachte winnaar kan de organisatie achter het Eurovisie Songfestival opgelucht ademhalen. Want als Israël, dat tweede werd, had...
+- [Geduld is zulk een schone zaak, vanaf donderdag kans op neerslag klein](https://nos.nl/l/2614712)
+  > Oude wijsheden doen het soms best goed en nu dus ook deze. Het weer gaat namelijk echt wel opknappen, maar ga er niet meteen vanuit dat dit morgen al...
+- [Hachelijke momenten voor wadlopers bij Ameland: 'Voeten als ijsklontjes'](https://nos.nl/l/2614708)
+  > De schrik zit er nog goed in bij de wadlopers die vanochtend vast kwamen te zitten bij Ameland. 32 mensen, onder wie vier gidsen, kwamen in de...
+- [Zelensky noemt zeer zware drone-aanval op Rusland rechtvaardige reactie](https://nos.nl/l/2614705)
+  > Het Oekraïense leger heeft afgelopen nacht en vanmorgen een van de zwaarste drone-aanvallen uitgevoerd op Rusland sinds het begin van de oorlog....
+- [Droneaanval veroorzaakt brand nabij enige kerncentrale in de Emiraten](https://nos.nl/l/2614699)
+  > Een elektriciteitsgenerator bij de kerncentrale Barakah in de Verenigde Arabische Emiraten (VAE) is geraakt door een drone, die brand veroorzaakte....
+- [Na aanhoudend geweld door kolonisten tegen Palestijnen belooft Israël onderzoek](https://nos.nl/l/2614696)
+  > Het Israëlische leger en de Israëlische politie zeggen een onderzoek in te stellen naar een reeks aanvallen de afgelopen dagen van Israëlische...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Na zware aanval op Moskou klinkt plots diplomatieke toon uit Kremlin: ‘Poetin is niet verder weg dan telefoonhoorn’](https://www.ad.nl/buitenland/na-zware-aanval-op-moskou-klinkt-plots-diplomatieke-toon-uit-kremlin-poetin-is-niet-verder-weg-dan-telefoonhoorn~a2133b4b/)
-  > Terwijl zaterdagnacht een ongekend grote Oekraïense droneaanval op Moskou plaatshad waarbij minstens vier mensen omkwamen, lijkt Rusland steeds meer...
-- [Nederlandse handballers lopen WK in Duitsland mis: Griekenland veel sterker in alles-of-niets-duel](https://www.ad.nl/andere-sporten/nederlandse-handballers-lopen-wk-in-duitsland-mis-griekenland-veel-sterker-in-alles-of-niets-duel~a197d4c1/)
-  > De Nederlandse handbalmannen hebben zich voor het eerst sinds 2019 niet geplaatst voor het WK. In het Rotterdamse Topsportcentrum was Griekenland,...
-- [Indrukwekkend eerbetoon voor Ron Jans in Galgenwaard](https://www.ad.nl/voetbal/indrukwekkend-eerbetoon-voor-ron-jans-in-galgenwaard~a0d5bdf7/)
-  > Voorafgaand aan de laatste wedstrijd van het seizoen, tegen Fortuna Sittard (2-0), heeft FC Utrecht officieel afscheid genomen van trainer Ron Jans.
-- [Keeper Ronald Koeman jr. held met winnende goal: Telstar blijft in eredivisie na gevecht met FC Volendam](https://www.ad.nl/voetbal/keeper-ronald-koeman-jr-held-met-winnende-goal-telstar-blijft-in-eredivisie-na-gevecht-met-fc-volendam~af0bbb3a/)
-  > Een jongensboek voor Ronald Koeman Junior. De doelman van Telstar maakte in de slotfase van het degradatiegevecht met FC Volendam de winnende goal...
-- [NEC profiteert van nederlaag FC Twente en schrijft historie met ticket voor voorronde Champions League](https://www.ad.nl/voetbal/nec-profiteert-van-nederlaag-fc-twente-en-schrijft-historie-met-ticket-voor-voorronde-champions-league~afa2399c/)
-  > NEC heeft zich voor het eerst in de clubhistorie geplaatst voor de (voorronde) van de Champions League. De Nijmegenaren wonnen op de slotdag met 2-1...
+- [MotoGP in Barcelona opgeschrikt door zware crash van Spanjaard Álex Márquez](https://www.ad.nl/andere-sporten/motogp-in-barcelona-opgeschrikt-door-zware-crash-van-spanjaard-alex-marquez~a442e0b1/)
+  > Een zware crash tijdens de MotoGP in Barcelona. De GP van Catalonië werd een tijdje stilgelegd nadat de Spanjaard Álex Márquez hard onderuit ging....
+- [Redactie Carrie op vrijdag verwijdert uitzending na ophef over gast Peter van den H.](https://www.ad.nl/binnenland/redactie-carrie-op-vrijdag-verwijdert-uitzending-na-ophef-over-gast-peter-van-den-h~ab0da51e/)
+  > Een man uit Hardinxveld-Giessendam is in opspraak geraakt na zijn optreden vrijdagavond in talkshow Carrie op vrijdag. Peter van den H. schoof aan om...
+- [Nynke moest met groep worden gered van het wad: ‘Mijn voeten voelden als ijsklontjes’](https://www.ad.nl/binnenland/nynke-moest-met-groep-worden-gered-van-het-wad-mijn-voeten-voelden-als-ijsklontjes~ad128c72/)
+  > Actrice Nynke Heeg is een van de mensen die zondagochtend moest worden gered van het wad. Een groep van 32 wadlopers kwam voor de kust van Ameland...
+- [Met twee honden liep Rob zijn dood tegemoet, hij werd doodgeschoten: wie zat er achter ‘vergismoord’?](https://www.ad.nl/lansingerland/met-twee-honden-liep-rob-zijn-dood-tegemoet-hij-werd-doodgeschoten-wie-zat-er-achter-vergismoord~aea9573c/)
+  > Rob Zweekhorst laat op nieuwjaarsdag 2014 nog even snel zijn honden uit. De vader van twee jonge kinderen zal nooit meer thuiskomen. Om de hoek van...
+- [Ajax-trainer Óscar García vindt het een schande dat duel in Heerenveen niet werd stilgelegd: ‘Zo toon je geen respect’](https://www.ad.nl/voetbal/ajax-trainer-oscar-garcia-vindt-het-een-schande-dat-duel-in-heerenveen-niet-werd-stilgelegd-zo-toon-je-geen-respect~a6236e41/)
+  > Ajax-trainer Óscar García vindt het onbegrijpelijk dat het uitduel met SC Heerenveen (0-0) niet is stilgelegd vanwege aanhoudende zware regenval. „De...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Trage vulling gasbergingen dreigt leveringszekerheid en gasprijs in de winter te raken](https://fd.nl/bedrijfsleven/1596806/trage-vulling-gasbergingen-dreigt-leveringszekerheid-en-gasprijs-in-de-winter-te-raken)
+  > Als het vultempo niet snel omhooggaat, moet het kabinet ingrijpen, vindt de Gasunie.
+- [Britse verzekeraar Prudential koopt meerderheidsbelang Indiase Bharti Life](https://fd.nl/bedrijfsleven/1596959/britse-verzekeraar-prudential-koopt-meerderheidsbelang-indiase-bharti-life)
+  > Prudential hoopt met de overname de enorme, onverzekerde middenklasse in India aan te boren.
+- [Venezuela begint aan een van de grootste schuldsaneringen ooit](https://fd.nl/economie/1596813/venezuela-begint-aan-een-van-de-grootste-schuldsaneringen-ooit)
+  > Venezuela wil af van zijn schuldenberg van ruim $150 mrd om weer toegang te krijgen tot internationale financiering.
 - [Opluchting na noodplan voor kade Terschelling, maar geen reden voor ‘te veel euforie’](https://fd.nl/samenleving/1596915/opluchting-na-noodplan-voor-kade-terschelling-maar-geen-reden-voor-te-veel-euforie)
   > Als de kade de komende tijd te ver verzakt, is ingrijpen alsnog nodig.
 - [Zweedse hotelbelegger Pandox eist miljoenen van noodlijdende uitbater](https://fd.nl/bedrijfsleven/1596769/zweedse-hotelbelegger-pandox-eist-miljoenen-van-noodlijdende-uitbater)
   > Hommeles in hotelland. De exploitant die eerder bij het W Hotel een schuld van €23 mln had laten ontstaan bij pandeigenaar Deka blijkt bij een ander...
-- [Delta Fiber scoort met verhuur van zijn netwerk aan derden](https://fd.nl/bedrijfsleven/1596796/delta-fiber-scoort-met-verhuur-van-zijn-netwerk-aan-derden)
-  > De omzet uit de verkoop van breedbandabonnementen onder eigen merk kromp vorig jaar. Alleen dankzij de verhuur van het eigen netwerk aan derden kon...
-- [Exclusieve golfclub wil €6 mln van ex-directeur vanwege puinhoop bij geluidswal](https://fd.nl/samenleving/1596909/exclusieve-golfclub-wil-6-mln-van-ex-directeur-vanwege-puinhoop-bij-geluidswal)
-  > De aanleg gebeurde door een soort eenmanszaak. Het werd een fiasco door het gebruik van staalslakken afkomstig van Tata Steel, waar water bij kwam.
-- [WHO slaat alarm vanwege ebola-uitbraak in Afrika](https://fd.nl/samenleving/1596958/who-slaat-alarm-vanwege-ebola-uitbraak-in-afrika)
-  > De Wereldgezondheidsorganisatie hamert op het belang van internationale samenwerking om verspreiding tegen te gaan.
 
 ### Meest gelezen
 
