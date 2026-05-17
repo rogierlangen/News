@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-05-2026 om 23:57*
+*Laatst bijgewerkt: 17-05-2026 om 04:12*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- ['Onwaarschijnlijk dat vermiste Nederlandse wandelaar op Saba nog leeft'](https://nos.nl/l/2614616)
+  > Een Nederlandse wandelaar naar wie al dagen wordt gezocht op het Caribische eiland Saba, is waarschijnlijk overleden. Dat heeft gezaghebber van Saba...
+- [Venezuela zet vertrouweling van Maduro uit vanwege Amerikaanse strafzaken](https://nos.nl/l/2614615)
+  > De Venezolaanse regering heeft zaterdag zakenman Alex Saab het land uitgezet. Saab geldt als een belangrijke bondgenoot van oud-president Nicolás...
+- [WHO: ebola-uitbraak Congo en Uganda internationale noodsituatie](https://nos.nl/l/2614614)
+  > De Wereldgezondheidsorganisatie WHO heeft een internationale noodsituatie afgekondigd vanwege de uitbraak van ebola in de Democratische Republiek...
+- [Eurovisie Songfestival gewonnen door Bulgarije, Israël tweede](https://nos.nl/l/2614613)
+  > Bulgarije heeft de zeventigste editie van het Eurovisie Songfestival gewonnen. Zangeres Dara kreeg met het lied Bangaranga de meeste punten van zowel...
 - [Canadese cruisepassagier test positief op hantavirus](https://nos.nl/l/2614607)
   > In Canada is een passagier van cruiseschip Hondius in een ziekenhuis positief getest op het hantavirus. De testuitslag moet nog worden bevestigd in...
-- [Verdachte Rwandese genocide Félicien Kabuga overleden in Den Haag](https://nos.nl/l/2614598)
-  > Félicien Kabuga, die werd verdacht van het mede aanstichten van de genocide in Rwanda in 1994, is overleden in een ziekenhuis in Den Haag.
-       ...
-- [Auto rijdt in op voetgangers in Italiaanse stad Modena, bestuurder opgepakt](https://nos.nl/l/2614584)
-  > In het centrum van de Italiaanse stad Modena is een automobilist met hoge snelheid ingereden op voetgangers. Daarbij zijn acht mensen gewond geraakt,...
-- [Maledivische duiker komt om bij zoektocht naar overleden Italiaanse grotduikers](https://nos.nl/l/2614580)
-  > Een duiker van het Maledivische leger is omgekomen bij een zoekactie naar de vier nog altijd vermiste Italiaanse duikers. Zij kwamen deze week om bij...
-- [Tienduizenden demonstranten in Londen bij twee protesten](https://nos.nl/l/2614577)
-  > Tienduizenden mensen zijn in de Britse hoofdstad Londen op de been voor twee protesten die gelijktijdig plaatsvinden. Zo'n 4000 agenten zijn ingezet...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Verstappen kijkt tevreden terug op zijn eerste uren, nacht valt op de Nürburgring: ‘Komende uren worden spannend’](https://www.ad.nl/formule-1/verstappen-kijkt-tevreden-terug-op-zijn-eerste-uren-nacht-valt-op-de-nurburgring-komende-uren-worden-spannend~af32a412/)
-  > Max Verstappen kijkt met een hoop tevredenheid terug op zijn debuut tijdens de 24 uur van de Nürburgring. De Nederlander nam 2,5 uur voor zijn...
-- [Podcast In Het Wiel | ‘Het parkoers lag er zo verschrikkelijk mooi bij voor een toprit’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-het-parkoers-lag-er-zo-verschrikkelijk-mooi-bij-voor-een-toprit~a5ea502e/)
-  > De muurtjesrit die zo mooi had moeten worden, viel dan toch een beetje tegen. Na een doldwaze openingsfase met een gemiddeld tempo van 52 kilometer...
-- [Protest kermisexploitanten Purmerend tegen vervroegde sluiting](https://www.ad.nl/binnenland/protest-kermisexploitanten-purmerend-tegen-vervroegde-sluiting~a33f84bf/)
-  > Exploitanten van de voorjaarskermis in Purmerend zijn uit protest later dichtgegaan dan de 21.00 uur die door de gemeente was opgelegd. Burgemeester...
-- [Willem II wint ook thuis van Almere City en is één horde verwijderd van terugkeer in eredivisie](https://www.ad.nl/voetbal/willem-ii-wint-ook-thuis-van-almere-city-en-is-een-horde-verwijderd-van-terugkeer-in-eredivisie~afe84511/)
-  > Willem II heeft zich verzekerd van een finaleplaats in de play-offs om promotie/degradatie. In eigen huis wonnen de Tilburgers de return met 2-0 van...
-- [Spaanse stierspin gevonden in Nunspeet: ‘Wat een indrukwekkend dier’](https://www.ad.nl/binnenland/spaanse-stierspin-gevonden-in-nunspeet-wat-een-indrukwekkend-dier~a8657abd/)
-  > Hij is dik, zwart, vijf centimeter groot, heeft enorme kaken en een venijnige beet: de Spaanse stierspin. Hoewel de spin van nature alleen voorkomt...
+- [Franse ‘Mocro Maffia’ voor de rechter: Marseille siddert voor proces tegen drugsbende](https://www.ad.nl/buitenland/franse-mocro-maffia-voor-de-rechter-marseille-siddert-voor-proces-tegen-drugsbende~abfb824a/)
+  > Elke dag tufte Mohamed in zijn onopvallende Renault dezelfde route langs de drugspunten van Marseille. Hij dacht dat niemand hem zag, maar de politie...
+- [Voorbeschouwing etappe 9 Giro d’Italia | Vluchters ruiken mogelijk hun kans bij nieuwe aankomst bergop](https://www.ad.nl/giro/voorbeschouwing-etappe-9-giro-ditalia-vluchters-ruiken-mogelijk-hun-kans-bij-nieuwe-aankomst-bergop~a14294ba/)
+  > Etappe 9 van de Giro voert het peloton van Cervia naar Como. Een lastige rit, waarbij het venijn uiteraard weer in de staart zit. Op papier kan deze...
+- [Boze slechtvalk is niet gediend van pottenkijkers en steelt smartphone van bioloog](https://www.ad.nl/buitenland/boze-slechtvalk-is-niet-gediend-van-pottenkijkers-en-steelt-smartphone-van-bioloog~a40c843c/)
+  > In de Belgische plaats Lokeren is een bioloog bestolen door een roofvogel. De bioloog wilde een foto maken in een nest slechtvalken maar...
+- [Autoriteiten Saba: onwaarschijnlijk dat vermiste Nederlandse wandelaar nog leeft](https://www.ad.nl/buitenland/autoriteiten-saba-onwaarschijnlijk-dat-vermiste-nederlandse-wandelaar-nog-leeft~a7947ba3/)
+  > De autoriteiten op Saba gaan ervan uit dat de Nederlandse wandelaar, waar al dagen naar wordt gezocht, is omgekomen. Dat heeft gezaghebber Jonathan...
+- [WHO: ebola-uitbraak in Congo ‘internationale medische noodsituatie’](https://www.ad.nl/buitenland/who-ebola-uitbraak-in-congo-internationale-medische-noodsituatie~a6a917b34/)
+  > De uitbraak van een zeldzame variant van het ebolavirus in de Democratische Republiek Congo en Oeganda is een internationale noodsituatie op het...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Vakantiegangers zoeken een veilige haven en daar varen Spanje en Portugal wel bij](https://fd.nl/economie/1596213/vakantiegangers-zoeken-een-veilige-haven-en-daar-varen-spanje-en-portugal-wel-bij)
+  > De economieën van Spanje en Portugal groeiden in de eerste maanden van het jaar veel harder dan de rest van de eurozone. ‘De wereld is complex, maar...
+- [Handen in de lucht voor meer staatssteun](https://fd.nl/bedrijfsleven/1596634/handen-in-de-lucht-voor-meer-staatssteun)
+  > Staatssteun heeft een slecht imago, maar dat verandert, merken experts. Organisatoren van het jaarlijkse Staatssteuncongres werden bestookt met de...
+- [Luisterverhaal: Kazen onder je bed en altijd geld tekort: de harde strijd om de grootste te worden](https://fd.nl/samenleving/1596809/luisterverhaal-kazen-onder-je-bed-en-altijd-geld-tekort-de-harde-strijd-om-de-grootste-te-worden)
+  > Deze week hoor je hoe Vergeer Holland zich staande houdt in de harde kaas-business.
 - [ASML gaat machines leveren aan eerste chipfabriek van India](https://fd.nl/bedrijfsleven/1596954/asml-gaat-machines-leveren-aan-eerste-chipfabriek-van-india)
   > De chipmachineproducent tekent een intentie-overeenkomst om samen te werken met het Indiase Tata Electronics. De ondertekening vond plaats tijdens...
 - [Horlogehype dwingt Swatch-winkels deuren gesloten te houden](https://fd.nl/bedrijfsleven/1596956/horlogehype-dwingt-swatch-winkels-deuren-gesloten-te-houden)
   > Grote groepen geïnteresseerden verzamelden zich voor de winkels van Swatch, dat zaterdag had willen beginnen met de verkoop van een horloge dat het...
-- [Malta en OpenAI gaan burgers gratis toegang tot ChatGPT Plus aanbieden](https://fd.nl/tech-en-innovatie/1596955/malta-en-openai-gaan-burgers-gratis-toegang-tot-chatgpt-plus-aanbieden)
-  > Wie een AI-cursus van de Maltese overheid voltooit, krijgt een jaar lang gratis toegang tot de betaalde versie van de chatbot van OpenAI.
-- [VAE willen capaciteit olie-exportroute over land verdubbelen](https://fd.nl/politiek/1596842/vae-willen-capaciteit-olie-exportroute-over-land-verdubbelen)
-  > Al in 2027 moet de pijpleiding naar de havenstad Fujairah twee keer zoveel olie kunnen vervoeren.
-- [CNV: ‘Jongste premier ooit raakt jongeren harder dan ooit’](https://fd.nl/politiek/1596743/cnv-jongste-premier-ooit-raakt-jongeren-harder-dan-ooit)
-  > In een enquête van de vakbond tonen jongeren zich bezorgd over voorgenomen bezuinigingen op de sociale zekerheid. Vooral versobering van de WW baart...
 
 ### Meest gelezen
 
