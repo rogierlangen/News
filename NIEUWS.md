@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-05-2026 om 11:11*
+*Laatst bijgewerkt: 17-05-2026 om 13:40*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Opluchting bij organisatie songfestival, maar problemen nog lang niet voorbij](https://nos.nl/l/2614670)
+  > Met Bulgarije als onverwachte winnaar kan de organisatie achter het Eurovisie Songfestival opgelucht ademhalen. Want als Israël, dat tweede werd, had...
+- [Hulpverlening in Congo en Uganda opgeschaald om ebola-uitbraak](https://nos.nl/l/2614661)
+  > Hulporganisaties Artsen zonder Grenzen en het Rode Kruis schalen de hulp op na een nieuwe ebola-uitbraak in de Democratische Republiek Congo en...
 - [Benen van twee slachtoffers in Modena geamputeerd, Meloni bezoekt slachtoffers](https://nos.nl/l/2614648)
   > De Italiaanse premier Meloni en president Mattarella bezoeken vandaag slachtoffers van de aanslag in Modena. Gisteren reed een 31-jarige man in op...
 - [Schade na ramkraak bij parfumerie in Boxmeer, vluchtauto teruggevonden](https://nos.nl/l/2614647)
   > Een ramkraak bij een parfumwinkel in het centrum van Boxmeer heeft vannacht veel schade veroorzaakt. De daders gingen er na de ramkraak in een...
 - [Groep onderkoelde wadlopers bij Ameland gered](https://nos.nl/l/2614630)
   > Tientallen wadlopers zijn bij Ameland in de problemen geraakt. Er zijn reddingsboten ingezet maar door laag water konden die niet dichtbij komen,...
-- [Rusland meldt Oekraïense droneaanvallen op Moskou en Sevastopol](https://nos.nl/l/2614629)
-  > Rusland zegt dat Oekraïne de afgelopen 24 uur uur drones op Moskou en de bezette havenstad Sevastopol heeft afgevuurd.
-        Volgens de gouverneur...
-- [Podcast De Dag: van onze correspondent... Anoma van der Veere (Japan)](https://nos.nl/l/2614622)
-  > Van onze correspondent is een serie van de makers van podcast De Dag. Iedere zondag maken we kennis met een van de correspondenten van de NOS, het...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Wie gaan Europa in en welke club speelt zich veilig? Dit staat er vandaag op het spel](https://www.ad.nl/voetbal/wie-gaan-europa-in-en-welke-club-speelt-zich-veilig-dit-staat-er-vandaag-op-het-spel~a0dfd432/)
-  > De ontknoping van het eredivisieseizoen nadert: zondag om 14.30 uur is de allerlaatste speelronde. Voor zeven clubs is het nog razend spannend. Wat...
-- [Succescoach Pep Guardiola mogelijk richting uitgang bij ManCity, Antwerp zet Joseph Oosting op straat](https://www.ad.nl/voetbal/succescoach-pep-guardiola-mogelijk-richting-uitgang-bij-mancity-antwerp-zet-joseph-oosting-op-straat~a488141d/)
-  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
-- [Terug van weggeweest: zo heroverde de zeearend de lucht boven Nederland](https://www.ad.nl/binnenland/terug-van-weggeweest-zo-heroverde-de-zeearend-de-lucht-boven-nederland~a9b31748/)
-  > Daar vliegt de zeearend. 2,5 meter van vleugel naar vleugel. Geen enkele vogel in Nederland kan daaraan tippen. Maar de koning van de lucht zat niet...
-- [Volendam - Telstar niet live op tv, maar ‘uitgespeeld’ Feyenoord wel: dit is waarom ESPN daarvoor kiest](https://www.ad.nl/voetbal/volendam-telstar-niet-live-op-tv-maar-uitgespeeld-feyenoord-wel-dit-is-waarom-espn-daarvoor-kiest~af00de82/)
-  > ESPN heeft een opvallende keuze gemaakt in het uitzendschema voor de laatste speelronde in de VriendenLoterij eredivisie. Alle negen wedstrijden...
-- [Kom ‘niet massaal’ naar onze winkels, smeekt horlogemerk Swatch na uit de hand gelopen zaterdag](https://www.ad.nl/bizar/kom-niet-massaal-naar-onze-winkels-smeekt-horlogemerk-swatch-na-uit-de-hand-gelopen-zaterdag~a874b1e49/)
-  > Liefhebbers van het nieuwe Swatch-horloge moeten ‘niet massaal’ naar de winkels van het concern afreizen. Die oproep doet het merk zelf, nadat het...
+- [LIVE eredivisie | Zinderend gevecht om lijfsbehoud: Telstar klimt weer naar vijftiende plek, noodweer in Volendam](https://www.ad.nl/voetbal/live-eredivisie-zinderend-gevecht-om-lijfsbehoud-telstar-klimt-weer-naar-vijftiende-plek-noodweer-in-volendam~af0bbb3a/)
+  > Het venijn van de strijd in de onderste regionen van de VriendenLoterij eredivisie zit in de staart. Telstar gaat op bezoek bij FC Volendam met als...
+- [LIVE eredivisie | ‘Schaam je kapot’ klinkt op Het Kasteel: Zagré geeft Sparta volgende dreun](https://www.ad.nl/voetbal/live-eredivisie-schaam-je-kapot-klinkt-op-het-kasteel-zagre-geeft-sparta-volgende-dreun~a7f3d24c/)
+  > Het Kasteel van Sparta is op de laatste speeldag het strijdtoneel van de Rotterdamse derby tegen Excelsior. De uitploeg is al uitgespeeld en veilig,...
+- [Montana Meiland geeft inkijkje in huis en MAFS-Danique kiest voor gezondere levensstijl](https://www.ad.nl/show/montana-meiland-geeft-inkijkje-in-huis-en-mafs-danique-kiest-voor-gezondere-levensstijl~a42085f1/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Tengstedt mist kansen om Feyenoord op voorsprong te zetten in Zwolle](https://www.ad.nl/voetbal/tengstedt-mist-kansen-om-feyenoord-op-voorsprong-te-zetten-in-zwolle~aca109a0/)
+  > PEC Zwolle en Feyenoord spelen in de laatste wedstrijd van het seizoen alleen nog voor de eer. De Rotterdammers hebben Champions League-voetbal...
+- [Voorronde Champions League ver weg voor Ajax, Gaaei pegelt bal op de lat in Friesland](https://www.ad.nl/voetbal/voorronde-champions-league-ver-weg-voor-ajax-gaaei-pegelt-bal-op-de-lat-in-friesland~aee27442/)
+  > Het enige wat Ajax zelf in de hand heeft, is de wedstrijd tegen Heerenveen. De Amsterdammers moeten winnen om kans te maken op directe plaatsing voor...
 
 ### Meest gelezen
 
@@ -47,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Delta Fiber scoort met verhuur van zijn netwerk aan derden](https://fd.nl/bedrijfsleven/1596796/delta-fiber-scoort-met-verhuur-van-zijn-netwerk-aan-derden)
+  > De omzet uit de verkoop van breedbandabonnementen onder eigen merk kromp vorig jaar. Alleen dankzij de verhuur van het eigen netwerk aan derden kon...
 - [Exclusieve golfclub wil €6 mln van ex-directeur vanwege puinhoop bij geluidswal](https://fd.nl/samenleving/1596909/exclusieve-golfclub-wil-6-mln-van-ex-directeur-vanwege-puinhoop-bij-geluidswal)
   > De aanleg gebeurde door een soort eenmanszaak. Het werd een fiasco door het gebruik van staalslakken afkomstig van Tata Steel, waar water bij kwam.
 - [WHO slaat alarm vanwege ebola-uitbraak in Afrika](https://fd.nl/samenleving/1596958/who-slaat-alarm-vanwege-ebola-uitbraak-in-afrika)
@@ -55,8 +56,6 @@
   > Grote Nederlandse beleggers steken veel meer geld in defensie. Wanneer gaat dat renderen?
 - [Funderingsschade, scheuren in muren en ondergelopen kelders: Limburgers kampen met oprukkend grondwater](https://fd.nl/samenleving/1595685/funderingsschade-scheuren-in-muren-en-ondergelopen-kelders-limburgers-kampen-met-oprukkend-grondwater)
   > Inwoners van het Geulmondgebied hebben last van stijgend grondwater. De lokale overheid wijst naar klimaatverandering, maar daar denken burgers en...
-- [‘Vrachttarieven in de Golfregio rijzen de pan uit’](https://fd.nl/bedrijfsleven/1596843/vrachttarieven-in-de-golfregio-rijzen-de-pan-uit)
-  > Voor het vervoer van een standaard zeecontainer via land zijn opdrachtgevers duizenden dollars meer kwijt.
 
 ### Meest gelezen
 
