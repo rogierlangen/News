@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-05-2026 om 07:34*
+*Laatst bijgewerkt: 17-05-2026 om 09:50*
 
 ---
 
@@ -8,10 +8,10 @@
 
 ### Laatste nieuws
 
-- [Tientallen wadlopers vast bij Ameland, kustwachthelikopter ingezet voor redding](https://nos.nl/l/2614630)
+- [Groep onderkoelde wadlopers bij Ameland gered](https://nos.nl/l/2614630)
   > Tientallen wadlopers zijn bij Ameland in de problemen geraakt. Er zijn reddingsboten ingezet maar door laag water konden die niet dichtbij komen,...
-- [Rusland meldt Oekraïense droneaanvallen op Moskou en Sebastopol](https://nos.nl/l/2614629)
-  > Rusland zegt dat Oekraïne de afgelopen 24 uur uur drones op Moskou en de bezette havenstad Sebastopol heeft afgevuurd.
+- [Rusland meldt Oekraïense droneaanvallen op Moskou en Sevastopol](https://nos.nl/l/2614629)
+  > Rusland zegt dat Oekraïne de afgelopen 24 uur uur drones op Moskou en de bezette havenstad Sevastopol heeft afgevuurd.
         Volgens de gouverneur...
 - [Podcast De Dag: van onze correspondent... Anoma van der Veere (Japan)](https://nos.nl/l/2614622)
   > Van onze correspondent is een serie van de makers van podcast De Dag. Iedere zondag maken we kennis met een van de correspondenten van de NOS, het...
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Handhaving met FC Volendam moet het spetterende slotakkoord van Robert Mühren worden](https://www.ad.nl/voetbal/handhaving-met-fc-volendam-moet-het-spetterende-slotakkoord-van-robert-muhren-worden~a7916379/)
-  > Tussen de dartborden en de plat-Volendamse humor in de koffiekamer groeit de spanning. Robert Mühren (36), de spits die groenten uit zijn spaghetti...
-- [Gestrande wadlopers bij Ameland gered met helikopter en reddingsboten](https://www.ad.nl/binnenland/gestrande-wadlopers-bij-ameland-gered-met-helikopter-en-reddingsboten~a8aa3bc4/)
-  > Een groep van 33 wadlopers is zondagochtend veilig aan land gebracht nadat ze op het wad bij Ameland in de problemen waren gekomen. Rond 08.30 uur...
-- [Verstappen opnieuw goed onderweg op de Nordschleife, Nederlander vergroot voorsprong op enige concurrent](https://www.ad.nl/formule-1/verstappen-opnieuw-goed-onderweg-op-de-nordschleife-nederlander-vergroot-voorsprong-op-enige-concurrent~a40ac699/)
+- [Oudere broer Bolle Jos voor de derde keer opgepakt in Istanboel](https://www.ad.nl/buitenland/oudere-broer-bolle-jos-voor-de-derde-keer-opgepakt-in-istanboel~ab3e42fc/)
+  > In Turkije is zondag de oudere broer van drugscrimineel 'Bolle Jos' Leijdekkers opgepakt. Het is de derde keer dat Harry Leijdekkers (51) wordt...
+- [Drama voor Verstappen: ruime voorsprong verdwijnt als sneeuw voor de zon door problemen met de auto](https://www.ad.nl/formule-1/drama-voor-verstappen-ruime-voorsprong-verdwijnt-als-sneeuw-voor-de-zon-door-problemen-met-de-auto~a40ac699/)
   > Max Verstappen en zijn teamgenoten hebben een sterke nacht achter de rug. Daniel Juncadella, Lucas Auer, Jules Gounon en Verstappen strijden in hun...
-- [Xabi Alonso lijkt zelf overstap naar Chelsea aan te kondigen, Robert Lewandowski vertrekt bij Barcelona](https://www.ad.nl/voetbal/xabi-alonso-lijkt-zelf-overstap-naar-chelsea-aan-te-kondigen-robert-lewandowski-vertrekt-bij-barcelona~a488141d/)
+- [Máxima viert 55ste verjaardag: dit is de koningin door de jaren heen](https://www.ad.nl/binnenland/maxima-viert-55ste-verjaardag-dit-is-de-koningin-door-de-jaren-heen~ad95a591/)
+  > Dubbel feest op Paleis Huis ten Bosch: koningin Máxima tikt vandaag de 55 aan én viert haar zilveren jubileum als ‘onze’ Máxima. Precies 25 jaar...
+- [Joseph Oosting per direct ontslagen bij Antwerp na mislopen Europees voetbal](https://www.ad.nl/voetbal/joseph-oosting-per-direct-ontslagen-bij-antwerp-na-mislopen-europees-voetbal~a488141d/)
   > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
-- [Nederland verhitte als enige in Europa melk niet, tot de Duitse bezetter het verplichtte](https://www.ad.nl/wetenschap/nederland-verhitte-als-enige-in-europa-melk-niet-tot-de-duitse-bezetter-het-verplichtte~a8bdf235/)
-  > Een glas melk lijkt gezond, maar 150 jaar geleden kon het je ernstig ziek maken. Of erger: je kon eraan overlijden. Hoe veranderde...
+- [Ajax vreest zwart scenario zonder Europees ticket: ‘We mogen ons niet te groot voelen voor de Conference League’](https://www.ad.nl/voetbal/ajax-vreest-zwart-scenario-zonder-europees-ticket-we-mogen-ons-niet-te-groot-voelen-voor-de-conference-league~a5c875fa/)
+  > Jordi Cruijff wil meteen winnen. Negentig minuten in Heerenveen bepalen vandaag in welk tempo de technisch directeur zijn ambitieuze bouwproject bij...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Albert Heijn dwingt verduurzaming af – juist nu de wereld wankelt](https://fd.nl/opinie/1596732/albert-heijn-dwingt-verduurzaming-af-in-crisistijd)
-  > Albert Heijn verplicht, in tijden van onzekerheid, haar toeleveranciers tot verduurzaming. Dat lijkt tegenstrijdig, maar door haar ketenpartners écht...
-- [Vakantiegangers zoeken een veilige haven en daar varen Spanje en Portugal wel bij](https://fd.nl/economie/1596213/vakantiegangers-zoeken-een-veilige-haven-en-daar-varen-spanje-en-portugal-wel-bij)
-  > De economieën van Spanje en Portugal groeiden in de eerste maanden van het jaar veel harder dan de rest van de eurozone. ‘De wereld is complex, maar...
-- [Handen in de lucht voor meer staatssteun](https://fd.nl/bedrijfsleven/1596634/handen-in-de-lucht-voor-meer-staatssteun)
-  > Staatssteun heeft een slecht imago, maar dat verandert, merken experts. Organisatoren van het jaarlijkse Staatssteuncongres werden bestookt met de...
-- [Luisterverhaal: Kazen onder je bed en altijd geld tekort: de harde strijd om de grootste te worden](https://fd.nl/samenleving/1596809/luisterverhaal-kazen-onder-je-bed-en-altijd-geld-tekort-de-harde-strijd-om-de-grootste-te-worden)
-  > Deze week hoor je hoe Vergeer Holland zich staande houdt in de harde kaas-business.
-- [ASML gaat machines leveren aan eerste chipfabriek van India](https://fd.nl/bedrijfsleven/1596954/asml-gaat-machines-leveren-aan-eerste-chipfabriek-van-india)
-  > De chipmachineproducent tekent een intentie-overeenkomst om samen te werken met het Indiase Tata Electronics. De ondertekening vond plaats tijdens...
+- [Funderingsschade, scheuren in muren en ondergelopen kelders: Limburgers kampen met oprukkend grondwater](https://fd.nl/samenleving/1595685/funderingsschade-scheuren-in-muren-en-ondergelopen-kelders-limburgers-kampen-met-oprukkend-grondwater)
+  > Inwoners van het Geulmondgebied hebben last van stijgend grondwater. De lokale overheid wijst naar klimaatverandering, maar daar denken burgers en...
+- [‘Vrachttarieven in de Golfregio rijzen de pan uit’](https://fd.nl/bedrijfsleven/1596843/vrachttarieven-in-de-golfregio-rijzen-de-pan-uit)
+  > Voor het vervoer van een standaard zeecontainer via land zijn opdrachtgevers duizenden dollars meer kwijt.
+- [Prodrive in Eindhoven gaat chips voor Amsterdams Fortaegis assembleren: ‘Europese partner was voorwaarde’](https://fd.nl/bedrijfsleven/1596882/prodrive-in-eindhoven-gaat-chips-voor-amsterdams-fortaegis-assembleren-europese-partner-was-voorwaarde)
+  > De toeleverancier van ASML doet ook mee in een nieuwe financieringsronde van de Amsterdamse chipontwikkelaar.
+- [Rusland meldt dodelijke slachtoffers bij droneaanvallen op Moskou](https://fd.nl/politiek/1596957/rusland-meldt-dodelijke-slachtoffers-bij-droneaanvallen-op-moskou)
+  > Grootste aanval van Oekraïne op Russische hoofdstad en andere regio’s in meer dan een jaar.
+- [Duits oliestadje zet stap richting de toekomst, het hier en nu blijft onzeker](https://fd.nl/bedrijfsleven/1596737/duits-oliestadje-zet-stap-richting-de-toekomst-het-hier-en-nu-blijft-onzeker)
+  > Duitsland probeert de onzekerheid over leverantie van ruwe olie aan de PCK-raffinaderij in Schwedt weg te nemen via een deal met Polen.
 
 ### Meest gelezen
 
