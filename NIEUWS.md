@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-05-2026 om 20:58*
+*Laatst bijgewerkt: 17-05-2026 om 22:01*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [PSG verliest opnieuw van buurman Paris FC, boze fans het veld op bij Nantes en Nice](https://www.ad.nl/voetbal/psg-verliest-opnieuw-van-buurman-paris-fc-boze-fans-het-veld-op-bij-nantes-en-nice~a7aaac0e/)
+  > Het kleine Paris FC heeft in de laatste speelronde voor een stunt gezorgd door landskampioen Paris Saint-Germain te verslaan. In het Stade Jean-Bouin...
 - [Voetbalpodcast | ‘Anthony Correia is de trainer van dit seizoen voor mij’](https://www.ad.nl/voetbal/voetbalpodcast-anthony-correia-is-de-trainer-van-dit-seizoen-voor-mij~a42af5cd9/)
   > De slotronde van de Eredivisie bracht voldoende spektakel en voor menig supporter nog voldoening. De laatste tickets werden verdeeld. NEC mag...
 - [Woede om opgedoken video: kinderen halen zeldzame dolfijn uit rivier om mee te poseren](https://www.ad.nl/buitenland/woede-om-opgedoken-video-kinderen-halen-zeldzame-dolfijn-uit-rivier-om-mee-te-poseren~a306389a/)
@@ -35,8 +37,6 @@
   > Waar we dachten aan een dag voor de vluchters, was het vandaag toch gewoon voor de favorieten in de Giro d'Italia. Hoewel Giulio Ciccone er alles aan...
 - [Vier mensen, onder wie een kind, naar ziekenhuis na koolmonoxidevergiftiging in woning in Kaatsheuvel](https://www.ad.nl/binnenland/vier-mensen-onder-wie-een-kind-naar-ziekenhuis-na-koolmonoxidevergiftiging-in-woning-in-kaatsheuvel~a801d7a6/)
   > Meerdere mensen, onder wie een kind, zijn zondagavond onwel geworden in een huis aan het Ferdinand Bolplein in Kaatsheuvel. Dit komt vermoedelijk...
-- [Kinderen lezen niet, omdat hun ouders dat ook niet doen](https://www.ad.nl/binnenland/kinderen-lezen-niet-omdat-hun-ouders-dat-ook-niet-doen~a59e2f57/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 
 ### Meest gelezen
 
