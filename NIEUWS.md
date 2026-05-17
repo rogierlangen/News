@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-05-2026 om 22:01*
+*Laatst bijgewerkt: 17-05-2026 om 23:59*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [PSG verliest opnieuw van buurman Paris FC, boze fans het veld op bij Nantes en Nice](https://www.ad.nl/voetbal/psg-verliest-opnieuw-van-buurman-paris-fc-boze-fans-het-veld-op-bij-nantes-en-nice~a7aaac0e/)
+- [Vrouw omgekomen na aanval van kudde koeien in Tirol, man zwaargewond](https://www.ad.nl/buitenland/vrouw-omgekomen-na-aanval-van-kudde-koeien-in-tirol-man-zwaargewond~af0bdd50/)
+  > In Oostenrijk is een vrouw om het leven gekomen na te zijn vertrapt door een kudde koeien. De 67-jarige vrouw was aan het wandelen met haar...
+- [Zes aanhoudingen na schietpartij in Capelle aan den IJssel](https://www.ad.nl/binnenland/zes-aanhoudingen-na-schietpartij-in-capelle-aan-den-ijssel~a2a01bdd/)
+  > De politie heeft zes mensen aangehouden in Capelle aan den IJssel. Dit gebeurde nadat er in de nacht van zondag op maandag was geschoten tijdens een...
+- [Pas ontdekt en straks al ‘rakelings’ langs de aarde: zo kun je asteroïde 2026 JH2 volgen](https://www.ad.nl/wetenschap/pas-ontdekt-en-straks-al-rakelings-langs-de-aarde-zo-kun-je-asteroide-2026-jh2-volgen~a7bed16f/)
+  > Hij is zo groot als een basketbalveld, raast met een snelheid van 32.000 kilometer per uur door het zonnestelsel en bleef tot ruim een week geleden...
+- [Vliegshow eindigt met botsing tussen twee straaljagers: vier inzittenden met de schrik vrij](https://www.ad.nl/buitenland/vliegshow-eindigt-met-botsing-tussen-twee-straaljagers-vier-inzittenden-met-de-schrik-vrij~a7a91b9f/)
+  > Hulpdiensten zijn zondag massaal uitgerukt naar een militaire basis in het westen van de Amerikaanse staat Idaho, nadat daar twee straaljagers op...
+- [PSG verliest op 44 meter van het eigen stadion, boze fans rennen het veld op bij Nice en Nantes](https://www.ad.nl/voetbal/psg-verliest-op-44-meter-van-het-eigen-stadion-boze-fans-rennen-het-veld-op-bij-nice-en-nantes~a7aaac0e/)
   > Het kleine Paris FC heeft in de laatste speelronde voor een stunt gezorgd door landskampioen Paris Saint-Germain te verslaan. In het Stade Jean-Bouin...
-- [Voetbalpodcast | ‘Anthony Correia is de trainer van dit seizoen voor mij’](https://www.ad.nl/voetbal/voetbalpodcast-anthony-correia-is-de-trainer-van-dit-seizoen-voor-mij~a42af5cd9/)
-  > De slotronde van de Eredivisie bracht voldoende spektakel en voor menig supporter nog voldoening. De laatste tickets werden verdeeld. NEC mag...
-- [Woede om opgedoken video: kinderen halen zeldzame dolfijn uit rivier om mee te poseren](https://www.ad.nl/buitenland/woede-om-opgedoken-video-kinderen-halen-zeldzame-dolfijn-uit-rivier-om-mee-te-poseren~a306389a/)
-  > Het dier wordt met uitsterven bedreigd, maar dat weerhield kinderen in India er niet van een zeldzame dolfijn uit de rivier de Ganges te vangen. Het...
-- [Podcast In Het Wiel | ‘Giulio Ciccone heeft een leeuwenhart, het is grinta op zijn mooist’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-giulio-ciccone-heeft-een-leeuwenhart-het-is-grinta-op-zijn-mooist~a5ea502e/)
-  > Waar we dachten aan een dag voor de vluchters, was het vandaag toch gewoon voor de favorieten in de Giro d'Italia. Hoewel Giulio Ciccone er alles aan...
-- [Vier mensen, onder wie een kind, naar ziekenhuis na koolmonoxidevergiftiging in woning in Kaatsheuvel](https://www.ad.nl/binnenland/vier-mensen-onder-wie-een-kind-naar-ziekenhuis-na-koolmonoxidevergiftiging-in-woning-in-kaatsheuvel~a801d7a6/)
-  > Meerdere mensen, onder wie een kind, zijn zondagavond onwel geworden in een huis aan het Ferdinand Bolplein in Kaatsheuvel. Dit komt vermoedelijk...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaanse speciale gezant landt op Groenland](https://fd.nl/politiek/1596848/amerikaanse-speciale-gezant-landt-op-groenland)
-  > Jeff Landry zal naar verwachting het congres 'Future Greenland' bijwonen.
-- [Groeistuipen in cultuursector](https://fd.nl/opinie/1596808/groeistuipen-in-cultuursector)
-  > Conflicten in het Fotomuseum en het Noordbrabants Museum hebben geleid tot discussie over de positie van bestuurders.
-- [Trage vulling gasbergingen dreigt leveringszekerheid en gasprijs in de winter te raken](https://fd.nl/bedrijfsleven/1596806/trage-vulling-gasbergingen-dreigt-leveringszekerheid-en-gasprijs-in-de-winter-te-raken)
-  > Als het vultempo niet snel omhooggaat, moet het kabinet ingrijpen, vindt de Gasunie.
-- [Britse verzekeraar Prudential koopt meerderheidsbelang Indiase Bharti Life](https://fd.nl/bedrijfsleven/1596959/britse-verzekeraar-prudential-koopt-meerderheidsbelang-indiase-bharti-life)
-  > Prudential hoopt met de overname de enorme, onverzekerde middenklasse in India aan te boren.
-- [Venezuela begint aan een van de grootste schuldsaneringen ooit](https://fd.nl/economie/1596813/venezuela-begint-aan-een-van-de-grootste-schuldsaneringen-ooit)
-  > Venezuela wil af van zijn schuldenberg van ruim $150 mrd om weer toegang te krijgen tot internationale financiering.
+- [Wirwar aan regels belemmert bouwers om kwetsbare werknemers aan werkplek te helpen](https://fd.nl/bedrijfsleven/1596883/wirwar-aan-regels-belemmert-bouwers-om-kwetsbare-werknemers-aan-werkplek-te-helpen)
+  > Bouwers stuiten op een lappendeken aan regels bij de plaatsing van mensen die moeite hebben een baan te vinden. Zij willen dat het ministerie van SZW...
+- [Net als de Britten](https://fd.nl/opinie/1596845/net-als-de-britten)
+  > Is ons land nog wel bestuurbaar? In het Verenigd Koninkrijk is dat de vraag van de dag. Het land wisselt sneller van premier dan een voetbalclub van...
+- [Aandelen groene energie in trek door Iran-oorlog en hoge stroombehoefte van datacenters](https://fd.nl/financiele-markten/1596618/aandelen-groene-energie-in-trek-door-iran-oorlog-en-hoge-stroombehoefte-van-datacenters)
+  > Niet alleen oliebedrijven profiteren van dreigende energietekorten en hoge olieprijzen, ook bedrijven in duurzame energie zitten in de lift sinds het...
+- [AI-beloftes zorgen voor valse hoop bij patiënten – maar bij de fabrikant is het kassa](https://fd.nl/opinie/1596181/valse-hoop-voor-patienten-en-kassa-voor-de-fabrikant)
+  > In de ‘hype cycle’ van nieuwe technologie wil iedereen wel meedoen – waaronder uiteraard ook de zorg. Maar is AI embryo’s laten selecteren nu...
+- [Personalia maandag 18 mei](https://fd.nl/bedrijfsleven/1596812/personalia-maandag-18-mei)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
