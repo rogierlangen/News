@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-05-2026 om 23:59*
+*Laatst bijgewerkt: 18-05-2026 om 04:36*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Gewonden bij Russische aanvallen op Odesa en Dnipro](https://nos.nl/l/2614770)
+  > Bij Russische raket- en drone-aanvallen op de Oekraïense steden Odesa en Dnipro zijn volgens de Oekraïense autoriteiten vannacht minstens elf mensen...
+- [Doden bij aardbeving in zuidelijke Chinese regio Guangxi](https://nos.nl/l/2614769)
+  > Bij een aardbeving in de zuidelijke Chinese regio Guangxi zijn zeker twee mensen om het leven gekomen. Minstens één persoon wordt nog vermist en vier...
+- [Amerikaanse tieners aangehouden voor willekeurige beschietingen met vier slachtoffers](https://nos.nl/l/2614768)
+  > In de Amerikaanse stad Austin zijn twee tieners aangehouden voor zeker tien willekeurige beschietingen. Daarbij raakten vier mensen gewond, onder wie...
+- [Amnesty: vorig jaar wereldwijd hoogste aantal executies in 44 jaar](https://nos.nl/l/2614767)
+  > Wereldwijd zijn niet eerder zoveel mensen geëxecuteerd als afgelopen jaar. In zeventien landen waren het in totaal 2707 mensen, een stijging van 78...
 - [Twee gevechtsvliegtuigen neergestort na botsing tijdens luchtshow in VS](https://nos.nl/l/2614753)
   > Twee gevechtsvliegtuigen zijn in de Amerikaanse staat Idaho in de lucht tegen elkaar gebotst. De vier bemanningsleden konden zich met de schietstoel...
-- [Artiesten Brussels Pride mishandeld op straat: 'Aangevallen omdat ik homo ben'](https://nos.nl/l/2614751)
-  > In België hebben drie artiesten laten weten te zijn mishandeld nadat ze hadden opgetreden op Brussels Pride. Ze zeggen te zijn aangevallen door een...
-- [Mars in Tsjechië voor behoud publieke omroep: ‘Willen geen Hongarije worden’](https://nos.nl/l/2614747)
-  > In Tsjechië hebben duizenden mensen geprotesteerd tegen geplande hervormingen van de publieke omroep. De regering van de populistische premier Babis...
-- [Vrouw (67) overleden na koeienaanval in Oostenrijk, man zwaargewond](https://nos.nl/l/2614745)
-  > Bij een aanval van een kudde koeien in een weide in Oostenrijk is vanmiddag een 67-jarige vrouw overleden. Haar 65-jarige echtgenoot is zwaargewond...
-- [Franse erfgoedwet doet door Nederlander gerund oorlogsmuseum de das om](https://nos.nl/l/2614743)
-  > Na twintig jaar valt het doek voor Romagne 14-18, de omvangrijke privécollectie van de Nederlandse Fransman Jean-Paul de Vries. Door strengere...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Vrouw omgekomen na aanval van kudde koeien in Tirol, man zwaargewond](https://www.ad.nl/buitenland/vrouw-omgekomen-na-aanval-van-kudde-koeien-in-tirol-man-zwaargewond~af0bdd50/)
-  > In Oostenrijk is een vrouw om het leven gekomen na te zijn vertrapt door een kudde koeien. De 67-jarige vrouw was aan het wandelen met haar...
-- [Zes aanhoudingen na schietpartij in Capelle aan den IJssel](https://www.ad.nl/binnenland/zes-aanhoudingen-na-schietpartij-in-capelle-aan-den-ijssel~a2a01bdd/)
-  > De politie heeft zes mensen aangehouden in Capelle aan den IJssel. Dit gebeurde nadat er in de nacht van zondag op maandag was geschoten tijdens een...
-- [Pas ontdekt en straks al ‘rakelings’ langs de aarde: zo kun je asteroïde 2026 JH2 volgen](https://www.ad.nl/wetenschap/pas-ontdekt-en-straks-al-rakelings-langs-de-aarde-zo-kun-je-asteroide-2026-jh2-volgen~a7bed16f/)
-  > Hij is zo groot als een basketbalveld, raast met een snelheid van 32.000 kilometer per uur door het zonnestelsel en bleef tot ruim een week geleden...
-- [Vliegshow eindigt met botsing tussen twee straaljagers: vier inzittenden met de schrik vrij](https://www.ad.nl/buitenland/vliegshow-eindigt-met-botsing-tussen-twee-straaljagers-vier-inzittenden-met-de-schrik-vrij~a7a91b9f/)
-  > Hulpdiensten zijn zondag massaal uitgerukt naar een militaire basis in het westen van de Amerikaanse staat Idaho, nadat daar twee straaljagers op...
-- [PSG verliest op 44 meter van het eigen stadion, boze fans rennen het veld op bij Nice en Nantes](https://www.ad.nl/voetbal/psg-verliest-op-44-meter-van-het-eigen-stadion-boze-fans-rennen-het-veld-op-bij-nice-en-nantes~a7aaac0e/)
-  > Het kleine Paris FC heeft in de laatste speelronde voor een stunt gezorgd door landskampioen Paris Saint-Germain te verslaan. In het Stade Jean-Bouin...
+- [‘Beste occasion ooit’ nu volop te koop voor minder dan 3000 euro](https://www.ad.nl/auto/beste-occasion-ooit-nu-volop-te-koop-voor-minder-dan-3000-euro~a9545caf/)
+  > Een auto met zeven zitplaatsen, enorm veel binnenruimte en een zeer goede wegligging wordt al lange tijd ten onrechte genegeerd door potentiële...
+- [Nog 25 dagen tot start WK: Memphis Depay ontbreekt opnieuw in selectie Corinthians](https://www.ad.nl/wk-voetbal/nog-25-dagen-tot-start-wk-memphis-depay-ontbreekt-opnieuw-in-selectie-corinthians~ac15bae7/)
+  > Corinthians heeft zonder Memphis Depay met 3-1 verloren van Botafogo. De Nederlandse spits ontbrak, net als in de vorige competitiewedstrijden, bij...
+- [Radeloos probeert Chris met speciale lijm afgebroken tand te plakken: alles beter dan bezoekje aan tandarts](https://www.ad.nl/binnenland/radeloos-probeert-chris-met-speciale-lijm-afgebroken-tand-te-plakken-alles-beter-dan-bezoekje-aan-tandarts~ad7780ff/)
+  > Op een middag breekt de kunsttand van Chris (50)* af. Dikke paniek, want uit chronische angst voor de tandarts durft hij daar niet aan te kloppen....
+- [Vermoedelijk oudste hond ter wereld overleden maand na adoptie: ‘Ik wilde niet dat hij stierf in het asiel’](https://www.ad.nl/buitenland/vermoedelijk-oudste-hond-ter-wereld-overleden-maand-na-adoptie-ik-wilde-niet-dat-hij-stierf-in-het-asiel~ab2cc3ab/)
+  > De vermoedelijk oudste hond ter wereld is overleden. Het Franse hondje Lazare heeft de gezegende leeftijd van 30 jaar en 5 maanden bereikt. „Hij is...
+- [Gewonden en brand bij Russische luchtaanvallen op Oekraïense steden](https://www.ad.nl/buitenland/gewonden-en-brand-bij-russische-luchtaanvallen-op-oekraiense-steden~adfb97be/)
+  > De Oekraïense regio Odesa is vannacht getroffen door een Russische droneaanval. Daarbij zijn woongebouwen geraakt en raakten zeker negen mensen...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Nieuwe Nederlandse techbelofte:‘onhackbare’ chips](https://fd.nl/economie/1596945/nieuwe-nederlandse-techbelofte-onhackbare-chips)
+  > Vandaag in Dagkoers: gaat deze Nederlandse scale-up hoge ogen gooien op het wereldtoneel? Bouwers ergeren zich groen en geel aan alle regels rondom...
 - [Wirwar aan regels belemmert bouwers om kwetsbare werknemers aan werkplek te helpen](https://fd.nl/bedrijfsleven/1596883/wirwar-aan-regels-belemmert-bouwers-om-kwetsbare-werknemers-aan-werkplek-te-helpen)
   > Bouwers stuiten op een lappendeken aan regels bij de plaatsing van mensen die moeite hebben een baan te vinden. Zij willen dat het ministerie van SZW...
 - [Net als de Britten](https://fd.nl/opinie/1596845/net-als-de-britten)
@@ -54,8 +56,6 @@
   > Niet alleen oliebedrijven profiteren van dreigende energietekorten en hoge olieprijzen, ook bedrijven in duurzame energie zitten in de lift sinds het...
 - [AI-beloftes zorgen voor valse hoop bij patiënten – maar bij de fabrikant is het kassa](https://fd.nl/opinie/1596181/valse-hoop-voor-patienten-en-kassa-voor-de-fabrikant)
   > In de ‘hype cycle’ van nieuwe technologie wil iedereen wel meedoen – waaronder uiteraard ook de zorg. Maar is AI embryo’s laten selecteren nu...
-- [Personalia maandag 18 mei](https://fd.nl/bedrijfsleven/1596812/personalia-maandag-18-mei)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
