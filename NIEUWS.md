@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-05-2026 om 21:23*
+*Laatst bijgewerkt: 19-05-2026 om 23:06*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Oostenrijk verdenkt twee mensen van deelname aan 'snipersafari's' in Sarajevo](https://nos.nl/l/2615050)
+  > In Oostenrijk worden twee mensen ervan verdacht dat ze geld hebben betaald om burgers neer te schieten tijdens de Bosnische burgeroorlog. Het gaat om...
 - [Mensensmokkelaar gearresteerd in Iraaks Koerdistan na BBC-onderzoek](https://nos.nl/l/2615041)
   > Een 28-jarige man is in Iraaks Koerdistan gearresteerd op verdenking van mensensmokkel, meldt de BBC. De Britse omroep onthulde vorige week dat zijn...
 - [Aantal plekken waar flitspalen kunnen staan dit jaar verdubbeld](https://nos.nl/l/2615039)
@@ -16,8 +18,6 @@
   > De aanbevelingen die je krijgt voorgeschoteld op sociale media vormen een risico voor de democratie. Tot die weinig verrassende conclusie komt het...
 - [Kabinet gaat milieuonderzoek Schiphol op onderdelen opnieuw bekijken](https://nos.nl/l/2615035)
   > Het kabinet gaat het milieuonderzoek voor nieuwe regels voor Schiphol (opgenomen in het Luchtvaartbesluit) op onderdelen opnieuw bekijken. Dat zei...
-- [Voetbaltrainer filmde volgens OM honderden kinderen in kleedkamers](https://nos.nl/l/2615030)
-  > Een vorig jaar opgepakte voormalige voetbaltrainer uit Vlissingen heeft volgens justitie honderden kinderen gefilmd in de kleedkamers van Zeeuwse...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Onrust in Den Haag door pro-Palestina demonstratie: treinverkeer geblokkeerd en tientallen aanhoudingen](https://www.ad.nl/den-haag/onrust-in-den-haag-door-pro-palestina-demonstratie-treinverkeer-geblokkeerd-en-tientallen-aanhoudingen~a61c76aa/)
+  > Pro-Palestina demonstraties zorgden dinsdag voor de nodige onrust in Den Haag. Eerder op de middag werden al tientallen mensen aangehouden na een...
+- [Podium Harry Styles mogelijk aangepast na klachten van publiek over slecht zicht](https://www.ad.nl/show/podium-harry-styles-mogelijk-aangepast-na-klachten-van-publiek-over-slecht-zicht~a1f72a99/)
+  > Het team van Harry Styles gaat klachten over slecht zicht tijdens optredens van zijn tournee evalueren. Dat heeft een vertegenwoordiger van de tour...
+- [Voetbalpodcast | ‘De KNVB moet Pep altijd bellen’](https://www.ad.nl/voetbal/voetbalpodcast-de-knvb-moet-pep-altijd-bellen~a42af5cd9/)
+  > De supporters van FC Groningen mogen toch naar Volendam voor het duel met Ajax. Dat gebeurde na overleg tussen de burgemeester en de KNVB. Supporters...
 - [Luchtalarm moet vervangen worden door alternatief systeem](https://www.ad.nl/binnenland/luchtalarm-moet-vervangen-worden-door-alternatief-systeem~ad6d324b/)
   > Het luchtalarm dat in 2028 verdwijnt, moet worden vervangen door een alternatief systeem. Dat zei justitieminister David van Weel (VVD) dinsdag. Het...
-- [Het blijft bibberen voor Spurs na nederlaag bij Chelsea, alles komt aan op laatste speelronde om degradatie te voorkomen](https://www.ad.nl/voetbal/het-blijft-bibberen-voor-spurs-na-nederlaag-bij-chelsea-alles-komt-aan-op-laatste-speelronde-om-degradatie-te-voorkomen~a730c4f7/)
-  > Voor Tottenham komt het in de strijd tegen degradatie aan op de laatste speelronde. Op bezoek bij Chelsea ging de ploeg van Roberto de Zerbi met 2-1...
-- [Arsenal weer kampioen: ploeg van Arteta breekt met oude filosofie en wint met kracht en standaardsituaties](https://www.ad.nl/voetbal/arsenal-weer-kampioen-ploeg-van-arteta-breekt-met-oude-filosofie-en-wint-met-kracht-en-standaardsituaties~ae6db4b7/)
-  > Arsenal heeft voor het eerst sinds 2004 de Premier League gewonnen. Door de puriteinse identiteit van zich af te schudden, kan de club zich na 22...
-- [Feest voor Arsenal: Gunners pakken eerste landstitel in 22 jaar na puntenverlies Manchester City](https://www.ad.nl/voetbal/feest-voor-arsenal-gunners-pakken-eerste-landstitel-in-22-jaar-na-puntenverlies-manchester-city~a000ef08/)
-  > Arsenal is voor het eerst sinds 2004 kampioen van Engeland geworden. De ploeg van trainer Mikel Arteta mag de champagne ontkurken omdat Manchester...
-- [Anouk Koevermans redt het niet in kwalificaties, umpire moet ruziënde tennissers uit elkaar halen](https://www.ad.nl/tennis/anouk-koevermans-redt-het-niet-in-kwalificaties-umpire-moet-ruziende-tennissers-uit-elkaar-halen~a924961f/)
-  > De tweede Grand Slam van het jaar gaat bijna van start. Van 25 mei tot 7 juni strijden de beste tennissers ter wereld op het gravel van Parijs om de...
+- [Spurs blijft in degradatiezorgen na verlies bij Chelsea, laatste duel met Everton wordt beslissend](https://www.ad.nl/voetbal/spurs-blijft-in-degradatiezorgen-na-verlies-bij-chelsea-laatste-duel-met-everton-wordt-beslissend~a730c4f7/)
+  > Voor Tottenham Hotspur komt het in de strijd tegen degradatie aan op de laatste speelronde. Op bezoek bij Chelsea ging de ploeg van Roberto de Zerbi...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Hoge rente op staatsobligaties leidt tot rode cijfers op Wall Street](https://fd.nl/bedrijfsleven/1597218/hoge-rente-op-staatsobligaties-leidt-tot-rode-cijfers-op-wall-street)
-  > Aanhoudende zorgen over inflatie, hoge olieprijzen en de angst voor renteverhogingen zorgden voor terughoudendheid bij beleggers.
-- [Senaat breekt zich nog het hoofd over belasten papieren winsten in box 3](https://fd.nl/politiek/1597043/senaat-breekt-zich-nog-het-hoofd-over-belasten-papieren-winsten-in-box-3)
-  > Het is dé angel in de discussie over het wetsvoorstel voor de nieuwe box 3: het jaarlijks belasten van papieren winsten van beleggers. De Eerste...
-- [Kamer worstelt met besluit over Schiphol, Karremans wil ‘uit het moeras’](https://fd.nl/economie/1597054/kamer-worstelt-met-besluit-over-schiphol-karremans-wil-uit-het-moeras)
-  > Het Luchthavenverkeerbesluit is belangrijk voor Schiphol én omwonenden, maar er is ook kritiek.
-- [‘Menselijke maat’ nodig om langdurig werklozen aan baan te helpen](https://fd.nl/samenleving/1597124/menselijke-maat-nodig-om-langdurig-werklozen-aan-baan-te-helpen)
-  > Rotterdams burgerberaad komt met adviezen om stadgenoten die al lange tijd thuiszitten, weer aan de
-- [Medeoprichter van OpenAI stapt over naar Anthropic](https://fd.nl/bedrijfsleven/1597053/medeoprichter-van-openai-stapt-over-naar-anthropic)
-  > Andrej Karpathy is een grote naam in de AI-sector. Hij heeft een groot online gevolg vanwege zijn technische uitlegvideo’s op sociale media.
+- [VS waarschuwen voor ‘koude winter’ als Brussel vasthoudt aan methaanregels](https://fd.nl/economie/1597039/vs-waarschuwen-voor-koude-winter-als-brussel-vasthoudt-aan-methaanregels)
+  > De Amerikaanse ambassadeur Andrew Puzder waarschuwt voor Europese energietekorten als gevolg van een nieuwe EU-verordening die een...
+- [Nederlandse grootbanken maken cryptodraai en steunen Europese stablecoin](https://fd.nl/financiele-markten/1596988/nederlandse-grootbanken-maken-cryptodraai-en-steunen-europese-stablecoin)
+  > Het is een opvallende stap van de banken. Ze hielden jarenlang grote afstand van de cryptosector, omdat die bol staat van de fraude en speculatie.
+- [Verspild vakantiegeld](https://fd.nl/opinie/1597189/verspild-vakantiegeld)
+  > Ik gun iedere oudere een pleziertje, maar ik had niet het idee: meer vakantiegeld voor ouderen, dat is precies waar de overheid in deze karige tijden...
+- [‘Europa heeft energie nodig. Er bestaan geen energiearme, welvarende landen’](https://fd.nl/economie/1597185/europa-heeft-energie-nodig-er-bestaan-geen-energiearme-welvarende-landen)
+  > Europa moet zich niet blindstaren op de energietransitie, vinden de Amerikaanse ambassadeurs Andrew Puzder en Joe Popolo. ‘Je hebt energie nodig uit...
+- [Amsterdam en Eindhoven beginnen vrijage op techgebied](https://fd.nl/tech-en-innovatie/1597183/amsterdam-en-eindhoven-beginnen-vrijage-op-techgebied)
+  > De regio Amsterdam en Brainport Eindhoven gaan nauwer samenwerken om niet achterop te raken in Europa. Een van de voorstellen is een AI-lab van...
 
 ### Meest gelezen
 
