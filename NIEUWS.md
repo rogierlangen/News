@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-05-2026 om 05:04*
+*Laatst bijgewerkt: 19-05-2026 om 09:54*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Twee vrouwen zeggen verkracht te zijn tijdens opnames Married at First Sight UK](https://nos.nl/l/2614938)
-  > Twee vrouwelijke deelnemers aan Married at First Sight UK zeggen tegen de BBC dat ze verkracht zijn tijdens de opnames van het tv-programma. Channel...
-- [Vrees voor nog meer drukte in Ter Apel vanaf volgende maand](https://nos.nl/l/2614937)
-  > De druk op Ter Apel zal volgende maand flink toenemen, vrezen betrokkenen in de asielketen. Ze zijn bang voor chaotische situaties, vooral omdat...
-- [Wekdienst 19/5: Eerste Kamer over migratiepact • Uitspraak in zaak langst gedetineerde Nederlander](https://nos.nl/l/2614936)
-  > Goedemorgen! De Eerste Kamer vergadert vandaag over het migratiepact, de rechtbank oordeelt over de resterende straf van Jaitsen Singh en in Syrië...
-- ['Vrije en geïnformeerde meningsvorming onder druk door sociale media'](https://nos.nl/l/2614935)
-  > Mensen kunnen minder goed een vrije en geïnformeerde mening vormen door sociale media en hun feeds. Dat is in strijd met het publieke belang,...
-- ['Overheid laks met controle van arbeidsomstandigheden sekswerkers'](https://nos.nl/l/2614934)
-  > De overheid ziet onvoldoende toe op de arbeidsomstandigheden van sekswerkers, meldt Sekswerk Meld- en Adviespunt (SMAP) van Soa Aids Nederland....
+- [Aanhouding van Nederlander op Ibiza leidt naar grote drugsvondst in Rotterdam](https://nos.nl/l/2614961)
+  > In Rotterdam heeft de politie een grote hoeveelheid drugs en grondstoffen voor synthetische drugs aangetroffen in een loods. Dat gebeurde na een...
+- [Automobilisten houden zich niet aan 30 km/uur: 'Drempels en klinkers kunnen helpen'](https://nos.nl/l/2614957)
+  > Op wegen waar gemeenten de snelheidslimiet hebben verlaagd van 50 naar 30 km/uur rijden automobilisten vaak te hard. Uit onderzoek van Stichting...
+- [NL-Alert bij grote woningbrand in Scheemda](https://nos.nl/l/2614950)
+  > In een blok met vier rijtjeswoningen in Scheemda woedt een grote brand. Vanwege de rookontwikkeling is een NL-Alert verstuurd, waarin omwonenden...
+- [Tasmanië zegt sorry voor tentoonstellen lichaamsdelen zonder toestemming](https://nos.nl/l/2614947)
+  > De overheid van de Australische staat Tasmanië heeft haar excuses aangeboden voor het tentoonstellen van lichaamsdelen van overledenen, zonder dat...
+- [Drukte op Schiphol valt vooralsnog mee: 'business as usual'](https://nos.nl/l/2614945)
+  > Het is vanochtend druk op Schiphol, maar of het net zo druk wordt als gisteren, is nog niet te zeggen. Dat lijkt er voorlopig niet op, volgens een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Mediawaakhond wil dat kabinet ingrijpt: ‘Algoritmes sociale media bedreigen onze democratie’](https://www.ad.nl/tech/mediawaakhond-wil-dat-kabinet-ingrijpt-algoritmes-sociale-media-bedreigen-onze-democratie~aa983359/)
-  > De algoritmes van sociale media vormen een regelrechte bedreiging voor onze democratie, vindt het Commissariaat voor de Media (CvdM). Omdat platforms...
-- [Zonder klachten, toch laten prikken: duizenden Nederlanders ontdekken ineens dat hun waarden te hoog zijn](https://www.ad.nl/binnenland/zonder-klachten-toch-laten-prikken-duizenden-nederlanders-ontdekken-ineens-dat-hun-waarden-te-hoog-zijn~a6434f13/)
-  > Een bloeddrukmeter, een vingerprik en een kort gesprek over leefstijl. Meer is het niet. Toch trokken de Hartcheckpunten van de Hartstichting het...
-- [Succesvol bedrijf, maar ’s nachts ligt Elvan wakker van belastingaangifte: ‘Ik stel alles uit’](https://www.ad.nl/geld/succesvol-bedrijf-maar-s-nachts-ligt-elvan-wakker-van-belastingaangifte-ik-stel-alles-uit~a08efa8b/)
-  > Op Instagram lijkt het alsof Elvan (38) haar leven perfect op orde heeft. Ze ziet er altijd verzorgd uit. Mooie kleding. Leuke etentjes. Regelmatig...
-- [Henrik (6) vindt zwaard van meer dan 1000 jaar oud tijdens schoolreisje](https://www.ad.nl/buitenland/henrik-6-vindt-zwaard-van-meer-dan-1000-jaar-oud-tijdens-schoolreisje~aad55f3c/)
-  > De 6-jarige Henrik uit Noorwegen is de held van zijn klas. De jongen vond tijdens een schoolreisje een zwaard van meer dan duizend jaar oud. Het...
-- [Voorbeschouwing etappe 10 Giro d’Italia | Thymen Arensman op jacht naar podiumplek in lange tijdrit](https://www.ad.nl/giro/voorbeschouwing-etappe-10-giro-ditalia-thymen-arensman-op-jacht-naar-podiumplek-in-lange-tijdrit~ad74494c/)
-  > De Giro d’Italia gaat na de rustdag verder met de eerste tijdrit van de ronde. De renners leggen één voor één 42 kilometer af. Hier lees je meer over...
+- [FC Groningen-fans toch welkom in Volendam bij play-off tegen Ajax](https://www.ad.nl/voetbal/fc-groningen-fans-toch-welkom-in-volendam-bij-play-off-tegen-ajax~ae42f4e3/)
+  > In Volendam zijn donderdag toch uitsupporters welkom bij de play-offwedstrijd tussen Ajax en FC Groningen. Dat is de uitkomst van een overleg tussen...
+- [‘Corona’ keert terug naar Den Haag: parlementaire enquête zal verrassingen bevatten, zegt commissievoorzitter](https://www.ad.nl/politiek/corona-keert-terug-naar-den-haag-parlementaire-enquete-zal-verrassingen-bevatten-zegt-commissievoorzitter~afe445e7/)
+  > Vanaf volgende week beginnen de openbare verhoren van hoofdrolspelers uit de coronatijd, zoals Rutte, De Jonge en Van Dissel. Gaat de parlementaire...
+- [Humberto Tan en zoon Benjamin ‘fitter dan ooit’ op cover van Men’s Health: ‘Bij de start woog ik 92 kilo’](https://www.ad.nl/show/humberto-tan-en-zoon-benjamin-fitter-dan-ooit-op-cover-van-mens-health-bij-de-start-woog-ik-92-kilo~a9ea3d0a/)
+  > Humberto Tan en zijn zoon Benjamin  hebben zich twaalf weken lang in het zweet gewerkt om fitter dan ooit op de cover van Men’s Health te staan. En...
+- [Praat mee: nu er weer te laat is ingegrepen, is duidelijk dat jeugdzorg op de schop moet](https://www.ad.nl/praat-mee/praat-mee-nu-er-weer-te-laat-is-ingegrepen-is-duidelijk-dat-jeugdzorg-op-de-schop-moet~a629ddb5/)
+  > Na wéér een kindermishandelingszaak, nu in Stadskanaal, neemt nog geen instantie de verantwoordelijkheid voor wat er met de twee kinderen van 6 en 7...
+- [Jonas Vingegaard moet door inschattingsfout tijdritpak van organisatie dragen: ‘Over het hoofd gezien’](https://www.ad.nl/giro/jonas-vingegaard-moet-door-inschattingsfout-tijdritpak-van-organisatie-dragen-over-het-hoofd-gezien~abb96d0f/)
+  > Zijn ploeg Visma-Lease a Bike had het ideale tijdritpak voor kopman Jonas Vingegaard klaarliggen. De Deen kan vandaag namelijk met een sterke race...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Live: Zuid-Koreaanse Kospi doet stap terug, futures wijzen op lagere start Europa](https://fd.nl/financiele-markten/1597117/live-zuid-koreaanse-kospi-doet-stap-terug-futures-wijzen-op-lagere-start-europa)
-  > De beurzen in Azië maken een pas op de plaats en techaandelen leveren in. Op de obligatiemarkt is er in de ochtend sprake van rust. De futures op de...
-- [Hoe verhouden we ons tot het werk van kunstenaars die zich hebben misdragen?](https://fd.nl/samenleving/1596982/hoe-verhouden-we-ons-tot-het-werk-van-kunstenaars-die-zich-hebben-misdragen)
-  > Schrijver en filosoof Stefanie Gordin is een voorstander van cancelen. Cultuurtheoloog Frank Bosman wil het werk en de maker graag gescheiden houden.
-- [Stemmen de Republikeinen in Kentucky vandaag tegen Trump?](https://fd.nl/economie/1597088/stemmen-derepublikeinenin-kentucky-vandaag-tegen-trump)
-  > Vandaag in Dagkoers: Personeelstekorten vormen grote rem op Nederlandse MKB en wat kiezen Amerikanen in de voorverkiezingen voor de midterms?
-- [Recycling van plastic in Europa stagneert](https://fd.nl/bedrijfsleven/1596995/recycling-van-plastic-in-europa-stagneert)
-  > De verduurzaming van de sector is ernstig vertraagd, aldus een nieuwe analyse van de Europese plasticindustrie.
-- [Personalia dinsdag 19 mei](https://fd.nl/bedrijfsleven/1596987/personalia-dinsdag-19-mei)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Hema betaalt zelf mee aan overname door Jumbo-familie Van Eerd](https://fd.nl/bedrijfsleven/1597029/hema-betaalt-zelf-mee-aan-overname-door-jumbo-familie-van-eerd)
+  > Hema legde zelf €60 mln op tafel om de overname van Hema door de Jumbo-familie Van Eerd mogelijk te maken, blijkt uit de jaarcijfers. Hema boekte...
+- [Rondvaartschippers moeten bijscholen: ‘Schadelijk voor voortbestaan van sector’](https://fd.nl/bedrijfsleven/1596994/rondvaartschippers-moeten-bijscholen-schadelijk-voor-voortbestaan-van-sector)
+  > De rondvaartbootsector is verdeeld over nieuwe Europese regels voor schippers. ‘Onnodig en disproportioneel,’ zegt een ondernemer, terwijl een...
+- [Joris en de draak](https://fd.nl/financiele-markten/1597028/joris-en-de-draak)
+  > Op de radio en in podcasts vuurt Joris Luyendijk de ene na de andere onheilstijding op de luisteraar af. De oplettende belegger kan er twee klassieke...
+- [Beroep met geheimen](https://fd.nl/samenleving/1596975/beroep-met-geheimen)
+  > Femmetje de Wind begrijpt wel dat een spion na jaren geheimhouding alsnog zijn verhaal wil doen. Want als niemand weet wat je doet, bestaat het dan...
+- [IT-beveiliger Eset neemt Nederlandse vestiging over van Dave Maasland](https://fd.nl/bedrijfsleven/1596998/it-beveiliger-eset-neemt-nederlandse-vestiging-over-van-dave-maasland)
+  > Slowaakse IT-beveiligingsmultinational opent nieuwe kantoren in Nederland, Frankrijk en India.
 
 ### Meest gelezen
 
