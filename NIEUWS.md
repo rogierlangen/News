@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-05-2026 om 12:43*
+*Laatst bijgewerkt: 19-05-2026 om 16:24*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Zoon oprichter modeketen Mango verdacht van dood vader die van klif viel](https://nos.nl/l/2614982)
-  > De zoon van modemagnaat en oprichter van modeketen Mango, Isak Andic, is opgepakt in het onderzoek naar de dood van zijn vader. Andic overleed in...
-- [De heksennacht is terug, vrouwen op de bres tegen straatintimidatie](https://nos.nl/l/2614977)
-  > Voor het eerst sinds de jaren tachtig houdt Dolle Mina deze week overal in Nederland heksennachten. Vrouwen, maar ook mannen, lopen met fakkels door...
-- ['Meldingen kindermishandeling blijven te lang liggen bij Veilig Thuis, nog steeds'](https://nos.nl/l/2614974)
-  > Meldingen van kindermishandeling blijven te lang liggen bij meldpunt Veilig Thuis. Dat zeggen de Vereniging van Nederlandse Jeugdrechtadvocaten en de...
-- [Oekraïense droneaanvallen diep in Rusland, ook Russische droneaanvallen in Oekraïne](https://nos.nl/l/2614972)
-  > Rusland en Oekraïne hebben elkaar vannacht weer met drones aangevallen. Doelwit voor de Oekraïners was onder meer de regio Moskou. Oekraïense en...
-- [Celstraffen en boetes voor Jos Leijdekkers en handlangers om drugssmokkel België](https://nos.nl/l/2614971)
-  > Een Belgische rechtbank heeft de Nederlandse voortvluchtige drugscrimineel Jos Leijdekkers en negentien anderen celstraffen opgelegd van tussen de...
+- [Amsterdam deelt 2000 noodpakketten uit aan huishoudens met laag inkomen](https://nos.nl/l/2615013)
+  > De gemeente Amsterdam gaat 2000 noodpakketten uitdelen aan huishoudens met lage inkomens. Dat schrijven burgemeester Halsema en wethouder Groot...
+- [Honderden verwaarloosde dieren ontdekt in Roosendaal, eigenaar aangehouden](https://nos.nl/l/2615012)
+  > In de gemeente Roosendaal zijn deze week honderden verwaarloosde en enkele dode dieren gevonden. De eigenaar is aangehouden.
+        Iemand had bij...
+- [Hoge voedselprijzen dreigen door dure kunstmest, Brussel komt met steunplan](https://nos.nl/l/2615009)
+  > Boeren hebben last van stijgende kunstmestprijzen. Dat is niet alleen vervelend voor hen, maar het heeft ook effect op de voedselprijzen. Daarom...
+- [Schilderij van Pollock voor recordbedrag geveild in New York](https://nos.nl/l/2615006)
+  > Een vroeg schilderij van Jackson Pollock heeft een recordbedrag opgeleverd op een veiling in New York. Het werk Number 7A, 1948 werd gisteravond voor...
+- [Minister Van Weel: we werken aan alternatief voor sirenes](https://nos.nl/l/2615003)
+  > Als het sirenesysteem, in de volksmond het luchtalarm, vanaf 2028 verdwijnt, komt daar een alternatief voor in de plaats. Dat zegt minister Van Weel...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [China heeft in het geheim Russische militairen getraind, vooral in het gebruik van drones](https://www.ad.nl/buitenland/china-heeft-in-het-geheim-russische-militairen-getraind-vooral-in-het-gebruik-van-drones~a497c17a/)
-  > De Chinese strijdkrachten hebben eind vorig jaar in het geheim zo'n tweehonderd Russische militairen een training gegeven. Dat meldt persbureau...
-- [Navo-toestel haalt vermoedelijk Oekraïense drone neer in luchtruim Estland](https://www.ad.nl/buitenland/navo-toestel-haalt-vermoedelijk-oekraiense-drone-neer-in-luchtruim-estland~adfb97be/)
-  > Een Navo-toestel heeft dinsdag een drone neergehaald boven Ests grondgebied, meldt de minister van Defensie van Estland. Vermoedelijk gaat het om een...
-- [Weer een record voor Cristiano Ronaldo (41), die naar zijn zesde WK gaat met Portugal](https://www.ad.nl/wk-voetbal/weer-een-record-voor-cristiano-ronaldo-41-die-naar-zijn-zesde-wk-gaat-met-portugal~a95370c2/)
-  > Cristiano Ronaldo zit zoals verwacht in de WK-selectie van Portugal. Het wordt voor de 41-jarige aanvaller van Al-Nassr zijn zesde WK. Dat wordt een...
-- [Máxima kalmeert biggetje op Limburgse kloosterboerderij](https://www.ad.nl/show/maxima-kalmeert-biggetje-op-limburgse-kloosterboerderij~a9743a4a/)
-  > Een onrustig biggetje heeft dinsdag de aandacht getrokken van koning Willem-Alexander en koningin Máxima, die kloosterboerderij Livar in Echt...
-- [‘Rustig maar, opa is er nog!’: kleinkinderen zetten reddingsactie in gang na val in ravijn](https://www.ad.nl/binnenland/rustig-maar-opa-is-er-nog-kleinkinderen-zetten-reddingsactie-in-gang-na-val-in-ravijn~a489fb09/)
-  > Een beetje zwemmen, wandelen en lummelen: met dat idee gingen opa en oma Schoonbeek en hun twee kleinkinderen op vakantie in het zonnige Frankrijk....
+- [LIVE Midden-Oosten | Alle boten van hulpvloot voor Gaza door Israëlische militairen onderschept](https://www.ad.nl/buitenland/live-midden-oosten-alle-boten-van-hulpvloot-voor-gaza-door-israelische-militairen-onderschept~ac528ac3/)
+  > Alle boten van de Global Sumud Flotilla die onderweg naar Gaza waren, zijn door het Israëlische leger onderschept. De organisatie achter de hulpvloot...
+- [Van der Valk rouwt om dood Martin (16) bij ongeluk na familiefeest in België: ‘Bereidde zich voor op toekomst in hotellerie’](https://www.ad.nl/buitenland/van-der-valk-rouwt-om-dood-martin-16-bij-ongeluk-na-familiefeest-in-belgie-bereidde-zich-voor-op-toekomst-in-hotellerie~a3e9fc26/)
+  > In het Belgische dorp Brasschaat is vrijdagavond een Nederlandse Audi Q7 met vijf jongeren uit de bocht gevlogen en tegen een boom gebotst. Bij het...
+- [Alles wat je moet weten over Glory in Egypte: boksclash Rico Verhoeven voor 25 euro live te zien](https://www.ad.nl/vechtsport/alles-wat-je-moet-weten-over-glory-in-egypte-boksclash-rico-verhoeven-voor-25-euro-live-te-zien~a5c495e0/)
+  > Rico Verhoeven (37) maakt zich op voor het gevecht van zijn leven. De Nederlander staat zaterdag (niet eerder dan 22.00 uur Nederlandse tijd) in de...
+- [Imitator Gerard Joling leeft nu zelf van zingen: ‘Tanden bleken, zonnebankie pakken en verslavingen opdoen’](https://www.ad.nl/altena/imitator-gerard-joling-leeft-nu-zelf-van-zingen-tanden-bleken-zonnebankie-pakken-en-verslavingen-opdoen~a7d206e1/)
+  > Hij ging viraal met zijn impressie van Gerard Joling die bij de McDrive een bestelling plaatst. Menzo Kortland (34) zegde zijn baan bij Shownieuws op...
+- [Koningin als lotgenoot: verbinding door gezamenlijke pijn rond dementerend familielid](https://www.ad.nl/show/koningin-als-lotgenoot-verbinding-door-gezamenlijke-pijn-rond-dementerend-familielid~a5097fd1/)
+  > Mantelzorgers kregen een hart onder de riem gestoken door koningin Máxima, die zich tijdens een bezoek aan Limburg van haar menselijke kant liet...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Zoon van Mango-oprichter gearresteerd op verdenking van moord op zijn vader](https://fd.nl/bedrijfsleven/1597180/zoon-van-mango-oprichter-gearresteerd-op-verdenking-van-moord-op-zijn-vader)
-  > Isak Andic gleed eind 2024 een ravijn in en overleed. De zaak werd beschouwd als een ongeluk, maar bleef vraagtekens oproepen. Nu wordt vermoed dat...
-- [Aantal alleenstaanden in Europa schiet omhoog](https://fd.nl/samenleving/1597177/aantal-singles-in-europa-schiet-omhoog-gezinnen-krimpen)
-  > Vorig jaar bestond ruim 37% van de huishoudens in de Europese Unie uit alleenstaanden. In 2010 lag dat aandeel nog op amper 31%.
-- [Britse bank schrapt 8000 banen, zet stevig in op AI](https://fd.nl/economie/1597036/britse-bank-schrapt-8000-banen-zet-stevig-in-op-ai)
-  > Standard Chartered schrapt duizenden functies en zet vol in op kunstmatige intelligentie.
-- [Tencent is nu een ‘AI-loser’, maar verdient die bijnaam volgens analisten niet](https://fd.nl/financiele-markten/1596991/tencent-is-nu-een-ai-loser-maar-verdient-die-bijnaam-volgens-analisten-niet)
-  > Het aandeel van het Chinese techbedrijf zit sinds een aantal maanden in het slop. En dat doet ook op de Amsterdamse beurs pijn, bij Prosus.
-- [Voor een vitaal platteland is ‘mienskip’ onmisbaar](https://fd.nl/opinie/1596675/voor-een-vitaal-platteland-is-mienskip-onmisbaar)
-  > Een vitaal platteland vraagt meer dan huizen alleen. Zonder voorzieningen en sociale inbedding blijft de verhuizing van stad naar dorp voor veel...
+- [Schroders Capital neemt Nederlandse biobrandstoffenmaker over](https://fd.nl/bedrijfsleven/1597199/schroders-capital-neemt-nederlandse-biobrandstoffenmaker-over)
+  > APF Energy wordt volledig overgenomen van Franse investeerder SWEN en van APF BV.
+- [Vakbonden bezorgd over werkomstandigheden beveiligers op Schiphol](https://fd.nl/bedrijfsleven/1597178/vakbonden-bezorgd-over-beveiligers-op-schiphol-na-lange-rijen)
+  > Na een miljardenaanbesteding hebben 5000 beveiligers op Schiphol sinds maandag een nieuwe werkgever. Vakbonden zien veel kinderziektes.
+- [Swatch haalt gewild zakhorloge voorlopig uit de verkoop](https://fd.nl/bedrijfsleven/1597197/swatch-haalt-gewild-zakhorloge-voorlopig-uit-de-verkoop)
+  > Zaterdag sloten verschillende Swatch-winkels de deuren, nadat grote groepen klanten zich voor de filialen hadden verzameld.
+- [VEB haalt keihard uit naar ‘chanterende’ ex‑accountant](https://fd.nl/financiele-markten/1597193/veb-haalt-keihard-uit-naar-chanterende-exaccountant)
+  > Een hoogoplopend conflict tussen de Vereniging van Effectenbezitters en haar voormalige accountant domineerde dinsdag de ledenvergadering.
+- [Shell opnieuw onder vuur vanwege het klimaat, maar aandeelhoudersrevolte blijft uit](https://fd.nl/bedrijfsleven/1597182/shell-opnieuw-onder-vuur-vanwege-het-klimaat-maar-aandeelhoudersrevolte-blijft-uit)
+  > Een klimaatresolutie van aandeelhouderscollectief Follow This kreeg 13% van de vooraf uitgebrachte stemmen en haalde het dus niet.
 
 ### Meest gelezen
 
