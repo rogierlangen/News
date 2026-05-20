@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-05-2026 om 16:55*
+*Laatst bijgewerkt: 20-05-2026 om 19:29*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Noord- en Zuid-Korea spelen weer tegen elkaar, maar van toenadering is weinig sprake](https://nos.nl/l/2615165)
-  > Voor het eerst in acht jaar staan vandaag weer Noord- en Zuid-Koreaanse sportteams tegenover elkaar. De Zuid-Koreaanse vrouwen van voetbalclub Suwon...
-- [Duits echtpaar opgepakt dat mogelijk spioneerde voor China](https://nos.nl/l/2615162)
-  > De Duitse politie heeft een echtpaar uit München gearresteerd omdat de twee mogelijk voor China hebben gespioneerd. Het koppel zou zich onder meer...
-- ['Voormalige Cubaanse president Raúl Castro aangeklaagd in VS'](https://nos.nl/l/2615159)
-  > De voormalige Cubaanse president Raúl Castro is aangeklaagd in de Verenigde Staten, meldt persbureau Reuters op basis van een hoge functionaris...
-- [Doodstraf voor man die Pakistaanse TikTok-ster in haar eigen huis doodschoot](https://nos.nl/l/2615152)
-  > De man die vorig jaar juni in Pakistan de bekende influencer Sana Yousaf (17) doodschoot in haar ouderlijk huis is veroordeeld tot de doodstraf. De...
-- [Kamer wil renovatie Binnenhof beter in hand houden, minister wil 'uiterste best' doen](https://nos.nl/l/2615149)
-  > Minister Boekholt-O'Sullivan van Wonen wil voorkomen dat de renovatie van het Binnenhof nog duurder wordt en nog langer gaat duren. Maar zekerheid...
+- [Cel voor Oostenrijker die bij geheime dienst spioneerde voor Rusland](https://nos.nl/l/2615184)
+  > In Oostenrijk is een voormalig medewerker van de binnenlandse veiligheidsdienst veroordeeld tot ruim vier jaar cel voor spionage voor Rusland. De...
+- [In de rij voor Ter Apel: 'We hebben een probleem, maar komen morgen terug'](https://nos.nl/l/2615181)
+  > Elk uur stopt een bus bij het aanmeldcentrum voor asielzoekers in Ter Apel. Per bus stappen enkele mensen uit. Het ene uur zes, dan eens drie, dan...
+- [Amerika dreigt olie- en gaslevering aan Europa te stoppen vanwege klimaatregels](https://nos.nl/l/2615179)
+  > Een lange, koude en dure winter, dat staat Europa te wachten als het de strenge milieuregels voor fabrikanten van fossiele brandstoffen niet snel...
+- [Op zoek naar tweelingzusje van de aarde; telescoop bijna klaar voor lancering](https://nos.nl/l/2615178)
+  > De 'aardseplanetenjager' wordt hij genoemd. De nieuwe Europese ruimtetelescoop Plato wordt begin volgend jaar gelanceerd en vandaag was hij nog een...
+- [Europarlementariër Bas Eickhout (GL-PvdA) stopt, ongepaste relaties gehad](https://nos.nl/l/2615177)
+  > GroenLinks-PvdA Europarlementariër Bas Eickhout stopt. Eickhout verlaat het parlement mede omdat hij relaties heeft gehad die niet passen bij zijn...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Enerverende openingsfase in Tilburg: FC Volendam raakt paal, ook Willem II krijgt eerste kans](https://www.ad.nl/voetbal/enerverende-openingsfase-in-tilburg-fc-volendam-raakt-paal-ook-willem-ii-krijgt-eerste-kans~a00f882a/)
-  > FC Volendam verloor zondag met 1-2 van Telstar en werd veroordeeld tot de play-offs. Daarin is Willem II nu de tegenstander in de finale. Wie wint...
-- [Joey Veerman deelt mooi nieuws, Justin Kluivert krijgt zoen van zijn vader na rentree](https://www.ad.nl/wk-voetbal/joey-veerman-deelt-mooi-nieuws-justin-kluivert-krijgt-zoen-van-zijn-vader-na-rentree~ab988507/)
-  > De play-offs zijn deze week nog bezig en daarna gaat alle aandacht naar het WK in de Verenigde Staten, maar voor de meeste voetballers is nu de...
-- [Europarlementariër GL-PvdA stopt na 17 jaar, had ‘ongepaste relatie’ met 25-jarige Oostenrijkse](https://www.ad.nl/binnenland/europarlementarier-gl-pvda-stopt-na-17-jaar-had-ongepaste-relatie-met-25-jarige-oostenrijkse~a446197a/)
-  > Bas Eickhout (GroenLinks-PvdA) stopt na zeventien jaar als Europarlementariër. Hij doet dat deels om relaties in het verleden die ‘niet passen bij...
-- [Auto wordt rijdende thuisbatterij en kan zo energienota verlagen](https://www.ad.nl/auto/auto-wordt-rijdende-thuisbatterij-en-kan-zo-energienota-verlagen~a3278120f/)
-  > Automerken werken al jaren aan de techniek waarbij de auto een rijdende thuisbatterij wordt. Renault is nu de eerste en biedt de elektrische Renault...
-- [Dertig jaar na dato klaagt VS Cubaanse oud-leider Raúl Castro voor neerhalen humanitaire vliegtuigjes in Miami](https://www.ad.nl/buitenland/dertig-jaar-na-dato-klaagt-vs-cubaanse-oud-leider-raul-castro-voor-neerhalen-humanitaire-vliegtuigjes-in-miami~a349845d/)
-  > De Verenigde Staten hebben de Cubaanse oud-president Raúl Castro aangeklaagd, laat een functionaris van de regering-Trump weten aan persbureau...
+- [Zenderbaas zegt sorry na beschuldigingen over verkrachtingen Britse Married at First Sight](https://www.ad.nl/show/zenderbaas-zegt-sorry-na-beschuldigingen-over-verkrachtingen-britse-married-at-first-sight~aa85bf0c/)
+  > De topvrouw van de Britse televisiezender Channel 4 heeft haar excuses aangeboden naar aanleiding van berichten dat deelnemers aan de realityshow...
+- [Aston Villa en SC Freiburg krijgen kansen in openingsfase, ook al drie gele kaarten](https://www.ad.nl/voetbal/aston-villa-en-sc-freiburg-krijgen-kansen-in-openingsfase-ook-al-drie-gele-kaarten~ae4a81e2/)
+  > Aston Villa en SC Freiburg staan vanavond in Istanboel tegenover elkaar in de finale van de Europa League. De Spaanse succescoach Unai Emery jaagt...
+- [Tennissers protesteren op persdag om prijzengeld, De Jong en Lamens naar laatste kwalificatieronde](https://www.ad.nl/tennis/tennissers-protesteren-op-persdag-om-prijzengeld-de-jong-en-lamens-naar-laatste-kwalificatieronde~a924961f/)
+  > De tweede Grand Slam van het jaar gaat bijna van start. Van 25 mei tot 7 juni strijden de beste tennissers ter wereld op het gravel van Parijs om de...
+- [Podcast In Het Wiel | ‘Je mist toch een goede Nederlander in zo’n kopgroep’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-je-mist-toch-een-goede-nederlander-in-zon-kopgroep~a5ea502e/)
+  > Een hattrick voor Jhonatan Narváez in de Giro d’Italia. Als de Ecuadoraan in de kopgroep zit, is er voor de andere vluchters geen beginnen aan deze...
+- [Duco woont samen met zijn ex en haar nieuwe partner: ‘Soms is het confronterend’](https://www.ad.nl/mezza/duco-woont-samen-met-zijn-ex-en-haar-nieuwe-partner-soms-is-het-confronterend~afd223ca/)
+  > Duco (34) woont samen met zijn ex Ilse en haar nieuwe partner. ‘Tijdens een gezamenlijke vakantie ontstond onze droom om de meiden één thuis te...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘Dronefabrikant Destinus mikt op Amsterdamse beursnotering’](https://fd.nl/bedrijfsleven/1597376/dronefabrikant-destinus-mikt-op-amsterdamse-beursnotering)
-  > Het bedrijf uit Hengelo streeft naar een waardering van meer dan €5 mrd, aldus persbureau Bloomberg op basis van anonieme bronnen.
-- [Bouw Nederlandse marinefregatten loopt flinke vertraging op](https://fd.nl/politiek/1597478/bouw-nederlandse-marinefregatten-loopt-flinke-vertraging-op)
-  > De oplevering van het eerste nieuwe fregat voor onderzeebootbestrijding schuift op van aanvankelijk 2030 naar 2033. Daarnaast duurt de vervanging van...
-- [Europarlementariër Eickhout stapt op na ‘relaties die niet passen bij mijn rol’](https://fd.nl/politiek/1597490/europarlementarier-eickhout-stapt-op-na-relaties-die-niet-passen-bij-mijn-rol)
-  > De Pro-politicus zat sinds 2009 in het Europarlement. Vorige week werd bekend dat hij een relatie heeft met een Oostenrijkse collega.
-- [Voormalige goudmijn Wolters Kluwer is een zorgenkindje](https://fd.nl/financiele-markten/1597390/voormalig-goudmijn-wolters-kluwer-een-zorgenkindje)
-  > De opmars van AI voor advocaten hangt als een grote dreiging boven het informatieconcern met zijn databank. Want chatbots beantwoorden ook juridische...
-- [Minister Vijlbrief: belofte extra koopkracht in nieuwe pensioenstelsel heeft een prijs](https://fd.nl/financiele-markten/1597386/minister-vijlbrief-belofte-extra-koopkracht-in-nieuwe-pensioenstelsel-heeft-een-prijs)
-  > Gepensioneerden meer beschermen tegen inflatie gaat niet zonder kosten en risico’s, waarschuwt minister Hans Vijlbrief. Zoals een lager startpensioen...
+- [VS klagen voormalige Cubaanse president Raúl Castro aan voor moord](https://fd.nl/politiek/1597495/vs-klagen-voormalige-cubaanse-president-raul-castro-aan-voor-moord)
+  > Amerikaanse aanklagers hebben volgens CNN meer dan dertig jaar gewerkt aan de aanklacht.
+- [Olieprijs daalt op hoop dat er weer scheepsverkeer mogelijk is door de Straat van Hormuz](https://fd.nl/financiele-markten/1597395/olieprijs-daalt-op-hoop-dat-er-weer-scheepsverkeer-mogelijk-is-door-de-straat-van-hormuz)
+  > Drie supertankers zijn woensdag op weg naar Azië met de grootste hoeveelheid olie in één dag sinds het begin van de oorlog.
+- [Internationale afkeuring over behandeling Flotilla-activisten door Israël](https://fd.nl/politiek/1597494/internationale-afkeuring-over-behandeling-flotilla-activisten-door-israel)
+  > Premier Rob Jetten noemt de behandeling van de Flotilla-activisten ‘mensonterend’.
+- [‘OpenAI bereidt beursgang in september voor’](https://fd.nl/bedrijfsleven/1597394/openai-bereidt-beursgang-in-september-voor)
+  > De plannen van OpenAI komen twee dagen nadat het bedrijf een belangrijke rechtszaak won van Tesla-oprichter Elon Musk.
+- [Toezichthouder mist slagkracht om uitstoot snel aan banden te leggen](https://fd.nl/opinie/1597229/toezichthouder-mist-slagkracht-om-uitstoot-snel-aan-banden-te-leggen)
+  > Bijna de helft van de asfaltcentrales kreeg de afgelopen jaren voorlopige boetes opgelegd. Maar die hoefden ze lang niet allemaal te betalen.
 
 ### Meest gelezen
 
