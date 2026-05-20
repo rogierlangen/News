@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-05-2026 om 19:29*
+*Laatst bijgewerkt: 20-05-2026 om 21:59*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Verenigde Naties stemmen in: tegengaan klimaatverandering is juridische plicht](https://nos.nl/l/2615197)
+  > Een overweldigende meerderheid van de landen onderschrijft dat ze verplicht zijn om klimaatverandering tegen te gaan. Dat is de uitkomst van een...
+- [Archeoloog opgepakt omdat hij weigert botresten van musketier terug te geven](https://nos.nl/l/2615189)
+  > De vermoedelijke vondst van botten van de beroemde Franse musketier d'Artagnan in Maastricht heeft een bizarre nasleep gekregen. De archeoloog die...
+- [Stadskanaal vangt vannacht 50 tot 80 asielzoekers uit Ter Apel op](https://nos.nl/l/2615188)
+  > De gemeente Stadskanaal vangt vannacht vijftig tot tachtig asielzoekers op voor wie geen plek is in Ter Apel. "In Ter Apel dreigen mensen buiten te...
+- [Spookhaai en glazen worm: ruim 1100 nieuwe soorten ontdekt in zee](https://nos.nl/l/2615187)
+  > Onderzoekers hebben 1121 nieuwe diersoorten ontdekt die in het water leven. De organismen zijn het afgelopen jaar tijdens meerdere expedities in...
 - [Cel voor Oostenrijker die bij geheime dienst spioneerde voor Rusland](https://nos.nl/l/2615184)
   > In Oostenrijk is een voormalig medewerker van de binnenlandse veiligheidsdienst veroordeeld tot ruim vier jaar cel voor spionage voor Rusland. De...
-- [In de rij voor Ter Apel: 'We hebben een probleem, maar komen morgen terug'](https://nos.nl/l/2615181)
-  > Elk uur stopt een bus bij het aanmeldcentrum voor asielzoekers in Ter Apel. Per bus stappen enkele mensen uit. Het ene uur zes, dan eens drie, dan...
-- [Amerika dreigt olie- en gaslevering aan Europa te stoppen vanwege klimaatregels](https://nos.nl/l/2615179)
-  > Een lange, koude en dure winter, dat staat Europa te wachten als het de strenge milieuregels voor fabrikanten van fossiele brandstoffen niet snel...
-- [Op zoek naar tweelingzusje van de aarde; telescoop bijna klaar voor lancering](https://nos.nl/l/2615178)
-  > De 'aardseplanetenjager' wordt hij genoemd. De nieuwe Europese ruimtetelescoop Plato wordt begin volgend jaar gelanceerd en vandaag was hij nog een...
-- [Europarlementariër Bas Eickhout (GL-PvdA) stopt, ongepaste relaties gehad](https://nos.nl/l/2615177)
-  > GroenLinks-PvdA Europarlementariër Bas Eickhout stopt. Eickhout verlaat het parlement mede omdat hij relaties heeft gehad die niet passen bij zijn...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zenderbaas zegt sorry na beschuldigingen over verkrachtingen Britse Married at First Sight](https://www.ad.nl/show/zenderbaas-zegt-sorry-na-beschuldigingen-over-verkrachtingen-britse-married-at-first-sight~aa85bf0c/)
-  > De topvrouw van de Britse televisiezender Channel 4 heeft haar excuses aangeboden naar aanleiding van berichten dat deelnemers aan de realityshow...
-- [Aston Villa en SC Freiburg krijgen kansen in openingsfase, ook al drie gele kaarten](https://www.ad.nl/voetbal/aston-villa-en-sc-freiburg-krijgen-kansen-in-openingsfase-ook-al-drie-gele-kaarten~ae4a81e2/)
-  > Aston Villa en SC Freiburg staan vanavond in Istanboel tegenover elkaar in de finale van de Europa League. De Spaanse succescoach Unai Emery jaagt...
-- [Tennissers protesteren op persdag om prijzengeld, De Jong en Lamens naar laatste kwalificatieronde](https://www.ad.nl/tennis/tennissers-protesteren-op-persdag-om-prijzengeld-de-jong-en-lamens-naar-laatste-kwalificatieronde~a924961f/)
+- [Djokovic gaat samenwerken met oude bekende, tennissers protesteren op persdag om prijzengeld](https://www.ad.nl/tennis/djokovic-gaat-samenwerken-met-oude-bekende-tennissers-protesteren-op-persdag-om-prijzengeld~a924961f/)
   > De tweede Grand Slam van het jaar gaat bijna van start. Van 25 mei tot 7 juni strijden de beste tennissers ter wereld op het gravel van Parijs om de...
-- [Podcast In Het Wiel | ‘Je mist toch een goede Nederlander in zo’n kopgroep’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-je-mist-toch-een-goede-nederlander-in-zon-kopgroep~a5ea502e/)
-  > Een hattrick voor Jhonatan Narváez in de Giro d’Italia. Als de Ecuadoraan in de kopgroep zit, is er voor de andere vluchters geen beginnen aan deze...
-- [Duco woont samen met zijn ex en haar nieuwe partner: ‘Soms is het confronterend’](https://www.ad.nl/mezza/duco-woont-samen-met-zijn-ex-en-haar-nieuwe-partner-soms-is-het-confronterend~afd223ca/)
-  > Duco (34) woont samen met zijn ex Ilse en haar nieuwe partner. ‘Tijdens een gezamenlijke vakantie ontstond onze droom om de meiden één thuis te...
+- [Trump en Netanyahu botsen hard in ‘lang en dramatisch’ telefoongesprek: ‘Hij was woest’](https://www.ad.nl/buitenland/trump-en-netanyahu-botsen-hard-in-lang-en-dramatisch-telefoongesprek-hij-was-woest~abcf55f5/)
+  > De Amerikaanse president Donald Trump en de Israëlische premier Benjamin Netanyahu hebben deze week een zware aanvaring gehad over de oorlog in het...
+- [Southampton verliest beroep tegen zware sanctie na spionageschandaal: ‘Dit is buitenproportioneel’](https://www.ad.nl/voetbal/southampton-verliest-beroep-tegen-zware-sanctie-na-spionageschandaal-dit-is-buitenproportioneel~af1f2e7b/)
+  > Southampton is uit de play-offs om promotie naar de Premier League gezet, omdat de club Middlesbrough heeft bespioneerd voorafgaand aan de eerste...
+- [Glashard liegen op sollicitatie kost man al na 3 maanden zijn baan: ‘Onbegrijpelijk dat hij dit verzweeg’](https://www.ad.nl/binnenland/glashard-liegen-op-sollicitatie-kost-man-al-na-3-maanden-zijn-baan-onbegrijpelijk-dat-hij-dit-verzweeg~af321db2/)
+  > Mag je tijdens een sollicitatie liegen over je gezondheid, als je zwaar en gevaarlijk werk gaat doen? Een 46-jarige asbestinspecteur die zijn...
+- [Kans op verwondingen door nootjes Aldi en Albert Heijn, supermarkten roepen producten terug](https://www.ad.nl/economie/kans-op-verwondingen-door-nootjes-aldi-en-albert-heijn-supermarkten-roepen-producten-terug~a7e5c2877/)
+  > Supermarktketen ALDI roept bakjes met ongezouten cashewnoten terug omdat er mogelijk metaaldeeltjes in voorkomen. „Dit kan eventueel verwondingen...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Chiprally drijft de koersen op Wall Street op](https://fd.nl/financiele-markten/1597497/chiprally-drijft-de-koersen-op-wall-street-op)
+  > Beleggers hebben hoge verwachtingen van de kwartaalcijfers van Nvidia. De chipaandelen profiteren.
 - [VS klagen voormalige Cubaanse president Raúl Castro aan voor moord](https://fd.nl/politiek/1597495/vs-klagen-voormalige-cubaanse-president-raul-castro-aan-voor-moord)
   > Amerikaanse aanklagers hebben volgens CNN meer dan dertig jaar gewerkt aan de aanklacht.
 - [Olieprijs daalt op hoop dat er weer scheepsverkeer mogelijk is door de Straat van Hormuz](https://fd.nl/financiele-markten/1597395/olieprijs-daalt-op-hoop-dat-er-weer-scheepsverkeer-mogelijk-is-door-de-straat-van-hormuz)
@@ -54,8 +56,6 @@
   > Premier Rob Jetten noemt de behandeling van de Flotilla-activisten ‘mensonterend’.
 - [‘OpenAI bereidt beursgang in september voor’](https://fd.nl/bedrijfsleven/1597394/openai-bereidt-beursgang-in-september-voor)
   > De plannen van OpenAI komen twee dagen nadat het bedrijf een belangrijke rechtszaak won van Tesla-oprichter Elon Musk.
-- [Toezichthouder mist slagkracht om uitstoot snel aan banden te leggen](https://fd.nl/opinie/1597229/toezichthouder-mist-slagkracht-om-uitstoot-snel-aan-banden-te-leggen)
-  > Bijna de helft van de asfaltcentrales kreeg de afgelopen jaren voorlopige boetes opgelegd. Maar die hoefden ze lang niet allemaal te betalen.
 
 ### Meest gelezen
 
