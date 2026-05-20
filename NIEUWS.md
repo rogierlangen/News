@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-05-2026 om 10:55*
+*Laatst bijgewerkt: 20-05-2026 om 13:43*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Meerdere dieren dood door brand dierenpark Veenwouden](https://nos.nl/l/2615104)
-  > In het Friese Veenwouden is brand uitgebroken in een loods in dierenpark SanjesZoo. In de loods stonden meerdere dieren, waarvan slechts een aantal...
-- [Aantal ambtenaren groeit verder, terwijl kabinet eigenlijk fors wil bezuinigen](https://nos.nl/l/2615103)
-  > Hoewel opeenvolgende kabinetten willen bezuinigen op de overheid, is vorig jaar het aantal ambtenaren opnieuw gestegen. Een plan voor de lange...
-- [Organisaties eisen dat Meta stopt met verwijderen queer accounts](https://nos.nl/l/2615097)
-  > Meta moet stoppen met het zonder motivering blokkeren en verwijderen van queer-accounts op Instagram. Dat schrijven organisaties in een sommatiebrief...
-- [4 op de 10 opgepakte relschoppers bij asielprotesten komen van buiten gemeente](https://nos.nl/l/2615095)
-  > Lopen lokale asielprotesten uit de hand en houdt de politie relschoppers aan, dan zijn dat in zeker vier op de tien gevallen mensen van buiten de...
-- [Misbruikpornosite Motherless weer online na eerder ingrijpen OM](https://nos.nl/l/2615089)
-  > De pornosite Motherless.com is weer online gegaan nadat de site eerder door het Openbaar Ministerie uit de lucht was gehaald.
-        De site is nog...
+- [Podium Harry Styles in Arena wordt aangepast na klachten over slecht zicht](https://nos.nl/l/2615138)
+  > Het podium in de Johan Cruijff Arena waar Harry Styles nog acht keer optreedt wordt aangepast, naar aanleiding van vele klachten online van fans over...
+- [Voor nieuwe veerboot naar Noorwegen wordt Groningen een stukje groter gemaakt](https://nos.nl/l/2615135)
+  > Om de komst van een nieuwe bootverbinding tussen Groningen en Noorwegen mogelijk te maken, wordt een deel van de Eemshaven ingepolderd. Het nieuwe...
+- [IND onderzoekt asielzoekers pas 'zorgelijk' laat op terrorisme](https://nos.nl/l/2615132)
+  > Het duurt te lang voordat asielzoekers worden gescreend op terrorisme. De Immigratie- en Naturalisatiedienst zou dat eigenlijk binnen twee weken...
+- [Doden door aanvallen in Oekraïne, Litouwers schuilen voor drone](https://nos.nl/l/2615127)
+  > Door Russische aanvallen zijn vannacht twee mensen gedood in de Oekraïense stad Dnipro, melden autoriteiten in de regio. Zeker twaalf mensen raakten...
+- [Risico op wereldwijde verspreiding ebola laag, maar nationaal en regionaal hoog](https://nos.nl/l/2615126)
+  > De directeur-generaal van de Wereldgezondheidsorganisatie WHO waarschuwt dat het risico op verdere verspreiding van de ebola-uitbraak in de...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Heracles stelt twintiger aan als trainer: ‘Samen bouwen aan nieuwe toekomst’](https://www.ad.nl/voetbal/heracles-stelt-twintiger-aan-als-trainer-samen-bouwen-aan-nieuwe-toekomst~a908ffbd/)
-  > Vincent Heilmann is de nieuwe trainer van Heracles Almelo. De 29-jarige Brabander is de opvolger van Ernest Faber, die met de club uit de Eredivisie...
-- [LIVE WK voetbal | Schotland met 43-jarige keeper naar het WK, Zwitserse recordinternational voor vierde keer naar WK](https://www.ad.nl/wk-voetbal/live-wk-voetbal-schotland-met-43-jarige-keeper-naar-het-wk-zwitserse-recordinternational-voor-vierde-keer-naar-wk~a61805da/)
-  > Over minder dan dertig dagen begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste...
-- [Banken zetten zich volop in voor Europese cryptomunt: ook Rabobank en ABN Amro sluiten zich nu aan](https://www.ad.nl/economie/banken-zetten-zich-volop-in-voor-europese-cryptomunt-ook-rabobank-en-abn-amro-sluiten-zich-nu-aan~a2093d64/)
-  > Ook Rabobank en ABN Amro sluiten zich aan bij een groep Europese banken voor de lancering van een zogeheten euro-stablecoin. Met deze cryptomunt...
-- [Aanhouding in zaak fatale schietpartij tankstation waarvoor beloning was uitgeloofd](https://www.ad.nl/binnenland/aanhouding-in-zaak-fatale-schietpartij-tankstation-waarvoor-beloning-was-uitgeloofd~a840a6d3/)
-  > De politie heeft een 23-jarige man opgepakt die werd gezocht na een schietpartij bij een tankstation in Muiden (Noord-Holland). Een foto van de...
-- [Mattie en Marieke dompelen zich onder in het boerenleven en Gerard viert het porseleinen huwelijk](https://www.ad.nl/show/mattie-en-marieke-dompelen-zich-onder-in-het-boerenleven-en-gerard-viert-het-porseleinen-huwelijk~a5926d09/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Verdachte bomaanslag op partijkantoor van D66 blijft nog eens negentig dagen in voorarrest](https://www.ad.nl/den-haag/verdachte-bomaanslag-op-partijkantoor-van-d66-blijft-nog-eens-negentig-dagen-in-voorarrest~a3cc1b4d/)
+  > De man (37) die eerder deze maand vermoedelijk een explosie veroorzaakte bij het partijkantoor van D66 in Den Haag, blijft nog eens drie maanden in...
+- [Jurriën Timber en teamgenoten maken Arsenal-fans dolgelukkig als ze om 05.00 uur plots bij het stadion opduiken](https://www.ad.nl/voetbal/jurrien-timber-en-teamgenoten-maken-arsenal-fans-dolgelukkig-als-ze-om-05-00-uur-plots-bij-het-stadion-opduiken~a7f7d4c48/)
+  > Nadat Arsenal dinsdagavond voor het eerst sinds 2004 kampioen van de Premier League werd, trokken duizenden supporters direct naar het Emirates...
+- [Extremistische minister deelt heftige beelden van geboeide Gaza-activisten: ‘Welkom in Israël’](https://www.ad.nl/buitenland/extremistische-minister-deelt-heftige-beelden-van-geboeide-gaza-activisten-welkom-in-israel~ac528ac3/)
+  > De Israëlische veiligheidsminister Itamar Ben-Gvir heeft beelden gedeeld waarop te zien is dat opvarenden van een door Israël onderschepte...
+- [Dronken Rafael van der Vaart biecht fout op: ‘Wijn viel zwaarder dan normaal’](https://www.ad.nl/voetbal/dronken-rafael-van-der-vaart-biecht-fout-op-wijn-viel-zwaarder-dan-normaal~a51f1ef8/)
+  > Zondagavond was de laatste uitzending van Studio Voetbal. Tafelgast Rafael van der Vaart baarde opzien door af en toe lastig uit zijn woorden te...
+- [Zangeres Froukje kondigt tweede studioalbum aan](https://www.ad.nl/show/zangeres-froukje-kondigt-tweede-studioalbum-aan~aa91729b3/)
+  > Froukje brengt in het najaar haar tweede album uit. Dat maakt de zangeres woensdag bekend. De release van het album Kijk je naar mij? staat gepland...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [COA kan niet alle asielzoekers toelaten in opvang Ter Apel](https://fd.nl/samenleving/1597224/coa-kan-niet-alle-asielzoekers-toelaten-in-opvang-ter-apel)
-  > De opvanglocatie is te vol, waardoor de opvangorganisatie niet langer kan instaan voor de veiligheid van bewoners en medewerkers.
-- [Verandering van binnenuit](https://fd.nl/samenleving/1597176/verandering-van-binnenuit)
-  > Zonder druk van buitenaf krijgt een bedrijf niet zo gauw een roeping, leerde Frida Boeke.
-- [Iraanse ‘Lego-propaganda’ brengt het Deense speelgoedmerk in lastig parket](https://fd.nl/bedrijfsleven/1596797/iraanse-lego-propaganda-brengt-het-deense-speelgoedmerk-in-lastig-parket)
-  > De Lego-versie van Donald Trump wordt in de AI-actiefilmpjes belachelijk gemaakt. Experts op het gebied van reputatieschade denken dat het risicovol...
-- [Gesprekken Samsung en vakbond mislukt, mogelijke staking kan chipproductie verstoren](https://fd.nl/bedrijfsleven/1597292/gesprekken-samsung-en-vakbond-mislukt-mogelijke-staking-kan-chipproductie-verstoren)
-  > De vakbond wil dat werknemers meer meeprofiteren van de grote winsten die Samsung maakt als gevolg van de AI-boom.
-- [Hans Borstlap: ‘Kabinet, vakbonden, werkgevers: kom nu eens uit de loopgraven’](https://fd.nl/opinie/1597003/kabinet-vakbonden-werkgevers-kom-uit-de-loopgraven)
-  > De arbeidsmarkt is structureel veranderd, maar ons beleid is van museale kwaliteit. Hans Borstlap pleit voor een nieuw sociaal akkoord – nu.
+- [Omzet Zeeman licht gestegen door duurdere producten](https://fd.nl/bedrijfsleven/1597482/omzet-zeeman-licht-gestegen-door-duurdere-producten)
+  > In 2025 boekte de Nederlandse winkelketen een omzet van €984 mln. Een jaar eerder bedroeg de omzet nog €969 mln.
+- [Vaker ‘exotische’ arbeidsvormen als alternatief voor zzp’en en uitzenden](https://fd.nl/bedrijfsleven/1595841/vaker-exotische-arbeidsvormen-als-alternatief-voor-zzpen-en-uitzenden)
+  > Werkgevers en werknemers zoeken naar arbeidsvormen om flexibel te blijven. ‘Het etiket dat je erop plakt doet er uiteindelijk niet toe. Het gaat erom...
+- [Commerzbank bestempelt plannen UniCredit als ‘vaag en riskant’](https://fd.nl/financiele-markten/1597298/commerzbank-bestempelt-plannen-unicredit-als-vaag-en-riskant)
+  > Aandeelhouders doen er goed aan niet in te stemmen met het overnamebod, zegt ceo Bettina Orlopp van Commerzbank. Ze blijft niettemin openstaan voor...
+- [Maker van vliegende auto’s wint kort geding van ex-directeur](https://fd.nl/bedrijfsleven/1597299/maker-van-vliegende-autos-wint-kort-geding-van-ex-directeur)
+  > Claims van hem waren ‘summierlijk ondeugdelijk’ onderbouwd, dus beslaglegging gaat er af
+- [Franse filmmakers op ‘zwarte lijst’ na petitie tegen overname UGC door miljardair Bolloré](https://fd.nl/bedrijfsleven/1597287/franse-filmmakers-op-zwarte-lijst-na-petitie-tegen-overname-ugc-door-miljardair-bollore)
+  > Een deel van de filmindustrie vreest beïnvloeding door de conservatieve miljardair Bolloré via een ‘fascistische overname van de collectieve...
 
 ### Meest gelezen
 
