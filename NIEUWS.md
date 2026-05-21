@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-05-2026 om 08:35*
+*Laatst bijgewerkt: 21-05-2026 om 12:18*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Nederlandse opvarenden Gazavloot worden overgebracht naar Turkije](https://nos.nl/l/2615227)
-  > De zes Nederlandse activisten die deel uitmaakten van de vloot met hulpgoederen voor Gaza en die in Israël vastzitten, worden vanmiddag naar Turkije...
-- [Joodse school Cheider in Amsterdam dicht na dreigement](https://nos.nl/l/2615224)
-  > De joodse school Cheider in Amsterdam blijft vandaag gesloten vanwege een dreigement. Dat bevestigt de politie na berichtgeving door De Telegraaf.
-  ...
-- [Ondanks opvang in Stadskanaal sliepen er toch mensen buiten in Ter Apel](https://nos.nl/l/2615223)
-  > Hoewel de gemeente Stadskanaal vannacht tientallen asielzoekers heeft opgevangen voor wie geen plaats was in Ter Apel, hebben er alsnog mensen buiten...
-- [Nvidia overtreft wederom verwachtingen en boekt recordomzet](https://nos.nl/l/2615221)
-  > De Amerikaanse chipfabrikant Nvidia heeft afgelopen kwartaal een recordomzet van 81,6 miljard dollar behaald. De nettowinst verdrievoudigde ten...
-- [Ziekenhuis Breda is rokers voor de deur beu en stelt peuken tentoon](https://nos.nl/l/2615219)
-  > Het Amphia Ziekenhuis in Breda heeft net als veel andere ziekenhuizen al jaren een geheel rookvrij terrein, maar toch weerhoudt dat mensen er niet...
+- [Aangiftes tegen Markuszower lopen op na uitspraken over Palestijnen](https://nos.nl/l/2615253)
+  > Tegen Tweede Kamerlid Gidi Markuszower zijn inmiddels twintig aangiftes gedaan, vanwege zijn uitspraken over Palestijnse asielzoekers. Dat meldt het...
+- [Nationale ombudsman: overheid weet wie hulp nodig heeft, maar grijpt niet in](https://nos.nl/l/2615252)
+  > De overheid weet vaak al wie hulp nodig heeft, maar komt te laat of helemaal niet in actie om hen te helpen. Doordat regelingen vaak ingewikkeld...
+- [Doden en gewonden bij instorting gebouw in Marokkaanse stad Fez](https://nos.nl/l/2615251)
+  > In de Marokkaanse stad Fez zijn zeker elf mensen om het leven gekomen doordat een appartementencomplex instortte. Er raakten ook zes mensen gewond,...
+- [Gemeente Moerdijk: 'Dorp kan misschien toch blijven bestaan'](https://nos.nl/l/2615247)
+  > Het dorp Moerdijk kan misschien toch blijven bestaan omdat het Rijk overweegt om minder ruimte in te nemen voor energieprojecten en industrie. Dat...
+- [Recordaantal mensen beklimmen Mount Everest vanaf Nepal op zelfde dag](https://nos.nl/l/2615245)
+  > Een recordaantal klimmers heeft gisteren vanaf de Nepalese zijde de Mount Everest beklommen. Volgens een bergsportorganisatie hebben 274 mensen de...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Gangster-rap helpt Casper van Uden in de massasprints: ‘In zo’n finale is er geen genade’](https://www.ad.nl/wielrennen/gangster-rap-helpt-casper-van-uden-in-de-massasprints-in-zon-finale-is-er-geen-genade~a4090864/)
-  > De Giro is de wedstrijd van zijn doorbraak. Een jaar geleden won Casper van Uden (24) een massasprint in Lecce. Hij hoopt donderdag en zondag op een...
-- [Opinie: Een ‘convenant’ over gif lost de insectencrisis niet op](https://www.ad.nl/praat-mee/opinie-een-convenant-over-gif-lost-de-insectencrisis-niet-op~a902d1e1/)
-  > Het fundament onder ons voedselsysteem is in gevaar: insecten verdwijnen door gebruik van chemische bestrijdingsmiddelen, terwijl onze landbouw niet...
-- [Nederlands onderwijs voorbeeld voor Italiaanse school: ‘Nederlandse kinderen zijn veel eerder zelfstandig’](https://www.ad.nl/buitenland/nederlands-onderwijs-voorbeeld-voor-italiaanse-school-nederlandse-kinderen-zijn-veel-eerder-zelfstandig~aea446d3/)
-  > Lange dagen en heel veel uit het hoofd leren. Het onderwijs is in Italië nog een beetje zoals het bij ons veertig jaar geleden was. Een school in de...
-- [Bod gedaan op een huis? Dit is hoe het biedlogboek werkt](https://www.ad.nl/wonen/bod-gedaan-op-een-huis-dit-is-hoe-het-biedlogboek-werkt~a7dfa438/)
-  > Tevergeefs een bod gedaan op een huis? Via het biedlogboek achterhaal je wat concurrenten hebben geboden. Makelaars zijn verplicht het biedlogboek...
-- [WK in gevaar voor Emiliano Martínez? Argentijnse doelman keepte Europa League-finale met gebroken vinger](https://www.ad.nl/voetbal/wk-in-gevaar-voor-emiliano-martinez-argentijnse-doelman-keepte-europa-league-finale-met-gebroken-vinger~a68f6298/)
-  > Emiliano Martínez kende een bijzondere aanloop naar de Europa League-finale. De 33-jarige doelman van Aston Villa brak zijn vinger tijdens de...
+- [Neuer (40) in selectie Duitsland, koninklijk echtpaar naar WK-duels Oranje en Curaçao](https://www.ad.nl/wk-voetbal/neuer-40-in-selectie-duitsland-koninklijk-echtpaar-naar-wk-duels-oranje-en-curacao~a61805da/)
+  > Over minder dan dertig dagen begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste...
+- [Man (81) doodt vrouw na 45 jaar huwelijk omdat ze geen seks meer wil en dumpt haar in kanaal in Drenthe](https://www.ad.nl/binnenland/man-81-doodt-vrouw-na-45-jaar-huwelijk-omdat-ze-geen-seks-meer-wil-en-dumpt-haar-in-kanaal-in-drenthe~aba7c95c/)
+  > Het Openbaar Ministerie heeft donderdag in de rechtbank in Assen een celstraf van tien jaar geëist tegen de 81-jarige Epko F. uit Assen voor het...
+- [‘Actie rond Bolle Jos echt uitzonderlijk, de druk op Sierra Leone wordt steeds groter’](https://www.ad.nl/buitenland/actie-rond-bolle-jos-echt-uitzonderlijk-de-druk-op-sierra-leone-wordt-steeds-groter~a65b5e53/)
+  > Een geheime Nederlandse operatie om topcrimineel ‘Bolle Jos’ Leijdekkers te arresteren is om onbekende redenen op het laatste moment afgeblazen. Het...
+- [Goh, wat verrassend hè, dat de ‘rijke’ huizenbezitters toch niet zo rijk blijken?](https://www.ad.nl/binnenland/goh-wat-verrassend-he-dat-de-rijke-huizenbezitters-toch-niet-zo-rijk-blijken~ac9d4ad1/)
+  > Slapeloze nachten doordat de prijzen stijgen en je de hypotheek niet meer kunt betalen? Nee, het échte probleem ligt ergens anders, weet Angela de...
+- [Selecties WK voetbal 2026 | Selecties Duitsland en Portugal bekend, Schotland met 43-jarige keeper](https://www.ad.nl/wk-voetbal/selecties-wk-voetbal-2026-selecties-duitsland-en-portugal-bekend-schotland-met-43-jarige-keeper~a5e4dc47/)
+  > Het WK voetbal komt snel dichterbij. De komende tijd maken de deelnemende landen hun selecties bekend. De spelers die namens Oranje naar het WK gaan,...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Chemiebedrijf Syensqo bekijkt verkoop Performance & Care](https://fd.nl/bedrijfsleven/1597441/chemiebedrijf-syensqo-bekijkt-verkoop-performance-care)
-  > Als het tot een transactie komt, raakt die mogelijk ook de fabriek in Moerdijk.
-- [Aandeel Heijmans schiet omhoog na opgevoerde winstdoelen](https://fd.nl/bedrijfsleven/1597500/aandeel-heijmans-schiet-omhoog-na-opgevoerde-winstdoelen)
-  > Bouwonderneming Heijmans verwacht in 2030 een jaaromzet te boeken die richting €4 mrd gaat. Over het boekjaar 2025 was de omzet nog €2,8 mrd. Het...
-- [Beleving van attracties groter, maar de rekening ook](https://fd.nl/samenleving/1596582/beleving-van-attracties-groter-maar-de-rekening-ook)
-  > Sinds 2024 ligt het bezoek van de achttien grootste trekpleisters in Nederland boven het niveau van vóór de coronapandemie.
-- [Verhoging minimumloon pakt netto verschillend uit](https://fd.nl/samenleving/1597492/verhoging-minimumloon-pakt-netto-verschillend-uit)
-  > Parttimers gaan er procentueel meer op vooruit dan voltijders
-- [Lagere werkloosheid en toch een lager vertrouwen van de consument](https://fd.nl/economie/1597440/lagere-werkloosheid-en-toch-een-lager-vertrouwen-van-de-consument)
-  > Consumenten zijn in mei negatiever over hun eigen financiële situatie in de komende twaalf maanden dan in april.
+- [De toekomst is passief-agressief](https://fd.nl/opinie/1597126/de-toekomst-is-passief-agressief)
+  > Lekker ongeremd uit je plaat gaan is er niet meer bij voor de moderne werknemer. Een oplossing is gelegen in passieve agressie, waarop je opponent...
+- [Veiliger in het nachtelijke verkeer door een reflecterende auto of fiets](https://fd.nl/tech-en-innovatie/1596201/veiliger-in-het-nachtelijke-verkeer-door-een-reflecterende-auto-of-fiets)
+  > Ondernemer Paul Mijnen ontwikkelde een speciaal pigment met minuscule glazen bolletjes, die oplichten in het donker als er licht op schijnt. Daardoor...
+- [Wolters Kluwer dumpt hoge drempel voor goedkeuring beloningsbeleid](https://fd.nl/bedrijfsleven/1597445/wolters-kluwer-dumpt-hoge-drempel-voor-goedkeuring-beloningsbeleid)
+  > Een grote minderheid van de aandeelhouders is het niet eens met de verlaging van de stemdrempel bij Wolters Kluwer.  Ze zijn bang voor ‘verwatering’...
+- [De parlementaire enquêtecommissie kan eindelijk lessen gaan trekken uit de coronapandemie](https://fd.nl/opinie/1596878/hoe-we-uit-de-coronapandemie-eindelijk-lessen-kunnen-trekken)
+  > Wat leveren de verhoren van de parlementaire enquêtecommissie corona ons straks op? De €77 mrd aan uitgaven zien we er niet mee terug, maar het kan...
+- [Steeds meer huiseigenaren ongerust over woonlasten](https://fd.nl/economie/1597443/steeds-meer-huiseigenaren-ongerust-over-woonlasten)
+  > Veel huiseigenaren bezuinigen vooral op leuke dingen, zoals een avondje uit, een weekendje weg of een vakantie.
 
 ### Meest gelezen
 
