@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-05-2026 om 20:54*
+*Laatst bijgewerkt: 21-05-2026 om 22:22*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Ook Gieten vangt vannacht asielzoekers uit Ter Apel op](https://nos.nl/l/2615342)
+  > Asielzoekers die vannacht niet terechtkunnen in het aanmeldcentrum in Ter Apel worden overgebracht naar een sporthal in het Drentse dorp Gieten. Dat...
+- [VS stuurt 5000 militairen naar Polen, zegt president Trump](https://nos.nl/l/2615341)
+  > President Trump zegt dat er 5000 Amerikaanse militairen extra worden gestationeerd in Polen. De directe aanleiding voor dit besluit is onduidelijk.
+ ...
 - [Moeder in Roosendaal eist via rechter dat dochter (14) weer naar school mag](https://nos.nl/l/2615336)
   > Een moeder uit Roosendaal eist door middel van een kort geding dat haar 14-jarige dochter binnen 24 uur weer wordt toegelaten op de school waar ze...
 - [Michael Berg wint Gouden Strop voor thriller Vergelding](https://nos.nl/l/2615325)
   > Schrijver Michael Berg heeft voor zijn boek Vergelding de Gouden Strop gewonnen, de prijs voor de beste oorspronkelijk Nederlandstalige thriller. Hij...
 - [Meisje (2) in Spanje achtergelaten in auto, gestorven door hitte](https://nos.nl/l/2615324)
   > Een meisje van 2 jaar oud is in het noordwesten van Spanje overleden door de hitte nadat ze per ongeluk was achtergelaten in haar vaders auto. Het...
-- [Deel weggestemde asielwetten door Tweede Kamer snel weer op agenda gezet](https://nos.nl/l/2615319)
-  > Twee van de asielmaatregelen die onlangs in de Eerste Kamer werden weggestemd zijn door de Tweede Kamer snel terug op de agenda gezet: het sneller...
-- [Vanwege acuut ontploffingsgevaar lukt het de Denen niet om Timmy te bergen](https://nos.nl/l/2615317)
-  > Na drie mislukte pogingen zijn de Deense autoriteiten vandaag gestopt met de berging van de dode bultrug Timmy. In de maag en darmen van de walvis...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Spanning tot het eind in Galgenwaard bij doelpuntenfestijn tussen FC Utrecht en Heerenveen](https://www.ad.nl/voetbal/spanning-tot-het-eind-in-galgenwaard-bij-doelpuntenfestijn-tussen-fc-utrecht-en-heerenveen~afe86228/)
-  > Een heerlijk slot lonkt, bij de wedstrijd van FC Utrecht tegen sc Heerenveen in Galgenwaard. Wie speelt zondag de finale van de play-offs tegen Ajax?
-- [Donald Trump stuurt 5000 militairen naar Polen](https://www.ad.nl/buitenland/donald-trump-stuurt-5000-militairen-naar-polen~a50c3557/)
-  > De Verenigde Staten sturen 5000 Amerikaanse militairen naar Polen, schrijft de Amerikaanse president Donald Trump op zijn Truth Social. Eerder...
-- [Actrices Hanna van Vliet en Ilke Paddenburg verwachten eerste kindje](https://www.ad.nl/show/actrices-hanna-van-vliet-en-ilke-paddenburg-verwachten-eerste-kindje~aedc0a7b/)
-  > Hanna van Vliet en Ilke Paddenburg zijn in verwachting van hun eerste kindje. Dat maken de actrices donderdag bekend via sociale media.
-- [Asielzoekers voor wie geen plek is in Ter Apel gaan naar sporthal in Gieten](https://www.ad.nl/binnenland/asielzoekers-voor-wie-geen-plek-is-in-ter-apel-gaan-naar-sporthal-in-gieten~a34a9e37/)
-  > De asielzoekers die donderdagnacht niet terechtkunnen in het opvangcentrum in het Groningse Ter Apel, worden overgebracht naar het nabijgelegen...
-- [Max Verstappen over zijn toekomst in F1: ‘Ik wilde altijd doorgaan, maar wilde wel veranderingen zien’](https://www.ad.nl/formule-1/max-verstappen-over-zijn-toekomst-in-f1-ik-wilde-altijd-doorgaan-maar-wilde-wel-veranderingen-zien~aebd571d/)
-  > Voorafgaand aan de Grand Prix van Canada vertelde Max Verstappen iets meer over zijn toekomst in de koningsklasse van de autosport. Geen harde...
+- [NASCAR-icoon en recordhouder Kyle Busch (41) overleden](https://www.ad.nl/formule-1/nascar-icoon-en-recordhouder-kyle-busch-41-overleden~a60e8163/)
+  > NASCAR-coureur Kyle Busch is op 41-jarige leeftijd overleden. De Amerikaanse tweevoudig kampioen en recordhouder van meest gewonnen races was ernstig...
+- [Michael van Gerwen en Gian van Veen missen play-offs in O2 Arena: dit zijn de halve finales](https://www.ad.nl/darts/premier-league-speelschema-programma-uitslagen-stand~a9ae7647/)
+  > De Premier League Darts is volop onderweg mét Michael van Gerwen en Gian van Veen. Bekijk hieronder de stand, alle uitslagen, het complete programma...
+- [Van Gerwen en Van Veen sluiten Premier League-jaar teleurstellend af, maar cashen wel (bijna) 100.000 euro](https://www.ad.nl/darts/van-gerwen-en-van-veen-sluiten-premier-league-jaar-teleurstellend-af-maar-cashen-wel-bijna-100-000-euro~a3d52967/)
+  > Michael van Gerwen en Gian van Veen hebben dit Premier League-jaar teleurstellend afgesloten. Voor het tweede jaar op rij treedt geen enkele...
+- [Druk weekend in Volendam: Ajax en FC Utrecht strijden om laatste Europese ticket, Willem II hoopt nog op promotie](https://www.ad.nl/voetbal/druk-weekend-in-volendam-ajax-en-fc-utrecht-strijden-om-laatste-europese-ticket-willem-ii-hoopt-nog-op-promotie~adf4f522/)
+  > Het slotweekend van het Nederlands voetbalseizoen speelt zich volledig af in Volendam. Ajax en FC Utrecht strijden in het Kras Stadion om een plek in...
+- [Club Brugge voor twintigste keer kampioen van België](https://www.ad.nl/voetbal/club-brugge-voor-twintigste-keer-kampioen-van-belgie~abc1bdf5/)
+  > Club Brugge is voor de twintigste keer kampioen van België geworden. De ploeg van trainer Ivan Leko en de Nederlanders Dani van den Heuvel en Bjorn...
 
 ### Meest gelezen
 
