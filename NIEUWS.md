@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-05-2026 om 15:50*
+*Laatst bijgewerkt: 22-05-2026 om 17:56*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Drie Nederlandse opvarenden Gaza-flotilla terug in Nederland](https://nos.nl/l/2615462)
+  > Drie Nederlandse opvarenden die deel uitmaakten van de vloot met hulpgoederen voor Gaza zijn vanavond aangekomen op Schiphol. Ze werden eerder deze...
+- [Kind aangevallen door hond in Hilversum, 'ernstige bijtwonden in gezicht'](https://nos.nl/l/2615461)
+  > Een leerling van een basisschool in Hilversum is dinsdag gewond geraakt door een aanval van een hond. De aanval vond vlak bij het schoolplein van...
+- [Rusland meldt doden na aanval op studentencomplex, Oekraïne spreekt van manipulatie](https://nos.nl/l/2615455)
+  > Bij een Oekraïense drone-aanval op een studentencomplex in de door Rusland bezette regio Loehansk zijn vier mensen gedood, zeggen Russische...
+- [Amerikanen houden druk op NAVO-bondgenoten hoog](https://nos.nl/l/2615451)
+  > De Amerikanen blijven herhalen dat ze meer betrokkenheid willen van hun NAVO-bondgenoten bij de Iranoorlog. Ook houden ze de druk op de Europese...
 - [Noodopvang in Loosdrecht blijft open, rechter geeft gemeente opnieuw gelijk](https://nos.nl/l/2615449)
   > De tijdelijke noodopvang voor asielzoekers in het gemeentehuis in Loosdrecht mag openblijven. Dat oordeelt de bestuursrechter van de rechtbank...
-- [Oud-premier Attal (37) kandidaat bij Franse presidentsverkiezingen volgend jaar](https://nos.nl/l/2615445)
-  > De Franse oud-premier Gabriel Attal stelt zich kandidaat voor de presidentsverkiezingen van volgend voorjaar. Dat heeft hij gezegd in een toespraak...
-- [Twee gewonden bij explosie gastank op bedrijventerrein Harderwijk](https://nos.nl/l/2615444)
-  > Bij een explosie bij een bedrijf in Harderwijk zijn twee mensen gewond geraakt. De explosie vond plaats tijdens werkzaamheden in het pand. Volgens...
-- [Snurkers, lichtflitsen en een pitbull](https://nos.nl/l/2615443)
-  > Opnieuw was het een week waarin het kabinet worstelde met de asielopvang. Opvangcentrum Ter Apel is vol, waardoor er mensen buiten op het gras...
-- [Minister wil soort Clare's Law om vrouwen te beschermen tegen partnergeweld](https://nos.nl/l/2615442)
-  > Minister Van Weel wil dat er ook in Nederland een wet komt die partners het recht geeft te checken of hun partner een gewelddadig verleden heeft. Hij...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Eerste officiële zomerse dag van het jaar is een feit](https://www.ad.nl/binnenland/eerste-officiele-zomerse-dag-van-het-jaar-is-een-feit~ad2d2374/)
-  > In De Bilt is het vrijdag 25,0 graden geworden en daarmee is de eerste officiële zomerse dag van het jaar een feit. Deze zomerse dag, waarop de...
-- [LIVE Midden-Oosten | Onderhandelaar van Pakistan op weg naar Iran, doden door Israëlische aanvallen op Libanon](https://www.ad.nl/buitenland/live-midden-oosten-onderhandelaar-van-pakistan-op-weg-naar-iran-doden-door-israelische-aanvallen-op-libanon~ac528ac3/)
-  > De Pakistaanse topmilitair en onderhandelaar in de gesprekken tussen de Verenigde Staten en Iran, Asim Munir, is onderweg naar Iran. Dat hebben...
-- [Radicale ouders zouden geen thuisonderwijs moeten geven](https://www.ad.nl/binnenland/radicale-ouders-zouden-geen-thuisonderwijs-moeten-geven~aa568384/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Klassement Giro d’Italia 2026 | Afonso Eulálio ook na dertien etappes in roze trui, Thymen Arensman op derde plaats](https://www.ad.nl/giro/klassement-giro-ditalia-2026-afonso-eulalio-ook-na-dertien-etappes-in-roze-trui-thymen-arensman-op-derde-plaats~aa7ab621/)
-  > Tussen 8 en 31 mei wordt de eerste grote ronde van het jaar bij de mannen verreden: de Giro d’Italia. Wie gaat Jonas Vingegaard bij zijn debuut uit...
-- [The Script staat in het najaar in de Ziggo Dome](https://www.ad.nl/show/the-script-staat-in-het-najaar-in-de-ziggo-dome~a1b1d6e8/)
-  > The Script keert in het najaar terug naar de Ziggo Dome. Dat heeft concertorganisator Mojo vrijdag bekendgemaakt. De Ierse band staat op 26 november...
+- [Verstappen komt ondanks sterke start in chaotische training flink tekort ten opzichte van oppermachtig Mercedes](https://www.ad.nl/formule-1/verstappen-komt-ondanks-sterke-start-in-chaotische-training-flink-tekort-ten-opzichte-van-oppermachtig-mercedes~a4f793c75/)
+  > Max Verstappen is in een chaotische training, die door drie rode vlaggen onderbroken werd, niet verder gekomen dan de vijfde tijd. De Red Bull...
+- [Hoe Nederland zich in amper 60 uur klaarmaakte voor virusschip Hondius: ‘Veel telefoons niet opgenomen’](https://www.ad.nl/binnenland/hoe-nederland-zich-in-amper-60-uur-klaarmaakte-voor-virusschip-hondius-veel-telefoons-niet-opgenomen~ae76be92/)
+  > In nog geen tweeënhalve dag verrijst in de Rotterdamse haven een compleet quarantainedorp. Met woonunits, teststraten, beveiliging, catering,...
+- [Tom Hardy ontslagen uit misdaadserie MobLand na ‘reeks conflicten’](https://www.ad.nl/show/tom-hardy-ontslagen-uit-misdaadserie-mobland-na-reeks-conflicten~add4129f/)
+  > SkyShowtime-serie MobLand heeft afscheid genomen van Tom Hardy. Volgens Variety hebben bronnen aan het vakblad bevestigd dat de acteur is ontslagen...
+- [Iniesta wordt coach van Leroy Fer in woestijn, Alaba vertrekt transfervrij bij Real Madrid](https://www.ad.nl/voetbal/iniesta-wordt-coach-van-leroy-fer-in-woestijn-alaba-vertrekt-transfervrij-bij-real-madrid~a488141d/)
+  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
+- [Alleen de echte nieuwsjunk maakt deze wekelijkse quiz foutloos](https://www.ad.nl/quiz/alleen-de-echte-nieuwsjunk-maakt-deze-wekelijkse-quiz-foutloos~a409dd90/)
+  > Deze week werd Inez Weski veroordeeld en bleek dat een geheime operatie om crimineel ‘Bolle Jos’ te arresteren om onbekende redenen op het laatste...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Methaanregels beloven enorme klimaatwinst, maar bedreigen volgens gasbedrijven de Nederlandse gaswinning](https://fd.nl/bedrijfsleven/1597577/europese-methaanregels-beloven-enorme-klimaatwinst-maar-bedreigen-volgens-gasbedrijven-ook-de-nederlandse-gaswinning)
+  > Gasbedrijven moeten hun uitstoot vanaf 2027 nauwgezet meten, rapporteren en terugdringen. Draconisch en onuitvoerbaar, zegt de sector over de nieuwe...
+- [Zorgen op obligatiemarkten, maar optimisme op het Damrak](https://fd.nl/financiele-markten/1597576/zorgen-op-obligatiemarkten-maar-optimisme-op-het-damrak)
+  > In Japan en Nederland gingen aandelenindices naar records. Op de obligatiemarkten maken beleggers zich meer zorgen.
+- [Kabinet tegenover vakbonden én werkgevers over bezuinigingen](https://fd.nl/samenleving/1597702/kabinet-tegenover-vakbonden-en-werkgevers-over-bezuinigingen)
+  > De bonden krijgen bijval van werkgeversorganisatie VNO-NCW in hun oppositie tegen de geplande bezuinigingen op de sociale zekerheid.
+- [Nieuwe ceo Heineken laat nog op zich wachten](https://fd.nl/bedrijfsleven/1597601/nieuwe-ceo-heineken-laat-nog-op-zich-wachten)
+  > Heineken heeft nog altijd geen opvolger gevonden voor topman Dolf van den Brink, die eind deze maand vertrekt bij de bierbrouwer. Van den Brink...
 - [Wingtech eist bij Chinese rechtbank €998 mln van dochter Nexperia](https://fd.nl/bedrijfsleven/1597602/wingtech-eist-bij-chinese-rechtbank-998-mlnvan-dochter-nexperia)
   > Het moederbedrijf verwijt dochter Nexperia dat die actief meewerkte aan de ingreep bij de chipmaker door de Nederlandse regering en de Amsterdamse...
-- [Opnieuw Nederlander besmet met hantavirus](https://fd.nl/bedrijfsleven/1597713/opnieuw-nederlander-besmet-met-hantavirus)
-  > Het gaat om een bemanningslid van het cruiseschip Hondius. Het RIVM schat de kans op verspreiding nog steeds in als klein.
-- [Buitenlandminister Rubio: ‘Cuba is nationaal veiligheidsrisico van de VS’](https://fd.nl/politiek/1597712/buitenlandminister-rubio-cuba-is-nationaal-veiligheidsrisico-van-de-vs)
-  > Gevraagd naar de mogelijkheid van militaire acties van de VS in Cuba, sloot hij die niet uit.
-- [De corona-enquête stelt het lerend vermogen van Den Haag op de proef](https://fd.nl/politiek/1597596/de-corona-enquete-stelt-het-lerend-vermogen-van-den-haag-op-de-proef)
-  > De coronaverhoren beloven spraakmakend te worden, de vraag is wat de politiek met de conclusies doet.
-- [Delftse kwantumbedrijven pikken graantje mee van Franse en Amerikaanse miljarden](https://fd.nl/tech-en-innovatie/1597599/delftse-kwantumbedrijven-liften-mee-met-franse-en-amerikaanse-miljardeninvesteringen)
-  > De commerciële doorbraak van kwantumchips lijkt aanstaande. Overheden investeren in hun bedrijven om de koppositie in de kwantumrace aan te nemen.
 
 ### Meest gelezen
 
