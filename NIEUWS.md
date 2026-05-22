@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-05-2026 om 05:04*
+*Laatst bijgewerkt: 22-05-2026 om 09:35*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Zoektocht naar vermiste Nederlander op Saba na acht dagen gestaakt](https://nos.nl/l/2615356)
-  > De zoektocht naar de vermiste Nederlandse wandelaar op Saba is na acht dagen gestopt, meldt de gouverneur van het eiland Jonathan Johnson.
-        De...
-- [Wekdienst 22/5: Dag 2 NAVO-top Zweden • Milieudefensie weer tegenover Shell](https://nos.nl/l/2615355)
-  > Goedemorgen! In de Zweedse stad Helsingborg is opnieuw een bijeenkomst van NAVO-ministers. En in Den Haag buigt de Hoge Raad zich over de rechtszaak...
-- [Voor het eerst in jaren daalde het aantal luchtvaartpassagiers in Nederland](https://nos.nl/l/2615354)
-  > De eerste maanden van dit jaar pakten iets minder mensen het vliegtuig dan het jaar ervoor, meldt het Centraal Bureau voor de Statistiek (CBS). Voor...
-- [Ontslagen ING-medewerkers lopen tot wel tienduizenden euro's pensioencompensatie mis](https://nos.nl/l/2615353)
-  > Bankmedewerkers van ING die dit jaar gedwongen moeten vertrekken bij de bank lopen geld voor in hun pensioenpot mis. Het kan gaan om duizenden tot...
-- [Twee wethouders in Scherpenzeel weg na kritisch rapport](https://nos.nl/l/2615351)
-  > Twee van de drie wethouders in Scherpenzeel zijn vertrokken nadat ze onder vuur waren komen te liggen. Gerard van Deelen van de SGP stapte zelf op,...
+- [Poolse buitenlandminister over aantal troepen VS in Polen: 'Blijft ongeveer gelijk'](https://nos.nl/l/2615393)
+  > Het aantal Amerikaanse troepen in Polen blijft ongeveer gelijk. Dat zegt de Poolse minister van Buitenlandse Zaken Sikorski in reactie op een...
+- [Werkgevers willen geen hogere AOW-leeftijd en andere ingrepen in sociale zekerheid](https://nos.nl/l/2615392)
+  > Het kabinetsplan om de AOW-leeftijd sneller te laten stijgen moet van tafel, zegt werkgeversorganisatie VNO-NCW in De Telegraaf.
+        Ook andere...
+- [Microsoft deelde namen Nederlandse ambtenaren met VS: 'Ontzettend zorgelijk'](https://nos.nl/l/2615391)
+  > Techbedrijf Microsoft heeft namen van ambtenaren en wetenschappers gedeeld met een Amerikaanse senaatscommissie die onderzoek doet naar...
+- [Goedkoper treinabonnement moet vanaf 21 juni gaan gelden](https://nos.nl/l/2615389)
+  > Het treinabonnement waarmee mensen deze zomer goedkoper kunnen reizen, moet vanaf 21 juni tot 1 september gaan gelden. Dat is korter dan de drie...
+- [Oud-burgemeester Hendrik-Ido-Ambacht verdacht van ontucht tijdens burgemeesterschap](https://nos.nl/l/2615388)
+  > De oud-burgemeester van Hendrik-Ido-Ambacht die verdacht wordt van het bezit van expliciete beelden van kinderen, wordt ook verdacht van jarenlange...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Domenik en Ferenc vonden de liefde in Married at First Sight: ‘Ik kijk dat eerste moment 20 keer per week terug’](https://www.ad.nl/show/domenik-en-ferenc-vonden-de-liefde-in-married-at-first-sight-ik-kijk-dat-eerste-moment-20-keer-per-week-terug~a8376bd7/)
-  > Domenik Romano en Ferenc Damen trouwden in Married at first sight en lieten elkaar nooit meer los. Dat het zó goed ging tussen twee Mafs-kandidaten,...
-- [Van straf naar zegen: waarom Ajax juist gebaat is bij de ‘kleine’ Conference League](https://www.ad.nl/voetbal/van-straf-naar-zegen-waarom-ajax-juist-gebaat-is-bij-de-kleine-conference-league~ad47086c/)
-  > Ajax bloeide op in de halve finale van de play-offs. Dat gebeurde in een klein stadion, waarmee het vast vooruitliep op de competitie waarvoor de...
-- [Genoeg kerosine, maar we boeken later vakantie en dat merken de grote vliegmaatschappijen](https://www.ad.nl/economie/genoeg-kerosine-maar-we-boeken-later-vakantie-en-dat-merken-de-grote-vliegmaatschappijen~ae2e490f/)
-  > Europeanen zijn huiverig om een vakantie te boeken en dat merken de luchtvaartmaatschappijen. Na Ryanair meldt nu ook prijsvechter EasyJet een...
-- [Het scheelt maar één uurtje, maar deze plek is het zonnigst van heel Nederland](https://www.ad.nl/binnenland/het-scheelt-maar-een-uurtje-maar-deze-plek-is-het-zonnigst-van-heel-nederland~a65623ed/)
-  > Het is zo’n oeverloze discussie: welke plek in Nederland heeft de meeste zonuren? Is dat Zeeland, Noord-Holland of toch het zuidelijkste puntje van...
-- [Suzuki die wordt verkocht als Toyota behaalt nul sterren in crashtest](https://www.ad.nl/auto/suzuki-die-wordt-verkocht-als-toyota-behaalt-nul-sterren-in-crashtest~a9595f3f/)
-  > De Toyota Starlet is keihard onderuitgegaan bij de nieuwste crashtest van Global NCAP. De compacte hatchback kreeg nul sterren voor de bescherming...
+- [Praat mee: kunnen we nog wat leren van de openbare corona-enquête of is het mosterd na de maaltijd?](https://www.ad.nl/praat-mee/praat-mee-kunnen-we-nog-wat-leren-van-de-openbare-corona-enquete-of-is-het-mosterd-na-de-maaltijd~a7ba61c5/)
+  > De parlementaire enquêtecommissie Corona begint eind volgende week met de openbare vragensessies over de corona-aanpak in Nederland. In de Kwestie...
+- [Hoge olieprijs maakt vooral deze vier mannen rijk: tot 337,5 miljoen dollar per dag voor Mohammed bin Salman](https://www.ad.nl/economie/hoge-olieprijs-maakt-vooral-deze-vier-mannen-rijk-tot-337-5-miljoen-dollar-per-dag-voor-mohammed-bin-salman~a960838a/)
+  > Een aanhoudend hoge olieprijs kent vier grote winnaars: twee staatshoofden en twee topmannen. Ruim aan kop gaat de man die lachend 337,5 miljoen...
+- [Bekende namen ontbreken in Engelse selectie, Harry Maguire ‘geschokt en teleurgesteld](https://www.ad.nl/wk-voetbal/bekende-namen-ontbreken-in-engelse-selectie-harry-maguire-geschokt-en-teleurgesteld~a61805da/)
+  > Over drie weken begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste wedstrijd. Via dit...
+- [Waarom is Alexia niet beter voorbereid op dit soort ongemakkelijke vragen?](https://www.ad.nl/binnenland/waarom-is-alexia-niet-beter-voorbereid-op-dit-soort-ongemakkelijke-vragen~a5dde3e5e/)
+  > Als het om het liefdesleven van onze prinsessen gaat, zijn we allemaal die ene, ziekelijk nieuwsgierige tante die zich niks aantrekt van hun privacy...
+- [Jongeren de pineut als Hoge Raad Shell niet dwingt tot klimaatactie, bepleit Milieudefensie](https://www.ad.nl/klimaat/jongeren-de-pineut-als-hoge-raad-shell-niet-dwingt-tot-klimaatactie-bepleit-milieudefensie~a395d793/)
+  > Energiebedrijf Shell moet haar uitstoot en die van haar klanten fors verminderen. „Anders belasten we jongeren in de toekomst met een gigantisch...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaanse buitenlandminister voorzichtig optimistisch over onderhandelingen met Iran](https://fd.nl/politiek/1597567/amerikaanse-buitenlandminister-voorzichtig-optimistisch-over-onderhandelingen-met-iran)
-  > Toch wil de Republikein niet ‘te optimistisch’ zijn. Enkele plooien moeten nog gladgestreken worden.
-- [Zuivelbedrijf voor boeren die klem zitten naast beschermde natuur geeft aandelen uit](https://fd.nl/bedrijfsleven/1597387/zuivelbedrijf-voor-boeren-die-klem-zitten-naast-beschermde-natuur-geeft-aandelen-uit)
-  > Er zijn genoeg melkveehouders van wie het bedrijf naast beschermde natuur ligt en die niet willen stoppen. Zij willen boeren, de natuur een handje...
-- [Worsteling met mannelijkheid](https://fd.nl/samenleving/1597227/worsteling-met-mannelijkheid)
-  > Twee exposities stellen traditionele ideeën over de man aan de kaak. Slagen ze daarin?
-- [Zijn superrijken een gevaar voor de democratie? ‘Integendeel’](https://fd.nl/economie/1597488/zijn-superrijken-een-gevaar-voor-de-democratie-integendeel)
-  > John O. McGinnis neemt het op voor rijken, die volgens hem worden ‘gedemoniseerd’. We hebben ze hard nodig als medicijn tegen middelmatigheid, zegt...
-- [Anky van Grunsven betaalt boze klant het liefst niks, maar het alternatief is een jarenlange rechtszaak](https://fd.nl/samenleving/1596981/anky-van-grunsven-betaalt-boze-klant-het-liefst-niks-maar-het-alternatief-is-een-jarenlange-rechtszaak)
-  > De drievoudig olympisch kampioen dressuur heeft een conflict met een vermogende vastgoedman. Die stelde hoger beroep in.
+- [Ook bij de christendemocraten botst de rechtsstaat soms met het partijbelang](https://fd.nl/politiek/1597571/ook-bij-de-christendemocraten-botst-de-rechtsstaat-soms-met-het-partijbelang)
+  > Europese partijen werken met publieke middelen en hun verkozenen horen boven elke verdenking te staan. Dat is niet altijd eenvoudig te controleren.
+- [Vermout wil af van zijn suffe imago: ‘Eigenlijk slaan we een generatie over’](https://fd.nl/samenleving/1597480/vermout-wil-af-van-zijn-suffe-imago-eigenlijk-slaan-we-een-generatie-over)
+  > Een consortium in Turijn doet er alles aan om vermout weer als hip en exclusief op de kaart te zetten.
+- [Een sterke samenleving begint bij een eigen thuis](https://fd.nl/opinie/1596973/wonen-is-geen-kwestie-van-ieder-voor-zich)
+  > Net zoals boomwortels zijn bewoners onderling verbonden en van elkaar afhankelijk. Door sterke gemeenschappen te bouwen, bouwen we aan een sterke...
+- [Windmolens: onze middelvingers naar fossiele dictators](https://fd.nl/samenleving/1597297/windmolens-onze-middelvingers-naar-fossiele-dictators)
+  > Mopperen op windmolens mag natuurlijk. Maar we kunnen ze ook zien als kenmerken van ons landschap, die bovendien geld in het laatje brengen
+- [Naïef realisme op een verhitte nucleaire top in Reykjavik](https://fd.nl/samenleving/1597198/naief-realisme-op-een-verhitte-nucleaire-top-in-reykjavik)
+  > De podcast Choiceology draait om aansprekende verhalen uit de dagelijkse praktijk van de gedragseconomie. Met dit keer naïef realisme als centraal...
 
 ### Meest gelezen
 
