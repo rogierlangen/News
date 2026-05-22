@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-05-2026 om 00:07*
+*Laatst bijgewerkt: 22-05-2026 om 05:04*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Veel meer gonorroe en syfilis in Europa, ook in Nederland meer infecties](https://nos.nl/l/2615350)
-  > Het aantal besmettingen met seksueel overdraagbare aandoeningen zoals gonorroe en syfilis is in Europa in tien jaar tijd fors toegenomen. De cijfers...
-- [Turkse oppositieleider uit functie gezet door rechter](https://nos.nl/l/2615349)
-  > In Turkije is de leider van de grootste oppositiepartij door een rechtbank uit zijn ambt gezet. De rechter in Ankara oordeelde dat er...
-- [Ook Gieten vangt vannacht asielzoekers uit Ter Apel op](https://nos.nl/l/2615342)
-  > Asielzoekers die vannacht niet terechtkunnen in het aanmeldcentrum in Ter Apel worden overgebracht naar een sporthal in het Drentse dorp Gieten. Dat...
-- [VS stuurt 5000 militairen naar Polen, zegt president Trump](https://nos.nl/l/2615341)
-  > President Trump zegt dat er 5000 Amerikaanse militairen extra worden gestationeerd in Polen. De directe aanleiding voor dit besluit is onduidelijk.
- ...
-- [Moeder in Roosendaal eist via rechter dat dochter (14) weer naar school mag](https://nos.nl/l/2615336)
-  > Een moeder uit Roosendaal eist door middel van een kort geding dat haar 14-jarige dochter binnen 24 uur weer wordt toegelaten op de school waar ze...
+- [Zoektocht naar vermiste Nederlander op Saba na acht dagen gestaakt](https://nos.nl/l/2615356)
+  > De zoektocht naar de vermiste Nederlandse wandelaar op Saba is na acht dagen gestopt, meldt de gouverneur van het eiland Jonathan Johnson.
+        De...
+- [Wekdienst 22/5: Dag 2 NAVO-top Zweden • Milieudefensie weer tegenover Shell](https://nos.nl/l/2615355)
+  > Goedemorgen! In de Zweedse stad Helsingborg is opnieuw een bijeenkomst van NAVO-ministers. En in Den Haag buigt de Hoge Raad zich over de rechtszaak...
+- [Voor het eerst in jaren daalde het aantal luchtvaartpassagiers in Nederland](https://nos.nl/l/2615354)
+  > De eerste maanden van dit jaar pakten iets minder mensen het vliegtuig dan het jaar ervoor, meldt het Centraal Bureau voor de Statistiek (CBS). Voor...
+- [Ontslagen ING-medewerkers lopen tot wel tienduizenden euro's pensioencompensatie mis](https://nos.nl/l/2615353)
+  > Bankmedewerkers van ING die dit jaar gedwongen moeten vertrekken bij de bank lopen geld voor in hun pensioenpot mis. Het kan gaan om duizenden tot...
+- [Twee wethouders in Scherpenzeel weg na kritisch rapport](https://nos.nl/l/2615351)
+  > Twee van de drie wethouders in Scherpenzeel zijn vertrokken nadat ze onder vuur waren komen te liggen. Gerard van Deelen van de SGP stapte zelf op,...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Executie in VS afgebroken: medische staf kan geen ader vinden voor dodelijke injectie](https://www.ad.nl/buitenland/executie-in-vs-afgebroken-medische-staf-kan-geen-ader-vinden-voor-dodelijke-injectie~a988ca45/)
-  > Een executie in de Amerikaanse staat Tennessee is donderdag afgebroken, omdat de medische staf geen geschikte ader kon vinden om de dodelijke...
-- [Selecties WK voetbal 2026 | Selecties van Zweden en Japan bekend, Cristiano Ronaldo in selectie Portugal](https://www.ad.nl/wk-voetbal/selecties-wk-voetbal-2026-selecties-van-zweden-en-japan-bekend-cristiano-ronaldo-in-selectie-portugal~a5e4dc47/)
-  > Het WK voetbal komt snel dichterbij. De komende tijd maken de deelnemende landen hun selecties bekend. De spelers die namens Oranje naar het WK gaan,...
-- [Berendsen ziet weinig in Duits plan Oekraïne ‘gastlid’ EU te maken, Rusland en Belarus testen nucleair arsenaal](https://www.ad.nl/buitenland/berendsen-ziet-weinig-in-duits-plan-oekraine-gastlid-eu-te-maken-rusland-en-belarus-testen-nucleair-arsenaal~adfb97be/)
-  > De driedaagse militaire oefening van Rusland met Belarus is afgelopen. Belangrijk onderdeel van de exercitie was het trainen met het nucleaire...
-- [Voetbalpodcast | ‘Het epicentrum van ons voetbal ligt dit weekend in Volendam’](https://www.ad.nl/voetbal/voetbalpodcast-het-epicentrum-van-ons-voetbal-ligt-dit-weekend-in-volendam~a42af5cd9/)
-  > Het epicentrum van het Nederlands voetbal komend weekend ligt in Volendam. De plaatselijke FC strijdt zaterdag tegen Willem II tegen om een plek in...
-- [Podcast In Het Wiel | ‘Segaert zoekt iedere avond in het routeboek naar zo’n kansje’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-segaert-zoekt-iedere-avond-in-het-routeboek-naar-zon-kansje~a5ea502e/)
-  > Het leek uit te draaien op een sprint van een uitgedunde groep in de twaalfde etappe van de Giro d'Italia, maar dat was buiten Alec Segaert gerekend....
+- [Domenik en Ferenc vonden de liefde in Married at First Sight: ‘Ik kijk dat eerste moment 20 keer per week terug’](https://www.ad.nl/show/domenik-en-ferenc-vonden-de-liefde-in-married-at-first-sight-ik-kijk-dat-eerste-moment-20-keer-per-week-terug~a8376bd7/)
+  > Domenik Romano en Ferenc Damen trouwden in Married at first sight en lieten elkaar nooit meer los. Dat het zó goed ging tussen twee Mafs-kandidaten,...
+- [Van straf naar zegen: waarom Ajax juist gebaat is bij de ‘kleine’ Conference League](https://www.ad.nl/voetbal/van-straf-naar-zegen-waarom-ajax-juist-gebaat-is-bij-de-kleine-conference-league~ad47086c/)
+  > Ajax bloeide op in de halve finale van de play-offs. Dat gebeurde in een klein stadion, waarmee het vast vooruitliep op de competitie waarvoor de...
+- [Genoeg kerosine, maar we boeken later vakantie en dat merken de grote vliegmaatschappijen](https://www.ad.nl/economie/genoeg-kerosine-maar-we-boeken-later-vakantie-en-dat-merken-de-grote-vliegmaatschappijen~ae2e490f/)
+  > Europeanen zijn huiverig om een vakantie te boeken en dat merken de luchtvaartmaatschappijen. Na Ryanair meldt nu ook prijsvechter EasyJet een...
+- [Het scheelt maar één uurtje, maar deze plek is het zonnigst van heel Nederland](https://www.ad.nl/binnenland/het-scheelt-maar-een-uurtje-maar-deze-plek-is-het-zonnigst-van-heel-nederland~a65623ed/)
+  > Het is zo’n oeverloze discussie: welke plek in Nederland heeft de meeste zonuren? Is dat Zeeland, Noord-Holland of toch het zuidelijkste puntje van...
+- [Suzuki die wordt verkocht als Toyota behaalt nul sterren in crashtest](https://www.ad.nl/auto/suzuki-die-wordt-verkocht-als-toyota-behaalt-nul-sterren-in-crashtest~a9595f3f/)
+  > De Toyota Starlet is keihard onderuitgegaan bij de nieuwste crashtest van Global NCAP. De compacte hatchback kreeg nul sterren voor de bescherming...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [‘Fiscalist van de sterren’ stelt OM verantwoordelijk voor verblijf in Amerikaanse cel](https://fd.nl/samenleving/1597520/fiscalist-van-de-sterren-stelt-om-verantwoordelijk-voor-verblijf-in-amerikaanse-cel)
-  > Justitie zou onjuiste informatie hebben verstrekt aan de aanklager in de VS en was mogelijk zelfs betrokken bij zijn uitlevering.
-- [Salaris of seks, waar schaamt u zich meer voor?](https://fd.nl/opinie/1597507/salaris-of-seks-waar-schaamt-u-zich-meer-voor)
-  > Enige openheid over de rauwe kant van het kapitalisme stuit op onze calvinistische schaamtecultuur. Gaat de Wet Loontransparantie daarom werkelijk...
-- [Ambitieuze student moet meer kunnen dan AI-taalmodellen begrijpen, ‘want dat kan inmiddels iedereen’](https://fd.nl/tech-en-innovatie/1597487/ambitieuze-student-moet-meer-kunnen-dan-ai-taalmodellen-begrijpen-want-dat-kan-inmiddels-iedereen)
-  > Voor studenten worden goede AI-vaardigheden steeds belangrijker. Omdat universiteiten die kennis niet altijd kunnen aanbieden, pakken studenten zelf...
-- [Leugens van AI](https://fd.nl/opinie/1597457/leugens-van-ai)
-  > Mathijs Bouman verzamelde blunders van AI die hij de afgelopen week is tegengekomen.
-- [Personalia vrijdag 22 mei](https://fd.nl/bedrijfsleven/1597454/personalia-vrijdag-22-mei)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Amerikaanse buitenlandminister voorzichtig optimistisch over onderhandelingen met Iran](https://fd.nl/politiek/1597567/amerikaanse-buitenlandminister-voorzichtig-optimistisch-over-onderhandelingen-met-iran)
+  > Toch wil de Republikein niet ‘te optimistisch’ zijn. Enkele plooien moeten nog gladgestreken worden.
+- [Zuivelbedrijf voor boeren die klem zitten naast beschermde natuur geeft aandelen uit](https://fd.nl/bedrijfsleven/1597387/zuivelbedrijf-voor-boeren-die-klem-zitten-naast-beschermde-natuur-geeft-aandelen-uit)
+  > Er zijn genoeg melkveehouders van wie het bedrijf naast beschermde natuur ligt en die niet willen stoppen. Zij willen boeren, de natuur een handje...
+- [Worsteling met mannelijkheid](https://fd.nl/samenleving/1597227/worsteling-met-mannelijkheid)
+  > Twee exposities stellen traditionele ideeën over de man aan de kaak. Slagen ze daarin?
+- [Zijn superrijken een gevaar voor de democratie? ‘Integendeel’](https://fd.nl/economie/1597488/zijn-superrijken-een-gevaar-voor-de-democratie-integendeel)
+  > John O. McGinnis neemt het op voor rijken, die volgens hem worden ‘gedemoniseerd’. We hebben ze hard nodig als medicijn tegen middelmatigheid, zegt...
+- [Anky van Grunsven betaalt boze klant het liefst niks, maar het alternatief is een jarenlange rechtszaak](https://fd.nl/samenleving/1596981/anky-van-grunsven-betaalt-boze-klant-het-liefst-niks-maar-het-alternatief-is-een-jarenlange-rechtszaak)
+  > De drievoudig olympisch kampioen dressuur heeft een conflict met een vermogende vastgoedman. Die stelde hoger beroep in.
 
 ### Meest gelezen
 
