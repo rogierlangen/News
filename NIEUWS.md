@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-05-2026 om 11:15*
+*Laatst bijgewerkt: 23-05-2026 om 13:45*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Toch weer vogelgriep in Friesland, 80.000 kuikens geruimd](https://nos.nl/l/2615531)
-  > Op een vleeskuikenbedrijf in het Noord-Friese Marrum is vogelgriep vastgesteld. De ruim 80.000 kuikens op de boerderij worden geruimd.
-        De...
-- [Vaals wil motortochten aan banden leggen om overlast toerisme tegen te gaan](https://nos.nl/l/2615528)
-  > In slierten rijden ze door het Zuid-Limburgse Heuvelland: scooters, motoren, oldtimers. Dat moet anders, vinden ze in Vaals. De gemeenteraad stemt...
-- [Twee overlevenden Kamp Vught overleden, 'stem blijft weerklinken'](https://nos.nl/l/2615523)
-  > Binnen een week tijd zijn twee overlevenden van Kamp Vught overleden. Dinsdag overleed Elly Vleeschhouwer-Blocq op 101-jarige leeftijd. Donderdag...
-- [Gemeente Groningen gaat tijdelijk nachtopvang bieden aan asielzoekers Ter Apel](https://nos.nl/l/2615521)
-  > De gemeente Groningen gaat de komende dagen nachtopvang aanbieden aan asielzoekers uit Ter Apel. Dat meldt de gemeente in een persbericht. De...
-- [Qmusic-presentator Marieke Elsinga breekt voet tijdens opname](https://nos.nl/l/2615517)
-  > Presentator Marieke Elsinga van Qmusic heeft tijdens opnames van haar radioprogramma haar voet gebroken. Ze maakte een misstap toen ze bezig was met...
+- [Extra waterpunten, een smeerstraat en zelfs een schuimparty tijdens warm pinksterweekend](https://nos.nl/l/2615551)
+  > Extra veel waterpunten, gratis zonnebrand in een smeerstraat en zelfs een schuimparty. Overal in Nederland zijn maatregelen genomen om te voorkomen...
+- [Zij kwamen als vluchtelingen naar Nederland toe: 'Niemand wil zijn thuisland verlaten'](https://nos.nl/l/2615549)
+  > Een overvol opvangcentrum in Ter Apel, azc-protesten in Loosdrecht en Apeldoorn. Het gaat in het maatschappelijke debat de afgelopen weken veel over...
+- [Zweefvliegtuig stort neer op Duitse snelweg, één dode](https://nos.nl/l/2615547)
+  > In Duitsland is een zweefvliegtuig neergestort op een snelweg. Van de twee mannen in het toestel is er één overleden. De andere is zwaargewond. Hij...
+- [Landelijke politici blijven actief op X, ondanks enorme hoeveelheid bedreigingen](https://nos.nl/l/2615544)
+  > Op platform X ontvangen landelijke politici veel meer bedreigingen en haatberichten dan bekend is bij justitie. Haagse politici maakten vorig jaar...
+- [Drie nieuwe ebola-besmettingen in Uganda na uitbraak in Congo](https://nos.nl/l/2615535)
+  > Uganda heeft drie nieuwe ebola-besmettingen gemeld. Het gaat om een chauffeur die de eerste bevestigde patiënt in het land vervoerde en een...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Kees (44) uit Leusden rijdt nog elk jaar een cross met De Prutsers in zijn Opel Corsa: ‘Dit is mijn paradepaardje’](https://www.ad.nl/auto/kees-44-uit-leusden-rijdt-nog-elk-jaar-een-cross-met-de-prutsers-in-zijn-opel-corsa-dit-is-mijn-paradepaardje~ab7139ce/)
-  > Al van jongs af aan is Kees Verweij (44) uit Leusden samen met zijn vrienden bij autocrosswedstrijden te vinden. Zijn eerste wedstrijd reed hij op...
-- [Peter (56) kreeg een relatie met een collega en werd ontslagen wegens ‘verstoorde verhoudingen’](https://www.ad.nl/economie/peter-56-kreeg-een-relatie-met-een-collega-en-werd-ontslagen-wegens-verstoorde-verhoudingen~a847b506/)
-  > Toen zijn vrouw overleed, ging Peter (56) door een moeilijke periode. Hij was dan ook in shock toen hij het geluk terugvond bij collega Esther (51)....
-- [Bruno Fernandes verkozen tot beste speler in Premier League na recordaantal van 20 assists](https://www.ad.nl/voetbal/bruno-fernandes-verkozen-tot-beste-speler-in-premier-league-na-recordaantal-van-20-assists~a0994bb6/)
-  > Bruno Fernandes is verkozen tot beste speler van de Premier League dit seizoen. De 31-jarige Portugese middenvelder leidde Manchester United met een...
-- [Moeder en stiefvader van achtergelaten Franse broertjes vertonen ‘vreemd gedrag’ in rechtbank](https://www.ad.nl/nieuws/moeder-en-stiefvader-van-achtergelaten-franse-broertjes-vertonen-vreemd-gedrag-in-rechtbank~a111daea/)
-  > De moeder van de twee achtergelaten Franse broertjes, die dinsdag langs de kant van de weg in Portugal werden gevonden, is vrijdagavond voor de...
-- [Vuurwerk verwacht in loodzware bergrit, grijpt Jonas Vingegaard de macht?](https://www.ad.nl/giro/vuurwerk-verwacht-in-loodzware-bergrit-grijpt-jonas-vingegaard-de-macht~a4c7fa36/)
-  > De veertiende etappe van de Giro d’Italia is dit jaar misschien wel de zwaarste van allemaal. Voor het eerst krijgen de renners te maken met meerdere...
+- [Meer dan 500 kinderen overleden door mazelen in Bangladesh](https://www.ad.nl/buitenland/meer-dan-500-kinderen-overleden-door-mazelen-in-bangladesh~a109ca65/)
+  > Een mazelenepidemie in Bangladesh heeft tot dusver aan meer dan vijfhonderd kinderen het leven gekost, waarmee het een van de dodelijkste uitbraken...
+- [Ongemakkelijk wc-moment van Nederlandse Niek gaat de wereld over: is zijn weggesmeten telefoon nog heel?](https://www.ad.nl/show/ongemakkelijk-wc-moment-van-nederlandse-niek-gaat-de-wereld-over-is-zijn-weggesmeten-telefoon-nog-heel~ac3e7456/)
+  > De Nederlandse contentmaker en influencer Niek Velner (24) gaat de wereld over met een sketch van dertien seconden over een ongemakkelijk wc-moment....
+- [Nepbod van 8 ton, vervalst briefpapier, voorschot voor keuring: zo misbruikt oplichter naam van directeur PEC Zwolle](https://www.ad.nl/binnenland/nepbod-van-8-ton-vervalst-briefpapier-voorschot-voor-keuring-zo-misbruikt-oplichter-naam-van-directeur-pec-zwolle~ae1f5af0/)
+  > ‘Klopt dit nummer van Gerry Hamstra?’ Dat appje is het begin van een zoektocht van deze site die leidt naar een mogelijke oplichter. Met een...
+- [Hij sloeg ooit tegenstander knock-out in een jeugdwedstrijd en kreeg rood: nu staat Usyk tegenover Rico Verhoeven](https://www.ad.nl/vechtsport/hij-sloeg-ooit-tegenstander-knock-out-in-een-jeugdwedstrijd-en-kreeg-rood-nu-staat-usyk-tegenover-rico-verhoeven~a884b370/)
+  > In binnen- en buitenland wordt er al geruime tijd naartoe geleefd: de boksclash van Rico Verhoeven tegen Oleksandr Usyk vanavond in Egypte. Maar wie...
+- [Boyband B-Brave maakt na negen jaar comeback, wel met een lid minder](https://www.ad.nl/show/boyband-b-brave-maakt-na-negen-jaar-comeback-wel-met-een-lid-minder~a3d3a8996/)
+  > In navolging van Mainstreet keert ook boyband B-Brave terug. De groep gaat na zo’n negen jaar weer optreden, is bekendgemaakt via sociale media.
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Starbucks Korea ontketent nationale rel met ‘Tank Day’-campagne](https://fd.nl/bedrijfsleven/1597600/starbucks-korea-ontketent-nationale-rel-met-tank-day-campagne)
+  > De koffieketen kwam met een marketingcampagne die door velen werd opgevat als het bespotten van een van de belangrijkste historische gebeurtenissen...
 - [ECB-lid: renteverhoging nodig om geloofwaardigheid te behouden](https://fd.nl/economie/1597741/ecb-lid-renteverhoging-nodig-om-geloofwaardigheid-te-behouden)
   > ECB-lid Yannis Stournaris zegt dat de ECB waarschijnlijk de rente moet verhogen in juni.
-- [Urgenda-oprichter Marjan Minnesma (59) overleden](https://fd.nl/politiek/1597630/oprichter-urgenda-marjan-minnesma-59-overleden)
+- [Klimaatvoorvechter Marjan Minnesma (59) dwong de Nederlandse overheid bij de rechter op haar knieën](https://fd.nl/politiek/1597630/oprichter-urgenda-marjan-minnesma-59-overleden)
   > De directeur van Urgenda, Marjan Minnesma, is op 59-jarige leeftijd overleden.
 - [90 doden bij explosie in Chinese koolmijn](https://fd.nl/samenleving/1597740/90-doden-bij-explosie-in-chinese-koolmijn)
   > Een gasexplosie in een Chinese koolmijn heeft 90 mensen het leven gekost.
 - [‘Rotterdam kan beter, maar de gemeentepolitiek richt zich te vaak op lokale thema’s’](https://fd.nl/opinie/1597509/rotterdam-kan-beter-maar-de-gemeentepolitiek-richt-zich-te-vaak-op-lokale-themas-en-andere-lezersreacties)
   > De lezers van het FD reageren op het heruitvinden van een industrie- of havenstad, het versterken van de Europese Unie en het Kadaster die de...
-- [Wacht Europa een koude winter? En zijn de superrijken goed voor de democratie?](https://fd.nl/economie/1597691/wacht-europa-een-koude-winter-en-zijn-de-superrijken-goed-voor-de-democratie)
-  > In deze Toegevoegde Waarde bespreken Anna Dijkman en Marijn Jongsma de hogere eisen die Europa stelt aan methaanuitstoot. Dat levert dreigende taal...
 
 ### Meest gelezen
 
