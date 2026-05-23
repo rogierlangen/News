@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-05-2026 om 13:45*
+*Laatst bijgewerkt: 23-05-2026 om 15:04*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Drone-aanvallen tussen Rusland en Oekraïne, olie-industrie wederom doelwit](https://nos.nl/l/2615564)
+  > De afgelopen 24 uur zijn opnieuw grootschalige aanvallen over en weer gemeld tussen Rusland en Oekraïne. Daarbij zijn ook doden gevallen. De...
+- [Politie vindt veertig dode dieren in Winschoten, verdachte (21) opgepakt](https://nos.nl/l/2615558)
+  > Na een anonieme melding heeft de politie gisteren veertig dode dieren aangetroffen in een schuur in Winschoten, waaronder schapen, lammeren en een...
+- [Franse minister: Israëlische Ben-Gvir niet meer welkom op Frans grondgebied](https://nos.nl/l/2615557)
+  > De extreemrechtse Israëlische minister van Veiligheid Itamar Ben-Gvir is niet meer welkom op Frans grondgebied. Dat schrijft de Franse minister van...
 - [Extra waterpunten, een smeerstraat en zelfs een schuimparty tijdens warm pinksterweekend](https://nos.nl/l/2615551)
   > Extra veel waterpunten, gratis zonnebrand in een smeerstraat en zelfs een schuimparty. Overal in Nederland zijn maatregelen genomen om te voorkomen...
 - [Zij kwamen als vluchtelingen naar Nederland toe: 'Niemand wil zijn thuisland verlaten'](https://nos.nl/l/2615549)
   > Een overvol opvangcentrum in Ter Apel, azc-protesten in Loosdrecht en Apeldoorn. Het gaat in het maatschappelijke debat de afgelopen weken veel over...
-- [Zweefvliegtuig stort neer op Duitse snelweg, één dode](https://nos.nl/l/2615547)
-  > In Duitsland is een zweefvliegtuig neergestort op een snelweg. Van de twee mannen in het toestel is er één overleden. De andere is zwaargewond. Hij...
-- [Landelijke politici blijven actief op X, ondanks enorme hoeveelheid bedreigingen](https://nos.nl/l/2615544)
-  > Op platform X ontvangen landelijke politici veel meer bedreigingen en haatberichten dan bekend is bij justitie. Haagse politici maakten vorig jaar...
-- [Drie nieuwe ebola-besmettingen in Uganda na uitbraak in Congo](https://nos.nl/l/2615535)
-  > Uganda heeft drie nieuwe ebola-besmettingen gemeld. Het gaat om een chauffeur die de eerste bevestigde patiënt in het land vervoerde en een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Meer dan 500 kinderen overleden door mazelen in Bangladesh](https://www.ad.nl/buitenland/meer-dan-500-kinderen-overleden-door-mazelen-in-bangladesh~a109ca65/)
-  > Een mazelenepidemie in Bangladesh heeft tot dusver aan meer dan vijfhonderd kinderen het leven gekost, waarmee het een van de dodelijkste uitbraken...
-- [Ongemakkelijk wc-moment van Nederlandse Niek gaat de wereld over: is zijn weggesmeten telefoon nog heel?](https://www.ad.nl/show/ongemakkelijk-wc-moment-van-nederlandse-niek-gaat-de-wereld-over-is-zijn-weggesmeten-telefoon-nog-heel~ac3e7456/)
-  > De Nederlandse contentmaker en influencer Niek Velner (24) gaat de wereld over met een sketch van dertien seconden over een ongemakkelijk wc-moment....
-- [Nepbod van 8 ton, vervalst briefpapier, voorschot voor keuring: zo misbruikt oplichter naam van directeur PEC Zwolle](https://www.ad.nl/binnenland/nepbod-van-8-ton-vervalst-briefpapier-voorschot-voor-keuring-zo-misbruikt-oplichter-naam-van-directeur-pec-zwolle~ae1f5af0/)
-  > ‘Klopt dit nummer van Gerry Hamstra?’ Dat appje is het begin van een zoektocht van deze site die leidt naar een mogelijke oplichter. Met een...
-- [Hij sloeg ooit tegenstander knock-out in een jeugdwedstrijd en kreeg rood: nu staat Usyk tegenover Rico Verhoeven](https://www.ad.nl/vechtsport/hij-sloeg-ooit-tegenstander-knock-out-in-een-jeugdwedstrijd-en-kreeg-rood-nu-staat-usyk-tegenover-rico-verhoeven~a884b370/)
-  > In binnen- en buitenland wordt er al geruime tijd naartoe geleefd: de boksclash van Rico Verhoeven tegen Oleksandr Usyk vanavond in Egypte. Maar wie...
-- [Boyband B-Brave maakt na negen jaar comeback, wel met een lid minder](https://www.ad.nl/show/boyband-b-brave-maakt-na-negen-jaar-comeback-wel-met-een-lid-minder~a3d3a8996/)
-  > In navolging van Mainstreet keert ook boyband B-Brave terug. De groep gaat na zo’n negen jaar weer optreden, is bekendgemaakt via sociale media.
+- [Frits Spits vond na dood van zijn vrouw weer de liefde: ‘Ben ontzettend blij en gelukkig dat ik het wonder beleef’](https://www.ad.nl/mezza/frits-spits-vond-na-dood-van-zijn-vrouw-weer-de-liefde-ben-ontzettend-blij-en-gelukkig-dat-ik-het-wonder-beleef~ad9cd556/)
+  > Tussen het strijken, fietsen en voorlezen door maakt radiocoryfee en taalliefhebber Frits Spits (78) de balans op. In ons weekendmagazine Mezza...
+- [Willem II zet stap richting eredivisie: Tilburgers verdubbelen voorsprong tegen FC Volendam](https://www.ad.nl/voetbal/willem-ii-zet-stap-richting-eredivisie-tilburgers-verdubbelen-voorsprong-tegen-fc-volendam~ab9c8ef0/)
+  > FC Volendam of Willem II. Voor een van deze twee clubs is het laatste plekje in de VriendenLoterij Eredivisie van volgend seizoen. Promoveert Willem...
+- [Red Bull-teambaas stipt problemen Verstappen aan, F1-legende slachtoffer van gewelddadige roofoverval](https://www.ad.nl/formule-1/red-bull-teambaas-stipt-problemen-verstappen-aan-f1-legende-slachtoffer-van-gewelddadige-roofoverval~aed94a82/)
+  > Dit weekend staat de vijfde race van dit jaar op het programma in de Formule 1, de Grand Prix van Canada. De coureurs gaan racen op het Circuit...
+- [Vingegaard valt aan op slotklim, Arensman strijdt voor podiumplek](https://www.ad.nl/giro/vingegaard-valt-aan-op-slotklim-arensman-strijdt-voor-podiumplek~a4c7fa36/)
+  > De veertiende etappe van de Giro d’Italia is dit jaar misschien wel de zwaarste van allemaal. Voor het eerst krijgen de renners te maken met meerdere...
+- [Water, petje, zonnebrand? Zo kan het ook: drie alternatieven om de hitte te trotseren](https://www.ad.nl/nieuws/water-petje-zonnebrand-zo-kan-het-ook-drie-alternatieven-om-de-hitte-te-trotseren~a4d938f2/)
+  > Drink water, smeer zonnebrandcrème en draag een petje. Het hitteadvies is net zo’n cliché als de suggestie van de helpdeskmedewerker om bij een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Tienduizenden demonstranten in Spanje eisen vertrek Sánchez na corruptieschandaal](https://fd.nl/politiek/1597742/tienduizenden-demonstranten-in-spanje-eisen-vertrek-sanchez-na-corruptieschandaal)
+  > Demonstranten eisen dat de Spaanse premier Pedro Sánchez vertrekt vanwege een recent aan het licht gekomen corruptieschandaal.
+- [Treinverkeer rond Utrecht weer opgestart na spoorblokkade XR-demonstranten](https://fd.nl/politiek/1597631/treinverkeer-rond-utrecht-weer-opgestart-na-spoorblokkade-xr-demonstranten)
+  > Demonstranten van Extinction Rebellion hebben voor een korte periode het spoor bij Utrecht Centraal geblokkeerd.
 - [Starbucks Korea ontketent nationale rel met ‘Tank Day’-campagne](https://fd.nl/bedrijfsleven/1597600/starbucks-korea-ontketent-nationale-rel-met-tank-day-campagne)
   > De koffieketen kwam met een marketingcampagne die door velen werd opgevat als het bespotten van een van de belangrijkste historische gebeurtenissen...
 - [ECB-lid: renteverhoging nodig om geloofwaardigheid te behouden](https://fd.nl/economie/1597741/ecb-lid-renteverhoging-nodig-om-geloofwaardigheid-te-behouden)
   > ECB-lid Yannis Stournaris zegt dat de ECB waarschijnlijk de rente moet verhogen in juni.
 - [Klimaatvoorvechter Marjan Minnesma (59) dwong de Nederlandse overheid bij de rechter op haar knieën](https://fd.nl/politiek/1597630/oprichter-urgenda-marjan-minnesma-59-overleden)
   > De directeur van Urgenda, Marjan Minnesma, is op 59-jarige leeftijd overleden.
-- [90 doden bij explosie in Chinese koolmijn](https://fd.nl/samenleving/1597740/90-doden-bij-explosie-in-chinese-koolmijn)
-  > Een gasexplosie in een Chinese koolmijn heeft 90 mensen het leven gekost.
-- [‘Rotterdam kan beter, maar de gemeentepolitiek richt zich te vaak op lokale thema’s’](https://fd.nl/opinie/1597509/rotterdam-kan-beter-maar-de-gemeentepolitiek-richt-zich-te-vaak-op-lokale-themas-en-andere-lezersreacties)
-  > De lezers van het FD reageren op het heruitvinden van een industrie- of havenstad, het versterken van de Europese Unie en het Kadaster die de...
 
 ### Meest gelezen
 
