@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-05-2026 om 03:39*
+*Laatst bijgewerkt: 23-05-2026 om 06:36*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Duizenden mensen geëvacueerd om lekkende chemische tank Zuid-Californië](https://nos.nl/l/2615492)
-  > In het zuiden van de Amerikaanse staat Californië hebben ongeveer 40.000 mensen een evacuatiebevel gekregen vanwege het risico op een explosie bij...
-- [Acht doden en tientallen mijnwerkers vast na explosie in Chinese mijn](https://nos.nl/l/2615491)
-  > Bij een gasexplosie in een kolenmijn in het noorden van China zijn zeker acht mensen om het leven gekomen. Ook zitten nog 38 mijnwerkers vast onder...
-- [SpaceX lanceert succesvolle testvlucht met vernieuwde Starship](https://nos.nl/l/2615490)
-  > Ruimtevaartbedrijf SpaceX heeft vrijdag met succes een nieuwe versie van zijn megaraket Starship gelanceerd. Het gaat om het grootste en krachtigste...
-- [Twee doden bij aanrijding tussen auto en motor in Eerbeek](https://nos.nl/l/2615489)
-  > Bij een ernstig ongeval op de Harderwijkerweg in Eerbeek zijn vrijdagavond laat twee doden gevallen. Een motorrijder en een personenauto kwamen rond...
-- [Rouwbijeenkomsten verboden in Congo nu ebolavirus nog verder om zich heen grijpt](https://nos.nl/l/2615484)
-  > De Wereldgezondheidsorganisatie (WHO) heeft het risico op verdere verspreiding van ebola in de Democratische Republiek Congo opgeschaald naar "zeer...
+- [Zeker tien doden na nieuwe Israëlische luchtaanvallen in Libanon](https://nos.nl/l/2615507)
+  > In Libanon zijn door Israëlische luchtaanvallen zeker tien mensen omgekomen, onder wie zes ambulancemedewerkers, meldt het Libanese ministerie van...
+- [Rapper Rob Base (It takes two) overleden op 59-jarige leeftijd](https://nos.nl/l/2615506)
+  > De Amerikaanse rapper Rob Base is op 59-jarige leeftijd overleden aan kanker. Hij was eind jaren 80 een van de eerste rappers die ook bij het grote...
+- [Slecht zicht in doodlopende grot werd duikers Malediven waarschijnlijk fataal](https://nos.nl/l/2615503)
+  > De vijf duikers die vorige week omkwamen op de Malediven, waren mogelijk de weg kwijtgeraakt door opgeroerd zand. Leden van het team dat hun lichamen...
+- [Wekdienst 23/5: Beslissende wedstrijd degradatiestrijd • Utrecht verbiedt spoordemonstratie](https://nos.nl/l/2615502)
+  > Goedemorgen! In Volendam speelt de gelijknamige voetbalclub vandaag een spannende wedstrijd tegen Willem II. Het duel zal beslissen wie er komend...
+- [Boegeroep voor Canal+ op filmfestival van Cannes, 3500 prominenten tekenen petitie](https://nos.nl/l/2615495)
+  > Op het filmfestival in Cannes is een van de grootste financiers en producenten van de Franse cinema meermaals uitgejoeld. Het protest tegen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Canadese provincie Alberta stemt in oktober over mogelijke afscheiding](https://www.ad.nl/buitenland/canadese-provincie-alberta-stemt-in-oktober-over-mogelijke-afscheiding~a6241c34/)
-  > In de Canadese provincie Alberta kunnen de inwoners in oktober beslissen of er al dan niet een bindend referendum moet komen over een afscheiding....
-- [Dode bij reeks explosies in New York, tientallen brandweerlieden gewond](https://www.ad.nl/buitenland/dode-bij-reeks-explosies-in-new-york-tientallen-brandweerlieden-gewond~aacf91c8/)
-  > Bij een brand en een reeks explosies in een droogdok op een scheepswerf in het New Yorkse stadsdeel Staten Island is vrijdag een persoon om het leven...
-- [‘Hartstikke warm’ weekend van start, lokaal kans op 30 graden](https://www.ad.nl/binnenland/hartstikke-warm-weekend-van-start-lokaal-kans-op-30-graden~a31fe1b0/)
-  > Het is ‘hartstikke warm’ voor de tijd van het jaar en dat blijft de komende paar dagen zo. De hoogste temperaturen worden zaterdag in Brabant en...
-- [Duizenden mensen geëvacueerd bij Los Angeles om defecte chemische tank: ‘Hij begeeft het of explodeert’](https://www.ad.nl/buitenland/duizenden-mensen-geevacueerd-bij-los-angeles-om-defecte-chemische-tank-hij-begeeft-het-of-explodeert~af88bcc72/)
-  > Zo’n 40.000 inwoners even ten zuidoosten van Los Angeles zijn vrijdag opgeroepen om te evacueren vanwege een probleem met een chemische tank. De tank...
-- [Acht doden na gasexplosie in Chinese kolenmijn, nog tientallen mijnwerkers zitten vast](https://www.ad.nl/buitenland/acht-doden-na-gasexplosie-in-chinese-kolenmijn-nog-tientallen-mijnwerkers-zitten-vast~af7a98d7/)
-  > Bij een gasexplosie in een kolenmijn bij de Chinese stad Changzi zijn zeker acht mijnwerkers om het leven gekomen. Volgens de laatste berichten...
+- [School blijft weg bij avondvierdaagse , maar moeder Jolanda loopt tóch met Aimee (9): ‘Laat haar niet wegpesten’](https://www.ad.nl/binnenland/school-blijft-weg-bij-avondvierdaagse-maar-moeder-jolanda-loopt-toch-met-aimee-9-laat-haar-niet-wegpesten~abf76caa/)
+  > Mongooltjes. Downies. Leerlingen van speciaalonderwijsschool De Korenburg in Winterswijk krijgen zoveel naar hun hoofd geslingerd dat de directie hen...
+- [Amsterdam en Houten starten proef met maximum snelheid van 20 kilometer per uur voor fietsers](https://www.ad.nl/binnenland/amsterdam-en-houten-starten-proef-met-maximum-snelheid-van-20-kilometer-per-uur-voor-fietsers~a2306cd1/)
+  > In Houten en Amsterdam start binnenkort een proef met een opmerkelijke nieuwe verkeersregel: een maximumsnelheid van 20 kilometer per uur op het...
+- [CBS News: VS bereidt nieuwe aanvallen op Iran voor, bemiddelaar Pakistan spreekt met Iran](https://www.ad.nl/buitenland/cbs-news-vs-bereidt-nieuwe-aanvallen-op-iran-voor-bemiddelaar-pakistan-spreekt-met-iran~ac528ac3/)
+  > De Amerikaanse regering bereidt zich voor op een nieuwe reeks militaire aanvallen op Iran, melden bronnen aan CBS News. Ondertussen heeft de...
+- [Tijden Formule 1 Grand Prix van Canada | Zo laat komt Max Verstappen vandaag in actie tijdens de sprintrace en dit is de startopstelling](https://www.ad.nl/formule-1/tijden-formule-1-grand-prix-van-canada-zo-laat-komt-max-verstappen-vandaag-in-actie-tijdens-de-sprintrace-en-dit-is-de-startopstelling~ab4cf035/)
+  > Na een onderbreking van vijf weken moesten de Formule 1-coureurs weer een tijdje wachten op de volgende race. De Grand Prix van Canada staat dit...
+- [Andere aanpak werkt voor Lewis Hamilton: ‘Dit was mijn beste kwalificatiesessie in lange tijd’](https://www.ad.nl/formule-1/andere-aanpak-werkt-voor-lewis-hamilton-dit-was-mijn-beste-kwalificatiesessie-in-lange-tijd~aed94a82/)
+  > Dit weekend staat de vijfde race van dit jaar op het programma in de Formule 1, de Grand Prix van Canada. De coureurs gaan racen op het Circuit...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [‘Rotterdam kan beter, maar de gemeentepolitiek richt zich te vaak op lokale thema’s’](https://fd.nl/opinie/1597509/rotterdam-kan-beter-maar-de-gemeentepolitiek-richt-zich-te-vaak-op-lokale-themas-en-andere-lezersreacties)
+  > De lezers van het FD reageren op het heruitvinden van een industrie- of havenstad, het versterken van de Europese Unie en het Kadaster die de...
 - [Wacht Europa een koude winter? En zijn de superrijken goed voor de democratie?](https://fd.nl/economie/1597691/wacht-europa-een-koude-winter-en-zijn-de-superrijken-goed-voor-de-democratie)
   > In deze Toegevoegde Waarde bespreken Anna Dijkman en Marijn Jongsma de hogere eisen die Europa stelt aan methaanuitstoot. Dat levert dreigende taal...
 - [Elon Musk en de lancering](https://fd.nl/opinie/1597472/elon-musk-en-de-lancering)
@@ -54,8 +56,6 @@
   > Een nieuw rapport pleit ervoor om hard terug te slaan. Kan het ook anders? Ja, schrijft FD-columnist Mathijs Bouman. Vernieuwing en versterking van...
 - [Het grote AI-experiment van Prosus: veel mislukkingen, maar ook veelbelovend](https://fd.nl/tech-en-innovatie/1597469/het-grote-ai-experiment-van-prosus-veel-mislukkingen-maar-ook-veelbelovend)
   > Bij techinvesteerder Prosus ‘werken’ nu ook zestigduizend AI-agents, waarvan het merendeel weinig oplevert. Maar dat geeft niet, zegt hoofd AI Euro...
-- [Chique ijsblokjes](https://fd.nl/samenleving/1597380/chique-ijsblokjes)
-  > Bevroren water mag wat kosten. Met Nicecubes maakt Carlo Bakker luxe ijs voor in cocktails.
 
 ### Meest gelezen
 
