@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-05-2026 om 15:04*
+*Laatst bijgewerkt: 23-05-2026 om 17:04*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Tienduizenden bij protest in Madrid tegen regering-Sánchez](https://nos.nl/l/2615571)
+  > In Madrid zijn vele tienduizenden mensen de straat op gegaan om te demonstreren tegen premier Sánchez en zijn regering. De regering ligt onder vuur...
+- [Hasso Herschel overleden, smokkelde vluchtelingen ónder de Berlijnse Muur door](https://nos.nl/l/2615568)
+  > In Duitsland is op 91-jarige leeftijd Hasso Herschel overleden. Hij zat in de Koude Oorlog letterlijk bij het ondergrondse verzet tegen de DDR: hij...
 - [Drone-aanvallen tussen Rusland en Oekraïne, olie-industrie wederom doelwit](https://nos.nl/l/2615564)
   > De afgelopen 24 uur zijn opnieuw grootschalige aanvallen over en weer gemeld tussen Rusland en Oekraïne. Daarbij zijn ook doden gevallen. De...
 - [Politie vindt veertig dode dieren in Winschoten, verdachte (21) opgepakt](https://nos.nl/l/2615558)
   > Na een anonieme melding heeft de politie gisteren veertig dode dieren aangetroffen in een schuur in Winschoten, waaronder schapen, lammeren en een...
 - [Franse minister: Israëlische Ben-Gvir niet meer welkom op Frans grondgebied](https://nos.nl/l/2615557)
   > De extreemrechtse Israëlische minister van Veiligheid Itamar Ben-Gvir is niet meer welkom op Frans grondgebied. Dat schrijft de Franse minister van...
-- [Extra waterpunten, een smeerstraat en zelfs een schuimparty tijdens warm pinksterweekend](https://nos.nl/l/2615551)
-  > Extra veel waterpunten, gratis zonnebrand in een smeerstraat en zelfs een schuimparty. Overal in Nederland zijn maatregelen genomen om te voorkomen...
-- [Zij kwamen als vluchtelingen naar Nederland toe: 'Niemand wil zijn thuisland verlaten'](https://nos.nl/l/2615549)
-  > Een overvol opvangcentrum in Ter Apel, azc-protesten in Loosdrecht en Apeldoorn. Het gaat in het maatschappelijke debat de afgelopen weken veel over...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Frits Spits vond na dood van zijn vrouw weer de liefde: ‘Ben ontzettend blij en gelukkig dat ik het wonder beleef’](https://www.ad.nl/mezza/frits-spits-vond-na-dood-van-zijn-vrouw-weer-de-liefde-ben-ontzettend-blij-en-gelukkig-dat-ik-het-wonder-beleef~ad9cd556/)
-  > Tussen het strijken, fietsen en voorlezen door maakt radiocoryfee en taalliefhebber Frits Spits (78) de balans op. In ons weekendmagazine Mezza...
-- [Willem II zet stap richting eredivisie: Tilburgers verdubbelen voorsprong tegen FC Volendam](https://www.ad.nl/voetbal/willem-ii-zet-stap-richting-eredivisie-tilburgers-verdubbelen-voorsprong-tegen-fc-volendam~ab9c8ef0/)
+- [Streep door goal Mühren in verlenging: FC Volendam en Willen II vechten om plek in eredivisie](https://www.ad.nl/voetbal/streep-door-goal-muhren-in-verlenging-fc-volendam-en-willen-ii-vechten-om-plek-in-eredivisie~ab9c8ef0/)
   > FC Volendam of Willem II. Voor een van deze twee clubs is het laatste plekje in de VriendenLoterij Eredivisie van volgend seizoen. Promoveert Willem...
-- [Red Bull-teambaas stipt problemen Verstappen aan, F1-legende slachtoffer van gewelddadige roofoverval](https://www.ad.nl/formule-1/red-bull-teambaas-stipt-problemen-verstappen-aan-f1-legende-slachtoffer-van-gewelddadige-roofoverval~aed94a82/)
-  > Dit weekend staat de vijfde race van dit jaar op het programma in de Formule 1, de Grand Prix van Canada. De coureurs gaan racen op het Circuit...
-- [Vingegaard valt aan op slotklim, Arensman strijdt voor podiumplek](https://www.ad.nl/giro/vingegaard-valt-aan-op-slotklim-arensman-strijdt-voor-podiumplek~a4c7fa36/)
-  > De veertiende etappe van de Giro d’Italia is dit jaar misschien wel de zwaarste van allemaal. Voor het eerst krijgen de renners te maken met meerdere...
-- [Water, petje, zonnebrand? Zo kan het ook: drie alternatieven om de hitte te trotseren](https://www.ad.nl/nieuws/water-petje-zonnebrand-zo-kan-het-ook-drie-alternatieven-om-de-hitte-te-trotseren~a4d938f2/)
-  > Drink water, smeer zonnebrandcrème en draag een petje. Het hitteadvies is net zo’n cliché als de suggestie van de helpdeskmedewerker om bij een...
+- [Zo laat komt Max Verstappen vandaag in actie tijdens de kwalificatie in Montréal](https://www.ad.nl/formule-1/zo-laat-komt-max-verstappen-vandaag-in-actie-tijdens-de-kwalificatie-in-montreal~ab4cf035/)
+  > Na een onderbreking van vijf weken moesten de Formule 1-coureurs weer een tijdje wachten op de volgende race. De Grand Prix van Canada staat dit...
+- [Verstappen moet na kleurloze sprintrace genoegen nemen met P7, Russell wint felle strijd van Antonelli](https://www.ad.nl/formule-1/verstappen-moet-na-kleurloze-sprintrace-genoegen-nemen-met-p7-russell-wint-felle-strijd-van-antonelli~a480921c/)
+  > Max Verstappen vreesde al voor een bijrol, na zijn zevende plaats in de moeizame sprintkwalificatie. En een bijrol werd het in de eerste sprintrace...
+- [Politie vindt 40 dode dieren in schuur, man (21) aangehouden](https://www.ad.nl/binnenland/politie-vindt-40-dode-dieren-in-schuur-man-21-aangehouden~add78957/)
+  > In een schuur in het Groningse Winschoten heeft de politie veertig dode dieren gevonden. Het waren schapen, lammeren en een kalf. Ook waren er 160...
+- [In Nederland zwerfvuil, in Japan en Duitsland niet: 'Daar word je door je omgeving gecorrigeerd'](https://www.ad.nl/binnenland/in-nederland-zwerfvuil-in-japan-en-duitsland-niet-daar-word-je-door-je-omgeving-gecorrigeerd~afb0be15/)
+  > Frietresten, pizzadozen en plastic zooi: zwerfafval ergert ons mateloos. En toch liggen onze straten en het buitengebied er vol mee. Wat zegt dat...
 
 ### Meest gelezen
 
