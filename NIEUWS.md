@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-05-2026 om 06:36*
+*Laatst bijgewerkt: 23-05-2026 om 09:04*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Zeker tien doden na nieuwe Israëlische luchtaanvallen in Libanon](https://nos.nl/l/2615507)
-  > In Libanon zijn door Israëlische luchtaanvallen zeker tien mensen omgekomen, onder wie zes ambulancemedewerkers, meldt het Libanese ministerie van...
-- [Rapper Rob Base (It takes two) overleden op 59-jarige leeftijd](https://nos.nl/l/2615506)
-  > De Amerikaanse rapper Rob Base is op 59-jarige leeftijd overleden aan kanker. Hij was eind jaren 80 een van de eerste rappers die ook bij het grote...
-- [Slecht zicht in doodlopende grot werd duikers Malediven waarschijnlijk fataal](https://nos.nl/l/2615503)
-  > De vijf duikers die vorige week omkwamen op de Malediven, waren mogelijk de weg kwijtgeraakt door opgeroerd zand. Leden van het team dat hun lichamen...
-- [Wekdienst 23/5: Beslissende wedstrijd degradatiestrijd • Utrecht verbiedt spoordemonstratie](https://nos.nl/l/2615502)
-  > Goedemorgen! In Volendam speelt de gelijknamige voetbalclub vandaag een spannende wedstrijd tegen Willem II. Het duel zal beslissen wie er komend...
-- [Boegeroep voor Canal+ op filmfestival van Cannes, 3500 prominenten tekenen petitie](https://nos.nl/l/2615495)
-  > Op het filmfestival in Cannes is een van de grootste financiers en producenten van de Franse cinema meermaals uitgejoeld. Het protest tegen...
+- [Qmusic-presentator Marieke Elsinga breekt voet tijdens opname](https://nos.nl/l/2615517)
+  > Presentator Marieke Elsinga van Qmusic heeft tijdens opnames van haar radioprogramma haar voet gebroken. Ze maakte een misstap toen ze bezig was met...
+- [Vakbond vs. landsbelang: ruzie in Zuid-Korea over winstverdeling chipafdeling Samsung](https://nos.nl/l/2615515)
+  > Het is al lange tijd onrustig bij de Zuid-Koreaanse techreus Samsung Electronics, het grootste bedrijf van het land. Na maanden van onderhandelingen,...
+- [Rechter VS wijst smokkelzaak tegen Abrego Garcia af: 'Wraakzucht en machtsmisbruik'](https://nos.nl/l/2615514)
+  > Een federale rechter in de VS heeft de mensensmokkelzaak verworpen tegen de vorig jaar onterecht uitgezette Kilmar Abrego Garcia. Volgens de rechter...
+- [Podcast De Dag: schokkende hartimplantaten](https://nos.nl/l/2615512)
+  > In Nederland lopen zeker duizend patiënten rond met hartimplantaten die een grotere kans hebben dat ze onnodige shocks geven - soms tientallen keren...
+- [Dode na grote woningbrand in Amsterdam](https://nos.nl/l/2615510)
+  > Bij een grote brand in het centrum van Amsterdam is een dodelijk slachtoffer gevallen. Dat meldt de veiligheidsregio Amsterdam-Amstelland op X. De...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [School blijft weg bij avondvierdaagse , maar moeder Jolanda loopt tóch met Aimee (9): ‘Laat haar niet wegpesten’](https://www.ad.nl/binnenland/school-blijft-weg-bij-avondvierdaagse-maar-moeder-jolanda-loopt-toch-met-aimee-9-laat-haar-niet-wegpesten~abf76caa/)
-  > Mongooltjes. Downies. Leerlingen van speciaalonderwijsschool De Korenburg in Winterswijk krijgen zoveel naar hun hoofd geslingerd dat de directie hen...
-- [Amsterdam en Houten starten proef met maximum snelheid van 20 kilometer per uur voor fietsers](https://www.ad.nl/binnenland/amsterdam-en-houten-starten-proef-met-maximum-snelheid-van-20-kilometer-per-uur-voor-fietsers~a2306cd1/)
-  > In Houten en Amsterdam start binnenkort een proef met een opmerkelijke nieuwe verkeersregel: een maximumsnelheid van 20 kilometer per uur op het...
-- [CBS News: VS bereidt nieuwe aanvallen op Iran voor, bemiddelaar Pakistan spreekt met Iran](https://www.ad.nl/buitenland/cbs-news-vs-bereidt-nieuwe-aanvallen-op-iran-voor-bemiddelaar-pakistan-spreekt-met-iran~ac528ac3/)
-  > De Amerikaanse regering bereidt zich voor op een nieuwe reeks militaire aanvallen op Iran, melden bronnen aan CBS News. Ondertussen heeft de...
-- [Tijden Formule 1 Grand Prix van Canada | Zo laat komt Max Verstappen vandaag in actie tijdens de sprintrace en dit is de startopstelling](https://www.ad.nl/formule-1/tijden-formule-1-grand-prix-van-canada-zo-laat-komt-max-verstappen-vandaag-in-actie-tijdens-de-sprintrace-en-dit-is-de-startopstelling~ab4cf035/)
-  > Na een onderbreking van vijf weken moesten de Formule 1-coureurs weer een tijdje wachten op de volgende race. De Grand Prix van Canada staat dit...
-- [Andere aanpak werkt voor Lewis Hamilton: ‘Dit was mijn beste kwalificatiesessie in lange tijd’](https://www.ad.nl/formule-1/andere-aanpak-werkt-voor-lewis-hamilton-dit-was-mijn-beste-kwalificatiesessie-in-lange-tijd~aed94a82/)
-  > Dit weekend staat de vijfde race van dit jaar op het programma in de Formule 1, de Grand Prix van Canada. De coureurs gaan racen op het Circuit...
+- [Nieuwe zwemkleding nodig? ‘Als je het gevoel hebt dat de bandjes je borsten liften, draag je de verkeerde maat’](https://www.ad.nl/gezond/nieuwe-zwemkleding-nodig-als-je-het-gevoel-hebt-dat-de-bandjes-je-borsten-liften-draag-je-de-verkeerde-maat~aae59556/)
+  > Een nieuwe beha of bikini kopen is voor veel vrouwen een enorme uitdaging. „Gemiddeld kopen Nederlandse vrouwen anderhalve beha per jaar”, zegt een...
+- [Regering-Trump stelt harde eis aan WK-ploeg Congo vanwege ebola: eerst 21 dagen quarantaine of land niet in](https://www.ad.nl/wk-voetbal/regering-trump-stelt-harde-eis-aan-wk-ploeg-congo-vanwege-ebola-eerst-21-dagen-quarantaine-of-land-niet-in~aec8e0517/)
+  > Het nationale voetbalteam van de Democratische Republiek Congo moet vanwege ebola voorafgaand aan het WK 21 dagen lang in quarantaine blijven....
+- [D-day voor Rico Verhoeven bij de piramides: kansloos? ‘Krijg zo’n tikkie maar eens op je neus’](https://www.ad.nl/vechtsport/d-day-voor-rico-verhoeven-bij-de-piramides-kansloos-krijg-zon-tikkie-maar-eens-op-je-neus~a7a6e233/)
+  > Wordt iconisch ook historisch? En wordt zaterdag 23 mei 2026 een dag voor de eeuwigheid in de Nederlandse sporthistorie? Het is D-day voor Rico...
+- [Ongekende stap: politie roept slachtoffers Andrew zich te melden om hem voor de rechter te krijgen](https://www.ad.nl/buitenland/ongekende-stap-politie-roept-slachtoffers-andrew-zich-te-melden-om-hem-voor-de-rechter-te-krijgen~a8999bde/)
+  > De Britse politie roept slachtoffers van seksueel wangedrag van prins Andrew op om zich te melden op het bureau. Justitie vraagt ook ooggetuigen van...
+- [Rode Kruis maakt zich zorgen over Ter Apel: ‘Onbegrijpelijk dat er geen echte oplossing is gevonden’](https://www.ad.nl/binnenland/rode-kruis-maakt-zich-zorgen-over-ter-apel-onbegrijpelijk-dat-er-geen-echte-oplossing-is-gevonden~a40f4ab2/)
+  > Het Rode Kruis is opgelucht dat een groep asielzoekers in de nacht van vrijdag op zaterdag een slaapplek had in het Groningse Stadskanaal. De...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [90 doden bij explosie in Chinese koolmijn](https://fd.nl/samenleving/1597740/90-doden-bij-explosie-in-chinese-koolmijn)
+  > Een gasexplosie in een Chinese koolmijn heeft 90 mensen het leven gekost.
 - [‘Rotterdam kan beter, maar de gemeentepolitiek richt zich te vaak op lokale thema’s’](https://fd.nl/opinie/1597509/rotterdam-kan-beter-maar-de-gemeentepolitiek-richt-zich-te-vaak-op-lokale-themas-en-andere-lezersreacties)
   > De lezers van het FD reageren op het heruitvinden van een industrie- of havenstad, het versterken van de Europese Unie en het Kadaster die de...
 - [Wacht Europa een koude winter? En zijn de superrijken goed voor de democratie?](https://fd.nl/economie/1597691/wacht-europa-een-koude-winter-en-zijn-de-superrijken-goed-voor-de-democratie)
@@ -54,8 +56,6 @@
   > Wie in SpaceX stapt, koopt geen winstmachine maar een droom – of een waanidee. Over Elon Musk, raketlanceringen en de vraag hoeveel ‘good vibrations’...
 - [Tweede China-schok raakt Europese industrie midscheeps](https://fd.nl/politiek/1597470/tweede-china-schok-raakt-europese-industrie-midscheeps)
   > Een nieuw rapport pleit ervoor om hard terug te slaan. Kan het ook anders? Ja, schrijft FD-columnist Mathijs Bouman. Vernieuwing en versterking van...
-- [Het grote AI-experiment van Prosus: veel mislukkingen, maar ook veelbelovend](https://fd.nl/tech-en-innovatie/1597469/het-grote-ai-experiment-van-prosus-veel-mislukkingen-maar-ook-veelbelovend)
-  > Bij techinvesteerder Prosus ‘werken’ nu ook zestigduizend AI-agents, waarvan het merendeel weinig oplevert. Maar dat geeft niet, zegt hoofd AI Euro...
 
 ### Meest gelezen
 
