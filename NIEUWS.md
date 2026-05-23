@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-05-2026 om 23:04*
+*Laatst bijgewerkt: 23-05-2026 om 03:39*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Duizenden mensen geëvacueerd om lekkende chemische tank Zuid-Californië](https://nos.nl/l/2615492)
+  > In het zuiden van de Amerikaanse staat Californië hebben ongeveer 40.000 mensen een evacuatiebevel gekregen vanwege het risico op een explosie bij...
+- [Acht doden en tientallen mijnwerkers vast na explosie in Chinese mijn](https://nos.nl/l/2615491)
+  > Bij een gasexplosie in een kolenmijn in het noorden van China zijn zeker acht mensen om het leven gekomen. Ook zitten nog 38 mijnwerkers vast onder...
+- [SpaceX lanceert succesvolle testvlucht met vernieuwde Starship](https://nos.nl/l/2615490)
+  > Ruimtevaartbedrijf SpaceX heeft vrijdag met succes een nieuwe versie van zijn megaraket Starship gelanceerd. Het gaat om het grootste en krachtigste...
+- [Twee doden bij aanrijding tussen auto en motor in Eerbeek](https://nos.nl/l/2615489)
+  > Bij een ernstig ongeval op de Harderwijkerweg in Eerbeek zijn vrijdagavond laat twee doden gevallen. Een motorrijder en een personenauto kwamen rond...
 - [Rouwbijeenkomsten verboden in Congo nu ebolavirus nog verder om zich heen grijpt](https://nos.nl/l/2615484)
   > De Wereldgezondheidsorganisatie (WHO) heeft het risico op verdere verspreiding van ebola in de Democratische Republiek Congo opgeschaald naar "zeer...
-- [Stadskanaal schiet opnieuw te hulp en vangt asielzoekers Ter Apel vannacht op](https://nos.nl/l/2615482)
-  > Voor de tweede keer deze week opent de gemeente Stadskanaal een nachtopvang voor asielzoekers die niet in Ter Apel terechtkunnen vannacht. De...
-- [Eerste zomerse dag van het jaar: zo zag dat eruit](https://nos.nl/l/2615475)
-  > Het kwik tikte in De Bilt 25 graden aan, daarmee was het vandaag de eerste officiële zomerse dag van het jaar. Er werd volop genoten van de zon....
-- [Broedende meeuw zet Haagse voetbalclub buitenspel: 'Gooit hele schema in de war'](https://nos.nl/l/2615472)
-  > Bij voetbalvereniging VV Haagse Hout in Den Haag draait het de komende weken niet om doelpunten, maar om een broedende meeuw. Op het hoofdveld, pal...
-- [ProRail krijgt miljoenenboete vanwege te veel grote storingen op het spoor](https://nos.nl/l/2615469)
-  > Spoorbeheerder ProRail krijgt een boete van 2,75 miljoen euro omdat er vorig jaar te veel storingen waren met grote gevolgen voor de dienstregeling....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zo laat komt Max Verstappen in actie tijdens de sprintrace en dit is de startopstelling](https://www.ad.nl/formule-1/zo-laat-komt-max-verstappen-in-actie-tijdens-de-sprintrace-en-dit-is-de-startopstelling~ab4cf035/)
-  > Na een onderbreking van vijf weken moesten de Formule 1-coureurs weer een tijdje wachten op de volgende race. De Grand Prix van Canada staat dit...
-- [Stadskanaal opent weer nachtopvang voor asielzoekers uit Ter Apel](https://www.ad.nl/binnenland/stadskanaal-opent-weer-nachtopvang-voor-asielzoekers-uit-ter-apel~acba6310a/)
-  > De Groningse gemeente Stadskanaal gaat opnieuw asielzoekers voor een nacht opvangen die vrijdag buiten bij het overvolle aanmeldcentrum in Ter Apel...
-- [Twee oud-gevangenen (101 en 105) van Kamp Vught overleden](https://www.ad.nl/binnenland/twee-oud-gevangenen-101-en-105-van-kamp-vught-overleden~ac41e1ba/)
-  > Deze week zijn twee mensen op hoge leeftijd overleden die allebei tijdens de Tweede Wereldoorlog gevangenzaten in kamp Vught. Het Nationaal Monument...
-- [Max Verstappen sluit teleurstellende sprintkwalificatie af als zevende, George Russell slaat terug en pakt pole](https://www.ad.nl/formule-1/max-verstappen-sluit-teleurstellende-sprintkwalificatie-af-als-zevende-george-russell-slaat-terug-en-pakt-pole~a7e66a06/)
-  > Terug van een prachtavontuur op de Nürburgring is de realiteit van de Formule 1 voor Max Verstappen meteen weer pittig. Verstappen begint de...
-- [Iniesta wordt coach van Leroy Fer, Zirkzee kan naar Italië en Liverpool aast op man van 100 miljoen](https://www.ad.nl/voetbal/iniesta-wordt-coach-van-leroy-fer-zirkzee-kan-naar-italie-en-liverpool-aast-op-man-van-100-miljoen~a488141d/)
-  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
+- [Canadese provincie Alberta stemt in oktober over mogelijke afscheiding](https://www.ad.nl/buitenland/canadese-provincie-alberta-stemt-in-oktober-over-mogelijke-afscheiding~a6241c34/)
+  > In de Canadese provincie Alberta kunnen de inwoners in oktober beslissen of er al dan niet een bindend referendum moet komen over een afscheiding....
+- [Dode bij reeks explosies in New York, tientallen brandweerlieden gewond](https://www.ad.nl/buitenland/dode-bij-reeks-explosies-in-new-york-tientallen-brandweerlieden-gewond~aacf91c8/)
+  > Bij een brand en een reeks explosies in een droogdok op een scheepswerf in het New Yorkse stadsdeel Staten Island is vrijdag een persoon om het leven...
+- [‘Hartstikke warm’ weekend van start, lokaal kans op 30 graden](https://www.ad.nl/binnenland/hartstikke-warm-weekend-van-start-lokaal-kans-op-30-graden~a31fe1b0/)
+  > Het is ‘hartstikke warm’ voor de tijd van het jaar en dat blijft de komende paar dagen zo. De hoogste temperaturen worden zaterdag in Brabant en...
+- [Duizenden mensen geëvacueerd bij Los Angeles om defecte chemische tank: ‘Hij begeeft het of explodeert’](https://www.ad.nl/buitenland/duizenden-mensen-geevacueerd-bij-los-angeles-om-defecte-chemische-tank-hij-begeeft-het-of-explodeert~af88bcc72/)
+  > Zo’n 40.000 inwoners even ten zuidoosten van Los Angeles zijn vrijdag opgeroepen om te evacueren vanwege een probleem met een chemische tank. De tank...
+- [Acht doden na gasexplosie in Chinese kolenmijn, nog tientallen mijnwerkers zitten vast](https://www.ad.nl/buitenland/acht-doden-na-gasexplosie-in-chinese-kolenmijn-nog-tientallen-mijnwerkers-zitten-vast~af7a98d7/)
+  > Bij een gasexplosie in een kolenmijn bij de Chinese stad Changzi zijn zeker acht mijnwerkers om het leven gekomen. Volgens de laatste berichten...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Wacht Europa een koude winter? En zijn de superrijken goed voor de democratie?](https://fd.nl/economie/1597691/wacht-europa-een-koude-winter-en-zijn-de-superrijken-goed-voor-de-democratie)
+  > In deze Toegevoegde Waarde bespreken Anna Dijkman en Marijn Jongsma de hogere eisen die Europa stelt aan methaanuitstoot. Dat levert dreigende taal...
 - [Elon Musk en de lancering](https://fd.nl/opinie/1597472/elon-musk-en-de-lancering)
   > Wie in SpaceX stapt, koopt geen winstmachine maar een droom – of een waanidee. Over Elon Musk, raketlanceringen en de vraag hoeveel ‘good vibrations’...
 - [Tweede China-schok raakt Europese industrie midscheeps](https://fd.nl/politiek/1597470/tweede-china-schok-raakt-europese-industrie-midscheeps)
@@ -54,8 +56,6 @@
   > Bij techinvesteerder Prosus ‘werken’ nu ook zestigduizend AI-agents, waarvan het merendeel weinig oplevert. Maar dat geeft niet, zegt hoofd AI Euro...
 - [Chique ijsblokjes](https://fd.nl/samenleving/1597380/chique-ijsblokjes)
   > Bevroren water mag wat kosten. Met Nicecubes maakt Carlo Bakker luxe ijs voor in cocktails.
-- [Hoe een vader en zoon buiten de schijnwerpers een software-imperium bouwden](https://fd.nl/bedrijfsleven/1597084/hoe-een-vader-en-zoon-buiten-de-schijnwerpers-een-software-imperium-bouwden)
-  > Hans en Gerrit Mulder bouwden op eigen kracht het machtigste software-imperium in de Nederlandse zorg. Dat deden ze naar hun eigen evenbeeld:...
 
 ### Meest gelezen
 
