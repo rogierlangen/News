@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-05-2026 om 00:00*
+*Laatst bijgewerkt: 24-05-2026 om 05:03*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Man schiet op agenten bij het Witte Huis, situatie inmiddels onder controle](https://nos.nl/l/2615621)
-  > In de buurt van het Witte Huis in Washington heeft iemand bij een checkpoint op agenten geschoten. De schutter is neergeschoten en tijdens de...
+- [Wekdienst 24/5: Pelgrimstocht naar Mekka • Finale Ajax-Utrecht om laatste Europese ticket](https://nos.nl/l/2615630)
+  > Goedemorgen! Het is Eerste Pinksterdag. Ajax speelt tegen FC Utrecht in de finale van de play-offs om een ticket voor de voorronde van de Conference...
+- [Kyiv opnieuw aangevallen door Russische drones en raketten](https://nos.nl/l/2615627)
+  > Rusland heeft vannacht de Oekraïense hoofdstad Kyiv aangevallen met drones en raketten. In de stad en de omliggende regio waren luide explosies te...
+- [Marokkaanse koning verleent gratie aan veroordeelde Senegalese voetbalfans](https://nos.nl/l/2615626)
+  > De koning van Marokko heeft gratie verleend aan 18 voetbalsupporters uit Senegal die zich hebben misdragen tijdens de Afrika Cup. Het toernooi werd...
+- [Man gedood die op agenten schoot in de buurt van het Witte Huis](https://nos.nl/l/2615621)
+  > In de buurt van het Witte Huis in Washington heeft iemand bij een controlepost een wapen getrokken en op agenten geschoten. De schutter is...
 - [Dramafilm Fjord over conservatief Roemeens gezin in Noorwegen wint Gouden Palm](https://nos.nl/l/2615606)
   > De film Fjord heeft op het Cannes filmfestival de Gouden Palm gewonnen. De prestigeuze prijs werd in ontvangst genomen door de Roemeense regisseur...
-- [Franse man krijgt 25 jaar cel, dwong zijn vrouw tot seks met honderden mannen](https://nos.nl/l/2615605)
-  > In Frankrijk is een man veroordeeld tot 25 jaar cel voor het verkrachten, martelen en uitbuiten van zijn echtgenote. Ook werd zij onder druk gezet om...
-- [Lange files in bloedheet Dover, Frankrijk versoepelt grenscontroles](https://nos.nl/l/2615599)
-  > Frankrijk versoepelt tijdelijk de procedures aan de grens in het Engelse Dover. Vandaag moesten duizenden mensen daar urenlang in de auto wachten, op...
-- [Patiënt Radboudumc test negatief op ebola-virus](https://nos.nl/l/2615598)
-  > De patiënt die in het ziekenhuis Radboudumc in Nijmegen werd opgenomen vanwege een mogelijke ebola-infectie, is negatief getest. Het ziekenhuis meldt...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Witte Huis korte tijd op slot na schotenwisseling, twee gewonden](https://www.ad.nl/buitenland/witte-huis-korte-tijd-op-slot-na-schotenwisseling-twee-gewonden~a4aeac98/)
-  > Rond het Witte Huis in Washington zijn twee mensen gewond geraakt na een schotenwisseling met de Amerikaanse veiligheidsdienst. President Donald...
-- [Dodental ebola-uitbraak in Congo loopt op tot boven de tweehonderd](https://www.ad.nl/buitenland/dodental-ebola-uitbraak-in-congo-loopt-op-tot-boven-de-tweehonderd~a00e793e/)
-  > Het dodental door de ebola-uitbraak in de Democratische Republiek Congo (DRC) is opgelopen tot 204. Dat heeft het Congolese ministerie van...
-- [Indrukwekkende Rico Verhoeven buigt in meeslepend gevecht voor ongeslagen bokskoning Usyk](https://www.ad.nl/vechtsport/indrukwekkende-rico-verhoeven-buigt-in-meeslepend-gevecht-voor-ongeslagen-bokskoning-usyk~a3aa1706/)
-  > Rico Verhoeven heeft zichzelf en Nederland als boksland op de kaart gezet. In een iconische boksclash voor de piramides in Egypte maakte de 37-jarige...
-- [Isack Hadjar kan teleurstelling niet verbergen: ‘Ik dacht echt dat ik voor pole kon strijden’](https://www.ad.nl/formule-1/isack-hadjar-kan-teleurstelling-niet-verbergen-ik-dacht-echt-dat-ik-voor-pole-kon-strijden~aed94a82/)
-  > Dit weekend staat de vijfde race van dit jaar op het programma in de Formule 1, de Grand Prix van Canada. De coureurs gaan racen op het Circuit...
-- [Max Verstappen wijst na teleurstellende kwalificatie met vinger naar Red Bull: ‘Ze zullen het zelf ook wel niet weten, hè’](https://www.ad.nl/formule-1/max-verstappen-wijst-na-teleurstellende-kwalificatie-met-vinger-naar-red-bull-ze-zullen-het-zelf-ook-wel-niet-weten-he~a56e8ce2/)
-  > Max Verstappen heeft zich kritisch uitgelaten over zijn team Red Bull Racing na een nieuwe teleurstellende kwalificatie in Canada. De viervoudig...
+- [In een flits zie ik de lege blik in de ogen van de jongen op de fatbike](https://www.ad.nl/mezza/in-een-flits-zie-ik-de-lege-blik-in-de-ogen-van-de-jongen-op-de-fatbike~a5deb54f/)
+  > Het scheelde centimeters of Beau was door een fatbike van zijn sokken gereden. Lees in zijn column in ons weekendmagazine Mezza dat die gebeurtenis...
+- [Wat begon met de koop van een auto eindigt in huisarrest: Bart (52) zit vast in Paraguay en vreest celstraf](https://www.ad.nl/buitenland/wat-begon-met-de-koop-van-een-auto-eindigt-in-huisarrest-bart-52-zit-vast-in-paraguay-en-vreest-celstraf~a2249b62/)
+  > Een conflict over een auto sleurde Bart van Rijt (52) in Paraguay een juridisch moeras in waar hij geen grip meer op krijgt. Al tachtig dagen zit de...
+- [Koop de langste caravan van Europa: hoogste bod tot nu toe slechts 14.000 euro](https://www.ad.nl/auto/koop-de-langste-caravan-van-europa-hoogste-bod-tot-nu-toe-slechts-14-000-euro~aa334c21/)
+  > De langste caravan van Europa staat te koop in Zweden. Het gevaarte is 14 meter lang, 3 meter hoog en rust op drie assen. De Polar Glacier-caravan...
+- [Voorbeschouwing etappe 15 | Kansen voor Dylan Groenewegen in Milaan: vlakke etappe ideaal voor sprinters](https://www.ad.nl/giro/voorbeschouwing-etappe-15-kansen-voor-dylan-groenewegen-in-milaan-vlakke-etappe-ideaal-voor-sprinters~a76158d7/)
+  > De tweede week van de Giro d’Italia wordt afgesloten in Milaan. Na het klimgeweld van zaterdag mogen de meeste renners vandaag uitpuffen in een...
+- [Verbazing over biertent voor de deur van verslavingskliniek: ‘Niet goed over nagedacht’](https://www.ad.nl/binnenland/verbazing-over-biertent-voor-de-deur-van-verslavingskliniek-niet-goed-over-nagedacht~a18b5117/)
+  > In Assen is pal voor de deur van een verslavingskliniek een biertent verschenen. Zodra ex-verslaafden de deur uitstapten, stonden ze achter de tap....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Renteaftrek maximaal dertig jaar: makkelijker kunnen we het niet maken](https://fd.nl/economie/1597574/renteaftrek-maximaal-dertig-jaar-makkelijker-kunnen-we-het-niet-maken)
+  > Strenge regels rond de termijn van hypotheekrenteaftrek leiden tot problemen, waarschuwen hypotheekadviseurs. ‘Er komt een bak ellende op ons af.’
+- [Middelgrote advocatenkantoren lonken onder druk van AI-kosten naar samenwerking](https://fd.nl/bedrijfsleven/1597033/middelgrote-advocatenkantoren-lonken-onder-druk-van-ai-kosten-naar-samenwerking)
+  > Kantoren voelen winstdruk door dure AI-licenties en schaars juridisch talent. ‘Niets doen is geen optie.’
+- [Luisterverhaal: Hardo, de kunstenaar voor wie de financiële wereld een speeltuin is](https://fd.nl/samenleving/1597228/luisterverhaal-hardo-de-kunstenaar-voor-wie-de-financiele-wereld-een-speeltuin-is)
+  > Deze week hoor je het verhaal van Hardo, die kunst maakt over de financiële wereld.
 - [Tienduizenden demonstranten in Spanje eisen vertrek Sánchez na corruptieschandaal](https://fd.nl/politiek/1597742/tienduizenden-demonstranten-in-spanje-eisen-vertrek-sanchez-na-corruptieschandaal)
   > Demonstranten eisen dat de Spaanse premier Pedro Sánchez vertrekt vanwege een recent aan het licht gekomen corruptieschandaal.
 - [Treinverkeer rond Utrecht weer opgestart na spoorblokkade XR-demonstranten](https://fd.nl/politiek/1597631/treinverkeer-rond-utrecht-weer-opgestart-na-spoorblokkade-xr-demonstranten)
   > Demonstranten van Extinction Rebellion hebben voor een korte periode het spoor bij Utrecht Centraal geblokkeerd.
-- [Starbucks Korea ontketent nationale rel met ‘Tank Day’-campagne](https://fd.nl/bedrijfsleven/1597600/starbucks-korea-ontketent-nationale-rel-met-tank-day-campagne)
-  > De koffieketen kwam met een marketingcampagne die door velen werd opgevat als het bespotten van een van de belangrijkste historische gebeurtenissen...
-- [ECB-lid: renteverhoging nodig om geloofwaardigheid te behouden](https://fd.nl/economie/1597741/ecb-lid-renteverhoging-nodig-om-geloofwaardigheid-te-behouden)
-  > ECB-lid Yannis Stournaris zegt dat de ECB waarschijnlijk de rente moet verhogen in juni.
-- [Klimaatvoorvechter Marjan Minnesma (59) dwong de Nederlandse overheid bij de rechter op haar knieën](https://fd.nl/politiek/1597630/oprichter-urgenda-marjan-minnesma-59-overleden)
-  > De directeur van Urgenda, Marjan Minnesma, is op 59-jarige leeftijd overleden.
 
 ### Meest gelezen
 
