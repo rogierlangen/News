@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-05-2026 om 08:34*
+*Laatst bijgewerkt: 24-05-2026 om 10:43*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Ruim 160 gevangenen van PI Vught geëvacueerd na brand](https://nos.nl/l/2615655)
+  > Een deel van de gevangenen in de PI Vught is gisteravond geëvacueerd na een brand. Ruim 130 gedetineerden zijn naar andere gevangenissen in het land...
+- [Tweede dodelijke haaiaanval in Australië in een week tijd, nu bij Great Barrier Reef](https://nos.nl/l/2615654)
+  > Bij het Great Barrier Reef is een man aangevallen door een haai en later overleden aan zijn verwondingen. Het Great Barrier Reef is het grootste...
+- [Zeker 23 doden na explosie bij Pakistaans spoor, separatisten eisen aanslag op](https://nos.nl/l/2615653)
+  > Bij een grote explosie langs het spoor zijn in Pakistan zeker 23 mensen om het leven gekomen en tientallen mensen gewond geraakt. Op het moment dat...
+- [Bewoner omgekomen bij brand in seniorencomplex Den Haag](https://nos.nl/l/2615646)
+  > Bij een brand in een seniorencomplex in Den Haag is vannacht een man om het leven gekomen. Het is de bewoner van een van de woningen, meldt de...
 - [Beroemdste elektrische gitaar ter wereld 'mag niet meer worden nagemaakt'](https://nos.nl/l/2615645)
   > Voor veel van de meest bewonderde gitaristen in de popmuziek is een bepaalde elektrische gitaar heilig: de Fender Stratocaster, een icoon in de...
-- [Straks geen pijnlijke ambulancerit meer voor kwetsbare ouderen](https://nos.nl/l/2615634)
-  > Kwetsbare ouderen, vaak met dementie, die hun heup breken hoeven in de toekomst wellicht niet meer naar het ziekenhuis.
-        Een kleine groep...
-- [Podcast De Dag: van onze correspondent... Arjen van der Horst (Verenigd Koninkrijk & Ierland)](https://nos.nl/l/2615640)
-  > Van onze Correspondent is een serie van de makers van podcast De Dag. Iedere zondag maken we kennis met een van de correspondenten van de NOS, het...
-- [Wekdienst 24/5: Pelgrimstocht naar Mekka • Finale Ajax-Utrecht om laatste Europese ticket](https://nos.nl/l/2615630)
-  > Goedemorgen! Het is Eerste Pinksterdag. Ajax speelt tegen FC Utrecht in de finale van de play-offs om een ticket voor de voorronde van de Conference...
-- [Grootschalige Russische aanval op Kyiv en omgeving: 'Een vreselijke nacht'](https://nos.nl/l/2615627)
-  > Rusland heeft vannacht de Oekraïense hoofdstad Kyiv aangevallen met drones en raketten. In de stad en de omliggende regio waren luide explosies te...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Gooi zonnebrand van vorig jaar weg en 8 andere tips die je niet wist over zonbescherming](https://www.ad.nl/gezond/gooi-zonnebrand-van-vorig-jaar-weg-en-8-andere-tips-die-je-niet-wist-over-zonbescherming~a7bb3493/)
-  > Het wordt stralend weer. Dat je je moet insmeren als je in de zon gaat zitten, weten we wel. Maar hoelang kun je zonnebrand eigenlijk bewaren? En hoe...
-- [Drie Nederlanders kronen zich tot landskampioen in Indonesië, meer dan miljoen mensen bij huldiging](https://www.ad.nl/voetbal/drie-nederlanders-kronen-zich-tot-landskampioen-in-indonesie-meer-dan-miljoen-mensen-bij-huldiging~a71bea0b/)
-  > Groot feest in Bandung, Indonesië. Daar werd het landskampioenschap van voetbalclub Persib groot gevierd. Meer dan een miljoen mensen gingen de...
-- [‘Iraans kernprogramma niet in nieuwe voorlopige afspraken van Iran en VS’](https://www.ad.nl/buitenland/iraans-kernprogramma-niet-in-nieuwe-voorlopige-afspraken-van-iran-en-vs~ac528ac3/)
-  > Het Iraanse kernprogramma valt niet onder de nieuwe voorlopige afspraken waar Iran en de Verenigde Staten, met hulp van Pakistan, aan werken. Pas als...
-- [Grote lampen met sensor zetten mensen bij de afvalcontainer in het licht (en dat heeft een goede reden)](https://www.ad.nl/binnenland/grote-lampen-met-sensor-zetten-mensen-bij-de-afvalcontainer-in-het-licht-en-dat-heeft-een-goede-reden~a93adc1f/)
-  > Het is een grote ergernis van veel Nederlanders: gedumpt afval rondom ondergrondse containers in de wijk. In Amersfoort waren ze de rotzooi zó zat...
-- [Dode en gewonden bij grote Russische raketaanval op Kyiv, mogelijk ook Oresjnik-raket ingezet](https://www.ad.nl/buitenland/dode-en-gewonden-bij-grote-russische-raketaanval-op-kyiv-mogelijk-ook-oresjnik-raket-ingezet~adfb97be/)
-  > Minstens één persoon is afgelopen nacht in Kyiv omgekomen door een Russische raket tijdens een zwaar bombardement op de Oekraïense hoofdstad. Een...
+- [Man (39) overlijdt na haaienaanval in Australië, tweede dodelijke aanval in paar weken tijd](https://www.ad.nl/buitenland/man-39-overlijdt-na-haaienaanval-in-australie-tweede-dodelijke-aanval-in-paar-weken-tijd~aa6a6533/)
+  > Een 39-jarige man is overleden na een aanval door een haai in Australië, in het noorden van de staat Queensland. De man was op een privéboot aan het...
+- [Ajax ontsnapt aan snelle achterstand tegen FC Utrecht, winnaar in Volendam gaat Europa in](https://www.ad.nl/voetbal/ajax-ontsnapt-aan-snelle-achterstand-tegen-fc-utrecht-winnaar-in-volendam-gaat-europa-in~a60128bb/)
+  > Grijpt Ajax alsnog een ticket voor Europa? De Amsterdammers nemen het in de finale van de play-offs op tegen FC Utrecht. In Volendam wordt gestreden...
+- [Restaurant moet afwasser alsnog duizenden euro’s loon uitbetalen, ook al nam ze zelf ontslag](https://www.ad.nl/rotterdam/restaurant-moet-afwasser-alsnog-duizenden-euros-loon-uitbetalen-ook-al-nam-ze-zelf-ontslag~ad4f326d/)
+  > Als je je baas mailt dat je ontslag neemt, ben je meestal klaar met je baan. Maar een afwasser van een Rotterdams restaurant stuurde om een heel...
+- [Rubio optimistisch over vredesdeal met Iran: ‘Wereld krijgt mogelijk in de komende uren goed nieuws’](https://www.ad.nl/buitenland/rubio-optimistisch-over-vredesdeal-met-iran-wereld-krijgt-mogelijk-in-de-komende-uren-goed-nieuws~ac528ac3/)
+  > De Amerikaanse minister van Buitenlandse Zaken Marco Rubio is optimistisch over een voorlopige deal met Iran en hoopt dat die zondag nog kan worden...
+- [Oorlogsschade legt riool plat in Gaza, ratten komen massaal naar buiten: ‘Hebben we nog nooit meegemaakt’](https://www.ad.nl/buitenland/oorlogsschade-legt-riool-plat-in-gaza-ratten-komen-massaal-naar-buiten-hebben-we-nog-nooit-meegemaakt~ab45e761/)
+  > Aangevreten vingers en tenen, angst om te gaan slapen, geknaag en gewroet in vuilnishopen: Gaza kampt na alle oorlogsellende nu ook met een...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Man die vuur opende vlakbij Witte Huis doodgeschoten](https://fd.nl/politiek/1597745/man-die-vuur-opende-vlakbij-witte-huis-doodgeschoten)
+  > Een schutter in de buurt van het Witte Huis is door agenten van de Secret Service doodgeschoten.
+- [Kyiv getroffen door zware Russische raketaanval](https://fd.nl/politiek/1597632/kyiv-getroffen-door-zware-russische-raketaanval)
+  > Oekraïne was afgelopen nacht doelwit van zware Russische aanvallen.
 - [Trump: vredesdeal tussen VS en Iran dichtbij](https://fd.nl/politiek/1597744/trump-vredesdeal-tussen-vs-en-iran-dichtbij)
   > Volgens Trump zijn Iran en de VS het bijna eens over een raamwerk voor een einde aan de oorlog.
 - [China’s groene wonder draait op steenkool: Peking begrijpt energie beter dan Europa](https://fd.nl/opinie/1597121/chinas-groene-wonder-draait-volledig-op-steenkool)
   > Terwijl Europa inzet op beperking, kiest Peking voor overvloed aan energie. En dat betekent dat het Westen achterloopt bij de ontwikkeling van nieuwe...
 - [Renteaftrek maximaal dertig jaar: makkelijker kunnen we het niet maken](https://fd.nl/economie/1597574/renteaftrek-maximaal-dertig-jaar-makkelijker-kunnen-we-het-niet-maken)
   > Strenge regels rond de termijn van hypotheekrenteaftrek leiden tot problemen, waarschuwen hypotheekadviseurs. ‘Er komt een bak ellende op ons af.’
-- [Middelgrote advocatenkantoren lonken onder druk van AI-kosten naar samenwerking](https://fd.nl/bedrijfsleven/1597033/middelgrote-advocatenkantoren-lonken-onder-druk-van-ai-kosten-naar-samenwerking)
-  > Kantoren voelen winstdruk door dure AI-licenties en schaars juridisch talent. ‘Niets doen is geen optie.’
-- [Luisterverhaal: Hardo, de kunstenaar voor wie de financiële wereld een speeltuin is](https://fd.nl/samenleving/1597228/luisterverhaal-hardo-de-kunstenaar-voor-wie-de-financiele-wereld-een-speeltuin-is)
-  > Deze week hoor je het verhaal van Hardo, die kunst maakt over de financiële wereld.
 
 ### Meest gelezen
 
