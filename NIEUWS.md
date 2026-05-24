@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-05-2026 om 21:01*
+*Laatst bijgewerkt: 24-05-2026 om 23:00*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Veel zwemmers in de problemen op Franse stranden, twee doden](https://nos.nl/l/2615723)
+  > In Frankrijk zijn dit weekend twee mensen verdronken door gevaarlijke stromingen. In totaal kwamen volgens de autoriteiten in het departement Gironde...
+- [Scheur kan verlichting brengen bij oververhitte chemische tank VS](https://nos.nl/l/2615720)
+  > Er is een scheur ontstaan in een oververhitte chemische tank in Californië en dat kan goed nieuws zijn, stelt de brandweer. De druk op de tank zou...
 - [Vliegtuigje vliegt in op paraglider in Oostenrijk, die noodlanding moet maken](https://nos.nl/l/2615715)
   > Bij de Oostenrijkse stad Zell am See is een klein vliegtuig in botsing gekomen met een paraglider. Dat melden Oostenrijkse media. De 28-jarige piloot...
 - [Hittemaatregelen bij evenementen, dinsdag zelfs meer dan 30 graden](https://nos.nl/l/2615712)
   > Na een warme eerste pinksterdag houdt het warme weer voorlopig aan. Waar het vandaag op de meeste plekken al zomers was, met temperaturen rond de 25...
 - [Bemande Chinese raket gelanceerd, één taikonaut blijft jaar lang in de ruimte](https://nos.nl/l/2615705)
   > China heeft een nieuwe stap gezet in het vervullen van zijn ruimte-ambities, door drie astronauten naar het Chinese ruimtestation Tiangong te sturen....
-- [Verdrinking in Limburgs meer, ook dode in recreatieplas Overijssel](https://nos.nl/l/2615704)
-  > In Well, in Limburg, is iemand om het leven gekomen bij het zwemmen. De Duitse man was met een vriend in het Leukermeer, maar raakte in de problemen...
-- [Bart en Slawek willen snel trouwen, nu Polen buitenlandse huwelijken van homostellen erkent](https://nos.nl/l/2615691)
-  > Een lach en glunderende ogen. Bart en Slawek kijken naar een video van hun romantische trip naar Parijs eerder deze maand. Het Poolse stel had daar...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Donyell Malen schiet AS Roma de Champions League in, ook ticket voor Como](https://www.ad.nl/voetbal/donyell-malen-schiet-as-roma-de-champions-league-in-ook-ticket-voor-como~a424e52e/)
+- [Dodental ebola-uitbraak loopt op, WHO meldt 900 vermoedelijke besmettingen in Congo](https://www.ad.nl/buitenland/dodental-ebola-uitbraak-loopt-op-who-meldt-900-vermoedelijke-besmettingen-in-congo~a00e793e/)
+  > Het vermoedelijke aantal ebolabesmettingen in de Democratische Republiek Congo (DRC) is opgelopen tot boven de 900. Dat meldt de baas van de...
+- [Antonelli doet geweldige zaken in titelstrijd na uitvalbeurt Russell, Verstappen pakt belangrijke punten](https://www.ad.nl/formule-1/antonelli-doet-geweldige-zaken-in-titelstrijd-na-uitvalbeurt-russell-verstappen-pakt-belangrijke-punten~a8a75660/)
+  > Kimi Antonelli heeft een belangrijk gat geslagen in het kampioenschap. De Italiaan won in Canada zijn vierde race op rij, terwijl teamgenoot George...
+- [Max Verstappen over twee weken in actie tijdens eerste Europese race van het seizoen](https://www.ad.nl/formule-1/max-verstappen-over-twee-weken-in-actie-tijdens-eerste-europese-race-van-het-seizoen~aa97896b/)
+  > Het Formule 1-circus gaat de oversteek maken van Noord-Amerika naar Europa. Voor Max Verstappen en zijn collega’s staat misschien wel de meest...
+- [Verstappen grijpt eerste podium na mooi gevecht met Hamilton, Antonelli wint na motorpech bij teamgenoot](https://www.ad.nl/formule-1/verstappen-grijpt-eerste-podium-na-mooi-gevecht-met-hamilton-antonelli-wint-na-motorpech-bij-teamgenoot~a9d247ae/)
+  > Een vlammend gevecht tussen beide Mercedes-coureurs werd veel te vroeg gesmoord door een defecte auto van George Russell. Zo liep Kimi Antonelli...
+- [Donyell Malen schiet AS Roma de Champions League in, Como blijft AC Milan en Juventus voor](https://www.ad.nl/voetbal/donyell-malen-schiet-as-roma-de-champions-league-in-como-blijft-ac-milan-en-juventus-voor~a424e52e/)
   > AS Roma heeft zich op de slotdag van de Serie A geplaatst voor de Champions League. De ploeg van coach Gian Piero Gasperini eindigt dankzij een 0-2...
-- [Enorme sensatie in Portugese beker: Sporting verslagen door goal van 38-jarige Stopira](https://www.ad.nl/voetbal/enorme-sensatie-in-portugese-beker-sporting-verslagen-door-goal-van-38-jarige-stopira~a3379576d/)
-  > Een enorme sensatie zondagavond in de finale van de Portugese bekerfinale. Sporting werd in de verlenging met 2-1 verslagen door Torreense, dankzij...
-- [Italiaan uit Giro gezet na kopstoot in de sprint](https://www.ad.nl/giro/italiaan-uit-giro-gezet-na-kopstoot-in-de-sprint~ace8f309/)
-  > De Italiaanse wielrenner Enrico Zanoncello is uit de Giro d’Italia gezet. De 28-jarige wielrenner van Bardiani botste tijdens de eindsprint van de...
-- [Robertson en Salah zwaaien samen af bij Liverpool: ‘Zonder Guardiola hadden we veel meer gewonnen’](https://www.ad.nl/voetbal/robertson-en-salah-zwaaien-samen-af-bij-liverpool-zonder-guardiola-hadden-we-veel-meer-gewonnen~aa2c62b5/)
-  > Mohamed Salah (33) en Andy Robertson (32) namen zondag samen afscheid. Het duo speelde negen jaar samen voor Liverpool en dus werd het een emotioneel...
-- [Verstappen profiteert van onfortuinlijke uitvalbeurt Russell, reële kans op eerste podium van het jaar](https://www.ad.nl/formule-1/verstappen-profiteert-van-onfortuinlijke-uitvalbeurt-russell-reele-kans-op-eerste-podium-van-het-jaar~a9d247ae/)
-  > Na het debacle in de 24 uur van de Nürburgring staat Max Verstappen een week later de Grand Prix van Canada te wachten. Het is nog niet het weekend...
 
 ### Meest gelezen
 
