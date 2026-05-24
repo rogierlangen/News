@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-05-2026 om 16:03*
+*Laatst bijgewerkt: 24-05-2026 om 17:59*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Robin (14) kon jarenlang niet goed lezen, tot één vraag op een terras alles veranderde](https://www.ad.nl/binnenland/robin-14-kon-jarenlang-niet-goed-lezen-tot-een-vraag-op-een-terras-alles-veranderde~aebddf1c/)
-  > Een ander leest gewoon zwart-witletters in een boek. In het brein van Robin (14) uit Woerden werkt het anders. Bij hem hebben letters een rode kleur,...
-- [Play-off voor Liverpool tegen Bournemouth niet meer mogelijk, 21ste assist voor Bruno Fernandes](https://www.ad.nl/voetbal/play-off-voor-liverpool-tegen-bournemouth-niet-meer-mogelijk-21ste-assist-voor-bruno-fernandes~aa69dfdc/)
-  > Liverpool moet in de laatste speelronde van de Premier League het Champions League-ticket nog veiligstellen. Brentford komt op bezoek op Anfield. Als...
-- [Spurs van Micky van de Ven heeft belangrijke goal te pakken in spannende degradatiestrijd](https://www.ad.nl/voetbal/spurs-van-micky-van-de-ven-heeft-belangrijke-goal-te-pakken-in-spannende-degradatiestrijd~af503267/)
-  > Het rampseizoen van Tottenham Hotspur komt vandaag ten einde. De grote vraag: gebeurt dat als degradant naar het Championship of blijft de Londense...
-- [Lewis Hamilton krijgt mogelijk zijn zin: natte en koude omstandigheden in Canada](https://www.ad.nl/formule-1/lewis-hamilton-krijgt-mogelijk-zijn-zin-natte-en-koude-omstandigheden-in-canada~aed94a82/)
-  > Dit weekend staat de vijfde race van dit jaar op het programma in de Formule 1, de Grand Prix van Canada. De coureurs gaan racen op het Circuit...
-- [Jaecoo 8 SHS-P: veel power, weinig rijplezier](https://www.ad.nl/auto/jaecoo-8-shs-p-veel-power-weinig-rijplezier~a6135a85/)
-  > Jaecoo pakt het als Chinese nieuwkomer net even anders aan dan zijn landgenoten, met groot succes in Spanje en Engeland tot gevolg. Nu staat...
+- [Slot met Liverpool als nummer 5 de Champions League in, Europa League-tickets voor Kluivert, Brobbey en Roefs](https://www.ad.nl/voetbal/slot-met-liverpool-als-nummer-5-de-champions-league-in-europa-league-tickets-voor-kluivert-brobbey-en-roefs~aa69dfdc/)
+  > Liverpool heeft op de slotdag van de Premier League het Champions League-ticket voor volgend seizoen veiliggesteld. De ploeg van Arne Slot speelde op...
+- [Erling Haaland voor derde keer topscorer, Bruno Fernandes pakt record met 21 assists](https://www.ad.nl/voetbal/erling-haaland-voor-derde-keer-topscorer-bruno-fernandes-pakt-record-met-21-assists~a0994bb6/)
+  > Erling Haaland is voor de derde keer in vier seizoenen topscorer van de Premier League geworden. De 25-jarige spits uit Noorwegen scoorde 27 keer in...
+- [Emma viert dat ze een jaar in remissie is en Ruinerwold-zoon Israel vraagt vriendin ten huwelijk](https://www.ad.nl/show/emma-viert-dat-ze-een-jaar-in-remissie-is-en-ruinerwold-zoon-israel-vraagt-vriendin-ten-huwelijk~a5926d09/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Nieuw onderzoek: ruim 51.000 kinderen geven aan dat iemand gemeen tegen ze deed in game](https://www.ad.nl/binnenland/nieuw-onderzoek-ruim-51-000-kinderen-geven-aan-dat-iemand-gemeen-tegen-ze-deed-in-game~a4d92c85/)
+  > Veel kinderen maken al op jonge leeftijd in de onlinewereld vervelende dingen mee of komen daar in contact met onbekenden. Dit stelt stichting...
+- [Het rooster van je barbecue wordt schoon terwijl je slaapt: ‘De natuur doet het werk’](https://www.ad.nl/wonen/het-rooster-van-je-barbecue-wordt-schoon-terwijl-je-slaapt-de-natuur-doet-het-werk~a1b87251/)
+  > Nu de zon zich eindelijk weer laat zien, komt bij veel mensen de barbecue tevoorschijn. Maar na een zware maaltijd en een paar drankjes de barbecue...
 
 ### Meest gelezen
 
