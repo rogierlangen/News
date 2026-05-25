@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-05-2026 om 21:13*
+*Laatst bijgewerkt: 25-05-2026 om 23:09*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Ruimterots vernoemd naar amateuronderzoeker Astrid Eeuwes: 'De bekroning op mijn werk'](https://nos.nl/l/2615839)
+  > Een 1,5 kilometer brede ruimterots is vernoemd naar de Nijmeegse amateuronderzoeker Astrid Eeuwes. De planetoïde draait in een baan om de zon en...
+- [Niels Wennemars wint beroemde Britse kaasrolwedstrijd: 'Ik ben hier een god'](https://nos.nl/l/2615832)
+  > Voor het eerst is een Nederlander het snelst over de finish gekomen bij het jaarlijkse kaasrolkampioenschap in Gloucester in Engeland. De 21-jarige...
 - [Iran gaat toegang tot internet herstellen na blokkade van bijna drie maanden](https://nos.nl/l/2615827)
   > De Iraanse president Pezeshkian heeft opdracht gegeven om de toegang tot het internet te herstellen. Dat melden Iraanse staatsmedia. Voor Iraniërs...
 - [Spaanse Hondius-opvarende test positief op hantavirus, tweede besmetting in Spanje](https://nos.nl/l/2615826)
   > Bij een Spaanse opvarende van het Nederlandse cruiseschip Hondius is het hantavirus vastgesteld. Dat meldt het Spaanse ministerie van...
 - [Netanyahu beveelt zwaarder offensief tegen Hezbollah in Libanon](https://nos.nl/l/2615820)
   > De Israëlische premier Netanyahu zegt dat de oorlog tegen Hezbollah in Libanon wordt opgevoerd. Hij kondigt zwaardere aanvallen aan in reactie op...
-- [Marokkaanse graanboeren in de knel door stijgende brandstofprijzen](https://nos.nl/l/2615815)
-  > Boeren in Marokko dreigen in de problemen te komen door de hoge brandstofprijzen in het Noord-Afrikaanse land. De oorlog in het Midden-Oosten heeft...
-- [Rusland vuurt gevreesde Oresjnik-raket af op Oekraïne, Europa reageert geschokt](https://nos.nl/l/2615803)
-  > "Er waren geluiden... angstaanjagende explosies. Vlammen. Heel even, misschien een seconde, verloor ik mijn bewustzijn," vertelt de 74-jarige...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Blamage voor Wolfsburg: ploeg van Christian Eriksen degradeert na 29 jaar uit Bundesliga](https://www.ad.nl/voetbal/blamage-voor-wolfsburg-ploeg-van-christian-eriksen-degradeert-na-29-jaar-uit-bundesliga~a309858f/)
-  > VfL Wolfsburg is na 29 jaar op het hoogste niveau gedegradeerd naar de Tweede Bundesliga. De landskampioen van 2009 ging in de beslissende play-off...
-- [Klaas-Jan Huntelaar openhartig over herstel na burn-out: ‘Gaat langzaam de goede kant op’](https://www.ad.nl/voetbal/klaas-jan-huntelaar-openhartig-over-herstel-na-burn-out-gaat-langzaam-de-goede-kant-op~aff03255/)
-  > Klaas-Jan Huntelaar heeft een update gegeven over zijn gezondheidstoestand. De voormalig topspits moest zijn taken bij Ajax eind 2023 neerleggen...
-- [Van barbecue en drukte naar sirenes en paniek: stralende dag eindigt in drama in Nederlands recreatiegebied](https://www.ad.nl/binnenland/van-barbecue-en-drukte-naar-sirenes-en-paniek-stralende-dag-eindigt-in-drama-in-nederlands-recreatiegebied~ab46cff9/)
-  > Wat een prachtige eerste topdag van het jaar had moeten worden voor recreatiegebied Het Hulsbeek, eindigde in een drama. Zondag, laat in de middag,...
-- [Ongekende drukte bij deze woonwinkel: mensen staan uren in de rij voor korting tot 70 procent](https://www.ad.nl/economie/ongekende-drukte-bij-deze-woonwinkel-mensen-staan-uren-in-de-rij-voor-korting-tot-70-procent~a4ecf41b/)
-  > Doordat panden waren afgebrand, had een woonwinkel in Brabant rook- en waterschade opgelopen. Dus werd gisteren een leegverkoop gehouden. Binnen een...
-- [Vrouw (70) verliest sleutels van haar grachtenpand aan gemeente: ‘Ik sta ermee op en ga ermee naar bed’](https://www.ad.nl/wonen/vrouw-70-verliest-sleutels-van-haar-grachtenpand-aan-gemeente-ik-sta-ermee-op-en-ga-ermee-naar-bed~ab491bc6/)
-  > De stank was niet te harden, ratten kwamen erop af en iemand zakte met een been door het balkon. De staat van een pand in Amsterdam was zo...
+- [Man (21) overleden bij parachutesprong in Frankrijk](https://www.ad.nl/buitenland/man-21-overleden-bij-parachutesprong-in-frankrijk~a4e255b4/)
+  > In het noorden van Frankrijk is zondag een 21-jarige man overleden bij een ongeval met een parachute. Er is een onderzoek geopend naar de oorzaak van...
+- [‘Return of a hero’: indrukwekkend afscheid van Pep Guardiola, twintig trofeeëndragers voor al zijn prijzen](https://www.ad.nl/voetbal/return-of-a-hero-indrukwekkend-afscheid-van-pep-guardiola-twintig-trofeeendragers-voor-al-zijn-prijzen~ab84e37d/)
+  > ‘The return of a hero.’ Vincent Kompany (40) was even terug in Manchester. De coach van Bayern München showde op het afscheid van Pep Guardiola (55)...
+- [Voetbalpodcast | ‘De grote schoonmaak gaat nu beginnen bij Ajax’](https://www.ad.nl/voetbal/voetbalpodcast-de-grote-schoonmaak-gaat-nu-beginnen-bij-ajax~a42af5cd9/)
+  > Nu het seizoen voorbij is weet Jordi Cruijff wat hem te doen staat. Hij kent de budgetten. Hij weet wat hij te bieden heeft. Nu kijken wie er wel of...
+- [Colombia neemt topscorer van WK 2014 op in selectie, ‘geen blessure voor Lionel Messi’](https://www.ad.nl/wk-voetbal/colombia-neemt-topscorer-van-wk-2014-op-in-selectie-geen-blessure-voor-lionel-messi~a61805da/)
+  > Over twee weken begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste wedstrijd. Via dit...
+- [Moeder van Bridget Maasland naar spoedeisende hulp: ‘Gaat helaas helemaal niet goed met mama’](https://www.ad.nl/show/moeder-van-bridget-maasland-naar-spoedeisende-hulp-gaat-helaas-helemaal-niet-goed-met-mama~a9202225/)
+  > Presentatrice Bridget Maasland heeft haar moeder Elly (77) naar de spoedeisende hulp gebracht. ‘Het gaat helaas helemaal niet goed met mama sinds...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Netanyahu beveelt het offensief tegen Hezbollah in Libanon op te voeren](https://fd.nl/politiek/1597767/netanyahu-beveelt-het-offensief-tegen-hezbollah-in-libanon-op-te-voeren)
-  > De Israëlische premier wil deze militie, die steun krijgt van het ayatollahregime in Iran, ‘vernietigen’, zo zei hij maandagavond in een...
-- [Rusland roept buitenlanders en diplomaten op Kyiv te verlaten](https://fd.nl/politiek/1597755/rusland-roept-buitenlanders-en-diplomaten-op-kyiv-te-verlaten)
-  > Moskou wil doorgaan met ‘systematische’ vergeldingsaanvallen op Oekraïne, als wraak op de vermeende Oekraïense aanval op een studentenflat.
-- [EU moet niet zwichten voor Amerikaanse druk om methaanregels](https://fd.nl/opinie/1597732/eu-moet-niet-zwichten-voor-amerikaanse-druk-om-methaanregels)
-  > De VS waarschuwen dat hun lng ergens anders heengaat als Europa onverkort vasthoudt aan regels voor terugdringen van krachtig broeikasgas.
-- [Saleh Mamman beloofde transparantie, maar werd veroordeeld voor corruptie](https://fd.nl/politiek/1597573/saleh-mamman-beloofde-transparantie-maar-werd-veroordeeld-voor-corruptie)
-  > Dat een dergelijke hoge Nigeriaanse politicus voor corruptie is aangepakt, is volgens media in het Afrikaanse land ‘een zeldzaamheid’.
-- [‘Omdat het Elon is’](https://fd.nl/financiele-markten/1597739/omdat-het-elon-is)
-  > Wie instapt in SpaceX op een waardering van $1700 mrd, maakt een cruciale denkfout. Eentje die Elon Musk zelf nooit zou willen maken.
+- [Defensieaandelen dalen ondanks oorlog in Iran](https://fd.nl/financiele-markten/1597708/defensieaandelen-dalen-ondanks-oorlog-in-iran)
+  > De graadmeter die de wereldwijde defensiesector volgt, staat sinds de Amerikaans-Israëlische aanval in februari 12,4% lager. Is ‘buy the rumour, sell...
+- [‘Infrastructuur vergt veel grotere investering dan gedacht’](https://fd.nl/politiek/1597700/infrastructuur-vergt-veel-grotere-investering-dan-gedacht)
+  > Consultants van BCG stellen dat tot 2040 in totaal €690 mrd nodig is, waarvan de overheid €280 mrd zou moeten ophoesten en de private sector de rest.
+- [Belastingdienst stapt naar toezichthouder om mogelijke marktverstoring PostNL](https://fd.nl/bedrijfsleven/1597697/belastingdienst-stapt-naar-toezichthouder-om-mogelijke-marktverstoring-postnl)
+  > Het postbedrijf zou kleinere concurrenten belemmeren mee te doen aan de tender voor de bezorging van alle rijkspost, waaronder blauwe enveloppen en...
+- [Rijk maar afhankelijk](https://fd.nl/opinie/1597754/rijk-maar-afhankelijk)
+  > Belle Burden, een telg uit de Amerikaanse oudgeldfamilie Vanderbilt, werd hét gezicht van de financiële kwetsbaarheid van vrouwen
+- [Opnieuw strategische kortsluiting bij de Navo](https://fd.nl/opinie/1597749/opnieuw-strategische-kortsluiting-bij-de-navo)
+  > De eerste Navo-top op Zweedse bodem sinds de toetreding moest eensgezindheid uitstralen. In plaats daarvan werd vooral zichtbaar hoe afhankelijk...
 
 ### Meest gelezen
 
