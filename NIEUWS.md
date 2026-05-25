@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-05-2026 om 04:13*
+*Laatst bijgewerkt: 25-05-2026 om 08:59*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Cameraman gebeten, surfwedstrijd Nieuw-Zeeland stilgelegd](https://nos.nl/l/2615730)
-  > In Nieuw-Zeeland is een internationale surfwedstrijd stilgelegd omdat een cameraman in het water werd gebeten door een dier. De organisatoren denken...
-- [Omstander die geraakt werd bij schietpartij Witte Huis nog in ziekenhuis](https://nos.nl/l/2615729)
-  > Een voorbijganger die werd geraakt tijdens de schietpartij bij het Witte Huis, ligt een dag later nog in het ziekenhuis. De man raakte ernstig...
-- [Politie houdt man aan die dak van Oude Kerk in Delft beklom](https://nos.nl/l/2615728)
-  > De politie in Delft heeft een man aangehouden die zondagavond op het dak van de Oude Kerk was geklommen. De man was rond 21.00 uur via een regenpijp...
-- [Woedende menigte bestormt ziekenhuis voor ebola-patiënten in Congo](https://nos.nl/l/2615726)
-  > Een groep boze jongeren heeft in de Democratische Republiek Congo een ziekenhuis bestormd waar ebola-patiënten worden verpleegd. Het is het derde...
-- [Veel zwemmers in de problemen op Franse stranden, twee doden](https://nos.nl/l/2615723)
-  > In Frankrijk zijn dit weekend twee mensen verdronken door gevaarlijke stromingen. In totaal kwamen volgens de autoriteiten in het departement Gironde...
+- [Paus Leo XIV: laat AI ons niet beroven van onze menselijkheid](https://nos.nl/l/2615740)
+  > Iets meer dan een jaar na zijn aantreden presenteert paus Leo XIV vandaag met een panel van sprekers zijn eerste encycliek. Dat is een belangrijk...
+- [Nieuwe campagne moet vermissing van kinderen helpen voorkomen](https://nos.nl/l/2615739)
+  > Op de Internationale Dag van de Vermiste Kinderen lanceert Amber Alert Europe een campagne om huiselijk geweld als oorzaak van kindervermissingen...
+- [Wekdienst 25/5: Fietselfstedentocht in Friesland • Paus presenteert eerste encycliek over AI](https://nos.nl/l/2615737)
+  > Goedemorgen! In Friesland wordt vandaag de Fietselfstedentocht gereden en paus Leo XIV presenteert zijn eerste encycliek. 
+        Eerst het weer:...
+- [Meer complexe burenruzies: ‘Het is zelden nog een simpel conflict’](https://nos.nl/l/2615734)
+  > Een ruzie over te harde muziek of een buurjongen die 's ochtends vroeg door het trappenhuis schreeuwt: het begint vaak klein, maar burenruzies in...
+- [Huisartsen financieel gedwongen tot gebruik gebrekkige zorg-apps](https://nos.nl/l/2615732)
+  > Zorgverzekeraar Zilveren Kruis oefent sinds dit jaar financiële druk uit op huisartsen om zorg-apps te gebruiken die niet voldoen aan de wet- en...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Wat blijft er over van ‘Klein Amerika’ in Duitsland als 5000 soldaten van Trump weg moeten? ‘Zou vreselijk zijn’](https://www.ad.nl/buitenland/wat-blijft-er-over-van-klein-amerika-in-duitsland-als-5000-soldaten-van-trump-weg-moeten-zou-vreselijk-zijn~a8f952e9/)
-  > Amerikaanse scholen, Amerikaanse winkels én een eettent met de naam ‘Friends’. Het Beierse dorpje Vilseck is door de aanwezigheid van een grote...
-- [Lionel Messi geblesseerd van het veld, zorgen over WK-voorbereiding Argentijn](https://www.ad.nl/sport/lionel-messi-geblesseerd-van-het-veld-zorgen-over-wk-voorbereiding-argentijn~abf1b2b7/)
-  > In de laatste competitiewedstrijd voor de voorbereiding op het WK is Lionel Messi zondagavond geblesseerd van het veld gestapt. Onbekend is nog hoe...
-- [Opstand in Venezolaanse gevangenis; honderden gedetineerden protesteren tegen martelingen](https://www.ad.nl/buitenland/opstand-in-venezolaanse-gevangenis-honderden-gedetineerden-protesteren-tegen-martelingen~a6fc3fd6/)
-  > In een gevangeniscomplex in de stad Barinas, in het westen van Venezuela, zijn honderden gedetineerden zondag in opstand gekomen. Ze protesteerden...
-- [Goed nieuws voor Oranje: rentree Memphis Depay bij Corinthians, opnieuw hoofdrol Labyad met prachtgoal](https://www.ad.nl/sport/goed-nieuws-voor-oranje-rentree-memphis-depay-bij-corinthians-opnieuw-hoofdrol-labyad-met-prachtgoal~a17d3011/)
-  > Na twee maanden blessureleed heeft Memphis Depay zondagavond eindelijk zijn rentree gemaakt bij Corinthians in het thuisduel met Atlético Mineiro. De...
-- [Oekraïense na zege in tranen door raketin­slag: ‘Op 100 meter van het huis van mijn ouders’](https://www.ad.nl/tennis/oekraiense-na-zege-in-tranen-door-raketinslag-op-100-meter-van-het-huis-van-mijn-ouders~a924961f/)
-  > De tweede Grand Slam van het jaar gaat bijna van start. Van 25 mei tot 7 juni strijden de beste tennissers ter wereld op het gravel van Parijs om de...
+- [Eerste wereldrecord op gloednieuwe ‘Dopingspelen’: Griekse zwemmer is daardoor 1 miljoen dollar rijker](https://www.ad.nl/andere-sporten/eerste-wereldrecord-op-gloednieuwe-dopingspelen-griekse-zwemmer-is-daardoor-1-miljoen-dollar-rijker~abbd71ea/)
+  > ‘Een gevaarlijk initiatief met grote gevolgen voor de gezondheid’. Het zeer omstreden sportevenement Enhanced Games is zondag in Las Vegas van start...
+- [Water drinken helpt om gewicht te verliezen, klopt dat of is het een fabel?](https://www.ad.nl/gezond/water-drinken-helpt-om-gewicht-te-verliezen-klopt-dat-of-is-het-een-fabel~a504e6cd/)
+  > Water drinken is een levensbehoefte, zeker met de warmte. Genoeg schoon drinkwater hebben is dus een zegen. Maar hoeveel liter moet je precies...
+- [Dick Parry, bekend als saxofonist bij Pink Floyd, op 83-jarige leeftijd overleden](https://www.ad.nl/show/dick-parry-bekend-als-saxofonist-bij-pink-floyd-op-83-jarige-leeftijd-overleden~ae8b89d8/)
+  > Saxofonist Dick Parry is vrijdag op 83-jarige leeftijd overleden. Dat heeft zanger en gitarist David Gilmour van Pink Floyd op sociale media gemeld....
+- [Praat mee: 20 kilometer per uur is hard zat op het fietspad](https://www.ad.nl/praat-mee/praat-mee-20-kilometer-per-uur-is-hard-zat-op-het-fietspad~a42b1891/)
+  > In Houten en Amsterdam start binnenkort een proef met een opmerkelijke nieuwe verkeersregel: een maximumsnelheid van 20 kilometer per uur op het...
+- [Iran: Overeenstemming bereikt over veel onderwerpen met VS, maar definitief akkoord nog niet dichtbij](https://www.ad.nl/buitenland/iran-overeenstemming-bereikt-over-veel-onderwerpen-met-vs-maar-definitief-akkoord-nog-niet-dichtbij~af1d37f3/)
+  > Iran en de Verenigde Staten hebben over veel onderwerpen overeenstemming bereikt, maar een definitief akkoord is nog direct in zicht. Dat verklaart...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Een werknemer met een burn-out? Dat loopt in de papieren](https://fd.nl/samenleving/1597575/een-werknemer-met-een-burn-out-dat-loopt-in-de-papieren)
-  > Het stressgerelateerd verzuim stijgt in Nederland al jaren. Vooral voor kleinere ondernemers kan de impact op de bedrijfsvoering groot zijn. Waar...
-- [Royal Air Maroc schrapt vluchten vanwege opgelopen kerosineprijzen](https://fd.nl/bedrijfsleven/1597634/royal-air-maroc-schrapt-vluchten-vanwege-opgelopen-kerosineprijzen)
-  > De Marokkaanse luchtvaartmaatschappij Royal Air Maroc gaat een aantal vluchten annuleren vanwege de effecten van de oorlog in het Midden-Oosten.
-- [Pharming mag belangrijk medicijn Joenja op Europese markt brengen](https://fd.nl/bedrijfsleven/1597633/pharming-krijgt-toestemming-om-belangrijk-medicijn-joenja-op-europese-markt-te-brengen)
-  > Pharming mag het medicijn Joenja, dat veel omzetgroei voor het bedrijf moet opleveren, op de Europese markt brengen.
-- [Man die vuur opende vlakbij Witte Huis doodgeschoten](https://fd.nl/politiek/1597745/man-die-vuur-opende-vlakbij-witte-huis-doodgeschoten)
-  > Een schutter in de buurt van het Witte Huis is door agenten van de Secret Service doodgeschoten.
-- [Kyiv getroffen door zware Russische raketaanval](https://fd.nl/politiek/1597632/kyiv-getroffen-door-zware-russische-raketaanval)
-  > Oekraïne was afgelopen nacht doelwit van zware Russische aanvallen.
+- [Op het puntje van je stoel in Straatsburg](https://fd.nl/politiek/1597743/op-het-puntje-van-je-stoel-in-straatsburg)
+  > De nieuwe editie van de Europa-nieuwsbrief van het FD gaat over meer actie in Straatsburg, het terugkerende terugkeerdebat, Europese chips en:...
+- [Doorwerken na je 67ste](https://fd.nl/samenleving/1597692/doorwerken-na-je-67ste)
+  > Hoe gezond is het eigenlijk om te stoppen met werken als je de AOW-leeftijd hebt bereikt, vraagt Femmetje de Wind zich af.
+- [Krispy Kreme gaat proberen de Nederlander aan de luxere donut te krijgen](https://fd.nl/bedrijfsleven/1597503/krispy-kreme-gaat-proberen-de-nederlander-aan-de-luxere-donut-te-krijgen)
+  > Experts zien op de Nederlandse markt meer kansen voor Krispy Kreme dan voor voorganger Dunkin’ Donuts, die twee keer failliet ging.
+- [Amerikaanse president Trump maakt terugtrekkende beweging over mogelijke Iran-deal](https://fd.nl/politiek/1597747/amerikaanse-president-trump-maakt-terugtrekkende-beweging-over-mogelijke-iran-deal)
+  > Waar hij eerder nog hintte op een deal afgelopen weekend, schrijft hij nu op zijn eigen sociale medium dat beide partijen ‘tijd moeten nemen’.
+- [Papieren winst, echte belasting: hoe één fiscale regel innovatie kan dwarszitten](https://fd.nl/opinie/1597466/hoe-een-belastingregel-innovatie-kan-dwarszitten)
+  > Door een aanpassing in het afschrijven van bedrijfspanden bij de winstbelasting, lopen innovatieve ondernemingen die investeren in eigen vastgoed...
 
 ### Meest gelezen
 
