@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-05-2026 om 08:59*
+*Laatst bijgewerkt: 25-05-2026 om 12:39*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Paus Leo XIV: laat AI ons niet beroven van onze menselijkheid](https://nos.nl/l/2615740)
-  > Iets meer dan een jaar na zijn aantreden presenteert paus Leo XIV vandaag met een panel van sprekers zijn eerste encycliek. Dat is een belangrijk...
-- [Nieuwe campagne moet vermissing van kinderen helpen voorkomen](https://nos.nl/l/2615739)
-  > Op de Internationale Dag van de Vermiste Kinderen lanceert Amber Alert Europe een campagne om huiselijk geweld als oorzaak van kindervermissingen...
-- [Wekdienst 25/5: Fietselfstedentocht in Friesland • Paus presenteert eerste encycliek over AI](https://nos.nl/l/2615737)
-  > Goedemorgen! In Friesland wordt vandaag de Fietselfstedentocht gereden en paus Leo XIV presenteert zijn eerste encycliek. 
-        Eerst het weer:...
-- [Meer complexe burenruzies: ‘Het is zelden nog een simpel conflict’](https://nos.nl/l/2615734)
-  > Een ruzie over te harde muziek of een buurjongen die 's ochtends vroeg door het trappenhuis schreeuwt: het begint vaak klein, maar burenruzies in...
-- [Huisartsen financieel gedwongen tot gebruik gebrekkige zorg-apps](https://nos.nl/l/2615732)
-  > Zorgverzekeraar Zilveren Kruis oefent sinds dit jaar financiële druk uit op huisartsen om zorg-apps te gebruiken die niet voldoen aan de wet- en...
+- [Oud-topman Schotse SNP stak tonnen partijgeld in eigen zak](https://nos.nl/l/2615761)
+  > Voormalig topman van de Schotse Nationalistische Partij (SNP) Peter Murrell heeft bekend dat hij in de periode 2010-2022 bijna 450.000 euro aan...
+- [Met 174 km/u langs werkzaamheden, politie neemt rijbewijzen in](https://nos.nl/l/2615756)
+  > Bij een snelheidscontrole op de A4 heeft de politie afgelopen nacht het rijbewijs ingenomen van negen automobilisten. Zij reden allemaal ten minste...
+- [Franse jongen van 12 vermoedelijk gewurgd met handdoek, tiener aangehouden](https://nos.nl/l/2615753)
+  > In de Franse stad Rennes is gisteren het lichaam van een 12-jarige jongen gevonden. Hij lag in een struik met een natte handdoek strak om zijn nek...
+- [VS en Iran temperen hoop op snel akkoord over einde oorlog](https://nos.nl/l/2615751)
+  > De Amerikaanse president Trump heeft de hoop op een einde aan de oorlog met Iran weer wat getemperd. Hij zei gisteravond dat zijn onderhandelaars de...
+- [Kindvriendelijke horeca in trek: 'Mensen rijden ervoor om'](https://nos.nl/l/2615750)
+  > Een klimwand, schminkhoek of arcadehal: het is waarschijnlijk niet het eerste wat je verwacht als je uit eten gaat. Toch wordt er in horecazaken...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Eerste wereldrecord op gloednieuwe ‘Dopingspelen’: Griekse zwemmer is daardoor 1 miljoen dollar rijker](https://www.ad.nl/andere-sporten/eerste-wereldrecord-op-gloednieuwe-dopingspelen-griekse-zwemmer-is-daardoor-1-miljoen-dollar-rijker~abbd71ea/)
-  > ‘Een gevaarlijk initiatief met grote gevolgen voor de gezondheid’. Het zeer omstreden sportevenement Enhanced Games is zondag in Las Vegas van start...
-- [Water drinken helpt om gewicht te verliezen, klopt dat of is het een fabel?](https://www.ad.nl/gezond/water-drinken-helpt-om-gewicht-te-verliezen-klopt-dat-of-is-het-een-fabel~a504e6cd/)
-  > Water drinken is een levensbehoefte, zeker met de warmte. Genoeg schoon drinkwater hebben is dus een zegen. Maar hoeveel liter moet je precies...
-- [Dick Parry, bekend als saxofonist bij Pink Floyd, op 83-jarige leeftijd overleden](https://www.ad.nl/show/dick-parry-bekend-als-saxofonist-bij-pink-floyd-op-83-jarige-leeftijd-overleden~ae8b89d8/)
-  > Saxofonist Dick Parry is vrijdag op 83-jarige leeftijd overleden. Dat heeft zanger en gitarist David Gilmour van Pink Floyd op sociale media gemeld....
-- [Praat mee: 20 kilometer per uur is hard zat op het fietspad](https://www.ad.nl/praat-mee/praat-mee-20-kilometer-per-uur-is-hard-zat-op-het-fietspad~a42b1891/)
-  > In Houten en Amsterdam start binnenkort een proef met een opmerkelijke nieuwe verkeersregel: een maximumsnelheid van 20 kilometer per uur op het...
-- [Iran: Overeenstemming bereikt over veel onderwerpen met VS, maar definitief akkoord nog niet dichtbij](https://www.ad.nl/buitenland/iran-overeenstemming-bereikt-over-veel-onderwerpen-met-vs-maar-definitief-akkoord-nog-niet-dichtbij~af1d37f3/)
-  > Iran en de Verenigde Staten hebben over veel onderwerpen overeenstemming bereikt, maar een definitief akkoord is nog direct in zicht. Dat verklaart...
+- [LIVE Roland Garros | Jesper de Jong in spannend duel met Stan Wawrinka, Zwitser komt langszij in sets](https://www.ad.nl/tennis/live-roland-garros-jesper-de-jong-in-spannend-duel-met-stan-wawrinka-zwitser-komt-langszij-in-sets~affc1e17/)
+  > Jesper de Jong begint als ‘lucky loser’ aan Roland Garros. Hij speelt tegen de ervaren Zwitser Stan Wawrinka. Kan de Nederlander stunten? Je volgt de...
+- [Als 10-jarige zag Ashley hoe haar pleegouders werden vermoord: ‘Heeft mijn leven permanent beschadigd’](https://www.ad.nl/binnenland/als-10-jarige-zag-ashley-hoe-haar-pleegouders-werden-vermoord-heeft-mijn-leven-permanent-beschadigd~a3f15018/)
+  > Als 10-jarige ziet Ashley haar pleegouders vermoord worden in winkelcentrum de Ridderhof in Alphen. Vijftien jaar later doet zij in het AD haar...
+- [Rusland blijft Kyiv bombarderen als vergelding voor aanval op studentenhuis](https://www.ad.nl/buitenland/rusland-blijft-kyiv-bombarderen-als-vergelding-voor-aanval-op-studentenhuis~aec9a3b1/)
+  > Rusland zegt Kyiv te blijven aanvallen bij wijze van vergelding voor een vermeende aanval op studentenhuisvesting in de bezette Oekraïense regio...
+- [Topmakelaar Karina verkoopt miljoenenvilla’s in Million dollar listing: ‘Ben er ziek van als deal niet doorgaat’](https://www.ad.nl/show/topmakelaar-karina-verkoopt-miljoenenvillas-in-million-dollar-listing-ben-er-ziek-van-als-deal-niet-doorgaat~a733b8e6/)
+  > Ze sluit miljoenendeals, krijgt te maken met extreme eisen, maar moet vermogende huizenzoekers soms ook uit hun droombubbel prikken: Karina Nippérus...
+- [Djokovic ondanks setverlies naar tweede ronde, Amerikaan Fritz verrassend onderuit](https://www.ad.nl/tennis/djokovic-ondanks-setverlies-naar-tweede-ronde-amerikaan-fritz-verrassend-onderuit~a924961f/)
+  > De tweede Grand Slam van het jaar gaat bijna van start. Van 25 mei tot 7 juni strijden de beste tennissers ter wereld op het gravel van Parijs om de...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Op het puntje van je stoel in Straatsburg](https://fd.nl/politiek/1597743/op-het-puntje-van-je-stoel-in-straatsburg)
-  > De nieuwe editie van de Europa-nieuwsbrief van het FD gaat over meer actie in Straatsburg, het terugkerende terugkeerdebat, Europese chips en:...
-- [Doorwerken na je 67ste](https://fd.nl/samenleving/1597692/doorwerken-na-je-67ste)
-  > Hoe gezond is het eigenlijk om te stoppen met werken als je de AOW-leeftijd hebt bereikt, vraagt Femmetje de Wind zich af.
-- [Krispy Kreme gaat proberen de Nederlander aan de luxere donut te krijgen](https://fd.nl/bedrijfsleven/1597503/krispy-kreme-gaat-proberen-de-nederlander-aan-de-luxere-donut-te-krijgen)
-  > Experts zien op de Nederlandse markt meer kansen voor Krispy Kreme dan voor voorganger Dunkin’ Donuts, die twee keer failliet ging.
-- [Amerikaanse president Trump maakt terugtrekkende beweging over mogelijke Iran-deal](https://fd.nl/politiek/1597747/amerikaanse-president-trump-maakt-terugtrekkende-beweging-over-mogelijke-iran-deal)
-  > Waar hij eerder nog hintte op een deal afgelopen weekend, schrijft hij nu op zijn eigen sociale medium dat beide partijen ‘tijd moeten nemen’.
-- [Papieren winst, echte belasting: hoe één fiscale regel innovatie kan dwarszitten](https://fd.nl/opinie/1597466/hoe-een-belastingregel-innovatie-kan-dwarszitten)
-  > Door een aanpassing in het afschrijven van bedrijfspanden bij de winstbelasting, lopen innovatieve ondernemingen die investeren in eigen vastgoed...
+- [Druk op centrale banken neemt toe, en dat komt deels door henzelf](https://fd.nl/financiele-markten/1597587/druk-op-centrale-banken-neemt-toe-en-dat-komt-deels-door-henzelf)
+  > De hogere staatsschulden en de verantwoordelijkheid voor de financiële stabiliteit zijn een risico. Ook kan het uitgedijde mandaat van centrale...
+- [Jongeren maken geen gebruik van ‘beleggingsvrijheid’ in pensioenregeling](https://fd.nl/financiele-markten/1597699/jongeren-maken-geen-gebruik-van-beleggingsvrijheid-in-pensioenregeling)
+  > In het nieuwe stelsel kunnen deelnemers een beleggingsprofiel kiezen. Maar ze maken geen gebruik van de mogelijkheid. Vooral jongeren blijven achter,...
+- [De beursgang van ruimtevaartbedrijf SpaceX leunt op buitenaardse groei](https://fd.nl/financiele-markten/1597689/de-beursgang-van-ruimtevaartbedrijf-spacex-leunt-op-buitenaardse-groei)
+  > SpaceX verbrandt miljarden per jaar. Toch wordt de beursgang van het bedrijf de grootste ooit. Wat krijgen beleggers daarvoor?
+- [Hoeveel toekomst heeft de verkoop van statiegeldmachines nog?](https://fd.nl/financiele-markten/1597467/hoeveel-toekomst-heeft-de-verkoop-van-statiegeldmachines-nog)
+  > Vorige week verloor het aandeel van Envipco 6,4% op de dag van de presentatie van de kwartaalcijfers. Het was daarmee met afstand de grootste daler...
+- [Huawei claimt grote chipdoorbraak zonder geavanceerde machines van ASML](https://fd.nl/bedrijfsleven/1597750/huawei-claimt-grote-chipdoorbraak-zonder-machines-asml)
+  > Het Chinese concern zegt een nieuwe manier te hebben ontdekt om geavanceerde chips te ontwikkelen.  Dat doet het zonder de machines van ASML.
 
 ### Meest gelezen
 
