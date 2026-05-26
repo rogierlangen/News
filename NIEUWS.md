@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-05-2026 om 20:56*
+*Laatst bijgewerkt: 26-05-2026 om 22:25*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Voetbalpodcast | ‘Koeman zal veel laten afhangen van de brekebeentjes bij Oranje’](https://www.ad.nl/voetbal/voetbalpodcast-koeman-zal-veel-laten-afhangen-van-de-brekebeentjes-bij-oranje~a42af5cd9/)
+  > Wie spelers neemt Ronald Koeman mee naar Amerika? Vandaag maakt de bondscoach zijn selectie bekend voor het WK 2026. In de AD Voetbalpodcast...
+- [Vandaag maakt Ronald Koeman zijn selectie bekend: welke spelers moeten volgens jou met Oranje mee naar het WK?](https://www.ad.nl/voetbal/vandaag-maakt-ronald-koeman-zijn-selectie-bekend-welke-spelers-moeten-volgens-jou-met-oranje-mee-naar-het-wk~a68aed79/)
+  > Ronald Koeman maakt vandaag zijn WK-selectie bekend. Het grote aftellen is begonnen, zeker voor de bondscoach dus, want wie neemt hij mee naar...
+- [Steun voor klimaatbeleid kalft af, een derde van bevolking heeft gevoel ‘nergens meer van te mogen genieten’](https://www.ad.nl/binnenland/steun-voor-klimaatbeleid-kalft-af-een-derde-van-bevolking-heeft-gevoel-nergens-meer-van-te-mogen-genieten~a5c80b96/)
+  > De aanpak van klimaatverandering verdeelt de bevolking. Hoewel een meerderheid van de Nederlanders nog steeds achter een krimp van de uitstoot van...
+- [Ricardo Pepi en Sergiño Dest in selectie Verenigde Staten, WK komt niet in gevaar voor Lionel Messi](https://www.ad.nl/wk-voetbal/ricardo-pepi-en-sergino-dest-in-selectie-verenigde-staten-wk-komt-niet-in-gevaar-voor-lionel-messi~a61805da/)
+  > Over twee weken begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste wedstrijd. Via dit...
 - [Sinner eenvoudig verder, Medvedev laat zich verrassen, Schuurs naar tweede ronde dubbelspel](https://www.ad.nl/tennis/sinner-eenvoudig-verder-medvedev-laat-zich-verrassen-schuurs-naar-tweede-ronde-dubbelspel~a924961f/)
   > De tweede Grand Slam van het jaar gaat bijna van start. Van 25 mei tot 7 juni strijden de beste tennissers ter wereld op het gravel van Parijs om de...
-- [Ook rechtse partijen vallen De Vos (FvD) aan op rechtsextremisme: ‘Hoe goor wil je het hebben?’](https://www.ad.nl/politiek/ook-rechtse-partijen-vallen-de-vos-fvd-aan-op-rechtsextremisme-hoe-goor-wil-je-het-hebben~a4ced399/)
-  > Lang lieten partijen in de Tweede Kamer de leden voor Forum voor Democratie maar wat pruttelen in debatten, maar dinsdagavond ging een nieuwe fase...
-- [Britse jongen (13) met Tourette geweigerd op vlucht om bomopmerking](https://www.ad.nl/buitenland/britse-jongen-13-met-tourette-geweigerd-op-vlucht-om-bomopmerking~aa9d1c0f/)
-  > Een 13-jarige Britse jongen met het Tourette-syndroom en zijn familie zijn van een vlucht gehaald nadat de jongen meerdere keren het woord ‘bom’...
-- [KNVB blijft tóch in Zeist: plannen voor nieuwe voetbalcampus weer springlevend](https://www.ad.nl/voetbal/knvb-blijft-toch-in-zeist-plannen-voor-nieuwe-voetbalcampus-weer-springlevend~ab17a00e/)
-  > De KNVB wil definitief in Zeist blijven. De voetbalbond ziet nieuwe kansen om daar tóch een voetbalcampus voor de toekomst te realiseren. De...
-- [Twee PSV’ers met Marokko naar WK, Oussama Targhalline (Feyenoord) en Rayane Bounida (Ajax) vallen af](https://www.ad.nl/wk-voetbal/twee-psvers-met-marokko-naar-wk-oussama-targhalline-feyenoord-en-rayane-bounida-ajax-vallen-af~aeded6de/)
-  > Marokko heeft de selectie voor het WK voetbal op papier. Twee spelers van PSV gaan naar het wereldkampioenschap: Ismael Saibari en Anass...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Nederlanders vinden klimaatbeleid oneerlijk: grote bedrijven betalen te weinig en vervuilen meer](https://fd.nl/politiek/1597792/nederlanders-vinden-klimaatbeleid-oneerlijk-grote-bedrijven-betalen-te-weinig-en-vervuilen-meer)
+  > ‘Deze ervaren onrechtvaardigheid kan het draagvlak voor klimaatbeleid ondermijnen’, waarschuwt SCP-onderzoeker Yvonne de Kluizenaar.
 - [Chipbedrijf Micron door $1000 mrd-grens op hogere Amerikaanse beurs](https://fd.nl/financiele-markten/1597806/chipbedrijf-micron-door-1000-mrd-grens-op-hogere-amerikaanse-beurs)
   > Wall Street sluit verdeeld terwijl de chiprally doordendert.
 - [Hoofd koel houden in AI-hype](https://fd.nl/opinie/1597897/hoofd-koel-houden-in-ai-hype)
@@ -54,8 +56,6 @@
   > De overname werd eerder al aangekondigd en moet in de tweede helft van het jaar zijn afgerond.
 - [Lijmfabrikant H.B. Fuller onder druk van activistische belegger om overname te laten varen](https://fd.nl/bedrijfsleven/1597913/lijmfabrikant-h-b-fuller-onder-druk-van-activistische-belegger-om-overname-te-laten-varen)
   > Het Amerikaanse bedrijf heeft een bod uitgebracht om de fabrikant van medische producten over te nemen voor meer dan £600 mln, maar investeerder...
-- [Qualcomm sluit deal met TikTok-eigenaar voor chipleveranties](https://fd.nl/bedrijfsleven/1597912/qualcomm-sluit-deal-met-tiktok-eigenaar-voor-chipleveranties)
-  > De chips van het Amerikaanse techconcern moeten de AI-agent van ByteDance verbeteren.
 
 ### Meest gelezen
 
