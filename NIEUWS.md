@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-05-2026 om 15:49*
+*Laatst bijgewerkt: 26-05-2026 om 18:30*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Run op zwaardere stroomaansluiting voor huishoudens nu wachtlijst dreigt](https://nos.nl/l/2615927)
-  > Fors meer Nederlandse huishoudens dienden afgelopen weken een aanvraag in voor een zwaardere aansluiting op het stroomnet. Dat bevestigen...
-- [Meer open tenten geplaatst in Ter Apel, nog geen opvang voor de nacht](https://nos.nl/l/2615922)
-  > Het Rode Kruis heeft extra open tenten neergezet op het grasveld voor het aanmeldcentrum in Ter Apel om meer schaduw te creëren. Ze zijn niet bedoeld...
-- [Vanavond Swiebertje of de Soundmixshow kijken? 700.000 oude programma's online](https://nos.nl/l/2615920)
-  > 700.000 programma's van de publieke omroep zijn vanaf vandaag gratis online te bekijken. De radio- en televisieprogramma's uit het audiovisuele...
-- [In beeld: genieten, ploeteren en verkoeling zoeken op deze tropische dag](https://nos.nl/l/2615918)
-  > Nederland beleeft de eerste tropische dag van het jaar. Dat betekent voor de een een zorgeloze dag op het strand en afkoelen in zee. Voor de ander is...
-- [KNMI laat voortaan hittekracht zien: 'Niet elke 25 graden Celsius voelt hetzelfde'](https://nos.nl/l/2615916)
-  > De temperatuur kruipt richting de 30 graden Celsius, en dakdekker Jason bevestigt met een brander een laag bitumen op het dak van een rijtjeshuis in...
+- [Israël wil Hezbollah uitschakelen: heeft de Libanese militie nog slagkracht?](https://nos.nl/l/2615949)
+  > "We gaan Hezbollah de beslissende slag toebrengen". Dat zei de Israëlische premier Netanyahu gisteren toen hij aankondigde dat het Israëlische leger...
+- [Israëlische troepen rukken verder op in Libanon, voorbij de 'gele lijn'](https://nos.nl/l/2615947)
+  > Israëlische troepen zijn vandaag verder Libanon binnengetrokken en hebben de zelf ingestelde 'gele lijn' overschreden. Dat schrijven Israëlische...
+- [Etages flat Ridderkerk ontruimd vanwege koolmonoxide](https://nos.nl/l/2615943)
+  > In een flat in Ridderkerk zijn meerdere etages ontruimd vanwege koolmonoxide. Twee bewoners zijn naar het ziekenhuis gebracht. Een van hen was onwel...
+- [PVV'er Boon bekent manipulatie van rechtbanktekening: 'Was gewoon dom'](https://nos.nl/l/2615942)
+  > PVV-Kamerlid Maikel Boon heeft de schuld op zich genomen voor het manipuleren van een rechtbanktekening. "Dat is een hele domme actie geweest", zegt...
+- [Van ontucht verdachte oud-burgemeester ontkent aantijgingen, zit langer vast](https://nos.nl/l/2615935)
+  > De oud-burgemeester van Hendrik-Ido-Ambacht die verdacht wordt van ontucht en het bezit van kinderporno, ontkent alle aantijgingen. Dat zei hij op...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Waarom we miljarden in defensie steken, maar er geen geld is voor wegroestende bruggen en wegen](https://www.ad.nl/binnenland/waarom-we-miljarden-in-defensie-steken-maar-er-geen-geld-is-voor-wegroestende-bruggen-en-wegen~a6241b58/)
-  > Al jaren waarschuwen experts voor de slechte staat van bruggen, viaducten en wegen. Als er niet snel miljarden bijkomen, staan automobilisten straks...
-- [Sterke Arensman stijgt naar podiumplek in klassement Giro, Vingegaard heerst en boekt vierde ritzege](https://www.ad.nl/giro/sterke-arensman-stijgt-naar-podiumplek-in-klassement-giro-vingegaard-heerst-en-boekt-vierde-ritzege~aa5d5d09/)
-  > Jonas Vingegaard heeft met overmacht zijn vierde ritzege in deze Giro d’Italia gepakt. De Deense heerser van deze ronde heeft nu alle aankomsten...
-- [Pepijn Lijnders keek een seizoen lang naast Guardiola mee: 'Hij benadert een wedstrijdplan als een hartoperatie’](https://www.ad.nl/voetbal/pepijn-lijnders-keek-een-seizoen-lang-naast-guardiola-mee-hij-benadert-een-wedstrijdplan-als-een-hartoperatie~ad6cbe2e/)
-  > Eerst koos Jürgen Klopp hem als rechterhand, daarna Pep Guardiola. In het topvoetbal is Pepijn Lijnders misschien wel ’s werelds beste nummer 2. Hoe...
-- [Na succesjaren met Miho Takagi sluit succescoach Johan de Wit aan bij Team Novus](https://www.ad.nl/schaatsen/na-succesjaren-met-miho-takagi-sluit-succescoach-johan-de-wit-aan-bij-team-novus~a981af7c/)
-  > De Nederlandse schaatscoach Johan de Wit, die in olympisch Milaan nog grote successen boekte met zijn internationale Team Gold, gaat in eigen land...
-- [Treincoupé onder het bloed na vechtpartij, reiziger wijst dader aan: ‘Hij heeft mij in elkaar gerost’](https://www.ad.nl/binnenland/treincoupe-onder-het-bloed-na-vechtpartij-reiziger-wijst-dader-aan-hij-heeft-mij-in-elkaar-gerost~a0a1e9f5/)
-  > Een vechtpartij in een NS-trein is maandagavond uitgemond in een bloedbad. Op beelden die rondgaan op sociale media is te zien hoe een bebloede,...
+- [Barça-icoon Putellas neemt na 14 jaar afscheid: ‘Nooit gedacht dat ik voor 90.000 fans zou spelen’](https://www.ad.nl/voetbal/barca-icoon-putellas-neemt-na-14-jaar-afscheid-nooit-gedacht-dat-ik-voor-90-000-fans-zou-spelen~accfe9b7/)
+  > Barcelona heeft officieel aangekondigd dat Alexia Putellas de club na 14 jaar zal verlaten. De Catalaanse club won met de middenveldster 36 prijzen....
+- [Jongen (16) en meisje (15) bekennen moord op 11-jarige Théo in Frankrijk](https://www.ad.nl/buitenland/jongen-16-en-meisje-15-bekennen-moord-op-11-jarige-theo-in-frankrijk~a71c51da/)
+  > De jongen van 16 en het meisje van 15 die ervan verdacht worden de 11-jarige Théo te hebben vermoord in de Franse stad Rennes, hebben toegegeven dat...
+- [Nog volop bezig! Piet (bijna 102) rijdt auto, gaat op vakantie én loopt zonder rollator](https://www.ad.nl/binnenland/nog-volop-bezig-piet-bijna-102-rijdt-auto-gaat-op-vakantie-en-loopt-zonder-rollator~a222e2f7/)
+  > Boodschappen doen in de supermarkt, vakantie vieren op de Veluwe en een dagelijks ommetje in de buurt. De bijna 102-jarige Piet Zeilstra doet als...
+- [Angela de Jong geeft Johan Derksen een groot compliment](https://www.ad.nl/show/angela-de-jong-geeft-johan-derksen-een-groot-compliment~a71dae3c/)
+  > Angela de Jong is positief verrast door Johan Derksen, vertelt ze in de nieuwe AD Media Podcast. Hij trok het boetekleed aan na een foute opmerking...
+- [Puffen, plonzen en ijsjes: Nederland viert de warmste 26 mei ooit](https://www.ad.nl/binnenland/puffen-plonzen-en-ijsjes-nederland-viert-de-warmste-26-mei-ooit~a5305931/)
+  > Met 29,2 graden beleefde Nederland de warmste 26 mei ooit gemeten. Door het hele land zochten mensen verkoeling aan zee, in stadsparken, op het water...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [American Airlines voorziet 500 toestellen van Starlink-internet](https://fd.nl/bedrijfsleven/1597908/american-airlines-voorziet-500-toestellen-van-starlink-internet)
-  > De dienst gaat gebruikmaken van het satellietnetwerk van Starlink in een lage baan om de aarde. Volgens American Airlines is het geschikt voor...
-- [Inspectie beboet 26 tomatentelers, aantal overtredingen ‘zeer verontrustend’](https://fd.nl/bedrijfsleven/1597906/inspectie-beboet-26-tomatentelers-aantal-overtredingen-zeer-verontrustend)
-  > De inspectie controleerde onder meer of de telers desinfectiemiddelen en ratten- en muizengif juist inzetten.
-- [Hbo’ers vinden nog steeds snel een baan](https://fd.nl/samenleving/1597905/hboers-vinden-nog-steeds-snel-een-baan)
-  > Net afgestudeerden hebben in de meeste gevallen geen moeite om aan het werk te komen. Meer dan 80% vindt direct na het behalen van hun papiertje een...
-- [Jonathan Andic wilde glamourleven als Mango-ceo, maar werd een mislukte opvolger](https://fd.nl/bedrijfsleven/1597884/jonathan-andic-wilde-glamourleven-als-mango-ceo-maar-werd-een-mislukte-opvolger)
-  > De erfgenaam van Isak Andic werd vorige week opgepakt op verdenking van de moord op zijn vader. Er zou een decenniumdurend drama aan voorafgegaan...
-- [Herwaardering vorderingen en schulden kan belasting schelen in box 3](https://fd.nl/politiek/1597887/herwaardering-vorderingen-en-schulden-kan-belasting-schelen-in-box-3)
-  > De fiscus besluit dat de waarde in het economische verkeer leidend is voor de waardering van vorderingen en schulden in box 3.
+- [Hoofd koel houden in AI-hype](https://fd.nl/opinie/1597897/hoofd-koel-houden-in-ai-hype)
+  > Bedrijven zijn steeds meer geld kwijt aan AI-experimenten, terwijl de opbrengsten er vaak (nog) niet zijn. Met verdere kostenstijgingen in het...
+- [Aandeelhouders Webster akkoord met overname door Santander van $12 mrd](https://fd.nl/bedrijfsleven/1597804/aandeelhouders-webster-akkoord-met-overname-door-santander-van-12-mrd)
+  > De overname werd eerder al aangekondigd en moet in de tweede helft van het jaar zijn afgerond.
+- [Lijmfabrikant H.B. Fuller onder druk van activistische belegger om overname te laten varen](https://fd.nl/bedrijfsleven/1597913/lijmfabrikant-h-b-fuller-onder-druk-van-activistische-belegger-om-overname-te-laten-varen)
+  > Het Amerikaanse bedrijf heeft een bod uitgebracht om de fabrikant van medische producten over te nemen voor meer dan £600 mln, maar investeerder...
+- [Qualcomm sluit deal met TikTok-eigenaar voor chipleveranties](https://fd.nl/bedrijfsleven/1597912/qualcomm-sluit-deal-met-tiktok-eigenaar-voor-chipleveranties)
+  > De chips van het Amerikaanse techconcern moeten de AI-agent van ByteDance verbeteren.
+- [Xiaomi verkoopt minder smartphones, winst keldert](https://fd.nl/tech-en-innovatie/1597911/xiaomi-verkoopt-minder-smartphones-winst-keldert)
+  > Smartphoneconcern heeft te maken met hogere prijs voor geheugenchips.
 
 ### Meest gelezen
 
