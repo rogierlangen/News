@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-05-2026 om 23:09*
+*Laatst bijgewerkt: 26-05-2026 om 03:58*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Vaker eindexamen Arabisch of Turks: 'Wil leren over land van mijn ouders'](https://nos.nl/l/2615843)
+  > De centrale eindexamens Arabisch en Turks staan vandaag en morgen op het programma. Die vakken zijn steeds populairder, valt op te maken uit cijfers...
+- [Brand bij timmerbedrijf Zutphen, loods gaat in vlammen op](https://nos.nl/l/2615842)
+  > Bij een grote brand bij een timmerbedrijf in Zutphen is vannacht een loods van 40 bij 10 meter volledig afgebrand. Daarbij kwam ook asbest vrij, maar...
+- [Gratie voor Cambodjaanse oud-oppositieleider Kem Sokha](https://nos.nl/l/2615841)
+  > De koning van Cambodja heeft gratie verleend aan de 72-jarige voormalig oppositieleider Kem Sokha. Vorige maand hield de rechtbank in Phnom Penh zijn...
+- [VS valt raketlanceerinstallaties en boten aan in zuiden van Iran](https://nos.nl/l/2615840)
+  > Het Amerikaanse leger heeft verschillende doelen in het zuiden van Iran aangevallen. Het zou onder meer gaan om raketlanceerinstallaties en boten die...
 - [Ruimterots vernoemd naar amateuronderzoeker Astrid Eeuwes: 'De bekroning op mijn werk'](https://nos.nl/l/2615839)
   > Een 1,5 kilometer brede ruimterots is vernoemd naar de Nijmeegse amateuronderzoeker Astrid Eeuwes. De planetoïde draait in een baan om de zon en...
-- [Niels Wennemars wint beroemde Britse kaasrolwedstrijd: 'Ik ben hier een god'](https://nos.nl/l/2615832)
-  > Voor het eerst is een Nederlander het snelst over de finish gekomen bij het jaarlijkse kaasrolkampioenschap in Gloucester in Engeland. De 21-jarige...
-- [Iran gaat toegang tot internet herstellen na blokkade van bijna drie maanden](https://nos.nl/l/2615827)
-  > De Iraanse president Pezeshkian heeft opdracht gegeven om de toegang tot het internet te herstellen. Dat melden Iraanse staatsmedia. Voor Iraniërs...
-- [Spaanse Hondius-opvarende test positief op hantavirus, tweede besmetting in Spanje](https://nos.nl/l/2615826)
-  > Bij een Spaanse opvarende van het Nederlandse cruiseschip Hondius is het hantavirus vastgesteld. Dat meldt het Spaanse ministerie van...
-- [Netanyahu beveelt zwaarder offensief tegen Hezbollah in Libanon](https://nos.nl/l/2615820)
-  > De Israëlische premier Netanyahu zegt dat de oorlog tegen Hezbollah in Libanon wordt opgevoerd. Hij kondigt zwaardere aanvallen aan in reactie op...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Man (21) overleden bij parachutesprong in Frankrijk](https://www.ad.nl/buitenland/man-21-overleden-bij-parachutesprong-in-frankrijk~a4e255b4/)
-  > In het noorden van Frankrijk is zondag een 21-jarige man overleden bij een ongeval met een parachute. Er is een onderzoek geopend naar de oorzaak van...
-- [‘Return of a hero’: indrukwekkend afscheid van Pep Guardiola, twintig trofeeëndragers voor al zijn prijzen](https://www.ad.nl/voetbal/return-of-a-hero-indrukwekkend-afscheid-van-pep-guardiola-twintig-trofeeendragers-voor-al-zijn-prijzen~ab84e37d/)
-  > ‘The return of a hero.’ Vincent Kompany (40) was even terug in Manchester. De coach van Bayern München showde op het afscheid van Pep Guardiola (55)...
-- [Voetbalpodcast | ‘De grote schoonmaak gaat nu beginnen bij Ajax’](https://www.ad.nl/voetbal/voetbalpodcast-de-grote-schoonmaak-gaat-nu-beginnen-bij-ajax~a42af5cd9/)
-  > Nu het seizoen voorbij is weet Jordi Cruijff wat hem te doen staat. Hij kent de budgetten. Hij weet wat hij te bieden heeft. Nu kijken wie er wel of...
-- [Colombia neemt topscorer van WK 2014 op in selectie, ‘geen blessure voor Lionel Messi’](https://www.ad.nl/wk-voetbal/colombia-neemt-topscorer-van-wk-2014-op-in-selectie-geen-blessure-voor-lionel-messi~a61805da/)
-  > Over twee weken begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste wedstrijd. Via dit...
-- [Moeder van Bridget Maasland naar spoedeisende hulp: ‘Gaat helaas helemaal niet goed met mama’](https://www.ad.nl/show/moeder-van-bridget-maasland-naar-spoedeisende-hulp-gaat-helaas-helemaal-niet-goed-met-mama~a9202225/)
-  > Presentatrice Bridget Maasland heeft haar moeder Elly (77) naar de spoedeisende hulp gebracht. ‘Het gaat helaas helemaal niet goed met mama sinds...
+- [Tientallen drones neergestort in haven van Sydney, droneshow afgelast](https://www.ad.nl/buitenland/tientallen-drones-neergestort-in-haven-van-sydney-droneshow-afgelast~a2cf9141/)
+  > Tijdens een droneshow in Sydney zijn maandagavond (lokale tijd) tientallen drones neergestort in de haven. Dat melden verschillende Australische...
+- [Canadese premier noemt behandeling flotilla-activisten onacceptabel en wil onderzoek](https://www.ad.nl/buitenland/canadese-premier-noemt-behandeling-flotilla-activisten-onacceptabel-en-wil-onderzoek~a0c78acb4/)
+  > De Canadese premier Mark Carney heeft maandag tegen de Israëlische president Isaac Herzog gezegd dat de behandeling van de activisten van de Global...
+- [Noodklok over de infrastructuur: automobilist wacht jarenlange afsluitingen en files](https://www.ad.nl/binnenland/noodklok-over-de-infrastructuur-automobilist-wacht-jarenlange-afsluitingen-en-files~ab625d89/)
+  > Automobilisten staan de komende jaren op veel plekken in Nederland langdurige afsluitingen van wegen te wachten als gemeenten en provincies niet meer...
+- [Cody Gakpo blikt terug op zwaarste seizoen bij Liverpool en start campagne tegen online haat: ‘Kan jonge spelers raken’](https://www.ad.nl/voetbal/cody-gakpo-blikt-terug-op-zwaarste-seizoen-bij-liverpool-en-start-campagne-tegen-online-haat-kan-jonge-spelers-raken~a285fa61/)
+  > Na een turbulent seizoen bij Liverpool zet Cody Gakpo nu de knop om. Hij richt zich op het WK met Oranje en op een campagne tegen online haat die...
+- [VS vallen doelen in Iran aan ‘uit zelfverdediging’, diverse explosies gehoord](https://www.ad.nl/buitenland/vs-vallen-doelen-in-iran-aan-uit-zelfverdediging-diverse-explosies-gehoord~ac528ac3/)
+  > De Verenigde Staten hebben diverse doelen aangevallen in het zuiden van Iran. Volgens het Amerikaans Centraal Commando (Centcom) is dit gebeurd ‘uit...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [AI-prijskaartje voor bedrijven valt duur uit](https://fd.nl/economie/1597711/ai-prijskaartje-voor-bedrijven-valt-duur-uit)
+  > Vandaag in de Dagkoers: Het toch wel erg dure bonnetje van AI, de Belastingdienst is het niet eens met de langere bezorgtijd van PostNL en maar...
 - [Defensieaandelen dalen ondanks oorlog in Iran](https://fd.nl/financiele-markten/1597708/defensieaandelen-dalen-ondanks-oorlog-in-iran)
   > De graadmeter die de wereldwijde defensiesector volgt, staat sinds de Amerikaans-Israëlische aanval in februari 12,4% lager. Is ‘buy the rumour, sell...
 - [‘Infrastructuur vergt veel grotere investering dan gedacht’](https://fd.nl/politiek/1597700/infrastructuur-vergt-veel-grotere-investering-dan-gedacht)
@@ -54,8 +56,6 @@
   > Het postbedrijf zou kleinere concurrenten belemmeren mee te doen aan de tender voor de bezorging van alle rijkspost, waaronder blauwe enveloppen en...
 - [Rijk maar afhankelijk](https://fd.nl/opinie/1597754/rijk-maar-afhankelijk)
   > Belle Burden, een telg uit de Amerikaanse oudgeldfamilie Vanderbilt, werd hét gezicht van de financiële kwetsbaarheid van vrouwen
-- [Opnieuw strategische kortsluiting bij de Navo](https://fd.nl/opinie/1597749/opnieuw-strategische-kortsluiting-bij-de-navo)
-  > De eerste Navo-top op Zweedse bodem sinds de toetreding moest eensgezindheid uitstralen. In plaats daarvan werd vooral zichtbaar hoe afhankelijk...
 
 ### Meest gelezen
 
