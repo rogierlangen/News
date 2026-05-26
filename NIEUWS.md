@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-05-2026 om 07:57*
+*Laatst bijgewerkt: 26-05-2026 om 15:49*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Zeven gewonden bij botsing tussen stadsbus en vrachtwagen in Waalre](https://nos.nl/l/2615859)
-  > Bij een botsing tussen een bus en een vrachtwagen in Waalre zijn vanochtend zeven mensen lichtgewond geraakt. Het gaat om passagiers van de stadsbus,...
-- [Explosiegevaar tank met chemicaliën in Californië grotendeels voorbij](https://nos.nl/l/2615857)
-  > In de Californische plaats Garden Grove is het gevaar voor een vernietigende explosie grotendeels voorbij. Een opslagtank met een chemische stof...
-- [Bruggen en wegen dicht als er niet meer geld komt, waarschuwen overheden](https://nos.nl/l/2615855)
-  > Veel infrastructuur in Nederland is zo verouderd dat gemeenten en provincies zich zorgen maken over de bereikbaarheid van Nederland. Zij willen meer...
-- [Steeds meer invloed criminelen in bestuur en bovenwereld](https://nos.nl/l/2615851)
-  > Criminelen krijgen steeds meer invloed in wijken, maar ook op besluitvorming, terwijl de controle en het zicht vanuit de overheid juist langzaam...
-- [Sonny Rollins overleden, 'Saxophone colossus' zocht onophoudelijk naar perfectie](https://nos.nl/l/2615849)
-  > De Amerikaanse saxofonist Sonny Rollins is overleden. Hij was 95 en is een icoon in de jazzgeschiedenis. Van eind jaren 40, toen hij als tiener zijn...
+- [Run op zwaardere stroomaansluiting voor huishoudens nu wachtlijst dreigt](https://nos.nl/l/2615927)
+  > Fors meer Nederlandse huishoudens dienden afgelopen weken een aanvraag in voor een zwaardere aansluiting op het stroomnet. Dat bevestigen...
+- [Meer open tenten geplaatst in Ter Apel, nog geen opvang voor de nacht](https://nos.nl/l/2615922)
+  > Het Rode Kruis heeft extra open tenten neergezet op het grasveld voor het aanmeldcentrum in Ter Apel om meer schaduw te creëren. Ze zijn niet bedoeld...
+- [Vanavond Swiebertje of de Soundmixshow kijken? 700.000 oude programma's online](https://nos.nl/l/2615920)
+  > 700.000 programma's van de publieke omroep zijn vanaf vandaag gratis online te bekijken. De radio- en televisieprogramma's uit het audiovisuele...
+- [In beeld: genieten, ploeteren en verkoeling zoeken op deze tropische dag](https://nos.nl/l/2615918)
+  > Nederland beleeft de eerste tropische dag van het jaar. Dat betekent voor de een een zorgeloze dag op het strand en afkoelen in zee. Voor de ander is...
+- [KNMI laat voortaan hittekracht zien: 'Niet elke 25 graden Celsius voelt hetzelfde'](https://nos.nl/l/2615916)
+  > De temperatuur kruipt richting de 30 graden Celsius, en dakdekker Jason bevestigt met een brander een laag bitumen op het dak van een rijtjeshuis in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Voor een retro-auto als de nieuwe ‘Lelijke Eend’ willen we best meer betalen: ‘Een guitig ding, denkt men’](https://www.ad.nl/auto/voor-een-retro-auto-als-de-nieuwe-lelijke-eend-willen-we-best-meer-betalen-een-guitig-ding-denkt-men~aec42e76/)
-  > Na de Mini, de Fiat 500, de Volkswagen ID. Buzz en de Renaults 4, 5 en Twingo blaast Citroën de 2CV nieuw leven in, in Nederland beter bekend als de...
-- [WK komt niet in gevaar voor Lionel Messi, oud-Ajacied Mohammed Kudus niet mee met Ghana](https://www.ad.nl/wk-voetbal/wk-komt-niet-in-gevaar-voor-lionel-messi-oud-ajacied-mohammed-kudus-niet-mee-met-ghana~a61805da/)
-  > Over twee weken begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste wedstrijd. Via dit...
-- [Fans gaan uit hun dak in New York: Knicks voor het eerst sinds 1999 naar NBA-finale](https://www.ad.nl/andere-sporten/fans-gaan-uit-hun-dak-in-new-york-knicks-voor-het-eerst-sinds-1999-naar-nba-finale~afe0858f/)
-  > De basketballers van New York Knicks hebben zich voor het eerst sinds 1999 geplaatst voor de finale van de NBA. De ploeg van trainer Mike Brown won...
-- [Tomiyasu lijkt vertrek bij Ajax aan te kondigen, Mees Hilgers een jaar langer bij FC Twente](https://www.ad.nl/voetbal/tomiyasu-lijkt-vertrek-bij-ajax-aan-te-kondigen-mees-hilgers-een-jaar-langer-bij-fc-twente~a488141d/)
-  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
-- [Amerikaanse competitie wil testen met zuivere speeltijd: ‘Wanneer gaan we onsportief gedrag aanpakken?’](https://www.ad.nl/voetbal/amerikaanse-competitie-wil-testen-met-zuivere-speeltijd-wanneer-gaan-we-onsportief-gedrag-aanpakken~ab94bd5f/)
-  > De Major League Soccer, de hoogste Amerikaanse competitie, wil als proeftuin dienen voor zuivere speeltijd in het voetbal. Het competitiebestuur wil...
+- [Waarom we miljarden in defensie steken, maar er geen geld is voor wegroestende bruggen en wegen](https://www.ad.nl/binnenland/waarom-we-miljarden-in-defensie-steken-maar-er-geen-geld-is-voor-wegroestende-bruggen-en-wegen~a6241b58/)
+  > Al jaren waarschuwen experts voor de slechte staat van bruggen, viaducten en wegen. Als er niet snel miljarden bijkomen, staan automobilisten straks...
+- [Sterke Arensman stijgt naar podiumplek in klassement Giro, Vingegaard heerst en boekt vierde ritzege](https://www.ad.nl/giro/sterke-arensman-stijgt-naar-podiumplek-in-klassement-giro-vingegaard-heerst-en-boekt-vierde-ritzege~aa5d5d09/)
+  > Jonas Vingegaard heeft met overmacht zijn vierde ritzege in deze Giro d’Italia gepakt. De Deense heerser van deze ronde heeft nu alle aankomsten...
+- [Pepijn Lijnders keek een seizoen lang naast Guardiola mee: 'Hij benadert een wedstrijdplan als een hartoperatie’](https://www.ad.nl/voetbal/pepijn-lijnders-keek-een-seizoen-lang-naast-guardiola-mee-hij-benadert-een-wedstrijdplan-als-een-hartoperatie~ad6cbe2e/)
+  > Eerst koos Jürgen Klopp hem als rechterhand, daarna Pep Guardiola. In het topvoetbal is Pepijn Lijnders misschien wel ’s werelds beste nummer 2. Hoe...
+- [Na succesjaren met Miho Takagi sluit succescoach Johan de Wit aan bij Team Novus](https://www.ad.nl/schaatsen/na-succesjaren-met-miho-takagi-sluit-succescoach-johan-de-wit-aan-bij-team-novus~a981af7c/)
+  > De Nederlandse schaatscoach Johan de Wit, die in olympisch Milaan nog grote successen boekte met zijn internationale Team Gold, gaat in eigen land...
+- [Treincoupé onder het bloed na vechtpartij, reiziger wijst dader aan: ‘Hij heeft mij in elkaar gerost’](https://www.ad.nl/binnenland/treincoupe-onder-het-bloed-na-vechtpartij-reiziger-wijst-dader-aan-hij-heeft-mij-in-elkaar-gerost~a0a1e9f5/)
+  > Een vechtpartij in een NS-trein is maandagavond uitgemond in een bloedbad. Op beelden die rondgaan op sociale media is te zien hoe een bebloede,...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘Ik zie nu wat een last ik heb gedragen’](https://fd.nl/samenleving/1597590/ik-zie-nu-wat-een-last-ik-heb-gedragen)
-  > Als kind werd Aisha Dutrieux misbruikt door haar oom. Het leidde tot een kluwen aan schuldgevoelens. Tweede aflevering van een serie over schuld.
-- [‘Topambtenaren adviseren kabinet om X te verlaten’](https://fd.nl/politiek/1597665/topambtenaren-adviseren-kabinet-om-x-te-verlaten)
-  > Dat schrijft de Volkskrant, die een interne memo van de Voorlichtingsraad in handen heeft.
-- [VS en Israël vallen doelen in zuiden van Iran aan](https://fd.nl/politiek/1597664/vs-en-israel-vallen-doelen-in-zuiden-van-iran-aan)
-  > De aanvallen raakten volgens de VS raketlanceringsinstallaties en boten die mijnen leggen. Enkele uren voor de militaire actie zei de Amerikaanse...
-- [Live: Europese beurzen lager na nieuwe aanvallen VS op Iran](https://fd.nl/financiele-markten/1597635/live-beleggers-voorzichtig-na-nieuwe-aanvallen-vs-in-iran)
-  > De AEX-index sloot gisteren voor het eerst boven de 1050 punten. De Verenigde Staten voerden naar eigen zeggen vannacht defensieve aanvallen uit op...
-- [Wat als het Nederlandse oorlogsarchief online doorzoekbaar wordt voor iedereen?](https://fd.nl/samenleving/1597694/wat-als-het-nederlandse-oorlogsarchief-online-doorzoekbaar-wordt-voor-iedereen)
-  > De privacyrisico’s zijn reëel, zegt journalist Judith Zilversmit. Historicus Ewoud Kieft vindt de complexiteit van de dossiers een valkuil.
+- [American Airlines voorziet 500 toestellen van Starlink-internet](https://fd.nl/bedrijfsleven/1597908/american-airlines-voorziet-500-toestellen-van-starlink-internet)
+  > De dienst gaat gebruikmaken van het satellietnetwerk van Starlink in een lage baan om de aarde. Volgens American Airlines is het geschikt voor...
+- [Inspectie beboet 26 tomatentelers, aantal overtredingen ‘zeer verontrustend’](https://fd.nl/bedrijfsleven/1597906/inspectie-beboet-26-tomatentelers-aantal-overtredingen-zeer-verontrustend)
+  > De inspectie controleerde onder meer of de telers desinfectiemiddelen en ratten- en muizengif juist inzetten.
+- [Hbo’ers vinden nog steeds snel een baan](https://fd.nl/samenleving/1597905/hboers-vinden-nog-steeds-snel-een-baan)
+  > Net afgestudeerden hebben in de meeste gevallen geen moeite om aan het werk te komen. Meer dan 80% vindt direct na het behalen van hun papiertje een...
+- [Jonathan Andic wilde glamourleven als Mango-ceo, maar werd een mislukte opvolger](https://fd.nl/bedrijfsleven/1597884/jonathan-andic-wilde-glamourleven-als-mango-ceo-maar-werd-een-mislukte-opvolger)
+  > De erfgenaam van Isak Andic werd vorige week opgepakt op verdenking van de moord op zijn vader. Er zou een decenniumdurend drama aan voorafgegaan...
+- [Herwaardering vorderingen en schulden kan belasting schelen in box 3](https://fd.nl/politiek/1597887/herwaardering-vorderingen-en-schulden-kan-belasting-schelen-in-box-3)
+  > De fiscus besluit dat de waarde in het economische verkeer leidend is voor de waardering van vorderingen en schulden in box 3.
 
 ### Meest gelezen
 
