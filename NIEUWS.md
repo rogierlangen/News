@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-05-2026 om 00:11*
+*Laatst bijgewerkt: 27-05-2026 om 05:19*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Vaals komt met meldingsplicht voor grote toertochten](https://nos.nl/l/2615965)
-  > De gemeenteraad van Vaals heeft unaniem ingestemd met maatregelen voor toertochten door de Zuid-Limburgse heuvels. Voor tochten met meer dan tien...
-- [Dit is wat we weten over het fatale spoorwegongeluk in België](https://nos.nl/l/2615959)
-  > Het is nog altijd onduidelijk hoe vanmorgen een schoolbusje op een trein kon botsen in België. Er is wel meer bekend geworden over de risico's van...
-- [Twee tieners geven toe dat ze Franse jongen (11) wurgden voor vismateriaal](https://nos.nl/l/2615958)
-  > Twee Franse tieners die verdacht worden van het wurgen van een 11-jarige jongen hebben bekend. Ze wilden naar eigen zeggen wraak nemen omdat het...
-- [Internet keert gedeeltelijk terug in Iran: einde aan recordblokkade](https://nos.nl/l/2615957)
-  > De toegang tot internet in Iran is deels aan het terugkeren. Daarmee komt een einde aan de bijna drie maanden durende internetblokkade ingesteld door...
-- [Restanten van chemische wapens Assad gevonden in Syrië](https://nos.nl/l/2615954)
-  > In Syrië zijn restanten gevonden van chemische wapens die het Syrische leger onder dictator Bashar al-Assad gebruikte tijdens de burgeroorlog in het...
+- [Wekdienst 27/5: Veiligheidsconferentie in Den Haag • Koeman maakt WK-selectie bekend](https://nos.nl/l/2615970)
+  > Goedemorgen! Een grote jaarlijkse vredesconferentie beleeft zijn debuut in Den Haag en bondscoach Ronald Koeman maakt bekend welke 26 spelers meegaan...
+- [Man (51) aangehouden voor liquidatie bij molen in Zwolle](https://nos.nl/l/2615969)
+  > Een man van 51 uit Zwolle is opgepakt voor betrokkenheid bij een liquidatie in februari. Toen werd bij een molen in Zwolle een 34-jarige man...
+- [Ook Nederland heeft nu een veiligheidsconferentie: 'Breder kijken dan regeringstoppen'](https://nos.nl/l/2615968)
+  > Nederland organiseert vandaag en morgen een grote internationale veiligheidsconferentie, met sprekers uit politiek, wetenschap, leger, bedrijfsleven...
+- [Groningen gaat vlaggen met Keti Koti, derde provincie die vlagprotocol aanpast](https://nos.nl/l/2615967)
+  > De provincie Groningen gaat vanaf dit jaar de vlag hijsen om het slavernijverleden te herdenken en de afschaffing te vieren. Het provinciebestuur...
+- [Onrustig Kamerdebat over geweld in de samenleving: 'Hoe goor wil je het hebben?'](https://nos.nl/l/2615966)
+  > Premier Jetten heeft opnieuw het geweld bij azc-demonstraties hard veroordeeld. In het Kamerdebat met de ruime titel "over het normaliseren van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Noord-Korea test nieuw multifunctioneel raketlanceersysteem](https://www.ad.nl/buitenland/noord-korea-test-nieuw-multifunctioneel-raketlanceersysteem~ad5268d0/)
-  > Noord-Korea heeft onder toezicht van leider Kim Jong-un een combinatie van tactische ballistische raketten, artillerieraketten en...
-- [Bouw van MMA-arena gestart in tuin van Witte Huis](https://www.ad.nl/buitenland/bouw-van-mma-arena-gestart-in-tuin-van-witte-huis~ae67dd9c/)
-  > Op een grasveld pal naast het Witte Huis in Washington wordt een tijdelijke arena gebouwd voor een MMA-wedstrijd op 14 juni. Die wordt gehouden om de...
-- [Jetten sluit samenwerking met radicaal-rechtse Markuszower niet uit, ondanks omstreden uitspraken](https://www.ad.nl/binnenland/jetten-sluit-samenwerking-met-radicaal-rechtse-markuszower-niet-uit-ondanks-omstreden-uitspraken~a9e852bd/)
-  > Gidi Markuszower heeft zich met zijn uitspraken over het plegen van geweld tegen Palestijnse vluchtelingen ‘buiten de constructieve krachten...
-- [Voetbalpodcast | ‘Koeman zal veel laten afhangen van de brekebeentjes bij Oranje’](https://www.ad.nl/voetbal/voetbalpodcast-koeman-zal-veel-laten-afhangen-van-de-brekebeentjes-bij-oranje~a42af5cd9/)
-  > Wie spelers neemt Ronald Koeman mee naar Amerika? Vandaag maakt de bondscoach zijn selectie bekend voor het WK 2026. In de AD Voetbalpodcast...
-- [Vandaag maakt Ronald Koeman zijn selectie bekend: welke spelers moeten volgens jou met Oranje mee naar het WK?](https://www.ad.nl/voetbal/vandaag-maakt-ronald-koeman-zijn-selectie-bekend-welke-spelers-moeten-volgens-jou-met-oranje-mee-naar-het-wk~a68aed79/)
-  > Ronald Koeman maakt vandaag zijn WK-selectie bekend. Het grote aftellen is begonnen, zeker voor de bondscoach dus, want wie neemt hij mee naar...
+- [Loiza Lamers speelt vrijzinnige vrouw met meerdere mannen: ‘Geen drie minnaars tegelijk voor mij’](https://www.ad.nl/show/loiza-lamers-speelt-vrijzinnige-vrouw-met-meerdere-mannen-geen-drie-minnaars-tegelijk-voor-mij~ad365a05/)
+  > Model en presentatrice Loiza Lamers (31) maakt eind dit jaar een verrassende sprong in het diepe: ze gaat acteren. En niet in zomaar een bijrolletje,...
+- [Gekleurde strepen, stippen of 'haartjes' op je banden? Dit betekenen ze](https://www.ad.nl/auto/gekleurde-strepen-stippen-of-haartjes-op-je-banden-dit-betekenen-ze~ab2c6a5f/)
+  > Wie nieuwe autobanden onder zijn auto laat zetten, ziet vaak gekleurde strepen, kleine stippen en dunne rubberen haartjes. Veel automobilisten denken...
+- [Voorbeschouwing etappe 17 Giro d’Italia | Pittige finale richting Andalo, avonturiers azen op succes](https://www.ad.nl/giro/voorbeschouwing-etappe-17-giro-ditalia-pittige-finale-richting-andalo-avonturiers-azen-op-succes~afba8ffb/)
+  > De zeventiende etappe in de Giro d’Italia biedt kansen aan de vroege vluchters. De finale is namelijk te zwaar voor de sprinters en lijkt op papier...
+- [Fabriekswoning van anderhalve ton voor starters? ‘Bij Landal zie je de prachtigste huisjes staan’](https://www.ad.nl/economie/fabriekswoning-van-anderhalve-ton-voor-starters-bij-landal-zie-je-de-prachtigste-huisjes-staan~a891638c5/)
+  > Rol de rode loper uit voor mensen die zelf een fabriekswoning willen kopen. Een goedkope en snelle oplossing voor woningzoekenden die een beetje...
+- [Tiktokker lijkt 'perfecte' influencer, dan raakt ze kijkers met de waarheid: 'Dit moet iedereen zien'](https://www.ad.nl/show/tiktokker-lijkt-perfecte-influencer-dan-raakt-ze-kijkers-met-de-waarheid-dit-moet-iedereen-zien~a2da8333/)
+  > Een Amerikaanse tiktokker krijgt veel lof voor de manier waarop ze onthult dat achter haar perfect verzorgde uiterlijk een andere, menselijke...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Live: Japanse en Zuid-Koreaanse beurzen op recordstand](https://fd.nl/financiele-markten/1597942/live-japanse-en-zuid-koreaanse-beurzen-op-recordstand)
+  > In de VS zal nabeurs duidelijk worden hoe het de softwaresector vergaat in het AI-tijdperk, wanneer Snowflake en Salesforce met hun resultaten komen.
+- [Steve Wilson: ‘AI steelt emoties, de ziel uit andere muziek’](https://fd.nl/samenleving/1597888/steve-wilson-ai-steelt-emoties-de-ziel-uit-andere-muziek)
+  > Op bezoek bij ’s werelds bekendste progrocker, Steven Wilson, onder meer oprichter van Porcupine Tree. ‘Misschien stop ik al mijn negatieve shit ook...
+- [Atilay Uslu: ‘Dat vingerwijzen is niet goed voor Nederland’](https://fd.nl/bedrijfsleven/1597517/atilay-uslu-dat-vingerwijzen-is-niet-goed-voor-nederland)
+  > Corendon-oprichter Atilay Uslu bracht als sponsor Curaçao naar het WK voetbal. Ondertussen vliegen zijn Turkse toestellen nog altijd Russische...
+- [Wat verdient jouw collega? Nieuwe wet maakt dat zichtbaar](https://fd.nl/economie/1597798/wat-verdient-jouw-collega-nieuwe-wet-maakt-dat-zichtbaar)
+  > Vandaag in Dagkoers: Solvinity komt toch niet in Amerikaanse handen, het kabinet wil met openheid over salaris de loonkloof dichten en de renovatie...
 - [Weer weinig werkloosheid](https://fd.nl/opinie/1597890/weer-weinig-werkloosheid)
   > Als het zo slecht gaat met de economie door dure olie, pessimisme en onzekerheid, waarom daalt de werkloosheid dan?
-- [Een avond in Mexico en de wonderlijke logica van toeval](https://fd.nl/opinie/1597881/een-avond-in-mexico-en-de-wonderlijke-logica-van-toeval)
-  > Soms verandert één achteloze reactie op sociale media ineens in een avond vol herinneringen, toevalligheden en onverwachte ontmoetingen. Over...
-- [Renovatie Van Brienenoordbrug gaat naar Spaanse bouwer](https://fd.nl/bedrijfsleven/1597781/renovatie-van-brienenoordbrug-gaat-naar-spaanse-bouwer)
-  > Het Spaanse bouwbedrijf FCC Construcción krijgt de voorlopige gunning voor het eerste deel van de renovatie van de Van Brienenoordbrug. Een...
-- [Damen isoleert vertraagd Duits fregattenproject van rest onderneming](https://fd.nl/bedrijfsleven/1597693/damen-isoleert-vertraagd-duits-fregattenproject-van-rest-onderneming)
-  > Het project is zodanig afgeschermd binnen het concern dat het toekomstige verloop van het miljardenproject ‘geen noemenswaardige effecten zal hebben...
-- [Personalia woensdag 27 mei](https://fd.nl/bedrijfsleven/1597789/personalia-woensdag-27-mei)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
