@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-05-2026 om 23:19*
+*Laatst bijgewerkt: 28-05-2026 om 04:00*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- ['Amerikaanse justitie start onderzoek naar Trump-aanklager E. Jean Carroll](https://nos.nl/l/2616110)
+  > Het Amerikaanse ministerie van Justitie is een strafrechtelijk onderzoek gestart naar E. Jean Carroll, een oud-columniste die zegt door Trump te zijn...
+- [Jill Biden blikt terug op desastreuze debat van haar man: 'Dacht aan een beroerte'](https://nos.nl/l/2616109)
+  > De voormalige Amerikaanse first lady Jill Biden dacht tijdens het zwakke debatoptreden van haar man Joe Biden tegen Donald Trump in 2024 dat hij een...
+- [Explosies gemeld bij Iraanse havenstad Bandar Abbas](https://nos.nl/l/2616108)
+  > De Verenigde Staten hebben in Iran nieuwe aanvallen uitgevoerd. Persbureau Reuters meldt dat op gezag van een Amerikaanse functionaris. Er zou een...
 - [Vrees voor 11 doden na implosie chemische opslagtank in Washington](https://nos.nl/l/2616107)
   > Door een implosie van een opslagtank op een fabrieksterrein in de staat Washington zijn waarschijnlijk elf mensen om het leven gekomen. Eerder zijn...
 - [Twee slachtoffers ongeluk Buggenhout uit het ziekenhuis](https://nos.nl/l/2616106)
   > Twee van de kinderen die gewond raakten bij het treinongeluk in het Belgische Buggenhout zijn ontslagen uit het ziekenhuis. Drie anderen blijven...
-- [Nederlander (32) doodgeschoten in Colombia](https://nos.nl/l/2616105)
-  > In de regio rond de Colombiaanse stad Valledupar is afgelopen zondag een Nederlander doodgeschoten. De man van 32 jaar werd volgens Colombiaanse...
-- [Contract CBS-journalist beëindigd na conflict over geschrapte gevangenisreportage](https://nos.nl/l/2616103)
-  > De Amerikaanse zender CBS News weigert het contract met 60 Minutes-correspondent Sharyn Alfonsi te verlengen. Ruim vijf maanden geleden werd haar...
-- [Persoonlijk assistent Matthew Perry krijgt celstraf voor toedienen ketamine](https://nos.nl/l/2616100)
-  > De persoonlijk assistent van de overleden Amerikaanse acteur Matthew Perry is veroordeeld tot een celstraf van drie jaar en vijf maanden voor zijn...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Voetbalpodcast | ‘Depay moet maar gaan concurreren met Malen en Brobbey voor de basis in Oranje’](https://www.ad.nl/voetbal/voetbalpodcast-depay-moet-maar-gaan-concurreren-met-malen-en-brobbey-voor-de-basis-in-oranje~a42af5cd9/)
-  > Ronald Koeman maakte woensdag zijn selectie voor het WK 2026 bekend. Daarin was geen ruimte voor de talentvolle middenvelders Luciano Valente en Kees...
-- [38 stafleden met Oranje naar het WK, New York en New Jersey klagen FIFA aan over ticketprijzen](https://www.ad.nl/wk-voetbal/38-stafleden-met-oranje-naar-het-wk-new-york-en-new-jersey-klagen-fifa-aan-over-ticketprijzen~a61805da/)
-  > Over twee weken begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste wedstrijd. Via dit...
-- [Weer feest in het zuiden van Londen: Crystal Palace pakt jaar na FA Cup ook de Conference League](https://www.ad.nl/voetbal/weer-feest-in-het-zuiden-van-londen-crystal-palace-pakt-jaar-na-fa-cup-ook-de-conference-league~af2a5e95/)
-  > Crystal Palace heeft de derde prijs in een jaar tijd gewonnen. Na het winnen van de FA Cup en de Community Shield op Wembley in 2025, won de club uit...
-- [Dit zijn de winnaars van Hunted Vips: ‘Staan we helemaal op de verkeerde plek?!’](https://www.ad.nl/show/dit-zijn-de-winnaars-van-hunted-vips-staan-we-helemaal-op-de-verkeerde-plek~a8db8236/)
-  > De Hunters hebben zich woensdagavond flink vergist in de finaleaflevering van Hunted Vips. Door een verkeerde gok zaten ze op een ander spoor en...
-- [Twee kinderen na treinongeluk Buggenhout ontslagen uit ziekenhuis](https://www.ad.nl/buitenland/twee-kinderen-na-treinongeluk-buggenhout-ontslagen-uit-ziekenhuis~a9787a84/)
-  > Twee van de kinderen die gewond raakten bij het treinongeluk in het Belgische Buggenhout hebben het ziekenhuis mogen verlaten, meldt de VRT. Drie...
+- [Waarschijnlijk geen overlevenden na ongeval bij verpakkingsbedrijf VS](https://www.ad.nl/buitenland/waarschijnlijk-geen-overlevenden-na-ongeval-bij-verpakkingsbedrijf-vs~a9f1f4c6/)
+  > De hulpdiensten verwachten geen overlevenden meer te vinden na het zware ongeval met een tank bij een verpakkingsbedrijf in de Amerikaanse staat...
+- [Jill Biden: ik dacht dat Joe beroerte kreeg tijdens desastreus debat met Trump](https://www.ad.nl/buitenland/jill-biden-ik-dacht-dat-joe-beroerte-kreeg-tijdens-desastreus-debat-met-trump~ae67dd9c/)
+  > De voormalige Amerikaanse first lady Jill Biden zegt dat ze tijdens het zwakke debatoptreden van haar man Joe Biden tegen Donald Trump in 2024 dacht...
+- [Dermatologen slaan alarm: uitgebreide skincareroutines van tieners leiden steeds vaker tot allergieën, eczeem en acne](https://www.ad.nl/binnenland/dermatologen-slaan-alarm-uitgebreide-skincareroutines-van-tieners-leiden-steeds-vaker-tot-allergieen-eczeem-en-acne~a1a2aba9/)
+  > Nederlandse dermatologen maken zich zorgen over de uitgebreide skincareroutines die vooral onder tieners en jongvolwassenen in zwang zijn geraakt...
+- [‘Derde seizoen MobLand onzeker door gedrag Tom Hardy’](https://www.ad.nl/show/derde-seizoen-mobland-onzeker-door-gedrag-tom-hardy~afde5763/)
+  > Het is nog onzeker of er een derde seizoen van de serie MobLand op Paramount+ komt. Het gedrag van hoofdrolspeler Tom Hardy, dat volgens bronnen van...
+- [Verenigde Staten voeren nieuwe aanvallen uit op Iran](https://www.ad.nl/buitenland/verenigde-staten-voeren-nieuwe-aanvallen-uit-op-iran~ac528ac3/)
+  > Het Amerikaanse leger heeft nieuwe aanvallen uitgevoerd op Iran. Dat heeft een Amerikaanse functionaris woensdag aan persbureau Reuters gemeld. Volg...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [De opkomst van de hotelgym: ‘Het is een beslissingsfactor geworden’](https://fd.nl/samenleving/1597895/de-opkomst-van-de-hotelgym-het-is-een-beslissingsfactor-geworden)
+  > De gym in hotels is een belangrijke faciliteit geworden. De (zaken)reiziger hecht immers veel belang aan een goede fitnessruimte.
+- [Dolf van den Brink: ‘We leven in een puriteins tijdperk waarin bier als risicovol wordt gezien’](https://fd.nl/bedrijfsleven/1597468/dolf-van-den-brink-we-leven-in-een-puriteins-tijdperk-waarin-bier-als-risicovol-wordt-gezien)
+  > Dolf van den Brink stopt na zes jaar met zijn droombaan als ceo bij Heineken. ‘Je kunt je niet voorstellen wat de baan inhoudt. Je bent geen...
+- [Tonnen aan AI-bonus voor Samsung-medewerkers](https://fd.nl/economie/1597963/tonnen-aan-ai-bonus-voor-samsung-medewerkers)
+  > Vandaag in de FD Dagkoers podcast: AkzoNobel wijst miljardenbod af, DRAM makers Samsung, Micron en SK Hynix breken records en geven mega-bonussen en...
 - [TikTok Shop jaagt op Nederlandse impulskoper met nieuw verkoopkanaal](https://fd.nl/bedrijfsleven/1597948/tiktok-shop-jaagt-op-nederlandse-impulskoper-met-nieuw-verkoopkanaal)
   > Niet op zoek, maar toch gekocht. De impulsaankoop krijgt vanaf half juni een nieuwe dimensie: de TikTok Shop komt dan officieel naar Nederland, een...
 - [Klamme handjes](https://fd.nl/opinie/1597857/klamme-handjes)
   > Private credit? Er is weinig transparantie én verwevenheid met het financiële systeem.
-- [Personalia donderdag 28 mei](https://fd.nl/bedrijfsleven/1597856/personalia-donderdag-28-mei)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [De slechte horror van achterstallig onderhoud](https://fd.nl/opinie/1597834/de-slechte-horror-van-achterstallig-onderhoud)
-  > Na gratis schoolboeken beloven we nu ook nieuwe laptops aan leerlingen. Doordat elke verkiezingscyclus samen gaat met nieuwe beloftes en...
-- [Private huurmarkt blijft krimpen, maar piek in verkoopgolf vastgoedbeleggers lijkt bereikt](https://fd.nl/economie/1597787/private-huurmarkt-blijft-krimpen-maar-piek-in-verkoopgolf-vastgoedbeleggers-lijkt-bereikt)
-  > Het aantal uitpondingen bereikte afgelopen kwartaal het laagste niveau sinds het derde kwartaal van 2024, blijkt uit nieuwe cijfers van het Kadaster....
 
 ### Meest gelezen
 
