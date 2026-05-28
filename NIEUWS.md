@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-05-2026 om 21:57*
+*Laatst bijgewerkt: 28-05-2026 om 23:25*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [VS zetten twee Braziliaanse drugsbendes op lijst van buitenlandse terroristische organisaties](https://www.ad.nl/buitenland/vs-zetten-twee-braziliaanse-drugsbendes-op-lijst-van-buitenlandse-terroristische-organisaties~ae67dd9c/)
+  > Het Amerikaanse ministerie van Buitenlandse Zaken heeft donderdag aangekondigd dat het twee Braziliaanse drugsbendes gaat aanmerken als ‘buitenlandse...
 - [‘Wat Magnier doet is knap, maar hoe waanzinnig goed is Stuyven?’](https://www.ad.nl/wielrennen/wat-magnier-doet-is-knap-maar-hoe-waanzinnig-goed-is-stuyven~a5ea502e/)
   > Een sprint in de achttiende etappe van de Giro? Dat was onmogelijk. Het zou een typische vluchtersrit worden. En als dat om een of andere reden toch...
 - [Wat een finale! Tranen bij Littler na zenuwslopende Premier League-titel (én hoofdprijs van 400.000 euro)](https://www.ad.nl/darts/wat-een-finale-tranen-bij-littler-na-zenuwslopende-premier-league-titel-en-hoofdprijs-van-400-000-euro~a3d230b0/)
@@ -35,8 +37,6 @@
   > De tweede Grand Slam van het jaar  is in volle gang. Tot 7 juni strijden de beste tennissers ter wereld op het gravel van Parijs om de titel in...
 - [Je kunt nu ook de Hyundai Ioniq 9 en Kia EV9 als thuisbatterij gebruiken](https://www.ad.nl/auto/je-kunt-nu-ook-de-hyundai-ioniq-9-en-kia-ev9-als-thuisbatterij-gebruiken~ae14d670/)
   > Onlangs introduceerde Renault in Nederland de mogelijkheid om stroom van je elektrische auto terug te leveren aan het net. Hyundai en Kia doen dat nu...
-- [Veelbesproken concerten Ye in GelreDome kunnen doorgaan; Marcouch verleent vergunning](https://www.ad.nl/binnenland/veelbesproken-concerten-ye-in-gelredome-kunnen-doorgaan-marcouch-verleent-vergunning~a9c1730f/)
-  > Rapper Ye, voorheen Kanye West, staat volgende week ‘gewoon’ in GelreDome. De Arnhemse burgemeester Ahmed Marcouch verleende donderdagavond een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [In of met Europa?](https://fd.nl/opinie/1598094/in-of-met-europa)
+  > Wanneer is een product ‘made in Europe’? Als het helemaal in Europese fabrieken is gemaakt? Of mogen de onderdelen ook uit andere landen komen?
+- [Personalia vrijdag 29 mei](https://fd.nl/bedrijfsleven/1598087/personalia-vrijdag-29-mei)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Akzo-top gaat fors meer verdienen als fusie met Axalta doorgaat](https://fd.nl/bedrijfsleven/1598086/akzo-top-gaat-fors-meer-verdienen-als-fusie-met-axalta-doorgaat)
+  > Beleggersvertegenwoordigers Eumedion en VEB hebben kritiek op het beloningsvoorstel. De VEB spreekt van ‘Amerikaanse beloningspraktijken’.
+- [Politici moeten niet glijden maar schuren](https://fd.nl/opinie/1598007/politici-moeten-niet-glijden-maar-schuren)
+  > Het kabinet plaatste deze week zelf dynamiet onder het groot onderhoud op de verzorgingsstaat. Zou Margaret Thatcher zo’n legende zijn geworden als...
 - [Zwabberbeleid in Iran geeft onzekerheid op de beurzen](https://fd.nl/bedrijfsleven/1598111/zwabberbeleid-in-iran-geeft-onzekerheid-op-de-beurzen)
   > De handelsdag begon in mineur na nieuwe Amerikaanse aanvallen op een Iraanse legerbasis, maar door nieuws over onderhandelingen kantelde het...
-- [Anthropic heeft een waarde van $965 mrd bij nieuwe financieringsronde](https://fd.nl/bedrijfsleven/1598074/anthropic-heeft-een-waarde-van-965-mrd-bij-nieuwe-financieringsronde)
-  > De waardering is hoger dan eerder deze maand was verwacht. Dat geeft de grote interesse aan om geld in het bedrijf te steken.
-- [‘Regering-Trump eiste president op nieuwe 250 dollarbiljet’](https://fd.nl/politiek/1598031/regering-trump-eiste-president-op-nieuwe-250-dollarbiljet)
-  > Het zou de eerste keer zijn in meer dan 150 jaar dat een levende persoon op Amerikaans geld verschijnt.
-- [Fusie tussen zuivelbedrijven Arla en DMK officieel](https://fd.nl/bedrijfsleven/1598108/fusie-tussen-zuivelbedrijven-arla-en-dmk-officieel)
-  > De twee maakten vorig jaar april al bekend samen verder te willen gaan. Nu zijn alle benodigde goedkeuringen rond.
-- [Compromisbereidheid noodzakelijk in politiek en polder](https://fd.nl/opinie/1598099/compromisbereidheid-noodzakelijk-in-politiek-en-polder)
-  > Als het niet lukt voor de zomer alsnog overeenstemming te bereiken, kan dat zomaar het begin van het einde zijn van het kabinet-Jetten.
 
 ### Meest gelezen
 
