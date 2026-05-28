@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-05-2026 om 16:55*
+*Laatst bijgewerkt: 28-05-2026 om 19:38*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Presentator Matthijs van Nieuwkerk keert na vier jaar terug op televisie](https://nos.nl/l/2616208)
-  > Matthijs van Nieuwkerk keert na vier jaar afwezigheid terug op televisie. De presentator gaat samen met soulzangeres Shirma Rouse een SBS6-serie...
-- [Amerikaanse bergbeklimmer claimt snelheidsrecord naar top Mount Everest](https://nos.nl/l/2616200)
-  > De Amerikaan Tyler Andrews claimt een nieuw snelheidsrecord gevestigd te hebben bij het beklimmen van de Mount Everest. Hij bereikte volgens zijn...
-- [Celstraf en tbs geëist tegen ouders die hun eigen dochter (11) en zoon (6) ontvoerden](https://nos.nl/l/2616197)
-  > Het Openbaar Ministerie heeft celstraffen geëist tegen Samantha F. en Michaël van K. De vrouw hangt bovendien tbs met dwangverpleging boven het...
-- [Clubman Veldmate, die Suárez en Van Dijk naar Groningen haalde, stopt na 36 jaar](https://nos.nl/l/2616196)
-  > Henk Veldmate stopt met zijn scoutingswerkzaamheden bij FC Groningen. Zijn huidige verbintenis loopt eind augustus af. De 69-jarige Veldmate...
-- [Fries Museum stelt tentoonstelling met zilverwerk uit vanwege zorgen om veiligheid](https://nos.nl/l/2616195)
-  > Het Fries Museum in Leeuwarden stelt de opening van een nieuwe tentoonstelling met zilveren stukken uit vanwege zorgen om de veiligheid.
-        In...
+- [Bijenkolonie strijkt neer op gevel universiteitsgebouw Amsterdam](https://nos.nl/l/2616233)
+  > Op de binnenplaats van een gebouw van de Universiteit van Amsterdam (UvA) is gisteren een bijenkolonie neergestreken. Docent Europese Studies Niels...
+- [Verkeersboetes verder omhoog, mogen weer meestijgen met inflatie](https://nos.nl/l/2616231)
+  > De boetes op verkeersovertredingen gaan volgend jaar opnieuw omhoog. Het kabinet wil ze mee laten stijgen met de inflatie, waardoor de boetes zo'n...
+- [Komende dagen veel zon, maar in het zuiden en oosten morgen kans op flink onweer](https://nos.nl/l/2616230)
+  > De afgelopen dagen was het warm en droog. Dat gaat morgen veranderen: in de middag en avond is er kans op flinke onweersbuien, vooral in het midden,...
+- [RTL: ministeries gaven honderdduizenden euro's uit aan privévluchten](https://nos.nl/l/2616229)
+  > Nederlandse ministeries gaven in de afgelopen vijf jaar vele honderdduizenden euro's uit aan privévluchten. Dat blijkt uit een rondvraag van RTL...
+- [OM eist 18 jaar cel voor dodelijke schietpartij Coevorden](https://nos.nl/l/2616228)
+  > Het Openbaar Ministerie heeft een celstraf van 18 jaar geëist tegen Bryan D. uit het Drentse Schoonebeek voor een dodelijke schietpartij in Coevorden...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Stakingen zijn onvermijdelijk met deze zwabberende overheid](https://www.ad.nl/binnenland/stakingen-zijn-onvermijdelijk-met-deze-zwabberende-overheid~abd3bf09/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Temu als synoniem voor rotzooi: ‘Dat is er eentje van Temu’](https://www.ad.nl/economie/temu-als-synoniem-voor-rotzooi-dat-is-er-eentje-van-temu~ac2c8db9/)
-  > Terwijl de Chinese webshop Temu een rechtszaak uitvecht, dringt haar goedkope prul ons leven binnen. In fysieke vorm én in onze taal. Het lijkt...
-- [Tennissprookje op Roland Garros krijgt mogelijk romantisch staartje: ‘Huwelijksaanzoek als ik top-50 haal’](https://www.ad.nl/tennis/tennissprookje-op-roland-garros-krijgt-mogelijk-romantisch-staartje-huwelijksaanzoek-als-ik-top-50-haal~a909fccd/)
-  > Yuliia Starodubtseva zorgde woensdag op Roland Garros voor een daverende verrassing. De Oekraïnse nummer 55 van de wereld versloeg in drie sets de...
-- [Balgoochelaar Lux (11) schittert samen met Virgil van Dijk en Edgar Davids in WK-reclame: ‘Heel spannend’](https://www.ad.nl/amersfoort/balgoochelaar-lux-11-schittert-samen-met-virgil-van-dijk-en-edgar-davids-in-wk-reclame-heel-spannend~a412ff663/)
-  > De 11-jarige Lux Briel heeft een prominente rol gekregen in de landelijke commercial van Nike en Patta, de kledingsponsors van Oranje. De jonge...
-- [Japanner Nikki Havenaar vertrekt naar België, ‘ontdekker’ Luis Suárez stopt bij FC Groningen](https://www.ad.nl/voetbal/japanner-nikki-havenaar-vertrekt-naar-belgie-ontdekker-luis-suarez-stopt-bij-fc-groningen~a488141d/)
+- [Jada Borsato zegt optreden af na ernstig auto-ongeluk op Ibiza](https://www.ad.nl/show/jada-borsato-zegt-optreden-af-na-ernstig-auto-ongeluk-op-ibiza~afb34e8a/)
+  > Jada Borsato treedt zaterdag nog niet op tijdens de festiviteiten rondom de Alkmaar Pride. De 23-jarige zangeres, die vorige week met haar moeder...
+- [Vader van Mart Hoogkamer opgepakt na klopjacht met politiehelikopter: ‘Verschrikkelijk’](https://www.ad.nl/show/vader-van-mart-hoogkamer-opgepakt-na-klopjacht-met-politiehelikopter-verschrikkelijk~a753c383/)
+  > De vader van zanger Mart Hoogkamer (28) is op Tweede Pinksterdag aangehouden na een zoektocht waarbij een politiehelikopter is ingezet. Dat meldt De...
+- [Noa Lang en Sam Beukema krijgen nieuwe trainer bij Napoli, Japanner Nikki Havenaar vertrekt naar België](https://www.ad.nl/voetbal/noa-lang-en-sam-beukema-krijgen-nieuwe-trainer-bij-napoli-japanner-nikki-havenaar-vertrekt-naar-belgie~a488141d/)
   > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
+- [Geert Wilders spreekt bij protest tegen azc in Uithoorn, ook veel voorstanders aanwezig: ‘Azc hoezee’](https://www.ad.nl/binnenland/geert-wilders-spreekt-bij-protest-tegen-azc-in-uithoorn-ook-veel-voorstanders-aanwezig-azc-hoezee~af2524cb/)
+  > Voorstanders en tegenstanders van de komst van een asielzoekerscentrum demonstreren donderdagavond in het Noord-Hollandse Uithoorn. Enkele honderden...
+- [Inspecteurs vinden miljoenen jaren oude fossielen in bagage van twee Nederlanders op Grieks eiland](https://www.ad.nl/nieuws/inspecteurs-vinden-miljoenen-jaren-oude-fossielen-in-bagage-van-twee-nederlanders-op-grieks-eiland~a5fa3303/)
+  > Twee Nederlanders zijn dinsdag gearresteerd op het vliegveld van het Griekse eiland Lesbos op verdenking van een poging tot smokkelen van cultureel...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Consumentenbond betwist rechtmatigheid prijsverhogingen Ziggo en KPN](https://fd.nl/bedrijfsleven/1598103/consumentenbond-betwist-rechtmatigheid-prijsverhogingen-ziggo-en-kpn)
-  > De bond vraagt al langer aandacht voor het ontstane duopolie van de aanbieders. Samen bezitten zij tussen de 70% en 80% van de markt.
-- [Plots vertrek Adyen-cfo overvalt zelfs commissarissen](https://fd.nl/financiele-markten/1598091/plots-vertrek-adyen-cfo-overvalt-zelfs-commissarissen)
-  > Het plotselinge opstappen van de cfo van Adyen komt op een slecht moment, zeggen analisten. Koopkrachtverlies als gevolg van de Iran-oorlog kan Adyen...
-- [Na meer dan tien jaar voorbereiding is nieuw elektriciteitsstation Zuidplaspolder gereed](https://fd.nl/bedrijfsleven/1598024/na-meer-dan-tien-jaar-voorbereiding-is-nieuw-elektriciteitsstation-zuidplaspolder-gereed)
-  > Voor kortere wachtlijsten gaat het nieuwe elektriciteitsstation nog niet zorgen.
-- [Boete voor Ticketveiling.nl wegens prijsopdrijving met nepbieders](https://fd.nl/bedrijfsleven/1598026/boete-voor-ticketveiling-nl-wegens-prijsopdrijving-met-nepbieders)
-  > Het bedrijf maakte gebruik van een algoritme dat onder wisselende gefingeerde namen meebood op veilingen om de prijs op te drijven.
-- [Miljardair Fertitta koopt Caesars Entertainment voor $17,6 mrd](https://fd.nl/bedrijfsleven/1598102/miljardair-fertitta-koopt-caesars-entertainment-voor-17-6-mrd)
-  > De transactie is een van de grootste overnames in de entertainmentsector in jaren.
+- [‘Regering-Trump eiste president op nieuwe 250 dollarbiljet’](https://fd.nl/politiek/1598031/regering-trump-eiste-president-op-nieuwe-250-dollarbiljet)
+  > Het zou de eerste keer zijn in meer dan 150 jaar dat een levende persoon op Amerikaans geld verschijnt.
+- [Fusie tussen zuivelbedrijven Arla en DMK officieel](https://fd.nl/bedrijfsleven/1598108/fusie-tussen-zuivelbedrijven-arla-en-dmk-officieel)
+  > De twee maakten vorig jaar april al bekend samen verder te willen gaan. Nu zijn alle benodigde goedkeuringen rond.
+- [Compromisbereidheid noodzakelijk in politiek en polder](https://fd.nl/opinie/1598099/compromisbereidheid-noodzakelijk-in-politiek-en-polder)
+  > Als het niet lukt voor de zomer alsnog overeenstemming te bereiken, kan dat zomaar het begin van het einde zijn van het kabinet-Jetten.
+- [Het Duitse DHL sluit deal van $10 mrd met US Postal Service](https://fd.nl/bedrijfsleven/1598029/het-duitse-dhl-sluit-deal-van-10-mrd-met-us-postal-service)
+  > De overeenkomst heeft betrekking op de bezorging van pakketten in de Verenigde Staten.
+- [Israël valt voor het eerst in weken doelwit aan in Beiroet](https://fd.nl/politiek/1598105/israel-valt-voor-het-eerst-in-weken-doelwit-aan-in-beiroet)
+  > Officieel is er sinds half april een staakt-het-vuren tussen de landen, maar in de praktijk voorkomt dat bestand geen gevechten tussen Israëlische...
 
 ### Meest gelezen
 
