@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-05-2026 om 04:00*
+*Laatst bijgewerkt: 28-05-2026 om 08:44*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- ['Amerikaanse justitie start onderzoek naar Trump-aanklager E. Jean Carroll](https://nos.nl/l/2616110)
-  > Het Amerikaanse ministerie van Justitie is een strafrechtelijk onderzoek gestart naar E. Jean Carroll, een oud-columniste die zegt door Trump te zijn...
-- [Jill Biden blikt terug op desastreuze debat van haar man: 'Dacht aan een beroerte'](https://nos.nl/l/2616109)
-  > De voormalige Amerikaanse first lady Jill Biden dacht tijdens het zwakke debatoptreden van haar man Joe Biden tegen Donald Trump in 2024 dat hij een...
-- [Explosies gemeld bij Iraanse havenstad Bandar Abbas](https://nos.nl/l/2616108)
-  > De Verenigde Staten hebben in Iran nieuwe aanvallen uitgevoerd. Persbureau Reuters meldt dat op gezag van een Amerikaanse functionaris. Er zou een...
-- [Vrees voor 11 doden na implosie chemische opslagtank in Washington](https://nos.nl/l/2616107)
-  > Door een implosie van een opslagtank op een fabrieksterrein in de staat Washington zijn waarschijnlijk elf mensen om het leven gekomen. Eerder zijn...
-- [Twee slachtoffers ongeluk Buggenhout uit het ziekenhuis](https://nos.nl/l/2616106)
-  > Twee van de kinderen die gewond raakten bij het treinongeluk in het Belgische Buggenhout zijn ontslagen uit het ziekenhuis. Drie anderen blijven...
+- [Foto's bewijzen het: bruinvis uit Oosterschelde zwemt ook rond in Westerschelde](https://nos.nl/l/2616134)
+  > Voor het eerst is onomstotelijk aangetoond dat een en dezelfde bruinvis zowel in de Oosterschelde als in de Westerschelde rondzwemt. Onderzoekers van...
+- [Masker, serum, crème: zorgen dermatologen over stapelen skincareroutine](https://nos.nl/l/2616131)
+  > Dermatologen maken zich zorgen over een online trend onder jongeren: het stapelen van skincareproducten. Op TikTok en Instagram zijn veel filmpjes te...
+- [Alcohol blijft grootste in verslavingszorg, toename online gokken en designerdrugs](https://nos.nl/l/2616130)
+  > Het aantal mensen dat hulp zoekt met problemen door online gokken en nieuwe designerdrugs stijgt opnieuw. Dat blijkt uit de nieuwste cijfers van het...
+- [Aantal huurwoningen blijft krimpen, maar einde is in zicht](https://nos.nl/l/2616129)
+  > Het aantal huurwoningen dat begin dit jaar is verkocht aan particulieren is opnieuw gestegen. De hoeveelheid huurwoningen is daardoor weer afgenomen....
+- [Minder toetsen, meer aandacht voor kind: Onderwijsraad wil cultuuromslag op scholen](https://nos.nl/l/2616124)
+  > In het basis- en voortgezet onderwijs moet meer gekeken worden naar de leerling en minder naar de uitkomsten van de toetsen die de leerlingen maken....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Waarschijnlijk geen overlevenden na ongeval bij verpakkingsbedrijf VS](https://www.ad.nl/buitenland/waarschijnlijk-geen-overlevenden-na-ongeval-bij-verpakkingsbedrijf-vs~a9f1f4c6/)
-  > De hulpdiensten verwachten geen overlevenden meer te vinden na het zware ongeval met een tank bij een verpakkingsbedrijf in de Amerikaanse staat...
-- [Jill Biden: ik dacht dat Joe beroerte kreeg tijdens desastreus debat met Trump](https://www.ad.nl/buitenland/jill-biden-ik-dacht-dat-joe-beroerte-kreeg-tijdens-desastreus-debat-met-trump~ae67dd9c/)
-  > De voormalige Amerikaanse first lady Jill Biden zegt dat ze tijdens het zwakke debatoptreden van haar man Joe Biden tegen Donald Trump in 2024 dacht...
-- [Dermatologen slaan alarm: uitgebreide skincareroutines van tieners leiden steeds vaker tot allergieën, eczeem en acne](https://www.ad.nl/binnenland/dermatologen-slaan-alarm-uitgebreide-skincareroutines-van-tieners-leiden-steeds-vaker-tot-allergieen-eczeem-en-acne~a1a2aba9/)
-  > Nederlandse dermatologen maken zich zorgen over de uitgebreide skincareroutines die vooral onder tieners en jongvolwassenen in zwang zijn geraakt...
-- [‘Derde seizoen MobLand onzeker door gedrag Tom Hardy’](https://www.ad.nl/show/derde-seizoen-mobland-onzeker-door-gedrag-tom-hardy~afde5763/)
-  > Het is nog onzeker of er een derde seizoen van de serie MobLand op Paramount+ komt. Het gedrag van hoofdrolspeler Tom Hardy, dat volgens bronnen van...
-- [Verenigde Staten voeren nieuwe aanvallen uit op Iran](https://www.ad.nl/buitenland/verenigde-staten-voeren-nieuwe-aanvallen-uit-op-iran~ac528ac3/)
-  > Het Amerikaanse leger heeft nieuwe aanvallen uitgevoerd op Iran. Dat heeft een Amerikaanse functionaris woensdag aan persbureau Reuters gemeld. Volg...
+- [Tienduizenden euro’s rond haar nek en in de oren: Aryna Sabalenka steelt de show op Roland Garros met peperdure juwelen](https://www.ad.nl/tennis/tienduizenden-euros-rond-haar-nek-en-in-de-oren-aryna-sabalenka-steelt-de-show-op-roland-garros-met-peperdure-juwelen~a8a938c8/)
+  > Uitpakken in de modestad Parijs. Toptennisster Aryna Sabalenka (28) speelde haar openingswedstrijd op Roland Garros met maar liefst 87.000 euro aan...
+- [Stam blijft bij Willem II, Barcelona heeft 80 miljoen euro over voor Gordon](https://www.ad.nl/voetbal/stam-blijft-bij-willem-ii-barcelona-heeft-80-miljoen-euro-over-voor-gordon~a488141d/)
+  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
+- [Zustersite Vakantieveilingen bedondert bezoekers: deelnemers bieden niet tegen elkaar, maar tegen een computer](https://www.ad.nl/binnenland/zustersite-vakantieveilingen-bedondert-bezoekers-deelnemers-bieden-niet-tegen-elkaar-maar-tegen-een-computer~a125c29e/)
+  > De Autoriteit Consument & Markt (ACM) legt een boete van 270.000 euro op aan het bedrijf achter de inmiddels gestopte veilingwebsite Ticketveiling.nl.
+- [Opinie: ‘Ga van lange adem naar korte klappen op de woningmarkt’](https://www.ad.nl/praat-mee/opinie-ga-van-lange-adem-naar-korte-klappen-op-de-woningmarkt~ab513f01/)
+  > Woningbouw is in Nederland een lange wachtrij geworden: wachten op vergunningen, op starterswoningen, op stikstofruimte. Maar met minder regels en...
+- [Buitenlandchef EU waarschuwt voor ‘valstrik’ Poetin en reageert fel op Russische dreigementen](https://www.ad.nl/buitenland/buitenlandchef-eu-waarschuwt-voor-valstrik-poetin-en-reageert-fel-op-russische-dreigementen~adfb97be/)
+  > EU-buitenlandchef Kaja Kallas vindt dat de EU niet in de val van Rusland moet trappen door nu een gezant aan te wijzen voor de onderhandelingen...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [De opkomst van de hotelgym: ‘Het is een beslissingsfactor geworden’](https://fd.nl/samenleving/1597895/de-opkomst-van-de-hotelgym-het-is-een-beslissingsfactor-geworden)
-  > De gym in hotels is een belangrijke faciliteit geworden. De (zaken)reiziger hecht immers veel belang aan een goede fitnessruimte.
-- [Dolf van den Brink: ‘We leven in een puriteins tijdperk waarin bier als risicovol wordt gezien’](https://fd.nl/bedrijfsleven/1597468/dolf-van-den-brink-we-leven-in-een-puriteins-tijdperk-waarin-bier-als-risicovol-wordt-gezien)
-  > Dolf van den Brink stopt na zes jaar met zijn droombaan als ceo bij Heineken. ‘Je kunt je niet voorstellen wat de baan inhoudt. Je bent geen...
-- [Tonnen aan AI-bonus voor Samsung-medewerkers](https://fd.nl/economie/1597963/tonnen-aan-ai-bonus-voor-samsung-medewerkers)
-  > Vandaag in de FD Dagkoers podcast: AkzoNobel wijst miljardenbod af, DRAM makers Samsung, Micron en SK Hynix breken records en geven mega-bonussen en...
-- [TikTok Shop jaagt op Nederlandse impulskoper met nieuw verkoopkanaal](https://fd.nl/bedrijfsleven/1597948/tiktok-shop-jaagt-op-nederlandse-impulskoper-met-nieuw-verkoopkanaal)
-  > Niet op zoek, maar toch gekocht. De impulsaankoop krijgt vanaf half juni een nieuwe dimensie: de TikTok Shop komt dan officieel naar Nederland, een...
-- [Klamme handjes](https://fd.nl/opinie/1597857/klamme-handjes)
-  > Private credit? Er is weinig transparantie én verwevenheid met het financiële systeem.
+- [KPN zet met Schwarz Digits clouddienst in Nederland op](https://fd.nl/bedrijfsleven/1597999/kpn-zet-met-schwarz-digits-clouddienst-in-nederland-op)
+  > Het bedrijf spreekt van een Europese soevereine cloud, verwijzend naar onafhankelijkheid van Amerikaanse techbedrijven.
+- [Saskia Meeuwessen-van Rossum: ‘Ik speel niet graag op safe’](https://fd.nl/samenleving/1597898/saskia-meeuwessen-van-rossum-ik-speel-niet-graag-op-safe)
+  > Geen standaardstudie volgen, verschillende rollen vervullen. Wat maken professionals mee? Deze week: Saskia Meeuwessen-van Rossum, algemeen directeur...
+- [VS en Iran voeren weer aanvallen op elkaar uit](https://fd.nl/politiek/1598078/vs-en-iran-voeren-weer-aanvallen-op-elkaar-uit)
+  > Een militaire basis in de Iraanse havenstad Bandar Abbas werd geraakt in een Amerikaanse aanval. Iran claimt een tegenaanval op een Amerikaanse...
+- [Live: Olieprijs weer omhoog na nieuwe Amerikaanse aanvallen op Iran](https://fd.nl/financiele-markten/1597997/live-olieprijs-weer-omhoog-na-nieuwe-amerikaanse-aanvallen-op-iran)
+  > De Aziatische en Europese aandelenmarkten verliezen terrein. De hoop onder beleggers over een akkoord over een heropening van de Straat van Hormuz is...
+- [Vereniging Aegon splitst zich op](https://fd.nl/bedrijfsleven/1597853/vereniging-aegon-splitst-zich-op)
+  > De toekomst was onzeker geworden vanwege de aanstaande verhuizing van de verzekeraar naar de Verenigde Staten.
 
 ### Meest gelezen
 
