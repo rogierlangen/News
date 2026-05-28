@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-05-2026 om 08:44*
+*Laatst bijgewerkt: 28-05-2026 om 12:31*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Foto's bewijzen het: bruinvis uit Oosterschelde zwemt ook rond in Westerschelde](https://nos.nl/l/2616134)
-  > Voor het eerst is onomstotelijk aangetoond dat een en dezelfde bruinvis zowel in de Oosterschelde als in de Westerschelde rondzwemt. Onderzoekers van...
-- [Masker, serum, crème: zorgen dermatologen over stapelen skincareroutine](https://nos.nl/l/2616131)
-  > Dermatologen maken zich zorgen over een online trend onder jongeren: het stapelen van skincareproducten. Op TikTok en Instagram zijn veel filmpjes te...
-- [Alcohol blijft grootste in verslavingszorg, toename online gokken en designerdrugs](https://nos.nl/l/2616130)
-  > Het aantal mensen dat hulp zoekt met problemen door online gokken en nieuwe designerdrugs stijgt opnieuw. Dat blijkt uit de nieuwste cijfers van het...
-- [Aantal huurwoningen blijft krimpen, maar einde is in zicht](https://nos.nl/l/2616129)
-  > Het aantal huurwoningen dat begin dit jaar is verkocht aan particulieren is opnieuw gestegen. De hoeveelheid huurwoningen is daardoor weer afgenomen....
-- [Minder toetsen, meer aandacht voor kind: Onderwijsraad wil cultuuromslag op scholen](https://nos.nl/l/2616124)
-  > In het basis- en voortgezet onderwijs moet meer gekeken worden naar de leerling en minder naar de uitkomsten van de toetsen die de leerlingen maken....
+- [Jongeren minder vaak blootgesteld aan rook van anderen](https://nos.nl/l/2616171)
+  > Jongeren worden binnen minder vaak blootgesteld aan tabaksrook van vroeger. Het Centraal Bureau voor de Statistiek (CBS) vergeleek cijfers uit een...
+- [Boete voor veilingsite die deelnemers tegen een bot liet bieden](https://nos.nl/l/2616169)
+  > Het bedrijf achter de inmiddels gestopte site ticketveiling.nl heeft een boete van 270.000 euro gekregen voor misleiding van consumenten. De site...
+- [Europese Commissie legt Temu 200 miljoen euro boete op om illegale producten](https://nos.nl/l/2616168)
+  > De Chinese webwinkel Temu krijgt een boete van 200 miljoen euro van de Europese Commissie. Volgens de het bestuur van de EU doet het bedrijf te...
+- [Toerist steelt 40 kilo zand van strand op Sardinië, riskeert hoge boete](https://nos.nl/l/2616166)
+  > Een Franse toerist is na haar vakantie opgepakt omdat ze probeerde om strandzand uit Sardinië mee naar huis te nemen. Bij een controle op de veerboot...
+- [Post volgende dag op de mat kost je vanaf juli bijna vier euro](https://nos.nl/l/2616165)
+  > Het wordt meer dan twee keer zo duur om brieven, waaronder rouwkaarten, de volgende dag te laten bezorgen. Dat blijkt uit de nieuwe tarieven die...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tienduizenden euro’s rond haar nek en in de oren: Aryna Sabalenka steelt de show op Roland Garros met peperdure juwelen](https://www.ad.nl/tennis/tienduizenden-euros-rond-haar-nek-en-in-de-oren-aryna-sabalenka-steelt-de-show-op-roland-garros-met-peperdure-juwelen~a8a938c8/)
-  > Uitpakken in de modestad Parijs. Toptennisster Aryna Sabalenka (28) speelde haar openingswedstrijd op Roland Garros met maar liefst 87.000 euro aan...
-- [Stam blijft bij Willem II, Barcelona heeft 80 miljoen euro over voor Gordon](https://www.ad.nl/voetbal/stam-blijft-bij-willem-ii-barcelona-heeft-80-miljoen-euro-over-voor-gordon~a488141d/)
-  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
-- [Zustersite Vakantieveilingen bedondert bezoekers: deelnemers bieden niet tegen elkaar, maar tegen een computer](https://www.ad.nl/binnenland/zustersite-vakantieveilingen-bedondert-bezoekers-deelnemers-bieden-niet-tegen-elkaar-maar-tegen-een-computer~a125c29e/)
-  > De Autoriteit Consument & Markt (ACM) legt een boete van 270.000 euro op aan het bedrijf achter de inmiddels gestopte veilingwebsite Ticketveiling.nl.
-- [Opinie: ‘Ga van lange adem naar korte klappen op de woningmarkt’](https://www.ad.nl/praat-mee/opinie-ga-van-lange-adem-naar-korte-klappen-op-de-woningmarkt~ab513f01/)
-  > Woningbouw is in Nederland een lange wachtrij geworden: wachten op vergunningen, op starterswoningen, op stikstofruimte. Maar met minder regels en...
-- [Buitenlandchef EU waarschuwt voor ‘valstrik’ Poetin en reageert fel op Russische dreigementen](https://www.ad.nl/buitenland/buitenlandchef-eu-waarschuwt-voor-valstrik-poetin-en-reageert-fel-op-russische-dreigementen~adfb97be/)
-  > EU-buitenlandchef Kaja Kallas vindt dat de EU niet in de val van Rusland moet trappen door nu een gezant aan te wijzen voor de onderhandelingen...
+- [Tsjechische tenniser (20) na slijtageslag op Roland Garros per rolstoel van de baan, beelden gaan viraal](https://www.ad.nl/tennis/tsjechische-tenniser-20-na-slijtageslag-op-roland-garros-per-rolstoel-van-de-baan-beelden-gaan-viraal~aee54351/)
+  > Jakub Mensik heeft zich na een uitputtingsslag geplaatst voor de derde ronde van Roland Garros. De 20-jarige Tsjech versloeg de Argentijn Mariano...
+- [Merel Conijn vertrekt bij Jillert Anema: ‘Ik hoefde niet weg, maar wilde heel graag werken met Johan de Wit’](https://www.ad.nl/schaatsen/merel-conijn-vertrekt-bij-jillert-anema-ik-hoefde-niet-weg-maar-wilde-heel-graag-werken-met-johan-de-wit~a6f72af7/)
+  > Ze won in Milaan nog zilver onder de vleugels van Jillert Anema, maar stapt na twee jaar over naar Team Novus, dat een doorstart maakt. Merel Conijn...
+- [Oranje speelt thuisduels Nations League in Amsterdam en Eindhoven](https://www.ad.nl/voetbal/oranje-speelt-thuisduels-nations-league-in-amsterdam-en-eindhoven~a3e40074/)
+  > Het Nederlands elftal speelt in het najaar de thuiswedstrijden in de Nations League in Amsterdam en Eindhoven. Dat meldt de KNVB. Oranje is ingedeeld...
+- [Noordzee is nieuwe woonplaats voor een van de intelligentste roofdieren](https://www.ad.nl/binnenland/noordzee-is-nieuwe-woonplaats-voor-een-van-de-intelligentste-roofdieren~aae74b33/)
+  > De octopus rukt op richting Nederland omdat het zeewater steeds warmer wordt. Dit jaar kunnen ze mogelijk al opduiken voor de Nederlandse kust. Wat...
+- [Bonden op ramkoers met kabinet na Catshuis-beraad, gesprekken worden gestopt](https://www.ad.nl/politiek/bonden-op-ramkoers-met-kabinet-na-catshuis-beraad-gesprekken-worden-gestopt~ad9609da/)
+  > De vakbonden, werkgevers en het kabinet zijn niet tot een akkoord gekomen over de bezuinigingen die de regering wil in de sociale zekerheid. „Het...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [KPN zet met Schwarz Digits clouddienst in Nederland op](https://fd.nl/bedrijfsleven/1597999/kpn-zet-met-schwarz-digits-clouddienst-in-nederland-op)
-  > Het bedrijf spreekt van een Europese soevereine cloud, verwijzend naar onafhankelijkheid van Amerikaanse techbedrijven.
-- [Saskia Meeuwessen-van Rossum: ‘Ik speel niet graag op safe’](https://fd.nl/samenleving/1597898/saskia-meeuwessen-van-rossum-ik-speel-niet-graag-op-safe)
-  > Geen standaardstudie volgen, verschillende rollen vervullen. Wat maken professionals mee? Deze week: Saskia Meeuwessen-van Rossum, algemeen directeur...
-- [VS en Iran voeren weer aanvallen op elkaar uit](https://fd.nl/politiek/1598078/vs-en-iran-voeren-weer-aanvallen-op-elkaar-uit)
-  > Een militaire basis in de Iraanse havenstad Bandar Abbas werd geraakt in een Amerikaanse aanval. Iran claimt een tegenaanval op een Amerikaanse...
-- [Live: Olieprijs weer omhoog na nieuwe Amerikaanse aanvallen op Iran](https://fd.nl/financiele-markten/1597997/live-olieprijs-weer-omhoog-na-nieuwe-amerikaanse-aanvallen-op-iran)
-  > De Aziatische en Europese aandelenmarkten verliezen terrein. De hoop onder beleggers over een akkoord over een heropening van de Straat van Hormuz is...
-- [Vereniging Aegon splitst zich op](https://fd.nl/bedrijfsleven/1597853/vereniging-aegon-splitst-zich-op)
-  > De toekomst was onzeker geworden vanwege de aanstaande verhuizing van de verzekeraar naar de Verenigde Staten.
+- [Vakbonden verwerpen toenadering kabinet, gaan actievoeren](https://fd.nl/politiek/1598004/vakbonden-verwerpen-toenadering-kabinet-gaan-actievoeren)
+  > ‘Verhelderende’ gesprekken tussen bonden en kabinet lopen uit op nieuwe patstelling. De bonden eisen dat alle bezuinigingen op de sociale zekerheid...
+- [UBS: family offices herschikken portefeuille vanwege risico’s](https://fd.nl/financiele-markten/1598010/ubs-family-offices-herschikken-portefeuille-vanwege-risicos)
+  > De investeringsvehikels van families herschikken hun portefeuilles: meer regionale diversificatie en minder blootstelling aan de dollar, blijkt uit...
+- [Hedgefondsen domineren markt voor gilts](https://fd.nl/financiele-markten/1598011/hedgefondsen-domineren-markt-voor-gilts)
+  > Het hoge percentage zou de Britse staatsschuld kwetsbaarder kunnen maken voor plotselinge vlagen van volatiliteit.
+- [Van wie is de hummus?](https://fd.nl/opinie/1597710/van-wie-is-de-hummus)
+  > Het stompzinnigste begrip dat het rechtvaardigheidsfundamentalisme heeft voortgebracht is ‘culturele toe-eigening’. Het getuigt van een wereldbeeld...
+- [‘Met onze halsband kunnen boeren vee hoeden zonder hekken’](https://fd.nl/tech-en-innovatie/1596986/met-onze-halsband-kunnen-boeren-vee-hoeden-zonder-hekken)
+  > Chris Bloomfield ontwikkelde een boer- en diervriendelijke veedrijver en noemde het apparaatje Collie. De boer kent het niet, maar blieft het wel als...
 
 ### Meest gelezen
 
