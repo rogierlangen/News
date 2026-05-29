@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-05-2026 om 12:18*
+*Laatst bijgewerkt: 29-05-2026 om 16:44*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Zonnig voorjaar komt in top vijf van warmste lentes ooit gemeten](https://nos.nl/l/2616315)
-  > Dit voorjaar komt in de top vijf warmste lentes sinds het begin van de metingen in 1901, en het valt te verwachten dat we de komende jaren vaker...
-- [Acht meisjes vast voor fatale brandstichting kostschool Kenia](https://nos.nl/l/2616308)
-  > De Keniaanse politie heeft acht leerlingen gearresteerd op verdenking van brandstichting. Bij een brand op een meisjeskostschool in Gilgil, in het...
-- [OM eist 8 miljoen euro aan crimineel vermogen van Quincy Promes](https://nos.nl/l/2616304)
-  > Het Openbaar Ministerie wil 8 miljoen euro afpakken van voormalig profvoetballer Quincy Promes. Volgens het OM gaat het om crimineel vermogen dat hij...
-- [Ondanks protesten toch nieuwe pensioenwet in België, ook accijnzen omhoog](https://nos.nl/l/2616302)
-  > België krijgt een nieuwe pensioenwet, ondanks de vele protesten door meerdere beroepsgroepen. Ook worden er andere begrotingsmaatregelen ingevoerd....
-- [Nieuwe albums oude rockers McCartney en Stones: 'Beetje kwetsbaar en wiebelig niet erg'](https://nos.nl/l/2616298)
-  > Vandaag is het twintigste soloalbum van Paul McCartney, The Boys of Dungeon Lane, verschenen. Op het nu al lovend ontvangen album blikt de ex-Beatle...
+- [Luchtfoto's onthullen groot kernwapencomplex in China: 'Land wil overlevingszekerheid'](https://nos.nl/l/2616348)
+  > In een afgelegen woestijn in de noordwestelijke regio Xinjiang bouwt China een groot militair complex voor het kernwapenprogramma van het land. Het...
+- [Zestal bekogelt moskee Rotterdam met bierflesjes en urineert tegen gebouw](https://nos.nl/l/2616347)
+  > Zes personen hebben afgelopen nacht de Mevlana-moskee in Rotterdam aangevallen. Ze hebben een mozaïekmuur vernield, bierflesjes richting het gebouw...
+- [OM gaat toch ouders die kinderen thuishouden van school vervolgen](https://nos.nl/l/2616341)
+  > Het Openbaar Ministerie wil toch ouders van wie de kinderen vanwege hun geloof of levensovertuiging niet naar school gaan strafrechtelijk gaan...
+- [Zwaar onweer trekt over Nederland, code oranje voor vier provincies](https://nos.nl/l/2616340)
+  > De klamme hitte van de afgelopen dagen heeft plaatsgemaakt voor onweersbuien. Het KNMI heeft voor de provincies Groningen, Drenthe, Overijssel en...
+- [Politie ziet water aan voor drugsafval: 250 schapen blijven dorstig achter](https://nos.nl/l/2616338)
+  > In het Friese Fochteloo heeft de politie een twintigtal blauwe jerrycans met water aangezien voor drugsafval. De 250 schapen in de wei bleven...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Jhonatan Narváez stapt af in zware etappe, kopgroep van vijf renners](https://www.ad.nl/giro/jhonatan-narvaez-stapt-af-in-zware-etappe-kopgroep-van-vijf-renners~acd23f2f/)
-  > Het einde van de Giro d’Italia nadert en vandaag staat de zwaarste rit op het programma. De renners moeten liefst 5000 hoogtemeters overwinnen, met...
-- [LIVE Roland Garros | Swiatek ten koste van landgenote naar vierde ronde in Parijs](https://www.ad.nl/tennis/live-roland-garros-swiatek-ten-koste-van-landgenote-naar-vierde-ronde-in-parijs~a924961f/)
-  > De tweede Grand Slam van het jaar  is in volle gang. Tot 7 juni strijden de beste tennissers ter wereld op het gravel van Parijs om de titel in...
-- [Lokaal onweersbuien voorspeld: ‘Mogelijk met hagel of harde windstoten erbij’](https://www.ad.nl/binnenland/lokaal-onweersbuien-voorspeld-mogelijk-met-hagel-of-harde-windstoten-erbij~a021d418/)
-  > Nederland krijgt vandaag eerst te maken met drukkende hitte, daarna is er in het oosten kans op lokale onweersbuien. Landinwaarts loopt de...
-- [Koeman is nooit een enorme lolbroek geweest, maar toch maak ik me hier enige zorgen over](https://www.ad.nl/voetbal/koeman-is-nooit-een-enorme-lolbroek-geweest-maar-toch-maak-ik-me-hier-enige-zorgen-over~aeced545/)
-  > Columnist Sjoerd Mossou keek met enige verbazing naar de futloze persconferentie van Ronald Koeman deze week, nota bene bij de aftrap van de...
-- [Roemenië sluit Russisch consulaat na drone-incident met gewonden, consul moet land uit](https://www.ad.nl/buitenland/roemenie-sluit-russisch-consulaat-na-drone-incident-met-gewonden-consul-moet-land-uit~adfb97be/)
-  > De Europese Unie en de Navo hebben het incident met de Russische drone in de Roemeense stad Galati scherp veroordeeld. Roemenië sluit het Russische...
+- [Oost-Europese dwarsliggers buigen braaf voor Brussel, en dat komt allemaal door dit ‘foefje’ van Rutte](https://www.ad.nl/buitenland/oost-europese-dwarsliggers-buigen-braaf-voor-brussel-en-dat-komt-allemaal-door-dit-foefje-van-rutte~a2971bd7/)
+  > De tijd dat corrupte regeringen ongestraft hun zakken konden vullen met Europees geld, lijkt definitief voorbij. Ook Hongarije en Bulgarije lopen...
+- [Jesper de Jong ziet taaie Rus langszij komen na sterk begin in derde ronde](https://www.ad.nl/tennis/jesper-de-jong-ziet-taaie-rus-langszij-komen-na-sterk-begin-in-derde-ronde~af98e682/)
+  > Jesper de Jong neemt het vrijdag op Roland Garros in de derde ronde op tegen de Rus Karen Khachanov, de nummer vijftien van de wereld. De inzet: een...
+- [Dit is de achterstand van Arensman in strijd om podiumplek Giro](https://www.ad.nl/giro/dit-is-de-achterstand-van-arensman-in-strijd-om-podiumplek-giro~aa7ab621/)
+  > Niemand lijkt de ongenaakbare Jonas Vingegaard bij zijn debuut uit het roze houden. De strijd om het podium is nog wel spannend. Thymen Arensman is...
+- [Dankzij schaken en psychologieboeken 80 miljoen waard: dit is de nieuwe topaankoop van Barça](https://www.ad.nl/wk-voetbal/dankzij-schaken-en-psychologieboeken-80-miljoen-waard-dit-is-de-nieuwe-topaankoop-van-barca~a9eda2b6/)
+  > 80 miljoen euro. Dat is wat FC Barcelona overheeft voor Anthony Gordon. De deal is bijna rond en dus mag de Spaanse kampioen zich opmaken voor de...
+- [Vanuit Nieuw-Zeeland kijkt de 10-jarige Nando naar Sneijder en Robben: zestien jaar later staat hij zelf op het WK](https://www.ad.nl/wk-voetbal/vanuit-nieuw-zeeland-kijkt-de-10-jarige-nando-naar-sneijder-en-robben-zestien-jaar-later-staat-hij-zelf-op-het-wk~abec7339/)
+  > Als 10-jarig jochie keek hij vanuit Nieuw-Zeeland naar het Nederlands elftal op het WK. Hij was meteen verkocht en wist: dit wil ik later ook. Nu,...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Niet raketten lanceren de waarde van SpaceX, maar AI](https://fd.nl/bedrijfsleven/1598128/niet-raketten-lanceren-de-waarde-van-spacex-maar-ai)
-  > De grootste verdienpotentie van het ruimtevaartbedrijf zit bij de AI-tak die vooral aan bedrijven diensten aanbiedt mede via infrastructuur in de...
-- [‘Met mij gaat het goed, met de samenleving slecht’ komt door onwil om verbinding te zoeken](https://fd.nl/opinie/1597945/met-mij-gaat-het-goed-met-de-samenleving-slecht-komt-door-onwil-om-verbinding-te-zoeken)
-  > Nederlanders zijn tevreden over hun eigen situatie, maar beoordelen de maatschappij slechter. De Monitor Brede Welvaart van het CBS moet het...
-- [‘Made in Europe’ moet voorkomen dat EU een museum wordt](https://fd.nl/politiek/1598119/made-in-europe-moet-voorkomen-dat-eu-een-museum-wordt)
-  > De lidstaten gaven afgelopen week hun eerste gedachtes over een controversieel plan dat de industrie in de Europese Unie moet gaan redden.
-- [Het Amerikaanse Chase bestormt Duitsland: de strijd om de spaarder gaat een nieuwe fase in](https://fd.nl/bedrijfsleven/1598077/chase-bestormt-duitsland-de-strijd-om-de-spaarder-gaat-een-nieuwe-fase-in)
-  > Chase, een dochter van de Amerikaanse bank JPMorgan Chase, betreedt met een stuntrente de Duitse consumentenmarkt. Dat intensiveert de toch al zware...
-- [Verfijnde Japanse parfums steeds populairder](https://fd.nl/samenleving/1597841/verfijnde-japanse-parfums-steeds-populairder)
-  > Verfijnde Japanse parfums bieden tegenwicht aan de intense geuren die nu zo gewild zijn.
+- [Unilever steekt $270 mln in Amerikaans innovatiecentrum](https://fd.nl/bedrijfsleven/1598231/unilever-steekt-270-mln-in-amerikaans-innovatiecentrum)
+  > Het bedrijf wil er onderzoek doen naar onder meer gezichts- en haarverzorging en geuren.
+- [Marion Koopmans: Nederland heeft weinig geleerd van recente pandemieën](https://fd.nl/politiek/1598206/marion-koopmans-nederland-heeft-weinig-geleerd-van-recente-pandemieen)
+  > Volgens de viroloog moet Nederland de ‘pandemische paraatheid’ aanzienlijk vergroten. Ze zei dat tijdens de eerste dag van de parlementaire enquête...
+- [China blijft achter in de chiprally, maar zet alles op alles voor een inhaalslag](https://fd.nl/financiele-markten/1598125/china-blijft-achter-in-de-chiprally-maar-zet-alles-op-alles-voor-een-inhaalslag)
+  > Aziatische chipaandelen breken records, terwijl Chinese koersen achterblijven door een zwakke vraag. Toch timmert het land aan de weg in de...
+- [EZ informeerde onvoldoende over €200 mln aan subsidies](https://fd.nl/politiek/1598229/ez-informeerde-onvoldoende-over-200-mln-aan-subsidies)
+  > Met de subsidies was ruim €200 mln gemoeid.
+- [‘Loser’ Jeff Kinney viert zijn eigen mislukkingen](https://fd.nl/bedrijfsleven/1597452/loser-jeff-kinney-viert-zijn-eigen-mislukkingen)
+  > Volgende week verschijnt Partypooper, deel twintig in de reeks Het Leven van een Loser. Auteur Jeff Kinney vaart er wel bij. Wereldwijd verkocht hij...
 
 ### Meest gelezen
 
