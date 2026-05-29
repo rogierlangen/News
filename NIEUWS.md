@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-05-2026 om 04:03*
+*Laatst bijgewerkt: 29-05-2026 om 08:43*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Roemenië meldt neerkomen Russische drone op flat, twee mensen lichtgewond](https://nos.nl/l/2616247)
-  > De Roemeense autoriteiten melden dat een Russische drone met explosieve lading is neergekomen op een flat in de stad Galati, vlak bij de grens met...
-- [IJsland gaat referendum houden over lidmaatschap EU](https://nos.nl/l/2616246)
-  > Het parlement van IJsland heeft ingestemd met een referendum over de vraag of het land wel of niet weer moet gaan onderhandelen met de Europese Unie...
-- [Verenigde Naties plaatsen Israël op zwarte lijst vanwege seksueel geweld](https://nos.nl/l/2616244)
-  > De Verenigde Naties plaatsen Israël op een zwarte lijst wegens het gebruik van seksueel geweld in de Palestijnse gebieden. Dat heeft de Israëlische...
-- [Gemeente Arnhem verleent vergunning voor concerten Ye in Gelredome](https://nos.nl/l/2616243)
-  > De gemeente Arnhem heeft een vergunning verleend aan het Gelredome voor twee concerten van de Amerikaanse rapper Ye, voorheen Kanye West. Dat...
-- [Zoutwinning onder Waddenzee kan doorgaan, maar wel onder voorwaarden](https://nos.nl/l/2616241)
-  > De zoutwinning onder de Waddenzee kan doorgaan. Mijnbedrijf Frisia krijgt daar een vergunning voor, heeft het kabinet bepaald. De provincie...
+- [Kabinet ziet geen aanleiding rapper Ye te weren uit Nederland](https://nos.nl/l/2616292)
+  > De Amerikaanse rapper Ye mag naar Nederland komen voor zijn geplande optredens begin volgende maand in Arnhem. Volgens minister Van den Brink van...
+- [Premier Netanyahu: Israël gaat 70 procent van Gaza bezetten](https://nos.nl/l/2616270)
+  > De Israëlische premier Netanyahu heeft het leger opdracht gegeven om 70 procent van de Gazastrook in te nemen. "We zetten Hamas onder druk", zei hij...
+- [Even geen pirouette op stierenballen: vloermozaïek in Milaan gerestaureerd](https://nos.nl/l/2616262)
+  > Met je hiel over de testikels van een stierenmozaïek wrijven en drie keer ronddraaien, dat moet er gebeuren in de overdekte winkelstraat Galleria...
+- [Tientallen brommobielen verwoest bij brand in Numansdorp](https://nos.nl/l/2616261)
+  > Bij een autobedrijf in Numansdorp (Zuid-Holland) zijn bij een brand tientallen elektrische brommobielen verwoest. Voor zover bekend is niemand gewond...
+- [Blue Origin-raket explodeert tijdens test, NASA onderzoekt gevolgen](https://nos.nl/l/2616256)
+  > Een onbemande raket van Blue Origin is tijdens een test op het lanceerplatform geëxplodeerd. Het is een grote tegenslag voor miljardair Jeff Bezos,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Veel buitenwerkers lopen extra risico op huidkanker: 20 procent werkt onbeschermd in volle zon](https://www.ad.nl/werk/veel-buitenwerkers-lopen-extra-risico-op-huidkanker-20-procent-werkt-onbeschermd-in-volle-zon~ad0917bd/)
-  > Een vijfde van de werknemers die veel buiten werken, doet dit in de volle zon zonder zonbescherming te gebruiken. Hierdoor lopen deze buitenwerkers...
-- [Vrouw in VS krijgt boete voor rijden met telefoon in haar rechterhand, maar heeft helemaal geen rechterhand](https://www.ad.nl/buitenland/vrouw-in-vs-krijgt-boete-voor-rijden-met-telefoon-in-haar-rechterhand-maar-heeft-helemaal-geen-rechterhand~a3ea6516/)
-  > Een hoogst opmerkelijke verkeersboete in de Amerikaanse staat Florida: een vrouw werd daar op de bon geslingerd omdat ze tijdens het rijden een...
-- [Voorbeschouwing etappe 19 Giro d’Italia | Loodzware rit door de Dolomieten met venijnige slotklim, kans voor Thymen Arensman?](https://www.ad.nl/giro/voorbeschouwing-etappe-19-giro-ditalia-loodzware-rit-door-de-dolomieten-met-venijnige-slotklim-kans-voor-thymen-arensman~acd23f2f/)
-  > Het einde van de Giro nadert en vandaag staat de zwaarste rit op het programma. De renners moeten liefst 5000 hoogtemeters overwinnen, met een...
-- [Vance: ‘Nog niet zeker of Trump akkoord met Iran over verlenging bestand zal goedkeuren’](https://www.ad.nl/buitenland/vance-nog-niet-zeker-of-trump-akkoord-met-iran-over-verlenging-bestand-zal-goedkeuren~ac528ac3/)
-  > Onderhandelaars van Iran en de Verenigde Staten zijn het eens over een verlenging van het bestand en het starten van onderhandelingen over het...
-- [Raket Blue Origin, van miljardair Jeff Bezos, explodeert tijdens test](https://www.ad.nl/wetenschap/raket-blue-origin-van-miljardair-jeff-bezos-explodeert-tijdens-test~afafe3e1/)
-  > Een raket van Blue Origin, het ruimtevaartbedrijf van miljardair Jeff Bezos, is tijdens een test in Cape Canaveral (Florida) ontploft. Tijdens een...
+- [Advocaat met Curaçao naar Schotland en Oranje tegen Algerije: alle interlands in aanloop naar het WK](https://www.ad.nl/wk-voetbal/advocaat-met-curacao-naar-schotland-en-oranje-tegen-algerije-alle-interlands-in-aanloop-naar-het-wk~a91b180c/)
+  > Oranje oefent in aanloop naar het WK nog tegen Algerije en Oezbekistan. Hoe bereiden de andere toplanden zich voor op het WK in Canada, Mexico en de...
+- [Meisje raakt teen kwijt op glijbaan McDonald’s, onderzoek naar staat van speeltoestel](https://www.ad.nl/zeist/meisje-raakt-teen-kwijt-op-glijbaan-mcdonalds-onderzoek-naar-staat-van-speeltoestel~ac9dd448/)
+  > Een Utrechtse peuter is dinsdag gewond geraakt op de glijbaan van de McDonald’s-vestiging in Huis ter Heide. Het kostte het meisje een teen, die in...
+- [TransferTalk | Senesi en Robertson naar Spurs, Japanner Nikki Havenaar vertrekt naar België](https://www.ad.nl/voetbal/transfertalk-senesi-en-robertson-naar-spurs-japanner-nikki-havenaar-vertrekt-naar-belgie~a488141d/)
+  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
+- [Volop zon, waarom leveren zonnepanelen dan toch minder op?](https://www.ad.nl/wonen/volop-zon-waarom-leveren-zonnepanelen-dan-toch-minder-op~aea0695d/)
+  > De zon schijnt volop, dan verwacht je topdagen voor je zonnepanelen. Toch brengen die op dit soort dagen soms minder op dan op een koelere, zonnige...
+- [Rapper Ye mag naar Nederland komen, minister Van den Brink ziet geen aanleiding hem te weren](https://www.ad.nl/show/rapper-ye-mag-naar-nederland-komen-minister-van-den-brink-ziet-geen-aanleiding-hem-te-weren~a14ffb55/)
+  > Rapper Ye, voorheen Kanye West, staat volgende week ‘gewoon’ in het GelreDome. Nadat de Arnhemse burgemeester Ahmed Marcouch een vergunning...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Wie het goud heeft, heeft de macht op aarde](https://fd.nl/financiele-markten/1598079/wie-het-goud-heeft-heeft-de-macht-op-aarde)
-  > Al eeuwenlang jaagt de mens op goud. Het onverwoestbare edelmetaal heeft de loop van de geschiedenis bepaald, schrijft Dominic Frisby in het boek The...
-- [Petronella (70) procedeert wéér tegen zoon Michiel (46) die nog ruim €1 mln moet terugbetalen](https://fd.nl/samenleving/1597889/petronella-70-procedeert-weer-tegen-zoon-michiel-46-die-nog-ruim-1-mln-moet-terugbetalen)
-  > Al vier jaar treffen moeder en zoon elkaar in de rechtszaal. Michiel heeft tonnen geleend uit de stamrecht-bv van de familie. Daarvan is nooit een...
-- [De corona-enquête gaat niet over geld. Waarom niet?!](https://fd.nl/economie/1598013/de-corona-enquete-gaat-niet-over-geld-waarom-niet)
-  > Vandaag in Dagkoers: de coronaverhoren gaan vooral níet over geld, wearables leiden tot ‘slaapwedstrijdje’ op kantoor, en werd Mediamarkt overgenomen...
-- [In of met Europa?](https://fd.nl/opinie/1598094/in-of-met-europa)
-  > Wanneer is een product ‘made in Europe’? Als het helemaal in Europese fabrieken is gemaakt? Of mogen de onderdelen ook uit andere landen komen?
-- [Personalia vrijdag 29 mei](https://fd.nl/bedrijfsleven/1598087/personalia-vrijdag-29-mei)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Nexperia sluit productiecontract in de VS](https://fd.nl/bedrijfsleven/1598120/nexperia-sluit-productiecontract-in-de-vs)
+  > De Nijmeegse chipmaker is op zoek naar productiecapaciteit buiten China, sinds het bedrijf in een interne crisis is beland.
+- [Dagboek van een Chinese spion biedt buitenkans voor FBI](https://fd.nl/samenleving/1597795/dagboek-van-een-chinese-spion-biedt-buitenkans-voor-fbi)
+  > We weten allemaal dat we digitale sporen achterlaten en dat we daar voorzichtig mee moeten zijn. Toch laat een geheim agent zich uitgerekend online...
+- [Het WK voetbal leeft dit keer echt niet](https://fd.nl/politiek/1597790/het-wk-voetbal-leeft-dit-keer-echt-niet)
+  > Om de verrichtingen van Oranje ter plaatse te volgen, moet u over vier wielen en vele honderden dollars beschikken.
+- [Tennisprofs ijveren voor meer prijzengeld bij Roland Garros](https://fd.nl/samenleving/1597471/tennisprofs-ijveren-voor-meer-prijzengeld-bij-roland-garros)
+  > Dit jaar gaat bij de Franse grand slam amper 15% van alle inkomsten naar spelers in de vorm van prijzengeld. Dat aandeel is aanzienlijk minder dan...
+- [Blue Origin-raket ontploft op lanceerinstallatie, flinke tegenslag Bezos](https://fd.nl/bedrijfsleven/1598176/blue-origin-raket-ontploft-op-lanceerinstallatie-flinke-tegenslag-bezos)
+  > Een raket van Blue Origin ontplofte op een lanceerinstallatie in Florida. Het is een tegenslag voor eigenaar Jeff Bezos, die zegt dat dit ‘het waard...
 
 ### Meest gelezen
 
