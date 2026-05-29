@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-05-2026 om 23:25*
+*Laatst bijgewerkt: 29-05-2026 om 04:03*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Roemenië meldt neerkomen Russische drone op flat, twee mensen lichtgewond](https://nos.nl/l/2616247)
+  > De Roemeense autoriteiten melden dat een Russische drone met explosieve lading is neergekomen op een flat in de stad Galati, vlak bij de grens met...
+- [IJsland gaat referendum houden over lidmaatschap EU](https://nos.nl/l/2616246)
+  > Het parlement van IJsland heeft ingestemd met een referendum over de vraag of het land wel of niet weer moet gaan onderhandelen met de Europese Unie...
 - [Verenigde Naties plaatsen Israël op zwarte lijst vanwege seksueel geweld](https://nos.nl/l/2616244)
   > De Verenigde Naties plaatsen Israël op een zwarte lijst wegens het gebruik van seksueel geweld in de Palestijnse gebieden. Dat heeft de Israëlische...
 - [Gemeente Arnhem verleent vergunning voor concerten Ye in Gelredome](https://nos.nl/l/2616243)
   > De gemeente Arnhem heeft een vergunning verleend aan het Gelredome voor twee concerten van de Amerikaanse rapper Ye, voorheen Kanye West. Dat...
 - [Zoutwinning onder Waddenzee kan doorgaan, maar wel onder voorwaarden](https://nos.nl/l/2616241)
   > De zoutwinning onder de Waddenzee kan doorgaan. Mijnbedrijf Frisia krijgt daar een vergunning voor, heeft het kabinet bepaald. De provincie...
-- [15 jaar cel voor man die aanslag plande op concert Taylor Swift in Wenen](https://nos.nl/l/2616240)
-  > De 21-jarige Oostenrijker Beran A. moet vijftien jaar de cel in voor het voorbereiden van een aanslag op een concert van Taylor Swift in Wenen in...
-- ['VS en Iran eens over verlenging staakt-het-vuren met 60 dagen'](https://nos.nl/l/2616238)
-  > Onderhandelaars van de VS en Iran zijn het eens over verlenging van het staakt-het-vuren met 60 dagen, melden Amerikaanse bronnen. Dat zou meer...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [VS zetten twee Braziliaanse drugsbendes op lijst van buitenlandse terroristische organisaties](https://www.ad.nl/buitenland/vs-zetten-twee-braziliaanse-drugsbendes-op-lijst-van-buitenlandse-terroristische-organisaties~ae67dd9c/)
-  > Het Amerikaanse ministerie van Buitenlandse Zaken heeft donderdag aangekondigd dat het twee Braziliaanse drugsbendes gaat aanmerken als ‘buitenlandse...
-- [‘Wat Magnier doet is knap, maar hoe waanzinnig goed is Stuyven?’](https://www.ad.nl/wielrennen/wat-magnier-doet-is-knap-maar-hoe-waanzinnig-goed-is-stuyven~a5ea502e/)
-  > Een sprint in de achttiende etappe van de Giro? Dat was onmogelijk. Het zou een typische vluchtersrit worden. En als dat om een of andere reden toch...
-- [Wat een finale! Tranen bij Littler na zenuwslopende Premier League-titel (én hoofdprijs van 400.000 euro)](https://www.ad.nl/darts/wat-een-finale-tranen-bij-littler-na-zenuwslopende-premier-league-titel-en-hoofdprijs-van-400-000-euro~a3d230b0/)
-  > Luke Littler heeft zijn tweede Premier League-titel gepakt. In een finale van grandioos niveau versloeg hij in een uitverkochte O2 Arena in Londen...
-- [Ben Shelton verrassend onderuit tegen Belg, Aryna Sabalenka eenvoudig naar derde ronde](https://www.ad.nl/tennis/ben-shelton-verrassend-onderuit-tegen-belg-aryna-sabalenka-eenvoudig-naar-derde-ronde~a924961f/)
-  > De tweede Grand Slam van het jaar  is in volle gang. Tot 7 juni strijden de beste tennissers ter wereld op het gravel van Parijs om de titel in...
-- [Je kunt nu ook de Hyundai Ioniq 9 en Kia EV9 als thuisbatterij gebruiken](https://www.ad.nl/auto/je-kunt-nu-ook-de-hyundai-ioniq-9-en-kia-ev9-als-thuisbatterij-gebruiken~ae14d670/)
-  > Onlangs introduceerde Renault in Nederland de mogelijkheid om stroom van je elektrische auto terug te leveren aan het net. Hyundai en Kia doen dat nu...
+- [Veel buitenwerkers lopen extra risico op huidkanker: 20 procent werkt onbeschermd in volle zon](https://www.ad.nl/werk/veel-buitenwerkers-lopen-extra-risico-op-huidkanker-20-procent-werkt-onbeschermd-in-volle-zon~ad0917bd/)
+  > Een vijfde van de werknemers die veel buiten werken, doet dit in de volle zon zonder zonbescherming te gebruiken. Hierdoor lopen deze buitenwerkers...
+- [Vrouw in VS krijgt boete voor rijden met telefoon in haar rechterhand, maar heeft helemaal geen rechterhand](https://www.ad.nl/buitenland/vrouw-in-vs-krijgt-boete-voor-rijden-met-telefoon-in-haar-rechterhand-maar-heeft-helemaal-geen-rechterhand~a3ea6516/)
+  > Een hoogst opmerkelijke verkeersboete in de Amerikaanse staat Florida: een vrouw werd daar op de bon geslingerd omdat ze tijdens het rijden een...
+- [Voorbeschouwing etappe 19 Giro d’Italia | Loodzware rit door de Dolomieten met venijnige slotklim, kans voor Thymen Arensman?](https://www.ad.nl/giro/voorbeschouwing-etappe-19-giro-ditalia-loodzware-rit-door-de-dolomieten-met-venijnige-slotklim-kans-voor-thymen-arensman~acd23f2f/)
+  > Het einde van de Giro nadert en vandaag staat de zwaarste rit op het programma. De renners moeten liefst 5000 hoogtemeters overwinnen, met een...
+- [Vance: ‘Nog niet zeker of Trump akkoord met Iran over verlenging bestand zal goedkeuren’](https://www.ad.nl/buitenland/vance-nog-niet-zeker-of-trump-akkoord-met-iran-over-verlenging-bestand-zal-goedkeuren~ac528ac3/)
+  > Onderhandelaars van Iran en de Verenigde Staten zijn het eens over een verlenging van het bestand en het starten van onderhandelingen over het...
+- [Raket Blue Origin, van miljardair Jeff Bezos, explodeert tijdens test](https://www.ad.nl/wetenschap/raket-blue-origin-van-miljardair-jeff-bezos-explodeert-tijdens-test~afafe3e1/)
+  > Een raket van Blue Origin, het ruimtevaartbedrijf van miljardair Jeff Bezos, is tijdens een test in Cape Canaveral (Florida) ontploft. Tijdens een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Wie het goud heeft, heeft de macht op aarde](https://fd.nl/financiele-markten/1598079/wie-het-goud-heeft-heeft-de-macht-op-aarde)
+  > Al eeuwenlang jaagt de mens op goud. Het onverwoestbare edelmetaal heeft de loop van de geschiedenis bepaald, schrijft Dominic Frisby in het boek The...
+- [Petronella (70) procedeert wéér tegen zoon Michiel (46) die nog ruim €1 mln moet terugbetalen](https://fd.nl/samenleving/1597889/petronella-70-procedeert-weer-tegen-zoon-michiel-46-die-nog-ruim-1-mln-moet-terugbetalen)
+  > Al vier jaar treffen moeder en zoon elkaar in de rechtszaal. Michiel heeft tonnen geleend uit de stamrecht-bv van de familie. Daarvan is nooit een...
+- [De corona-enquête gaat niet over geld. Waarom niet?!](https://fd.nl/economie/1598013/de-corona-enquete-gaat-niet-over-geld-waarom-niet)
+  > Vandaag in Dagkoers: de coronaverhoren gaan vooral níet over geld, wearables leiden tot ‘slaapwedstrijdje’ op kantoor, en werd Mediamarkt overgenomen...
 - [In of met Europa?](https://fd.nl/opinie/1598094/in-of-met-europa)
   > Wanneer is een product ‘made in Europe’? Als het helemaal in Europese fabrieken is gemaakt? Of mogen de onderdelen ook uit andere landen komen?
 - [Personalia vrijdag 29 mei](https://fd.nl/bedrijfsleven/1598087/personalia-vrijdag-29-mei)
   > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Akzo-top gaat fors meer verdienen als fusie met Axalta doorgaat](https://fd.nl/bedrijfsleven/1598086/akzo-top-gaat-fors-meer-verdienen-als-fusie-met-axalta-doorgaat)
-  > Beleggersvertegenwoordigers Eumedion en VEB hebben kritiek op het beloningsvoorstel. De VEB spreekt van ‘Amerikaanse beloningspraktijken’.
-- [Politici moeten niet glijden maar schuren](https://fd.nl/opinie/1598007/politici-moeten-niet-glijden-maar-schuren)
-  > Het kabinet plaatste deze week zelf dynamiet onder het groot onderhoud op de verzorgingsstaat. Zou Margaret Thatcher zo’n legende zijn geworden als...
-- [Zwabberbeleid in Iran geeft onzekerheid op de beurzen](https://fd.nl/bedrijfsleven/1598111/zwabberbeleid-in-iran-geeft-onzekerheid-op-de-beurzen)
-  > De handelsdag begon in mineur na nieuwe Amerikaanse aanvallen op een Iraanse legerbasis, maar door nieuws over onderhandelingen kantelde het...
 
 ### Meest gelezen
 
