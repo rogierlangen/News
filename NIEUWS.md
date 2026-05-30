@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-05-2026 om 21:03*
+*Laatst bijgewerkt: 30-05-2026 om 23:02*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Rellen en honderden arrestaties in Parijs nadat PSG Champions League wint](https://nos.nl/l/2616511)
+  > In Parijs zijn bij ongeregeldheden honderden mensen opgepakt. In de Franse hoofdstad was het een groot feest nadat Paris Saint-Germain de finale van...
 - [Trump wil zelf podium pakken na afzeggen artiesten bij onafhankelijkheidsfeest](https://nos.nl/l/2616498)
   > Na een reeks afzeggingen door bekende artiesten overweegt president Trump de plannen voor een grootscheepse Amerikaanse onafhankelijkheidsviering...
 - [Finland grijpt terug op de zeppelin als antwoord op dreiging uit Rusland](https://nos.nl/l/2616492)
@@ -16,8 +18,6 @@
   > De VS begon de oorlog met de belofte om Iran tot vergaande concessies te dwingen. Maar nu er een conceptakkoord op tafel ligt, lijkt vooral Teheran...
 - [Honderden treinpassagiers zitten hele nacht vast in trein in Frankrijk](https://nos.nl/l/2616488)
   > Door technische problemen op het Franse spoor hebben honderden passagiers van twee Italiaanse hogesnelheidstreinen de nacht door moeten brengen in de...
-- [74-jarige Kubicki moet doodverklaarde Duitse liberale partij nieuw leven inblazen](https://nos.nl/l/2616485)
-  > Hij is direct, provoceert graag en heeft naar eigen zeggen "de uitstraling van een koelkast". Toch is de 74-jarige Wolfgang Kubicki vanaf vandaag de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Supporters botsen met politie in Parijs na Champions League-winst van PSG: vuurwerk, barricades en arrestaties](https://www.ad.nl/buitenland/supporters-botsen-met-politie-in-parijs-na-champions-league-winst-van-psg-vuurwerk-barricades-en-arrestaties~a9a5eecc/)
-  > Rondom de finale van de Champions League tussen Paris-Saint-Germain (PSG) en Arsenal is het op meerdere plaatsen in Parijs tot schermutselingen...
+- [Naam ontslagen Slot valt meteen in Italië, Liverpool wil coach Bournemouth als opvolger](https://www.ad.nl/voetbal/naam-ontslagen-slot-valt-meteen-in-italie-liverpool-wil-coach-bournemouth-als-opvolger~a488141d/)
+  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
+- [Supporters botsen met politie in Parijs na winst van PSG: vuurwerk, barricades en zeker 130 arrestaties](https://www.ad.nl/voetbal/supporters-botsen-met-politie-in-parijs-na-winst-van-psg-vuurwerk-barricades-en-zeker-130-arrestaties~a9a5eecc/)
+  > Rondom de finale van de Champions League tussen Paris Saint-Germain (PSG) en Arsenal is het op meerdere plaatsen in Parijs tot schermutselingen...
 - [Suzan & Freek vereeuwigd op Walk of Fame bij Gelredome na 10 uitverkochte shows](https://www.ad.nl/show/suzan-en-freek-vereeuwigd-op-walk-of-fame-bij-gelredome-na-10-uitverkochte-shows~a61f3033/)
   > Suzan & Freek hebben een zogenoemde eretegel gekregen bij het GelreDome in Arnhem. Dat maakte het duo zaterdag bekend in een bericht op sociale...
 - [PSG treedt in voetsporen van oppermachtig Ajax uit jaren 70, pijnlijke statistiek Arsenal: de CL-finale in cijfers](https://www.ad.nl/voetbal/psg-treedt-in-voetsporen-van-oppermachtig-ajax-uit-jaren-70-pijnlijke-statistiek-arsenal-de-cl-finale-in-cijfers~a2649c36e/)
   > Paris Saint-Germain heeft voor de tweede keer op rij de Champions League gewonnen, door Arsenal na penalty’s te verslaan. Vier opvallende feitjes na...
 - [Daar zijn de spelers die Oranje WK-goud moeten bezorgen! Internationals (en reserves) arriveren in Zeist](https://www.ad.nl/voetbal/daar-zijn-de-spelers-die-oranje-wk-goud-moeten-bezorgen-internationals-en-reserves-arriveren-in-zeist~a381266b/)
   > De voorbereiding op het WK is voor Oranje officieel van start. Zaterdagmiddag meldde de selectie zich op de KNVB Campus in Zeist, waar bondscoach...
-- [Oranje oefent in aanloop naar WK tegen Algerije en Oezbekistan: dit is het programma](https://www.ad.nl/voetbal/oranje-oefent-in-aanloop-naar-wk-tegen-algerije-en-oezbekistan-dit-is-het-programma~a2f4806c/)
-  > Het Nederlands elftal is de voorbereiding aan het WK begonnen. De selectie van Ronald Koeman kwam zaterdag bijeen in Zeist.
 
 ### Meest gelezen
 
