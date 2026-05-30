@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-05-2026 om 19:23*
+*Laatst bijgewerkt: 30-05-2026 om 21:03*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Trump wil zelf podium pakken na afzeggen artiesten bij onafhankelijkheidsfeest](https://nos.nl/l/2616498)
+  > Na een reeks afzeggingen door bekende artiesten overweegt president Trump de plannen voor een grootscheepse Amerikaanse onafhankelijkheidsviering...
 - [Finland grijpt terug op de zeppelin als antwoord op dreiging uit Rusland](https://nos.nl/l/2616492)
-  > Op het terrein van de Finse producent Kelluu in Joensuu wordt een 12 meter lange zeppelin aan een trolley vastgemaakt en in een grote tent gereden....
+  > Op het Finse platteland, vlak bij de grens met Rusland, is een luchtvaartuig uit de Eerste Wereldoorlog opnieuw ontworpen: de zeppelin. De moderne...
 - [Conceptdeal tussen VS en Iran roept nieuwe vraag op: wie heeft er gewonnen?](https://nos.nl/l/2616489)
   > De VS begon de oorlog met de belofte om Iran tot vergaande concessies te dwingen. Maar nu er een conceptakkoord op tafel ligt, lijkt vooral Teheran...
 - [Honderden treinpassagiers zitten hele nacht vast in trein in Frankrijk](https://nos.nl/l/2616488)
   > Door technische problemen op het Franse spoor hebben honderden passagiers van twee Italiaanse hogesnelheidstreinen de nacht door moeten brengen in de...
 - [74-jarige Kubicki moet doodverklaarde Duitse liberale partij nieuw leven inblazen](https://nos.nl/l/2616485)
   > Hij is direct, provoceert graag en heeft naar eigen zeggen "de uitstraling van een koelkast". Toch is de 74-jarige Wolfgang Kubicki vanaf vandaag de...
-- [Zelensky na aanvallen diep in Rusland: 'Brengen oorlog terug naar waar die vandaan kwam'](https://nos.nl/l/2616481)
-  > Oekraïense drones hebben meerdere olie-installaties in het zuiden van Rusland aangevallen afgelopen nacht. Dat melden de autoriteiten in Rusland en...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Trump wil zelf speech houden tijdens ‘Great American State Fair’ nadat artiesten afzeggen bij  jubileumshow VS](https://www.ad.nl/buitenland/trump-wil-zelf-speech-houden-tijdens-great-american-state-fair-nadat-artiesten-afzeggen-bij-jubileumshow-vs~ab9a2e39/)
-  > President Donald Trump is klaar met alle ophef rond de concertreeks ter ere van het 250-jarig bestaan van de VS. In een bericht op Truth Social laat...
-- [Om deze drie redenen zal Arne Slot snel kunnen leven met vertrek bij Liverpool](https://www.ad.nl/voetbal/om-deze-drie-redenen-zal-arne-slot-snel-kunnen-leven-met-vertrek-bij-liverpool~ae889054/)
-  > Het dienstverband van Arne Slot bij Liverpool kan worden opgedeeld in een subliem eerste jaar gevolgd door een rampseizoen. De clubleiding laat de...
-- [‘Stond die er altijd al?’ De ‘smeerpalen’ zijn er weer (en hierom zijn ze nodig)](https://www.ad.nl/binnenland/stond-die-er-altijd-al-de-smeerpalen-zijn-er-weer-en-hierom-zijn-ze-nodig~a0a4205f/)
-  > De mussen vallen van het dak en de ijsjes zijn niet aan te slepen. Het voelt als zomer. En dat betekent naast ‘zon’ en ‘zwemmen’ ook: smeren. En dat...
-- [Jaguar van prinses Diana wordt binnenkort geveild in Engeland: zal naar verwachting 115.000 euro opbrengen](https://www.ad.nl/show/jaguar-van-prinses-diana-wordt-binnenkort-geveild-in-engeland-zal-naar-verwachting-115-000-euro-opbrengen~a308c67f/)
-  > In Engeland wordt binnenkort een auto van de in 1997 overleden prinses Diana geveild. Het gaat om een zwarte Jaguar XJ40 Sovereign, die van 1994 tot...
-- [Jettens harde les na honderd dagen: verandering is makkelijker beloofd dan georganiseerd](https://www.ad.nl/politiek/jettens-harde-les-na-honderd-dagen-verandering-is-makkelijker-beloofd-dan-georganiseerd~ae4b4fe5/)
-  > Een ijzeren wet in de politiek leert dat zolang partijen er baat bij hebben dat er niets gebeurt, er ook niets gebeurt. Daar komt het...
+- [Supporters botsen met politie in Parijs na Champions League-winst van PSG: vuurwerk, barricades en arrestaties](https://www.ad.nl/buitenland/supporters-botsen-met-politie-in-parijs-na-champions-league-winst-van-psg-vuurwerk-barricades-en-arrestaties~a9a5eecc/)
+  > Rondom de finale van de Champions League tussen Paris-Saint-Germain (PSG) en Arsenal is het op meerdere plaatsen in Parijs tot schermutselingen...
+- [Suzan & Freek vereeuwigd op Walk of Fame bij Gelredome na 10 uitverkochte shows](https://www.ad.nl/show/suzan-en-freek-vereeuwigd-op-walk-of-fame-bij-gelredome-na-10-uitverkochte-shows~a61f3033/)
+  > Suzan & Freek hebben een zogenoemde eretegel gekregen bij het GelreDome in Arnhem. Dat maakte het duo zaterdag bekend in een bericht op sociale...
+- [PSG treedt in voetsporen van oppermachtig Ajax uit jaren 70, pijnlijke statistiek Arsenal: de CL-finale in cijfers](https://www.ad.nl/voetbal/psg-treedt-in-voetsporen-van-oppermachtig-ajax-uit-jaren-70-pijnlijke-statistiek-arsenal-de-cl-finale-in-cijfers~a2649c36e/)
+  > Paris Saint-Germain heeft voor de tweede keer op rij de Champions League gewonnen, door Arsenal na penalty’s te verslaan. Vier opvallende feitjes na...
+- [Daar zijn de spelers die Oranje WK-goud moeten bezorgen! Internationals (en reserves) arriveren in Zeist](https://www.ad.nl/voetbal/daar-zijn-de-spelers-die-oranje-wk-goud-moeten-bezorgen-internationals-en-reserves-arriveren-in-zeist~a381266b/)
+  > De voorbereiding op het WK is voor Oranje officieel van start. Zaterdagmiddag meldde de selectie zich op de KNVB Campus in Zeist, waar bondscoach...
+- [Oranje oefent in aanloop naar WK tegen Algerije en Oezbekistan: dit is het programma](https://www.ad.nl/voetbal/oranje-oefent-in-aanloop-naar-wk-tegen-algerije-en-oezbekistan-dit-is-het-programma~a2f4806c/)
+  > Het Nederlands elftal is de voorbereiding aan het WK begonnen. De selectie van Ronald Koeman kwam zaterdag bijeen in Zeist.
 
 ### Meest gelezen
 
