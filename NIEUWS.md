@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-05-2026 om 11:24*
+*Laatst bijgewerkt: 30-05-2026 om 13:48*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Hondius volledig gereinigd na uitbraak hantavirus, cruiseschip mag weer varen](https://nos.nl/l/2616451)
+  > Het door het hantavirus getroffen Nederlandse cruiseschip Hondius mag terug de vaart in. Dat heeft de GGD Rotterdam-Rijnmond beoordeeld na een...
+- [Opnieuw dodelijke aanval VS op 'drugsboot', meer dan 200 doden sinds september](https://nos.nl/l/2616449)
+  > Het Amerikaanse leger heeft opnieuw een aanval uitgevoerd op een boot in de Stille Oceaan die zou worden gebruikt voor drugssmokkel. Volgens de VS...
+- [Politie houdt Groningse fietsenmaker aan die lokfiets wilde beschermen](https://nos.nl/l/2616438)
+  > Een fietsenmaker in de stad Groningen is deze week opgepakt vanwege een lokfiets. De man zag hoe iemand anders een accu uit de fiets probeerde te...
 - [Uitgever AD en Volkskrant verlengt project met gratis abonnementen voor minima](https://nos.nl/l/2616434)
   > DPG Media verlengt het project waarin gratis krantenabonnementen worden verstrekt aan mensen met een laag inkomen. Daarmee blijven jaarlijks 5000...
 - [Italiaanse regio schrapt optreden Ye vanwege veiligheid](https://nos.nl/l/2616433)
   > Na Frankrijk, Groot-Brittannië, Zwitserland en Polen, is rapper Ye ook niet welkom om op te treden in Italië. Het bestuur in de noordelijke regio...
-- [Teamsport zonder verplichtingen in trek: 'Onze piek is in de derde helft'](https://nos.nl/l/2616431)
-  > Geen score, geen scheids en geen slidings: het zijn een paar spelregels van vrijblijvende competities. Steeds meer mensen kiezen ervoor om op een...
-- [Vijf goudzoekers die vastzaten in een grot in Laos zijn gered](https://nos.nl/l/2616429)
-  > Vijf goudzoekers die ruim een week vastzaten in een grot in Laos zijn levend eruit gekomen. Dat melden diverse internationale media op basis van...
-- [Dorpje in Tirol is drukte op Brennerpas beu en legt bergroute plat](https://nos.nl/l/2616427)
-  > Wie vandaag met de auto naar Italië wil rijden, kan die reis beter een dagje uitstellen of een overnachtingsplek in Oostenrijk regelen. De hele dag...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Arne Slot per direct ontslagen bij Liverpool](https://www.ad.nl/voetbal/arne-slot-per-direct-ontslagen-bij-liverpool~a91d14de/)
-  > Liverpool heeft trainer Arne Slot per direct ontslagen. Dat melden ingewijden. Het ontslag volgt op een teleurstellend seizoen waarin The Reds als...
-- [Onvoorspelbare ziekte die vooral vrouwen treft: dit moet je weten over MS](https://www.ad.nl/gezond/onvoorspelbare-ziekte-die-vooral-vrouwen-treft-dit-moet-je-weten-over-ms~aa64e952/)
-  > Plotselinge vermoeidheid, tintelingen in je vingers, wazig zien of problemen met lopen. Het zijn symptomen die kunnen wijzen op multiple sclerose,...
-- [Niet onoverkomelijk als Buienradar wat regen mist, zegt weervrouw: ‘In Oekraïne vriezen mensen dood’](https://www.ad.nl/binnenland/niet-onoverkomelijk-als-buienradar-wat-regen-mist-zegt-weervrouw-in-oekraine-vriezen-mensen-dood~aaba7eaf/)
-  > AD-columnist Özcan Akyol vindt het maar raar. Buienradar hoeft er maar eventjes naast te zitten en gebruikers reageren woedend. Maar wat vindt Amara...
-- [Agent in Middelburg trekt dienstwapen om waterpistool](https://www.ad.nl/binnenland/agent-in-middelburg-trekt-dienstwapen-om-waterpistool~a781a0ed/)
-  > Een agent in Middelburg heeft in de nacht van vrijdag op zaterdag zijn dienstwapen getrokken, omdat tijdens een controle een op een vuurwapen lijkend...
-- [Doelpuntrijk duel en oudste WK-finalist: gaan deze WK-records deze zomer eindelijk uit de boeken?](https://www.ad.nl/wk-voetbal/doelpuntrijk-duel-en-oudste-wk-finalist-gaan-deze-wk-records-deze-zomer-eindelijk-uit-de-boeken~a7dc99f7/)
-  > Elk WK sneuvelen er wel records. Maar er zijn er ook een aantal die al jarenlang staan en niet bedreigd worden. Komt daar dit jaar verandering in?...
+- [De jaren van Arne Slot bij Liverpool in cijfers: de pijnlijke vrije val na het kampioensjaar](https://www.ad.nl/voetbal/de-jaren-van-arne-slot-bij-liverpool-in-cijfers-de-pijnlijke-vrije-val-na-het-kampioensjaar~acb5a1e2/)
+  > Arne Slot en Liverpool hebben afscheid van elkaar genomen. De Nederlandse oefenmeester beleefde één perfect seizoen en één mislukt seizoen op...
+- [Finale barst los op pittige slotklim: wie stopt Vingegaard in jacht op vijfde etappezege?](https://www.ad.nl/giro/finale-barst-los-op-pittige-slotklim-wie-stopt-vingegaard-in-jacht-op-vijfde-etappezege~ada0041c/)
+  > Na een loodzware slotweek telt de Giro nog maar twee etappes. Vandaag krijgen de renners nog één laatste bergrit voor hun kiezen. Over 200 kilometer...
+- [Dick Advocaat in de problemen met Curaçao: tiental verspeelt sterke start in Schotland](https://www.ad.nl/wk-voetbal/dick-advocaat-in-de-problemen-met-curacao-tiental-verspeelt-sterke-start-in-schotland~a42ac00b/)
+  > Curaçao oefent vandaag in aanloop naar het WK in en tegen Schotland. De vriendschappelijke interland wordt gespeeld op Hampden Park, waar Dick...
+- [Precies 11 minuten en 43 seconden met Clarence Seedorf: ‘Hoe het is om een levende legende te zijn? Heb je even?’](https://www.ad.nl/voetbal/precies-11-minuten-en-43-seconden-met-clarence-seedorf-hoe-het-is-om-een-levende-legende-te-zijn-heb-je-even~a06366a2/)
+  > Vlak voor de Champions League-finale in Boedapest sprak deze site met Clarence Seedorf. De viervoudig winnaar reist tegenwoordig als felbegeerd...
+- [In de gevangenis bakt David aan een nieuw leven: ‘De dagen vliegen voorbij’](https://www.ad.nl/binnenland/in-de-gevangenis-bakt-david-aan-een-nieuw-leven-de-dagen-vliegen-voorbij~a19e61b6/)
+  > De geur van versgebakken brood achter betraliede ramen. In de gevangenis leren gedetineerden zoals David het bakkersvak, in de hoop straks buiten de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [‘Ontslagen BP-voorzitter Manifold lag in de clinch met oud-medebestuurder’](https://fd.nl/bedrijfsleven/1598261/ontslagen-bp-voorzitter-manifold-lag-in-de-clinch-met-medebestuurder)
+  > De vorige week ontslagen bestuursvoorzitter van BP, Albert Manifold, zou volgens de Wall Street Journal een conflict hebben gehad met een...
+- [Dure kaartjes en ondoorzichtige verkoop houden Oranjefans niet weg van WK voetbal](https://fd.nl/samenleving/1598230/dure-kaartjes-en-ondoorzichtige-verkoop-houden-oranjefans-niet-weg-van-wk-voetbal)
+  > Twee Amerikaanse staten hebben de Fifa gedagvaard om de hoge prijzen voor WK-kaartjes. Maar de dure kaartjes drukken de Nederlandse pret niet: er...
 - [Rusland roept ambassadeur terug uit Armenië](https://fd.nl/politiek/1598259/rusland-roept-ambassadeur-terug-uit-armenie)
   > Rusland haalt zijn ambassadeur terug uit Armenië nadat die laatste de banden met de EU heeft aangehaald.
 - [‘Europese Commissie gaat Bulgarije onder toezicht stellen vanwege begrotingstekort’](https://fd.nl/politiek/1598258/europese-commissie-gaat-bulgarije-onder-toezicht-stellen-vanwege-begrotingstekort)
   > Bulgarije wordt naar verwachting aankomende week onder verscherpt toezicht gesteld van de Europese Commissie vanwege het opgelopen begrotingstekort.
 - [‘Voor je levensverzekering betaal je ook geen premie meer als de einddatum is bereikt’](https://fd.nl/opinie/1598015/voor-je-levensverzekering-betaal-je-ook-geen-premie-meer-als-de-einddatum-is-bereikt-en-andere-lezersreacties)
   > FD-lezers reageren op het betaalbaar houden van de AOW-premie, de aanpassing rond het afschrijven van bedrijfspanden en de verrekening van opgelopen...
-- [Zorgen over private credit groeien: wat kan er misgaan?](https://fd.nl/economie/1598232/zorgen-over-private-credit-groeien-wat-kan-er-misgaan)
-  > Toezichthouders slaan alarm over een financiële blinde vlek: private credit. Zijn deze bedrijfsleningen een tikkende tijdbom?
-- [Nederlandse regels tegen witwassen zijn te streng, dat kan anders](https://fd.nl/politiek/1598228/nederlandse-regels-tegen-witwassen-zijn-te-streng-dat-kan-anders)
-  > Nederlandse financiële instellingen meldden in 2024 maar liefst 3,5 miljoen ongebruikelijke transacties. Veel en veel meer dan in andere landen. De...
 
 ### Meest gelezen
 
