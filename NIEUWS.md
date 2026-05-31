@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-05-2026 om 04:14*
+*Laatst bijgewerkt: 31-05-2026 om 08:16*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Man aangereden en overleden op A67](https://nos.nl/l/2616513)
-  > Op de A67 bij Lierop is een man overleden na een ongeluk. De politie meldt dat het slachtoffer door een auto is aangereden op de rijbaan.
-        Het...
-- [Muizenplaag in Australië: muizenparadijs door recordoogst](https://nos.nl/l/2616512)
-  > Grote delen van Australië gaan al weken gebukt onder een enorme muizenplaag. Boeren zien hoe de diertjes hun akkers vernielen en zaaisel opeten....
-- [Rellen en honderden arrestaties in Parijs nadat PSG Champions League wint](https://nos.nl/l/2616511)
-  > In Parijs zijn bij ongeregeldheden honderden mensen opgepakt. In de Franse hoofdstad was het een groot feest nadat Paris Saint-Germain de finale van...
-- [Trump wil zelf podium pakken na afzeggen artiesten bij onafhankelijkheidsfeest](https://nos.nl/l/2616498)
-  > Na een reeks afzeggingen door bekende artiesten overweegt president Trump de plannen voor een grootscheepse Amerikaanse onafhankelijkheidsviering...
-- [Finland grijpt terug op de zeppelin als antwoord op dreiging uit Rusland](https://nos.nl/l/2616492)
-  > Op het Finse platteland, vlak bij de grens met Rusland, is een luchtvaartuig uit de Eerste Wereldoorlog opnieuw ontworpen: de zeppelin. De moderne...
+- [Editor Marcia Lucas overleden, stille kracht achter Star Wars](https://nos.nl/l/2616530)
+  > George Lucas geldt als het brein achter Star Wars, maar waren de sciencefiction-films ooit zo populair geworden zonder zijn ex-vrouw? Bij haar dood...
+- [Noodweer in België: hagelstenen zo groot als pingpongballen](https://nos.nl/l/2616521)
+  > België heeft gisteravond en vannacht te maken gehad met zwaar noodweer, met op verschillende plaatsen hevige hagelbuien, onweer en veel regen. Op...
+- [Wekdienst 31/5: Uitzwaaitraining van het Nederlands elftal • Colombia kiest president](https://nos.nl/l/2616520)
+  > Goedemorgen!
+        Eerst het weer: Vandaag wisselen wolkenvelden en zonnige perioden elkaar af. In de middag ontstaan vooral in het oosten een paar...
+- [Israël neemt strategisch kasteel in, evacuatiezone Libanon schuift steeds verder op](https://nos.nl/l/2616518)
+  > Israël heeft een strategisch gelegen kasteel uit de kruisvaardertijd ingenomen in Libanon. Het is in ruim 25 jaar tijd het diepste punt dat...
+- [Podcast De Dag: van onze correspondent... Meike Wijers (Australië, Nieuw-Zeeland en Pacifische eilanden)](https://nos.nl/l/2616517)
+  > Van onze Correspondent is een serie van de makers van podcast De Dag. Iedere zondag maken we kennis met een van de correspondenten van de NOS, het...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Flitscamera betrapt ‘snelheidsduivel’ in 30‑zone: vrouw met rollator raast met zogenaamd 42 km per uur langs](https://www.ad.nl/buitenland/flitscamera-betrapt-snelheidsduivel-in-30zone-vrouw-met-rollator-raast-met-zogenaamd-42-km-per-uur-langs~af06c2d3/)
-  > Het is een uniek aanzicht: geen auto, maar iets heel anders staat op de foto van een flitscamera. Een oudere vrouw met haar rollator. Volgens de...
-- [Voorbeschouwing etappe 21 Giro d’Italia | Kan Dylan Groenewegen in laatste rit naar Rome tóch nog naar een zege sprinten?](https://www.ad.nl/giro/voorbeschouwing-etappe-21-giro-ditalia-kan-dylan-groenewegen-in-laatste-rit-naar-rome-toch-nog-naar-een-zege-sprinten~a8a559f1/)
-  > De laatste etappe na drie weken Giro d’Italia is aangebroken. Traditiegetrouw sluiten de renners af in de Italiaanse hoofdstad Rome met een...
-- [‘Trump wil aanpassingen Iran-deal’, leger VS zegt schip te hebben aangevallen dat ‘op weg was naar Iraanse haven’](https://www.ad.nl/buitenland/trump-wil-aanpassingen-iran-deal-leger-vs-zegt-schip-te-hebben-aangevallen-dat-op-weg-was-naar-iraanse-haven~ac528ac3/)
-  > De Amerikaanse president Donald Trump heeft vrijdag geprobeerd om verschillende voorwaarden van een voorgestelde deal met Iran te wijzigen. Dat...
-- [Snelle verspreiding ebola in Congo is ‘zeer alarmerend’, waarschuwt Artsen Zonder Grenzen](https://www.ad.nl/buitenland/snelle-verspreiding-ebola-in-congo-is-zeer-alarmerend-waarschuwt-artsen-zonder-grenzen~a23c39f2/)
-  > De snelle verspreiding van het ebolavirus in de Democratische Republiek Congo (DRC) is ‘zeer alarmerend’. Dat meldt hulpverleningsorganisatie Artsen...
-- [KNMI waarschuwt voor onweer in Noord-Brabant en Limburg: windstoten, hagel en plaatselijk veel neerslag](https://www.ad.nl/binnenland/knmi-waarschuwt-voor-onweer-in-noord-brabant-en-limburg-windstoten-hagel-en-plaatselijk-veel-neerslag~aebb51b4a/)
-  > In Noord-Brabant en Limburg is sinds zaterdagavond code geel van kracht wegens stevige onweersbuien, meldt het KNMI. Daarbij kunnen windstoten en...
+- [Een goed strijkijzer is niet duur: deze kost nog geen 30 euro en gaat lang mee](https://www.ad.nl/wonen/een-goed-strijkijzer-is-niet-duur-deze-kost-nog-geen-30-euro-en-gaat-lang-mee~a7d20b6b/)
+  > Met kleding zonder vouwen en kreukels kom je net wat verzorgder voor de dag. Zeker als strijken niet je hobby is, wil je weten met welk strijkijzer...
+- [Nieuwe NPO-baas over toekomst publieke omroep: samenwerken met RTL en Talpa en jongeren beter bereiken](https://www.ad.nl/show/nieuwe-npo-baas-over-toekomst-publieke-omroep-samenwerken-met-rtl-en-talpa-en-jongeren-beter-bereiken~a0af03e0/)
+  > Stevig bezuinigen, reorganiseren, digitaliseren en jongeren binnenboord zien te houden. Ook het imago van de publieke omroep kan wel een poetsbeurt...
+- [Nadine (27) kan vanmiddag op Wembley stunten tegen sterren ManCity: ‘Nooit verwacht zo ver te komen’](https://www.ad.nl/voetbal/nadine-27-kan-vanmiddag-op-wembley-stunten-tegen-sterren-mancity-nooit-verwacht-zo-ver-te-komen~a799ccad/)
+  > Tijdens haar jeugd voetbalde ze lang tussen de jongens en via ADO Den Haag en Ajax maakte Nadine Noordam de droomstap naar het Engelse Brighton &...
+- [Van Gijón tot Liverpool: hoe de wilde noordkust van Spanje een generatie toptrainers voortbracht](https://www.ad.nl/voetbal/van-gijon-tot-liverpool-hoe-de-wilde-noordkust-van-spanje-een-generatie-toptrainers-voortbracht~afee3f54/)
+  > Luis Enrique werd door zijn uitzinnige spelers en assistenten op de schouders geheven. Mikel Arteta moest berusten in het verlies. De finale van de...
+- [Jesper de Jong als stuntende ‘lucky loser’ in uniek rijtje, schrijft hij tennishistorie in Parijs?](https://www.ad.nl/tennis/jesper-de-jong-als-stuntende-lucky-loser-in-uniek-rijtje-schrijft-hij-tennishistorie-in-parijs~a398b3493/)
+  > Jesper de Jong maakt zich op voor zijn vierderondepartij tegen Alexander Zverev. De Nederlander werd vorige week uitgeschakeld in de kwalificatie,...
 
 ### Meest gelezen
 
@@ -47,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [SoftBank wil €75 mrd investeren in Franse AI-datacenters](https://fd.nl/bedrijfsleven/1598263/softbank-wil-75-mrd-investeren-in-franse-ai-datacenters)
+  > Het zou de grootste investering in AI-infrastructuur zijn die het bedrijf ooit in Europa deed.
 - [Een feest van jonge ondernemers, het bedrijfsleven en het corps](https://fd.nl/bedrijfsleven/1597907/een-feest-van-jonge-ondernemers-het-bedrijfsleven-en-het-corps)
   > In het Ro Theater blijkt dat niet alleen de finalisten, maar ook de organisatie en het publiek branden van ambitie.
 - [Hoe de Duitse bestuurscultuur de aanpak van dividendfraude frustreerde](https://fd.nl/financiele-markten/1597187/hoe-de-duitse-bestuurscultuur-de-aanpak-van-dividendfraude-frustreerde)
@@ -55,8 +57,6 @@
   > Deze week hoor je het verhaal van vader en zoon achter software-imperium Chipsoft. Hans en Gerrit Mulder bouwden op eigen kracht het machtigste...
 - [Hegseth prijst Aziatische bondgenoten en waarschuwt Europa in Singapore](https://fd.nl/politiek/1598262/hegseth-prijst-aziatische-bondgenoten-en-waarschuwt-europa-in-singapore)
   > Pete Hegseth prijst tijdens een conferentie in Singapore de defensieinvesteringen van Aziatische partners.
-- [‘Ontslagen BP-voorzitter Manifold lag in de clinch met oud-medebestuurder’](https://fd.nl/bedrijfsleven/1598261/ontslagen-bp-voorzitter-manifold-lag-in-de-clinch-met-medebestuurder)
-  > De vorige week ontslagen bestuursvoorzitter van BP, Albert Manifold, zou volgens de Wall Street Journal een conflict hebben gehad met een...
 
 ### Meest gelezen
 
