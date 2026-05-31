@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-05-2026 om 23:02*
+*Laatst bijgewerkt: 31-05-2026 om 04:14*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Man aangereden en overleden op A67](https://nos.nl/l/2616513)
+  > Op de A67 bij Lierop is een man overleden na een ongeluk. De politie meldt dat het slachtoffer door een auto is aangereden op de rijbaan.
+        Het...
+- [Muizenplaag in Australië: muizenparadijs door recordoogst](https://nos.nl/l/2616512)
+  > Grote delen van Australië gaan al weken gebukt onder een enorme muizenplaag. Boeren zien hoe de diertjes hun akkers vernielen en zaaisel opeten....
 - [Rellen en honderden arrestaties in Parijs nadat PSG Champions League wint](https://nos.nl/l/2616511)
   > In Parijs zijn bij ongeregeldheden honderden mensen opgepakt. In de Franse hoofdstad was het een groot feest nadat Paris Saint-Germain de finale van...
 - [Trump wil zelf podium pakken na afzeggen artiesten bij onafhankelijkheidsfeest](https://nos.nl/l/2616498)
   > Na een reeks afzeggingen door bekende artiesten overweegt president Trump de plannen voor een grootscheepse Amerikaanse onafhankelijkheidsviering...
 - [Finland grijpt terug op de zeppelin als antwoord op dreiging uit Rusland](https://nos.nl/l/2616492)
   > Op het Finse platteland, vlak bij de grens met Rusland, is een luchtvaartuig uit de Eerste Wereldoorlog opnieuw ontworpen: de zeppelin. De moderne...
-- [Conceptdeal tussen VS en Iran roept nieuwe vraag op: wie heeft er gewonnen?](https://nos.nl/l/2616489)
-  > De VS begon de oorlog met de belofte om Iran tot vergaande concessies te dwingen. Maar nu er een conceptakkoord op tafel ligt, lijkt vooral Teheran...
-- [Honderden treinpassagiers zitten hele nacht vast in trein in Frankrijk](https://nos.nl/l/2616488)
-  > Door technische problemen op het Franse spoor hebben honderden passagiers van twee Italiaanse hogesnelheidstreinen de nacht door moeten brengen in de...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Naam ontslagen Slot valt meteen in Italië, Liverpool wil coach Bournemouth als opvolger](https://www.ad.nl/voetbal/naam-ontslagen-slot-valt-meteen-in-italie-liverpool-wil-coach-bournemouth-als-opvolger~a488141d/)
-  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
-- [Supporters botsen met politie in Parijs na winst van PSG: vuurwerk, barricades en zeker 130 arrestaties](https://www.ad.nl/voetbal/supporters-botsen-met-politie-in-parijs-na-winst-van-psg-vuurwerk-barricades-en-zeker-130-arrestaties~a9a5eecc/)
-  > Rondom de finale van de Champions League tussen Paris Saint-Germain (PSG) en Arsenal is het op meerdere plaatsen in Parijs tot schermutselingen...
-- [Suzan & Freek vereeuwigd op Walk of Fame bij Gelredome na 10 uitverkochte shows](https://www.ad.nl/show/suzan-en-freek-vereeuwigd-op-walk-of-fame-bij-gelredome-na-10-uitverkochte-shows~a61f3033/)
-  > Suzan & Freek hebben een zogenoemde eretegel gekregen bij het GelreDome in Arnhem. Dat maakte het duo zaterdag bekend in een bericht op sociale...
-- [PSG treedt in voetsporen van oppermachtig Ajax uit jaren 70, pijnlijke statistiek Arsenal: de CL-finale in cijfers](https://www.ad.nl/voetbal/psg-treedt-in-voetsporen-van-oppermachtig-ajax-uit-jaren-70-pijnlijke-statistiek-arsenal-de-cl-finale-in-cijfers~a2649c36e/)
-  > Paris Saint-Germain heeft voor de tweede keer op rij de Champions League gewonnen, door Arsenal na penalty’s te verslaan. Vier opvallende feitjes na...
-- [Daar zijn de spelers die Oranje WK-goud moeten bezorgen! Internationals (en reserves) arriveren in Zeist](https://www.ad.nl/voetbal/daar-zijn-de-spelers-die-oranje-wk-goud-moeten-bezorgen-internationals-en-reserves-arriveren-in-zeist~a381266b/)
-  > De voorbereiding op het WK is voor Oranje officieel van start. Zaterdagmiddag meldde de selectie zich op de KNVB Campus in Zeist, waar bondscoach...
+- [Flitscamera betrapt ‘snelheidsduivel’ in 30‑zone: vrouw met rollator raast met zogenaamd 42 km per uur langs](https://www.ad.nl/buitenland/flitscamera-betrapt-snelheidsduivel-in-30zone-vrouw-met-rollator-raast-met-zogenaamd-42-km-per-uur-langs~af06c2d3/)
+  > Het is een uniek aanzicht: geen auto, maar iets heel anders staat op de foto van een flitscamera. Een oudere vrouw met haar rollator. Volgens de...
+- [Voorbeschouwing etappe 21 Giro d’Italia | Kan Dylan Groenewegen in laatste rit naar Rome tóch nog naar een zege sprinten?](https://www.ad.nl/giro/voorbeschouwing-etappe-21-giro-ditalia-kan-dylan-groenewegen-in-laatste-rit-naar-rome-toch-nog-naar-een-zege-sprinten~a8a559f1/)
+  > De laatste etappe na drie weken Giro d’Italia is aangebroken. Traditiegetrouw sluiten de renners af in de Italiaanse hoofdstad Rome met een...
+- [‘Trump wil aanpassingen Iran-deal’, leger VS zegt schip te hebben aangevallen dat ‘op weg was naar Iraanse haven’](https://www.ad.nl/buitenland/trump-wil-aanpassingen-iran-deal-leger-vs-zegt-schip-te-hebben-aangevallen-dat-op-weg-was-naar-iraanse-haven~ac528ac3/)
+  > De Amerikaanse president Donald Trump heeft vrijdag geprobeerd om verschillende voorwaarden van een voorgestelde deal met Iran te wijzigen. Dat...
+- [Snelle verspreiding ebola in Congo is ‘zeer alarmerend’, waarschuwt Artsen Zonder Grenzen](https://www.ad.nl/buitenland/snelle-verspreiding-ebola-in-congo-is-zeer-alarmerend-waarschuwt-artsen-zonder-grenzen~a23c39f2/)
+  > De snelle verspreiding van het ebolavirus in de Democratische Republiek Congo (DRC) is ‘zeer alarmerend’. Dat meldt hulpverleningsorganisatie Artsen...
+- [KNMI waarschuwt voor onweer in Noord-Brabant en Limburg: windstoten, hagel en plaatselijk veel neerslag](https://www.ad.nl/binnenland/knmi-waarschuwt-voor-onweer-in-noord-brabant-en-limburg-windstoten-hagel-en-plaatselijk-veel-neerslag~aebb51b4a/)
+  > In Noord-Brabant en Limburg is sinds zaterdagavond code geel van kracht wegens stevige onweersbuien, meldt het KNMI. Daarbij kunnen windstoten en...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Een feest van jonge ondernemers, het bedrijfsleven en het corps](https://fd.nl/bedrijfsleven/1597907/een-feest-van-jonge-ondernemers-het-bedrijfsleven-en-het-corps)
+  > In het Ro Theater blijkt dat niet alleen de finalisten, maar ook de organisatie en het publiek branden van ambitie.
+- [Hoe de Duitse bestuurscultuur de aanpak van dividendfraude frustreerde](https://fd.nl/financiele-markten/1597187/hoe-de-duitse-bestuurscultuur-de-aanpak-van-dividendfraude-frustreerde)
+  > Hiërarchisch denken en gebrek aan samenwerking binnen de federatieve Bondsrepubliek hinderen de fraudebestrijding. ‘De sector oriënteert zich op de...
+- [Luisterverhaal: Hoe een vader en zoon buiten de schijnwerpers een software-imperium bouwden](https://fd.nl/samenleving/1598137/luisterverhaal-hoe-een-vader-en-zoon-buiten-de-schijnwerpers-een-software-imperium-bouwden)
+  > Deze week hoor je het verhaal van vader en zoon achter software-imperium Chipsoft. Hans en Gerrit Mulder bouwden op eigen kracht het machtigste...
 - [Hegseth prijst Aziatische bondgenoten en waarschuwt Europa in Singapore](https://fd.nl/politiek/1598262/hegseth-prijst-aziatische-bondgenoten-en-waarschuwt-europa-in-singapore)
   > Pete Hegseth prijst tijdens een conferentie in Singapore de defensieinvesteringen van Aziatische partners.
 - [‘Ontslagen BP-voorzitter Manifold lag in de clinch met oud-medebestuurder’](https://fd.nl/bedrijfsleven/1598261/ontslagen-bp-voorzitter-manifold-lag-in-de-clinch-met-medebestuurder)
   > De vorige week ontslagen bestuursvoorzitter van BP, Albert Manifold, zou volgens de Wall Street Journal een conflict hebben gehad met een...
-- [Dure kaartjes en ondoorzichtige verkoop houden Oranjefans niet weg van WK voetbal](https://fd.nl/samenleving/1598230/dure-kaartjes-en-ondoorzichtige-verkoop-houden-oranjefans-niet-weg-van-wk-voetbal)
-  > Twee Amerikaanse staten hebben de Fifa gedagvaard om de hoge prijzen voor WK-kaartjes. Maar de dure kaartjes drukken de Nederlandse pret niet: er...
-- [Rusland roept ambassadeur terug uit Armenië](https://fd.nl/politiek/1598259/rusland-roept-ambassadeur-terug-uit-armenie)
-  > Rusland haalt zijn ambassadeur terug uit Armenië nadat het land de banden met de EU heeft aangehaald.
-- [‘Europese Commissie gaat Bulgarije onder toezicht stellen vanwege begrotingstekort’](https://fd.nl/politiek/1598258/europese-commissie-gaat-bulgarije-onder-toezicht-stellen-vanwege-begrotingstekort)
-  > Bulgarije wordt naar verwachting aankomende week onder verscherpt toezicht gesteld van de Europese Commissie vanwege het opgelopen begrotingstekort.
 
 ### Meest gelezen
 
