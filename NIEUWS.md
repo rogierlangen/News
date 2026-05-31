@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-05-2026 om 11:01*
+*Laatst bijgewerkt: 31-05-2026 om 13:53*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Dode en 277 arrestaties in Parijs, burgemeester zag 'guerrilla-oorlog'](https://nos.nl/l/2616549)
-  > In het centrum van Parijs is gisteren een dode gevallen na de ongeregeldheden na de winst van Paris Saint-Germain in de finale van de Champions...
-- [Britse heeft 66 jaar lang bom in haar tuintje staan: 'Deed het goed op feestjes'](https://nos.nl/l/2616548)
-  > De Britse politie heeft een bom tot ontploffing gebracht die een 87-jarige inwoner van Norwich 66 jaar lang in haar tuintje had staan. "Gasten...
-- [Reddingswerkers houden hoop dat ze laatste goudzoekers diep in grot Laos gaan vinden](https://nos.nl/l/2616542)
-  > Het is flink gaan regenen in Laos. Terwijl er geen tijd te verliezen is, dreigt het water de zoekactie naar de twee laatste vermiste goudzoekers in...
-- [Recordbedrag opgehaald tijdens Nacht Tegen Seksueel Geweld: ruim 3 ton](https://nos.nl/l/2616540)
-  > De vierde editie van de Nacht Tegen Seksueel Geweld heeft een recordbedrag aan donaties binnengehaald, ruim 300.000 euro. De mars in Rotterdam wordt...
-- [Tientallen paarden op hol in Rome door vuurwerk van politieagent](https://nos.nl/l/2616539)
-  > In Rome zijn tientallen paarden op hol geslagen nadat vuurwerk was afgestoken door een politieagent. Meerdere ruiters raakten gewond. Een 22-jarige...
+- [Kabinet wil ontwikkelingshulp aan Sierra Leone stoppen vanwege Jos Leijdekkers](https://nos.nl/l/2616574)
+  > Omdat het maar niet lukt de veroordeelde drugscrimineel Jos Leijdekkers uitgeleverd te krijgen door Sierra Leone, gaat het kabinet proberen het...
+- [1500 Oranje-fans bij open training Nederlands Elftal: 'We worden wereldkampioen!'](https://nos.nl/l/2616572)
+  > Jongens op de nek van hun vader, meisjes hand in hand met hun moeder, bijna iedereen volledig in het oranje en muziek van André Hazes en Wolter Kroes...
+- [Jonge zwemmer Maarsseveense Plassen overleden](https://nos.nl/l/2616564)
+  > De jongen die gisteren uit het water werd gehaald bij de Maarsseveense Plassen is overleden, heeft de politie laten weten.
+        Gistermiddag rond...
+- [Colombia naar stembus na golf van geweld](https://nos.nl/l/2616563)
+  > Vandaag gaat Colombia naar de stembus om een nieuwe president te kiezen. De huidige linkse president Gustavo Petro is na een wettelijke termijn van...
+- [Vijlbrief zoekt in Tweede Kamer steun voor 'sociaal akkoord'](https://nos.nl/l/2616560)
+  > Minister Vijlbrief wil de komende dagen bij alle partijen in de Tweede Kamer langs om te praten over een soort sociaal akkoord voor de arbeidsmarkt...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Valdis (35) gaf alles op voor zijn droom, zelfs zijn relatie: ‘Deze winkel is alles voor mij’](https://www.ad.nl/binnenland/valdis-35-gaf-alles-op-voor-zijn-droom-zelfs-zijn-relatie-deze-winkel-is-alles-voor-mij~a1b1b169/)
-  > Valdis Patmalnieks (35) werkte in fabrieken in Engeland, sliep bij −20 graden in een auto in Finland en kwam met een tent naar Rotterdam. Nu heeft...
-- [Van Lionel Messi tot Wesley Sneijder: deze spelers kwamen tot de meeste WK-duels](https://www.ad.nl/wk-voetbal/van-lionel-messi-tot-wesley-sneijder-deze-spelers-kwamen-tot-de-meeste-wk-duels~a55b7c0b/)
-  > Over 11 dagen barst het WK in de Verenigde Staten, Mexico en Canada los. Welke spelers kwamen tot de meeste duels ooit tijdens de eindtoernooien?
-- [Woedende ploegbaas Lorena Wiebes komt in actie na Giro-uitsluiting: ‘Dit is echt buiten alle proporties’](https://www.ad.nl/wielrennen/woedende-ploegbaas-lorena-wiebes-komt-in-actie-na-giro-uitsluiting-dit-is-echt-buiten-alle-proporties~a52eb0ae/)
-  > SD Worx-Pro Time, de ploeg van Lorena Wiebes die uit de Giro werd gezet vanwege een te lichte fiets, laat het er niet bij zitten. Ploegbaas Erwin...
-- [Meerdere lopers onwel door hitte tijdens Marathon van Groningen](https://www.ad.nl/binnenland/meerdere-lopers-onwel-door-hitte-tijdens-marathon-van-groningen~af39922e/)
-  > De hoge temperaturen zorgen zondag voor problemen tijdens de Marathon van Groningen. Over het gehele parcours zijn meerdere deelnemers onwel geworden...
-- [Praat mee: heel goed dat één supermarkt niet aan de WK-prullaria meedoet](https://www.ad.nl/praat-mee/praat-mee-heel-goed-dat-een-supermarkt-niet-aan-de-wk-prullaria-meedoet~acdff654/)
-  > Over zo’n twee weken begint het WK en dat betekent dat we weer ‘overspoeld’ worden met oranje kleren, oranje gadgets en ander oranje spul. Ook...
+- [Jesper de Jong begonnen aan jacht op kwartfinaleplaats tegen nummer 3 van de wereld](https://www.ad.nl/tennis/jesper-de-jong-begonnen-aan-jacht-op-kwartfinaleplaats-tegen-nummer-3-van-de-wereld~aaf48dad/)
+  > Jesper de Jong is als ‘lucky loser’ de verrassing in de vierde ronde van Roland Garros. Op het gravel van Parijs neemt de Nederlander het op tegen...
+- [Elisa Balsamo, die roze trui overnam van Lorena Wiebes, wint tweede etappe Giro](https://www.ad.nl/giro/elisa-balsamo-die-roze-trui-overnam-van-lorena-wiebes-wint-tweede-etappe-giro~a7a8deab/)
+  > Elisa Balsamo heeft de tweede etappe van de Ronde van Italië voor vrouwen gewonnen. De 28-jarige Italiaanse klassementsleidster van Lidl-Trek was na...
+- [Schrijfster Karin Slaughter: ‘Het wordt opnieuw shitty om vrouw te zijn in de wereld’](https://www.ad.nl/mezza/schrijfster-karin-slaughter-het-wordt-opnieuw-shitty-om-vrouw-te-zijn-in-de-wereld~a7e88311/)
+  > Ze schrijft al jaren over geweld en misdaad, maar bestsellerauteur Karin Slaughter heeft het zelf liever over hoop, vertelt ze in ons weekendmagazine...
+- [Jan Paul van Hecke en Cody Gakpo delen vlak voor WK mooi babynieuws, Koopmeiners en Paes krijgen het jawoord](https://www.ad.nl/wk-voetbal/jan-paul-van-hecke-en-cody-gakpo-delen-vlak-voor-wk-mooi-babynieuws-koopmeiners-en-paes-krijgen-het-jawoord~ab988507/)
+  > Het WK staat voor de deur, maar er zijn ook de nodige internationals die nog even vakantie vieren of andere voetballers voor wie de zomerstop is...
+- [Stan Valckx over hitte bij WK 1994: ‘Drie bier bij de dopingcontrole om te kunnen plassen’](https://www.ad.nl/wk-voetbal/stan-valckx-over-hitte-bij-wk-1994-drie-bier-bij-de-dopingcontrole-om-te-kunnen-plassen~afe0bb8a/)
+  > Een groepje oud-internationals was zondagmiddag te gast bij de training van Oranje, op uitnodiging van de KNVB. Het regende prompt anekdotes over de...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [In een clubje met Hoessein en Bokassa](https://fd.nl/financiele-markten/1598227/in-een-clubje-met-hoessein-en-bokassa)
-  > Donald Trump wil zijn gezicht op briefgeld. Dan komt de Amerikaanse president in een uiterst duister gezelschap,, schrijft columnist Carel Grol.
-- [Eurocommissaris Albuquerque: ‘Het is onverantwoord en onvergeeflijk als we de bankenunie niet voltooien’](https://fd.nl/financiele-markten/1598131/eurocommissaris-albuquerque-het-is-onverantwoord-en-onvergeeflijk-als-we-de-bankenunie-niet-voltooien)
-  > Volgens de Eurocommissaris van financiële diensten is een volwaardige bankenunie nodig om een volgende crisis te lijf te gaan. Inclusief een Europees...
-- [Kirkland kiest voor eigen AI, kleinere kantoren kunnen niet volgen](https://fd.nl/financiele-markten/1598127/kirkland-kiest-voor-eigen-ai-kleinere-kantoren-kunnen-niet-volgen)
-  > Het Amerikaanse advocatenkantoor Kirkland & Ellis gaat honderden miljoenen dollars investeren in de bouw van een eigen AI-systeem. Het kantoor wil...
-- [SoftBank wil €75 mrd investeren in Franse AI-datacenters](https://fd.nl/bedrijfsleven/1598263/softbank-wil-75-mrd-investeren-in-franse-ai-datacenters)
-  > Het zou de grootste investering in AI-infrastructuur zijn die het bedrijf ooit in Europa deed.
-- [Een feest van jonge ondernemers, het bedrijfsleven en het corps](https://fd.nl/bedrijfsleven/1597907/een-feest-van-jonge-ondernemers-het-bedrijfsleven-en-het-corps)
-  > In het Ro Theater blijkt dat niet alleen de finalisten, maar ook de organisatie en het publiek branden van ambitie.
+- [Piloten krijgen extra loon na cao-akkoord met KLM](https://fd.nl/bedrijfsleven/1598139/piloten-krijgen-extra-loon-na-cao-akkoord-met-klm)
+  > Pilotenvakbond VNV dreigde met acties, maar sluit na ruim een jaar onderhandelen toch een nieuwe arbeidsovereenkomst met KLM. Er komt 4,75% loon bij.
+- [Met nauwelijks groei zijn coatingbedrijven op zoek naar schaalgrootte](https://fd.nl/bedrijfsleven/1598136/met-nauwelijks-groei-zijn-coatingbedrijven-op-zoek-naar-schaalgrootte)
+  > Fabrikanten van verven en coatings, waaronder AkzoNobel, zijn actief in een versnipperde markt en kunnen de prijzen moeilijk naar hun hand zetten.
+- [Washington richt vizier op Gaesa, de legertak die de Cubaanse economie beheerst](https://fd.nl/samenleving/1597830/washington-richt-vizier-op-gaesa-de-legertak-die-de-cubaanse-economie-beheerst)
+  > Terwijl Cuba lijdt onder tekorten, zou Gaesa miljardenwinsten opstrijken met inkomsten uit hotels en supermarkten en het afromen van overboekingen...
+- [Israël neemt strategisch gelegen kasteel in Libanon in en breidt ‘bufferzone’ steeds verder uit](https://fd.nl/politiek/1598146/israel-neemt-strategisch-gelegen-kasteel-in-libanon-in-en-breidt-bufferzone-steeds-verder-uit)
+  > Nooit eerder rukte het Israëlische leger zo ver op in Libanon. Volgens het Israëlische leger was dit noodzakelijk om te voorkomen dat Hezbollah...
+- [In een clubje met Saddam Hoessein en Bokassa](https://fd.nl/financiele-markten/1598227/in-een-clubje-met-hoessein-en-bokassa)
+  > Donald Trump wil zijn gezicht op briefgeld. Dan komt de Amerikaanse president in een uiterst duister gezelschap, schrijft columnist Carel Grol.
 
 ### Meest gelezen
 
