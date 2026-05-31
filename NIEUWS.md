@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-05-2026 om 21:04*
+*Laatst bijgewerkt: 31-05-2026 om 23:03*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Podcast In Het Wiel | ‘Je vergeet snel dat de Rockets niet zo lang geleden niets voorstelden’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-je-vergeet-snel-dat-de-rockets-niet-zo-lang-geleden-niets-voorstelden~a5ea502e/)
-  > De laatste podcast van deze Giro d’Italia. Over de langverwachte ritzege van Jonathan Milan, het maar door blijven boren van Filippo Ganna, de...
-- [Duitsland in aanloop naar WK eenvoudig langs Finland, Alfred Schreuder op bank bij Mannschaft](https://www.ad.nl/voetbal/duitsland-in-aanloop-naar-wk-eenvoudig-langs-finland-alfred-schreuder-op-bank-bij-mannschaft~a9228a19/)
-  > Duitsland heeft in aanloop naar het WK voetbal ruim gewonnen van Finland. Het werd 4-0 in Mainz. Alfred Schreuder zat op de bank bij Die Mannschaft....
-- [VN-Veiligheidsraad houdt spoedvergadering over Libanon](https://www.ad.nl/buitenland/vn-veiligheidsraad-houdt-spoedvergadering-over-libanon~ac528ac3/)
-  > De Amerikaanse president Donald Trump heeft vrijdag geprobeerd om verschillende voorwaarden van een voorgestelde deal met Iran te wijzigen. Dat...
-- [Meer bevoegdheden voor VAR en tijdens iedere helft drie minuten pauze: dit zijn de nieuwe spelregels voor het WK](https://www.ad.nl/wk-voetbal/meer-bevoegdheden-voor-var-en-tijdens-iedere-helft-drie-minuten-pauze-dit-zijn-de-nieuwe-spelregels-voor-het-wk~acb577e6/)
-  > De videoscheidsrechter (VAR) kan tijdens het WK voetbal ook ingrijpen als de scheidsrechter een verkeerde beslissing heeft genomen over een hoekschop...
-- [Rotterdamse poetsqueen verwelkomt dochter Chavéli Rosalía: ‘Wat een bevalling was dat’](https://www.ad.nl/show/rotterdamse-poetsqueen-verwelkomt-dochter-chaveli-rosalia-wat-een-bevalling-was-dat~a7e46827/)
-  > Charo Walop, bekend als de Rotterdamse Poetsqueen, is bevallen van dochter Chavéli Rosalía. Dat deelt de cleanfluencer zondagmiddag op haar sociale...
+- [Tientallen dode haaien aangespoeld aan Belgische kust, doodsoorzaak wordt onderzocht](https://www.ad.nl/buitenland/tientallen-dode-haaien-aangespoeld-aan-belgische-kust-doodsoorzaak-wordt-onderzocht~a1fb4caf/)
+  > De teller staat inmiddels al op 80 dode haaien die de afgelopen dagen dood aanspoelden ter hoogte van de Belgische kustplaats Koksijde. Onderzoekers...
+- [Voetbalpodcast | ‘Jordi Cruijff zou Arne Slot in ieder geval even moeten bellen’](https://www.ad.nl/voetbal/voetbalpodcast-jordi-cruijff-zou-arne-slot-in-ieder-geval-even-moeten-bellen~a42af5cd9/)
+  > Het ontslag van Arne Slot bij Liverpool. De lessen uit de Champions League-finale tussen Arsenal en Paris Saint-Germain in Boedapest. De eerste...
+- [LIVE Oorlog Oekraïne | Drone die insloeg in Roemenië was ‘onmiskenbaar’ van Russische makelij, zegt president](https://www.ad.nl/buitenland/live-oorlog-oekraine-drone-die-insloeg-in-roemenie-was-onmiskenbaar-van-russische-makelij-zegt-president~adfb97be/)
+  > De drone die in de nacht van donderdag op vrijdag insloeg op een appartementsgebouw in Roemenië, was ‘onmiskenbaar’ van Russische makelij. Dat zegt...
+- [Politie krijgt ‘meest heftige bedreigingen’ na incident zwangere vrouw, VN-rapporteur walgt van video](https://www.ad.nl/zeist/politie-krijgt-meest-heftige-bedreigingen-na-incident-zwangere-vrouw-vn-rapporteur-walgt-van-video~a080383e/)
+  > De politie heeft op sociale media meerdere bedreigende en beledigende reacties binnengekregen op haar bericht over een aanhouding in Zeist waarbij...
+- [Vrouw keert terug van vakantie met 55 (!) bagagestukken, Zwitserse douane gelooft ogen niet](https://www.ad.nl/buitenland/vrouw-keert-terug-van-vakantie-met-55-bagagestukken-zwitserse-douane-gelooft-ogen-niet~a341bc51/)
+  > Wie denkt dat hij met één extra tas al zwaar bepakt terugkomt van vakantie, kan even meekijken in Zwitserland. Daar meldde zich een reizigster bij de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Tientallen doden door explosie in Myanmar](https://fd.nl/samenleving/1598270/tientallen-doden-door-explosie-in-myanmar)
-  > Zware explosie heeft rampzalige gevolgen in Myanmar: tientallen doden, honderden gebouwen in puin en 74 gewonden.
-- [Overheid moet vaart maken en investeren in eigen digitale infrastructuur](https://fd.nl/opinie/1598260/overheid-moet-vaart-maken-en-investeren-in-eigen-digitale-infrastructuur)
-  > Als de overheid niet méér investeert in de techsector, wacht ons zó weer een nieuwe ‘Solvinity’.
-- [Portugese bestuurder ECB wil haast met bestrijding inflatie](https://fd.nl/financiele-markten/1598267/portugese-bestuurder-ecb-wil-haast-met-bestrijding-inflatie)
-  > ‘Liever eerder dan later.’ ECB-bestuurder verlangt snelle maatregelen tegen geldontwaarding.
-- [Verkiezingen Israël vormen ‘een strijd om de ziel van het land’](https://fd.nl/politiek/1598097/verkiezingen-israel-zijn-een-strijd-om-de-ziel-van-het-land)
-  > De verkiezingen in het land worden mogelijk vervroegd vanwege een politieke crisis over dienstplicht voor ultraorthodoxe joden. ‘Mensen zien het als...
-- [Nederland zoekt nieuwe Aziatische bondgenootschappen op defensietop](https://fd.nl/politiek/1598266/nederland-breidt-aziatische-bondgenootschappen-uit-op-defensietop-singapore)
-  > Ministers en militairen van 44 landen kwamen afgelopen weekend in Singapore bijeen voor een defensietop. De situatie in Zuidoost-Azië en de...
+- [Beleggers proberen nu al wanhopig aandelen SpaceX te kopen](https://fd.nl/financiele-markten/1597966/beleggers-proberen-nu-al-wanhopig-aandelen-spacex-te-kopen)
+  > De beursgang van SpaceX is pas over twee weken, maar beleggers proberen nu al in te stappen. Dat doen ze via dure, ingewikkelde of ongereguleerde...
+- [Passief beleggen in Musk](https://fd.nl/opinie/1598264/passief-beleggen-in-musk)
+  > Met een veelgeroemde passieve beleggingsstrategie kun je zomaar slachtoffer worden van de manipulaties van een Amerikaanse miljardair.
+- [Vechtscheiding tussen investeerders en de familie die hen rijk maakte](https://fd.nl/financiele-markten/1598179/vechtscheiding-tussen-investeerders-en-de-familie-die-hen-rijk-maakte)
+  > Een succesverhaal slaat om in een juridische strijd. Investeerders staan lijnrecht tegenover de familie die hen hielp een bloeiende...
+- [Universiteiten verspillen kostbaar rendement](https://fd.nl/opinie/1598177/universiteiten-verspillen-kostbaar-rendement)
+  > Een vrouw aanstellen als universitair hoofddocent leidt tot meer vrouwelijke wetenschappers aan een faculteit– blijkt uit onderzoek. Universiteiten...
+- [Belgische concurrent DigiD begint in Nederland](https://fd.nl/tech-en-innovatie/1598153/belgische-concurrent-digid-begint-in-nederland)
+  > De Belgen kregen eind vorig jaar het door de Nederlandse banken begonnen Idin in handen en vervangen de komende tijd die dienst door hun eigen...
 
 ### Meest gelezen
 
