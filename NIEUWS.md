@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-05-2026 om 17:11*
+*Laatst bijgewerkt: 31-05-2026 om 19:22*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Zuid-Sudanese modellen dromen van Europa, maar stranden bij de grens](https://nos.nl/l/2616617)
+  > Jongeren oefenen hun loopje, hun blik strak vooruit en hun houding zelfverzekerd. Ze zetten grote stappen door een oud en verlaten hotel in de...
 - [Meer dan 45 doden bij explosie in Myanmar, onder wie zes kinderen](https://nos.nl/l/2616603)
   > Bij een explosie in een gebouw in het noordoosten van Myanmar zijn meer dan 45 mensen omgekomen, onder wie zes kinderen. Dat melden lokale media. In...
-- [Warmte verdwijnt tijdelijk, onweer wel mogelijk](https://nos.nl/l/2616597)
-  > Na een hele warme week ontstonden er vrijdag en dit weekend veel onweersbuien. Daarbij was er in sommige gebieden behoorlijk wat (water)overlast en...
+- [Warmte verdwijnt komende week tijdelijk, onweer wel mogelijk](https://nos.nl/l/2616597)
+  > Na een heel warme week ontstonden er vrijdag en dit weekend veel onweersbuien. Daarbij was er in sommige gebieden behoorlijk wat (water)overlast en...
 - [Netanyahu na bezetting strategisch gelegen fort: 'Sterker dan ooit teruggekeerd'](https://nos.nl/l/2616595)
   > De Israëlische premier Netanyahu noemt de bezetting van een strategisch gelegen kasteel uit de kruisvaardertijd op een hoog gelegen plek in...
 - [Dode bij brand in Rotterdamse woonwijk](https://nos.nl/l/2616590)
   > In Rotterdam is iemand omgekomen bij een brand. Die woedde in een huis in Rotterdam-Feijenoord. Het lichaam werd gevonden nadat het sein brand...
-- [Gewonde bij vechtpartij in restaurant Werkendam, vernielingen aangericht](https://nos.nl/l/2616589)
-  > In een restaurant in Werkendam is vannacht een gewonde gevallen bij een grote vechtpartij. Ook zijn er in de horecagelegenheid vernielingen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zonder weerapps en -indexen kunnen we het hoofd ook koel houden](https://www.ad.nl/commentaar/zonder-weerapps-en-indexen-kunnen-we-het-hoofd-ook-koel-houden~a5a171e0/)
-  > Iets minder informatiehonger naar de staat van het weer zou ons collectief goed doen, schrijft Saskia van Westhreenen in dit commentaar.
-- [Jonathan Milan sprint naar winst in Rome, Jonas Vingegaard schrijft na Tour en Vuelta ook Giro d’Italia op zijn naam](https://www.ad.nl/giro/jonathan-milan-sprint-naar-winst-in-rome-jonas-vingegaard-schrijft-na-tour-en-vuelta-ook-giro-ditalia-op-zijn-naam~a8a559f1/)
-  > Jonathan Milan heeft de laatste etappe van de Giro d’Italia gewonnen. In de straten van Rome pakte hij zijn eerste zege in deze Giro. Ook de laatste...
-- [Oranje traint in het zwart, maar kleur van het shirt maakt geen verschil: ‘Een warm WK is een aanslag op je humeur’](https://www.ad.nl/voetbal/oranje-traint-in-het-zwart-maar-kleur-van-het-shirt-maakt-geen-verschil-een-warm-wk-is-een-aanslag-op-je-humeur~a363cf19/)
-  > Oranje maakt zich op voor een broeierig WK in het hart van Amerika. Logische gedachte: witte kleding houdt de spelers koel in de brandende zon. Maar...
-- [Amerika viert 250 jaar onafhankelijkheid, maar Trumps ‘spectaculairste feest ooit’ zorgt voor ruzie en afhakers](https://www.ad.nl/buitenland/amerika-viert-250-jaar-onafhankelijkheid-maar-trumps-spectaculairste-feest-ooit-zorgt-voor-ruzie-en-afhakers~a6d76d0c/)
-  > Amerika viert dit jaar zijn 250ste verjaardag. En president Trump wordt 80 jaar. Een uitgelezen kans om beide festiviteiten te combineren, is de...
-- [Konaté vertrekt transfervrij bij Liverpool, Iraola lijkt Slot op te gaan volgen op Anfield](https://www.ad.nl/voetbal/konate-vertrekt-transfervrij-bij-liverpool-iraola-lijkt-slot-op-te-gaan-volgen-op-anfield~a488141d/)
-  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
+- [Rotterdamse poetsqueen verwelkomt dochter Chavéli Rosalía: ‘Wat een bevalling was dat’](https://www.ad.nl/show/rotterdamse-poetsqueen-verwelkomt-dochter-chaveli-rosalia-wat-een-bevalling-was-dat~a7e46827/)
+  > Charo Walop, bekend als de Rotterdamse Poetsqueen, is bevallen van dochter Chavéli Rosalía. Dat deelt de cleanfluencer zondagmiddag op haar sociale...
+- [Duitse spits laat grote kansen onbenut tegen Finland, Alfred Schreuder op bank bij Mannschaft](https://www.ad.nl/voetbal/duitse-spits-laat-grote-kansen-onbenut-tegen-finland-alfred-schreuder-op-bank-bij-mannschaft~a9228a19/)
+  > In aanloop naar het WK zetten alle landen de puntjes op de i met oefenwedstrijden. Vanavond oefent Duitsland tegen Finland. Volg het hier live!
+- [Z-bloggers verliezen vertrouwen in Poetin en noemen hem ‘piemeltje’](https://www.ad.nl/buitenland/z-bloggers-verliezen-vertrouwen-in-poetin-en-noemen-hem-piemeltje~a1bc1058/)
+  > Het Oekraïense leger neemt het initiatief op het slagveld en de door Rusland bezette gebieden liggen zwaar onder vuur. Tienduizenden Russische...
+- [Wie afgestudeerd is, kan eigenlijk nog maar heel weinig](https://www.ad.nl/binnenland/wie-afgestudeerd-is-kan-eigenlijk-nog-maar-heel-weinig~a4984599/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Dua Lipa met Callum Turner getrouwd in Londen](https://www.ad.nl/show/dua-lipa-met-callum-turner-getrouwd-in-londen~acfa5457/)
+  > Zangeres Dua Lipa en acteur Callum Turner zijn zondag getrouwd in het centrum van Londen. Dat melden diverse media, waaronder People. Het huwelijk...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Overheid moet vaart maken en investeren in eigen digitale infrastructuur](https://fd.nl/opinie/1598260/overheid-moet-vaart-maken-en-investeren-in-eigen-digitale-infrastructuur)
+  > Als de overheid niet méér investeert in de techsector, wacht ons zó weer een nieuwe ‘Solvinity’.
+- [Portugese bestuurder ECB wil haast met bestrijding inflatie](https://fd.nl/financiele-markten/1598267/portugese-bestuurder-ecb-wil-haast-met-bestrijding-inflatie)
+  > ‘Liever eerder dan later.’ ECB-bestuurder verlangt snelle maatregelen tegen geldontwaarding.
 - [Verkiezingen Israël vormen ‘een strijd om de ziel van het land’](https://fd.nl/politiek/1598097/verkiezingen-israel-zijn-een-strijd-om-de-ziel-van-het-land)
   > De verkiezingen in het land worden mogelijk vervroegd vanwege een politieke crisis over dienstplicht voor ultraorthodoxe joden. ‘Mensen zien het als...
-- [Nederland breidt Aziatische bondgenootschappen uit op defensietop Singapore](https://fd.nl/politiek/1598266/nederland-breidt-aziatische-bondgenootschappen-uit-op-defensietop-singapore)
-  > Ministers en militairen van 44 landen kwamen afgelopen weekend in Singapore bijeen voor een defensietop. De regio staat onder hoogspanning. Kort voor...
+- [Nederland zoekt nieuwe Aziatische bondgenootschappen op defensietop](https://fd.nl/politiek/1598266/nederland-breidt-aziatische-bondgenootschappen-uit-op-defensietop-singapore)
+  > Ministers en militairen van 44 landen kwamen afgelopen weekend in Singapore bijeen voor een defensietop. De situatie in Zuidoost-Azië en de...
 - [Piloten krijgen extra loon na cao-akkoord met KLM](https://fd.nl/bedrijfsleven/1598139/piloten-krijgen-extra-loon-na-cao-akkoord-met-klm)
   > Pilotenvakbond VNV dreigde met acties, maar sluit na ruim een jaar onderhandelen toch een nieuwe arbeidsovereenkomst met KLM. Er komt 4,75% loon bij.
-- [Met nauwelijks groei zijn coatingbedrijven op zoek naar schaalgrootte](https://fd.nl/bedrijfsleven/1598136/met-nauwelijks-groei-zijn-coatingbedrijven-op-zoek-naar-schaalgrootte)
-  > Fabrikanten van verven en coatings, waaronder AkzoNobel, zijn actief in een versnipperde markt en kunnen de prijzen moeilijk naar hun hand zetten.
-- [Washington richt vizier op Gaesa, de legertak die de Cubaanse economie beheerst](https://fd.nl/samenleving/1597830/washington-richt-vizier-op-gaesa-de-legertak-die-de-cubaanse-economie-beheerst)
-  > Terwijl Cuba lijdt onder tekorten, zou Gaesa miljardenwinsten opstrijken met inkomsten uit hotels en supermarkten en het afromen van overboekingen...
 
 ### Meest gelezen
 
