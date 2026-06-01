@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-05-2026 om 23:03*
+*Laatst bijgewerkt: 01-06-2026 om 04:43*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Tweede ronde nodig bij presidentsverkiezingen Colombia, uitslag betwist](https://nos.nl/l/2616637)
+  > De verkiezingsdag in Colombia heeft niet direct een nieuwe president opgeleverd. Er komt een tweede en beslissende stemronde tussen de...
+- [Fatale aanrijding op snelweg bij grens met België, A4 deels afgesloten](https://nos.nl/l/2616636)
+  > Op de A4 nabij de grens met België is een dodelijk ongeluk gebeurd. De politie spreekt van een fatale aanrijding met een persoon, maar heeft geen...
+- [Reddingsoperatie in Italië voor gewonde speleoloog op 120 meter diepte](https://nos.nl/l/2616635)
+  > In de Noord-Italiaanse provincie Cuneo zit een gewonde man vast in een grot. Het gaat volgens Italiaanse media om een 20-jarige speleoloog die is...
 - [Politie krijgt bedreigingen op sociale media binnen na aanhouding Zeist](https://nos.nl/l/2616624)
   > De politie heeft op sociale media bedreigende en beledigende reacties gekregen bij een bericht over een aanhouding in een asielzoekerscentrum in...
 - [Zuid-Sudanese modellen dromen van Europa, maar stranden bij de grens](https://nos.nl/l/2616617)
   > Jongeren oefenen hun loopje, hun blik strak vooruit en hun houding zelfverzekerd. Ze zetten grote stappen door een oud en verlaten hotel in de...
-- [Meer dan 45 doden bij explosie in Myanmar, onder wie zes kinderen](https://nos.nl/l/2616603)
-  > Bij een explosie in een gebouw in het noordoosten van Myanmar zijn meer dan 45 mensen omgekomen, onder wie zes kinderen. Dat melden lokale media. In...
-- [Warmte verdwijnt komende week tijdelijk, onweer wel mogelijk](https://nos.nl/l/2616597)
-  > Na een heel warme week ontstonden er vrijdag en dit weekend veel onweersbuien. Daarbij was er in sommige gebieden behoorlijk wat (water)overlast en...
-- [Netanyahu na bezetting strategisch gelegen fort: 'Sterker dan ooit teruggekeerd'](https://nos.nl/l/2616595)
-  > De Israëlische premier Netanyahu noemt de bezetting van een strategisch gelegen kasteel uit de kruisvaardertijd op een hoog gelegen plek in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tientallen dode haaien aangespoeld aan Belgische kust, doodsoorzaak wordt onderzocht](https://www.ad.nl/buitenland/tientallen-dode-haaien-aangespoeld-aan-belgische-kust-doodsoorzaak-wordt-onderzocht~a1fb4caf/)
-  > De teller staat inmiddels al op 80 dode haaien die de afgelopen dagen dood aanspoelden ter hoogte van de Belgische kustplaats Koksijde. Onderzoekers...
-- [Voetbalpodcast | ‘Jordi Cruijff zou Arne Slot in ieder geval even moeten bellen’](https://www.ad.nl/voetbal/voetbalpodcast-jordi-cruijff-zou-arne-slot-in-ieder-geval-even-moeten-bellen~a42af5cd9/)
-  > Het ontslag van Arne Slot bij Liverpool. De lessen uit de Champions League-finale tussen Arsenal en Paris Saint-Germain in Boedapest. De eerste...
-- [LIVE Oorlog Oekraïne | Drone die insloeg in Roemenië was ‘onmiskenbaar’ van Russische makelij, zegt president](https://www.ad.nl/buitenland/live-oorlog-oekraine-drone-die-insloeg-in-roemenie-was-onmiskenbaar-van-russische-makelij-zegt-president~adfb97be/)
-  > De drone die in de nacht van donderdag op vrijdag insloeg op een appartementsgebouw in Roemenië, was ‘onmiskenbaar’ van Russische makelij. Dat zegt...
-- [Politie krijgt ‘meest heftige bedreigingen’ na incident zwangere vrouw, VN-rapporteur walgt van video](https://www.ad.nl/zeist/politie-krijgt-meest-heftige-bedreigingen-na-incident-zwangere-vrouw-vn-rapporteur-walgt-van-video~a080383e/)
-  > De politie heeft op sociale media meerdere bedreigende en beledigende reacties binnengekregen op haar bericht over een aanhouding in Zeist waarbij...
-- [Vrouw keert terug van vakantie met 55 (!) bagagestukken, Zwitserse douane gelooft ogen niet](https://www.ad.nl/buitenland/vrouw-keert-terug-van-vakantie-met-55-bagagestukken-zwitserse-douane-gelooft-ogen-niet~a341bc51/)
-  > Wie denkt dat hij met één extra tas al zwaar bepakt terugkomt van vakantie, kan even meekijken in Zwitserland. Daar meldde zich een reizigster bij de...
+- [Onderzoek wijst uit: dit zijn de grootste WK-ergernissen van Nederlanders](https://www.ad.nl/wk-voetbal/onderzoek-wijst-uit-dit-zijn-de-grootste-wk-ergernissen-van-nederlanders~afff21fe/)
+  > De meeste Nederlanders kijken reikhalzend uit naar het WK voetbal dat over een kleine twee weken begint. Maar eindtoernooien zijn voor veel mensen...
+- [‘Ik kreeg 300 brieven per dag’, zo ziet de ‘knapste crimineel ter wereld’ er nu uit](https://www.ad.nl/show/ik-kreeg-300-brieven-per-dag-zo-ziet-de-knapste-crimineel-ter-wereld-er-nu-uit~a6e310f8/)
+  > Helderblauwe ogen, volle lippen en opvallende jukbeenderen. Toen Jeremy Meeks in 2014 werd gearresteerd, ging zijn politiefoto de hele wereld over....
+- [VS voert opnieuw aanvallen uit op Iran na neerhalen drone](https://www.ad.nl/buitenland/vs-voert-opnieuw-aanvallen-uit-op-iran-na-neerhalen-drone~ac528ac3/)
+  > Het Amerikaanse leger heeft zaterdag en zondag aanvallen uitgevoerd op Iraanse doelen. Radars en commandocentra in de buurt van de Straat van Hormuz...
+- [TMZ: Gearchiveerd Instagramaccount van Barack Obama gehackt](https://www.ad.nl/tech/tmz-gearchiveerd-instagramaccount-van-barack-obama-gehackt~a66ad0b5/)
+  > Het Instagramaccount dat door voormalig president van de Verenigde Staten Barack Obama werd gebruikt in de periode dat hij in het Witte Huis zat, is...
+- [Complexe reddingsoperatie voor Italiaanse speleoloog die op 120 meter diepte vastzit](https://www.ad.nl/buitenland/complexe-reddingsoperatie-voor-italiaanse-speleoloog-die-op-120-meter-diepte-vastzit~add0acbf/)
+  > In de Noord-Italiaanse provincie Cuneon is een complexe reddingsoperatie gaande voor een Italiaanse speleoloog. Het 20-jarige slachtoffer is...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Spijt van je nieuwe baan](https://fd.nl/samenleving/1598133/spijt-van-je-nieuwe-baan)
+  > Je hebt een nieuwe baan, maar ontdekt al snel dat dit een verkeerde beslissing was. Wat te doen? En is zo'n mismatch te voorkomen?
+- [De sollicitatiebrief is dood, vermoord door AI](https://fd.nl/economie/1598226/de-sollicitatiebrief-is-dood-vermoord-door-ai)
+  > Vandaag in Dagkoers: Elon Musks SpaceX maakt beleggers gek, de sollicitatiebrief is vermoord door ChatGPT & de analoge ‘domme’ meter zorgt met...
 - [Beleggers proberen nu al wanhopig aandelen SpaceX te kopen](https://fd.nl/financiele-markten/1597966/beleggers-proberen-nu-al-wanhopig-aandelen-spacex-te-kopen)
   > De beursgang van SpaceX is pas over twee weken, maar beleggers proberen nu al in te stappen. Dat doen ze via dure, ingewikkelde of ongereguleerde...
 - [Passief beleggen in Musk](https://fd.nl/opinie/1598264/passief-beleggen-in-musk)
   > Met een veelgeroemde passieve beleggingsstrategie kun je zomaar slachtoffer worden van de manipulaties van een Amerikaanse miljardair.
 - [Vechtscheiding tussen investeerders en de familie die hen rijk maakte](https://fd.nl/financiele-markten/1598179/vechtscheiding-tussen-investeerders-en-de-familie-die-hen-rijk-maakte)
   > Een succesverhaal slaat om in een juridische strijd. Investeerders staan lijnrecht tegenover de familie die hen hielp een bloeiende...
-- [Universiteiten verspillen kostbaar rendement](https://fd.nl/opinie/1598177/universiteiten-verspillen-kostbaar-rendement)
-  > Een vrouw aanstellen als universitair hoofddocent leidt tot meer vrouwelijke wetenschappers aan een faculteit– blijkt uit onderzoek. Universiteiten...
-- [Belgische concurrent DigiD begint in Nederland](https://fd.nl/tech-en-innovatie/1598153/belgische-concurrent-digid-begint-in-nederland)
-  > De Belgen kregen eind vorig jaar het door de Nederlandse banken begonnen Idin in handen en vervangen de komende tijd die dienst door hun eigen...
 
 ### Meest gelezen
 
