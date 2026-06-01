@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-06-2026 om 16:40*
+*Laatst bijgewerkt: 01-06-2026 om 20:57*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Reddingsteam zoekt andere route naar laatste vermiste goudzoekers diep in grot Laos](https://nos.nl/l/2616728)
-  > Reddingswerkers zoeken naar een alternatieve route om de laatste twee vermiste goudzoekers te bevrijden uit een grot in Laos. Ook werd vandaag...
-- [Netanyahu kondigt aanvallen op Beiroet aan, 'Iran staakt gesprekken met VS'](https://nos.nl/l/2616723)
-  > De Israëlische premier Netanyahu heeft het leger opgedragen om zuidelijke buitenwijken van Beiroet onder vuur te nemen. Het leger heeft inwoners in...
-- [2e Exloërmond komt overvol Ter Apel te hulp en vangt 150 asielzoekers op](https://nos.nl/l/2616722)
-  > 150 asielzoekers die niet in Ter Apel terechtkunnen, worden tijdelijk opgevangen in het Drentse dorp 2e Exloërmond. Dat heeft de gemeente...
-- [Vermiste Nederlandse vrouw (41) dood gevonden in meer in Colombia](https://nos.nl/l/2616720)
-  > Een sinds vorige week vermiste Nederlandse toeriste is dood gevonden in Colombia. Het lichaam van de 41-jarige vrouw uit Schagen werd gisteren...
-- [Nederland stuurt voorlopig geen Libanezen meer terug](https://nos.nl/l/2616718)
-  > Nederland stopt per direct met terugsturen van Libanese asielzoekers. Dat heeft minister Van den Brink van Asiel besloten vanwege de "fragiele...
+- [Cryptobedrijf Knaken uit de lucht, klanten kunnen niet bij munten](https://nos.nl/l/2616764)
+  > De website en de app van het Rotterdamse cryptobedrijf Knaken zijn niet bereikbaar. Klanten kunnen daardoor niet bij de cryptomunten die zij hebben...
+- [Twee valse WK-bekers en duizenden namaakshirts gevonden in aanloop naar WK](https://nos.nl/l/2616761)
+  > De politie in de Canadese stad Toronto heeft kort voor het begin van het WK voetbal voor miljoenen dollars aan nagemaakte voetbalartikelen in beslag...
+- [Dode en twee gewonden bij steekpartij Heerhugowaard](https://nos.nl/l/2616760)
+  > Bij een steekpartij bij een bedrijfspand in Heerhugowaard is iemand overleden. Twee anderen raakten gewond. Dat meldt de politie.
+        De gewonden...
+- [Grote brandstoftekorten op de Krim na aanhoudende Oekraïense aanvallen op olie-installaties](https://nos.nl/l/2616753)
+  > "Ik heb al twee dagen niet kunnen tanken," verzucht een vrouw vanuit haar auto voor een benzinestation op de Krim tegenover persbureau Reuters....
+- [Agent over geweld tegen vrouw Zeist: 'Had anders gehandeld als ik wist dat ze zwanger was'](https://nos.nl/l/2616749)
+  > De agent die betrokken was bij het geweld tijdens een aanhouding in een asielzoekerscentrum in Zeist zegt dat hij niet wist dat de vrouw bij wie hij...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Er is dit WK maar één weg naar succes](https://www.ad.nl/voetbal/er-is-dit-wk-maar-een-weg-naar-succes~a1b2a331/)
-  > Columnist Hugo Borst hoopt dat het Nederlands elftal op het WK geen strafschoppenserie hoeft te spelen. ‘Seedorf, Stam, Frank de Boer, Virgil van...
-- [Condoombelasting of korting op een Lada: hoe krijg je meer baby’s?](https://www.ad.nl/binnenland/condoombelasting-of-korting-op-een-lada-hoe-krijg-je-meer-babys~ad6397fa/)
-  > Gratis je eitjes invriezen en extra belasting op condooms: wereldwijd trekken landen veel uit de kast om de dalende geboortecijfers te keren. Zelfs...
-- [Drie op een rij voor Elisa Balsamo in Giro: rozetruidraagster blijft Nederlandse voor in massasprint](https://www.ad.nl/wielrennen/drie-op-een-rij-voor-elisa-balsamo-in-giro-rozetruidraagster-blijft-nederlandse-voor-in-massasprint~a4c527ca/)
-  > Elisa Balsamo (28) heeft haar derde ritzege geboekt in deze Giro d’Italia Women. De Italiaanse van Lidl-Trek was na 156 kilometer tussen Bibione en...
-- [2e Exloërmond vangt Ter Apel-asielzoekers drie nachten op](https://www.ad.nl/binnenland/2e-exloermond-vangt-ter-apel-asielzoekers-drie-nachten-op~a9fdc703/)
-  > Nog altijd is er geen structurele opvangplek gevonden voor asielzoekers die niet bij het azc in Ter Apel terechtkunnen. Wel kunnen zij de komende...
-- [Kim-Lian van der Meij, Anouk Maas en Cystine Carreon delen musicalrol in 101 Dalmatiërs](https://www.ad.nl/show/kim-lian-van-der-meij-anouk-maas-en-cystine-carreon-delen-musicalrol-in-101-dalmatiers~a26ff3f8/)
-  > Kim-Lian van der Meij, Anouk Maas en Cystine Carreon spelen alle drie de rol van Cruella de Vil in de musical 101 Dalmatiërs. De actrices gaan de rol...
+- [Tunesië, tegenstander van Oranje op het WK, verliest met Omar Rekik van tiental Oostenrijk](https://www.ad.nl/wk-voetbal/tunesie-tegenstander-van-oranje-op-het-wk-verliest-met-omar-rekik-van-tiental-oostenrijk~a5f84fda/)
+  > Oostenrijk boekte maandagavond een 1-0 zege op Tunesië. Het Noord-Afrikaanse land kon niet profiteren van de rode kaart die hun tegenstander op slag...
+- [Wijnaldum vertrekt na drie jaar bij Al-Ettifaq, Depay wil aflopend contract bij Corinthians verlengen](https://www.ad.nl/voetbal/wijnaldum-vertrekt-na-drie-jaar-bij-al-ettifaq-depay-wil-aflopend-contract-bij-corinthians-verlengen~a488141d/)
+  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
+- [PSG-spelers tonen CL-trofee, Sabalenka naar kwartfinale tegen Russin Sjnaider](https://www.ad.nl/tennis/psg-spelers-tonen-cl-trofee-sabalenka-naar-kwartfinale-tegen-russin-sjnaider~a924961f/)
+  > De tweede Grand Slam van het jaar is in volle gang. Tot zondag 7 juni strijden de beste tennissers ter wereld op het gravel van Parijs om de titel in...
+- [McDonald’s topman wil meer kwaliteit bieden: kip die niet voelt als fastfood](https://www.ad.nl/economie/mcdonalds-topman-wil-meer-kwaliteit-bieden-kip-die-niet-voelt-als-fastfood~ae2da38c/)
+  > McDonald’s wil meer kwaliteit gaan bieden. De fastfoodketen kondigde maandag een vernieuwde strategie aan, waarbij het bedrijf onder meer wil...
+- [Trump: Israël stuurt geen troepen naar Beiroet en Hezbollah stopt aanvallen](https://www.ad.nl/buitenland/trump-israel-stuurt-geen-troepen-naar-beiroet-en-hezbollah-stopt-aanvallen~ac528ac3/)
+  > Donald Trump heeft gebeld met Netanyahu en met afgevaardigden van Hezbollah, schrijft hij vanavond op zijn socialemediaplatform Truth Social. Hij...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Cryptobroker Knaken plots op zwart, klanten kunnen niet bij hun crypto’s](https://fd.nl/financiele-markten/1598310/cryptobroker-knaken-plots-op-zwart-klanten-kunnen-niet-bij-hun-cryptos)
-  > Knaken heeft alle activiteiten gestaakt omdat het bedrijf niet voldoet aan de nieuwe Europese cryptoregels. Het bedrijf vermeldt niet of klanten al...
-- [Iran staakt onderhandelingen met VS na Israëlische aanvallen op Libanon](https://fd.nl/politiek/1598395/iran-staakt-onderhandelingen-met-vs-na-israelische-aanvallen-op-libanon)
-  > ‘Een schending op één front is een schending van het staakt-het-vuren op alle fronten’, schrijft de Iraanse minister van buitenlandse zaken Abbas...
-- [Opnieuw vertrekt een topman bij BP](https://fd.nl/bedrijfsleven/1598320/opnieuw-vertrekt-een-topman-bij-bp)
-  > William Lin zal tot het derde kwartaal dit jaar aanblijven.
-- [Greenpeace eist in hoger beroep ambitieuzere stikstofdoelen](https://fd.nl/samenleving/1598318/greenpeace-eist-in-hoger-beroep-ambitieuzere-stikstofdoelen)
-  > Vorig jaar oordeelde de rechter dat de overheid meer moest doen om de eigen stikstofdoelen te halen. Daartegen ging de staat in hoger beroep.
-- [OCI sluit met Tsjechische Agrofert verkoopdeal voor zijn laatste fabriek](https://fd.nl/bedrijfsleven/1598299/oci-sluit-met-tsjechische-agrofert-verkoopdeal-voor-zijn-laatste-fabriek)
-  > Het concern stoot zijn fabriek in Geleen in twee fasen af. Beleggersvereniging VEB, die al langer overhoop ligt met het bestuur van OCI, uit scherpe...
+- [Brussel scherpt chipstrategie aan in concurrentie met VS en Azië](https://fd.nl/politiek/1598398/brussel-scherpt-chipstrategie-aan-in-concurrentie-met-vs-en-azie)
+  > Maatregelen om de vraag naar chips te vergroten, moeten de Europese chipsector versterken. De Nexperia-crisis en Amerikaanse en Aziatische tonen...
+- [Onderonsje tussen Trump en Netanyahu zorgt voor stijgende koersen](https://fd.nl/bedrijfsleven/1598402/onderonsje-tussen-trump-en-netanyahu-zorgt-voor-stijgende-koersen)
+  > Een ‘zeer productief’ telefoongesprek waarin de Israëlische premier beloofde de aanvallen op Libanon te stoppen, bleek genoeg voor groene koersborden...
+- [Anthropic dient aanvraag voor beursgang in](https://fd.nl/bedrijfsleven/1598400/anthropic-dient-aanvraag-voor-beursgang-in)
+  > Daarmee probeert het Amerikaanse AI-bedrijf aartsrivaal OpenAI af te troeven. Ook dat bedrijf is bezig met het voorbereiden van een IPO.
+- [AI kan bij sollicitaties veel toevoegen, maar vraagt om nieuwe spelregels](https://fd.nl/opinie/1598316/ai-kan-bij-sollicitaties-veel-toevoegen-maar-vraagt-om-nieuwe-spelregels)
+  > De inzet van AI is in veel opzichten nog een experiment. Extra spelregels zijn daarom geen overbodige barrière, maar een voorzorgsbeginsel dat prima...
+- [Na lange formatie lijkt Denemarken dichtbij een nieuwe regering](https://fd.nl/samenleving/1598275/trage-deense-formatie-hindert-positie-rond-groenland)
+  > De formatie duurde voor Deense begrippen lang. Doordat alle beleidsontwikkeling stil lag t werden ook geen vorderingen gemaakt in de gesprekkken over...
 
 ### Meest gelezen
 
