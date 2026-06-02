@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-06-2026 om 04:22*
+*Laatst bijgewerkt: 02-06-2026 om 09:11*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Iets meer hitteplannen, maar veel gemeenten nog niet voorbereid op extreme hitte](https://nos.nl/l/2616774)
-  > In een jaar tijd hebben slechts enkele tientallen gemeenten gewerkt aan een lokaal hitteplan. Dat blijkt uit een inventarisatie van Klimaatverbond...
-- [Grote verschillen bij wachttijden, deze ziekenhuizen springen eruit](https://nos.nl/l/2616773)
-  > Dat het lang kan duren voordat je een afspraak hebt op een polikliniek maag-, lever- en darmziekten is niet nieuw. Cijfers van de Nederlandse...
-- [Russische luchtaanvallen op Oekraïense steden, meerdere doden](https://nos.nl/l/2616772)
-  > Bij Russische luchtaanvallen op Oekraïne zijn vannacht vijf mensen gedood. Meerdere steden werden bestookt met raketten en drones. In industriestad...
-- ['Trump noemde Netanhayu in telefoongesprek knettergek'](https://nos.nl/l/2616771)
-  > De Amerikaanse president Trump is tijdens een telefoongesprek met de Israëlische premier Netanyahu flink tekeergegaan. Dat meldt de Amerikaanse...
-- [Denemarken heeft na 69 dagen een nieuwe coalitie, Frederiksen blijft premier](https://nos.nl/l/2616770)
-  > In Denemarken is premier Mette Frederiksen ruim twee maanden na de verkiezingen erin geslaagd om een centrumlinkse coalitie te vormen. Frederiksen...
+- [Verongelukte chauffeur Belgische schoolbus stond bekend om roekeloosheid](https://nos.nl/l/2616801)
+  > "Bij deze wil ik graag een melding maken over het gedrag van de chauffeur. Kinderen klagen over zijn agressieve rijgedrag, sommigen tot misselijk...
+- [Blijdorp doodt ruziënde stokstaartjes om rust in groep te brengen](https://nos.nl/l/2616795)
+  > Na aanhoudende spanningen tussen meerdere mannetjes in de groep stokstaartjes van Diergaarde Blijdorp in Rotterdam heeft de dierentuin een aantal...
+- [Racistische leuzen bij brand in restaurant Wijdenes: 'Oprotten'](https://nos.nl/l/2616792)
+  > Bij een restaurant in Wijdenes heeft vannacht een zeer grote brand gewoed. Op de muren van het restaurant zijn op meerdere plekken teksten...
+- [Meteorologen waarschuwen: El Niño komt eraan, maak je op voor extreem weer](https://nos.nl/l/2616791)
+  > Het lijkt er sterk op dat de wereld vanaf dit najaar te maken krijgt met een periode met grotere risico's op weersextremen, veranderende...
+- [Na daling nu weer meer mensen naar voedselbank](https://nos.nl/l/2616784)
+  > Het aantal gezinnen dat voor eten afhankelijk is van de voedselbank neemt weer toe. Dat blijkt uit het jaarverslag van de organisatie. Een paar jaar...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Goedkope Chinese auto blijkt dure keuze: waarde daalt twee keer zo snel als bij concurrenten](https://www.ad.nl/auto/goedkope-chinese-auto-blijkt-dure-keuze-waarde-daalt-twee-keer-zo-snel-als-bij-concurrenten~a067631f/)
-  > Achter de snelle opmars van Chinese automerken in Europa schuilt een belangrijk nadeel. Uit nieuw onderzoek blijkt dat Chinese elektrische auto’s en...
-- [Deze Nederlander (31) explodeert zijn vermogen tot 225 miljoen euro, en dat in één jaar tijd](https://www.ad.nl/binnenland/deze-nederlander-31-explodeert-zijn-vermogen-tot-225-miljoen-euro-en-dat-in-een-jaar-tijd~afd17510/)
-  > LUISTER OOK naar onze dagelijkse nieuwspodcast Praat mee met AD
-- [Hoe een Londense tiener verstrikt raakte in een schijnwereld van extreme luxe en Russisch geld](https://www.ad.nl/buitenland/hoe-een-londense-tiener-verstrikt-raakte-in-een-schijnwereld-van-extreme-luxe-en-russisch-geld~a417a139/)
-  > In zijn nieuwste boek beschrijft Patrick Radden Keefe hoe een 19-jarige jongen verstrikt raakt in de onder- en bovenwereld van Londen. En niet alleen...
-- [Gemeente vraagt ontslag aan voor ambtenaren vanwege grootschalige parkeerfraude](https://www.ad.nl/binnenland/gemeente-vraagt-ontslag-aan-voor-ambtenaren-vanwege-grootschalige-parkeerfraude~aa54d3ad/)
-  > De gemeente Roermond heeft een ontslagprocedure opgestart voor vier ambtenaren die betrokken zijn bij grootschalige parkeerfraude. L1 meldt dat er...
-- [Doden en tientallen gewonden bij zware aanvallen op Oekraïne](https://www.ad.nl/buitenland/doden-en-tientallen-gewonden-bij-zware-aanvallen-op-oekraine~ae1f18c7/)
-  > Bij zware aanvallen op verschillende delen van Oekraïne zijn in de nacht van maandag op dinsdag zeker negen mensen om het leven gekomen. Tientallen...
+- [Ajax heeft nieuwe trainer binnen: Spanjaard Michel gaat voor twee jaar tekenen](https://www.ad.nl/voetbal/ajax-heeft-nieuwe-trainer-binnen-spanjaard-michel-gaat-voor-twee-jaar-tekenen~a6dab1dd/)
+  > Miguel Angel Sanchez Muñoz, beter bekend als Michel, wordt definitief de nieuwe trainer van Ajax. De 50-jarige Spanjaard gaat deze week voor twee...
+- [Esmah Lahlah, nummer twee van GroenLinks-PvdA, verlaat Kamer en wordt wethouder in Amsterdam](https://www.ad.nl/politiek/esmah-lahlah-nummer-twee-van-groenlinks-pvda-verlaat-kamer-en-wordt-wethouder-in-amsterdam~a609ff2a/)
+  > Tweede Kamerlid Esmah Lahlah verruilt politiek Den Haag voor politiek Amsterdam. Op het verzoek van de Amsterdamse partijleider Zita Pels om te...
+- [Richard Groenendijk voegt extra seizoen toe aan theatershow](https://www.ad.nl/show/richard-groenendijk-voegt-extra-seizoen-toe-aan-theatershow~a6d33bcc/)
+  > Richard Groenendijk gaat een extra seizoen toevoegen aan zijn aankomende theatertournee. Dat kondigde de cabaretier dinsdag aan op sociale media. De...
+- [Mia en Jasper willen dat hun dochter zich niet buitengesloten voelt: rekening van 1400 euro in vijf maanden](https://www.ad.nl/geld/mia-en-jasper-willen-dat-hun-dochter-zich-niet-buitengesloten-voelt-rekening-van-1400-euro-in-vijf-maanden~a1b23556/)
+  > Mia (43) en Jasper (45) werken al een jaar hard aan meer overzicht en rust in hun financiën. Dat ging goed, tot hun dochter van 12 jaar naar de...
+- [300 spuitbussen, 950 liter verf en bijna geen slaap: Rosalie knalt in 2 weken gigantische WK-muur uit de grond](https://www.ad.nl/binnenland/300-spuitbussen-950-liter-verf-en-bijna-geen-slaap-rosalie-knalt-in-2-weken-gigantische-wk-muur-uit-de-grond~a45b9473/)
+  > Rosalie de Graaf is net terug uit Amerika. De kunstenaar uit Doesburg heeft in Dallas een gigantische muurschildering van 3375 vierkante meter...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Wat is er te doen aan de hoge uitval op het hbo?](https://fd.nl/samenleving/1598382/wat-is-er-te-doen-aan-de-hoge-uitval-op-het-hbo)
-  > Hbo-studenten worden onvoldoende als volwassenen beschouwd, vindt lector en hoogleraar Marinka Kuijpers. Volgens emeritus hoogleraar neuropsychologie...
-- [Zoveel meer krijgen Chinese bedrijven van de staat](https://fd.nl/economie/1598319/zoveel-meer-krijgen-chinese-bedrijven-van-de-staat)
-  > Vandaag in Dagkoers: Chinese bedrijven krijgen wel zes keer zoveel steun van de staat signaleert denktank Oeso, advocaten Geert-Jan en Carry Knoops...
-- [Vuurlinie schuift de Navo binnen](https://fd.nl/opinie/1598297/vuurlinie-schuift-de-navo-binnen)
-  > De inslag van een Russische drone in de Roemeense grensstad Galați was meer dan een incident. Het voorval legt bloot hoe kwetsbaar Europa zich voelt...
-- [Puberbank Buut breekt in op contactloos betaalsysteem Apple](https://fd.nl/financiele-markten/1598389/puberbank-buut-breekt-in-op-contactloos-betaalsysteem-apple)
-  > ABN Amro-jongerenbank Buut benut Europese regels om het betaalsysteem van Apple open te breken. De bank lanceert zijn eigen versie van Apple Pay.
-- [Vurige wapenstilstanden](https://fd.nl/opinie/1598321/vurige-wapenstilstanden)
-  > Trump claimt inmiddels met zijn snelle onderhandelingsstijl al zo’n tien oorlogen te hebben beëindigd. Alleen blijkt het bij nadere inspectie vooral...
+- [Maak fiscale waardering van bedrijven voorspelbaarder](https://fd.nl/opinie/1598001/maak-fiscale-waardering-bedrijven-voorspelbaar)
+  > De fiscale behandeling van niet-beursgenoteerde aandelen leidt vaak tot naheffingen, wat voor onzekerheid zorgt bij die bedrijven en innovatie remt....
+- [Driekwart in bitcoin!](https://fd.nl/financiele-markten/1598326/driekwart-in-bitcoin)
+  > Op de beurs verhandelbare indextrackers? Een héél slecht idee, vond John Bogle, de uitvinder van het indexfonds. Daarin kreeg hij gelijk, schrijft...
+- [Kartelboete voor aannemers voor vervalsen gemeentelijke aanbesteding](https://fd.nl/bedrijfsleven/1598455/kartelboete-voor-aannemers-voor-vervalsen-gemeentelijke-aanbesteding)
+  > Van Gelder meldde de overtreding bij de Autoriteit Consument & Markt.
+- [‘VS eisen dat Oman diplomatieke banden met Iran verbreekt’](https://fd.nl/politiek/1598331/vs-eisen-dat-oman-diplomatieke-banden-met-iran-verbreekt)
+  > De regering-Trump is boos op de Golfstaat, die zou overwegen om samen met Iran tol te heffen op schepen die door de Straat van Hormuz varen. Oman...
+- [Vriendelijk factureren](https://fd.nl/samenleving/1598302/vriendelijk-factureren)
+  > Bouw je een betere verstandhouding op met cliënten door ze korting te geven, vraagt Femmetje de Wind zich af. Of creëer je alleen een precedent?
 
 ### Meest gelezen
 
