@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-06-2026 om 18:42*
+*Laatst bijgewerkt: 02-06-2026 om 21:51*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Milieudefensie wist al jarenlang van omstreden verleden Donald Pols](https://nos.nl/l/2616889)
-  > Milieudefensie wist al in 2021 dat toenmalig directeur Donald Pols in zijn studententijd in Zuid-Afrika voorman is geweest van de extreemrechtse...
-- [Britten geschokt door bodycambeelden politie van geboeide, stervende student (18)](https://nos.nl/l/2616887)
-  > In het Verenigd Koninkrijk wordt geschokt gereageerd op vrijgegeven bodycambeelden waarop te zien is hoe een 18-jarige student met handboeien om ligt...
-- [Oudere broer Bolle Jos uitgeleverd door Turkije, vervolgd voor witwassen drugsgeld](https://nos.nl/l/2616885)
-  > Harry L., de oudere broer van crimineel Bolle Jos, is door Turkije uitgeleverd aan Nederland. L. wordt vervolgd voor het witwassen van grote sommen...
-- [Aan de grens met Congo probeert Uganda van alles om ebola buiten de deur te houden](https://nos.nl/l/2616879)
-  > Soldaten staan op een brug die de grens vormt tussen Uganda en de Democratische Republiek Congo. Ze hebben geweren en een fles met desinfectiemiddel...
-- [Avondvierdaagse op meerdere plekken afgelast vanwege slecht weer](https://nos.nl/l/2616870)
-  > Op verschillende plekken is de avondvierdaagse voor vanavond afgelast vanwege slechte weersverwachtingen. Met name de verwachte onweersbuien maken...
+- ['Onervaren' Bill Pulte door Trump aangewezen als waarnemend hoofd inlichtingendiensten](https://nos.nl/l/2616905)
+  > President Trump heeft Bill Pulte benoemd tot waarnemend hoofd van de Amerikaanse inlichtingendiensten. Dat maakte hij bekend op zijn eigen...
+- [Explosie in appartement in Amersfoort](https://nos.nl/l/2616904)
+  > In Amersfoort heeft vanavond een explosie plaatsgevonden in een appartement aan de Everard Meysterweg.
+        Hulpdiensten hebben iemand geëvacueerd...
+- [Ook na mededeling van gestopt cryptobedrijf Knaken nog veel onduidelijk voor klanten](https://nos.nl/l/2616903)
+  > Een week geleden kon Paul Scheermeijer uit Zwolle nog inloggen en heeft hij zelfs nog crypto gekocht via cryptoplatform Knaken. Maar inloggen lukte...
+- [Na dodelijk ongeluk Buggenhout rijdt weer schoolbus van zelfde bedrijf over gesloten overweg](https://nos.nl/l/2616900)
+  > Enkele dagen na het dodelijke ongeval met een schoolbusje in het Belgische Buggenhout is opnieuw een incident geweest op dezelfde spoorwegovergang....
+- [Malek F. veroordeeld voor moordpoging op medepatiënt in tbs-kliniek](https://nos.nl/l/2616898)
+  > Een 39-jarige tbs'er is door de rechtbank veroordeeld voor een poging tot moord op een medepatiënt in een tbs-kliniek in Groningen. De rechtbank acht...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Gezonde stokstaartjes laten inslapen komt Blijdorp op kritiek te staan: ‘Halen we ze daarvoor uit Afrika?’](https://www.ad.nl/binnenland/gezonde-stokstaartjes-laten-inslapen-komt-blijdorp-op-kritiek-te-staan-halen-we-ze-daarvoor-uit-afrika~a9e1d3d0/)
-  > Dat Blijdorp de helft van de stokstaartjespopulatie heeft gedood, komt de Rotterdamse dierentuin op flinke kritiek te staan. In de gemeenteraad...
-- [Britse politie onder vuur na dood geboeid steekslachtoffer](https://www.ad.nl/buitenland/britse-politie-onder-vuur-na-dood-geboeid-steekslachtoffer~a817f2fa/)
-  > De Britse politie ligt onder vuur nadat een 18-jarige student, Henry Nowak, afgelopen december werd geboeid terwijl hij was neergestoken en overleed....
-- [‘Dat nieuwe programma met Matthijs van Nieuwkerk gaat natuurlijk keihard floppen’](https://www.ad.nl/show/dat-nieuwe-programma-met-matthijs-van-nieuwkerk-gaat-natuurlijk-keihard-floppen~afab7c23/)
-  > Dat Matthijs van Nieuwkerk terugkeert op televisie is geen grote verrassing, maar met een ‘muzikale roadmovie’ op campingzender SBS 6? Het panel van...
-- [België tankt vertrouwen met oefenzege in Kroatië, Romelu Lukaku maakt eerste goal in drie maanden](https://www.ad.nl/wk-voetbal/belgie-tankt-vertrouwen-met-oefenzege-in-kroatie-romelu-lukaku-maakt-eerste-goal-in-drie-maanden~a98b4950/)
-  > België heeft in aanloop naar het WK een knappe oefenzege geboekt. De Rode Duivels waren in Rijeka met 0-2 te sterk voor Kroatië. Aanvoerder Youri...
-- [Enexis gaat betalen als je zonnepanelen uit laat zetten](https://www.ad.nl/economie/enexis-gaat-betalen-als-je-zonnepanelen-uit-laat-zetten~a34d9b45/)
-  > Netbeheerder Enexis vraagt huishoudens die zonnestroom aan het net leveren om af en toe hun zonnepanelen te laten dimmen. Ze krijgen dan 25 cent per...
+- [Droomtransfer voor Denzel Dumfries: Oranje-verdediger voor vier jaar naar Real Madrid](https://www.ad.nl/wk-voetbal/droomtransfer-voor-denzel-dumfries-oranje-verdediger-voor-vier-jaar-naar-real-madrid~a580fc13/)
+  > Denzel Dumfries staat voor een absolute droomtransfer. De rechtsback van het Nederlands elftal is op weg naar Real Madrid, melden diverse media. De...
+- [Jackpot voor PSV? Ismael Saibari voor mogelijk recordbedrag naar Bayern München, ook Sergiño Dest in beeld](https://www.ad.nl/voetbal/jackpot-voor-psv-ismael-saibari-voor-mogelijk-recordbedrag-naar-bayern-munchen-ook-sergino-dest-in-beeld~af9acf13/)
+  > Niet alleen Ismael Saibari staat op het verlanglijstje van Bayern München. De club heeft ook belangstelling voor back Sergiño Dest. Er is nog geen...
+- [Niets missen van Oranje tijdens het WK? Meld je aan voor onze push en ontvang al het nieuws op je telefoon](https://www.ad.nl/wk-voetbal/niets-missen-van-oranje-tijdens-het-wk-meld-je-aan-voor-onze-push-en-ontvang-al-het-nieuws-op-je-telefoon~ae753f7c/)
+  > Deze site doet de komende weken uitgebreid verslag van het WK voetbal in de Verenigde Staten, Canada en Mexico. Uiteraard volgen wij ook alle...
+- [Nieuwe elektrische auto’s voor de politie: Skoda Enyaq en Cupra Born](https://www.ad.nl/auto/nieuwe-elektrische-autos-voor-de-politie-skoda-enyaq-en-cupra-born~a7fb888a/)
+  > De Nederlandse politie zet vanaf september de volledig elektrische Skoda Enyaq en Cupra Born in als dienstauto’s. Deze modellen worden toegevoegd aan...
+- [Harm Edens reageert op ophef rond offline halen Dit was het nieuws: ‘Een hele storm’](https://www.ad.nl/show/harm-edens-reageert-op-ophef-rond-offline-halen-dit-was-het-nieuws-een-hele-storm~a2d276db5/)
+  > De ophef rond het offline halen van Dit was het nieuws uit het onlinearchief De Schatkamer van Beeld & Geluid heeft ervoor gezorgd dat Harm Edens is...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [AI en Iran houden Wall Street in spagaat](https://fd.nl/financiele-markten/1598611/ai-en-iran-houden-wall-street-in-spagaat)
+  > Goldman Sachs ceo ziet voorlopig ‘meer hebzucht dan angst’ terwijl olieprijzen stijgen.
+- [150 organisaties krijgen toegang tot AI-hackmodel Mythos](https://fd.nl/bedrijfsleven/1598596/150-organisaties-krijgen-toegang-tot-ai-hackmodel-mythos)
+  > Het kunstmatige intelligentiemodel is ontworpen om lekken in digitale beveiliging op te sporen.
 - [Oeso-rapport is welkome munitie voor handelsbeleid EU](https://fd.nl/economie/1598585/oeso-rapport-is-welkomemunitie-voor-handelsbeleid-eu)
   > Staatssteun bevindt zich wereldwijd op het hoogste niveau sinds de kredietcrisis, zo blijkt uit bevindingen van de Parijse denktank.
 - [Boze beleggers vangen bot bij chemiebedrijf OCI](https://fd.nl/bedrijfsleven/1598502/boze-beleggers-vangen-bot-bij-chemiebedrijf-oci)
   > De sfeer op de algemene aandeelhoudersvergadering was dinsdag stekelig. Beleggers betwijfelen de onafhankelijkheid van niet-uitvoerende bestuurders.
 - [Woonminister wil dat Zuid-Holland woningbouwplannen aanpast](https://fd.nl/politiek/1598595/woonminister-wil-dat-zuid-holland-woningbouwplannen-aanpast)
   > De plannen kunnen ‘leiden tot vertraging of zelfs stilvallen van woningbouwprojecten’, zegt Boekholt-O’Sullivan. Haar belangrijkste kritiek is dat...
-- [De Brauw boekt omzetrecord, partnergroep telt hoogste aantal vrouwen ooit](https://fd.nl/bedrijfsleven/1598500/de-brauw-boekt-omzerecord-partnergroep-telt-hoogste-aantal-vrouwen-ooit)
-  > Het kantoor noemt de arbeidsmarkt nog altijd krap en uitdagend, zegt materiële investeringen in digitalisering te doen, maar noemt daar geen bedrag...
-- [Meteorologen waarschuwen voor El Niño deze zomer](https://fd.nl/samenleving/1598592/meteorologen-waarschuwen-voor-el-nino-deze-zomer)
-  > Het weersverschijnsel komt een keer in de paar jaar voor en zorgt voor afwijkende weerpatronen, door een hogere zeewatertemperatuur.
 
 ### Meest gelezen
 
