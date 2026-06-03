@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-06-2026 om 04:41*
+*Laatst bijgewerkt: 03-06-2026 om 09:55*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Wekdienst 3/6: Oefenduel tegen Algerije • Kort geding tegen komst rapper Ye](https://nos.nl/l/2616912)
-  > Goedemorgen! Vandaag speelt Oranje een oefenduel tegen Algerije in De Kuip. En in Amsterdam dient een kort geding tegen de komst van rapper Ye,...
-- [Hulporganisaties: ondanks staakt-het-vuren is situatie in Gaza nog steeds erbarmelijk](https://nos.nl/l/2616910)
-  > Sinds het staakt-het-vuren tussen Hamas en Israël vorig jaar oktober is ingegaan, hoopten hulporganisaties dat dat wat verlichting zou brengen voor...
-- [VS en Iran melden aanvallen over en weer, luchtalarm in Koeweit en Bahrein](https://nos.nl/l/2616909)
-  > Iran heeft vannacht meerdere ballistische raketten en drones afgevuurd op Koeweit en Bahrein, meldt het Amerikaanse leger. Volgens het hoofdkwartier...
-- [Vrouw reageert op geweld door agenten in azc Zeist: 'wilde politie vraag stellen'](https://nos.nl/l/2616908)
-  > De zwangere vrouw die twee weken geleden hardhandig werd weggetrokken bij een aanhouding in een asielzoekerscentrum in Zeist en daarbij op de grond...
-- [VS schrapt uniek meetnetwerk voor oceaan, wetenschappers vrezen meer bezuinigingen](https://nos.nl/l/2616907)
-  > De Verenigde Staten halen volgend jaar in de buurt van Groenland vier boeien en enkele meetinstrumenten weg uit de Atlantische Oceaan. Daarmee...
+- [Doden bij hotelbrand New Delhi, mensen sprongen uit paniek uit het gebouw](https://nos.nl/l/2616946)
+  > Bij een verwoestende hotelbrand in de Indiase hoofdstad New Delhi zijn zeker 21 mensen om het leven gekomen. Volgens Indiase media zijn er onder de...
+- [Grafdelver verdacht van stelen gouden vullingen en sieraden uit graven Den Haag](https://nos.nl/l/2616945)
+  > Een 60-jarige medewerker van de Algemene Begraafplaats in Den Haag is vorige week aangehouden op verdenking van het stelen van kostbaarheden uit...
+- [Opkomst verkiezingen onder Nederlanders met migratieachtergrond relatief hoger](https://nos.nl/l/2616944)
+  > Bij de laatste Kamerverkiezingen was de opkomst onder mensen met een migratieachtergrond hoger dan die onder Nederlanders zonder migratieachtergrond....
+- [Oekraïne raakt doelen in Sint-Petersburg, NAVO-chef Rutte bezoekt Kyiv](https://nos.nl/l/2616941)
+  > Oekraïne heeft vannacht aanvallen uitgevoerd op meerdere doelen in Rusland. Dat melden zowel de Russische als Oekraïense autoriteiten.
+        Onder...
+- [Gemeente Terschelling trekt 8 miljoen extra uit voor nieuwe haven](https://nos.nl/l/2616940)
+  > De gemeenteraad van Terschelling trekt acht miljoen euro extra uit voor de renovatie van de haven. Daarmee komt de totale investering van de gemeente...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Kirsten Verdel staat al 500 dagen op en gaat slapen met Donald Trump: ‘Hij zit de rit niet uit, onmogelijk’](https://www.ad.nl/buitenland/kirsten-verdel-staat-al-500-dagen-op-en-gaat-slapen-met-donald-trump-hij-zit-de-rit-niet-uit-onmogelijk~a2f51c9c/)
-  > Donald Trumps tweede presidentschap duurt inmiddels vijfhonderd dagen. Een periode waarin de Amerikaanse president de wereld op z’n kop zette. De...
-- [De ‘slechtste auto ter wereld’ is terug en gaat minder kosten dan een Dacia](https://www.ad.nl/auto/de-slechtste-auto-ter-wereld-is-terug-en-gaat-minder-kosten-dan-een-dacia~a6a191d8/)
-  > Yugo, het merk dat volgens Amerikanen ooit ‘de slechtste auto ter wereld’ produceerde, maakt een opvallende comeback. Het cultmerk wil afrekenen met...
-- [90 cent voor vijf ijsblokjes in plastic beker: TikTok-trend nu ook te vinden in Nederlandse supermarkten](https://www.ad.nl/binnenland/90-cent-voor-vijf-ijsblokjes-in-plastic-beker-tiktok-trend-nu-ook-te-vinden-in-nederlandse-supermarkten~a95ef3be/)
-  > Onder jongeren is het een rage: plastic bekers met perfect symmetrische ijsklontjes, bedoeld om drankjes gekoeld mee te kunnen nemen. Sinds kort zijn...
-- [Zorgen over AI-gebruik bij psychisch kwetsbare mensen: waanideeën en achterdocht worden ernstiger](https://www.ad.nl/binnenland/zorgen-over-ai-gebruik-bij-psychisch-kwetsbare-mensen-waanideeen-en-achterdocht-worden-ernstiger~aba9a952/)
-  > Experts maken zich zorgen over het gebruik van AI-chatbots door psychisch kwetsbare mensen. Chatbots kunnen wanen en achterdochtige gedachten...
-- [Brandstof op rantsoen in door Rusland bezette regio Loehansk, Moskou verbiedt export kerosine](https://www.ad.nl/buitenland/brandstof-op-rantsoen-in-door-rusland-bezette-regio-loehansk-moskou-verbiedt-export-kerosine~adfb97be/)
-  > De autoriteiten in de door Rusland gecontroleerde Oekraïense regio Loehansk hebben de aankoop van benzine en diesel tijdelijk beperkt. Afgelopen...
+- [Alle WK-selecties zijn bekend: deze 1248 spelers jagen hun ultieme voetbaldroom na](https://www.ad.nl/wk-voetbal/alle-wk-selecties-zijn-bekend-deze-1248-spelers-jagen-hun-ultieme-voetbaldroom-na~a5e4dc47/)
+  > Het WK voetbal komt snel dichterbij. De 48 deelnemende landen hebben hun selecties bekendgemaakt. De spelers die namens Oranje naar het WK gaan, zijn...
+- [Met haar hoofddoek had ze een levende middelvinger kunnen zijn naar Geert Wilders](https://www.ad.nl/binnenland/met-haar-hoofddoek-had-ze-een-levende-middelvinger-kunnen-zijn-naar-geert-wilders~a8888138/)
+  > Het gelieg en gedraaid van Esmah Lahlah is niet alleen een slechte zaak voor GL-PvdA en de hele politiek, maar voor vrouwen en moslims, schrijft...
+- [Praat mee: demonstranten van het spoor of de weg afvoeren, is een inperking van ons demonstratierecht](https://www.ad.nl/praat-mee/praat-mee-demonstranten-van-het-spoor-of-de-weg-afvoeren-is-een-inperking-van-ons-demonstratierecht~a5cbe11f/)
+  > Demonstranten moeten makkelijker afgevoerd kunnen worden als ze op de weg of het spoor zitten. Dat wil het kabinet. In de Kwestie leggen we onze...
+- [Psychotische jongeren soms nog verwarder door AI-chatbots: ‘Die gaan mee in hun waanideeën’](https://www.ad.nl/binnenland/psychotische-jongeren-soms-nog-verwarder-door-ai-chatbots-die-gaan-mee-in-hun-waanideeen~a85c7c18/)
+  > Jongeren met psychoses raken soms nog verwarder door AI-chatbots als ChatGPT, ziet psychiater Wim Veling. De bots verergeren de psychose door mee te...
+- [Zelensky bevestigt droneaanval op Sint-Petersburg, honderden kilometers van frontlinie](https://www.ad.nl/buitenland/zelensky-bevestigt-droneaanval-op-sint-petersburg-honderden-kilometers-van-frontlinie~adfb97be/)
+  > Oekraïne heeft een olieterminal in Sint-Petersburg aangevallen, op de dag dat daar een belangrijk economisch forum begint. Volgens Zelensky waren ook...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [PSV-directeur Earnest Stewart: ‘Meer Nederlands patriottisme mag best’](https://fd.nl/bedrijfsleven/1598454/psv-directeur-earnest-stewart-meer-nederlands-patriottisme-mag-best)
-  > Earnest Stewart heeft het na wéér een landskampioenschap te druk om het WK in zijn tweede vaderland te bezoeken. De directeur voetbalzaken van...
-- [Betekenis is business geworden](https://fd.nl/samenleving/1598300/betekenis-is-business-geworden)
-  > In deze tijd is de mens een te optimaliseren project. Betekenis is geen ervaring, maar verworden tot een industrie. Voor elk onbehagen is er een...
-- [Condooms fors duurder door Iran‑oorlog. Babyboom?](https://fd.nl/economie/1598498/condooms-fors-duurder-door-iranoorlog-babyboom)
-  > Vandaag in Dagkoers: inflatie stijgt in mei sneller dan verwacht, condooms worden duurder door Iran-oorlog en VWS jaagt op coronamiljoenen.
-- [Dit is waar ik me kapot aan erger](https://fd.nl/opinie/1598593/dit-is-waar-ik-me-kapot-aan-erger)
-  > Alle kranten en nieuwssites doen het, dus Mathijs Bouman ook.
-- [Ons lichaam reist sneller dan ons brein](https://fd.nl/opinie/1598584/ons-lichaam-reist-sneller-dan-ons-brein)
-  > Jetlags zijn de wraak van een stukje hersenen zo groot als een rijstkorrel op de moderne mens. Hoeveel tijdzones we ook overbruggen, onze biologische...
+- [Cynisme helpt je mentaal niet](https://fd.nl/samenleving/1598306/cynisme-helpt-je-mentaal-niet)
+  > Groeiend respectloos gedrag, polarisatie, geopolitieke spanningen zijn een kweekvijver voor cynisme. En het helpt niet: het pantser van het cynisme...
+- [Wie wil nog baas worden van de Verenigde Naties?](https://fd.nl/opinie/1598576/wie-wil-nog-baas-worden-van-de-verenigde-naties)
+  > De Verenigde Naties verkeren in financieel en politiek zwaar weer. Toch kan de keuze van een nieuwe secretaris-generaal dit najaar meer verschil...
+- [Thomas de Boer nieuwe topman bij Shell Nederland](https://fd.nl/bedrijfsleven/1598539/thomas-de-boer-nieuwe-topman-bij-shell-nederland)
+  > Thomas de Boer wordt per 1 september 2026 de nieuwe president-directeur van Shell Nederland. Hij volgt Frans Everts op, die na 37 jaar vertrekt bij...
+- [Carlyle mag Basf Coatings overnemen](https://fd.nl/bedrijfsleven/1598620/carlyle-mag-basf-coatings-overnemen)
+  > De Europese Commissie stelt als voorwaarde voor de goedkeuring van de deal dat Nouryon, een ander Carlyle-bedrijf, een fabriek die grondstoffen voor...
+- [KNVB-directeur Marianne van Leeuwen: ‘Ik voel me een rolmodel’](https://fd.nl/samenleving/1598480/knvb-directeur-marianne-van-leeuwen-ik-voel-me-een-rolmodel)
+  > Een sleutelmoment, een belangrijke les: wat maken professionals mee? Deze week: Marianne van Leeuwen (1961), directeur betaald voetbal van de KNVB.
 
 ### Meest gelezen
 
