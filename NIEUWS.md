@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-06-2026 om 21:52*
+*Laatst bijgewerkt: 03-06-2026 om 23:47*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Voetbalpodcast | ‘Is er ooit een beter opgebouwde carrière geweest dan die van Denzel Dumfries?’](https://www.ad.nl/voetbal/voetbalpodcast-is-er-ooit-een-beter-opgebouwde-carriere-geweest-dan-die-van-denzel-dumfries~a42af5cd9/)
+  > De uitzwaaiwedstrijd van Oranje tegen Algerije eindigde in een 0-1 nederlaag. Geen lachende gezichten bij het Nederlands elftal, maar wat zijn de...
+- [Maagverkleining voor veel te dikke tieners wordt toch vergoed: ‘Obesitas is chronische, ernstige ziekte’](https://www.ad.nl/gezond/maagverkleining-voor-veel-te-dikke-tieners-wordt-toch-vergoed-obesitas-is-chronische-ernstige-ziekte~a12bdfae/)
+  > Tieners die veel te zwaar zijn, maar zelf écht niet kunnen afvallen, kunnen vanaf nu een maagverkleining vergoed krijgen uit het basispakket. Het...
+- [Feyenoorder Hadj Moussa bezorgt Oranje op weg naar WK pijnlijke avond in de Kuip](https://www.ad.nl/voetbal/feyenoorder-hadj-moussa-bezorgt-oranje-op-weg-naar-wk-pijnlijke-avond-in-de-kuip~a44a02c6/)
+  > Door een late treffer van Feyenoord-aanvaller Anis Hadj Moussa stapt het Nederlands elftal donderdag met een klein katertje in het vliegtuig naar de...
 - [Feyenoord verhuurt talent aan Dordrecht, Denzel Dumfries medisch gekeurd door Real Madrid](https://www.ad.nl/voetbal/feyenoord-verhuurt-talent-aan-dordrecht-denzel-dumfries-medisch-gekeurd-door-real-madrid~a488141d/)
   > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
 - [Trump zinspeelt op een deal met Iran: ‘Het zou dit weekend kunnen gebeuren’](https://www.ad.nl/buitenland/trump-zinspeelt-op-een-deal-met-iran-het-zou-dit-weekend-kunnen-gebeuren~ac528ac3/)
   > Donald Trump suggereert dat er mogelijk dit weekend vooruitgang zou kunnen worden geboekt in de onderhandelingen met Iran. „Ik hoor dat de...
-- [Ronald Koeman na nederlaag tegen Algerije: ‘Aan onze stand verplicht dit soort wedstrijden te winnen’](https://www.ad.nl/wk-voetbal/ronald-koeman-na-nederlaag-tegen-algerije-aan-onze-stand-verplicht-dit-soort-wedstrijden-te-winnen~a2551273/)
-  > Bondscoach Ronald Koeman was flink ontstemd door de nederlaag van Oranje tegen Algerije (0-1) in de Kuip, een dag voor het vertrek naar New York. „We...
-- [Aanvallers en Koeman scoren onvoldoende, beste speler bij Oranje stond achterin](https://www.ad.nl/wk-voetbal/aanvallers-en-koeman-scoren-onvoldoende-beste-speler-bij-oranje-stond-achterin~ac1ea24e/)
-  > Oranje ging in de slotminuten onderuit in het oefenduel met Algerije (0-1). Het levert twee aanvallers van het Nederlands elftal een onvoldoende op....
-- [Virgil van Dijk over ontslag Arne Slot bij Liverpool: ‘Niet dat ze mij vragen hoe of wat’](https://www.ad.nl/wk-voetbal/virgil-van-dijk-over-ontslag-arne-slot-bij-liverpool-niet-dat-ze-mij-vragen-hoe-of-wat~ae78288a/)
-  > Virgil van Dijk werd verrast door het nieuws dat Arne Slot is ontslagen als trainer van Liverpool. Dat zei de aanvoerder van Oranje na de verloren...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Overbodige brieven](https://fd.nl/opinie/1598690/overbodige-brieven)
+  > Maak gewoon een goed cv met een mooie video erbij.
+- [Gemeenten houden leuk centje over aan buitenreclame](https://fd.nl/bedrijfsleven/1598536/gemeenten-houden-leuk-centje-over-aan-buitenreclame)
+  > Adverteerders gaven vorig jaar €325 mln uit aan reclame in bushokjes, op billboards en digitale schermen. Een groot deel van die uitgaven stroomt in...
+- [Een Amerikaans lesje in het grootse falen mogen onze ondernemers nog wel leren](https://fd.nl/opinie/1597444/een-amerikaans-lesje-in-het-grootse-falen)
+  > We kunnen terugdeinzen voor een mislukking of accepteren dat ‘dikke BOEM!’ erbij hoort. Zoals Jeff Bezos afgelopen week deed, toen zijn nieuwste...
+- [Personalia donderdag 4 juni](https://fd.nl/bedrijfsleven/1598776/personalia-donderdag-4-juni)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [Wall Street in het rood, onrust op private markten](https://fd.nl/financiele-markten/1598696/wall-street-in-het-rood-onrust-op-private-markten)
   > Wall Street eindigde woensdag in het rood. Vooral private equity en private credit partijen kregen klappen.
-- [KLM-medewerker ontslagen na lek 1000 liter kerosine](https://fd.nl/bedrijfsleven/1598796/klm-medewerker-ontslagen-na-lek-1000-liter-kerosine)
-  > ‘Een extreem gevaarlijke situatie’ met groot brandgevaar, aldus KLM. De medewerker is volgens de rechter terecht ontslagen.
-- [Meer geld naar Ontwikkelingshulp moet Eerste Kamer over de streep trekken](https://fd.nl/politiek/1598694/meer-geld-naar-ontwikkelingshulp-moet-eerste-kamer-over-de-streep-trekken)
-  > De coalitie vindt €380 mln om te voorkomen dat de begroting van minister Sjoerd Sjoerdsma sneuvelt in de Eerste Kamer.
-- [Ook na de koffieronde van minister Vijlbrief blijft de vraag: zoekt het kabinet steun bij JA21 of Pro?](https://fd.nl/politiek/1598686/ook-na-de-koffieronde-van-minister-vijlbrief-blijft-de-vraag-zoekt-het-kabinet-steun-bij-ja21-of-pro)
-  > De minister van Sociale Zaken wil het liefst een akkoord ‘door het midden’ over hervorming van de sociale zekerheid en de meerjarenbegroting. Maar...
-- [Wees voorzichtig met het gouden aandeel in Nederlandse defensiebedrijven](https://fd.nl/opinie/1598791/wees-voorzichtig-met-het-gouden-aandeel-in-nederlandse-defensiebedrijven)
-  > Het is begrijpelijk dat politiek Den haag een beschermingswal wil opwerpen tegen buitenlandse overnames van veelbelovende Nederlandse...
 
 ### Meest gelezen
 
