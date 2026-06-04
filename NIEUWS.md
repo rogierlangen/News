@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-06-2026 om 23:47*
+*Laatst bijgewerkt: 04-06-2026 om 04:26*
 
 ---
 
@@ -8,16 +8,18 @@
 
 ### Laatste nieuws
 
-- [Provincie geeft miljoenen voor geschrapt plan Fries dorp aan zee](https://nos.nl/l/2617046)
-  > De provincie Friesland komt met 13 miljoen euro over de brug om het dorp Holwerd en directe omgeving aantrekkelijker voor toeristen te maken. Dit...
-- [Boze reacties op reclame Scorsese voor AI-storyboards: 'Vak is helemaal dood'](https://nos.nl/l/2617041)
-  > Tot grote onvrede van sommige collega's uit de filmindustrie heeft de gevierde regisseur Martin Scorsese geïnvesteerd in een bedrijf voor kunstmatige...
-- [Van den Brink: akkoord met Italië over terugnemen asielzoekers uit Nederland](https://nos.nl/l/2617040)
-  > Asielzoekers die via Italië naar Nederland reizen, worden vanaf volgende week vrijdag weer teruggestuurd naar dat land. Minister Van den Brink van...
-- [Hongarije beëindigt veto, onderhandelingen over toetreden Oekraïne tot EU kunnen starten](https://nos.nl/l/2617038)
-  > Hongarije heeft zijn veto tegen het toetreden van Oekraïne tot de Europese Unie opgeheven. Dat gebeurde op een bijeenkomst van ambassadeurs in...
-- [Duitse poging om zetel te halen in VN-Veiligheidsraad mislukt](https://nos.nl/l/2617034)
-  > Duitsland is er niet in geslaagd om een tijdelijke zetel te bemachtigen in de Veiligheidsraad van de Verenigde Naties. Het land haalde niet genoeg...
+- [Nederlandse bv's cashen met import gevaarlijke designerdrugs uit India](https://nos.nl/l/2617062)
+  > Nederlandse bedrijven hebben gevaarlijke designerdrugs uit India besteld met een straatwaarde van bijna twee miljard euro. Onderzoek van de NOS en...
+- [Meer problemen rond geboorten in kwetsbare wijken](https://nos.nl/l/2617061)
+  > De plek waar een kind wordt geboren heeft grote invloed op de gezondheid rond de geboorte, blijkt uit onderzoek van Erasmus MC in Rotterdam. De...
+- [Fabriek FrieslandCampina ontruimd na grote brand in Leerdam](https://nos.nl/l/2617060)
+  > Door een grote brand in Leerdam is een fabriek van FrieslandCampina vannacht tijdelijk ontruimd.
+        De brand brak uit bij een wegenbouwbedrijf...
+- [Wetenschappers ontdekken in Angola tientallen nieuwe diersoorten](https://nos.nl/l/2617059)
+  > Een groep wetenschappers heeft in Angola tientallen diersoorten ontdekt die nog niet wetenschappelijk bekend waren.
+        De groep van organisatie...
+- [Israël en Libanon akkoord over nieuw staakt-het-vuren, maar veel hangt af van Hezbollah](https://nos.nl/l/2617058)
+  > Israël en Libanon zijn een nieuw staakt-het-vuren overeengekomen, melden de twee landen en de Verenigde Staten in een gezamenlijke verklaring. Dat is...
 
 ### Meest gelezen
 
@@ -27,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Voetbalpodcast | ‘Is er ooit een beter opgebouwde carrière geweest dan die van Denzel Dumfries?’](https://www.ad.nl/voetbal/voetbalpodcast-is-er-ooit-een-beter-opgebouwde-carriere-geweest-dan-die-van-denzel-dumfries~a42af5cd9/)
-  > De uitzwaaiwedstrijd van Oranje tegen Algerije eindigde in een 0-1 nederlaag. Geen lachende gezichten bij het Nederlands elftal, maar wat zijn de...
-- [Maagverkleining voor veel te dikke tieners wordt toch vergoed: ‘Obesitas is chronische, ernstige ziekte’](https://www.ad.nl/gezond/maagverkleining-voor-veel-te-dikke-tieners-wordt-toch-vergoed-obesitas-is-chronische-ernstige-ziekte~a12bdfae/)
-  > Tieners die veel te zwaar zijn, maar zelf écht niet kunnen afvallen, kunnen vanaf nu een maagverkleining vergoed krijgen uit het basispakket. Het...
-- [Feyenoorder Hadj Moussa bezorgt Oranje op weg naar WK pijnlijke avond in de Kuip](https://www.ad.nl/voetbal/feyenoorder-hadj-moussa-bezorgt-oranje-op-weg-naar-wk-pijnlijke-avond-in-de-kuip~a44a02c6/)
-  > Door een late treffer van Feyenoord-aanvaller Anis Hadj Moussa stapt het Nederlands elftal donderdag met een klein katertje in het vliegtuig naar de...
-- [Feyenoord verhuurt talent aan Dordrecht, Denzel Dumfries medisch gekeurd door Real Madrid](https://www.ad.nl/voetbal/feyenoord-verhuurt-talent-aan-dordrecht-denzel-dumfries-medisch-gekeurd-door-real-madrid~a488141d/)
-  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
-- [Trump zinspeelt op een deal met Iran: ‘Het zou dit weekend kunnen gebeuren’](https://www.ad.nl/buitenland/trump-zinspeelt-op-een-deal-met-iran-het-zou-dit-weekend-kunnen-gebeuren~ac528ac3/)
-  > Donald Trump suggereert dat er mogelijk dit weekend vooruitgang zou kunnen worden geboekt in de onderhandelingen met Iran. „Ik hoor dat de...
+- [Pittige buien met kans op onweer onderweg: in dit deel van Nederland geldt straks code geel](https://www.ad.nl/binnenland/pittige-buien-met-kans-op-onweer-onderweg-in-dit-deel-van-nederland-geldt-straks-code-geel~afef3802/)
+  > In het oostelijke deel van Nederland is vanaf het middaguur code geel van kracht, meldt het KNMI. Het weerinstituut verwacht daar enkele ‘pittige...
+- [LIVE Midden-Oosten | Doden bij Israëlische aanvallen op Gaza, onder wie kinderen](https://www.ad.nl/buitenland/live-midden-oosten-doden-bij-israelische-aanvallen-op-gaza-onder-wie-kinderen~ac528ac3/)
+  > Zeker acht mensen zijn donderdagochtend vroeg om het leven gekomen bij Israëlische bombardementen op Gaza-Stad. Dat zei een woordvoerder van de...
+- [Nieuw staakt-het-vuren tussen Libanon en Israël nabij, Hezbollah moet zich terugtrekken](https://www.ad.nl/buitenland/nieuw-staakt-het-vuren-tussen-libanon-en-israel-nabij-hezbollah-moet-zich-terugtrekken~a9160c97/)
+  > Libanon ⁠en ‌Israël zijn het eens geworden over de ‘implementatie van een staakt-het-vuren’ en de instelling van ‘proefzones’ onder controle van het...
+- [Prijs huurauto zonvakantie stijgt explosief: op Mallorca bijna verdubbeld](https://www.ad.nl/auto/prijs-huurauto-zonvakantie-stijgt-explosief-op-mallorca-bijna-verdubbeld~a360c2bf/)
+  > Vakantiegangers die deze zomer een huurauto willen reserveren op populaire Zuid-Europese bestemmingen, zijn gemiddeld 7,4 procent meer kwijt dan...
+- [Minder slapeloze nachten door bouw: Heijmans doet traditionele heipaal grotendeels in de ban](https://www.ad.nl/binnenland/minder-slapeloze-nachten-door-bouw-heijmans-doet-traditionele-heipaal-grotendeels-in-de-ban~a39f4ac4/)
+  > Er zullen in de toekomst fors minder heipalen de grond in worden geslagen. Bouwbedrijf Heijmans doet het traditionele heien grotendeels ‘in de ban’....
 
 ### Meest gelezen
 
@@ -46,16 +48,16 @@
 
 ### Laatste nieuws
 
+- [Op safari in Zuid‑Engeland](https://fd.nl/samenleving/1598485/op-safari-in-zuidengeland)
+  > Charlie Burrell en zijn vrouw Isabella Tree veranderden de uitgeputte boerenakkers rond hun Victoriaanse kasteel nabij Londen in een moderne...
+- [Haalt nieuwkomer Van Essen Nederland wél van het stikstofslot? ‘Het moet nu gebeuren’](https://fd.nl/politiek/1598330/haalt-nieuwkomer-van-essen-nederland-wel-van-het-stikstofslot-het-moet-nu-gebeuren)
+  > Het FD volgde de landbouwminister in zijn eerste honderd dagen. De bewindsman blijkt iemand die graag de harmonie bewaart, ook al moeten er zeer...
+- [Hoe Europa vecht voor digitale onafhankelijkheid](https://fd.nl/economie/1598688/hoe-europa-vecht-voor-digitale-onafhankelijkheid)
+  > Vandaag in Dagkoers: een Brussels ‘techpakket’ moet Europa beschermen, Greenpeace voor de rechter en flink tekort in de Russische schatkist.
 - [Overbodige brieven](https://fd.nl/opinie/1598690/overbodige-brieven)
   > Maak gewoon een goed cv met een mooie video erbij.
 - [Gemeenten houden leuk centje over aan buitenreclame](https://fd.nl/bedrijfsleven/1598536/gemeenten-houden-leuk-centje-over-aan-buitenreclame)
   > Adverteerders gaven vorig jaar €325 mln uit aan reclame in bushokjes, op billboards en digitale schermen. Een groot deel van die uitgaven stroomt in...
-- [Een Amerikaans lesje in het grootse falen mogen onze ondernemers nog wel leren](https://fd.nl/opinie/1597444/een-amerikaans-lesje-in-het-grootse-falen)
-  > We kunnen terugdeinzen voor een mislukking of accepteren dat ‘dikke BOEM!’ erbij hoort. Zoals Jeff Bezos afgelopen week deed, toen zijn nieuwste...
-- [Personalia donderdag 4 juni](https://fd.nl/bedrijfsleven/1598776/personalia-donderdag-4-juni)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Wall Street in het rood, onrust op private markten](https://fd.nl/financiele-markten/1598696/wall-street-in-het-rood-onrust-op-private-markten)
-  > Wall Street eindigde woensdag in het rood. Vooral private equity en private credit partijen kregen klappen.
 
 ### Meest gelezen
 
