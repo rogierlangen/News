@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-06-2026 om 20:59*
+*Laatst bijgewerkt: 04-06-2026 om 22:40*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Leegstand en waardedaling dreigt voor eengezinswoningen, waarschuwt ABN Amro](https://nos.nl/l/2617190)
+  > Er zijn "te veel eengezinswoningen voor te weinig gezinnen", en dit probleem wordt de komende decennia alleen maar groter. Daarvoor waarschuwt het...
+- [Weer uitstel over besluit voortbestaan Moerdijk](https://nos.nl/l/2617187)
+  > Het besluit over de toekomst van het dorp Moerdijk is opnieuw uitgesteld, meldt Omroep Brabant. Eigenlijk zou op 29 juni een besluit vallen, maar het...
 - [Hart onder de riem voor eigenaren restaurant Wijdenes na racistische leuzen](https://nos.nl/l/2617180)
   > Bij het restaurant in Wijdenes waar dinsdag brand uitbrak en racistische leuzen op de muur werden geklad, zijn vandaag spandoeken opgehangen met een...
 - [Kitesurfer overleden door de wind op strand in Rockanje](https://nos.nl/l/2617179)
   > Op het strand van Rockanje is een kitesurfer overleden. De wind blies hem de duinen in, waar hij hard terechtkwam. De politie bevestigt het fatale...
 - [Zelensky roept Poetin in brief op tot persoonlijke onderhandeling](https://nos.nl/l/2617178)
   > De Oekraïense president Zelensky roept de Russische president Poetin in een brief op tot directe onderhandelingen. Deze gesprekken kunnen volgens...
-- [Ruim 25 miljoen euro opgehaald bij Alpe d'HuZes, hoogste bedrag in 13 jaar](https://nos.nl/l/2617173)
-  > De negentiende editie van Alpe d'HuZes heeft ruim 25 miljoen euro opgebracht voor onderzoek naar kanker. Sinds de editie van 2013 is niet meer zo'n...
-- [Zwolse tiener krijgt celstraf voor doden van terminaal zieke man](https://nos.nl/l/2617172)
-  > Een 17-jarige jongen die tijdens een ruzie een man doodtrapte, moet hiervoor acht maanden de jeugdgevangenis in. Dat oordeelt de rechtbank...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Charles Leclerc had naast Ferrari ook andere opties, GP van Las Vegas nog tot 2037](https://www.ad.nl/formule-1/charles-leclerc-had-naast-ferrari-ook-andere-opties-gp-van-las-vegas-nog-tot-2037~a031e149/)
+  > Het Formule 1-circus is neergestreken in de smalle straten van Monte Carlo voor de Grand Prix van Monaco. Lukt het Max Verstappen om na zijn derde...
+- [FIFA verbiedt vuvuzela’s in stadions, week voor openingsduel golf van protest in Mexico City](https://www.ad.nl/wk-voetbal/fifa-verbiedt-vuvuzelas-in-stadions-week-voor-openingsduel-golf-van-protest-in-mexico-city~a61805da/)
+  > Volgende week begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste wedstrijd. Via dit...
+- [Topfavorieten nog niet in topvorm voor WK: Ivoorkust stunt tegen Frankrijk, Irak houdt Spanje op gelijkspel](https://www.ad.nl/wk-voetbal/topfavorieten-nog-niet-in-topvorm-voor-wk-ivoorkust-stunt-tegen-frankrijk-irak-houdt-spanje-op-gelijkspel~aeb86d5a/)
+  > Frankrijk leed woensdagavond een verrassende nederlaag tegen Ivoorkust. De ploeg van bondscoach Didier Deschamps gaf de wedstrijd na rust uit handen:...
+- [Kabinet houdt Amerikaanse invloed buiten DigiD: nieuwe beheerder moet uit Europa komen](https://www.ad.nl/binnenland/kabinet-houdt-amerikaanse-invloed-buiten-digid-nieuwe-beheerder-moet-uit-europa-komen~ad3cb42a/)
+  > Het volgende bedrijf dat een deel van DigiD gaat beheren moet Europees zijn. Staatssecretaris Eric van der Burg (Binnenlandse Zaken) schrijft in een...
 - [Poetin zegt bereid te zijn tot compromis in vredesonderhandelingen, Zelensky wil direct met hem om tafel](https://www.ad.nl/buitenland/poetin-zegt-bereid-te-zijn-tot-compromis-in-vredesonderhandelingen-zelensky-wil-direct-met-hem-om-tafel~ae21e63c/)
   > Rusland is bereid compromissen te sluiten in de vredesonderhandelingen met Oekraïne als Kyiv dat ook is. Dat zei de Russische president Vladimir...
-- [Ruim 3500 flessen lachgas gevonden bij inval op bedrijventerrein in Hoorn](https://www.ad.nl/hoorn/ruim-3500-flessen-lachgas-gevonden-bij-inval-op-bedrijventerrein-in-hoorn~a194e220/)
-  > Bij een grootschalige controle op bedrijventerreinen in Hoorn hebben toezichthouders donderdagmiddag duizenden flessen lachgas aangetroffen. In een...
-- [Grey’s Anatomy-ster Ellen Pompeo krijgt hoofdrol in nieuwe dramaserie](https://www.ad.nl/show/greys-anatomy-ster-ellen-pompeo-krijgt-hoofdrol-in-nieuwe-dramaserie~ac3baa4f/)
-  > Ellen Pompeo gaat de hoofdrol spelen in de nieuwe dramaserie Chicks. Dat meldt het Amerikaanse vakblad Deadline. De titel is door streamingdienst...
-- [Deelnemers halen meer dan 25 miljoen euro op bij Alpe d’HuZes, hoogste bedrag ooit](https://www.ad.nl/binnenland/deelnemers-halen-meer-dan-25-miljoen-euro-op-bij-alpe-dhuzes-hoogste-bedrag-ooit~ac0241bd/)
-  > Sportevenement Alpe d'HuZes heeft dit jaar iets meer dan 25 miljoen euro opgeleverd, een recordbedrag. Dat laat de organisatie weten, die belooft dat...
-- [Prins Pieter-Christiaan speelt opnieuw rolletje in Flikken Rotterdam: ‘Super leuk’](https://www.ad.nl/show/prins-pieter-christiaan-speelt-opnieuw-rolletje-in-flikken-rotterdam-super-leuk~a8bfd412/)
-  > Prins Pieter-Christiaan speelt weer een rolletje in de AvroTros-serie Flikken Rotterdam. Op Instagram deelt de neef van koning Willem-Alexander...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Koersdaling Broadcom drukt de pret niet op Wall Street](https://fd.nl/financiele-markten/1598877/koersdaling-broadcom-drukt-de-pret-niet-op-wall-street)
-  > Op de beurs drukten tegenvallende cijfers van Broadcom enigszins op de chipsector, maar ze leidden niet tot algehele mineur op de beurs.
-- [Zelensky roept Poetin op tot gesprek](https://fd.nl/politiek/1598730/zelensky-roept-poetin-op-tot-gesprek)
-  > In een open brief heeft de Oekraïense president donderdag Poetin opgeroepen om direct met elkaar om tafel te gaan.
-- [Tegenslagen stapelen zich op voor Trump](https://fd.nl/politiek/1598721/tegenslagen-stapelen-zich-op-voor-trump)
-  > Met de tussentijdse verkiezingen in aantocht beginnen Republikeinen in het Congres zich te roeren. De Amerikaanse president ervaart groeiende...
-- [Goed dat Nederlandse rechter zich bemoeit met Greenpeace-zaak in VS](https://fd.nl/opinie/1598858/goed-dat-nederlandse-rechter-zich-bemoeit-met-greenpeace-zaak-in-vs)
-  > De milieuorganisatie moet zich verdedigen in een type rechtszaak bedoeld om ngo’s en media de mond te snoeren. Dat bedreigt de maatschappelijke rol...
-- [Raad van toezicht Milieudefensie treedt af](https://fd.nl/samenleving/1598728/raad-van-toezicht-milieudefensie-treedt-af)
-  > De Raad bleek al langere tijd op de hoogte te zijn van het verleden van oud-voorman Donald Pols. Hij was als student in Zuid-Afrika lid van een...
+- [We moeten weer harder, sneller, beter](https://fd.nl/opinie/1598855/we-moeten-weer-harder-sneller-beter)
+  > Hebben we eindelijk een premier die denkt dat het wél kan, staat de Concorde alweer in het museum en duurt vliegen naar New York langer dan...
+- [Ook IHC mengt zich in strijd om Nederlandse marineschepen](https://fd.nl/bedrijfsleven/1598854/ook-ihc-mengt-zich-in-strijd-om-nederlandse-marineschepen)
+  > Het bedrijf uit Kinderdijk dingt mee voor de bouw van ondersteuningsvaartuigen. Mocht het de opdracht krijgen, dan is Damen niet meer de enige werf...
+- [Brussel stelt winstbelasting voor die innovatie bevordert en meer renteaftrek toestaat](https://fd.nl/politiek/1598853/brussel-stelt-winstbelasting-voor-die-innovatie-bevordert-en-meer-renteaftrek-toestaat)
+  > De Europese Commissie wil Europa beter laten concurreren met zijn belangrijkste handelspartners. Bedrijven moeten meer geld in R&D kunnen steken en...
+- [Europese dwangarbeid](https://fd.nl/opinie/1598713/europese-dwangarbeid)
+  > In de top 10 beste landen van de ‘Global Slavery Index’ zijn er negen Europees. De VS staan pas op plaats 41.
+- [Personalia vrijdag 5 juni](https://fd.nl/bedrijfsleven/1598856/personalia-vrijdag-5-juni)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
