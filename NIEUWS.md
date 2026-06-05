@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-06-2026 om 15:57*
+*Laatst bijgewerkt: 05-06-2026 om 18:03*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Surfer overleden op strand van Ouddorp, bewusteloos in water gevonden](https://nos.nl/l/2617279)
-  > Op het strand bij Ouddorp (Zuid-Holland) is een surfer overleden. Het slachtoffer werd bewusteloos in het water gevonden bij de Brouwersdam, de...
-- [Kabinet werkt aan plan om duizenden statushouders te helpen aan werk](https://nos.nl/l/2617277)
-  > Het kabinet wil in de komende vier jaar 75.000 statushouders aan het werk helpen. Dat schrijft minister Aartsen van Werk en Participatie in een brief...
-- [Te veel eengezinswoningen? We moeten 'echt spaarzaam' zijn met bijbouwen](https://nos.nl/l/2617276)
-  > Heeft Nederland inderdaad "te veel eengezinswoningen voor te weinig gezinnen", zoals woningmarktanalisten van ABN Amro vanochtend stelden?...
-- [China heeft Nederlands fregat opnieuw gevolgd, nu in Straat van Taiwan](https://nos.nl/l/2617274)
-  > Het Nederlandse fregat Zr. Ms. De Ruyter is net als vorige week gevolgd door de Chinese strijdkrachten, melden Chinese autoriteiten. Dat zou zijn...
-- [Tientallen reizigers omgekomen van de dorst in Sahara](https://nos.nl/l/2617273)
-  > In het noordwesten van Niger zijn tientallen mensen omgekomen. Zij waren volgens de autoriteiten vanuit Mali door de Sahara onderweg naar hun familie...
+- [Dader kunstroof Assen start kledingwebshop: T-shirts met afbeelding gouden helm](https://nos.nl/l/2617310)
+  > Een van de vandaag veroordeelde daders van de kunstroof in het Drents Museum blijkt een bedrijf te hebben opgericht dat kleding verkoopt die verwijst...
+- [Frans onderzoek naar mogelijke Israëlische marteling van opvarenden Gaza-vloot](https://nos.nl/l/2617308)
+  > Het Franse Openbaar Ministerie is een onderzoek begonnen naar de Israëlische behandeling van Franse burgers die deelnamen aan de Global Sumud...
+- [16-jarige jongen opgepakt voor explosie in Amsterdam bij Zuidas-kantoor](https://nos.nl/l/2617306)
+  > Een 16-jarige jongen zit vast in verband met de explosie in maart op de Amsterdamse Zuidas. De jongen wordt verdacht van betrokkenheid bij het...
+- [Podcast De Stemming: achterkamertjes, kasschuiven en cobra's](https://nos.nl/l/2617302)
+  > Het kabinet bestaat 100 dagen, maar dat vond de coalitie geen reden voor een feestje, want het vertrouwen in de regering is laag en de...
+- [Minister Van den Brink: wachtlijst asielzoekers in drie jaar weg](https://nos.nl/l/2617301)
+  > Het kabinet denkt dat de langere wachttijd waarmee de huidige asielzoekers vanaf volgende week te maken krijgen kan worden beperkt tot drie jaar. Dat...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Persoonlijke aanvallen rondom corona-enquête vertroebelen het zicht op een haperend systeem](https://www.ad.nl/binnenland/persoonlijke-aanvallen-rondom-corona-enquete-vertroebelen-het-zicht-op-een-haperend-systeem~a9cc9d805/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Real Madrid wil Olise losweken bij Bayern, Marinus Dijkhuizen heeft nieuwe club, Spurs maakt komst Robertson bekend](https://www.ad.nl/voetbal/real-madrid-wil-olise-losweken-bij-bayern-marinus-dijkhuizen-heeft-nieuwe-club-spurs-maakt-komst-robertson-bekend~a488141d/)
-  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
-- [Nederlands elftal begint eerste training in Verenigde Staten met een moment van stilte](https://www.ad.nl/wk-voetbal/nederlands-elftal-begint-eerste-training-in-verenigde-staten-met-een-moment-van-stilte~a21aca85/)
-  > De spelers, technische staf en begeleiders van het Nederlands elftal hebben voor de eerste training in de Verenigde Staten voor het WK in Orangeburg...
-- [De WK-route van Oranje richting finale: na groepsfase wacht waarschijnlijk meteen een zware kluif](https://www.ad.nl/wk-voetbal/de-wk-route-van-oranje-richting-finale-na-groepsfase-wacht-waarschijnlijk-meteen-een-zware-kluif~adf3ca91/)
-  > Het Nederlands elftal neemt het in de poulefase van het WK op tegen Zweden, Japan en Tunesië. De ploeg van bondscoach Ronald Koeman zal streven naar...
-- [Alexander Zverev bereikt finale ten koste van jonge Tsjech (20) en blijft dromen van eerste grandslamtitel](https://www.ad.nl/tennis/alexander-zverev-bereikt-finale-ten-koste-van-jonge-tsjech-20-en-blijft-dromen-van-eerste-grandslamtitel~a5be627b/)
-  > Alexander Zverev is nog altijd in de race voor zijn eerste grandslamtitel. De 29-jarige Duitser bereikte vrijdag ten koste van de jonge Tsjech Jakub...
+- [Rowan (32) verloor voor haar 18de beide ouders en zorgde voor haar broer: nu brengt ze zelf slecht nieuws in het ziekenhuis](https://www.ad.nl/binnenland/rowan-32-verloor-voor-haar-18de-beide-ouders-en-zorgde-voor-haar-broer-nu-brengt-ze-zelf-slecht-nieuws-in-het-ziekenhuis~af6a2f37/)
+  > Toen Rowan 17 was, had ze geen ouders meer. Geen geld. Geen huis. Wel een 15-jarige broer die naar haar keek voor antwoorden die ze zelf niet had. Er...
+- [Oranje moet winnen in Ierland op plaatsing voor WK in eigen hand te houden, Dominique Janssen keert terug in basis](https://www.ad.nl/voetbal/oranje-moet-winnen-in-ierland-op-plaatsing-voor-wk-in-eigen-hand-te-houden-dominique-janssen-keert-terug-in-basis~a5613f1b/)
+  > De Oranje Leeuwinnen hervatten vanavond de jacht op een ticket voor het WK voetbal van 2027. De ploeg van bondscoach Arjan Veurink neemt het in Cork...
+- [49 mensen sterven van dorst na pech met vrachtwagen in Sahara, twee mannen bereiken na 50 kilometer hulp](https://www.ad.nl/buitenland/49-mensen-sterven-van-dorst-na-pech-met-vrachtwagen-in-sahara-twee-mannen-bereiken-na-50-kilometer-hulp~a5b26801/)
+  > Bijna 50 mensen zijn omgekomen door dorst nadat een vrachtwagen die hen van Mali naar Niger vervoerde, pech kreeg in de Sahara, zo hebben lokale...
+- [Alleen de echte nieuwsjunk maakt deze wekelijkse quiz foutloos](https://www.ad.nl/quiz/alleen-de-echte-nieuwsjunk-maakt-deze-wekelijkse-quiz-foutloos~a4d19951/)
+  > Deze week kregen alle daders van de kunstroof in Assen drie jaar en elf maanden cel, en startten de openbare verhoren van de parlementaire...
+- [Russell jammert, maar wijst ook naar Verstappen: ‘Er is geen kampioen geweest zonder pech’](https://www.ad.nl/formule-1/russell-jammert-maar-wijst-ook-naar-verstappen-er-is-geen-kampioen-geweest-zonder-pech~a44c1d99/)
+  > Torenhoog waren de verwachtingen van George Russell in aanloop naar dit Formule 1-seizoen. Dit móést zijn jaar worden. Maar na flink wat pech kijkt...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [AkzoNobel kan aandeelhouders na afwijzen bod niet nog een keer teleurstellen](https://fd.nl/opinie/1598758/akzonobel-kan-aandeelhouders-na-afwijzen-bod-niet-nog-een-keer-teleurstellen)
+  > Dat een combinatie met Axalta een betere keuze is voor AkzoNobel dan een overname door concurrenten, moet het Nederlandse bedrijf nog beter uitleggen...
+- [Kritisch rapport zet aandeel Adyen onder druk, bedrijf spreekt aantijgingen tegen](https://fd.nl/financiele-markten/1599205/kritisch-rapport-zet-aandeel-adyen-onder-druk-bedrijf-spreekt-aantijgingen-tegen)
+  > Analisten van Cleveland Research plaatsen vraagtekens bij de prijzen van de dienst, het marktaandeel en het vermeende vertrek van Adyen-verkopers...
+- [Constructieve partner of felle tegenstander? JA21 kiest positie](https://fd.nl/politiek/1599078/constructieve-partner-of-felle-tegenstander-ja21-kiest-positie)
+  > Joost Eerdmans was graag in een rechts kabinet gestapt, maar dat lukte niet. Toch is de rol van zijn partij nog niet uitgespeeld.
 - [Vredesbrief Zelensky ‘herinnert Poetin eraan dat het niet goed gaat’](https://fd.nl/politiek/1598914/vredesbrief-zelensky-herinnert-poetin-eraan-dat-het-niet-goed-gaat)
   > Experts vinden Zelensky’s oproep tot vredesonderhandelingen een slimme zet. Oekraïne wint aan terrein in de lucht, terwijl de Russische economie en...
-- [Corona-enquête ontbrandt voor het eerst bij verhoor oud-RIVM-baas Jaap van Dissel](https://fd.nl/politiek/1598754/corona-enquete-ontbrandt-voor-het-eerst-bij-verhoor-oud-rivm-baas-jaap-van-dissel)
+- [Corona-enquête ontbrandt bij verhoor oud-RIVM-baas Jaap van Dissel](https://fd.nl/politiek/1598754/corona-enquete-ontbrandt-voor-het-eerst-bij-verhoor-oud-rivm-baas-jaap-van-dissel)
   > Van Dissel verwierp dat het OMT feitelijk het crisisbeleid bepaalde en daarbij te weinig oog had voor de maatschappelijke impact: ‘Dat beeld was...
-- [Choho wordt nieuwe voorzitter UWV-bestuur](https://fd.nl/politiek/1599085/choho-wordt-nieuwe-voorzitter-uwv-bestuur)
-  > Abdeluheb Choho, oud-wethouder van Amsterdam, volgt per 1 september Maarten Camps op als bestuursvoorzitter van het UWV.
-- [Strengere regels bij aanbesteding voor nieuw beheer van DigiD](https://fd.nl/politiek/1599185/strengere-regels-bij-aanbesteding-voor-nieuw-beheer-van-digid)
-  > De aanbesteding zal verlopen volgens de Aanbestedingswet Defensie en Veiligheid (ADV).
-- [Amerikaanse arbeidsmarkt verrast positief waardoor kans op renteverhoging toeneemt](https://fd.nl/economie/1599186/amerikaanse-arbeidsmarkt-verrast-positief-waardoor-kans-op-renteverhoging-toeneemt)
-  > In mei kwamen er 172.000 banen bij, het werkloosheidspercentage bleef stabiel op 4,3%. Het Bureau of Labor Statistics rapporteerde de sterkste...
 
 ### Meest gelezen
 
