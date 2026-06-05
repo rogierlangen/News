@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-06-2026 om 20:49*
+*Laatst bijgewerkt: 05-06-2026 om 22:17*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Roemenië werd kwartier voor drone-explosie gewaarschuwd door Oekraïne: 'Vrij laat'](https://nos.nl/l/2617343)
+  > Roemeense autoriteiten hoorden pas een kwartier voor de explosie in een grote haven dat Oekraïne de controle was kwijtgeraakt over vier zeedrones....
 - [Poetin wijst uitnodiging Zelensky af, ziet het nut er niet van in](https://nos.nl/l/2617330)
   > President Poetin ziet voorlopig geen nut in een ontmoeting met zijn Oekraïense ambtgenoot Zelensky. Dat zei de Russische president bij de afsluiting...
 - [21 jaar cel voor Brit in verkrachtingszaak waar andere man 17 jaar voor vastzat](https://nos.nl/l/2617325)
@@ -16,8 +18,6 @@
   > De Deense politie heeft een 28-jarige Nederlander gearresteerd. Yahye O. werd in Denemarken gezocht voor twee zware mishandelingen in 2022. Een van...
 - [De wereld van kunstcriminelen: dieven, oplichters en vervalsers](https://nos.nl/l/2617320)
   > De diefstal bij het Drents Museum in Assen zal de geschiedenisboeken ingaan als een van de opvallendste kunstroven van Nederland. Vandaag...
-- [Waarom er mannen zijn die hun partners drogeren, misbruiken en filmen](https://nos.nl/l/2617317)
-  > De recente aanhouding van vier Nederlandse mannen die ervan worden verdacht hun eigen partners te hebben gedrogeerd, verkracht en gefilmd, heeft...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Oranje Leeuwinnen lijken rechtstreekse WK-kwalificatie te kunnen vergeten na zeperd in Ierland](https://www.ad.nl/voetbal/oranje-leeuwinnen-lijken-rechtstreekse-wk-kwalificatie-te-kunnen-vergeten-na-zeperd-in-ierland~a5613f1b/)
+- [Pijnlijke avond voor Sarina Wiegman: Spanje walst over Engeland heen in WK-kwalificatie](https://www.ad.nl/voetbal/pijnlijke-avond-voor-sarina-wiegman-spanje-walst-over-engeland-heen-in-wk-kwalificatie~a51a140f/)
+  > Bondscoach Sarina Wiegman heeft in de WK-kwalificatie met Engeland een zware nederlaag geleden tegen wereldkampioen Spanje: 4-0. Daardoor hebben de...
+- [Presidentskandidaat Real Madrid wil Klopp als coach, Dijkhuizen heeft nieuwe club, Robertson blijft in Engeland](https://www.ad.nl/voetbal/presidentskandidaat-real-madrid-wil-klopp-als-coach-dijkhuizen-heeft-nieuwe-club-robertson-blijft-in-engeland~a488141d/)
+  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
+- [Oranje Leeuwinnen gaan voor schut in Ierland en laten enorme kans op rechtstreekse plaatsing liggen](https://www.ad.nl/voetbal/oranje-leeuwinnen-gaan-voor-schut-in-ierland-en-laten-enorme-kans-op-rechtstreekse-plaatsing-liggen~a5613f1b/)
   > De dag waarop de Oranje Leeuwinnen de champagne hadden kunnen ontkurken voor WK-kwalificatie, is uitgelopen op een fikse domper. In de stromende...
 - [Audi komt met spectaculaire supercar: de Nuvaolari heeft 1.001 pk](https://www.ad.nl/auto/audi-komt-met-spectaculaire-supercar-de-nuvaolari-heeft-1-001-pk~a4cd306d/)
   > Bij  Audi staat binnenkort een specatculaire supercar in de showroom. Deze Audi Nuvolari heeft een motorvermogen van maar liefst 1.001 pk en is...
 - [Dennis en Tonette verbouwen hun net gekochte huis en vinden meer dan 160 verstopte flessen drank](https://www.ad.nl/binnenland/dennis-en-tonette-verbouwen-hun-net-gekochte-huis-en-vinden-meer-dan-160-verstopte-flessen-drank~a0dcd77d/)
   > Vergeten servies, oude post, versleten kleding. Mensen laten wel eens wat achter in hun oude huis. Maar de vondst van Dennis en Tonette in hun nieuwe...
-- [Europese uitgevers klagen Google aan om advertentiepraktijken: eisen ruim 640 miljoen euro](https://www.ad.nl/economie/europese-uitgevers-klagen-google-aan-om-advertentiepraktijken-eisen-ruim-640-miljoen-euro~a4654241/)
-  > Een groep van ruim twintig Europese nieuwsuitgevers heeft Google aangeklaagd bij de rechtbank in Amsterdam. Ze eisen een schadevergoeding van meer...
-- [Acteur Anthony Head, bekend van ‘Buffy’, Ted Lasso en Little Britain, op 72-jarige leeftijd overleden](https://www.ad.nl/show/acteur-anthony-head-bekend-van-buffy-ted-lasso-en-little-britain-op-72-jarige-leeftijd-overleden~ac4c1c69/)
-  > De Britse acteur Anthony Head, die bekend werd door rollen in tv-series als Buffy the vampire slayer, Little Britain en Ted Lasso, is overleden. Dat...
 
 ### Meest gelezen
 
