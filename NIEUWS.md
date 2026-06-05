@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-06-2026 om 00:13*
+*Laatst bijgewerkt: 05-06-2026 om 05:21*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Wekdienst 5/6: Vonnis kunstroof Assen • Jaap van Dissel bij corona-commissie](https://nos.nl/l/2617199)
+  > Goedemorgen! De verdachten van de roof van Roemeense kunstschatten in Assen horen vandaag hun straf. En oud-directeur Jaap van Dissel van het RIVM...
+- [Medewerkers beruchte pornosite Motherless plaatsen zelf kinderporno](https://nos.nl/l/2617195)
+  > Medewerkers van de beruchte pornosite Motherless plaatsten de afgelopen jaren zelf veelvuldig afbeeldingen op hun site. Daar zat ook...
+- [VS legt sancties op tegen Cubaanse president Díaz-Canel en familie Castro](https://nos.nl/l/2617194)
+  > De Verenigde Staten hebben gisteren sancties opgelegd aan de Cubaanse president Miguel Díaz-Canel, zijn vrouw en drie andere Cubanen. De...
+- [Kennedy Center draagt personeel op naam Trump te verwijderen](https://nos.nl/l/2617193)
+  > Het prestigieuze Kennedy Center in Washington D.C. heeft personeel opgedragen per direct de naam van Donald Trump uit hun digitale handtekening te...
 - [Geen Arabische straatnamen in nieuwbouwwijk Bleiswijk na bezwaar van omwonenden](https://nos.nl/l/2617192)
   > Het plan van de gemeente Lansingerland om in een nieuwbouwwijk in het dorp Bleiswijk zes straten Arabische namen te geven is ingetrokken. Na klachten...
-- [Leegstand en waardedaling dreigt voor eengezinswoningen, waarschuwt ABN Amro](https://nos.nl/l/2617190)
-  > Er zijn "te veel eengezinswoningen voor te weinig gezinnen", en dit probleem wordt de komende decennia alleen maar groter. Daarvoor waarschuwt het...
-- [Weer uitstel over besluit voortbestaan Moerdijk](https://nos.nl/l/2617187)
-  > Het besluit over de toekomst van het dorp Moerdijk is opnieuw uitgesteld, meldt Omroep Brabant. Eigenlijk zou op 29 juni een besluit vallen, maar het...
-- [Hart onder de riem voor eigenaren restaurant Wijdenes na racistische leuzen](https://nos.nl/l/2617180)
-  > Bij het restaurant in Wijdenes waar dinsdag brand uitbrak en racistische leuzen op de muur werden geklad, zijn vandaag spandoeken opgehangen met een...
-- [Kitesurfer overleden door de wind op strand in Rockanje](https://nos.nl/l/2617179)
-  > Op het strand van Rockanje is een kitesurfer overleden. De wind blies hem de duinen in, waar hij hard terechtkwam. De politie bevestigt het fatale...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [VS leggen sancties op tegen Cubaanse president en familie Castro: ‘Bedoeld om het Cubaanse volk te schaden’](https://www.ad.nl/buitenland/vs-leggen-sancties-op-tegen-cubaanse-president-en-familie-castro-bedoeld-om-het-cubaanse-volk-te-schaden~ae67dd9c/)
-  > De Verenigde Staten hebben sancties opgelegd tegen de Cubaanse president Miguel Díaz-Canel. Ook zijn sancties ingesteld tegen leden van de familie...
-- [Opnieuw Nederlander aan hoofd van Belgische zeehaven: Rob Smeets nieuwe topman haven Antwerpen-Brugg](https://www.ad.nl/economie/opnieuw-nederlander-aan-hoofd-van-belgische-zeehaven-rob-smeets-nieuwe-topman-haven-antwerpen-brugg~abfb8565/)
-  > De Nederlander Rob Smeets (56) is benoemd tot nieuwe topman van de haven van Antwerpen-Brugge. Dat heeft de raad van bestuur van de belangrijkste...
-- [Charles Leclerc had naast Ferrari ook andere opties, GP van Las Vegas nog tot 2037](https://www.ad.nl/formule-1/charles-leclerc-had-naast-ferrari-ook-andere-opties-gp-van-las-vegas-nog-tot-2037~a031e149/)
-  > Het Formule 1-circus is neergestreken in de smalle straten van Monte Carlo voor de Grand Prix van Monaco. Lukt het Max Verstappen om na zijn derde...
-- [FIFA verbiedt vuvuzela’s in stadions, week voor openingsduel golf van protest in Mexico City](https://www.ad.nl/wk-voetbal/fifa-verbiedt-vuvuzelas-in-stadions-week-voor-openingsduel-golf-van-protest-in-mexico-city~a61805da/)
-  > Volgende week begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste wedstrijd. Via dit...
-- [Topfavorieten nog niet in topvorm voor WK: Ivoorkust stunt tegen Frankrijk, Irak houdt Spanje op gelijkspel](https://www.ad.nl/wk-voetbal/topfavorieten-nog-niet-in-topvorm-voor-wk-ivoorkust-stunt-tegen-frankrijk-irak-houdt-spanje-op-gelijkspel~aeb86d5a/)
-  > Frankrijk leed woensdagavond een verrassende nederlaag tegen Ivoorkust. De ploeg van bondscoach Didier Deschamps gaf de wedstrijd na rust uit handen:...
+- [Kim-Lian van der Meij vindt het heerlijk om Cruella de Vil te zijn: ‘Eindelijk mag ik de venijnige vrouw spelen’](https://www.ad.nl/show/kim-lian-van-der-meij-vindt-het-heerlijk-om-cruella-de-vil-te-zijn-eindelijk-mag-ik-de-venijnige-vrouw-spelen~ae9a460b/)
+  > Ze dacht dat een musicalcarrière definitief verleden tijd was na haar emigratie naar Zweden. Toch is Kim-Lian van der Meij (45) met een kersverse...
+- [Man pakt duivenpoep aan met zelfgebouwd AI-waterkanon dat vogels automatisch wegspuit](https://www.ad.nl/buitenland/man-pakt-duivenpoep-aan-met-zelfgebouwd-ai-waterkanon-dat-vogels-automatisch-wegspuit~adb02b07/)
+  > Niet iedereen is dol op dieren en zeker niet op duiven. Sommige mensen zien ze zelfs als ongedierte, vooral door de vele poep die ze achterlaten. Een...
+- [Nederlandse Lindsey (15) al weken vermist: ‘Aanwijzingen dat ze in België verblijft’](https://www.ad.nl/binnenland/nederlandse-lindsey-15-al-weken-vermist-aanwijzingen-dat-ze-in-belgie-verblijft~a75074af/)
+  > De 15-jarige Lindsey uit het Brabantse Ossendrecht is al ruim drie weken vermist. Ze werd op woensdag 13 mei voor het laatst gezien net buiten het...
+- [Doek valt voor Nederlandse kermisbouwer: slachtoffers ramp in VS staan met lege handen](https://www.ad.nl/binnenland/doek-valt-voor-nederlandse-kermisbouwer-slachtoffers-ramp-in-vs-staan-met-lege-handen~a1d63cdf/)
+  > Het is dodelijke horror. Meerdere mensen worden in 2017 in Ohio uit de kermisattractie Fire Ball geslingerd. De slachtoffers kunnen fluiten naar de...
+- [Nederlandse leerling (15) in kritieke toestand na elektrische schok op schoolreis in Duitsland](https://www.ad.nl/buitenland/nederlandse-leerling-15-in-kritieke-toestand-na-elektrische-schok-op-schoolreis-in-duitsland~ace5fd64/)
+  > Een leerling van de Amsterdamse middelbare school Alasca, de 15-jarige Rayan, is in de nacht van maandag op dinsdag ernstig gewond geraakt nadat hij...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [We moeten weer harder, sneller, beter](https://fd.nl/opinie/1598855/we-moeten-weer-harder-sneller-beter)
-  > Hebben we eindelijk een premier die denkt dat het wél kan, staat de Concorde alweer in het museum en duurt vliegen naar New York langer dan...
-- [Ook IHC mengt zich in strijd om Nederlandse marineschepen](https://fd.nl/bedrijfsleven/1598854/ook-ihc-mengt-zich-in-strijd-om-nederlandse-marineschepen)
-  > Het bedrijf uit Kinderdijk dingt mee voor de bouw van ondersteuningsvaartuigen. Mocht het de opdracht krijgen, dan is Damen niet meer de enige werf...
-- [Brussel stelt winstbelasting voor die innovatie bevordert en meer renteaftrek toestaat](https://fd.nl/politiek/1598853/brussel-stelt-winstbelasting-voor-die-innovatie-bevordert-en-meer-renteaftrek-toestaat)
-  > De Europese Commissie wil Europa beter laten concurreren met zijn belangrijkste handelspartners. Bedrijven moeten meer geld in R&D kunnen steken en...
-- [Europese dwangarbeid](https://fd.nl/opinie/1598713/europese-dwangarbeid)
-  > In de top 10 beste landen van de ‘Global Slavery Index’ zijn er negen Europees. De VS staan pas op plaats 41.
-- [Personalia vrijdag 5 juni](https://fd.nl/bedrijfsleven/1598856/personalia-vrijdag-5-juni)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Live: Verliest de AI-boom zijn momentum?](https://fd.nl/financiele-markten/1598749/live-verliest-de-ai-boom-zijn-momentum)
+  > Het chipbedrijf Broadcom kwam met een ietwat tegenvallende verwachting, en werd meteen afgestraft. Vandaag volgen de Amerikaanse banencijfers, die...
+- [Een sculptuur aan de wand](https://fd.nl/samenleving/1598490/een-sculptuur-aan-de-wand)
+  > Het hangt aan de muur, is vierkant of rond, abstract, rijk aan reliëf en schreeuwt erom aangeraakt te worden. Tactiele wandsculpturen zijn ineens...
+- [Ontevreden Amerikaanse kiezer loopt voor níémand meer warm](https://fd.nl/politiek/1598535/ontevreden-amerikaanse-kiezer-loopt-voor-niemand-meer-warm)
+  > Bij de Amerikaanse congresverkiezingen in november ligt een afrekening voor de Republikeinse Partij voor de hand. Maar dat betekent niet dat de...
+- [Branko was écht van plan om belasting te gaan betalen toen zijn sigarenbedrijfje van ‘nul naar duizend’ ging](https://fd.nl/samenleving/1598178/branko-was-echt-van-plan-om-belasting-te-gaan-betalen-toen-zijn-sigarenbedrijfje-van-nul-naar-duizend-ging)
+  > Een voormalige klantenservicemedewerker behaalde een miljoenenomzet met zijn bedrijfje dat sigaren en aanstekers verkoopt. Bij de Belastingdienst gaf...
+- [Komt Elon Musks grootste droom uit?](https://fd.nl/economie/1598866/komt-elon-musks-grootste-droom-uit)
+  > Vandaag in Dagkoers: een profielschets van Elon Musks SpaceX, Brussel wil winstbelasting versimpelen & ‘David’ Omoda koopt ‘Goliath’ Wehkamp
 
 ### Meest gelezen
 
