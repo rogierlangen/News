@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-06-2026 om 22:40*
+*Laatst bijgewerkt: 05-06-2026 om 00:13*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Geen Arabische straatnamen in nieuwbouwwijk Bleiswijk na bezwaar van omwonenden](https://nos.nl/l/2617192)
+  > Het plan van de gemeente Lansingerland om in een nieuwbouwwijk in het dorp Bleiswijk zes straten Arabische namen te geven is ingetrokken. Na klachten...
 - [Leegstand en waardedaling dreigt voor eengezinswoningen, waarschuwt ABN Amro](https://nos.nl/l/2617190)
   > Er zijn "te veel eengezinswoningen voor te weinig gezinnen", en dit probleem wordt de komende decennia alleen maar groter. Daarvoor waarschuwt het...
 - [Weer uitstel over besluit voortbestaan Moerdijk](https://nos.nl/l/2617187)
@@ -16,8 +18,6 @@
   > Bij het restaurant in Wijdenes waar dinsdag brand uitbrak en racistische leuzen op de muur werden geklad, zijn vandaag spandoeken opgehangen met een...
 - [Kitesurfer overleden door de wind op strand in Rockanje](https://nos.nl/l/2617179)
   > Op het strand van Rockanje is een kitesurfer overleden. De wind blies hem de duinen in, waar hij hard terechtkwam. De politie bevestigt het fatale...
-- [Zelensky roept Poetin in brief op tot persoonlijke onderhandeling](https://nos.nl/l/2617178)
-  > De Oekraïense president Zelensky roept de Russische president Poetin in een brief op tot directe onderhandelingen. Deze gesprekken kunnen volgens...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [VS leggen sancties op tegen Cubaanse president en familie Castro: ‘Bedoeld om het Cubaanse volk te schaden’](https://www.ad.nl/buitenland/vs-leggen-sancties-op-tegen-cubaanse-president-en-familie-castro-bedoeld-om-het-cubaanse-volk-te-schaden~ae67dd9c/)
+  > De Verenigde Staten hebben sancties opgelegd tegen de Cubaanse president Miguel Díaz-Canel. Ook zijn sancties ingesteld tegen leden van de familie...
+- [Opnieuw Nederlander aan hoofd van Belgische zeehaven: Rob Smeets nieuwe topman haven Antwerpen-Brugg](https://www.ad.nl/economie/opnieuw-nederlander-aan-hoofd-van-belgische-zeehaven-rob-smeets-nieuwe-topman-haven-antwerpen-brugg~abfb8565/)
+  > De Nederlander Rob Smeets (56) is benoemd tot nieuwe topman van de haven van Antwerpen-Brugge. Dat heeft de raad van bestuur van de belangrijkste...
 - [Charles Leclerc had naast Ferrari ook andere opties, GP van Las Vegas nog tot 2037](https://www.ad.nl/formule-1/charles-leclerc-had-naast-ferrari-ook-andere-opties-gp-van-las-vegas-nog-tot-2037~a031e149/)
   > Het Formule 1-circus is neergestreken in de smalle straten van Monte Carlo voor de Grand Prix van Monaco. Lukt het Max Verstappen om na zijn derde...
 - [FIFA verbiedt vuvuzela’s in stadions, week voor openingsduel golf van protest in Mexico City](https://www.ad.nl/wk-voetbal/fifa-verbiedt-vuvuzelas-in-stadions-week-voor-openingsduel-golf-van-protest-in-mexico-city~a61805da/)
   > Volgende week begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste wedstrijd. Via dit...
 - [Topfavorieten nog niet in topvorm voor WK: Ivoorkust stunt tegen Frankrijk, Irak houdt Spanje op gelijkspel](https://www.ad.nl/wk-voetbal/topfavorieten-nog-niet-in-topvorm-voor-wk-ivoorkust-stunt-tegen-frankrijk-irak-houdt-spanje-op-gelijkspel~aeb86d5a/)
   > Frankrijk leed woensdagavond een verrassende nederlaag tegen Ivoorkust. De ploeg van bondscoach Didier Deschamps gaf de wedstrijd na rust uit handen:...
-- [Kabinet houdt Amerikaanse invloed buiten DigiD: nieuwe beheerder moet uit Europa komen](https://www.ad.nl/binnenland/kabinet-houdt-amerikaanse-invloed-buiten-digid-nieuwe-beheerder-moet-uit-europa-komen~ad3cb42a/)
-  > Het volgende bedrijf dat een deel van DigiD gaat beheren moet Europees zijn. Staatssecretaris Eric van der Burg (Binnenlandse Zaken) schrijft in een...
-- [Poetin zegt bereid te zijn tot compromis in vredesonderhandelingen, Zelensky wil direct met hem om tafel](https://www.ad.nl/buitenland/poetin-zegt-bereid-te-zijn-tot-compromis-in-vredesonderhandelingen-zelensky-wil-direct-met-hem-om-tafel~ae21e63c/)
-  > Rusland is bereid compromissen te sluiten in de vredesonderhandelingen met Oekraïne als Kyiv dat ook is. Dat zei de Russische president Vladimir...
 
 ### Meest gelezen
 
