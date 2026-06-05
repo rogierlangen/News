@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-06-2026 om 18:03*
+*Laatst bijgewerkt: 05-06-2026 om 20:49*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Dader kunstroof Assen start kledingwebshop: T-shirts met afbeelding gouden helm](https://nos.nl/l/2617310)
-  > Een van de vandaag veroordeelde daders van de kunstroof in het Drents Museum blijkt een bedrijf te hebben opgericht dat kleding verkoopt die verwijst...
-- [Frans onderzoek naar mogelijke Israëlische marteling van opvarenden Gaza-vloot](https://nos.nl/l/2617308)
-  > Het Franse Openbaar Ministerie is een onderzoek begonnen naar de Israëlische behandeling van Franse burgers die deelnamen aan de Global Sumud...
-- [16-jarige jongen opgepakt voor explosie in Amsterdam bij Zuidas-kantoor](https://nos.nl/l/2617306)
-  > Een 16-jarige jongen zit vast in verband met de explosie in maart op de Amsterdamse Zuidas. De jongen wordt verdacht van betrokkenheid bij het...
-- [Podcast De Stemming: achterkamertjes, kasschuiven en cobra's](https://nos.nl/l/2617302)
-  > Het kabinet bestaat 100 dagen, maar dat vond de coalitie geen reden voor een feestje, want het vertrouwen in de regering is laag en de...
-- [Minister Van den Brink: wachtlijst asielzoekers in drie jaar weg](https://nos.nl/l/2617301)
-  > Het kabinet denkt dat de langere wachttijd waarmee de huidige asielzoekers vanaf volgende week te maken krijgen kan worden beperkt tot drie jaar. Dat...
+- [Poetin wijst uitnodiging Zelensky af, ziet het nut er niet van in](https://nos.nl/l/2617330)
+  > President Poetin ziet voorlopig geen nut in een ontmoeting met zijn Oekraïense ambtgenoot Zelensky. Dat zei de Russische president bij de afsluiting...
+- [21 jaar cel voor Brit in verkrachtingszaak waar andere man 17 jaar voor vastzat](https://nos.nl/l/2617325)
+  > Een Brit is veroordeeld tot een gevangenisstraf van 21 jaar voor een verkrachting in 2003. Een andere man zat zeventien jaar ten onrechte vast voor...
+- [Gezochte Nederlander opgepakt door Deense politie om fatale mishandeling](https://nos.nl/l/2617322)
+  > De Deense politie heeft een 28-jarige Nederlander gearresteerd. Yahye O. werd in Denemarken gezocht voor twee zware mishandelingen in 2022. Een van...
+- [De wereld van kunstcriminelen: dieven, oplichters en vervalsers](https://nos.nl/l/2617320)
+  > De diefstal bij het Drents Museum in Assen zal de geschiedenisboeken ingaan als een van de opvallendste kunstroven van Nederland. Vandaag...
+- [Waarom er mannen zijn die hun partners drogeren, misbruiken en filmen](https://nos.nl/l/2617317)
+  > De recente aanhouding van vier Nederlandse mannen die ervan worden verdacht hun eigen partners te hebben gedrogeerd, verkracht en gefilmd, heeft...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Rowan (32) verloor voor haar 18de beide ouders en zorgde voor haar broer: nu brengt ze zelf slecht nieuws in het ziekenhuis](https://www.ad.nl/binnenland/rowan-32-verloor-voor-haar-18de-beide-ouders-en-zorgde-voor-haar-broer-nu-brengt-ze-zelf-slecht-nieuws-in-het-ziekenhuis~af6a2f37/)
-  > Toen Rowan 17 was, had ze geen ouders meer. Geen geld. Geen huis. Wel een 15-jarige broer die naar haar keek voor antwoorden die ze zelf niet had. Er...
-- [Oranje moet winnen in Ierland op plaatsing voor WK in eigen hand te houden, Dominique Janssen keert terug in basis](https://www.ad.nl/voetbal/oranje-moet-winnen-in-ierland-op-plaatsing-voor-wk-in-eigen-hand-te-houden-dominique-janssen-keert-terug-in-basis~a5613f1b/)
-  > De Oranje Leeuwinnen hervatten vanavond de jacht op een ticket voor het WK voetbal van 2027. De ploeg van bondscoach Arjan Veurink neemt het in Cork...
-- [49 mensen sterven van dorst na pech met vrachtwagen in Sahara, twee mannen bereiken na 50 kilometer hulp](https://www.ad.nl/buitenland/49-mensen-sterven-van-dorst-na-pech-met-vrachtwagen-in-sahara-twee-mannen-bereiken-na-50-kilometer-hulp~a5b26801/)
-  > Bijna 50 mensen zijn omgekomen door dorst nadat een vrachtwagen die hen van Mali naar Niger vervoerde, pech kreeg in de Sahara, zo hebben lokale...
-- [Alleen de echte nieuwsjunk maakt deze wekelijkse quiz foutloos](https://www.ad.nl/quiz/alleen-de-echte-nieuwsjunk-maakt-deze-wekelijkse-quiz-foutloos~a4d19951/)
-  > Deze week kregen alle daders van de kunstroof in Assen drie jaar en elf maanden cel, en startten de openbare verhoren van de parlementaire...
-- [Russell jammert, maar wijst ook naar Verstappen: ‘Er is geen kampioen geweest zonder pech’](https://www.ad.nl/formule-1/russell-jammert-maar-wijst-ook-naar-verstappen-er-is-geen-kampioen-geweest-zonder-pech~a44c1d99/)
-  > Torenhoog waren de verwachtingen van George Russell in aanloop naar dit Formule 1-seizoen. Dit móést zijn jaar worden. Maar na flink wat pech kijkt...
+- [Oranje Leeuwinnen lijken rechtstreekse WK-kwalificatie te kunnen vergeten na zeperd in Ierland](https://www.ad.nl/voetbal/oranje-leeuwinnen-lijken-rechtstreekse-wk-kwalificatie-te-kunnen-vergeten-na-zeperd-in-ierland~a5613f1b/)
+  > De dag waarop de Oranje Leeuwinnen de champagne hadden kunnen ontkurken voor WK-kwalificatie, is uitgelopen op een fikse domper. In de stromende...
+- [Audi komt met spectaculaire supercar: de Nuvaolari heeft 1.001 pk](https://www.ad.nl/auto/audi-komt-met-spectaculaire-supercar-de-nuvaolari-heeft-1-001-pk~a4cd306d/)
+  > Bij  Audi staat binnenkort een specatculaire supercar in de showroom. Deze Audi Nuvolari heeft een motorvermogen van maar liefst 1.001 pk en is...
+- [Dennis en Tonette verbouwen hun net gekochte huis en vinden meer dan 160 verstopte flessen drank](https://www.ad.nl/binnenland/dennis-en-tonette-verbouwen-hun-net-gekochte-huis-en-vinden-meer-dan-160-verstopte-flessen-drank~a0dcd77d/)
+  > Vergeten servies, oude post, versleten kleding. Mensen laten wel eens wat achter in hun oude huis. Maar de vondst van Dennis en Tonette in hun nieuwe...
+- [Europese uitgevers klagen Google aan om advertentiepraktijken: eisen ruim 640 miljoen euro](https://www.ad.nl/economie/europese-uitgevers-klagen-google-aan-om-advertentiepraktijken-eisen-ruim-640-miljoen-euro~a4654241/)
+  > Een groep van ruim twintig Europese nieuwsuitgevers heeft Google aangeklaagd bij de rechtbank in Amsterdam. Ze eisen een schadevergoeding van meer...
+- [Acteur Anthony Head, bekend van ‘Buffy’, Ted Lasso en Little Britain, op 72-jarige leeftijd overleden](https://www.ad.nl/show/acteur-anthony-head-bekend-van-buffy-ted-lasso-en-little-britain-op-72-jarige-leeftijd-overleden~ac4c1c69/)
+  > De Britse acteur Anthony Head, die bekend werd door rollen in tv-series als Buffy the vampire slayer, Little Britain en Ted Lasso, is overleden. Dat...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Technologieaandelen in de uitverkoop op Wall Street](https://fd.nl/financiele-markten/1599106/technologieaandelen-in-de-uitverkoop-op-wall-street)
+  > Rentevrees na een sterk banenrapport en winstnemingen kleuren de indices rood.
+- [AI-bedrijven hard onderuit op Wall Street, Meta wil nieuwe aandelen uitgeven](https://fd.nl/financiele-markten/1599220/ai-bedrijven-hard-onderuit-op-wall-street-meta-wil-nieuwe-aandelen-uitgeven)
+  > Aandelen van bedrijven die verdienen  aan de opkomst van AI verloren vrijdag veel terrein. De Nasdaq handelt bijna 5% lager.
+- [Amerikaanse staten bereiden rechtszaak voor tegen overname Warner Bros. door Paramount](https://fd.nl/bedrijfsleven/1599209/amerikaanse-staten-bereiden-rechtszaak-voor-tegen-overname-warner-bros-door-paramount)
+  > Een juridische strijd zou de voorgenomen deal van $110 mrd aanzienlijk kunnen vertragen.
 - [AkzoNobel kan aandeelhouders na afwijzen bod niet nog een keer teleurstellen](https://fd.nl/opinie/1598758/akzonobel-kan-aandeelhouders-na-afwijzen-bod-niet-nog-een-keer-teleurstellen)
   > Dat een combinatie met Axalta een betere keuze is voor AkzoNobel dan een overname door concurrenten, moet het Nederlandse bedrijf nog beter uitleggen...
 - [Kritisch rapport zet aandeel Adyen onder druk, bedrijf spreekt aantijgingen tegen](https://fd.nl/financiele-markten/1599205/kritisch-rapport-zet-aandeel-adyen-onder-druk-bedrijf-spreekt-aantijgingen-tegen)
   > Analisten van Cleveland Research plaatsen vraagtekens bij de prijzen van de dienst, het marktaandeel en het vermeende vertrek van Adyen-verkopers...
-- [Constructieve partner of felle tegenstander? JA21 kiest positie](https://fd.nl/politiek/1599078/constructieve-partner-of-felle-tegenstander-ja21-kiest-positie)
-  > Joost Eerdmans was graag in een rechts kabinet gestapt, maar dat lukte niet. Toch is de rol van zijn partij nog niet uitgespeeld.
-- [Vredesbrief Zelensky ‘herinnert Poetin eraan dat het niet goed gaat’](https://fd.nl/politiek/1598914/vredesbrief-zelensky-herinnert-poetin-eraan-dat-het-niet-goed-gaat)
-  > Experts vinden Zelensky’s oproep tot vredesonderhandelingen een slimme zet. Oekraïne wint aan terrein in de lucht, terwijl de Russische economie en...
-- [Corona-enquête ontbrandt bij verhoor oud-RIVM-baas Jaap van Dissel](https://fd.nl/politiek/1598754/corona-enquete-ontbrandt-voor-het-eerst-bij-verhoor-oud-rivm-baas-jaap-van-dissel)
-  > Van Dissel verwierp dat het OMT feitelijk het crisisbeleid bepaalde en daarbij te weinig oog had voor de maatschappelijke impact: ‘Dat beeld was...
 
 ### Meest gelezen
 
