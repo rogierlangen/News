@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-06-2026 om 20:12*
+*Laatst bijgewerkt: 06-06-2026 om 22:06*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Aantal orgaandonoren Noorwegen explosief gestegen na bericht over zieke kroonprinses](https://nos.nl/l/2617458)
+  > Sinds bekend is dat de Noorse kroonprinses Mette-Marit op een wachtlijst staat voor een longtransplantatie is het aantal mensen dat zich in Noorwegen...
+- [Slang van 1,5 meter lang gedumpt bij kringloopwinkel in Arnhem](https://nos.nl/l/2617456)
+  > In een kringloopwinkel hoop je altijd op een bijzondere vondst, maar van deze vondst schrokken de medewerkers van 2Switch in Arnhem toch wel flink....
 - [Pro-Europese premier Armenië stevent af op verkiezingswinst, ondanks Russische druk](https://nos.nl/l/2617454)
   > Vrede met buurland Azerbeidzjan en toenadering tot de Europese Unie: dat zijn de centrale thema's bij de parlementsverkiezingen van morgen in...
-- [Holocaustmuseum werkt niet mee aan bezoek Ye, protest bij Gelredome tegen rapper](https://nos.nl/l/2617451)
+- [Holocaustmuseum werkt niet mee aan bezoek Ye, concert zonder incidenten verlopen](https://nos.nl/l/2617451)
   > Het Nationaal Holocaustmuseum in Amsterdam is niet van plan om mee te werken aan een bezoek van de omstreden rapper Ye, voorheen Kanye West. Het...
 - [Ultrazwemmer doet 'rondje Helgoland' in alleen een zwembroek](https://nos.nl/l/2617445)
   > Een Duitse ultrasporter heeft rond het Noordzee-eiland Helgoland gezwommen. André Wiersig deed ruim 3 uur over de tocht van 11 kilometer door zeer...
-- ['Gronings chemiebedrijf liet illegaal zoutafval dumpen rond Nederlands-Belgische grens'](https://nos.nl/l/2617444)
-  > Een chemiebedrijf uit het Groningse Farmsum heeft de afgelopen drie jaar zo'n 5 miljoen kilo afvalzout illegaal laten dumpen nabij de...
-- [China kijkt massaal naar het WK, maar het voetbal in eigen land blijft achter](https://nos.nl/l/2617443)
-  > Nergens ter wereld kijken meer mensen naar het wereldkampioenschap voetbal dan in China. Tijdens het vorige WK van 2022 was China goed voor de helft...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Engeland en Duitsland hebben hun eerste (oefen)zege te pakken in de VS](https://www.ad.nl/wk-voetbal/engeland-en-duitsland-hebben-hun-eerste-oefen-zege-te-pakken-in-de-vs~a2f6468c/)
+  > Duitsland heeft de laatste oefenwedstrijd in de aanloop naar het WK gewonnen van de Verenigde Staten. In Chicago was de ploeg van bondscoach Julian...
+- [Topturn­ster Simone Biles belandt in ziekenhuis ‘Een van meest angstaanja­gen­de ervaringen in mijn leven’](https://www.ad.nl/sport/topturnster-simone-biles-belandt-in-ziekenhuis-een-van-meest-angstaanjagende-ervaringen-in-mijn-leven~ad5c9ce2/)
+  > Topturnster Simone Biles is afgelopen week opgeschrikt door een medische noodsituatie. De Amerikaanse stelt op Instagram dat ze een...
+- [Gemoederen raken verhit tijdens uitzwaaiduel van Portugal tegen Chili: twee keer rood](https://www.ad.nl/wk-voetbal/gemoederen-raken-verhit-tijdens-uitzwaaiduel-van-portugal-tegen-chili-twee-keer-rood~aca4ef7a/)
+  > Portugal heeft een oefenwedstrijd voorafgaand aan het WK voetbal in de Verenigde Staten, Canada en Mexico gewonnen. In het Estádio Nacional in Oeiras...
+- [Comedy Capers in Kopenhagen: toernooiwinnaar Michael van Gerwen stuurt ‘Elvis Presley’ weg tijdens dartspartij](https://www.ad.nl/darts/comedy-capers-in-kopenhagen-toernooiwinnaar-michael-van-gerwen-stuurt-elvis-presley-weg-tijdens-dartspartij~a226568d/)
+  > Michael van Gerwen heeft als drievoudig wereldkampioen veel dingen meegemaakt in zijn dartscarrière, maar zaterdagavond kwam daar tijdens de Nordic...
 - [Noraly Beyer: ‘Joost Prinsen wilde na herseninfarct niet verder leven’](https://www.ad.nl/show/noraly-beyer-joost-prinsen-wilde-na-herseninfarct-niet-verder-leven~a3fb408f/)
   > Joost Prinsen wilde na zijn herseninfarct in oktober 2025 niet meer verder leven. De presentator was half verlamd geraakt en kon niet goed meer...
-- [LIVE WK voetbal | Iraans elftal moet VS op speeldagen nog op dezelfde dag verlaten](https://www.ad.nl/wk-voetbal/live-wk-voetbal-iraans-elftal-moet-vs-op-speeldagen-nog-op-dezelfde-dag-verlaten~a61805da/)
-  > Komende donderdag begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste wedstrijd. Via...
-- [Van Sergiño Dest tot Nando Pijnaker: deze geboren Nederlanders spelen op het WK niet voor Oranje](https://www.ad.nl/wk-voetbal/van-sergino-dest-tot-nando-pijnaker-deze-geboren-nederlanders-spelen-op-het-wk-niet-voor-oranje~a816e9d2/)
-  > Bondscoach Ronald Koeman mag dan wel ‘slechts’ 26 spelers selecteren voor het Nederlands elftal, toch kleurt het WK behoorlijk oranje. 41 in...
-- [‘Dit valt op een slecht moment’: Tunesië, tegenstander van Oranje op WK, in zak en as na oorwassing](https://www.ad.nl/voetbal/dit-valt-op-een-slecht-moment-tunesie-tegenstander-van-oranje-op-wk-in-zak-en-as-na-oorwassing~a6caf863/)
-  > Er is werk aan de winkel voor Tunesië. Het Noord-Afrikaanse land liep zaterdagmiddag een forse nederlaag op tegen België: 5-0. Sabri Lamouchi,...
-- [Natuurgebied loopt onder water door storing, nesten vol eieren broedvogels spoelen weg](https://www.ad.nl/binnenland/natuurgebied-loopt-onder-water-door-storing-nesten-vol-eieren-broedvogels-spoelen-weg~a4890507/)
-  > Een technische storing in een stuw heeft een natuurgebied vol broedende vogels onder water gezet. Natuurgebied Ootmaanlanden bij het Drentse Uffelte...
 
 ### Meest gelezen
 
