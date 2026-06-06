@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-06-2026 om 10:08*
+*Laatst bijgewerkt: 06-06-2026 om 12:07*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Met vliegende eekhoorn als inspiratie ontwikkelde TU Delft nieuwe drone](https://nos.nl/l/2617386)
+  > Onderzoekers van de TU Delft halen hun inspiratie voor het ontwerp van drones uit de natuur. Hun nieuwste ontwerp is gebaseerd op vliegende...
+- [Zeeland stemt voor strenger toerismebeleid, kustgemeenten niet blij](https://nos.nl/l/2617383)
+  > Genoeg is genoeg. Ten minste, dat zegt de provincie Zeeland over het aantal minicampings, vakantiehuisjes en B&B's aan de Zeeuwse stranden. In de...
+- [Ye-fans worstelen met beladen concertbezoek: 'Ik ga puur voor de muziek'](https://nos.nl/l/2617379)
+  > Rapper en muziekproducent Ye, voorheen Kanye West, treedt vandaag en maandag op voor tienduizenden bezoekers in het Gelredome in Arnhem. Het is zijn...
 - [Van fiasco tot proefvaart: Kim Jong-un inspecteert gerepareerde torpedojager](https://nos.nl/l/2617373)
   > De Noord-Koreaanse dictator Kim Jong-un heeft een oorlogsschip geïnspecteerd tijdens zeetests, nadat datzelfde schip vorig jaar nog zwaar beschadigd...
 - [Twee dagen na bestand doodt Israël meerdere inzittenden van Libanees legervoertuig](https://nos.nl/l/2617371)
   > Bij een Israëlische aanval op het zuiden van Libanon zijn meerdere strijdkrachten van het Libanese leger om het leven gekomen, melden het Libanese...
-- [Kopzorgen in Australië om konijnenplaag: 'We moeten ze uitroeien'](https://nos.nl/l/2617370)
-  > In Australië zijn er zorgen over het aantal konijnen dat exponentieel toeneemt, terwijl de belangrijkste manier om de opmars van de invasieve...
-- [In basketbalgek New York openen Knicks-fans de aanval op 'verrader' Elmo](https://nos.nl/l/2617364)
-  > "Ik ben teleurgesteld in je, maat." Het is een van de duizenden reacties onder een X-bericht van Elmo, waarin de rode muppet uit het kinderprogramma...
-- [Britse acteur Anthony Head (72) overleden, bekend van Buffy en Ted Lasso](https://nos.nl/l/2617361)
-  > De Britse acteur Anthony Head, bekend van televisieseries zoals Buffy the Vampire Slayer, Ted Lasso en Little Britain, is op 72-jarige leeftijd...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Harry Styles bedankt Amsterdam na recordbrekende concertreeks in Arena: ‘Ik hou van jou’](https://www.ad.nl/show/harry-styles-bedankt-amsterdam-na-recordbrekende-concertreeks-in-arena-ik-hou-van-jou~a0036af5/)
-  > Harry Styles heeft zaterdag Amsterdam met een pagina in Het Parool bedankt voor de gastvrijheid van de afgelopen weken. Op de achterpagina van de...
-- [Kan Max Verstappen na goede eerste dag stijgende lijn doortrekken tijdens derde vrije training in Monaco?](https://www.ad.nl/formule-1/kan-max-verstappen-na-goede-eerste-dag-stijgende-lijn-doortrekken-tijdens-derde-vrije-training-in-monaco~a78ac15a/)
-  > Na een sterke eerste dag met twee derde plekken achter de Ferrari’s hoopt Max Verstappen nog een stap vooruit te zetten tijdens de derde vrije...
-- [Afvallen? Medicatie zorgt voor revolutie, zegt expert: ‘Jaren diëten is hopeloos achterhaald’](https://www.ad.nl/binnenland/afvallen-medicatie-zorgt-voor-revolutie-zegt-expert-jaren-dieten-is-hopeloos-achterhaald~a3eb655a/)
-  > Nederland staat aan het begin van een grote verandering in de aanpak van overgewicht. Dat zegt Chris Mulder uit Arnhem, emeritus hoogleraar maag-,...
-- [Libanon hekelt ‘barbaarse’ aanval op militair voertuig, stafleden Iraans elftal hebben nog geen visum voor VS](https://www.ad.nl/buitenland/libanon-hekelt-barbaarse-aanval-op-militair-voertuig-stafleden-iraans-elftal-hebben-nog-geen-visum-voor-vs~ac528ac3/)
-  > Het Libanese leger heeft gemeld dat bij ‘een barbaarse Israëlische aanval op een militair voertuig’ in het zuiden van het land meerdere Libanese...
-- [Gemaskerde anti-azc-demonstranten klimmen met fakkels op dak stadhuis in Wijk bij Duurstede](https://www.ad.nl/wijk-bij-duurstede/gemaskerde-anti-azc-demonstranten-klimmen-met-fakkels-op-dak-stadhuis-in-wijk-bij-duurstede~a9624bf9/)
-  > Acht jonge mannen hebben vrijdagavond rond tien uur het plateau boven de toegangsdeur van het gemeentehuis in Wijk bij Duurstede beklommen. Met...
+- [Joost Eerdmans is wel erg stil in het asieldebat, en dat is bewust](https://www.ad.nl/politiek/joost-eerdmans-is-wel-erg-stil-in-het-asieldebat-en-dat-is-bewust~a5b7873c/)
+  > Voor een rechtse partij is JA21 de laatste weken wel érg stil in het asieldebat. Daar zit een strategie achter. De partij wil zich positioneren als...
+- [Ben je wel trittsicher en schwindelfrei?](https://www.ad.nl/mezza/ben-je-wel-trittsicher-en-schwindelfrei~ac271602/)
+  > Bergwandelen is journalist Dewi van Deurzen (34) met de paplepel ingegoten, maar ze beseft, schrijft ze in ons weekendmagazine Mezza, hoe dun de lijn...
+- [Zo laat begint Verstappen vanmiddag aan de kwalificatie van de eerste Europese race van het seizoen](https://www.ad.nl/formule-1/zo-laat-begint-verstappen-vanmiddag-aan-de-kwalificatie-van-de-eerste-europese-race-van-het-seizoen~aa97896b/)
+  > Het Formule 1-circus heeft de oversteek gemaakt van Noord-Amerika naar Europa. Voor Max Verstappen en zijn collega’s staat misschien wel de meest...
+- [Max Verstappen met vraagtekens kwalificatie in, Kimi Antonelli imponeert in laatste training](https://www.ad.nl/formule-1/max-verstappen-met-vraagtekens-kwalificatie-in-kimi-antonelli-imponeert-in-laatste-training~a78ac15a/)
+  > Max Verstappen gaat met weinig vertrouwen de kwalificatie van later vanmiddag in. De Nederlander eindigde als vijfde in de laatste vrije training...
+- [WHO: ‘Bijna 500 ebolagevallen in Centraal-Afrika’](https://www.ad.nl/buitenland/who-bijna-500-ebolagevallen-in-centraal-afrika~a7dc735d/)
+  > Er zijn tot nu toe bijna vijfhonderd bevestigde ebolagevallen gemeld in Centraal-Afrika, aldus de Wereldgezondheidsorganisatie (WHO). 452 mensen in...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Opnieuw beschietingen tussen Iran en de VS, Golfstaten aangevallen](https://fd.nl/politiek/1599223/opnieuw-beschietingen-tussen-iran-en-de-vs-golfstaten-aangevallen)
+  > De VS vuurden vrijdag raketten af op Iraanse radarinstallaties, terwijl Iran droneaanvallen op scheepsverkeer uitvoerde. Ook werden de Golfstaten...
 - [President Trump overweegt overheidsbelang in AI-bedrijven](https://fd.nl/financiele-markten/1599222/president-trump-overweegt-overheidsbelang-in-ai-bedrijven)
   > De Amerikaanse president Trump staat open voor een belang van de Amerikaanse overheid in AI-bedrijven als Anthropic, xAI en OpenAI.
 - [Oostenrijk verliest AAA-kredietscore door hoge begrotingstekorten](https://fd.nl/financiele-markten/1599221/oostenrijk-verliest-aaa-status-door-hoge-begrotingstekorten)
@@ -54,8 +56,6 @@
   > Miljarden dollars aan indexgeld staan klaar voor SpaceX, OpenAI en Anthropic. Maar als passieve beleggers verplicht moeten kopen, wie bepaalt er dan...
 - [SpaceX neemt kleine beleggers mee de ruimte in: ‘Rondom de beursgang hangt een enorme fomo’](https://fd.nl/financiele-markten/1598910/spacex-neemt-kleine-beleggers-mee-de-ruimte-in-rondom-de-beursgang-hangt-een-enorme-fomo)
   > Nederlandse particuliere beleggers kijken uit naar de beursgang van SpaceX. Maar er is ook kritiek op een indexsamensteller die de regels versoepelt...
-- [Skaters aan de oceaan in Marokko](https://fd.nl/samenleving/1598788/skaters-aan-de-oceaan-in-marokko)
-  > Fotograaf Anneloes Pabbruwee is gefascineerd door jongeren. Hun verbondenheid en positiviteit tijdens de overgang van kind naar volwassene vangt ze...
 
 ### Meest gelezen
 
