@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-06-2026 om 14:44*
+*Laatst bijgewerkt: 06-06-2026 om 16:09*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Indiase Kakkerlakken-beweging houdt in New Delhi eerste grote offline protest](https://nos.nl/l/2617424)
+  > In India heeft de leider van de piepjonge en razendpopulaire Kakkerlakken-beweging voor het eerst een protest aangevoerd tegen de regering. Oprichter...
+- [ASML-medewerkers dreigen met boycot intern evenement na uitnodiging Elon Musk](https://nos.nl/l/2617421)
+  > Medewerkers van chipmachineproducent ASML zeggen een intern evenement te boycotten waarvoor Elon Musk is uitgenodigd. De techmiljardair is door ASML...
+- [Geen noodpaspoorten beschikbaar door storing marechaussee](https://nos.nl/l/2617417)
+  > Door een landelijke storing in de interne systemen van de Koninklijke Marechaussee kunnen reizigers sinds vanmiddag geen noodpaspoort aanvragen.
+    ...
+- [Driedaags huwelijksfeest Dua Lipa frustreert Palermo: 'Stad niet te huur'](https://nos.nl/l/2617413)
+  > De wereldberoemde Britse popster Dua Lipa (30) en acteur Callum Turner (36) pakken dit weekend uit met een driedaags huwelijksfeest in Palermo....
 - [Verborgen lhbti-verleden van Utrecht nu zichtbaar: 'Homovervolging begon hier'](https://nos.nl/l/2617406)
   > De botenparade van de Utrecht Pride vanmiddag moet de zichtbaarheid van de lhbti-gemeenschap vergroten. Maar Utrecht heeft ook een lange...
-- [Palestijnse baby gedood door Israëlische leger op bezette Westelijke Jordaanoever](https://nos.nl/l/2617400)
-  > Het Israëlische leger heeft een baby doodgeschoten en zijn ouders verwond op de bezette Westelijke Jordaanoever. Dat gebeurde toen een militair op...
-- [Leden ChristenUnie scharen zich achter strengere asielkoers van partijtop](https://nos.nl/l/2617395)
-  > De leden van oppositiepartij ChristenUnie staan achter de strengere asielkoers van de fractie in de Tweede Kamer. Dit werd vandaag duidelijk tijdens...
-- [Podcast De Dag: de wereld achter anti-azc-stickers](https://nos.nl/l/2617391)
-  > Nieuwsuur deed onderzoek naar de zeven belangrijkste Nederlandse webwinkels die anti-azc-merchandise verkopen. De drie shops met de meeste volgers...
-- [Met vliegende eekhoorn als inspiratie ontwikkelde TU Delft nieuwe drone](https://nos.nl/l/2617386)
-  > Onderzoekers van de TU Delft halen hun inspiratie voor het ontwerp van drones uit de natuur. Hun nieuwste ontwerp is gebaseerd op vliegende...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Scheepskok Hans (63): ‘In de offshore verdubbelde mijn salaris’](https://www.ad.nl/werk/scheepskok-hans-63-in-de-offshore-verdubbelde-mijn-salaris~ab30b3fc/)
-  > Hans (63) is kok op een baggerschip. Hij verzorgt maaltijden voor vijftien bemanningsleden. Hij werkt steeds vier weken aan boord en is dan vier...
-- [Zonder ticket een glimp opvangen van Max Verstappen en co: ‘Gratis? Haha, dit is Monaco, meneer’](https://www.ad.nl/formule-1/zonder-ticket-een-glimp-opvangen-van-max-verstappen-en-co-gratis-haha-dit-is-monaco-meneer~a963f4fa/)
-  > Natuurlijk, in het bezit van een dikke portemonnee kun je ‘gewoon’ een kaartje kopen voor de Grand Prix van Monaco. Maar is er op het unieke...
-- [Andreeva op koers voor titel na inzinking van Chwalinska](https://www.ad.nl/tennis/andreeva-op-koers-voor-titel-na-inzinking-van-chwalinska~ab943658/)
-  > Maja Chwalinska is de daverende verrassing op Roland Garros. De Poolse qualifier begon als nummer 114 van de wereld aan het toernooi en schopte het...
-- [Maxime Meiland geeft uitgebreide housetour en Jeroen van der Boom zorgt voor steigerconcert](https://www.ad.nl/show/maxime-meiland-geeft-uitgebreide-housetour-en-jeroen-van-der-boom-zorgt-voor-steigerconcert~a1f0d9f9/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Max Verstappen goed van start in kwalificatie, Bortoleto crasht en zorgt voor rode vlag](https://www.ad.nl/formule-1/max-verstappen-goed-van-start-in-kwalificatie-bortoleto-crasht-en-zorgt-voor-rode-vlag~afa4ad71/)
-  > Het is tijd voor de belangrijkste kwalificatiesessie van het Formule 1-seizoen. Poleposition pakken in Monaco is namelijk bijna een garantie voor de...
+- [Gelredome stroomt vol voor omstreden megashow Ye, protest tegen komst rapper is begonnen](https://www.ad.nl/binnenland/gelredome-stroomt-vol-voor-omstreden-megashow-ye-protest-tegen-komst-rapper-is-begonnen~a5586e59/)
+  > Het is misschien wel de meest besproken en beladen concertreeks van het jaar. Vanavond staat het Amerikaanse rapicoon Kanye West (Ye) in een...
+- [Zo laat begint Max Verstappen zondag vanaf de eerste rij aan de race en dit is de startopstelling](https://www.ad.nl/formule-1/zo-laat-begint-max-verstappen-zondag-vanaf-de-eerste-rij-aan-de-race-en-dit-is-de-startopstelling~aa97896b/)
+  > Voor Max Verstappen en zijn collega’s staat zondag de meest prestigieuze race van de kalender op het programma: de Grand Prix van Monaco. De...
+- [Sprookjesbruiloft eindigt in ruzie en scheiding voor MAFS-Danique: ‘Maar het heeft mij veel gebracht’](https://www.ad.nl/show/sprookjesbruiloft-eindigt-in-ruzie-en-scheiding-voor-mafs-danique-maar-het-heeft-mij-veel-gebracht~ac13a050/)
+  > Danique Houtkooper sprong in het diepe en deed wat maar weinigen durven: trouwen met een wildvreemde. Het had het ultieme sprookje moeten worden,...
+- [Vollering wint door lawine ingekorte bergetappe, Van der Breggen dicht bij eindzege](https://www.ad.nl/wielrennen/vollering-wint-door-lawine-ingekorte-bergetappe-van-der-breggen-dicht-bij-eindzege~a3656c78/)
+  > Demi Vollering heeft de achtste etappe van de Giro d’Italia gewonnen. De Nederlandse nummer 2 van het algemeen klassement was de sterkste in een...
+- [‘Als je dat gisteren had gezegd, had ik je niet geloofd’: Verstappen mist pole nipt, Antonelli de snelste](https://www.ad.nl/formule-1/als-je-dat-gisteren-had-gezegd-had-ik-je-niet-geloofd-verstappen-mist-pole-nipt-antonelli-de-snelste~afa4ad71/)
+  > Tóch weer Kimi Antonelli. Het is ‘gewoon’ de 19-jarige WK-leider uit Italië die zondag met zijn Mercedes vooraan start bij de Grand Prix van Monaco....
 
 ### Meest gelezen
 
@@ -46,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [‘Videosollicitaties vormen alleen maar een extra drempel om te solliciteren’](https://fd.nl/opinie/1598720/videosollicitaties-vormen-alleen-maar-een-extra-drempel-om-te-solliciteren-en-andere-lezersreacties)
+  > FD-lezers reageren op de waarde van motivatiebrieven en de scheve (luxe én technologische) handelsbalans tussen Europa en de Verenigde Staten.
 - [Oekraïense drones raken opnieuw oliedepots, dag nadat Poetin onderhandelingen weigerde](https://fd.nl/politiek/1599109/oekraiense-drones-raken-opnieuw-oliedepots-dag-nadat-poetin-onderhandelingen-weigerde)
   > Oekraïne raakt opnieuw doelen diep in Rusland, deze keer op zo’n duizend kilometer van de Oekraïense grens.
 - [Opnieuw beschietingen tussen Iran en de VS, Golfstaten aangevallen](https://fd.nl/politiek/1599223/opnieuw-beschietingen-tussen-iran-en-de-vs-golfstaten-aangevallen)
@@ -54,8 +57,6 @@
   > De Amerikaanse president Trump staat open voor een belang van de Amerikaanse overheid in AI-bedrijven als Anthropic, xAI en OpenAI.
 - [Oostenrijk verliest AAA-kredietscore door hoge begrotingstekorten](https://fd.nl/financiele-markten/1599221/oostenrijk-verliest-aaa-status-door-hoge-begrotingstekorten)
   > Kredietbeoordelingsbureau Morningstar DBRS heeft de score van Oostenrijk verlaagd naar AA. Het volgt op eerdere verlagingen van de grote drie...
-- [Wat zijn de gevaren van de megabeursgang SpaceX?](https://fd.nl/economie/1599081/wat-zijn-de-gevaren-van-de-megabeursgang-spacex)
-  > Miljarden dollars aan indexgeld staan klaar voor SpaceX, OpenAI en Anthropic. Maar als passieve beleggers verplicht moeten kopen, wie bepaalt er dan...
 
 ### Meest gelezen
 
