@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-06-2026 om 18:06*
+*Laatst bijgewerkt: 07-06-2026 om 20:15*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Iran vuurt voor het eerst sinds staakt-het-vuren weer raketten af op Israël](https://nos.nl/l/2617556)
+  > Voor het eerst sinds het fragiele staakt-het-vuren tussen Israël, de VS en Iran heeft Iran raketten op Israël afgevuurd. In het noorden van Israël...
+- [Overlevende kindertransporten WO II: 'Niemand lijkt iets geleerd te hebben'](https://nos.nl/l/2617552)
+  > Bij Nationaal Monument Kamp Vught is vandaag een van de meest tragische gebeurtenissen uit de Tweede Wereldoorlog in Nederland herdacht: de...
+- [In de Ugandese stad Bundibugyo is ebola nooit ver weg: "Die naam moet weg"](https://nos.nl/l/2617546)
+  > De ebolavariant die nu slachtoffers maakt in het oosten van Congo draagt de naam Bundibugyo, vernoemd naar een stadje in Uganda waar het virus bijna...
 - [Onderzoek bevestigt: grootste onderschepte cocaïnetransport ooit kwam van Jos L.](https://nos.nl/l/2617541)
   > Het grootste onderschepte cocaïnetransport ooit, vorige maand ten zuiden van de Canarische Eilanden op het vrachtschip de Arconian, werd vrijwel...
-- [Twee doden bij Israëlische aanvallen Beiroet, Trump wil Libanon buiten Iran-deal](https://nos.nl/l/2617526)
-  > Israël heeft vanmiddag nieuwe luchtaanvallen uitgevoerd op de zuidelijke buitenwijken van de Libanese hoofdstad Beiroet. Volgens Libanese staatsmedia...
-- [Gazaanse verslaggever ondersteunt vanuit Nederland Palestijnse collega's](https://nos.nl/l/2617518)
-  > Tweeënhalf jaar lang versloeg Hisham Zaqout als journalist de oorlog in Gaza. Hij is nu in Nederland om met zijn ervaring journalisten in...
-- [Zeker 360 door Boko Haram ontvoerde Nigerianen bevrijd door het leger](https://nos.nl/l/2617516)
-  > Het Nigeriaanse leger heeft zeker 360 mensen bevrijd die waren ontvoerd door terreurorganisatie Boko Haram. Het gaat vooral om vrouwen en kinderen...
-- [Man (22) op straat beschoten in Berkel-Enschot, mogelijk vanuit woning](https://nos.nl/l/2617492)
-  > Een man (22) uit Apeldoorn is vanochtend op straat in Berkel-Enschot gewond geraakt bij een beschieting. Buurtbewoners zeggen dat de man vanuit een...
+- [Iran dreigt met aanvallen na Israëlische bombardementen Beiroet en uitspraken Trump](https://nos.nl/l/2617526)
+  > Iran dreigt met nieuwe aanvallen op Amerikaanse bases en Israëlische doelen in het Midden-Oosten. De waarschuwing volgt op Israëlische luchtaanvallen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Huisslaaf of surrogaatdochter? Rechter moet oordelen of werk op paardenhouderij voor vrouw (33) dwang was](https://www.ad.nl/binnenland/huisslaaf-of-surrogaatdochter-rechter-moet-oordelen-of-werk-op-paardenhouderij-voor-vrouw-33-dwang-was~a27bccc7/)
-  > Week in week, uit paarden borstelen, met schep en bezem de stal schoonhouden, sjouwen met zware zadels en het woonhuis schoonmaken. En als je dan na...
-- [‘Meest onverwachte zege’ in Giro is nieuw markeringspunt voor Demi Vollering](https://www.ad.nl/wielrennen/meest-onverwachte-zege-in-giro-is-nieuw-markeringspunt-voor-demi-vollering~a978913d/)
-  > Een ultieme coup op de slotdag bezorgde Demi Vollering de winst in de Giro d’Italia. Ze heeft nu alle grote rondes gewonnen. Anna van der Breggen...
-- [Tijden GP Barcelona | Zo laat komt Max Verstappen in actie op circuit waar hij zijn eerste zege boekte](https://www.ad.nl/formule-1/tijden-gp-barcelona-zo-laat-komt-max-verstappen-in-actie-op-circuit-waar-hij-zijn-eerste-zege-boekte~a04674a4/)
-  > Het zit Max Verstappen nog niet mee dit Formule 1-seizoen. Bij de Grand Prix van Monaco ging het zondag al mis bij de start en noteerde hij zijn...
-- [Alexander Zverev eindelijk verlost van Grand Slam-vloek: Duitser verslaat Flavio Cobolli in spannende vijfsetter](https://www.ad.nl/tennis/alexander-zverev-eindelijk-verlost-van-grand-slam-vloek-duitser-verslaat-flavio-cobolli-in-spannende-vijfsetter~a6f3004c/)
-  > Alexander Zverev heeft eindelijk zijn eerste grandslamtitel te pakken. De 29-jarige Duitser, nummer 3 van de wereld, rekende in de finale van Roland...
-- [Braziliaan Wesley mist WK door blessure, Iraanse selectie onder zware beveiliging geland in Mexico](https://www.ad.nl/wk-voetbal/braziliaan-wesley-mist-wk-door-blessure-iraanse-selectie-onder-zware-beveiliging-geland-in-mexico~a61805da/)
-  > Komende donderdag begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste wedstrijd. Via...
+- [René Hake serieus in beeld bij Leicester City, PSV wil minimaal 47 miljoen voor Ismael Saibari](https://www.ad.nl/voetbal/rene-hake-serieus-in-beeld-bij-leicester-city-psv-wil-minimaal-47-miljoen-voor-ismael-saibari~a488141d/)
+  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
+- [Iran bestookt Israël met raketten, luchtalarmen klinken in delen van het land](https://www.ad.nl/buitenland/iran-bestookt-israel-met-raketten-luchtalarmen-klinken-in-delen-van-het-land~a1009fd4/)
+  > Voor het eerst sinds het staakt-het-vuren van 8 april heeft Iran weer raketaanvallen uitgevoerd op Israël. Het Israëlische leger (IDF) meldde...
+- [Rachel Hazes luistert elke avond naar André en Noa Vahle zet kartonnen doos op haar hoofd](https://www.ad.nl/show/rachel-hazes-luistert-elke-avond-naar-andre-en-noa-vahle-zet-kartonnen-doos-op-haar-hoofd~a1f0d9f9/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Op de dag dat Robin van Persie zijn vakantie in Marbella onderbreekt voor eigen toernooi krijgt hij het slechte nieuws](https://www.ad.nl/voetbal/op-de-dag-dat-robin-van-persie-zijn-vakantie-in-marbella-onderbreekt-voor-eigen-toernooi-krijgt-hij-het-slechte-nieuws~aa5f1ebd/)
+  > Feyenoord kiest voor een frisse start door Robin van Persie te ontslaan. De 42-jarige trainer was vorige maand overtuigd van zijn aanblijven, maar...
+- [Oranje speelt niet één, maar twee keer tegen Oezbekistan, Ronald Koeman wil zo weinig mogelijk wisselen](https://www.ad.nl/voetbal/oranje-speelt-niet-een-maar-twee-keer-tegen-oezbekistan-ronald-koeman-wil-zo-weinig-mogelijk-wisselen~abf32ea4/)
+  > Het Nederlands elftal speelt maandag ook een tweede, onofficiële oefenwedstrijd tegen Oezbekistan. Het duel zal iets korter zijn: twee keer 35...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [‘Detailhandel vertrekt bij VNO-NCW’](https://fd.nl/bedrijfsleven/1599115/detailhandel-vertrekt-bij-vno-ncw)
+  > Vertrek zou aderlating zijn voor de belangrijkste lobbyclub van het bedrijfsleven, die net een nieuwe voorzitter heeft.
+- [Italiaanse Banco BPM wil fusie met Monte dei Paschi](https://fd.nl/bedrijfsleven/1599230/italiaanse-banco-bpm-wil-fusie-met-monte-dei-paschi)
+  > BPM stelt fusie van gelijken voor met de bank die als oudste ter wereld geldt.
+- [Pensioenfondsen zitten in een spagaat](https://fd.nl/opinie/1599226/pensioenfondsen-zitten-in-een-spagaat)
+  > Pensioenfondsen zijn geen reguliere beleggers, puur gericht op maximale beleggingswinsten om zo in de toekomst bijvoorbeeld een zeiljacht te kunnen...
 - [Vanuit Spanje gaat Volkswagen de concurrentie aan met Chinese elektrische auto’s](https://fd.nl/economie/1599180/vanuit-spanje-gaat-volkswagen-de-concurrentie-aan-met-chinese-elektrische-autos)
   > Betaalbare, elektrische wagens van de Volkswagen Groep rollen binnenkort in Spanje van de band af, en niet in Duitsland. De Spaanse fabrieken kunnen...
 - [Oud-trustbestuurder na jaren nog aansprakelijk voor fiscale constructies Russische brievenbusfirma](https://fd.nl/bedrijfsleven/1598849/oud-trustbestuurder-na-jaren-nog-aansprakelijk-voor-fiscale-constructies-russische-brievenbusfirma)
   > Het Russische gasbedrijf Itera sluisde €200 mln door Nederland in 2008 en liet daarbij een belastingschuld achter. Het hof stelt een voormalig...
-- [Rotklusjes uitbesteden](https://fd.nl/financiele-markten/1599112/rotklusjes-uitbesteden)
-  > De AI-doppelgänger is in opmars. Consultants, coaches en zelfs ceo’s trainen AI-agenten die voor henzelf door moeten gaan. Maar zo’n kloon is per...
-- [Ook na maatregelen kabinet staan de financiën van woningcorporaties nog onder druk](https://fd.nl/politiek/1599206/ook-na-maatregelen-kabinet-staan-de-financien-van-woningcorporaties-nog-onder-druk)
-  > Een tekort dreigt te blijven bestaan, waardoor woningcorporaties mogelijk niet genoeg sociale huurwoningen kunnen bouwen.
-- [Gaza steeds verder fijngeknepen: ‘Ik kon mijn huis zien, maar kon er niet meer komen’](https://fd.nl/samenleving/1599080/gaza-steeds-verder-fijngeknepen-ik-kon-mijn-huis-zien-maar-kon-er-niet-meer-komen)
-  > De ‘gele lijn’, de Israëlische militaire afbakeningslijn die bepaalt waar Palestijnen nog mogen wonen en werken, schuift steeds verder op. Veel...
 
 ### Meest gelezen
 
