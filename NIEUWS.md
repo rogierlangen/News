@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-06-2026 om 14:02*
+*Laatst bijgewerkt: 07-06-2026 om 16:20*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Man op straat beschoten in Berkel-Enschot, mogelijk vanuit woning](https://nos.nl/l/2617492)
-  > Een man is vanochtend op straat in Berkel-Enschot gewond geraakt bij een beschieting. Buurtbewoners zeggen dat de man vanuit een huis is beschoten,...
+- [Twee doden bij Israëlische aanvallen Beiroet, Trump wil Libanon buiten Iran-deal](https://nos.nl/l/2617526)
+  > Israël heeft vanmiddag nieuwe luchtaanvallen uitgevoerd op de zuidelijke buitenwijken van de Libanese hoofdstad Beiroet. Volgens Libanese staatsmedia...
+- [Gazaanse verslaggever ondersteunt vanuit Nederland Palestijnse collega's](https://nos.nl/l/2617518)
+  > Tweeënhalf jaar lang versloeg Hisham Zaqout als journalist de oorlog in Gaza. Hij is nu in Nederland om met zijn ervaring journalisten in...
+- [Zeker 360 door Boko Haram ontvoerde Nigerianen bevrijd door het leger](https://nos.nl/l/2617516)
+  > Het Nigeriaanse leger heeft zeker 360 mensen bevrijd die waren ontvoerd door terreurorganisatie Boko Haram. Het gaat vooral om vrouwen en kinderen...
+- [Man (22) op straat beschoten in Berkel-Enschot, mogelijk vanuit woning](https://nos.nl/l/2617492)
+  > Een man (22) uit Apeldoorn is vanochtend op straat in Berkel-Enschot gewond geraakt bij een beschieting. Buurtbewoners zeggen dat de man vanuit een...
 - [Opslagplaats voor kernbrandstof in Tsjernobyl beschadigd door Russische drone](https://nos.nl/l/2617491)
   > In de Oekraïense plaats Tsjernobyl is een gebouw dat gebruikt wordt voor de opslag van gebruikte kernbrandstof beschadigd door een Russische drone....
-- [Kabinet wil meer werkende statushouders: 'Krijg heel veel energie van werk'](https://nos.nl/l/2617485)
-  > "Over zorg weet ik alles, maar mijn taal moet beter", zegt de Syrische Jamila. Als statushouder had ze moeite om Nederlands te leren en als ervaren...
-- [Xi naar Noord-Korea: China wil controle in achtertuin verzekeren](https://nos.nl/l/2617479)
-  > Na de presidenten Trump en Poetin is het morgen de beurt aan de Noord-Koreaanse dictator Kim Jung-un om Xi Jinping de hand te schudden. Voor het...
-- [Wekdienst 7/6: Nederlandse herdenkingsplaquette in Normandië • Persconferentie Ronald Koeman in New York](https://nos.nl/l/2617472)
-  > Goedemorgen! In New York houdt bondscoach Ronald Koeman een persconferentie, maandag speelt Oranje tegen Oezbekistan. En in Normandië wordt een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Uitstekende start Alexander Zverev in finale, maakt Duitser eindelijk einde aan lange wachten op grandslamtitel?](https://www.ad.nl/tennis/uitstekende-start-alexander-zverev-in-finale-maakt-duitser-eindelijk-einde-aan-lange-wachten-op-grandslamtitel~a6f3004c/)
+- [Zverev is dicht bij eerste grandslamtitel, wat kan Italiaanse underdog nog in finale op gravel in Parijs?](https://www.ad.nl/tennis/zverev-is-dicht-bij-eerste-grandslamtitel-wat-kan-italiaanse-underdog-nog-in-finale-op-gravel-in-parijs~a6f3004c/)
   > Alexander Zverev behoort al jaren tot de absolute top van het tennis, maar slaagde er nog nooit in om een grandslam te winnen. Vandaag krijgt hij als...
-- [Iraanse selectie onder zware beveiliging geland in Mexico en moet VS op speeldagen nog op dezelfde dag verlaten](https://www.ad.nl/wk-voetbal/iraanse-selectie-onder-zware-beveiliging-geland-in-mexico-en-moet-vs-op-speeldagen-nog-op-dezelfde-dag-verlaten~a61805da/)
-  > Komende donderdag begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste wedstrijd. Via...
-- [Oud-Bondgenoten Demi en Geert geven elkaar het jawoord in Amerika: ‘Verrassing!’](https://www.ad.nl/show/oud-bondgenoten-demi-en-geert-geven-elkaar-het-jawoord-in-amerika-verrassing~acb4a707/)
-  > Demi en Geert, bekend van het realityprogramma De Bondgenoten, zijn in het huwelijksbootje gestapt. Dat deelt het dolgelukkige stel zaterdag op...
-- [Max Verstappen ziet GP van Monaco uitlopen op drama met uitvalbeurt na één ronde: ‘Voelde bij formatie al vreemd’](https://www.ad.nl/formule-1/max-verstappen-ziet-gp-van-monaco-uitlopen-op-drama-met-uitvalbeurt-na-een-ronde-voelde-bij-formatie-al-vreemd~af0a0297/)
-  > De Grand Prix van Monaco is uitgelopen op een drama voor Max Verstappen. De Nederlander - startend vanaf P2 - viel helemaal stil bij de start, waarna...
-- [Antonelli loopt verder uit op Ferrari’s na pijnlijke uitvalbeurt Verstappen in Monaco](https://www.ad.nl/formule-1/antonelli-loopt-verder-uit-op-ferraris-na-pijnlijke-uitvalbeurt-verstappen-in-monaco~a3acbf2a/)
-  > Voor Max Verstappen is de Grand Prix van Monaco uitgelopen op een enorme deceptie. De coureur van Red Bull, die woonachtig is in het prinsdom, ging...
+- [Scary Movie 6 breekt records: ‘Onderbroekenlol van hoog niveau’](https://www.ad.nl/show/scary-movie-6-breekt-records-onderbroekenlol-van-hoog-niveau~a43e6ed2/)
+  > De nieuwste Scary Movie heeft dit weekend wereldwijd 105 miljoen dollar opgebracht. Volgens Deadline is het daarmee de beste opening van de...
+- [Spaanse burgemeester verbiedt oefenduel Congo wegens zorgen om ebola-uitbraak](https://www.ad.nl/wk-voetbal/spaanse-burgemeester-verbiedt-oefenduel-congo-wegens-zorgen-om-ebola-uitbraak~a4d16273/)
+  > De voetballers van de Democratische Republiek Congo zijn niet welkom in de Spaanse provincie Cádiz. De burgemeester zette een streep door een...
+- [Kimi Antonelli beschikt over stalen zenuwen in krankzinnige race en pakt enorme voorsprong in WK-stand](https://www.ad.nl/formule-1/kimi-antonelli-beschikt-over-stalen-zenuwen-in-krankzinnige-race-en-pakt-enorme-voorsprong-in-wk-stand~a3acbf2a/)
+  > Voor Max Verstappen werd de Grand Prix van Monaco er eentje om heel snel te vergeten. De Nederlander viel stil bij de start en reed zijn Red Bull na...
+- [Paarden zwaar toegeta­keld na vermoede­lij­ke wolvenaan­val: 'Hier was ik al bang voor'](https://www.ad.nl/binnenland/paarden-zwaar-toegetakeld-na-vermoedelijke-wolvenaanval-hier-was-ik-al-bang-voor~a5305b15/)
+  > Zijn twee beste paarden van de stal zijn gegrepen. Cable heeft ‘alleen’ wonden van scherpe nagels, Whisper is er veel slechter aan toe. Het is de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Oud-trustbestuurder na jaren nog aansprakelijk voor fiscale constructies Russische brievenbusfirma](https://fd.nl/bedrijfsleven/1598849/oud-trustbestuurder-na-jaren-nog-aansprakelijk-voor-fiscale-constructies-russische-brievenbusfirma)
+  > Het Russische gasbedrijf Itera sluisde €200 mln door Nederland in 2008 en liet daarbij een belastingschuld achter. Het hof stelt een voormalig...
+- [Rotklusjes uitbesteden](https://fd.nl/financiele-markten/1599112/rotklusjes-uitbesteden)
+  > De AI-doppelgänger is in opmars. Consultants, coaches en zelfs ceo’s trainen AI-agenten die voor henzelf door moeten gaan. Maar zo’n kloon is per...
 - [Ook na maatregelen kabinet staan de financiën van woningcorporaties nog onder druk](https://fd.nl/politiek/1599206/ook-na-maatregelen-kabinet-staan-de-financien-van-woningcorporaties-nog-onder-druk)
   > Een tekort dreigt te blijven bestaan, waardoor woningcorporaties mogelijk niet genoeg sociale huurwoningen kunnen bouwen.
 - [Gaza steeds verder fijngeknepen: ‘Ik kon mijn huis zien, maar kon er niet meer komen’](https://fd.nl/samenleving/1599080/gaza-steeds-verder-fijngeknepen-ik-kon-mijn-huis-zien-maar-kon-er-niet-meer-komen)
   > De ‘gele lijn’, de Israëlische militaire afbakeningslijn die bepaalt waar Palestijnen nog mogen wonen en werken, schuift steeds verder op. Veel...
 - [Oorlog drukt groei, maar banken zien vooralsnog geen recessie aan horizon](https://fd.nl/economie/1599086/oorlog-drukt-groei-maar-banken-zien-vooralsnog-geen-recessie-aan-horizon)
   > De oorlog in het Midden-Oosten jaagt de inflatie in Nederland op en drukt de groei. Maar tot een recessie zal het niet komen, stellen Rabobank en ABN...
-- [Kopers van campings loeren vaker over de grens nu aanbod in Nederland laag is](https://fd.nl/bedrijfsleven/1598859/kopers-van-campings-loeren-vaker-over-de-grens-nu-aanbod-in-nederland-laag-is)
-  > De tijd dat ketens en investeerders grote campings in Nederland opkochten en daar huisjesparken van maakten is voorbij. Kopers proberen nu het...
-- [De graanhandel is nog niet bezig met tekort aan kunstmest en El Niño](https://fd.nl/financiele-markten/1598717/de-graanhandel-is-nog-niet-bezig-met-kunstmestschaarste-en-el-nino)
-  > Kunstmest is twee tot drie keer zo duur en een ‘Super El Niño’ is in de maak. Wereldvoedselorganisatie FAO waarschuwt voor voedselschokken, maar de...
 
 ### Meest gelezen
 
