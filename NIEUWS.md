@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-06-2026 om 22:08*
+*Laatst bijgewerkt: 08-06-2026 om 00:12*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Pro-Europese partij van premier Pasjinjan claimt verkiezingswinst Armenië](https://nos.nl/l/2617579)
+  > De partij van de Armeense premier Nikol Pasjinjan zegt de parlementsverkiezingen te hebben gewonnen. Pasjinjan claimde de overwinning tijdens een...
 - [Politie houdt bestuurder aan die 240 km/h reed op snelweg A2](https://nos.nl/l/2617577)
   > De politie heeft een bestuurder aangehouden die met bijna 240 kilometer per uur over de snelweg A2 reed. Het rijbewijs en de Mercedes van de...
 - [Britse kebabfabriek krijgt boete van 581.000 euro voor grootschalige lamsvleesfraude](https://nos.nl/l/2617570)
@@ -16,8 +18,6 @@
   > Voor het eerst sinds het fragiele staakt-het-vuren tussen Israël, de VS en Iran heeft Iran raketten op Israël afgevuurd. In het noorden van Israël...
 - [Overlevende kindertransporten WO II: 'Niemand lijkt iets geleerd te hebben'](https://nos.nl/l/2617552)
   > Bij Nationaal Monument Kamp Vught is vandaag een van de meest tragische gebeurtenissen uit de Tweede Wereldoorlog in Nederland herdacht: de...
-- [In de Ugandese stad Bundibugyo is ebola nooit ver weg: "Die naam moet weg"](https://nos.nl/l/2617546)
-  > De ebolavariant die nu slachtoffers maakt in het oosten van Congo draagt de naam Bundibugyo, vernoemd naar een stadje in Uganda waar het virus bijna...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Iran valt Israël aan met raketten, Trump vreest escalatie](https://fd.nl/samenleving/1599231/iran-valt-israel-aan-met-raketten-trump-vreest-escalatie)
-  > Eerste raketaanval sinds staakt-het-vuren omdat Teheran boos is over Israëlische aanval op Beiroet.
-- [‘Detailhandel vertrekt bij VNO-NCW’](https://fd.nl/bedrijfsleven/1599115/detailhandel-vertrekt-bij-vno-ncw)
-  > Vertrek zou aderlating zijn voor de belangrijkste lobbyclub van het bedrijfsleven, die net een nieuwe voorzitter heeft.
-- [Italiaanse Banco BPM wil fusie met Monte dei Paschi](https://fd.nl/bedrijfsleven/1599230/italiaanse-banco-bpm-wil-fusie-met-monte-dei-paschi)
-  > BPM stelt fusie van gelijken voor met de bank die als oudste ter wereld geldt.
-- [Pensioenfondsen zitten in een spagaat](https://fd.nl/opinie/1599226/pensioenfondsen-zitten-in-een-spagaat)
-  > Pensioenfondsen zijn geen reguliere beleggers, puur gericht op maximale beleggingswinsten om zo in de toekomst bijvoorbeeld een zeiljacht te kunnen...
-- [Vanuit Spanje gaat Volkswagen de concurrentie aan met Chinese elektrische auto’s](https://fd.nl/economie/1599180/vanuit-spanje-gaat-volkswagen-de-concurrentie-aan-met-chinese-elektrische-autos)
-  > Betaalbare, elektrische wagens van de Volkswagen Groep rollen binnenkort in Spanje van de band af, en niet in Duitsland. De Spaanse fabrieken kunnen...
+- [Bendes jagen op voorkennis, AFM zet overnameadviseurs op scherp](https://fd.nl/financiele-markten/1599207/bendes-jagen-op-voorkennis-afm-zet-overnameadviseurs-op-scherp)
+  > Vooral junior medewerkers zijn via sociale media een mogelijk doelwit voor criminelen, denken toezichthouders.
+- [AWVN-directeur Lisette van Breugel: ‘Moeten Nederlandse bedrijven de inflatie compenseren?’](https://fd.nl/politiek/1599184/awvn-directeurlisette-van-breugel-moeten-nederlandse-bedrijven-de-inflatie-compenseren)
+  > Van Breugel ziet hoe de verhoudingen aan de cao-tafels zijn verscherpt en verzuurd. ‘Stop met mopperen op elkaar en ga in de onderlinge relatie...
+- [Banken merken nog weinig van toegezegde afname regeldruk](https://fd.nl/financiele-markten/1599079/banken-merken-nog-weinig-van-toegezegde-afname-regeldruk)
+  > Financiële toezichthouders beloven eenvoudiger, risicogericht toezicht. Banken zien juist strenge handhaving van antiwitwasregels en voortdurende...
+- [ING geeft als eerste bank AI een grote rol als hulp bij beoordelen hypotheken](https://fd.nl/financiele-markten/1598850/ing-geeft-als-eerste-bank-ai-een-grote-rol-als-hulp-bij-beoordelen-hypotheken)
+  > Met een zelf ontwikkeld model wil de grootbank huizenkopers sneller duidelijkheid geven of zij een hypotheek kunnen afsluiten. Experts voorspellen...
+- [Rammelende onderzoeken mogen geen aflaat voor bestuurders zijn](https://fd.nl/opinie/1598489/rammelende-onderzoeken-als-bestuursaflaat)
+  > 11% van de vrouwelijke werknemers had te maken met ongewenst seksueel gedrag van klanten, patiënten of passagiers. Toch zijn onderzoeken naar...
 
 ### Meest gelezen
 
