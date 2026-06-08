@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-06-2026 om 00:12*
+*Laatst bijgewerkt: 08-06-2026 om 05:53*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Pro-Europese partij van premier Pasjinjan claimt verkiezingswinst Armenië](https://nos.nl/l/2617579)
-  > De partij van de Armeense premier Nikol Pasjinjan zegt de parlementsverkiezingen te hebben gewonnen. Pasjinjan claimde de overwinning tijdens een...
-- [Politie houdt bestuurder aan die 240 km/h reed op snelweg A2](https://nos.nl/l/2617577)
-  > De politie heeft een bestuurder aangehouden die met bijna 240 kilometer per uur over de snelweg A2 reed. Het rijbewijs en de Mercedes van de...
-- [Britse kebabfabriek krijgt boete van 581.000 euro voor grootschalige lamsvleesfraude](https://nos.nl/l/2617570)
-  > Een Britse producent van kebabvlees heeft van de rechtbank in Swansea een boete van omgerekend 581.000 euro gekregen omdat het bedrijf jarenlang...
-- [Iran vuurt voor het eerst sinds staakt-het-vuren weer raketten af op Israël, geen schade gemeld](https://nos.nl/l/2617556)
-  > Voor het eerst sinds het fragiele staakt-het-vuren tussen Israël, de VS en Iran heeft Iran raketten op Israël afgevuurd. In het noorden van Israël...
-- [Overlevende kindertransporten WO II: 'Niemand lijkt iets geleerd te hebben'](https://nos.nl/l/2617552)
-  > Bij Nationaal Monument Kamp Vught is vandaag een van de meest tragische gebeurtenissen uit de Tweede Wereldoorlog in Nederland herdacht: de...
+- [Wekdienst 8/6: Oranje oefent tegen Oezbekistan • Hubert Bruls bij coronacommissie](https://nos.nl/l/2617590)
+  > Goedemorgen! Het Nederlands elftal speelt zijn laatste oefenwedstrijd voordat het WK begint. Oezbekistan is de tegenstander. En de burgemeester van...
+- [Familie van in de VS overleden Mexicaanse immigrant blijft achter met vragen](https://nos.nl/l/2617589)
+  > Het huis van Miguel en Rosa Hernández in Chiapas, een straatarme staat in het zuiden van Mexico, is donker. De enige ruimte waar licht brandt, ligt...
+- [Doden in Filipijnen door aardbeving, gevaar van tsunami's geweken](https://nos.nl/l/2617583)
+  > In de Filipijnen zijn zeker acht mensen omgekomen na een aardbeving met een kracht van 7,8. De beving was voor de kust in het zuiden van de archipel....
+- [Japanse stad sluit alle 94 scholen nadat beer is gesignaleerd](https://nos.nl/l/2617582)
+  > In de Japanse stad Utsunomiya, ten noorden van Tokio, zijn vandaag alle 94 basisscholen en middelbare scholen gesloten nadat er voor het eerst een...
+- [Israël en Iran bestoken elkaar met aanvallen, 'petrochemische fabriek geraakt'](https://nos.nl/l/2617581)
+  > Israël zegt dat het meerdere aanvallen heeft uitgevoerd op Iran als tegenreactie op de Iraanse aanvallen van gisteravond. Daarop heeft Iran opnieuw...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Marokko en Noorwegen spelen gelijk in laatste WK-oefenduel, Mazraoui valt geblesseerd uit](https://www.ad.nl/wk-voetbal/marokko-en-noorwegen-spelen-gelijk-in-laatste-wk-oefenduel-mazraoui-valt-geblesseerd-uit~a5b17ef4/)
-  > Het Marokkaanse voetbalelftal heeft met 1-1 gelijkgespeeld tegen Noorwegen. In New Jersey kwam Marokko al vroeg op voorsprong in het oefenduel....
-- [Politiehelikopter neergestort in Frankrijk: dode en gewonden](https://www.ad.nl/buitenland/politiehelikopter-neergestort-in-frankrijk-dode-en-gewonden~abc421c4/)
-  > Een helikopter van de nationale gendarmerie (Franse politie) is zondagmiddag neergestort in Centraal-Frankrijk. Hierdoor kwam één persoon om het...
-- [Meer dan veertig jaar wonen Rudi en Evelien op een woonboot met dezelfde schutting: nu moet die weg](https://www.ad.nl/binnenland/meer-dan-veertig-jaar-wonen-rudi-en-evelien-op-een-woonboot-met-dezelfde-schutting-nu-moet-die-weg~a7bede94/)
-  > Paradijsjes zijn het: de tuintjes bij de woonboten in Giethoorn. Maar volgens de gemeente Steenwijkerland zijn de schuttingen te hoog en schuurtjes...
-- [Oranje niet in New York, maar in saaie voorstad White Plains: ‘Even koffie drinken, dat kan hier niet echt’](https://www.ad.nl/voetbal/oranje-niet-in-new-york-maar-in-saaie-voorstad-white-plains-even-koffie-drinken-dat-kan-hier-niet-echt~abf32ea4/)
-  > Zaterdag was er nog tijd voor een ontspannen avondje in het centrum van New York, maandag geldt het oefenduel met Oezbekistan als de grote generale...
-- [Iraanse raketaanval voorbij volgens Israëlisch leger, Trump gaat Netanyahu bellen om reactie te voorkomen](https://www.ad.nl/buitenland/iraanse-raketaanval-voorbij-volgens-israelisch-leger-trump-gaat-netanyahu-bellen-om-reactie-te-voorkomen~ac528ac3/)
-  > Iran heeft zondag een tiental ballistische raketten afgevuurd op Israël. Volgens Iran vormde de aanval een reactie op de agressie van Israël jegens...
+- [Katja Schuurman: ‘Ik mag niet meer topless op het strand liggen, heeft mijn dochter beslist’](https://www.ad.nl/show/katja-schuurman-ik-mag-niet-meer-topless-op-het-strand-liggen-heeft-mijn-dochter-beslist~a8bfd743c/)
+  > Een Vlaams-Nederlandse comedyserie over een all-inclusive hotel met Katja Schuurman (51) als luidruchtige Hollandse: All In. Katja vond het een feest...
+- [K3 Originals emotioneel bij slotconcert, boegeroep na opmerking van Karen Damen: ‘Had ik beter niet kunnen zeggen’](https://www.ad.nl/show/k3-originals-emotioneel-bij-slotconcert-boegeroep-na-opmerking-van-karen-damen-had-ik-beter-niet-kunnen-zeggen~aec19882/)
+  > De oorspronkelijke leden van K3, Karen Damen, Kristel Verbeke en Kathleen Aerts, hebben zondagavond hun allerlaatste reünieconcert gegeven. Onder de...
+- [José Mourinho keert terug bij Real Madrid: Florentino Pérez (79) herverkozen als voorzitter](https://www.ad.nl/voetbal/jose-mourinho-keert-terug-bij-real-madrid-florentino-perez-79-herverkozen-als-voorzitter~a4a16765/)
+  > Florentino Pérez (79) blijft de komende jaren voorzitter van Real Madrid. Hij won met overtuiging de voorzittersverkiezingen van zijn 42 jaar jongere...
+- [Dodental aardbeving Filipijnen loopt op, tsunami-gevaar lijkt geweken](https://www.ad.nl/buitenland/dodental-aardbeving-filipijnen-loopt-op-tsunami-gevaar-lijkt-geweken~a9d161de/)
+  > Een aardbeving met een kracht van 7,8 heeft maandag de kust van de Filipijnen getroffen. Er zijn zeker acht doden gevallen.
+- [Sleutelen aan de rechterflank: kort voor WK meldt zich voor Denzel Dumfries een tiende duopartner](https://www.ad.nl/wk-voetbal/sleutelen-aan-de-rechterflank-kort-voor-wk-meldt-zich-voor-denzel-dumfries-een-tiende-duopartner~a66916bc/)
+  > Oranje oefent vandaag (tweemaal) tegen Oezbekistan. Kort voor de WK-start valt er nog genoeg te sleutelen, onder meer op de rechterflank. Denzel...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Bendes jagen op voorkennis, AFM zet overnameadviseurs op scherp](https://fd.nl/financiele-markten/1599207/bendes-jagen-op-voorkennis-afm-zet-overnameadviseurs-op-scherp)
-  > Vooral junior medewerkers zijn via sociale media een mogelijk doelwit voor criminelen, denken toezichthouders.
-- [AWVN-directeur Lisette van Breugel: ‘Moeten Nederlandse bedrijven de inflatie compenseren?’](https://fd.nl/politiek/1599184/awvn-directeurlisette-van-breugel-moeten-nederlandse-bedrijven-de-inflatie-compenseren)
-  > Van Breugel ziet hoe de verhoudingen aan de cao-tafels zijn verscherpt en verzuurd. ‘Stop met mopperen op elkaar en ga in de onderlinge relatie...
-- [Banken merken nog weinig van toegezegde afname regeldruk](https://fd.nl/financiele-markten/1599079/banken-merken-nog-weinig-van-toegezegde-afname-regeldruk)
-  > Financiële toezichthouders beloven eenvoudiger, risicogericht toezicht. Banken zien juist strenge handhaving van antiwitwasregels en voortdurende...
-- [ING geeft als eerste bank AI een grote rol als hulp bij beoordelen hypotheken](https://fd.nl/financiele-markten/1598850/ing-geeft-als-eerste-bank-ai-een-grote-rol-als-hulp-bij-beoordelen-hypotheken)
-  > Met een zelf ontwikkeld model wil de grootbank huizenkopers sneller duidelijkheid geven of zij een hypotheek kunnen afsluiten. Experts voorspellen...
-- [Rammelende onderzoeken mogen geen aflaat voor bestuurders zijn](https://fd.nl/opinie/1598489/rammelende-onderzoeken-als-bestuursaflaat)
-  > 11% van de vrouwelijke werknemers had te maken met ongewenst seksueel gedrag van klanten, patiënten of passagiers. Toch zijn onderzoeken naar...
+- [Israël voert vergeldingsaanvallen uit op Iran, tegen de wil van Trump in](https://fd.nl/politiek/1599150/israel-voert-vergeldingsaanvallen-uit-op-iran-tegen-de-wil-van-trump-in)
+  > Het Israëlische leger meldde maandagochtend dat doelen in het westen, midden en zuidwesten van Iran zijn geraakt.
+- [Live: Markten in beweging, olieprijs loopt op door escalatie Midden-Oosten](https://fd.nl/financiele-markten/1599108/live-markten-in-beweging-olieprijs-loopt-op-door-escalatie-midden-oosten)
+  > Olieprijs stijgt weer en nadert de $100 per vat vanwege nieuwe beschietingen in het Midden-Oosten. Vrees dat beleidsrente weer gaat oplopen drukt...
+- [Dag factuur, hallo loonstrook: terug in dienst](https://fd.nl/samenleving/1598716/dag-factuur-hallo-loonstrook-terug-in-dienst)
+  > Voor het eerst in jaren loopt het aantal zzp’ers terug. Uit onzekerheid gaan sommigen van hen nu in vaste dienst. Hoe is het om als ex-ondernemer in...
+- [Jouw hypotheekaanvraag binnen een minuut klaar, dankzij AI](https://fd.nl/economie/1599083/jouw-hypotheekaanvraag-binnen-een-minuut-klaar-dankzij-ai)
+  > Vandaag in Dagkoers: AI zorgt voor een revolutie van de hypotheekmarkt en Buitenlandse Zaken kende aanzienlijk meer corruptie dan andere ministeries,...
+- [Bendes jagen op voorkennis, AFM waarschuwt overnameadviseurs](https://fd.nl/financiele-markten/1599207/bendes-jagen-op-voorkennis-afm-zet-overnameadviseurs-op-scherp)
+  > Vooral junior medewerkers zijn via sociale media een mogelijk doelwit voor internationaal opererende criminelen, denken toezichthouders.
 
 ### Meest gelezen
 
