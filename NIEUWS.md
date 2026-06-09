@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-06-2026 om 11:22*
+*Laatst bijgewerkt: 09-06-2026 om 15:12*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Marengo-hoofdverdachte Ridouan Taghi heeft twee nieuwe advocaten](https://nos.nl/l/2617800)
-  > Hoofdverdachte Ridouan Taghi (48) van het Marengo-proces heeft officieel twee nieuwe advocaten. Anique Slijters en Ronald van der Horst meldden zich...
-- [Japanse beer gevangen waar bijna 100 scholen voor werden gesloten](https://nos.nl/l/2617798)
-  > Een beer die rondliep in de Japanse stad Utsunomiya, ten noorden van Tokio, is gevangen. Het dier werd met een verdovingsgeweer neergeschoten na een...
-- [Podcast De Dag: de (vieze) wereld achter CO2-compensatie](https://nos.nl/l/2617797)
-  > Een vliegticket, een volle tank, een energiecontract. Tegenwoordig kun je al je milieuvervuilende activiteiten compenseren. Of toch niet?
-       ...
-- [Man omgekomen door autobom in Moskou, identiteit nog niet bekendgemaakt](https://nos.nl/l/2617796)
-  > In een voorstad ten oosten van de Russische hoofdstad Moskou is een man om het leven gekomen toen de auto waarin hij reed explodeerde. Dat melden de...
-- [Indiase regering heeft bijna 5000 mensen gedeporteerd naar Bangladesh](https://nos.nl/l/2617789)
-  > India heeft vorige maand bijna 5000 mensen naar Bangladesh uitgezet. Volgens de Indiase autoriteiten hadden zij niet de juiste papieren om aan te...
+- [Grensproblemen stapelen zich op richting het WK: 'Lijn is duidelijk discriminerend'](https://nos.nl/l/2617821)
+  > Een topscheidsrechter uit Somalië die toegang tot de VS wordt geweigerd, een Iraakse spits die zeven uur wordt vastgehouden door de Amerikaanse...
+- [Kamer stemt in met uitleveringsverdrag Marokko en daarmee is het nagenoeg rond](https://nos.nl/l/2617820)
+  > Nederland en Marokko kunnen binnenkort makkelijker criminelen en verdachten aan elkaar uitleveren. De Tweede Kamer heeft vandaag met grote...
+- [Israël valt doelen in Zuid-Libanon aan: acht doden en tientallen gewonden](https://nos.nl/l/2617819)
+  > Bij Israëlische luchtaanvallen op de Zuid-Libanese stad Tyrus zijn minstens acht mensen om het leven gekomen. 32 anderen raakten gewond. Dat meldt...
+- [GL-PvdA nu als 'Pro' in Kamer, geen andere naam Groep Markuszower](https://nos.nl/l/2617817)
+  > De Tweede Kamerfractie van GroenLinks-PvdA mag zich voortaan Progressief Nederland (Pro) noemen. De andere fracties hebben ingestemd met de...
+- [Instellingen bieden excuses aan aan jongeren na misstanden in gesloten jeugdzorg](https://nos.nl/l/2617813)
+  > Twee jeugdzorginstellingen bieden publiekelijk hun excuses aan aan jongeren die op de strenge afdelingen binnen de gesloten jeugdzorg hebben gezeten....
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Eerst prikte hij iemand in het oog, later trok hij aan een neus: Circus Mourinho keert terug bij Real Madrid](https://www.ad.nl/voetbal/eerst-prikte-hij-iemand-in-het-oog-later-trok-hij-aan-een-neus-circus-mourinho-keert-terug-bij-real-madrid~a2e5fc5b/)
-  > Real Madrid haalt José Mourinho terug als trainer. Een absolute garantie voor succes is hij niet: in zijn 24 jaar als hoofdtrainer heeft hij twee...
-- [Ajax verliest in hoger beroep en moet Peter Gerards miljoenen betalen voor scouten Antony en Martinez](https://www.ad.nl/voetbal/ajax-verliest-in-hoger-beroep-en-moet-peter-gerards-miljoenen-betalen-voor-scouten-antony-en-martinez~aa4416e7/)
-  > Ajax moet scoutingsbureau Gerards International Consultancy (GIC) een vergoeding van miljoenen betalen voor de transfers van Antony en Lisandro...
-- [‘Geweld Joodse kolonisten op Westbank neemt toe’, acht doden in Libanese stad door Israëlische aanval](https://www.ad.nl/buitenland/geweld-joodse-kolonisten-op-westbank-neemt-toe-acht-doden-in-libanese-stad-door-israelische-aanval~ac528ac3/)
-  > De Israëlische krijgsmacht heeft dinsdag aanvallen uitgevoerd op de Libanese stad Tyrus. Het geweld heeft zeker acht mensen het leven gekost, meldt...
-- [Moeder die verdachte in zaak-Lyhanna beschuldigt van verkrachting dochter (12) klaagt Franse staat aan: ‘Justitie heeft gefaald’](https://www.ad.nl/buitenland/moeder-die-verdachte-in-zaak-lyhanna-beschuldigt-van-verkrachting-dochter-12-klaagt-franse-staat-aan-justitie-heeft-gefaald~aece4adc7/)
-  > Een vrouw die Jérôme Barella (41), de hoofdverdachte in de zaak-Lyhanna, ervan beschuldigt haar 12-jarige dochter te hebben verkracht, gaat de Franse...
-- [Jason Momoa haakt af bij gameverfilming, zoektocht naar nieuwe hoofdrolspeler](https://www.ad.nl/show/jason-momoa-haakt-af-bij-gameverfilming-zoektocht-naar-nieuwe-hoofdrolspeler~a0d087a0/)
-  > De makers van de verfilming van de videogame Helldivers moeten op zoek naar een nieuwe hoofdrolspeler. Vakmedia als Deadline melden dat Jason Momoa,...
+- [Nintendo dropt bom: iconische Zelda-game keert na 28 jaar terug en gaat strijd aan met GTA 6](https://www.ad.nl/tech/nintendo-dropt-bom-iconische-zelda-game-keert-na-28-jaar-terug-en-gaat-strijd-aan-met-gta-6~a8691bc8/)
+  > Nintendo pakt komend najaar enorm uit met een remake van The Legend of Zelda: Ocarina of Time. De 28 jaar oude Nintendo 64-klassieker keert volledig...
+- [Duitse politie rolt internationale cocaïnebende op: twee Nederlanders van 59 en 56 opgepakt](https://www.ad.nl/binnenland/duitse-politie-rolt-internationale-cocainebende-op-twee-nederlanders-van-59-en-56-opgepakt~aef5e2be/)
+  > Duitsland heeft een grote internationale drugsbende opgerold. Die wordt verantwoordelijk gehouden voor de smokkel van duizenden kilo's cocaïne uit...
+- [Leeuwinnen moeten in Almelo winnen van Polen (en hopen op gelijkspel bij Frankrijk - Ierland)](https://www.ad.nl/voetbal/leeuwinnen-moeten-in-almelo-winnen-van-polen-en-hopen-op-gelijkspel-bij-frankrijk-ierland~a2e8e1634/)
+  > Na de zeperd tegen Ierland (3-2) stevenen de Oranje Leeuwinnen af op play-offs in strijd om een WK-ticket. Vanavond krijgt de ploeg van bondscoach...
+- [Tijjani Reijnders deelt babynieuws, teller bij Tim Payne loopt op naar 5,5 miljoen](https://www.ad.nl/wk-voetbal/tijjani-reijnders-deelt-babynieuws-teller-bij-tim-payne-loopt-op-naar-5-5-miljoen~a060ccd4/)
+  > Tijdens het WK 2026 zullen spelers van alle 48 deelnemende landen weer veel leuke foto’s en filmpjes delen op social media. Wij verzamelden alvast de...
+- [Avondje ‘chillen’ met honing loopt fout: drie Italianen naar ziekenhuis, OM onderzoekt Nederlandse webshop](https://www.ad.nl/nieuws/avondje-chillen-met-honing-loopt-fout-drie-italianen-naar-ziekenhuis-om-onderzoekt-nederlandse-webshop~a026aa84/)
+  > Het Italiaanse Openbaar Ministerie is een onderzoek gestart naar een incident waarbij drie jonge Italianen in het ziekenhuis zijn beland nadat zij...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Indonesië poogt met onverwachte renteverhoging val roepia te stutten](https://fd.nl/financiele-markten/1599304/indonesie-poogt-met-onverwachte-renteverhoging-val-roepia-te-stutten)
-  > De Indonesische munt zit al maanden in een vrije val. Daar komt bij dat rentes op staatsobligaties omhoog zijn geschoten en dat de aandelenmarkt...
-- [Ceo chemieconcern Basf vreest prijsschok oliemarkt in tweede helft van het jaar](https://fd.nl/bedrijfsleven/1599411/ceo-chemieconcern-basf-vreest-prijsschok-oliemarkt-in-tweede-helft-2026)
-  > Markus Kamieth houdt sterk rekening met een nieuwe prijsschok. Die treedt op als er niet snel een oplossing komt voor de blokkade van de Straat van...
-- [Van Snake naar Nvidia-deal: AI blaast Nokia na 20 jaar nieuw leven in](https://fd.nl/bedrijfsleven/1598484/van-snake-naar-nvidia-deal-ai-blaast-nokia-na-20-jaar-nieuw-leven-in)
-  > Het Finse Nokia domineerde een kwart eeuw geleden de wereldwijde markt voor mobieltjes. Tot de komst van de iPhone. Na jaren kwakkelen, leeft het...
-- [Tegenslag voor Trump, voorlopig geen hoog tarief op werkvisum](https://fd.nl/bedrijfsleven/1599301/tegenslag-voor-trump-voorlopig-geen-hoog-tarief-op-werkvisum)
-  > Een tarief van $100.000 komt volgens een federale rechter neer op een belastingverhoging. Het Witte Huis, dat met de regeling de vraag naar...
-- [Bescherm de onafhankelijkheid van onderzoekers](https://fd.nl/opinie/1599238/bescherm-de-onafhankelijkheid-van-onderzoekers)
-  > De academische vrijheid staat onder druk door politieke inmenging. Dat zien we in de Verenigde Staten met Trump, maar ook in Europa. Het heeft...
+- [Acht doden door Israëlische bombardementen in Libanon](https://fd.nl/politiek/1599432/acht-doden-door-israelische-bombardementen-in-libanon)
+  > Vorige week sloten Israël en Libanon een staakt-het-vuren, maar in de praktijk komt daar nog weinig van terecht.
+- [Nieuwkomer ‘El Tigre’ wil als president Colombia beschermen](https://fd.nl/politiek/1599413/nieuwkomer-el-tigre-wil-als-president-colombia-beschermen)
+  > Abelardo de la Espriella is de favoriet om 21 juni de beslissende ronde van de Colombiaanse presidentsverkiezingen te winnen. Zijn critici zien...
+- [Farmabedrijf GSK keert met aankoop van €9 mrd terug in medicijnen tegen kanker](https://fd.nl/financiele-markten/1599309/farmabedrijf-gsk-keert-met-aankoop-van-9-mrd-terug-in-medicijnen-tegen-kanker)
+  > Het Britse concern betaalt een overnamepremie van 40% om het Amerikaans biotechbedrijf Nuvalent in te lijven. Dat is hoog, in de ogen van analisten.
+- [Na jaren procederen opent Fastned eindelijk zijn eerste snelwegshop](https://fd.nl/bedrijfsleven/1599419/na-jaren-procederen-opent-fastned-eindelijk-zijn-eerste-snelwegshop)
+  > Rijkswaterstaat verzette zich tegen de bouw, later ook de staat. Dinsdag kon Fastned dan toch zijn eerste winkel langs een Nederlandse snelweg...
+- [Rente-armageddon bleek millenniumbug](https://fd.nl/financiele-markten/1599420/rente-armageddon-bleek-millenniumbug)
+  > De gevreesde paniek op de rentemarkten vanwege de transitie naar een nieuw pensioenstelsel bleef uit. Maar daar kwam wel wat geluk bij kijken.
 
 ### Meest gelezen
 
