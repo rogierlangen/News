@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-06-2026 om 23:13*
+*Laatst bijgewerkt: 09-06-2026 om 03:55*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Geen werkvisum van een 100.000 dollar: rechter zet streep door Trump-plan](https://nos.nl/l/2617746)
+  > De nieuwe werkvisa van 100.000 dollar voor hoogopgeleide werknemers uit het buitenland die in de VS komen werken, komen er niet. Een federale rechter...
+- [Kleine brand bij opvang minderjarige asielzoekers in Cadier en Keer, mogelijk aangestoken](https://nos.nl/l/2617745)
+  > Bij een opvanglocatie voor minderjarige asielzoekers in het Limburgse Cadier en Keer is maandagavond brand uitgebroken. De politie heeft een...
 - [Samuel Welten wint Buma Award voor grootste hit van het jaar](https://nos.nl/l/2617742)
   > Het meest succesvolle nummer van 2025 in Nederland is bekend: Echte liefde is te koop van Samuel Welten (19) heeft de Buma Award Nationaal gewonnen....
 - [Onderzoek: Nederlanders verspillen minder voedsel, maar het moet nóg veel minder](https://nos.nl/l/2617737)
   > Nederlanders gooiden vorig jaar gemiddeld 25 kilo voedsel weg, blijkt uit onderzoek van het Voedingscentrum naar voedselverspilling, dat eens in de...
 - [Tienduizenden Duitsers zonder stroom na brandstichting bij onderstation](https://nos.nl/l/2617719)
   > In Reutlingen, een stad in het zuidwesten van Duitsland, heeft afgelopen nacht brand gewoed in een onderstation van het elektriciteitsnetwerk....
-- [Douane onderschept verboden goederen voor Rusland in Rotterdamse haven](https://nos.nl/l/2617718)
-  > De douane heeft bij een controle illegale goederen die bestemd waren voor Rusland ontdekt op een containerschip in de Rotterdamse haven. De kapitein...
-- [Na twintig jaar valt doek voor miniatuurmuseum Miniworld Rotterdam](https://nos.nl/l/2617706)
-  > Miniworld Rotterdam is failliet, blijkt uit een brief van de directie aan de leveranciers van het overdekte miniatuurmuseum. De miniatuurwereld, die...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Vijf verliezers en één winnaar in onze worstelende zoetwaternatuur](https://www.ad.nl/binnenland/vijf-verliezers-en-een-winnaar-in-onze-worstelende-zoetwaternatuur~aef54991/)
-  > Na jaren van gestaag herstel, stokt de verbetering van de Nederlandse zoetwaternatuur. Belangrijke populaties vissen en libellen nemen af, terwijl...
-- [Vivianne Miedema opnieuw geopereerd aan knie, Oranje-spits richt zich op start van volgend seizoen](https://www.ad.nl/voetbal/vivianne-miedema-opnieuw-geopereerd-aan-knie-oranje-spits-richt-zich-op-start-van-volgend-seizoen~a4835bdb/)
-  > Vivianne Miedema heeft opnieuw een knieoperatie ondergaan. Haar Engelse voetbalclub Manchester City meldde dat de Nederlandse spits succesvol is...
-- [En nu op naar het WK: wanneer en hoe laat neemt Oranje het op tegen Japan?](https://www.ad.nl/voetbal/en-nu-op-naar-het-wk-wanneer-en-hoe-laat-neemt-oranje-het-op-tegen-japan~a2f4806c/)
-  > Het Nederlands elftal vertrekt op dinsdagochtend naar Kansas City. Daar is het basiskamp van Oranje opgeslagen. Vier dagen later, op 9 juni, reist de...
-- [Oranje op rapport | Drie onvoldoendes en één grote, voorspelbare uitblinker tegen Oezbeken](https://www.ad.nl/wk-voetbal/oranje-op-rapport-drie-onvoldoendes-en-een-grote-voorspelbare-uitblinker-tegen-oezbeken~a267a16d/)
-  > Oranje heeft de laatste test voor het WK moeizaam gewonnen van Oezbekistan. De generale repetitie levert één grote uitblinker en liefst drie...
-- [Rode kaart voor Guus Til bij Oranje: wat zijn de regels met oog op WK?](https://www.ad.nl/wk-voetbal/rode-kaart-voor-guus-til-bij-oranje-wat-zijn-de-regels-met-oog-op-wk~ab23a05e/)
-  > Guus Til kreeg in de slotfase van de oefenwedstrijd tegen Oezbekistan een rode kaart. Komt de eerste WK-wedstrijd tegen Japan van komende zondag in...
+- [Baas die ‘zieke’ werknemer ontmaskerde na langsbrengen bloemen, ging tóch te ver met ontslag](https://www.ad.nl/binnenland/baas-die-zieke-werknemer-ontmaskerde-na-langsbrengen-bloemen-ging-toch-te-ver-met-ontslag~afc55b8e/)
+  > Het ontslag van een ‘zieke’ werknemer die werd ontmaskerd door een privédetective, maakte vorig jaar veel los. De detective zag hoe de man, ondanks...
+- [Experts: laad je elektrische auto niet meer tussen 16.00 en 21.00 uur](https://www.ad.nl/binnenland/experts-laad-je-elektrische-auto-niet-meer-tussen-16-00-en-21-00-uur~a54c7bc2/)
+  > Automobilisten moeten het liefst vandaag nog stoppen met het laden van hun stekkerauto tijdens de avondspits. Dat is beter voor hun portemonnee en...
+- [Hoofdaanklager Internationaal Strafhof geschorst om vermeend wangedrag](https://www.ad.nl/binnenland/hoofdaanklager-internationaal-strafhof-geschorst-om-vermeend-wangedrag~a497e13a/)
+  > De hoofdaanklager van het Internationaal Strafhof (ICC), Karim Khan, is officieel geschorst vanwege beschuldigingen van seksueel wangedrag. Een...
+- [Shakira was bijna gestopt met haar zangcarrière om boerin te worden](https://www.ad.nl/show/shakira-was-bijna-gestopt-met-haar-zangcarriere-om-boerin-te-worden~af4dc366/)
+  > Shakira was bijna gestopt met haar zangcarrière. In een interview met Vogue vertelt de Colombiaanse zangeres dat ze overwoog met pensioen te gaan.
+- [Reserves van Oranje verliezen van tweede keus Oezbekistan](https://www.ad.nl/sport/reserves-van-oranje-verliezen-van-tweede-keus-oezbekistan~a91372af/)
+  > De reserves van het Nederlands elftal hebben een trainingswedstrijd tegen de tweede keus van Oezbekistan verloren. Ze gingen met 2-1 onderuit in een...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Jonge advocaten en bankiers doelwit van beursfraudeurs](https://fd.nl/economie/1599264/jonge-advocaten-en-bankiers-doelwit-van-beursfraudeurs)
+  > Vandaag in Dagkoers: Bendes jagen op voorkennis, en hopen die te vinden bij jonge advocaten en bankiers, winkeliers verlaten lobbyclub VNO-NCW &...
 - [Kruideniersmentaliteit](https://fd.nl/opinie/1599278/kruideniersmentaliteit)
   > Een meerderheid van de ondernemers maakt zich zorgen over politieke versplintering, bleek uit een enquête van VNO-NCW. Nu valt juist die organisatie...
 - [China’s verstandshuwelijk met Noord-Korea](https://fd.nl/opinie/1599245/chinas-verstandshuwelijk-met-noord-korea)
@@ -54,8 +56,6 @@
   > De Europese Centrale Bank verhoogt donderdag vrijwel zeker de rente om de inflatie af te remmen. De vraag is nu vooral hoe de ECB het risico op...
 - [Een huis kopen binnen een minuut? AI zet hypotheekmarkt op zijn kop](https://fd.nl/bedrijfsleven/1598863/een-huis-kopen-binnen-een-minuut-ai-zet-hypotheekmarkt-op-zijn-kop)
   > Nog tijdens het bezichtigen van een woning al de hypotheek rondkrijgen? Banken, adviseurs en kopers maken zich door AI klaar voor een revolutie op de...
-- [Personalia dinsdag 9 juni](https://fd.nl/bedrijfsleven/1599252/personalia-dinsdag-9-juni)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
