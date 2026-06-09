@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-06-2026 om 03:55*
+*Laatst bijgewerkt: 09-06-2026 om 07:55*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Geen werkvisum van een 100.000 dollar: rechter zet streep door Trump-plan](https://nos.nl/l/2617746)
-  > De nieuwe werkvisa van 100.000 dollar voor hoogopgeleide werknemers uit het buitenland die in de VS komen werken, komen er niet. Een federale rechter...
-- [Kleine brand bij opvang minderjarige asielzoekers in Cadier en Keer, mogelijk aangestoken](https://nos.nl/l/2617745)
-  > Bij een opvanglocatie voor minderjarige asielzoekers in het Limburgse Cadier en Keer is maandagavond brand uitgebroken. De politie heeft een...
-- [Samuel Welten wint Buma Award voor grootste hit van het jaar](https://nos.nl/l/2617742)
-  > Het meest succesvolle nummer van 2025 in Nederland is bekend: Echte liefde is te koop van Samuel Welten (19) heeft de Buma Award Nationaal gewonnen....
-- [Onderzoek: Nederlanders verspillen minder voedsel, maar het moet nóg veel minder](https://nos.nl/l/2617737)
-  > Nederlanders gooiden vorig jaar gemiddeld 25 kilo voedsel weg, blijkt uit onderzoek van het Voedingscentrum naar voedselverspilling, dat eens in de...
-- [Tienduizenden Duitsers zonder stroom na brandstichting bij onderstation](https://nos.nl/l/2617719)
-  > In Reutlingen, een stad in het zuidwesten van Duitsland, heeft afgelopen nacht brand gewoed in een onderstation van het elektriciteitsnetwerk....
+- [Pentagon zet Chinese bedrijven als Alibaba op zwarte lijst](https://nos.nl/l/2617767)
+  > Het Amerikaanse ministerie van Defensie heeft een aantal Chinese bedrijven, waaronder BYD en Alibaba, toegevoegd aan de lijst van ondernemingen die...
+- [Dodental na aardbeving Filipijnen loopt op, tienduizenden mensen ontheemd](https://nos.nl/l/2617765)
+  > In de Filipijnen is het dodental door de aardbeving van gisteren opgelopen tot zeker 37. De aardbeving met een kracht van 7,8 was de zwaarste...
+- [Chocomel na 77 jaar geen Cécémel meer in België](https://nos.nl/l/2617764)
+  > België neemt na 77 jaar afscheid van zijn eigen benaming voor het drankje Chocomel. Om de naamgeving internationaal gelijk te trekken krijgt het...
+- [Nacht lijkt rustig te zijn verlopen na staken raketaanvallen Iran en Israël](https://nos.nl/l/2617758)
+  > Het lijkt afgelopen nacht rustig te zijn gebleven in het Midden-Oosten na de raketaanvallen over en weer van Iran en Israël gisteren.
+        Zowel...
+- [Mensen met beperking of chronische ziekte vrezen hoge kosten door maatregelen kabinet](https://nos.nl/l/2617752)
+  > Het Nationaal Instituut voor Budgetvoorlichting (Nibud) waarschuwt voor de effecten van de voorgestelde kabinetsmaatregelen voor mensen met een...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Baas die ‘zieke’ werknemer ontmaskerde na langsbrengen bloemen, ging tóch te ver met ontslag](https://www.ad.nl/binnenland/baas-die-zieke-werknemer-ontmaskerde-na-langsbrengen-bloemen-ging-toch-te-ver-met-ontslag~afc55b8e/)
-  > Het ontslag van een ‘zieke’ werknemer die werd ontmaskerd door een privédetective, maakte vorig jaar veel los. De detective zag hoe de man, ondanks...
-- [Experts: laad je elektrische auto niet meer tussen 16.00 en 21.00 uur](https://www.ad.nl/binnenland/experts-laad-je-elektrische-auto-niet-meer-tussen-16-00-en-21-00-uur~a54c7bc2/)
-  > Automobilisten moeten het liefst vandaag nog stoppen met het laden van hun stekkerauto tijdens de avondspits. Dat is beter voor hun portemonnee en...
-- [Hoofdaanklager Internationaal Strafhof geschorst om vermeend wangedrag](https://www.ad.nl/binnenland/hoofdaanklager-internationaal-strafhof-geschorst-om-vermeend-wangedrag~a497e13a/)
-  > De hoofdaanklager van het Internationaal Strafhof (ICC), Karim Khan, is officieel geschorst vanwege beschuldigingen van seksueel wangedrag. Een...
-- [Shakira was bijna gestopt met haar zangcarrière om boerin te worden](https://www.ad.nl/show/shakira-was-bijna-gestopt-met-haar-zangcarriere-om-boerin-te-worden~af4dc366/)
-  > Shakira was bijna gestopt met haar zangcarrière. In een interview met Vogue vertelt de Colombiaanse zangeres dat ze overwoog met pensioen te gaan.
-- [Reserves van Oranje verliezen van tweede keus Oezbekistan](https://www.ad.nl/sport/reserves-van-oranje-verliezen-van-tweede-keus-oezbekistan~a91372af/)
-  > De reserves van het Nederlands elftal hebben een trainingswedstrijd tegen de tweede keus van Oezbekistan verloren. Ze gingen met 2-1 onderuit in een...
+- [Recordtransfer voor FC Twente: Mats Rots voor vijf jaar naar Hoffenheim](https://www.ad.nl/voetbal/recordtransfer-voor-fc-twente-mats-rots-voor-vijf-jaar-naar-hoffenheim~a07a6bff/)
+  > Mats Rots wordt de duurst verkochte speler ooit van FC Twente. De Tukkers verkopen de talentvolle linksback voor - in totaal - 16 miljoen euro aan...
+- [Vrouw lastiggevallen en aangerand in Eurostar, Britse politie wacht groepje Nederlanders op](https://www.ad.nl/buitenland/vrouw-lastiggevallen-en-aangerand-in-eurostar-britse-politie-wacht-groepje-nederlanders-op~ab775cd9/)
+  > Een groep dronken mannen heeft afgelopen vrijdag voor onrust gezorgd op een Eurostar-trein naar Londen. Een vrouwelijke passagier maakte een melding...
+- [Tijden GP Barcelona | Zo laat komt Max Verstappen in actie op circuit waar hij zijn eerste zege boekte](https://www.ad.nl/formule-1/tijden-gp-barcelona-zo-laat-komt-max-verstappen-in-actie-op-circuit-waar-hij-zijn-eerste-zege-boekte~a04674a4/)
+  > Het zit Max Verstappen nog niet mee dit Formule 1-seizoen. Bij de Grand Prix van Monaco ging het zondag al mis bij de start en noteerde hij zijn...
+- [LIVE WK voetbal | Makkelie fluit eerste wedstrijd van VS, goede generale voor Spanje](https://www.ad.nl/wk-voetbal/live-wk-voetbal-makkelie-fluit-eerste-wedstrijd-van-vs-goede-generale-voor-spanje~a61805da/)
+  > Komende donderdag begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste wedstrijd. Via...
+- [Drama voor topscheidsrechter: Afrikaan mist het WK na weigering aan grens VS](https://www.ad.nl/wk-voetbal/drama-voor-topscheidsrechter-afrikaan-mist-het-wk-na-weigering-aan-grens-vs~a1b3e70c/)
+  > Scheidsrechter Omar Abdulkadir Artan uit Somalië, die op de lijst stond voor het WK voetbal, is de toegang geweigerd tot de Verenigde Staten. Een...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Jonge advocaten en bankiers doelwit van beursfraudeurs](https://fd.nl/economie/1599264/jonge-advocaten-en-bankiers-doelwit-van-beursfraudeurs)
-  > Vandaag in Dagkoers: Bendes jagen op voorkennis, en hopen die te vinden bij jonge advocaten en bankiers, winkeliers verlaten lobbyclub VNO-NCW &...
-- [Kruideniersmentaliteit](https://fd.nl/opinie/1599278/kruideniersmentaliteit)
-  > Een meerderheid van de ondernemers maakt zich zorgen over politieke versplintering, bleek uit een enquête van VNO-NCW. Nu valt juist die organisatie...
-- [China’s verstandshuwelijk met Noord-Korea](https://fd.nl/opinie/1599245/chinas-verstandshuwelijk-met-noord-korea)
-  > Xi Jinping ergert zich al jaren aan de nucleaire provocaties van Kim Jong-un. Toch blijft Noord-Korea voor China een strategische noodzaak. Het...
-- [ECB koerst op renteverhoging, blijft het daar dit jaar bij?](https://fd.nl/financiele-markten/1599159/ecb-koerst-op-renteverhoging-blijft-het-daar-dit-jaar-bij)
-  > De Europese Centrale Bank verhoogt donderdag vrijwel zeker de rente om de inflatie af te remmen. De vraag is nu vooral hoe de ECB het risico op...
-- [Een huis kopen binnen een minuut? AI zet hypotheekmarkt op zijn kop](https://fd.nl/bedrijfsleven/1598863/een-huis-kopen-binnen-een-minuut-ai-zet-hypotheekmarkt-op-zijn-kop)
-  > Nog tijdens het bezichtigen van een woning al de hypotheek rondkrijgen? Banken, adviseurs en kopers maken zich door AI klaar voor een revolutie op de...
+- [ASN Bank blijft nog zeker een jaar in staatshanden](https://fd.nl/financiele-markten/1599293/asn-bank-blijft-nog-zeker-een-jaar-in-staatshanden)
+  > ASN Bank is nog niet klaar voor een zelfstandige toekomst, oordeelt staatsaandeelhouder NLFI. Minister Eelco Heinen van Financiën deelde dat besluit...
+- [Hoofdaanklager Internationaal Strafhof per direct geschorst](https://fd.nl/politiek/1599292/hoofdaanklager-internationaal-strafhof-per-direct-geschorst)
+  > Karim Khan hangt ontslag boven het hoofd na een onderzoek naar beschuldigingen van seksuele intimidatie.
+- [Barrie Stevens gaat gewoon doorrr](https://fd.nl/samenleving/1599155/barrie-stevens-gaat-gewoon-doorrr)
+  > ‘Vooral doorgaan.’ Dat was bij de Soundmixshow Barrie Stevens’ vaste tekst. Nu werkt hij toe naar zijn laatste voorstelling waarin hij terugkijkt op...
+- [Consumptie Nederlandse huishoudens hoger in april](https://fd.nl/economie/1599406/consumptie-nederlandse-huishoudens-hoger-in-april)
+  > De consumptie van Nederlandse huishoudens is in de maand april gestegen.
+- [OpenAI zet eerste stap voor beursgang](https://fd.nl/bedrijfsleven/1599291/openai-zet-eerste-stap-voor-beursgang)
+  > Met het indienen van papierwerk voegt OpenAI zich bij branchegenoten die naar de beurs willen. OpenAI is volgens de FT bij een beursintroductie...
 
 ### Meest gelezen
 
