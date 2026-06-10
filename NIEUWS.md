@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-06-2026 om 08:51*
+*Laatst bijgewerkt: 10-06-2026 om 12:25*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Helikopters en een schietbaan: plannen voor megakazerne in Zeewolde bekend](https://nos.nl/l/2617914)
-  > Defensie heeft de eerste concrete plannen naar buiten gebracht voor de nieuwe megakazerne in Zeewolde, die rond 2035 klaar moet zijn. Op het terrein...
-- [Gasunie bezorgd: we moeten meer vaart maken met vullen gasopslag](https://nos.nl/l/2617913)
-  > De Gasunie vindt dat de Nederlandse gasopslagen niet snel genoeg worden bijgevuld voor komende winter. Dat bevestigt het bedrijf na berichtgeving in...
-- [Paus zegent toren Sagrada Família in, maar er is ook kritiek op voltooiing basiliek](https://nos.nl/l/2617909)
-  > Vraag mensen naar het bekendste werk van Antoni Gaudí en je krijgt als antwoord: de Sagrada Família. Precies 100 jaar na de dood van de architect...
-- [Derde explosie in paar weken tijd in zelfde straat Poortugaal](https://nos.nl/l/2617900)
-  > Bij een woning in Poortugaal is afgelopen nacht een explosief afgegaan. Na de ontploffing brak brand uit. Het is de derde explosie in een paar weken...
-- [12 doden bij schietpartij in Johannesburg, klopjacht op schutters](https://nos.nl/l/2617899)
-  > Bij een schietpartij in een township in de Zuid-Afrikaanse stad Johannesburg zijn zeker twaalf mensen om het leven gekomen. Negen mensen raakten...
+- [Pepperspray misschien legaal voor bedreigde mensen](https://nos.nl/l/2617939)
+  > Het kabinet onderzoekt of pepperspray legaal kan worden voor mensen die gestalkt worden of die op een andere manier worden bedreigd. In Denemarken...
+- [Podcast De Dag: Wat je over het WK moet weten (voor bij de koffieautomaat)](https://nos.nl/l/2617937)
+  > Of je er niets mee hebt, of dat je niet kunt wachten tot het begint, vanaf morgen zal het er bij de koffieautomaat veel over gaan: het WK voetbal in...
+- [Zoon van zieke Noorse prinses toch niet vrij uit voorarrest: 'Te groot risico'](https://nos.nl/l/2617936)
+  > Marius Borg Høiby, de 29-jarige zoon van de Noorse kroonprinses Mette-Marit, komt toch niet vrij. Een Noors gerechtshof heeft zijn verzoek om te...
+- [Grootschalige Oekraïense drone- en raketaanval vannacht op Rusland](https://nos.nl/l/2617930)
+  > Bij een grootschalige Oekraïense drone- en raketaanval zijn vannacht verspreid over Rusland militaire infrastructuur en olie-installaties onder vuur...
+- [Nieuwe campagne tegen fatbike-wangedrag: ouders moeten kinderen aanspreken op rijstijl](https://nos.nl/l/2617929)
+  > De overheid begint 15 juni een campagne in een nieuwe poging om wangedrag op fatbikes aan te pakken. Verantwoordelijk minister Karremans van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Waarom Nederland steeds meer achterloopt met toelating nieuwe medicijnen](https://www.ad.nl/binnenland/waarom-nederland-steeds-meer-achterloopt-met-toelating-nieuwe-medicijnen~a2544cbc/)
-  > Het duurt steeds langer voordat nieuwe medicijnen op de Nederlandse markt worden toegelaten. Hoe kan dat gebeuren in een land dat eerst vooropliep...
-- [Mangafans boos om ‘ninja-video’ Trump: petitie tegen politiek gebruik bijna 20.000 keer getekend](https://www.ad.nl/buitenland/mangafans-boos-om-ninja-video-trump-petitie-tegen-politiek-gebruik-bijna-20-000-keer-getekend~a1f2a575/)
-  > Een video waarin de Amerikaanse president Donald Trump wordt afgebeeld als een ninja uit een populaire mangaserie, leidt op internet tot verzet. Een...
-- [Code geel in groot deel van Nederland om onweersbuien, hagelstenen van 2 centimeter mogelijk](https://www.ad.nl/binnenland/code-geel-in-groot-deel-van-nederland-om-onweersbuien-hagelstenen-van-2-centimeter-mogelijk~abe8aeaec/)
-  > In Zuid-Holland en het gehele oostelijke deel van Nederland kunnen onweersbuien voor overlast zorgen, meldt het KNMI. Die kunnen gepaard gaan met...
-- [Wagenziek? Hoe reisziekte ontstaat en wat je ertegen kunt doen](https://www.ad.nl/gezond/wagenziek-hoe-reisziekte-ontstaat-en-wat-je-ertegen-kunt-doen~a1f7834d/)
-  > Bijna zomervakantie: dan gaan we weer massaal op reis en stappen we in de auto, het vliegtuig of op de boot. Niet iedereen kijkt daarnaar uit. Een op...
-- [Barrie Stevens staat deze zomer voor de laatste keer op de planken](https://www.ad.nl/show/barrie-stevens-staat-deze-zomer-voor-de-laatste-keer-op-de-planken~abb151fb/)
-  > Barrie Stevens staat komende zomer met zijn voorstelling The importance of being Barrie voor de laatste keer op de planken. De 82-jarige Stevens...
+- [Pepperspray blijft verboden: minister vindt het te gevaarlijk voor de vrouw zélf](https://www.ad.nl/politiek/pepperspray-blijft-verboden-minister-vindt-het-te-gevaarlijk-voor-de-vrouw-zelf~a37b7e5b/)
+  > Pepperspray blijft toch een verboden wapen: het kabinet overwoog het middel legaal te maken zodat vrouwen zich kunnen verdedigen tegen (seksueel)...
+- [Iran dreigt tijdens WK-duels van het veld te stappen bij protest in stadions tegen het regime](https://www.ad.nl/wk-voetbal/iran-dreigt-tijdens-wk-duels-van-het-veld-te-stappen-bij-protest-in-stadions-tegen-het-regime~a201c7f2/)
+  > Iran dreigt met het stilleggen van zijn wedstrijden tijdens het WK voetbal als er in de stadions protesten zijn van de Perzische diaspora tegen het...
+- [Goedkoop medicijn kan levens redden, maar patiënten krijgen het toch niet: Hartstichting boos over regels](https://www.ad.nl/binnenland/goedkoop-medicijn-kan-levens-redden-maar-patienten-krijgen-het-toch-niet-hartstichting-boos-over-regels~a55e5628/)
+  > Oude, bestaande medicijnen tegen een specifieke kwaal blijken vaak ook heel goed te werken tegen iets heel anders. Groot voordeel: ze zijn daardoor...
+- [Deveron Fonville wilde niet wachten op Oranje: ‘Ik wist gewoon dat ik voor Curaçao moest kiezen’](https://www.ad.nl/wk-voetbal/deveron-fonville-wilde-niet-wachten-op-oranje-ik-wist-gewoon-dat-ik-voor-curacao-moest-kiezen~ae3fafb3/)
+  > Dick Schreuder voorspelde hem een toekomst als international van Oranje, maar Dick Advocaat bouwt nu op Deveron Fonville bij Curaçao. Hoe de...
+- [Marktplaats geeft cijfers vrij: 25.386 zoekopdrachten naar Parool met ‘zelfgeschreven’ bedankje van Harry Styles](https://www.ad.nl/show/marktplaats-geeft-cijfers-vrij-25-386-zoekopdrachten-naar-parool-met-zelfgeschreven-bedankje-van-harry-styles~af75e445c/)
+  > In de periode van 1 juni tot en met 8 juni is er 25.386 keer gezocht op Marktplaats naar de zaterdageditie van Het Parool, waarin een handgeschreven...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Italiaanse tech-ceo: ‘OpenAI en Anthropic maken iedereen bang met leugens’](https://fd.nl/tech-en-innovatie/1599295/italiaanse-tech-ceo-de-trage-vibe-van-europa-is-een-voordeel-in-de-ai-revolutie)
-  > Europese bedrijven bouwen betrouwbaardere AI dan Amerikaanse, zegt Uljan Sharka, ceo van het Italiaanse techbedrijf Domyn. Dat biedt Europa kansen.
-- [Een 19de-eeuws voormalig koetshuis in het hart van Arnhem](https://fd.nl/samenleving/1599418/een-19de-eeuws-voormalig-koetshuis-in-het-hart-van-arnhem)
-  > ‘Tijdens een vakantie in Frankrijk vertelde iemand ons dat ze in de tijd dat het huis nog een poppodium was tegen deze paal had staan zoenen.’
-- [Verplichte kwartaalrapportages leveren aantoonbaar voordeel op voor beleggers én bedrijven](https://fd.nl/opinie/1599410/verplichte-kwartaalrapportages-leveren-aantoonbaar-voordeel-op-voor-beleggers-en-bedrijven)
-  > Minder rapporteren klinkt aantrekkelijk, maar kan bedrijven juist duurder uitpakken. Frequentere rapportages versterken de informatiepositie van...
-- [Oud-militair Dennis van der Kraats: ‘Er was geen reden om me te schamen’](https://fd.nl/samenleving/1599158/oud-militair-dennis-van-der-kraats-er-was-geen-reden-om-me-te-schamen)
-  > In Afghanistan liep Dennis van der Kraats (1974) ‘moral injury’ op. En een aanhoudend schuldgevoel.
-- [Aanvallen tussen VS en Iran na crash van Amerikaanse helikopter](https://fd.nl/politiek/1599366/aanvallen-tussen-vs-en-iran-na-crash-van-amerikaanse-helikopter)
-  > De Amerikaanse aanvallen waren op doelwitten rond de Straat van Hormuz. Iran viel Amerikaanse bases in Bahrein, Jordanië en Koeweit aan.
+- [Ondeelbaar bestaan](https://fd.nl/opinie/1599240/ondeelbaar-bestaan)
+  > Om iets te beheersen moet je het eerst opdelen en als je de wereld eenmaal hebt opgedeeld, is de verleiding groot haar te beheersen. En opdelen is...
+- [Voor economie beter om WK‑finale niet te halen dan te verliezen](https://fd.nl/economie/1599372/voor-economie-beter-om-wkfinale-niet-te-halen-dan-te-verliezen)
+  > Het bereiken van een kwartfinale- of halvefinaleplaats door Oranje heeft geen aantoonbaar effect op het consumentenvertrouwen of de consumptie van...
+- [Tennet: tekort aan stroom loopt na 2030 snel op, ingrijpen nodig](https://fd.nl/bedrijfsleven/1599367/tennet-tekort-aan-stroom-loopt-na-2030-snel-op-ingrijpen-nodig)
+  > ‘De cijfers zijn zo alarmerend dat we nu in actie moeten komen’, zegt de netbeheerder. Tennet roept het kabinet op maatregelen te nemen om de...
+- [Halfjaar na kluisjeskraak in Gelsenkirchen staan bankklanten én politie met lege handen](https://fd.nl/bedrijfsleven/1599169/halfjaar-na-kluisjeskraak-ingelsenkirchen-staan-bankklanten-en-politie-met-lege-handen)
+  > Bij een inbraak in de Sparkasse Gelsenkirchen maakten dieven mogelijk €100 mln buit. Klanten willen compensatie en klagen de bank aan. Vijf vragen...
+- [ING volgt met nieuwe pakketten de prijsstrategie van onlinebanken](https://fd.nl/financiele-markten/1599374/ing-volgt-met-nieuwe-pakketten-de-prijsstrategie-van-onlinebanken)
+  > De bank breidt zijn betaalpakketten voor particuliere klanten uit met meer keuzemogelijkheden.
 
 ### Meest gelezen
 
