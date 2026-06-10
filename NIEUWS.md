@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-06-2026 om 12:25*
+*Laatst bijgewerkt: 10-06-2026 om 16:37*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Pepperspray misschien legaal voor bedreigde mensen](https://nos.nl/l/2617939)
-  > Het kabinet onderzoekt of pepperspray legaal kan worden voor mensen die gestalkt worden of die op een andere manier worden bedreigd. In Denemarken...
-- [Podcast De Dag: Wat je over het WK moet weten (voor bij de koffieautomaat)](https://nos.nl/l/2617937)
-  > Of je er niets mee hebt, of dat je niet kunt wachten tot het begint, vanaf morgen zal het er bij de koffieautomaat veel over gaan: het WK voetbal in...
-- [Zoon van zieke Noorse prinses toch niet vrij uit voorarrest: 'Te groot risico'](https://nos.nl/l/2617936)
-  > Marius Borg Høiby, de 29-jarige zoon van de Noorse kroonprinses Mette-Marit, komt toch niet vrij. Een Noors gerechtshof heeft zijn verzoek om te...
-- [Grootschalige Oekraïense drone- en raketaanval vannacht op Rusland](https://nos.nl/l/2617930)
-  > Bij een grootschalige Oekraïense drone- en raketaanval zijn vannacht verspreid over Rusland militaire infrastructuur en olie-installaties onder vuur...
-- [Nieuwe campagne tegen fatbike-wangedrag: ouders moeten kinderen aanspreken op rijstijl](https://nos.nl/l/2617929)
-  > De overheid begint 15 juni een campagne in een nieuwe poging om wangedrag op fatbikes aan te pakken. Verantwoordelijk minister Karremans van...
+- [Komende maanden geen gedwongen ontslagen bij ASML na akkoord met vakbonden](https://nos.nl/l/2617973)
+  > Een meerderheid van de vakbondsleden werkzaam bij ASML heeft ingestemd met het sociale plan voor de reorganisatie bij de chipmaker. Dat melden...
+- [Stenengooiers Landgraaf verdacht van poging doodslag, 'begon als kattenkwaad'](https://nos.nl/l/2617970)
+  > Tegen drie mannen die sinaasappels, eieren, houtblokken, stenen en zelfs een verkeerbord van een viaduct af gooiden in Zuid-Limburg, zijn...
+- [Ondanks herhaalde beweringen van Trump lijkt een deal met Iran nog ver weg](https://nos.nl/l/2617967)
+  > "We zijn dicht bij een deal met Iran." Een bewering als deze heeft de Amerikaanse president Trump sinds het begin van de oorlog met Iran geregeld...
+- ['Met autobom omgebrachte man in voorstad Moskou was hooggeplaatste militair'](https://nos.nl/l/2617966)
+  > De man die gisteren in de buurt van Moskou door een aanslag met een autobom om het leven werd gebracht, was een hooggeplaatste Russische militair....
+- [Pointer-presentator in gezicht geslagen door jonge Snapchat-dealers](https://nos.nl/l/2617962)
+  > Een journalist van Pointer is mishandeld tijdens undercoveropnames over drugshandel via Snapchat. Presentator Jos de Groot werd geslagen toen hij...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Pepperspray blijft verboden: minister vindt het te gevaarlijk voor de vrouw zélf](https://www.ad.nl/politiek/pepperspray-blijft-verboden-minister-vindt-het-te-gevaarlijk-voor-de-vrouw-zelf~a37b7e5b/)
-  > Pepperspray blijft toch een verboden wapen: het kabinet overwoog het middel legaal te maken zodat vrouwen zich kunnen verdedigen tegen (seksueel)...
-- [Iran dreigt tijdens WK-duels van het veld te stappen bij protest in stadions tegen het regime](https://www.ad.nl/wk-voetbal/iran-dreigt-tijdens-wk-duels-van-het-veld-te-stappen-bij-protest-in-stadions-tegen-het-regime~a201c7f2/)
-  > Iran dreigt met het stilleggen van zijn wedstrijden tijdens het WK voetbal als er in de stadions protesten zijn van de Perzische diaspora tegen het...
-- [Goedkoop medicijn kan levens redden, maar patiënten krijgen het toch niet: Hartstichting boos over regels](https://www.ad.nl/binnenland/goedkoop-medicijn-kan-levens-redden-maar-patienten-krijgen-het-toch-niet-hartstichting-boos-over-regels~a55e5628/)
-  > Oude, bestaande medicijnen tegen een specifieke kwaal blijken vaak ook heel goed te werken tegen iets heel anders. Groot voordeel: ze zijn daardoor...
-- [Deveron Fonville wilde niet wachten op Oranje: ‘Ik wist gewoon dat ik voor Curaçao moest kiezen’](https://www.ad.nl/wk-voetbal/deveron-fonville-wilde-niet-wachten-op-oranje-ik-wist-gewoon-dat-ik-voor-curacao-moest-kiezen~ae3fafb3/)
-  > Dick Schreuder voorspelde hem een toekomst als international van Oranje, maar Dick Advocaat bouwt nu op Deveron Fonville bij Curaçao. Hoe de...
-- [Marktplaats geeft cijfers vrij: 25.386 zoekopdrachten naar Parool met ‘zelfgeschreven’ bedankje van Harry Styles](https://www.ad.nl/show/marktplaats-geeft-cijfers-vrij-25-386-zoekopdrachten-naar-parool-met-zelfgeschreven-bedankje-van-harry-styles~af75e445c/)
-  > In de periode van 1 juni tot en met 8 juni is er 25.386 keer gezocht op Marktplaats naar de zaterdageditie van Het Parool, waarin een handgeschreven...
+- [Met de terugkeer van Poetins boodschapper gloort er enige hoop op vrede in Oekraïne](https://www.ad.nl/buitenland/met-de-terugkeer-van-poetins-boodschapper-gloort-er-enige-hoop-op-vrede-in-oekraine~a60117f6/)
+  > Terug van weggeweest: Roman Abramovitsj. De naam van de Russische multimiljardair en voormalige eigenaar van voetbalclub Chelsea dook vorige week...
+- [Man op afgelegen eiland test positief op hantavirus nadat parachutisten op eiland landen](https://www.ad.nl/nieuws/man-op-afgelegen-eiland-test-positief-op-hantavirus-nadat-parachutisten-op-eiland-landen~ad55bb06/)
+  > Een Britse man, die meevoer op het cruiseschip Hondius, is positief getest op het hantavirus. Dat meldt de Wereldgezondheidsorganisatie (WHO)....
+- [Primeur in schaatswereld: Peking gaat vier WK’s tegelijk organiseren](https://www.ad.nl/schaatsen/primeur-in-schaatswereld-peking-gaat-vier-wks-tegelijk-organiseren~ae53c7a0/)
+  > Peking krijgt in 2028 een schaatsprimeur. De internationale schaatsunie ISU heeft bepaald dat in de Chinese hoofdstad de wereldkampioenschappen...
+- [Goed plan om mensen in de bijstand taallessen te laten volgen](https://www.ad.nl/binnenland/goed-plan-om-mensen-in-de-bijstand-taallessen-te-laten-volgen~aebd9627/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [KNVB hoopt op 10.000 Oranjesupporters bij fanwalk naar stadion, demonstranten blokkeren stadion van openingsduel](https://www.ad.nl/wk-voetbal/knvb-hoopt-op-10-000-oranjesupporters-bij-fanwalk-naar-stadion-demonstranten-blokkeren-stadion-van-openingsduel~a2d5cab9/)
+  > Komende donderdag begint het WK voetbal in Canada, Mexico en de Verenigde Staten. Op 11 juni spelen Mexico en Zuid-Afrika de eerste wedstrijd. Via...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Ondeelbaar bestaan](https://fd.nl/opinie/1599240/ondeelbaar-bestaan)
-  > Om iets te beheersen moet je het eerst opdelen en als je de wereld eenmaal hebt opgedeeld, is de verleiding groot haar te beheersen. En opdelen is...
-- [Voor economie beter om WK‑finale niet te halen dan te verliezen](https://fd.nl/economie/1599372/voor-economie-beter-om-wkfinale-niet-te-halen-dan-te-verliezen)
-  > Het bereiken van een kwartfinale- of halvefinaleplaats door Oranje heeft geen aantoonbaar effect op het consumentenvertrouwen of de consumptie van...
-- [Tennet: tekort aan stroom loopt na 2030 snel op, ingrijpen nodig](https://fd.nl/bedrijfsleven/1599367/tennet-tekort-aan-stroom-loopt-na-2030-snel-op-ingrijpen-nodig)
-  > ‘De cijfers zijn zo alarmerend dat we nu in actie moeten komen’, zegt de netbeheerder. Tennet roept het kabinet op maatregelen te nemen om de...
-- [Halfjaar na kluisjeskraak in Gelsenkirchen staan bankklanten én politie met lege handen](https://fd.nl/bedrijfsleven/1599169/halfjaar-na-kluisjeskraak-ingelsenkirchen-staan-bankklanten-en-politie-met-lege-handen)
-  > Bij een inbraak in de Sparkasse Gelsenkirchen maakten dieven mogelijk €100 mln buit. Klanten willen compensatie en klagen de bank aan. Vijf vragen...
-- [ING volgt met nieuwe pakketten de prijsstrategie van onlinebanken](https://fd.nl/financiele-markten/1599374/ing-volgt-met-nieuwe-pakketten-de-prijsstrategie-van-onlinebanken)
-  > De bank breidt zijn betaalpakketten voor particuliere klanten uit met meer keuzemogelijkheden.
+- [Koolmees: duizenden bedrijven vroegen om steun, nog voordat corona Nederland had bereikt](https://fd.nl/politiek/1599486/koolmees-duizenden-bedrijven-vroegen-om-steun-nog-voordat-corona-nederland-had-bereikt)
+  > Het ging vooral om bedrijven die zaken deden in China, waar het virus als eerste was uitgebroken. Dat zei oud-minister Wouter Koolmees woensdag tegen...
+- [Fysiotherapeuten eisen bij rechter meer geld van zorgverzekeraars](https://fd.nl/bedrijfsleven/1599310/fysiotherapeuten-eisen-bij-rechter-meer-geld-van-zorgverzekeraars)
+  > Ruim 1600 fysiotherapiepraktijken willen dat de rechter ingrijpt bij de in hun ogen ondermaatse vergoedingen voor verleende zorg.
+- [ING valt niet meer onder bonusplafond, maar keert geen hogere beloningen uit](https://fd.nl/financiele-markten/1599484/ing-valt-niet-meer-onder-bonusplafond-maar-keert-geen-hogere-beloningen-uit)
+  > ING kan aanspraak maken op een uitzonderingspositie in het bonusbeleid omdat meer dan driekwart van het personeel buiten Nederland werkt.
+- [Nieuwe TomTom-ceo is allergisch voor vaagtaal en lange powerpoints](https://fd.nl/bedrijfsleven/1599324/nieuwe-tomtom-ceo-is-allergisch-voor-vaagtaal-en-lange-powerpoints)
+  > Mike Schoofs is een pragmaticus die er niet omheen draait. Sinds april is de Belg de nieuwe ceo van TomTom. ‘Hij weet wat hij wil, maar hij is geen...
+- [Chipaandelen bewegen tussen AI-euforie en angst voor een crash](https://fd.nl/financiele-markten/1599465/chipaandelen-bewegen-tussen-ai-euforie-en-angst-voor-een-crash)
+  > Na een daling eind vorige week, duurde het herstel van chipaandelen slechts een dag. Een duidelijke oorzaak is moeilijk aan te wijzen.
 
 ### Meest gelezen
 
