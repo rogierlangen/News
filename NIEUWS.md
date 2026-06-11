@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-06-2026 om 05:52*
+*Laatst bijgewerkt: 11-06-2026 om 10:43*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Leeftijdsgenoten lesgeven: praktijkgerichte havo straks overal toegestaan](https://nos.nl/l/2618042)
-  > Leeftijdgenoten wiskundeles geven of een personeelshandboek maken voor een bedrijf: het kan allemaal binnen de praktijkgerichte havo van het Calvijn...
-- [Walviskerkhof gevonden in Indische Oceaan: 1200 kilometer lang, miljoenen jaren oud](https://nos.nl/l/2618041)
-  > Een internationaal team van wetenschappers heeft in de Indische Oceaan een walviskerkhof gevonden dat groter, ouder en dieper is dan eerder gevonden...
-- [Defensieminister VS: gevangenen Guantanamo hadden geëxecuteerd moeten worden](https://nos.nl/l/2618038)
-  > De Amerikaanse minister van Defensie Pete Hegseth heeft een bezoek gebracht aan de Amerikaanse basis op Guantanamo Bay, op Cuba. Na afloop zei hij...
-- [Veel schade na plofkraak geldautomaat in Helmond](https://nos.nl/l/2618037)
-  > Twee panden in Helmond hebben grote schade na een plofkaak van een geldautomaat. Rond 04.15 uur zouden omwonenden twee knallen hebben gehoord,...
-- [Wekdienst 11/6: WK voetbal begint • Scholieren horen of ze geslaagd zijn](https://nos.nl/l/2618031)
-  > Goedemorgen! Het WK voetbal begint vanavond in Mexico en eindexamenscholieren krijgen te horen of ze geslaagd zijn.
-        Eerst het weer: in de...
+- [NS voert lijnnummers in voor treinverkeer en vraagt om ontwerp voor lijnenkaart](https://nos.nl/l/2618077)
+  > De NS voert volgend jaar lijnnummers in voor alle treinverbindingen. Reizigers kunnen hun trein daardoor voortaan niet alleen herkennen aan...
+- [Chinese webwinkel Joybuy wil Nederland veroveren: 'Willen spierballen laten zien'](https://nos.nl/l/2618073)
+  > Een zo groot mogelijk aanbod zo snel mogelijk bezorgen. Het online winkelen heeft hier de afgelopen jaren een enorme vlucht genomen en daarom is de...
+- [22 Pakistaanse militairen omgekomen bij helikoptercrash](https://nos.nl/l/2618071)
+  > Bij een crash met een legerhelikopter in Pakistan zijn zeker 22 mensen om het leven gekomen, zegt persbureau Reuters op basis van bronnen....
+- ['Leger VS heeft Iraanse waterinstallatie gebombardeerd'](https://nos.nl/l/2618069)
+  > Bij aanvallen op Iran lijkt het Amerikaanse leger bij een precisieaanval gisteren een waterinstallatie te hebben geraakt. Dat blijkt uit een analyse...
+- [Groningse astronoom krijgt prijs voor onderzoek naar 'wilde jeugd Melkweg'](https://nos.nl/l/2618068)
+  > De Melkweg heeft een dynamische en gewelddadige geschiedenis achter de rug, waarin het sterrenstelsel talloze kleinere sterrenstelsels opslokte. Met...
 
 ### Meest gelezen
 
@@ -28,16 +27,15 @@
 
 ### Laatste nieuws
 
-- [Basketballers New York Knicks na historische comeback heel dicht bij NBA-titel](https://www.ad.nl/andere-sporten/basketballers-new-york-knicks-na-historische-comeback-heel-dicht-bij-nba-titel~a795d8a1/)
-  > De basketballers van de New York Knicks hebben de grootste comeback ooit in de NBA-finale gerealiseerd door een achterstand van 29 punten weg te...
-- [Sita over 25 jaar K-otic: ‘Vroeger stapten we een week de tourbus in, nu moeten we het thuis managen’](https://www.ad.nl/show/sita-over-25-jaar-k-otic-vroeger-stapten-we-een-week-de-tourbus-in-nu-moeten-we-het-thuis-managen~a5403b37/)
-  > Als ‘onbevangen meisje’ stapte Sita Vermeulen (46) in 2001 in het Starmaker-avontuur, waar het immens populaire K-otic uit voortkwam. Deze week viert...
-- [Dick Advocaat met eerste pitch in rijtje met Max Verstappen en Will Smith: ‘Dit is een hele eer’](https://www.ad.nl/wk-voetbal/dick-advocaat-met-eerste-pitch-in-rijtje-met-max-verstappen-en-will-smith-dit-is-een-hele-eer~a8c441c7/)
-  > Dick Advocaat en Leandro Bacuna genieten van de eervolle uitnodiging van de Miami Marlins. Het duo verzorgt voor de wedstrijd in de MLB de eerste...
-- [Hoera, geslaagd: stuur ons je filmpje van dat bijzondere moment](https://www.ad.nl/praat-mee/hoera-geslaagd-stuur-ons-je-filmpje-van-dat-bijzondere-moment~acc6ca26/)
-  > De scholieren die eindexamen hebben gedaan voor vmbo, havo en vwo horen vandaag of ze zijn geslaagd. In de loop van de middag krijgen ze een...
-- [Bromance tussen Gianni Infantino en Donald Trump leidt tot grootste WK ooit: dit gaat het voetbal veranderen](https://www.ad.nl/wk-voetbal/bromance-tussen-gianni-infantino-en-donald-trump-leidt-tot-grootste-wk-ooit-dit-gaat-het-voetbal-veranderen~a3e7f2cf/)
-  > Volgens FIFA-baas Gianni Infantino wordt dit WK ‘het grootste, beste en meest inclusieve ooit’. Alles lijkt groter, gekker en misschien ook wel...
+- [Ophef over nieuwe regels op strand in Sardinië: parasolverbod voor 10- tot 65-jarigen en 10 euro toegang](https://www.ad.nl/buitenland/ophef-over-nieuwe-regels-op-strand-in-sardinie-parasolverbod-voor-10-tot-65-jarigen-en-10-euro-toegang~a3c1a3da/)
+  > De eigenaren van Punta Molentis, een van de populairste stranden op het Italiaanse eiland Sardinië, hebben een opmerkelijk besluit genomen. Het...
+- [Het wordt warm voor Max Verstappen en zijn collega’s: dit weekend tropische hitte verwacht voor GP van Barcelona](https://www.ad.nl/formule-1/het-wordt-warm-voor-max-verstappen-en-zijn-collegas-dit-weekend-tropische-hitte-verwacht-voor-gp-van-barcelona~ae10fb1d/)
+- [Twaalf agenten gewond na nieuwe rellen Noord-Ierland, zestien aanhoudingen](https://www.ad.nl/buitenland/twaalf-agenten-gewond-na-nieuwe-rellen-noord-ierland-zestien-aanhoudingen~ac108963/)
+  > Voor de tweede nacht op rij zijn honderden mensen de straat opgegaan in Noord-Ierland. Twaalf agenten raakten gewond na de rellen, die als reactie...
+- [PSV biedt zes miljoen voor piepjonge verdediger van FC Twente, droomtransfer voor keepster Ajax](https://www.ad.nl/voetbal/psv-biedt-zes-miljoen-voor-piepjonge-verdediger-van-fc-twente-droomtransfer-voor-keepster-ajax~a488141d/)
+  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
+- [Iran reageert fel op aanval VS en noemt staakt-het-vuren ‘betekenisloos’, maar vredesoverleg gaat wel door](https://www.ad.nl/buitenland/iran-reageert-fel-op-aanval-vs-en-noemt-staakt-het-vuren-betekenisloos-maar-vredesoverleg-gaat-wel-door~ac528ac3/)
+  > Iran heeft fel gereageerd op nieuwe aanvallen door de Verenigde Staten. De ‘illegale en criminele’ beschietingen schenden het staakt-het-vuren en...
 
 ### Meest gelezen
 
@@ -47,16 +45,16 @@
 
 ### Laatste nieuws
 
-- [Red de leesvaardigheid met verplicht leescorvee voor alle Nederlandse jongeren](https://fd.nl/opinie/1599455/verplicht-leescorvee-voor-alle-jongeren)
-  > De leesvaardigheid van kinderen blijft, ondanks allerlei oplossingen, maar dalen. Het is daarom tijd voor rigoureuze maatregelen zodat we ook de...
-- [VS en Iran voeren voor tweede dag op rij aanvallen uit](https://fd.nl/politiek/1599600/vs-en-iran-voeren-voor-tweede-dag-op-rij-aanvallen-uit)
-  > De Amerikaanse minister van defensie Pete Hegseth zei dat de VS met de aanvallen een snel akkoord willen afdwingen. ‘Als we met bommen moeten...
-- [Live: Beleggers kijken vandaag naar Lagarde en Trump](https://fd.nl/financiele-markten/1599599/live-beleggers-kijken-vandaag-naar-lagarde-en-trump)
-  > De Europese Centrale Bank zal om 14.15 uur waarschijnlijk de beleidsrente verhogen. Verder is het de vraag of Iran en de Verenigde Staten elkaar...
-- [Ceo Klarna: ‘Als wij verdwijnen, verdwijnt kredietverlening niet’](https://fd.nl/financiele-markten/1599476/ceo-klarna-als-wij-verdwijnen-verdwijnt-kredietverlening-niet)
-  > Sebastian Siemiatkowski over de aanzwellende stroom kritiek op zijn onderneming, de kelderende beurskoers en zijn missie om een ‘beter...
-- [Kunstenaar Tina Farifteh zoekt een thuis: ‘Hier voelde ik wat het betekent ontheemd te zijn’](https://fd.nl/samenleving/1599426/kunstenaar-tinafariftehzoekt-een-thuis-hier-voeldeik-wat-het-betekent-ontheemdte-zijn)
-  > Wat is thuis? Voor kunstenaar Tina Farifteh (1982), geboren in Teheran en sinds haar dertiende in Nederland, is dat geen eenduidige vraag.
+- [VK gaat opruiende tweets sneller aanpakken na rellen in Belfast](https://fd.nl/samenleving/1599603/vk-gaat-opruiende-tweets-sneller-aanpakken-na-rellen-in-belfast)
+  > De Britse regering wil dat haatzaaiende berichten op sociale media sneller worden verwijderd. De Noord-Ierse hoofdstad beleefde een tweede avond van...
+- [Catawiki boekt €5,8 mln winst door grotere vraag naar luxeobjecten](https://fd.nl/bedrijfsleven/1599725/catawiki-boekt-5-8-mln-winst-door-grotere-vraag-naar-luxeobjecten)
+  > Dure horloges, wijnen en kettingen stuwen de resultaten van de veilingsite voor bijzondere objecten. Het bedrijf ziet 2025 als ‘mijlpaal’ in zijn...
+- [Klunsmatige intelligentie](https://fd.nl/samenleving/1599423/klunsmatige-intelligentie)
+  > Joris van Os zorgt dat zijn kostje vast gekocht is als AI straks de wereld heeft overgenomen en zich mogelijk van de mensen wil ontdoen.
+- [Vastgoedbeleggers luisteren niet naar de Autoriteit Financiële Markten](https://fd.nl/financiele-markten/1599294/vastgoedbeleggers-luisteren-niet-naar-de-autoriteit-financiele-markten)
+  > Vastgoedbeleggers doen hun panden van de hand. Het geld dat ze daarmee binnenkrijgen gaat nogal vaak naar de spaarrekening.
+- [Rol van ING bij beursgang SpaceX is dubieus](https://fd.nl/opinie/1599466/rol-van-ing-bij-beursgang-spacex-is-dubieus)
+  > ING is een van de banken die Elon Musks SpaceX naar de beurs begeleidt. Musks radicale politiek en macht maken SpaceX omstreden. Betrokkenheid bij de...
 
 ### Meest gelezen
 
