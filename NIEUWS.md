@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-06-2026 om 14:40*
+*Laatst bijgewerkt: 11-06-2026 om 18:18*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Podcast De Dag: Het groeiende flamingoprotest in Albanië](https://nos.nl/l/2618113)
-  > Al dagenlang gaan in Albanië duizenden mensen de straat op. De aanleiding is een omstreden bouwproject van Ivanka Trump en haar man Jared Kushner. De...
-- [PVV-Statenlid Van Tiggelen krijgt taakstraf voor inrijden op klimaatactivist](https://nos.nl/l/2618109)
-  > PVV-Statenlid Ronald van Tiggelen heeft een taakstraf van 200 uur gekregen omdat hij is ingereden op een klimaatactivist bij een Exctinction...
-- [Proef met 'snuffelbus' die rijdend uitlaatgassen van vrachtwagens meet](https://nos.nl/l/2618099)
-  > Onderzoeksbureau TNO en de politie zijn vandaag begonnen met een proef waarbij de uitstoot van vrachtwagens op een nieuwe manier wordt gemeten. Door...
-- [Europese Centrale Bank verhoogt rente voor het eerst in bijna drie jaar](https://nos.nl/l/2618098)
-  > De Europese Centrale bank verhoogt de rente in de eurozone naar 2,25 procent. Dat is voor het eerst in bijna drie jaar tijd. Het is wel de kleinst...
-- [Agent die Jerryson (15) doodschoot na fatbikeroof Capelle niet vervolgd](https://nos.nl/l/2618095)
-  > De politieagent die de 15-jarige Jerryson doodschoot na een fatbikeroof in Capelle aan den IJssel, wordt niet vervolgd. Het Openbaar Ministerie heeft...
+- [Duizenden nieuwe huizen gepland, maar geen geld voor wegen en spoorlijnen ernaartoe](https://nos.nl/l/2618140)
+  > Toenmalig woonminister Keijzer wees ze persoonlijk aan: vier gemeenten die voor grootschalige woningbouw kunnen zorgen door samen ruim 30.000 huizen...
+- [Vandaag of morgen aanmelden in Ter Apel: voor asielzoekers kan dat jaren schelen](https://nos.nl/l/2618139)
+  > Voor asielzoekers maakt het een wereld van verschil of zij vandaag of morgen aankloppen bij het aanmeldcentrum in Ter Apel. Melden zij zich vandaag,...
+- [Ongeluk tijdens schoolkamp eist vierde leven, school 'verdrietig en in shock'](https://nos.nl/l/2618131)
+  > Na het dodelijke verkeersongeluk in Zeeuws-Vlaanderen is nog een kind omgekomen. Daarmee is het dodental opgelopen naar vier; drie leerlingen en een...
+- [Beroemd restaurant Noma heropent in Kopenhagen, met omstreden chef Redzepi](https://nos.nl/l/2618130)
+  > Voor zo'n 1000 euro per persoon kunnen liefhebbers van culinaire avonturen deze zomer weer terecht bij toprestaurant Noma in Denemarken. Het...
+- [Mogelijk 'stille ramp' onder salamanders in Nijmeegse Ooijpolder door schimmel](https://nos.nl/l/2618122)
+  > In de Ooijpolder bij Nijmegen zijn twee schimmelsoorten aangetroffen die een directe bedreiging vormen voor de kamsalamander.
+       ...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Pluimvee mag óók in Gelderse Vallei weer naar buiten: ophokplicht landelijk opgeheven](https://www.ad.nl/binnenland/pluimvee-mag-ook-in-gelderse-vallei-weer-naar-buiten-ophokplicht-landelijk-opgeheven~a4377ae7/)
-  > De ophokplicht voor pluimvee vanwege vogelgriep is landelijk opgeheven. Deze gold alleen nog in de Gelderse Vallei, de regio waar veel...
-- [Kimi Antonelli kijkt ondanks riante voorsprong niet naar WK-stand: ‘Ik wil blijven genieten’](https://www.ad.nl/formule-1/kimi-antonelli-kijkt-ondanks-riante-voorsprong-niet-naar-wk-stand-ik-wil-blijven-genieten~ae10fb1d/)
-  > Het Formule 1-circus is in Spanje voor de GP van Barcelona. Hier blijf je op de hoogte van de ontwikkelingen.
-- [Ringo Starr (85) zegt dat broccoli hem jong en energiek houdt: is het echt een ‘supergroente’?](https://www.ad.nl/gezond/ringo-starr-85-zegt-dat-broccoli-hem-jong-en-energiek-houdt-is-het-echt-een-supergroente~afd6acd9/)
-  > Broccoli heeft al langer de reputatie dat het een van de gezondste groenten is, en nu meldt zelfs ex-Beatle Ringo Starr (85) dat broccoli hét geheim...
-- [Brussel doet elektrische deelsteps in ban na 666 gewonden en 25 schietpartijen](https://www.ad.nl/nieuws/brussel-doet-elektrische-deelsteps-in-ban-na-666-gewonden-en-25-schietpartijen~a5f361e4/)
-  > Brussel doet elektrische deelsteps vanaf 2027 in de ban. Dat maakt de regering donderdag bekend. De steps zorgen voor ongevallen en hinder voor...
-- [Van WK-controverse naar Europese supercup: UEFA kiest voor Somalische arbiter die VS niet binnenkomt](https://www.ad.nl/wk-voetbal/van-wk-controverse-naar-europese-supercup-uefa-kiest-voor-somalische-arbiter-die-vs-niet-binnenkomt~a017f580/)
-  > De Somalische scheidsrechter Omar Abdulkadir Artan heeft dit jaar het duel om de Europese supercup toegewezen gekregen. Dat meldt de UEFA in een...
+- [Flatbewoners op achterste benen, omdat oranje WK-vlaggetjes weg moeten: ‘Waar maken ze zich druk om?](https://www.ad.nl/binnenland/flatbewoners-op-achterste-benen-omdat-oranje-wk-vlaggetjes-weg-moeten-waar-maken-ze-zich-druk-om~a2f869da/)
+  > In Zwijndrecht staan flatbewoners op hun achterste benen, omdat de oranje vlaggetjes weg moeten van woningcorporatie Trivire vanwege brandgevaar. De...
+- [19-jarige man uit Hulst aangehouden na dodelijk verkeersongeval met schoolkinderen](https://www.ad.nl/binnenland/19-jarige-man-uit-hulst-aangehouden-na-dodelijk-verkeersongeval-met-schoolkinderen~a11e0108/)
+  > Een 19-jarige man uit Hulst is aangehouden na een dodelijk verkeersongeval dat donderdagmiddag plaatsvond op de N290 bij het Zeeuwse Vogelwaarde. Dat...
+- [Ongeluk met schoolklas Zeeland: dit weten we tot nu toe](https://www.ad.nl/binnenland/ongeluk-met-schoolklas-zeeland-dit-weten-we-tot-nu-toe~a6405e38/)
+  > Bij een tragisch ongeluk nabij Vogelwaarde in Zeeuws-Vlaanderen zijn donderdag drie schoolkinderen en een begeleider overleden die op de fiets...
+- [Oud-eredivisiespelers beginnen op de bank tijdens openingsduel tussen Mexico en Zuid-Afrika](https://www.ad.nl/wk-voetbal/oud-eredivisiespelers-beginnen-op-de-bank-tijdens-openingsduel-tussen-mexico-en-zuid-afrika~ae702b208/)
+  > Het WK begint vandaag! Gastland Mexico opent het bal tegen Zuid-Afrika, een herhaling van de openingswedstrijd in 2010. Wie boekt de eerste zege van...
+- [Volgens de FIA beschikt Red Bull over de beste motor, maar Max Verstappen snapt er niks van: ‘Zo voelt het niet’](https://www.ad.nl/formule-1/volgens-de-fia-beschikt-red-bull-over-de-beste-motor-maar-max-verstappen-snapt-er-niks-van-zo-voelt-het-niet~ae0b83c7/)
+  > Het had moeten zorgen voor een gevoel van trots, maar Max Verstappen was vooral verward toen de FIA tot de conclusie kwam dat Red Bull Racing over de...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Britse defensieminister neemt ontslag om ontoereikende defensiebegroting](https://fd.nl/politiek/1599734/britse-defensieminister-neemt-ontslag-om-ontoereikende-defensiebegroting)
-  > De regering-Starmer voert al maanden een interne strijd over de ophoging van de defensiebegroting. Minister John Healey heeft nu geconcludeerd dat de...
-- [Rabobank: voedingssector moet anticiperen op zuinigere consument](https://fd.nl/economie/1599616/rabobank-voedingssector-moet-anticiperen-op-zuinigere-consument)
-  > Economen van de bank voorzien in 2027 inflatiepieken voor voedsel van 5% à 9%. Het kan ertoe leiden dat consumenten anders boodschappen gaan doen.
-- [Orona koopt Nederlandse liftengroep Up van Karmijn Kapitaal](https://fd.nl/bedrijfsleven/1599618/orona-koopt-nederlandse-liftengroep-up-van-karmijn-kapitaal)
-  > Financiële details worden niet bekendgemaakt.
-- [De missende miljarden voor klimaatadaptatie](https://fd.nl/financiele-markten/1599296/de-missende-miljarden-voor-klimaatadaptatie)
-  > Wereldwijd zijn miljarden extra nodig voor maatregelen tegen klimaatextremen zoals droogte en overstromingen. Het goede nieuws: het beschikbare...
-- [De alchemie van Joost Ritman (1941-2026): van plastic bestek naar werelderfgoed](https://fd.nl/bedrijfsleven/1599614/de-alchemie-van-joost-ritman-1941-2026-van-plastic-bestek-naar-werelderfgoed)
-  > De eigenzinnige zakenman zag zijn investeringen in kunst en wetenschap als een plicht.
+- [Snijden in zorgkosten vraagt precisie met het operatiemes](https://fd.nl/opinie/1599624/snijden-in-zorgkosten-vraagt-precisie-met-het-operatiemes)
+  > Dat het kabinet stijging van de zorgkosten wil afremmen, valt te prijzen. Maar het moet nog eens goed kijken naar de gevolgen van enkele concrete...
+- [Adyen lijft factureringsplatform Orb in voor $335 mln](https://fd.nl/bedrijfsleven/1599627/adyen-lijft-factureringsplatform-orb-in-voor-335-mln)
+  > ‘Onze klanten hebben steeds vaker behoefte aan infrastructuur die complexe, grootschalige gebruiksmodellen aankan,’ aldus Ingo Uytdehaage, co-ceo van...
+- [Belastingdienst scherpt aanbestedingsbeleid IT-projecten aan](https://fd.nl/politiek/1599626/belastingdienst-scherpt-aanbestedingsbeleid-it-projecten-aan)
+  > De fiscus wil ‘voorloper’ op het gebied van digitale autonomie worden binnen de Rijksoverheid, na kritiek op de overstap naar Amerikaanse...
+- [Trump dreigt cruciaal Iraans olie-eiland Kharg te bezetten](https://fd.nl/politiek/1599620/trump-dreigt-cruciaal-iraans-olie-eiland-kharg-te-bezetten)
+  > Donald Trump dreigt met een forse escalatie in het conflict met Iran. De Amerikaanse president zei donderdag het cruciale Iraanse olie-eiland Kharg...
+- [Damen en overheid onderhandelen over inniger samenwerking](https://fd.nl/bedrijfsleven/1599731/damen-en-overheid-onderhandelen-over-inniger-samenwerking)
+  > Defensie wil voor de bouw en onderhoud van marineschepen altijd terechtkunnen bij Damen. Het scheepsbouwbedrijf wil in ruil zekerheid over het aantal...
 
 ### Meest gelezen
 
