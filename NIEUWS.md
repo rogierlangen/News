@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-06-2026 om 00:19*
+*Laatst bijgewerkt: 11-06-2026 om 05:52*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Alle vijf wethouders in Tiel opgestapt na bericht over mogelijk strafbare feiten](https://nos.nl/l/2618027)
-  > In de Gelderse gemeente Tiel zijn alle vijf de wethouders opgestapt. Aanleiding is een publicatie in NRC van afgelopen weekend over het plotselinge...
-- [Aantal internationale studenten in Nederland daalt voor het eerst in 20 jaar](https://nos.nl/l/2618024)
-  > Voor het eerst in twintig jaar is het aantal internationale studenten in Nederland afgenomen. In het lopende studiejaar staan 129.764 buitenlandse...
-- [VS voert opnieuw aanvallen uit op Iran, Teheran meldt sluiting Straat van Hormuz](https://nos.nl/l/2618020)
-  > Het Amerikaanse leger voert opnieuw aanvallen uit op Iran. Op verschillende plekken in het land worden explosies gemeld. Als reactie op de...
-- [Opnieuw onrust bij Belfast: politie zet waterkanon in tegen relschoppers](https://nos.nl/l/2618012)
-  > In de omgeving van de Noord-Ierse hoofdstad Belfast is het opnieuw onrustig. Relschoppers zoeken op verschillende plekken de confrontatie met de...
-- [Onder grote belangstelling zegent paus toren Sagrada Família in Barcelona](https://nos.nl/l/2618011)
-  > Paus Leo heeft de Jezus Christus-toren in de basiliek Sagrada Família in Barcelona gezegend. Hij besprenkelde het 172 meter hoge bouwwerk met heilig...
+- [Leeftijdsgenoten lesgeven: praktijkgerichte havo straks overal toegestaan](https://nos.nl/l/2618042)
+  > Leeftijdgenoten wiskundeles geven of een personeelshandboek maken voor een bedrijf: het kan allemaal binnen de praktijkgerichte havo van het Calvijn...
+- [Walviskerkhof gevonden in Indische Oceaan: 1200 kilometer lang, miljoenen jaren oud](https://nos.nl/l/2618041)
+  > Een internationaal team van wetenschappers heeft in de Indische Oceaan een walviskerkhof gevonden dat groter, ouder en dieper is dan eerder gevonden...
+- [Defensieminister VS: gevangenen Guantanamo hadden geëxecuteerd moeten worden](https://nos.nl/l/2618038)
+  > De Amerikaanse minister van Defensie Pete Hegseth heeft een bezoek gebracht aan de Amerikaanse basis op Guantanamo Bay, op Cuba. Na afloop zei hij...
+- [Veel schade na plofkraak geldautomaat in Helmond](https://nos.nl/l/2618037)
+  > Twee panden in Helmond hebben grote schade na een plofkaak van een geldautomaat. Rond 04.15 uur zouden omwonenden twee knallen hebben gehoord,...
+- [Wekdienst 11/6: WK voetbal begint • Scholieren horen of ze geslaagd zijn](https://nos.nl/l/2618031)
+  > Goedemorgen! Het WK voetbal begint vanavond in Mexico en eindexamenscholieren krijgen te horen of ze geslaagd zijn.
+        Eerst het weer: in de...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Franse zanger Patrick Bruel aangeklaagd voor verkrachting](https://www.ad.nl/show/franse-zanger-patrick-bruel-aangeklaagd-voor-verkrachting~a7898f64/)
-  > De Franse zanger Patrick Bruel wordt aangeklaagd voor verkrachting, poging tot verkrachting, aanranding en seksuele intimidatie. Dat meldt de rechter...
-- [2 miljoen Nederlanders betalen ‘130 euro’ te veel voor games](https://www.ad.nl/economie/2-miljoen-nederlanders-betalen-130-euro-te-veel-voor-games~a5fc60ce/)
-  > Ruim twee miljoen Nederlanders die via gamesite Steam pc-games kochten, betaalden gemiddeld 130 euro te veel. Dat stelt een stichting die een...
-- [Voetbalpodcast | ‘Je wilt horen dat Nederland gaat voor de wereldtitel’](https://www.ad.nl/voetbal/voetbalpodcast-je-wilt-horen-dat-nederland-gaat-voor-de-wereldtitel~a42af5cd9/)
-  > Oranje trainde voor het eerste in Kansas City. Op de tribune zaten honderden fans. Voornamelijk Amerikanen en Nederlanders die hier in Kansas wonen....
-- [Manchester City heeft astronomisch bedrag over voor middenvelder, Marcos Senesi transfervrij naar Spurs](https://www.ad.nl/voetbal/manchester-city-heeft-astronomisch-bedrag-over-voor-middenvelder-marcos-senesi-transfervrij-naar-spurs~a488141d/)
-  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
-- [Portugal wint voor vertrek naar WK van Nigeria, Engeland begint uur later vanwege noodweer in Florida](https://www.ad.nl/wk-voetbal/portugal-wint-voor-vertrek-naar-wk-van-nigeria-engeland-begint-uur-later-vanwege-noodweer-in-florida~a684b70b/)
-  > Portugal heeft de laatste oefenwedstrijd voor het WK voetbal nipt weten te winnen. Nigeria werd in Leiria met 2-1 verslagen. Oud-Ajacied Francisco...
+- [Basketballers New York Knicks na historische comeback heel dicht bij NBA-titel](https://www.ad.nl/andere-sporten/basketballers-new-york-knicks-na-historische-comeback-heel-dicht-bij-nba-titel~a795d8a1/)
+  > De basketballers van de New York Knicks hebben de grootste comeback ooit in de NBA-finale gerealiseerd door een achterstand van 29 punten weg te...
+- [Sita over 25 jaar K-otic: ‘Vroeger stapten we een week de tourbus in, nu moeten we het thuis managen’](https://www.ad.nl/show/sita-over-25-jaar-k-otic-vroeger-stapten-we-een-week-de-tourbus-in-nu-moeten-we-het-thuis-managen~a5403b37/)
+  > Als ‘onbevangen meisje’ stapte Sita Vermeulen (46) in 2001 in het Starmaker-avontuur, waar het immens populaire K-otic uit voortkwam. Deze week viert...
+- [Dick Advocaat met eerste pitch in rijtje met Max Verstappen en Will Smith: ‘Dit is een hele eer’](https://www.ad.nl/wk-voetbal/dick-advocaat-met-eerste-pitch-in-rijtje-met-max-verstappen-en-will-smith-dit-is-een-hele-eer~a8c441c7/)
+  > Dick Advocaat en Leandro Bacuna genieten van de eervolle uitnodiging van de Miami Marlins. Het duo verzorgt voor de wedstrijd in de MLB de eerste...
+- [Hoera, geslaagd: stuur ons je filmpje van dat bijzondere moment](https://www.ad.nl/praat-mee/hoera-geslaagd-stuur-ons-je-filmpje-van-dat-bijzondere-moment~acc6ca26/)
+  > De scholieren die eindexamen hebben gedaan voor vmbo, havo en vwo horen vandaag of ze zijn geslaagd. In de loop van de middag krijgen ze een...
+- [Bromance tussen Gianni Infantino en Donald Trump leidt tot grootste WK ooit: dit gaat het voetbal veranderen](https://www.ad.nl/wk-voetbal/bromance-tussen-gianni-infantino-en-donald-trump-leidt-tot-grootste-wk-ooit-dit-gaat-het-voetbal-veranderen~a3e7f2cf/)
+  > Volgens FIFA-baas Gianni Infantino wordt dit WK ‘het grootste, beste en meest inclusieve ooit’. Alles lijkt groter, gekker en misschien ook wel...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Geloof in de toekomst](https://fd.nl/opinie/1599584/geloof-in-de-toekomst)
-  > Er zijn ambitieuze plannen voor een sterk, onafhankelijk en concurrerend Europa en beloftes voor extra (defensie-)uitgaven.
-- [Migratieregels en geopolitieke spanningen werpen schaduw over ‘verbindend’ WK voetbal](https://fd.nl/samenleving/1599577/migratieregels-en-geopolitieke-spanningen-werpen-schaduw-over-verbindend-wk-voetbal)
-  > Terwijl de Fifa het WK in de VS, Canada en Mexico neerzet als een feest van verbinding, houdt de harde werkelijkheid daarbuiten miljoenen voetbalfans...
-- [Kabinet wil ‘kidfluencers’ beschermen tegen exposure en kinderarbeid, maar dat gaat zomaar niet](https://fd.nl/bedrijfsleven/1599463/kabinet-wil-kidfluencers-beschermen-tegen-exposure-en-kinderarbeid-maar-dat-gaat-zomaar-niet)
-  > De commerciële inzet van kinderen in vlogs en onlinefilmpjes moet als kinderarbeid worden geclassificeerd. Maar het is de vraag of deze stap genoeg...
-- [Overheid steekt €360 mln extra in fonds voor deeptech](https://fd.nl/tech-en-innovatie/1599460/overheid-steekt-360-mln-extra-in-fonds-voor-deeptech)
-  > Deep Tech Fonds stak geld in veertien bedrijven, maar de kas was bijna leeg. De investeringen zijn goed voor het toekomstig verdienvermogen, zegt...
-- [Personalia donderdag 11 juni](https://fd.nl/bedrijfsleven/1599477/personalia-donderdag-11-juni)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Red de leesvaardigheid met verplicht leescorvee voor alle Nederlandse jongeren](https://fd.nl/opinie/1599455/verplicht-leescorvee-voor-alle-jongeren)
+  > De leesvaardigheid van kinderen blijft, ondanks allerlei oplossingen, maar dalen. Het is daarom tijd voor rigoureuze maatregelen zodat we ook de...
+- [VS en Iran voeren voor tweede dag op rij aanvallen uit](https://fd.nl/politiek/1599600/vs-en-iran-voeren-voor-tweede-dag-op-rij-aanvallen-uit)
+  > De Amerikaanse minister van defensie Pete Hegseth zei dat de VS met de aanvallen een snel akkoord willen afdwingen. ‘Als we met bommen moeten...
+- [Live: Beleggers kijken vandaag naar Lagarde en Trump](https://fd.nl/financiele-markten/1599599/live-beleggers-kijken-vandaag-naar-lagarde-en-trump)
+  > De Europese Centrale Bank zal om 14.15 uur waarschijnlijk de beleidsrente verhogen. Verder is het de vraag of Iran en de Verenigde Staten elkaar...
+- [Ceo Klarna: ‘Als wij verdwijnen, verdwijnt kredietverlening niet’](https://fd.nl/financiele-markten/1599476/ceo-klarna-als-wij-verdwijnen-verdwijnt-kredietverlening-niet)
+  > Sebastian Siemiatkowski over de aanzwellende stroom kritiek op zijn onderneming, de kelderende beurskoers en zijn missie om een ‘beter...
+- [Kunstenaar Tina Farifteh zoekt een thuis: ‘Hier voelde ik wat het betekent ontheemd te zijn’](https://fd.nl/samenleving/1599426/kunstenaar-tinafariftehzoekt-een-thuis-hier-voeldeik-wat-het-betekent-ontheemdte-zijn)
+  > Wat is thuis? Voor kunstenaar Tina Farifteh (1982), geboren in Teheran en sinds haar dertiende in Nederland, is dat geen eenduidige vraag.
 
 ### Meest gelezen
 
