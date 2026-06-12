@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-06-2026 om 16:24*
+*Laatst bijgewerkt: 12-06-2026 om 19:08*
 
 ---
 
@@ -8,18 +8,16 @@
 
 ### Laatste nieuws
 
-- [SpaceX wint 11 procent bij beursopening, Musk eerste biljonair ooit](https://nos.nl/l/2618280)
-  > De handel met de aandelen van technologiebedrijf SpaceX is begonnen op de beurs in New York. Het aandeel opende op 150 dollar.
-        Dat is 11...
-- [Bewoners flat Amsterdam over momenten na explosie: 'Hij miste meerdere vingers'](https://nos.nl/l/2618279)
-  > Een flatbewoonster zit in de hotellobby in een badjas met panterprint en roze pantoffels aan. "Zit ik hier ineens in mijn nachtpon." Ze is een van de...
-- [Overleden kunstenaar David Hockney 'al die jaren relevant geweest'](https://nos.nl/l/2618278)
-  > David Hockney geldt als een van de meest toonaangevende kunstenaars van de twintigste eeuw; zijn werk wordt geroemd door velen en is verkocht voor...
-- [Ebola-doden in vluchtelingenkamp Congo, angst voor verdere verspreiding](https://nos.nl/l/2618276)
-  > In een vluchtelingenkamp in het oosten van Congo zijn twee gevallen van ebola vastgesteld. Het gaat om een vrouw van 60 en haar dochter.
-        De...
-- [Vandaag geen treinen meer in deel Randstad door brand in verdeelstation](https://nos.nl/l/2618275)
-  > Door een brand bij een verdeelstation langs het spoor in Woerden rijden er geen treinen tussen Gouda en Utrecht en Woerden en Bodegraven. Dat duurt...
+- [Tweede week coronaverhoren: hoe ver ging het kabinet om code zwart te voorkomen?](https://nos.nl/l/2618297)
+  > Was er genoeg oog voor de sociaal-maatschappelijk gevolgen van de coronamaatregelen? Dat was deze week een belangrijke vraag bij de verhoren van de...
+- [Podcast De Stemming: Een betaalmuur, het luchtalarm en déjà vu-bingo](https://nos.nl/l/2618295)
+  > De corona-enquête is inmiddels alweer een paar weken op stoom en vrijdag werden twee voormalige premiers ondervraagd: Rutte en Schoof. Schoof was in...
+- [Opnieuw reddingsactie voor wadlopers bij Ameland](https://nos.nl/l/2618290)
+  > Voor de tweede keer in korte tijd is een groep wadlopers in de problemen gekomen bij Ameland. Ze werden overvallen door de vloed, zegt een...
+- [Akkoord tussen Iran en VS over tekst voor vredesdeal lijkt dichtbij](https://nos.nl/l/2618288)
+  > Bemiddelaar Pakistan meldt dat Iran en de Verenigde Staten het eens zijn over de tekst van een vredesakkoord. De Pakistaanse premier Shehbaz Sharif...
+- [Cruiseschip Hondius vertrokken voor nieuwe reis](https://nos.nl/l/2618287)
+  > Het cruiseschip de Hondius is weer uitgevaren. Zaterdag vertrekt het schip met 132 passagiers en een arts vanuit Spitsbergen voor een achtdaagse...
 
 ### Meest gelezen
 
@@ -29,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Voormalig Ajax-directeur Alex Kroes in verregaande onderhandeling met kampioen van Oostenrijk](https://www.ad.nl/voetbal/voormalig-ajax-directeur-alex-kroes-in-verregaande-onderhandeling-met-kampioen-van-oostenrijk~af4cc4f5/)
-  > Alex Kroes (52) wordt waarschijnlijk mede-eigenaar van LASK Linz. De voormalige technische baas van Ajax is in verregaande onderhandeling om bij de...
-- [Nijstad tekent ondanks PSV-interesse nieuw contract bij Twente, Miedema gaat weer spelen met vriendin](https://www.ad.nl/voetbal/nijstad-tekent-ondanks-psv-interesse-nieuw-contract-bij-twente-miedema-gaat-weer-spelen-met-vriendin~a488141d/)
-  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
-- [Tijden GP Barcelona | Zo laat komt Max Verstappen dit weekend in actie op circuit waar hij zijn eerste zege boekte](https://www.ad.nl/formule-1/tijden-gp-barcelona-zo-laat-komt-max-verstappen-dit-weekend-in-actie-op-circuit-waar-hij-zijn-eerste-zege-boekte~a04674a4/)
-  > Het zit Max Verstappen nog niet mee dit Formule 1-seizoen. Bij de Grand Prix van Monaco ging het zondag al mis bij de start en noteerde hij zijn...
-- [‘Drinkpauzes’ storend tijdens dit WK? Wen er maar aan: ‘De puristen vinden het verschrikkelijk’](https://www.ad.nl/wk-voetbal/drinkpauzes-storend-tijdens-dit-wk-wen-er-maar-aan-de-puristen-vinden-het-verschrikkelijk~af357b44/)
-  > Elke WK-wedstrijd wordt halverwege een speelhelft onderbroken voor een drinkpauze van drie minuten. Het gevolg? Miljarden tv-kijkers krijgen een...
-- [Hoofdbrekens Max Verstappen duren voort in Barcelona, zeer grote achterstand op snelste tijd Lando Norris](https://www.ad.nl/formule-1/hoofdbrekens-max-verstappen-duren-voort-in-barcelona-zeer-grote-achterstand-op-snelste-tijd-lando-norris~abda41ab/)
-  > Red Bull Racing heeft een matige vrijdag achter de rug in Barcelona. Max Verstappen kon na een korte opleving opnieuw geen vuist maken tijdens de...
+- [Canada begint aan allereerste WK-wedstrijd in eigen land, PSV’er Bajraktarevic in de basis bij Bosnië](https://www.ad.nl/wk-voetbal/canada-begint-aan-allereerste-wk-wedstrijd-in-eigen-land-psver-bajraktarevic-in-de-basis-bij-bosnie~a9383a08/)
+  > Gastland Canada begint vandaag aan het WK voetbal. De eerste tegenstander is Bosnië en Herzegovina, dat zich via de play-offs plaatste. Wie slaat de...
+- [Ook Canada weigert visum: Ghanese voetballer die voor verkrach­ting is aangeklaag­d komt land niet in](https://www.ad.nl/wk-voetbal/ook-canada-weigert-visum-ghanese-voetballer-die-voor-verkrachting-is-aangeklaagd-komt-land-niet-in~a1283847/)
+  > Na Amerika, dat de Somalische scheidsrechter Omar Abdulkadir Artan weigerde, heeft ook Canada een WK-deelnemer de deur geweigerd. De Ghanese...
+- [Lieke Martens deelt kwetsbaar bericht over verlies zoontje: ‘Nog iedere dag denken we aan hem’](https://www.ad.nl/show/lieke-martens-deelt-kwetsbaar-bericht-over-verlies-zoontje-nog-iedere-dag-denken-we-aan-hem~a74ec816/)
+  > Lieke Martens spreekt vrijdag in een kwetsbaar bericht op Instagram openhartig over het verlies van haar zoontje Eden. De oud-voetbalster moest met...
+- [E.Coli aangetroffen in drinkwater: kookadvies voor Dordrecht, Zwijndrecht en Ambacht](https://www.ad.nl/dordrecht/e-coli-aangetroffen-in-drinkwater-kookadvies-voor-dordrecht-zwijndrecht-en-ambacht~a8ad4ba3/)
+  > In het drinkwater in Dordrecht, Zwijndrecht en Hendrik-Ido-Ambacht is bij controle een E. coli-bacterie aangetroffen. Daarom geldt in de drie...
+- [Wat je allemaal moet weten van de eerste tegenstander van Oranje op het WK: Japan](https://www.ad.nl/wk-voetbal/wat-je-allemaal-moet-weten-van-de-eerste-tegenstander-van-oranje-op-het-wk-japan~ad602413/)
+  > Het Nederlands elftal neemt het zondag in de eerste groepswedstrijd van het WK voetbal op tegen Japan. Het Aziatische land neemt voor de achtste keer...
 
 ### Meest gelezen
 
@@ -48,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Mark Rutte over corona: ‘We zijn door het oog van de naald gekropen’](https://fd.nl/politiek/1599806/mark-rutte-over-corona-we-zijn-door-het-oog-van-de-naald-gekropen)
-  > Nederland is ontsnapt aan massale sterfte als gevolg van overvolle ziekenhuizen, zei de oud-premier tijdens de parlementaire enquête. Dat is te...
-- [Advies aan Hoge Raad: houd Chinese ceo van chipmaker Nexperia geschorst](https://fd.nl/bedrijfsleven/1599897/advies-aan-hoge-raad-houd-chinese-ceo-van-chipmaker-nexperia-geschorst)
-  > De advocaat-generaal adviseert de Hoge Raad de cassatieberoepen van Nexperia-moeder Yuching en de Chinese ceo te verwerpen.
-- [SpaceX spurt omhoog bij grootste beursgang aller tijden](https://fd.nl/financiele-markten/1599891/spacex-spurt-omhoog-na-grootste-beursgang-aller-tijden)
-  > Het ruimtevaartbedrijf van Elon Musk haalde met de beursgang $75 mrd aan kapitaal op. Daarmee gaat het de vorige recordbeursgang van Saudi Aramco...
-- [Kabinet perkt online gokken verder in](https://fd.nl/politiek/1599837/kabinet-perkt-online-gokken-verder-in)
-  > Kabinet gaat over tot een vrijwel volledig reclameverbod voor online gokken.
-- [‘Amerikanen willen een derde van hun straaljagers uit Europa terugtrekken’](https://fd.nl/politiek/1599817/amerikanen-willen-een-derde-van-hun-straaljagers-uit-europa-terugtrekken)
-  > VS zouden hun F-16- en F-15-straaljagers in Europa willen verminderen van 150 naar 100.
+- [EU-landen en Europarlement alsnog akkoord over rechten vliegpassagiers](https://fd.nl/politiek/1599840/eu-landen-en-europarlement-alsnog-akkoord-over-rechten-vliegpassagiers)
+  > Het recht op compensatie voor passagiers bij een vertraging van drie uur of meer blijft bestaan.
+- [Echte AI-winst ontstaat alleen met een goed doordacht plan](https://fd.nl/economie/1599809/echte-ai-winst-ontstaat-alleen-met-een-goed-doordacht-plan)
+  > Kunstmatige intelligentie kan de taken van werknemers complexer en intensiever maken, maar ook juist saaier. Werkgevers denken daar nog te weinig...
+- [EU wil landbouw met €540 mln compenseren voor gestegen kunstmestprijzen](https://fd.nl/bedrijfsleven/1599898/eu-wil-landbouw-met-540-mln-compenseren-voor-gestegen-kunstmestprijzen)
+  > De prijs van kunstmest is de afgelopen maanden flink gestegen als gevolg van de oorlog in het Midden-Oosten. Daar wordt zo’n vijfde van alle...
+- [Een historische beursgang en de 39ste vredesbelofte](https://fd.nl/financiele-markten/1599781/een-historische-beursgang-en-de-39ste-vredesbelofte)
+  > Beleggers keken deze week vooral uit naar de beursgang van SpaceX. Ook blijven beloftes van Trump over naderende wapenstilstanden in Iran de beurzen...
+- [Bank of America ziet rode vlaggen, maar voorlopig nog als enige](https://fd.nl/financiele-markten/1599578/bank-of-america-ziet-rode-vlaggen-maar-voorlopig-zijn-ze-nog-de-enige)
+  > De Amerikaanse bank adviseert beleggers om winst te nemen. Maar andere zakenbanken zien het beursklimaat vooralsnog zonniger in.
 
 ### Meest gelezen
 
