@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-06-2026 om 19:08*
+*Laatst bijgewerkt: 12-06-2026 om 21:51*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Tweede week coronaverhoren: hoe ver ging het kabinet om code zwart te voorkomen?](https://nos.nl/l/2618297)
-  > Was er genoeg oog voor de sociaal-maatschappelijk gevolgen van de coronamaatregelen? Dat was deze week een belangrijke vraag bij de verhoren van de...
-- [Podcast De Stemming: Een betaalmuur, het luchtalarm en déjà vu-bingo](https://nos.nl/l/2618295)
-  > De corona-enquête is inmiddels alweer een paar weken op stoom en vrijdag werden twee voormalige premiers ondervraagd: Rutte en Schoof. Schoof was in...
-- [Opnieuw reddingsactie voor wadlopers bij Ameland](https://nos.nl/l/2618290)
-  > Voor de tweede keer in korte tijd is een groep wadlopers in de problemen gekomen bij Ameland. Ze werden overvallen door de vloed, zegt een...
-- [Akkoord tussen Iran en VS over tekst voor vredesdeal lijkt dichtbij](https://nos.nl/l/2618288)
-  > Bemiddelaar Pakistan meldt dat Iran en de Verenigde Staten het eens zijn over de tekst van een vredesakkoord. De Pakistaanse premier Shehbaz Sharif...
-- [Cruiseschip Hondius vertrokken voor nieuwe reis](https://nos.nl/l/2618287)
-  > Het cruiseschip de Hondius is weer uitgevaren. Zaterdag vertrekt het schip met 132 passagiers en een arts vanuit Spitsbergen voor een achtdaagse...
+- [Geen mensen aangetroffen onder puin van ontploft gebouw Amsterdam](https://nos.nl/l/2618324)
+  > Onder het puin van het gebouw in Amsterdam waar gisternacht een zware explosie was, zijn geen slachtoffers gevonden. Volgens de brandweer is de...
+- [Margaret Kerry die model stond voor Tinker Bell op 97-jarige leeftijd overleden](https://nos.nl/l/2618314)
+  > De vrouw die als inspiratie diende voor het wereldberoemde Disney-personage Tinkelbel is overleden. De Amerikaanse Margaret Kerry overleed op...
+- [Migratiepact gaat Griekenland niet ver genoeg: bij afwijzing snel weg, anders detentie](https://nos.nl/l/2618312)
+  > Beter op elkaar afgestemde asielprocedures binnen de EU, een eerlijke verdeling van asielzoekers en minder vluchtelingen die de oversteek naar Europa...
+- [Vermoorde Franse tiener Lyhanna begraven, protest tegen blunders van justitie](https://nos.nl/l/2618311)
+  > In Frankrijk is het 11-jarige meisje Lyhanna begraven dat twee weken geleden vermoord werd teruggevonden in een graansilo.
+        De moord op...
+- [Strijdbijl tussen Thailand en boeddhistische tempel Waalwijk na jaren begraven](https://nos.nl/l/2618310)
+  > De Nederlandse voorzitter van een tempel in Waalwijk heeft in Bangkok een belangrijke boeddhistische onderscheiding gekregen. Daarmee lijkt een einde...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Canada begint aan allereerste WK-wedstrijd in eigen land, PSV’er Bajraktarevic in de basis bij Bosnië](https://www.ad.nl/wk-voetbal/canada-begint-aan-allereerste-wk-wedstrijd-in-eigen-land-psver-bajraktarevic-in-de-basis-bij-bosnie~a9383a08/)
-  > Gastland Canada begint vandaag aan het WK voetbal. De eerste tegenstander is Bosnië en Herzegovina, dat zich via de play-offs plaatste. Wie slaat de...
-- [Ook Canada weigert visum: Ghanese voetballer die voor verkrach­ting is aangeklaag­d komt land niet in](https://www.ad.nl/wk-voetbal/ook-canada-weigert-visum-ghanese-voetballer-die-voor-verkrachting-is-aangeklaagd-komt-land-niet-in~a1283847/)
-  > Na Amerika, dat de Somalische scheidsrechter Omar Abdulkadir Artan weigerde, heeft ook Canada een WK-deelnemer de deur geweigerd. De Ghanese...
-- [Lieke Martens deelt kwetsbaar bericht over verlies zoontje: ‘Nog iedere dag denken we aan hem’](https://www.ad.nl/show/lieke-martens-deelt-kwetsbaar-bericht-over-verlies-zoontje-nog-iedere-dag-denken-we-aan-hem~a74ec816/)
-  > Lieke Martens spreekt vrijdag in een kwetsbaar bericht op Instagram openhartig over het verlies van haar zoontje Eden. De oud-voetbalster moest met...
-- [E.Coli aangetroffen in drinkwater: kookadvies voor Dordrecht, Zwijndrecht en Ambacht](https://www.ad.nl/dordrecht/e-coli-aangetroffen-in-drinkwater-kookadvies-voor-dordrecht-zwijndrecht-en-ambacht~a8ad4ba3/)
-  > In het drinkwater in Dordrecht, Zwijndrecht en Hendrik-Ido-Ambacht is bij controle een E. coli-bacterie aangetroffen. Daarom geldt in de drie...
-- [Wat je allemaal moet weten van de eerste tegenstander van Oranje op het WK: Japan](https://www.ad.nl/wk-voetbal/wat-je-allemaal-moet-weten-van-de-eerste-tegenstander-van-oranje-op-het-wk-japan~ad602413/)
-  > Het Nederlands elftal neemt het zondag in de eerste groepswedstrijd van het WK voetbal op tegen Japan. Het Aziatische land neemt voor de achtste keer...
+- [Teleurstelling over aanpak pepperspray door kabinet: ‘Pak de dader aan’](https://www.ad.nl/binnenland/teleurstelling-over-aanpak-pepperspray-door-kabinet-pak-de-dader-aan~aa87155d/)
+  > Vrouwenrechtenorganisaties zijn teleurgesteld in het mogelijk deels legaliseren van pepperspray door het kabinet. Er wordt toegewerkt naar een ‘Deens...
+- [Iran: Gesprekken over kernprogramma volgen later pas](https://www.ad.nl/buitenland/iran-gesprekken-over-kernprogramma-volgen-later-pas~ac528ac3/)
+  > De Iraanse minister van Buitenlandse Zaken, Abbas Araghchi, zegt dat de deal met de Verenigde Staten nog geen afspraken over het kernprogramma bevat....
+- [Zoeken naar slachtoffers onder puin in Osdorp gestopt](https://www.ad.nl/binnenland/zoeken-naar-slachtoffers-onder-puin-in-osdorp-gestopt~a89b705e/)
+  > De hulpdiensten zijn niet meer op zoek naar mensen onder het puin van de flat in Amsterdam, waar in de nacht van donderdag op vrijdag een zware...
+- [Ex-Feyenoorder helpt Canada met luid bejubelde gelijkmaker aan historisch punt tegen Bosnië](https://www.ad.nl/wk-voetbal/ex-feyenoorder-helpt-canada-met-luid-bejubelde-gelijkmaker-aan-historisch-punt-tegen-bosnie~a9383a08/)
+  > Oud-Feyenoorder Cyle Larin heeft gastland Canada het allereerste WK-punt ooit bezorgd. De spits schoot in de slotfase raak tegen Bosnië en...
+- [FC Volendam stelt opvolger Rick Kruys aan, Vivianne Miedema herenigd met haar vriendin Beth Mead](https://www.ad.nl/voetbal/fc-volendam-stelt-opvolger-rick-kruys-aan-vivianne-miedema-herenigd-met-haar-vriendin-beth-mead~a488141d/)
+  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Wall Street in de ban van SpaceX-beursgang](https://fd.nl/financiele-markten/1599899/wall-street-in-de-ban-van-spacex-beursgang)
+  > Het ruimtevaartbedrijf van Elon Musk zet de toon met een koerssprong van 19% op de eerste handelsdag.
+- [Premier Pakistan meldt akkoord tekst vredesdeal VS-Iran](https://fd.nl/politiek/1599841/premier-pakistan-meldt-akkoord-tekst-vredesdeal-vs-iran)
+  > De bemiddelaar in de oorlog in het Midden-Oosten is positief over een akkoord tussen beide landen.
 - [EU-landen en Europarlement alsnog akkoord over rechten vliegpassagiers](https://fd.nl/politiek/1599840/eu-landen-en-europarlement-alsnog-akkoord-over-rechten-vliegpassagiers)
   > Het recht op compensatie voor passagiers bij een vertraging van drie uur of meer blijft bestaan.
 - [Echte AI-winst ontstaat alleen met een goed doordacht plan](https://fd.nl/economie/1599809/echte-ai-winst-ontstaat-alleen-met-een-goed-doordacht-plan)
   > Kunstmatige intelligentie kan de taken van werknemers complexer en intensiever maken, maar ook juist saaier. Werkgevers denken daar nog te weinig...
 - [EU wil landbouw met €540 mln compenseren voor gestegen kunstmestprijzen](https://fd.nl/bedrijfsleven/1599898/eu-wil-landbouw-met-540-mln-compenseren-voor-gestegen-kunstmestprijzen)
   > De prijs van kunstmest is de afgelopen maanden flink gestegen als gevolg van de oorlog in het Midden-Oosten. Daar wordt zo’n vijfde van alle...
-- [Een historische beursgang en de 39ste vredesbelofte](https://fd.nl/financiele-markten/1599781/een-historische-beursgang-en-de-39ste-vredesbelofte)
-  > Beleggers keken deze week vooral uit naar de beursgang van SpaceX. Ook blijven beloftes van Trump over naderende wapenstilstanden in Iran de beurzen...
-- [Bank of America ziet rode vlaggen, maar voorlopig nog als enige](https://fd.nl/financiele-markten/1599578/bank-of-america-ziet-rode-vlaggen-maar-voorlopig-zijn-ze-nog-de-enige)
-  > De Amerikaanse bank adviseert beleggers om winst te nemen. Maar andere zakenbanken zien het beursklimaat vooralsnog zonniger in.
 
 ### Meest gelezen
 
