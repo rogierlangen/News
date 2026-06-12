@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-06-2026 om 12:56*
+*Laatst bijgewerkt: 12-06-2026 om 16:24*
 
 ---
 
@@ -8,16 +8,18 @@
 
 ### Laatste nieuws
 
-- [Celstraf voor Spaanse lottoverkoper die zelf winnend lot van 4,7 miljoen wilde cashen](https://nos.nl/l/2618253)
-  > In Spanje is een lottoverkoper veroordeeld die probeerde een winnend lot dat door een klant was gekocht zelf te innen. Hij moet wegens fraude 3,5...
-- [Opnieuw maatregelen legaal online gokken: reclameverbod en bonusverbod](https://nos.nl/l/2618252)
-  > Het kabinet neemt extra maatregelen voor de legale online gokbranche omdat steeds meer mensen gokverslaafd raken. Zo komt er een verbod op reclame en...
-- [Nieuwe advocaten Taghi dreigen weer op te stappen als ze niet genoeg tijd krijgen](https://nos.nl/l/2618247)
-  > De twee nieuwe advocaten van Ridouan Taghi willen dat het hoger beroep in de zaak tegen hem wordt stilgelegd tot maart 2028. Die tijd willen ze...
-- [Veiligheidsregio: indicaties dat er nog mensen onder puin sportschool liggen](https://nos.nl/l/2618245)
-  > De hulpdiensten hebben indicaties dat er nog mensen onder het puin liggen van de sportschool die vannacht werd verwoest in Amsterdam Nieuw-West....
-- [Waterschap probeert Amerikaanse rivierkreeften van Ameland te krijgen](https://nos.nl/l/2618244)
-  > Wetterskip Fryslân gaat op Ameland de strijd aan met de rode Amerikaanse rivierkreeft. In een polder op het eiland zijn enkele kreeften aangetroffen....
+- [SpaceX wint 11 procent bij beursopening, Musk eerste biljonair ooit](https://nos.nl/l/2618280)
+  > De handel met de aandelen van technologiebedrijf SpaceX is begonnen op de beurs in New York. Het aandeel opende op 150 dollar.
+        Dat is 11...
+- [Bewoners flat Amsterdam over momenten na explosie: 'Hij miste meerdere vingers'](https://nos.nl/l/2618279)
+  > Een flatbewoonster zit in de hotellobby in een badjas met panterprint en roze pantoffels aan. "Zit ik hier ineens in mijn nachtpon." Ze is een van de...
+- [Overleden kunstenaar David Hockney 'al die jaren relevant geweest'](https://nos.nl/l/2618278)
+  > David Hockney geldt als een van de meest toonaangevende kunstenaars van de twintigste eeuw; zijn werk wordt geroemd door velen en is verkocht voor...
+- [Ebola-doden in vluchtelingenkamp Congo, angst voor verdere verspreiding](https://nos.nl/l/2618276)
+  > In een vluchtelingenkamp in het oosten van Congo zijn twee gevallen van ebola vastgesteld. Het gaat om een vrouw van 60 en haar dochter.
+        De...
+- [Vandaag geen treinen meer in deel Randstad door brand in verdeelstation](https://nos.nl/l/2618275)
+  > Door een brand bij een verdeelstation langs het spoor in Woerden rijden er geen treinen tussen Gouda en Utrecht en Woerden en Bodegraven. Dat duurt...
 
 ### Meest gelezen
 
@@ -27,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Eigenaar fitnessstudio: ‘Die jongens onder onze studio riepen om hulp maar wat deden ze daar?’](https://www.ad.nl/binnenland/eigenaar-fitnessstudio-die-jongens-onder-onze-studio-riepen-om-hulp-maar-wat-deden-ze-daar~a9255974/)
-  > De eigenaar van de Amsterdamse fitnessstudio Onna, die afgelopen nacht totaal verwoest werd door een explosie, zegt dat die explosie overduidelijk...
-- [Megastunt blijft uit: Thijs Boogaard (17) laat matchpoint onbenut en verliest van voormalig nummer 1 van de wereld](https://www.ad.nl/tennis/megastunt-blijft-uit-thijs-boogaard-17-laat-matchpoint-onbenut-en-verliest-van-voormalig-nummer-1-van-de-wereld~afed158a/)
-  > Thijs Boogaard heeft op het grastoernooi van Rosmalen net niet kunnen stunten tegen Daniil Medvedev, de nummer 8 van de wereld. De 17-jarige Boogaard...
-- [Red Bull slaagt niet voor eerste test: ontevreden Max Verstappen ondanks P4, ver achter snelste man George Russell](https://www.ad.nl/formule-1/red-bull-slaagt-niet-voor-eerste-test-ontevreden-max-verstappen-ondanks-p4-ver-achter-snelste-man-george-russell~afed0b84/)
-  > Red Bull Racing is niet geslaagd voor de eerste test van het raceweekend. Max Verstappen was ontevreden over zijn bolide tijdens de eerste vrije...
-- [Zuid-Afrika verslaat Mongolië met moyenne van amper 63, pijnlijke uitglijder België](https://www.ad.nl/darts/zuid-afrika-verslaat-mongolie-met-moyenne-van-amper-63-pijnlijke-uitglijder-belgie~afe7ea3e/)
-  > Het WK voetbal begint donderdag, maar ook de darters hebben een wereldkampioenschap op het programma staan. De World Cup of Darts is een landen-WK...
-- [Schaatscoach Bart Schouten: ‘Het WK van Trump? Dit toernooi is net zo goed een Canadees feestje’](https://www.ad.nl/wk-voetbal/schaatscoach-bart-schouten-het-wk-van-trump-dit-toernooi-is-net-zo-goed-een-canadees-feestje~a8a6676f/)
-  > Niet alleen de Verenigde Staten en Mexico leven toe naar een WK voetbal in eigen huis, ook Canada. Dat start vanavond met een thuiswedstrijd tegen...
+- [Voormalig Ajax-directeur Alex Kroes in verregaande onderhandeling met kampioen van Oostenrijk](https://www.ad.nl/voetbal/voormalig-ajax-directeur-alex-kroes-in-verregaande-onderhandeling-met-kampioen-van-oostenrijk~af4cc4f5/)
+  > Alex Kroes (52) wordt waarschijnlijk mede-eigenaar van LASK Linz. De voormalige technische baas van Ajax is in verregaande onderhandeling om bij de...
+- [Nijstad tekent ondanks PSV-interesse nieuw contract bij Twente, Miedema gaat weer spelen met vriendin](https://www.ad.nl/voetbal/nijstad-tekent-ondanks-psv-interesse-nieuw-contract-bij-twente-miedema-gaat-weer-spelen-met-vriendin~a488141d/)
+  > De transfermarkt is weliswaar gesloten, de geruchtenmolen draait op volle toeren. Wie gaan er komende zomer een stap maken? Hier blijf je op de...
+- [Tijden GP Barcelona | Zo laat komt Max Verstappen dit weekend in actie op circuit waar hij zijn eerste zege boekte](https://www.ad.nl/formule-1/tijden-gp-barcelona-zo-laat-komt-max-verstappen-dit-weekend-in-actie-op-circuit-waar-hij-zijn-eerste-zege-boekte~a04674a4/)
+  > Het zit Max Verstappen nog niet mee dit Formule 1-seizoen. Bij de Grand Prix van Monaco ging het zondag al mis bij de start en noteerde hij zijn...
+- [‘Drinkpauzes’ storend tijdens dit WK? Wen er maar aan: ‘De puristen vinden het verschrikkelijk’](https://www.ad.nl/wk-voetbal/drinkpauzes-storend-tijdens-dit-wk-wen-er-maar-aan-de-puristen-vinden-het-verschrikkelijk~af357b44/)
+  > Elke WK-wedstrijd wordt halverwege een speelhelft onderbroken voor een drinkpauze van drie minuten. Het gevolg? Miljarden tv-kijkers krijgen een...
+- [Hoofdbrekens Max Verstappen duren voort in Barcelona, zeer grote achterstand op snelste tijd Lando Norris](https://www.ad.nl/formule-1/hoofdbrekens-max-verstappen-duren-voort-in-barcelona-zeer-grote-achterstand-op-snelste-tijd-lando-norris~abda41ab/)
+  > Red Bull Racing heeft een matige vrijdag achter de rug in Barcelona. Max Verstappen kon na een korte opleving opnieuw geen vuist maken tijdens de...
 
 ### Meest gelezen
 
@@ -46,16 +48,16 @@
 
 ### Laatste nieuws
 
-- [Pakistaanse zangeres mengt soefigedichten met jazz en pop](https://fd.nl/bedrijfsleven/1599452/pakistaanse-zangeres-mengt-soefigedichten-met-jazz-en-pop)
-  > Zaterdag treedt zangeres Arooj Aftab op in het Concertgebouw. Ze noemt de nacht haar belangrijkste inspiratiebron. Die biedt haar tegenwicht voor de...
-- [Rabobank en ING getipt als potentiële kopers van Belgische bank-verzekeraar Belfius](https://fd.nl/financiele-markten/1599887/rabobank-en-ing-getipt-als-potentiele-kopers-bank-verzekeraar-belfius)
-  > Rabobank en ING zouden een deel van de Belgische bank Belfius willen kopen. De Belgische staat wil deels uitstappen en de Nederlandse banken hebben...
-- [Met biokunststof ontsnappen chemie en landbouw aan de fossiele, doodlopende weg](https://fd.nl/opinie/1599453/met-biokunststof-ontsnappen-chemie-en-landbouw-aan-de-fossiele-doodlopende-weg)
-  > Bewegen we van fossiele naar groene energie, dan zijn biogrondstoffen de aangewezen optie voor economische autonomie, een duurzamer systeem en nieuw...
-- [DNB verwacht dat economie sterk afkoelt, inflatie blijft onder de 3%](https://fd.nl/economie/1599882/dnb-verwacht-dat-economie-sterk-afkoelt-inflatie-blijft-onder-de-3)
-  > Ondanks de oorlog in het Midden-Oosten gaat De Nederlandsche Bank ervan uit dat de inflatie dit jaar lager uitkomt dan in 2025. De oorzaak ligt in...
-- [Europees Hof heeft veel impact op de belangrijkste bijzaak van het leven](https://fd.nl/politiek/1599879/europees-hof-heeft-veel-impact-op-de-belangrijkste-bijzaak-van-het-leven)
-  > Hoogste Europese rechter zet enkele van zijn belangrijkste voetbaluitspraken in het zonnetje. Een rake timing want deze week ging het WK van start én...
+- [Mark Rutte over corona: ‘We zijn door het oog van de naald gekropen’](https://fd.nl/politiek/1599806/mark-rutte-over-corona-we-zijn-door-het-oog-van-de-naald-gekropen)
+  > Nederland is ontsnapt aan massale sterfte als gevolg van overvolle ziekenhuizen, zei de oud-premier tijdens de parlementaire enquête. Dat is te...
+- [Advies aan Hoge Raad: houd Chinese ceo van chipmaker Nexperia geschorst](https://fd.nl/bedrijfsleven/1599897/advies-aan-hoge-raad-houd-chinese-ceo-van-chipmaker-nexperia-geschorst)
+  > De advocaat-generaal adviseert de Hoge Raad de cassatieberoepen van Nexperia-moeder Yuching en de Chinese ceo te verwerpen.
+- [SpaceX spurt omhoog bij grootste beursgang aller tijden](https://fd.nl/financiele-markten/1599891/spacex-spurt-omhoog-na-grootste-beursgang-aller-tijden)
+  > Het ruimtevaartbedrijf van Elon Musk haalde met de beursgang $75 mrd aan kapitaal op. Daarmee gaat het de vorige recordbeursgang van Saudi Aramco...
+- [Kabinet perkt online gokken verder in](https://fd.nl/politiek/1599837/kabinet-perkt-online-gokken-verder-in)
+  > Kabinet gaat over tot een vrijwel volledig reclameverbod voor online gokken.
+- [‘Amerikanen willen een derde van hun straaljagers uit Europa terugtrekken’](https://fd.nl/politiek/1599817/amerikanen-willen-een-derde-van-hun-straaljagers-uit-europa-terugtrekken)
+  > VS zouden hun F-16- en F-15-straaljagers in Europa willen verminderen van 150 naar 100.
 
 ### Meest gelezen
 
