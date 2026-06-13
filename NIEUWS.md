@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-06-2026 om 16:17*
+*Laatst bijgewerkt: 13-06-2026 om 18:11*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Charles Leclerc schaamt zich voor zware crash, Isack Hadjar baalt van zesde startplek](https://www.ad.nl/formule-1/charles-leclerc-schaamt-zich-voor-zware-crash-isack-hadjar-baalt-van-zesde-startplek~ae10fb1d/)
-  > Het Formule 1-circus is in Spanje voor de GP van Barcelona. Hier blijf je op de hoogte van de ontwikkelingen.
-- [Clubs sluiten de deuren: wat is er nog over van het ooit toonaangevende Rotterdamse nachtleven?](https://www.ad.nl/rotterdam/clubs-sluiten-de-deuren-wat-is-er-nog-over-van-het-ooit-toonaangevende-rotterdamse-nachtleven~a07d497f/)
-  > De Rotterdamse technobunker Perron heeft haar laatste feestje gevierd. En het is niet de enige club die de deuren voorgoed sloot in de stad. Bestáát...
-- [Verbijstering om ochtendroutine van Rudolph van Veen: ‘Ik doe dit al 40 jaar elke dag’](https://www.ad.nl/show/verbijstering-om-ochtendroutine-van-rudolph-van-veen-ik-doe-dit-al-40-jaar-elke-dag~a7d5f067/)
-  > Meesterpatissier Rudolph van Veen (59) zorgt voor verbazing op sociale media met de onthulling van een curieuze ochtendroutine. De tv-kok eet al...
-- [Massale run op waterflessen na besmet drinkwater in Drechtsteden: ‘Mensen denken alleen aan zichzelf’](https://www.ad.nl/binnenland/massale-run-op-waterflessen-na-besmet-drinkwater-in-drechtsteden-mensen-denken-alleen-aan-zichzelf~a962cebd/)
-  > Inwoners van Dordrecht, Zwijndrecht en Hendrik-Ido-Ambacht zijn sinds vrijdagavond massaal flessen water aan het hamsteren. Met winkelwagens vol...
-- [Zo laat begint Max Verstappen morgen aan de race en dit is de startopstelling](https://www.ad.nl/formule-1/zo-laat-begint-max-verstappen-morgen-aan-de-race-en-dit-is-de-startopstelling~a04674a4/)
-  > Het zit Max Verstappen nog niet mee dit Formule 1-seizoen. Bij de Grand Prix van Monaco ging het zondag al mis bij de start en noteerde hij zijn...
+- [Belgen geven voorsprong uit handen en verliezen, Michael van Gerwen en Gian van Veen vanavond tegen Zweden](https://www.ad.nl/darts/belgen-geven-voorsprong-uit-handen-en-verliezen-michael-van-gerwen-en-gian-van-veen-vanavond-tegen-zweden~afe7ea3e/)
+  > Het WK voetbal begon donderdag, maar ook de darters hebben een wereldkampioenschap op het programma staan. De World Cup of Darts is een landen-WK met...
+- [Geen kookadvies meer voor drinkwater Dordrecht, Zwijndrecht en Hendrik-Ido-Ambacht](https://www.ad.nl/dordrecht/geen-kookadvies-meer-voor-drinkwater-dordrecht-zwijndrecht-en-hendrik-ido-ambacht~a46e83dc/)
+  > Goed nieuws voor inwoners van Dordrecht, Zwijndrecht en Hendrik-Ido-Ambacht: het kookadvies voor kraanwater is opgeheven. Uit aanvullend onderzoek...
+- [Voetbalanalist Pierre van Hooijdonk: ‘Ik ben niet de klootzak die mensen van mij proberen te maken’](https://www.ad.nl/mezza/voetbalanalist-pierre-van-hooijdonk-ik-ben-niet-de-klootzak-die-mensen-van-mij-proberen-te-maken~a18d489c/)
+  > Geliefd, verguisd, maar ook onverstoorbaar. Pierre van Hooijdonk, tijdens het WK voetbal bijna dagelijks op tv als voetbalanalist, laat zich door...
+- [Zwitserland favoriet tegen Qatar, koppositie in de groep ligt voor het grijpen](https://www.ad.nl/wk-voetbal/zwitserland-favoriet-tegen-qatar-koppositie-in-de-groep-ligt-voor-het-grijpen~a6b5818e/)
+  > Het WK voetbal begint vandaag voor Qatar en Zwitserland. Beide landen zullen kansen zien in de poule met ook nog gastland Canada en Bosnië en...
+- [Demonstranten breken door hekken rond luxe resort gelinkt aan schoonzoon Trump: ‘flamingorevolutie’ laait op in Albanië](https://www.ad.nl/buitenland/demonstranten-breken-door-hekken-rond-luxe-resort-gelinkt-aan-schoonzoon-trump-flamingorevolutie-laait-op-in-albanie~a83f9ddd/)
+  > Zo’n tweehonderd demonstranten hebben zaterdag metalen hekken en prikkeldraad neergehaald rond een luxe bouwlocatie aan de Adriatische kust van...
 
 ### Meest gelezen
 
