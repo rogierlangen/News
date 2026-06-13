@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-06-2026 om 18:11*
+*Laatst bijgewerkt: 13-06-2026 om 20:18*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [VS bereidt zich voor op Oranjelegioen: 'Nederlandse manier is geweldig'](https://nos.nl/l/2618445)
+  > 78 Superbowls. Zo zien de lokale autoriteiten de 78 wedstrijden die tijdens het WK voetbal op Amerikaanse bodem worden gespeeld, van de aftrap in Los...
+- [Groot antiracismeprotest met duizenden mensen in Belfast](https://nos.nl/l/2618441)
+  > Duizenden mensen hebben in Belfast meegedaan aan een antiracismedemonstratie. De afgelopen dagen was het erg onrustig na een mesaanval in de...
+- [Drinkwater voor de 200.000 mensen in regio Dordrecht toch veilig te gebruiken](https://nos.nl/l/2618439)
+  > Het drinkwater van huishoudens in Dordrecht, Zwijndrecht en Hendrik-Ido-Ambacht is veilig te gebruiken. Dat meldt drinkwaterbedrijf Evides. "Uit...
+- [Hoge functionaris Haïti ontvoerd door gewapende mannen](https://nos.nl/l/2618435)
+  > Gewapende mannen hebben in Haïti een hoge functionaris van het ministerie van Defensie ontvoerd. Het gaat om James Boyard; hij geldt als een van de...
 - [Ludieke acties en fel protest, Delftse studentenvakbond stopt na 63 jaar](https://nos.nl/l/2618422)
   > Soms ludieke acties, dan weer opvallend fel protest. De Delftse studentenvakbond VSSD heeft een rijke geschiedenis. Na 63 jaar komt er een einde aan...
-- [Antarctica meet recordtemperatuur deze winter: 20 graden warmer dan gemiddeld](https://nos.nl/l/2618421)
-  > Op Antarctica is afgelopen week de hoogste temperatuur ooit gemeten in de winter. Bij een Argentijnse onderzoeksbasis werd een temperatuur van 15,5...
-- [Israël voert opnieuw luchtaanvallen uit op Zuid-Libanon, roept bewoners op te vertrekken](https://nos.nl/l/2618415)
-  > Israël heeft vandaag opnieuw luchtaanvallen uitgevoerd op het zuiden van Libanon, melden Libanese staatsmedia. Voorafgaand aan de aanvallen riep het...
-- [Criminele zoon mag niet bij zijn ouders in Lelystad komen](https://nos.nl/l/2618414)
-  > Een man uit Lelystad mag van de rechter twee jaar lang niet in de buurt van de woning van zijn ouders komen. De ouders hadden de rechtbank hierom...
-- [Bewoners Amsterdam-Osdorp mogen terug naar huis na explosie, 'woningen zijn weer veilig'](https://nos.nl/l/2618408)
-  > Bewoners van het flatgebouw in Amsterdam-Osdorp kunnen terug naar huis na de explosie in de nacht van donderdag op vrijdag. Dat meldt de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Belgen geven voorsprong uit handen en verliezen, Michael van Gerwen en Gian van Veen vanavond tegen Zweden](https://www.ad.nl/darts/belgen-geven-voorsprong-uit-handen-en-verliezen-michael-van-gerwen-en-gian-van-veen-vanavond-tegen-zweden~afe7ea3e/)
-  > Het WK voetbal begon donderdag, maar ook de darters hebben een wereldkampioenschap op het programma staan. De World Cup of Darts is een landen-WK met...
-- [Geen kookadvies meer voor drinkwater Dordrecht, Zwijndrecht en Hendrik-Ido-Ambacht](https://www.ad.nl/dordrecht/geen-kookadvies-meer-voor-drinkwater-dordrecht-zwijndrecht-en-hendrik-ido-ambacht~a46e83dc/)
-  > Goed nieuws voor inwoners van Dordrecht, Zwijndrecht en Hendrik-Ido-Ambacht: het kookadvies voor kraanwater is opgeheven. Uit aanvullend onderzoek...
-- [Voetbalanalist Pierre van Hooijdonk: ‘Ik ben niet de klootzak die mensen van mij proberen te maken’](https://www.ad.nl/mezza/voetbalanalist-pierre-van-hooijdonk-ik-ben-niet-de-klootzak-die-mensen-van-mij-proberen-te-maken~a18d489c/)
-  > Geliefd, verguisd, maar ook onverstoorbaar. Pierre van Hooijdonk, tijdens het WK voetbal bijna dagelijks op tv als voetbalanalist, laat zich door...
-- [Zwitserland favoriet tegen Qatar, koppositie in de groep ligt voor het grijpen](https://www.ad.nl/wk-voetbal/zwitserland-favoriet-tegen-qatar-koppositie-in-de-groep-ligt-voor-het-grijpen~a6b5818e/)
+- [Cristiano Ronaldo (41) nog altijd topfit op strand in Miami, Denzel Dumfries op pad met teamgenoten](https://www.ad.nl/wk-voetbal/cristiano-ronaldo-41-nog-altijd-topfit-op-strand-in-miami-denzel-dumfries-op-pad-met-teamgenoten~a060ccd4/)
+  > Tijdens het WK 2026 zullen spelers van alle 48 deelnemende landen weer veel leuke foto’s en filmpjes delen op social media. Wij verzamelen hier de...
+- [Hoe ‘je kúnt het wel, maar je dóét het niet’ Mia’s (68) leven beheerste, tót de diagnose kwam](https://www.ad.nl/binnenland/hoe-je-kunt-het-wel-maar-je-doet-het-niet-mias-68-leven-beheerste-tot-de-diagnose-kwam~a87a09b3/)
+  > Haar hele leven dacht ze dat ze lui was, of misschien wel gewoon dom. Als kind was Mia Lijffijt (68) ook geen stuiterbal, wel verlegen en angstig....
+- [Zwitserland terecht op voorsprong tegen Qatar, maar ontsnapt aan gelijkmaker](https://www.ad.nl/wk-voetbal/zwitserland-terecht-op-voorsprong-tegen-qatar-maar-ontsnapt-aan-gelijkmaker~a6b5818e/)
   > Het WK voetbal begint vandaag voor Qatar en Zwitserland. Beide landen zullen kansen zien in de poule met ook nog gastland Canada en Bosnië en...
-- [Demonstranten breken door hekken rond luxe resort gelinkt aan schoonzoon Trump: ‘flamingorevolutie’ laait op in Albanië](https://www.ad.nl/buitenland/demonstranten-breken-door-hekken-rond-luxe-resort-gelinkt-aan-schoonzoon-trump-flamingorevolutie-laait-op-in-albanie~a83f9ddd/)
-  > Zo’n tweehonderd demonstranten hebben zaterdag metalen hekken en prikkeldraad neergehaald rond een luxe bouwlocatie aan de Adriatische kust van...
+- [Warme omhelzing tussen Braziliaanse iconen, Mbappé met bijzonder optreden en outfits op televisie](https://www.ad.nl/wk-voetbal/warme-omhelzing-tussen-braziliaanse-iconen-mbappe-met-bijzonder-optreden-en-outfits-op-televisie~a2d5cab9/)
+  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is begonnen. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
+- [Van 180 naar 80 kilo: hoe Jaymian zijn leven compleet omgooide](https://www.ad.nl/binnenland/van-180-naar-80-kilo-hoe-jaymian-zijn-leven-compleet-omgooide~a38a6aae/)
+  > Ooit woog hij 180 kilo en verstopte hij zich voor alles en iedereen. Nu, na een afvalreis van 100 kilo, vragen mensen hém om advies om hun gezondheid...
 
 ### Meest gelezen
 
