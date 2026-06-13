@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-06-2026 om 08:23*
+*Laatst bijgewerkt: 13-06-2026 om 11:18*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Deelnemers Married at First Sight Australië wisten niet van strafblad partner](https://nos.nl/l/2618368)
-  > Deelnemers aan de Australische versie van het programma Married at First Sight (MAFS) zijn niet altijd geïnformeerd over het strafrechtelijk verleden...
-- [Explosie Amsterdam was de zoveelste in woonwijk: 'Onveiligheid neemt toe'](https://nos.nl/l/2618364)
-  > Opnieuw was er gisternacht een zware explosie midden in een woonwijk, dit keer in Amsterdam-Osdorp. Bij de ontploffing raakten zeven mensen gewond en...
-- [Oekraïners hebben het weer op de Krim gemunt: 'Kansen op het slagveld gekeerd'](https://nos.nl/l/2618362)
-  > De Oekraïners zijn hard bezig om de Krim te isoleren. Wat is de bedoeling van al hun bombardementen? Willen ze de Russen alleen maar in het nauw...
-- [Hele weekend geen treinen van en naar Rotterdam Centraal wegens werkzaamheden](https://nos.nl/l/2618359)
-  > Vanwege werkzaamheden rijden er het hele weekend geen treinen van en naar station Rotterdam Centraal. Spoorbeheerder ProRail vervangt vandaag en...
-- [Bommen onder het asfalt? Duitse snelweg tien dagen dicht voor onderzoek](https://nos.nl/l/2618356)
-  > Een belangrijke verkeersader in het Ruhrgebied is tot en met volgend weekend afgesloten voor onderzoek naar bommen en munitie uit de Tweede...
+- [Jongen (14) op e-step overleden na aanrijding in Almere](https://nos.nl/l/2618381)
+  > In Almere is bij een aanrijding tussen een auto en een elektrische step gisteren een jongen van 14 omgekomen. Dat bevestigt de politie na...
+- [In één dag 124.000 euro ingezameld na ongeluk Zeeuws-Vlaanderen](https://nos.nl/l/2618379)
+  > In net iets meer dan 24 uur tijd is 123.988 euro ingezameld om de families en de basisschool te ondersteunen die getroffen zijn door het fatale...
+- [Naam Donald Trump verwijderd van Kennedy Center na omstreden naamsverandering](https://nos.nl/l/2618378)
+  > Uren na de deadline en een dag voor de tachtigste verjaardag van de Amerikaanse president Trump is zijn naam verwijderd van het prestigieuze Kennedy...
+- [Underdogs Curaçao, Kaapverdië en Haïti kleuren het WK: 'Nederig, maar ook trots'](https://nos.nl/l/2618376)
+  > In de schaduw van de voetbalgrootmachten op het WK vallen vier landen op die er debuteren: Kaapverdië, Jordanië, Oezbekistan en Curaçao. Onder...
+- [Vrouw (35) zwaargewond bij haaiaanval bij Coogee Beach in Sydney](https://nos.nl/l/2618375)
+  > Voor de kust van de Australische stad Sydney is een 35-jarige vrouw zwaargewond geraakt bij een haaiaanval. Dat gebeurde bij het populaire Coogee...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Drie kinderen en directeur omgekomen bij schoolreisongeluk: hoe help je een klas door zo’n trauma heen?](https://www.ad.nl/binnenland/drie-kinderen-en-directeur-omgekomen-bij-schoolreisongeluk-hoe-help-je-een-klas-door-zon-trauma-heen~a778fa18/)
-  > Drie kinderen en de schooldirecteur die omkomen bij een vreselijk ongeluk. Het verdriet dat ze op basisschool De Warande in het Zeeuwse Axel moeten...
-- [De kaasstengel van dit onbekende merk komt als lekkerste uit onze test: ‘Dit is de kampioen’](https://www.ad.nl/gezond/de-kaasstengel-van-dit-onbekende-merk-komt-als-lekkerste-uit-onze-test-dit-is-de-kampioen~ae53fc85/)
-  > Ze staan standaard op de gastentafel bij het televisieprogramma VI en zijn in veel huishoudens de favoriete WK-snack: kaasstengels. Maar welke zijn...
-- [Eerste kraker van WK, Turkije treft Feyenoorder: op deze WK-duels kun je je de komende 24 uur verheugen](https://www.ad.nl/wk-voetbal/eerste-kraker-van-wk-turkije-treft-feyenoorder-op-deze-wk-duels-kun-je-je-de-komende-24-uur-verheugen~aae8bf38/)
-  > Op dag 3 van het WK voetbal in de Verenigde Staten, Canada en Mexico worden er vier wedstrijden gespeeld. Brazilië neemt het op tegen Marokko en ook...
-- [Van tranen bij Suzan tot een ontroerende boodschap van Freek: zeven opvallende momenten uit docu](https://www.ad.nl/show/van-tranen-bij-suzan-tot-een-ontroerende-boodschap-van-freek-zeven-opvallende-momenten-uit-docu~ade2afda/)
-  > De docu Suzan & Freek: we vieren het leven, die sinds zaterdag op Videoland te zien is, volgt het stel in aanloop naar hun gigantische concertreeks...
-- [De pro’s en contra’s van PRO: nieuwe partij met meer dan 100.000 leden, maar groei op links blijft lastig](https://www.ad.nl/politiek/de-pros-en-contras-van-pro-nieuwe-partij-met-meer-dan-100-000-leden-maar-groei-op-links-blijft-lastig~a877b73a/)
-  > Het is zaterdag officieel: GroenLinks-PvdA verdwijnt en keert terug als Progressief Nederland (PRO). De fusiepartij is meteen de grootste ledenpartij...
+- [Deze televisies blinken uit in beeld en geluid, voor 350 euro heb je al een goede](https://www.ad.nl/tech/deze-televisies-blinken-uit-in-beeld-en-geluid-voor-350-euro-heb-je-al-een-goede~ae0e4c89/)
+  > Moderne televisies zijn groter, slimmer en scherper dan ooit. Het maakt het bingen van series of het volgen van WK-wedstrijden een stuk leuker. Welke...
+- [Kijkers geloven oren niet als president Zuid-Korea video deelt met Europapa: ‘Het is echt zijn officiële profiel’](https://www.ad.nl/show/kijkers-geloven-oren-niet-als-president-zuid-korea-video-deelt-met-europapa-het-is-echt-zijn-officiele-profiel~aab3ab67/)
+  > De Zuid-Koreaanse president Lee Jae-myung zorgt voor verbazing op TikTok met de muziekkeuze bij zijn nieuwe video. Op zijn officiële profiel is...
+- [Dit wordt het WK van multicultureel Rotterdam: ‘De stad is gevormd door migratie’](https://www.ad.nl/binnenland/dit-wordt-het-wk-van-multicultureel-rotterdam-de-stad-is-gevormd-door-migratie~ada44055/)
+  > Rotterdam kleurt tijdens het WK voetbal niet alleen oranje. Met Nederland, Turkije, Marokko, Curaçao en Kaapverdië op het wereldpodium zijn duizenden...
+- [Laatste training weer hervat na korte rode vlag, prima eerste ronden voor Max Verstappen](https://www.ad.nl/formule-1/laatste-training-weer-hervat-na-korte-rode-vlag-prima-eerste-ronden-voor-max-verstappen~ac08633b/)
+  > Tevredenheid is nog ver weg voor Max Verstappen in Barcelona. Red Bull Racing heeft nog één sessie om alle zaakjes goed op orde te krijgen voor de...
+- [Na jaren van droogte snakt recordhouder Brazilië naar WK-glorie: wat mag je van de Seleção verwachten?](https://www.ad.nl/wk-voetbal/na-jaren-van-droogte-snakt-recordhouder-brazilie-naar-wk-glorie-wat-mag-je-van-de-selecao-verwachten~ae42d1b6/)
+  > Oh mooi Brazilië, ga je ons eindelijk weer eens verleiden? Het wordt tijd na jaren van droogte voor de Seleção. Dit kun je verwachten van Brazilië op...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Anthropic schort toegang AI-modellen op na exportbeperkingen Amerikaanse overheid](https://fd.nl/bedrijfsleven/1599851/anthropic-schort-toegang-ai-modellen-op-na-exportbeperkingen-amerikaanse-overheid)
-  > Anthropic schakelt twee AI-hackmodellen uit nadat de Amerikaanse overheid beperkingen had opgelegd voor het gebruik ervan.
+- [Grootaandeelhouder Impactive Capital halveert belang in Basic-Fit](https://fd.nl/bedrijfsleven/1599924/grootandeelhouder-impactive-capital-halveert-belang-in-basic-fit)
+  > Het Amerikaanse Impactive Capital heeft de helft van zijn aandelen in Basic-Fit van de hand gedaan.
+- [Oud-topman Shell Cor Herkströter (88) overleden](https://fd.nl/bedrijfsleven/1599852/oud-topman-shell-cor-herkstroter-88-overleden)
+  > Cor Herkströter, oud-bestuursvoorzitter van Shell, is op 88-jarige leeftijd overleden.
+- [Regering Trump blokkeert gebruik krachtige AI-modellen Anthropic voor niet-Amerikanen](https://fd.nl/bedrijfsleven/1599851/anthropic-schort-toegang-ai-modellen-op-na-exportbeperkingen-amerikaanse-overheid)
+  > Anthropic schakelde Mythos en Fable uit nadat de Amerikaanse overheid het gebruik ervan voor niet-Amerikanen had geblokkeerd.
 - [‘Transparantie over pensioenkosten is essentieel, maar gaat over meer dan goedkoop of duur’](https://fd.nl/opinie/1599895/transparantie-over-pensioenkosten-is-essentieel-maar-gaat-over-meer-dan-goedkoop-of-duur-en-andere-lezersreacties)
   > FD-lezers reageren op het vergelijken van kosten van pensioenfondsen, hoe we beter kunnen communiceren, de stabiliteit van kernenergiebeleid en of...
 - [Tijd om te beleggen in Europa? En eerherstel voor een indexpionier](https://fd.nl/economie/1599813/tijd-om-te-beleggen-in-europa-en-eerherstel-voor-een-indexpionier)
   > Europa is goedkoper dan de VS, minder afhankelijk van de AI-hype en toch structureel onderschat door beleggers. Maar kunnen we eigenlijk wel...
-- [Wil je rendement, stap in piramides](https://fd.nl/opinie/1599743/wil-je-rendement-stap-in-piramides)
-  > In het hier en nu zijn die Zuckerberg, Thiel, Altman en Musk ‘all over the place’. Maar wat is over een paar duizend jaar hun nalatenschap?
-- [Groene boeren uit alle windstreken](https://fd.nl/samenleving/1599464/groene-boeren-uit-alle-windstreken)
-  > Wereldwijd legt fotograaf Ruud Sies vast dat boeren ook anders kan: met respect voor mens, dier en bodem. Een levenswerk voor zijn kleindochter.
 
 ### Meest gelezen
 
