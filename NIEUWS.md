@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-06-2026 om 20:18*
+*Laatst bijgewerkt: 13-06-2026 om 22:08*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Hongaarse oud-premier Orbán blijft leider van zijn partij Fidesz](https://nos.nl/l/2618446)
+  > De voormalige Hongaarse premier Orbán blijft de leider van zijn Fidesz-partij. Ondanks de verpletterende nederlaag bij de parlementsverkiezingen...
 - [VS bereidt zich voor op Oranjelegioen: 'Nederlandse manier is geweldig'](https://nos.nl/l/2618445)
   > 78 Superbowls. Zo zien de lokale autoriteiten de 78 wedstrijden die tijdens het WK voetbal op Amerikaanse bodem worden gespeeld, van de aftrap in Los...
 - [Groot antiracismeprotest met duizenden mensen in Belfast](https://nos.nl/l/2618441)
@@ -16,8 +18,6 @@
   > Het drinkwater van huishoudens in Dordrecht, Zwijndrecht en Hendrik-Ido-Ambacht is veilig te gebruiken. Dat meldt drinkwaterbedrijf Evides. "Uit...
 - [Hoge functionaris Haïti ontvoerd door gewapende mannen](https://nos.nl/l/2618435)
   > Gewapende mannen hebben in Haïti een hoge functionaris van het ministerie van Defensie ontvoerd. Het gaat om James Boyard; hij geldt als een van de...
-- [Ludieke acties en fel protest, Delftse studentenvakbond stopt na 63 jaar](https://nos.nl/l/2618422)
-  > Soms ludieke acties, dan weer opvallend fel protest. De Delftse studentenvakbond VSSD heeft een rijke geschiedenis. Na 63 jaar komt er een einde aan...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Cristiano Ronaldo (41) nog altijd topfit op strand in Miami, Denzel Dumfries op pad met teamgenoten](https://www.ad.nl/wk-voetbal/cristiano-ronaldo-41-nog-altijd-topfit-op-strand-in-miami-denzel-dumfries-op-pad-met-teamgenoten~a060ccd4/)
+- [Saibari in de basis bij Marokko, Igor Thiago in de spits bij Brazilië](https://www.ad.nl/wk-voetbal/saibari-in-de-basis-bij-marokko-igor-thiago-in-de-spits-bij-brazilie~a11730bd/)
+  > Een wedstrijd om van te smullen op het WK: Brazilië - Marokko. De Brazilianen zijn vijfvoudig wereldkampioen en daarmee recordhouder. Marokko...
+- [Binnen 24 uur zeven doden onder bergbeklimmers in de Alpen, meerdere ongelukken rond de Mont Blanc](https://www.ad.nl/buitenland/binnen-24-uur-zeven-doden-onder-bergbeklimmers-in-de-alpen-meerdere-ongelukken-rond-de-mont-blanc~a7a9a58f/)
+  > In de Alpen in de regio van het massief van de Mont Blanc zijn volgens Italiaanse media binnen 24 uur tijd zeven bergbeklimmers om het leven gekomen.
+- [Cristiano Ronaldo (41) op het strand in Miami, Oranje-internationals vermaken zich in Kansas City](https://www.ad.nl/wk-voetbal/cristiano-ronaldo-41-op-het-strand-in-miami-oranje-internationals-vermaken-zich-in-kansas-city~a060ccd4/)
   > Tijdens het WK 2026 zullen spelers van alle 48 deelnemende landen weer veel leuke foto’s en filmpjes delen op social media. Wij verzamelen hier de...
-- [Hoe ‘je kúnt het wel, maar je dóét het niet’ Mia’s (68) leven beheerste, tót de diagnose kwam](https://www.ad.nl/binnenland/hoe-je-kunt-het-wel-maar-je-doet-het-niet-mias-68-leven-beheerste-tot-de-diagnose-kwam~a87a09b3/)
-  > Haar hele leven dacht ze dat ze lui was, of misschien wel gewoon dom. Als kind was Mia Lijffijt (68) ook geen stuiterbal, wel verlegen en angstig....
-- [Zwitserland terecht op voorsprong tegen Qatar, maar ontsnapt aan gelijkmaker](https://www.ad.nl/wk-voetbal/zwitserland-terecht-op-voorsprong-tegen-qatar-maar-ontsnapt-aan-gelijkmaker~a6b5818e/)
-  > Het WK voetbal begint vandaag voor Qatar en Zwitserland. Beide landen zullen kansen zien in de poule met ook nog gastland Canada en Bosnië en...
-- [Warme omhelzing tussen Braziliaanse iconen, Mbappé met bijzonder optreden en outfits op televisie](https://www.ad.nl/wk-voetbal/warme-omhelzing-tussen-braziliaanse-iconen-mbappe-met-bijzonder-optreden-en-outfits-op-televisie~a2d5cab9/)
-  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is begonnen. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
-- [Van 180 naar 80 kilo: hoe Jaymian zijn leven compleet omgooide](https://www.ad.nl/binnenland/van-180-naar-80-kilo-hoe-jaymian-zijn-leven-compleet-omgooide~a38a6aae/)
-  > Ooit woog hij 180 kilo en verstopte hij zich voor alles en iedereen. Nu, na een afvalreis van 100 kilo, vragen mensen hém om advies om hun gezondheid...
+- [Politie pakt man (28) met 150 schorpioenen in bagage op luchthaven Kaapstad](https://www.ad.nl/buitenland/politie-pakt-man-28-met-150-schorpioenen-in-bagage-op-luchthaven-kaapstad~ae5468f7/)
+  > Op de luchthaven van Kaapstad heeft de politie een 28-jarige man opgepakt met 150 schorpioenen in zijn bagage. Hij had de levende dieren onder zijn...
+- [Pijnlijke start voor Zwitserland: Qatar pakt diep in blessuretijd allereerste punt ooit op een WK](https://www.ad.nl/wk-voetbal/pijnlijke-start-voor-zwitserland-qatar-pakt-diep-in-blessuretijd-allereerste-punt-ooit-op-een-wk~a6b5818e/)
+  > Zwitserland heeft een valse start gemaakt op het WK. De Zwitsers waren in de San Francisco Bay Area Stadium veel beter dan Qatar, maar verzuimden een...
 
 ### Meest gelezen
 
