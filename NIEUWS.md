@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-06-2026 om 00:11*
+*Laatst bijgewerkt: 14-06-2026 om 05:52*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Dramatische dag in Alpen: zeven doden in 24 uur](https://nos.nl/l/2618464)
-  > De afgelopen dag zijn nog eens vier bergsporters overleden in de Alpen. Vrijdag kwamen ook al drie alpinisten om het leven. Daarmee zijn er in 24 uur...
-- [Kritische biografie over 'ijsman' Wim Hof verkozen tot beste journalistieke boek](https://nos.nl/l/2618459)
-  > Robert van de Griend en Anneke Stoffelen van de Volkskrant hebben dit jaar de Brusseprijs voor het beste Nederlandstalige journalistieke boek...
-- [Hongaarse oud-premier Orbán blijft leider van zijn partij Fidesz](https://nos.nl/l/2618446)
-  > De voormalige Hongaarse premier Orbán blijft de leider van zijn Fidesz-partij. Ondanks de verpletterende nederlaag bij de parlementsverkiezingen...
-- [VS bereidt zich voor op Oranjelegioen: 'Nederlandse manier is geweldig'](https://nos.nl/l/2618445)
-  > 78 Superbowls. Zo zien de lokale autoriteiten de 78 wedstrijden die tijdens het WK voetbal op Amerikaanse bodem worden gespeeld, van de aftrap in Los...
-- [Groot antiracismeprotest met duizenden mensen in Belfast](https://nos.nl/l/2618441)
-  > Duizenden mensen hebben in Belfast meegedaan aan een antiracismedemonstratie. De afgelopen dagen was het erg onrustig na een mesaanval in de...
+- [Wekdienst 14/6: Eerste WK-wedstrijd van Nederland • Stille tocht in Axel voor slachtoffers verkeersongeluk](https://nos.nl/l/2618487)
+  > Goedemorgen! Nederland speelt vandaag zijn eerste WK-wedstrijd, tegen Japan, en in het Zeeuwse Axel is een stille tocht voor de slachtoffers van het...
+- [Van onze correspondent... Rudy Bouma (VS & Canada)](https://nos.nl/l/2618482)
+  > Van onze Correspondent is een serie van de makers van podcast De Dag. Iedere zondag maken we kennis met een van de correspondenten van de NOS, het...
+- [Tiktokshop komt naar Nederland, 'een giftige cocktail voor impulsaankopen'](https://nos.nl/l/2618477)
+  > Al scrollende door je feed kom je op de sociale media app Tiktok een hele rits aan filmpjes tegen. De ene na de andere nieuwe ketting, armband of...
+- [Veerboot met tientallen mensen aan boord urenlang stuurloos op Noordzee](https://nos.nl/l/2618472)
+  > Op de Noordzee bij Duitsland is gisteren een veerboot in de problemen geraakt. Het schip was onderweg van de havenplaats Büsum naar het eiland...
+- [Veel rook bij brand Scheveningen, meerdere woningen ontruimd](https://nos.nl/l/2618469)
+  > In Scheveningen hebben vannacht meerdere mensen hun huis moeten verlaten vanwege een grote brand in een visrokerij. Bij de brand kwam veel rook...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Brazilië en Marokko beginnen WK met gelijkspel, spits Ismael Saibari maakt fraaie goal](https://www.ad.nl/wk-voetbal/brazilie-en-marokko-beginnen-wk-met-gelijkspel-spits-ismael-saibari-maakt-fraaie-goal~a11730bd/)
-  > Marokko en Brazilië hebben op het WK voetbal met 1-1 gelijkgespeeld. De eerste groepswedstrijd in poule C was in het MetLife Stadium in East...
-- [Cristiano Ronaldo (41) op het strand in Miami, Oranje-internationals vermaken zich in Kansas City](https://www.ad.nl/wk-voetbal/cristiano-ronaldo-41-op-het-strand-in-miami-oranje-internationals-vermaken-zich-in-kansas-city~a060ccd4/)
-  > Tijdens het WK 2026 zullen spelers van alle 48 deelnemende landen weer veel leuke foto’s en filmpjes delen op social media. Wij verzamelen hier de...
-- [Spectaculaire knock-out: Mory Kromah plant knie op het hoofd van tegenstander en verdedigt Glory-titel](https://www.ad.nl/vechtsport/spectaculaire-knock-out-mory-kromah-plant-knie-op-het-hoofd-van-tegenstander-en-verdedigt-glory-titel~a999a82a/)
-  > Mory Kromah heeft zijn wereldtitel in het zwaargewicht van Glory met succes verdedigd. En hoe. The Black Ghost - geboren in Amsterdam, opgegroeid in...
-- [Burgemeester doodgeschoten in zuiden van Mexico, gastland van het WK voetbal](https://www.ad.nl/buitenland/burgemeester-doodgeschoten-in-zuiden-van-mexico-gastland-van-het-wk-voetbal~af5da50f/)
-  > Terwijl in het ene deel van het land een vrolijk voetbalfeest aan de gang is, is de realiteit in het zuiden van Mexico een stuk grimmiger. In de...
-- [Binnen 24 uur zeven doden onder bergbeklimmers in de Alpen, meerdere ongelukken rond de Mont Blanc](https://www.ad.nl/buitenland/binnen-24-uur-zeven-doden-onder-bergbeklimmers-in-de-alpen-meerdere-ongelukken-rond-de-mont-blanc~a7a9a58f/)
-  > In de Alpen in de regio van het massief van de Mont Blanc zijn volgens Italiaanse media binnen 24 uur tijd zeven bergbeklimmers om het leven gekomen.
+- [Oranje trapt wereldkampioenschap af tegen Japan, dit is de vermoedelijke opstelling](https://www.ad.nl/wk-voetbal/oranje-trapt-wereldkampioenschap-af-tegen-japan-dit-is-de-vermoedelijke-opstelling~ad173d9e/)
+  > Het Nederlands elftal doet voor de twaalfde keer mee aan het WK voetbal. Vanavond is het dan zover: de eerste wedstrijd van Oranje in de groepsfase....
+- [Dreun voor Turkije: Australië slaat opnieuw verrassend toe en is op weg naar zege](https://www.ad.nl/wk-voetbal/dreun-voor-turkije-australie-slaat-opnieuw-verrassend-toe-en-is-op-weg-naar-zege~ac4f2b0f/)
+  > Turkije speelt in de eerste groepswedstrijd op het WK tegen Australië. De in Nederland geboren Turken Orkun Kökçü en Ferdi Kadioglu en...
+- [Toos lag 102 keer op de operatietafel, artsen noemen haar ‘een wonder’: ‘Er is altijd wel iets om van te genieten’](https://www.ad.nl/binnenland/toos-lag-102-keer-op-de-operatietafel-artsen-noemen-haar-een-wonder-er-is-altijd-wel-iets-om-van-te-genieten~aeaf07e7/)
+  > Haar dochter nam al drie keer afscheid van haar, maar ze is er nog: Toos van der Heiden (76) overleefde 102 operaties. Artsen noemen de Vlaardingse...
+- [Duitse media genieten van ‘spectaculaire goal’ Bayern-target Ismael Saibari: ‘Dit zal hem niet goedkoper maken’](https://www.ad.nl/wk-voetbal/duitse-media-genieten-van-spectaculaire-goal-bayern-target-ismael-saibari-dit-zal-hem-niet-goedkoper-maken~a6ab08f1/)
+  > Ismael Saibari heeft zichzelf nog wat extra op de kaart gezet. Met zijn heerlijke treffer namens Marokko tegen Brazilië (1-1) bewees de PSV’er waarom...
+- [Rijk geworden in functie: zo harkt president Trump miljarden dollars binnen voor zichzelf](https://www.ad.nl/buitenland/rijk-geworden-in-functie-zo-harkt-president-trump-miljarden-dollars-binnen-voor-zichzelf~ab367bc5/)
+  > Donald Trump wordt zondag 80 jaar. Dat betekent feest en cadeautjes. Maar wat geef je een president die alles al heeft? Sterker: er was nog nooit een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Metalheads in the corner office](https://fd.nl/bedrijfsleven/1599307/metalheads-in-the-corner-office)
+  > Bij de Metal Business Club wordt serieus genetwerkt. Maar op de zeventiende verdieping van de glazen kantoortoren zijn gitaarrifs ook heel belangrijk.
+- [Luisterverhaal: Gaza steeds verder fijngeknepen: ‘Ik kon mijn huis zien, maar kon er niet meer komen’](https://fd.nl/samenleving/1599811/luisterverhaal-gaza-steeds-verder-fijngeknepen-ik-kon-mijn-huis-zien-maar-kon-er-niet-meer-komen)
+  > Deze week hoor je hoe in Gaza het geweld maar blijft duren.
 - [GroenLinks en PvdA gaan officieel samen verder als Pro Nederland, dat zich verzet tegen kabinetsplannen](https://fd.nl/politiek/1599854/groenlinks-en-pvda-gaan-officieel-samen-verder-als-pro-nederland-dat-zich-verzet-tegen-kabinetsplannen)
   > 96% van de GroenLinksers stemden voor de fusie, en 97% van de PvdA’ers.
 - [VVD-leider Yesilgöz tegen links: de belastingen zijn al hoog](https://fd.nl/politiek/1599925/vvd-leider-yesilgoz-tegen-links-de-belastingen-zijn-al-hoog)
   > Het kabinet zoekt naar steun voor de begroting, bijvoorbeeld bij Pro. VVD-leider Yesilgöz zag op het VVD-partijcongres weinig in de linkse wens om...
 - [Grootste beursgang ooit verliep ‘volgens het boekje’, SpaceX moet nu hoge waardering gaan bewijzen](https://fd.nl/financiele-markten/1599923/grootste-beursgang-ooit-verliep-volgens-het-boekje-spacex-moet-nu-hoge-waardering-gaan-bewijzen)
   > De handel in het aandeel verliep ordelijk. Banken en brokers moesten in de eerste uren miljoenen orders verwerken. Uniek was dat Nederlandse...
-- [Paramount krijgt groen licht van Amerikaanse regering voor overname Warner Bros](https://fd.nl/bedrijfsleven/1599853/paramount-krijgt-in-vs-groen-licht-voor-overname-warner-bros)
-  > Naar het oordeel van de regering Trump verstoort de overname van Warner Bros door Paramount de mededinging niet.
-- [Bij de grootste militaire oefening in jaren werkt de landmacht zij aan zij met Nederlandse bedrijven](https://fd.nl/samenleving/1599727/bij-de-grootste-militaire-oefening-in-jaren-werkt-de-landmacht-zij-aan-zij-met-nederlandse-bedrijven)
-  > Bij de bouw van een krijgsgevangenenkamp in Groningen kijken zelfs geen militaire bouwopzichters mee. ‘Het bedrijfsleven zorgt voor creatieve...
 
 ### Meest gelezen
 
