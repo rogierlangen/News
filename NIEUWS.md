@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-06-2026 om 19:41*
+*Laatst bijgewerkt: 14-06-2026 om 21:17*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [VN-kantoor aangevallen bij anti-G7-protest in Genève](https://nos.nl/l/2618597)
+  > Protesten in Genève tegen een G7-top zijn uitgelopen op ongeregeldheden. Aan de demonstratiemars deden ongeveer zestig organisaties mee. De groep was...
 - [Vliegtuig met skydivers neergestort in VS, alle 12 inzittenden omgekomen](https://nos.nl/l/2618587)
   > In de Amerikaanse staat Missouri is een klein vliegtuig neergestort. Volgens de politie zijn alle twaalf inzittenden van het toestel om het leven...
 - [Duizenden mensen bij stille tocht in Axel voor slachtoffers auto-ongeluk](https://nos.nl/l/2618582)
   > In Axel in Zeeuws-Vlaanderen hebben duizenden mensen een stille tocht gelopen ter nagedachtenis aan de vier mensen die donderdag omkwamen bij het...
 - [Vierde verdachte opgepakt voor plannen explosie bij synagoge Heemstede](https://nos.nl/l/2618562)
   > De politie heeft een nieuwe verdachte gearresteerd vanwege het voorbereiden van een aanslag op een synagoge in Heemstede, afgelopen maart. De...
-- [Zes doden door botsing van helikopters in Rio de Janeiro](https://nos.nl/l/2618554)
-  > In de Braziliaanse stad Rio de Janeiro zijn twee helikopters tegen elkaar gevlogen en neergestort. Op de grond ontstond een grote brand. Volgens de...
-- [Komende week wordt warmer, met piek op vrijdag](https://nos.nl/l/2618549)
-  > Stap voor stap wordt het de komende dagen warmer en we belanden in de loop van de week zelfs rond de 30 graden. Dat zal vrijdag zijn. De kans op een...
+- [Zes doden bij helikopterbotsing Rio de Janeiro, onder wie zanger Oliver Tree](https://nos.nl/l/2618554)
+  > In de Braziliaanse stad Rio de Janeiro zijn twee helikopters tegen elkaar gevlogen en neergestort. Alle zes inzittenden zijn om het leven gekomen....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van jochie tot president: 80 jaar Trump in opmerkelijke foto’s](https://www.ad.nl/buitenland/van-jochie-tot-president-80-jaar-trump-in-opmerkelijke-fotos~aa75c1d5/)
-  > De Amerikaanse president Donald Trump viert vandaag zijn 80ste verjaardag. Het onhandelbare kind van toen groeide uit tot een succesvolle zakenman en...
-- [Zanger Oliver Tree (32) omgekomen bij botsing tussen helikopters boven Rio de Janeiro](https://www.ad.nl/buitenland/zanger-oliver-tree-32-omgekomen-bij-botsing-tussen-helikopters-boven-rio-de-janeiro~a03d0028/)
-  > Bij een botsing tussen twee helikopters boven de Braziliaanse stad Rio de Janeiro zijn zeker zes mensen om het leven gekomen. Eén van de slachtoffers...
-- [Politie neemt fatbike in beslag die 100 kilometer per uur kan](https://www.ad.nl/binnenland/politie-neemt-fatbike-in-beslag-die-100-kilometer-per-uur-kan~aeef2a29/)
-  > Tijdens een controle door de politie in Boxtel, Vught en Sint-Michielsgestel is zondag een fatbike in beslag genomen. De elektrische fiets kon...
-- [Curaçao mag na historische goal even dromen van stunt tegen Duitsland, maar krijgt pak slaag](https://www.ad.nl/wk-voetbal/curacao-mag-na-historische-goal-even-dromen-van-stunt-tegen-duitsland-maar-krijgt-pak-slaag~ab747244/)
-  > Het debuut van Curaçao op een WK maakte, zoals verwacht, duidelijk hoe groot het verschil is tussen het kleinduimpje en de reuzen van het voetbal....
-- [Kinderen doen te weinig ervaringen op in het échte leven](https://www.ad.nl/binnenland/kinderen-doen-te-weinig-ervaringen-op-in-het-echte-leven~a785823c/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [LIVE WK voetbal | Oranje breekt met geweldige kopbal van Virgil van Dijk de ban tegen Japan](https://www.ad.nl/wk-voetbal/live-wk-voetbal-oranje-breekt-met-geweldige-kopbal-van-virgil-van-dijk-de-ban-tegen-japan~ad173d9e/)
+  > Het Nederlands elftal doet voor de twaalfde keer mee aan het WK voetbal. Vanavond is het dan zover: de eerste wedstrijd van Oranje in de groepsfase....
+- [Flodder-actrice Lettie Oosthoek, bekend als ‘buurvrouw Neuteboom’, op 88-jarige leeftijd overleden](https://www.ad.nl/show/flodder-actrice-lettie-oosthoek-bekend-als-buurvrouw-neuteboom-op-88-jarige-leeftijd-overleden~af7a59ef/)
+  > Actrice Lettie Oosthoek is op 88-jarige leeftijd overleden. Dat bevestigt regisseur Dick Maas aan het ANP. Oosthoek was vooral bekend van haar rol...
+- [Vliegtuig met parachutisten stort neer bij vliegveld in Amerikaanse staat Missouri, twaalf inzittenden overleden](https://www.ad.nl/buitenland/vliegtuig-met-parachutisten-stort-neer-bij-vliegveld-in-amerikaanse-staat-missouri-twaalf-inzittenden-overleden~a9cc8db6/)
+  > Door een vliegtuigongeluk in de Amerikaanse staat Missouri zijn twaalf mensen omgekomen. Volgens de staatspolitie gebeurde het ongeval nabij de...
+- [Formule 1-podcast | ‘Lewis Hamilton brengt Italianen in tweestrijd nu’](https://www.ad.nl/formule-1/formule-1-podcast-lewis-hamilton-brengt-italianen-in-tweestrijd-nu~a222de3b/)
+  > Max Verstappen kon in Barcelona geen rol van betekenis spelen. Ondanks het nieuws van de FIA dat Red Bull de beste motor heeft momenteel. De...
+- [Emotionele Advocaat verklaart tranen bij Curaçao: ‘Het volkslied raakt me, het zal de leeftijd wel zijn’](https://www.ad.nl/wk-voetbal/emotionele-advocaat-verklaart-tranen-bij-curacao-het-volkslied-raakt-me-het-zal-de-leeftijd-wel-zijn~a7e20601/)
+  > Dick Advocaat gaat met zijn spelers praten nu de start van het WK een forse nederlaag heeft opgeleverd voor Curaçao. „Ik wil niet dat ze nu met een...
 
 ### Meest gelezen
 
