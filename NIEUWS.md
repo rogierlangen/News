@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-06-2026 om 22:08*
+*Laatst bijgewerkt: 14-06-2026 om 00:11*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Dramatische dag in Alpen: zeven doden in 24 uur](https://nos.nl/l/2618464)
+  > De afgelopen dag zijn nog eens vier bergsporters overleden in de Alpen. Vrijdag kwamen ook al drie alpinisten om het leven. Daarmee zijn er in 24 uur...
+- [Kritische biografie over 'ijsman' Wim Hof verkozen tot beste journalistieke boek](https://nos.nl/l/2618459)
+  > Robert van de Griend en Anneke Stoffelen van de Volkskrant hebben dit jaar de Brusseprijs voor het beste Nederlandstalige journalistieke boek...
 - [Hongaarse oud-premier Orbán blijft leider van zijn partij Fidesz](https://nos.nl/l/2618446)
   > De voormalige Hongaarse premier Orbán blijft de leider van zijn Fidesz-partij. Ondanks de verpletterende nederlaag bij de parlementsverkiezingen...
 - [VS bereidt zich voor op Oranjelegioen: 'Nederlandse manier is geweldig'](https://nos.nl/l/2618445)
   > 78 Superbowls. Zo zien de lokale autoriteiten de 78 wedstrijden die tijdens het WK voetbal op Amerikaanse bodem worden gespeeld, van de aftrap in Los...
 - [Groot antiracismeprotest met duizenden mensen in Belfast](https://nos.nl/l/2618441)
   > Duizenden mensen hebben in Belfast meegedaan aan een antiracismedemonstratie. De afgelopen dagen was het erg onrustig na een mesaanval in de...
-- [Drinkwater voor de 200.000 mensen in regio Dordrecht toch veilig te gebruiken](https://nos.nl/l/2618439)
-  > Het drinkwater van huishoudens in Dordrecht, Zwijndrecht en Hendrik-Ido-Ambacht is veilig te gebruiken. Dat meldt drinkwaterbedrijf Evides. "Uit...
-- [Hoge functionaris Haïti ontvoerd door gewapende mannen](https://nos.nl/l/2618435)
-  > Gewapende mannen hebben in Haïti een hoge functionaris van het ministerie van Defensie ontvoerd. Het gaat om James Boyard; hij geldt als een van de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Saibari in de basis bij Marokko, Igor Thiago in de spits bij Brazilië](https://www.ad.nl/wk-voetbal/saibari-in-de-basis-bij-marokko-igor-thiago-in-de-spits-bij-brazilie~a11730bd/)
-  > Een wedstrijd om van te smullen op het WK: Brazilië - Marokko. De Brazilianen zijn vijfvoudig wereldkampioen en daarmee recordhouder. Marokko...
-- [Binnen 24 uur zeven doden onder bergbeklimmers in de Alpen, meerdere ongelukken rond de Mont Blanc](https://www.ad.nl/buitenland/binnen-24-uur-zeven-doden-onder-bergbeklimmers-in-de-alpen-meerdere-ongelukken-rond-de-mont-blanc~a7a9a58f/)
-  > In de Alpen in de regio van het massief van de Mont Blanc zijn volgens Italiaanse media binnen 24 uur tijd zeven bergbeklimmers om het leven gekomen.
+- [Brazilië en Marokko beginnen WK met gelijkspel, spits Ismael Saibari maakt fraaie goal](https://www.ad.nl/wk-voetbal/brazilie-en-marokko-beginnen-wk-met-gelijkspel-spits-ismael-saibari-maakt-fraaie-goal~a11730bd/)
+  > Marokko en Brazilië hebben op het WK voetbal met 1-1 gelijkgespeeld. De eerste groepswedstrijd in poule C was in het MetLife Stadium in East...
 - [Cristiano Ronaldo (41) op het strand in Miami, Oranje-internationals vermaken zich in Kansas City](https://www.ad.nl/wk-voetbal/cristiano-ronaldo-41-op-het-strand-in-miami-oranje-internationals-vermaken-zich-in-kansas-city~a060ccd4/)
   > Tijdens het WK 2026 zullen spelers van alle 48 deelnemende landen weer veel leuke foto’s en filmpjes delen op social media. Wij verzamelen hier de...
-- [Politie pakt man (28) met 150 schorpioenen in bagage op luchthaven Kaapstad](https://www.ad.nl/buitenland/politie-pakt-man-28-met-150-schorpioenen-in-bagage-op-luchthaven-kaapstad~ae5468f7/)
-  > Op de luchthaven van Kaapstad heeft de politie een 28-jarige man opgepakt met 150 schorpioenen in zijn bagage. Hij had de levende dieren onder zijn...
-- [Pijnlijke start voor Zwitserland: Qatar pakt diep in blessuretijd allereerste punt ooit op een WK](https://www.ad.nl/wk-voetbal/pijnlijke-start-voor-zwitserland-qatar-pakt-diep-in-blessuretijd-allereerste-punt-ooit-op-een-wk~a6b5818e/)
-  > Zwitserland heeft een valse start gemaakt op het WK. De Zwitsers waren in de San Francisco Bay Area Stadium veel beter dan Qatar, maar verzuimden een...
+- [Spectaculaire knock-out: Mory Kromah plant knie op het hoofd van tegenstander en verdedigt Glory-titel](https://www.ad.nl/vechtsport/spectaculaire-knock-out-mory-kromah-plant-knie-op-het-hoofd-van-tegenstander-en-verdedigt-glory-titel~a999a82a/)
+  > Mory Kromah heeft zijn wereldtitel in het zwaargewicht van Glory met succes verdedigd. En hoe. The Black Ghost - geboren in Amsterdam, opgegroeid in...
+- [Burgemeester doodgeschoten in zuiden van Mexico, gastland van het WK voetbal](https://www.ad.nl/buitenland/burgemeester-doodgeschoten-in-zuiden-van-mexico-gastland-van-het-wk-voetbal~af5da50f/)
+  > Terwijl in het ene deel van het land een vrolijk voetbalfeest aan de gang is, is de realiteit in het zuiden van Mexico een stuk grimmiger. In de...
+- [Binnen 24 uur zeven doden onder bergbeklimmers in de Alpen, meerdere ongelukken rond de Mont Blanc](https://www.ad.nl/buitenland/binnen-24-uur-zeven-doden-onder-bergbeklimmers-in-de-alpen-meerdere-ongelukken-rond-de-mont-blanc~a7a9a58f/)
+  > In de Alpen in de regio van het massief van de Mont Blanc zijn volgens Italiaanse media binnen 24 uur tijd zeven bergbeklimmers om het leven gekomen.
 
 ### Meest gelezen
 
