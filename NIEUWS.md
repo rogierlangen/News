@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-06-2026 om 17:22*
+*Laatst bijgewerkt: 14-06-2026 om 19:41*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Vliegtuig met skydivers neergestort in VS, alle 12 inzittenden omgekomen](https://nos.nl/l/2618587)
+  > In de Amerikaanse staat Missouri is een klein vliegtuig neergestort. Volgens de politie zijn alle twaalf inzittenden van het toestel om het leven...
+- [Duizenden mensen bij stille tocht in Axel voor slachtoffers auto-ongeluk](https://nos.nl/l/2618582)
+  > In Axel in Zeeuws-Vlaanderen hebben duizenden mensen een stille tocht gelopen ter nagedachtenis aan de vier mensen die donderdag omkwamen bij het...
 - [Vierde verdachte opgepakt voor plannen explosie bij synagoge Heemstede](https://nos.nl/l/2618562)
   > De politie heeft een nieuwe verdachte gearresteerd vanwege het voorbereiden van een aanslag op een synagoge in Heemstede, afgelopen maart. De...
 - [Zes doden door botsing van helikopters in Rio de Janeiro](https://nos.nl/l/2618554)
   > In de Braziliaanse stad Rio de Janeiro zijn twee helikopters tegen elkaar gevlogen en neergestort. Op de grond ontstond een grote brand. Volgens de...
 - [Komende week wordt warmer, met piek op vrijdag](https://nos.nl/l/2618549)
   > Stap voor stap wordt het de komende dagen warmer en we belanden in de loop van de week zelfs rond de 30 graden. Dat zal vrijdag zijn. De kans op een...
-- [Zeker drie doden bij botsing ferry en zeilboot in Kroatië](https://nos.nl/l/2618547)
-  > Bij een bootongeval tussen een veerboot en een zeilboot voor de kust van Kroatië zijn zeker drie doden gevallen. De slachtoffers zaten op de...
-- [Verslaafde ouderen mogen blowen en drinken in speciaal Nijmeegs verpleeghuis](https://nos.nl/l/2618537)
-  > Alcohol en drugs verwacht je niet direct in een verpleeghuis voor ouderen, maar bij zorgorganisatie De Waalboog in Nijmegen hebben ze die wel....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Verklappen juichende buren alle doelpunten? Zo voorkom je dat](https://www.ad.nl/wonen/verklappen-juichende-buren-alle-doelpunten-zo-voorkom-je-dat~adcae8ac9/)
-  > Je zit klaar voor de WK-wedstrijd van het Nederlands elftal. Oranje valt aan, de bal gaat richting het doel en ineens hoor je de buren al schreeuwen....
-- [Pijnlijke start op WK voor Curaçao: Duitsland komt na vijf minuten al op voorsprong](https://www.ad.nl/wk-voetbal/pijnlijke-start-op-wk-voor-curacao-duitsland-komt-na-vijf-minuten-al-op-voorsprong~ab747244/)
-  > Curaçao speelt vandaag de eerste wedstrijd ooit op het WK voetbal. De ploeg van bondscoach Dick Advocaat staat direct voor een lastige opgave:...
-- [PRO wijst versnipperd rechts de weg](https://www.ad.nl/commentaar/pro-wijst-versnipperd-rechts-de-weg~a887d6dc/)
-  > Voor het eerst in dertig jaar kent Nederland weer een politieke partij met meer dan 100.000 leden. Geen wonder dat de geboorte van PRO zaterdag...
-- [Trump viert 80ste verjaardag en noemt conditie zelf 'uitstekend', maar dit is wat uit medische test kwam](https://www.ad.nl/buitenland/trump-viert-80ste-verjaardag-en-noemt-conditie-zelf-uitstekend-maar-dit-is-wat-uit-medische-test-kwam~a70e2e1a/)
-  > Hoe gezond Donald Trump? Vandaag, op zijn 80ste verjaardag, scannen we zijn lichamelijke en geestelijke gesteldheid. Volgens de Amerikaanse president...
-- [Geen bevolkingslimiet in Zwitserland: 55 procent stemt tegen plan bij referendum](https://www.ad.nl/buitenland/geen-bevolkingslimiet-in-zwitserland-55-procent-stemt-tegen-plan-bij-referendum~afd2b0d2/)
-  > Er komt geen bevolkingslimiet in Zwitserland. De Zwitserse bevolking heeft een voorstel daartoe verworpen in een referendum. 55 procent stemde tegen...
+- [Van jochie tot president: 80 jaar Trump in opmerkelijke foto’s](https://www.ad.nl/buitenland/van-jochie-tot-president-80-jaar-trump-in-opmerkelijke-fotos~aa75c1d5/)
+  > De Amerikaanse president Donald Trump viert vandaag zijn 80ste verjaardag. Het onhandelbare kind van toen groeide uit tot een succesvolle zakenman en...
+- [Zanger Oliver Tree (32) omgekomen bij botsing tussen helikopters boven Rio de Janeiro](https://www.ad.nl/buitenland/zanger-oliver-tree-32-omgekomen-bij-botsing-tussen-helikopters-boven-rio-de-janeiro~a03d0028/)
+  > Bij een botsing tussen twee helikopters boven de Braziliaanse stad Rio de Janeiro zijn zeker zes mensen om het leven gekomen. Eén van de slachtoffers...
+- [Politie neemt fatbike in beslag die 100 kilometer per uur kan](https://www.ad.nl/binnenland/politie-neemt-fatbike-in-beslag-die-100-kilometer-per-uur-kan~aeef2a29/)
+  > Tijdens een controle door de politie in Boxtel, Vught en Sint-Michielsgestel is zondag een fatbike in beslag genomen. De elektrische fiets kon...
+- [Curaçao mag na historische goal even dromen van stunt tegen Duitsland, maar krijgt pak slaag](https://www.ad.nl/wk-voetbal/curacao-mag-na-historische-goal-even-dromen-van-stunt-tegen-duitsland-maar-krijgt-pak-slaag~ab747244/)
+  > Het debuut van Curaçao op een WK maakte, zoals verwacht, duidelijk hoe groot het verschil is tussen het kleinduimpje en de reuzen van het voetbal....
+- [Kinderen doen te weinig ervaringen op in het échte leven](https://www.ad.nl/binnenland/kinderen-doen-te-weinig-ervaringen-op-in-het-echte-leven~a785823c/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Toegankelijke én betaalbare zorg zijn een delicaat evenwicht](https://fd.nl/opinie/1599880/toegankelijke-en-betaalbare-zorg-zijn-een-delicaat-evenwicht)
+  > Fysiotherapeuten vechten vergoedingen van zorgverzekeraars aan, die zo laag zouden zijn dat hun zorgpraktijken worden uitgehold. De rechter moet nu...
+- [Europa ‘moet wakker worden’ na Amerikaanse ingreep bij AI-modellen Anthropic](https://fd.nl/bedrijfsleven/1599851/europa-moet-wakker-worden-na-amerikaanse-ingreep-bij-ai-modellen-anthropic)
+  > Het AI-bedrijf schakelde Mythos en Fable uit nadat de Amerikaanse overheid het gebruik ervan voor niet-Amerikanen had verboden. Experts vrezen dat...
 - [Israël zet met nieuwe aanvallen vredesonderhandelingen onder druk](https://fd.nl/politiek/1599935/israel-zet-met-nieuwe-aanvallen-vredesonderhandelingen-onder-druk)
-  > Vrede tussen de VS en Iran is onzeker na beschieting van Hezbollah-doelen in Beiroet. Al dagenlang wordt er gepraat over een vredesakkoord.
+  > Het vredesakkoord tussen de VS en Iran is onzeker na de beschietingen van Hezbollah-doelen in Beiroet. Al dagenlang wordt er gepraat over een einde...
 - [‘Durf jij bij hem in de auto?’](https://fd.nl/opinie/1599858/durf-jij-bij-hem-in-de-auto)
   > De ultieme vrijheid vind je niet achter het stuur van een auto, maar achter een boek in de trein.
 - [VK en Japan kondigen partnerschap aan voor defensie en tech](https://fd.nl/politiek/1599933/vk-en-japan-kondigen-partnerschap-aan-op-gebied-van-defensie-en-tech)
   > Premiers Starmer en Takaichi maakten zondag een investeringspakket van £18 mrd bekend in infrastructuur, financiële diensten en windenergie.
-- [Extreemrechtse Futuro Nazionale officieel politieke partij](https://fd.nl/politiek/1599856/extreemrechtse-futuro-nazionale-officieel-politieke-partij)
-  > De beweging is opgericht door de generaal Roberto Vannacci en verwacht veel stemmen bij de Italiaanse parlementsverkiezingen in 2027.
-- [Rotterdam deels zonder stroom door brand in transformatorhuisje](https://fd.nl/samenleving/1599931/deel-rotterdam-zonder-stroom-na-brand)
-  > Na een brand in een elektriciteitsstation viel zondagochtend bij 19.000 Rotterdamse woningen en winkels de stroom uit. Pas tegen het einde van de...
 
 ### Meest gelezen
 
