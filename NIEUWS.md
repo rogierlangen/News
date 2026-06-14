@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-06-2026 om 05:52*
+*Laatst bijgewerkt: 14-06-2026 om 09:41*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Wekdienst 14/6: Eerste WK-wedstrijd van Nederland • Stille tocht in Axel voor slachtoffers verkeersongeluk](https://nos.nl/l/2618487)
-  > Goedemorgen! Nederland speelt vandaag zijn eerste WK-wedstrijd, tegen Japan, en in het Zeeuwse Axel is een stille tocht voor de slachtoffers van het...
-- [Van onze correspondent... Rudy Bouma (VS & Canada)](https://nos.nl/l/2618482)
-  > Van onze Correspondent is een serie van de makers van podcast De Dag. Iedere zondag maken we kennis met een van de correspondenten van de NOS, het...
-- [Tiktokshop komt naar Nederland, 'een giftige cocktail voor impulsaankopen'](https://nos.nl/l/2618477)
-  > Al scrollende door je feed kom je op de sociale media app Tiktok een hele rits aan filmpjes tegen. De ene na de andere nieuwe ketting, armband of...
-- [Veerboot met tientallen mensen aan boord urenlang stuurloos op Noordzee](https://nos.nl/l/2618472)
-  > Op de Noordzee bij Duitsland is gisteren een veerboot in de problemen geraakt. Het schip was onderweg van de havenplaats Büsum naar het eiland...
-- [Veel rook bij brand Scheveningen, meerdere woningen ontruimd](https://nos.nl/l/2618469)
-  > In Scheveningen hebben vannacht meerdere mensen hun huis moeten verlaten vanwege een grote brand in een visrokerij. Bij de brand kwam veel rook...
+- [Explosie bij huis in Breda, twee dagen geleden al bij de buren](https://nos.nl/l/2618511)
+  > Bij een woning in Breda heeft vanmorgen een explosie plaatsgevonden. Daardoor ontstond brand in de voortuin en raakte een deel van het huis...
+- [Staken en polderen tegelijk: hoe verder bezuinigen op de sociale zekerheid?](https://nos.nl/l/2618510)
+  > Een besparing op de lange termijn van 6,5 miljard euro, dat wil het kabinet-Jetten voor elkaar krijgen door te bezuinigen op de sociale zekerheid. De...
+- [VK onderschept Russische tanker in zes uur durende operatie in Kanaal](https://nos.nl/l/2618505)
+  > De Britse krijgsmacht heeft een olietanker van de Russische schaduwvloot onderschept die het Kanaal wilde doorvaren. Dat meldt de Britse premier...
+- [Celstraffen tot tien jaar voor mishandeling en gijzeling in badkuip](https://nos.nl/l/2618501)
+  > Een rechtbank in Hamburg heeft afgelopen week celstraffen tot tien jaar opgelegd voor de gijzeling en mishandeling van een Nederlandse man. Die werd...
+- [Man met 150 schorpioenen opgepakt op vliegveld van Kaapstad](https://nos.nl/l/2618500)
+  > Een man is op een vliegveld in Zuid-Afrika opgepakt met 150 schorpioenen. De giftige dieren zaten verstopt onder zijn kleding en in zijn koffers,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Oranje trapt wereldkampioenschap af tegen Japan, dit is de vermoedelijke opstelling](https://www.ad.nl/wk-voetbal/oranje-trapt-wereldkampioenschap-af-tegen-japan-dit-is-de-vermoedelijke-opstelling~ad173d9e/)
-  > Het Nederlands elftal doet voor de twaalfde keer mee aan het WK voetbal. Vanavond is het dan zover: de eerste wedstrijd van Oranje in de groepsfase....
-- [Dreun voor Turkije: Australië slaat opnieuw verrassend toe en is op weg naar zege](https://www.ad.nl/wk-voetbal/dreun-voor-turkije-australie-slaat-opnieuw-verrassend-toe-en-is-op-weg-naar-zege~ac4f2b0f/)
-  > Turkije speelt in de eerste groepswedstrijd op het WK tegen Australië. De in Nederland geboren Turken Orkun Kökçü en Ferdi Kadioglu en...
-- [Toos lag 102 keer op de operatietafel, artsen noemen haar ‘een wonder’: ‘Er is altijd wel iets om van te genieten’](https://www.ad.nl/binnenland/toos-lag-102-keer-op-de-operatietafel-artsen-noemen-haar-een-wonder-er-is-altijd-wel-iets-om-van-te-genieten~aeaf07e7/)
-  > Haar dochter nam al drie keer afscheid van haar, maar ze is er nog: Toos van der Heiden (76) overleefde 102 operaties. Artsen noemen de Vlaardingse...
-- [Duitse media genieten van ‘spectaculaire goal’ Bayern-target Ismael Saibari: ‘Dit zal hem niet goedkoper maken’](https://www.ad.nl/wk-voetbal/duitse-media-genieten-van-spectaculaire-goal-bayern-target-ismael-saibari-dit-zal-hem-niet-goedkoper-maken~a6ab08f1/)
-  > Ismael Saibari heeft zichzelf nog wat extra op de kaart gezet. Met zijn heerlijke treffer namens Marokko tegen Brazilië (1-1) bewees de PSV’er waarom...
-- [Rijk geworden in functie: zo harkt president Trump miljarden dollars binnen voor zichzelf](https://www.ad.nl/buitenland/rijk-geworden-in-functie-zo-harkt-president-trump-miljarden-dollars-binnen-voor-zichzelf~ab367bc5/)
-  > Donald Trump wordt zondag 80 jaar. Dat betekent feest en cadeautjes. Maar wat geef je een president die alles al heeft? Sterker: er was nog nooit een...
+- [Column Sjoerd Mossou | Snel terug naar mijn vader, de grote vriendelijke reus](https://www.ad.nl/wk-voetbal/column-sjoerd-mossou-snel-terug-naar-mijn-vader-de-grote-vriendelijke-reus~a2d4afb8/)
+  > Sjoerd Mossou schrijft voorlopig voor het laatst een WK-column vanuit de Verenigde Staten. „De weinige tijd die we samen nog hebben, is oneindig veel...
+- [Sven, Marja en Piet wonen hier met hun verslaving: ‘Mensen lopen buiten met een boog om ons heen’](https://www.ad.nl/binnenland/sven-marja-en-piet-wonen-hier-met-hun-verslaving-mensen-lopen-buiten-met-een-boog-om-ons-heen~a05431dd/)
+  > Loop jij met een boog om drugsverslaafden heen? Geef je je lege blikje liever niet aan een verward persoon op straat? Bewoners bij het Leger des...
+- [LIVE WK voetbal | Warme omhelzing tussen Braziliaanse iconen, Portugal eert Diogo Jota met speciale polsbandjes](https://www.ad.nl/wk-voetbal/live-wk-voetbal-warme-omhelzing-tussen-braziliaanse-iconen-portugal-eert-diogo-jota-met-speciale-polsbandjes~a2d5cab9/)
+  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is begonnen. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
+- [Topscorers WK voetbal 2026 | Amerikaan bovenaan topscorersranglijst: alle statistieken over het WK](https://www.ad.nl/wk-voetbal/topscorers-wk-voetbal-2026-amerikaan-bovenaan-topscorersranglijst-alle-statistieken-over-het-wk~ad0e6ff9/)
+  > Het WK voetbal is begonnen. Wie wordt de topscorer, welke speler geeft de meeste assists en welke keepers blinken uit? Bekijk hieronder alle...
+- [Zo laat begint Max Verstappen vandaag aan de race en dit is de startopstelling](https://www.ad.nl/formule-1/zo-laat-begint-max-verstappen-vandaag-aan-de-race-en-dit-is-de-startopstelling~a04674a4/)
+  > Het zit Max Verstappen nog niet mee dit Formule 1-seizoen. Bij de Grand Prix van Monaco ging het zondag al mis bij de start en noteerde hij zijn...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Bestuurders Tata Steel krijgen toch extraatje voor inspanningen in moeilijke tijden](https://fd.nl/bedrijfsleven/1599783/bestuurders-tata-steel-krijgen-toch-extraatje-voor-inspanningen-in-moeilijke-tijden)
+  > De raad van commissarissen spreekt van ‘verhoogde onzekerheid’ voor de staalproducent uit IJmuiden. Financieel bestuurder Hans Turkesteen incasseerde...
+- [Eigenaar snelgroeiend Robin Radar onderzoekt gedeeltelijke verkoop](https://fd.nl/bedrijfsleven/1599437/eigenaar-snelgroeiend-robin-radar-zoekt-nieuwe-aandeelhouders)
+  > De Amsterdamse private-equityfirma Parcom kijkt naar nieuwe aandeelhouders voor het defensiebedrijf dat radarsystemen maakt voor het detecteren van...
+- [Ceo DHL: ‘Nederlands stroomnet is een puinhoop’](https://fd.nl/bedrijfsleven/1599808/ceo-dhl-nederlands-stroomnet-is-een-puinhoop)
+  > Met een vloot van honderden vliegtuigen en nog meer vrachtwagens, voelt Tobias Meyer, ceo van DHL Group, als een van de eersten dat de handel...
+- [KPMG handelt klokkenluidersmelding niet goed af, met verstrekkende gevolgen](https://fd.nl/opinie/1599157/kpmg-handelt-melding-klokkenluider-niet-goed-af)
+  > Een afgetreden ceo, een hoorzitting en weglopende klanten. Misstanden bij KPMG Australië tonen wat er gebeurt wanneer integriteitskwesties het...
 - [Metalheads in the corner office](https://fd.nl/bedrijfsleven/1599307/metalheads-in-the-corner-office)
   > Bij de Metal Business Club wordt serieus genetwerkt. Maar op de zeventiende verdieping van de glazen kantoortoren zijn gitaarrifs ook heel belangrijk.
-- [Luisterverhaal: Gaza steeds verder fijngeknepen: ‘Ik kon mijn huis zien, maar kon er niet meer komen’](https://fd.nl/samenleving/1599811/luisterverhaal-gaza-steeds-verder-fijngeknepen-ik-kon-mijn-huis-zien-maar-kon-er-niet-meer-komen)
-  > Deze week hoor je hoe in Gaza het geweld maar blijft duren.
-- [GroenLinks en PvdA gaan officieel samen verder als Pro Nederland, dat zich verzet tegen kabinetsplannen](https://fd.nl/politiek/1599854/groenlinks-en-pvda-gaan-officieel-samen-verder-als-pro-nederland-dat-zich-verzet-tegen-kabinetsplannen)
-  > 96% van de GroenLinksers stemden voor de fusie, en 97% van de PvdA’ers.
-- [VVD-leider Yesilgöz tegen links: de belastingen zijn al hoog](https://fd.nl/politiek/1599925/vvd-leider-yesilgoz-tegen-links-de-belastingen-zijn-al-hoog)
-  > Het kabinet zoekt naar steun voor de begroting, bijvoorbeeld bij Pro. VVD-leider Yesilgöz zag op het VVD-partijcongres weinig in de linkse wens om...
-- [Grootste beursgang ooit verliep ‘volgens het boekje’, SpaceX moet nu hoge waardering gaan bewijzen](https://fd.nl/financiele-markten/1599923/grootste-beursgang-ooit-verliep-volgens-het-boekje-spacex-moet-nu-hoge-waardering-gaan-bewijzen)
-  > De handel in het aandeel verliep ordelijk. Banken en brokers moesten in de eerste uren miljoenen orders verwerken. Uniek was dat Nederlandse...
 
 ### Meest gelezen
 
