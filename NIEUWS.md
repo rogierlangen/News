@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-06-2026 om 23:11*
+*Laatst bijgewerkt: 15-06-2026 om 04:52*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [VS en Iran bevestigen akkoord over einde oorlog, ook in Libanon](https://nos.nl/l/2618619)
-  > De Verenigde Staten en Iran leggen met onmiddellijke ingang de wapens neer. Dat meldt premier Sharif van Pakistan, dat bemiddelde bij de...
+- [Wekdienst 15/6: Uitspraak Noorse Marius Høiby • België speelt op het WK](https://nos.nl/l/2618645)
+  > Goedemorgen! Vandaag is de uitspraak in de zaak tegen de Noorse Marius Høiby, de zoon van de Noorse kroonprinses Mette-Marit, en op het WK voetbal...
+- [Taty Almeida (95) overleden, gezicht van Argentijnse actiegroep Dwaze Moeders](https://nos.nl/l/2618640)
+  > Taty Almeida is overleden, een van de gezichten van de Dwaze Moeders uit Argentinië. Die actiegroep vroeg jarenlang aandacht voor hun kinderen die...
+- [Werelderfgoed-klooster in Kyiv in brand na Russische luchtaanvallen](https://nos.nl/l/2618634)
+  > In het historische kloostercomplex van Kyiv woedt een grote brand na grootschalige Russische luchtaanvallen op de Oekraïense hoofdstad. Op sociale...
+- [VS en Iran bevestigen eerste afspraken over einde oorlog, ook in Libanon](https://nos.nl/l/2618619)
+  > De Verenigde Staten en Iran hebben afspraken gemaakt over een einde aan de onderlinge oorlog en de opening van de Straat van Hormuz. Dat meldt...
 - [VN-kantoor aangevallen bij anti-G7-protest in Genève](https://nos.nl/l/2618597)
   > Protesten in Genève tegen een G7-top zijn uitgelopen op ongeregeldheden. Aan de demonstratiemars deden ongeveer zestig organisaties mee. De groep was...
-- [Vliegtuig met skydivers neergestort in VS, alle 12 inzittenden omgekomen](https://nos.nl/l/2618587)
-  > In de Amerikaanse staat Missouri is een klein vliegtuig neergestort. Volgens de politie zijn alle twaalf inzittenden van het toestel om het leven...
-- [Duizenden mensen bij stille tocht in Axel voor slachtoffers auto-ongeluk](https://nos.nl/l/2618582)
-  > In Axel in Zeeuws-Vlaanderen hebben duizenden mensen een stille tocht gelopen ter nagedachtenis aan de vier mensen die donderdag omkwamen bij het...
-- [Vierde verdachte opgepakt voor plannen explosie bij synagoge Heemstede](https://nos.nl/l/2618562)
-  > De politie heeft een nieuwe verdachte gearresteerd vanwege het voorbereiden van een aanslag op een synagoge in Heemstede, afgelopen maart. De...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Summerville rende na doelpunt dolgelukkig naar staflid toe: ‘Ik had het hem beloofd’](https://www.ad.nl/wk-voetbal/summerville-rende-na-doelpunt-dolgelukkig-naar-staflid-toe-ik-had-het-hem-beloofd~aa6cc772/)
-  > Crysencio Summerville trok een sprint naar de bank zijn doelpunt tegen Japan voor een specifiek staflid. De aanvaller maakte twee weken geleden zijn...
-- [Virgil van Dijk en Ronald Koeman leggen vinger op zere plek: ‘Dat moeten we onszelf kwalijk nemen’](https://www.ad.nl/wk-voetbal/virgil-van-dijk-en-ronald-koeman-leggen-vinger-op-zere-plek-dat-moeten-we-onszelf-kwalijk-nemen~a895ccd6/)
-  > Virgil van Dijk en Ronald Koeman waren na afloop van het gelijkspel van Oranje in de groepswedstrijd tegen Japan (2-2) kritisch op de manier waarop...
-- [Stand groepsfase WK 2026 | Nederland nog ver weg van volgende ronde na puntje tegen Japan, bekijk hier alle poules](https://www.ad.nl/wk-voetbal/stand-groepsfase-wk-2026-nederland-nog-ver-weg-van-volgende-ronde-na-puntje-tegen-japan-bekijk-hier-alle-poules~a89ff417/)
-  > Liefst 48 landen doen mee aan het WK voetbal in de Verenigde Staten, Canada en Mexico. Dat is een record en zorgt ervoor dat er maar liefst twaalf...
-- [Oranje laat zege glippen in openingsduel: Japan slaat na prachtgoal Summerville toe in slotfase](https://www.ad.nl/wk-voetbal/oranje-laat-zege-glippen-in-openingsduel-japan-slaat-na-prachtgoal-summerville-toe-in-slotfase~ad173d9e/)
-  > Crysencio Summerville leek Oranje een gouden start op het WK te bezorgen. De aanvaller van West Ham United schoot Oranje in Dallas naar 2-1 in de...
-- [Van ‘lastige jongen’ op Varkenoord naar eerste goal voor Oranje: de bijzondere route van Crysencio Summerville](https://www.ad.nl/voetbal/van-lastige-jongen-op-varkenoord-naar-eerste-goal-voor-oranje-de-bijzondere-route-van-crysencio-summerville~a94b056d/)
-  > Hij maakte pas zijn debuut voor Oranje in aanloop naar het WK, maar toch is Crysencio Summerville (24) nu al goud waard. Wie is het voormalig...
+- [Voetbalpodcast | ‘Koeman wisselde Oranje uit de wedstrijd, maar welke opties zijn er eigenlijk?’](https://www.ad.nl/voetbal/voetbalpodcast-koeman-wisselde-oranje-uit-de-wedstrijd-maar-welke-opties-zijn-er-eigenlijk~a42af5cd9/)
+  > Het Nederlands elftal is het WK voetbal in Amerika gestart met 2-2 gelijkspel tegen Japan. De zege werd in de slotfase uit handen gegeven, nadat...
+- [Toch fris en energiek na een korte nacht slapen: slaapexpert geeft tips](https://www.ad.nl/gezond/toch-fris-en-energiek-na-een-korte-nacht-slapen-slaapexpert-geeft-tips~ab925a22/)
+  > Ben je gisteren langer opgebleven om de eerste WK-wedstrijd van het Nederlands elftal te zien? En vraag je je nu af hoe je je werkdag door gaat komen...
+- [Oranje blikt terug, Japanse fans ruimen op en vlucht Uruguay uren vertraagd: dit gebeurde op het WK terwijl jij sliep](https://www.ad.nl/wk-voetbal/oranje-blikt-terug-japanse-fans-ruimen-op-en-vlucht-uruguay-uren-vertraagd-dit-gebeurde-op-het-wk-terwijl-jij-sliep~a0f186fd/)
+  > De late opblijvers in Nederland gingen naar bed met een 2-2 gelijkspel van Oranje tegen Japan. Daarna was het ook allesbehalve rustig op het WK...
+- [Politie gebruikt opmerkelijke truc bij inval: ‘WK-mascottes’ kloppen aan bij nietsvermoedende verdachte](https://www.ad.nl/buitenland/politie-gebruikt-opmerkelijke-truc-bij-inval-wk-mascottes-kloppen-aan-bij-nietsvermoedende-verdachte~ab5e02a5/)
+  > De politie in Peru heeft een wel heel bijzondere manier gevonden om een vermeende drugsdealer in de kraag te vatten. Twee agenten trokken een...
+- [Oranje is gewaarschuwd: Zweden grijpt koppositie na klinkende zege op Tunesië](https://www.ad.nl/wk-voetbal/oranje-is-gewaarschuwd-zweden-grijpt-koppositie-na-klinkende-zege-op-tunesie~a60c33b7/)
+  > Zweden heeft de koppositie in de poule van Oranje gegrepen. De ploeg van bondscoach Graham Potter boekte een simpele overwinning op Tunesië: 5-1. Bij...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Trump en Iran kondigen deal aan: Straat van Hormuz open en staakt-het-vuren verlengd](https://fd.nl/politiek/1599963/trump-en-iran-kondigen-deal-aan-straat-van-hormuz-open-en-staakt-het-vuren-verlengd)
+- [Nu wisselen van werkgever kan je geld kosten](https://fd.nl/samenleving/1599886/nu-wisselen-van-werkgever-kan-je-geld-kosten)
+  > Altijd leuk, een nieuwe baan, maar het is wel oppassen dat je geen compensatie misloopt bij de overgang naar de nieuwe pensioenregeling.
+- [Zo verliep de historische beursgang van Elon Musks SpaceX](https://fd.nl/economie/1599922/zo-verliep-de-historische-beursgang-van-elon-musks-spacex)
+  > Vandaag in Dagkoers: een terugblik op de beursgang van Elon Musks SpaceX, commissarissen willen jaarlijkse bonussen voor de top bijsturen en...
+- [Commissarissen willen aandeel­houders omzeilen bij bonus voor de top](https://fd.nl/bedrijfsleven/1599368/commissarissen-willen-aandeelhouders-omzeilen-bij-bonus-voor-de-top)
+  > Toezichthouders kiezen elk jaar op welke prestatie-indicatoren zij zich richten en welk gewicht ze daaraan geven. Volgens beleggersclub VEB mag dit...
+- [Trump en Iran kondigen deal aan: Straat van Hormuz open en staakt-het-vuren verlengd](https://fd.nl/politiek/1599869/trump-en-iran-kondigen-deal-aan-straat-van-hormuz-open-en-staakt-het-vuren-verlengd)
   > Het akkoord wordt aanstaande vrijdag officieel ondertekend. Trump, de Pakistaanse premier Sharif en de Iraanse onderminister van buitenlandse zaken...
 - [Je baby als verdienmodel](https://fd.nl/opinie/1599876/je-baby-als-verdienmodel)
   > Sommige Amerikaanse gezinsinfluencers verdienen wel $150.000 voor één socialemediapost. Kinderen zijn daarbij uiterst lucratief: er is weinig dat...
-- [Duitse robots](https://fd.nl/opinie/1599857/duitse-robots)
-  > Robotfabrikant Kuka kwam tien jaar geleden in Chinese handen. Berlijn sloeg alarm in Brussel, maar met het bedrijf gaat het nog altijd prima,...
-- [Personalia maandag 15 juni 2026](https://fd.nl/bedrijfsleven/1599932/personalia-maandag-15-juni-2026)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Toegankelijke én betaalbare zorg zijn een delicaat evenwicht](https://fd.nl/opinie/1599880/toegankelijke-en-betaalbare-zorg-zijn-een-delicaat-evenwicht)
-  > Fysiotherapeuten vechten vergoedingen van zorgverzekeraars aan, die zo laag zouden zijn dat hun zorgpraktijken worden uitgehold. De rechter moet nu...
 
 ### Meest gelezen
 
