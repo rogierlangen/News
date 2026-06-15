@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-06-2026 om 10:56*
+*Laatst bijgewerkt: 15-06-2026 om 16:20*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Ook Britten gaan sociale media verbieden voor kinderen onder 16 jaar](https://nos.nl/l/2618688)
-  > In navolging van andere landen gaat ook het Verenigd Koninkrijk sociale media voor kinderen onder de 16 jaar verbieden, heeft premier Starmer...
-- [Europa spreekt schande van Russische aanval op historisch klooster in Kyiv](https://nos.nl/l/2618687)
-  > Meerdere Europese leiders hebben hun afschuw uitgesproken over de Russische aanval van vannacht op het historische kloostercomplex Petsjersk Lavra in...
-- [Tweede Kamer wil 'passend gebaar' voor erkenning leed Molukkers](https://nos.nl/l/2618686)
-  > De Tweede Kamer wil dat er onafhankelijk onderzoek wordt gedaan naar de behandeling van Molukkers in Nederland. Dat onderzoek moet leiden tot...
-- [Afspraken tussen de VS en Iran zijn vooral het begin van nieuwe gesprekken](https://nos.nl/l/2618684)
-  > Wereldwijd wordt voorzichtig positief gereageerd op het bericht dat Iran en de Verenigde Staten het eens zijn geworden over afspraken die moeten...
-- [Projectontwikkelaar moet tonnen betalen aan bewoners om jarenlange lekkage](https://nos.nl/l/2618681)
-  > Vastgoedontwikkelaar Amvest moet een boete van ruim 400.000 euro betalen aan de eigenaren van een Amsterdams appartement vanwege een hardnekkige...
+- [Uitgeweken Iraanse nationale voetbalploeg in Mexico met open armen ontvangen](https://nos.nl/l/2618726)
+  > Er staan meer politiemensen dan voetbalfans voor het Marriott Hotel in Tijuana. Normaal gesproken een plek waar zakenmensen verblijven, nu volledig...
+- [Vergunning marathon Sneek ingetrokken vanwege EHBO-plan van nephulpverlener](https://nos.nl/l/2618722)
+  > De gemeente Súdwest-Fryslân heeft de vergunning voor de marathon van Sneek van komend weekend ingetrokken. Het EHBO-plan blijkt opgesteld door een...
+- [Brits hof: regering mocht actiegroep Palestine Action verbieden](https://nos.nl/l/2618719)
+  > De Britse regering mocht de pro-Palestijnse actiegroep Palestine Action verbieden door het te bestempelen als terroristische organisatie, zo heeft...
+- [Pleegvaders krijgen celstraf voor ontucht met kinderen en hond](https://nos.nl/l/2618712)
+  > Twee mannen uit Den Bosch zijn veroordeeld tot celstraffen voor het seksueel misbruiken van hun pleegzoons en hun hond. Daarnaast moeten ze nog een...
+- [Rijswijker (58) krijgt 30 jaar cel voor moord op buurvrouw](https://nos.nl/l/2618708)
+  > De rechtbank heeft een 58-jarige man veroordeeld tot 30 jaar cel voor de moord op zijn onderbuurvrouw in Rijswijk. Het 38-jarige slachtoffer werd in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Spanje weer topfavoriet op het WK: hoe La Roja met dertig duels zonder nederlaag naar de titel jaagt](https://www.ad.nl/wk-voetbal/spanje-weer-topfavoriet-op-het-wk-hoe-la-roja-met-dertig-duels-zonder-nederlaag-naar-de-titel-jaagt~a8b43cb8/)
-  > Nooit wilde Spanje zichzelf als dé favoriet voor een titel zien, maar in de Verenigde Staten ontvlucht La Roja die rol niet. Het is een erkenning die...
-- [Kijk mee met verhoor ic-arts Gommers bij coronacommissie: ‘Heb gezegd dat Rutte daar niet over ging’](https://www.ad.nl/politiek/kijk-mee-met-verhoor-ic-arts-gommers-bij-coronacommissie-heb-gezegd-dat-rutte-daar-niet-over-ging~adf17765/)
-  > De coronaverhoren staan deze week in het teken van de zorg. Maandag verschijnt eerst Diederik Gommers bij de enquêtecommissie. Gommers was voorzitter...
-- [Drukte op NS-website bij start verkoop voordelig zomerabonnement: ‘Beschikbaar tot potje geld op is’](https://www.ad.nl/binnenland/drukte-op-ns-website-bij-start-verkoop-voordelig-zomerabonnement-beschikbaar-tot-potje-geld-op-is~ace1b4e5/)
-  > Het is maandag druk op de website van de NS, nadat de verkoop van het voordelige zomerabonnement is gestart. Voor 49 euro per maand kunnen reizigers...
-- [Derdeklasser stunt en maakt komst van oud-prof Rick Karsdorp (31) wereldkundig](https://www.ad.nl/krimpenerwaard/derdeklasser-stunt-en-maakt-komst-van-oud-prof-rick-karsdorp-31-wereldkundig~a047e939/)
-  > Na een bewuste stap terug uit het profvoetbal vindt Rick Karsdorp de rust terug in Schoonhoven. Waar hij schitterde op het allerhoogste niveau, kiest...
-- [Russen vuurden zeker 70 raketten en 611 drones af: ‘Totaal ongeoorloofd’](https://www.ad.nl/buitenland/russen-vuurden-zeker-70-raketten-en-611-drones-af-totaal-ongeoorloofd~adfb97be/)
-  > Volgens de Oekraïense luchtmacht heeft Rusland vannacht met 70 raketten en 611 drones aangevallen. 582 drones konden uitgeschakeld worden. President...
+- [Bonnie Tyler (75) ontwaakt uit coma: ‘Maar nog steeds ernstig ziek’](https://www.ad.nl/show/bonnie-tyler-75-ontwaakt-uit-coma-maar-nog-steeds-ernstig-ziek~a052ef51/)
+  > Bonnie Tyler is na een wekenlang ziektebed ontwaakt uit haar coma. Het management van de 75-jarige zangeres laat aan de Duitse krant Bild weten dat...
+- [Zaak van doodgereden Tamar (14) weer op scherp: ‘Verdachte mocht niet eens in Nederland zijn’](https://www.ad.nl/binnenland/zaak-van-doodgereden-tamar-14-weer-op-scherp-verdachte-mocht-niet-eens-in-nederland-zijn~ab349833/)
+  > Zes jaar na het nog altijd mysterieuze drama staat de man die Tamar uit Marken vermoedelijk doodreed eind deze maand voor de rechter. Een zaak die...
+- [Kaapverdië houdt topfavoriet Spanje in bedwang in rustige openingsfase](https://www.ad.nl/wk-voetbal/kaapverdie-houdt-topfavoriet-spanje-in-bedwang-in-rustige-openingsfase~a56faf38/)
+  > Ook voor Spanje gaat het WK vandaag van start. De Europees kampioen heeft op papier een makkelijke start, tegen WK-debutant Kaapverdië met vier...
+- [Mishandelmoeder uit Stadskanaal heeft niks meer over haar kind te zeggen: rechter beëindigt gezag](https://www.ad.nl/binnenland/mishandelmoeder-uit-stadskanaal-heeft-niks-meer-over-haar-kind-te-zeggen-rechter-beeindigt-gezag~afbbdc94/)
+  > De moeder van het meisje dat gruwelijk werd mishandeld in Stadskanaal heeft niks meer over haar kind te zeggen. Haar ouderlijk gezag is door de...
+- [Iran en Verenigde Staten hebben akkoord getekend](https://www.ad.nl/buitenland/iran-en-verenigde-staten-hebben-akkoord-getekend~ac528ac3/)
+  > Iran en de Verenigde Staten hebben een akkoord getekend. Dat meldt een Amerikaanse functionaris aan persbureau Reuters. Volg alle ontwikkelingen in...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [De eiwittransitie vervangt geen vee, maar levert wel degelijk waarde](https://fd.nl/opinie/1599182/de-eiwittransitie-vervangt-geen-vee-maar-levert-wel-degelijk-waarde)
-  > Het wordt eens tijd om te erkennen dat de eiwitrevolutie de aarde niet gaat redden, maar wel een nuttige nichesector blijkt.
-- [Olieprijs daalt na akkoord tussen Iran en Verenigde Staten](https://fd.nl/financiele-markten/1599979/olieprijs-daalt-na-akkoord-tussen-iran-en-verenigde-staten)
-  > Alom is het akkoord positief onthaald, al is het enthousiasme niet enorm. ‘De oliestroom zal niet vanaf dag één vrij zijn.’
-- [Opluchting en scepsis in de EU na deal tussen VS en Iran](https://fd.nl/politiek/1599972/opluchting-en-scepsis-in-de-eu-na-deal-tussen-vs-en-iran)
-  > De Europese ministers van buitenlandse zaken wachten op meer details van het akkoord. Ze wijzen er in elk geval op dat de aanleiding van de oorlog,...
-- [Rentebesluit biedt Warsh eerste kans om bakens te verzetten bij de Fed](https://fd.nl/financiele-markten/1599889/rentebesluit-biedt-warsh-eerste-kans-om-bakens-te-verzetten-bij-de-fed)
-  > De rente blijft woensdag ongewijzigd in de VS, zo is de verwachting. Interessanter is de vraag of Kevin Warsh, de nieuwe Fed-voorzitter, zijn eerste...
-- [Jetten voor en na de verkiezingen](https://fd.nl/samenleving/1599970/jetten-voor-en-na-de-verkiezingen)
-  > Frida Boeke zag met eigen ogen de verandering van Rob Jetten de lijsttrekker in Rob Jetten de premier. En hoe Palestina van de top van zijn agenda...
+- [Indiase milieu-instantie dreigt productie in fabriek Tata stil te leggen](https://fd.nl/bedrijfsleven/1600094/indiase-milieu-instantie-dreigt-productie-in-fabriek-tata-stil-te-leggen)
+  > Autoriteiten in de deelstaat Tamil Nadu hebben de controles rond de fabriek opgevoerd na klachten over vies en stinkend afvalwater.
+- [‘Raamakkoord van VS en Iran is broos en kwetsbaar’](https://fd.nl/politiek/1600090/raamakkoord-van-vs-en-iran-is-broos-en-kwetsbaar)
+  > Nederlandse experts vrezen ondermijning van de overeenkomst door hardliners, onder wie Benjamin Netanyahu.
+- [Addleshaw Goddard fuseert met Amsterdams advocatenkantoor Florent](https://fd.nl/financiele-markten/1599989/addleshaw-goddard-fuseert-met-amsterdams-adocatenkantoor-florent)
+  > Addleshaw Goddard is een internationaal advocatenkantoor met ruim 1800 advocaten, verspreid over 21 kantoren in Europa, het Midden-Oosten en Azië.
+- [Dassault-ceo Éric Trappier: loyaal aan zijn bedrijf én aan Frankrijk](https://fd.nl/bedrijfsleven/1599873/dassault-ceo-eric-trappier-loyaal-aan-zijn-bedrijf-en-aan-frankrijk)
+  > De onderminister van defensie wordt hij ook wel genoemd, de topman van het Franse defensiebedrijf Dassault.  Een gezamenlijk Europees project voor...
+- [Schuldenlast Hennie van der Most opgelopen tot €50 mln](https://fd.nl/bedrijfsleven/1599988/schuldenlast-hennie-van-der-most-opgelopen-tot-50-mln)
+  > Van der Most probeerde al jaren een oude Rotterdamse vuilverbrander om te bouwen tot pretpark, maar werd in mei failliet verklaard.
 
 ### Meest gelezen
 
