@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-06-2026 om 23:04*
+*Laatst bijgewerkt: 16-06-2026 om 04:49*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Hongaars parlement stemt in met maximale ambtstermijn premier](https://nos.nl/l/2618768)
-  > Het parlement van Hongarije heeft voor een grondwetswijziging gestemd die ervoor zorgt dat de premier een maximale ambtstermijn van acht jaar heeft.
-...
-- [Dissidente Russische performancekunstenaar doodgeschoten in Polen](https://nos.nl/l/2618764)
-  > Poolse media melden dat de Poetin-kritische Russische performancekunstenaar Semjon Skrepetski vanochtend is doodgeschoten in de stad Biala Podlaska....
-- [Democratische gouverneur Californië: Trump gaf Justitie opdracht mij te onderzoeken](https://nos.nl/l/2618755)
-  > De Democratische gouverneur van Californië, Gavin Newsom, zegt dat het Amerikaanse ministerie van Justitie een onderzoek naar hem is gestart. Volgens...
-- [Oekraïense vlag gehesen op tweede Nederlandse mijnenjager: 'Bedankt'](https://nos.nl/l/2618752)
-  > De Oekraïense marine heeft een tweede schip van Nederlandse makelij gekregen om Russische zeemijnen mee te ruimen. Het marineschip Zr.Ms. Makkum,...
-- [Trump over akkoord met Iran: 'Kan wereld veel succes brengen'](https://nos.nl/l/2618750)
-  > De Amerikaanse president Trump heeft de overeenkomst met Iran bevestigd bij aankomst voor de G7-top in Frankrijk. Details worden waarschijnlijk...
+- [Wekdienst 16/6: Tweede dag van G7-top • Frankrijk speelt eerste WK-pot tegen Senegal](https://nos.nl/l/2618787)
+  > Goedemorgen! Het is de tweede dag van de G7-top in Frankrijk en de Oekraïense president Zelensky is te gast. In Luxemburg wordt gediscussieerd over...
+- [Rode Kruis slaat alarm over dreigende voedsel- en watertekorten door El Niño](https://nos.nl/l/2618786)
+  > Het Rode Kruis slaat alarm over de wereldwijde gevolgen die El Niño kan hebben, eind dit jaar en in 2027. De hulporganisatie vreest dat het...
+- [Nederlandse motorrijder omgekomen bij ongeval op Belgisch circuit](https://nos.nl/l/2618784)
+  > Op het circuit van Zolder in België is een 53-jarige Nederlandse motorrijder omgekomen. De man kwam zwaar ten val op het circuit. Dat melden...
+- [Peuter zwaargewond na val uit raam in Rotterdam](https://nos.nl/l/2618778)
+  > Een jongetje van twee jaar oud is maandagavond zwaargewond geraakt bij een val uit het raam op de tweede verdieping van een woning in Rotterdam. Hoe...
+- [Acht doden bij crash B-52-bommenwerper in Californië](https://nos.nl/l/2618776)
+  > Bij een crash met een B-52-bommenwerper in Californië zijn alle acht bemanningsleden omgekomen, meldt de Amerikaanse luchtmacht. Het toestel...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Vance: Vredesakkoord is vrij algemeen document van anderhalve bladzijde](https://www.ad.nl/buitenland/vance-vredesakkoord-is-vrij-algemeen-document-van-anderhalve-bladzijde~ac528ac3/)
-  > Iran en de Verenigde Staten hebben elektronisch een akkoord getekend. Wat er precies in staat is nog onbekend, maar volgens de Amerikaanse...
-- [Saoedi-Arabië op voorsprong tegen Uruguay, onweer op komst in Miami](https://www.ad.nl/wk-voetbal/saoedi-arabie-op-voorsprong-tegen-uruguay-onweer-op-komst-in-miami~a7deca95/)
-  > Uruguay en Saoedi-Arabië zijn ook begonnen aan het WK. Volg hier ons liveblog van het duel in het Hard Rock Stadium in Miami.
-- [Amerikaanse bommenwerper neergestort in woestijn Californië](https://www.ad.nl/buitenland/amerikaanse-bommenwerper-neergestort-in-woestijn-californie~a2979e04/)
-  > Een bommenwerper van het type ​B-52 Stratofortress is in de Verenigde Staten kort na het opstijgen neergestort. Dat meldt luchtmachtbasis Edwards in...
-- [Paul Haenen geschrokken van overlijden Wim T. Schippers: ‘Altijd opgewekt en ontzettend geniaal’](https://www.ad.nl/show/paul-haenen-geschrokken-van-overlijden-wim-t-schippers-altijd-opgewekt-en-ontzettend-geniaal~aee34de2/)
-  > Cabaretier Paul Haenen is geschrokken van het overlijden van Wim T. Schippers. De kunstenaar, programmamaker en stemacteur overleed afgelopen...
-- [Romelu Lukaku voorkomt met invalbeurt nederlaag België, maar mist kans op winnende goal tegen Egypte](https://www.ad.nl/wk-voetbal/romelu-lukaku-voorkomt-met-invalbeurt-nederlaag-belgie-maar-mist-kans-op-winnende-goal-tegen-egypte~a7d403e5/)
-  > België is het WK begonnen met een 1-1 gelijkspel tegen Egypte, waar de jarige sterspeler Mohamed Salah (34) vrij onzichtbaar was. Bij België lieten...
+- [Ismael Saibari in top 5 duurste eredivisiespelers aller tijden, vier Ajacieden leverden meer op](https://www.ad.nl/voetbal/ismael-saibari-in-top-5-duurste-eredivisiespelers-aller-tijden-vier-ajacieden-leverden-meer-op~a5eef490/)
+  > Ismael Saibari vertrekt voor circa 55 miljoen euro naar Bayern München. Hiermee komt hij in de top 5 aller tijden van uitgaande transfers van de...
+- [Voetbalpodcast | ‘Feyenoord legt de toekomst in handen van de laatste twee assistenten van Slot’](https://www.ad.nl/voetbal/voetbalpodcast-feyenoord-legt-de-toekomst-in-handen-van-de-laatste-twee-assistenten-van-slot~a42af5cd9/)
+  > Nadat Oranje was uitgelopen in Dallas en de bekende familieplaatsjes waren gemaakt, reisde onze equipe terug naar Kansas.
+- [Tesla-rijders misleiden autopilot met plastic poppen: auto denkt dat je oplet](https://www.ad.nl/auto/tesla-rijders-misleiden-autopilot-met-plastic-poppen-auto-denkt-dat-je-oplet~ad14a0e6/)
+  > Tesla-bestuurders in China hebben een opmerkelijke manier gevonden om de veiligheidscontroles van hun auto te omzeilen. Voor enkele tientjes kopen...
+- [‘Vette vis op karton verkopen? Dat wordt een bende’: horeca negeert massaal plastic verbod](https://www.ad.nl/binnenland/vette-vis-op-karton-verkopen-dat-wordt-een-bende-horeca-negeert-massaal-plastic-verbod~abb5f330/)
+  > Nederlandse to-gohoreca is verslaafd aan plastic bekers, bakjes en bestek. Dat blijkt uit een steekproef van het AD en regionale kranten onder 101...
+- [Mysterieu­ze ‘lelijkste haai ter wereld’ voor het eerst levend gefilmd in diepzee](https://www.ad.nl/buitenland/mysterieuze-lelijkste-haai-ter-wereld-voor-het-eerst-levend-gefilmd-in-diepzee~aaaa6800c/)
+  > Wetenschappers hebben voor het eerst levende koboldhaaien kunnen filmen in hun natuurlijke leefomgeving diep in de oceaan. De mysterieuze dieren...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Wat gebeurt er als een samenleving denken uitbesteedt aan AI?](https://fd.nl/samenleving/1599975/wat-gebeurt-er-als-een-samenleving-denken-uitbesteedt-aan-ai)
+  > Maxim Februari en Marleen Stikker uiten hun zorgen over het feit dat we ons denken uitbesteden aan AI.
+- [Is de baas van de Russische centrale bank echt ‘ziek’?](https://fd.nl/economie/1599991/is-de-baas-van-de-russische-centrale-bank-echt-ziek)
+  > Vandaag in Dagkoers: Europa trekt lessen uit de ingreep van de VS bij Anthropic, de baas van de Russische centrale bank is vermist & werknemers zijn...
 - [Betaalgedrag Nederlandse bedrijven verslechterd](https://fd.nl/bedrijfsleven/1600081/betaalgedrag-nederlandse-bedrijven-verslechterd)
   > Voor het eerst in vijf jaar is de betalingsdiscipline bij Nederlandse bedrijven achteruitgegaan. Eén op de vier facturen werd niet op tijd voldaan.
 - [Na ingreep VS bij Anthropic: ‘Zorg dat je altijd naar een ander AI-model kunt switchen’](https://fd.nl/tech-en-innovatie/1599982/na-ingreep-vs-bij-anthropic-zorg-dat-je-altijd-naar-een-ander-ai-model-kunt-switchen)
   > Langzaam wordt meer duidelijk over de aanleiding om Anthropics AI-modellen offline te halen. En wat bedrijven hier nu moeten doen. Vier vragen over...
 - [Verbanning van de vleeskroket uit de kantine roept weerstand op](https://fd.nl/bedrijfsleven/1599980/verbanning-van-de-vleeskroketuit-de-kantine-roept-weerstand-op)
   > Cateraars en werkgevers proberen de lunch duurzamer te maken; werknemers willen gewoon lekker eten. ‘Je moet niet te hard pushen’, zegt de uitbater...
-- [Amerika dunt wapenarsenaal in Europa flink uit](https://fd.nl/opinie/1599971/amerika-dunt-wapenarsenaal-in-europa-flink-uit)
-  > De Verenigde Staten denken niet meer vanuit overvloed, maar vanuit schaarste. En schaarste verandert bondgenootschappen. Dat moet Europa eindelijk...
-- [Personalia dinsdag 16 juni](https://fd.nl/bedrijfsleven/1600080/personalia-dinsdag-16-juni)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
