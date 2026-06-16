@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-06-2026 om 19:47*
+*Laatst bijgewerkt: 16-06-2026 om 22:15*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Onderzoek naar opgestapte wethouders Lelystad: patroon van denigrerend gedrag](https://nos.nl/l/2618907)
+  > De voormalige wethouders Dennis Grimbergen (VVD) en Annemiek Messelink-Dijkstra (InwonersPartij) van Lelystad maakten zich als wethouders schuldig...
+- [Pindakaasvloer terug in Rotterdam als eerbetoon aan bedenker Wim T. Schippers](https://nos.nl/l/2618905)
+  > De pindakaasvloer van Wim T. Schippers keert volgende maand terug in museum Boijmans van Beuningen in Rotterdam. De vloer wordt weer opgebouwd als...
+- [Raadsleden bedreigd om noodopvang Wijk bij Duurstede, burgemeester bezorgd](https://nos.nl/l/2618903)
+  > Meerdere raadsleden in Wijk bij Duurstede zijn bedreigd vanwege hun rol bij de besluitvorming over een tijdelijke noodopvang voor asielzoekers....
 - [Omgaan met nieuws op sociale media: 'Haal niet alles uit één bron'](https://nos.nl/l/2618901)
   > Steeds vaker gebruiken mensen sociale media als bron voor nieuws, bleek vandaag opnieuw uit een rapport van het Commissariaat voor de Media. Acht...
 - [Vier Nederlandse militairen gewond door botsing in Duitsland](https://nos.nl/l/2618899)
   > Tijdens een militaire oefening in Duitsland zijn vier Nederlandse militairen gewond geraakt. Ze zaten in twee militaire voertuigen die op elkaar...
-- [Vier jaar cel voor Zweed die zijn vrouw dwong tot seks met tientallen mannen](https://nos.nl/l/2618897)
-  > Een 61-jarige man uit Zweden is veroordeeld tot vier jaar en vijf maanden celstraf omdat hij zijn vrouw dwong tot (online) prostitutie. Hij werd...
-- [Premier Aruba kondigt vertrek aan, maar houdt regie over opvolging](https://nos.nl/l/2618895)
-  > De Arubaanse premier Mike Eman stapt per 1 januari 2027 op. De aankondiging kwam onverwacht en zorgde direct voor politieke beroering op het eiland....
-- [Trump spreekt Zelensky en hint op hervatting sancties tegen Russische olie](https://nos.nl/l/2618892)
-  > De VS gaat mogelijk de handel in Russische olie weer aan banden leggen. "We zijn in een positie om dat snel te kunnen doen", zei de Amerikaanse...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Duitse publieke omroep past uitzending aan na woedende reactie Elon Musk](https://www.ad.nl/buitenland/duitse-publieke-omroep-past-uitzending-aan-na-woedende-reactie-elon-musk~a4c42ba1/)
-  > De Duitse publieke omroep heeft berichtgeving over de rellen in Belfast aangepast na een woedende reactie van biljonair Elon Musk. De ZDF bevestigde...
-- [Senegal met gevaarlijke counter tegen Frankrijk, schot van Jackson tegen de paal](https://www.ad.nl/wk-voetbal/senegal-met-gevaarlijke-counter-tegen-frankrijk-schot-van-jackson-tegen-de-paal~aeb95011/)
-  > Frankrijk is een van de favorieten voor de wereldtitel. De wereldkampioen van 1998 en 2018 speelt vanavond de eerste groepswedstrijd, in New York...
-- [Chess bedroog Nanne op tv, kreeg een relatie met Thomas die het ook weer uitmaakte: ‘Dat was heel heftig’](https://www.ad.nl/show/chess-bedroog-nanne-op-tv-kreeg-een-relatie-met-thomas-die-het-ook-weer-uitmaakte-dat-was-heel-heftig~a6abadb0/)
-  > Na maar liefst 216 dagen in de loods zit het Bondgenoten-avontuur er voor de veelbesproken Chess op. Ze doet een boekje open over de huidige situatie...
-- [Wessel Nijman wint opnieuw Players Championship: ‘Het wordt nooit saai, dat kan ik je wel vertellen’](https://www.ad.nl/darts/wessel-nijman-wint-opnieuw-players-championship-het-wordt-nooit-saai-dat-kan-ik-je-wel-vertellen~abb82e41/)
-  > Wessel Nijman blijft maar winnen dit jaar. De 25-jarige darter uit Uitgeest was dinsdag al voor de zesde keer dit seizoen de beste bij een Players...
-- [KNVB rekent ook tegen Zweden weer op 15.000 fans: ‘Veel Amerikanen trekken oranje shirt aan en sluiten zich aan’](https://www.ad.nl/wk-voetbal/knvb-rekent-ook-tegen-zweden-weer-op-15-000-fans-veel-amerikanen-trekken-oranje-shirt-aan-en-sluiten-zich-aan~a41c7e4f/)
-  > De KNVB gaat ervan uit dat zaterdag zo'n 15.000 mensen naar Houston komen om in aanloop naar de wedstrijd van het Nederlands elftal tegen Zweden op...
+- [LIVE WK voetbal | Erling Haaland met Noorwegen begonnen aan zijn allereerste WK](https://www.ad.nl/wk-voetbal/live-wk-voetbal-erling-haaland-met-noorwegen-begonnen-aan-zijn-allereerste-wk~a735e9a6/)
+  > Noorwegen mag voor de vierde keer in de geschiedenis meedoen aan het WK voetbal. De formatie van sterspelers Erling Haaland en Martin Ødegaard trapt...
+- [Jelte van Serious Request op vijfjarige leeftijd overleden: ‘Hij heeft rust verdiend’](https://www.ad.nl/binnenland/jelte-van-serious-request-op-vijfjarige-leeftijd-overleden-hij-heeft-rust-verdiend~a0db0ed5/)
+  > De 5-jarige Jelte uit Leeuwarden, die twee jaar geleden het gezicht was van Serious Request, is overleden. Dat hebben zijn ouders dinsdag...
+- [Frankrijk begint WK met zege op Senegal, Kylian Mbappé topscorer aller tijden van Frankrijk](https://www.ad.nl/wk-voetbal/frankrijk-begint-wk-met-zege-op-senegal-kylian-mbappe-topscorer-aller-tijden-van-frankrijk~aeb95011/)
+  > Frankrijk is het WK begonnen met een 3-1 overwinning op Senegal. In de eerste helft kreeg de Afrika Cup-winnaar drie goede kansen om op voorsprong te...
+- [Bedrijf achter DigiD gaat in beroep tegen overnameverbod](https://www.ad.nl/binnenland/bedrijf-achter-digid-gaat-in-beroep-tegen-overnameverbod~af53bf40/)
+  > Solvinity, het bedrijf achter DigiD, gaat in beroep tegen het verbod op overname door het Amerikaanse Kyndryl dat staatssecretaris Willemijn Aerdts...
+- [Record van Miroslav Klose op de tocht: Kylian Mbappé zit Duitser op de hielen dankzij goals tegen Senegal](https://www.ad.nl/wk-voetbal/record-van-miroslav-klose-op-de-tocht-kylian-mbappe-zit-duitser-op-de-hielen-dankzij-goals-tegen-senegal~a2b386a1/)
+  > Het record van Miroslav Klose kan dit WK zomaar uit de boeken worden geschoten. De Duitse spits scoorde op vier verschillende WK’s in totaal zestien...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Beursrally maakt plaats voor verdeeldheid op Wall Street](https://fd.nl/financiele-markten/1600031/beursrally-maakt-plaats-voor-verdeeldheid-op-wall-street)
+  > De industriële Dow Jones eindigde 0,6% in de plus en sloot daarmee voor het eerst boven de 52.000 punten. Daartegenover stonden kleine verliezen...
+- [‘VS en Europa bespreken toegang tot AI-modellen’](https://fd.nl/politiek/1600180/vs-en-europa-bespreken-toegang-tot-ai-modellen)
+  > Woensdag wordt het voorstel om Europese landen toegang te geven volgens FT besproken onder de wereldleiders die aanwezig zijn bij de G7-top.
 - [DigiD-beheerder Solvinity wil via kort geding helderheid over overnameverbod](https://fd.nl/politiek/1600179/digid-beheerder-solvinity-wil-via-kort-geding-helderheid-over-overnameverbod)
-  > Het bedrijf wil weten wat de consequenties zijn van het overnameverbod en eist ‘duidelijkheid over de toekomst van Solvinity’.
+  > Het bedrijf wil weten wat de consequenties zijn van het door het kabinet opgelegde overnameverbod en eist ‘duidelijkheid over de toekomst’.
 - [Britse consultant rectificeert: superrijken niet massaal op drift](https://fd.nl/politiek/1600030/britse-consultant-rectificeert-superrijken-niet-massaal-op-drift)
   > Het Londense advieskantoor Hinley ziet voortaan af van schattingen en cijfers over kapitaalvlucht. De gegevens over een exodus van miljonairs uit...
 - [Ingreep bij Anthropic biedt ook een kans](https://fd.nl/opinie/1600023/ingreep-bij-anthropic-biedt-ook-een-kans)
   > De maatregel is voor Europeanen een nieuwe aanleiding om de afhankelijkheid van Amerikaanse technologie terug te dringen.
-- [UWV-bestuurslid Judith Duveen: ‘We lopen vast door ouderwetse regels’](https://fd.nl/samenleving/1599819/uwv-bestuurslid-judith-duveen-we-lopen-vast-door-ouderwetse-regels)
-  > Socialezekerheidswetten sluiten niet meer aan bij een steeds veelzijdiger arbeidsmarkt, signaleert het UWV. ‘Alleen al het vaststellen van de eerste...
-- [‘Zones van 1 km rond twintig natuurgebieden in stikstofpakket’](https://fd.nl/politiek/1600178/zones-van-1-km-rond-twintig-natuurgebieden-in-stikstofpakket)
-  > Met deze afstandsnorm kiest het kabinet voor een ingrijpende variant, in de hoop vergunningsruimte te creëren
 
 ### Meest gelezen
 
