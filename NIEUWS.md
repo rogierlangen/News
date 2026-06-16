@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-06-2026 om 04:49*
+*Laatst bijgewerkt: 16-06-2026 om 10:11*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Wekdienst 16/6: Tweede dag van G7-top • Frankrijk speelt eerste WK-pot tegen Senegal](https://nos.nl/l/2618787)
-  > Goedemorgen! Het is de tweede dag van de G7-top in Frankrijk en de Oekraïense president Zelensky is te gast. In Luxemburg wordt gediscussieerd over...
-- [Rode Kruis slaat alarm over dreigende voedsel- en watertekorten door El Niño](https://nos.nl/l/2618786)
-  > Het Rode Kruis slaat alarm over de wereldwijde gevolgen die El Niño kan hebben, eind dit jaar en in 2027. De hulporganisatie vreest dat het...
-- [Nederlandse motorrijder omgekomen bij ongeval op Belgisch circuit](https://nos.nl/l/2618784)
-  > Op het circuit van Zolder in België is een 53-jarige Nederlandse motorrijder omgekomen. De man kwam zwaar ten val op het circuit. Dat melden...
-- [Peuter zwaargewond na val uit raam in Rotterdam](https://nos.nl/l/2618778)
-  > Een jongetje van twee jaar oud is maandagavond zwaargewond geraakt bij een val uit het raam op de tweede verdieping van een woning in Rotterdam. Hoe...
-- [Acht doden bij crash B-52-bommenwerper in Californië](https://nos.nl/l/2618776)
-  > Bij een crash met een B-52-bommenwerper in Californië zijn alle acht bemanningsleden omgekomen, meldt de Amerikaanse luchtmacht. Het toestel...
+- [Brabantse trappisten 'brouwen' nu ook frisdrank](https://nos.nl/l/2618824)
+  > De trappisten van Abdij Koningshoeven in Berkel-Enschot, bekend van trappistenbiermerk La Trappe, lanceren een alternatief voor hun trappistenbier:...
+- [Sociale media vaak gebruikt, maar niet vertrouwd als 'bron' van nieuws](https://nos.nl/l/2618812)
+  > De interesse van mensen in nieuws daalt verder. Waar in 2018 nog 61 procent van de Nederlanders veel interesse had in nieuws, is dat in 2026...
+- [Grootste Romeinse badhuiscomplex van Nederland opgegraven in Nijmegen](https://nos.nl/l/2618801)
+  > Archeologen hebben in Nijmegen het grootste Romeinse badhuiscomplex van Nederland blootgelegd. Bij opgravingen in het gebied Waalfront zijn woningen,...
+- [Uitwerking cruciaal bij Iran-akkoord van 1,5 kantje: 'Nog veel uit te vogelen'](https://nos.nl/l/2618800)
+  > 159 pagina's was het laatste atoomakkoord dat Iran tekende, in 2015. De nieuwe overeenkomst met de Verenigde Staten is volgens vicepresident Vance...
+- [Juwelendieven gebruiken afstandsbediening om rolluiken te openen](https://nos.nl/l/2618799)
+  > Drie dieven die verdacht worden van inbraken bij juweliers in Emmeloord, Sneek en Hengelo, gebruikten vermoedelijk een afstandsbediening om rolluiken...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ismael Saibari in top 5 duurste eredivisiespelers aller tijden, vier Ajacieden leverden meer op](https://www.ad.nl/voetbal/ismael-saibari-in-top-5-duurste-eredivisiespelers-aller-tijden-vier-ajacieden-leverden-meer-op~a5eef490/)
-  > Ismael Saibari vertrekt voor circa 55 miljoen euro naar Bayern München. Hiermee komt hij in de top 5 aller tijden van uitgaande transfers van de...
-- [Voetbalpodcast | ‘Feyenoord legt de toekomst in handen van de laatste twee assistenten van Slot’](https://www.ad.nl/voetbal/voetbalpodcast-feyenoord-legt-de-toekomst-in-handen-van-de-laatste-twee-assistenten-van-slot~a42af5cd9/)
-  > Nadat Oranje was uitgelopen in Dallas en de bekende familieplaatsjes waren gemaakt, reisde onze equipe terug naar Kansas.
-- [Tesla-rijders misleiden autopilot met plastic poppen: auto denkt dat je oplet](https://www.ad.nl/auto/tesla-rijders-misleiden-autopilot-met-plastic-poppen-auto-denkt-dat-je-oplet~ad14a0e6/)
-  > Tesla-bestuurders in China hebben een opmerkelijke manier gevonden om de veiligheidscontroles van hun auto te omzeilen. Voor enkele tientjes kopen...
-- [‘Vette vis op karton verkopen? Dat wordt een bende’: horeca negeert massaal plastic verbod](https://www.ad.nl/binnenland/vette-vis-op-karton-verkopen-dat-wordt-een-bende-horeca-negeert-massaal-plastic-verbod~abb5f330/)
-  > Nederlandse to-gohoreca is verslaafd aan plastic bekers, bakjes en bestek. Dat blijkt uit een steekproef van het AD en regionale kranten onder 101...
-- [Mysterieu­ze ‘lelijkste haai ter wereld’ voor het eerst levend gefilmd in diepzee](https://www.ad.nl/buitenland/mysterieuze-lelijkste-haai-ter-wereld-voor-het-eerst-levend-gefilmd-in-diepzee~aaaa6800c/)
-  > Wetenschappers hebben voor het eerst levende koboldhaaien kunnen filmen in hun natuurlijke leefomgeving diep in de oceaan. De mysterieuze dieren...
+- [Ellen van Langen adviseert opvolgster Femke Broeders-Bol: ‘Na 400 meter voelt iedereen zich klote’](https://www.ad.nl/andere-sporten/ellen-van-langen-adviseert-opvolgster-femke-broeders-bol-na-400-meter-voelt-iedereen-zich-klote~a7a5e6b5/)
+  > Met de carrièreswitch naar de 800 meter treedt Femke Broeders-Bol (26) in de voetsporen van Ellen van Langen (60). Als olympisch kampioene van 1992...
+- [Real door met Antonio Rüdiger, Thomas Buitink (26) verlaat PEC en stopt per direct met profvoetbal](https://www.ad.nl/voetbal/real-door-met-antonio-rudiger-thomas-buitink-26-verlaat-pec-en-stopt-per-direct-met-profvoetbal~a488141d/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Opinie: ‘Pak georganiseerd seksueel misbruik aan als een misdaad’](https://www.ad.nl/praat-mee/opinie-pak-georganiseerd-seksueel-misbruik-aan-als-een-misdaad~aedfe795/)
+  > Onlangs bleek dat er in Nederland een netwerk is van mannen die hun vrouwen drogeren, verkrachten en beelden daarvan online delen. Deze mannen mogen...
+- [Fortuin van 500 rijksten ter wereld groeit in één dag met 290 miljard euro](https://www.ad.nl/buitenland/fortuin-van-500-rijksten-ter-wereld-groeit-in-een-dag-met-290-miljard-euro~ac1c07b1/)
+  > De allerrijkste mensen ter wereld profiteerden maandag van optimisme op de aandelenmarkten. Bij het sluiten van de Amerikaanse beurzen hadden de 500...
+- [Praat mee: een akkoord is in deze tijd niets meer waard](https://www.ad.nl/praat-mee/praat-mee-een-akkoord-is-in-deze-tijd-niets-meer-waard~a077b36a/)
+  > Iran en de Verenigde Staten hebben een akkoord gesloten. Maar hoeveel is zo’n overeenkomst in deze tijd nog waard? In de Kwestie leggen we onze...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Wat gebeurt er als een samenleving denken uitbesteedt aan AI?](https://fd.nl/samenleving/1599975/wat-gebeurt-er-als-een-samenleving-denken-uitbesteedt-aan-ai)
-  > Maxim Februari en Marleen Stikker uiten hun zorgen over het feit dat we ons denken uitbesteden aan AI.
-- [Is de baas van de Russische centrale bank echt ‘ziek’?](https://fd.nl/economie/1599991/is-de-baas-van-de-russische-centrale-bank-echt-ziek)
-  > Vandaag in Dagkoers: Europa trekt lessen uit de ingreep van de VS bij Anthropic, de baas van de Russische centrale bank is vermist & werknemers zijn...
-- [Betaalgedrag Nederlandse bedrijven verslechterd](https://fd.nl/bedrijfsleven/1600081/betaalgedrag-nederlandse-bedrijven-verslechterd)
-  > Voor het eerst in vijf jaar is de betalingsdiscipline bij Nederlandse bedrijven achteruitgegaan. Eén op de vier facturen werd niet op tijd voldaan.
-- [Na ingreep VS bij Anthropic: ‘Zorg dat je altijd naar een ander AI-model kunt switchen’](https://fd.nl/tech-en-innovatie/1599982/na-ingreep-vs-bij-anthropic-zorg-dat-je-altijd-naar-een-ander-ai-model-kunt-switchen)
-  > Langzaam wordt meer duidelijk over de aanleiding om Anthropics AI-modellen offline te halen. En wat bedrijven hier nu moeten doen. Vier vragen over...
-- [Verbanning van de vleeskroket uit de kantine roept weerstand op](https://fd.nl/bedrijfsleven/1599980/verbanning-van-de-vleeskroketuit-de-kantine-roept-weerstand-op)
-  > Cateraars en werkgevers proberen de lunch duurzamer te maken; werknemers willen gewoon lekker eten. ‘Je moet niet te hard pushen’, zegt de uitbater...
+- [Golfstaten zetten in op andere routes voor olie dan de Straat van Hormuz](https://fd.nl/economie/1600002/golfstaten-zetten-in-op-andere-routes-voor-olie-dan-de-straat-van-hormuz)
+  > Door de sluiting van de zee-engte is de Golfstaten één ding duidelijk geworden: er moeten alternatieven komen. Plannen voor nieuwe infrastructuur...
+- [Schermutselingen in de advocatuur](https://fd.nl/samenleving/1599981/schermutselingen-in-de-advocatuur)
+  > Femmetje de Wind gaat van schaamte naar woede als haar collega meer aandacht heeft voor zijn telefoon dan voor hun cliënt.
+- [Box 3 toch nog voor de zomer op agenda van diep verdeelde Eerste Kamer](https://fd.nl/politiek/1600149/box3-toch-nog-voor-de-zomer-op-agenda-van-diep-verdeelde-eerste-kamer)
+  > Coalitiepartijen VVD en D66 drongen aan op uitstel van de behandeling tot duidelijk is wat voor aanpassingen het kabinet nog gaat doen. Maar een...
+- [Frituurvet geeft je vleugels](https://fd.nl/financiele-markten/1600141/frituurvet-geeft-je-vleugels)
+  > Europa dwingt de luchtvaart om duurzame alternatieven door kerosine te mengen, voornamelijk oud frituurvet. Snackbarloze syndicaten worden er...
+- [Een loft in de schaduw van de Euromast in Rotterdam](https://fd.nl/samenleving/1600079/een-loft-in-de-schaduw-van-de-euromast-in-rotterdam)
+  > Een aan de buitenkant bescheiden maar van­binnen heel wat minder bescheiden loft. ‘Als je iets vergeet, moet je het hele eind terug.’
 
 ### Meest gelezen
 
