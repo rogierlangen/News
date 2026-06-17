@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-06-2026 om 21:11*
+*Laatst bijgewerkt: 17-06-2026 om 23:41*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- ['300 duizend huishoudens hard geraakt door energiecrisis'](https://nos.nl/l/2619080)
+  > Zo'n driehonderdduizend huishoudens dreigen bovengemiddeld hard geraakt te worden door de huidige energiecrisis. Voor mensen met een laag inkomen kan...
 - [Chef Europese Raad legt contact met Kremlin over onderhandelingen](https://nos.nl/l/2619074)
   > De voorzitter van de Europese Raad, António Costa, heeft contact op laten nemen met het Kremlin. Hij hoopt de Europese Unie te betrekken bij...
 - [Seriemoordenaar VS krijgt levenslang voor vrouwenmoorden in zaak vol emoties](https://nos.nl/l/2619070)
@@ -16,8 +18,6 @@
   > De Amerikaanse centrale bank, de Federal Reserve, houdt onder leiding van de nieuwe voorzitter de rente gelijk. Het was voor het eerst dat Kevin...
 - [PFAS in alle Friese wateren aangetroffen, waterschap wil verbod](https://nos.nl/l/2619066)
   > In alle Friese wateren is PFAS aangetroffen, meldt het Friese waterschap (Wetterskip Fryslân) na onderzoek in 2024 en vorig jaar. Het waterschap...
-- [VS maakt afspraken met Iran bekend, komen overeen met gelekte stukken](https://nos.nl/l/2619065)
-  > De Verenigde Staten hebben de tekst van de intentieverklaring tussen Iran en de Verenigde Staten gepubliceerd. Ook Iran heeft de tekst bekendgemaakt,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Engeland en Kroatië zorgen voor spectaculaire eerste helft, prachtige assist Perisic](https://www.ad.nl/wk-voetbal/engeland-en-kroatie-zorgen-voor-spectaculaire-eerste-helft-prachtige-assist-perisic~a286c689/)
-  > Engeland en Kroatië maken er een mooi spektakel van in Dallas. Bij rust staat het 2-2. Harry Kane zette Engeland twee keer op voorsprong, maar Martin...
-- [Bus met jeugdploeg getroffen door Oekraïense drone, zegt Moskou](https://www.ad.nl/buitenland/bus-met-jeugdploeg-getroffen-door-oekraiense-drone-zegt-moskou~adfb97be/)
-  > Een bus uit Belarus met onder meer een jeugdvoetbalteam aan boord is in Rusland door een Oekraïense drone getroffen, zeggen Russische autoriteiten....
-- [Emiraten leveren bendeleider Shurandy Q. uit aan Curaçao](https://www.ad.nl/binnenland/emiraten-leveren-bendeleider-shurandy-q-uit-aan-curacao~a4bcd6df/)
-  > De Verenigde Arabische Emiraten hebben een van de leiders van de criminele organisatie No Limit Soldiers (NLS) aan Curaçao uitgeleverd. Het...
-- [NS waarschuwt reizigers als goedkoop zomerabonnement bijna afloopt, belooft staatssecretaris](https://www.ad.nl/binnenland/ns-waarschuwt-reizigers-als-goedkoop-zomerabonnement-bijna-afloopt-belooft-staatssecretaris~a8da2771/)
-  > Staatssecretaris Annet Bertram (Infrastructuur en Waterstaat) heeft met de NS besproken dat mensen die een zomerabonnement hebben afgesloten een...
-- [Zo laat komt het Nederlands elftal zaterdag in actie tegen Zweden](https://www.ad.nl/voetbal/zo-laat-komt-het-nederlands-elftal-zaterdag-in-actie-tegen-zweden~ad85207c/)
-  > Het Nederlands elftal en 47 andere landen strijden in Canada, Mexico en de Verenigde Staten om de wereldtitel. Van donderdag 11 juni tot en met...
+- [Iran en VS hebben tijdelijke overeenkomst ondertekend](https://www.ad.nl/buitenland/iran-en-vs-hebben-tijdelijke-overeenkomst-ondertekend~ac528ac3/)
+  > De presidenten van de VS en Iran hebben woensdag de tijdelijke overeenkomst tussen de landen officieel ondertekend. Dat melden Iraanse staatsmedia en...
+- [Succescoach van Hearts stapt over naar Rangers, Tim Bakens hoofdtrainer in België](https://www.ad.nl/voetbal/succescoach-van-hearts-stapt-over-naar-rangers-tim-bakens-hoofdtrainer-in-belgie~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Wesley Sneijder te gast bij training Oranje, Erling Haaland dag na WK-goals in New York](https://www.ad.nl/wk-voetbal/wesley-sneijder-te-gast-bij-training-oranje-erling-haaland-dag-na-wk-goals-in-new-york~a060ccd4/)
+  > Tijdens het WK 2026 zullen spelers van alle 48 deelnemende landen weer veel leuke foto’s en filmpjes delen op social media. Wij verzamelen hier de...
+- [Ghana en Panama houden elkaar in balans in regen Toronto](https://www.ad.nl/wk-voetbal/ghana-en-panama-houden-elkaar-in-balans-in-regen-toronto~adcee6c8/)
+  > Ghana en Panama beginnen vandaag aan het WK voetbal. De twee landen vormen een poule met Engeland en Kroatië. Wie pakt de punten? Volg het hier live.
+- [Klap blijft uit: effect Iranoorlog minder groot voor meeste burgers dan gevreesd](https://www.ad.nl/politiek/klap-blijft-uit-effect-iranoorlog-minder-groot-voor-meeste-burgers-dan-gevreesd~a215a256/)
+  > Nederlandse huishoudens gaan minder merken van de Iranoorlog in hun portemonnee dan eerder werd gevreesd. Op één groep na: mensen die veel...
 
 ### Meest gelezen
 
@@ -46,15 +46,16 @@
 
 ### Laatste nieuws
 
-- [VS brengen overeenkomst met Iran naar buiten](https://fd.nl/politiek/1600721/vs-brengen-overeenkomst-met-iran-naar-buiten)
-  > De tekst lijkt sterk op die uit de eerder gelekte documenten waaruit experts concludeerden dat Iran sterk uit de oorlog komt.
-- [Fed-voorzitter Warsh jaagt Wall Street schrik aan](https://fd.nl/financiele-markten/1600720/fed-president-warsh-schudt-wall-street-op)
-  > Renteverlagingen lijken er voorlopig niet in te zitten in de Verenigde Staten. De aandelenkoersen daalden, net als de prijzen van obligaties.
-- [Macron wil voor ‘betrouwbare partners’ toegang tot de beste AI](https://fd.nl/politiek/1600710/macron-wil-voor-betrouwbare-partners-toegang-tot-de-beste-ai)
-  > Op de G7-top in Evian sprak de Franse president met G7-leiders en AI-bestuurders.
-- [Fed-voorzitter Warsh schudt markt op met felle toon over inflatie](https://fd.nl/financiele-markten/1600689/fed-verlengt-pauze-en-laat-hint-naar-renteverlagingen-achterwege)
-  > Het is de eerste rentevergadering onder leiding van de nieuwe voorzitter Kevin Warsh. De Amerikaanse centrale bank laat de rente ongewijzigd en laat...
-- [ASML-topman waarschuwt weer voor leveringsproblemen](https://fd.nl/bedrijfsleven/1600706/asml-topman-waarschuwt-weer-voor-leveringsproblemen)
+- [Lekker gewerkt](https://fd.nl/opinie/1600707/lekker-gewerkt)
+  > Je eigen falen als eclatant succes verkopen, Trump kan dat. Of probeert het in elk geval.
+- [Personalia donderdag 18 juni](https://fd.nl/bedrijfsleven/1600591/personalia-donderdag-18-juni)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Vattenfall wil met start-up datacenters bouwen bij windparken op de Noordzee](https://fd.nl/bedrijfsleven/1600009/vattenfall-wil-met-start-up-datacenters-bouwen-bij-windparken-op-de-noordzee)
+  > Op land loopt de uitrol van datacenters vast, onder meer vanwege hun slechte imago. Terwijl er door de opkomst van AI steeds meer nodig zijn....
+- [Als je zo door de krant bladert, word je toch moe van al het moeten?](https://fd.nl/opinie/1600004/moe-van-al-het-moeten)
+  > Eerdere betogen over wat Europa nú moet doen vormden een wake-upcall, bijvoorbeeld toen Mario Draghi zijn plan presenteerde. Nu zijn ze een genre...
+- [Mollie sluit het net in Europa](https://fd.nl/financiele-markten/1600593/mollie-sluit-het-net-in-europa)
+  > De Amsterdamse betaalinstelling maakt bekend in alle landen van de Europese Economische Ruimte actief te zijn.
 
 ### Meest gelezen
 
