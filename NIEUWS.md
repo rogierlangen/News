@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-06-2026 om 15:43*
+*Laatst bijgewerkt: 17-06-2026 om 18:23*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Directeur Louvre verdedigt miljard euro kostende renovatie: 'Absoluut noodzakelijk'](https://nos.nl/l/2619028)
-  > Vier maanden na zijn aantreden heeft de nieuwe directeur van museum het Louvre een donker beeld geschetst van de huidige staat van het wereldberoemde...
-- [Kabinet stelt half miljard euro beschikbaar voor wapensteun Oekraïne](https://nos.nl/l/2619027)
-  > Nederland trekt 500 miljoen euro uit voor een nieuw militair steunpakket voor Oekraïne. Dat heeft minister Yesilgöz van Defensie bekendgemaakt...
-- [Pallets vol zuivelproducten achtergelaten in en rond Rotterdam: 'Hoop rotzooi'](https://nos.nl/l/2619024)
-  > Op meerdere plekken in de omgeving van Rotterdam zijn grote ladingen zuivelproducten achtergelaten. Het gaat om pallets vol pakken melk, yoghurt en...
-- [Podcast De Dag: Wanneer de onderwereld bij je boerderij aanklopt](https://nos.nl/l/2619023)
-  > Een leegstaande schuur, een briefje in de bus of iemand die onverwacht het erf op rijdt met een aanbod. Criminelen weten het Nederlandse platteland...
-- [2,5 jaar cel voor man die foto's vervalste om bankrekeningen te openen](https://nos.nl/l/2619021)
-  > De 34-jarige man die tientallen bankrekeningen opende op naam van anderen is veroordeeld tot een celstraf. De rechtbank van Amsterdam legde hem een...
+- [Dubai levert topcrimineel Tyson Q. uit, 'Taghi van Curaçao'](https://nos.nl/l/2619057)
+  > De Curaçaose topcrimineel Shurandy 'Tyson' Q. is door Dubai uitgeleverd aan Curaçao. Voor justitie op Curaçao betekent de uitlevering dat opnieuw een...
+- [Vanaf morgen veel warmer, met kans op onweer](https://nos.nl/l/2619053)
+  > Tot nu toe was juni bewolkt en vrij regenachtig, met een temperatuur die heel gemiddeld is voor deze tijd van het jaar. Maar dat gaat morgen...
+- [Lichaam gevonden in uitgebrand huis Rijen](https://nos.nl/l/2619050)
+  > In het huis in Rijen (Noord-Brabant) waar gisteravond brand uitbrak, is een lichaam gevonden. De politie kan nog niet zeggen of het om de vermiste...
+- [Al dagenlang probeert Anthropic verbod op nieuwste AI op te heffen, zonder succes](https://nos.nl/l/2619046)
+  > AI-bedrijf Anthropic probeert de Amerikaanse overheid al dagen te overtuigen om het verbod op zijn AI-programma Fable op te heffen. Zonder succes:...
+- [Trambestuurders Milaan geschorst om delen camerabeelden vrouwelijke passagiers](https://nos.nl/l/2619042)
+  > Het vervoersbedrijf van Milaan heeft meerdere mannelijke trambestuurders per direct geschorst omdat zij beelden van vrouwelijke trampassagiers in een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Kabinet komt met radicale ingreep in onderwijs: eerst taal, dan pas rekenen](https://www.ad.nl/politiek/kabinet-komt-met-radicale-ingreep-in-onderwijs-eerst-taal-dan-pas-rekenen~aaab17fc/)
-  > Het miljoenenplan om Nederlandse kinderen beter te laten lezen en rekenen werkt niet en gaat volledig op de schop. Het kabinet grijpt hard in en...
-- [Rico Verhoeven krijgt gelijk na beroep en wil nu een rematch: ‘Ik ben er klaar voor, Usyk’](https://www.ad.nl/vechtsport/rico-verhoeven-krijgt-gelijk-na-beroep-en-wil-nu-een-rematch-ik-ben-er-klaar-voor-usyk~a1a1cd72/)
-  > Rico Verhoeven en zijn team hebben gelijk gekregen: de bel had inderdaad al geklonken toen de scheidsrechter zijn partij om de WBC-wereldtitel tegen...
-- [Vrouwenmars als anti-azc-protest in Didam, waar wordt gewacht op Geert Wilders](https://www.ad.nl/binnenland/vrouwenmars-als-anti-azc-protest-in-didam-waar-wordt-gewacht-op-geert-wilders~a7fd19cd/)
-  > PVV-voorman Geert Wilders spreekt woensdagavond een menigte toe die tegen de komst is van een asielzoekerscentrum in de gemeente Montferland....
-- [Strijd om carnavalslied ‘Dikke Pens’ eindigt bij de rechter: ‘Als Abba die paar duizend euro wil, prima’](https://www.ad.nl/show/strijd-om-carnavalslied-dikke-pens-eindigt-bij-de-rechter-als-abba-die-paar-duizend-euro-wil-prima~a2d0a45e/)
-  > Carnavalsact CV de Kapotte Kachels staat ruim een jaar nadat hun Abba-parodie Dikke Pens van Spotify werd gehaald voor de rechter. Zij eisen hun...
-- [Geen stiekem kruisje, maar samen bidden in de middencirkel: ‘Deze generatie geneert zich niet voor zijn geloof’](https://www.ad.nl/wk-voetbal/geen-stiekem-kruisje-maar-samen-bidden-in-de-middencirkel-deze-generatie-geneert-zich-niet-voor-zijn-geloof~ad1a744d/)
-  > Spelers van Duitsland en Curaçao die samen bidden, Nederlandse internationals die de Bijbel lezen, scheenbeschermers met Jezus en Maria erop: het...
+- [Cody Gakpo klopt aan bij pastoor Freddie en ziet Oranje dit WK ver komen](https://www.ad.nl/wk-voetbal/cody-gakpo-klopt-aan-bij-pastoor-freddie-en-ziet-oranje-dit-wk-ver-komen~a014a429/)
+  > Cody Gakpo en bijna de helft van de selectie van Oranje kloppen regelmatig aan bij pastoor Freddie. De ploeg haalt kracht uit het geloof. Het zorgt...
+- [Trump overweegt in Europa te blijven voor tekenen Iran-akkoord](https://www.ad.nl/buitenland/trump-overweegt-in-europa-te-blijven-voor-tekenen-iran-akkoord~ac528ac3/)
+  > President Trump blijft misschien in Europa om zelf bij de ondertekening van een akkoord met Iran te zijn, zo zei hij op een afsluitende...
+- [Duffy maakt na 15 jaar comeback, dit is haar schrijnende verhaal: gedrogeerd, verkracht en ontvoerd](https://www.ad.nl/show/duffy-maakt-na-15-jaar-comeback-dit-is-haar-schrijnende-verhaal-gedrogeerd-verkracht-en-ontvoerd~a80f2283/)
+  > Zangeres Duffy (41) maakt na vijftien jaar haar comeback en er komt zelfs nieuwe muziek aan. Met haar wereldhit Mercy veroverde ze wereldfaam, maar...
+- [Huisdiereigenaren schrikken bij dierenarts, politiek wil verandering: ‘Zien vaak twijfels over kosten’](https://www.ad.nl/binnenland/huisdiereigenaren-schrikken-bij-dierenarts-politiek-wil-verandering-zien-vaak-twijfels-over-kosten~a238b33c/)
+  > Het kabinet komt met wetten om torenhoge kosten bij de dierenarts tegen te gaan. Maar wat maakt die zorg voor dieren zo kostbaar, en hoe gaan...
+- [Ivoriaanse spits verdacht van matchfixing, Messi had tranen vanwege ziekte vader Jorge](https://www.ad.nl/wk-voetbal/ivoriaanse-spits-verdacht-van-matchfixing-messi-had-tranen-vanwege-ziekte-vader-jorge~a2d5cab9/)
+  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
 
 ### Meest gelezen
 
@@ -46,16 +46,14 @@
 
 ### Laatste nieuws
 
-- [Beurskoers biotechbedrijf Uniqure schiet omhoog na koerswijziging FDA](https://fd.nl/financiele-markten/1600702/beurskoers-biotechbedrijf-uniqure-schiet-omhoog-na-koerswijziging-fda)
-  > De Amerikaanse toezichthouder komt terug van een eerder oordeel. Het belangrijkste medicijn in ontwikkeling van Uniqure komt daardoor in de VS...
-- [Onberispelijke reputatie van duo Knoops loopt scheuren op](https://fd.nl/samenleving/1599969/onberispelijke-reputatie-van-duo-knoops-loopt-scheuren-op)
-  > De schok was groot toen plotseling een heel ander beeld over het prestigieuze advocatenkantoor naar buiten kwam.
-- [Onthutste en afwachtende reacties op gelekte stikstofplannen kabinet](https://fd.nl/politiek/1600695/onthutste-en-afwachtende-reacties-op-gelekte-stikstofplannen-kabinet)
-  > De uitgelekte plannen maken veel los bij lokale overheden en in de boerensector. Een officieel besluit heeft het kabinet er nog niet over genomen.
-- [Geen bonussen en winstprikkels meer: kabinet wil kosten dierenarts drukken](https://fd.nl/politiek/1600589/geen-bonussen-en-winstprikkels-meer-kabinet-wil-kosten-dierenarts-drukken)
-  > Het kabinet maakt zich zorgen over onduidelijke tarieven, ketenvorming en gebrek aan transparantie in de dierenzorg. Begin volgend jaar gaan er...
-- [Hoeveel verdiende ING aan de grootste beursgang ooit?](https://fd.nl/financiele-markten/1600095/hoeveel-verdiende-ing-aan-de-grootste-beursgang-ooit)
-  > De Nederlandse bank speelde een rol bij de prestigieuze beursgang van ruimtevaart- en AI-bedrijf SpaceX. Maar niet alle banken die de beursgang...
+- [Fed verlengt pauze en laat hint naar renteverlagingen achterwege](https://fd.nl/financiele-markten/1600689/fed-verlengt-pauze-en-laat-hint-naar-renteverlagingen-achterwege)
+  > Het is de eerste rentevergadering onder leiding van de nieuwe voorzitter Kevin Warsh. Door de gestegen inflatie kan de beleidsrente in de VS minder...
+- [ASML-topman waarschuwt weer voor leveringsproblemen](https://fd.nl/bedrijfsleven/1600706/asml-topman-waarschuwt-weer-voor-leveringsproblemen)
+- [Betaalbaarheid van energie](https://fd.nl/opinie/1600690/betaalbaarheid-van-energie)
+  > Enkel het tijdelijk terugbrengen van een  korting op de elektriciteitskosten is niet het structurele en voorspelbare beleid waar de industrie...
+- [Shein vertrekt uit luxewarenhuis Parijs](https://fd.nl/bedrijfsleven/1600705/shein-vertrekt-uit-luxewarenhuis-parijs)
+- [Nederland steunt Oekraïne en jaagt daarmee de eigen dronesector aan](https://fd.nl/politiek/1600594/nederland-steunt-oekraine-en-jaagt-daarmee-de-eigen-dronesector-aan)
+  > Nederland gaat voor €250 mln aan drones inkopen bij Nederlandse defensiebedrijven, ter ondersteuning van Oekraïne.
 
 ### Meest gelezen
 
