@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-06-2026 om 18:23*
+*Laatst bijgewerkt: 17-06-2026 om 21:11*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Dubai levert topcrimineel Tyson Q. uit, 'Taghi van Curaçao'](https://nos.nl/l/2619057)
-  > De Curaçaose topcrimineel Shurandy 'Tyson' Q. is door Dubai uitgeleverd aan Curaçao. Voor justitie op Curaçao betekent de uitlevering dat opnieuw een...
-- [Vanaf morgen veel warmer, met kans op onweer](https://nos.nl/l/2619053)
-  > Tot nu toe was juni bewolkt en vrij regenachtig, met een temperatuur die heel gemiddeld is voor deze tijd van het jaar. Maar dat gaat morgen...
-- [Lichaam gevonden in uitgebrand huis Rijen](https://nos.nl/l/2619050)
-  > In het huis in Rijen (Noord-Brabant) waar gisteravond brand uitbrak, is een lichaam gevonden. De politie kan nog niet zeggen of het om de vermiste...
-- [Al dagenlang probeert Anthropic verbod op nieuwste AI op te heffen, zonder succes](https://nos.nl/l/2619046)
-  > AI-bedrijf Anthropic probeert de Amerikaanse overheid al dagen te overtuigen om het verbod op zijn AI-programma Fable op te heffen. Zonder succes:...
-- [Trambestuurders Milaan geschorst om delen camerabeelden vrouwelijke passagiers](https://nos.nl/l/2619042)
-  > Het vervoersbedrijf van Milaan heeft meerdere mannelijke trambestuurders per direct geschorst omdat zij beelden van vrouwelijke trampassagiers in een...
+- [Chef Europese Raad legt contact met Kremlin over onderhandelingen](https://nos.nl/l/2619074)
+  > De voorzitter van de Europese Raad, António Costa, heeft contact op laten nemen met het Kremlin. Hij hoopt de Europese Unie te betrekken bij...
+- [Seriemoordenaar VS krijgt levenslang voor vrouwenmoorden in zaak vol emoties](https://nos.nl/l/2619070)
+  > De Amerikaanse seriemoordenaar Rex Heuermann is veroordeeld tot een levenslange gevangenisstraf voor de zogenoemde 'Gilgo Beach-moorden'. Hij krijgt...
+- [Amerikaanse centrale bank houdt onder leiding van nieuwe voorzitter rente gelijk](https://nos.nl/l/2619069)
+  > De Amerikaanse centrale bank, de Federal Reserve, houdt onder leiding van de nieuwe voorzitter de rente gelijk. Het was voor het eerst dat Kevin...
+- [PFAS in alle Friese wateren aangetroffen, waterschap wil verbod](https://nos.nl/l/2619066)
+  > In alle Friese wateren is PFAS aangetroffen, meldt het Friese waterschap (Wetterskip Fryslân) na onderzoek in 2024 en vorig jaar. Het waterschap...
+- [VS maakt afspraken met Iran bekend, komen overeen met gelekte stukken](https://nos.nl/l/2619065)
+  > De Verenigde Staten hebben de tekst van de intentieverklaring tussen Iran en de Verenigde Staten gepubliceerd. Ook Iran heeft de tekst bekendgemaakt,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Cody Gakpo klopt aan bij pastoor Freddie en ziet Oranje dit WK ver komen](https://www.ad.nl/wk-voetbal/cody-gakpo-klopt-aan-bij-pastoor-freddie-en-ziet-oranje-dit-wk-ver-komen~a014a429/)
-  > Cody Gakpo en bijna de helft van de selectie van Oranje kloppen regelmatig aan bij pastoor Freddie. De ploeg haalt kracht uit het geloof. Het zorgt...
-- [Trump overweegt in Europa te blijven voor tekenen Iran-akkoord](https://www.ad.nl/buitenland/trump-overweegt-in-europa-te-blijven-voor-tekenen-iran-akkoord~ac528ac3/)
-  > President Trump blijft misschien in Europa om zelf bij de ondertekening van een akkoord met Iran te zijn, zo zei hij op een afsluitende...
-- [Duffy maakt na 15 jaar comeback, dit is haar schrijnende verhaal: gedrogeerd, verkracht en ontvoerd](https://www.ad.nl/show/duffy-maakt-na-15-jaar-comeback-dit-is-haar-schrijnende-verhaal-gedrogeerd-verkracht-en-ontvoerd~a80f2283/)
-  > Zangeres Duffy (41) maakt na vijftien jaar haar comeback en er komt zelfs nieuwe muziek aan. Met haar wereldhit Mercy veroverde ze wereldfaam, maar...
-- [Huisdiereigenaren schrikken bij dierenarts, politiek wil verandering: ‘Zien vaak twijfels over kosten’](https://www.ad.nl/binnenland/huisdiereigenaren-schrikken-bij-dierenarts-politiek-wil-verandering-zien-vaak-twijfels-over-kosten~a238b33c/)
-  > Het kabinet komt met wetten om torenhoge kosten bij de dierenarts tegen te gaan. Maar wat maakt die zorg voor dieren zo kostbaar, en hoe gaan...
-- [Ivoriaanse spits verdacht van matchfixing, Messi had tranen vanwege ziekte vader Jorge](https://www.ad.nl/wk-voetbal/ivoriaanse-spits-verdacht-van-matchfixing-messi-had-tranen-vanwege-ziekte-vader-jorge~a2d5cab9/)
-  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
+- [Engeland en Kroatië zorgen voor spectaculaire eerste helft, prachtige assist Perisic](https://www.ad.nl/wk-voetbal/engeland-en-kroatie-zorgen-voor-spectaculaire-eerste-helft-prachtige-assist-perisic~a286c689/)
+  > Engeland en Kroatië maken er een mooi spektakel van in Dallas. Bij rust staat het 2-2. Harry Kane zette Engeland twee keer op voorsprong, maar Martin...
+- [Bus met jeugdploeg getroffen door Oekraïense drone, zegt Moskou](https://www.ad.nl/buitenland/bus-met-jeugdploeg-getroffen-door-oekraiense-drone-zegt-moskou~adfb97be/)
+  > Een bus uit Belarus met onder meer een jeugdvoetbalteam aan boord is in Rusland door een Oekraïense drone getroffen, zeggen Russische autoriteiten....
+- [Emiraten leveren bendeleider Shurandy Q. uit aan Curaçao](https://www.ad.nl/binnenland/emiraten-leveren-bendeleider-shurandy-q-uit-aan-curacao~a4bcd6df/)
+  > De Verenigde Arabische Emiraten hebben een van de leiders van de criminele organisatie No Limit Soldiers (NLS) aan Curaçao uitgeleverd. Het...
+- [NS waarschuwt reizigers als goedkoop zomerabonnement bijna afloopt, belooft staatssecretaris](https://www.ad.nl/binnenland/ns-waarschuwt-reizigers-als-goedkoop-zomerabonnement-bijna-afloopt-belooft-staatssecretaris~a8da2771/)
+  > Staatssecretaris Annet Bertram (Infrastructuur en Waterstaat) heeft met de NS besproken dat mensen die een zomerabonnement hebben afgesloten een...
+- [Zo laat komt het Nederlands elftal zaterdag in actie tegen Zweden](https://www.ad.nl/voetbal/zo-laat-komt-het-nederlands-elftal-zaterdag-in-actie-tegen-zweden~ad85207c/)
+  > Het Nederlands elftal en 47 andere landen strijden in Canada, Mexico en de Verenigde Staten om de wereldtitel. Van donderdag 11 juni tot en met...
 
 ### Meest gelezen
 
@@ -46,14 +46,15 @@
 
 ### Laatste nieuws
 
-- [Fed verlengt pauze en laat hint naar renteverlagingen achterwege](https://fd.nl/financiele-markten/1600689/fed-verlengt-pauze-en-laat-hint-naar-renteverlagingen-achterwege)
-  > Het is de eerste rentevergadering onder leiding van de nieuwe voorzitter Kevin Warsh. Door de gestegen inflatie kan de beleidsrente in de VS minder...
+- [VS brengen overeenkomst met Iran naar buiten](https://fd.nl/politiek/1600721/vs-brengen-overeenkomst-met-iran-naar-buiten)
+  > De tekst lijkt sterk op die uit de eerder gelekte documenten waaruit experts concludeerden dat Iran sterk uit de oorlog komt.
+- [Fed-voorzitter Warsh jaagt Wall Street schrik aan](https://fd.nl/financiele-markten/1600720/fed-president-warsh-schudt-wall-street-op)
+  > Renteverlagingen lijken er voorlopig niet in te zitten in de Verenigde Staten. De aandelenkoersen daalden, net als de prijzen van obligaties.
+- [Macron wil voor ‘betrouwbare partners’ toegang tot de beste AI](https://fd.nl/politiek/1600710/macron-wil-voor-betrouwbare-partners-toegang-tot-de-beste-ai)
+  > Op de G7-top in Evian sprak de Franse president met G7-leiders en AI-bestuurders.
+- [Fed-voorzitter Warsh schudt markt op met felle toon over inflatie](https://fd.nl/financiele-markten/1600689/fed-verlengt-pauze-en-laat-hint-naar-renteverlagingen-achterwege)
+  > Het is de eerste rentevergadering onder leiding van de nieuwe voorzitter Kevin Warsh. De Amerikaanse centrale bank laat de rente ongewijzigd en laat...
 - [ASML-topman waarschuwt weer voor leveringsproblemen](https://fd.nl/bedrijfsleven/1600706/asml-topman-waarschuwt-weer-voor-leveringsproblemen)
-- [Betaalbaarheid van energie](https://fd.nl/opinie/1600690/betaalbaarheid-van-energie)
-  > Enkel het tijdelijk terugbrengen van een  korting op de elektriciteitskosten is niet het structurele en voorspelbare beleid waar de industrie...
-- [Shein vertrekt uit luxewarenhuis Parijs](https://fd.nl/bedrijfsleven/1600705/shein-vertrekt-uit-luxewarenhuis-parijs)
-- [Nederland steunt Oekraïne en jaagt daarmee de eigen dronesector aan](https://fd.nl/politiek/1600594/nederland-steunt-oekraine-en-jaagt-daarmee-de-eigen-dronesector-aan)
-  > Nederland gaat voor €250 mln aan drones inkopen bij Nederlandse defensiebedrijven, ter ondersteuning van Oekraïne.
 
 ### Meest gelezen
 
