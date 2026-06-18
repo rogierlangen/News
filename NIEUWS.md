@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-06-2026 om 17:16*
+*Laatst bijgewerkt: 18-06-2026 om 20:29*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Funda verhoogt de tarieven en komt met AI-tool om woning virtueel te stylen](https://nos.nl/l/2619223)
+  > Wie zijn huis te koop aanbiedt op Funda kan tegen betaling nieuwe functies gebruiken om de woning meer te laten opvallen. Het meest opmerkelijke...
+- [Iers parlement stemt voor afschaffen van verplichte bedenktijd bij abortus](https://nos.nl/l/2619215)
+  > Het Ierse parlement heeft voor het afschaffen van de verplichte bedenktijd bij abortus gestemd. Het wetsvoorstel werd ingediend door de grootste...
+- [Maximale straf en jeugd-tbs voor tiener die jongen (17) doodschoot in Amsterdam](https://nos.nl/l/2619212)
+  > Een 17-jarige jongen is veroordeeld tot twee jaar jeugddetentie en jeugd-tbs voor het doodschieten van de 17-jarige Rivaldo in Amsterdam. Dat is de...
 - [Limburg waarschuwt: Nederland loopt risico op 'serieuze plaag' van wasberen](https://nos.nl/l/2619201)
   > De provincie Limburg zegt dat een stevigere aanpak nodig is om de opmars van wasberen te stoppen. Als er niets gebeurt, kan het dier zich over de...
 - [Rekenkamer: met duizenden aangiften van ernstige misdrijven gebeurde in 2024 niets](https://nos.nl/l/2619197)
   > Met duizenden aangiften van ernstige misdrijven is in 2024 niets gebeurd. Dat concludeert de Algemene Rekenkamer na een onderzoek bij de politie.
    ...
-- [Recordaantal inschrijvingen voor Nacht van de Vluchteling](https://nos.nl/l/2619191)
-  > Ruim 10.000 mensen doen dit weekend mee aan de Nacht van de Vluchteling, een record. Dat zegt de organisatie van de sponsorloop. Deelnemers halen...
-- [Stel dat hun eigen kinderen ontvoerde hoeft niet meer de cel in](https://nos.nl/l/2619188)
-  > De rechtbank heeft twee ouders veroordeeld tot twee jaar cel, waarvan zeventien maanden voorwaardelijk, voor het ontvoeren van hun twee biologische...
-- [Laagste dieselprijs in maanden, transportsector blijft voorzichtig](https://nos.nl/l/2619181)
-  > De adviesprijs voor diesel staat op het laagste punt in maanden. Waar de prijs begin maart nog op 2,82 euro stond, is dat deze week gezakt naar 2,26...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Tsjechië direct na rust gevaarlijk, Zuid-Afrika opent jacht op gelijkmaker](https://www.ad.nl/wk-voetbal/tsjechie-direct-na-rust-gevaarlijk-zuid-afrika-opent-jacht-op-gelijkmaker~a6e57e08/)
-  > Zuid-Afrika verloor het openingsduel van het WK tegen Mexico, Tsjechië ging onderuit tegen Zuid-Korea. Welk land pakt nu de eerste punten? Volg het...
-- [Grof verdienen aan Fikkie en Gizmo gaat gewoon door](https://www.ad.nl/commentaar/grof-verdienen-aan-fikkie-en-gizmo-gaat-gewoon-door~a9505ecc/)
-  > Wie met zijn poes naar de dierenarts gaat wacht bij het afrekenen vaak een kater. De prijzen van een behandeling zijn de afgelopen jaren enorm...
-- [Tadej Pogacar belt meteen na finish met zijn verloofde, die haar kaak brak bij val (en is niet blij met de camera)](https://www.ad.nl/wielrennen/tadej-pogacar-belt-meteen-na-finish-met-zijn-verloofde-die-haar-kaak-brak-bij-val-en-is-niet-blij-met-de-camera~a922bb13/)
-  > Tadej Pogacar slaagde er donderdag niet in om zijn tweede ritzege op rij te boeken in de Ronde van Zwitserland. Maar dat was het laatste waar hij...
-- [JD Vance: bestand van 60 dagen met Iran ingegaan](https://www.ad.nl/buitenland/jd-vance-bestand-van-60-dagen-met-iran-ingegaan~ac528ac3/)
-  > De Amerikaanse vicepresident JD Vance zegt dat de onderhandelingsperiode van zestig dagen, die onderdeel is van een akkoord met Iran, donderdag is...
-- [Rekenkamer slaat alarm: 10.000 zware misdrijven niet onderzocht door politie](https://www.ad.nl/politiek/rekenkamer-slaat-alarm-10-000-zware-misdrijven-niet-onderzocht-door-politie~a5070e4e/)
-  > Met maar liefst 10.000 aangiften van geweld, zedenzaken en misdrijven als overvallen of brandstichting gebeurt niets bij de politie. In zeker 3000...
+- [Zwitserland laat publiek opveren met heerlijke omhaal, maar goals blijven nog uit](https://www.ad.nl/wk-voetbal/zwitserland-laat-publiek-opveren-met-heerlijke-omhaal-maar-goals-blijven-nog-uit~aa547c4d/)
+  > Zwitserland speelde het eerste WK-duel gelijk tegen Qatar, Bosnië en Herzegovina kwam niet verder dan een remise tegen Canada. Wie pakt de eerste...
+- [Mark Flekken toont kunsten met heerlijke vrije trap, Erling Haaland niet herkend in New York](https://www.ad.nl/wk-voetbal/mark-flekken-toont-kunsten-met-heerlijke-vrije-trap-erling-haaland-niet-herkend-in-new-york~a060ccd4/)
+  > Tijdens het WK 2026 zullen spelers van alle 48 deelnemende landen weer veel leuke foto’s en filmpjes delen op social media. Wij verzamelen hier de...
+- [Van Bruce Springsteen en Bono tot Christina Aguilera: veel sterren op feest van Obama](https://www.ad.nl/show/van-bruce-springsteen-en-bono-tot-christina-aguilera-veel-sterren-op-feest-van-obama~a86560ede/)
+  > Een groot aantal sterren heeft donderdag in Chicago zijn opwachting gemaakt bij de opening van het Obama Presidential Center, een museum en...
+- [Iran: alle schepen krijgen snel vergunning voor Straat van Hormuz](https://www.ad.nl/buitenland/iran-alle-schepen-krijgen-snel-vergunning-voor-straat-van-hormuz~ac528ac3/)
+  > Iran zegt te werken aan snelle vergunningen voor alle schepen die door de Straat van Hormuz willen varen. Die belangrijke zeestraat is volgens...
+- [Natasja Froger en Wijnand Speelman voltooien Tour du ALS: ‘Extra bijzonder en emotioneel’](https://www.ad.nl/show/natasja-froger-en-wijnand-speelman-voltooien-tour-du-als-extra-bijzonder-en-emotioneel~ad7aea3c/)
+  > Natasja Froger en Wijnand Speelman hebben donderdag met succes de Mont Ventoux in Frankrijk bedwongen tijdens de veertiende editie van...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [‘Banco Master betaalde partijgenoot Braziliaanse president Lula steekpenningen’](https://fd.nl/bedrijfsleven/1600746/banco-master-betaalde-partijgenoot-braziliaanse-president-lula-steekpenningen)
-  > De partij zegt in een verklaring dat Wagner het ‘volledige vertrouwen’ krijgt en dat zij ‘alle feiten zal ophelderen en zijn onschuld zal bewijzen’.
-- [Betrouwbaarheid postbezorging opnieuw onder de maat](https://fd.nl/bedrijfsleven/1600668/betrouwbaarheid-postbezorging-opnieuw-onder-de-maat)
-  > PostNL haalt de wettelijke norm van 95% op tijd bezorgd niet. De hoeveelheid verstuurde brieven blijft intussen afnemen.
-- [Nederlandse Loterij krijgt namen van eigenaren en aandeelhouders illegale goksite Lalabet](https://fd.nl/bedrijfsleven/1600666/nederlandse-loterij-krijgt-namen-van-eigenaren-en-aandeelhouders-illegale-goksite-lalabet)
-  > De rechtbank oordeelt dat trustbestuurders en lokale vertegenwoordigers die illegale goksites faciliteren, aansprakelijk kunnen worden gesteld.
-- [Postbezorgers krijgen loonsverhoging van 7% in twee jaar](https://fd.nl/bedrijfsleven/1600667/postbezorgers-krijgen-loonsverhoging-van-7-in-twee-jaar)
-  > Na lang onderhandelen ligt er een principeakkoord voor duizenden postbezorgers.
-- [Belastingvrijstelling voor Europees beleggen bedreigt opbrengst box 3](https://fd.nl/politiek/1600651/belastingvrijstelling-voor-europees-beleggen-bedreigt-opbrengst-box-3)
-  > De Europese Unie wil het voor bedrijven makkelijker maken om buiten hun thuisland geld op te halen. Dat kan een gat slaan in belastingopbrengsten.
+- [Amerikaanse beurzen veren op door stijgende chipaandelen en dalende olieprijzen](https://fd.nl/financiele-markten/1600876/amerikaanse-beurzen-veren-op-door-stijgende-chipaandelen-en-dalende-olieprijzen)
+  > Het akkoord tussen de Verenigde Staten en Iran heeft geleid tot optimisme op Wall Street. Chipbedrijf Intel maakte een grote sprong na berichten over...
+- [Peiling: ondernemers geven start kabinet dikke onvoldoende](https://fd.nl/politiek/1600646/peiling-ondernemers-geven-start-kabinet-dikke-onvoldoende)
+  > Te weinig daadkracht, te veel regels en te hoge belastingen. Het oordeel van ondernemers over het minderheidskabinet-Jetten is niet mild.
+- [Ahold Delhaize vindt nieuwe Amerikaanse baas bij Amazon](https://fd.nl/bedrijfsleven/1600670/ahold-delhaize-vindt-nieuwe-amerikaanse-baas-bij-amazon)
+  > Aandeelhouders kunnen later dit jaar stemmen over de aanstelling van Claire Peters.
+- [Doorstart Domo-bedrijf loopt vast door hoge grondstofprijzen](https://fd.nl/bedrijfsleven/1600749/doorstart-domo-bedrijf-loopt-vast-door-hoge-grondstofprijzen)
+  > Leuna Polyamid vraagt surseance aan vanwege liquiditeitsproblemen. Leveranciers eisten betaling vooraf, en daartoe was het bedrijf niet in staat.
+- [Rekenkamer wil betere cijfers over opsporingsuitgaven](https://fd.nl/samenleving/1600669/rekenkamer-wil-betere-cijfers-over-opsporingsuitgaven)
+  > Door het ontbreken van cijfers over de opsporing door politie kan die volgens de Rekenkamer ook moeilijk verbeterd worden.
 
 ### Meest gelezen
 
