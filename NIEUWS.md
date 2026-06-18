@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-06-2026 om 09:17*
+*Laatst bijgewerkt: 18-06-2026 om 13:30*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Ook in de stal en wei is het warm: drones gaan hittestress bij dieren zoeken](https://nos.nl/l/2619139)
-  > Niet alleen mensen kunnen de komende dagen last krijgen van de warmte, dat geldt ook dieren. De Nederlandse Voedsel- en Warenautoriteit (NVWA)...
-- [Laatste Beverley Sister overleden, jarenlang bestbetaalde Britse zangeressen](https://nos.nl/l/2619134)
-  > Teddie Beverley is op 99-jarige leeftijd overleden. Samen met haar tweelingzus Babs en hun 3 jaar oudere zus Joy was ze halverwege de vorige eeuw de...
-- [OM: 18 sterfgevallen te linken aan verkochte middelen Funcaps](https://nos.nl/l/2619130)
-  > Het Openbaar Ministerie denkt bij achttien personen te kunnen bewijzen dat zij zijn overleden door middelen die zijn verkocht via de website Funcaps....
-- [Explosieven aangetroffen in azc in aanbouw in Nuenen](https://nos.nl/l/2619129)
-  > In een gebouw waar een opvang voor asielzoekers moet komen in Nuenen is vanochtend vuurwerk aangetroffen.
-        "Binnen is een vuurwerkmortier en...
-- [Steeds meer jongeren in de criminaliteit nemen contact op met hulpchat](https://nos.nl/l/2619128)
-  > Meer dan 500 jongeren en hun naasten hebben vorig jaar gebruikgemaakt van Keerpunt, een online hulpchat speciaal voor jongeren die in de...
+- [Wandelen in de bergen niet zonder risico: hoe bereid je je goed voor?](https://nos.nl/l/2619168)
+  > Steeds vaker moeten reddingsteams in de bergen in actie komen om gewonde of gestrande wandelaars in veiligheid te brengen. Met een goede...
+- [Meerdere sportwedstrijden afgelast vanwege hitte](https://nos.nl/l/2619164)
+  > Met het oog op de verwachte tropische temperaturen van de komende dagen nemen organisaties van sportwedstrijden het zekere voor het onzekere....
+- [21 lichamen van begraafplaats Dordrecht in het geheim verplaatst](https://nos.nl/l/2619157)
+  > Zonder dat nabestaanden werden ingelicht, zijn in Dordrecht 21 lichamen van de ene begraafplaats overgebracht naar een andere. Ook het...
+- [Lokale verkiezing in Noord-Engeland kan lot van premier Starmer bepalen](https://nos.nl/l/2619153)
+  > Vandaag stemmen de kiezers in de Noord-Engelse regio Makerfield niet alleen over hun lokale kandidaat voor het Lagerhuis, maar ook over de toekomst...
+- [Polen arresteert nieuwe verdachte in moordzaak Russische kunstenaar](https://nos.nl/l/2619152)
+  > De Poolse politie heeft een verdachte gearresteerd voor de moord op een Russische performancekunstenaar. De Poetin-kritische Semjon Skrepetski werd...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Man in Polen aangehouden voor moord op Russische artiest en Poetin-criticus](https://www.ad.nl/buitenland/man-in-polen-aangehouden-voor-moord-op-russische-artiest-en-poetin-criticus~aae7b06c3/)
-  > Een man is donderdag aangehouden in Polen, omdat hij wordt verdacht van betrokkenheid bij de moord op een Russische artiest. Dat meldt de Poolse...
-- [Pikante transfer: speelster Ajax vertrekt naar Feyenoord, Real mikt op Enzo Fernández](https://www.ad.nl/voetbal/pikante-transfer-speelster-ajax-vertrekt-naar-feyenoord-real-mikt-op-enzo-fernandez~ad10f02c/)
-  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
-- [Giovanni van Bronckhorst vertelt in persconferentie over terugkeer bij Feyenoord](https://www.ad.nl/voetbal/giovanni-van-bronckhorst-vertelt-in-persconferentie-over-terugkeer-bij-feyenoord~ae90a6ad/)
-  > Giovanni van Bronckhorst is teruggekeerd als coach van Feyenoord. Samen met technisch directeur Dévy Rigaux vertelt hij over zijn plannen in de Kuip....
-- [Begraafplaats verplaatste 21 lichamen in het geheim: nu weet niemand wie het waren](https://www.ad.nl/binnenland/begraafplaats-verplaatste-21-lichamen-in-het-geheim-nu-weet-niemand-wie-het-waren~a0a530a4/)
-  > Ze werden in het diepste geheim verplaatst van de ene Dordtse begraafplaats naar de andere, omdat de 21 lichamen in het oorspronkelijke graf niet...
-- [1200 jaar oude ‘Robin Hood-boom’ in Engels Sherwood Forest bezweken](https://www.ad.nl/buitenland/1200-jaar-oude-robin-hood-boom-in-engels-sherwood-forest-bezweken~ababe2ab/)
-  > Een 1200 jaar oude eik in het Engelse Sherwood Forest is dood. Dat meldt de natuurbeschermingsorganisatie van het gebied, de RSPB aan lokale media....
+- [Ajax moet op zoek naar nieuwe hoofdsponsor: Ziggo stopt na volgend seizoen](https://www.ad.nl/voetbal/ajax-moet-op-zoek-naar-nieuwe-hoofdsponsor-ziggo-stopt-na-volgend-seizoen~adb20dce/)
+  > Ziggo stopt op 1 juli volgend jaar als hoofdsponsor van Ajax. Het bedrijf heeft besloten het aflopende contract niet te verlengen.
+- [Opinie: ‘Verbeteringen in het middelbaar onderwijs? Begin bij kleuters’](https://www.ad.nl/praat-mee/opinie-verbeteringen-in-het-middelbaar-onderwijs-begin-bij-kleuters~ab6824c3/)
+  > Dat de reken- en taalvaardigheden van jongeren onder de maat zijn, is vastgesteld door de Inspectie en het kabinet. De oplossing? Die zit bij de...
+- [Brussel wil Nederlandse miljardenkorting schrappen, kabinet is boos: ‘Onbetaalbaar’](https://www.ad.nl/binnenland/brussel-wil-nederlandse-miljardenkorting-schrappen-kabinet-is-boos-onbetaalbaar~ae1b1d41/)
+  > Een miljardentegenvaller dreigt voor Nederland in de onderhandelingen over een nieuwe EU-begroting. Brussel wil de korting op de Nederlandse bijdrage...
+- [Canada weigert toegang aan international Ivoorkust wegens matchfixing-verdenking](https://www.ad.nl/wk-voetbal/canada-weigert-toegang-aan-international-ivoorkust-wegens-matchfixing-verdenking~a5b24815/)
+  > Canada heeft Ivoorkust-international Elye Wahi de toegang tot het land ontzegd. De 23-jarige aanvaller kan daardoor niet met de selectie van...
+- [‘Ik spaar niemand’: Arno Vermeulen over vijanden, vriendschap en zijn laatste WK als NOS-commentator](https://www.ad.nl/wk-voetbal/ik-spaar-niemand-arno-vermeulen-over-vijanden-vriendschap-en-zijn-laatste-wk-als-nos-commentator~ab8fa298/)
+  > Vannacht begint Arno Vermeulen aan zijn laatste WK als commentator van de NOS. Vlak daarna gaat hij met pensioen, iets waar hij liever niet te veel...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Box 3-fittie](https://fd.nl/financiele-markten/1600724/box-3-fittie)
-  > De hoogte van het tarief in box 3 is oneerlijk, vindt FD-columnist Corné van Zeijl. En ook het systeem deugt niet. Je kunt winsten niet verrekenen...
-- [In hoger beroep 31 maanden geëist tegen frauderende interim-manager Fabian V.](https://fd.nl/bedrijfsleven/1600725/in-hoger-beroep-31-maanden-geeist-tegen-frauderende-interim-manager-fabian-v)
-  > Zes jaar na zijn veroordeling diende het hoger beroep in de zaak bij Rotterdam Shortsea Terminal. Daar werden voor miljoenen aan valse facturen...
-- [Britten vragen zich af waarom uitgerekend Palantir gevoelige patiëntendata mag beheren](https://fd.nl/bedrijfsleven/1598682/britten-vragen-zich-af-waarom-uitgerekend-palantir-gevoelige-patientendata-mag-beheren)
-  > Britse regering overweegt zorgcontract met veelbesproken Amerikaans techbedrijf te ontbinden na aanhoudende kritiek.
-- [AFM: accountants moeten bij klanten beter letten op naleving Rusland-sancties](https://fd.nl/financiele-markten/1600691/afm-accountants-moeten-bij-klanten-beter-letten-op-naleving-rusland-sancties)
-  > Volgens de toezichthouders AFM en BFT nemen veel accountantskantoren wel maatregelen om de risico’s bij de controle van bedrijfsactiviteiten in...
-- [Industrie verwacht dit jaar minder te investeren](https://fd.nl/bedrijfsleven/1600636/industrie-verwacht-dit-jaar-minder-te-investeren)
-  > Vorig najaar verwachtten ondernemers nog ruim 5% meer te investeren in 2026.
+- [China hoopt op kaartentrekker Ma Ning, de enige landgenoot op het WK](https://fd.nl/samenleving/1600737/china-hoopt-op-kaartentrekker-ma-ning-de-enige-landgenoot-op-het-wk)
+  > De gefrustreerde Chinese voetbalfan die het nationale elftal op het WK moet missen, richt zijn aandacht op scheidsrechter Ma Ning, die best nog eens...
+- [Defensieminister Hegseth kondigt grondige herziening aan van Amerikaanse inzet in Europa](https://fd.nl/politiek/1600648/defensieminister-hegseth-kondigt-grondige-herziening-aan-van-amerikaanse-inzet-in-europa)
+  > In overleg met het Amerikaanse Congres wil Pete Hegseth vastleggen wat het minimumaantal troepen zal moeten zijn dat de VS in Europa stationeren.
+- [Frontlinielessen: het patriarchaat schaadt ook de mannen](https://fd.nl/opinie/1600159/frontlinielessen-het-patriarchaat-schaadt-ook-de-mannen)
+  > Ook mannen gaan gebukt onder het patriarchale systeem en worden vooral gedwongen hun gevoelens uit te schakelen. Soms is dat bittere noodzaak,...
+- [AI betaalt geen inkomstenbelasting, moet er daarom een AI-taks komen?](https://fd.nl/samenleving/1598594/ai-betaalt-geen-inkomstenbelasting-moet-er-daarom-een-ai-taks-komen)
+  > Meerdere denktanks waarschuwen dat de opmars van AI op termijn de belastinggrondslag versmalt. Maar een AI-taks kan onbedoelde economische gevolgen...
+- [Funda verhoogt prijzen van woningadvertenties fors, makelaars kritisch](https://fd.nl/bedrijfsleven/1600012/funda-verhoogt-prijzen-van-woningadvertenties-fors-makelaars-kritisch)
+  > Vanaf half september kunnen klanten, in overleg met de makelaar, zelf het advertentiepakket kiezen en betalen. Niet alle makelaars zijn blij met de...
 
 ### Meest gelezen
 
