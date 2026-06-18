@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-06-2026 om 04:22*
+*Laatst bijgewerkt: 18-06-2026 om 09:17*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Oudervereniging spant rechtszaak aan tegen Staat om thuiszitters](https://nos.nl/l/2619094)
-  > Het aantal kinderen dat niet naar school gaat neemt de laatste jaren toe. Oudervereniging Balans vindt dat de Nederlandse Staat niet genoeg doet om...
-- [Nederlandse wandelaar (57) verongelukt in Sloveense bergen](https://nos.nl/l/2619091)
-  > In bergachtig gebied in Slovenië is een Nederlandse wandelaar (57) omgekomen na een val. Dat melden Sloveense media. De man viel afgelopen dinsdag...
-- [Aanvullend geboorteverlof wordt minder opgenomen dan eerder gedacht](https://nos.nl/l/2619087)
-  > Zes op de tien vaders en partners maakt gebruik van de regeling van het aanvullend geboorteverlof van maximaal vijf weken. Het werkelijke gebruik van...
-- ['300 duizend huishoudens hard geraakt door energiecrisis'](https://nos.nl/l/2619080)
-  > Zo'n driehonderdduizend huishoudens dreigen bovengemiddeld hard geraakt te worden door de huidige energiecrisis. Voor mensen met een laag inkomen kan...
-- [Chef Europese Raad legt contact met Kremlin over onderhandelingen](https://nos.nl/l/2619074)
-  > De voorzitter van de Europese Raad, António Costa, heeft contact op laten nemen met het Kremlin. Hij hoopt de Europese Unie te betrekken bij...
+- [Ook in de stal en wei is het warm: drones gaan hittestress bij dieren zoeken](https://nos.nl/l/2619139)
+  > Niet alleen mensen kunnen de komende dagen last krijgen van de warmte, dat geldt ook dieren. De Nederlandse Voedsel- en Warenautoriteit (NVWA)...
+- [Laatste Beverley Sister overleden, jarenlang bestbetaalde Britse zangeressen](https://nos.nl/l/2619134)
+  > Teddie Beverley is op 99-jarige leeftijd overleden. Samen met haar tweelingzus Babs en hun 3 jaar oudere zus Joy was ze halverwege de vorige eeuw de...
+- [OM: 18 sterfgevallen te linken aan verkochte middelen Funcaps](https://nos.nl/l/2619130)
+  > Het Openbaar Ministerie denkt bij achttien personen te kunnen bewijzen dat zij zijn overleden door middelen die zijn verkocht via de website Funcaps....
+- [Explosieven aangetroffen in azc in aanbouw in Nuenen](https://nos.nl/l/2619129)
+  > In een gebouw waar een opvang voor asielzoekers moet komen in Nuenen is vanochtend vuurwerk aangetroffen.
+        "Binnen is een vuurwerkmortier en...
+- [Steeds meer jongeren in de criminaliteit nemen contact op met hulpchat](https://nos.nl/l/2619128)
+  > Meer dan 500 jongeren en hun naasten hebben vorig jaar gebruikgemaakt van Keerpunt, een online hulpchat speciaal voor jongeren die in de...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Rijbewijs halen wordt iets voor de rijken: duizend euro duurder in tien jaar](https://www.ad.nl/auto/rijbewijs-halen-wordt-iets-voor-de-rijken-duizend-euro-duurder-in-tien-jaar~ab795b16/)
-  > Wie dit jaar zijn rijbewijs wil halen, moet opnieuw dieper in de buidel tasten. Uit een analyse van AutoWeek op basis van CBR-cijfers blijkt dat...
-- [Nederlandse wandelaar (57) omgekomen na val in Slovenië](https://www.ad.nl/buitenland/nederlandse-wandelaar-57-omgekomen-na-val-in-slovenie~aab7078c/)
-  > Een 57-jarige Nederlander is dinsdag om het leven gekomen na een val tijdens het afdalen van de hoogste berg van Slovenië. Dat melden lokale media.
-- [Engeland schiet uit de startblokken met zege in kraker tegen Kroatië: ‘Een geweldige prestatie’](https://www.ad.nl/wk-voetbal/engeland-schiet-uit-de-startblokken-met-zege-in-kraker-tegen-kroatie-een-geweldige-prestatie~a286c689/)
-  > Engeland is uitstekend begonnen aan het WK. Het team van bondscoach Thomas Tuchel won woensdagavond in Dallas met 4-2 van Kroatië, dat grote indruk...
-- [Twee doden aangetroffen in woning Groningen](https://www.ad.nl/112-nieuws-groningen/twee-doden-aangetroffen-in-woning-groningen~af15d1a6/)
-  > De politie heeft donderdag twee overleden personen aangetroffen in een woning aan de Meerhoven in Groningen. Over de identiteit van de slachtoffers...
-- [Ghanese bondscoach (73) trekt sprintje en spionagedrone bij Zuid-Korea: dit gebeurde op het WK terwijl jij sliep](https://www.ad.nl/wk-voetbal/ghanese-bondscoach-73-trekt-sprintje-en-spionagedrone-bij-zuid-korea-dit-gebeurde-op-het-wk-terwijl-jij-sliep~adb21b5f/)
-  > Weinig Nederlanders zullen deze nacht wakker zijn gebleven voor Oezbekistan en Panama. Toch was er genoeg te beleven op het WK, zowel op als naast...
+- [Man in Polen aangehouden voor moord op Russische artiest en Poetin-criticus](https://www.ad.nl/buitenland/man-in-polen-aangehouden-voor-moord-op-russische-artiest-en-poetin-criticus~aae7b06c3/)
+  > Een man is donderdag aangehouden in Polen, omdat hij wordt verdacht van betrokkenheid bij de moord op een Russische artiest. Dat meldt de Poolse...
+- [Pikante transfer: speelster Ajax vertrekt naar Feyenoord, Real mikt op Enzo Fernández](https://www.ad.nl/voetbal/pikante-transfer-speelster-ajax-vertrekt-naar-feyenoord-real-mikt-op-enzo-fernandez~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Giovanni van Bronckhorst vertelt in persconferentie over terugkeer bij Feyenoord](https://www.ad.nl/voetbal/giovanni-van-bronckhorst-vertelt-in-persconferentie-over-terugkeer-bij-feyenoord~ae90a6ad/)
+  > Giovanni van Bronckhorst is teruggekeerd als coach van Feyenoord. Samen met technisch directeur Dévy Rigaux vertelt hij over zijn plannen in de Kuip....
+- [Begraafplaats verplaatste 21 lichamen in het geheim: nu weet niemand wie het waren](https://www.ad.nl/binnenland/begraafplaats-verplaatste-21-lichamen-in-het-geheim-nu-weet-niemand-wie-het-waren~a0a530a4/)
+  > Ze werden in het diepste geheim verplaatst van de ene Dordtse begraafplaats naar de andere, omdat de 21 lichamen in het oorspronkelijke graf niet...
+- [1200 jaar oude ‘Robin Hood-boom’ in Engels Sherwood Forest bezweken](https://www.ad.nl/buitenland/1200-jaar-oude-robin-hood-boom-in-engels-sherwood-forest-bezweken~ababe2ab/)
+  > Een 1200 jaar oude eik in het Engelse Sherwood Forest is dood. Dat meldt de natuurbeschermingsorganisatie van het gebied, de RSPB aan lokale media....
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Jordan Bardella: ‘Frankrijk moet weer dat grote land worden dat Europa de weg wijst’](https://fd.nl/politiek/1600476/jordan-bardella-frankrijk-moet-weer-dat-grote-land-worden-dat-europa-de-weg-wijst)
-  > Jordan Bardella (30) groeide op in de banlieues van Parijs en maakt grote kans om de volgende president van Frankrijk te worden. Interview met de...
-- [De kunstenaar die niets moet hebben van de kunstwereld](https://fd.nl/samenleving/1600021/de-kunstenaar-die-niets-moet-hebben-van-de-kunstwereld)
-  > Met Contrapposto schreef Dave Eggers een boek over een kunstenaar die niets van de kunstwereld moet hebben. ‘Je moet kwantiteit leveren om de muren...
-- [Trump betaalt hoge prijs voor vrede met Iran](https://fd.nl/economie/1600592/trump-betaalt-hoge-prijs-voor-vrede-met-iran)
-  > Vandaag in de FD Dagkoers: Het akkoord met Iran lijkt geen enorm succes voor Trump, het kabinet maakt verkeerder keuzes voor infrastructuur & is de...
-- [Lekker gewerkt](https://fd.nl/opinie/1600707/lekker-gewerkt)
-  > Je eigen falen als eclatant succes verkopen, Trump kan dat. Of probeert het in elk geval.
-- [Personalia donderdag 18 juni](https://fd.nl/bedrijfsleven/1600591/personalia-donderdag-18-juni)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Box 3-fittie](https://fd.nl/financiele-markten/1600724/box-3-fittie)
+  > De hoogte van het tarief in box 3 is oneerlijk, vindt FD-columnist Corné van Zeijl. En ook het systeem deugt niet. Je kunt winsten niet verrekenen...
+- [In hoger beroep 31 maanden geëist tegen frauderende interim-manager Fabian V.](https://fd.nl/bedrijfsleven/1600725/in-hoger-beroep-31-maanden-geeist-tegen-frauderende-interim-manager-fabian-v)
+  > Zes jaar na zijn veroordeling diende het hoger beroep in de zaak bij Rotterdam Shortsea Terminal. Daar werden voor miljoenen aan valse facturen...
+- [Britten vragen zich af waarom uitgerekend Palantir gevoelige patiëntendata mag beheren](https://fd.nl/bedrijfsleven/1598682/britten-vragen-zich-af-waarom-uitgerekend-palantir-gevoelige-patientendata-mag-beheren)
+  > Britse regering overweegt zorgcontract met veelbesproken Amerikaans techbedrijf te ontbinden na aanhoudende kritiek.
+- [AFM: accountants moeten bij klanten beter letten op naleving Rusland-sancties](https://fd.nl/financiele-markten/1600691/afm-accountants-moeten-bij-klanten-beter-letten-op-naleving-rusland-sancties)
+  > Volgens de toezichthouders AFM en BFT nemen veel accountantskantoren wel maatregelen om de risico’s bij de controle van bedrijfsactiviteiten in...
+- [Industrie verwacht dit jaar minder te investeren](https://fd.nl/bedrijfsleven/1600636/industrie-verwacht-dit-jaar-minder-te-investeren)
+  > Vorig najaar verwachtten ondernemers nog ruim 5% meer te investeren in 2026.
 
 ### Meest gelezen
 
