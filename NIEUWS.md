@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-06-2026 om 07:12*
+*Laatst bijgewerkt: 19-06-2026 om 12:10*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Ingrijpendste economische hervormingen sinds 1959 in Cuba, onder druk VS](https://nos.nl/l/2619287)
-  > Er staan Cuba ingrijpende economische hervormingen te wachten waarbij het socialistische model van het land een beetje wordt losgelaten. De Nationale...
-- ['Justitie zal vaart willen maken' bij tienerdochter verdacht van dood ouders](https://nos.nl/l/2619278)
-  > In de woning in Meerstad waar in de nacht van woensdag op donderdag een 53-jarig echtpaar dood werd aangetroffen, is de tienerdochter van het stel...
-- [Online aankoop terugdraaien moet binnenkort in elke webshop een makkie zijn](https://nos.nl/l/2619272)
-  > Eindeloos zoeken in een webshop hoe je een bestelling moet annuleren of terugsturen? Dat moet snel verleden tijd zijn. Webwinkels moeten een dezer...
-- [KNMI waarschuwt: onweer, hagel en windstoten verwacht op hete dag](https://nos.nl/l/2619270)
-  > Het KNMI waarschuwt voor mogelijke regen- en onweersbuien vanaf het einde van de middag. Volgens het weerinstituut kunnen de buien zwaar uitpakken,...
-- [Wekdienst 19/6: EU-leiders praten over begroting • Opnieuw warme dag](https://nos.nl/l/2619268)
-  > Goedemorgen! Op de tweede dag van de EU-top spreken de Europese regeringsleiders voor het eerst over de nieuwe meerjarenbegroting. En Oranje traint...
+- [OM niet in hoger beroep Drentse kunstroof, einde zaak](https://nos.nl/l/2619326)
+  > Het Openbaar Ministerie (OM) gaat niet in hoger beroep in de zaak rond de kunstroof uit het Drents Museum. Daarmee komt een einde aan de zaak.
+      ...
+- [Politie beveiligt school Kampen na dreigement op TikTok](https://nos.nl/l/2619324)
+  > Na een dreigement op TikTok beveiligt de politie vandaag een school voor speciaal onderwijs in Kampen. De deur van de school is voor alle zekerheid...
+- [Nederland verzet zich tegen nieuwe Europese begroting: "Gewoon niet goed genoeg"](https://nos.nl/l/2619323)
+  > De nieuwe voorgestelde begroting voor de EU is veel te hoog en richt zich op de verkeerde prioriteiten. Met die boodschap meldt premier Jetten zich...
+- [Marokko-vedette Hakimi moet voor de rechter komen om verkrachting](https://nos.nl/l/2619322)
+  > Voetbalvedette Achraf Hakimi, aanvoerder van het Marokkaanse elftal, moet zich voor de Franse rechter verantwoorden voor een verkrachting in 2023. De...
+- [Onbekende muziek van Mozart ontdekt in Nationale Bibliotheek Parijs](https://nos.nl/l/2619321)
+  > Een Franse musicoloog heeft onbekende muziek van Wolfgang Amadeus Mozart ontdekt. Het gaat om zeven korte stukken van de wereldberoemde Oostenrijkse...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Donna (17) kreeg pas hulp toen ze depressief werd: ‘Adhd bij meisjes wordt zo vaak gemist’](https://www.ad.nl/binnenland/donna-17-kreeg-pas-hulp-toen-ze-depressief-werd-adhd-bij-meisjes-wordt-zo-vaak-gemist~acf2d5bd/)
-  > Adhd: dat is toch iets voor jonge jongetjes die als stuiterballen door de klas gaan? Een hardnekkig beeld dat inmiddels achterhaald is. Toch lopen...
-- [Stem mee op onze dagelijkse polls en voorspellingen en win geweldige prijzen](https://www.ad.nl/wk-voetbal/stem-mee-op-onze-dagelijkse-polls-en-voorspellingen-en-win-geweldige-prijzen~aa5abedf/)
-  > Doe mee aan onze WK actie ‘Wat vind jij?’. De stelling van vandaag: Wie moet er in de spits tegen Zweden? Breng je stem uit en maak kans op geweldige...
-- [Vermoord Frans meisje Lyhanna (11) ook verkracht, blijkt uit autopsie](https://www.ad.nl/buitenland/vermoord-frans-meisje-lyhanna-11-ook-verkracht-blijkt-uit-autopsie~a2ad77d5/)
-  > Het vermoorde Franse meisje Lyhanna (11) blijkt ook te zijn verkracht, zo is duidelijk geworden na de autopsie. Volgens de Franse nieuwszender BFMTV...
-- [Drank kopen voor Oranje of Vaderdag? Tientallen winkels van Gall & Gall blijven dit weekend dicht](https://www.ad.nl/binnenland/drank-kopen-voor-oranje-of-vaderdag-tientallen-winkels-van-gall-en-gall-blijven-dit-weekend-dicht~a08e99b9/)
-  > Mensen die dit weekend een fles drank willen kopen voor de volgende WK-wedstrijd van Nederland of voor Vaderdag moeten goed kijken waar ze dit doen....
-- [Van eerste spits naar luxe joker: wat kan Oranje nog verwachten van routinier Memphis Depay?](https://www.ad.nl/wk-voetbal/van-eerste-spits-naar-luxe-joker-wat-kan-oranje-nog-verwachten-van-routinier-memphis-depay~a01598a3/)
-  > Memphis Depay is geen eerste spits meer bij het Nederlands elftal, misschien zelfs niet de nummer 2. Wat wordt zijn inbreng in het verdere verloop...
+- [Krijgen sprinters na twee loodzware dagen de kans of wordt het een dag voor Mathieu van der Poel?](https://www.ad.nl/wielrennen/krijgen-sprinters-na-twee-loodzware-dagen-de-kans-of-wordt-het-een-dag-voor-mathieu-van-der-poel~a522c015/)
+  > Na twee loodzware dagen zullen de renners het in etappe 3 van de Ronde van Zwitserland het wat makkelijker krijgen. Rondom Bad Ragaz lijken de...
+- [Nederlandse Camila komt in beeld op WK en gaat de wereld over: ‘Onwerkelijk dat mensen mij zo noemen’](https://www.ad.nl/show/nederlandse-camila-komt-in-beeld-op-wk-en-gaat-de-wereld-over-onwerkelijk-dat-mensen-mij-zo-noemen~aee1d0bf2/)
+  > Een Nederlandse voetbalfan gaat de wereld over nadat ze groot in beeld kwam tijdens de wedstrijd tegen Japan. Het blijkt te gaan om Camila Benen...
+- [Na mijnenjager ook Nederlands fregat op weg naar Straat van Hormuz: kabinet bereidt mogelijke missie voor](https://www.ad.nl/binnenland/na-mijnenjager-ook-nederlands-fregat-op-weg-naar-straat-van-hormuz-kabinet-bereidt-mogelijke-missie-voor~a2613775/)
+  > Het luchtverdedigings- en commandofregat Zr.Ms. De Ruyter krijgt mogelijk een rol bij het openhouden van de Straat van Hormuz voor de scheepvaart....
+- [Bizar toeval met enorme gevolgen: na fataal ongeluk blijken automobilist en fietser buren van elkaar](https://www.ad.nl/binnenland/bizar-toeval-met-enorme-gevolgen-na-fataal-ongeluk-blijken-automobilist-en-fietser-buren-van-elkaar~af775af8/)
+  > We krijgen een melding van een ongeval: een automobilist en een fietser zijn met elkaar in botsing gekomen. Bij het ongeval is de fietser overleden....
+- [Dit microscoopfotootje van 0,3 millimeter kan de sleutel zijn tot het herstellen van blindheid](https://www.ad.nl/binnenland/dit-microscoopfotootje-van-0-3-millimeter-kan-de-sleutel-zijn-tot-het-herstellen-van-blindheid~aebb0d00/)
+  > Een kwal? Abstracte kunst? Een mislukt AI-plaatje? Nee, deze foto toont iets dat met het blote oog onzichtbaar is en dat een beschadigd oog in de...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [De Russische kalasjnikov-economie is gevaarlijk, maar graaft haar eigen graf](https://fd.nl/economie/1599483/de-russische-kalasjnikov-economie-is-gevaarlijk-maar-graaft-haar-eigen-graf)
-  > Rusland-expert Richard Connolly vergelijkt Rusland met een machinegeweer: weinig verfijnd, maar robuust en ontworpen voor conflict. Sancties kregen...
-- [Funderingsrisico’s terecht onderdeel taxaties, maar niet op kosten van de koper](https://fd.nl/opinie/1600083/funderingsrisicos-zijn-een-terecht-onderdeel-van-taxaties-maar-niet-op-kosten-van-de-koper-alsjeblieft)
-  > Vanaf april vermeldt elk taxatierapport het funderingsrisico van een woning. Een terechte stap, maar verkopers kunnen informatie achterhouden.
-- [EU-leiders eens over verlengen sancties tegen Rusland](https://fd.nl/politiek/1600879/eu-leiders-eens-over-verlengen-sancties-tegen-rusland)
-  > De sancties worden met een jaar verlengd, en zouden de Russische economie al meer dan €1000 mrd hebben gekost.
-- [Een Berlijns botermeisje en monumentaal dineren](https://fd.nl/samenleving/1600742/een-berlijns-botermeisje-en-monumentaal-dineren)
-  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
-- [Vance zegt trip naar Zwitserland voor onderhandelingen met Iran af](https://fd.nl/politiek/1600878/vance-zegt-trip-naar-zwisterland-voor-onderhandelingen-met-iran-af)
-  > Vicepresident JD Vance wilde dit weekend met Iran onderhandelen, nadat woensdag al door de VS en Iran een raamwerkovereenkomst was afgesloten.
+- [Europa importeert recordhoeveelheid aan Russisch lng](https://fd.nl/economie/1600904/europa-importeert-recordhoeveelheid-aan-russisch-lng)
+  > In het eerste kwartaal van dit jaar importeerden Europese landen een recordhoeveelheid aan Russisch vloeibaar gas (lng).
+- [Te weinig stroom voor datacenters op aarde? Big tech richt zijn blik op de hemel](https://fd.nl/bedrijfsleven/1600697/te-weinig-stroom-voor-datacenters-op-aarde-big-tech-richt-zijn-blik-op-de-hemel)
+  > SpaceX, Google, Amazon: allemaal willen ze datacenters in de ruimte, waar ‘oneindig energie’ zou zijn. Investeerders nemen de plannen bloedserieus,...
+- [Miljoenen cryptomunten zijn een stille dood gestorven](https://fd.nl/financiele-markten/1600582/miljoenen-cryptomunten-zijn-een-stille-dood-gestorven)
+  > Minimaal de helft van de cryptoprojecten is mislukt. Beleggers houden het daarom liever bij de oude, vertrouwde bitcoin. ‘Ik weet dat velen pijnlijke...
+- [Door versoepeling van regels rond emissiehandel dreigt het ETS zijn slagkracht te verliezen](https://fd.nl/opinie/1600091/door-versoepeling-van-regels-rond-emissiehandel-dreigt-het-ets-zijn-slagkracht-te-verliezen)
+  > Handel in emissierechten is een effectief middel om bedrijven te dwingen te verduurzamen. Toch worden de regels ervoor mogelijk versoepeld. Dat is...
+- [Orderdaling bij adviesbureau Accenture wakkert AI-angst aan](https://fd.nl/financiele-markten/1600880/orderdaling-bij-adviesbureau-accenture-wakkert-ai-angst-aan)
+  > Beleggers hebben voorlopig weinig vertrouwen meer in de grootste consultant ter wereld.
 
 ### Meest gelezen
 
