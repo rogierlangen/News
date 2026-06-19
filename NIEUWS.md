@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-06-2026 om 22:57*
+*Laatst bijgewerkt: 19-06-2026 om 01:47*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Vance haalt uit naar critici in Israël: 'VS betaalt voor jullie bescherming'](https://nos.nl/l/2619260)
+  > De Amerikaanse vicepresident Vance heeft scherp uitgehaald naar Israëlische critici van het akkoord tussen de VS en Iran. "Als ik deel zou uitmaken...
+- [EU verlengt sancties Rusland met een jaar, Zelensky vraagt meer steun](https://nos.nl/l/2619256)
+  > De leiders van de Europese Unie zijn overeengekomen om de sancties tegen Rusland vanwege de oorlog tegen Oekraïne met nog eens twaalf maanden te...
+- [Katwijkse gemeenteraad stemt voorlopig voor komst medicijnfabriek](https://nos.nl/l/2619252)
+  > De gemeenteraad van Katwijk heeft een voorlopig positief advies gegeven over de bouwplannen voor een grote medicijnfabriek van de Amerikaanse...
 - [Luchthaven hoofdstad Niger opnieuw doelwit van aanslag door jihadisten](https://nos.nl/l/2619250)
   > Jihadisten hebben in Niger een aanslag gepleegd op de internationale luchthaven van de hoofdstad Niamey. Ook een militaire luchtmachtbasis op de...
 - [Vermoord Frans meisje Lyhanna (11) ook verkracht, blijkt uit autopsie](https://nos.nl/l/2619248)
   > Uit de autopsie op het lichaam van het vermoorde Franse meisje Lyhanna blijkt dat zij is verkracht. Dat schrijven Franse media. Het 11-jarige meisje...
-- [Peuter gewond in Engels krokodillenverblijf, man verdacht van poging tot moord](https://nos.nl/l/2619241)
-  > In het midden van Engeland is een man gearresteerd op verdenking van poging tot moord op een 3-jarig jongetje. De peuter kwam vandaag in een...
-- [Man die cafépersoneel in Ede gijzelde toch al opgenomen in tbs-kliniek](https://nos.nl/l/2619237)
-  > De veroordeelde Corné H., die twee jaar geleden medewerkers van een café in Ede gijzelde, is opgenomen in een tbs-kliniek. Dat meldt zijn advocaat...
-- [VS heft blokkade van Iraanse havens op, tankers varen weer door Straat van Hormuz](https://nos.nl/l/2619233)
-  > De VS heeft de zeeblokkade van de Iraanse havens opgeheven, zo bevestigt het Amerikaanse militaire commando voor het Midden-Oosten (Centcom). Het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE WK voetbal | Gesigneerd shirt voor gewonde cameraman, keeper van Vozinha toch de VS in](https://www.ad.nl/wk-voetbal/live-wk-voetbal-gesigneerd-shirt-voor-gewonde-cameraman-keeper-van-vozinha-toch-de-vs-in~a2d5cab9/)
+- [Cuba hervormt onder druk van VS economie: bedrijven, banken en vastgoedsector geprivatiseerd](https://www.ad.nl/buitenland/cuba-hervormt-onder-druk-van-vs-economie-bedrijven-banken-en-vastgoedsector-geprivatiseerd~ae67dd9c/)
+  > De Cubaanse premier Manuel Marrero heeft ingrijpende maatregelen gepresenteerd voor het hervormen van de Cubaanse economie. Die werden aangekondigd...
+- [Mexico en Zuid-Korea laten nog weinig zien, twee oud-Ajacieden op het veld in Guadalajara](https://www.ad.nl/wk-voetbal/mexico-en-zuid-korea-laten-nog-weinig-zien-twee-oud-ajacieden-op-het-veld-in-guadalajara~a7d26a7f/)
+  > Mexico en Zuid-Korea begonnen het WK vorige week met zeges in poule A, tegen Zuid-Afrika (2-0) en Tsjechië (2-1). Welk land plaatst zich al voor de...
+- [Animo voor zonnepanelen naar nieuw dieptepunt nu financieel voordeel grotendeels verdampt](https://www.ad.nl/economie/animo-voor-zonnepanelen-naar-nieuw-dieptepunt-nu-financieel-voordeel-grotendeels-verdampt~abb85ec1/)
+  > Zonnestroom is uit de gratie bij de Nederlandse huizenbezitters. Vorig jaar werden er bij bestaande woningen slechts 95.000 nieuwe installaties...
+- [Mark Flekken toont kunsten met heerlijke vrije trap, Erling Haaland niet herkend in New York](https://www.ad.nl/wk-voetbal/mark-flekken-toont-kunsten-met-heerlijke-vrije-trap-erling-haaland-niet-herkend-in-new-york~a060ccd4/)
+  > Tijdens het WK 2026 zullen spelers van alle 48 deelnemende landen weer veel leuke foto’s en filmpjes delen op social media. Wij verzamelen hier de...
+- [Gesigneerd shirt voor gewonde cameraman, Pochettino genoot van Messi](https://www.ad.nl/wk-voetbal/gesigneerd-shirt-voor-gewonde-cameraman-pochettino-genoot-van-messi~a2d5cab9/)
   > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
-- [Hermans wil wet verhoging eigen risico later behandelen, oppositie kwaad](https://www.ad.nl/politiek/hermans-wil-wet-verhoging-eigen-risico-later-behandelen-oppositie-kwaad~a84a9963/)
-  > Gezondheidsminister Sophie Hermans (VVD) wil de behandeling van het wetsvoorstel om het eigen risico te verhogen uitstellen tot na de zomer. Dat werd...
-- [Canada op weg naar ruime zege op tien man Qatar, goals van spitsen Larin en David](https://www.ad.nl/wk-voetbal/canada-op-weg-naar-ruime-zege-op-tien-man-qatar-goals-van-spitsen-larin-en-david~a8834f0c/)
-  > Gastland Canada neemt het in de tweede poulewedstrijd op tegen Qatar, de organisator van het vorige WK. Volg hier ons liveblog.
-- [Engelse bondscoach beklaagt zich bij FIFA, dat direct ingrijpt: ‘Het verpestte de ervaring een beetje’](https://www.ad.nl/wk-voetbal/engelse-bondscoach-beklaagt-zich-bij-fifa-dat-direct-ingrijpt-het-verpestte-de-ervaring-een-beetje~a0a3ad5f/)
-  > Bondscoaches hebben op het WK voetbal voortaan vrij zicht op hun spelers tijdens het zingen van het volkslied voor de wedstrijden. De FIFA zegt...
-- [Liverpool legt 40 miljoen euro neer voor Spaanse aanvaller, Portugees talent naar Leverkusen](https://www.ad.nl/voetbal/liverpool-legt-40-miljoen-euro-neer-voor-spaanse-aanvaller-portugees-talent-naar-leverkusen~ad10f02c/)
-  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
 
 ### Meest gelezen
 
