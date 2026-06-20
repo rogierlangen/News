@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-06-2026 om 09:23*
+*Laatst bijgewerkt: 20-06-2026 om 11:59*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Beek overstroomt in Twente, bruiloftsgasten moeten veilig heenkomen zoeken](https://nos.nl/l/2619464)
-  > Het noodweer van gisteravond heeft tot grote problemen geleid in het Twentse grensdorpje Mander. Doordat een beek buiten zijn oevers tradk stroomden...
+- [Fransman (68) overleden na klap met petanquebal, verdachte (81) aangehouden](https://nos.nl/l/2619479)
+  > Een 68-jarige man is in de kustplaats Mimizan in het zuidwesten van Frankrijk overleden nadat hij tijdens een ruzie door een 81-jarige man met een...
+- [Zwembad Staphorst ontruimd na vrijkomen hypochloriet](https://nos.nl/l/2619475)
+  > Een zwembad in Staphorst is vanochtend ontruimd nadat er een gevaarlijke stof was vrijgekomen in de technische ruimte. Niemand raakte gewond.
+       ...
+- [President Bolivia roept noodtoestand uit, kan leger inzetten tegen wegblokkades](https://nos.nl/l/2619465)
+  > De Boliviaanse president Paz heeft de noodtoestand uitgeroepen om een einde te maken aan blokkades en demonstraties die het land al weken platleggen....
+- [Stortvloed spoelt bruidsfeest weg: 'Zagen alle apparatuur en cadeaus wegstromen'](https://nos.nl/l/2619464)
+  > Het noodweer van gisteravond heeft een bruidsfeest in het Twentse grensdorpje Mander verpest. Doordat een beek buiten zijn oevers trad stroomden...
 - [Vermist Brits wandtapijt na 100 jaar opgedoken in Maastricht](https://nos.nl/l/2619459)
   > Een wandtapijt dat ruim 100 jaar geleden uit zicht raakte, is teruggekeerd naar het landhuis waar het eeuwenlang hing. Een Britse curator ontdekte...
-- [De Zweden beleggen belastingvrij, is dat ook iets voor Nederland?](https://nos.nl/l/2619457)
-  > Elke maand belegt Karlijn van Herpen een klein stukje van haar salaris op de beurs. Dit gaat automatisch, naar vijf fondsen die investeren in...
-- [Deel goederentrein stort van brug in München, een dode](https://nos.nl/l/2619455)
-  > In de Duitse stad München zijn twee wagons van een goederentrein van een brug gestort. Daarbij is een persoon omgekomen, meldt de politie.
-       ...
-- [Podcast De Dag: de coronaverhoren, een tussenstand](https://nos.nl/l/2619452)
-  > Tijdens de parlementaire coronaverhoren vertelden sleutelfiguren, onder wie oud-premier Rutte, de afgelopen weken onder meer dat Nederland nét geen...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Fietsster (21) overleden na aanrijding langs Amstel, bestuurder landbouwvoertuig aangehouden](https://www.ad.nl/112-nieuws-ouder-amstel/fietsster-21-overleden-na-aanrijding-langs-amstel-bestuurder-landbouwvoertuig-aangehouden~a8cb336b/)
-  > Een 21-jarige vrouw is zaterdagochtend overleden nadat zij op haar fiets aangereden werd door een landbouwvoertuig. De bestuurder van het...
-- [Veel ervaring, geen diploma: Conny werd door de nieuwe directeur uit haar functie ontheven: ‘Ongekwalificeerd’](https://www.ad.nl/economie/veel-ervaring-geen-diploma-conny-werd-door-de-nieuwe-directeur-uit-haar-functie-ontheven-ongekwalificeerd~a273594f/)
-  > Conny werkt al jaren in een verpleeghuis voor ouderen. Zonder diploma’s, maar langzaam kreeg ze steeds meer taken, vertelt ze aan Anne-Marije...
-- [Primeur voor Paraguay: Miguel Almirón krijgt rood voor praten met hand voor zijn mond: ‘Voelt als complot tegen ons’](https://www.ad.nl/wk-voetbal/primeur-voor-paraguay-miguel-almiron-krijgt-rood-voor-praten-met-hand-voor-zijn-mond-voelt-als-complot-tegen-ons~a77b480e/)
-  > Miguel Almirón heeft als eerste speler op het WK te maken gekregen met een nieuwe, strenge regel. De middenvelder van Paraguay praatte met zijn hand...
-- [Snelste zwemster ter wereld is geen Zweedse meer, maar een Amerikaanse: ‘Ik ben nog in shock’](https://www.ad.nl/andere-sporten/snelste-zwemster-ter-wereld-is-geen-zweedse-meer-maar-een-amerikaanse-ik-ben-nog-in-shock~a431c79d/)
-  > De Amerikaanse zwemster Kate Douglass (24) heeft het wereldrecord op de 50 meter vrije slag (langebaan) verbeterd. Douglass won de Tyr Pro...
-- [Bruiloft in Twente stroomt letterlijk over: ‘Mensen stonden tot aan hun knieën in het water’](https://www.ad.nl/binnenland/bruiloft-in-twente-stroomt-letterlijk-over-mensen-stonden-tot-aan-hun-knieen-in-het-water~af6240d4/)
-  > Wat een prachtige dag was, eindigde vrijdagavond in een drama. De bruiloft van Janneke en Youri uit Vasse bij restaurant watermolen Bels in Mander...
+- [Trainer IJsselmeervogels werd thuis overvallen en zwaar toegetakeld, maar leidde zijn ploeg tóch naar handhaving](https://www.ad.nl/voetbal/trainer-ijsselmeervogels-werd-thuis-overvallen-en-zwaar-toegetakeld-maar-leidde-zijn-ploeg-toch-naar-handhaving~a83deefa/)
+  > Hij werd overvallen, in elkaar geslagen en kon door zijn zware verwondingen niet eens zitten of staan. Toch gaf Willem Leushuis (74) niet op. De...
+- [Ronaldinho tekent bij club uit de Serie C, maar vicevoorzitter is eerlijk: ‘Ik wou dat hij nog kon spelen’](https://www.ad.nl/voetbal/ronaldinho-tekent-bij-club-uit-de-serie-c-maar-vicevoorzitter-is-eerlijk-ik-wou-dat-hij-nog-kon-spelen~a996e9b2/)
+  > Elf jaar na zijn voetbalpensioen maakt Ronaldinho een verrassende comeback. De 46-jarige Braziliaanse icoon gaat tekenen bij Ravenna, een club uit de...
+- [Ferry (49): ‘Het aanbod lag een mooi stuk boven mijn vorige salaris’](https://www.ad.nl/werk/ferry-49-het-aanbod-lag-een-mooi-stuk-boven-mijn-vorige-salaris~a6f1f6e3/)
+  > Ferry (49) werkt als technician research & development in de land- en tuinbouw. Hij gebruikt biologische alternatieven voor kunstmiddelen om zaden...
+- [Het rooster van je barbecue wordt schoon terwijl je slaapt: ‘De natuur doet het werk’](https://www.ad.nl/wonen/het-rooster-van-je-barbecue-wordt-schoon-terwijl-je-slaapt-de-natuur-doet-het-werk~a1b87251/)
+  > Het zomerse weer en voetbal zorgen ervoor dat veel mensen weer achter de barbecue gaan staan. Maar na een zware maaltijd en een paar drankjes de...
+- [‘Ze keken recht naar het bad, maar zagen het niet’: AI moet badmeesters helpen verdrinking te voorkomen](https://www.ad.nl/wetenschap/ze-keken-recht-naar-het-bad-maar-zagen-het-niet-ai-moet-badmeesters-helpen-verdrinking-te-voorkomen~a4499bbc/)
+  > Hoe kan iemand verdrinken in een vol zwembad, terwijl de badmeester toekijkt? Verdrinking gebeurt snel, geruisloos en is vaak onzichtbaar. Het...
 
 ### Meest gelezen
 
@@ -47,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [President van Polen neemt Zelensky hoogste Poolse onderscheiding af](https://fd.nl/politiek/1600972/president-van-polen-neemt-zelensky-hoogste-poolse-onderscheiding-af)
+  > Zelensky vernoemde vorige maand een legereenheid naar een nationalistische groepering die tijdens de Tweede Wereldoorlog 100.000 Polen vermoordde.
 - [Zomerstorm zorgt voor schade en verstoringen op het spoor](https://fd.nl/samenleving/1600971/zomerstorm-zorgt-voor-schade-en-verstoringen-op-het-spoor)
   > Tussen Utrecht en ‘s-Hertogenbosch rijden minder treinen door een kapotte bovenleiding.
 - [FD wint journalistieke prijs voor onderzoek naar gesjoemel met energielabels](https://fd.nl/samenleving/1600812/fd-wint-journalistieke-prijs-voor-onderzoek-naar-gesjoemel-met-energielabels)
@@ -55,8 +57,6 @@
   > FD-lezers reageren op het gevaar van een administratief zwak functionerende overheid en het effect daarvan op de belastingmoraal, het gebruik van...
 - [Wie profiteert van de Irandeal? En luistert de nieuwe Fed-baas naar Trump?](https://fd.nl/economie/1600907/wie-profiteert-van-de-irandeal-en-luistert-de-nieuwe-fed-baas-naar-trump)
   > Trump tekent een vredesakkoord met Iran dat verdacht veel lijkt op de deal van Obama waar de huidige president zelf jarenlang op afgaf. En bij de Fed...
-- [De beste deal ooit en meer van die onzin](https://fd.nl/opinie/1600901/de-beste-deal-ooit-en-meer-van-die-onzin)
-  > Reken niet op een chatbot als je antwoord wilt op de vraag of Iran dan wel de VS het meeste wint bij de ‘deal’. AI blijkt mits juist gehanteerd een...
 
 ### Meest gelezen
 
