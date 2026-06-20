@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-06-2026 om 20:17*
+*Laatst bijgewerkt: 20-06-2026 om 22:13*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Weer doden in Gaza bij Israëlische aanvallen, onder wie kinderen en journalist](https://nos.nl/l/2619559)
+  > Israël heeft opnieuw luchtaanvallen uitgevoerd op meerdere plekken in de Gazastrook. Minstens negen mensen zijn daarbij gedood, onder wie twee...
 - [Noodverordening van kracht in Zandvoort vanwege provocerende jongeren](https://nos.nl/l/2619549)
   > In Zandvoort is de komende dagen een noodverordening van kracht. De gemeente heeft daartoe besloten om voorbereid te zijn op drukte en mogelijke...
 - [Spaanse premiersvrouw wordt vervolgd en moet paspoort inleveren](https://nos.nl/l/2619532)
@@ -16,9 +18,6 @@
   > In de Oekraïense regio Zaporizja zijn zeker vijf mensen gedood bij Russische luchtaanvallen, meldt gouverneur Fedorov op Telegram. Ook zijn tien...
 - [Afrikaanse en Caribische leiders willen excuses van landen voor trans-Atlantische slavenhandel](https://nos.nl/l/2619527)
   > Afrikaanse en Caribische leiders hebben landen die profiteerden van de trans-Atlantische slavenhandel opgeroepen om formele excuses aan te bieden en...
-- [Buitenaardse wezens of noodsituatie? Brazilianen opgeschrikt door vreemd bericht](https://nos.nl/l/2619509)
-  > In verschillende Braziliaanse regio's hebben mensen vannacht een vreemd bericht ontvangen op hun mobiele telefoon.
-        In het verzonden bericht,...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Duitsland door naar knock-outfase: Deniz Undav de held tegen Ivoorkust met twee goals als invaller](https://www.ad.nl/wk-voetbal/duitsland-door-naar-knock-outfase-deniz-undav-de-held-tegen-ivoorkust-met-twee-goals-als-invaller~abbbcb21/)
+  > Duitsland heeft zich na twee wedstrijden geplaatst voor de zestiende finales van het WK. Na de 7-1 overwinning op Curaçao werd ook van Ivoorkust...
+- [Mathieu van der Poel krijgt boete vanwege ontbloot bovenlijf in hot seat tijdens tijdrit](https://www.ad.nl/wielrennen/mathieu-van-der-poel-krijgt-boete-vanwege-ontbloot-bovenlijf-in-hot-seat-tijdens-tijdrit~aa65af56/)
+  > Mathieu van der Poel moet een boete betalen na de tijdrit van de Ronde van Zwitserland. De wielrenner van Alpecin-Premier Tech trok in de hot seat...
+- [Oranje-teamgenoten komen superlatieven tekort over Brian Brobbey: ‘Hij is zó moeilijk te bespelen’](https://www.ad.nl/wk-voetbal/oranje-teamgenoten-komen-superlatieven-tekort-over-brian-brobbey-hij-is-zo-moeilijk-te-bespelen~aff3fc48/)
+  > Brian Brobbey liet zich zien in Houston tegen de Zweden. Met zijn fysieke kracht liet hij de Zweedse defensie al in de openingsfase tweemaal...
+- [Braziliaanse legendes van de partij op het WK, Harry Maguire verkoopt Panini-stickers in New York](https://www.ad.nl/wk-voetbal/braziliaanse-legendes-van-de-partij-op-het-wk-harry-maguire-verkoopt-panini-stickers-in-new-york~a060ccd4/)
+  > Tijdens het WK 2026 zullen spelers van alle 48 deelnemende landen weer veel leuke foto’s en filmpjes delen op social media. Wij verzamelen hier de...
 - [Het rooster van je barbecue wordt schoon terwijl je slaapt: ‘De natuur doet het werk’](https://www.ad.nl/wonen/het-rooster-van-je-barbecue-wordt-schoon-terwijl-je-slaapt-de-natuur-doet-het-werk~a1b87251/)
   > Het zomerse weer en voetbal zorgen ervoor dat veel mensen weer achter de barbecue gaan staan. Maar na een zware maaltijd en een paar drankjes de...
-- [Oranje op rapport | Fraaie cijfers Oranje en Ronald Koeman, twee absolute uitblinkers tegen Zweden](https://www.ad.nl/wk-voetbal/oranje-op-rapport-fraaie-cijfers-oranje-en-ronald-koeman-twee-absolute-uitblinkers-tegen-zweden~a8b8f681/)
-  > Oranje boekte een klinkende en fraaie 5-1 zege op het WK tegen Zweden. Dat leverde een handvol fraaie rapportcijfers, waaronder voor bondscoach...
-- [Koning over gesprek met FIFA-baas Infantino: ‘Heb wat suggesties voor de vredesprijs gedaan’](https://www.ad.nl/show/koning-over-gesprek-met-fifa-baas-infantino-heb-wat-suggesties-voor-de-vredesprijs-gedaan~aa3ccc69/)
-  > Misschien was het de klinkende overwinning van Oranje, maar koning Willem-Alexander nam na afloop van de WK-wedstrijd Nederland-Zweden geen blad voor...
-- [Brobbey met historische goals in voetsporen van Ronaldo, Lineker en Podolski, Oranje breekt record Brazilië](https://www.ad.nl/wk-voetbal/brobbey-met-historische-goals-in-voetsporen-van-ronaldo-lineker-en-podolski-oranje-breekt-record-brazilie~a5bf932e/)
-  > Brian Brobbey sloeg bij zijn eerste basisplaats op een WK al na 4 minuten en 58 seconden toe tegen Zweden. De spits van Sunderland werd daarmee de...
-- [LIVE WK voetbal | Duitsland krijgt eerste kans, maar keeper Ivoorkust stopt kopbal Havertz](https://www.ad.nl/wk-voetbal/live-wk-voetbal-duitsland-krijgt-eerste-kans-maar-keeper-ivoorkust-stopt-kopbal-havertz~abbbcb21/)
-  > Duitsland kende een geweldige WK-start door het Curaçao van Dick Advocaat met 7-1 te overklassen. De volgende tegenstander is Ivoorkust, dat dankzij...
 
 ### Meest gelezen
 
