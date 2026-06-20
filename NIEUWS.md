@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-06-2026 om 16:22*
+*Laatst bijgewerkt: 20-06-2026 om 18:15*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Doden door Russische aanvallen op Zaporizja en Charkiv, ook Rusland meldt aanvallen](https://nos.nl/l/2619530)
+  > In de Oekraïense regio Zaporizja zijn zeker vijf mensen gedood bij Russische luchtaanvallen, meldt gouverneur Fedorov op Telegram. Ook zijn tien...
+- [Afrikaanse en Caribische leiders willen excuses van landen voor trans-Atlantische slavenhandel](https://nos.nl/l/2619527)
+  > Afrikaanse en Caribische leiders hebben landen die profiteerden van de trans-Atlantische slavenhandel opgeroepen om formele excuses aan te bieden en...
 - [Buitenaardse wezens of noodsituatie? Brazilianen opgeschrikt door vreemd bericht](https://nos.nl/l/2619509)
   > In verschillende Braziliaanse regio's hebben mensen vannacht een vreemd bericht ontvangen op hun mobiele telefoon.
         In het verzonden bericht,...
@@ -15,10 +19,6 @@
   > Bij noodweer gisteravond en vannacht zijn in de provincie Groningen meer dan 350 bomen omgewaaid of zwaar beschadigd geraakt. Alleen al langs de N362...
 - [Bushra uit Syrië wacht al jaren op asieloordeel: 'Onwetendheid maakt me zenuwachtig'](https://nos.nl/l/2619498)
   > Met het nieuwe Europese migratiepact verandert er veel voor de tienduizenden asielzoekers in Nederland. Velen moeten nog langer wachten op een...
-- [Houston, we have a fanwalk: duizenden lopen mars voor Nederland-Zweden](https://nos.nl/l/2619495)
-  > Duizenden Nederlanders en andere voetbalfans lopen in Houston mee met de Oranjemars naar het stadion waar het Nederlands elftal zijn tweede...
-- [Iran zegt Straat van Hormuz weer te sluiten na Israëlische aanvallen in Libanon](https://nos.nl/l/2619494)
-  > Iran zegt dat het de Straat van Hormuz weer heeft afgesloten voor de scheepvaart, omdat Israël vannacht het bestand met Hezbollah heeft geschonden....
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Olav Kooij sprint in Ronde van België naar derde zege sinds rentree](https://www.ad.nl/wielrennen/olav-kooij-sprint-in-ronde-van-belgie-naar-derde-zege-sinds-rentree~a4c5aa20/)
-  > Olav Kooij heeft de vierde etappe van de Ronde van België gewonnen. In Aarschot klopte de Nederlander van Decathlon CMA CGM de Belgische topsprinters...
-- [Selectie Curaçao kijkt na ontbijt halfuur naar Oranje, Maguire verkoopt voetbalplaatjes in New York](https://www.ad.nl/wk-voetbal/selectie-curacao-kijkt-na-ontbijt-halfuur-naar-oranje-maguire-verkoopt-voetbalplaatjes-in-new-york~a2d5cab9/)
-  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
-- [Ronald Koeman verklaart keuze voor Brian Brobbey en reserverol Crysencio Summerville](https://www.ad.nl/wk-voetbal/ronald-koeman-verklaart-keuze-voor-brian-brobbey-en-reserverol-crysencio-summerville~ae55d8a1/)
-  > Bondscoach Ronald Koeman verraste met een basisplaats voor Brian Brobbey tegen Zweden. De spits neemt de plek in van Crysencio Summerville, waardoor...
-- [Brobbey verrassend in basis Oranje tegen Zweden, ook De Jong start: dit is de opstelling](https://www.ad.nl/wk-voetbal/brobbey-verrassend-in-basis-oranje-tegen-zweden-ook-de-jong-start-dit-is-de-opstelling~aea3bbf1/)
-  > Het Nederlands elftal begon het WK met een gelijkspel tegen Japan (2-2). De eerste overwinning moet er vanavond komen tegen Zweden, dat een...
-- [Net niet voor Mathieu van der Poel: Tadej Pogacar wint tijdrit na zinderend secondespel](https://www.ad.nl/wielrennen/net-niet-voor-mathieu-van-der-poel-tadej-pogacar-wint-tijdrit-na-zinderend-secondespel~a4b53216/)
-  > Mathieu van der Poel heeft net naast een verrassende zege in de tijdrit van de Ronde van Zwitserland gegrepen. In de vierde etappe wist Tadej Pogacar...
+- [Oranje schiet ook in tweede helft uit de startblokken, Cody Gakpo tikt derde treffer tegen Zweden binnen](https://www.ad.nl/wk-voetbal/oranje-schiet-ook-in-tweede-helft-uit-de-startblokken-cody-gakpo-tikt-derde-treffer-tegen-zweden-binnen~aea3bbf1/)
+  > Het Nederlands elftal beleefde een droomstart in het WK-duel met Zweden. Uitgerekend Brian Brobbey, die verrassend een basisplaats kreeg, opende na 5...
+- [VVD’er Eric van der Burg is weer terug in het kabinet: ‘Ik lach veel, maar heb ook het hart op de tong’](https://www.ad.nl/mezza/vvder-eric-van-der-burg-is-weer-terug-in-het-kabinet-ik-lach-veel-maar-heb-ook-het-hart-op-de-tong~a9e9ea6f/)
+  > Als je niet oplet, lult hij zo uren onafgebroken door, zegt hij zelf. Eric van der Burg – ‘die linkse VVD’er’ – is na een pauze wegens...
+- [Mathieu van der Poel toont topvorm met waanzinnige tijdrit in Zwitserland: ‘Bijna geschiedenis’](https://www.ad.nl/wielrennen/mathieu-van-der-poel-toont-topvorm-met-waanzinnige-tijdrit-in-zwitserland-bijna-geschiedenis~a034b9c3/)
+  > Hij twijfelde even over zijn vorm, maar met een waanzinnige tijdrit in de Ronde van Zwitserland liet Mathieu van der Poel zien dat hij richting de...
+- [Real Madrid ontkent in verklaring contact met Olise, Messi krijgt Casemiro als ploeggenoot](https://www.ad.nl/voetbal/real-madrid-ontkent-in-verklaring-contact-met-olise-messi-krijgt-casemiro-als-ploeggenoot~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Brian Brobbey maakt historische Oranje-treffers, spits in voetsporen van Ronaldo, Lineker en Podolski](https://www.ad.nl/wk-voetbal/brian-brobbey-maakt-historische-oranje-treffers-spits-in-voetsporen-van-ronaldo-lineker-en-podolski~a5bf932e/)
+  > Brian Brobbey sloeg bij zijn eerste basisplaats op een WK al na 4 minuten en 58 seconden toe tegen Zweden. De spits van Sunderland werd daarmee de...
 
 ### Meest gelezen
 
