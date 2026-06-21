@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-06-2026 om 10:33*
+*Laatst bijgewerkt: 21-06-2026 om 13:09*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Ondanks hitte en noodweer recordbedrag opgehaald bij Nacht van de Vluchteling](https://nos.nl/l/2619622)
-  > Een recordaantal deelnemers aan de Nacht van de Vluchteling heeft het hoogste bedrag in het bestaan van de actieloop opgehaald. Zo'n 10.000...
-- [Charles maakt als eerste Britse koning zijn belastingaangifte openbaar](https://nos.nl/l/2619616)
-  > De Britse koning Charles gaat vrijwillig zijn belastingaangifte openbaar maken. Hij is het eerste Britse staatshoofd dat dat doet. Donderdag worden...
-- ['Patserige' motorrijder doet wheelie en rijdt terras in Kortrijk op: vier gewonden](https://nos.nl/l/2619615)
-  > In de stad Kortrijk in het westen van België zijn gisteravond vier mensen gewond geraakt nadat een motorrijder een terras was opgereden. Twee...
-- [Met nieuwe aanvallen probeert Oekraïne Krim te isoleren, olieterminal in brand](https://nos.nl/l/2619609)
-  > Op de door Rusland geannexeerde Krim zijn vier mensen gedood door een Oekraïense drone-aanval. Ook raakten 28 mensen gewond, zo deelde de Russische...
-- [Wekdienst 21/6: Toespraak Jetten bij monument Molukkers • FBK Games in Hengelo](https://nos.nl/l/2619596)
-  > Goedemorgen! Premier Jetten houdt in Rotterdam een toespraak bij de onthulling van een nationaal monument voor de Molukkers in Rotterdam en op het WK...
+- [Heikel punt in 'Tehrangeles': juichen of niet juichen voor het Iraanse elftal?](https://nos.nl/l/2619645)
+  > In bijna ieder gebouw van de wijk Westwood in het westen van Los Angeles zit een Iraans bedrijfje: een bakkerij vol Iraanse lekkernijen, een...
+- [Excuses premier Jetten voor behandeling eerste generatie Molukkers: 'U wordt gezien’](https://nos.nl/l/2619642)
+  > Premier Jetten heeft vanmiddag namens de Nederlandse regering excuses aangeboden voor de behandeling van de eerste generatie Molukkers die 75 jaar...
+- [Bestuurder rijdt door na aanrijding bij Biddinghuizen, fietser (32) overleden](https://nos.nl/l/2619630)
+  > Een 32-jarige fietser is gisteravond bij een ongeval bij Biddinghuizen om het leven gekomen. De politie meldt dat de man is aangereden door een nog...
+- [Topambtenaar Cai Qi in China steeds belangrijker, wie is de man achter Xi?](https://nos.nl/l/2619628)
+  > Cai Qi is in China al jaren een bekend politicus, maar sinds kort verschijnt hij steeds vaker op het internationale toneel. Hij opereerde decennia in...
+- [Moddergooien Trump en Meloni gaat door: 'Bemoei je met je eigen zaken'](https://nos.nl/l/2619627)
+  > Het klinkt meer als een ruzie tussen twee middelbare scholieren dan een conflict tussen twee wereldleiders. Toch zijn de Amerikaanse president Trump...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tv-kok Gordon Ramsay wordt voor het eerst opa: ‘Superenthousiast’](https://www.ad.nl/show/tv-kok-gordon-ramsay-wordt-voor-het-eerst-opa-superenthousiast~a58f6a15/)
-  > De Britse tv-kok Gordon Ramsay wordt voor het eerst opa. Zijn dochter Holly Ramsay maakte op Instagram bekend dat zij in verwachting is van haar...
-- [Arrestaties na fatale sprong Maria (21): verdachten zouden camerabeelden hebben laten verdwijnen](https://www.ad.nl/buitenland/arrestaties-na-fatale-sprong-maria-21-verdachten-zouden-camerabeelden-hebben-laten-verdwijnen~a9d89fbe/)
-  > De Braziliaanse politie heeft drie nieuwe aanhoudingen verricht in de zaak van de 21-jarige Maria Eduarda Rodrigues de Freitas. De Braziliaanse kwam...
-- [Nederland-Zweden zal een wedstrijd zijn die ik me over dertig jaar nog steeds herinner](https://www.ad.nl/voetbal/nederland-zweden-zal-een-wedstrijd-zijn-die-ik-me-over-dertig-jaar-nog-steeds-herinner~a1f7eba4/)
-  > Columnist Sjoerd Mossou keek Nederland-Zweden met zijn zieke vader, op de avond voor Vaderdag. „Samen naar voetbal kijken had iets fijn vertrouwds,...
-- [Waarom vaders vaak minder doen dan ze zelf denken: ‘We doen aan fopfeminisme’](https://www.ad.nl/binnenland/waarom-vaders-vaak-minder-doen-dan-ze-zelf-denken-we-doen-aan-fopfeminisme~a622fab3/)
-  > Vaders! We krijgen zondag kaartjes en knuffels en ontbijtjes op bed. Maar Vaderdag is óók het moment voor een gewetensvraag, schrijft verslaggever...
-- [Renovatie iconisch bassin mislukt volledig: Trump geeft Olympische kanovaarder de schuld](https://www.ad.nl/buitenland/renovatie-iconisch-bassin-mislukt-volledig-trump-geeft-olympische-kanovaarder-de-schuld~aca6aa49/)
-  > De Lincoln Pool in Washington zit vol algen, en de op speciaal verzoek van Donald Trump aangelegde bodem laat los. De rel rond het iconische monument...
+- [Kat kwijt? Annet en haar honden doen er alles aan om je huisdier terug te vinden](https://www.ad.nl/binnenland/kat-kwijt-annet-en-haar-honden-doen-er-alles-aan-om-je-huisdier-terug-te-vinden~ab69f3d3/)
+  > Wie regelmatig op sociale media rondstruint, weet het: in ons land zijn baasjes nogal eens hun kat kwijt. En het huisdier komt niet altijd vanzelf...
+- [Geen benzine meer voor burgers en bedrijven op door Russen bezette Krim: ‘Blijf kalm’](https://www.ad.nl/nieuws/geen-benzine-meer-voor-burgers-en-bedrijven-op-door-russen-bezette-krim-blijf-kalm~abd051a9/)
+  > De verkoop van brandstof aan burgers en bedrijven op de Krim is stopgezet. Dat meldt Sergej Aksjonov, de  gouverneur van het door Rusland bezette...
+- [Marianne Vos boekt in slotrit Catalonië eerste zege van wielerseizoen](https://www.ad.nl/wielrennen/marianne-vos-boekt-in-slotrit-catalonie-eerste-zege-van-wielerseizoen~a898ae5b/)
+  > Marianne Vos heeft in de slotrit van de Ronde van Catalonië haar eerste overwinning van dit jaar geboekt. De 39-jarige wielrenster van Visma - Lease...
+- [Jeremy Clarkson deelt goed nieuws na kankerdiagnose: presentator is in remissie](https://www.ad.nl/show/jeremy-clarkson-deelt-goed-nieuws-na-kankerdiagnose-presentator-is-in-remissie~a9ce3f16/)
+  > Goed nieuws van Jeremy Clarkson (66): in The Sunday Times bevestigt de Top Gear-presentator dat hij in remissie is. Deze week onthulde hij dat er een...
+- [Noorse WK-verdediger ziet geboorte zoontje via videoverbinding: ‘Ik ben uitgeput’](https://www.ad.nl/wk-voetbal/noorse-wk-verdediger-ziet-geboorte-zoontje-via-videoverbinding-ik-ben-uitgeput~a881ebcf/)
+  > Een bijzonder verhaal uit het Noorse WK-kamp. Verdediger Leo Ostigard (26) is onlangs vader geworden, maar is in de nacht van maandag op dinsdag...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Hoe een Mercedes van €3 mln op mysterieuze wijze ‘verdween’](https://fd.nl/samenleving/1600796/hoe-een-mercedes-van-3mln-op-mysterieuze-wijze-verdween)
-  > Een zeldzame Mercedes-Benz SLR McLaren Stirling Moss is inzet van een reeks rechtszaken. De eigenaar, een Duits leasebedrijf, wil de auto terug. Waar...
-- [Prijsconsultant Onno Oldeman: ‘Bedrijven rekenen vaak de verkeerde prijzen’](https://fd.nl/bedrijfsleven/1600184/prijsconsultant-onno-oldeman-bedrijven-rekenen-vaak-de-verkeerde-prijzen)
-  > Adviesbureau Simon-Kucher helpt bedrijven te bepalen wat ze voor hun product of dienst moeten vragen. Door de hoge inflatie van de afgelopen jaren...
-- [Oekraïne laat ons zien hoe je digitaal weerbaarder kan worden](https://fd.nl/opinie/1600581/oekraine-laat-ons-zien-hoe-je-digitaal-weerbaar-wordt)
-  > Oekraïne heeft haar digitale overheidsinfrastructuur weerbaarder gemaakt. Daarbij staan betrouwbaarheid en de onderlinge verbinding tussen systemen...
-- [Wie de vitale cloud wil beschermen, heeft wederkerig vertrouwen nodig](https://fd.nl/opinie/1600684/wie-de-vitale-cloud-wil-beschermen-heeft-wederkerig-vertrouwen-nodig)
-  > Nederland blokkeert de Amerikaanse overname van Solvinity. Maar die ingreep kwam zo laat, dat het vertrouwen van investeerders schade opliep. Europa...
-- [De windmolens draaien nog lang niet in Amersfoort](https://fd.nl/tech-en-innovatie/1600026/de-windmolens-draaien-nog-lang-niet-in-amersfoort)
-  > Het loopt niet storm op de informatieavond in de gereformeerde kerk over de bouw van windmolens.  ‘Toen we de tender wonnen bleek dat er enorme...
+- [Britse media: premier Starmer staat op het punt af te treden](https://fd.nl/politiek/1600814/britse-media-premier-starmer-staat-op-het-punt-af-te-treden)
+  > De premier ziet ‘de realiteit onder ogen’ van de druk op zijn positie, liet een minister weten. Een vrijwillig vertrek zou een ordentelijke...
+- [ING verdient goed aan de wilde bewegingen op de grondstoffenmarkt](https://fd.nl/financiele-markten/1600703/ing-verdient-goed-aan-de-wilde-bewegingen-op-de-grondstoffenmarkt)
+  > De bank ziet de vraag naar complexe derivatenconstructies exploderen, nu bedrijven worstelen met margestortingen en extreme prijsschommelingen.
+- [Zzp-voorzitter Maathuis over Zelfstandigenwet: ‘Besluit niet zonder ons óver ons’](https://fd.nl/politiek/1600732/zzp-voorzitter-maathuis-over-zelfstandigenwet-besluit-niet-zonder-ons-over-ons)
+  > Zelfstandigenlobby VZN is er niet gerust op dat de nieuwe wet waarmee minister Thierry Aartsen gaat komen de oplossing biedt waarnaar zzp’ers snakken.
+- [Kiezen voor Kayla](https://fd.nl/financiele-markten/1600970/kiezen-voor-kayla)
+  > In San Francisco struikel je over de AI-billboards en zelfrijdende taxi’s. Maar hoe ver reikt die wereld?
+- [Groene voorlopers zijn het haasje als Brussel langer uitstootrechten uit blijft delen](https://fd.nl/bedrijfsleven/1599995/groene-voorlopers-zijn-het-haasje-als-brussel-langer-uitstootrechten-uit-blijft-delen)
+  > De lobbydruk in de Europese hoofdstad om het Europese emissiehandelssysteem af te zwakken neemt fors toe.
 
 ### Meest gelezen
 
