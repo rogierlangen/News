@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-06-2026 om 22:13*
+*Laatst bijgewerkt: 21-06-2026 om 00:12*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [KNMI waarschuwt met code oranje opnieuw voor onweer en hagel in Limburg](https://nos.nl/l/2619573)
+  > Het KNMI waarschuwt opnieuw voor zwaar onweer met hagel en harde windstoten in Limburg. Voor die provincie is tot 03.00 uur code oranje afgegeven.
+  ...
+- [Franse politie doet inval om drugs en vindt werk van Picasso](https://nos.nl/l/2619570)
+  > De Franse politie heeft bij een huiszoeking vanwege drugscriminaliteit per toeval een gestolen schilderij van de Spaanse schilder Pablo Picasso...
 - [Weer doden in Gaza bij Israëlische aanvallen, onder wie kinderen en journalist](https://nos.nl/l/2619559)
   > Israël heeft opnieuw luchtaanvallen uitgevoerd op meerdere plekken in de Gazastrook. Minstens negen mensen zijn daarbij gedood, onder wie twee...
 - [Noodverordening van kracht in Zandvoort vanwege provocerende jongeren](https://nos.nl/l/2619549)
   > In Zandvoort is de komende dagen een noodverordening van kracht. De gemeente heeft daartoe besloten om voorbereid te zijn op drukte en mogelijke...
 - [Spaanse premiersvrouw wordt vervolgd en moet paspoort inleveren](https://nos.nl/l/2619532)
   > De vrouw van de Spaanse premier Sánchez wordt strafrechtelijk vervolgd. Ze moet terechtstaan voor onder meer corruptie en machtsmisbruik. Begoña...
-- [Doden door Russische aanvallen op Zaporizja en Charkiv, ook Rusland meldt aanvallen](https://nos.nl/l/2619530)
-  > In de Oekraïense regio Zaporizja zijn zeker vijf mensen gedood bij Russische luchtaanvallen, meldt gouverneur Fedorov op Telegram. Ook zijn tien...
-- [Afrikaanse en Caribische leiders willen excuses van landen voor trans-Atlantische slavenhandel](https://nos.nl/l/2619527)
-  > Afrikaanse en Caribische leiders hebben landen die profiteerden van de trans-Atlantische slavenhandel opgeroepen om formele excuses aan te bieden en...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [LIVE WK voetbal | Curaçao begonnen tegen Ecuador, Eloy Room voorkomt snelle tegengoal](https://www.ad.nl/wk-voetbal/live-wk-voetbal-curacao-begonnen-tegen-ecuador-eloy-room-voorkomt-snelle-tegengoal~a54afd23/)
+  > Dick Advocaat kreeg met Curaçao in het eerste duel een enorm pak slaag. Duitsland was met 7-1 te sterk voor de ploeg van de oudste bondscoach ooit op...
+- [Terwijl iedereen het WK volgt, keert Málaga na acht jaar terug naar La Liga](https://www.ad.nl/voetbal/terwijl-iedereen-het-wk-volgt-keert-malaga-na-acht-jaar-terug-naar-la-liga~a04c4599/)
+  > Terwijl bijna alle voetballiefhebbers in de ban zijn van het WK, waren tienduizenden fans in Andalusië nog druk met de play-offs om promotie naar La...
+- [JD Vance naar Zwitserland voor gesprekken met Iran, Trump dreigt met eigen tol voor Straat van Hormuz](https://www.ad.nl/buitenland/jd-vance-naar-zwitserland-voor-gesprekken-met-iran-trump-dreigt-met-eigen-tol-voor-straat-van-hormuz~ac528ac3/)
+  > De Amerikaanse vicepresident JD Vance is naar Zwitserland vertrokken voor gesprekken met Iran, meldt zijn woordvoerder. Vance zei tegen journalisten...
+- [KNMI geeft opnieuw code oranje af voor Limburg, zondag alweer vroeg warm](https://www.ad.nl/binnenland/knmi-geeft-opnieuw-code-oranje-af-voor-limburg-zondag-alweer-vroeg-warm~a57707aa/)
+  > Het KNMI heeft opnieuw code oranje afgegeven voor de provincie Limburg. Zaterdag waarschuwde het meteorologisch instituut al voor onder meer...
 - [Duitsland door naar knock-outfase: Deniz Undav de held tegen Ivoorkust met twee goals als invaller](https://www.ad.nl/wk-voetbal/duitsland-door-naar-knock-outfase-deniz-undav-de-held-tegen-ivoorkust-met-twee-goals-als-invaller~abbbcb21/)
   > Duitsland heeft zich na twee wedstrijden geplaatst voor de zestiende finales van het WK. Na de 7-1 overwinning op Curaçao werd ook van Ivoorkust...
-- [Mathieu van der Poel krijgt boete vanwege ontbloot bovenlijf in hot seat tijdens tijdrit](https://www.ad.nl/wielrennen/mathieu-van-der-poel-krijgt-boete-vanwege-ontbloot-bovenlijf-in-hot-seat-tijdens-tijdrit~aa65af56/)
-  > Mathieu van der Poel moet een boete betalen na de tijdrit van de Ronde van Zwitserland. De wielrenner van Alpecin-Premier Tech trok in de hot seat...
-- [Oranje-teamgenoten komen superlatieven tekort over Brian Brobbey: ‘Hij is zó moeilijk te bespelen’](https://www.ad.nl/wk-voetbal/oranje-teamgenoten-komen-superlatieven-tekort-over-brian-brobbey-hij-is-zo-moeilijk-te-bespelen~aff3fc48/)
-  > Brian Brobbey liet zich zien in Houston tegen de Zweden. Met zijn fysieke kracht liet hij de Zweedse defensie al in de openingsfase tweemaal...
-- [Braziliaanse legendes van de partij op het WK, Harry Maguire verkoopt Panini-stickers in New York](https://www.ad.nl/wk-voetbal/braziliaanse-legendes-van-de-partij-op-het-wk-harry-maguire-verkoopt-panini-stickers-in-new-york~a060ccd4/)
-  > Tijdens het WK 2026 zullen spelers van alle 48 deelnemende landen weer veel leuke foto’s en filmpjes delen op social media. Wij verzamelen hier de...
-- [Het rooster van je barbecue wordt schoon terwijl je slaapt: ‘De natuur doet het werk’](https://www.ad.nl/wonen/het-rooster-van-je-barbecue-wordt-schoon-terwijl-je-slaapt-de-natuur-doet-het-werk~a1b87251/)
-  > Het zomerse weer en voetbal zorgen ervoor dat veel mensen weer achter de barbecue gaan staan. Maar na een zware maaltijd en een paar drankjes de...
 
 ### Meest gelezen
 
