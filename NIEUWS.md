@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-06-2026 om 00:12*
+*Laatst bijgewerkt: 21-06-2026 om 06:06*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [KNMI waarschuwt met code oranje opnieuw voor onweer en hagel in Limburg](https://nos.nl/l/2619573)
-  > Het KNMI waarschuwt opnieuw voor zwaar onweer met hagel en harde windstoten in Limburg. Voor die provincie is tot 03.00 uur code oranje afgegeven.
-  ...
-- [Franse politie doet inval om drugs en vindt werk van Picasso](https://nos.nl/l/2619570)
-  > De Franse politie heeft bij een huiszoeking vanwege drugscriminaliteit per toeval een gestolen schilderij van de Spaanse schilder Pablo Picasso...
-- [Weer doden in Gaza bij Israëlische aanvallen, onder wie kinderen en journalist](https://nos.nl/l/2619559)
-  > Israël heeft opnieuw luchtaanvallen uitgevoerd op meerdere plekken in de Gazastrook. Minstens negen mensen zijn daarbij gedood, onder wie twee...
-- [Noodverordening van kracht in Zandvoort vanwege provocerende jongeren](https://nos.nl/l/2619549)
-  > In Zandvoort is de komende dagen een noodverordening van kracht. De gemeente heeft daartoe besloten om voorbereid te zijn op drukte en mogelijke...
-- [Spaanse premiersvrouw wordt vervolgd en moet paspoort inleveren](https://nos.nl/l/2619532)
-  > De vrouw van de Spaanse premier Sánchez wordt strafrechtelijk vervolgd. Ze moet terechtstaan voor onder meer corruptie en machtsmisbruik. Begoña...
+- [Israël bezet steeds meer van Gaza, Palestijnen aan de grens leven in angst](https://nos.nl/l/2619592)
+  > Het Israëlische leger bezet een steeds groter deel van de Gazastrook. Het leger zou op dit moment meer dan 60 procent van het grondgebied bezet...
+- [Van onze correspondent... Daisy Mohr (Midden-Oosten)](https://nos.nl/l/2619588)
+  > Van onze Correspondent is een serie van de makers van podcast De Dag. Iedere zondag maken we kennis met een van de correspondenten van de NOS, het...
+- [Spanning rond inhuldiging Moluks monument: gaat Jetten excuses aanbieden?](https://nos.nl/l/2619584)
+  > Komen er excuses van premier Jetten of niet? Dat is vandaag de grote vraag bij de inhuldiging van het Nationaal Moluks Monument in Rotterdam.
+       ...
+- [Vicepresident Vance aangekomen in Zwitserland voor onderhandelingen Iran](https://nos.nl/l/2619576)
+  > De Amerikaanse vicepresident Vance is aangekomen in Zwitserland voor de onderhandelingen tussen de VS en Iran. Ook de onderhandelaars van Pakistan,...
+- [KNMI waarschuwt opnieuw voor onweer en hagel in Limburg](https://nos.nl/l/2619573)
+  > Het KNMI heeft opnieuw gewaarschuwd voor zwaar onweer met hagel en harde windstoten in Limburg. Voor die provincie werd enkele uren code oranje...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [LIVE WK voetbal | Curaçao begonnen tegen Ecuador, Eloy Room voorkomt snelle tegengoal](https://www.ad.nl/wk-voetbal/live-wk-voetbal-curacao-begonnen-tegen-ecuador-eloy-room-voorkomt-snelle-tegengoal~a54afd23/)
-  > Dick Advocaat kreeg met Curaçao in het eerste duel een enorm pak slaag. Duitsland was met 7-1 te sterk voor de ploeg van de oudste bondscoach ooit op...
-- [Terwijl iedereen het WK volgt, keert Málaga na acht jaar terug naar La Liga](https://www.ad.nl/voetbal/terwijl-iedereen-het-wk-volgt-keert-malaga-na-acht-jaar-terug-naar-la-liga~a04c4599/)
-  > Terwijl bijna alle voetballiefhebbers in de ban zijn van het WK, waren tienduizenden fans in Andalusië nog druk met de play-offs om promotie naar La...
-- [JD Vance naar Zwitserland voor gesprekken met Iran, Trump dreigt met eigen tol voor Straat van Hormuz](https://www.ad.nl/buitenland/jd-vance-naar-zwitserland-voor-gesprekken-met-iran-trump-dreigt-met-eigen-tol-voor-straat-van-hormuz~ac528ac3/)
-  > De Amerikaanse vicepresident JD Vance is naar Zwitserland vertrokken voor gesprekken met Iran, meldt zijn woordvoerder. Vance zei tegen journalisten...
-- [KNMI geeft opnieuw code oranje af voor Limburg, zondag alweer vroeg warm](https://www.ad.nl/binnenland/knmi-geeft-opnieuw-code-oranje-af-voor-limburg-zondag-alweer-vroeg-warm~a57707aa/)
-  > Het KNMI heeft opnieuw code oranje afgegeven voor de provincie Limburg. Zaterdag waarschuwde het meteorologisch instituut al voor onder meer...
-- [Duitsland door naar knock-outfase: Deniz Undav de held tegen Ivoorkust met twee goals als invaller](https://www.ad.nl/wk-voetbal/duitsland-door-naar-knock-outfase-deniz-undav-de-held-tegen-ivoorkust-met-twee-goals-als-invaller~abbbcb21/)
-  > Duitsland heeft zich na twee wedstrijden geplaatst voor de zestiende finales van het WK. Na de 7-1 overwinning op Curaçao werd ook van Ivoorkust...
+- [Bijna 17 uur aan daglicht op deze langste dag: wat doet dat met een mens?](https://www.ad.nl/binnenland/bijna-17-uur-aan-daglicht-op-deze-langste-dag-wat-doet-dat-met-een-mens~af1f4013/)
+  > Op zondag 21 juni is het in het midden van het land maar liefst zestien uur en 45 minuten lang licht. In het noorden zelfs nog iets langer, in het...
+- [LIVE | KNMI: code geel voor hitte blijft, ook vandaag drukkend warm](https://www.ad.nl/binnenland/live-knmi-code-geel-voor-hitte-blijft-ook-vandaag-drukkend-warm~a57707aa/)
+  > Het KNMI heeft code oranje iets na 02.00 uur in de nacht van zaterdag op zondag beëindigd. De weerswaarschuwing was afgegeven voor de provincie...
+- [De onvoorstelbare veerkracht van een jongetje met één hersenhelft: ‘Ik wil Ben blijven’](https://www.ad.nl/binnenland/de-onvoorstelbare-veerkracht-van-een-jongetje-met-een-hersenhelft-ik-wil-ben-blijven~ace0cf13/)
+  > Benjamin Blom is pas 4 jaar als hij plotseling neervalt in de tuin. Er volgt een lange medische zoektocht met een verpletterende diagnose. De kleuter...
+- [Man, wat heb ik veel gelogen op school](https://www.ad.nl/mezza/man-wat-heb-ik-veel-gelogen-op-school~a3a152fd/)
+  > Ik fiets regelmatig ’s ochtends met mijn vrouw naar haar werk. Eerst drinken we ergens koffie en dan rijden we in een vlot tempo naar de school waar...
+- [Het had tegen Zweden ook 7-4 kunnen zijn, maar wereldkampioenen beheersen kunst van het zakelijk winnen](https://www.ad.nl/wk-voetbal/het-had-tegen-zweden-ook-7-4-kunnen-zijn-maar-wereldkampioenen-beheersen-kunst-van-het-zakelijk-winnen~a66c4aa2/)
+  > De tweede WK-wedstrijd van Oranje kende meerdere gezichten. De belangrijkste conclusie: er was energie, er was teamgeest en er zijn weinig ploegen...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Wie de vitale cloud wil beschermen, heeft wederkerig vertrouwen nodig](https://fd.nl/opinie/1600684/wie-de-vitale-cloud-wil-beschermen-heeft-wederkerig-vertrouwen-nodig)
+  > Nederland blokkeert de Amerikaanse overname van Solvinity. Maar die ingreep kwam zo laat, dat het vertrouwen van investeerders schade opliep. Europa...
+- [De windmolens draaien nog lang niet in Amersfoort](https://fd.nl/tech-en-innovatie/1600026/de-windmolens-draaien-nog-lang-niet-in-amersfoort)
+  > Het loopt niet storm op de informatieavond in de gereformeerde kerk over de bouw van windmolens.  ‘Toen we de tender wonnen bleek dat er enorme...
+- [De brexit blijft Britse Belgen bezighouden: ‘Ik wil niet dat anderen dit moeten meemaken’](https://fd.nl/politiek/1600789/de-brexit-blijft-britse-belgen-bezighouden-ik-wil-niet-dat-anderen-dit-moeten-meemaken)
+  > Veel Britten die in en om Brussel wonen werden Belg nadat het Verenigd Koninkrijk had besloten om de EU te verlaten. Dat wil niet zeggen dat de...
+- [Luisterverhaal: Verhuurders profiteren van vraag naar spectaculaire auto’s bij eindexamengala’s](https://fd.nl/samenleving/1600902/luisterverhaal-verhuurders-profiteren-van-vraag-naar-spectaculaire-autos-bij-eindexamengalas)
+  > Deze week hoor je over hoe vervoersmiddelen naar eindexamengala’s steeds gekker worden.
 - [Echtgenote van Spaanse premier Sanchez moet terechtstaan voor corruptiebeschuldigingen](https://fd.nl/politiek/1600813/echtgenote-van-spaanse-premier-sanchez-moet-terechtstaan-voor-corruptiebeschuldigingen)
   > Begoña Gomez mag Spanje niet verlaten, heeft de rechter besloten.
-- [Iran: Straat van Hormuz dicht vanwege Israëlische aanvallen in Libanon](https://fd.nl/politiek/1600973/staakt-het-vuren-tussen-israel-en-hezbollah-geschonden)
-  > Iran zegt wel een onderhandelingsteam naar Zwitserland te sturen voor gesprekken met de VS. Het Amerikaanse leger stelt dat de zeestraat nog steeds...
-- [President van Polen neemt Zelensky hoogste Poolse onderscheiding af](https://fd.nl/politiek/1600972/president-van-polen-neemt-zelensky-hoogste-poolse-onderscheiding-af)
-  > Zelensky vernoemde vorige maand een legereenheid naar een nationalistische groepering die tijdens de Tweede Wereldoorlog 100.000 Polen vermoordde.
-- [Zomerstorm zorgt voor schade en verstoringen op het spoor](https://fd.nl/samenleving/1600971/zomerstorm-zorgt-voor-schade-en-verstoringen-op-het-spoor)
-  > Tussen Utrecht en ‘s-Hertogenbosch rijden minder treinen door een kapotte bovenleiding.
-- [FD wint journalistieke prijs voor onderzoek naar gesjoemel met energielabels](https://fd.nl/samenleving/1600812/fd-wint-journalistieke-prijs-voor-onderzoek-naar-gesjoemel-met-energielabels)
-  > De productie won in de categorie Aanmoedigingsprijs voor journalisten tot en met dertig jaar.
 
 ### Meest gelezen
 
