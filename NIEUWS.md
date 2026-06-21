@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-06-2026 om 21:18*
+*Laatst bijgewerkt: 21-06-2026 om 23:19*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [AFP: Iran nog steeds aan onderhandelingstafel in Zwitserland](https://www.ad.nl/buitenland/afp-iran-nog-steeds-aan-onderhandelingstafel-in-zwitserland~ac528ac3/)
-  > Iran voert in Zwitserland nog steeds gesprekken met de Verenigde Staten, met bemiddeling van Pakistan en Qatar. Dat zei een diplomaat die op de...
-- [Serena Williams (44) maakt sensationele rentree in enkelspel: tennislegende krijgt wildcard op Wimbledon](https://www.ad.nl/tennis/serena-williams-44-maakt-sensationele-rentree-in-enkelspel-tennislegende-krijgt-wildcard-op-wimbledon~afe25ad1/)
-  > Serena Williams maakt over ruim een week op Wimbledon na bijna vier jaar haar rentree in het enkelspel. De 23-voudig grandslamkampioen heeft van de...
-- [Ronald Koeman heeft zijn les geleerd: dit WK krijgt bijna iedereen minuten bij Oranje](https://www.ad.nl/wk-voetbal/ronald-koeman-heeft-zijn-les-geleerd-dit-wk-krijgt-bijna-iedereen-minuten-bij-oranje~a3c81a3f/)
-  > In de eerste twee WK-wedstrijden gebruikte Ronald Koeman al 18 verschillende spelers. In de selectie lijkt voor (bijna) iedereen wel iets te halen...
-- [Gewonden, onder wie peuter, bij Russische aanval op Nikopol](https://www.ad.nl/buitenland/gewonden-onder-wie-peuter-bij-russische-aanval-op-nikopol~adfb97be/)
-  > In het zuidelijke Nikopol is overdag een peuter gewond geraakt door Russische aanvallen, dat meldt het Oekraïense persbureau UNN. Volg alle...
-- [Podcast In Het Wiel | 'Zou Pogacar zich eigenlijk weleens schamen?'](https://www.ad.nl/wielrennen/podcast-in-het-wiel-zou-pogacar-zich-eigenlijk-weleens-schamen~a5ea502e/)
-  > Een volle aflevering van In Het Wiel, waar wordt teruggeblikt op de laatste voorbereidingskoersen op de Tour de France. In de Ronde van Zwitserland,...
+- [Danny Makkelie fluit WK-duel dat volgende tegenstander Oranje bepaalt](https://www.ad.nl/wk-voetbal/danny-makkelie-fluit-wk-duel-dat-volgende-tegenstander-oranje-bepaalt~a9be813a/)
+  > Danny Makkelie heeft een nieuwe WK-wedstrijd toegewezen gekregen. De Nederlandse scheidsrechter zal het groepsduel tussen Marokko en Haïti (25 juni...
+- [Rechtse pro-Trump-kandidaat wint nipt presidentsverkiezingen in Colombia](https://www.ad.nl/buitenland/rechtse-pro-trump-kandidaat-wint-nipt-presidentsverkiezingen-in-colombia~a9aa38ca/)
+  > Abelardo de la Espriella heeft de tweede en beslissende ronde van de presidentsverkiezingen in Colombia nipt gewonnen. Na meer dan 99 procent van de...
+- [Domper voor Kaapverdië: na historische openingstreffer draait Uruguay het om](https://www.ad.nl/wk-voetbal/domper-voor-kaapverdie-na-historische-openingstreffer-draait-uruguay-het-om~aec3d0ff/)
+  > Kaapverdië zorgde tijdens hun WK-debuut voor een daverende verrassing. Het Afrikaanse eiland hield titelfavoriet Spanje op 0-0. De volgende test is...
+- [Wéér toernooizege voor Wessel Nijman: darter maakt indruk met ruime zege op Rob Cross in finale](https://www.ad.nl/darts/weer-toernooizege-voor-wessel-nijman-darter-maakt-indruk-met-ruime-zege-op-rob-cross-in-finale~ae4a6d83/)
+  > Wessel Nijman is aan een geweldig seizoen bezig. De 25-jarige darter uit Uitgeest won zondag het Euro Tour-toernooi in de Slowaakse hoofdstad...
+- [België stelt opnieuw teleur: Rode Duivels scoren niet en eindigen met tien man tegen Iran](https://www.ad.nl/wk-voetbal/belgie-stelt-opnieuw-teleur-rode-duivels-scoren-niet-en-eindigen-met-tien-man-tegen-iran~a4d2eed9/)
+  > Voor België lijkt het WK nog niet begonnen. Na twee wedstrijden heeft nog geen Rode Duivel gescoord en met slechts twee punten moeten de Belgen vol...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘Meerderheid Britten teleurgesteld in de brexit’](https://fd.nl/economie/1600820/meerderheid-britten-teleurgesteld-in-de-brexit)
-  > Tot twee derde denkt dat het vertrek van hun land uit de Europese Unie in 2020 negatief heeft uitgepakt, aldus een peiling van Europese denktank ECFR.
-- [Denk proactief na over effect van AI](https://fd.nl/opinie/1600806/denk-proactief-na-over-effect-van-ai)
-  > Geen enkele technologische schok is pijnloos, maar een taks op nieuwe technieken leidt er alleen maar toe dat Nederland achterblijft.
-- [België start verkoop van 20%‑aandeel in staatsbank Belfius](https://fd.nl/bedrijfsleven/1600819/belgie-start-verkoop-van-20-aandeel-in-staatsbank-belfius)
-  > Verkoop kan de staat circa €2 mrd opleveren. Volgens Belgische media worden CVC, Rabobank, ING en het Franse Crédit Agricole genoemd als mogelijke...
-- [Coca-Cola vecht met Amerikaanse fiscus om $20 mrd](https://fd.nl/bedrijfsleven/1600979/coca-cola-vecht-met-amerikaanse-fiscus-om-20-mrd)
-  > De frisdrankproducent gaat in hoger beroep tegen de Amerikaanse belastingdienst. Die is het niet eens met de verrekenprijzen van Coca-Cola met...
-- [Duitsers moeten later met pensioen, stelt commissie voor](https://fd.nl/politiek/1600818/duitsers-moeten-later-met-pensioen-stelt-commissie-voor)
-  > Uitgelekte plannen om het Duitse pensioenstelsel overeind te houden, leiden tot ergernis bij de vakbeweging. Ook werkgevers en economen zijn kritisch.
+- [De verzekeraar van de BV Nederland zit in een dip, maar de topman maakt zich geen zorgen](https://fd.nl/bedrijfsleven/1600913/de-verzekeraar-van-de-bv-nederland-zit-in-een-dip-maar-de-topman-maakt-zich-geen-zorgen)
+  > Bij Atradius komt steeds minder geld binnen. De exportverzekeraar, die in opdracht van Financiën Nederlandse bedrijven helpt, ziet de...
+- [Afslankmiddelen geven markt voor eiwitpoeders forse impuls](https://fd.nl/bedrijfsleven/1600915/afslankmiddelen-geven-markt-voor-eiwitpoeders-forse-impuls)
+  > De prijs voor het supplement is in drie jaar tijd al vervijfvoudigd. FrieslandCampina ziet de vraag naar het poeder explosief groeien, vooral door de...
+- [Nieuwe tijdlijn](https://fd.nl/opinie/1600816/nieuwe-tijdlijn)
+  > Deze week krijgen de Britten waarschijnlijk hun zevende premier sinds het brexitreferendum, die er heus ook weer niets van zal weten te bakken.
+- [Niet werven, maar behoud van medewerkers prioriteit voor personeelszaken](https://fd.nl/economie/1600803/niet-werven-maar-behoud-van-medewerkers-prioriteit-voor-personeelszaken)
+  > Advieskantoor Berenschot ziet een verschuiving. Voorheen was het in een krappe arbeidsmarkt alle hens aan dek om nieuwe mensen te vinden. Nu draait...
+- [Europese bedrijven storten zich op hybride obligaties, markt hard op weg naar een recordjaar](https://fd.nl/financiele-markten/1600798/europese-bedrijven-storten-zich-op-hybride-obligaties-markt-hard-op-weg-naar-een-recordjaar)
+  > Telecom- en nutsbedrijven halen graag geld op met het speciale type obligatie, dat eerder nog gezien werd als een ‘exotisch’ instrument.
 
 ### Meest gelezen
 
