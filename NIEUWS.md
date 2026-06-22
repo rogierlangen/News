@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-06-2026 om 10:42*
+*Laatst bijgewerkt: 22-06-2026 om 15:55*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Starmers vermoedelijke opvolger hakt knopen liefst door in de pub](https://nos.nl/l/2619774)
-  > De Britse politiek is genadeloos: twee jaar nadat Keir Starmer de verkiezingen voor Labour won met een grote meerderheid, wordt hij afgezet door zijn...
-- [Gokbedrijven slepen Meta voor rechter vanwege advertenties illegale goksites](https://nos.nl/l/2619769)
-  > Legale gokbedrijven in Nederland stappen naar de rechter in een poging om Meta te dwingen illegale goksites harder aan te pakken. Ook dienen ze een...
-- [Aantal ebola-besmettingen Congo boven de 1000, bron nog steeds niet gevonden](https://nos.nl/l/2619761)
-  > Het aantal gevallen van ebola in Oost-Congo is gestegen tot meer dan duizend. Het gaat om bevestigde besmettingen. Het aantal staat nu op 1003, meldt...
-- [Zes doden bij nieuwe reeks van Amerikaanse luchtaanvallen op 'drugsboten'](https://nos.nl/l/2619760)
-  > De Amerikaanse krijgsmacht heeft een nieuwe reeks van aanvallen uitgevoerd op boten die drugs zouden smokkelen in het oostelijke deel van de Stille...
-- [De val van Mr Rules: hoe het premierschap van Starmer nooit van de grond kwam](https://nos.nl/l/2619757)
-  > De Britse premier Keir Starmer stopt ermee, zo kondigde hij vanmorgen aan. Daarmee komt een einde aan zijn premierschap, dat een kleine twee jaar...
+- [Econoom en oud-Fed-voorzitter Alan Greenspan (100) overleden](https://nos.nl/l/2619797)
+  > De invloedrijke econoom Alan Greenspan is vandaag op 100-jarige leeftijd overleden. Dat bevestigt zijn vrouw Andrea Mitchell aan NBC News, de...
+- [Nabestaanden vermoord echtpaar Meerstad: 'We kunnen het nauwelijks bevatten'](https://nos.nl/l/2619794)
+  > Familie en vrienden van de man en de vrouw die vorige week in hun woning in het Groningse Meerstad werden vermoord, treden voor het eerst naar...
+- [13 doden en 66 gewonden bij explosie aardgasterminal Qatar](https://nos.nl/l/2619791)
+  > Bij de explosie in een aardgasterminal in Qatar zijn zeker 13 mensen gekomen. Zij hadden de Indiase en Pakistaanse nationaliteit. Daarnaast zijn 66...
+- [TU Delft mag studieplekken voor vrouwen reserveren](https://nos.nl/l/2619790)
+  > De TU Delft mag van het College voor de Rechten van de Mens (CRM) studieplaatsen reserveren voor vrouwelijke studenten, meldt het College. Het...
+- [Podcast De Dag: hoe Nederland (steeds vaker) excuses aanbiedt](https://nos.nl/l/2619787)
+  > De excuses van premier Jetten aan de Molukse gemeenschap passen in een trend. Nederland biedt de laatste jaren steeds vaker excuses aan voor onrecht...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Clen V. (39) uit Lang leve de liefde verdacht van vergiftigen en verdrinken van zijn vrouw](https://www.ad.nl/binnenland/clen-v-39-uit-lang-leve-de-liefde-verdacht-van-vergiftigen-en-verdrinken-van-zijn-vrouw~aabb235b/)
-  > De 39-jarige Clen V., die wordt verdacht van de moord op zijn partner, heeft haar volgens het Openbaar Ministerie vergiftigd. Daarnaast heeft hij...
-- [Niemand wil de bakkerij van Annet overnemen: ‘Alles is nog in prima staat, je kan zo beginnen’](https://www.ad.nl/binnenland/niemand-wil-de-bakkerij-van-annet-overnemen-alles-is-nog-in-prima-staat-je-kan-zo-beginnen~a41332cb/)
-  > Annet van der Heyden (66) sluit met ‘een beetje’ pijn in het hart haar warme bakkerij in Soest. Een jonge bakker kan het bedrijfje makkelijk...
-- [Merel Westrik neemt presentatie Project Rembrandt voorlopig over van Annechien Steenhuizen](https://www.ad.nl/show/merel-westrik-neemt-presentatie-project-rembrandt-voorlopig-over-van-annechien-steenhuizen~a1d550c4/)
-  > Project Rembrandt keert in 2027 terug met een vijfde seizoen. Merel Westrik zal de jubileumeditie gaan presenteren. De voorgaande vier seizoenen...
-- [Spelers van Iran bedanken Los Angeles met handgeschreven briefje in kleedkamer](https://www.ad.nl/wk-voetbal/spelers-van-iran-bedanken-los-angeles-met-handgeschreven-briefje-in-kleedkamer~a5dfdb03/)
-  > Iran is speelstad Los Angeles dankbaar voor de gastvrijheid, ondanks de moeilijke omstandigheden voor het land op het WK voetbal. De ploeg liet na...
-- [Vaker gelijk krijgen in de meeting? Hier moet je mee stoppen](https://www.ad.nl/werk/vaker-gelijk-krijgen-in-de-meeting-hier-moet-je-mee-stoppen~aa43c141/)
-  > Misschien herken je het: je komt in een vergadering met een supergoed en origineel idee, maar in plaats van dat je applaus en schouderklopjes krijgt,...
+- [Olieprijs zakt, maar prijs voor diesel en benzine aan de pomp stijgt morgen met 1 cent: hoe kan dat?](https://www.ad.nl/economie/olieprijs-zakt-maar-prijs-voor-diesel-en-benzine-aan-de-pomp-stijgt-morgen-met-1-cent-hoe-kan-dat~a2f84417/)
+  > Ondanks een fors lagere olieprijs op de wereldmarkt maandag, worden benzine en diesel aan de Nederlandse pomp dinsdag toch opnieuw duurder, al is het...
+- [Vanaf woensdag code oranje vanwege extreme hitte in midden en zuiden van het land](https://www.ad.nl/binnenland/vanaf-woensdag-code-oranje-vanwege-extreme-hitte-in-midden-en-zuiden-van-het-land~a57707aa/)
+  > Het KNMI geeft vanaf woensdag om 12.00 uur code oranje af vanwege extreme hitte in het midden en zuiden van het land. Vanaf maandag wordt het...
+- [Nick Marsman naar Go Ahead Eagles, NEC versterkt zich met Sierhuis en Storm](https://www.ad.nl/voetbal/nick-marsman-naar-go-ahead-eagles-nec-versterkt-zich-met-sierhuis-en-storm~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Quinten Timber traint weer mee bij Oranje, ook afvaller Jeremie Frimpong in de VS](https://www.ad.nl/wk-voetbal/quinten-timber-traint-weer-mee-bij-oranje-ook-afvaller-jeremie-frimpong-in-de-vs~a2d5cab9/)
+  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
+- [Marieke heeft hulp nodig om de weg op te kunnen en zwangere Kimberley geeft update](https://www.ad.nl/show/marieke-heeft-hulp-nodig-om-de-weg-op-te-kunnen-en-zwangere-kimberley-geeft-update~a9dd8477/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Nog geen herstel bij geplaagd Ebusco: nieuwe orders nodig om 2027 te halen](https://fd.nl/bedrijfsleven/1601001/nog-geen-herstel-bij-geplaagd-ebusco-nieuwe-orders-nodig-om-2027-te-halen)
-  > De bussenbouwer strijdt al jaren voor zijn voortbestaan. ‘Als wij geen nieuwe orders binnenhalen, is eind 2026 het einde’, aldus oprichter Peter...
-- [Werken feministische vrouwen meer?](https://fd.nl/samenleving/1600995/werken-feministische-vrouwen-meer)
-  > Wetenswaardigheden op het gebied van loopbaan en personal finance.
-- [Investeringen met 3,5% gedaald in april](https://fd.nl/economie/1601000/investeringen-met-3-5-gedaald-in-april)
-  > Bedrijven en overheden hebben in april 2026 ongeveer 3,5% minder geïnvesteerd dan in april 2025, meldt het CBS.
-- [Westerse autobouwers maken China tot hun exportfabriek](https://fd.nl/bedrijfsleven/1600853/westerse-autobouwers-maken-china-tot-hun-exportfabriek)
-  > Nu Chinese merken de thuismarkt domineren, raken westerse fabrikanten in het nauw, en kiezen ze een nieuwe China-strategie: auto's bouwen in China...
-- [Installatiebedrijf Hanab rondt twee overnames af in het Verenigd Koninkrijk](https://fd.nl/bedrijfsleven/1600855/installatiebedrijf-hanab-rondt-twee-overnames-af-in-het-verenigd-koninkrijk)
-  > Naast de twee afgeronde overnames voert Hanab gesprekken met meerdere bedrijven om zijn positie in het Verenigd Koninkrijk verder uit te breiden.
+- [Conservatieve vriend van Trump nieuwe president van Colombia](https://fd.nl/politiek/1600875/conservatieve-vriend-van-trump-nieuwe-president-van-colombia)
+  > Abelardo de la Espriella, een politieke outsider, blijft zijn linkse rivaal nipt voor. De nieuwe president wil criminaliteit hard aanpakken en...
+- [Defensie investeert in ‘duurzame samenwerking’ met radarfabrikant Thales](https://fd.nl/bedrijfsleven/1601019/defensie-investeert-in-duurzame-samenwerking-met-radarfabrikant-thales)
+  > Onderdeel van de samenwerking is een investering in een nieuwe productielocatie en testfaciliteit in Hengelo.
+- [Lng-complex Ras Laffan komt terug, maar gasprijs blijft gevoelig voor risico](https://fd.nl/financiele-markten/1601002/lng-complex-ras-laffan-komt-terug-maar-gasprijs-blijft-gevoelig-voor-risico)
+  > Onder meer door de geringe Europese voorraden en de geopolitieke spanning liggen de gasprijzen structureel op een hoger niveau.
+- [OlinHuntsman: een chemiesprookje?](https://fd.nl/financiele-markten/1600999/olinhuntsman-een-chemiesprookje)
+  > De Amerikaanse chemiebedrijven Huntsman en Olin willen samen verder. Beleggers zijn vooralsnog erg sceptisch over deze overname die een fusie van...
+- [Nerd en netwerker, staatssecretaris Willemijn Aerdts is het allebei](https://fd.nl/politiek/1600730/nerd-en-netwerker-staatssecretaris-willemijn-aerdts-is-het-allebei)
+  > Met een zeldzaam overnameverbod wil staatssecretaris Aerdts het publieke belang beschermen. Een voltijds politiek ambt is nieuw voor haar, geheimen...
 
 ### Meest gelezen
 
