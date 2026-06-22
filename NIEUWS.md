@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-06-2026 om 19:35*
+*Laatst bijgewerkt: 22-06-2026 om 22:06*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [VN: situatie in Myanmar verslechtert door gebrek aan hulp en bombardementen leger](https://nos.nl/l/2619833)
+  > Het Myanmarese leger heeft in zes maanden tijd meer dan 700 burgerdoden veroorzaakt. Dat melden de Verenigde Naties in een nieuw rapport. Daarnaast...
 - [Statenlid Martin Bos maakte duizenden euro's belastinggeld op aan etentjes](https://nos.nl/l/2619828)
   > Zeeuws FVD-Statenlid Martin Bos gebruikte twee jaar lang geld uit een onkostenregeling voor in totaal 117 etentjes. Hij deed dit uit naam van de...
 - [WK 2026 wordt het meest vervuilende ooit: 'Een CO2-bom'](https://nos.nl/l/2619823)
@@ -16,9 +18,6 @@
   > "De overheid had wat meevoelender mogen zijn", zei de zichtbaar geëmotioneerde ex-kinderarts Károly Illy vandaag tegen de coronacommissie. Tijdens de...
 - [Grote radiotransfer: presentatoren Roodbeen en Kijk in de Vegte naar Radio 10](https://nos.nl/l/2619820)
   > Presentatoren Jan-Willem Roodbeen en Jeroen Kijk in de Vegte stappen over van NPO Radio 2 naar Radio 10. Ze worden er de opvolgers van Gordon en...
-- [Tien doden en tientallen gewonden in Oekraïne na Russische aanvallen](https://nos.nl/l/2619818)
-  > Bij Russische aanvallen in Oekraïne zijn zeker tien mensen gedood en 48 anderen gewond geraakt. Dat melden regionale autoriteiten in het land.
-      ...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De tirade van de doorgeslagen voetbalduider doet me denken aan de geboorte van mijn kind](https://www.ad.nl/binnenland/de-tirade-van-de-doorgeslagen-voetbalduider-doet-me-denken-aan-de-geboorte-van-mijn-kind~a175da45/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [IOC geeft groen licht voor Thialf als schaatslocatie voor Olympische Spelen 2030](https://www.ad.nl/schaatsen/ioc-geeft-groen-licht-voor-thialf-als-schaatslocatie-voor-olympische-spelen-2030~a04791b1/)
-  > Het Internationaal Olympisch Comité (IOC) keurt Thialf goed als locatie voor het olympisch schaatstoernooi in 2030. Dat maakte het uitvoerend comité...
-- [Coronaverhoor: oud-minister weet niet meer precies waarom scholen eind 2020 dicht moesten](https://www.ad.nl/politiek/coronaverhoor-oud-minister-weet-niet-meer-precies-waarom-scholen-eind-2020-dicht-moesten~a528daf79/)
-  > De coronaverhoren staan deze week in het teken van de schoolsluitingen. Maandag verscheen kinderarts Károly Illy, destijds OMT-lid en voorzitter van...
-- [Polen en Oekraïne staan zij aan zij tegen Poetin, maar ruziën over pijnlijk oorlogsverleden](https://www.ad.nl/buitenland/polen-en-oekraine-staan-zij-aan-zij-tegen-poetin-maar-ruzien-over-pijnlijk-oorlogsverleden~a7926abe/)
-  > Oekraïne en Polen trekken hoge onderscheidingen in en geven eerder verkregen decoraties terug. De twee landen zijn bondgenoten in de strijd tegen...
-- [Recordbreker Lionel Messi steelt opnieuw de show voor Argentinië met twee goals tegen stug Oostenrijk](https://www.ad.nl/wk-voetbal/recordbreker-lionel-messi-steelt-opnieuw-de-show-voor-argentinie-met-twee-goals-tegen-stug-oostenrijk~a25c1913/)
-  > Argentinië heeft ook de tweede wedstrijd op dit WK gewonnen. De regerend wereldkampioen won in Dallas met 2-0 van Oostenrijk dankzij twee goals van...
+- [Hackers minder succesvol bij Nederlandse bedrijven, maar einde datalekken nog niet in zicht](https://www.ad.nl/tech/hackers-minder-succesvol-bij-nederlandse-bedrijven-maar-einde-datalekken-nog-niet-in-zicht~a418010a/)
+  > Opvallend, in tijden van grote datalekken en Russische hackers: Nederlandse bedrijven waren afgelopen jaar mínder vaak het doelwit van een...
+- [Messi maakt vrouw en zoons trots met WK-record, Sidny Lopes Cabral leeft zijn droom met Kaapverdië](https://www.ad.nl/wk-voetbal/messi-maakt-vrouw-en-zoons-trots-met-wk-record-sidny-lopes-cabral-leeft-zijn-droom-met-kaapverdie~a060ccd4/)
+  > Tijdens het WK 2026 zullen spelers van alle 48 deelnemende landen weer veel leuke foto’s en filmpjes delen op social media. Wij verzamelen hier de...
+- [Frankrijk zoekt na stortbui naar volgende treffer tegen Irak, Mbappé opnieuw dichtbij](https://www.ad.nl/wk-voetbal/frankrijk-zoekt-na-stortbui-naar-volgende-treffer-tegen-irak-mbappe-opnieuw-dichtbij~a3d1f4c9/)
+  > Frankrijk begon het WK voetbal met een zege op Senegal en kan zich vandaag verzekeren van een plek in de knock-outfase. Daarvoor moet Irak worden...
+- [Mikky reageert gevat op veelbesproken interview van haar man Frenkie de Jong: ‘Wij kijken en wij zien het’](https://www.ad.nl/wk-voetbal/mikky-reageert-gevat-op-veelbesproken-interview-van-haar-man-frenkie-de-jong-wij-kijken-en-wij-zien-het~aed508d3/)
+  > Mikky Kiemeney is tijdens het WK in de Verenigde Staten om haar man Frenkie de Jong te supporten. Met een gevat bijschrift reageerde ze nog even op...
+- [NEC versterkt zich met Sierhuis en Storm, Hearts gaat voor Belgische coach](https://www.ad.nl/voetbal/nec-versterkt-zich-met-sierhuis-en-storm-hearts-gaat-voor-belgische-coach~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
 
 ### Meest gelezen
 
@@ -47,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [SpaceX sleurt Nasdaq omlaag](https://fd.nl/financiele-markten/1601088/spacex-sleurt-nasdaq-omlaag)
+  > Beleggers worden nerveus over het AI- en ruimteaandeel na de aankondiging van uitgifte van schuldpapier. En de beurs trekt nog geen profijt van de...
 - [KNMI: vanaf woensdag code oranje voor negen provincies](https://fd.nl/samenleving/1601078/knmi-vanaf-woensdag-code-oranje-voor-negen-provincies)
   > Het kwik stijgt deze week drie dagen lang naar minstens 34 graden. De waarschuwing geldt in ieder geval tot en met vrijdag en wordt daarna mogelijk...
 - [Realisme gevraagd in debat over infrastructuur](https://fd.nl/opinie/1601018/realisme-gevraagd-in-debat-over-infrastructuur)
@@ -55,8 +56,6 @@
   > Personeel bij twee fabrieken van FrieslandCampina legt het werk neer nadat de cao-onderhandelingen voor de zuivelsector eerder vastliepen.
 - [Rechter verordonneert uitzetten huurder uit villa aan de Amstel](https://fd.nl/economie/1601021/rechter-verordonneert-uitzetten-huurder-uit-villa-aan-de-amstel)
   > In het topsegment kunnen woningen jaren te koop staan en dat leidt soms tot issues. Aan de Amstel klaagt een huurder over gebreken. De rechter...
-- [Rijschool vrijgesteld van heffing fossiele zakelijke auto’s](https://fd.nl/politiek/1601022/rijschool-vrijgesteld-van-heffing-fossiele-zakelijke-autos)
-  > Zij krijgen een vrijstelling, omdat kunnen schakelen een voorwaarde is voor het halen van een volwaardig rijbewijs B. Daarvoor moeten rijscholen...
 
 ### Meest gelezen
 
