@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-06-2026 om 23:19*
+*Laatst bijgewerkt: 22-06-2026 om 04:53*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Militair vliegtuig neergestort in Bolivia, zes doden](https://nos.nl/l/2619701)
-  > In Bolivia is een militair toestel neergestort. Alle zes inzittenden zijn om het leven gekomen. Het Boliviaanse ministerie van Defensie zegt dat het...
-- [Periode met extreme hitte in Europa, met belangrijke rol voor klimaatverandering](https://nos.nl/l/2619698)
-  > We staan aan het begin van een bijzondere klimaatgebeurtenis in Europa. Een groot deel van het continent heeft te maken met een periode van extreme...
-- [Blijdschap, maar ook dubbel gevoel na excuses aan Molukkers: 'Te laat voor onze ouders'](https://nos.nl/l/2619670)
-  > "Mijn vader en moeder leven niet meer. Het is te laat", zegt een Molukse man over de excuses die premier Jetten vanmiddag namens de Nederlandse...
-- [Vrouw verdrinkt in de Waal bij reddingsactie kinderen](https://nos.nl/l/2619665)
-  > Een 42-jarige vrouw uit Lunteren is vanmiddag verdronken in de Waal bij Ochten. Ze bracht enkele kinderen in veiligheid die bij een krib aan het...
-- [Hittegolf treft Europa, mogelijk "warmste dag ooit" in Frankrijk morgen](https://nos.nl/l/2619664)
-  > Een geannuleerde WK-vertoning, gesloten scholen en een alcoholverbod: Frankrijk en Spanje nemen maatregelen voor de hoge temperaturen van dit weekend...
+- [Wekdienst 22/6: Coronaverhoren over onderwijs en jongeren • Argentinië in actie op WK voetbal](https://nos.nl/l/2619727)
+  > Goedemorgen! De parlementaire enquêtecommissie Corona ondervraagt voormalig OMT-lid en kinderarts Károly Illy en oud-onderwijsminister Ingrid van...
+- [Webshops beter toegankelijk voor slechtzienden, maar nog veel werk nodig](https://nos.nl/l/2619726)
+  > Het is voor mensen met een visuele beperking nog steeds ingewikkeld om online te winkelen. Het gaat wel beter, zegt onderzoeksbureau Level Level,...
+- [A27 tussen Gorinchem en Everdingen vier weken dicht](https://nos.nl/l/2619720)
+  > De snelweg A27 is de komende weken dicht tussen de knooppunten Gorinchem en Everdingen, net onder Utrecht. De weg wordt verbreed.
+        Sinds 05.00...
+- ['Bemoedigende vooruitgang' bij eerste ronde gesprekken VS en Iran](https://nos.nl/l/2619719)
+  > De eerste ronde van de onderhandelingen tussen de Verenigde Staten en Iran zit erop. De landen spraken sinds gisterochtend met elkaar in een...
+- [Nipte voorsprong voor Trump-lieveling bij presidentsverkiezingen Colombia](https://nos.nl/l/2619717)
+  > De presidentsverkiezingen in Colombia lijken te zijn gewonnen door de rechtse kandidaat Abelardo de la Espriella. Die wordt gesteund door de...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Danny Makkelie fluit WK-duel dat volgende tegenstander Oranje bepaalt](https://www.ad.nl/wk-voetbal/danny-makkelie-fluit-wk-duel-dat-volgende-tegenstander-oranje-bepaalt~a9be813a/)
-  > Danny Makkelie heeft een nieuwe WK-wedstrijd toegewezen gekregen. De Nederlandse scheidsrechter zal het groepsduel tussen Marokko en Haïti (25 juni...
-- [Rechtse pro-Trump-kandidaat wint nipt presidentsverkiezingen in Colombia](https://www.ad.nl/buitenland/rechtse-pro-trump-kandidaat-wint-nipt-presidentsverkiezingen-in-colombia~a9aa38ca/)
-  > Abelardo de la Espriella heeft de tweede en beslissende ronde van de presidentsverkiezingen in Colombia nipt gewonnen. Na meer dan 99 procent van de...
-- [Domper voor Kaapverdië: na historische openingstreffer draait Uruguay het om](https://www.ad.nl/wk-voetbal/domper-voor-kaapverdie-na-historische-openingstreffer-draait-uruguay-het-om~aec3d0ff/)
-  > Kaapverdië zorgde tijdens hun WK-debuut voor een daverende verrassing. Het Afrikaanse eiland hield titelfavoriet Spanje op 0-0. De volgende test is...
-- [Wéér toernooizege voor Wessel Nijman: darter maakt indruk met ruime zege op Rob Cross in finale](https://www.ad.nl/darts/weer-toernooizege-voor-wessel-nijman-darter-maakt-indruk-met-ruime-zege-op-rob-cross-in-finale~ae4a6d83/)
-  > Wessel Nijman is aan een geweldig seizoen bezig. De 25-jarige darter uit Uitgeest won zondag het Euro Tour-toernooi in de Slowaakse hoofdstad...
-- [België stelt opnieuw teleur: Rode Duivels scoren niet en eindigen met tien man tegen Iran](https://www.ad.nl/wk-voetbal/belgie-stelt-opnieuw-teleur-rode-duivels-scoren-niet-en-eindigen-met-tien-man-tegen-iran~a4d2eed9/)
-  > Voor België lijkt het WK nog niet begonnen. Na twee wedstrijden heeft nog geen Rode Duivel gescoord en met slechts twee punten moeten de Belgen vol...
+- [Ook deze goedkope Chinese auto’s krijgen te maken met forse strafheffing](https://www.ad.nl/auto/ook-deze-goedkope-chinese-autos-krijgen-te-maken-met-forse-strafheffing~acc30ebe/)
+  > De Europese Unie bereidt nieuwe maatregelen voor tegen de opmars van Chinese auto’s in Europa. Ditmaal krijgen ook goedkope Chinese plug-inhybrides...
+- [Salah breekt vloek van Egypte en Kaapverdië stunt opnieuw: dit gebeurde op het WK terwijl jij sliep](https://www.ad.nl/wk-voetbal/salah-breekt-vloek-van-egypte-en-kaapverdie-stunt-opnieuw-dit-gebeurde-op-het-wk-terwijl-jij-sliep~a8255869/)
+  > Nederland ging slapen met de teleurstelling bij onze zuiderburen met een 0-0 tegen Iran. Daarna gebeurde nog veel meer in de WK-nacht. Zo verraste...
+- [Verzorgster sprong in krokodillenverblijf om Britse peuter te redden: ‘Heldin’](https://www.ad.nl/buitenland/verzorgster-sprong-in-krokodillenverblijf-om-britse-peuter-te-redden-heldin~a996720c/)
+  > Een peuter is in een Britse dierentuin aan nog ernstiger verwondingen ontkomen dankzij dierenverzorgster Tracey Johnson, die meteen ingreep. Het kind...
+- [Van brandende hooibalen tot stilgevallen nieuwbouw: waarom het stikstofdossier zo explosief is](https://www.ad.nl/nieuws/van-brandende-hooibalen-tot-stilgevallen-nieuwbouw-waarom-het-stikstofdossier-zo-explosief-is~ab952abf/)
+  > Deze week moet het gebeuren: het kabinet presenteert een politieke oplossing voor de voortslepende stikstofcrisis. Waarom is het zo spannend? Gaat nu...
+- [Thijs Römer zegt meermaals ‘het spijt me’ in denkbeeldige cel van duct tape](https://www.ad.nl/show/thijs-romer-zegt-meermaals-het-spijt-me-in-denkbeeldige-cel-van-duct-tape~a9a48c9c/)
+  > In een klein studiocomplex in Amsterdam-Noord speelde acteur Thijs Römer (47) zondagavond zijn omstreden theatervoorstelling. Over de gebeurtenissen...
 
 ### Meest gelezen
 
@@ -46,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Rotterdams bedrijf gelinkt aan beruchte goudroof](https://fd.nl/economie/1600938/rotterdams-bedrijf-gelinkt-aan-beruchte-goudroof)
+  > Vandaag in Dagkoers: een strafbeschikking van €70 mln voor een Rotterdamse brievenbusfirma; het gebruik van afslankmiddelen geeft impuls aan de...
 - [De verzekeraar van de BV Nederland zit in een dip, maar de topman maakt zich geen zorgen](https://fd.nl/bedrijfsleven/1600913/de-verzekeraar-van-de-bv-nederland-zit-in-een-dip-maar-de-topman-maakt-zich-geen-zorgen)
   > Bij Atradius komt steeds minder geld binnen. De exportverzekeraar, die in opdracht van Financiën Nederlandse bedrijven helpt, ziet de...
 - [Afslankmiddelen geven markt voor eiwitpoeders forse impuls](https://fd.nl/bedrijfsleven/1600915/afslankmiddelen-geven-markt-voor-eiwitpoeders-forse-impuls)
@@ -54,8 +57,6 @@
   > Deze week krijgen de Britten waarschijnlijk hun zevende premier sinds het brexitreferendum, die er heus ook weer niets van zal weten te bakken.
 - [Niet werven, maar behoud van medewerkers prioriteit voor personeelszaken](https://fd.nl/economie/1600803/niet-werven-maar-behoud-van-medewerkers-prioriteit-voor-personeelszaken)
   > Advieskantoor Berenschot ziet een verschuiving. Voorheen was het in een krappe arbeidsmarkt alle hens aan dek om nieuwe mensen te vinden. Nu draait...
-- [Europese bedrijven storten zich op hybride obligaties, markt hard op weg naar een recordjaar](https://fd.nl/financiele-markten/1600798/europese-bedrijven-storten-zich-op-hybride-obligaties-markt-hard-op-weg-naar-een-recordjaar)
-  > Telecom- en nutsbedrijven halen graag geld op met het speciale type obligatie, dat eerder nog gezien werd als een ‘exotisch’ instrument.
 
 ### Meest gelezen
 
