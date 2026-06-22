@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-06-2026 om 04:53*
+*Laatst bijgewerkt: 22-06-2026 om 10:42*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Wekdienst 22/6: Coronaverhoren over onderwijs en jongeren • Argentinië in actie op WK voetbal](https://nos.nl/l/2619727)
-  > Goedemorgen! De parlementaire enquêtecommissie Corona ondervraagt voormalig OMT-lid en kinderarts Károly Illy en oud-onderwijsminister Ingrid van...
-- [Webshops beter toegankelijk voor slechtzienden, maar nog veel werk nodig](https://nos.nl/l/2619726)
-  > Het is voor mensen met een visuele beperking nog steeds ingewikkeld om online te winkelen. Het gaat wel beter, zegt onderzoeksbureau Level Level,...
-- [A27 tussen Gorinchem en Everdingen vier weken dicht](https://nos.nl/l/2619720)
-  > De snelweg A27 is de komende weken dicht tussen de knooppunten Gorinchem en Everdingen, net onder Utrecht. De weg wordt verbreed.
-        Sinds 05.00...
-- ['Bemoedigende vooruitgang' bij eerste ronde gesprekken VS en Iran](https://nos.nl/l/2619719)
-  > De eerste ronde van de onderhandelingen tussen de Verenigde Staten en Iran zit erop. De landen spraken sinds gisterochtend met elkaar in een...
-- [Nipte voorsprong voor Trump-lieveling bij presidentsverkiezingen Colombia](https://nos.nl/l/2619717)
-  > De presidentsverkiezingen in Colombia lijken te zijn gewonnen door de rechtse kandidaat Abelardo de la Espriella. Die wordt gesteund door de...
+- [Starmers vermoedelijke opvolger hakt knopen liefst door in de pub](https://nos.nl/l/2619774)
+  > De Britse politiek is genadeloos: twee jaar nadat Keir Starmer de verkiezingen voor Labour won met een grote meerderheid, wordt hij afgezet door zijn...
+- [Gokbedrijven slepen Meta voor rechter vanwege advertenties illegale goksites](https://nos.nl/l/2619769)
+  > Legale gokbedrijven in Nederland stappen naar de rechter in een poging om Meta te dwingen illegale goksites harder aan te pakken. Ook dienen ze een...
+- [Aantal ebola-besmettingen Congo boven de 1000, bron nog steeds niet gevonden](https://nos.nl/l/2619761)
+  > Het aantal gevallen van ebola in Oost-Congo is gestegen tot meer dan duizend. Het gaat om bevestigde besmettingen. Het aantal staat nu op 1003, meldt...
+- [Zes doden bij nieuwe reeks van Amerikaanse luchtaanvallen op 'drugsboten'](https://nos.nl/l/2619760)
+  > De Amerikaanse krijgsmacht heeft een nieuwe reeks van aanvallen uitgevoerd op boten die drugs zouden smokkelen in het oostelijke deel van de Stille...
+- [De val van Mr Rules: hoe het premierschap van Starmer nooit van de grond kwam](https://nos.nl/l/2619757)
+  > De Britse premier Keir Starmer stopt ermee, zo kondigde hij vanmorgen aan. Daarmee komt een einde aan zijn premierschap, dat een kleine twee jaar...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ook deze goedkope Chinese auto’s krijgen te maken met forse strafheffing](https://www.ad.nl/auto/ook-deze-goedkope-chinese-autos-krijgen-te-maken-met-forse-strafheffing~acc30ebe/)
-  > De Europese Unie bereidt nieuwe maatregelen voor tegen de opmars van Chinese auto’s in Europa. Ditmaal krijgen ook goedkope Chinese plug-inhybrides...
-- [Salah breekt vloek van Egypte en Kaapverdië stunt opnieuw: dit gebeurde op het WK terwijl jij sliep](https://www.ad.nl/wk-voetbal/salah-breekt-vloek-van-egypte-en-kaapverdie-stunt-opnieuw-dit-gebeurde-op-het-wk-terwijl-jij-sliep~a8255869/)
-  > Nederland ging slapen met de teleurstelling bij onze zuiderburen met een 0-0 tegen Iran. Daarna gebeurde nog veel meer in de WK-nacht. Zo verraste...
-- [Verzorgster sprong in krokodillenverblijf om Britse peuter te redden: ‘Heldin’](https://www.ad.nl/buitenland/verzorgster-sprong-in-krokodillenverblijf-om-britse-peuter-te-redden-heldin~a996720c/)
-  > Een peuter is in een Britse dierentuin aan nog ernstiger verwondingen ontkomen dankzij dierenverzorgster Tracey Johnson, die meteen ingreep. Het kind...
-- [Van brandende hooibalen tot stilgevallen nieuwbouw: waarom het stikstofdossier zo explosief is](https://www.ad.nl/nieuws/van-brandende-hooibalen-tot-stilgevallen-nieuwbouw-waarom-het-stikstofdossier-zo-explosief-is~ab952abf/)
-  > Deze week moet het gebeuren: het kabinet presenteert een politieke oplossing voor de voortslepende stikstofcrisis. Waarom is het zo spannend? Gaat nu...
-- [Thijs Römer zegt meermaals ‘het spijt me’ in denkbeeldige cel van duct tape](https://www.ad.nl/show/thijs-romer-zegt-meermaals-het-spijt-me-in-denkbeeldige-cel-van-duct-tape~a9a48c9c/)
-  > In een klein studiocomplex in Amsterdam-Noord speelde acteur Thijs Römer (47) zondagavond zijn omstreden theatervoorstelling. Over de gebeurtenissen...
+- [Clen V. (39) uit Lang leve de liefde verdacht van vergiftigen en verdrinken van zijn vrouw](https://www.ad.nl/binnenland/clen-v-39-uit-lang-leve-de-liefde-verdacht-van-vergiftigen-en-verdrinken-van-zijn-vrouw~aabb235b/)
+  > De 39-jarige Clen V., die wordt verdacht van de moord op zijn partner, heeft haar volgens het Openbaar Ministerie vergiftigd. Daarnaast heeft hij...
+- [Niemand wil de bakkerij van Annet overnemen: ‘Alles is nog in prima staat, je kan zo beginnen’](https://www.ad.nl/binnenland/niemand-wil-de-bakkerij-van-annet-overnemen-alles-is-nog-in-prima-staat-je-kan-zo-beginnen~a41332cb/)
+  > Annet van der Heyden (66) sluit met ‘een beetje’ pijn in het hart haar warme bakkerij in Soest. Een jonge bakker kan het bedrijfje makkelijk...
+- [Merel Westrik neemt presentatie Project Rembrandt voorlopig over van Annechien Steenhuizen](https://www.ad.nl/show/merel-westrik-neemt-presentatie-project-rembrandt-voorlopig-over-van-annechien-steenhuizen~a1d550c4/)
+  > Project Rembrandt keert in 2027 terug met een vijfde seizoen. Merel Westrik zal de jubileumeditie gaan presenteren. De voorgaande vier seizoenen...
+- [Spelers van Iran bedanken Los Angeles met handgeschreven briefje in kleedkamer](https://www.ad.nl/wk-voetbal/spelers-van-iran-bedanken-los-angeles-met-handgeschreven-briefje-in-kleedkamer~a5dfdb03/)
+  > Iran is speelstad Los Angeles dankbaar voor de gastvrijheid, ondanks de moeilijke omstandigheden voor het land op het WK voetbal. De ploeg liet na...
+- [Vaker gelijk krijgen in de meeting? Hier moet je mee stoppen](https://www.ad.nl/werk/vaker-gelijk-krijgen-in-de-meeting-hier-moet-je-mee-stoppen~aa43c141/)
+  > Misschien herken je het: je komt in een vergadering met een supergoed en origineel idee, maar in plaats van dat je applaus en schouderklopjes krijgt,...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Rotterdams bedrijf gelinkt aan beruchte goudroof](https://fd.nl/economie/1600938/rotterdams-bedrijf-gelinkt-aan-beruchte-goudroof)
-  > Vandaag in Dagkoers: een strafbeschikking van €70 mln voor een Rotterdamse brievenbusfirma; het gebruik van afslankmiddelen geeft impuls aan de...
-- [De verzekeraar van de BV Nederland zit in een dip, maar de topman maakt zich geen zorgen](https://fd.nl/bedrijfsleven/1600913/de-verzekeraar-van-de-bv-nederland-zit-in-een-dip-maar-de-topman-maakt-zich-geen-zorgen)
-  > Bij Atradius komt steeds minder geld binnen. De exportverzekeraar, die in opdracht van Financiën Nederlandse bedrijven helpt, ziet de...
-- [Afslankmiddelen geven markt voor eiwitpoeders forse impuls](https://fd.nl/bedrijfsleven/1600915/afslankmiddelen-geven-markt-voor-eiwitpoeders-forse-impuls)
-  > De prijs voor het supplement is in drie jaar tijd al vervijfvoudigd. FrieslandCampina ziet de vraag naar het poeder explosief groeien, vooral door de...
-- [Nieuwe tijdlijn](https://fd.nl/opinie/1600816/nieuwe-tijdlijn)
-  > Deze week krijgen de Britten waarschijnlijk hun zevende premier sinds het brexitreferendum, die er heus ook weer niets van zal weten te bakken.
-- [Niet werven, maar behoud van medewerkers prioriteit voor personeelszaken](https://fd.nl/economie/1600803/niet-werven-maar-behoud-van-medewerkers-prioriteit-voor-personeelszaken)
-  > Advieskantoor Berenschot ziet een verschuiving. Voorheen was het in een krappe arbeidsmarkt alle hens aan dek om nieuwe mensen te vinden. Nu draait...
+- [Nog geen herstel bij geplaagd Ebusco: nieuwe orders nodig om 2027 te halen](https://fd.nl/bedrijfsleven/1601001/nog-geen-herstel-bij-geplaagd-ebusco-nieuwe-orders-nodig-om-2027-te-halen)
+  > De bussenbouwer strijdt al jaren voor zijn voortbestaan. ‘Als wij geen nieuwe orders binnenhalen, is eind 2026 het einde’, aldus oprichter Peter...
+- [Werken feministische vrouwen meer?](https://fd.nl/samenleving/1600995/werken-feministische-vrouwen-meer)
+  > Wetenswaardigheden op het gebied van loopbaan en personal finance.
+- [Investeringen met 3,5% gedaald in april](https://fd.nl/economie/1601000/investeringen-met-3-5-gedaald-in-april)
+  > Bedrijven en overheden hebben in april 2026 ongeveer 3,5% minder geïnvesteerd dan in april 2025, meldt het CBS.
+- [Westerse autobouwers maken China tot hun exportfabriek](https://fd.nl/bedrijfsleven/1600853/westerse-autobouwers-maken-china-tot-hun-exportfabriek)
+  > Nu Chinese merken de thuismarkt domineren, raken westerse fabrikanten in het nauw, en kiezen ze een nieuwe China-strategie: auto's bouwen in China...
+- [Installatiebedrijf Hanab rondt twee overnames af in het Verenigd Koninkrijk](https://fd.nl/bedrijfsleven/1600855/installatiebedrijf-hanab-rondt-twee-overnames-af-in-het-verenigd-koninkrijk)
+  > Naast de twee afgeronde overnames voert Hanab gesprekken met meerdere bedrijven om zijn positie in het Verenigd Koninkrijk verder uit te breiden.
 
 ### Meest gelezen
 
