@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-06-2026 om 15:55*
+*Laatst bijgewerkt: 22-06-2026 om 19:35*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Econoom en oud-Fed-voorzitter Alan Greenspan (100) overleden](https://nos.nl/l/2619797)
-  > De invloedrijke econoom Alan Greenspan is vandaag op 100-jarige leeftijd overleden. Dat bevestigt zijn vrouw Andrea Mitchell aan NBC News, de...
-- [Nabestaanden vermoord echtpaar Meerstad: 'We kunnen het nauwelijks bevatten'](https://nos.nl/l/2619794)
-  > Familie en vrienden van de man en de vrouw die vorige week in hun woning in het Groningse Meerstad werden vermoord, treden voor het eerst naar...
-- [13 doden en 66 gewonden bij explosie aardgasterminal Qatar](https://nos.nl/l/2619791)
-  > Bij de explosie in een aardgasterminal in Qatar zijn zeker 13 mensen gekomen. Zij hadden de Indiase en Pakistaanse nationaliteit. Daarnaast zijn 66...
-- [TU Delft mag studieplekken voor vrouwen reserveren](https://nos.nl/l/2619790)
-  > De TU Delft mag van het College voor de Rechten van de Mens (CRM) studieplaatsen reserveren voor vrouwelijke studenten, meldt het College. Het...
-- [Podcast De Dag: hoe Nederland (steeds vaker) excuses aanbiedt](https://nos.nl/l/2619787)
-  > De excuses van premier Jetten aan de Molukse gemeenschap passen in een trend. Nederland biedt de laatste jaren steeds vaker excuses aan voor onrecht...
+- [Statenlid Martin Bos maakte duizenden euro's belastinggeld op aan etentjes](https://nos.nl/l/2619828)
+  > Zeeuws FVD-Statenlid Martin Bos gebruikte twee jaar lang geld uit een onkostenregeling voor in totaal 117 etentjes. Hij deed dit uit naam van de...
+- [WK 2026 wordt het meest vervuilende ooit: 'Een CO2-bom'](https://nos.nl/l/2619823)
+  > Milieudeskundigen verwachten dat dit het smerigste WK in de geschiedenis wordt. Het toernooi wordt gehouden in drie gastlanden en zestien...
+- [‘Eenzaam’ of ‘enorm veilig’? Niet elk OMT-lid ervoer genoeg hulp bij bedreiging](https://nos.nl/l/2619822)
+  > "De overheid had wat meevoelender mogen zijn", zei de zichtbaar geëmotioneerde ex-kinderarts Károly Illy vandaag tegen de coronacommissie. Tijdens de...
+- [Grote radiotransfer: presentatoren Roodbeen en Kijk in de Vegte naar Radio 10](https://nos.nl/l/2619820)
+  > Presentatoren Jan-Willem Roodbeen en Jeroen Kijk in de Vegte stappen over van NPO Radio 2 naar Radio 10. Ze worden er de opvolgers van Gordon en...
+- [Tien doden en tientallen gewonden in Oekraïne na Russische aanvallen](https://nos.nl/l/2619818)
+  > Bij Russische aanvallen in Oekraïne zijn zeker tien mensen gedood en 48 anderen gewond geraakt. Dat melden regionale autoriteiten in het land.
+      ...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Olieprijs zakt, maar prijs voor diesel en benzine aan de pomp stijgt morgen met 1 cent: hoe kan dat?](https://www.ad.nl/economie/olieprijs-zakt-maar-prijs-voor-diesel-en-benzine-aan-de-pomp-stijgt-morgen-met-1-cent-hoe-kan-dat~a2f84417/)
-  > Ondanks een fors lagere olieprijs op de wereldmarkt maandag, worden benzine en diesel aan de Nederlandse pomp dinsdag toch opnieuw duurder, al is het...
-- [Vanaf woensdag code oranje vanwege extreme hitte in midden en zuiden van het land](https://www.ad.nl/binnenland/vanaf-woensdag-code-oranje-vanwege-extreme-hitte-in-midden-en-zuiden-van-het-land~a57707aa/)
-  > Het KNMI geeft vanaf woensdag om 12.00 uur code oranje af vanwege extreme hitte in het midden en zuiden van het land. Vanaf maandag wordt het...
-- [Nick Marsman naar Go Ahead Eagles, NEC versterkt zich met Sierhuis en Storm](https://www.ad.nl/voetbal/nick-marsman-naar-go-ahead-eagles-nec-versterkt-zich-met-sierhuis-en-storm~ad10f02c/)
-  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
-- [Quinten Timber traint weer mee bij Oranje, ook afvaller Jeremie Frimpong in de VS](https://www.ad.nl/wk-voetbal/quinten-timber-traint-weer-mee-bij-oranje-ook-afvaller-jeremie-frimpong-in-de-vs~a2d5cab9/)
-  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
-- [Marieke heeft hulp nodig om de weg op te kunnen en zwangere Kimberley geeft update](https://www.ad.nl/show/marieke-heeft-hulp-nodig-om-de-weg-op-te-kunnen-en-zwangere-kimberley-geeft-update~a9dd8477/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [De tirade van de doorgeslagen voetbalduider doet me denken aan de geboorte van mijn kind](https://www.ad.nl/binnenland/de-tirade-van-de-doorgeslagen-voetbalduider-doet-me-denken-aan-de-geboorte-van-mijn-kind~a175da45/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [IOC geeft groen licht voor Thialf als schaatslocatie voor Olympische Spelen 2030](https://www.ad.nl/schaatsen/ioc-geeft-groen-licht-voor-thialf-als-schaatslocatie-voor-olympische-spelen-2030~a04791b1/)
+  > Het Internationaal Olympisch Comité (IOC) keurt Thialf goed als locatie voor het olympisch schaatstoernooi in 2030. Dat maakte het uitvoerend comité...
+- [Coronaverhoor: oud-minister weet niet meer precies waarom scholen eind 2020 dicht moesten](https://www.ad.nl/politiek/coronaverhoor-oud-minister-weet-niet-meer-precies-waarom-scholen-eind-2020-dicht-moesten~a528daf79/)
+  > De coronaverhoren staan deze week in het teken van de schoolsluitingen. Maandag verscheen kinderarts Károly Illy, destijds OMT-lid en voorzitter van...
+- [Polen en Oekraïne staan zij aan zij tegen Poetin, maar ruziën over pijnlijk oorlogsverleden](https://www.ad.nl/buitenland/polen-en-oekraine-staan-zij-aan-zij-tegen-poetin-maar-ruzien-over-pijnlijk-oorlogsverleden~a7926abe/)
+  > Oekraïne en Polen trekken hoge onderscheidingen in en geven eerder verkregen decoraties terug. De twee landen zijn bondgenoten in de strijd tegen...
+- [Recordbreker Lionel Messi steelt opnieuw de show voor Argentinië met twee goals tegen stug Oostenrijk](https://www.ad.nl/wk-voetbal/recordbreker-lionel-messi-steelt-opnieuw-de-show-voor-argentinie-met-twee-goals-tegen-stug-oostenrijk~a25c1913/)
+  > Argentinië heeft ook de tweede wedstrijd op dit WK gewonnen. De regerend wereldkampioen won in Dallas met 2-0 van Oostenrijk dankzij twee goals van...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Conservatieve vriend van Trump nieuwe president van Colombia](https://fd.nl/politiek/1600875/conservatieve-vriend-van-trump-nieuwe-president-van-colombia)
-  > Abelardo de la Espriella, een politieke outsider, blijft zijn linkse rivaal nipt voor. De nieuwe president wil criminaliteit hard aanpakken en...
-- [Defensie investeert in ‘duurzame samenwerking’ met radarfabrikant Thales](https://fd.nl/bedrijfsleven/1601019/defensie-investeert-in-duurzame-samenwerking-met-radarfabrikant-thales)
-  > Onderdeel van de samenwerking is een investering in een nieuwe productielocatie en testfaciliteit in Hengelo.
-- [Lng-complex Ras Laffan komt terug, maar gasprijs blijft gevoelig voor risico](https://fd.nl/financiele-markten/1601002/lng-complex-ras-laffan-komt-terug-maar-gasprijs-blijft-gevoelig-voor-risico)
-  > Onder meer door de geringe Europese voorraden en de geopolitieke spanning liggen de gasprijzen structureel op een hoger niveau.
-- [OlinHuntsman: een chemiesprookje?](https://fd.nl/financiele-markten/1600999/olinhuntsman-een-chemiesprookje)
-  > De Amerikaanse chemiebedrijven Huntsman en Olin willen samen verder. Beleggers zijn vooralsnog erg sceptisch over deze overname die een fusie van...
-- [Nerd en netwerker, staatssecretaris Willemijn Aerdts is het allebei](https://fd.nl/politiek/1600730/nerd-en-netwerker-staatssecretaris-willemijn-aerdts-is-het-allebei)
-  > Met een zeldzaam overnameverbod wil staatssecretaris Aerdts het publieke belang beschermen. Een voltijds politiek ambt is nieuw voor haar, geheimen...
+- [KNMI: vanaf woensdag code oranje voor negen provincies](https://fd.nl/samenleving/1601078/knmi-vanaf-woensdag-code-oranje-voor-negen-provincies)
+  > Het kwik stijgt deze week drie dagen lang naar minstens 34 graden. De waarschuwing geldt in ieder geval tot en met vrijdag en wordt daarna mogelijk...
+- [Realisme gevraagd in debat over infrastructuur](https://fd.nl/opinie/1601018/realisme-gevraagd-in-debat-over-infrastructuur)
+  > Dat er zo’n groot financieel tekort is, is moeilijk uit te leggen. Maar ook een zak geld lost niet alle problemen in één keer op.
+- [Stakingen bij FrieslandCampina](https://fd.nl/bedrijfsleven/1601023/stakingen-bij-frieslandcampina)
+  > Personeel bij twee fabrieken van FrieslandCampina legt het werk neer nadat de cao-onderhandelingen voor de zuivelsector eerder vastliepen.
+- [Rechter verordonneert uitzetten huurder uit villa aan de Amstel](https://fd.nl/economie/1601021/rechter-verordonneert-uitzetten-huurder-uit-villa-aan-de-amstel)
+  > In het topsegment kunnen woningen jaren te koop staan en dat leidt soms tot issues. Aan de Amstel klaagt een huurder over gebreken. De rechter...
+- [Rijschool vrijgesteld van heffing fossiele zakelijke auto’s](https://fd.nl/politiek/1601022/rijschool-vrijgesteld-van-heffing-fossiele-zakelijke-autos)
+  > Zij krijgen een vrijstelling, omdat kunnen schakelen een voorwaarde is voor het halen van een volwaardig rijbewijs B. Daarvoor moeten rijscholen...
 
 ### Meest gelezen
 
