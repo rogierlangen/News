@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-06-2026 om 15:52*
+*Laatst bijgewerkt: 23-06-2026 om 18:01*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Wachttijd bij UWV voor keuring arbeidsongeschiktheid blijft oplopen](https://nos.nl/l/2619927)
-  > Ondanks diverse maatregelen slaagt het UWV er steeds vaker niet in om binnen zes maanden te beoordelen of iemand recht heeft op een...
-- [Steeds meer schepen door Straat van Hormuz, handel nog niet terug op oude niveau](https://nos.nl/l/2619924)
-  > Het verkeer door de Straat van Hormuz is de afgelopen dagen toegenomen na de intentieverklaring tussen de VS en Iran. Gisteren voeren er zeker 36...
-- [Tweede Kamer wil dat IND weer telefoons van asielzoekers gaat uitlezen](https://nos.nl/l/2619923)
-  > De Immigratie- en Naturalisatiedienst (IND) moet weer mobiele telefoons en andere gegevensdragers van asielzoekers gaan uitlezen. Een meerderheid van...
-- [Oud-president Zambia mag jaar na zijn dood toch wel worden begraven in Zuid-Afrika](https://nos.nl/l/2619919)
-  > Het lichaam van de Zambiaanse oud-president Edgar Lungu mag toch worden begraven in Zuid-Afrika. In hoger beroep oordeelde het hof in Johannesburg...
-- [Vier jaar cel geëist om verkrachting van 35 jaar geleden in Bodegraven](https://nos.nl/l/2619917)
-  > Het Openbaar Ministerie eist vier jaar cel tegen een man die wordt verdacht van een verkrachting in Bodegraven in 1990. De 59-jarige man werd vorig...
+- [Hoge stroomprijs bij dynamisch energiecontract, deels door loeiende airco's](https://nos.nl/l/2619955)
+  > Wie een dynamisch energiecontract heeft, kan morgenavond beter de apparaten die veel elektriciteit gebruiken uitlaten. De prijs op de handelsmarkt...
+- [VUmc stopt in 2040 als ziekenhuis, zorgtaken gaan naar locatie AMC](https://nos.nl/l/2619948)
+  > Het VUmc zal per 2040 als ziekenhuis stoppen. In de komende veertien jaar worden de zorgtaken van het medisch centrum overgeheveld naar het AMC in...
+- [Tweede Kamer: posters op Schiphol niet genoeg tegen verminking meisjes](https://nos.nl/l/2619945)
+  > Het kabinet moet sneller komen met een uitreisverbod voor meisjes die het risico lopen genitaal verminkt te worden in het buitenland. De Tweede Kamer...
+- [Oekraïne vernietigt belangrijke spoorbrug op bezette Krim](https://nos.nl/l/2619940)
+  > Het Oekraïense leger heeft een spoorbrug opgeblazen op de door Rusland bezette Krim. De strijdkrachten hebben beelden van de drone-aanval gedeeld op...
+- [Hang buiten gordijnen op en mijd oven en airfryer: tips tegen hitte in huis](https://nos.nl/l/2619937)
+  > Komende dagen wordt het extreem heet. De verwachting is dat het in Nederland zeker drie dagen minimaal 34 graden gaat worden. Voor veel mensen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Frankrijk beleeft warmste dag sinds begin metingen](https://www.ad.nl/buitenland/frankrijk-beleeft-warmste-dag-sinds-begin-metingen~ac13f038/)
-  > Frankrijk heeft dinsdag de warmste dag beleefd sinds het begin van de metingen in 1947, meldt de nationale weerdienst Météo France. De temperatuur...
-- [OM eist levenslang tegen verdachte genocide Rwanda, ‘betrokken bij dood 3000 Tutsi’s’](https://www.ad.nl/binnenland/om-eist-levenslang-tegen-verdachte-genocide-rwanda-betrokken-bij-dood-3000-tutsis~ac000b5c/)
-  > Het Openbaar Ministerie heeft dinsdag bij de rechtbank in Den Haag een levenslange gevangenisstraf geëist tegen de 66-jarige Eugène N. Volgens...
-- [Oud-burgemeester Herman J. werd direct aangehouden om ‘misbruik van jonge meisjes te voorkomen’](https://www.ad.nl/binnenland/oud-burgemeester-herman-j-werd-direct-aangehouden-om-misbruik-van-jonge-meisjes-te-voorkomen~a3601fedb/)
-  > Oud-burgemeester Herman J. van Hendrik-Ido-Ambacht moet als het aan het Openbaar Ministerie ligt twaalf maanden de cel in, waarvan vier maanden...
-- [Ajax oefent niet tegen één maar twee Griekse topclubs, ook opponenten uit Duitsland en Engeland](https://www.ad.nl/voetbal/ajax-oefent-niet-tegen-een-maar-twee-griekse-topclubs-ook-opponenten-uit-duitsland-en-engeland~ae8ebd35/)
-  > Ajax oefent komende maand niet alleen tegen Panathinaikos, maar ook tegen de Griekse topclub Olympiakos. Daarnaast gaat Michel zijn spelers testen...
-- [Gattuso nieuwe trainer Lazio, O’Neil aan de slag bij Ipswich Town](https://www.ad.nl/voetbal/gattuso-nieuwe-trainer-lazio-oneil-aan-de-slag-bij-ipswich-town~ad10f02c/)
-  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Van bondgenoten naar botsing: hoe de vriendschap tussen Giorgia Meloni en Donald Trump uit elkaar viel](https://www.ad.nl/buitenland/van-bondgenoten-naar-botsing-hoe-de-vriendschap-tussen-giorgia-meloni-en-donald-trump-uit-elkaar-viel~aa913483/)
+  > Van de warme vriendschap die ooit bestond tussen Donald Trump en Giorgia Meloni is niets meer over. De Italiaanse premier Meloni neemt bewust afstand...
+- [‘Zo doorzichtig: Johan Derksen voert nu ook weer een haatcampagne tegen Renze Klamer’](https://www.ad.nl/show/zo-doorzichtig-johan-derksen-voert-nu-ook-weer-een-haatcampagne-tegen-renze-klamer~adfe85d6/)
+  > Het is hartje zomer en Rutger van Barneveld, bekend van de SBS-serie Ik geloof in mij, heeft een zomerhit te pakken. Angela de Jong is groot fan en...
+- [Lego blijkt populair onder dieven, bendes slaan toe bij winkels: ‘In een shopper zit zo 10.000 euro’](https://www.ad.nl/binnenland/lego-blijkt-populair-onder-dieven-bendes-slaan-toe-bij-winkels-in-een-shopper-zit-zo-10-000-euro~a7b29686/)
+  > Lego blijkt niet alleen gewild onder jonge én oude fans van de bouwsteentjes; ook dieven nemen de dozen maar al te graag mee uit de schappen. Op...
+- [Cristiano Ronaldo slaat na historische goal opnieuw toe en maakt zelfs bijna hattrick tegen kansloze Oezbeken](https://www.ad.nl/wk-voetbal/cristiano-ronaldo-slaat-na-historische-goal-opnieuw-toe-en-maakt-zelfs-bijna-hattrick-tegen-kansloze-oezbeken~a135300e/)
+  > Portugal is het WK dramatisch begonnen. Tegen DR Congo bleef de ploeg van bondscoach Roberto Martinez op 1-1 steken. Oezbekistan verloor in de eerste...
+- [Iraans elftal mag langer in VS blijven rond derde duel, Haaland acht Noorwegen kansloos tegen Fransen](https://www.ad.nl/wk-voetbal/iraans-elftal-mag-langer-in-vs-blijven-rond-derde-duel-haaland-acht-noorwegen-kansloos-tegen-fransen~a2d5cab9/)
+  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Eerst protesteren, dan polderen: hoe krijgt het kabinet de vakbonden aan tafel?](https://fd.nl/politiek/1601024/eerst-protesteren-dan-polderen-hoe-krijgt-het-kabinet-de-vakbonden-aan-tafel)
-  > Het kabinet bezweert dat er ‘geen taboes’ zijn. Toch leggen de vakbonden woensdagochtend het ov plat. Waar zit de angel in het polderconflict over de...
-- [Kan Labours kroonprins Andy Burnham het tij keren?](https://fd.nl/politiek/1601176/kan-labours-kroonprins-andy-burnham-het-tij-keren)
-  > De gedoodverfde nieuwe Britse premier ‘komt beter over op tv’, maar zal veel van dezelfde problemen tegenkomen als Keir Starmer. Vooral op financieel...
-- [Center Parcs verkocht aan investeringsfonds Abu Dhabi](https://fd.nl/bedrijfsleven/1601180/center-parcs-verkocht-aan-investeringsfonds-abu-dhabi)
-  > Het staatsinvesteringsfonds brengt een overnamebod uit van circa €1 mrd op het moederbedrijf van Center Parcs, inclusief negen Nederlandse...
-- [Flow Traders wil zijn handelsinkomen in vier jaar verdubbelen](https://fd.nl/financiele-markten/1601102/flow-traders-wil-zijn-handelsinkomen-in-vier-jaar-verdubbelen)
-  > Analisten zijn niet bijster onder de indruk van de plannen die het handelshuis voorafgaand aan zijn beleggersdag van dinsdag bekendmaakte.
-- [Spanje lijkt af te koersen op vervroegd einde derde kabinet‑Sánchez](https://fd.nl/politiek/1601115/spanje-lijkt-af-te-koersen-op-vervroegd-einde-derde-kabinetsanchez)
-  > De sociaaldemocratische premier ligt onder vuur vanwege corruptiezaken in zijn omgeving. Woensdag wacht hem een pittig debat in het parlement.
+- [Oplossing stikstofproblematiek moet gedurfd en alomvattend](https://fd.nl/opinie/1601070/oplossing-stikstofproblematiek-moet-gedurfd-en-alomvattend)
+  > De landbouwsector zal er met het aankomende stikstofpakket van 26 juni anders uit komen te zien. Laat het in ieder geval een toekomstbestendig...
+- [NAM moet belangrijke gasopslagen blijven beheren van rechter](https://fd.nl/bedrijfsleven/1601120/nam-moet-belangrijke-gasopslagen-blijven-beheren-van-rechter)
+  > De uitspraak betekent dat de bergingen voorlopig gebruikt kunnen worden om gas in op te slaan om de koude wintermaanden te overbruggen.
+- [Nederland treedt toe tot Amerikaanse chipalliantie](https://fd.nl/politiek/1601119/nederland-treedt-toe-tot-amerikaanse-chipalliantie)
+  > Verenigde Staten willen met Pax Silica de toeleveringsketen voor chips veiligstellen en de afhankelijkheid van China verminderen.
+- [Wachtlijst voor keuring arbeidsongeschiktheid wordt steeds langer](https://fd.nl/economie/1601185/wachtlijst-voor-keuring-arbeidsongeschiktheid-wordt-steeds-langer)
+  > Eind maart stonden 11.000 personen langer dan zes maanden op de wachtlijst voor de beoordeling van een arbeidsongeschiktheidsuitkering.
+- [Brussel houdt zich op de vlakte na bekritiseerde ontmoeting met Taliban](https://fd.nl/politiek/1601118/brussel-houdt-zich-op-de-vlakte-na-bekritiseerde-ontmoeting-met-taliban)
+  > De Europese Commissie voerde dinsdag, in bijzijn van vijftien lidstaten, een beladen en bekritiseerd gesprek in de Belgische hoofdstad met de Taliban...
 
 ### Meest gelezen
 
