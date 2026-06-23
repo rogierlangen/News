@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-06-2026 om 18:01*
+*Laatst bijgewerkt: 23-06-2026 om 21:00*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Hoge stroomprijs bij dynamisch energiecontract, deels door loeiende airco's](https://nos.nl/l/2619955)
-  > Wie een dynamisch energiecontract heeft, kan morgenavond beter de apparaten die veel elektriciteit gebruiken uitlaten. De prijs op de handelsmarkt...
-- [VUmc stopt in 2040 als ziekenhuis, zorgtaken gaan naar locatie AMC](https://nos.nl/l/2619948)
-  > Het VUmc zal per 2040 als ziekenhuis stoppen. In de komende veertien jaar worden de zorgtaken van het medisch centrum overgeheveld naar het AMC in...
-- [Tweede Kamer: posters op Schiphol niet genoeg tegen verminking meisjes](https://nos.nl/l/2619945)
-  > Het kabinet moet sneller komen met een uitreisverbod voor meisjes die het risico lopen genitaal verminkt te worden in het buitenland. De Tweede Kamer...
-- [Oekraïne vernietigt belangrijke spoorbrug op bezette Krim](https://nos.nl/l/2619940)
-  > Het Oekraïense leger heeft een spoorbrug opgeblazen op de door Rusland bezette Krim. De strijdkrachten hebben beelden van de drone-aanval gedeeld op...
-- [Hang buiten gordijnen op en mijd oven en airfryer: tips tegen hitte in huis](https://nos.nl/l/2619937)
-  > Komende dagen wordt het extreem heet. De verwachting is dat het in Nederland zeker drie dagen minimaal 34 graden gaat worden. Voor veel mensen...
+- [Senaat fluit Trump voor het eerst terug over oorlog in Iran](https://nos.nl/l/2619984)
+  > De Amerikaanse Senaat biedt president Trump voor het eerst een klein beetje tegengas in de oorlog met Iran. In een grotendeels symbolische stemming...
+- [Kamer bezorgd over geldgebrek infrastructuur, maar niet eens over oplossingen](https://nos.nl/l/2619982)
+  > Eind deze week maakt het kabinet bekend welke 'grote knopen' het wil doorhakken om het stikstofprobleem aan te pakken, de natuur te herstellen en...
+- [Morgen wordt een lastige dag voor reizigers in het openbaar vervoer](https://nos.nl/l/2619977)
+  > Wie morgen met de trein of bus reist, kan zijn borst natmaken. 's Ochtends is een landelijke staking in het openbaar vervoer en ook vanwege hitte...
+- [Verdachte van fataal ongeluk Zeeuws-Vlaanderen blijft vastzitten](https://nos.nl/l/2619975)
+  > De 19-jarige man die wordt verdacht van het veroorzaken van het dodelijke ongeval bij Terhole in Zeeuws-Vlaanderen blijft zeker nog dertig dagen...
+- [Hittekoepel boven Frankrijk die naar Nederland beweegt: hoe ontstaat zoiets?](https://nos.nl/l/2619972)
+  > Frankrijk ligt momenteel onder een hittekoepel, een zogenoemde heat dome. Daarin kan warme lucht zich dagenlang ophopen en steeds warmer worden.
+    ...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Van bondgenoten naar botsing: hoe de vriendschap tussen Giorgia Meloni en Donald Trump uit elkaar viel](https://www.ad.nl/buitenland/van-bondgenoten-naar-botsing-hoe-de-vriendschap-tussen-giorgia-meloni-en-donald-trump-uit-elkaar-viel~aa913483/)
-  > Van de warme vriendschap die ooit bestond tussen Donald Trump en Giorgia Meloni is niets meer over. De Italiaanse premier Meloni neemt bewust afstand...
-- [‘Zo doorzichtig: Johan Derksen voert nu ook weer een haatcampagne tegen Renze Klamer’](https://www.ad.nl/show/zo-doorzichtig-johan-derksen-voert-nu-ook-weer-een-haatcampagne-tegen-renze-klamer~adfe85d6/)
-  > Het is hartje zomer en Rutger van Barneveld, bekend van de SBS-serie Ik geloof in mij, heeft een zomerhit te pakken. Angela de Jong is groot fan en...
-- [Lego blijkt populair onder dieven, bendes slaan toe bij winkels: ‘In een shopper zit zo 10.000 euro’](https://www.ad.nl/binnenland/lego-blijkt-populair-onder-dieven-bendes-slaan-toe-bij-winkels-in-een-shopper-zit-zo-10-000-euro~a7b29686/)
-  > Lego blijkt niet alleen gewild onder jonge én oude fans van de bouwsteentjes; ook dieven nemen de dozen maar al te graag mee uit de schappen. Op...
-- [Cristiano Ronaldo slaat na historische goal opnieuw toe en maakt zelfs bijna hattrick tegen kansloze Oezbeken](https://www.ad.nl/wk-voetbal/cristiano-ronaldo-slaat-na-historische-goal-opnieuw-toe-en-maakt-zelfs-bijna-hattrick-tegen-kansloze-oezbeken~a135300e/)
-  > Portugal is het WK dramatisch begonnen. Tegen DR Congo bleef de ploeg van bondscoach Roberto Martinez op 1-1 steken. Oezbekistan verloor in de eerste...
-- [Iraans elftal mag langer in VS blijven rond derde duel, Haaland acht Noorwegen kansloos tegen Fransen](https://www.ad.nl/wk-voetbal/iraans-elftal-mag-langer-in-vs-blijven-rond-derde-duel-haaland-acht-noorwegen-kansloos-tegen-fransen~a2d5cab9/)
-  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
+- [Cristiano Ronaldo wil na glansrol niets kwijt over rivaal Lionel Messi: ‘Volgende vraag’](https://www.ad.nl/wk-voetbal/cristiano-ronaldo-wil-na-glansrol-niets-kwijt-over-rivaal-lionel-messi-volgende-vraag~abf6b4ed/)
+  > Cristiano Ronaldo kroonde zich dankzij twee doelpunten op het WK tegen Oezbekistan tot ‘Man of the Match’. Na afloop kreeg de Portugese superster,...
+- [Geduldig Engeland ondanks 80 procent balbezit amper gevaarlijk, één speler weigert hand van Partey te schudden](https://www.ad.nl/wk-voetbal/geduldig-engeland-ondanks-80-procent-balbezit-amper-gevaarlijk-een-speler-weigert-hand-van-partey-te-schudden~a508a470/)
+  > Engeland kende een doelpuntrijke start van het WK. Tegen Kroatië won de ploeg van Thomas Tuchel met 4-2. Tegenstander Ghana pakte door een treffer in...
+- [Gekkenhuis rond Rutger van Barnevelds nummer 1-hit: ‘Ik kom vaak niet eens boven de zaal uit’](https://www.ad.nl/show/gekkenhuis-rond-rutger-van-barnevelds-nummer-1-hit-ik-kom-vaak-niet-eens-boven-de-zaal-uit~a0ff276b/)
+  > Het zat er al aan te komen, maar het is Rutger van Barneveld gelukt. De 35-jarige volkszanger heeft de nummer 1-positie op Spotify te pakken met...
+- [Verdachte (19) van veroorzaken dodelijk ongeval Vogelwaarde blijft zeker nog maand vastzitten](https://www.ad.nl/binnenland/verdachte-19-van-veroorzaken-dodelijk-ongeval-vogelwaarde-blijft-zeker-nog-maand-vastzitten~a983391a/)
+  > De 19-jarige man die wordt verdacht van het veroorzaken van het dodelijke verkeersongeval bij Vogelwaarde, blijft zeker nog dertig dagen vastzitten....
+- [Senaat VS stemt tegen oorlog Iran zonder goedkeuring Congres](https://www.ad.nl/buitenland/senaat-vs-stemt-tegen-oorlog-iran-zonder-goedkeuring-congres~aceb8c63/)
+  > De Amerikaanse Senaat heeft wetgeving aangenomen om de Amerikaanse oorlog tegen Iran te stoppen totdat het Congres hier toestemming voor geeft. Het...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Amerikaanse Senaat stemt voor beëindigen oorlog met Iran](https://fd.nl/politiek/1601143/amerikaanse-senaat-stemt-voor-beeindigen-oorlog-met-iran)
+  > Het conflict is erg impopulair onder de Amerikaanse bevolking omdat het energieprijzen heeft verhoogd.
+- [Ook Amerikaanse techaandelen krijgen dinsdag klappen](https://fd.nl/financiele-markten/1601188/ook-amerikaanse-techaandelen-krijgen-dinsdag-klappen)
+  > Techaandelen gingen dinsdag hard onderuit aan de Amerikaanse beurs, net als in de rest van de wereld. Beleggers vrezen dat de AI-bubbel gaat barsten.
 - [Oplossing stikstofproblematiek moet gedurfd en alomvattend](https://fd.nl/opinie/1601070/oplossing-stikstofproblematiek-moet-gedurfd-en-alomvattend)
   > De landbouwsector zal er met het aankomende stikstofpakket van 26 juni anders uit komen te zien. Laat het in ieder geval een toekomstbestendig...
 - [NAM moet belangrijke gasopslagen blijven beheren van rechter](https://fd.nl/bedrijfsleven/1601120/nam-moet-belangrijke-gasopslagen-blijven-beheren-van-rechter)
   > De uitspraak betekent dat de bergingen voorlopig gebruikt kunnen worden om gas in op te slaan om de koude wintermaanden te overbruggen.
 - [Nederland treedt toe tot Amerikaanse chipalliantie](https://fd.nl/politiek/1601119/nederland-treedt-toe-tot-amerikaanse-chipalliantie)
   > Verenigde Staten willen met Pax Silica de toeleveringsketen voor chips veiligstellen en de afhankelijkheid van China verminderen.
-- [Wachtlijst voor keuring arbeidsongeschiktheid wordt steeds langer](https://fd.nl/economie/1601185/wachtlijst-voor-keuring-arbeidsongeschiktheid-wordt-steeds-langer)
-  > Eind maart stonden 11.000 personen langer dan zes maanden op de wachtlijst voor de beoordeling van een arbeidsongeschiktheidsuitkering.
-- [Brussel houdt zich op de vlakte na bekritiseerde ontmoeting met Taliban](https://fd.nl/politiek/1601118/brussel-houdt-zich-op-de-vlakte-na-bekritiseerde-ontmoeting-met-taliban)
-  > De Europese Commissie voerde dinsdag, in bijzijn van vijftien lidstaten, een beladen en bekritiseerd gesprek in de Belgische hoofdstad met de Taliban...
 
 ### Meest gelezen
 
