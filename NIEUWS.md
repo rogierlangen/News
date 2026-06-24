@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-06-2026 om 10:54*
+*Laatst bijgewerkt: 24-06-2026 om 13:24*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Bijna helft Nederlanders heeft geen vertrouwen in besteding defensie-uitgaven](https://nos.nl/l/2620075)
+  > De komende jaren gaat er meer overheidsgeld naar defensie. Bijna de helft van de Nederlanders heeft er geen vertrouwen in dat de overheid dat geld...
+- [Nederlanders willen label voor AI-muziek: 'Je moet weten waar je naar luistert'](https://nos.nl/l/2620073)
+  > Een groeiend aantal Nederlanders wil dat muziek gegenereerd met behulp van kunstmatige intelligentie (AI) op streamingplatforms een label krijgt....
+- [Zorgen over ontsnapte aap uit Beekse Bergen: warmte geen probleem, eten vinden wel](https://nos.nl/l/2620072)
+  > De aap die ontsnapte uit zijn verblijf in Safaripark Beekse Bergen kan goed tegen de hoge buitentemperaturen, maar toch zal het dier buiten het park...
+- [Palestijnen uit Gaza na maanden toch met Nederlandse hulp geland op Schiphol](https://nos.nl/l/2620064)
+  > Op Schiphol zijn vandaag 42 Palestijnen uit Gaza aangekomen. Zij hadden al maanden geleden een werk- of studievisum voor Nederland gekregen, maar...
 - [Belgische presentator Ben Crabbé vertrekt na 33 jaar bij quizprogramma Blokken](https://nos.nl/l/2620053)
   > De Belgische presentator Ben Crabbé (63) begint in augustus aan zijn laatste seizoen van het bekende Vlaamse televisieprogramma Blokken, heeft de VRT...
-- [Politie pakt zes mensen op in onderzoek naar stemfraude in Gorinchem](https://nos.nl/l/2620051)
-  > De politie heeft gisteren zes mensen aangehouden in het onderzoek naar stemfraude tijdens de gemeenteraadsverkiezingen in Gorinchem, meldt het...
-- [Eerste ebolageval in Frankrijk vastgesteld bij uit Congo teruggekeerde arts](https://nos.nl/l/2620046)
-  > In Frankrijk is een eerste ebola-besmetting vastgesteld. Het gaat om een arts die recent is teruggekeerd uit de Democratische Republiek Congo (DRC),...
-- [Staatsfonds uit Abu Dhabi wil moederbedrijf van Center Parcs overnemen](https://nos.nl/l/2620039)
-  > Het Franse moederbedrijf van vakantieparkketen Center Parcs valt mogelijk in handen van een staatsinvesteringsfonds uit de Verenigde Arabische...
-- [Duitsland stapt uit miljardendeal met scheepsbouwer Damen](https://nos.nl/l/2620038)
-  > De Duitse minister van Defensie stopt met het grootste marineproject in de Duitse geschiedenis. Dat bevestigt het ministerie na berichtgeving van Der...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Politie bevrijdt hond uit snikhete auto op woonboulevard in Oss: eigenaar ziet probleem niet](https://www.ad.nl/binnenland/politie-bevrijdt-hond-uit-snikhete-auto-op-woonboulevard-in-oss-eigenaar-ziet-probleem-niet~a99b19e8/)
-  > Een hondje is woensdagochtend door de politie uit een hete auto bevrijd. De hond zat in een auto die geparkeerd stond op een woonboulevard in Oss.
-- [Nederland en andere EU-landen willen snel terugkeerhubs voor asielzoekers, ‘twee landen concreet in beeld’](https://www.ad.nl/binnenland/nederland-en-andere-eu-landen-willen-snel-terugkeerhubs-voor-asielzoekers-twee-landen-concreet-in-beeld~ae9019c1/)
-  > Premier Rob Jetten voert binnen Europa de druk op om vaart te maken met ‘terugkeerhubs’ buiten de EU, waar uitgeprocedeerde asielzoekers heen...
-- [Ik weet dat Rob Jetten het druk heeft, maar dit probleem hoort in een beschaafd land allang oplost zijn](https://www.ad.nl/binnenland/ik-weet-dat-rob-jetten-het-druk-heeft-maar-dit-probleem-hoort-in-een-beschaafd-land-allang-oplost-zijn~aa1e9caf/)
-  > De lijst hoofdpijndossiers voor Jetten en co is eindeloos, dat beseft Angela de Jong ook wel. Toch wijst ze hem graag op nóg een probleem dat in een...
-- [Code oranje voor bijna heel het land van kracht, na sportevenementen ook festivals afgelast](https://www.ad.nl/binnenland/code-oranje-voor-bijna-heel-het-land-van-kracht-na-sportevenementen-ook-festivals-afgelast~a57707aa/)
-  > In het Brabantse Woensdrecht, vlakbij de grens met België, is rond 10.15 uur de 30,0 graden aangetikt. Het is daarmee een van de eerste plekken waar...
-- [De Messi-haat in Nederland begint een beetje kinderachtig te worden](https://www.ad.nl/voetbal/de-messi-haat-in-nederland-begint-een-beetje-kinderachtig-te-worden~a0ee49f6/)
-  > Sinds het vorige WK in Qatar bespeurt columnist Sjoerd Mossou een nieuw soort Messi-haat in Nederland. „Het heeft iets enorm potsierlijks om met de...
+- [Van der Hoorn vertrekt naar Cyprus, Sparta haalt Kuipers, succescoach Schreuder blijft NEC trouw](https://www.ad.nl/voetbal/van-der-hoorn-vertrekt-naar-cyprus-sparta-haalt-kuipers-succescoach-schreuder-blijft-nec-trouw~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Israël meldt luchtaanval op Hezbollah-leden in Zuid-Libanon](https://www.ad.nl/buitenland/israel-meldt-luchtaanval-op-hezbollah-leden-in-zuid-libanon~ac528ac3/)
+  > De Israëlische krijgsmacht (IDF) zegt een luchtaanval te hebben uitgevoerd in het zuiden van Libanon. Die zou zijn gericht op twee Hezbollah-leden...
+- [Hitte om gek van te worden? In dit vergeten dorp blijft het opvallend koel: ‘Laat het geen pelgrimsoord worden’](https://www.ad.nl/binnenland/hitte-om-gek-van-te-worden-in-dit-vergeten-dorp-blijft-het-opvallend-koel-laat-het-geen-pelgrimsoord-worden~a6f4895e/)
+  > Heet, heter, heetst. Er valt niet aan de hitte te ontsnappen in de week dat alle records sneuvelen, toch? Of ... zijn er plekjes te vinden waar je...
+- [Officieel warmste 24 juni ooit gemeten, 65-plussers mogen gratis naar de bioscoop in Gouda](https://www.ad.nl/binnenland/officieel-warmste-24-juni-ooit-gemeten-65-plussers-mogen-gratis-naar-de-bioscoop-in-gouda~a57707aa/)
+  > In De Bilt was het om 14:30 uur 32,8 graden en daarmee is het officieel de warmste 24 juni sinds de metingen begonnen in 1901. Landelijk gezien is...
+- [Tegenvaller voor kabinet: regeringsvliegtuig moet alweer vervangen worden](https://www.ad.nl/politiek/tegenvaller-voor-kabinet-regeringsvliegtuig-moet-alweer-vervangen-worden~af342ec0/)
+  > Een gemiddeld vliegtuig gaat 25 tot dertig jaar mee, maar het kabinet moet haar officiële regeringsvliegtuig PH-GOV al na zo’n acht jaar vervangen....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Duitsland trekt stekker uit fregattenproject Damen](https://fd.nl/bedrijfsleven/1601223/duitsland-trekt-stekker-uit-fregattenproject-damen)
-  > De Duitse defensieminister Boris Pistorius heeft besloten het contract te verscheuren wegens kostenstijgingen. Scheepswerf Damen speelt een voorname...
-- [Europa en China liggen economisch op ramkoers: huidige trends zijn ‘onhoudbaar’](https://fd.nl/economie/1600912/europa-en-china-liggen-economisch-op-ramkoers-huidige-trends-onhoudbaar)
-  > Het Chinese groeimodel stuit in toenemende mate op grenzen en zal leiden tot een confrontatie met Europa, voorzien economen.
-- [Of de ‘regiewet’ de woningbouw echt versnelt, weten we over een jaar](https://fd.nl/politiek/1601148/of-de-regiewet-de-woningbouw-echt-versnelt-weten-we-over-een-jaar)
-  > Ruziënde gemeenten en provincies. Eindeloos overleg over percentages sociale huurwoningen. Woningbouw duurt te lang, vindt de politiek en een nieuwe...
-- [In Amerika is dividend per kwartaal usance, gaat Aegon volgen?](https://fd.nl/financiele-markten/1600736/in-amerika-is-dividend-per-kwartaal-usance-gaat-aegon-volgen)
-  > De Nederlandse verzekeraar verandert steeds meer in een echt Amerikaans bedrijf. Dat zou een hogere waardering op de beurs opleveren. Nu de...
-- [Treinexpert: ‘Ik zie de meest belachelijke situaties op het Europese spoor’](https://fd.nl/economie/1600652/treinexpert-ik-zie-de-meest-belachelijke-situaties-op-het-europese-spoor)
-  > Dat het Europese spoor nog steeds geen goed alternatief is voor het vliegtuig, vindt Jon Worth moeilijk te bevatten. ‘Internationale treinen worden...
+- [Defensie wordt een vastgoedspeler van formaat. Wat betekent dat voor de markt?](https://fd.nl/politiek/1601067/defensie-wordt-een-vastgoedspeler-van-formaat-wat-betekent-dat-voor-de-markt)
+  > Defensie betreedt met miljarden euro’s op zak twee markten waar de vraag toch al groot is: de bouw- en de grondmarkt.
+- [Rechter vervalste uitspraken om Haags gerechtshof uit de brand te helpen](https://fd.nl/samenleving/1601229/rechter-vervalste-uitspraken-om-haags-gerechtshof-uit-de-brand-te-helpen)
+  > Het gerechtshof Den Haag kampte met achterstanden door de coronapandemie, betoogde de advocaat van Frank G. Meerdere rechters waren volgens hem op de...
+- [Stroomprijs door het dak door airco’s](https://fd.nl/economie/1601225/stroomprijs-door-het-dak-door-aircos)
+  > Consumenten met een dynamisch energiecontract betalen ’s avonds soms meer dan €1,10 per kilowattuur aan elektriciteit.
+- [SK Hynix doet mega-emissie op Amerikaanse beurs](https://fd.nl/financiele-markten/1601153/sk-hynix-doet-megaemissie-op-amerikaanse-beurs)
+  > Zuid-Koreaans chipbedrijf wil omgerekend bijna €26 mrd ophalen om de productiecapaciteit uit te breiden en om euv-machines aan te schaffen.
+- [Eurocommissaris Hoekstra sust box 3‑zorgen over Brussels belastingplan](https://fd.nl/politiek/1601216/eurocommissaris-hoekstra-sust-box3zorgen-over-brussels-belastingplan)
+  > Fiscalisten waarschuwen voor uitholling van box 3 als de Commissie beleggen in een bv aantrekkelijker maakt. Wopke Hoekstra ziet dat niet snel...
 
 ### Meest gelezen
 
