@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-06-2026 om 16:23*
+*Laatst bijgewerkt: 24-06-2026 om 18:55*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Ruim 15 cel voor 'koelbloedige executie' in Amersfoort in 1996](https://nos.nl/l/2620096)
+- [Nieuwe noodmaatregel om volle cellen: meer gedetineerden overdag naar buiten](https://nos.nl/l/2620112)
+  > Om iets te doen aan de overvolle gevangenissen worden meer gedetineerden overdag vrijgelaten. Ze mogen dan, onder toezicht van bijvoorbeeld een...
+- [Aanvallen gemeld in Libanon, ondanks optimisme over overleg Israël-Hezbollah](https://nos.nl/l/2620110)
+  > Israël zegt een nieuwe aanval te hebben uitgevoerd op Hezbollah in het zuiden van Libanon. Twee gewapende leden van de militante beweging waren...
+- [Ministers op bezoek in Syrië: ook werken aan gedwongen terugkeer](https://nos.nl/l/2620108)
+  > Een hoge kabinetsdelegatie heeft vandaag een bezoek gebracht aan Syrië. Vicepremier Van den Brink (minister van Asiel en Migratie) en minister...
+- [Simpeler Europese belastingregels moeten bedrijven 8 miljard euro opleveren](https://nos.nl/l/2620103)
+  > De Europese Commissie presenteert vandaag maatregelen om de belastingregels in de EU te versimpelen en administratieve lasten voor bedrijven te...
+- [Ruim 15 jaar cel voor 'koelbloedige executie' in Amersfoort in 1996](https://nos.nl/l/2620096)
   > Een man die ruim dertig jaar geleden een 26-jarige man in Amersfoort doodschoot, is in hoger beroep veroordeeld tot 15,5 jaar celstraf.
         De nu...
-- [33 mannen opgepakt in Frankrijk voor downloaden kindermisbruikmateriaal](https://nos.nl/l/2620095)
-  > Verspreid over heel Frankrijk zijn de afgelopen dagen 33 mannen opgepakt tussen de 37 en 79 jaar. Ze worden verdacht van het downloaden van een...
-- [Pauzes, water en goede planning, hoe werkend Nederland zich door de hitte sleept](https://nos.nl/l/2620086)
-  > "Vrijdag wordt het zo warm, daarover heb ik met mijn baas overlegd dat we helemaal niet werken. Dat is niet haalbaar, het is echt te warm", zegt een...
-- [Rechter wil geen verder onderzoek naar politiemensen die in dossier Lisa keken](https://nos.nl/l/2620080)
-  > De rechter vindt dat er genoeg onderzoek is gedaan naar de 1678 politiemensen die na de moord op de 17-jarige Lisa uit Abcoude het dossier...
-- [Rechtse Fujimori stevent af op winst bij presidentsverkiezingen in Peru](https://nos.nl/l/2620078)
-  > Bij de verkiezingen in Peru lijkt de rechtse presidentskandidaat Fujimori voldoende voorsprong te hebben behaald op haar tegenstander Roberto...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Verhuizing eindigt in poppenkast: man verliest aanhanger, rijdt achteruit en klapt op lantaarnpaal](https://www.ad.nl/binnenland/verhuizing-eindigt-in-poppenkast-man-verliest-aanhanger-rijdt-achteruit-en-klapt-op-lantaarnpaal~a92bc09a/)
-  > Een losgeschoten aanhanger die de bosjes in vliegt, gevolgd door een kolderieke botsing met een lantaarnpaal. Een verhuizing in Brabant is geëindigd...
-- [Twee sterren voor Supergirl: deze heldin kan beter aan een kroegentocht beginnen](https://www.ad.nl/show/twee-sterren-voor-supergirl-deze-heldin-kan-beter-aan-een-kroegentocht-beginnen~a21b2c72/)
-  > Iedereen kent Superman. Superwoman behoeft ook geen nadere introductie. Maar wat weten wij van Supergirl? Is zij eigenlijk niet meer dan een...
-- [Koning Charles krijgt witte band in jiujitsu](https://www.ad.nl/show/koning-charles-krijgt-witte-band-in-jiujitsu~aadf787f/)
-  > Koning Charles heeft woensdag tijdens een bezoek aan een vechtsportschool in Londen een witte band in jiujitsu gekregen. De koning kon het geschenk...
-- [Oranje compleet bij laatste training, noodweer verwacht tijdens duel met Tunesië](https://www.ad.nl/voetbal/oranje-compleet-bij-laatste-training-noodweer-verwacht-tijdens-duel-met-tunesie~aaa0436c/)
-  > Het Nederlands elftal is met de complete selectie begonnen aan de laatste training voor de wedstrijd tegen Tunesië op het WK. Op vrijdag 01.00 uur...
-- [Wegdek wordt bloedheet: temperatuur stijgt op meerdere plekken boven 50 graden](https://www.ad.nl/binnenland/wegdek-wordt-bloedheet-temperatuur-stijgt-op-meerdere-plekken-boven-50-graden~a57707aa/)
-  > Op enkele plekken in het land is de temperatuur van het wegdek opgelopen tot boven de 50 graden. Op een kaart van Rijkswaterstaat is te zien dat het...
+- [Simone: ‘Ik wist: als ik blijf, ga ik hem uiteindelijk bedriegen’](https://www.ad.nl/mezza/simone-ik-wist-als-ik-blijf-ga-ik-hem-uiteindelijk-bedriegen~a4ff09a3/)
+  > In de liefde paste Simone (65) zich altijd aan. Tot er een computerscherm tussen haar en een man stond, vertelt ze in deze rubriek BV De Liefde uit...
+- [Het warme weer zorgt voor een prachtig initiatief in Amsterdam](https://www.ad.nl/binnenland/het-warme-weer-zorgt-voor-een-prachtig-initiatief-in-amsterdam~a38c4afa/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [Brazilië hoopt Oranje te ontlopen en kan tegen Schotland rekenen op Neymar: ‘Hij is fit en klaar om te spelen’](https://www.ad.nl/wk-voetbal/brazilie-hoopt-oranje-te-ontlopen-en-kan-tegen-schotland-rekenen-op-neymar-hij-is-fit-en-klaar-om-te-spelen~a457f164/)
+  > Brazilië of Marokko: wie wordt de tegenstander van Oranje? Brazilië heeft de groepswinst voor het grijpen, maar moet dan wel eerst zien af te rekenen...
+- [Fans jagen massaal op Curaçao-shirt tijdens WK: winkels worden ‘platgebeld’ om blauwe tenue](https://www.ad.nl/binnenland/fans-jagen-massaal-op-curacao-shirt-tijdens-wk-winkels-worden-platgebeld-om-blauwe-tenue~a5a41acc/)
+  > Dagelijks komen er tientallen telefoontjes binnen bij Voetbalshop.nl in Breda. De shirtjes van Curaçao vliegen over de toonbank. „Mensen gaan er stad...
+- [Bosnië en Qatar strijden om plek in zestiende finales WK, PSV’er Esmir Bajraktarevic terug in de basis](https://www.ad.nl/wk-voetbal/bosnie-en-qatar-strijden-om-plek-in-zestiende-finales-wk-psver-esmir-bajraktarevic-terug-in-de-basis~a921ba89/)
+  > Bosnië en Herzegovina neemt het vanavond op tegen Qatar, een rechtstreeks duel om een ticket voor de volgende ronde. Wie pakt gouden punten? Volg het...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Voorspelplatform Kalshi naar de beurs](https://fd.nl/financiele-markten/1601240/voorspelplatform-kalshi-naar-de-beurs)
-  > Inmiddels gaan er maandelijks miljarden dollars om in de meest merkwaardige weddenschappen.
-- [Brusselse plannen winstbelasting gaan schatkist honderden miljoenen kosten](https://fd.nl/politiek/1601156/brusselse-plannen-winstbelasting-gaan-schatkist-honderden-miljoenen-kosten)
-  > De Europese Commissie stelt voor de strenge Nederlandse aftrekbeperking van rentekosten voor bedrijfswinsten te versoepelen. Dit leidt tot...
-- [Aandeelhouders AkzoNobel stemmen op 5 augustus over fusie met Axalta](https://fd.nl/bedrijfsleven/1601239/aandeelhouders-akzonobel-op-5-augustus-bijeen-voor-fusie-met-axalta)
-  > AkzoNobel verwacht de fusie eind dit jaar of begin volgend jaar rond te hebben.
-- [Investering van techmiljardair Peter Thiel in Duitse dronemaker roept vragen op](https://fd.nl/bedrijfsleven/1601237/investering-van-techmiljardair-peter-thiel-in-duitse-dronemaker-roept-vragen-op)
-  > De belangrijkste geldschieter was het Founders Fund, zo melden anonieme bronnen aan persbureau Bloomberg.
-- [Duits miljoenenbeslag op vastgoed van Rotterdamse havenmagnaat Peter Goedvolk](https://fd.nl/bedrijfsleven/1600872/duits-miljoenenbeslag-op-vastgoed-van-rotterdamse-havenmagnaat-peter-goedvolk)
-  > De havenondernemer en investeerder Peter Goedvolk heeft een claim van een Duits bedrijf aan zijn broek met beslagen op zijn penthouse en kantoor na...
+- [De vakbonden moeten niet escaleren, maar praten](https://fd.nl/opinie/1601161/de-vakbonden-moeten-niet-escaleren-maar-praten)
+  > Stakingen treffen de samenleving en economie. De vakbonden moeten in dit stadium niet meteen naar het zwaarste middel grijpen.
+- [Ambtenaren: winst in box 3 pas bij verkoop belasten gaat miljarden kosten](https://fd.nl/politiek/1601157/ambtenaren-winst-in-box-3-pas-bij-verkoop-belasten-gaat-miljarden-kosten)
+  > Voor het eerst hangt het ministerie van Financiën een bedrag aan de overstap naar een vermogenswinstbelasting voor particuliere beleggers.
+- [Tsjechië moet president Pavel toch meenemen naar Navo-top](https://fd.nl/politiek/1601243/tsjechie-moet-president-pavel-toch-meenemen-naar-navo-top)
+  > De regering van Tsjechië had hem thuis willen laten, maar president Pavel stapte naar de hoogste rechter. Die gaf hem gelijk.
+- [Qualcomm koopt AI-start-up Modular voor $4 mrd](https://fd.nl/financiele-markten/1601172/qualcomm-koopt-ai-start-up-modular-voor-4-mrd)
+  > De koers van het bedrijf daalde dinsdag al met 7% aan de Nasdaq, na geluiden over de overname van Modular.
+- [Vertrouwen van Duitse ondernemers iets verbeterd](https://fd.nl/bedrijfsleven/1601242/vertrouwen-van-duitse-ondernemers-iets-verbeterd)
+  > De vertrouwensindex is in de maand juni licht gestegen, van 85,0 naar 85,6 punten.
 
 ### Meest gelezen
 
