@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-06-2026 om 23:10*
+*Laatst bijgewerkt: 24-06-2026 om 03:57*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Treinverkeer DB in heel Duitsland ligt plat door storing](https://nos.nl/l/2619990)
-  > In heel Duitsland is het treinverkeer van Deutsche Bahn (DB) stilgelegd vanwege een storing in het communicatiesysteem GSM-R. De Duitse...
-- [120.000 kaarten bij Kamer bezorgd om asielkinderen in Nederland te houden](https://nos.nl/l/2619989)
-  > Kerkasiel Kampen heeft 120.000 handgeschreven kaarten naar de Tweede Kamer gebracht om aandacht te vragen voor honderden kinderen die in Nederland...
-- [Senaat fluit Trump voor het eerst terug over oorlog in Iran](https://nos.nl/l/2619984)
-  > De Amerikaanse Senaat biedt president Trump voor het eerst een klein beetje tegengas in de oorlog met Iran. In een grotendeels symbolische stemming...
-- [Kamer bezorgd over geldgebrek infrastructuur, maar niet eens over oplossingen](https://nos.nl/l/2619982)
-  > Eind deze week maakt het kabinet bekend welke 'grote knopen' het wil doorhakken om het stikstofprobleem aan te pakken, de natuur te herstellen en...
-- [Het wordt een lastige dag voor reizigers in het openbaar vervoer](https://nos.nl/l/2619977)
-  > Wie vandaag met de trein of bus reist, kan zijn borst natmaken. 's Ochtends is een landelijke staking in het openbaar vervoer en ook vanwege hitte...
+- [Ov-staking en manifestaties: vakbonden voelen zich sterk](https://nos.nl/l/2620005)
+  > Tot 08.00 uur vanochtend rijdt het openbaar vervoer in het hele land niet. Het is de belangrijkste werkonderbreking in deze actieweek, georganiseerd...
+- [Belangrijke havenstad op de Krim zonder stroom door Oekraïense aanvallen](https://nos.nl/l/2620004)
+  > De stroom in Sevastopol op de door Rusland geannexeerde Krim is uitgevallen door Oekraïense aanvallen op energiecentrales. Dat meldt de door Rusland...
+- [Vorig jaar 270 kinderen illegaal naar buitenland meegenomen door ouder](https://nos.nl/l/2620003)
+  > Het afgelopen jaar zijn 270 kinderen slachtoffer geworden van kinderontvoering door een van hun ouders. Dat zijn er 70 meer dan een jaar eerder,...
+- [Zelensky: Oekraïne dient nieuwe aanvraag voor OESO-lidmaatschap in](https://nos.nl/l/2619999)
+  > Oekraïne heeft een nieuwe aanvraag ingediend om lid te worden van de Organisatie voor Economische Samenwerking en Ontwikkeling (OESO). President...
+- [Aap ontsnapt uit Beekse Bergen en loopt rond in omgeving](https://nos.nl/l/2619997)
+  > Een mannetjesaap uit Safaripark Beekse Bergen loopt al een aantal dagen vrij rond in de omgeving van het park. De kuifmangabey zou afgelopen weekend...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Marokkaanse bondscoach met gedachten nog niet bij Oranje, Iraans elftal mag langer in VS blijven](https://www.ad.nl/wk-voetbal/marokkaanse-bondscoach-met-gedachten-nog-niet-bij-oranje-iraans-elftal-mag-langer-in-vs-blijven~a2d5cab9/)
-  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
-- [Kroatië met Perisic en Modric op jacht naar eerste zege tegen Panama](https://www.ad.nl/wk-voetbal/kroatie-met-perisic-en-modric-op-jacht-naar-eerste-zege-tegen-panama~a5e84c24/)
-  > Kroatië verloor de eerste wedstrijd van het WK van Engeland en aast dus op revanche. Vannacht is Panama de tegenstander. Volg het hier vanaf 01.00...
-- [Engeland bijt zich stuk op taai Ghana en is nog niet zeker van volgende ronde](https://www.ad.nl/wk-voetbal/engeland-bijt-zich-stuk-op-taai-ghana-en-is-nog-niet-zeker-van-volgende-ronde~a508a470/)
-  > Engeland heeft op het WK voetbal niet kunnen winnen van Ghana. In Foxborough, Massachusetts, werd niet gescoord: 0-0. Voor de Engelsen, een van de...
-- [Simpele klusjes verdwijnen, een derde van de werknemers verwacht dat baan door AI mentaal zwaarder wordt](https://www.ad.nl/werk/simpele-klusjes-verdwijnen-een-derde-van-de-werknemers-verwacht-dat-baan-door-ai-mentaal-zwaarder-wordt~ac0812d7/)
-  > De vrees dat kunstmatige intelligentie ons beroep fundamenteel verandert en functies laat verdwijnen, valt in werkend Nederland mee. Velen denken dat...
-- [Duizenden meldingen van storing bij Instagram](https://www.ad.nl/tech/duizenden-meldingen-van-storing-bij-instagram~afad468a/)
-  > Mensen die dinsdagavond willen kijken op Instagram komen van een koude kermis thuis. De app kampt met een storing. Op website downdetector komen...
+- [Colombia breekt defensie Congo alsnog in slotfase: Munoz schiet raak](https://www.ad.nl/wk-voetbal/colombia-breekt-defensie-congo-alsnog-in-slotfase-munoz-schiet-raak~ad63d1e8b/)
+  > Colombia was in het openingsduel te sterk voor Oezbekistan en kan zich vanavond plaatsen voor de knock-outfase. Het elftal van sterspeler Luis Díaz...
+- [Reizigers opgelet: houd rekening met totale ov-uitval tot 08.00 uur en een ontregelde ochtendspits](https://www.ad.nl/binnenland/reizigers-opgelet-houd-rekening-met-totale-ov-uitval-tot-08-00-uur-en-een-ontregelde-ochtendspits~afaf2dee/)
+  > In vrijwel heel Nederland ligt het openbaar vervoer tussen 04.00 uur en 08.00 uur stil. Door een landelijke staking van de vakbonden rijden er in de...
+- [Snikhete tropendag op komst, lokaal tot wel 35 graden](https://www.ad.nl/binnenland/snikhete-tropendag-op-komst-lokaal-tot-wel-35-graden~a6d022d8/)
+  > Nederland krijgt vandaag te maken met extreme hitte. Volgens Weerplaza stijgt de temperatuur in vrijwel het hele land tot ver boven de tropische...
+- [Benzine werd 22 cent duurder in twee weken, maar zakt nu heel langzaam terug: hoe komt dat?](https://www.ad.nl/binnenland/benzine-werd-22-cent-duurder-in-twee-weken-maar-zakt-nu-heel-langzaam-terug-hoe-komt-dat~a8f9437d/)
+  > Als de olieprijs stijgt, stijgen de prijzen van benzine en diesel aan de pomp pijlsnel mee. Maar nu die daalt merken we dat minder in onze...
+- [Matig Kroatië worstelt zich langs Panama, invaller Ante Budimir maakt winnende goal](https://www.ad.nl/wk-voetbal/matig-kroatie-worstelt-zich-langs-panama-invaller-ante-budimir-maakt-winnende-goal~a5e84c24/)
+  > Kroatië heeft met veel moeite groepsgenoot Panama verslagen op het WK. In een zonnig Toronto was een doelpunt van Ante Budimir in de tweede helft...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Heineken zet ‘strenge’ outsider aan het roer](https://fd.nl/economie/1601179/heineken-zet-strenge-outsider-aan-het-roer)
+  > Vandaag in Dagkoers: alles over de nieuwe ceo van Heineken Rafael Oliveira, kraanbedrijf Mammoet gaat (weer) in de verkoop & de vakbonden gaan de...
 - [Financieel gezond](https://fd.nl/opinie/1601112/financieel-gezond)
   > Meer huishoudens hebben volgens het Nibud moeite om rond te komen. FD-columnist Mathijs Bouman betwijfelt dat er sprake is van een structurele...
 - [Recordfonds voor Haagse investeerder Main: ‘AI is een ongelooflijke kans voor de software-industrie’](https://fd.nl/bedrijfsleven/1601101/recordfonds-voor-haagse-investeerder-main-ai-is-een-ongelooflijke-kans-voor-de-software-industrie)
@@ -54,8 +56,6 @@
   > Excuses aanbieden lijkt eenvoudig, maar voelt vaak als een bekentenis dat je geen fatsoenlijk mens bent. Waarom is sorry zeggen zo moeilijk – en...
 - [Beleggers trekken naar Ondernemingskamer om Philips te dwingen tot openheid](https://fd.nl/bedrijfsleven/1601072/beleggers-trekken-naar-ondernemingskamer-om-philips-te-dwingen-tot-openheid)
   > De techfabrikant riep in 2021 miljoenen beademingsapparaten terug omdat die mogelijk schadelijke stoffen konden uitstoten. Beleggers eisen een...
-- [Verkoop hijs- en transportbedrijf Mammoet gaat door, biedingen moeten in juli binnen zijn](https://fd.nl/bedrijfsleven/1600939/verkoop-hijs-entransportbedrijf-mammoet-gaat-door-biedingen-moeten-in-juli-binnen-zijn)
-  > Geïnteresseerde partijen hebben recent een informatiepakket ontvangen over het bedrijf uit Schiedam. Bankiers schatten een verkoopprijs tussen de...
 
 ### Meest gelezen
 
