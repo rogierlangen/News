@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-06-2026 om 05:07*
+*Laatst bijgewerkt: 25-06-2026 om 09:29*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Vijf mensen in isolatie na contact Franse arts met ebola](https://nos.nl/l/2620212)
+  > Vijf mensen die in hetzelfde vliegtuig zaten als de Franse arts bij wie gisteren ebola is vastgesteld, zitten uit voorzorg in isolatie. Dat meldt de...
+- [Reddingsteams zoeken in puin Venezuela, internationale hulp komt op gang](https://nos.nl/l/2620200)
+  > In Venezuela komt een massale reddingsoperatie op gang na de zware aardbevingen van vannacht. Tientallen gebouwen zijn ingestort en op beelden is te...
+- [Trump bekvecht met weerbarstige partijgenoten in Senaat en krijgt zijn zin](https://nos.nl/l/2620196)
+  > Een lunch van president Trump met Republikeinse partijgenoten is gisteren uitgelopen op een schreeuwpartij over de oorlog in Iran. Zowel de president...
 - [Roep om meer aandacht voor rouw in de klas: 'Veel scholen worstelen ermee'](https://nos.nl/l/2620181)
   > Scholen zouden structureel aandacht moeten besteden aan rouw, niet alleen als zich sterfgevallen voordoen. Daarvoor pleiten psychologen, pedagogen,...
 - [KNMI verwacht recordwarme nacht: 'Je lichaam kan niet goed herstellen'](https://nos.nl/l/2620179)
   > Je zult het zwetend in bed vast gemerkt hebben: niet alleen de dagen zijn heet, ook de nachten. Mogelijk wordt aankomende nacht zelfs de warmste die...
-- [Wekdienst 25/6: Snikhete dag • Kamerdebat over toekomst Moerdijk](https://nos.nl/l/2620178)
-  > Goedemorgen! Opnieuw gelden allerlei maatregelen vanwege de hitte. Er is een Kamerdebat over de toekomst van Moerdijk en Oranje speelt komende nacht...
-- [NAVO-chef Rutte probeert op bezoek bij Trump plooien glad te strijken](https://nos.nl/l/2620173)
-  > NAVO-chef Mark Rutte heeft bij een bezoek aan het Witte Huis geprobeerd de relatie met de Amerikaanse president Trump weer een beetje vlot te...
-- [Twee zware aardbevingen in Venezuela, vrees voor duizenden slachtoffers](https://nos.nl/l/2620160)
-  > In Venezuela zijn kort achter elkaar twee aardbevingen geweest. In de hoofdstad Caracas zijn meerdere gebouwen ingestort. De Amerikaanse geologische...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Elke dag een cappuccino zonder af te rekenen: Rotterdams koffieabonnement gaat viraal, maar is het écht voordelig?](https://www.ad.nl/binnenland/elke-dag-een-cappuccino-zonder-af-te-rekenen-rotterdams-koffieabonnement-gaat-viraal-maar-is-het-echt-voordelig~acdf8104/)
-  > Onderweg naar werk nog even snel een cappuccino halen bij die hippe koffiezaak op de hoek. Het is voor veel mensen een dagelijkse routine, maar het...
-- [Zware aardbevingen in Venezuela: 32 doden en 700 gewonden, vrees voor tienduizenden slachtoffers](https://www.ad.nl/buitenland/zware-aardbevingen-in-venezuela-32-doden-en-700-gewonden-vrees-voor-tienduizenden-slachtoffers~a6edd732/)
-  > Twee verwoestende aardbevingen hebben Venezuela binnen 39 seconden getroffen. Interim-president Delcy Rodríguez meldt voorlopig 32 doden en 700...
-- [Flinke weersomslag op komst in Nederland: temperatuur duikelt volgende week met 18 graden omlaag](https://www.ad.nl/binnenland/flinke-weersomslag-op-komst-in-nederland-temperatuur-duikelt-volgende-week-met-18-graden-omlaag~aff74502/)
-  > Het is nog een paar dagen puffen en kreunen (en genieten), maar er is een forse weersomslag op komst. Terwijl de temperatuur vrijdag lokaal oploopt...
-- [Nederland ontwaakt na ouderwetse plaknacht, België kondigt voor vrijdag code rood af](https://www.ad.nl/binnenland/nederland-ontwaakt-na-ouderwetse-plaknacht-belgie-kondigt-voor-vrijdag-code-rood-af~a57707aa/)
-  > De hittegolf in België houdt aan en bereikt vrijdag een absoluut hoogtepunt. Op veel plekken stijgt het kwik tot boven de 35 graden. Voor de...
-- [Deze zes dingen smelten, ontploffen of worden giftig in een hete auto](https://www.ad.nl/auto/deze-zes-dingen-smelten-ontploffen-of-worden-giftig-in-een-hete-auto~afb66d88/)
-  > Op een warme zomerdag verandert een auto binnen korte tijd in een oven. De binnentemperatuur kan al na een uur oplopen tot 80 graden of meer. Dat is...
+- [Marieke Elsinga geeft auto-ongeluk toe: ‘Had een te korte nacht gehad’](https://www.ad.nl/show/marieke-elsinga-geeft-auto-ongeluk-toe-had-een-te-korte-nacht-gehad~abd2e434/)
+  > Marieke Elsinga (39) is recent betrokken geweest bij een auto-ongeluk. Dat geeft de presentatrice toe in haar ochtendshow Mattie & Marieke naar...
+- [NEC verkoopt El Kachati aan Franse club, FC Utrecht haalt transfervrije Amerikaan](https://www.ad.nl/voetbal/nec-verkoopt-el-kachati-aan-franse-club-fc-utrecht-haalt-transfervrije-amerikaan~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Meer dan tweeduizend gedetineerden vervroegd vrij vanwege overvolle gevangenissen](https://www.ad.nl/binnenland/meer-dan-tweeduizend-gedetineerden-vervroegd-vrij-vanwege-overvolle-gevangenissen~a69d2254/)
+  > In een jaar tijd zijn 2129 gevangenen vervroegd vrijgekomen omdat de gevangenissen uitpuilen. Dat blijkt uit cijfers van de Dienst Justitiële...
+- [Opnieuw overleden kind aangetroffen in hete auto in Frankrijk](https://www.ad.nl/buitenland/opnieuw-overleden-kind-aangetroffen-in-hete-auto-in-frankrijk~a05fb849/)
+  > Een jongetje van 3 jaar is woensdagavond dood aangetroffen in een auto in Frankrijk. De ouders troffen de peuter aan in het voertuig buiten hun huis...
+- [Dit weten we nu over de catastrofale dubbele aardbeving in Venezuela](https://www.ad.nl/buitenland/dit-weten-we-nu-over-de-catastrofale-dubbele-aardbeving-in-venezuela~ae52a4e1/)
+  > Venezuela is woensdagavond getroffen door een historische natuurramp. In amper veertig seconden tijd werd het land opgeschrikt door twee zware...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Live: Cijfers chipbedrijf Micron kunnen AI-twijfels sussen](https://fd.nl/financiele-markten/1601273/live-cijfers-chipbedrijf-micron-kunnen-ai-twijfels-sussen)
-  > Het chipbedrijf Micron kwam gisteravond met beter dan verwachte kwartaalcijfers. Mogelijk schudden beleggers daarom hun zorgen over de torenhoge...
-- [Mathijs Bouman: ‘Ik vind opiniemaker het allerdomste woord dat er is’](https://fd.nl/economie/1601187/mathijs-bouman-ik-vind-opiniemaker-het-allerdomste-woord-dat-er-is)
-  > Econoom Mathijs Bouman schrijft sinds 2014 elke zaterdag een ‘Raderwerk’ voor het FD. Inmiddels zijn het er vijfhonderd. ‘Waar ik echt fout heb...
-- [Saskia van der Zee: ‘Ik wilde er niet meer zijn’](https://fd.nl/samenleving/1601113/saskia-van-der-zee-ik-wilde-er-niet-meer-zijn)
-  > Jarenlang ontkende voormalig marketeer Saskia van der Zee (1975) haar alcoholverslaving. Totdat ze na een val in het park bewusteloos raakte.
-- [Oeps... Box 3 kost zo’n €22 mrd](https://fd.nl/economie/1601165/oeps-box-3-kost-zon-22-mrd)
-  > Vandaag in Dagkoers: nieuwe Box 3 kost mogelijk €22 mrd, hoge investeringen in defensie zitten de bouw- en grondmarkt in de weg & een...
-- [To AC, or not to AC](https://fd.nl/opinie/1601244/to-ac-or-not-to-ac)
-  > Het voelt paradoxaal om de gevolgen van klimaatverandering te verzachten met nog meer energieverbruik.
+- [Hackersgroep ShinyHunters is de schrik van iedereen met een klantendatabase](https://fd.nl/tech-en-innovatie/1601221/hackersgroep-shinyhunters-is-de-schrik-van-iedereen-met-een-klantendatabase)
+  > De hackers van ShinyHunters drongen binnen bij onder meer telecombedrijf Odido en reisbedrijf BCD. Tot veroordelingen voor datadiefstal en afpersing...
+- [Rutger Bruining: ‘Ik schrik niet zo snel van een probleem’](https://fd.nl/samenleving/1601100/rutger-bruining-ik-schrik-niet-zo-snel-van-een-probleem)
+  > Wat maken professionals mee in hun loopbaan? Deze week Rutger Bruining (1978), oprichter en ceo van StoryTerrace, dat levensverhalen laat vastleggen...
+- [EasyJet houdt deur overname open na afwijzen bod Castlelake](https://fd.nl/bedrijfsleven/1601299/easyjet-houdt-deur-overname-open-na-afwijzen-bod-castlelake)
+  > Investeringsfirma krijgt van de luchtvaartmaatschappij inzage in meer informatie zodat er wellicht een beter bod kan komen.
+- [Zander Labs voert data uit de hersens aan een robot](https://fd.nl/bedrijfsleven/1594875/zander-labs-voert-data-uit-de-hersens-aan-een-robot)
+  > De Nederlands-Duitse start-up Zander Labs leest emoties in de hersens, om AI-systemen te leren hoe ze met mensen moeten samenwerken. Een Duitse klant...
+- [Hoge Raad: geen compensatie voor belastingbetalers die bezwaar tegen box 3 achterwege lieten](https://fd.nl/politiek/1601297/hoge-raad-geen-compensatie-voor-belastingbetalers-die-bezwaar-tegen-box3-achterwege-lieten)
+  > Belastingplichtigen die tussen 2017 en 2021 achteraf te veel belasting hebben betaald, maar niet tijdig aan de bel trokken, vissen achter het net....
 
 ### Meest gelezen
 
