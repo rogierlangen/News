@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-06-2026 om 12:24*
+*Laatst bijgewerkt: 25-06-2026 om 15:40*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Gaat alcohol het roken achterna? Gezondheidsraad wil dat overheid ingrijpt](https://nos.nl/l/2620238)
-  > De overheid moet ingrijpen om alcoholgebruik voor álle Nederlanders te ontmoedigen en minder normaal te maken. Dat adviseert de Gezondheidsraad. Dat...
-- [Weer Europese actie tegen Russische schaduwvloot: Frankrijk onderschept tanker](https://nos.nl/l/2620237)
-  > Frankrijk heeft opnieuw een schip van de Russische schaduwvloot onderschept. De olietanker Deliver voer op de Middellandse Zee in de buurt van...
-- [Olieprijs weer op oude niveau, wanneer gaan we dat zien aan de pomp?](https://nos.nl/l/2620235)
-  > De prijs voor een vat olie zit weer op het niveau van voordat de VS en Israël begonnen met het bombarderen van Iran.
-        Een vat Brent-olie, de...
-- [OM gaat in hoger beroep na vrijspraak in Berkelse vergismoord](https://nos.nl/l/2620232)
-  > Het Openbaar Ministerie (OM) gaat in hoger beroep in de zaak die bekendstaat als de Berkelse vergismoord. De verdachte werd eerder deze maand door de...
-- [Bussen op elkaar gebotst bij Schiphol, chauffeur en twee passagiers gewond](https://nos.nl/l/2620226)
-  > Op een parkeerplaats bij Schiphol zijn vanmorgen twee lijnbussen op elkaar gebotst. Een chauffeur van een van de bussen is naar het ziekenhuis...
+- [‘Historische’ hittegolf in Frankrijk vergroot risico op bosbranden](https://nos.nl/l/2620261)
+  > Een 'historische hittegolf', zo omschrijft het Franse weerinstituut de uitzonderlijk hoge temperaturen die Frankrijk nu al ruim een week in zijn...
+- [Eigenaar van weggezakte camper Grolloo haalt 'm uiteindelijk zelf weg](https://nos.nl/l/2620259)
+  > De camper die vorige week wegzakte op een vlonderpad in natuurgebied Grolloërveen, is weg. Er was al een bergingsbedrijf geregeld, maar nu blijkt dat...
+- [Rechters Internationaal Strafhof beginnen rechtszaak tegen Amerikaanse regering](https://nos.nl/l/2620254)
+  > Drie rechters van het Internationaal Strafhof in Den Haag spannen een rechtszaak aan tegen de Amerikaanse regering. Die heeft hen en andere...
+- [Friesland steekt 30 miljoen euro in aanpak laaggeletterdheid](https://nos.nl/l/2620250)
+  > Friesland gaat laaggeletterdheid bestrijden door 30 miljoen euro te investeren in verschillende (taal-)programma's. Hiermee wil de provincie inwoners...
+- [Vanaf middernacht code rood in acht provincies wegens hitte: 'Zoek verkoeling'](https://nos.nl/l/2620247)
+  > Vanaf middernacht geldt in acht provincies in Nederland code rood vanwege de verwachte extreme hitte. Het is voor het eerst dat het KNMI dit hoogste...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Lionel Richie wordt onwel en breekt optreden af: ‘Hij kan niet verder spelen’](https://www.ad.nl/show/lionel-richie-wordt-onwel-en-breekt-optreden-af-hij-kan-niet-verder-spelen~a65d5640/)
-  > Lionel Richie heeft een optreden voortijdig afgebroken, omdat hij zich niet goed voelde. Op beelden die rondgaan op sociale media is te zien dat de...
-- [Van vuilnis ophalen tot Afrika Cup-winnaar: het opmerkelijke verhaal van Tunesië-coach Hervé Renard](https://www.ad.nl/wk-voetbal/van-vuilnis-ophalen-tot-afrika-cup-winnaar-het-opmerkelijke-verhaal-van-tunesie-coach-herve-renard~aade860c/)
-  > Tunesië is na twee blamages uitgeschakeld op het WK. Maar als één bondscoach niet weet wat opgeven is, is dat wel Hervé Renard. De markante Fransman...
-- [Gezondheidsraad adviseert harde aanpak alcohol: ‘Er is geen veilige ondergrens’](https://www.ad.nl/gezond/gezondheidsraad-adviseert-harde-aanpak-alcohol-er-is-geen-veilige-ondergrens~ad250e1c/)
-  > Drank moet in de ban: dat is het advies vandaag van de Gezondheidsraad aan het ministerie van Volksgezondheid. Het beleid moet duidelijk anti alcohol...
-- [Pinkpop-beelden gaan viral: Electric Callboy grijpt in na haatreacties](https://www.ad.nl/show/pinkpop-beelden-gaan-viral-electric-callboy-grijpt-in-na-haatreacties~af83dc90/)
-  > De Duitse metalband Electric Callboy heeft noodgedwongen een video van het eigen optreden op Pinkpop verwijderd. Op de beelden was te zien hoe jonge...
-- [Eindigt Oranje als groepswinnaar? Dit is verwachte opstelling voor duel met Tunesië waarin noodweer verwacht wordt](https://www.ad.nl/wk-voetbal/eindigt-oranje-als-groepswinnaar-dit-is-verwachte-opstelling-voor-duel-met-tunesie-waarin-noodweer-verwacht-wordt~ab530957/)
-  > Het is de dag van Oranje, dat zijn derde en laatste groepsduel speelt. Tunesië is om 01.00 uur in Kansas City de tegenstander. Bij groepswinst wacht...
+- [Het verzet tegen de airco moet worden gestaakt](https://www.ad.nl/binnenland/het-verzet-tegen-de-airco-moet-worden-gestaakt~a56098cf/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [EBU zet deur open voor Canadese deelname aan songfestival](https://www.ad.nl/show/ebu-zet-deur-open-voor-canadese-deelname-aan-songfestival~aec68e9a/)
+  > De Canadese omroep CBC/Radio-Canada is sinds donderdag volwaardig lid van de European Broadcasting Union (EBU). Daarmee staat de deur open voor een...
+- [Ook in Oostenrijk is het bloedheet, maar Max Verstappen draagt geen koelvest in de auto: ‘Ik houd er niet van’](https://www.ad.nl/formule-1/ook-in-oostenrijk-is-het-bloedheet-maar-max-verstappen-draagt-geen-koelvest-in-de-auto-ik-houd-er-niet-van~a4fecc57/)
+  > Een heus hitteprotocol is van kracht in Oostenrijk, waar de temperaturen ook naar tropische waarden stijgen. Coureurs mogen met een ijsvest de auto...
+- [Geraldine koelt af met waterslang en Jim gaat ‘lekker’ op de hitte](https://www.ad.nl/show/geraldine-koelt-af-met-waterslang-en-jim-gaat-lekker-op-de-hitte~a0ab6663/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Nederlander Titus in Venezuela: ‘Appartement totaal verwoest’](https://www.ad.nl/nieuws/nederlander-titus-in-venezuela-appartement-totaal-verwoest~a607803b/)
+  > De vernietigende aardbeving in Venezuela laat een ongekend spoor van ravage na. De Nederlander Titus van den Oever zag in één klap zijn appartement...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Een veelkoppig monster](https://fd.nl/opinie/1601306/een-veelkoppig-monster)
-  > Zonder tegenkrachten wordt het bureaucratiemonster obees en peperduur, losgezongen van de burgers. Wat te doen om zaken te stroomlijnen?
-- [Helse pijn na een rugoperatie? ‘We bedachten een lokale verdoving, zoals bij de tandarts’](https://fd.nl/tech-en-innovatie/1599257/helse-pijn-na-een-rugoperatie-we-bedachten-een-lokale-verdoving-zoals-bij-de-tandarts)
-  > Jorrit-Jan Verlaan vond een ringetje uit dat de rug van patiënten dagenlang verdooft na een ingrijpende operatie. De eerste onderzoeksresultaten zijn...
-- [Verborgen onder de koerswinst van OCI ligt veel chagrijn](https://fd.nl/financiele-markten/1601378/verborgen-onder-de-koerswinst-van-oci-ligt-veel-chagrijn)
-  > Minderheidsaandeelhouders van OCI wilden een bod in contanten. Maar het bod dat nu plotseling op tafel ligt, wordt als te mager beschouwd.
-- [Ook voor de laatste papierfabriek in Eerbeek dreigt nu faillissement](https://fd.nl/bedrijfsleven/1601377/ook-voor-de-laatste-papierfabriek-in-eerbeek-dreigt-nu-faillissement)
-  > Folding Boxboard heeft surseance van betaling aangevraagd. Het gaat al langer niet goed met het bedrijf: vorig jaar behaalde het een negatief...
-- [Prosus investeert €400 mln in digitale zorgverzekeraar Alan](https://fd.nl/bedrijfsleven/1601302/prosus-investeert-400-mln-in-digitale-zorgverzekeraar-alan)
-  > Alan haalt een groot deel van zijn omzet uit het verkopen van zorgverzekeringen aan bedrijven als Volkswagen, Just Eat en WeWork. Ook Franse...
+- [Roep om terugkeer bij Nissan verbaast Ghosn niet: ‘Ze missen gewoon de hoogtijdagen’](https://fd.nl/bedrijfsleven/1601387/roep-om-terugkeer-bij-nissan-verbaast-ghosn-niet-ze-missen-gewoon-de-hoogtijdagen)
+  > Ghosn is er heilig van overtuigd dat er maar één persoon is die Nissan kan redden van de ondergang: hijzelf. Erg realistisch lijkt dat niet, want hij...
+- [KNMI: vrijdag code rood voor het grootste deel van Nederland](https://fd.nl/samenleving/1601317/knmi-vrijdag-code-rood-voor-het-grootste-deel-van-nederland)
+  > Bij code rood liggen gezondheidsklachten als uitdroging, oververhitting en levensbedreigende hitteberoerte op de loer.
+- [Amsterdamse start-up maakt van privéchat op Instagram een reclamekanaal](https://fd.nl/bedrijfsleven/1601149/amsterdamse-start-up-maakt-van-privechat-op-instagram-een-reclamekanaal)
+  > Bedrijven gebruiken de persoonlijke berichtenservice van Instagram om marketingcampagnes te verspreiden. Het Amsterdamse bedrijf Vibeday speelt hier...
+- [Kandidaat-premier Burnham wil van Londen wat meer Manchester maken](https://fd.nl/politiek/1601305/andy-burnham-wil-van-londen-wat-meer-manchester-maken)
+  > Hij houdt van mensen en mensen houden van hem. Dat zou het politieke succes van de Labour-politicus verklaren. Minder overeenstemming bestaat er over...
+- [Fietsendiefstal in vier jaar tijd met 45% gestegen](https://fd.nl/samenleving/1601316/fietsendiefstal-in-vier-jaar-tijd-met-45-gestegen)
+  > Omgekeerd worden er in Nederland per dag ongeveer 240 fietsen gestolen. De e-bike blijkt steeds geliefder roofgoed te zijn.
 
 ### Meest gelezen
 
