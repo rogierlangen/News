@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-06-2026 om 00:16*
+*Laatst bijgewerkt: 25-06-2026 om 05:07*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [17-jarige uit Hendrik-Ido-Ambacht verdacht van negen aanrandingen](https://nos.nl/l/2620155)
-  > De politie heeft een jongen van 17 uit Hendrik-Ido-Ambacht opgepakt die wordt verdacht van negen aanrandingen. Hij zou vrouwen hebben betast in...
-- [Tsjechische president mag van hoogste rechter toch naar NAVO-top](https://nos.nl/l/2620138)
-  > De Tsjechische president Pavel mag afreizen naar de NAVO-top in Turkije volgende maand. Dat heeft het Constitutioneel Hof in Tsjechië bepaald. Pavel...
-- [Musk nog steeds rijkste mens op aarde, maar na 12 dagen alweer biljonair af](https://nos.nl/l/2620134)
-  > Nog geen twee weken nadat hij zich de eerste biljonair ooit mocht noemen, is Elon Musk die status weer kwijt. De beurswaarde van zijn bedrijf SpaceX...
-- [Man opgepakt voor mishandeling van fietsende vrouwen in Utrecht](https://nos.nl/l/2620125)
-  > In Venlo heeft de politie een man aangehouden die verdacht wordt van het mishandelen van twee vrouwen in Utrecht. De politie had beelden van de man...
-- [60 miljoen sterren, 26 uur sluitertijd: zo ziet het hart van de Melkweg eruit](https://nos.nl/l/2620124)
-  > Goed nieuws voor mensen die zich weleens afvragen hoe het centrum van de Melkweg eruitziet: de goudgele gloed van tientallen miljoenen sterren in het...
+- [Roep om meer aandacht voor rouw in de klas: 'Veel scholen worstelen ermee'](https://nos.nl/l/2620181)
+  > Scholen zouden structureel aandacht moeten besteden aan rouw, niet alleen als zich sterfgevallen voordoen. Daarvoor pleiten psychologen, pedagogen,...
+- [KNMI verwacht recordwarme nacht: 'Je lichaam kan niet goed herstellen'](https://nos.nl/l/2620179)
+  > Je zult het zwetend in bed vast gemerkt hebben: niet alleen de dagen zijn heet, ook de nachten. Mogelijk wordt aankomende nacht zelfs de warmste die...
+- [Wekdienst 25/6: Snikhete dag • Kamerdebat over toekomst Moerdijk](https://nos.nl/l/2620178)
+  > Goedemorgen! Opnieuw gelden allerlei maatregelen vanwege de hitte. Er is een Kamerdebat over de toekomst van Moerdijk en Oranje speelt komende nacht...
+- [NAVO-chef Rutte probeert op bezoek bij Trump plooien glad te strijken](https://nos.nl/l/2620173)
+  > NAVO-chef Mark Rutte heeft bij een bezoek aan het Witte Huis geprobeerd de relatie met de Amerikaanse president Trump weer een beetje vlot te...
+- [Twee zware aardbevingen in Venezuela, vrees voor duizenden slachtoffers](https://nos.nl/l/2620160)
+  > In Venezuela zijn kort achter elkaar twee aardbevingen geweest. In de hoofdstad Caracas zijn meerdere gebouwen ingestort. De Amerikaanse geologische...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Brazilië wint poule na simpele zege op Schotland, grootste gejuich bij invalbeurt Neymar](https://www.ad.nl/wk-voetbal/brazilie-wint-poule-na-simpele-zege-op-schotland-grootste-gejuich-bij-invalbeurt-neymar~a457f164/)
-  > Brazilië heeft zich tot groepswinnaar van poule C gekroond. De ploeg van bondscoach Carlo Ancelotti won in Miami met 3-0 van Schotland, dat als...
-- [Oranje bij poulewinst in zestiende finales WK tegen Marokko, waar Ismael Saibari weer scoort](https://www.ad.nl/wk-voetbal/oranje-bij-poulewinst-in-zestiende-finales-wk-tegen-marokko-waar-ismael-saibari-weer-scoort~a2315f99/)
-  > Marokko is de groepswinst op het WK voetbal misgelopen. De Atlasleeuwen wonnen zelf met de nodige moeite van het al uitgeschakelde Haïti (4-2), maar...
-- [Metereologische Dienst Curaçao: geen kans op tsunami na beving bij Venezuela](https://www.ad.nl/buitenland/metereologische-dienst-curacao-geen-kans-op-tsunami-na-beving-bij-venezuela~aeaed9b4/)
-  > De Meteorologische Dienst op Curaçao heeft woensdagavond (lokale tijd) bevestigd dat de aardbeving die plaatsvond voor de kust van Venezuela, ook te...
-- [Na de groepsfase in de nacht tegen Marokko? Dit is de virtuele route van Oranje richting de WK-finale](https://www.ad.nl/wk-voetbal/na-de-groepsfase-in-de-nacht-tegen-marokko-dit-is-de-virtuele-route-van-oranje-richting-de-wk-finale~adf3ca91/)
-  > Het Nederlands elftal heeft de eerste zege dit WK te pakken: Zweden werd met 5-1 verslagen. De ploeg van bondscoach Ronald Koeman heeft nu vier...
-- [Ronald Koeman gaat met Oranje voor eerste plek in de poule: ‘Ik ga op voorhand niemand sparen’](https://www.ad.nl/wk-voetbal/ronald-koeman-gaat-met-oranje-voor-eerste-plek-in-de-poule-ik-ga-op-voorhand-niemand-sparen~acb67287/)
-  > Het Nederlands elftal gaat vol voor groepswinst in de laatste poulewedstrijd tegen Tunesië (vrijdag 01.00 uur) in Kansas City. Bondscoach Ronald...
+- [Elke dag een cappuccino zonder af te rekenen: Rotterdams koffieabonnement gaat viraal, maar is het écht voordelig?](https://www.ad.nl/binnenland/elke-dag-een-cappuccino-zonder-af-te-rekenen-rotterdams-koffieabonnement-gaat-viraal-maar-is-het-echt-voordelig~acdf8104/)
+  > Onderweg naar werk nog even snel een cappuccino halen bij die hippe koffiezaak op de hoek. Het is voor veel mensen een dagelijkse routine, maar het...
+- [Zware aardbevingen in Venezuela: 32 doden en 700 gewonden, vrees voor tienduizenden slachtoffers](https://www.ad.nl/buitenland/zware-aardbevingen-in-venezuela-32-doden-en-700-gewonden-vrees-voor-tienduizenden-slachtoffers~a6edd732/)
+  > Twee verwoestende aardbevingen hebben Venezuela binnen 39 seconden getroffen. Interim-president Delcy Rodríguez meldt voorlopig 32 doden en 700...
+- [Flinke weersomslag op komst in Nederland: temperatuur duikelt volgende week met 18 graden omlaag](https://www.ad.nl/binnenland/flinke-weersomslag-op-komst-in-nederland-temperatuur-duikelt-volgende-week-met-18-graden-omlaag~aff74502/)
+  > Het is nog een paar dagen puffen en kreunen (en genieten), maar er is een forse weersomslag op komst. Terwijl de temperatuur vrijdag lokaal oploopt...
+- [Nederland ontwaakt na ouderwetse plaknacht, België kondigt voor vrijdag code rood af](https://www.ad.nl/binnenland/nederland-ontwaakt-na-ouderwetse-plaknacht-belgie-kondigt-voor-vrijdag-code-rood-af~a57707aa/)
+  > De hittegolf in België houdt aan en bereikt vrijdag een absoluut hoogtepunt. Op veel plekken stijgt het kwik tot boven de 35 graden. Voor de...
+- [Deze zes dingen smelten, ontploffen of worden giftig in een hete auto](https://www.ad.nl/auto/deze-zes-dingen-smelten-ontploffen-of-worden-giftig-in-een-hete-auto~afb66d88/)
+  > Op een warme zomerdag verandert een auto binnen korte tijd in een oven. De binnentemperatuur kan al na een uur oplopen tot 80 graden of meer. Dat is...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Live: Cijfers chipbedrijf Micron kunnen AI-twijfels sussen](https://fd.nl/financiele-markten/1601273/live-cijfers-chipbedrijf-micron-kunnen-ai-twijfels-sussen)
+  > Het chipbedrijf Micron kwam gisteravond met beter dan verwachte kwartaalcijfers. Mogelijk schudden beleggers daarom hun zorgen over de torenhoge...
+- [Mathijs Bouman: ‘Ik vind opiniemaker het allerdomste woord dat er is’](https://fd.nl/economie/1601187/mathijs-bouman-ik-vind-opiniemaker-het-allerdomste-woord-dat-er-is)
+  > Econoom Mathijs Bouman schrijft sinds 2014 elke zaterdag een ‘Raderwerk’ voor het FD. Inmiddels zijn het er vijfhonderd. ‘Waar ik echt fout heb...
+- [Saskia van der Zee: ‘Ik wilde er niet meer zijn’](https://fd.nl/samenleving/1601113/saskia-van-der-zee-ik-wilde-er-niet-meer-zijn)
+  > Jarenlang ontkende voormalig marketeer Saskia van der Zee (1975) haar alcoholverslaving. Totdat ze na een val in het park bewusteloos raakte.
+- [Oeps... Box 3 kost zo’n €22 mrd](https://fd.nl/economie/1601165/oeps-box-3-kost-zon-22-mrd)
+  > Vandaag in Dagkoers: nieuwe Box 3 kost mogelijk €22 mrd, hoge investeringen in defensie zitten de bouw- en grondmarkt in de weg & een...
 - [To AC, or not to AC](https://fd.nl/opinie/1601244/to-ac-or-not-to-ac)
   > Het voelt paradoxaal om de gevolgen van klimaatverandering te verzachten met nog meer energieverbruik.
-- [Koffiedikkijker des Vaderlands](https://fd.nl/opinie/1601144/koffiedikkijker-des-vaderlands)
-  > Raad van State waarschuwt politici voor de ‘tirannie van het hedendaagse’. Maar de verafgelegen toekomst overschatten kan juist huidige generaties...
-- [Vicevoorzitter Capital Group: ‘Pensioenfondsen in Europa nemen te weinig risico’](https://fd.nl/financiele-markten/1600802/vicevoorzitter-capital-group-pensioenfondsen-in-europa-nemen-te-weinig-risico)
-  > Capital Group vindt dat Europese pensioenfondsen niet de voorkeur moeten geven aan investeren in Europa boven de VS. Opmerkelijk: deze...
-- [Personalia donderdag 25 juni](https://fd.nl/bedrijfsleven/1601231/personalia-donderdag-25-juni)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Twee leveranciers van lokaal opgewekte stroom gaan samen](https://fd.nl/bedrijfsleven/1601164/twee-leveranciers-van-lokaal-opgewekte-stroom-gaan-samen)
-  > OM Nieuwe Energie en Energie VanOns gaan samen verder als Energie van Ons.
 
 ### Meest gelezen
 
