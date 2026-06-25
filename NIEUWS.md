@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-06-2026 om 15:40*
+*Laatst bijgewerkt: 25-06-2026 om 18:13*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Jarenlange celstraffen voor hoofdrolspelers in Zwolse drugsoorlog](https://nos.nl/l/2620276)
+  > Twee verdachten die een hoofdrol speelden in een langdurige drugsoorlog in Zwolle zijn vandaag veroordeeld tot jarenlange celstraffen.
+        De...
+- [Tientallen mensen op de vuist bij watergevecht in Brabants dorp, twee gewonden](https://nos.nl/l/2620275)
+  > Een watergevecht in het Brabantse dorp Schijf is gisteravond uitgelopen op een massale, echte vechtpartij waarbij tientallen mensen betrokken waren....
+- [Een goal, een punt, straks eerste overwinning? Hoe Curaçao grenzen verlegt](https://nos.nl/l/2620274)
+  > Curaçao speelt vanavond op het WK tegen Ivoorkust. Een eerste zege voor het land kan, afhankelijk van de andere uitslag in de groep, de volgende...
 - [‘Historische’ hittegolf in Frankrijk vergroot risico op bosbranden](https://nos.nl/l/2620261)
   > Een 'historische hittegolf', zo omschrijft het Franse weerinstituut de uitzonderlijk hoge temperaturen die Frankrijk nu al ruim een week in zijn...
 - [Eigenaar van weggezakte camper Grolloo haalt 'm uiteindelijk zelf weg](https://nos.nl/l/2620259)
   > De camper die vorige week wegzakte op een vlonderpad in natuurgebied Grolloërveen, is weg. Er was al een bergingsbedrijf geregeld, maar nu blijkt dat...
-- [Rechters Internationaal Strafhof beginnen rechtszaak tegen Amerikaanse regering](https://nos.nl/l/2620254)
-  > Drie rechters van het Internationaal Strafhof in Den Haag spannen een rechtszaak aan tegen de Amerikaanse regering. Die heeft hen en andere...
-- [Friesland steekt 30 miljoen euro in aanpak laaggeletterdheid](https://nos.nl/l/2620250)
-  > Friesland gaat laaggeletterdheid bestrijden door 30 miljoen euro te investeren in verschillende (taal-)programma's. Hiermee wil de provincie inwoners...
-- [Vanaf middernacht code rood in acht provincies wegens hitte: 'Zoek verkoeling'](https://nos.nl/l/2620247)
-  > Vanaf middernacht geldt in acht provincies in Nederland code rood vanwege de verwachte extreme hitte. Het is voor het eerst dat het KNMI dit hoogste...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Het verzet tegen de airco moet worden gestaakt](https://www.ad.nl/binnenland/het-verzet-tegen-de-airco-moet-worden-gestaakt~a56098cf/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [EBU zet deur open voor Canadese deelname aan songfestival](https://www.ad.nl/show/ebu-zet-deur-open-voor-canadese-deelname-aan-songfestival~aec68e9a/)
-  > De Canadese omroep CBC/Radio-Canada is sinds donderdag volwaardig lid van de European Broadcasting Union (EBU). Daarmee staat de deur open voor een...
-- [Ook in Oostenrijk is het bloedheet, maar Max Verstappen draagt geen koelvest in de auto: ‘Ik houd er niet van’](https://www.ad.nl/formule-1/ook-in-oostenrijk-is-het-bloedheet-maar-max-verstappen-draagt-geen-koelvest-in-de-auto-ik-houd-er-niet-van~a4fecc57/)
-  > Een heus hitteprotocol is van kracht in Oostenrijk, waar de temperaturen ook naar tropische waarden stijgen. Coureurs mogen met een ijsvest de auto...
-- [Geraldine koelt af met waterslang en Jim gaat ‘lekker’ op de hitte](https://www.ad.nl/show/geraldine-koelt-af-met-waterslang-en-jim-gaat-lekker-op-de-hitte~a0ab6663/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Nederlander Titus in Venezuela: ‘Appartement totaal verwoest’](https://www.ad.nl/nieuws/nederlander-titus-in-venezuela-appartement-totaal-verwoest~a607803b/)
-  > De vernietigende aardbeving in Venezuela laat een ongekend spoor van ravage na. De Nederlander Titus van den Oever zag in één klap zijn appartement...
+- [Code rood door extreme hitte: wat zijn je rechten als werknemer?](https://www.ad.nl/binnenland/code-rood-door-extreme-hitte-wat-zijn-je-rechten-als-werknemer~a429dad8/)
+  > Buiten brandt de zon genadeloos en het KNMI kondigt code rood af. Wat betekent deze extreme hitte voor jou als werknemer? Ben je als...
+- [LIVE WK voetbal | Duitsland aast op perfecte groepsfase in afsluitend duel met Ecuador](https://www.ad.nl/wk-voetbal/live-wk-voetbal-duitsland-aast-op-perfecte-groepsfase-in-afsluitend-duel-met-ecuador~ac2cccd8/)
+  > Duitsland is na zeges op Curaçao (7-1) en Ivoorkust (2-1) al zeker van de volgende ronde. Ecuador is in het MetLife Stadium de laatste tegenstander....
+- [Yves Berendse weer gelukkig in de liefde: ‘Blij dat ze nu hier is’](https://www.ad.nl/show/yves-berendse-weer-gelukkig-in-de-liefde-blij-dat-ze-nu-hier-is~a08233da/)
+  > Yves Berendse (32) is niet langer vrijgezel. Nadat in april bekend werd dat zijn relatie met zijn ex Sophie na negen jaar strandde, heeft hij nu de...
+- [Blikjes rapen voor statiegeld blijkt riskant: ‘Het aantal snijwonden is vervijfvoudigd’](https://www.ad.nl/nieuws/blikjes-rapen-voor-statiegeld-blijkt-riskant-het-aantal-snijwonden-is-vervijfvoudigd~a3592f70/)
+  > Dak- en thuislozen lopen veel vaker snijwonden op sinds er statiegeld zit op blikjes. De verwondingen ontstaan tijdens de dagelijkse strooptochten,...
+- [‘Cruciale thuisrace’ voor Red Bull Racing, nu ze Max Verstappen moeten zien te overtuigen om te blijven](https://www.ad.nl/formule-1/cruciale-thuisrace-voor-red-bull-racing-nu-ze-max-verstappen-moeten-zien-te-overtuigen-om-te-blijven~a8db45cd/)
+  > Niet alleen de temperatuur op de Red Bull Ring stijgt tot recordhoogte, ook de situatie rond de toekomst van Max Verstappen nadert het kookpunt. Wat...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Roep om terugkeer bij Nissan verbaast Ghosn niet: ‘Ze missen gewoon de hoogtijdagen’](https://fd.nl/bedrijfsleven/1601387/roep-om-terugkeer-bij-nissan-verbaast-ghosn-niet-ze-missen-gewoon-de-hoogtijdagen)
-  > Ghosn is er heilig van overtuigd dat er maar één persoon is die Nissan kan redden van de ondergang: hijzelf. Erg realistisch lijkt dat niet, want hij...
-- [KNMI: vrijdag code rood voor het grootste deel van Nederland](https://fd.nl/samenleving/1601317/knmi-vrijdag-code-rood-voor-het-grootste-deel-van-nederland)
-  > Bij code rood liggen gezondheidsklachten als uitdroging, oververhitting en levensbedreigende hitteberoerte op de loer.
-- [Amsterdamse start-up maakt van privéchat op Instagram een reclamekanaal](https://fd.nl/bedrijfsleven/1601149/amsterdamse-start-up-maakt-van-privechat-op-instagram-een-reclamekanaal)
-  > Bedrijven gebruiken de persoonlijke berichtenservice van Instagram om marketingcampagnes te verspreiden. Het Amsterdamse bedrijf Vibeday speelt hier...
-- [Kandidaat-premier Burnham wil van Londen wat meer Manchester maken](https://fd.nl/politiek/1601305/andy-burnham-wil-van-londen-wat-meer-manchester-maken)
-  > Hij houdt van mensen en mensen houden van hem. Dat zou het politieke succes van de Labour-politicus verklaren. Minder overeenstemming bestaat er over...
-- [Fietsendiefstal in vier jaar tijd met 45% gestegen](https://fd.nl/samenleving/1601316/fietsendiefstal-in-vier-jaar-tijd-met-45-gestegen)
-  > Omgekeerd worden er in Nederland per dag ongeveer 240 fietsen gestolen. De e-bike blijkt steeds geliefder roofgoed te zijn.
+- [Hooggerechtshof geeft Trump vrij spel bij uitzetting honderdduizenden migranten](https://fd.nl/politiek/1601394/hooggerechtshof-geeft-trump-vrij-spel-bij-uitzetting-honderdduizenden-migranten)
+  > Statushouders uit Haïti en Syrië die op basis van een tijdelijk programma in de VS verbleven, mogen volgens het hoogste rechtsorgaan teruggestuurd...
+- [Heineken maakt met zijn nieuwe ceo een gedurfde keuze](https://fd.nl/opinie/1601389/heineken-maakt-met-zijn-nieuwe-ceo-een-gedurfde-keuze)
+  > Met Rafael Oliveira haalt Heineken een relatief onervaren ceo binnen. Het is duidelijk dat het bierbedrijf daarmee een nieuwe weg in wil slaan.
+- [Amerikaans Hooggerechtshof bezorgt Bayer grote overwinning in Roundup-zaak](https://fd.nl/bedrijfsleven/1601393/hooggerechtshof-bezorgt-bayer-grote-overwinning-in-roundup-zaak)
+  > Het aandeel van de Duitse chemiegigant schoot met 19% omhoog na de uitspraak over het onkruidbestrijdingsmiddel. Volgens de rechtbank was een...
+- [Kwartaalcijfers Micron herstellen vertrouwen in AI-chipmarkt](https://fd.nl/bedrijfsleven/1601300/kwartaalcijfers-micron-herstellen-vertrouwen-in-ai-chipmarkt)
+  > De kwartaalcijfers van Micron stelden techbeleggers gerust. Chipaandelen gingen in het begin van de week in de verkoop, maar de AI-rally op de beurs...
+- [Fles met een verhaal houdt wijnspecialist op de been](https://fd.nl/bedrijfsleven/1601098/fles-met-een-verhaal-houdt-wijnspecialist-op-de-been)
+  > Nederlanders drinken minder wijn en het gebruik van alcohol wordt verder ontmoedigd. Gespecialiseerde wijnwinkels proberen met betere en bijzondere...
 
 ### Meest gelezen
 
