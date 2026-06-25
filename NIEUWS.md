@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-06-2026 om 18:13*
+*Laatst bijgewerkt: 25-06-2026 om 20:59*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Jarenlange celstraffen voor hoofdrolspelers in Zwolse drugsoorlog](https://nos.nl/l/2620276)
-  > Twee verdachten die een hoofdrol speelden in een langdurige drugsoorlog in Zwolle zijn vandaag veroordeeld tot jarenlange celstraffen.
-        De...
-- [Tientallen mensen op de vuist bij watergevecht in Brabants dorp, twee gewonden](https://nos.nl/l/2620275)
-  > Een watergevecht in het Brabantse dorp Schijf is gisteravond uitgelopen op een massale, echte vechtpartij waarbij tientallen mensen betrokken waren....
-- [Een goal, een punt, straks eerste overwinning? Hoe Curaçao grenzen verlegt](https://nos.nl/l/2620274)
-  > Curaçao speelt vanavond op het WK tegen Ivoorkust. Een eerste zege voor het land kan, afhankelijk van de andere uitslag in de groep, de volgende...
-- [‘Historische’ hittegolf in Frankrijk vergroot risico op bosbranden](https://nos.nl/l/2620261)
-  > Een 'historische hittegolf', zo omschrijft het Franse weerinstituut de uitzonderlijk hoge temperaturen die Frankrijk nu al ruim een week in zijn...
-- [Eigenaar van weggezakte camper Grolloo haalt 'm uiteindelijk zelf weg](https://nos.nl/l/2620259)
-  > De camper die vorige week wegzakte op een vlonderpad in natuurgebied Grolloërveen, is weg. Er was al een bergingsbedrijf geregeld, maar nu blijkt dat...
+- [Voor het eerst sinds oorlog weer Nederlandse schepen door Straat van Hormuz](https://nos.nl/l/2620298)
+  > Voor het eerst sinds de oorlog in Iran is begonnen, zijn enkele schepen die onder de Nederlandse vlag varen door de Straat van Hormuz gekomen. Dat...
+- [Race tegen de klok in rampgebied Venezuela, massaal gezocht naar vermiste familieleden](https://nos.nl/l/2620295)
+  > "Wie is zijn familie?", staat bij de foto van een gewond kind. "Zijn naam is Sebastián. Hij is tien jaar oud. Hij raakte zijn ouders kwijt tijdens de...
+- [In de 'voetbalhoofdstad' van Amerika draait alles om Messi: 'Hij is de GOAT'](https://nos.nl/l/2620292)
+  > De voetbalfans in Kansas City weten het zeker. "Hij is de GOAT, de grootste aller tijden", zegt een jonge fan op een watchparty bij het stadion van...
+- [Scholen dicht en rechtszaken afgelast: hitte legt Nederland gedeeltelijk plat](https://nos.nl/l/2620282)
+  > Nu het KNMI voor morgen code rood heeft afgegeven voor acht provincies vanwege extreme hitte worden door heel Nederland extra maatregelen genomen. In...
+- [Oppositiemedia Turkije geweigerd op NAVO-top in Ankara](https://nos.nl/l/2620280)
+  > Meerdere Turkse journalisten hebben per mail te horen gekregen dat hun accreditatie om de NAVO-top op 7 en 8 juli in Ankara te verslaan geweigerd is....
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Code rood door extreme hitte: wat zijn je rechten als werknemer?](https://www.ad.nl/binnenland/code-rood-door-extreme-hitte-wat-zijn-je-rechten-als-werknemer~a429dad8/)
-  > Buiten brandt de zon genadeloos en het KNMI kondigt code rood af. Wat betekent deze extreme hitte voor jou als werknemer? Ben je als...
-- [LIVE WK voetbal | Duitsland aast op perfecte groepsfase in afsluitend duel met Ecuador](https://www.ad.nl/wk-voetbal/live-wk-voetbal-duitsland-aast-op-perfecte-groepsfase-in-afsluitend-duel-met-ecuador~ac2cccd8/)
-  > Duitsland is na zeges op Curaçao (7-1) en Ivoorkust (2-1) al zeker van de volgende ronde. Ecuador is in het MetLife Stadium de laatste tegenstander....
-- [Yves Berendse weer gelukkig in de liefde: ‘Blij dat ze nu hier is’](https://www.ad.nl/show/yves-berendse-weer-gelukkig-in-de-liefde-blij-dat-ze-nu-hier-is~a08233da/)
-  > Yves Berendse (32) is niet langer vrijgezel. Nadat in april bekend werd dat zijn relatie met zijn ex Sophie na negen jaar strandde, heeft hij nu de...
-- [Blikjes rapen voor statiegeld blijkt riskant: ‘Het aantal snijwonden is vervijfvoudigd’](https://www.ad.nl/nieuws/blikjes-rapen-voor-statiegeld-blijkt-riskant-het-aantal-snijwonden-is-vervijfvoudigd~a3592f70/)
-  > Dak- en thuislozen lopen veel vaker snijwonden op sinds er statiegeld zit op blikjes. De verwondingen ontstaan tijdens de dagelijkse strooptochten,...
-- [‘Cruciale thuisrace’ voor Red Bull Racing, nu ze Max Verstappen moeten zien te overtuigen om te blijven](https://www.ad.nl/formule-1/cruciale-thuisrace-voor-red-bull-racing-nu-ze-max-verstappen-moeten-zien-te-overtuigen-om-te-blijven~a8db45cd/)
-  > Niet alleen de temperatuur op de Red Bull Ring stijgt tot recordhoogte, ook de situatie rond de toekomst van Max Verstappen nadert het kookpunt. Wat...
+- [Tennislegende Chris Evert (71) opnieuw getroffen door kanker](https://www.ad.nl/tennis/tennislegende-chris-evert-71-opnieuw-getroffen-door-kanker~a1bfc1de/)
+  > Tennislegende Chris Evert is voor de derde keer getroffen door eierstokkanker. Dat heeft de 71-jarige Amerikaanse bekendgemaakt op X.
+- [Curaçao heeft het zwaar tegen Ivoorkust, Advocaat moet in de rust iets gaan bedenken](https://www.ad.nl/wk-voetbal/curacao-heeft-het-zwaar-tegen-ivoorkust-advocaat-moet-in-de-rust-iets-gaan-bedenken~aab4bca8/)
+  > Curaçao is bezig aan een WK-sprookje. Het land van bondscoach Dick Advocaat stuntte door een punt te pakken tegen Ecuador (0-0). Bij een zege op...
+- [Goedkoopste plug-inhybride van Nederland kost 25.000 euro](https://www.ad.nl/auto/goedkoopste-plug-inhybride-van-nederland-kost-25-000-euro~ae661804/)
+  > Bij de compacte auto’s zijn stekkerloze hybrides en volledig elektrische auto’s inmiddels heel gewoon. Maar een plug-inhybride was er nog niet. Tot...
+- [Onzekerheid rond duel Oranje: perscentrum ontruimd uit angst voor gevolgen noodweer](https://www.ad.nl/wk-voetbal/onzekerheid-rond-duel-oranje-perscentrum-ontruimd-uit-angst-voor-gevolgen-noodweer~ab530957/)
+  > Het is de dag van Oranje, dat zijn derde en laatste groepsduel speelt. Tunesië is om 01.00 uur in Kansas City de tegenstander. Bij groepswinst wacht...
+- [Derksen en Genee clashen in Vandaag Inside: ‘Je moet niet bijdehand doen tegen mij’](https://www.ad.nl/show/derksen-en-genee-clashen-in-vandaag-inside-je-moet-niet-bijdehand-doen-tegen-mij~a71af240/)
+  > Johan Derksen en Wilfred Genee zijn elkaar donderdagavond in Vandaag Inside Oranje verbaal in de haren gevlogen. Een opmerking van Genee schoot bij...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Vrachtschip beschoten in Straat van Hormuz](https://fd.nl/bedrijfsleven/1601395/vrachtschip-beschoten-in-straat-van-hormuz)
+  > De beschieting kan de snelle heropening van dit cruciale knooppunt voor energievervoer ondermijnen.
+- [Braziliaanse centrale bank verhoogt prognose](https://fd.nl/economie/1601363/braziliaanse-centrale-bank-verhoogt-prognose)
+  > Economie deed het verrassend goed in het eerste kwartaal.
+- [Ondanks goede resultaten chipmakers geen breed herstel van techaandelen](https://fd.nl/bedrijfsleven/1601320/ondanks-goede-resultaten-chipmakers-geen-breed-herstel-van-techaandelen)
+  > Techbedrijven zijn nog niet opgekrabbeld na de verkoopgolf van dinsdag. Een onderneming die wél het vertrouwen van beleggers kreeg, is BlackBerry.
+- [Spaanse premier Sánchez verliest vertrouwensstemming, maar treedt niet af](https://fd.nl/politiek/1601319/tegenstribbelende-spaanse-premier-sanchez-verliest-vertrouwensstemming-maar-treedt-niet-af)
+  > Het Spaanse parlement heeft het vertrouwen in premier Pedro Sánchez opgezegd vanwege corruptiezaken in zijn omgeving. Linkse partijen die hem eerder...
 - [Hooggerechtshof geeft Trump vrij spel bij uitzetting honderdduizenden migranten](https://fd.nl/politiek/1601394/hooggerechtshof-geeft-trump-vrij-spel-bij-uitzetting-honderdduizenden-migranten)
   > Statushouders uit Haïti en Syrië die op basis van een tijdelijk programma in de VS verbleven, mogen volgens het hoogste rechtsorgaan teruggestuurd...
-- [Heineken maakt met zijn nieuwe ceo een gedurfde keuze](https://fd.nl/opinie/1601389/heineken-maakt-met-zijn-nieuwe-ceo-een-gedurfde-keuze)
-  > Met Rafael Oliveira haalt Heineken een relatief onervaren ceo binnen. Het is duidelijk dat het bierbedrijf daarmee een nieuwe weg in wil slaan.
-- [Amerikaans Hooggerechtshof bezorgt Bayer grote overwinning in Roundup-zaak](https://fd.nl/bedrijfsleven/1601393/hooggerechtshof-bezorgt-bayer-grote-overwinning-in-roundup-zaak)
-  > Het aandeel van de Duitse chemiegigant schoot met 19% omhoog na de uitspraak over het onkruidbestrijdingsmiddel. Volgens de rechtbank was een...
-- [Kwartaalcijfers Micron herstellen vertrouwen in AI-chipmarkt](https://fd.nl/bedrijfsleven/1601300/kwartaalcijfers-micron-herstellen-vertrouwen-in-ai-chipmarkt)
-  > De kwartaalcijfers van Micron stelden techbeleggers gerust. Chipaandelen gingen in het begin van de week in de verkoop, maar de AI-rally op de beurs...
-- [Fles met een verhaal houdt wijnspecialist op de been](https://fd.nl/bedrijfsleven/1601098/fles-met-een-verhaal-houdt-wijnspecialist-op-de-been)
-  > Nederlanders drinken minder wijn en het gebruik van alcohol wordt verder ontmoedigd. Gespecialiseerde wijnwinkels proberen met betere en bijzondere...
 
 ### Meest gelezen
 
