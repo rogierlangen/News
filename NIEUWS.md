@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-06-2026 om 19:55*
+*Laatst bijgewerkt: 26-06-2026 om 21:23*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Dit vinden boeren, milieuclubs en de bouwsector van de nieuwe stikstofplannen](https://nos.nl/l/2620476)
+  > De vee- en landbouwsector is kritisch op de stikstofplannen van het kabinet. De gevolgen voor boeren zouden enorm zijn, zeggen ze. Milieuorganisaties...
+- [17-jarige jongen overleden na mishandeling door groep in Frankrijk](https://nos.nl/l/2620475)
+  > Een 17-jarige jongen die vorige week in het Zuid-Franse Narbonne door meerdere leeftijdgenoten werd mishandeld, is aan zijn verwondingen overleden....
+- [Gevangenis Almere mogelijk weer open in strijd tegen cellentekort](https://nos.nl/l/2620471)
+  > De leegstaande gevangenis Almere Buiten wordt mogelijk heropend. Dat staat in een voorstel van staatssecretaris van Justitie en Veiligheid Van...
+- [Wie gered is uit het puin in Venezuela is daarna volledig op zichzelf aangewezen](https://nos.nl/l/2620468)
+  > "Het was een kinderfeestje", zegt een jonge reddingswerker. Hij barst in tranen uit. "We haalden lichamen van een kinderfeestje uit het puin. Je kan...
 - [Statiegeld op plastic melkfles en proteïnedrank: minister wil uitbreiding statiegeldplicht](https://nos.nl/l/2620463)
   > Op plastic zuivel- en sapflessen tot drie liter moet verplicht statiegeld komen. Dat schrijft minister van Klimaat en Groene Groei Van Veldhoven-Van...
-- [Podcast De Stemming: Lelijk beton, het stikstofslot en een banaan](https://nos.nl/l/2620459)
-  > Het was een spannende dag voor het kabinet en dan met name voor minister Van Essen van Landbouw want vanmiddag is officieel het stikstofpakket...
-- [Tot 18 jaar cel voor vergiftiging Duits gezin in Turks hotel](https://nos.nl/l/2620456)
-  > In Turkije zijn vier verdachten tot lange celstraffen veroordeeld voor de dood van een Turks-Duits gezin tijdens een vakantie. De ouders en hun twee...
-- [Weer aap ontsnapt uit dierentuin, dit keer Artis](https://nos.nl/l/2620452)
-  > Een rode vari is vandaag enkele uren op avontuur gegaan buiten dierenpark Artis in Amsterdam. Medewerkers van Artis wisten samen met de politie en de...
-- [Schoolsluitingen in coronatijd: hoe schadelijk of noodzakelijk waren ze?](https://nos.nl/l/2620446)
-  > In de coronajaren zijn scholen en universiteiten maanden dicht geweest om de verspreiding van het virus tegen te gaan. De gevolgen voor kinderen en...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zwitserland verbreekt voor tweede dag op rij hitterecord in juni: temperatuur van 38,8 graden gemeten](https://www.ad.nl/buitenland/zwitserland-verbreekt-voor-tweede-dag-op-rij-hitterecord-in-juni-temperatuur-van-38-8-graden-gemeten~acbf359a/)
-  > In Zwitserland is voor de tweede dag op rij het hitterecord voor de maand juni verbroken. Bij de noordoostelijke stad Basel is vrijdag een...
-- [Na ‘familieruzie’: Millie Bobby Brown en David Harbour weer samen in nieuwe serie](https://www.ad.nl/show/na-familieruzie-millie-bobby-brown-en-david-harbour-weer-samen-in-nieuwe-serie~aa6799e8/)
-  > Stranger Things-acteurs Millie Bobby Brown en David Harbour spelen opnieuw samen in een Netflix-serie, meldt The Hollywood Reporter. De...
-- [Meta zou werken aan een gokapp, maar dat mag hier niet zomaar: ‘Wedden op Trumps haar is verboden’](https://www.ad.nl/tech/meta-zou-werken-aan-een-gokapp-maar-dat-mag-hier-niet-zomaar-wedden-op-trumps-haar-is-verboden~ab253f02/)
-  > Wedden op sportuitslagen of verkiezingen? Apps zoals Polymarket en Kalshi maakten het populair. Nu blijkt dat Meta, het bedrijf achter Facebook en...
-- [LIVE code rood | Dienstregeling NS heeft tot en met dinsdag nog last van hitte, verschillende wegen dicht door hitteschade](https://www.ad.nl/binnenland/live-code-rood-dienstregeling-ns-heeft-tot-en-met-dinsdag-nog-last-van-hitte-verschillende-wegen-dicht-door-hitteschade~a57707aa/)
-  > De hitte blijft de komende dagen voor problemen zorgen op het spoor. Tot en met zaterdag gold al een aangepaste dienstregeling, maar diverse treinen...
-- [Ousmane Dembélé maakt zijn derde voor Frankrijk tegen B-keus van Noorwegen](https://www.ad.nl/wk-voetbal/ousmane-dembele-maakt-zijn-derde-voor-frankrijk-tegen-b-keus-van-noorwegen~a6dbd095/)
-  > Frankrijk - Noorwegen was op voorhand het duel tussen Kylian Mbappé en Erling Haaland, maar bij Noorwegen heeft bondscoach Stale Solbakken tien...
+- [Deze landen zijn al zeker van een plek in de knock-outfase van het WK en dit is het virtuele speelschema](https://www.ad.nl/wk-voetbal/deze-landen-zijn-al-zeker-van-een-plek-in-de-knock-outfase-van-het-wk-en-dit-is-het-virtuele-speelschema~a10011c9/)
+  > De ontknoping van de groepsfase van het WK voetbal nadert. In dit overzicht lees je welke landen zich al hebben geplaatst, voor wie het WK-avontuur...
+- [Senegal laat geen spaan heel van Irak en mag hopen op volgende ronde](https://www.ad.nl/wk-voetbal/senegal-laat-geen-spaan-heel-van-irak-en-mag-hopen-op-volgende-ronde~ae41249a/)
+  > Senegal heeft goede zaken gedaan tegen Irak. De ploeg van Pape Thiaw deelde vrijdagavond een flink pak slaag uit: 5-0. Senegal is virtueel door naar...
+- [Vierde kind in korte tijd dood door hitte in auto in Frankrijk: peuter (18 maanden) vergeten bij werk](https://www.ad.nl/buitenland/vierde-kind-in-korte-tijd-dood-door-hitte-in-auto-in-frankrijk-peuter-18-maanden-vergeten-bij-werk~acd014aa/)
+  > Een kind van 18 maanden oud is overleden nadat een ouder hem in de auto was vergeten terwijl die aan het werk was. Het is de vierde keer in korte...
+- [Ousmane Dembélé schittert met hattrick voor Frankrijk tegen Noorwegen, dat zich vooraf al had verzoend met nederlaag](https://www.ad.nl/wk-voetbal/ousmane-dembele-schittert-met-hattrick-voor-frankrijk-tegen-noorwegen-dat-zich-vooraf-al-had-verzoend-met-nederlaag~a6dbd095/)
+  > Ousmane Dembélé heeft Frankrijk met een hattrick binnen 32 minuten aan een simpele zege op Noorwegen geholpen: 4-1. De Noren hadden zich vooraf al...
+- [Gouverneur kondigt feestdag aan rond Nederland-Marokko, miljoenen Mexicanen vrij](https://www.ad.nl/wk-voetbal/gouverneur-kondigt-feestdag-aan-rond-nederland-marokko-miljoenen-mexicanen-vrij~aeb6d435/)
+  > In Nederland wordt reikhalzend uitgekeken naar de achtste finale tegen Marokko (dinsdag 03.00 uur), maar ook in Mexico leeft men mee. In de deelstaat...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Wall Street sluit de laatste dag van zwakke week licht in min](https://fd.nl/financiele-markten/1601453/wall-street-sluit-de-laatste-dag-van-zwakke-week-licht-in-min)
+  > Beleggers hebben even last van koudwatervrees over de kansen van kunstmatige intelligentie.
+- [Trump dreigt met 100% heffingen bij belasting op techbedrijven](https://fd.nl/politiek/1601542/trump-dreigt-met-100-heffingen-bij-belasting-op-digitale-diensten)
+  > Nieuwe spanningen tussen EU en VS dreigen na bericht Trump op sociale media
 - [Niet de fiscus maar de markt moet ondernemerschap belonen](https://fd.nl/opinie/1601405/niet-de-fiscus-maar-de-markt-moet-ondernemerschap-belonen)
   > De Europese Commissie zet de deur open voor internationale belastingconcurrentie om investeringen. Een fiscale lente voor de verschaffers van...
-- [‘Amerikaanse regering haalt de teugels ook aan bij OpenAI’](https://fd.nl/bedrijfsleven/1601427/amerikaanse-regering-haalt-de-teugels-ook-aan-bij-openai)
-  > De uitrol van het nieuwe AI-model van OpenAI wordt ingeperkt op verzoek van het Witte Huis, meldden nieuwssites.
+- [Amerikaanse regering zet de rem op uitrol nieuw model OpenAI](https://fd.nl/bedrijfsleven/1601427/amerikaanse-regering-haalt-de-teugels-ook-aan-bij-openai)
+  > De uitrol van het nieuwe AI-model van OpenAI wordt gefaseerd gedaan op verzoek van het Witte Huis, meldden nieuwssites.
 - [Met ingrijpend stikstofpakket hoopt kabinet dat vergunningen volgend jaar loskomen](https://fd.nl/politiek/1601426/met-ingrijpend-stikstofpakket-hoopt-kabinet-dat-vergunningen-volgend-jaar-loskomen)
   > Er komen strenge normen voor boeren, maar het bedrijfsleven is optimistisch: ‘We zijn nog nooit zo dicht bij een oplossing gekomen.’
-- [Kabinet wil bezuinigen op ambtenaren door inzet van AI](https://fd.nl/politiek/1601425/kabinet-wil-met-ai-snijden-in-aantal-ambtenaren)
-  > Door nieuwe technologie, zoals kunstmatige intelligentie, zijn veel minder ondersteunende functies nodig, is de verwachting. Het kabinet wil daarmee...
-- [Inkomensverzekeraars in het rood door hoger ziekteverzuim en problemen bij UWV](https://fd.nl/bedrijfsleven/1601539/inkomensverzekeraars-in-het-rood-door-hoger-ziekteverzuim-en-problemen-bij-uwv)
-  > Het ziekteverzuim steeg in 2025 naar 5,4%, waarbij psychische en aan stress gerelateerde klachten inmiddels goed zijn voor minimaal een kwart van...
 
 ### Meest gelezen
 
