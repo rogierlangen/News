@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-06-2026 om 22:40*
+*Laatst bijgewerkt: 26-06-2026 om 00:13*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Hardstylefestival Defqon.1 toch afgelast vanwege code rood](https://nos.nl/l/2620314)
+  > Hardstylefestival Defqon.1 in Biddinghuizen is voortijdig beëindigd. Alle bezoekers zijn om middernacht ingelicht door de organisatie en moeten in de...
 - [Taakstraf voor Volendammers die vis en eieren gooiden naar anti-Zwarte Piet-betogers](https://nos.nl/l/2620305)
   > Drie mannen uit Volendam krijgen een taakstraf opgelegd voor het bekogelen van anti-Zwarte Piet-betogers met vis, eieren en oliebollen.
        ...
@@ -18,8 +20,6 @@
         In de...
 - [Voor het eerst sinds oorlog weer Nederlandse schepen door Straat van Hormuz](https://nos.nl/l/2620298)
   > Voor het eerst sinds de oorlog in Iran is begonnen, zijn enkele schepen die onder de Nederlandse vlag varen door de Straat van Hormuz gekomen. Dat...
-- [Race tegen de klok in rampgebied Venezuela, massaal gezocht naar vermiste familieleden](https://nos.nl/l/2620295)
-  > "Wie is zijn familie?", staat bij de foto van een gewond kind. "Zijn naam is Sebastián. Hij is tien jaar oud. Hij raakte zijn ouders kwijt tijdens de...
 
 ### Meest gelezen
 
@@ -29,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Milan van Waardenburg onwel op podium, voorstelling stilgelegd](https://www.ad.nl/show/milan-van-waardenburg-onwel-op-podium-voorstelling-stilgelegd~a702a533/)
-  > Acteur Milan van Waardenburg is donderdagavond tijdens een openluchtvoorstelling van de musical Bokkenrijders in Maastricht in elkaar gezakt. De show...
-- [Dit is de stand in de poule van Oranje](https://www.ad.nl/wk-voetbal/dit-is-de-stand-in-de-poule-van-oranje~a89ff417/)
-  > Liefst 48 landen doen mee aan het WK voetbal in de Verenigde Staten, Canada en Mexico. Dat is een record en zorgt ervoor dat er maar liefst twaalf...
-- [Schiet Ayase Ueda opnieuw raak voor Japan? Zweden mikt op tweede plek](https://www.ad.nl/wk-voetbal/schiet-ayase-ueda-opnieuw-raak-voor-japan-zweden-mikt-op-tweede-plek~a434a98c/)
+- [Grote kans voor Japan tegen Zweden, nog wachten op eerste goal bij poulegenoten Oranje](https://www.ad.nl/wk-voetbal/grote-kans-voor-japan-tegen-zweden-nog-wachten-op-eerste-goal-bij-poulegenoten-oranje~a434a98c/)
   > Terwijl Oranje het opneemt tegen Tunesië, vechten Zweden en Japan in een onderling duel om de overgebleven tickets. Bij een ruime zege kan Japan...
-- [Basisplaatsen voor Brobbey, Malen en Aké bij Oranje, wedstrijd gewoon om 1.00 uur van start](https://www.ad.nl/wk-voetbal/basisplaatsen-voor-brobbey-malen-en-ake-bij-oranje-wedstrijd-gewoon-om-1-00-uur-van-start~ab530957/)
-  > Het is de dag van Oranje, dat zijn derde en laatste groepsduel speelt. Tunesië is om 01.00 uur in Kansas City de tegenstander. Bij groepswinst wacht...
-- [Festival Defqon vroegtijdig beëindigd vanwege hitte, bezoekers gevraagd om camping te verlaten](https://www.ad.nl/binnenland/festival-defqon-vroegtijdig-beeindigd-vanwege-hitte-bezoekers-gevraagd-om-camping-te-verlaten~a41e8c28/)
-  > Hardstylefestival Defqon.1 in Biddinghuizen wordt vanwege de verwachte extreme temperaturen voortijdig beëindigd. Alle bezoekers zijn om middernacht...
+- [Oranje op jacht naar derde treffer tegen Tunesië, kansrijk schot Dumfries geblokt](https://www.ad.nl/wk-voetbal/oranje-op-jacht-naar-derde-treffer-tegen-tunesie-kansrijk-schot-dumfries-geblokt~ab530957/)
+  > Oranje neemt het in zijn derde en laatste groepsduel op tegen Tunesië. De wedstrijd Kansas City is ondanks het slechte weer op het geplande tijdstip...
+- [Congo: aantal ebola-gevallen gestegen naar ruim 1100](https://www.ad.nl/buitenland/congo-aantal-ebola-gevallen-gestegen-naar-ruim-1100~ad84cdbf/)
+  > Het aantal bevestigde ebolagevallen in de Democratische Republiek Congo (DRC) is gestegen tot 1155, waaronder 304 sterfgevallen. Dat blijkt uit...
+- [Bekerheld (28) die winnende goal maakte voor Hercules tegen Ajax overleden na ongeval op water](https://www.ad.nl/voetbal/bekerheld-28-die-winnende-goal-maakte-voor-hercules-tegen-ajax-overleden-na-ongeval-op-water~a4b54040/)
+  > Amateurvoetballer Mats Grotenbreg is op 28-jarige leeftijd overleden nadat hij als zwemmer in aanvaring kwam met een boot. Grotenbreg verwierf...
+- [Historische droomstart voor Oranje: snelste dubbelslag sinds 1971, Brian Brobbey extreem effectief](https://www.ad.nl/wk-voetbal/historische-droomstart-voor-oranje-snelste-dubbelslag-sinds-1971-brian-brobbey-extreem-effectief~aa134649/)
+  > Oranje is geweldig begonnen aan de wedstrijd tegen Tunesië. Na twee vroege goals stond het al binnen zeven minuten 2-0. Dat is de snelste dubbelslag...
 
 ### Meest gelezen
 
