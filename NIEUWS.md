@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-06-2026 om 17:52*
+*Laatst bijgewerkt: 26-06-2026 om 19:55*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Statiegeld op plastic melkfles en proteïnedrank: minister wil uitbreiding statiegeldplicht](https://nos.nl/l/2620463)
+  > Op plastic zuivel- en sapflessen tot drie liter moet verplicht statiegeld komen. Dat schrijft minister van Klimaat en Groene Groei Van Veldhoven-Van...
+- [Podcast De Stemming: Lelijk beton, het stikstofslot en een banaan](https://nos.nl/l/2620459)
+  > Het was een spannende dag voor het kabinet en dan met name voor minister Van Essen van Landbouw want vanmiddag is officieel het stikstofpakket...
+- [Tot 18 jaar cel voor vergiftiging Duits gezin in Turks hotel](https://nos.nl/l/2620456)
+  > In Turkije zijn vier verdachten tot lange celstraffen veroordeeld voor de dood van een Turks-Duits gezin tijdens een vakantie. De ouders en hun twee...
 - [Weer aap ontsnapt uit dierentuin, dit keer Artis](https://nos.nl/l/2620452)
   > Een rode vari is vandaag enkele uren op avontuur gegaan buiten dierenpark Artis in Amsterdam. Medewerkers van Artis wisten samen met de politie en de...
 - [Schoolsluitingen in coronatijd: hoe schadelijk of noodzakelijk waren ze?](https://nos.nl/l/2620446)
   > In de coronajaren zijn scholen en universiteiten maanden dicht geweest om de verspreiding van het virus tegen te gaan. De gevolgen voor kinderen en...
-- [Hitteverschillen in de stad van soms bijna 20 graden: 'Veel meer groen nodig'](https://nos.nl/l/2620443)
-  > Woon je in de Eindhovense wijk Het Ven dan was de grondtemperatuur op sommige plekken rond het middaguur meer dan 47 graden Celsius. Heb je de luxe...
-- [Woningverhuurder Vesteda sluit deal met aandeelhouders](https://nos.nl/l/2620438)
-  > Vesteda hoeft mogelijk toch geen huurwoningen te verkopen. De grootste commerciële woningbelegger en -verhuurder van Nederland schrijft dat het een...
-- [Zeeuws ringrijden vanaf nu immaterieel erfgoed](https://nos.nl/l/2620435)
-  > Het is een typische Zeeuwse traditie en groeide in de 20ste eeuw uit tot een georganiseerde sport: ringrijden. Nu heeft het Kenniscentrum Immaterieel...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nuijten volgt Kuyt op bij FC Dordrecht, Portugese spits voor 50 miljoen naar AC Milan](https://www.ad.nl/voetbal/nuijten-volgt-kuyt-op-bij-fc-dordrecht-portugese-spits-voor-50-miljoen-naar-ac-milan~ad10f02c/)
-  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
-- [Olcay staat op bloedhete trouwerij en Buddy vergelijkt zichzelf met smeltende kaars](https://www.ad.nl/show/olcay-staat-op-bloedhete-trouwerij-en-buddy-vergelijkt-zichzelf-met-smeltende-kaars~a0ab6663/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Alleen de echte nieuwsjunk maakt deze wekelijkse quiz foutloos](https://www.ad.nl/quiz/alleen-de-echte-nieuwsjunk-maakt-deze-wekelijkse-quiz-foutloos~a45be1d2/)
-  > Deze week was het tropisch warm en won Nederland de laatste groepswedstrijd op het WK. Maar er gebeurde nog veel meer. Test je kennis in zeven vragen...
-- [Danique (30) strijdt door na succesvolle actie vrouwveiligheid: ‘Het is wonderlijk dat we niet bozer zijn’](https://www.ad.nl/binnenland/danique-30-strijdt-door-na-succesvolle-actie-vrouwveiligheid-het-is-wonderlijk-dat-we-niet-bozer-zijn~a65c1e9d/)
-  > Haar actie ‘Wij eisen de nacht op’ maakte haar in één klap beroemd. Nu is het al even stil, maar aanstichter Danique de Jong (30) uit Den Haag is dat...
-- [Nog 50.000 mensen vermist na twee aardbevingen in Venezuela, dodental loopt op tot 920](https://www.ad.nl/buitenland/nog-50-000-mensen-vermist-na-twee-aardbevingen-in-venezuela-dodental-loopt-op-tot-920~aac0a554/)
-  > Het officiële dodental van de aardbevingen in Venezuela is opgelopen tot 920, meldt de voorzitter van de nationale vergadering Jorge Rodriguez....
+- [Zwitserland verbreekt voor tweede dag op rij hitterecord in juni: temperatuur van 38,8 graden gemeten](https://www.ad.nl/buitenland/zwitserland-verbreekt-voor-tweede-dag-op-rij-hitterecord-in-juni-temperatuur-van-38-8-graden-gemeten~acbf359a/)
+  > In Zwitserland is voor de tweede dag op rij het hitterecord voor de maand juni verbroken. Bij de noordoostelijke stad Basel is vrijdag een...
+- [Na ‘familieruzie’: Millie Bobby Brown en David Harbour weer samen in nieuwe serie](https://www.ad.nl/show/na-familieruzie-millie-bobby-brown-en-david-harbour-weer-samen-in-nieuwe-serie~aa6799e8/)
+  > Stranger Things-acteurs Millie Bobby Brown en David Harbour spelen opnieuw samen in een Netflix-serie, meldt The Hollywood Reporter. De...
+- [Meta zou werken aan een gokapp, maar dat mag hier niet zomaar: ‘Wedden op Trumps haar is verboden’](https://www.ad.nl/tech/meta-zou-werken-aan-een-gokapp-maar-dat-mag-hier-niet-zomaar-wedden-op-trumps-haar-is-verboden~ab253f02/)
+  > Wedden op sportuitslagen of verkiezingen? Apps zoals Polymarket en Kalshi maakten het populair. Nu blijkt dat Meta, het bedrijf achter Facebook en...
+- [LIVE code rood | Dienstregeling NS heeft tot en met dinsdag nog last van hitte, verschillende wegen dicht door hitteschade](https://www.ad.nl/binnenland/live-code-rood-dienstregeling-ns-heeft-tot-en-met-dinsdag-nog-last-van-hitte-verschillende-wegen-dicht-door-hitteschade~a57707aa/)
+  > De hitte blijft de komende dagen voor problemen zorgen op het spoor. Tot en met zaterdag gold al een aangepaste dienstregeling, maar diverse treinen...
+- [Ousmane Dembélé maakt zijn derde voor Frankrijk tegen B-keus van Noorwegen](https://www.ad.nl/wk-voetbal/ousmane-dembele-maakt-zijn-derde-voor-frankrijk-tegen-b-keus-van-noorwegen~a6dbd095/)
+  > Frankrijk - Noorwegen was op voorhand het duel tussen Kylian Mbappé en Erling Haaland, maar bij Noorwegen heeft bondscoach Stale Solbakken tien...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Niet de fiscus maar de markt moet ondernemerschap belonen](https://fd.nl/opinie/1601405/niet-de-fiscus-maar-de-markt-moet-ondernemerschap-belonen)
+  > De Europese Commissie zet de deur open voor internationale belastingconcurrentie om investeringen. Een fiscale lente voor de verschaffers van...
 - [‘Amerikaanse regering haalt de teugels ook aan bij OpenAI’](https://fd.nl/bedrijfsleven/1601427/amerikaanse-regering-haalt-de-teugels-ook-aan-bij-openai)
   > De uitrol van het nieuwe AI-model van OpenAI wordt ingeperkt op verzoek van het Witte Huis, meldden nieuwssites.
 - [Met ingrijpend stikstofpakket hoopt kabinet dat vergunningen volgend jaar loskomen](https://fd.nl/politiek/1601426/met-ingrijpend-stikstofpakket-hoopt-kabinet-dat-vergunningen-volgend-jaar-loskomen)
@@ -54,8 +56,6 @@
   > Door nieuwe technologie, zoals kunstmatige intelligentie, zijn veel minder ondersteunende functies nodig, is de verwachting. Het kabinet wil daarmee...
 - [Inkomensverzekeraars in het rood door hoger ziekteverzuim en problemen bij UWV](https://fd.nl/bedrijfsleven/1601539/inkomensverzekeraars-in-het-rood-door-hoger-ziekteverzuim-en-problemen-bij-uwv)
   > Het ziekteverzuim steeg in 2025 naar 5,4%, waarbij psychische en aan stress gerelateerde klachten inmiddels goed zijn voor minimaal een kwart van...
-- [Scholen dicht vanwege corona: niemand wilde het, toch gebeurde het](https://fd.nl/samenleving/1601401/scholen-sluiten-vanwege-corona-niemand-wilde-het-toch-gebeurde-het)
-  > Toenmalig minister van Onderwijs Arie Slob ervoer de schoolsluitingen als een nederlaag. ‘Wij wisten vanaf het begin dat kinderen hier erg onder...
 
 ### Meest gelezen
 
