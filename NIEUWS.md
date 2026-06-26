@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-06-2026 om 21:23*
+*Laatst bijgewerkt: 26-06-2026 om 23:11*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Jongen (1) blijft alleen achter in kinderopvang, personeel op non-actief gesteld](https://nos.nl/l/2620485)
+  > Medewerkers van een kinderdagopvang in Schiedam hebben vanavond een 1-jarige jongen alleen achtergelaten in het pand van het kinderdagverblijf. De...
+- [VS voert aanvallen uit op Iran als reactie op aanval op schip](https://nos.nl/l/2620483)
+  > De Verenigde Staten hebben luchtaanvallen uitgevoerd op Iran, zegt het Amerikaanse militaire commando voor het Midden-Oosten (Centcom). De aanval is...
 - [Dit vinden boeren, milieuclubs en de bouwsector van de nieuwe stikstofplannen](https://nos.nl/l/2620476)
   > De vee- en landbouwsector is kritisch op de stikstofplannen van het kabinet. De gevolgen voor boeren zouden enorm zijn, zeggen ze. Milieuorganisaties...
 - [17-jarige jongen overleden na mishandeling door groep in Frankrijk](https://nos.nl/l/2620475)
   > Een 17-jarige jongen die vorige week in het Zuid-Franse Narbonne door meerdere leeftijdgenoten werd mishandeld, is aan zijn verwondingen overleden....
 - [Gevangenis Almere mogelijk weer open in strijd tegen cellentekort](https://nos.nl/l/2620471)
   > De leegstaande gevangenis Almere Buiten wordt mogelijk heropend. Dat staat in een voorstel van staatssecretaris van Justitie en Veiligheid Van...
-- [Wie gered is uit het puin in Venezuela is daarna volledig op zichzelf aangewezen](https://nos.nl/l/2620468)
-  > "Het was een kinderfeestje", zegt een jonge reddingswerker. Hij barst in tranen uit. "We haalden lichamen van een kinderfeestje uit het puin. Je kan...
-- [Statiegeld op plastic melkfles en proteïnedrank: minister wil uitbreiding statiegeldplicht](https://nos.nl/l/2620463)
-  > Op plastic zuivel- en sapflessen tot drie liter moet verplicht statiegeld komen. Dat schrijft minister van Klimaat en Groene Groei Van Veldhoven-Van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Deze landen zijn al zeker van een plek in de knock-outfase van het WK en dit is het virtuele speelschema](https://www.ad.nl/wk-voetbal/deze-landen-zijn-al-zeker-van-een-plek-in-de-knock-outfase-van-het-wk-en-dit-is-het-virtuele-speelschema~a10011c9/)
-  > De ontknoping van de groepsfase van het WK voetbal nadert. In dit overzicht lees je welke landen zich al hebben geplaatst, voor wie het WK-avontuur...
-- [Senegal laat geen spaan heel van Irak en mag hopen op volgende ronde](https://www.ad.nl/wk-voetbal/senegal-laat-geen-spaan-heel-van-irak-en-mag-hopen-op-volgende-ronde~ae41249a/)
-  > Senegal heeft goede zaken gedaan tegen Irak. De ploeg van Pape Thiaw deelde vrijdagavond een flink pak slaag uit: 5-0. Senegal is virtueel door naar...
-- [Vierde kind in korte tijd dood door hitte in auto in Frankrijk: peuter (18 maanden) vergeten bij werk](https://www.ad.nl/buitenland/vierde-kind-in-korte-tijd-dood-door-hitte-in-auto-in-frankrijk-peuter-18-maanden-vergeten-bij-werk~acd014aa/)
-  > Een kind van 18 maanden oud is overleden nadat een ouder hem in de auto was vergeten terwijl die aan het werk was. Het is de vierde keer in korte...
-- [Ousmane Dembélé schittert met hattrick voor Frankrijk tegen Noorwegen, dat zich vooraf al had verzoend met nederlaag](https://www.ad.nl/wk-voetbal/ousmane-dembele-schittert-met-hattrick-voor-frankrijk-tegen-noorwegen-dat-zich-vooraf-al-had-verzoend-met-nederlaag~a6dbd095/)
-  > Ousmane Dembélé heeft Frankrijk met een hattrick binnen 32 minuten aan een simpele zege op Noorwegen geholpen: 4-1. De Noren hadden zich vooraf al...
-- [Gouverneur kondigt feestdag aan rond Nederland-Marokko, miljoenen Mexicanen vrij](https://www.ad.nl/wk-voetbal/gouverneur-kondigt-feestdag-aan-rond-nederland-marokko-miljoenen-mexicanen-vrij~aeb6d435/)
-  > In Nederland wordt reikhalzend uitgekeken naar de achtste finale tegen Marokko (dinsdag 03.00 uur), maar ook in Mexico leeft men mee. In de deelstaat...
+- [Spanje moet langs Uruguay om de groepswinst veilig te stellen](https://www.ad.nl/wk-voetbal/spanje-moet-langs-uruguay-om-de-groepswinst-veilig-te-stellen~ac27c311/)
+  > Spanje is na het verrassende gelijkspel tegen Kaapverdië (0-0) en de zege op Saoedi-Arabië (4-0) nog niet zeker van groepswinst. Uruguay heeft een...
+- [Kaapverdië heeft nog zicht op knock-outfase, aftellen naar allesbeslissend duel met Saoedi-Arabië](https://www.ad.nl/wk-voetbal/kaapverdie-heeft-nog-zicht-op-knock-outfase-aftellen-naar-allesbeslissend-duel-met-saoedi-arabie~aca6dafc/)
+  > Het is niet onmogelijk: Kaapverdië kan na twee gelijke spelen nog altijd de knock-outfase halen. Dan mag er niet verloren worden van Saoedi-Arabië,...
+- [LIVE Oorlog Oekraïne | Doden en gewonden bij Russische droneaanval op minibus in Oekraïne](https://www.ad.nl/buitenland/live-oorlog-oekraine-doden-en-gewonden-bij-russische-droneaanval-op-minibus-in-oekraine~adfb97be/)
+  > Een Russische droneaanval op een minibus in het zuidoosten van Oekraïne heeft aan zeker twee mensen het leven gekost. Dertien anderen, onder wie twee...
+- [Panama-bondscoach baart opzien met reactie na slaande ruzie op training, Deschamps zaterdag weer terug bij Frankrijk](https://www.ad.nl/wk-voetbal/panama-bondscoach-baart-opzien-met-reactie-na-slaande-ruzie-op-training-deschamps-zaterdag-weer-terug-bij-frankrijk~a2d5cab9/)
+  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
+- [Grootste oranjemars tot nu toe was in Kansas City: 36.000 supporters op de been](https://www.ad.nl/wk-voetbal/grootste-oranjemars-tot-nu-toe-was-in-kansas-city-36-000-supporters-op-de-been~a3aa293d/)
+  > De oranjemars voor het duel met Tunesië was de grootste van het WK tot nu toe. In Kansas City liepen volgens lokale media zo’n 36 duizend supporters...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Wall Street sluit de laatste dag van zwakke week licht in min](https://fd.nl/financiele-markten/1601453/wall-street-sluit-de-laatste-dag-van-zwakke-week-licht-in-min)
-  > Beleggers hebben even last van koudwatervrees over de kansen van kunstmatige intelligentie.
-- [Trump dreigt met 100% heffingen bij belasting op techbedrijven](https://fd.nl/politiek/1601542/trump-dreigt-met-100-heffingen-bij-belasting-op-digitale-diensten)
-  > Nieuwe spanningen tussen EU en VS dreigen na bericht Trump op sociale media
-- [Niet de fiscus maar de markt moet ondernemerschap belonen](https://fd.nl/opinie/1601405/niet-de-fiscus-maar-de-markt-moet-ondernemerschap-belonen)
-  > De Europese Commissie zet de deur open voor internationale belastingconcurrentie om investeringen. Een fiscale lente voor de verschaffers van...
-- [Amerikaanse regering zet de rem op uitrol nieuw model OpenAI](https://fd.nl/bedrijfsleven/1601427/amerikaanse-regering-haalt-de-teugels-ook-aan-bij-openai)
-  > De uitrol van het nieuwe AI-model van OpenAI wordt gefaseerd gedaan op verzoek van het Witte Huis, meldden nieuwssites.
-- [Met ingrijpend stikstofpakket hoopt kabinet dat vergunningen volgend jaar loskomen](https://fd.nl/politiek/1601426/met-ingrijpend-stikstofpakket-hoopt-kabinet-dat-vergunningen-volgend-jaar-loskomen)
-  > Er komen strenge normen voor boeren, maar het bedrijfsleven is optimistisch: ‘We zijn nog nooit zo dicht bij een oplossing gekomen.’
+- [De robots van BMW lijken heel bewust op ons](https://fd.nl/bedrijfsleven/1601004/de-robots-van-bmw-lijken-heel-bewust-op-ons)
+  > BMW zet in zijn fabriek in Leipzig humanoïde robots in. Uiteindelijk zullen ze activiteiten van mensen overnemen. ‘Hoe langer ik me hiermee...
+- [Zuipen voor de democratie. Helpt het?](https://fd.nl/opinie/1601374/zuipen-voor-de-democratie-helpt-het)
+  > Oproep van een Berlijnse politicoloog: Duitsland verrijken met 10.000 extra dorpskroegen. Zonder kroeg raken mensen eenzaam, haken ze af en doen ze...
+- [Paul Krugman: ‘Ik denk niet dat we ooit volledig herstellen van Trump’](https://fd.nl/economie/1595049/paul-krugman-ik-denk-niet-dat-we-ooit-volledig-herstellen-van-trump)
+  > De verkiezingen in november bepalen volgens Paul Krugman of de VS wegglijden naar autocratie. Hoe dan ook is de schade groot, zegt de econoom. ‘Een...
+- [500 keer Raderwerk: meer Trump dan Rutte en meer geld dan geluk](https://fd.nl/politiek/1601399/500-keer-raderwerk-meer-trump-dan-rutte-en-meer-geld-dan-geluk)
+  > Mathijs Bouwman begon twaalf jaar geleden zijn economierubriek in het FD. Het moest ergens tussen een column en een analyse in zitten. Waarover...
+- [Dag casinowit, welkom pain grand-mère: de bakker verdwijnt, behalve die van zuurdesem](https://fd.nl/bedrijfsleven/1601008/dag-casinowit-welkom-pain-grand-mere-de-bakker-verdwijnt-behalve-die-van-zuurdesem)
+  > Er gaat iedere week wel een bakker failliet, maar in de stad schieten luxebroodwinkel uit de grond. Mensen zijn bewuster bezig met voeding en willen...
 
 ### Meest gelezen
 
