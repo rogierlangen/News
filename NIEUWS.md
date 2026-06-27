@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-06-2026 om 23:11*
+*Laatst bijgewerkt: 27-06-2026 om 03:51*
 
 ---
 
@@ -8,16 +8,18 @@
 
 ### Laatste nieuws
 
+- [Tram in Den Haag ontspoord na botsing met vrachtwagen](https://nos.nl/l/2620497)
+  > In de Haagse wijk Ypenburg is vannacht een tram ontspoord na een botsing met een vrachtwagen.
+        Het ongeluk gebeurde op de kruising van de...
+- [Libanon en Israël tekenen akkoord dat 'eerste stap richting vrede' moet zijn](https://nos.nl/l/2620494)
+  > Libanon en Israël hebben een akkoord getekend dat volgens de ondertekenaars "een eerste stap richting vrede is".
+        De 'raamwerkovereenkomst'...
+- [Burkina Faso verbreekt diplomatieke banden met Frankrijk](https://nos.nl/l/2620493)
+  > Burkina Faso heeft de diplomatieke banden met Frankrijk verbroken. De verhoudingen tussen Burkina Faso en voormalig kolonisator Frankrijk waren de...
 - [Jongen (1) blijft alleen achter in kinderopvang, personeel op non-actief gesteld](https://nos.nl/l/2620485)
   > Medewerkers van een kinderdagopvang in Schiedam hebben vanavond een 1-jarige jongen alleen achtergelaten in het pand van het kinderdagverblijf. De...
 - [VS voert aanvallen uit op Iran als reactie op aanval op schip](https://nos.nl/l/2620483)
   > De Verenigde Staten hebben luchtaanvallen uitgevoerd op Iran, zegt het Amerikaanse militaire commando voor het Midden-Oosten (Centcom). De aanval is...
-- [Dit vinden boeren, milieuclubs en de bouwsector van de nieuwe stikstofplannen](https://nos.nl/l/2620476)
-  > De vee- en landbouwsector is kritisch op de stikstofplannen van het kabinet. De gevolgen voor boeren zouden enorm zijn, zeggen ze. Milieuorganisaties...
-- [17-jarige jongen overleden na mishandeling door groep in Frankrijk](https://nos.nl/l/2620475)
-  > Een 17-jarige jongen die vorige week in het Zuid-Franse Narbonne door meerdere leeftijdgenoten werd mishandeld, is aan zijn verwondingen overleden....
-- [Gevangenis Almere mogelijk weer open in strijd tegen cellentekort](https://nos.nl/l/2620471)
-  > De leegstaande gevangenis Almere Buiten wordt mogelijk heropend. Dat staat in een voorstel van staatssecretaris van Justitie en Veiligheid Van...
 
 ### Meest gelezen
 
@@ -27,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Spanje moet langs Uruguay om de groepswinst veilig te stellen](https://www.ad.nl/wk-voetbal/spanje-moet-langs-uruguay-om-de-groepswinst-veilig-te-stellen~ac27c311/)
-  > Spanje is na het verrassende gelijkspel tegen Kaapverdië (0-0) en de zege op Saoedi-Arabië (4-0) nog niet zeker van groepswinst. Uruguay heeft een...
-- [Kaapverdië heeft nog zicht op knock-outfase, aftellen naar allesbeslissend duel met Saoedi-Arabië](https://www.ad.nl/wk-voetbal/kaapverdie-heeft-nog-zicht-op-knock-outfase-aftellen-naar-allesbeslissend-duel-met-saoedi-arabie~aca6dafc/)
-  > Het is niet onmogelijk: Kaapverdië kan na twee gelijke spelen nog altijd de knock-outfase halen. Dan mag er niet verloren worden van Saoedi-Arabië,...
-- [LIVE Oorlog Oekraïne | Doden en gewonden bij Russische droneaanval op minibus in Oekraïne](https://www.ad.nl/buitenland/live-oorlog-oekraine-doden-en-gewonden-bij-russische-droneaanval-op-minibus-in-oekraine~adfb97be/)
-  > Een Russische droneaanval op een minibus in het zuidoosten van Oekraïne heeft aan zeker twee mensen het leven gekost. Dertien anderen, onder wie twee...
-- [Panama-bondscoach baart opzien met reactie na slaande ruzie op training, Deschamps zaterdag weer terug bij Frankrijk](https://www.ad.nl/wk-voetbal/panama-bondscoach-baart-opzien-met-reactie-na-slaande-ruzie-op-training-deschamps-zaterdag-weer-terug-bij-frankrijk~a2d5cab9/)
-  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
-- [Grootste oranjemars tot nu toe was in Kansas City: 36.000 supporters op de been](https://www.ad.nl/wk-voetbal/grootste-oranjemars-tot-nu-toe-was-in-kansas-city-36-000-supporters-op-de-been~a3aa293d/)
-  > De oranjemars voor het duel met Tunesië was de grootste van het WK tot nu toe. In Kansas City liepen volgens lokale media zo’n 36 duizend supporters...
+- [Amerikaanse verkrachter die eigen dood in scène zette, nu echt overleden](https://www.ad.nl/buitenland/amerikaanse-verkrachter-die-eigen-dood-in-scene-zette-nu-echt-overleden~a0f60354/)
+  > Een Amerikaanse man die zijn eigen dood in scène zette om vervolging voor verkrachting te ontlopen, is overleden. Dat melden de autoriteiten in de...
+- [Bibberen bij Schotland en Zuid-Korea: welke nummers 3 gaan door? Dit is de virtuele stand](https://www.ad.nl/wk-voetbal/bibberen-bij-schotland-en-zuid-korea-welke-nummers-3-gaan-door-dit-is-de-virtuele-stand~a463acad/)
+  > De acht beste nummers 3 gaan door naar de knock-outfase van het WK, de vier slechtsten vallen af. Hoe staat het er op dit moment voor als je kijkt...
+- [Opluchting bij België: Trossard tikt Rode Duivels op voorsprong na furieuze start tegen Nieuw-Zeeland](https://www.ad.nl/wk-voetbal/opluchting-bij-belgie-trossard-tikt-rode-duivels-op-voorsprong-na-furieuze-start-tegen-nieuw-zeeland~a5c74cf3/)
+  > Na eerdere gelijke spelen tegen Iran (0-0) en Egypte (1-1) moet België winnen van hekkensluiter Nieuw-Zeeland. Bij winst in Vancouver is zelfs de...
+- [Iran langszij in beladen ‘Pride Match’ tegen Egypte, volop regenboogvlaggen op tribunes](https://www.ad.nl/wk-voetbal/iran-langszij-in-beladen-pride-match-tegen-egypte-volop-regenboogvlaggen-op-tribunes~a4e7facc/)
+  > Egypte en Iran, twee landen waar LHBTI’ers onderdrukt worden, spelen in Seattle de Pride Match. Iran hoopt met een zege boven België te blijven,...
+- [Speelschema WK | Wekker zetten voor Oranje: zo laat is het duel met Marokko](https://www.ad.nl/voetbal/speelschema-wk-wekker-zetten-voor-oranje-zo-laat-is-het-duel-met-marokko~ad85207c/)
+  > Het Nederlands elftal en 47 andere landen strijden in Canada, Mexico en de Verenigde Staten om de wereldtitel. Van donderdag 11 juni tot en met...
 
 ### Meest gelezen
 
@@ -46,6 +48,8 @@
 
 ### Laatste nieuws
 
+- [Is kernenergie te duur? En laden te goedkoop?](https://fd.nl/economie/1601400/is-kernenergie-te-duur-en-laden-te-goedkoop)
+  > Kernenergie, laadpalen voor elektrische auto’s en de Russische afhankelijkheid van gasinkomsten. In deze aflevering behandelen Anna en Marijn drie...
 - [De robots van BMW lijken heel bewust op ons](https://fd.nl/bedrijfsleven/1601004/de-robots-van-bmw-lijken-heel-bewust-op-ons)
   > BMW zet in zijn fabriek in Leipzig humanoïde robots in. Uiteindelijk zullen ze activiteiten van mensen overnemen. ‘Hoe langer ik me hiermee...
 - [Zuipen voor de democratie. Helpt het?](https://fd.nl/opinie/1601374/zuipen-voor-de-democratie-helpt-het)
@@ -54,8 +58,6 @@
   > De verkiezingen in november bepalen volgens Paul Krugman of de VS wegglijden naar autocratie. Hoe dan ook is de schade groot, zegt de econoom. ‘Een...
 - [500 keer Raderwerk: meer Trump dan Rutte en meer geld dan geluk](https://fd.nl/politiek/1601399/500-keer-raderwerk-meer-trump-dan-rutte-en-meer-geld-dan-geluk)
   > Mathijs Bouwman begon twaalf jaar geleden zijn economierubriek in het FD. Het moest ergens tussen een column en een analyse in zitten. Waarover...
-- [Dag casinowit, welkom pain grand-mère: de bakker verdwijnt, behalve die van zuurdesem](https://fd.nl/bedrijfsleven/1601008/dag-casinowit-welkom-pain-grand-mere-de-bakker-verdwijnt-behalve-die-van-zuurdesem)
-  > Er gaat iedere week wel een bakker failliet, maar in de stad schieten luxebroodwinkel uit de grond. Mensen zijn bewuster bezig met voeding en willen...
 
 ### Meest gelezen
 
