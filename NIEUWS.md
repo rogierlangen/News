@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-06-2026 om 09:31*
+*Laatst bijgewerkt: 27-06-2026 om 11:37*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Vrachtwagenheffing helpt bij verduurzaming, 'maar de kosten gaan wel omhoog'](https://nos.nl/l/2620556)
+  > Eigenaren van vrachtwagens betalen per 1 juli een bedrag per gereden kilometer op bijna alle Nederlandse snelwegen. De vrachtwagenheffing moet de...
+- [Nederlands reddingsteam geland in Venezuela, tijd dringt voor overlevenden](https://nos.nl/l/2620555)
+  > Een Nederlands reddingsteam is geland in Venezuela om te helpen bij de zoektocht naar overlevenden van de twee zware aardbevingen. Tienduizenden...
+- [Lichaam van meisje (17) in koffer gevonden in Thailand, Australiër opgepakt](https://nos.nl/l/2620554)
+  > In Thailand is een Australische toerist gearresteerd in verband met de vondst van het lichaam van een tienermeisje in een koffer. De man van 45 is...
+- [Brand in parkeergarage Rotterdam is bijna niet uit te krijgen](https://nos.nl/l/2620547)
+  > De Rotterdamse brandweer heeft grote moeite om een brand die vannacht ontstond in een parkeergarage helemaal uit te krijgen.
+        "De accu van de...
 - [Anthropic mag nieuwe AI-tool toch delen met Amerikaanse overheidsinstanties](https://nos.nl/l/2620538)
   > AI-bedrijf Anthropic mag zijn nieuwste AI-model alsnog beschikbaar stellen aan bepaalde overheidsinstanties. De Amerikaanse regering heeft daar...
-- [Onderzoek in Frankrijk na meldingen over mogelijke kinderhandel op Vinted](https://nos.nl/l/2620530)
-  > In Frankrijk is justitie een onderzoek begonnen naar meldingen van mogelijke kinderhandel op verkoopplatform Vinted. Het Litouwse bedrijf weerspreekt...
-- [NASA stuurt reddingsmissie naar langzaam neerstortende ruimtetelescoop](https://nos.nl/l/2620525)
-  > Een ruimtetelescoop van NASA dreigt langzaam terug in de atmosfeer van de aarde te vallen, maar redding is nabij. Komende week moet een...
-- [Podcast De Dag: de bijvangst van middelen als Ozempic](https://nos.nl/l/2620515)
-  > De kilo's vliegen eraf bij mensen die afvallen met middelen als Ozempic, Mounjaro en Wegovy. Door de spuiten te zetten heb je minder honger en val je...
-- [We kauwen op vervuilende plastic kauwgom, Nederland wil Europees verbod](https://nos.nl/l/2620513)
-  > Nederland wil een verkoopverbod op kauwgom met plastic. Dat heeft de regering laten weten aan de Europese Commissie in het kader van de herziening...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Onderzoek naar zelfgekozen dood van Roos (17): zo worstelden ouders jaren met haar suïcide-gedrag](https://www.ad.nl/binnenland/onderzoek-naar-zelfgekozen-dood-van-roos-17-zo-worstelden-ouders-jaren-met-haar-suicide-gedrag~ac99e9d2/)
-  > Ruben (47) en Marianne (44) verloren afgelopen jaar hun geliefde dochter Roos aan suïcide. Het leven was voor haar té complex om tegen opgewassen te...
-- [Coach Uruguay schreeuwt naar verslaggever en is snoeihard voor zichzelf: ‘Het was waardeloos’](https://www.ad.nl/wk-voetbal/coach-uruguay-schreeuwt-naar-verslaggever-en-is-snoeihard-voor-zichzelf-het-was-waardeloos~a81ef26f/)
-  > Bondscoach Marcelo Bielsa van Uruguay heeft de verantwoordelijkheid op zich genomen voor de uitschakeling op het WK. De Zuid-Amerikanen verloren in...
-- [Autoriteiten bevestigen vliegtuigcrash hoogste wolkenkrabber van Peking](https://www.ad.nl/buitenland/autoriteiten-bevestigen-vliegtuigcrash-hoogste-wolkenkrabber-van-peking~aa991e52/)
-  > De autoriteiten in Peking hebben bevestigd dat een vliegtuigje vrijdag is gebotst op de hoogste torenflat van de stad en dat daar een dode en dertien...
-- [Opinie: ‘Maak van kinderopvang een pedagogische opstap’](https://www.ad.nl/praat-mee/opinie-maak-van-kinderopvang-een-pedagogische-opstap~a21d9290/)
-  > Te vaak wordt kinderopvang gezien als voorziening die ouders helpt te werken. Maar wordt er voldoende naar het belang van het kind gekeken, vragen...
-- [Belle Perez keert terug op het podium na overlijden van haar echtgenoot: ‘Het komt wel binnen’](https://www.ad.nl/show/belle-perez-keert-terug-op-het-podium-na-overlijden-van-haar-echtgenoot-het-komt-wel-binnen~a9bbec66/)
-  > Zangeres Belle Perez heeft vrijdagavond voor het eerst sinds het onverwachte overlijden van haar echtgenoot Wouter van der Horst weer opgetreden....
+- [Valse start voor Anthony Correia: FC Utrecht verliest in oefenwedstrijd van De Graafschap](https://www.ad.nl/voetbal/valse-start-voor-anthony-correia-fc-utrecht-verliest-in-oefenwedstrijd-van-de-graafschap~a580ed8e/)
+  > FC Utrecht is de voorbereiding op het nieuwe seizoen onder trainer Anthony Correia begonnen met een nederlaag tegen eerstedivisionist De Graafschap....
+- [Désiré Doué krijgt bijzonder cadeau van idool Neymar, route Argentinië ligt open](https://www.ad.nl/wk-voetbal/desire-doue-krijgt-bijzonder-cadeau-van-idool-neymar-route-argentinie-ligt-open~a2d5cab9/)
+  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
+- [Dit huismerk was de verrassende winnaar van onze mascaratest: ‘Ogen komen er prachtig in uit’](https://www.ad.nl/gezond/dit-huismerk-was-de-verrassende-winnaar-van-onze-mascaratest-ogen-komen-er-prachtig-in-uit~a416b35b/)
+  > Zwembad, woeste zee of tropische regenbui: ook op waterige vakantiemomenten wil je er fris en fruitig uitzien, inclusief verleidelijke oogopslag....
+- [Mannen met bivakmutsen en pepperspray zorgen voor angst in woonwijk](https://www.ad.nl/dordrecht/mannen-met-bivakmutsen-en-pepperspray-zorgen-voor-angst-in-woonwijk~a31639ff/)
+  > Wat een zwoele zomeravond had moeten worden met vrienden, familie en veel gezelligheid, eindigde vrijdagavond in een ziekenhuis. Zeven Dordtenaren...
+- [Vanavond code oranje in vier provincies vanwege onweersbuien: ‘Kans op hagelstenen van 5 centimeter’](https://www.ad.nl/binnenland/vanavond-code-oranje-in-vier-provincies-vanwege-onweersbuien-kans-op-hagelstenen-van-5-centimeter~a57707aa/)
+  > Het KNMI heeft zaterdagavond vanaf 20.00 uur code oranje afgekondigd in de provincies Limburg, Noord-Brabant, Gelderland en Overijssel vanwege zware...
 
 ### Meest gelezen
 
