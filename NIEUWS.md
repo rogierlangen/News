@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-06-2026 om 06:55*
+*Laatst bijgewerkt: 27-06-2026 om 09:31*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Anthropic mag nieuwe AI-tool toch delen met Amerikaanse overheidsinstanties](https://nos.nl/l/2620538)
+  > AI-bedrijf Anthropic mag zijn nieuwste AI-model alsnog beschikbaar stellen aan bepaalde overheidsinstanties. De Amerikaanse regering heeft daar...
+- [Onderzoek in Frankrijk na meldingen over mogelijke kinderhandel op Vinted](https://nos.nl/l/2620530)
+  > In Frankrijk is justitie een onderzoek begonnen naar meldingen van mogelijke kinderhandel op verkoopplatform Vinted. Het Litouwse bedrijf weerspreekt...
 - [NASA stuurt reddingsmissie naar langzaam neerstortende ruimtetelescoop](https://nos.nl/l/2620525)
   > Een ruimtetelescoop van NASA dreigt langzaam terug in de atmosfeer van de aarde te vallen, maar redding is nabij. Komende week moet een...
 - [Podcast De Dag: de bijvangst van middelen als Ozempic](https://nos.nl/l/2620515)
   > De kilo's vliegen eraf bij mensen die afvallen met middelen als Ozempic, Mounjaro en Wegovy. Door de spuiten te zetten heb je minder honger en val je...
 - [We kauwen op vervuilende plastic kauwgom, Nederland wil Europees verbod](https://nos.nl/l/2620513)
   > Nederland wil een verkoopverbod op kauwgom met plastic. Dat heeft de regering laten weten aan de Europese Commissie in het kader van de herziening...
-- [Wekdienst 27/6: Code rood in Limburg, Brabant, Gelderland en Overijssel • Pride Boedapast](https://nos.nl/l/2620509)
-  > Goedemorgen! Het is opnieuw code rood vanwege de hitte in een deel van Nederland. En in Den Haag wordt Veteranendag gehouden, maar met een aangepast...
-- [Tram in Den Haag ontspoord na botsing met vrachtwagen](https://nos.nl/l/2620497)
-  > In de Haagse wijk Ypenburg is vannacht een tram ontspoord na een botsing met een vrachtwagen.
-        Het ongeluk gebeurde op de kruising van de...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Meteoroloog: Alle ingrediënten voor hevig onweer in late avond aanwezig](https://www.ad.nl/binnenland/meteoroloog-alle-ingredienten-voor-hevig-onweer-in-late-avond-aanwezig~ab1d962d/)
-  > Na weer een warme dag zijn alle ‘ingrediënten’ voor een flinke onweersbui zaterdagavond aanwezig. Volgens Floris Lafeber, meteoroloog bij Weeronline,...
-- [Nederland tegen Marokko, Kaapverdië treft Argentinië: dit is het (virtuele) speelschema voor de knock-outfase](https://www.ad.nl/wk-voetbal/nederland-tegen-marokko-kaapverdie-treft-argentinie-dit-is-het-virtuele-speelschema-voor-de-knock-outfase~a10011c9/)
-  > De ontknoping van de groepsfase van het WK voetbal nadert. In dit overzicht lees je welke landen zich al hebben geplaatst, voor wie het WK-avontuur...
-- [Max-mania is hoogtepunt wel voorbij: ‘Als je vooraf al weet dat er niks te halen is, wordt het snel minder leuk’](https://www.ad.nl/formule-1/max-mania-is-hoogtepunt-wel-voorbij-als-je-vooraf-al-weet-dat-er-niks-te-halen-is-wordt-het-snel-minder-leuk~ab793cbe/)
-  > Max Verstappen won al een halfjaar geen race meer, uitte zeer stevige kritiek op de Formule 1 en filosofeerde zelfs hardop over een exit. Wat heeft...
-- [Ricky van Wolfswinkel keert terug bij jeugdliefde Woudenberg, maar vreest derde helft…: ‘Ik ben niet zo’n zuiper’](https://www.ad.nl/voetbal/ricky-van-wolfswinkel-keert-terug-bij-jeugdliefde-woudenberg-maar-vreest-derde-helft-ik-ben-niet-zon-zuiper~add4f53c/)
-  > Ricky van Wolfswinkel kan het niet laten. Nadat hij in mei bij FC Twente afzwaaide als prof trekt de 37-jarige spits komend seizoen het shirt van...
-- [Zo laat komt Max Verstappen vandaag en morgen in actie tijdens thuisrace Red Bull](https://www.ad.nl/formule-1/zo-laat-komt-max-verstappen-vandaag-en-morgen-in-actie-tijdens-thuisrace-red-bull~a7ef81a1/)
-  > De volgende stop van de Formule 1 is de Red Bull Ring in Oostenrijk. Dat betekent een oranjefeestje voor Max Verstappen en zijn team. Bekijk...
+- [Onderzoek naar zelfgekozen dood van Roos (17): zo worstelden ouders jaren met haar suïcide-gedrag](https://www.ad.nl/binnenland/onderzoek-naar-zelfgekozen-dood-van-roos-17-zo-worstelden-ouders-jaren-met-haar-suicide-gedrag~ac99e9d2/)
+  > Ruben (47) en Marianne (44) verloren afgelopen jaar hun geliefde dochter Roos aan suïcide. Het leven was voor haar té complex om tegen opgewassen te...
+- [Coach Uruguay schreeuwt naar verslaggever en is snoeihard voor zichzelf: ‘Het was waardeloos’](https://www.ad.nl/wk-voetbal/coach-uruguay-schreeuwt-naar-verslaggever-en-is-snoeihard-voor-zichzelf-het-was-waardeloos~a81ef26f/)
+  > Bondscoach Marcelo Bielsa van Uruguay heeft de verantwoordelijkheid op zich genomen voor de uitschakeling op het WK. De Zuid-Amerikanen verloren in...
+- [Autoriteiten bevestigen vliegtuigcrash hoogste wolkenkrabber van Peking](https://www.ad.nl/buitenland/autoriteiten-bevestigen-vliegtuigcrash-hoogste-wolkenkrabber-van-peking~aa991e52/)
+  > De autoriteiten in Peking hebben bevestigd dat een vliegtuigje vrijdag is gebotst op de hoogste torenflat van de stad en dat daar een dode en dertien...
+- [Opinie: ‘Maak van kinderopvang een pedagogische opstap’](https://www.ad.nl/praat-mee/opinie-maak-van-kinderopvang-een-pedagogische-opstap~a21d9290/)
+  > Te vaak wordt kinderopvang gezien als voorziening die ouders helpt te werken. Maar wordt er voldoende naar het belang van het kind gekeken, vragen...
+- [Belle Perez keert terug op het podium na overlijden van haar echtgenoot: ‘Het komt wel binnen’](https://www.ad.nl/show/belle-perez-keert-terug-op-het-podium-na-overlijden-van-haar-echtgenoot-het-komt-wel-binnen~a9bbec66/)
+  > Zangeres Belle Perez heeft vrijdagavond voor het eerst sinds het onverwachte overlijden van haar echtgenoot Wouter van der Horst weer opgetreden....
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Buffett-opvolger Greg Abel haalt Berkshires investeringsmachine uit winterslaap](https://fd.nl/financiele-markten/1601423/buffett-opvolger-greg-abel-haalt-berkshires-investeringsmachine-uit-winterslaap)
+  > Ondanks beloftes dat alles bij het oude zou blijven, verschuiven de accenten bij Berkshire  Hathaway onder de nieuwe ceo.
+- [VS voeren aanvallen uit op Iran als vergelding voor beschietingen op vrachtschip](https://fd.nl/politiek/1601544/vs-voeren-aanvallen-uit-op-iran-als-vergelding-voor-beschietingen-op-vrachtschip)
+  > Volgens de Amerikaanse president Donald Trump geldt de aanval als vergelding voor de ‘dwaze schending’ van het staakt-het-vuren tussen de landen.
+- [Libanon en Israël tekenen ‘raamwerk’ dat tot vrede moet leiden](https://fd.nl/samenleving/1601543/libanon-en-israel-tekenen-raamwerk-dat-tot-vrede-moet-leiden)
+  > Het Israëlische leger zal wel aanwezig blijven in het zuiden van het land. Troepen blijven in de bufferzone, een strook van zo’n tien kilometer in...
 - [‘Het belang van VNO-NCW loopt niet parallel met dat van de kleine ondernemer’](https://fd.nl/opinie/1601368/het-belang-van-vno-ncw-loopt-niet-parallel-aan-dat-van-de-kleine-ondernemer-en-andere-lezersreacties)
   > FD-lezers reageren op de vraag of VNO-NCW er nog wel voldoende voor het mkb is, of de gemeente Amsterdam écht een vermindering van het aantal...
 - [Is kernenergie te duur? En laden te goedkoop?](https://fd.nl/economie/1601400/is-kernenergie-te-duur-en-laden-te-goedkoop)
   > Kernenergie, laadpalen voor elektrische auto’s en de Russische afhankelijkheid van gasinkomsten. In deze aflevering behandelen Anna en Marijn drie...
-- [De robots van BMW lijken heel bewust op ons](https://fd.nl/bedrijfsleven/1601004/de-robots-van-bmw-lijken-heel-bewust-op-ons)
-  > BMW zet in zijn fabriek in Leipzig humanoïde robots in. Uiteindelijk zullen ze activiteiten van mensen overnemen. ‘Hoe langer ik me hiermee...
-- [Zuipen voor de democratie. Helpt het?](https://fd.nl/opinie/1601374/zuipen-voor-de-democratie-helpt-het)
-  > Oproep van een Berlijnse politicoloog: Duitsland verrijken met 10.000 extra dorpskroegen. Zonder kroeg raken mensen eenzaam, haken ze af en doen ze...
-- [Paul Krugman: ‘Ik denk niet dat we ooit volledig herstellen van Trump’](https://fd.nl/economie/1595049/paul-krugman-ik-denk-niet-dat-we-ooit-volledig-herstellen-van-trump)
-  > De verkiezingen in november bepalen volgens Paul Krugman of de VS wegglijden naar autocratie. Hoe dan ook is de schade groot, zegt de econoom. ‘Een...
 
 ### Meest gelezen
 
