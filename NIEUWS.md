@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-06-2026 om 15:18*
+*Laatst bijgewerkt: 27-06-2026 om 17:15*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Landelijke storing Rijkswaterstaat, probleem met bruggen, tunnels en rode kruizen](https://nos.nl/l/2620579)
-  > Rijkswaterstaat heeft te maken met een landelijke storing. Er zijn problemen met de bediening van bruggen, sluizen en tunnels. Ook kunnen er...
+- [Australië scherpt regels socialemediaverbod voor kinderen aan: boete verdubbeld](https://nos.nl/l/2620591)
+  > De boete voor techbedrijven die te weinig doen om het socialemediaverbod voor kinderen in Australië te handhaven, wordt verdubbeld. Het verbod heeft...
+- [Systemen Rijkswaterstaat komen weer op gang na landelijke storing](https://nos.nl/l/2620579)
+  > Rijkswaterstaat heeft eind van de middag enige tijd geen toegang gehad tot het internet. Hierdoor waren er problemen met de bediening van bruggen,...
 - [Stralende burgemeester Schouten geeft ja-woord in Rotterdam](https://nos.nl/l/2620571)
   > De Rotterdamse burgemeester Carola Schouten is vanochtend getrouwd in haar 'eigen' stadhuis aan de Coolsingel. Ze gaf het ja-woord aan Coert...
 - [Drukke Fernpas in Oostenrijk dicht door demonstratie van omwonenden](https://nos.nl/l/2620566)
   > In Oostenrijk is de Fernpas vanochtend korte tijd afgesloten geweest vanwege een betoging van omwonenden. De Fernpas is een belangrijke route in de...
 - [Auto belandt op kerkhof Gemert, vijf graven beschadigd](https://nos.nl/l/2620563)
   > Een automobilist is in Gemert uit de bocht gevlogen, door een hek gereden en op een begraafplaats beland. Vijf graven raakten voor een deel zwaar...
-- [JA21-leider Eerdmans: kabinet moet nu echt gaan kiezen tussen ons en Pro](https://nos.nl/l/2620559)
-  > JA21-leider Joost Eerdmans roept het kabinet richting Prinsjesdag op nu echt een keuze te maken tussen Pro en JA21. "Met beide samenwerken gaat...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Max Verstappen schiet van de baan in ultieme poging voor pole, George Russell de snelste op de Red Bull Ring](https://www.ad.nl/formule-1/max-verstappen-schiet-van-de-baan-in-ultieme-poging-voor-pole-george-russell-de-snelste-op-de-red-bull-ring~ad601e3d4/)
-  > Max Verstappen deed mee in de strijd om poleposition, maar in de voorlaatste bocht ging het mis. De coureur van Red Bull Racing schoot van de baan en...
-- [Wéér alpaca’s bij restaurant, nadat eigenaar eerder sorry zei: ‘Welzijn dieren staat nu voorop’](https://www.ad.nl/rotterdam/weer-alpacas-bij-restaurant-nadat-eigenaar-eerder-sorry-zei-welzijn-dieren-staat-nu-voorop~a264a5ec/)
-  > Restaurant Morena, dat vorig jaar voor flink wat ophef zorgde door alpaca’s in de zaak te laten lopen als entertainment, nodigt deze zomer wéér...
-- [Eerste officiële miljoenenaankoop van Jordi Cruijff: Braziliaanse linksback onderweg naar Amsterdam](https://www.ad.nl/voetbal/eerste-officiele-miljoenenaankoop-van-jordi-cruijff-braziliaanse-linksback-onderweg-naar-amsterdam~a22c5061/)
-  > Caio Henrique wordt speler van Ajax. De Braziliaanse linksback is onderweg naar Amsterdam om de laatste formaliteiten af te ronden.
-- [Zonta van den Goorbergh en Collin Veijer te langzaam in kwalificatie TT Assen](https://www.ad.nl/andere-sporten/zonta-van-den-goorbergh-en-collin-veijer-te-langzaam-in-kwalificatie-tt-assen~abd1148f/)
-  > Zonta van den Goorbergh en Collin Veijer hebben zich in de kwalificaties voor de Moto2 bij de TT van Assen niet kunnen onderscheiden. Van den...
-- [Vijf personen betrokken bij auto-ongeluk bij Terneuzen](https://www.ad.nl/terneuzen/vijf-personen-betrokken-bij-auto-ongeluk-bij-terneuzen~af6ab76b/)
-  > In de buurt van Terneuzen zijn zaterdag twee auto’s op elkaar gebotst. Bij het ongeval zijn vijf personen betrokken. Meerdere ambulances en...
+- [TransferTalk | Chelsea bereikt akkoord met aanvoerder van Zwitserland, Sparta ziet tweetal vertrekken](https://www.ad.nl/voetbal/transfertalk-chelsea-bereikt-akkoord-met-aanvoerder-van-zwitserland-sparta-ziet-tweetal-vertrekken~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Levende baby onder puin gevonden, 32 uur na aardbevingen in Venezuela](https://www.ad.nl/buitenland/levende-baby-onder-puin-gevonden-32-uur-na-aardbevingen-in-venezuela~a32b70a5/)
+  > Hulpverleners hebben een pasgeboren baby gered onder het puin van een ingestort gebouw in de zwaar getroffen kuststad La Guaira. Dat gebeurde 32 uur...
+- [Max Verstappen grapt na ‘onverklaarbare’ crash: ‘Straks maar even naar Tibet, relaxen als Boeddha’](https://www.ad.nl/formule-1/max-verstappen-grapt-na-onverklaarbare-crash-straks-maar-even-naar-tibet-relaxen-als-boeddha~aac2eb44/)
+  > In een weekend waarin Red Bull Racing op probeert te krabbelen, krijgt Max Verstappen een gigantische lading tegenwind te verwerken. Net toen hij...
+- [‘Ik word er helemaal gek van’: hoe een grens van 50 meter mogelijk tienduizenden huizen tegenhoudt](https://www.ad.nl/binnenland/ik-word-er-helemaal-gek-van-hoe-een-grens-van-50-meter-mogelijk-tienduizenden-huizen-tegenhoudt~afe0fc51/)
+  > Een boer mag bestrijdingsmiddelen spuiten. De buurvrouw mag niet bouwen. Het conflict loopt steeds verder op. En de oplossing is ver weg. Welkom bij...
+- [Vriendin van Cody Gakpo deelt intens triest nieuws: kindje van Oranje-speler tijdens zwangerschap overleden](https://www.ad.nl/wk-voetbal/vriendin-van-cody-gakpo-deelt-intens-triest-nieuws-kindje-van-oranje-speler-tijdens-zwangerschap-overleden~a071c418/)
+  > Cody Gakpo heeft tijdens het WK een zware klap te verwerken gekregen. Het kindje van de Oranje-international is tijdens de zwangerschap overleden....
 
 ### Meest gelezen
 
