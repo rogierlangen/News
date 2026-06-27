@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-06-2026 om 03:51*
+*Laatst bijgewerkt: 27-06-2026 om 06:55*
 
 ---
 
@@ -8,18 +8,17 @@
 
 ### Laatste nieuws
 
+- [NASA stuurt reddingsmissie naar langzaam neerstortende ruimtetelescoop](https://nos.nl/l/2620525)
+  > Een ruimtetelescoop van NASA dreigt langzaam terug in de atmosfeer van de aarde te vallen, maar redding is nabij. Komende week moet een...
+- [Podcast De Dag: de bijvangst van middelen als Ozempic](https://nos.nl/l/2620515)
+  > De kilo's vliegen eraf bij mensen die afvallen met middelen als Ozempic, Mounjaro en Wegovy. Door de spuiten te zetten heb je minder honger en val je...
+- [We kauwen op vervuilende plastic kauwgom, Nederland wil Europees verbod](https://nos.nl/l/2620513)
+  > Nederland wil een verkoopverbod op kauwgom met plastic. Dat heeft de regering laten weten aan de Europese Commissie in het kader van de herziening...
+- [Wekdienst 27/6: Code rood in Limburg, Brabant, Gelderland en Overijssel • Pride Boedapast](https://nos.nl/l/2620509)
+  > Goedemorgen! Het is opnieuw code rood vanwege de hitte in een deel van Nederland. En in Den Haag wordt Veteranendag gehouden, maar met een aangepast...
 - [Tram in Den Haag ontspoord na botsing met vrachtwagen](https://nos.nl/l/2620497)
   > In de Haagse wijk Ypenburg is vannacht een tram ontspoord na een botsing met een vrachtwagen.
         Het ongeluk gebeurde op de kruising van de...
-- [Libanon en Israël tekenen akkoord dat 'eerste stap richting vrede' moet zijn](https://nos.nl/l/2620494)
-  > Libanon en Israël hebben een akkoord getekend dat volgens de ondertekenaars "een eerste stap richting vrede is".
-        De 'raamwerkovereenkomst'...
-- [Burkina Faso verbreekt diplomatieke banden met Frankrijk](https://nos.nl/l/2620493)
-  > Burkina Faso heeft de diplomatieke banden met Frankrijk verbroken. De verhoudingen tussen Burkina Faso en voormalig kolonisator Frankrijk waren de...
-- [Jongen (1) blijft alleen achter in kinderopvang, personeel op non-actief gesteld](https://nos.nl/l/2620485)
-  > Medewerkers van een kinderdagopvang in Schiedam hebben vanavond een 1-jarige jongen alleen achtergelaten in het pand van het kinderdagverblijf. De...
-- [VS voert aanvallen uit op Iran als reactie op aanval op schip](https://nos.nl/l/2620483)
-  > De Verenigde Staten hebben luchtaanvallen uitgevoerd op Iran, zegt het Amerikaanse militaire commando voor het Midden-Oosten (Centcom). De aanval is...
 
 ### Meest gelezen
 
@@ -29,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaanse verkrachter die eigen dood in scène zette, nu echt overleden](https://www.ad.nl/buitenland/amerikaanse-verkrachter-die-eigen-dood-in-scene-zette-nu-echt-overleden~a0f60354/)
-  > Een Amerikaanse man die zijn eigen dood in scène zette om vervolging voor verkrachting te ontlopen, is overleden. Dat melden de autoriteiten in de...
-- [Bibberen bij Schotland en Zuid-Korea: welke nummers 3 gaan door? Dit is de virtuele stand](https://www.ad.nl/wk-voetbal/bibberen-bij-schotland-en-zuid-korea-welke-nummers-3-gaan-door-dit-is-de-virtuele-stand~a463acad/)
-  > De acht beste nummers 3 gaan door naar de knock-outfase van het WK, de vier slechtsten vallen af. Hoe staat het er op dit moment voor als je kijkt...
-- [Opluchting bij België: Trossard tikt Rode Duivels op voorsprong na furieuze start tegen Nieuw-Zeeland](https://www.ad.nl/wk-voetbal/opluchting-bij-belgie-trossard-tikt-rode-duivels-op-voorsprong-na-furieuze-start-tegen-nieuw-zeeland~a5c74cf3/)
-  > Na eerdere gelijke spelen tegen Iran (0-0) en Egypte (1-1) moet België winnen van hekkensluiter Nieuw-Zeeland. Bij winst in Vancouver is zelfs de...
-- [Iran langszij in beladen ‘Pride Match’ tegen Egypte, volop regenboogvlaggen op tribunes](https://www.ad.nl/wk-voetbal/iran-langszij-in-beladen-pride-match-tegen-egypte-volop-regenboogvlaggen-op-tribunes~a4e7facc/)
-  > Egypte en Iran, twee landen waar LHBTI’ers onderdrukt worden, spelen in Seattle de Pride Match. Iran hoopt met een zege boven België te blijven,...
-- [Speelschema WK | Wekker zetten voor Oranje: zo laat is het duel met Marokko](https://www.ad.nl/voetbal/speelschema-wk-wekker-zetten-voor-oranje-zo-laat-is-het-duel-met-marokko~ad85207c/)
-  > Het Nederlands elftal en 47 andere landen strijden in Canada, Mexico en de Verenigde Staten om de wereldtitel. Van donderdag 11 juni tot en met...
+- [Meteoroloog: Alle ingrediënten voor hevig onweer in late avond aanwezig](https://www.ad.nl/binnenland/meteoroloog-alle-ingredienten-voor-hevig-onweer-in-late-avond-aanwezig~ab1d962d/)
+  > Na weer een warme dag zijn alle ‘ingrediënten’ voor een flinke onweersbui zaterdagavond aanwezig. Volgens Floris Lafeber, meteoroloog bij Weeronline,...
+- [Nederland tegen Marokko, Kaapverdië treft Argentinië: dit is het (virtuele) speelschema voor de knock-outfase](https://www.ad.nl/wk-voetbal/nederland-tegen-marokko-kaapverdie-treft-argentinie-dit-is-het-virtuele-speelschema-voor-de-knock-outfase~a10011c9/)
+  > De ontknoping van de groepsfase van het WK voetbal nadert. In dit overzicht lees je welke landen zich al hebben geplaatst, voor wie het WK-avontuur...
+- [Max-mania is hoogtepunt wel voorbij: ‘Als je vooraf al weet dat er niks te halen is, wordt het snel minder leuk’](https://www.ad.nl/formule-1/max-mania-is-hoogtepunt-wel-voorbij-als-je-vooraf-al-weet-dat-er-niks-te-halen-is-wordt-het-snel-minder-leuk~ab793cbe/)
+  > Max Verstappen won al een halfjaar geen race meer, uitte zeer stevige kritiek op de Formule 1 en filosofeerde zelfs hardop over een exit. Wat heeft...
+- [Ricky van Wolfswinkel keert terug bij jeugdliefde Woudenberg, maar vreest derde helft…: ‘Ik ben niet zo’n zuiper’](https://www.ad.nl/voetbal/ricky-van-wolfswinkel-keert-terug-bij-jeugdliefde-woudenberg-maar-vreest-derde-helft-ik-ben-niet-zon-zuiper~add4f53c/)
+  > Ricky van Wolfswinkel kan het niet laten. Nadat hij in mei bij FC Twente afzwaaide als prof trekt de 37-jarige spits komend seizoen het shirt van...
+- [Zo laat komt Max Verstappen vandaag en morgen in actie tijdens thuisrace Red Bull](https://www.ad.nl/formule-1/zo-laat-komt-max-verstappen-vandaag-en-morgen-in-actie-tijdens-thuisrace-red-bull~a7ef81a1/)
+  > De volgende stop van de Formule 1 is de Red Bull Ring in Oostenrijk. Dat betekent een oranjefeestje voor Max Verstappen en zijn team. Bekijk...
 
 ### Meest gelezen
 
@@ -48,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [‘Het belang van VNO-NCW loopt niet parallel met dat van de kleine ondernemer’](https://fd.nl/opinie/1601368/het-belang-van-vno-ncw-loopt-niet-parallel-aan-dat-van-de-kleine-ondernemer-en-andere-lezersreacties)
+  > FD-lezers reageren op de vraag of VNO-NCW er nog wel voldoende voor het mkb is, of de gemeente Amsterdam écht een vermindering van het aantal...
 - [Is kernenergie te duur? En laden te goedkoop?](https://fd.nl/economie/1601400/is-kernenergie-te-duur-en-laden-te-goedkoop)
   > Kernenergie, laadpalen voor elektrische auto’s en de Russische afhankelijkheid van gasinkomsten. In deze aflevering behandelen Anna en Marijn drie...
 - [De robots van BMW lijken heel bewust op ons](https://fd.nl/bedrijfsleven/1601004/de-robots-van-bmw-lijken-heel-bewust-op-ons)
@@ -56,8 +57,6 @@
   > Oproep van een Berlijnse politicoloog: Duitsland verrijken met 10.000 extra dorpskroegen. Zonder kroeg raken mensen eenzaam, haken ze af en doen ze...
 - [Paul Krugman: ‘Ik denk niet dat we ooit volledig herstellen van Trump’](https://fd.nl/economie/1595049/paul-krugman-ik-denk-niet-dat-we-ooit-volledig-herstellen-van-trump)
   > De verkiezingen in november bepalen volgens Paul Krugman of de VS wegglijden naar autocratie. Hoe dan ook is de schade groot, zegt de econoom. ‘Een...
-- [500 keer Raderwerk: meer Trump dan Rutte en meer geld dan geluk](https://fd.nl/politiek/1601399/500-keer-raderwerk-meer-trump-dan-rutte-en-meer-geld-dan-geluk)
-  > Mathijs Bouwman begon twaalf jaar geleden zijn economierubriek in het FD. Het moest ergens tussen een column en een analyse in zitten. Waarover...
 
 ### Meest gelezen
 
