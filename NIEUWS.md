@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-06-2026 om 21:09*
+*Laatst bijgewerkt: 27-06-2026 om 23:06*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Vijf wijzigingen bij Engeland, dat in de regen tegen Panama speelt](https://www.ad.nl/wk-voetbal/vijf-wijzigingen-bij-engeland-dat-in-de-regen-tegen-panama-speelt~a587e44d/)
-  > Engeland stelde teleur in het tweede WK-duel, door dinsdag met 0-0 gelijk te spelen tegen Ghana. Bondscoach Thomas Tuchel voert vijf wijzigingen door...
+- [Engeland poulewinnaar dankzij goals Jude Bellingham en Harry Kane, record voor invaller Jordan Henderson](https://www.ad.nl/wk-voetbal/engeland-poulewinnaar-dankzij-goals-jude-bellingham-en-harry-kane-record-voor-invaller-jordan-henderson~a587e44d/)
+  > Engeland is poulewinnaar geworden in groep L dankzij een 2-0 overwinning op Panama, dat na twee nederlagen al was uitgeschakeld. Engeland ontloopt...
+- [Portugal strijdt met Colombia om groepswinst, Congo kan nog bij beste nummers 3 komen](https://www.ad.nl/wk-voetbal/portugal-strijdt-met-colombia-om-groepswinst-congo-kan-nog-bij-beste-nummers-3-komen~a3755235/)
+  > Een heerlijk affiche in de laatste speelronde van groep K. Colombia staat na twee zeges bovenaan en treft Portugal, dat twee punten minder heeft. Wie...
+- [LIVE WK voetbal | Spaanse aanvaller boos na ‘overtreding uit frustratie’, Engelse fans nemen winkelcentrum over](https://www.ad.nl/wk-voetbal/live-wk-voetbal-spaanse-aanvaller-boos-na-overtreding-uit-frustratie-engelse-fans-nemen-winkelcentrum-over~a2d5cab9/)
+  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
 - [Stefan de Vrij maandag medisch gekeurd in Griekenland, Chelsea aast op aanvoerder van Zwitserland](https://www.ad.nl/voetbal/stefan-de-vrij-maandag-medisch-gekeurd-in-griekenland-chelsea-aast-op-aanvoerder-van-zwitserland~ad10f02c/)
   > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
 - [Brian Brobbey over steun voor Cody Gakpo: ‘Als hij ons nodig heeft, zijn we er voor hem’](https://www.ad.nl/wk-voetbal/brian-brobbey-over-steun-voor-cody-gakpo-als-hij-ons-nodig-heeft-zijn-we-er-voor-hem~a979cba6/)
   > Oranje-spits Brian Brobbey leeft mee met zijn teamgenoot Cody Gakpo, die tijdens dit WK samen met zijn vriendin Noa van der Bij het verlies van hun...
-- [Kroatië begonnen aan belangrijke wedstrijd tegen Ghana: kan geroutineerde ploeg directe kwalificatie veilig stellen?](https://www.ad.nl/wk-voetbal/kroatie-begonnen-aan-belangrijke-wedstrijd-tegen-ghana-kan-geroutineerde-ploeg-directe-kwalificatie-veilig-stellen~abd86dad/)
-  > Kroatië en Ghana strijden in een onderling duel om plek 2 in groep L. Kan het land van Josip Sutalo en Ivan Perisic winnen? Volg het hier vanaf 23.00...
-- [Nieuwe aardbeving Venezuela met kracht van 5.6](https://www.ad.nl/buitenland/nieuwe-aardbeving-venezuela-met-kracht-van-5-6~a0e619cb/)
-  > In Venezuela heeft een nieuwe aardbeving plaatsgevonden, ongeveer in hetzelfde gebied als waar de twee verwoestende aardbevingen van donderdag waren....
 
 ### Meest gelezen
 
