@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-06-2026 om 11:37*
+*Laatst bijgewerkt: 27-06-2026 om 13:51*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Vrachtwagenheffing helpt bij verduurzaming, 'maar de kosten gaan wel omhoog'](https://nos.nl/l/2620556)
-  > Eigenaren van vrachtwagens betalen per 1 juli een bedrag per gereden kilometer op bijna alle Nederlandse snelwegen. De vrachtwagenheffing moet de...
-- [Nederlands reddingsteam geland in Venezuela, tijd dringt voor overlevenden](https://nos.nl/l/2620555)
-  > Een Nederlands reddingsteam is geland in Venezuela om te helpen bij de zoektocht naar overlevenden van de twee zware aardbevingen. Tienduizenden...
-- [Lichaam van meisje (17) in koffer gevonden in Thailand, Australiër opgepakt](https://nos.nl/l/2620554)
-  > In Thailand is een Australische toerist gearresteerd in verband met de vondst van het lichaam van een tienermeisje in een koffer. De man van 45 is...
-- [Brand in parkeergarage Rotterdam is bijna niet uit te krijgen](https://nos.nl/l/2620547)
-  > De Rotterdamse brandweer heeft grote moeite om een brand die vannacht ontstond in een parkeergarage helemaal uit te krijgen.
-        "De accu van de...
-- [Anthropic mag nieuwe AI-tool toch delen met Amerikaanse overheidsinstanties](https://nos.nl/l/2620538)
-  > AI-bedrijf Anthropic mag zijn nieuwste AI-model alsnog beschikbaar stellen aan bepaalde overheidsinstanties. De Amerikaanse regering heeft daar...
+- [Stralende burgemeester Schouten geeft ja-woord in Rotterdam](https://nos.nl/l/2620571)
+  > De Rotterdamse burgemeester Carola Schouten is vanochtend getrouwd in haar 'eigen' stadhuis aan de Coolsingel. Ze gaf het ja-woord aan Coert...
+- [Drukke Fernpas in Oostenrijk dicht door demonstratie van omwonenden](https://nos.nl/l/2620566)
+  > In Oostenrijk is de Fernpas vanochtend korte tijd afgesloten geweest vanwege een betoging van omwonenden. De Fernpas is een belangrijke route in de...
+- [Auto belandt op kerkhof Gemert, vijf graven vernield](https://nos.nl/l/2620563)
+  > Een automobilist is in Gemert uit de bocht gevlogen, door een hek gereden en op een begraafplaats beland. Vijf graven werden vernield. De bestuurder,...
+- [JA21-leider Eerdmans: kabinet moet nu echt gaan kiezen tussen ons en Pro](https://nos.nl/l/2620559)
+  > JA21-leider Joost Eerdmans roept het kabinet richting Prinsjesdag op nu echt een keuze te maken tussen Pro en JA21. "Met beide samenwerken gaat...
+- [Utrechts waterschap werkt samen met boeren aan 'snelweg' voor otters](https://nos.nl/l/2620557)
+  > Samen met een aantal boeren legt het Utrechtse waterschap Stichtse Rijnlanden de rode loper uit voor de otter. De oevers van de talloze watergangen...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Valse start voor Anthony Correia: FC Utrecht verliest in oefenwedstrijd van De Graafschap](https://www.ad.nl/voetbal/valse-start-voor-anthony-correia-fc-utrecht-verliest-in-oefenwedstrijd-van-de-graafschap~a580ed8e/)
-  > FC Utrecht is de voorbereiding op het nieuwe seizoen onder trainer Anthony Correia begonnen met een nederlaag tegen eerstedivisionist De Graafschap....
-- [Désiré Doué krijgt bijzonder cadeau van idool Neymar, route Argentinië ligt open](https://www.ad.nl/wk-voetbal/desire-doue-krijgt-bijzonder-cadeau-van-idool-neymar-route-argentinie-ligt-open~a2d5cab9/)
-  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
-- [Dit huismerk was de verrassende winnaar van onze mascaratest: ‘Ogen komen er prachtig in uit’](https://www.ad.nl/gezond/dit-huismerk-was-de-verrassende-winnaar-van-onze-mascaratest-ogen-komen-er-prachtig-in-uit~a416b35b/)
-  > Zwembad, woeste zee of tropische regenbui: ook op waterige vakantiemomenten wil je er fris en fruitig uitzien, inclusief verleidelijke oogopslag....
-- [Mannen met bivakmutsen en pepperspray zorgen voor angst in woonwijk](https://www.ad.nl/dordrecht/mannen-met-bivakmutsen-en-pepperspray-zorgen-voor-angst-in-woonwijk~a31639ff/)
-  > Wat een zwoele zomeravond had moeten worden met vrienden, familie en veel gezelligheid, eindigde vrijdagavond in een ziekenhuis. Zeven Dordtenaren...
-- [Vanavond code oranje in vier provincies vanwege onweersbuien: ‘Kans op hagelstenen van 5 centimeter’](https://www.ad.nl/binnenland/vanavond-code-oranje-in-vier-provincies-vanwege-onweersbuien-kans-op-hagelstenen-van-5-centimeter~a57707aa/)
-  > Het KNMI heeft zaterdagavond vanaf 20.00 uur code oranje afgekondigd in de provincies Limburg, Noord-Brabant, Gelderland en Overijssel vanwege zware...
+- [Victoria stapt op de sup en Helga bewondert een rolwolk](https://www.ad.nl/show/victoria-stapt-op-de-sup-en-helga-bewondert-een-rolwolk~a0ab6663/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Kan Max Verstappen razendsnelle Mercedes-coureurs toch laten zweten tijdens kwalificatie?](https://www.ad.nl/formule-1/kan-max-verstappen-razendsnelle-mercedes-coureurs-toch-laten-zweten-tijdens-kwalificatie~ad601e3d4/)
+  > Max Verstappen aast in de kwalificatie van de Grand Prix van Oostenrijk op een goede startplek voor de thuisrace van zijn team. Kan hij de...
+- [Rotterdamse burgemeester schittert in trouwjurk: ‘Niemand mocht weten dat hij voor haar werd’](https://www.ad.nl/rotterdam/rotterdamse-burgemeester-schittert-in-trouwjurk-niemand-mocht-weten-dat-hij-voor-haar-werd~a23c3837/)
+  > Een stralende burgemeester Carola Schouten van Rotterdam is zaterdagmiddag in ‘haar’ stadhuis getrouwd met Coert Kleijwegt. Het ging in de volgepakte...
+- [Dirkjen (104) woont al 24 jaar in zorgcentrum, waar nu ook dochter Petra (78) heen verhuist: ‘Wel even wennen’](https://www.ad.nl/binnenland/dirkjen-104-woont-al-24-jaar-in-zorgcentrum-waar-nu-ook-dochter-petra-78-heen-verhuist-wel-even-wennen~aa2801e4/)
+  > Een moeder van 104, een dochter van 78 en één zorgcentrum. In Rosengaerde in Dalfsen wonen ze voor het eerst in decennia weer naast elkaar. „Ik ga...
+- [Breuk tussen Ajax en Marijn Beuker: contract directeur voetbal spoedig ontbonden](https://www.ad.nl/voetbal/breuk-tussen-ajax-en-marijn-beuker-contract-directeur-voetbal-spoedig-ontbonden~a93ed39a/)
+  > Marijn Beuker gaat Ajax verlaten. Het contract van de directeur voetbal wordt spoedig ontbonden.
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Eerdmans (JA21) eist lastenverlichting in ruil voor steun aan minderheidskabinet-Jetten](https://fd.nl/politiek/1601456/eerdmans-ja21-eist-lastenverlichting-in-ruil-voor-steun-aan-minderheidskabinet-jetten)
+  > De coalitie moet kiezen, vindt JA21-partijleider Joost Eerdmans. Willen zij voor Prinsjesdag zaken doen met Pro, of met JA21?  ‘Het is graag of niet.’
+- [Dodental aardbeving in Venezuela stijgt naar 920, nog tienduizenden vermist](https://fd.nl/samenleving/1601455/dodental-aardbeving-in-venezuela-stijgt-naar-920-nog-tienduizenden-vermist)
+  > De officiële aantallen zijn naar verwachting een fractie van het werkelijke aantal slachtoffers. Tienduizenden mensen worden nog altijd vermist.
+- [Ingrepen bij OpenAI en Anthropic laten zien: regering-Trump vaart nieuwe koers rondom AI](https://fd.nl/bedrijfsleven/1601454/ingrepen-bij-openai-en-anthropic-laten-zien-regering-trump-vaart-nieuwe-koers-rondom-ai)
+  > Washington bepaalt wie toegang krijgt tot de nieuwste modellen van OpenAI en Anthropic, en wie niet. De AI-bedrijven zijn niet blij met deze nieuwe...
 - [Buffett-opvolger Greg Abel haalt Berkshires investeringsmachine uit winterslaap](https://fd.nl/financiele-markten/1601423/buffett-opvolger-greg-abel-haalt-berkshires-investeringsmachine-uit-winterslaap)
   > Ondanks beloftes dat alles bij het oude zou blijven, verschuiven de accenten bij Berkshire  Hathaway onder de nieuwe ceo.
 - [VS voeren aanvallen uit op Iran als vergelding voor beschietingen op vrachtschip](https://fd.nl/politiek/1601544/vs-voeren-aanvallen-uit-op-iran-als-vergelding-voor-beschietingen-op-vrachtschip)
   > Volgens de Amerikaanse president Donald Trump geldt de aanval als vergelding voor de ‘dwaze schending’ van het staakt-het-vuren tussen de landen.
-- [Libanon en Israël tekenen ‘raamwerk’ dat tot vrede moet leiden](https://fd.nl/samenleving/1601543/libanon-en-israel-tekenen-raamwerk-dat-tot-vrede-moet-leiden)
-  > Het Israëlische leger zal wel aanwezig blijven in het zuiden van het land. Troepen blijven in de bufferzone, een strook van zo’n tien kilometer in...
-- [‘Het belang van VNO-NCW loopt niet parallel met dat van de kleine ondernemer’](https://fd.nl/opinie/1601368/het-belang-van-vno-ncw-loopt-niet-parallel-aan-dat-van-de-kleine-ondernemer-en-andere-lezersreacties)
-  > FD-lezers reageren op de vraag of VNO-NCW er nog wel voldoende voor het mkb is, of de gemeente Amsterdam écht een vermindering van het aantal...
-- [Is kernenergie te duur? En laden te goedkoop?](https://fd.nl/economie/1601400/is-kernenergie-te-duur-en-laden-te-goedkoop)
-  > Kernenergie, laadpalen voor elektrische auto’s en de Russische afhankelijkheid van gasinkomsten. In deze aflevering behandelen Anna en Marijn drie...
 
 ### Meest gelezen
 
