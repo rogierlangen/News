@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-06-2026 om 15:21*
+*Laatst bijgewerkt: 28-06-2026 om 17:17*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Onweer was van enorme omvang, meer dan 300.000 ontladingen](https://nos.nl/l/2620735)
+  > Er zijn gisteren en vannacht uitzonderlijk veel bliksemflitsen geweest. Tussen zaterdag 02.00 uur en zondag 02.00 uur registreerde het KNMI ruim...
 - [Oud-president Biden haalt in toespraak uit naar Trump: 'Wow, wat een loser'](https://nos.nl/l/2620714)
   > In een toespraak heeft de Amerikaanse oud-president Biden zijn opvolger Trump zwaar bekritiseerd. De 83-jarige Biden noemde zijn politieke rivaal een...
 - [Restauranteigenaar waar bruiloftsfeest in water liep: 'Veertig jaar werk verloren'](https://nos.nl/l/2620706)
@@ -16,8 +18,6 @@
   > FIFA-voorzitter Gianni Infantino heeft tijdens de groepsfase van het WK voetbal in Noord-Amerika zeker 27 vluchten gemaakt met een privéjet. Dat...
 - [Corruptiezaken stapelen zich op, partijtop houdt vast aan Spaanse premier](https://nos.nl/l/2620696)
   > De Spaanse Socialistische Partij (PSOE) van premier Sánchez bevindt zich in zwaar weer. Onderzoeken naar mogelijke corruptie en...
-- [Vliegtuig vol parachutisten stort neer in Frankrijk: elf doden](https://nos.nl/l/2620694)
-  > Bij de noordelijke Franse stad Nancy is een klein vliegtuig met parachutespringers neergestort. Alle elf inzittenden zijn daarbij omgekomen. Het gaat...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘Code rood-baby’ Dorus op vluchtstrook geboren: ‘Hulp van omwonenden was heel bijzonder’](https://www.ad.nl/binnenland/code-rood-baby-dorus-op-vluchtstrook-geboren-hulp-van-omwonenden-was-heel-bijzonder~abd8d1ec/)
-  > De zon brandde ongenadig en op de vluchtstrook van de N44 bij Wassenaar smolt het asfalt bijna. In deze extreme hitte en op deze bijzondere plek zag...
-- [Adil (34) juicht tijdens zinderend WK-duel voor Nederland én Marokko: ‘Maakt niet uit wie er wint’](https://www.ad.nl/binnenland/adil-34-juicht-tijdens-zinderend-wk-duel-voor-nederland-en-marokko-maakt-niet-uit-wie-er-wint~a1d8feca/)
-  > In de nacht van maandag op dinsdag treffen Nederland en Marokko elkaar voor een zinderende WK-voetbalwedstrijd. Voor Gouwenaar Adil Akanioui (34),...
-- [LIVE WK voetbal | Van euforie naar kater bij Iran, bondscoach Portugal wil WK winnen voor Diogo Jota](https://www.ad.nl/wk-voetbal/live-wk-voetbal-van-euforie-naar-kater-bij-iran-bondscoach-portugal-wil-wk-winnen-voor-diogo-jota~a2d5cab9/)
-  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
-- [IJzersterke Max Verstappen komt net tekort voor eerste zege, George Russell houdt stand in meeslepende race](https://www.ad.nl/formule-1/ijzersterke-max-verstappen-komt-net-tekort-voor-eerste-zege-george-russell-houdt-stand-in-meeslepende-race~a6403db9/)
-  > Max Verstappen wilde verbetering bij Red Bull Racing en die kwam er, op de eigen Red Bull Ring. Zijn seizoensstart was bij vlagen rampzalig, maar in...
-- [Poetin zegt dat Rusland moeilijke tijd doormaakt: ‘Onder ongekende druk van een westerse elite’](https://www.ad.nl/buitenland/poetin-zegt-dat-rusland-moeilijke-tijd-doormaakt-onder-ongekende-druk-van-een-westerse-elite~adfb97be/)
-  > De Russische president Vladimir Poetin heeft op een partijcongres van Verenigd Rusland gezegd dat het land een moeilijke tijd doormaakt. Maar die...
+- [Precies nu hij verbetering wil zien, kan Max Verstappen weer knokken om de zege: ‘Wel echt een goed teken’](https://www.ad.nl/formule-1/precies-nu-hij-verbetering-wil-zien-kan-max-verstappen-weer-knokken-om-de-zege-wel-echt-een-goed-teken~a3700144/)
+  > In een ‘cruciaal’ weekend richtte Red Bull Racing zich ferm op, met het beste resultaat voor Max Verstappen dit seizoen. Zijn tweede plaats was een...
+- [Waarheid als een koe: doorpakken met stikstof is nu nodig](https://www.ad.nl/commentaar/waarheid-als-een-koe-doorpakken-met-stikstof-is-nu-nodig~a1796389/)
+  > Gaat Nederland eindelijk van het stikstofslot? Landbouwminister Jaimi van Essen belooft dat het in 2028 zover is. Dat zou een zegen zijn voor dit...
+- [Nederlands kampioene Lieke Nooijen geniet van het leven dat ze leeft: ‘Werk superhard, maar plezier is het belangrijkste’](https://www.ad.nl/wielrennen/nederlands-kampioene-lieke-nooijen-geniet-van-het-leven-dat-ze-leeft-werk-superhard-maar-plezier-is-het-belangrijkste~a1f5f091/)
+  > Lieke Nooijen bekroonde bij het NK in Nijmegen haar goede vorm van de laatste maanden met de Nederlandse titel. De 24-jarige renster van Visma-Lease...
+- [Femke Broeder-Bol maakt indruk op 800 meter en nadert record Ellen van Langen tot op zes honderdsten](https://www.ad.nl/andere-sporten/femke-broeder-bol-maakt-indruk-op-800-meter-en-nadert-record-ellen-van-langen-tot-op-zes-honderdsten~a71e47f6/)
+  > Femke Broeder-Bol is met haar tijd van 1.55.60 bij de Diamond League in Parijs het Nederlands record van Ellen van Langen op de 800 meter op zes...
+- [Rotterdam krijgt een ‘achtste wereldwonder’: dit is de man achter het ‘gestoord ambitieuze’ idee](https://www.ad.nl/binnenland/rotterdam-krijgt-een-achtste-wereldwonder-dit-is-de-man-achter-het-gestoord-ambitieuze-idee~abe1a3ad/)
+  > Hij gaat in Rotterdam het ‘achtste wereldwonder’ neerzetten voor honderden miljoenen euro’s. Het ene ontwerp voor het gebouw is nog spectaculairder...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Houdt het stikstofpakket stand bij de rechter? Vier vragen over de kabinetsplannen](https://fd.nl/politiek/1601464/houdt-het-stikstofpakket-stand-bij-de-rechter-vier-vragen-over-de-kabinetsplannen)
+  > Het kabinet presenteerde een omvangrijk stikstofpakket. Of de plannen de natuur herstellen en ertoe leiden dat provincies natuurvergunningen kunnen...
+- [Oekraïne treft Russische raffinaderijen](https://fd.nl/politiek/1601568/oekraine-treft-russische-raffinaderijen)
+  > Aanvallen volgen op aankondiging van een veertigdaagse campagne om Rusland ervan te overtuigen de oorlog te stoppen.
+- [Jamie Dimon werkt aan zijn opvolging bij JPMorganChase](https://fd.nl/financiele-markten/1601516/jamie-dimon-werkt-aan-zijn-opvolging-bij-jpmorgan)
+  > De baas van JPMorganChase wil voorlopig nog niet weg. Daarom zijn er – wederom – nieuwe opvolgers.
 - [Protesten tegen corruptie nopen Servische president tot aftreden](https://fd.nl/politiek/1601461/protesten-tegen-corruptie-nopen-servische-president-tot-aftreden)
   > Zaterdag kondigde Aleksandar Vucić aan dat hij binnen enkele weken zal aftreden.
 - [Google draait AI-kraan dicht voor grootgebruiker Meta](https://fd.nl/bedrijfsleven/1601460/google-draait-ai-kraan-dicht-voor-grootgebruiker-meta)
   > Het socialemediabedrijf Meta kan voor zijn beveiliging niet langer leunen op AI-dienstverlening van Alphabet.
-- [Bridgen met je moeder](https://fd.nl/opinie/1601566/bridgen-met-je-moeder)
-  > Alle beleggers kunnen in theorie nog steeds op hetzelfde moment over dezelfde informatie beschikken. Alleen bedrijven met de beste AI-modellen en de...
-- [Miljardenaanbesteding grondafhandeling Schiphol nadert ontknoping](https://fd.nl/bedrijfsleven/1601412/miljardenaanbesteding-grondafhandeling-schiphol-nadert-ontknoping)
-  > Schiphol maakt dinsdag bekend welke drie partijen de komende zeven jaar verantwoordelijk zijn voor onder meer het in- en uitladen van de koffers. Er...
-- [Europa heeft een sterke troefkaart in handen tegen Trump](https://fd.nl/financiele-markten/1601388/europa-heeft-een-sterke-troefkaart-in-handen-tegen-trump)
-  > Zelfs de Amerikaanse kredietbeoordelaars vinden treasuries niet meer goudgerand, dus waarom zou Europa ze nog wel als risicoloos beschouwen?
 
 ### Meest gelezen
 
