@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-06-2026 om 19:26*
+*Laatst bijgewerkt: 28-06-2026 om 21:06*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Nederlands schip met noodhulp in Venezuela](https://nos.nl/l/2620753)
+  > Een Nederlands marineschip is naar Venezuela gevaren om noodhulp te verlenen in het door aardbevingen getroffen land. De Zr. Ms. Groningen was al...
+- [Poetin erkent dat Oekraïense aanvallen brandstoftekorten veroorzaken](https://nos.nl/l/2620751)
+  > Rusland kampt met grote brandstoftekorten door de voortdurende Oekraïense aanvallen op onder meer Russische olieraffinaderijen. In bijna alle regio's...
 - [Onweer was van enorme omvang, meer dan 300.000 ontladingen](https://nos.nl/l/2620735)
   > Er zijn gisteren en vannacht uitzonderlijk veel bliksemflitsen geweest. Tussen zaterdag 02.00 uur en zondag 02.00 uur registreerde het KNMI ruim...
 - [Oud-president Biden haalt in toespraak uit naar Trump: 'Wow, wat een loser'](https://nos.nl/l/2620714)
   > In een toespraak heeft de Amerikaanse oud-president Biden zijn opvolger Trump zwaar bekritiseerd. De 83-jarige Biden noemde zijn politieke rivaal een...
 - [Restauranteigenaar waar bruiloftsfeest in water liep: 'Veertig jaar werk verloren'](https://nos.nl/l/2620706)
   > Al ruim een week staat het leven van restauranteigenaar Martin Bels uit het Twentse Mander op zijn kop. Vorige week vrijdag trad vanwege hevig...
-- [​​​​​​​BBC: Infantino maakte tijdens WK 27 vluchten met privéjet](https://nos.nl/l/2620700)
-  > FIFA-voorzitter Gianni Infantino heeft tijdens de groepsfase van het WK voetbal in Noord-Amerika zeker 27 vluchten gemaakt met een privéjet. Dat...
-- [Corruptiezaken stapelen zich op, partijtop houdt vast aan Spaanse premier](https://nos.nl/l/2620696)
-  > De Spaanse Socialistische Partij (PSOE) van premier Sánchez bevindt zich in zwaar weer. Onderzoeken naar mogelijke corruptie en...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Madonna was jaloers op Kylie Minogue: ‘Zo mooi word ik nooit’](https://www.ad.nl/show/madonna-was-jaloers-op-kylie-minogue-zo-mooi-word-ik-nooit~adbc11af/)
+  > Zelfs de Queen of Pop heeft onzekere momenten in de liefde gekend, zo verklapte Madonna tijdens een interview op de BBC met Graham Norton. Ze blijkt...
+- [Canada slaat toe in extra tijd tegen Zuid-Afrika en kan zich opmaken voor mogelijke strijd met Oranje](https://www.ad.nl/wk-voetbal/canada-slaat-toe-in-extra-tijd-tegen-zuid-afrika-en-kan-zich-opmaken-voor-mogelijke-strijd-met-oranje~a8e6ad45/)
+  > De knock-outfase van het WK gaat van start! Gastland Canada neemt het in de eerste wedstrijd van de zestiende finales op tegen Zuid-Afrika. Volg het...
+- [Defensie stuurt schip met noodhulpmiddelen van Curaçao naar Venezuela](https://www.ad.nl/buitenland/defensie-stuurt-schip-met-noodhulpmiddelen-van-curacao-naar-venezuela~a11d5bb9/)
+  > De Zr.Ms. Groningen gaat vol met hulpmiddelen zoals water, eten en andere hulpgoederen van Curaçao naar het nabijgelegen Venezuela. Naar verwachting...
+- [Eindelijk geen plaknacht meer: kwik daalt naar 17 graden, hét moment om je huis af te laten koelen](https://www.ad.nl/binnenland/eindelijk-geen-plaknacht-meer-kwik-daalt-naar-17-graden-het-moment-om-je-huis-af-te-laten-koelen~a57707aa/)
+  > Na een enorm warme week waarin de temperaturen overdag opliepen tot 39 graden en we ook nog eens te maken kregen met heuse plaknachten, koelt het...
 - [Zeker 1300 mensen in Europa overleden door warmte, volgens WHO-chef: ‘Hittestress een stille moordenaar’](https://www.ad.nl/binnenland/zeker-1300-mensen-in-europa-overleden-door-warmte-volgens-who-chef-hittestress-een-stille-moordenaar~a50680b9/)
   > In een week tijd zijn in Europa 1300 mensen overleden door de hoge temperaturen. Dat laat Tedros Adhanom Ghebreyesus, directeur-generaal van de...
-- [Richard Krajicek ziet zijn ouders niet meer na turbulente jeugd: ‘Ik verwijt ze niets, maar contact is te moeilijk’](https://www.ad.nl/tennis/richard-krajicek-ziet-zijn-ouders-niet-meer-na-turbulente-jeugd-ik-verwijt-ze-niets-maar-contact-is-te-moeilijk~af593c86/)
-  > Richard Krajicek heeft geen contact meer met zijn ouders. Dat laat de voormalig toptennisser dertig jaar na zijn historische titel op Wimbledon weten...
-- [Zuid-Afrika en Canada houden elkaar voorlopig in evenwicht](https://www.ad.nl/wk-voetbal/zuid-afrika-en-canada-houden-elkaar-voorlopig-in-evenwicht~a8e6ad45/)
-  > De knock-outfase van het WK gaat van start! Gastland Canada neemt het in de eerste wedstrijd van de zestiende finales op tegen Zuid-Afrika. Volg het...
-- [De laatste Russische ontwikkelingen zijn gevaarlijk](https://www.ad.nl/binnenland/de-laatste-russische-ontwikkelingen-zijn-gevaarlijk~ab5ba994/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [Kees Tol is blij met zijn haar: ‘Het is veel en dik, voor kaalheid hoef ik niet te vrezen’](https://www.ad.nl/gezond/kees-tol-is-blij-met-zijn-haar-het-is-veel-en-dik-voor-kaalheid-hoef-ik-niet-te-vrezen~af775f71/)
-  > Kees Tol is een man van gewoontes: vroeg naar bed, elke dag hetzelfde looprondje, vaak gezonde afhaalmaaltijden. „Aangezien ik alleen woon en geen...
 
 ### Meest gelezen
 
