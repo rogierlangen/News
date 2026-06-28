@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-06-2026 om 17:17*
+*Laatst bijgewerkt: 28-06-2026 om 19:26*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Precies nu hij verbetering wil zien, kan Max Verstappen weer knokken om de zege: ‘Wel echt een goed teken’](https://www.ad.nl/formule-1/precies-nu-hij-verbetering-wil-zien-kan-max-verstappen-weer-knokken-om-de-zege-wel-echt-een-goed-teken~a3700144/)
-  > In een ‘cruciaal’ weekend richtte Red Bull Racing zich ferm op, met het beste resultaat voor Max Verstappen dit seizoen. Zijn tweede plaats was een...
-- [Waarheid als een koe: doorpakken met stikstof is nu nodig](https://www.ad.nl/commentaar/waarheid-als-een-koe-doorpakken-met-stikstof-is-nu-nodig~a1796389/)
-  > Gaat Nederland eindelijk van het stikstofslot? Landbouwminister Jaimi van Essen belooft dat het in 2028 zover is. Dat zou een zegen zijn voor dit...
-- [Nederlands kampioene Lieke Nooijen geniet van het leven dat ze leeft: ‘Werk superhard, maar plezier is het belangrijkste’](https://www.ad.nl/wielrennen/nederlands-kampioene-lieke-nooijen-geniet-van-het-leven-dat-ze-leeft-werk-superhard-maar-plezier-is-het-belangrijkste~a1f5f091/)
-  > Lieke Nooijen bekroonde bij het NK in Nijmegen haar goede vorm van de laatste maanden met de Nederlandse titel. De 24-jarige renster van Visma-Lease...
-- [Femke Broeder-Bol maakt indruk op 800 meter en nadert record Ellen van Langen tot op zes honderdsten](https://www.ad.nl/andere-sporten/femke-broeder-bol-maakt-indruk-op-800-meter-en-nadert-record-ellen-van-langen-tot-op-zes-honderdsten~a71e47f6/)
-  > Femke Broeder-Bol is met haar tijd van 1.55.60 bij de Diamond League in Parijs het Nederlands record van Ellen van Langen op de 800 meter op zes...
-- [Rotterdam krijgt een ‘achtste wereldwonder’: dit is de man achter het ‘gestoord ambitieuze’ idee](https://www.ad.nl/binnenland/rotterdam-krijgt-een-achtste-wereldwonder-dit-is-de-man-achter-het-gestoord-ambitieuze-idee~abe1a3ad/)
-  > Hij gaat in Rotterdam het ‘achtste wereldwonder’ neerzetten voor honderden miljoenen euro’s. Het ene ontwerp voor het gebouw is nog spectaculairder...
+- [Zeker 1300 mensen in Europa overleden door warmte, volgens WHO-chef: ‘Hittestress een stille moordenaar’](https://www.ad.nl/binnenland/zeker-1300-mensen-in-europa-overleden-door-warmte-volgens-who-chef-hittestress-een-stille-moordenaar~a50680b9/)
+  > In een week tijd zijn in Europa 1300 mensen overleden door de hoge temperaturen. Dat laat Tedros Adhanom Ghebreyesus, directeur-generaal van de...
+- [Richard Krajicek ziet zijn ouders niet meer na turbulente jeugd: ‘Ik verwijt ze niets, maar contact is te moeilijk’](https://www.ad.nl/tennis/richard-krajicek-ziet-zijn-ouders-niet-meer-na-turbulente-jeugd-ik-verwijt-ze-niets-maar-contact-is-te-moeilijk~af593c86/)
+  > Richard Krajicek heeft geen contact meer met zijn ouders. Dat laat de voormalig toptennisser dertig jaar na zijn historische titel op Wimbledon weten...
+- [Zuid-Afrika en Canada houden elkaar voorlopig in evenwicht](https://www.ad.nl/wk-voetbal/zuid-afrika-en-canada-houden-elkaar-voorlopig-in-evenwicht~a8e6ad45/)
+  > De knock-outfase van het WK gaat van start! Gastland Canada neemt het in de eerste wedstrijd van de zestiende finales op tegen Zuid-Afrika. Volg het...
+- [De laatste Russische ontwikkelingen zijn gevaarlijk](https://www.ad.nl/binnenland/de-laatste-russische-ontwikkelingen-zijn-gevaarlijk~ab5ba994/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Kees Tol is blij met zijn haar: ‘Het is veel en dik, voor kaalheid hoef ik niet te vrezen’](https://www.ad.nl/gezond/kees-tol-is-blij-met-zijn-haar-het-is-veel-en-dik-voor-kaalheid-hoef-ik-niet-te-vrezen~af775f71/)
+  > Kees Tol is een man van gewoontes: vroeg naar bed, elke dag hetzelfde looprondje, vaak gezonde afhaalmaaltijden. „Aangezien ik alleen woon en geen...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Houdt het stikstofpakket stand bij de rechter? Vier vragen over de kabinetsplannen](https://fd.nl/politiek/1601464/houdt-het-stikstofpakket-stand-bij-de-rechter-vier-vragen-over-de-kabinetsplannen)
-  > Het kabinet presenteerde een omvangrijk stikstofpakket. Of de plannen de natuur herstellen en ertoe leiden dat provincies natuurvergunningen kunnen...
+- [Alcoholvrije vrijmibo is er al, maar bedrijven zijn nog niet overstag](https://fd.nl/bedrijfsleven/1601512/alcoholvrije-vrijmibo-is-er-al-maar-bedrijven-zijn-nog-niet-overstag)
+  > Geen bier en wijn op de werkborrel meer, of een alcoholvrij personeelsfeest? Evenementenbureaus bieden het al aan, maar de meeste bedrijven – en hun...
+- [Aantal aanvragen voor Spaans generaal pardon fors hoger dan verwacht](https://fd.nl/samenleving/1601411/aantal-aanvragen-voor-spaans-generaal-pardon-fors-hoger-dan-verwacht-europa-klaagt-over-regeling)
+  > De Spaanse generaalpardonregeling loopt dinsdag af. Europese leiders vrezen voor een ‘aantrekkende werking’.
+- [De echte les van Vesteda](https://fd.nl/opinie/1601403/de-echte-les-van-vesteda)
+  > Het punt is niet hoe een ramp voor de huursector is afgewend, maar dat bekende problemen pas worden opgelost als het bijna te laat is.
+- [Houdt stikstofpakket stand bij de rechter? Vier vragen over kabinetsplannen](https://fd.nl/politiek/1601464/houdt-het-stikstofpakket-stand-bij-de-rechter-vier-vragen-over-de-kabinetsplannen)
+  > Het kabinet presenteerde vrijdag een omvangrijk stikstofpakket. Of de plannen de natuur herstellen en ertoe leiden dat provincies natuurvergunningen...
 - [Oekraïne treft Russische raffinaderijen](https://fd.nl/politiek/1601568/oekraine-treft-russische-raffinaderijen)
   > Aanvallen volgen op aankondiging van een veertigdaagse campagne om Rusland ervan te overtuigen de oorlog te stoppen.
-- [Jamie Dimon werkt aan zijn opvolging bij JPMorganChase](https://fd.nl/financiele-markten/1601516/jamie-dimon-werkt-aan-zijn-opvolging-bij-jpmorgan)
-  > De baas van JPMorganChase wil voorlopig nog niet weg. Daarom zijn er – wederom – nieuwe opvolgers.
-- [Protesten tegen corruptie nopen Servische president tot aftreden](https://fd.nl/politiek/1601461/protesten-tegen-corruptie-nopen-servische-president-tot-aftreden)
-  > Zaterdag kondigde Aleksandar Vucić aan dat hij binnen enkele weken zal aftreden.
-- [Google draait AI-kraan dicht voor grootgebruiker Meta](https://fd.nl/bedrijfsleven/1601460/google-draait-ai-kraan-dicht-voor-grootgebruiker-meta)
-  > Het socialemediabedrijf Meta kan voor zijn beveiliging niet langer leunen op AI-dienstverlening van Alphabet.
 
 ### Meest gelezen
 
