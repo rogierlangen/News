@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-06-2026 om 13:56*
+*Laatst bijgewerkt: 28-06-2026 om 15:21*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Oud-president Biden haalt in toespraak uit naar Trump: 'Wow, wat een loser'](https://nos.nl/l/2620714)
+  > In een toespraak heeft de Amerikaanse oud-president Biden zijn opvolger Trump zwaar bekritiseerd. De 83-jarige Biden noemde zijn politieke rivaal een...
 - [Restauranteigenaar waar bruiloftsfeest in water liep: 'Veertig jaar werk verloren'](https://nos.nl/l/2620706)
   > Al ruim een week staat het leven van restauranteigenaar Martin Bels uit het Twentse Mander op zijn kop. Vorige week vrijdag trad vanwege hevig...
 - [​​​​​​​BBC: Infantino maakte tijdens WK 27 vluchten met privéjet](https://nos.nl/l/2620700)
@@ -16,8 +18,6 @@
   > De Spaanse Socialistische Partij (PSOE) van premier Sánchez bevindt zich in zwaar weer. Onderzoeken naar mogelijke corruptie en...
 - [Vliegtuig vol parachutisten stort neer in Frankrijk: elf doden](https://nos.nl/l/2620694)
   > Bij de noordelijke Franse stad Nancy is een klein vliegtuig met parachutespringers neergestort. Alle elf inzittenden zijn daarbij omgekomen. Het gaat...
-- [Russische ex-militair en blogger opgepakt na kritiek op leger en oproep aan Poetin](https://nos.nl/l/2620687)
-  > Een Russische ex-militair en blogger is vermoedelijk opgepakt nadat hij president Poetin in een veelbekeken video had opgeroepen hem live op...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Wilco Kelderman, de beste renner die nooit won, doorbreekt blokkade met NK-zege: ‘Toen ik jong was, zat het me in de weg’](https://www.ad.nl/wielrennen/wilco-kelderman-de-beste-renner-die-nooit-won-doorbreekt-blokkade-met-nk-zege-toen-ik-jong-was-zat-het-me-in-de-weg~a15e3269/)
-  > Wilco Kelderman, de beste renner ter wereld die nooit won, heeft bij het NK in Nijmegen zijn blokkade doorbroken. Na zijn glorieuze overwinning bleef...
-- [Patty geniet van vakantie met groene snor en Freek hangt de diva uit](https://www.ad.nl/show/patty-geniet-van-vakantie-met-groene-snor-en-freek-hangt-de-diva-uit~a9dd8477/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [‘Tonnen’ aan schadeclaims na nacht vol hagel- en brandschade: ‘Hagelstenen zo groot als je handpalm’](https://www.ad.nl/economie/tonnen-aan-schadeclaims-na-nacht-vol-hagel-en-brandschade-hagelstenen-zo-groot-als-je-handpalm~a1904072/)
-  > Verzekeraars hebben voor ‘tonnen’ aan schadeclaims binnengekregen na de storm van afgelopen nacht. Zij kregen al honderden meldingen. Niets werd...
-- [Indrukwekkend veel bliksem geteld tijdens noodweer in Nederland: 301.187 ontladingen](https://www.ad.nl/binnenland/indrukwekkend-veel-bliksem-geteld-tijdens-noodweer-in-nederland-301-187-ontladingen~a0424e0c/)
-  > Tijdens het noodweer van zaterdagavond- en nacht zijn honderdduizenden bliksemontladingen geteld. Unieke hoeveelheden, zegt weerman Berend van...
-- [Groep Franse verpleegkundigen die voor het eerst ging parachutespringen komt om als vliegtuigje neerstort](https://www.ad.nl/buitenland/groep-franse-verpleegkundigen-die-voor-het-eerst-ging-parachutespringen-komt-om-als-vliegtuigje-neerstort~a7a1d74b/)
-  > In een buitenwijk van Nancy in Frankrijk is kort na het opstijgen een vliegtuigje neergestort, waarbij volgens de autoriteiten elf doden zijn...
+- [‘Code rood-baby’ Dorus op vluchtstrook geboren: ‘Hulp van omwonenden was heel bijzonder’](https://www.ad.nl/binnenland/code-rood-baby-dorus-op-vluchtstrook-geboren-hulp-van-omwonenden-was-heel-bijzonder~abd8d1ec/)
+  > De zon brandde ongenadig en op de vluchtstrook van de N44 bij Wassenaar smolt het asfalt bijna. In deze extreme hitte en op deze bijzondere plek zag...
+- [Adil (34) juicht tijdens zinderend WK-duel voor Nederland én Marokko: ‘Maakt niet uit wie er wint’](https://www.ad.nl/binnenland/adil-34-juicht-tijdens-zinderend-wk-duel-voor-nederland-en-marokko-maakt-niet-uit-wie-er-wint~a1d8feca/)
+  > In de nacht van maandag op dinsdag treffen Nederland en Marokko elkaar voor een zinderende WK-voetbalwedstrijd. Voor Gouwenaar Adil Akanioui (34),...
+- [LIVE WK voetbal | Van euforie naar kater bij Iran, bondscoach Portugal wil WK winnen voor Diogo Jota](https://www.ad.nl/wk-voetbal/live-wk-voetbal-van-euforie-naar-kater-bij-iran-bondscoach-portugal-wil-wk-winnen-voor-diogo-jota~a2d5cab9/)
+  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
+- [IJzersterke Max Verstappen komt net tekort voor eerste zege, George Russell houdt stand in meeslepende race](https://www.ad.nl/formule-1/ijzersterke-max-verstappen-komt-net-tekort-voor-eerste-zege-george-russell-houdt-stand-in-meeslepende-race~a6403db9/)
+  > Max Verstappen wilde verbetering bij Red Bull Racing en die kwam er, op de eigen Red Bull Ring. Zijn seizoensstart was bij vlagen rampzalig, maar in...
+- [Poetin zegt dat Rusland moeilijke tijd doormaakt: ‘Onder ongekende druk van een westerse elite’](https://www.ad.nl/buitenland/poetin-zegt-dat-rusland-moeilijke-tijd-doormaakt-onder-ongekende-druk-van-een-westerse-elite~adfb97be/)
+  > De Russische president Vladimir Poetin heeft op een partijcongres van Verenigd Rusland gezegd dat het land een moeilijke tijd doormaakt. Maar die...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Protesten tegen corruptie nopen Servische president tot aftreden](https://fd.nl/politiek/1601461/protesten-tegen-corruptie-nopen-servische-president-tot-aftreden)
+  > Zaterdag kondigde Aleksandar Vucić aan dat hij binnen enkele weken zal aftreden.
+- [Google draait AI-kraan dicht voor grootgebruiker Meta](https://fd.nl/bedrijfsleven/1601460/google-draait-ai-kraan-dicht-voor-grootgebruiker-meta)
+  > Het socialemediabedrijf Meta kan voor zijn beveiliging niet langer leunen op AI-dienstverlening van Alphabet.
+- [Bridgen met je moeder](https://fd.nl/opinie/1601566/bridgen-met-je-moeder)
+  > Alle beleggers kunnen in theorie nog steeds op hetzelfde moment over dezelfde informatie beschikken. Alleen bedrijven met de beste AI-modellen en de...
 - [Miljardenaanbesteding grondafhandeling Schiphol nadert ontknoping](https://fd.nl/bedrijfsleven/1601412/miljardenaanbesteding-grondafhandeling-schiphol-nadert-ontknoping)
   > Schiphol maakt dinsdag bekend welke drie partijen de komende zeven jaar verantwoordelijk zijn voor onder meer het in- en uitladen van de koffers. Er...
 - [Europa heeft een sterke troefkaart in handen tegen Trump](https://fd.nl/financiele-markten/1601388/europa-heeft-een-sterke-troefkaart-in-handen-tegen-trump)
   > Zelfs de Amerikaanse kredietbeoordelaars vinden treasuries niet meer goudgerand, dus waarom zou Europa ze nog wel als risicoloos beschouwen?
-- [Vergeldingsaanvallen zetten akkoord tussen Iran en VS onder druk](https://fd.nl/politiek/1601459/vergeldingsaanvallen-zetten-akkoord-tussen-iran-en-vs-onder-druk)
-  > Bijna het hele weekend hebben de Verenigde Staten en Iran elkaar bestookt met bombardementen.
-- [Netbeheerders overstelpt met aanvragen van huishoudens en woningbouwers vlak voor deadline](https://fd.nl/bedrijfsleven/1601404/netbeheerders-overstelpt-met-aanvragen-van-huishoudens-en-woningbouwers-vlak-voor-deadline)
-  > Vanaf 1 juli gaan nieuwe regels in, waardoor huishoudens en woningbouwprojecten op een lange wachtlijst kunnen komen voor een zwaardere aansluiting.
-- [Drie scenario’s voor een onzekere economische toekomst](https://fd.nl/samenleving/1598305/drie-scenarios-voor-een-onzekere-economische-toekomst)
-  > Welke krachten duwen en trekken de komende jaren aan de wereldeconomie? Het FD polst deskundigen over de gevolgen van deglobalisering, AI-revolutie...
 
 ### Meest gelezen
 
