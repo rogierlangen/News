@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-06-2026 om 21:06*
+*Laatst bijgewerkt: 28-06-2026 om 23:07*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Trainer Henk ten Cate was getuige van mishandeling Sylvia Geersen: geslagen en geschopt](https://www.ad.nl/show/trainer-henk-ten-cate-was-getuige-van-mishandeling-sylvia-geersen-geslagen-en-geschopt~afd4a0cc/)
+  > Sylvia Geersen is in de nacht van zaterdag op zondag het slachtoffer geworden van een mishandeling. Dat heeft haar management bevestigd nadat hier...
+- [Overleden persoon aangetroffen op strand van Texel, politie doet onderzoek](https://www.ad.nl/binnenland/overleden-persoon-aangetroffen-op-strand-van-texel-politie-doet-onderzoek~a85a449a/)
+  > Op het strand van Texel is zondagavond een overleden persoon aangetroffen ter hoogte van De Koog. Het lichaam werd gevonden door een voorbijganger...
+- [Speelschema WK | Wekker zetten voor Oranje: zo laat is het duel met Marokko](https://www.ad.nl/voetbal/speelschema-wk-wekker-zetten-voor-oranje-zo-laat-is-het-duel-met-marokko~ad85207c/)
+  > Na de groepsfase strijden het Nederlands elftal en nog 31 andere landen in Canada, Mexico en de Verenigde Staten om de wereldtitel. Tot en met zondag...
+- [Canada slaat toe in extra tijd tegen Zuid-Afrika en kan zich opmaken voor mogelijke strijd met Oranje](https://www.ad.nl/wk-voetbal/canada-slaat-toe-in-extra-tijd-tegen-zuid-afrika-en-kan-zich-opmaken-voor-mogelijke-strijd-met-oranje~a8e6ad45/)
+  > Canada heeft zich geplaatst voor de achtste finales van het WK voetbal door in een weinig verheffend duel af te rekenen met Zuid-Afrika. Middenvelder...
 - [Madonna was jaloers op Kylie Minogue: ‘Zo mooi word ik nooit’](https://www.ad.nl/show/madonna-was-jaloers-op-kylie-minogue-zo-mooi-word-ik-nooit~adbc11af/)
   > Zelfs de Queen of Pop heeft onzekere momenten in de liefde gekend, zo verklapte Madonna tijdens een interview op de BBC met Graham Norton. Ze blijkt...
-- [Canada slaat toe in extra tijd tegen Zuid-Afrika en kan zich opmaken voor mogelijke strijd met Oranje](https://www.ad.nl/wk-voetbal/canada-slaat-toe-in-extra-tijd-tegen-zuid-afrika-en-kan-zich-opmaken-voor-mogelijke-strijd-met-oranje~a8e6ad45/)
-  > De knock-outfase van het WK gaat van start! Gastland Canada neemt het in de eerste wedstrijd van de zestiende finales op tegen Zuid-Afrika. Volg het...
-- [Defensie stuurt schip met noodhulpmiddelen van Curaçao naar Venezuela](https://www.ad.nl/buitenland/defensie-stuurt-schip-met-noodhulpmiddelen-van-curacao-naar-venezuela~a11d5bb9/)
-  > De Zr.Ms. Groningen gaat vol met hulpmiddelen zoals water, eten en andere hulpgoederen van Curaçao naar het nabijgelegen Venezuela. Naar verwachting...
-- [Eindelijk geen plaknacht meer: kwik daalt naar 17 graden, hét moment om je huis af te laten koelen](https://www.ad.nl/binnenland/eindelijk-geen-plaknacht-meer-kwik-daalt-naar-17-graden-het-moment-om-je-huis-af-te-laten-koelen~a57707aa/)
-  > Na een enorm warme week waarin de temperaturen overdag opliepen tot 39 graden en we ook nog eens te maken kregen met heuse plaknachten, koelt het...
-- [Zeker 1300 mensen in Europa overleden door warmte, volgens WHO-chef: ‘Hittestress een stille moordenaar’](https://www.ad.nl/binnenland/zeker-1300-mensen-in-europa-overleden-door-warmte-volgens-who-chef-hittestress-een-stille-moordenaar~a50680b9/)
-  > In een week tijd zijn in Europa 1300 mensen overleden door de hoge temperaturen. Dat laat Tedros Adhanom Ghebreyesus, directeur-generaal van de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Alcoholvrije vrijmibo is er al, maar bedrijven zijn nog niet overstag](https://fd.nl/bedrijfsleven/1601512/alcoholvrije-vrijmibo-is-er-al-maar-bedrijven-zijn-nog-niet-overstag)
-  > Geen bier en wijn op de werkborrel meer, of een alcoholvrij personeelsfeest? Evenementenbureaus bieden het al aan, maar de meeste bedrijven – en hun...
-- [Aantal aanvragen voor Spaans generaal pardon fors hoger dan verwacht](https://fd.nl/samenleving/1601411/aantal-aanvragen-voor-spaans-generaal-pardon-fors-hoger-dan-verwacht-europa-klaagt-over-regeling)
-  > De Spaanse generaalpardonregeling loopt dinsdag af. Europese leiders vrezen voor een ‘aantrekkende werking’.
-- [De echte les van Vesteda](https://fd.nl/opinie/1601403/de-echte-les-van-vesteda)
-  > Het punt is niet hoe een ramp voor de huursector is afgewend, maar dat bekende problemen pas worden opgelost als het bijna te laat is.
-- [Houdt stikstofpakket stand bij de rechter? Vier vragen over kabinetsplannen](https://fd.nl/politiek/1601464/houdt-het-stikstofpakket-stand-bij-de-rechter-vier-vragen-over-de-kabinetsplannen)
-  > Het kabinet presenteerde vrijdag een omvangrijk stikstofpakket. Of de plannen de natuur herstellen en ertoe leiden dat provincies natuurvergunningen...
-- [Oekraïne treft Russische raffinaderijen](https://fd.nl/politiek/1601568/oekraine-treft-russische-raffinaderijen)
-  > Aanvallen volgen op aankondiging van een veertigdaagse campagne om Rusland ervan te overtuigen de oorlog te stoppen.
+- [Nederland voedt de wereld niet](https://fd.nl/opinie/1601567/nederland-voedt-de-wereld-niet)
+  > Gemeten in eiwitten en energie heeft onze landbouw een groot tekort op de handelsbalans: de wereld voedt ons, en dan vooral ons vee.
+- [Advocatenkantoren overvallen door fors stijgende AI-prijzen](https://fd.nl/financiele-markten/1601413/advocatenkantoren-overvallen-door-fors-stijgende-ai-prijzen)
+  > De hogere kosten van juridische modellen bezorgen advocatenkantoren hoofdbrekens. ‘De kantoren die AI zagen als een eenvoudig middel om meer geld te...
+- [CDA wil met ‘advocaat-reservisten’ het tekort aan sociaal advocaten tegengaan](https://fd.nl/politiek/1601402/cda-wil-met-advocaat-reservisten-het-tekort-aan-sociaal-advocaten-tegengaan)
+  > Het aantal sociaal advocaten neemt al jaren af. Regeringspartij CDA wil dat ‘reservisten’ bij commerciële kantoren op de Zuidas en ver daarbuiten...
+- [Het schandaal van de afstandsmoeders](https://fd.nl/opinie/1601235/het-schandaal-van-de-afstandsmoeders)
+  > Een zwangerschap werd gezien als een probleem dat zo snel mogelijk uit het zicht moest verdwijnen. De kinderen, de vaders en de moeders hadden geen...
+- [Personalia maandag 29 juni](https://fd.nl/bedrijfsleven/1601569/personalia-maandag-29-juni)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
