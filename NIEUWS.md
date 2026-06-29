@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-06-2026 om 09:50*
+*Laatst bijgewerkt: 29-06-2026 om 14:07*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [De grootste NL-fan in Monterrey is de gouverneur van deelstaat Nuevo León](https://nos.nl/l/2620814)
-  > Tientallen mensen met oranje shirtjes hebben zich verzameld aan de grens tussen Mexico en de Verenigde Staten. Met vlaggen met daarop een oranje...
-- [Meer vergiftigingen gemeld door afslankmiddelen, zorgen om krachtige variant](https://nos.nl/l/2620805)
-  > Het aantal vergiftigingsmeldingen van injecteerbare afslankmiddelen is in een jaar tijd bijna verdubbeld. In 2024 trokken 76 hulpverleners aan de bel...
-- [Jetten belooft zwarte gemeenschap vervolg op excuses voor slavernijverleden](https://nos.nl/l/2620803)
-  > Drie jaar na de excuses voor het slavernijverleden is er nog niet genoeg gebeurd. Met die boodschap klopten zo'n veertig vertegenwoordigers van de...
-- [Nederlanders zoeken op plek waar mogelijk 5 Venezolanen nog in leven zijn](https://nos.nl/l/2620799)
-  > Vijf dagen na de twee verwoestende aardbevingen in Venezuela is de hoop op de redding van mensen die vastzitten onder het puin nog altijd niet...
-- [Koeien, varkens en kippen scheiden minder stikstof uit, net onder plafond](https://nos.nl/l/2620789)
-  > In 2025 hebben koeien, varkens en kippen in Nederland twee procent minder stikstof uitgescheiden dan een jaar eerder. Dat blijkt uit cijfers van het...
+- [Defensie wil koers veranderen: 'Niet de grootte, maar wendbaarheid telt'](https://nos.nl/l/2620853)
+  > Waar wil defensie al het geld dat het er de komende jaren bij krijgt aan uitgeven? Omringd door wapensystemen presenteerden minister Yesilgöz,...
+- [Burnham wil als premier grotere rol lokale overheden: 'In Manchester gelukt'](https://nos.nl/l/2620846)
+  > "Het Verenigd Koninkrijk heeft behoefte aan een nieuwe manier van besturen. We moeten de politiek veranderen." Dat zei Labour-parlementariër Andy...
+- [Podcast De Dag: operatie de Krim (en hoe Oekraïne de druk op Poetin opvoert)](https://nos.nl/l/2620842)
+  > President Poetin erkent openlijk dat Rusland het zwaar heeft als gevolg van Oekraïense aanvallen. Dit weekend werd op de illegaal geannexeerde Krim...
+- [Districtchef politie Zeeland op non-actief gesteld](https://nos.nl/l/2620840)
+  > Districtchef Tim de Kraker van de politie Zeeland is op non-actief gesteld. Dat bevestigt de politie na vragen van Omroep Zeeland. Er loopt een...
+- [Vijf mensen doodgeschoten bij Duitse jeugdinstelling](https://nos.nl/l/2620835)
+  > In het Duitse stadje Stade zijn vijf doden gevallen bij een schietincident. Dat meldt de politiewoordvoerder aan Duitse media.
+        Het...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Wimbledon | Bereikt Botic van de Zandschulp ten koste van Amerikaan tweede ronde van Wimbledon?](https://www.ad.nl/tennis/live-wimbledon-bereikt-botic-van-de-zandschulp-ten-koste-van-amerikaan-tweede-ronde-van-wimbledon~a5d7dcea/)
-  > Botic van de Zandschulp komt vandaag in actie tijdens de eerste partij van Wimbledon. Hij neemt het op tegen de Amerikaan Aleksandar Kovacevic. Volg...
-- [Klinkende overwinning voor ontslagen directeur Fotomuseum: eerherstel en 400.000 euro mee](https://www.ad.nl/binnenland/klinkende-overwinning-voor-ontslagen-directeur-fotomuseum-eerherstel-en-400-000-euro-mee~a4840eb7/)
-  > De vorig jaar ontslagen directeur van het Fotomuseum, Birgit Donker, heeft een klinkende overwinning behaald in de rechtbank. Haar ontslag was...
-- [Jongen van brug geduwd, komt vervolgens terecht op rondvaartboot met passagiers](https://www.ad.nl/binnenland/jongen-van-brug-geduwd-komt-vervolgens-terecht-op-rondvaartboot-met-passagiers~a56342ee/)
-  > Een jongen is in hartje Amsterdam door een voorbijganger van de Blauwbrug geduwd en hard op een passerende rondvaartboot geklapt. Wonder boven wonder...
-- [Pogacar met Del Toro op jacht naar vijfde zege Tour: ‘Omringd ben door een geweldige groep’](https://www.ad.nl/tour-de-france/pogacar-met-del-toro-op-jacht-naar-vijfde-zege-tour-omringd-ben-door-een-geweldige-groep~ab239070/)
-  > Tadej Pogacar krijgt in de jacht op de vijfde overwinning in de Tour de France de hulp van de Mexicaan Isaac Del Toro. UAE Team Emirates heeft een...
-- [Femke Halsema: vrije discussie over coronabeleid was niet mogelijk](https://www.ad.nl/politiek/femke-halsema-vrije-discussie-over-coronabeleid-was-niet-mogelijk~aa9cbb7a/)
-  > Een vrije discussie over de te nemen maatregelen tegen het coronavirus was eigenlijk niet mogelijk. Daarvoor was de positie van het Outbreak...
+- [Duizenden nieuwe huisnummers in Nederland voor huizen die (nog) niet bestaan: dit is waarom](https://www.ad.nl/zwolle/duizenden-nieuwe-huisnummers-in-nederland-voor-huizen-die-nog-niet-bestaan-dit-is-waarom~a74c78b4/)
+  > Gemeenten in Nederland maken razendsnel duizenden nieuwe huisnummers aan voor huizen die nog niet bestaan. De reden: een belangrijke verandering...
+- [‘Heel dapper van oud Oranje-international Ibrahim Affelay dat hij Marokko support’](https://www.ad.nl/binnenland/heel-dapper-van-oud-oranje-international-ibrahim-affelay-dat-hij-marokko-support~a920db01/)
+  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag: Als Marokko wint van Nederland, dan ben ik de rest van het toernooi voor...
+- [Bondscoach Zuid-Korea met de dood bedreigd na uitschakeling op WK, grote politie-inzet in Seoul](https://www.ad.nl/wk-voetbal/bondscoach-zuid-korea-met-de-dood-bedreigd-na-uitschakeling-op-wk-grote-politie-inzet-in-seoul~ab398b0b/)
+  > De politie heeft verscherpte veiligheidsmaatregelen aangekondigd bij de terugkeer van het nationale voetbalelftal van Zuid-Korea, dat op het WK in de...
+- [Mercedes-Benz VLE: ruimtemonopolie](https://www.ad.nl/auto/mercedes-benz-vle-ruimtemonopolie~a8f6b47b/)
+  > De Mercedes-Benz V-klasse heeft in Europa bijna een monopoliepositie als het om luxe personenvervoer gaat. Mercedes maakt daar handig gebruik van...
+- [Manchester City maakt opvolger Guardiola bekend, medische keuring De Vrij en Lewandowski naar MLS](https://www.ad.nl/voetbal/manchester-city-maakt-opvolger-guardiola-bekend-medische-keuring-de-vrij-en-lewandowski-naar-mls~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [De Deense les begint niet in Kopenhagen, maar in Den Haag](https://fd.nl/opinie/1601414/de-deense-les-begint-niet-in-kopenhagen-maar-in-den-haag)
-  > Nederland kan veel van Denemarken leren, maar niet door simpelweg Deense oplossingen te kopiëren. De noodzakelijke cultuuromslag zullen we zelf...
-- [Brusselse omnibus komt niet door de SER‑keuring](https://fd.nl/politiek/1601419/brusselse-omnibus-komt-niet-door-de-serkeuring)
-  > De nieuwste editie van de Europa-nieuwsbrief van het FD belicht kritiek van de SER op Brussel; kritiek van kardinalen op Brussel; en kritiek van...
-- [Klokkenluider monddood gemaakt](https://fd.nl/samenleving/1601679/klokkenluider-monddood-gemaakt)
-  > Femmetje de Wind heeft als advocaat een cliënt die in botsing is gekomen met het systeem, een klokkenluider die ten onrechte het zwijgen werd...
-- [Sandra Palmen wil de toeslagenaffaire afronden, maar het systeem werkt tegen](https://fd.nl/samenleving/1601510/sandra-palmen-wil-de-toeslagenaffaire-afronden-maar-het-systeem-werkt-tegen)
-  > Als staatssecretaris Herstel Toeslagen, is het haar missie dat alle gedupeerde ouders in 2027 financieel gecompenseerd zijn. Maar of die operatie...
-- [Lagere omzet voor Just Eat Takeaway](https://fd.nl/tech-en-innovatie/1601677/lagere-omzet-voor-just-eat-takeaway)
-  > De nieuwe eigenaar Prosus hoopt de Amsterdamse maaltijdbezorger dit jaar weer te laten groeien. Kunstmatige intelligentie moet daaraan bijdragen.
+- [Rocket Lab daagt SpaceX uit met grote overname](https://fd.nl/tech-en-innovatie/1601615/rocket-lab-daagt-spacex-uit-met-grote-overname)
+  > De Californische onderneming koopt voor $8,5 mrd Iridium Communications om zo te kunnen concurreren met Starlink, de enige winstgevende activiteit...
+- [Belgisch mijnbedrijf Lhoist verkoopt Amerikaanse tak voor $13,5 mrd](https://fd.nl/bedrijfsleven/1601701/belgisch-mijnbedrijf-lhoist-verkoopt-amerikaanse-tak-voor-13-5-mrd)
+  > Met een minderheidsaandeel van 15% blijft de familie Berghmans betrokken bij het kalksteenbedrijf uit Texas.
+- [‘Nederland heeft minder ruimte om zelf over exportrelatie met China te beslissen’](https://fd.nl/politiek/1601694/nederland-heeft-minder-ruimte-om-zelf-over-exportrelatie-met-china-te-beslissen)
+  > Den Haag loopt op eieren aan de vooravond van een gevoelige handelsmissie naar China. Nederland tekende de Amerikaanse chipalliantie Pax Silica, maar...
+- [Airbus ontvangt recordlening van €3 mrd van de Europese Investeringsbank](https://fd.nl/bedrijfsleven/1601610/airbus-ontvangt-recordlening-van-3-mrd-van-de-europese-investeringsbank)
+  > Met het geld gaat de vliegtuigbouwer zijn onderzoeks- en ontwikkelingsactiviteiten in Frankrijk, Duitsland en Spanje uitbreiden.
+- [British American Tobacco ontslaat 9000 personeelsleden](https://fd.nl/bedrijfsleven/1601612/british-american-tobacco-ontslaat-9000-personeelsleden)
+  > Eerder dit jaar kondigde de sigarettenfabrikant al aan te willen bezuinigen door digitalisering en het gebruik van AI.
 
 ### Meest gelezen
 
