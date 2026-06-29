@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-06-2026 om 23:07*
+*Laatst bijgewerkt: 29-06-2026 om 04:20*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Nederlands schip met noodhulp in Venezuela](https://nos.nl/l/2620753)
-  > Een Nederlands marineschip is naar Venezuela gevaren om noodhulp te verlenen in het door aardbevingen getroffen land. De Zr. Ms. Groningen was al...
-- [Poetin erkent dat Oekraïense aanvallen brandstoftekorten veroorzaken](https://nos.nl/l/2620751)
-  > Rusland kampt met grote brandstoftekorten door de voortdurende Oekraïense aanvallen op onder meer Russische olieraffinaderijen. In bijna alle regio's...
-- [Onweer was van enorme omvang, meer dan 300.000 ontladingen](https://nos.nl/l/2620735)
-  > Er zijn gisteren en vannacht uitzonderlijk veel bliksemflitsen geweest. Tussen zaterdag 02.00 uur en zondag 02.00 uur registreerde het KNMI ruim...
-- [Oud-president Biden haalt in toespraak uit naar Trump: 'Wow, wat een loser'](https://nos.nl/l/2620714)
-  > In een toespraak heeft de Amerikaanse oud-president Biden zijn opvolger Trump zwaar bekritiseerd. De 83-jarige Biden noemde zijn politieke rivaal een...
-- [Restauranteigenaar waar bruiloftsfeest in water liep: 'Veertig jaar werk verloren'](https://nos.nl/l/2620706)
-  > Al ruim een week staat het leven van restauranteigenaar Martin Bels uit het Twentse Mander op zijn kop. Vorige week vrijdag trad vanwege hevig...
+- [Steeds vaker hoge dwangsommen voor minderjarigen, effect blijft onduidelijk](https://nos.nl/l/2620775)
+  > Gemeenten leggen steeds vaker dwangsommen van duizenden euro's op aan minderjarigen die een misdrijf hebben gepleegd. Met deze 'als-dan-boetes'...
+- [Kabinet wil psychische mishandeling en dwingende controle strafbaar maken](https://nos.nl/l/2620774)
+  > Het kabinet wil dwingende controle en psychische mishandeling strafbaar maken door die zaken expliciet in de wet op te nemen. Het idee is dat daders...
+- [Tientallen doden bij Pakistaanse aanvallen in Afghaans grensgebied](https://nos.nl/l/2620769)
+  > Pakistan heeft opnieuw doelen aangevallen in buurland Afghanistan. Volgens de Pakistaanse minister van Informatie ging het om gerichte aanvallen in...
+- [Belgisch museum gratis toegankelijk omdat stinkende 'penisplant' in bloei staat](https://nos.nl/l/2620768)
+  > Het museum van de Universiteit van Gent is vandaag gratis en extra lang open, omdat sinds gistermiddag een bijzondere plant in bloei staat. Het gaat...
+- [Amerikaanse media: VS en Iran staken aanvallen, gesprekken gaan door](https://nos.nl/l/2620766)
+  > De VS en Iran hebben afgesproken om de aanvallen op elkaar voorlopig te staken. Dat melden nieuwssite Axios en persbureau Reuters op basis van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Trainer Henk ten Cate was getuige van mishandeling Sylvia Geersen: geslagen en geschopt](https://www.ad.nl/show/trainer-henk-ten-cate-was-getuige-van-mishandeling-sylvia-geersen-geslagen-en-geschopt~afd4a0cc/)
-  > Sylvia Geersen is in de nacht van zaterdag op zondag het slachtoffer geworden van een mishandeling. Dat heeft haar management bevestigd nadat hier...
-- [Overleden persoon aangetroffen op strand van Texel, politie doet onderzoek](https://www.ad.nl/binnenland/overleden-persoon-aangetroffen-op-strand-van-texel-politie-doet-onderzoek~a85a449a/)
-  > Op het strand van Texel is zondagavond een overleden persoon aangetroffen ter hoogte van De Koog. Het lichaam werd gevonden door een voorbijganger...
-- [Speelschema WK | Wekker zetten voor Oranje: zo laat is het duel met Marokko](https://www.ad.nl/voetbal/speelschema-wk-wekker-zetten-voor-oranje-zo-laat-is-het-duel-met-marokko~ad85207c/)
-  > Na de groepsfase strijden het Nederlands elftal en nog 31 andere landen in Canada, Mexico en de Verenigde Staten om de wereldtitel. Tot en met zondag...
-- [Canada slaat toe in extra tijd tegen Zuid-Afrika en kan zich opmaken voor mogelijke strijd met Oranje](https://www.ad.nl/wk-voetbal/canada-slaat-toe-in-extra-tijd-tegen-zuid-afrika-en-kan-zich-opmaken-voor-mogelijke-strijd-met-oranje~a8e6ad45/)
-  > Canada heeft zich geplaatst voor de achtste finales van het WK voetbal door in een weinig verheffend duel af te rekenen met Zuid-Afrika. Middenvelder...
-- [Madonna was jaloers op Kylie Minogue: ‘Zo mooi word ik nooit’](https://www.ad.nl/show/madonna-was-jaloers-op-kylie-minogue-zo-mooi-word-ik-nooit~adbc11af/)
-  > Zelfs de Queen of Pop heeft onzekere momenten in de liefde gekend, zo verklapte Madonna tijdens een interview op de BBC met Graham Norton. Ze blijkt...
+- [Waterstofauto vaak na 15 jaar total loss door deze reden: einde van tijdperk](https://www.ad.nl/auto/waterstofauto-vaak-na-15-jaar-total-loss-door-deze-reden-einde-van-tijdperk~ade27737/)
+  > Autofabrikanten investeerden de afgelopen twintig jaar miljarden in waterstofauto’s, maar een echte doorbraak bleef uit. Nu ontstaat een nieuw...
+- [De goedkoopste plug-inhybride van Nederland is ook zuinig op benzine](https://www.ad.nl/auto/de-goedkoopste-plug-inhybride-van-nederland-is-ook-zuinig-op-benzine~a265c066/)
+  > Bij de compacte auto’s zijn stekkerloze hybrides en volledig elektrische auto’s inmiddels heel gewoon. Maar een plug-inhybride was er nog niet. Tot...
+- [De Vrij vandaag medisch gekeurd in Griekenland, Lewandowski verkast naar MLS](https://www.ad.nl/voetbal/de-vrij-vandaag-medisch-gekeurd-in-griekenland-lewandowski-verkast-naar-mls~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [‘Een laag energielabel kost je duizenden euro’s meer aan hypotheek’](https://www.ad.nl/economie/een-laag-energielabel-kost-je-duizenden-euros-meer-aan-hypotheek~a86c8589/)
+  > Een laag energielabel is niet alleen nadelig voor de energierekening, maar nu ook voor je maandelijkse hypotheeklasten. Steeds meer banken rekenen...
+- [Ouders VS aangeklaagd wegens kindermishandeling na dood zoon (7) die zeker 116 kilo woog](https://www.ad.nl/buitenland/ouders-vs-aangeklaagd-wegens-kindermishandeling-na-dood-zoon-7-die-zeker-116-kilo-woog~aedb5a6a/)
+  > In de Verenigde Staten staat een echtpaar terecht wegens kindermishandeling en moord in de tweede graad wegens het overlijden van hun zoon. Het kind...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Run op laatste plekjes op het stroomnet](https://fd.nl/economie/1601424/run-op-laatste-plekjes-op-het-stroomnet)
+  > Vandaag in Dagkoers: stroomnetbeheerders overstelpt met aanvragen voor een aansluiting; Zander Labs voedt robots met data uit de hersenen; private...
 - [Nederland voedt de wereld niet](https://fd.nl/opinie/1601567/nederland-voedt-de-wereld-niet)
   > Gemeten in eiwitten en energie heeft onze landbouw een groot tekort op de handelsbalans: de wereld voedt ons, en dan vooral ons vee.
 - [Advocatenkantoren overvallen door fors stijgende AI-prijzen](https://fd.nl/financiele-markten/1601413/advocatenkantoren-overvallen-door-fors-stijgende-ai-prijzen)
@@ -54,8 +56,6 @@
   > Het aantal sociaal advocaten neemt al jaren af. Regeringspartij CDA wil dat ‘reservisten’ bij commerciële kantoren op de Zuidas en ver daarbuiten...
 - [Het schandaal van de afstandsmoeders](https://fd.nl/opinie/1601235/het-schandaal-van-de-afstandsmoeders)
   > Een zwangerschap werd gezien als een probleem dat zo snel mogelijk uit het zicht moest verdwijnen. De kinderen, de vaders en de moeders hadden geen...
-- [Personalia maandag 29 juni](https://fd.nl/bedrijfsleven/1601569/personalia-maandag-29-juni)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
