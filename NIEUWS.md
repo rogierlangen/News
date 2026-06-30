@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-06-2026 om 12:12*
+*Laatst bijgewerkt: 30-06-2026 om 15:31*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Van zes naar drie, Schiphol maakt keuze voor bagage-afhandelaars bekend](https://nos.nl/l/2621007)
-  > Schiphol heeft een keuze gemaakt welke drie bedrijven voortaan de grondafhandeling mogen doen. Viggo, KLM en Dnata scoorden volgens de luchthaven het...
-- ['Kwetsbare financiën en leegloop door zzp zijn problematisch in langdurige zorg'](https://nos.nl/l/2621005)
-  > De financiën van langdurigezorginstellingen in Nederland, zoals verpleeghuizen en de gehandicaptenzorg, zien er op het oog goed uit, maar onder de...
-- [Kinderen die uit het raam vallen, hoe kun je het voorkomen?](https://nos.nl/l/2621000)
-  > De afgelopen twee weken vielen er drie peuters uit een raam. Gisteren raakte in Apeldoorn een kind gewond als gevolg daarvan, eergisteren ging het om...
-- [OM maakt excuses in zaak van 14-jarige Tamar uit Marken, vragen blijven](https://nos.nl/l/2620998)
-  > De onderzoeken naar het ongeluk waarbij de 14-jarige Tamar uit Marken om het leven kwam, geven geen duidelijkheid over de vraag hoe zij in de berm is...
-- [Vaccinatiegraad baby's en kleuters weer licht gedaald, onder tieners toegenomen](https://nos.nl/l/2620993)
-  > Het aantal baby's en kleuters dat is gevaccineerd is ten opzichte van vorig jaar licht gedaald. Dat meldt het Rijksinstituut voor Volksgezondheid en...
+- [Missers tegen Marokko voeden nationaal penaltytrauma: komen we er ooit vanaf?](https://nos.nl/l/2621033)
+  > Keeper Bart Verbruggen die de bal met pech via zijn hak over de lijn werkt en Quinten Timber die zijn strafschop ver naast schiet. Na de...
+- [Minstens 24 doden bij overstromingen Ghana en Ivoorkust](https://nos.nl/l/2621032)
+  > Door overstromingen en aardverschuivingen zijn de afgelopen dag ten minste 24 mensen omgekomen in Ghana en Ivoorkust, melden hulpdiensten in die...
+- [Ex-politieman vrijgesproken van verkrachting tienermeisje in Nieuwegein](https://nos.nl/l/2621030)
+  > Een ex-politiemedewerker en een andere man zijn vrijgesproken van verkrachting van een meisje (17) in Nieuwegein. De rechtbank gaat ervan uit dat er...
+- [Giftig lek bij bedrijf Genemuiden: medewerkers en brandweerman naar ziekenhuis](https://nos.nl/l/2621020)
+  > Bij een installatiebedrijf in Genemuiden is vanmorgen een schadelijke stof gelekt uit de accu van een heftruck. Dertien medewerkers van het bedrijf...
+- [Transgenderzorg in Nederland zorgvuldig, concludeert Gezondheidsraad](https://nos.nl/l/2621017)
+  > De Nederlandse transgenderzorg voor minderjarigen is in Nederland zorgvuldig georganiseerd. Hormoonbehandelingen om de puberteit te remmen of om...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Erling Haaland en Kylian Mbappé vandaag in actie: op deze WK-duels kun je je verheugen](https://www.ad.nl/wk-voetbal/erling-haaland-en-kylian-mbappe-vandaag-in-actie-op-deze-wk-duels-kun-je-je-verheugen~a59f5a78/)
-  > Op dag 20 van het WK komt weer een groot aantal sterren in actie. Zo neemt Erling Haaland het om 19.00 uur met Noorwegen op tegen Ivoorkust. Om 23.00...
-- [Even tot hier-pianootje opgenomen in collectie Beeld & Geluid](https://www.ad.nl/show/even-tot-hier-pianootje-opgenomen-in-collectie-beeld-en-geluid~adfe8ec0/)
-  > Het speelgoedpianootje dat jarenlang werd gebruikt in het populaire BNNVara-programma Even tot hier, krijgt een plek in de collectie van Beeld &...
-- [Geen kwartfinale, geen bier en borrelhapjes: vroege exit Oranje scheelt supermarkten miljoenen](https://www.ad.nl/economie/geen-kwartfinale-geen-bier-en-borrelhapjes-vroege-exit-oranje-scheelt-supermarkten-miljoenen~a72cfa56/)
-  > De vroege uitschakeling van het Nederlands elftal werkt ook door op de kantoren van supermarktketens. Zij lopen miljoenen mis aan extra feestomzet....
-- [Tesla’s zelfrijdende systeem nu ook in oudere modellen mogelijk](https://www.ad.nl/auto/teslas-zelfrijdende-systeem-nu-ook-in-oudere-modellen-mogelijk~a631773e/)
-  > Er was de laatste tijd veel te doen over Tesla’s FSD, het systeem dat het mogelijk maakt om ‘handsfree’ van A naar B te gaan. Tot nu toe werkt dat...
-- [OM eist acht weken cel voor doodrijden Tamar (14) uit Marken en doorrijden na ongeval](https://www.ad.nl/binnenland/om-eist-acht-weken-cel-voor-doodrijden-tamar-14-uit-marken-en-doorrijden-na-ongeval~a6fdff8c/)
-  > Het Openbaar Ministerie heeft acht weken cel geëist tegen de 33-jarige Jamal T. uit Duitsland voor het veroorzaken van de dodelijke aanrijding van...
+- [Tallon Griekspoor strijdt met Australiër James Duckworth om plek in tweede ronde](https://www.ad.nl/tennis/tallon-griekspoor-strijdt-met-australier-james-duckworth-om-plek-in-tweede-ronde~ad957b94e/)
+  > Tallon Griekspoor hoopt zich als derde Nederlandse man naar de tweede ronde van Wimbledon te slaan. De Haarlemmer treft James Duckworth uit...
+- [De volgende hittegolf komt eraan, maar dan is je lichaamstemperatuur waarschijnlijk 0,3 graden lager](https://www.ad.nl/binnenland/de-volgende-hittegolf-komt-eraan-maar-dan-is-je-lichaamstemperatuur-waarschijnlijk-0-3-graden-lager~af467546/)
+  > We zijn net aan het bijkomen van de langste hittegolf en hoogste temperaturen in jaren en de volgende bloedhete periode komt er alweer aan. Voordeel...
+- [Hoogste hof VS verwerpt poging Trump om geboorterecht te beperken](https://www.ad.nl/buitenland/hoogste-hof-vs-verwerpt-poging-trump-om-geboorterecht-te-beperken~a8f26632/)
+  > De Amerikaanse president Donald Trump heeft een gevoelige nederlaag geleden bij het Hooggerechtshof. De hoogste federale rechters blokkeerden een...
+- [Penalty's niet trainbaar? Wel als schoolkinderen onze internationals uitlachen](https://www.ad.nl/wk-voetbal/penalty-s-niet-trainbaar-wel-als-schoolkinderen-onze-internationals-uitlachen~a6797941/)
+  > Van alle toplanden presteert Nederland het slechtst in strafschoppenseries. Moeten we beter naar penaltyprofessors luisteren, of is het tijd om het...
+- [Minstens duizend extra sterfgevallen door hittegolf: mortuaria in Parijs overvol](https://www.ad.nl/buitenland/minstens-duizend-extra-sterfgevallen-door-hittegolf-mortuaria-in-parijs-overvol~a001372d/)
+  > Mortuaria in Parijs worstelen met het grote aantal sterfgevallen als gevolg van de hittegolf in Frankrijk. Dat melden verschillende Franse media. Er...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Vastgoedadviseur Cushman & Wakefield Nederland neemt afscheid van ceo](https://fd.nl/bedrijfsleven/1601757/vastgoedadviseur-cushman-wakefield-nederland-neemt-afscheid-van-ceo)
-  > De ceo van de Duitse tak krijgt nu ook de leiding over de Nederlandse activiteiten.
-- [Rijkelijk belegde boterham](https://fd.nl/financiele-markten/1601760/rijkelijk-belegde-boterham)
-  > De succesvolle belegger Li Lu ziet zijn werk als onderzoeksjournalistiek. Als een bijna-stalker volgt hij de ceo van het bedrijf waarin hij belegt....
-- [Pro steunt stikstofplan, ziet maatregelen wel als ‘het minimale’](https://fd.nl/politiek/1601762/pro-steunt-stikstofplan-ziet-maatregelen-wel-als-het-minimale)
-  > Laura Bromet van oppositiepartij Pro: ‘Het belang van de veehouderij wordt zwaar gewogen. Het idee van een zielige boer is heel makkelijk opgewekt.’
-- [Algemeen directeur Focco Vijselaar binnen vier jaar weg bij VNO-NCW](https://fd.nl/economie/1601658/vijselaar-binnen-vier-jaar-weg-bij-vno-ncw)
-  > Focco Vijselaar vertrekt bij de invloedrijke werkgeversvereniging, enkele maanden na het aantreden van een nieuwe voorzitter.
-- [Geen zicht op meevallers herstel box 3, zegt staatssecretaris van Financiën](https://fd.nl/politiek/1601758/geen-zicht-op-meevallers-herstel-box-3-zegt-staatssecretaris-van-financien)
-  > Er blijft vooralsnog geen geld over van de gereserveerde miljarden voor de hersteloperatie. Er werd gehoopt op een meevaller, om zo een gat in de...
+- [FNV dreigt met acties als kabinet plastictaks niet schrapt voor Prinsjesdag](https://fd.nl/economie/1601785/fnv-dreigt-met-acties-als-kabinet-plastictaks-niet-schrapt-voor-prinsjesdag)
+  > De heffing, die de staat €567 mln oplevert, is bedoeld om vervuilend plastic zwaarder te belasten.
+- [Advocaten ‘wachten met smart’ op wetsvoorstel over nieuwe toezichthouder](https://fd.nl/bedrijfsleven/1601671/advocaten-wachten-met-smart-op-wetsvoorstel-over-nieuwe-toezichthouder)
+  > De oprichting van onafhankelijk toezicht was vier jaar geleden een heet hangijzer, maar is inmiddels flink vertraagd.
+- [Fijne Bobby Bonilla-dag!](https://fd.nl/financiele-markten/1601765/fijne-bobby-bonilla-dag)
+  > Op 1 juli vieren fans van de New York Mets de uitgestelde betalingsregeling van hun oud-speler die vooral in de dug-out zat.
+- [Bank UBS ziet aantal miljonairs in Nederland groeien naar 1,3 miljoen](https://fd.nl/financiele-markten/1601763/bank-ubs-ziet-aantal-miljonairs-in-nederland-groeien-naar-1-3-miljoen)
+  > Nederland staat op de negende plaats in de wereld met het aantal dollarmiljonairs, aldus de Zwiterse bank UBS. De plek is vooral te danken aan het...
+- [Wereldbank laat groene ambities varen](https://fd.nl/economie/1601779/wereldbank-laat-groene-ambities-varen)
+  > Het besluit volgt op aanhoudende druk van de Amerikaanse regering om de doelstellingen voor klimaatleningen op te geven.
 
 ### Meest gelezen
 
