@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-06-2026 om 15:31*
+*Laatst bijgewerkt: 30-06-2026 om 18:00*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Missers tegen Marokko voeden nationaal penaltytrauma: komen we er ooit vanaf?](https://nos.nl/l/2621033)
-  > Keeper Bart Verbruggen die de bal met pech via zijn hak over de lijn werkt en Quinten Timber die zijn strafschop ver naast schiet. Na de...
-- [Minstens 24 doden bij overstromingen Ghana en Ivoorkust](https://nos.nl/l/2621032)
-  > Door overstromingen en aardverschuivingen zijn de afgelopen dag ten minste 24 mensen omgekomen in Ghana en Ivoorkust, melden hulpdiensten in die...
-- [Ex-politieman vrijgesproken van verkrachting tienermeisje in Nieuwegein](https://nos.nl/l/2621030)
-  > Een ex-politiemedewerker en een andere man zijn vrijgesproken van verkrachting van een meisje (17) in Nieuwegein. De rechtbank gaat ervan uit dat er...
-- [Giftig lek bij bedrijf Genemuiden: medewerkers en brandweerman naar ziekenhuis](https://nos.nl/l/2621020)
-  > Bij een installatiebedrijf in Genemuiden is vanmorgen een schadelijke stof gelekt uit de accu van een heftruck. Dertien medewerkers van het bedrijf...
-- [Transgenderzorg in Nederland zorgvuldig, concludeert Gezondheidsraad](https://nos.nl/l/2621017)
-  > De Nederlandse transgenderzorg voor minderjarigen is in Nederland zorgvuldig georganiseerd. Hormoonbehandelingen om de puberteit te remmen of om...
+- [Trump teruggefloten door Hooggerechtshof: wie in de VS geboren is, is Amerikaan](https://nos.nl/l/2621051)
+  > Het Amerikaanse Hooggerechtshof heeft een streep gezet door een poging van president Trump om het recht op Amerikaans staatsburgerschap aan te...
+- [Huisartsen stappen weer naar de rechter: nieuwe tarieven te laag](https://nos.nl/l/2621047)
+  > De Nederlandse Zorgautoriteit (NZa) heeft nieuwe huisartsentarieven vastgesteld nadat de zorgmarkttoezichthouder twee keer door de hoogste...
+- [Treinverkeer tussen Rotterdam en Zuid-Nederland nog dagen langer ontregeld](https://nos.nl/l/2621046)
+  > Het treinverkeer tussen Rotterdam en het zuiden van het land is naar verwachting nog zeker tot zaterdagmiddag ontregeld. Aanvankelijk ging ProRail...
+- [Meerderheid stikstofplannen kabinet gloort in beide Kamers](https://nos.nl/l/2621044)
+  > Met de steun van Pro heeft het kabinet een meerderheid in de Tweede Kamer voor het pakket met stikstofmaatregelen. Pro (voorheen GroenLinks-PvdA)...
+- [Zomertreinabonnement door 175.000 mensen gekocht](https://nos.nl/l/2621043)
+  > Treinreizigers maken gretig gebruik van het goedkope treinabonnement voor deze zomer. In twee weken tijd is het dalurenabonnement door 175.000 mensen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tallon Griekspoor strijdt met Australiër James Duckworth om plek in tweede ronde](https://www.ad.nl/tennis/tallon-griekspoor-strijdt-met-australier-james-duckworth-om-plek-in-tweede-ronde~ad957b94e/)
-  > Tallon Griekspoor hoopt zich als derde Nederlandse man naar de tweede ronde van Wimbledon te slaan. De Haarlemmer treft James Duckworth uit...
-- [De volgende hittegolf komt eraan, maar dan is je lichaamstemperatuur waarschijnlijk 0,3 graden lager](https://www.ad.nl/binnenland/de-volgende-hittegolf-komt-eraan-maar-dan-is-je-lichaamstemperatuur-waarschijnlijk-0-3-graden-lager~af467546/)
-  > We zijn net aan het bijkomen van de langste hittegolf en hoogste temperaturen in jaren en de volgende bloedhete periode komt er alweer aan. Voordeel...
-- [Hoogste hof VS verwerpt poging Trump om geboorterecht te beperken](https://www.ad.nl/buitenland/hoogste-hof-vs-verwerpt-poging-trump-om-geboorterecht-te-beperken~a8f26632/)
-  > De Amerikaanse president Donald Trump heeft een gevoelige nederlaag geleden bij het Hooggerechtshof. De hoogste federale rechters blokkeerden een...
-- [Penalty's niet trainbaar? Wel als schoolkinderen onze internationals uitlachen](https://www.ad.nl/wk-voetbal/penalty-s-niet-trainbaar-wel-als-schoolkinderen-onze-internationals-uitlachen~a6797941/)
-  > Van alle toplanden presteert Nederland het slechtst in strafschoppenseries. Moeten we beter naar penaltyprofessors luisteren, of is het tijd om het...
-- [Minstens duizend extra sterfgevallen door hittegolf: mortuaria in Parijs overvol](https://www.ad.nl/buitenland/minstens-duizend-extra-sterfgevallen-door-hittegolf-mortuaria-in-parijs-overvol~a001372d/)
-  > Mortuaria in Parijs worstelen met het grote aantal sterfgevallen als gevolg van de hittegolf in Frankrijk. Dat melden verschillende Franse media. Er...
+- [Spanjaarden naar Ajax en Feyenoord, Duijvestijn naar Duitsland en Viergever gaat nog even door](https://www.ad.nl/voetbal/spanjaarden-naar-ajax-en-feyenoord-duijvestijn-naar-duitsland-en-viergever-gaat-nog-even-door~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Noorwegen op voorsprong tegen Ivoorkust, Antonio Nusa krult bal fraai in de kruising](https://www.ad.nl/wk-voetbal/noorwegen-op-voorsprong-tegen-ivoorkust-antonio-nusa-krult-bal-fraai-in-de-kruising~ae3e31e5/)
+  > Ivoorkust en Noorwegen staan in Dallas tegenover elkaar in de zestiende finale van het WK. Wie gaat er door naar de achtste finale tegen Brazilië?...
+- [Beelden van ratten in pizzeria gaan het internet over: ‘Dit is niet wat je van ons mag verwachten’](https://www.ad.nl/binnenland/beelden-van-ratten-in-pizzeria-gaan-het-internet-over-dit-is-niet-wat-je-van-ons-mag-verwachten~a0bd1316/)
+  > Wie zin heeft in een pizza, kan die even niet meer bij een Rotterdamse vestiging van New York Pizza bestellen. In het restaurant snuffelen ratten...
+- [Moeder en dochter verliezen bij brand niet alleen spullen, maar ook vijf honden: ‘Onvoorstelbaar verdriet’](https://www.ad.nl/den-haag/moeder-en-dochter-verliezen-bij-brand-niet-alleen-spullen-maar-ook-vijf-honden-onvoorstelbaar-verdriet~a53d3112/)
+  > Vriendinnen van de vrouw die maandagavond bij een woningbrand in de Heesterbuurt niet alleen al haar spullen verloor, maar ook vijf van haar zes...
+- [Zo houden voetballers hun focus op het spel: ‘Aandacht kun je net als een spier trainen’](https://www.ad.nl/gezond/zo-houden-voetballers-hun-focus-op-het-spel-aandacht-kun-je-net-als-een-spier-trainen~a84eca30/)
+  > Op het WK voetbal zien we voetballers piekprestatie na piekprestatie leveren. Ze zijn fit van lijf en leden en mentaal scherp. Bewegingswetenschapper...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [FNV dreigt met acties als kabinet plastictaks niet schrapt voor Prinsjesdag](https://fd.nl/economie/1601785/fnv-dreigt-met-acties-als-kabinet-plastictaks-niet-schrapt-voor-prinsjesdag)
-  > De heffing, die de staat €567 mln oplevert, is bedoeld om vervuilend plastic zwaarder te belasten.
-- [Advocaten ‘wachten met smart’ op wetsvoorstel over nieuwe toezichthouder](https://fd.nl/bedrijfsleven/1601671/advocaten-wachten-met-smart-op-wetsvoorstel-over-nieuwe-toezichthouder)
-  > De oprichting van onafhankelijk toezicht was vier jaar geleden een heet hangijzer, maar is inmiddels flink vertraagd.
-- [Fijne Bobby Bonilla-dag!](https://fd.nl/financiele-markten/1601765/fijne-bobby-bonilla-dag)
-  > Op 1 juli vieren fans van de New York Mets de uitgestelde betalingsregeling van hun oud-speler die vooral in de dug-out zat.
-- [Bank UBS ziet aantal miljonairs in Nederland groeien naar 1,3 miljoen](https://fd.nl/financiele-markten/1601763/bank-ubs-ziet-aantal-miljonairs-in-nederland-groeien-naar-1-3-miljoen)
-  > Nederland staat op de negende plaats in de wereld met het aantal dollarmiljonairs, aldus de Zwiterse bank UBS. De plek is vooral te danken aan het...
-- [Wereldbank laat groene ambities varen](https://fd.nl/economie/1601779/wereldbank-laat-groene-ambities-varen)
-  > Het besluit volgt op aanhoudende druk van de Amerikaanse regering om de doelstellingen voor klimaatleningen op te geven.
+- [Bank of England waarschuwt voor kunstmatige intelligentie](https://fd.nl/financiele-markten/1601675/bank-of-england-waarschuwt-voor-kunstmatige-intelligentie)
+  > AI kan de schommelingen op de financiële markten versterken en moet mogelijk beter gereguleerd worden.
+- [Frankrijk deelt nieuwe klap uit in strijd tegen Chinese online ketens](https://fd.nl/politiek/1601787/frankrijk-deelt-nieuwe-klap-uit-in-strijd-tegen-chinese-online-ketens)
+  > Shein, Temu en AliExpress mogen geen reclame meer maken in Frankrijk. Miljoenen Fransen kopen de extreem goedkope producten, maar de regering verzet...
+- [Ierland is de grote winstmachine van Microsoft](https://fd.nl/bedrijfsleven/1601661/ierland-is-de-grote-winstmachine-van-microsoft)
+  > Dat blijkt nu ook uit de rapportage die het softwarebedrijf zelf heeft gepubliceerd over zijn belastingafdrachten in de lidstaten van de Europese...
+- [Hooggerechtshof VS: kinderen van ongedocumenteerden blijven Amerikaan](https://fd.nl/politiek/1601673/hooggerechtshof-vs-kinderen-van-ongedocumenteerden-blijven-amerikaan)
+  > Volgens de grondwet van de VS is iedereen die geboren wordt op Amerikaans grondgebied automatisch een staatsburger van het land.
+- [Europese Commissie heeft het weer gemunt op Nederlands spoorbeleid](https://fd.nl/bedrijfsleven/1601783/europese-commissie-heeft-het-weer-gemunt-op-nederlands-spoorbeleid)
+  > Nederland geeft mogelijk te weinig ruimte aan concurrenten van de NS op het internationale spoor. Eerder begon de Commissie al een zeldzame...
 
 ### Meest gelezen
 
