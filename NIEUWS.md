@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-06-2026 om 20:12*
+*Laatst bijgewerkt: 30-06-2026 om 22:17*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Hoe Ierse grondstoffen in de Russische wapenindustrie belanden](https://nos.nl/l/2621067)
-  > Al op kilometers afstand zie je de hoge bergen met rode bauxietaarde over een uitgestrekte vlakte en achter die bergen roken dag en nacht de...
-- [KNVB gaat melding doen van racistische berichten aan Oranjespelers die penalty misten](https://nos.nl/l/2621066)
-  > De KNVB gaat melding doen bij Meld.Online Discriminatie nadat meerdere Oranje-internationals hatelijk en racistisch werden bejegend na hun gemiste...
-- [Drie jaar cel voor gevangenismedewerker die vrouwelijke gedetineerde verkrachtte](https://nos.nl/l/2621061)
-  > Een 51-jarige man uit Apeldoorn moet drie jaar de cel in voor de verkrachting van een vrouwelijke gedetineerde in 2010. De man was werkzaam als...
-- [Zeldzame eeneiige vierling geboren in ziekenhuis Veldhoven](https://nos.nl/l/2621059)
-  > In het ziekenhuis in Veldhoven is onlangs een eeneiige vierling geboren. Omdat de baby's al met ruim 29 weken ter wereld zijn gebracht, liggen ze nog...
-- [Opnieuw meer meldingen van seksueel geweld: 'Thema is bespreekbaarder'](https://nos.nl/l/2621057)
-  > Het aantal meldingen bij het Centrum Seksueel Geweld (CSG) is opnieuw toegenomen. In 2025 klopten in totaal 4640 slachtoffers, naasten en...
+- [Omstreden ov-bedrijf België vergeet urenlang kind in busje](https://nos.nl/l/2621089)
+  > Het Belgische busbedrijf dat vorige maand betrokken was bij een dodelijk ongeluk, is opnieuw in opspraak gekomen. Een chauffeur blijkt deze week een...
+- [Aangereden eend lift kilometers mee op de voorbumper](https://nos.nl/l/2621086)
+  > Een aangereden eend heeft op de bumper van een auto een kilometerslange rit overleefd. Het dier kon na zijn tocht gisteren door de dierenambulance...
+- [Dak Pakistaanse school stort in, 14 leerlingen omgekomen](https://nos.nl/l/2621085)
+  > In de Pakistaanse stad Lahore zijn zeker veertien kinderen omgekomen toen het gebouw waar ze les kregen instortte. Acht andere kinderen raakten...
+- [Italië betaalt miljoenen voor Etruskische fresco's: 'Dit is ons cultureel erfgoed'](https://nos.nl/l/2621082)
+  > De Italiaanse staat heeft voor 15 miljoen euro fresco's aangeschaft van een Etruskisch graf, dat minstens 2300 jaar oud is. Het gaat om een van de...
+- [Telers gebruiken geregeld te veel landbouwgif bij scholen of kwetsbare natuur](https://nos.nl/l/2621071)
+  > Telers dicht bij basisscholen of Europese beschermde natuurgebieden houden zich niet altijd aan de wettelijke voorschriften voor het gebruik van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE WK voetbal | Neuer stopt na WK-uitschakeling definitief als international, Iran toont dankbaarheid aan fans](https://www.ad.nl/wk-voetbal/live-wk-voetbal-neuer-stopt-na-wk-uitschakeling-definitief-als-international-iran-toont-dankbaarheid-aan-fans~a2d5cab9/)
-  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
-- [Botic van de Zandschulp en Jesper de Jong na tweede ronde mogelijk tegen elkaar](https://www.ad.nl/tennis/botic-van-de-zandschulp-en-jesper-de-jong-na-tweede-ronde-mogelijk-tegen-elkaar~acf0527e/)
-  > Botic van de Zandschulp en Jesper de Jong hebben beiden de tweede ronde van Wimbledon gehaald. De tennissers weten hun tegenstanders voor deze ronde...
-- [Frankrijk start met licht gewijzigde opstelling, Zweden vestigt alle hoop op koningskoppel](https://www.ad.nl/wk-voetbal/frankrijk-start-met-licht-gewijzigde-opstelling-zweden-vestigt-alle-hoop-op-koningskoppel~a9ab14e3/)
+- [Steeds meer nieuwbouw opgeleverd, maar opleving is van korte duur](https://www.ad.nl/politiek/steeds-meer-nieuwbouw-opgeleverd-maar-opleving-is-van-korte-duur~a3e4843b/)
+  > Volgend jaar worden er naar verwachting 100.000 nieuwe woningen opgeleverd. Het is voor het eerst sinds jaren dat dat doel wordt bereikt. Helaas zakt...
+- [Duitse econoom zegt sorry voor onjuiste voorspelling wereldtitel Oranje: ‘Ik zou mijn geld nu op Spanje zetten’](https://www.ad.nl/wk-voetbal/duitse-econoom-zegt-sorry-voor-onjuiste-voorspelling-wereldtitel-oranje-ik-zou-mijn-geld-nu-op-spanje-zetten~ab799af2/)
+  > De Duitse econoom Joachim Klement heeft zijn excuses aangeboden aan de Nederlandse fans en spelers. Hij voorspelde dat Oranje wereldkampioen zou...
+- [Het legde bloot waar Koeman als coach voor staat: voetbal als een fantasieloos jaren ‘70-rijtjeshuis](https://www.ad.nl/wk-voetbal/het-legde-bloot-waar-koeman-als-coach-voor-staat-voetbal-als-een-fantasieloos-jaren-70-rijtjeshuis~aa4744a3/)
+  > Columnist Sjoerd Mossou blikt terug op het dienstverband van Ronald Koeman bij Oranje. „Over zijn laatste jaren als bondscoach kunnen we kort zijn:...
+- [Ronald Koeman houdt eer aan zichzelf en stapt op als bondscoach van Oranje: ‘Doet pijn dat het zo eindigt’](https://www.ad.nl/wk-voetbal/ronald-koeman-houdt-eer-aan-zichzelf-en-stapt-op-als-bondscoach-van-oranje-doet-pijn-dat-het-zo-eindigt~afd4cdb9/)
+  > Ronald Koeman heeft besloten om op te stappen als bondscoach van het Nederlands elftal. Dat maakt de 63-jarige trainer daags na de pijnlijke...
+- [Franse droomaanval ook voor Zweden ongrijpbaar: Barcola verdubbelt de voorsprong](https://www.ad.nl/wk-voetbal/franse-droomaanval-ook-voor-zweden-ongrijpbaar-barcola-verdubbelt-de-voorsprong~a9ab14e3/)
   > Topfavoriet Frankrijk staat tegenover Zweden, de nummer 3 in de poule van Oranje, in de zestiende finale. Kan Zweden verrassen of gaat Frankrijk door...
-- [Speelschema WK voetbal 2026 | Bekijk hier het volledige programma en alle uitslagen](https://www.ad.nl/voetbal/speelschema-wk-voetbal-2026-bekijk-hier-het-volledige-programma-en-alle-uitslagen~ad85207c/)
-  > Nederland ligt eruit, maar er staat nog genoeg voetbalspektakel op het programma op het WK 2026 in Canada, Mexico en de Verenigde Staten. Tot en met...
-- [Indiana Jones-acteur Michael Byrne (82) overleden](https://www.ad.nl/show/indiana-jones-acteur-michael-byrne-82-overleden~a7edc2ed/)
-  > De Britse acteur Michael Byrne is op 82-jarige leeftijd overleden. Dat meldt onder meer The Guardian. De acteur was vooral bekend door zijn rollen in...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Amerikaanse beurzen sluiten beste kwartaal in jaren positief af](https://fd.nl/financiele-markten/1601899/amerikaanse-beurzen-sluiten-beste-kwartaal-in-jaren-positief-af)
+  > Met het sluiten van de beurzen komt een einde aan het tweede kwartaal en de eerste helft van 2026. Ondanks de geopolitieke onrust boekten de...
 - [Anthropic lanceert AI-tool voor farmaceutische bedrijven](https://fd.nl/bedrijfsleven/1601788/anthropic-lanceert-ai-tool-voor-farmaceutische-bedrijven)
   > De AI-gigant roert zich met een nieuw model op markt van markt voor geneesmiddelen.
-- [Kabinet mag van coalitiepartijen nog een zomer lang sleutelen aan box 3](https://fd.nl/politiek/1601877/kabinet-mag-van-coalitiepartijen-nog-een-zomer-lang-sleutelen-aan-box-3)
-  > De kans is klein dat het wetsvoorstel voor box 3 volgende week al wordt weggestemd en het kabinet-Jetten een financieel probleem erbij krijgt voor...
+- [Ontevreden Eerste Kamer stelt stemming over box 3 wetsvoorstel uit](https://fd.nl/politiek/1601877/kabinet-mag-van-coalitiepartijen-nog-een-zomer-lang-sleutelen-aan-box-3)
+  > De Eerste Kamer stemt waarschijnlijk pas volgend jaar over de nieuwe box 3 belasting. Daarmee voorkomt de senaat dat het kabinet-Jetten er een...
 - [Te land, ter zee én in de lucht: marine-oefening met allerlei soorten drones komt van de grond](https://fd.nl/samenleving/1601668/ter-land-ter-zee-en-in-de-lucht-marine-oefening-met-allerlei-soorten-drones-komt-van-de-grond)
   > De Koninklijke Marine oefent al vier weken voor de Noord-Hollandse kust hoe drones in de lucht, op zee én onder zee beter kunnen samenwerken....
 - [Frans elektronicaconcern Schneider koopt Noorse softwaremaker](https://fd.nl/bedrijfsleven/1601876/frans-elektronicaconcern-schneider-koopt-noorse-softwaremaker)
   > Met overname hoopt Schneider positie van dataleverancier te versterken.
-- [Goed dat er een stevig stikstofplan ligt, nu de rug recht houden](https://fd.nl/opinie/1601669/goed-dat-er-een-stevig-stikstofplan-ligt-nu-de-rug-recht-houden)
-  > Eerdere stikstofplannen sneuvelden na verzet uit politiek en samenleving.
 
 ### Meest gelezen
 
