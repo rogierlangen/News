@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-06-2026 om 09:46*
+*Laatst bijgewerkt: 30-06-2026 om 12:12*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [DNB: stijging in fraudezaken, onder andere meer gestolen bankpassen](https://nos.nl/l/2620987)
-  > Er zijn vorig jaar meer fraudezaken ontdekt. De Nederlandsche Bank ziet een toename van 30 procent ten opzichte van 2024. In totaal kwam dat neer op...
-- [Ook geen internationale treinen naar Engeland door brand in kabelgoot](https://nos.nl/l/2620986)
-  > De komende dagen rijden er geen internationale treinen van en naar Londen. Ook is er vertraging op het traject richting Brussel en Parijs. Dat is een...
-- [RIVM vreest polycrisis: samenwerking nodig voor zich opstapelende problemen](https://nos.nl/l/2620984)
-  > Het Rijksinstituut voor Volksgezondheid en Milieu (RIVM) zegt dat er steeds meer problemen samenkomen. Die zouden binnen tien jaar een gevaar kunnen...
-- [Provincie maakt uitzondering: Schagen mag bouwen in beschermd landschap](https://nos.nl/l/2620981)
-  > De woningnood in Schagen is hoog. Daarom offert de gemeente een stuk beschermd landschap op om maximaal 1500 woningen te kunnen bouwen. Normaal...
-- [Prins Albert van Monaco spreekt steun uit voor slachtoffers van explosie](https://nos.nl/l/2620971)
-  > Prins Albert van Monaco heeft zijn "medeleven en onvoorwaardelijke steun" betuigd aan de slachtoffers, hun naasten en de omwonenden" van de explosie...
+- [Van zes naar drie, Schiphol maakt keuze voor bagage-afhandelaars bekend](https://nos.nl/l/2621007)
+  > Schiphol heeft een keuze gemaakt welke drie bedrijven voortaan de grondafhandeling mogen doen. Viggo, KLM en Dnata scoorden volgens de luchthaven het...
+- ['Kwetsbare financiën en leegloop door zzp zijn problematisch in langdurige zorg'](https://nos.nl/l/2621005)
+  > De financiën van langdurigezorginstellingen in Nederland, zoals verpleeghuizen en de gehandicaptenzorg, zien er op het oog goed uit, maar onder de...
+- [Kinderen die uit het raam vallen, hoe kun je het voorkomen?](https://nos.nl/l/2621000)
+  > De afgelopen twee weken vielen er drie peuters uit een raam. Gisteren raakte in Apeldoorn een kind gewond als gevolg daarvan, eergisteren ging het om...
+- [OM maakt excuses in zaak van 14-jarige Tamar uit Marken, vragen blijven](https://nos.nl/l/2620998)
+  > De onderzoeken naar het ongeluk waarbij de 14-jarige Tamar uit Marken om het leven kwam, geven geen duidelijkheid over de vraag hoe zij in de berm is...
+- [Vaccinatiegraad baby's en kleuters weer licht gedaald, onder tieners toegenomen](https://nos.nl/l/2620993)
+  > Het aantal baby's en kleuters dat is gevaccineerd is ten opzichte van vorig jaar licht gedaald. Dat meldt het Rijksinstituut voor Volksgezondheid en...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Wie hem in Monterrey aanhoorde weet genoeg: Ronald Koeman trekt zijn conclusie en stapt op](https://www.ad.nl/wk-voetbal/wie-hem-in-monterrey-aanhoorde-weet-genoeg-ronald-koeman-trekt-zijn-conclusie-en-stapt-op~ae7951b4/)
-  > Het Nederlands elftal ligt uit het WK. Ronald Koeman beraadt zich op zijn toekomst. De slotanalyse van zijn tweede termijn als bondscoach laat zich...
-- [Praat mee: waarom laat Oranje het altijd op strafschoppen aankomen?](https://www.ad.nl/praat-mee/praat-mee-waarom-laat-oranje-het-altijd-op-strafschoppen-aankomen~aec7964d/)
-  > Het Nederlands elftal is vannacht op het WK voetbal uitgeschakeld door Marokko. Vier minuten voor het einde van de reguliere speeltijd gaf Oranje een...
-- [‘Onderkoning’ Thom de Graaf heeft zijn leven te danken aan de Japanse keizer: ‘Ik ben helemaal geen republikein’](https://www.ad.nl/politiek/onderkoning-thom-de-graaf-heeft-zijn-leven-te-danken-aan-de-japanse-keizer-ik-ben-helemaal-geen-republikein~a28367b4/)
-  > Van D66-krullenbol tot ‘onderkoning’ van Nederland – al vindt hij die laatste term onzin. Thom de Graaf (69) blikt bij zijn afscheid als...
-- [Ik zie hoe mijn olijke dreumes van weleer in een coma belandt na een zuippartij in Cherso](https://www.ad.nl/binnenland/ik-zie-hoe-mijn-olijke-dreumes-van-weleer-in-een-coma-belandt-na-een-zuippartij-in-cherso~a3c41230/)
-  > Jammer van Oranje, maar Angela de Jong zit met haar gedachten bij heel andere dingen. Haar 17-jarige zoon vertrekt binnenkort met twaalf vrienden...
-- [Die penalty van Timber, dat kon echt niet. Die was een meter naast](https://www.ad.nl/voetbal/die-penalty-van-timber-dat-kon-echt-niet-die-was-een-meter-naast~ad17a31d/)
-  > Columnist Willem van Hanegem verbaast zich over hoe topspelers strafschoppen nemen. Hij gruwelt van de penalty van Quinten Timber, al nam hij zelf...
+- [Erling Haaland en Kylian Mbappé vandaag in actie: op deze WK-duels kun je je verheugen](https://www.ad.nl/wk-voetbal/erling-haaland-en-kylian-mbappe-vandaag-in-actie-op-deze-wk-duels-kun-je-je-verheugen~a59f5a78/)
+  > Op dag 20 van het WK komt weer een groot aantal sterren in actie. Zo neemt Erling Haaland het om 19.00 uur met Noorwegen op tegen Ivoorkust. Om 23.00...
+- [Even tot hier-pianootje opgenomen in collectie Beeld & Geluid](https://www.ad.nl/show/even-tot-hier-pianootje-opgenomen-in-collectie-beeld-en-geluid~adfe8ec0/)
+  > Het speelgoedpianootje dat jarenlang werd gebruikt in het populaire BNNVara-programma Even tot hier, krijgt een plek in de collectie van Beeld &...
+- [Geen kwartfinale, geen bier en borrelhapjes: vroege exit Oranje scheelt supermarkten miljoenen](https://www.ad.nl/economie/geen-kwartfinale-geen-bier-en-borrelhapjes-vroege-exit-oranje-scheelt-supermarkten-miljoenen~a72cfa56/)
+  > De vroege uitschakeling van het Nederlands elftal werkt ook door op de kantoren van supermarktketens. Zij lopen miljoenen mis aan extra feestomzet....
+- [Tesla’s zelfrijdende systeem nu ook in oudere modellen mogelijk](https://www.ad.nl/auto/teslas-zelfrijdende-systeem-nu-ook-in-oudere-modellen-mogelijk~a631773e/)
+  > Er was de laatste tijd veel te doen over Tesla’s FSD, het systeem dat het mogelijk maakt om ‘handsfree’ van A naar B te gaan. Tot nu toe werkt dat...
+- [OM eist acht weken cel voor doodrijden Tamar (14) uit Marken en doorrijden na ongeval](https://www.ad.nl/binnenland/om-eist-acht-weken-cel-voor-doodrijden-tamar-14-uit-marken-en-doorrijden-na-ongeval~a6fdff8c/)
+  > Het Openbaar Ministerie heeft acht weken cel geëist tegen de 33-jarige Jamal T. uit Duitsland voor het veroorzaken van de dodelijke aanrijding van...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Het nietige Kongsberg herbergt een heuse Europese beursparel](https://fd.nl/financiele-markten/1601154/het-nietige-kongsberg-herbergt-een-heuse-europese-beursparel)
-  > De directie van Kongsberg is vol zelfvertrouwen. Het Noorse defensiebedrijf maakt precies waar landen behoefte aan hebben. Gevolg: de beurswaarde is...
-- [Wie dementie heeft, hoort niet buiten de samenleving te staan](https://fd.nl/opinie/1601689/wie-dementie-heeft-hoort-niet-buiten-de-samenleving-te-staan)
-  > In de zorg ligt de nadruk nog te vaak op wat mensen verliezen. Maar wie goed kijkt, ziet dat ook met dementie liefde, humor en verbondenheid kunnen...
-- [Een woonboot in Parijs](https://fd.nl/samenleving/1601602/een-woonboot-in-parijs)
-  > Frida Boeke wilde geen achterafhokje in het centrum maar een Parijse plek om je een weekend lang thuis te voelen. Ze vond die op het water.
-- [DNB: 30% meer frauduleuze betalingen in 2025](https://fd.nl/economie/1601648/dnb-30-meer-frauduleuze-betalingen-in-2025)
-  > Het fraudebedrag groeide met 22%, tot €198 mln.
-- [Ultrafast fashion moet in Frankrijk toeslag per product gaan betalen](https://fd.nl/bedrijfsleven/1601748/ultrafast-fashion-moet-in-frankrijk-toeslag-per-product-gaan-betalen)
-  > Een nieuwe wet verplicht de bedrijven daartoe. Ook mogen ze geen reclame meer maken.
+- [Vastgoedadviseur Cushman & Wakefield Nederland neemt afscheid van ceo](https://fd.nl/bedrijfsleven/1601757/vastgoedadviseur-cushman-wakefield-nederland-neemt-afscheid-van-ceo)
+  > De ceo van de Duitse tak krijgt nu ook de leiding over de Nederlandse activiteiten.
+- [Rijkelijk belegde boterham](https://fd.nl/financiele-markten/1601760/rijkelijk-belegde-boterham)
+  > De succesvolle belegger Li Lu ziet zijn werk als onderzoeksjournalistiek. Als een bijna-stalker volgt hij de ceo van het bedrijf waarin hij belegt....
+- [Pro steunt stikstofplan, ziet maatregelen wel als ‘het minimale’](https://fd.nl/politiek/1601762/pro-steunt-stikstofplan-ziet-maatregelen-wel-als-het-minimale)
+  > Laura Bromet van oppositiepartij Pro: ‘Het belang van de veehouderij wordt zwaar gewogen. Het idee van een zielige boer is heel makkelijk opgewekt.’
+- [Algemeen directeur Focco Vijselaar binnen vier jaar weg bij VNO-NCW](https://fd.nl/economie/1601658/vijselaar-binnen-vier-jaar-weg-bij-vno-ncw)
+  > Focco Vijselaar vertrekt bij de invloedrijke werkgeversvereniging, enkele maanden na het aantreden van een nieuwe voorzitter.
+- [Geen zicht op meevallers herstel box 3, zegt staatssecretaris van Financiën](https://fd.nl/politiek/1601758/geen-zicht-op-meevallers-herstel-box-3-zegt-staatssecretaris-van-financien)
+  > Er blijft vooralsnog geen geld over van de gereserveerde miljarden voor de hersteloperatie. Er werd gehoopt op een meevaller, om zo een gat in de...
 
 ### Meest gelezen
 
