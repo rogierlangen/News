@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-07-2026 om 09:56*
+*Laatst bijgewerkt: 01-07-2026 om 12:38*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Village People-leadzanger Victor Willis overleden, van YMCA en In The Navy](https://nos.nl/l/2621143)
-  > Victor Willis, de zanger en oprichter van de Amerikaanse discogroep Village People is gisteren op 74-jarige leeftijd overleden, dat heeft de band op...
-- [Japan legt rekening van recordtoerisme bij buitenlandse bezoekers](https://nos.nl/l/2621140)
-  > Japan maakt reizen vanaf vandaag goedkoper voor eigen burgers, maar duurder voor buitenlandse bezoekers. Het land vervijfvoudigt de visumprijzen en...
-- [Inlichtingendiensten houden zich niet aan regels voor datasets met persoonsgegevens](https://nos.nl/l/2621135)
-  > De Nederlandse inlichtingendiensten houden zich niet aan de regels voor 'bulkdatasets', grote datasets met onder andere persoonsgegevens. Het gaat...
-- [Consumenten mogen niet meer knallen, vuurwerkverbod gaat definitief in](https://nos.nl/l/2621134)
-  > Het landelijke vuurwerkverbod gaat op 1 augustus in. Dat betekent dat consumenten bij de komende jaarwisseling geen vuurwerk meer mogen afsteken....
-- [Onderscheiding voor Ilse Baal (94) die Ketikoti naar Alkmaar haalde](https://nos.nl/l/2621133)
-  > De Surinaamse gemeenschap in Nederland heeft een speciale dankbaarheidsonderscheiding uitgereikt aan Ilse Baal (94) uit Alkmaar. De voormalige...
+- [Jetten bij slavernijherdenking: 'Deze energie gaat niet meer weg'](https://nos.nl/l/2621174)
+  > In het Amsterdamse Oosterpark is de nationale herdenking van het slavernijverleden. Er zijn toespraken van onder anderen premier Jetten en...
+- [Vijf boeren gearresteerd bij protest tegen stikstofplannen](https://nos.nl/l/2621172)
+  > De politie in Den Haag heeft vijf mensen aangehouden in het oosten van de stad. Ze reden op tractoren op de Zoetermeerse Rijweg. Burgemeester Van...
+- [Bisschoppen gewijd zonder toestemming Vaticaan, mogelijk schisma ophanden](https://nos.nl/l/2621171)
+  > In een drukbezochte ceremonie in het Zwitserse bergdorp Écône zijn vier priesters tot bisschop gewijd. De wijding is omstreden, omdat het gaat om...
+- [Knik in kabel oorzaak van grote storing op spoor bij Rotterdam](https://nos.nl/l/2621169)
+  > ProRail heeft de oorzaak gevonden van de brand in een kabelgoot die het treinverkeer tussen Rotterdam en het zuiden van Nederland heeft stilgelegd....
+- [Bouwvakkers op Paleis Soestdijk: kozijnen zijn rot en goten lek](https://nos.nl/l/2621168)
+  > Verrotte kozijnen, afgebladderd stucwerk en lekke dakgoten: Paleis Soestdijk kan wel een onderhoudsbeurt gebruiken. Sinds een paar maanden wordt er...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [17 jaar, te veel gedronken, tegen je zin seks met twee veel oudere mannen en toch worden ze vrijgesproken](https://www.ad.nl/binnenland/17-jaar-te-veel-gedronken-tegen-je-zin-seks-met-twee-veel-oudere-mannen-en-toch-worden-ze-vrijgesproken~a12906d8/)
-  > Géén te korte rok aan, niet te veel drinken, niet alleen over straat, niet bij vreemden in de auto stappen. Zeg het alsjeblieft tegen je dochters,...
-- [Rechtse wind waait door Latijns-Amerika: ‘Trumps invloed is groot’](https://www.ad.nl/buitenland/rechtse-wind-waait-door-latijns-amerika-trumps-invloed-is-groot~afee511c/)
-  > Met de komst van de radicaal-rechtse Colombiaanse president Abelardo de la Espriella heeft Latijns-Amerika er opnieuw een Trump-aanhanger bij. „Deze...
-- [Praat mee: ik blijf gewoon pakketjes uit China bestellen, ondanks de extra heffing](https://www.ad.nl/praat-mee/praat-mee-ik-blijf-gewoon-pakketjes-uit-china-bestellen-ondanks-de-extra-heffing~a365a9d5/)
-  > Vanaf vandaag worden pakketjes van buiten de EU duurder. Consumenten betalen voortaan een heffing van minimaal 3 euro per pakket. En dat is...
-- [België en Engeland in actie, VS wil voorbeeld overige gastlanden opvolgen: op deze WK-duels kun je je verheugen](https://www.ad.nl/wk-voetbal/belgie-en-engeland-in-actie-vs-wil-voorbeeld-overige-gastlanden-opvolgen-op-deze-wk-duels-kun-je-je-verheugen~ae556179/)
-  > Op dag 21 van het WK zullen onze zuiderburen het slechte voorbeeld van Oranje niet willen opvolgen. Om 22.00 neemt België het op tegen Afrika...
-- [Krijgt Nederland toch weer directe veerdienst naar Noorwegen? Eemshaven krijgt nieuwe, grotere kade](https://www.ad.nl/binnenland/krijgt-nederland-toch-weer-directe-veerdienst-naar-noorwegen-eemshaven-krijgt-nieuwe-grotere-kade~a717f046/)
-  > Mogelijk krijgt Nederland vanaf 2028 toch weer een directe ferry naar Noorwegen. In de Groningse Eemshaven worden plannen gemaakt voor een nieuwe,...
+- [Canada doet mee aan Eurovisie Songfestival, eerste nieuwe land sinds 2015](https://www.ad.nl/show/canada-doet-mee-aan-eurovisie-songfestival-eerste-nieuwe-land-sinds-2015~a326f966/)
+  > Canada doet volgend jaar mee aan het Eurovisie Songfestival in Bulgarije. Dat heeft de European Broadcasting Union (EBU) woensdag bekendgemaakt....
+- [Vermiste shorttracker Sven Roes (26) geeft teken van leven: ‘Blijven met veel vragen achter’](https://www.ad.nl/schaatsen/vermiste-shorttracker-sven-roes-26-geeft-teken-van-leven-blijven-met-veel-vragen-achter~a94ac246/)
+  > De vermiste shorttracker Sven Roes (26) is in leven. De politie bevestigt dat hij een vlucht naar het buitenland heeft genomen. Zijn familie heeft...
+- [Sylvia Geersen reageert uitgebreid op mishandeling Rotterdams café: ‘Ik zei gedag’](https://www.ad.nl/show/sylvia-geersen-reageert-uitgebreid-op-mishandeling-rotterdams-cafe-ik-zei-gedag~a99ab508/)
+  > Sylvia Geersen (40) heeft voor het eerst uitgebreid gereageerd op haar veelbesproken mishandeling in een Rotterdams café. Volgens het model werd ze...
+- [Italiaanse verdediger Alessandro Bastoni onderzocht voor kinderprostitutie](https://www.ad.nl/voetbal/italiaanse-verdediger-alessandro-bastoni-onderzocht-voor-kinderprostitutie~a16c0f56/)
+  > Alessandro Bastoni, verdediger van Internazionale en Italië, wordt onderzocht in verband met kinderprostitutie. Het onderzoek maakt deel uit van een...
+- [BBB haalt uit naar stikstofplan, maar Kamer neemt ook BBB de maat](https://www.ad.nl/politiek/bbb-haalt-uit-naar-stikstofplan-maar-kamer-neemt-ook-bbb-de-maat~a41724e6/)
+  > Fel debat in de Tweede Kamer: de BBB maakt –zoals verwacht– duidelijk dat die partij he-le-maal niets voelt voor de stikstofplannen van het...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Nasdaq-debuut van Bending Spoons moet laten zien dat grote tech ook uit Europa kan komen](https://fd.nl/bedrijfsleven/1601905/nasdaq-debuut-van-bending-spoons-moet-laten-zien-dat-grote-tech-ook-uit-europa-kan-komen)
+- [Basic-Fit koopt 41 Duitse sportscholen](https://fd.nl/bedrijfsleven/1601825/basic-fit-koopt-41-duitse-sportscholen)
+  > Basic-Fit exploiteert nu in Duitsland 74 sportscholen, waarvan 52 onder eigen naam. Met die van Wellyou erbij groeit dat aantal naar 115.
+- [De klok tikt](https://fd.nl/opinie/1601672/de-klok-tikt)
+  > De meeste AI-rampscenario’s kunnen we zien aankomen. Daarom kunnen we ons er ook op voorbereiden, bijvoorbeeld door nu echt vaart te maken met...
+- [Steeds meer Oekraïense vluchtelingen aan het werk](https://fd.nl/economie/1601818/steeds-meer-oekraiense-vluchtelingen-aan-het-werk)
+  > De arbeidsparticipatie van Oekraïners in Nederland nam in twee jaar toe van 61% naar 67% in 2025.
+- [Dalende energieprijzen drukken inflatiecijfer weer onder de 3%](https://fd.nl/economie/1601907/dalende-energieprijzen-drukken-inflatiecijfer-weer-onder-de-3)
+  > Door de recent gedaalde olie- en gasprijzen daalde de Nederlandse inflatie in juni naar 2,9% op jaarbasis.  In mei lag de consumentenprijsindex (CPI)...
+- [Nasdaq-debuut van Bending Spoons moet laten zien dat big tech ook uit Europa kan komen](https://fd.nl/bedrijfsleven/1601905/nasdaq-debuut-van-bending-spoons-moet-laten-zien-dat-grote-tech-ook-uit-europa-kan-komen)
   > Techbedrijven opkopen en verbeteren. Vanuit dat idee slokte een groep jonge Italianen de laatste jaren grote namen op als Vimeo, AOL en WeTransfer....
-- [Hoe de Italianen binnenslopen bij Commerzbank](https://fd.nl/bedrijfsleven/1600808/hoe-de-italianen-binnenslopen-bij-commerzbank)
-  > Commerzbank probeert UniCredit van het lijf te houden, maar de strijd lijkt tevergeefs. De vraag blijft: speelde UniCredit het spel richting de...
-- [Lidl moet onterecht ontslagen supermarktmanager bijna €170.000 betalen](https://fd.nl/bedrijfsleven/1601814/lidl-moet-onterecht-ontslagen-supermarktmanager-bijna-170-000-betalen)
-  > De man werd op staande voet ontslagen vanwege fraude met de urenregistratie, maar die is helemaal niet vastgesteld.
-- [Leveringszekerheid van medicatie blijft een politiek hoofdpijndossier](https://fd.nl/opinie/1601769/leveringszekerheid-van-medicatie-blijft-een-politiek-hoofdpijndossier)
-  > Omdat we afhankelijk zijn van medicijnen en grondstoffen uit India en China, moeten we deze farmaceutische ketens weerbaarder maken. Dat vraagt om...
-- [Het grootste risico voor de markt zit bij de Fed](https://fd.nl/financiele-markten/1601903/het-grootste-risico-voor-de-markt-zit-bij-de-fed)
-  > De nieuwe Fed-voorzitter Kevin Warsh lijkt met de traditie van zijn voorgangers als het gaat om transparantie rond het rentebeleid te breken,...
 
 ### Meest gelezen
 
