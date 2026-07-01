@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-07-2026 om 20:48*
+*Laatst bijgewerkt: 01-07-2026 om 22:20*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Nieuwe wending toeslagenaffaire? Rechter zet streep door compensatie kinderen](https://nos.nl/l/2621249)
+  > Drie kinderen van een gedupeerde van de toeslagenaffaire krijgen geen compensatie, dat bepaalde de rechter eerder deze week. Terwijl hun ouders dat...
+- [Juni was bijna recordwarm, maar ook een natte maand](https://nos.nl/l/2621246)
+  > De meeste mensen zullen zich juni 2026 blijven herinneren als een maand waarin de hitte intens werd ervaren, vooral in de nachten. Dat het twee keer...
 - [Stel beklimt naald van het Empire State met vredesspandoek, waarna ze zich verloven](https://nos.nl/l/2621242)
   > Twee mensen hebben illegaal de naald van het Empire State Building in New York beklommen. Beelden daarvan gaan rond op sociale media. Het tweetal had...
 - [Dodental Venezuela loopt op naar bijna 2300, ruim tienduizend gewonden](https://nos.nl/l/2621239)
@@ -15,10 +19,6 @@
     ...
 - [Deal tussen kabinet en oppositie over Prinsjesdagplannen nog ver weg](https://nos.nl/l/2621237)
   > Een allesomvattende deal tussen de coalitie en oppositiepartijen Pro of JA21 voor de Prinsjesdagplannen is nog ver weg. Sterker nog: achter de...
-- [Volop geruchten over bruiloft Taylor Swift, maatregelen 'van niveau Pentagon'](https://nos.nl/l/2621233)
-  > "Je docent Engels en je gymleraar gaan trouwen", schreef de Amerikaanse popsensatie Taylor Swift op Instagram bij de aankondiging van haar verloving...
-- [Voor Oekraïense soldaten in het zuiden is terreinwinst op de Russen een opsteker](https://nos.nl/l/2621230)
-  > Vissoep en gebakken meerval staan op het menu voor de lunch. Onder een beschutting in de bossen aan het zuidelijke front zou je bijna vergeten dat de...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [België moet in achtervolging na verdiende goal Senegal, duel even stilgelegd vanwege veldbestormers](https://www.ad.nl/wk-voetbal/belgie-moet-in-achtervolging-na-verdiende-goal-senegal-duel-even-stilgelegd-vanwege-veldbestormers~a50702ec/)
+- [Juventus haalt 19-jarige spits, Liverpool betaalt 63 miljoen voor Frans talent](https://www.ad.nl/voetbal/juventus-haalt-19-jarige-spits-liverpool-betaalt-63-miljoen-voor-frans-talent~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [België ruikt bloed in verlenging na waanzinnige comeback tegen Senegal, ruziënde spelers belangrijk bij goal](https://www.ad.nl/wk-voetbal/belgie-ruikt-bloed-in-verlenging-na-waanzinnige-comeback-tegen-senegal-ruziende-spelers-belangrijk-bij-goal~a50702ec/)
   > België kende een lastige groepsfase, maar won op het cruciale moment ruim van Nieuw-Zeeland (5-1). Als groepswinnaar staan de Belgen nu tegenover...
-- [Waaghals beklimt spits Empire State Building met partner en gaat voor haar op zijn knieën](https://www.ad.nl/buitenland/waaghals-beklimt-spits-empire-state-building-met-partner-en-gaat-voor-haar-op-zijn-knieen~a99f42323/)
-  > Twee gemaskerde mensen hebben helemaal boven op het Empire State Building in New York gestaan met een spandoek. Op het spandoek stond een...
-- [Podcast In Het Wiel | ‘We krijgen zondag een oranje feestje’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-we-krijgen-zondag-een-oranje-feestje~a5ea502e/)
-  > Nog een paar dagen en dan is het zover: de start van de 113e Tour de France. Dat betekent ook dat In Het Wiel er weer elke dag is, met analyses na de...
+- [Vakantieparken blijven groeien: 4000 parken, 135.000 huisjes en kopers die vaak direct aftikken](https://www.ad.nl/wonen/vakantieparken-blijven-groeien-4000-parken-135-000-huisjes-en-kopers-die-vaak-direct-aftikken~abbcafd9/)
+  > Vakantiewoningen blijven razend populair. Het aantal vakantieparken is weer licht toegenomen, en de prijs van de huisjes is gestegen. Vooral de...
 - [Roland Garros-kampioene uitgeschakeld, Jannik Sinner en Novak Djokovic naar derde ronde](https://www.ad.nl/tennis/roland-garros-kampioene-uitgeschakeld-jannik-sinner-en-novak-djokovic-naar-derde-ronde~aff1a2be/)
   > Het grootste grastennistoernooi is begonnen. Tussen 29 juni en 11 juli strijden de beste tennissers ter wereld om de titel op Wimbledon. Hier blijf...
-- [Bom barst in game-land: PlayStation stopt met fysieke verkoop van spellen, gamers de klos](https://www.ad.nl/tech/bom-barst-in-game-land-playstation-stopt-met-fysieke-verkoop-van-spellen-gamers-de-klos~ac27b029/)
-  > Het einde van tweedehandsgames en uitpuilende kasten vol spellen is in zicht. Vanaf januari 2028 brengt Sony geen nieuwe PlayStation-games meer uit...
+- [Moeder Griekse politica gedood bij aanslag](https://www.ad.nl/buitenland/moeder-griekse-politica-gedood-bij-aanslag~aa4e4268/)
+  > In de Griekse stad Thessaloniki zijn bij verschillende appartementen drie aanslagen gepleegd die gericht waren op leden van de regeringspartij Nieuwe...
 
 ### Meest gelezen
 
