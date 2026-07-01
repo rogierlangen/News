@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-06-2026 om 22:17*
+*Laatst bijgewerkt: 01-07-2026 om 00:10*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Invallen in verschillende landen om misbruik EU-geld radicaal-rechts](https://nos.nl/l/2621095)
+  > In verschillende landen zijn invallen gedaan in een onderzoek naar misbruik van EU-geld door politieke partijen. Europarlementariër Jordan Bardella...
+- [Amnesty: etnische zuivering door RSF bij verovering van Sudanese stad Al-Fasher](https://nos.nl/l/2621094)
+  > De paramilitaire Rapid Support Forces (RSF) heeft zich bij de verovering van de stad Al-Fasher in Sudan schuldig gemaakt aan etnische zuivering. In...
 - [Omstreden ov-bedrijf België vergeet urenlang kind in busje](https://nos.nl/l/2621089)
   > Het Belgische busbedrijf dat vorige maand betrokken was bij een dodelijk ongeluk, is opnieuw in opspraak gekomen. Een chauffeur blijkt deze week een...
 - [Aangereden eend lift kilometers mee op de voorbumper](https://nos.nl/l/2621086)
   > Een aangereden eend heeft op de bumper van een auto een kilometerslange rit overleefd. Het dier kon na zijn tocht gisteren door de dierenambulance...
 - [Dak Pakistaanse school stort in, 14 leerlingen omgekomen](https://nos.nl/l/2621085)
   > In de Pakistaanse stad Lahore zijn zeker veertien kinderen omgekomen toen het gebouw waar ze les kregen instortte. Acht andere kinderen raakten...
-- [Italië betaalt miljoenen voor Etruskische fresco's: 'Dit is ons cultureel erfgoed'](https://nos.nl/l/2621082)
-  > De Italiaanse staat heeft voor 15 miljoen euro fresco's aangeschaft van een Etruskisch graf, dat minstens 2300 jaar oud is. Het gaat om een van de...
-- [Telers gebruiken geregeld te veel landbouwgif bij scholen of kwetsbare natuur](https://nos.nl/l/2621071)
-  > Telers dicht bij basisscholen of Europese beschermde natuurgebieden houden zich niet altijd aan de wettelijke voorschriften voor het gebruik van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Nabestaanden klagen Maduro in VS aan om politiemoorden 2017-2020](https://www.ad.nl/buitenland/nabestaanden-klagen-maduro-in-vs-aan-om-politiemoorden-2017-2020~afb86c2e/)
+  > Familieleden van vijf omgebrachte Venezolaanse jongemannen hebben in New York een civiele rechtszaak aangespannen tegen Nicolás Maduro. De...
+- [Republikeinen houden ongebruikelijk partijcongres voor midterms](https://www.ad.nl/buitenland/republikeinen-houden-ongebruikelijk-partijcongres-voor-midterms~ae67dd9c/)
+  > De Republikeinen houden in september een partijcongres in Dallas in aanloop naar de Amerikaanse tussentijdse verkiezingen ('midterms') in november....
+- [Blake Lively eist miljoenen aan juridische kosten van Justin Baldoni](https://www.ad.nl/show/blake-lively-eist-miljoenen-aan-juridische-kosten-van-justin-baldoni~a192bde5/)
+  > Blake Lively eist een bedrag van 8,4 miljoen dollar (7,3 miljoen euro) van Justin Baldoni om haar juridische kosten te dekken in de smaadzaak die hij...
+- [Franse aanvalsmachine laat ook Zweden kansloos op WK, Kylian Mbappé zit Lionel Messi op de hielen](https://www.ad.nl/wk-voetbal/franse-aanvalsmachine-laat-ook-zweden-kansloos-op-wk-kylian-mbappe-zit-lionel-messi-op-de-hielen~a9ab14e3/)
+  > Frankrijk heeft zich in het snikhete New York op indrukwekkende wijze geplaatst voor de achtste finales van het WK. De grote favoriet voor de...
 - [Steeds meer nieuwbouw opgeleverd, maar opleving is van korte duur](https://www.ad.nl/politiek/steeds-meer-nieuwbouw-opgeleverd-maar-opleving-is-van-korte-duur~a3e4843b/)
   > Volgend jaar worden er naar verwachting 100.000 nieuwe woningen opgeleverd. Het is voor het eerst sinds jaren dat dat doel wordt bereikt. Helaas zakt...
-- [Duitse econoom zegt sorry voor onjuiste voorspelling wereldtitel Oranje: ‘Ik zou mijn geld nu op Spanje zetten’](https://www.ad.nl/wk-voetbal/duitse-econoom-zegt-sorry-voor-onjuiste-voorspelling-wereldtitel-oranje-ik-zou-mijn-geld-nu-op-spanje-zetten~ab799af2/)
-  > De Duitse econoom Joachim Klement heeft zijn excuses aangeboden aan de Nederlandse fans en spelers. Hij voorspelde dat Oranje wereldkampioen zou...
-- [Het legde bloot waar Koeman als coach voor staat: voetbal als een fantasieloos jaren ‘70-rijtjeshuis](https://www.ad.nl/wk-voetbal/het-legde-bloot-waar-koeman-als-coach-voor-staat-voetbal-als-een-fantasieloos-jaren-70-rijtjeshuis~aa4744a3/)
-  > Columnist Sjoerd Mossou blikt terug op het dienstverband van Ronald Koeman bij Oranje. „Over zijn laatste jaren als bondscoach kunnen we kort zijn:...
-- [Ronald Koeman houdt eer aan zichzelf en stapt op als bondscoach van Oranje: ‘Doet pijn dat het zo eindigt’](https://www.ad.nl/wk-voetbal/ronald-koeman-houdt-eer-aan-zichzelf-en-stapt-op-als-bondscoach-van-oranje-doet-pijn-dat-het-zo-eindigt~afd4cdb9/)
-  > Ronald Koeman heeft besloten om op te stappen als bondscoach van het Nederlands elftal. Dat maakt de 63-jarige trainer daags na de pijnlijke...
-- [Franse droomaanval ook voor Zweden ongrijpbaar: Barcola verdubbelt de voorsprong](https://www.ad.nl/wk-voetbal/franse-droomaanval-ook-voor-zweden-ongrijpbaar-barcola-verdubbelt-de-voorsprong~a9ab14e3/)
-  > Topfavoriet Frankrijk staat tegenover Zweden, de nummer 3 in de poule van Oranje, in de zestiende finale. Kan Zweden verrassen of gaat Frankrijk door...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Zweten voor gevorderden](https://fd.nl/opinie/1601753/zweten-voor-gevorderden)
+  > Waarom voelt dertig graden in Nederland vaak zwaarder dan 30 graden in Spanje? Het antwoord zit niet alleen in de thermometer, maar ook in ons eigen...
+- [‘Bijna een derde van alle regels belemmert mkb’ers’](https://fd.nl/bedrijfsleven/1601657/bijna-een-derde-van-alle-regels-belemmert-mkbers)
+  > Veel regelingen werken belemmerend voor ondernemers en moeten aanzienlijk worden aangepast. Dat blijkt uit een praktijkanalyse van het Instituut voor...
+- [Ondernemer met klein bedrijf verdient minder dan een zzp’er](https://fd.nl/bedrijfsleven/1599894/ondernemer-met-klein-bedrijf-verdient-minder-dan-een-zzper)
+  > Bedrijven tot vijftig werknemers zien al drie jaar hun winstmarges slinken, vooral door stijgende loonkosten en de afbouw van belastingvoordelen....
+- [Personalia woensdag 1 juli](https://fd.nl/bedrijfsleven/1601770/personalia-woensdag-1-juli)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [Amerikaanse beurzen sluiten beste kwartaal in jaren positief af](https://fd.nl/financiele-markten/1601899/amerikaanse-beurzen-sluiten-beste-kwartaal-in-jaren-positief-af)
   > Met het sluiten van de beurzen komt een einde aan het tweede kwartaal en de eerste helft van 2026. Ondanks de geopolitieke onrust boekten de...
-- [Anthropic lanceert AI-tool voor farmaceutische bedrijven](https://fd.nl/bedrijfsleven/1601788/anthropic-lanceert-ai-tool-voor-farmaceutische-bedrijven)
-  > De AI-gigant roert zich met een nieuw model op markt van markt voor geneesmiddelen.
-- [Ontevreden Eerste Kamer stelt stemming over box 3 wetsvoorstel uit](https://fd.nl/politiek/1601877/kabinet-mag-van-coalitiepartijen-nog-een-zomer-lang-sleutelen-aan-box-3)
-  > De Eerste Kamer stemt waarschijnlijk pas volgend jaar over de nieuwe box 3 belasting. Daarmee voorkomt de senaat dat het kabinet-Jetten er een...
-- [Te land, ter zee én in de lucht: marine-oefening met allerlei soorten drones komt van de grond](https://fd.nl/samenleving/1601668/ter-land-ter-zee-en-in-de-lucht-marine-oefening-met-allerlei-soorten-drones-komt-van-de-grond)
-  > De Koninklijke Marine oefent al vier weken voor de Noord-Hollandse kust hoe drones in de lucht, op zee én onder zee beter kunnen samenwerken....
-- [Frans elektronicaconcern Schneider koopt Noorse softwaremaker](https://fd.nl/bedrijfsleven/1601876/frans-elektronicaconcern-schneider-koopt-noorse-softwaremaker)
-  > Met overname hoopt Schneider positie van dataleverancier te versterken.
 
 ### Meest gelezen
 
