@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-07-2026 om 22:20*
+*Laatst bijgewerkt: 02-07-2026 om 00:12*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Minister Van Essen 'beducht' voor verzachten stikstofplannen, Pro trekt anders steun in](https://nos.nl/l/2621253)
+  > Het kabinet voelt er weinig voor aanpassingen te doen aan de nieuwe stikstofplannen. Allerlei oppositiepartijen, vooral aan de rechtse kant, willen...
 - [Nieuwe wending toeslagenaffaire? Rechter zet streep door compensatie kinderen](https://nos.nl/l/2621249)
   > Drie kinderen van een gedupeerde van de toeslagenaffaire krijgen geen compensatie, dat bepaalde de rechter eerder deze week. Terwijl hun ouders dat...
 - [Juni was bijna recordwarm, maar ook een natte maand](https://nos.nl/l/2621246)
@@ -17,8 +19,6 @@
 - [Dodental Venezuela loopt op naar bijna 2300, ruim tienduizend gewonden](https://nos.nl/l/2621239)
   > Het dodental na de aardbevingen in Venezuela is opgelopen tot zeker 2295. Dat meldt parlementsvoorzitter Jorge Rodríguez op een persconferentie.
     ...
-- [Deal tussen kabinet en oppositie over Prinsjesdagplannen nog ver weg](https://nos.nl/l/2621237)
-  > Een allesomvattende deal tussen de coalitie en oppositiepartijen Pro of JA21 voor de Prinsjesdagplannen is nog ver weg. Sterker nog: achter de...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Juventus haalt 19-jarige spits, Liverpool betaalt 63 miljoen voor Frans talent](https://www.ad.nl/voetbal/juventus-haalt-19-jarige-spits-liverpool-betaalt-63-miljoen-voor-frans-talent~ad10f02c/)
-  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
-- [België ruikt bloed in verlenging na waanzinnige comeback tegen Senegal, ruziënde spelers belangrijk bij goal](https://www.ad.nl/wk-voetbal/belgie-ruikt-bloed-in-verlenging-na-waanzinnige-comeback-tegen-senegal-ruziende-spelers-belangrijk-bij-goal~a50702ec/)
-  > België kende een lastige groepsfase, maar won op het cruciale moment ruim van Nieuw-Zeeland (5-1). Als groepswinnaar staan de Belgen nu tegenover...
-- [Vakantieparken blijven groeien: 4000 parken, 135.000 huisjes en kopers die vaak direct aftikken](https://www.ad.nl/wonen/vakantieparken-blijven-groeien-4000-parken-135-000-huisjes-en-kopers-die-vaak-direct-aftikken~abbcafd9/)
-  > Vakantiewoningen blijven razend populair. Het aantal vakantieparken is weer licht toegenomen, en de prijs van de huisjes is gestegen. Vooral de...
-- [Roland Garros-kampioene uitgeschakeld, Jannik Sinner en Novak Djokovic naar derde ronde](https://www.ad.nl/tennis/roland-garros-kampioene-uitgeschakeld-jannik-sinner-en-novak-djokovic-naar-derde-ronde~aff1a2be/)
-  > Het grootste grastennistoernooi is begonnen. Tussen 29 juni en 11 juli strijden de beste tennissers ter wereld om de titel op Wimbledon. Hier blijf...
-- [Moeder Griekse politica gedood bij aanslag](https://www.ad.nl/buitenland/moeder-griekse-politica-gedood-bij-aanslag~aa4e4268/)
-  > In de Griekse stad Thessaloniki zijn bij verschillende appartementen drie aanslagen gepleegd die gericht waren op leden van de regeringspartij Nieuwe...
+- [Verenigde Staten met Dest en Tillman tegen Bosnië, Dzeko (40) schrijft geschiedenis](https://www.ad.nl/wk-voetbal/verenigde-staten-met-dest-en-tillman-tegen-bosnie-dzeko-40-schrijft-geschiedenis~a0c56a2e/)
+  > De Verenigde Staten speelt in de zestiende finales van het WK tegen Bosnië en Herzegovina. De winnaar neemt het in de achtste finales op tegen...
+- [TMZ: Melania Trump verdiende 10 miljoen dollar aan geflopte documentaire](https://www.ad.nl/show/tmz-melania-trump-verdiende-10-miljoen-dollar-aan-geflopte-documentaire~a7db062b8/)
+  > De documentaire Melania, over het leven van de First Lady van de VS, heeft maar relatief weinig bioscoopbezoekers getrokken. Toch heeft Melania Trump...
+- [België slaat drie keer laat toe: Youri Tielemans de held met rake penalty in 125ste minuut tegen Senegal](https://www.ad.nl/wk-voetbal/belgie-slaat-drie-keer-laat-toe-youri-tielemans-de-held-met-rake-penalty-in-125ste-minuut-tegen-senegal~a50702ec/)
+  > België is op miraculeuze wijze ontsnapt aan uitschakeling op het WK voetbal. De Rode Duivels bogen in de slotfase tegen Senegal in een tijdsbestek...
+- [Dit is de weg richting de WK-finale en het virtuele schema voor de achtste finales](https://www.ad.nl/wk-voetbal/dit-is-de-weg-richting-de-wk-finale-en-het-virtuele-schema-voor-de-achtste-finales~a10011c9/)
+  > De groepsfase van het WK voetbal is gespeeld. In dit overzicht lees je welke landen zich hebben geplaatst voor de knock-outfase, voor wie het...
+- [Grote natuurbrand teistert Zuid-Frankrijk](https://www.ad.nl/buitenland/grote-natuurbrand-teistert-zuid-frankrijk~a8111a20/)
+  > In het zuiden van Frankrijk woedt een grote natuurbrand, waardoor tientallen mensen moesten worden geëvacueerd. Honderden brandweerlieden zijn...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Defensiebedrijf KNDS schort beursgang op, wil wachten op gunstiger moment](https://fd.nl/bedrijfsleven/1602112/defensiebedrijf-knds-schort-beursgang-op-wil-wachten-op-gunstiger-moment)
-  > De Frans-Duitse wapenfabrikant ziet verwachte opbrengst notering slinken door negatief sentiment rond defensiebedrijven.
-- [Wall Street maakt pas op de plaats](https://fd.nl/financiele-markten/1602210/wall-street-maakt-pas-op-de-plaats)
-  > Beleggers keken vooral naar uitspraken van Fed-voorzitter Keven Warsh over inflatierisico’s.
-- [Kritiek in de Kamer op het stikstofpakket is luid en fel, maar voor de plannen is toch genoeg steun](https://fd.nl/politiek/1602184/de-kritiek-op-het-stikstofpakket-is-luid-en-fel-maar-voor-de-plannen-is-wel-genoeg-steun)
-  > Niet de coalitie, maar oppositiepartij Pro kreeg de meeste kritiek van andere fracties uit de oppositie tijdens een kamerdebat over de nieuwe...
-- [Videoland neemt Viaplay Nederland over voor €142 mln](https://fd.nl/bedrijfsleven/1602089/videoland-neemt-viaplay-nederland-over-voor-142-mln)
-  > Daarmee gaat de streamingdienst ook live sport uitzenden. Met de opbrengst wil Viaplay zijn schuldenlast verlagen.
-- [Sif ziet af van obligatieuitgifte vanwege marktomstandigheden](https://fd.nl/bedrijfsleven/1602186/sif-ziet-af-van-obligatieuitgifte-vanwege-marktomstandigheden)
-  > Het bedrijf uit Roermond dat windmolenfunderingen bouwt zegt nu dat het alternatieve financieringsmogelijkheden blijft onderzoeken.
+- [Groot idee, grote bubbel](https://fd.nl/opinie/1602085/groot-idee-grote-bubbel)
+  > De dollars blijven maar naar AI stromen. Grote vraag: gaat op een gegeven moment de bubbel barsten?
+- [Beperkende maatregelen die stevig ingrijpen? Graag – maar dan niet voor mij](https://fd.nl/opinie/1601656/beperkende-maatregelen-maar-niet-voor-mij-graag)
+  > ‘Don’t tax me, tax the fellow behind the tree’. Zo vatte de Amerikaanse senator Russell Long al in de jaren zeventig selectieve pleidooien samen....
+- [Financieringsadvies van chatbot pakt niet goed uit voor bitcoinopkoper Strategy](https://fd.nl/financiele-markten/1601651/financieringsadvies-van-chatbot-pakt-niet-goed-uit-voor-bitcoinopkoper-strategy)
+  > Strategy liet een chatbot een financieringsmethode bedenken. Dat was geen succes. Nu moet het bedrijf mogelijk juist bitcoins verkopen.
+- [Schoon vrachtvervoer in de stad krijgt eindelijk vaart](https://fd.nl/bedrijfsleven/1600854/schoon-vrachtvervoer-in-de-stad-krijgt-eindelijk-vaart)
+  > Sommige fabrikanten van duurzaam vrachtvervoer zien sinds begin dit jaar eindelijk een omslag, anderen verwachten de piek in bestellingen pas over...
+- [Personalia donderdag 2 juli](https://fd.nl/bedrijfsleven/1602182/personalia-donderdag-2-juli)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
