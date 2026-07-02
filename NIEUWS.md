@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-07-2026 om 05:00*
+*Laatst bijgewerkt: 02-07-2026 om 09:18*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Wekdienst 2/7: Debat over kerncentrales • Bruno Mars start concertreeks Amsterdam](https://nos.nl/l/2621269)
-  > Goedemorgen! In de Tweede Kamer wordt gedebatteerd over twee mogelijk nieuwe kerncentrales, Bruno Mars begint aan zijn concertreeks in de Johan...
-- [Nederlandse jongeren vaker dan gedacht in buitenland gedwongen tot prostitutie](https://nos.nl/l/2621267)
-  > Meer dan honderd Nederlandse meisjes en jonge vrouwen zijn de afgelopen jaren vermoedelijk uitgebuit in de prostitutie in België en Duitsland. Op...
-- [Alleen nog les in het Mandarijn: China perkt ruimte voor minderheden verder in](https://nos.nl/l/2621266)
-  > Volgens de Chinese overheid moet het de 'eenheid', 'sociale harmonie' en een 'gedeelde nationale identiteit' promoten, volgens experts is dit de...
-- [Zestien verwaarloosde kinderen gered uit huis in VS: 'Leken wel wilde dieren'](https://nos.nl/l/2621264)
-  > De Amerikaanse politie heeft op het platteland van de staat Ohio zestien verwaarloosde kinderen uit een woning gehaald. De jongens en meisjes van...
-- [Zeker acht doden bij zware Russische luchtaanvallen op Kyiv](https://nos.nl/l/2621259)
-  > Rusland heeft vannacht een grote aanval met drones en raketten uitgevoerd op de Oekraïense hoofdstad Kyiv. Daarbij zijn volgens de lokale...
+- [Oekraïense vluchtelingen in Hoorn moeten bij verhuizing huisdieren wegdoen](https://nos.nl/l/2621297)
+  > Acht Oekraïense gezinnen moeten binnenkort waarschijnlijk afstand doen van hun huisdieren vanwege een verhuizing naar een nieuwe opvanglocatie in...
+- [Elektrische fiets steeds populairder, vooral onder jongeren](https://nos.nl/l/2621296)
+  > Steeds meer mensen fietsen elektrisch, blijkt uit onderzoek van het RIVM. Van alle fietsers van 12 jaar en ouder gebruikte 43 procent vorig jaar een...
+- [Oekraïense drone-aanvallen leiden tot acute brandstofcrisis in Rusland](https://nos.nl/l/2621295)
+  > Steeds meer Russische sectoren komen in de problemen door het tekort aan brandstof als gevolg van de aanhoudende Oekraïense drone-aanvallen op...
+- [Hogere hypotheekrente drukt stijging van huizenprijzen](https://nos.nl/l/2621294)
+  > Door met name de hogere hypotheekrente zullen de huizenprijzen dit jaar met maar 3 procent stijgen, verwacht ABN Amro. Voor volgend jaar voorziet de...
+- [Ruim 150 slachtoffers en daders van 'drogeerverkrachtingen' geïdentificeerd](https://nos.nl/l/2621291)
+  > In een grootschalig onderzoek naar zogenoemde drogeerverkrachtingen zijn meer dan 150 slachtoffers en daders geïdentificeerd, meldt de Europese...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Verbazing en blijdschap in Heerenveen na toewijzing Winterspelen: ‘We staan op de wereldkaart’](https://www.ad.nl/binnenland/verbazing-en-blijdschap-in-heerenveen-na-toewijzing-winterspelen-we-staan-op-de-wereldkaart~a41ab395/)
-  > Echt waar: de Olympische Winterspelen komen naar Heerenveen. Nou ja, een deel ervan. Tienduizenden sportliefhebbers zullen in 2030 naar het Friese...
-- [Geloven de spelers van Oranje halfgod Thierry Henry misschien inmiddels wel?](https://www.ad.nl/voetbal/geloven-de-spelers-van-oranje-halfgod-thierry-henry-misschien-inmiddels-wel~aea6b803/)
-  > Twee keer per week blijft columnist Hugo Borst de hele nacht op. In ‘De Nachtkijker’ neemt hij ons mee in zijn beleving van een nachtje WK.
-- [Lukaku verklaart waarom hij penalty in 125ste minuut aan Tielemans liet: ‘Mentaal ben ik daar nog niet klaar voor’](https://www.ad.nl/wk-voetbal/lukaku-verklaart-waarom-hij-penalty-in-125ste-minuut-aan-tielemans-liet-mentaal-ben-ik-daar-nog-niet-klaar-voor~a665b43c/)
-  > Toen niemand in België er meer in geloofde, was hij daar plots weer: Romelu Lukaku. Na een seizoen met nauwelijks speeltijd en het overlijden van...
-- [Deze twee modellen zijn veruit favoriet bij kopers van elektrische occasions](https://www.ad.nl/auto/deze-twee-modellen-zijn-veruit-favoriet-bij-kopers-van-elektrische-occasions~a6403e5a/)
-  > Merk, model en bouwjaar zijn voor Nederlanders veel belangrijker dan actieradius bij de zoektocht naar een tweedehands elektrische auto. Dat blijkt...
-- [Zangwedstrijd in Minion-taal gaat viraal: ‘Betere versie van Bohemian Rhapsody ga je nooit meer horen’](https://www.ad.nl/buitenland/zangwedstrijd-in-minion-taal-gaat-viraal-betere-versie-van-bohemian-rhapsody-ga-je-nooit-meer-horen~a24119e3/)
-  > Altijd al eens willen weten hoe een zangwedstrijd zou klinken als er alleen maar minions aan zouden meedoen? In het kader van de nieuwste...
+- [‘Vergeet het maar’ en ‘de grafsteen op ons WK’ werd ineens ‘The Great Escape’: België beleeft bizarre achtbaanrit](https://www.ad.nl/wk-voetbal/vergeet-het-maar-en-de-grafsteen-op-ons-wk-werd-ineens-the-great-escape-belgie-beleeft-bizarre-achtbaanrit~a08d670b/)
+  > De Rode Duivels zaten tegen Senegal ruim 85 minuten in de voetbalhel, maar ontsnapten (3-2). En dus staat België in de achtste finale van het WK. De...
+- [Column Sjoerd Mossou | Arne Slot kan alleen bondscoach worden als hij ons trauma serieus neemt](https://www.ad.nl/voetbal/column-sjoerd-mossou-arne-slot-kan-alleen-bondscoach-worden-als-hij-ons-trauma-serieus-neemt~af6300b0/)
+  > Volgens columnist Sjoerd Mossou moet Arne Slot bij zijn sollicitatiegesprek aan één cruciale voorwaarde voldoen. „Hupjes, huppeltjes, danspasjes,...
+- [Verdachte van dodelijke aanslag op de Haagse Tarwekamp wil mediation om ‘zijn excuses aan te bieden’](https://www.ad.nl/den-haag/verdachte-van-dodelijke-aanslag-op-de-haagse-tarwekamp-wil-mediation-om-zijn-excuses-aan-te-bieden~a4737269/)
+  > Een verdachte van de dodelijke aanslag op de Haagse Tarwekamp in december 2024 wil mediation met de slachtoffers en nabestaanden om zijn excuses aan...
+- [Burgemeester Kyiv noemt aanval van vannacht grootste sinds begin oorlog: dag van rouw afgekondigd](https://www.ad.nl/buitenland/burgemeester-kyiv-noemt-aanval-van-vannacht-grootste-sinds-begin-oorlog-dag-van-rouw-afgekondigd~adfb97be/)
+  > De burgemeester van Kyiv heeft de aanval op de Oekraïense hoofdstad de grootste tot dusver in de oorlog met Rusland genoemd. ‘Morgen, 3 juli, is...
+- [Joy (24) dacht boeven te gaan vangen, maar ziet vooral menselijk leed: ‘Je wordt hier heel snel volwassen’](https://www.ad.nl/binnenland/joy-24-dacht-boeven-te-gaan-vangen-maar-ziet-vooral-menselijk-leed-je-wordt-hier-heel-snel-volwassen~a3cb7087/)
+  > Misdaden oplossen en boeven vangen. Met dat idee beginnen veel jongeren aan hun politieopleiding. De realiteit is dat ze vooral veel ellende zien en...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘Gedoe bij een advocatenkantoor gaat eigenlijk altijd om geld’](https://fd.nl/bedrijfsleven/1600735/gedoe-bij-een-advocatenkantoor-gaat-eigenlijk-altijd-om-geld)
-  > De gerenommeerde consultant Jaap Bosman verwacht dat AI traditionele partnerbeloningen bij advocatenkantoren nog verder onder druk zal zetten.
-- [Nederland is een cryptodrama rijker](https://fd.nl/economie/1602077/nederland-is-een-cryptodrama-rijker)
-  > Vandaag in Dagkoers: cryptobroker Knaken bezorgt Nederland zijn eigen FTX-fiasco en het Italiaanse Bending Spoons brengt Europese tech naar de Nasdaq.
-- [Groot idee, grote bubbel](https://fd.nl/opinie/1602085/groot-idee-grote-bubbel)
-  > De dollars blijven maar naar AI stromen. Grote vraag: gaat op een gegeven moment de bubbel barsten?
-- [Beperkende maatregelen die stevig ingrijpen? Graag – maar dan niet voor mij](https://fd.nl/opinie/1601656/beperkende-maatregelen-maar-niet-voor-mij-graag)
-  > ‘Don’t tax me, tax the fellow behind the tree’. Zo vatte de Amerikaanse senator Russell Long al in de jaren zeventig selectieve pleidooien samen....
-- [Financieringsadvies van chatbot pakt niet goed uit voor bitcoinopkoper Strategy](https://fd.nl/financiele-markten/1601651/financieringsadvies-van-chatbot-pakt-niet-goed-uit-voor-bitcoinopkoper-strategy)
-  > Strategy liet een chatbot een financieringsmethode bedenken. Dat was geen succes. Nu moet het bedrijf mogelijk juist bitcoins verkopen.
+- [Uitwerpselen als alternatief: groen gas heeft alles mee, behalve de prijs](https://fd.nl/politiek/1601823/uitwerpselen-als-alternatief-groen-gas-heeft-alles-mee-behalve-de-prijs)
+  > Niet iedereen is enthousiast over een wetsvoorstel om gas uit slib en mest verplicht te mengen door de aardgasleidingen. ‘Het komt bovenop al die...
+- [Het gammele gemaal dat miljoenen mensen behoedt voor overstroming](https://fd.nl/politiek/1601301/het-gammele-gemaal-dat-miljoenen-mensen-behoedt-voor-overstroming)
+  > Het gemaal in IJmuiden is van cruciaal belang voor bescherming van het achterland. Maar het complex is sterk verouderd en geld voor vervanging en...
+- [Duitse dronebouwer Quantum Systems trekt $1,2 mrd aan kapitaal aan](https://fd.nl/bedrijfsleven/1602117/duitse-dronebouwer-quantum-systems-trekt-1-2mrd-aan-kapitaal-aan)
+  > In totaal heeft Quantum Systems nu zo’n €1,8 mrd à €1,9 mrd aangetrokken. Het nieuwe geld is bedoeld voor groei en voor investeringen in een...
+- [Polarisatie op de planken: ‘Als theater kan je ergens voor staan’](https://fd.nl/samenleving/1601817/polarisatie-op-de-planken-als-theater-kan-je-ergens-voor-staan)
+  > De maatschappelijke onrust dringt ook of júíst in de theaters door. En zij pakken hun rol. ‘Je kunt je uitspreken met heldere keuzes in de...
+- [Kyiv zwaar getroffen door Russische aanval](https://fd.nl/samenleving/1602211/kyiv-zwaar-getroffen-door-russische-aanval)
+  > Het was de ergste Russische aanval op het land sinds half juni.
 
 ### Meest gelezen
 
