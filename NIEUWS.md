@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-07-2026 om 19:36*
+*Laatst bijgewerkt: 02-07-2026 om 21:12*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Vaticaan breekt met priesters en bisschoppen om wijding zonder toestemming](https://nos.nl/l/2621382)
+  > Het Vaticaan heeft zoals verwacht bisschoppen van de ultraconservatieve Priesterbroederschap Sint Pius X (SSPX) geëxcommuniceerd. Dat is gebeurd...
+- [Veel lagere straf dan geëist voor dodelijke schietpartij Coevorden](https://nos.nl/l/2621380)
+  > Een 24-jarige man uit Schoonebeek is veroordeeld tot een celstraf van negen jaar voor het medeplegen van een dodelijke schietpartij in Coevorden,...
+- [Voor drie kwetsbare kinderen is er nog geen plek na sluiting zorgvilla's](https://nos.nl/l/2621369)
+  > Op drie na is er voor alle zeer kwetsbare kinderen die verbleven in een zorgvilla van Villa ExpertCare een andere zorgplek gevonden. Dat zei minister...
 - [Onderzoek: vreemdgaande mezen kiezen voor mannetje met beter ruimtelijk inzicht](https://nos.nl/l/2621365)
   > Vreemdgaande vrouwtjes van een Noord-Amerikaanse mezensoort kiezen als extra partner vaak een mannetje met beter ruimtelijk inzicht dan hun huidige...
 - [Pakket maatregelen moet Duitse economie redden: ziek melden wordt veel moeilijker](https://nos.nl/l/2621363)
   > Niet in de gebruikelijke blauwgrijze zaal, maar buiten in de zonnige groene tuin van het kantoor van de bondskanselier presenteert de Duitse regering...
-- [Twee maanden na de grote natuurbrand kleurt Oirschotse Heide weer groen](https://nos.nl/l/2621360)
-  > De Oirschotse Heide herstelt zich na de grote natuurbrand van eind april. Op verschillende plekken zijn plukjes groen te ontdekken, in wat twee...
-- [Google moet definitief Europese miljardenboete betalen](https://nos.nl/l/2621357)
-  > Het Europese Hof van Justitie heeft het hoger beroep van Google tegen de miljardenboete uit 2018 verworpen. Google maakt volgens het hof misbruik van...
-- [Einde van fysieke PlayStation-spellen brengt veel teweeg: 'Bizarre keuze'](https://nos.nl/l/2621354)
-  > Nog anderhalf jaar werken de Sony-fabrieken op volle toeren om de nieuwste games op schijfjes te zetten, maar daarna is het klaar. Vanaf 2028 komen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Franse kippenboer Stéphane verloor de helft van zijn 4000 kippen: ‘Het was 41 graden, dan kun je niets meer doen’](https://www.ad.nl/buitenland/franse-kippenboer-stephane-verloor-de-helft-van-zijn-4000-kippen-het-was-41-graden-dan-kun-je-niets-meer-doen~a8c22db9/)
-  > De hittegolf van vorige week in Frankrijk blijkt desastreus te zijn geweest voor vee en huisdieren. Miljoenen kippen stierven door de extreme...
-- [Doelpunt Spanje afgekeurd wegens hinderen van keeper, PSV’er in basis bij Oostenrijk](https://www.ad.nl/wk-voetbal/doelpunt-spanje-afgekeurd-wegens-hinderen-van-keeper-psver-in-basis-bij-oostenrijk~a355b0b3/)
-  > Na het gelijkspel tegen Kaapverdië (0-0) herstelde Spanje zich. De enkelvoudig wereldkampioen neemt het daardoor als groepswinnaar op tegen...
-- [Alcohol is gezond en goed voor je](https://www.ad.nl/binnenland/alcohol-is-gezond-en-goed-voor-je~a6d77ee7/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [Ook Louis van Gaal vertrekt bij Ajax: focus op de korte termijn van Jordi Cruijff staat haaks op zijn visie](https://www.ad.nl/voetbal/ook-louis-van-gaal-vertrekt-bij-ajax-focus-op-de-korte-termijn-van-jordi-cruijff-staat-haaks-op-zijn-visie~a0b256f1/)
-  > Louis van Gaal (74) is gestopt als adviseur van Ajax. Zijn besluit volgt een dag nadat protegé Marijn Beuker de club heeft verlaten. Ajax vaart de...
-- [Dodental na aanvallen Kyiv loopt op naar 21, voor 1,5 miljoen aan hulpgoederen Rode Kruis verwoest](https://www.ad.nl/buitenland/dodental-na-aanvallen-kyiv-loopt-op-naar-21-voor-1-5-miljoen-aan-hulpgoederen-rode-kruis-verwoest~adfb97be/)
-  > Door nachtelijke Russische aanvallen op de Oekraïense hoofdstad Kyiv zijn ten minste 21 doden gevallen. Daarnaast zouden 85 mensen gewond zijn...
+- [Dit is de weg richting de WK-finale en het virtuele schema voor de achtste finales](https://www.ad.nl/wk-voetbal/dit-is-de-weg-richting-de-wk-finale-en-het-virtuele-schema-voor-de-achtste-finales~a10011c9/)
+  > De groepsfase van het WK voetbal is gespeeld. In dit overzicht lees je welke landen zich hebben geplaatst voor de knock-outfase, voor wie het...
+- [Spanje begint op stoom te komen en plaatst zich eenvoudig voor achtste finale WK](https://www.ad.nl/wk-voetbal/spanje-begint-op-stoom-te-komen-en-plaatst-zich-eenvoudig-voor-achtste-finale-wk~a355b0b3/)
+  > Spanje heeft op overtuigende wijze de laatste zestien bereikt op het WK voetbal. De regerend Europees kampioen won in het SoFi Stadium in Los Angeles...
+- [Anouk krijgt pijnlijke boodschap van vriend in De Bondgenoten: ‘Je zet mij echt voor schut’](https://www.ad.nl/show/anouk-krijgt-pijnlijke-boodschap-van-vriend-in-de-bondgenoten-je-zet-mij-echt-voor-schut~aab07249/)
+  > Anouk uit De Bondgenoten krijgt het donderdagavond zwaar te verduren tijdens een emotioneel videogesprek met haar vriend Max. Hij vertelt dat haar...
+- [Boze fans sturen doodsbedreigingen en koeienpoep naar spelontwikkelaar na aankondiging nieuw personage](https://www.ad.nl/buitenland/boze-fans-sturen-doodsbedreigingen-en-koeienpoep-naar-spelontwikkelaar-na-aankondiging-nieuw-personage~a3e65cd7/)
+  > De toevoeging van een nieuw personage aan de mobiele game Love and Deepspace heeft deze week voor een enorme rel gezorgd. Chinese fans besloten hun...
+- [Britse MAFS-deelnemer opgepakt op verdenking van verkrachting](https://www.ad.nl/show/britse-mafs-deelnemer-opgepakt-op-verdenking-van-verkrachting~ad1a5ce9/)
+  > Een deelnemer aan de Britse versie van het realityprogramma Married at first sight is aangehouden op verdenking van verkrachting. Dat heeft de...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Lauwe slotstanden op Wall Street na tegenvallende banencijfers VS](https://fd.nl/financiele-markten/1602272/lauwe-slotstanden-op-wall-street-na-tegenvallende-banencijfers-vs)
+  > De verschillende indices op Wall Street liepen uiteen na banencijfers van de Amerikaanse overheid.
 - [SAP: vacaturestop om AI te financieren](https://fd.nl/bedrijfsleven/1602244/sap-vacaturestop-om-ai-te-financieren)
   > Interne reizen die geen verband houden met de ontwikkeling van AI worden opgeschort en het bedrijf gaat op zoek naar manieren om te besparen op...
 - [Private-creditfondsen keren maar deels uit](https://fd.nl/financiele-markten/1602243/private-creditfondsen-keren-maar-deels-uit)
@@ -54,8 +56,6 @@
   > OpenAI, de ontwikkelaar van ChatGPT, stelt voor om de overheid een belang van 5% te geven. Volgens de Financial Times zijn gesprekken hierover al...
 - [Steun voor twee grote kerncentrales brokkelt af](https://fd.nl/politiek/1602241/steun-voor-twee-grote-kerncentrales-brokkelt-af)
   > Het stond in menig verkiezingsprogramma, maar de stemming in de Tweede Kamer is aan het draaien na de nieuwste onderzoeken. Steun voor kernenergie is...
-- [Creatieve destructie](https://fd.nl/opinie/1602115/creatieve-destructie)
-  > De politieke reflex om belastingvoordelen weer te repareren is vanuit het beginsel van gelijke behandeling niet verstandig.
 
 ### Meest gelezen
 
