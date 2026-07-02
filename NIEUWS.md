@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-07-2026 om 09:18*
+*Laatst bijgewerkt: 02-07-2026 om 12:13*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Oekraïense vluchtelingen in Hoorn moeten bij verhuizing huisdieren wegdoen](https://nos.nl/l/2621297)
-  > Acht Oekraïense gezinnen moeten binnenkort waarschijnlijk afstand doen van hun huisdieren vanwege een verhuizing naar een nieuwe opvanglocatie in...
-- [Elektrische fiets steeds populairder, vooral onder jongeren](https://nos.nl/l/2621296)
-  > Steeds meer mensen fietsen elektrisch, blijkt uit onderzoek van het RIVM. Van alle fietsers van 12 jaar en ouder gebruikte 43 procent vorig jaar een...
-- [Oekraïense drone-aanvallen leiden tot acute brandstofcrisis in Rusland](https://nos.nl/l/2621295)
-  > Steeds meer Russische sectoren komen in de problemen door het tekort aan brandstof als gevolg van de aanhoudende Oekraïense drone-aanvallen op...
-- [Hogere hypotheekrente drukt stijging van huizenprijzen](https://nos.nl/l/2621294)
-  > Door met name de hogere hypotheekrente zullen de huizenprijzen dit jaar met maar 3 procent stijgen, verwacht ABN Amro. Voor volgend jaar voorziet de...
-- [Ruim 150 slachtoffers en daders van 'drogeerverkrachtingen' geïdentificeerd](https://nos.nl/l/2621291)
-  > In een grootschalig onderzoek naar zogenoemde drogeerverkrachtingen zijn meer dan 150 slachtoffers en daders geïdentificeerd, meldt de Europese...
+- [Brand in woning Huizen, mogelijk nog mensen binnen](https://nos.nl/l/2621319)
+  > In het Noord-Hollandse Huizen is een grote brand uitgebroken in een woning aan de Gooilandweg. Het vuur woedt in een rijtjeshuis.
+        Het hele...
+- [Verdachte opblazen Nord Stream in Duitsland aangeklaagd wegens oorlogsmisdaden](https://nos.nl/l/2621318)
+  > Oekraïner Serhii K. is in Duitsland vanwege sabotage van de Nord Stream-pijpleidingen aangeklaagd voor medeplichtigheid aan oorlogsmisdrijven. In...
+- [Bussen vanuit Zeeland en Groningen naar Den Haag voor kerncentraledebat](https://nos.nl/l/2621316)
+  > Tientallen Groningers en Zeeuwen zijn vanochtend vroeg met bussen richting Den Haag getrokken voor het kerncentraledebat. De Tweede Kamer debatteert...
+- [106 mensen besmet met salmonella na eten van noedels, ook in Nederland](https://nos.nl/l/2621315)
+  > In Europa zijn 106 mensen besmet geraakt met salmonella na het eten van instantnoedels. Volgens de EFSA, de Europese waakhond voor voedselveiligheid,...
+- [Bierbrouwer Grolsch neemt familiebedrijf Gulpener over: 'Het doet pijn'](https://nos.nl/l/2621314)
+  > Bierbrouwer Grolsch neemt Gulpener over. Grolsch had al 15 procent van de aandelen in de Limburgse brouwer en koopt nu het hele bedrijf. De...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [‘Vergeet het maar’ en ‘de grafsteen op ons WK’ werd ineens ‘The Great Escape’: België beleeft bizarre achtbaanrit](https://www.ad.nl/wk-voetbal/vergeet-het-maar-en-de-grafsteen-op-ons-wk-werd-ineens-the-great-escape-belgie-beleeft-bizarre-achtbaanrit~a08d670b/)
-  > De Rode Duivels zaten tegen Senegal ruim 85 minuten in de voetbalhel, maar ontsnapten (3-2). En dus staat België in de achtste finale van het WK. De...
-- [Column Sjoerd Mossou | Arne Slot kan alleen bondscoach worden als hij ons trauma serieus neemt](https://www.ad.nl/voetbal/column-sjoerd-mossou-arne-slot-kan-alleen-bondscoach-worden-als-hij-ons-trauma-serieus-neemt~af6300b0/)
-  > Volgens columnist Sjoerd Mossou moet Arne Slot bij zijn sollicitatiegesprek aan één cruciale voorwaarde voldoen. „Hupjes, huppeltjes, danspasjes,...
-- [Verdachte van dodelijke aanslag op de Haagse Tarwekamp wil mediation om ‘zijn excuses aan te bieden’](https://www.ad.nl/den-haag/verdachte-van-dodelijke-aanslag-op-de-haagse-tarwekamp-wil-mediation-om-zijn-excuses-aan-te-bieden~a4737269/)
-  > Een verdachte van de dodelijke aanslag op de Haagse Tarwekamp in december 2024 wil mediation met de slachtoffers en nabestaanden om zijn excuses aan...
-- [Burgemeester Kyiv noemt aanval van vannacht grootste sinds begin oorlog: dag van rouw afgekondigd](https://www.ad.nl/buitenland/burgemeester-kyiv-noemt-aanval-van-vannacht-grootste-sinds-begin-oorlog-dag-van-rouw-afgekondigd~adfb97be/)
-  > De burgemeester van Kyiv heeft de aanval op de Oekraïense hoofdstad de grootste tot dusver in de oorlog met Rusland genoemd. ‘Morgen, 3 juli, is...
-- [Joy (24) dacht boeven te gaan vangen, maar ziet vooral menselijk leed: ‘Je wordt hier heel snel volwassen’](https://www.ad.nl/binnenland/joy-24-dacht-boeven-te-gaan-vangen-maar-ziet-vooral-menselijk-leed-je-wordt-hier-heel-snel-volwassen~a3cb7087/)
-  > Misdaden oplossen en boeven vangen. Met dat idee beginnen veel jongeren aan hun politieopleiding. De realiteit is dat ze vooral veel ellende zien en...
+- [Zo heet wordt het op vakantie: 35 graden in de Provence, 38 graden in Portugal en maar liefst 42 graden in Sevilla](https://www.ad.nl/buitenland/zo-heet-wordt-het-op-vakantie-35-graden-in-de-provence-38-graden-in-portugal-en-maar-liefst-42-graden-in-sevilla~a334053b/)
+  > Nu de hittegolf eindelijk achter de rug is, zullen veel Nederlanders hun koffers pakken voor hun vakantie. Maar als het kwik hier al richting de 35...
+- [F1-coureurs gaan opnieuw racen in LEGO-auto’s, aangenaam weer tijdens GP Groot-Brittannië](https://www.ad.nl/formule-1/f1-coureurs-gaan-opnieuw-racen-in-lego-autos-aangenaam-weer-tijdens-gp-groot-brittannie~a960c35e/)
+  > Het Formule 1-circus is aangekomen op historische grond. De Grand Prix van Groot-Brittannië op het circuit van Silverstone staat namelijk op de...
+- [Olcay deelt liefdeskiekje voor nieuwe villa en Christina pronkt nog even met haar babybuik](https://www.ad.nl/show/olcay-deelt-liefdeskiekje-voor-nieuwe-villa-en-christina-pronkt-nog-even-met-haar-babybuik~a023b9d3/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Zo voorkom je gedoe bij de security: dit mag wel en niet mee in je handbagage](https://www.ad.nl/geld/zo-voorkom-je-gedoe-bij-de-security-dit-mag-wel-en-niet-mee-in-je-handbagage~afeb3954/)
+  > De bagageregels voor handbagage zorgen altijd weer voor twijfels. Hoe groot mag die koffer zijn en hoe zat het ook alweer met de vloeistoffen?...
+- [Italiaan loopt 100 meter in 9,67 seconden, maar toptijd wordt niet erkend](https://www.ad.nl/andere-sporten/italiaan-loopt-100-meter-in-9-67-seconden-maar-toptijd-wordt-niet-erkend~a100c763/)
+  > De Italiaanse sprinter Lamont Marcell Jacobs heeft woensdagavond bij een wedstrijd in het Oostenrijkse Eisenstadt de 100 meter gewonnen in 9,67...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Uitwerpselen als alternatief: groen gas heeft alles mee, behalve de prijs](https://fd.nl/politiek/1601823/uitwerpselen-als-alternatief-groen-gas-heeft-alles-mee-behalve-de-prijs)
-  > Niet iedereen is enthousiast over een wetsvoorstel om gas uit slib en mest verplicht te mengen door de aardgasleidingen. ‘Het komt bovenop al die...
-- [Het gammele gemaal dat miljoenen mensen behoedt voor overstroming](https://fd.nl/politiek/1601301/het-gammele-gemaal-dat-miljoenen-mensen-behoedt-voor-overstroming)
-  > Het gemaal in IJmuiden is van cruciaal belang voor bescherming van het achterland. Maar het complex is sterk verouderd en geld voor vervanging en...
-- [Duitse dronebouwer Quantum Systems trekt $1,2 mrd aan kapitaal aan](https://fd.nl/bedrijfsleven/1602117/duitse-dronebouwer-quantum-systems-trekt-1-2mrd-aan-kapitaal-aan)
-  > In totaal heeft Quantum Systems nu zo’n €1,8 mrd à €1,9 mrd aangetrokken. Het nieuwe geld is bedoeld voor groei en voor investeringen in een...
-- [Polarisatie op de planken: ‘Als theater kan je ergens voor staan’](https://fd.nl/samenleving/1601817/polarisatie-op-de-planken-als-theater-kan-je-ergens-voor-staan)
-  > De maatschappelijke onrust dringt ook of júíst in de theaters door. En zij pakken hun rol. ‘Je kunt je uitspreken met heldere keuzes in de...
-- [Kyiv zwaar getroffen door Russische aanval](https://fd.nl/samenleving/1602211/kyiv-zwaar-getroffen-door-russische-aanval)
-  > Het was de ergste Russische aanval op het land sinds half juni.
+- [Het bestaan van een neutraal pensioenfonds is een mythe](https://fd.nl/opinie/1602087/het-bestaan-van-een-neutraal-pensioenfonds-is-een-mythe)
+  > De primaire taak van een pensioenfonds is om een adequaat pensioen via een optimale risico-rendementsverhouding te realiseren, maar een goed pensioen...
+- [Webplatform geeft zeilen een tweede leven: ‘Ook welstandige bootbezitters kunnen rekenen’](https://fd.nl/tech-en-innovatie/1601659/webplatform-geeft-zeilen-een-tweede-leven-ook-welstandige-bootbezitters-kunnen-rekenen)
+  > Zeilen recyclen is zo duur dat ze vaak in de verbrandingsoven belanden. Sjaak Haakman begon een internationaal platform om ze zo lang mogelijk in de...
+- [Vroege opening chipfabriek Infineon is voor Merz de nieuwe Duitse norm](https://fd.nl/bedrijfsleven/1601813/vroege-opening-chipfabriek-infineon-is-voor-merz-de-nieuwe-duitse-norm)
+  > Projecten die jaren vertraging oplopen, zijn in Duitsland meer regel dan uitzondering. Maar chipmaker Infineon leverde zijn nieuwe fabriek in Dresden...
+- [Cateraar Albron verkoopt De Buurtboer aan onlinesupermarkt Crisp](https://fd.nl/bedrijfsleven/1602225/cateraar-albron-verkoopt-de-buurtboer-aan-onlinesupermarkt-crisp)
+  > De online supermarkt voor biologisch voedsel wil groeien in de zakelijke markt. De Buurtboer levert duurzame lunches aan bedrijven.
+- [Markt voor luxe vakantiehuizen onder druk](https://fd.nl/economie/1602227/markt-voor-luxe-vakantiehuizen-onder-druk)
+  > Vooral in de Waddeneilanden en in het kustgebied van Zeeland werden minder buitenhuizen verkocht en tegen lagere prijzen.
 
 ### Meest gelezen
 
