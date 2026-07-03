@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-07-2026 om 10:40*
+*Laatst bijgewerkt: 03-07-2026 om 12:58*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Verplichte stagevergoeding voor alle studenten komt in de wet](https://nos.nl/l/2621468)
-  > Alle studenten in het mbo, hbo en wo hebben recht op een stagevergoeding, vindt het kabinet. Daarom wordt dat vastgelegd in de wet, al geldt er geen...
-- [Vrouw brak nek door vallend stuk bank in Amsterdam, OM stopt onderzoek](https://nos.nl/l/2621466)
-  > De politie heeft niet kunnen achterhalen wie verantwoordelijk is voor een groot stuk schuim dat naar beneden viel in Amsterdam vorig maand. Een vrouw...
-- [Franse autoriteiten: natuurbrand bij Perpignan onder controle](https://nos.nl/l/2621464)
-  > De brandweer heeft een natuurbrand in de buurt van de Zuid-Franse stad Perpignan onder controle, laten de plaatselijke autoriteiten weten. Vanwege de...
-- [Passagiersbus stort in ravijn in Pakistan, 40 doden](https://nos.nl/l/2621459)
-  > Bij een busongeluk in Pakistan zijn veertig mensen omgekomen, acht personen raakten gewond. Dat meldt persbureau AP op basis van lokale bronnen. De...
-- [Reinier van Zutphen stopt in 2027 als Nationale ombudsman, Kamer zoekt opvolger](https://nos.nl/l/2621458)
-  > Reinier van Zutphen stopt per 1 april 2027 als Nationale ombudsman. De Tweede Kamer gaat op zoek naar een opvolger.
-        De 66-jarige Van Zutphen...
+- [Na misbruikschandaal teruggetreden ex-bisschop van Brugge overleden](https://nos.nl/l/2621484)
+  > Voormalig bisschop van Brugge Roger Vangheluwe is overleden. Hij raakte in 2010 in opspraak toen bekend werd dat hij jarenlang zijn minderjarige...
+- [Lokale partijen willen geen klein stembiljet](https://nos.nl/l/2621482)
+  > Lokale partijen keren zich tegen het nieuwe, kleinere stembiljet. In een brief aan de minister roepen ruim zeventig fractievoorzitters op om vast te...
+- [Winstdeling zorg aan banden: 'Soort georganiseerde misdaad'](https://nos.nl/l/2621481)
+  > Het kabinet wil nieuwe eisen invoeren voor investeerders in zorgbedrijven en jeugdhulpaanbieders, de zogenoemde 'private equity' in de zorg. Dat...
+- [Rechtbank oordeelt: verkeersboetes in 2024 en 2025 onterecht verhoogd](https://nos.nl/l/2621480)
+  > De Nederlandse regering had de verkeersboetes in 2024 en 2025 niet mogen verhogen. Dat heeft een rechtbank in Utrecht bepaald. Door deze verhoging is...
+- [Drie verdachten aangehouden op verdenking van witwassen van 100 miljoen euro](https://nos.nl/l/2621476)
+  > De FIOD heeft vorige maand drie mannen uit Rotterdam van 53, 51 en 41 jaar aangehouden op verdenking van het witwassen van vele tientallen miljoenen....
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Wel verplichte stagevergoeding, géén minimumbedrag](https://www.ad.nl/politiek/wel-verplichte-stagevergoeding-geen-minimumbedrag~aa7239b5/)
-  > Alle studenten moeten in de toekomst een stagevergoeding krijgen, zo beslist het kabinet vrijdag. Maar de hoogte van het bedrag wordt niet...
-- [Jürgen Klopp staat al klaar als opvolger van Julian Nagelsmann: ‘Hij is bereid functie op zich te nemen’](https://www.ad.nl/wk-voetbal/jurgen-klopp-staat-al-klaar-als-opvolger-van-julian-nagelsmann-hij-is-bereid-functie-op-zich-te-nemen~ae1f5de4/)
-  > De Duitse bondscoach Julian Nagelsmann (38) stapt op. Dat maakte de Duitse voetbalbond vrijdagmiddag bekend, nadat Duitse media waaronder Sky Sport...
-- [Max Verstappen krijgt uitnodiging om paste te eten met Kimi Antonelli: ‘Ik ben op een klein dieet’](https://www.ad.nl/formule-1/max-verstappen-krijgt-uitnodiging-om-paste-te-eten-met-kimi-antonelli-ik-ben-op-een-klein-dieet~a960c35e/)
-  > Het Formule 1-circus is aangekomen op historische grond. De Grand Prix van Groot-Brittannië op het circuit van Silverstone staat namelijk op de...
-- [Man bekent sturen van neppe losgeldbrieven naar familie Guthrie](https://www.ad.nl/show/man-bekent-sturen-van-neppe-losgeldbrieven-naar-familie-guthrie~a1f104d8/)
-  > Een man uit Californië heeft schuld bekend aan het sturen van neppe losgeldbrieven naar de familie van Nancy Guthrie, de 84-jarige vermiste moeder...
-- [Iconen supporten Spanje in LA, Erling Haaland koopt laarzen en cowboyhoed in Dallas](https://www.ad.nl/wk-voetbal/iconen-supporten-spanje-in-la-erling-haaland-koopt-laarzen-en-cowboyhoed-in-dallas~a1f94c0c/)
-  > De knock-outfase van het WK is bezig. De belangen nemen dus toe, maar gelukkig is er op social media vaak nog wel tijd voor wat luchtigheid. Wij...
+- [Russische qualifier in tranen na overwinning op Braziliaans toptalent, Zverev zonder setverlies door](https://www.ad.nl/tennis/russische-qualifier-in-tranen-na-overwinning-op-braziliaans-toptalent-zverev-zonder-setverlies-door~aff1a2be/)
+  > Het grootste grastennistoernooi is begonnen. Tussen 29 juni en 11 juli strijden de beste tennissers ter wereld om de titel op Wimbledon. Hier blijf...
+- [‘Vrouw die vluchtauto bestuurde na schietpartij Duitsland was schoonmoeder politicus’](https://www.ad.nl/buitenland/vrouw-die-vluchtauto-bestuurde-na-schietpartij-duitsland-was-schoonmoeder-politicus~a1de536d8/)
+  > De vrouw die na de schietpartij de Noord-Duitse stad Stade de vluchtauto zou hebben bestuurd, is de schoonmoeder van SPD-politicus Deniz Kurku. Dat...
+- [Max Verstappen verliest veel terrein na sterke opening in enige training, Lewis Hamilton laat Britse fans juichen](https://www.ad.nl/formule-1/max-verstappen-verliest-veel-terrein-na-sterke-opening-in-enige-training-lewis-hamilton-laat-britse-fans-juichen~a0f3e17d/)
+  > Max Verstappen opende sterk tijdens de enige vrije training voor de Grand Prix van Groot-Brittannië, maar op de zachte banden kwam de coureur er niet...
+- [Vier seizoenen lang heeft The Bear kunnen opbouwen, nu valt alles uit elkaar](https://www.ad.nl/show/vier-seizoenen-lang-heeft-the-bear-kunnen-opbouwen-nu-valt-alles-uit-elkaar~ad375d2f9/)
+  > In het laatste seizoen van The Bear gaat echt alles fout. Soms is het bijna ondraaglijk om naar te kijken, maar het slotakkoord van de bejubelde...
+- [KNVB stapt af van jongste lichting internationals: vanaf komend seizoen geen Oranje onder 15 meer](https://www.ad.nl/voetbal/knvb-stapt-af-van-jongste-lichting-internationals-vanaf-komend-seizoen-geen-oranje-onder-15-meer~ad025d53/)
+  > De KNVB stopt met Oranje onder 15, het jongste nationale team. Wel blijft er een trainingsgroep bestaan, waarin de bond jonge spelers langer in het...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Vier jaar cel voor miljoenenfraude met goudbeleggingen](https://fd.nl/samenleving/1602378/vier-jaar-cel-voor-miljoenenfraude-met-goudbeleggingen)
-  > Hoofdverdachte John H. verkocht voor €45 mln aan goudcontracten maar leverde slechts de helft waardoor honderden beleggers gedupeerd raakten.
-- [Effectief leren: niet afrekenen maar groeien](https://fd.nl/opinie/1601815/effectief-leren-niet-afrekenen-maar-groeien)
-  > In de praktijk is leren hard werken. Dat zien we bij de eindexamens, bij de parlementaire enquêtecommissie corona, maar ook in de financiële sector....
-- [Als de overheid faalt, dan moet het maar zoals het kan](https://fd.nl/samenleving/1601619/als-de-overheid-faalt-dan-moet-het-maar-zoals-het-kan)
-  > De makers van Het Verkeerde Oordeel pellen een hardnekkige misstand af tot waar het wringt: de overheid lijkt nog niets te hebben geleerd van onder...
-- [Zijn twee T-shirts één item? Voor de nieuwe €3-heffing doet dat ertoe](https://fd.nl/politiek/1602123/zijn-twee-t-shirts-een-item-voor-de-nieuwe-3-heffing-doet-dat-ertoe)
-  > De EU wil de instroom van goedkope pakjes uit China aan banden leggen, maar neemt het daarbij niet al te nauw met de regels voor goed bestuur.
-- [Europa wil duurzaamheidseisen afschalen. Daardoor streven China en Brazilië ons voorbij](https://fd.nl/opinie/1601653/europa-wil-duurzaamheidseisen-afschalen-waardoor-china-en-brazilie-ons-straks-voorbijstreven)
-  > De Europese Unie kon jarenlang bogen op de macht van het Brussel-effect, waarmee het internationale standaarden creëerde. Die macht wordt nu bedreigd.
+- [Lagarde zinspeelt op eerder vertrek als ECB-president](https://fd.nl/financiele-markten/1602597/lagarde-zinspeelt-op-eerder-vertrek-als-ecb-president)
+  > Geruchten over een eerder vertrek circuleren al lange tijd. Lagarde zegt nu zelf dat ‘het mogelijk is’ dat ze voor het einde van haar termijn...
+- [Nederlanders gaan vaker en verder op vakantie met de stekkerauto](https://fd.nl/samenleving/1602686/nederlanders-gaan-vaker-en-verder-op-vakantie-met-de-stekkerauto)
+  > Frankrijk is het goedkoopste vakantieland voor elektrisch rijden, Duitsland het duurste. Een retourrit naar het Gardameer is daardoor circa €63...
+- [Hongaarse regering scherpt toezicht op batterijproducenten aan](https://fd.nl/bedrijfsleven/1602379/hongaarse-regering-scherpt-toezicht-op-batterijproducenten-aan)
+  > Het strenge toezicht van de nieuwe Hongaarse regering vormt een breuk met het beleid van ex-premier Viktor Orbán. Zijn bewind was soepel met...
+- [Premier Moldavië treedt af na corruptieschandaal](https://fd.nl/economie/1602687/premier-moldavie-treedt-af-na-corruptieschandaal)
+  > Hij verklaarde vrijdag in een persbericht dat hij zijn mandaat niet langer kon uitoefenen in overeenstemming met zijn principes en overtuigingen.
+- [Frankrijk vestigt hoop op ‘uitverkorene’ karatekid Paul Seixas](https://fd.nl/samenleving/1602160/frankrijk-vestigt-hoop-op-uitverkorene-karatekid-paul-seixas)
+  > De 19-jarige wielrenner rijdt rond met de druk van een natie op zijn schouders. President Macron heeft inmiddels een staatszaak van de renner gemaakt.
 
 ### Meest gelezen
 
