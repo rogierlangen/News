@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-07-2026 om 07:25*
+*Laatst bijgewerkt: 03-07-2026 om 10:40*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Honderden daders kregen lagere straf wegens vertraging proces](https://nos.nl/l/2621433)
-  > Honderden daders van zware misdrijven als moord, verkrachting en kindermisbruik, hebben de afgelopen jaren strafvermindering gekregen omdat hun...
-- [Reanimatie na schietpartij centrum Rotterdam, vijf aanhoudingen](https://nos.nl/l/2621426)
-  > Bij een schietpartij in het centrum van Rotterdam is een man zwaargewond geraakt, meldt de politie. Het slachtoffer is gereanimeerd en naar het...
-- [Tibetaanse man overleden die zichzelf in brand stak voor VN-hoofdkwartier](https://nos.nl/l/2621417)
-  > Voor het VN-hoofdgebouw in New York heeft een Tibetaanse man zichzelf in brand gestoken uit protest tegen de Chinese bezetting van Tibet. De man...
-- [Wekdienst 3/7: Sail Harlingen van start • Laatste wedstrijden eerste knock-outronde](https://nos.nl/l/2621416)
-  > Goedemorgen! Het vierjaarlijkse evenement Sail Harlingen begint en Madonna brengt haar nieuwe studio-album uit.
-        Eerst het weer: in het...
-- [Verlieslijdend Twente Airport gaat definitief naar groep regionale ondernemers](https://nos.nl/l/2621399)
-  > Een groep regionale ondernemers mag het verlieslijdende vliegveld Twente Airport definitief gaan exploiteren. De provincie Overijssel heeft ingestemd...
+- [Verplichte stagevergoeding voor alle studenten komt in de wet](https://nos.nl/l/2621468)
+  > Alle studenten in het mbo, hbo en wo hebben recht op een stagevergoeding, vindt het kabinet. Daarom wordt dat vastgelegd in de wet, al geldt er geen...
+- [Vrouw brak nek door vallend stuk bank in Amsterdam, OM stopt onderzoek](https://nos.nl/l/2621466)
+  > De politie heeft niet kunnen achterhalen wie verantwoordelijk is voor een groot stuk schuim dat naar beneden viel in Amsterdam vorig maand. Een vrouw...
+- [Franse autoriteiten: natuurbrand bij Perpignan onder controle](https://nos.nl/l/2621464)
+  > De brandweer heeft een natuurbrand in de buurt van de Zuid-Franse stad Perpignan onder controle, laten de plaatselijke autoriteiten weten. Vanwege de...
+- [Passagiersbus stort in ravijn in Pakistan, 40 doden](https://nos.nl/l/2621459)
+  > Bij een busongeluk in Pakistan zijn veertig mensen omgekomen, acht personen raakten gewond. Dat meldt persbureau AP op basis van lokale bronnen. De...
+- [Reinier van Zutphen stopt in 2027 als Nationale ombudsman, Kamer zoekt opvolger](https://nos.nl/l/2621458)
+  > Reinier van Zutphen stopt per 1 april 2027 als Nationale ombudsman. De Tweede Kamer gaat op zoek naar een opvolger.
+        De 66-jarige Van Zutphen...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Remy de Wit vertrekt na acht jaar bij KNSB en gaat aan de slag bij Nederlandse basketbalbond](https://www.ad.nl/schaatsen/remy-de-wit-vertrekt-na-acht-jaar-bij-knsb-en-gaat-aan-de-slag-bij-nederlandse-basketbalbond~a8001976/)
-  > Remy de Wit vertrekt als technisch directeur bij de KNSB. De inwoner van Kaatsheuvel begint op 1 september als ‘High Performance Director’ bij de...
-- [Viervoudig Tour-winnaar Chris Froome (41) stopt definitief: ‘Niet de manier waarop ik had gewild’](https://www.ad.nl/wielrennen/viervoudig-tour-winnaar-chris-froome-41-stopt-definitief-niet-de-manier-waarop-ik-had-gewild~a16c9d2c/)
-  > De Britse wielrenner Chris Froome heeft zijn carrière definitief beëindigd. De viervoudig winnaar van de Tour de France zat sinds eind vorig jaar...
-- [Langer werken, ontslagronde en uitgestelde bonus: duizenden werknemers Mercedes protesteren](https://www.ad.nl/economie/langer-werken-ontslagronde-en-uitgestelde-bonus-duizenden-werknemers-mercedes-protesteren~abbcfb88/)
-  > Duizenden werknemers van Mercedes-Benz protesteren vrijdag tegen de geplande bezuinigingen bij de Duitse autofabrikant, waarbij personeel onder meer...
-- [Cristiano Ronaldo draagt, jaar na zijn dood, het shirt van Diogo Jota: ‘We weten dat hij bij ons is’](https://www.ad.nl/voetbal/cristiano-ronaldo-draagt-jaar-na-zijn-dood-het-shirt-van-diogo-jota-we-weten-dat-hij-bij-ons-is~aa0e1f50/)
-  > Het is vandaag een jaar geleden dat Diogo Jota (28) en zijn broer André Silva (25) om het leven kwamen bij hun auto-ongeluk in het Spaanse...
-- [Nederlandse jurist eist 435 miljoen euro om rel rond PlayStation: ‘Gamen dreigt onbetaalbaar te worden’](https://www.ad.nl/tech/nederlandse-jurist-eist-435-miljoen-euro-om-rel-rond-playstation-gamen-dreigt-onbetaalbaar-te-worden~a0e7e93d/)
-  > Een Nederlandse stichting eist 435 miljoen euro van Sony omdat circa 1,7 miljoen Nederlanders te veel zouden hebben betaald voor hun...
+- [Wel verplichte stagevergoeding, géén minimumbedrag](https://www.ad.nl/politiek/wel-verplichte-stagevergoeding-geen-minimumbedrag~aa7239b5/)
+  > Alle studenten moeten in de toekomst een stagevergoeding krijgen, zo beslist het kabinet vrijdag. Maar de hoogte van het bedrag wordt niet...
+- [Jürgen Klopp staat al klaar als opvolger van Julian Nagelsmann: ‘Hij is bereid functie op zich te nemen’](https://www.ad.nl/wk-voetbal/jurgen-klopp-staat-al-klaar-als-opvolger-van-julian-nagelsmann-hij-is-bereid-functie-op-zich-te-nemen~ae1f5de4/)
+  > De Duitse bondscoach Julian Nagelsmann (38) stapt op. Dat maakte de Duitse voetbalbond vrijdagmiddag bekend, nadat Duitse media waaronder Sky Sport...
+- [Max Verstappen krijgt uitnodiging om paste te eten met Kimi Antonelli: ‘Ik ben op een klein dieet’](https://www.ad.nl/formule-1/max-verstappen-krijgt-uitnodiging-om-paste-te-eten-met-kimi-antonelli-ik-ben-op-een-klein-dieet~a960c35e/)
+  > Het Formule 1-circus is aangekomen op historische grond. De Grand Prix van Groot-Brittannië op het circuit van Silverstone staat namelijk op de...
+- [Man bekent sturen van neppe losgeldbrieven naar familie Guthrie](https://www.ad.nl/show/man-bekent-sturen-van-neppe-losgeldbrieven-naar-familie-guthrie~a1f104d8/)
+  > Een man uit Californië heeft schuld bekend aan het sturen van neppe losgeldbrieven naar de familie van Nancy Guthrie, de 84-jarige vermiste moeder...
+- [Iconen supporten Spanje in LA, Erling Haaland koopt laarzen en cowboyhoed in Dallas](https://www.ad.nl/wk-voetbal/iconen-supporten-spanje-in-la-erling-haaland-koopt-laarzen-en-cowboyhoed-in-dallas~a1f94c0c/)
+  > De knock-outfase van het WK is bezig. De belangen nemen dus toe, maar gelukkig is er op social media vaak nog wel tijd voor wat luchtigheid. Wij...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Vier jaar cel voor miljoenenfraude met goudbeleggingen](https://fd.nl/samenleving/1602378/vier-jaar-cel-voor-miljoenenfraude-met-goudbeleggingen)
+  > Hoofdverdachte John H. verkocht voor €45 mln aan goudcontracten maar leverde slechts de helft waardoor honderden beleggers gedupeerd raakten.
+- [Effectief leren: niet afrekenen maar groeien](https://fd.nl/opinie/1601815/effectief-leren-niet-afrekenen-maar-groeien)
+  > In de praktijk is leren hard werken. Dat zien we bij de eindexamens, bij de parlementaire enquêtecommissie corona, maar ook in de financiële sector....
+- [Als de overheid faalt, dan moet het maar zoals het kan](https://fd.nl/samenleving/1601619/als-de-overheid-faalt-dan-moet-het-maar-zoals-het-kan)
+  > De makers van Het Verkeerde Oordeel pellen een hardnekkige misstand af tot waar het wringt: de overheid lijkt nog niets te hebben geleerd van onder...
 - [Zijn twee T-shirts één item? Voor de nieuwe €3-heffing doet dat ertoe](https://fd.nl/politiek/1602123/zijn-twee-t-shirts-een-item-voor-de-nieuwe-3-heffing-doet-dat-ertoe)
   > De EU wil de instroom van goedkope pakjes uit China aan banden leggen, maar neemt het daarbij niet al te nauw met de regels voor goed bestuur.
 - [Europa wil duurzaamheidseisen afschalen. Daardoor streven China en Brazilië ons voorbij](https://fd.nl/opinie/1601653/europa-wil-duurzaamheidseisen-afschalen-waardoor-china-en-brazilie-ons-straks-voorbijstreven)
   > De Europese Unie kon jarenlang bogen op de macht van het Brussel-effect, waarmee het internationale standaarden creëerde. Die macht wordt nu bedreigd.
-- [Legendarische bouwer westernpistolen Colt is nu belangrijk voor Europa’s herbewapening](https://fd.nl/bedrijfsleven/1601600/colt-cz-bouwer-legendarische-westernpistolen-is-nu-belangrijk-voor-europas-herbewapening)
-  > Sinds de overname van een beroemde concurrent heet Ceská zbrojovka Colt CZ. Het aan het Damrak genoteerde Tsjechische wapenbedrijf heeft het...
-- [Defensie sluit deal met softwarebedrijf Intelic en overweegt ‘gouden aandeel’](https://fd.nl/bedrijfsleven/1602158/defensie-sluit-deal-met-softwarebedrijf-intelic-en-overweegt-gouden-aandeel)
-  > Intelic heeft een deal gesloten met het ministerie van Defensie voor de ontwikkeling van dronesoftware.
-- [Een boek vol schoffiesvoetbal en een pleidooi voor het voedselbos](https://fd.nl/samenleving/1602118/een-boek-vol-schoffiesvoetbal-en-een-pleidooi-voor-het-voedselbos)
-  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
 
 ### Meest gelezen
 
