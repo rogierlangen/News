@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-07-2026 om 19:34*
+*Laatst bijgewerkt: 03-07-2026 om 21:11*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Herstel kabels langs spoor bij Rotterdam duurt nog langer: 'Monnikenwerk'](https://nos.nl/l/2621543)
+  > De werkzaamheden aan kabels op het spoor bij Rotterdam duren zeker tot maandagochtend 05.00 uur, zegt ProRail. Eerder dacht de spoorbeheerder dat...
+- ['NAVO-landen geven komende twee jaar 140 miljard aan Oekraïne'](https://nos.nl/l/2621542)
+  > De NAVO-landen gaan hun "ijzersterke toewijding" aan het bondgenootschap en de steun aan Oekraïne opnieuw vastleggen in hun slotverklaring van de...
+- [Zeldzame druk van onafhankelijkheidsverklaring VS gevonden in Brits archief](https://nos.nl/l/2621541)
+  > Amerikaanse historici hadden zich geen beter verjaardagscadeau kunnen wensen voor de viering van het 250-jarige bestaan van hun land. In het Verenigd...
 - ['Taylor Swift al getrouwd', doneert miljoenen voorafgaand aan huwelijksfeest](https://nos.nl/l/2621536)
   > 'Ons koninklijke huwelijk', zo noemen de Amerikanen de bruiloft van popster Taylor Swift en Americanfootballspeler Travis Kelce. Het koppel geeft...
 - [Hoe Trump de 250ste verjaardag van de Verenigde Staten kaapte](https://nos.nl/l/2621534)
   > Het had een feest voor alle Amerikanen moeten worden, maar uit alles blijkt dat president Trump vooral zichzelf de hoofdrol heeft gegeven bij de...
-- [Bewoners Nieuwe Binnenweg Rotterdam gewekt door schoten: 'Beruchte straat'](https://nos.nl/l/2621531)
-  > Bent wijst naar de witte plukken dons die nog op de stoep liggen. Daar werd vanochtend een man gereanimeerd na een schietpartij, vertelt de bewoner...
-- [Hittekracht in Verenigde Staten loopt voor het eerst dit WK flink op](https://nos.nl/l/2621530)
-  > Tot dusver viel het mee met de verwachte hitte op het WK voetbal. Maar deze week kampt een deel van de Verenigde Staten met een combinatie van hoge...
-- [EU zet zes Russen op sanctielijst vanwege betrokkenheid bij dood Navalny](https://nos.nl/l/2621528)
-  > De Europese lidstaten hebben zes Russen op de sanctielijst geplaatst voor hun betrokkenheid bij het ontwikkelen van chemische wapens. Het gaat in het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Angst voor files bij Franse laadpalen: ‘Het wordt erg druk, mijd de laadpaal tijdens de lunch’](https://www.ad.nl/auto/angst-voor-files-bij-franse-laadpalen-het-wordt-erg-druk-mijd-de-laadpaal-tijdens-de-lunch~a42fcbc8/)
-  > Op de grote Franse snelwegen kan het deze zomer wel eens proppen worden bij de elektrische laadpalen. In het hele land worden maatregelen genomen om...
-- [‘WK-duel tussen Mexico en Engeland zondag uren vervroegd vanwege verwacht noodweer’](https://www.ad.nl/wk-voetbal/wk-duel-tussen-mexico-en-engeland-zondag-uren-vervroegd-vanwege-verwacht-noodweer~abdbba25/)
-  > De wedstrijd van gastland Mexico tegen Engeland in de achtste finales van het WK voetbal wordt met zes uur vervroegd vanwege het risico op storm. Dat...
-- [Australië komt zonder geblesseerde Feyenoorder terug in de wedstrijd via eigen goal Egypte](https://www.ad.nl/wk-voetbal/australie-komt-zonder-geblesseerde-feyenoorder-terug-in-de-wedstrijd-via-eigen-goal-egypte~a08e875c/)
-  > Australië en Egypte nemen het tegen elkaar op voor een plek in de achtste finales van het WK voetbal. Beide landen eindigden als tweede in hun groep....
-- [Hond kuiert over snelweg en legt verkeer in beide richtingen op A28 bij Soesterberg stil](https://www.ad.nl/soest/hond-kuiert-over-snelweg-en-legt-verkeer-in-beide-richtingen-op-a28-bij-soesterberg-stil~acba4851/)
-  > Een mooie avond voor een wandeling, zal deze viervoeter gedacht hebben. Een loslopende hond heeft vrijdagavond voor opschudding gezorgd op de A28 ter...
-- [Riyad Mahrez stopt na uitschakeling met Algerije als international](https://www.ad.nl/wk-voetbal/riyad-mahrez-stopt-na-uitschakeling-met-algerije-als-international~a2d5cab9/)
-  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
+- [Van Gaal-truc Australië met ex-doelman AZ als penaltykiller mislukt, Egypte na strafschoppen verder](https://www.ad.nl/wk-voetbal/van-gaal-truc-australie-met-ex-doelman-az-als-penaltykiller-mislukt-egypte-na-strafschoppen-verder~a08e875c/)
+  > Egypte heeft na een zinderende penaltyreeks de achtste finale van het WK voetbal bereikt. Het land van sterspeler Mohamed Salah stond na 120 minuten...
+- [Messi en De Paul op de foto met bondsvoorzitter, iconen supporten Spanje in LA](https://www.ad.nl/wk-voetbal/messi-en-de-paul-op-de-foto-met-bondsvoorzitter-iconen-supporten-spanje-in-la~a1f94c0c/)
+  > De knock-outfase van het WK is bezig. De belangen nemen dus toe, maar gelukkig is er op social media vaak nog wel tijd voor wat luchtigheid. Wij...
+- [Tour de France etappe 1 | Wie pakt het eerste geel in Barcelona? Zo laat begint de ploegentijdrit zaterdag](https://www.ad.nl/tour-de-france/tour-de-france-etappe-1-wie-pakt-het-eerste-geel-in-barcelona-zo-laat-begint-de-ploegentijdrit-zaterdag~a0fd534f/)
+  > De Tour de France begint zaterdag met een ploegentijdrit. Maar niet zo maar eentje. Waar vorig jaar de tijd van de vierde renner voor de hele ploeg...
+- [Egyptenaar evenaart Bulgaar uit 1966 en zorgt voor eigen goal-record, slechts twee Oranje-pechvogels in WK-historie](https://www.ad.nl/wk-voetbal/egyptenaar-evenaart-bulgaar-uit-1966-en-zorgt-voor-eigen-goal-record-slechts-twee-oranje-pechvogels-in-wk-historie~a1e6a9ae/)
+  > Het WK voetbal is een record rijker: nooit eerder werden er tijdens een mondiale eindronde meer eigen doelpunten gemaakt dan nu. Mohamed Hany van...
+- [Vijf zwaargewonden, onder wie kinderen, bij frontale botsing in Winterswijk](https://www.ad.nl/binnenland/vijf-zwaargewonden-onder-wie-kinderen-bij-frontale-botsing-in-winterswijk~a2c5ab52/)
+  > Bij een ernstig verkeersongeval op de Kottenseweg (N319) tussen Winterswijk en de Duitse grens zijn vrijdag vijf gewonden gevallen, onder wie een...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Fujimori officieel uitgeroepen tot nieuwe president Peru](https://fd.nl/politiek/1602745/fujimori-officieel-uitgeroepen-tot-nieuwe-president-peru)
+  > De conservatieve politica wordt 28 juli geïnstalleerd als de tiende president in tien jaar.
 - [Kabinet komt met plafond op winstuitkeringen in de zorg](https://fd.nl/samenleving/1602614/kabinet-komt-met-plafond-op-winstuitkeringen-in-de-zorg)
   > Minister Sterk laat onderzoeken hoe hoog het maximum moet zijn.
 - [Wees eerlijk over rekening box 3-wensen](https://fd.nl/opinie/1602380/wees-eerlijk-over-rekening-box-3-wensen)
@@ -54,8 +56,6 @@
   > Lange tijd leek het kabinet-Jetten voor steun alleen te kunnen aankloppen bij de linkse fusiepartij Pro. Maar de route ‘over rechts’ is nog niet...
 - [Vleessector woedend over verbod op uitzendkrachten](https://fd.nl/politiek/1602717/vleessector-woedend-over-uitzendverbod)
   > Verantwoordelijk minister Hans Vijlbrief kondigde vrijdag een inleenverbod aan, na een vernietigend rapport van de Arbeidsinspectie. Uitzendkoepels...
-- [AEX sluit op recordstand ondanks tegenvallend economisch nieuws](https://fd.nl/financiele-markten/1602683/aex-sluit-op-recordstand-ondanks-tegenvallend-economisch-nieuws)
-  > De markten staan weer op het niveau dat slecht nieuws goed nieuws is, en vice versa. Er was sprake van hoogtepunten, dieptepunten en geruststelling...
 
 ### Meest gelezen
 
