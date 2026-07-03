@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-07-2026 om 15:17*
+*Laatst bijgewerkt: 03-07-2026 om 17:36*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Gespierde tegenzin en botsende grondrechten: zo kwam de avondklok er toch](https://nos.nl/l/2621506)
-  > Het was een van de meest ingrijpende maatregelen in coronatijd: de avondklok, waarbij iedereen vanaf 21.00 uur verplicht binnen moest blijven tot de...
-- [Teheran bereidt zich voor op miljoenen mensen bij rouwstoet Khamenei](https://nos.nl/l/2621503)
-  > De aankomende dagen kunnen Iraniërs na bijna vijf maanden afscheid nemen van ayatollah Ali Khamenei. Het lichaam van de hoogste Iraanse leider, die...
-- [Vier maanden na start kabinet staat D66 op verlies in peilingen, Pro profiteert](https://nos.nl/l/2621502)
-  > Ruim vier maanden na de start van het kabinet-Jetten staat diens partij in de Peilingwijzer op verlies. Van de 26 zetels die D66 bij de verkiezingen...
-- [KNVB doet aangifte om discriminerende opmerkingen op sociale media tegen Oranjespelers](https://nos.nl/l/2621501)
-  > De KNVB heeft aangifte gedaan naar aanleiding van racistische en beledigende reacties richting Oranjespelers. De opmerkingen verschenen op sociale...
-- [Structurele misstanden bij slachterijen, maar sector noemt uitzendverbod draconisch](https://nos.nl/l/2621497)
-  > Onderbetaling, slechte huisvesting en onveiligheid op de werkvloer. De afgelopen jaren zijn er tal van signalen van misstanden in de vleessector...
+- [EU zet zes Russen op sanctielijst vanwege betrokkenheid bij dood Navalny](https://nos.nl/l/2621528)
+  > De Europese lidstaten hebben zes Russen op de sanctielijst geplaatst voor hun betrokkenheid bij het ontwikkelen van chemische wapens. Het gaat in het...
+- [Duitser (60) overleden na blikseminslag op strand Renesse afgelopen weekend](https://nos.nl/l/2621523)
+  > Een van de twee personen die afgelopen zaterdag op het strand in Renesse door de bliksem werden geraakt, is overleden. Dat bevestigt de politie. Het...
+- [Plan voor wonen in vakantiehuisjes geschrapt, permanente bewoners mogen blijven](https://nos.nl/l/2621522)
+  > Minister Boekholt-O'Sullivan (Volkshuisvesting) schrapt het plan van het vorige kabinet om het wonen in een vakantiehuisje voor tien jaar legaal te...
+- [Advocatenorganisatie wil vergoeding voor slachtoffer bij strafkorting dader](https://nos.nl/l/2621515)
+  > Slachtoffers van zware misdrijven zouden een vergoeding moeten ontvangen als een dader een lagere straf krijgt omdat een rechtszaak vertraging heeft...
+- [Grote natuurbrand aan de Costa Brava, meerdere Spaanse gemeenten in lockdown](https://nos.nl/l/2621511)
+  > Aan de Costa Brava in het oosten van Spanje is een grote bosbrand uitgebroken. In meerdere gemeenten in de kuststrook van de Middellandse Zee is...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Man zoekt kinderarts thuis op na coronaverhoor maar staat voor oude huis, nieuwe bewoners geschrokken](https://www.ad.nl/binnenland/man-zoekt-kinderarts-thuis-op-na-coronaverhoor-maar-staat-voor-oude-huis-nieuwe-bewoners-geschrokken~a85e61e2/)
-  > Een onbekende man heeft deze week luid scanderend voor de voormalige woning van Károly Illy, oud-lid van het Outbreak Management Team (OMT), gestaan...
-- [Oranje-international Nathan Aké verrast met overstap naar Turkije](https://www.ad.nl/voetbal/oranje-international-nathan-ake-verrast-met-overstap-naar-turkije~aea820ee/)
-  > Nathan Aké vervolgt zijn loopbaan verrassend in Turkije. De 31-jarige verdediger verruilt Manchester City voor een avontuur bij Fenerbahçe.
-- [Kan Max Verstappen aanhaken tijdens sprintkwalificatie op Silverstone?](https://www.ad.nl/formule-1/kan-max-verstappen-aanhaken-tijdens-sprintkwalificatie-op-silverstone~a066b440/)
-  > Max Verstappen liep ondanks een positieve start flink averij op in de enige vrije training. Kunnen de coureur en Red Bull Racing verrassen tijdens de...
-- [Dave en Lisanne toverden vervallen woning om tot modern droomhuis: ‘Alleen buitenmuren stonden er nog’](https://www.ad.nl/binnenland/dave-en-lisanne-toverden-vervallen-woning-om-tot-modern-droomhuis-alleen-buitenmuren-stonden-er-nog~a0716ee7/)
-  > „We gaan echt geen klushuis kopen!” Dat hielden Lisanne van Nimwegen (27) en Dave Huisman (31) maandenlang vol tijdens hun zoektocht naar een...
-- [Dit worden de ongemakkelijke coronavragen voor Hugo de Jonge](https://www.ad.nl/politiek/dit-worden-de-ongemakkelijke-coronavragen-voor-hugo-de-jonge~a2ee60f0/)
-  > Zeven jaar lang ging het over het stikstofprobleem. Ondanks verzet van boeren, lijkt er nu licht aan het einde van de tunnel met de plannen van het...
+- [Natuurbrand uitgebroken aan Costa Brava, harde wind bemoeilijkt blussen](https://www.ad.nl/buitenland/natuurbrand-uitgebroken-aan-costa-brava-harde-wind-bemoeilijkt-blussen~a76f55ab/)
+  > In het oosten van Spanje is een grote bosbrand uitgebroken. Volgens Spaanse media dwarsboomt een zeer harde wind het bluswerk.
+- [De ongekende hype rond wielerwonder Paul Seixas: ‘Soms vergeet je dat hij nog maar 19 is’](https://www.ad.nl/tour-de-france/de-ongekende-hype-rond-wielerwonder-paul-seixas-soms-vergeet-je-dat-hij-nog-maar-19-is~ac4c2994/)
+  > Hij moet nog 20 worden, maar nu al weten alle Fransen het zeker: Paul Seixas gaat (ooit) de Tour winnen. Hoe gaat het jongste wielerwonder om met die...
+- [Alleen de echte nieuwsjunk maakt deze wekelijkse quiz foutloos](https://www.ad.nl/quiz/alleen-de-echte-nieuwsjunk-maakt-deze-wekelijkse-quiz-foutloos~ae0b5fb5/)
+  > Deze week werd oranje uitgeschakeld op het WK en rijden veel treinen bij Rotterdam niet door een brand. Maar er gebeurde nog veel meer. Test je...
+- [Lewis Hamilton vol ongeloof na poleposition, Ferrari-teambaas niet blij met uitspraken Toto Wolff](https://www.ad.nl/formule-1/lewis-hamilton-vol-ongeloof-na-poleposition-ferrari-teambaas-niet-blij-met-uitspraken-toto-wolff~a960c35e/)
+  > Het Formule 1-circus is aangekomen op historische grond. De Grand Prix van Groot-Brittannië op het circuit van Silverstone staat namelijk op de...
+- [Vlucht Transavia vertrekt terwijl passagiers foto’s van vuurrode lucht binnenkrijgen: ‘Dit kan niet’](https://www.ad.nl/binnenland/vlucht-transavia-vertrekt-terwijl-passagiers-fotos-van-vuurrode-lucht-binnenkrijgen-dit-kan-niet~a83c8557/)
+  > Een toestel van Transavia is richting Kreta vertrokken, terwijl passagiers nog vóór de start te horen kregen dat er sprake was van extreme...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Rechter: verhoging verkeersboetes in 2024 en 2025 onterecht](https://fd.nl/samenleving/1602716/rechter-verhoging-verkeersboetes-in-2024-en-2025-onterecht)
-  > Twee Utrechtse kantonrechters vinden het verhogen van verkeersboetes vanwege gaten in de rijksbegroting onredelijk. Een definitief oordeel moet van...
-- [Een moment geduld: de nieuwe politieke cultuur laat nog even op zich wachten](https://fd.nl/politiek/1602607/een-moment-geduld-de-nieuwe-politieke-cultuur-laat-nog-even-op-zich-wachten)
-  > Volgens Rob Jetten volgt na de zomer een ‘belangrijke test’ voor de coalitie en de politiek als geheel.
-- [Het coronavirus is weg, maar de bedreigingen blijven](https://fd.nl/samenleving/1602697/het-coronavirus-is-weg-maar-de-bedreigingen-blijven)
-  > ‘Met grote afschuw’ constateert de Parlementaire enquêtecommissie corona dat er getuigen zijn die nu weer worden bedreigd, vooruitlopend op hun...
-- [Kabinet werkt aan wet die stagevergoeding verplicht](https://fd.nl/samenleving/1602608/kabinet-werkt-aan-wet-die-stagevergoeding-verplicht)
-  > Jongerenorganisaties, vakbonden en politieke partijen pleiten al langer voor zo’n verplichting. Nu lopen sommige studenten nog onbetaald stage.
-- [Kabinet steekt €450 mln in ondergrondse waterstofopslag](https://fd.nl/politiek/1602695/kabinet-steekt-450-mln-in-ondergrondse-waterstofopslag)
-  > De overheidsinvestering is nodig omdat marktpartijen de risico’s nog te groot vinden.
+- [Voor kabinet gloort bij begroting ook een route over rechts](https://fd.nl/politiek/1602599/voor-kabinet-gloort-bij-begroting-ook-een-route-over-rechts)
+  > Lange tijd leek het kabinet-Jetten voor steun alleen te kunnen aankloppen bij de linkse fusiepartij Pro. Maar de route ‘over rechts’ is nog niet...
+- [Vleessector woedend over uitzendverbod](https://fd.nl/politiek/1602717/vleessector-woedend-over-uitzendverbod)
+  > Verantwoordelijk minister Hans Vijlbrief kondigde vrijdag een inleenverbod aan, na een vernietigend rapport van de Arbeidsinspectie. Uitzendkoepels...
+- [AEX sluit op recordstand ondanks tegenvallend economisch nieuws](https://fd.nl/financiele-markten/1602683/aex-sluit-op-recordstand-ondanks-tegenvallend-economisch-nieuws)
+  > De markten staan weer op het niveau dat slecht nieuws goed nieuws is, en vice versa. Er was sprake van hoogtepunten, dieptepunten en geruststelling...
+- [Nederland bouwt afhankelijkheid van technologie uit China en VS af](https://fd.nl/politiek/1602276/nederland-bouwt-afhankelijkheid-van-technologie-uit-china-en-vs-af)
+  > Het kabinet wil door middel van strengere regels voor de cloud en samenwerking met andere landen dan Amerika en China voorkomen dat Nederland een...
+- [Toezichthouder breidt regels voor gasopslag van de NAM uit](https://fd.nl/bedrijfsleven/1602613/toezichthouder-breidt-regels-voor-gasopslag-van-de-nam-uit)
+  > De ACM komt met strengere eisen voor de NAM met betrekking tot gasopslag.
 
 ### Meest gelezen
 
