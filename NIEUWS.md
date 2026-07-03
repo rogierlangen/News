@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-07-2026 om 12:58*
+*Laatst bijgewerkt: 03-07-2026 om 15:17*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Na misbruikschandaal teruggetreden ex-bisschop van Brugge overleden](https://nos.nl/l/2621484)
-  > Voormalig bisschop van Brugge Roger Vangheluwe is overleden. Hij raakte in 2010 in opspraak toen bekend werd dat hij jarenlang zijn minderjarige...
-- [Lokale partijen willen geen klein stembiljet](https://nos.nl/l/2621482)
-  > Lokale partijen keren zich tegen het nieuwe, kleinere stembiljet. In een brief aan de minister roepen ruim zeventig fractievoorzitters op om vast te...
-- [Winstdeling zorg aan banden: 'Soort georganiseerde misdaad'](https://nos.nl/l/2621481)
-  > Het kabinet wil nieuwe eisen invoeren voor investeerders in zorgbedrijven en jeugdhulpaanbieders, de zogenoemde 'private equity' in de zorg. Dat...
-- [Rechtbank oordeelt: verkeersboetes in 2024 en 2025 onterecht verhoogd](https://nos.nl/l/2621480)
-  > De Nederlandse regering had de verkeersboetes in 2024 en 2025 niet mogen verhogen. Dat heeft een rechtbank in Utrecht bepaald. Door deze verhoging is...
-- [Drie verdachten aangehouden op verdenking van witwassen van 100 miljoen euro](https://nos.nl/l/2621476)
-  > De FIOD heeft vorige maand drie mannen uit Rotterdam van 53, 51 en 41 jaar aangehouden op verdenking van het witwassen van vele tientallen miljoenen....
+- [Gespierde tegenzin en botsende grondrechten: zo kwam de avondklok er toch](https://nos.nl/l/2621506)
+  > Het was een van de meest ingrijpende maatregelen in coronatijd: de avondklok, waarbij iedereen vanaf 21.00 uur verplicht binnen moest blijven tot de...
+- [Teheran bereidt zich voor op miljoenen mensen bij rouwstoet Khamenei](https://nos.nl/l/2621503)
+  > De aankomende dagen kunnen Iraniërs na bijna vijf maanden afscheid nemen van ayatollah Ali Khamenei. Het lichaam van de hoogste Iraanse leider, die...
+- [Vier maanden na start kabinet staat D66 op verlies in peilingen, Pro profiteert](https://nos.nl/l/2621502)
+  > Ruim vier maanden na de start van het kabinet-Jetten staat diens partij in de Peilingwijzer op verlies. Van de 26 zetels die D66 bij de verkiezingen...
+- [KNVB doet aangifte om discriminerende opmerkingen op sociale media tegen Oranjespelers](https://nos.nl/l/2621501)
+  > De KNVB heeft aangifte gedaan naar aanleiding van racistische en beledigende reacties richting Oranjespelers. De opmerkingen verschenen op sociale...
+- [Structurele misstanden bij slachterijen, maar sector noemt uitzendverbod draconisch](https://nos.nl/l/2621497)
+  > Onderbetaling, slechte huisvesting en onveiligheid op de werkvloer. De afgelopen jaren zijn er tal van signalen van misstanden in de vleessector...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Russische qualifier in tranen na overwinning op Braziliaans toptalent, Zverev zonder setverlies door](https://www.ad.nl/tennis/russische-qualifier-in-tranen-na-overwinning-op-braziliaans-toptalent-zverev-zonder-setverlies-door~aff1a2be/)
-  > Het grootste grastennistoernooi is begonnen. Tussen 29 juni en 11 juli strijden de beste tennissers ter wereld om de titel op Wimbledon. Hier blijf...
-- [‘Vrouw die vluchtauto bestuurde na schietpartij Duitsland was schoonmoeder politicus’](https://www.ad.nl/buitenland/vrouw-die-vluchtauto-bestuurde-na-schietpartij-duitsland-was-schoonmoeder-politicus~a1de536d8/)
-  > De vrouw die na de schietpartij de Noord-Duitse stad Stade de vluchtauto zou hebben bestuurd, is de schoonmoeder van SPD-politicus Deniz Kurku. Dat...
-- [Max Verstappen verliest veel terrein na sterke opening in enige training, Lewis Hamilton laat Britse fans juichen](https://www.ad.nl/formule-1/max-verstappen-verliest-veel-terrein-na-sterke-opening-in-enige-training-lewis-hamilton-laat-britse-fans-juichen~a0f3e17d/)
-  > Max Verstappen opende sterk tijdens de enige vrije training voor de Grand Prix van Groot-Brittannië, maar op de zachte banden kwam de coureur er niet...
-- [Vier seizoenen lang heeft The Bear kunnen opbouwen, nu valt alles uit elkaar](https://www.ad.nl/show/vier-seizoenen-lang-heeft-the-bear-kunnen-opbouwen-nu-valt-alles-uit-elkaar~ad375d2f9/)
-  > In het laatste seizoen van The Bear gaat echt alles fout. Soms is het bijna ondraaglijk om naar te kijken, maar het slotakkoord van de bejubelde...
-- [KNVB stapt af van jongste lichting internationals: vanaf komend seizoen geen Oranje onder 15 meer](https://www.ad.nl/voetbal/knvb-stapt-af-van-jongste-lichting-internationals-vanaf-komend-seizoen-geen-oranje-onder-15-meer~ad025d53/)
-  > De KNVB stopt met Oranje onder 15, het jongste nationale team. Wel blijft er een trainingsgroep bestaan, waarin de bond jonge spelers langer in het...
+- [Man zoekt kinderarts thuis op na coronaverhoor maar staat voor oude huis, nieuwe bewoners geschrokken](https://www.ad.nl/binnenland/man-zoekt-kinderarts-thuis-op-na-coronaverhoor-maar-staat-voor-oude-huis-nieuwe-bewoners-geschrokken~a85e61e2/)
+  > Een onbekende man heeft deze week luid scanderend voor de voormalige woning van Károly Illy, oud-lid van het Outbreak Management Team (OMT), gestaan...
+- [Oranje-international Nathan Aké verrast met overstap naar Turkije](https://www.ad.nl/voetbal/oranje-international-nathan-ake-verrast-met-overstap-naar-turkije~aea820ee/)
+  > Nathan Aké vervolgt zijn loopbaan verrassend in Turkije. De 31-jarige verdediger verruilt Manchester City voor een avontuur bij Fenerbahçe.
+- [Kan Max Verstappen aanhaken tijdens sprintkwalificatie op Silverstone?](https://www.ad.nl/formule-1/kan-max-verstappen-aanhaken-tijdens-sprintkwalificatie-op-silverstone~a066b440/)
+  > Max Verstappen liep ondanks een positieve start flink averij op in de enige vrije training. Kunnen de coureur en Red Bull Racing verrassen tijdens de...
+- [Dave en Lisanne toverden vervallen woning om tot modern droomhuis: ‘Alleen buitenmuren stonden er nog’](https://www.ad.nl/binnenland/dave-en-lisanne-toverden-vervallen-woning-om-tot-modern-droomhuis-alleen-buitenmuren-stonden-er-nog~a0716ee7/)
+  > „We gaan echt geen klushuis kopen!” Dat hielden Lisanne van Nimwegen (27) en Dave Huisman (31) maandenlang vol tijdens hun zoektocht naar een...
+- [Dit worden de ongemakkelijke coronavragen voor Hugo de Jonge](https://www.ad.nl/politiek/dit-worden-de-ongemakkelijke-coronavragen-voor-hugo-de-jonge~a2ee60f0/)
+  > Zeven jaar lang ging het over het stikstofprobleem. Ondanks verzet van boeren, lijkt er nu licht aan het einde van de tunnel met de plannen van het...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Lagarde zinspeelt op eerder vertrek als ECB-president](https://fd.nl/financiele-markten/1602597/lagarde-zinspeelt-op-eerder-vertrek-als-ecb-president)
-  > Geruchten over een eerder vertrek circuleren al lange tijd. Lagarde zegt nu zelf dat ‘het mogelijk is’ dat ze voor het einde van haar termijn...
-- [Nederlanders gaan vaker en verder op vakantie met de stekkerauto](https://fd.nl/samenleving/1602686/nederlanders-gaan-vaker-en-verder-op-vakantie-met-de-stekkerauto)
-  > Frankrijk is het goedkoopste vakantieland voor elektrisch rijden, Duitsland het duurste. Een retourrit naar het Gardameer is daardoor circa €63...
-- [Hongaarse regering scherpt toezicht op batterijproducenten aan](https://fd.nl/bedrijfsleven/1602379/hongaarse-regering-scherpt-toezicht-op-batterijproducenten-aan)
-  > Het strenge toezicht van de nieuwe Hongaarse regering vormt een breuk met het beleid van ex-premier Viktor Orbán. Zijn bewind was soepel met...
-- [Premier Moldavië treedt af na corruptieschandaal](https://fd.nl/economie/1602687/premier-moldavie-treedt-af-na-corruptieschandaal)
-  > Hij verklaarde vrijdag in een persbericht dat hij zijn mandaat niet langer kon uitoefenen in overeenstemming met zijn principes en overtuigingen.
-- [Frankrijk vestigt hoop op ‘uitverkorene’ karatekid Paul Seixas](https://fd.nl/samenleving/1602160/frankrijk-vestigt-hoop-op-uitverkorene-karatekid-paul-seixas)
-  > De 19-jarige wielrenner rijdt rond met de druk van een natie op zijn schouders. President Macron heeft inmiddels een staatszaak van de renner gemaakt.
+- [Rechter: verhoging verkeersboetes in 2024 en 2025 onterecht](https://fd.nl/samenleving/1602716/rechter-verhoging-verkeersboetes-in-2024-en-2025-onterecht)
+  > Twee Utrechtse kantonrechters vinden het verhogen van verkeersboetes vanwege gaten in de rijksbegroting onredelijk. Een definitief oordeel moet van...
+- [Een moment geduld: de nieuwe politieke cultuur laat nog even op zich wachten](https://fd.nl/politiek/1602607/een-moment-geduld-de-nieuwe-politieke-cultuur-laat-nog-even-op-zich-wachten)
+  > Volgens Rob Jetten volgt na de zomer een ‘belangrijke test’ voor de coalitie en de politiek als geheel.
+- [Het coronavirus is weg, maar de bedreigingen blijven](https://fd.nl/samenleving/1602697/het-coronavirus-is-weg-maar-de-bedreigingen-blijven)
+  > ‘Met grote afschuw’ constateert de Parlementaire enquêtecommissie corona dat er getuigen zijn die nu weer worden bedreigd, vooruitlopend op hun...
+- [Kabinet werkt aan wet die stagevergoeding verplicht](https://fd.nl/samenleving/1602608/kabinet-werkt-aan-wet-die-stagevergoeding-verplicht)
+  > Jongerenorganisaties, vakbonden en politieke partijen pleiten al langer voor zo’n verplichting. Nu lopen sommige studenten nog onbetaald stage.
+- [Kabinet steekt €450 mln in ondergrondse waterstofopslag](https://fd.nl/politiek/1602695/kabinet-steekt-450-mln-in-ondergrondse-waterstofopslag)
+  > De overheidsinvestering is nodig omdat marktpartijen de risico’s nog te groot vinden.
 
 ### Meest gelezen
 
