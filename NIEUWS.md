@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-07-2026 om 03:39*
+*Laatst bijgewerkt: 03-07-2026 om 07:25*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Honderden daders kregen lagere straf wegens vertraging proces](https://nos.nl/l/2621433)
+  > Honderden daders van zware misdrijven als moord, verkrachting en kindermisbruik, hebben de afgelopen jaren strafvermindering gekregen omdat hun...
+- [Reanimatie na schietpartij centrum Rotterdam, vijf aanhoudingen](https://nos.nl/l/2621426)
+  > Bij een schietpartij in het centrum van Rotterdam is een man zwaargewond geraakt, meldt de politie. Het slachtoffer is gereanimeerd en naar het...
+- [Tibetaanse man overleden die zichzelf in brand stak voor VN-hoofdkwartier](https://nos.nl/l/2621417)
+  > Voor het VN-hoofdgebouw in New York heeft een Tibetaanse man zichzelf in brand gestoken uit protest tegen de Chinese bezetting van Tibet. De man...
+- [Wekdienst 3/7: Sail Harlingen van start • Laatste wedstrijden eerste knock-outronde](https://nos.nl/l/2621416)
+  > Goedemorgen! Het vierjaarlijkse evenement Sail Harlingen begint en Madonna brengt haar nieuwe studio-album uit.
+        Eerst het weer: in het...
 - [Verlieslijdend Twente Airport gaat definitief naar groep regionale ondernemers](https://nos.nl/l/2621399)
   > Een groep regionale ondernemers mag het verlieslijdende vliegveld Twente Airport definitief gaan exploiteren. De provincie Overijssel heeft ingestemd...
-- [WHO-baas Tedros: uitbraak hantavirus voorbij](https://nos.nl/l/2621398)
-  > De Wereldgezondheidsorganisatie (WHO) zegt dat de uitbraak van het hantavirus voorbij is. In april was er een hantavirusuitbraak op het Nederlandse...
-- [Franse zanger Patrick Bruel opnieuw beschuldigd van verkrachting en aanranding](https://nos.nl/l/2621397)
-  > De Franse zanger Patrick Bruel is opnieuw beschuldigd van verkrachting en aanranding. Dat melden Franse media. Drie vrouwen hebben aangifte gedaan...
-- [Bewaker overleeft acht dagen onder puin na aardbeving Venezuela](https://nos.nl/l/2621394)
-  > Een man die ruim een week onder het puin zat door de aardbeving in Venezuela, is gered. Dat melden diverse media.
-        De 43-jarige bewaker werd...
-- [Populaire Turkse komiek aangehouden die president uitdaagt in show](https://nos.nl/l/2621391)
-  > De populaire Turkse stand-upcomedian Deniz Göktas is aangehouden en vastgezet voor verhoor. Volgens de Turkse krant Hürriyet is dat vanwege "het...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Dodental aardbevingen Venezuela opgelopen tot bijna 2600, mogelijk 50.000 vermisten](https://www.ad.nl/buitenland/dodental-aardbevingen-venezuela-opgelopen-tot-bijna-2600-mogelijk-50-000-vermisten~a14eaa45/)
-  > De aardbevingen in Venezuela hebben zeker 2595 mensen het leven gekost. Dat meldde waarnemend president Delcy Rodríguez op een persconferentie,...
-- [Zwitserland slaat razendsnel toe tegen Algerije: Embolo maakt zijn tweede van het toernooi](https://www.ad.nl/wk-voetbal/zwitserland-slaat-razendsnel-toe-tegen-algerije-embolo-maakt-zijn-tweede-van-het-toernooi~a5c2156ad/)
-  > Zwitserland werd groepswinnaar van groep B. De Zwitsers staan tegenover Algerije, dat derde werd in de groep met Argentinië, Oostenrijk en Jordanië....
-- [Man met Tibetaanse vlag overleden na zelfverbranding voor VN-hoofdkwartier in New York](https://www.ad.nl/buitenland/man-met-tibetaanse-vlag-overleden-na-zelfverbranding-voor-vn-hoofdkwartier-in-new-york~a1435d68/)
-  > Een Tibetaanse man die protesteerde tegen de Chinese bezetting van Tibet, heeft zichzelf donderdagavond voor het hoofdkwartier van de Verenigde...
-- [Zus van Cristiano Ronaldo: ‘Ik denk dat dit toernooi zijn afscheid is bij Portugal’](https://www.ad.nl/wk-voetbal/zus-van-cristiano-ronaldo-ik-denk-dat-dit-toernooi-zijn-afscheid-is-bij-portugal~ada8c6c5/)
-  > De vraag of Cristiano Ronaldo na het WK stopt hangt al het hele toernooi boven zijn hoofd. Met het EK en WK (in eigen land) voor de boeg leek niets...
-- [Portugal knikkert Kroatië uit het WK na chaotische slotfase met 19 minuten blessuretijd](https://www.ad.nl/wk-voetbal/portugal-knikkert-kroatie-uit-het-wk-na-chaotische-slotfase-met-19-minuten-blessuretijd~a53faf9bd/)
-  > Drie doelpunten, drie afgekeurde doelpunten, twee keer het houtwerk, negentien minuten blessuretijd. Portugal heeft in Toronto een chaotische en...
+- [Remy de Wit vertrekt na acht jaar bij KNSB en gaat aan de slag bij Nederlandse basketbalbond](https://www.ad.nl/schaatsen/remy-de-wit-vertrekt-na-acht-jaar-bij-knsb-en-gaat-aan-de-slag-bij-nederlandse-basketbalbond~a8001976/)
+  > Remy de Wit vertrekt als technisch directeur bij de KNSB. De inwoner van Kaatsheuvel begint op 1 september als ‘High Performance Director’ bij de...
+- [Viervoudig Tour-winnaar Chris Froome (41) stopt definitief: ‘Niet de manier waarop ik had gewild’](https://www.ad.nl/wielrennen/viervoudig-tour-winnaar-chris-froome-41-stopt-definitief-niet-de-manier-waarop-ik-had-gewild~a16c9d2c/)
+  > De Britse wielrenner Chris Froome heeft zijn carrière definitief beëindigd. De viervoudig winnaar van de Tour de France zat sinds eind vorig jaar...
+- [Langer werken, ontslagronde en uitgestelde bonus: duizenden werknemers Mercedes protesteren](https://www.ad.nl/economie/langer-werken-ontslagronde-en-uitgestelde-bonus-duizenden-werknemers-mercedes-protesteren~abbcfb88/)
+  > Duizenden werknemers van Mercedes-Benz protesteren vrijdag tegen de geplande bezuinigingen bij de Duitse autofabrikant, waarbij personeel onder meer...
+- [Cristiano Ronaldo draagt, jaar na zijn dood, het shirt van Diogo Jota: ‘We weten dat hij bij ons is’](https://www.ad.nl/voetbal/cristiano-ronaldo-draagt-jaar-na-zijn-dood-het-shirt-van-diogo-jota-we-weten-dat-hij-bij-ons-is~aa0e1f50/)
+  > Het is vandaag een jaar geleden dat Diogo Jota (28) en zijn broer André Silva (25) om het leven kwamen bij hun auto-ongeluk in het Spaanse...
+- [Nederlandse jurist eist 435 miljoen euro om rel rond PlayStation: ‘Gamen dreigt onbetaalbaar te worden’](https://www.ad.nl/tech/nederlandse-jurist-eist-435-miljoen-euro-om-rel-rond-playstation-gamen-dreigt-onbetaalbaar-te-worden~a0e7e93d/)
+  > Een Nederlandse stichting eist 435 miljoen euro van Sony omdat circa 1,7 miljoen Nederlanders te veel zouden hebben betaald voor hun...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Jouw wc-bezoekje levert duurzame energie op](https://fd.nl/economie/1602234/jouw-wc-bezoekje-levert-duurzame-energie-op)
-  > Vandaag in Dagkoers: Waar kunnen we kerncentrales bouwen? Jouw wc-bezoekje als toekomst van duurzame energie; en catastrophe bonds zijn populairder...
-- [Ketikoti voor ons grootkapitaal](https://fd.nl/opinie/1602224/ketikoti-voor-ons-grootkapitaal)
-  > Mijn prestaties als belegger stutten mijn autoriteit niet – zo ging ik in december nog liquide, waardoor ik de euforie op de beurs miste. Maar ja,...
-- [Dal der teleurstelling](https://fd.nl/opinie/1602125/dal-der-teleurstelling)
-  > Wat gebruikers constateren: ‘Ik zie geen direct verband tussen AI-gebruik en verbetering van ons product.’
-- [Personalia vrijdag 3 juli](https://fd.nl/bedrijfsleven/1602237/personalia-vrijdag-3-juli)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Lauwe slotstanden op Wall Street na tegenvallende banencijfers VS](https://fd.nl/financiele-markten/1602272/lauwe-slotstanden-op-wall-street-na-tegenvallende-banencijfers-vs)
-  > De verschillende indices op Wall Street liepen uiteen na banencijfers van de Amerikaanse overheid.
+- [Zijn twee T-shirts één item? Voor de nieuwe €3-heffing doet dat ertoe](https://fd.nl/politiek/1602123/zijn-twee-t-shirts-een-item-voor-de-nieuwe-3-heffing-doet-dat-ertoe)
+  > De EU wil de instroom van goedkope pakjes uit China aan banden leggen, maar neemt het daarbij niet al te nauw met de regels voor goed bestuur.
+- [Europa wil duurzaamheidseisen afschalen. Daardoor streven China en Brazilië ons voorbij](https://fd.nl/opinie/1601653/europa-wil-duurzaamheidseisen-afschalen-waardoor-china-en-brazilie-ons-straks-voorbijstreven)
+  > De Europese Unie kon jarenlang bogen op de macht van het Brussel-effect, waarmee het internationale standaarden creëerde. Die macht wordt nu bedreigd.
+- [Legendarische bouwer westernpistolen Colt is nu belangrijk voor Europa’s herbewapening](https://fd.nl/bedrijfsleven/1601600/colt-cz-bouwer-legendarische-westernpistolen-is-nu-belangrijk-voor-europas-herbewapening)
+  > Sinds de overname van een beroemde concurrent heet Ceská zbrojovka Colt CZ. Het aan het Damrak genoteerde Tsjechische wapenbedrijf heeft het...
+- [Defensie sluit deal met softwarebedrijf Intelic en overweegt ‘gouden aandeel’](https://fd.nl/bedrijfsleven/1602158/defensie-sluit-deal-met-softwarebedrijf-intelic-en-overweegt-gouden-aandeel)
+  > Intelic heeft een deal gesloten met het ministerie van Defensie voor de ontwikkeling van dronesoftware.
+- [Een boek vol schoffiesvoetbal en een pleidooi voor het voedselbos](https://fd.nl/samenleving/1602118/een-boek-vol-schoffiesvoetbal-en-een-pleidooi-voor-het-voedselbos)
+  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
 
 ### Meest gelezen
 
