@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-07-2026 om 21:02*
+*Laatst bijgewerkt: 04-07-2026 om 23:00*
 
 ---
 
@@ -10,7 +10,7 @@
 
 - [Dodental Venezuela loopt verder op: bijna 3000 slachtoffers geborgen](https://nos.nl/l/2621675)
   > Het dodental na de twee verwoestende aardbevingen in Venezuela is opgelopen tot 2954, meldt het ministerie van Informatie. Het aantal gewonden is...
-- [Marokkaanse gemeenschap viert halen kwartfinale WK, arrestaties in Den Haag](https://nos.nl/l/2621669)
+- [Marokkaanse gemeenschap viert winst op WK, arrestaties in Den Haag en Rotterdam](https://nos.nl/l/2621669)
   > Overal in Nederland vieren fans van het Marokkaanse voetbalelftal de overwinning op Canada. Marokko won met 3-0, waarmee het land de kwartfinales van...
 - [30.000 betogers tegen partijdag AfD, autoriteiten tevreden over verloop](https://nos.nl/l/2621651)
   > Meer dan 30.000 demonstranten hebben vandaag in het Oost-Duitse Erfurt geprobeerd om het congres van de radicaal-rechtse partij AfD te dwarsbomen,...
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Muur van Paraguay gebroken: Mbappé zet Frankrijk met VAR-penalty op voorsprong](https://www.ad.nl/wk-voetbal/muur-van-paraguay-gebroken-mbappe-zet-frankrijk-met-var-penalty-op-voorsprong~a7c05740/)
+  > Frankrijk vervolgt de jacht op de derde wereldtitel tegen Paraguay. Het Zuid-Amerikaanse land schakelde in de vorige ronde Duitsland uit na...
+- [Trossard op weg naar Besiktas, Van Dijk blijft bij Liverpool](https://www.ad.nl/voetbal/trossard-op-weg-naar-besiktas-van-dijk-blijft-bij-liverpool~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
 - [‘Team USA’ werkt op feestdag ontspannen toe naar kraker tegen België: ‘Laten we wereldkampioen worden’](https://www.ad.nl/wk-voetbal/team-usa-werkt-op-feestdag-ontspannen-toe-naar-kraker-tegen-belgie-laten-we-wereldkampioen-worden~a34ed2ec/)
   > Het was vandaag de ‘4th of July’, de 250ste keer dat Independence Day werd gevierd in de Verenigde Staten. Daar deed de nationale ploeg van...
 - [Man beklimt Eiffeltoren met Amerikaanse vlag en wordt opgepakt](https://www.ad.nl/buitenland/man-beklimt-eiffeltoren-met-amerikaanse-vlag-en-wordt-opgepakt~a5f6b27a/)
   > Een man is zaterdagmiddag opgepakt nadat hij de Eiffeltoren beklom in de Franse hoofdstad Parijs. Volgens de lokale autoriteiten had de man een...
 - [Etappe 2 | Kan Mathieu van der Poel heuvelachtige rit op zijn naam schrijven? Zo laat is de start en verwachte finish](https://www.ad.nl/tour-de-france/etappe-2-kan-mathieu-van-der-poel-heuvelachtige-rit-op-zijn-naam-schrijven-zo-laat-is-de-start-en-verwachte-finish~ad41880b/)
   > Na de ploegentijdrit wordt de eerste reguliere etappe gereden in de Tour. Van Tarragona naar Barcelona, 168 kilometer langs de Costa Dorada, met in...
-- [Hervé Renard na twee WK-duels alweer klaar als bondscoach van Tunesië](https://www.ad.nl/wk-voetbal/herve-renard-na-twee-wk-duels-alweer-klaar-als-bondscoach-van-tunesie~a2d5cab9/)
-  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
-- [Frankrijk laat uit luxe een van de smaakmakers voorin op de bank beginnen tegen Duitsland-beul Paraguay](https://www.ad.nl/wk-voetbal/frankrijk-laat-uit-luxe-een-van-de-smaakmakers-voorin-op-de-bank-beginnen-tegen-duitsland-beul-paraguay~a7c05740/)
-  > Frankrijk vervolgt de jacht op de wereldtitel tegen Paraguay. Het Zuid-Amerikaanse land schakelde in de vorige ronde Duitsland uit na strafschoppen....
 
 ### Meest gelezen
 
