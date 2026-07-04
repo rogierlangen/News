@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-07-2026 om 23:08*
+*Laatst bijgewerkt: 04-07-2026 om 03:32*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Drie mannen vrijgesproken in zaak spraakmakende dood Noord-Ierse journaliste](https://nos.nl/l/2621564)
+  > Drie mannen die verdacht werden van betrokkenheid bij de moord op de Noord-Ierse journaliste Lyra McKee zijn vrijgesproken. Na zeven jaar is er nog...
+- [Doden na Russische aanval op appartementsgebouwen in Oekraïense stad Sumy](https://nos.nl/l/2621561)
+  > Bij een Russische aanval op het centrum van de Oekraïense stad Sumy zijn zeker vier mensen gedood. 27 anderen raakten gewond, meldt de regionale...
 - [Britse denktank: drones boven Nederlandse bases waarschijnlijk van Russische schepen](https://nos.nl/l/2621556)
   > De waargenomen drones die eind vorig jaar onder meer boven vliegbases Volkel en Eindhoven vlogen, waren hoogstwaarschijnlijk afkomstig van Russische...
 - [Herstel kabels langs spoor bij Rotterdam duurt nog langer: 'Monnikenwerk'](https://nos.nl/l/2621543)
   > De werkzaamheden aan kabels op het spoor bij Rotterdam duren zeker tot maandagochtend 05.00 uur, zegt ProRail. Eerder dacht de spoorbeheerder dat...
 - ['NAVO-landen geven komende twee jaar 140 miljard aan Oekraïne'](https://nos.nl/l/2621542)
   > De NAVO-landen gaan hun "ijzersterke toewijding" aan het bondgenootschap en de steun aan Oekraïne opnieuw vastleggen in hun slotverklaring van de...
-- [Zeldzame druk van onafhankelijkheidsverklaring VS gevonden in Brits archief](https://nos.nl/l/2621541)
-  > Amerikaanse historici hadden zich geen beter verjaardagscadeau kunnen wensen voor de viering van het 250-jarige bestaan van hun land. In het Verenigd...
-- ['Taylor Swift al getrouwd', doneert miljoenen voorafgaand aan huwelijksfeest](https://nos.nl/l/2621536)
-  > 'Ons koninklijke huwelijk', zo noemen de Amerikanen de bruiloft van popster Taylor Swift en Americanfootballspeler Travis Kelce. Het koppel geeft...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Empire State Building kleurt blauw voor bruiloft Taylor Swift](https://www.ad.nl/show/empire-state-building-kleurt-blauw-voor-bruiloft-taylor-swift~a2cb5eb3/)
-  > Het bekende Empire State Building in New York kleurt vrijdagavond blauw ter ere van het huwelijk van Taylor Swift en Travis Kelce. Op de website van...
-- [Aantal ebola-gevallen blijft maar stijgen; nu al ruim 1.500 besmettingen en 473 doden](https://www.ad.nl/buitenland/aantal-ebola-gevallen-blijft-maar-stijgen-nu-al-ruim-1-500-besmettingen-en-473-doden~a1030b52/)
-  > De Democratische Republiek Congo lijkt de ebola-uitbraak nog lang niet onder controle te hebben. Volgens nieuwe cijfers die vrijdag bekend zijn...
-- [Lionel Messi slaat toe tegen Kaapverdië: Argentinië na half uur op voorsprong in Miami](https://www.ad.nl/wk-voetbal/lionel-messi-slaat-toe-tegen-kaapverdie-argentinie-na-half-uur-op-voorsprong-in-miami~a42b0147/)
-  > Kaapverdië maakt indruk dit WK voetbal. Maar wat kan het Afrikaanse land, met drie geboren Rotterdammers in de basis, tegen Lionel Messi en...
-- [Van Gaal-truc Australië haalt niets uit: Egypte mede dankzij panenka Salah naar achtste finale](https://www.ad.nl/wk-voetbal/van-gaal-truc-australie-haalt-niets-uit-egypte-mede-dankzij-panenka-salah-naar-achtste-finale~a08e875c/)
-  > Egypte heeft de achtste finale van het WK bereikt. De ploeg van sterspeler Mohamed Salah was in het Dallas Stadium in Arlington, waar het duel na 120...
-- [Fietser zeer ernstig gewond na aanrijding door beschonken automobilist in Ambt Delden](https://www.ad.nl/hof-van-twente/fietser-zeer-ernstig-gewond-na-aanrijding-door-beschonken-automobilist-in-ambt-delden~af82a15a/)
-  > Een fietser is vrijdagavond zeer ernstig gewond geraakt bij een aanrijding met een personenauto op de N740 in Ambt Delden. Het slachtoffer is met...
+- [Zlatan Ibrahimovic geëmotioneerd door Kaapverdië: ‘Ik vind dit zo’n prachtig moment’](https://www.ad.nl/wk-voetbal/zlatan-ibrahimovic-geemotioneerd-door-kaapverdie-ik-vind-dit-zon-prachtig-moment~ade993ae/)
+  > Kaapverdië veroverde de harten van voetballiefhebbers over de hele wereld met het optreden tegen Argentinië (3-2). Ook oud-voetballer Zlatan...
+- [Schaakbond schorst voormalig wereldkampioen Kramnik die medespelers van valsspelen betichtte](https://www.ad.nl/andere-sporten/schaakbond-schorst-voormalig-wereldkampioen-kramnik-die-medespelers-van-valsspelen-betichtte~a6b6c439/)
+  > De internationale schaakbond heeft voormalig wereldkampioen Vladimir Kramnik vrijdag voor minstens een jaar geschorst. De bond neemt het Kramnik...
+- [Sterk Colombia verdedigt kleine voorsprong op Ghana](https://www.ad.nl/wk-voetbal/sterk-colombia-verdedigt-kleine-voorsprong-op-ghana~acc307cd/)
+  > De laatste wedstrijd in de zestiende finales van het WK voetbal gaat tussen Colombia en Ghana. Welk land bereikt de laatste zestien? Volg het duel in...
+- [WK-duel tussen Mexico en Engeland toch op afgesproken tijdstip, ondanks verwacht noodweer](https://www.ad.nl/wk-voetbal/wk-duel-tussen-mexico-en-engeland-toch-op-afgesproken-tijdstip-ondanks-verwacht-noodweer~abdbba25/)
+  > De wedstrijd van gastland Mexico tegen Engeland in de achtste finales van het WK voetbal leek even met zes uur vervroegd vanwege extreem weer. Dat...
+- [Zomervakantie te duur en te heet: helft van de Nederlanders blijft thuis](https://www.ad.nl/binnenland/zomervakantie-te-duur-en-te-heet-helft-van-de-nederlanders-blijft-thuis~aab2b6b4/)
+  > Deze zomer gaat slechts 52 procent van de Nederlanders in juli of augustus op vakantie. Twee jaar geleden was dat nog 73 procent. Geld speelt daarbij...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [De glazen bol van analisten: wat brengt AI, en blijft de rente stijgen?](https://fd.nl/economie/1602606/de-glazen-bol-van-analisten-wat-brengt-ai-en-blijft-de-rente-stijgen)
+  > In deze Toegevoegde Waarde hebben Anna Dijkman en Marijn Jongsma zo’n twintig rapporten doorgenomen met voorspellingen over de tweede helft van het...
 - [Personalia zaterdag 4 juli](https://fd.nl/bedrijfsleven/1602719/personalia-zaterdag-4-juli)
   > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Ondanks de extreme hitte is het klimaat niet meer hot](https://fd.nl/samenleving/1601751/ondanks-de-extreme-hitte-is-het-klimaat-niet-meer-hot)
+  > Het lijkt wel een ander tijdperk: kiezers die vragen om klimaatbeleid, scholierenstakingen, vliegschaamte. Het draagvlak voor klimaat en de daarbij...
 - [Werken smartphones als voorbehoedsmiddel?](https://fd.nl/economie/1602679/werken-smartphones-als-voorbehoedsmiddel)
   > In veel landen daalt het aantal geboorten harder vanaf het moment dat smartphones er hun intrede doen. Over het waarom tasten demografen vooralsnog...
 - [Hooggerechtshof dient vooral Republikeinse belangen](https://fd.nl/politiek/1602609/hooggerechtshof-dient-vooral-republikeinse-belangen)
   > Onder een grote conservatieve meerderheid nemen de rechters beslissingen die Trumps Republikeinse partij steviger in het zadel helpen, al krijgt de...
-- [Die escalatietaal mag wel wat minder](https://fd.nl/opinie/1602478/die-escalatietaal-mag-wel-wat-minder)
-  > Voor wie van taal houdt is de woordinflatie in de Tweede Kamer fascinerend, maar de vraag dringt zich wel op welke woorden nog bij ‘de mensen in het...
-- [Lage straffen, hoge winst: op jacht naar nepvoetbalshirts in Bangkok](https://fd.nl/bedrijfsleven/1601597/lage-straffen-hoge-winst-op-jacht-naar-nepvoetbalshirts-in-bangkok)
-  > In Thailand jagen sportmerken op de handelaren van namaakvoetbalshirts, die tijdens dit WK de markt overspoelen. Het is een kat-en-muisspel in een...
 
 ### Meest gelezen
 
