@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-07-2026 om 19:19*
+*Laatst bijgewerkt: 04-07-2026 om 21:02*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Dodental Venezuela loopt verder op: bijna 3000 slachtoffers geborgen](https://nos.nl/l/2621675)
+  > Het dodental na de twee verwoestende aardbevingen in Venezuela is opgelopen tot 2954, meldt het ministerie van Informatie. Het aantal gewonden is...
+- [Marokkaanse gemeenschap viert halen kwartfinale WK, arrestaties in Den Haag](https://nos.nl/l/2621669)
+  > Overal in Nederland vieren fans van het Marokkaanse voetbalelftal de overwinning op Canada. Marokko won met 3-0, waarmee het land de kwartfinales van...
 - [30.000 betogers tegen partijdag AfD, autoriteiten tevreden over verloop](https://nos.nl/l/2621651)
   > Meer dan 30.000 demonstranten hebben vandaag in het Oost-Duitse Erfurt geprobeerd om het congres van de radicaal-rechtse partij AfD te dwarsbomen,...
 - ['We dachten: dit is foute boel', Nederlanders zagen Spaanse bosbrand snel groeien](https://nos.nl/l/2621634)
   > Edwin Beijersbergen (57) dacht dat hij een heel bijzonder weerverschijnsel zag tijdens zijn vakantie met zijn vriendin aan de Spaanse Costa Brava....
 - [Duitsers vinden duizend botten en tanden bij opknappen van tuin](https://nos.nl/l/2621625)
   > In de Duitse stad Braunschweig heeft een familie bij het renoveren van de tuin ruim duizend menselijke botten en tanden gevonden. Dat schrijft de...
-- [Automobilist overleden na aanrijding met vrachtwagen bij Helmond](https://nos.nl/l/2621623)
-  > Bij een verkeersongeluk op de N279 bij Helmond is een automobilist om het leven gekomen. Het gaat om een man van 80 uit buurgemeente Deurne, zegt de...
-- [Extinction Rebellion voert actie bij A12, 270 demonstranten opgepakt](https://nos.nl/l/2621622)
-  > Een kleine groep activisten van Extinction Rebellion heeft vanmiddag kort de parallelbaan van snelweg A12 geblokkeerd bij Utrecht. Dat deden zij met...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Speelschema WK voetbal | Dit is het complete programma en de route richting de finale](https://www.ad.nl/voetbal/speelschema-wk-voetbal-dit-is-het-complete-programma-en-de-route-richting-de-finale~ad85207c/)
-  > Nederland ligt eruit, maar er staat nog genoeg voetbalspektakel op het programma op het WK 2026 in Canada, Mexico en de Verenigde Staten. Tot en met...
-- [Oud-minister komt met pijnlijke analyse: hogeropgeleiden creëren vooral banen voor zichzelf](https://www.ad.nl/politiek/oud-minister-komt-met-pijnlijke-analyse-hogeropgeleiden-creeren-vooral-banen-voor-zichzelf~a80fe109/)
-  > Generaties lang kregen kinderen het beter dan hun ouders. Nu gelooft de kiezer daar niet meer in. Meer diploma’s brachten geen gelijkheid, maar...
-- [Marokko dankzij uitblinker Ounahi naar kwartfinale, maar moet vrezen voor gemis smaakmaker Saibari](https://www.ad.nl/wk-voetbal/marokko-dankzij-uitblinker-ounahi-naar-kwartfinale-maar-moet-vrezen-voor-gemis-smaakmaker-saibari~af7ac36f/)
-  > Marokko heeft zich zaterdagavond geplaatst voor de kwartfinales van het WK. Dankzij twee goals van middenvelder Azzedine Ounahi en een late goal van...
-- [Terugkeer van Daley Blind naar Ajax stap dichterbij, transfervrije verdediger voert gesprekken met Jordi Cruijff](https://www.ad.nl/voetbal/terugkeer-van-daley-blind-naar-ajax-stap-dichterbij-transfervrije-verdediger-voert-gesprekken-met-jordi-cruijff~ab8c68d7/)
-  > De terugkeer van Daley Blind naar Ajax krijgt gestalte. De 36-jarige verdediger is met de club in gesprek over een hereniging.
-- [Raymi Sambo: ‘Het woord pacemaker was een trigger om serieus te gaan sporten’](https://www.ad.nl/gezond/raymi-sambo-het-woord-pacemaker-was-een-trigger-om-serieus-te-gaan-sporten~ae3f7893/)
-  > Hij heeft al jaren slaapproblemen, is verslaafd aan wandelen en ziet therapie als een innerlijke schoonheidsspecialist: ‘Je ruimt jezelf vanbinnen...
+- [‘Team USA’ werkt op feestdag ontspannen toe naar kraker tegen België: ‘Laten we wereldkampioen worden’](https://www.ad.nl/wk-voetbal/team-usa-werkt-op-feestdag-ontspannen-toe-naar-kraker-tegen-belgie-laten-we-wereldkampioen-worden~a34ed2ec/)
+  > Het was vandaag de ‘4th of July’, de 250ste keer dat Independence Day werd gevierd in de Verenigde Staten. Daar deed de nationale ploeg van...
+- [Man beklimt Eiffeltoren met Amerikaanse vlag en wordt opgepakt](https://www.ad.nl/buitenland/man-beklimt-eiffeltoren-met-amerikaanse-vlag-en-wordt-opgepakt~a5f6b27a/)
+  > Een man is zaterdagmiddag opgepakt nadat hij de Eiffeltoren beklom in de Franse hoofdstad Parijs. Volgens de lokale autoriteiten had de man een...
+- [Etappe 2 | Kan Mathieu van der Poel heuvelachtige rit op zijn naam schrijven? Zo laat is de start en verwachte finish](https://www.ad.nl/tour-de-france/etappe-2-kan-mathieu-van-der-poel-heuvelachtige-rit-op-zijn-naam-schrijven-zo-laat-is-de-start-en-verwachte-finish~ad41880b/)
+  > Na de ploegentijdrit wordt de eerste reguliere etappe gereden in de Tour. Van Tarragona naar Barcelona, 168 kilometer langs de Costa Dorada, met in...
+- [Hervé Renard na twee WK-duels alweer klaar als bondscoach van Tunesië](https://www.ad.nl/wk-voetbal/herve-renard-na-twee-wk-duels-alweer-klaar-als-bondscoach-van-tunesie~a2d5cab9/)
+  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
+- [Frankrijk laat uit luxe een van de smaakmakers voorin op de bank beginnen tegen Duitsland-beul Paraguay](https://www.ad.nl/wk-voetbal/frankrijk-laat-uit-luxe-een-van-de-smaakmakers-voorin-op-de-bank-beginnen-tegen-duitsland-beul-paraguay~a7c05740/)
+  > Frankrijk vervolgt de jacht op de wereldtitel tegen Paraguay. Het Zuid-Amerikaanse land schakelde in de vorige ronde Duitsland uit na strafschoppen....
 
 ### Meest gelezen
 
