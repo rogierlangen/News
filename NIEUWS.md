@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-07-2026 om 16:12*
+*Laatst bijgewerkt: 05-07-2026 om 18:06*
 
 ---
 
@@ -8,7 +8,9 @@
 
 ### Laatste nieuws
 
-- [Farage onder vergrootglas voor aannemen giften veroordeelde crypto-investeerder](https://nos.nl/l/2621774)
+- [Franse rechtspraak worstelt met zaken over partnergeweld: 'Nog lange weg te gaan'](https://nos.nl/l/2621790)
+  > In Frankrijk is het aantal strafzaken wegens partnergeweld de afgelopen jaren flink toegenomen. Dat klinkt als slecht nieuws, maar bij het Franse...
+- [Onderzoek dreigt tegen Farage voor aannemen giften veroordeelde crypto-investeerder](https://nos.nl/l/2621774)
   > De geldzaken van Nigel Farage, leider van de rechtse, anti-immigratiepartij Reform UK, liggen opnieuw onder een vergrootglas in het Verenigd...
 - [USAR kon niemand redden in Venezuela, 'maar wel hoop en troost geboden'](https://nos.nl/l/2621769)
   > Het Nederlandse zoekteam USAR is terug uit Venezuela. Het vliegtuig met de 64 leden en acht speurhonden landde aan het begin van de middag op...
@@ -16,8 +18,6 @@
   > Het Amsterdamse theater De Kleine Komedie heeft een gratis telefoonnummer in het leven geroepen voor moppenliefhebbers: de Geinlijn. Bellers krijgen...
 - [Schrijfster Marjan Berk (93) overleden](https://nos.nl/l/2621764)
   > Schrijfster en columniste Marjan Berk is op 93-jarige leeftijd overleden in Amsterdam. Dat heeft haar familie via haar uitgeverij bekendgemaakt....
-- [Vier doden en twee gewonden bij verkeersongeval in Limburg](https://nos.nl/l/2621760)
-  > Bij een auto-ongeluk in Limburg zijn vanmiddag vier mensen om het leven gekomen. Twee inzittenden raakten gewond en zijn naar het ziekenhuis...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Suzan en Freek genieten van mooi leven en Jade Anna weer naar huis na verlovingsvakantie](https://www.ad.nl/show/suzan-en-freek-genieten-van-mooi-leven-en-jade-anna-weer-naar-huis-na-verlovingsvakantie~a023b9d3/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Na Franse bosbrand veranderde caravan Marcel en Sylvia in een zwarte hoop as: ‘Alles is verwoest’](https://www.ad.nl/buitenland/na-franse-bosbrand-veranderde-caravan-marcel-en-sylvia-in-een-zwarte-hoop-as-alles-is-verwoest~ab5f4dc1/)
-  > Een felle bosbrand legde donderdag de Zuid-Franse camping Le Brasilia in de as. Marcel en Sylvia van de Weerd uit Ridderkerk waren een van de...
-- [Klassementen Tour | Dit zijn de verschillen tussen de favorieten na twee etappes, Nederlander in bollentrui](https://www.ad.nl/tour-de-france/klassementen-tour-dit-zijn-de-verschillen-tussen-de-favorieten-na-twee-etappes-nederlander-in-bollentrui~a537c687/)
-  > De Tour de France is zaterdag begonnen met een ploegentijdrit. Over drie weken is de finish traditiegetrouw in Parijs. In totaal doen zeventien...
-- [Pogacar gunt ploeggenoot Del Toro de ritzege in Tour de France, Van der Poel komt tekort](https://www.ad.nl/tour-de-france/pogacar-gunt-ploeggenoot-del-toro-de-ritzege-in-tour-de-france-van-der-poel-komt-tekort~ad41880b/)
-  > Isaac Del Toro heeft dankzij een mooi gebaar van zijn kopman Tadej Pogacar de tweede etappe in de Tour de France gewonnen. Pogacar hield in de...
-- [Nachtmerrie op cruiseschip Ruby Princess: 125 passagiers besmet met norovirus](https://www.ad.nl/buitenland/nachtmerrie-op-cruiseschip-ruby-princess-125-passagiers-besmet-met-norovirus~adf35f85/)
-  > Een twintigdaagse luxecruise van San Francisco naar Canada en Alaska is voor tientallen passagiers uitgedraaid op een nachtmerrie. Aan boord van de...
+- [Klopp bijna rond met Duitsland, Van Dijk blijft bij Liverpool](https://www.ad.nl/voetbal/klopp-bijna-rond-met-duitsland-van-dijk-blijft-bij-liverpool~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Rianne Letschert vindt ministerschap ‘best eenzaam’: ‘Een knuffel zou soms zo fijn zijn’](https://www.ad.nl/mezza/rianne-letschert-vindt-ministerschap-best-eenzaam-een-knuffel-zou-soms-zo-fijn-zijn~aefebc1bf/)
+  > Ze werd in korte tijd informateur én minister, maar Rianne Letschert doet er alles aan om nuchter te blijven. Tijdens een strandwandeling vertelt de...
+- [Kraker op WK: Noorwegen aast op historische prestatie, Brazilië won nog nooit van Noren](https://www.ad.nl/wk-voetbal/kraker-op-wk-noorwegen-aast-op-historische-prestatie-brazilie-won-nog-nooit-van-noren~a2256399/)
+  > Een heerlijk affiche in de achtste finales van het WK. Recordkampioen Brazilië neemt het op tegen het sterke Noorwegen, dat als outsider voor de...
+- [Familie Stoffels leeft fulltime in camper: ‘Zorgen zijn voor morgen’](https://www.ad.nl/vlaardingen/familie-stoffels-leeft-fulltime-in-camper-zorgen-zijn-voor-morgen~a2a5c660/)
+  > Huis, haard en banen hebben ze opgegeven voor een leven in een camper. Maurice en Kirsten Stoffels uit Vlaardingen reizen met hun dochters fulltime...
+- [Etappe 3 | Peloton verlaat Spanje: eerste bergrit brengt renners naar Frankrijk, kans voor vluchters?](https://www.ad.nl/tour-de-france/etappe-3-peloton-verlaat-spanje-eerste-bergrit-brengt-renners-naar-frankrijk-kans-voor-vluchters~a56c53c2/)
+  > Na twee dagen in Catalonië zegt het peloton maandag gedag tegen Spanje. De derde etappe voert de renners van Granollers via de Pyreneeën naar het...
 
 ### Meest gelezen
 
@@ -46,16 +46,14 @@
 
 ### Laatste nieuws
 
+- [Kabinet roept concurrentiebeding terecht een halt toe](https://fd.nl/opinie/1602592/kabinet-roept-concurrentiebeding-terecht-een-halt-toe)
+  > Het is goed dat Vijlbrief nu een streep in het zand zet. Voor werknemers die willen groeien, maar ook voor een bloeiende economie.
+- [Castlelake krijgt voet tussen de deur bij EasyJet met nieuw bod](https://fd.nl/bedrijfsleven/1602757/castlelake-krijgt-voet-tussen-de-deur-bij-easyjet-met-nieuw-bod)
+  > Nieuwste bod waardeert Britse budgetluchtvaartmaatschappij op £5,2 mrd (€6,06 mrd) en overtreft het vorige bod.
+- [Naheffing voor LVMH-topman Arnault en zijn vrouw](https://fd.nl/bedrijfsleven/1602755/naheffing-voor-lvmh-topman-arnault-en-zijn-vrouw)
+- [Zuid-Korea start nationaal fonds met opbrengsten halfgeleiderindsutrie](https://fd.nl/politiek/1602754/zuid-korea-start-nationaal-fonds-met-opbrengsten-halfgeleiderindsutrie)
 - [Nigel Farage weer onder vuur na niet gemelde giften](https://fd.nl/politiek/1602753/nigel-farage-weer-onder-vuur-na-niet-gemelde-giften)
   > De Britse politicus Nigel Farage is voor de tweede keer in korte tijd in opspraak geraakt wegens het mogelijk accepteren van giften of diensten...
-- [Enexis schakelt uit voorzorg stroom uit bij 18.000 klanten in en rond Tilburg](https://fd.nl/bedrijfsleven/1602623/enexis-schakelt-uit-voorzorg-stroom-uit-bij-18-000-klanten-in-en-rond-tilburg)
-  > Volgens een woordvoerder van de netbeheerder is het de eerste keer dat stroomaansluitingen proactief worden uitgeschakeld om overbelasting van het...
-- [Met overname Accell komt nieuw Aziatisch fietsconglomeraat stap dichterbij](https://fd.nl/bedrijfsleven/1602602/met-overname-accell-komt-nieuw-aziatisch-fietsconglomeraat-stap-dichterbij)
-  > De Aziatische investeerder Dutech wordt waarschijnlijk de eigenaar van fietsfabrikant Accell. Daarmee komt een nieuw internationaal fietsconcern een...
-- [Daar waar het (niet) gebeurt](https://fd.nl/opinie/1602603/daar-waar-het-niet-gebeurt)
-  > Na dit jaar geeft Europa geen coronaobligaties meer uit. Bijna 250 jaar geleden wist Amerika’s founding father Alexander Hamilton al dat gezamenlijke...
-- [Twee kopstukken weg bij NautaDutilh, kantoor houdt strategie tegen het licht](https://fd.nl/bedrijfsleven/1602601/twee-kopstukken-weg-bijnautadutilh-kantoor-houdt-strategie-tegen-het-licht)
-  > Lieke van der Velden stapt over naar Loyens & Loeff, Petra Zijp verlaat de advocatuur. Beiden waren eerder managing partner bij NautaDutilh.
 
 ### Meest gelezen
 
