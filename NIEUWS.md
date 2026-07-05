@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-07-2026 om 03:50*
+*Laatst bijgewerkt: 05-07-2026 om 07:30*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Man opgepakt na beklimmen Eiffeltoren met Amerikaanse vlag](https://nos.nl/l/2621693)
-  > Een man is gearresteerd nadat hij zaterdagmiddag de Eiffeltoren had beklommen en een Amerikaanse vlag had opgehangen. Dat melden lokale media. De...
+- [Nieuwe wet maakt wooncoöperatie beginnen makkelijker, 'mensen zijn er gelukkiger'](https://nos.nl/l/2621706)
+  > Het moet makkelijker worden om zelf met een groep mensen een wooncoöperatie te starten. Deze week stemde de Tweede Kamer in met de Wet bevordering...
+- [Wekdienst 5/7: Reddingswerkers terug uit Venezuela • Brazilië treft Noorwegen op WK](https://nos.nl/l/2621704)
+  > Goedemorgen! Het Nederlandse USAR reddingsteam keert vandaag terug vanuit Venezuela. En Tour de France-liefhebbers kunnen kijken naar de tweede...
+- [Trump viert 250 jaar VS en vermengt in toespraak patriottisme met partijpolitiek](https://nos.nl/l/2621698)
+  > De 250ste verjaardag van de Verenigde Staten is vannacht afgesloten met een toespraak van president Trump in Washington D.C. Daarin vermengde hij...
+- [Man opgepakt na beklimmen van Eiffeltoren met Amerikaanse vlag](https://nos.nl/l/2621693)
+  > In Parijs is een man gearresteerd nadat hij zaterdagmiddag de Eiffeltoren had beklommen en een Amerikaanse vlag had opgehangen, melden lokale Franse...
 - [Nederlandse vrouw ontvoerd, verkracht en afgeperst in Pakistan](https://nos.nl/l/2621692)
   > Een Nederlandse vrouw en haar Venezolaanse reisgenoot zijn afgelopen week tijdens een bezoek aan de Pakistaanse stad Lahore ontvoerd, verkracht en...
-- [Dodental Venezuela loopt verder op: bijna 3000 slachtoffers geborgen](https://nos.nl/l/2621675)
-  > Het dodental na de twee verwoestende aardbevingen in Venezuela is opgelopen tot 2954, meldt het ministerie van Informatie. Het aantal gewonden is...
-- [Marokkaanse gemeenschap viert winst op WK, arrestaties in Den Haag en Rotterdam](https://nos.nl/l/2621669)
-  > Overal in Nederland vieren fans van het Marokkaanse voetbalelftal de overwinning op Canada. Marokko won met 3-0, waarmee het land de kwartfinales van...
-- [30.000 betogers tegen partijdag AfD, autoriteiten tevreden over verloop](https://nos.nl/l/2621651)
-  > Meer dan 30.000 demonstranten hebben vandaag in het Oost-Duitse Erfurt geprobeerd om het congres van de radicaal-rechtse partij AfD te dwarsbomen,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Uren na evacuatie festivalterrein geeft Trump alsnog toespraak ter ere van 250ste verjaardag van VS](https://www.ad.nl/buitenland/uren-na-evacuatie-festivalterrein-geeft-trump-alsnog-toespraak-ter-ere-van-250ste-verjaardag-van-vs~ae67dd9c/)
-  > Enkele uren voor de toespraak van president Donald Trump zijn alle aanwezigen op het festivalterrein in Washington gesommeerd een veilig heenkomen te...
-- [De twee gezichten van de ANWB: tienduizend vrijwilligers en een topvrouw die 6 ton verdient](https://www.ad.nl/binnenland/de-twee-gezichten-van-de-anwb-tienduizend-vrijwilligers-en-een-topvrouw-die-6-ton-verdient~a4fb3054/)
-  > Een omzet van 1,6 miljard, ruim 100 miljoen euro winst en een topmanagement dat tonnen verdient. Het kan niet op bij de ANWB, de club waar we ook...
-- [Politie grijpt in bij feest in Rotterdam en Den Haag na WK-zege Marokko, politie bekogeld met vuurwerk](https://www.ad.nl/rotterdam/politie-grijpt-in-bij-feest-in-rotterdam-en-den-haag-na-wk-zege-marokko-politie-bekogeld-met-vuurwerk~a779128f/)
-  > Groot feest in het centrum van Rotterdam na de zege van Marokko op Canada (3-0) in de achtste finales van het WK. Honderden voetbalsupporters gingen...
-- [Mooie woorden voor Sidny Lopes Cabral van zijn vriendin, Tagliafico ontspant na bereiken kwartfinales](https://www.ad.nl/wk-voetbal/mooie-woorden-voor-sidny-lopes-cabral-van-zijn-vriendin-tagliafico-ontspant-na-bereiken-kwartfinales~a1f94c0c/)
-  > De knock-outfase van het WK is bezig. De belangen nemen dus toe, maar gelukkig is er op social media vaak nog wel tijd voor wat luchtigheid. Wij...
-- [Frankrijk kraakt stug Paraguay na VAR-penalty en treft Marokko in kwartfinale](https://www.ad.nl/wk-voetbal/frankrijk-kraakt-stug-paraguay-na-var-penalty-en-treft-marokko-in-kwartfinale~a7c05740/)
-  > Frankrijk heeft zich geplaatst voor de kwartfinales van het WK. In de bloedhitte van Philadelphia kostte het de topfavoriet bloed, zweet en flink wat...
+- [Op Amerika’s 250ste verjaardag viert Donald Trump zijn eigen politieke feestje: ‘Communisme steekt de kop weer op’](https://www.ad.nl/buitenland/op-amerikas-250ste-verjaardag-viert-donald-trump-zijn-eigen-politieke-feestje-communisme-steekt-de-kop-weer-op~aacd63ee/)
+  > Met een toespraak vol patriottisme en politieke aanvallen gaf president Donald Trump zijn eigen achterban een hoogtepunt voor de 250ste verjaardag...
+- [Bondscoach Paraguay wekt verbazing op persco: ‘Hij moest zijn kleren verkopen om zijn dochter te redden’](https://www.ad.nl/wk-voetbal/bondscoach-paraguay-wekt-verbazing-op-persco-hij-moest-zijn-kleren-verkopen-om-zijn-dochter-te-redden~a514779b/)
+  > De bondscoach van Paraguay heeft zijn team op een opvallende manier proberen te steunen. Gustavo Alfaro vond de strijd die zijn spelers leverden...
+- [Grote nieuwe natuurbrand verwoest 930 hectare bos in Zuid-Frankrijk](https://www.ad.nl/buitenland/grote-nieuwe-natuurbrand-verwoest-930-hectare-bos-in-zuid-frankrijk~aef01f71/)
+  > Er woedt een nieuwe grote natuurbrand in het zuiden van Frankrijk. Volgens het departement Pyrénées-Orientales is sinds zaterdagavond al meer dan 930...
+- [Trump sluit viering 250 jaar VS af waarschuwing: Communisme steekt in Amerika weer de kop op](https://www.ad.nl/buitenland/trump-sluit-viering-250-jaar-vs-af-waarschuwing-communisme-steekt-in-amerika-weer-de-kop-op~aa56c5f2/)
+  > De viering van het 250-jarig bestaan van de Verenigde Staten is zaterdagavond lokale tijd afgesloten met een speech van president Donald Trump en een...
+- [Mathieu van der Poel waarschuwt voor zware Tourrit in Barcelona: ‘Ik denk dat deze rit wordt onderschat’](https://www.ad.nl/tour-de-france/mathieu-van-der-poel-waarschuwt-voor-zware-tourrit-in-barcelona-ik-denk-dat-deze-rit-wordt-onderschat~abeae6f9/)
+  > Na de ploegentijdrit van zaterdag gaan de ogen op een nieuwe finish in Barcelona. Een Tour-etappe waar Mathieu van der Poel vooraf voor werd getipt,...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [ABP-voorzitter: ‘Verborgen effect plannen sociale zekerheid raakt pensioendeelnemers’](https://fd.nl/opinie/1602221/verborgen-effect-van-plannen-sociale-zekerheid-raakt-pensioendeelnemers)
+  > Het kabinet wil bezuinigen op de sociale zekerheid om zo de uitgaven omlaag te brengen. Maar dan moeten pensioendeelnemers en werkgevers straks de...
+- [Goed geven is te ingewikkeld geworden](https://fd.nl/opinie/1602228/goed-geven-is-te-ingewikkeld-geworden)
+  > Giften aan maatschappelijke organisaties nemen af, terwijl hun betekenis voor de samenleving juist groeit. Tegelijkertijd werkt het huidige fiscale...
+- [De zakenvrienden van de Pride lachen, ook als het niet grappig is](https://fd.nl/bedrijfsleven/1601674/de-zakenvrienden-van-de-pride-lachen-ook-als-het-niet-grappig-is)
+  > Er zijn cocktails, het is feest als de Business Club in het Amstel Hotel bij elkaar komt. Maar daartussendoor klinken schrijnende verhalen.
+- [Turkse defensie-industrie hoopt op mooie orders tijdens Navo-top, maar stuit op achterdocht](https://fd.nl/politiek/1601236/turkse-defensie-industrie-hoopt-op-mooie-orders-tijdens-navo-top-maar-stuit-op-achterdocht)
+  > Militaire experts erkennen ruiterlijk het grote belang van Turkije als bondgenoot. Het land heeft een defensie-industrie die snel kan opschalen, maar...
 - [Luisterverhaal: ‘Ik zie de meest belachelijke situaties op het Europese spoor’](https://fd.nl/samenleving/1602183/luisterverhaal-ik-zie-de-meest-belachelijke-situaties-op-het-europese-spoor)
   > Deze week hoor je hoe treinexpert Jon Worth het Europese spoor beleeft.
-- [Canada en Filipijnen willen deal sluiten over handel en defensie](https://fd.nl/politiek/1602748/canada-en-filipijnen-willen-deal-sluiten-over-handel-en-defensie)
-  > Canada en de Filipijnen willen meer gaan samenwerken op het gebied van handel en defensie.
-- [Kennis op een kale bodem](https://fd.nl/opinie/1601820/kennis-op-een-kale-bodem)
-  > Als je geen idee hebt van wat ook maar, kun je niet de goede vragen stellen, of dat nu aan een mens is of aan AI, betoogt FD-columnist Sanne...
-- [Sint-Petersburg geraakt door Oekraïense aanvallen](https://fd.nl/politiek/1602747/sint-petersburg-geraakt-door-oekraiense-aanvallen)
-  > De tweede stad van Rusland, Sint-Petersburg, is vannacht doelwit geworden van Oekraïense droneaanvallen. Ook in de rest van Rusland vonden aanvallen...
-- [Paus Leo pleit voor opener migratiebeleid in indirect verwijt aan Trump](https://fd.nl/politiek/1602621/paus-leo-pleit-voor-opener-migratiebeleid-in-indirect-verwijt-aan-trump)
-  > Bij een bezoek aan Lampedusa zei hij dat voor bloei een land verenigd moet zijn, in een ogenschijnlijk indirecte reactie op de speech die president...
 
 ### Meest gelezen
 
