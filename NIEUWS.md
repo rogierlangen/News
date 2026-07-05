@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-07-2026 om 14:46*
+*Laatst bijgewerkt: 05-07-2026 om 16:12*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Farage onder vergrootglas voor aannemen giften veroordeelde crypto-investeerder](https://nos.nl/l/2621774)
+  > De geldzaken van Nigel Farage, leider van de rechtse, anti-immigratiepartij Reform UK, liggen opnieuw onder een vergrootglas in het Verenigd...
+- [USAR kon niemand redden in Venezuela, 'maar wel hoop en troost geboden'](https://nos.nl/l/2621769)
+  > Het Nederlandse zoekteam USAR is terug uit Venezuela. Het vliegtuig met de 64 leden en acht speurhonden landde aan het begin van de middag op...
+- [Bellen voor een gratis mop: De Kleine Komedie opent de Geinlijn](https://nos.nl/l/2621766)
+  > Het Amsterdamse theater De Kleine Komedie heeft een gratis telefoonnummer in het leven geroepen voor moppenliefhebbers: de Geinlijn. Bellers krijgen...
+- [Schrijfster Marjan Berk (93) overleden](https://nos.nl/l/2621764)
+  > Schrijfster en columniste Marjan Berk is op 93-jarige leeftijd overleden in Amsterdam. Dat heeft haar familie via haar uitgeverij bekendgemaakt....
 - [Vier doden en twee gewonden bij verkeersongeval in Limburg](https://nos.nl/l/2621760)
   > Bij een auto-ongeluk in Limburg zijn vanmiddag vier mensen om het leven gekomen. Twee inzittenden raakten gewond en zijn naar het ziekenhuis...
-- [Opnieuw warm na week van gemiddelde temperaturen](https://nos.nl/l/2621756)
-  > Na een week van gemiddelde temperaturen, wordt het aankomende week opnieuw warm weer.
-        Dit weekend was er een groot verschil tussen het weer...
-- [Opvolger Khamenei, zijn zoon Mojtaba, laat zich niet zien op uitvaart](https://nos.nl/l/2621752)
-  > Drie van zijn vier zoons hebben vandaag publiekelijk afscheid genomen van de omgebrachte Iraanse leider Khamenei. Grote afwezige was zijn opvolger,...
-- [Overbelasting dreigde in Tilburg, netbeheerder schakelt stroom uit](https://nos.nl/l/2621750)
-  > Uit angst voor overbelasting van het stroomnet schakelde netbeheerder Enexis vandaag tijdelijk een groot stroomstation in de omgeving van Tilburg...
-- [ProRail heeft nog meer tijd nodig voor herstel spoor Rotterdam](https://nos.nl/l/2621749)
-  > De herstelwerkzaamheden aan het spoor bij Rotterdam duren opnieuw langer dan verwacht. Daardoor rijden er ook maandag geen treinen van Rotterdam naar...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Schrijfster en voormalig AD-columniste Marjan Berk (93) overleden](https://www.ad.nl/binnenland/schrijfster-en-voormalig-ad-columniste-marjan-berk-93-overleden~ad127010/)
-  > Actrice en schrijfster Marjan Berk is zondag in Amsterdam overleden. Dat heeft haar familie bekendgemaakt.
-- [Nederlander doet gooi naar bolletjestrui, peloton houdt vluchters binnen schot op weg naar finale in Barcelona](https://www.ad.nl/tour-de-france/nederlander-doet-gooi-naar-bolletjestrui-peloton-houdt-vluchters-binnen-schot-op-weg-naar-finale-in-barcelona~ad41880b/)
-  > De tweede etappe in de Tour de France gaat van Tarragona naar Barcelona, met in de finale drie keer de steile Montjuïc. Mathieu van der Poel is een...
-- [Partner Evert Santegoeds gewond na aanrijding tijdens vakantie: ‘Door oog van de naald gekropen’](https://www.ad.nl/show/partner-evert-santegoeds-gewond-na-aanrijding-tijdens-vakantie-door-oog-van-de-naald-gekropen~aa2b1a77/)
-  > De partner van Evert Santegoeds is vorige week gewond geraakt bij een verkeersongeval in Frankrijk. Dat schrijft de Privé-hoofdredacteur op Facebook.
-- [Op vakantie met een samengesteld gezin? Zo houd je het leuk: ‘Dwing niet af dat het leuk moet zijn’](https://www.ad.nl/gezond/op-vakantie-met-een-samengesteld-gezin-zo-houd-je-het-leuk-dwing-niet-af-dat-het-leuk-moet-zijn~aa03b1d1/)
-  > Samen op vakantie als samengesteld gezin klinkt gezellig, maar kan ook een snelkookpan zijn voor irritaties, botsende verwachtingen en...
-- [Twee jongens van 15 jaar omgekomen bij ernstig ongeluk in Brabant](https://www.ad.nl/binnenland/twee-jongens-van-15-jaar-omgekomen-bij-ernstig-ongeluk-in-brabant~abc36927/)
-  > Een auto is zondagochtend hard tegen een boom gebotst en vervolgens in brand gevlogen aan de Boekelsedijk in het Brabantse dorpje Zeeland. Daarbij...
+- [Suzan en Freek genieten van mooi leven en Jade Anna weer naar huis na verlovingsvakantie](https://www.ad.nl/show/suzan-en-freek-genieten-van-mooi-leven-en-jade-anna-weer-naar-huis-na-verlovingsvakantie~a023b9d3/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Na Franse bosbrand veranderde caravan Marcel en Sylvia in een zwarte hoop as: ‘Alles is verwoest’](https://www.ad.nl/buitenland/na-franse-bosbrand-veranderde-caravan-marcel-en-sylvia-in-een-zwarte-hoop-as-alles-is-verwoest~ab5f4dc1/)
+  > Een felle bosbrand legde donderdag de Zuid-Franse camping Le Brasilia in de as. Marcel en Sylvia van de Weerd uit Ridderkerk waren een van de...
+- [Klassementen Tour | Dit zijn de verschillen tussen de favorieten na twee etappes, Nederlander in bollentrui](https://www.ad.nl/tour-de-france/klassementen-tour-dit-zijn-de-verschillen-tussen-de-favorieten-na-twee-etappes-nederlander-in-bollentrui~a537c687/)
+  > De Tour de France is zaterdag begonnen met een ploegentijdrit. Over drie weken is de finish traditiegetrouw in Parijs. In totaal doen zeventien...
+- [Pogacar gunt ploeggenoot Del Toro de ritzege in Tour de France, Van der Poel komt tekort](https://www.ad.nl/tour-de-france/pogacar-gunt-ploeggenoot-del-toro-de-ritzege-in-tour-de-france-van-der-poel-komt-tekort~ad41880b/)
+  > Isaac Del Toro heeft dankzij een mooi gebaar van zijn kopman Tadej Pogacar de tweede etappe in de Tour de France gewonnen. Pogacar hield in de...
+- [Nachtmerrie op cruiseschip Ruby Princess: 125 passagiers besmet met norovirus](https://www.ad.nl/buitenland/nachtmerrie-op-cruiseschip-ruby-princess-125-passagiers-besmet-met-norovirus~adf35f85/)
+  > Een twintigdaagse luxecruise van San Francisco naar Canada en Alaska is voor tientallen passagiers uitgedraaid op een nachtmerrie. Aan boord van de...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Nigel Farage weer onder vuur na niet gemelde giften](https://fd.nl/politiek/1602753/nigel-farage-weer-onder-vuur-na-niet-gemelde-giften)
+  > De Britse politicus Nigel Farage is voor de tweede keer in korte tijd in opspraak geraakt wegens het mogelijk accepteren van giften of diensten...
+- [Enexis schakelt uit voorzorg stroom uit bij 18.000 klanten in en rond Tilburg](https://fd.nl/bedrijfsleven/1602623/enexis-schakelt-uit-voorzorg-stroom-uit-bij-18-000-klanten-in-en-rond-tilburg)
+  > Volgens een woordvoerder van de netbeheerder is het de eerste keer dat stroomaansluitingen proactief worden uitgeschakeld om overbelasting van het...
 - [Met overname Accell komt nieuw Aziatisch fietsconglomeraat stap dichterbij](https://fd.nl/bedrijfsleven/1602602/met-overname-accell-komt-nieuw-aziatisch-fietsconglomeraat-stap-dichterbij)
   > De Aziatische investeerder Dutech wordt waarschijnlijk de eigenaar van fietsfabrikant Accell. Daarmee komt een nieuw internationaal fietsconcern een...
 - [Daar waar het (niet) gebeurt](https://fd.nl/opinie/1602603/daar-waar-het-niet-gebeurt)
   > Na dit jaar geeft Europa geen coronaobligaties meer uit. Bijna 250 jaar geleden wist Amerika’s founding father Alexander Hamilton al dat gezamenlijke...
 - [Twee kopstukken weg bij NautaDutilh, kantoor houdt strategie tegen het licht](https://fd.nl/bedrijfsleven/1602601/twee-kopstukken-weg-bijnautadutilh-kantoor-houdt-strategie-tegen-het-licht)
   > Lieke van der Velden stapt over naar Loyens & Loeff, Petra Zijp verlaat de advocatuur. Beiden waren eerder managing partner bij NautaDutilh.
-- [‘Aftreden Moldavische premier dreigt Europese integratie te vertragen’](https://fd.nl/politiek/1602600/aftreden-moldavische-premier-dreigt-europese-integratie-te-vertragen)
-  > De onrust rond het vertrek van premier Alexandru Munteanu valt samen met een corruptieschandaal bij de nationale luchtverkeersleider.  Dit dreigt de...
-- [Sony haalt zich de woede van gamers op de hals door fysieke games te schrappen](https://fd.nl/bedrijfsleven/1602689/sony-haalt-zich-de-woede-van-gamers-op-de-hals-door-fysieke-games-te-schrappen)
-  > Het bedrijf achter de PlayStation gaat zijn spellen alleen nog maar online aanbieden. ‘Sony zegt dat gamers dit willen, maar ik heb nog niemand...
 
 ### Meest gelezen
 
