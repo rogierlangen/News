@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-07-2026 om 12:18*
+*Laatst bijgewerkt: 05-07-2026 om 14:46*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Oekraïense aanval op Krim kort nadat Zelensky en Poetin bellen met Trump](https://nos.nl/l/2621735)
-  > De Russische autoriteiten op de Krim zeggen dat bij Oekraïense aanvallen iemand is omgekomen en dat twee anderen gewond zijn geraakt. Wie de...
-- [Communistische Partij viert 105-jarig bestaan, maar angst overheerst in China](https://nos.nl/l/2621725)
-  > Deze week viert de Chinese Communistische Partij zijn 105de verjaardag. Met optredens, diners en medailles worden de vele successen gevierd die de...
-- [Kind alsnog overleden na botsing op snelweg A13 bij Delft](https://nos.nl/l/2621724)
-  > Een kind is overleden door een botsing die zaterdagavond plaatsvond tussen twee auto's op de A13, ter hoogte van Delft. Het kind is ter plekke...
-- [Staatsbosbeheer wil alle bezoekerscentra sluiten: 'Prioriteit bij natuurbeheer'](https://nos.nl/l/2621723)
-  > Staatsbosbeheer wil de zeven bezoekerscentra in Nederland sluiten. Deze zogenoemde buitencentra ontvangen jaarlijks zo'n 1,3 miljoen bezoekers, maar...
-- [Nieuwe natuurbrand bij Perpignan, vuur aan Costa Brava onder controle](https://nos.nl/l/2621719)
-  > In de buurt van de Zuid-Franse stad Perpignan heeft een nieuwe natuurbrand in korte tijd een gebied ter grootte van 1350 hectare in de as gelegd. Er...
+- [Vier doden en twee gewonden bij verkeersongeval in Limburg](https://nos.nl/l/2621760)
+  > Bij een auto-ongeluk in Limburg zijn vanmiddag vier mensen om het leven gekomen. Twee inzittenden raakten gewond en zijn naar het ziekenhuis...
+- [Opnieuw warm na week van gemiddelde temperaturen](https://nos.nl/l/2621756)
+  > Na een week van gemiddelde temperaturen, wordt het aankomende week opnieuw warm weer.
+        Dit weekend was er een groot verschil tussen het weer...
+- [Opvolger Khamenei, zijn zoon Mojtaba, laat zich niet zien op uitvaart](https://nos.nl/l/2621752)
+  > Drie van zijn vier zoons hebben vandaag publiekelijk afscheid genomen van de omgebrachte Iraanse leider Khamenei. Grote afwezige was zijn opvolger,...
+- [Overbelasting dreigde in Tilburg, netbeheerder schakelt stroom uit](https://nos.nl/l/2621750)
+  > Uit angst voor overbelasting van het stroomnet schakelde netbeheerder Enexis vandaag tijdelijk een groot stroomstation in de omgeving van Tilburg...
+- [ProRail heeft nog meer tijd nodig voor herstel spoor Rotterdam](https://nos.nl/l/2621749)
+  > De herstelwerkzaamheden aan het spoor bij Rotterdam duren opnieuw langer dan verwacht. Daardoor rijden er ook maandag geen treinen van Rotterdam naar...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Mexicaanse fans bestoken hotel Engeland met vuurwerk en muziek, Raphinha kan minuten maken](https://www.ad.nl/wk-voetbal/mexicaanse-fans-bestoken-hotel-engeland-met-vuurwerk-en-muziek-raphinha-kan-minuten-maken~a2d5cab9/)
-  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
-- [Nederlanders actief in openingsfase van tweede etappe, peloton wordt al vroeg opgeschrikt door val](https://www.ad.nl/tour-de-france/nederlanders-actief-in-openingsfase-van-tweede-etappe-peloton-wordt-al-vroeg-opgeschrikt-door-val~ad41880b/)
+- [Schrijfster en voormalig AD-columniste Marjan Berk (93) overleden](https://www.ad.nl/binnenland/schrijfster-en-voormalig-ad-columniste-marjan-berk-93-overleden~ad127010/)
+  > Actrice en schrijfster Marjan Berk is zondag in Amsterdam overleden. Dat heeft haar familie bekendgemaakt.
+- [Nederlander doet gooi naar bolletjestrui, peloton houdt vluchters binnen schot op weg naar finale in Barcelona](https://www.ad.nl/tour-de-france/nederlander-doet-gooi-naar-bolletjestrui-peloton-houdt-vluchters-binnen-schot-op-weg-naar-finale-in-barcelona~ad41880b/)
   > De tweede etappe in de Tour de France gaat van Tarragona naar Barcelona, met in de finale drie keer de steile Montjuïc. Mathieu van der Poel is een...
-- [Sarah stamt af van de allereerste Hollandse baby in Amerika: ‘Zo veel goeds van de VS komt uit Nederland’](https://www.ad.nl/buitenland/sarah-stamt-af-van-de-allereerste-hollandse-baby-in-amerika-zo-veel-goeds-van-de-vs-komt-uit-nederland~a8dd2284/)
-  > Parades, festivals, luchtshows: de VS pakt groots uit voor zijn 250ste verjaardag. Maar over de enorme Hollandse invloed op die geschiedenis hoor je...
-- [Startdatum van nieuw seizoen tv-serie Ewout bekendgemaakt](https://www.ad.nl/show/startdatum-van-nieuw-seizoen-tv-serie-ewout-bekendgemaakt~ae28a714/)
-  > Het nieuwe seizoen van de tv-serie Ewout gaat in september van start. Dat maakte presentator Ewout Genemans zondag op Instagram bekend.
-- [Praat mee: het is helemaal niet erg dat verkeersboetes torenhoog zijn](https://www.ad.nl/praat-mee/praat-mee-het-is-helemaal-niet-erg-dat-verkeersboetes-torenhoog-zijn~a7f755ff/)
-  > Het is helemaal niet erg dat de regering probeert om met verkeersboetes gaten in de begroting te dichten. In de Kwestie leggen we onze lezers...
+- [Partner Evert Santegoeds gewond na aanrijding tijdens vakantie: ‘Door oog van de naald gekropen’](https://www.ad.nl/show/partner-evert-santegoeds-gewond-na-aanrijding-tijdens-vakantie-door-oog-van-de-naald-gekropen~aa2b1a77/)
+  > De partner van Evert Santegoeds is vorige week gewond geraakt bij een verkeersongeval in Frankrijk. Dat schrijft de Privé-hoofdredacteur op Facebook.
+- [Op vakantie met een samengesteld gezin? Zo houd je het leuk: ‘Dwing niet af dat het leuk moet zijn’](https://www.ad.nl/gezond/op-vakantie-met-een-samengesteld-gezin-zo-houd-je-het-leuk-dwing-niet-af-dat-het-leuk-moet-zijn~aa03b1d1/)
+  > Samen op vakantie als samengesteld gezin klinkt gezellig, maar kan ook een snelkookpan zijn voor irritaties, botsende verwachtingen en...
+- [Twee jongens van 15 jaar omgekomen bij ernstig ongeluk in Brabant](https://www.ad.nl/binnenland/twee-jongens-van-15-jaar-omgekomen-bij-ernstig-ongeluk-in-brabant~abc36927/)
+  > Een auto is zondagochtend hard tegen een boom gebotst en vervolgens in brand gevlogen aan de Boekelsedijk in het Brabantse dorpje Zeeland. Daarbij...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [De Italiaanse fietsband met een Nederlands tintje](https://fd.nl/bedrijfsleven/1600863/de-italiaanse-fietsband-met-een-nederlands-tintje)
-  > Nederlanders speelden een grote rol in de uitbouw van het bedrijf dat als enige grafeen verwerkt in banden. De banden zijn geliefd bij toprenners.
-- [Profiteert de Shell-belegger ook van de olieblokkade?](https://fd.nl/financiele-markten/1601683/profiteert-de-shell-belegger-ook-van-de-olieblokkade)
-  > De hogere energieprijzen sinds begin maart hebben Shell geen windeieren gelegd. Gaat de Europese aandeelhouder meeprofiteren door een hogere...
-- [Oliekartel Opec+ verhoogt opnieuw olieproductie](https://fd.nl/financiele-markten/1602752/oliekartel-opec-verhoogt-opnieuw-olieproductie)
-  > Zeven olieproducerende landen, onder wie Saoedi-Arabië en Rusland, gaan vanaf augustus per dag gezamenlijk 188.000 extra vaten olie oppompen.
-- [Schrappen klimaatdoel Wereldbank lijkt gebaar voor de bühne](https://fd.nl/samenleving/1602376/schrappen-klimaatdoel-wereldbank-lijkt-gebaar-voor-de-buhne)
-  > Onder druk van de VS schrapte de Wereldbank het uitgangspunt om 45% van de leningen een klimaatdoel mee te geven.  Volgens deskundigen zullen de...
-- [Arbeidsonrust in Duitse autosector groeit](https://fd.nl/bedrijfsleven/1602696/arbeidsonrust-in-duitse-autosector-groeit)
-  > Tienduizenden werknemers van Mercedes-Benz legden vrijdag hun werk neer. Vakbond IG Metall verzet zich tegen de aangekondigde maatregelen bij de drie...
+- [Met overname Accell komt nieuw Aziatisch fietsconglomeraat stap dichterbij](https://fd.nl/bedrijfsleven/1602602/met-overname-accell-komt-nieuw-aziatisch-fietsconglomeraat-stap-dichterbij)
+  > De Aziatische investeerder Dutech wordt waarschijnlijk de eigenaar van fietsfabrikant Accell. Daarmee komt een nieuw internationaal fietsconcern een...
+- [Daar waar het (niet) gebeurt](https://fd.nl/opinie/1602603/daar-waar-het-niet-gebeurt)
+  > Na dit jaar geeft Europa geen coronaobligaties meer uit. Bijna 250 jaar geleden wist Amerika’s founding father Alexander Hamilton al dat gezamenlijke...
+- [Twee kopstukken weg bij NautaDutilh, kantoor houdt strategie tegen het licht](https://fd.nl/bedrijfsleven/1602601/twee-kopstukken-weg-bijnautadutilh-kantoor-houdt-strategie-tegen-het-licht)
+  > Lieke van der Velden stapt over naar Loyens & Loeff, Petra Zijp verlaat de advocatuur. Beiden waren eerder managing partner bij NautaDutilh.
+- [‘Aftreden Moldavische premier dreigt Europese integratie te vertragen’](https://fd.nl/politiek/1602600/aftreden-moldavische-premier-dreigt-europese-integratie-te-vertragen)
+  > De onrust rond het vertrek van premier Alexandru Munteanu valt samen met een corruptieschandaal bij de nationale luchtverkeersleider.  Dit dreigt de...
+- [Sony haalt zich de woede van gamers op de hals door fysieke games te schrappen](https://fd.nl/bedrijfsleven/1602689/sony-haalt-zich-de-woede-van-gamers-op-de-hals-door-fysieke-games-te-schrappen)
+  > Het bedrijf achter de PlayStation gaat zijn spellen alleen nog maar online aanbieden. ‘Sony zegt dat gamers dit willen, maar ik heb nog niemand...
 
 ### Meest gelezen
 
