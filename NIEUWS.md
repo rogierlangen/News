@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-07-2026 om 20:16*
+*Laatst bijgewerkt: 05-07-2026 om 22:04*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Trump richt pijlen op prestigieus Smithsonian Museum](https://nos.nl/l/2621813)
+  > Het Witte Huis opent met een kritisch rapport de aanval op de leiding van het prestigieuze Smithsonian Institution. De conclusie is dat daar...
 - [Hond wandelt ongestoord door Drechttunnel bij A16, politie zet achtervolging in](https://nos.nl/l/2621807)
   > De politie heeft vanmiddag de achtervolging ingezet om een verdwaalde hond te pakken te krijgen: de viervoeter was de Drechttunnel bij de A16 in...
 - [Netbeheerders schrikken van uitschakelen stroomnet Tilburg: 'Zeer ongebruikelijk'](https://nos.nl/l/2621803)
@@ -16,8 +18,6 @@
   > Op een strand in Australië zijn dit weekend zes metalen ballen aangespoeld. Waarschijnlijk gaat het om brandstoftanks die zijn gebruikt voor een...
 - [Pride Keulen massaal bezocht: 'We willen laten zien dat we er mogen zijn'](https://nos.nl/l/2621798)
   > Bij de jaarlijkse Pride-parade in Keulen waren vandaag zo'n 1,5 miljoen bezoekers. Dat meldt de organisatie aan het Duitse persbureau dpa. Daarmee...
-- [Franse rechtspraak worstelt met zaken over partnergeweld: 'Nog lange weg te gaan'](https://nos.nl/l/2621790)
-  > In Frankrijk is het aantal strafzaken wegens partnergeweld de afgelopen jaren flink toegenomen. Dat klinkt als slecht nieuws, maar bij het Franse...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Bosbranden Zuid-Frankrijk leiden tot massale evacuaties, Tour de France past etappe aan](https://www.ad.nl/buitenland/bosbranden-zuid-frankrijk-leiden-tot-massale-evacuaties-tour-de-france-past-etappe-aan~aaba96fb/)
-  > In Zuid-Frankrijk worden 10.000 mensen geëvacueerd wegens de hevige bosbranden. En de Tour de France past de etappe van maandag aan.
-- [LIVE WK voetbal | Noorwegen ontsnapt aan achterstand: Brazilië mist penalty na VAR-ingreep](https://www.ad.nl/wk-voetbal/live-wk-voetbal-noorwegen-ontsnapt-aan-achterstand-brazilie-mist-penalty-na-var-ingreep~a2256399/)
+- [‘FIFA draait schorsing VS-uitblinker terug na belletje Trump’, tegenstander België verbijsterd](https://www.ad.nl/wk-voetbal/fifa-draait-schorsing-vs-uitblinker-terug-na-belletje-trump-tegenstander-belgie-verbijsterd~a47ad84a/)
+  > De Amerikaanse president President Trump heeft woensdag met FIFA-voorzitter Gianni Infantino gebeld met de vraag om de schorsing van VS-aanvaller...
+- [LIVE WK voetbal | Wat een fenomeen! Haaland schiet Noorwegen eigenhandig naar zege op Brazilië](https://www.ad.nl/wk-voetbal/live-wk-voetbal-wat-een-fenomeen-haaland-schiet-noorwegen-eigenhandig-naar-zege-op-brazilie~a2256399/)
   > Een heerlijk affiche in de achtste finales van het WK. Recordkampioen Brazilië neemt het op tegen het sterke Noorwegen, dat als outsider voor de...
-- [Cristiano Ronaldo botst met de media: ‘Jullie proberen mij al 23 jaar kapot te maken’](https://www.ad.nl/wk-voetbal/cristiano-ronaldo-botst-met-de-media-jullie-proberen-mij-al-23-jaar-kapot-te-maken~aa2595e8/)
-  > Cristiano Ronaldo staat maandag met het Portugese team voor een zware kluif op het WK voetbal: Spanje moet verslagen worden voor een plek in de...
-- [Yvon Jaspers ‘appte vanmiddag nog’ met omgekomen boer John (38): ‘Niet te bevatten dat je er niet meer bent’](https://www.ad.nl/show/yvon-jaspers-appte-vanmiddag-nog-met-omgekomen-boer-john-38-niet-te-bevatten-dat-je-er-niet-meer-bent~aae804e7/)
-  > Niet te bevatten. Zo omschrijft presentatrice Yvon Jaspers de onverwachte dood van voormalig Boer zoekt Vrouw-deelnemer boer John Nouwen. ‘Jij, die...
-- [Wat er in Hongarije is gebeurd, is relevant voor Europa](https://www.ad.nl/binnenland/wat-er-in-hongarije-is-gebeurd-is-relevant-voor-europa~aef4d7f6/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Weerwaarschuwing op borden in stadion Engeland - Mexico, duel officieel nog niet uitgesteld](https://www.ad.nl/wk-voetbal/weerwaarschuwing-op-borden-in-stadion-engeland-mexico-duel-officieel-nog-niet-uitgesteld~a2a575df/)
+  > Engeland keert terug in het Aztecenstadion, waar het in 1986 de iconische Hand van God-goal van Diego Maradona incasseerde. Vannacht is Mexico de...
+- [Sabalenka wil ‘dronken worden’ na nederlaag tegen Osaka, Djokovic en Sinner door naar kwartfinales](https://www.ad.nl/tennis/sabalenka-wil-dronken-worden-na-nederlaag-tegen-osaka-djokovic-en-sinner-door-naar-kwartfinales~aff1a2be/)
+  > Het grootste grastennistoernooi is begonnen. Tussen 29 juni en 11 juli strijden de beste tennissers ter wereld om de titel op Wimbledon. Hier blijf...
+- [Podcast In Het Wiel | ‘Bromance tussen Pogacar en Del Toro kan niet meer stuk’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-bromance-tussen-pogacar-en-del-toro-kan-niet-meer-stuk~a5ea502e/)
+  > Al in de tweede etappe van de Tour de France kan Tadej Pogacar het zich permitteren een ritzege cadeau te doen. Isaac del Toro was de gelukkige....
 
 ### Meest gelezen
 
