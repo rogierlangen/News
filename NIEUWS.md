@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-07-2026 om 10:18*
+*Laatst bijgewerkt: 05-07-2026 om 12:18*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Oekraïense aanval op Krim kort nadat Zelensky en Poetin bellen met Trump](https://nos.nl/l/2621735)
+  > De Russische autoriteiten op de Krim zeggen dat bij Oekraïense aanvallen iemand is omgekomen en dat twee anderen gewond zijn geraakt. Wie de...
 - [Communistische Partij viert 105-jarig bestaan, maar angst overheerst in China](https://nos.nl/l/2621725)
   > Deze week viert de Chinese Communistische Partij zijn 105de verjaardag. Met optredens, diners en medailles worden de vele successen gevierd die de...
 - [Kind alsnog overleden na botsing op snelweg A13 bij Delft](https://nos.nl/l/2621724)
@@ -15,9 +17,7 @@
 - [Staatsbosbeheer wil alle bezoekerscentra sluiten: 'Prioriteit bij natuurbeheer'](https://nos.nl/l/2621723)
   > Staatsbosbeheer wil de zeven bezoekerscentra in Nederland sluiten. Deze zogenoemde buitencentra ontvangen jaarlijks zo'n 1,3 miljoen bezoekers, maar...
 - [Nieuwe natuurbrand bij Perpignan, vuur aan Costa Brava onder controle](https://nos.nl/l/2621719)
-  > In de buurt van de Zuid-Franse stad Perpignan heeft een nieuwe natuurbrand in korte tijd een gebied ter grootte van 930 hectare in de as gelegd. Er...
-- [Tienduizenden Albanezen bij 35e protest tegen de regering en een Trump-resort](https://nos.nl/l/2621718)
-  > In de Albanese hoofdstad Tirana hebben tienduizenden mensen geprotesteerd tegen de regering van premier Rama, tegen corruptie en voor een verandering...
+  > In de buurt van de Zuid-Franse stad Perpignan heeft een nieuwe natuurbrand in korte tijd een gebied ter grootte van 1350 hectare in de as gelegd. Er...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Natuurbrand Costa Brava bijna onder controle, maar risico blijft in heet Spanje ‘extreem hoog’](https://www.ad.nl/buitenland/natuurbrand-costa-brava-bijna-onder-controle-maar-risico-blijft-in-heet-spanje-extreem-hoog~a69fe111/)
-  > Spanje en het zuiden van Frankrijk worden dit jaar vroeger dan normaal getroffen door natuurbranden. Een natte winter en een langdurige hittegolf...
-- [Jesse Eisenberg wil niets met Mark Zuckerberg te maken hebben](https://www.ad.nl/show/jesse-eisenberg-wil-niets-met-mark-zuckerberg-te-maken-hebben~ac22a5d1/)
-  > Hollywood-acteur Jesse Eisenberg wil niet langer geassocieerd worden met Meta-topman Mark Zuckerberg. Dat vertelde hij volgens The Hollywood Reporter...
-- [Meer dan een doelpuntenmachine: waarom iedereen dol is op het Noorse fenomeen Erling Haaland](https://www.ad.nl/wk-voetbal/meer-dan-een-doelpuntenmachine-waarom-iedereen-dol-is-op-het-noorse-fenomeen-erling-haaland~a63b73c7/)
-  > Erling Haaland valt dit WK niet alleen op door zijn sportieve prestaties. Ook naast het voetbalveld is hij een fenomeen. De Noorse grote vriendelijke...
-- [Herstelde Raphinha kan minuten maken tegen Noorwegen, bondscoach Tunesië stopt na twee WK-duels](https://www.ad.nl/wk-voetbal/herstelde-raphinha-kan-minuten-maken-tegen-noorwegen-bondscoach-tunesie-stopt-na-twee-wk-duels~a2d5cab9/)
+- [Mexicaanse fans bestoken hotel Engeland met vuurwerk en muziek, Raphinha kan minuten maken](https://www.ad.nl/wk-voetbal/mexicaanse-fans-bestoken-hotel-engeland-met-vuurwerk-en-muziek-raphinha-kan-minuten-maken~a2d5cab9/)
   > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
-- [Bekijk hier alle zomertransfers in de eredivisie](https://www.ad.nl/voetbal/bekijk-hier-alle-zomertransfers-in-de-eredivisie~a0d7efae/)
-  > De zomerse transferwindow van de eredivisie en de Keuken Kampioen Divisie is geopend. De Nederlandse transfermarkt sluit op woensdag 2 september om...
+- [Nederlanders actief in openingsfase van tweede etappe, peloton wordt al vroeg opgeschrikt door val](https://www.ad.nl/tour-de-france/nederlanders-actief-in-openingsfase-van-tweede-etappe-peloton-wordt-al-vroeg-opgeschrikt-door-val~ad41880b/)
+  > De tweede etappe in de Tour de France gaat van Tarragona naar Barcelona, met in de finale drie keer de steile Montjuïc. Mathieu van der Poel is een...
+- [Sarah stamt af van de allereerste Hollandse baby in Amerika: ‘Zo veel goeds van de VS komt uit Nederland’](https://www.ad.nl/buitenland/sarah-stamt-af-van-de-allereerste-hollandse-baby-in-amerika-zo-veel-goeds-van-de-vs-komt-uit-nederland~a8dd2284/)
+  > Parades, festivals, luchtshows: de VS pakt groots uit voor zijn 250ste verjaardag. Maar over de enorme Hollandse invloed op die geschiedenis hoor je...
+- [Startdatum van nieuw seizoen tv-serie Ewout bekendgemaakt](https://www.ad.nl/show/startdatum-van-nieuw-seizoen-tv-serie-ewout-bekendgemaakt~ae28a714/)
+  > Het nieuwe seizoen van de tv-serie Ewout gaat in september van start. Dat maakte presentator Ewout Genemans zondag op Instagram bekend.
+- [Praat mee: het is helemaal niet erg dat verkeersboetes torenhoog zijn](https://www.ad.nl/praat-mee/praat-mee-het-is-helemaal-niet-erg-dat-verkeersboetes-torenhoog-zijn~a7f755ff/)
+  > Het is helemaal niet erg dat de regering probeert om met verkeersboetes gaten in de begroting te dichten. In de Kwestie leggen we onze lezers...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘Uber Eats maakt pas op de plaats met Europese uitbreiding’](https://fd.nl/bedrijfsleven/1602751/uber-eats-maakt-pas-op-de-plaats-met-europese-uitbreiding)
-  > Volgens de Financial Times heeft het besluit te maken met pogingen van Uber om zijn Duitse concurrent Delivery Hero over te nemen.
-- [Go-Tan verkoopt deel familiebedrijf aan het Zweedse Orkla Foods](https://fd.nl/economie/1602692/go-tan-verkoopt-deel-familiebedrijf-aan-het-zweedse-orkla-foods)
-  > In ruim zeventig jaar groeide familiebedrijf Go-Tan uit tot een internationale producent van snacks en sauzen. Voor het eerst neemt nu een externe...
-- [Geen verbinding, maar politieke aanvallen in Trump’s speech op Onafhankelijkheidsdag](https://fd.nl/politiek/1602750/geen-verbinding-maar-politieke-aanvallen-in-trumps-speech-op-onafhankelijkheidsdag)
-  > Geheel tegen de traditie in koos de Amerikaanse president zondag voor een politiek geladen toespraak op Onafhankelijkheidsdag. Zo waarschuwde hij...
-- [ABP-voorzitter: ‘Verborgen effect plannen sociale zekerheid raakt pensioendeelnemers’](https://fd.nl/opinie/1602221/verborgen-effect-van-plannen-sociale-zekerheid-raakt-pensioendeelnemers)
-  > Het kabinet wil bezuinigen op de sociale zekerheid om zo de uitgaven omlaag te brengen. Maar dan moeten pensioendeelnemers en werkgevers straks de...
-- [Goed geven is te ingewikkeld geworden](https://fd.nl/opinie/1602228/goed-geven-is-te-ingewikkeld-geworden)
-  > Giften aan maatschappelijke organisaties nemen af, terwijl hun betekenis voor de samenleving juist groeit. Tegelijkertijd werkt het huidige fiscale...
+- [De Italiaanse fietsband met een Nederlands tintje](https://fd.nl/bedrijfsleven/1600863/de-italiaanse-fietsband-met-een-nederlands-tintje)
+  > Nederlanders speelden een grote rol in de uitbouw van het bedrijf dat als enige grafeen verwerkt in banden. De banden zijn geliefd bij toprenners.
+- [Profiteert de Shell-belegger ook van de olieblokkade?](https://fd.nl/financiele-markten/1601683/profiteert-de-shell-belegger-ook-van-de-olieblokkade)
+  > De hogere energieprijzen sinds begin maart hebben Shell geen windeieren gelegd. Gaat de Europese aandeelhouder meeprofiteren door een hogere...
+- [Oliekartel Opec+ verhoogt opnieuw olieproductie](https://fd.nl/financiele-markten/1602752/oliekartel-opec-verhoogt-opnieuw-olieproductie)
+  > Zeven olieproducerende landen, onder wie Saoedi-Arabië en Rusland, gaan vanaf augustus per dag gezamenlijk 188.000 extra vaten olie oppompen.
+- [Schrappen klimaatdoel Wereldbank lijkt gebaar voor de bühne](https://fd.nl/samenleving/1602376/schrappen-klimaatdoel-wereldbank-lijkt-gebaar-voor-de-buhne)
+  > Onder druk van de VS schrapte de Wereldbank het uitgangspunt om 45% van de leningen een klimaatdoel mee te geven.  Volgens deskundigen zullen de...
+- [Arbeidsonrust in Duitse autosector groeit](https://fd.nl/bedrijfsleven/1602696/arbeidsonrust-in-duitse-autosector-groeit)
+  > Tienduizenden werknemers van Mercedes-Benz legden vrijdag hun werk neer. Vakbond IG Metall verzet zich tegen de aangekondigde maatregelen bij de drie...
 
 ### Meest gelezen
 
