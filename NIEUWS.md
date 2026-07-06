@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-07-2026 om 22:04*
+*Laatst bijgewerkt: 06-07-2026 om 00:10*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Gerard de Braconier (70) overleden, gitarist en songwriter van Toontje Lager](https://nos.nl/l/2621828)
+  > Gerard de Braconier is op 70-jarige leeftijd overleden. Dat meldt zijn vrouw aan Omroep Gelderland. Hij was gitarist en songwriter van de Nederlandse...
+- [Tienduizend mensen geëvacueerd in Zuidoost-Frankrijk om bosbranden](https://nos.nl/l/2621821)
+  > In het zuidoosten van Frankrijk zijn zo'n 10.000 inwoners geëvacueerd vanwege natuurbranden in het gebied. In het departement Pyrénées-Orientales,...
 - [Trump richt pijlen op prestigieus Smithsonian Museum](https://nos.nl/l/2621813)
   > Het Witte Huis opent met een kritisch rapport de aanval op de leiding van het prestigieuze Smithsonian Institution. De conclusie is dat daar...
 - [Hond wandelt ongestoord door Drechttunnel bij A16, politie zet achtervolging in](https://nos.nl/l/2621807)
   > De politie heeft vanmiddag de achtervolging ingezet om een verdwaalde hond te pakken te krijgen: de viervoeter was de Drechttunnel bij de A16 in...
 - [Netbeheerders schrikken van uitschakelen stroomnet Tilburg: 'Zeer ongebruikelijk'](https://nos.nl/l/2621803)
   > Het is iets na 11.30 uur als het ineens 'code rood' is in de centrale regelkamer van Enexis in Weert. De netbeheerder grijpt naar een draconische...
-- [Ruimteballen op Australisch strand: niet van aliens, wel gevaarlijk](https://nos.nl/l/2621800)
-  > Op een strand in Australië zijn dit weekend zes metalen ballen aangespoeld. Waarschijnlijk gaat het om brandstoftanks die zijn gebruikt voor een...
-- [Pride Keulen massaal bezocht: 'We willen laten zien dat we er mogen zijn'](https://nos.nl/l/2621798)
-  > Bij de jaarlijkse Pride-parade in Keulen waren vandaag zo'n 1,5 miljoen bezoekers. Dat meldt de organisatie aan het Duitse persbureau dpa. Daarmee...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘FIFA draait schorsing VS-uitblinker terug na belletje Trump’, tegenstander België verbijsterd](https://www.ad.nl/wk-voetbal/fifa-draait-schorsing-vs-uitblinker-terug-na-belletje-trump-tegenstander-belgie-verbijsterd~a47ad84a/)
-  > De Amerikaanse president President Trump heeft woensdag met FIFA-voorzitter Gianni Infantino gebeld met de vraag om de schorsing van VS-aanvaller...
-- [LIVE WK voetbal | Wat een fenomeen! Haaland schiet Noorwegen eigenhandig naar zege op Brazilië](https://www.ad.nl/wk-voetbal/live-wk-voetbal-wat-een-fenomeen-haaland-schiet-noorwegen-eigenhandig-naar-zege-op-brazilie~a2256399/)
-  > Een heerlijk affiche in de achtste finales van het WK. Recordkampioen Brazilië neemt het op tegen het sterke Noorwegen, dat als outsider voor de...
-- [Weerwaarschuwing op borden in stadion Engeland - Mexico, duel officieel nog niet uitgesteld](https://www.ad.nl/wk-voetbal/weerwaarschuwing-op-borden-in-stadion-engeland-mexico-duel-officieel-nog-niet-uitgesteld~a2a575df/)
-  > Engeland keert terug in het Aztecenstadion, waar het in 1986 de iconische Hand van God-goal van Diego Maradona incasseerde. Vannacht is Mexico de...
-- [Sabalenka wil ‘dronken worden’ na nederlaag tegen Osaka, Djokovic en Sinner door naar kwartfinales](https://www.ad.nl/tennis/sabalenka-wil-dronken-worden-na-nederlaag-tegen-osaka-djokovic-en-sinner-door-naar-kwartfinales~aff1a2be/)
-  > Het grootste grastennistoernooi is begonnen. Tussen 29 juni en 11 juli strijden de beste tennissers ter wereld om de titel op Wimbledon. Hier blijf...
-- [Podcast In Het Wiel | ‘Bromance tussen Pogacar en Del Toro kan niet meer stuk’](https://www.ad.nl/wielrennen/podcast-in-het-wiel-bromance-tussen-pogacar-en-del-toro-kan-niet-meer-stuk~a5ea502e/)
-  > Al in de tweede etappe van de Tour de France kan Tadej Pogacar het zich permitteren een ritzege cadeau te doen. Isaac del Toro was de gelukkige....
+- [Mooie woorden voor Sidny Lopes Cabral van zijn vriendin, Portugese spelers vermaken zich met rugbybal](https://www.ad.nl/wk-voetbal/mooie-woorden-voor-sidny-lopes-cabral-van-zijn-vriendin-portugese-spelers-vermaken-zich-met-rugbybal~a1f94c0c/)
+  > De knock-outfase van het WK is bezig. De belangen nemen dus toe, maar gelukkig is er op social media vaak nog wel tijd voor wat luchtigheid. Wij...
+- [Anton Gaaei in beeld bij Duitse subtopper, neefje van Clarence Seedorf tekent in Cambodja](https://www.ad.nl/voetbal/anton-gaaei-in-beeld-bij-duitse-subtopper-neefje-van-clarence-seedorf-tekent-in-cambodja~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Luchtaanval op Oekraïense hoofdstad Kyiv, Zelensky verwacht meer aanvallen in aanloop Navo-top](https://www.ad.nl/buitenland/luchtaanval-op-oekraiense-hoofdstad-kyiv-zelensky-verwacht-meer-aanvallen-in-aanloop-navo-top~adfb97be/)
+  > Oekraïne houdt er rekening mee dat ze in de aanloop naar de Navo-top worden bestookt met Russische aanvallen. Maandagochtend vroeg werd de hoofdstad...
+- [Wedstrijd Mexico - Engeland met een uur uitgesteld vanwege onweer](https://www.ad.nl/wk-voetbal/wedstrijd-mexico-engeland-met-een-uur-uitgesteld-vanwege-onweer~a2a575df/)
+  > De wedstrijd tussen Engeland en Mexico in het Estadio Azteca is vertraagd vanwege onweer in de buurt van het stadion. De wedstrijd zou om 02.00 uur...
+- [Historisch! Fenomenale Erling Haaland velt grootmacht Brazilië en staat met Noorwegen in kwartfinale](https://www.ad.nl/wk-voetbal/historisch-fenomenale-erling-haaland-velt-grootmacht-brazilie-en-staat-met-noorwegen-in-kwartfinale~a2256399/)
+  > Ongelofelijk, fenomenaal, buitenaards. Erling Haaland blijft imponeren met zijn absurde doelpuntendrift. De lange tijd onzichtbare spits hielp...
 
 ### Meest gelezen
 
@@ -46,14 +46,16 @@
 
 ### Laatste nieuws
 
-- [Kabinet roept concurrentiebeding terecht een halt toe](https://fd.nl/opinie/1602592/kabinet-roept-concurrentiebeding-terecht-een-halt-toe)
-  > Het is goed dat Vijlbrief nu een streep in het zand zet. Voor werknemers die willen groeien, maar ook voor een bloeiende economie.
-- [Castlelake krijgt voet tussen de deur bij EasyJet met nieuw bod](https://fd.nl/bedrijfsleven/1602757/castlelake-krijgt-voet-tussen-de-deur-bij-easyjet-met-nieuw-bod)
-  > Het nieuwste bod waardeert de Britse budgetluchtvaartmaatschappij op £5,2 mrd (€6,06 mrd) en overtreft het vorige bod.
-- [Naheffing voor LVMH-topman Arnault en zijn vrouw](https://fd.nl/bedrijfsleven/1602755/naheffing-voor-lvmh-topman-arnault-en-zijn-vrouw)
-- [Zuid-Korea start nationaal fonds met opbrengsten halfgeleiderindsutrie](https://fd.nl/politiek/1602754/zuid-korea-start-nationaal-fonds-met-opbrengsten-halfgeleiderindsutrie)
-- [Nigel Farage weer onder vuur na niet gemelde giften](https://fd.nl/politiek/1602753/nigel-farage-weer-onder-vuur-na-niet-gemelde-giften)
-  > De Britse politicus Nigel Farage is voor de tweede keer in korte tijd in opspraak geraakt wegens het mogelijk accepteren van giften of diensten...
+- [Niet raketten maar data stuwen de groei in de ruimtevaart](https://fd.nl/financiele-markten/1602691/niet-raketten-maar-data-stuwen-de-groei-in-de-ruimtevaart)
+  > De ruimtevaartsector kan op steeds meer aandacht van beleggers rekenen. Traditioneel ging het om fysieke raketten en defensiebedrijven, maar data,...
+- [Olie en AI schragen de dollar, maar munt raakt toch verder uit de gratie](https://fd.nl/financiele-markten/1602132/olie-en-ai-schragen-de-dollar-maar-munt-raakt-toch-verder-uit-de-gratie)
+  > De langetermijntrend voor de dollar is neerwaarts, maar op korte termijn kunnen er allerlei krachten ontstaan die de Amerikaanse munt tijdelijk...
+- [Bouw kantoren in het slop door hogere kosten en afname aantal huurders](https://fd.nl/bedrijfsleven/1602676/bouw-kantoren-in-het-slop-door-hogere-kosten-en-afname-aantal-huurders)
+  > Scherp stijgende bouwkosten, een hogere rente en minder huurders laten nieuwe kantoorprojecten sneuvelen.
+- [Benzine €7,50 per liter](https://fd.nl/opinie/1602612/benzine-7-50-per-liter)
+  > Ook in Rusland werken hoge brandstofkosten door in alle andere prijzen.
+- [Een moderne man neemt al zijn verlof op](https://fd.nl/opinie/1602217/een-moderne-man-neemt-al-zijn-verlof-op)
+  > Wil je echt uitblinken als moderne vader? Doe dan eens gek en neem gewoon alle vijftien weken verlof op. Bewaar een deel ervan voor als je vrouw weer...
 
 ### Meest gelezen
 
