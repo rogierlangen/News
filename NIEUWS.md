@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-07-2026 om 00:10*
+*Laatst bijgewerkt: 06-07-2026 om 05:14*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Gerard de Braconier (70) overleden, gitarist en songwriter van Toontje Lager](https://nos.nl/l/2621828)
-  > Gerard de Braconier is op 70-jarige leeftijd overleden. Dat meldt zijn vrouw aan Omroep Gelderland. Hij was gitarist en songwriter van de Nederlandse...
-- [Tienduizend mensen geëvacueerd in Zuidoost-Frankrijk om bosbranden](https://nos.nl/l/2621821)
-  > In het zuidoosten van Frankrijk zijn zo'n 10.000 inwoners geëvacueerd vanwege natuurbranden in het gebied. In het departement Pyrénées-Orientales,...
-- [Trump richt pijlen op prestigieus Smithsonian Museum](https://nos.nl/l/2621813)
-  > Het Witte Huis opent met een kritisch rapport de aanval op de leiding van het prestigieuze Smithsonian Institution. De conclusie is dat daar...
-- [Hond wandelt ongestoord door Drechttunnel bij A16, politie zet achtervolging in](https://nos.nl/l/2621807)
-  > De politie heeft vanmiddag de achtervolging ingezet om een verdwaalde hond te pakken te krijgen: de viervoeter was de Drechttunnel bij de A16 in...
-- [Netbeheerders schrikken van uitschakelen stroomnet Tilburg: 'Zeer ongebruikelijk'](https://nos.nl/l/2621803)
-  > Het is iets na 11.30 uur als het ineens 'code rood' is in de centrale regelkamer van Enexis in Weert. De netbeheerder grijpt naar een draconische...
+- [Wekdienst 6/7: Spanje tegen Portugal op het WK • Kort geding over DigiD](https://nos.nl/l/2621838)
+  > Goedemorgen! Met Spanje tegen Portugal en België tegen de VS belooft het een mooie sportavond te worden. Eerder op de dag vraagt het bedrijf achter...
+- [Meldingen over onveiligheid op Haagse Hogeschool: 'Intimidatie en pesterijen'](https://nos.nl/l/2621836)
+  > Docenten van de Haagse Hogeschool slaan alarm over de werkcultuur op de onderwijsinstelling. Volgens docenten die anoniem willen blijven is er sprake...
+- [Kabinet: deze zomer probleemwolven bij incidenten afschieten](https://nos.nl/l/2621834)
+  > Gemeenten en provincies mogen binnenkort in actie komen tegen probleemwolven en ze eerder laten afschieten. Als wolven mensen aanvallen, agressief...
+- [Doden en gewonden in Kyiv, kort na waarschuwing Zelensky over Russische aanval](https://nos.nl/l/2621830)
+  > Bij Russische aanvallen op Kyiv zijn zeker negen mensen gedood en 46 mensen gewond geraakt. Dat meldt Tymoer Tkatsjenko, hoofd van het militaire...
+- [Inbraak bij Frans museum, mogelijk voor 'enkele miljoenen' aan juwelen gestolen](https://nos.nl/l/2621829)
+  > Bij een museum in Noordoost-Frankrijk is ingebroken. Franse media schrijven dat wordt aangenomen dat er voor "enkele miljoenen euro's" aan juwelen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Mooie woorden voor Sidny Lopes Cabral van zijn vriendin, Portugese spelers vermaken zich met rugbybal](https://www.ad.nl/wk-voetbal/mooie-woorden-voor-sidny-lopes-cabral-van-zijn-vriendin-portugese-spelers-vermaken-zich-met-rugbybal~a1f94c0c/)
-  > De knock-outfase van het WK is bezig. De belangen nemen dus toe, maar gelukkig is er op social media vaak nog wel tijd voor wat luchtigheid. Wij...
-- [Anton Gaaei in beeld bij Duitse subtopper, neefje van Clarence Seedorf tekent in Cambodja](https://www.ad.nl/voetbal/anton-gaaei-in-beeld-bij-duitse-subtopper-neefje-van-clarence-seedorf-tekent-in-cambodja~ad10f02c/)
-  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
-- [Luchtaanval op Oekraïense hoofdstad Kyiv, Zelensky verwacht meer aanvallen in aanloop Navo-top](https://www.ad.nl/buitenland/luchtaanval-op-oekraiense-hoofdstad-kyiv-zelensky-verwacht-meer-aanvallen-in-aanloop-navo-top~adfb97be/)
-  > Oekraïne houdt er rekening mee dat ze in de aanloop naar de Navo-top worden bestookt met Russische aanvallen. Maandagochtend vroeg werd de hoofdstad...
-- [Wedstrijd Mexico - Engeland met een uur uitgesteld vanwege onweer](https://www.ad.nl/wk-voetbal/wedstrijd-mexico-engeland-met-een-uur-uitgesteld-vanwege-onweer~a2a575df/)
-  > De wedstrijd tussen Engeland en Mexico in het Estadio Azteca is vertraagd vanwege onweer in de buurt van het stadion. De wedstrijd zou om 02.00 uur...
-- [Historisch! Fenomenale Erling Haaland velt grootmacht Brazilië en staat met Noorwegen in kwartfinale](https://www.ad.nl/wk-voetbal/historisch-fenomenale-erling-haaland-velt-grootmacht-brazilie-en-staat-met-noorwegen-in-kwartfinale~a2256399/)
-  > Ongelofelijk, fenomenaal, buitenaards. Erling Haaland blijft imponeren met zijn absurde doelpuntendrift. De lange tijd onzichtbare spits hielp...
+- [Grote temperatuurverschillen tussen noorden en zuiden, vanaf woensdag weer flink warm](https://www.ad.nl/binnenland/grote-temperatuurverschillen-tussen-noorden-en-zuiden-vanaf-woensdag-weer-flink-warm~a8247ae3/)
+  > Op veel plaatsen is het maandagochtend bewolkt en vooral in het noorden valt soms lichte regen of motregen, maar dat is van korte duur. In het...
+- [Door de feestploeg van Haaland & co wordt wél volop gelachen op dit WK](https://www.ad.nl/wk-voetbal/door-de-feestploeg-van-haaland-en-co-wordt-wel-volop-gelachen-op-dit-wk~a7cde7b9/)
+  > Brazilië had tot voor kort de samba, Nederland introduceerde de Snollebollekes, maar Noorwegen is vermoedelijk het meest swingende collectief op dit...
+- [Voor miljoenen aan juwelen gestolen uit Frans museum, burgemeester woest](https://www.ad.nl/buitenland/voor-miljoenen-aan-juwelen-gestolen-uit-frans-museum-burgemeester-woest~ac8a7961/)
+  > In het Lalique-museum, in het oosten van Frankrijk, zijn zaterdagochtend meerdere juwelen gestolen. De waarde van de gestolen juwelen zou miljoenen...
+- [‘EU wil systeem dat auto vanaf 2030 automatisch afremt bij te hard rijden’](https://www.ad.nl/auto/eu-wil-systeem-dat-auto-vanaf-2030-automatisch-afremt-bij-te-hard-rijden~a4791ee7/)
+  > De Europese Commissie onderzoekt de mogelijkheid om nieuwe auto’s over enkele jaren uit te rusten met technologie die automatisch ingrijpt als een...
+- [Harry Kane verschijnt na intense zege met piepstem voor de camera: ‘Ik kan niet echt praten’](https://www.ad.nl/wk-voetbal/harry-kane-verschijnt-na-intense-zege-met-piepstem-voor-de-camera-ik-kan-niet-echt-praten~a71c3e35/)
+  > Harry Kane had letterlijk geen stem meer over na afloop van de overwinning van Engeland op Mexico in het Aztekenstadion (2-3). De aanvoerder...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Pathé-ceo Jacques Hoendervangers: ‘Het lukt me steeds beter om niet overal een mening over te hebben’](https://fd.nl/samenleving/1602598/pathe-ceo-jacques-hoendervangers-het-lukt-me-steeds-beter-om-niet-overal-een-mening-over-te-hebben)
+  > Het zijn turbulente tijden voor bioscoopketen Pathé door de strijd met streamingdiensten. ‘De film- en de bioscoopwereld veranderen hard en daar...
+- [Live: De beurs gaat van record naar record, voor hoelang?](https://fd.nl/financiele-markten/1602756/live-de-beurs-gaat-van-record-naar-record-voor-hoelang)
+  > Aegon en ING Groep waren twee van de aandelen die de AEX-index vrijdag naar een recordstand duwden. Afgelopen donderdag sloot de Dow op recordhoogte.
+- [Rutte en Erdogan ontvangen Trump met open armen](https://fd.nl/economie/1602688/rutte-en-erdogan-ontvangen-trump-met-open-armen)
+  > Vandaag in Dagkoers: een vooruitblik op de Navo-top in Turkije; bouwkosten zetten ontwikkeling van kantoorpanden onder druk; en tweedehands...
 - [Niet raketten maar data stuwen de groei in de ruimtevaart](https://fd.nl/financiele-markten/1602691/niet-raketten-maar-data-stuwen-de-groei-in-de-ruimtevaart)
   > De ruimtevaartsector kan op steeds meer aandacht van beleggers rekenen. Traditioneel ging het om fysieke raketten en defensiebedrijven, maar data,...
 - [Olie en AI schragen de dollar, maar munt raakt toch verder uit de gratie](https://fd.nl/financiele-markten/1602132/olie-en-ai-schragen-de-dollar-maar-munt-raakt-toch-verder-uit-de-gratie)
   > De langetermijntrend voor de dollar is neerwaarts, maar op korte termijn kunnen er allerlei krachten ontstaan die de Amerikaanse munt tijdelijk...
-- [Bouw kantoren in het slop door hogere kosten en afname aantal huurders](https://fd.nl/bedrijfsleven/1602676/bouw-kantoren-in-het-slop-door-hogere-kosten-en-afname-aantal-huurders)
-  > Scherp stijgende bouwkosten, een hogere rente en minder huurders laten nieuwe kantoorprojecten sneuvelen.
-- [Benzine €7,50 per liter](https://fd.nl/opinie/1602612/benzine-7-50-per-liter)
-  > Ook in Rusland werken hoge brandstofkosten door in alle andere prijzen.
-- [Een moderne man neemt al zijn verlof op](https://fd.nl/opinie/1602217/een-moderne-man-neemt-al-zijn-verlof-op)
-  > Wil je echt uitblinken als moderne vader? Doe dan eens gek en neem gewoon alle vijftien weken verlof op. Bewaar een deel ervan voor als je vrouw weer...
 
 ### Meest gelezen
 
