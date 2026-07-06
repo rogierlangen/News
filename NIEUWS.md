@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-07-2026 om 05:14*
+*Laatst bijgewerkt: 06-07-2026 om 10:44*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Wekdienst 6/7: Spanje tegen Portugal op het WK • Kort geding over DigiD](https://nos.nl/l/2621838)
-  > Goedemorgen! Met Spanje tegen Portugal en België tegen de VS belooft het een mooie sportavond te worden. Eerder op de dag vraagt het bedrijf achter...
-- [Meldingen over onveiligheid op Haagse Hogeschool: 'Intimidatie en pesterijen'](https://nos.nl/l/2621836)
-  > Docenten van de Haagse Hogeschool slaan alarm over de werkcultuur op de onderwijsinstelling. Volgens docenten die anoniem willen blijven is er sprake...
-- [Kabinet: deze zomer probleemwolven bij incidenten afschieten](https://nos.nl/l/2621834)
-  > Gemeenten en provincies mogen binnenkort in actie komen tegen probleemwolven en ze eerder laten afschieten. Als wolven mensen aanvallen, agressief...
-- [Doden en gewonden in Kyiv, kort na waarschuwing Zelensky over Russische aanval](https://nos.nl/l/2621830)
-  > Bij Russische aanvallen op Kyiv zijn zeker negen mensen gedood en 46 mensen gewond geraakt. Dat meldt Tymoer Tkatsjenko, hoofd van het militaire...
-- [Inbraak bij Frans museum, mogelijk voor 'enkele miljoenen' aan juwelen gestolen](https://nos.nl/l/2621829)
-  > Bij een museum in Noordoost-Frankrijk is ingebroken. Franse media schrijven dat wordt aangenomen dat er voor "enkele miljoenen euro's" aan juwelen...
+- [Man die acht dagen onder puin in Venezuela lag doet verhaal: 'Waarom ik?'](https://nos.nl/l/2621877)
+  > Hij groeide in korte tijd uit tot een symbool van hoop voor Venezuela: Hernán Gil, de man die acht dagen na de verwoestende aardbevingen levend onder...
+- [Zeker 25 doden bij gevangenisopstand in Sri Lanka](https://nos.nl/l/2621875)
+  > Bij een opstand in een gevangenis in Sri Lanka zijn tot nu toe 25 mensen om het leven gekomen. Dat melden lokale functionarissen aan persbureau...
+- [Sterrenkundigen komen met ruimtetelescoop dichter bij 'kindertijd van het heelal'](https://nos.nl/l/2621874)
+  > Wetenschappers hebben 31 extreem verre quasars ontdekt met ruimtetelescoop Euclid. Dat zijn heldere kernen van sterrenstelsels. Niet eerder werden...
+- [Gelijkvloers en in een hofje: 420 miljoen extra voor seniorenwoningen](https://nos.nl/l/2621872)
+  > Het kabinet geeft in de komende jaren 420 miljoen euro extra uit aan nieuwe woningen voor ouderen. Veel senioren willen verhuizen naar een kleinere,...
+- [Belgische kinderen aangehouden die dreigden met aanval op hun school](https://nos.nl/l/2621871)
+  > In België zijn zes kinderen opgepakt die op TikTok dreigden met een aanslag op hun school in Hasselt en op de directieleden. De arrestaties waren al...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Grote temperatuurverschillen tussen noorden en zuiden, vanaf woensdag weer flink warm](https://www.ad.nl/binnenland/grote-temperatuurverschillen-tussen-noorden-en-zuiden-vanaf-woensdag-weer-flink-warm~a8247ae3/)
-  > Op veel plaatsen is het maandagochtend bewolkt en vooral in het noorden valt soms lichte regen of motregen, maar dat is van korte duur. In het...
-- [Door de feestploeg van Haaland & co wordt wél volop gelachen op dit WK](https://www.ad.nl/wk-voetbal/door-de-feestploeg-van-haaland-en-co-wordt-wel-volop-gelachen-op-dit-wk~a7cde7b9/)
-  > Brazilië had tot voor kort de samba, Nederland introduceerde de Snollebollekes, maar Noorwegen is vermoedelijk het meest swingende collectief op dit...
-- [Voor miljoenen aan juwelen gestolen uit Frans museum, burgemeester woest](https://www.ad.nl/buitenland/voor-miljoenen-aan-juwelen-gestolen-uit-frans-museum-burgemeester-woest~ac8a7961/)
-  > In het Lalique-museum, in het oosten van Frankrijk, zijn zaterdagochtend meerdere juwelen gestolen. De waarde van de gestolen juwelen zou miljoenen...
-- [‘EU wil systeem dat auto vanaf 2030 automatisch afremt bij te hard rijden’](https://www.ad.nl/auto/eu-wil-systeem-dat-auto-vanaf-2030-automatisch-afremt-bij-te-hard-rijden~a4791ee7/)
-  > De Europese Commissie onderzoekt de mogelijkheid om nieuwe auto’s over enkele jaren uit te rusten met technologie die automatisch ingrijpt als een...
-- [Harry Kane verschijnt na intense zege met piepstem voor de camera: ‘Ik kan niet echt praten’](https://www.ad.nl/wk-voetbal/harry-kane-verschijnt-na-intense-zege-met-piepstem-voor-de-camera-ik-kan-niet-echt-praten~a71c3e35/)
-  > Harry Kane had letterlijk geen stem meer over na afloop van de overwinning van Engeland op Mexico in het Aztekenstadion (2-3). De aanvoerder...
+- [Aanvallers ruiken hun kans, felle strijd om in de juiste vlucht te zitten](https://www.ad.nl/tour-de-france/aanvallers-ruiken-hun-kans-felle-strijd-om-in-de-juiste-vlucht-te-zitten~a56c53c2/)
+  > Na twee dagen in Catalonië zegt het peloton maandag gedag tegen Spanje. De derde etappe voert de renners van Granollers via de Pyreneeën naar het...
+- [TransferTalk | Feyenoord heeft technische staf rond, Glasner tekent bij Nottingham Forest](https://www.ad.nl/voetbal/transfertalk-feyenoord-heeft-technische-staf-rond-glasner-tekent-bij-nottingham-forest~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Hamas ontbindt bestuursorgaan dat al bijna twintig jaar over de Gazastrook regeert](https://www.ad.nl/buitenland/hamas-ontbindt-bestuursorgaan-dat-al-bijna-twintig-jaar-over-de-gazastrook-regeert~ac470a66/)
+  > Hamas heeft het bestuursorgaan ontbonden, waarmee al bijna twee decennia de Gazastrook wordt bestuurd. Dat maakt de groepering maandag bekend tijdens...
+- [Geld moet rollen op Navo-top in Ankara: Europese veiligheid hangt af van lucratieve deals met VS](https://www.ad.nl/buitenland/geld-moet-rollen-op-navo-top-in-ankara-europese-veiligheid-hangt-af-van-lucratieve-deals-met-vs~a81cade4/)
+  > Tijdens de top in Ankara wil de Navo na een ultiem crisisjaar de diepe interne scheuren lijmen. Het bondgenootschap wordt onder leiding van Mark...
+- [Vakantie haalt je uit je vertrouwde dagelijkse routine, en dat is maar goed ook](https://www.ad.nl/werk/vakantie-haalt-je-uit-je-vertrouwde-dagelijkse-routine-en-dat-is-maar-goed-ook~acf0232a/)
+  > Ga jij binnenkort op vakantie? Leuk, toch? Of zie je er misschien ook tegenop dat je vertrouwde dagelijkse routine op z’n kop wordt gezet? Psycholoog...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Pathé-ceo Jacques Hoendervangers: ‘Het lukt me steeds beter om niet overal een mening over te hebben’](https://fd.nl/samenleving/1602598/pathe-ceo-jacques-hoendervangers-het-lukt-me-steeds-beter-om-niet-overal-een-mening-over-te-hebben)
-  > Het zijn turbulente tijden voor bioscoopketen Pathé door de strijd met streamingdiensten. ‘De film- en de bioscoopwereld veranderen hard en daar...
-- [Live: De beurs gaat van record naar record, voor hoelang?](https://fd.nl/financiele-markten/1602756/live-de-beurs-gaat-van-record-naar-record-voor-hoelang)
-  > Aegon en ING Groep waren twee van de aandelen die de AEX-index vrijdag naar een recordstand duwden. Afgelopen donderdag sloot de Dow op recordhoogte.
-- [Rutte en Erdogan ontvangen Trump met open armen](https://fd.nl/economie/1602688/rutte-en-erdogan-ontvangen-trump-met-open-armen)
-  > Vandaag in Dagkoers: een vooruitblik op de Navo-top in Turkije; bouwkosten zetten ontwikkeling van kantoorpanden onder druk; en tweedehands...
-- [Niet raketten maar data stuwen de groei in de ruimtevaart](https://fd.nl/financiele-markten/1602691/niet-raketten-maar-data-stuwen-de-groei-in-de-ruimtevaart)
-  > De ruimtevaartsector kan op steeds meer aandacht van beleggers rekenen. Traditioneel ging het om fysieke raketten en defensiebedrijven, maar data,...
-- [Olie en AI schragen de dollar, maar munt raakt toch verder uit de gratie](https://fd.nl/financiele-markten/1602132/olie-en-ai-schragen-de-dollar-maar-munt-raakt-toch-verder-uit-de-gratie)
-  > De langetermijntrend voor de dollar is neerwaarts, maar op korte termijn kunnen er allerlei krachten ontstaan die de Amerikaanse munt tijdelijk...
+- [Commissaris Mathijs Koster vertrekt na één jaar bij Sif](https://fd.nl/bedrijfsleven/1602656/commissaris-mathijs-koster-vertrekt-na-een-jaar-bij-sif)
+  > Aan het vertrek liggen persoonlijke redenen ten grondslag, meldt het bedrijf dat funderingen maakt voor windturbines op zee.
+- [ABU-voorzitter Bruno Bruins: ‘Geef ons de ruimte om mensen aan werk te helpen’](https://fd.nl/politiek/1601075/abu-voorzitter-bruno-bruins-geef-ons-de-ruimte-om-mensen-aan-werk-te-helpen)
+  > De uitzendsector snakt naar duidelijkheid en zekerheid, zegt de nieuwe ABU-voorzitter Bruno Bruins. ‘Het allerbelangrijkste is dat we de mensen...
+- [Slimme fondsenwerving of privacyschending? De onzichtbare technologie achter donaties](https://fd.nl/samenleving/1602690/slimme-fondsenwerving-of-privacyschending-de-onzichtbare-technologie-achter-donaties)
+  > Goededoelenorganisaties doen hetzelfde als commerciële bedrijven: datatechnologie inzetten om hun donateurs zo gericht mogelijk te benaderen.
+- [Raadsels en valkuilen rond de stroomprijs](https://fd.nl/financiele-markten/1602778/raadsels-en-valkuilen-rond-de-stroomprijs)
+  > Wat maakt Nederland autonomer en tegelijkertijd afhankelijker, vraagt FD-columnist Ria Roerink. Antwoord: groene stroom.
+- [Neemt het Europees Parlement de AfD de maat?](https://fd.nl/politiek/1601712/neemt-het-europees-parlement-afd-de-maat)
+  > De nieuwste editie van de Europa-nieuwsbrief van het FD gaat over waarden in het Europarlement; een nieuwe Chinese autofabriek in Europa; en Ieren...
 
 ### Meest gelezen
 
