@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-07-2026 om 10:44*
+*Laatst bijgewerkt: 06-07-2026 om 14:28*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Man die acht dagen onder puin in Venezuela lag doet verhaal: 'Waarom ik?'](https://nos.nl/l/2621877)
-  > Hij groeide in korte tijd uit tot een symbool van hoop voor Venezuela: Hernán Gil, de man die acht dagen na de verwoestende aardbevingen levend onder...
-- [Zeker 25 doden bij gevangenisopstand in Sri Lanka](https://nos.nl/l/2621875)
-  > Bij een opstand in een gevangenis in Sri Lanka zijn tot nu toe 25 mensen om het leven gekomen. Dat melden lokale functionarissen aan persbureau...
-- [Sterrenkundigen komen met ruimtetelescoop dichter bij 'kindertijd van het heelal'](https://nos.nl/l/2621874)
-  > Wetenschappers hebben 31 extreem verre quasars ontdekt met ruimtetelescoop Euclid. Dat zijn heldere kernen van sterrenstelsels. Niet eerder werden...
-- [Gelijkvloers en in een hofje: 420 miljoen extra voor seniorenwoningen](https://nos.nl/l/2621872)
-  > Het kabinet geeft in de komende jaren 420 miljoen euro extra uit aan nieuwe woningen voor ouderen. Veel senioren willen verhuizen naar een kleinere,...
-- [Belgische kinderen aangehouden die dreigden met aanval op hun school](https://nos.nl/l/2621871)
-  > In België zijn zes kinderen opgepakt die op TikTok dreigden met een aanslag op hun school in Hasselt en op de directieleden. De arrestaties waren al...
+- [Eerste tien gemeenten onder toezicht gesteld omdat ze te weinig asielopvang regelen](https://nos.nl/l/2621915)
+  > Minister Van den Brink van Asiel en Migratie draait de duimschroeven aan van een eerste groep gemeenten die tot nu toe te weinig asielopvang regelen....
+- [Oekraïne valt grootste Russische olieraffinaderij in Omsk aan](https://nos.nl/l/2621910)
+  > Oekraïne heeft de Russische industriestad Omsk aangevallen. Omsk ligt vlak bij Kazachstan en op ongeveer 2500 kilometer van de Oekraïense grens. Het...
+- [Opnieuw recordjaar voor koopjesketen Wibra](https://nos.nl/l/2621901)
+  > De Nederlandse koopjesketen Wibra heeft er opnieuw een recordjaar opzitten. Vorig jaar boekte Wibra een operationele winst van ruim 16 miljoen euro....
+- [Koning Willem-Alexander viert zijn 60ste verjaardag in Lelystad](https://nos.nl/l/2621900)
+  > De koninklijke familie viert Koningsdag op 27 april 2027 in Lelystad. Dat heeft de Rijksvoorlichtingsdienst bekendgemaakt.
+        Koning...
+- [Slim fietsenrek uit Enschede laadt e-bike op én zet hem op slot](https://nos.nl/l/2621898)
+  > Een e-bike parkeren, opladen en op slot zetten in één handeling. Dat is het idee achter Lock and Load, een slim fietsenrek van twee Enschedese...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Aanvallers ruiken hun kans, felle strijd om in de juiste vlucht te zitten](https://www.ad.nl/tour-de-france/aanvallers-ruiken-hun-kans-felle-strijd-om-in-de-juiste-vlucht-te-zitten~a56c53c2/)
+- [Domien deelt traumatische ervaring en jarige Bibi slingert vrolijke kiekjes de wereld in](https://www.ad.nl/show/domien-deelt-traumatische-ervaring-en-jarige-bibi-slingert-vrolijke-kiekjes-de-wereld-in~a411cde7/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Kabinet voert de druk op bij tien gemeenten die zich niet aan spreidingswet houden](https://www.ad.nl/politiek/kabinet-voert-de-druk-op-bij-tien-gemeenten-die-zich-niet-aan-spreidingswet-houden~aad382d5/)
+  > Het kabinet voert bij tien gemeenten de druk op om zich te houden aan de asielspreidingswet. Het gaat om Aalten, Achtkarspelen, Bergen (Limburg),...
+- [Wil je vaker vakantie? In deze sectoren krijg je 40 dagen of (veel) meer vrij](https://www.ad.nl/werk/wil-je-vaker-vakantie-in-deze-sectoren-krijg-je-40-dagen-of-veel-meer-vrij~a9daf90a/)
+  > Zijn jouw vakantiedagen ieder jaar zo op? Een overstap naar een andere sector kan wat dat betreft best lonen. In sommige banen heb je namelijk...
+- [Live Tour de France | Zes koplopers behouden minimale voorsprong, wat is Pogacar van plan?](https://www.ad.nl/tour-de-france/live-tour-de-france-zes-koplopers-behouden-minimale-voorsprong-wat-is-pogacar-van-plan~a56c53c2/)
   > Na twee dagen in Catalonië zegt het peloton maandag gedag tegen Spanje. De derde etappe voert de renners van Granollers via de Pyreneeën naar het...
-- [TransferTalk | Feyenoord heeft technische staf rond, Glasner tekent bij Nottingham Forest](https://www.ad.nl/voetbal/transfertalk-feyenoord-heeft-technische-staf-rond-glasner-tekent-bij-nottingham-forest~ad10f02c/)
-  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
-- [Hamas ontbindt bestuursorgaan dat al bijna twintig jaar over de Gazastrook regeert](https://www.ad.nl/buitenland/hamas-ontbindt-bestuursorgaan-dat-al-bijna-twintig-jaar-over-de-gazastrook-regeert~ac470a66/)
-  > Hamas heeft het bestuursorgaan ontbonden, waarmee al bijna twee decennia de Gazastrook wordt bestuurd. Dat maakt de groepering maandag bekend tijdens...
-- [Geld moet rollen op Navo-top in Ankara: Europese veiligheid hangt af van lucratieve deals met VS](https://www.ad.nl/buitenland/geld-moet-rollen-op-navo-top-in-ankara-europese-veiligheid-hangt-af-van-lucratieve-deals-met-vs~a81cade4/)
-  > Tijdens de top in Ankara wil de Navo na een ultiem crisisjaar de diepe interne scheuren lijmen. Het bondgenootschap wordt onder leiding van Mark...
-- [Vakantie haalt je uit je vertrouwde dagelijkse routine, en dat is maar goed ook](https://www.ad.nl/werk/vakantie-haalt-je-uit-je-vertrouwde-dagelijkse-routine-en-dat-is-maar-goed-ook~acf0232a/)
-  > Ga jij binnenkort op vakantie? Leuk, toch? Of zie je er misschien ook tegenop dat je vertrouwde dagelijkse routine op z’n kop wordt gezet? Psycholoog...
+- [UEFA haalt hard uit naar FIFA, Braziliaanse Ronaldo na uitschakeling: ‘Ancelotti heeft te veel fouten gemaakt’](https://www.ad.nl/wk-voetbal/uefa-haalt-hard-uit-naar-fifa-braziliaanse-ronaldo-na-uitschakeling-ancelotti-heeft-te-veel-fouten-gemaakt~a2d5cab9/)
+  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Commissaris Mathijs Koster vertrekt na één jaar bij Sif](https://fd.nl/bedrijfsleven/1602656/commissaris-mathijs-koster-vertrekt-na-een-jaar-bij-sif)
-  > Aan het vertrek liggen persoonlijke redenen ten grondslag, meldt het bedrijf dat funderingen maakt voor windturbines op zee.
-- [ABU-voorzitter Bruno Bruins: ‘Geef ons de ruimte om mensen aan werk te helpen’](https://fd.nl/politiek/1601075/abu-voorzitter-bruno-bruins-geef-ons-de-ruimte-om-mensen-aan-werk-te-helpen)
-  > De uitzendsector snakt naar duidelijkheid en zekerheid, zegt de nieuwe ABU-voorzitter Bruno Bruins. ‘Het allerbelangrijkste is dat we de mensen...
-- [Slimme fondsenwerving of privacyschending? De onzichtbare technologie achter donaties](https://fd.nl/samenleving/1602690/slimme-fondsenwerving-of-privacyschending-de-onzichtbare-technologie-achter-donaties)
-  > Goededoelenorganisaties doen hetzelfde als commerciële bedrijven: datatechnologie inzetten om hun donateurs zo gericht mogelijk te benaderen.
-- [Raadsels en valkuilen rond de stroomprijs](https://fd.nl/financiele-markten/1602778/raadsels-en-valkuilen-rond-de-stroomprijs)
-  > Wat maakt Nederland autonomer en tegelijkertijd afhankelijker, vraagt FD-columnist Ria Roerink. Antwoord: groene stroom.
-- [Neemt het Europees Parlement de AfD de maat?](https://fd.nl/politiek/1601712/neemt-het-europees-parlement-afd-de-maat)
-  > De nieuwste editie van de Europa-nieuwsbrief van het FD gaat over waarden in het Europarlement; een nieuwe Chinese autofabriek in Europa; en Ieren...
+- [Kaasmaker Royal A-ware neemt Spaanse zuiveldistributeur over](https://fd.nl/bedrijfsleven/1602668/kaasmaker-royal-a-ware-neemt-spaanse-zuiveldistributeur-over)
+  > Het familiebedrijf is al jaren op overnamepad en de omzet groeit hard mee.
+- [Overstap van starters naar een bv zet door](https://fd.nl/bedrijfsleven/1602662/overstap-van-starters-naar-een-bv-zet-door)
+  > Reden zijn de afbouw van fiscale voordelen voor kleine ondernemers en de nieuwe box 3-wetgeving. De Wet DBA, die schijnzelfstandigheid onder zzp’ers...
+- [Een groter stukje taart voor de slinkende partnergroep bij NautaDutilh](https://fd.nl/financiele-markten/1602652/een-groter-stukje-taart-voor-de-slinkende-partnergroep-bij-nautadutilh)
+  > NautaDutilh gaat een hogere winst per partner uitkeren. Het kantoor moet misschien wel, in de VS is profit per equity partner dé graadmeter van het...
+- [Avantium splitst onderdeel af dat zich richt op hergebruik CO₂](https://fd.nl/bedrijfsleven/1602789/avantium-splitst-onderdeel-af-dat-zich-richt-op-hergebruik-co)
+  > Volta Technology gaat verder als Carbeau en krijgt direct een geldinjectie van externe investeerders.
+- [‘Workaholic’ Ollongren mag zich nu op internationaal niveau profileren](https://fd.nl/politiek/1602161/workaholic-ollongren-mag-zich-nu-op-internationaal-niveau-profileren)
+  > Voormalig vicepremier start op 1 september met nieuwe topbaan op de buitenlanddienst van de Europese Unie.
 
 ### Meest gelezen
 
