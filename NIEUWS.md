@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-07-2026 om 14:28*
+*Laatst bijgewerkt: 06-07-2026 om 17:45*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Eerste tien gemeenten onder toezicht gesteld omdat ze te weinig asielopvang regelen](https://nos.nl/l/2621915)
-  > Minister Van den Brink van Asiel en Migratie draait de duimschroeven aan van een eerste groep gemeenten die tot nu toe te weinig asielopvang regelen....
-- [Oekraïne valt grootste Russische olieraffinaderij in Omsk aan](https://nos.nl/l/2621910)
-  > Oekraïne heeft de Russische industriestad Omsk aangevallen. Omsk ligt vlak bij Kazachstan en op ongeveer 2500 kilometer van de Oekraïense grens. Het...
-- [Opnieuw recordjaar voor koopjesketen Wibra](https://nos.nl/l/2621901)
-  > De Nederlandse koopjesketen Wibra heeft er opnieuw een recordjaar opzitten. Vorig jaar boekte Wibra een operationele winst van ruim 16 miljoen euro....
-- [Koning Willem-Alexander viert zijn 60ste verjaardag in Lelystad](https://nos.nl/l/2621900)
-  > De koninklijke familie viert Koningsdag op 27 april 2027 in Lelystad. Dat heeft de Rijksvoorlichtingsdienst bekendgemaakt.
-        Koning...
-- [Slim fietsenrek uit Enschede laadt e-bike op én zet hem op slot](https://nos.nl/l/2621898)
-  > Een e-bike parkeren, opladen en op slot zetten in één handeling. Dat is het idee achter Lock and Load, een slim fietsenrek van twee Enschedese...
+- [Voetbal populairder dan ooit na WK-succes Team USA, maar er zijn zorgen](https://nos.nl/l/2621951)
+  > 32 jaar na de vorige editie in de VS is het WK Voetbal terug in Amerika. Net als in 1994 heeft 'Team USA' zich geplaatst voor de achtste finales. Hun...
+- [Onderzoek: regering keek weg bij leveringen voor gifgassen aan Irak en misleidde Kamer daarover](https://nos.nl/l/2621949)
+  > Nederland had in de jaren 80 al gedetailleerde informatie over de Iraakse plannen met gifgas, maar liet chemische bedrijven toch grondstoffen...
+- [Nederlandse eigenaar ontruimde camping in Zuid-Frankrijk: 'Dit is dramatisch'](https://nos.nl/l/2621947)
+  > "Het is tamelijk dramatisch", verzucht Gijs van Nifterik (67) in het huis in het Zuid-Franse dorpje Fourques waar hij gisteravond laat halsoverkop...
+- [Solvinity wil onderzoek rond verbod op Amerikaanse overname via rechter heropenen](https://nos.nl/l/2621945)
+  > Het van oorsprong Nederlandse IT-bedrijf Solvinity wil dat het onderzoek naar de overname van het bedrijf wordt heropend. Eind mei besloot het...
+- [Man (23) uit Zwijndrecht vast in onderzoek naar kinderporno en online afpersing](https://nos.nl/l/2621943)
+  > Een 23-jarige man uit de gemeente Zwijndrecht is aangehouden op verdenking van het vervaardigen en bezitten van kinderporno en van online seksuele...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Domien deelt traumatische ervaring en jarige Bibi slingert vrolijke kiekjes de wereld in](https://www.ad.nl/show/domien-deelt-traumatische-ervaring-en-jarige-bibi-slingert-vrolijke-kiekjes-de-wereld-in~a411cde7/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Kabinet voert de druk op bij tien gemeenten die zich niet aan spreidingswet houden](https://www.ad.nl/politiek/kabinet-voert-de-druk-op-bij-tien-gemeenten-die-zich-niet-aan-spreidingswet-houden~aad382d5/)
-  > Het kabinet voert bij tien gemeenten de druk op om zich te houden aan de asielspreidingswet. Het gaat om Aalten, Achtkarspelen, Bergen (Limburg),...
-- [Wil je vaker vakantie? In deze sectoren krijg je 40 dagen of (veel) meer vrij](https://www.ad.nl/werk/wil-je-vaker-vakantie-in-deze-sectoren-krijg-je-40-dagen-of-veel-meer-vrij~a9daf90a/)
-  > Zijn jouw vakantiedagen ieder jaar zo op? Een overstap naar een andere sector kan wat dat betreft best lonen. In sommige banen heb je namelijk...
-- [Live Tour de France | Zes koplopers behouden minimale voorsprong, wat is Pogacar van plan?](https://www.ad.nl/tour-de-france/live-tour-de-france-zes-koplopers-behouden-minimale-voorsprong-wat-is-pogacar-van-plan~a56c53c2/)
-  > Na twee dagen in Catalonië zegt het peloton maandag gedag tegen Spanje. De derde etappe voert de renners van Granollers via de Pyreneeën naar het...
-- [UEFA haalt hard uit naar FIFA, Braziliaanse Ronaldo na uitschakeling: ‘Ancelotti heeft te veel fouten gemaakt’](https://www.ad.nl/wk-voetbal/uefa-haalt-hard-uit-naar-fifa-braziliaanse-ronaldo-na-uitschakeling-ancelotti-heeft-te-veel-fouten-gemaakt~a2d5cab9/)
-  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
+- [Koning Charles maakt ritje in Britse gevechtstank](https://www.ad.nl/show/koning-charles-maakt-ritje-in-britse-gevechtstank~a68c0470/)
+  > Koning Charles heeft maandag plaatsgenomen in de commandostoel van een Challenger 2-tank van het Britse leger, waarmee hij vervolgens een ritje...
+- [Bondscoach van Portugal wijzigt elftal op één plek voor kraker tegen Spanje: dit zijn de opstellingen](https://www.ad.nl/wk-voetbal/bondscoach-van-portugal-wijzigt-elftal-op-een-plek-voor-kraker-tegen-spanje-dit-zijn-de-opstellingen~a39009f5/)
+  > Een prachtig affiche in de achtste finales van het WK: Portugal neemt het op tegen Spanje in strijd om een plek bij de laatste acht. Kan Cristiano...
+- [TransferTalk | Sparta en Spijkenisse profiteren van miljoentransfer Mijnans, Buurmeester verlaat AZ voor Leganés](https://www.ad.nl/voetbal/transfertalk-sparta-en-spijkenisse-profiteren-van-miljoentransfer-mijnans-buurmeester-verlaat-az-voor-leganes~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Ruim honderd boze meldingen na afgelaste eindexamens tijdens hitte: ‘Leerlingen zitten er helemaal doorheen’](https://www.ad.nl/binnenland/ruim-honderd-boze-meldingen-na-afgelaste-eindexamens-tijdens-hitte-leerlingen-zitten-er-helemaal-doorheen~a0e912eb/)
+  > Ruim honderd leerlingen hebben zich gemeld bij de belangenvereniging voor scholieren in het voortgezet speciaal onderwijs (LBVSO) na het afgelasten...
+- [Ravage door ongeluk met brandweerwagen in Zeeland](https://www.ad.nl/binnenland/ravage-door-ongeluk-met-brandweerwagen-in-zeeland~adf01e0b/)
+  > Een bedrijfsbrandweerwagen van Dow Terneuzen is betrokken geraakt bij een eenzijdig ongeval op een oprit van de N62, bij Hoek. Het voertuig is in...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Kaasmaker Royal A-ware neemt Spaanse zuiveldistributeur over](https://fd.nl/bedrijfsleven/1602668/kaasmaker-royal-a-ware-neemt-spaanse-zuiveldistributeur-over)
-  > Het familiebedrijf is al jaren op overnamepad en de omzet groeit hard mee.
-- [Overstap van starters naar een bv zet door](https://fd.nl/bedrijfsleven/1602662/overstap-van-starters-naar-een-bv-zet-door)
-  > Reden zijn de afbouw van fiscale voordelen voor kleine ondernemers en de nieuwe box 3-wetgeving. De Wet DBA, die schijnzelfstandigheid onder zzp’ers...
-- [Een groter stukje taart voor de slinkende partnergroep bij NautaDutilh](https://fd.nl/financiele-markten/1602652/een-groter-stukje-taart-voor-de-slinkende-partnergroep-bij-nautadutilh)
-  > NautaDutilh gaat een hogere winst per partner uitkeren. Het kantoor moet misschien wel, in de VS is profit per equity partner dé graadmeter van het...
-- [Avantium splitst onderdeel af dat zich richt op hergebruik CO₂](https://fd.nl/bedrijfsleven/1602789/avantium-splitst-onderdeel-af-dat-zich-richt-op-hergebruik-co)
-  > Volta Technology gaat verder als Carbeau en krijgt direct een geldinjectie van externe investeerders.
-- [‘Workaholic’ Ollongren mag zich nu op internationaal niveau profileren](https://fd.nl/politiek/1602161/workaholic-ollongren-mag-zich-nu-op-internationaal-niveau-profileren)
-  > Voormalig vicepremier start op 1 september met nieuwe topbaan op de buitenlanddienst van de Europese Unie.
+- [Harde woorden bij rechtszaak overnameverbod Solvinity](https://fd.nl/tech-en-innovatie/1602674/harde-woorden-bij-rechtszaak-overnameverbod-solvinity)
+  > Solvinity en zijn aandeelhouder vroegen de rechter het overnameverbod te schorsen. Dataveiligheid bij DigiD en MijnOverheid speelde de hoofdrol bij...
+- [Goudprijs daalt na gestegen kans op renteverhoging](https://fd.nl/financiele-markten/1602877/goudprijs-daalt-na-gestegen-kans-op-renteverhoging)
+  > Handelaren kijken uit naar de notulen van de laatste vergadering van de Fed.
+- [Wibra ziet omzet en winst groeien in 2025](https://fd.nl/bedrijfsleven/1602675/wibra-ziet-omzet-en-winst-groeien-in-2025)
+  > De koopjesketen opende 63 nieuwe winkels en telde eind vorig jaar 360 vestigingen.
+- [Gemeenten die zich niet houden aan spreidingswet onder ‘actief toezicht’](https://fd.nl/politiek/1602673/gemeenten-die-zich-niet-houden-aan-spreidingswet-onder-actief-toezicht)
+  > Asielminister Bart van den Brink voert de druk op bij gemeenten die nog niet genoeg opvangplekken voor asielzoekers bieden.
+- [Marktmalaise of falende strategie? Wat er misging bij vastgoedbelegger NSI](https://fd.nl/bedrijfsleven/1602781/malaise-op-kantorenmarkt-of-falende-strategie-wat-er-speelt-bij-vastgoedbelegger-nsi)
+  > Vastgoedbelegger NSI kampt met tegenslag op de kantorenmarkt. In een jaar tijd verloor het 30% van zijn beurswaarde. Experts bestempelen het bedrijf...
 
 ### Meest gelezen
 
