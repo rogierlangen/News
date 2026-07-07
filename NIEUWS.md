@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-07-2026 om 00:12*
+*Laatst bijgewerkt: 07-07-2026 om 04:55*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Chinese sonde nadert planetoïde Kamo'oalewa tot op 20 kilometer](https://nos.nl/l/2621978)
-  > De Chinese ruimtesonde Tianwen-2 heeft na een vlucht van meer dan een jaar de planetoïde Kamo'oalewa bereikt. De sonde is de ruimterots tot op 20...
-- [Canada kiest Duits bedrijf voor de bouw van 12 onderzeeërs](https://nos.nl/l/2621975)
-  > Canada heeft een Duits bedrijf uitgekozen voor de bouw van twaalf onderzeeërs. Het gaat om ThyssenKrupp Marine Systems (TKMS), dat de voorkeur krijgt...
-- [CPB: erfenis mag volgens meerderheid zwaarder worden belast](https://nos.nl/l/2621972)
-  > Het staat bekend als de meest gehate belasting, de erfbelasting. Moet die blijven bestaan, en zo ja: in welke vorm? De meningen zijn verdeeld, blijkt...
-- [Drie decennia aan films over eilandleven op Schiermonnikoog gedigitaliseerd](https://nos.nl/l/2621964)
-  > AVRO-cameraman en filmmaker Dick Kool maakte na zijn pensioen decennialang beelden van het eilandleven op Schiermonnikoog. De enorme collectie is...
-- [Duitsland volgt nieuwe koers en zet in op defensie bij nieuwe begroting](https://nos.nl/l/2621962)
-  > De Duitse regering is van plan de defensie-uitgaven flink te verhogen. In de begroting voor 2027 wordt de kostenpost met een derde verhoogd, van 82,2...
+- [Franse rechter beslist over politieke toekomst Marine Le Pen, opvolger staat klaar](https://nos.nl/l/2621998)
+  > Wie wordt bij de presidentsverkiezingen volgend jaar het gezicht van het Rassemblement National? Krijgt Marine Le Pen, die vorig jaar een straf van...
+- [Wekdienst 7/7: NAVO-top in Turkije van start • Laatste achtste finales op WK](https://nos.nl/l/2621997)
+  > Goedemorgen! De NAVO-top gaat van start in de Turkse hoofdstad Ankara en op het WK voetbal worden de laatste achtste finales afgewerkt.
+        Eerst...
+- [Trump-fluisteraar Rutte moet 'binnen de paleismuren' zorgen voor rust tijdens NAVO-top](https://nos.nl/l/2621996)
+  > Wat is de overeenkomst tussen NAVO-topman Rutte en FIFA-baas Infantino? Allebei gaan ze tot het uiterste om Donald Trump te vriend te houden, en...
+- [Treinen rijden weer bij Rotterdam, spoor na ruim een week hersteld](https://nos.nl/l/2621992)
+  > Het treinverkeer tussen Rotterdam en het zuiden is vanochtend vroeg weer hervat. Door een brand op het spoor tussen Rotterdam en Zwijndrecht reden er...
+- [Fransman bekent na jarenlang zwijgen ineens dat hij zijn vrouw heeft gedood](https://nos.nl/l/2621989)
+  > Een Fransman die is veroordeeld voor de moord op zijn vrouw heeft vanuit de gevangenis bekend dat hij haar in 2020 heeft omgebracht. Hoewel er nooit...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [VS trapt af tegen België mét veelbesproken Balogun, Rode Duivels jagen op gerechtigheid](https://www.ad.nl/wk-voetbal/vs-trapt-af-tegen-belgie-met-veelbesproken-balogun-rode-duivels-jagen-op-gerechtigheid~ad7b3fb7/)
-  > De achtste finale tussen België en gastland Verenigde Staten staat bijna volledig in het thema van de beïnvloeding van Amerikaanse president Donald...
-- [Nieuwe uitbarsting Etna verstoort vliegverkeer in zuiden van Italië nog zeker tot dinsdagochtend](https://www.ad.nl/buitenland/nieuwe-uitbarsting-etna-verstoort-vliegverkeer-in-zuiden-van-italie-nog-zeker-tot-dinsdagochtend~a5a4ef7b/)
-  > Een nieuwe uitbarsting van de Etna-vulkaan heeft het vliegverkeer op het Italiaanse eiland Sicilië ernstig verstoord. Nog zeker tot dinsdagochtend om...
-- [Ajax-talent Sean Steur (18) voor megabedrag op weg naar Newcastle United](https://www.ad.nl/voetbal/ajax-talent-sean-steur-18-voor-megabedrag-op-weg-naar-newcastle-united~ad21af46/)
-  > Sean Steur staat voor een sensationele transfer. Ajax is met Newcastle United nagenoeg akkoord over de overstap van het 18-jarige toptalent. De club...
-- [Meerderheid Nederlanders wil best hogere erfbelasting bij grote erfenis](https://www.ad.nl/politiek/meerderheid-nederlanders-wil-best-hogere-erfbelasting-bij-grote-erfenis~a14fa70d/)
-  > Het is een heet politiek thema: hoeveel erfbelasting moet je betalen als je ouders of grootouders je geld nalaten? Uit een studie van het Centraal...
-- [Kassa voor AZ: slechts twee spelers maakten voor hoger bedrag binnenlandse eredivisietransfer](https://www.ad.nl/voetbal/kassa-voor-az-slechts-twee-spelers-maakten-voor-hoger-bedrag-binnenlandse-eredivisietransfer~a6a1b45d/)
-  > Het is een transfer die vorig jaar al in de maak was. Nu maakt Sven Mijnans voor 13 miljoen euro daadwerkelijk de overstap van AZ naar PSV. Daarmee...
+- [Amsterdam krijgt megadatacenter: slurper van stroom en drinkwater, maar wél met ruimte voor start-ups](https://www.ad.nl/binnenland/amsterdam-krijgt-megadatacenter-slurper-van-stroom-en-drinkwater-maar-wel-met-ruimte-voor-start-ups~a6577c65/)
+  > In Amsterdam-Zuidoost komt een datacenter dat – op termijn – het grootste van de stad kan worden. Zolang het elektriciteitsnet daar nog niet op...
+- [Twee mannen opgepakt voor opzettelijk brand stichten in Franse bossen](https://www.ad.nl/buitenland/twee-mannen-opgepakt-voor-opzettelijk-brand-stichten-in-franse-bossen~ae0e94f8/)
+  > De Franse politie heeft twee mannen opgepakt, die worden verdacht van brandstichting in het bos in het zuiden van het land. Dat meldt het partket van...
+- [Foute banden kunnen in dit land 1730 euro kosten: controles op vakantiebestemming strenger dan ooit](https://www.ad.nl/auto/foute-banden-kunnen-in-dit-land-1730-euro-kosten-controles-op-vakantiebestemming-strenger-dan-ooit~ad4427b5/)
+  > Rijd je deze zomer door Duitsland, Frankrijk, Spanje, Italië, Zwitserland of Oostenrijk? Kijk dan goed naar je snelheidsmeter, kofferbak of...
+- [Tour de France etappe 4 | Kansen voor aanvallers in heuvelrit naar Foix, wat kan Mathieu van der Poel?](https://www.ad.nl/tour-de-france/tour-de-france-etappe-4-kansen-voor-aanvallers-in-heuvelrit-naar-foix-wat-kan-mathieu-van-der-poel~a6b8ae19/)
+  > De renners in de Tour de France zijn, na drie dagen in Spanje, inmiddels in Frankrijk beland. De vierde etappe gaat van Carcassonne naar Foix. Een...
+- [Zuid-Koreaanse bankmanager rooft kluis leeg en ruilt biljetten om voor nepgeld met dierenplaatjes](https://www.ad.nl/buitenland/zuid-koreaanse-bankmanager-rooft-kluis-leeg-en-ruilt-biljetten-om-voor-nepgeld-met-dierenplaatjes~a18e6678/)
+  > En Zuid-Koreaanse bankmanager heeft op een wel heel bizarre en haast kinderlijke manier de kluis van zijn eigen filiaal leeggeroofd. De man stak voor...
 
 ### Meest gelezen
 
@@ -46,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Bol flirt met een rol als bank](https://fd.nl/economie/1602879/bol-flirt-meteen-rol-als-bank)
+  > Vandaag in Dagkoers: webwinkel Bol gaat ook betaaldiensten aanbieden, ETF’s met een hefboom zijn niet zonder risico & Delfts farmabedrijf waarschuwt...
 - [Op de top in Ankara houdt de Navo opnieuw haar hart vast voor Trump](https://fd.nl/politiek/1602775/op-de-top-in-ankara-houdt-de-navo-opnieuw-haar-hart-vast-voor-trump)
   > De Amerikaanse president is nog altijd zeer ontevreden over sommige bondgenoten. Een ruzietop dreigt in de Turkse hoofdstad.
 - [De donateur als dataset: hoe algoritmes het vertrouwen schaden](https://fd.nl/opinie/1602595/de-donateur-als-dataset-hoe-algoritmes-het-vertrouwen-schaden)
@@ -54,8 +57,6 @@
   > De ceo van ABN Amro ziet het zitten in de tak van de bank die beurshandel faciliteert. Behalve lof krijgt de clearingtak daarom nu ook extra...
 - [Rode kaart voor de Fifa](https://fd.nl/opinie/1602667/rode-kaart-voor-de-fifa)
   > Fifa-baas Gianno Infantino paait Trump door de Amerikaanse spits niet te schorsen.
-- [Trump in McCarthy-modus](https://fd.nl/opinie/1602655/trump-in-mccarthy-modus)
-  > Tweehonderdvijftig jaar na de Amerikaanse onafhankelijkheid klinkt in Washington opnieuw de retoriek van de Koude Oorlog. Donald Trump zet zijn...
 
 ### Meest gelezen
 
