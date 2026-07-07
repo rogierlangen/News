@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-07-2026 om 08:26*
+*Laatst bijgewerkt: 07-07-2026 om 11:54*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Man die Nationaal Monument op de Dam bekladde schuldig, maar krijgt geen straf](https://nos.nl/l/2622021)
-  > Een man die in augustus vorig jaar het Nationaal Monument op de Dam bekladde, heeft zich schuldig gemaakt aan beschadiging van het monument, oordeelt...
-- [Explosies in Syrische hoofdstad bij hotel van Franse president Macron](https://nos.nl/l/2622019)
-  > In de Syrische hoofdstad Damascus zijn meerdere explosies gehoord bij het hotel waar de Franse president Macron verblijft. Een ooggetuige zegt tegen...
-- [Noodweer in China eist levens, gebouwen ingestort](https://nos.nl/l/2622017)
-  > Meerdere regio's in China worden geteisterd door noodweer. In de centraal gelegen provincie Hubei zijn vooralsnog de meeste slachtoffers gevallen....
-- [Haagse cabaretier Harrie Jekkers krijgt beeld in Madurodam](https://nos.nl/l/2622014)
-  > De Haagse zanger, cabaretier en schrijver Harrie Jekkers krijgt een miniatuurstandbeeld in Madurodam. De 75-jarige Jekkers, onder meer bekend van de...
-- [Lauren Bennett (36), bekend van hit Party Rock Anthem uit 2011, overleden](https://nos.nl/l/2622013)
-  > De Britse zangeres Lauren Bennett, bekend van de hit Party Rock Anthem uit 2011, is overleden. Dat heeft haar voormalige muziekgroep G.R.L....
+- [Route Nijmeegse Vierdaagse aangepast, bewoners uit Beers teleurgesteld](https://nos.nl/l/2622047)
+  > Een deel van de bewoners van het Brabantse dorp Beers is teleurgesteld in het besluit van de organisatie van de Nijmeegse Vierdaagse om de...
+- [Levenslang cel voor gewelddadige overvallers die 'haast sadistisch' te werk gingen](https://nos.nl/l/2622041)
+  > Twee mannen die betrokken waren bij zeven gewelddadige overvallen hebben in hoger beroep een levenslange gevangenisstraf gekregen. Dat heeft het...
+- [Nederland kondigt nieuwe defensie-investeringen aan tijdens NAVO-top](https://nos.nl/l/2622039)
+  > Nederland heeft tijdens de NAVO-top in Ankara nieuwe defensie-investeringen samen met bondgenoten aangekondigd. Het gaat om amfibische...
+- [VVD dient voorstel in voor landelijk verbod op religieuze uitingen boa's](https://nos.nl/l/2622038)
+  > Regeringspartij VVD dient vandaag een initiatiefwetsvoorstel in om religieuze uitingen bij bijzondere opsporingsambtenaren (boa's), zoals...
+- [Middelbare school Hengelo: examenpilot kostte vijf leerlingen hun diploma](https://nos.nl/l/2622033)
+  > Vijf scholieren van het Montessori College Twente in Hengelo zijn volgens de middelbare school door een landelijke examenpilot van het ministerie van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Bosbrand op je vakantieadres: kun je kosteloos annuleren?](https://www.ad.nl/geld/bosbrand-op-je-vakantieadres-kun-je-kosteloos-annuleren~a15cf8a3/)
-  > Door de hoge temperaturen zijn in het zuiden van Europa bosbranden. In Zuid-Frankrijk zijn al duizenden mensen geëvacueerd. Kunnen jouw...
-- [Benzineprijs in Nederland stijgt opnieuw met 1 cent, tankbeurt over de grens kan twee tientjes besparen](https://www.ad.nl/economie/benzineprijs-in-nederland-stijgt-opnieuw-met-1-cent-tankbeurt-over-de-grens-kan-twee-tientjes-besparen~a769ef8a/)
-  > De benzineprijs aan de pomp is in Nederland dinsdag opnieuw licht gestegen, de ingezette daling na het voorlopige akkoord tussen de VS en Iran houdt...
-- [Fransen staan in de rij voor de Nederlandse kazen van Paula en Suus](https://www.ad.nl/buitenland/fransen-staan-in-de-rij-voor-de-nederlandse-kazen-van-paula-en-suus~a772c6b8/)
-  > In de Bourgogne hebben twee Nederlandse vrouwen al jaren succes met de verkoop van… Nederlandse kaas. En dat in Frankrijk: hét land van de kaas.
-- [Huwelijk van sterren Penelope Cruz en Javier Bardem lijkt onverwoestbaar](https://www.ad.nl/show/huwelijk-van-sterren-penelope-cruz-en-javier-bardem-lijkt-onverwoestbaar~a9f41997/)
-  > Met hun lange relatie en een huwelijk van meer dan 16 jaar behoren Penelope Cruz en Javier Bardem tot de trouwste koppels in de filmwereld. Een...
-- [Politieke bom in Frankrijk: rechter bepaalt of Marine Le Pen vijf jaar buitenspel staat](https://www.ad.nl/buitenland/politieke-bom-in-frankrijk-rechter-bepaalt-of-marine-le-pen-vijf-jaar-buitenspel-staat~a068dcf4/)
-  > De Franse rechter neemt dinsdag een politieke beslissing: mag de extreemrechtse Marine Le Pen meedoen aan de presidentsverkiezingen in 2027?
+- [Prinses Amalia is klaar met haar opdracht bij de luchtmacht, gaat nu naar de marine](https://www.ad.nl/show/prinses-amalia-is-klaar-met-haar-opdracht-bij-de-luchtmacht-gaat-nu-naar-de-marine~a4c68ff8/)
+  > Prinses Amalia heeft als militair werkstudent haar opdracht bij de Koninklijke Luchtmacht afgerond. Dat laat de Rijksvoorlichtingsdienst (RVD)...
+- [Oud-burgemeester Herman J. veroordeeld tot 12 maanden gevangenisstraf voor bezit kinderporno](https://www.ad.nl/hendrik-ido-ambacht/oud-burgemeester-herman-j-veroordeeld-tot-12-maanden-gevangenisstraf-voor-bezit-kinderporno~ab44ccec/)
+  > Voormalig burgemeester Herman J. van Hendrik-Ido-Ambacht is dinsdag door de rechtbank in Dordrecht veroordeeld tot twaalf maanden cel, waarvan vier...
+- [Kleine systeemcamera’s getest: mooie plaatjes, maar ook een hoog prijskaartje](https://www.ad.nl/tech/kleine-systeemcameras-getest-mooie-plaatjes-maar-ook-een-hoog-prijskaartje~ab722da5/)
+  > Wil je op vakantie niet zomaar wat foto’s met je smartphone maken, maar gebruik je liever een compacte camera? De Consumentenbond testte kleine...
+- [WK-arbiter die door Trump als ‘verdacht’ werd bestempeld, krijgt lof van scheidsrechtersbaas FIFA](https://www.ad.nl/wk-voetbal/wk-arbiter-die-door-trump-als-verdacht-werd-bestempeld-krijgt-lof-van-scheidsrechtersbaas-fifa~abd1ce1c/)
+  > De scheidsrechter die door de Amerikaanse president Donald Trump als ‘verdacht’ werd omschreven, heeft lof gekregen van Pierluigi Collina, voorzitter...
+- [Influencer rent bijna marathon tijdens code rood: hoogleraar waarschuwt voor risico’s](https://www.ad.nl/binnenland/influencer-rent-bijna-marathon-tijdens-code-rood-hoogleraar-waarschuwt-voor-risicos~a43723d8/)
+  > Terwijl de meeste mensen verkoeling zoeken tijdens een hittegolf, rende Jony Oosterbos ‘gewoon’ bijna een marathon tijdens code rood. De...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [De grote woorden van Lil’ Kleine](https://fd.nl/samenleving/1602782/de-grote-woorden-van-lil-kleine)
-  > Femmetje de Wind ziet bij een concert hoe hordes jongeren meezingen met vrouwonvriendelijke en geldbeluste teksten.
-- [Shell verdient flink aan handel in olie en gas, aandelenkoers omhoog](https://fd.nl/financiele-markten/1602821/shell-verdient-flink-aan-handel-in-olie-en-gas-aandelenkoers-omhoog)
-  > De winst uit de gashandel zal ‘aanzienlijk hoger’ uitpakken over het tweede kwartaal, meldt het bedrijf in een kwartaalupdate.
-- [Samsung boekt recordresultaat over tweede kwartaal van 2026](https://fd.nl/bedrijfsleven/1602909/samsung-boekt-recordwinst-over-tweede-kwartaal-van-2026)
-  > Samsung overtreft de verwachting van analisten, maar beleggers waren niet onder de indruk.
-- [Een voormalige melk­fabriek in Meeden](https://fd.nl/samenleving/1602783/een-voormalige-melkfabriek-in-meeden)
-  > Een karaktervol huis in Groningen, dat zeer geschikt is als kangoeroewoning of woon-werkverblijf.
-- [‘Equinix krijgt vergunning voor bouw groot datacenter in Amsterdam’](https://fd.nl/bedrijfsleven/1602820/equinix-krijgt-vergunning-voor-bouw-groot-datacenter-in-amsterdam)
-  > Datacenterbedrijf Equinix gaat een tiende datacenter bouwen in Amsterdam.
+- [Zakenbanken zijn enthousiast over SpaceX](https://fd.nl/financiele-markten/1602987/zakenbanken-zijn-enthousiast-over-spacex)
+  > Bijna een maand na de beursgang van SpaceX zijn grote zakenbanken begonnen met het volgen van het aandeel. Hun advies? Kopen! Door de toetreding van...
+- [Follow This zet rechtszaak tegen BP niet door](https://fd.nl/bedrijfsleven/1603185/follow-this-zet-rechtszaak-tegen-bp-niet-door)
+  > Het aandeelhouderscollectief is na een jaar weer in gesprek met de Britse oliemaatschappij.
+- [Het grensoverschrijdend recht wordt wereldwijd ingezet als Chinese troefkaart](https://fd.nl/opinie/1602784/de-juridische-lange-arm-van-china-is-een-geopolitieke-hefboom-van-formaat)
+  > Europa en China staan op de rand van een handelsoorlog en Brussel zoekt instrumenten om China tegemoet te treden. China loopt in het ontwikkelen van...
+- [Douane biedt ondernemers te weinig kans om hun recht te halen](https://fd.nl/bedrijfsleven/1603076/douane-biedt-ondernemers-te-weinig-kans-om-hun-recht-te-halen)
+  > De inspectie dringt er na onderzoek bij de Douane op aan geschillen op te lossen door ruimhartiger informatie te delen en vroegtijdig in gesprek te...
+- [Meer erfbelasting dankzij hausse op woningmarkt](https://fd.nl/economie/1603184/meer-erfbelasting-dankzij-hausse-op-woningmarkt)
+  > In de laatste tien jaar zijn de opbrengsten van de Nederlandse overheid uit erf- en schenkbelasting meer dan verdubbeld.
 
 ### Meest gelezen
 
