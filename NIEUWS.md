@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-07-2026 om 04:55*
+*Laatst bijgewerkt: 07-07-2026 om 08:26*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Franse rechter beslist over politieke toekomst Marine Le Pen, opvolger staat klaar](https://nos.nl/l/2621998)
-  > Wie wordt bij de presidentsverkiezingen volgend jaar het gezicht van het Rassemblement National? Krijgt Marine Le Pen, die vorig jaar een straf van...
-- [Wekdienst 7/7: NAVO-top in Turkije van start • Laatste achtste finales op WK](https://nos.nl/l/2621997)
-  > Goedemorgen! De NAVO-top gaat van start in de Turkse hoofdstad Ankara en op het WK voetbal worden de laatste achtste finales afgewerkt.
-        Eerst...
-- [Trump-fluisteraar Rutte moet 'binnen de paleismuren' zorgen voor rust tijdens NAVO-top](https://nos.nl/l/2621996)
-  > Wat is de overeenkomst tussen NAVO-topman Rutte en FIFA-baas Infantino? Allebei gaan ze tot het uiterste om Donald Trump te vriend te houden, en...
-- [Treinen rijden weer bij Rotterdam, spoor na ruim een week hersteld](https://nos.nl/l/2621992)
-  > Het treinverkeer tussen Rotterdam en het zuiden is vanochtend vroeg weer hervat. Door een brand op het spoor tussen Rotterdam en Zwijndrecht reden er...
-- [Fransman bekent na jarenlang zwijgen ineens dat hij zijn vrouw heeft gedood](https://nos.nl/l/2621989)
-  > Een Fransman die is veroordeeld voor de moord op zijn vrouw heeft vanuit de gevangenis bekend dat hij haar in 2020 heeft omgebracht. Hoewel er nooit...
+- [Man die Nationaal Monument op de Dam bekladde schuldig, maar krijgt geen straf](https://nos.nl/l/2622021)
+  > Een man die in augustus vorig jaar het Nationaal Monument op de Dam bekladde, heeft zich schuldig gemaakt aan beschadiging van het monument, oordeelt...
+- [Explosies in Syrische hoofdstad bij hotel van Franse president Macron](https://nos.nl/l/2622019)
+  > In de Syrische hoofdstad Damascus zijn meerdere explosies gehoord bij het hotel waar de Franse president Macron verblijft. Een ooggetuige zegt tegen...
+- [Noodweer in China eist levens, gebouwen ingestort](https://nos.nl/l/2622017)
+  > Meerdere regio's in China worden geteisterd door noodweer. In de centraal gelegen provincie Hubei zijn vooralsnog de meeste slachtoffers gevallen....
+- [Haagse cabaretier Harrie Jekkers krijgt beeld in Madurodam](https://nos.nl/l/2622014)
+  > De Haagse zanger, cabaretier en schrijver Harrie Jekkers krijgt een miniatuurstandbeeld in Madurodam. De 75-jarige Jekkers, onder meer bekend van de...
+- [Lauren Bennett (36), bekend van hit Party Rock Anthem uit 2011, overleden](https://nos.nl/l/2622013)
+  > De Britse zangeres Lauren Bennett, bekend van de hit Party Rock Anthem uit 2011, is overleden. Dat heeft haar voormalige muziekgroep G.R.L....
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Amsterdam krijgt megadatacenter: slurper van stroom en drinkwater, maar wél met ruimte voor start-ups](https://www.ad.nl/binnenland/amsterdam-krijgt-megadatacenter-slurper-van-stroom-en-drinkwater-maar-wel-met-ruimte-voor-start-ups~a6577c65/)
-  > In Amsterdam-Zuidoost komt een datacenter dat – op termijn – het grootste van de stad kan worden. Zolang het elektriciteitsnet daar nog niet op...
-- [Twee mannen opgepakt voor opzettelijk brand stichten in Franse bossen](https://www.ad.nl/buitenland/twee-mannen-opgepakt-voor-opzettelijk-brand-stichten-in-franse-bossen~ae0e94f8/)
-  > De Franse politie heeft twee mannen opgepakt, die worden verdacht van brandstichting in het bos in het zuiden van het land. Dat meldt het partket van...
-- [Foute banden kunnen in dit land 1730 euro kosten: controles op vakantiebestemming strenger dan ooit](https://www.ad.nl/auto/foute-banden-kunnen-in-dit-land-1730-euro-kosten-controles-op-vakantiebestemming-strenger-dan-ooit~ad4427b5/)
-  > Rijd je deze zomer door Duitsland, Frankrijk, Spanje, Italië, Zwitserland of Oostenrijk? Kijk dan goed naar je snelheidsmeter, kofferbak of...
-- [Tour de France etappe 4 | Kansen voor aanvallers in heuvelrit naar Foix, wat kan Mathieu van der Poel?](https://www.ad.nl/tour-de-france/tour-de-france-etappe-4-kansen-voor-aanvallers-in-heuvelrit-naar-foix-wat-kan-mathieu-van-der-poel~a6b8ae19/)
-  > De renners in de Tour de France zijn, na drie dagen in Spanje, inmiddels in Frankrijk beland. De vierde etappe gaat van Carcassonne naar Foix. Een...
-- [Zuid-Koreaanse bankmanager rooft kluis leeg en ruilt biljetten om voor nepgeld met dierenplaatjes](https://www.ad.nl/buitenland/zuid-koreaanse-bankmanager-rooft-kluis-leeg-en-ruilt-biljetten-om-voor-nepgeld-met-dierenplaatjes~a18e6678/)
-  > En Zuid-Koreaanse bankmanager heeft op een wel heel bizarre en haast kinderlijke manier de kluis van zijn eigen filiaal leeggeroofd. De man stak voor...
+- [Bosbrand op je vakantieadres: kun je kosteloos annuleren?](https://www.ad.nl/geld/bosbrand-op-je-vakantieadres-kun-je-kosteloos-annuleren~a15cf8a3/)
+  > Door de hoge temperaturen zijn in het zuiden van Europa bosbranden. In Zuid-Frankrijk zijn al duizenden mensen geëvacueerd. Kunnen jouw...
+- [Benzineprijs in Nederland stijgt opnieuw met 1 cent, tankbeurt over de grens kan twee tientjes besparen](https://www.ad.nl/economie/benzineprijs-in-nederland-stijgt-opnieuw-met-1-cent-tankbeurt-over-de-grens-kan-twee-tientjes-besparen~a769ef8a/)
+  > De benzineprijs aan de pomp is in Nederland dinsdag opnieuw licht gestegen, de ingezette daling na het voorlopige akkoord tussen de VS en Iran houdt...
+- [Fransen staan in de rij voor de Nederlandse kazen van Paula en Suus](https://www.ad.nl/buitenland/fransen-staan-in-de-rij-voor-de-nederlandse-kazen-van-paula-en-suus~a772c6b8/)
+  > In de Bourgogne hebben twee Nederlandse vrouwen al jaren succes met de verkoop van… Nederlandse kaas. En dat in Frankrijk: hét land van de kaas.
+- [Huwelijk van sterren Penelope Cruz en Javier Bardem lijkt onverwoestbaar](https://www.ad.nl/show/huwelijk-van-sterren-penelope-cruz-en-javier-bardem-lijkt-onverwoestbaar~a9f41997/)
+  > Met hun lange relatie en een huwelijk van meer dan 16 jaar behoren Penelope Cruz en Javier Bardem tot de trouwste koppels in de filmwereld. Een...
+- [Politieke bom in Frankrijk: rechter bepaalt of Marine Le Pen vijf jaar buitenspel staat](https://www.ad.nl/buitenland/politieke-bom-in-frankrijk-rechter-bepaalt-of-marine-le-pen-vijf-jaar-buitenspel-staat~a068dcf4/)
+  > De Franse rechter neemt dinsdag een politieke beslissing: mag de extreemrechtse Marine Le Pen meedoen aan de presidentsverkiezingen in 2027?
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Bol flirt met een rol als bank](https://fd.nl/economie/1602879/bol-flirt-meteen-rol-als-bank)
-  > Vandaag in Dagkoers: webwinkel Bol gaat ook betaaldiensten aanbieden, ETF’s met een hefboom zijn niet zonder risico & Delfts farmabedrijf waarschuwt...
-- [Op de top in Ankara houdt de Navo opnieuw haar hart vast voor Trump](https://fd.nl/politiek/1602775/op-de-top-in-ankara-houdt-de-navo-opnieuw-haar-hart-vast-voor-trump)
-  > De Amerikaanse president is nog altijd zeer ontevreden over sommige bondgenoten. Een ruzietop dreigt in de Turkse hoofdstad.
-- [De donateur als dataset: hoe algoritmes het vertrouwen schaden](https://fd.nl/opinie/1602595/de-donateur-als-dataset-hoe-algoritmes-het-vertrouwen-schaden)
-  > Goede doelen zetten steeds vaker AI in om donateurs te profileren. Als zij ook investeren in de bedrijven achter die technologie, komt het vertrouwen...
-- [Clearingtak van ABN Amro krijgt complimenten én miljarden voor verdere groei](https://fd.nl/bedrijfsleven/1602876/clearingtak-van-abn-amro-krijgt-complimenten-en-miljarden-voor-verdere-groei)
-  > De ceo van ABN Amro ziet het zitten in de tak van de bank die beurshandel faciliteert. Behalve lof krijgt de clearingtak daarom nu ook extra...
-- [Rode kaart voor de Fifa](https://fd.nl/opinie/1602667/rode-kaart-voor-de-fifa)
-  > Fifa-baas Gianno Infantino paait Trump door de Amerikaanse spits niet te schorsen.
+- [De grote woorden van Lil’ Kleine](https://fd.nl/samenleving/1602782/de-grote-woorden-van-lil-kleine)
+  > Femmetje de Wind ziet bij een concert hoe hordes jongeren meezingen met vrouwonvriendelijke en geldbeluste teksten.
+- [Shell verdient flink aan handel in olie en gas, aandelenkoers omhoog](https://fd.nl/financiele-markten/1602821/shell-verdient-flink-aan-handel-in-olie-en-gas-aandelenkoers-omhoog)
+  > De winst uit de gashandel zal ‘aanzienlijk hoger’ uitpakken over het tweede kwartaal, meldt het bedrijf in een kwartaalupdate.
+- [Samsung boekt recordresultaat over tweede kwartaal van 2026](https://fd.nl/bedrijfsleven/1602909/samsung-boekt-recordwinst-over-tweede-kwartaal-van-2026)
+  > Samsung overtreft de verwachting van analisten, maar beleggers waren niet onder de indruk.
+- [Een voormalige melk­fabriek in Meeden](https://fd.nl/samenleving/1602783/een-voormalige-melkfabriek-in-meeden)
+  > Een karaktervol huis in Groningen, dat zeer geschikt is als kangoeroewoning of woon-werkverblijf.
+- [‘Equinix krijgt vergunning voor bouw groot datacenter in Amsterdam’](https://fd.nl/bedrijfsleven/1602820/equinix-krijgt-vergunning-voor-bouw-groot-datacenter-in-amsterdam)
+  > Datacenterbedrijf Equinix gaat een tiende datacenter bouwen in Amsterdam.
 
 ### Meest gelezen
 
