@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-07-2026 om 12:22*
+*Laatst bijgewerkt: 08-07-2026 om 15:23*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Gemeente IJsselstein over noodopvang: had zorgvuldiger gemoeten](https://nos.nl/l/2622180)
-  > De gemeente IJsselstein had "zorgvuldiger te werk" moeten gaan rondom de komst van de noodopvang voor vluchtelingen in die gemeente. Dat schrijft...
-- [Australië maakt vaart met veiligheidsdeals voor tegenwicht tegen China](https://nos.nl/l/2622175)
-  > Australië is druk bezig nieuwe allianties te smeden in de Stille Oceaan. Verschillende deals over vergaande samenwerking op het gebied van veiligheid...
-- [OM start onderzoek naar plasticfabrikant Sabic: 'Vermoedelijk pfas geloosd'](https://nos.nl/l/2622174)
-  > Het Openbaar Ministerie (OM) start een strafrechtelijk onderzoek naar plasticfabrikant Sabic wegens het lozen van een schadelijke pfas-stof zonder...
-- [Vuilstort bij Indonesische hoofdstad Jakarta staat al ruim een week in brand](https://nos.nl/l/2622173)
-  > Een enorme afvalberg in Indonesië staat al ruim acht dagen in brand. Het gaat om een vuilstortplaats aan de rand van de hoofdstad Jakarta. De brand...
-- [Dodelijke flatbrand Antwerpen werd veroorzaakt door kortsluiting na lek](https://nos.nl/l/2622171)
-  > De dodelijke brand in een Antwerpse flat vorige week is veroorzaakt door een kapotte waterleiding die kortsluiting veroorzaakte. Dat meldt het...
+- [Wrakstukken vermist Pakistaans vrachtvliegtuig gevonden, bemanning spoorloos](https://nos.nl/l/2622218)
+  > Voor de kust van Pakistan zijn wrakstukken gevonden van het vrachtvliegtuig dat dinsdagavond van de radar verdween. De zoektocht naar de vijf...
+- [NVWA neemt honderdduizenden illegale vapes en zakjes snus in beslag](https://nos.nl/l/2622215)
+  > De Nederlandse Voedsel- en Warenautoriteit NVWA heeft vorige week ruim 277.000 illegale vapes in beslag genomen. Ook kwamen de politie en de douane...
+- [Trump belooft Zelensky licentie om zelf Patriot-raketten te maken](https://nos.nl/l/2622214)
+  > De Verenigde Staten gaan een licentie verlenen aan Oekraïne zodat het land zelf Patriot-onderscheppingsraketten kan maken. Dat heeft president Trump...
+- [Ondernemingsraad Tata bezorgd over toekomst vanwege vervolging: 'Verontrustend'](https://nos.nl/l/2622209)
+  > De ondernemingsraad van Tata Steel maakt zich zorgen over de toekomst van het bedrijf nu het Openbaar Ministerie bekend heeft gemaakt dat het de...
+- [Duitse palliatief arts veroordeeld tot levenslang voor vijftien moorden](https://nos.nl/l/2622206)
+  > Een Duitse palliatief arts is veroordeeld tot een levenslange gevangenisstraf voor vijftien moorden, melden Duitse media.
+        De rechtbank van...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Go Ahead haalt Noorse spits, mooie stap voor Sophie Proost (19), Sano van NEC naar Bundesliga?](https://www.ad.nl/voetbal/go-ahead-haalt-noorse-spits-mooie-stap-voor-sophie-proost-19-sano-van-nec-naar-bundesliga~ad10f02c/)
-  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
-- [WK Voetbal verandert ons in nachtbrakers: zelfs Canada-Qatar scoort bijna 250.000 kijkers](https://www.ad.nl/show/wk-voetbal-verandert-ons-in-nachtbrakers-zelfs-canada-qatar-scoort-bijna-250-000-kijkers~afe228ca/)
-  > Het WK Voetbal tart alle kijkcijferwetten, óók op de meest onchristelijke tijdstippen. Naast de massaal bekeken wedstrijden van Oranje blijken ook...
-- [Hoe Bol.com de Amazonstrategie kopieert en naast webshop ook een bank wordt](https://www.ad.nl/economie/hoe-bol-com-de-amazonstrategie-kopieert-en-naast-webshop-ook-een-bank-wordt~ad8a6a088/)
-  > We kennen ze van de pakketjes op de deurmat, maar achter de schermen bouwt Bol aan een veel groter imperium. De grootste onlinewinkel van Nederland...
-- [Het is echt niet gek om vaker tegen ouders te zeggen: jíj wilde kinderen, dus je betaalt ook maar lekker zelf](https://www.ad.nl/binnenland/het-is-echt-niet-gek-om-vaker-tegen-ouders-te-zeggen-jij-wilde-kinderen-dus-je-betaalt-ook-maar-lekker-zelf~ab9a86f2/)
-  > Angela de Jong ziet het elk jaar weer: er worden per kind stapels zogenaamde ‘gratis’ schoolboeken weggegooid. Het wordt tijd dat ouders ze weer zelf...
-- [Boeing 737 verdwijnt van radar boven Arabische Zee, autoriteiten vrezen het ergste](https://www.ad.nl/buitenland/boeing-737-verdwijnt-van-radar-boven-arabische-zee-autoriteiten-vrezen-het-ergste~ad3e58db/)
-  > Een Pakistaanse Boeing 737 met aan boord vijf bemanningsleden is vermist geraakt tijdens een vlucht van Sharjah in de Verenigde Arabische Emiraten...
+- [Laait de oorlog met Iran weer op? Trump zet de boel verder op scherp: ‘Hij krijgt het niet onder controle’](https://www.ad.nl/nieuws/laait-de-oorlog-met-iran-weer-op-trump-zet-de-boel-verder-op-scherp-hij-krijgt-het-niet-onder-controle~ae5b3b88/)
+  > Donald Trump dreigt Iran woensdag opnieuw keihard aan te vallen. Afgelopen nacht vielen de Amerikanen tachtig Iraanse doelen aan en woensdagochtend...
+- [AZ-talent stopt op 19-jarige leeftijd met profvoetbal: ‘Plezier verdween langzaam’](https://www.ad.nl/voetbal/az-talent-stopt-op-19-jarige-leeftijd-met-profvoetbal-plezier-verdween-langzaam~a4335e28/)
+  > Opmerkelijk nieuws uit Alkmaar: doelman Jur Schipper (19) stopt per direct met profvoetbal. De sluitpost van Jong AZ en voormalig jeugdinternational...
+- [Marieke (43) schreef elke dag een brief aan haar dochter toen ze borstkanker kreeg, nu is het een boek](https://www.ad.nl/nieuws/marieke-43-schreef-elke-dag-een-brief-aan-haar-dochter-toen-ze-borstkanker-kreeg-nu-is-het-een-boek~a7284e4d/)
+  > Het leven van de Waddinxveense Marieke van der Pijl (43) stond volledig op zijn kop toen ze vlak na de geboorte van haar dochtertje Mexx de diagnose...
+- [Je mobiele airco onderhouden is makkelijker dan je denkt: check wekelijks deze twee onderdelen](https://www.ad.nl/wonen/je-mobiele-airco-onderhouden-is-makkelijker-dan-je-denkt-check-wekelijks-deze-twee-onderdelen~a9f23e68/)
+  > Een mobiele airco is tijdens warme dagen een uitkomst, maar krijgt ook flink wat te verduren. Stof, vocht en vuil hopen zich ongemerkt op in het...
+- [Man (25) die onschuldige jongens zou hebben doodgeschoten in Amsterdam, had ‘bovenmatige interesse in wapens’](https://www.ad.nl/binnenland/man-25-die-onschuldige-jongens-zou-hebben-doodgeschoten-in-amsterdam-had-bovenmatige-interesse-in-wapens~adae96a7b/)
+  > In een telefoon van Efe Y. (25), die wordt verdacht van het doodschieten van twee Syrische jongens op 1 januari 2026 in Amsterdam-Osdorp, zijn 5354...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Geloof heeft ongeloof nodig](https://fd.nl/opinie/1603186/geloof-heeft-ongeloof-nodig)
-  > Leer dit van hemelbestormers en volksmenners: wie geloofd wil worden, moet de werkelijkheid zo ongelofelijk mogelijk voorstellen, stelt columnist...
-- [Rentes in de eurozone lopen op na oplaaien Iran-oorlog](https://fd.nl/financiele-markten/1603245/rentes-in-de-eurozone-lopen-op-na-oplaaien-iran-oorlog)
-  > Franse rente stijgt extra hard na de aankondiging van Le Pen.
-- [Justitie start onderzoek naar pfbs-lozingen door chemiebedrijf Sabic](https://fd.nl/samenleving/1603040/justitie-start-onderzoek-naar-pfbs-lozingen-door-chemiebedrijf-sabic)
-  > Sabic zou illegaal een pfas-variant hebben geloosd in de Westerschelde en bij de Theodorushaven.
-- [Navo-norm van 3,5% voor handvol lidstaten binnen handbereik](https://fd.nl/politiek/1603038/navo-norm-van-3-5-voor-handvol-lidstaten-binnen-handbereik)
-  > Vijf leden van het bondgenootschap zullen mogelijk nog dit jaar voldoen aan de afgesproken norm voor directe defensie-uitgaven. De VS zitten hier...
-- [Niet naar Mars, maar naar een betere wereld](https://fd.nl/opinie/1603202/niet-naar-mars-maar-naar-een-betere-wereld)
-  > Niet de vraag hoe hard een economie groeit is doorslaggevend, maar waar die groei terechtkomt. Europa blinkt misschien minder uit in miljardairs en...
+- [Apple sluit chipdeal ter waarde van $30 mrd met Broadcom](https://fd.nl/bedrijfsleven/1603281/apple-sluit-chipdeal-ter-waarde-van-30-mrd-met-broadcom)
+  > Apple en Broadcom komen een deal overeen.
+- [ECB-president Lagarde op weg richting de uitgang, opvolgers kunnen zich warmlopen](https://fd.nl/financiele-markten/1603237/ecb-president-lagarde-op-weg-richting-de-uitgang-opvolgers-kunnen-zich-warmlopen)
+  > Christine Lagarde heeft gezinspeeld op een vervroegd vertrek. Oud-DNB-president Klaas Knot geldt als een van de mogelijke opvolgers.
+- [‘Lobbybeest’ brengt olympisch schaatsen naar Heerenveen](https://fd.nl/politiek/1603034/lobbybeest-brengt-olympisch-schaatsen-naar-heerenveen)
+  > In de winter van 2030 brandt de olympische vlam niet alleen in Frankrijk, maar ook in Heerenveen. Met dank aan burgemeester Avine Fokkens-Kelder...
+- [Anko van der Werff nieuwe ceo Air Canada](https://fd.nl/bedrijfsleven/1603057/anko-van-der-werff-nieuwe-ceo-aircanada)
+  > Van der Werff heeft nu nog de leiding over het Scandinavische SAS, dat hard werd geraakt door de hogere kerosineprijzen.
+- [Een triple bogey voor Trump?](https://fd.nl/financiele-markten/1602908/een-triple-bogey-voor-trump)
+  > Het golfimperium van de Amerikaanse president breidt uit in het Midden-Oosten, maar het zakelijke verkeer en de toeristenstroom zijn ingestort sinds...
 
 ### Meest gelezen
 
