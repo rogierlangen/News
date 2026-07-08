@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-07-2026 om 15:23*
+*Laatst bijgewerkt: 08-07-2026 om 17:40*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Wrakstukken vermist Pakistaans vrachtvliegtuig gevonden, bemanning spoorloos](https://nos.nl/l/2622218)
-  > Voor de kust van Pakistan zijn wrakstukken gevonden van het vrachtvliegtuig dat dinsdagavond van de radar verdween. De zoektocht naar de vijf...
-- [NVWA neemt honderdduizenden illegale vapes en zakjes snus in beslag](https://nos.nl/l/2622215)
-  > De Nederlandse Voedsel- en Warenautoriteit NVWA heeft vorige week ruim 277.000 illegale vapes in beslag genomen. Ook kwamen de politie en de douane...
-- [Trump belooft Zelensky licentie om zelf Patriot-raketten te maken](https://nos.nl/l/2622214)
-  > De Verenigde Staten gaan een licentie verlenen aan Oekraïne zodat het land zelf Patriot-onderscheppingsraketten kan maken. Dat heeft president Trump...
-- [Ondernemingsraad Tata bezorgd over toekomst vanwege vervolging: 'Verontrustend'](https://nos.nl/l/2622209)
-  > De ondernemingsraad van Tata Steel maakt zich zorgen over de toekomst van het bedrijf nu het Openbaar Ministerie bekend heeft gemaakt dat het de...
-- [Duitse palliatief arts veroordeeld tot levenslang voor vijftien moorden](https://nos.nl/l/2622206)
-  > Een Duitse palliatief arts is veroordeeld tot een levenslange gevangenisstraf voor vijftien moorden, melden Duitse media.
-        De rechtbank van...
+- [Den Bosch neemt 'verschrikkelijk' besluit en schaft carnavalsdonderdag af](https://nos.nl/l/2622246)
+  > De gemeenteraad van Den Bosch heeft besloten dat carnavalsdonderdag voortaan niet meer wordt gevierd. De festiviteiten trokken te veel bezoekers, wat...
+- [Middeleeuws Tapijt van Bayeux 's nachts en onder strenge beveiliging naar Londen](https://nos.nl/l/2622245)
+  > In de nacht en onder politiebegeleiding wordt een dezer dagen het bijna duizend jaar oude Tapijt van Bayeux vanuit Frankrijk naar het British Museum...
+- [Politie ontvangt tientallen meldingen van oplichting bij verkoop crossmotoren](https://nos.nl/l/2622241)
+  > De politie heeft de afgelopen maanden bijna dertig meldingen ontvangen van oplichting rond de verkoop van crossmotoren. De manier van oplichting kwam...
+- [Plan voor verbetering van de jeugdbescherming nieuw leven ingeblazen](https://nos.nl/l/2622233)
+  > Er lijkt weer hoop te zijn voor het verbeteren van de jeugdbescherming. Vorig jaar waren verschillende organisaties uit het overleg met het kabinet...
+- [Kabinet: later meer duidelijk over steun voor Tata, 'geen onomkeerbare stappen'](https://nos.nl/l/2622231)
+  > Het kabinet zegt pas in september in te gaan op de mogelijke gevolgen voor de subsidie van twee miljard euro, nu Tata Steel strafrechtelijk wordt...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Laait de oorlog met Iran weer op? Trump zet de boel verder op scherp: ‘Hij krijgt het niet onder controle’](https://www.ad.nl/nieuws/laait-de-oorlog-met-iran-weer-op-trump-zet-de-boel-verder-op-scherp-hij-krijgt-het-niet-onder-controle~ae5b3b88/)
-  > Donald Trump dreigt Iran woensdag opnieuw keihard aan te vallen. Afgelopen nacht vielen de Amerikanen tachtig Iraanse doelen aan en woensdagochtend...
-- [AZ-talent stopt op 19-jarige leeftijd met profvoetbal: ‘Plezier verdween langzaam’](https://www.ad.nl/voetbal/az-talent-stopt-op-19-jarige-leeftijd-met-profvoetbal-plezier-verdween-langzaam~a4335e28/)
-  > Opmerkelijk nieuws uit Alkmaar: doelman Jur Schipper (19) stopt per direct met profvoetbal. De sluitpost van Jong AZ en voormalig jeugdinternational...
-- [Marieke (43) schreef elke dag een brief aan haar dochter toen ze borstkanker kreeg, nu is het een boek](https://www.ad.nl/nieuws/marieke-43-schreef-elke-dag-een-brief-aan-haar-dochter-toen-ze-borstkanker-kreeg-nu-is-het-een-boek~a7284e4d/)
-  > Het leven van de Waddinxveense Marieke van der Pijl (43) stond volledig op zijn kop toen ze vlak na de geboorte van haar dochtertje Mexx de diagnose...
-- [Je mobiele airco onderhouden is makkelijker dan je denkt: check wekelijks deze twee onderdelen](https://www.ad.nl/wonen/je-mobiele-airco-onderhouden-is-makkelijker-dan-je-denkt-check-wekelijks-deze-twee-onderdelen~a9f23e68/)
-  > Een mobiele airco is tijdens warme dagen een uitkomst, maar krijgt ook flink wat te verduren. Stof, vocht en vuil hopen zich ongemerkt op in het...
-- [Man (25) die onschuldige jongens zou hebben doodgeschoten in Amsterdam, had ‘bovenmatige interesse in wapens’](https://www.ad.nl/binnenland/man-25-die-onschuldige-jongens-zou-hebben-doodgeschoten-in-amsterdam-had-bovenmatige-interesse-in-wapens~adae96a7b/)
-  > In een telefoon van Efe Y. (25), die wordt verdacht van het doodschieten van twee Syrische jongens op 1 januari 2026 in Amsterdam-Osdorp, zijn 5354...
+- [Franse bondscoach Didier Deschamps weigert zich druk te maken over Argentijns ‘complot’](https://www.ad.nl/wk-voetbal/franse-bondscoach-didier-deschamps-weigert-zich-druk-te-maken-over-argentijns-complot~a9009504/)
+  > Aan de vooravond van de kwartfinale tussen Frankrijk en Marokko in Boston was Didier Deschamps als vanouds de rust zelve. Ook over een vermeend...
+- [Rutte krijgt lof na top die zomaar had kunnen ontsporen: ‘Hij is in staat de Navo bij elkaar te houden’](https://www.ad.nl/nieuws/rutte-krijgt-lof-na-top-die-zomaar-had-kunnen-ontsporen-hij-is-in-staat-de-navo-bij-elkaar-te-houden~aceaeb5d/)
+  > Door het ochtendhumeur van Donald Trump dreigde de Navo-top in Ankara even in het water te vallen, maar het werd toch ‘een feest van eendracht’. Dat...
+- [Legere schappen in Jumbo-supermarkten door probleem bij distributiecentrum](https://www.ad.nl/economie/legere-schappen-in-jumbo-supermarkten-door-probleem-bij-distributiecentrum~a0ed5977/)
+  > Jumbo ondervindt problemen met de levering van producten aan supermarkten vanuit een distributiecentrum in Veghel. Dit leidt ertoe dat sommige...
+- [Mag je autorijden met slaapapneu? Het antwoord is simpel](https://www.ad.nl/auto/mag-je-autorijden-met-slaapapneu-het-antwoord-is-simpel~a4b964d78/)
+  > Zo’n 600.000 Nederlanders lijden aan slaapapneu. Lezer Peter Snijders vraagt zich af of je daarmee wel achter het stuur mag. Onze auto-expert Niek...
+- [‘Mister FC Utrecht’ Leo van Veen op 80-jarige leeftijd overleden](https://www.ad.nl/voetbal/mister-fc-utrecht-leo-van-veen-op-80-jarige-leeftijd-overleden~ad8f48b9/)
+  > Op 80-jarige leeftijd is woensdagmiddag ‘Mister FC Utrecht’ Leo van Veen overleden. De Utrechter speelde in dertien seizoenen 391 officiële duels...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Apple sluit chipdeal ter waarde van $30 mrd met Broadcom](https://fd.nl/bedrijfsleven/1603281/apple-sluit-chipdeal-ter-waarde-van-30-mrd-met-broadcom)
-  > Apple en Broadcom komen een deal overeen.
-- [ECB-president Lagarde op weg richting de uitgang, opvolgers kunnen zich warmlopen](https://fd.nl/financiele-markten/1603237/ecb-president-lagarde-op-weg-richting-de-uitgang-opvolgers-kunnen-zich-warmlopen)
-  > Christine Lagarde heeft gezinspeeld op een vervroegd vertrek. Oud-DNB-president Klaas Knot geldt als een van de mogelijke opvolgers.
-- [‘Lobbybeest’ brengt olympisch schaatsen naar Heerenveen](https://fd.nl/politiek/1603034/lobbybeest-brengt-olympisch-schaatsen-naar-heerenveen)
-  > In de winter van 2030 brandt de olympische vlam niet alleen in Frankrijk, maar ook in Heerenveen. Met dank aan burgemeester Avine Fokkens-Kelder...
-- [Anko van der Werff nieuwe ceo Air Canada](https://fd.nl/bedrijfsleven/1603057/anko-van-der-werff-nieuwe-ceo-aircanada)
-  > Van der Werff heeft nu nog de leiding over het Scandinavische SAS, dat hard werd geraakt door de hogere kerosineprijzen.
-- [Een triple bogey voor Trump?](https://fd.nl/financiele-markten/1602908/een-triple-bogey-voor-trump)
-  > Het golfimperium van de Amerikaanse president breidt uit in het Midden-Oosten, maar het zakelijke verkeer en de toeristenstroom zijn ingestort sinds...
+- [SambaNova haalt $1 mrd op en krijgt JPMorgan als klant](https://fd.nl/bedrijfsleven/1603316/sambanova-haalt-1-mrd-op-en-krijgt-jpmorgan-als-klant)
+  > Intel en BlackRock behoren tot de investeerders van de chipstart-up die wil concurreren met Nvidia.
+- [Buitenlandse belasting op digitale diensten kost Nederlandse schatkist geld](https://fd.nl/politiek/1603056/buitenlandse-belasting-op-digitale-diensten-kost-nederlandse-schatkist-geld)
+  > Nederlandse bedrijven mogen in het buitenland betaalde heffing op digitale diensten aftrekken van hun belastbare winst. Nederland draait voor iets...
+- [Afrikaanse varkenspest duikt weer op in Duitsland](https://fd.nl/samenleving/1603414/afrikaanse-varkenspest-duikt-weer-op-in-duitsland)
+  > Autoriteiten vermoeden dat het virus is meegebracht door wilde zwijnen uit Polen.
+- [Rutte noemt Navo‑top wederom ‘geweldig’, ondanks Trumps sneren over Iran en Groenland](https://fd.nl/politiek/1603314/rutte-noemt-navotop-wederom-geweldig-ondanks-trumps-sneren-over-iran-en-groenland)
+  > De Navo-chef heeft naar eigen zeggen ‘in de recente geschiedenis’ nooit eerder zo veel ‘eenheid’ gezien in het bondgenootschap. Toch knetterde het de...
+- [Rusland legt export diesel stil na Oekraïense aanvallen](https://fd.nl/samenleving/1603411/rusland-legt-export-diesel-stil-na-oekraiense-aanvallen)
+  > Vicepremier Aleksandr Novak noemt de situatie op de brandstofmarkt ‘complex’ en zegt dat de schaarste voor groeiende onrust onder de bevolking zorgt.
 
 ### Meest gelezen
 
