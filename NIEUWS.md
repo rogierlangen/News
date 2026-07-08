@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-07-2026 om 04:16*
+*Laatst bijgewerkt: 08-07-2026 om 07:30*
 
 ---
 
@@ -8,16 +8,18 @@
 
 ### Laatste nieuws
 
-- ['AIVD en MIVD zagen Russische invasie van Oekraïne niet aankomen'](https://nos.nl/l/2622145)
-  > De Nederlandse inlichtingendiensten AIVD en MIVD bleven er tot het laatste moment van overtuigd dat Rusland Oekraïne waarschijnlijk niet zou...
-- [Rusland valt opnieuw Kyiv aan: twee gewonden en branden](https://nos.nl/l/2622144)
-  > Rusland heeft Kyiv opnieuw aangevallen. Er werden ballistische raketten afgevuurd op de Oekraïense hoofdstad. Zeker twee mensen raakten daarbij...
-- [Veel vuurwerk gevonden in kelderbox Eindhoven, flat ontruimd en straten dicht](https://nos.nl/l/2622141)
-  > In een kelderbox van een flat in Eindhoven is dinsdagavond een grote hoeveelheid vuurwerk gevonden. Uit voorzorg werd een deel van de flat ontruimd....
-- [VS voert luchtaanvallen uit als reactie op Iraanse aanvallen in Straat van Hormuz](https://nos.nl/l/2622139)
-  > De VS heeft luchtaanvallen uitgevoerd op Iran. Het Amerikaanse leger sprak ongeveer vijf uur geleden van "een reeks krachtige aanvallen". Na afloop...
-- [Italiaans dorp wil af van halfnaakte toeristen: boete tot 200 euro](https://nos.nl/l/2622137)
-  > Liefhebbers van zon, warmte en zo min mogelijk kleding kunnen het Italiaanse vissersdorp Varenna maar beter mijden. De autoriteiten van het plaatsje,...
+- [Woontoren in New York gestabiliseerd, deel omwonenden kan terug naar huis](https://nos.nl/l/2622156)
+  > De woontoren in New York die dreigde in te storten is gestabiliseerd. Dat melden de lokale autoriteiten.
+        Voor de veiligheid waren ook zeven...
+- [Britse partijen doen niet mee aan 'nepverkiezing' voor zetel Farage](https://nos.nl/l/2622155)
+  > De politieke concurrenten van Nigel Farage doen niet mee aan de verkiezingen voor zijn vrijgekomen Britse parlementszetel. Stuk voor stuk zeggen de...
+- [OM vervolgt Tata Steel strafrechtelijk voor opzettelijk vervuilen](https://nos.nl/l/2622154)
+  > Het Openbaar Ministerie (OM) gaat Tata Steel strafrechtelijk vervolgen. Volgens justitie stoot het bedrijf in IJmuiden opzettelijk stoffen uit die...
+- [Gaslekkage met brand in Gelderse Asperen, tientallen woningen ontruimd](https://nos.nl/l/2622152)
+  > In Asperen (Gelderland) woedde afgelopen nacht een buitenbrand door een gaslekkage. De vlammen sloegen enige tijd meters de lucht in.
+        De...
+- [Terugtrekking Afrikaanse landen zet Internationaal Strafhof verder onder druk](https://nos.nl/l/2622148)
+  > De voorgenomen terugtrekking van Niger, Mali en Burkina Faso uit het Internationaal Strafhof (ICC) leidt internationaal tot bezorgdheid. De drie...
 
 ### Meest gelezen
 
@@ -27,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [In deze vakantielanden is kans op een dodelijk verkeersongeval het grootst](https://www.ad.nl/auto/in-deze-vakantielanden-is-kans-op-een-dodelijk-verkeersongeval-het-grootst~ae1e6061/)
-  > Terwijl de meeste Europese landen hun wegen de afgelopen tien jaar veiliger zagen worden, ging Nederland juist de andere kant op. Nederland behoort...
-- [LIVE Midden-Oosten | VS voert ‘krachtige’ luchtaanvallen uit op Iran, luchtalarm in Koeweit en Bahrein](https://www.ad.nl/buitenland/live-midden-oosten-vs-voert-krachtige-luchtaanvallen-uit-op-iran-luchtalarm-in-koeweit-en-bahrein~ac528ac3/)
-  > Het Amerikaanse leger heeft een reeks ‘krachtige’ luchtaanvallen op Iran uitgevoerd, meldt het Amerikaanse centrale commando Centcom op X. Ook heeft...
-- [Twee jaar geleden kon Anita (52) nog niet goed lezen en schrijven, nu werkt ze op de intensive care](https://www.ad.nl/binnenland/twee-jaar-geleden-kon-anita-52-nog-niet-goed-lezen-en-schrijven-nu-werkt-ze-op-de-intensive-care~ab186420/)
-  > Anita Mertens werkte jarenlang bij de huishoudelijke dienst van het ziekenhuis, maar stiekem droomde ze van een ‘échte’ baan in de zorg. Hoewel ze...
-- [Eerste rustdag op het WK, zes van de acht overgebleven teams uit Europa](https://www.ad.nl/wk-voetbal/eerste-rustdag-op-het-wk-zes-van-de-acht-overgebleven-teams-uit-europa~af8e170d/)
-  > De achtste finales van het WK zijn gespeeld. Argentinië en Zwitserland waren de laatste landen die zich plaatsten voor de kwartfinales, die...
-- [Ryanair-vlucht kan niet vertrekken vanwege muggeninvasie in de cabine](https://www.ad.nl/buitenland/ryanair-vlucht-kan-niet-vertrekken-vanwege-muggeninvasie-in-de-cabine~a37172d5/)
-  > Flinke pech voor vakantiegangers die vorige week met een Ryanair-vlucht van Milaan naar Alicante wilden reizen: het vertrek moest drie uur uitgesteld...
+- [De leefbaarste stad ter wereld: dit Europese paradijs krijgt bijna overal een perfecte score](https://www.ad.nl/buitenland/de-leefbaarste-stad-ter-wereld-dit-europese-paradijs-krijgt-bijna-overal-een-perfecte-score~a436821b/)
+  > Wat zijn nou de meest en minst leefbare steden ter wereld? Jaarlijks komt het Britse The Economist met de Global Liveability Index die dat op een...
+- [TransferTalk | Arsenal versterkt zich met Franse keeper, voormalig Feyenoord-spits naar Ligue 2](https://www.ad.nl/voetbal/transfertalk-arsenal-versterkt-zich-met-franse-keeper-voormalig-feyenoord-spits-naar-ligue-2~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Column Sjoerd Mossou | Voor onze ogen voltrok zich één van de spectaculairste comebacks uit de WK-historie, maar ik was de enige die keek](https://www.ad.nl/wk-voetbal/column-sjoerd-mossou-voor-onze-ogen-voltrok-zich-een-van-de-spectaculairste-comebacks-uit-de-wk-historie-maar-ik-was-de-enige-die-keek~a79a5164/)
+  > Het volgen van een WK voetbal is ter plaatse een intense, maar ook eenzame bezigheid, schrijft columnist Sjoerd Mossou vanuit Boston. „Het ene moment...
+- [Braziliaanse legende bezoekt Ajax, zeges Sparta en ADO, Mijnans traint mee bij PSV](https://www.ad.nl/voetbal/braziliaanse-legende-bezoekt-ajax-zeges-sparta-en-ado-mijnans-traint-mee-bij-psv~ab5071ea/)
+  > De eredivisieclubs zijn begonnen aan de voorbereiding op het nieuwe seizoen. In dit artikel lees je het programma en alle uitslagen per club. Onder...
+- [Zelensky: Poetin kan in 2027 Navo-land gaan aanvallen, westerse partners al gewaarschuwd](https://www.ad.nl/buitenland/zelensky-poetin-kan-in-2027-navo-land-gaan-aanvallen-westerse-partners-al-gewaarschuwd~adfb97be/)
+  > Volgens de Oekraïense president Volodymyr Zelensky kan Rusland de oorlog gaan uitbreiden tot buiten Oekraïne als het succesvol blijft op het...
 
 ### Meest gelezen
 
@@ -46,16 +48,16 @@
 
 ### Laatste nieuws
 
-- [Stater-ceo Erwin Dreuning: ‘Verruimen bonusregels voor banken en fintechs is niet nodig’](https://fd.nl/bedrijfsleven/1586022/stater-ceo-erwin-dreuning-verruimen-bonusregels-voor-banken-en-fintechs-is-niet-nodig)
-  > Fintech Stater doet de administratie van tal van hypotheekverstrekkers. Ceo Erwin Dreuning is zoon van een verwarmingsmonteur. Dat heeft zijn sporen...
-- [Drama op het stroomnet, hoe komt dat toch?](https://fd.nl/economie/1603005/drama-op-het-stroomnet-hoe-komt-dat-toch)
-  > Vandaag in Dagkoers: alles over de rechterlijke uitspraak van Marine Le Pen, waarom de uitbreiding van ons stroomnet tergend langzaam gaat en kan...
-- [Buitenkans voor de erfbelasting](https://fd.nl/opinie/1603203/buitenkans-voor-de-erfbelasting)
-  > Omdat erfbelasting nauwelijks te ontwijken is, wordt er flink gelobbyd om deze af te schaffen
-- [Tetrissen in je kofferbak](https://fd.nl/opinie/1603176/tetrissen-in-je-kofferbak)
-  > Een overvolle auto op weg naar Frankrijk was vroeger geen logistiek probleem, maar een hersenkraker. Over Tetris, ruimtelijk inzicht en de kunst om...
-- [Waarom corporaties óók voor bouw middenhuur goedkoper mogen lenen](https://fd.nl/politiek/1602978/waarom-corporaties-ook-voor-bouw-middenhuur-goedkoper-mogen-lenen)
-  > Voor de bouw van sociale huurwoningen kunnen corporaties al goedkoper lenen. Als het aan het kabinet ligt kan dat straks ook voor middenhuur....
+- [De uitglijders van robotgewauwel](https://fd.nl/samenleving/1602660/de-uitglijders-van-robotgewauwel)
+  > Online-intro: Frida Boeke ontmaskert robotgewauwel als zich voortdurend herhalend uitglijmiddel, want: het is overduidelijk als mensen met...
+- [Openbaar Ministerie vervolgt Tata Steel](https://fd.nl/bedrijfsleven/1603028/openbaar-ministerie-vervolgt-tata-steel)
+  > De Nederlandse staalfabriek wordt door het Openbaar Ministerie verdacht van opzettelijke vervuiling en het schenden van zijn zorgplicht.
+- [Live: Olieprijs in de lift, AEX opent vrijwel vlak](https://fd.nl/financiele-markten/1603027/live-aziatische-aandelen-gemengd-zuid-korea-krijgt-opnieuw-klappen)
+  > Chipaandelen zaten dinsdag in de hoek waar de klappen vielen, herwinnen beleggers vandaag het vertrouwen?
+- [VS vallen Iran aan en blokkeren olieverkopen door Teheran](https://fd.nl/economie/1603026/vs-vallen-iran-aan-en-blokkeren-olieverkopen-door-teheran)
+  > De Verenigde Staten bombardeerden meer dan tachtig locaties nadat Iran schepen in de Straat van Hormuz had aangevallen. De situatie in Iran staat...
+- [‘Terwijl ik tv-keek, bereidde zij haar dood voor’](https://fd.nl/samenleving/1602785/terwijl-ik-tv-keek-bereidde-zij-haar-dood-voor)
+  > Je partner verliezen door suïcide is een last die je lang meedraagt. Yoeri van Haaften had nauwelijks een idee van haar hevige depressies. ‘Ik zag...
 
 ### Meest gelezen
 
