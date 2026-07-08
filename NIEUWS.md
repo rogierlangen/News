@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-07-2026 om 19:38*
+*Laatst bijgewerkt: 08-07-2026 om 21:11*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Burgemeester Roosendaal is weer thuis na ernstig fietsongeval](https://nos.nl/l/2622257)
-  > Marc Buijs, burgemeester van Roosendaal, is weer thuis na zijn fietsongeluk in april. Dat laat de gemeente weten. Hoelang het duurt voordat de...
-- [Meerdere doden in Gaza en Libanon na nieuwe Israëlische luchtaanvallen](https://nos.nl/l/2622255)
-  > Bij Israëlische luchtaanvallen in Gaza zijn negen Palestijnen gedood, onder wie twee kinderen van 10 en 6 jaar. Dat melden de Palestijnse...
-- [Den Bosch neemt 'verschrikkelijk' besluit en schaft carnavalsdonderdag af](https://nos.nl/l/2622246)
-  > De gemeenteraad van Den Bosch heeft besloten dat carnavalsdonderdag voortaan niet meer wordt gevierd. De festiviteiten trokken te veel bezoekers, wat...
-- [Middeleeuws Tapijt van Bayeux 's nachts en onder strenge beveiliging naar Londen](https://nos.nl/l/2622245)
-  > In de nacht en onder politiebegeleiding wordt een dezer dagen het bijna duizend jaar oude Tapijt van Bayeux vanuit Frankrijk naar het British Museum...
-- [Politie ontvangt tientallen meldingen van oplichting bij verkoop crossmotoren](https://nos.nl/l/2622241)
-  > De politie heeft de afgelopen maanden bijna dertig meldingen ontvangen van oplichting rond de verkoop van crossmotoren. De manier van oplichting kwam...
+- [School moet jongen die racistisch filmpje van docente maakte meteen weer toelaten](https://nos.nl/l/2622265)
+  > Een gymnasium in Den Bosch had een 13-jarige leerling niet weg mogen sturen voor het maken van filmpjes waarop een docente op een zeer racistische en...
+- [VS voert luchtaanvallen uit op Iran, na nieuwe dreigementen Trump](https://nos.nl/l/2622264)
+  > Het Amerikaanse leger voert opnieuw aanvallen uit op Iran. Dat meldt het leger zelf. Een Iraans staatsnieuwsmedium meldt explosies bij de Iraanse...
+- [700 jaar verborgen Arthur-manuscript levert ruim 2,5 miljoen euro op](https://nos.nl/l/2622263)
+  > Een middeleeuws manuscript met verhalen over koning Arthur, Merlijn en de Ridders van de Ronde Tafel heeft bij veilinghuis Christie's in Londen 2,24...
+- [Dramaserie The Pitt en comedy Hacks krijgen de meeste Emmy-nominaties](https://nos.nl/l/2622262)
+  > Dramaserie The Pitt heeft dit jaar de meeste Emmy Award-nominaties gekregen. De ziekenhuissoap werd maar liefst 25 keer genomineerd. Ook comedyserie...
+- [Politie houdt verdachte aan voor drugssmokkel via een partij bananen](https://nos.nl/l/2622260)
+  > De politie heeft een 39-jarige inwoner van Dordrecht aangehouden op het industrieterrein in Moerdijk. Deze wordt verdacht van betrokkenheid bij de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Onnozele president dacht dat tirannieke baardmannen te imponeren zijn](https://www.ad.nl/binnenland/onnozele-president-dacht-dat-tirannieke-baardmannen-te-imponeren-zijn~a56cc2cb/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Een affaire met een vrouw raakte de getrouwde Lin (44) onverwacht diep, nu heeft ze een open huwelijk](https://www.ad.nl/binnenland/een-affaire-met-een-vrouw-raakte-de-getrouwde-lin-44-onverwacht-diep-nu-heeft-ze-een-open-huwelijk~a960a280/)
-  > Lin Le Roux (44), moeder van drie, stond midden in Tivoli ineens te zoenen met een vrouw. Het avontuur bracht haar huwelijk en haar ideeën over...
-- [Kort in de bolletjestrui, nu uit de Tour: Alex Molenaar loopt handbreuk op na harde val](https://www.ad.nl/tour-de-france/kort-in-de-bolletjestrui-nu-uit-de-tour-alex-molenaar-loopt-handbreuk-op-na-harde-val~a0cfe329/)
-  > Alex Molenaar zal donderdag niet meer opstappen voor de zesde etappe van de Tour de France. Dat meldt zijn Spaanse ploeg Caja Rural. De 26-jarige...
-- [Vrouw (87) met hartfalen stort in na uur in snikheet vliegtuig zonder water en airco: ‘Had fataal kunnen zijn’](https://www.ad.nl/buitenland/vrouw-87-met-hartfalen-stort-in-na-uur-in-snikheet-vliegtuig-zonder-water-en-airco-had-fataal-kunnen-zijn~a022cfaff/)
-  > Tijdens een hittegolf een uur lang in een stilstaand vliegtuig zitten, zonder water en met een niet-werkende airco. Het overkwam mevrouw...
-- [Het aanleggen van een pindakaasvloer is geen simpele klus, weten deze mannen: ‘Het floept niet zomaar uit de pot’](https://www.ad.nl/binnenland/het-aanleggen-van-een-pindakaasvloer-is-geen-simpele-klus-weten-deze-mannen-het-floept-niet-zomaar-uit-de-pot~afcd14f4/)
-  > Ze worden de ‘pindakaasstukadoors’ genoemd en hebben bijna 400 kilo pindakaas gladgestreken als eerbetoon aan de onlangs overleden kunstenaar Wim T....
+- [Stiefvader zet alles op alles voor gehandicapte dochter maar raakt na zwakke ontslagbrief baan kwijt](https://www.ad.nl/binnenland/stiefvader-zet-alles-op-alles-voor-gehandicapte-dochter-maar-raakt-na-zwakke-ontslagbrief-baan-kwijt~a4abe6ad/)
+  > Een Limburgs bouwbedrijf moet een voormalig werknemer ruim 29.000 euro betalen na een onterecht ontslag op staande voet. De ontslagbrief blonk...
+- [Lille bevestigt recordtransfer NEC-aanvaller Önal, Tadic op zoek naar nieuwe club](https://www.ad.nl/voetbal/lille-bevestigt-recordtransfer-nec-aanvaller-onal-tadic-op-zoek-naar-nieuwe-club~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Mexico presenteert nieuwe bondscoach na uitschakeling, ook optreden Justin Bieber tijdens halftimeshow](https://www.ad.nl/wk-voetbal/mexico-presenteert-nieuwe-bondscoach-na-uitschakeling-ook-optreden-justin-bieber-tijdens-halftimeshow~a2d5cab9/)
+  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
+- [Podcast In Het Wiel | ‘Als je dit doet in je eerste Tour, ben je wel een baas’](https://www.ad.nl/tour-de-france/podcast-in-het-wiel-als-je-dit-doet-in-je-eerste-tour-ben-je-wel-een-baas~a5ea502e/)
+  > Meteen winnen bij je allereerste sprintkans tijdens je debuut in de Tour de France: Olav Kooij deed het. De Nederlander van Decathlon liet in Pau...
+- [LIVE Midden-Oosten | Leger VS valt Iran opnieuw aan, explosies in haven Bandar Abbas](https://www.ad.nl/buitenland/live-midden-oosten-leger-vs-valt-iran-opnieuw-aan-explosies-in-haven-bandar-abbas~ac528ac3/)
+  > Het Amerikaanse leger heeft naar eigen zeggen nieuwe aanvallen uitgevoerd op Iran om de dreiging van dat land tegen de scheepvaart in de Straat van...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Amerikaanse beursdag weer in het teken van Iran](https://fd.nl/financiele-markten/1603369/amerikaanse-beursdag-weer-een-donald-trump-show)
+  > Aandelenkoersen daalden en de olieprijs steeg nadat de Amerikaanse president op de Navo-top had gezegd dat het staakt-het-vuren met Iran voorbij is.
 - [Eerste Fed-notulen onder Warsh wijzen opnieuw op inflatiezorgen](https://fd.nl/financiele-markten/1603323/eerste-fed-notulen-onder-warsh-wijzen-opnieuw-op-inflatiezorgen)
   > Verslag van eerste rentevergadering onder nieuwe Fed-voorzitter kent geen grote verrassingen. Wel blijkt dat de meeste beleidsmakers een...
 - [Trump moet van rechter alsnog $5,8 mln aan schrijfster betalen](https://fd.nl/samenleving/1603322/trump-moet-van-rechter-alsnog-5-8-mln-aan-schrijfster-betalen)
   > Zijn advocaten probeerden de uitbetaling tegen te houden omdat het hem ‘onherstelbare schade’ zou berokkenen.
-- [Goed dat onderzoekers zijn gehaald, nu moet Den Haag rug recht houden](https://fd.nl/opinie/1603055/goed-dat-onderzoekers-zijn-gehaald-nu-moet-den-haag-rug-recht-houden)
+- [Goed dat onderzoekers binnen zijn gehaald, nu moet Den Haag rug recht houden](https://fd.nl/opinie/1603055/goed-dat-onderzoekers-zijn-gehaald-nu-moet-den-haag-rug-recht-houden)
   > Onder het vorige kabinet werd er nog fors bezuinigd op het onderwijs. Het is zaak dat dat niet weer gebeurt.
 - [Ook Toyota verplaatst productie vanuit Mexico naar de VS](https://fd.nl/bedrijfsleven/1603282/ook-toyota-verplaatst-productie-vanuit-mexico-naar-de-vs)
   > Autofabrikanten vrezen dat de Amerikaanse importheffingen op in Mexico gebouwde auto's voorlopig hoog blijven.
-- [SambaNova haalt $1 mrd op en krijgt JPMorgan als klant](https://fd.nl/bedrijfsleven/1603316/sambanova-haalt-1-mrd-op-en-krijgt-jpmorgan-als-klant)
-  > Intel en BlackRock behoren tot de investeerders van de chipstart-up die wil concurreren met Nvidia.
 
 ### Meest gelezen
 
