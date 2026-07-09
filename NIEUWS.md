@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-07-2026 om 07:39*
+*Laatst bijgewerkt: 09-07-2026 om 11:06*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [ABN Amro krijgt opnieuw miljoenenboete voor gebrekkige witwascontroles](https://nos.nl/l/2622295)
-  > Opnieuw krijgt ABN Amro een boete voor gebrekkige controles bij witwassen. De bank heeft niet genoeg gedaan om verdachte transacties tegen te houden....
-- [Italiaanse boer die landarbeider liet doodbloeden krijgt 16 jaar cel](https://nos.nl/l/2622292)
-  > Een fruitteler in Italië is veroordeeld tot een gevangenisstraf van 16 jaar omdat hij een van zijn medewerkers heeft laten doodbloeden na een ernstig...
-- [Renners zuchten onder hete eerste Tourweek: 'Het is niet gezond, totaal niet'](https://nos.nl/l/2622289)
-  > Warme dagen horen bij de Tour de France maar deze week is het wel uitzonderlijk heet. Toen de renners dinsdag van Carcassonne naar Foix reden, ging...
-- [Bellende Odido-hacker vermoedelijk Nederlander, politie dreigt stem openbaar te maken](https://nos.nl/l/2622288)
-  > De politie gaat ervan uit dat Nederlandse criminelen betrokken waren bij de hack van telecomprovider Odido eerder dit jaar. Dat "sterke vermoeden" is...
-- [FC Groningen meldt oplichting rond transfers, 'speler stond al op Schiphol'](https://nos.nl/l/2622287)
-  > FC Groningen en technisch directeur Mo Allach hebben aangifte gedaan vanwege pogingen tot oplichting rond transferdeals. De oplichting is volgens de...
+- [Duitsland koopt Tomahawk-raketten van VS](https://nos.nl/l/2622323)
+  > Duitsland heeft met de Verenigde Staten een overeenkomst gesloten over de aankoop van Tomahawk-raketten. De Amerikaanse kruisraketten zullen worden...
+- [Samen voetbal kijken in Gaza 'herinnert mensen eraan dat vreugde mogelijk is'](https://nos.nl/l/2622317)
+  > De beelden van Palestijnen in Gaza die naar het WK voetbal kijken, gaan al wekenlang de wereld over. De wedstrijden zorgen ervoor dat inwoners even...
+- [Heel woonblok in Huizen wordt gesloopt na explosie met dodelijke afloop](https://nos.nl/l/2622313)
+  > Acht woningen in Huizen moeten worden gesloopt vanwege de schade na een fatale explosie vorige week. Dat bevestigt de woningcorporatie aan de...
+- [Heetste juni ooit gemeten in West-Europa: 'Hitte blijft maar opbouwen'](https://nos.nl/l/2622312)
+  > Afgelopen maand was in West-Europa de heetste juni ooit gemeten. Dat valt op te maken uit de nieuwste temperatuurgegevens van het Europese...
+- [Nabestaanden van man die werd gedood door ICE eisen onafhankelijk onderzoek](https://nos.nl/l/2622308)
+  > De familie van de 52-jarige Lorenzo Salgado Araujo eist een onafhankelijk onderzoek naar zijn dood. Salgado werd dinsdagochtend doodgeschoten door de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Efteling krijgt hangende achtbaan met razendsnelle raketstart, met 50 miljoen duurste attractie tot nu toe](https://www.ad.nl/binnenland/efteling-krijgt-hangende-achtbaan-met-razendsnelle-raketstart-met-50-miljoen-duurste-attractie-tot-nu-toe~a42d3076/)
-  > In de Efteling komt een nieuwe attractie: Missie Luminar. Het wordt de eerste ‘suspended launch coaster’ van het attractiepark: een achtbaan waarbij...
-- [Israëlische soldaat deelt foto van Palestijnse gevangene vastgebonden aan metalen staaf: ‘Een oorlogsmisdaad’](https://www.ad.nl/buitenland/israelische-soldaat-deelt-foto-van-palestijnse-gevangene-vastgebonden-aan-metalen-staaf-een-oorlogsmisdaad~a47c7616/)
-  > Een foto van een geblinddoekte, halfnaakte en aan een staaf vastgebonden Palestijnse man in Gaza zorgt wereldwijd voor grote ophef. Het beeld werd...
-- [Man aangehouden na cokevondst tussen bananen in Lidl, mogelijk ‘hulp van binnenuit’](https://www.ad.nl/binnenland/man-aangehouden-na-cokevondst-tussen-bananen-in-lidl-mogelijk-hulp-van-binnenuit~a90e1e82/)
-  > Een 39-jarige man uit Dordrecht is woensdag aangehouden op een industrieterrein in Moerdijk op verdenking van betrokkenheid bij de invoer van...
-- [Column Sjoerd Mossou | Alexi Lalas keek nog wat stompzinniger uit zijn ogen dan hij normaal al doet](https://www.ad.nl/voetbal/column-sjoerd-mossou-alexi-lalas-keek-nog-wat-stompzinniger-uit-zijn-ogen-dan-hij-normaal-al-doet~a1c22c7af/)
-  > ‘Soccer’ is in de Verenigde Staten populairder dan ooit, zo blijkt tijdens dit WK, maar toch zal het volgens Sjoerd Mossou nooit wat worden met Team...
-- [Parijs ligt te bakken, dus rennen de Fransen massaal naar dit koele kustplaatsje in Normandië](https://www.ad.nl/buitenland/parijs-ligt-te-bakken-dus-rennen-de-fransen-massaal-naar-dit-koele-kustplaatsje-in-normandie~ad209b454/)
-  > Het was altijd de Méditerrannée, zo blauw zo blauw. Maar dit jaar zoeken de Fransen vanwege de hitte een heel andere kust op. Vooral dit ene plaatsje...
+- [20 jaar na de iconische kopstoot van Zinédine Zidane: hoe een opmerking over zijn zus het einde van zijn carrière betekende](https://www.ad.nl/wk-voetbal/20-jaar-na-de-iconische-kopstoot-van-zinedine-zidane-hoe-een-opmerking-over-zijn-zus-het-einde-van-zijn-carriere-betekende~afbeab2e/)
+  > Het is een van de meest memorabele WK-momenten ooit: de kopstoot van Zinédine Zidane in de WK-finale van 2006, donderdag exact twintig jaar geleden....
+- [Medewerker trekt vrouw auto in en ontploft volledig, bedrijf overvallen door ‘schokkende’ video](https://www.ad.nl/binnenland/medewerker-trekt-vrouw-auto-in-en-ontploft-volledig-bedrijf-overvallen-door-schokkende-video~a850eb5bd/)
+  > Een Nederlands uitzendbureau is in grote verlegenheid gebracht door een opgedoken video waarop een vrouw zwaar wordt mishandeld in een van hun...
+- [LIVE Oorlog Oekraïne | Oekraïense drones raken 12 Russische tankers in de Zee van Azov](https://www.ad.nl/buitenland/live-oorlog-oekraine-oekraiense-drones-raken-12-russische-tankers-in-de-zee-van-azov~adfb97be/)
+  > In de Zee van Azov, de zee die tussen Oekraïne en Rusland ligt, hebben Oekraïense drones in de nacht van woensdag op donderdag twaalf Russische...
+- [Van armoede naar wereldtop: hoe schaarste Oost-Europese tennissters harder en beter maakte](https://www.ad.nl/tennis/van-armoede-naar-wereldtop-hoe-schaarste-oost-europese-tennissters-harder-en-beter-maakte~a27506ff/)
+  > De cijfers spreken boekdelen. Kijk naar de absolute wereldtop en je ziet een rode draad: zes van de tien beste tennissters ter wereld én drie van de...
+- [Peter Koelewijn werkte met ‘vrouwelijke Rod Stewart’ Bonnie Tyler: ‘Aardige vrouw zonder sterallures’](https://www.ad.nl/show/peter-koelewijn-werkte-met-vrouwelijke-rod-stewart-bonnie-tyler-aardige-vrouw-zonder-sterallures~a9f2a426/)
+  > De wereld is een bijzonder rock-’n-roll-stemgeluid armer na het overlijden van zangeres Bonnie Tyler (75), vindt Peter Koelewijn. Ook de Nederlandse...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [ABN Amro krijgt €8,5 mln boete voor gebrekkige antiwitwascontroles](https://fd.nl/bedrijfsleven/1603476/abn-amro-krijgt-8-5-mln-boete-voor-gebrekkige-antiwitwascontroles)
-  > De bank zegt donderdag de boete te accepteren en ‘de feitelijke bevindingen in de onderzochte dossiers te onderschrijven’.
-- [Heijmans sluit nieuwe kredietfaciliteit af van €210 mln](https://fd.nl/bedrijfsleven/1603372/heijmans-sluit-nieuwe-kredietfaciliteit-af-van-210-mln)
-  > Een bankensyndicaat heeft een kredietfaciliteit voor bouwbedrijf Heijmans verlengd.
-- [VS en Iran voeren over en weer aanvallen uit](https://fd.nl/politiek/1603421/vs-en-iran-voeren-over-en-weer-aanvallen-uit)
-  > De strijd is opnieuw opgelaaid. De Amerikaanse president Donald Trump zei woensdag al dat hij ‘waarschijnlijk Iran vannacht hard gaat raken’.
-- [Live: Amsterdamse beurs boekt herstel bij opening](https://fd.nl/financiele-markten/1603371/live-er-loopt-wat-lucht-uit-de-technologiesector)
-  > De leden van de Amerikaanse Federal Reserve maken zich zorgen over de energieprijzen en de te hoge inflatie, zo bleek uit de notulen. De Europese...
-- [Twaalf romans voor op vakantie](https://fd.nl/samenleving/1602984/twaalf-romans-voor-op-vakantie)
-  > Een surrealistisch detectiveverhaal of een heldenepos zonder helden. Twaalf leestips om op een zonnig strand of schuilend in een tent ontspannen te...
+- [Goededoelensector zet juist grote stappen in dataveiligheid](https://fd.nl/opinie/1603244/goededoelensector-zet-juist-grote-stappen-in-dataveiligheid)
+  > Goede doelen werken met data-analyse om donateurs heel gericht te benaderen, berichtte het FD recent. Dat hoeft niet negatief te zijn, schrijft...
+- [Grootste vleesverwerker ter wereld JBS schrapt belangrijk klimaatdoel](https://fd.nl/bedrijfsleven/1603446/grootste-vleesverwerker-ter-wereld-jbs-schrapt-belangrijk-klimaatdoel)
+  > Het in Nederland gevestigde bedrijf zegt dat het te ingewikkeld is om de uitstoot van vee te verminderen.
+- [Europese voetballanden domineren op het WK](https://fd.nl/samenleving/1603493/europese-voetballanden-domineren-op-het-wk)
+  > Volgens de bookmakers maakt Frankrijk de grootste kans om op 19 juni in New York het WK te winnen, zeker na de overtuigende overwinning op Zweden.
+- [Wat doet een veenorm voor de boer? ‘Minder koeien is minder inkomen’](https://fd.nl/bedrijfsleven/1603036/wat-doet-een-veenorm-voor-de-boer-minder-koeien-is-minder-inkomen)
+  > Er komt een koeiennorm, die vooral intensieve melkveehouderijen raakt. Wat doet het beperken van het aantal koeien per hectare voor het milieu, en...
+- [ASML verdiende elke 55 minuten €1 mln, Alphabet deed dat elke 4,5 minuten](https://fd.nl/samenleving/1602985/asml-verdiende-elke-55-minuten-1-mln-alphabet-deed-dat-elke-4-5-minuten)
+  > De nettowinst van het grootste beursfonds aan het Damrak van Nederlandse bodem kwam vorig jaar uit op €9,6 mrd. Zo’n bedrag per Nederlander komt neer...
 
 ### Meest gelezen
 
