@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-07-2026 om 11:06*
+*Laatst bijgewerkt: 09-07-2026 om 15:18*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Duitsland koopt Tomahawk-raketten van VS](https://nos.nl/l/2622323)
-  > Duitsland heeft met de Verenigde Staten een overeenkomst gesloten over de aankoop van Tomahawk-raketten. De Amerikaanse kruisraketten zullen worden...
-- [Samen voetbal kijken in Gaza 'herinnert mensen eraan dat vreugde mogelijk is'](https://nos.nl/l/2622317)
-  > De beelden van Palestijnen in Gaza die naar het WK voetbal kijken, gaan al wekenlang de wereld over. De wedstrijden zorgen ervoor dat inwoners even...
-- [Heel woonblok in Huizen wordt gesloopt na explosie met dodelijke afloop](https://nos.nl/l/2622313)
-  > Acht woningen in Huizen moeten worden gesloopt vanwege de schade na een fatale explosie vorige week. Dat bevestigt de woningcorporatie aan de...
-- [Heetste juni ooit gemeten in West-Europa: 'Hitte blijft maar opbouwen'](https://nos.nl/l/2622312)
-  > Afgelopen maand was in West-Europa de heetste juni ooit gemeten. Dat valt op te maken uit de nieuwste temperatuurgegevens van het Europese...
-- [Nabestaanden van man die werd gedood door ICE eisen onafhankelijk onderzoek](https://nos.nl/l/2622308)
-  > De familie van de 52-jarige Lorenzo Salgado Araujo eist een onafhankelijk onderzoek naar zijn dood. Salgado werd dinsdagochtend doodgeschoten door de...
+- [Brand in schoenfabriek China kost zeker 28 mensen het leven](https://nos.nl/l/2622348)
+  > Bij een brand in een schoenfabriek in het zuidoosten van China zijn volgens staatsmedia zeker 28 mensen omgekomen.
+        De brand in de stad...
+- [Demonstratie Utrecht tegen vrijspraak van verkrachting tienermeisje](https://nos.nl/l/2622341)
+  > Honderden mensen demonstreren vanmiddag bij de rechtbank in Utrecht tegen de vrijspraak van twee mannen die werden verdacht van verkrachting van een...
+- [Begrafenis Khamenei straalt eenheid uit, maar 'Iran is diep verdeeld'](https://nos.nl/l/2622336)
+  > Met de begrafenis van de Iraanse leider Ali Khamenei komt een einde aan een zesdaagse uitvaart bijgewoond door miljoenen volgelingen in Iran en...
+- [Digitale euro weer een stap dichterbij, Europees Parlement akkoord](https://nos.nl/l/2622334)
+  > Betalen met de digitale euro is opnieuw een stap dichterbij gekomen. Een flinke meerderheid van het Europees Parlement stemde vandaag voor het...
+- [Podcast De Dag: waarom het WK-succes van Marokko zoveel losmaakt](https://nos.nl/l/2622332)
+  > Het Marokkaanse voetbalelftal beleeft gouden tijden. Na de overwinning op Nederland werd ook Canada overtuigend verslagen. Vanavond wacht...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [20 jaar na de iconische kopstoot van Zinédine Zidane: hoe een opmerking over zijn zus het einde van zijn carrière betekende](https://www.ad.nl/wk-voetbal/20-jaar-na-de-iconische-kopstoot-van-zinedine-zidane-hoe-een-opmerking-over-zijn-zus-het-einde-van-zijn-carriere-betekende~afbeab2e/)
-  > Het is een van de meest memorabele WK-momenten ooit: de kopstoot van Zinédine Zidane in de WK-finale van 2006, donderdag exact twintig jaar geleden....
-- [Medewerker trekt vrouw auto in en ontploft volledig, bedrijf overvallen door ‘schokkende’ video](https://www.ad.nl/binnenland/medewerker-trekt-vrouw-auto-in-en-ontploft-volledig-bedrijf-overvallen-door-schokkende-video~a850eb5bd/)
-  > Een Nederlands uitzendbureau is in grote verlegenheid gebracht door een opgedoken video waarop een vrouw zwaar wordt mishandeld in een van hun...
-- [LIVE Oorlog Oekraïne | Oekraïense drones raken 12 Russische tankers in de Zee van Azov](https://www.ad.nl/buitenland/live-oorlog-oekraine-oekraiense-drones-raken-12-russische-tankers-in-de-zee-van-azov~adfb97be/)
-  > In de Zee van Azov, de zee die tussen Oekraïne en Rusland ligt, hebben Oekraïense drones in de nacht van woensdag op donderdag twaalf Russische...
-- [Van armoede naar wereldtop: hoe schaarste Oost-Europese tennissters harder en beter maakte](https://www.ad.nl/tennis/van-armoede-naar-wereldtop-hoe-schaarste-oost-europese-tennissters-harder-en-beter-maakte~a27506ff/)
-  > De cijfers spreken boekdelen. Kijk naar de absolute wereldtop en je ziet een rode draad: zes van de tien beste tennissters ter wereld én drie van de...
-- [Peter Koelewijn werkte met ‘vrouwelijke Rod Stewart’ Bonnie Tyler: ‘Aardige vrouw zonder sterallures’](https://www.ad.nl/show/peter-koelewijn-werkte-met-vrouwelijke-rod-stewart-bonnie-tyler-aardige-vrouw-zonder-sterallures~a9f2a426/)
-  > De wereld is een bijzonder rock-’n-roll-stemgeluid armer na het overlijden van zangeres Bonnie Tyler (75), vindt Peter Koelewijn. Ook de Nederlandse...
+- [Pogacar deelt mokerslag uit aan Vingegaard: Sloveen pakt ritzege én gele trui na aanval op mythische Tourmalet](https://www.ad.nl/tour-de-france/pogacar-deelt-mokerslag-uit-aan-vingegaard-sloveen-pakt-ritzege-en-gele-trui-na-aanval-op-mythische-tourmalet~a35c38cb/)
+  > Tadej Pogacar heeft in de eerste bergetappe van de Tour de France al een geweldige basis gelegd voor zijn vijfde eindzege. De Sloveen gaf met een...
+- [Eurostar kiest voor de ‘Sahara-optie’ en laat nieuwe treinen hitte tot 55 graden verdragen](https://www.ad.nl/nieuws/eurostar-kiest-voor-de-sahara-optie-en-laat-nieuwe-treinen-hitte-tot-55-graden-verdragen~a1e866e1/)
+  > Het was de afgelopen tijd in een groot deel van Europa erg heet. In veel landen, zoals Duitsland, Frankrijk en Nederland, werden hitterecords...
+- [Steden nemen maatregelen rondom wedstrijd Marokko-Frankrijk: feestvieren mag, overlast geven niet](https://www.ad.nl/binnenland/steden-nemen-maatregelen-rondom-wedstrijd-marokko-frankrijk-feestvieren-mag-overlast-geven-niet~a2a8781a/)
+  > Verschillende steden nemen donderdagavond maatregelen rond de WK-wedstrijd tussen Marokko en Frankrijk. Na eerdere overwinningen van het Marokkaanse...
+- [Erik ten Hag is niet beschikbaar als bondscoach van Oranje: ‘De komende twee jaar zit ik bij FC Twente’](https://www.ad.nl/voetbal/erik-ten-hag-is-niet-beschikbaar-als-bondscoach-van-oranje-de-komende-twee-jaar-zit-ik-bij-fc-twente~a045f3ee/)
+  > De KNVB hoeft in de zoektocht naar een nieuwe bondscoach niet aan te kloppen bij Erik ten Hag. De technisch directeur van FC Twente benadrukt dat hij...
+- [Vrouw van influencerkoppel overlijdt uren na bevalling, BN’ers in shock: ‘Leven is zo hard’](https://www.ad.nl/show/vrouw-van-influencerkoppel-overlijdt-uren-na-bevalling-bners-in-shock-leven-is-zo-hard~a3e22fe1/)
+  > De mooiste dag uit hun leven is geëindigd in een onvoorstelbaar drama. Petra, de helft van het Instagramkoppel Date & Discover, is vlak na de...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Goededoelensector zet juist grote stappen in dataveiligheid](https://fd.nl/opinie/1603244/goededoelensector-zet-juist-grote-stappen-in-dataveiligheid)
-  > Goede doelen werken met data-analyse om donateurs heel gericht te benaderen, berichtte het FD recent. Dat hoeft niet negatief te zijn, schrijft...
-- [Grootste vleesverwerker ter wereld JBS schrapt belangrijk klimaatdoel](https://fd.nl/bedrijfsleven/1603446/grootste-vleesverwerker-ter-wereld-jbs-schrapt-belangrijk-klimaatdoel)
-  > Het in Nederland gevestigde bedrijf zegt dat het te ingewikkeld is om de uitstoot van vee te verminderen.
-- [Europese voetballanden domineren op het WK](https://fd.nl/samenleving/1603493/europese-voetballanden-domineren-op-het-wk)
-  > Volgens de bookmakers maakt Frankrijk de grootste kans om op 19 juni in New York het WK te winnen, zeker na de overtuigende overwinning op Zweden.
-- [Wat doet een veenorm voor de boer? ‘Minder koeien is minder inkomen’](https://fd.nl/bedrijfsleven/1603036/wat-doet-een-veenorm-voor-de-boer-minder-koeien-is-minder-inkomen)
-  > Er komt een koeiennorm, die vooral intensieve melkveehouderijen raakt. Wat doet het beperken van het aantal koeien per hectare voor het milieu, en...
-- [ASML verdiende elke 55 minuten €1 mln, Alphabet deed dat elke 4,5 minuten](https://fd.nl/samenleving/1602985/asml-verdiende-elke-55-minuten-1-mln-alphabet-deed-dat-elke-4-5-minuten)
-  > De nettowinst van het grootste beursfonds aan het Damrak van Nederlandse bodem kwam vorig jaar uit op €9,6 mrd. Zo’n bedrag per Nederlander komt neer...
+- [Chipmaker SK Hynix mikt op recordbeursgang, kan de volatiele AI‑markt dat aan?](https://fd.nl/financiele-markten/1603498/chipmaker-sk-hynix-mikt-op-recordbeursgang-kan-de-volatiele-aimarkt-dat-aan)
+  > De Zuid-Koreaanse chipmaker groeit als kool door de grote vraag naar AI-chips. Een notering in New York kan duidelijk maken of de markt ruimte heeft...
+- [Democraten verliezen troefkaart in cruciale staat Maine na aantijgingen van seksueel geweld](https://fd.nl/politiek/1603502/democraten-verliezen-troefkaart-in-cruciale-staat-maine-na-aantijgingen-van-seksueel-geweld)
+  > Topfavoriet Graham Platner trekt zich terug uit de tussentijdse senaatsverkiezingen na beschuldigingen van seksueel geweld. De Democraten hebben geen...
+- [Doener met hersens die rijk Nederland liet meebetalen aan de verbouwing van Artis](https://fd.nl/samenleving/1602481/doener-met-hersens-die-rijk-nederland-liet-meebetalen-aan-de-verbouwing-van-artis)
+  > Rembrandt Sutorius (44) vertrok bij adviesbureau McKinsey om ‘burgemeester van het dorp Artis’ te worden. De heropening van het 144 jaar oude...
+- [‘Damen ontwerpt nieuwe marineschepen voor Nederland en VK’](https://fd.nl/bedrijfsleven/1603452/damen-ontwerpt-nieuwe-marineschepen-voor-nederland-en-vk)
+  > Volgens bronnen van Bloomberg ontwerpt de scheepsbouwer acht nieuwe amfibische transportschepen voor de marines van de twee landen. De totale klus is...
+- [ASML: kleine aantallen, grote gevolgen](https://fd.nl/financiele-markten/1603496/asml-kleine-getallen-grote-gevolgen)
+  > Een handvol machines méér of minder in Veldhoven bepaalt of big tech volgend jaar op volle kracht draait of op de rem moet trappen.
 
 ### Meest gelezen
 
