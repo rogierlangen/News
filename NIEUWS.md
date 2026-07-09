@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-07-2026 om 19:58*
+*Laatst bijgewerkt: 09-07-2026 om 21:37*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Manifestatie met regenboogvlaggen in Oldebroek tegen schrappen lhbti-beleid](https://nos.nl/l/2622400)
+  > Bij het gemeentehuis in Oldebroek hebben ongeveer honderd mensen gedemonstreerd tegen het besluit van de nieuwe coalitie om het lokale lhbti+-beleid...
+- [D66-wethouderskandidaat Rotterdam totaal onverwacht weggestemd](https://nos.nl/l/2622396)
+  > Volledig onverwacht is Eva Heijblom vanavond weggestemd als D66-wethouder Cultuur en Mobiliteit in Rotterdam. Een meerderheid van de gemeenteraad...
+- [Onderwijsinspectie: wanbeheer bij bestuur Cornelius Haga Lyceum Amsterdam](https://nos.nl/l/2622395)
+  > Het bestuur van het Cornelius Haga Lyceum in Amsterdam heeft zich schuldig gemaakt aan wanbeheer. Dat heeft de Inspectie van het Onderwijs...
 - [Venezuela kampt met gevolgen aardbevingen: gebrek aan drinkwater en sanitair](https://nos.nl/l/2622394)
   > In Venezuela liggen uitbraken van infectieziekten op de loer na de aardbevingen waarbij vele duizenden mensen dakloos zijn geworden. In de getroffen...
 - [Vloggende wijkagent Tilburg voorlopig vrij na dreiging in gevangenis](https://nos.nl/l/2622390)
   > De Tilburgse wijkagent Erwin van E. (62), die wordt verdacht van het doorspelen van vertrouwelijke informatie uit politiesystemen, komt morgen...
-- [Weer Oekraïense aanvallen op Russische schaduwvloot bij Krim](https://nos.nl/l/2622388)
-  > Oekraïne heeft de afgelopen dagen de aanvallen op Russische schepen bij de bezette Krim opgevoerd. Volgens het Oekraïense leger zijn in de nacht van...
-- [Strijd VS en Iran terug bij af? 'Patroon van escalatie en de-escalatie'](https://nos.nl/l/2622385)
-  > Het begrip werd al flink opgerekt, maar de wapenstilstand tussen de VS en Iran ligt deze week echt even in de prullenbak. Amerika bombardeerde...
-- [Hond doodt Duits meisje (4) tijdens het spelen, rol moeder en kennis onderzocht](https://nos.nl/l/2622384)
-  > Een meisje van 4 is door de hond uit haar gezin doodgebeten. Het ongeluk gebeurde in Drosa, een plaats in deelstaat Saksen-Anhalt in het oosten van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Broer van Travis Kelce prijst sterrenbruiloft Taylor Swift en onthult hoeveel biertjes hij daar heeft gedronken](https://www.ad.nl/show/broer-van-travis-kelce-prijst-sterrenbruiloft-taylor-swift-en-onthult-hoeveel-biertjes-hij-daar-heeft-gedronken~a5113ae5/)
-  > Er heerst nog altijd veel geheimzinnigheid rond de bruiloft van Taylor Swift en Travis Kelce, maar familieleden verbreken nu hun stilte. Jason Kelce...
-- [‘Ik krijg al drie weken te horen dat ik behoorlijk stink’: Nick legt monstertocht af naar Middellandse Zee](https://www.ad.nl/rotterdam/ik-krijg-al-drie-weken-te-horen-dat-ik-behoorlijk-stink-nick-legt-monstertocht-af-naar-middellandse-zee~aa9a4dd0/)
-  > Hij zag bosbranden, werd bijna aangevallen door honden en zijn lichaam is op. Donderdagavond bereikte Nick Leeuwenhoek (38) in recordtijd de...
-- [Geheime documenten onthullen: China en Rusland zouden plannen smeden tegen het Westen](https://www.ad.nl/buitenland/geheime-documenten-onthullen-china-en-rusland-zouden-plannen-smeden-tegen-het-westen~aefa4604/)
-  > China en Rusland zouden al zes jaar veel nauwer militair samenwerken dan ze laten lijken en zelfs plannen smeden tegen het Westen. Dat blijkt uit...
-- [Deze modekeuze van Máxima viel absoluut niet in de smaak](https://www.ad.nl/show/deze-modekeuze-van-maxima-viel-absoluut-niet-in-de-smaak~a1523889/)
-  > Kun je een peperduur, historisch juweel combineren met oorbellen van H&M? Die vraag legde Máxima deze week op tafel. Verder bespreekt modejournalist...
-- [Basisplaats Salah-Eddine bij Marokko tegen Frankrijk, geblesseerde Saibari steunt team in snikheet Foxborough](https://www.ad.nl/wk-voetbal/basisplaats-salah-eddine-bij-marokko-tegen-frankrijk-geblesseerde-saibari-steunt-team-in-snikheet-foxborough~a2d4edf5/)
+- [Marokko heeft wonder nodig in kwartfinale: vlak na schitterende treffer Mbappé scoort ook Dembélé](https://www.ad.nl/wk-voetbal/marokko-heeft-wonder-nodig-in-kwartfinale-vlak-na-schitterende-treffer-mbappe-scoort-ook-dembele~a2d4edf5/)
   > Frankrijk is de absolute topfavoriet voor de wereldtitel. In de kwartfinale wacht een clash met Marokko, dat in de zestiende finale Oranje...
+- [Erling Haaland,  Harry Kane, Kylian Mbappé of Lionel Messi? Wie wordt topscorer van het WK?](https://www.ad.nl/wk-voetbal/erling-haaland-harry-kane-kylian-mbappe-of-lionel-messi-wie-wordt-topscorer-van-het-wk~a7add4ec/)
+  > De grote vedettes blijven maar leveren dit WK. Met Erling Haaland, Harry Kane, Kylian Mbappé en Lionel Messi als goalgetters met een niet te stillen...
+- [Pijnlijk einde van gele droom: Torstein Traeen geeft met gebroken rib op na knullige valpartij](https://www.ad.nl/tour-de-france/pijnlijk-einde-van-gele-droom-torstein-traeen-geeft-met-gebroken-rib-op-na-knullige-valpartij~a8f951d8/)
+  > Hij had een voorsprong van bijna acht minuten op Tadej Pogacar en co, maar Torstein Traeen is de gele trui kwijt en heeft de Tour de France moeten...
+- [Podcast In Het Wiel | ‘Tegen deze Pogacar kan Visma zelfs op tactisch vlak niets doen’](https://www.ad.nl/tour-de-france/podcast-in-het-wiel-tegen-deze-pogacar-kan-visma-zelfs-op-tactisch-vlak-niets-doen~a5ea502e/)
+  > Twee minuten en achtendertig seconden. Dat was het verschil tussen Tadej Pogacar en Jonas Vingegaard in de eerste echte bergrit van deze Tour de...
+- [‘Tijd voor mama’: Ronald Koeman junior over appje dat zijn vader ‘s nachts stuurde na WK-uitschakeling](https://www.ad.nl/wk-voetbal/tijd-voor-mama-ronald-koeman-junior-over-appje-dat-zijn-vader-s-nachts-stuurde-na-wk-uitschakeling~ab815f20/)
+  > Ronald Koeman junior heeft verteld over het contact dat hij had met zijn vader na de uitschakeling van het Nederlands elftal. Volgens de keeper van...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Beleggers schrikken niet van nieuwe vijandelijkheden tussen de VS en Iran](https://fd.nl/financiele-markten/1603553/beleggers-schrikken-niet-van-nieuwe-vijandelijkheden-tussen-vs-en-iran)
+  > Chipbouwers beleefden een goede dag op Wall Street. De S&P 500 kreeg er 0,81% bij, de Dow Jones 0,27% en de technologie-index Nasdaq 1,30%.
 - [Private-equityhuizen kijken naar Qiagen](https://fd.nl/bedrijfsleven/1603509/private-equityhuizen-kijken-naar-qiagen)
   > Het diagnostiekbedrijf staat te koop en investeringsmaatschappijen Advent, EQT en KKR hebben interesse getoond. Een deal is allerminst zeker.
 - [Altman: veel aanpassingen in nieuw AI-model na overleg met regering-Trump](https://fd.nl/bedrijfsleven/1603468/altman-veel-aanpassingen-in-nieuw-ai-model-na-overleg-met-regering-trump)
@@ -54,8 +56,6 @@
   > De volksvertegenwoordiging stemde donderdag na jaren gesteggel in met een inbreng voor de onderhandeling met de lidstaten.
 - [Jonge advocaten missen leerschool nu eenvoudig juridisch werk verdwijnt](https://fd.nl/opinie/1603447/jonge-advocaten-missen-leerschool-nu-eenvoudig-juridisch-werk-verdwijnt)
   > Waar jonge advocaten voorheen al doende leerden, moeten kantoren nu bewuster investeren in begeleiding.
-- [Duitsland en VS bereiken akkoord over aankoop Tomahawk-raketten](https://fd.nl/politiek/1603508/duitsland-en-vs-bereiken-akkoord-over-aankoop-tomahawk-raketten)
-  > Volgens bondskanselier Friedrich Merz dicht Duitsland hiermee een belangrijk gat in zijn defensie.
 
 ### Meest gelezen
 
