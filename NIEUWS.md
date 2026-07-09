@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-07-2026 om 15:18*
+*Laatst bijgewerkt: 09-07-2026 om 17:59*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Brand in schoenfabriek China kost zeker 28 mensen het leven](https://nos.nl/l/2622348)
-  > Bij een brand in een schoenfabriek in het zuidoosten van China zijn volgens staatsmedia zeker 28 mensen omgekomen.
-        De brand in de stad...
-- [Demonstratie Utrecht tegen vrijspraak van verkrachting tienermeisje](https://nos.nl/l/2622341)
-  > Honderden mensen demonstreren vanmiddag bij de rechtbank in Utrecht tegen de vrijspraak van twee mannen die werden verdacht van verkrachting van een...
-- [Begrafenis Khamenei straalt eenheid uit, maar 'Iran is diep verdeeld'](https://nos.nl/l/2622336)
-  > Met de begrafenis van de Iraanse leider Ali Khamenei komt een einde aan een zesdaagse uitvaart bijgewoond door miljoenen volgelingen in Iran en...
-- [Digitale euro weer een stap dichterbij, Europees Parlement akkoord](https://nos.nl/l/2622334)
-  > Betalen met de digitale euro is opnieuw een stap dichterbij gekomen. Een flinke meerderheid van het Europees Parlement stemde vandaag voor het...
-- [Podcast De Dag: waarom het WK-succes van Marokko zoveel losmaakt](https://nos.nl/l/2622332)
-  > Het Marokkaanse voetbalelftal beleeft gouden tijden. Na de overwinning op Nederland werd ook Canada overtuigend verslagen. Vanavond wacht...
+- [Drie aanhoudingen in onderzoek naar voorbereiding liquidatie in Amsterdam](https://nos.nl/l/2622379)
+  > De politie heeft dinsdag drie verdachten aangehouden in een onderzoek naar de voorbereiding van een liquidatie. Eerder werden in dezelfde zaak al...
+- [Ten Hag niet beschikbaar als bondscoach van Nederlands elftal](https://nos.nl/l/2622378)
+  > Zijn naam wordt veelgenoemd, maar Erik ten Hag is in ieder geval de komende twee jaar niet beschikbaar als bondscoach van het Nederlands...
+- [Plotseling verhuist het Groninger Museum z'n duurste aankoop ooit naar de binnenstad](https://nos.nl/l/2622376)
+  > Tot verbazing van kunstkenners is het Groninger Museum bezig om een enorm glazen kunstwerk van de Amerikaanse artiest Dale Chihuly weg te halen. De...
+- [Door code rood gedupeerde vso-leerlingen kunnen wel starten met vervolgopleiding](https://nos.nl/l/2622369)
+  > Leerlingen in het voortgezet speciaal onderwijs (vso) die vanwege code rood hun mondeling examen niet konden doen, kunnen toch starten met hun...
+- [Zwaargewonden bij wielerongeluk met koord in Zeeland: 'Ging heel snel'](https://nos.nl/l/2622367)
+  > "Er was veel bloed, paniek en vooral een grote bezorgdheid om de zwaargewonden." Afgelopen zondagochtend waren veertien wielrenners betrokken bij een...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Pogacar deelt mokerslag uit aan Vingegaard: Sloveen pakt ritzege én gele trui na aanval op mythische Tourmalet](https://www.ad.nl/tour-de-france/pogacar-deelt-mokerslag-uit-aan-vingegaard-sloveen-pakt-ritzege-en-gele-trui-na-aanval-op-mythische-tourmalet~a35c38cb/)
-  > Tadej Pogacar heeft in de eerste bergetappe van de Tour de France al een geweldige basis gelegd voor zijn vijfde eindzege. De Sloveen gaf met een...
-- [Eurostar kiest voor de ‘Sahara-optie’ en laat nieuwe treinen hitte tot 55 graden verdragen](https://www.ad.nl/nieuws/eurostar-kiest-voor-de-sahara-optie-en-laat-nieuwe-treinen-hitte-tot-55-graden-verdragen~a1e866e1/)
-  > Het was de afgelopen tijd in een groot deel van Europa erg heet. In veel landen, zoals Duitsland, Frankrijk en Nederland, werden hitterecords...
-- [Steden nemen maatregelen rondom wedstrijd Marokko-Frankrijk: feestvieren mag, overlast geven niet](https://www.ad.nl/binnenland/steden-nemen-maatregelen-rondom-wedstrijd-marokko-frankrijk-feestvieren-mag-overlast-geven-niet~a2a8781a/)
-  > Verschillende steden nemen donderdagavond maatregelen rond de WK-wedstrijd tussen Marokko en Frankrijk. Na eerdere overwinningen van het Marokkaanse...
-- [Erik ten Hag is niet beschikbaar als bondscoach van Oranje: ‘De komende twee jaar zit ik bij FC Twente’](https://www.ad.nl/voetbal/erik-ten-hag-is-niet-beschikbaar-als-bondscoach-van-oranje-de-komende-twee-jaar-zit-ik-bij-fc-twente~a045f3ee/)
-  > De KNVB hoeft in de zoektocht naar een nieuwe bondscoach niet aan te kloppen bij Erik ten Hag. De technisch directeur van FC Twente benadrukt dat hij...
-- [Vrouw van influencerkoppel overlijdt uren na bevalling, BN’ers in shock: ‘Leven is zo hard’](https://www.ad.nl/show/vrouw-van-influencerkoppel-overlijdt-uren-na-bevalling-bners-in-shock-leven-is-zo-hard~a3e22fe1/)
-  > De mooiste dag uit hun leven is geëindigd in een onvoorstelbaar drama. Petra, de helft van het Instagramkoppel Date & Discover, is vlak na de...
+- [Nabestaanden eren Wallen-echtpaar met paaldans op uitvaart: ‘Een liefdevol eerbetoon’](https://www.ad.nl/binnenland/nabestaanden-eren-wallen-echtpaar-met-paaldans-op-uitvaart-een-liefdevol-eerbetoon~abf9cc16/)
+  > Hoe eer je mensen die jarenlang een nachtclub runden op de Wallen tijdens een uitvaart? Met een paaldanseres, was de conclusie van nabestaanden. De...
+- [Van Antony (95 miljoen) tot Arjan de Zeeuw (375.000 euro): dit zijn alle recordtransfers per eredivisieclub](https://www.ad.nl/voetbal/van-antony-95-miljoen-tot-arjan-de-zeeuw-375-000-euro-dit-zijn-alle-recordtransfers-per-eredivisieclub~a842cb2b/)
+  > Met PSV (Ismael Saibari), FC Twente (Mats Rots) en NEC (Basar Önal) hebben deze zomer al drie eredivisieclubs hun verkooprecord gebroken. Wat zijn...
+- [Van de koude kermis voor boyband Five tot de jurk van Zendaya: test je showbizzkennis](https://www.ad.nl/quiz/van-de-koude-kermis-voor-boyband-five-tot-de-jurk-van-zendaya-test-je-showbizzkennis~aff778fb/)
+  > Het was een bewogen week in showbizzland, met dé sterrenbruiloft van het jaar en nieuws over prins Harry. Maar er gebeurde meer: actrice Zendaya stal...
+- [Dit zwembad heeft als eerste een digitale badmeester: ‘Er was best wat onrust’](https://www.ad.nl/binnenland/dit-zwembad-heeft-als-eerste-een-digitale-badmeester-er-was-best-wat-onrust~a834936d/)
+  > Medewerkers van het zwembad in Driebergen-Rijsenburg waren huiverig toen een ‘digitale badmeester’ werd aangekondigd en er overal camera’s werden...
+- [Thymen Arensman bergt ambities voor klassement op: ‘Ik denk dat het hartstikke logisch is’](https://www.ad.nl/tour-de-france/thymen-arensman-bergt-ambities-voor-klassement-op-ik-denk-dat-het-hartstikke-logisch-is~a98ac25b/)
+  > Thymen Arensman beleefde een lastige eerste bergetappe in de Tour de France. De beste Nederlandse klimmer moest op de Col du Tourmalet al snel lossen...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Chipmaker SK Hynix mikt op recordbeursgang, kan de volatiele AI‑markt dat aan?](https://fd.nl/financiele-markten/1603498/chipmaker-sk-hynix-mikt-op-recordbeursgang-kan-de-volatiele-aimarkt-dat-aan)
-  > De Zuid-Koreaanse chipmaker groeit als kool door de grote vraag naar AI-chips. Een notering in New York kan duidelijk maken of de markt ruimte heeft...
-- [Democraten verliezen troefkaart in cruciale staat Maine na aantijgingen van seksueel geweld](https://fd.nl/politiek/1603502/democraten-verliezen-troefkaart-in-cruciale-staat-maine-na-aantijgingen-van-seksueel-geweld)
-  > Topfavoriet Graham Platner trekt zich terug uit de tussentijdse senaatsverkiezingen na beschuldigingen van seksueel geweld. De Democraten hebben geen...
-- [Doener met hersens die rijk Nederland liet meebetalen aan de verbouwing van Artis](https://fd.nl/samenleving/1602481/doener-met-hersens-die-rijk-nederland-liet-meebetalen-aan-de-verbouwing-van-artis)
-  > Rembrandt Sutorius (44) vertrok bij adviesbureau McKinsey om ‘burgemeester van het dorp Artis’ te worden. De heropening van het 144 jaar oude...
-- [‘Damen ontwerpt nieuwe marineschepen voor Nederland en VK’](https://fd.nl/bedrijfsleven/1603452/damen-ontwerpt-nieuwe-marineschepen-voor-nederland-en-vk)
-  > Volgens bronnen van Bloomberg ontwerpt de scheepsbouwer acht nieuwe amfibische transportschepen voor de marines van de twee landen. De totale klus is...
-- [ASML: kleine aantallen, grote gevolgen](https://fd.nl/financiele-markten/1603496/asml-kleine-getallen-grote-gevolgen)
-  > Een handvol machines méér of minder in Veldhoven bepaalt of big tech volgend jaar op volle kracht draait of op de rem moet trappen.
+- [Duitsland en VS bereiken akkoord over aankoop Tomahawk-raketten](https://fd.nl/politiek/1603508/duitsland-en-vs-bereiken-akkoord-over-aankoop-tomahawk-raketten)
+  > Volgens bondskanselier Friedrich Merz dicht Duitsland hiermee een belangrijk gat in zijn defensie.
+- [Een cliffhanger voor de zomer: geeft de overheid subsidie aan het vervolgde Tata Steel?](https://fd.nl/bedrijfsleven/1603450/een-cliffhanger-voor-de-zomer-geeft-de-overheid-subsidie-aan-het-vervolgde-tata-steel)
+  > Het Openbaar Ministerie legde deze week een bom onder gesprekken tussen de overheid en de staalfabrikant. Steun van €2 mrd voor verduurzaming staat...
+- [Holidu neemt vakantieverhuursite Gites over](https://fd.nl/bedrijfsleven/1603463/holidu-neemt-vakantieverhuursite-gites-over)
+  > Het Duitse platform is bezig met een reeks overnames van Europese boekingssites.
+- [Bedekte vrouwen](https://fd.nl/opinie/1602992/bedekte-vrouwen)
+  > Een wereld waarin vrouwen zich minder vrij kunnen bewegen dan mannen is niet modieus ‘modest’, maar verwerpelijk, vindt FD-columnist Sanne...
+- [Italië zet twee Russische ambassademedewerkers uit](https://fd.nl/politiek/1603504/italie-zet-twee-russische-ambassademedewerkers-uit)
+  > De Italiaanse regering verdenkt de Russische militaire attachés van spionage.
 
 ### Meest gelezen
 
