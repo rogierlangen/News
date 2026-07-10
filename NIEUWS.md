@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-07-2026 om 11:07*
+*Laatst bijgewerkt: 10-07-2026 om 14:36*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Egyptische Nederlander al 9 maanden zonder aanklacht vast in Egypte](https://nos.nl/l/2622447)
-  > De Egyptische Nederlander Omar Elshal (33) zit al bijna negen maanden in detentie in Egypte. Deze maand verschijnt hij voor het eerst voor een...
-- [Brievenbus kleppert minder vaak: 'Eén keer per week is niet uit te sluiten'](https://nos.nl/l/2622446)
-  > Vanaf volgende week kleppert de brievenbus niet meer elke dag, maar om de dag. PostNL krijgt vanaf zondag twee werkdagen de tijd om een geposte...
-- [Europese Commissie: verslavend ontwerp Facebook en Instagram in strijd met EU-regels](https://nos.nl/l/2622443)
-  > Meta, het bedrijf van Facebook en Instagram, houdt onvoldoende rekening met de invloed die het verslavende ontwerp van hun apps heeft op het welzijn...
-- [Relschoppers noodopvang IJsselstein krijgen gebiedsverbod](https://nos.nl/l/2622440)
-  > Meerdere overlastgevers die maandag protesteerden tegen de vluchtelingenopvang in IJsselstein, mogen voorlopig niet in de buurt van de opvang komen....
-- [België wil verplicht tolvignet volgend jaar mei invoeren, ook dagpas mogelijk](https://nos.nl/l/2622439)
-  > Wie gebruikmaakt van de wegen in België moet vanaf volgend jaar mei een tolvignet aanschaffen. Daar wordt mogelijk vandaag in de Vlaamse regering een...
+- [Graven op Sovjet Ereveld in Leusden beklad](https://nos.nl/l/2622493)
+  > Een groot aantal graven op het Sovjet Ereveld in Leusden is beklad. Volgens directeur Remco Reiding gaat het om zo'n 150 grafstenen. Op de graven...
+- [Remkes, De Graaf en Timmermans krijgen eretitel als minister van Staat](https://nos.nl/l/2622488)
+  > De oud-ministers Frans Timmermans (PvdA, nu Pro), Thom de Graaf (D66) en Johan Remkes (VVD) worden minister van Staat. Dat is een eretitel, die de...
+- [Passagier tot schouders uit vliegtuig RyanAir gezogen tijdens vlucht](https://nos.nl/l/2622475)
+  > Een toestel van vliegtuigmaatschappij Ryanair moest in Griekenland terugkeren naar het vliegveld nadat een raam tijdens de vlucht was gebroken. Een...
+- [Podcast De Dag: wat we nu weten over mRNA-vaccins](https://nos.nl/l/2622472)
+  > Miljarden mensen kregen tijdens de coronapandemie een mRNA-vaccin. De vaccintechniek hielp de wereld uit de grootste gezondheidscrisis in decennia,...
+- [WO II-bom Keulen succesvol onschadelijk gemaakt, ook kinderziekenhuis geëvacueerd](https://nos.nl/l/2622465)
+  > De bom uit de de Tweede Wereldoorlog die in Keulen was gevonden is onschadelijk gemaakt, meldt de gemeente. De bom werd vanochtend tijdens...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nederland staat nu machteloos, maar straks kunnen militairen Russisch schaduwschip enteren en aan ketting leggen](https://www.ad.nl/politiek/nederland-staat-nu-machteloos-maar-straks-kunnen-militairen-russisch-schaduwschip-enteren-en-aan-ketting-leggen~a6ae9a5c/)
-  > Nederlandse militairen kunnen straks schepen uit de Russische schaduwvloot enteren, óók als die buiten de Nederlandse wateren varen. Nu zijn de...
-- [Verkoelende mist vanaf de Domtoren: de remedie tegen stedelijke hitte?](https://www.ad.nl/binnenland/verkoelende-mist-vanaf-de-domtoren-de-remedie-tegen-stedelijke-hitte~a41d18ee/)
-  > Zullen we een hittegolf beter doorstaan als er vanaf de Euromast of de Domtoren een verkoelende nevel over de stad wordt uitgesproeid? Terwijl...
-- [Britse politie onderzoekt donaties van moeder veroordeelde fraudeur aan partij van Nigel Farage](https://www.ad.nl/buitenland/britse-politie-onderzoekt-donaties-van-moeder-veroordeelde-fraudeur-aan-partij-van-nigel-farage~a977c52f/)
-  > De Britse politie onderzoekt een half miljoen pond (586.000 euro) aan donaties aan de Reform UK-partij van Nigel Farage. Het geld komt volgens de...
-- [Laat u niets wijs maken, dit is het slechtst georganiseerde WK van deze eeuw](https://www.ad.nl/wk-voetbal/laat-u-niets-wijs-maken-dit-is-het-slechtst-georganiseerde-wk-van-deze-eeuw~a91ab509/)
-  > Columnist Sjoerd Mossou stelt vast dat dit WK in heel veel opzichten dramatisch is georganiseerd, veel slechter dan eerdere toernooien. „Beveiligers,...
-- [Snelle mannen weer aan zet: pakt Olav Kooij in ‘sprinthoofdstad’ van de Tour zijn tweede ritzege?](https://www.ad.nl/tour-de-france/snelle-mannen-weer-aan-zet-pakt-olav-kooij-in-sprinthoofdstad-van-de-tour-zijn-tweede-ritzege~a5ccacbf/)
+- [Massasprint lijkt onvermijdelijk in Bordeaux, pakt Olav Kooij zijn tweede etappezege?](https://www.ad.nl/tour-de-france/massasprint-lijkt-onvermijdelijk-in-bordeaux-pakt-olav-kooij-zijn-tweede-etappezege~a5ccacbf/)
   > De Tour de France gaat vrijdag verder met de zevende etappe. De kans is groot dat de snelle mannen weer aan de bak kunnen. Wordt het een massasprint...
+- [‘Trump heeft onze WK-koorts aangewakkerd’: na alle chaos wil België stunten tegen Spanje](https://www.ad.nl/wk-voetbal/trump-heeft-onze-wk-koorts-aangewakkerd-na-alle-chaos-wil-belgie-stunten-tegen-spanje~a0785c580/)
+  > Na een WK vol pieken en dalen staat België vrijdagavond doodleuk in de kwartfinale, tegen Spanje. Hoe is de sfeer bij onze opgeleefde zuiderburen?...
+- [Coach van Cristiano Ronaldo bij Al-Nassr nieuwe bondscoach van Portugal](https://www.ad.nl/voetbal/coach-van-cristiano-ronaldo-bij-al-nassr-nieuwe-bondscoach-van-portugal~aa6bf643/)
+  > Jorge Jesus wordt de nieuwe bondscoach van Portugal. Dat heeft de Portugese voetbalbond vrijdag bekendgemaakt op X.  De 71-jarige trainer, die vorige...
+- [Van Chelsea tot Twente: deze zeven Nederlandse talenten strijden om Golden Boy Award](https://www.ad.nl/voetbal/van-chelsea-tot-twente-deze-zeven-nederlandse-talenten-strijden-om-golden-boy-award~a0f39c52/)
+  > De Italiaanse sportkrant Tuttosport heeft de genomineerden voor de Golden Boy Award bekendgemaakt, de trofee voor de beste voetballer onder 21 jaar...
+- [Heibel in kabinet over belastingen? Jetten zegt van niet, maar er is toch wel irritatie](https://www.ad.nl/politiek/heibel-in-kabinet-over-belastingen-jetten-zegt-van-niet-maar-er-is-toch-wel-irritatie~a392abea/)
+  > Is het kabinet verdeeld als het gaat om hogere belastingen op vermogen? Het heeft er alle schijn van, nu ministers daar totaal verschillende dingen...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Rechtbank fluit OM terug in vervolging beurshandelaar Frank Vogel](https://fd.nl/bedrijfsleven/1603580/rechtbank-fluit-om-terug-in-vervolging-beurshandelaar-frank-vogel)
-  > Het OM wilde haast maken in een mediagevoelige zaak die draait om ‘dividendstrippen’. Maar de rechtbank trekt alsnog aan de noodrem.
-- [Verliezen, verduurzamen én vervolgd worden. De businesscase van Tata Steel dreigt af te brokkelen](https://fd.nl/opinie/1603445/verliezen-verduurzamen-en-vervolgd-worden-de-businesscase-van-tata-steel-dreigt-af-te-brokkelen)
-  > Terwijl de regering met Tata Steel onderhandelt over een deal van €2 mrd, onderstreept de strafrechtelijke vervolging van Tata Steel waarom Den Haag...
-- [Voorzitter Warsh strikt grote namen om zijn Federal Reserve een spiegel voor te houden](https://fd.nl/financiele-markten/1603563/voorzitter-warsh-strikt-grote-namen-om-zijn-federal-reserve-een-spiegel-voor-te-houden)
-  > Vijf werkgroepen gaan de beleidsterreinen van de Fed doorlichten. Daarvoor zijn onder meer techinvesteerder Marc Andreessen en centrale bankiers...
-- [Facebook en Instagram te verslavend voor kinderen, zegt Brussel](https://fd.nl/tech-en-innovatie/1603561/facebook-en-instagram-te-verslavend-voor-kinderen-zegt-brussel)
-  > De Europese Commissie wil dat Meta het ontwerp van de socialemediaplatforms aanpast. Zij pleit er onder meer voor om functies zoals autoplay en...
-- [De Nexperia-storm is gaan liggen, maar nu dreigt een orkaan](https://fd.nl/bedrijfsleven/1603455/de-nexperia-storm-is-gaan-liggen-maar-nu-dreigt-een-orkaan)
-  > De ruzie tussen China en de EU over goedkope import dreigt uit de hand te lopen. Toch probeerden ondernemers en ministers tijdens een handelsmissie...
+- [Oliereserves VS slinken, terwijl bedrijven profiteren van turbulentie](https://fd.nl/financiele-markten/1603687/oliereserves-vs-slinken-terwijl-bedrijven-profiteren-van-turbulentie)
+  > De gehele Amerikaanse strategische olievoorraad was sinds 1983 niet meer zo laag.
+- [Nederland wil meer bevoegdheden om Russische schaduwvloot aan te pakken](https://fd.nl/politiek/1603696/nederland-wil-meer-bevoegdheden-om-russische-schaduwvloot-aan-te-pakken)
+  > Het kabinet heeft vrijdag een wijziging van de Wet buitenlandse schepen voor een spoedadvies naar de Raad van State gestuurd.
+- [Kabinet: alleen geld voor bijscholing in ‘cruciale’ sectoren](https://fd.nl/politiek/1603564/kabinet-alleen-geld-voor-bijscholing-in-cruciale-sectoren)
+  > De bijscholingsregeling voor werkenden wordt flink op de schop genomen. Er is straks alleen geld beschikbaar voor digitalisering (AI), energie...
+- [Populariteit van parlementsvoorzitter loopt kras op door rol bij ‘chatcontrol’](https://fd.nl/politiek/1603474/populariteit-van-parlementsvoorzitter-loopt-kras-op-door-rol-bij-chatcontrol)
+  > Europarlement-voorzitter Roberta Metsola heeft zich volgens critici voor het karretje van haar EVP-partij laten spannen om regelgeving erdoor te...
+- [Gratis aan de pasta dankzij slim tanken](https://fd.nl/financiele-markten/1603037/gratis-aan-de-pasta-dankzij-slim-tanken)
+  > De benzine wordt duur betaald tegenwoordig. Voor wie met de auto op vakantie gaat, loont het daarom des te meer om een uurtje te puzzelen en de...
 
 ### Meest gelezen
 
