@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-07-2026 om 03:41*
+*Laatst bijgewerkt: 10-07-2026 om 07:39*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Zeker twaalf doden door bosbranden in zuiden van Spanje](https://nos.nl/l/2622414)
-  > Door een grote bosbrand in het zuiden van Spanje zijn zeker twaalf mensen omgekomen. De brandhaard is in de buurt van de stad Almería. Zo'n 150...
-- [Hier en daar onrustig, maar geen grote incidenten na WK-wedstrijd Marokko](https://nos.nl/l/2622413)
+- [Tweede koper meldt zich voor vliegmaatschappij Easyjet](https://nos.nl/l/2622428)
+  > Een tweede koper heeft zich gemeld voor de overname van Easyjet. Nadat de Amerikaanse investeringsmaatschappij Castlelake eind mei zei de...
+- [Arrestaties vanwege explosies in Damascus tijdens bezoek Macron](https://nos.nl/l/2622424)
+  > De Syrische autoriteiten hebben meerdere verdachten gearresteerd die worden verdacht van explosies in de hoofdstad Damascus afgelopen dinsdag....
+- [Wekdienst 10/7: Spanje speelt tegen België • Hugo de Jonge voor corona-enquête](https://nos.nl/l/2622417)
+  > Goedemorgen! In de kwartfinale van het WK staan vandaag Europees kampioen Spanje en België tegenover elkaar. En in Rotterdam opent koningin Máxima de...
+- [Zeker 12 doden door bosbranden in zuiden van Spanje, nog 19 vermisten](https://nos.nl/l/2622414)
+  > Door een grote bosbrand in het zuiden van Spanje zijn zeker twaalf mensen omgekomen. Er worden 19 mensen vermist melden de regionale autoriteiten in...
+- [Hier en daar onrustig na wedstrijd Marokko, aanhoudingen in Amsterdam, Den Haag en Utrecht](https://nos.nl/l/2622413)
   > Na de 2-0 nederlaag van Marokko tegen Frankrijk in de kwartfinale van het WK zijn in meerdere steden fans de straat op gegaan. Onder meer in...
-- [Acht verdachten aangeklaagd voor plan aanslag tijdens kooigevecht bij Witte Huis](https://nos.nl/l/2622412)
-  > Acht mannen zijn in de Verenigde Staten aangeklaagd voor hun rol bij een plan om een aanslag te plegen tijdens een UFC-kooigevecht bij het Witte...
-- [Volkswagen gaat snijden in automodellen en productiecapacitieit](https://nos.nl/l/2622411)
-  > Volkswagen wil de komende jaren het aantal automodellen flink terugbrengen en de productiecapaciteit verlagen. De directie heeft plannen hiervoor...
-- [Poppodia zien flinke daling in nachtbezoekers, ook veel rode cijfers](https://nos.nl/l/2622407)
-  > De stappende nachtbraker heeft misschien al wel gemerkt dat het minder goed gaat met het nachtleven bij Nederlandse poppodia. Clubnachten werden in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ziekenhuizen uiten zorgen over oplopende drukte tijdens hittegolf: ‘Is stresstest voor je lijf’](https://www.ad.nl/binnenland/ziekenhuizen-uiten-zorgen-over-oplopende-drukte-tijdens-hittegolf-is-stresstest-voor-je-lijf~a79f53e13/)
-  > Extreme hitte zorgt voor een opvallende verschuiving in Nederlandse ziekenhuizen: waar de grootste drukte normaal in de winter ligt, raken...
-- [Twaalf doden door bosbranden in Zuid-Spanje; slachtoffers probeerden in hun auto te vluchten](https://www.ad.nl/buitenland/twaalf-doden-door-bosbranden-in-zuid-spanje-slachtoffers-probeerden-in-hun-auto-te-vluchten~ab893331/)
-  > Bij bosbranden in de Zuid-Spaanse provincie Almería zijn ten minste twaalf doden gevallen. Dat melden Spaanse media, waaronder Cadena Ser.
-- [Voetbalpodcast | ‘Die maffe aanloopjes bij strafschoppen werken niet dit WK’](https://www.ad.nl/voetbal/voetbalpodcast-die-maffe-aanloopjes-bij-strafschoppen-werken-niet-dit-wk~a42af5cd9/)
-  > Frankrijk is de eerste halve finalist van het WK 2026. De ploeg van Didier Deschamps was te sterk voor Marokko. Al maakten de Fransen het zichzelf...
-- [Topscorers | Messi en Mbappé samen aan kop, Fransman jaagt op all-time record Argentijn](https://www.ad.nl/wk-voetbal/topscorers-messi-en-mbappe-samen-aan-kop-fransman-jaagt-op-all-time-record-argentijn~ad0e6ff9/)
-  > Het WK voetbal is in volle gang. Wie wordt de topscorer, welke speler geeft de meeste assists en welke keepers blinken uit? Bekijk hieronder alle...
-- [President Trump ontslaat leden onafhankelijke kiescommissie op staande voet, toekomst ongewis](https://www.ad.nl/buitenland/president-trump-ontslaat-leden-onafhankelijke-kiescommissie-op-staande-voet-toekomst-ongewis~ae67dd9c/)
-  > President Donald Trump heeft alle nog zittende leden van een onafhankelijke kiescommissie op staande voet ontslagen. De commissie heeft nu geen...
+- [PSV speurt voor twee posities en beraadt zich over Boadu, PEC Zwolle haalt middenvelder op uit Denemarken](https://www.ad.nl/voetbal/psv-speurt-voor-twee-posities-en-beraadt-zich-over-boadu-pec-zwolle-haalt-middenvelder-op-uit-denemarken~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Spanje in rouw: 11 doden door bosbranden, slachtoffers probeerden met auto te vluchten](https://www.ad.nl/buitenland/spanje-in-rouw-11-doden-door-bosbranden-slachtoffers-probeerden-met-auto-te-vluchten~ab893331/)
+  > In Spanje wordt geschokt gereageerd op de dodelijke natuurbranden in het zuiden. Het dodental staat op elf en een tiental mensen raakte gewond....
+- [Vignet voor Belgische wegen komt er echt: dit gaat het kosten](https://www.ad.nl/auto/vignet-voor-belgische-wegen-komt-er-echt-dit-gaat-het-kosten~a47f0855/)
+  > Het hing al even in de lucht, maar er is nu meer duidelijkheid over het tolvignet dat België wil invoeren. Uit plannen blijkt dat het vignet op 1 mei...
+- [Recreatiebos plots afgesloten met hekken, camera’s en luidsprekers: ‘Noord-Koreaanse toestanden’](https://www.ad.nl/binnenland/recreatiebos-plots-afgesloten-met-hekken-cameras-en-luidsprekers-noord-koreaanse-toestanden~a27fb11d/)
+  > Hekken, camera’s, een sluisconstructie, elektrische sloten en zelfs een luidspreker waar waarschuwende teksten uit galmen. ‘Noord-Koreaanse...
+- [Frankrijk dé topfavoriet, maar is dreamteam beter dan het Oranje van Cruijff? Wat is beste WK-team ooit?](https://www.ad.nl/wk-voetbal/frankrijk-de-topfavoriet-maar-is-dreamteam-beter-dan-het-oranje-van-cruijff-wat-is-beste-wk-team-ooit~a6c40bd5/)
+  > Frankrijk maakte ook in het WK-duel met Marokko (2-0) veel indruk en wordt alom beschouwd als dé favoriet voor de wereldtitel. Les Bleus beschikken...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Recordaanbod koopwoningen neemt de krapte nog niet weg](https://fd.nl/economie/1603462/recordaanbod-koopwoningen-neemt-de-krapte-nog-niet-weg)
-  > Vandaag in Dagkoers: een hoger woningaanbod maar prijzen blijven hoog, een analyse van TSMC dat cruciaal is voor de wereldeconomie, en wordt...
-- [Hans Vijlbrief: hogere belasting op vermogens geen taboe](https://fd.nl/politiek/1603495/hans-vijlbrief-hogere-belasting-op-vermogens-geen-taboe)
-  > Als de geplande bezuinigingen op sociale zekerheid niet doorgaan, moet er geld gevonden worden.  De minister van Sociale Zaken voelt er niets voor om...
-- [Weescht streng voor uw nepobaby](https://fd.nl/opinie/1603486/weescht-streng-voor-uw-nepobaby)
-  > De zoveelste CPB-bede voor hogere belastingen is opmerkelijk; vanwaar die obsessie? Vooral de erfbelasting is daarbij favoriet, al is zo’n...
-- [Kan Tata met €2 mrd ook dicht?](https://fd.nl/opinie/1603453/kan-tata-met-2-mrd-ook-dicht)
-  > Kunnen er met Tata Steel en zijn bedrijfsleiding wel afspraken worden gemaakt?
-- [Personalia vrijdag 10 juli](https://fd.nl/bedrijfsleven/1603456/personalia-vrijdag-10-juli)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Apollo meldt zich met hoger bod voor EasyJet](https://fd.nl/bedrijfsleven/1603473/apollo-meldt-zich-met-hoger-bod-voor-easyjet)
+  > Apollo mengt zich in de pogingen van Castlelake om EasyJet in te lijven en doet een rivaliserend bod op de Britse budgetluchtvaartmaatschappij.
+- [Rollenspel als kunst, afvalverlichting en een horloge uit Dordrecht](https://fd.nl/samenleving/1603196/rollenspel-als-kunst-afvalverlichting-en-een-horloge-uit-dordrecht)
+  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
+- [Aantal faillissementen neemt af](https://fd.nl/bedrijfsleven/1603555/aantal-faillissementen-neemt-af)
+  > De faillissementsgraad is in juni afgenomen.
+- [De politicus als buikspreekpop van de technologie](https://fd.nl/opinie/1601667/de-politicus-als-buikspreekpop-van-de-technologie)
+  > Als AI de taal van politici gaat bepalen, verandert niet alleen hun boodschap, maar ook de aard van het politieke spreken zelf.
+- [Zeker 12 doden na bosbranden in Spanje](https://fd.nl/samenleving/1603471/zeker-12-doden-na-bosbranden-in-spanje)
+  > Zo’n 150 brandweermannen zijn ingezet om het vuur te blussen, tot nu toe zonder succes. Uit voorzorg zijn volgens de Spaanse krant El País zo’n 1000...
 
 ### Meest gelezen
 
