@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-07-2026 om 07:39*
+*Laatst bijgewerkt: 10-07-2026 om 11:07*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Tweede koper meldt zich voor vliegmaatschappij Easyjet](https://nos.nl/l/2622428)
-  > Een tweede koper heeft zich gemeld voor de overname van Easyjet. Nadat de Amerikaanse investeringsmaatschappij Castlelake eind mei zei de...
-- [Arrestaties vanwege explosies in Damascus tijdens bezoek Macron](https://nos.nl/l/2622424)
-  > De Syrische autoriteiten hebben meerdere verdachten gearresteerd die worden verdacht van explosies in de hoofdstad Damascus afgelopen dinsdag....
-- [Wekdienst 10/7: Spanje speelt tegen België • Hugo de Jonge voor corona-enquête](https://nos.nl/l/2622417)
-  > Goedemorgen! In de kwartfinale van het WK staan vandaag Europees kampioen Spanje en België tegenover elkaar. En in Rotterdam opent koningin Máxima de...
-- [Zeker 12 doden door bosbranden in zuiden van Spanje, nog 19 vermisten](https://nos.nl/l/2622414)
-  > Door een grote bosbrand in het zuiden van Spanje zijn zeker twaalf mensen omgekomen. Er worden 19 mensen vermist melden de regionale autoriteiten in...
-- [Hier en daar onrustig na wedstrijd Marokko, aanhoudingen in Amsterdam, Den Haag en Utrecht](https://nos.nl/l/2622413)
-  > Na de 2-0 nederlaag van Marokko tegen Frankrijk in de kwartfinale van het WK zijn in meerdere steden fans de straat op gegaan. Onder meer in...
+- [Egyptische Nederlander al 9 maanden zonder aanklacht vast in Egypte](https://nos.nl/l/2622447)
+  > De Egyptische Nederlander Omar Elshal (33) zit al bijna negen maanden in detentie in Egypte. Deze maand verschijnt hij voor het eerst voor een...
+- [Brievenbus kleppert minder vaak: 'Eén keer per week is niet uit te sluiten'](https://nos.nl/l/2622446)
+  > Vanaf volgende week kleppert de brievenbus niet meer elke dag, maar om de dag. PostNL krijgt vanaf zondag twee werkdagen de tijd om een geposte...
+- [Europese Commissie: verslavend ontwerp Facebook en Instagram in strijd met EU-regels](https://nos.nl/l/2622443)
+  > Meta, het bedrijf van Facebook en Instagram, houdt onvoldoende rekening met de invloed die het verslavende ontwerp van hun apps heeft op het welzijn...
+- [Relschoppers noodopvang IJsselstein krijgen gebiedsverbod](https://nos.nl/l/2622440)
+  > Meerdere overlastgevers die maandag protesteerden tegen de vluchtelingenopvang in IJsselstein, mogen voorlopig niet in de buurt van de opvang komen....
+- [België wil verplicht tolvignet volgend jaar mei invoeren, ook dagpas mogelijk](https://nos.nl/l/2622439)
+  > Wie gebruikmaakt van de wegen in België moet vanaf volgend jaar mei een tolvignet aanschaffen. Daar wordt mogelijk vandaag in de Vlaamse regering een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [PSV speurt voor twee posities en beraadt zich over Boadu, PEC Zwolle haalt middenvelder op uit Denemarken](https://www.ad.nl/voetbal/psv-speurt-voor-twee-posities-en-beraadt-zich-over-boadu-pec-zwolle-haalt-middenvelder-op-uit-denemarken~ad10f02c/)
-  > Het WK is in volle gang, maar er is ook het nodige transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
-- [Spanje in rouw: 11 doden door bosbranden, slachtoffers probeerden met auto te vluchten](https://www.ad.nl/buitenland/spanje-in-rouw-11-doden-door-bosbranden-slachtoffers-probeerden-met-auto-te-vluchten~ab893331/)
-  > In Spanje wordt geschokt gereageerd op de dodelijke natuurbranden in het zuiden. Het dodental staat op elf en een tiental mensen raakte gewond....
-- [Vignet voor Belgische wegen komt er echt: dit gaat het kosten](https://www.ad.nl/auto/vignet-voor-belgische-wegen-komt-er-echt-dit-gaat-het-kosten~a47f0855/)
-  > Het hing al even in de lucht, maar er is nu meer duidelijkheid over het tolvignet dat België wil invoeren. Uit plannen blijkt dat het vignet op 1 mei...
-- [Recreatiebos plots afgesloten met hekken, camera’s en luidsprekers: ‘Noord-Koreaanse toestanden’](https://www.ad.nl/binnenland/recreatiebos-plots-afgesloten-met-hekken-cameras-en-luidsprekers-noord-koreaanse-toestanden~a27fb11d/)
-  > Hekken, camera’s, een sluisconstructie, elektrische sloten en zelfs een luidspreker waar waarschuwende teksten uit galmen. ‘Noord-Koreaanse...
-- [Frankrijk dé topfavoriet, maar is dreamteam beter dan het Oranje van Cruijff? Wat is beste WK-team ooit?](https://www.ad.nl/wk-voetbal/frankrijk-de-topfavoriet-maar-is-dreamteam-beter-dan-het-oranje-van-cruijff-wat-is-beste-wk-team-ooit~a6c40bd5/)
-  > Frankrijk maakte ook in het WK-duel met Marokko (2-0) veel indruk en wordt alom beschouwd als dé favoriet voor de wereldtitel. Les Bleus beschikken...
+- [Nederland staat nu machteloos, maar straks kunnen militairen Russisch schaduwschip enteren en aan ketting leggen](https://www.ad.nl/politiek/nederland-staat-nu-machteloos-maar-straks-kunnen-militairen-russisch-schaduwschip-enteren-en-aan-ketting-leggen~a6ae9a5c/)
+  > Nederlandse militairen kunnen straks schepen uit de Russische schaduwvloot enteren, óók als die buiten de Nederlandse wateren varen. Nu zijn de...
+- [Verkoelende mist vanaf de Domtoren: de remedie tegen stedelijke hitte?](https://www.ad.nl/binnenland/verkoelende-mist-vanaf-de-domtoren-de-remedie-tegen-stedelijke-hitte~a41d18ee/)
+  > Zullen we een hittegolf beter doorstaan als er vanaf de Euromast of de Domtoren een verkoelende nevel over de stad wordt uitgesproeid? Terwijl...
+- [Britse politie onderzoekt donaties van moeder veroordeelde fraudeur aan partij van Nigel Farage](https://www.ad.nl/buitenland/britse-politie-onderzoekt-donaties-van-moeder-veroordeelde-fraudeur-aan-partij-van-nigel-farage~a977c52f/)
+  > De Britse politie onderzoekt een half miljoen pond (586.000 euro) aan donaties aan de Reform UK-partij van Nigel Farage. Het geld komt volgens de...
+- [Laat u niets wijs maken, dit is het slechtst georganiseerde WK van deze eeuw](https://www.ad.nl/wk-voetbal/laat-u-niets-wijs-maken-dit-is-het-slechtst-georganiseerde-wk-van-deze-eeuw~a91ab509/)
+  > Columnist Sjoerd Mossou stelt vast dat dit WK in heel veel opzichten dramatisch is georganiseerd, veel slechter dan eerdere toernooien. „Beveiligers,...
+- [Snelle mannen weer aan zet: pakt Olav Kooij in ‘sprinthoofdstad’ van de Tour zijn tweede ritzege?](https://www.ad.nl/tour-de-france/snelle-mannen-weer-aan-zet-pakt-olav-kooij-in-sprinthoofdstad-van-de-tour-zijn-tweede-ritzege~a5ccacbf/)
+  > De Tour de France gaat vrijdag verder met de zevende etappe. De kans is groot dat de snelle mannen weer aan de bak kunnen. Wordt het een massasprint...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Apollo meldt zich met hoger bod voor EasyJet](https://fd.nl/bedrijfsleven/1603473/apollo-meldt-zich-met-hoger-bod-voor-easyjet)
-  > Apollo mengt zich in de pogingen van Castlelake om EasyJet in te lijven en doet een rivaliserend bod op de Britse budgetluchtvaartmaatschappij.
-- [Rollenspel als kunst, afvalverlichting en een horloge uit Dordrecht](https://fd.nl/samenleving/1603196/rollenspel-als-kunst-afvalverlichting-en-een-horloge-uit-dordrecht)
-  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
-- [Aantal faillissementen neemt af](https://fd.nl/bedrijfsleven/1603555/aantal-faillissementen-neemt-af)
-  > De faillissementsgraad is in juni afgenomen.
-- [De politicus als buikspreekpop van de technologie](https://fd.nl/opinie/1601667/de-politicus-als-buikspreekpop-van-de-technologie)
-  > Als AI de taal van politici gaat bepalen, verandert niet alleen hun boodschap, maar ook de aard van het politieke spreken zelf.
-- [Zeker 12 doden na bosbranden in Spanje](https://fd.nl/samenleving/1603471/zeker-12-doden-na-bosbranden-in-spanje)
-  > Zo’n 150 brandweermannen zijn ingezet om het vuur te blussen, tot nu toe zonder succes. Uit voorzorg zijn volgens de Spaanse krant El País zo’n 1000...
+- [Rechtbank fluit OM terug in vervolging beurshandelaar Frank Vogel](https://fd.nl/bedrijfsleven/1603580/rechtbank-fluit-om-terug-in-vervolging-beurshandelaar-frank-vogel)
+  > Het OM wilde haast maken in een mediagevoelige zaak die draait om ‘dividendstrippen’. Maar de rechtbank trekt alsnog aan de noodrem.
+- [Verliezen, verduurzamen én vervolgd worden. De businesscase van Tata Steel dreigt af te brokkelen](https://fd.nl/opinie/1603445/verliezen-verduurzamen-en-vervolgd-worden-de-businesscase-van-tata-steel-dreigt-af-te-brokkelen)
+  > Terwijl de regering met Tata Steel onderhandelt over een deal van €2 mrd, onderstreept de strafrechtelijke vervolging van Tata Steel waarom Den Haag...
+- [Voorzitter Warsh strikt grote namen om zijn Federal Reserve een spiegel voor te houden](https://fd.nl/financiele-markten/1603563/voorzitter-warsh-strikt-grote-namen-om-zijn-federal-reserve-een-spiegel-voor-te-houden)
+  > Vijf werkgroepen gaan de beleidsterreinen van de Fed doorlichten. Daarvoor zijn onder meer techinvesteerder Marc Andreessen en centrale bankiers...
+- [Facebook en Instagram te verslavend voor kinderen, zegt Brussel](https://fd.nl/tech-en-innovatie/1603561/facebook-en-instagram-te-verslavend-voor-kinderen-zegt-brussel)
+  > De Europese Commissie wil dat Meta het ontwerp van de socialemediaplatforms aanpast. Zij pleit er onder meer voor om functies zoals autoplay en...
+- [De Nexperia-storm is gaan liggen, maar nu dreigt een orkaan](https://fd.nl/bedrijfsleven/1603455/de-nexperia-storm-is-gaan-liggen-maar-nu-dreigt-een-orkaan)
+  > De ruzie tussen China en de EU over goedkope import dreigt uit de hand te lopen. Toch probeerden ondernemers en ministers tijdens een handelsmissie...
 
 ### Meest gelezen
 
