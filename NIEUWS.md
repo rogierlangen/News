@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-07-2026 om 17:56*
+*Laatst bijgewerkt: 11-07-2026 om 19:14*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Gevlucht voor dodelijke natuurbrand Zuid-Spanje: 'Buren kwamen waarschuwen'](https://nos.nl/l/2622665)
+  > Twee dagen na het uitbreken van de hevige branden in de Spaanse provincie Almería krijgt de brandweer het vuur steeds beter onder controle. Mensen...
 - [Polen komt met monument voor slachtoffers van Oekraïense massamoorden](https://nos.nl/l/2622657)
   > Polen gaat in Warschau een monument oprichten voor de slachtoffers van bloedbaden die Oekraïense nationalisten in de Tweede Wereldoorlog aanrichtten....
 - [Naderende Russische verkiezingen maken klimaat Moskou nog grimmiger](https://nos.nl/l/2622654)
@@ -16,8 +18,6 @@
   > In het centrum van Den Haag is de genocide in Srebrenica uit 1995 herdacht. Daarbij waren honderden mensen aanwezig. Op het Lange Voorhout spraken...
 - [Podcast Oog: Connie Palmen in de prijzen & 50 jaar North Sea Jazz](https://nos.nl/l/2622634)
   > In de podcast Het Beste uit Het Oog gaat het deze week over Tata Steel, dat strafrechtelijk wordt vervolgd. Volgens justitie stoot het bedrijf...
-- [Man ernstig mishandeld na Amersfoort Pride en zwaargewond achtergelaten](https://nos.nl/l/2622632)
-  > Een man is vannacht ernstig mishandeld en zwaargewond achtergelaten in Amersfoort. Hij had de Pride bezocht en is op de terugweg vermoedelijk van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nederlandse ploeggenoot ziet ongrijpbare kwaliteit bij sprintkunstenaar Merlier](https://www.ad.nl/tour-de-france/nederlandse-ploeggenoot-ziet-ongrijpbare-kwaliteit-bij-sprintkunstenaar-merlier~a9181542/)
-  > Tim Merlier is een fijne kopman voor zijn Nederlandse ploeggenoten. Heel ingewikkeld is de opdracht die hij Dylan van Baarle en Pascal Eenkhoorn...
-- [Jetten kan ontspannen vakantie wel vergeten: ‘Je kunt nooit helemaal uitstaan als premier’](https://www.ad.nl/politiek/jetten-kan-ontspannen-vakantie-wel-vergeten-je-kunt-nooit-helemaal-uitstaan-als-premier~a50a33b6/)
-  > Ook als premier kan Rob Jetten op vakantie. Maar zijn voorgangers weten: het is een vakantie met milde stress, de telefoon mag niet uit en de geheime...
-- [Erling Haaland op één in de Noorse hitlijsten, Colombiaanse WK-ganger met de dood bedreigd](https://www.ad.nl/wk-voetbal/erling-haaland-op-een-in-de-noorse-hitlijsten-colombiaanse-wk-ganger-met-de-dood-bedreigd~a2d5cab9/)
-  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
-- [NYT-journalisten moeten voor de rechter verschijnen na artikelen over veiligheidsproblemen van Trumps nieuwe vliegtuig](https://www.ad.nl/buitenland/nyt-journalisten-moeten-voor-de-rechter-verschijnen-na-artikelen-over-veiligheidsproblemen-van-trumps-nieuwe-vliegtuig~ae67dd9c/)
-  > De Amerikaanse regering van Donald Trump heeft meerdere journalisten van The New York Times gedagvaard, nadat zij hadden bericht over...
 - [Kwartfinale tussen Engeland en Noorwegen loopt mogelijk vertraging op wegens extreme hitte in Miami](https://www.ad.nl/wk-voetbal/kwartfinale-tussen-engeland-en-noorwegen-loopt-mogelijk-vertraging-op-wegens-extreme-hitte-in-miami~a4b96d66/)
   > Noorwegen zorgde in de vorige ronde van het WK voor een stunt door grootmacht Brazilië uit te schakelen. Vanavond staat de kwartfinale op het...
+- [Haaland op één in hitlijsten, Shearer vindt het tijd voor Ronaldo om te stoppen: ‘Dit WK een toernooi te veel’](https://www.ad.nl/wk-voetbal/haaland-op-een-in-hitlijsten-shearer-vindt-het-tijd-voor-ronaldo-om-te-stoppen-dit-wk-een-toernooi-te-veel~a2d5cab9/)
+  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
+- [Ajax gelinkt aan WK-uitblinker Marokko, Duitse bond ‘op hoofdlijnen’ akkoord met Klopp](https://www.ad.nl/voetbal/ajax-gelinkt-aan-wk-uitblinker-marokko-duitse-bond-op-hoofdlijnen-akkoord-met-klopp~ad10f02c/)
+  > Het WK is in volle gang, maar er is ook flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Glennis Grace: ‘Dankzij het boksen haal ik die hoge noten met gemak’](https://www.ad.nl/gezond/glennis-grace-dankzij-het-boksen-haal-ik-die-hoge-noten-met-gemak~af354500/)
+  > Ze bokst twee keer per week, vindt  het minstens zo belangrijk haar mentale staat te trainen en baalt van haar ontstekingsziekte. ‘Gelukkig is het...
+- [171,50 euro voor een nacht in een oude legerheli: ‘Leuk voor een kind van tien, minder voor een romantische date’](https://www.ad.nl/binnenland/171-50-euro-voor-een-nacht-in-een-oude-legerheli-leuk-voor-een-kind-van-tien-minder-voor-een-romantische-date~a742b856/)
+  > Als je van luchtvaart houdt, is het een topper: een nacht in een authentieke RAF Lynx-helikopter. In de heli, die tot vakantiehuisje is omgetoverd,...
 
 ### Meest gelezen
 
