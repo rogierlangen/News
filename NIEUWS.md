@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-07-2026 om 11:08*
+*Laatst bijgewerkt: 11-07-2026 om 13:35*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Rode Kruis: 'Gênant dat onveilige situatie in Ter Apel niet kan worden opgelost'](https://nos.nl/l/2622599)
-  > Het Rode Kruis noemt het "gênant" dat Nederland er niet in slaagt om een veilige plek te regelen voor de asielzoekers die op het voorterrein van het...
+- [Na verlenging op verlenging nu echt de laatste show van Soldaat van Oranje](https://nos.nl/l/2622605)
+  > Na bijna zestien jaar en verlenging op verlenging valt dit weekend definitief het doek voor de musical Soldaat van Oranje. De langstlopende musical...
+- [Rode Kruis: 'Genant dat onveilige situatie in Ter Apel niet kan worden opgelost'](https://nos.nl/l/2622599)
+  > Het Rode Kruis noemt het "genant" dat Nederland er niet in slaagt om een veilige plek te regelen voor de asielzoekers die op het voorterrein van het...
 - [Drie aangespoelde bruinvissen na maanden terug naar zee: 'Bijzonder moment'](https://nos.nl/l/2622598)
   > Drie bruinvissen die afgelopen voorjaar aanspoelden op verschillende plekken langs de Nederlandse kust, hebben het opvangcentrum van stichting SOS...
 - [Al 6600 hectare grond verwoest door dodelijke natuurbrand in Zuid-Spanje](https://nos.nl/l/2622594)
-  > De natuurbrand die in het zuiden van Spanje die aan minstens twaalf mensen het leven heeft gekost, heeft volgens de hulpdiensten al 6600 hectare land...
+  > De natuurbrand die in het zuiden van Spanje aan minstens twaalf mensen het leven heeft gekost, heeft volgens de hulpdiensten al 6600 hectare land in...
 - [Meta stopt met AI-functie voor foto's op Instagram na kritiek](https://nos.nl/l/2622590)
   > Meta stopt na een paar dagen alweer met het nieuwe AI-programma voor foto's op Instagram. De functie kreeg veel kritiek omdat die de privacy van...
-- [Laptops, spelcomputers en smartphones veel duurder door AI-datacenters](https://nos.nl/l/2622587)
-  > Een nieuwe laptop, een PlayStation 5 of smartphone is tegenwoordig een stuk duurder dan een paar maanden geleden. Dat komt doordat een belangrijk...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nieuwe rit voor snelle mannen, Olav Kooij kijkt uit naar ‘mooie sprintkans: ‘Zaak om in bochten vooraan te zitten’](https://www.ad.nl/tour-de-france/nieuwe-rit-voor-snelle-mannen-olav-kooij-kijkt-uit-naar-mooie-sprintkans-zaak-om-in-bochten-vooraan-te-zitten~a97db0b3/)
+- [Voorbereiding eredivisie | Teleurstellende oefenreeks NEC duurt voort, AZ troeft Almere City af](https://www.ad.nl/voetbal/voorbereiding-eredivisie-teleurstellende-oefenreeks-nec-duurt-voort-az-troeft-almere-city-af~ab5071ea/)
+  > De eredivisieclubs zijn begonnen aan de voorbereiding op het nieuwe seizoen. In dit artikel lees je het programma en alle uitslagen per club. Onder...
+- [Nieuwe trauma-app vergroot kans op overleving na zwaar ongeluk: ‘Je bent sneller in het juiste ziekenhuis’](https://www.ad.nl/rotterdam/nieuwe-trauma-app-vergroot-kans-op-overleving-na-zwaar-ongeluk-je-bent-sneller-in-het-juiste-ziekenhuis~ab5e63e8/)
+  > Bijna vier op de tien zwaargewonde patiënten belanden in een ziekenhuis dat niet is toegerust voor hun letsel. De gevolgen? Een spoedoverplaatsing,...
+- [Grote schok in voetbalwereld: Zuid-Afrikaan (25) die alle poulewedstrijden op WK meespeelde overleden](https://www.ad.nl/wk-voetbal/grote-schok-in-voetbalwereld-zuid-afrikaan-25-die-alle-poulewedstrijden-op-wk-meespeelde-overleden~a07149a6/)
+  > De Zuid-Afrikaanse voetballer Jayden Adams is op 25-jarige leeftijd overleden. Hij was onlangs nog met zijn land actief op het WK. Over de oorzaak...
+- [Hij heeft de uitstraling van een hypotheekadviseur en heel Engeland vindt dat prima](https://www.ad.nl/wk-voetbal/hij-heeft-de-uitstraling-van-een-hypotheekadviseur-en-heel-engeland-vindt-dat-prima~a89cb261/)
+  > Sinds de heroïsche zege op Mexico gelooft heel Engeland weer in de eerste wereldtitel in zestig jaar. Met dank aan Harry Kane (32), misschien wel de...
+- [Sprintersploegen houden kopgroep binnen schot, Vinokourov heeft vizier niet op scherp staan](https://www.ad.nl/tour-de-france/sprintersploegen-houden-kopgroep-binnen-schot-vinokourov-heeft-vizier-niet-op-scherp-staan~a97db0b3/)
   > De Tour de France is toe aan de achtste etappe. Net als vrijdag is het parkoers op maat voor de snelle mannen. Een massasprint in aankomstplaats...
-- [Een nier van je beste vriend: ‘Toen ik hem zag liggen, dacht ik wow, jij hebt dit echt voor mij gedaan’](https://www.ad.nl/binnenland/een-nier-van-je-beste-vriend-toen-ik-hem-zag-liggen-dacht-ik-wow-jij-hebt-dit-echt-voor-mij-gedaan~a3b693e7/)
-  > Wanneer duidelijk wordt hoe kritiek de situatie van Joey is, weet Teun het zeker: hij wil zijn maat aan een nieuwe nier helpen. Vrienden voor het...
-- [Opinie: ‘Goedkoper van het gas af kan met een collectieve aanpak’](https://www.ad.nl/praat-mee/opinie-goedkoper-van-het-gas-af-kan-met-een-collectieve-aanpak~ae8d227f/)
-  > Vier op de vijf woningen kunnen via bestaande aansluitingen op een warmtepomp worden aangesloten. Van het gas af kan sneller, als er een collectieve...
-- [Verdachte van gijzeling supermarkt Berlijn na 12 uur overmeesterd, slachtoffer in shock naar ziekenhuis](https://www.ad.nl/buitenland/verdachte-van-gijzeling-supermarkt-berlijn-na-12-uur-overmeesterd-slachtoffer-in-shock-naar-ziekenhuis~a240cd5d/)
-  > De gijzeling in een supermarkt in het zuiden van Berlijn is na bijna twaalf uur voorbij. „De dader is overmeesterd en de gijzelaar is bevrijd”, aldus...
-- [Britten zien rabarber dan wel als fruit, maar de grote bladen sieren ook je tuin](https://www.ad.nl/wonen/britten-zien-rabarber-dan-wel-als-fruit-maar-de-grote-bladen-sieren-ook-je-tuin~a790738f/)
-  > Van rabarber maak je heerlijke crumble of compote, maar de rabarberplant misstaat ook niet in de tuin. Tuinexpert Romke van de Kaa weet welke het...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [China evacueert 1,8 miljoen inwoners vanwege naderende tyfoon Bavi](https://fd.nl/samenleving/1603977/china-evacueert-1-8-miljoen-inwoners-vanwege-naderende-tyfoon-bavi)
+  > Hoewel Bavi steeds langzamer gaat en aan kracht verliest, vormt de tyfoon nog steeds een aanzienlijk risico.
 - [Gebrek aan diagnose voorkomt herstel onzichtbare ziekte FNS: ‘Ik wil weer mopperen over de koffie op mijn werk’](https://fd.nl/samenleving/1603440/gebrek-aan-diagnose-voorkomt-herstel-onzichtbare-ziekte-fns-ik-wil-weer-mopperen-over-de-koffie-op-mijn-werk)
   > Functioneel neurologische stoornis (FNS) is een van de meest voorkomende ziektebeelden in de behandelkamer van de neuroloog. Toch herkennen artsen de...
 - [Trump: VS en Iran hervatten gesprekken](https://fd.nl/politiek/1603976/trump-vs-en-iran-hervatten-gesprekken)
@@ -53,8 +55,6 @@
   > Het bedrijf beschuldigt de ontwikkelaar van ChatGPT ervan gestolen informatie voor toekomstige hardwareproducten te gebruiken.
 - [‘Box 3-behandeling dreigt tweede toeslagenaffaire te worden’ – en andere lezersreacties](https://fd.nl/opinie/1603579/de-box-3-behandeling-dreigt-een-tweede-toeslagenaffaire-te-worden-en-andere-lezersreacties)
   > FD-lezers reageren op de laatste ontwikkelingen rond box 3, wijnboeren die vergeleken worden met drugsproducenten, de voordelen van het relatiebeding...
-- [China droomt van vrachtschip dat elektrisch van Shanghai naar Rotterdam vaart](https://fd.nl/tech-en-innovatie/1595376/ook-chinas-binnenvaart-moet-aan-de-stekker)
-  > De vergroening in China gaat hard. Op de Chinese rivieren en kanalen voltrekt zich een stille revolutie. Steeds meer vrachtschepen varen op...
 
 ### Meest gelezen
 
