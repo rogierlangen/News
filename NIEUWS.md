@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-07-2026 om 20:54*
+*Laatst bijgewerkt: 11-07-2026 om 21:54*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Noorse politie blundert en vindt verkeerde bij zoektocht naar vermiste 85-jarige](https://nos.nl/l/2622676)
+  > Door een vergissing is de zoektocht naar een vermiste 85-jarige man in Noorwegen uren vertraagd. De Noorse hulpdiensten dachten de man na een paar...
 - [Braziliaanse vrouw (62) gered die 55 jaar als slaaf werkte voor rijke familie](https://nos.nl/l/2622671)
   > Een Braziliaanse vrouw van 62 is bevrijd nadat ze 55 jaar als slaafgemaakte had gewerkt bij drie generaties van dezelfde familie. De zaak kwam aan...
 - [Witte Huis dagvaardt journalisten New York Times om artikel over Air Force One](https://nos.nl/l/2622666)
@@ -16,8 +18,6 @@
   > Twee dagen na het uitbreken van de hevige branden in de Spaanse provincie Almería krijgt de brandweer het vuur steeds beter onder controle. Mensen...
 - [Polen komt met nieuw monument voor slachtoffers van Oekraïense massamoorden](https://nos.nl/l/2622657)
   > Polen gaat in Warschau een monument oprichten voor de slachtoffers van bloedbaden die Oekraïense nationalisten in de Tweede Wereldoorlog aanrichtten....
-- [Naderende Russische verkiezingen maken klimaat Moskou nog grimmiger](https://nos.nl/l/2622654)
-  > De Russische parlementsverkiezingen werpen hun schaduw vooruit. Ze zijn pas half september, maar de repressie neemt nu al toe. President Poetin wil...
 
 ### Meest gelezen
 
@@ -27,9 +27,9 @@
 
 ### Laatste nieuws
 
-- [Haaland tegen drie City-verdedigers, Madueke krijgt voorkeur boven Saka bij Engeland](https://www.ad.nl/wk-voetbal/haaland-tegen-drie-city-verdedigers-madueke-krijgt-voorkeur-boven-saka-bij-engeland~a4b96d66/)
-  > Noorwegen zorgde in de vorige ronde van het WK voor een stunt door grootmacht Brazilië uit te schakelen. Vanavond staat de kwartfinale op het...
-- ['Geen woorden voor pijn die ik nu voel': vrouw overleden WK-voetballer neemt afscheid in emotioneel bericht](https://www.ad.nl/wk-voetbal/geen-woorden-voor-pijn-die-ik-nu-voel-vrouw-overleden-wk-voetballer-neemt-afscheid-in-emotioneel-bericht~a07149a6/)
+- [Jude Bellingham maakt net voor rust gelijk namens Engeland tegen Noorwegen](https://www.ad.nl/wk-voetbal/jude-bellingham-maakt-net-voor-rust-gelijk-namens-engeland-tegen-noorwegen~a4b96d66/)
+  > Noorwegen en Engeland strijden in Miami om een plek in de halve finales van het WK, waarin Argentinië of Zwitserland dan wacht. Volg hier ons...
+- [‘Geen woorden voor pijn die ik nu voel’: vrouw overleden WK-voetballer neemt afscheid in emotioneel bericht](https://www.ad.nl/wk-voetbal/geen-woorden-voor-pijn-die-ik-nu-voel-vrouw-overleden-wk-voetballer-neemt-afscheid-in-emotioneel-bericht~a07149a6/)
   > De Zuid-Afrikaanse voetballer Jayden Adams is op 25-jarige leeftijd overleden. Hij was onlangs nog met zijn land actief op het WK. Over de oorzaak...
 - [Het doek is gevallen voor musical Soldaat van Oranje, en ditmaal écht](https://www.ad.nl/show/het-doek-is-gevallen-voor-musical-soldaat-van-oranje-en-ditmaal-echt~a0bd0b56/)
   > Aan alles komt een eind, zelfs aan de langstlopende theaterproductie uit de Nederlandse geschiedenis. Na een ongekende reeks van bijna zestien jaar,...
