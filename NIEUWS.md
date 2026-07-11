@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-07-2026 om 19:14*
+*Laatst bijgewerkt: 11-07-2026 om 20:54*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Braziliaanse vrouw (62) gered die 55 jaar als slaaf werkte voor rijke familie](https://nos.nl/l/2622671)
+  > Een Braziliaanse vrouw van 62 is bevrijd nadat ze 55 jaar als slaafgemaakte had gewerkt bij drie generaties van dezelfde familie. De zaak kwam aan...
+- [Witte Huis dagvaardt journalisten New York Times om artikel over Air Force One](https://nos.nl/l/2622666)
+  > Het Witte Huis heeft vier journalisten van de Amerikaanse krant The New York Times gedagvaard. De krant berichtte deze week over gebrekkige...
 - [Gevlucht voor dodelijke natuurbrand Zuid-Spanje: 'Buren kwamen waarschuwen'](https://nos.nl/l/2622665)
   > Twee dagen na het uitbreken van de hevige branden in de Spaanse provincie Almería krijgt de brandweer het vuur steeds beter onder controle. Mensen...
-- [Polen komt met monument voor slachtoffers van Oekraïense massamoorden](https://nos.nl/l/2622657)
+- [Polen komt met nieuw monument voor slachtoffers van Oekraïense massamoorden](https://nos.nl/l/2622657)
   > Polen gaat in Warschau een monument oprichten voor de slachtoffers van bloedbaden die Oekraïense nationalisten in de Tweede Wereldoorlog aanrichtten....
 - [Naderende Russische verkiezingen maken klimaat Moskou nog grimmiger](https://nos.nl/l/2622654)
   > De Russische parlementsverkiezingen werpen hun schaduw vooruit. Ze zijn pas half september, maar de repressie neemt nu al toe. President Poetin wil...
-- [Genocide Srebrenica herdacht, 'veel verdriet, maar ook veel verantwoordelijkheid'](https://nos.nl/l/2622645)
-  > In het centrum van Den Haag is de genocide in Srebrenica uit 1995 herdacht. Daarbij waren honderden mensen aanwezig. Op het Lange Voorhout spraken...
-- [Podcast Oog: Connie Palmen in de prijzen & 50 jaar North Sea Jazz](https://nos.nl/l/2622634)
-  > In de podcast Het Beste uit Het Oog gaat het deze week over Tata Steel, dat strafrechtelijk wordt vervolgd. Volgens justitie stoot het bedrijf...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Kwartfinale tussen Engeland en Noorwegen loopt mogelijk vertraging op wegens extreme hitte in Miami](https://www.ad.nl/wk-voetbal/kwartfinale-tussen-engeland-en-noorwegen-loopt-mogelijk-vertraging-op-wegens-extreme-hitte-in-miami~a4b96d66/)
+- [Haaland tegen drie City-verdedigers, Madueke krijgt voorkeur boven Saka bij Engeland](https://www.ad.nl/wk-voetbal/haaland-tegen-drie-city-verdedigers-madueke-krijgt-voorkeur-boven-saka-bij-engeland~a4b96d66/)
   > Noorwegen zorgde in de vorige ronde van het WK voor een stunt door grootmacht Brazilië uit te schakelen. Vanavond staat de kwartfinale op het...
+- ['Geen woorden voor pijn die ik nu voel': vrouw overleden WK-voetballer neemt afscheid in emotioneel bericht](https://www.ad.nl/wk-voetbal/geen-woorden-voor-pijn-die-ik-nu-voel-vrouw-overleden-wk-voetballer-neemt-afscheid-in-emotioneel-bericht~a07149a6/)
+  > De Zuid-Afrikaanse voetballer Jayden Adams is op 25-jarige leeftijd overleden. Hij was onlangs nog met zijn land actief op het WK. Over de oorzaak...
+- [Het doek is gevallen voor musical Soldaat van Oranje, en ditmaal écht](https://www.ad.nl/show/het-doek-is-gevallen-voor-musical-soldaat-van-oranje-en-ditmaal-echt~a0bd0b56/)
+  > Aan alles komt een eind, zelfs aan de langstlopende theaterproductie uit de Nederlandse geschiedenis. Na een ongekende reeks van bijna zestien jaar,...
+- [Reflect Orbital wil 50.000 lichtsatellieten in de ruimte, experts slaan alarm: ‘Ik vind het echt verschrikkelijk’](https://www.ad.nl/binnenland/reflect-orbital-wil-50-000-lichtsatellieten-in-de-ruimte-experts-slaan-alarm-ik-vind-het-echt-verschrikkelijk~a4cb61a9/)
+  > Nooit meer een écht donkere nacht: dat toekomstbeeld komt dichterbij nu de Amerikaanse communicatiewaakhond FCC toestemming heeft gegeven voor de...
 - [Haaland op één in hitlijsten, Shearer vindt het tijd voor Ronaldo om te stoppen: ‘Dit WK een toernooi te veel’](https://www.ad.nl/wk-voetbal/haaland-op-een-in-hitlijsten-shearer-vindt-het-tijd-voor-ronaldo-om-te-stoppen-dit-wk-een-toernooi-te-veel~a2d5cab9/)
   > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
-- [Ajax gelinkt aan WK-uitblinker Marokko, Duitse bond ‘op hoofdlijnen’ akkoord met Klopp](https://www.ad.nl/voetbal/ajax-gelinkt-aan-wk-uitblinker-marokko-duitse-bond-op-hoofdlijnen-akkoord-met-klopp~ad10f02c/)
-  > Het WK is in volle gang, maar er is ook flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
-- [Glennis Grace: ‘Dankzij het boksen haal ik die hoge noten met gemak’](https://www.ad.nl/gezond/glennis-grace-dankzij-het-boksen-haal-ik-die-hoge-noten-met-gemak~af354500/)
-  > Ze bokst twee keer per week, vindt  het minstens zo belangrijk haar mentale staat te trainen en baalt van haar ontstekingsziekte. ‘Gelukkig is het...
-- [171,50 euro voor een nacht in een oude legerheli: ‘Leuk voor een kind van tien, minder voor een romantische date’](https://www.ad.nl/binnenland/171-50-euro-voor-een-nacht-in-een-oude-legerheli-leuk-voor-een-kind-van-tien-minder-voor-een-romantische-date~a742b856/)
-  > Als je van luchtvaart houdt, is het een topper: een nacht in een authentieke RAF Lynx-helikopter. In de heli, die tot vakantiehuisje is omgetoverd,...
 
 ### Meest gelezen
 
