@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-07-2026 om 16:01*
+*Laatst bijgewerkt: 11-07-2026 om 17:56*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Polen komt met monument voor slachtoffers van Oekraïense massamoorden](https://nos.nl/l/2622657)
+  > Polen gaat in Warschau een monument oprichten voor de slachtoffers van bloedbaden die Oekraïense nationalisten in de Tweede Wereldoorlog aanrichtten....
+- [Naderende Russische verkiezingen maken klimaat Moskou nog grimmiger](https://nos.nl/l/2622654)
+  > De Russische parlementsverkiezingen werpen hun schaduw vooruit. Ze zijn pas half september, maar de repressie neemt nu al toe. President Poetin wil...
+- [Genocide Srebrenica herdacht, 'veel verdriet, maar ook veel verantwoordelijkheid'](https://nos.nl/l/2622645)
+  > In het centrum van Den Haag is de genocide in Srebrenica uit 1995 herdacht. Daarbij waren honderden mensen aanwezig. Op het Lange Voorhout spraken...
 - [Podcast Oog: Connie Palmen in de prijzen & 50 jaar North Sea Jazz](https://nos.nl/l/2622634)
   > In de podcast Het Beste uit Het Oog gaat het deze week over Tata Steel, dat strafrechtelijk wordt vervolgd. Volgens justitie stoot het bedrijf...
 - [Man ernstig mishandeld na Amersfoort Pride en zwaargewond achtergelaten](https://nos.nl/l/2622632)
   > Een man is vannacht ernstig mishandeld en zwaargewond achtergelaten in Amersfoort. Hij had de Pride bezocht en is op de terugweg vermoedelijk van...
-- [Vijftien Indiase toeristen omgekomen bij bootongeluk bij Vietnamese kust](https://nos.nl/l/2622631)
-  > Vlak bij de Vietnamese kust is een speedboot gekapseisd. Daarbij zijn vijftien Indiase toeristen om het leven gekomen. Dat melden Vietnamese media.
- ...
-- [Zeven doden bij nachtelijke aanvallen tussen Rusland en Oekraïne](https://nos.nl/l/2622628)
-  > Bij Russische luchtaanvallen op Oekraïne zijn zes mensen om het leven gekomen en tientallen anderen gewond geraakt, melden de autoriteiten in...
-- [Zeeuwen nemen jerrycans vol benzine mee uit België, brandweer niet blij](https://nos.nl/l/2622626)
-  > Voor veel Zeeuwse automobilisten uit de grensregio is het niets geks: naar België rijden om met goedkopere benzine terug te keren. Niet alleen in de...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tim Merlier snelt op indrukwekkende wijze naar nieuwe ritzege in Tour de France, Olav Kooij derde](https://www.ad.nl/tour-de-france/tim-merlier-snelt-op-indrukwekkende-wijze-naar-nieuwe-ritzege-in-tour-de-france-olav-kooij-derde~a97db0b3/)
-  > Tim Merlier heeft opnieuw toegeslagen in de Tour de France. De Belgische sprinter van Soudal Quick-Step schreef ook de achtste etappe op zijn naam,...
-- [LIVE Oorlog Oekraïne | Zes mensen omgekomen bij Russische aanvallen op Oekraïne, tientallen mensen gewond](https://www.ad.nl/buitenland/live-oorlog-oekraine-zes-mensen-omgekomen-bij-russische-aanvallen-op-oekraine-tientallen-mensen-gewond~adfb97be/)
-  > Rusland heeft Oekraïne zaterdag aangevallen met raketten en drones. Hierbij zijn volgens functionarissen zes mensen omgekomen en tientallen mensen...
-- [Klassementen Tour | Pogacar stevig in de gele trui, spannende strijd om het groen: dit zijn de verschillen](https://www.ad.nl/tour-de-france/klassementen-uitslag-tour-de-france-2026~a537c687/)
-  > De Tour de France is zaterdag begonnen met een ploegentijdrit. Over drie weken is de finish traditiegetrouw in Parijs. In totaal doen zeventien...
-- [Erling Haaland in Miami tegen teamgenoten van Manchester City](https://www.ad.nl/wk-voetbal/erling-haaland-in-miami-tegen-teamgenoten-van-manchester-city~a4b96d66/)
+- [Nederlandse ploeggenoot ziet ongrijpbare kwaliteit bij sprintkunstenaar Merlier](https://www.ad.nl/tour-de-france/nederlandse-ploeggenoot-ziet-ongrijpbare-kwaliteit-bij-sprintkunstenaar-merlier~a9181542/)
+  > Tim Merlier is een fijne kopman voor zijn Nederlandse ploeggenoten. Heel ingewikkeld is de opdracht die hij Dylan van Baarle en Pascal Eenkhoorn...
+- [Jetten kan ontspannen vakantie wel vergeten: ‘Je kunt nooit helemaal uitstaan als premier’](https://www.ad.nl/politiek/jetten-kan-ontspannen-vakantie-wel-vergeten-je-kunt-nooit-helemaal-uitstaan-als-premier~a50a33b6/)
+  > Ook als premier kan Rob Jetten op vakantie. Maar zijn voorgangers weten: het is een vakantie met milde stress, de telefoon mag niet uit en de geheime...
+- [Erling Haaland op één in de Noorse hitlijsten, Colombiaanse WK-ganger met de dood bedreigd](https://www.ad.nl/wk-voetbal/erling-haaland-op-een-in-de-noorse-hitlijsten-colombiaanse-wk-ganger-met-de-dood-bedreigd~a2d5cab9/)
+  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is in volle gang. Via dit liveblog houden we je op de hoogte van al het laatste nieuws!
+- [NYT-journalisten moeten voor de rechter verschijnen na artikelen over veiligheidsproblemen van Trumps nieuwe vliegtuig](https://www.ad.nl/buitenland/nyt-journalisten-moeten-voor-de-rechter-verschijnen-na-artikelen-over-veiligheidsproblemen-van-trumps-nieuwe-vliegtuig~ae67dd9c/)
+  > De Amerikaanse regering van Donald Trump heeft meerdere journalisten van The New York Times gedagvaard, nadat zij hadden bericht over...
+- [Kwartfinale tussen Engeland en Noorwegen loopt mogelijk vertraging op wegens extreme hitte in Miami](https://www.ad.nl/wk-voetbal/kwartfinale-tussen-engeland-en-noorwegen-loopt-mogelijk-vertraging-op-wegens-extreme-hitte-in-miami~a4b96d66/)
   > Noorwegen zorgde in de vorige ronde van het WK voor een stunt door grootmacht Brazilië uit te schakelen. Vanavond staat de kwartfinale op het...
-- [Anastasia was gekwetst toen vriendin haar met Haaland vergeleek, nu geniet ze van 115 miljoen views](https://www.ad.nl/show/anastasia-was-gekwetst-toen-vriendin-haar-met-haaland-vergeleek-nu-geniet-ze-van-115-miljoen-views~a0ceb294/)
-  > Twee onbekende modellen gaan hard viraal omdat ze volgens veel kijkers sterk lijken op voetballer Erling Haaland. De Russische Anastasia vond de...
 
 ### Meest gelezen
 
