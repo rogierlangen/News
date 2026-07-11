@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-07-2026 om 14:57*
+*Laatst bijgewerkt: 11-07-2026 om 16:01*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Podcast Oog: Connie Palmen in de prijzen & 50 jaar North Sea Jazz](https://nos.nl/l/2622634)
+  > In de podcast Het Beste uit Het Oog gaat het deze week over Tata Steel, dat strafrechtelijk wordt vervolgd. Volgens justitie stoot het bedrijf...
 - [Man ernstig mishandeld na Amersfoort Pride en zwaargewond achtergelaten](https://nos.nl/l/2622632)
   > Een man is vannacht ernstig mishandeld en zwaargewond achtergelaten in Amersfoort. Hij had de Pride bezocht en is op de terugweg vermoedelijk van...
 - [Vijftien Indiase toeristen omgekomen bij bootongeluk bij Vietnamese kust](https://nos.nl/l/2622631)
   > Vlak bij de Vietnamese kust is een speedboot gekapseisd. Daarbij zijn vijftien Indiase toeristen om het leven gekomen. Dat melden Vietnamese media.
  ...
-- [Drie doden bij nachtelijke aanvallen tussen Rusland en Oekraïne](https://nos.nl/l/2622628)
-  > Bij Russische luchtaanvallen op Oekraïne zijn twee mensen om het leven gekomen en twaalf gewond geraakt, melden de autoriteiten in Oekraïne. Rusland...
+- [Zeven doden bij nachtelijke aanvallen tussen Rusland en Oekraïne](https://nos.nl/l/2622628)
+  > Bij Russische luchtaanvallen op Oekraïne zijn zes mensen om het leven gekomen en tientallen anderen gewond geraakt, melden de autoriteiten in...
 - [Zeeuwen nemen jerrycans vol benzine mee uit België, brandweer niet blij](https://nos.nl/l/2622626)
   > Voor veel Zeeuwse automobilisten uit de grensregio is het niets geks: naar België rijden om met goedkopere benzine terug te keren. Niet alleen in de...
-- [Amerikaanse communicatiewaakhond geeft groen licht voor omstreden spiegelsatelliet](https://nos.nl/l/2622623)
-  > De Amerikaanse autoriteiten hebben groen licht gegeven voor een satelliet die zonlicht moet gaan weerkaatsen om bepaalde plekken 's nachts te kunnen...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Braziliaanse vrouw (62) bevrijd na 55 jaar onbetaald huishoudwerk voor dezelfde familie](https://www.ad.nl/buitenland/braziliaanse-vrouw-62-bevrijd-na-55-jaar-onbetaald-huishoudwerk-voor-dezelfde-familie~a27aef33/)
-  > Een Braziliaanse vrouw is op 62-jarige leeftijd bevrijd uit een leven van uitbuiting, nadat ze 55 jaar lang onbetaald als huishoudster werkte voor...
-- [Mathieu van der Poel reageert op Noorse aanval, Belg toont zich sterkste vluchter en gaat solo verder](https://www.ad.nl/tour-de-france/mathieu-van-der-poel-reageert-op-noorse-aanval-belg-toont-zich-sterkste-vluchter-en-gaat-solo-verder~a97db0b3/)
-  > De Tour de France is toe aan de achtste etappe. Net als vrijdag is het parkoers op maat voor de snelle mannen. Een massasprint in aankomstplaats...
-- [Gerard (61): ‘Op mijn 64ste wil ik stoppen met werken en emigreren naar Griekenland’](https://www.ad.nl/werk/gerard-61-op-mijn-64ste-wil-ik-stoppen-met-werken-en-emigreren-naar-griekenland~a99cd26b/)
-  > Gerard (61) werkt als hypotheekadviseur. Hij helpt mensen met het samenstellen van een hypotheek en adviseert wat verantwoord is om te lenen. Iedere...
-- [Muchova en Noskova strijden om eerste grandslamtitel in volledig Tsjechische finale](https://www.ad.nl/tennis/muchova-en-noskova-strijden-om-eerste-grandslamtitel-in-volledig-tsjechische-finale~a924ac5c/)
-  > Voor het eerst in de geschiedenis van Wimbledon staan twee Tsjechische vrouwen tegenover elkaar in de finale van het enkelspel. Karolina Muchova en...
-- [Duitse bond ‘op hoofdlijnen’ akkoord met nieuwe bondscoach Klopp, Oranje Leeuwin naar Real Madrid](https://www.ad.nl/voetbal/duitse-bond-op-hoofdlijnen-akkoord-met-nieuwe-bondscoach-klopp-oranje-leeuwin-naar-real-madrid~ad10f02c/)
-  > Het WK is in volle gang, maar er is ook flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Tim Merlier snelt op indrukwekkende wijze naar nieuwe ritzege in Tour de France, Olav Kooij derde](https://www.ad.nl/tour-de-france/tim-merlier-snelt-op-indrukwekkende-wijze-naar-nieuwe-ritzege-in-tour-de-france-olav-kooij-derde~a97db0b3/)
+  > Tim Merlier heeft opnieuw toegeslagen in de Tour de France. De Belgische sprinter van Soudal Quick-Step schreef ook de achtste etappe op zijn naam,...
+- [LIVE Oorlog Oekraïne | Zes mensen omgekomen bij Russische aanvallen op Oekraïne, tientallen mensen gewond](https://www.ad.nl/buitenland/live-oorlog-oekraine-zes-mensen-omgekomen-bij-russische-aanvallen-op-oekraine-tientallen-mensen-gewond~adfb97be/)
+  > Rusland heeft Oekraïne zaterdag aangevallen met raketten en drones. Hierbij zijn volgens functionarissen zes mensen omgekomen en tientallen mensen...
+- [Klassementen Tour | Pogacar stevig in de gele trui, spannende strijd om het groen: dit zijn de verschillen](https://www.ad.nl/tour-de-france/klassementen-uitslag-tour-de-france-2026~a537c687/)
+  > De Tour de France is zaterdag begonnen met een ploegentijdrit. Over drie weken is de finish traditiegetrouw in Parijs. In totaal doen zeventien...
+- [Erling Haaland in Miami tegen teamgenoten van Manchester City](https://www.ad.nl/wk-voetbal/erling-haaland-in-miami-tegen-teamgenoten-van-manchester-city~a4b96d66/)
+  > Noorwegen zorgde in de vorige ronde van het WK voor een stunt door grootmacht Brazilië uit te schakelen. Vanavond staat de kwartfinale op het...
+- [Anastasia was gekwetst toen vriendin haar met Haaland vergeleek, nu geniet ze van 115 miljoen views](https://www.ad.nl/show/anastasia-was-gekwetst-toen-vriendin-haar-met-haaland-vergeleek-nu-geniet-ze-van-115-miljoen-views~a0ceb294/)
+  > Twee onbekende modellen gaan hard viraal omdat ze volgens veel kijkers sterk lijken op voetballer Erling Haaland. De Russische Anastasia vond de...
 
 ### Meest gelezen
 
