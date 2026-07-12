@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-07-2026 om 06:37*
+*Laatst bijgewerkt: 12-07-2026 om 09:05*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Orkaan Bavi veroorzaakt overstromingen en schade na aankomst in China](https://nos.nl/l/2622714)
+  > Orkaan Bavi heeft het oosten van China bereikt. De storm bracht zware regen en harde wind naar de kustprovincie Zhejiang, waar bijna 2 miljoen mensen...
+- [Nieuwe verdachte aangehouden voor moord op Britse politica Ann Widdecombe](https://nos.nl/l/2622710)
+  > De Britse politie heeft een man aangehouden op verdenking van de moord op politica Ann Widdecombe. De verdachte werd opgepakt in South Yorkshire,...
+- [Invloedrijke Amerikaanse senator Lindsey Graham (71) overleden](https://nos.nl/l/2622708)
+  > De Amerikaanse senator Lindsey Graham is op 71-jarige leeftijd overleden. De Republikein stierf onverwacht na een kort ziekbed.
+        Wat hij...
 - [Tata Steel riskeert 'astronomische boete' en taakstraf voor bestuurders](https://nos.nl/l/2622704)
   > Tata Steel werd wel vaker voor de rechter gesleept, maar deze week gebeurde het voor de eerste keer in het kader van het strafrecht. Als het bedrijf...
 - [Doden en gewonden door schietpartij op straatfestival in Toronto](https://nos.nl/l/2622702)
   > Bij een schietpartij tijdens een straatfestival in de Canadese stad Toronto zijn twee mensen om het leven gekomen. Meerdere anderen raakten gewond....
-- [Nijntje en kunstwerken moeten de vele extra transformatorhuisjes leuker maken](https://nos.nl/l/2622698)
-  > De komst van nieuwe elektriciteitshuisjes leidde de afgelopen jaren in meerdere gemeenten tot ophef. Netbeheerders zagen mensen in verweer komen...
-- [Wekdienst 12/7: Wimbledon-finale mannen • Laatste optreden Harrie Jekkers](https://nos.nl/l/2622696)
-  > Goedemorgen! Vandaag speelt Sinner tegen Zverev in de Wimbledon finale voor mannen. En in Den Haag treedt cabaretier Harrie Jekkers voor het laatst...
-- [Iran sluit Straat van Hormuz, bombardementen VS en luchtalarm in buurlanden](https://nos.nl/l/2622685)
-  > De Straat van Hormuz is voorlopig volledig dicht voor alle scheepvaart, zegt de Iraanse Revolutionaire Garde. Het elitekorps heeft opnieuw een...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [VS zegt 140 doelen in Iran te hebben aangevallen, Straat van Hormuz weer gesloten](https://www.ad.nl/buitenland/vs-zegt-140-doelen-in-iran-te-hebben-aangevallen-straat-van-hormuz-weer-gesloten~ac528ac3/)
-  > In meerdere Golfstaten zijn in de nacht van zaterdag op zondag luchtalarmen afgegaan en explosies gehoord, kort nadat de Verenigde Staten nieuwe...
-- [Ooit bejubeld door miljoenen Tour-liefhebbers, nu knokt Gert-Jan Theunisse (63) in een broos lijf door](https://www.ad.nl/tour-de-france/ooit-bejubeld-door-miljoenen-tour-liefhebbers-nu-knokt-gert-jan-theunisse-63-in-een-broos-lijf-door~a679a6a7/)
-  > Op een rustig plekje op een camping in Overloon bekijkt oud-topcoureur Gert-Jan Theunisse (63) wat er de komende weken in de Tour de France gebeurt...
-- [Juist als het moeilijk wordt, voelt ‘arrogante’ Jude Bellingham zich alleen maar sterker](https://www.ad.nl/wk-voetbal/juist-als-het-moeilijk-wordt-voelt-arrogante-jude-bellingham-zich-alleen-maar-sterker~a0313332/)
-  > Decennialang gingen Engelse spelers ten onder aan de verstikkende druk van de Britse pers en het hunkerende publiek. Maar op dit WK is daar Jude...
-- [Feyenoord deelt video van goals, Ajacieden kiezen favoriete WK-moment, dubbele zege Twente](https://www.ad.nl/voetbal/feyenoord-deelt-video-van-goals-ajacieden-kiezen-favoriete-wk-moment-dubbele-zege-twente~ab5071ea/)
-  > De eredivisieclubs zijn begonnen aan de voorbereiding op het nieuwe seizoen. In dit artikel lees je het programma en alle uitslagen per club. Onder...
-- [Zwarte Cross ‘verbiedt’ band om megahit Baila de Gasolina te spelen op festival: ‘Dachten dat het een grap was’](https://www.ad.nl/show/zwarte-cross-verbiedt-band-om-megahit-baila-de-gasolina-te-spelen-op-festival-dachten-dat-het-een-grap-was~ac5859f5/)
-  > Het is een oorwurm van heb ik jou daar: Baila de Gasolina van de feestband Effe Serieus uit Brabant. Maar de organisatie van de Zwarte Cross zou de...
+- [Misdaadverslaggever Yelle over uitzonderlijke undercoveroperatie: ‘Dit zit echt tegen het randje aan’](https://www.ad.nl/nieuws/misdaadverslaggever-yelle-over-uitzonderlijke-undercoveroperatie-dit-zit-echt-tegen-het-randje-aan~a7e6206e/)
+  > In een ultieme poging om Jaouad W. te koppelen aan vijf onopgeloste moorden en te voorkomen dat hij later dit jaar op vrije voeten komt, haalde...
+- [Nu de benen van vermoeide Lionel Messi beginnen te haperen, blijkt Argentinië onverwoestbaar collectief](https://www.ad.nl/wk-voetbal/nu-de-benen-van-vermoeide-lionel-messi-beginnen-te-haperen-blijkt-argentinie-onverwoestbaar-collectief~a80852db/)
+  > Jarenlang was het plan van de Argentijnen helder: geef de bal aan Lionel Messi. Maar nu de benen van de vermoeide meester in de knock-outfase...
+- [Alles over de WK-finale van volgende week: waar, hoe laat en wie pakten in het verleden de wereldtitel?](https://www.ad.nl/wk-voetbal/alles-over-de-wk-finale-van-volgende-week-waar-hoe-laat-en-wie-pakten-in-het-verleden-de-wereldtitel~a9a52397/)
+  > Op zondag 19 juli is de apotheose van het WK voetbal van 2026 in de Verenigde Staten, Canada en Mexico. In dit artikel lees je alles over de finale.
+- [Geen last van de zon tijdens het lezen, deze e-readers komen als beste uit de test](https://www.ad.nl/tech/geen-last-van-de-zon-tijdens-het-lezen-deze-e-readers-komen-als-beste-uit-de-test~a5f64919/)
+  > Een goed scherm, lange accuduur en eenvoudig boeken toevoegen. Dat zijn een van de belangrijkste zaken voor een e-reader. De Consumentenbond testte...
+- [Michael van Gerwen en dochtertje (8) zetten Leverkusen in vuur en vlam met bijzonder moment op podium](https://www.ad.nl/darts/michael-van-gerwen-en-dochtertje-8-zetten-leverkusen-in-vuur-en-vlam-met-bijzonder-moment-op-podium~a72910da/)
+  > Michael van Gerwen heeft zaterdagavond de show gestolen bij de European Tour in Leverkusen. De topdarter uit Vlijmen won niet alleen overtuigend van...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Wereldgezondheidsorganisatie overdrijft hitterisico en schaadt zo eigen geloofwaardigheid](https://fd.nl/opinie/1603487/de-who-overdrijft-hitterisicos-en-schaadt-zo-eigen-geloofwaardigheid)
-  > Een waarschuwing voor een groeiend aantal doden door hogere temperaturen ziet een aantal cruciale punten over het hoofd. Zo neemt bijvoorbeeld het...
-- [Inspecteur-generaal der Mijnen: ‘Dit was een uitgemergelde organisatie’](https://fd.nl/samenleving/1602120/inspecteur-generaal-der-mijnen-dit-was-een-uitgemergelde-organisatie)
-  > ‘De inspectie is terug van vakantie’, constateerde een inwoner van de provincie Groningen toen de Inspecteur-generaal zelf na een aardbeving...
-- [Supermarkt met cultstatus doet niet aan tech in winkels](https://fd.nl/bedrijfsleven/1601365/supermarkt-met-cultstatus-doet-niet-aan-tech-in-winkels)
-  > Bonuskaarten, online shoppen, zelfscankassa’s? Bij het Amerikaanse Trader Joe’s komen ze er niet in. De eigenzinnige supermarkt voor ‘hoogopgeleide...
-- [Luisterverhaal: Lage straffen, hoge winst. Op jacht naar nepvoetbalshirts in Bangkok](https://fd.nl/samenleving/1603457/luisterverhaal-lage-straffen-hoge-winst-op-jacht-naar-nepvoetbalshirts-in-bangkok)
-  > Deze week hoor je hoe detectives en sportmerken de strijd aangaan tegen namaakvoetbalshirts uit China
-- [China evacueert 1,8 miljoen inwoners vanwege naderende tyfoon Bavi](https://fd.nl/samenleving/1603977/china-evacueert-1-8-miljoen-inwoners-vanwege-naderende-tyfoon-bavi)
-  > Hoewel Bavi steeds langzamer gaat en aan kracht verliest, vormt de tyfoon nog steeds een aanzienlijk risico.
+- [Bestuurder Groupcard dekte miljoenenverliezen met stadpasgelden](https://fd.nl/bedrijfsleven/1603467/bestuurder-groupcard-dekte-miljoenenverliezen-met-stadpasgelden)
+  > Curator Carry Dullaart stelt onbehoorlijk bestuur vast bij het Aalsmeerse cadeaukaartenbedrijf.
+- [Een kopje koffie met een scheutje huisgemaakte software, graag](https://fd.nl/financiele-markten/1603461/een-kopje-koffie-met-een-scheutje-huisgemaakte-software-graag)
+  > Beleggers zetten hun vraagtekens bij wat AI softwarebedrijven kan brengen. De laatste manoeuvres van Starbucks bieden weinig vertrouwen.
+- [Republikeinse senator Lindsey Graham (71) plotseling overleden](https://fd.nl/politiek/1603978/republikeinse-senator-lindsey-graham-71-plotseling-overleden)
+  > Trump-bondgenoot Graham (71) werd plotseling getroffen door een ‘kortstondige’ ziekte en overleed op zaterdag.
+- [Pensioenfondsen in de clinch met AFM over kostenplaatje](https://fd.nl/financiele-markten/1603693/pensioenfondsen-in-de-clinch-met-afm-over-kostenplaatje)
+  > Op een pensioenevenement van de toezichthouder ontstonden ‘verhitte’ discussies over inzicht in de kosten die pensioenfondsen maken.
+- [Europese hittegolven jagen klanten de kledingwinkel uit](https://fd.nl/bedrijfsleven/1603703/europese-hittegolven-jagen-klanten-de-kledingwinkel-uit)
+  > De Japanse retailer Uniqlo moest vorige maand noodgedwongen tijdelijk meerdere winkels sluiten.
 
 ### Meest gelezen
 
