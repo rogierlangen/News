@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-07-2026 om 20:54*
+*Laatst bijgewerkt: 12-07-2026 om 21:55*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Tientallen doden door grote brand in café Bangkok](https://nos.nl/l/2622790)
-  > Bij een grote brand in een uitgaansgelegenheid in de Thaise hoofdstad Bangkok zijn zeker 27 mensen om het leven gekomen.
-        De brand brak zondag...
+- [Zelensky wijzigt kabinet opnieuw en vervangt vorig jaar aangestelde premier](https://nos.nl/l/2622800)
+  > De Oekraïense president Zelensky heeft aangekondigd dat hij een nieuwe politieke koers gaat varen. Daarbij wordt ook zijn kabinet gewijzigd....
+- [27 doden en tientallen gewonden na brand in café Bangkok](https://nos.nl/l/2622790)
+  > Bij een grote brand in een uitgaansgelegenheid in de Thaise hoofdstad Bangkok zijn 27 mensen om het leven gekomen. Er raakten 63 mensen gewond....
 - [Finse geheime dienst zoekt gewone burgers: 'Juist geen James Bond-types'](https://nos.nl/l/2622786)
   > De Finse geheime dienst wil doodgewone Finnen aantrekken die als geheim agent ingezet kunnen worden. Zelfs ouderen worden aangespoord om te...
 - [Twee doden en twee overlevenden bij vliegtuigcrash in Oostenrijk](https://nos.nl/l/2622785)
   > Bij een crash van een klein vliegtuig in Oostenrijk zijn twee van de vier inzittenden omgekomen. De overlevenden zijn zwaargewond overgebracht naar...
 - [Nederlandse ambassadeur in VS trok toestemming voor reis Machado via Curaçao in](https://nos.nl/l/2622783)
   > De Nederlandse ambassadeur in de Verenigde Staten heeft haar medewerking aan de terugkeer van oppositieleider María Corina Machado naar Venezuela...
-- [Harrie Jekkers geeft allerlaatste voorstelling, benoemd tot ereburger Den Haag](https://nos.nl/l/2622772)
-  > Zanger en cabaretier Harrie Jekkers is vandaag na zijn laatste show in de Koninklijke Schouwburg benoemd tot ereburger van de gemeente Den Haag. Hij...
 
 ### Meest gelezen
 
@@ -28,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Publiekslieveling Jermaine Wattimena springt en danst, maar verliest eerste Euro Tour-finale](https://www.ad.nl/darts/publiekslieveling-jermaine-wattimena-springt-en-danst-maar-verliest-eerste-euro-tour-finale~a330d5cef/)
+  > Geen nieuwe PDC-titel voor Jermaine Wattimena. De 38-jarige Nederlandse darter verloor in Leverkusen zijn eerste European Tour-finale van Krzysztof...
 - [Diego Forlán nieuwe bondscoach van Uruguay, Aston Villa heeft 60 miljoen over voor WK-uitblinker](https://www.ad.nl/voetbal/diego-forlan-nieuwe-bondscoach-van-uruguay-aston-villa-heeft-60-miljoen-over-voor-wk-uitblinker~aeb81ef1/)
   > Het WK nadert zijn ontknoping, maar er is ook flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van...
 - [Haagse volksheld Harrie Jekkers bij eigen pensioenfeest in theater: ‘Ik had Máxima verwacht’](https://www.ad.nl/den-haag/haagse-volksheld-harrie-jekkers-bij-eigen-pensioenfeest-in-theater-ik-had-maxima-verwacht~ac282070/)
@@ -36,8 +37,6 @@
   > Bij een brand in een kroeg in Bangkok zijn 27 mensen omgekomen en 63 mensen gewond geraakt. Dat melden de Thaise autoriteiten zondagavond...
 - [Adrie van der Poel: ‘Hier heb je twintig ploegen en 180 deelnemers, dat maakt het er niet makkelijker op’](https://www.ad.nl/wielrennen/adrie-van-der-poel-hier-heb-je-twintig-ploegen-en-180-deelnemers-dat-maakt-het-er-niet-makkelijker-op~a03c62c5/)
   > Hij heeft al zo veel gewonnen, maar vader Adrie van der Poel genoot zondag weer met volle teugen van zijn zoon Mathieu. Hij volgde de koers via een...
-- [Een open relatie is geen ‘taboe’](https://www.ad.nl/binnenland/een-open-relatie-is-geen-taboe~a01fb248/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 
 ### Meest gelezen
 
