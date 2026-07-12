@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-07-2026 om 21:55*
+*Laatst bijgewerkt: 12-07-2026 om 22:55*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Ondernemers investeren minder door stijgende kosten en onzekerheid](https://nos.nl/l/2622803)
+  > Een nieuwe bestelbus, bijscholing voor het personeel of het verbouwen van de bedrijfsruimte: ondernemers in het mkb stellen dit soort investeringen...
+- [Explosie in appartement Woerden, 24 woningen ontruimd](https://nos.nl/l/2622802)
+  > In een appartement in Woerden is gisteravond een explosie geweest. Daarna brak er brand uit. In de omgeving zijn ruim twintig woningen ontruimd....
 - [Zelensky wijzigt kabinet opnieuw en vervangt vorig jaar aangestelde premier](https://nos.nl/l/2622800)
   > De Oekraïense president Zelensky heeft aangekondigd dat hij een nieuwe politieke koers gaat varen. Daarbij wordt ook zijn kabinet gewijzigd....
 - [27 doden en tientallen gewonden na brand in café Bangkok](https://nos.nl/l/2622790)
   > Bij een grote brand in een uitgaansgelegenheid in de Thaise hoofdstad Bangkok zijn 27 mensen om het leven gekomen. Er raakten 63 mensen gewond....
 - [Finse geheime dienst zoekt gewone burgers: 'Juist geen James Bond-types'](https://nos.nl/l/2622786)
   > De Finse geheime dienst wil doodgewone Finnen aantrekken die als geheim agent ingezet kunnen worden. Zelfs ouderen worden aangespoord om te...
-- [Twee doden en twee overlevenden bij vliegtuigcrash in Oostenrijk](https://nos.nl/l/2622785)
-  > Bij een crash van een klein vliegtuig in Oostenrijk zijn twee van de vier inzittenden omgekomen. De overlevenden zijn zwaargewond overgebracht naar...
-- [Nederlandse ambassadeur in VS trok toestemming voor reis Machado via Curaçao in](https://nos.nl/l/2622783)
-  > De Nederlandse ambassadeur in de Verenigde Staten heeft haar medewerking aan de terugkeer van oppositieleider María Corina Machado naar Venezuela...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Israël houdt eind oktober verkiezingen](https://fd.nl/politiek/1603979/israel-houdt-eind-oktober-verkiezingen)
-  > Het worden de eerste parlementsverkiezingen sinds de aanval van Hamas in oktober 2023.
-- [Alternatief plan voor Tata Steel noodzakelijk](https://fd.nl/bedrijfsleven/1603697/alternatief-plan-voor-tata-steel-noodzakelijk)
-  > Minister Stientje van Veldhoven van Economische Zaken en Klimaat staat daardoor voor de zware taak met alternatieve scenario’s te komen.
-- [Syrisch parlement voor het eerst bijeen](https://fd.nl/politiek/1604084/syrisch-parlement-voor-het-eerst-bijeen)
-  > Test voor de nieuwe orde die president Sharaa belooft, negentien maanden na de val van Assad.
-- [President Zelensky vervangt zijn premier](https://fd.nl/politiek/1604083/president-zelensky-vervangt-zijn-premier)
-  > Joelia Svyrydenko was nog maar een jaar in functie als premier van Oekraïne.
-- [Mkb’er krijgt iets meer lucht, maar houdt de hand op de knip](https://fd.nl/bedrijfsleven/1602275/mkber-krijgt-iets-meer-lucht-maar-houdt-de-hand-op-de-knip)
-  > Winkeliers en bouwondernemers zagen hun winsten het sterkst dalen, de logistieke sector en zakelijke dienstverleners deden het beter, aldus onderzoek...
+- [Makelaars komen in opstand tegen nieuw verdienmodel Funda](https://fd.nl/bedrijfsleven/1603577/makelaars-komen-in-opstand-tegen-nieuw-verdienmodel-funda)
+  > NVM-makelaars vrezen dat het nieuwe verdienmodel van de huizensite hun rol in het verkoopproces uitholt. Ook vinden zij de eerder aangekondigde...
+- [Oorlog, olie, onzekerheid? Bedrijven koersen af op recordmarges](https://fd.nl/financiele-markten/1603560/oorlog-olie-onzekerheid-bedrijven-koersen-af-op-recordmarges)
+  > Analisten rekenen dit seizoen op recordmarges en forse winststijgingen, waarbij vooral energiebedrijven en de Amerikaanse AI-giganten de dienst...
+- [Hotelier sappelt, terwijl accountant omzet en winst ziet stijgen](https://fd.nl/bedrijfsleven/1602611/hotelier-sappelt-terwijl-accountant-omzet-en-winst-ziet-stijgen)
+  > De winst in het mkb staat onder druk, waardoor kleine ondernemers op de rem blijven staan wat betreft investeringen. Branches in beeld in zes...
+- [Stel kritische vragen bij het AI-evangelie](https://fd.nl/opinie/1602159/stel-kritische-vragen-bij-het-ai-evangelie)
+  > Wordt het publieke AI-debat wel evenwichtig gevoerd? Het is verontrustend dat insiders uit de AI-industrie veelal worden gepresenteerd als...
+- [Personalia maandag 13 juli](https://fd.nl/bedrijfsleven/1603796/personalia-maandag-13-juli)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
