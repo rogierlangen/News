@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-07-2026 om 22:55*
+*Laatst bijgewerkt: 12-07-2026 om 23:59*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [VS voert nieuwe aanvallen op Iran uit](https://nos.nl/l/2622804)
+  > De Verenigde Staten hebben Iran opnieuw aangevallen. Dat meldt het Amerikaanse militaire commando voor het Midden-Oosten (Centcom). De aanvallen...
 - [Ondernemers investeren minder door stijgende kosten en onzekerheid](https://nos.nl/l/2622803)
   > Een nieuwe bestelbus, bijscholing voor het personeel of het verbouwen van de bedrijfsruimte: ondernemers in het mkb stellen dit soort investeringen...
 - [Explosie in appartement Woerden, 24 woningen ontruimd](https://nos.nl/l/2622802)
@@ -16,8 +18,6 @@
   > De Oekraïense president Zelensky heeft aangekondigd dat hij een nieuwe politieke koers gaat varen. Daarbij wordt ook zijn kabinet gewijzigd....
 - [27 doden en tientallen gewonden na brand in café Bangkok](https://nos.nl/l/2622790)
   > Bij een grote brand in een uitgaansgelegenheid in de Thaise hoofdstad Bangkok zijn 27 mensen om het leven gekomen. Er raakten 63 mensen gewond....
-- [Finse geheime dienst zoekt gewone burgers: 'Juist geen James Bond-types'](https://nos.nl/l/2622786)
-  > De Finse geheime dienst wil doodgewone Finnen aantrekken die als geheim agent ingezet kunnen worden. Zelfs ouderen worden aangespoord om te...
 
 ### Meest gelezen
 
