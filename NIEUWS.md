@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-07-2026 om 11:16*
+*Laatst bijgewerkt: 13-07-2026 om 14:42*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Verdachte moord Nieuw-Vennep viel volgens OM meer vrouwen lastig](https://nos.nl/l/2622854)
+  > De man die wordt verdacht van het doodsteken van een vrouw bij het treinstation in Nieuw-Vennep, viel volgens het Openbaar Ministerie die dag meer...
+- [Meer meldingen over gezondheidsklachten na vapen: 'Topje van de ijsberg'](https://nos.nl/l/2622850)
+  > Er zijn dit jaar al 24 meldingen gedaan bij het nieuwe landelijke meldpunt voor patiënten met gezondheidsproblemen door vapen, dat meldt RTL Nieuws....
+- [Britse anti-terreureenheden bij onderzoek naar dood Widdecombe](https://nos.nl/l/2622845)
+  > Het onderzoek naar de dood van de Britse ex-politica Ann Widdecombe is overgenomen door een speciale anti-terreureenheid, zegt de Britse minister van...
+- [Ruim 13 jaar cel voor jeugdvriend Taghi voor twee liquidaties in 2014](https://nos.nl/l/2622844)
+  > Jaouad W. is door de rechtbank Midden-Nederland veroordeeld tot een gevangenisstraf van 13 jaar en 8 maanden. De jeugdvriend van Ridouan Taghi krijgt...
 - [Grote brand bij Parijs niet onder controle, Route du Soleil afgesloten](https://nos.nl/l/2622841)
-  > De enorme brand die woedt ten zuidoosten van Parijs dreigt zich nog verder uit te breiden. Dat meldt de Franse brandweer aan lokale media. 
-       ...
-- [Man belandt in vuilniswagen en zit uren klem in centrum Rotterdam](https://nos.nl/l/2622836)
-  > Een man is tijdens het legen van containers in het centrum van Rotterdam in een vuilniswagen beland. Hij zou mogelijk in een container hebben...
-- [Marokkaanse journalist Ali Lmrabet aangehouden na aankomst in Tanger](https://nos.nl/l/2622835)
-  > De Marokkaanse journalist Ali Lmrabet is zondag bij aankomst op de luchthaven van Tanger aangehouden. Lmrabet, die bekendstaat als een felle criticus...
-- [Grote brand in centrum Meppel, verschillende panden ontruimd](https://nos.nl/l/2622834)
-  > In het centrum van Meppel woedt een grote brand. Het vuur ontstond vanochtend in de meterkast van een slagerij en sloeg over naar meerdere woningen...
-- [Grote groep makelaars wil nieuwe tarieven op Funda niet: 'Disproportioneel'](https://nos.nl/l/2622833)
-  > Een grote groep makelaars wil dat het besluit voor nieuwe tarieven op Funda wordt teruggedraaid. Zij spreken van "disproportionele" verhogingen voor...
+  > De grote bosbrand die sinds gistermiddag woedt ten zuidoosten van Parijs heeft mogelijk grote gevolgen voor Nederlandse vakantiegangers. Vanwege de...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Bijna-stunt Kaapverdië, spektakel in Azteca, klinkende zege Oranje: wat vond jij de mooiste wedstrijd van dit WK?](https://www.ad.nl/wk-voetbal/bijna-stunt-kaapverdie-spektakel-in-azteca-klinkende-zege-oranje-wat-vond-jij-de-mooiste-wedstrijd-van-dit-wk~a907e356e/)
+- [Bijna-stunt Kaapverdië, spektakel in Azteca, klinkende zege Oranje: wat was het mooiste WK-duel?](https://www.ad.nl/wk-voetbal/bijna-stunt-kaapverdie-spektakel-in-azteca-klinkende-zege-oranje-wat-was-het-mooiste-wk-duel~a907e356e/)
   > Van de 104 wedstrijden die dit WK worden gespeeld, zijn er nu precies 100 afgewerkt. Tijd om de balans op te maken. Wat vond jij de mooiste wedstrijd?
-- [Kanker lijkt genezen, maar keert toch terug: waarom ziekte dan vaak moeilijk te behandelen is](https://www.ad.nl/gezond/kanker-lijkt-genezen-maar-keert-toch-terug-waarom-ziekte-dan-vaak-moeilijk-te-behandelen-is~a253b0e8/)
-  > Jurassic Park-acteur Sam Neill (78) is onverwacht overleden, terwijl hij in april nog kankervrij werd verklaard. Beter worden is echter geen...
-- [Programma, stand en topscorers eredivisie | Bekijk hier het schema voor de eerste speelronde](https://www.ad.nl/voetbal/programma-stand-en-topscorers-eredivisie-bekijk-hier-het-schema-voor-de-eerste-speelronde~a5ebff08/)
-  > SC Cambuur en Excelsior trappen op vrijdag 7 augustus het nieuwe eredivisieseizoen af. Bekijk in dit artikel het complete programma, de ranglijst en...
-- [Waar liggen nog kansen voor Van der Poel en smeren renners zich in met zonnebrand? Dit zijn de antwoorden op jullie vragen over de Tour](https://www.ad.nl/tour-de-france/waar-liggen-nog-kansen-voor-van-der-poel-en-smeren-renners-zich-in-met-zonnebrand-dit-zijn-de-antwoorden-op-jullie-vragen-over-de-tour~afa1e69c/)
-  > Op de eerste rustdag van de Tour de France schoven onze verslaggevers Daniël Dwarswaard en Marijn Abbenhuijs aan om al jullie vragen over de Tour de...
-- [Buurman ziet straat vollopen na verkoop van mini-studio’s: ‘We kregen er geen vier gezinnen bij, maar 20 bewoners’](https://www.ad.nl/binnenland/buurman-ziet-straat-vollopen-na-verkoop-van-mini-studios-we-kregen-er-geen-vier-gezinnen-bij-maar-20-bewoners~a0e9dcd9/)
-  > Je huis verkopen in stukjes. Het levert vastgoedeigenaren tonnen op. Maar wie koopt er nou een kamertje voor 115.000 euro? Een zoektocht naar kopers,...
+- [LIVE Midden-Oosten | Trump wil compensatie voor bescherming scheepvaart in Straat Hormuz: 20 procent van waarde ladingen](https://www.ad.nl/buitenland/live-midden-oosten-trump-wil-compensatie-voor-bescherming-scheepvaart-in-straat-hormuz-20-procent-van-waarde-ladingen~ac528ac3/)
+  > De Amerikaanse president Donald Trump heeft na dagenlange aanvallen over en weer aangekondigd dat hij opnieuw een maritieme blokkade van Iran laat...
+- [Rihanna verrast en staat na drie jaar weer op podium: ‘Jullie weten dat ik een beetje roestig ben’](https://www.ad.nl/show/rihanna-verrast-en-staat-na-drie-jaar-weer-op-podium-jullie-weten-dat-ik-een-beetje-roestig-ben~a288cc57/)
+  > Rihanna heeft zondag na drie jaar weer opgetreden. De 38-jarige zangeres verraste het publiek tijdens een concert van Jay-Z in het Yankee Stadium in...
+- [Vakantie in Spanje, Griekenland of de VS? Dit kan je zorgrekening flink duurder maken](https://www.ad.nl/geld/vakantie-in-spanje-griekenland-of-de-vs-dit-kan-je-zorgrekening-flink-duurder-maken~a8c4b01f/)
+  > Een blindedarmontsteking of valpartij op vakantie: je moet er niet aan denken. De medische klap is vaak niet eens de grootste schok. Dat is de...
+- [‘Je bent knettergek als je je eigen broodjes meeneemt naar Italiaans strand’](https://www.ad.nl/binnenland/je-bent-knettergek-als-je-je-eigen-broodjes-meeneemt-naar-italiaans-strand~a5f7f1825/)
+  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag: de strenge Italiaanse strandregels zouden overal in Europa moeten gelden.
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [De lange staart van de rijkdom](https://fd.nl/financiele-markten/1603886/de-lange-staart-van-de-rijkdom)
-  > Statistici kijken anders naar cijfers. Ze zien meteen veel meer dan wat één cijfer lijkt te vertellen, zegt columnist Ria Roerink.
-- [Dubai bouwt iets goedkoper dan Amsterdam](https://fd.nl/bedrijfsleven/1603885/dubai-bouwt-iets-goedkoper-dan-amsterdam)
-  > In Amsterdam is het net iets duurder om te bouwen dan in Dubai en vrijwel net zo duur als in de Poolse hoofdstad Warschau.
-- [De herfst bij Volkswagen ziet er roodgekleurd uit](https://fd.nl/bedrijfsleven/1603880/de-herfst-bij-volkswagen-ziet-er-roodgekleurd-uit)
-  > Massaal was afgelopen week het protest tegen een nieuwe saneringsronde bij VW van tienduizenden banen in vier Duitse fabrieken. Zelfs samenwerken met...
-- [Stellantis verkoopt 10% meer auto’s, vooral in de Verenigde Staten](https://fd.nl/financiele-markten/1603884/stellantis-verkoopt-10-meer-autos-vooral-in-de-verenigde-staten)
-  > De verkopen van de maker van automerken zoals Citroën en Chrysler nemen in de VS met 38% toe, dankzij nieuwe en opgefriste modellen van Ram en Jeep.
-- [Accountantsorganisaties geven opnieuw een masterclass in falend leiderschap](https://fd.nl/opinie/1603492/accountants-geven-opnieuw-een-masterclass-in-falend-leiderschap)
-  > Examenfraude, klokkenluiderschandaal – het probleem is hoe accountants de regels naleven. En überhaupt of het systeem van partnerschappen niet het...
+- [CCV krijgt boete van €2,65 mln wegens falende witwascontrole](https://fd.nl/financiele-markten/1604120/ccv-krijgt-boete-van-2-65-mln-wegens-falende-witwascontrole)
+  > DNB constateert dat CCV jarenlang gebrekkige controles uitvoerde op verdachte betalingen via zijn pinautomaten en betaalterminals.
+- [Geharde vakbondsleider strijdt tegen de macht van het kapitaal](https://fd.nl/politiek/1603883/geharde-vakbondsleider-strijdt-tegen-de-macht-van-het-kapitaal)
+  > Sophie Binet, herkozen voorvrouw van de machtige en strijdbare Franse vakcentrale CGT, kan het land tot stilstand brengen.
+- [Poetin plaatst drie Russische dochters van AkzoNobel tijdelijk onder beheer](https://fd.nl/bedrijfsleven/1603999/poetin-plaatst-drie-russische-dochters-van-akzonobel-tijdelijk-onder-beheer)
+  > De Russische president Vladimir Poetin plaatst drie lokale dochterondernemingen van AkzoNobel onder tijdelijk beheer.
+- [ACM voegt zich bij onderzoeken naar datalek Odido](https://fd.nl/tech-en-innovatie/1604119/acm-voegt-zich-bij-onderzoeken-naar-datalek-odido)
+  > De toezichthouder kijkt of Odido zijn klanten voldoende beschermt na het grote datalek bij het telecombedrijf.
+- [Brussel riskeert eigen klimaatbeleid te ondermijnen met tweeslachtigheid](https://fd.nl/opinie/1604118/brussel-riskeert-eigen-klimaatbeleid-te-ondermijnen-met-tweeslachtigheid)
+  > De Europese Commissie komt vrijdag met plannen voor enerzijds het aanjagen van elektrificatie en anderzijds het versoepelen van het...
 
 ### Meest gelezen
 
