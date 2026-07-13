@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-07-2026 om 14:42*
+*Laatst bijgewerkt: 13-07-2026 om 17:15*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Verdachte moord Nieuw-Vennep viel volgens OM meer vrouwen lastig](https://nos.nl/l/2622854)
-  > De man die wordt verdacht van het doodsteken van een vrouw bij het treinstation in Nieuw-Vennep, viel volgens het Openbaar Ministerie die dag meer...
-- [Meer meldingen over gezondheidsklachten na vapen: 'Topje van de ijsberg'](https://nos.nl/l/2622850)
-  > Er zijn dit jaar al 24 meldingen gedaan bij het nieuwe landelijke meldpunt voor patiënten met gezondheidsproblemen door vapen, dat meldt RTL Nieuws....
-- [Britse anti-terreureenheden bij onderzoek naar dood Widdecombe](https://nos.nl/l/2622845)
-  > Het onderzoek naar de dood van de Britse ex-politica Ann Widdecombe is overgenomen door een speciale anti-terreureenheid, zegt de Britse minister van...
-- [Ruim 13 jaar cel voor jeugdvriend Taghi voor twee liquidaties in 2014](https://nos.nl/l/2622844)
-  > Jaouad W. is door de rechtbank Midden-Nederland veroordeeld tot een gevangenisstraf van 13 jaar en 8 maanden. De jeugdvriend van Ridouan Taghi krijgt...
-- [Grote brand bij Parijs niet onder controle, Route du Soleil afgesloten](https://nos.nl/l/2622841)
-  > De grote bosbrand die sinds gistermiddag woedt ten zuidoosten van Parijs heeft mogelijk grote gevolgen voor Nederlandse vakantiegangers. Vanwege de...
+- [Celstraf voor jarenlang uitbuiten vrouw op paardenbedrijf Kamerik](https://nos.nl/l/2622873)
+  > Een 56-jarige vrouw uit Kamerik is veroordeeld tot een gevangenisstraf van twee jaar, waarvan zes maanden voorwaardelijk, voor het jarenlang...
+- [Advies aan Brussel: verbied sociale media voor kinderen onder de dertien jaar](https://nos.nl/l/2622872)
+  > De Europese Commissie moet het zelfstandig gebruik van sociale media voor kinderen onder de dertien jaar verbieden. Dat schrijft een door de...
+- [Nederland en negen andere landen vormen coalitie tegen ballistische raketten](https://nos.nl/l/2622871)
+  > Nederland gaat samen met Oekraïne en acht andere landen een coalitie vormen die Europa moet beschermen tegen ballistische raketten. Dat is besloten...
+- [Brand in vakantieregio’s: volg de adviezen en zet vluchttas klaar](https://nos.nl/l/2622869)
+  > De ANWB en kampeerorganisatie ACSI hebben nog geen vragen gehad van vakantiegangers die naar landen als Spanje of Frankrijk gaan waar natuurbranden...
+- [Kabinet stelt Judith Kuypers aan als Nationaal Coördinator Geweld tegen Vrouwen](https://nos.nl/l/2622867)
+  > Het kabinet heeft Judith Kuypers benoemd tot Nationaal Coördinator Geweld tegen Vrouwen en Huiselijk Geweld. Zij moet ervoor zorgen dat de overheid...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Bijna-stunt Kaapverdië, spektakel in Azteca, klinkende zege Oranje: wat was het mooiste WK-duel?](https://www.ad.nl/wk-voetbal/bijna-stunt-kaapverdie-spektakel-in-azteca-klinkende-zege-oranje-wat-was-het-mooiste-wk-duel~a907e356e/)
-  > Van de 104 wedstrijden die dit WK worden gespeeld, zijn er nu precies 100 afgewerkt. Tijd om de balans op te maken. Wat vond jij de mooiste wedstrijd?
-- [LIVE Midden-Oosten | Trump wil compensatie voor bescherming scheepvaart in Straat Hormuz: 20 procent van waarde ladingen](https://www.ad.nl/buitenland/live-midden-oosten-trump-wil-compensatie-voor-bescherming-scheepvaart-in-straat-hormuz-20-procent-van-waarde-ladingen~ac528ac3/)
-  > De Amerikaanse president Donald Trump heeft na dagenlange aanvallen over en weer aangekondigd dat hij opnieuw een maritieme blokkade van Iran laat...
-- [Rihanna verrast en staat na drie jaar weer op podium: ‘Jullie weten dat ik een beetje roestig ben’](https://www.ad.nl/show/rihanna-verrast-en-staat-na-drie-jaar-weer-op-podium-jullie-weten-dat-ik-een-beetje-roestig-ben~a288cc57/)
-  > Rihanna heeft zondag na drie jaar weer opgetreden. De 38-jarige zangeres verraste het publiek tijdens een concert van Jay-Z in het Yankee Stadium in...
-- [Vakantie in Spanje, Griekenland of de VS? Dit kan je zorgrekening flink duurder maken](https://www.ad.nl/geld/vakantie-in-spanje-griekenland-of-de-vs-dit-kan-je-zorgrekening-flink-duurder-maken~a8c4b01f/)
-  > Een blindedarmontsteking of valpartij op vakantie: je moet er niet aan denken. De medische klap is vaak niet eens de grootste schok. Dat is de...
-- [‘Je bent knettergek als je je eigen broodjes meeneemt naar Italiaans strand’](https://www.ad.nl/binnenland/je-bent-knettergek-als-je-je-eigen-broodjes-meeneemt-naar-italiaans-strand~a5f7f1825/)
-  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag: de strenge Italiaanse strandregels zouden overal in Europa moeten gelden.
+- [Waarom sluiten ze in Nederland de hele snelweg af bij wegwerkzaamheden en in het buitenland niet?](https://www.ad.nl/auto/waarom-sluiten-ze-in-nederland-de-hele-snelweg-af-bij-wegwerkzaamheden-en-in-het-buitenland-niet~a76e135b/)
+  > Een snelweg wekenlang afsluiten: in Nederland is dat heel gewoon. Lezer Hans van der Kooij vraagt zich af of dat niet anders kan, zoals in het...
+- [Egypte in rep en roer: Nederlandse archeologen ontdekken 3000 jaar oude tombe in Luxor](https://www.ad.nl/buitenland/egypte-in-rep-en-roer-nederlandse-archeologen-ontdekken-3000-jaar-oude-tombe-in-luxor~a3bd2fc2/)
+  > Nederlandse archeologen hebben vlak bij de Egyptische stad Luxor een drieduizend jaar oude tombe ontdekt. In het grafmonument ligt een man genaamd...
+- [Roxeanne Hazes kiest na huwelijk voor nieuwe achternaam: ‘Hiervoor hoorde ik er niet bij’](https://www.ad.nl/show/roxeanne-hazes-kiest-na-huwelijk-voor-nieuwe-achternaam-hiervoor-hoorde-ik-er-niet-bij~a2957d39/)
+  > De trouwjurk van Roxeanne Hazes lag al vier jaar in de kofferbak van de auto van haar partner Erik Zwennes voordat die vorige week op de trouwdag van...
+- [‘Over de muur’ en ‘Soldaat van Oranje’ hebben eeuwigheidswaarde](https://www.ad.nl/commentaar/over-de-muur-en-soldaat-van-oranje-hebben-eeuwigheidswaarde~aa5e9a47/)
+  > Harrie Jekkers en Soldaat van Oranje mogen dan zijn gestopt, wat ze ons meegeven blijft bestaan, schrijft onze hoofdredacteur Rennie Rijpma.
+- [De Tour beslist? Hier gaan we de komende twee weken naar kijken](https://www.ad.nl/tour-de-france/de-tour-beslist-hier-gaan-we-de-komende-twee-weken-naar-kijken~a71fa105/)
+  > De strijd om het geel lijkt wel beslist. Maar wat gaan we de komende twee weken nog zien? Verslaggever Daniël Dwarswaard schetst het restant van de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [CCV krijgt boete van €2,65 mln wegens falende witwascontrole](https://fd.nl/financiele-markten/1604120/ccv-krijgt-boete-van-2-65-mln-wegens-falende-witwascontrole)
-  > DNB constateert dat CCV jarenlang gebrekkige controles uitvoerde op verdachte betalingen via zijn pinautomaten en betaalterminals.
-- [Geharde vakbondsleider strijdt tegen de macht van het kapitaal](https://fd.nl/politiek/1603883/geharde-vakbondsleider-strijdt-tegen-de-macht-van-het-kapitaal)
-  > Sophie Binet, herkozen voorvrouw van de machtige en strijdbare Franse vakcentrale CGT, kan het land tot stilstand brengen.
-- [Poetin plaatst drie Russische dochters van AkzoNobel tijdelijk onder beheer](https://fd.nl/bedrijfsleven/1603999/poetin-plaatst-drie-russische-dochters-van-akzonobel-tijdelijk-onder-beheer)
-  > De Russische president Vladimir Poetin plaatst drie lokale dochterondernemingen van AkzoNobel onder tijdelijk beheer.
-- [ACM voegt zich bij onderzoeken naar datalek Odido](https://fd.nl/tech-en-innovatie/1604119/acm-voegt-zich-bij-onderzoeken-naar-datalek-odido)
-  > De toezichthouder kijkt of Odido zijn klanten voldoende beschermt na het grote datalek bij het telecombedrijf.
-- [Brussel riskeert eigen klimaatbeleid te ondermijnen met tweeslachtigheid](https://fd.nl/opinie/1604118/brussel-riskeert-eigen-klimaatbeleid-te-ondermijnen-met-tweeslachtigheid)
-  > De Europese Commissie komt vrijdag met plannen voor enerzijds het aanjagen van elektrificatie en anderzijds het versoepelen van het...
+- [Nederland stapt in Europese verdedigingscoalitie tegen Russische raketten](https://fd.nl/politiek/1603901/nederland-stapt-in-europese-verdedigingscoalitie-tegen-russische-raketten)
+  > Nederland werkt samen met Oekraïne en acht andere landen aan gezamenlijke luchtverdediging tegen Russische ballistische raketten. Dat is maandag...
+- [Paniek op de oliemarkt blijft uit ondanks nieuw geweld tussen Iran en de VS](https://fd.nl/financiele-markten/1604117/paniek-op-de-oliemarkt-blijft-uit-ondanks-nieuw-geweld-tussen-iran-en-de-vs)
+  > Ondanks het oplaaiende oorlogsgeweld in het Midden-Oosten gaat de olieprijs niet heel hard omhoog. Welke factoren houden de tarieven in toom?
+- [Hongaarse ‘rechtsstaatrevolutie’ dreigt zelf de rechtsstaat te schenden](https://fd.nl/politiek/1603998/hongaarse-rechtsstaatrevolutie-dreigt-zelf-de-rechtsstaat-te-schenden)
+  > Mensenrechtenorganisaties zijn kritisch over de slecht onderbouwde werkwijze waarmee premier Péter Magyar de erfenis van zijn voorganger Viktor Orbán...
+- [Derk Boswijk: ‘In Oekraïne vechten computernerds die bij ons niet door de keuring komen’](https://fd.nl/politiek/1603889/derk-boswijk-in-oekraine-vechten-computernerds-die-bij-ons-niet-door-de-keuring-komen)
+  > De defensiestaatssecretaris is net terug uit Oekraïne. Daar houden militairen bij hoeveel Russen ze doden en hoeveel munitie daarvoor nodig was. Het...
+- [VS willen tol gaan heffen op doorvaart door de Straat van Hormuz](https://fd.nl/politiek/1603900/vs-willen-tol-gaan-heffen-op-doorvaart-door-de-straat-van-hormuz)
+  > De Amerikaanse president Trump vindt dat de Verenigde Staten de zeestraat veilig houden en daarvoor betaald moeten worden.
 
 ### Meest gelezen
 
