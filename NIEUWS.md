@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-07-2026 om 20:59*
+*Laatst bijgewerkt: 13-07-2026 om 22:03*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Rechter: Trumps omstreden schikking met belastingdienst is 'misbruik van het recht'](https://nos.nl/l/2622901)
+  > Een Amerikaanse federale rechter oordeelt vandaag dat bij de omstreden schikking tussen president Trump en de Amerikaanse belastingdienst IRS...
 - [Stadsbus geraakt bij schietpartij in Rotterdam](https://nos.nl/l/2622896)
   > Bij een schietpartij in Rotterdam is vanavond een man gewond geraakt. Het slachtoffer is met onbekende verwondingen naar het ziekenhuis gebracht. De...
 - [Hongaars parlement stemt voor afzetting president en Orbán-vertrouweling Sulyok](https://nos.nl/l/2622895)
@@ -16,8 +18,6 @@
   > Nederland gaat meedoen met militaire oefeningen van de internationale troepenmacht die in Oekraïne moet worden ingezet als daar een staakt-het-vuren...
 - [Archeologen uit Nederland ontdekken 3000 jaar oude graftombe in Egypte](https://nos.nl/l/2622889)
   > Een team van Nederlandse archeologen heeft in de buurt van de Egyptische stad Luxor een graftombe van 3000 jaar oud ontdekt. De vondst werd...
-- [Man (48) uit Woerden aangehouden na explosie in appartementencomplex](https://nos.nl/l/2622887)
-  > Een 48-jarige man is aangehouden voor brandstichting bij een woning aan de Anton Mauvestraat in Woerden, waar gisteren een explosie plaatsvond. Dat...
 
 ### Meest gelezen
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Zus vervangt overleden Amerikaanse senator Lindsey Graham](https://www.ad.nl/buitenland/zus-vervangt-overleden-amerikaanse-senator-lindsey-graham~acba5f2a/)
+  > De overleden Amerikaanse senator Lindsey Graham zal worden vervangen door zijn zus Darline. Zij zal de rest van zijn aflopende ambtsperiode...
 - [Hazard terug bij Lens, Plug naar Excelsior en Hwang op weg naar Porto](https://www.ad.nl/voetbal/hazard-terug-bij-lens-plug-naar-excelsior-en-hwang-op-weg-naar-porto~aeb81ef1/)
   > Het WK nadert zijn ontknoping, maar er is ook flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van...
 - [Trump spreekt Amerikaanse bevolking donderdagavond toe, onduidelijk waarover](https://www.ad.nl/buitenland/trump-spreekt-amerikaanse-bevolking-donderdagavond-toe-onduidelijk-waarover~ae67dd9c/)
@@ -35,8 +37,6 @@
   > Het verheugen op de halve finales van dit WK is begonnen: Frankrijk - Spanje (dinsdag) en Argentinië - Engeland (woensdag) zijn wedstrijden met een...
 - [Femke Broeders-Bol niet in actie op NK atletiek: ‘Het is een jaar vol veranderingen’](https://www.ad.nl/andere-sporten/femke-broeders-bol-niet-in-actie-op-nk-atletiek-het-is-een-jaar-vol-veranderingen~a549c8ec/)
   > Femke Broeders-Bol komt eind juli niet in actie tijdens de NK atletiek. De 26-jarige Nederlandse maakte dat bekend op Instagram. „In overleg met de...
-- [Jetten haalt uit: absoluut niet meedoen aan plan Trump voor heffing Hormuz](https://www.ad.nl/buitenland/jetten-haalt-uit-absoluut-niet-meedoen-aan-plan-trump-voor-heffing-hormuz~ac528ac3/)
-  > Nederland keurt het plan van de Amerikaanse president Donald Trump af om geld te gaan vragen van schepen die door de Straat van Hormuz varen. Dat...
 
 ### Meest gelezen
 
