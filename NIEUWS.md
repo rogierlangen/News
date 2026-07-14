@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-07-2026 om 17:17*
+*Laatst bijgewerkt: 14-07-2026 om 19:24*
 
 ---
 
@@ -8,16 +8,18 @@
 
 ### Laatste nieuws
 
-- [Vijf lichamen gevonden na brand op bouwplaats Brussel, nog één vermiste](https://nos.nl/l/2622995)
-  > De brandweer heeft na de brand op een bouwplaats in Brussel de lichamen gevonden van vijf vermisten, melden de autoriteiten aan verschillende media....
+- [Trump schrapt tolheffing Straat van Hormuz, ook nieuwe luchtaanvallen](https://nos.nl/l/2623014)
+  > De VS gaat toch geen tol heffen in de Straat van Hormuz, in tegenstelling tot wat president Trump gisteren zei. In plaats van passerende schepen te...
+- [Dodelijkste maand voor burgers in Oekraïne sinds april 2022](https://nos.nl/l/2623013)
+  > Afgelopen maand kwamen de meeste Oekraïense burgers om het leven sinds april 2022. Dat meldt de VN-mensenrechtencommissie in Oekraïne.
+        In...
+- [Kaasdieven gezocht na verdwijning vrachtwagen vol emmentaler in Duitsland](https://nos.nl/l/2623007)
+  > In de Duitse deelstaat Beieren is sprake van een verdwijning met een luchtje. De politie zoekt een vrachtwagen met 20 ton emmentalerkaas in het...
+- [Zes lichamen gevonden in neergestorte lift na brand Brussel](https://nos.nl/l/2622995)
+  > De brandweer heeft na de brand op een bouwplaats in Brussel de lichamen gevonden van zes vermisten, melden de autoriteiten aan verschillende media.
+ ...
 - ['ICE schort meeste verkeerscontroles op na dodelijke schietincidenten'](https://nos.nl/l/2622992)
   > De Amerikaanse immigratiedienst ICE schort voorlopig de meeste verkeerscontroles op. De maatregel volgt op twee dodelijke schietpartijen in korte...
-- [Eén Microsoft-datacenter gebruikt 1 procent van alle stroom in Nederland](https://nos.nl/l/2622984)
-  > Het enorme datacenter van Microsoft in Noord-Holland gebruikt ongeveer 1 procent van alle stroom in Nederland. Dat blijkt uit gegevens die de...
-- [Israëlisch parlement neemt vlak voor reces omstreden Thorastudie-wet aan](https://nos.nl/l/2622981)
-  > De Knesset, het Israëlische parlement, heeft een omstreden basiswet aangenomen die Thorastudie als fundamentele waarde aanmerkt. Volgens critici kan...
-- [Geen cel maar tbs met dwangverpleging voor doden vrouw (23) uit Hoog-Keppel](https://nos.nl/l/2622980)
-  > Een 26-jarige man uit Ulft in Gelderland is veroordeeld tot tbs met dwangverpleging voor het doodsteken van een 23-jarige vrouw in Hoog-Keppel....
 
 ### Meest gelezen
 
@@ -27,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [In een wereld vol aandacht is eenzaamheid een groot probleem](https://www.ad.nl/commentaar/in-een-wereld-vol-aandacht-is-eenzaamheid-een-groot-probleem~a147334b/)
-  > Twee verdrietige gebeurtenissen uit de topsport beheersten maandag het nieuws. Een jonge shorttracker maakte melding van een mentale time-out nadat...
-- [Erling Haaland zet Texaanse souvenirshop op zijn kop: ‘Enorme zegen voor ons’](https://www.ad.nl/wk-voetbal/erling-haaland-zet-texaanse-souvenirshop-op-zijn-kop-enorme-zegen-voor-ons~af43596e/)
-  > Erling Haaland met een cowboyhoed en een opgezette wasbeer. De Noorse topspits (25) heeft zich ook naast het veld prima vermaakt tijdens het WK...
-- [Tadej Pogacar heeft boodschap voor mensen die hem uitjoelen tijdens de Tour: ‘Geeft alleen maar meer kracht’](https://www.ad.nl/tour-de-france/tadej-pogacar-heeft-boodschap-voor-mensen-die-hem-uitjoelen-tijdens-de-tour-geeft-alleen-maar-meer-kracht~adb20a1b/)
-  > De overmacht van Tadej Pogacar en zijn ploeg tijdens de Tour de France, wordt niet door iedereen gewaardeerd. De Sloveense geletruidrager liet...
-- [NS wil definitief einde aan tassen op stoelen: ‘Houd tas op schoot’](https://www.ad.nl/binnenland/ns-wil-definitief-einde-aan-tassen-op-stoelen-houd-tas-op-schoot~aafaf3f7/)
-  > De NS wil dat reizigers geen stoelen meer bezet houden met bagage. De spoorvervoerder wil de regels aanpassen, zodat reizigers hun bagage voortaan...
-- [Van Netflix tot Videoland: de prijzen in streamingland stijgen, maar er is een uitweg](https://www.ad.nl/show/van-netflix-tot-videoland-de-prijzen-in-streamingland-stijgen-maar-er-is-een-uitweg~a4fc5859/)
-  > De wirwar aan streamingdiensten – van Netflix tot SkyShowtime – lijkt ontrafeld. Het zorgt voor meer overzicht, maar ook voor stijgende...
+- [Spanje op voorsprong in halve finale tegen Frankrijk, Oyarzabal benut penalty na fout Digne](https://www.ad.nl/wk-voetbal/spanje-op-voorsprong-in-halve-finale-tegen-frankrijk-oyarzabal-benut-penalty-na-fout-digne~a7cc7e5e/)
+  > Een ware kraker in de halve finales van het WK: Frankrijk tegen Spanje. In dit liveblog houden Sjoerd Mossou vanuit het stadion in Dallas en Minne...
+- [Wat de pil niet lukte, lukt de smartphone wel](https://www.ad.nl/binnenland/wat-de-pil-niet-lukte-lukt-de-smartphone-wel~a0642bf9/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Voorbereiding eredivisie | Mijnans maakt goede eerste indruk bij PSV, NEC wint voor het eerst](https://www.ad.nl/voetbal/voorbereiding-eredivisie-mijnans-maakt-goede-eerste-indruk-bij-psv-nec-wint-voor-het-eerst~ab5071ea/)
+  > De eredivisieclubs zijn begonnen aan de voorbereiding op het nieuwe seizoen. In dit artikel lees je het programma en alle uitslagen per club. Onder...
+- [Bosbranden rond Parijs ‘onder controle’, maar blussen duurt mogelijk nog weken](https://www.ad.nl/buitenland/bosbranden-rond-parijs-onder-controle-maar-blussen-duurt-mogelijk-nog-weken~a7307cdb/)
+  > De bosbranden die woeden ten zuiden van Parijs zijn ‘onder controle’, maar nog niet geblust, zegt het hoofd van het departement Seine-et-Marne. Dat...
+- [Europese bevolking gaat krimpen, en dat heeft gevolgen: in 2100 zijn er tien keer zoveel Afrikanen als Europeanen](https://www.ad.nl/buitenland/europese-bevolking-gaat-krimpen-en-dat-heeft-gevolgen-in-2100-zijn-er-tien-keer-zoveel-afrikanen-als-europeanen~afe418d9/)
+  > Nog even en de bevolking van de Europese Unie gaat krimpen. Er worden minder baby’s geboren dan er mensen doodgaan, en er is te weinig immigratie om...
 
 ### Meest gelezen
 
@@ -46,6 +48,8 @@
 
 ### Laatste nieuws
 
+- [SER moet wakker worden](https://fd.nl/opinie/1604185/ser-moet-wakker-worden)
+  > De zoveelste adviesraad bewijst de afwezigheid van de belangrijkste adviesclub van het kabinet.
 - [Trump annuleert plan om tol te heffen in Straat van Hormuz](https://fd.nl/politiek/1604297/trump-annuleert-plan-om-tol-te-heffen-in-straat-van-hormuz)
   > Het plan dat de Amerikaanse president maandag aankondigde, werd dinsdag alweer ingetrokken. Trump zegt nu genoegen te nemen met grote investeringen...
 - [Warsh belooft in zijn eerste optreden in het Congres prijsstabiliteit te herstellen](https://fd.nl/financiele-markten/1604178/warsh-belooft-in-zijn-eerste-optreden-in-het-congres-prijsstabiliteit-te-herstellen)
@@ -53,9 +57,7 @@
 - [Natuurorganisaties tekenen voorzichtig akkoord over bestrijdingsmiddelen niet](https://fd.nl/politiek/1604293/natuurorganisaties-tekenen-voorzichtig-akkoord-over-bestrijdingsmiddelen-niet)
   > Onder leiding van voormalig ChristenUnie-leider Gert-Jan Segers kwamen de betrokken partijen namens jonge boeren tot afspraken. Maar die zijn...
 - [IBM verliest op één dag een kwart van zijn waarde na slechte resultaten](https://fd.nl/bedrijfsleven/1604292/ibm-verliest-op-een-dag-een-kwart-van-zijn-waarde-na-slechte-resultaten)
-  > Ceo Arvind Krishna zegt dat zijn bedrijf slecht geanticipeerd heeft op veranderend gedrag van klanten.
-- [Recordwinsten voor Amerikaanse grootbanken, Goldman Sachs en JPMorganChase spannen de kroon](https://fd.nl/financiele-markten/1604278/recordwinsten-voor-amerikaanse-grootbanken-goldman-sachs-en-j-p-morgan-spannen-de-kroon)
-  > Vermogensbeheer, beursgangen, fusies en overnames en effectenhandel lieten de winst oplopen. ‘Beter dan dit kan bijna niet,’ zei ceo Jamie Dimon van...
+  > Volgens de ceo hebben klanten van IBM hun investeringsplannen vrij plotseling aangepast en bleek het bedrijf niet in staat om daar snel genoeg op in...
 
 ### Meest gelezen
 
