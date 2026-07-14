@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-07-2026 om 09:06*
+*Laatst bijgewerkt: 14-07-2026 om 11:26*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Overleden Amerikaanse senator Lindsey Graham wordt opgevolgd door zus](https://nos.nl/l/2622928)
-  > De zus van de onlangs overleden Amerikaanse senator Lindsey Graham volgt hem op in de Senaat. Darline Graham Nordone zal tot het einde van zijn...
-- [Grote natuurbrand bij Parijs nog niet onder controle](https://nos.nl/l/2622927)
-  > In Frankrijk is de bestrijding van de grote natuurbrand bij Fontainebleau de hele nacht doorgegaan, maar de brand lijkt zich nog steeds uit te...
-- [Schoonmaak beklad Sovjet Ereveld Leusden moeilijk: 'Verf trekt in stenen'](https://nos.nl/l/2622925)
-  > Op het Sovjet Ereveld in Leusden wordt nog altijd gewerkt aan het verwijderen van de rode verf van zo'n 150 bekladde graven. De schade blijkt...
-- [Daniël Lippens en Roelof de Vries nieuwe ochtendduo op NPO Radio 2](https://nos.nl/l/2622917)
-  > NPO Radio 2 heeft een nieuw presentatieduo voor de ochtend aangewezen. Daniël Lippens en Roelof de Vries nemen het doordeweekse ochtendprogramma over...
-- [Dodental na brand in muziekbar in Bangkok opgelopen, slachtoffers vooral Thai](https://nos.nl/l/2622914)
-  > Het dodental van de grote brand in een muziekbar in Bangkok is opgelopen tot 30, melden de Thaise autoriteiten. Het aantal doden van de brand, die...
+- [Waterschappen willen Europese regels 'zodat we niet alleen restje rivierwater krijgen'](https://nos.nl/l/2622942)
+  > Er moeten binnen Europa strengere regels komen voor de verdeling van het schaarse rivierwater, om te voorkomen dat Nederland bijvoorbeeld bij droge...
+- [Staten spannen rechtszaak aan in VS om miljardendeal Warner Bros en Paramount](https://nos.nl/l/2622939)
+  > Twaalf Amerikaanse staten spannen een rechtszaak aan om de overname van Warner Bros Discovery door Paramount Skydance tegen te houden. Volgens de...
+- [Kerkrade saneert tientallen eeuwenoude mijnschachten om verzakking te voorkomen](https://nos.nl/l/2622938)
+  > De gemeente Kerkrade is bezig om 55 historische mijnschachten in de stad te saneren. De operatie moet verzakkingen van de grond voorkomen.
+        De...
+- [Door wachtlijsten in de jeugdbescherming hebben 200 kinderen geen voogd](https://nos.nl/l/2622933)
+  > Ruim 200 kinderen in Nederland die een vaste voogd zouden moeten hebben, hebben die niet. Dat blijkt uit cijfers die journalistiek onderzoeksplatform...
+- [Hoge Chinese functionaris Ma Xingrui uit Communistische Partij gezet](https://nos.nl/l/2622932)
+  > Een hoge Chinese functionaris, Ma Xingrui, is door het anti-corruptieorgaan van de Communistische Partij uit de Partij gezet. Dat meldt...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Feyenoord haalt nieuwe keeper uit Duitsland, Wellenreuther op weg naar de uitgang](https://www.ad.nl/voetbal/feyenoord-haalt-nieuwe-keeper-uit-duitsland-wellenreuther-op-weg-naar-de-uitgang~ad377cb8/)
-  > Feyenoord hoopt vandaag of morgen de komst van de Duitse keeper Tjark Ernst af te ronden. De 23-jarige doelman van Hertha BSC gaat de Rotterdammers...
-- [Politie deelt 25 jaar na ‘backpackersmoord’ in Australië nieuwe beelden om lichaam Peter Falconio te vinden](https://www.ad.nl/buitenland/politie-deelt-25-jaar-na-backpackersmoord-in-australie-nieuwe-beelden-om-lichaam-peter-falconio-te-vinden~a0600c34/)
-  > Het is inmiddels 25 jaar geleden: de ‘backpackersmoord’ in Australië. Het lichaam van het Britse slachtoffer Peter Falconio is nog altijd spoorloos....
-- [Column Sjoerd Mossou | En steek die chip maar in je reet](https://www.ad.nl/voetbal/column-sjoerd-mossou-en-steek-die-chip-maar-in-je-reet~ad0cce45/)
-  > AD Sportwereld-columnist Sjoerd Mossou kijkt met een glimlach naar alle controverse rondom de chip in de WK-bal, die dingen ziet die niemand ziet, of...
-- [Kraker in Dallas: haalt Frankrijk derde finale op rij of legt Spanje de topfavoriet het zwijgen op?](https://www.ad.nl/wk-voetbal/kraker-in-dallas-haalt-frankrijk-derde-finale-op-rij-of-legt-spanje-de-topfavoriet-het-zwijgen-op~a7cc7e5e/)
-  > Een ware kraker in de halve finale van het WK: Frankrijk tegen Spanje. De Fransen zijn de topfavoriet voor de eindzege, maar wacht in de laatste...
-- [Gestrande Olcay gered door superster en Eloise voelt zich mooi in elegante jurk](https://www.ad.nl/show/gestrande-olcay-gered-door-superster-en-eloise-voelt-zich-mooi-in-elegante-jurk~a536578f/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Met een ventilator is je lijf de warmte sneller kwijt: ‘Simpele en betaalbare oplossing’](https://www.ad.nl/wonen/met-een-ventilator-is-je-lijf-de-warmte-sneller-kwijt-simpele-en-betaalbare-oplossing~a09bb4d9/)
+  > Ze waren tijdens de eerste hittegolf nauwelijks aan te slepen en vliegen nu met de warmte weer over de toonbank: ventilatoren. Niet zo gek, zeggen...
+- [Oscar Gloukh is vastberaden om alsnog te slagen bij Ajax: ‘Dat Berghuis het voor me opnam, was aardig van hem’](https://www.ad.nl/voetbal/oscar-gloukh-is-vastberaden-om-alsnog-te-slagen-bij-ajax-dat-berghuis-het-voor-me-opnam-was-aardig-van-hem~a82ecaf3/)
+  > Na een teleurstellend debuutjaar is Oscar Gloukh vastberaden alsnog te slagen bij Ajax. De middenvelder hoopt dat duidelijkheid in de speelwijze hem...
+- [Acht Nederlanders op belangrijkste dartstoernooi na WK: alles over de World Matchplay](https://www.ad.nl/darts/acht-nederlanders-op-belangrijkste-dartstoernooi-na-wk-alles-over-de-world-matchplay~a36ece34/)
+  > Het belangrijkste toernooi na het WK darts staat op het programma. De World Matchplay (18 tot en met 26 juli), ook wel het ‘zomer-WK’ genoemd, biedt...
+- [Engelse media voeden 'Messi-complot' na aanstelling scheidsrechter: 'Hij is zijn favoriet'](https://www.ad.nl/wk-voetbal/engelse-media-voeden-messi-complot-na-aanstelling-scheidsrechter-hij-is-zijn-favoriet~a9ce81d6/)
+  > Nog één dag tot de halve finale tussen Engeland en Argentinië, maar er is nú al ophef over de arbitrage. De aanstelling van Ismail Elfath (44), een...
+- [Renners begonnen aan zware bergrit op Franse feestdag, slaat Pogacar weer een slag?](https://www.ad.nl/tour-de-france/renners-begonnen-aan-zware-bergrit-op-franse-feestdag-slaat-pogacar-weer-een-slag~af7aa9d5/)
+  > Na de eerste rustdag moeten de renners in de Tour de France vandaag weer flink aan de bak. Het profiel van de tiende etappe liegt er niet om, met...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Geen kernenergie zonder klanten en geen kerncentrales zonder deal](https://fd.nl/opinie/1604002/geen-kernenergie-zonder-klanten-en-geen-kerncentrales-zonder-deal)
-  > Doordat de politiek niet het doel, maar de locatie centraal stelt bij het kerncentraledebat worden bouwplannen niet gerealiseerd. Laat gebruikers...
-- [Rooksignalen](https://fd.nl/financiele-markten/1604015/rooksignalen)
-  > Bij Philip Morris staan ze inmiddels voor een rookvrije toekomst. Slim, de taal van je tegenstanders overnemen, schrijft FD-columnist Milou Brand.
-- [Start-up Quix uit Enschede levert eerste Nederlandse kwantumcomputer af](https://fd.nl/bedrijfsleven/1603893/start-up-quix-uit-enschede-levert-eerste-nederlandse-kwantumcomputer-af)
-  > Het zeven jaar oude techbedrijf ontwikkelde een kwantumcomputer die volgens kenners op wereldniveau kan meedoen. Het Duitse Lucht- en...
-- [Amerikaanse staten stappen naar rechter vanwege overname Warner Bros](https://fd.nl/bedrijfsleven/1604154/amerikaanse-staten-stappen-naar-rechter-vanwege-overname-warner-bros)
-  > Paramount is bereid om $110 mrd neer te leggen voor het film- en entertainmentbedrijf Warner Bros, maar volgens de staten zou de deal teveel macht...
-- [Familiehuis met een ‘houten look’](https://fd.nl/samenleving/1603897/familiehuis-met-een-houten-look)
-  > Vrijstaande villa in Heiloo, volledig gerealiseerd in CLT-bouw (Cross Laminated Timber). ‘In de zomer is het fijn dat hout de hitte niet zo...
+- [Brandstofprijzen stuwen inflatie, maar niet overal in Europa](https://fd.nl/economie/1604158/brandstofprijzen-stuwen-inflatie-maar-niet-overal-in-europa)
+  > Prijzen voor motorbrandstoffen stegen in mei met bijna 28% op jaarbasis in Nederland. De toename in Hongarije was nog geen 4%.
+- [Zorg om droogte neemt toe: ‘Aardappelen en uien moeten juist nu groeien’](https://fd.nl/bedrijfsleven/1603894/zorg-om-droogte-groeit-aardappelen-en-uien-moeten-juist-nu-groeien)
+  > De gelijkenissen met het recorddroge jaar 1976 dringen zich steeds meer op. Vorig weekend bleek dat de Landelijke Coördinatiecommissie Waterverdeling...
+- [‘Ook Samsung overweegt na landgenoot SK Hynix notering in de VS’](https://fd.nl/financiele-markten/1604162/ook-samsung-overweegt-na-landgenoot-sk-hynix-notering-in-de-vs)
+  > Chipmaker SK Hynix ging vorige week succesvol in notering in de VS en haalde zo een recordbedrag van $26,5 mrd op.
+- [VS starten offensief tegen Internationaal Strafhof in Den Haag](https://fd.nl/samenleving/1604020/vs-starten-offensief-tegen-internationaal-strafhof-in-den-haag)
+  > De Amerikaanse buitenlandminister Marco Rubio wil het strafhof ‘steen voor steen ontmantelen’. Volgens de regering-Trump vormt het instituut een...
+- [Adyen‑concurrent Nopan haalt miljoenen aan groeikapitaal op](https://fd.nl/financiele-markten/1604160/adyenconcurrent-nopan-haalt-miljoenen-aan-groeikapitaal-op)
+  > De Amsterdamse fintech Nopan wil met technologie voor directe betalingen en digitale portemonnees de concurrentie aangaan met grote partijen in de...
 
 ### Meest gelezen
 
