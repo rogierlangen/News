@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-07-2026 om 19:24*
+*Laatst bijgewerkt: 14-07-2026 om 21:03*
 
 ---
 
@@ -8,18 +8,17 @@
 
 ### Laatste nieuws
 
-- [Trump schrapt tolheffing Straat van Hormuz, ook nieuwe luchtaanvallen](https://nos.nl/l/2623014)
-  > De VS gaat toch geen tol heffen in de Straat van Hormuz, in tegenstelling tot wat president Trump gisteren zei. In plaats van passerende schepen te...
-- [Dodelijkste maand voor burgers in Oekraïne sinds april 2022](https://nos.nl/l/2623013)
-  > Afgelopen maand kwamen de meeste Oekraïense burgers om het leven sinds april 2022. Dat meldt de VN-mensenrechtencommissie in Oekraïne.
-        In...
-- [Kaasdieven gezocht na verdwijning vrachtwagen vol emmentaler in Duitsland](https://nos.nl/l/2623007)
-  > In de Duitse deelstaat Beieren is sprake van een verdwijning met een luchtje. De politie zoekt een vrachtwagen met 20 ton emmentalerkaas in het...
-- [Zes lichamen gevonden in neergestorte lift na brand Brussel](https://nos.nl/l/2622995)
-  > De brandweer heeft na de brand op een bouwplaats in Brussel de lichamen gevonden van zes vermisten, melden de autoriteiten aan verschillende media.
- ...
-- ['ICE schort meeste verkeerscontroles op na dodelijke schietincidenten'](https://nos.nl/l/2622992)
-  > De Amerikaanse immigratiedienst ICE schort voorlopig de meeste verkeerscontroles op. De maatregel volgt op twee dodelijke schietpartijen in korte...
+- [Trump betaalt 5 miljoen schadevergoeding om seksueel misbruik uit jaren 90](https://nos.nl/l/2623026)
+  > De Amerikaanse columnist E. Jean Carroll heeft 4,9 miljoen euro schadevergoeding ontvangen van Donald Trump. De Amerikaanse president moest dat...
+- [Acteur Cees Geel op 61-jarige leeftijd overleden](https://nos.nl/l/2623023)
+  > De Nederlandse acteur Cees Geel is op 61-jarige leeftijd overleden aan een hartstilstand. Dat heeft zijn management bekendgemaakt.
+        De acteur...
+- [Recordbedrag op veiling voor Gus, T. rex met copyright](https://nos.nl/l/2623020)
+  > Een bijzonder compleet T. rex-skelet heeft op een veiling in New York een recordbedrag opgebracht. Een onbekende bieder betaalde er ruim 50 miljoen...
+- [VS voert druk op Strafhof op: 'VS wil vrijbrief om internationaal recht te schenden'](https://nos.nl/l/2623019)
+  > Het Nederlandse ministerie van Buitenlandse Zaken zegt zorgen te hebben over "de verharde toon" van de VS over het Internationaal Strafhof ICC in Den...
+- [Tata Steel moet vervuilde bodem saneren na jarenlange opslag staalslakken](https://nos.nl/l/2623017)
+  > Tata Steel moet de bodem bij de Mergelkade op het terrein in Velsen-Noord saneren. De Omgevingsdienst Noordzeekanaalgebied (OD NZKG) heeft het...
 
 ### Meest gelezen
 
@@ -29,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Spanje op voorsprong in halve finale tegen Frankrijk, Oyarzabal benut penalty na fout Digne](https://www.ad.nl/wk-voetbal/spanje-op-voorsprong-in-halve-finale-tegen-frankrijk-oyarzabal-benut-penalty-na-fout-digne~a7cc7e5e/)
-  > Een ware kraker in de halve finales van het WK: Frankrijk tegen Spanje. In dit liveblog houden Sjoerd Mossou vanuit het stadion in Dallas en Minne...
-- [Wat de pil niet lukte, lukt de smartphone wel](https://www.ad.nl/binnenland/wat-de-pil-niet-lukte-lukt-de-smartphone-wel~a0642bf9/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [Voorbereiding eredivisie | Mijnans maakt goede eerste indruk bij PSV, NEC wint voor het eerst](https://www.ad.nl/voetbal/voorbereiding-eredivisie-mijnans-maakt-goede-eerste-indruk-bij-psv-nec-wint-voor-het-eerst~ab5071ea/)
-  > De eredivisieclubs zijn begonnen aan de voorbereiding op het nieuwe seizoen. In dit artikel lees je het programma en alle uitslagen per club. Onder...
-- [Bosbranden rond Parijs ‘onder controle’, maar blussen duurt mogelijk nog weken](https://www.ad.nl/buitenland/bosbranden-rond-parijs-onder-controle-maar-blussen-duurt-mogelijk-nog-weken~a7307cdb/)
-  > De bosbranden die woeden ten zuiden van Parijs zijn ‘onder controle’, maar nog niet geblust, zegt het hoofd van het departement Seine-et-Marne. Dat...
-- [Europese bevolking gaat krimpen, en dat heeft gevolgen: in 2100 zijn er tien keer zoveel Afrikanen als Europeanen](https://www.ad.nl/buitenland/europese-bevolking-gaat-krimpen-en-dat-heeft-gevolgen-in-2100-zijn-er-tien-keer-zoveel-afrikanen-als-europeanen~afe418d9/)
-  > Nog even en de bevolking van de Europese Unie gaat krimpen. Er worden minder baby’s geboren dan er mensen doodgaan, en er is te weinig immigratie om...
+- [Speelschema WK voetbal 2026 | Eerste finalist bekend: dit is het resterende programma en alle uitslagen](https://www.ad.nl/wk-voetbal/speelschema-wk-voetbal-2026-eerste-finalist-bekend-dit-is-het-resterende-programma-en-alle-uitslagen~ad85207c/)
+  > Nederland ligt er al een tijdje uit, maar er staat nog genoeg voetbalspektakel op het programma in de eindfase van het WK 2026 in Canada, Mexico en...
+- [Spanje is teleurstellend Frankrijk volledig de baas in Dallas en staat voor tweede keer in WK-finale](https://www.ad.nl/wk-voetbal/spanje-is-teleurstellend-frankrijk-volledig-de-baas-in-dallas-en-staat-voor-tweede-keer-in-wk-finale~a7cc7e5e/)
+  > Een foutieve inschatting van de ervaren linksback Lucas Digne leidde de ondergang van Frankrijk tegen Spanje in. Lamine Yamal, die steeds meer naar...
+- [Acteur Cees Geel op 61-jarige leeftijd plotseling overleden](https://www.ad.nl/show/acteur-cees-geel-op-61-jarige-leeftijd-plotseling-overleden~ae5a9da4/)
+  > Acteur Cees Geel (61) is dinsdagochtend plotseling overleden aan de gevolgen van een hartstilstand. Dat heeft zijn management namens zijn familie aan...
+- [Record voor Deschamps met 26ste WK-wedstrijd als bondscoach: dit is de top 10 en de ‘beste’ Nederlander](https://www.ad.nl/wk-voetbal/record-voor-deschamps-met-26ste-wk-wedstrijd-als-bondscoach-dit-is-de-top-10-en-de-beste-nederlander~a5a3a0ca/)
+  > Didier Deschamps heeft dinsdag een record gevestigd. De 57-jarige Fransman begon in de halve finale tegen Spanje aan zijn 26ste wedstrijd als...
+- [Man weigert sigaret te geven en verliest zijn tanden door harde vuistslag](https://www.ad.nl/binnenland/man-weigert-sigaret-te-geven-en-verliest-zijn-tanden-door-harde-vuistslag~aa900988/)
+  > Een rustig rookmoment voor de ingang van station Amsterdam Sloterdijk is voor een man uitgelopen op een gewelddadige beroving.
 
 ### Meest gelezen
 
@@ -48,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Koersval bij IBM domper op Amerikaanse beurzen](https://fd.nl/financiele-markten/1604205/koersval-bij-ibm-domper-op-amerikaanse-beurzen)
+  > De resultaten van de zakenbanken Goldman Sachs en JPMorganChase overtroffen de verwachtingen en beleggers putten ook hoop uit meevallende...
 - [SER moet wakker worden](https://fd.nl/opinie/1604185/ser-moet-wakker-worden)
   > De zoveelste adviesraad bewijst de afwezigheid van de belangrijkste adviesclub van het kabinet.
 - [Trump annuleert plan om tol te heffen in Straat van Hormuz](https://fd.nl/politiek/1604297/trump-annuleert-plan-om-tol-te-heffen-in-straat-van-hormuz)
@@ -56,8 +57,6 @@
   > Kevin Warsh: ‘De leden van onze commissie hebben geen tolerantie voor hardnekkige verhoogde inflatie.’
 - [Natuurorganisaties tekenen voorzichtig akkoord over bestrijdingsmiddelen niet](https://fd.nl/politiek/1604293/natuurorganisaties-tekenen-voorzichtig-akkoord-over-bestrijdingsmiddelen-niet)
   > Onder leiding van voormalig ChristenUnie-leider Gert-Jan Segers kwamen de betrokken partijen namens jonge boeren tot afspraken. Maar die zijn...
-- [IBM verliest op één dag een kwart van zijn waarde na slechte resultaten](https://fd.nl/bedrijfsleven/1604292/ibm-verliest-op-een-dag-een-kwart-van-zijn-waarde-na-slechte-resultaten)
-  > Volgens de ceo hebben klanten van IBM hun investeringsplannen vrij plotseling aangepast en bleek het bedrijf niet in staat om daar snel genoeg op in...
 
 ### Meest gelezen
 
