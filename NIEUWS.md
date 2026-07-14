@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-07-2026 om 11:26*
+*Laatst bijgewerkt: 14-07-2026 om 13:52*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Waterschappen willen Europese regels 'zodat we niet alleen restje rivierwater krijgen'](https://nos.nl/l/2622942)
-  > Er moeten binnen Europa strengere regels komen voor de verdeling van het schaarse rivierwater, om te voorkomen dat Nederland bijvoorbeeld bij droge...
-- [Staten spannen rechtszaak aan in VS om miljardendeal Warner Bros en Paramount](https://nos.nl/l/2622939)
-  > Twaalf Amerikaanse staten spannen een rechtszaak aan om de overname van Warner Bros Discovery door Paramount Skydance tegen te houden. Volgens de...
-- [Kerkrade saneert tientallen eeuwenoude mijnschachten om verzakking te voorkomen](https://nos.nl/l/2622938)
-  > De gemeente Kerkrade is bezig om 55 historische mijnschachten in de stad te saneren. De operatie moet verzakkingen van de grond voorkomen.
-        De...
-- [Door wachtlijsten in de jeugdbescherming hebben 200 kinderen geen voogd](https://nos.nl/l/2622933)
-  > Ruim 200 kinderen in Nederland die een vaste voogd zouden moeten hebben, hebben die niet. Dat blijkt uit cijfers die journalistiek onderzoeksplatform...
-- [Hoge Chinese functionaris Ma Xingrui uit Communistische Partij gezet](https://nos.nl/l/2622932)
-  > Een hoge Chinese functionaris, Ma Xingrui, is door het anti-corruptieorgaan van de Communistische Partij uit de Partij gezet. Dat meldt...
+- [Lagere straffen voor twee omgekochte ambtenaren gemeente Rotterdam](https://nos.nl/l/2622960)
+  > Het gerechtshof Den Haag heeft ook in hoger beroep twee voormalige ambtenaren van de gemeente Rotterdam veroordeeld in een grote corruptiezaak. De...
+- [Vrouw van man die half uit vliegtuig werd gezogen doet verhaal](https://nos.nl/l/2622959)
+  > "Ik dacht: als we sterven, sterven we samen. Het was verschrikkelijk", zegt de vrouw van de passagier die vorige week door een kapot raam van een...
+- [Verdachten kroonjuwelenroof Louvre zwijgen over opdrachtgever](https://nos.nl/l/2622958)
+  > Twee hoofdverdachten van de roof van Franse kroonjuwelen uit het Louvre hebben tegen de politie gezegd dat ze niet weten wie de opdrachtgever was....
+- [Tas moet op schoot in de trein, ook als het niet druk is](https://nos.nl/l/2622954)
+  > Reizigers die een tas meenemen in de trein moeten die voortaan op schoot houden of opbergen in het bagagerek. NS past de regels in de trein aan...
+- [Veroordeelde Marius Borg Høiby naar huis, net als geopereerde moeder Mette-Marit](https://nos.nl/l/2622953)
+  > In Noorwegen mag Marius Borg Høiby na ruim vijf maanden de gevangenis verlaten. De aanklagers gaan niet meer in beroep tegen de beslissing van de...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Met een ventilator is je lijf de warmte sneller kwijt: ‘Simpele en betaalbare oplossing’](https://www.ad.nl/wonen/met-een-ventilator-is-je-lijf-de-warmte-sneller-kwijt-simpele-en-betaalbare-oplossing~a09bb4d9/)
-  > Ze waren tijdens de eerste hittegolf nauwelijks aan te slepen en vliegen nu met de warmte weer over de toonbank: ventilatoren. Niet zo gek, zeggen...
-- [Oscar Gloukh is vastberaden om alsnog te slagen bij Ajax: ‘Dat Berghuis het voor me opnam, was aardig van hem’](https://www.ad.nl/voetbal/oscar-gloukh-is-vastberaden-om-alsnog-te-slagen-bij-ajax-dat-berghuis-het-voor-me-opnam-was-aardig-van-hem~a82ecaf3/)
-  > Na een teleurstellend debuutjaar is Oscar Gloukh vastberaden alsnog te slagen bij Ajax. De middenvelder hoopt dat duidelijkheid in de speelwijze hem...
-- [Acht Nederlanders op belangrijkste dartstoernooi na WK: alles over de World Matchplay](https://www.ad.nl/darts/acht-nederlanders-op-belangrijkste-dartstoernooi-na-wk-alles-over-de-world-matchplay~a36ece34/)
-  > Het belangrijkste toernooi na het WK darts staat op het programma. De World Matchplay (18 tot en met 26 juli), ook wel het ‘zomer-WK’ genoemd, biedt...
-- [Engelse media voeden 'Messi-complot' na aanstelling scheidsrechter: 'Hij is zijn favoriet'](https://www.ad.nl/wk-voetbal/engelse-media-voeden-messi-complot-na-aanstelling-scheidsrechter-hij-is-zijn-favoriet~a9ce81d6/)
-  > Nog één dag tot de halve finale tussen Engeland en Argentinië, maar er is nú al ophef over de arbitrage. De aanstelling van Ismail Elfath (44), een...
-- [Renners begonnen aan zware bergrit op Franse feestdag, slaat Pogacar weer een slag?](https://www.ad.nl/tour-de-france/renners-begonnen-aan-zware-bergrit-op-franse-feestdag-slaat-pogacar-weer-een-slag~af7aa9d5/)
-  > Na de eerste rustdag moeten de renners in de Tour de France vandaag weer flink aan de bak. Het profiel van de tiende etappe liegt er niet om, met...
+- [Ali B keert plots terug op Instagram, Emma Heesters afgetroefd door haar volgers](https://www.ad.nl/show/ali-b-keert-plots-terug-op-instagram-emma-heesters-afgetroefd-door-haar-volgers~a536578f/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [‘Als ouders gaan dreigen, aangifte doen en van de vereniging sturen’](https://www.ad.nl/binnenland/als-ouders-gaan-dreigen-aangifte-doen-en-van-de-vereniging-sturen~acae73a1/)
+  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag is dat deze: kinderen kunnen pas echt genieten van sport als ouders zich...
+- [Moeder van doodgereden Tamar verbijsterd: ‘Wie heeft haar dan versleept, een UFO?’](https://www.ad.nl/binnenland/moeder-van-doodgereden-tamar-verbijsterd-wie-heeft-haar-dan-versleept-een-ufo~a21ffdaa/)
+  > De ouders van Tamar uit Marken liepen de rechtbank al uit toen de rechter Jamal T. nog niet officieel had vrijgesproken. Ze zagen dat al aankomen en...
+- [‘Gezicht’ tegen PFAS-vervuiling krijgt postuum ereplek tegenover fabriek Chemours: ‘De strijd gaat door’](https://www.ad.nl/sliedrecht/gezicht-tegen-pfas-vervuiling-krijgt-postuum-ereplek-tegenover-fabriek-chemours-de-strijd-gaat-door~a985945e/)
+  > Tegenover de fabriek waartegen hij jarenlang streed, kijkt de overleden Joop Keesmaat vanaf dinsdag voorgoed uit over de Baanhoek in Sliedrecht. Op...
+- [Rechtbank laat verbod op overname DigiD-beheerder in stand](https://www.ad.nl/economie/rechtbank-laat-verbod-op-overname-digid-beheerder-in-stand~a7633ddf/)
+  > De rechtbank in Rotterdam laat het verbod van staatssecretaris Willemijn Aerdts op de overname van Solvinity door Kyndryl voorlopig in stand.
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Brandstofprijzen stuwen inflatie, maar niet overal in Europa](https://fd.nl/economie/1604158/brandstofprijzen-stuwen-inflatie-maar-niet-overal-in-europa)
-  > Prijzen voor motorbrandstoffen stegen in mei met bijna 28% op jaarbasis in Nederland. De toename in Hongarije was nog geen 4%.
-- [Zorg om droogte neemt toe: ‘Aardappelen en uien moeten juist nu groeien’](https://fd.nl/bedrijfsleven/1603894/zorg-om-droogte-groeit-aardappelen-en-uien-moeten-juist-nu-groeien)
-  > De gelijkenissen met het recorddroge jaar 1976 dringen zich steeds meer op. Vorig weekend bleek dat de Landelijke Coördinatiecommissie Waterverdeling...
-- [‘Ook Samsung overweegt na landgenoot SK Hynix notering in de VS’](https://fd.nl/financiele-markten/1604162/ook-samsung-overweegt-na-landgenoot-sk-hynix-notering-in-de-vs)
-  > Chipmaker SK Hynix ging vorige week succesvol in notering in de VS en haalde zo een recordbedrag van $26,5 mrd op.
-- [VS starten offensief tegen Internationaal Strafhof in Den Haag](https://fd.nl/samenleving/1604020/vs-starten-offensief-tegen-internationaal-strafhof-in-den-haag)
-  > De Amerikaanse buitenlandminister Marco Rubio wil het strafhof ‘steen voor steen ontmantelen’. Volgens de regering-Trump vormt het instituut een...
-- [Adyen‑concurrent Nopan haalt miljoenen aan groeikapitaal op](https://fd.nl/financiele-markten/1604160/adyenconcurrent-nopan-haalt-miljoenen-aan-groeikapitaal-op)
-  > De Amsterdamse fintech Nopan wil met technologie voor directe betalingen en digitale portemonnees de concurrentie aangaan met grote partijen in de...
+- [Rechter vindt overnameverbod Solvinity terecht en wijst schorsingsverzoek af](https://fd.nl/bedrijfsleven/1604165/rechter-vindt-overnameverbod-solvinity-terecht-en-wijst-schorsingsverzoek-af)
+  > Solvinity, dat een cruciale rol bij DigiD speelt, had de voorzieningenrechter samen met zijn aandeelhouder gevraagd om een schorsing van het verbod.
+- [Argentijnse voetballers blijven goedkoop ondanks grote successen](https://fd.nl/economie/1604153/argentijnse-voetballers-blijven-goedkoop-ondanks-grote-successen)
+  > Voor de clubs in Argentinië is het verkopen van spelers bittere noodzaak door te weinig inkomsten en economische instabiliteit. De waardesprong van...
+- [Adyen doet als enige Nederlandse bank mee aan proef digitale euro](https://fd.nl/financiele-markten/1604176/adyen-doet-als-enige-nederlandse-bank-mee-aan-proef-digitale-euro)
+  > Tijdens de pilot wordt gewerkt met een bètaversie van de digitale euro.
+- [Ziekmeldingen arbeidsmigranten vaker geweigerd](https://fd.nl/bedrijfsleven/1604276/ziekmeldingen-arbeidsmigranten-vaker-geweigerd)
+  > De SNCU, die toeziet op naleving van de uitzend-cao, krijgt steeds meer klachten dat ziekmeldingen van buitenlandse uitzendkrachten niet worden...
+- [Hyperscalers vergen het uiterste van de obligatiemarkten](https://fd.nl/financiele-markten/1604019/hyperscalers-vergen-het-uiterste-van-de-obligatiemarkten)
+  > Amerikaanse techbedrijven die op grote schaal AI-infrastructuur bouwen, overspoelen de obligatiemarkt met miljardenuitgiftes. Daarbij lijkt het alsof...
 
 ### Meest gelezen
 
