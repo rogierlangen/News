@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-07-2026 om 21:03*
+*Laatst bijgewerkt: 14-07-2026 om 22:58*
 
 ---
 
@@ -10,9 +10,8 @@
 
 - [Trump betaalt 5 miljoen schadevergoeding om seksueel misbruik uit jaren 90](https://nos.nl/l/2623026)
   > De Amerikaanse columnist E. Jean Carroll heeft 4,9 miljoen euro schadevergoeding ontvangen van Donald Trump. De Amerikaanse president moest dat...
-- [Acteur Cees Geel op 61-jarige leeftijd overleden](https://nos.nl/l/2623023)
-  > De Nederlandse acteur Cees Geel is op 61-jarige leeftijd overleden aan een hartstilstand. Dat heeft zijn management bekendgemaakt.
-        De acteur...
+- [Acteur Cees Geel op 61-jarige leeftijd overleden aan hartstilstand](https://nos.nl/l/2623023)
+  > De Nederlandse acteur Cees Geel is op 61-jarige leeftijd overleden aan een hartstilstand. Dat heeft zijn management bekendgemaakt. Geel laat twee...
 - [Recordbedrag op veiling voor Gus, T. rex met copyright](https://nos.nl/l/2623020)
   > Een bijzonder compleet T. rex-skelet heeft op een veiling in New York een recordbedrag opgebracht. Een onbekende bieder betaalde er ruim 50 miljoen...
 - [VS voert druk op Strafhof op: 'VS wil vrijbrief om internationaal recht te schenden'](https://nos.nl/l/2623019)
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Speelschema WK voetbal 2026 | Eerste finalist bekend: dit is het resterende programma en alle uitslagen](https://www.ad.nl/wk-voetbal/speelschema-wk-voetbal-2026-eerste-finalist-bekend-dit-is-het-resterende-programma-en-alle-uitslagen~ad85207c/)
-  > Nederland ligt er al een tijdje uit, maar er staat nog genoeg voetbalspektakel op het programma in de eindfase van het WK 2026 in Canada, Mexico en...
-- [Spanje is teleurstellend Frankrijk volledig de baas in Dallas en staat voor tweede keer in WK-finale](https://www.ad.nl/wk-voetbal/spanje-is-teleurstellend-frankrijk-volledig-de-baas-in-dallas-en-staat-voor-tweede-keer-in-wk-finale~a7cc7e5e/)
-  > Een foutieve inschatting van de ervaren linksback Lucas Digne leidde de ondergang van Frankrijk tegen Spanje in. Lamine Yamal, die steeds meer naar...
-- [Acteur Cees Geel op 61-jarige leeftijd plotseling overleden](https://www.ad.nl/show/acteur-cees-geel-op-61-jarige-leeftijd-plotseling-overleden~ae5a9da4/)
-  > Acteur Cees Geel (61) is dinsdagochtend plotseling overleden aan de gevolgen van een hartstilstand. Dat heeft zijn management namens zijn familie aan...
-- [Record voor Deschamps met 26ste WK-wedstrijd als bondscoach: dit is de top 10 en de ‘beste’ Nederlander](https://www.ad.nl/wk-voetbal/record-voor-deschamps-met-26ste-wk-wedstrijd-als-bondscoach-dit-is-de-top-10-en-de-beste-nederlander~a5a3a0ca/)
-  > Didier Deschamps heeft dinsdag een record gevestigd. De 57-jarige Fransman begon in de halve finale tegen Spanje aan zijn 26ste wedstrijd als...
-- [Man weigert sigaret te geven en verliest zijn tanden door harde vuistslag](https://www.ad.nl/binnenland/man-weigert-sigaret-te-geven-en-verliest-zijn-tanden-door-harde-vuistslag~aa900988/)
-  > Een rustig rookmoment voor de ingang van station Amsterdam Sloterdijk is voor een man uitgelopen op een gewelddadige beroving.
+- [Trump maakt 5,6 miljoen dollar over aan E. Jean Carroll na veroordeling seksueel misbruik](https://www.ad.nl/buitenland/trump-maakt-5-6-miljoen-dollar-over-aan-e-jean-carroll-na-veroordeling-seksueel-misbruik~ae67dd9c/)
+  > Schrijfster E. Jean Carroll heeft een schadevergoeding van de Amerikaanse president Donald Trump ontvangen. Er zou 5,6 miljoen dollar (4,9 miljoen...
+- [Pijnlijke cijfers voor Kylian Mbappé: Lamine Yamal voor de negende keer als winnaar uit de strijd](https://www.ad.nl/wk-voetbal/pijnlijke-cijfers-voor-kylian-mbappe-lamine-yamal-voor-de-negende-keer-als-winnaar-uit-de-strijd~a987247d/)
+  > De halve finale op het WK tussen Spanje en Frankrijk (2-0) was ook het duel tussen de absolute sterren van hun nationale teams: Lamine Yamal (19) en...
+- [Alles over de WK-finale van zondag: waar, hoe laat en wie pakten in het verleden de wereldtitel?](https://www.ad.nl/wk-voetbal/alles-over-de-wk-finale-van-zondag-waar-hoe-laat-en-wie-pakten-in-het-verleden-de-wereldtitel~a9a52397/)
+  > Op zondag 19 juli is de apotheose van het WK voetbal van 2026 in de Verenigde Staten, Canada en Mexico. In dit artikel lees je alles over de finale.
+- [Amerikaanse krijgsmacht zegt Straat van Hormuz weer te blokkeren](https://www.ad.nl/buitenland/amerikaanse-krijgsmacht-zegt-straat-van-hormuz-weer-te-blokkeren~ac528ac3/)
+  > De Amerikaanse krijgsmacht heeft naar eigen zeggen de Straat van Hormuz weer geblokkeerd. Schepen die van en naar Iraanse havens varen, komen er niet...
+- [Grootschalige politieactie in Wallengebied vanwege mensenhandel, meerdere aanhoudingen](https://www.ad.nl/112-nieuws-amsterdam/grootschalige-politieactie-in-wallengebied-vanwege-mensenhandel-meerdere-aanhoudingen~ab9e141d/)
+  > De politie in Amsterdam is dinsdagavond bezig met een grote actie waarbij meerdere verdachten op verdenking van mensenhandel worden aangehouden. Deze...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [AI maakt lui, niet dom](https://fd.nl/opinie/1604193/ai-maakt-lui-niet-dom)
+  > De vraag is welke vaardigheden we in een wereld met AI wel moeten leren om succesvol te zijn.
+- [Nederland kijkt met een terugkeerbril naar Syrië](https://fd.nl/opinie/1604111/nederland-kijkt-met-een-terugkeerbril-naar-syrie)
+  > Terwijl Den Haag vooral spreekt over terugkeer, vragen Syriërs om iets anders: investeringen, partnerschap en een langetermijnvisie. Alleen zo kan...
+- [Blokker opent een jaar na doorstart weer filialen, maar heeft de keten toekomst?](https://fd.nl/bedrijfsleven/1604021/blokker-opent-een-jaar-na-doorstart-weer-filialen-maar-heeft-de-keten-toekomst)
+  > Woensdag opent Blokker drie nieuwe filialen, waarmee het totaal op 61 winkels komt. Het is nog onvoldoende om weer een rol van betekenis te spelen in...
+- [Personalia woensdag 15 juli](https://fd.nl/bedrijfsleven/1604283/personalia-woensdag-15-juli)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [Koersval bij IBM domper op Amerikaanse beurzen](https://fd.nl/financiele-markten/1604205/koersval-bij-ibm-domper-op-amerikaanse-beurzen)
   > De resultaten van de zakenbanken Goldman Sachs en JPMorganChase overtroffen de verwachtingen en beleggers putten ook hoop uit meevallende...
-- [SER moet wakker worden](https://fd.nl/opinie/1604185/ser-moet-wakker-worden)
-  > De zoveelste adviesraad bewijst de afwezigheid van de belangrijkste adviesclub van het kabinet.
-- [Trump annuleert plan om tol te heffen in Straat van Hormuz](https://fd.nl/politiek/1604297/trump-annuleert-plan-om-tol-te-heffen-in-straat-van-hormuz)
-  > Het plan dat de Amerikaanse president maandag aankondigde, werd dinsdag alweer ingetrokken. Trump zegt nu genoegen te nemen met grote investeringen...
-- [Warsh belooft in zijn eerste optreden in het Congres prijsstabiliteit te herstellen](https://fd.nl/financiele-markten/1604178/warsh-belooft-in-zijn-eerste-optreden-in-het-congres-prijsstabiliteit-te-herstellen)
-  > Kevin Warsh: ‘De leden van onze commissie hebben geen tolerantie voor hardnekkige verhoogde inflatie.’
-- [Natuurorganisaties tekenen voorzichtig akkoord over bestrijdingsmiddelen niet](https://fd.nl/politiek/1604293/natuurorganisaties-tekenen-voorzichtig-akkoord-over-bestrijdingsmiddelen-niet)
-  > Onder leiding van voormalig ChristenUnie-leider Gert-Jan Segers kwamen de betrokken partijen namens jonge boeren tot afspraken. Maar die zijn...
 
 ### Meest gelezen
 
