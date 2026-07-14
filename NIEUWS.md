@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-07-2026 om 22:58*
+*Laatst bijgewerkt: 14-07-2026 om 23:59*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Na ruim een eeuw geen grenscontroles meer tussen Spanje en Gibraltar](https://nos.nl/l/2623037)
+  > Na meer dan een eeuw is een eind gekomen aan de grenscontroles tussen Gibraltar en Spanje. Sinds middernacht worden bezoekers op de grens niet meer...
+- [Wereldwijd meer kinderen gevaccineerd, maar grote verschillen tussen landen](https://nos.nl/l/2623036)
+  > De wereldwijde vaccinatiegraad onder kinderen is vorig jaar licht gestegen ten opzichte van de jaren daarvoor. Toch worden nog altijd niet zoveel...
 - [Trump betaalt 5 miljoen schadevergoeding om seksueel misbruik uit jaren 90](https://nos.nl/l/2623026)
   > De Amerikaanse columnist E. Jean Carroll heeft 4,9 miljoen euro schadevergoeding ontvangen van Donald Trump. De Amerikaanse president moest dat...
 - [Acteur Cees Geel op 61-jarige leeftijd overleden aan hartstilstand](https://nos.nl/l/2623023)
   > De Nederlandse acteur Cees Geel is op 61-jarige leeftijd overleden aan een hartstilstand. Dat heeft zijn management bekendgemaakt. Geel laat twee...
 - [Recordbedrag op veiling voor Gus, T. rex met copyright](https://nos.nl/l/2623020)
   > Een bijzonder compleet T. rex-skelet heeft op een veiling in New York een recordbedrag opgebracht. Een onbekende bieder betaalde er ruim 50 miljoen...
-- [VS voert druk op Strafhof op: 'VS wil vrijbrief om internationaal recht te schenden'](https://nos.nl/l/2623019)
-  > Het Nederlandse ministerie van Buitenlandse Zaken zegt zorgen te hebben over "de verharde toon" van de VS over het Internationaal Strafhof ICC in Den...
-- [Tata Steel moet vervuilde bodem saneren na jarenlange opslag staalslakken](https://nos.nl/l/2623017)
-  > Tata Steel moet de bodem bij de Mergelkade op het terrein in Velsen-Noord saneren. De Omgevingsdienst Noordzeekanaalgebied (OD NZKG) heeft het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [LIVE Midden-Oosten | Trump dreigt energiecentrales en bruggen Iran aan te vallen als er geen akkoord komt](https://www.ad.nl/buitenland/live-midden-oosten-trump-dreigt-energiecentrales-en-bruggen-iran-aan-te-vallen-als-er-geen-akkoord-komt~ac528ac3/)
+  > Donald Trump heeft gedreigd dat hij de Amerikaanse aanvallen op Iran volgende week uitbreidt naar elektriciteitscentrales en bruggen als Teheran dan...
+- [Man wordt op de vlucht voor ICE-agenten dodelijk aangereden door vrachtwagen](https://www.ad.nl/buitenland/man-wordt-op-de-vlucht-voor-ice-agenten-dodelijk-aangereden-door-vrachtwagen~a7839c78/)
+  > Een man die op de vlucht sloeg voor immigratieagenten in de Amerikaanse staat Florida, is tijdens zijn vlucht onder een vrachtwagen terechtgekomen....
 - [Trump maakt 5,6 miljoen dollar over aan E. Jean Carroll na veroordeling seksueel misbruik](https://www.ad.nl/buitenland/trump-maakt-5-6-miljoen-dollar-over-aan-e-jean-carroll-na-veroordeling-seksueel-misbruik~ae67dd9c/)
   > Schrijfster E. Jean Carroll heeft een schadevergoeding van de Amerikaanse president Donald Trump ontvangen. Er zou 5,6 miljoen dollar (4,9 miljoen...
 - [Pijnlijke cijfers voor Kylian Mbappé: Lamine Yamal voor de negende keer als winnaar uit de strijd](https://www.ad.nl/wk-voetbal/pijnlijke-cijfers-voor-kylian-mbappe-lamine-yamal-voor-de-negende-keer-als-winnaar-uit-de-strijd~a987247d/)
   > De halve finale op het WK tussen Spanje en Frankrijk (2-0) was ook het duel tussen de absolute sterren van hun nationale teams: Lamine Yamal (19) en...
 - [Alles over de WK-finale van zondag: waar, hoe laat en wie pakten in het verleden de wereldtitel?](https://www.ad.nl/wk-voetbal/alles-over-de-wk-finale-van-zondag-waar-hoe-laat-en-wie-pakten-in-het-verleden-de-wereldtitel~a9a52397/)
   > Op zondag 19 juli is de apotheose van het WK voetbal van 2026 in de Verenigde Staten, Canada en Mexico. In dit artikel lees je alles over de finale.
-- [Amerikaanse krijgsmacht zegt Straat van Hormuz weer te blokkeren](https://www.ad.nl/buitenland/amerikaanse-krijgsmacht-zegt-straat-van-hormuz-weer-te-blokkeren~ac528ac3/)
-  > De Amerikaanse krijgsmacht heeft naar eigen zeggen de Straat van Hormuz weer geblokkeerd. Schepen die van en naar Iraanse havens varen, komen er niet...
-- [Grootschalige politieactie in Wallengebied vanwege mensenhandel, meerdere aanhoudingen](https://www.ad.nl/112-nieuws-amsterdam/grootschalige-politieactie-in-wallengebied-vanwege-mensenhandel-meerdere-aanhoudingen~ab9e141d/)
-  > De politie in Amsterdam is dinsdagavond bezig met een grote actie waarbij meerdere verdachten op verdenking van mensenhandel worden aangehouden. Deze...
 
 ### Meest gelezen
 
