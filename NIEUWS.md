@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-07-2026 om 06:18*
+*Laatst bijgewerkt: 15-07-2026 om 09:10*
 
 ---
 
@@ -8,18 +8,18 @@
 
 ### Laatste nieuws
 
-- [Hoofdpijndossier voor Hoekstra: moet de luchtvaartsector meer betalen voor uitstoot?](https://nos.nl/l/2623048)
-  > De Europese Commissie overweegt vliegmaatschappijen te laten betalen voor de CO2-uitstoot van intercontinentale vluchten. Tegenstanders vrezen hogere...
-- [Wekdienst 15/7: Dagopvang asielzoekers opent in Ter Apel • Engeland-Argentinië in halve finale WK](https://nos.nl/l/2623046)
-  > Goedemorgen! In Ter Apel opent een nieuwe dagopvang voor asielzoekers en op het WK voetbal spelen Engeland en Argentinië om een plek in de finale. 
- ...
-- [Surinaams leger arresteert veertien gewapende Chinezen](https://nos.nl/l/2623042)
-  > In het zuiden van Suriname zijn veertien gewapende Chinese mannen gearresteerd bij een gezamenlijke operatie van de politie en het leger.
-        In...
-- [Iran en VS blijven aanvallen uitvoeren, onder meer Koeweit geraakt](https://nos.nl/l/2623041)
-  > Ook vannacht hebben de VS en Iran weer aanvallen uitgevoerd. In Koeweit en in Bahrein voerde Iran luchtaanvallen uit. Volgens de Iraanse...
-- [Douane treedt harder op tegen professionele sigarettensmokkelaars](https://nos.nl/l/2623040)
-  > De douane gaat extra maatregelen nemen tegen de smokkel van sigaretten. Dit jaar zijn al 106 miljoen illegale sigaretten in beslag genomen. De...
+- [Overbelast stroomnet, bibliotheek Utrecht zet roltrap stil](https://nos.nl/l/2623062)
+  > Bij warm weer staan de roltrappen in de bibliotheek in de binnenstad van Utrecht uit.
+        De bieb kiest daar voor omdat als gevolg van het...
+- [Oekraïne opent nieuw front op zee met aanvallen op Russische schepen](https://nos.nl/l/2623058)
+  > Oekraïne heeft vannacht een grootschalige drone-aanval uitgevoerd op de Zwarte Zee. Daarbij werden twintig Russische schepen geraakt, waaronder...
+- [Inflatie is 3 procent, maar Nederlanders denken dat die veel hoger is](https://nos.nl/l/2623055)
+  > Mensen schatten de inflatie hoger in dan deze daadwerkelijk is, meldt het Centraal Bureau voor de Statistiek (CBS). De laatste jaren is de inflatie...
+- [Wieringermeerders zijn klaar met rode lichten in windmolens, maar oplossing blijft nog uit](https://nos.nl/l/2623053)
+  > Bewoners van de Wieringermeer hebben er genoeg van dat de rode lichten in de windmolens altijd aanstaan.
+        Vijf jaar geleden al is een...
+- [ASML overtreft verwachtingen, maar nieuwe Amerikaanse wet hangt dreigend boven de markt](https://nos.nl/l/2623051)
+  > ASML heeft weer meer geld verdiend dan verwacht. De chipmachinebouwer uit Veldhoven behaalde het tweede kwartaal een omzet van 9,3 miljard euro; meer...
 
 ### Meest gelezen
 
@@ -29,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [500 campings in Zuid-Europa getroffen door hack, zware onweersbuien op komst in Alpen en Italië](https://www.ad.nl/buitenland/500-campings-in-zuid-europa-getroffen-door-hack-zware-onweersbuien-op-komst-in-alpen-en-italie~a4195717/)
-  > Ga je op reis naar de Spaanse Costa, een idyllisch Frans dorpje, plons je in een Turks resort of ga je lekker fietsen op de Veluwe? Waar de reis ook...
-- [‘Ariana Grande na tien jaar weer terug bij ex Ricky Alvarez’](https://www.ad.nl/show/ariana-grande-na-tien-jaar-weer-terug-bij-ex-ricky-alvarez~aa392cf0/)
-  > Ariana Grande en haar ex-vriend Ricky Alvarez zijn weer aan het daten. Dat melden verschillende Amerikaanse media, waaronder People en TMZ. De...
-- [Hoe Spanje trouw blijft aan een stokoude Cruijffiaanse wijsheid](https://www.ad.nl/wk-voetbal/hoe-spanje-trouw-blijft-aan-een-stokoude-cruijffiaanse-wijsheid~ac6db4d9/)
-  > „Als wij de bal hebben, kunnen hun niet scoren’’, zei Johan Cruijff al. In Dallas bewees Spanje dinsdagavond dat je wereldkampioen kunt worden door...
-- [Oekraïne mag geld van EU-lening uitgeven aan Chinese drones, Von der Leyen: ‘Het tij in de oorlog keert’](https://www.ad.nl/buitenland/oekraine-mag-geld-van-eu-lening-uitgeven-aan-chinese-drones-von-der-leyen-het-tij-in-de-oorlog-keert~adfb97be/)
-  > Oekraïne mag geld van een EU-lening voor defensie uitgeven aan Chinese drone-onderdelen. Dat meldt de Financial Times. Eigenlijk moet het geld voor...
-- [Collega’s in rouw om plotseling overleden Cees Geel: ‘Een brombeer met een hart van goud’](https://www.ad.nl/show/collegas-in-rouw-om-plotseling-overleden-cees-geel-een-brombeer-met-een-hart-van-goud~a57c3f49/)
-  > Vrienden en collega’s zijn enorm geschrokken door het plotselinge overlijden van Cees Geel (61). De acteur, die een Gouden Kalf kreeg voor Simon en...
+- [‘De FIFA rekt haar eigen regels op’: halftimeshow zorgt voor rust van ‘minstens 25 minuten’ tijdens WK-finale](https://www.ad.nl/wk-voetbal/de-fifa-rekt-haar-eigen-regels-op-halftimeshow-zorgt-voor-rust-van-minstens-25-minuten-tijdens-wk-finale~a4230bf4/)
+  > De rust tijdens de finale van het WK voetbal zondag zal langer duren dan de gebruikelijke 15 minuten door de halftime-show. Dat melden verschillende...
+- [Eén streamingsdienst betaalt niet meer voor AI-muziek: wat doen concurrenten met de lawine aan ‘AI-rommel’?](https://www.ad.nl/tech/een-streamingsdienst-betaalt-niet-meer-voor-ai-muziek-wat-doen-concurrenten-met-de-lawine-aan-ai-rommel~aa92dd51/)
+  > AI-liedjes? Nederlanders luisteren liever naar muziek van échte mensen, zo blijkt. Toch worden streamingdiensten overspoeld door AI-muziek. Hoe weet...
+- [Naast Timon Wellenreuther kan ook Leo Sauer Feyenoord verlaten voor Duits avontuur](https://www.ad.nl/voetbal/naast-timon-wellenreuther-kan-ook-leo-sauer-feyenoord-verlaten-voor-duits-avontuur~a2da5c70/)
+  > Timon Wellenreuther vertrekt naar VfL Wolfsburg. De Duitse doelman stond al in de startblokken om Feyenoord te verlaten. Na het definitief vastleggen...
+- [45 sprints in één training en een verleden als schaatser: dit is waarom Olav Kooij elke massasprint kan winnen](https://www.ad.nl/tour-de-france/45-sprints-in-een-training-en-een-verleden-als-schaatser-dit-is-waarom-olav-kooij-elke-massasprint-kan-winnen~ad32531c4/)
+  > Een vervelend virus opgelopen, maar nu toch ritwinnaar in de Tour de France. Olav Kooij maakt sinds zijn rentree veel indruk, ook op zijn nieuwe...
+- [Recordaantal tekenbeten tijdens extreem hete dagen in juni, meeste beten in bos en eigen tuin](https://www.ad.nl/binnenland/recordaantal-tekenbeten-tijdens-extreem-hete-dagen-in-juni-meeste-beten-in-bos-en-eigen-tuin~a04b15a7/)
+  > Het RIVM heeft tijdens de extreem warme dagen van eind juni een recordaantal tekenbeten geregistreerd in het monitorsysteem Tekenradar.
 
 ### Meest gelezen
 
@@ -48,16 +48,16 @@
 
 ### Laatste nieuws
 
-- [NSI verlaagt winstverwachting voor 2026](https://fd.nl/bedrijfsleven/1604332/nsi-verlaagt-winstverwachting-voor-2026)
-  > De kantoorbelegger wil 5% van de eigen aandelen gaan inkopen.
-- [TomTom boekt onder nieuwe topman een positief bedrijfsresultaat](https://fd.nl/bedrijfsleven/1604331/tomtom-boekt-onder-nieuwe-topman-een-positief-bedrijfsresultaat)
-  > Lagere kosten compenseren voor een verdere omzetdaling. TomTom blijft bij de verwachting dat de omzet volgend jaar weer zal groeien.
-- [Groei Chinese economie stagneert meer dan verwacht](https://fd.nl/economie/1604206/groei-chinese-economie-stagneert-meer-dan-verwacht)
-  > De Chinese economie groeit minder hard dan voorspeld.
-- [ASML verhoogt omzetverwachting voor hele jaar door aanhoudende AI-hausse](https://fd.nl/bedrijfsleven/1604157/asml-verhoogt-omzetverwachting-voor-hele-jaar-door-aanhoudende-ai-hausse)
-  > De chipmachinefabrikant uit Veldhoven overtreft de verwachtingen van analisten met een hogere omzet en nettowinst. ASML schroeft zijn...
-- [DNB: Nederlandse pensioenfondsen staan beperkt bloot aan private credit](https://fd.nl/financiele-markten/1604330/dnb-nederlandse-pensioenfondsen-staan-beperkt-bloot-aan-private-credit)
-  > Nederlandse pensioenfondsen en verzekeraars zullen wel nog meer in deze schuldcategorie gaan beleggen, verwacht  De Nederlandsche Bank. Dat is...
+- [Private equity kocht mijn kat op](https://fd.nl/financiele-markten/1602128/private-equity-kocht-mijn-kat-op)
+  > Dierenartsen blijven voor duizenden euro’s halfdode beesten doorbehandelen, om zo klanten helemaal leeg te trekken. Wie durft die arme diertjes...
+- [Na conflict over bouwen op laagste punt van Nederland: ‘Waterschappen moeten veel meer van zich laten horen’](https://fd.nl/samenleving/1604112/na-conflict-over-bouwen-op-laagste-punt-van-nederland-waterschappen-moeten-veel-meer-van-zich-laten-horen)
+  > In de Zuidplaspolder botsten gemeente en waterschap over woningbouw. Hoogheemraad Josien van Cappelle pleit voor juridisch bindende adviezen van...
+- [Maak de thuisbatterij ook btw-vrij – net als bij zonnepanelen al het geval is](https://fd.nl/opinie/1603927/maak-thuisbatterij-btw-vrij-net-als-zonnepanelen)
+  > Eerdere kabinetten zetten groot in op zonnepanelen. Met het verdwijnen van de salderingsregeling en het probleem van netcongestie, dient nu...
+- [Uber en Delivery Hero voeren overnamegesprekken](https://fd.nl/bedrijfsleven/1604333/uber-en-delivery-hero-voeren-overnamegesprekken)
+  > Uber zou de in Berlijn gevestigde maaltijdbezorger voor zo’n €12 mrd willen kopen.
+- [De kleur van thuis](https://fd.nl/samenleving/1603895/de-kleur-van-thuis)
+  > Iwan Brave, journalist in Suriname: ‘Ik had mijn geloof in Nederland verloren. Het land had een bont lichaam aan culturen, maar zijn gelaat bleef...
 
 ### Meest gelezen
 
