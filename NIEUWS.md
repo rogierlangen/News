@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-07-2026 om 23:59*
+*Laatst bijgewerkt: 15-07-2026 om 03:24*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Iran en VS blijven aanvallen uitvoeren, onder meer Koeweit geraakt](https://nos.nl/l/2623041)
+  > Ook vannacht hebben de VS en Iran weer aanvallen uitgevoerd. In Koeweit en in Bahrein voerde Iran luchtaanvallen uit. Volgens de Iraanse...
+- [Douane treedt harder op tegen professionele sigarettensmokkelaars](https://nos.nl/l/2623040)
+  > De douane gaat extra maatregelen nemen tegen de smokkel van sigaretten. Dit jaar zijn al 106 miljoen illegale sigaretten in beslag genomen. De...
+- [Politie houdt grote actie tegen mensenhandel in Amsterdamse rosse buurt](https://nos.nl/l/2623039)
+  > De Amsterdamse politie heeft gisteravond in en rond de Amsterdamse Wallen een grote actie gehouden tegen mensenhandel.
+        Daarbij werden...
+- [VS kampt met diarree-uitbraak, zoektocht naar bron verloopt moeizaam](https://nos.nl/l/2623038)
+  > In de VS kampen meerdere staten met een uitbraak van de darmparasiet cyclospora die waterige diarree veroorzaakt. Meer dan dertig staten meldden dit...
 - [Na ruim een eeuw geen grenscontroles meer tussen Spanje en Gibraltar](https://nos.nl/l/2623037)
   > Na meer dan een eeuw is een eind gekomen aan de grenscontroles tussen Gibraltar en Spanje. Sinds middernacht worden bezoekers op de grens niet meer...
-- [Wereldwijd meer kinderen gevaccineerd, maar grote verschillen tussen landen](https://nos.nl/l/2623036)
-  > De wereldwijde vaccinatiegraad onder kinderen is vorig jaar licht gestegen ten opzichte van de jaren daarvoor. Toch worden nog altijd niet zoveel...
-- [Trump betaalt 5 miljoen schadevergoeding om seksueel misbruik uit jaren 90](https://nos.nl/l/2623026)
-  > De Amerikaanse columnist E. Jean Carroll heeft 4,9 miljoen euro schadevergoeding ontvangen van Donald Trump. De Amerikaanse president moest dat...
-- [Acteur Cees Geel op 61-jarige leeftijd overleden aan hartstilstand](https://nos.nl/l/2623023)
-  > De Nederlandse acteur Cees Geel is op 61-jarige leeftijd overleden aan een hartstilstand. Dat heeft zijn management bekendgemaakt. Geel laat twee...
-- [Recordbedrag op veiling voor Gus, T. rex met copyright](https://nos.nl/l/2623020)
-  > Een bijzonder compleet T. rex-skelet heeft op een veiling in New York een recordbedrag opgebracht. Een onbekende bieder betaalde er ruim 50 miljoen...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Midden-Oosten | Trump dreigt energiecentrales en bruggen Iran aan te vallen als er geen akkoord komt](https://www.ad.nl/buitenland/live-midden-oosten-trump-dreigt-energiecentrales-en-bruggen-iran-aan-te-vallen-als-er-geen-akkoord-komt~ac528ac3/)
-  > Donald Trump heeft gedreigd dat hij de Amerikaanse aanvallen op Iran volgende week uitbreidt naar elektriciteitscentrales en bruggen als Teheran dan...
-- [Man wordt op de vlucht voor ICE-agenten dodelijk aangereden door vrachtwagen](https://www.ad.nl/buitenland/man-wordt-op-de-vlucht-voor-ice-agenten-dodelijk-aangereden-door-vrachtwagen~a7839c78/)
-  > Een man die op de vlucht sloeg voor immigratieagenten in de Amerikaanse staat Florida, is tijdens zijn vlucht onder een vrachtwagen terechtgekomen....
-- [Trump maakt 5,6 miljoen dollar over aan E. Jean Carroll na veroordeling seksueel misbruik](https://www.ad.nl/buitenland/trump-maakt-5-6-miljoen-dollar-over-aan-e-jean-carroll-na-veroordeling-seksueel-misbruik~ae67dd9c/)
-  > Schrijfster E. Jean Carroll heeft een schadevergoeding van de Amerikaanse president Donald Trump ontvangen. Er zou 5,6 miljoen dollar (4,9 miljoen...
-- [Pijnlijke cijfers voor Kylian Mbappé: Lamine Yamal voor de negende keer als winnaar uit de strijd](https://www.ad.nl/wk-voetbal/pijnlijke-cijfers-voor-kylian-mbappe-lamine-yamal-voor-de-negende-keer-als-winnaar-uit-de-strijd~a987247d/)
-  > De halve finale op het WK tussen Spanje en Frankrijk (2-0) was ook het duel tussen de absolute sterren van hun nationale teams: Lamine Yamal (19) en...
-- [Alles over de WK-finale van zondag: waar, hoe laat en wie pakten in het verleden de wereldtitel?](https://www.ad.nl/wk-voetbal/alles-over-de-wk-finale-van-zondag-waar-hoe-laat-en-wie-pakten-in-het-verleden-de-wereldtitel~a9a52397/)
-  > Op zondag 19 juli is de apotheose van het WK voetbal van 2026 in de Verenigde Staten, Canada en Mexico. In dit artikel lees je alles over de finale.
+- [Dode en vermisten na kapseizen toeristenboot bij Alcatraz Island in San Francisco](https://www.ad.nl/buitenland/dode-en-vermisten-na-kapseizen-toeristenboot-bij-alcatraz-island-in-san-francisco~a7a2f573/)
+  > Een toeristenboot met negentien opvarenden is omgeslagen nabij Alcatraz Island in de Baai van San Francisco. Daarbij is één persoon om het leven...
+- [Rusland valt opnieuw vrachtschepen in Zwarte Zee aan: drie doden](https://www.ad.nl/buitenland/rusland-valt-opnieuw-vrachtschepen-in-zwarte-zee-aan-drie-doden~adfb97be/)
+  > Bij Russische aanvallen op schepen in het zuiden van Oekraïne en in de Zwarte Zee zijn dinsdag zeker drie doden gevallen. Dat melden de Oekraïense...
+- [Een Vandaag: Bijna 42.000 Nederlandse kampeerders slachtoffer hack boekingssite](https://www.ad.nl/buitenland/een-vandaag-bijna-42-000-nederlandse-kampeerders-slachtoffer-hack-boekingssite~a4195717/)
+  > Ga je op reis naar de Spaanse Costa, een idyllisch Frans dorpje, plons je in een Turks resort of ga je lekker fietsen op de Veluwe? Waar de reis ook...
+- [WK-ganger Noslin tekent in Engeland, Greenwood voor 39 miljoen naar Fenerbahçe](https://www.ad.nl/voetbal/wk-ganger-noslin-tekent-in-engeland-greenwood-voor-39-miljoen-naar-fenerbahce~aeb81ef1/)
+  > Het WK nadert zijn ontknoping, maar er is ook flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van...
+- [Eikenprocessierups-terreur leek voorbij, maar bomen hangen weer vol met kriebelige beestjes](https://www.ad.nl/binnenland/eikenprocessierups-terreur-leek-voorbij-maar-bomen-hangen-weer-vol-met-kriebelige-beestjes~aad0876b/)
+  > Bomen worden deze zomer opnieuw overspoeld met een zeer onwelkome gast: de eikenprocessierups. Na een aantal jaren waarin de overlast van het insect...
 
 ### Meest gelezen
 
@@ -46,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Quix uit Enschede levert eerste kwantumcomputer af bij klant](https://fd.nl/economie/1604191/quix-uit-enschede-levert-eerste-kwantumcomputer-af-bij-klant)
+  > Vandaag in FD Dagkoers: de VS vallen het Internationaal Strafhof aan, het Nederlandse Quix levert als eerste een kwantumcomputer en Blokker zet na...
 - [AI maakt lui, niet dom](https://fd.nl/opinie/1604193/ai-maakt-lui-niet-dom)
   > De vraag is welke vaardigheden we in een wereld met AI wel moeten leren om succesvol te zijn.
 - [Nederland kijkt met een terugkeerbril naar Syrië](https://fd.nl/opinie/1604111/nederland-kijkt-met-een-terugkeerbril-naar-syrie)
@@ -54,8 +57,6 @@
   > Woensdag opent Blokker drie nieuwe filialen, waarmee het totaal op 61 winkels komt. Het is nog onvoldoende om weer een rol van betekenis te spelen in...
 - [Personalia woensdag 15 juli](https://fd.nl/bedrijfsleven/1604283/personalia-woensdag-15-juli)
   > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Koersval bij IBM domper op Amerikaanse beurzen](https://fd.nl/financiele-markten/1604205/koersval-bij-ibm-domper-op-amerikaanse-beurzen)
-  > De resultaten van de zakenbanken Goldman Sachs en JPMorganChase overtroffen de verwachtingen en beleggers putten ook hoop uit meevallende...
 
 ### Meest gelezen
 
