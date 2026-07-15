@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-07-2026 om 13:50*
+*Laatst bijgewerkt: 15-07-2026 om 15:27*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Ondanks verbod blijven plastic drinkwaterzakjes straatbeeld in Dakar bepalen](https://nos.nl/l/2623102)
+- [Politie waarschuwt voor cannabissnoepjes, twee kinderen onwel](https://nos.nl/l/2623114)
+  > In Utrecht zijn twee kinderen onwel geworden na het eten van cannabissnoepjes. Dat meldt de politie. Volgens een politiewoordvoerder gaat het...
+- [Steeds meer Saharastof boven Europa: slecht en goed nieuws](https://nos.nl/l/2623112)
+  > Luchtvervuiling door stof uit de Sahara is doorgaans onzichtbaar, maar soms blaast de wind zoveel naar het noorden dat ons land bedekt raakt onder...
+- [Marokkaanse journalist Ali Lmrabet vrijgelaten, blijft verdachte](https://nos.nl/l/2623110)
+  > De Marokkaanse journalist Ali Lmrabet zit niet meer vast, dat bevestigt het Marokkaanse Openbaar Ministerie. De politiek commentator werd zondag bij...
+- [The Plastic Man strijdt tegen drinkwaterzakjes die straatbeeld in Dakar bepalen](https://nos.nl/l/2623102)
   > Een wit zandstrand ligt bezaaid met plastic afval. De baai van Hann in Dakar is een geliefde plek aan de kust, maar kampt met zorgwekkende...
-- [Vijf jaar na wateroverlast Limburg is lang niet alle schade hersteld: 'Ramp na ramp'](https://nos.nl/l/2623101)
+- [Vijf jaar na wateroverlast in Limburg is lang niet alle schade hersteld: 'Ramp na ramp'](https://nos.nl/l/2623101)
   > Vijf jaar na de grote wateroverlast in Limburg is het water weg. Maar de schade is nog steeds niet overal hersteld en er is veel gedoe over de...
-- [Meerdere huizen met houtskelet in brand in Nieuwegein](https://nos.nl/l/2623099)
-  > In Nieuwegein staan zeker drie woningen in brand. De huizen hebben een houtskelet en daardoor kan het zich vuur zich snel verspreiden, waarschuwt de...
-- [Papieren wegenkaarten nog steeds enorm populair onder vakantiegangers](https://nos.nl/l/2623084)
-  > Ze lagen vroeger in elk dashboardkastje en waren onmisbaar tijdens de autovakantie naar Frankrijk of Spanje: de uitvouwbare papieren wegenkaarten. Nu...
-- [Zeker 900 mensen meer dan normaal overleden tijdens hittegolf met code rood](https://nos.nl/l/2623082)
-  > Tussen 22 juni en 5 juli, toen er een extreme hittegolf was, overleden ruim 900 meer mensen dan normaal. Dat blijkt uit een inventarisatie van het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Lichamen van bemanning in zee gestorte Boeing 737 nog steeds niet terecht](https://www.ad.nl/buitenland/lichamen-van-bemanning-in-zee-gestorte-boeing-737-nog-steeds-niet-terecht~a3864aa0/)
-  > De lichamen van vijf bemanningsleden van een Boeing 737, die vorige week boven de Arabische Zee verongelukte, zijn nog steeds niet terecht. Ook is...
-- [Ruud dertig jaar na Herculesramp: ‘Ik blijf altijd de broer van Eveline, ze hoort bij mijn leven’](https://www.ad.nl/binnenland/ruud-dertig-jaar-na-herculesramp-ik-blijf-altijd-de-broer-van-eveline-ze-hoort-bij-mijn-leven~a902af29/)
-  > Woensdag wordt in Eindhoven voor de dertigste keer de Herculesramp herdacht, waarbij 34 mensen omkwamen. Eveline van der Burgt uit Bergen op Zoom was...
-- [Al 2000 euro geboden voor Cruijff-schilderij, AD-veiling loopt nog tot WK-finale](https://www.ad.nl/wk-voetbal/al-2000-euro-geboden-voor-cruijff-schilderij-ad-veiling-loopt-nog-tot-wk-finale~afa8f859/)
-  > Voor het schilderij dat een Duitse kunstenaar jaren geleden als verzoening aan Johan Cruijff wilde aanbieden, is inmiddels 2000 euro geboden. Het...
-- [Hoe Engeland - Argentinië uitgroeide tot een van de meest beladen landenwedstrijden ter wereld](https://www.ad.nl/wk-voetbal/hoe-engeland-argentinie-uitgroeide-tot-een-van-de-meest-beladen-landenwedstrijden-ter-wereld~a8540fc5/)
-  > Van David Beckham tot Diego Maradona, van de Falklandoorlog tot de ‘beestachtige’ veldslag in 1966: Engeland - Argentinië is vanavond zoveel meer dan...
-- [Poging tot inbraak bij huis Lamine Yamal kort na zege Spanje op Frankrijk in halve finale WK](https://www.ad.nl/wk-voetbal/poging-tot-inbraak-bij-huis-lamine-yamal-kort-na-zege-spanje-op-frankrijk-in-halve-finale-wk~ab2c6817/)
-  > Enkele uren na de halve finale op het WK voetbal tussen Spanje en Frankrijk van dinsdagavond is geprobeerd in te breken bij het huis van de Spaanse...
+- [Twee Utrechtse kinderen onwel na eten van ‘snoepjes’ met cannabis](https://www.ad.nl/utrecht/twee-utrechtse-kinderen-onwel-na-eten-van-snoepjes-met-cannabis~ace0683d/)
+  > Twee kinderen zijn in Utrecht onwel geworden na het eten van cannabissnoepjes die in de buurt van een basisschool waren gevonden. Meerdere scholen in...
+- [Olav Kooij nipt verslagen in snelste Touretappe ooit, verrassende sprintzege voor Noor](https://www.ad.nl/tour-de-france/olav-kooij-nipt-verslagen-in-snelste-touretappe-ooit-verrassende-sprintzege-voor-noor~a9e7ed4c/)
+  > Olav Kooij heeft net naast zijn tweede ritzege in de Tour de France gegrepen. De Nederlander moest in de elfde etappe, die de boeken in gaat als de...
+- [ASML bouwt de meest complexe machines ooit: ‘Je moet wel een paar honderd miljoen aftikken’](https://www.ad.nl/binnenland/asml-bouwt-de-meest-complexe-machines-ooit-je-moet-wel-een-paar-honderd-miljoen-aftikken~a78a5eef/)
+  > Vanuit de hele wereld komen zakenmensen en journalisten naar het Brabantse Veldhoven. Allemaal komen ze voor één bedrijf: ASML. Wat maakt deze...
+- [Israël blijft Gaza bombarderen ondanks staakt-het-vuren: jongen (3) is enige overlevende van gezin van vijf](https://www.ad.nl/buitenland/israel-blijft-gaza-bombarderen-ondanks-staakt-het-vuren-jongen-3-is-enige-overlevende-van-gezin-van-vijf~ac528ac3/)
+  > Bij een Israëlische luchtaanval op een appartementencomplex in Deir al-Balah, in het midden van de Gazastrook, zijn een man, zijn vrouw en hun...
+- [Daley Blind maakt rentree bij Ajax in oefenwedstrijd tegen Bochum](https://www.ad.nl/voetbal/daley-blind-maakt-rentree-bij-ajax-in-oefenwedstrijd-tegen-bochum~abff6b13/)
+  > Daley Blind gaat woensdag zijn rentree voor Ajax maken. De 36-jarige verdediger staat in de basis van de ploeg die op sportcomplex De Toekomst oefent...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Economische groei van China blijft vertragen](https://fd.nl/economie/1604376/economische-groei-van-china-blijft-vertragen)
-  > Het Chinese bbp nam in het tweede kwartaal met 4,3% toe. Dat is het laagste groeicijfer sinds de coronapandemie.
-- [Is er bij Aurubis sprake van een Commerzbank‑scenario?](https://fd.nl/financiele-markten/1604347/is-er-bij-aurubis-sprake-van-een-commerzbankscenario)
-  > Bijna een kwart van het stemrecht bij de Duitse koperverwerker Aurubis is plotsklaps in handen van zakenbank Goldman Sachs.
-- [Run op Cartier-sieraden zorgt voor omzetgroei Richemont](https://fd.nl/bedrijfsleven/1604576/run-op-cartier-sieraden-zorgt-voor-omzetgroei-richemont)
-  > De groei komt met name door de sterke vraag uit de VS naar ringen en armbanden van sieradenmerk Cartier. Zo bleek uit de kwartaalcijfers die...
-- [Warren Buffett stopt met donaties aan de Gates Foundation na Epstein‑onthullingen](https://fd.nl/samenleving/1604346/warren-buffett-stopt-met-donaties-aan-de-gates-foundation-na-epsteinonthullingen)
-  > De superbelegger verbreekt zijn belofte om levenslang te blijven schenken aan de goededoelenstichting van Bill Gates, de oprichter van Microsoft.
-- [Investeerders steken $32 mln in Nederlandse metselrobot](https://fd.nl/bedrijfsleven/1604212/investeerders-steken-32-mln-in-nederlandse-metselrobot)
-  > Het Amsterdamse bedrijf Monumental wil over twee jaar duizend robots hebben. Die moeten helpen bij het personeelstekort in de bouw en het...
+- [Kabinet wil defensiebedrijven verplichten voor het leger te produceren in noodsituaties](https://fd.nl/politiek/1602594/kabinet-wil-defensiebedrijven-verplichten-voor-het-leger-te-produceren-in-noodsituaties)
+  > Politiek Den Haag bereidt zich met het wetsvoorstel Weerbare defensie-industrie voor op een oorlogseconomie. Een eerder plan stuitte op kritiek van...
+- [Royal Berry neemt Dutch Berries over](https://fd.nl/bedrijfsleven/1604480/royal-berry-neemt-dutch-berries-over)
+  > De twee partijen schrijven in een gezamenlijk persbericht dat recente ontwikkelingen ‘vragen om schaalgrootte en innovatiekracht’.
+- [Stripe wil kwakkelend Paypal overnemen voor $53 mrd](https://fd.nl/bedrijfsleven/1604479/stripe-wil-kwakkelend-paypal-overnemen-voor-53-mrd)
+  > Het bod van Stripe ligt boven de huidige beurswaarde, maar betekent wel een flinke korting op de waarde uit het verleden. Ingewijden verwachten niet...
+- [Ambtenaren Financiën adviseerden negatief over afspraken met Tata Steel](https://fd.nl/politiek/1604382/ambtenaren-financien-adviseerden-negatief-over-afspraken-met-tata-steel)
+  > Miljardensteun voor de staalfabrikant zou wel eens structureel kunnen worden, waarschuwden de ambtenaren. Minister Eelco Heinen nam het advies niet...
+- [Oud-generaal dreigt radicaal-rechtse blok van Meloni te splijten](https://fd.nl/politiek/1604216/oud-generaal-dreigt-radicaal-rechtse-blok-van-meloni-te-splijten)
+  > Met de verkiezingen van 2027 in zicht dreigt Roberto Vannacci’s Futuro Nazionale de machtsbalans op rechts ingrijpend te veranderen.
 
 ### Meest gelezen
 
