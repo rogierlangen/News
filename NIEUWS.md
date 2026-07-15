@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-07-2026 om 15:27*
+*Laatst bijgewerkt: 15-07-2026 om 17:20*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Zeven aanhoudingen na mishandeling Algerijnse voetbalfans voor WK-uitzwaaiwedstrijd](https://nos.nl/l/2623123)
+  > Zeven mannen zijn aangehouden die worden verdacht van het mishandelen van supporters van het Algerijnse voetbalelftal, voorafgaand aan de...
+- [Oekraïne wil Poetin raken en richt oorlogsdrones nu op de graanindustrie](https://nos.nl/l/2623122)
+  > De Oekraïense dronecommandant Robert Brovdi plaatste vanochtend een lyrisch bericht op Telegram. Het was het Oekraïense leger weer gelukt om de...
+- [Zorgmedewerkers in door ebola geteisterd Oost-Congo leggen werk neer](https://nos.nl/l/2623120)
+  > In het oosten van de Democratische Republiek Congo, waar een ebola-uitbraak woedt, hebben zorgmedewerkers opnieuw het werk neergelegd omdat ze niet...
+- [Door aanhoudende droogte hebben ook bomen het zwaar, vooral fijnspar en beuk](https://nos.nl/l/2623116)
+  > Bomen bieden ons met dit warme weer op allerlei manieren verkoeling: een schaduwplek in het park en schone lucht om in te ademen. Of ze dat in...
 - [Politie waarschuwt voor cannabissnoepjes, twee kinderen onwel](https://nos.nl/l/2623114)
   > In Utrecht zijn twee kinderen onwel geworden na het eten van cannabissnoepjes. Dat meldt de politie. Volgens een politiewoordvoerder gaat het...
-- [Steeds meer Saharastof boven Europa: slecht en goed nieuws](https://nos.nl/l/2623112)
-  > Luchtvervuiling door stof uit de Sahara is doorgaans onzichtbaar, maar soms blaast de wind zoveel naar het noorden dat ons land bedekt raakt onder...
-- [Marokkaanse journalist Ali Lmrabet vrijgelaten, blijft verdachte](https://nos.nl/l/2623110)
-  > De Marokkaanse journalist Ali Lmrabet zit niet meer vast, dat bevestigt het Marokkaanse Openbaar Ministerie. De politiek commentator werd zondag bij...
-- [The Plastic Man strijdt tegen drinkwaterzakjes die straatbeeld in Dakar bepalen](https://nos.nl/l/2623102)
-  > Een wit zandstrand ligt bezaaid met plastic afval. De baai van Hann in Dakar is een geliefde plek aan de kust, maar kampt met zorgwekkende...
-- [Vijf jaar na wateroverlast in Limburg is lang niet alle schade hersteld: 'Ramp na ramp'](https://nos.nl/l/2623101)
-  > Vijf jaar na de grote wateroverlast in Limburg is het water weg. Maar de schade is nog steeds niet overal hersteld en er is veel gedoe over de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Twee Utrechtse kinderen onwel na eten van ‘snoepjes’ met cannabis](https://www.ad.nl/utrecht/twee-utrechtse-kinderen-onwel-na-eten-van-snoepjes-met-cannabis~ace0683d/)
-  > Twee kinderen zijn in Utrecht onwel geworden na het eten van cannabissnoepjes die in de buurt van een basisschool waren gevonden. Meerdere scholen in...
-- [Olav Kooij nipt verslagen in snelste Touretappe ooit, verrassende sprintzege voor Noor](https://www.ad.nl/tour-de-france/olav-kooij-nipt-verslagen-in-snelste-touretappe-ooit-verrassende-sprintzege-voor-noor~a9e7ed4c/)
-  > Olav Kooij heeft net naast zijn tweede ritzege in de Tour de France gegrepen. De Nederlander moest in de elfde etappe, die de boeken in gaat als de...
-- [ASML bouwt de meest complexe machines ooit: ‘Je moet wel een paar honderd miljoen aftikken’](https://www.ad.nl/binnenland/asml-bouwt-de-meest-complexe-machines-ooit-je-moet-wel-een-paar-honderd-miljoen-aftikken~a78a5eef/)
-  > Vanuit de hele wereld komen zakenmensen en journalisten naar het Brabantse Veldhoven. Allemaal komen ze voor één bedrijf: ASML. Wat maakt deze...
-- [Israël blijft Gaza bombarderen ondanks staakt-het-vuren: jongen (3) is enige overlevende van gezin van vijf](https://www.ad.nl/buitenland/israel-blijft-gaza-bombarderen-ondanks-staakt-het-vuren-jongen-3-is-enige-overlevende-van-gezin-van-vijf~ac528ac3/)
-  > Bij een Israëlische luchtaanval op een appartementencomplex in Deir al-Balah, in het midden van de Gazastrook, zijn een man, zijn vrouw en hun...
-- [Daley Blind maakt rentree bij Ajax in oefenwedstrijd tegen Bochum](https://www.ad.nl/voetbal/daley-blind-maakt-rentree-bij-ajax-in-oefenwedstrijd-tegen-bochum~abff6b13/)
-  > Daley Blind gaat woensdag zijn rentree voor Ajax maken. De 36-jarige verdediger staat in de basis van de ploeg die op sportcomplex De Toekomst oefent...
+- [Moet je reservelampjes bij je hebben in de auto?](https://www.ad.nl/auto/moet-je-reservelampjes-bij-je-hebben-in-de-auto~ae06caab/)
+  > Ben je nou wel of niet verplicht om altijd reservelampjes in de auto te hebben, vraagt lezer Patrick Boogaert zich af. Onze auto-expert Niek Schenk...
+- [Iedereen wil een zitplek in de trein, maar een algeheel tassenverbod is onnodig bevoogdend](https://www.ad.nl/commentaar/iedereen-wil-een-zitplek-in-de-trein-maar-een-algeheel-tassenverbod-is-onnodig-bevoogdend~a3ef9e19/)
+  > Het is een van de grootste ergernissen in de trein: passagiers die een zitplaats bezet houden met hun tas. Maar om dan meteen met een totaalverbod te...
+- [Ajax blijft steken op gelijkspel tegen Duitse tweedeklasser, basisdebuut voor Blind en Henrique](https://www.ad.nl/voetbal/ajax-blijft-steken-op-gelijkspel-tegen-duitse-tweedeklasser-basisdebuut-voor-blind-en-henrique~abff6b13/)
+  > Ajax heeft het vriendschappelijke duel met VfL Bochum met 1-1 afgesloten. Op sportcomplex De Toekomst maakte aanwinst Caio Henrique zijn eerste...
+- [Staan Liverpool-miljoenen een nieuwe baan voor Arne Slot in de weg? Welnee, zo werkt het écht](https://www.ad.nl/voetbal/staan-liverpool-miljoenen-een-nieuwe-baan-voor-arne-slot-in-de-weg-welnee-zo-werkt-het-echt~ad590a7c/)
+  > Dat de miljoenen van Liverpool een nieuw trainersavontuur voor Arne Slot in de weg staan, is pure onzin. Op Anfield bemoeit niemand zich meer met...
+- [‘Ik word er giftig van’: reizigers zijn klaar met tassen op lege treinstoelen](https://www.ad.nl/binnenland/ik-word-er-giftig-van-reizigers-zijn-klaar-met-tassen-op-lege-treinstoelen~adafde0e/)
+  > Dat reizigers in de trein hun tas op de stoel naast zich neerkwakken, is veel Nederlanders een doorn in het oog. Op het perron klinkt luid gejuich...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Ontslag Sanderink ontaardt in gevecht om zijn miljoenenbedrijven](https://fd.nl/bedrijfsleven/1604279/ontslag-sanderink-ontaardt-in-gevecht-om-zijn-miljoenenbedrijven)
+  > Het zakenimperium van de Twentse zakenman Gerard Sanderink is inzet geworden van een machtsstrijd.  Advocaten spreken van ‘een coup’ die...
+- [Werkgeverspremies verder omhoog](https://fd.nl/samenleving/1604484/werkgeverspremies-verder-omhoog)
+  > De premies stijgen voor zowel de arbeidsongeschiktheidsverzekering als voor de ziektewet. De stijging volgt op een hoger dan verwachte stijging dit...
+- [VS bestoken Iran voor de vijfde dag op rij met luchtaanvallen](https://fd.nl/politiek/1604483/vs-bestoken-iran-voor-de-vijfde-dag-op-rij-met-luchtaanvallen)
+  > Ditmaal vonden de aanvallen overdag plaats, terwijl de Amerikanen hun operaties de afgelopen weken steevast ’s nachts uitvoerden.
 - [Kabinet wil defensiebedrijven verplichten voor het leger te produceren in noodsituaties](https://fd.nl/politiek/1602594/kabinet-wil-defensiebedrijven-verplichten-voor-het-leger-te-produceren-in-noodsituaties)
   > Politiek Den Haag bereidt zich met het wetsvoorstel Weerbare defensie-industrie voor op een oorlogseconomie. Een eerder plan stuitte op kritiek van...
 - [Royal Berry neemt Dutch Berries over](https://fd.nl/bedrijfsleven/1604480/royal-berry-neemt-dutch-berries-over)
   > De twee partijen schrijven in een gezamenlijk persbericht dat recente ontwikkelingen ‘vragen om schaalgrootte en innovatiekracht’.
-- [Stripe wil kwakkelend Paypal overnemen voor $53 mrd](https://fd.nl/bedrijfsleven/1604479/stripe-wil-kwakkelend-paypal-overnemen-voor-53-mrd)
-  > Het bod van Stripe ligt boven de huidige beurswaarde, maar betekent wel een flinke korting op de waarde uit het verleden. Ingewijden verwachten niet...
-- [Ambtenaren Financiën adviseerden negatief over afspraken met Tata Steel](https://fd.nl/politiek/1604382/ambtenaren-financien-adviseerden-negatief-over-afspraken-met-tata-steel)
-  > Miljardensteun voor de staalfabrikant zou wel eens structureel kunnen worden, waarschuwden de ambtenaren. Minister Eelco Heinen nam het advies niet...
-- [Oud-generaal dreigt radicaal-rechtse blok van Meloni te splijten](https://fd.nl/politiek/1604216/oud-generaal-dreigt-radicaal-rechtse-blok-van-meloni-te-splijten)
-  > Met de verkiezingen van 2027 in zicht dreigt Roberto Vannacci’s Futuro Nazionale de machtsbalans op rechts ingrijpend te veranderen.
 
 ### Meest gelezen
 
