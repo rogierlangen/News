@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-07-2026 om 09:10*
+*Laatst bijgewerkt: 15-07-2026 om 11:37*
 
 ---
 
@@ -8,18 +8,16 @@
 
 ### Laatste nieuws
 
-- [Overbelast stroomnet, bibliotheek Utrecht zet roltrap stil](https://nos.nl/l/2623062)
-  > Bij warm weer staan de roltrappen in de bibliotheek in de binnenstad van Utrecht uit.
-        De bieb kiest daar voor omdat als gevolg van het...
-- [Oekraïne opent nieuw front op zee met aanvallen op Russische schepen](https://nos.nl/l/2623058)
-  > Oekraïne heeft vannacht een grootschalige drone-aanval uitgevoerd op de Zwarte Zee. Daarbij werden twintig Russische schepen geraakt, waaronder...
-- [Inflatie is 3 procent, maar Nederlanders denken dat die veel hoger is](https://nos.nl/l/2623055)
-  > Mensen schatten de inflatie hoger in dan deze daadwerkelijk is, meldt het Centraal Bureau voor de Statistiek (CBS). De laatste jaren is de inflatie...
-- [Wieringermeerders zijn klaar met rode lichten in windmolens, maar oplossing blijft nog uit](https://nos.nl/l/2623053)
-  > Bewoners van de Wieringermeer hebben er genoeg van dat de rode lichten in de windmolens altijd aanstaan.
-        Vijf jaar geleden al is een...
-- [ASML overtreft verwachtingen, maar nieuwe Amerikaanse wet hangt dreigend boven de markt](https://nos.nl/l/2623051)
-  > ASML heeft weer meer geld verdiend dan verwacht. De chipmachinebouwer uit Veldhoven behaalde het tweede kwartaal een omzet van 9,3 miljard euro; meer...
+- [Oplichters verdienden 'honderden miljoenen' met beleggingsfraude](https://nos.nl/l/2623076)
+  > De politie zegt een internationale criminele organisatie grotendeels platgelegd te hebben die maandelijks ruim 100 miljoen euro verdiende met...
+- [Automobilist die kind doodreed in Maastricht had gedronken en reed te hard](https://nos.nl/l/2623072)
+  > De automobilist die in maart een 4-jarig jongetje in een kinderwagen doodreed in Maastricht, reed veel te hard en had gedronken. Dat maakte het...
+- ['Kortste, goedkoopste verbinding tusschen Holland en Friesland' bestaat 140 jaar](https://nos.nl/l/2623071)
+  > De oudste nog varende veerdienst van Nederland bestaat vandaag 140 jaar. Net als op 15 juli 1886 zijn er ook nu drie afvaarten per dag tussen...
+- [Arnhemse proef krijgt vervolg, schulden kwetsbare gezinnen afgelost: 'Geen druk meer'](https://nos.nl/l/2623069)
+  > "De brieven werden niet meer geopend, je weet toch wat er instaat. Een verhoging, aanmaning, een bedreiging. Nu worden dingen afgekocht, je krijgt...
+- [Tientallen mensen onwel door giftige damp in Antwerpse haven](https://nos.nl/l/2623067)
+  > In de Waaslandhaven van Antwerpen is een lek ontstaan in een container met een giftige stof. 155 medewerkers zijn uit voorzorg naar het ziekenhuis...
 
 ### Meest gelezen
 
@@ -29,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘De FIFA rekt haar eigen regels op’: halftimeshow zorgt voor rust van ‘minstens 25 minuten’ tijdens WK-finale](https://www.ad.nl/wk-voetbal/de-fifa-rekt-haar-eigen-regels-op-halftimeshow-zorgt-voor-rust-van-minstens-25-minuten-tijdens-wk-finale~a4230bf4/)
-  > De rust tijdens de finale van het WK voetbal zondag zal langer duren dan de gebruikelijke 15 minuten door de halftime-show. Dat melden verschillende...
-- [Eén streamingsdienst betaalt niet meer voor AI-muziek: wat doen concurrenten met de lawine aan ‘AI-rommel’?](https://www.ad.nl/tech/een-streamingsdienst-betaalt-niet-meer-voor-ai-muziek-wat-doen-concurrenten-met-de-lawine-aan-ai-rommel~aa92dd51/)
-  > AI-liedjes? Nederlanders luisteren liever naar muziek van échte mensen, zo blijkt. Toch worden streamingdiensten overspoeld door AI-muziek. Hoe weet...
-- [Naast Timon Wellenreuther kan ook Leo Sauer Feyenoord verlaten voor Duits avontuur](https://www.ad.nl/voetbal/naast-timon-wellenreuther-kan-ook-leo-sauer-feyenoord-verlaten-voor-duits-avontuur~a2da5c70/)
-  > Timon Wellenreuther vertrekt naar VfL Wolfsburg. De Duitse doelman stond al in de startblokken om Feyenoord te verlaten. Na het definitief vastleggen...
-- [45 sprints in één training en een verleden als schaatser: dit is waarom Olav Kooij elke massasprint kan winnen](https://www.ad.nl/tour-de-france/45-sprints-in-een-training-en-een-verleden-als-schaatser-dit-is-waarom-olav-kooij-elke-massasprint-kan-winnen~ad32531c4/)
-  > Een vervelend virus opgelopen, maar nu toch ritwinnaar in de Tour de France. Olav Kooij maakt sinds zijn rentree veel indruk, ook op zijn nieuwe...
-- [Recordaantal tekenbeten tijdens extreem hete dagen in juni, meeste beten in bos en eigen tuin](https://www.ad.nl/binnenland/recordaantal-tekenbeten-tijdens-extreem-hete-dagen-in-juni-meeste-beten-in-bos-en-eigen-tuin~a04b15a7/)
-  > Het RIVM heeft tijdens de extreem warme dagen van eind juni een recordaantal tekenbeten geregistreerd in het monitorsysteem Tekenradar.
+- [Hoe meest logische kandidaat bondscoach Oranje zijn heldenstatus in Liverpool kwijtraakte](https://www.ad.nl/voetbal/hoe-meest-logische-kandidaat-bondscoach-oranje-zijn-heldenstatus-in-liverpool-kwijtraakte~a4b2f482/)
+  > Arne Slot is misschien wel de ideale man om als bondscoach Oranje op de rails te zetten. De 47-jarige coach is beschikbaar na zijn vertrek bij...
+- [Vrouw overleden in flat Tilburg, politie pakt man (29) op](https://www.ad.nl/binnenland/vrouw-overleden-in-flat-tilburg-politie-pakt-man-29-op~a474abd6/)
+  > Een 29-jarige man is aangehouden nadat een 43-jarige vrouw dinsdagmiddag overleed in een flat in Tilburg. De politie doet woensdag nog steeds...
+- [Al 1500 euro geboden voor Cruijff-schilderij, AD-veiling loopt nog tot WK-finale](https://www.ad.nl/wk-voetbal/al-1500-euro-geboden-voor-cruijff-schilderij-ad-veiling-loopt-nog-tot-wk-finale~afa8f859/)
+  > Voor het schilderij dat een Duitse kunstenaar jaren geleden als verzoening aan Johan Cruijff wilde aanbieden, is inmiddels 1500 euro geboden. Het...
+- [Dodental van brand in kroeg Bangkok loopt verder op](https://www.ad.nl/buitenland/dodental-van-brand-in-kroeg-bangkok-loopt-verder-op~a53c2362/)
+  > Het dodental van de brand in een kroeg in Bangkok afgelopen zondagavond is verder opgelopen. Twee slachtoffers zijn overleden in het ziekenhuis,...
+- [Vakantie van Kim en Jaap eindigt in drama en Eva pleit voor blotebillengezichten](https://www.ad.nl/show/vakantie-van-kim-en-jaap-eindigt-in-drama-en-eva-pleit-voor-blotebillengezichten~a536578f/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
 
 ### Meest gelezen
 
@@ -48,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Private equity kocht mijn kat op](https://fd.nl/financiele-markten/1602128/private-equity-kocht-mijn-kat-op)
-  > Dierenartsen blijven voor duizenden euro’s halfdode beesten doorbehandelen, om zo klanten helemaal leeg te trekken. Wie durft die arme diertjes...
-- [Na conflict over bouwen op laagste punt van Nederland: ‘Waterschappen moeten veel meer van zich laten horen’](https://fd.nl/samenleving/1604112/na-conflict-over-bouwen-op-laagste-punt-van-nederland-waterschappen-moeten-veel-meer-van-zich-laten-horen)
-  > In de Zuidplaspolder botsten gemeente en waterschap over woningbouw. Hoogheemraad Josien van Cappelle pleit voor juridisch bindende adviezen van...
-- [Maak de thuisbatterij ook btw-vrij – net als bij zonnepanelen al het geval is](https://fd.nl/opinie/1603927/maak-thuisbatterij-btw-vrij-net-als-zonnepanelen)
-  > Eerdere kabinetten zetten groot in op zonnepanelen. Met het verdwijnen van de salderingsregeling en het probleem van netcongestie, dient nu...
-- [Uber en Delivery Hero voeren overnamegesprekken](https://fd.nl/bedrijfsleven/1604333/uber-en-delivery-hero-voeren-overnamegesprekken)
-  > Uber zou de in Berlijn gevestigde maaltijdbezorger voor zo’n €12 mrd willen kopen.
-- [De kleur van thuis](https://fd.nl/samenleving/1603895/de-kleur-van-thuis)
-  > Iwan Brave, journalist in Suriname: ‘Ik had mijn geloof in Nederland verloren. Het land had een bont lichaam aan culturen, maar zijn gelaat bleef...
+- [Achmea verkoopt Slowaakse zorgverzekeraar](https://fd.nl/financiele-markten/1604344/achmea-verkoopt-slowaakse-zorgverzekeraar)
+  > Met de stap sluit Achmea definitief een pijnlijk hoofdstuk in zijn geschiedenis af.
+- [Larpen op de Zuidas](https://fd.nl/samenleving/1597957/larpen-op-de-zuidas)
+  > Hoe langer ik als consultant werkte, hoe vaker me het gevoel bekroop dat ik zat te larpen. Kent u dat, live action role-playing: mensen die zich...
+- [Teruggave van gelden plaatst hypotheekbedrijven recht tegenover elkaar](https://fd.nl/bedrijfsleven/1604342/teruggave-van-gelden-plaatst-hypotheekbedrijven-recht-tegenover-elkaar)
+  > Cradle Capital verstrekt leningen, I-Finance is daarvan de beheerder. Nu hebben ze ruzie over hoe er wordt omgegaan met consumenten.
+- [Datacenters: stop met megawatts tellen, ga ze waarderen op hun impact](https://fd.nl/opinie/1604161/datacenters-stop-met-megawatts-tellen-ga-ze-waarderen-op-hun-impact)
+  > Ieder datacenter wordt op dezelfde merites beoordeeld: het aantal megawatts dat het levert. Dat is niet meer van deze tijd. Beoordeel datacenters óók...
+- [Hoe betaal je een riant leven in een wereld zonder werk?](https://fd.nl/samenleving/1601759/hoe-betaal-je-een-riant-leven-in-een-wereld-zonder-werk)
+  > Nu steeds meer banen verdwijnen door AI pleiten Elon Musk en anderen voor een universeel hoog inkomen. Voorstander en Lemonade-ceo Daniel Schreiber...
 
 ### Meest gelezen
 
