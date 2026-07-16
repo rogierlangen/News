@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-07-2026 om 23:00*
+*Laatst bijgewerkt: 16-07-2026 om 00:06*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [VS vallen tanker aan op weg naar Iraans eiland, Curaçaose registratie betwist](https://nos.nl/l/2623172)
+  > Het Amerikaanse leger zegt een onder Curaçaose vlag varende olietanker te hebben aangevallen die onderweg was naar een Iraanse haven. Volgens het...
 - [Drie aanhoudingen na mogelijke ontvoering in Amsterdam-Oost](https://nos.nl/l/2623169)
   > Bij een grote politieactie in Amsterdam-Oost zijn dinsdagavond drie personen aangehouden na een melding van een mogelijke ontvoering. In de auto...
 - [Celstraf voor smokkel van honderden eieren van ernstig bedreigde papegaaien](https://nos.nl/l/2623158)
@@ -16,8 +18,6 @@
   > Na een lang en fel debat heeft het Franse parlement ingestemd met een wetsvoorstel dat ongeneeslijk zieke volwassenen recht geeft op hulp bij...
 - [Protest in VS na nieuwe ICE-incidenten: 'Wij moeten hen ter verantwoording roepen'](https://nos.nl/l/2623154)
   > De Amerikaanse immigratiedienst ICE krijgt opnieuw veel kritiek na twee dodelijke schietincidenten met migranten. Dit jaar werd in het hele land al...
-- [Ook Oekraïense minister Fedorov van Defensie weggestuurd door Zelensky](https://nos.nl/l/2623151)
-  > De Oekraïense minister van Defensie, Mychajlo Fedorov, is opgestapt. Oekraïense media schrijven dat hij door president Zelensky is weggestuurd....
 
 ### Meest gelezen
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Voetbalpodcast | ‘Dit Feyenoord heeft ergens nog scorend vermogen nodig van middenveld en vleugels ’](https://www.ad.nl/voetbal/voetbalpodcast-dit-feyenoord-heeft-ergens-nog-scorend-vermogen-nodig-van-middenveld-en-vleugels~a42af5cd9/)
+  > Argentinië staat weer in de finale van een WK. In Atlanta werd met 2-1 gewonnen van Engeland in de slotfase. Heel hoogstaand was het voetbal niet,...
 - [Speelschema WK voetbal 2026 | Finale bekend: dit is het resterende programma en alle uitslagen](https://www.ad.nl/wk-voetbal/speelschema-wk-voetbal-2026-finale-bekend-dit-is-het-resterende-programma-en-alle-uitslagen~ad85207c/)
   > Nederland ligt er al een tijdje uit, maar er staat nog genoeg voetbalspektakel op het programma in de eindfase van het WK 2026 in Canada, Mexico en...
 - [Alles over de WK-finale van zondag: waar, hoe laat en wie pakten in het verleden de wereldtitel?](https://www.ad.nl/wk-voetbal/alles-over-de-wk-finale-van-zondag-waar-hoe-laat-en-wie-pakten-in-het-verleden-de-wereldtitel~a9a52397/)
@@ -35,8 +37,6 @@
   > De Amerikaanse krijgsmacht heeft een tanker aangevallen die onder Curaçaose vlag onderweg geweest zou zijn naar een haven in Iran. Het schip heeft de...
 - [Aanhoudingen na mogelijke ontvoering met auto in Amsterdam-Oost](https://www.ad.nl/amsterdam/aanhoudingen-na-mogelijke-ontvoering-met-auto-in-amsterdam-oost~a674f815/)
   > De politie was woensdagavond druk met twee achtervolgingen: een in Amsterdam-Oost en een in Amsterdam-West. In Amsterdam-Oost hield de politie drie...
-- [Wat een ommekeer! Messi loodst Argentinië met weergaloze assist naar WK-finale en dompelt Engeland in rouw](https://www.ad.nl/wk-voetbal/wat-een-ommekeer-messi-loodst-argentinie-met-weergaloze-assist-naar-wk-finale-en-dompelt-engeland-in-rouw~ab9ee7dc/)
-  > Argentinië staat zondagavond in New York tegenover Spanje in de WK-finale. De ploeg van bondscoach Lionel Scaloni versloeg Engeland in de halve...
 
 ### Meest gelezen
 
