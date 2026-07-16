@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-07-2026 om 17:21*
+*Laatst bijgewerkt: 16-07-2026 om 19:18*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Van vondst tot officiële soort: zo werkt het ontdekken van nieuwe dieren](https://nos.nl/l/2623273)
+  > Eeuwenlang, misschien wel langer, waande hij zich even onbekend als onbespied: het 'Likweli'-aapje dat in hoge boomtoppen leeft in moeilijk...
+- [Minister Hegseth wil Amerikaanse militairen testen op testosteron, medici zijn kritisch](https://nos.nl/l/2623271)
+  > De Amerikaanse minister Hegseth van Defensie heeft in een video aangekondigd dat hij militairen van 30 jaar of ouder wil gaan testen op hun...
+- [Waarom het trauma van de Falklandoorlog opspeelt bij het Argentijnse voetbal](https://nos.nl/l/2623267)
+  > "Het is maar een potje voetbal, we moeten sport en politiek niet met elkaar vermengen", zei bondscoach Scaloni voorafgaand aan het duel tegen...
 - [Nederland kampt met watertekort, waterschappen grijpen in: 'Dit is wel heel extreem'](https://nos.nl/l/2623264)
   > Waterschappen verspreid over het land nemen extra maatregelen vanwege de aanhoudende droogte. Er is sprake van een watertekort in Nederland, maakten...
 - [Kabinet kan weinig doen tegen dader kunstroof Assen die vanuit cel T-shirts verkoopt](https://nos.nl/l/2623259)
   > Dat een van de daders van de kunstroof in Assen vanuit zijn cel T-shirts en andere kleding verkoopt die zijn daad verheerlijken is "niet passend",...
-- [Zwemmen in rivier of kanaal: nu nog verboden, straks misschien niet meer](https://nos.nl/l/2623253)
-  > Met warm weer zoeken veel mensen verkoeling in het water. Maar veel mensen zwemmen op plekken waar dat niet mag. Soms zelfs zonder dat ze dat weten.
-...
-- [Voetbaltrainer cel in voor verkrachting en aanranding van meisje](https://nos.nl/l/2623251)
-  > Een 63-jarige man uit Vlissingen is veroordeeld tot vier jaar gevangenisstraf waarvan een jaar voorwaardelijk vanwege verkrachting en aanranding van...
-- [Rook van bosbranden Canada bereikt Toronto en New York](https://nos.nl/l/2623243)
-  > De rook van bosbranden in de Canadese provincie Ontario leidt tot overlast in Toronto, de grootste stad van Canada. De autoriteiten hebben een...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Adhd-medicatie in de zomervakantie: doorgaan of juist even stoppen? ‘Je kunt de dosering tijdelijk verlagen’](https://www.ad.nl/gezond/adhd-medicatie-in-de-zomervakantie-doorgaan-of-juist-even-stoppen-je-kunt-de-dosering-tijdelijk-verlagen~a41504f8/)
-  > De zomervakantie begint en voor veel gezinnen betekent dat vooral één ding: even niets. Geen schoolbel, geen huiswerk, geen ochtendspits. Maar voor...
-- [De eerste grote val in de Tour, tóch spreken renners over veiligere koers: ‘Dankzij een gentlemen’s agreement’](https://www.ad.nl/tour-de-france/de-eerste-grote-val-in-de-tour-toch-spreken-renners-over-veiligere-koers-dankzij-een-gentlemens-agreement~a3ac03d0/)
-  > De vijfde massasprint in de Tour de France leverde de eerste grote valpartij op. Tóch spreken renners als Mike Teunissen en Cees Bol van een...
-- [Antonelli vindt dat beide Mercedes-coureurs veel pech hebben gehad, Alonso wil snel naar huis voor WK-finale](https://www.ad.nl/formule-1/antonelli-vindt-dat-beide-mercedes-coureurs-veel-pech-hebben-gehad-alonso-wil-snel-naar-huis-voor-wk-finale~a8b6813f/)
-  > De Formule 1 strijkt dit weekend neer op het iconische circuit van Spa-Francorchamps voor de Grand Prix van België. Max Verstappen zal gebrand zijn...
-- [LIVE Oorlog Oekraïne | Kabinet-Zelensky op de schop: baas energiemaatschappij wordt premier, hoofd geheime dienst nieuwe minister van Defensie](https://www.ad.nl/buitenland/live-oorlog-oekraine-kabinet-zelensky-op-de-schop-baas-energiemaatschappij-wordt-premier-hoofd-geheime-dienst-nieuwe-minister-van-defensie~adfb97be/)
-  > Zelensky heeft het hoofd van een van de geheime diensten gevraagd om voorlopig minister van Defensie te worden. Het gaat om Jevheni Chmara,...
-- [Nabestaanden van door politie doodgeschoten Jerryson (15) naar gerechtshof: ‘Ze willen duidelijkheid’](https://www.ad.nl/gouda/nabestaanden-van-door-politie-doodgeschoten-jerryson-15-naar-gerechtshof-ze-willen-duidelijkheid~a26c3b8e/)
-  > Nabestaanden van de 15-jarige Jerryson uit Gouda, die op 21 september 2025 door een politiekogel om het leven kwam, stappen naar het gerechtshof. Ze...
+- [Voormalig FC Twente-speler voor recordbedrag naar Arsenal, NAC raakt keeper kwijt, Büttner wordt speler-trainer bij Vitesse](https://www.ad.nl/voetbal/voormalig-fc-twente-speler-voor-recordbedrag-naar-arsenal-nac-raakt-keeper-kwijt-buttner-wordt-speler-trainer-bij-vitesse~aeb81ef1/)
+  > Het WK nadert zijn ontknoping, maar er is ook flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van...
+- [Nederland is overgereguleerd en asociaal](https://www.ad.nl/binnenland/nederland-is-overgereguleerd-en-asociaal~ae4f4b2b/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Kunstrover Douglas W. treedt met zijn T-shirts in voetsporen van de allerslechtste schurken](https://www.ad.nl/binnenland/kunstrover-douglas-w-treedt-met-zijn-t-shirts-in-voetsporen-van-de-allerslechtste-schurken~a02842b6/)
+  > Verdienen aan een T-shirt dat verwijst naar je misdaden. Wat de veroordeelde ‘kunstrover van Assen’ Douglas W. doet met zijn kledinglijn Bookarrest,...
+- [Joyce (40) stond oog in oog met een relschopper die spijt had, maar die angstnacht vergeet ze nooit](https://www.ad.nl/binnenland/joyce-40-stond-oog-in-oog-met-een-relschopper-die-spijt-had-maar-die-angstnacht-vergeet-ze-nooit~ac5178eb/)
+  > Wat begon als een simpele melding van een brand groeide uit tot een van de zwaarste nachten uit de 22-jarige loopbaan van agent Joyce (40). Ze...
+- [Jutta Leerdam kiest bizarre tas voor zeldzame avond op rode loper, dan houdt ze hem buiten beeld](https://www.ad.nl/show/jutta-leerdam-kiest-bizarre-tas-voor-zeldzame-avond-op-rode-loper-dan-houdt-ze-hem-buiten-beeld~a85cf2a5/)
+  > Topschaatsster Jutta Leerdam (27) heeft woensdag een zeldzaam rodeloperoptreden gegeven in New York. Na gedoe met haar jurk op het laatste moment...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [De rechtsstaat is geen afrekening](https://fd.nl/politiek/1604381/de-rechtsstaat-is-geen-afrekening)
+  > De Europese Commissie moet erop toezien dat de nieuwe Hongaarse premier Péter Magyar zich houdt aan zijn belofte voor democratisch herstel.
+- [Nauwelijks nog minibeursgangen in de VS](https://fd.nl/financiele-markten/1604985/nauwelijks-nog-minibeursgangen-in-de-vs)
+  > Toezichthouders zijn harder gaan optreden vanwege vermoedens van ‘pump and dump’
+- [Hogere winst voor advocatenkantoor A&O Shearman](https://fd.nl/bedrijfsleven/1605087/hogere-winst-voor-advocatenkantoor-a-o-shearman)
+  > Ook is het kantoor in de VS opnieuw onder het vergrootglas komen te liggen vanwege een overeenkomst die het kantoor eerder sloot met de...
+- [Stormloop op aandeel Chinees chipbedrijf CXMT](https://fd.nl/financiele-markten/1605086/stormloop-op-aandeel-chinees-chipbedrijf-cxmt)
+  > Bedrijf gaat naar de beurs en voor elk aandeel dat naar de markt komt, zijn 212 gegadigden.
 - [Forse toename van shortsellers in SpaceX](https://fd.nl/financiele-markten/1605084/forse-toename-van-shortsellers-in-spacex)
   > De aandelenkoers van het ruimte- en AI-bedrijf van miljardair Elon Musk staat in de buurt van de uitgiftekoers van vorige maand.
-- [Farmaconcern Novartis eist nieuwe onderhandelingen over kankermedicijn](https://fd.nl/bedrijfsleven/1604189/farmaconcern-novartis-eist-nieuwe-onderhandelingen-over-kankermedicijn)
-  > De farmasector en het ministerie van Volksgezondheid zijn het vaker oneens over medicijnprijzen. Maar het komt zelden voor dat een farmabedrijf naar...
-- [Met Delivery Hero capituleert Europa’s laatste zelfstandige maaltijdbezorger](https://fd.nl/bedrijfsleven/1604781/met-delivery-hero-capituleert-europas-laatste-zelfstandige-maaltijdbezorger)
-  > Uber wil €13 mrd betalen voor de Duitse maaltijdbezorger. Eerder verloren ook branchegenoten Just Eat Takeaway en Deliveroo al hun zelfstandigheid...
-- [Google moet Android openzetten voor AI‑concurrenten](https://fd.nl/tech-en-innovatie/1605083/google-moet-android-openzetten-voor-aiconcurrenten)
-  > Hoewel apps als Claude en ChatGPT nu al op Android kunnen worden geïnstalleerd, hebben ze niet dezelfde toegang tot alle functies van het...
-- [Spaanse bondscoach botst in alles met wat Spanje verwacht](https://fd.nl/bedrijfsleven/1604784/spaanse-bondscoach-die-botst-in-alles-met-wat-spanje-verwacht)
-  > De Spaanse bondscoach Luis de la Fuente tart voetbalwetten en ongeschreven Spaanse regels over leiderschap.
 
 ### Meest gelezen
 
