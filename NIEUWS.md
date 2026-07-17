@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-07-2026 om 21:56*
+*Laatst bijgewerkt: 17-07-2026 om 22:56*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Ajax mag steeds meer hopen op komst van Marokkaanse WK-uitblinker Azzedine Ounahi](https://www.ad.nl/voetbal/ajax-mag-steeds-meer-hopen-op-komst-van-marokkaanse-wk-uitblinker-azzedine-ounahi~a3d0dab9/)
+  > Ajax heeft goede hoop dat het zich gaat versterken met Azzedine Ounahi van Girona. De 26-jarige middenvelder, die een sterk WK met Marokko achter de...
+- [Dodental aardbevingen Venezuela loopt op naar ruim 5000, zeker 300 slachtoffers nog niet geïdentificeerd](https://www.ad.nl/buitenland/dodental-aardbevingen-venezuela-loopt-op-naar-ruim-5000-zeker-300-slachtoffers-nog-niet-geidentificeerd~a1ddc205/)
+  > Meer dan 5000 mensen zijn omgekomen bij de aardbevingen die Venezuela eind juni troffen. Dat heeft parlementsvoorzitter Jorge Rodríguez vrijdag...
 - [Heerenveen wint van Belgische kampioen, Utrecht langs Japanse opponent, maakt Van Bommel rentree?](https://www.ad.nl/voetbal/heerenveen-wint-van-belgische-kampioen-utrecht-langs-japanse-opponent-maakt-van-bommel-rentree~ab5071ea/)
   > De eredivisieclubs zijn begonnen aan de voorbereiding op het nieuwe seizoen. In dit artikel lees je het programma en alle uitslagen per club. Onder...
+- [Opnieuw verloopt katapultsprong niet volgens plan: stuntman breekt zijn enkel](https://www.ad.nl/oost-gelre/opnieuw-verloopt-katapultsprong-niet-volgens-plan-stuntman-breekt-zijn-enkel~a0786d10/)
+  > Duizenden festivalgangers houden vrijdagavond hun adem in tijdens de tweede katapultsprong op de Zwarte Cross. De spectaculaire vlucht over de...
 - [Zidane wordt Franse bondscoach, Utrecht heeft eindelijk beet, keepersruil bij Excelsior en FC Dordrecht](https://www.ad.nl/voetbal/zidane-wordt-franse-bondscoach-utrecht-heeft-eindelijk-beet-keepersruil-bij-excelsior-en-fc-dordrecht~aeb81ef1/)
   > Het WK nadert zijn ontknoping, maar er is ook flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van...
-- [Eerste kooigevechten voor robots maken tongen los: ‘We zijn in de toekomst aangekomen’](https://www.ad.nl/tech/eerste-kooigevechten-voor-robots-maken-tongen-los-we-zijn-in-de-toekomst-aangekomen~a16134b3/)
-  > Een roundhouse kick, push kick of low kick: voor de gemiddelde fan van mixed martial arts (MMA) zijn het bekende termen. Voor mensen die van robotica...
-- [Acteur en danser William Spaaij krijgt vaak complimenten over zijn billen: ‘Ze zijn gespierd en hebben van die kuiltjes’](https://www.ad.nl/gezond/acteur-en-danser-william-spaaij-krijgt-vaak-complimenten-over-zijn-billen-ze-zijn-gespierd-en-hebben-van-die-kuiltjes~ad51c2d7/)
-  > Hij vindt zijn voeten verschrikkelijk, heeft een chocoladeprobleem maar is heel blij met zijn billen: ‘Alsof ze uit marmer zijn gehouwen, zei mijn...
-- [Passagiers zitten bij vertraging zonder bescherming in heet vliegtuig, maar eerste stappen worden gezet](https://www.ad.nl/binnenland/passagiers-zitten-bij-vertraging-zonder-bescherming-in-heet-vliegtuig-maar-eerste-stappen-worden-gezet~a619a6f8/)
-  > De temperaturen worden steeds extremer en in de zomer kan dat voor gevaarlijke situaties zorgen, zeker voor mensen aan boord van een vliegtuig met...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [SpaceX verliest flink op lagere Amerikaanse beurs](https://fd.nl/financiele-markten/1605171/spacex-verliest-flink-op-lagere-amerikaanse-beurs)
-  > Zenuwen over AI zetten de koersen in Amerika vandaag lager.
-- [Volgende stap richting oorlogseconomie](https://fd.nl/opinie/1604979/volgende-stap-richting-oorlogseconomie)
-  > Het kabinet-Jetten wil terecht in tijden van crisis en oorlog een beperkt aantal Nederlandse bedrijven kunnen dwingen om te produceren voor het leger...
-- [De week waarin SpaceX terugkeerde op aarde](https://fd.nl/financiele-markten/1605005/de-week-waarin-spacex-terugkeerde-op-aarde)
-  > Het ruimtevaart- en techbedrijf van Elon Musk noteert inmiddels onder de introductiekoers.
-- [Xi Jinping wil Amerikaanse AI-dominantie doorbreken](https://fd.nl/tech-en-innovatie/1605022/xi-jinping-wil-amerikaanse-ai-dominantie-doorbreken)
-  > China vormt een internationaal samenwerkingsverband als alternatief tegenover de Pax Silica van de VS.
-- [Verruiming CO₂-emissierechten moet zware industrie lucht geven](https://fd.nl/politiek/1605165/verruiming-co-emissierechten-moet-zware-industrie-lucht-geven)
-  > De Europese Commissie presenteert een breed pakket met aanpassingen aan het door haarzelf zo bejubelde CO₂-emissiehandelssysteem ETS. ‘De...
+- [Suriname in een ander licht](https://fd.nl/samenleving/1604287/suriname-in-een-ander-licht)
+  > Je treft Suriname regelmatig aan in nieuwsfotografie, maar van het dagelijks leven in het land zijn niet zoveel beelden. Daar wil fotograaf Fidelio...
+- [Personeelskrapte dwingt Texelse ondernemers vastgoed te kopen](https://fd.nl/economie/1602977/personeelskrapte-dwingt-texelse-ondernemers-vastgoed-te-kopen)
+  > Iedere succesvolle Texelse beachclub moet zijn werknemers onderdak bieden, want de laatste boot naar Den Helder gaat om 21.00 uur. ‘Als je geen...
+- [A world of pain](https://fd.nl/opinie/1605089/a-world-of-pain)
+  > Regels zijn voor het huidige staatshoofd van de VS een glibberig begrip. Op maandag zegt hij dat hij tol gaat heffen in de Straat van Hormuz, op...
+- [Personalia zaterdag 18 juli](https://fd.nl/bedrijfsleven/1605008/personalia-zaterdag-18-juli)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Hoe een obscuur belastingparadijs de cryptowereld ondergronds houdt](https://fd.nl/financiele-markten/1592369/hoe-een-obscuur-belastingparadijs-de-cryptowereld-ondergronds-houdt)
+  > Palau verkoopt ID-kaarten tegen bodemprijzen. Cryptobeleggers ontduiken er regels en witwascontroles mee. Het grenst aan valsheid in geschrifte, maar...
 
 ### Meest gelezen
 
