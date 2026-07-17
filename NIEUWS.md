@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-07-2026 om 23:00*
+*Laatst bijgewerkt: 17-07-2026 om 00:08*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Vogels waarschijnlijk oorzaak helikoptercrash New York waarbij Spaans gezin omkwam](https://nos.nl/l/2623295)
+  > Een helikopter voor toeristische rondvluchten die vorig jaar neerstortte in de rivier de Hudson in New York, is waarschijnlijk neergestort na...
 - [Leverancier van Taco Bell-sla in beeld bij grote diarree-uitbraak VS](https://nos.nl/l/2623294)
   > Fijngesneden ijsbergsla die wordt geleverd aan restaurants van fastfoodketen Taco Bell lijkt de bron te zijn van de grote diarree-uitbraak in de...
 - [Italiaanse politie doet weer invallen bij luxemerken om uitbuiting textielarbeiders](https://nos.nl/l/2623292)
@@ -16,8 +18,6 @@
   > Ruim vijfeneenhalf jaar na de verdwijning van een Franse vrouw heeft haar man de politie meegenomen naar de plek waar hij haar lichaam heeft gedumpt....
 - [Strafhof vervolgt Libische leider beruchte gevangenis voor misdaden tegen menselijkheid](https://nos.nl/l/2623286)
   > Het Internationaal Strafhof (ICC) in Den Haag gaat de Libische militieleider en gevangenisbewaarder Khaled Mohamed Ali El Hishri vervolgen. Hij wordt...
-- [Het wordt hier minder warm maar het blijft droog, hoe zit dat in de vakantielanden?](https://nos.nl/l/2623284)
-  > In het noorden was het vandaag al te merken: de warmte wordt langzaam verdreven. Vooral vanaf dit weekend wordt het in ons land een stuk minder warm....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [SpaceX blaast testvlucht Starship op het laatste moment af](https://www.ad.nl/buitenland/spacex-blaast-testvlucht-starship-op-het-laatste-moment-af~a2300339/)
+  > SpaceX heeft de dertiende testvlucht van Starship op het laatste moment afgeblazen. De lancering werd abrupt gestopt net op het moment dat de motoren...
+- [Medewerker autocue Witte Huis verdiende een smak geld met wedden op toespraken Trump](https://www.ad.nl/buitenland/medewerker-autocue-witte-huis-verdiende-een-smak-geld-met-wedden-op-toespraken-trump~a2c8fdde/)
+  > Een medewerker die de autocue in het Witte Huis bedient, heeft zijn positie misbruikt om ongeveer 100.000 dollar (87.300 euro) te verdienen. Hij...
 - [In Het Wiel | ‘Kooij heeft te goed gesprint om maar één ritzege te hebben’](https://www.ad.nl/tour-de-france/in-het-wiel-kooij-heeft-te-goed-gesprint-om-maar-een-ritzege-te-hebben~a5ea502e/)
   > Twee keer op rij een tweede plek voor Olav Kooij in de Tour. In een ontsierde massasprint moest hij zijn meerdere erkennen in Tim Merlier, die...
 - [Ajax treft oude bekende in voorronde Conference League, FC Twente tegen Hongaarse recordkampioen](https://www.ad.nl/voetbal/ajax-treft-oude-bekende-in-voorronde-conference-league-fc-twente-tegen-hongaarse-recordkampioen~a63a8b23/)
   > In de tweede voorronde van de Conference League neemt Ajax het volgende week donderdag op tegen FK Vojvodina. Dit is wat je moet weten van de nummer...
 - [Bob Dylan gaat op tournee door Europa, maar slaat Nederland over](https://www.ad.nl/show/bob-dylan-gaat-op-tournee-door-europa-maar-slaat-nederland-over~a53e82e5/)
   > Bob Dylan (85) gaat in het najaar weer touren door Europa. De Amerikaanse zanger begint 17 oktober in Oslo aan zijn concertreeks op het Europese...
-- [Drie oud-kandidaten B&B vol liefde keren terug naar Nederland: ‘Ik voel me er zelf steeds slechter bij’](https://www.ad.nl/show/drie-oud-kandidaten-benb-vol-liefde-keren-terug-naar-nederland-ik-voel-me-er-zelf-steeds-slechter-bij~aa8ed198/)
-  > Het nieuwe seizoen van B&B vol liefde gaat maandag weer van start, maar hoe ziet het leven van de oud-deelnemers er nu uit? In een hoe is het nu...
-- [Geen close-ups van billen meer: nieuwe richtlijnen maken korte metten met ‘sexy’ camerabeelden van atletes](https://www.ad.nl/andere-sporten/geen-close-ups-van-billen-meer-nieuwe-richtlijnen-maken-korte-metten-met-sexy-camerabeelden-van-atletes~a0f554fc/)
-  > Een camera die net iets te lang blijft hangen of een close-up van billen: vrouwelijke atleten komen tijdens atletiekwedstrijden nog te vaak...
 
 ### Meest gelezen
 
