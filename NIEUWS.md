@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-07-2026 om 22:56*
+*Laatst bijgewerkt: 17-07-2026 om 23:57*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Amerikaans leger valt voor de zevende avond op rij Iraanse doelen aan](https://nos.nl/l/2623433)
+- [Vlaamse kip legt 'uitzonderlijk' groot ei](https://nos.nl/l/2623435)
+  > In Vlaanderen heeft een kip een uitzonderlijk groot ei gelegd. Het ei weegt 117 gram, bijna twee keer zo zwaar als een gemiddeld kippenei.
+       ...
+- [Dodental Venezuela loopt op tot boven de 5000](https://nos.nl/l/2623434)
+  > Het dodental na de twee verwoestende aardbevingen in Venezuela is opgelopen tot 5069. Dat heeft Jorge Rodríguez bekendgemaakt, de...
+- [Explosies bij Iraanse steden, leger VS meldt aanvallen voor zevende nacht op rij](https://nos.nl/l/2623433)
   > Het Amerikaanse leger zegt dat het voor de zevende dag op rij aanvallen op Iran heeft uitgevoerd. De aanvallen zijn volgens de Amerikanen bedoeld om...
 - [Opnieuw een stuntman gewond op Zwarte Cross na katapultstunt](https://nos.nl/l/2623430)
   > Voor de tweede dag op rij is op het festival Zwarte Cross in de Achterhoek een stuntman gewond geraakt nadat hij de lucht in was geschoten met een...
 - [Geld over, dus blijven expertisecentra voor postcovid jaar langer open](https://nos.nl/l/2623420)
   > De speciale expertisecentra waar postcovidpatiënten worden onderzocht, blijven zeker een jaar langer open. Dat meldt zorgminister Sophie Hermans...
-- [Grote brand in Noorse stad verwoest honderd huizen](https://nos.nl/l/2623419)
-  > In de Noorse stad Drammen, bij Oslo, zijn volgens Noorse media bij een brand honderd woningen in vlammen opgegaan. Het hoofd van de politie zei bij...
-- [Zeker acht doden en 34 vermisten door aardverschuiving in China](https://nos.nl/l/2623418)
-  > Bij een aardverschuiving aan de rand van de stad Chongqing in centraal-China zijn zeker acht mensen om het leven gekomen. Nog 34 anderen worden...
 
 ### Meest gelezen
 
@@ -27,6 +28,8 @@
 
 ### Laatste nieuws
 
+- [LIVE VS | Trump dreigt Canada met nieuwe importtarieven vanwege luchtvervuiling door bosbranden](https://www.ad.nl/buitenland/live-vs-trump-dreigt-canada-met-nieuwe-importtarieven-vanwege-luchtvervuiling-door-bosbranden~ae67dd9c/)
+  > Donald Trump heeft gedreigd om Canada nieuwe importtarieven op te leggen, uit boosheid over luchtvervuiling door de grote bosbranden die op dit...
 - [Ajax mag steeds meer hopen op komst van Marokkaanse WK-uitblinker Azzedine Ounahi](https://www.ad.nl/voetbal/ajax-mag-steeds-meer-hopen-op-komst-van-marokkaanse-wk-uitblinker-azzedine-ounahi~a3d0dab9/)
   > Ajax heeft goede hoop dat het zich gaat versterken met Azzedine Ounahi van Girona. De 26-jarige middenvelder, die een sterk WK met Marokko achter de...
 - [Dodental aardbevingen Venezuela loopt op naar ruim 5000, zeker 300 slachtoffers nog niet geïdentificeerd](https://www.ad.nl/buitenland/dodental-aardbevingen-venezuela-loopt-op-naar-ruim-5000-zeker-300-slachtoffers-nog-niet-geidentificeerd~a1ddc205/)
@@ -35,8 +38,6 @@
   > De eredivisieclubs zijn begonnen aan de voorbereiding op het nieuwe seizoen. In dit artikel lees je het programma en alle uitslagen per club. Onder...
 - [Opnieuw verloopt katapultsprong niet volgens plan: stuntman breekt zijn enkel](https://www.ad.nl/oost-gelre/opnieuw-verloopt-katapultsprong-niet-volgens-plan-stuntman-breekt-zijn-enkel~a0786d10/)
   > Duizenden festivalgangers houden vrijdagavond hun adem in tijdens de tweede katapultsprong op de Zwarte Cross. De spectaculaire vlucht over de...
-- [Zidane wordt Franse bondscoach, Utrecht heeft eindelijk beet, keepersruil bij Excelsior en FC Dordrecht](https://www.ad.nl/voetbal/zidane-wordt-franse-bondscoach-utrecht-heeft-eindelijk-beet-keepersruil-bij-excelsior-en-fc-dordrecht~aeb81ef1/)
-  > Het WK nadert zijn ontknoping, maar er is ook flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van...
 
 ### Meest gelezen
 
