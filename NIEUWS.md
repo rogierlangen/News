@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-07-2026 om 12:12*
+*Laatst bijgewerkt: 17-07-2026 om 14:45*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Grote bosbrand in Spanje verwoest 12.000 hectare, nog niet onder controle](https://nos.nl/l/2623362)
+  > Een bosbrand in het noordoosten van Spanje heeft al meer dan 12.000 hectare bos verwoest, melden Spaanse media. De brand is nog niet onder controle....
+- [Provincie wil vergunning vijf Brabantse kippenboeren intrekken](https://nos.nl/l/2623361)
+  > De provincie Noord-Brabant overweegt de vergunning van vijf pluimveehouders bij kwetsbare natuurgebieden in te trekken vanwege hun stikstofuitstoot....
+- [Gemeenten halen documenten met persoonsgegevens offline na NOS-onderzoek](https://nos.nl/l/2623357)
+  > Gemeenten hebben documenten offline gehaald omdat daar persoonlijke gegevens van burgers in stonden. Uit vandaag gepubliceerd onderzoek van de NOS en...
 - [Man krijgt taakstraf na belediging en bedreiging bij azc-protest Loosdrecht](https://nos.nl/l/2623353)
   > Een 48-jarige man uit Loosdrecht is veroordeeld tot een taakstraf voor belediging van agenten en bedreiging tijdens een anti-azc-protest. De man had...
 - [Niet prinsessen maar geadopteerde mannen moeten Japans keizerlijk huis redden](https://nos.nl/l/2623351)
   > Het Japanse parlement heeft voor het eerst sinds 1947 een grote wijziging aangenomen in de Wet op het Keizerlijk Huis. Voortaan kunnen mannen uit...
-- [Laatste bewoners van azc Hardenberg weg, opvanglocatie gesloten](https://nos.nl/l/2623347)
-  > De laatste bewoners van het asielzoekerscentrum in Hardenberg zijn vanochtend naar een andere locatie overgebracht. Daardoor kan het azc in de...
-- [Andy Burnham gekozen als partijleider Labour, vanaf maandag premier](https://nos.nl/l/2623346)
-  > Labour-parlementariër Andy Burnham is zojuist op een partijcongres van de Labourpartij gekozen als opvolger van premier Starmer. Daarmee is hij vanaf...
-- [Speelgoed dat samenbrengt: 1200 Europeanen op het EK Rubiks kubus](https://nos.nl/l/2623345)
-  > De Rubiks kubus heeft menig puzzelaar de afgelopen decennia hoofdbrekens gekost, maar dat geldt niet voor de 1200 deelnemers van het Europees...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Bosbrand in Spanje verwoest 12.000 hectare grond, tot anderhalf uur vertraging op de Route du Soleil](https://www.ad.nl/buitenland/bosbrand-in-spanje-verwoest-12-000-hectare-grond-tot-anderhalf-uur-vertraging-op-de-route-du-soleil~a4195717/)
-  > Ga je op reis naar de Spaanse Costa of naar een idyllisch Frans dorpje, plons je in het zwembad van een Turks resort of ga je lekker fietsen op de...
-- [Moordend tempo in openingsfase eerste Vogezenrit, Nederlandse debutant niet meer opgestapt](https://www.ad.nl/tour-de-france/moordend-tempo-in-openingsfase-eerste-vogezenrit-nederlandse-debutant-niet-meer-opgestapt~a034bd03/)
+- [Pluimers trekt door op lastige beklimming, Pidcock maakt flinke sprong in virtuele klassement](https://www.ad.nl/tour-de-france/pluimers-trekt-door-op-lastige-beklimming-pidcock-maakt-flinke-sprong-in-virtuele-klassement~a034bd03/)
   > Na twee sprintersetappes, moeten de klimmers weer aan de bak. De etappe van Dole naar Belfort is met 205 kilometer meteen ook de langste van deze...
-- [Immigratiedienst ICE moet zich weer verantwoorden voor dood arrestanten](https://www.ad.nl/buitenland/immigratiedienst-ice-moet-zich-weer-verantwoorden-voor-dood-arrestanten~adc4b215/)
-  > Immigratiedienst ICE staat opnieuw volop in de schijnwerpers. Na twee dodelijke incidenten in Maine en Texas stopte de dienst tijdelijk met het...
-- [Maurice Steijn over het straatvechters-imago en harde keuzes: ‘Dat doet afbreuk aan wie ik ben’](https://www.ad.nl/voetbal/maurice-steijn-over-het-straatvechters-imago-en-harde-keuzes-dat-doet-afbreuk-aan-wie-ik-ben~aa069fc2/)
-  > Terwijl de voetbalwereld zich in het zweet werkt voor een nieuw seizoen, geniet Maurice Steijn (52) momenteel in alle rust van zijn vrije tijd. Na...
-- [De goedkoopste Tesla? Elon Musk verkoopt nu ook een loopfiets voor kleuters van 225 dollar](https://www.ad.nl/auto/de-goedkoopste-tesla-elon-musk-verkoopt-nu-ook-een-loopfiets-voor-kleuters-van-225-dollar~ae001791/)
-  > Tesla bouwt al jaren elektrische auto’s, maar nu pakt het merk van Elon Musk uit met iets helemaal anders: de nieuwste Tesla is een loopfiets voor...
+- [Nederlandse doelman (24) verkast naar Schotland, Ajax-talent naar Qatar en Álvarez blijft bij Atlético](https://www.ad.nl/voetbal/nederlandse-doelman-24-verkast-naar-schotland-ajax-talent-naar-qatar-en-alvarez-blijft-bij-atletico~aeb81ef1/)
+  > Het WK nadert zijn ontknoping, maar er is ook flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van...
+- [Willem Holleeder verruilt EBI voor minder strenge gevangenis](https://www.ad.nl/binnenland/willem-holleeder-verruilt-ebi-voor-minder-strenge-gevangenis~ac0d78e7/)
+  > Willem Holleeder (68) wordt vanuit de Extra Beveiligde Inrichting in Vught overgeplaatst naar een minder zwaar beveiligde gevangenis. Zijn advocaat...
+- [Kan Max Verstappen uitstekende start op Spa goed vervolg geven?](https://www.ad.nl/formule-1/kan-max-verstappen-uitstekende-start-op-spa-goed-vervolg-geven~ac3d3f94/)
+  > Max Verstappen verbaasde vriend, vijand en zichzelf met de snelste tijd tijdens de eerste vrije training op Spa-Francorchamps. Kan de coureur van Red...
+- [Duitse oud-minister stemde tegen draagmoederschap, maar is zelf vader geworden via draagmoeder uit VS](https://www.ad.nl/buitenland/duitse-oud-minister-stemde-tegen-draagmoederschap-maar-is-zelf-vader-geworden-via-draagmoeder-uit-vs~a3e29217/)
+  > De Duitse politicus Jens Spahn (46) is vader geworden. Geen schokkend nieuws, ware het niet dat zijn baby is geboren via een draagmoeder in de VS....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Rechter zet streep door privacywet als verdienmodel](https://fd.nl/financiele-markten/1604997/rechter-zet-streep-door-privacywet-als-verdienmodel)
-  > Juristen waarschuwden eerder dat mensen via schadeclaims aan de privacywet proberen te verdienen. De rechter veegt de claims van een veelprocederende...
-- [Marsleider Vierdaagse is altijd blij als ‘zijn’ evenement weer voorbij is](https://fd.nl/bedrijfsleven/1604379/marsleider-vierdaagse-is-altijd-blij-als-zijn-evenement-weer-voorbij-is)
-  > In het verleden liep Henny Sackers de Vierdaagse, tegenwoordig organiseert hij die. Het levert de gepensioneerde hoogleraar bestuurlijk sanctierecht...
-- [Gebruik van DigiD groeit door: 645 miljoen keer ingelogd](https://fd.nl/samenleving/1605160/gebruik-van-digid-groeit-door-645-miljoen-keer-ingelogd)
-  > Met DigiD inloggen bij overheidsdiensten, maar ook zorgverzekeraars en pensioenfondsen, wordt steeds populairder. Een derde van de gebruikers doet...
-- [De tien beste non-fictieboeken van het eerste halfjaar](https://fd.nl/samenleving/1603041/de-tien-beste-non-fictieboeken-van-het-eerste-halfjaar)
-  > Welke non-fictieboeken moet u lezen tijdens uw vakantie? Deze tien uit het eerste halfjaar van 2026 springen eruit, volgens onze recensenten.
-- [Bloemen- en plantenexport daalt in het eerste halfjaar](https://fd.nl/bedrijfsleven/1605159/bloemen-en-plantenexport-daalt-in-het-eerste-halfjaar)
-  > Grote exportlanden, zoals Duitsland en het Verenigd Koninkrijk, nemen minder sierteeltproducten af.
+- [Vakbonden dreigen met Schiphol‑acties en spoorstaking](https://fd.nl/politiek/1605162/vakbonden-dreigen-met-schipholacties-en-spoorstaking)
+  > CNV en FNV eisen verbetering van de werkomstandigheden voor beveiligers op de luchthaven. Ook in het openbaar vervoer zijn acties aangekondigd.
+- [131.400 keer in de nieuwe Efteling‑achtbaan](https://fd.nl/financiele-markten/1605076/131-400-keer-in-de-nieuwe-eftelingachtbaan)
+  > Met de nieuwe attractie van Nederlands bekendste pretpark is een investering van €50 mln gemoeid. Om dit terug te verdienen moeten bezoekers er...
+- [Duitsland worstelt met een 25% te goedkope Chinese munt](https://fd.nl/financiele-markten/1604215/duitsland-worstelt-met-een-25-te-goedkope-chinese-munt)
+  > De goedkope yuan vergroot het handelsoverschot van China met Europa en zeker met Duitsland. Toch knaagt het vooral aan de exportposities van andere...
+- [Labour kiest Andy Burnham als leider, wordt maandag premier](https://fd.nl/politiek/1605167/labour-kiest-andy-burnham-als-leider-wordt-maandag-premier)
+  > De vertrekkende burgemeester van Manchester volgt Keir Starmer op en zegt nog niet te weten wie er in zijn kabinet komen te zitten.
+- [Bovenburen eisen dat grillrestaurant La Mesa op Zuidas de barbecue voor altijd uitzet](https://fd.nl/samenleving/1605009/bovenburen-eisen-dat-grillrestaurant-la-mesa-op-zuidas-de-barbecue-voor-altijd-uitzet)
+  > Bezorgde bewoners van de Symphony-toren in Amsterdam stonden vrijdag in de rechtbank. Ze zijn beducht op brandgevaar van de Spaanse houtskoolgrill op...
 
 ### Meest gelezen
 
