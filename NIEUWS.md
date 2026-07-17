@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-07-2026 om 00:08*
+*Laatst bijgewerkt: 17-07-2026 om 04:10*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [VS breidt aanvallen op Iran uit, Iran valt Golfstaten aan](https://nos.nl/l/2623298)
+  > De Verenigde Staten hebben de aanvallen op Iran verder uitgebreid. Amerikaanse luchtaanvallen waren vrijdag onder meer gericht op bruggen in het...
+- [Trump beschuldigt China opnieuw van inmenging bij verkiezingen](https://nos.nl/l/2623297)
+  > De Amerikaanse president Trump heeft in een televisietoespraak opnieuw beweerd dat China zich heeft bemoeid met de Amerikaanse presidentsverkiezingen...
+- [ICE-agent die migrant doodschoot had volgens familie en dossiers geweldsverleden](https://nos.nl/l/2623296)
+  > De ICE-agent die maandag in de Amerikaanse staat Maine een Colombiaanse man doodschoot, heeft volgens familieleden een lange geschiedenis van...
 - [Vogels waarschijnlijk oorzaak helikoptercrash New York waarbij Spaans gezin omkwam](https://nos.nl/l/2623295)
   > Een helikopter voor toeristische rondvluchten die vorig jaar neerstortte in de rivier de Hudson in New York, is waarschijnlijk neergestort na...
 - [Leverancier van Taco Bell-sla in beeld bij grote diarree-uitbraak VS](https://nos.nl/l/2623294)
   > Fijngesneden ijsbergsla die wordt geleverd aan restaurants van fastfoodketen Taco Bell lijkt de bron te zijn van de grote diarree-uitbraak in de...
-- [Italiaanse politie doet weer invallen bij luxemerken om uitbuiting textielarbeiders](https://nos.nl/l/2623292)
-  > De Italiaanse politie heeft invallen gedaan bij de kantoren van elf luxe modemerken. Dat bevestigt het Openbaar Ministerie in Milaan aan zakenkrant...
-- [Veroordeelde Fransman wijst plek aan waar hij lichaam van zijn vrouw verstopte](https://nos.nl/l/2623289)
-  > Ruim vijfeneenhalf jaar na de verdwijning van een Franse vrouw heeft haar man de politie meegenomen naar de plek waar hij haar lichaam heeft gedumpt....
-- [Strafhof vervolgt Libische leider beruchte gevangenis voor misdaden tegen menselijkheid](https://nos.nl/l/2623286)
-  > Het Internationaal Strafhof (ICC) in Den Haag gaat de Libische militieleider en gevangenisbewaarder Khaled Mohamed Ali El Hishri vervolgen. Hij wordt...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [SpaceX blaast testvlucht Starship op het laatste moment af](https://www.ad.nl/buitenland/spacex-blaast-testvlucht-starship-op-het-laatste-moment-af~a2300339/)
-  > SpaceX heeft de dertiende testvlucht van Starship op het laatste moment afgeblazen. De lancering werd abrupt gestopt net op het moment dat de motoren...
-- [Medewerker autocue Witte Huis verdiende een smak geld met wedden op toespraken Trump](https://www.ad.nl/buitenland/medewerker-autocue-witte-huis-verdiende-een-smak-geld-met-wedden-op-toespraken-trump~a2c8fdde/)
-  > Een medewerker die de autocue in het Witte Huis bedient, heeft zijn positie misbruikt om ongeveer 100.000 dollar (87.300 euro) te verdienen. Hij...
-- [In Het Wiel | ‘Kooij heeft te goed gesprint om maar één ritzege te hebben’](https://www.ad.nl/tour-de-france/in-het-wiel-kooij-heeft-te-goed-gesprint-om-maar-een-ritzege-te-hebben~a5ea502e/)
-  > Twee keer op rij een tweede plek voor Olav Kooij in de Tour. In een ontsierde massasprint moest hij zijn meerdere erkennen in Tim Merlier, die...
-- [Ajax treft oude bekende in voorronde Conference League, FC Twente tegen Hongaarse recordkampioen](https://www.ad.nl/voetbal/ajax-treft-oude-bekende-in-voorronde-conference-league-fc-twente-tegen-hongaarse-recordkampioen~a63a8b23/)
-  > In de tweede voorronde van de Conference League neemt Ajax het volgende week donderdag op tegen FK Vojvodina. Dit is wat je moet weten van de nummer...
-- [Bob Dylan gaat op tournee door Europa, maar slaat Nederland over](https://www.ad.nl/show/bob-dylan-gaat-op-tournee-door-europa-maar-slaat-nederland-over~a53e82e5/)
-  > Bob Dylan (85) gaat in het najaar weer touren door Europa. De Amerikaanse zanger begint 17 oktober in Oslo aan zijn concertreeks op het Europese...
+- [Amerikaanse Nancy (76) krijgt per ongeluk wel héél pikante kentekenplaat](https://www.ad.nl/buitenland/amerikaanse-nancy-76-krijgt-per-ongeluk-wel-heel-pikante-kentekenplaat~ac640856/)
+  > Nietsvermoedend je kentekenplaat vernieuwen en eindigen met een uitnodiging tot billenknijpen op je bumper. Het overkomt de bijna 77-jarige Nancy uit...
+- [Een zonnige vrijdag en een bewolkt weekend, maar buien blijven veelal weg: droogte neemt toe](https://www.ad.nl/binnenland/een-zonnige-vrijdag-en-een-bewolkt-weekend-maar-buien-blijven-veelal-weg-droogte-neemt-toe~a37cb281/)
+  > Zonaanbidders moeten er vrijdag overdag nog even van genieten, want het is de komende dagen de laatste zonovergoten dag. Vanaf vrijdagavond wordt het...
+- [Watertekort dwingt bouwers tot actie: nieuwbouwwoningen met 4500 liter regenwater onder de vloer](https://www.ad.nl/economie/watertekort-dwingt-bouwers-tot-actie-nieuwbouwwoningen-met-4500-liter-regenwater-onder-de-vloer~a3e79218/)
+  > Waarom spoelen we onze toiletten nog altijd door met piekfijn, gezuiverd drinkwater? Zeker nu het zo droog is dat er officieel sprake is van een...
+- [Trump beschuldigt China van manipulatie Amerikaanse verkiezingsdata](https://www.ad.nl/buitenland/trump-beschuldigt-china-van-manipulatie-amerikaanse-verkiezingsdata~a033254b/)
+  > De Amerikaanse president Donald Trump heeft aangekondigd dat hij geheime Amerikaanse documenten openbaar gaat maken waaruit blijkt dat de systemen...
+- [VS vallen Iran opnieuw aan, bruggen en luchthaven getroffen](https://www.ad.nl/buitenland/vs-vallen-iran-opnieuw-aan-bruggen-en-luchthaven-getroffen~ac528ac3/)
+  > Het leger van de Verenigde Staten heeft voor de zesde nacht op rij luchtaanvallen uitgevoerd op doelen in Iran. Volgens Iraanse media zijn daarbij...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Seks, rugpijn en menstruatie: cyclusapps halen miljoenen op met intieme informatie](https://fd.nl/samenleving/1603179/seks-rugpijn-en-menstruatie-cyclusapps-halen-miljoenen-op-met-intieme-informatie)
+  > Vrouwen grijpen massaal naar apps om hun intiemste gegevens te delen. Alles om meer grip op hun cyclus te krijgen. Maar daarachter rijzen vragen over...
+- [Seks en vruchtbaarheid tracken: de baarmoeder als businessmodel](https://fd.nl/economie/1605078/seks-en-vruchtbaarheid-tracken-de-baarmoeder-als-businessmodel)
+  > Vandaag in de FD Dagkoers podcast: Wat zijn de risico’s van cyclusapps, hoe ziet de toekomst eruit van de nieuwe groene waterstoffabriek in Limburg...
 - [Geld voor de trein](https://fd.nl/opinie/1605085/geld-voor-de-trein)
   > Kan ik bij de NS een cursus onderhandelen volgen?
 - [Kwakkelend chemiepark Chemelot blijft hoop houden dat reddingsboei Furec er gaat komen](https://fd.nl/bedrijfsleven/1604782/kwakkelend-chemiepark-chemelot-blijft-hoop-houden-dat-reddingsboei-furec-er-gaat-komen)
   > Het lukt energiebedrijf RWE niet om afnemers voor de groene waterstof van Furec te vinden. Daardoor is de kans heel klein dat het project nog...
 - [Waarom boeit geld vrouwen niet?](https://fd.nl/opinie/1604778/waarom-boeit-geld-vrouwen-niet)
   > Als twintigers verdienen hoger opgeleide vrouwen inmiddels beter dan de lakse sekse. Maar op de rijkenlijsten ontbreken ze, en evenmin zie ik amper...
-- [Zeeuwse aardappelmiljonair betrokken bij deal tussen Omoda en Wehkamp](https://fd.nl/bedrijfsleven/1604493/zeeuwse-aardappelmiljonair-betrokken-bij-deal-tussen-omoda-en-wehkamp)
-  > Met hulp van een familiefonds kocht modebedrijf Omoda webwinkel Wehkamp in juni. Daar blijkt de vermogende Zeeuwse familie Meijer achter te zitten,...
-- [Personalia vrijdag 17 juli](https://fd.nl/bedrijfsleven/1604977/personalia-vrijdag-17-juli)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
