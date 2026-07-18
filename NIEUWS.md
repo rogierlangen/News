@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-07-2026 om 17:57*
+*Laatst bijgewerkt: 18-07-2026 om 19:15*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Hoe supertalent Paul Seixas (19) deze Tour de France kleur geeft en een land laat dromen](https://www.ad.nl/tour-de-france/hoe-supertalent-paul-seixas-19-deze-tour-de-france-kleur-geeft-en-een-land-laat-dromen~a410cd2f/)
-  > De witte trui. Een aanval op het Tourpodium. En een berg vol Fransen die elke dag een beetje meer verliefd worden op Paul Seixas. Hoe een jongen van...
-- [Troostfinale in Miami: grijpt Frankrijk of Engeland het brons?](https://www.ad.nl/wk-voetbal/troostfinale-in-miami-grijpt-frankrijk-of-engeland-het-brons~abeb09cc/)
+- [Mbappé over Deschamps: ‘Mensen hebben jouw grootsheid niet altijd op waarde geschat’](https://www.ad.nl/wk-voetbal/mbappe-over-deschamps-mensen-hebben-jouw-grootsheid-niet-altijd-op-waarde-geschat~abeb09cc/)
   > Frankrijk sneuvelde in de halve finale van het WK tegen Spanje, voor Engeland viel het doek tegen Argentinië. De twee landen nemen het vanavond om...
-- [Lauritsen nieuwe spits van Sampdoria, Trincão voor 40 miljoen naar Saoedi-Arabië](https://www.ad.nl/voetbal/lauritsen-nieuwe-spits-van-sampdoria-trincao-voor-40-miljoen-naar-saoedi-arabie~aeb81ef1/)
+- [Burgemeester New York bespreekt mogelijke arrestatie Netanyahu](https://www.ad.nl/buitenland/burgemeester-new-york-bespreekt-mogelijke-arrestatie-netanyahu~a39083f1/)
+  > De burgemeester van New York, Zohran Mamdani, is in gesprek met het juridische team van de stad over de vraag of hij de Israëlische premier Benjamin...
+- [Chelsea legt 137 miljoen neer voor Engels international, Lauritsen nieuwe spits van Sampdoria](https://www.ad.nl/voetbal/chelsea-legt-137-miljoen-neer-voor-engels-international-lauritsen-nieuwe-spits-van-sampdoria~aeb81ef1/)
   > Het WK nadert zijn ontknoping, maar er is ook flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van...
-- [Juicht Máxima tóch voor Argentinië op het WK? ‘We maakten daar voor ons huwelijk al afspraken over’](https://www.ad.nl/show/juicht-maxima-toch-voor-argentinie-op-het-wk-we-maakten-daar-voor-ons-huwelijk-al-afspraken-over~ac674284/)
-  > Heel Argentinië staat aan de vooravond van dé WK-finale zondag tegen Spanje op z’n kop, maar hoe zit het op Paleis Huis ten Bosch? Loopt koningin...
-- [Een eigen huisje in je favoriete vakantiedorp? ‘Plaatjes kijken bij de lokale makelaar is niet de ideale start’](https://www.ad.nl/wonen/een-eigen-huisje-in-je-favoriete-vakantiedorp-plaatjes-kijken-bij-de-lokale-makelaar-is-niet-de-ideale-start~ae390344/)
-  > Op je vakantiebestemming sta je ineens dromend voor het raam van een makelaarskantoor. Een Spaanse finca, Italiaanse casale of een chalet in de...
+- [Van alle Nederlandse trainers stond hij het vaakst tegenover Messi: ‘Hier snapt iedereen hoe het werkt’](https://www.ad.nl/wk-voetbal/van-alle-nederlandse-trainers-stond-hij-het-vaakst-tegenover-messi-hier-snapt-iedereen-hoe-het-werkt~adfba63f/)
+  > Geen enkele Nederlandse trainer nam het vaker op tegen Lionel Messi dan Pascal Jansen (53), de coach van New York City FC: vier keer inmiddels. En...
+- [Achter ‘marktplaats voor freelancers’ zit schimmige wereld: ‘Hij trekt mensen helemaal leeg’](https://www.ad.nl/binnenland/achter-marktplaats-voor-freelancers-zit-schimmige-wereld-hij-trekt-mensen-helemaal-leeg~a63b9f1f/)
+  > Valse AI-vacatures, tientallen niet betaalde freelancers, onterecht afgeschreven abonnementsgeld, een doodsbedreiging en verdwenen Porsches. Achter...
 
 ### Meest gelezen
 
