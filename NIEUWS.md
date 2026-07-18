@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-07-2026 om 23:57*
+*Laatst bijgewerkt: 18-07-2026 om 03:18*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Zwitserse douane houdt bijensmokkelaar tegen bij de grens](https://nos.nl/l/2623437)
+  > De Zwitserse douane heeft vorige maand een man tegengehouden bij de grens, die met zijn bestelbus vol bijenkolonies het land wilde binnengaan. Dat...
+- [Echtpaar gedood door beer in Canada](https://nos.nl/l/2623436)
+  > In Canada heeft een zwarte beer twee mensen gedood, bij een meer in het noorden van de provincie Saskatchewan. Dat bevestigen lokale autoriteiten aan...
 - [Vlaamse kip legt 'uitzonderlijk' groot ei](https://nos.nl/l/2623435)
   > In Vlaanderen heeft een kip een uitzonderlijk groot ei gelegd. Het ei weegt 117 gram, bijna twee keer zo zwaar als een gemiddeld kippenei.
        ...
@@ -15,10 +19,6 @@
   > Het dodental na de twee verwoestende aardbevingen in Venezuela is opgelopen tot 5069. Dat heeft Jorge Rodríguez bekendgemaakt, de...
 - [Explosies bij Iraanse steden, leger VS meldt aanvallen voor zevende nacht op rij](https://nos.nl/l/2623433)
   > Het Amerikaanse leger zegt dat het voor de zevende dag op rij aanvallen op Iran heeft uitgevoerd. De aanvallen zijn volgens de Amerikanen bedoeld om...
-- [Opnieuw een stuntman gewond op Zwarte Cross na katapultstunt](https://nos.nl/l/2623430)
-  > Voor de tweede dag op rij is op het festival Zwarte Cross in de Achterhoek een stuntman gewond geraakt nadat hij de lucht in was geschoten met een...
-- [Geld over, dus blijven expertisecentra voor postcovid jaar langer open](https://nos.nl/l/2623420)
-  > De speciale expertisecentra waar postcovidpatiënten worden onderzocht, blijven zeker een jaar langer open. Dat meldt zorgminister Sophie Hermans...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [LIVE VS | Trump dreigt Canada met nieuwe importtarieven vanwege luchtvervuiling door bosbranden](https://www.ad.nl/buitenland/live-vs-trump-dreigt-canada-met-nieuwe-importtarieven-vanwege-luchtvervuiling-door-bosbranden~ae67dd9c/)
+- [Moeder verdwenen Dominic (23) sloeg jaren geleden al alarm bij instanties: ‘Dit gaat escaleren, zei ik’](https://www.ad.nl/binnenland/moeder-verdwenen-dominic-23-sloeg-jaren-geleden-al-alarm-bij-instanties-dit-gaat-escaleren-zei-ik~a53aade9/)
+  > Zorginstanties weten al jaren dat het niet goed gaat met de 23-jarige Dominic uit Heelsum, die sinds februari vermist is. Zijn moeder Judith slaat...
+- [Canadees echtpaar gedood door zwarte beer tijdens vistripje in Saskatchewan](https://www.ad.nl/buitenland/canadees-echtpaar-gedood-door-zwarte-beer-tijdens-vistripje-in-saskatchewan~a4f2cfcc/)
+  > In de Canadese provincie Saskatchewan is een echtpaar om het leven gekomen na een aanval van een zwarte beer. Het stel van begin 70 jaar was naar hun...
+- [Ruim een kwart van de gemeenten gooit nu al de deur helemaal dicht voor vuurwerk](https://www.ad.nl/binnenland/ruim-een-kwart-van-de-gemeenten-gooit-nu-al-de-deur-helemaal-dicht-voor-vuurwerk~a18223d7/)
+  > In minstens 99 gemeenten in Nederland mag de komende jaarwisseling helemaal geen vuurwerk worden afgestoken, dus ook niet door verenigingen. Dat is...
+- [Trump dreigt Canada met nieuwe importtarieven vanwege luchtvervuiling door bosbranden](https://www.ad.nl/buitenland/trump-dreigt-canada-met-nieuwe-importtarieven-vanwege-luchtvervuiling-door-bosbranden~ae67dd9c/)
   > Donald Trump heeft gedreigd om Canada nieuwe importtarieven op te leggen, uit boosheid over luchtvervuiling door de grote bosbranden die op dit...
 - [Ajax mag steeds meer hopen op komst van Marokkaanse WK-uitblinker Azzedine Ounahi](https://www.ad.nl/voetbal/ajax-mag-steeds-meer-hopen-op-komst-van-marokkaanse-wk-uitblinker-azzedine-ounahi~a3d0dab9/)
   > Ajax heeft goede hoop dat het zich gaat versterken met Azzedine Ounahi van Girona. De 26-jarige middenvelder, die een sterk WK met Marokko achter de...
-- [Dodental aardbevingen Venezuela loopt op naar ruim 5000, zeker 300 slachtoffers nog niet geïdentificeerd](https://www.ad.nl/buitenland/dodental-aardbevingen-venezuela-loopt-op-naar-ruim-5000-zeker-300-slachtoffers-nog-niet-geidentificeerd~a1ddc205/)
-  > Meer dan 5000 mensen zijn omgekomen bij de aardbevingen die Venezuela eind juni troffen. Dat heeft parlementsvoorzitter Jorge Rodríguez vrijdag...
-- [Heerenveen wint van Belgische kampioen, Utrecht langs Japanse opponent, maakt Van Bommel rentree?](https://www.ad.nl/voetbal/heerenveen-wint-van-belgische-kampioen-utrecht-langs-japanse-opponent-maakt-van-bommel-rentree~ab5071ea/)
-  > De eredivisieclubs zijn begonnen aan de voorbereiding op het nieuwe seizoen. In dit artikel lees je het programma en alle uitslagen per club. Onder...
-- [Opnieuw verloopt katapultsprong niet volgens plan: stuntman breekt zijn enkel](https://www.ad.nl/oost-gelre/opnieuw-verloopt-katapultsprong-niet-volgens-plan-stuntman-breekt-zijn-enkel~a0786d10/)
-  > Duizenden festivalgangers houden vrijdagavond hun adem in tijdens de tweede katapultsprong op de Zwarte Cross. De spectaculaire vlucht over de...
 
 ### Meest gelezen
 
@@ -47,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [FD Summer School: Hoe verandert een studieschuld je leven?](https://fd.nl/samenleving/1605015/fd-summer-school-hoe-verandert-een-studieschuld-je-leven)
+  > In deze Summer School gaat het om de vraag wat de gevolgen zijn van een studieschuld. Onderzoeker en docent economie Kim Fairley van de Radboud...
 - [Suriname in een ander licht](https://fd.nl/samenleving/1604287/suriname-in-een-ander-licht)
   > Je treft Suriname regelmatig aan in nieuwsfotografie, maar van het dagelijks leven in het land zijn niet zoveel beelden. Daar wil fotograaf Fidelio...
 - [Personeelskrapte dwingt Texelse ondernemers vastgoed te kopen](https://fd.nl/economie/1602977/personeelskrapte-dwingt-texelse-ondernemers-vastgoed-te-kopen)
@@ -55,8 +57,6 @@
   > Regels zijn voor het huidige staatshoofd van de VS een glibberig begrip. Op maandag zegt hij dat hij tol gaat heffen in de Straat van Hormuz, op...
 - [Personalia zaterdag 18 juli](https://fd.nl/bedrijfsleven/1605008/personalia-zaterdag-18-juli)
   > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Hoe een obscuur belastingparadijs de cryptowereld ondergronds houdt](https://fd.nl/financiele-markten/1592369/hoe-een-obscuur-belastingparadijs-de-cryptowereld-ondergronds-houdt)
-  > Palau verkoopt ID-kaarten tegen bodemprijzen. Cryptobeleggers ontduiken er regels en witwascontroles mee. Het grenst aan valsheid in geschrifte, maar...
 
 ### Meest gelezen
 
