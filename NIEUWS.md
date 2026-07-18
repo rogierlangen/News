@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-07-2026 om 22:54*
+*Laatst bijgewerkt: 18-07-2026 om 23:57*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Tijdelijke afsluiting Merwedebrug klap voor transportsector: 'Impact is enorm'](https://nos.nl/l/2623563)
+  > De transportsector is ontstemd over de tijdelijke afsluiting van de Merwedeburg in de A27 bij Gorinchem voor vrachtverkeer. Op verschillende plekken...
 - [Omwonenden drugslab Den Haag mogen terug naar huis](https://nos.nl/l/2623555)
   > Vele tientallen bewoners van een wijk in Den Haag waar vrijdag een drugslab werd ontdekt, mogen terug naar huis. De politie ging gisteren verder met...
 - [President Hongarije en Orbán-adept tekent wet waardoor hij nu zelf op straat staat](https://nos.nl/l/2623546)
@@ -16,8 +18,6 @@
   > Een dag voor de finale van het WK-voetbal is New York bedekt onder een dikke laag smog, afkomstig van Canadese natuurbranden, die grote delen van het...
 - [Opperste leider Iran schort overeenkomst met Amerika op, haalt uit naar Trump](https://nos.nl/l/2623535)
   > De hoogste Iraanse leider heeft het vorige maand bereikte akkoord met de Verenigde Staten opgeschort. De sjiitische geestelijke Mojtaba Khamenei liet...
-- [Aantal Nederlandse muziekstudenten op conservatoria fors gedaald](https://nos.nl/l/2623518)
-  > Nog maar twee op de tien studenten die in Nederland worden opgeleid tot uitvoerend musicus, komen ook echt uit Nederland. Het aandeel Nederlandse...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Engeland hard op weg naar het brons, Saka maakt zijn derde tegen Frankrijk](https://www.ad.nl/wk-voetbal/engeland-hard-op-weg-naar-het-brons-saka-maakt-zijn-derde-tegen-frankrijk~abeb09cc/)
-  > Frankrijk en Engeland staan in Miami tegenover elkaar in een spectaculaire troostfinale van het WK. Volg het hier live.
+- [Topscorers WK voetbal 2026 | Mbappé alleen aan kop en passeert Messi als all-time WK-topscorer, Olise meeste assists op één WK](https://www.ad.nl/wk-voetbal/topscorers-wk-voetbal-2026-mbappe-alleen-aan-kop-en-passeert-messi-als-all-time-wk-topscorer-olise-meeste-assists-op-een-wk~ad0e6ff9/)
+  > Het WK voetbal is in volle gang. Wie wordt de topscorer, welke speler geeft de meeste assists en welke keepers blinken uit? Bekijk hieronder alle...
+- [Ongekend spektakel: Engeland pakt WK-brons na troostfinale met tien goals, Frankrijk mist grote kansen op comeback](https://www.ad.nl/wk-voetbal/ongekend-spektakel-engeland-pakt-wk-brons-na-troostfinale-met-tien-goals-frankrijk-mist-grote-kansen-op-comeback~abeb09cc/)
+  > Engeland heeft het brons gepakt op het WK, de beste prestatie van de nationale ploeg sinds de wereldtitel in 1966. Het team van Thomas Tuchel leek...
 - [Nieuwe Britse premier schrapt omstreden identificatiesysteem](https://www.ad.nl/buitenland/nieuwe-britse-premier-schrapt-omstreden-identificatiesysteem~ad0bc752/)
   > De aantredende Britse premier Andy Burnham gaat de plannen van de regering voor een omstreden digitaal identificatiebewijs schrappen, meldt een...
 - [Megabod AS Roma op Crysencio Summerville afgewezen, Lars Veldwijk tekent contract in Oman](https://www.ad.nl/voetbal/megabod-as-roma-op-crysencio-summerville-afgewezen-lars-veldwijk-tekent-contract-in-oman~aeb81ef1/)
   > Het WK nadert zijn ontknoping, maar er is ook flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van...
 - [Smeekbede van 15-jarige Enzo Fernández nadat Lionel Messi in 2016 wilde stoppen, uitgerekend in New York](https://www.ad.nl/wk-voetbal/smeekbede-van-15-jarige-enzo-fernandez-nadat-lionel-messi-in-2016-wilde-stoppen-uitgerekend-in-new-york~a535bc37/)
   > De cirkel kan zondagavond zomaar eens helemaal rond zijn voor Lionel Messi. Precies op de plek waar tien jaar geleden zijn interlandcarrière in...
-- [Niels Zonneveld komt na ijzersterke opleving in thriller net tekort tegen Stephen Bunting](https://www.ad.nl/darts/niels-zonneveld-komt-na-ijzersterke-opleving-in-thriller-net-tekort-tegen-stephen-bunting~a5efa262/)
-  > Het belangrijkste toernooi na het WK darts is van start. Aan de World Matchplay (18 tot en met 26 juli), ook wel het ‘zomer-WK’ genoemd, doen acht...
 
 ### Meest gelezen
 
