@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-07-2026 om 20:54*
+*Laatst bijgewerkt: 18-07-2026 om 21:54*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Mbappé met mooie woorden voor Deschamps, Kane en Bellingham op de bank](https://www.ad.nl/wk-voetbal/mbappe-met-mooie-woorden-voor-deschamps-kane-en-bellingham-op-de-bank~abeb09cc/)
-  > Frankrijk en Engeland staan om 23.00 uur tegenover elkaar in Miami. Harry Kane en Jude Bellingham (allebei goed voor zes goals) beginnen op de bank,...
+- [Nieuwe Britse premier schrapt omstreden identificatiesysteem](https://www.ad.nl/buitenland/nieuwe-britse-premier-schrapt-omstreden-identificatiesysteem~ad0bc752/)
+  > De aantredende Britse premier Andy Burnham gaat de plannen van de regering voor een omstreden digitaal identificatiebewijs schrappen, meldt een...
+- [Engeland speelt Frankrijk compleet overhoop in troostfinale, Saka maakt zijn tweede](https://www.ad.nl/wk-voetbal/engeland-speelt-frankrijk-compleet-overhoop-in-troostfinale-saka-maakt-zijn-tweede~abeb09cc/)
+  > Frankrijk en Engeland staan in Miami tegenover elkaar in de troostfinale van het WK. Harry Kane en Jude Bellingham (allebei zes goals voor Engeland)...
+- [Megabod AS Roma op Crysencio Summerville afgewezen, Lars Veldwijk tekent contract in Oman](https://www.ad.nl/voetbal/megabod-as-roma-op-crysencio-summerville-afgewezen-lars-veldwijk-tekent-contract-in-oman~aeb81ef1/)
+  > Het WK nadert zijn ontknoping, maar er is ook flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van...
+- [Smeekbede van 15-jarige Enzo Fernández nadat Lionel Messi in 2016 wilde stoppen, uitgerekend in New York](https://www.ad.nl/wk-voetbal/smeekbede-van-15-jarige-enzo-fernandez-nadat-lionel-messi-in-2016-wilde-stoppen-uitgerekend-in-new-york~a535bc37/)
+  > De cirkel kan zondagavond zomaar eens helemaal rond zijn voor Lionel Messi. Precies op de plek waar tien jaar geleden zijn interlandcarrière in...
 - [Niels Zonneveld komt na ijzersterke opleving in thriller net tekort tegen Stephen Bunting](https://www.ad.nl/darts/niels-zonneveld-komt-na-ijzersterke-opleving-in-thriller-net-tekort-tegen-stephen-bunting~a5efa262/)
   > Het belangrijkste toernooi na het WK darts is van start. Aan de World Matchplay (18 tot en met 26 juli), ook wel het ‘zomer-WK’ genoemd, doen acht...
-- [Podcast In Het Wiel | ‘Ik heb vandaag gezien dat Tadej Pogacar ook gewoon een mens is’](https://www.ad.nl/tour-de-france/podcast-in-het-wiel-ik-heb-vandaag-gezien-dat-tadej-pogacar-ook-gewoon-een-mens-is~a5ea502e/)
-  > Hij leek zowaar een beetje af te zien, maar winnen deed hij opnieuw. Tadej Pogacar pakte zijn vierde ritzege van deze Tour, terwijl de strijd om de...
-- [Hongaarse president tekent voor eigen vertrek, baan vanaf maandag vacant](https://www.ad.nl/buitenland/hongaarse-president-tekent-voor-eigen-vertrek-baan-vanaf-maandag-vacant~abd59b1e/)
-  > De Hongaarse president Tamas Sulyok heeft naar eigen zeggen een grondwetswijziging getekend die zijn vertrek betekent. De regering van premier Peter...
-- [Burgemeester New York bespreekt mogelijke arrestatie Netanyahu](https://www.ad.nl/buitenland/burgemeester-new-york-bespreekt-mogelijke-arrestatie-netanyahu~a39083f1/)
-  > De burgemeester van New York, Zohran Mamdani, is in gesprek met het juridische team van de stad over de vraag of hij de Israëlische premier Benjamin...
 
 ### Meest gelezen
 
