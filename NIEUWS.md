@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-07-2026 om 21:54*
+*Laatst bijgewerkt: 18-07-2026 om 22:54*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Omwonenden drugslab Den Haag mogen terug naar huis](https://nos.nl/l/2623555)
+  > Vele tientallen bewoners van een wijk in Den Haag waar vrijdag een drugslab werd ontdekt, mogen terug naar huis. De politie ging gisteren verder met...
 - [President Hongarije en Orbán-adept tekent wet waardoor hij nu zelf op straat staat](https://nos.nl/l/2623546)
   > De Hongaarse president Tamas Sulyok heeft zijn handtekening gezet onder een grondwetswijziging die een onmiddellijk einde maakt aan zijn eigen...
 - [WK eindigt morgen onder grauwe hemel, symbool voor zwarte rand aan voetbalfeest](https://nos.nl/l/2623543)
@@ -16,9 +18,6 @@
   > De hoogste Iraanse leider heeft het vorige maand bereikte akkoord met de Verenigde Staten opgeschort. De sjiitische geestelijke Mojtaba Khamenei liet...
 - [Aantal Nederlandse muziekstudenten op conservatoria fors gedaald](https://nos.nl/l/2623518)
   > Nog maar twee op de tien studenten die in Nederland worden opgeleid tot uitvoerend musicus, komen ook echt uit Nederland. Het aandeel Nederlandse...
-- [Autoschadebedrijven openen hagelcentra na noodweer van 27 juni](https://nos.nl/l/2623514)
-  > Bij het noodweer van drie weken geleden hebben zoveel auto's schade opgelopen dat herstelbedrijven speciale centra inrichten.
-        In Dronten...
 
 ### Meest gelezen
 
@@ -28,10 +27,10 @@
 
 ### Laatste nieuws
 
+- [Engeland hard op weg naar het brons, Saka maakt zijn derde tegen Frankrijk](https://www.ad.nl/wk-voetbal/engeland-hard-op-weg-naar-het-brons-saka-maakt-zijn-derde-tegen-frankrijk~abeb09cc/)
+  > Frankrijk en Engeland staan in Miami tegenover elkaar in een spectaculaire troostfinale van het WK. Volg het hier live.
 - [Nieuwe Britse premier schrapt omstreden identificatiesysteem](https://www.ad.nl/buitenland/nieuwe-britse-premier-schrapt-omstreden-identificatiesysteem~ad0bc752/)
   > De aantredende Britse premier Andy Burnham gaat de plannen van de regering voor een omstreden digitaal identificatiebewijs schrappen, meldt een...
-- [Engeland speelt Frankrijk compleet overhoop in troostfinale, Saka maakt zijn tweede](https://www.ad.nl/wk-voetbal/engeland-speelt-frankrijk-compleet-overhoop-in-troostfinale-saka-maakt-zijn-tweede~abeb09cc/)
-  > Frankrijk en Engeland staan in Miami tegenover elkaar in de troostfinale van het WK. Harry Kane en Jude Bellingham (allebei zes goals voor Engeland)...
 - [Megabod AS Roma op Crysencio Summerville afgewezen, Lars Veldwijk tekent contract in Oman](https://www.ad.nl/voetbal/megabod-as-roma-op-crysencio-summerville-afgewezen-lars-veldwijk-tekent-contract-in-oman~aeb81ef1/)
   > Het WK nadert zijn ontknoping, maar er is ook flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van...
 - [Smeekbede van 15-jarige Enzo Fernández nadat Lionel Messi in 2016 wilde stoppen, uitgerekend in New York](https://www.ad.nl/wk-voetbal/smeekbede-van-15-jarige-enzo-fernandez-nadat-lionel-messi-in-2016-wilde-stoppen-uitgerekend-in-new-york~a535bc37/)
