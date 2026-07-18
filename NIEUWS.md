@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-07-2026 om 08:49*
+*Laatst bijgewerkt: 18-07-2026 om 10:20*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Acht doden en 51 gewonden na Oekraïense aanvallen op magazijnen en oliedepot](https://nos.nl/l/2623474)
+  > Bij Oekraïense aanvallen met langeafstandsraketten in Rusland zijn vannacht acht doden gevallen en 51 mensen gewond geraakt. Bij de aanvallen werden...
+- [Nog twee mensen opgepakt na vaten met chemicaliën in huis Den Haag](https://nos.nl/l/2623470)
+  > De politie heeft nog twee verdachten opgepakt in verband met het drugslab dat gisteren werd gevonden in een woning in Den Haag. Het zijn een...
 - [Zoekactie naar vermiste opvarende gezonken duwboot Amsterdam](https://nos.nl/l/2623463)
   > De brandweer is op zoek naar de opvarende van een duwboot die vanochtend is gezonken in de Coenhaven in Amsterdam.
         Met onder meer een...
@@ -15,10 +19,6 @@
   > De enorme brand in de Noorse plaats Krokstadelva is grotendeels onder controle. De brandweer meldt dat wel dat nog de hele dag in de buurt geblust...
 - [Zeker een kwart gemeenten wil helemaal geen vuurwerk tijdens jaarwisseling](https://nos.nl/l/2623459)
   > Zeker een kwart van de gemeenten wil bij de komende jaarwisseling helemaal geen vuurwerk toestaan, blijkt uit een rondgang van het AD. Consumenten...
-- [Rook van bosbranden Canada wordt politiek: Trump dreigt met importheffingen](https://nos.nl/l/2623457)
-  > De Amerikaanse president Trump is misnoegd over de rook van Canadese natuurbranden die al dagenlang over de VS trekt. Hij dreigt in een onlinebericht...
-- [Duitse brandweer kan natuurbrand niet goed blussen door pantsergranaten in grond](https://nos.nl/l/2623453)
-  > In het noordoosten van Duitsland is de brandweer al dagenlang druk met een natuurbrand op een voormalig militair oefenterrein. Zo'n 400...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Oud-zanger Kensington: ‘De laatste show beëindigde ik met een schreeuw die jarenlang had vastgezeten’](https://www.ad.nl/show/oud-zanger-kensington-de-laatste-show-beeindigde-ik-met-een-schreeuw-die-jarenlang-had-vastgezeten~ab0dd276/)
-  > Zijn allerlaatste optreden met Kensington beëindigde zanger Eloi Youssef met een schreeuw die jarenlang had vastgezeten. Vier jaar na zijn afscheid...
-- [De tuin is kurkdroog, maar er komt regen aan: zo benut je dat optimaal](https://www.ad.nl/wonen/de-tuin-is-kurkdroog-maar-er-komt-regen-aan-zo-benut-je-dat-optimaal~a095da1e/)
-  > Deze maand viel er amper regen, en juist daardoor neemt uitgedroogde grond een bui slecht op. Wat kun je nu doen in je tuin? Tv-tuinman Lodewijk...
-- [Weghorst maakt vanmiddag eerste minuten voor FC Twente, Heerenveen en FC Utrecht winnen oefenduels](https://www.ad.nl/voetbal/weghorst-maakt-vanmiddag-eerste-minuten-voor-fc-twente-heerenveen-en-fc-utrecht-winnen-oefenduels~ab5071ea/)
-  > De eredivisieclubs zijn begonnen aan de voorbereiding op het nieuwe seizoen. In dit artikel lees je het programma en alle uitslagen per club. Onder...
-- [Vakantie Robert en Anja ‘verpest’ door Griekse politie: ‘Ik durf nergens meer een auto te huren’](https://www.ad.nl/buitenland/vakantie-robert-en-anja-verpest-door-griekse-politie-ik-durf-nergens-meer-een-auto-te-huren~a4195717/)
-  > Een vakantie op het Griekse eiland Samos is voor de Vlaamse toeristen Robert Staels (57) en Anja Sonck (53) uitgelopen op een nare confrontatie met...
-- [Thomas Tuchel heeft ‘nergens spijt van’, Spaanse bondscoach neemt zorgen over vedette weg](https://www.ad.nl/wk-voetbal/thomas-tuchel-heeft-nergens-spijt-van-spaanse-bondscoach-neemt-zorgen-over-vedette-weg~a2d5cab9/)
-  > Het WK voetbal in Canada, Mexico en de Verenigde Staten is zijn laatste weekend ingegaan. Via dit liveblog houden we je op de hoogte van al het...
+- [Let erop dat je pruimenbomen tegelijk rijp zijn: ‘wie in augustus in Spanje zit, heeft niets aan de Czar’](https://www.ad.nl/wonen/let-erop-dat-je-pruimenbomen-tegelijk-rijp-zijn-wie-in-augustus-in-spanje-zit-heeft-niets-aan-de-czar~a178f83b3/)
+  > Pruimenbomen zijn een prima soort om in de gemiddelde tuin neer te zetten. Sommigen hebben een ander ras nodig om tot rijping te komen, maar anderen...
+- [Houdt Max Verstappen goede gevoel van eerste dag vast tijdens laatste training op Spa?](https://www.ad.nl/formule-1/houdt-max-verstappen-goede-gevoel-van-eerste-dag-vast-tijdens-laatste-training-op-spa~a73e2d86/)
+  > Tijdens de derde en laatste training voor de GP van België staat alles in het teken van de juiste afstelling vinden voor de kwalificatie van later...
+- [Gehandicapte André vreest maandenlange brugsluiting, gelukkig is er tóch een oplossing](https://www.ad.nl/binnenland/gehandicapte-andre-vreest-maandenlange-brugsluiting-gelukkig-is-er-toch-een-oplossing~a598f49c/)
+  > „Ik denk dat ik mijn zoon in Papendrecht maanden niet zal gaan zien en mijn broer en zus misschien wel nooit meer.” Verslagen zit André de Bruin (56)...
+- [Oudste nog levende Tourrenner van Nederland (92): ‘Eigenlijk kijk ik alles nog’](https://www.ad.nl/tour-de-france/oudste-nog-levende-tourrenner-van-nederland-92-eigenlijk-kijk-ik-alles-nog~a22b51c3/)
+  > In een bescheiden kamertje in Valkenswaard zit een man op leeftijd te kijken naar de Tour de France. Hier zit niemand minder dan Piet Damen (92). Hij...
+- [Martin Garrix haalt U2-gitarist The Edge op podium van Tomorrowland: duo heeft verrassing voor feestgangers](https://www.ad.nl/show/martin-garrix-haalt-u2-gitarist-the-edge-op-podium-van-tomorrowland-duo-heeft-verrassing-voor-feestgangers~a06a3c93/)
+  > Net als vorig jaar mocht de Nederlandse dj Martin Garrix (30) de eerste avond van Tomorrowland afsluiten op de mainstage. Hij stelde het publiek niet...
 
 ### Meest gelezen
 
