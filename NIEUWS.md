@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-07-2026 om 21:57*
+*Laatst bijgewerkt: 19-07-2026 om 22:59*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Hongaarse premier Magyar gaat schaaklegende voordragen als nieuwe president](https://nos.nl/l/2623691)
+  > De Hongaarse premier Péter Magyar gaat schaaklegende Judit Polgár voordragen als president van het land. In een bericht op Facebook schrijft hij dat...
 - [Nederlander (59) vast voor dodelijke schietpartij bij nachtclub Antwerpen](https://nos.nl/l/2623672)
   > De Belgische politie heeft een 59-jarige Nederlander aangehouden voor een dodelijke schietpartij bij een nachtclub in Antwerpen. Het zou gaan om...
 - [Berlijn wil nazibunker slopen om woningen te bouwen, historici kritisch](https://nos.nl/l/2623662)
@@ -16,8 +18,6 @@
   > Een opvallend uitziende wasbeer uit de Amerikaanse stad Seattle is in korte tijd uitgegroeid tot een internetsensatie. Filmpjes van het dier, dat de...
 - [Scheepsbouwer Damen verliest mogelijk Belgische fregattenorder](https://nos.nl/l/2623643)
   > België overweegt een order voor twee oorlogsschepen bij de Nederlandse scheepsbouwer Damen in te trekken. Dat kan opnieuw een grote tegenslag...
-- [Overlevenden van scheepsramp Indonesië na dagen gevonden](https://nos.nl/l/2623636)
-  > In een zoektocht naar overlevenden drie dagen na het zinken van een passagiersschip in Indonesië, zijn een vrouw van 46 en haar zoon van 24 levend...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ferran Torres zet Spanje op meer dan verdiende voorsprong in verlenging tegen Argentinië](https://www.ad.nl/wk-voetbal/ferran-torres-zet-spanje-op-meer-dan-verdiende-voorsprong-in-verlenging-tegen-argentinie~af035bc3/)
-  > Spanje en Argentinië staan tegenover elkaar in de finale van het WK 2026. Vanuit het stadion in East Rutherford praat Sjoerd Mossou je bij, vanaf het...
-- [Argentinië letterlijk kansloos in WK-finale, John Heitinga heeft opvolger na rode kaart voor Argentijn](https://www.ad.nl/wk-voetbal/argentinie-letterlijk-kansloos-in-wk-finale-john-heitinga-heeft-opvolger-na-rode-kaart-voor-argentijn~ae02416e/)
-  > Een historisch onmachtig optreden van Argentinië in de WK-finale tegen Spanje. De WK-finalist schoot nul keer in reguliere speeltijd. Dat gebeurde...
-- [Van Veen verslaat angstgegner en stoot door naar tweede ronde, Wattimena uitgeschakeld](https://www.ad.nl/darts/van-veen-verslaat-angstgegner-en-stoot-door-naar-tweede-ronde-wattimena-uitgeschakeld~a5efa262/)
-  > Het belangrijkste toernooi na het WK darts is van start. Aan de World Matchplay (18 tot en met 26 juli), ook wel het ‘zomer-WK’ genoemd, doen acht...
-- [FIFA overtreedt eigen regels: zo lang duurde historische rust WK-finale door halftime-show](https://www.ad.nl/wk-voetbal/fifa-overtreedt-eigen-regels-zo-lang-duurde-historische-rust-wk-finale-door-halftime-show~ae5c1c048/)
-  > Voor het eerst is er een halftime-show tijdens het WK voetbal. Aanvankelijk zou de show met artiesten als Shakira, Madonna en Justin Bieber maar...
-- [Amerikaanse militair omgekomen in noorden van Irak](https://www.ad.nl/buitenland/amerikaanse-militair-omgekomen-in-noorden-van-irak~ac528ac3/)
-  > Een Amerikaanse militair is zaterdag in het noorden van Irak omgekomen bij een gecontroleerde vernietiging van niet-ontplofte munitie. Het...
+- [Donald Trump reikt WK-trofee uit aan Spanje en krijgt subtiel duwtje als hij in de schijnwerpers probeert te blijven](https://www.ad.nl/wk-voetbal/donald-trump-reikt-wk-trofee-uit-aan-spanje-en-krijgt-subtiel-duwtje-als-hij-in-de-schijnwerpers-probeert-te-blijven~a7dc381d/)
+  > De Amerikaanse president Donald Trump heeft de WK-trofee uitgereikt. Hij liep onder een luid fluitconcert het veld op van het New York New Jersey...
+- [Individuele prijzen voor Spaanse spelers, Fair Play Award voor Nederlands elftal](https://www.ad.nl/wk-voetbal/individuele-prijzen-voor-spaanse-spelers-fair-play-award-voor-nederlands-elftal~a4683520/)
+  > Na de WK-finale tussen Spanje en Argentinië werden ook de individuele prijzen van het WK 2026 uitgereikt.
+- [Hongaarse premier wil ​​schaaklegende Judit Polgár als nieuwe president](https://www.ad.nl/buitenland/hongaarse-premier-wil-schaaklegende-judit-polgar-als-nieuwe-president~a1b7b777/)
+  > De Hongaarse premier Peter Magyar heeft schaaklegende Judit Polgár voorgedragen als de volgende president van Hongarije. Volgens hem heeft het land...
+- [Vlam in de pan na afloop: Argentijnen vliegen Spaanse spelers in de haren](https://www.ad.nl/wk-voetbal/vlam-in-de-pan-na-afloop-argentijnen-vliegen-spaanse-spelers-in-de-haren~aa2dea6c/)
+  > Leandro Paredes heeft zich na het fluitsignaal van de WK-finale ernstig misdragen. De Argentijn greep Spanjaard Eric Garcia bij zijn nek en duwde...
+- [Uniek! Kylian Mbappé is voor tweede keer WK-topscorer en ook all-time topschutter](https://www.ad.nl/wk-voetbal/uniek-kylian-mbappe-is-voor-tweede-keer-wk-topscorer-en-ook-all-time-topschutter~ad0e6ff9/)
+  > De strijd om de topscorerstitel heeft zijn climax bereikt. De tien treffers van Kylian Mbappé bleken genoeg. De Fransman is de eerste speler die op...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Doorbreek impasse energietransitie](https://fd.nl/opinie/1605002/doorbreek-impasse-energietransitie)
-  > Het uitblijven van de bouw van een groene waterstoffabriek op het Limburgse chemiepark Chemelot is tekenend voor het kip-eiprobleem dat de...
-- [België dreigt order bij scheepsbouwer Damen op te zeggen](https://fd.nl/bedrijfsleven/1605178/belgie-dreigt-order-bij-scheepsbouwer-damen-op-te-zeggen)
-  > Het zou de tweede klap zijn voor de scheepsbouwer uit Gorinchem in korte tijd. In juni trok Duitsland een order in, eveneens vanwege te lange...
-- [De Yankees zijn met miljarden van Apollo de volgende sportclub die Wall Street-geld krijgt](https://fd.nl/financiele-markten/1605000/de-yankees-zijn-met-miljarden-van-apollo-de-volgende-sportclub-die-wall-street-geld-krijgt)
-  > Honkbalclub The New York Yankees staat op het punt een miljardeninvestering te krijgen van investeringsmaatschappij Apollo. Het tekent een nieuwe...
-- [Loyens & Loeff wil meer ‘sticky’ cliënten en minder leunen op deals en private equity](https://fd.nl/bedrijfsleven/1605006/loyens-loeff-wil-meer-sticky-clienten-en-minder-leunen-op-deals-en-private-equity)
-  > Managing partner Harmen Holtrop verzet de bakens bij het grootste advocatenkantoor van Nederland. Hij zet in op het aantrekken van meer...
-- [Grote Russische raketaanval op Kyiv](https://fd.nl/economie/1605177/grote-russische-raketaanval-op-kyiv)
-  > Ballistische raketten zijn vanwege hun hoge snelheid lastig en kostbaar om te onderscheppen.
+- [Begroten op groei](https://fd.nl/opinie/1605166/begroten-op-groei)
+  > Wie investeringen afknijpt om nu de begroting op orde te krijgen, ondermijnt de belastinginkomsten van later.
+- [Onlinesuper Picnic eindigt jaar met verlies door forse investeringen](https://fd.nl/bedrijfsleven/1605163/onlinesuper-picnic-eindigt-jaar-met-verlies-door-forse-investeringen)
+  > Tien jaar na de oprichting groeit onlinesupermarkt Picnic nog steeds hard. Maar onder de streep rest nog altijd een nettoverlies, vorig jaar van €272...
+- [COA eist bijna €200 mln van fraudeverdachte en ex-zakenpartner René Derksen](https://fd.nl/bedrijfsleven/1604341/coa-eist-bijna-200-mln-van-fraudeverdachte-en-ex-zakenpartner-rene-derksen)
+  > Het COA heeft beslag gelegd op de woning van Derksen, die al twee jaar verdachte is in een fraudezaak over de asielopvang die hij regelde. De claim...
+- [Ongelijke zorg begint nog steeds in de wieg](https://fd.nl/opinie/1603582/ongelijke-zorg-begint-nog-steeds-in-de-wieg)
+  > In economisch zwakkere wijken is de babysterfte nog altijd twee keer zo hoog als in de rest van Nederland. Baby’s  worden daar vaker te vroeg geboren...
+- [Personalia maandag 20 juli](https://fd.nl/bedrijfsleven/1605063/personalia-maandag-20-juli)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
