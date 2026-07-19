@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-07-2026 om 14:59*
+*Laatst bijgewerkt: 19-07-2026 om 16:03*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Scheepsbouwer Damen verliest mogelijk Belgische fregattenorder](https://nos.nl/l/2623643)
+  > België overweegt een order voor twee oorlogsschepen bij de Nederlandse scheepsbouwer Damen in te trekken. Dat kan opnieuw een grote tegenslag...
 - [Overlevenden van scheepsramp Indonesië na dagen gevonden](https://nos.nl/l/2623636)
   > In een zoektocht naar overlevenden drie dagen na het zinken van een passagiersschip in Indonesië, zijn een vrouw van 46 en haar zoon van 24 levend...
 - [Israëlische minister kondigt plannen aan voor nieuwe nederzettingen in Gaza](https://nos.nl/l/2623634)
@@ -16,8 +18,6 @@
   > President Trump horen we al een tijdje nauwelijks meer over de invoerheffingen. Desondanks dreigt er weer een nieuwe reeks te komen: volgende week...
 - [Iran executeert twee mannen die deelnamen aan protestgolf tegen regime](https://nos.nl/l/2623625)
   > In Iran zijn twee mannen opgehangen die in januari meededen aan de massaprotesten tegen het regime. Het tweetal is veroordeeld en geëxecuteerd wegens...
-- [Auto's weg, partytent op: Tilburgers vieren vakantie in eigen straat](https://nos.nl/l/2623624)
-  > Een zwembad, partytenten, tig zitplekken en zelfs een bar: een straat in Tilburg is voor een maand lang omgetoverd tot vakantieoord. Auto's zijn de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Tour de France | Serieuze problemen voor Vingegaard: kopman hard onderuit en stapt niet meer op](https://www.ad.nl/tour-de-france/live-tour-de-france-serieuze-problemen-voor-vingegaard-kopman-hard-onderuit-en-stapt-niet-meer-op~a60d817e/)
-  > De Tour de France gaat de beslissende fase in. Vandaag de vijftiende etappe, een rit door de Jura met aankomst bergop. De finish wordt rond 17.40 uur...
-- [Stand Formule 1 | Kimi Antonelli profiteert van problemen bij pechvogel George Russell en loopt flink uit](https://www.ad.nl/formule-1/stand-formule-1-kimi-antonelli-profiteert-van-problemen-bij-pechvogel-george-russell-en-loopt-flink-uit~a8a75660/)
-  > Kimi Antonelli heeft weer een flinke slag geslagen tijdens het raceweekend in België. Na een aantal weekenden zonder zege, won de Italiaan op het...
-- [Derde podiumplaats van het seizoen voor Max Verstappen, Kimi Antonelli slaat terug met zege op Spa](https://www.ad.nl/formule-1/derde-podiumplaats-van-het-seizoen-voor-max-verstappen-kimi-antonelli-slaat-terug-met-zege-op-spa~a54003f4/)
-  > Max Verstappen (P3) heeft zijn derde podiumplaats van het jaar gepakt op zijn geliefde circuit van Spa-Francorchamps. Na een korte droogte van drie...
+- [Kinderen gooien watermeloen van brug op bootje en raken jonge vrouw, die naar ziekenhuis moet: ‘Nog steeds hoofdpijn’](https://www.ad.nl/binnenland/kinderen-gooien-watermeloen-van-brug-op-bootje-en-raken-jonge-vrouw-die-naar-ziekenhuis-moet-nog-steeds-hoofdpijn~a2616236/)
+  > De overlast van jongeren die sloepvaarders in Delft het leven zuur maken, loopt de spuigaten uit, stelt sloepverhuurder Luck Nelissen. Het nieuwste...
+- [Gestolen, verstopt voor nazi's en omgesmolten: het bijzondere verhaal achter de WK-bokaal](https://www.ad.nl/wk-voetbal/gestolen-verstopt-voor-nazi-s-en-omgesmolten-het-bijzondere-verhaal-achter-de-wk-bokaal~aad23c9d/)
+  > Donald Trump reikt vanavond de WK-bokaal uit aan de kersverse wereldkampioen, Spanje of Argentinië. De felbegeerde prijs heeft een roerig leven...
+- [‘Moeilijke’ natuurbrand ten noorden van Madrid, enkele zomerkampen ontruimd](https://www.ad.nl/buitenland/moeilijke-natuurbrand-ten-noorden-van-madrid-enkele-zomerkampen-ontruimd~a4195717/)
+  > Een grote, ‘moeilijke’, natuurbrand heeft ten noorden van Madrid al meer dan 13.000 hectare verwoest. De brand brak donderdag uit in de provincie...
+- [Klassementen | Pogacar verliest grootste ‘concurrent’ in strijd om geel: dit zijn nu de verschillen](https://www.ad.nl/tour-de-france/klassementen-uitslagen-tour-de-france-2026~a537c687/)
+  > De Tour de France is in volle gang. Op zondag 26 juli is de finish in Parijs. In totaal doen zeventien Nederlanders mee, het hoogste aantal sinds...
 - [Fans Argentinië en Spanje nemen straten New York over, test hier jouw kennis over de finalisten](https://www.ad.nl/wk-voetbal/fans-argentinie-en-spanje-nemen-straten-new-york-over-test-hier-jouw-kennis-over-de-finalisten~af035bc3/)
   > Vanavond is de 104de en laatste wedstrijd van het WK 2026. Europees kampioen Spanje en titelverdediger Argentinië strijden vanaf 21.00 uur om de...
-- [Verbroken relatie is verdrietig, maar is nog geen trauma: ‘Pas op dat we niet alles traumatisch noemen’](https://www.ad.nl/gezond/verbroken-relatie-is-verdrietig-maar-is-nog-geen-trauma-pas-op-dat-we-niet-alles-traumatisch-noemen~a615c568/)
-  > Een oorlogsveteraan loopt kans op PTSS. Verwaarlozing in je jeugd kan zorgen voor een jeugdtrauma. Maar als je valt in de badkamer en een tand...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Loyens & Loeff wil meer ‘sticky’ cliënten en minder leunen op deals en private equity](https://fd.nl/bedrijfsleven/1605006/loyens-loeff-wil-meer-sticky-clienten-en-minder-leunen-op-deals-en-private-equity)
+  > Managing partner Harmen Holtrop verzet de bakens bij het grootste advocatenkantoor van Nederland. Hij zet in op het aantrekken van meer...
 - [Grote Russische raketaanval op Kyiv](https://fd.nl/economie/1605177/grote-russische-raketaanval-op-kyiv)
   > Ballistische raketten zijn vanwege hun hoge snelheid lastig en kostbaar om te onderscheppen.
 - [Chipaandelen schommelen na sterke resultaten: heeft de AI-hausse haar hoogtepunt bereikt?](https://fd.nl/financiele-markten/1605010/chipaandelen-schommelen-na-sterke-resultaten-heeft-de-ai-hausse-haar-hoogtepunt-bereikt)
@@ -54,8 +56,6 @@
   > De sluiting van de Merwedebrug voor zwaar vrachtvervoer treft dagelijks 18.000 vrachtwagens. Volgens vervoerders legt de maatregel een falend...
 - [‘AI-bedrijf Moonshot onderzoekt beursgang’](https://fd.nl/tech-en-innovatie/1605175/ai-bedrijf-moonshot-onderzoekt-beursgang)
   > Het nieuwste model van het bedrijf zou de beste modellen van de Amerikaanse marktleiders OpenAI en Anthropic op de hielen zitten.
-- [Eneco-topman: ‘Zet meer datacenters neer om economische groei en vraag naar stroom te stimuleren’](https://fd.nl/bedrijfsleven/1603491/eneco-topman-zet-meer-datacenters-neer-om-economische-groei-en-vraag-naar-stroom-te-stimuleren)
-  > De gebrekkige vraag naar groene stroom is een van de grootste uitdagingen om tot grote nieuwe windparken te komen.
 
 ### Meest gelezen
 
