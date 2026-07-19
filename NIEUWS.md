@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-07-2026 om 06:33*
+*Laatst bijgewerkt: 19-07-2026 om 09:06*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Gewonden door zware hagelbui tijdens concert Bad Bunny in Milaan](https://nos.nl/l/2623586)
+  > Een concert van de Puerto Ricaanse zanger Bad Bunny in Milaan is gisteravond afgebroken, omdat er zware hagelbuien over het terrein trokken. Op de...
+- [Spookrijder onder invloed veroorzaakt botsing op de A1 bij Naarden](https://nos.nl/l/2623584)
+  > Een spookrijder onder invloed is vanmorgen op de A1 op een taxi gebotst. Niemand raakte bij het ongeval gewond. De bestuurder van de spookrijdende...
+- [Cuba laat vastgehouden kunstenaar in Amerikaanse ballingschap gaan](https://nos.nl/l/2623581)
+  > Cuba heeft de opgesloten dissident Luis Manuel Otero Alcántara in ballingschap naar de VS laten gaan. De 38-jarige kunstenaar is aangekomen in Miami,...
 - [Rusland voert enorme raketaanval uit op Kyiv, dode en gewonden](https://nos.nl/l/2623580)
   > Het Russische leger heeft een grootschalige luchtaanval uitgevoerd op onder meer de Oekraïense hoofdstad Kyiv. Volgens de Oekraïense autoriteiten...
 - [Meer jonge wandelaars bij Nijmeegse Vierdaagse: 'Past bij bucketlistgedrag'](https://nos.nl/l/2623579)
   > Wandelen een sport voor oude mensen? Dat idee is inmiddels wel achterhaald. De laatste jaren trekken ook twintigers regelmatig de wandelschoenen aan....
-- [Wekdienst 19/7: WK-finale Spanje-Argentinië • EU-verbod op vernietiging onverkochte kleding](https://nos.nl/l/2623568)
-  > Goedemorgen! Spanje en Argentinië staan tegenover elkaar in de WK-finale die wordt gespeeld in New York, en het EU-verbod op de vernietiging van...
-- [VS voert aanvallen uit op Iran na dood Amerikaanse militairen](https://nos.nl/l/2623567)
-  > De VS heeft nieuwe luchtaanvallen uitgevoerd op Iran om het land "snel te straffen" na een aanval op een militaire basis in Jordanië. Daarbij kwamen...
-- [Tate-broers aangehouden in Miami, nieuwe aanklachten van Britse OM](https://nos.nl/l/2623566)
-  > De broers Andrew en Tristan Tate zijn in Miami gearresteerd door de Amerikaanse autoriteiten. Het Britse Openbaar Ministerie wil de omstreden...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Op deze camping slaap je midden in de weilanden in een melkbus: ‘Wat is dit?’](https://www.ad.nl/binnenland/op-deze-camping-slaap-je-midden-in-de-weilanden-in-een-melkbus-wat-is-dit~aa727281/)
-  > Slapen omringd door weilanden, met uitzicht op de natuur en dat in een gigantische melkbus. Alles ademt landbouwgeschiedenis: van oude foto’s van de...
-- [Etappe 15 | Aankomst bergop in de Jura: zo laat is de start en de verwachte finish op pittige slotklim](https://www.ad.nl/tour-de-france/etappe-15-aankomst-bergop-in-de-jura-zo-laat-is-de-start-en-de-verwachte-finish-op-pittige-slotklim~a60d817e/)
-  > De Tour de France gaat de beslissende fase in. Zaterdag is de vijftiende etappe, een rit door de Jura met aankomst bergop. Lees hier alles over het...
-- [Nederlander (45) steekt zomaar twintiger neer op station Zwitserland en blijft hem achtervolgen](https://www.ad.nl/buitenland/nederlander-45-steekt-zomaar-twintiger-neer-op-station-zwitserland-en-blijft-hem-achtervolgen~a9da9e80/)
-  > Een 45-jarige Nederlander is vrijdagmiddag opgepakt op een treinstation in het Zwitserse Basel. Hij zou op het perron ‘vanuit het niets’ een...
-- [Thomas Tuchel ziet Engeland kloof met wereldtop dichten: ‘We komen steeds meer in de buurt’](https://www.ad.nl/wk-voetbal/thomas-tuchel-ziet-engeland-kloof-met-wereldtop-dichten-we-komen-steeds-meer-in-de-buurt~aede21ee/)
-  > Thomas Tuchel ziet dat Engeland het verschil met de beste landenploegen van de wereld steeds kleiner maakt. „Ik denk dat we steeds meer in de buurt...
-- [Dit zijn 5 populaire Instagram-hotspots in Europa: ‘Hier zijn meer souvenirshops dan gewone winkels’](https://www.ad.nl/buitenland/dit-zijn-5-populaire-instagram-hotspots-in-europa-hier-zijn-meer-souvenirshops-dan-gewone-winkels~a4195717/)
-  > Op sociale media lijken ze onweerstaanbaar: sprookjesdorpen, spectaculaire kliffen en charmante straatjes die smeken om een foto. Maar achter die...
+- [Nu zijn moeder 92 is, moet Harold zorgen dat zij genoeg eet: ‘De buurvrouw voert haar bij met toastjes’](https://www.ad.nl/mezza/nu-zijn-moeder-92-is-moet-harold-zorgen-dat-zij-genoeg-eet-de-buurvrouw-voert-haar-bij-met-toastjes~a4e9a9c2/)
+  > Eten en het bereiden daarvan waren nooit de hobby van de moeder van Mezza’s wijn- en eetschrijver Harold Hamersma. Nu zij 92 is, moet hij zorgen dat...
+- [Site Facebook ligt plat, ook Instagram kampt met wereldwijde storing](https://www.ad.nl/tech/site-facebook-ligt-plat-ook-instagram-kampt-met-wereldwijde-storing~a29186b4/)
+  > Facebook en Instagram kampen met een grote, wereldwijde storing. De website van Facebook ligt momenteel plat, al werkt de app vooralsnog...
+- [Argentinië en Spanje strijden om de wereldtitel, bekijk hier de vermoedelijke opstellingen](https://www.ad.nl/wk-voetbal/argentinie-en-spanje-strijden-om-de-wereldtitel-bekijk-hier-de-vermoedelijke-opstellingen~af035bc3/)
+  > Vanavond is de 104de en laatste wedstrijd van het WK 2026. Europees kampioen Spanje en titelverdediger Argentinië strijden vanaf 21.00 uur om de...
+- [Laura Smulders pakt brons op WK BMX, finaleronde geschrapt vanwege harde wind](https://www.ad.nl/andere-sporten/laura-smulders-pakt-brons-op-wk-bmx-finaleronde-geschrapt-vanwege-harde-wind~a70e26ce/)
+  > De finalerondes bij de wereldkampioenschappen BMX in Brisbane zijn afgelast. De organisatie stelde vanwege de harde wind de start eerst met meerdere...
+- [Dit was het WK van Messi, Trump, Infantino en Yamal, maar toch vooral van David Beckham](https://www.ad.nl/voetbal/dit-was-het-wk-van-messi-trump-infantino-en-yamal-maar-toch-vooral-van-david-beckham~a48bdec9/)
+  > AD Sportwereld-columnist Sjoerd Mossou zag David Beckham en zijn familie werkelijk overal op dit WK, opduikend op haast ieder denkbaar moment. „Het...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Voorspellingsplatforms spinnen garen bij WK, online gokbedrijven hebben het nakijken](https://fd.nl/bedrijfsleven/1605161/voorspellingsplatforms-spinnen-garen-bij-wk-online-gokbedrijven-hebben-het-nakijken)
+  > Kalshi en Polymarket zetten de gokwereld op zijn kop, maar volgens de bedrijven zelf gaat het om derivatenhandel.
+- [AI wacht niet op curriculumherziening in het onderwijs](https://fd.nl/opinie/1604492/ai-wacht-niet-op-curriculumherziening-in-het-onderwijs)
+  > Generatieve AI verandert niet in de eerste plaats het werk van leerlingen, maar het werk van docenten. Wie dat niet ziet, voert de verkeerde...
 - [Slechte staat van bruggen en wegen was politieke keus](https://fd.nl/opinie/1604777/slechte-staat-van-bruggen-en-wegen-was-politieke-keus)
   > De komende jaren zijn miljarden nodig om kapotte bruggen, wegen en het spoor te herstellen. Veelal krijgen de begrotingsregels de schuld van het...
 - [De Russische ruimtevaart laat zich moeilijk uit het moeras trekken](https://fd.nl/bedrijfsleven/1602664/de-russische-ruimtevaart-laat-zich-moeilijk-uit-het-moeras-trekken)
   > Rusland wil zijn eigen satellietprogramma opstarten naar het voorbeeld van Starlink, Elon Musks satellietinternetdienst. Maar de Russische pogingen...
 - [Directeur drinkwaterbedrijf: er dreigt een tekort aan schoon drinkwater](https://fd.nl/bedrijfsleven/1600871/directeur-drinkwaterbedrijf-er-dreigt-een-tekort-aan-schoon-drinkwater)
   > Publieke drinkwaterbedrijven garanderen dat de samenleving wordt voorzien van de fundamentele behoefte aan schoon drinkwater. Maar deze garantie is...
-- [Luisterverhaal: Na tien jaar had eenzame Michel zo’n €4,2 mln weggesluisd](https://fd.nl/samenleving/1603234/luisterverhaal-na-tien-jaar-had-eenzame-michel-zon-4-2mlnweggesluisd)
-  > Deze week hoor je over de rechtszaak tegen ‘eenzame Michel’ die miljoenen wegsluisde om erbij te horen.
-- [Merwedebrug tijdelijk dicht voor vrachtverkeer vanwege ‘constructieve veiligheid’](https://fd.nl/samenleving/1605059/merwedebrug-tijdelijk-dicht-voor-vrachtverkeer-vanwege-constructieve-veiligheid)
-  > De Merwedebrug bij Gorinchem gaat voorlopig dicht voor vrachtverkeer. De brug bleek na inspectie onvoldoende veilig.
 
 ### Meest gelezen
 
