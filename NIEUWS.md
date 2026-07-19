@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-07-2026 om 13:25*
+*Laatst bijgewerkt: 19-07-2026 om 14:59*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Overlevenden van scheepsramp Indonesië na dagen gevonden](https://nos.nl/l/2623636)
+  > In een zoektocht naar overlevenden drie dagen na het zinken van een passagiersschip in Indonesië, zijn een vrouw van 46 en haar zoon van 24 levend...
+- [Israëlische minister kondigt plannen aan voor nieuwe nederzettingen in Gaza](https://nos.nl/l/2623634)
+  > De Israëlische minister van Defensie Katz stond deze week te midden van de verwoesting in Gaza. "Wat voor gevoel geeft dat u?" vroeg een verslaggever...
+- [Amerikaanse heffingenchaos dreigt weer los te barsten](https://nos.nl/l/2623628)
+  > President Trump horen we al een tijdje nauwelijks meer over de invoerheffingen. Desondanks dreigt er weer een nieuwe reeks te komen: volgende week...
 - [Iran executeert twee mannen die deelnamen aan protestgolf tegen regime](https://nos.nl/l/2623625)
   > In Iran zijn twee mannen opgehangen die in januari meededen aan de massaprotesten tegen het regime. Het tweetal is veroordeeld en geëxecuteerd wegens...
 - [Auto's weg, partytent op: Tilburgers vieren vakantie in eigen straat](https://nos.nl/l/2623624)
   > Een zwembad, partytenten, tig zitplekken en zelfs een bar: een straat in Tilburg is voor een maand lang omgetoverd tot vakantieoord. Auto's zijn de...
-- [Noorwegen opent 15 jaar na aanslagen nationaal monument](https://nos.nl/l/2623612)
-  > In de Noorse hoofdstad Oslo wordt vandaag het Nationale 22 juli-monument geopend ter nagedachtenis aan de slachtoffers van de aanslagen die de...
-- [Ontsnapte wallaby loopt rond in Middenmeer, politie zoekt eigenaar](https://nos.nl/l/2623610)
-  > De politie in Noord-Holland is op zoek naar de eigenaar van een ontsnapte wallaby. Het dier loopt los rond in Middenmeer, maar de politie weet niet...
-- [Twee jaar na arrestatie drugsbaas 'El Mayo' is relatie VS-Mexico tot nulpunt gedaald](https://nos.nl/l/2623594)
-  > Twee jaar na de geruchtmakende arrestatie van de Mexicaanse kartelbaas Ismael 'El Mayo' Zambada spreekt de rechter in New York maandag zijn vonnis...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Grote kopgroep met één Nederlander krijgt ruimte in zware bergetappe](https://www.ad.nl/tour-de-france/grote-kopgroep-met-een-nederlander-krijgt-ruimte-in-zware-bergetappe~a60d817e/)
+- [LIVE Tour de France | Serieuze problemen voor Vingegaard: kopman hard onderuit en stapt niet meer op](https://www.ad.nl/tour-de-france/live-tour-de-france-serieuze-problemen-voor-vingegaard-kopman-hard-onderuit-en-stapt-niet-meer-op~a60d817e/)
   > De Tour de France gaat de beslissende fase in. Vandaag de vijftiende etappe, een rit door de Jura met aankomst bergop. De finish wordt rond 17.40 uur...
-- [Race hervat na uitvalbeurt George Russell, Max Verstappen weer terug op tweede plek](https://www.ad.nl/formule-1/race-hervat-na-uitvalbeurt-george-russell-max-verstappen-weer-terug-op-tweede-plek~a54003f4/)
-  > Vanaf de tweede plek hoopt Max Verstappen op zijn favoriete circuit een goed resultaat te boeken. Kan de Red Bull Racing-coureur het gevecht aangaan...
-- [Huurders leven in wanhoop door poep, intimidatie en lawaai: 'We zitten kokhalzend op het balkon’](https://www.ad.nl/binnenland/huurders-leven-in-wanhoop-door-poep-intimidatie-en-lawaai-we-zitten-kokhalzend-op-het-balkon~a2ef9d5c/)
-  > Huurders in een socialewoningbouwcomplex aan de Paladijnenweg in Amersfoort zijn de wanhoop nabij door de misdragingen van een handvol medebewoners....
-- [Arrestatie verrast Tate-broers én Amerika volledig: ‘Je zag het aan de blik in hun ogen’](https://www.ad.nl/nieuws/arrestatie-verrast-tate-broers-en-amerika-volledig-je-zag-het-aan-de-blik-in-hun-ogen~ac9ccb85/)
-  > De omstreden influencers Andrew en Tristan Tate dachten in Amerika te kunnen ontkomen aan vervolging voor verkrachting en mensenhandel. Maar...
-- [Van scrollen naar moordpuzzels en ‘cozy’ kleurboeken: dit is de nieuwste detoxhype van gen Z](https://www.ad.nl/binnenland/van-scrollen-naar-moordpuzzels-en-cozy-kleurboeken-dit-is-de-nieuwste-detoxhype-van-gen-z~a8aac4eb/)
-  > TikTok staat er vol mee en boekwinkels blijven ze maar bijbestellen: puzzel- en kleurboeken zijn deze zomer dé hype onder jongeren. Van de...
+- [Stand Formule 1 | Kimi Antonelli profiteert van problemen bij pechvogel George Russell en loopt flink uit](https://www.ad.nl/formule-1/stand-formule-1-kimi-antonelli-profiteert-van-problemen-bij-pechvogel-george-russell-en-loopt-flink-uit~a8a75660/)
+  > Kimi Antonelli heeft weer een flinke slag geslagen tijdens het raceweekend in België. Na een aantal weekenden zonder zege, won de Italiaan op het...
+- [Derde podiumplaats van het seizoen voor Max Verstappen, Kimi Antonelli slaat terug met zege op Spa](https://www.ad.nl/formule-1/derde-podiumplaats-van-het-seizoen-voor-max-verstappen-kimi-antonelli-slaat-terug-met-zege-op-spa~a54003f4/)
+  > Max Verstappen (P3) heeft zijn derde podiumplaats van het jaar gepakt op zijn geliefde circuit van Spa-Francorchamps. Na een korte droogte van drie...
+- [Fans Argentinië en Spanje nemen straten New York over, test hier jouw kennis over de finalisten](https://www.ad.nl/wk-voetbal/fans-argentinie-en-spanje-nemen-straten-new-york-over-test-hier-jouw-kennis-over-de-finalisten~af035bc3/)
+  > Vanavond is de 104de en laatste wedstrijd van het WK 2026. Europees kampioen Spanje en titelverdediger Argentinië strijden vanaf 21.00 uur om de...
+- [Verbroken relatie is verdrietig, maar is nog geen trauma: ‘Pas op dat we niet alles traumatisch noemen’](https://www.ad.nl/gezond/verbroken-relatie-is-verdrietig-maar-is-nog-geen-trauma-pas-op-dat-we-niet-alles-traumatisch-noemen~a615c568/)
+  > Een oorlogsveteraan loopt kans op PTSS. Verwaarlozing in je jeugd kan zorgen voor een jeugdtrauma. Maar als je valt in de badkamer en een tand...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Grote Russische raketaanval op Kyiv](https://fd.nl/economie/1605177/grote-russische-raketaanval-op-kyiv)
+  > Ballistische raketten zijn vanwege hun hoge snelheid lastig en kostbaar om te onderscheppen.
 - [Chipaandelen schommelen na sterke resultaten: heeft de AI-hausse haar hoogtepunt bereikt?](https://fd.nl/financiele-markten/1605010/chipaandelen-schommelen-na-sterke-resultaten-heeft-de-ai-hausse-haar-hoogtepunt-bereikt)
   > Na maanden van vrijwel onafgebroken koersstijgingen beginnen chipbedrijven te wankelen op de beurs. Dit kan duiden op een zeepbel, al spreken sommige...
 - [Spoedsluiting van Merwedebrug jaagt kosten voor vervoerders omhoog](https://fd.nl/bedrijfsleven/1605176/spoedsluiting-van-merwedebrug-jaagt-kosten-voor-vervoerders-omhoog)
@@ -54,8 +56,6 @@
   > Het nieuwste model van het bedrijf zou de beste modellen van de Amerikaanse marktleiders OpenAI en Anthropic op de hielen zitten.
 - [Eneco-topman: ‘Zet meer datacenters neer om economische groei en vraag naar stroom te stimuleren’](https://fd.nl/bedrijfsleven/1603491/eneco-topman-zet-meer-datacenters-neer-om-economische-groei-en-vraag-naar-stroom-te-stimuleren)
   > De gebrekkige vraag naar groene stroom is een van de grootste uitdagingen om tot grote nieuwe windparken te komen.
-- [Brussel dwingt overheden bij inkoop minder op prijs te sturen](https://fd.nl/politiek/1605012/brussel-dwingt-overheden-bij-inkoop-minder-op-prijs-te-sturen)
-  > Veiligheid, duurzaamheid en autonomie moeten zwaarder meewegen. In het voorstel staat ook dat elk land een organisatie krijgt die toezicht houdt op...
 
 ### Meest gelezen
 
