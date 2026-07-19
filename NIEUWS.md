@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-07-2026 om 19:19*
+*Laatst bijgewerkt: 19-07-2026 om 20:54*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Oekraïne meldt doden door Russische raketaanval op Turks vrachtschip](https://www.ad.nl/buitenland/oekraine-meldt-doden-door-russische-raketaanval-op-turks-vrachtschip~adfb97be/)
-  > Volgens de Oekraïense marine zijn zondag vijf bemanningsleden van een Turks vrachtschip omgekomen door Russische raketaanvallen. Het vrachtschip zou...
-- [Finale tussen Spanje en Argentinië begonnen, Martínez stopt schot van Lamine Yamal](https://www.ad.nl/wk-voetbal/finale-tussen-spanje-en-argentinie-begonnen-martinez-stopt-schot-van-lamine-yamal~af035bc3/)
-  > Spanje en Argentinië staan om 21.00 uur tegenover elkaar in de WK-finale. Vanuit het stadion in East Rutherford praat Sjoerd Mossou je bij, vanaf het...
-- [Donald Trump achter kogelwerend glas aanwezig bij WK-finale, Amerikaanse president reikt vanavond trofee uit](https://www.ad.nl/wk-voetbal/donald-trump-achter-kogelwerend-glas-aanwezig-bij-wk-finale-amerikaanse-president-reikt-vanavond-trofee-uit~a7dc381d/)
-  > De Amerikaanse president Donald Trump is aangekomen in het New York New Jersey Stadium waar zondag de WK-finale wordt gespeeld. Trump reikt de trofee...
-- [Niels Laros ziet seizoen in rook opgaan door achillespeesblessure](https://www.ad.nl/andere-sporten/niels-laros-ziet-seizoen-in-rook-opgaan-door-achillespeesblessure~afb2b06a9/)
-  > Atleet Niels Laros komt dit seizoen niet meer in actie. De 21-jarige Oosterhouter heeft opnieuw last gekregen van zijn achillespees, meldt hij op...
-- [Formule 1-podcast | ‘Bij Red Bull zijn ze tegenwoordig tevreden met een normaal weekend’](https://www.ad.nl/formule-1/formule-1-podcast-bij-red-bull-zijn-ze-tegenwoordig-tevreden-met-een-normaal-weekend~a222de3b/)
-  > Max Verstappen stond weer op het podium. Niet op het hoogste plekjes, want dat is dit seizoen voor een jonge Italiaan, maar derde. En daarmee keerde...
+- [FIFA overtreedt eigen regels: zo lang duurde historische rust WK-finale door halftime-show](https://www.ad.nl/wk-voetbal/fifa-overtreedt-eigen-regels-zo-lang-duurde-historische-rust-wk-finale-door-halftime-show~ae5c1c048/)
+  > Voor het eerst is er een halftime-show tijdens het WK voetbal. Aanvankelijk zou de show met artiesten als Shakira, Madonna en Justin Bieber maar...
+- [LIVE WK voetbal | Supersub Merino erin bij Spanje, Argentijnse bondscoach Scaloni al door zijn wissels heen](https://www.ad.nl/wk-voetbal/live-wk-voetbal-supersub-merino-erin-bij-spanje-argentijnse-bondscoach-scaloni-al-door-zijn-wissels-heen~af035bc3/)
+  > Spanje en Argentinië staan tegenover elkaar in de finale van het WK 2026. Vanuit het stadion in East Rutherford praat Sjoerd Mossou je bij, vanaf het...
+- [Amerikaanse militair omgekomen in noorden van Irak](https://www.ad.nl/buitenland/amerikaanse-militair-omgekomen-in-noorden-van-irak~ac528ac3/)
+  > Een Amerikaanse militair is zaterdag in het noorden van Irak omgekomen bij een gecontroleerde vernietiging van niet-ontplofte munitie. Het...
+- [Podcast In Het Wiel | ‘Visma en Vingegaard waren in elk geval nog strijdbaar’](https://www.ad.nl/tour-de-france/podcast-in-het-wiel-visma-en-vingegaard-waren-in-elk-geval-nog-strijdbaar~a5ea502e/)
+  > Remco Evenepoel won de rit, maar de Tour verloor Jonas Vingegaard. Net op de dag dat Visma de koers in handen nam, kwam de Deense kopman zwaar ten...
+- [Historisch machteloze start van WK-finale, Lionel Messi raakte in eerste kwartier alleen de bal bij... aftrap](https://www.ad.nl/wk-voetbal/historisch-machteloze-start-van-wk-finale-lionel-messi-raakte-in-eerste-kwartier-alleen-de-bal-bij-aftrap~ae02416e/)
+  > Een historisch onmachtige start van de WK-finale voor Argentinië en Spanje. De WK-finalisten losten voor rust maar drie schoten. Dat is nog nooit zo...
 
 ### Meest gelezen
 
