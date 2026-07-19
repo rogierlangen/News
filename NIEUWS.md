@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-07-2026 om 23:57*
+*Laatst bijgewerkt: 19-07-2026 om 03:39*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [VS voert nieuwe aanvallen uit op Iran na dood Amerikaanse militairen](https://nos.nl/l/2623567)
+  > De VS heeft nieuwe luchtaanvallen uitgevoerd op Iran om het land "snel te straffen" na een aanval op een militaire basis in Jordanië. Daarbij kwamen...
+- [Tate-broers aangehouden in Miami, nieuwe aanklachten van Britse OM](https://nos.nl/l/2623566)
+  > De broers Andrew en Tristan Tate zijn in Miami gearresteerd door de Amerikaanse autoriteiten. Het Britse Openbaar Ministerie wil de omstreden...
 - [Tijdelijke afsluiting Merwedebrug klap voor transportsector: 'Impact is enorm'](https://nos.nl/l/2623563)
   > De transportsector is ontstemd over de tijdelijke afsluiting van de Merwedeburg in de A27 bij Gorinchem voor vrachtverkeer. Op verschillende plekken...
 - [Omwonenden drugslab Den Haag mogen terug naar huis](https://nos.nl/l/2623555)
   > Vele tientallen bewoners van een wijk in Den Haag waar vrijdag een drugslab werd ontdekt, mogen terug naar huis. De politie ging gisteren verder met...
 - [President Hongarije en Orbán-adept tekent wet waardoor hij nu zelf op straat staat](https://nos.nl/l/2623546)
   > De Hongaarse president Tamas Sulyok heeft zijn handtekening gezet onder een grondwetswijziging die een onmiddellijk einde maakt aan zijn eigen...
-- [WK eindigt morgen onder grauwe hemel, symbool voor zwarte rand aan voetbalfeest](https://nos.nl/l/2623543)
-  > Een dag voor de finale van het WK-voetbal is New York bedekt onder een dikke laag smog, afkomstig van Canadese natuurbranden, die grote delen van het...
-- [Opperste leider Iran schort overeenkomst met Amerika op, haalt uit naar Trump](https://nos.nl/l/2623535)
-  > De hoogste Iraanse leider heeft het vorige maand bereikte akkoord met de Verenigde Staten opgeschort. De sjiitische geestelijke Mojtaba Khamenei liet...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Topscorers WK voetbal 2026 | Mbappé alleen aan kop en passeert Messi als all-time WK-topscorer, Olise meeste assists op één WK](https://www.ad.nl/wk-voetbal/topscorers-wk-voetbal-2026-mbappe-alleen-aan-kop-en-passeert-messi-als-all-time-wk-topscorer-olise-meeste-assists-op-een-wk~ad0e6ff9/)
-  > Het WK voetbal is in volle gang. Wie wordt de topscorer, welke speler geeft de meeste assists en welke keepers blinken uit? Bekijk hieronder alle...
-- [Ongekend spektakel: Engeland pakt WK-brons na troostfinale met tien goals, Frankrijk mist grote kansen op comeback](https://www.ad.nl/wk-voetbal/ongekend-spektakel-engeland-pakt-wk-brons-na-troostfinale-met-tien-goals-frankrijk-mist-grote-kansen-op-comeback~abeb09cc/)
-  > Engeland heeft het brons gepakt op het WK, de beste prestatie van de nationale ploeg sinds de wereldtitel in 1966. Het team van Thomas Tuchel leek...
-- [Nieuwe Britse premier schrapt omstreden identificatiesysteem](https://www.ad.nl/buitenland/nieuwe-britse-premier-schrapt-omstreden-identificatiesysteem~ad0bc752/)
-  > De aantredende Britse premier Andy Burnham gaat de plannen van de regering voor een omstreden digitaal identificatiebewijs schrappen, meldt een...
-- [Megabod AS Roma op Crysencio Summerville afgewezen, Lars Veldwijk tekent contract in Oman](https://www.ad.nl/voetbal/megabod-as-roma-op-crysencio-summerville-afgewezen-lars-veldwijk-tekent-contract-in-oman~aeb81ef1/)
-  > Het WK nadert zijn ontknoping, maar er is ook flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van...
-- [Smeekbede van 15-jarige Enzo Fernández nadat Lionel Messi in 2016 wilde stoppen, uitgerekend in New York](https://www.ad.nl/wk-voetbal/smeekbede-van-15-jarige-enzo-fernandez-nadat-lionel-messi-in-2016-wilde-stoppen-uitgerekend-in-new-york~a535bc37/)
-  > De cirkel kan zondagavond zomaar eens helemaal rond zijn voor Lionel Messi. Precies op de plek waar tien jaar geleden zijn interlandcarrière in...
+- [VS voeren nieuwe luchtaanvallen uit op Iran na dood Amerikaanse militairen in Jordanië](https://www.ad.nl/buitenland/vs-voeren-nieuwe-luchtaanvallen-uit-op-iran-na-dood-amerikaanse-militairen-in-jordanie~ac528ac3/)
+  > De Verenigde Staten hebben aangekondigd nieuwe luchtaanvallen uit te voeren om Iran te straffen voor aanvallen op Amerikaanse troepen in Jordanië....
+- [LIVE finale WK voetbal | Argentinië en Spanje strijden in New York om wereldtitel](https://www.ad.nl/wk-voetbal/live-finale-wk-voetbal-argentinie-en-spanje-strijden-in-new-york-om-wereldtitel~a9744e64/)
+  > Argentinië en Spanje staan vanavond tegenover elkaar in de finale van het WK voetbal. Prolongeren de Argentijnen de wereldtitel of wordt Spanje voor...
+- [Jim Parsons was ongelukkig tijdens hoogtijdagen The Big Bang Theory](https://www.ad.nl/show/jim-parsons-was-ongelukkig-tijdens-hoogtijdagen-the-big-bang-theory~a4cca767/)
+  > Jim Parsons was ‘doodongelukkig’ tijdens de hoogtijdagen van hitserie The Big Bang Theory waarin hij de hoofdrol speelde. Dat vertelde de 53-jarige...
+- [Jacht op wolf Bram verliep in diepste geheim en cruciale info komt pas maanden later boven tafel](https://www.ad.nl/binnenland/jacht-op-wolf-bram-verliep-in-diepste-geheim-en-cruciale-info-komt-pas-maanden-later-boven-tafel~a45bac19/)
+  > Het gebeurde in het diepste geheim. De buitenwereld mocht niet weten hoe de jagers te werk gingen en cruciale informatie over zijn dood werd...
+- [Influencers Andrew en Tristan Tate opgepakt in Miami: broers verdacht van verkrachting en mensenhandel](https://www.ad.nl/buitenland/influencers-andrew-en-tristan-tate-opgepakt-in-miami-broers-verdacht-van-verkrachting-en-mensenhandel~aab0a1e1/)
+  > De broers Andrew (39) en Tristan Tate (38) zijn in Miami gearresteerd door de Amerikaanse opsporingsdienst, zo meldt het Britse Openbaar Ministerie...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Luisterverhaal: Na tien jaar had eenzame Michel zo’n €4,2 mln weggesluisd](https://fd.nl/samenleving/1603234/luisterverhaal-na-tien-jaar-had-eenzame-michel-zon-4-2mlnweggesluisd)
+  > Deze week hoor je over de rechtszaak tegen ‘eenzame Michel’ die miljoenen wegsluisde om erbij te horen.
 - [Merwedebrug tijdelijk dicht voor vrachtverkeer vanwege ‘constructieve veiligheid’](https://fd.nl/samenleving/1605059/merwedebrug-tijdelijk-dicht-voor-vrachtverkeer-vanwege-constructieve-veiligheid)
   > De Merwedebrug bij Gorinchem gaat voorlopig dicht voor vrachtverkeer. De brug bleek na inspectie onvoldoende veilig.
 - [Prominente CDU’er treedt terug na commotie over draagmoederschap](https://fd.nl/politiek/1605174/prominente-cduer-treedt-terug-na-commotie-over-draagmoederschap)
@@ -54,8 +56,6 @@
   > De Chinese overheid is niet te spreken over de nationalisering van British Steel dat tot voor kort in handen was van een Chinees bedrijf.
 - [Iran en VS voeren voor zevende dag op rij aanvallen uit op elkaar](https://fd.nl/politiek/1605173/iran-en-vs-voeren-voor-zevende-dag-op-rij-aanvallen-uit-op-elkaar)
   > Opnieuw vinden aanvallen plaats tussen Iran en de VS.
-- [AI-bedrijf Deepseek start nieuwe investeringsronde in aanloop naar mogelijke beursgang](https://fd.nl/bedrijfsleven/1605057/ai-bedrijf-deepseek-start-nieuwe-investeringsronde-in-aanloop-naar-mogelijke-beursgang)
-  > AI-bedrijf Deepseek gaat opnieuw geld ophalen bij investeerders.
 
 ### Meest gelezen
 
