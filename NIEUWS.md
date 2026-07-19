@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-07-2026 om 03:39*
+*Laatst bijgewerkt: 19-07-2026 om 06:33*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [VS voert nieuwe aanvallen uit op Iran na dood Amerikaanse militairen](https://nos.nl/l/2623567)
+- [Rusland voert enorme raketaanval uit op Kyiv, dode en gewonden](https://nos.nl/l/2623580)
+  > Het Russische leger heeft een grootschalige luchtaanval uitgevoerd op onder meer de Oekraïense hoofdstad Kyiv. Volgens de Oekraïense autoriteiten...
+- [Meer jonge wandelaars bij Nijmeegse Vierdaagse: 'Past bij bucketlistgedrag'](https://nos.nl/l/2623579)
+  > Wandelen een sport voor oude mensen? Dat idee is inmiddels wel achterhaald. De laatste jaren trekken ook twintigers regelmatig de wandelschoenen aan....
+- [Wekdienst 19/7: WK-finale Spanje-Argentinië • EU-verbod op vernietiging onverkochte kleding](https://nos.nl/l/2623568)
+  > Goedemorgen! Spanje en Argentinië staan tegenover elkaar in de WK-finale die wordt gespeeld in New York, en het EU-verbod op de vernietiging van...
+- [VS voert aanvallen uit op Iran na dood Amerikaanse militairen](https://nos.nl/l/2623567)
   > De VS heeft nieuwe luchtaanvallen uitgevoerd op Iran om het land "snel te straffen" na een aanval op een militaire basis in Jordanië. Daarbij kwamen...
 - [Tate-broers aangehouden in Miami, nieuwe aanklachten van Britse OM](https://nos.nl/l/2623566)
   > De broers Andrew en Tristan Tate zijn in Miami gearresteerd door de Amerikaanse autoriteiten. Het Britse Openbaar Ministerie wil de omstreden...
-- [Tijdelijke afsluiting Merwedebrug klap voor transportsector: 'Impact is enorm'](https://nos.nl/l/2623563)
-  > De transportsector is ontstemd over de tijdelijke afsluiting van de Merwedeburg in de A27 bij Gorinchem voor vrachtverkeer. Op verschillende plekken...
-- [Omwonenden drugslab Den Haag mogen terug naar huis](https://nos.nl/l/2623555)
-  > Vele tientallen bewoners van een wijk in Den Haag waar vrijdag een drugslab werd ontdekt, mogen terug naar huis. De politie ging gisteren verder met...
-- [President Hongarije en Orbán-adept tekent wet waardoor hij nu zelf op straat staat](https://nos.nl/l/2623546)
-  > De Hongaarse president Tamas Sulyok heeft zijn handtekening gezet onder een grondwetswijziging die een onmiddellijk einde maakt aan zijn eigen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [VS voeren nieuwe luchtaanvallen uit op Iran na dood Amerikaanse militairen in Jordanië](https://www.ad.nl/buitenland/vs-voeren-nieuwe-luchtaanvallen-uit-op-iran-na-dood-amerikaanse-militairen-in-jordanie~ac528ac3/)
-  > De Verenigde Staten hebben aangekondigd nieuwe luchtaanvallen uit te voeren om Iran te straffen voor aanvallen op Amerikaanse troepen in Jordanië....
-- [LIVE finale WK voetbal | Argentinië en Spanje strijden in New York om wereldtitel](https://www.ad.nl/wk-voetbal/live-finale-wk-voetbal-argentinie-en-spanje-strijden-in-new-york-om-wereldtitel~a9744e64/)
-  > Argentinië en Spanje staan vanavond tegenover elkaar in de finale van het WK voetbal. Prolongeren de Argentijnen de wereldtitel of wordt Spanje voor...
-- [Jim Parsons was ongelukkig tijdens hoogtijdagen The Big Bang Theory](https://www.ad.nl/show/jim-parsons-was-ongelukkig-tijdens-hoogtijdagen-the-big-bang-theory~a4cca767/)
-  > Jim Parsons was ‘doodongelukkig’ tijdens de hoogtijdagen van hitserie The Big Bang Theory waarin hij de hoofdrol speelde. Dat vertelde de 53-jarige...
-- [Jacht op wolf Bram verliep in diepste geheim en cruciale info komt pas maanden later boven tafel](https://www.ad.nl/binnenland/jacht-op-wolf-bram-verliep-in-diepste-geheim-en-cruciale-info-komt-pas-maanden-later-boven-tafel~a45bac19/)
-  > Het gebeurde in het diepste geheim. De buitenwereld mocht niet weten hoe de jagers te werk gingen en cruciale informatie over zijn dood werd...
-- [Influencers Andrew en Tristan Tate opgepakt in Miami: broers verdacht van verkrachting en mensenhandel](https://www.ad.nl/buitenland/influencers-andrew-en-tristan-tate-opgepakt-in-miami-broers-verdacht-van-verkrachting-en-mensenhandel~aab0a1e1/)
-  > De broers Andrew (39) en Tristan Tate (38) zijn in Miami gearresteerd door de Amerikaanse opsporingsdienst, zo meldt het Britse Openbaar Ministerie...
+- [Op deze camping slaap je midden in de weilanden in een melkbus: ‘Wat is dit?’](https://www.ad.nl/binnenland/op-deze-camping-slaap-je-midden-in-de-weilanden-in-een-melkbus-wat-is-dit~aa727281/)
+  > Slapen omringd door weilanden, met uitzicht op de natuur en dat in een gigantische melkbus. Alles ademt landbouwgeschiedenis: van oude foto’s van de...
+- [Etappe 15 | Aankomst bergop in de Jura: zo laat is de start en de verwachte finish op pittige slotklim](https://www.ad.nl/tour-de-france/etappe-15-aankomst-bergop-in-de-jura-zo-laat-is-de-start-en-de-verwachte-finish-op-pittige-slotklim~a60d817e/)
+  > De Tour de France gaat de beslissende fase in. Zaterdag is de vijftiende etappe, een rit door de Jura met aankomst bergop. Lees hier alles over het...
+- [Nederlander (45) steekt zomaar twintiger neer op station Zwitserland en blijft hem achtervolgen](https://www.ad.nl/buitenland/nederlander-45-steekt-zomaar-twintiger-neer-op-station-zwitserland-en-blijft-hem-achtervolgen~a9da9e80/)
+  > Een 45-jarige Nederlander is vrijdagmiddag opgepakt op een treinstation in het Zwitserse Basel. Hij zou op het perron ‘vanuit het niets’ een...
+- [Thomas Tuchel ziet Engeland kloof met wereldtop dichten: ‘We komen steeds meer in de buurt’](https://www.ad.nl/wk-voetbal/thomas-tuchel-ziet-engeland-kloof-met-wereldtop-dichten-we-komen-steeds-meer-in-de-buurt~aede21ee/)
+  > Thomas Tuchel ziet dat Engeland het verschil met de beste landenploegen van de wereld steeds kleiner maakt. „Ik denk dat we steeds meer in de buurt...
+- [Dit zijn 5 populaire Instagram-hotspots in Europa: ‘Hier zijn meer souvenirshops dan gewone winkels’](https://www.ad.nl/buitenland/dit-zijn-5-populaire-instagram-hotspots-in-europa-hier-zijn-meer-souvenirshops-dan-gewone-winkels~a4195717/)
+  > Op sociale media lijken ze onweerstaanbaar: sprookjesdorpen, spectaculaire kliffen en charmante straatjes die smeken om een foto. Maar achter die...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Slechte staat van bruggen en wegen was politieke keus](https://fd.nl/opinie/1604777/slechte-staat-van-bruggen-en-wegen-was-politieke-keus)
+  > De komende jaren zijn miljarden nodig om kapotte bruggen, wegen en het spoor te herstellen. Veelal krijgen de begrotingsregels de schuld van het...
+- [De Russische ruimtevaart laat zich moeilijk uit het moeras trekken](https://fd.nl/bedrijfsleven/1602664/de-russische-ruimtevaart-laat-zich-moeilijk-uit-het-moeras-trekken)
+  > Rusland wil zijn eigen satellietprogramma opstarten naar het voorbeeld van Starlink, Elon Musks satellietinternetdienst. Maar de Russische pogingen...
+- [Directeur drinkwaterbedrijf: er dreigt een tekort aan schoon drinkwater](https://fd.nl/bedrijfsleven/1600871/directeur-drinkwaterbedrijf-er-dreigt-een-tekort-aan-schoon-drinkwater)
+  > Publieke drinkwaterbedrijven garanderen dat de samenleving wordt voorzien van de fundamentele behoefte aan schoon drinkwater. Maar deze garantie is...
 - [Luisterverhaal: Na tien jaar had eenzame Michel zo’n €4,2 mln weggesluisd](https://fd.nl/samenleving/1603234/luisterverhaal-na-tien-jaar-had-eenzame-michel-zon-4-2mlnweggesluisd)
   > Deze week hoor je over de rechtszaak tegen ‘eenzame Michel’ die miljoenen wegsluisde om erbij te horen.
 - [Merwedebrug tijdelijk dicht voor vrachtverkeer vanwege ‘constructieve veiligheid’](https://fd.nl/samenleving/1605059/merwedebrug-tijdelijk-dicht-voor-vrachtverkeer-vanwege-constructieve-veiligheid)
   > De Merwedebrug bij Gorinchem gaat voorlopig dicht voor vrachtverkeer. De brug bleek na inspectie onvoldoende veilig.
-- [Prominente CDU’er treedt terug na commotie over draagmoederschap](https://fd.nl/politiek/1605174/prominente-cduer-treedt-terug-na-commotie-over-draagmoederschap)
-  > Bondskanselier Friedrich Merz prest fractievoorzitter Jens Spahn tot vertrek, nadat die via een draagmoeder vader is geworden. In Duitsland is dat...
-- [China overweegt maatregelen na nationalisering British Steel](https://fd.nl/bedrijfsleven/1605058/china-overweegt-maatregelen-na-nationalisering-british-steel)
-  > De Chinese overheid is niet te spreken over de nationalisering van British Steel dat tot voor kort in handen was van een Chinees bedrijf.
-- [Iran en VS voeren voor zevende dag op rij aanvallen uit op elkaar](https://fd.nl/politiek/1605173/iran-en-vs-voeren-voor-zevende-dag-op-rij-aanvallen-uit-op-elkaar)
-  > Opnieuw vinden aanvallen plaats tussen Iran en de VS.
 
 ### Meest gelezen
 
