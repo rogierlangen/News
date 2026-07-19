@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-07-2026 om 09:06*
+*Laatst bijgewerkt: 19-07-2026 om 11:11*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Twee jaar na arrestatie drugsbaas 'El Mayo' is relatie VS-Mexico tot nulpunt gedaald](https://nos.nl/l/2623594)
+  > Twee jaar na de geruchtmakende arrestatie van de Mexicaanse kartelbaas Ismael 'El Mayo' Zambada spreekt de rechter in New York maandag zijn vonnis...
+- [Lichaam gevonden in zoektocht bij gezonken boot in Amsterdamse haven](https://nos.nl/l/2623593)
+  > Bij een zoekactie in de Amsterdamse Coenhaven is vannacht een lichaam gevonden. Het gaat om het stoffelijk overschot van de vermiste opvarende van...
 - [Gewonden door zware hagelbui tijdens concert Bad Bunny in Milaan](https://nos.nl/l/2623586)
   > Een concert van de Puerto Ricaanse zanger Bad Bunny in Milaan is gisteravond afgebroken, omdat er zware hagelbuien over het terrein trokken. Op de...
 - [Spookrijder onder invloed veroorzaakt botsing op de A1 bij Naarden](https://nos.nl/l/2623584)
   > Een spookrijder onder invloed is vanmorgen op de A1 op een taxi gebotst. Niemand raakte bij het ongeval gewond. De bestuurder van de spookrijdende...
 - [Cuba laat vastgehouden kunstenaar in Amerikaanse ballingschap gaan](https://nos.nl/l/2623581)
   > Cuba heeft de opgesloten dissident Luis Manuel Otero Alcántara in ballingschap naar de VS laten gaan. De 38-jarige kunstenaar is aangekomen in Miami,...
-- [Rusland voert enorme raketaanval uit op Kyiv, dode en gewonden](https://nos.nl/l/2623580)
-  > Het Russische leger heeft een grootschalige luchtaanval uitgevoerd op onder meer de Oekraïense hoofdstad Kyiv. Volgens de Oekraïense autoriteiten...
-- [Meer jonge wandelaars bij Nijmeegse Vierdaagse: 'Past bij bucketlistgedrag'](https://nos.nl/l/2623579)
-  > Wandelen een sport voor oude mensen? Dat idee is inmiddels wel achterhaald. De laatste jaren trekken ook twintigers regelmatig de wandelschoenen aan....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nu zijn moeder 92 is, moet Harold zorgen dat zij genoeg eet: ‘De buurvrouw voert haar bij met toastjes’](https://www.ad.nl/mezza/nu-zijn-moeder-92-is-moet-harold-zorgen-dat-zij-genoeg-eet-de-buurvrouw-voert-haar-bij-met-toastjes~a4e9a9c2/)
-  > Eten en het bereiden daarvan waren nooit de hobby van de moeder van Mezza’s wijn- en eetschrijver Harold Hamersma. Nu zij 92 is, moet hij zorgen dat...
-- [Site Facebook ligt plat, ook Instagram kampt met wereldwijde storing](https://www.ad.nl/tech/site-facebook-ligt-plat-ook-instagram-kampt-met-wereldwijde-storing~a29186b4/)
-  > Facebook en Instagram kampen met een grote, wereldwijde storing. De website van Facebook ligt momenteel plat, al werkt de app vooralsnog...
-- [Argentinië en Spanje strijden om de wereldtitel, bekijk hier de vermoedelijke opstellingen](https://www.ad.nl/wk-voetbal/argentinie-en-spanje-strijden-om-de-wereldtitel-bekijk-hier-de-vermoedelijke-opstellingen~af035bc3/)
+- [Vakantie Thailand eindigt in deceptie: Nicolaas krijgt factuur van 1000 euro voor één minuut dataverbruik](https://www.ad.nl/buitenland/vakantie-thailand-eindigt-in-deceptie-nicolaas-krijgt-factuur-van-1000-euro-voor-een-minuut-dataverbruik~a4195717/)
+  > „Papa, ik zweer het: mijn mobiele data stonden uit.” Toch kreeg de Vlaamse Nicolaas Van den Broek (48) op vakantie in Thailand plots een melding van...
+- [Na het verlies van zijn zoon en dochter vond Eric Boers na 16 jaar innerlijke vrede: ‘Rouw heeft geen finishlijn’](https://www.ad.nl/binnenland/na-het-verlies-van-zijn-zoon-en-dochter-vond-eric-boers-na-16-jaar-innerlijke-vrede-rouw-heeft-geen-finishlijn~a78d4602/)
+  > Na de dood van zijn twee kinderen was er alleen maar duisternis. „En op school leer je niet hoe je moet rouwen”, zegt Eric Boers (53). Na ‘een...
+- [Fans Argentinië en Spanje nemen straten New York over, bekijk hier de vermoedelijke opstellingen](https://www.ad.nl/wk-voetbal/fans-argentinie-en-spanje-nemen-straten-new-york-over-bekijk-hier-de-vermoedelijke-opstellingen~af035bc3/)
   > Vanavond is de 104de en laatste wedstrijd van het WK 2026. Europees kampioen Spanje en titelverdediger Argentinië strijden vanaf 21.00 uur om de...
-- [Laura Smulders pakt brons op WK BMX, finaleronde geschrapt vanwege harde wind](https://www.ad.nl/andere-sporten/laura-smulders-pakt-brons-op-wk-bmx-finaleronde-geschrapt-vanwege-harde-wind~a70e26ce/)
-  > De finalerondes bij de wereldkampioenschappen BMX in Brisbane zijn afgelast. De organisatie stelde vanwege de harde wind de start eerst met meerdere...
-- [Dit was het WK van Messi, Trump, Infantino en Yamal, maar toch vooral van David Beckham](https://www.ad.nl/voetbal/dit-was-het-wk-van-messi-trump-infantino-en-yamal-maar-toch-vooral-van-david-beckham~a48bdec9/)
-  > AD Sportwereld-columnist Sjoerd Mossou zag David Beckham en zijn familie werkelijk overal op dit WK, opduikend op haast ieder denkbaar moment. „Het...
+- [Castleden Moulin Rouge! kunnen abrupt einde nauwelijks geloven: ‘Mijn hart bloedt’](https://www.ad.nl/show/castleden-moulin-rouge-kunnen-abrupt-einde-nauwelijks-geloven-mijn-hart-bloedt~af527c39/)
+  > De cast van Moulin Rouge! kan nog niet bevatten dat de musical voortijdig is gestopt. Het decor liep vrijdag schade op nadat de sprinklerinstallatie...
+- [Van Duijvenbode treft Dobey in eerste ronde, later Van Gerwen in actie tegen Brit](https://www.ad.nl/darts/van-duijvenbode-treft-dobey-in-eerste-ronde-later-van-gerwen-in-actie-tegen-brit~a5efa262/)
+  > Het belangrijkste toernooi na het WK darts is van start. Aan de World Matchplay (18 tot en met 26 juli), ook wel het ‘zomer-WK’ genoemd, doen acht...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Voorspellingsplatforms spinnen garen bij WK, online gokbedrijven hebben het nakijken](https://fd.nl/bedrijfsleven/1605161/voorspellingsplatforms-spinnen-garen-bij-wk-online-gokbedrijven-hebben-het-nakijken)
-  > Kalshi en Polymarket zetten de gokwereld op zijn kop, maar volgens de bedrijven zelf gaat het om derivatenhandel.
-- [AI wacht niet op curriculumherziening in het onderwijs](https://fd.nl/opinie/1604492/ai-wacht-niet-op-curriculumherziening-in-het-onderwijs)
-  > Generatieve AI verandert niet in de eerste plaats het werk van leerlingen, maar het werk van docenten. Wie dat niet ziet, voert de verkeerde...
-- [Slechte staat van bruggen en wegen was politieke keus](https://fd.nl/opinie/1604777/slechte-staat-van-bruggen-en-wegen-was-politieke-keus)
-  > De komende jaren zijn miljarden nodig om kapotte bruggen, wegen en het spoor te herstellen. Veelal krijgen de begrotingsregels de schuld van het...
-- [De Russische ruimtevaart laat zich moeilijk uit het moeras trekken](https://fd.nl/bedrijfsleven/1602664/de-russische-ruimtevaart-laat-zich-moeilijk-uit-het-moeras-trekken)
-  > Rusland wil zijn eigen satellietprogramma opstarten naar het voorbeeld van Starlink, Elon Musks satellietinternetdienst. Maar de Russische pogingen...
-- [Directeur drinkwaterbedrijf: er dreigt een tekort aan schoon drinkwater](https://fd.nl/bedrijfsleven/1600871/directeur-drinkwaterbedrijf-er-dreigt-een-tekort-aan-schoon-drinkwater)
-  > Publieke drinkwaterbedrijven garanderen dat de samenleving wordt voorzien van de fundamentele behoefte aan schoon drinkwater. Maar deze garantie is...
+- [Waarom boeien feiten mannen niet?](https://fd.nl/financiele-markten/1605003/waarom-boeien-feiten-mannen-niet)
+  > Jort Kelder vindt dat vrouwen gewoon niet genoeg om geld geven. Maar dat is geen individuele tekortkoming. Het is – hou je vast – dat vermaledijde...
+- [Anderhalf jaar na moord op topman klimt zorgverzekeraar UnitedHealth uit diep dal](https://fd.nl/financiele-markten/1604995/anderhalf-jaar-na-moord-op-topman-klimt-zorgverzekeraar-unitedhealth-uit-diep-dal)
+  > Het aandeel van het Amerikaanse zorgbedrijf kende een sterke koersstijging sinds dit voorjaar, mede dankzij overheidsmaatregelen en een verbeterde...
+- [Een agroreus in de droge wildernis van Paraguay gerund door mennonieten](https://fd.nl/bedrijfsleven/1601649/een-agroreus-in-de-droge-wildernis-van-paraguay-gerund-door-mennonieten)
+  > In de afgelegen Paraguayaanse Chaco runnen mennonieten Cooperativa Chortitzer, een coöperatief agroconcern met zo’n $700 mln omzet en activiteiten in...
+- [VS bestoken Iraanse raket- en dronebases](https://fd.nl/politiek/1605062/vs-vallen-iraanse-raket-en-dronebases-aan-rond-cruciale-handelsroute)
+  > Verenigde Staten zoeken vergelding voor de dood van twee Amerikaanse militairen in Jordanië.
+- [Andrew Tate opgepakt na nieuwe aanklacht verkrachting en mensenhandel](https://fd.nl/samenleving/1605061/andrew-tate-opgepakt-na-nieuwe-aanklacht-verkrachting-en-mensenhandel)
+  > De Britse autoriteiten vragen om uitlevering van de broers, bovenop eerdere onderzoeken in het VK en Roemenië.
 
 ### Meest gelezen
 
