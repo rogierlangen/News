@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-07-2026 om 16:26*
+*Laatst bijgewerkt: 20-07-2026 om 18:54*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Keverplaag teistert inwoners Twents dorp: 'Veeg er 100, 200 per keer op'](https://nos.nl/l/2623783)
-  > Een kopje koffie drinken in de tuin is er even niet meer bij voor een deel van de inwoners van het dorp Westerhaar-Vriezenveensewijk in Twente. De...
-- [Voorlopig geen boetes voor olie- en gasbedrijven die EU-regel voor methaan overtreden](https://nos.nl/l/2623782)
-  > De Europese Commissie adviseert EU-landen voorlopig geen boetes op te leggen aan bedrijven die nieuwe klimaatregels voor de uitstoot van methaan...
-- [Maarssen rouwt om vriendinnen (17 en 18) die omkwamen bij ongeluk](https://nos.nl/l/2623773)
-  > In Maarssen heerst verdriet na het fatale ongeluk waarbij twee jonge vrouwen omkwamen. De voetbalclub waar de vriendinnen Oona (17) en Joann (18)...
-- [Demonstratie in Bologna na overlijden man bij gewelddadige arrestatie](https://nos.nl/l/2623770)
-  > In de Noord-Italiaanse stad Bologna zijn mensen de straat op gegaan na het overlijden van een man bij een arrestatiepoging gisteren. Op beelden is te...
-- [OM eist jaar voorwaardelijke cel tegen Corné H. voor gijzeling gevangenis Vught](https://nos.nl/l/2623766)
-  > Het Openbaar Ministerie heeft een voorwaardelijke gevangenisstraf van een jaar geëist tegen Corné H. voor het gijzelen van twee medewerkers in de...
+- [Rechter schort overname Warner Bros. door Paramount voorlopig op](https://nos.nl/l/2623801)
+  > Een Amerikaanse federale rechter heeft de voorgenomen overname van Warner Bros. Discovery door Paramount Skydance voorlopig opgeschort. De deal mag...
+- [Mexicaanse drugsbaron El Mayo veroordeeld tot levenslang in VS](https://nos.nl/l/2623799)
+  > De Mexicaanse kartelbaas Ismael 'El Mayo' Zambada is in de VS veroordeeld tot een levenslange straf. De aanklagers zeggen dat hij als hoofd van het...
+- [Politieagent verdacht van verkrachting, OM eist 3 jaar celstraf](https://nos.nl/l/2623797)
+  > Het Openbaar Ministerie eist 3 jaar celstraf, waarvan 6 maanden voorwaardelijk, tegen een inmiddels ontslagen politieagent uit Roermond. De 36-jarige...
+- [Justitie waarschuwt voor swatten: 'Opeens onterecht een arrestatieteam voor je deur'](https://nos.nl/l/2623795)
+  > De politie krijgt steeds vaker vergaande nepmeldingen, waardoor een zwaar gewapend arrestatieteam op iemands stoep staat. Het zogenoemde fenomeen...
+- [Frankrijk beschuldigt Iran van intimidatie en mishandeling ambassadepersoneel](https://nos.nl/l/2623788)
+  > Frankrijk beschuldigt de Iraanse veiligheidsdiensten van een "ernstige intimidatieactie" tegen twee medewerkers van de Franse ambassade in Iran....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Remco Evenepoel denkt nog niet aan aanvallen Pogacar: ‘Ik begin niet te zweven en dromen van ritwinst’](https://www.ad.nl/tour-de-france/remco-evenepoel-denkt-nog-niet-aan-aanvallen-pogacar-ik-begin-niet-te-zweven-en-dromen-van-ritwinst~a0ba6491/)
-  > Remco Evenepoel gaat “niet zweven” nu hij de tweede plaats in de Tour de France bezet. De 26-jarige Belg van Red Bull-Bora-hansgrohe richt zich op...
-- [Teletubbies, ‘sfeerverpestende’ Bieber en totale willekeur: rustshow WK voetbal valt niet in de smaak](https://www.ad.nl/show/teletubbies-sfeerverpestende-bieber-en-totale-willekeur-rustshow-wk-voetbal-valt-niet-in-de-smaak~a3bac0e4/)
-  > Wilde Justin Bieber koste wat het kost de boel tot rust brengen? Zijn twee oud-voetballers getransformeerd tot Teletubbies? Werd AI gebruikt? Er...
-- [Podcast In Het Wiel | ‘Rustdag Q&A: ‘Remco Evenepoel kan zijn lichaam overstemmen’](https://www.ad.nl/tour-de-france/podcast-in-het-wiel-rustdag-qena-remco-evenepoel-kan-zijn-lichaam-overstemmen~a5ea502e/)
-  > Een Q&A op de tweede rustdag van de Tour de France! Jullie stuurden de afgelopen dagen via onze socials vragen in, en die legt Niek Goedvolk in een...
-- [Niemand ontkent het belang van hun bestaan, in de samenleving worden ze juist steeds belangrijker](https://www.ad.nl/binnenland/niemand-ontkent-het-belang-van-hun-bestaan-in-de-samenleving-worden-ze-juist-steeds-belangrijker~a7c44a0e/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Wie onttroont Spanje? Hier zijn de volgende eindtoernooien (gelukkig in onze tijdzone)](https://www.ad.nl/wk-voetbal/wie-onttroont-spanje-hier-zijn-de-volgende-eindtoernooien-gelukkig-in-onze-tijdzone~a62c46d5/)
-  > Spanje veroverde zondagavond de wereldtitel ten koste van Argentinië en is ook al de regerend Europees kampioen. Over twee jaar kunnen de andere...
+- [Lionel Messi na verloren WK-finale: ‘Deze wond heeft tijd nodig om te genezen’](https://www.ad.nl/wk-voetbal/lionel-messi-na-verloren-wk-finale-deze-wond-heeft-tijd-nodig-om-te-genezen~abfe32cb/)
+  > De Argentijnse sterspeler Lionel Messi noemt de pijn van het verliezen van de WK-finale tegen Spanje enorm. „Deze wond heeft tijd nodig om te...
+- [Odysseus is terug van nooit weggeweest: dit verklaart zijn opvallende comeback](https://www.ad.nl/show/odysseus-is-terug-van-nooit-weggeweest-dit-verklaart-zijn-opvallende-comeback~ab9c89b5/)
+  > De Odyssee is hot. De verfilming van Christopher Nolan brak in het eerste weekend alle bezoekrecords, maar de hype is breder: van videogames tot een...
+- [Groot feest in Madrid: spelers tonen wereldbeker tijdens tocht in open bus, volg de huldiging hier](https://www.ad.nl/wk-voetbal/groot-feest-in-madrid-spelers-tonen-wereldbeker-tijdens-tocht-in-open-bus-volg-de-huldiging-hier~a451a2a9/)
+  > De voetballers van de Spaanse nationale voetbalploeg zijn terug in eigen land. Een dag na de met 1-0 gewonnen WK-finale tegen Argentinië landde de...
+- [Tour de France etappe 16 | Remco Evenepoel kan meteen na rustdag nieuwe slag slaan in tijdrit](https://www.ad.nl/tour-de-france/tour-de-france-etappe-16-remco-evenepoel-kan-meteen-na-rustdag-nieuwe-slag-slaan-in-tijdrit~ad7b0102/)
+  > Na te hebben genoten van een laatste rustdag, beginnen de renners in de Tour de France dinsdag aan de loodzware slotweek, met onder meer twee etappes...
+- [Dit moet je weten over de Vierdaagse: ‘Hordes studenten staan om 04.00 uur te juichen’](https://www.ad.nl/binnenland/dit-moet-je-weten-over-de-vierdaagse-hordes-studenten-staan-om-04-00-uur-te-juichen~a8358c7d/)
+  > In Nijmegen worden vanaf dinsdag blaren, militairen en gapende gezichten verwacht. Oftewel: de Vierdaagse begint. We bellen met verslaggever Eric...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Spanje wil zich vermarkten als ultiem voetballand – en dan komt de wereldbeker als geroepen](https://fd.nl/samenleving/1605316/spanje-wil-zich-vermarkten-als-ultiem-voetballand-en-dan-komt-de-wereldbeker-als-geroepen)
+  > De winst van ‘La Roja’ van het WK voetbal op zondag komt op een ideaal moment voor Spaanse voetbalbestuurders, die zich voorbereiden op het WK van...
+- [Paramount moet overname Warner Bros. pauzeren van rechter](https://fd.nl/bedrijfsleven/1605206/paramount-moet-overname-warner-bros-pauzeren-van-rechter)
+  > Verschillende Amerikaanse staten hadden de zaak aangespannen omdat ze vreesden voor de concurrentie in de filmmarkt.
+- [COA-deal over hotelkamers moet onder het vergrootglas](https://fd.nl/opinie/1605313/coa-deal-over-hotelkamers-moet-onder-het-vergrootglas)
+  > Het Centraal Orgaan opvang asielzoekers (COA) claimt miljoenen van een voormalige tussenpersoon. Los van deze rechtsgang moet politiek Den Haag de...
+- [Turkse burgemeester van oppositiepartij gearresteerd](https://fd.nl/politiek/1605326/turkse-burgemeester-van-oppositiepartij-gearresteerd)
+  > Sinds 2024 zijn ook veel andere burgemeesters van dezelfde oppositiepartij gearresteerd of uit hun functie gezet.
 - [Bedrijven van LA Lakers-eigenaar Mark Walter onderzocht door aanklager](https://fd.nl/bedrijfsleven/1605325/bedrijven-van-la-lakers-eigenaar-mark-walter-onderzocht-door-aanklager)
   > De miljardair is via zijn holding TWG Global onder meer eigenaar van twee verzekeraars en aandeelhouder in de Guggenheim-investeringsmaatschappij.
-- [‘Verdwenen’ vastgoedman moet gedupeerde belegger vier ton terugbetalen](https://fd.nl/financiele-markten/1605201/verdwenen-vastgoedman-moet-gedupeerde-belegger-vier-ton-terugbetalen)
-  > Een bedrijf uit Brabant lokte beleggers met hoge rendementen op villa’s in Spanje. Ineens was de site uit de lucht en het bedrijf onbereikbaar.
-- [Houthi’s kondigen zeeblokkade Saoedi-Arabië aan](https://fd.nl/politiek/1605203/houthis-kondigen-zeeblokkade-saoedi-arabie-aan)
-  > De rebellen stellen dat de blokkade een reactie is op Saoedische aanvallen op de luchthaven van Sana’a, de hoofdstad van Jemen.
-- [Kledingmerk Reformation wil $239 mln ophalen met beursgang](https://fd.nl/politiek/1605323/kledingmerk-reformation-wil-239-mln-ophalen-met-beursgang)
-  > Het bedrijf uit Californië is van plan 14 miljoen aandelen uit te geven.
-- [Scherpe klassieke denker leidt pensioenfonds nieuw tijdperk in](https://fd.nl/financiele-markten/1604345/scherpe-klassieke-denker-leidt-pensioenfonds-nieuw-tijdperk-in)
-  > Cateautje Hijmans van den Bergh, de nieuwe ceo van pensioenfonds PFZW, staat bekend als een slimme, klassieke denker, die zegt waar het op staat.
 
 ### Meest gelezen
 
