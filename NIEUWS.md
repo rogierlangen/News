@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-07-2026 om 08:08*
+*Laatst bijgewerkt: 20-07-2026 om 11:48*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [VS en Iran blijven elkaar aanvallen, olieprijs verder omhoog](https://nos.nl/l/2623719)
-  > De VS heeft voor de negende nacht op rij Iran aangevallen. Iran heeft op zijn beurt Bahrein aangevallen, waar de Amerikaanse marine een basis heeft....
-- [Twee jongeren omgekomen bij ongeluk in Maarssen](https://nos.nl/l/2623717)
-  > Bij een ongeluk in Maarssen zijn gisteravond twee jonge vrouwen van 18 en 17 jaar om het leven gekomen.
-        De hulpdiensten kregen om 22.45 uur...
-- [Wegen, bruggen en viaducten aan vervanging toe; zomer vol files en sluipverkeer](https://nos.nl/l/2623713)
-  > Honderden kilometers aan nieuw asfalt worden deze zomer aangelegd in Nederland. Het is einde levensduur voor veel wegen, viaducten en bruggen. Was...
-- [Tientallen mensen vermist na kapseizen veerboot in Guyana](https://nos.nl/l/2623712)
-  > In het Zuid-Amerikaanse Guyana zijn vrijwel zeker tientallen mensen omgekomen na het kapseizen zaterdag van een veerboot. Sinds gistermiddag zijn er...
-- [Ontsnapte wallaby in Middenmeer weer gevangen](https://nos.nl/l/2623709)
-  > De ontsnapte wallaby die gisteren in het Noord-Hollandse Middenmeer rondliep, is gevangen en weer veilig thuis. Dat schrijft de politie op sociale...
+- [Toch veel vrachtverkeer over onveilige Merwedebrug, ondanks verbod](https://nos.nl/l/2623745)
+  > Hoewel de Merwedebrug sinds afgelopen zaterdag voor onbepaalde tijd dicht is voor alle vrachtverkeer, rijden er nog steeds veel vrachtwagens over de...
+- [Indiase politie zet traangas en wapenstokken in bij Kakkerlakken-protest](https://nos.nl/l/2623743)
+  > Duizenden demonstranten in New Delhi zijn vandaag geclasht met de Indiase politie. Aanhangers van de Kakkerlakken-protestbeweging marcheerden naar...
+- [Burnham beëdigd als Britse premier, Starmer officieel afgezwaaid](https://nos.nl/l/2623742)
+  > Andy Burnham is de nieuwe premier van het Verenigd Koninkrijk. Op Buckingham Palace werd hij beëdigd door koning Charles, die hem formeel heeft...
+- [Fontein stort in bij WK-viering in Spanje, jongen (13) overleden](https://nos.nl/l/2623741)
+  > In het westen van Spanje is een jongen van 13 om het leven gekomen toen hij met andere voetbalfans de overwinning vierde van Spanje in de WK-finale.
+...
+- [AliExpress krijgt Europese boete van 550 miljoen voor verkoop illegale producten](https://nos.nl/l/2623734)
+  > De Europese Commissie legt de Chinese webwinkel AliExpress een boete op van 550 miljoen euro, omdat het bedrijf onvoldoende zijn best doet om de...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Ad herkent al zijn 200 duiven aan hun gezichtsuitdrukking: ‘Jij haalt je vader en moeder toch ook uit elkaar?’](https://www.ad.nl/binnenland/ad-herkent-al-zijn-200-duiven-aan-hun-gezichtsuitdrukking-jij-haalt-je-vader-en-moeder-toch-ook-uit-elkaar~afda021b/)
-  > De achtertuin van Ad Fortuin (65) stikt van de duiven. Tweehonderd om precies te zijn, en hij kan ze stuk voor stuk herkennen. Vorige week bewees een...
-- [Argentijnse knokker misdroeg zich vier jaar geleden ook al tegen Oranje: ‘Een bom die elk moment kan exploderen’](https://www.ad.nl/wk-voetbal/argentijnse-knokker-misdroeg-zich-vier-jaar-geleden-ook-al-tegen-oranje-een-bom-die-elk-moment-kan-exploderen~a41fa0ad/)
-  > Leandro Paredes greep de hoofdrol na de WK-finale tussen Argentinië en Spanje, en precies op de manier die bij hem past: de stoppen sloegen door en...
-- [‘Die korte nacht was nergens goed voor, maar of dat nu de reden was?’: Jonas Vingegaard reageert voor het eerst na zware crash](https://www.ad.nl/tour-de-france/die-korte-nacht-was-nergens-goed-voor-maar-of-dat-nu-de-reden-was-jonas-vingegaard-reageert-voor-het-eerst-na-zware-crash~a7da1847/)
-  > Jonas Vingegaard (29) heeft gisteravond voor het eerst gereageerd op zijn valpartij, waardoor hij een sleutelbeenbreuk opliep en de Tour de France...
-- [Geen hinder meer voor vakantieverkeer: meeste bosbranden Frankrijk en Spanje onder controle](https://www.ad.nl/buitenland/geen-hinder-meer-voor-vakantieverkeer-meeste-bosbranden-frankrijk-en-spanje-onder-controle~a4195717/)
-  > Vakantiegangers in Frankrijk en Spanje ondervonden vorige week hinder door de grote bosbranden in de landen. Zo werd de route Route du Soleil, de...
-- [Vandaag loting: dit zijn de mogelijke opponenten van NEC, FC Twente en Ajax in Europese voorronde](https://www.ad.nl/voetbal/vandaag-loting-dit-zijn-de-mogelijke-opponenten-van-nec-fc-twente-en-ajax-in-europese-voorronde~a8cdccb9/)
-  > NEC, FC Twente en Ajax gaan vanmiddag de koker in voor hun (mogelijke) opponenten in de Europese voorronden. Bekijk hier aan welke clubs ze gekoppeld...
+- [Voorbereiding eredivisie | Fred Rutten stopt na vijf jaar met functie bij NEC, contractloze Boadu met PSV mee op trainingskamp](https://www.ad.nl/voetbal/voorbereiding-eredivisie-fred-rutten-stopt-na-vijf-jaar-met-functie-bij-nec-contractloze-boadu-met-psv-mee-op-trainingskamp~ab5071ea/)
+  > De eredivisieclubs zijn begonnen aan de voorbereiding op het nieuwe seizoen. In dit artikel lees je het programma en alle uitslagen per club. Onder...
+- [NEC tegen Griekse nummer 2 in voorronde CL, FC Twente mogelijk naar Turkije of Polen, straks ook Ajax](https://www.ad.nl/voetbal/nec-tegen-griekse-nummer-2-in-voorronde-cl-fc-twente-mogelijk-naar-turkije-of-polen-straks-ook-ajax~a8cdccb9/)
+  > NEC, FC Twente en Ajax gaan vanmiddag de koker in voor hun (mogelijke) opponenten in de Europese voorronden. Volg hier live aan welke clubs ze...
+- [Waarom smart-tv’s goedkoper worden, maar jij steeds vaker het verdienmodel bent](https://www.ad.nl/tech/waarom-smart-tvs-goedkoper-worden-maar-jij-steeds-vaker-het-verdienmodel-bent~a631611a7/)
+  > Mag het een inchje meer zijn? Tegenwoordig wel: tv’s van 75 inch die tot voor kort alleen bij verstokte vrijgezellen aan de muur pronkten, worden...
+- [Ramiz Zerrouki verruilt Feyenoord definitief voor FC Twente: ‘Niet alles is uitgepakt zoals gehoopt’](https://www.ad.nl/enschede/ramiz-zerrouki-verruilt-feyenoord-definitief-voor-fc-twente-niet-alles-is-uitgepakt-zoals-gehoopt~add6d925/)
+  > Ramiz Zerrouki vertrekt bij Feyenoord. De 28-jarige Algerijnse middenvelder maakt de overstap naar FC Twente, dat hem vorig seizoen al huurde van de...
+- [Correspondent over machtswisseling in VK: ‘Lego-poppetje Starmer maakt plaats voor straatvechter Burnham’](https://www.ad.nl/buitenland/correspondent-over-machtswisseling-in-vk-lego-poppetje-starmer-maakt-plaats-voor-straatvechter-burnham~a3e121ca/)
+  > Het Verenigd Koninkrijk maakt zich op voor een machtswisseling. Maandagmiddag wordt Keir Starmer, die vorige maand onder druk zijn vroegtijdige...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Ryanair boekt winstdaling van 34% na stijging olieprijs](https://fd.nl/bedrijfsleven/1605304/ryanair-boekt-winstdaling-van-34-na-stijging-olieprijs)
-  > De Ierse luchtvaartmaatschappij rapporteert over het eerste kwartaal een winstdaling van 34%. De nettowinst van €538 mln is ruim lager dan analisten...
-- [Spanje stoot Argentinië van de troon als wereldkampioen voetbal](https://fd.nl/samenleving/1605180/spanje-stoot-argentinie-van-de-troon-als-wereldkampioen-voetbal)
-  > Voor de tweede keer in de geschiedenis heeft Spanje zondag het WK voetbal gewonnen. De eerste keer was in 2010, toen het land Nederland versloeg in...
-- [Live: Tech en oliewaarden leiden de AEX omhoog](https://fd.nl/financiele-markten/1605065/live-resultaten-uit-het-verleden-bieden-geen-garantie)
-  > De AEX-index met dertig belangrijke aandelen opende vlak, maar staat nu een klein plusje hoger. De olieprijs steeg maandagochtend tot boven de $90...
-- [Docent Nouhaila El Guebli: ‘Pas je niet in het systeem? Pech voor jou’](https://fd.nl/samenleving/1604440/docent-nouhaila-el-guebli-pas-je-niet-in-het-systeem-pech-voor-jou)
-  > De ambitie van Nouhaila El Guebli om leerlingen vooruit te helpen reikt verder dan het klaslokaal en de TikTok-filmpjes waarmee ze bekend werd.
-- [Asielnoodopvang: megamondkapjesdeal of overheidsfalen](https://fd.nl/economie/1605168/asielnoodopvang-megamondkapjesdeal-of-overheidsfalen-of-cryptoparadijs-palau-laat-handelaren-regels-ontduiken)
-  > Vandaag in de FD Dagkoers podcast: …, Trump verkoopt directe toegang tot zijn posts en Duitsland klaagt over de goedkope Chinese yuan.
+- [Starmer bij vertrek: VK is ‘sterker en eerlijker dan twee jaar terug’](https://fd.nl/politiek/1605188/starmer-bij-vertrek-vk-is-sterker-en-eerlijker-dan-twee-jaar-terug)
+  > De gewezen Britse premier dient zijn ontslag in bij koning Charles, voorafgaand aan de komst van Andy Burnham in Downing Street.
+- [Een onzichtbare koffer](https://fd.nl/samenleving/1605305/een-onzichtbare-koffer)
+  > Ondernemer Souad El Markhous leerde dat leiderschap niets met een functietitel te maken heeft.
+- [AliExpress krijgt boete van €550 mln voor verkoop van illegale en onveilige producten](https://fd.nl/tech-en-innovatie/1605183/aliexpress-krijgt-boete-van-550-mln-voor-verkoop-van-illegale-en-onveilige-producten)
+  > De Europese Commissie geeft de Chinese webshop de hoogste boete ooit onder de Europese regels voor digitale diensten, maar het bedrag blijft nog...
+- [AI-belofte Cusp bundelt krachten met grote namen voor materiaalvinding](https://fd.nl/bedrijfsleven/1605308/ai-belofte-cusp-bundelt-krachten-met-bezos-samsung-en-tu-eindhoven-voor-materiaalvinding)
+  > De Brits-Nederlandse start-up heeft een samenwerkingsverband opgezet met 45 grote bedrijven en instellingen om samen de ontdekking van nieuwe...
+- [Hoe in Leiden de vibe in biotech is verdwenen](https://fd.nl/bedrijfsleven/1600590/malaise-in-leiden-de-vibe-in-biotech-is-verdwenen)
+  > Galapagos was de grote belofte van de Nederlandse biotechsector, maar het bedrijf ging ten onder. In Leiden blijkt dat meer bedrijven die aan nieuwe...
 
 ### Meest gelezen
 
