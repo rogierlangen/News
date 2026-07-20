@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-07-2026 om 20:23*
+*Laatst bijgewerkt: 20-07-2026 om 22:03*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Reddingspoging in Ohio loopt uit op drama: vijf volwassenen verdronken](https://nos.nl/l/2623810)
+  > In de Scioto-rivier in de Amerikaanse staat Ohio zijn vijf mensen verdronken. Een van hen raakte tijdens het zwemmen in de problemen, waarna anderen...
 - [Douaniers mogen strafzaak over stelen informatie in vrijheid afwachten](https://nos.nl/l/2623806)
   > Drie douaniers die in april werden aangehouden op verdenking van het stelen van informatie uit de computersystemen van hun werkgever, mogen hun...
 - [Drukke eerste dag voor Britse premier Burnham: beëdiging, belletjes en benoemingen](https://nos.nl/l/2623803)
@@ -16,8 +18,6 @@
   > De Hongaarse schaakgrootmeester Judit Polgár wil geen president van Hongarije worden. Dat maakte ze vandaag bekend, een dag nadat premier Péter...
 - [Rechter schort overname Warner Bros. door Paramount voorlopig op](https://nos.nl/l/2623801)
   > Een Amerikaanse federale rechter heeft de voorgenomen overname van Warner Bros. Discovery door Paramount Skydance voorlopig opgeschort. De deal mag...
-- [Mexicaanse drugsbaron El Mayo veroordeeld tot levenslang in VS](https://nos.nl/l/2623799)
-  > De Mexicaanse kartelbaas Ismael 'El Mayo' Zambada is in de VS veroordeeld tot een levenslange straf. De aanklagers zeggen dat hij als hoofd van het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Meer dan een miljoen mensen bij huldiging Spanje, Lamine Yamal neemt Argentijnse vechtersbaas op de hak](https://www.ad.nl/wk-voetbal/meer-dan-een-miljoen-mensen-bij-huldiging-spanje-lamine-yamal-neemt-argentijnse-vechtersbaas-op-de-hak~a451a2a9/)
+  > Meer dan een miljoen mensen hebben maandag wereldkampioen Spanje toegejuicht tijdens een parade in een open bus door Madrid. De ploeg van bondscoach...
+- [Dood van Marokkaanse man tijdens arrestatie zorgt voor ophef in Italië](https://www.ad.nl/buitenland/dood-van-marokkaanse-man-tijdens-arrestatie-zorgt-voor-ophef-in-italie~aff1dfd1/)
+  > Een Marokkaanse man is zondag overleden tijdens een arrestatie in de Italiaanse stad Bologna. In Italië zorgde zijn dood voor grote ophef, waarna...
+- [Feyenoord laat Hwang In-Beom naar Portugal vertrekken, club van Farioli maakt transfersom bekend](https://www.ad.nl/voetbal/feyenoord-laat-hwang-in-beom-naar-portugal-vertrekken-club-van-farioli-maakt-transfersom-bekend~a633eaa2/)
+  > Feyenoord heeft afscheid genomen van middenvelder Hwang In-beom. De 29-jarige Zuid-Koreaanse international vertrekt per direct naar de Portugese...
 - [Caroline uit B&B vol liefde hekelt ‘rokersgebit’ van Arie, maar laat haar honden de borden schoonlikken](https://www.ad.nl/show/caroline-uit-benb-vol-liefde-hekelt-rokersgebit-van-arie-maar-laat-haar-honden-de-borden-schoonlikken~ab2c4cfb/)
   > Ja hoor, de eerste aflevering van het nieuwe seizoen van B&B vol liefde is nog geen tien minuten onderweg of er wordt al met eisen gestrooid alsof...
 - [Kunstenaar geeft 100.000 dollar uit aan standbeeld van vermoorde Charlie Kirk, maar niemand wil het hebben](https://www.ad.nl/buitenland/kunstenaar-geeft-100-000-dollar-uit-aan-standbeeld-van-vermoorde-charlie-kirk-maar-niemand-wil-het-hebben~aa49707f/)
   > Een kunstenaar uit New York zit met een peperduur probleem. Sergio Furnari gaf ruim 100.000 dollar van zijn eigen geld uit aan een levensgroot...
-- [WK zit erop, eredivisie komt er weer aan: hoe staat jouw favoriete club ervoor?](https://www.ad.nl/voetbal/wk-zit-erop-eredivisie-komt-er-weer-aan-hoe-staat-jouw-favoriete-club-ervoor~aecd9ece/)
-  > Het gepromoveerde Cambuur en Excelsior trappen de eredivisie 2026/2027 op vrijdag 9 augustus af. Hoe staan alle eredivisieclubs er momenteel voor?...
-- [Kevin Doets ondanks hoog gemiddelde onderuit, straks nog Danny Noppert in actie](https://www.ad.nl/darts/kevin-doets-ondanks-hoog-gemiddelde-onderuit-straks-nog-danny-noppert-in-actie~a5efa262/)
-  > Het belangrijkste toernooi na het WK darts is van start. Aan de World Matchplay (18 tot en met 26 juli), ook wel het ‘zomer-WK’ genoemd, doen acht...
-- [Spaanse kampioenen worden toegejuicht op volgepakt plein, Yamal neemt Paredes op de hak](https://www.ad.nl/wk-voetbal/spaanse-kampioenen-worden-toegejuicht-op-volgepakt-plein-yamal-neemt-paredes-op-de-hak~a451a2a9/)
-  > De voetballers van de Spaanse nationale voetbalploeg zijn terug in eigen land. Een dag na de met 1-0 gewonnen WK-finale tegen Argentinië landde de...
 
 ### Meest gelezen
 
