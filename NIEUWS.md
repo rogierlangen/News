@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-07-2026 om 14:14*
+*Laatst bijgewerkt: 20-07-2026 om 16:26*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Houthi's kondigen maritieme blokkade aan tegen Saudi-Arabië](https://nos.nl/l/2623764)
-  > De Houthi-rebellen in Jemen hebben een maritieme blokkade tegen Saudi-Arabië afgekondigd. Volgens een woordvoerder van de door Iran gesteunde...
-- [Transportsector onderzoekt juridische stappen rond Merwedebrug](https://nos.nl/l/2623761)
-  > Brancheorganisatie Transport en Logistiek Nederland (TLN) onderzoekt of ze juridische stappen kunnen ondernemen vanwege de sluiting van de...
-- [België heeft probleem door vertraging fregatten bij Damen: 'Gaat dit lukken?'](https://nos.nl/l/2623755)
-  > Een groot probleem, noemde de Belgische defensieminister Francken het. De vertraagde levering van de fregatten bij de Nederlandse scheepsbouwer Damen...
-- ['COA dient claim van bijna 200 miljoen in tegen hotelregelaar'](https://nos.nl/l/2623751)
-  > Het Centraal Orgaan opvang asielzoekers (COA) heeft een claim van 184,7 miljoen euro neergelegd bij een bedrijf dat noodopvang regelde voor...
-- [Weer burgemeester van Turkse oppositiepartij opgepakt](https://nos.nl/l/2623749)
-  > Bij een inval bij het stadskantoor van Izmit zijn burgemeester Fatma Kaplan Hürriyet van de Turkse stad en tientallen anderen opgepakt. Het Turkse OM...
+- [Keverplaag teistert inwoners Twents dorp: 'Veeg er 100, 200 per keer op'](https://nos.nl/l/2623783)
+  > Een kopje koffie drinken in de tuin is er even niet meer bij voor een deel van de inwoners van het dorp Westerhaar-Vriezenveensewijk in Twente. De...
+- [Voorlopig geen boetes voor olie- en gasbedrijven die EU-regel voor methaan overtreden](https://nos.nl/l/2623782)
+  > De Europese Commissie adviseert EU-landen voorlopig geen boetes op te leggen aan bedrijven die nieuwe klimaatregels voor de uitstoot van methaan...
+- [Maarssen rouwt om vriendinnen (17 en 18) die omkwamen bij ongeluk](https://nos.nl/l/2623773)
+  > In Maarssen heerst verdriet na het fatale ongeluk waarbij twee jonge vrouwen omkwamen. De voetbalclub waar de vriendinnen Oona (17) en Joann (18)...
+- [Demonstratie in Bologna na overlijden man bij gewelddadige arrestatie](https://nos.nl/l/2623770)
+  > In de Noord-Italiaanse stad Bologna zijn mensen de straat op gegaan na het overlijden van een man bij een arrestatiepoging gisteren. Op beelden is te...
+- [OM eist jaar voorwaardelijke cel tegen Corné H. voor gijzeling gevangenis Vught](https://nos.nl/l/2623766)
+  > Het Openbaar Ministerie heeft een voorwaardelijke gevangenisstraf van een jaar geëist tegen Corné H. voor het gijzelen van twee medewerkers in de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hoe Johan Cruijff in Spanje de stierenvechters verving door balletdansers](https://www.ad.nl/wk-voetbal/hoe-johan-cruijff-in-spanje-de-stierenvechters-verving-door-balletdansers~aa9f9412/)
-  > ‘Als wij de bal hebben, kunnen hun niet scoren.’ De stokoude wijsheid van Johan Cruijff is dit WK vaak geciteerd om het succes van wereldkampioen...
-- [Jessie J en partner uit elkaar: ‘Verdrietige en moeilijke situatie’](https://www.ad.nl/show/jessie-j-en-partner-uit-elkaar-verdrietige-en-moeilijke-situatie~a0be1830/)
-  > Jessie J en haar partner Chanan Colman zijn uit elkaar. De Britse zangeres maakte het nieuws bekend via Instagram. Volgens de 37-jarige Jessie J...
-- [Nicolette heeft ‘Spaanse familie’ en wat bedoelen Jutta en Jake met 1+1=3?](https://www.ad.nl/show/nicolette-heeft-spaanse-familie-en-wat-bedoelen-jutta-en-jake-met-1-1-3~a87fb0b2/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Spaanse voetballers terug in Madrid, volg de huldiging van de wereldkampioen hier](https://www.ad.nl/wk-voetbal/spaanse-voetballers-terug-in-madrid-volg-de-huldiging-van-de-wereldkampioen-hier~a451a2a9/)
-  > De voetballers van de Spaanse nationale voetbalploeg zijn terug in eigen land. Een dag na de met 1-0 gewonnen WK-finale tegen Argentinië landde de...
-- [In het Zuid-Engelse Clacton is het Farage versus Binface, de welbespraakte vuilnisbak](https://www.ad.nl/buitenland/in-het-zuid-engelse-clacton-is-het-farage-versus-binface-de-welbespraakte-vuilnisbak~ab06f002/)
-  > De Britten verkneukelen zich om Count Binface, een comedian verkleed als ruimtewezen met een vuilnisemmer als helm. Meneer Vuilnisbak is de...
+- [Remco Evenepoel denkt nog niet aan aanvallen Pogacar: ‘Ik begin niet te zweven en dromen van ritwinst’](https://www.ad.nl/tour-de-france/remco-evenepoel-denkt-nog-niet-aan-aanvallen-pogacar-ik-begin-niet-te-zweven-en-dromen-van-ritwinst~a0ba6491/)
+  > Remco Evenepoel gaat “niet zweven” nu hij de tweede plaats in de Tour de France bezet. De 26-jarige Belg van Red Bull-Bora-hansgrohe richt zich op...
+- [Teletubbies, ‘sfeerverpestende’ Bieber en totale willekeur: rustshow WK voetbal valt niet in de smaak](https://www.ad.nl/show/teletubbies-sfeerverpestende-bieber-en-totale-willekeur-rustshow-wk-voetbal-valt-niet-in-de-smaak~a3bac0e4/)
+  > Wilde Justin Bieber koste wat het kost de boel tot rust brengen? Zijn twee oud-voetballers getransformeerd tot Teletubbies? Werd AI gebruikt? Er...
+- [Podcast In Het Wiel | ‘Rustdag Q&A: ‘Remco Evenepoel kan zijn lichaam overstemmen’](https://www.ad.nl/tour-de-france/podcast-in-het-wiel-rustdag-qena-remco-evenepoel-kan-zijn-lichaam-overstemmen~a5ea502e/)
+  > Een Q&A op de tweede rustdag van de Tour de France! Jullie stuurden de afgelopen dagen via onze socials vragen in, en die legt Niek Goedvolk in een...
+- [Niemand ontkent het belang van hun bestaan, in de samenleving worden ze juist steeds belangrijker](https://www.ad.nl/binnenland/niemand-ontkent-het-belang-van-hun-bestaan-in-de-samenleving-worden-ze-juist-steeds-belangrijker~a7c44a0e/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [Wie onttroont Spanje? Hier zijn de volgende eindtoernooien (gelukkig in onze tijdzone)](https://www.ad.nl/wk-voetbal/wie-onttroont-spanje-hier-zijn-de-volgende-eindtoernooien-gelukkig-in-onze-tijdzone~a62c46d5/)
+  > Spanje veroverde zondagavond de wereldtitel ten koste van Argentinië en is ook al de regerend Europees kampioen. Over twee jaar kunnen de andere...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Aandeel wolfraamproducent EQ Resources knalt omhoog](https://fd.nl/financiele-markten/1605317/aandeel-wolfraamproducent-eq-resources-knalt-omhoog)
-  > De prijs van wolfraam is in de afgelopen zes maanden zes keer over de kop gegaan.
-- [Een kleine oppepper voor de partners van A&O Shearman](https://fd.nl/financiele-markten/1605169/een-kleine-oppepper-voor-de-partners-van-a-o-shearman)
-  > Het Britse Allen & Overy fuseerde met Shearman & Sterling uit de VS om de Amerikaanse markt te veroveren. Maar om de beste partners aan te trekken en...
-- [Raffinagegebrek houdt prijzen aan de pomp hoog](https://fd.nl/financiele-markten/1605020/raffinagegebrek-houdt-prijzen-aan-de-pomp-hoog)
-  > Door uitval van raffinaderijen en lagere export uit Rusland en China zijn de marges voor raffinaderijen sterk gestegen. In de Perzische Golf draaien...
-- [Burnham belooft ‘nieuw economisch model’ voor Verenigd Koninkrijk](https://fd.nl/politiek/1605189/burnham-belooft-nieuw-economisch-model-voor-verenigd-koninkrijk)
-  > Burnham, tot voor kort burgemeester van Manchester, werd maandag door koning Charles beëdigd als nieuwe Britse premier.
-- [Brussel adviseert: geef schender van methaanregels voorlopig geen boete](https://fd.nl/politiek/1605311/brussel-adviseert-geef-schender-van-methaanregels-voorlopig-geen-boete)
-  > Coulance moet voorkomen dat de levering van olie en gas in het gedrang komt. Onder meer Nederland ziet liever dat de bekritiseerde klimaatregel...
+- [Bedrijven van LA Lakers-eigenaar Mark Walter onderzocht door aanklager](https://fd.nl/bedrijfsleven/1605325/bedrijven-van-la-lakers-eigenaar-mark-walter-onderzocht-door-aanklager)
+  > De miljardair is via zijn holding TWG Global onder meer eigenaar van twee verzekeraars en aandeelhouder in de Guggenheim-investeringsmaatschappij.
+- [‘Verdwenen’ vastgoedman moet gedupeerde belegger vier ton terugbetalen](https://fd.nl/financiele-markten/1605201/verdwenen-vastgoedman-moet-gedupeerde-belegger-vier-ton-terugbetalen)
+  > Een bedrijf uit Brabant lokte beleggers met hoge rendementen op villa’s in Spanje. Ineens was de site uit de lucht en het bedrijf onbereikbaar.
+- [Houthi’s kondigen zeeblokkade Saoedi-Arabië aan](https://fd.nl/politiek/1605203/houthis-kondigen-zeeblokkade-saoedi-arabie-aan)
+  > De rebellen stellen dat de blokkade een reactie is op Saoedische aanvallen op de luchthaven van Sana’a, de hoofdstad van Jemen.
+- [Kledingmerk Reformation wil $239 mln ophalen met beursgang](https://fd.nl/politiek/1605323/kledingmerk-reformation-wil-239-mln-ophalen-met-beursgang)
+  > Het bedrijf uit Californië is van plan 14 miljoen aandelen uit te geven.
+- [Scherpe klassieke denker leidt pensioenfonds nieuw tijdperk in](https://fd.nl/financiele-markten/1604345/scherpe-klassieke-denker-leidt-pensioenfonds-nieuw-tijdperk-in)
+  > Cateautje Hijmans van den Bergh, de nieuwe ceo van pensioenfonds PFZW, staat bekend als een slimme, klassieke denker, die zegt waar het op staat.
 
 ### Meest gelezen
 
