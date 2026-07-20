@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-07-2026 om 11:48*
+*Laatst bijgewerkt: 20-07-2026 om 14:14*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Toch veel vrachtverkeer over onveilige Merwedebrug, ondanks verbod](https://nos.nl/l/2623745)
-  > Hoewel de Merwedebrug sinds afgelopen zaterdag voor onbepaalde tijd dicht is voor alle vrachtverkeer, rijden er nog steeds veel vrachtwagens over de...
-- [Indiase politie zet traangas en wapenstokken in bij Kakkerlakken-protest](https://nos.nl/l/2623743)
-  > Duizenden demonstranten in New Delhi zijn vandaag geclasht met de Indiase politie. Aanhangers van de Kakkerlakken-protestbeweging marcheerden naar...
-- [Burnham beëdigd als Britse premier, Starmer officieel afgezwaaid](https://nos.nl/l/2623742)
-  > Andy Burnham is de nieuwe premier van het Verenigd Koninkrijk. Op Buckingham Palace werd hij beëdigd door koning Charles, die hem formeel heeft...
-- [Fontein stort in bij WK-viering in Spanje, jongen (13) overleden](https://nos.nl/l/2623741)
-  > In het westen van Spanje is een jongen van 13 om het leven gekomen toen hij met andere voetbalfans de overwinning vierde van Spanje in de WK-finale.
-...
-- [AliExpress krijgt Europese boete van 550 miljoen voor verkoop illegale producten](https://nos.nl/l/2623734)
-  > De Europese Commissie legt de Chinese webwinkel AliExpress een boete op van 550 miljoen euro, omdat het bedrijf onvoldoende zijn best doet om de...
+- [Houthi's kondigen maritieme blokkade aan tegen Saudi-Arabië](https://nos.nl/l/2623764)
+  > De Houthi-rebellen in Jemen hebben een maritieme blokkade tegen Saudi-Arabië afgekondigd. Volgens een woordvoerder van de door Iran gesteunde...
+- [Transportsector onderzoekt juridische stappen rond Merwedebrug](https://nos.nl/l/2623761)
+  > Brancheorganisatie Transport en Logistiek Nederland (TLN) onderzoekt of ze juridische stappen kunnen ondernemen vanwege de sluiting van de...
+- [België heeft probleem door vertraging fregatten bij Damen: 'Gaat dit lukken?'](https://nos.nl/l/2623755)
+  > Een groot probleem, noemde de Belgische defensieminister Francken het. De vertraagde levering van de fregatten bij de Nederlandse scheepsbouwer Damen...
+- ['COA dient claim van bijna 200 miljoen in tegen hotelregelaar'](https://nos.nl/l/2623751)
+  > Het Centraal Orgaan opvang asielzoekers (COA) heeft een claim van 184,7 miljoen euro neergelegd bij een bedrijf dat noodopvang regelde voor...
+- [Weer burgemeester van Turkse oppositiepartij opgepakt](https://nos.nl/l/2623749)
+  > Bij een inval bij het stadskantoor van Izmit zijn burgemeester Fatma Kaplan Hürriyet van de Turkse stad en tientallen anderen opgepakt. Het Turkse OM...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Voorbereiding eredivisie | Fred Rutten stopt na vijf jaar met functie bij NEC, contractloze Boadu met PSV mee op trainingskamp](https://www.ad.nl/voetbal/voorbereiding-eredivisie-fred-rutten-stopt-na-vijf-jaar-met-functie-bij-nec-contractloze-boadu-met-psv-mee-op-trainingskamp~ab5071ea/)
-  > De eredivisieclubs zijn begonnen aan de voorbereiding op het nieuwe seizoen. In dit artikel lees je het programma en alle uitslagen per club. Onder...
-- [NEC tegen Griekse nummer 2 in voorronde CL, FC Twente mogelijk naar Turkije of Polen, straks ook Ajax](https://www.ad.nl/voetbal/nec-tegen-griekse-nummer-2-in-voorronde-cl-fc-twente-mogelijk-naar-turkije-of-polen-straks-ook-ajax~a8cdccb9/)
-  > NEC, FC Twente en Ajax gaan vanmiddag de koker in voor hun (mogelijke) opponenten in de Europese voorronden. Volg hier live aan welke clubs ze...
-- [Waarom smart-tv’s goedkoper worden, maar jij steeds vaker het verdienmodel bent](https://www.ad.nl/tech/waarom-smart-tvs-goedkoper-worden-maar-jij-steeds-vaker-het-verdienmodel-bent~a631611a7/)
-  > Mag het een inchje meer zijn? Tegenwoordig wel: tv’s van 75 inch die tot voor kort alleen bij verstokte vrijgezellen aan de muur pronkten, worden...
-- [Ramiz Zerrouki verruilt Feyenoord definitief voor FC Twente: ‘Niet alles is uitgepakt zoals gehoopt’](https://www.ad.nl/enschede/ramiz-zerrouki-verruilt-feyenoord-definitief-voor-fc-twente-niet-alles-is-uitgepakt-zoals-gehoopt~add6d925/)
-  > Ramiz Zerrouki vertrekt bij Feyenoord. De 28-jarige Algerijnse middenvelder maakt de overstap naar FC Twente, dat hem vorig seizoen al huurde van de...
-- [Correspondent over machtswisseling in VK: ‘Lego-poppetje Starmer maakt plaats voor straatvechter Burnham’](https://www.ad.nl/buitenland/correspondent-over-machtswisseling-in-vk-lego-poppetje-starmer-maakt-plaats-voor-straatvechter-burnham~a3e121ca/)
-  > Het Verenigd Koninkrijk maakt zich op voor een machtswisseling. Maandagmiddag wordt Keir Starmer, die vorige maand onder druk zijn vroegtijdige...
+- [Hoe Johan Cruijff in Spanje de stierenvechters verving door balletdansers](https://www.ad.nl/wk-voetbal/hoe-johan-cruijff-in-spanje-de-stierenvechters-verving-door-balletdansers~aa9f9412/)
+  > ‘Als wij de bal hebben, kunnen hun niet scoren.’ De stokoude wijsheid van Johan Cruijff is dit WK vaak geciteerd om het succes van wereldkampioen...
+- [Jessie J en partner uit elkaar: ‘Verdrietige en moeilijke situatie’](https://www.ad.nl/show/jessie-j-en-partner-uit-elkaar-verdrietige-en-moeilijke-situatie~a0be1830/)
+  > Jessie J en haar partner Chanan Colman zijn uit elkaar. De Britse zangeres maakte het nieuws bekend via Instagram. Volgens de 37-jarige Jessie J...
+- [Nicolette heeft ‘Spaanse familie’ en wat bedoelen Jutta en Jake met 1+1=3?](https://www.ad.nl/show/nicolette-heeft-spaanse-familie-en-wat-bedoelen-jutta-en-jake-met-1-1-3~a87fb0b2/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Spaanse voetballers terug in Madrid, volg de huldiging van de wereldkampioen hier](https://www.ad.nl/wk-voetbal/spaanse-voetballers-terug-in-madrid-volg-de-huldiging-van-de-wereldkampioen-hier~a451a2a9/)
+  > De voetballers van de Spaanse nationale voetbalploeg zijn terug in eigen land. Een dag na de met 1-0 gewonnen WK-finale tegen Argentinië landde de...
+- [In het Zuid-Engelse Clacton is het Farage versus Binface, de welbespraakte vuilnisbak](https://www.ad.nl/buitenland/in-het-zuid-engelse-clacton-is-het-farage-versus-binface-de-welbespraakte-vuilnisbak~ab06f002/)
+  > De Britten verkneukelen zich om Count Binface, een comedian verkleed als ruimtewezen met een vuilnisemmer als helm. Meneer Vuilnisbak is de...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Starmer bij vertrek: VK is ‘sterker en eerlijker dan twee jaar terug’](https://fd.nl/politiek/1605188/starmer-bij-vertrek-vk-is-sterker-en-eerlijker-dan-twee-jaar-terug)
-  > De gewezen Britse premier dient zijn ontslag in bij koning Charles, voorafgaand aan de komst van Andy Burnham in Downing Street.
-- [Een onzichtbare koffer](https://fd.nl/samenleving/1605305/een-onzichtbare-koffer)
-  > Ondernemer Souad El Markhous leerde dat leiderschap niets met een functietitel te maken heeft.
-- [AliExpress krijgt boete van €550 mln voor verkoop van illegale en onveilige producten](https://fd.nl/tech-en-innovatie/1605183/aliexpress-krijgt-boete-van-550-mln-voor-verkoop-van-illegale-en-onveilige-producten)
-  > De Europese Commissie geeft de Chinese webshop de hoogste boete ooit onder de Europese regels voor digitale diensten, maar het bedrag blijft nog...
-- [AI-belofte Cusp bundelt krachten met grote namen voor materiaalvinding](https://fd.nl/bedrijfsleven/1605308/ai-belofte-cusp-bundelt-krachten-met-bezos-samsung-en-tu-eindhoven-voor-materiaalvinding)
-  > De Brits-Nederlandse start-up heeft een samenwerkingsverband opgezet met 45 grote bedrijven en instellingen om samen de ontdekking van nieuwe...
-- [Hoe in Leiden de vibe in biotech is verdwenen](https://fd.nl/bedrijfsleven/1600590/malaise-in-leiden-de-vibe-in-biotech-is-verdwenen)
-  > Galapagos was de grote belofte van de Nederlandse biotechsector, maar het bedrijf ging ten onder. In Leiden blijkt dat meer bedrijven die aan nieuwe...
+- [Aandeel wolfraamproducent EQ Resources knalt omhoog](https://fd.nl/financiele-markten/1605317/aandeel-wolfraamproducent-eq-resources-knalt-omhoog)
+  > De prijs van wolfraam is in de afgelopen zes maanden zes keer over de kop gegaan.
+- [Een kleine oppepper voor de partners van A&O Shearman](https://fd.nl/financiele-markten/1605169/een-kleine-oppepper-voor-de-partners-van-a-o-shearman)
+  > Het Britse Allen & Overy fuseerde met Shearman & Sterling uit de VS om de Amerikaanse markt te veroveren. Maar om de beste partners aan te trekken en...
+- [Raffinagegebrek houdt prijzen aan de pomp hoog](https://fd.nl/financiele-markten/1605020/raffinagegebrek-houdt-prijzen-aan-de-pomp-hoog)
+  > Door uitval van raffinaderijen en lagere export uit Rusland en China zijn de marges voor raffinaderijen sterk gestegen. In de Perzische Golf draaien...
+- [Burnham belooft ‘nieuw economisch model’ voor Verenigd Koninkrijk](https://fd.nl/politiek/1605189/burnham-belooft-nieuw-economisch-model-voor-verenigd-koninkrijk)
+  > Burnham, tot voor kort burgemeester van Manchester, werd maandag door koning Charles beëdigd als nieuwe Britse premier.
+- [Brussel adviseert: geef schender van methaanregels voorlopig geen boete](https://fd.nl/politiek/1605311/brussel-adviseert-geef-schender-van-methaanregels-voorlopig-geen-boete)
+  > Coulance moet voorkomen dat de levering van olie en gas in het gedrang komt. Onder meer Nederland ziet liever dat de bekritiseerde klimaatregel...
 
 ### Meest gelezen
 
