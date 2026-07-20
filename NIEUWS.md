@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-07-2026 om 22:59*
+*Laatst bijgewerkt: 20-07-2026 om 00:05*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Trotse Argentijnen in Buenos Aires, ondanks het verlies van hun helden: ‘Dit was de laatste dans’](https://www.ad.nl/buitenland/trotse-argentijnen-in-buenos-aires-ondanks-het-verlies-van-hun-helden-dit-was-de-laatste-dans~ab6b3651/)
+  > Het zat er vandaag gewoon echt niet in. Spanje was veel te sterk in de finale. Dat gevoel overheerst ook in de straten van Buenos Aires. „We vierden...
 - [Donald Trump reikt WK-trofee uit aan Spanje en krijgt subtiel duwtje als hij in de schijnwerpers probeert te blijven](https://www.ad.nl/wk-voetbal/donald-trump-reikt-wk-trofee-uit-aan-spanje-en-krijgt-subtiel-duwtje-als-hij-in-de-schijnwerpers-probeert-te-blijven~a7dc381d/)
-  > De Amerikaanse president Donald Trump heeft de WK-trofee uitgereikt. Hij liep onder een luid fluitconcert het veld op van het New York New Jersey...
+  > De Amerikaanse president Donald Trump heeft de WK-trofee uitgereikt. Hij liep onder een luid fluitconcert het veld op van MetLife Stadium.
 - [Individuele prijzen voor Spaanse spelers, Fair Play Award voor Nederlands elftal](https://www.ad.nl/wk-voetbal/individuele-prijzen-voor-spaanse-spelers-fair-play-award-voor-nederlands-elftal~a4683520/)
   > Na de WK-finale tussen Spanje en Argentinië werden ook de individuele prijzen van het WK 2026 uitgereikt.
 - [Hongaarse premier wil ​​schaaklegende Judit Polgár als nieuwe president](https://www.ad.nl/buitenland/hongaarse-premier-wil-schaaklegende-judit-polgar-als-nieuwe-president~a1b7b777/)
   > De Hongaarse premier Peter Magyar heeft schaaklegende Judit Polgár voorgedragen als de volgende president van Hongarije. Volgens hem heeft het land...
 - [Vlam in de pan na afloop: Argentijnen vliegen Spaanse spelers in de haren](https://www.ad.nl/wk-voetbal/vlam-in-de-pan-na-afloop-argentijnen-vliegen-spaanse-spelers-in-de-haren~aa2dea6c/)
-  > Leandro Paredes heeft zich na het fluitsignaal van de WK-finale ernstig misdragen. De Argentijn greep Spanjaard Eric Garcia bij zijn nek en duwde...
-- [Uniek! Kylian Mbappé is voor tweede keer WK-topscorer en ook all-time topschutter](https://www.ad.nl/wk-voetbal/uniek-kylian-mbappe-is-voor-tweede-keer-wk-topscorer-en-ook-all-time-topschutter~ad0e6ff9/)
-  > De strijd om de topscorerstitel heeft zijn climax bereikt. De tien treffers van Kylian Mbappé bleken genoeg. De Fransman is de eerste speler die op...
+  > Leandro Paredes heeft zich na het fluitsignaal van de WK-finale ernstig misdragen. De Argentijnse middenvelder greep Eric García bij zijn nek en...
 
 ### Meest gelezen
 
