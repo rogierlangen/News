@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-07-2026 om 00:05*
+*Laatst bijgewerkt: 20-07-2026 om 04:37*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Wekdienst 20/7: Weer een nieuwe premier in het VK • Rechtszaak om gijzeling gevangenispersoneel](https://nos.nl/l/2623701)
+  > Goedemorgen! Het Verenigd Koninkrijk krijgt zijn zevende premier in tien jaar en de man die in een café in Ede een aantal mensen gijzelde, staat nu...
+- [FDA: testuitslag die sla linkte aan diarree-uitbraak in VS was valspositief](https://nos.nl/l/2623700)
+  > Een monster van gesneden ijsbergsla van een Amerikaans bedrijf is afgelopen week ten onrechte gelinkt aan een grote diarree-uitbraak in de Verenigde...
+- [Twee doden bij auto-ongeluk in Dirksland, Zuid-Holland](https://nos.nl/l/2623699)
+  > Bij een auto-ongeluk in Dirksland, in de Zuid-Hollandse gemeente Goeree-Overflakkee, zijn vannacht twee mensen om het leven gekomen. Een derde...
+- [Vijf doden en vijf vermisten na Russische aanval op vrachtschip in Zwarte Zee](https://nos.nl/l/2623697)
+  > Bij een Russische aanval op een vrachtschip voor de kust van Odesa in Oekraïne zijn zeker vijf mensen om het leven gekomen, melden Oekraïense...
 - [Hongaarse premier Magyar gaat schaaklegende voordragen als nieuwe president](https://nos.nl/l/2623691)
   > De Hongaarse premier Péter Magyar gaat schaaklegende Judit Polgár voordragen als president van het land. In een bericht op Facebook schrijft hij dat...
-- [Nederlander (59) vast voor dodelijke schietpartij bij nachtclub Antwerpen](https://nos.nl/l/2623672)
-  > De Belgische politie heeft een 59-jarige Nederlander aangehouden voor een dodelijke schietpartij bij een nachtclub in Antwerpen. Het zou gaan om...
-- [Berlijn wil nazibunker slopen om woningen te bouwen, historici kritisch](https://nos.nl/l/2623662)
-  > In het hart van Berlijn ligt al decennia een braakliggend terrein, tussen toeristische trekpleisters als de Brandenburger Tor en Potsdamer Platz. Dat...
-- [Opvallende 'ronde' wasbeer uit Seattle groeit uit tot internetsensatie](https://nos.nl/l/2623654)
-  > Een opvallend uitziende wasbeer uit de Amerikaanse stad Seattle is in korte tijd uitgegroeid tot een internetsensatie. Filmpjes van het dier, dat de...
-- [Scheepsbouwer Damen verliest mogelijk Belgische fregattenorder](https://nos.nl/l/2623643)
-  > België overweegt een order voor twee oorlogsschepen bij de Nederlandse scheepsbouwer Damen in te trekken. Dat kan opnieuw een grote tegenslag...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Trotse Argentijnen in Buenos Aires, ondanks het verlies van hun helden: ‘Dit was de laatste dans’](https://www.ad.nl/buitenland/trotse-argentijnen-in-buenos-aires-ondanks-het-verlies-van-hun-helden-dit-was-de-laatste-dans~ab6b3651/)
-  > Het zat er vandaag gewoon echt niet in. Spanje was veel te sterk in de finale. Dat gevoel overheerst ook in de straten van Buenos Aires. „We vierden...
-- [Donald Trump reikt WK-trofee uit aan Spanje en krijgt subtiel duwtje als hij in de schijnwerpers probeert te blijven](https://www.ad.nl/wk-voetbal/donald-trump-reikt-wk-trofee-uit-aan-spanje-en-krijgt-subtiel-duwtje-als-hij-in-de-schijnwerpers-probeert-te-blijven~a7dc381d/)
-  > De Amerikaanse president Donald Trump heeft de WK-trofee uitgereikt. Hij liep onder een luid fluitconcert het veld op van MetLife Stadium.
-- [Individuele prijzen voor Spaanse spelers, Fair Play Award voor Nederlands elftal](https://www.ad.nl/wk-voetbal/individuele-prijzen-voor-spaanse-spelers-fair-play-award-voor-nederlands-elftal~a4683520/)
-  > Na de WK-finale tussen Spanje en Argentinië werden ook de individuele prijzen van het WK 2026 uitgereikt.
-- [Hongaarse premier wil ​​schaaklegende Judit Polgár als nieuwe president](https://www.ad.nl/buitenland/hongaarse-premier-wil-schaaklegende-judit-polgar-als-nieuwe-president~a1b7b777/)
-  > De Hongaarse premier Peter Magyar heeft schaaklegende Judit Polgár voorgedragen als de volgende president van Hongarije. Volgens hem heeft het land...
-- [Vlam in de pan na afloop: Argentijnen vliegen Spaanse spelers in de haren](https://www.ad.nl/wk-voetbal/vlam-in-de-pan-na-afloop-argentijnen-vliegen-spaanse-spelers-in-de-haren~aa2dea6c/)
-  > Leandro Paredes heeft zich na het fluitsignaal van de WK-finale ernstig misdragen. De Argentijnse middenvelder greep Eric García bij zijn nek en...
+- [Lionel Messi in tranen en Spanjaard geeft medaille aan mama: dit gebeurde op het WK terwijl jij sliep](https://www.ad.nl/wk-voetbal/lionel-messi-in-tranen-en-spanjaard-geeft-medaille-aan-mama-dit-gebeurde-op-het-wk-terwijl-jij-sliep~ab9879f7/)
+  > Het zit erop: na 104 WK-duels heeft Spanje zich ten koste van Argentinië gekroond tot wereldkampioen (1-0). De afgelopen zes weken hielden we je...
+- [Oekraïne vuurt meer dan 400 drones af richting Moskou](https://www.ad.nl/buitenland/oekraine-vuurt-meer-dan-400-drones-af-richting-moskou~adfb97be/)
+  > Oekraïne heeft in de nacht van zondag op maandag meer dan vierhonderd drones afgevuurd op Rusland. De meeste van de onbemande vliegtuigen die...
+- [Pasgeboren baby’s en hun moeders worden deze zomer in veertien nieuwe kraamhotels verzorgd](https://www.ad.nl/binnenland/pasgeboren-babys-en-hun-moeders-worden-deze-zomer-in-veertien-nieuwe-kraamhotels-verzorgd~a8b48b94/)
+  > Om de nijpende tekorten in de kraamzorg op te vangen, openen zorgverzekeraars deze zomer veertien nieuwe kraamhotels verspreid over Nederland. Daar...
+- [Premier Burnham wil er zijn voor ‘de gewone man’](https://www.ad.nl/buitenland/premier-burnham-wil-er-zijn-voor-de-gewone-man~ad7f994b/)
+  > Andy Burnham volgt maandag Keir Starmer op als premier van het Verenigd Koninkrijk. Met olie- en gasboringen op de Noordzee, lagere ov-prijzen en een...
+- [Eerst samen gamen, daarna chantage, doodsbedreigingen en politie met getrokken wapens](https://www.ad.nl/binnenland/eerst-samen-gamen-daarna-chantage-doodsbedreigingen-en-politie-met-getrokken-wapens~ab1f53fc/)
+  > ‘Ricky owns me’, schreef Dana (17) met een markeerstift op haar eigen been. Maar Ricky eiste ook dat ze zijn naam in haar lichaam zou kerven en...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Docent Nouhaila El Guebli: ‘Pas je niet in het systeem? Pech voor jou’](https://fd.nl/samenleving/1604440/docent-nouhaila-el-guebli-pas-je-niet-in-het-systeem-pech-voor-jou)
+  > De ambitie van Nouhaila El Guebli om leerlingen vooruit te helpen reikt verder dan het klaslokaal en de TikTok-filmpjes waarmee ze bekend werd.
+- [Asielnoodopvang: megamondkapjesdeal of overheidsfalen? /of/ Cryptoparadijs Palau laat handelaren regels ontduiken](https://fd.nl/economie/1605168/asielnoodopvang-megamondkapjesdeal-of-overheidsfalen-of-cryptoparadijs-palau-laat-handelaren-regels-ontduiken)
+  > Vandaag in de FD Dagkoers podcast: …, Trump verkoopt directe toegang tot zijn posts en Duitsland klaagt over de goedkope Chinese yuan.
 - [Begroten op groei](https://fd.nl/opinie/1605166/begroten-op-groei)
   > Wie investeringen afknijpt om nu de begroting op orde te krijgen, ondermijnt de belastinginkomsten van later.
 - [Onlinesuper Picnic eindigt jaar met verlies door forse investeringen](https://fd.nl/bedrijfsleven/1605163/onlinesuper-picnic-eindigt-jaar-met-verlies-door-forse-investeringen)
   > Tien jaar na de oprichting groeit onlinesupermarkt Picnic nog steeds hard. Maar onder de streep rest nog altijd een nettoverlies, vorig jaar van €272...
 - [COA eist bijna €200 mln van fraudeverdachte en ex-zakenpartner René Derksen](https://fd.nl/bedrijfsleven/1604341/coa-eist-bijna-200-mln-van-fraudeverdachte-en-ex-zakenpartner-rene-derksen)
   > Het COA heeft beslag gelegd op de woning van Derksen, die al twee jaar verdachte is in een fraudezaak over de asielopvang die hij regelde. De claim...
-- [Ongelijke zorg begint nog steeds in de wieg](https://fd.nl/opinie/1603582/ongelijke-zorg-begint-nog-steeds-in-de-wieg)
-  > In economisch zwakkere wijken is de babysterfte nog altijd twee keer zo hoog als in de rest van Nederland. Baby’s  worden daar vaker te vroeg geboren...
-- [Personalia maandag 20 juli](https://fd.nl/bedrijfsleven/1605063/personalia-maandag-20-juli)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
