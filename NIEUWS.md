@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-07-2026 om 04:37*
+*Laatst bijgewerkt: 20-07-2026 om 08:08*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Wekdienst 20/7: Weer een nieuwe premier in het VK • Rechtszaak om gijzeling gevangenispersoneel](https://nos.nl/l/2623701)
-  > Goedemorgen! Het Verenigd Koninkrijk krijgt zijn zevende premier in tien jaar en de man die in een café in Ede een aantal mensen gijzelde, staat nu...
-- [FDA: testuitslag die sla linkte aan diarree-uitbraak in VS was valspositief](https://nos.nl/l/2623700)
-  > Een monster van gesneden ijsbergsla van een Amerikaans bedrijf is afgelopen week ten onrechte gelinkt aan een grote diarree-uitbraak in de Verenigde...
-- [Twee doden bij auto-ongeluk in Dirksland, Zuid-Holland](https://nos.nl/l/2623699)
-  > Bij een auto-ongeluk in Dirksland, in de Zuid-Hollandse gemeente Goeree-Overflakkee, zijn vannacht twee mensen om het leven gekomen. Een derde...
-- [Vijf doden en vijf vermisten na Russische aanval op vrachtschip in Zwarte Zee](https://nos.nl/l/2623697)
-  > Bij een Russische aanval op een vrachtschip voor de kust van Odesa in Oekraïne zijn zeker vijf mensen om het leven gekomen, melden Oekraïense...
-- [Hongaarse premier Magyar gaat schaaklegende voordragen als nieuwe president](https://nos.nl/l/2623691)
-  > De Hongaarse premier Péter Magyar gaat schaaklegende Judit Polgár voordragen als president van het land. In een bericht op Facebook schrijft hij dat...
+- [VS en Iran blijven elkaar aanvallen, olieprijs verder omhoog](https://nos.nl/l/2623719)
+  > De VS heeft voor de negende nacht op rij Iran aangevallen. Iran heeft op zijn beurt Bahrein aangevallen, waar de Amerikaanse marine een basis heeft....
+- [Twee jongeren omgekomen bij ongeluk in Maarssen](https://nos.nl/l/2623717)
+  > Bij een ongeluk in Maarssen zijn gisteravond twee jonge vrouwen van 18 en 17 jaar om het leven gekomen.
+        De hulpdiensten kregen om 22.45 uur...
+- [Wegen, bruggen en viaducten aan vervanging toe; zomer vol files en sluipverkeer](https://nos.nl/l/2623713)
+  > Honderden kilometers aan nieuw asfalt worden deze zomer aangelegd in Nederland. Het is einde levensduur voor veel wegen, viaducten en bruggen. Was...
+- [Tientallen mensen vermist na kapseizen veerboot in Guyana](https://nos.nl/l/2623712)
+  > In het Zuid-Amerikaanse Guyana zijn vrijwel zeker tientallen mensen omgekomen na het kapseizen zaterdag van een veerboot. Sinds gistermiddag zijn er...
+- [Ontsnapte wallaby in Middenmeer weer gevangen](https://nos.nl/l/2623709)
+  > De ontsnapte wallaby die gisteren in het Noord-Hollandse Middenmeer rondliep, is gevangen en weer veilig thuis. Dat schrijft de politie op sociale...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Lionel Messi in tranen en Spanjaard geeft medaille aan mama: dit gebeurde op het WK terwijl jij sliep](https://www.ad.nl/wk-voetbal/lionel-messi-in-tranen-en-spanjaard-geeft-medaille-aan-mama-dit-gebeurde-op-het-wk-terwijl-jij-sliep~ab9879f7/)
-  > Het zit erop: na 104 WK-duels heeft Spanje zich ten koste van Argentinië gekroond tot wereldkampioen (1-0). De afgelopen zes weken hielden we je...
-- [Oekraïne vuurt meer dan 400 drones af richting Moskou](https://www.ad.nl/buitenland/oekraine-vuurt-meer-dan-400-drones-af-richting-moskou~adfb97be/)
-  > Oekraïne heeft in de nacht van zondag op maandag meer dan vierhonderd drones afgevuurd op Rusland. De meeste van de onbemande vliegtuigen die...
-- [Pasgeboren baby’s en hun moeders worden deze zomer in veertien nieuwe kraamhotels verzorgd](https://www.ad.nl/binnenland/pasgeboren-babys-en-hun-moeders-worden-deze-zomer-in-veertien-nieuwe-kraamhotels-verzorgd~a8b48b94/)
-  > Om de nijpende tekorten in de kraamzorg op te vangen, openen zorgverzekeraars deze zomer veertien nieuwe kraamhotels verspreid over Nederland. Daar...
-- [Premier Burnham wil er zijn voor ‘de gewone man’](https://www.ad.nl/buitenland/premier-burnham-wil-er-zijn-voor-de-gewone-man~ad7f994b/)
-  > Andy Burnham volgt maandag Keir Starmer op als premier van het Verenigd Koninkrijk. Met olie- en gasboringen op de Noordzee, lagere ov-prijzen en een...
-- [Eerst samen gamen, daarna chantage, doodsbedreigingen en politie met getrokken wapens](https://www.ad.nl/binnenland/eerst-samen-gamen-daarna-chantage-doodsbedreigingen-en-politie-met-getrokken-wapens~ab1f53fc/)
-  > ‘Ricky owns me’, schreef Dana (17) met een markeerstift op haar eigen been. Maar Ricky eiste ook dat ze zijn naam in haar lichaam zou kerven en...
+- [Ad herkent al zijn 200 duiven aan hun gezichtsuitdrukking: ‘Jij haalt je vader en moeder toch ook uit elkaar?’](https://www.ad.nl/binnenland/ad-herkent-al-zijn-200-duiven-aan-hun-gezichtsuitdrukking-jij-haalt-je-vader-en-moeder-toch-ook-uit-elkaar~afda021b/)
+  > De achtertuin van Ad Fortuin (65) stikt van de duiven. Tweehonderd om precies te zijn, en hij kan ze stuk voor stuk herkennen. Vorige week bewees een...
+- [Argentijnse knokker misdroeg zich vier jaar geleden ook al tegen Oranje: ‘Een bom die elk moment kan exploderen’](https://www.ad.nl/wk-voetbal/argentijnse-knokker-misdroeg-zich-vier-jaar-geleden-ook-al-tegen-oranje-een-bom-die-elk-moment-kan-exploderen~a41fa0ad/)
+  > Leandro Paredes greep de hoofdrol na de WK-finale tussen Argentinië en Spanje, en precies op de manier die bij hem past: de stoppen sloegen door en...
+- [‘Die korte nacht was nergens goed voor, maar of dat nu de reden was?’: Jonas Vingegaard reageert voor het eerst na zware crash](https://www.ad.nl/tour-de-france/die-korte-nacht-was-nergens-goed-voor-maar-of-dat-nu-de-reden-was-jonas-vingegaard-reageert-voor-het-eerst-na-zware-crash~a7da1847/)
+  > Jonas Vingegaard (29) heeft gisteravond voor het eerst gereageerd op zijn valpartij, waardoor hij een sleutelbeenbreuk opliep en de Tour de France...
+- [Geen hinder meer voor vakantieverkeer: meeste bosbranden Frankrijk en Spanje onder controle](https://www.ad.nl/buitenland/geen-hinder-meer-voor-vakantieverkeer-meeste-bosbranden-frankrijk-en-spanje-onder-controle~a4195717/)
+  > Vakantiegangers in Frankrijk en Spanje ondervonden vorige week hinder door de grote bosbranden in de landen. Zo werd de route Route du Soleil, de...
+- [Vandaag loting: dit zijn de mogelijke opponenten van NEC, FC Twente en Ajax in Europese voorronde](https://www.ad.nl/voetbal/vandaag-loting-dit-zijn-de-mogelijke-opponenten-van-nec-fc-twente-en-ajax-in-europese-voorronde~a8cdccb9/)
+  > NEC, FC Twente en Ajax gaan vanmiddag de koker in voor hun (mogelijke) opponenten in de Europese voorronden. Bekijk hier aan welke clubs ze gekoppeld...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Ryanair boekt winstdaling van 34% na stijging olieprijs](https://fd.nl/bedrijfsleven/1605304/ryanair-boekt-winstdaling-van-34-na-stijging-olieprijs)
+  > De Ierse luchtvaartmaatschappij rapporteert over het eerste kwartaal een winstdaling van 34%. De nettowinst van €538 mln is ruim lager dan analisten...
+- [Spanje stoot Argentinië van de troon als wereldkampioen voetbal](https://fd.nl/samenleving/1605180/spanje-stoot-argentinie-van-de-troon-als-wereldkampioen-voetbal)
+  > Voor de tweede keer in de geschiedenis heeft Spanje zondag het WK voetbal gewonnen. De eerste keer was in 2010, toen het land Nederland versloeg in...
+- [Live: Tech en oliewaarden leiden de AEX omhoog](https://fd.nl/financiele-markten/1605065/live-resultaten-uit-het-verleden-bieden-geen-garantie)
+  > De AEX-index met dertig belangrijke aandelen opende vlak, maar staat nu een klein plusje hoger. De olieprijs steeg maandagochtend tot boven de $90...
 - [Docent Nouhaila El Guebli: ‘Pas je niet in het systeem? Pech voor jou’](https://fd.nl/samenleving/1604440/docent-nouhaila-el-guebli-pas-je-niet-in-het-systeem-pech-voor-jou)
   > De ambitie van Nouhaila El Guebli om leerlingen vooruit te helpen reikt verder dan het klaslokaal en de TikTok-filmpjes waarmee ze bekend werd.
-- [Asielnoodopvang: megamondkapjesdeal of overheidsfalen? /of/ Cryptoparadijs Palau laat handelaren regels ontduiken](https://fd.nl/economie/1605168/asielnoodopvang-megamondkapjesdeal-of-overheidsfalen-of-cryptoparadijs-palau-laat-handelaren-regels-ontduiken)
+- [Asielnoodopvang: megamondkapjesdeal of overheidsfalen](https://fd.nl/economie/1605168/asielnoodopvang-megamondkapjesdeal-of-overheidsfalen-of-cryptoparadijs-palau-laat-handelaren-regels-ontduiken)
   > Vandaag in de FD Dagkoers podcast: …, Trump verkoopt directe toegang tot zijn posts en Duitsland klaagt over de goedkope Chinese yuan.
-- [Begroten op groei](https://fd.nl/opinie/1605166/begroten-op-groei)
-  > Wie investeringen afknijpt om nu de begroting op orde te krijgen, ondermijnt de belastinginkomsten van later.
-- [Onlinesuper Picnic eindigt jaar met verlies door forse investeringen](https://fd.nl/bedrijfsleven/1605163/onlinesuper-picnic-eindigt-jaar-met-verlies-door-forse-investeringen)
-  > Tien jaar na de oprichting groeit onlinesupermarkt Picnic nog steeds hard. Maar onder de streep rest nog altijd een nettoverlies, vorig jaar van €272...
-- [COA eist bijna €200 mln van fraudeverdachte en ex-zakenpartner René Derksen](https://fd.nl/bedrijfsleven/1604341/coa-eist-bijna-200-mln-van-fraudeverdachte-en-ex-zakenpartner-rene-derksen)
-  > Het COA heeft beslag gelegd op de woning van Derksen, die al twee jaar verdachte is in een fraudezaak over de asielopvang die hij regelde. De claim...
 
 ### Meest gelezen
 
