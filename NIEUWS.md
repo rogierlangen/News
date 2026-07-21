@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-07-2026 om 18:16*
+*Laatst bijgewerkt: 21-07-2026 om 20:19*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Meerdere aanvaringen bij Friese zeilwedstrijd skûtsjesilen](https://nos.nl/l/2623916)
-  > Bij het skûtsjesilen in Friesland zijn vandaag drie aanvaringen geweest. Bij een van de botsingen moest het publiek snel uitwijken, schrijft Omrop...
-- [Geen bier of schnaps meer op Duitse stations, spoorbedrijf is geweld beu](https://nos.nl/l/2623915)
-  > Het wordt verboden om op stations in Duitsland alcohol te drinken. Na een incident waarbij een controleur zwaargewond raakte is de maat vol voor...
-- [Ali B spreker op ondernemersevenement ondanks veroordeling wegens verkrachting](https://nos.nl/l/2623914)
-  > Rapper Ali B is nog geen drie maanden na zijn veroordeling wegens verkrachting spreker op een ondernemersbijenkomst in Vinkeveen. Bij het...
-- [Ongeruste boeren bijeen over stikstofplannen: 'We zijn bereid tot actie'](https://nos.nl/l/2623913)
-  > In Hardenberg komen vanavond zo'n honderd boeren bij elkaar om de stikstofplannen van het kabinet te bespreken. "We gaan de brief van het kabinet...
-- [Spanje wil roken op terrassen verbieden en regels voor vapes aanscherpen](https://nos.nl/l/2623911)
-  > De Spaanse regering wil roken op terrassen van cafés en restaurants verbieden. Ook moeten e-sigaretten en andere rook- en dampproducten straks aan...
+- [President Zelensky stuurt ook legerchef Syrsky weg](https://nos.nl/l/2623927)
+  > De Oekraïense commandant der strijdkrachten Oleksandr Syrsky wordt ontslagen. President Zelensky heeft dat bekendgemaakt op sociale media, zonder...
+- [Smithsonian bijt van zich af na kritiek van Witte Huis: 'We moeten hele verhaal vertellen'](https://nos.nl/l/2623926)
+  > De directeur van het National Museum of American History in Washington wijst de scherpe kritiek van het Witte Huis op haar functioneren van de hand....
+- [Franse parlement stemt in met verbod op sociale media voor kinderen onder 15](https://nos.nl/l/2623924)
+  > Het Franse parlement heeft ingestemd met een wet die kinderen onder de 15 jaar verbiedt sociale media te gebruiken. Daarmee is Frankrijk het eerste...
+- [Weer protest van 'Kakkerlakbeweging' India, oppositieleider aangehouden](https://nos.nl/l/2623922)
+  > Duizenden aanhangers van de zogenoemde Kakkerlakbeweging in India hebben opnieuw gedemonstreerd in hoofdstad New Delhi. Oppositieleider Rahul Gandhi...
+- [Ondanks 'dronisering' moeten in Polen ook tanks van de band blijven rollen](https://nos.nl/l/2623921)
+  > Tussen de bomen in het grensgebied van Polen en Rusland verschijnen de silhouetten van drie ronkende tanks. Zeven kilometer verderop is de grens met...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tour de France etappe 17 | Een nieuwe kans voor Mathieu van der Poel, of pakt een pure sprinter de zege?](https://www.ad.nl/tour-de-france/tour-de-france-etappe-17-een-nieuwe-kans-voor-mathieu-van-der-poel-of-pakt-een-pure-sprinter-de-zege~a81871ac/)
-  > Na een rustdag en een tijdrit staat er eindelijk weer een ‘echte’ rit op het programma. De zeventiende etappe is relatief vlak, maar schotelt de...
-- [Voormalig doelman moet Feyenoord van probleem af helpen: ‘Dode spelmomenten zijn heel bepalend’](https://www.ad.nl/voetbal/voormalig-doelman-moet-feyenoord-van-probleem-af-helpen-dode-spelmomenten-zijn-heel-bepalend~ae22f709/)
-  > Rody Hoegee moet de aanhang van Feyenoord van een frustratie af helpen. De corners van de Rotterdammers leverden lange tijd nauwelijks iets op. De...
-- [Hoe Madonna de strijd aangaat met de ‘vervaldatum’ van vrouwen](https://www.ad.nl/show/hoe-madonna-de-strijd-aangaat-met-de-vervaldatum-van-vrouwen~a5f3dd20/)
-  > Madonna - die met haar nieuwe nummers opnieuw in de schijnwerpers staat - beklaagt zich erover: oudere vrouwen die zich sexy kleden en spraakmakend...
-- [Zaakwaarnemer Melvin Boel hekelt televisie-optreden Go Ahead-directeur Jan Willem van Dop: ‘Onacceptabel’](https://www.ad.nl/voetbal/zaakwaarnemer-melvin-boel-hekelt-televisie-optreden-go-ahead-directeur-jan-willem-van-dop-onacceptabel~ae76ed65/)
-  > De zakelijke belangenbehartigers van trainer Melvin Boel zijn zeer ontstemd over het optreden van Jan Willem van Dop bij RTV Oost. De directeur van...
-- [Reisbranche juicht, PvdD noemt het ‘treurig’: Den Haag wil af van verbod op fossiele reclames](https://www.ad.nl/binnenland/reisbranche-juicht-pvdd-noemt-het-treurig-den-haag-wil-af-van-verbod-op-fossiele-reclames~a0562e5e/)
-  > Den Haag had er een wereldprimeur mee: het verbod op reclames voor vliegreizen, cruisevakanties en benzineauto’s in de buitenruimte. Anderhalf jaar...
+- [Van Gerwen buigt een grote achterstand op Van Duijvenbode om en dwingt verlenging af](https://www.ad.nl/darts/van-gerwen-buigt-een-grote-achterstand-op-van-duijvenbode-om-en-dwingt-verlenging-af~a5efa262/)
+  > Het belangrijkste toernooi na het WK darts is van start. Aan de World Matchplay (18 tot en met 26 juli), ook wel het ‘zomer-WK’ genoemd, doen acht...
+- [Einde Tour de France voor Florian Lipowitz: Duitser breekt sleutelbeen na harde val in tijdrit](https://www.ad.nl/tour-de-france/einde-tour-de-france-voor-florian-lipowitz-duitser-breekt-sleutelbeen-na-harde-val-in-tijdrit~a29150f5/)
+  > Florian Lipowitz heeft de Tour de France verlaten. De Duitse klassementsrenner ging dinsdag in de tijdrit aan het einde van de afdaling in een bocht...
+- [Oekraïense president Zelensky ontslaat legerleider Syrsky na ophef](https://www.ad.nl/buitenland/oekraiense-president-zelensky-ontslaat-legerleider-syrsky-na-ophef~a1ac13cac/)
+  > De Oekraïense president Volodymyr Zelensky vervangt zijn commandant der strijdkrachten, Oleksandr Syrsky. Dat meldt hij op Telegram. De functie zal...
+- [In Het Wiel | ‘Arensman had zelf ook wel even op de klok kunnen kijken’](https://www.ad.nl/tour-de-france/in-het-wiel-arensman-had-zelf-ook-wel-even-op-de-klok-kunnen-kijken~a5ea502e/)
+  > Hoe kun je te laat komen voor een tijdrit? Het overkwam Thymen Arensman in de zestiende etappe van de Tour de France. De Nederlander zat in een tent...
+- [Calvin Stengs en partner laten bevalling opwekken om bij trainingskamp Feyenoord te zijn](https://www.ad.nl/voetbal/calvin-stengs-en-partner-laten-bevalling-opwekken-om-bij-trainingskamp-feyenoord-te-zijn~a0dacbc65/)
+  > Calvin Stengs en zijn vriendin Beau de Boer zijn opnieuw ouders geworden. Dochtertje Noé werd tijdens een ingeleide bevalling geboren, zodat haar...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Amerikaanse beurs kleurt groen dankzij AI](https://fd.nl/financiele-markten/1605395/wall-street-kleurt-groen-dankzij-ai)
+  > De zorgen over een zeepbel leken even niet te spelen bij beleggers, want chipaandelen stegen weer. Ook het Amsterdamse AI-bedrijf Nebius ging...
 - [Brusselse aanpak methaanwet niet fraai, maar verdedigbaar](https://fd.nl/opinie/1605262/brusselse-aanpak-methaanwet-niet-fraai-maar-verdedigbaar)
   > Aanpassing van de methaanverordening uit 2024 zou omwille van rechtszekerheid wellicht te prefereren zijn geweest, maar brengt wel het risico mee...
 - [Verwachte opbrengst wereldwijde minimumtaks multinationals verlaagd](https://fd.nl/politiek/1605258/verwachte-opbrengst-wereldwijde-minimumtaks-multinationals-verlaagd)
@@ -54,8 +56,6 @@
   > Canadese producten krijgen te maken met een importheffing van 50%, maakte de regering-Trump dinsdag bekend. Daar verandert het vrijhandelsakkoord dat...
 - [Nieuwe boete Tata Steel wegens milieuovertreding](https://fd.nl/bedrijfsleven/1605268/nieuwe-boete-tata-steel-wegens-milieuovertreding)
   > Het staalbedrijf moet €100.000 betalen voor een overtreding bij cokesgasfabriek 2. De vervolging door het OM houdt verband met de productie van rauwe...
-- [Geen Europese subsidie meer voor Biënnale van Venetië vanwege Russische deelname](https://fd.nl/politiek/1605267/geen-europese-subsidie-meer-voor-biennale-van-venetie-vanwege-russische-deelname)
-  > Het kunstfestival kreeg tot voor kort een meerjarige subsidie van €2 mln van de Europese Unie.
 
 ### Meest gelezen
 
