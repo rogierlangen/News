@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-07-2026 om 20:19*
+*Laatst bijgewerkt: 21-07-2026 om 22:05*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Dode bij schietpartij rond feesten Nijmeegse Vierdaagse](https://nos.nl/l/2623934)
+  > In Nijmegen is bij een schietpartij rond de Vierdaagsefeesten iemand om het leven gekomen. Iets na 22.00 uur werd hij neergeschoten en niet veel...
+- [Hoge energiekosten en concurrentie: Chemelot kijkt met zorg naar toekomst](https://nos.nl/l/2623928)
+  > Gordijnen, keukenkastjes, waterkokers, en ook afwasborstels. Allemaal bevatten ze materialen afkomstig van het kilometers grote industriecomplex...
 - [President Zelensky stuurt ook legerchef Syrsky weg](https://nos.nl/l/2623927)
   > De Oekraïense commandant der strijdkrachten Oleksandr Syrsky wordt ontslagen. President Zelensky heeft dat bekendgemaakt op sociale media, zonder...
 - [Smithsonian bijt van zich af na kritiek van Witte Huis: 'We moeten hele verhaal vertellen'](https://nos.nl/l/2623926)
   > De directeur van het National Museum of American History in Washington wijst de scherpe kritiek van het Witte Huis op haar functioneren van de hand....
 - [Franse parlement stemt in met verbod op sociale media voor kinderen onder 15](https://nos.nl/l/2623924)
   > Het Franse parlement heeft ingestemd met een wet die kinderen onder de 15 jaar verbiedt sociale media te gebruiken. Daarmee is Frankrijk het eerste...
-- [Weer protest van 'Kakkerlakbeweging' India, oppositieleider aangehouden](https://nos.nl/l/2623922)
-  > Duizenden aanhangers van de zogenoemde Kakkerlakbeweging in India hebben opnieuw gedemonstreerd in hoofdstad New Delhi. Oppositieleider Rahul Gandhi...
-- [Ondanks 'dronisering' moeten in Polen ook tanks van de band blijven rollen](https://nos.nl/l/2623921)
-  > Tussen de bomen in het grensgebied van Polen en Rusland verschijnen de silhouetten van drie ronkende tanks. Zeven kilometer verderop is de grens met...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van Gerwen buigt een grote achterstand op Van Duijvenbode om en dwingt verlenging af](https://www.ad.nl/darts/van-gerwen-buigt-een-grote-achterstand-op-van-duijvenbode-om-en-dwingt-verlenging-af~a5efa262/)
+- [Buitenlandse Zaken verscherpt reisadviezen voor Midden-Oosten](https://www.ad.nl/binnenland/buitenlandse-zaken-verscherpt-reisadviezen-voor-midden-oosten~ac8f7b8f/)
+  > De reisadviezen voor verschillende landen in het Midden-Oosten zijn aangescherpt. Dat komt omdat de veiligheidssituatie daar is verslechterd, aldus...
+- [Sensatie op World Matchplay: Littler gooit 9-darter in eerste leg (en is meteen daarna wéér dichtbij)](https://www.ad.nl/darts/sensatie-op-world-matchplay-littler-gooit-9-darter-in-eerste-leg-en-is-meteen-daarna-weer-dichtbij~ab8fef55/)
+  > Dat is nog eens een binnenkomer. Wereldkampioen Luke Littler heeft in de openingsleg van zijn partij tegen Nathan Aspinall meteen een 9-darter...
+- [Amerikaanse minister schat kosten Iranoorlog voor VS op 37,5 miljard dollar](https://www.ad.nl/buitenland/amerikaanse-minister-schat-kosten-iranoorlog-voor-vs-op-37-5-miljard-dollar~ac528ac3/)
+  > De Amerikaanse minister van Defensie Pete Hegseth schat dat de Iranoorlog de VS tot dusver zo'n 37,5 miljard dollar (circa 32,5 miljard euro) heeft...
+- [Nathan Aké wint met nieuwe club Fenerbahçe in voorronde Champions League](https://www.ad.nl/voetbal/nathan-ake-wint-met-nieuwe-club-fenerbahce-in-voorronde-champions-league~a7a7e7b8/)
+  > Nathan Aké heeft met zijn nieuwe club Fenerbahçe gewonnen in de tweede voorronde van de Champions League. De nummer 2 uit de Turkse competitie van...
+- [Van Duijvenbode stunt tegen Van Gerwen en plaatst zich als ‘zwiepende ballerina’ voor kwartfinale](https://www.ad.nl/darts/van-duijvenbode-stunt-tegen-van-gerwen-en-plaatst-zich-als-zwiepende-ballerina-voor-kwartfinale~a5efa262/)
   > Het belangrijkste toernooi na het WK darts is van start. Aan de World Matchplay (18 tot en met 26 juli), ook wel het ‘zomer-WK’ genoemd, doen acht...
-- [Einde Tour de France voor Florian Lipowitz: Duitser breekt sleutelbeen na harde val in tijdrit](https://www.ad.nl/tour-de-france/einde-tour-de-france-voor-florian-lipowitz-duitser-breekt-sleutelbeen-na-harde-val-in-tijdrit~a29150f5/)
-  > Florian Lipowitz heeft de Tour de France verlaten. De Duitse klassementsrenner ging dinsdag in de tijdrit aan het einde van de afdaling in een bocht...
-- [Oekraïense president Zelensky ontslaat legerleider Syrsky na ophef](https://www.ad.nl/buitenland/oekraiense-president-zelensky-ontslaat-legerleider-syrsky-na-ophef~a1ac13cac/)
-  > De Oekraïense president Volodymyr Zelensky vervangt zijn commandant der strijdkrachten, Oleksandr Syrsky. Dat meldt hij op Telegram. De functie zal...
-- [In Het Wiel | ‘Arensman had zelf ook wel even op de klok kunnen kijken’](https://www.ad.nl/tour-de-france/in-het-wiel-arensman-had-zelf-ook-wel-even-op-de-klok-kunnen-kijken~a5ea502e/)
-  > Hoe kun je te laat komen voor een tijdrit? Het overkwam Thymen Arensman in de zestiende etappe van de Tour de France. De Nederlander zat in een tent...
-- [Calvin Stengs en partner laten bevalling opwekken om bij trainingskamp Feyenoord te zijn](https://www.ad.nl/voetbal/calvin-stengs-en-partner-laten-bevalling-opwekken-om-bij-trainingskamp-feyenoord-te-zijn~a0dacbc65/)
-  > Calvin Stengs en zijn vriendin Beau de Boer zijn opnieuw ouders geworden. Dochtertje Noé werd tijdens een ingeleide bevalling geboren, zodat haar...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Frankrijk verbiedt sociale media voor kinderen](https://fd.nl/politiek/1605396/frankrijk-stemt-in-met-verbod-op-sociale-media-tot-vijftien-jaar)
+  > Jongeren tot vijftien jaar mogen vanaf september geen nieuwe account meer aanmaken op bijvoorbeeld Instagram en TikTok.
+- [Zelensky ontslaat commandant der strijdkrachten](https://fd.nl/politiek/1605397/zelensky-ontslaat-commandant-der-strijdkrachten)
+  > De hoogste legerchef leek na het ontslag van defensieminister Fedorov de machtsstrijd gewonnen te hebben, maar onder druk van landelijke protesten...
 - [Amerikaanse beurs kleurt groen dankzij AI](https://fd.nl/financiele-markten/1605395/wall-street-kleurt-groen-dankzij-ai)
   > De zorgen over een zeepbel leken even niet te spelen bij beleggers, want chipaandelen stegen weer. Ook het Amsterdamse AI-bedrijf Nebius ging...
 - [Brusselse aanpak methaanwet niet fraai, maar verdedigbaar](https://fd.nl/opinie/1605262/brusselse-aanpak-methaanwet-niet-fraai-maar-verdedigbaar)
   > Aanpassing van de methaanverordening uit 2024 zou omwille van rechtszekerheid wellicht te prefereren zijn geweest, maar brengt wel het risico mee...
 - [Verwachte opbrengst wereldwijde minimumtaks multinationals verlaagd](https://fd.nl/politiek/1605258/verwachte-opbrengst-wereldwijde-minimumtaks-multinationals-verlaagd)
   > Oeso presenteert nieuwe prognoses na versoepeling van de wereldwijde minimumwinstbelasting voor internationaal opererende bedrijven.
-- [Washington zoekt nieuwe wegen voor importheffingen](https://fd.nl/economie/1605260/washington-zoekt-nieuwe-wegen-voor-importheffingen)
-  > Canadese producten krijgen te maken met een importheffing van 50%, maakte de regering-Trump dinsdag bekend. Daar verandert het vrijhandelsakkoord dat...
-- [Nieuwe boete Tata Steel wegens milieuovertreding](https://fd.nl/bedrijfsleven/1605268/nieuwe-boete-tata-steel-wegens-milieuovertreding)
-  > Het staalbedrijf moet €100.000 betalen voor een overtreding bij cokesgasfabriek 2. De vervolging door het OM houdt verband met de productie van rauwe...
 
 ### Meest gelezen
 
