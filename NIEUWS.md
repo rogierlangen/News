@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-07-2026 om 11:49*
+*Laatst bijgewerkt: 21-07-2026 om 14:01*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Onderzoek: niveau van klasgenoten beïnvloedt het schooladvies in groep 8](https://nos.nl/l/2623859)
-  > Leraren laten zich bij het geven van een schooladvies beïnvloeden door de kenmerken van een klas waarin leerlingen zitten, blijkt uit onderzoek van...
-- [Unieke nachtvorst in zomertijd gemeten in Twente](https://nos.nl/l/2623856)
-  > In Twente is vannacht vorst aan de grond gemeten. Op 10 centimeter hoogte werd rond 05.30 uur korte tijd -0,1 graden waargenomen. Dat is zeer...
-- [Invoerverbod producten uit illegale nederzettingen Israël gaat in op 22 september](https://nos.nl/l/2623855)
-  > Goederen uit illegale nederzettingen in door Israël bezette gebieden mogen vanaf 22 september Nederland niet meer in. Dat schrijft minister Berendsen...
-- [Zwarte prominenten in VS loven geld uit voor informatie over dood student Nolan (18)](https://nos.nl/l/2623854)
-  > De Amerikaanse zwarte dominee Al Sharpton en de zwarte filmmaker Tyler Perry stellen 100.000 dollar beschikbaar voor informatie die opheldering geeft...
-- [Studenten TU Eindhoven ontwerpen 's werelds eerste ambulance op zonne-energie](https://nos.nl/l/2623849)
-  > Een groep studenten aan de TU Eindhoven heeft een ambulance ontwikkeld die op zonne-energie rijdt. Volgens de bouwers is de Stella Juva de eerste...
+- [Leider Turkse oppositie richt nieuwe partij op na afzetting door rechter](https://nos.nl/l/2623875)
+  > De afgezette leider van de grootste Turkse oppositiepartij CHP, Özgür Özel, heeft aangekondigd dat hij een nieuwe politieke partij opricht. Hij zei...
+- [Tientallen agenten gewond bij protesten in Bologna na dood van arrestant](https://nos.nl/l/2623874)
+  > Bij demonstraties in Bologna zijn ruim zestig agenten gewond geraakt, meldt de politie in de Italiaanse stad. Demonstranten gingen gisteren de straat...
+- [Duurzaam kantoor krijgt dankzij gasgeneratoren voorrang op het stroomnet](https://nos.nl/l/2623872)
+  > Ruim tien jaar stond het oude Rabobank-hoofdkwartier, naast Utrecht CS, leeg. Nu staan er hijskranen, rijden wagens met materiaal af en aan en wordt...
+- [143 mensen dood gevonden op migrantenboot voor kust Mauritanië](https://nos.nl/l/2623870)
+  > 143 mensen zijn dood gevonden op een migrantenboot die al 25 dagen op zee dreef. Dat meldt de VN. Het schip werd aangetroffen met 38 overlevenden...
+- [Man krijgt vijftien maanden cel voor bedreiging van Groningse slagerijen](https://nos.nl/l/2623868)
+  > De rechtbank in Groningen heeft een man uit Nieuwolda veroordeeld tot vijftien maanden cel, waarvan ruim vier maanden voorwaardelijk, voor het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Visma-ploegbaas vraagt opheldering na nachtelijke dopingcontrole: ‘We willen goed zorgen voor onze werknemer’](https://www.ad.nl/tour-de-france/visma-ploegbaas-vraagt-opheldering-na-nachtelijke-dopingcontrole-we-willen-goed-zorgen-voor-onze-werknemer~a5faa290/)
-  > Visma-Lease a Bike-ploegbaas Richard Plugge kan niets inbrengen tegen de nachtelijke controle die Jonas Vingegaard afgelopen zondag om 02.00 uur...
-- [Hila Noorzai ‘ruimt puin’ en Augurkenkoning wil Gen Z beter begrijpen](https://www.ad.nl/show/hila-noorzai-ruimt-puin-en-augurkenkoning-wil-gen-z-beter-begrijpen~a87fb0b2/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Laat je niet verrassen: oude e-readers kunnen soms ineens geen boeken meer downloaden](https://www.ad.nl/tech/laat-je-niet-verrassen-oude-e-readers-kunnen-soms-ineens-geen-boeken-meer-downloaden~a46ce04e/)
-  > Puilt de koffer(bak) al uit en moet er nog vakantieliteratuur mee op reis? Dan biedt een e-reader met meer leesvoer dan de gemiddelde...
-- [Bezorger PostNL dumpt pakket bij voordeur en maakt slaande beweging: ‘Ik bepaal zelf!’](https://www.ad.nl/binnenland/bezorger-postnl-dumpt-pakket-bij-voordeur-en-maakt-slaande-beweging-ik-bepaal-zelf~ac31ca98/)
-  > Een PostNL-bezorger die uitvalt tegen een bewoonster en een slaande beweging maakt. Een ruzie aan de voordeur over een pakketje is eerder deze maand...
-- [Dolfinarium in België moet sluiten, dierenminister is klaar met ‘kunstjes’](https://www.ad.nl/buitenland/dolfinarium-in-belgie-moet-sluiten-dierenminister-is-klaar-met-kunstjes~ae2a843b/)
-  > Boudewijn Seapark, een dolfinarium in Brugge, mag geen dolfijnen meer houden. De Vlaamse regering wil dat de dieren in uiterlijk 2037 vertrekken.
+- [Spaanse competitievoorzitter haalt FIFA en Gianni Infantino door het slijk: ‘Ze vernietigen de hele industrie’](https://www.ad.nl/wk-voetbal/spaanse-competitievoorzitter-haalt-fifa-en-gianni-infantino-door-het-slijk-ze-vernietigen-de-hele-industrie~acba2f53/)
+  > Javier Tebas, voorzitter van de Spaanse voetbalcompetitie, heeft andermaal hard uitgehaald naar FIFA-voorzitter Gianni Infantino. Tebas is onder meer...
+- [LIVE Tour de France | Visma-renner klokt nieuwe snelste tijd, Nederlands kampioen ‘bijna de berm in’ door Astana-auto’s](https://www.ad.nl/tour-de-france/live-tour-de-france-visma-renner-klokt-nieuwe-snelste-tijd-nederlands-kampioen-bijna-de-berm-in-door-astana-autos~ad7b0102/)
+  > Na te hebben genoten van een laatste rustdag, beginnen de renners in de Tour de France aan de loodzware slotweek, met onder meer twee etappes naar...
+- [Waarom klanten zo fel reageren op een aangepast kaasbroodje bij Albert Heijn: ‘Geeft een gevoel van verlies van autonomie’](https://www.ad.nl/binnenland/waarom-klanten-zo-fel-reageren-op-een-aangepast-kaasbroodje-bij-albert-heijn-geeft-een-gevoel-van-verlies-van-autonomie~a153c104/)
+  > Het leek een kleine aanpassing van Albert Heijn: een nieuw recept voor het ‘kaasruitbroodje’. Maar klanten klaagden dat hun broodje een stuk minder...
+- [Moord met hamer op Britse politicus Ann Widdecombe is vastgelegd op camera](https://www.ad.nl/buitenland/moord-met-hamer-op-britse-politicus-ann-widdecombe-is-vastgelegd-op-camera~ac319ea5/)
+  > De moord op de Britse oud-politicus Ann Widdecombe is vastgelegd op een camera in haar huis. Dat melden aanklagers in een rechtbank in Londen. Op de...
+- [‘Oekraïense volk geeft aan dat hij fout zat’: Zelensky moet op zoek naar een nieuwe generaal](https://www.ad.nl/buitenland/oekraiense-volk-geeft-aan-dat-hij-fout-zat-zelensky-moet-op-zoek-naar-een-nieuwe-generaal~a2e2810a/)
+  > De Oekraïense president Volodymyr Zelensky zit behoorlijk in het nauw. Hij loste een probleem in het leger op door een populaire minister te...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Gasprijs bijna terug op piek van begin maart](https://fd.nl/financiele-markten/1605243/gasprijs-bijna-terug-op-piek-van-begin-maart)
-  > Door verstoringen in lng-aanvoer vanuit het Midden-Oosten en Texas en laag gevulde gasopslagen nemen de risico’s voor Europa toe en reageren de...
-- [Ruim de helft van ondernemers heeft last van de Iran-oorlog](https://fd.nl/bedrijfsleven/1605345/ruim-de-helft-van-ondernemers-heeft-last-van-de-iran-oorlog)
-  > Een groter deel van de mkb’ers denkt de komende twaalf maanden last te krijgen van de huidige geopolitieke spanningen.
-- [Huurder zit er warmpjes bij, koper staat in de kou](https://fd.nl/opinie/1605197/huurder-zit-er-warmpjes-bij-koper-staat-in-de-kou)
-  > Door slecht geïsoleerde woningen te verkopen, ontlopen verhuurders de duurzaamheidsvereisten voor huurhuizen. De regels moeten daarom verbreed worden...
-- [Revolut mag nu ook bankieren in Australië](https://fd.nl/financiele-markten/1605249/revolut-mag-nu-ook-bankieren-in-australie)
-  > Met een Australische banklicentie en een investeringsplan van 400 mln Australische dollar breidt de fintech zijn activiteiten verder uit.
-- [Industrie in Antwerpen en Rotterdam: ‘Brussel, hou eens op onze strot af te knijpen’](https://fd.nl/bedrijfsleven/1604186/industrie-in-antwerpen-en-rotterdam-brussel-hou-eens-op-onze-strot-af-te-knijpen)
-  > De industrie rond Antwerpen en Rotterdam verkeert in doodsnood, maar daar lijkt Brussel de ogen voor te sluiten, stellen kopstukken uit beide...
+- [Fusie AkzoNobel en Axalta krijgt steun van stemadviesbureaus](https://fd.nl/bedrijfsleven/1604485/fusie-akzonobel-en-axalta-krijgt-steun-van-stemadviesbureaus)
+  > Het positieve advies is een opsteker voor de verf- en coatingfabrikanten. Institutionele beleggers hechten er veel waarde aan. De aandeelhouders...
+- [De bal is rond](https://fd.nl/financiele-markten/1605341/de-bal-is-rond)
+  > Vooral bij stijgende koersen wordt de markt met beursclichés  neergezet alsof deze doelgericht te werk gaat. Die woordkeuze heeft consequenties.
+- [Europese bedrijven laten zich niet uit het veld slaan door oorlog en blijven investeren](https://fd.nl/economie/1605259/europese-bedrijven-laten-zich-niet-uit-het-veld-slaan-door-oorlog-en-blijven-investeren)
+  > Ondernemers lenen meer voor investeringen, terwijl strengere banken en voorzichtige consumenten de kredietgroei op termijn kunnen afremmen.
+- [Henry Meijer verzet de bakens: slimme fiscale tips wijken voor eerlijk belasting betalen](https://fd.nl/politiek/1601116/henry-meijer-verzet-de-bakens-slimme-fiscale-tips-wijken-voor-eerlijk-belasting-betalen)
+  > Eerst verdiende hij zijn geld met lucratieve fiscale adviezen, nu pleit de voormalige ondernemer voor een socialer en rechtvaardiger belastingstelsel.
+- [Verliezers miljarden­aanbesteding grondafhandeling Schiphol stappen naar de rechter](https://fd.nl/bedrijfsleven/1605256/verliezers-miljardenaanbesteding-grondafhandeling-schiphol-stappen-naar-de-rechter)
+  > Menzies, Aviapartner en Swissport zijn het niet eens met de uitslag en vechten deze in de rechtszaal aan. De aanbesteding heeft een geschatte waarde...
 
 ### Meest gelezen
 
