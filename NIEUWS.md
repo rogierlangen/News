@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-07-2026 om 09:29*
+*Laatst bijgewerkt: 21-07-2026 om 11:49*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Politico: FBI-directeur Patel plant bezoek aan Rusland](https://nos.nl/l/2623842)
-  > FBI-directeur Kash Patel is van plan om in het najaar Rusland te bezoeken, meldt het Amerikaanse nieuwsmedium Politico op basis van meerdere bronnen....
-- [Claimstichting eist miljoenen van ACM voor 'falend toezicht' op Flexenergie](https://nos.nl/l/2623839)
-  > Een claimorganisatie wil via de rechter een schadevergoeding afdwingen voor consumenten die klant waren bij Flexenergie. De Stichting Benadeelden in...
-- [Rijkswaterstaat plaatst camera's op Merwedebrug, vrachtverkeer riskeert boete](https://nos.nl/l/2623831)
-  > Rijkswaterstaat verwacht binnen twee weken te handhaven op het verbod voor vrachtverkeer op de Merwedebrug. Daarvoor worden bij de brug camera's...
-- [Tate-broers verzetten zich tegen uitlevering aan Verenigd Koninkrijk](https://nos.nl/l/2623830)
-  > De influencerbroers Andrew en Tristan Tate willen hun uitlevering aan het Verenigd Koninkrijk aanvechten. Ze verschenen voor het eerst sinds hun...
-- [Voor de tiende nacht op rij aanvallen tussen Iran en VS](https://nos.nl/l/2623828)
-  > Voor de tiende nacht op rij hebben de Verenigde Staten doelen in Iran aangevallen. Het ging volgens het Amerikaanse leger om militaire doelen zoals...
+- [Onderzoek: niveau van klasgenoten beïnvloedt het schooladvies in groep 8](https://nos.nl/l/2623859)
+  > Leraren laten zich bij het geven van een schooladvies beïnvloeden door de kenmerken van een klas waarin leerlingen zitten, blijkt uit onderzoek van...
+- [Unieke nachtvorst in zomertijd gemeten in Twente](https://nos.nl/l/2623856)
+  > In Twente is vannacht vorst aan de grond gemeten. Op 10 centimeter hoogte werd rond 05.30 uur korte tijd -0,1 graden waargenomen. Dat is zeer...
+- [Invoerverbod producten uit illegale nederzettingen Israël gaat in op 22 september](https://nos.nl/l/2623855)
+  > Goederen uit illegale nederzettingen in door Israël bezette gebieden mogen vanaf 22 september Nederland niet meer in. Dat schrijft minister Berendsen...
+- [Zwarte prominenten in VS loven geld uit voor informatie over dood student Nolan (18)](https://nos.nl/l/2623854)
+  > De Amerikaanse zwarte dominee Al Sharpton en de zwarte filmmaker Tyler Perry stellen 100.000 dollar beschikbaar voor informatie die opheldering geeft...
+- [Studenten TU Eindhoven ontwerpen 's werelds eerste ambulance op zonne-energie](https://nos.nl/l/2623849)
+  > Een groep studenten aan de TU Eindhoven heeft een ambulance ontwikkeld die op zonne-energie rijdt. Volgens de bouwers is de Stella Juva de eerste...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nog vier Nederlanders over op belangrijkste dartstoernooi na WK: alles over de World Matchplay](https://www.ad.nl/darts/nog-vier-nederlanders-over-op-belangrijkste-dartstoernooi-na-wk-alles-over-de-world-matchplay~a36ece34/)
-  > Het belangrijkste toernooi na het WK darts staat op het programma. De World Matchplay (18 tot en met 26 juli), ook wel het ‘zomer-WK’ genoemd, biedt...
-- [Baas Zuid-Amerikaanse voetbalbond hoopt op WK met 64 landen in 2030: ‘Historische kans om groot te dromen’](https://www.ad.nl/wk-voetbal/baas-zuid-amerikaanse-voetbalbond-hoopt-op-wk-met-64-landen-in-2030-historische-kans-om-groot-te-dromen~a97da88f/)
-  > Voorzitter Alejandro Dominguez van de Zuid-Amerikaanse voetbalbond hoopt dat aan het volgende WK in 2030 64 landen mogen meedoen. De eerste...
-- [Art Rooijakkers terug als quizmaster in nieuw programma op SBS 6](https://www.ad.nl/show/art-rooijakkers-terug-als-quizmaster-in-nieuw-programma-op-sbs-6~a958479e/)
-  > Art Rooijakkers krijgt een nieuw programma bij SBS 6. De presentator gaat een psychologische kennisquiz, getiteld Dit weet jij niet?!, presenteren....
-- [Na hitte nu nachtvorst, -0,1 graden in Twente: ‘Voor het eerst sinds 1971’](https://www.ad.nl/binnenland/na-hitte-nu-nachtvorst-0-1-graden-in-twente-voor-het-eerst-sinds-1971~af8b0fd2/)
-  > De tropische dagen zijn nog niet zo lang achter de rug. De warmte is amper uit onze huizen weg, maar geloof het of niet: in Twente vroor het...
-- [Ook Remco Evenepoel moet eraan geloven: dopingcontrole kwam langs ‘terwijl renners al naar bed waren’](https://www.ad.nl/wielrennen/ook-remco-evenepoel-moet-eraan-geloven-dopingcontrole-kwam-langs-terwijl-renners-al-naar-bed-waren~a8be6d22/)
-  > Het blijft een thema in de Tour. Na Jonas Vingegaard en Tadej Pogacar kreeg maandagavond ook Remco Evenepoel bezoek van dopingcontroleurs. Iedereen...
+- [Visma-ploegbaas vraagt opheldering na nachtelijke dopingcontrole: ‘We willen goed zorgen voor onze werknemer’](https://www.ad.nl/tour-de-france/visma-ploegbaas-vraagt-opheldering-na-nachtelijke-dopingcontrole-we-willen-goed-zorgen-voor-onze-werknemer~a5faa290/)
+  > Visma-Lease a Bike-ploegbaas Richard Plugge kan niets inbrengen tegen de nachtelijke controle die Jonas Vingegaard afgelopen zondag om 02.00 uur...
+- [Hila Noorzai ‘ruimt puin’ en Augurkenkoning wil Gen Z beter begrijpen](https://www.ad.nl/show/hila-noorzai-ruimt-puin-en-augurkenkoning-wil-gen-z-beter-begrijpen~a87fb0b2/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Laat je niet verrassen: oude e-readers kunnen soms ineens geen boeken meer downloaden](https://www.ad.nl/tech/laat-je-niet-verrassen-oude-e-readers-kunnen-soms-ineens-geen-boeken-meer-downloaden~a46ce04e/)
+  > Puilt de koffer(bak) al uit en moet er nog vakantieliteratuur mee op reis? Dan biedt een e-reader met meer leesvoer dan de gemiddelde...
+- [Bezorger PostNL dumpt pakket bij voordeur en maakt slaande beweging: ‘Ik bepaal zelf!’](https://www.ad.nl/binnenland/bezorger-postnl-dumpt-pakket-bij-voordeur-en-maakt-slaande-beweging-ik-bepaal-zelf~ac31ca98/)
+  > Een PostNL-bezorger die uitvalt tegen een bewoonster en een slaande beweging maakt. Een ruzie aan de voordeur over een pakketje is eerder deze maand...
+- [Dolfinarium in België moet sluiten, dierenminister is klaar met ‘kunstjes’](https://www.ad.nl/buitenland/dolfinarium-in-belgie-moet-sluiten-dierenminister-is-klaar-met-kunstjes~ae2a843b/)
+  > Boudewijn Seapark, een dolfinarium in Brugge, mag geen dolfijnen meer houden. De Vlaamse regering wil dat de dieren in uiterlijk 2037 vertrekken.
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Ook de oude Romeinen gingen op koopjesjacht](https://fd.nl/samenleving/1595054/ook-de-oude-romeinen-gingen-op-koopjesjacht)
-  > Archeoloog Kim Bowes laat zien hoe Romeinse boeren en arbeiders in hun vroege consumptiemaatschappij leefden, met massaproductie, schulden en...
-- [Wonen in een oude sigarenfabriek](https://fd.nl/samenleving/1605195/wonen-in-een-oude-sigarenfabriek)
-  > Ruimtelijkheid en de voordelen van alles onder één dak zijn de kenmerken van deze compleet verbouwde voormalige sigarenfabriek in Apeldoorn.
-- [Het naderende einde van Europa’s gefragmenteerde bankensysteem](https://fd.nl/opinie/1604999/het-naderende-einde-van-europas-gefragmenteerde-bankensysteem)
-  > Te lang is Europa blijven hangen in het voorkomen van ‘too big to fail’. Maar met alleen risico’s voorkomen kan een Europese bank nooit tot mondiale...
-- [IT-bedrijf Ctac boekt lagere omzet en operationele winst in eerste jaarhelft](https://fd.nl/bedrijfsleven/1605340/it-bedrijf-ctac-boekt-lagere-omzet-en-operationele-winst-in-eerste-jaarhelft)
-  > De omzet en operationele winst van IT-bedrijf Ctac daalden in de eerste helft van dit jaar.
-- [Hogere huurinkomsten voor winkelbelegger Wereldhave, schuldgraad blijft probleem](https://fd.nl/financiele-markten/1605339/hogere-huurinkomsten-voor-winkelbelegger-wereldhave-schuldgraad-blijft-probleem)
-  > Om een eigen doelstelling voor de schuldgraad te bereiken, zet Wereldhave in op de verkoop van Franse en Belgische bezittingen.
+- [Gasprijs bijna terug op piek van begin maart](https://fd.nl/financiele-markten/1605243/gasprijs-bijna-terug-op-piek-van-begin-maart)
+  > Door verstoringen in lng-aanvoer vanuit het Midden-Oosten en Texas en laag gevulde gasopslagen nemen de risico’s voor Europa toe en reageren de...
+- [Ruim de helft van ondernemers heeft last van de Iran-oorlog](https://fd.nl/bedrijfsleven/1605345/ruim-de-helft-van-ondernemers-heeft-last-van-de-iran-oorlog)
+  > Een groter deel van de mkb’ers denkt de komende twaalf maanden last te krijgen van de huidige geopolitieke spanningen.
+- [Huurder zit er warmpjes bij, koper staat in de kou](https://fd.nl/opinie/1605197/huurder-zit-er-warmpjes-bij-koper-staat-in-de-kou)
+  > Door slecht geïsoleerde woningen te verkopen, ontlopen verhuurders de duurzaamheidsvereisten voor huurhuizen. De regels moeten daarom verbreed worden...
+- [Revolut mag nu ook bankieren in Australië](https://fd.nl/financiele-markten/1605249/revolut-mag-nu-ook-bankieren-in-australie)
+  > Met een Australische banklicentie en een investeringsplan van 400 mln Australische dollar breidt de fintech zijn activiteiten verder uit.
+- [Industrie in Antwerpen en Rotterdam: ‘Brussel, hou eens op onze strot af te knijpen’](https://fd.nl/bedrijfsleven/1604186/industrie-in-antwerpen-en-rotterdam-brussel-hou-eens-op-onze-strot-af-te-knijpen)
+  > De industrie rond Antwerpen en Rotterdam verkeert in doodsnood, maar daar lijkt Brussel de ogen voor te sluiten, stellen kopstukken uit beide...
 
 ### Meest gelezen
 
