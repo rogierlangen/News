@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-07-2026 om 03:34*
+*Laatst bijgewerkt: 21-07-2026 om 06:32*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Eerste lopers onderweg in Nijmeegse Vierdaagse](https://nos.nl/l/2623820)
-  > De 108ste editie van de Nijmeegse Vierdaagse is vanochtend in alle vroegte van start gegaan. Om 04.00 uur vertrokken de eerste wandelaars voor de...
-- [Trump kondigt importheffingen op Canadese goederen aan](https://nos.nl/l/2623819)
-  > De Amerikaanse president Trump heeft importheffingen van vijftig procent aangekondigd op een groot aantal goederen uit Canada. Volgens hem zijn de...
-- [Van democratie naar dictatuur: president schaft verkiezingen in Nicaragua af](https://nos.nl/l/2623818)
-  > In Nicaragua zullen geen verkiezingen meer gehouden worden. Dat heeft Daniel Ortega, de leider van het Midden-Amerikaanse land, gezegd in een...
-- [Reddingspoging in Ohio loopt uit op drama: vijf volwassenen verdronken](https://nos.nl/l/2623810)
-  > In de Scioto-rivier in de Amerikaanse staat Ohio zijn vijf mensen verdronken. Een van hen raakte tijdens het zwemmen in de problemen, waarna anderen...
-- [Douaniers mogen strafzaak over stelen informatie in vrijheid afwachten](https://nos.nl/l/2623806)
-  > Drie douaniers die in april werden aangehouden op verdenking van het stelen van informatie uit de computersystemen van hun werkgever, mogen hun...
+- [Tate-broers verzetten zich tegen uitlevering aan Verenigd Koninkrijk](https://nos.nl/l/2623830)
+  > De influencerbroers Andrew en Tristan Tate willen hun uitlevering aan het Verenigd Koninkrijk aanvechten. Ze verschenen voor het eerst sinds hun...
+- [Voor de tiende nacht op rij aanvallen tussen Iran en VS](https://nos.nl/l/2623828)
+  > Voor de tiende nacht op rij hebben de Verenigde Staten doelen in Iran aangevallen. Het ging volgens het Amerikaanse leger om militaire doelen zoals...
+- [Gasgeneratoren moeten stroomnet Utrecht ook op piektijden betrouwbaar houden](https://nos.nl/l/2623826)
+  > Er is een fundering gelegd en een verbinding met het stroomnet, maar verder is het nog een leeg stuk grond naast de Utrechtse wijk Strijkviertel....
+- [Wekdienst 21/7: Start Nijmeegse Vierdaagse • Libanese president in VS](https://nos.nl/l/2623824)
+  > Goedemorgen! Vandaag verschijnen ruim 45.000 deelnemers aan de start van de Nijmeegse Vierdaagse en in Washington gaat de president van Libanon bij...
+- [Zorgen over online medicatie groeien, Trimbos wil meer weten over kopers](https://nos.nl/l/2623821)
+  > Het Trimbos-instituut gaat nieuw onderzoek doen naar zelfmedicatie. Het gaat hierbij om mensen die online medicatie kopen, zonder toezicht van een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Graatmager en verslaafd kwam Lesley binnen bij de afkickkliniek, nu opent hij een parfumerie](https://www.ad.nl/binnenland/graatmager-en-verslaafd-kwam-lesley-binnen-bij-de-afkickkliniek-nu-opent-hij-een-parfumerie~a67736d5/)
-  > Zijn parfumerie heet Valley of Sadaa, echo in het Arabisch. En zijn echo uit het verleden heeft hij laten verstommen. Jarenlang vocht Lesley de Jong...
-- [Eerste wandelaars al om 4 uur van start gegaan voor Nijmeegse Vierdaagse,  oudste deelnemer is 92, jongste 11](https://www.ad.nl/binnenland/eerste-wandelaars-al-om-4-uur-van-start-gegaan-voor-nijmeegse-vierdaagse-oudste-deelnemer-is-92-jongste-11~a311967a/)
-  > Dinsdagochtend vroeg zijn de eerste wandelaars vertrokken voor de 108ste editie van de Nijmeegse Vierdaagse. Om 04.00 uur begonnen de lopers van de...
-- [Dood van Marokkaanse man tijdens arrestatie zorgt voor ophef in Italië, elf gewonden bij demonstraties](https://www.ad.nl/buitenland/dood-van-marokkaanse-man-tijdens-arrestatie-zorgt-voor-ophef-in-italie-elf-gewonden-bij-demonstraties~aff1dfd1/)
-  > Een Marokkaanse man is zondag overleden tijdens een arrestatie in de Italiaanse stad Bologna. Zijn dood zorgt voor grote ophef in Italië, waar...
-- [Broers Tate verzetten zich tegen uitlevering aan VK: ‘Arrestatie is politiek gemotiveerd’](https://www.ad.nl/buitenland/broers-tate-verzetten-zich-tegen-uitlevering-aan-vk-arrestatie-is-politiek-gemotiveerd~acf15fe9/)
-  > De omstreden influencer Andrew Tate en zijn broer Tristan verzetten zich zoals verwacht tegen hun uitlevering aan het Verenigd Koninkrijk. Daar...
-- [VS voert voor tiende nacht op rij luchtaanvallen uit op Iran, opnieuw tanker geraakt](https://www.ad.nl/buitenland/vs-voert-voor-tiende-nacht-op-rij-luchtaanvallen-uit-op-iran-opnieuw-tanker-geraakt~ac528ac3/)
-  > De Iraanse president heeft gezegd dat het land zich in een ‘grootschalige oorlog’ bevindt. De VS voert in de nacht van maandag op dinsdag opnieuw...
+- [Zo laat komt Max Verstappen dit weekend in actie tijdens laatste race voor zomerstop](https://www.ad.nl/formule-1/zo-laat-komt-max-verstappen-dit-weekend-in-actie-tijdens-laatste-race-voor-zomerstop~a2c5e8f0/)
+  > Max Verstappen en zijn collega’s komen nog één keer in actie voor de zomerstop. De Grand Prix van Hongarije is het slotstuk van de eerste...
+- [‘Intelligent, mooi en supergrappig’: Nederlandse Marie-France is de nieuwe first lady van Groot-Brittannië](https://www.ad.nl/buitenland/intelligent-mooi-en-supergrappig-nederlandse-marie-france-is-de-nieuwe-first-lady-van-groot-brittannie~a957ce47/)
+  > Voor het eerst in de historie krijgt het Verenigd Koninkrijk een Nederlandse first lady: Marie-France van Heel. Wie is de 57-jarige vrouw van de...
+- [Tour de France etappe 16 | Remco Evenepoel kan meteen na rustdag nieuwe slag slaan in tijdrit](https://www.ad.nl/tour-de-france/tour-de-france-etappe-16-remco-evenepoel-kan-meteen-na-rustdag-nieuwe-slag-slaan-in-tijdrit~ad7b0102/)
+  > Na te hebben genoten van een laatste rustdag, beginnen de renners in de Tour de France dinsdag aan de loodzware slotweek, met onder meer twee etappes...
+- [Procedure van 45 minuten, broek op de enkels en geen verzet: reconstructie van de dopingtest van Tadej Pogacar](https://www.ad.nl/tour-de-france/procedure-van-45-minuten-broek-op-de-enkels-en-geen-verzet-reconstructie-van-de-dopingtest-van-tadej-pogacar~a0616d16/)
+  > Tussen twee loodzware bergetappes in de Tour de France werd Tadej Pogacar – net als Jonas Vingegaard – in de nacht van zaterdag op zondag wakker...
+- [Ruim 1 miljoen mensen bij huldiging Spanje, Yamal neemt Argentijnse vechtersbaas op de hak](https://www.ad.nl/wk-voetbal/ruim-1-miljoen-mensen-bij-huldiging-spanje-yamal-neemt-argentijnse-vechtersbaas-op-de-hak~a451a2a9/)
+  > Meer dan een miljoen mensen hebben maandag wereldkampioen Spanje toegejuicht tijdens een parade van het team in een open bus door Madrid. De ploeg...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Tropisch eiland blijkt hemelpoort voor cryptobeleggers](https://fd.nl/economie/1605199/tropisch-eiland-blijkt-hemelpoort-voor-cryptobeleggers)
-  > Vandaag in Dagkoers: Andy Burnham is de nieuwe premier van het VK, Palau blijkt een hemel voor belastingontduikers en cryptobeleggers en Leiden...
-- [Trump kondigt nieuwe heffingen aan op Canadese producten](https://fd.nl/economie/1605337/trump-kondigt-nieuwe-heffingen-aan-op-canadese-producten)
-  > Heffing van 50% op Canadese producten is nieuwe impuls in Amerikaanse conflict met buurland aan.
-- [Minder ETS, minder zekerheid](https://fd.nl/opinie/1605192/minder-ets-minder-zekerheid)
-  > Strategische autonomie is een legitiem doel, maar steun cruciale sectoren gericht in plaats van het ETS generiek af te zwakken.
-- [Britten eisen van Burnham een snel resultaat](https://fd.nl/opinie/1605302/britten-eisen-van-burnham-een-snel-resultaat)
-  > Andy Burnham belooft de macht terug te geven aan de regio's en nieuw vertrouwen te brengen in de Britse politiek. Maar met een lege schatkist en een...
-- [Industrie bij kwetsbare natuur in onzekerheid door nieuwe stikstofplannen](https://fd.nl/bedrijfsleven/1605190/industrie-bij-kwetsbare-natuur-in-onzekerheid-door-nieuwe-stikstofplannen)
-  > Het merendeel van de negentig industriële bedrijven die rondom kwetsbare natuurgebieden zitten, weet niet wat de gevolgen zijn van de recent...
+- [IT-bedrijf Ctac boekt lagere omzet en operationele winst in eerste jaarhelft](https://fd.nl/bedrijfsleven/1605340/it-bedrijf-ctac-boekt-lagere-omzet-en-operationele-winst-in-eerste-jaarhelft)
+  > De omzet en operationele winst van IT-bedrijf Ctac daalden in de eerste helft van dit jaar.
+- [Hogere huurinkomsten voor winkelbelegger Wereldhave, schuldgraad blijft probleem](https://fd.nl/financiele-markten/1605339/hogere-huurinkomsten-voor-winkelbelegger-wereldhave-schuldgraad-blijft-probleem)
+  > Om een eigen doelstelling voor de schuldgraad te bereiken, zet Wereldhave in op de verkoop van Franse en Belgische bezittingen.
+- [‘Nederlandse ondernemers voelen gevolgen van Iran-oorlog’](https://fd.nl/bedrijfsleven/1605338/nederlandse-ondernemers-voelen-gevolgen-van-iran-oorlog)
+  > Uit een enquête van de KVK blijkt dat ondernemers last hebben van de oorlog in Iran.
+- [CBS: investeringen dalen met 3,8% in mei](https://fd.nl/economie/1605239/cbs-investeringen-dalen-met-3-8-in-mei)
+  > Het volume van investeringen is in de maand mei bijna 4% gedaald ten opzichte van vorig jaar.
+- [CM.com weet groei vast te houden](https://fd.nl/financiele-markten/1605205/cm-com-weet-groei-vast-te-houden)
+  > De omzet en het brutobedrijfsresultaat bij het techbedrijf groeien volgens verwachting door. Over heel 2026 stelt CM.com een stijging van het...
 
 ### Meest gelezen
 
