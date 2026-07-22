@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-07-2026 om 09:28*
+*Laatst bijgewerkt: 22-07-2026 om 11:49*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Saxofonist Plas Johnson overleden, bekend van de Pink Panther-melodie](https://nos.nl/l/2623964)
-  > De Amerikaanse jazzsaxofonist Plas Johnson is op 94-jarige leeftijd overleden, melden zijn kinderen aan The New York Times. Beroemd is zijn tijdloze...
-- [Hoogwerker van roltrap: half jaar buiten werking en kwart miljoen schade](https://nos.nl/l/2623960)
-  > De roltrap op station Groningen die afgelopen Koningsnacht werd vernield, is nog altijd niet gerepareerd. Spoorbeheerder ProRail dacht aanvankelijk...
-- [Grote natuurbrand tussen Marseille en Nice, zeker 400 mensen geëvacueerd](https://nos.nl/l/2623956)
-  > In het Zuid-Franse departement Var, tussen Marseille en Nice, woedt een grote natuurbrand. Zo'n vierhonderd bewoners van het gebied zijn gevlucht,...
-- [Verhuisdozen vol ivoren sieraden, 5800 verboden objecten anoniem ingeleverd](https://nos.nl/l/2623955)
-  > Ruim 5800 voorwerpen van beschermde planten en diersoorten zijn in Nederland vanaf juli vorig jaar tot juli dit jaar ingeleverd. Dat is meer dan het...
-- [Omzet Randstad stijgt, vooral door uitzendkrachten in meer Amerikaanse datacenters](https://nos.nl/l/2623953)
-  > Het groeiende aantal datacenters in de Verenigde Staten zorgt daar voor een flinke vraag naar uitzendkrachten. Dat blijkt uit de kwartaalcijfers van...
+- [Koraans restaurant serveert mieren als garnering, kok riskeert celstraf](https://nos.nl/l/2623994)
+  > Een restauranteigenaar in Zuid-Korea riskeert een jaar celstraf omdat hij mieren heeft geserveerd. Volgens het ministerie van Voedselveiligheid...
+- [Oorlog met Iran kostte volgens regering-Trump 33 miljard en daar blijft het niet bij](https://nos.nl/l/2623986)
+  > De oorlog met Iran heeft de VS volgens minister Hegseth van Defensie al bijna 33 miljard euro gekost. Dat zei hij op een hoorzitting van de Senaat,...
+- [De Nederlandsche Bank: grote investeringen nodig voor bouw huurwoningen](https://nos.nl/l/2623983)
+  > Het moet voor investeerders aantrekkelijker worden gemaakt om geld te steken in de bouw van huurwoningen. Als de investeringen in de huursector...
+- [Botsing tussen twee trams op Erasmusbrug in Rotterdam, vijftien gewonden](https://nos.nl/l/2623974)
+  > Op de Erasmusbrug in Rotterdam zijn twee trams met elkaar in botsing gekomen en één van de trams is daarbij ontspoord. Volgens de veiligheidsregio...
+- [Neergestort vliegtuig na 74 jaar gevonden bij kust van Puerto Rico](https://nos.nl/l/2623973)
+  > In de oceaan voor de kust van Puerto Rico hebben onderzoekers het wrak gevonden van een vliegtuig dat in 1952 is neergestort. Bij de crash kwamen 52...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Daniel Siad, vermeende ronselaar voor Jeffrey Epstein, dood aangetroffen in woning in Frankrijk](https://www.ad.nl/buitenland/daniel-siad-vermeende-ronselaar-voor-jeffrey-epstein-dood-aangetroffen-in-woning-in-frankrijk~a5f5c9c4/)
-  > Daniel Siad, de man die ervan wordt beschuldigd vrouwen te hebben geronseld voor Jeffrey Epstein, is dood aangetroffen in zijn woning in Frankrijk....
-- [Ontvoerde Ellaria (5) na maandenlange strijd weer thuis bij vader Frank: ‘Zo ontzettend blij’](https://www.ad.nl/binnenland/ontvoerde-ellaria-5-na-maandenlange-strijd-weer-thuis-bij-vader-frank-zo-ontzettend-blij~aabaded7/)
-  > De 5-jarige Ellaria is na een maandenlange strijd weer veilig terug in Nederland. Haar vader, Frank van Vliet uit Sommelsdijk, is herenigd met zijn...
-- [Zuid-Koreaanse sterrenchef riskeert celstraf voor gebruik van mieren als garnering](https://www.ad.nl/buitenland/zuid-koreaanse-sterrenchef-riskeert-celstraf-voor-gebruik-van-mieren-als-garnering~a33f9595/)
-  > Een Zuid-Koreaanse sterrenchef moet mogelijk een jaar de cel in nadat hij mieren heeft gebruikt als garnering voor desserts. De man gaf het gebruik...
-- [Nederlander (44) ontsnapt aan spookrijder in Oostenrijk, maar busje dat achter hem reed niet](https://www.ad.nl/buitenland/nederlander-44-ontsnapt-aan-spookrijder-in-oostenrijk-maar-busje-dat-achter-hem-reed-niet~af2e1416/)
-  > Een 44-jarige Nederlander wist maandag in Oostenrijk te ontkomen aan een frontale botsing door zijn auto in een reflex de stoep op te sturen. Een...
-- [Het kost veel geld om een artiest te zijn én te blijven: zo proberen zangers toch rond te komen](https://www.ad.nl/show/het-kost-veel-geld-om-een-artiest-te-zijn-en-te-blijven-zo-proberen-zangers-toch-rond-te-komen~a519175d/)
-  > Ze kwam er onlangs eerlijk voor uit: zangeres Anouk is mogelijk aan haar laatste album bezig. Haar argument: de kosten worden te hoog. Hoe herkenbaar...
+- [Elon Musk maakt complete AI-film met zijn versie van The Odyssey](https://www.ad.nl/show/elon-musk-maakt-complete-ai-film-met-zijn-versie-van-the-odyssey~a9a29ab44/)
+  > Elon Musk belooft dat zijn AI-tool Grok Imagine voor het einde van het jaar een ‘accurate’ versie van The Odyssey heeft gemaakt. De topman van X...
+- [Fans geloven hun ogen niet: Real-ster Vinicius Jr. ondergaat plastische ingreep en lijkt ander persoon](https://www.ad.nl/voetbal/fans-geloven-hun-ogen-niet-real-ster-vinicius-jr-ondergaat-plastische-ingreep-en-lijkt-ander-persoon~aed78535/)
+  > Alsof zijn gezicht eens door een AI-filter is gehaald. Real Madrid-vedette Vinicius Jr. (26) maakte van zijn vakantie gebruik om een cosmetische...
+- [Etappe kent pittige start, Van der Poel: ‘Als er een groep vertrekt, moet ik erbij zitten’](https://www.ad.nl/tour-de-france/etappe-kent-pittige-start-van-der-poel-als-er-een-groep-vertrekt-moet-ik-erbij-zitten~a81871ac/)
+  > Na een rustdag en een tijdrit staat er eindelijk weer een ‘echte’ rit op het programma. De zeventiende etappe is relatief vlak, maar schotelt de...
+- [Dáithí (9) zorgde voor nieuwe orgaandonatiewet en krijgt na acht jaar zelf een nieuw hart](https://www.ad.nl/buitenland/daithi-9-zorgde-voor-nieuwe-orgaandonatiewet-en-krijgt-na-acht-jaar-zelf-een-nieuw-hart~a0fcb3d0/)
+  > Dáithí Mac Gabhann is pas 9 jaar, maar zorgde in zijn korte leventje al voor verregaande verandering in de wetgeving rond orgaandonatie in...
+- [Achteruitlopen of op blote voeten lopen: sportartsen ontleden zin en onzin van wandelhypes](https://www.ad.nl/gezond/achteruitlopen-of-op-blote-voeten-lopen-sportartsen-ontleden-zin-en-onzin-van-wandelhypes~a5938f96/)
+  > Verlost van pijn in knieën of hielen door regelmatig achteruit te lopen of op blote voeten te wandelen: aanhangers zweren erbij, maar werkt het echt?...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Le Tour de Claude](https://fd.nl/financiele-markten/1605477/le-tour-de-claude)
-  > FD-columnist Bert Colijn maakte met wat vrienden een tourpool om een door Tadej Pogacar gedomineerde ronde wat spannender te maken. Een vriend die...
-- [De luie ondernemer waant zich slapend rijk door AI het werk te laten opknappen](https://fd.nl/opinie/1605011/luie-ondernemers-laten-ai-al-het-werk-opknappen)
-  > De ‘mooiweerondernemer’ denkt dat een paar AI-agents bijna volautomatisch een bedrijf kunnen runnen. Zo verwordt een ondernemer tot passagier in een...
-- [Maak van werk en leren weer het hart van ons sociale stelsel](https://fd.nl/opinie/1605309/maak-van-werk-en-leren-weer-het-hart-van-ons-sociale-stelsel)
-  > De arbeidsmarkt verandert volop, maar het socialezekerheidsstelsel in Nederland blijft achter. Het afbouwen van ingewikkelde toeslagen en hogere...
-- [AI-agent van OpenAI hackt onbedoeld ander bedrijf](https://fd.nl/tech-en-innovatie/1605400/ai-agent-van-openai-hackt-onbedoeld-ander-bedrijf)
-  > De hack gebeurde tijdens een test met een nieuw en nog krachtiger AI-model.
-- [FrieslandCampina maakt fors minder winst door lage zuivelprijzen](https://fd.nl/bedrijfsleven/1605399/frieslandcampina-heeft-last-van-lage-zuivelprijzen-en-maakt-minder-winst)
-  > Het bedrijf boekte een lagere winst van €138 mln ten opzichte van €230 mln een jaar eerder.
+- [Voor het eerst in drie jaar minder woningverkopen in Amsterdam en Rotterdam](https://fd.nl/economie/1605402/voor-het-eerst-in-drie-jaar-minder-woningverkopen-in-amsterdam-en-rotterdam)
+  > De gemiddelde woningprijzen in de hoofdstad stijgen al vier kwartalen op rij nauwelijks meer.
+- [Oude analoge camera’s liggen? Niet weggooien!](https://fd.nl/bedrijfsleven/1605170/oude-analoge-cameras-liggen-niet-weggooien)
+  > Plastic analoge camera’s uit de vorige eeuw gaan voor honderden euro’s over de toonbank. Jongeren zijn klaar met perfecte iPhone-foto’s en snakken...
+- [Santander tilt winst boven analistenverwachting na overname Britse bank TSB](https://fd.nl/financiele-markten/1605403/santander-tilt-winst-boven-analistenverwachting-na-overname-britse-bank-tsb)
+  > De Spaanse bank zet in op groei via overnames in het VK en de VS en mikt daarmee op een forse toename van de jaarwinst tegen 2028.
+- [Hersenkraker: wie gaat het menselijk brein ontginnen?](https://fd.nl/tech-en-innovatie/1605307/hersenkraker-wie-gaat-het-menselijk-brein-ontginnen)
+  > Geef de computer aansluiting op het menselijk brein en er zouden ongekende mogelijkheden ontstaan. Wereldwijd werken veel bedrijven aan...
+- [De comeback van RoboJetten](https://fd.nl/opinie/1598110/de-comeback-van-robojetten)
+  > Het Nationaal Kiezersonderzoek levert de onthutsende conclusie op dat maar liefst een derde van de kiezers politici ziet als ‘zakkenvullers’.
 
 ### Meest gelezen
 
