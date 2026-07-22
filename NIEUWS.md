@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-07-2026 om 16:21*
+*Laatst bijgewerkt: 22-07-2026 om 18:09*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Lading cocaïne van 325 miljoen euro gevonden bij inval in Liberia](https://nos.nl/l/2624031)
-  > In het West-Afrikaanse land Liberia heeft de politie een grote lading cocaïne gevonden. De drugs hebben een geschatte waarde van 325 miljoen euro. De...
-- [Zeeuwse milieustraten wapenen zich met zware sloten tegen diefstal](https://nos.nl/l/2624026)
-  > Zeeuwse milieustraten nemen maatregelen om het toenemend aantal diefstallen tegen te gaan. Zo willen ze voorkomen dat vooral oud ijzer en afgedankte...
-- [Bezorgde telefoontjes na aangescherpte reisadviezen Midden-Oosten](https://nos.nl/l/2624024)
-  > Reisorganisaties zijn druk met telefoontjes van bezorgde reizigers. Klanten die een reis hebben geboekt, bellen over het aangescherpte reisadvies...
-- [Epstein-ronselaar en modellenscout Daniel Siad dood aangetroffen in zijn woning](https://nos.nl/l/2624021)
-  > Een Franse modellenscout met banden met zedendelinquent Jeffrey Epstein is dood aangetroffen in zijn huis in een voorstad Parijs, heeft de Franse...
-- [Ieder voor zich op de oliemarkt: raffinaderijen houden prijs aan pomp hoog](https://nos.nl/l/2624016)
-  > Wie deze dagen z'n auto voltankt heeft het al gemerkt: de prijs van benzine en diesel is weer flink gestegen. Deels wordt dat nog altijd veroorzaakt...
+- [Gasprijs stijgt na oplaaiende geweld in Midden-Oosten](https://nos.nl/l/2624061)
+  > De gasprijs is de afgelopen tijd flink gestegen. Op de Europese groothandelsmarkt kwam de prijs vandaag uit op ruim 62 euro per megawattuur. Minder...
+- [Vergunning ontbrak bij wadlopers die bij Ameland in de problemen kwamen](https://nos.nl/l/2624057)
+  > De groep van 32 wadlopers die in mei in de problemen kwam bij Ameland, was mee met een organisatie zonder vergunning. Ook waren er te weinig gidsen....
+- [Iraanse fotograaf laat zien dat 'Hormuz' meer is dan oorlog](https://nos.nl/l/2624055)
+  > Al bijna twee weken worden de bombardementen op Iran alsmaar heviger. Niet alleen militaire doelen, ook doelen die burgers gebruiken worden steeds...
+- [Consumentenbond wil dat Thuisbezorgd gebruikers vergoedt voor verborgen kosten](https://nos.nl/l/2624051)
+  > De Consumentenbond wil dat Thuisbezorgd zijn klanten compenseert voor verborgen kosten op het platform. Volgens de bond zijn klanten voor "honderden...
+- [Alle verkeer hervat op Erasmusbrug na wegtakelen gebotste tramstellen](https://nos.nl/l/2624049)
+  > De bergingsoperatie van de twee trams die op de Erasmusbrug op elkaar botsten, is geslaagd. Met speciale apparatuur zijn de tramstellen van het spoor...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Feyenoord en Calvin Stengs (27) uit elkaar, linkspoot kan op zoek naar nieuwe club](https://www.ad.nl/voetbal/feyenoord-en-calvin-stengs-27-uit-elkaar-linkspoot-kan-op-zoek-naar-nieuwe-club~a27604a2/)
-  > Feyenoord en Calvin Stengs hebben hun overeenkomst laten ontbinden. De 27-jarige linkspoot had nog een contract voor dit seizoen, maar kan nu...
-- [Hond braakt zes damesslips uit bij dierenarts: ‘Hij was al het hele weekend misselijk’](https://www.ad.nl/binnenland/hond-braakt-zes-damesslips-uit-bij-dierenarts-hij-was-al-het-hele-weekend-misselijk~aa06eb7f/)
-  > Een boxer zorgde bij Dierenkliniek Nunspeet voor de nodige verbazing. De hond bleek maar liefst zes damesslips te hebben ingeslikt. Bij de dierenarts...
-- [Er valt moeilijk te formeren met partijen die onze wetgeving ondermijnen](https://www.ad.nl/binnenland/er-valt-moeilijk-te-formeren-met-partijen-die-onze-wetgeving-ondermijnen~aba68579/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Klassementen Tour de France 2026 | Tadej Pogacar behoudt comfortabele voorsprong in strijd om geel: dit zijn de verschillen](https://www.ad.nl/tour-de-france/klassementen-uitslagen-tour-de-france-2026~a537c687/)
-  > De Tour de France is in volle gang. Op zondag 26 juli is de finish in Parijs. In totaal doen zeventien Nederlanders mee, het hoogste aantal sinds...
-- [Jasper Philipsen heeft na goede lead-out van Mathieu van der Poel zijn etappezege binnen](https://www.ad.nl/tour-de-france/jasper-philipsen-heeft-na-goede-lead-out-van-mathieu-van-der-poel-zijn-etappezege-binnen~a81871ac/)
-  > Jasper Philipsen heeft in een zinderende rit, die toch nog op een sprint aankwam, de zeventiende etappe in de Tour de France gewonnen. Olav Kooij...
+- [Kan Thymen Arensman weer toeslaan in derde Tourweek? Zo laat zijn de start en finish](https://www.ad.nl/tour-de-france/kan-thymen-arensman-weer-toeslaan-in-derde-tourweek-zo-laat-zijn-de-start-en-finish~a777536c/)
+  > De achttiende etappe stuurt het peloton voor het eerst deze Tour de France de Alpen in, met een lastige aankomst bergop. Voor de klassementsrenners...
+- [Brutale PostNL-bezorger van route gehaald na ruzie aan voordeur, Sandra krijgt bloemetje en excuses](https://www.ad.nl/binnenland/brutale-postnl-bezorger-van-route-gehaald-na-ruzie-aan-voordeur-sandra-krijgt-bloemetje-en-excuses~a78f51d4/)
+  > De PostNL-bezorger die eerder deze maand in een schermutseling terechtkwam met een bewoonster, is van zijn vaste route gehaald. Sandra, de vrouw in...
+- [Van der Poel, de ultieme teamgenoot voor Philipsen: ‘Het is een privilege, dat realiseer ik me heel goed’](https://www.ad.nl/tour-de-france/van-der-poel-de-ultieme-teamgenoot-voor-philipsen-het-is-een-privilege-dat-realiseer-ik-me-heel-goed~a5082021/)
+  > Op het moment dat Jasper Philipsen hem harder nodig had dan ooit, stond Mathieu van der Poel nog maar eens op. Na een masterclass in de lead-out...
+- [Waarom vrachtwagens toch massaal over de verboden Merwedebrug blijven rijden](https://www.ad.nl/binnenland/waarom-vrachtwagens-toch-massaal-over-de-verboden-merwedebrug-blijven-rijden~ac8373d2/)
+  > De Merwedebrug over de A27 bij Gorinchem is sinds afgelopen weekend verboden voor vrachtverkeer, maar chauffeurs wagen toch massaal de oversteek....
+- [Ik rijd nauwelijks op benzine: hoelang blijft die goed in de tank?](https://www.ad.nl/auto/ik-rijd-nauwelijks-op-benzine-hoelang-blijft-die-goed-in-de-tank~a40fdd24/)
+  > Er zijn de afgelopen tijd veel plug-inhybrides verkocht. Menig automobilist rijdt daarmee nauwelijks op benzine, en des te meer op elektriciteit....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaanse staat ontdekt softwarefout die leidde tot onterechte registratie van kiezers](https://fd.nl/politiek/1605487/amerikaanse-staat-ontdekt-softwarefout-die-leidde-tot-onterechte-registratie-van-kiezers)
-  > Het voorval voedt het debat over stemfraude en strengere regels.
-- [Rheinmetall verdubbelt kruitproductie voor granaten in Beierse fabriek](https://fd.nl/bedrijfsleven/1605417/rheinmetall-verdubbelt-kruitproductie-voor-granaten-in-beierse-fabriek)
-  > Het Duitse defensiebedrijf doet een forse investering in zijn Beierse fabriek, waar de werkgelegenheid flink toeneemt.
-- [‘Anthropic sluit miljardendeal met chipmaker en Nvidia‑concurrent AMD’](https://fd.nl/bedrijfsleven/1605485/anthropic-sluit-miljardendeal-met-chipmaker-en-nvidiaconcurrent-amd)
-  > De maker van AI-chatbot Claude gaat voor miljarden dollars aan chips inkopen.
-- [Van bedrijf tot watersporter: iedereen begint de pijn van laag water te voelen](https://fd.nl/bedrijfsleven/1605413/van-bedrijf-tot-watersporter-iedereen-begint-de-pijn-van-laag-water-te-voelen)
-  > Door historisch lage waterstanden komen steeds meer sectoren in de knel. Enkele bedrijven worden niet meer per schip bevoorraad, riviercruises worden...
-- [Marketmaker Citadel komt naar Amsterdam](https://fd.nl/financiele-markten/1605414/marketmaker-citadel-komt-naar-amsterdam)
-  > De vestiging in Amsterdam is voor Citadel een manier om zijn activiteiten op het gebied van aandelenderivaten te vergroten.
+- [Kortetermijnvisie op infra gaat nu echt pijn doen](https://fd.nl/opinie/1605348/kortetermijnvisie-op-infra-gaat-nu-echt-pijn-doen)
+  > Het vooruitschuiven van noodzakelijk onderhoud aan bruggen en wegen leidt uiteindelijk tot hogere kosten en economische schade.
+- [Restaurant aan de Zuidas mag blijven grillen van de rechter](https://fd.nl/bedrijfsleven/1605490/restaurant-aan-de-zuidas-mag-blijven-grillen-van-de-rechter)
+  > Volgens de rechter heeft La Mesa voldoende aangetoond dat er veiligheidsmaatregelen zijn genomen.
+- [Crypto-ondernemer Lucas Wensing vecht beursgang uit bij de rechter](https://fd.nl/bedrijfsleven/1605407/crypto-ondernemer-lucas-wensing-vecht-beursgang-uit-bij-de-rechter)
+  > Ambts, een initiatief van crypto-ondernemer Lucas Wensing, wilde naar de beurs. Maar wat de AFM betreft moet de prospectus dan eerst worden...
+- [Advocatenkantoor CMS schrijft omzetgroei van 4,8% bij](https://fd.nl/bedrijfsleven/1605489/advocatenkantoor-cms-schrijft-omzetgroei-van-4-8-bij)
+  > Het internationaal actieve advocatenkantoor boekte vorig jaar een omzet van ruim €2,2 mrd.
+- [Revolut is $115 mrd waard na nieuwe aandelenverkoop](https://fd.nl/financiele-markten/1605426/revolut-is-115-mrd-waard-na-nieuwe-aandelenverkoop)
+  > Bij een nieuwe secundaire aandelenverkoop stijgt de waardering van onlinebank Revolut in een jaar tijd tot $155 mrd.
 
 ### Meest gelezen
 
