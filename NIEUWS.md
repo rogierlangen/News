@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-07-2026 om 11:49*
+*Laatst bijgewerkt: 22-07-2026 om 14:04*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Koraans restaurant serveert mieren als garnering, kok riskeert celstraf](https://nos.nl/l/2623994)
-  > Een restauranteigenaar in Zuid-Korea riskeert een jaar celstraf omdat hij mieren heeft geserveerd. Volgens het ministerie van Voedselveiligheid...
-- [Oorlog met Iran kostte volgens regering-Trump 33 miljard en daar blijft het niet bij](https://nos.nl/l/2623986)
-  > De oorlog met Iran heeft de VS volgens minister Hegseth van Defensie al bijna 33 miljard euro gekost. Dat zei hij op een hoorzitting van de Senaat,...
-- [De Nederlandsche Bank: grote investeringen nodig voor bouw huurwoningen](https://nos.nl/l/2623983)
-  > Het moet voor investeerders aantrekkelijker worden gemaakt om geld te steken in de bouw van huurwoningen. Als de investeringen in de huursector...
-- [Botsing tussen twee trams op Erasmusbrug in Rotterdam, vijftien gewonden](https://nos.nl/l/2623974)
-  > Op de Erasmusbrug in Rotterdam zijn twee trams met elkaar in botsing gekomen en één van de trams is daarbij ontspoord. Volgens de veiligheidsregio...
-- [Neergestort vliegtuig na 74 jaar gevonden bij kust van Puerto Rico](https://nos.nl/l/2623973)
-  > In de oceaan voor de kust van Puerto Rico hebben onderzoekers het wrak gevonden van een vliegtuig dat in 1952 is neergestort. Bij de crash kwamen 52...
+- [Vijf jaar cel voor opdrachtgever aanslag woning Purmerend](https://nos.nl/l/2624012)
+  > De rechtbank heeft de 20-jarige Mahir B. uit Purmerend veroordeeld tot vijf jaar cel voor zijn rol bij de aanslag op een woning in Purmerend, meldt...
+- [8 jaar cel en tbs voor psychiatrische patiënt die vrouw (76) doodstak in Den Dolder](https://nos.nl/l/2624007)
+  > De rechtbank in Utrecht heeft Mert P. (29) veroordeeld tot acht jaar cel en tbs met dwangverpleging voor het doden van een 76-jarige vrouw in Den...
+- [Apollo-galerij Louvre weer open voor publiek, kroonjuwelen schitteren door afwezigheid](https://nos.nl/l/2624004)
+  > De Apollo-galerij in het Louvre, die na de geruchtmakende inbraak negen maanden gesloten was, is vanaf vandaag weer open voor publiek. Glinsterende...
+- [Ebola-uitbraak in Congo eist bijna 1000 doden, snelste uitbraak ooit](https://nos.nl/l/2624003)
+  > Zeker 999 mensen zijn om het leven gekomen door de ebola-uitbraak in de Democratische Republiek Congo (DRC). Met deze statistiek is het de snelste...
+- [Verdachte (18) aangehouden voor ernstige mishandeling tijdens Vierdaagsefeesten](https://nos.nl/l/2624002)
+  > Een man die verdacht wordt van een ernstige mishandeling zaterdag in Nijmegen is aangehouden. De politie wist hem op te sporen, nadat een foto van de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Elon Musk maakt complete AI-film met zijn versie van The Odyssey](https://www.ad.nl/show/elon-musk-maakt-complete-ai-film-met-zijn-versie-van-the-odyssey~a9a29ab44/)
-  > Elon Musk belooft dat zijn AI-tool Grok Imagine voor het einde van het jaar een ‘accurate’ versie van The Odyssey heeft gemaakt. De topman van X...
-- [Fans geloven hun ogen niet: Real-ster Vinicius Jr. ondergaat plastische ingreep en lijkt ander persoon](https://www.ad.nl/voetbal/fans-geloven-hun-ogen-niet-real-ster-vinicius-jr-ondergaat-plastische-ingreep-en-lijkt-ander-persoon~aed78535/)
-  > Alsof zijn gezicht eens door een AI-filter is gehaald. Real Madrid-vedette Vinicius Jr. (26) maakte van zijn vakantie gebruik om een cosmetische...
-- [Etappe kent pittige start, Van der Poel: ‘Als er een groep vertrekt, moet ik erbij zitten’](https://www.ad.nl/tour-de-france/etappe-kent-pittige-start-van-der-poel-als-er-een-groep-vertrekt-moet-ik-erbij-zitten~a81871ac/)
-  > Na een rustdag en een tijdrit staat er eindelijk weer een ‘echte’ rit op het programma. De zeventiende etappe is relatief vlak, maar schotelt de...
-- [Dáithí (9) zorgde voor nieuwe orgaandonatiewet en krijgt na acht jaar zelf een nieuw hart](https://www.ad.nl/buitenland/daithi-9-zorgde-voor-nieuwe-orgaandonatiewet-en-krijgt-na-acht-jaar-zelf-een-nieuw-hart~a0fcb3d0/)
-  > Dáithí Mac Gabhann is pas 9 jaar, maar zorgde in zijn korte leventje al voor verregaande verandering in de wetgeving rond orgaandonatie in...
-- [Achteruitlopen of op blote voeten lopen: sportartsen ontleden zin en onzin van wandelhypes](https://www.ad.nl/gezond/achteruitlopen-of-op-blote-voeten-lopen-sportartsen-ontleden-zin-en-onzin-van-wandelhypes~a5938f96/)
-  > Verlost van pijn in knieën of hielen door regelmatig achteruit te lopen of op blote voeten te wandelen: aanhangers zweren erbij, maar werkt het echt?...
+- [Vier keer meer bosbranden in Spanje dan vorig jaar, Griekenland beleeft heetste dag tot nu toe](https://www.ad.nl/buitenland/vier-keer-meer-bosbranden-in-spanje-dan-vorig-jaar-griekenland-beleeft-heetste-dag-tot-nu-toe~a4195717/)
+  > De Spaanse autoriteiten hopen dat de bosbrand, die sinds vorige week ongeveer 32.000 hectare heeft verwoest op zo’n honderd kilometer ten noorden van...
+- [Nieuwe Ajax-coach is blij met Daley Blind: ‘Hij heeft de honger om te blijven voetballen’](https://www.ad.nl/voetbal/nieuwe-ajax-coach-is-blij-met-daley-blind-hij-heeft-de-honger-om-te-blijven-voetballen~a2680b85/)
+  > Ajax-trainer Míchel rekent op een sterk FK Vojvodina donderdag in de tweede voorronde van de Conference League. „Het is een moeilijke tegenstander,...
+- [Mychajlo Drapaty, wars van het Sovjetverleden, is de nieuwe topman van het Oekraïense leger](https://www.ad.nl/buitenland/mychajlo-drapaty-wars-van-het-sovjetverleden-is-de-nieuwe-topman-van-het-oekraiense-leger~ab6d0945/)
+  > De 43-jarige Mychajlo Drapaty is de nieuwe hoogste militair van Oekraïne. De generaal weet uit ervaring wat vechten is en heeft de Sovjettraditie...
+- [Aanwinsten Weghorst en Zerrouki meteen in basis bij Europese clash FC Twente: ‘Daar is geen discussie over’](https://www.ad.nl/voetbal/aanwinsten-weghorst-en-zerrouki-meteen-in-basis-bij-europese-clash-fc-twente-daar-is-geen-discussie-over~af105e6e/)
+  > Een dag voor de Europese wedstrijd tegen Ferencváros was trainer John van den Brom duidelijk: Wout Weghorst en Ramiz Zerrouki staan donderdagavond in...
+- [Vermist vliegtuig uit 1952 teruggevonden: crash veranderde veiligheidsregels voorgoed](https://www.ad.nl/buitenland/vermist-vliegtuig-uit-1952-teruggevonden-crash-veranderde-veiligheidsregels-voorgoed~a39ba55c/)
+  > In de oceaan voor de kust van Puerto Rico hebben onderzoekers het wrak gevonden van het Pan Am-vliegtuig dat in 1952 is neergestort. Sinds deze...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Voor het eerst in drie jaar minder woningverkopen in Amsterdam en Rotterdam](https://fd.nl/economie/1605402/voor-het-eerst-in-drie-jaar-minder-woningverkopen-in-amsterdam-en-rotterdam)
-  > De gemiddelde woningprijzen in de hoofdstad stijgen al vier kwartalen op rij nauwelijks meer.
-- [Oude analoge camera’s liggen? Niet weggooien!](https://fd.nl/bedrijfsleven/1605170/oude-analoge-cameras-liggen-niet-weggooien)
-  > Plastic analoge camera’s uit de vorige eeuw gaan voor honderden euro’s over de toonbank. Jongeren zijn klaar met perfecte iPhone-foto’s en snakken...
-- [Santander tilt winst boven analistenverwachting na overname Britse bank TSB](https://fd.nl/financiele-markten/1605403/santander-tilt-winst-boven-analistenverwachting-na-overname-britse-bank-tsb)
-  > De Spaanse bank zet in op groei via overnames in het VK en de VS en mikt daarmee op een forse toename van de jaarwinst tegen 2028.
-- [Hersenkraker: wie gaat het menselijk brein ontginnen?](https://fd.nl/tech-en-innovatie/1605307/hersenkraker-wie-gaat-het-menselijk-brein-ontginnen)
-  > Geef de computer aansluiting op het menselijk brein en er zouden ongekende mogelijkheden ontstaan. Wereldwijd werken veel bedrijven aan...
-- [De comeback van RoboJetten](https://fd.nl/opinie/1598110/de-comeback-van-robojetten)
-  > Het Nationaal Kiezersonderzoek levert de onthutsende conclusie op dat maar liefst een derde van de kiezers politici ziet als ‘zakkenvullers’.
+- [Ascetische centralebankpresident is steunpilaar van Peru’s economie](https://fd.nl/economie/1604494/ascetische-centralebankpresident-is-steunpilaar-van-perus-economie)
+  > Julio Velarde is al twintig jaar president van de centrale bank van Peru. Hij wordt gezien als een belangrijke reden dat de economie de afgelopen...
+- [‘Winst’ Picnic Nederland is betrekkelijk](https://fd.nl/financiele-markten/1605350/winst-picnic-nederland-is-betrekkelijk)
+  > Het operationele verlies van de onlinesupermarkt wordt kleiner, maar voor nieuwe investeringen heeft Picnic zijn aandeelhouders nog lang nodig.
+- [Na jaren van droogte gaan biotechbedrijven weer naar de beurs](https://fd.nl/financiele-markten/1605480/na-jaren-van-droogte-gaan-biotechbedrijven-weer-naar-de-beurs)
+  > Vooral Amerikaanse ondernemingen profiteren van herstel, Europa doet maar mondjesmaat mee.
+- [Op zoek naar artistieke vrijheid](https://fd.nl/samenleving/1605193/op-zoek-naar-artistieke-vrijheid)
+  > Kunstenaar Nour-Eddine Jarram kwam als jongeman vanuit Casablanca naar Nederland. In zijn veelgeprezen werk zit altijd iets Nederlands en iets...
+- [Acteur Bilal El Aoumari: ‘Ik heb altijd het gevoel gehad dat ik me moet bewijzen. Dat ik 2-0 achtersta’](https://fd.nl/samenleving/1605185/acteur-bilal-el-aoumari-ik-heb-altijd-het-gevoel-gehad-dat-ik-me-moet-bewijzen-dat-ik-2-0-achtersta)
+  > Bilal El Aoumari kreeg een Gouden Kalf voor zijn rol in de tv-serie Laura H. en studeert nu in Parijs.
 
 ### Meest gelezen
 
