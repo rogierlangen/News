@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-07-2026 om 03:32*
+*Laatst bijgewerkt: 22-07-2026 om 06:31*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Hangars, schepen, bruggen en tunnels: dit hebben Iran en de VS gebombardeerd](https://nos.nl/l/2623948)
+  > Ruim twee weken woedt in het Midden-Oosten nu weer een luchtoorlog tussen Iran en de VS. Dagelijks zijn er raket- en droneaanvallen, maar wat is...
+- [Man aangehouden voor dodelijk schietincident bij Vierdaagsefeesten](https://nos.nl/l/2623945)
+  > De politie heeft vannacht een 18-jarige man uit Rotterdam aangehouden voor een dodelijk schietincident in Nijmegen. Net buiten het gebied waar de...
+- [Wekdienst 22/7: 15 jaar na aanslag op Noors Utøya • Tweede dag Nijmeegse Vierdaagse](https://nos.nl/l/2623944)
+  > Goedemorgen! Vandaag wordt een politiebureau geopend in het huis waar Adolf Hitler werd geboren in Oostenrijk. En lopers zijn begonnen aan de tweede...
 - [Vorig jaar flink minder Amazoneregenwoud afgebrand](https://nos.nl/l/2623941)
   > Na jaren van alarmerende berichten over het Braziliaanse Amazoneregenwoud is er nu een beetje goed nieuws. Sinds het begin van de metingen, in 1985,...
-- [Man die uit vliegtuig gezogen werd: "Hoofd en nek doen pijn, maar ik leef nog"](https://nos.nl/l/2623940)
+- [Man die uit vliegtuig gezogen werd: 'Hoofd en nek doen pijn, maar ik leef nog'](https://nos.nl/l/2623940)
   > De man die eerder deze maand aan de dood ontsnapte nadat hij bijna door een kapot raam in een vliegtuig naar buiten werd gezogen, is uit het...
-- [Reisadviezen Midden-Oosten aangescherpt vanwege opgelaaid geweld Iran en VS](https://nos.nl/l/2623939)
-  > Het ministerie van Buitenlandse Zaken heeft de reisadviezen voor een aantal landen in het Midden-Oosten aangescherpt. Volgens het ministerie is de...
-- [Jonge man doodgeschoten rond feesten Nijmeegse Vierdaagse](https://nos.nl/l/2623934)
-  > In Nijmegen is rond de Vierdaagsefeesten iemand doodgeschoten. Dat gebeurde iets na 22.00 uur. Het slachtoffer overleed niet veel later in het...
-- [Hoge energiekosten en concurrentie: Chemelot kijkt met zorg naar toekomst](https://nos.nl/l/2623928)
-  > Gordijnen, keukenkastjes, waterkokers, en ook afwasborstels. Allemaal bevatten ze materialen afkomstig van het kilometers grote industriecomplex...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Luisterboek De Oddysee is sinds succes verfilming ineens veel populairder](https://www.ad.nl/show/luisterboek-de-oddysee-is-sinds-succes-verfilming-ineens-veel-populairder~ad7c2bb5/)
-  > Muziekstreamer Spotify signaleert rond de première van de film The Odyssey van Christopher Nolan een grote toename van de interesse voor de...
-- [Duitse vrouw stort 200 meter naar beneden tijdens wandeling in Zuid-Tirol](https://www.ad.nl/buitenland/duitse-vrouw-stort-200-meter-naar-beneden-tijdens-wandeling-in-zuid-tirol~adc83215/)
-  > In de Noord-Italiaanse provincie Zuid-Tirol is dinsdag een Duitse vrouw om het leven gekomen tijdens een wandeling in de bergen. De vrouw raakte in...
-- [Zwarte zaterdag of niet: we willen gewoon gáán](https://www.ad.nl/binnenland/zwarte-zaterdag-of-niet-we-willen-gewoon-gaan~ae8c02bd/)
-  > File op zaterdag lijkt deze vakantie onontkoombaar, maar is dat wel zo? Boeken van zaterdag tot zaterdag hoeft allang niet meer. Accommodaties zijn...
-- [Canada zegt gezamenlijke opening brug met VS af om handelsgeschil](https://www.ad.nl/buitenland/canada-zegt-gezamenlijke-opening-brug-met-vs-af-om-handelsgeschil~ae67dd9c/)
-  > Canada heeft een gezamenlijke opening met de VS van een internationale brug afgezegd wegens de dreigementen van de Amerikaanse president Donald Trump...
-- [Nieuwe natuurbrand in Zuid-Franse regio Var breidt zich snel uit](https://www.ad.nl/buitenland/nieuwe-natuurbrand-in-zuid-franse-regio-var-breidt-zich-snel-uit~a874ed87/)
-  > In het departement Var, in het zuiden van Frankrijk, is dinsdag een zich snel uitbreidende natuurbrand uitgebroken. Honderden mensen zijn hun huizen...
+- [Man die bijna uit kapot vliegtuigraam werd gezogen, reageert voor het eerst: ‘Herinner me alleen de explosie’](https://www.ad.nl/buitenland/man-die-bijna-uit-kapot-vliegtuigraam-werd-gezogen-reageert-voor-het-eerst-herinner-me-alleen-de-explosie~a8f9accc/)
+  > De Servische passagier die eerder deze maand bijna uit een raam werd gezogen tijdens een Ryanair-vlucht, heeft voor het eerst uitgebreid verteld over...
+- [Tweevoudig olympisch roeikampioen (50) overleden: ‘Een van grootste sporthelden van Noorwegen’](https://www.ad.nl/andere-sporten/tweevoudig-olympisch-roeikampioen-50-overleden-een-van-grootste-sporthelden-van-noorwegen~a66ead03/)
+  > De Noorse oud-roeikampioen Olaf Tufte is dinsdag op 50-jarige leeftijd overleden. Dat heeft zijn familie bekendgemaakt. Volgens berichten in de...
+- [Webshopkenner Dennis waarschuwt voor spookpakketten: geen stofzuiger van 400 euro, maar wel stiften](https://www.ad.nl/binnenland/webshopkenner-dennis-waarschuwt-voor-spookpakketten-geen-stofzuiger-van-400-euro-maar-wel-stiften~aab98e6d/)
+  > Je hebt niets besteld en krijgt toch een pakketje thuisbezorgd. Leuk? Niet als de afzender je probeert te bedonderen. Dennis Aagten uit Glanerbrug,...
+- [‘Ik haak bewust sneller af dan vroeger’: Mathieu van der Poel aast op ultieme bonus in Tour de France](https://www.ad.nl/tour-de-france/ik-haak-bewust-sneller-af-dan-vroeger-mathieu-van-der-poel-aast-op-ultieme-bonus-in-tour-de-france~aaab3863/)
+  > Zijn Tour is al geslaagd, maar Mathieu van der Poel gaat in de laatste dagen voor de ultieme bonus. Nóg een rit winnen is de missie. Hij heeft nog...
+- [Van schattige prins naar opgeschoten tiener: jarige George (13) staat voor een zomer vol veranderingen](https://www.ad.nl/show/van-schattige-prins-naar-opgeschoten-tiener-jarige-george-13-staat-voor-een-zomer-vol-veranderingen~a53e042b/)
+  > Het wordt een zomer vol veranderingen voor de Britse prins George, de oudste zoon van prins William en prinses Catherine. De prins, die woensdag 13...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Hoe Chinese AI Silicon Valley bang maakt](https://fd.nl/economie/1605265/hoe-chinese-ai-silicon-valley-bang-maakt)
-  > Vandaag in de Dagkoers: De nieuwe goedkope Chinese AI is even goed als de beste Amerikaanse modellen en Trump vervolgt zijn tarievenoorlog, wat gaat...
-- [Wat Limburgs mij leerde als diplomaat](https://fd.nl/opinie/1605318/wat-limburgs-mij-leerde-als-diplomaat)
-  > Meertalig opgroeien maakt je flexibeler, empathischer en beter in schakelen. Dat geldt niet alleen voor wereldtalen, maar ook voor de taal van je...
-- [Demografische aardverschuiving](https://fd.nl/opinie/1605254/demografische-aardverschuiving)
-  > Het migratiedebat gaat vooral over asiel. Begrijpelijk, maar daarmee missen we een grotere economische ontwikkeling.
-- [Chinese AI is prima en heel goedkoop, daar wordt men in de VS nerveus van](https://fd.nl/tech-en-innovatie/1605244/chinese-ai-is-prima-en-heel-goedkoop-daar-wordt-men-in-de-vs-nerveus-van)
-  > Chinese AI-bedrijven lanceren de laatste weken het ene na het andere model dat zich kan meten met ChatGPT, Claude en Gemini. Het gebruik bij...
-- [Personalia woensdag 22 juli](https://fd.nl/bedrijfsleven/1605347/personalia-woensdag-22-juli)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Bestaande koopwoningen in juni 4,1% duurder](https://fd.nl/economie/1605274/bestaande-koopwoningen-in-juni-4-1-duurder)
+  > Er werden ook meer woningen verkocht in de maand juni dan een jaar eerder.
+- [Trump en Saoedi-Arabië sluiten nucleair akkoord](https://fd.nl/politiek/1605273/trump-en-saoedi-arabie-sluiten-nucleair-akkoord)
+  > Saoedi-Arabië mag volgens het verdrag een civiel nucleaire programma opzetten en mogelijk ook uranium gaan verrijken.
+- [KPN verlaagt omzetverwachting en boekt minder winst](https://fd.nl/bedrijfsleven/1605272/kpn-verlaagt-omzetverwachting-en-boekt-minder-winst)
+  > Het bedrijf mikt nu op een omzetgroei van ongeveer 1,5%, waar het eerder uitging van 2,5%. Net zoals vorig kwartaal vallen de verkopen aan grote...
+- [Randstad blijft doorgroeien](https://fd.nl/bedrijfsleven/1605270/randstad-blijft-doorgroeien)
+  > Na drie jaar van slechte resultaten, laat de uitzender nu twee kwartalen op rij groei zien. Bovendien overtreffen de resultaten weer analisten...
+- [Lichte margeverbetering voor AkzoNobel](https://fd.nl/bedrijfsleven/1605271/lichte-margeverbetering-voor-akzonobel)
+  > Het bedrijf, bekend van merken als Flexa en Sikkens en professionele coatings, wist hogere grondstofprijzen op te vangen door klanten meer te laten...
 
 ### Meest gelezen
 
