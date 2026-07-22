@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-07-2026 om 23:57*
+*Laatst bijgewerkt: 22-07-2026 om 03:32*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Vorig jaar flink minder Amazoneregenwoud afgebrand](https://nos.nl/l/2623941)
+  > Na jaren van alarmerende berichten over het Braziliaanse Amazoneregenwoud is er nu een beetje goed nieuws. Sinds het begin van de metingen, in 1985,...
+- [Man die uit vliegtuig gezogen werd: "Hoofd en nek doen pijn, maar ik leef nog"](https://nos.nl/l/2623940)
+  > De man die eerder deze maand aan de dood ontsnapte nadat hij bijna door een kapot raam in een vliegtuig naar buiten werd gezogen, is uit het...
 - [Reisadviezen Midden-Oosten aangescherpt vanwege opgelaaid geweld Iran en VS](https://nos.nl/l/2623939)
   > Het ministerie van Buitenlandse Zaken heeft de reisadviezen voor een aantal landen in het Midden-Oosten aangescherpt. Volgens het ministerie is de...
 - [Jonge man doodgeschoten rond feesten Nijmeegse Vierdaagse](https://nos.nl/l/2623934)
   > In Nijmegen is rond de Vierdaagsefeesten iemand doodgeschoten. Dat gebeurde iets na 22.00 uur. Het slachtoffer overleed niet veel later in het...
 - [Hoge energiekosten en concurrentie: Chemelot kijkt met zorg naar toekomst](https://nos.nl/l/2623928)
   > Gordijnen, keukenkastjes, waterkokers, en ook afwasborstels. Allemaal bevatten ze materialen afkomstig van het kilometers grote industriecomplex...
-- [President Zelensky stuurt ook legerchef Syrsky weg](https://nos.nl/l/2623927)
-  > De Oekraïense commandant der strijdkrachten Oleksandr Syrsky wordt ontslagen. President Zelensky heeft dat bekendgemaakt op sociale media, zonder...
-- [Smithsonian bijt van zich af na kritiek van Witte Huis: 'We moeten hele verhaal vertellen'](https://nos.nl/l/2623926)
-  > De directeur van het National Museum of American History in Washington wijst de scherpe kritiek van het Witte Huis op haar functioneren van de hand....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nog drie Nederlanders over op belangrijkste dartstoernooi na WK: alles over de World Matchplay](https://www.ad.nl/darts/nog-drie-nederlanders-over-op-belangrijkste-dartstoernooi-na-wk-alles-over-de-world-matchplay~a36ece34/)
-  > Het belangrijkste toernooi na het WK darts staat op het programma. De World Matchplay (18 tot en met 26 juli), ook wel het ‘zomer-WK’ genoemd, biedt...
-- [Voetbalpodcast | ‘Bizar! Van de laatste vier uitgaande transfers bij PSV zijn er drie niet doorgegaan’](https://www.ad.nl/voetbal/voetbalpodcast-bizar-van-de-laatste-vier-uitgaande-transfers-bij-psv-zijn-er-drie-niet-doorgegaan~a42af5cd9/)
-  > Mark van Bommel als bondscoach van de Belgen? Zijn naam valt daar wel. En terwijl Nederland nog wacht op een nieuwe bondscoach zijn ze in het...
-- [Buitenlandse Zaken verscherpt reisadviezen voor Midden-Oosten](https://www.ad.nl/binnenland/buitenlandse-zaken-verscherpt-reisadviezen-voor-midden-oosten~ac8f7b8f/)
-  > De reisadviezen voor verschillende landen in het Midden-Oosten zijn aangescherpt. Dat komt omdat de veiligheidssituatie daar is verslechterd, aldus...
-- [Sensatie op World Matchplay: Littler gooit 9-darter in eerste leg (en is meteen daarna wéér dichtbij)](https://www.ad.nl/darts/sensatie-op-world-matchplay-littler-gooit-9-darter-in-eerste-leg-en-is-meteen-daarna-weer-dichtbij~ab8fef55/)
-  > Dat is nog eens een binnenkomer. Wereldkampioen Luke Littler heeft in de openingsleg van zijn partij tegen Nathan Aspinall meteen een 9-darter...
-- [Amerikaanse minister schat kosten Iranoorlog voor VS op 37,5 miljard dollar](https://www.ad.nl/buitenland/amerikaanse-minister-schat-kosten-iranoorlog-voor-vs-op-37-5-miljard-dollar~ac528ac3/)
-  > De Amerikaanse minister van Defensie Pete Hegseth schat dat de Iranoorlog de VS tot dusver zo'n 37,5 miljard dollar (circa 32,5 miljard euro) heeft...
+- [Luisterboek De Oddysee is sinds succes verfilming ineens veel populairder](https://www.ad.nl/show/luisterboek-de-oddysee-is-sinds-succes-verfilming-ineens-veel-populairder~ad7c2bb5/)
+  > Muziekstreamer Spotify signaleert rond de première van de film The Odyssey van Christopher Nolan een grote toename van de interesse voor de...
+- [Duitse vrouw stort 200 meter naar beneden tijdens wandeling in Zuid-Tirol](https://www.ad.nl/buitenland/duitse-vrouw-stort-200-meter-naar-beneden-tijdens-wandeling-in-zuid-tirol~adc83215/)
+  > In de Noord-Italiaanse provincie Zuid-Tirol is dinsdag een Duitse vrouw om het leven gekomen tijdens een wandeling in de bergen. De vrouw raakte in...
+- [Zwarte zaterdag of niet: we willen gewoon gáán](https://www.ad.nl/binnenland/zwarte-zaterdag-of-niet-we-willen-gewoon-gaan~ae8c02bd/)
+  > File op zaterdag lijkt deze vakantie onontkoombaar, maar is dat wel zo? Boeken van zaterdag tot zaterdag hoeft allang niet meer. Accommodaties zijn...
+- [Canada zegt gezamenlijke opening brug met VS af om handelsgeschil](https://www.ad.nl/buitenland/canada-zegt-gezamenlijke-opening-brug-met-vs-af-om-handelsgeschil~ae67dd9c/)
+  > Canada heeft een gezamenlijke opening met de VS van een internationale brug afgezegd wegens de dreigementen van de Amerikaanse president Donald Trump...
+- [Nieuwe natuurbrand in Zuid-Franse regio Var breidt zich snel uit](https://www.ad.nl/buitenland/nieuwe-natuurbrand-in-zuid-franse-regio-var-breidt-zich-snel-uit~a874ed87/)
+  > In het departement Var, in het zuiden van Frankrijk, is dinsdag een zich snel uitbreidende natuurbrand uitgebroken. Honderden mensen zijn hun huizen...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Hoe Chinese AI Silicon Valley bang maakt](https://fd.nl/economie/1605265/hoe-chinese-ai-silicon-valley-bang-maakt)
+  > Vandaag in de Dagkoers: De nieuwe goedkope Chinese AI is even goed als de beste Amerikaanse modellen en Trump vervolgt zijn tarievenoorlog, wat gaat...
 - [Wat Limburgs mij leerde als diplomaat](https://fd.nl/opinie/1605318/wat-limburgs-mij-leerde-als-diplomaat)
   > Meertalig opgroeien maakt je flexibeler, empathischer en beter in schakelen. Dat geldt niet alleen voor wereldtalen, maar ook voor de taal van je...
 - [Demografische aardverschuiving](https://fd.nl/opinie/1605254/demografische-aardverschuiving)
@@ -54,8 +56,6 @@
   > Chinese AI-bedrijven lanceren de laatste weken het ene na het andere model dat zich kan meten met ChatGPT, Claude en Gemini. Het gebruik bij...
 - [Personalia woensdag 22 juli](https://fd.nl/bedrijfsleven/1605347/personalia-woensdag-22-juli)
   > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Zelensky ontslaat legerchef Syrsky na protesten](https://fd.nl/politiek/1605398/zelensky-ontslaat-legerchef-syrsky-na-protesten)
-  > Commandant der strijdkrachten Syrsky leek na het ontslag van defensieminister Fedorov de machtsstrijd gewonnen te hebben, maar onder druk van...
 
 ### Meest gelezen
 
