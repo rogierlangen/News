@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-07-2026 om 14:04*
+*Laatst bijgewerkt: 22-07-2026 om 16:21*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Vijf jaar cel voor opdrachtgever aanslag woning Purmerend](https://nos.nl/l/2624012)
-  > De rechtbank heeft de 20-jarige Mahir B. uit Purmerend veroordeeld tot vijf jaar cel voor zijn rol bij de aanslag op een woning in Purmerend, meldt...
-- [8 jaar cel en tbs voor psychiatrische patiënt die vrouw (76) doodstak in Den Dolder](https://nos.nl/l/2624007)
-  > De rechtbank in Utrecht heeft Mert P. (29) veroordeeld tot acht jaar cel en tbs met dwangverpleging voor het doden van een 76-jarige vrouw in Den...
-- [Apollo-galerij Louvre weer open voor publiek, kroonjuwelen schitteren door afwezigheid](https://nos.nl/l/2624004)
-  > De Apollo-galerij in het Louvre, die na de geruchtmakende inbraak negen maanden gesloten was, is vanaf vandaag weer open voor publiek. Glinsterende...
-- [Ebola-uitbraak in Congo eist bijna 1000 doden, snelste uitbraak ooit](https://nos.nl/l/2624003)
-  > Zeker 999 mensen zijn om het leven gekomen door de ebola-uitbraak in de Democratische Republiek Congo (DRC). Met deze statistiek is het de snelste...
-- [Verdachte (18) aangehouden voor ernstige mishandeling tijdens Vierdaagsefeesten](https://nos.nl/l/2624002)
-  > Een man die verdacht wordt van een ernstige mishandeling zaterdag in Nijmegen is aangehouden. De politie wist hem op te sporen, nadat een foto van de...
+- [Lading cocaïne van 325 miljoen euro gevonden bij inval in Liberia](https://nos.nl/l/2624031)
+  > In het West-Afrikaanse land Liberia heeft de politie een grote lading cocaïne gevonden. De drugs hebben een geschatte waarde van 325 miljoen euro. De...
+- [Zeeuwse milieustraten wapenen zich met zware sloten tegen diefstal](https://nos.nl/l/2624026)
+  > Zeeuwse milieustraten nemen maatregelen om het toenemend aantal diefstallen tegen te gaan. Zo willen ze voorkomen dat vooral oud ijzer en afgedankte...
+- [Bezorgde telefoontjes na aangescherpte reisadviezen Midden-Oosten](https://nos.nl/l/2624024)
+  > Reisorganisaties zijn druk met telefoontjes van bezorgde reizigers. Klanten die een reis hebben geboekt, bellen over het aangescherpte reisadvies...
+- [Epstein-ronselaar en modellenscout Daniel Siad dood aangetroffen in zijn woning](https://nos.nl/l/2624021)
+  > Een Franse modellenscout met banden met zedendelinquent Jeffrey Epstein is dood aangetroffen in zijn huis in een voorstad Parijs, heeft de Franse...
+- [Ieder voor zich op de oliemarkt: raffinaderijen houden prijs aan pomp hoog](https://nos.nl/l/2624016)
+  > Wie deze dagen z'n auto voltankt heeft het al gemerkt: de prijs van benzine en diesel is weer flink gestegen. Deels wordt dat nog altijd veroorzaakt...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Vier keer meer bosbranden in Spanje dan vorig jaar, Griekenland beleeft heetste dag tot nu toe](https://www.ad.nl/buitenland/vier-keer-meer-bosbranden-in-spanje-dan-vorig-jaar-griekenland-beleeft-heetste-dag-tot-nu-toe~a4195717/)
-  > De Spaanse autoriteiten hopen dat de bosbrand, die sinds vorige week ongeveer 32.000 hectare heeft verwoest op zo’n honderd kilometer ten noorden van...
-- [Nieuwe Ajax-coach is blij met Daley Blind: ‘Hij heeft de honger om te blijven voetballen’](https://www.ad.nl/voetbal/nieuwe-ajax-coach-is-blij-met-daley-blind-hij-heeft-de-honger-om-te-blijven-voetballen~a2680b85/)
-  > Ajax-trainer Míchel rekent op een sterk FK Vojvodina donderdag in de tweede voorronde van de Conference League. „Het is een moeilijke tegenstander,...
-- [Mychajlo Drapaty, wars van het Sovjetverleden, is de nieuwe topman van het Oekraïense leger](https://www.ad.nl/buitenland/mychajlo-drapaty-wars-van-het-sovjetverleden-is-de-nieuwe-topman-van-het-oekraiense-leger~ab6d0945/)
-  > De 43-jarige Mychajlo Drapaty is de nieuwe hoogste militair van Oekraïne. De generaal weet uit ervaring wat vechten is en heeft de Sovjettraditie...
-- [Aanwinsten Weghorst en Zerrouki meteen in basis bij Europese clash FC Twente: ‘Daar is geen discussie over’](https://www.ad.nl/voetbal/aanwinsten-weghorst-en-zerrouki-meteen-in-basis-bij-europese-clash-fc-twente-daar-is-geen-discussie-over~af105e6e/)
-  > Een dag voor de Europese wedstrijd tegen Ferencváros was trainer John van den Brom duidelijk: Wout Weghorst en Ramiz Zerrouki staan donderdagavond in...
-- [Vermist vliegtuig uit 1952 teruggevonden: crash veranderde veiligheidsregels voorgoed](https://www.ad.nl/buitenland/vermist-vliegtuig-uit-1952-teruggevonden-crash-veranderde-veiligheidsregels-voorgoed~a39ba55c/)
-  > In de oceaan voor de kust van Puerto Rico hebben onderzoekers het wrak gevonden van het Pan Am-vliegtuig dat in 1952 is neergestort. Sinds deze...
+- [Feyenoord en Calvin Stengs (27) uit elkaar, linkspoot kan op zoek naar nieuwe club](https://www.ad.nl/voetbal/feyenoord-en-calvin-stengs-27-uit-elkaar-linkspoot-kan-op-zoek-naar-nieuwe-club~a27604a2/)
+  > Feyenoord en Calvin Stengs hebben hun overeenkomst laten ontbinden. De 27-jarige linkspoot had nog een contract voor dit seizoen, maar kan nu...
+- [Hond braakt zes damesslips uit bij dierenarts: ‘Hij was al het hele weekend misselijk’](https://www.ad.nl/binnenland/hond-braakt-zes-damesslips-uit-bij-dierenarts-hij-was-al-het-hele-weekend-misselijk~aa06eb7f/)
+  > Een boxer zorgde bij Dierenkliniek Nunspeet voor de nodige verbazing. De hond bleek maar liefst zes damesslips te hebben ingeslikt. Bij de dierenarts...
+- [Er valt moeilijk te formeren met partijen die onze wetgeving ondermijnen](https://www.ad.nl/binnenland/er-valt-moeilijk-te-formeren-met-partijen-die-onze-wetgeving-ondermijnen~aba68579/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [Klassementen Tour de France 2026 | Tadej Pogacar behoudt comfortabele voorsprong in strijd om geel: dit zijn de verschillen](https://www.ad.nl/tour-de-france/klassementen-uitslagen-tour-de-france-2026~a537c687/)
+  > De Tour de France is in volle gang. Op zondag 26 juli is de finish in Parijs. In totaal doen zeventien Nederlanders mee, het hoogste aantal sinds...
+- [Jasper Philipsen heeft na goede lead-out van Mathieu van der Poel zijn etappezege binnen](https://www.ad.nl/tour-de-france/jasper-philipsen-heeft-na-goede-lead-out-van-mathieu-van-der-poel-zijn-etappezege-binnen~a81871ac/)
+  > Jasper Philipsen heeft in een zinderende rit, die toch nog op een sprint aankwam, de zeventiende etappe in de Tour de France gewonnen. Olav Kooij...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Ascetische centralebankpresident is steunpilaar van Peru’s economie](https://fd.nl/economie/1604494/ascetische-centralebankpresident-is-steunpilaar-van-perus-economie)
-  > Julio Velarde is al twintig jaar president van de centrale bank van Peru. Hij wordt gezien als een belangrijke reden dat de economie de afgelopen...
-- [‘Winst’ Picnic Nederland is betrekkelijk](https://fd.nl/financiele-markten/1605350/winst-picnic-nederland-is-betrekkelijk)
-  > Het operationele verlies van de onlinesupermarkt wordt kleiner, maar voor nieuwe investeringen heeft Picnic zijn aandeelhouders nog lang nodig.
-- [Na jaren van droogte gaan biotechbedrijven weer naar de beurs](https://fd.nl/financiele-markten/1605480/na-jaren-van-droogte-gaan-biotechbedrijven-weer-naar-de-beurs)
-  > Vooral Amerikaanse ondernemingen profiteren van herstel, Europa doet maar mondjesmaat mee.
-- [Op zoek naar artistieke vrijheid](https://fd.nl/samenleving/1605193/op-zoek-naar-artistieke-vrijheid)
-  > Kunstenaar Nour-Eddine Jarram kwam als jongeman vanuit Casablanca naar Nederland. In zijn veelgeprezen werk zit altijd iets Nederlands en iets...
-- [Acteur Bilal El Aoumari: ‘Ik heb altijd het gevoel gehad dat ik me moet bewijzen. Dat ik 2-0 achtersta’](https://fd.nl/samenleving/1605185/acteur-bilal-el-aoumari-ik-heb-altijd-het-gevoel-gehad-dat-ik-me-moet-bewijzen-dat-ik-2-0-achtersta)
-  > Bilal El Aoumari kreeg een Gouden Kalf voor zijn rol in de tv-serie Laura H. en studeert nu in Parijs.
+- [Amerikaanse staat ontdekt softwarefout die leidde tot onterechte registratie van kiezers](https://fd.nl/politiek/1605487/amerikaanse-staat-ontdekt-softwarefout-die-leidde-tot-onterechte-registratie-van-kiezers)
+  > Het voorval voedt het debat over stemfraude en strengere regels.
+- [Rheinmetall verdubbelt kruitproductie voor granaten in Beierse fabriek](https://fd.nl/bedrijfsleven/1605417/rheinmetall-verdubbelt-kruitproductie-voor-granaten-in-beierse-fabriek)
+  > Het Duitse defensiebedrijf doet een forse investering in zijn Beierse fabriek, waar de werkgelegenheid flink toeneemt.
+- [‘Anthropic sluit miljardendeal met chipmaker en Nvidia‑concurrent AMD’](https://fd.nl/bedrijfsleven/1605485/anthropic-sluit-miljardendeal-met-chipmaker-en-nvidiaconcurrent-amd)
+  > De maker van AI-chatbot Claude gaat voor miljarden dollars aan chips inkopen.
+- [Van bedrijf tot watersporter: iedereen begint de pijn van laag water te voelen](https://fd.nl/bedrijfsleven/1605413/van-bedrijf-tot-watersporter-iedereen-begint-de-pijn-van-laag-water-te-voelen)
+  > Door historisch lage waterstanden komen steeds meer sectoren in de knel. Enkele bedrijven worden niet meer per schip bevoorraad, riviercruises worden...
+- [Marketmaker Citadel komt naar Amsterdam](https://fd.nl/financiele-markten/1605414/marketmaker-citadel-komt-naar-amsterdam)
+  > De vestiging in Amsterdam is voor Citadel een manier om zijn activiteiten op het gebied van aandelenderivaten te vergroten.
 
 ### Meest gelezen
 
