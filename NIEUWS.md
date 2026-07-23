@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-07-2026 om 07:34*
+*Laatst bijgewerkt: 23-07-2026 om 10:26*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Aantal huishoudens in energiearmoede blijft gelijk, ernst van problemen neemt toe](https://nos.nl/l/2624094)
-  > Het aantal huishoudens dat kampt met energiearmoede is het afgelopen jaar niet afgenomen. Het bedrag dat deze huishoudens jaarlijks tekort komen om...
-- [Buitenlandse chauffeurs moeten personeelstekort Utrechts busbedrijf oplossen](https://nos.nl/l/2624091)
-  > Na maanden van personeelstekorten, uitval en vertragingen probeert busvervoerder Transdev de dienstregeling in Utrecht te verbeteren door Europese...
-- [Zeker 22 doden na instorten tunnel bij staatsbedrijf in India](https://nos.nl/l/2624090)
-  > In een tunnel in de Indiase deelstaat Sikkim zijn zeker 22 lichamen geborgen. Het gaat om een tunnel in aanbouw bij een project van het staatsbedrijf...
-- [OpenAI hackt ander AI-bedrijf, maar van 'op hol geslagen AI' is geen sprake](https://nos.nl/l/2624086)
-  > OpenAI heeft per ongeluk een ander AI-bedrijf gehackt. Dat gebeurde tijdens een test waarmee OpenAI wilde kijken hoe goed zijn AI-programma's...
-- [Wekdienst 23/7: Celstraf of vrijspraak voor 'tattookillers' • Burgemeester Schouten gaat abseilen van Euromast](https://nos.nl/l/2624085)
-  > Goedemorgen! Vier verdachten van een moord uit 2009 horen in hoger beroep of ze opnieuw vrijspraak krijgen of toch worden veroordeeld tot...
+- [Verkiezingsbelofte ingelost: burgemeester Schouten daalt af van de Euromast](https://nos.nl/l/2624116)
+  > De Rotterdamse burgemeester Carola Schouten is vandaag abseilend naar beneden gegaan vanaf de Euromast. Daarmee heeft ze de belofte die zij deed bij...
+- [Belgische prinses Eléonore gaat in Utrecht studeren](https://nos.nl/l/2624111)
+  > De Belgische prinses Eléonore (18) gaat vanaf september in Utrecht studeren. Dat heeft het Koninklijk Paleis in Brussel bekendgemaakt. Ze gaat een...
+- [Weduwnaar van doodgestoken vrouw (76) doet aangifte tegen ggz-kliniek Fivoor](https://nos.nl/l/2624110)
+  > De weduwnaar van de 76-jarige vrouw die vorig jaar werd doodgestoken door een psychiatrische patiënt van zorginstelling Fivoor in Den Dolder, doet...
+- [EU-landen akkoord over nieuwe sancties tegen Rusland na lang verzet Grieken](https://nos.nl/l/2624106)
+  > Na lange onderhandelingen zijn de EU-landen het eens geworden over een nieuw pakket sancties tegen Rusland. Vooral Griekenland lag dwars, vanwege een...
+- [Ontsnapte aap uit Beekse Bergen na een maand gevangen](https://nos.nl/l/2624099)
+  > De aap die vorige maand ontsnapte uit Safaripark Beekse Bergen in Hilvarenbeek is gevangen. De 4-jarige kuifmangabey liep rond in de omgeving, maar...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De zin en onzin van Imax: waarom niet elke Imax-film er echt een is](https://www.ad.nl/show/de-zin-en-onzin-van-imax-waarom-niet-elke-imax-film-er-echt-een-is~a70562af/)
-  > The Odyssey, dé bioscoophit van nu, is pas de eerste film die volledig met Imax-camera’s is gedraaid. Dat roept direct vragen op, want: Imax-zalen...
-- [Robert Lewandowski (37) verliest bij debuut in Amerikaanse competitie, Griezmann scoort wel](https://www.ad.nl/voetbal/robert-lewandowski-37-verliest-bij-debuut-in-amerikaanse-competitie-griezmann-scoort-wel~a93d45cf/)
-  > Robert Lewandowski heeft zijn debuut voor Chicago Fire in de Amerikaanse voetbalcompetitie MLS niet kunnen opluisteren met een zege. De ploeg verloor...
-- [Voorrondes Europees voetbal | Zo laat komen Ajax en FC Twente vanavond in actie](https://www.ad.nl/voetbal/voorrondes-europees-voetbal-zo-laat-komen-ajax-en-fc-twente-vanavond-in-actie~a2a866b8/)
-  > Het WK is afgelopen en de focus kan weer op het clubvoetbal. Zowel Ajax als FC Twente komt donderdag al in actie tijdens de voorrondes van...
-- [Ministers VS en Rusland spraken op Filipijnen over Oekraïne, Zelensky wil  diplomatie ‘nieuw leven inblazen’](https://www.ad.nl/buitenland/ministers-vs-en-rusland-spraken-op-filipijnen-over-oekraine-zelensky-wil-diplomatie-nieuw-leven-inblazen~adfb97be/)
-  > De Amerikaanse minister van Buitenlandse Zaken Marco Rubio en zijn Russische ambtgenoot Sergej Lavrov hebben elkaar donderdag op de Filipijnen...
-- [‘Foutje’ op YouTube: verklapt verwijderde video van persconferentie nieuwe club van LeBron James?](https://www.ad.nl/andere-sporten/foutje-op-youtube-verklapt-verwijderde-video-van-persconferentie-nieuwe-club-van-lebron-james~af208537/)
-  > Naar welke club trekt LeBron James komend seizoen? De Amerikaanse superster uit de NBA verlengde zijn contract bij de LA Lakers niet en is dus...
+- [Peloton trekt de Alpen in, kan Thymen Arensman weer toeslaan in derde week?](https://www.ad.nl/tour-de-france/peloton-trekt-de-alpen-in-kan-thymen-arensman-weer-toeslaan-in-derde-week~a777536c/)
+  > De achttiende etappe stuurt het peloton voor het eerst deze Tour de France de Alpen in, met een lastige aankomst bergop in Orcières Merlette. Kan...
+- [Google krijgt EU-boete van 890 miljoen euro, mede om voortrekken eigen diensten in zoekresultaten](https://www.ad.nl/buitenland/google-krijgt-eu-boete-van-890-miljoen-euro-mede-om-voortrekken-eigen-diensten-in-zoekresultaten~aba729fe/)
+  > Google krijgt boetes van in totaal 890 miljoen euro van de Europese Commissie. Het techbedrijf krijgt die enorme boete deels vanwege het voortrekken...
+- [Carola Schouten abseilt van de Euromast: ‘Ik sta nog een klein beetje te shaken’](https://www.ad.nl/rotterdam/carola-schouten-abseilt-van-de-euromast-ik-sta-nog-een-klein-beetje-te-shaken~a8859497/)
+  > Ondanks hoogtevrees ging Carola Schouten donderdagochtend abseilend van de Euromast. Voor het oog van de vaderlandse pers, buitenlandse media én haar...
+- [Peter Bosz ziet een nieuwe kracht bij PSV én een enorm verbeterpunt: ‘Het wordt alleen maar moeilijker’](https://www.ad.nl/voetbal/peter-bosz-ziet-een-nieuwe-kracht-bij-psv-en-een-enorm-verbeterpunt-het-wordt-alleen-maar-moeilijker~ac11dadc/)
+  > PSV kreeg vorig seizoen veel te veel tegendoelpunten. Dat moet absoluut beter, vertelt trainer Peter Bosz in het Duitse Marienfeld. Na vijf dagen...
+- [Aftellen naar Zidane bij Frankrijk, Willem II huurt Kasper Boogaard van AZ](https://www.ad.nl/voetbal/aftellen-naar-zidane-bij-frankrijk-willem-ii-huurt-kasper-boogaard-van-az~aeb81ef1/)
+  > Het WK zit erop en er is meteen flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [AkzoNobel probeert zorgen over governance na fusie te sussen](https://fd.nl/bedrijfsleven/1605511/akzonobel-probeert-zorgen-over-governance-na-fusie-te-sussen)
-  > Beleggersclubs zijn bezorgd over de inperking van aandeelhoudersrechten als de fusie van AkzoNobel met Axalta doorgaat. De donderdag aangekondigde...
-- [Orderportefeuille van Thales groeit hard door groeiende defensie-uitgaven](https://fd.nl/bedrijfsleven/1605508/orderportefeuille-van-thales-stijgt-hard-door-groeiende-defensie-uitgaven)
-  > De aanhoudende onrust op het wereldtoneel wakkert de vraag naar militaire systemen, zoals die van Thales, wereldwijd sterk aan.
-- [Relx presteert in eerste jaarhelft in lijn met verwachting](https://fd.nl/bedrijfsleven/1605510/relx-presteert-in-lijn-met-verwachting)
-  > De leverancier van digitale data- en analysesystemen boekte in de eerste jaarhelft een omzet van £4,87 mrd, waar analisten gepolst door persbureau...
-- [Houthi-rebellen vallen Saoedische olietankers aan](https://fd.nl/politiek/1605507/houthi-rebellen-vallen-saoedische-olietankers-aan)
-  > De aanvallen openen een nieuw front in de Iran-oorlog. Alternatief voor de Straat van Hormuz ligt nu ook onder vuur. Olieprijs stijgt richting $100...
-- [Tegenvallende resultaten in België drukken Sligro in het rood, koers fors lager](https://fd.nl/bedrijfsleven/1605509/horecagroothandel-sligro-noteert-nettoverlies-over-eerste-jaarhelft)
-  > Horecagroothandel Sligro wint marktaandeel in Nederland en België, maar de winst staat onder druk door dalende volumes en inflatie. Onder de streep...
+- [Google krijgt Europese boete van €890 mln wegens voortrekken eigen diensten](https://fd.nl/tech-en-innovatie/1605466/google-krijgt-europese-boete-van-890-mln-wegens-voortrekken-eigen-diensten)
+  > Volgens de Europese Commissie beperkt Google de keuze bij de consument. Het techbedrijf krijgt zestig de tijd om nieuwe sancties af te wenden.
+- [Winst EasyJet keldert door hogere kerosinekosten](https://fd.nl/bedrijfsleven/1605515/winst-easyjet-keldert-door-hogere-kerosinekosten)
+  > De onderneming die in een overnamestrijd zit, rapporteert een 70% lagere winst. Analisten hadden op nog meer winstverlies gerekend.
+- [UniCredit wil ook officieel de controle over Commerzbank](https://fd.nl/bedrijfsleven/1605471/unicredit-wil-ook-officieel-de-controle-over-commerzbank)
+  > De Italiaanse financiële instelling verwacht in het vierde kwartaal de toestemming van de toezichthouders binnen te hebben.
+- [Nestlé verkoopt de helft van watertak voor €3 mrd aan private equity](https://fd.nl/bedrijfsleven/1605470/nestle-verkoopt-de-helft-van-watertak-voor-3-mrd-aan-private-equity)
+  > Samen met het Amerikaanse private-equitybedrijf brengt Nestlé de watertak onder in een joint venture genaamd ‘Peranel’.
+- [EU bevriest prijsplafond op Russische olie](https://fd.nl/politiek/1604348/eu-bevriest-prijsplafond-op-russische-olie)
+  > De maatregel moet voorkomen dat Moskou spekkoper is van de oorlog tussen Iran en de VS. Griekenland lag lang dwars vanwege het voorstel voor een...
 
 ### Meest gelezen
 
