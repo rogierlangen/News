@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-07-2026 om 21:07*
+*Laatst bijgewerkt: 23-07-2026 om 22:59*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [VS kondigt importheffingen aan op producten uit 60 landen, waaronder EU-lidstaten](https://nos.nl/l/2624214)
+  > De VS voert nieuwe importheffingen in op producten uit zestig landen, waaronder EU-lidstaten. De heffingen van 10 procent die in februari werden...
+- [VS trekt dagvaarding journalisten in om artikel over Air Force One](https://nos.nl/l/2624212)
+  > Het Amerikaanse ministerie van Justitie heeft de dagvaarding ingetrokken van drie journalisten van de krant The New York Times. Dat meldde een...
 - [Levenslang voor moordaanslagen op Democratische politici in VS](https://nos.nl/l/2624205)
   > In de VS is een man veroordeeld tot een levenslange gevangenisstraf, omdat hij aanslagen had gepleegd op Democratische politici. Vance Boelter schoot...
 - [Eerst regen op komst, daarna kans op tropische hitte](https://nos.nl/l/2624203)
   > Na een heel warme periode was het afgelopen week voor Nederlandse begrippen eigenlijk heel gemiddeld zomerweer. De wind kwam uit het noordwesten en...
 - [Verdachte brand strandhuisjes ook verdacht van voorbereiding van moord](https://nos.nl/l/2624200)
   > De 54-jarige man uit Roosendaal die vorige week dinsdag werd aangehouden op verdenking van brandstichting bij zes strandhuisjes in Wijk aan Zee,...
-- [IJsvogel of Da Vinci? Jij bepaalt mee hoe de nieuwe eurobiljetten eruit zien](https://nos.nl/l/2624197)
-  > De Europese Centrale Bank heeft de mogelijke ontwerpen voor de nieuwe eurobiljetten gepresenteerd. Mensen kunnen online meebeslissen over welk...
-- [Trump: alleen nucleaire deal als Saudi-Arabië relatie met Israël normaliseert](https://nos.nl/l/2624196)
-  > De nucleaire deal die Saudi-Arabië en de Verenigde Staten overeen zijn gekomen, geldt alleen als Saudi-Arabië de relatie met Israël normaliseert. Dat...
 
 ### Meest gelezen
 
@@ -27,15 +27,15 @@
 
 ### Laatste nieuws
 
-- [Dirk van Duijvenbode knokt zich langs tweevoudig wereldkampioen naar halve finale: ‘Dit zijn wedstrijden, man!’](https://www.ad.nl/darts/dirk-van-duijvenbode-knokt-zich-langs-tweevoudig-wereldkampioen-naar-halve-finale-dit-zijn-wedstrijden-man~ab404d24/)
-  > Darter Dirk van Duijvenbode staat in de halve finale van de World Matchplay in Blackpool. De Nederlander was in de kwartfinale te sterk voor Gary...
-- [Razendpopulair videospel EA FC breekt met jarenlange traditie en verhoogt minimumleeftijd](https://www.ad.nl/voetbal/razendpopulair-videospel-ea-fc-breekt-met-jarenlange-traditie-en-verhoogt-minimumleeftijd~a0852cbc/)
-  > De nieuwe voetbalgame EA SPORTS FC 27, die op 25 september verschijnt en waarvan donderdag een officiële trailer werd gedeeld, breekt met een...
-- [Podcast In Het Wiel | ‘Zou Pogacar zich niet toch een beetje zorgen maken?’](https://www.ad.nl/tour-de-france/podcast-in-het-wiel-zou-pogacar-zich-niet-toch-een-beetje-zorgen-maken~a5ea502e/)
-  > Er heerst een griepvirus bij UAE. Gisteren kwam Adam Yates op ruime achterstand van het peloton binnen, vandaag stapte Brandon McNulty af en haalde...
-- [Terug in de tijd met André van Duin en Ferry de Groot: duo zorgt voor knotsgekke uitzending op radio](https://www.ad.nl/show/terug-in-de-tijd-met-andre-van-duin-en-ferry-de-groot-duo-zorgt-voor-knotsgekke-uitzending-op-radio~ab1fd29a/)
-  > Een historische terugkeer: André van Duin en Ferry de Groot kropen donderdag voor één keer weer samen achter de microfoon tijdens NOS Radio Tour de...
-- [Van Duijvenbode naar halve finale na knappe overwinning op Gary Anderson](https://www.ad.nl/darts/van-duijvenbode-naar-halve-finale-na-knappe-overwinning-op-gary-anderson~a5efa262/)
+- [Trump zal uitlvering van broers Tate naar Groot-Brittannië niet blokkeren](https://www.ad.nl/buitenland/trump-zal-uitlvering-van-broers-tate-naar-groot-brittannie-niet-blokkeren~abf6fbb9/)
+  > De Amerikaanse president Donald Trump gaat de uitlevering van manosfeer-influencers Andrew Tate en zijn broer Tristan aan Groot-Brittannië wegens...
+- [Voetbalpodcast | ‘FC Twente is nog niet Europa-proof, zoals Ten Hag graag wil’](https://www.ad.nl/voetbal/voetbalpodcast-fc-twente-is-nog-niet-europa-proof-zoals-ten-hag-graag-wil~a42af5cd9/)
+  > FC Twente vergat een resultaat neer te zetten in Europa tegen Ferencváros. Ajax zette een grote stap richting het hoofdtoernooi van de Conference...
+- [Trump overweegt massale aanval, ‘Iraanse Islamitische Revolutionaire Garde vloog met goud naar Jemen’](https://www.ad.nl/buitenland/trump-overweegt-massale-aanval-iraanse-islamitische-revolutionaire-garde-vloog-met-goud-naar-jemen~ac528ac3/)
+  > President Trump overweegt om Iran massaal aan te vallen. Mogelijk met bombardementen die zwaarder zijn dan die tijdens Operation Epic Fury. Volg alle...
+- [Nog twee Nederlanders over op belangrijkste dartstoernooi na WK: alles over de World Matchplay](https://www.ad.nl/darts/nog-twee-nederlanders-over-op-belangrijkste-dartstoernooi-na-wk-alles-over-de-world-matchplay~a36ece34/)
+  > Het belangrijkste toernooi na het WK darts staat op het programma. De World Matchplay (18 tot en met 26 juli), ook wel het ‘zomer-WK’ genoemd, biedt...
+- [Littler met indrukwekkend gemiddelde naar halve finale tegen Van Duijvenbode](https://www.ad.nl/darts/littler-met-indrukwekkend-gemiddelde-naar-halve-finale-tegen-van-duijvenbode~a5efa262/)
   > Darter Dirk van Duijvenbode staat in de halve finale van het World Matchplay in Blackpool. De Nederlander was in de kwartfinale te sterk voor Gary...
 
 ### Meest gelezen
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Ruimte voor rekenkracht](https://fd.nl/opinie/1605582/ruimte-voor-rekenkracht)
+  > Datacenters worden een steeds belangrijkere basisvoorziening voor de economie.
+- [Het linksemeisjessyndroom](https://fd.nl/opinie/1605467/het-linksemeisjessyndroom)
+  > Zoals tranentrekkende tirades tegen mijn vermeende gaffe betogen, saboteren conservatieve kerels vrouwelijk succes. Toch lijken tradwives gelukkiger...
+- [Premies op kredietverzekeringen hyperscalers lopen op door stortvloed aan nieuwe obligaties](https://fd.nl/financiele-markten/1605422/premies-op-kredietverzekeringen-hyperscalers-lopen-op-door-stortvloed-aan-nieuwe-obligaties)
+  > De teller, alleen al als het gaat om Amerikaanse bedrijven die actief zijn op het gebied van AI-infrastructuur, staat dit kalenderjaar op $250 mrd....
+- [Personalia vrijdag 24 juli](https://fd.nl/bedrijfsleven/1605579/personalia-vrijdag-24-juli)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [Wall Street sluit in het rood na stijgende olieprijs](https://fd.nl/financiele-markten/1605558/wall-street-sluit-in-het-rood-na-stijgende-olieprijs)
   > De beursen eindigen in mineur na turbulentie in het Midden-Oosten en de angst voor een AI-bubbel.
-- [Wisselingen in Duitse regeringstop na vertrek CDU-politicus om draagmoederschap](https://fd.nl/politiek/1605603/wisselingen-in-duitse-regeringstop-na-vertrek-cdu-politicus-om-draagmoederschap)
-  > Gezondheidszorgminister Nina Warken is in beeld als eerste vrouwelijke kabinetschef van Duitsland, melden diverse Duitse media.
-- [IBM heeft last van vraaguitval bij grote computers](https://fd.nl/bedrijfsleven/1605590/ibm-heeft-last-van-vraaguitval-bij-grote-computers)
-  > De omzet stijgt dit jaar naar verwachting tussen 4% en 5%, terwijl het concern eerder uitging van een omzettoename van meer dan 5%.
-- [Frankrijk tegen toelating zelfrijdende Tesla op Europese wegen](https://fd.nl/politiek/1605525/frankrijk-tegen-toelating-zelfrijdende-tesla-op-europese-wegen)
-  > Volgens de Franse minister van transport bestaan er zorgen over ‘te hard rijden’ en ‘aandachtigheid van bestuurders’.
-- [Niet alleen boer, ook industrie verdient duidelijkheid over stikstofplannen](https://fd.nl/opinie/1605522/niet-alleen-boer-ook-industrie-verdient-duidelijkheid-over-stikstofplannen)
-  > Het merendeel van de industriële bedrijven rond Natura 2000-gebieden blijkt geen idee te hebben waar ze aan toe zijn. De regering toont zich slordig.
 
 ### Meest gelezen
 
