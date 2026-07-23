@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-07-2026 om 15:11*
+*Laatst bijgewerkt: 23-07-2026 om 17:26*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Uniek gebiedsverbod voor Rotterdamse wijk moet overlast stoppen](https://nos.nl/l/2624159)
-  > Voor grote delen van de wijk De Esch in Rotterdam geldt vanaf vanavond iedere nacht een gebiedsverbod. Dat betekent dat het strafbaar wordt om in de...
-- [Dramatisch jaar voor keizerspinguïns: veel minder kuikens door ijsbergblokkade](https://nos.nl/l/2624157)
-  > Een blokkade door een ijsberg heeft dramatische gevolgen voor een kolonie keizerspinguïns op Coulmaneiland. Het afgelopen jaar waren er bijna 70...
-- [Nieuw concern achter Unilever-merken kiest voor beurs Londen, Amsterdam grijpt mis](https://nos.nl/l/2624155)
-  > De voedingsmiddelendivisie van Unilever krijgt geen beursnotering in Nederland. In plaats daarvan kiest de producent van merken als Calvé, Cup-a-Soup...
-- [Medewerker Haagse Stadspartij na lang dienstverband ontslagen, gemeente biedt hulp](https://nos.nl/l/2624149)
-  > De gemeente Den Haag schiet een oud-medewerker van de Haagse Stadspartij (HSP) te hulp. De lokale politieke partij ontsloeg Nic Timmerman na een...
-- [Moorden in Arabische gemeenschap in Israël nemen toe: 'Het kan de politie niets schelen'](https://nos.nl/l/2624145)
-  > Het aantal moorden binnen de Arabische gemeenschap in Israël neemt toe. Hoewel Palestijnse burgers ongeveer 20 procent van de Israëlische bevolking...
+- [Unesco zet historisch centrum Paramaribo op de lijst van bedreigd werelderfgoed](https://nos.nl/l/2624184)
+  > Het historisch centrum van Paramaribo is door Unesco op de lijst gezet van bedreigd werelderfgoed. Brandgevaar en twee omstreden bouwprojecten zijn...
+- [Nijmegen gaat preventief fouilleren bij Vierdaagsefeesten na geweldsincidenten](https://nos.nl/l/2624183)
+  > De politie van Nijmegen mag vanaf vandaag preventief fouilleren vanwege ernstige geweldsincidenten tijdens de Vierdaagsefeesten. Bezoekers van het...
+- [Advocaat haalt door AI verzonnen bronnen aan en beschuldigt niet-bestaande student](https://nos.nl/l/2624182)
+  > Een Canadese advocaat is voor zes maanden geschorst voor het gebruik van door AI verzonnen rechtbankdocumenten. Ook in voorbereiding op een tuchtzaak...
+- [Man opgepakt die verdacht wordt van deelname aan sadistisch online netwerk](https://nos.nl/l/2624171)
+  > De politie heeft maandag in Noord-Holland een jonge man opgepakt die ervan verdacht wordt deel uit te maken van het sadistische online Com-netwerk.
+ ...
+- [Dode na roofoverval op bank in Duitsland, verdachte opgepakt](https://nos.nl/l/2624170)
+  > In de Duitse stad Regensburg is een dode gevallen bij een roofoverval op een bank. De verdachte, een 20-jarige Duitse man, zou het slachtoffer met...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Onbekende drones vlogen vorig jaar door de no-flyzone bij kerncentrale Borssele](https://www.ad.nl/binnenland/onbekende-drones-vlogen-vorig-jaar-door-de-no-flyzone-bij-kerncentrale-borssele~a28e1b8d/)
-  > De zwerm onbekende drones die vorig jaar november langs de Zeeuwse kust vloog, is ook gezien binnen de no-flyzone van de kerncentrale van EPZ in...
-- [Alles wat een uniformpet nodig heeft, is klant bij Hassing, óók de leden van de koninklijke familie](https://www.ad.nl/binnenland/alles-wat-een-uniformpet-nodig-heeft-is-klant-bij-hassing-ook-de-leden-van-de-koninklijke-familie~abb05cf5/)
-  > Als ergens de oude slogan ‘die pet past ons allemaal’ wordt omarmd, dan wel in Nijkerk. Veel geüniformeerde diensten in Nederland (politie, leger,...
-- [Sterke kopgroep strijdt om zege in eerste Alpenrit, Arensman mist slag, ploeggenoot van Pogacar geeft op](https://www.ad.nl/tour-de-france/sterke-kopgroep-strijdt-om-zege-in-eerste-alpenrit-arensman-mist-slag-ploeggenoot-van-pogacar-geeft-op~a777536c/)
-  > De achttiende etappe stuurt het peloton voor het eerst deze Tour de France de Alpen in, met een lastige aankomst bergop in Orcières Merlette. Thymen...
-- [Ajax net als twee jaar geleden op bezoek in Servië, Tadic brengt bezoek aan selectie](https://www.ad.nl/voetbal/ajax-net-als-twee-jaar-geleden-op-bezoek-in-servie-tadic-brengt-bezoek-aan-selectie~a1c700ea/)
-  > Het WK zit er net op, maar het seizoen gaat nu al van start voor Ajax. Vanavond om 20.00 uur hoopt de ploeg van de nieuwe trainer Míchel in Servië...
-- [Ajax in Novi Sad: ‘Na het WK met al die megalomane stadions is dit wel even een contrast’](https://www.ad.nl/voetbal/ajax-in-novi-sad-na-het-wk-met-al-die-megalomane-stadions-is-dit-wel-even-een-contrast~a5a7155b/)
-  > Het WK is net afgelopen maar Ajax begint vanavond alweer aan het nieuwe seizoen. Met een wedstrijd tegen Vojvodina Novi Sad uit Servië in de...
+- [Wordt kinderhaar dikker na een knipbeurt? Expert geeft antwoord](https://www.ad.nl/gezond/wordt-kinderhaar-dikker-na-een-knipbeurt-expert-geeft-antwoord~a857f4a4/)
+  > In de zomer lijkt ons haar sneller te groeien. Een mooi moment voor de eerste knipbeurt van het haar van je kind. Er wordt wel beweerd dat het daarna...
+- [Hond bijt koe dood van boer in Zutphen: ‘Het zag er naar uit’](https://www.ad.nl/binnenland/hond-bijt-koe-dood-van-boer-in-zutphen-het-zag-er-naar-uit~ab0e1dd1/)
+  > Een hond bijt een volwassen koe niet zomaar dood. Toch is dat gebeurd op het land van boer Breukink in Zutphen. De uier van zijn dier is opengereten,...
+- [Ronnie Flex en Lil’ Kleine slaan terug na verbanning van Vierdaagsefeesten: ‘Te makkelijk’](https://www.ad.nl/show/ronnie-flex-en-lil-kleine-slaan-terug-na-verbanning-van-vierdaagsefeesten-te-makkelijk~a870b922/)
+  > Ronnie Flex en Lil’ Kleine reageren via hun manager verbaasd op het nieuws dat ze voortaan niet meer welkom zijn bij Matrixx at the Park, op de...
+- [Geblesseerde Frenkie de Jong haalt uit na speculaties: ‘Moeilijk dat mensen mijn toewijding in twijfel trekken’](https://www.ad.nl/voetbal/geblesseerde-frenkie-de-jong-haalt-uit-na-speculaties-moeilijk-dat-mensen-mijn-toewijding-in-twijfel-trekken~a4218cce/)
+  > Frenkie de Jong mist de start van het nieuwe seizoen van FC Barcelona. De middenvelder heeft volgens zijn club een scheurtje in een knieband...
+- [Wout Weghorst in de basis bij FC Twente tegen Hongaarse recordkampioen](https://www.ad.nl/voetbal/wout-weghorst-in-de-basis-bij-fc-twente-tegen-hongaarse-recordkampioen~ab4a9e0b/)
+  > FC Twente begint vanavond aan het Europese seizoen met een thuiswedstrijd tegen de Hongaarse recordkampioen Ferencváros in de tweede voorronde van de...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [‘Interesse bedrijven in overname Arcadis’](https://fd.nl/bedrijfsleven/1605589/interesse-bedrijven-in-overname-arcadis)
+  > Volgens twee anonieme bronnen van Reuters zou onder meer het Canadese WSP belangstelling hebben vanwege de lage waardering van het ingenieursbureau.
+- [Shell ontliep belasting door geen winst te maken op dienstverlening vanuit Nederland](https://fd.nl/economie/1605517/shell-ontliep-belasting-door-geen-winst-te-maken-op-dienstverlening-vanuit-nederland)
+  > Dat het olie- en gasbedrijf jarenlang geen winstbelasting betaalde in Nederland, was al bekend. Uit vertrouwelijke documenten blijkt nu hoe een van...
+- [Diarreealarm rinkelt bij Taco Bell](https://fd.nl/financiele-markten/1605521/diarreealarm-rinkelt-bij-taco-bell)
+  > De uitbraak van een parasiet die onlangs in de VS om zich heen greep, legt het belang van voedselveiligheid voor fastfoodketens bloot.
+- [Zelensky ruilt Sovjetstijl-legerbaas in voor jonge hervormer en held](https://fd.nl/politiek/1605518/zelensky-ruilt-sovjetstijl-legerbaas-in-voor-jonge-hervormer-en-held)
+  > Een nieuwe en ook jongere opperbevelhebber gaat het Oekraïense leger leiden. Demonstranten eisten het ontslag van zijn impopulaire voorganger en...
 - [American Airlines verwacht opnieuw lager resultaat](https://fd.nl/bedrijfsleven/1605523/american-airlines-verwacht-opnieuw-lager-resultaat)
   > Het resultaat van de luchtvaartmaatschappij staat onder druk door de hoge brandstofkosten.
-- [Machtige moloch CP slokt het liefst alle Thaise sectoren op](https://fd.nl/bedrijfsleven/1601767/machtige-moloch-cp-slokt-het-liefst-alle-thaise-sectoren-op)
-  > Met CP Group wil een van de rijkste Chinees-Thaise families in zoveel mogelijk sectoren in Thailand domineren. De financiële sector staat nu op het...
-- [Een Rotterdamse opsteker: goed nieuws over de geplaagde industrie](https://fd.nl/bedrijfsleven/1605520/een-rotterdamse-opsteker-goed-nieuws-over-de-geplaagde-industrie)
-  > Het oorlogsgeweld in het Midden-Oosten laait weer op en de olieprijs gaat steil omhoog. Het raakt de Rotterdamse haven niet, blijkt uit de...
-- [Omzet Harley-Davidson gestegen, maar minder dan verwacht](https://fd.nl/bedrijfsleven/1605585/omzet-harley-davidson-gestegen-maar-minder-dan-verwacht)
-  > De Amerikaanse motorfabrikant zet in het tweede kwartaal 9,4% meer motoren af.
-- [Hongaars ‘paard van Troje’ gaat nu Chinese auto’s verkopen](https://fd.nl/politiek/1605464/hongaars-paard-van-troje-gaat-nu-chinese-autos-verkopen)
-  > Als minister van buitenlandse zaken was de Hongaar Péter Szijjártó behulpzaam voor zijn Russische collega’s en welwillend tegenover China. Nu treedt...
 
 ### Meest gelezen
 
