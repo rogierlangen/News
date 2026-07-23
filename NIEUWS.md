@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-07-2026 om 10:26*
+*Laatst bijgewerkt: 23-07-2026 om 12:25*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Minder nieuwe benzine- en dieselauto's verkocht in eerste helft dit jaar](https://nos.nl/l/2624136)
+  > De verkoop van benzine- en dieselauto's in Europa is in het eerste helft van dit jaar afgenomen. Waar het aandeel vorig jaar in dezelfde periode nog...
+- [Bijna 900 miljoen aan EU-boetes voor Google vanwege voortrekken eigen diensten](https://nos.nl/l/2624124)
+  > Google trekt zichzelf voor binnen zijn eigen zoekmachine. Tot die conclusie komt de Europese Commissie. Die legt Google daarvoor een boete op van 460...
+- [13-jarige nepagent aangehouden, wist 20.000 euro aan sieraden buit te maken](https://nos.nl/l/2624122)
+  > De politie heeft een 13-jarige jongen uit Spijkenisse aangehouden die ervan verdacht wordt zich te hebben voorgedaan als agent. Volgens de politie...
 - [Verkiezingsbelofte ingelost: burgemeester Schouten daalt af van de Euromast](https://nos.nl/l/2624116)
   > De Rotterdamse burgemeester Carola Schouten is vandaag abseilend naar beneden gegaan vanaf de Euromast. Daarmee heeft ze de belofte die zij deed bij...
 - [Belgische prinses Eléonore gaat in Utrecht studeren](https://nos.nl/l/2624111)
   > De Belgische prinses Eléonore (18) gaat vanaf september in Utrecht studeren. Dat heeft het Koninklijk Paleis in Brussel bekendgemaakt. Ze gaat een...
-- [Weduwnaar van doodgestoken vrouw (76) doet aangifte tegen ggz-kliniek Fivoor](https://nos.nl/l/2624110)
-  > De weduwnaar van de 76-jarige vrouw die vorig jaar werd doodgestoken door een psychiatrische patiënt van zorginstelling Fivoor in Den Dolder, doet...
-- [EU-landen akkoord over nieuwe sancties tegen Rusland na lang verzet Grieken](https://nos.nl/l/2624106)
-  > Na lange onderhandelingen zijn de EU-landen het eens geworden over een nieuw pakket sancties tegen Rusland. Vooral Griekenland lag dwars, vanwege een...
-- [Ontsnapte aap uit Beekse Bergen na een maand gevangen](https://nos.nl/l/2624099)
-  > De aap die vorige maand ontsnapte uit Safaripark Beekse Bergen in Hilvarenbeek is gevangen. De 4-jarige kuifmangabey liep rond in de omgeving, maar...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Peloton trekt de Alpen in, kan Thymen Arensman weer toeslaan in derde week?](https://www.ad.nl/tour-de-france/peloton-trekt-de-alpen-in-kan-thymen-arensman-weer-toeslaan-in-derde-week~a777536c/)
+- [Vijf personen aangehouden nadat bus met 800 kilo cocaïne wordt onderschept door de politie](https://www.ad.nl/leidschendam-voorburg/vijf-personen-aangehouden-nadat-bus-met-800-kilo-cocaine-wordt-onderschept-door-de-politie~a9274952/)
+  > De politie heeft woensdag vijf verdachten aangehouden. Zij werden aangehouden in een bus, waar maar liefst 800 kilo cocaïne in is aangetroffen. Het...
+- [Henk (73) had 12 jaar lang kanker na kanker, hij overleefde vier soorten: ‘Twee keer vond ik wel de max’](https://www.ad.nl/binnenland/henk-73-had-12-jaar-lang-kanker-na-kanker-hij-overleefde-vier-soorten-twee-keer-vond-ik-wel-de-max~a103e3c6/)
+  > De meesten mogen van geluk spreken als ze kanker één keer overleven. Henk Jansen (73) glipte er zelfs vier keer doorheen: hij kreeg twaalf jaar lang...
+- [Zinkgat slokt fietser op in ’s-Heerenberg, meisje klimt er met moeite weer uit](https://www.ad.nl/binnenland/zinkgat-slokt-fietser-op-in-s-heerenberg-meisje-klimt-er-met-moeite-weer-uit~a909f581/)
+  > Een meisje is woensdagmiddag in ’s-Heerenberg bijna volledig onder water verdwenen toen ze met haar fiets een zinkgat in reed. Op beelden van een...
+- [Kopgroep met Arensman en Pedersen in eerste Alpenrit, ploeg van Pogacar oogt kwetsbaar](https://www.ad.nl/tour-de-france/kopgroep-met-arensman-en-pedersen-in-eerste-alpenrit-ploeg-van-pogacar-oogt-kwetsbaar~a777536c/)
   > De achttiende etappe stuurt het peloton voor het eerst deze Tour de France de Alpen in, met een lastige aankomst bergop in Orcières Merlette. Kan...
-- [Google krijgt EU-boete van 890 miljoen euro, mede om voortrekken eigen diensten in zoekresultaten](https://www.ad.nl/buitenland/google-krijgt-eu-boete-van-890-miljoen-euro-mede-om-voortrekken-eigen-diensten-in-zoekresultaten~aba729fe/)
-  > Google krijgt boetes van in totaal 890 miljoen euro van de Europese Commissie. Het techbedrijf krijgt die enorme boete deels vanwege het voortrekken...
-- [Carola Schouten abseilt van de Euromast: ‘Ik sta nog een klein beetje te shaken’](https://www.ad.nl/rotterdam/carola-schouten-abseilt-van-de-euromast-ik-sta-nog-een-klein-beetje-te-shaken~a8859497/)
-  > Ondanks hoogtevrees ging Carola Schouten donderdagochtend abseilend van de Euromast. Voor het oog van de vaderlandse pers, buitenlandse media én haar...
-- [Peter Bosz ziet een nieuwe kracht bij PSV én een enorm verbeterpunt: ‘Het wordt alleen maar moeilijker’](https://www.ad.nl/voetbal/peter-bosz-ziet-een-nieuwe-kracht-bij-psv-en-een-enorm-verbeterpunt-het-wordt-alleen-maar-moeilijker~ac11dadc/)
-  > PSV kreeg vorig seizoen veel te veel tegendoelpunten. Dat moet absoluut beter, vertelt trainer Peter Bosz in het Duitse Marienfeld. Na vijf dagen...
-- [Aftellen naar Zidane bij Frankrijk, Willem II huurt Kasper Boogaard van AZ](https://www.ad.nl/voetbal/aftellen-naar-zidane-bij-frankrijk-willem-ii-huurt-kasper-boogaard-van-az~aeb81ef1/)
-  > Het WK zit erop en er is meteen flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Duizenden mensen extra geëvacueerd om bosbrand bij Bordeaux, vuur op 300 meter van toeristische trekpleister](https://www.ad.nl/buitenland/duizenden-mensen-extra-geevacueerd-om-bosbrand-bij-bordeaux-vuur-op-300-meter-van-toeristische-trekpleister~a4841899/)
+  > De Franse autoriteiten evacueren nog eens duizenden extra mensen vanwege de bosbranden nabij de Zuid-Franse stad Bordeaux. Claouey wordt preventief...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Google krijgt Europese boete van €890 mln wegens voortrekken eigen diensten](https://fd.nl/tech-en-innovatie/1605466/google-krijgt-europese-boete-van-890-mln-wegens-voortrekken-eigen-diensten)
-  > Volgens de Europese Commissie beperkt Google de keuze bij de consument. Het techbedrijf krijgt zestig de tijd om nieuwe sancties af te wenden.
-- [Winst EasyJet keldert door hogere kerosinekosten](https://fd.nl/bedrijfsleven/1605515/winst-easyjet-keldert-door-hogere-kerosinekosten)
-  > De onderneming die in een overnamestrijd zit, rapporteert een 70% lagere winst. Analisten hadden op nog meer winstverlies gerekend.
-- [UniCredit wil ook officieel de controle over Commerzbank](https://fd.nl/bedrijfsleven/1605471/unicredit-wil-ook-officieel-de-controle-over-commerzbank)
-  > De Italiaanse financiële instelling verwacht in het vierde kwartaal de toestemming van de toezichthouders binnen te hebben.
-- [Nestlé verkoopt de helft van watertak voor €3 mrd aan private equity](https://fd.nl/bedrijfsleven/1605470/nestle-verkoopt-de-helft-van-watertak-voor-3-mrd-aan-private-equity)
-  > Samen met het Amerikaanse private-equitybedrijf brengt Nestlé de watertak onder in een joint venture genaamd ‘Peranel’.
-- [EU bevriest prijsplafond op Russische olie](https://fd.nl/politiek/1604348/eu-bevriest-prijsplafond-op-russische-olie)
-  > De maatregel moet voorkomen dat Moskou spekkoper is van de oorlog tussen Iran en de VS. Griekenland lag lang dwars vanwege het voorstel voor een...
+- [ECB laat rente ongewijzigd, wacht eerst effect van hogere olieprijs af](https://fd.nl/financiele-markten/1605468/ecb-laat-rente-ongewijzigd-wacht-eerst-effect-van-hogere-olieprijs-af)
+  > De focus verschuift nu naar september. De verwachting is dat de ECB dan wel de rente opnieuw zal verhogen, in antwoord op de snelle stijging van de...
+- [Ruim 56.000 nieuwe bedrijven erbij in Nederland in tweede kwartaal](https://fd.nl/economie/1605578/ruim-56-000-nieuwe-bedrijven-erbij-in-nederland-in-tweede-kwartaal)
+  > De sectoren specialistische zakelijke diensten (9600 nieuwe bedrijven), handel (7900) en bouw (6200) kennen de meeste starters. Per 1000 vestigingen...
+- [Italiaanse vervoerder investeert miljarden in Duitse treinen, maar verzet tegen nieuwkomer groeit](https://fd.nl/bedrijfsleven/1605514/italiaanse-vervoerder-investeert-miljarden-in-duitse-treinen-maar-verzet-tegen-nieuwkomer-groeit)
+  > De druk op het in problemen verkerende staatsbedrijf Deutsche Bahn neemt toe. Eerder kondigde Flixtrain ook al aan dat het gaat uitbreiden op het...
+- [Holle en bolle navels](https://fd.nl/opinie/1605241/holle-en-bolle-navels)
+  > De meeste Nederlanders zijn best tolerant. Veel mensen hebben alleen genoeg van taalspelletjes over ‘sekse’ en ‘gender’,  stelt FD-columnist Sanne...
+- [Nederland grijpt naast beursnotering voedingsdivisie Unilever](https://fd.nl/financiele-markten/1605577/nederland-grijpt-naast-beursnotering-voedingsdivisie-unilever)
+  > De Unilever-dochter kondigde in maart aan te fuseren met het Amerikaanse McCormick. Achter de schermen is hard gelobbyd om de Europese beursnotering...
 
 ### Meest gelezen
 
