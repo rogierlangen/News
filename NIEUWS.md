@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-07-2026 om 04:18*
+*Laatst bijgewerkt: 24-07-2026 om 07:34*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Brandweer is diefstal van levensreddend gereedschap zat: 'Asociaal en onacceptabel'](https://nos.nl/l/2624228)
+  > De aanhoudende reeks diefstallen van apparatuur uit brandweerkazernes kan leiden tot levensgevaarlijke situaties, waarschuwt de brandweer. Sinds...
+- [Dode en gewonden door Russische aanvallen, Oekraïne raakt Russische webwinkel](https://nos.nl/l/2624224)
+  > Afgelopen nacht kwam iemand om het leven en raakten tientallen mensen gewond door Russische luchtaanvallen in het zuidoosten van Oekraïne. Ook in...
+- [Wekdienst 24/7: Laatste dag Nijmeegse Vierdaagse • Stemming over ontslag Strafhof-aanklager Khan](https://nos.nl/l/2624218)
+  > Goedemorgen! In Nijmegen is de laatste dag van de Vierdaagse. En in Den Haag wordt gestemd over het mogelijke ontslag van hoofdaanklager van het...
 - [Frankrijk vraagt hulp van EU bij bosbranden, Spanje roept noodtoestand uit](https://nos.nl/l/2624217)
   > Frankrijk heeft Europese bondgenoten gevraagd om te helpen bij het blussen van de bosbranden. Volgens president Macron komt er hulp uit Kroatië,...
 - [Machtsstrijd in Franse abdij loopt uit de hand: pater ontvoerd en dagen spoorloos](https://nos.nl/l/2624216)
   > In een klein dorpje in het midden van Frankrijk is een interne machtsstrijd binnen een abdij ontspoord. De overste van de benedictijnenabdij werd...
-- [1,2 miljoen nepsigaretten onderschept in busje bij Bad Nieuweschans](https://nos.nl/l/2624215)
-  > De politie heeft bij een controle 1,2 miljoen nepsigaretten aangetroffen in de laadruimte van een busje. Dat gebeurde op de A7 ter hoogte van Bad...
-- [VS kondigt importheffingen aan op producten uit 60 landen, waaronder EU-lidstaten](https://nos.nl/l/2624214)
-  > De VS voert nieuwe importheffingen in op producten uit zestig landen, waaronder EU-lidstaten. De heffingen van 10 procent die in februari werden...
-- [VS trekt dagvaarding journalisten in om artikel over Air Force One](https://nos.nl/l/2624212)
-  > Het Amerikaanse ministerie van Justitie heeft de dagvaarding ingetrokken van drie journalisten van de krant The New York Times. Dat meldde een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Werknemers vallen tussen wal en schip bij nieuw pensioenstelsel: soms geen, soms dubbele compensatie](https://www.ad.nl/geld/werknemers-vallen-tussen-wal-en-schip-bij-nieuw-pensioenstelsel-soms-geen-soms-dubbele-compensatie~af937f7d/)
-  > Dubbel cashen of juist vele euro’s mislopen: wie dit jaar van baan wisselt, neemt ongemerkt een financiële gok. Door de gefaseerde overstap naar het...
-- [Weerkaarten hinten op regionale hittegolf: ‘De vierde van dit jaar, dat is niet eerder gebeurd’](https://www.ad.nl/binnenland/weerkaarten-hinten-op-regionale-hittegolf-de-vierde-van-dit-jaar-dat-is-niet-eerder-gebeurd~a52f2e3b/)
-  > Een hoop warme lucht komt volgende week onze kant op. Een regionale hittegolf zou dan de vierde van 2026 betekenen. „Dat is niet eerder gebeurd.”
-- [LIVE Oorlog Oekraïne | Oekraïense drones treffen regio rond Sint-Petersburg](https://www.ad.nl/buitenland/live-oorlog-oekraine-oekraiense-drones-treffen-regio-rond-sint-petersburg~adfb97be/)
-  > Oekraïense drones hebben een magazijn nabij Sint-Petersburg geraakt, waarna er brand uitbrak, zo melden lokale media. De gouverneur van de omliggende...
-- [Komiek Jimmy Kimmel bedankt CBS voor hoge kijkcijfers na ontslag Colbert](https://www.ad.nl/show/komiek-jimmy-kimmel-bedankt-cbs-voor-hoge-kijkcijfers-na-ontslag-colbert~a0c7ecf8/)
-  > Jimmy Kimmel heeft CBS tijdens een interview bedankt voor de stijging in zijn kijkcijfers. The Late Show With Stephen Colbert, een concurrent van...
-- [Huizenverkopers dupe van strijd tussen makelaars en Funda? ‘Voorkomen dat je straks dubbel gaat betalen’](https://www.ad.nl/wonen/huizenverkopers-dupe-van-strijd-tussen-makelaars-en-funda-voorkomen-dat-je-straks-dubbel-gaat-betalen~a868b9df/)
-  > Huizenverkopers zouden zomaar eens de dupe kunnen worden van de ‘strijd’ tussen makelaars en Funda. Daarvoor vreest de Vereniging Eigen Huis. De...
+- [Winkeldief gaat fors meer betalen: schadevergoeding wordt voor het eerst in 13 jaar verhoogd](https://www.ad.nl/economie/winkeldief-gaat-fors-meer-betalen-schadevergoeding-wordt-voor-het-eerst-in-13-jaar-verhoogd~ae64d467/)
+  > Voor het eerst in ruim 13 jaar gaat een winkeldief fors meer betalen. De schadevergoeding die kan worden geïnd na winkeldiefstal gaat halverwege...
+- [Grote actie tegen pooierbende: 'Roemeense mannen beschouwden Wallen als hun eigendom'](https://www.ad.nl/binnenland/grote-actie-tegen-pooierbende-roemeense-mannen-beschouwden-wallen-als-hun-eigendom~af75eac2/)
+  > De zeven mannen die vorige week werden gearresteerd na invallen op de Amsterdamse Wallen, behoorden tot een Roemeense pooierbende die jarenlang...
+- [David zou aan de slag gaan als wethouder, maar de coalitie klapte en nu wast hij borden af: ‘Hier leer je wat echt belangrijk is’](https://www.ad.nl/binnenland/david-zou-aan-de-slag-gaan-als-wethouder-maar-de-coalitie-klapte-en-nu-wast-hij-borden-af-hier-leer-je-wat-echt-belangrijk-is~acf18627/)
+  > Hij dacht als VVD-wethouder in Papendrecht aan de slag te gaan, maar in plaats daarvan doet David Roelofs (46) nu de vaat en andere klussen in een...
+- [Etappe 19 | Aankomst op ‘Nederlandse berg’ Alpe d’Huez: de verwachte start- en finishtijd en de favorieten](https://www.ad.nl/tour-de-france/etappe-19-aankomst-op-nederlandse-berg-alpe-dhuez-de-verwachte-start-en-finishtijd-en-de-favorieten~aab129a4/)
+  > De Tour de France gaat de beslissende fase in. In de negentiende etappe ligt de finish (net als een dag later) op de iconische Alpe d’Huez. Deze...
+- [Nieuwe coach Míchel tevreden na start Ajax, maar ook kritisch: ‘Daar was ik inderdaad flink boos over’](https://www.ad.nl/voetbal/nieuwe-coach-michel-tevreden-na-start-ajax-maar-ook-kritisch-daar-was-ik-inderdaad-flink-boos-over~afb121a4/)
+  > Trainer Míchel was zeer te spreken over het spel van Ajax, dat donderdagavond met 1-4 won van het Servische Vojvodina. De Amsterdammers zetten...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Econoom Daniel Susskind: ‘Werk zal straks veel minder vanzelfsprekend zijn’](https://fd.nl/samenleving/1605342/econoom-daniel-susskind-werk-zal-straks-veel-minder-vanzelfsprekend-zijn)
-  > De Britse econoom Daniel Susskind houdt zich bezig met de toekomst van de arbeidsmarkt. Daarin zullen zich immense veranderingen voltrekken door de...
-- [Baarmoeder als businessmodel: hoe private equity kinderen wil verwekken](https://fd.nl/economie/1605586/baarmoeder-als-businessmodel-hoe-private-equity-kinderen-wil-verwekken)
-  > Vandaag in de Dagkoers: private equity ontdekt de kinderwens, Zelensky onthoofdt zijn eigen legerleiding én het instrument dat symbool stond voor de...
-- [VS komt met nieuwe grond voor heffingen en richt pijlen op EU](https://fd.nl/politiek/1605605/vs-komt-met-nieuwe-grond-voor-heffingen-handelsvertegenwoordiger-richt-pijlen-op-eu)
-  > Heffing van 10% geldt formeel als strafmaatregel tegen het faciliteren van mensenhandel.
-- [Ruimte voor rekenkracht](https://fd.nl/opinie/1605582/ruimte-voor-rekenkracht)
-  > Datacenters worden een steeds belangrijkere basisvoorziening voor de economie.
-- [Het linksemeisjessyndroom](https://fd.nl/opinie/1605467/het-linksemeisjessyndroom)
-  > Zoals tranentrekkende tirades tegen mijn vermeende gaffe betogen, saboteren conservatieve kerels vrouwelijk succes. Toch lijken tradwives gelukkiger...
+- [Minder vluchten en reizigers op Schiphol](https://fd.nl/bedrijfsleven/1605677/minder-vluchten-en-reizigers-op-schiphol)
+  > In totaal reisden 32,7 miljoen passagiers vanaf de luchthaven, zo’n 100.000 minder dan in dezelfde periode vorig jaar. Wel steeg het totale aantal...
+- [De hoge prijs van hoop: ‘In de fertiliteitsindustrie gaat er altijd weer een nieuw loket open’](https://fd.nl/samenleving/1603180/de-hoge-prijs-van-hoop-in-de-fertiliteitsindustrie-gaat-er-altijd-weer-een-nieuw-loket-open)
+  > Wensouders hebben er alles voor over om zwanger te raken en dat is private-equitypartijen niet ontgaan. Deel 2 van een zomerserie over de baarmoeder...
+- [Frankrijk vraagt om Europese hulp bij bosbranden, noodtoestand in Spaanse regio’s](https://fd.nl/samenleving/1605676/frankrijk-vraagt-europese-hulp-bij-bosbranden-spanje-roept-noodtoestand-uit)
+  > Er woeden grote branden in de buurt van de Spaanse hoofdstad Madrid en de Franse stad Bordeaux.
+- [Kleurrijke meubels en vulkanische klei voor huid en haar](https://fd.nl/samenleving/1605248/kleurrijke-meubels-en-vulkanische-klei-voor-huid-en-haar)
+  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
+- [Signify houdt vast aan jaardoelen ondanks winstval](https://fd.nl/bedrijfsleven/1605606/signify-houdt-vast-aan-jaardoelen-ondanks-winstval)
+  > Het bedrijf heeft onder meer last van prijsdruk in China. Ook is er een conflict met minderheidsaandeelhouders van de Chinese dochter.
 
 ### Meest gelezen
 
