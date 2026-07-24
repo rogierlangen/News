@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-07-2026 om 20:22*
+*Laatst bijgewerkt: 24-07-2026 om 22:07*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Vuurbal te zien boven delen van Nederland](https://nos.nl/l/2624348)
+  > In delen van Nederland was rond 22.30 uur een vuurbal aan de hemel te zien. Onder meer vanuit Amsterdam, Utrecht, Almere, Dronten en Arnhem kwamen...
+- [27 doden bij vuurgevecht na aanslag op controlepost in Pakistan](https://nos.nl/l/2624347)
+  > Bij een zelfmoordaanslag met een autobom op een controlepost in Pakistan en een daaropvolgend vuurgevecht zijn in totaal 27 mensen om het leven...
 - [Kaapverdische WK-voetballers uit Rotterdam gehuldigd na indrukwekkend toernooi](https://nos.nl/l/2624342)
   > Op het stadhuis in Rotterdam zijn de WK-deelnemers Deroy Duarte en Dailon Livramento ontvangen door burgemeester Schouten en wethouder van Sport...
 - [Nederland geeft deel strategische oliereserve vrij](https://nos.nl/l/2624339)
@@ -15,10 +19,6 @@
       ...
 - [Politieboot vaart tegen Westminster Bridge in Londen, vijf agenten gewond](https://nos.nl/l/2624338)
   > Op de rivier de Theems in Londen zijn vijf politieagenten gewond geraakt bij een aanvaring met de Westminster Bridge. De politieboot waarop ze zich...
-- [Amsterdam viert eerste WorldPride: grootste lhbti-evenement ooit is meer dan een feest](https://nos.nl/l/2624334)
-  > Amsterdam maakt zich met de komst van WorldPride op voor het grootste lhbti-evenement in de geschiedenis van de stad. Morgen begint een twee weken...
-- [Verdriet en trauma zitten diep na aardbeving Venezuela: 'Mijn vrouw wil hier weg'](https://nos.nl/l/2624333)
-  > Een maand na de verwoestende aardbeving in Venezuela zoeken hulpteams, familieleden en vele vrijwilligers nog altijd tussen het puin naar...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Realitysoap Wolter Kroes komt op de buis bij TLC, later ook te zien bij HBO Max](https://www.ad.nl/show/realitysoap-wolter-kroes-komt-op-de-buis-bij-tlc-later-ook-te-zien-bij-hbo-max~a8b6c2b2/)
-  > De vorige week aangekondigde realityserie van Wolter Kroes wordt uitgezonden door TLC. Ook is de soap ‘aan het eind van dit jaar’ te volgen op...
-- [Gian van Veen in kwartfinale tegen James Wade, winnaar morgen tegen Gerwyn Price](https://www.ad.nl/darts/gian-van-veen-in-kwartfinale-tegen-james-wade-winnaar-morgen-tegen-gerwyn-price~a3e7ca6b/)
-  > In de kwartfinales van de World Matchplay neemt Gian van Veen het vanavond op tegen James Wade. In de Winter Gardens in Blackpool komen eerst Ross...
-- [Feyenoord en ADO Den Haag verdienen goed aan megatransfer van Crysencio Summerville naar Al-Hilal](https://www.ad.nl/den-haag/feyenoord-en-ado-den-haag-verdienen-goed-aan-megatransfer-van-crysencio-summerville-naar-al-hilal~a28b755f/)
-  > Feyenoord en ADO Den Haag verdienen ook goed aan de megatransfer van Oranje-international Crysencio Summerville. De 24-jarige aanvaller verkaste voor...
-- [Vuurrode lucht in Frankrijk: 110.000 mensen geëvacueerd, president Macron zet het leger in](https://www.ad.nl/buitenland/vuurrode-lucht-in-frankrijk-110-000-mensen-geevacueerd-president-macron-zet-het-leger-in~a4da9f0f/)
-  > De Franse president Emmanuel Macron zet het leger in om de verwoestende natuurbranden in het zuidwesten van het land te bestrijden. De situatie is...
-- [Vermiste Nederlander (23) schreeuwt om hulp in Split, agenten springen in water en redden zijn leven](https://www.ad.nl/binnenland/vermiste-nederlander-23-schreeuwt-om-hulp-in-split-agenten-springen-in-water-en-redden-zijn-leven~a09ece29/)
-  > Een nachtelijke zwempartij in de haven van de Kroatische stad Split is een 23-jarige Nederlandse toerist bijna fataal geworden. Twee politieagenten...
+- [Gian van Veen plaatst zich voor halve finale tegen Gerwyn Price: ‘Het was zo’n rare wedstrijd’](https://www.ad.nl/darts/gian-van-veen-plaatst-zich-voor-halve-finale-tegen-gerwyn-price-het-was-zon-rare-wedstrijd~a3e7ca6b/)
+  > Gian van Veen heeft zich geplaatst voor de halve finales van World Matchplay. De 24-jarige Nederlander won vrijdagavond in de laatste kwartfinale in...
+- [Netanyahu spoedig verwacht bij Trump, eerste ontmoeting in lange tijd](https://www.ad.nl/buitenland/netanyahu-spoedig-verwacht-bij-trump-eerste-ontmoeting-in-lange-tijd~ac528ac3/)
+  > De Amerikaanse president Donald Trump treft komende week naar verwachting de Israëlische premier Benjamin Netanyahu en het Oekraïense staatshoofd...
+- [EU is woest en ontbiedt Russische gezant, Rusland meldt aanval op demonstratie in Oekraïne](https://www.ad.nl/buitenland/eu-is-woest-en-ontbiedt-russische-gezant-rusland-meldt-aanval-op-demonstratie-in-oekraine~adfb97be/)
+  > Rusland meldt dat het in Oekraïne een aanval heeft uitgevoerd op een dronedemonstratie. Het Russische ministerie van Defensie stelt dat bij de...
+- [Gezin JD Vance toont vierde kind, Trump zegt dat Venezuela is ‘niet klaar is voor verkiezingen’](https://www.ad.nl/buitenland/gezin-jd-vance-toont-vierde-kind-trump-zegt-dat-venezuela-is-niet-klaar-is-voor-verkiezingen~ae67dd9c/)
+  > Venezuela is nog niet klaar voor nieuwe verkiezingen. Dat verklaarde de Amerikaanse president Donald Trump, meer dan een half jaar nadat een...
+- [Vrienden namen deze laatste foto van Thys (20) op een festival, een paar uur later is hij er niet meer](https://www.ad.nl/binnenland/vrienden-namen-deze-laatste-foto-van-thys-20-op-een-festival-een-paar-uur-later-is-hij-er-niet-meer~aecccb22/)
+  > Het meerdaagse festival De Veenhoop in Friesland is opgeschrikt door het plotselinge overlijden van de 20-jarige bezoeker Thys-Frits. Hij overleed...
 
 ### Meest gelezen
 
