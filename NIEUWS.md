@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-07-2026 om 14:58*
+*Laatst bijgewerkt: 24-07-2026 om 16:50*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Zeker 10 doden, veel gewonden bij Russische aanval op wapenbeurs in Kyiv](https://nos.nl/l/2624319)
+  > Bij een Russische raketaanval op de Oekraïense hoofdstad Kyiv zijn aan het eind van de ochtend zeker tien mensen omgekomen en ruim honderd gewonden...
+- [Vier Palestijnen en twee Israëliërs gedood bij schietpartij op Westoever](https://nos.nl/l/2624318)
+  > Vier Palestijnen en twee Israëliërs zijn om het leven gekomen bij een schietpartij op de bezette Westelijke Jordaanoever. Nog eens vier Palestijnen...
+- [Scheuring bij Poolse partij PiS, veertig parlementsleden verlaten partij](https://nos.nl/l/2624308)
+  > De Poolse conservatief-nationalistische partij PiS verliest een groot aantal parlementsleden. Tientallen parlementariërs willen een gematigdere koers...
+- [Autobom onderschept vlak bij Noord-Ierse grens, explosief was klaar voor gebruik](https://nos.nl/l/2624305)
+  > De Ierse politie heeft deze week een autobom onderschept die werd vervoerd naar Noord-Ierland. Dat heeft de politie vandaag bekendgemaakt.
+        De...
 - [OM in hoger beroep na vrijspraak verdachte dodelijke aanrijding Tamar](https://nos.nl/l/2624299)
-  > Het Openbaar Ministerie gaat in hoger beroep tegen de vrijspraak van de automobilist die wordt verdacht van het doodrijden van de 14-jarige Tamar uit...
-- [Zanger Chris Brown bekent schuld in mishandelingszaak Britse nachtclub](https://nos.nl/l/2624297)
-  > De Amerikaanse zanger Chris Brown heeft bekend schuldig te zijn aan openlijke geweldpleging in een Britse nachtclub in 2023. Daarbij raakte een...
-- ['Proud to pay': 120 Britse miljonairs bereid om meer belasting te betalen](https://nos.nl/l/2624296)
-  > Een groep van 120 Britse miljonairs wil graag meer belasting betalen. In een open brief roepen ze de nieuwe premier Andy Burnham op om meer belasting...
-- [Studie naar waarom vogels zo verschillend zingen: 'Verscheidenheid is enorm'](https://nos.nl/l/2624292)
-  > Ze tsjilpen, fluiten en toeteren op alle mogelijke manieren, maar tot nu toe was niet duidelijk waarom vogels zo'n enorme variëteit aan geluiden...
-- [Nederlandse scheepsbouwer Koninklijke IHC op Chinese exportcontrolelijst](https://nos.nl/l/2624291)
-  > China heeft vandaag het Nederlandse scheepsbouwbedrijf Koninklijke IHC op de exportcontrolelijst geplaatst. Dat houdt in dat Chinese bedrijven geen...
+  > Het Openbaar Ministerie gaat in hoger beroep tegen de vrijspraak van de automobilist die betrokken was bij het dodelijke ongeval met de 14-jarige...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Arensman in kopgroep bomvolle Alpe d’Huez op, kan Nederlander meedoen om prachtige zege?](https://www.ad.nl/tour-de-france/arensman-in-kopgroep-bomvolle-alpe-dhuez-op-kan-nederlander-meedoen-om-prachtige-zege~aab129a4/)
-  > De Tour de France gaat de beslissende fase in. In de negentiende etappe ligt de finish (net als een dag later) op de iconische Alpe d’Huez. Deze...
-- [Kan Max Verstappen goede stap zetten tijdens tweede vrije training in Hongarije?](https://www.ad.nl/formule-1/kan-max-verstappen-goede-stap-zetten-tijdens-tweede-vrije-training-in-hongarije~ac238d1a/)
-  > Max Verstappen startte prima aan het weekend in Hongarije met een tweede plek in de eerste vrije training. Desondanks was de achterstand op Charles...
-- [Lonwijk verkast naar Israël, Seuntjens na tien jaar terug bij NAC](https://www.ad.nl/voetbal/lonwijk-verkast-naar-israel-seuntjens-na-tien-jaar-terug-bij-nac~aeb81ef1/)
-  > Het WK zit erop en er is meteen flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
-- [Welke nieuwe bankbiljetten vind jij het mooist?](https://www.ad.nl/geld/welke-nieuwe-bankbiljetten-vind-jij-het-mooist~ad4c92a7/)
-  > De Europese Centrale Bank onthulde deze week mogelijke ontwerpen voor de nieuwe eurobiljetten die vanaf 2027 in omloop komen. Tot eind september mag...
-- [Première van musical & Juliet uitgesteld vanwege waterschade Beatrix Theater](https://www.ad.nl/show/premiere-van-musical-en-juliet-uitgesteld-vanwege-waterschade-beatrix-theater~a6879d10/)
-  > De première van de nieuwe musical & Juliet wordt toch uitgesteld. De voorstelling zou vanaf september in het Beatrix Theater in Utrecht te zien zijn,...
+- [Kwetsbare vrouw wordt op gruwelijke wijze dagenlang vastgehouden en verkracht in flatje en voor dood langs A12 gedumpt](https://www.ad.nl/binnenland/kwetsbare-vrouw-wordt-op-gruwelijke-wijze-dagenlang-vastgehouden-en-verkracht-in-flatje-en-voor-dood-langs-a12-gedumpt~a04e1ecf/)
+  > Een dag voordat een zwaargewonde vrouw (38) naast de A12 bij Maarsbergen uit een rijdende auto wordt gegooid, krijgt de politie een telefoontje. Een...
+- [Onrust bij miljoenen gamers: online gamen op PlayStation ineens niet meer mogelijk](https://www.ad.nl/tech/onrust-bij-miljoenen-gamers-online-gamen-op-playstation-ineens-niet-meer-mogelijk~a3eba59d/)
+  > Een flinke tegenvaller voor miljoenen gamers wereldwijd. Door een grote, hardnekkige storing ligt het PlayStation Network plat. Online een potje...
+- [Record van Marco Pantani na 31 jaar uit de boeken: Tadej Pogacar anderhalve minuut sneller op Alpe d’Huez](https://www.ad.nl/tour-de-france/record-van-marco-pantani-na-31-jaar-uit-de-boeken-tadej-pogacar-anderhalve-minuut-sneller-op-alpe-dhuez~a7b4d406/)
+  > Tadej Pogacar heeft na 31 jaar het record van Marco Pantani uit de geschiedenisboeken gereden. De 27-jarige Sloveen deed 35 minuten en 27 seconden...
+- [Zo laat komt Max Verstappen zaterdag in actie tijdens de kwalificatie op de Hungaroring](https://www.ad.nl/formule-1/zo-laat-komt-max-verstappen-zaterdag-in-actie-tijdens-de-kwalificatie-op-de-hungaroring~a2c5e8f0/)
+  > Max Verstappen en zijn collega’s komen nog één keer in actie voor de zomerstop. De Grand Prix van Hongarije is het slotstuk van de eerste...
+- [Tweede vrije training flinke worsteling voor Max Verstappen, Ferrari blijft superieur op de Hungaroring](https://www.ad.nl/formule-1/tweede-vrije-training-flinke-worsteling-voor-max-verstappen-ferrari-blijft-superieur-op-de-hungaroring~ac238d1a/)
+  > De tweede vrije training was een flinke worsteling voor Max Verstappen. De coureur van Red Bull Racing noteerde een vierde tijd met opnieuw een grote...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Ook Nederland verkoopt sinds deze week uit strategische oliereserves](https://fd.nl/bedrijfsleven/1605795/nederland-verkoopt-sinds-deze-week-ook-strategische-oliereserves)
-  > Het kabinet zegde al eerder toe om reserves vrij te geven. Doordat andere landen al veel extra olie op de markt brachten, was dat tot nu toe niet...
-- [Lage waterstanden drijven prijzen elektriciteit op](https://fd.nl/samenleving/1605474/lage-waterstanden-drijven-prijzen-elektriciteit-op)
-  > Vooral in Frankrijk hebben elektriciteitscentrales minder koelwater beschikbaar, waardoor ze minder hard kunnen draaien. Minder aanbod zorgt voor...
-- [Aalberts verdient nog niet dubbel aan de AI-hausse](https://fd.nl/financiele-markten/1605791/aalberts-verdient-nog-niet-dubbel-aan-de-ai-hausse)
-  > De strategie van Aalberts om zowel te verdienen aan de productie van chips als aan de bouw van de daaruitvolgende datacenters heeft tijd nodig.
-- [Twentekanaal dicht, bedrijven gaan op zoek naar trucks](https://fd.nl/bedrijfsleven/1605701/twentekanaal-dicht-bedrijven-gaan-op-zoek-naar-trucks)
-  > De sluiting, voor zover bekend de eerste ooit, illustreert dat de droogte en lage waterstanden het bedrijfsleven in rap tempo voor grote problemen...
-- [Een jaar na Turnberry: ‘Invoerheffing van 15% eerder vloer dan plafond’](https://fd.nl/economie/1605416/een-jaar-na-turnberry-invoerheffing-van-15-zal-eerder-een-vloer-dan-een-plafond-zijn)
-  > Een jaar na het handelsakkoord van Turnberry lijkt de rust tussen de EU en de VS voorlopig bewaard. Maar de deal die escalatie moest voorkomen, heeft...
+- [Negeren vrachtwagenverbod op zwakke Merwedebrug levert €500 boete op](https://fd.nl/samenleving/1605798/negeren-vrachtwagenverbod-op-zwakke-merwedebrug-levert-500-boete-op)
+  > Door vrachtverkeer en touringcars te weren, neemt de belasting van de brug af. Het staal blijkt zwakker dan eerder gedacht.
+- [Bedrijfscijfers doen beleggers twijfelen aan AI-opmars](https://fd.nl/financiele-markten/1605697/bedrijfscijfers-doen-beleggers-twijfelen-aan-ai-opmars)
+  > De resultaten van techbedrijven over het tweede kwartaal geven beleggers een broodnodige inkijk in wat kunstmatige intelligentie al kost, én oplevert.
+- [Grote technamen springen in de bres voor ‘gratis’ AI](https://fd.nl/tech-en-innovatie/1605707/grote-technamen-springen-in-de-bres-voor-gratis-ai)
+  > Onder meer Nvidia, Meta en Microsoft waarschuwen tegen een verbod op ‘open weight’ AI-modellen. Die gratis modellen, waarvan de beste van Chinese...
+- [Tienduizenden mensen geëvacueerd uit Frans bosbrandgebied](https://fd.nl/samenleving/1605705/tienduizenden-mensen-geevacueerd-uit-frans-bosbrandgebied)
+  > De branden nabij Bordeaux hebben al meer dan honderd huizen verwoest en breiden uit naar schiereiland Cap Ferret, een populaire vakantiebestemming...
+- [China slaat terug na EU-sancties, ook Nederlandse scheepsbouwer op de lijst](https://fd.nl/bedrijfsleven/1605706/china-slaat-terug-na-eu-sancties-ook-nederlandse-scheepsbouwer-op-de-lijst)
+  > De langslepende handelsruzie tussen Brussel en Peking eist nu ook onder meer scheepsbouwer IHC als slachtoffer.
 
 ### Meest gelezen
 
