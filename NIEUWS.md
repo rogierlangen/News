@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-07-2026 om 07:34*
+*Laatst bijgewerkt: 24-07-2026 om 10:22*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Brandweer is diefstal van levensreddend gereedschap zat: 'Asociaal en onacceptabel'](https://nos.nl/l/2624228)
-  > De aanhoudende reeks diefstallen van apparatuur uit brandweerkazernes kan leiden tot levensgevaarlijke situaties, waarschuwt de brandweer. Sinds...
-- [Dode en gewonden door Russische aanvallen, Oekraïne raakt Russische webwinkel](https://nos.nl/l/2624224)
-  > Afgelopen nacht kwam iemand om het leven en raakten tientallen mensen gewond door Russische luchtaanvallen in het zuidoosten van Oekraïne. Ook in...
-- [Wekdienst 24/7: Laatste dag Nijmeegse Vierdaagse • Stemming over ontslag Strafhof-aanklager Khan](https://nos.nl/l/2624218)
-  > Goedemorgen! In Nijmegen is de laatste dag van de Vierdaagse. En in Den Haag wordt gestemd over het mogelijke ontslag van hoofdaanklager van het...
-- [Frankrijk vraagt hulp van EU bij bosbranden, Spanje roept noodtoestand uit](https://nos.nl/l/2624217)
-  > Frankrijk heeft Europese bondgenoten gevraagd om te helpen bij het blussen van de bosbranden. Volgens president Macron komt er hulp uit Kroatië,...
-- [Machtsstrijd in Franse abdij loopt uit de hand: pater ontvoerd en dagen spoorloos](https://nos.nl/l/2624216)
-  > In een klein dorpje in het midden van Frankrijk is een interne machtsstrijd binnen een abdij ontspoord. De overste van de benedictijnenabdij werd...
+- [Zeven Roemenen verdacht van uitbuiting tientallen sekswerkers op Amsterdamse Wallen](https://nos.nl/l/2624249)
+  > De zeven mannen die vorige week werden aangehouden in een onderzoek naar mensenhandel op de Amsterdamse Wallen hebben allemaal de Roemeense...
+- [Roemeense F-16 piloot haalt drone neer boven luchtruim](https://nos.nl/l/2624248)
+  > Roemenië heeft vanmorgen een drone neergehaald die het luchtruim was binnengevlogen. Dat schrijft de Roemeense president Nicusor Dan op X. Een piloot...
+- [EU accepteert nieuwe Amerikaanse heffingen, ondanks beschuldiging dwangarbeid](https://nos.nl/l/2624245)
+  > De Europese Unie reageert opgelucht op de nieuwe heffingen vanuit de Verenigde Staten. Volgens de Europese Commissie, het dagelijks bestuur van de...
+- [Nog dit jaar strafpunten voor foute bestuurders die worden betrapt door politie](https://nos.nl/l/2624242)
+  > Mensen die vanwege een verkeersovertreding aan de kant worden gezet, krijgen straks naast een boete ook strafpunten. Politie en Openbaar Ministerie...
+- [Ruim 20 bekeuringen in Rotterdamse wijk tijdens eerste nacht gebiedsverbod](https://nos.nl/l/2624241)
+  > Ruim twintig mensen zijn in de Rotterdamse wijk De Esch op de bon geslingerd omdat ze zich niet hielden aan het gebiedsverbod dat daar vannacht is...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Winkeldief gaat fors meer betalen: schadevergoeding wordt voor het eerst in 13 jaar verhoogd](https://www.ad.nl/economie/winkeldief-gaat-fors-meer-betalen-schadevergoeding-wordt-voor-het-eerst-in-13-jaar-verhoogd~ae64d467/)
-  > Voor het eerst in ruim 13 jaar gaat een winkeldief fors meer betalen. De schadevergoeding die kan worden geïnd na winkeldiefstal gaat halverwege...
-- [Grote actie tegen pooierbende: 'Roemeense mannen beschouwden Wallen als hun eigendom'](https://www.ad.nl/binnenland/grote-actie-tegen-pooierbende-roemeense-mannen-beschouwden-wallen-als-hun-eigendom~af75eac2/)
-  > De zeven mannen die vorige week werden gearresteerd na invallen op de Amsterdamse Wallen, behoorden tot een Roemeense pooierbende die jarenlang...
-- [David zou aan de slag gaan als wethouder, maar de coalitie klapte en nu wast hij borden af: ‘Hier leer je wat echt belangrijk is’](https://www.ad.nl/binnenland/david-zou-aan-de-slag-gaan-als-wethouder-maar-de-coalitie-klapte-en-nu-wast-hij-borden-af-hier-leer-je-wat-echt-belangrijk-is~acf18627/)
-  > Hij dacht als VVD-wethouder in Papendrecht aan de slag te gaan, maar in plaats daarvan doet David Roelofs (46) nu de vaat en andere klussen in een...
-- [Etappe 19 | Aankomst op ‘Nederlandse berg’ Alpe d’Huez: de verwachte start- en finishtijd en de favorieten](https://www.ad.nl/tour-de-france/etappe-19-aankomst-op-nederlandse-berg-alpe-dhuez-de-verwachte-start-en-finishtijd-en-de-favorieten~aab129a4/)
+- [Brussel tikt TikTok opnieuw op de vingers: app beschermt minderjarigen onvoldoende](https://www.ad.nl/tech/brussel-tikt-tiktok-opnieuw-op-de-vingers-app-beschermt-minderjarigen-onvoldoende~a7ac1d7a/)
+  > De Chinese socialemediagigant TikTok doet te weinig om de accounts en posts van minderjarigen af te schermen. Dat concludeert de Europese Commissie....
+- [Youtubers vinden in paar uur twee Fransen die al jaren werden vermist: ‘Betere apparatuur dan de politie’](https://www.ad.nl/buitenland/youtubers-vinden-in-paar-uur-twee-fransen-die-al-jaren-werden-vermist-betere-apparatuur-dan-de-politie~ad49d299/)
+  > Acht jaar lang vindt de Franse politie geen spoor van de vermiste David Stévenin. Tot youtubers op eigen initiatief en met sonarapparatuur een rivier...
+- [Meer dan twee keer rond de wereld en een uitstoot van 154 man: de duizelingwekkende vliegcijfers van Gianni Infantino tijdens WK](https://www.ad.nl/wk-voetbal/meer-dan-twee-keer-rond-de-wereld-en-een-uitstoot-van-154-man-de-duizelingwekkende-vliegcijfers-van-gianni-infantino-tijdens-wk~acfd0044/)
+  > De privéjet van Gianni Infantino draaide dit WK op volle toeren. Maar liefst 142 uur hing de FIFA-voorzitter in de lucht, goed voor meer dan 100.000...
+- [Organisatie Tour waarschuwt wielerfans op drukbevolkte Alpe d’Huez: ‘Doe geen domme dingen’](https://www.ad.nl/tour-de-france/organisatie-tour-waarschuwt-wielerfans-op-drukbevolkte-alpe-dhuez-doe-geen-domme-dingen~aab129a4/)
   > De Tour de France gaat de beslissende fase in. In de negentiende etappe ligt de finish (net als een dag later) op de iconische Alpe d’Huez. Deze...
-- [Nieuwe coach Míchel tevreden na start Ajax, maar ook kritisch: ‘Daar was ik inderdaad flink boos over’](https://www.ad.nl/voetbal/nieuwe-coach-michel-tevreden-na-start-ajax-maar-ook-kritisch-daar-was-ik-inderdaad-flink-boos-over~afb121a4/)
-  > Trainer Míchel was zeer te spreken over het spel van Ajax, dat donderdagavond met 1-4 won van het Servische Vojvodina. De Amsterdammers zetten...
+- [Willem Holleeder overgeplaatst naar gevangenis Krimpen aan den IJssel](https://www.ad.nl/krimpen-aan-den-ijssel/willem-holleeder-overgeplaatst-naar-gevangenis-krimpen-aan-den-ijssel~aaec77d4/)
+  > Willem Holleeder (68) is vanuit de Extra Beveiligde Inrichting in Vught overgeplaatst naar een minder zwaar beveiligde gevangenis, de Afdeling...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Minder vluchten en reizigers op Schiphol](https://fd.nl/bedrijfsleven/1605677/minder-vluchten-en-reizigers-op-schiphol)
-  > In totaal reisden 32,7 miljoen passagiers vanaf de luchthaven, zo’n 100.000 minder dan in dezelfde periode vorig jaar. Wel steeg het totale aantal...
-- [De hoge prijs van hoop: ‘In de fertiliteitsindustrie gaat er altijd weer een nieuw loket open’](https://fd.nl/samenleving/1603180/de-hoge-prijs-van-hoop-in-de-fertiliteitsindustrie-gaat-er-altijd-weer-een-nieuw-loket-open)
-  > Wensouders hebben er alles voor over om zwanger te raken en dat is private-equitypartijen niet ontgaan. Deel 2 van een zomerserie over de baarmoeder...
-- [Frankrijk vraagt om Europese hulp bij bosbranden, noodtoestand in Spaanse regio’s](https://fd.nl/samenleving/1605676/frankrijk-vraagt-europese-hulp-bij-bosbranden-spanje-roept-noodtoestand-uit)
-  > Er woeden grote branden in de buurt van de Spaanse hoofdstad Madrid en de Franse stad Bordeaux.
-- [Kleurrijke meubels en vulkanische klei voor huid en haar](https://fd.nl/samenleving/1605248/kleurrijke-meubels-en-vulkanische-klei-voor-huid-en-haar)
-  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
-- [Signify houdt vast aan jaardoelen ondanks winstval](https://fd.nl/bedrijfsleven/1605606/signify-houdt-vast-aan-jaardoelen-ondanks-winstval)
-  > Het bedrijf heeft onder meer last van prijsdruk in China. Ook is er een conflict met minderheidsaandeelhouders van de Chinese dochter.
+- [Waarom het IJsland-referendum belangrijk is voor de EU](https://fd.nl/politiek/1605777/waarom-het-ijsland-referendum-belangrijk-is-voor-de-eu)
+  > Komt er eindelijk een volksraadpleging met een positieve uitslag voor de EU? Vanaf volgende week kan er per post gestemd worden in het IJslandse...
+- [Brussel: ‘TikTok beschermt minderjarigen onvoldoende’](https://fd.nl/tech-en-innovatie/1605779/brussel-tiktok-beschermt-minderjarigen-onvoldoende)
+  > Volgens de Europese Commissie zijn accounts van minderjarigen te zichtbaar. Dat levert risico's op, zoals ongewenst contact en cyberpesten. TikToks...
+- [Failliete onderaannemers PostNL en DHL laten miljoenenschulden achter](https://fd.nl/bedrijfsleven/1605472/failliete-onderaannemers-postnl-en-dhl-laten-miljoenenschulden-achter)
+  > Onderaannemers die pakketten bezorgen, kunnen blijven doorrijden doordat ze jarenlang geen loonheffingen en omzetbelasting betalen. De...
+- [De lekkernijen van Essaouira](https://fd.nl/samenleving/1605251/de-lekkernijen-van-essaouira)
+  > Acteur en theatermaker Yasmina Abdelmoumen bracht veel vakanties door in Marokko. De kustplaats Essaouira maakte op haar de meeste indruk.
+- [Zweden zijn zeer productief, maar waarom gaat alles zo langzaam?](https://fd.nl/opinie/1603460/zweden-zijn-zeer-productief-maar-waarom-gaat-alles-zo-langzaam)
+  > Zweden werken hard en zijn zeer productief, maar het dagelijks leven kan er opvallend traag verlopen. Achter die ogenschijnlijke tegenstelling...
 
 ### Meest gelezen
 
