@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-07-2026 om 22:59*
+*Laatst bijgewerkt: 24-07-2026 om 00:06*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [1,2 miljoen nepsigaretten onderschept in busje bij Bad Nieuweschans](https://nos.nl/l/2624215)
+  > De politie heeft bij een controle 1,2 miljoen nepsigaretten aangetroffen in de laadruimte van een busje. Dat gebeurde op de A7 ter hoogte van Bad...
 - [VS kondigt importheffingen aan op producten uit 60 landen, waaronder EU-lidstaten](https://nos.nl/l/2624214)
   > De VS voert nieuwe importheffingen in op producten uit zestig landen, waaronder EU-lidstaten. De heffingen van 10 procent die in februari werden...
 - [VS trekt dagvaarding journalisten in om artikel over Air Force One](https://nos.nl/l/2624212)
@@ -16,8 +18,6 @@
   > In de VS is een man veroordeeld tot een levenslange gevangenisstraf, omdat hij aanslagen had gepleegd op Democratische politici. Vance Boelter schoot...
 - [Eerst regen op komst, daarna kans op tropische hitte](https://nos.nl/l/2624203)
   > Na een heel warme periode was het afgelopen week voor Nederlandse begrippen eigenlijk heel gemiddeld zomerweer. De wind kwam uit het noordwesten en...
-- [Verdachte brand strandhuisjes ook verdacht van voorbereiding van moord](https://nos.nl/l/2624200)
-  > De 54-jarige man uit Roosendaal die vorige week dinsdag werd aangehouden op verdenking van brandstichting bij zes strandhuisjes in Wijk aan Zee,...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [VS komt met nieuwe grond voor heffingen en richt pijlen op EU](https://fd.nl/politiek/1605605/vs-komt-met-nieuwe-grond-voor-heffingen-handelsvertegenwoordiger-richt-pijlen-op-eu)
+  > Heffing van 10% geldt formeel als strafmaatregel tegen het faciliteren van mensenhandel.
 - [Ruimte voor rekenkracht](https://fd.nl/opinie/1605582/ruimte-voor-rekenkracht)
   > Datacenters worden een steeds belangrijkere basisvoorziening voor de economie.
 - [Het linksemeisjessyndroom](https://fd.nl/opinie/1605467/het-linksemeisjessyndroom)
@@ -54,8 +56,6 @@
   > De teller, alleen al als het gaat om Amerikaanse bedrijven die actief zijn op het gebied van AI-infrastructuur, staat dit kalenderjaar op $250 mrd....
 - [Personalia vrijdag 24 juli](https://fd.nl/bedrijfsleven/1605579/personalia-vrijdag-24-juli)
   > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Wall Street sluit in het rood na stijgende olieprijs](https://fd.nl/financiele-markten/1605558/wall-street-sluit-in-het-rood-na-stijgende-olieprijs)
-  > De beursen eindigen in mineur na turbulentie in het Midden-Oosten en de angst voor een AI-bubbel.
 
 ### Meest gelezen
 
