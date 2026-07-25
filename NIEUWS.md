@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-07-2026 om 20:56*
+*Laatst bijgewerkt: 25-07-2026 om 22:02*
 
 ---
 
@@ -8,8 +8,8 @@
 
 ### Laatste nieuws
 
-- [Auto rijdt in op menigte, Pride in Berlijn stilgelegd](https://nos.nl/l/2624464)
-  > In Berlijn is een auto ingereden op toeschouwers van de jaarlijkse Pride. Er is nog niet bekend of het om een ongeluk gaat. Volgens Bild zijn...
+- [Voertuig rijdt in op menigte bij Pride in Berlijn: één dode, 14 gewonden](https://nos.nl/l/2624464)
+  > In Berlijn is een auto ingereden op toeschouwers van de jaarlijkse Pride. Er is nog niet bekend of er opzet in het spel was, maar de politie in de...
 - [Zoon van Bolsonaro neemt het op tegen Lula bij presidentsverkiezing Brazilië](https://nos.nl/l/2624457)
   > In Brazilië doet de zoon van voormalig president Bolsonaro mee aan de presidentsverkiezingen in oktober. Flávio Bolsonaro neemt het dan op tegen de...
 - [Haïtianen vrezen massadeportaties uit VS: 'Dit doe je mensen toch niet aan?'](https://nos.nl/l/2624454)
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE World Matchplay | Afgang dreigt voor Van Duijvenbode tegen geweldige Littler, worstelende Van Veen grijpt naast finaleplaats](https://www.ad.nl/darts/live-world-matchplay-afgang-dreigt-voor-van-duijvenbode-tegen-geweldige-littler-worstelende-van-veen-grijpt-naast-finaleplaats~a03abf52/)
-  > Gian van Veen is er niet in geslaagd om de finale van de World Matchplay te bereiken. De nummer 3 van de wereld verloor met 17-10 van Gerwyn Price....
+- [‘Buitenaardse’ Littler laat Van Duijvenbode kansloos in halve finale: ‘Joh maat, 117 is een beetje overdreven hè’](https://www.ad.nl/darts/buitenaardse-littler-laat-van-duijvenbode-kansloos-in-halve-finale-joh-maat-117-is-een-beetje-overdreven-he~a03abf52/)
+  > Dirk van Duijvenbode en Gian van Veen hebben naast de finale gegrepen van de World Matchplay, het belangrijkste rankingtoernooi na het WK. Van Veen...
+- [Pride in Berlijn gestaakt, één dode en 15 gewonden door bestelbus die met ‘hoge snelheid’ op bezoekers inreed](https://www.ad.nl/buitenland/pride-in-berlijn-gestaakt-een-dode-en-15-gewonden-door-bestelbus-die-met-hoge-snelheid-op-bezoekers-inreed~add66fb8/)
+  > De Pride in de Duitse hoofdstad Berlijn is zaterdagavond stilgelegd. De politie meldt dat een auto lijkt te zijn ingereden op mensen bij een groot...
+- [Podcast In Het Wiel | ‘Je had het Visma en Kuss wel gegund na zo’n Tour’](https://www.ad.nl/tour-de-france/podcast-in-het-wiel-je-had-het-visma-en-kuss-wel-gegund-na-zon-tour~a5ea502e/)
+  > Terwijl Sepp Kuss in gewonnen positie niet één, maar twee keer onderuit ging, greep Richard Carapaz misschien wel de mooiste zege uit zijn carrière....
 - [Bosbranden bij Bordeaux trekken topcamping in hoogseizoen leeg, Franse dorpjes lijken wel spooksteden](https://www.ad.nl/buitenland/bosbranden-bij-bordeaux-trekken-topcamping-in-hoogseizoen-leeg-franse-dorpjes-lijken-wel-spooksteden~ac0519bf/)
   > Een topcamping die normaal in vier uur is volgeboekt, staat nu half leeg door de bosbranden bij Bordeaux. Toch zag onze verslaggever Raymond Boere...
 - [Verhit oefenduel Fortuna Sittard: scheidsrechter loopt hersenschudding op na opstootje](https://www.ad.nl/voetbal/verhit-oefenduel-fortuna-sittard-scheidsrechter-loopt-hersenschudding-op-na-opstootje~a13549ab/)
   > Fortuna Sittard en FC Metz speelden een vriendschappelijk oefenduel in Frankrijk, al kunnen we dat ‘vriendschappelijk’ wel weglaten. In de eerste...
-- [Klungelend PSV onderuit tegen Villarreal: ‘Als we zo spelen tegen AZ, gaan we niet winnen’](https://www.ad.nl/voetbal/klungelend-psv-onderuit-tegen-villarreal-als-we-zo-spelen-tegen-az-gaan-we-niet-winnen~ae810a56/)
-  > PSV kende zaterdagavond tegen Villarreal een slechte generale voor de Johan Cruijff Schaal. In eigen huis verloor het met 3-1 van de Spaanse...
-- [Bekijk hier alle zomertransfers in de eredivisie](https://www.ad.nl/voetbal/bekijk-hier-alle-zomertransfers-in-de-eredivisie~a0d7efae/)
-  > De zomerse transferwindow van de eredivisie en de Keuken Kampioen Divisie is geopend. De Nederlandse transfermarkt sluit op woensdag 2 september om...
 
 ### Meest gelezen
 
