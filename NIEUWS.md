@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-07-2026 om 22:07*
+*Laatst bijgewerkt: 25-07-2026 om 00:07*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Vuurbal te zien boven delen van Nederland](https://nos.nl/l/2624348)
+- [Eerste proefpersoon krijgt vaccin tegen Bundibugyo-variant ebola](https://nos.nl/l/2624353)
+  > In het Engelse Oxford is de eerste proefpersoon ingeënt met een experimenteel vaccin tegen de Bundibugyo-variant van ebola. Momenteel veroorzaakt een...
+- [Vissers Doornenburg rijden over fosforgranaat](https://nos.nl/l/2624352)
+  > In de buurt van Doornenburg, in Gelderland, zijn vissers gisteravond over een fosforgranaat gereden. Kort daarna begon de granaat te roken en vloog...
+- [Vuurbal te zien boven delen van Nederland: 'Restant van SpaceX-satelliet'](https://nos.nl/l/2624348)
   > In delen van Nederland was rond 22.30 uur een vuurbal aan de hemel te zien. Onder meer vanuit Amsterdam, Utrecht, Almere, Dronten en Arnhem kwamen...
 - [27 doden bij vuurgevecht na aanslag op controlepost in Pakistan](https://nos.nl/l/2624347)
   > Bij een zelfmoordaanslag met een autobom op een controlepost in Pakistan en een daaropvolgend vuurgevecht zijn in totaal 27 mensen om het leven...
 - [Kaapverdische WK-voetballers uit Rotterdam gehuldigd na indrukwekkend toernooi](https://nos.nl/l/2624342)
   > Op het stadhuis in Rotterdam zijn de WK-deelnemers Deroy Duarte en Dailon Livramento ontvangen door burgemeester Schouten en wethouder van Sport...
-- [Nederland geeft deel strategische oliereserve vrij](https://nos.nl/l/2624339)
-  > Nederland is begonnen met het op de markt brengen van een deel van de strategische oliereserve. Dat moet de omhooggeschoten olieprijs drukken.
-      ...
-- [Politieboot vaart tegen Westminster Bridge in Londen, vijf agenten gewond](https://nos.nl/l/2624338)
-  > Op de rivier de Theems in Londen zijn vijf politieagenten gewond geraakt bij een aanvaring met de Westminster Bridge. De politieboot waarop ze zich...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Twee doden bij droneaanval op Soemy, postkantoor en tankstation geraakt](https://www.ad.nl/buitenland/twee-doden-bij-droneaanval-op-soemy-postkantoor-en-tankstation-geraakt~adfb97be/)
+  > Bij een Russische droneaanval op de Oekraïense stad Soemy, in het noordoosten van het land, zijn twee doden en drie gewonden gevallen. Ook een...
+- [Real Madrid mengt zich in de strijd om Diomande, nieuwe clubs voor Narsingh en Luckassen](https://www.ad.nl/voetbal/real-madrid-mengt-zich-in-de-strijd-om-diomande-nieuwe-clubs-voor-narsingh-en-luckassen~aeb81ef1/)
+  > Het WK zit erop en er is meteen flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [VS-regering hield miljarden dollars aan subsidies in van staten die niet op Trump stemden](https://www.ad.nl/buitenland/vs-regering-hield-miljarden-dollars-aan-subsidies-in-van-staten-die-niet-op-trump-stemden~ae67dd9c/)
+  > Amerikaanse overheidsfunctionarissen hebben in gerechtelijke documenten toegegeven dat ze miljarden dollars aan financiering voor energieprojecten in...
+- [Saoedische aanvallen op doelwitten in Jemen, na bedreiging scheepvaart](https://www.ad.nl/buitenland/saoedische-aanvallen-op-doelwitten-in-jemen-na-bedreiging-scheepvaart~ac528ac3/)
+  > Een coalitie van landen onder leiding van Saoedi-Arabië heeft doelwitten in Jemen onder vuur genomen. De aanval vond plaats in havenstad Hodeidah en...
 - [Gian van Veen plaatst zich voor halve finale tegen Gerwyn Price: ‘Het was zo’n rare wedstrijd’](https://www.ad.nl/darts/gian-van-veen-plaatst-zich-voor-halve-finale-tegen-gerwyn-price-het-was-zon-rare-wedstrijd~a3e7ca6b/)
   > Gian van Veen heeft zich geplaatst voor de halve finales van World Matchplay. De 24-jarige Nederlander won vrijdagavond in de laatste kwartfinale in...
-- [Netanyahu spoedig verwacht bij Trump, eerste ontmoeting in lange tijd](https://www.ad.nl/buitenland/netanyahu-spoedig-verwacht-bij-trump-eerste-ontmoeting-in-lange-tijd~ac528ac3/)
-  > De Amerikaanse president Donald Trump treft komende week naar verwachting de Israëlische premier Benjamin Netanyahu en het Oekraïense staatshoofd...
-- [EU is woest en ontbiedt Russische gezant, Rusland meldt aanval op demonstratie in Oekraïne](https://www.ad.nl/buitenland/eu-is-woest-en-ontbiedt-russische-gezant-rusland-meldt-aanval-op-demonstratie-in-oekraine~adfb97be/)
-  > Rusland meldt dat het in Oekraïne een aanval heeft uitgevoerd op een dronedemonstratie. Het Russische ministerie van Defensie stelt dat bij de...
-- [Gezin JD Vance toont vierde kind, Trump zegt dat Venezuela is ‘niet klaar is voor verkiezingen’](https://www.ad.nl/buitenland/gezin-jd-vance-toont-vierde-kind-trump-zegt-dat-venezuela-is-niet-klaar-is-voor-verkiezingen~ae67dd9c/)
-  > Venezuela is nog niet klaar voor nieuwe verkiezingen. Dat verklaarde de Amerikaanse president Donald Trump, meer dan een half jaar nadat een...
-- [Vrienden namen deze laatste foto van Thys (20) op een festival, een paar uur later is hij er niet meer](https://www.ad.nl/binnenland/vrienden-namen-deze-laatste-foto-van-thys-20-op-een-festival-een-paar-uur-later-is-hij-er-niet-meer~aecccb22/)
-  > Het meerdaagse festival De Veenhoop in Friesland is opgeschrikt door het plotselinge overlijden van de 20-jarige bezoeker Thys-Frits. Hij overleed...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Beleggers op Wall Street kregen veel te verstouwen in turbulente week](https://fd.nl/financiele-markten/1605837/beleggers-op-wall-street-kregen-veel-te-verstouwen-in-turbulente-week)
-  > Nieuwe importheffingen van president Donald Trump, aanhoudende aanvallen in het Midden-Oosten die vaarroutes onveilig houden en een trits aan...
-- [‘Lidstaten stemmen voor ontslag hoofdaanklager Internationaal Strafhof’](https://fd.nl/samenleving/1605799/lidstaten-ontslaan-hoofdaanklager-internationaal-strafhof-karim-khan)
-  > Karim Khan werd begin juni al geschorst wegens aantijgingen van ernstig wangedrag. Volgens anonieme bronnen stemden 82 van de 125 lidstaten van het...
-- [AkzoNobel laat kans lopen op frisse start met aandeelhouders](https://fd.nl/opinie/1605604/akzonobel-laat-kans-lopen-op-frisse-start-met-aandeelhouders)
-  > AkzoNobel en Axalta willen samen verder als groter coatingbedrijf. In reactie op kritiek van aandeelhouders op de fusie deden AkzoNobel en Axalta een...
-- [Negeren vrachtwagenverbod op zwakke Merwedebrug levert €500 boete op](https://fd.nl/samenleving/1605798/negeren-vrachtwagenverbod-op-zwakke-merwedebrug-levert-500-boete-op)
-  > Door vrachtverkeer en touringcars te weren, neemt de belasting van de brug af. Het staal blijkt zwakker dan eerder gedacht.
-- [Bedrijfscijfers doen beleggers twijfelen aan AI-opmars](https://fd.nl/financiele-markten/1605697/bedrijfscijfers-doen-beleggers-twijfelen-aan-ai-opmars)
-  > De resultaten van techbedrijven over het tweede kwartaal geven beleggers een broodnodige inkijk in wat kunstmatige intelligentie al kost, én oplevert.
+- [Het is overleven in de ‘slangenkuil’ van de pakketbezorging](https://fd.nl/bedrijfsleven/1605473/het-is-overleven-in-de-slangenkuil-van-de-pakketbezorging)
+  > Onderaannemers in de pakketbranche laten een spoor aan faillissementen achter met miljoenenschulden bij de fiscus. ‘Het probleem is dat je er...
+- [De arbeider heeft een nieuwe kampioen](https://fd.nl/opinie/1605424/de-arbeider-heeft-een-nieuwe-kampioen)
+  > Ceo’s in de Europese auto-industrie verdienen nog wel geld, maar de concurrentie is groot. Ze stellen investeringen liever uit, de onzekerheid neemt...
+- [Warm en aards wonen](https://fd.nl/samenleving/1605200/warm-en-aards-wonen)
+  > Verweerde materialen, ruw pleisterwerk en woestijntinten, maar ook goud, fuchsia en kobaltblauw. We zien veel Marokkaanse invloeden in het...
+- [Belle époque en windmolens: het tweede leven van Oostende, de ‘koningin der badsteden’](https://fd.nl/bedrijfsleven/1603490/belle-epoque-en-windmolens-het-tweede-leven-van-oostende-de-koningin-der-badsteden)
+  > In het Belgische Oostende is de grandeur van vroeger nooit ver weg. Maar na decennia van neergang zocht de ‘koningin der badsteden’ een nieuwe...
+- [Personalia zaterdag 25 juli](https://fd.nl/bedrijfsleven/1605794/personalia-zaterdag-25-juli)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
