@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-07-2026 om 11:13*
+*Laatst bijgewerkt: 25-07-2026 om 13:42*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [EOD waarschuwt voor munitie die bloot komt te liggen bij laagwater](https://nos.nl/l/2624412)
+  > De Explosieven Opruimingsdienst Defensie (EOD) waarschuwt voor fosforgranaten en andere munitie die bloot komen te liggen nu de rivieren zo laag...
+- [Vliegtuigje stort neer op huis bij Bremen: dode en vermiste](https://nos.nl/l/2624409)
+  > Een vliegtuigje is in de buurt van de Duitse stad Bremen neergestort op een huis. Volgens de politie is zeker één inzittende om het leven gekomen. De...
+- [Roemenië schiet opnieuw drone neer, doden bij aanvallen Rusland en Oekraïne](https://nos.nl/l/2624408)
+  > Voor de tweede dag op rij is een drone het Roemeense luchtruim binnengedrongen. Een F-16-gevechtsvliegtuig haalde het onbemande toestel neer boven...
 - [Stagiaire van NAVO-hoofdkwartier in België opgepakt om spionage](https://nos.nl/l/2624401)
   > Een vrouw die stage liep op het militaire hoofdkwartier van de NAVO in België is opgepakt voor spionage. Volgens het federaal parket in België gaat...
 - [Treinverkeer stilgelegd om poezen van het spoor te redden in Drenthe](https://nos.nl/l/2624400)
   > Om een loslopende poes en haar twee kittens in veiligheid te brengen, heeft ProRail het treinverkeer tussen Meppel en Hoogeveen gisteren een paar uur...
-- [Is je caravan verzekerd tegen brandschade? Vijf vragen over de branden in Zuid-Europa](https://nos.nl/l/2624398)
-  > Wie de komende tijd een vakantie naar Frankrijk of Spanje gepland heeft, let waarschijnlijk extra goed op het nieuws rondom de bosbranden en...
-- [Indiase minister van Onderwijs treedt af na weken van Kakkerlak-protesten](https://nos.nl/l/2624396)
-  > De Indiase minister van Onderwijs is afgetreden. Het vertrek van Dharmendra Pradhan is de eerste grote concessie van de regering van premier Narendra...
-- [Aanvallen Israël op bezette Westoever na dodelijke confrontaties](https://nos.nl/l/2624395)
-  > Israël heeft afgelopen nacht op meerdere plekken op de bezette Westelijke Jordaanoever aanvallen uitgevoerd. Daarbij zijn volgens lokale media zeker...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Waarom Trump vasthoudt aan importheffingen: van Japanse koper die hem piano afpakte tot miljarden voor de staat](https://www.ad.nl/buitenland/waarom-trump-vasthoudt-aan-importheffingen-van-japanse-koper-die-hem-piano-afpakte-tot-miljarden-voor-de-staat~a4b269e5/)
-  > President Trump kwam vrijdag met een nieuw salvo aan importheffingen. Hij houdt maar vast aan die heffingen en laat zich niet tegenhouden door het...
-- [Arensman ook in koninginnenrit mee met kopgroep, Carapaz doet uitstekende zaak voor bollentrui](https://www.ad.nl/tour-de-france/arensman-ook-in-koninginnenrit-mee-met-kopgroep-carapaz-doet-uitstekende-zaak-voor-bollentrui~a9aec2e5/)
+- [Door een gebrek aan politieagenten: ‘Passages over Montmartre mogelijk geschrapt in slotrit Tour de France’](https://www.ad.nl/wielrennen/door-een-gebrek-aan-politieagenten-passages-over-montmartre-mogelijk-geschrapt-in-slotrit-tour-de-france~aa356960/)
+  > Een streep door de rekening van Mathieu van der Poel en co? Volgens France Télévisions wordt de slotetappe van de Tour de France mogelijk aangepast....
+- [Kan Max Verstappen zich melden in spannende strijd om poleposition in Hongarije?](https://www.ad.nl/formule-1/kan-max-verstappen-zich-melden-in-spannende-strijd-om-poleposition-in-hongarije~ab5b8378/)
+  > De kwalificatie voor de Grand Prix van Hongarije is een van de belangrijkste kwalificaties van het jaar. Kan Max Verstappen meedoen in de strijd om...
+- [Tientallen doden door botsing tussen bussen in Syrië](https://www.ad.nl/buitenland/tientallen-doden-door-botsing-tussen-bussen-in-syrie~af4df2e9/)
+  > In Syrië zijn 35 doden gevallen door een botsing tussen twee bussen, meldt het Syrische staatspersbureau Sana. Het ongeluk vond zaterdag plaats op de...
+- [Arensman gevallen in afdaling van Galibier, Carapaz heeft bolletjestrui binnen, Pogacar werkt voor ploeggenoot](https://www.ad.nl/tour-de-france/arensman-gevallen-in-afdaling-van-galibier-carapaz-heeft-bolletjestrui-binnen-pogacar-werkt-voor-ploeggenoot~a9aec2e5/)
   > De 20ste en voorlaatste etappe staat te boek als de koninginnenrit van deze Tour de France. Met drie beklimmingen van de buitencategorie, één van de...
-- [‘Heel erg druk’ op Europese wegen, 2 uur vertraging op Route du Soleil](https://www.ad.nl/buitenland/heel-erg-druk-op-europese-wegen-2-uur-vertraging-op-route-du-soleil~a4195717/)
-  > Het is erg druk op de Europese wegen. De langste files zijn in Frankrijk, op wegen richting het zuiden. Volg alle ontwikkelingen in vakantielanden in...
-- [Technokoningin Charlotte de Witte kondigt scheiding aan: ‘Liefde heeft andere vorm gekregen’](https://www.ad.nl/show/technokoningin-charlotte-de-witte-kondigt-scheiding-aan-liefde-heeft-andere-vorm-gekregen~a49c3ed4/)
-  > De Vlaamse techno-dj Charlotte de Witte en haar man, dj Enrico Sangiuliano, gaan scheiden. Dat maakten ze zaterdag bekend op Instagram. ‘Na zes...
-- [Sessie hervat na korte rode vlag, Max Verstappen voor het eerst het asfalt op](https://www.ad.nl/formule-1/sessie-hervat-na-korte-rode-vlag-max-verstappen-voor-het-eerst-het-asfalt-op~a1a952ab/)
-  > Er staat nog één vrije training op het programma voor de kwalificatie later vandaag. Kan Max Verstappen het gat met de ogenschijnlijk superieure...
+- [Anthony Joshua keert terug nadat hij vrienden verloor bij crash: ‘Ze geven me een miljoen procent aan motivatie’](https://www.ad.nl/vechtsport/anthony-joshua-keert-terug-nadat-hij-vrienden-verloor-bij-crash-ze-geven-me-een-miljoen-procent-aan-motivatie~a3afa5623/)
+  > Eind vorig jaar zat Anthony Joshua (36) op de achterbank van een auto die op volle snelheid tegen een stilstaande vrachtwagen botste. Twee vrienden...
 
 ### Meest gelezen
 
