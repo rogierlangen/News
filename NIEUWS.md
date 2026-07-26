@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-07-2026 om 04:28*
+*Laatst bijgewerkt: 26-07-2026 om 07:36*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [34 gewonden bij botsing op Duitse snelweg](https://nos.nl/l/2624468)
+- [Vrachtschip gezonken in Zuid-Chinese Zee, tientallen gered, nog 23 vermisten](https://nos.nl/l/2624479)
+  > In de Zuid-Chinese Zee, voor de kust van Vietnam, is een vrachtschip gezonken. De autoriteiten hebben inmiddels zeker 39 mensen kunnen redden, 23...
+- [Honderdduizenden geëvacueerd in China en Hongkong vanwege orkaan Noul](https://nos.nl/l/2624477)
+  > In het zuiden van China en Hongkong zijn meer dan 700.000 mensen geëvacueerd vlak voordat orkaan Noul aan land kwam. Noul is de zwaarste orkaan van...
+- [Wekdienst 26/7: Stille tocht voor slachtoffer schietpartij • Slotrit Tour de France](https://nos.nl/l/2624472)
+  > Goedemorgen! In Rotterdam wordt vandaag een stille tocht gehouden voor de 18-jarige jongen die in Nijmegen is doodgeschoten. En na een laatste rit...
+- [Waarom AI-bedrijven je bang willen maken: 'We denken al snel aan The Terminator'](https://nos.nl/l/2624469)
+  > De doemscenario's over kunstmatige intelligentie verschillen: je raakt je baan kwijt, alles wordt straks gehackt of de mensheid wordt vernietigd....
+- [Bestuurder van camper ziet file over het hoofd: 34 gewonden op Duitse snelweg](https://nos.nl/l/2624468)
   > Bij een ongeluk met meerdere voertuigen op de snelweg A9 in de Duitse deelstaat Thüringen zijn 34 mensen gewond geraakt. Onder de slachtoffers zijn...
-- [Zeker 250.000 mensen huis uit in Zuid-Europa, vuur nog niet onder controle](https://nos.nl/l/2624467)
-  > Meer dan 250.000 mensen zijn de natuurbranden in Frankrijk en Spanje ontvlucht. Vooral in Frankrijk is het leven in delen van het land ontwricht door...
-- [Voertuig rijdt in op menigte bij Pride in Berlijn: één dode, 16 gewonden](https://nos.nl/l/2624464)
-  > In Berlijn is een bestelbus ingereden op mensen bij het slotfeest van de jaarlijkse Pride. Daarbij is een vrouw om het leven gekomen. Zestien anderen...
-- [Zoon van Bolsonaro neemt het op tegen Lula bij presidentsverkiezing Brazilië](https://nos.nl/l/2624457)
-  > In Brazilië doet de zoon van voormalig president Bolsonaro mee aan de presidentsverkiezingen in oktober. Flávio Bolsonaro neemt het dan op tegen de...
-- [Haïtianen vrezen massadeportaties uit VS: 'Dit doe je mensen toch niet aan?'](https://nos.nl/l/2624454)
-  > De Haïtiaanse gemeenschap in de Verenigde Staten zit tussen hoop en vrees. De situatie in Haïti blijft levensgevaarlijk, en de Amerikaanse overheid...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nog een paar koele dagen, maar volgende week kan het lokaal weer 35 graden worden](https://www.ad.nl/binnenland/nog-een-paar-koele-dagen-maar-volgende-week-kan-het-lokaal-weer-35-graden-worden~a35975ab/)
-  > Wie zondag naar buiten gaat, doet er goed aan om de regenradar strak in de gaten te houden. Het is wisselvallig en een stuk koeler dan we gewend...
-- [Steeds meer auto’s met automaat, maar waar staat de B-stand voor?](https://www.ad.nl/auto/steeds-meer-autos-met-automaat-maar-waar-staat-de-b-stand-voor~ae00eaa6/)
-  > Steeds meer auto’s zijn voorzien van een automatische versnellingsbak. Dat geldt ook voor alle elektrische auto’s. Maar behalve de standen P, R, N en...
-- [99 euro voor een nachtje ‘in de nor’ in Leeuwarden: karig logeren of charmant doorgevoerd geschiedenisverhaal?](https://www.ad.nl/binnenland/99-euro-voor-een-nachtje-in-de-nor-in-leeuwarden-karig-logeren-of-charmant-doorgevoerd-geschiedenisverhaal~a0882d81/)
-  > Twintig jaar geleden zat niemand er voor z’n lol, tegenwoordig betaal je zo’n honderd euro om er een nachtje te slapen: de oud-gevangenis in...
-- [Priscilla’s wereld staat stil na bevalling: ‘Mijn nieren functioneren nog amper’](https://www.ad.nl/vlaardingen/priscillas-wereld-staat-stil-na-bevalling-mijn-nieren-functioneren-nog-amper~aa841849c/)
-  > De bevalling van haar dochtertje Lovi is voor Priscilla van der Velden-Vermeulen (34) uit Vlaardingen zo desastreus verlopen dat ze die maar...
-- [Camper rijdt in op rij auto’s op Duitse snelweg, 34 gewonden](https://www.ad.nl/buitenland/camper-rijdt-in-op-rij-autos-op-duitse-snelweg-34-gewonden~ace6f618/)
-  > Op de A9 in het oosten van Duitsland zijn zaterdagavond 34 gewonden gevallen bij een kop-staartbotsing met een camper. Dat zegt de politie. De...
+- [Hr trekt kantoorcollega’s van Charlotte (55) voor bij zomerbonus: ‘Net dat extra stapje gezet’](https://www.ad.nl/economie/hr-trekt-kantoorcollegas-van-charlotte-55-voor-bij-zomerbonus-net-dat-extra-stapje-gezet~a3d34a7d/)
+  > Charlotte (55) ontdekte op de borrel dat haar zomerbonus een stuk lager is dan die van sommige collega’s. Het scheelde honderden euro’s en volgens de...
+- [Deze tv-traditie is alleen bekend onder vaste kijkers én adrenalinejunkies](https://www.ad.nl/show/deze-tv-traditie-is-alleen-bekend-onder-vaste-kijkers-en-adrenalinejunkies~aad07320/)
+  > Een week lang naar angstaanjagende haaiendocumentaires kijken? Dat kan al bijna vier decennia tijdens Shark Week op Discovery Channel. Alleen de...
+- [Fenna (10) vliegt soms anderhalve meter de lucht in en grijpt nu al de Nederlandse titel](https://www.ad.nl/binnenland/fenna-10-vliegt-soms-anderhalve-meter-de-lucht-in-en-grijpt-nu-al-de-nederlandse-titel~af5a1329/)
+  > Fenna Thiel is pas vier jaar als een ervaren BMX'er haar talent ontdekt. Zes jaar en 61 bekers later is ze Nederlands kampioen. Nu droomt de...
+- [Jamie (31) ziet vrouw kapot aankomen bij de Vierdaagse-finish en doet iets bijzonders: ‘Deze mevrouw verdient hem’](https://www.ad.nl/binnenland/jamie-31-ziet-vrouw-kapot-aankomen-bij-de-vierdaagse-finish-en-doet-iets-bijzonders-deze-mevrouw-verdient-hem~ae4a72d7/)
+  > Jamie van Weeterloo (31) uit Wijchen haalt relatief eenvoudig de finish van de Nijmeegse Vierdaagse. Maar op de laatste dag, vrijdag, ziet hij dat...
+- [Amerikaanse vrouw vermoord door haar echtgenoot, twee weken nadat ze TikTok-filmpje over hem maakte](https://www.ad.nl/buitenland/amerikaanse-vrouw-vermoord-door-haar-echtgenoot-twee-weken-nadat-ze-tiktok-filmpje-over-hem-maakte~a576ec02/)
+  > Een vrouw is vorige week doodgeschoten door haar echtgenoot in het Amerikaanse Collinsville. Dat gebeurde twee weken nadat ze een TikTok-filmpje over...
 
 ### Meest gelezen
 
@@ -46,7 +46,9 @@
 
 ### Laatste nieuws
 
-- [Grootste industriële coöperatie ter wereld staat in Baskische bergstadje](https://fd.nl/bedrijfsleven/1601910/grootste-industriele-cooperatie-ter-wereld-staat-in-baskische-bergstadje)
+- [Duitsland kan, door gericht te poetsen, zijn verloren glans terugvinden](https://fd.nl/opinie/1605405/duitsland-kan-door-gericht-te-poetsen-zijn-verloren-glans-terugvinden)
+  > De Duitse economie groeide in 2025 slechts 0,2% en symbolen vallen om. Hoewel het land kampt met de AI-superioriteit van de VS of het...
+- [Grootste industriële coöperatie ter wereld staat in Baskisch bergstadje](https://fd.nl/bedrijfsleven/1601910/grootste-industriele-cooperatie-ter-wereld-staat-in-baskische-bergstadje)
   > Wat ooit begon als een lokale coöperatie die paraffinekaarsen produceerde, groeide uit tot een bloeiend concern met hightech-fabrieken, een eigen...
 - [KB-directeur: ‘Toegankelijke informatie is een mensenrecht, en nu ook een doelwit’](https://fd.nl/samenleving/1601605/kb-directeur-toegankelijke-informatie-is-een-mensenrecht-en-nu-ook-een-doelwit)
   > De nationale bibliotheek moet al het geschreven erfgoed van Nederland bewaren en toegankelijk houden. Hoe bescherm je dat tegen cyberaanvallen en...
@@ -54,8 +56,6 @@
   > In dit luisterverhaal hoor je het verhaal van bedrijven die het menselijk brein aansluiten op de computer.
 - [Indiase minister treedt af na wekenlange ‘kakkerlakkenprotesten’](https://fd.nl/politiek/1605711/indiase-minister-treedt-af-na-wekenlange-kakkerlakkenprotesten)
   > In India komen wekenlange protesten van jongeren tot een einde, nu Modi tegemoet komt aan hun eisen.
-- [Russische olieraffinaderij vat vlam na Oekraïense droneaanval](https://fd.nl/politiek/1605709/russische-olieraffinaderij-vat-vlam-na-oekraiense-droneaanval)
-  > Opnieuw valt Oekraïne Russische doelen aan.
 
 ### Meest gelezen
 
