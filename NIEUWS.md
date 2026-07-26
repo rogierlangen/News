@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-07-2026 om 20:11*
+*Laatst bijgewerkt: 26-07-2026 om 22:01*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Luke Littler veel te sterk voor Gerwyn Price in finale in Blackpool](https://www.ad.nl/darts/luke-littler-veel-te-sterk-voor-gerwyn-price-in-finale-in-blackpool~ae8fca57/)
-  > Luke Littler verkeert in bloedvorm. De 19-jarige Engelsman geldt als de absolute topfavoriet in de finale van de World Matchplay, het belangrijkste...
+- [Tienduizenden bewoners Mallorca protesteren tegen massatoerisme op eiland](https://www.ad.nl/buitenland/tienduizenden-bewoners-mallorca-protesteren-tegen-massatoerisme-op-eiland~a4195717/)
+  > Tienduizenden mensen hebben zondag op Mallorca geprotesteerd tegen het massatoerisme op het eiland. De demonstranten trokken door het centrum van...
+- [Brandenburger Tor licht op in regenboogkleuren na aanslag Berlijn: ‘We laten vrijheid niet afpakken’](https://www.ad.nl/buitenland/brandenburger-tor-licht-op-in-regenboogkleuren-na-aanslag-berlijn-we-laten-vrijheid-niet-afpakken~a6dc6fcb/)
+  > Berlijn laat zich de vrijheid niet ontnemen. Die boodschap wil de Duitse hoofdstad zondagavond uitstralen, een dag na de aanslag bij Pride waarbij...
+- [Luke Littler wint World Matchplay opnieuw: veel te sterk voor Gerwyn Price in finale](https://www.ad.nl/darts/luke-littler-wint-world-matchplay-opnieuw-veel-te-sterk-voor-gerwyn-price-in-finale~ae8fca57/)
+  > Luke Littler heeft op sensationele wijze zijn tweede World Matchplay gewonnen. De 19-jarige Engelsman was de absolute topfavoriet in de finale tegen...
+- [Formule 1-podcast | ‘Dit podium in Hongarije had niemand verwacht, ook de coureurs niet!’](https://www.ad.nl/formule-1/formule-1-podcast-dit-podium-in-hongarije-had-niemand-verwacht-ook-de-coureurs-niet~a222de3b/)
+  > Hij stond er echt. Als nummer 2. Max Verstappen. Achter de winnaar Lando Norris. Ondanks alle problemen dit weekend, het geklaag over grip en een...
 - [Emma Roberts in huwelijksbootje gestapt met acteur Cody John](https://www.ad.nl/show/emma-roberts-in-huwelijksbootje-gestapt-met-acteur-cody-john~ab1197d0/)
   > Emma Roberts is getrouwd met acteur Cody John. De twee gaven elkaar zaterdag het jawoord tijdens een besloten ceremonie in Sun Valley in de...
-- [Een sprint van 600 meter die dit wielertijdperk samenvat: Van der Poel spot in Parijs met alle logica](https://www.ad.nl/tour-de-france/een-sprint-van-600-meter-die-dit-wielertijdperk-samenvat-van-der-poel-spot-in-parijs-met-alle-logica~aa78f21d/)
-  > Met een sprint van meer dan een halve kilometer, dwars tegen de logica en de natuurkunde in, heeft Mathieu van der Poel de laatste etappe van de Tour...
-- [NEC wil stunten met komst van Dusan Tadic, gesprekken in afrondende fase](https://www.ad.nl/voetbal/nec-wil-stunten-met-komst-van-dusan-tadic-gesprekken-in-afrondende-fase~a5d857e0/)
-  > NEC staat op het punt om een flinke stunt uit te halen op de transfermarkt. De Nijmeegse club is dicht bij een akkoord met Dusan Tadic. De 37-jarige...
-- [Een goed gesprek wordt bij Zomergasten niet gevoerd](https://www.ad.nl/binnenland/een-goed-gesprek-wordt-bij-zomergasten-niet-gevoerd~ac8c90b3/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 
 ### Meest gelezen
 
