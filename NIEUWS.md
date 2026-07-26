@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-07-2026 om 22:02*
+*Laatst bijgewerkt: 26-07-2026 om 00:02*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Voertuig rijdt in op menigte bij Pride in Berlijn: één dode, 14 gewonden](https://nos.nl/l/2624464)
-  > In Berlijn is een auto ingereden op toeschouwers van de jaarlijkse Pride. Er is nog niet bekend of er opzet in het spel was, maar de politie in de...
+- [Zeker 250.000 mensen huis uit door Zuid-Europa, vuur nog niet onder controle](https://nos.nl/l/2624467)
+  > Meer dan 250.000 mensen zijn de natuurbranden in Frankrijk en Spanje ontvlucht. Vooral in Frankrijk is het leven in delen van het land ontwricht door...
+- [Voertuig rijdt in op menigte bij Pride in Berlijn: één dode, 16 gewonden](https://nos.nl/l/2624464)
+  > In Berlijn is een bestelbus ingereden op mensen bij het slotfeest van de jaarlijkse Pride. Daarbij is zeker één persoon om het leven gekomen. Zestien...
 - [Zoon van Bolsonaro neemt het op tegen Lula bij presidentsverkiezing Brazilië](https://nos.nl/l/2624457)
   > In Brazilië doet de zoon van voormalig president Bolsonaro mee aan de presidentsverkiezingen in oktober. Flávio Bolsonaro neemt het dan op tegen de...
 - [Haïtianen vrezen massadeportaties uit VS: 'Dit doe je mensen toch niet aan?'](https://nos.nl/l/2624454)
   > De Haïtiaanse gemeenschap in de Verenigde Staten zit tussen hoop en vrees. De situatie in Haïti blijft levensgevaarlijk, en de Amerikaanse overheid...
 - [Voor veel Oekraïners is dit hét moment om het leger te hervormen](https://nos.nl/l/2624449)
   > Na dagen van protesten en woede vanuit zowel het leger als de maatschappij, deed president Zelensky deze week een grote concessie: hij verving de...
-- [Nederlander vermist op Comomeer na reddingsactie voor zoon](https://nos.nl/l/2624441)
-  > Op het Comomeer in Italië is een zoektocht gaande naar een Nederlandse toerist. Volgens Italiaanse media kwam de man niet meer boven nadat hij van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Sensationele en emotionele comeback: Anthony Joshua gaat twee keer neer, maar wint met een knock-out](https://www.ad.nl/vechtsport/sensationele-en-emotionele-comeback-anthony-joshua-gaat-twee-keer-neer-maar-wint-met-een-knock-out~ab9f1a73/)
+  > Zeven maanden nadat hij twee vrienden verloor bij een dodelijk auto-ongeluk en zelf met de schrik vrijkwam, heeft Anthony Joshua (36) zijn comeback...
+- [Pride in Berlijn gestaakt, dode en 17 gewonden na aanrijding en steekincident](https://www.ad.nl/buitenland/pride-in-berlijn-gestaakt-dode-en-17-gewonden-na-aanrijding-en-steekincident~add66fb8/)
+  > De Pride in de Duitse hoofdstad Berlijn is zaterdagavond stilgelegd. De politie meldt dat een auto is ingereden op mensen bij een groot park. Daarbij...
+- [Hagenaar Nsikak Ekpo bijna onder magische 10-secondengrens van Churandy Martina op 100 meter](https://www.ad.nl/regiosport-den-haag/hagenaar-nsikak-ekpo-bijna-onder-magische-10-secondengrens-van-churandy-martina-op-100-meter~a05d5fe2/)
+  > Nsikak Ekpo heeft bij de NK atletiek in Hengelo de 100 meter op zijn naam geschreven. De sprinter van Haag Atletiek uit zijn geboortestad Den Haag,...
 - [‘Buitenaardse’ Littler laat Van Duijvenbode kansloos in halve finale: ‘Joh maat, 117 is een beetje overdreven hè’](https://www.ad.nl/darts/buitenaardse-littler-laat-van-duijvenbode-kansloos-in-halve-finale-joh-maat-117-is-een-beetje-overdreven-he~a03abf52/)
   > Dirk van Duijvenbode en Gian van Veen hebben naast de finale gegrepen van de World Matchplay, het belangrijkste rankingtoernooi na het WK. Van Veen...
-- [Pride in Berlijn gestaakt, één dode en 15 gewonden door bestelbus die met ‘hoge snelheid’ op bezoekers inreed](https://www.ad.nl/buitenland/pride-in-berlijn-gestaakt-een-dode-en-15-gewonden-door-bestelbus-die-met-hoge-snelheid-op-bezoekers-inreed~add66fb8/)
-  > De Pride in de Duitse hoofdstad Berlijn is zaterdagavond stilgelegd. De politie meldt dat een auto lijkt te zijn ingereden op mensen bij een groot...
 - [Podcast In Het Wiel | ‘Je had het Visma en Kuss wel gegund na zo’n Tour’](https://www.ad.nl/tour-de-france/podcast-in-het-wiel-je-had-het-visma-en-kuss-wel-gegund-na-zon-tour~a5ea502e/)
   > Terwijl Sepp Kuss in gewonnen positie niet één, maar twee keer onderuit ging, greep Richard Carapaz misschien wel de mooiste zege uit zijn carrière....
-- [Bosbranden bij Bordeaux trekken topcamping in hoogseizoen leeg, Franse dorpjes lijken wel spooksteden](https://www.ad.nl/buitenland/bosbranden-bij-bordeaux-trekken-topcamping-in-hoogseizoen-leeg-franse-dorpjes-lijken-wel-spooksteden~ac0519bf/)
-  > Een topcamping die normaal in vier uur is volgeboekt, staat nu half leeg door de bosbranden bij Bordeaux. Toch zag onze verslaggever Raymond Boere...
-- [Verhit oefenduel Fortuna Sittard: scheidsrechter loopt hersenschudding op na opstootje](https://www.ad.nl/voetbal/verhit-oefenduel-fortuna-sittard-scheidsrechter-loopt-hersenschudding-op-na-opstootje~a13549ab/)
-  > Fortuna Sittard en FC Metz speelden een vriendschappelijk oefenduel in Frankrijk, al kunnen we dat ‘vriendschappelijk’ wel weglaten. In de eerste...
 
 ### Meest gelezen
 
