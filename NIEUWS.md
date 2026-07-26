@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-07-2026 om 18:02*
+*Laatst bijgewerkt: 26-07-2026 om 20:11*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Twee moskeeën in brand gestoken op Westelijke Jordaanoever](https://nos.nl/l/2624561)
+  > Op de door Israël bezette Westelijke Jordaanoever zijn afgelopen nacht twee moskeeën in brand gestoken. De Israëlische krant Haaretz meldt dat twee...
+- [Nu even koeler, daarna warme dagen met plaatselijk tropische temperaturen](https://nos.nl/l/2624550)
+  > Misschien werd je er vandaag wel een beetje door overvallen: het regende, en soms best stevig ook. Na een lange tijd van droogte viel er vandaag...
 - [Verdachte aanslag Pride Berlijn opgespoord en doodgeschoten](https://nos.nl/l/2624539)
   > De Duitse politie heeft de vermoedelijke dader van de aanslag op de Pride in Berlijn opgespoord en doodgeschoten. Dat meldt de politie op X.
        ...
@@ -15,10 +19,6 @@
   > De Roemeense luchtmacht heeft voor de derde dag op rij een drone neergehaald met een straaljager. De F-16 schoot het onbemande toestel vanochtend uit...
 - [Honderden deelnemers aan stille tocht voor in Nijmegen doodgeschoten Jahfairel (18)](https://nos.nl/l/2624524)
   > In Rotterdam-Zuid liepen honderden mensen vanmiddag mee met een stille tocht ter nagedachtenis aan Jahfairel (18). Hij werd eerder deze week...
-- [Lichaam van Nederlander (45) die zoon probeerde te redden gevonden in Comomeer](https://nos.nl/l/2624521)
-  > In Noord-Italië hebben duikers het lichaam gevonden van een vermiste Nederlander in het Comomeer. De 45-jarige man verdronk gisteren toen hij...
-- [Huizen en scooters beklad met anti-azc-teksten in Engelen: 'Onacceptabel'](https://nos.nl/l/2624520)
-  > In Engelen, een dorp vlak bij Den Bosch, zijn meer dan tien huizen en voertuigen beklad. Het gaat onder meer om woningen van mensen die voorstander...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Duitsland doet drank op treinstations in de ban: ‘Alcoholvrij betekent minder geweld en minder afval’](https://www.ad.nl/buitenland/duitsland-doet-drank-op-treinstations-in-de-ban-alcoholvrij-betekent-minder-geweld-en-minder-afval~a2f03608/)
-  > Het nuttigen van alcohol op grote treinstations in Duitsland is vanaf nu verboden. Vervoerder Deutsche Bahn is de overlast van zware drinkers...
-- [Magistraal! Mathieu van der Poel zorgt voor prachtig slotakkoord en wint zinderende etappe op Champs-Élysées](https://www.ad.nl/tour-de-france/magistraal-mathieu-van-der-poel-zorgt-voor-prachtig-slotakkoord-en-wint-zinderende-etappe-op-champs-elysees~acfa7d18/)
-  > Mathieu van der Poel heeft op magistrale wijze toegeslagen in de 21ste en laatste etappe van de Tour de France. De Nederlander reed op de...
-- [Max Verstappen snakt naar meer, Red Bull-baas richt blik op 2027: ‘Moeten we beslissing over nemen’](https://www.ad.nl/formule-1/max-verstappen-snakt-naar-meer-red-bull-baas-richt-blik-op-2027-moeten-we-beslissing-over-nemen~a9fc0cc9/)
-  > Zesde in het WK, nul zeges: een tussenbalans in de Formule 1 die niet des Max Verstappens is. Zijn vierde podiumplek van het jaar - dit weekend in...
-- [Varane over kopverbod voor jeugd Como: ‘Ik had twee zware hersenschuddingen en werd bewust van de risico’s’](https://www.ad.nl/voetbal/varane-over-kopverbod-voor-jeugd-como-ik-had-twee-zware-hersenschuddingen-en-werd-bewust-van-de-risicos~a94a210c/)
-  > De Italiaanse Serie A-club Como heeft bekendgemaakt koppen te verbieden voor alle jeugdelftallen tot en met de onder-11. Deze maatregel,...
-- [Tijden Grand Prix van Nederland | Dit is wanneer Max Verstappen na zomerstop de allerlaatste Dutch GP rijdt](https://www.ad.nl/formule-1/tijden-grand-prix-van-nederland-dit-is-wanneer-max-verstappen-na-zomerstop-de-allerlaatste-dutch-gp-rijdt~ac6e82c8/)
-  > De coureurs mogen na de Grand Prix van Hongarije genieten van een korte zomerstop. Het Formule 1-seizoen wordt daarna hervat met een bijzondere race:...
+- [Luke Littler veel te sterk voor Gerwyn Price in finale in Blackpool](https://www.ad.nl/darts/luke-littler-veel-te-sterk-voor-gerwyn-price-in-finale-in-blackpool~ae8fca57/)
+  > Luke Littler verkeert in bloedvorm. De 19-jarige Engelsman geldt als de absolute topfavoriet in de finale van de World Matchplay, het belangrijkste...
+- [Emma Roberts in huwelijksbootje gestapt met acteur Cody John](https://www.ad.nl/show/emma-roberts-in-huwelijksbootje-gestapt-met-acteur-cody-john~ab1197d0/)
+  > Emma Roberts is getrouwd met acteur Cody John. De twee gaven elkaar zaterdag het jawoord tijdens een besloten ceremonie in Sun Valley in de...
+- [Een sprint van 600 meter die dit wielertijdperk samenvat: Van der Poel spot in Parijs met alle logica](https://www.ad.nl/tour-de-france/een-sprint-van-600-meter-die-dit-wielertijdperk-samenvat-van-der-poel-spot-in-parijs-met-alle-logica~aa78f21d/)
+  > Met een sprint van meer dan een halve kilometer, dwars tegen de logica en de natuurkunde in, heeft Mathieu van der Poel de laatste etappe van de Tour...
+- [NEC wil stunten met komst van Dusan Tadic, gesprekken in afrondende fase](https://www.ad.nl/voetbal/nec-wil-stunten-met-komst-van-dusan-tadic-gesprekken-in-afrondende-fase~a5d857e0/)
+  > NEC staat op het punt om een flinke stunt uit te halen op de transfermarkt. De Nijmeegse club is dicht bij een akkoord met Dusan Tadic. De 37-jarige...
+- [Een goed gesprek wordt bij Zomergasten niet gevoerd](https://www.ad.nl/binnenland/een-goed-gesprek-wordt-bij-zomergasten-niet-gevoerd~ac8c90b3/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 
 ### Meest gelezen
 
