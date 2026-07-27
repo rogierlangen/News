@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-07-2026 om 12:27*
+*Laatst bijgewerkt: 27-07-2026 om 15:44*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Drie gewonden bij steekpartij in Parijs, dader opgepakt](https://nos.nl/l/2624607)
-  > Bij een steekpartij in Parijs zijn drie vrouwen gewond geraakt. Twee van hen zouden zwaargewond zijn geraakt. Volgens de Franse zender BFM TV zijn ze...
-- [Prins Bernhard verkoopt zakelijke belangen, zoals Circuit Zandvoort](https://nos.nl/l/2624603)
-  > Prins Bernhard van Oranje verkoopt al zijn zakelijke belangen. Onder andere het circuit van Zandvoort en al zijn panden doet hij van de hand. Dat...
-- [Twee minderjarigen melden zich bij politie voor mishandeling beveiliger Nijmegen](https://nos.nl/l/2624602)
-  > Twee minderjarige jongens hebben zich bij de politie gemeld voor de mishandeling van een beveiliger. De mishandeling gebeurde vorige week in de nacht...
-- ['Steeds vaker brand in meterkast door verkeerd aansluiten van warmtepomp en laadpaal'](https://nos.nl/l/2624596)
-  > Er ontstaat steeds vaker brand in de meterkast, meldt RTL Nieuws. Volgens experts komt dat doordat de meterkast steeds zwaarder wordt belast door...
-- [Vijf doden bij noodweer op Elbroes, hoogste top van Europa in Rusland](https://nos.nl/l/2624595)
-  > In het Kaukasusgebergte in Rusland zijn vijf bergbeklimmers omgekomen nadat zij vast waren komen te zitten in een zware storm. Dat gebeurde toen zij...
+- [Zoektocht naar vier vermiste Nederlanders op Malawimeer](https://nos.nl/l/2624627)
+  > In Malawi wordt gezocht naar vier Nederlanders die vermist raakten tijdens een boottocht. Ze waren bezig aan de oversteek van het Malawimeer op de...
+- [Tientallen meldingen van discriminatie bij start WorldPride in Amsterdam](https://nos.nl/l/2624625)
+  > Tientallen mensen hebben melding gemaakt van discriminatie tijdens de start van de WorldPride in Amsterdam afgelopen weekend. Dat meldt organisatie...
+- [Nederlander dood gevonden in hotelkamer in Duitsland, mogelijk gewurgd](https://nos.nl/l/2624621)
+  > Een 35-jarige man uit Nederland is dood gevonden in een hotelkamer in het Duitse Rees, net over de grens bij Nijmegen. De Duitse politie gaat uit van...
+- [Gedode vrouw aanslag Pride Berlijn kwam uit Polen](https://nos.nl/l/2624615)
+  > Het slachtoffer dat bij de aanslag op de Pride in Berlijn werd gedood, was een Poolse vrouw. Dat maakte de burgemeester van de Duitse hoofdstad...
+- [Drie vrouwen gewond bij mesaanval in Parijs, dader opgepakt](https://nos.nl/l/2624607)
+  > Bij een mesaanval in Parijs zijn drie vrouwen gewond geraakt. De vrouwen zijn 19, 24 en 36 jaar oud en twee van hen zijn ernstig gewond. Dat heeft de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Martijn runt een ballonvaartbedrijf, maar ziet het als hobby: ‘Een vaart kost me ongeveer 750 euro’](https://www.ad.nl/geld/martijn-runt-een-ballonvaartbedrijf-maar-ziet-het-als-hobby-een-vaart-kost-me-ongeveer-750-euro~afe295d3/)
-  > Martijn is de derde generatie ballonvaarder in zijn familie, Zoë gaat zo snel mogelijk haar brevet halen. ‘Het is zoiets moois’, zegt ze in deze...
-- [Durf jij het aan? Netflix looft ruim half miljoen euro uit voor amateurdarter die Luke Littler verslaat](https://www.ad.nl/darts/durf-jij-het-aan-netflix-looft-ruim-half-miljoen-euro-uit-voor-amateurdarter-die-luke-littler-verslaat~ac2e1cbc/)
-  > Netflix gaat op zoek naar twintig amateurdarters die het aandurven om het op te nemen tegen wereldkampioen Luke Littler. Degene die de Brit weet te...
-- [Lichaam van Nederlandse man (35) gevonden in Duits hotel, politie gaat uit van misdrijf](https://www.ad.nl/buitenland/lichaam-van-nederlandse-man-35-gevonden-in-duits-hotel-politie-gaat-uit-van-misdrijf~ab2a3f0c/)
-  > Een 35-jarige Nederlander is zondagmiddag dood aangetroffen in een hotelkamer in het Duitse Rees, in de buurt van Kleve, net over de grens bij...
-- [Monique doet op vakantie werkklusje met dochter, Mart maakt vrienden in de sauna](https://www.ad.nl/show/monique-doet-op-vakantie-werkklusje-met-dochter-mart-maakt-vrienden-in-de-sauna~aabbf094/)
+- [NEC verraste vaker met klinkende namen, maar Dusan Tadic is de grootste ooit: zo kwam zijn transfer tot stand](https://www.ad.nl/nijmegen/nec-verraste-vaker-met-klinkende-namen-maar-dusan-tadic-is-de-grootste-ooit-zo-kwam-zijn-transfer-tot-stand~a5707192/)
+  > NEC haalde in de afgelopen jaren al heel wat aansprekende namen binnen, maar de komst van Dusan Tadic is de grootste stunt van allemaal. De 37-jarige...
+- [‘We spelen met vuur’: het asielprotest verschuift van de overheid naar de eigen overbuurvrouw](https://www.ad.nl/binnenland/we-spelen-met-vuur-het-asielprotest-verschuift-van-de-overheid-naar-de-eigen-overbuurvrouw~afb87c5d/)
+  > Dat voor- en tegenstanders van een asielzoekerscentrum (azc) een gemeenschap in tweeën kunnen splijten, werd dit jaar op meerdere plaatsen in...
+- [Heerenveen huurt Franse Machine, Vincent Janssen op weg naar VS, Rodríguez vertrekt bij FC Utrecht](https://www.ad.nl/voetbal/heerenveen-huurt-franse-machine-vincent-janssen-op-weg-naar-vs-rodriguez-vertrekt-bij-fc-utrecht~aeb81ef1/)
+  > Het WK zit erop en er is meteen flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
+- [Vrachtwagenverbod Merwedebrug lijkt te werken, maar sommige truckers proberen camera’s te slim af te zijn](https://www.ad.nl/altena/vrachtwagenverbod-merwedebrug-lijkt-te-werken-maar-sommige-truckers-proberen-cameras-te-slim-af-te-zijn~ad613e31/)
+  > Het aantal vrachtwagens dat over de Merwedebrug bij Gorinchem rijdt, is volgens Rijkswaterstaat fors afgenomen. Maar onder de truckers die het...
+- [Monique doet op vakantie werkklusje met dochter, jongste zoon Frans Bauer toont metamorfose](https://www.ad.nl/show/monique-doet-op-vakantie-werkklusje-met-dochter-jongste-zoon-frans-bauer-toont-metamorfose~aabbf094/)
   > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Hitte op komst en enorm neerslagtekort: ook in Nederland verhoogd risico op natuurbranden](https://www.ad.nl/binnenland/hitte-op-komst-en-enorm-neerslagtekort-ook-in-nederland-verhoogd-risico-op-natuurbranden~a9663f4b/)
-  > Spanje en Frankrijk lijden zwaar onder grote natuurbranden, maar ook in Nederland is er komende tijd een serieus risico op natuurbranden. Het wordt...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘Prins Bernhard verkoopt al zijn zakelijke belangen en gaat zich richten op AI’](https://fd.nl/bedrijfsleven/1605728/prins-bernhard-verkoopt-al-zijn-zakelijke-belangen-en-gaat-zich-richten-op-ai)
-  > Het gaat onder meer om het circuit van Zandvoort, een belang in Media Park Hilversum en zijn belang in het IT-bedrijf Levi9.
-- [Gouverneur Indonesische centrale bank stapt onverwachts op](https://fd.nl/financiele-markten/1605885/gouverneur-indonesische-centrale-bank-stapt-onverwachts-op)
-  > Met het aftreden van Perry Warjiyo nemen de zorgen over de grootste economie van Zuidoost-Azië verder toe. De Indonesische munt, de roepia, staat al...
-- [Starters kopen naast woning ook verborgen risico](https://fd.nl/opinie/1605580/starters-kopen-naast-woning-ook-verborgen-risico)
-  > Startende woningkopers benutten de volledige leningscapaciteit voor het kopen van een woning. De hoge hypotheekschuld maakt hen kwetsbaar voor...
-- [Duistere kant van je pakketje, spoor van schulden door goedkope bezorging](https://fd.nl/economie/1605797/duistere-kant-van-je-pakketje-spoor-van-schulden-door-goedkope-bezorging)
-  > Vandaag in de Dagkoers: Onderaannemers voor pakketjes laten miljoenen aan schimmige schulden achter; AI heeft tot nu toe nog weinig effect op de...
-- [Drie Nederlandse ‘supermarktzussen’ achtervolgd door Spaanse fiscus na dramatisch advies BDO](https://fd.nl/economie/1605793/drie-nederlandse-supermarktzussen-achtervolgd-door-spaanse-fiscus-na-dramatisch-advies-bdo)
-  > Drie zussen verkochten de supermarkt 2 Brüder in Venlo, die was opgericht door hun vader, voor €45 mln en hoopten in Spanje dividendbelasting te...
+- [Wereldwijd reizen kan steeds vaker zonder visum](https://fd.nl/samenleving/1605884/wereldwijd-reizen-kan-steeds-vaker-zonder-visum)
+  > Mensen met een Singaporees paspoort kunnen visumvrij naar 192 landen reizen, Nederlanders naar 186 bestemmingen.
+- [No-nonsenseminister brengt Britse premier degelijkheid op financiën](https://fd.nl/politiek/1605479/no-nonse-minister-brengt-britse-premier-degelijkheid-op-financien)
+  > John Healey, de nieuwe Britse minister van financiën, heeft zich in zijn carrière beziggehouden met precies de onderwerpen die nu speerpunten zijn...
+- [Vakbond slikt banenverlies bij Porsche](https://fd.nl/bedrijfsleven/1605896/vakbond-slikt-ingrepen-bij-porsche)
+  > Autofabrikant investeert ruim €2 mrd in twee fabrieken in de regio-Stuttgart, maar er verdwijnen vijfduizend arbeidsplaatsen.
+- [Bezorgen voor dumpprijzen](https://fd.nl/financiele-markten/1605725/bezorgen-voor-dumpprijzen)
+  > De pakketmarkt, die enorm is gegroeid door de komeetachtige opkomst van online winkelen, is verre van gezond. De moordende concurrentie holt de...
+- [Investeringen in AI-bedrijven gaan naar een klein groepje koplopers](https://fd.nl/bedrijfsleven/1603031/investeringen-in-ai-bedrijven-gaan-naar-een-klein-groepje-koplopers)
+  > Het meest kapitaalintensief zijn AI-bedrijven voor hardware en clouddiensten, voor landbouw- en energietoepassingen.
 
 ### Meest gelezen
 
