@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-07-2026 om 08:33*
+*Laatst bijgewerkt: 27-07-2026 om 12:27*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Drie gewonden bij steekpartij in Parijs, dader opgepakt](https://nos.nl/l/2624607)
+  > Bij een steekpartij in Parijs zijn drie vrouwen gewond geraakt. Twee van hen zouden zwaargewond zijn geraakt. Volgens de Franse zender BFM TV zijn ze...
+- [Prins Bernhard verkoopt zakelijke belangen, zoals Circuit Zandvoort](https://nos.nl/l/2624603)
+  > Prins Bernhard van Oranje verkoopt al zijn zakelijke belangen. Onder andere het circuit van Zandvoort en al zijn panden doet hij van de hand. Dat...
+- [Twee minderjarigen melden zich bij politie voor mishandeling beveiliger Nijmegen](https://nos.nl/l/2624602)
+  > Twee minderjarige jongens hebben zich bij de politie gemeld voor de mishandeling van een beveiliger. De mishandeling gebeurde vorige week in de nacht...
+- ['Steeds vaker brand in meterkast door verkeerd aansluiten van warmtepomp en laadpaal'](https://nos.nl/l/2624596)
+  > Er ontstaat steeds vaker brand in de meterkast, meldt RTL Nieuws. Volgens experts komt dat doordat de meterkast steeds zwaarder wordt belast door...
 - [Vijf doden bij noodweer op Elbroes, hoogste top van Europa in Rusland](https://nos.nl/l/2624595)
   > In het Kaukasusgebergte in Rusland zijn vijf bergbeklimmers omgekomen nadat zij vast waren komen te zitten in een zware storm. Dat gebeurde toen zij...
-- [China geteisterd door zware regenval en aardverschuivingen](https://nos.nl/l/2624592)
-  > Grote delen van China worden geteisterd door zware regenval, overstromingen en aardverschuivingen. Die vallen samen met Noul, de zwaarste orkaan van...
-- [Podcast De Dag: de koffer van actrice en zangeres Merol](https://nos.nl/l/2624583)
-  > Deze week pakt podcast De Dag de koffers met leuke gasten. Wat lezen, luisteren of kijken zij om inspiratie op te doen voor de rest van het jaar?...
-- [Vermoedelijke dader aanslag Pride Berlijn mocht deradicaliseren in vrijheid](https://nos.nl/l/2624582)
-  > De vermoedelijke dader van de aanslag op de Pride in Berlijn was een bekende van de politie. De 21-jarige Abdul B. werd in mei veroordeeld voor het...
-- [Doden en gewonden bij schietpartij op foodfestival Seattle](https://nos.nl/l/2624581)
-  > Op een festival in de Amerikaanse stad Seattle zijn bij een schietpartij drie mensen om het leven gekomen. Vier mensen raakten gewond, onder wie een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Iran onderschept zes schepen in Straat van Hormuz, Syrië werkt aan akkoord met Israël](https://www.ad.nl/buitenland/iran-onderschept-zes-schepen-in-straat-van-hormuz-syrie-werkt-aan-akkoord-met-israel~ac528ac3/)
-  > De marine van de Iraanse Revolutionaire Garde heeft maandag zes schepen tegengehouden in de Straat van Hormuz. Ze wilden de zeestraat door via een...
-- [Mevrouw Derksen zet dokter Rutger in voor haar eigen huwelijksprobleem: ‘U weet wat u te doen staat’](https://www.ad.nl/gezond/mevrouw-derksen-zet-dokter-rutger-in-voor-haar-eigen-huwelijksprobleem-u-weet-wat-u-te-doen-staat~a146a857/)
-  > Soms zit je als arts behoorlijk onder de plak bij je patiënten. Mevrouw Derksen bezoekt dokter Rutger vanwege een moedervlek. Maar eigenlijk komt ze...
-- [Michel is woedend na dood van zijn vader: ‘Waarom geen verplichte rijtest voor 75-plussers?’](https://www.ad.nl/binnenland/michel-is-woedend-na-dood-van-zijn-vader-waarom-geen-verplichte-rijtest-voor-75-plussers~ada4411b/)
-  > Hij is boos, voelt zich machteloos. Ruim een jaar geleden werd de vader van Michel Florijn op het Apolloplein in Hengelo doodgereden door een...
-- [Olie- en gasprijzen flink omlaag door gevechtspauze in Iranoorlog, over een paar dagen effect bij de pomp](https://www.ad.nl/economie/olie-en-gasprijzen-flink-omlaag-door-gevechtspauze-in-iranoorlog-over-een-paar-dagen-effect-bij-de-pomp~ad5eb001/)
-  > De olie- en gasprijzen zijn maandag flink gezakt nadat de Verenigde Staten hun aanvallen op Iran hebben opgeschort. Nu hopen handelaren erop dat de...
-- [Grote branden bij Bordeaux kunnen ‘nog weken duren’, 1200 agenten ingezet tegen inbraken](https://www.ad.nl/buitenland/grote-branden-bij-bordeaux-kunnen-nog-weken-duren-1200-agenten-ingezet-tegen-inbraken~ad0a3949/)
-  > De natuurbrand in het Franse gebied Gironde heeft daar volgens de autoriteiten al zo’n 240 woningen verwoest. Vooral de gemeente Le Porge, ten westen...
+- [Martijn runt een ballonvaartbedrijf, maar ziet het als hobby: ‘Een vaart kost me ongeveer 750 euro’](https://www.ad.nl/geld/martijn-runt-een-ballonvaartbedrijf-maar-ziet-het-als-hobby-een-vaart-kost-me-ongeveer-750-euro~afe295d3/)
+  > Martijn is de derde generatie ballonvaarder in zijn familie, Zoë gaat zo snel mogelijk haar brevet halen. ‘Het is zoiets moois’, zegt ze in deze...
+- [Durf jij het aan? Netflix looft ruim half miljoen euro uit voor amateurdarter die Luke Littler verslaat](https://www.ad.nl/darts/durf-jij-het-aan-netflix-looft-ruim-half-miljoen-euro-uit-voor-amateurdarter-die-luke-littler-verslaat~ac2e1cbc/)
+  > Netflix gaat op zoek naar twintig amateurdarters die het aandurven om het op te nemen tegen wereldkampioen Luke Littler. Degene die de Brit weet te...
+- [Lichaam van Nederlandse man (35) gevonden in Duits hotel, politie gaat uit van misdrijf](https://www.ad.nl/buitenland/lichaam-van-nederlandse-man-35-gevonden-in-duits-hotel-politie-gaat-uit-van-misdrijf~ab2a3f0c/)
+  > Een 35-jarige Nederlander is zondagmiddag dood aangetroffen in een hotelkamer in het Duitse Rees, in de buurt van Kleve, net over de grens bij...
+- [Monique doet op vakantie werkklusje met dochter, Mart maakt vrienden in de sauna](https://www.ad.nl/show/monique-doet-op-vakantie-werkklusje-met-dochter-mart-maakt-vrienden-in-de-sauna~aabbf094/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Hitte op komst en enorm neerslagtekort: ook in Nederland verhoogd risico op natuurbranden](https://www.ad.nl/binnenland/hitte-op-komst-en-enorm-neerslagtekort-ook-in-nederland-verhoogd-risico-op-natuurbranden~a9663f4b/)
+  > Spanje en Frankrijk lijden zwaar onder grote natuurbranden, maar ook in Nederland is er komende tijd een serieus risico op natuurbranden. Het wordt...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Ondernemer Yuwong Chou: ‘Tegenslagen horen er ook bij’](https://fd.nl/samenleving/1605721/ondernemer-yuwong-chou-tegenslagen-horen-er-ook-bij)
-  > Het grafisch bedrijf ADC Nederland, waarvan ze 25 jaar samen met haar man eigenaar was, ging onlangs failliet. ‘Het is maar net hoe je ermee omgaat.’
-- [Mkb-financier Bridgefund: ‘We gaan niet doen alsof dit een goedkoop product is’](https://fd.nl/financiele-markten/1605874/mkb-financier-bridgefund-we-gaan-niet-doen-alsof-dit-een-goedkoop-product-is)
-  > Ceo Julian van de Steeg is het niet eens met kritiek op hoge rentelasten. ‘Er zijn best veel ondernemers die ons achter de hand houden als flexibele...
-- [Aandeel chipmaker CXMT 500% hoger na beursgang Shanghai](https://fd.nl/bedrijfsleven/1605875/aandeel-chipmaker-cxmt-500-hoger-na-beursgang-shanghai)
-  > De succesvolle beursintroductie van de Chinese chipfabrikant tekent de grote vraag naar AI-chips.
-- [Olieprijs daalt met 6% na gevechtspauze VS en Iran](https://fd.nl/politiek/1605716/olieprijs-daalt-na-gevechtspauze-vs-en-iran)
-  > De olieprijs is in de nacht van zondag op maandag flink gedaald, nadat naar buiten was gekomen dat de VS en Iran elkaar tijdelijk niet meer aanvallen.
-- [Live: AEX opent licht hoger, Shell verliest 2%](https://fd.nl/financiele-markten/1605710/live-olieprijs-daalt-met-ruim-4-na-berichten-over-gevechtspauze)
-  > Een drukke week met veel bedrijfscijfers ligt in het verschiet. Naast rentebeslissingen in de Verenigde Staten en Engeland komen er inflatiecijfers...
+- [‘Prins Bernhard verkoopt al zijn zakelijke belangen en gaat zich richten op AI’](https://fd.nl/bedrijfsleven/1605728/prins-bernhard-verkoopt-al-zijn-zakelijke-belangen-en-gaat-zich-richten-op-ai)
+  > Het gaat onder meer om het circuit van Zandvoort, een belang in Media Park Hilversum en zijn belang in het IT-bedrijf Levi9.
+- [Gouverneur Indonesische centrale bank stapt onverwachts op](https://fd.nl/financiele-markten/1605885/gouverneur-indonesische-centrale-bank-stapt-onverwachts-op)
+  > Met het aftreden van Perry Warjiyo nemen de zorgen over de grootste economie van Zuidoost-Azië verder toe. De Indonesische munt, de roepia, staat al...
+- [Starters kopen naast woning ook verborgen risico](https://fd.nl/opinie/1605580/starters-kopen-naast-woning-ook-verborgen-risico)
+  > Startende woningkopers benutten de volledige leningscapaciteit voor het kopen van een woning. De hoge hypotheekschuld maakt hen kwetsbaar voor...
+- [Duistere kant van je pakketje, spoor van schulden door goedkope bezorging](https://fd.nl/economie/1605797/duistere-kant-van-je-pakketje-spoor-van-schulden-door-goedkope-bezorging)
+  > Vandaag in de Dagkoers: Onderaannemers voor pakketjes laten miljoenen aan schimmige schulden achter; AI heeft tot nu toe nog weinig effect op de...
+- [Drie Nederlandse ‘supermarktzussen’ achtervolgd door Spaanse fiscus na dramatisch advies BDO](https://fd.nl/economie/1605793/drie-nederlandse-supermarktzussen-achtervolgd-door-spaanse-fiscus-na-dramatisch-advies-bdo)
+  > Drie zussen verkochten de supermarkt 2 Brüder in Venlo, die was opgericht door hun vader, voor €45 mln en hoopten in Spanje dividendbelasting te...
 
 ### Meest gelezen
 
