@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-07-2026 om 15:44*
+*Laatst bijgewerkt: 27-07-2026 om 17:45*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Na vierde vernieling denkt Syrisch gezin in Twente: is het beter als we weggaan?](https://nos.nl/l/2624647)
+  > Osman al Arab staat in zijn straat in Geesteren te kijken hoe zijn auto op een grote wagen wordt geladen. De voorruit is helemaal aan diggelen, het...
+- [Broers veroordeeld voor seksueel uitbuiten van minderjarige Oekraïners](https://nos.nl/l/2624642)
+  > Twee broers van 21 en 24 zijn door de rechtbank in Rotterdam veroordeeld voor mensenhandel en het seksueel uitbuiten van minderjarigen. Ze lieten hun...
+- [Boerenprotesten tegen stikstofplannen langs meerdere wegen in het land](https://nos.nl/l/2624641)
+  > Langs verschillende wegen in het land protesteren boeren vandaag tegen de stikstofplannen van het kabinet. Ze willen dat landbouwminister Van Essen...
+- [Body Worlds-oprichter Gunther von Hagens (81) overleden](https://nos.nl/l/2624636)
+  > De Duitse anatoom Gunther von Hagens, die wereldwijd bekend werd met de tentoonstelling Body Worlds, is op 81-jarige leeftijd overleden. Dat heeft...
 - [Zoektocht naar vier vermiste Nederlanders op Malawimeer](https://nos.nl/l/2624627)
   > In Malawi wordt gezocht naar vier Nederlanders die vermist raakten tijdens een boottocht. Ze waren bezig aan de oversteek van het Malawimeer op de...
-- [Tientallen meldingen van discriminatie bij start WorldPride in Amsterdam](https://nos.nl/l/2624625)
-  > Tientallen mensen hebben melding gemaakt van discriminatie tijdens de start van de WorldPride in Amsterdam afgelopen weekend. Dat meldt organisatie...
-- [Nederlander dood gevonden in hotelkamer in Duitsland, mogelijk gewurgd](https://nos.nl/l/2624621)
-  > Een 35-jarige man uit Nederland is dood gevonden in een hotelkamer in het Duitse Rees, net over de grens bij Nijmegen. De Duitse politie gaat uit van...
-- [Gedode vrouw aanslag Pride Berlijn kwam uit Polen](https://nos.nl/l/2624615)
-  > Het slachtoffer dat bij de aanslag op de Pride in Berlijn werd gedood, was een Poolse vrouw. Dat maakte de burgemeester van de Duitse hoofdstad...
-- [Drie vrouwen gewond bij mesaanval in Parijs, dader opgepakt](https://nos.nl/l/2624607)
-  > Bij een mesaanval in Parijs zijn drie vrouwen gewond geraakt. De vrouwen zijn 19, 24 en 36 jaar oud en twee van hen zijn ernstig gewond. Dat heeft de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [NEC verraste vaker met klinkende namen, maar Dusan Tadic is de grootste ooit: zo kwam zijn transfer tot stand](https://www.ad.nl/nijmegen/nec-verraste-vaker-met-klinkende-namen-maar-dusan-tadic-is-de-grootste-ooit-zo-kwam-zijn-transfer-tot-stand~a5707192/)
-  > NEC haalde in de afgelopen jaren al heel wat aansprekende namen binnen, maar de komst van Dusan Tadic is de grootste stunt van allemaal. De 37-jarige...
-- [‘We spelen met vuur’: het asielprotest verschuift van de overheid naar de eigen overbuurvrouw](https://www.ad.nl/binnenland/we-spelen-met-vuur-het-asielprotest-verschuift-van-de-overheid-naar-de-eigen-overbuurvrouw~afb87c5d/)
-  > Dat voor- en tegenstanders van een asielzoekerscentrum (azc) een gemeenschap in tweeën kunnen splijten, werd dit jaar op meerdere plaatsen in...
-- [Heerenveen huurt Franse Machine, Vincent Janssen op weg naar VS, Rodríguez vertrekt bij FC Utrecht](https://www.ad.nl/voetbal/heerenveen-huurt-franse-machine-vincent-janssen-op-weg-naar-vs-rodriguez-vertrekt-bij-fc-utrecht~aeb81ef1/)
+- [Excelsior strikt middenvelder van RB Salzburg, Heerenveen huurt Franse Machine, Janssen op weg naar VS](https://www.ad.nl/voetbal/excelsior-strikt-middenvelder-van-rb-salzburg-heerenveen-huurt-franse-machine-janssen-op-weg-naar-vs~aeb81ef1/)
   > Het WK zit erop en er is meteen flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
-- [Vrachtwagenverbod Merwedebrug lijkt te werken, maar sommige truckers proberen camera’s te slim af te zijn](https://www.ad.nl/altena/vrachtwagenverbod-merwedebrug-lijkt-te-werken-maar-sommige-truckers-proberen-cameras-te-slim-af-te-zijn~ad613e31/)
-  > Het aantal vrachtwagens dat over de Merwedebrug bij Gorinchem rijdt, is volgens Rijkswaterstaat fors afgenomen. Maar onder de truckers die het...
-- [Monique doet op vakantie werkklusje met dochter, jongste zoon Frans Bauer toont metamorfose](https://www.ad.nl/show/monique-doet-op-vakantie-werkklusje-met-dochter-jongste-zoon-frans-bauer-toont-metamorfose~aabbf094/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [‘Nieuwe generatie bosbrand’ laat brandweer machteloos: ‘Tegen een 50 meter hoge muur van vlammen doe je niets’](https://www.ad.nl/buitenland/nieuwe-generatie-bosbrand-laat-brandweer-machteloos-tegen-een-50-meter-hoge-muur-van-vlammen-doe-je-niets~ae58c5d3/)
+  > De mens moet voorlopig zijn meerdere erkennen in de branden die Frankrijk en Spanje teisteren. Brandweerlieden doen wat ze kunnen, maar worden...
+- [Nederland is tweede CL-ticket kwijt: zo worden de Europese plekken dit seizoen verdeeld](https://www.ad.nl/voetbal/nederland-is-tweede-cl-ticket-kwijt-zo-worden-de-europese-plekken-dit-seizoen-verdeeld~a9302a7e/)
+  > De afgelopen jaren gingen de nummers 1 en 2 van de eredivisie rechtstreeks de Champions League in, maar daar is een einde aan gekomen. Hoe ziet de...
+- [Omstreden Body Worlds-ondernemer Gunther von Hagens (81) overleden: ook zijn lichaam wordt geconserveerd](https://www.ad.nl/buitenland/omstreden-body-worlds-ondernemer-gunther-von-hagens-81-overleden-ook-zijn-lichaam-wordt-geconserveerd~ada9420d/)
+  > De Duitse anatoom Gunther von Hagens (81) is overleden. Hij werd wereldberoemd én omstreden als de uitvinder van ‘plastinatie’: de techniek waarmee...
+- [Moet je bij vieze buitenlucht de recirculatieknop indrukken, of juist niet?](https://www.ad.nl/auto/moet-je-bij-vieze-buitenlucht-de-recirculatieknop-indrukken-of-juist-niet~a479a619/)
+  > Met een druk op de knop kan je het auto-interieur van de buitenlucht afsluiten. Maar lezer B. Turkenburg vraagt zich af of dat eigenlijk wel de beste...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Wereldwijd reizen kan steeds vaker zonder visum](https://fd.nl/samenleving/1605884/wereldwijd-reizen-kan-steeds-vaker-zonder-visum)
-  > Mensen met een Singaporees paspoort kunnen visumvrij naar 192 landen reizen, Nederlanders naar 186 bestemmingen.
-- [No-nonsenseminister brengt Britse premier degelijkheid op financiën](https://fd.nl/politiek/1605479/no-nonse-minister-brengt-britse-premier-degelijkheid-op-financien)
-  > John Healey, de nieuwe Britse minister van financiën, heeft zich in zijn carrière beziggehouden met precies de onderwerpen die nu speerpunten zijn...
-- [Vakbond slikt banenverlies bij Porsche](https://fd.nl/bedrijfsleven/1605896/vakbond-slikt-ingrepen-bij-porsche)
-  > Autofabrikant investeert ruim €2 mrd in twee fabrieken in de regio-Stuttgart, maar er verdwijnen vijfduizend arbeidsplaatsen.
-- [Bezorgen voor dumpprijzen](https://fd.nl/financiele-markten/1605725/bezorgen-voor-dumpprijzen)
-  > De pakketmarkt, die enorm is gegroeid door de komeetachtige opkomst van online winkelen, is verre van gezond. De moordende concurrentie holt de...
-- [Investeringen in AI-bedrijven gaan naar een klein groepje koplopers](https://fd.nl/bedrijfsleven/1603031/investeringen-in-ai-bedrijven-gaan-naar-een-klein-groepje-koplopers)
-  > Het meest kapitaalintensief zijn AI-bedrijven voor hardware en clouddiensten, voor landbouw- en energietoepassingen.
+- [Luxeconcern LVMH ziet verkopen licht stijgen ondanks oorlog](https://fd.nl/bedrijfsleven/1605739/luxeconcern-lvmh-ziet-verkopen-licht-stijgen-ondanks-oorlog)
+  > De omzet van het luxeconcern van miljardair Bernard Arnault steeg in het tweede kwartaal met 3% naar €19,5 mrd.
+- [Steeds vaker brand in meterkast door oververhitting en kortsluiting](https://fd.nl/samenleving/1605737/steeds-vaker-brand-in-meterkast-door-oververhitting-en-kortsluiting)
+  > Van gemiddeld twee per week is het aantal incidenten gestegen naar drie per week.
+- [Belgische cyberbeveiliger Lansweeper overgenomen door Bridgepoint](https://fd.nl/bedrijfsleven/1605736/belgische-cyberbeveiliger-lansweeper-overgenomen-door-bridgepoint)
+  > Lansweeper, dat zijn hoofdkantoor in Gent heeft, wordt gewaardeerd op €800 mln.
+- [CME probeert het weer met futures op individuele aandelen](https://fd.nl/financiele-markten/1605730/cme-probeert-het-weer-met-futures-op-individuele-aandelen)
+  > Particuliere beleggers houden wel van een gokje.
+- [Ook fikse prijsdalingen bij oliealternatieven](https://fd.nl/financiele-markten/1605898/ook-fikse-prijsdalingen-bij-olievervangers)
+  > Soja en palmolie zijn goedkoper omdat ze minder aantrekkelijk zijn als biobrandstof.
 
 ### Meest gelezen
 
