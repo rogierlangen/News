@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-07-2026 om 04:38*
+*Laatst bijgewerkt: 27-07-2026 om 08:33*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Doden en gewonden bij Oekraïense aanvallen op Russische grenssteden](https://nos.nl/l/2624577)
-  > Oekraïne heeft vannacht luchtaanvallen uitgevoerd op verschillende Russische grenssteden. In Rostov aan de Don zijn daarbij twee doden gevallen, liet...
-- [Diplomatie krijgt kans: twee dagen geen aanvallen tussen Iran en VS](https://nos.nl/l/2624576)
-  > Na bijna twee weken van bombardementen over en weer hebben Iran en de VS elkaar al twee dagen niet meer aangevallen. De twee vijanden lijken, voor...
-- [Slachtoffers aanslag Berlijn herdacht, dinsdag herdenking in Amsterdam](https://nos.nl/l/2624575)
-  > Dinsdag is er bij het Homomonument in Amsterdam een herdenking gepland om steun te betuigen aan de slachtoffers en nabestaanden van de aanslag op de...
-- [Universitaire lerarenopleidingen in de lift, 'heel goed nieuws' in strijd tegen lerarentekort](https://nos.nl/l/2624574)
-  > Universitaire lerarenopleidingen zitten flink in de lift, blijkt uit nieuwe cijfers. In het net afgelopen collegejaar waren er 13,5 procent meer...
-- [Aardbeving met kracht van 1,6 in Sappemeer, 'alles trilde in huis'](https://nos.nl/l/2624573)
-  > In Sappemeer in Groningen heeft zich gisteravond een aardbeving voorgedaan met een kracht van 1,6. De beving was iets na 19.00 uur en werd door veel...
+- [Vijf doden bij noodweer op Elbroes, hoogste top van Europa in Rusland](https://nos.nl/l/2624595)
+  > In het Kaukasusgebergte in Rusland zijn vijf bergbeklimmers omgekomen nadat zij vast waren komen te zitten in een zware storm. Dat gebeurde toen zij...
+- [China geteisterd door zware regenval en aardverschuivingen](https://nos.nl/l/2624592)
+  > Grote delen van China worden geteisterd door zware regenval, overstromingen en aardverschuivingen. Die vallen samen met Noul, de zwaarste orkaan van...
+- [Podcast De Dag: de koffer van actrice en zangeres Merol](https://nos.nl/l/2624583)
+  > Deze week pakt podcast De Dag de koffers met leuke gasten. Wat lezen, luisteren of kijken zij om inspiratie op te doen voor de rest van het jaar?...
+- [Vermoedelijke dader aanslag Pride Berlijn mocht deradicaliseren in vrijheid](https://nos.nl/l/2624582)
+  > De vermoedelijke dader van de aanslag op de Pride in Berlijn was een bekende van de politie. De 21-jarige Abdul B. werd in mei veroordeeld voor het...
+- [Doden en gewonden bij schietpartij op foodfestival Seattle](https://nos.nl/l/2624581)
+  > Op een festival in de Amerikaanse stad Seattle zijn bij een schietpartij drie mensen om het leven gekomen. Vier mensen raakten gewond, onder wie een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Strijd om titel bestverkochte auto van Europa is spannender dan ooit](https://www.ad.nl/auto/strijd-om-titel-bestverkochte-auto-van-europa-is-spannender-dan-ooit~a52d346f/)
-  > De strijd om de titel van bestverkochte auto van Europa is spannender dan ooit. Een spectaculaire comeback van Tesla zorgde ervoor dat de kaarten in...
-- [Brug in Griekenland stortte drie jaar geleden in, maar toch rijden bewoners er massaal overheen](https://www.ad.nl/buitenland/brug-in-griekenland-stortte-drie-jaar-geleden-in-maar-toch-rijden-bewoners-er-massaal-overheen~aa466f92/)
-  > In het midden hangt de brug slechts een paar centimeter boven de Pineiosrivier. Maar dat houdt vele Grieken absoluut niet tegen. De Palaiopyrgos-brug...
-- [We beginnen met wat regen, maar later deze week wordt het bloedheet: kwik loopt op tot 36 graden](https://www.ad.nl/binnenland/we-beginnen-met-wat-regen-maar-later-deze-week-wordt-het-bloedheet-kwik-loopt-op-tot-36-graden~a04f8c8b2/)
-  > Het was zondag op veel plekken in het land nat en ook maandag krijgen we nog wat regen, maar de buien houden niet lang aan. Het zomerweer staat weer...
-- [Afkicken op kosten van de zaak: ggz-instelling richt zich op verslaafden op de werkvloer](https://www.ad.nl/economie/afkicken-op-kosten-van-de-zaak-ggz-instelling-richt-zich-op-verslaafden-op-de-werkvloer~a85f6905/)
-  > Bij bijna iedere grote organisatie loopt wel iemand rond met een verslaving. Werknemers die hulp willen, belanden op lange ggz-wachtlijsten en vallen...
-- [Doden en gewonden bij schietpartij op culinair festival in Seattle](https://www.ad.nl/buitenland/doden-en-gewonden-bij-schietpartij-op-culinair-festival-in-seattle~a369a92c/)
-  > Bij een schietpartij zondagavond op een evenemententerrein vlakbij de Space Needle in de Amerikaanse stad Seattle zijn zeker twee doden gevallen. Dat...
+- [Iran onderschept zes schepen in Straat van Hormuz, Syrië werkt aan akkoord met Israël](https://www.ad.nl/buitenland/iran-onderschept-zes-schepen-in-straat-van-hormuz-syrie-werkt-aan-akkoord-met-israel~ac528ac3/)
+  > De marine van de Iraanse Revolutionaire Garde heeft maandag zes schepen tegengehouden in de Straat van Hormuz. Ze wilden de zeestraat door via een...
+- [Mevrouw Derksen zet dokter Rutger in voor haar eigen huwelijksprobleem: ‘U weet wat u te doen staat’](https://www.ad.nl/gezond/mevrouw-derksen-zet-dokter-rutger-in-voor-haar-eigen-huwelijksprobleem-u-weet-wat-u-te-doen-staat~a146a857/)
+  > Soms zit je als arts behoorlijk onder de plak bij je patiënten. Mevrouw Derksen bezoekt dokter Rutger vanwege een moedervlek. Maar eigenlijk komt ze...
+- [Michel is woedend na dood van zijn vader: ‘Waarom geen verplichte rijtest voor 75-plussers?’](https://www.ad.nl/binnenland/michel-is-woedend-na-dood-van-zijn-vader-waarom-geen-verplichte-rijtest-voor-75-plussers~ada4411b/)
+  > Hij is boos, voelt zich machteloos. Ruim een jaar geleden werd de vader van Michel Florijn op het Apolloplein in Hengelo doodgereden door een...
+- [Olie- en gasprijzen flink omlaag door gevechtspauze in Iranoorlog, over een paar dagen effect bij de pomp](https://www.ad.nl/economie/olie-en-gasprijzen-flink-omlaag-door-gevechtspauze-in-iranoorlog-over-een-paar-dagen-effect-bij-de-pomp~ad5eb001/)
+  > De olie- en gasprijzen zijn maandag flink gezakt nadat de Verenigde Staten hun aanvallen op Iran hebben opgeschort. Nu hopen handelaren erop dat de...
+- [Grote branden bij Bordeaux kunnen ‘nog weken duren’, 1200 agenten ingezet tegen inbraken](https://www.ad.nl/buitenland/grote-branden-bij-bordeaux-kunnen-nog-weken-duren-1200-agenten-ingezet-tegen-inbraken~ad0a3949/)
+  > De natuurbrand in het Franse gebied Gironde heeft daar volgens de autoriteiten al zo’n 240 woningen verwoest. Vooral de gemeente Le Porge, ten westen...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Hoge olieprijs voedt angst voor tweede inflatiegolf en nieuwe rentestappen](https://fd.nl/financiele-markten/1605790/hoge-olieprijs-voedt-angst-voor-tweede-inflatiegolf-en-nieuwe-rentestappen)
-  > De snel stijgende olieprijs jaagt rentes wereldwijd omhoog, zet overheden en bedrijven onder druk en maakt extra renteverhogingen waarschijnlijker.
-- [Tijd voor de toekomst](https://fd.nl/opinie/1605583/tijd-voor-de-toekomst)
-  > Richt binnen Algemene Zaken een Nederlandse variant van de Singaporese Strategy Group op. Zo verschuift de aandacht van de volgende verkiezing naar...
-- [Strijd om juridisch talent stuwt salarissen bij topkantoren](https://fd.nl/financiele-markten/1605576/strijd-om-juridisch-talent-stuwt-salarissen-bij-topkantoren)
-  > Bij de grote kantoren zijn de salarissen de laatste vijf jaar sterk gestegen. Alleen eerstejaars advocaten zagen hun beloning met de inflatie...
-- [Dure congressen zonder nut](https://fd.nl/opinie/1604016/dure-congressen-zonder-nut)
-  > Een volle dag in een zaal met allerhande sprekers die vrij generieke praatjes houden, is ongeveer de minst efficiënte manier om te leren. Toch houden...
-- [Personalia maandag 27 juli](https://fd.nl/bedrijfsleven/1605714/personalia-maandag-27-juli)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Ondernemer Yuwong Chou: ‘Tegenslagen horen er ook bij’](https://fd.nl/samenleving/1605721/ondernemer-yuwong-chou-tegenslagen-horen-er-ook-bij)
+  > Het grafisch bedrijf ADC Nederland, waarvan ze 25 jaar samen met haar man eigenaar was, ging onlangs failliet. ‘Het is maar net hoe je ermee omgaat.’
+- [Mkb-financier Bridgefund: ‘We gaan niet doen alsof dit een goedkoop product is’](https://fd.nl/financiele-markten/1605874/mkb-financier-bridgefund-we-gaan-niet-doen-alsof-dit-een-goedkoop-product-is)
+  > Ceo Julian van de Steeg is het niet eens met kritiek op hoge rentelasten. ‘Er zijn best veel ondernemers die ons achter de hand houden als flexibele...
+- [Aandeel chipmaker CXMT 500% hoger na beursgang Shanghai](https://fd.nl/bedrijfsleven/1605875/aandeel-chipmaker-cxmt-500-hoger-na-beursgang-shanghai)
+  > De succesvolle beursintroductie van de Chinese chipfabrikant tekent de grote vraag naar AI-chips.
+- [Olieprijs daalt met 6% na gevechtspauze VS en Iran](https://fd.nl/politiek/1605716/olieprijs-daalt-na-gevechtspauze-vs-en-iran)
+  > De olieprijs is in de nacht van zondag op maandag flink gedaald, nadat naar buiten was gekomen dat de VS en Iran elkaar tijdelijk niet meer aanvallen.
+- [Live: AEX opent licht hoger, Shell verliest 2%](https://fd.nl/financiele-markten/1605710/live-olieprijs-daalt-met-ruim-4-na-berichten-over-gevechtspauze)
+  > Een drukke week met veel bedrijfscijfers ligt in het verschiet. Naast rentebeslissingen in de Verenigde Staten en Engeland komen er inflatiecijfers...
 
 ### Meest gelezen
 
