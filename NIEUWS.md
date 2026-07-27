@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-07-2026 om 00:02*
+*Laatst bijgewerkt: 27-07-2026 om 04:38*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Doden en gewonden bij Oekraïense aanvallen op Russische grenssteden](https://nos.nl/l/2624577)
+  > Oekraïne heeft vannacht luchtaanvallen uitgevoerd op verschillende Russische grenssteden. In Rostov aan de Don zijn daarbij twee doden gevallen, liet...
+- [Diplomatie krijgt kans: twee dagen geen aanvallen tussen Iran en VS](https://nos.nl/l/2624576)
+  > Na bijna twee weken van bombardementen over en weer hebben Iran en de VS elkaar al twee dagen niet meer aangevallen. De twee vijanden lijken, voor...
+- [Slachtoffers aanslag Berlijn herdacht, dinsdag herdenking in Amsterdam](https://nos.nl/l/2624575)
+  > Dinsdag is er bij het Homomonument in Amsterdam een herdenking gepland om steun te betuigen aan de slachtoffers en nabestaanden van de aanslag op de...
 - [Universitaire lerarenopleidingen in de lift, 'heel goed nieuws' in strijd tegen lerarentekort](https://nos.nl/l/2624574)
   > Universitaire lerarenopleidingen zitten flink in de lift, blijkt uit nieuwe cijfers. In het net afgelopen collegejaar waren er 13,5 procent meer...
-- [Aardbeving van 1,6 in Sappemeer, 'alles trilde in huis'](https://nos.nl/l/2624573)
+- [Aardbeving met kracht van 1,6 in Sappemeer, 'alles trilde in huis'](https://nos.nl/l/2624573)
   > In Sappemeer in Groningen heeft zich gisteravond een aardbeving voorgedaan met een kracht van 1,6. De beving was iets na 19.00 uur en werd door veel...
-- [Twee moskeeën in brand gestoken op Westelijke Jordaanoever](https://nos.nl/l/2624561)
-  > Op de door Israël bezette Westelijke Jordaanoever zijn afgelopen nacht twee moskeeën in brand gestoken. De Israëlische krant Haaretz meldt dat twee...
-- [Nu even koeler, daarna warme dagen met plaatselijk tropische temperaturen](https://nos.nl/l/2624550)
-  > Misschien werd je er vandaag wel een beetje door overvallen: het regende, en soms best stevig ook. Na een lange tijd van droogte viel er vandaag...
-- [Verdachte aanslag Pride Berlijn opgespoord en doodgeschoten](https://nos.nl/l/2624539)
-  > De Duitse politie heeft de vermoedelijke dader van de aanslag op de Pride in Berlijn opgespoord en doodgeschoten. Dat meldt de politie op X.
-       ...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Bewoners omgeving Sappemeer voelen lichte aardbeving met kracht van 1,6](https://www.ad.nl/binnenland/bewoners-omgeving-sappemeer-voelen-lichte-aardbeving-met-kracht-van-1-6~a5509aff/)
-  > In het Groningse Sappemeer heeft zondagavond om 19.08 uur een lichte aardbeving plaatsgevonden. De beving had een magnitude van 1,6 en zat op 3...
-- [Olieprijzen dalen weer door gevechtspauze tussen VS en Iran](https://www.ad.nl/buitenland/olieprijzen-dalen-weer-door-gevechtspauze-tussen-vs-en-iran~ac528ac3/)
-  > De olieprijzen zijn maandag gedaald nadat de Verenigde Staten dit weekeinde hun luchtaanvallen op Iran hebben gepauzeerd. Ook Iran heeft inmiddels...
-- [Vandaag weer tractors langs de snelweg, maar boerenacties deze zomer lijken toch anders dan in 2022](https://www.ad.nl/politiek/vandaag-weer-tractors-langs-de-snelweg-maar-boerenacties-deze-zomer-lijken-toch-anders-dan-in-2022~af98821a/)
-  > Boerenbelangengroepen proberen het protestvuur weer aan te wakkeren. Maandag zijn er acties gepland en staan de trekkers langs de snelweg. Wordt het...
-- [Tienduizenden bewoners Mallorca protesteren tegen massatoerisme op eiland](https://www.ad.nl/buitenland/tienduizenden-bewoners-mallorca-protesteren-tegen-massatoerisme-op-eiland~a4195717/)
-  > Tienduizenden mensen hebben zondag op Mallorca geprotesteerd tegen het massatoerisme op het eiland. De demonstranten trokken door het centrum van...
-- [Brandenburger Tor licht op in regenboogkleuren na aanslag Berlijn: ‘We laten vrijheid niet afpakken’](https://www.ad.nl/buitenland/brandenburger-tor-licht-op-in-regenboogkleuren-na-aanslag-berlijn-we-laten-vrijheid-niet-afpakken~a6dc6fcb/)
-  > Berlijn laat zich de vrijheid niet ontnemen. Die boodschap wil de Duitse hoofdstad zondagavond uitstralen, een dag na de aanslag bij Pride waarbij...
+- [Strijd om titel bestverkochte auto van Europa is spannender dan ooit](https://www.ad.nl/auto/strijd-om-titel-bestverkochte-auto-van-europa-is-spannender-dan-ooit~a52d346f/)
+  > De strijd om de titel van bestverkochte auto van Europa is spannender dan ooit. Een spectaculaire comeback van Tesla zorgde ervoor dat de kaarten in...
+- [Brug in Griekenland stortte drie jaar geleden in, maar toch rijden bewoners er massaal overheen](https://www.ad.nl/buitenland/brug-in-griekenland-stortte-drie-jaar-geleden-in-maar-toch-rijden-bewoners-er-massaal-overheen~aa466f92/)
+  > In het midden hangt de brug slechts een paar centimeter boven de Pineiosrivier. Maar dat houdt vele Grieken absoluut niet tegen. De Palaiopyrgos-brug...
+- [We beginnen met wat regen, maar later deze week wordt het bloedheet: kwik loopt op tot 36 graden](https://www.ad.nl/binnenland/we-beginnen-met-wat-regen-maar-later-deze-week-wordt-het-bloedheet-kwik-loopt-op-tot-36-graden~a04f8c8b2/)
+  > Het was zondag op veel plekken in het land nat en ook maandag krijgen we nog wat regen, maar de buien houden niet lang aan. Het zomerweer staat weer...
+- [Afkicken op kosten van de zaak: ggz-instelling richt zich op verslaafden op de werkvloer](https://www.ad.nl/economie/afkicken-op-kosten-van-de-zaak-ggz-instelling-richt-zich-op-verslaafden-op-de-werkvloer~a85f6905/)
+  > Bij bijna iedere grote organisatie loopt wel iemand rond met een verslaving. Werknemers die hulp willen, belanden op lange ggz-wachtlijsten en vallen...
+- [Doden en gewonden bij schietpartij op culinair festival in Seattle](https://www.ad.nl/buitenland/doden-en-gewonden-bij-schietpartij-op-culinair-festival-in-seattle~a369a92c/)
+  > Bij een schietpartij zondagavond op een evenemententerrein vlakbij de Space Needle in de Amerikaanse stad Seattle zijn zeker twee doden gevallen. Dat...
 
 ### Meest gelezen
 
