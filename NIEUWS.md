@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-07-2026 om 22:01*
+*Laatst bijgewerkt: 27-07-2026 om 00:02*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Universitaire lerarenopleidingen in de lift, 'heel goed nieuws' in strijd tegen lerarentekort](https://nos.nl/l/2624574)
+  > Universitaire lerarenopleidingen zitten flink in de lift, blijkt uit nieuwe cijfers. In het net afgelopen collegejaar waren er 13,5 procent meer...
+- [Aardbeving van 1,6 in Sappemeer, 'alles trilde in huis'](https://nos.nl/l/2624573)
+  > In Sappemeer in Groningen heeft zich gisteravond een aardbeving voorgedaan met een kracht van 1,6. De beving was iets na 19.00 uur en werd door veel...
 - [Twee moskeeën in brand gestoken op Westelijke Jordaanoever](https://nos.nl/l/2624561)
   > Op de door Israël bezette Westelijke Jordaanoever zijn afgelopen nacht twee moskeeën in brand gestoken. De Israëlische krant Haaretz meldt dat twee...
 - [Nu even koeler, daarna warme dagen met plaatselijk tropische temperaturen](https://nos.nl/l/2624550)
@@ -15,10 +19,6 @@
 - [Verdachte aanslag Pride Berlijn opgespoord en doodgeschoten](https://nos.nl/l/2624539)
   > De Duitse politie heeft de vermoedelijke dader van de aanslag op de Pride in Berlijn opgespoord en doodgeschoten. Dat meldt de politie op X.
        ...
-- [Voor derde dag op rij haalt Roemeense F-16 drone uit de lucht](https://nos.nl/l/2624527)
-  > De Roemeense luchtmacht heeft voor de derde dag op rij een drone neergehaald met een straaljager. De F-16 schoot het onbemande toestel vanochtend uit...
-- [Honderden deelnemers aan stille tocht voor in Nijmegen doodgeschoten Jahfairel (18)](https://nos.nl/l/2624524)
-  > In Rotterdam-Zuid liepen honderden mensen vanmiddag mee met een stille tocht ter nagedachtenis aan Jahfairel (18). Hij werd eerder deze week...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Bewoners omgeving Sappemeer voelen lichte aardbeving met kracht van 1,6](https://www.ad.nl/binnenland/bewoners-omgeving-sappemeer-voelen-lichte-aardbeving-met-kracht-van-1-6~a5509aff/)
+  > In het Groningse Sappemeer heeft zondagavond om 19.08 uur een lichte aardbeving plaatsgevonden. De beving had een magnitude van 1,6 en zat op 3...
+- [Olieprijzen dalen weer door gevechtspauze tussen VS en Iran](https://www.ad.nl/buitenland/olieprijzen-dalen-weer-door-gevechtspauze-tussen-vs-en-iran~ac528ac3/)
+  > De olieprijzen zijn maandag gedaald nadat de Verenigde Staten dit weekeinde hun luchtaanvallen op Iran hebben gepauzeerd. Ook Iran heeft inmiddels...
+- [Vandaag weer tractors langs de snelweg, maar boerenacties deze zomer lijken toch anders dan in 2022](https://www.ad.nl/politiek/vandaag-weer-tractors-langs-de-snelweg-maar-boerenacties-deze-zomer-lijken-toch-anders-dan-in-2022~af98821a/)
+  > Boerenbelangengroepen proberen het protestvuur weer aan te wakkeren. Maandag zijn er acties gepland en staan de trekkers langs de snelweg. Wordt het...
 - [Tienduizenden bewoners Mallorca protesteren tegen massatoerisme op eiland](https://www.ad.nl/buitenland/tienduizenden-bewoners-mallorca-protesteren-tegen-massatoerisme-op-eiland~a4195717/)
   > Tienduizenden mensen hebben zondag op Mallorca geprotesteerd tegen het massatoerisme op het eiland. De demonstranten trokken door het centrum van...
 - [Brandenburger Tor licht op in regenboogkleuren na aanslag Berlijn: ‘We laten vrijheid niet afpakken’](https://www.ad.nl/buitenland/brandenburger-tor-licht-op-in-regenboogkleuren-na-aanslag-berlijn-we-laten-vrijheid-niet-afpakken~a6dc6fcb/)
   > Berlijn laat zich de vrijheid niet ontnemen. Die boodschap wil de Duitse hoofdstad zondagavond uitstralen, een dag na de aanslag bij Pride waarbij...
-- [Luke Littler wint World Matchplay opnieuw: veel te sterk voor Gerwyn Price in finale](https://www.ad.nl/darts/luke-littler-wint-world-matchplay-opnieuw-veel-te-sterk-voor-gerwyn-price-in-finale~ae8fca57/)
-  > Luke Littler heeft op sensationele wijze zijn tweede World Matchplay gewonnen. De 19-jarige Engelsman was de absolute topfavoriet in de finale tegen...
-- [Formule 1-podcast | ‘Dit podium in Hongarije had niemand verwacht, ook de coureurs niet!’](https://www.ad.nl/formule-1/formule-1-podcast-dit-podium-in-hongarije-had-niemand-verwacht-ook-de-coureurs-niet~a222de3b/)
-  > Hij stond er echt. Als nummer 2. Max Verstappen. Achter de winnaar Lando Norris. Ondanks alle problemen dit weekend, het geklaag over grip en een...
-- [Emma Roberts in huwelijksbootje gestapt met acteur Cody John](https://www.ad.nl/show/emma-roberts-in-huwelijksbootje-gestapt-met-acteur-cody-john~ab1197d0/)
-  > Emma Roberts is getrouwd met acteur Cody John. De twee gaven elkaar zaterdag het jawoord tijdens een besloten ceremonie in Sun Valley in de...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Nederlaag met perspectief](https://fd.nl/opinie/1605800/nederlaag-met-perspectief)
-  > Nederland heeft de strijd om de beursnotering van Unilever en McCormick verloren, maar Den Haag liet nu eens wel zien dat het bereid is te vechten...
-- [Gevechtspauze tussen Iran en de Verenigde Staten](https://fd.nl/politiek/1605841/gevechtspauze-tussen-iran-en-de-verenigde-staten)
-  > Sinds vrijdag schieten de VS niet meer en voert Iran geen vergeldingsaanvallen uit.
-- [Facebook-hack frustreert de bedrijfsvoering van een kleine ondernemer](https://fd.nl/bedrijfsleven/1605253/facebook-hack-frustreert-de-bedrijfsvoering-van-een-kleine-ondernemer)
-  > Hoe kwetsbaar zijn mkb’ers als hun sociale media in één klap verdwijnen? Muziekwinkel Atelier Pfeiffer raakte een Facebook-pagina met zesduizend...
-- [Hoge olieprijs lijkt bepalend bij rentevergadering Federal Reserve](https://fd.nl/financiele-markten/1605840/hoge-olieprijs-lijkt-bepalend-bij-rentevergadering-federal-reserve)
-  > Het Amerikaanse stelsel van centrale banken komt woensdag met een nieuw rentebesluit naar buiten. Centraal daarbij staat het conflict in het...
-- [Een beurswaarde van £300 mrd? Voor HSBC lijkt het binnen handbereik](https://fd.nl/financiele-markten/1605698/een-beurswaarde-van-300-mrd-voor-hsbc-lijkt-het-binnen-handbereik)
-  > De Britse bank is achter ASML inmiddels het waardevolste bedrijf van Europa. Dat is voor een groot deel te danken aan zijn wortels in Honkong.
+- [Hoge olieprijs voedt angst voor tweede inflatiegolf en nieuwe rentestappen](https://fd.nl/financiele-markten/1605790/hoge-olieprijs-voedt-angst-voor-tweede-inflatiegolf-en-nieuwe-rentestappen)
+  > De snel stijgende olieprijs jaagt rentes wereldwijd omhoog, zet overheden en bedrijven onder druk en maakt extra renteverhogingen waarschijnlijker.
+- [Tijd voor de toekomst](https://fd.nl/opinie/1605583/tijd-voor-de-toekomst)
+  > Richt binnen Algemene Zaken een Nederlandse variant van de Singaporese Strategy Group op. Zo verschuift de aandacht van de volgende verkiezing naar...
+- [Strijd om juridisch talent stuwt salarissen bij topkantoren](https://fd.nl/financiele-markten/1605576/strijd-om-juridisch-talent-stuwt-salarissen-bij-topkantoren)
+  > Bij de grote kantoren zijn de salarissen de laatste vijf jaar sterk gestegen. Alleen eerstejaars advocaten zagen hun beloning met de inflatie...
+- [Dure congressen zonder nut](https://fd.nl/opinie/1604016/dure-congressen-zonder-nut)
+  > Een volle dag in een zaal met allerhande sprekers die vrij generieke praatjes houden, is ongeveer de minst efficiënte manier om te leren. Toch houden...
+- [Personalia maandag 27 juli](https://fd.nl/bedrijfsleven/1605714/personalia-maandag-27-juli)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
