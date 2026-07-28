@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-07-2026 om 20:17*
+*Laatst bijgewerkt: 28-07-2026 om 22:07*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Auto met explosief materiaal in Amsterdam weg, inzittenden voortvluchtig](https://nos.nl/l/2624778)
+  > Een grote politieactie die vanmiddag begon in Amsterdam Nieuw-West nadat een auto met explosief materiaal was gecrasht, is voorbij. De Explosieven...
+- [Hitte en droogte leiden ook in Marokko, Algerije en Tunesië tot felle branden](https://nos.nl/l/2624775)
+  > Net als Spanje en Frankrijk heeft ook het zuiden van het Middellandse Zeegebied te kampen met grote bosbranden. Zo zijn de nationale hulpdiensten in...
 - [Vrees voor doden in ingestort winkelcentrum Japan, nieuwe aardbeving in zelfde gebied](https://nos.nl/l/2624772)
   > In de Japanse regio Kumamoto op het zuidelijke eiland Kyushu is opnieuw een aardbeving geweest. Er was een waarschuwing afgegeven, zodat mensen zich...
 - [Buitenlandministers Oekraïne en Iran bellen na spanning om aanval Iraans schip](https://nos.nl/l/2624771)
   > De Oekraïense en Iraanse ministers van Buitenlandse Zaken hebben elkaar vanavond telefonisch gesproken, nadat de spanning tussen de twee landen...
 - [Flat in Ridderkerk opnieuw ontruimd vanwege koolmonoxide](https://nos.nl/l/2624769)
   > Een flat in Ridderkerk is vanavond ontruimd omdat er hoge concentraties koolmonoxide zijn aangetroffen. Bij de flat was het in mei ook al raak, toen...
-- [Minder zorg voor Afghaanse vrouwen en kinderen, internationale steun weg om Taliban](https://nos.nl/l/2624766)
-  > Steeds meer gezondheidsklinieken in Afghanistan sluiten hun deuren. De buitenlandse financiering waarop ze draaien droogt op. Sinds de Taliban vijf...
-- [Inwoners verscheurd Engelen kijken vooruit: 'Gesprekken nodig over asielopvang'](https://nos.nl/l/2624764)
-  > Inwoners van Engelen zijn geschrokken van wat er afgelopen weekend in hun woonplaats gebeurde. Hoe kunnen inwoners van het "veilige en saaie dorp",...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Braziliaanse krant: Nederlander omgekomen bij bootongeluk Iguaçu-watervallen](https://www.ad.nl/buitenland/braziliaanse-krant-nederlander-omgekomen-bij-bootongeluk-iguacu-watervallen~a15dd6f4/)
-  > Een 26-jarige Nederlander is op dinsdagmiddag overleden bij een ongeluk tijdens een bootsafari bij de Iguaçu-watervallen op de grens van Brazilië en...
-- [Saudi-Arabië meldt opnieuw droneaanvallen uit Irak](https://www.ad.nl/buitenland/saudi-arabie-meldt-opnieuw-droneaanvallen-uit-irak~ac528ac3/)
-  > Saudi-Arabië zegt opnieuw te zijn aangevallen door drones die door pro-Iraanse groepen in Irak zouden zijn gestuurd. Volgens het Saudische ministerie...
-- [Eenvoudige overwinning PSV in Lichtstadderby, talenten laten zich zien](https://www.ad.nl/voetbal/eenvoudige-overwinning-psv-in-lichtstadderby-talenten-laten-zich-zien~a4a16e1d/)
-  > PSV heeft dinsdagavond de jaarlijkse Lichtstadderby gewonnen. De landskampioen won met 3-0 van FC Eindhoven, dankzij goals van Amir Bouhamdi, Guus...
-- [Waarom valt zo'n succesvolle man keer op keer op een aantrekkelijke vrouw? Die vraag krijgt hij nooit](https://www.ad.nl/binnenland/waarom-valt-zo-n-succesvolle-man-keer-op-keer-op-een-aantrekkelijke-vrouw-die-vraag-krijgt-hij-nooit~ab2c4562/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [Zelensky en Trump hadden ‘goed gesprek’ over Patriot-raketproductie in Oekraïne](https://www.ad.nl/buitenland/zelensky-en-trump-hadden-goed-gesprek-over-patriot-raketproductie-in-oekraine~adfb97be/)
-  > De Oekraïense president Volodymyr Zelensky heeft met zijn Amerikaanse ambtgenoot Donald Trump gesproken over het produceren van Patriot-raketten in...
+- [Voetbalpodcast | ‘Ajax zet alles op alles voor de titel en de Champions League volgend jaar’](https://www.ad.nl/voetbal/voetbalpodcast-ajax-zet-alles-op-alles-voor-de-titel-en-de-champions-league-volgend-jaar~a42af5cd9/)
+  > Ajax is nog niet klaar met de grote verbouwing. Jordi Cruijff lijkt weer een nieuwe spits erbij te halen. Wat zegt dat over het komende seizoen? In...
+- [Doden gemeld door explosie in winkelcentrum in zuiden Japan](https://www.ad.nl/buitenland/doden-gemeld-door-explosie-in-winkelcentrum-in-zuiden-japan~aec59ed3/)
+  > Volgens de Japanse staatsomroep NHK zijn twee vrouwen omgekomen na een explosie dinsdag in een winkelcentrum in de Japanse zuidelijke regio Kumamoto....
+- [Zoon Lleyton Hewitt wint van mondiale nummer 85 en treft mogelijk topspeler van wie zijn vader de mentor is](https://www.ad.nl/tennis/zoon-lleyton-hewitt-wint-van-mondiale-nummer-85-en-treft-mogelijk-topspeler-van-wie-zijn-vader-de-mentor-is~a60c5e81/)
+  > De Australische tennisser Cruz Hewitt heeft op het toernooi van Washington zijn debuut op de ATP Tour opgesierd met een knappe overwinning. De...
+- [Amerikaanse tiener krijgt levenslang voor schietpartij op school, kreeg aanvalsgeweer voor Kerst](https://www.ad.nl/buitenland/amerikaanse-tiener-krijgt-levenslang-voor-schietpartij-op-school-kreeg-aanvalsgeweer-voor-kerst~a019f750/)
+  > De 16-jarige Colt Gray is veroordeeld tot levenslang voor het doodschieten van vier mensen op de Apalachee High School in de staat Georgia toen hij...
+- [Manchester United wil oud-Ajacied, PSV heeft Kostic op de radar, Chelsea aast op Henderson](https://www.ad.nl/voetbal/manchester-united-wil-oud-ajacied-psv-heeft-kostic-op-de-radar-chelsea-aast-op-henderson~aeb81ef1/)
+  > Het WK zit erop en er is meteen flink wat transfernieuws. Welke spelers en trainers maken een overstap? Hier blijf je op de hoogte van alle...
 
 ### Meest gelezen
 
