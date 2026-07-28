@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-07-2026 om 05:50*
+*Laatst bijgewerkt: 28-07-2026 om 08:40*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Voor het eerst betaalde zitplekken langs Canal Parade in Amsterdam](https://nos.nl/l/2624697)
+  > In Amsterdam is begonnen met de bouw van een grote tribune voor de Canal Parade van aanstaande zaterdag. Het is de eerste keer dat er zo'n tijdelijke...
+- [Duitse autoriteiten zien 410 mensen als islamistische bedreiging](https://nos.nl/l/2624691)
+  > In Duitsland worden 410 mensen gezien als islamistische bedreiging. Dat blijkt uit cijfers van de Duitse federale recherchedienst Bundeskriminalamt...
+- [Aangespoelde lichaamsdelen op Texel zijn van twee Afghaanse vluchtelingen](https://nos.nl/l/2624687)
+  > De politie in Noord-Holland weet na jaren wie de twee mannen zijn van wie in 2023 lichaamsdelen aanspoelden op Texel. Het gaat om mannen van 20 en 27...
+- [Meevaller voor Philips: 186 miljoen euro terug aan Amerikaanse heffingen](https://nos.nl/l/2624685)
+  > Philips heeft de afgelopen maanden een financiële meevaller gekregen. Het bedrijf kreeg 186 miljoen euro van de Amerikaanse overheid terug vanwege...
 - [Podcast De Dag: de koffer van Christian Flokstra (advocaat)](https://nos.nl/l/2624681)
   > Deze week pakt podcast De Dag de koffers met leuke gasten. Wat lezen, luisteren of kijken zij om inspiratie op te doen voor de rest van het jaar?...
-- [Kabinet negeert datum in klimaatzaak Bonaire: 'Blamage voor Nederland'](https://nos.nl/l/2624678)
-  > Het kabinet levert niet de inspanningen die de rechter in een klimaatzaak over Bonaire heeft geëist en ligt ook niet op koers om aan zijn...
-- [Wekdienst 28/7: Rechtszaak over in brand steken van man in rolstoel • Herdenking bij Pride Amsterdam](https://nos.nl/l/2624677)
-  > Goedemorgen! Vandaag verschijnen voor het eerst twee mannen voor de rechter die in april een man in een rolstoel in brand zouden hebben gestoken. En...
-- [Enorme bosbranden Frankrijk leiden tot uniek fenomeen: een vuurwolk](https://nos.nl/l/2624675)
-  > Een vuurstorm noemde een Franse brandweerman het en de gouverneur van het departement Gironde noemde het "een ongelofelijk en ongezien fenomeen"....
-- [Mishandeling op Pride-evenement in Zandvoort](https://nos.nl/l/2624674)
-  > In Zandvoort is een bezoeker van een Pride-evenement gisteren geslagen en uitgescholden. Vlak na de belaging hielden agenten een minderjarige...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dit is wanneer Max Verstappen na zomerstop de allerlaatste Dutch GP rijdt](https://www.ad.nl/formule-1/dit-is-wanneer-max-verstappen-na-zomerstop-de-allerlaatste-dutch-gp-rijdt~ac6e82c8/)
-  > De coureurs mogen na de Grand Prix van Hongarije genieten van een korte zomerstop. Het Formule 1-seizoen wordt daarna hervat met een bijzondere race:...
-- [Patricia Paay liet traantje na geboorte kleindochter Cleo: ‘Zó mooi’](https://www.ad.nl/show/patricia-paay-liet-traantje-na-geboorte-kleindochter-cleo-zo-mooi~aa600b4b/)
-  > Patricia Paay heeft het niet droog gehouden toen ze haar eerste kleinkind in haar handen kon houden. „Zulke kleine handjes, kleine teentjes en zó...
-- [Engelse voetbalbond wil af van tactische keepersblessures met nieuwe regel](https://www.ad.nl/voetbal/engelse-voetbalbond-wil-af-van-tactische-keepersblessures-met-nieuwe-regel~abcb81f8/)
-  > Het Engelse profvoetbal introduceert komend seizoen een proef om te voorkomen dat ploegen misbruik maken van blessurebehandelingen voor doelmannen....
-- [Ariana Grande start rechtszaak tegen anonieme hackers om lekken foto’s en muziek](https://www.ad.nl/show/ariana-grande-start-rechtszaak-tegen-anonieme-hackers-om-lekken-fotos-en-muziek~a9b72a8c/)
-  > Ariana Grande is een rechtszaak begonnen tegen een groep anonieme hackers die volgens haar onuitgebrachte muziek, privéfoto’s en video’s van haar...
-- [Zelfs de Italiaanse media zeggen het al onomwonden: deze zoektocht naar een bondscoach is één grote soap](https://www.ad.nl/voetbal/zelfs-de-italiaanse-media-zeggen-het-al-onomwonden-deze-zoektocht-naar-een-bondscoach-is-een-grote-soap~a410cbc4/)
-  > Vier maanden na het fiasco in de WK-play-offs is de zoektocht naar een nieuwe bondscoach van Italië niets minder dan een voortdurende soap. Gisteren...
+- [Bondscoach hockeyers houdt vast aan olympische kampioenen voor WK: ‘Niet voor niets een gouden selectie’](https://www.ad.nl/andere-sporten/bondscoach-hockeyers-houdt-vast-aan-olympische-kampioenen-voor-wk-niet-voor-niets-een-gouden-selectie~a98b614c/)
+  > Hockeybondscoach Jeroen Delmée houdt op het komende wereldkampioenschap in eigen land vast aan de selectie die twee jaar geleden op de Olympische...
+- [Verdachte van aanslag Pride Berlijn ‘deed zich voor als imam en probeerde medegevangenen te bekeren’](https://www.ad.nl/buitenland/verdachte-van-aanslag-pride-berlijn-deed-zich-voor-als-imam-en-probeerde-medegevangenen-te-bekeren~a8f30343/)
+  > De 21-jarige Abdul B., die verdacht wordt van de aanslag tijdens Pride in Berlijn afgelopen weekend, deed zich in de gevangenis voor als imam. Dat...
+- [Half miljoen euro kostende Ferrari deed precies wat deze moest doen bij crash](https://www.ad.nl/auto/half-miljoen-euro-kostende-ferrari-deed-precies-wat-deze-moest-doen-bij-crash~a846b6bf/)
+  > Een nieuwe Ferrari is tijdens een zware crash in Australië in meerdere stukken gebroken. De beelden gingen razendsnel de wereld over en wekken de...
+- [Christina Curry deelt eerste beelden van pasgeboren dochtertje: ‘Je bent zo geliefd’](https://www.ad.nl/show/christina-curry-deelt-eerste-beelden-van-pasgeboren-dochtertje-je-bent-zo-geliefd~a2b6663a/)
+  > Christina Curry (35) heeft voor het eerst foto’s van haar dochter Cleo gedeeld. Op Instagram plaatste ze twee beelden van het pasgeboren meisje.
+- [Jennifer met stomheid geslagen als het tijdens sollicitatie over haar sonde gaat: ‘Wat gebeurt hier?’](https://www.ad.nl/barendrecht/jennifer-met-stomheid-geslagen-als-het-tijdens-sollicitatie-over-haar-sonde-gaat-wat-gebeurt-hier~ae926d42/)
+  > Het had een gewone sollicitatie moeten zijn, maar eindigde voor Jennifer Sala uit Barendrecht in een pijnlijke ervaring. Tijdens het gesprek werd ze...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Johnson & Johnson schikt babytalkpoederzaak voor $5,5 mrd](https://fd.nl/bedrijfsleven/1605944/johnson-johnson-schikt-babytalkpoederzaak-voor-5-5-mrd)
-  > Tienduizenden eisers stelden dat de talkproducten van de farmaceut eierstokkanker hadden veroorzaakt.
-- [Live: Verkoopgolf in chipaandelen houdt aan, Kospi verliest ruim 10%](https://fd.nl/financiele-markten/1605943/live-verkoopgolf-in-chipaandelen-houdt-aan-kospi-verliest-ruim-10)
-  > De daling van de olieprijs en de verkoopgolf in chipaandelen na Chinees nieuws van maandag, kleuren ook vandaag de financiële markten. Onder andere...
-- [Horecaondernemer Kaji But en zijn moeder: ‘Ik wilde naar de hotelschool, maar nee, ik moest naar de universiteit’](https://fd.nl/samenleving/1605880/horecaondernemer-kaji-but-en-zijn-moeder-ik-wilde-naar-de-hotelschool-maar-nee-ik-moest-naar-de-universiteit)
-  > Kaji But en zijn moeder, Kwai Tai But-Cheung, over opvoeding, prestatiedruk en de trots op hun Chinese roots.
-- [David Beckham-regeling dramatisch advies voor supermarktzussen](https://fd.nl/economie/1605732/david-beckham-regeling-dramatisch-advies-voor-supermarktzussen)
-  > Vandaag in de FD Dagkoers: De Chinese DRam maker CXMT had gisteren een spectaculaire beursgang, de Belastingdienst heeft zich verkeken op aanslagen...
-- [Afnemende intelligentie](https://fd.nl/opinie/1605733/afnemende-intelligentie)
-  > Een deel van de productiviteitswinst door AI van vandaag kan ten koste gaan van de productiviteitsgroei van morgen.
+- [Een containervilla in het groen van Zeist](https://fd.nl/samenleving/1605895/een-containervilla-in-het-groen-van-zeist)
+  > ‘We moeten erg interen op ons vermogen, terwijl we nog dertig, veertig jaar te gaan hebben en ik een start-up run. Als economen die hun opties...
+- [Voorlinden-directeur Suzanne Swarts: ‘Ik vind het tof als ik iemand hoor zeggen: jeetje, wat lelijk’](https://fd.nl/bedrijfsleven/1595057/voorlinden-directeur-suzanne-swarts-ik-vind-het-tof-als-ik-iemand-hoor-zeggen-jeetje-wat-lelijk)
+  > Suzanne Swarts is directeur van museum Voorlinden in Wassenaar, dat zijn tiende verjaardag groots viert. ‘Voor mij gaat alles in het leven over...
+- [Toon meer lef aan de bestuurstafel, dan komt het met de regeldruk wel goed](https://fd.nl/opinie/1605482/toon-meer-lef-aan-de-bestuurstafel-dan-komt-het-met-de-regeldruk-wel-goed)
+  > Bedrijven willen minder regels. Dat lukt alleen als bestuurders zelf ook een oorzaak van regeldruk aanpakken: risicoaversie. Ze moeten ondernemender...
+- [Unilever groeit in India en China, terwijl Europa krimpt](https://fd.nl/bedrijfsleven/1605743/unilever-groeit-flink-in-india-en-china-terwijl-europa-krimpt)
+  > Met €25,6 mrd lag de omzet over de eerste zes maanden in lijn met de verwachtingen van analisten. De nettowinst bedroeg €3,3 mrd.
+- [Brazilië stapt naar WTO om Amerikaanse heffingen](https://fd.nl/economie/1605742/brazilie-stapt-naar-wto-om-amerikaanse-heffingen)
+  > Brazilië noemt de Amerikaanse maatregelen tegen zijn producten ongegrond.
 
 ### Meest gelezen
 
