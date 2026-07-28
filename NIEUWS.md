@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-07-2026 om 02:48*
+*Laatst bijgewerkt: 28-07-2026 om 05:50*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Podcast De Dag: de koffer van Christian Flokstra (advocaat)](https://nos.nl/l/2624681)
+  > Deze week pakt podcast De Dag de koffers met leuke gasten. Wat lezen, luisteren of kijken zij om inspiratie op te doen voor de rest van het jaar?...
+- [Kabinet negeert datum in klimaatzaak Bonaire: 'Blamage voor Nederland'](https://nos.nl/l/2624678)
+  > Het kabinet levert niet de inspanningen die de rechter in een klimaatzaak over Bonaire heeft geëist en ligt ook niet op koers om aan zijn...
+- [Wekdienst 28/7: Rechtszaak over in brand steken van man in rolstoel • Herdenking bij Pride Amsterdam](https://nos.nl/l/2624677)
+  > Goedemorgen! Vandaag verschijnen voor het eerst twee mannen voor de rechter die in april een man in een rolstoel in brand zouden hebben gestoken. En...
+- [Enorme bosbranden Frankrijk leiden tot uniek fenomeen: een vuurwolk](https://nos.nl/l/2624675)
+  > Een vuurstorm noemde een Franse brandweerman het en de gouverneur van het departement Gironde noemde het "een ongelofelijk en ongezien fenomeen"....
 - [Mishandeling op Pride-evenement in Zandvoort](https://nos.nl/l/2624674)
   > In Zandvoort is een bezoeker van een Pride-evenement gisteren geslagen en uitgescholden. Vlak na de belaging hielden agenten een minderjarige...
-- [Leger Sudan claimt inname belangrijke snelweg bij belegerde stad Al-Obeid](https://nos.nl/l/2624673)
-  > Het leger van Sudan heeft een belangrijke snelweg heroverd, melden bronnen aan persbureau AFP. Die weg verbindt de hoofdstad Khartoem met Al-Obeid,...
-- [Mogelijk bendegeweld bij schietpartij Seattle, drie verdachten in beeld](https://nos.nl/l/2624672)
-  > De politie in de Amerikaanse stad Seattle vermoedt dat drie mensen betrokken waren bij de schietpartij op een foodfestival van afgelopen nacht. Bij...
-- [Spannende tijden voor riviercruises: eindbestemming onzeker door laagwater](https://nos.nl/l/2624667)
-  > Het schip de Otella ligt klaar voor vertrek aan de Waalkade van Nijmegen. De 140 passagiers druppelen een voor een binnen voor de start van hun...
-- ['Spectaculaire beursgang' Chinese chipbouwer: aandeel vijf keer meer waard](https://nos.nl/l/2624664)
-  > ChangXin Memory Technologies (CXMT), de grootste Chinese chipmaker, maakt furore op de Chinese beurs. Vanochtend maakte het een bijzonder...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Stoelen in honderden Boeings 737 MAX mogelijk verkeerd geïnstalleerd](https://www.ad.nl/buitenland/stoelen-in-honderden-boeings-737-max-mogelijk-verkeerd-geinstalleerd~a5dddd684/)
-  > De stoelen in 453 Boeings van het type 737 MAX die in de Verenigde Staten zijn geregistreerd, moeten worden geïnspecteerd omdat ze mogelijk verkeerd...
-- [1 op de 20 huishoudens heeft een caravan: Nederlanders blijven trouw aan de sleurhut](https://www.ad.nl/binnenland/1-op-de-20-huishoudens-heeft-een-caravan-nederlanders-blijven-trouw-aan-de-sleurhut~a8a051131/)
-  > Tijdens corona leken we massaal over te stappen op de camper, maar onze liefde voor de caravan lijkt toch onverwoestbaar. De verkoop van caravans...
-- [Groep van 410 mensen in Duitsland als islamistische bedreiging gezien](https://www.ad.nl/buitenland/groep-van-410-mensen-in-duitsland-als-islamistische-bedreiging-gezien~a93cdf7e/)
-  > De Duitse Federale Recherche (BKA) classificeert 410 mensen als personen die een islamistische terroristische of extremistische bedreiging vormen....
-- [Aangehouden verdachte schietpartij Seattle is 15 jaar oud, politie gaat uit van drie daders](https://www.ad.nl/buitenland/aangehouden-verdachte-schietpartij-seattle-is-15-jaar-oud-politie-gaat-uit-van-drie-daders~a5ebf424/)
-  > De aangehouden verdachte voor de schietpartij zondag in het Amerikaanse Seattle is slechts 15 jaar oud. Dat maakte burgemeester Katie Wilson maandag...
-- [Inwoners negen geëvacueerde dorpen Spanje mogen weer naar huis](https://www.ad.nl/buitenland/inwoners-negen-geevacueerde-dorpen-spanje-mogen-weer-naar-huis~ad0a3949/)
-  > De inwoners van negen Spaanse dorpen die waren geëvacueerd vanwege de natuurbranden mogen weer naar huis. Het gaat om gemeenten in de provincie...
+- [Dit is wanneer Max Verstappen na zomerstop de allerlaatste Dutch GP rijdt](https://www.ad.nl/formule-1/dit-is-wanneer-max-verstappen-na-zomerstop-de-allerlaatste-dutch-gp-rijdt~ac6e82c8/)
+  > De coureurs mogen na de Grand Prix van Hongarije genieten van een korte zomerstop. Het Formule 1-seizoen wordt daarna hervat met een bijzondere race:...
+- [Patricia Paay liet traantje na geboorte kleindochter Cleo: ‘Zó mooi’](https://www.ad.nl/show/patricia-paay-liet-traantje-na-geboorte-kleindochter-cleo-zo-mooi~aa600b4b/)
+  > Patricia Paay heeft het niet droog gehouden toen ze haar eerste kleinkind in haar handen kon houden. „Zulke kleine handjes, kleine teentjes en zó...
+- [Engelse voetbalbond wil af van tactische keepersblessures met nieuwe regel](https://www.ad.nl/voetbal/engelse-voetbalbond-wil-af-van-tactische-keepersblessures-met-nieuwe-regel~abcb81f8/)
+  > Het Engelse profvoetbal introduceert komend seizoen een proef om te voorkomen dat ploegen misbruik maken van blessurebehandelingen voor doelmannen....
+- [Ariana Grande start rechtszaak tegen anonieme hackers om lekken foto’s en muziek](https://www.ad.nl/show/ariana-grande-start-rechtszaak-tegen-anonieme-hackers-om-lekken-fotos-en-muziek~a9b72a8c/)
+  > Ariana Grande is een rechtszaak begonnen tegen een groep anonieme hackers die volgens haar onuitgebrachte muziek, privéfoto’s en video’s van haar...
+- [Zelfs de Italiaanse media zeggen het al onomwonden: deze zoektocht naar een bondscoach is één grote soap](https://www.ad.nl/voetbal/zelfs-de-italiaanse-media-zeggen-het-al-onomwonden-deze-zoektocht-naar-een-bondscoach-is-een-grote-soap~a410cbc4/)
+  > Vier maanden na het fiasco in de WK-play-offs is de zoektocht naar een nieuwe bondscoach van Italië niets minder dan een voortdurende soap. Gisteren...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Johnson & Johnson schikt babytalkpoederzaak voor $5,5 mrd](https://fd.nl/bedrijfsleven/1605944/johnson-johnson-schikt-babytalkpoederzaak-voor-5-5-mrd)
+  > Tienduizenden eisers stelden dat de talkproducten van de farmaceut eierstokkanker hadden veroorzaakt.
+- [Live: Verkoopgolf in chipaandelen houdt aan, Kospi verliest ruim 10%](https://fd.nl/financiele-markten/1605943/live-verkoopgolf-in-chipaandelen-houdt-aan-kospi-verliest-ruim-10)
+  > De daling van de olieprijs en de verkoopgolf in chipaandelen na Chinees nieuws van maandag, kleuren ook vandaag de financiële markten. Onder andere...
+- [Horecaondernemer Kaji But en zijn moeder: ‘Ik wilde naar de hotelschool, maar nee, ik moest naar de universiteit’](https://fd.nl/samenleving/1605880/horecaondernemer-kaji-but-en-zijn-moeder-ik-wilde-naar-de-hotelschool-maar-nee-ik-moest-naar-de-universiteit)
+  > Kaji But en zijn moeder, Kwai Tai But-Cheung, over opvoeding, prestatiedruk en de trots op hun Chinese roots.
+- [David Beckham-regeling dramatisch advies voor supermarktzussen](https://fd.nl/economie/1605732/david-beckham-regeling-dramatisch-advies-voor-supermarktzussen)
+  > Vandaag in de FD Dagkoers: De Chinese DRam maker CXMT had gisteren een spectaculaire beursgang, de Belastingdienst heeft zich verkeken op aanslagen...
 - [Afnemende intelligentie](https://fd.nl/opinie/1605733/afnemende-intelligentie)
   > Een deel van de productiviteitswinst door AI van vandaag kan ten koste gaan van de productiviteitsgroei van morgen.
-- [Fiscus gaat nat in miljoenenzaak tegen Rotterdamse softwareondernemers](https://fd.nl/bedrijfsleven/1603191/fiscus-gaat-nat-in-miljoenenzaak-tegen-rotterdamse-softwareondernemers)
-  > Het conflict komt voort uit de miljoenenverkoop van softwarebedrijf Mendix. Zulke zaken komen zelden in de publiciteit omdat de partijen meestal...
-- [Personalia dinsdag 28 juli](https://fd.nl/bedrijfsleven/1605727/personalia-dinsdag-28-juli)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Alternatieven voor Hormuz zijn illusies](https://fd.nl/opinie/1605876/alternatieven-voor-hormuz-zijn-illusies)
-  > De maritieme slagader die dagelijks zo’n twintig miljoen vaten olie doorliet, is verstopt. Alternatieve routes zijn een geopolitiek paracetamolletje...
-- [Techzorgen doen optimistische start op Wall Street teniet](https://fd.nl/bedrijfsleven/1605741/techzorgen-doen-optimistische-start-op-wall-street-teniet)
-  > Het pessimisme iver de techsector temperde het optimisme dat was ontstaan door de stilzwijgende wapenstilstand tussen de VS en Iran.
 
 ### Meest gelezen
 
