@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-07-2026 om 00:00*
+*Laatst bijgewerkt: 29-07-2026 om 03:30*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [VS beschuldigt Iran van raketaanval op legerbasis in Jordanië](https://nos.nl/l/2624782)
-  > Volgens de VS heeft Iran een raketaanval uitgevoerd op een Amerikaanse legerbasis in Jordanië. Het Amerikaanse leger spreekt van een...
+- [Zeker dertien lichamen geborgen na aardbevingen op Japanse eiland Kyushu](https://nos.nl/l/2624784)
+  > In Japan hebben hulpdiensten en reddingswerkers zeker dertien lichamen gevonden na de zware aardbeving van gisteren. "Er liggen nog mensen die...
+- [Brand in zorginstelling voor jongeren Beekbergen, ook kinderkamp ontruimd](https://nos.nl/l/2624783)
+  > In Beekbergen, ten zuiden van Apeldoorn, woedt brand in een zorginstelling voor jongeren. Zo'n twintig jongeren die in het pand wonen en hun...
+- [Iran valt Jordanië aan, VS en Saudi-Arabië bombarderen milities in Irak](https://nos.nl/l/2624782)
+  > Iran heeft een raketaanval uitgevoerd op een Amerikaanse legerbasis in Jordanië. De VS spreekt van een verrassingsaanval en stelt dat alle...
 - [Nederlander (26) omgekomen na kapseizen boot, melden Braziliaanse media](https://nos.nl/l/2624781)
   > In Brazilië is een Nederlander omgekomen bij een bootongeluk, melden landelijke media. Tijdens een boottour bij de watervallen van nationaal park...
 - [Auto met explosief materiaal in Amsterdam weg, inzittenden voortvluchtig](https://nos.nl/l/2624778)
   > Een grote politieactie die vanmiddag begon in Amsterdam Nieuw-West nadat een auto met explosief materiaal was gecrasht, is voorbij. De Explosieven...
-- [Hitte en droogte leiden ook in Marokko, Algerije en Tunesië tot felle branden](https://nos.nl/l/2624775)
-  > Net als Spanje en Frankrijk heeft ook het zuiden van het Middellandse Zeegebied te kampen met grote bosbranden. Zo zijn de nationale hulpdiensten in...
-- [Vrees voor doden in ingestort winkelcentrum Japan, nieuwe aardbeving in zelfde gebied](https://nos.nl/l/2624772)
-  > In de Japanse regio Kumamoto op het zuidelijke eiland Kyushu is opnieuw een aardbeving geweest. Er was een waarschuwing afgegeven, zodat mensen zich...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Luchtvaartautoriteit VS wil klimaatregels voor ruimtevaartsector versoepelen](https://www.ad.nl/buitenland/luchtvaartautoriteit-vs-wil-klimaatregels-voor-ruimtevaartsector-versoepelen~aad2cb8fe/)
-  > De Amerikaanse federale luchtvaartautoriteit (FAA) heeft dinsdag voorgesteld om de klimaat- en milieuregels voor ruimtevaartbedrijven te versoepelen.
-- [Iran bestookt Amerikaanse legerbases, Saoedi-Arabië meldt nieuwe droneaanvallen uit Irak](https://www.ad.nl/buitenland/iran-bestookt-amerikaanse-legerbases-saoedi-arabie-meldt-nieuwe-droneaanvallen-uit-irak~ac528ac3/)
-  > De Iraanse Revolutionaire Garde heeft vanuit Iran meerdere ballistische raketten afgevuurd op Amerikaanse militaire bases in het Midden-Oosten. Dat...
-- [‘Ajax zet alles op alles voor de titel en de Champions League volgend jaar’](https://www.ad.nl/voetbal/ajax-zet-alles-op-alles-voor-de-titel-en-de-champions-league-volgend-jaar~a42af5cd9/)
-  > Ajax is nog niet klaar met de grote verbouwing. Jordi Cruijff lijkt weer een nieuwe spits erbij te halen. Wat zegt dat over het komende seizoen? In...
-- [Doden gemeld door explosie in winkelcentrum in zuiden Japan](https://www.ad.nl/buitenland/doden-gemeld-door-explosie-in-winkelcentrum-in-zuiden-japan~aec59ed3/)
-  > Volgens de Japanse staatsomroep NHK zijn twee vrouwen omgekomen na een explosie dinsdag in een winkelcentrum in de Japanse zuidelijke regio Kumamoto....
-- [Zoon Lleyton Hewitt wint van mondiale nummer 85 en treft mogelijk topspeler van wie zijn vader de mentor is](https://www.ad.nl/tennis/zoon-lleyton-hewitt-wint-van-mondiale-nummer-85-en-treft-mogelijk-topspeler-van-wie-zijn-vader-de-mentor-is~a60c5e81/)
-  > De Australische tennisser Cruz Hewitt heeft op het toernooi van Washington zijn debuut op de ATP Tour opgesierd met een knappe overwinning. De...
+- [Henk Fraser wordt nieuwe bondscoach van Suriname](https://www.ad.nl/sport/henk-fraser-wordt-nieuwe-bondscoach-van-suriname~a4a9c0d7/)
+  > De Surinaamse Voetbal Bond (SVB) heeft Henk Fraser aangesteld als bondscoach van de nationale mannenvoetbalselectie. Dat meldt de voetbalbond op...
+- [Dodental door zware aardbeving in zuiden Japan loopt op tot dertien, zeker honderd gewonden](https://www.ad.nl/buitenland/dodental-door-zware-aardbeving-in-zuiden-japan-loopt-op-tot-dertien-zeker-honderd-gewonden~a41dc499/)
+  > De aardbeving van dinsdag in de Japanse zuidelijke regio Kumamoto heeft al aan minstens dertien mensen het leven gekost. Dat meldt premier Sanae...
+- [VS en Saoedi-Arabië vallen pro-Iraanse milities in Irak aan, Iran bestookt Amerikaanse legerbases en tankers](https://www.ad.nl/buitenland/vs-en-saoedi-arabie-vallen-pro-iraanse-milities-in-irak-aan-iran-bestookt-amerikaanse-legerbases-en-tankers~ac528ac3/)
+  > Het Amerikaanse leger en de Saoedische strijdkrachten hebben in de nacht van dinsdag op woensdag luchtaanvallen uitgevoerd op door Iran gesteunde...
+- [Uitslaande brand verwoest zorginstelling in Beekbergen: één gewonde, tentenkamp met 186 kinderen ontruimd](https://www.ad.nl/apeldoorn/uitslaande-brand-verwoest-zorginstelling-in-beekbergen-een-gewonde-tentenkamp-met-186-kinderen-ontruimd~a865ea98/)
+  > Een uitslaande brand heeft een zorginstelling in Beekbergen verwoest. Een persoon is met spoed naar het ziekenhuis gebracht. De dikke rook zorgde...
+- [Na 17 jaar kantelpunt: verkoop elektrische auto haalt benzine en diesel in](https://www.ad.nl/binnenland/na-17-jaar-kantelpunt-verkoop-elektrische-auto-haalt-benzine-en-diesel-in~ab725c69/)
+  > De elektrische auto breekt definitief door. Volgend jaar worden er in Nederland voor het eerst meer volledig elektrische auto’s verkocht dan auto’s...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Dreigt voor Zuid-Korea en Taiwan de ‘Hollandse ziekte’?](https://fd.nl/economie/1605760/dreigt-voor-zuid-korea-en-taiwan-de-hollandse-ziekte)
+  > Vandaag in de Dagkoers: de tegenvaller voor Philips op de beurs, het gevaar van de sterke AI-groei in Zuid-Korea en Taiwan en het stemmen over een...
 - [Canadees bod op ingenieurskantoor Arcadis: praten of brug ophalen?](https://fd.nl/bedrijfsleven/1605958/canadees-bod-op-ingenieurskantoor-arcadis-praten-of-brug-ophalen)
   > Mochten het Nederlandse Arcadis en het Canadese WSP samengaan, dan ontstaat het grootste ingenieursadviesbureau ter wereld. Maar de nieuwe ceo van...
 - [Aandachtseconomie](https://fd.nl/opinie/1605951/aandachtseconomie)
@@ -54,8 +56,6 @@
   > Philips, Bugaboo en AkzoNobel behoren tot de eerste bedrijven die onterecht betaalde Amerikaanse importheffingen terugkrijgen.
 - [Hongerklop in de hittegolf](https://fd.nl/opinie/1605745/hongerklop-in-de-hittegolf)
   > Je kunt wachten tot je lichaam om energie vraagt, maar het is slimmer dat een paar happen voor te zijn. Dat geldt niet alleen voor wielrenners, maar...
-- [Groene borden op Wall Street door kwartaalcijfers](https://fd.nl/bedrijfsleven/1606089/groene-borden-op-wall-street-door-kwartaalcijfers)
-  > De cijfers van onder meer Coca-Cola en PayPal maakten de dalingen in de chipsector deels goed. Techindex Nasdaq eindigde wel iets in de min.
 
 ### Meest gelezen
 
