@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-07-2026 om 03:30*
+*Laatst bijgewerkt: 29-07-2026 om 06:34*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Vijftien olifanten dood aangetroffen in Kenia, mogelijk sprake van vergiftiging](https://nos.nl/l/2624802)
+  > De dood van vijftien olifanten bij het Amboseli National Park in Kenia wordt onderzocht door de Keniaanse dienst voor wildbeheer. Mogelijk zijn de...
+- [Onderhoudsdivisie KLM onder verscherpt toezicht, veiligheid niet in gevaar](https://nos.nl/l/2624800)
+  > De divisie van KLM die onderhoud verricht aan vliegtuigen staat onder verscherpt toezicht van de Inspectie Leefomgeving en Transport (ILT). Dat...
+- [Wekdienst 29/7: Nationaal Hitteplan weer van kracht • Rechtszaak tegen vrouw die dochter zou hebben gedood](https://nos.nl/l/2624789)
+  > Goedemorgen! Opnieuw is het Nationaal Hitteplan van kracht in een aantal provincies. Het kan 35 graden worden. En de rechtbank in Roermond behandelt...
+- [Podcast De Dag: de koffer van Yvette van Boven (kok & culinair journalist)](https://nos.nl/l/2624788)
+  > Deze week pakt podcast De Dag de koffers met leuke gasten. Wat lezen, luisteren of kijken zij om inspiratie op te doen voor de rest van het jaar?...
 - [Zeker dertien lichamen geborgen na aardbevingen op Japanse eiland Kyushu](https://nos.nl/l/2624784)
   > In Japan hebben hulpdiensten en reddingswerkers zeker dertien lichamen gevonden na de zware aardbeving van gisteren. "Er liggen nog mensen die...
-- [Brand in zorginstelling voor jongeren Beekbergen, ook kinderkamp ontruimd](https://nos.nl/l/2624783)
-  > In Beekbergen, ten zuiden van Apeldoorn, woedt brand in een zorginstelling voor jongeren. Zo'n twintig jongeren die in het pand wonen en hun...
-- [Iran valt Jordanië aan, VS en Saudi-Arabië bombarderen milities in Irak](https://nos.nl/l/2624782)
-  > Iran heeft een raketaanval uitgevoerd op een Amerikaanse legerbasis in Jordanië. De VS spreekt van een verrassingsaanval en stelt dat alle...
-- [Nederlander (26) omgekomen na kapseizen boot, melden Braziliaanse media](https://nos.nl/l/2624781)
-  > In Brazilië is een Nederlander omgekomen bij een bootongeluk, melden landelijke media. Tijdens een boottour bij de watervallen van nationaal park...
-- [Auto met explosief materiaal in Amsterdam weg, inzittenden voortvluchtig](https://nos.nl/l/2624778)
-  > Een grote politieactie die vanmiddag begon in Amsterdam Nieuw-West nadat een auto met explosief materiaal was gecrasht, is voorbij. De Explosieven...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Henk Fraser wordt nieuwe bondscoach van Suriname](https://www.ad.nl/sport/henk-fraser-wordt-nieuwe-bondscoach-van-suriname~a4a9c0d7/)
-  > De Surinaamse Voetbal Bond (SVB) heeft Henk Fraser aangesteld als bondscoach van de nationale mannenvoetbalselectie. Dat meldt de voetbalbond op...
-- [Dodental door zware aardbeving in zuiden Japan loopt op tot dertien, zeker honderd gewonden](https://www.ad.nl/buitenland/dodental-door-zware-aardbeving-in-zuiden-japan-loopt-op-tot-dertien-zeker-honderd-gewonden~a41dc499/)
-  > De aardbeving van dinsdag in de Japanse zuidelijke regio Kumamoto heeft al aan minstens dertien mensen het leven gekost. Dat meldt premier Sanae...
-- [VS en Saoedi-Arabië vallen pro-Iraanse milities in Irak aan, Iran bestookt Amerikaanse legerbases en tankers](https://www.ad.nl/buitenland/vs-en-saoedi-arabie-vallen-pro-iraanse-milities-in-irak-aan-iran-bestookt-amerikaanse-legerbases-en-tankers~ac528ac3/)
-  > Het Amerikaanse leger en de Saoedische strijdkrachten hebben in de nacht van dinsdag op woensdag luchtaanvallen uitgevoerd op door Iran gesteunde...
-- [Uitslaande brand verwoest zorginstelling in Beekbergen: één gewonde, tentenkamp met 186 kinderen ontruimd](https://www.ad.nl/apeldoorn/uitslaande-brand-verwoest-zorginstelling-in-beekbergen-een-gewonde-tentenkamp-met-186-kinderen-ontruimd~a865ea98/)
-  > Een uitslaande brand heeft een zorginstelling in Beekbergen verwoest. Een persoon is met spoed naar het ziekenhuis gebracht. De dikke rook zorgde...
-- [Na 17 jaar kantelpunt: verkoop elektrische auto haalt benzine en diesel in](https://www.ad.nl/binnenland/na-17-jaar-kantelpunt-verkoop-elektrische-auto-haalt-benzine-en-diesel-in~ab725c69/)
-  > De elektrische auto breekt definitief door. Volgend jaar worden er in Nederland voor het eerst meer volledig elektrische auto’s verkocht dan auto’s...
+- [Aan de slag als reservist onder werktijd: bij steeds meer bedrijven kan het](https://www.ad.nl/binnenland/aan-de-slag-als-reservist-onder-werktijd-bij-steeds-meer-bedrijven-kan-het~a835a453/)
+  > 57 organisaties in Nederland hebben een convenant getekend met het ministerie van Defensie, twee jaar geleden waren dat er nog 12. Bedrijven beloven...
+- [Iran verwerpt Omaans voorstel om Hormuz met meerdere landen te beheren, drie olietankers geraakt](https://www.ad.nl/buitenland/iran-verwerpt-omaans-voorstel-om-hormuz-met-meerdere-landen-te-beheren-drie-olietankers-geraakt~ac528ac3/)
+  > Iran heeft het Omaanse voorstel verworpen om de Straat van Hormuz regionaal te beheren. Volgens een hooggeplaatste Iraanse functionaris die...
+- [Macaulay Culkin werkt aan nieuwe Home Alone-film](https://www.ad.nl/show/macaulay-culkin-werkt-aan-nieuwe-home-alone-film~ab141570/)
+  > Macaulay Culkin heeft plannen voor een nieuwe Home Alone-film, meldt entertainmentwebsite TMZ. Volgens de entertainmentwebsite heeft de 45-jarige...
+- [Ze zakten al 2 ton in vraagprijs, toch krijgen Jori en Belinda hun woning niet verkocht](https://www.ad.nl/binnenland/ze-zakten-al-2-ton-in-vraagprijs-toch-krijgen-jori-en-belinda-hun-woning-niet-verkocht~add841cd/)
+  > Met hun pensioen in zicht kochten Jori van der Hout en Belinda Bakker alvast een nieuw huis in Spanje. Hun oude woning in Capelle aan den IJssel zou...
+- [Rijn stevent af op nieuw dieptepunt: lager kunnen we straks bijna niet meer zakken](https://www.ad.nl/binnenland/rijn-stevent-af-op-nieuw-dieptepunt-lager-kunnen-we-straks-bijna-niet-meer-zakken~ae877789/)
+  > Het is code rood voor de rivieren in Nederland. De waterstand zakt heel snel naar een historisch dieptepunt. De Rijn bij Tolkamer (meetpunt Lobith)...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Dreigt voor Zuid-Korea en Taiwan de ‘Hollandse ziekte’?](https://fd.nl/economie/1605760/dreigt-voor-zuid-korea-en-taiwan-de-hollandse-ziekte)
-  > Vandaag in de Dagkoers: de tegenvaller voor Philips op de beurs, het gevaar van de sterke AI-groei in Zuid-Korea en Taiwan en het stemmen over een...
-- [Canadees bod op ingenieurskantoor Arcadis: praten of brug ophalen?](https://fd.nl/bedrijfsleven/1605958/canadees-bod-op-ingenieurskantoor-arcadis-praten-of-brug-ophalen)
-  > Mochten het Nederlandse Arcadis en het Canadese WSP samengaan, dan ontstaat het grootste ingenieursadviesbureau ter wereld. Maar de nieuwe ceo van...
-- [Aandachtseconomie](https://fd.nl/opinie/1605951/aandachtseconomie)
-  > Is een minimumleeftijd voor sociale media paternalistisch? Of wordt het marktfalen ermee gecorrigeerd?
-- [Eerste Nederlandse multinationals krijgen Amerikaanse heffingen terug](https://fd.nl/bedrijfsleven/1605754/eerste-nederlandse-multinationals-krijgen-amerikaanse-heffingen-terug)
-  > Philips, Bugaboo en AkzoNobel behoren tot de eerste bedrijven die onterecht betaalde Amerikaanse importheffingen terugkrijgen.
-- [Hongerklop in de hittegolf](https://fd.nl/opinie/1605745/hongerklop-in-de-hittegolf)
-  > Je kunt wachten tot je lichaam om energie vraagt, maar het is slimmer dat een paar happen voor te zijn. Dat geldt niet alleen voor wielrenners, maar...
+- [Deutsche Bank behaalt ‘recordwinst’ in tweede kwartaal](https://fd.nl/bedrijfsleven/1605983/deutsche-bank-behaalt-recordwinst-in-tweede-kwartaal)
+  > Deutsche Bank heeft een 10% hogere omzet geboekt in het tweede kwartaal van dit jaar.
+- [Iraanse raketaanval op Amerikaanse basis in Jordanië](https://fd.nl/politiek/1605982/iraanse-raketaanval-op-amerikaanse-basis-in-jordanie)
+  > Met de nieuwe aanvallen op een Amerikaanse militaire basis laait de strijd tussen Iran en de VS opnieuw op na een korte gevechtspauze.
+- [IMCD overtreft verwachtingen van analisten](https://fd.nl/bedrijfsleven/1606090/imcd-overtreft-verwachtingen-van-analisten)
+  > Autonome groei en overnames zorgen voor een omzetstijging. De marges dalen iets door overname van minder winstgevende bedrijven.
+- [Live: Ondanks ruim 500% winstgroei vallen cijfers SK Hynix tegen](https://fd.nl/financiele-markten/1605981/live-beleggers-hebben-drukke-dag-voor-de-boeg)
+  > Het beeld in Azië is woensdag gemengd. Vooral landen met een zware AI/chip-vertegenwoordiging hebben het zwaar.
+- [Fatbikekoning Armando Muis: ‘Een waarzegger heeft mij nog geloviger gemaakt’](https://fd.nl/bedrijfsleven/1605001/fatbikekoning-armando-muis-een-waarzegger-heeft-mij-nog-geloviger-gemaakt)
+  > De Achterhoekse ondernemer, afkomstig uit een nest van Jehova’s getuigen, vreest de kruistocht tegen de controversiële fatbike allerminst. Muis...
 
 ### Meest gelezen
 
