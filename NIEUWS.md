@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-07-2026 om 12:03*
+*Laatst bijgewerkt: 29-07-2026 om 15:09*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Recordomzet chipmachinemaker ASM ondanks zorgen over Chinese concurrentie](https://nos.nl/l/2624828)
-  > Naast ASML blijft ook ASM, de tweede Nederlandse maker van chipmachines, profiteren van de wereldwijde groei van kunstmatige intelligentie, AI. De...
-- ['BMW schrapt 8000 banen, alleen productiepersoneel blijft buiten schot'](https://nos.nl/l/2624827)
-  > Duitse media melden dat na andere Duitse automerken ook BMW moet reorganiseren. Persbureau DPA hoorde van bronnen dat de komende anderhalf jaar...
-- [Duitse riviercruises belanden door laagwater in Rotterdam, 'hier heb je geen bergen'](https://nos.nl/l/2624825)
-  > Duitse riviercruises die eigenlijk op weg waren naar Zwitserland, belanden door de lage waterstand nu in Nederland. De cruiseschepen wijken uit naar...
-- [Minderjarige bewoner aangehouden in onderzoek naar brand jeugdinstelling Beekbergen](https://nos.nl/l/2624824)
-  > Een minderjarige bewoner is aangehouden in verband met de brand in het jeugdzorgcentrum Beekbergen. Wat de rol van de jongere is, is nog onduidelijk....
-- [Brabantse carnavalsparodie op Abba-liedje niet terug op Spotify op last van rechter](https://nos.nl/l/2624823)
-  > Carnavalskraker Dikke Pens van de Brabantse band De Kapotte Kachels wordt niet teruggeplaatst op muziekstreamingsdienst Spotify.
-        De Utrechtse...
+- [Gedumpte auto Engelen is van inwoners die poster Vluchtelingenwerk voor raam hadden](https://nos.nl/l/2624867)
+  > De auto die vanochtend in het water is gevonden bij Engelen, is van dorpsbewoners die eerder een poster van stichting Vluchtelingenwerk voor het raam...
+- [Verdachte fataal ongeluk Zeeuws schoolkamp beging vaker grove verkeersovertredingen](https://nos.nl/l/2624864)
+  > De verdachte (20) van het ongeluk in Zeeuws-Vlaanderen waarbij vorige maand vier doden vielen, reed op de dag dat het misging drie keer te hard. In...
+- [Franse branden verwoesten ook toeristeneconomie, ondernemers houden hart vast](https://nos.nl/l/2624859)
+  > Voor duizenden ondernemers in het Franse departement Gironde is dit hét seizoen waarin het moet gebeuren. Maar uitgerekend nu, midden in de zomer,...
+- [Reizigers helpen NS over eerste halfjaar uit de rode cijfers](https://nos.nl/l/2624856)
+  > De Nederlandse Spoorwegen komen langzaam maar zeker uit de grote financiële problemen. Dat komt volgens de grootste reizigersvervoerder van het land...
+- [Amsterdam plaatst betonblokken voor Pride-viering](https://nos.nl/l/2624855)
+  > De gemeente Amsterdam heeft rondom het Javaplein in stadsdeel Oost betonblokken geplaatst. Dat gebeurt in aanloop naar een Pride-feest. Sinds 15.00...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Braziliaanse verdediger breekt been met horrortackle en mag niet spelen zolang slachtoffer niet op veld kan staan](https://www.ad.nl/voetbal/braziliaanse-verdediger-breekt-been-met-horrortackle-en-mag-niet-spelen-zolang-slachtoffer-niet-op-veld-kan-staan~a20874c9/)
-  > Een Braziliaans sporttribunaal heeft verdediger Victor Gabriel van Internacional na een horrorovertreding een opmerkelijke schorsing gegeven. Gabriel...
-- [Lichaam van Schotse vrouw (38) gevonden in verlaten gebouw in Athene](https://www.ad.nl/buitenland/lichaam-van-schotse-vrouw-38-gevonden-in-verlaten-gebouw-in-athene~a9d584b8/)
-  > Het lichaam van een 38-jarige Schotse vrouw is gevonden in een koffer in een verlaten gebouw in de Griekse hoofdstad Athene. Dat maken de Griekse...
-- [Ierse zanger en Oscarwinnaar Glen Hansard (56) overleden na motorongeluk](https://www.ad.nl/show/ierse-zanger-en-oscarwinnaar-glen-hansard-56-overleden-na-motorongeluk~ae918e6b/)
-  > De Ierse muzikant Glen Hansard is op 56-jarige leeftijd overleden, melden verschillende Ierse media woensdag. De zanger kwam volgens onder meer de...
-- [Opvallend: Peruviaanse club heeft 1000 sponsors op één voetbalshirt gedrukt](https://www.ad.nl/voetbal/opvallend-peruviaanse-club-heeft-1000-sponsors-op-een-voetbalshirt-gedrukt~ac4bc90b8/)
-  > De Peruviaanse voetbalclub Club Deportivo Municipal heeft een uniek voetbalshirt ontworpen met ruimte voor maar liefst 1.000 verschillende sponsoren....
-- [Oud-wielrenner Thomas Dekker en partner Debby verliezen ongeboren kindje: ‘Voor altijd in ons hart’](https://www.ad.nl/show/oud-wielrenner-thomas-dekker-en-partner-debby-verliezen-ongeboren-kindje-voor-altijd-in-ons-hart~a392d29c/)
-  > Thomas Dekker (41) en zijn partner Debby van Adrichem delen woensdag verdrietig nieuws. De twee hebben hun ongeboren kindje Sammi ‘moeten laten...
+- [‘Landverrader’ Mancini verdeelt Italië bij zijn terugkeer als bondscoach](https://www.ad.nl/voetbal/landverrader-mancini-verdeelt-italie-bij-zijn-terugkeer-als-bondscoach~ad5b4b92/)
+  > Italië heeft een nieuwe bondscoach, zowaar. Maar met Roberto Mancini is de rust nog allerminst teruggekeerd. De trainer zelf heeft vanavond bij zijn...
+- [Hoe verwerk je het verlies van een ongeboren kind? Dit kan volgens experts helpen](https://www.ad.nl/gezond/hoe-verwerk-je-het-verlies-van-een-ongeboren-kind-dit-kan-volgens-experts-helpen~a439200f/)
+  > Een zwangerschap die afbreekt tot zestien weken is officieel een miskraam, erna heet het een vroeggeboorte. Maar het verdriet om het verlies is in...
+- [Loiza Lamers en hockeyclub redden tv-kok Hugo Kennis nadat hij zichzelf verloor in seks, drank en drugs](https://www.ad.nl/show/loiza-lamers-en-hockeyclub-redden-tv-kok-hugo-kennis-nadat-hij-zichzelf-verloor-in-seks-drank-en-drugs~a6b28fd1/)
+  > Tv-kok Hugo Kennis (40) verloor zich na een pijnlijke relatiebreuk volledig in seks, drank en drugs. Uiteindelijk kwam hij erbovenop dankzij een...
+- [Alarmbellen gaan af als twee dementerende vrouwen vermist zijn: zitten verderop in de McDonald’s](https://www.ad.nl/amersfoort/alarmbellen-gaan-af-als-twee-dementerende-vrouwen-vermist-zijn-zitten-verderop-in-de-mcdonalds~a3a79d58/)
+  > Twee dames van woonzorgcentrum Nijenstede in Amersfoort lieten het personeel en hun families flink schrikken toen ze afgelopen zaterdagavond de hort...
+- [Kian Fitz-Jim staat voor keuring in Turijn; Ajax haalt rond 3 miljoen euro binnen](https://www.ad.nl/voetbal/kian-fitz-jim-staat-voor-keuring-in-turijn-ajax-haalt-rond-3-miljoen-euro-binnen~aeb064f4/)
+  > Kian Fitz-Jim (23) ondergaat vandaag nog de medische keuring bij Torino. De middenvelder maakt de overstap van Ajax en gaat voor drie jaar, met een...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Praten met AI is het ontdekken van een oud Portugees stadje](https://fd.nl/opinie/1605879/praten-met-ai-is-het-ontdekken-van-een-oud-portugees-stadje)
-  > Is AI een aanslag op onze intuïtie? Nee: techniek die het denkproces overneemt, sloopt je intuïtie, maar de chatbot houdt me een spiegel voor,...
-- [Onderhoudstak van KLM onder verscherpt toezicht geplaatst door toezichthouder](https://fd.nl/bedrijfsleven/1606101/onderhoudstak-van-klm-onder-verscherpt-toezicht-geplaatst-door-toezichthouder)
-  > De vliegveiligheid is niet in het geding, maar er heerst wel een ‘ondermaatse veiligheidscultuur’, stelt de Inspectie Leefomgeving en Transport.
-- [Fysiotherapeuten volharden in strijd om hogere vergoedingen van grote zorgverzekeraars](https://fd.nl/bedrijfsleven/1605202/fysiotherapeuten-volharden-in-strijd-om-hogere-vergoedingen-van-grote-zorgverzekeraars)
-  > De praktijken eisen tot 45% hogere vergoedingen van de zorgverzekeraars. ‘Iedere dag dat de fysiotherapeuten zorg verlenen, lijden zij schade door de...
-- [Tegenvallende cijfers SK Hynix voeden techzenuwen bij beleggers](https://fd.nl/financiele-markten/1606099/tegenvallende-cijfers-sk-hynix-voeden-techzenuwen-bij-beleggers)
-  > De geheugenchips van de Koreaanse onderneming leverden afgelopen kwartaal minder omzet op dan verwacht. Dat leidde tot een nieuwe verkoopgolf van...
-- [Laag water als het nieuwe normaal bedreigt Nederland doorvoerland](https://fd.nl/bedrijfsleven/1605735/laag-water-als-het-nieuwe-normaal-bedreigt-nederland-doorvoerland)
-  > Nederland kampt voor de derde keer in acht jaar met extreem lage waterstanden. Hoe zorgen we dat er nog toekomst is voor de binnenvaart, goed voor...
+- [Nieuw banenverlies in Duitse autosector: ook BMW zet bijl in organisatie](https://fd.nl/bedrijfsleven/1605997/nieuw-banenverlies-in-duitse-autosector-ook-bmw-zet-bijl-in-organisatie)
+  > De Beierse fabrikant volgt het voorbeeld van branchegenoten en schrapt arbeidsplaatsen. De focus daarbij ligt vooral op kantoorbanen.
+- [Solistisch straatschoffie brengt WorldPride naar Amsterdam](https://fd.nl/bedrijfsleven/1606095/solistisch-straatschoffie-brengt-worldpride-naar-amsterdam)
+  > Tegenstanders noemen hem ‘almachtige directeur’, fans een ‘emotionele man met een gouden hart’. Lucien Spee haalde WorldPride naar Amsterdam.
+- [Europese banken vol zelfvertrouwen na hogere kwartaalcijfers](https://fd.nl/bedrijfsleven/1606109/europese-banken-vol-zelfvertrouwen-na-hogere-kwartaalcijfers)
+  > Een beweeglijke beurs en stijgende rentes, het zijn gunstige omstandigheden voor Europese banken. Woensdag kwamen Caixabank, Deutsche Bank en UBS met...
+- [Scheuring op Poolse rechterflank: conservatieve PiS verliest tientallen parlementariërs](https://fd.nl/politiek/1605994/scheuring-op-poolse-rechterflank-conservatieve-pis-verliest-tientallen-parlementariers)
+  > Onvrede over de radicale koers van partijleider Jaroslaw Kaczyński verdeelt de grootste Poolse oppositiepartij. Een groep rond oud-premier Mateusz...
+- [Bosbranden in Europa zijn hevig, maar nog niet zo erg als vorig jaar](https://fd.nl/samenleving/1606107/bosbranden-in-europa-zijn-hevig-maar-nog-niet-zo-erg-als-vorig-jaar)
+  > In 2022 en vooral in 2025 werden Europese landen nog zwaarder getroffen door natuurbranden.
 
 ### Meest gelezen
 
