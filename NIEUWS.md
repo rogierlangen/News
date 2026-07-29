@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-07-2026 om 20:59*
+*Laatst bijgewerkt: 29-07-2026 om 22:07*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Recordaantal migranten zwemt van Marokko naar Spaanse enclave: 'Uitzonderlijke situatie'](https://nos.nl/l/2624899)
+  > Een recordaantal van meer dan 1500 migranten heeft de afgelopen dagen zwemmend de Spaanse enclave Ceuta bereikt vanuit Marokko. Dat melden de...
 - [Man veroordeeld die vriendin probeerde te wurgen, nieuw wurgonderzoek speelde rol](https://nos.nl/l/2624896)
   > Voor het eerst heeft de nieuwe Rotterdamse methode voor het onderzoeken van wurgpogingen een rol gespeeld bij de veroordeling van een man die zijn...
 - [Honderden mensen in Utrecht herdenken Pride-aanslag Berlijn](https://nos.nl/l/2624893)
@@ -16,8 +18,6 @@
   > Drugs- of alcoholverslaafden die in Italië zijn veroordeeld tot een celstraf, moeten die thuis kunnen uitzitten, als het aan het parlement ligt. Een...
 - [In dit crisiscentrum volgen ze dag en nacht de bosbranden in Europa](https://nos.nl/l/2624889)
   > De Europese Unie gaat het aantal eigen blusvliegtuigen voor bosbranden uitbreiden. Waarschijnlijk zijn de nieuwe blusvliegtuigen pas in 2030 klaar,...
-- [Vier vrouwen doen boekje open over vermeend seksueel wangedrag acteur Jared Leto](https://nos.nl/l/2624888)
-  > Vier vrouwen beschuldigen acteur en Thirty Seconds to Mars-frontman Jared Leto (53) van seksueel wangedrag. Dat blijkt uit de vandaag verschenen...
 
 ### Meest gelezen
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Zeven doden door crash met blushelikopter in Argentinië](https://www.ad.nl/buitenland/zeven-doden-door-crash-met-blushelikopter-in-argentinie~a63b0fce/)
+  > In het westen van Argentinië zijn zeven mensen omgekomen door een ongeluk met een blushelikopter. Het toestel werd gebruikt bij het bestrijden van...
 - [Evacuaties in Portugal om natuurbrand, dorp volledig omsingeld](https://www.ad.nl/buitenland/evacuaties-in-portugal-om-natuurbrand-dorp-volledig-omsingeld~ad0a3949/)
   > In het noorden van Portugal zijn mensen uit een dorp geëvacueerd vanwege een natuurrand die zich snel verspreidt, meldt nieuwssite Observador. Het...
 - [FIFA-baas reageert na kritiek op omstreden investeringsplan voor WK’s: ‘Het is een kans, geen verplichting’](https://www.ad.nl/voetbal/fifa-baas-reageert-na-kritiek-op-omstreden-investeringsplan-voor-wks-het-is-een-kans-geen-verplichting~ac0d7543/)
@@ -35,8 +37,6 @@
   > Arie uit B&B vol liefde heeft veel weg van een van de vrijgezellen die we in een eerder seizoen zagen en die wél het liefdesgeluk vond. Maar of...
 - [Airbus gaat 'opvouwbare vleugels' testen op het vliegtuig waarmee je op vakantie gaat](https://www.ad.nl/binnenland/airbus-gaat-opvouwbare-vleugels-testen-op-het-vliegtuig-waarmee-je-op-vakantie-gaat~a90e9537/)
   > Het klinkt als een gek idee, maar het zou kunnen dat het vliegtuig waarmee je over een paar jaar op vakantie gaat, opvouwbare vleugels heeft....
-- [Zelensky waarschuwt voor nacht met enorme Russische luchtaanval](https://www.ad.nl/buitenland/zelensky-waarschuwt-voor-nacht-met-enorme-russische-luchtaanval~adfb97be/)
-  > Volgens de Oekraïense president Volodymyr Zelensky is het ‘zeer waarschijnlijk’ dat Rusland in de nacht van woensdag op donderdag een enorme...
 
 ### Meest gelezen
 
