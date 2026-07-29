@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-07-2026 om 17:18*
+*Laatst bijgewerkt: 29-07-2026 om 19:22*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Eindhovense terreurverdachte (19) eerder veroordeeld voor terrorisme](https://nos.nl/l/2624876)
-  > Een van de drie verdachten die vannacht werden opgepakt vanwege een lopend terrorisme-onderzoek, is eerder veroordeeld voor het voorbereiden van een...
-- [Franse vrouw opgepakt na vondst stoffelijke resten van baby's in woning](https://nos.nl/l/2624873)
-  > In Frankrijk is een vrouw opgepakt in wiens huis de stoffelijke resten van vijf baby's zijn gevonden. Justitie is een onderzoek gestart naar moord op...
-- [Ierse zanger en Oscarwinnaar Glen Hansard (56) omgekomen bij motorongeluk](https://nos.nl/l/2624871)
-  > De Ierse muzikant en Oscarwinnaar Glen Hansard is om het leven gekomen bij een eenzijdig motorongeluk. Hansard is 56 jaar geworden.
-        Volgens...
-- [Doodgestoken meisje uit Blerick werd op bed gevonden, vastgebonden met tape](https://nos.nl/l/2624870)
-  > Het lichaam van de 14-jarige Nour uit Blerick, die in april werd doodgestoken, is door de politie gevonden op haar eigen bed in haar ouderlijk huis....
-- [Gedumpte auto Engelen is van inwoners die poster Vluchtelingenwerk voor raam hadden](https://nos.nl/l/2624867)
-  > De auto die vanochtend in het water is gevonden bij Engelen, is van dorpsbewoners die eerder een poster van stichting Vluchtelingenwerk voor het raam...
+- [Lenin van 9 meter hoog verhuist naar ander Gronings dorp: 'Niemand kan eromheen'](https://nos.nl/l/2624885)
+  > Een metershoog standbeeld van Vladimir Lenin dat al decennialang in Groningen staat, is tijdelijk verhuisd naar Oostwold in de gemeente Oldambt. De...
+- [Afsluiting Twentekanaal kost ondernemers tonnen per dag](https://nos.nl/l/2624884)
+  > Lage waterstanden zijn voor veel ondernemers langs het Twentekanaal niet nieuw. Maar dat het kanaal nu zelfs is afgesloten, noemen ze extreem.
+      ...
+- [Droneaanval op Amerikaanse opslagtanker in Egyptische havenstad](https://nos.nl/l/2624882)
+  > Bij een droneaanval op de haven van de Egyptische stad Damietta, aan de Middellandse Zee, is een Amerikaanse gastanker geraakt. Dat meldt het Britse...
+- [Behandelaar twijfelde aan aanslagpleger Berlijn, maar zag geen acuut gevaar](https://nos.nl/l/2624881)
+  > De dader van de aanslag op de Pride in Berlijn liep vrij rond, omdat hij had beloofd mee te werken aan een deradicaliseringstraject. Zijn...
+- [Madonna komt naar World Pride Music Festival in Amsterdam: 'Iconic'](https://nos.nl/l/2624880)
+  > Madonna komt dit weekend naar het World Pride Music Festival in Amsterdam. Dat heeft de Amerikaanse zangeres bekendgemaakt in een bericht op sociale...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Kan een veiligheidshamer echt levens redden?](https://www.ad.nl/auto/kan-een-veiligheidshamer-echt-levens-redden~aba4017e/)
-  > Waarom is het niet verplicht om een veiligheidshamer in de auto te hebben, vraagt lezer Martin Brandt zich af. Onze auto-expert Niek Schenk geeft...
-- [Biermarkt zakt hard weg, maar liefhebbers zijn dorstig naar unieke en buitenlandse brouwsels](https://www.ad.nl/economie/biermarkt-zakt-hard-weg-maar-liefhebbers-zijn-dorstig-naar-unieke-en-buitenlandse-brouwsels~a1db5d06/)
-  > De Nederlandse biermarkt staat weliswaar onder druk, er zijn ondernemers die verfrissend goede zaken doen. Zoals Raoul van Neer, die vooral online...
-- [Tijd voor een écht nationale aanpak tegen onze wegrottende funderingen](https://www.ad.nl/commentaar/tijd-voor-een-echt-nationale-aanpak-tegen-onze-wegrottende-funderingen~adbb7414/)
-  > Grote delen van ons land zakken weg. Door de inklinkende bodem of een te lage grondwaterstand kampen honderdduizenden huizen met funderingsproblemen....
-- [De vrouwen fietsen in de Tour niet langer in de schaduw van hun mannelijke collega’s](https://www.ad.nl/wielrennen/de-vrouwen-fietsen-in-de-tour-niet-langer-in-de-schaduw-van-hun-mannelijke-collegas~a8764761/)
-  > De vijfde editie van de Tour de France Femmes staat niet meer in de schaduw van de mannen. Met tientallen miljoenen kijkers, sponsorcontracten tot...
-- [Ook in tweede gevangenis probeert ‘levensgevaarlijke’ Vi K. (41) iemand dood te steken](https://www.ad.nl/binnenland/ook-in-tweede-gevangenis-probeert-levensgevaarlijke-vi-k-41-iemand-dood-te-steken~aa058f71/)
-  > Zijn halsslagader werd op een millimeter gemist. Tijdens een worsteling in de keuken van de gevangenis in Grave haalde Vi K. (41) vrijdag een...
+- [Nederlandse vrouw moest halsoverkop vluchten voor bosbrand bij Bordeaux: ‘De eerste nacht sliep ik in de auto’](https://www.ad.nl/buitenland/nederlandse-vrouw-moest-halsoverkop-vluchten-voor-bosbrand-bij-bordeaux-de-eerste-nacht-sliep-ik-in-de-auto~a5426d59/)
+  > Er staat politie aan de deur. Binnen 10 minuten moet je evacueren en je mag alleen je belangrijkste spullen meenemen. Een grote bosbrand dreigt je...
+- [Limburgse advocaat op de vingers getikt na gebruik ‘hallucinerende’ AI in rechtszaak](https://www.ad.nl/binnenland/limburgse-advocaat-op-de-vingers-getikt-na-gebruik-hallucinerende-ai-in-rechtszaak~a2af54d0/)
+  > Een Limburgse advocaat zal voortaan wel twee keer nadenken voordat ze kunstmatige intelligentie inzet voor haar werk. Ze is door de tuchtrechter op...
+- [Nils had een vrouw en kinderen, net als Tommy: ‘Dat we in hetzelfde schuitje zaten, schiep meteen een band’](https://www.ad.nl/mezza/nils-had-een-vrouw-en-kinderen-net-als-tommy-dat-we-in-hetzelfde-schuitje-zaten-schiep-meteen-een-band~a9f05a17/)
+  > Nils (50) hield zielsveel van zijn vrouw Marianne, maar diep vanbinnen wist hij dat hij op mannen valt. „Ik kan nu zijn wie ik ben’’, vertelt hij in...
+- [Pijnlijke outfitvideo van Haagse influencer gaat de wereld over en dat vindt niet elke kijker goed nieuws](https://www.ad.nl/show/pijnlijke-outfitvideo-van-haagse-influencer-gaat-de-wereld-over-en-dat-vindt-niet-elke-kijker-goed-nieuws~a197f35f/)
+  > De Haagse influencer Guido, bekend van zijn outfitsketches onder de naam Life of Pappa, gaat dankzij een Britse collega de wereld over. Niall...
+- [Pus, bloed en een wond die niet geneest: duizenden operaties voor deze verzwegen kwaal](https://www.ad.nl/binnenland/pus-bloed-en-een-wond-die-niet-geneest-duizenden-operaties-voor-deze-verzwegen-kwaal~a8229cc3/)
+  > Een minuscuul haartje kan mannen (en soms vrouwen) jarenlang uit de schoolbanken, van hun werk en zelfs uit de buurt van de liefde houden. Chirurgen...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Grant Thornton wordt door overname grootste accountant buiten Big Four in VS](https://fd.nl/financiele-markten/1606002/grant-thornton-wordt-door-overname-grootste-accountant-buiten-big-four-in-vs)
-  > De overname past in de consolidatieslag die de afgelopen jaren in het middensegment van de accountancymarkt heeft plaatsgevonden.
-- [Monocultuur en een natte winter maken Franse natuurbrand ‘onbeheersbaar’](https://fd.nl/samenleving/1605996/monocultuur-en-een-natte-winter-maken-franse-natuurbrand-onbeheersbaar)
-  > In Frankrijk is deze zomer al meer natuur verbrand dan in het laatste recordjaar, 2022. De vierde hittegolf van het jaar staat voor de deur.
-- [Cryptobedrijven vallen bij bosjes om, onder druk van ingedutte markt en strengere regels](https://fd.nl/bedrijfsleven/1605989/cryptobedrijven-vallen-bij-bosjes-om-onder-druk-van-ingedutte-markt-en-strengere-regels)
-  > Het einde van derivatenbeurs Bitmex past in een trend van cryptobedrijven die het bijltje erbij neergooien. Grotere partijen blijven wel overeind.
-- [‘Verzekeraars gaan meer verdienen aan pensioen, minder aan schade’](https://fd.nl/financiele-markten/1606001/verzekeraars-gaan-meer-verdienen-aan-pensioen-minder-aan-schade)
-  > In een nieuw sectorrapport beschrijft advieskantoor KPMG een verschuiving in het verdienmodel van Nederlandse verzekeraars.
-- [Rheinmetall overtreft verwachtingen van analisten met recordomzetgroei](https://fd.nl/bedrijfsleven/1606000/rheinmetall-overtreft-verwachtingen-van-analisten-bij-kwartaalcijfers)
-  > Dat defensiemateriaal in trek is, blijkt wel uit de omzet van dit kwartaal. Die is met 70% gestegen ten opzichte van een jaar eerder, tot €3,3 mrd.
+- [Air France-KLM en Lufthansa vechten om Portugese luchtvaartmaatschappij](https://fd.nl/bedrijfsleven/1606006/air-france-klm-en-lufthansa-vechten-om-portugese-luchtvaartmaatschappij)
+  > TAP Air is een van de laatst overgebleven onafhankelijke nationale luchtvaartmaatschappijen van Europa, maar niet lang meer.
+- [‘Verkoopdoel controversiële elektrische Ferrari nu al behaald’](https://fd.nl/bedrijfsleven/1606116/verkoopdoel-controversiele-elektrische-ferrari-nu-al-behaald)
+  > Dat zeggen anonieme Ferrari-bronnen tegen de Britse zakenkrant Financial Times. Vooral in China is het model ‘Luce’, dat €550.000 kost, populair.
+- [Terwijl Fed rente gelijkhoudt, geeft Warsh weinig antwoorden over inflatie](https://fd.nl/financiele-markten/1605995/fed-houdt-rente-gelijk-maar-zorgen-over-aanhoudend-hoge-inflatie)
+  > De Federal Reserve zal de rente gelijk houden, maar binnen het Fed-bestuur is onder leiding van Warsh sprake van verdeeldheid. Drie bestuurders waren...
+- [De Mendix-zaak levert welkome duidelijkheid op](https://fd.nl/opinie/1606108/de-mendix-zaak-levert-welkome-duidelijkheid-op)
+  > Een rechtszaak levert jurisprudentie op die nuttig is voor anderen die in vergelijkbare discussies met de Belastingdienst belanden.
+- [Grondstoffenbedrijf AMG voert jaarprognoses op](https://fd.nl/bedrijfsleven/1606114/grondstoffenbedrijf-amg-voert-jaarprognoses-op)
+  > Ondanks geopolitieke instabiliteit presteert beursfonds goed.
 
 ### Meest gelezen
 
