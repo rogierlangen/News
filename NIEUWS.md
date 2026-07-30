@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-07-2026 om 15:13*
+*Laatst bijgewerkt: 30-07-2026 om 17:39*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Zwitserse oud-politicus verdacht van drogeren en verkrachten ex-partners en minderjarige](https://nos.nl/l/2624969)
-  > In Zwitserland wordt een voormalig kantonparlementariër verdacht van het drogeren en verkrachten van drie vrouwen. Het gaat om zijn ex-vrouw, zijn...
-- [Bijna 100 boetes voor vrachtwagens die ondanks verbod over Merwedebrug rijden](https://nos.nl/l/2624967)
-  > In vijf dagen tijd zijn er 96 boetes uitgedeeld aan chauffeurs van vrachtwagens en touringcars die - ondanks een verbod - toch over de Merwedebrug...
-- [Geen landelijke maatregelen tegen droogte, ondanks historisch lage waterstand Rijn](https://nos.nl/l/2624965)
-  > De droogte in Nederland neemt verder toe, maar er worden voorlopig geen landelijke of bovenregionale maatregelen genomen. Ook is er nog geen tekort...
-- [Meth, ketamine en yaba: Thailand wordt overspoeld door spotgoedkope drugs](https://nos.nl/l/2624964)
-  > De Thaise politie breekt record op record met onderscheppingen van synthetische drugs langs de landsgrenzen. Vorig jaar nam het ruim 851 miljoen...
-- [Neergestort object in Polen waarschijnlijk Russische raket, zegt premier Tusk](https://nos.nl/l/2624959)
-  > Een krater met een doorsnee van 10 meter en restanten van een projectiel. Vanochtend vroeg werden inwoners van het Poolse dorpje Tarnawa-Kolonia...
+- [Opnieuw burgemeesters van Turkse oppositie aangehouden](https://nos.nl/l/2624982)
+  > De Turkse politie heeft opnieuw burgemeesters van oppositiepartij CHP aangehouden. Dit keer gaat het om de burgemeester van het district Etimesgut in...
+- [Van 11 tot 20 augustus geen treinen tussen Utrecht en Den Bosch](https://nos.nl/l/2624980)
+  > Er rijden van 11 augustus tot en met 20 augustus geen treinen tussen Utrecht en 's-Hertogenbosch. ProRail werkt dan op verschillende plekken op de...
+- [Duizenden migranten bereiken Spaanse Ceuta, lokaal bestuur wil noodtoestand](https://nos.nl/l/2624975)
+  > Duizenden migranten hebben vandaag de Spaanse exclave Ceuta bestormd. Het lokale bestuur heeft de nationale overheid gevraagd de noodtoestand uit te...
+- [Deportatieherdenking Joodse Rotterdammers kort onderbroken door demonstranten](https://nos.nl/l/2624974)
+  > De jaarlijkse herdenking van de deportatie van Joodse Rotterdammers is korte tijd onderbroken geweest. Demonstranten waren tegen de komst van de...
+- [Fruit wordt duurder en kleiner door droogte, zeggen Nederlandse fruittelers](https://nos.nl/l/2624971)
+  > Vruchten van de volgende fruitoogst vallen kleiner uit dan normaal. Dat komt door droogte in Europa, zegt John Kusters, voorzitter van de Nederlandse...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Oud-coronabaas Anthony Fauci houdt kaken stijf op elkaar en vreest vervolging: ‘Het is een heksenjacht’](https://www.ad.nl/buitenland/oud-coronabaas-anthony-fauci-houdt-kaken-stijf-op-elkaar-en-vreest-vervolging-het-is-een-heksenjacht~a8d725a0/)
-  > Oud-president Joe Biden verleende hem preventief gratie, maar toch hield de 85-jarige Anthony Fauci, de Amerikaanse evenknie van Jaap van Dissel,...
-- [Duizenden migranten bestormen vanuit Marokko EU-grondgebied in Spaanse exclave](https://www.ad.nl/buitenland/duizenden-migranten-bestormen-vanuit-marokko-eu-grondgebied-in-spaanse-exclave~a70914dc/)
-  > Duizenden migranten zijn donderdag de Spaanse Afrikaanse exclave Ceuta binnengetrokken, vooral via het strand en de zee, melden Spaanse media. Eerder...
-- [Zonder partnerpensioen en midden in de rouw: Catharina had twee baantjes nodig om rond te komen](https://www.ad.nl/geld/zonder-partnerpensioen-en-midden-in-de-rouw-catharina-had-twee-baantjes-nodig-om-rond-te-komen~a70cf5af/)
-  > Catharina (68) verloor haar vader en haar man kort na elkaar in coronatijd. Partnerpensioen was niet geregeld, dus moest ze van twee baantjes zien...
-- [Rijn officieel op laagste stand, droogte neemt toe, nog geen nationale maatregelen](https://www.ad.nl/politiek/rijn-officieel-op-laagste-stand-droogte-neemt-toe-nog-geen-nationale-maatregelen~a16ea922/)
-  > De Rijn heeft bij meetpunt Lobith formeel de laagste stand ooit bereikt. En de droogte neemt nog altijd toe, meldt het ministerie van Infrastructuur...
-- [Van enorme tros bananen tot levende kreeft en seksspeeltjes: opvallendste sportprijzen op een rij](https://www.ad.nl/andere-sporten/van-enorme-tros-bananen-tot-levende-kreeft-en-seksspeeltjes-opvallendste-sportprijzen-op-een-rij~abbe8ec5/)
-  > Bauke Mollema won tijdens het wielercriterium de Acht van Chaam zijn gewicht in chocolade. „Het is zeker de meest bijzondere prijs van mijn...
+- [Erica moest haar huis op Kreta achterlaten, terwijl bosbrand steeds dichterbij kroop: ‘We zijn hard geraakt’](https://www.ad.nl/buitenland/erica-moest-haar-huis-op-kreta-achterlaten-terwijl-bosbrand-steeds-dichterbij-kroop-we-zijn-hard-geraakt~a120df25/)
+  > Erica Rijnsburger moest woensdag vanaf het strand van het Griekse eiland Kreta worden geëvacueerd, toen de vlammen steeds dichter bij haar dorpje...
+- [Vooral bij vrouwen die weinig te vrezen hebben is true crime populair](https://www.ad.nl/binnenland/vooral-bij-vrouwen-die-weinig-te-vrezen-hebben-is-true-crime-populair~a3d7e1d5/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Hoe houd je de zomer leuk? ‘Ontspan, in plaats van een vol animatieprogramma te bedenken’](https://www.ad.nl/gezond/hoe-houd-je-de-zomer-leuk-ontspan-in-plaats-van-een-vol-animatieprogramma-te-bedenken~a5dc3b8d/)
+  > Uitrusten in de zomervakantie? Voor veel ouders betekent het vooral uitjes plannen, opvang regelen en zoveel mogelijk tijd met de kinderen...
+- [Wout van Aert alsnog uitgeroepen tot winnaar in Denemarken na herbekijken finishfoto: ‘Een speciale ervaring’](https://www.ad.nl/wielrennen/wout-van-aert-alsnog-uitgeroepen-tot-winnaar-in-denemarken-na-herbekijken-finishfoto-een-speciale-ervaring~ac5402a5/)
+  > Wout van Aert heeft na de eerste ook de tweede etappe in de Ronde van Denemarken gewonnen. De Belg van Visma - Lease a Bike maakt in Denemarken zijn...
+- [Topproducer Timbaland zet hits aan bij festival en roept dan maar één woord: pijnlijke beelden gaan viraal](https://www.ad.nl/show/topproducer-timbaland-zet-hits-aan-bij-festival-en-roept-dan-maar-een-woord-pijnlijke-beelden-gaan-viraal~a07747cb/)
+  > De Amerikaanse producer Timbaland (54) gaat viraal op TikTok vanwege een opmerkelijk optreden bij een Pools festival. Hij speelde zijn hits, maar de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Water in de Rijn op laagste stand ooit gemeten](https://fd.nl/samenleving/1606201/water-in-de-rijn-op-laagste-stand-ooit-gemeten)
-  > Donderdag stond de Rijn bij meetpunt Lobith op 6,47 meter boven NAP. Dat is een nieuw record.
-- [Advocaten blijven cashen](https://fd.nl/financiele-markten/1606154/advocaten-blijven-cashen)
-  > De omzetten van de grootste advocatenkantoren blijven stijgen, ondanks het feit dat de markt snel verandert.
-- [China’s chipkampioen leerde het vak in Silicon Valley](https://fd.nl/bedrijfsleven/1606145/china-s-chipkampioen-leerde-het-vak-in-silicon-valley)
-  > Jarenlang leidde CXMT miljardenverliezen, nu komt het chipbedrijf van Zhu Yiming handen tekort om leveranciers tevreden te houden. De gevestigde orde...
-- [Levenslessen door de lens van Lisa Hu](https://fd.nl/samenleving/1605959/levenslessen-door-de-lens-van-lisa-hu)
-  > Door te fotograferen leerde Lisa Hu, die eerder met haar man een snackbar had, hoe het leven geleefd moet worden.
-- [Boeren blokkeren kortstondig A35 uit protest tegen stikstofplannen](https://fd.nl/samenleving/1606158/boeren-blokkeren-kortstondig-a35-uit-protest-tegen-stikstofplannen)
-  > Tientallen tractoren blokkeerden toeterend de snelweg, melden verschillende lokale media.
+- [Euronext breekt in het tweede kwartaal opnieuw records](https://fd.nl/financiele-markten/1606159/euronext-behaalt-in-tweede-kwartaal-opnieuw-recordomzet)
+  > Het resultaat maakt het afgelopen kwartaal voor Euronext het negende op rij met een omzetgroei in de dubbele cijfers.
+- [Flink lager resultaat Tata Steel IJmuiden, ArcelorMittal boekt meer winst in Europa](https://fd.nl/bedrijfsleven/1606166/flink-lager-resultaat-tata-steel-ijmuiden-arcelormittal-boekt-meer-winst-in-europa)
+  > De tijdelijke sluiting van een gietwalsinstallatie werkt negatief op het resultaat van de fabriek in IJmuiden. Concurrent ArcelorMittal deed in het...
+- [Jachtmakelaar Lengers Yachts uit Muiden failliet](https://fd.nl/bedrijfsleven/1606194/jachtmakelaar-lengers-yachts-uit-muiden-failliet)
+  > Met het bankroet van Lengers Yachts is het einde oefening voor een van de oudste en bekendste makelaars in luxejachten van Nederland.
+- [Uefa-landen eensgezind over plan Fifa: boycot van WK en andere Fifa-competities](https://fd.nl/samenleving/1606163/uefa-landen-eensgezind-over-boycot-fifa-competities)
+  > De vertegenwoordiger van Europese voetbalbonden dreigt met een boycot als Fifa een nieuwe dochter voor het WK opzet en ruim $4 mrd aan private...
+- [Sportmiljardair onderzocht wegens trucs bij verzekeraars](https://fd.nl/financiele-markten/1606200/sportmiljardair-onderzocht-wegens-trucs-bij-verzekeraars)
+  > Volgens een klokkenluider goochelde Mark Walter met omzetten uit zijn verzekeringsmaatschappijen. De FBI en de Amerikaanse beurswaakhond willen van...
 
 ### Meest gelezen
 
