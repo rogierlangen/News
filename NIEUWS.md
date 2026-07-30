@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-07-2026 om 12:47*
+*Laatst bijgewerkt: 30-07-2026 om 15:13*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Dode en gewonden bij botsing tussen busje en vrachtwagen in Overijssel](https://nos.nl/l/2624953)
-  > Bij een verkeersongeluk op de N48 bij Balkbrug in Overijssel is iemand om het leven gekomen. Zes anderen zijn zwaargewond naar het ziekenhuis...
-- [Elf agenten gedood bij tweede aanval op Pakistaanse politiepost in week tijd](https://nos.nl/l/2624952)
-  > Bij een droneaanval en de bestorming van een politiebureau door islamistische militanten in het noordwesten van Pakistan zijn zeker elf agenten...
-- [Tienduizenden evacuees in Frankrijk weer naar huis, noodtoestand Spanje opgeheven](https://nos.nl/l/2624949)
-  > Zo'n 84.000 mensen die waren geëvacueerd vanwege bosbranden in Frankrijk mogen weer naar huis. Het gaat om de regio Lège-Cap-Ferret, ten westen van...
-- [Aantal KLM-reizigers stijgt, ondanks hoge kerosinekosten meer winst](https://nos.nl/l/2624948)
-  > Ondanks de stijgende kerosineprijzen en de oorlog in het Midden-Oosten heeft Air France-KLM toch nog winst gemaakt. Bij de presentatie van de...
-- [Voortvluchtige Bolle Jos weer veroordeeld, Belgische rechter geeft hem 14 jaar](https://nos.nl/l/2624946)
-  > De Nederlandse drugscrimineel Jos L. is in België veroordeeld tot een gevangenisstraf van 14 jaar. Daarmee heeft hij de hoogste straf geregen in een...
+- [Zwitserse oud-politicus verdacht van drogeren en verkrachten ex-partners en minderjarige](https://nos.nl/l/2624969)
+  > In Zwitserland wordt een voormalig kantonparlementariër verdacht van het drogeren en verkrachten van drie vrouwen. Het gaat om zijn ex-vrouw, zijn...
+- [Bijna 100 boetes voor vrachtwagens die ondanks verbod over Merwedebrug rijden](https://nos.nl/l/2624967)
+  > In vijf dagen tijd zijn er 96 boetes uitgedeeld aan chauffeurs van vrachtwagens en touringcars die - ondanks een verbod - toch over de Merwedebrug...
+- [Geen landelijke maatregelen tegen droogte, ondanks historisch lage waterstand Rijn](https://nos.nl/l/2624965)
+  > De droogte in Nederland neemt verder toe, maar er worden voorlopig geen landelijke of bovenregionale maatregelen genomen. Ook is er nog geen tekort...
+- [Meth, ketamine en yaba: Thailand wordt overspoeld door spotgoedkope drugs](https://nos.nl/l/2624964)
+  > De Thaise politie breekt record op record met onderscheppingen van synthetische drugs langs de landsgrenzen. Vorig jaar nam het ruim 851 miljoen...
+- [Neergestort object in Polen waarschijnlijk Russische raket, zegt premier Tusk](https://nos.nl/l/2624959)
+  > Een krater met een doorsnee van 10 meter en restanten van een projectiel. Vanochtend vroeg werden inwoners van het Poolse dorpje Tarnawa-Kolonia...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [FC Twente denkt aan zoon van Ruben Schaken, Marokkaanse WK-revelatie op weg naar ManCity](https://www.ad.nl/voetbal/fc-twente-denkt-aan-zoon-van-ruben-schaken-marokkaanse-wk-revelatie-op-weg-naar-mancity~acbd43e6/)
-  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
-- [KLM gaat in het najaar opnieuw vluchten schrappen vanwege hoge brandstofprijzen](https://www.ad.nl/binnenland/klm-gaat-in-het-najaar-opnieuw-vluchten-schrappen-vanwege-hoge-brandstofprijzen~aee6ba4e/)
-  > Air France-KLM gaat in de laatste maanden van dit jaar vluchten annuleren vanwege de hoge brandstofkosten. Volgens financieel directeur Steven Zaat...
-- [Nederlandse clubs moeten leveren voor cruciale coëfficiëntenpunten, te beginnen met FC Twente en Ajax](https://www.ad.nl/voetbal/nederlandse-clubs-moeten-leveren-voor-cruciale-coefficientenpunten-te-beginnen-met-fc-twente-en-ajax~a6c9873f2/)
-  > Het Europese voetbalseizoen is weer onderweg en dat betekent voor Nederland toch al snel dat er een blik geworpen wordt op de coëfficiëntenranglijst....
-- [Kenneth Taylor wordt weggestuurd van training Lazio na stevige woordenwisseling met Gennaro Gattuso](https://www.ad.nl/voetbal/kenneth-taylor-wordt-weggestuurd-van-training-lazio-na-stevige-woordenwisseling-met-gennaro-gattuso~a8decf94/)
-  > Kenneth Taylor is weggestuurd van de training van Lazio Roma. De middenvelder kwam in een woordenwisseling terecht met Gennaro Gattuso, de nieuwe...
-- [Piloten Icelandair moeten vliegbrevet inleveren na extreem laag ‘rondje om de kerk’ met Boeing 757](https://www.ad.nl/buitenland/piloten-icelandair-moeten-vliegbrevet-inleveren-na-extreem-laag-rondje-om-de-kerk-met-boeing-757~a291943b/)
-  > Twee piloten van Icelandair moeten op de blaren zitten nadat ze een stunt hebben uitgehaald met een Boeing 757 tijdens een lijnvlucht. Een van de...
+- [Oud-coronabaas Anthony Fauci houdt kaken stijf op elkaar en vreest vervolging: ‘Het is een heksenjacht’](https://www.ad.nl/buitenland/oud-coronabaas-anthony-fauci-houdt-kaken-stijf-op-elkaar-en-vreest-vervolging-het-is-een-heksenjacht~a8d725a0/)
+  > Oud-president Joe Biden verleende hem preventief gratie, maar toch hield de 85-jarige Anthony Fauci, de Amerikaanse evenknie van Jaap van Dissel,...
+- [Duizenden migranten bestormen vanuit Marokko EU-grondgebied in Spaanse exclave](https://www.ad.nl/buitenland/duizenden-migranten-bestormen-vanuit-marokko-eu-grondgebied-in-spaanse-exclave~a70914dc/)
+  > Duizenden migranten zijn donderdag de Spaanse Afrikaanse exclave Ceuta binnengetrokken, vooral via het strand en de zee, melden Spaanse media. Eerder...
+- [Zonder partnerpensioen en midden in de rouw: Catharina had twee baantjes nodig om rond te komen](https://www.ad.nl/geld/zonder-partnerpensioen-en-midden-in-de-rouw-catharina-had-twee-baantjes-nodig-om-rond-te-komen~a70cf5af/)
+  > Catharina (68) verloor haar vader en haar man kort na elkaar in coronatijd. Partnerpensioen was niet geregeld, dus moest ze van twee baantjes zien...
+- [Rijn officieel op laagste stand, droogte neemt toe, nog geen nationale maatregelen](https://www.ad.nl/politiek/rijn-officieel-op-laagste-stand-droogte-neemt-toe-nog-geen-nationale-maatregelen~a16ea922/)
+  > De Rijn heeft bij meetpunt Lobith formeel de laagste stand ooit bereikt. En de droogte neemt nog altijd toe, meldt het ministerie van Infrastructuur...
+- [Van enorme tros bananen tot levende kreeft en seksspeeltjes: opvallendste sportprijzen op een rij](https://www.ad.nl/andere-sporten/van-enorme-tros-bananen-tot-levende-kreeft-en-seksspeeltjes-opvallendste-sportprijzen-op-een-rij~abbe8ec5/)
+  > Bauke Mollema won tijdens het wielercriterium de Acht van Chaam zijn gewicht in chocolade. „Het is zeker de meest bijzondere prijs van mijn...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Moederbedrijf van NYSE koopt voor $6 mrd handelsplatform MarketAxess](https://fd.nl/financiele-markten/1606193/moederbedrijf-van-nyse-koopt-voor-6-mrd-handelsplatform-marketaxess)
-  > Met MarketAxess haalt beurzengroep ICE een belangrijk handelsplatform voor obligaties, waaronder Treasury’s, binnen.
-- [Verdeelde Bank of England houdt rente op 3,75%](https://fd.nl/financiele-markten/1606153/verdeelde-bank-of-england-houdt-rente-op-3-75)
-  > De kans dat de Iran-oorlog en hogere olieprijzen de inflatie verder zullen opjagen, blijft wegen op het beleid van centrale banken.
-- [Aandeel vrouwelijke wethouders blijft steken op 29%](https://fd.nl/politiek/1606152/aandeel-vrouwelijke-wethouders-blijft-steken-op-29)
-  > Bij ruim een kwart van de nieuwgevormde gemeentebesturen is geen enkele vrouw benoemd in het college.
-- [Voor AliExpress is de Europese boete onbenullig](https://fd.nl/opinie/1605729/voor-aliexpress-is-de-europese-boete-onbenullig)
-  > Europa controleert strenger op productveiligheid bij intercontinentale webshops. Maar voor giganten als Temu is de boete marginaal ten opzichte van...
-- [Rechtbank verwerpt schadeclaims tegen ethyleenkartel](https://fd.nl/bedrijfsleven/1606150/rechtbank-verwerpt-schadeclaims-tegen-ethyleenkartel)
-  > Vier chemiebedrijven probeerden de prijs van basisingrediënt ethyleen te manipuleren. Dat is ze volgens de Rechtbank Amsterdam niet gelukt, en dus...
+- [Water in de Rijn op laagste stand ooit gemeten](https://fd.nl/samenleving/1606201/water-in-de-rijn-op-laagste-stand-ooit-gemeten)
+  > Donderdag stond de Rijn bij meetpunt Lobith op 6,47 meter boven NAP. Dat is een nieuw record.
+- [Advocaten blijven cashen](https://fd.nl/financiele-markten/1606154/advocaten-blijven-cashen)
+  > De omzetten van de grootste advocatenkantoren blijven stijgen, ondanks het feit dat de markt snel verandert.
+- [China’s chipkampioen leerde het vak in Silicon Valley](https://fd.nl/bedrijfsleven/1606145/china-s-chipkampioen-leerde-het-vak-in-silicon-valley)
+  > Jarenlang leidde CXMT miljardenverliezen, nu komt het chipbedrijf van Zhu Yiming handen tekort om leveranciers tevreden te houden. De gevestigde orde...
+- [Levenslessen door de lens van Lisa Hu](https://fd.nl/samenleving/1605959/levenslessen-door-de-lens-van-lisa-hu)
+  > Door te fotograferen leerde Lisa Hu, die eerder met haar man een snackbar had, hoe het leven geleefd moet worden.
+- [Boeren blokkeren kortstondig A35 uit protest tegen stikstofplannen](https://fd.nl/samenleving/1606158/boeren-blokkeren-kortstondig-a35-uit-protest-tegen-stikstofplannen)
+  > Tientallen tractoren blokkeerden toeterend de snelweg, melden verschillende lokale media.
 
 ### Meest gelezen
 
