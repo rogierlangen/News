@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-07-2026 om 07:36*
+*Laatst bijgewerkt: 30-07-2026 om 10:28*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Handel en horeca trekken economie weer op gang: 0,4 procent groei](https://nos.nl/l/2624918)
-  > De economie lijkt zich maar weinig aan te trekken van alle onrust in de wereld. In het afgelopen kwartaal groeide de economie met 0,4 procent ten...
-- [Franse rietjeslikker in Singapore komt weg met geldboete](https://nos.nl/l/2624915)
-  > Een jonge Fransman heeft in Singapore een boete van omgerekend 406 euro gekregen voor een opmerkelijke actie. De 19-jarige student filmde zichzelf in...
-- [Stroomstoring bij Rijkswaterstaat: groot deel matrixborden niet bediend](https://nos.nl/l/2624913)
-  > De matrixborden boven de wegen in het noordoosten van Nederland hebben vanochtend te maken gehad met een storing. Ze waren enkele uren niet te...
-- [Hoe een concert en pionierswerk de lhbti+-beweging vooruit hielp](https://nos.nl/l/2624910)
-  > De grootste sterren van Nederland die gezamenlijk opstaan voor de rechten van lhbti+-gemeenschap in een tijd waarin homohaat toeneemt. Dat gebeurde...
-- [Podcast De Dag: de koffer van Abdou Bouzerda (Midden-Oostendeskundige)](https://nos.nl/l/2624909)
-  > Deze week pakt podcast De Dag de koffers met leuke gasten. Wat lezen, luisteren of kijken zij om inspiratie op te doen voor de rest van het jaar?...
+- [ING krijgt meer klanten aan het beleggen, maar 'geen SpaceX-effect'](https://nos.nl/l/2624936)
+  > ING ondervindt nog altijd weinig last van alle onrust in de wereld. De grootste bank uit Nederland blijft in alle landen waar het actief is meer...
+- [En dat is acht: wéér een nieuwe invasieve rivierkreeft in Nederland](https://nos.nl/l/2624932)
+  > Ze eten waterplanten en dieren die oorspronkelijk in Nederland voorkomen. En ze graven in oevers. Invasieve rivierkreeften laten een ravage achter...
+- [Brabants waterschap pompt grondwater in beek om beschermde vis te redden](https://nos.nl/l/2624929)
+  > Het Brabantse waterschap Aa en Maas gaat grondwater oppompen om een beek te vullen en zo een beschermde vissoort te redden. Het gaat om de grote...
+- [Shell boekt weer torenhoge kwartaalwinst, drie keer zo hoog als vorig jaar](https://nos.nl/l/2624928)
+  > Shell heeft de afgelopen drie maanden een winst geboekt van 10,8 miljard dollar, omgerekend 9,44 miljard euro. Dat is bijna drie keer zoveel als in...
+- [Dodental na aardbevingen in Japan loopt op, reddingswerk nog in volle gang](https://nos.nl/l/2624927)
+  > Twee dagen na de zware aardbeving bij het zuidelijke Japanse eiland Kyushu is het dodental opgelopen tot 34, meldt de Japanse publieke omroep NHK. De...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Economie Nederland groeit harder in tweede kwartaal, vooral door hogere consumptie](https://www.ad.nl/economie/economie-nederland-groeit-harder-in-tweede-kwartaal-vooral-door-hogere-consumptie~ae41a249/)
-  > De Nederlandse economie is in het tweede kwartaal met 0,4 procent gestegen ten opzichte van een kwartaal eerder. Dat meldt het Centraal Bureau voor...
-- [‘Kudde geiten vreet elke dag honderden kilo’s brandbare vegetatie’: zo wil Spanje vuurzeeën voorkomen](https://www.ad.nl/buitenland/kudde-geiten-vreet-elke-dag-honderden-kilos-brandbare-vegetatie-zo-wil-spanje-vuurzeeen-voorkomen~a948b715/)
-  > De enorme natuurbranden bij Madrid breiden zich vooralsnog niet verder uit, maar de zorgen blijven, zeker nu in Spanje de vierde hittegolf van het...
-- [Lionel Messi hervat tien dagen na verloren WK-finale en na bezoekje aan zijn vader training bij Inter Miami](https://www.ad.nl/voetbal/lionel-messi-hervat-tien-dagen-na-verloren-wk-finale-en-na-bezoekje-aan-zijn-vader-training-bij-inter-miami~a344752d/)
-  > Lionel Messi heeft tien dagen na de verloren WK-finale tegen Spanje (1-0) de training bij Inter Miami alweer hervat. De 39-jarige spelmaker miste de...
-- [Kritieke situatie op Kreta om bosbranden, Sunweb brengt 252 reizigers in veiligheid](https://www.ad.nl/buitenland/kritieke-situatie-op-kreta-om-bosbranden-sunweb-brengt-252-reizigers-in-veiligheid~ad0a3949/)
+- [Franse tiener beboet met 400 euro in Singapore na likken aan rietje en delen van video](https://www.ad.nl/buitenland/franse-tiener-beboet-met-400-euro-in-singapore-na-likken-aan-rietje-en-delen-van-video~a2dd5c20/)
+  > Een Franse tiener heeft in Singapore een boete van 600 Singaporese dollars (ruim 400 euro) gekregen nadat hij schuld had bekend aan openbare...
+- [Sunweb en Corendon brengen Nederlanders op Kreta in veiligheid, 84.000 geëvacueerden terug in Gironde](https://www.ad.nl/buitenland/sunweb-en-corendon-brengen-nederlanders-op-kreta-in-veiligheid-84-000-geevacueerden-terug-in-gironde~ad0a3949/)
   > Meer dan 250 reizigers van de Nederlandse reisorganisatie Sunweb zijn vanwege de hevige bosbranden op Kreta met transferbussen naar andere...
-- [Na de mannen is het woord aan de vrouwen: alle etappes, favorieten en Nederlanders op een rijtje](https://www.ad.nl/wielrennen/na-de-mannen-is-het-woord-aan-de-vrouwen-alle-etappes-favorieten-en-nederlanders-op-een-rijtje~a7bae757/)
-  > De Tour de France Femmes start op zaterdag 1 augustus in Lausanne en eindigt op zaterdag 9 augustus in Nice. De vijfde editie belooft een heel...
+- [Voor 21.000 euro aan terrasstoelen gestolen bij museumcafé van het Bonnefanten in Maastricht](https://www.ad.nl/binnenland/voor-21-000-euro-aan-terrasstoelen-gestolen-bij-museumcafe-van-het-bonnefanten-in-maastricht~a49e8bba/)
+  > Een dief is er vandoor gegaan met alle terrasstoelen van museumcafé Ipanema bij het Bonnefanten in Maastricht. De waarde van de gestolen stoelen:...
+- [Topturnster Sanne Wevers kon ineens geen spagaat meer: ‘Nee, dat ging toen niet zo goed’](https://www.ad.nl/oldenzaal/topturnster-sanne-wevers-kon-ineens-geen-spagaat-meer-nee-dat-ging-toen-niet-zo-goed~a6952018/)
+  > Ze twijfelde serieus of het klaar was. Negen maanden revalideren, een lichaam dat niet eens meer een spagaat toestond. Toch staat olympisch...
+- [Sera treedt dit weekend op met Pride-anthem Girls who like girls: ‘Googelde of we hand in hand over straat konden’](https://www.ad.nl/sliedrecht/sera-treedt-dit-weekend-op-met-pride-anthem-girls-who-like-girls-googelde-of-we-hand-in-hand-over-straat-konden~ad36450eb/)
+  > „Toen ik nog een relatie had, googelde ik voordat we op vakantie gingen of we daar wel hand in hand over straat konden lopen.” Juist daarom is Pride...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Nederlandse economie groeit met 0,4% in tweede kwartaal van 2026](https://fd.nl/economie/1606144/nederlandse-economie-groeit-met-0-4-in-tweede-kwartaal-van-2026)
-  > De consumptie door huishoudens steeg in het tweede kwartaal met 0,5% ten opzichte van het eerste kwartaal. Ten opzichte van hetzelfde kwartaal een...
-- [Hogere omzet in eerste halfjaar voor apotheekbedrijf Fagron](https://fd.nl/bedrijfsleven/1606141/hogere-omzet-in-eerste-halfjaar-voor-apotheekbedrijf-fagron)
-  > De omzetgroei kwam voor een groot deel uit overnames.
-- [CVC mikt op evenaring grootste private-equityfonds ooit](https://fd.nl/bedrijfsleven/1606135/cvc-mikt-op-evenaring-grootste-private-equityfonds-ooit)
-  > De omzet en het brutobedrijfsresultaat bij de beursgenoteerde investeerder stegen in de eerste helft van het jaar iets meer dan analisten hadden...
-- [Winst Air France-KLM onder druk door hogere brandstofprijs](https://fd.nl/bedrijfsleven/1606140/winst-air-france-klm-onder-druk-door-hogere-brandstofprijs)
-  > De luchtvaartmaatschappij blijft last houden van de hoge kerosineprijzen, maar geeft wel aan inmiddels veel van die kosten te hebben terugverdiend...
-- [Nettowinst bij BAM stijgt met 25%](https://fd.nl/bedrijfsleven/1606180/nettowinst-bij-bam-stijgt-met-25)
-  > Het bouwconcern profiteerde van de energietransitie, investeringen in defensie en krapte op de Nederlandse woningmarkt.
+- [Rechtbank verwerpt schadeclaims tegen ethyleenkartel](https://fd.nl/bedrijfsleven/1606150/rechtbank-verwerpt-schadeclaims-tegen-ethyleenkartel)
+  > Vier chemiebedrijven probeerden de prijs van basisingrediënt ethyleen te manipuleren. Dat is ze volgens de Rechtbank Amsterdam niet gelukt, en dus...
+- [Zo maakte Jack Bogles Vanguard beleggen voor iedereen goedkoper](https://fd.nl/financiele-markten/1601906/zo-maakte-jack-bogles-vanguard-beleggen-voor-iedereen-goedkoper)
+  > Weinig ondernemers bespaarden beleggers zoveel geld als Jack Bogle. ‘Zijn’ Vanguard beheert inmiddels meer dan $12.000 mrd.
+- [Hoe goed ken jij de Chinese gemeenschap?](https://fd.nl/samenleving/1605513/hoe-goed-ken-jij-de-chinese-gemeenschap)
+  > Döner, doekoe en doerian. Nederland werd in honderden jaren vele gemeenschappen rijker – waaronder de Chinese. Grijp je kans om die beter te leren...
+- [To Cape or not to Cape](https://fd.nl/financiele-markten/1606183/to-cape-or-not-to-cape)
+  > De Cape-Shiller-ratio laat zien dat aandelen zwaar overgewaardeerd zijn. Zijn de enorme winsten van vandaag wel duurzaam? FD-columnist Corné van...
+- [In Italië zijn de meningen over Rusland nog opvallend verdeeld](https://fd.nl/politiek/1605985/in-italie-zijn-de-meningen-over-rusland-nog-opvallend-verdeeld)
+  > Afgewezen kandidaat-bondscoach Andrea Pirlo zag geen probleem in zijn Russische zakelijke connecties. Hij is in Italië niet de enige.
 
 ### Meest gelezen
 
