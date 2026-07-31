@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-07-2026 om 21:09*
+*Laatst bijgewerkt: 31-07-2026 om 23:04*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Woningen Bilthoven ontruimd om mogelijk gevaarlijke stoffen in auto, twee aanhoudingen](https://nos.nl/l/2625122)
+  > In Bilthoven bij Utrecht zijn tientallen woningen ontruimd vanwege een auto met daarin mogelijk gevaarlijke stoffen. Twee verdachten zijn aangehouden...
 - [VS maakt AI-blunder en zet zes Afrikaanse landen op verkeerde plek op kaart](https://nos.nl/l/2625117)
   > Het Amerikaanse ministerie van Buitenlandse Zaken heeft een blunder begaan op de wereldwijde aidsconferentie in Rio de Janeiro in Brazilië. Tijdens...
 - [Vrouw (20) in Rotterdam ontvoerd en slachtoffer van woningoverval](https://nos.nl/l/2625110)
@@ -16,8 +18,6 @@
   > De afgelopen dagen bereikten tienduizenden migranten via zee en grenshekken de Spaanse exclave Ceuta. Vijf vragen en antwoorden over de situatie...
 - [Extra maatregelen tegen droogte: sluizen rond Den Haag en Rotterdam gaan dicht](https://nos.nl/l/2625107)
   > In verschillende regio's in het land worden extra maatregelen genomen tegen het watertekort door aanhoudende droogte. Alle sluizen in de regio Den...
-- [Waarom valt Iran een Egyptische haven aan? 'Iran kan escaleren als het wil'](https://nos.nl/l/2625097)
-  > Met de beschietingen over en weer richt Iran zijn raketten op doelen steeds verder weg. Waar eerst de Golfstaten, aan de overkant van de Straat van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Losgeldbrieven in zaak Nancy Guthrie vrijgegeven: ‘Haar leven ligt in jouw handen, speel geen spelletjes’](https://www.ad.nl/buitenland/losgeldbrieven-in-zaak-nancy-guthrie-vrijgegeven-haar-leven-ligt-in-jouw-handen-speel-geen-spelletjes~a9591910/)
-  > De Amerikaanse autoriteiten hebben twee losgeldbrieven vrijgegeven die de ontvoerders van Nancy Guthrie stuurden naar presentatrice Savannah Guthrie....
-- [Natuurbranden Frankrijk bedreigen wijngaard waarover Brad Pitt en Angelina Jolie strijden](https://www.ad.nl/show/natuurbranden-frankrijk-bedreigen-wijngaard-waarover-brad-pitt-en-angelina-jolie-strijden~a1016f11/)
-  > De natuurbranden in Frankrijk bedreigen de wijngaard van Brad Pitt en Angelina Jolie. Volgens TMZ lukt het brandweerlieden in de Provence tot nu toe...
-- [Aardbeving in Napels met kracht van 4,7, trein- en metroverkeer stilgelegd](https://www.ad.nl/buitenland/aardbeving-in-napels-met-kracht-van-4-7-trein-en-metroverkeer-stilgelegd~a1e005e2/)
-  > Een aardbeving met een kracht van 4,7 heeft vrijdag het Italiaanse Napels opgeschrikt. De lokale autoriteiten melden dat op sommige plekken de stroom...
-- [Zeker 57 migranten overleden tijdens gevaarlijke oversteek naar Spaanse exclave Ceuta](https://www.ad.nl/buitenland/zeker-57-migranten-overleden-tijdens-gevaarlijke-oversteek-naar-spaanse-exclave-ceuta~a6de9d58/)
-  > Het aantal migranten dat bij de gevaarlijke oversteek naar Ceuta is omgekomen is opgelopen naar 57. Dat schrijft de Spaanse krant El País...
-- [Machinist Rutger zet trein stil om gewonde ooievaar te helpen: ‘Dier was erg verzwakt’](https://www.ad.nl/binnenland/machinist-rutger-zet-trein-stil-om-gewonde-ooievaar-te-helpen-dier-was-erg-verzwakt~add870e6/)
-  > Hij was pas begonnen als vrijwilliger bij de dierenambulance. Toen machinist Rutger Teule (34) bij Zwolle een gewonde ooievaar langs het spoor zag...
+- [New York Post: ‘FIFA staakt omstreden plan voor verkoop WK aan investeerders’](https://www.ad.nl/wk-voetbal/new-york-post-fifa-staakt-omstreden-plan-voor-verkoop-wk-aan-investeerders~a38f97f7/)
+  > De FIFA heeft het omstreden plan om een belang in de commerciële rechten van het WK voetbal aan externe investeerders te verkopen laten varen, meldt...
+- [Justitie VS laat zaak tegen olympiër voor beschadiging Reflecting Pool vallen: schade door gebrekkig werk aannemer](https://www.ad.nl/buitenland/justitie-vs-laat-zaak-tegen-olympier-voor-beschadiging-reflecting-pool-vallen-schade-door-gebrekkig-werk-aannemer~ae67dd9c/)
+  > Het Amerikaanse ministerie van Justitie heeft besloten de zaak tegen voormalig olympiër David Hearn te laten vallen. De 67-jarige Hearn, die als...
+- [Gewonden door aardbeving in Napels, dikke rotsblokken pletten auto’s](https://www.ad.nl/buitenland/gewonden-door-aardbeving-in-napels-dikke-rotsblokken-pletten-autos~a1e005e2/)
+  > Een aardbeving met een kracht van 4,7 heeft vrijdag de Italiaanse regio rondom Napels opgeschrikt. De lokale autoriteiten melden dat op sommige...
+- [LIVE Ceuta | Honderden demonstranten bij Marokkaanse ambassade in Madrid, EU roept ambassadeurs bijeen voor spoedvergadering](https://www.ad.nl/buitenland/live-ceuta-honderden-demonstranten-bij-marokkaanse-ambassade-in-madrid-eu-roept-ambassadeurs-bijeen-voor-spoedvergadering~abf5c743/)
+  > Honderden demonstranten hebben zich verzameld bij de Marokkaanse ambassade in Madrid, uit protest tegen wat zij een ‘migranteninvasie’ van Ceuta...
+- [PSG wil Mika Godts overnemen van Ajax, Belgische aanvaller in Porto gespot met adviseur van Franse topclub](https://www.ad.nl/voetbal/psg-wil-mika-godts-overnemen-van-ajax-belgische-aanvaller-in-porto-gespot-met-adviseur-van-franse-topclub~a6668b38/)
+  > Mika Godts staat in de serieuze belangstelling van Paris Saint-Germain. De 21-jarige smaakmaker van Ajax heeft reeds een gesprek gevoerd met de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Woelige week eindigt in lichte plus](https://fd.nl/financiele-markten/1606360/woelige-week-eindigt-in-lichte-plus)
-  > Na vijf onrustige dagen voor beleggers eindigden de Amerikaanse beurzen toch nog in het groen.
-- [‘NXP in gesprek over overname van Ambarella’](https://fd.nl/bedrijfsleven/1606379/nxp-in-gesprek-over-overname-van-ambarella)
-  > Het Nederlandse NXP Semiconductors is in gesprek over de overname van de Amerikaanse ontwerper van halfgeleiders, meldt FT vrijdag.
-- [Pakketbezorging verdient eerlijke prijs](https://fd.nl/opinie/1606162/pakketbezorging-verdient-eerlijke-prijs)
-  > Bezorgers houden een oneerlijk systeem in stand en mogen meer aan hun ketenverantwoordelijkheid denken.
-- [Veel spanning en drama in een vermakelijke beursweek](https://fd.nl/financiele-markten/1606310/veel-spanning-en-drama-in-een-vermakelijke-beursweek)
-  > Er gebeurde werkelijk van alles en nog wat, er was geen saai moment te bekennen.
-- [24-jarige wonderbelegger Leopold Aschenbrenner moet verlieslatende portfolio afstoten](https://fd.nl/financiele-markten/1606376/24-jarige-wonderbelegger-leopold-aschenbrenner-moet-verlieslatende-portfolio-afstoten)
-  > Investeringsfonds Situational Awareness verkoopt een groot deel van zijn portfolio in een snelle deal met Citadel. Het fonds maakte miljardenverlies...
+- [Zonder beursgang van OpenAI en Anthropic stuiteren de AI-koersen nog wel even door](https://fd.nl/financiele-markten/1606274/zonder-beursgang-van-openai-en-anthropic-stuiteren-de-ai-koersen-nog-wel-even-door)
+  > Koersen van techbedrijven schieten al langer alle kanten op. Zo lang de financiën van OpenAI en Anthropic in nevelen gehuld  zijn, blijft dat ook nog...
+- [Uw kat is een haat verjagende huismus](https://fd.nl/opinie/1606239/uw-kat-is-een-haat-verjagende-huismus)
+  > De kopjeskoning heeft prominente fans, zoals PVV-chef Wilders, die katvideo’s pleegt te delen. Zijn liefde voor de kat verrast. Zou de hond niet...
+- [Het IJslandse dorp waar lava zowel gevreesd als gekoesterd wordt](https://fd.nl/samenleving/1605993/het-ijslandse-dorp-waar-lava-zowel-gevreesd-als-gekoesterd-wordt)
+  > Sinds een lavastroom midden in een IJslands plaatsje tot stilstand kwam, is het een spookstad. Ondernemers proberen nu met diezelfde lava toeristen...
+- [Vier het leven in Guiyang](https://fd.nl/samenleving/1605961/vier-het-leven-in-guiyang)
+  > Documentairemaker Qian van Binsbergen over Guiyang, waar toeristen de straten nog niet platlopen en je heerlijk kunt eten.
+- [Angstig, vermoeid en depressief: waarom zitten steeds meer jongeren ziek thuis?](https://fd.nl/politiek/1605250/angstig-vermoeid-en-depressief-waarom-zitten-steeds-meer-jongeren-ziek-thuis)
+  > Veel managers onderschatten de stress en angst bij jonge werkenden, zeker bij jongeren met een tijdelijk contract. Die durven op hun beurt niet over...
 
 ### Meest gelezen
 
