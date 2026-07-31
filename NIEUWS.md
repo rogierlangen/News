@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-07-2026 om 19:39*
+*Laatst bijgewerkt: 31-07-2026 om 21:09*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [VS maakt AI-blunder en zet zes Afrikaanse landen op verkeerde plek op kaart](https://nos.nl/l/2625117)
+  > Het Amerikaanse ministerie van Buitenlandse Zaken heeft een blunder begaan op de wereldwijde aidsconferentie in Rio de Janeiro in Brazilië. Tijdens...
 - [Vrouw (20) in Rotterdam ontvoerd en slachtoffer van woningoverval](https://nos.nl/l/2625110)
   > Een vrouw van 20 is gisteravond ontvoerd vanaf een carpoolplaats in Papendrecht. Kort daarna is haar woning in Rotterdam overvallen. De overige...
 - [Waarom dringen plots zoveel mensen Ceuta binnen? En vier andere vragen over de Spaanse exclave](https://nos.nl/l/2625109)
@@ -16,8 +18,6 @@
   > In verschillende regio's in het land worden extra maatregelen genomen tegen het watertekort door aanhoudende droogte. Alle sluizen in de regio Den...
 - [Waarom valt Iran een Egyptische haven aan? 'Iran kan escaleren als het wil'](https://nos.nl/l/2625097)
   > Met de beschietingen over en weer richt Iran zijn raketten op doelen steeds verder weg. Waar eerst de Golfstaten, aan de overkant van de Straat van...
-- [Rechter: gebruik mountainbikepaden rond Nijmegen in strijd met natuurwet](https://nos.nl/l/2625094)
-  > Het gebruik van een aantal mountainbikepaden in de streek Rijk van Nijmegen is in strijd met natuurregels. Dat oordeelt de rechtbank in Arnhem. De...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Schooldirecteur uit appgroep gegooid en ziet dan in nieuwsbrief dat school opvolger zoekt](https://www.ad.nl/binnenland/schooldirecteur-uit-appgroep-gegooid-en-ziet-dan-in-nieuwsbrief-dat-school-opvolger-zoekt~a8f970cf/)
-  > Uit alle groepsapps gegooid worden, de toegang tot de school ontzegd krijgen en geblokkeerd worden op je werkmail. Een beginnende...
-- [Dusan Tadic direct toegezongen bij debuut voor NEC, ADO Den Haag ongeslagen](https://www.ad.nl/voetbal/dusan-tadic-direct-toegezongen-bij-debuut-voor-nec-ado-den-haag-ongeslagen~ab5071ea/)
-  > De eredivisieclubs zijn bezig aan de voorbereiding op het nieuwe seizoen. In dit artikel lees je het programma en alle uitslagen per club. Onder het...
-- [Gyrano Kerk verkast naar Turkije, Barcelona haalt jonge aanvaller uit België](https://www.ad.nl/voetbal/gyrano-kerk-verkast-naar-turkije-barcelona-haalt-jonge-aanvaller-uit-belgie~acbd43e6/)
-  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
-- [Infantino speelt onverantwoord machtsspel met toekomst van het voetbal](https://www.ad.nl/commentaar/infantino-speelt-onverantwoord-machtsspel-met-toekomst-van-het-voetbal~a272c205/)
-  > Wereldvoetbalbond FIFA wil de plannen gewoon doorzetten om meer geld te verdienen aan de organisatie van wereldkampioenschappen. FIFA-baas Gianni...
-- [Joost (84) ziet ‘zielige’ zeehondenpup op strand en neemt hem mee naar huis: ‘Ik moest wel’](https://www.ad.nl/goeree-overflakkee/joost-84-ziet-zielige-zeehondenpup-op-strand-en-neemt-hem-mee-naar-huis-ik-moest-wel~aad0edaa/)
-  > Een zeehondenpup huilde zo hard op het strand dat Joost Zegers (84) het niet langer kon aanhoren. „Ik moest hem in veiligheid brengen”, zegt hij. En...
+- [Losgeldbrieven in zaak Nancy Guthrie vrijgegeven: ‘Haar leven ligt in jouw handen, speel geen spelletjes’](https://www.ad.nl/buitenland/losgeldbrieven-in-zaak-nancy-guthrie-vrijgegeven-haar-leven-ligt-in-jouw-handen-speel-geen-spelletjes~a9591910/)
+  > De Amerikaanse autoriteiten hebben twee losgeldbrieven vrijgegeven die de ontvoerders van Nancy Guthrie stuurden naar presentatrice Savannah Guthrie....
+- [Natuurbranden Frankrijk bedreigen wijngaard waarover Brad Pitt en Angelina Jolie strijden](https://www.ad.nl/show/natuurbranden-frankrijk-bedreigen-wijngaard-waarover-brad-pitt-en-angelina-jolie-strijden~a1016f11/)
+  > De natuurbranden in Frankrijk bedreigen de wijngaard van Brad Pitt en Angelina Jolie. Volgens TMZ lukt het brandweerlieden in de Provence tot nu toe...
+- [Aardbeving in Napels met kracht van 4,7, trein- en metroverkeer stilgelegd](https://www.ad.nl/buitenland/aardbeving-in-napels-met-kracht-van-4-7-trein-en-metroverkeer-stilgelegd~a1e005e2/)
+  > Een aardbeving met een kracht van 4,7 heeft vrijdag het Italiaanse Napels opgeschrikt. De lokale autoriteiten melden dat op sommige plekken de stroom...
+- [Zeker 57 migranten overleden tijdens gevaarlijke oversteek naar Spaanse exclave Ceuta](https://www.ad.nl/buitenland/zeker-57-migranten-overleden-tijdens-gevaarlijke-oversteek-naar-spaanse-exclave-ceuta~a6de9d58/)
+  > Het aantal migranten dat bij de gevaarlijke oversteek naar Ceuta is omgekomen is opgelopen naar 57. Dat schrijft de Spaanse krant El País...
+- [Machinist Rutger zet trein stil om gewonde ooievaar te helpen: ‘Dier was erg verzwakt’](https://www.ad.nl/binnenland/machinist-rutger-zet-trein-stil-om-gewonde-ooievaar-te-helpen-dier-was-erg-verzwakt~add870e6/)
+  > Hij was pas begonnen als vrijwilliger bij de dierenambulance. Toen machinist Rutger Teule (34) bij Zwolle een gewonde ooievaar langs het spoor zag...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Woelige week eindigt in lichte plus](https://fd.nl/financiele-markten/1606360/woelige-week-eindigt-in-lichte-plus)
+  > Na vijf onrustige dagen voor beleggers eindigden de Amerikaanse beurzen toch nog in het groen.
 - [‘NXP in gesprek over overname van Ambarella’](https://fd.nl/bedrijfsleven/1606379/nxp-in-gesprek-over-overname-van-ambarella)
   > Het Nederlandse NXP Semiconductors is in gesprek over de overname van de Amerikaanse ontwerper van halfgeleiders, meldt FT vrijdag.
 - [Pakketbezorging verdient eerlijke prijs](https://fd.nl/opinie/1606162/pakketbezorging-verdient-eerlijke-prijs)
@@ -54,8 +56,6 @@
   > Er gebeurde werkelijk van alles en nog wat, er was geen saai moment te bekennen.
 - [24-jarige wonderbelegger Leopold Aschenbrenner moet verlieslatende portfolio afstoten](https://fd.nl/financiele-markten/1606376/24-jarige-wonderbelegger-leopold-aschenbrenner-moet-verlieslatende-portfolio-afstoten)
   > Investeringsfonds Situational Awareness verkoopt een groot deel van zijn portfolio in een snelle deal met Citadel. Het fonds maakte miljardenverlies...
-- [Wereldtournee van K‑popgroep BTS maakt fans blij, maar beleggers niet](https://fd.nl/financiele-markten/1606275/wereldtournee-van-kpopgroep-bts-maakt-fans-blij-maar-beleggers-niet)
-  > Entertainmentbedrijf Hybe, genoteerd aan de effectenbeurs van Seoel, boekte vorig jaar recordwinst en -omzet. Beleggers willen desondanks meer omzet...
 
 ### Meest gelezen
 
