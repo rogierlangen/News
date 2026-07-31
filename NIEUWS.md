@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-07-2026 om 12:02*
+*Laatst bijgewerkt: 31-07-2026 om 15:21*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Maleisische piloot gepakt met 70.000 xtc-pillen na vlucht naar Jakarta](https://nos.nl/l/2625054)
-  > Een 39-jarige Maleisische piloot is opgepakt in Jakarta nadat bij hem 70.000 xtc-pillen in zijn koffer werden aangetroffen door de douane. De man...
-- [Overwinning in de rechtbank voor artiesten op AI-muziek](https://nos.nl/l/2625053)
-  > AI-bedrijf Suno moet auteursrechten betalen voor het gebruik van bestaande liedjes waarmee met kunstmatige intelligentie 'nieuwe' nummers worden...
-- [Duizenden buitenlandse vrachtwagens rijden ondanks verbod over Merwedebrug](https://nos.nl/l/2625048)
-  > De bijna honderd boetes die zijn uitgedeeld aan chauffeurs van vrachtwagens en touringcars die toch over de Merwedebrug zijn gereden, zijn maar een...
-- [Boek 150 jaar te laat teruggebracht naar Australische bibliotheek](https://nos.nl/l/2625045)
-  > Medewerkers van een bibliotheek in de Australische kustplaats Kiama keken vorige week verbaasd op toen een boek liefst 150 jaar na de uitleendatum...
-- [Drie gewonden bij ongeval met vier voertuigen op A12 bij Duitse grens](https://nos.nl/l/2625043)
-  > Op de snelweg A12 bij Babberich bij de Duitse grens is een ernstig ongeval gebeurd. Bij het ongeluk zijn vier voertuigen betrokken, meldt de politie...
+- [Britse uitvaartondernemer krijgt 20 jaar cel voor grootschalige misleiding nabestaanden](https://nos.nl/l/2625075)
+  > Een Britse uitvaartondernemer is veroordeeld tot twintig jaar cel omdat hij nabestaanden op grote schaal heeft misleid. Hij verwisselde de as van...
+- [Laatste dag van het Nederland-ticket, maar blijven de reizigers ook 'fan van de trein'?](https://nos.nl/l/2625064)
+  > Het moest reizigers de trein intrekken: het Nederland-ticket. Sinds half juni was het verkrijgbaar en ruim 550.000 mensen hebben voor één maand het...
+- [OM verdenkt opgepakte terrorismeverdachten van voorbereiden van aanslag](https://nos.nl/l/2625063)
+  > De drie verdachten die deze week bij een grote politieactie zijn gearresteerd, blijven langer vastzitten. Ze zijn aangehouden op verdenking van het...
+- [Spaanse premier Sánchez: aanval Ceuta is schending van de territoriale integriteit](https://nos.nl/l/2625058)
+  > "Wat er gisteren gebeurde, was een aanval, een schending van de territoriale integriteit van Spanje", aldus de Spaanse premier Sánchez. Hij hield een...
+- [Veelplegers in het verkeer veroorzaken veel schade, maar blijven soms lang onopgemerkt](https://nos.nl/l/2625057)
+  > De 20-jarige verdachte van het fatale verkeersongeval in Zeeuws-Vlaanderen vorige maand, beging vaker grove verkeersovertredingen. Dat bleek woensdag...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE |  Vrijdag weer 25.000 migranten vertrokken uit Ceuta, meldt Spaans ministerie](https://www.ad.nl/buitenland/live-vrijdag-weer-25-000-migranten-vertrokken-uit-ceuta-meldt-spaans-ministerie~abf5c743/)
-  > Volgens het Spaanse ministerie zijn vrijdag weer 25.000 mensen vertrokken uit Ceuta. De lokale leider van de Spaanse exclave Ceuta, Juan Jesús Vivas,...
-- [Dit zijn de nieuwe shirts van eredivisieclubs voor komend seizoen](https://www.ad.nl/voetbal/dit-zijn-de-nieuwe-shirts-van-eredivisieclubs-voor-komend-seizoen~aea8229d/)
-  > De eerste oefenwedstrijden zijn alweer afgewerkt dat betekent ook dat de eredivisieclubs in hun nieuwe tenues spelen. Een overzicht van de shirts die...
-- [Meerderheid voetbalbonden wijst omstreden WK-plan van Infantino af: zo reageert de voetbalwereld](https://www.ad.nl/voetbal/meerderheid-voetbalbonden-wijst-omstreden-wk-plan-van-infantino-af-zo-reageert-de-voetbalwereld~adb85c73/)
-  > Een meerderheid van de 211 voetbalbonden die lid zijn van de FIFA, is tegen het voorgestelde commercialiseringsplan van de wereldvoetbalbond. Hoe...
-- [Waarom ging het zo mis bij Ceuta? Donderdag waren de Marokkaanse agenten plots verdwenen](https://www.ad.nl/buitenland/waarom-ging-het-zo-mis-bij-ceuta-donderdag-waren-de-marokkaanse-agenten-plots-verdwenen~ae488d11/)
-  > Zo’n 60.000 immigranten overspoelden donderdag en vrijdag onverwacht de Spaanse exclave Ceuta. Een deel van hen is weer teruggekeerd naar Marokko,...
-- [Tetanus kan dodelijk zijn, maar inenting beschermt: dit is wanneer je herhaalprik moet halen](https://www.ad.nl/gezond/tetanus-kan-dodelijk-zijn-maar-inenting-beschermt-dit-is-wanneer-je-herhaalprik-moet-halen~aa7d5c5c/)
-  > Tetanus is een bacterie die voorkomt in onze leefomgeving. Ongevaarlijk, maar als de tetanusbacterie via een open wond of dierenbeet in ons lichaam...
+- [Terwijl Spanje de crisis bezweert, richt rechts Europa de pijlen op zijn premier: ‘Volkomen fout beleid’](https://www.ad.nl/buitenland/terwijl-spanje-de-crisis-bezweert-richt-rechts-europa-de-pijlen-op-zijn-premier-volkomen-fout-beleid~ab0813b7/)
+  > Bijna 60.000 migranten bestormden donderdag en vrijdag de Spaanse exclave Ceuta. De kans is erg klein dat zij verder Europa in reizen, maar rechtse...
+- [Boek dat na 150 jaar wordt teruggebracht naar Australische bibliotheek bleek ingemetseld in open haard](https://www.ad.nl/buitenland/boek-dat-na-150-jaar-wordt-teruggebracht-naar-australische-bibliotheek-bleek-ingemetseld-in-open-haard~a1a0b8fd/)
+  > Een Australische bibliothecaris zal raar hebben opgekeken toen een boek werd teruggebracht. Dat werd namelijk 150 jaar te laat ingeleverd, meldt...
+- [De eerste weken van Giovanni van Bronckhorst bij Feyenoord: ‘Dit jaar gaat echt een ander verhaal zijn’](https://www.ad.nl/voetbal/de-eerste-weken-van-giovanni-van-bronckhorst-bij-feyenoord-dit-jaar-gaat-echt-een-ander-verhaal-zijn~a395a169/)
+  > Nog één oefenwedstrijd tegen Atalanta en dan begint voor Feyenoord de eredivisie. Met Giovanni van Bronckhorst op de bank moet niet alleen het...
+- [Journaal-presentator Winfried Baijens: ‘Vanuit een soort naïeve dommigheid ben ik nooit bang’](https://www.ad.nl/mezza/journaal-presentator-winfried-baijens-vanuit-een-soort-naieve-dommigheid-ben-ik-nooit-bang~a3f34000/)
+  > Terug in de polders rond mosselstadje Philippine haalt Winfried Baijens herinneringen op aan eenzame winters, vrolijke zomers, stoepranden,...
+- [Chelsea krijgt boete van 11 miljoen euro, Real Madrid betaalt 25 miljoen voor jonge spits](https://www.ad.nl/voetbal/chelsea-krijgt-boete-van-11-miljoen-euro-real-madrid-betaalt-25-miljoen-voor-jonge-spits~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Iconische Duitse Playmobil-fabriek sluit deuren](https://fd.nl/bedrijfsleven/1606005/iconische-duitse-playmobil-fabriek-sluit-deuren)
-  > Speelgoed van Playmobil was vroeger in bijna elke kinderkamer te vinden. Nu verdwijnt de productie van het worstelende bedrijf uit het Duitse...
-- [Chinese invloed in Pirelli afgebouwd na aandelendeal van bijna €1 mrd](https://fd.nl/bedrijfsleven/1606262/chinese-invloed-in-pirelli-afgebouwd-na-aandelendeal-van-bijna-1-mrd)
-  > Het Chinese staatsbedrijf Sinochem verkoopt een belang van 14% in de Italiaanse bandenproducent aan de Tsjechische ondernemer Michal Strnad.
-- [Directeur van De Parade maakt ruimte voor minder gehoorde theaterstemmen](https://fd.nl/samenleving/1606208/directeur-van-de-parade-maakt-ruimte-voor-minder-gehoorde-theaterstemmen)
-  > Nicole van Vessum begon bij de voorloper van De Parade als tentenbouwer. De nieuwsgierige en inhoudelijk sterke directeur geeft nieuwe makers een...
-- [Nederlandse luchtvaart is corona nog niet te boven](https://fd.nl/bedrijfsleven/1606306/nederlandse-luchtvaart-is-corona-nog-niet-te-boven)
-  > Vooral Schiphol is nog niet helemaal hersteld. De luchthavens van Rotterdam en Eindhoven zitten met passagiersaantallen inmiddels wel boven het oude...
-- [Universal Music verliest kwart van beurswaarde na tegenvallende omzet uit streamingplatforms](https://fd.nl/bedrijfsleven/1606263/universal-music-verlies-kwart-van-beurswaarde-na-tegenvallende-omzet-uit-streamingplatforms)
-  > De groei uit abonnementsgelden van onder andere Spotify en Apple Music was lager dan de analistenverwachting. Het aandeel daalde tot het laagste...
+- [Wereldtournee van K‑popgroep BTS maakt fans blij, maar beleggers niet](https://fd.nl/financiele-markten/1606275/wereldtournee-van-kpopgroep-bts-maakt-fans-blij-maar-beleggers-niet)
+  > Entertainmentbedrijf Hybe, genoteerd aan de effectenbeurs van Seoel, boekte vorig jaar recordwinst en -omzet. Beleggers willen desondanks meer omzet...
+- [Orkla Foods slaat opnieuw zijn slag in Nederland met overname snoepbedrijf CCI](https://fd.nl/bedrijfsleven/1606273/orkla-foods-slaat-opnieuw-zijn-slag-in-nederland-met-overname-snoepbedrijf-cci)
+  > De Zweedse onderneming nam eerder een belang in het Nederlandse familiebedrijf Go-Tan.
+- [Welke Duitse autofabrikant zet het mes er het hardst in?](https://fd.nl/financiele-markten/1606197/welke-duitse-autofabrikant-zet-het-mes-er-het-hardst-in)
+  > Volkswagen, BMW en Mercedes snijden of dreigen fors te snijden in het personeelsbestand. Mercedes blijkt al met al nog het liefst te zijn voor zijn...
+- [Ferrari profiteert van sportauto’s ‘als een maatpak’ en verhoogt winstverwachting](https://fd.nl/bedrijfsleven/1606312/ferrari-profiteert-van-sportautos-als-een-maatpak-en-verhoogt-winstverwachting)
+  > Een nieuwe groep AI-rijken, die hun nieuw vergaarde vermogen uitgeven aan gepersonaliseerde sportwagens, blijken dankbare afnemers van Ferrari.
+- [De Amsterdamse Chung Cafés en de kleurrijke kunst van Bo Zhang](https://fd.nl/samenleving/1606093/de-amsterdamse-chung-cafes-en-de-kleurrijke-kunst-van-bo-zhang)
+  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
 
 ### Meest gelezen
 
