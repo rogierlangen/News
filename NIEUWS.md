@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-07-2026 om 09:47*
+*Laatst bijgewerkt: 31-07-2026 om 12:02*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Extra veiligheidsmaatregelen en alertheid bij WorldPride Amsterdam](https://nos.nl/l/2625042)
-  > Hoe organiseer je een feest dat draait om vrijheid en zichtbaarheid zonder dat zware veiligheidsmaatregelen die thema's compleet overschaduwen? Voor...
-- [Strandwachten Zeeland waarschuwen voor sterke stroming door springtij](https://nos.nl/l/2625040)
-  > Het wordt de komende dagen opnieuw strandweer en dat betekent dat veel mensen verkoeling zoeken aan zee. In Zeeland waarschuwen strandwachten voor...
-- [Warm, droog en winderig: steeds vaker 'vuurweer' in Zuid-Europa](https://nos.nl/l/2625039)
-  > Warm, droog, lage luchtvochtigheid en winderig: het zijn omstandigheden die gunstig zijn voor natuurbranden, oftewel 'vuurweer'. Sinds begin jaren 80...
-- [Oorontstekingen, kneuzingen, infecties: ANWB krijgt steeds meer medische hulpverzoeken](https://nos.nl/l/2625036)
-  > Lekke banden, kapotte accu's, storingsmeldingen en startproblemen. De vakantieperiode is in volle gang en dat is ook te zien op de weg, meldt de...
-- [Tienduizenden migranten bereiken Spaanse exclave Ceuta in 24 uur](https://nos.nl/l/2625033)
-  > De afgelopen 24 uur zijn naar schatting tienduizenden migranten de Spaanse exclave Ceuta in Marokko ingetrokken, melden Spaanse media. De Spaanse...
+- [Maleisische piloot gepakt met 70.000 xtc-pillen na vlucht naar Jakarta](https://nos.nl/l/2625054)
+  > Een 39-jarige Maleisische piloot is opgepakt in Jakarta nadat bij hem 70.000 xtc-pillen in zijn koffer werden aangetroffen door de douane. De man...
+- [Overwinning in de rechtbank voor artiesten op AI-muziek](https://nos.nl/l/2625053)
+  > AI-bedrijf Suno moet auteursrechten betalen voor het gebruik van bestaande liedjes waarmee met kunstmatige intelligentie 'nieuwe' nummers worden...
+- [Duizenden buitenlandse vrachtwagens rijden ondanks verbod over Merwedebrug](https://nos.nl/l/2625048)
+  > De bijna honderd boetes die zijn uitgedeeld aan chauffeurs van vrachtwagens en touringcars die toch over de Merwedebrug zijn gereden, zijn maar een...
+- [Boek 150 jaar te laat teruggebracht naar Australische bibliotheek](https://nos.nl/l/2625045)
+  > Medewerkers van een bibliotheek in de Australische kustplaats Kiama keken vorige week verbaasd op toen een boek liefst 150 jaar na de uitleendatum...
+- [Drie gewonden bij ongeval met vier voertuigen op A12 bij Duitse grens](https://nos.nl/l/2625043)
+  > Op de snelweg A12 bij Babberich bij de Duitse grens is een ernstig ongeval gebeurd. Bij het ongeluk zijn vier voertuigen betrokken, meldt de politie...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Praat mee: door de rust en gemoedelijkheid in de zomer valt pas op hoe druk Nederland normaal gesproken is](https://www.ad.nl/praat-mee/praat-mee-door-de-rust-en-gemoedelijkheid-in-de-zomer-valt-pas-op-hoe-druk-nederland-normaal-gesproken-is~a6aa880f/)
-  > In deze vakantieweken is het op straat, op de snelweg en in de winkels rustig vergeleken bij de hectiek en drukte die we normaal om ons heen hebben....
-- [Bekende acteur onherkenbaar in eerste beelden Wicker-film: ‘Droom om tepels van riet te hebben’](https://www.ad.nl/film/bekende-acteur-onherkenbaar-in-eerste-beelden-wicker-film-droom-om-tepels-van-riet-te-hebben~aa05ce08/)
-  > De hoofdrol scoren in een Shakespeare-verhaal of een stoere actieheld tot leven brengen? Het is niet de droom van elke acteur. In de eerste beelden...
-- [Nederlandse (63) tuimelt 50 meter omlaag nadat man op haar valt in Oostenrijk: ‘Gebeurt zo vaak laatste tijd’](https://www.ad.nl/binnenland/nederlandse-63-tuimelt-50-meter-omlaag-nadat-man-op-haar-valt-in-oostenrijk-gebeurt-zo-vaak-laatste-tijd~a533f26dd/)
-  > Een 63-jarige Nederlandse vrouw heeft donderdagmiddag een angstaanjagende val van 50 meter gemaakt in de Oostenrijkse Alpen. Het ongeluk gebeurde...
-- [Heerlijk, die leegte: de vakantierust maakt ook de thuisblijvers relaxter](https://www.ad.nl/binnenland/heerlijk-die-leegte-de-vakantierust-maakt-ook-de-thuisblijvers-relaxter~aed48275/)
-  > Welkom terug in de tijd. Nederland telt nog altijd ruim achttien miljoen inwoners, maar in deze vakantieweken voelt het leven rustig zoals decennia...
-- [TransferTalk | ‘Voormalig PSV-trainer lijkt Klopp op te volgen’, FC Twente denkt aan zoon van Ruben Schaken](https://www.ad.nl/voetbal/transfertalk-voormalig-psv-trainer-lijkt-klopp-op-te-volgen-fc-twente-denkt-aan-zoon-van-ruben-schaken~acbd43e6/)
-  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
+- [LIVE |  Vrijdag weer 25.000 migranten vertrokken uit Ceuta, meldt Spaans ministerie](https://www.ad.nl/buitenland/live-vrijdag-weer-25-000-migranten-vertrokken-uit-ceuta-meldt-spaans-ministerie~abf5c743/)
+  > Volgens het Spaanse ministerie zijn vrijdag weer 25.000 mensen vertrokken uit Ceuta. De lokale leider van de Spaanse exclave Ceuta, Juan Jesús Vivas,...
+- [Dit zijn de nieuwe shirts van eredivisieclubs voor komend seizoen](https://www.ad.nl/voetbal/dit-zijn-de-nieuwe-shirts-van-eredivisieclubs-voor-komend-seizoen~aea8229d/)
+  > De eerste oefenwedstrijden zijn alweer afgewerkt dat betekent ook dat de eredivisieclubs in hun nieuwe tenues spelen. Een overzicht van de shirts die...
+- [Meerderheid voetbalbonden wijst omstreden WK-plan van Infantino af: zo reageert de voetbalwereld](https://www.ad.nl/voetbal/meerderheid-voetbalbonden-wijst-omstreden-wk-plan-van-infantino-af-zo-reageert-de-voetbalwereld~adb85c73/)
+  > Een meerderheid van de 211 voetbalbonden die lid zijn van de FIFA, is tegen het voorgestelde commercialiseringsplan van de wereldvoetbalbond. Hoe...
+- [Waarom ging het zo mis bij Ceuta? Donderdag waren de Marokkaanse agenten plots verdwenen](https://www.ad.nl/buitenland/waarom-ging-het-zo-mis-bij-ceuta-donderdag-waren-de-marokkaanse-agenten-plots-verdwenen~ae488d11/)
+  > Zo’n 60.000 immigranten overspoelden donderdag en vrijdag onverwacht de Spaanse exclave Ceuta. Een deel van hen is weer teruggekeerd naar Marokko,...
+- [Tetanus kan dodelijk zijn, maar inenting beschermt: dit is wanneer je herhaalprik moet halen](https://www.ad.nl/gezond/tetanus-kan-dodelijk-zijn-maar-inenting-beschermt-dit-is-wanneer-je-herhaalprik-moet-halen~aa7d5c5c/)
+  > Tetanus is een bacterie die voorkomt in onze leefomgeving. Ongevaarlijk, maar als de tetanusbacterie via een open wond of dierenbeet in ons lichaam...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Van bedrijfsuitjes tot durfsporten, Zandvoort wil het hele jaar open zijn](https://fd.nl/economie/1605476/van-bedrijfsuitjes-tot-durfsporten-zandvoort-wil-het-hele-jaar-open-zijn)
-  > Deze zomer scheurt de Formule 1 nog één keer over het circuit, maar Zandvoort kijkt al verder. De badplaats wil met name veel duidelijker op de radar...
-- [Fifa zet plannen door, ondanks dreigement van Uefa](https://fd.nl/bedrijfsleven/1606302/fifa-zet-plannen-door-ondanks-dreigement-van-uefa)
-  > De wereldvoetbalbond wil commerciële investeerders aantrekken, maar dat is slecht gevallen bij de Europese bond Uefa.
-- [Met je eigen jet sta je nooit meer in de rij](https://fd.nl/samenleving/1595053/met-je-eigen-jet-sta-je-nooit-meer-in-de-rij)
-  > Privéjets zijn niet alleen een statussymbool voor hun Nederlandse eigenaren. Nooit meer in de rij – en echte privacy aan boord.
-- [Vies en onderontwikkeld? Bangkok groeit juist uit tot de parel van het Oosten](https://fd.nl/opinie/1604337/vies-en-onderontwikkeld-bangkok-groeit-juist-uit-tot-de-parel-van-het-oosten)
-  > Wie Bangkok nog ziet als een chaotische stad, loopt achter. De Thaise hoofdstad moderniseert in hoog tempo, maar betaalt daarvoor ook een prijs.
-- [‘Tesla overweegt Chinese activiteiten te verkopen’](https://fd.nl/bedrijfsleven/1606300/tesla-overweegt-chinese-activiteiten-te-verkopen)
-  > Met een mogelijke verkoop zou Tesla de weg vrij willen maken voor een fusie met SpaceX, aldus The Wall Street Journal.
+- [Iconische Duitse Playmobil-fabriek sluit deuren](https://fd.nl/bedrijfsleven/1606005/iconische-duitse-playmobil-fabriek-sluit-deuren)
+  > Speelgoed van Playmobil was vroeger in bijna elke kinderkamer te vinden. Nu verdwijnt de productie van het worstelende bedrijf uit het Duitse...
+- [Chinese invloed in Pirelli afgebouwd na aandelendeal van bijna €1 mrd](https://fd.nl/bedrijfsleven/1606262/chinese-invloed-in-pirelli-afgebouwd-na-aandelendeal-van-bijna-1-mrd)
+  > Het Chinese staatsbedrijf Sinochem verkoopt een belang van 14% in de Italiaanse bandenproducent aan de Tsjechische ondernemer Michal Strnad.
+- [Directeur van De Parade maakt ruimte voor minder gehoorde theaterstemmen](https://fd.nl/samenleving/1606208/directeur-van-de-parade-maakt-ruimte-voor-minder-gehoorde-theaterstemmen)
+  > Nicole van Vessum begon bij de voorloper van De Parade als tentenbouwer. De nieuwsgierige en inhoudelijk sterke directeur geeft nieuwe makers een...
+- [Nederlandse luchtvaart is corona nog niet te boven](https://fd.nl/bedrijfsleven/1606306/nederlandse-luchtvaart-is-corona-nog-niet-te-boven)
+  > Vooral Schiphol is nog niet helemaal hersteld. De luchthavens van Rotterdam en Eindhoven zitten met passagiersaantallen inmiddels wel boven het oude...
+- [Universal Music verliest kwart van beurswaarde na tegenvallende omzet uit streamingplatforms](https://fd.nl/bedrijfsleven/1606263/universal-music-verlies-kwart-van-beurswaarde-na-tegenvallende-omzet-uit-streamingplatforms)
+  > De groei uit abonnementsgelden van onder andere Spotify en Apple Music was lager dan de analistenverwachting. Het aandeel daalde tot het laagste...
 
 ### Meest gelezen
 
