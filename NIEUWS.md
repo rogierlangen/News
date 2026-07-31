@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-07-2026 om 17:41*
+*Laatst bijgewerkt: 31-07-2026 om 19:39*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Vrouw (20) in Rotterdam ontvoerd en slachtoffer van woningoverval](https://nos.nl/l/2625110)
+  > Een vrouw van 20 is gisteravond ontvoerd vanaf een carpoolplaats in Papendrecht. Kort daarna is haar woning in Rotterdam overvallen. De overige...
+- [Waarom dringen plots zoveel mensen Ceuta binnen? En vier andere vragen over de Spaanse exclave](https://nos.nl/l/2625109)
+  > De afgelopen dagen bereikten tienduizenden migranten via zee en grenshekken de Spaanse exclave Ceuta. Vijf vragen en antwoorden over de situatie...
+- [Extra maatregelen tegen droogte: sluizen rond Den Haag en Rotterdam gaan dicht](https://nos.nl/l/2625107)
+  > In verschillende regio's in het land worden extra maatregelen genomen tegen het watertekort door aanhoudende droogte. Alle sluizen in de regio Den...
+- [Waarom valt Iran een Egyptische haven aan? 'Iran kan escaleren als het wil'](https://nos.nl/l/2625097)
+  > Met de beschietingen over en weer richt Iran zijn raketten op doelen steeds verder weg. Waar eerst de Golfstaten, aan de overkant van de Straat van...
 - [Rechter: gebruik mountainbikepaden rond Nijmegen in strijd met natuurwet](https://nos.nl/l/2625094)
   > Het gebruik van een aantal mountainbikepaden in de streek Rijk van Nijmegen is in strijd met natuurregels. Dat oordeelt de rechtbank in Arnhem. De...
-- [Bus stort in ravijn Algerije, zeker 25 doden](https://nos.nl/l/2625089)
-  > Bij een busongeluk in de buurt van de Algerijnse hoofdstad Algiers zijn minstens 25 mensen om het leven gekomen. De autoriteiten spreken van 44...
-- [Kabinet eist snelle Spaanse actie in Ceuta, geen maatregelen in Nederland](https://nos.nl/l/2625085)
-  > Het kabinet wil dat Spanje snel zorgt dat illegale migranten in Ceuta worden teruggestuurd naar Marokko. Ook moet Spanje met spoed de grenzen sluiten...
-- [Fatbikeverbod in Enschede en Amsterdam lijkt te werken, maar houdt het ook stand?](https://nos.nl/l/2625079)
-  > Een maatregel in twee steden tegen fatbikes lijkt te werken, blijkt uit eerste resultaten en reacties. In Enschede geldt overdag een fatbikeverbod in...
-- [Britse uitvaartondernemer krijgt 20 jaar cel voor misleiding zoals verwisselen van as](https://nos.nl/l/2625075)
-  > Een Britse uitvaartondernemer is veroordeeld tot twintig jaar cel omdat hij nabestaanden op grote schaal heeft misleid. Hij verwisselde de as van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Lorena Wiebes kon door zware thuissituatie met broer Giro-debacle relativeren: ‘We hebben wel meer meegemaakt’](https://www.ad.nl/tour-de-france/lorena-wiebes-kon-door-zware-thuissituatie-met-broer-giro-debacle-relativeren-we-hebben-wel-meer-meegemaakt~ad758b27/)
-  > Lorena Wiebes werd na één etappe uit de Giro gezet vanwege een te lichte fiets. Een roadtrip met misdaadpodcasts, een specifiek nummer van Pink en...
-- [In de rij voor de Droomvlucht stond Thyrza (11) oog in oog met ‘Ron’ uit Harry Potter: ‘Hij wachtte op me voor een foto’](https://www.ad.nl/show/in-de-rij-voor-de-droomvlucht-stond-thyrza-11-oog-in-oog-met-ron-uit-harry-potter-hij-wachtte-op-me-voor-een-foto~a17326443/)
-  > Is hij het nou echt? Of toch niet? Even was er lichte twijfel, maar Thyrza (11) wist het eigenlijk direct zeker. Zij stond woensdag in de rij voor de...
-- [Het enige merk dat Mercedes, BMW en Audi aankan, heeft een nieuw topmodel](https://www.ad.nl/auto/het-enige-merk-dat-mercedes-bmw-en-audi-aankan-heeft-een-nieuw-topmodel~ab75ff76/)
-  > De grote spelers in de eredivisie van de auto-industrie zijn nog altijd Mercedes, BMW en Audi. Volgens autoredacteur Niek Schenk is er eigenlijk maar...
-- [Trump ontkent dat Iran achter cyberaanval drinkwatervoorziening Minnesota zat](https://www.ad.nl/buitenland/trump-ontkent-dat-iran-achter-cyberaanval-drinkwatervoorziening-minnesota-zat~ac528ac3/)
-  > Trump ontkent dat Iran achter een cyberaanval zat op drinkwatervoorzieningen in de staat Minnesota. „Iran heeft wel grotere problemen en Minnesota is...
-- [Gianni Infantino krijgt kritiek vanuit de FIFA en lijkt ook steun van Donald Trump kwijt: ‘Project van één persoon’](https://www.ad.nl/wk-voetbal/gianni-infantino-krijgt-kritiek-vanuit-de-fifa-en-lijkt-ook-steun-van-donald-trump-kwijt-project-van-een-persoon~a5306800/)
-  > Het wordt steeds heter onder de voeten van Gianni Infantino. De FIFA-voorzitter krijgt felle kritiek vanuit de eigen organisatie en lijkt ook geen...
+- [Schooldirecteur uit appgroep gegooid en ziet dan in nieuwsbrief dat school opvolger zoekt](https://www.ad.nl/binnenland/schooldirecteur-uit-appgroep-gegooid-en-ziet-dan-in-nieuwsbrief-dat-school-opvolger-zoekt~a8f970cf/)
+  > Uit alle groepsapps gegooid worden, de toegang tot de school ontzegd krijgen en geblokkeerd worden op je werkmail. Een beginnende...
+- [Dusan Tadic direct toegezongen bij debuut voor NEC, ADO Den Haag ongeslagen](https://www.ad.nl/voetbal/dusan-tadic-direct-toegezongen-bij-debuut-voor-nec-ado-den-haag-ongeslagen~ab5071ea/)
+  > De eredivisieclubs zijn bezig aan de voorbereiding op het nieuwe seizoen. In dit artikel lees je het programma en alle uitslagen per club. Onder het...
+- [Gyrano Kerk verkast naar Turkije, Barcelona haalt jonge aanvaller uit België](https://www.ad.nl/voetbal/gyrano-kerk-verkast-naar-turkije-barcelona-haalt-jonge-aanvaller-uit-belgie~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
+- [Infantino speelt onverantwoord machtsspel met toekomst van het voetbal](https://www.ad.nl/commentaar/infantino-speelt-onverantwoord-machtsspel-met-toekomst-van-het-voetbal~a272c205/)
+  > Wereldvoetbalbond FIFA wil de plannen gewoon doorzetten om meer geld te verdienen aan de organisatie van wereldkampioenschappen. FIFA-baas Gianni...
+- [Joost (84) ziet ‘zielige’ zeehondenpup op strand en neemt hem mee naar huis: ‘Ik moest wel’](https://www.ad.nl/goeree-overflakkee/joost-84-ziet-zielige-zeehondenpup-op-strand-en-neemt-hem-mee-naar-huis-ik-moest-wel~aad0edaa/)
+  > Een zeehondenpup huilde zo hard op het strand dat Joost Zegers (84) het niet langer kon aanhoren. „Ik moest hem in veiligheid brengen”, zegt hij. En...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [‘NXP in gesprek over overname van Ambarella’](https://fd.nl/bedrijfsleven/1606379/nxp-in-gesprek-over-overname-van-ambarella)
+  > Het Nederlandse NXP Semiconductors is in gesprek over de overname van de Amerikaanse ontwerper van halfgeleiders, meldt FT vrijdag.
+- [Pakketbezorging verdient eerlijke prijs](https://fd.nl/opinie/1606162/pakketbezorging-verdient-eerlijke-prijs)
+  > Bezorgers houden een oneerlijk systeem in stand en mogen meer aan hun ketenverantwoordelijkheid denken.
 - [Veel spanning en drama in een vermakelijke beursweek](https://fd.nl/financiele-markten/1606310/veel-spanning-en-drama-in-een-vermakelijke-beursweek)
   > Er gebeurde werkelijk van alles en nog wat, er was geen saai moment te bekennen.
 - [24-jarige wonderbelegger Leopold Aschenbrenner moet verlieslatende portfolio afstoten](https://fd.nl/financiele-markten/1606376/24-jarige-wonderbelegger-leopold-aschenbrenner-moet-verlieslatende-portfolio-afstoten)
   > Investeringsfonds Situational Awareness verkoopt een groot deel van zijn portfolio in een snelle deal met Citadel. Het fonds maakte miljardenverlies...
 - [Wereldtournee van K‑popgroep BTS maakt fans blij, maar beleggers niet](https://fd.nl/financiele-markten/1606275/wereldtournee-van-kpopgroep-bts-maakt-fans-blij-maar-beleggers-niet)
   > Entertainmentbedrijf Hybe, genoteerd aan de effectenbeurs van Seoel, boekte vorig jaar recordwinst en -omzet. Beleggers willen desondanks meer omzet...
-- [Orkla Foods slaat opnieuw zijn slag in Nederland met overname snoepbedrijf CCI](https://fd.nl/bedrijfsleven/1606273/orkla-foods-slaat-opnieuw-zijn-slag-in-nederland-met-overname-snoepbedrijf-cci)
-  > De Zweedse onderneming nam eerder een belang in het Nederlandse familiebedrijf Go-Tan.
-- [Welke Duitse autofabrikant zet het mes er het hardst in?](https://fd.nl/financiele-markten/1606197/welke-duitse-autofabrikant-zet-het-mes-er-het-hardst-in)
-  > Volkswagen, BMW en Mercedes snijden of dreigen fors te snijden in het personeelsbestand. Mercedes blijkt al met al nog het liefst te zijn voor zijn...
 
 ### Meest gelezen
 
