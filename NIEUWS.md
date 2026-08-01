@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-08-2026 om 15:03*
+*Laatst bijgewerkt: 01-08-2026 om 17:03*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Recordaantal deelnemers bij Pride Hamburg, extra beveiliging na aanslag Berlijn](https://nos.nl/l/2625185)
+  > In Hamburg hebben honderdduizenden mensen vanmiddag deelgenomen aan de Pride-optocht, een week na de aanslag in Berlijn tijdens het slotfeest van de...
 - [Grote natuurbrand Frankrijk onder controle, 200.000 mensen mogen naar huis](https://nos.nl/l/2625182)
   > In Frankrijk mogen ruim 200.000 mensen die vanwege de enorme bosbrand in de Gironde werden geëvacueerd, terug naar huis. De brand in het zuidwesten...
 - [Oekraïne brengt Russisch containerschip tot zinken op de Zwarte Zee](https://nos.nl/l/2625174)
@@ -16,8 +18,6 @@
   > In een verdachte auto in Bilthoven waardoor gisteravond ruim veertig flatwoningen werden ontruimd, lagen geen explosieven maar harddrugs en...
 - [Europese solidariteit is kwetsbaar, blijkt uit crisis aan Spaanse grens](https://nos.nl/l/2625172)
   > De tienduizenden migranten die de exclave Ceuta wisten binnen te dringen, legden niet alleen de kwetsbaarheid van de Europese buitengrenzen bloot. Ze...
-- [Quarantaine wegens hantavirus in Radboudumc had vermeden kunnen worden](https://nos.nl/l/2625171)
-  > Miscommunicatie en tijdsdruk in het Radboudumc hebben ertoe geleid dat twaalf medewerkers van het ziekenhuis in Nijmegen dit jaar wekenlang in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Karel de Rooij (80) was wereldberoemd met het duo Mini & Maxi, maar bleef zich ondergewaardeerd voelen](https://www.ad.nl/binnenland/karel-de-rooij-80-was-wereldberoemd-met-het-duo-mini-en-maxi-maar-bleef-zich-ondergewaardeerd-voelen~ae7321e3/)
-  > Karel de Rooij speelde voor uitverkochte zalen over de hele wereld. Hij was de ‘Mini’ van het duo Mini & Maxi, dat in 1987 de Zilveren Roos won op...
-- [Zowel Duits als Belgisch grensgebied provincie Limburg opgeschrikt door branden](https://www.ad.nl/simpelveld/zowel-duits-als-belgisch-grensgebied-provincie-limburg-opgeschrikt-door-branden~a0da242c/)
-  > Aan de Belgische én de Duitse grens zijn in Limburg zaterdagmiddag enkele branden uitgebroken. Een van deze branden, een schuurbrand in Neeritter, is...
-- [Remco Evenepoel wint Clásica San Sebastián voor vierde keer, Richard Carapaz in de sprint geklopt](https://www.ad.nl/wielrennen/remco-evenepoel-wint-clasica-san-sebastian-voor-vierde-keer-richard-carapaz-in-de-sprint-geklopt~aeb1b9cc/)
-  > Remco Evenepoel heeft zijn rol van topfavoriet voor de Clasicá San Sebastián helemaal waargemaakt. De 26-jarige Belg won de Baskische klassieker voor...
-- [Nederlandse Iris barst in tranen uit tijdens zware aardbeving bij Napels: ‘Ben nog nooit zo geschrokken’](https://www.ad.nl/buitenland/nederlandse-iris-barst-in-tranen-uit-tijdens-zware-aardbeving-bij-napels-ben-nog-nooit-zo-geschrokken~abb349c9/)
-  > Bij de aardbeving in de buurt van Napels zijn vrijdagavond 21 mensen gewond geraakt, van wie twee ernstig. Ook heeft de beving met een kracht van 4,7...
-- [Johan Cruijff Schaal | Zo laat strijden kampioen PSV en bekerwinnaar AZ morgen om eerste prijs van het seizoen](https://www.ad.nl/voetbal/johan-cruijff-schaal-zo-laat-strijden-kampioen-psv-en-bekerwinnaar-az-morgen-om-eerste-prijs-van-het-seizoen~a96ca961/)
-  > AZ won afgelopen seizoen met de KNVB Beker voor het eerst sinds 2013 weer een hoofdprijs. Zondag krijgt de ploeg van Leeroy Echteld tegen...
+- [Opmerkelijke beelden: droogte legt vloot van gezonken nazischepen bloot in Donau](https://www.ad.nl/buitenland/opmerkelijke-beelden-droogte-legt-vloot-van-gezonken-nazischepen-bloot-in-donau~a6995bbd/)
+  > Zwemmen naast een roestend oorlogsschip dat mogelijk nog munitie en explosieven bevat: bij het Servische Prahovo levert de extreem lage waterstand...
+- [Stilte over omstreden bezoek van Wilders aan Israël, en dat is pijnlijk voor de PVV-leider](https://www.ad.nl/politiek/stilte-over-omstreden-bezoek-van-wilders-aan-israel-en-dat-is-pijnlijk-voor-de-pvv-leider~ae56e45e/)
+  > PVV-leider Geert Wilders worstelt in Den Haag met een politieke bijrol, een beladen bezoek aan Israël ging bijna geruisloos voorbij, de Kamerfractie...
+- [Oppermachtige Wiebes sprint naar winst en gele trui in openingsrit Tour: ‘Kan het bijna niet geloven’](https://www.ad.nl/wielrennen/oppermachtige-wiebes-sprint-naar-winst-en-gele-trui-in-openingsrit-tour-kan-het-bijna-niet-geloven~a7f1bfd2/)
+  > Lorena Wiebes heeft de eerste etappe van de Tour de France Femmes op haar naam geschreven. De topsprinter van Team SD Worx-ProTime overleefde de...
+- [Twee schietincidenten in Hoorn kort achter elkaar, politie onderzoekt mogelijk verband](https://www.ad.nl/binnenland/twee-schietincidenten-in-hoorn-kort-achter-elkaar-politie-onderzoekt-mogelijk-verband~a3f64ec9/)
+  > In Hoorn hebben zaterdagochtend twee schietincidenten plaatsgevonden. De politie houdt rekening met een mogelijk verband tussen de incidenten. Bij...
+- [Kirsten (48) gaat strijd aan met Tadej Pogacar (27) op loodzware berg: ‘Schat mijn kansen zeer hoog in’](https://www.ad.nl/wielrennen/kirsten-48-gaat-strijd-aan-met-tadej-pogacar-27-op-loodzware-berg-schat-mijn-kansen-zeer-hoog-in~a67fddb1/)
+  > Het is de droom van iedere wielerfan: fietsen tegen Tadej Pogacar. Kirsten Verdel (48) uit Roelofarendsveen neemt het zondag samen met andere...
 
 ### Meest gelezen
 
