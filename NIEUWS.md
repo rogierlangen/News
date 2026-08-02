@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-08-2026 om 17:03*
+*Laatst bijgewerkt: 02-08-2026 om 19:15*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Zelfmoordaanslag op demonstratie bij politiebureau in Pakistan, zeker 14 doden](https://nos.nl/l/2625317)
+  > In het noordwesten van Pakistan zijn zeker veertien doden gevallen door een zelfmoordaanslag. Het vermoedelijke doelwit was een demonstratie bij een...
+- [Wanhopige Marokkanen wachten bij Ceuta op familieleden: 'Hij had hier niet moeten zijn'](https://nos.nl/l/2625315)
+  > Na de ongekende overtocht van migranten vanuit Marokko naar de Spaanse exclave Ceuta lijkt de rust bij de grensovergang teruggekeerd, maar tientallen...
+- [Verdachte bekladding Nationaal Monument op de Dam blijft vastzitten](https://nos.nl/l/2625309)
+  > Een van de twee verdachten van de bekladding van het Nationaal Monument op de Dam in Amsterdam blijft vastzitten. De ander wordt vrijgelaten, maar...
+- [Slachtoffers van vervolging Roma en Sinti in WO II herdacht in Amsterdam](https://nos.nl/l/2625306)
+  > In het Nationaal Holocaustmuseum in Amsterdam is de vervolging van de Roma en Sinti tijdens de Tweede Wereldoorlog herdacht. In het museum werden...
 - [Deen en Griek komen om bij botsing tussen blushelikopters in Griekenland](https://nos.nl/l/2625296)
   > Bij een botsing tussen twee blushelikopters in Griekenland zijn twee doden gevallen. Het gaat om een Deense piloot en een Griekse coördinator van de...
-- [Italiaanse militairen controleren tanker van Russische schaduwvloot](https://nos.nl/l/2625291)
-  > De Italiaanse strijdkrachten hebben vanmorgen een inspectie uitgevoerd op een olietanker op de Middellandse Zee. Per helikopter gingen militairen aan...
-- [Spandoek in Gent lijkt verwijzing naar uitspraak Sophie Straat: 'Dit is gewoon racisme'](https://nos.nl/l/2625290)
-  > In België is een meterslang spandoek op een gebouw langs de E40 in het Oost-Vlaamse Drongen bij Gent door de politie verwijderd. Het doek, met daarop...
-- [Nederlander volgt navigatie en rijdt van hoge trap in Blankenberge](https://nos.nl/l/2625288)
-  > Een Nederlandse automobilist is in de Belgische badplaats Blankenberge vast komen te zitten op een trap. De man van 74 volgde zijn navigatie-app om...
-- [Komende zomerweek eerst tropisch warm, daarna geleidelijk minder heet](https://nos.nl/l/2625284)
-  > Het vrij zonnige en warme zomerweer van de afgelopen tijd krijgt morgen een tropisch vervolg. Vanaf morgen geldt in het hele land het Nationaal...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ceuta toont hoe kwetsbaar de Europese samenwerking is bij aanpak migratie](https://www.ad.nl/commentaar/ceuta-toont-hoe-kwetsbaar-de-europese-samenwerking-is-bij-aanpak-migratie~a703a620/)
-  > Het is lastig te geloven dat er toevallig ineens 50.000 jonge mannen tegelijkertijd de grens met de Europese Unie oversteken. En hoewel het...
-- [Lorena Wiebes blijft in het geel, Demi Vollering heeft nipte voorsprong op concurrentie](https://www.ad.nl/wielrennen/lorena-wiebes-blijft-in-het-geel-demi-vollering-heeft-nipte-voorsprong-op-concurrentie~a7bae757/)
-  > De Tour de France Femmes start op zaterdag 1 augustus in Lausanne en eindigt op zaterdag 9 augustus in Nice. De vijfde editie belooft een heel...
-- [Kolo Muani en Bosnisch toptalent naar Juventus, Rober definitief terug naar Spanje](https://www.ad.nl/voetbal/kolo-muani-en-bosnisch-toptalent-naar-juventus-rober-definitief-terug-naar-spanje~acbd43e6/)
-  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
-- [Frietjes eten met opa, in toko werken en wielrennen, maar waarom mag Jesse Klaver als kind nooit alleen op pad?](https://www.ad.nl/politiek/frietjes-eten-met-opa-in-toko-werken-en-wielrennen-maar-waarom-mag-jesse-klaver-als-kind-nooit-alleen-op-pad~affb05a5/)
-  > Hij groeide op bij zijn opa en oma, leerde werken in de toko van zijn neef en zat in de kleuterklas bij zijn toekomstige vrouw. PRO-leider Jesse...
-- [Pijnlijk record voor Joey Veerman na rood in Johan Cruijff Schaal, PSV’er mist eredivisiestart](https://www.ad.nl/voetbal/pijnlijk-record-voor-joey-veerman-na-rood-in-johan-cruijff-schaal-psver-mist-eredivisiestart~a49c5190/)
-  > Voor Joey Veerman is de Johan Cruijff Schaal van 2026 een editie om snel te vergeten. De middenvelder van PSV kreeg in de negende minuut rood na een...
+- [Populaire AZ-coach Leeroy Echteld doet wat Louis van Gaal, Arne Slot of Co Adriaanse nooit lukte](https://www.ad.nl/voetbal/populaire-az-coach-leeroy-echteld-doet-wat-louis-van-gaal-arne-slot-of-co-adriaanse-nooit-lukte~a5091abf/)
+  > Dertien jaar won AZ geen prijs en nu wint het er twee in nog geen vier maanden tijd. En hoe, landskampioen PSV werd met liefst 4-0 verslagen, waarna...
+- [De nieuwe Côte d’Azur? Voor Richard en veel anderen ligt die gewoon in Nederland](https://www.ad.nl/buitenland/de-nieuwe-cote-dazur-voor-richard-en-veel-anderen-ligt-die-gewoon-in-nederland~a4195717/)
+  > Terwijl duizenden vakantiegangers dit weekend urenlang in de file stonden richting Zuid-Frankrijk, klapt Richard de Jager op zondagochtend aan de...
+- [Europa blijft voor velen ‘de kans van hun leven’](https://www.ad.nl/binnenland/europa-blijft-voor-velen-de-kans-van-hun-leven~a1af03b9/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [FC Utrecht verliest onder leiding van nieuwe captain van Sevilla, FC Twente tussen Europese duels door onderuit](https://www.ad.nl/voetbal/fc-utrecht-verliest-onder-leiding-van-nieuwe-captain-van-sevilla-fc-twente-tussen-europese-duels-door-onderuit~ab5071ea/)
+  > De eredivisieclubs zijn bezig aan de voorbereiding op het nieuwe seizoen. In dit artikel lees je het programma en alle uitslagen per club. Onder het...
+- [Daniël kan door ochtendklus zoontje (4) niet naar school brengen: ‘Maar wel op maandagmiddag naar pretpark’](https://www.ad.nl/show/daniel-kan-door-ochtendklus-zoontje-4-niet-naar-school-brengen-maar-wel-op-maandagmiddag-naar-pretpark~aed64f93/)
+  > Radio-dj’s Daniël Lippens en Roelof de Vries beginnen maandag aan hun nieuwe ochtendshow op NPO Radio 2. In hun eerste gezamenlijke interview in zes...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Migrantencrisis in Ceuta voorbij, maar Spaanse premier is nog lang niet uit de problemen](https://fd.nl/politiek/1606387/migrantencrisis-in-ceuta-voorbij-maar-spaanse-premier-is-nog-lang-niet-uit-de-problemen)
-  > Tienduizenden Marokkanen die naar de Spaanse exclave Ceuta zwommen, zijn inmiddels teruggekeerd. De Spaanse premier Sánchez zal aan de bak moeten om...
+- [Jongeren met mentale klachten verdienen aandacht van werkgever en politiek](https://fd.nl/opinie/1606477/jongeren-met-mentale-klachten-verdienen-aandacht-van-werkgever-en-politiek)
+  > Werkgevers, werknemers en politiek hebben volop reden om de toenemende psychische klachten bij jonge mensen zeer serieus te nemen.
+- [Air France-KLM hoopt te profiteren van strijd om EasyJet](https://fd.nl/bedrijfsleven/1606485/air-france-klm-hoopt-te-profiteren-van-strijd-om-easyjet)
+  > Topman Ben Smith rekent erop deel verloren klantenkring terug te winnen
+- [Elektrische auto haalt hybride in qua marktaandeel](https://fd.nl/bedrijfsleven/1606484/elektrische-auto-haalt-hybride-in-qua-marktaandeel)
+  > Hoge benzineprijzen winnen het van hoge aanschafkosten en beperkte actieradius
+- [Migrantencrisis in Ceuta is voorbij, maar Spaanse premier is nog lang niet uit de problemen](https://fd.nl/politiek/1606387/migrantencrisis-in-ceuta-voorbij-maar-spaanse-premier-is-nog-lang-niet-uit-de-problemen)
+  > Tienduizenden mensen die naar de Spaanse exclave Ceuta zwommen, zijn inmiddels teruggekeerd. De Spaanse premier Sánchez zal aan de bak moeten om...
 - [De ‘coolcation’ is in trek: hitte in het zuiden drijft toeristen naar Scandinavië](https://fd.nl/economie/1606380/de-coolcation-is-in-trek-hitte-in-het-zuiden-drijft-toeristen-naar-scandinavie)
   > Een groeiend aantal Zuid-Europeanen ontvlucht de hitte in eigen land en reist naar Denemarken, Noorwegen of Zweden. De luchtvaart en reisbranche...
-- [Daar vind ik dus (n)iets van](https://fd.nl/financiele-markten/1606241/daar-vind-ik-dus-n-iets-van)
-  > Het is typisch Nederlands om overal wat van te vinden en die mening dan vooral ook te geven. Voor een journalist is dat soms best moeilijk.
-- [Bosbranden Griekenland breiden zich uit](https://fd.nl/samenleving/1606482/bosbranden-griekenland-breiden-zich-uit)
-  > Europa zet zich schrap voor nieuwe hittegolf; code rood in groot aantal Italiaanse steden.
-- [Belangrijke hoek van cryptomarkt zit in zwaar weer door hacks en desinteresse](https://fd.nl/financiele-markten/1606265/belangrijke-cryptomarkt-zit-in-zwaar-weer-door-hacks-en-afnemende-interesse)
-  > Decentralized finance (DeFi) – onderling lenen, verzekeren en handelen via cryptonetwerken – kampt met miljoenenhacks, een gebrek aan interesse en...
 
 ### Meest gelezen
 
