@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-08-2026 om 03:44*
+*Laatst bijgewerkt: 02-08-2026 om 06:36*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Caravans uitgebrand op afgelegen terrein Amsterdam, bewoners in veiligheid](https://nos.nl/l/2625231)
+  > In het Westelijk Havengebied in Amsterdam zijn zeven caravans door brand verwoest. De brand brak vanochtend vroeg uit op caravanpark 't Landje....
+- [Monument op de Dam in Amsterdam beklad, politie zet gebied af](https://nos.nl/l/2625226)
+  > Het Nationaal Monument op de Dam in Amsterdam is beklad. Wanneer dat precies is gebeurd, is niet bekend.
+        Op foto's is te zien dat met gele en...
+- [Geen twijfel: AI-telefonist moet zich voortaan direct prijsgeven](https://nos.nl/l/2625224)
+  > Een gesprek met een chatbot, het bekijken van foto's of filmpjes gemaakt door kunstmatige intelligentie, of bellen met een AI-receptionist. Voor alle...
+- [Wekdienst 2/8: PSV en AZ spelen om Johan Cruijff Schaal • Holocaust Sinti en Roma herdacht](https://nos.nl/l/2625223)
+  > Goedemorgen! Midden in de zomer is er opnieuw veel sport, met vanmiddag de tweede etappe van de Tour de France Femmes en vanavond de wedstrijd om de...
 - [Madonna treedt op tijdens World Pride Music Festival, Kylie Minogue is verrassingsgast](https://nos.nl/l/2625222)
   > Madonna heeft in de nacht van zaterdag op zondag opgetreden tijdens het World Pride Music Festival in concertzaal AFAS Live in Amsterdam. Volgens...
-- [Zeker vier doden in Gaza door aanvallen Israëlische leger](https://nos.nl/l/2625221)
-  > Bij Israëlische luchtaanvallen op Gaza zijn zeker vier Palestijnen gedood, meldt persbureau Reuters op basis van Palestijnse...
-- [Acteur Vincent Pastore, bekend als 'Big Pussy' uit The Sopranos, overleden](https://nos.nl/l/2625220)
-  > De Amerikaanse acteur Vincent Pastore is op 80-jarige leeftijd overleden. Dat melden Amerikaanse media. Hij is bekend van zijn rollen als gangster in...
-- [Vliegtuigje met Europese toeristen stort neer in Peru, 13 doden](https://nos.nl/l/2625217)
-  > In het zuidwesten van Peru is een klein vliegtuig neergestort. Alle inzittenden zijn daarbij om het leven gekomen. In het toestel zaten elf toeristen...
-- [Hongaarse kerncentrale stilgezet vanwege lage waterstand Donau](https://nos.nl/l/2625210)
-  > De Hongaarse premier Magyar zegt dat de kerncentrale van Paks vandaag wordt stilgezet, omdat hij niet kan worden gekoeld door een recordlage...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Madonna brengt Kylie Minogue op podium tijdens stomend nachtoptreden in Afas Live](https://www.ad.nl/show/madonna-brengt-kylie-minogue-op-podium-tijdens-stomend-nachtoptreden-in-afas-live~aec44650/)
-  > Inclusief het onverwachte verschijnen van Kylie Minogue bleek het optreden van Madonna, ondanks zijn korte duur van 33 minuten, precies waar de...
-- [Nieuwe aanval op Iran voorlopig afgeblazen in afwachting van akkoord, zegt Trump](https://www.ad.nl/buitenland/nieuwe-aanval-op-iran-voorlopig-afgeblazen-in-afwachting-van-akkoord-zegt-trump~ac528ac3/)
-  > De Amerikaanse president Donald Trump zegt een geplande aanval op Iran voorlopig af te blazen, omdat Teheran en andere landen in het Midden-Oosten de...
-- [Chaos op Siciliaans strand nadat ineens honderdduizenden euro’s uit zee aanspoelen](https://www.ad.nl/buitenland/chaos-op-siciliaans-strand-nadat-ineens-honderdduizenden-euros-uit-zee-aanspoelen~a97364c0/)
-  > Het was een opmerkelijk tafereel voor strandgangers in het Siciliaanse badplaatsje Marina di Ragusa, toen afgelopen woensdag plots honderdduizenden...
-- [Gesprekken tussen regering en oppositie Venezuela na vertraging volgende week van start](https://www.ad.nl/buitenland/gesprekken-tussen-regering-en-oppositie-venezuela-na-vertraging-volgende-week-van-start~a0d9660d/)
-  > De politieke dialoog in Venezuela tussen regering en oppositie gaat ‘volgende week fysiek’ van start. Dat hebben de twee delegatieleiders zaterdag...
-- [Marokko vernoemt snelweg in Westelijke Sahara naar Trump](https://www.ad.nl/buitenland/marokko-vernoemt-snelweg-in-westelijke-sahara-naar-trump~ae67dd9c/)
-  > Marokko heeft een snelweg die het zuiden van het land verbindt met het betwiste gebied van de Westelijke Sahara, vernoemd naar de Amerikaanse...
+- [Kapotte auto, geen stroom, geen water: bij aankomst huilden ze, nu zijn Marije en Eric dolgelukkig in Zweden](https://www.ad.nl/binnenland/kapotte-auto-geen-stroom-geen-water-bij-aankomst-huilden-ze-nu-zijn-marije-en-eric-dolgelukkig-in-zweden~a259777f/)
+  > Een kapotte auto, metershoge sneeuw en twee maanden leven zonder douche. De Woudenbergse Marije en Eric begonnen met flinke tegenslagen aan hun...
+- [Jenning de Boo en Joy Beune clashen nu ook op circuit: ‘Misschien moet hij eerst oefenen met schakelen’](https://www.ad.nl/voetbal/jenning-de-boo-en-joy-beune-clashen-nu-ook-op-circuit-misschien-moet-hij-eerst-oefenen-met-schakelen~a2f3cab6/)
+  > The Battle of the Sexes krijgt een deel 2: Joy Beune (27) en Jenning de Boo (22) gaan zondag opnieuw de strijd met elkaar aan. Niet op het ijs, maar...
+- [Acht doden bij Israëlische luchtaanvallen op de Gazastrook](https://www.ad.nl/buitenland/acht-doden-bij-israelische-luchtaanvallen-op-de-gazastrook~a610d1d9/)
+  > Bij Israëlische aanvallen op de Gazastrook zijn zaterdag volgens de autoriteiten in Gaza zeker acht mensen om het leven gekomen. De aanvallen vonden...
+- [Sopranos-acteur Vincent Pastore (80), bekend van zijn rol als ‘Big Pussy’, overleden](https://www.ad.nl/show/sopranos-acteur-vincent-pastore-80-bekend-van-zijn-rol-als-big-pussy-overleden~a994048e/)
+  > De Amerikaanse acteur Vincent Pastore is op 80-jarige leeftijd overleden. Hij werd zaterdag dood aangetroffen in zijn woning in New York, meldt...
+- [Lionel Messi maakt twee weken na WK-finale rentree voor Inter Miami, thuisdebuut om snel te vergeten voor Casemiro](https://www.ad.nl/voetbal/lionel-messi-maakt-twee-weken-na-wk-finale-rentree-voor-inter-miami-thuisdebuut-om-snel-te-vergeten-voor-casemiro~a0cc2a77/)
+  > Geen fijne binnenkomer voor Casemiro (34) in het Nu Stadium van Inter Miami. De oud-speler van onder meer Real Madrid en Manchester United maakte bij...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Consument krijgt recht op reparatie, maar afvalberg zal er nog niet snel door slinken](https://fd.nl/bedrijfsleven/1606191/consument-krijgt-recht-op-reparatie-maar-afvalberg-zal-er-nog-niet-snel-door-slinken)
+  > Reparatie van consumentenelektronica is duur en moeilijk. Een nieuwe Europese wet moet de levensduur van apparaten verlengen. ‘Repareren moet de norm...
+- [Zonder regie wordt Nederland vuilwaterland](https://fd.nl/opinie/1606094/zonder-regie-wordt-nederland-vuilwaterland)
+  > Ons zoetwater verslechtert. Als nationaal beleid niet verscherpt, holt de kwaliteit van ons drinkwater achteruit, vervuilt onze natuur en neemt de...
+- [‘Juridische actie Trump rond deals met  advocaten dreigt rechtsstaat verder uit te hollen’](https://fd.nl/financiele-markten/1605963/juridische-actie-trump-rond-deals-met-advocaten-dreigt-rechtsstaat-verder-uit-te-hollen)
+  > Het Amerikaanse ministerie van justitie wil weten wat is afgesproken tussen de grote advocatenkantoren en het Witte Huis. Juridische experts zien het...
+- [Baas Rotterdamse woningcorporatie: ‘Laat het aan onszelf om maatwerk te leveren’](https://fd.nl/politiek/1605344/baas-rotterdamse-woningcorporatie-laat-het-aan-onszelf-om-maatwerk-te-leveren)
+  > Hedy van den Berk (63) is vijftien jaar bestuurder bij de Rotterdamse woningcorporatie Havensteder. Klaar is ze nog niet. ‘Soms vraagt de...
 - [Luisterverhaal: Iedereen verplicht een slimme meter: de dagen van ons oude Ferraris-apparaat zijn geteld](https://fd.nl/samenleving/1605955/luisterverhaal-iedereen-verplicht-een-slimme-meter-de-dagen-van-ons-oude-ferraris-apparaat-zijn-geteld)
   > Deze week hoor je het verhaal van onze verslaggever die afscheid moet nemen van zijn ouderwetse, analoge elektriciteitsmeter.
-- [ArcelorMittal zet miljardenplan voor groen staal in Gent in de ijskast](https://fd.nl/bedrijfsleven/1606384/arcelormittal-zet-miljardenplan-voor-groen-staal-in-gent-in-de-ijskast)
-  > In de investeringsplannen van het bedrijf tot 2030 komt het project niet voor.
-- [‘Fed-voorzitter Warsh overweegt aantal beleidsvergaderingen te verminderen’](https://fd.nl/economie/1606476/fed-voorzitter-wash-overweegt-aantal-beleidsvergaderingen-te-verminderen)
-  > Een vermindering van het aantal vergaderingen zou een aanzienlijke verandering betekenen voor de Amerikaanse centrale bank.
-- [Fifa-voorzitter Infantino schrapt plan voor verkoop belang in WK, bonden ‘hebben vertrouwen verloren’](https://fd.nl/samenleving/1606382/fifa-voorzitter-infantino-schrapt-plan-voor-verkoop-belang-in-wk)
-  > ‘Ons doel is altijd geweest – en zal altijd blijven – om te verenigen en te verbeteren’, aldus Fifa-voorzitter Gianni Infantino in een verklaring.
-- [Waarom hebben we financiële crises nodig?](https://fd.nl/samenleving/1606240/waarom-hebben-we-financiele-crises-nodig)
-  > Wat zijn de voordelen van een financiële crisis? Dat is het de vraag die centraal staat in de vierde aflevering van de Summer School.
 
 ### Meest gelezen
 
