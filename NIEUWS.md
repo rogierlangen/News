@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-08-2026 om 20:59*
+*Laatst bijgewerkt: 02-08-2026 om 22:03*
 
 ---
 
@@ -27,7 +27,9 @@
 
 ### Laatste nieuws
 
-- [Joël Drommel terug naar FC Twente, PSG gaat voor Japanse doelman](https://www.ad.nl/voetbal/joel-drommel-terug-naar-fc-twente-psg-gaat-voor-japanse-doelman~acbd43e6/)
+- [Marokko wijst desinformatie en mensensmokkelaars aan als aanjagers van massale oversteek naar Ceuta](https://www.ad.nl/buitenland/marokko-wijst-desinformatie-en-mensensmokkelaars-aan-als-aanjagers-van-massale-oversteek-naar-ceuta~aecf5638/)
+  > Volgens het Marokkaanse ministerie van Binnenlandse Zaken waren de recente massale oversteken naar de Spaanse exclave Ceuta aangewakkerd door...
+- [Joël Drommel terug naar Twente, PSG gaat voor Japanse doelman en Argentijnse back naar Chelsea](https://www.ad.nl/voetbal/joel-drommel-terug-naar-twente-psg-gaat-voor-japanse-doelman-en-argentijnse-back-naar-chelsea~acbd43e6/)
   > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
 - [Giovanni van Bronckhorst en Tsuyoshi Watanabe stellen Feyenoord-fans gerust: ‘Het is niet gebroken’](https://www.ad.nl/voetbal/giovanni-van-bronckhorst-en-tsuyoshi-watanabe-stellen-feyenoord-fans-gerust-het-is-niet-gebroken~a4c2a14ad/)
   > Feyenoord-verdediger Tsuyoshi Watanabe heeft een vervelende blessure opgelopen in de oefenwedstrijd tegen Atalanta. De Japanner moest al na drie...
@@ -35,8 +37,6 @@
   > Terwijl natuurbranden verschillende zuidelijke Europese landen in hun greep houden, steekt het vuur ook in Nederland op verschillende plekken de kop...
 - [Duitse douane beboet Nederlander met zeldzame ‘Bond-bolide’, moet 19.000 euro afrekenen](https://www.ad.nl/binnenland/duitse-douane-beboet-nederlander-met-zeldzame-bond-bolide-moet-19-000-euro-afrekenen~a78afb2ff/)
   > Een 52-jarige Nederlander dacht een zeldzame Aston Martin stiekem vanuit Zwitserland de Europese Unie binnen te loodsen. Maar bij een controle...
-- [In Het Wiel | ‘Riejanne Markus heeft de rensters van SD Worx helemaal gesloopt’](https://www.ad.nl/tour-de-france/in-het-wiel-riejanne-markus-heeft-de-rensters-van-sd-worx-helemaal-gesloopt~a58111af/)
-  > Riejanne Markus rookte met haar solo het hele team van SD Worx op. Toch bleek ook dat niet genoeg. Op 400 meter van de streep werd ze gegrepen,...
 
 ### Meest gelezen
 
