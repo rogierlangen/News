@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-08-2026 om 08:31*
+*Laatst bijgewerkt: 03-08-2026 om 12:28*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Honderden gebouwen verwoest bij natuurbranden in staat Washington](https://nos.nl/l/2625347)
-  > In de Amerikaanse staat Washington zijn ten minste 600 gebouwen verwoest door natuurbranden. Ook moesten 60.000 mensen hun huis verlaten. Er zijn...
-- [PostNL bezorgt minder, vooral afname van pakketten uit Aziatische webwinkels](https://nos.nl/l/2625346)
-  > PostNL bezorgde in de eerste helft van dit jaar minder pakketten dan in dezelfde periode vorig jaar. Uit de kwartaalcijfers die het postbedrijf...
-- [Japan en VS proberen yen te redden, maar effect op lange termijn onzeker](https://nos.nl/l/2625343)
-  > De Japanse yen was weggezakt tot het laagste niveau in bijna veertig jaar, maar schoot de afgelopen dagen omhoog. Berichten over geheime aankopen en...
-- [Vijf vrouwen in Al-Fayed-misbruikzaak zijn slachtoffer van mensenhandel](https://nos.nl/l/2625340)
-  > Vijf vrouwen die slachtoffer werden in een misbruikschandaal rondom de overleden zakenman Mohamed al-Fayed zijn formeel erkend als slachtoffer van...
-- [Gelderse veerpontjes uit de vaart door lage waterstanden op rivieren](https://nos.nl/l/2625337)
-  > Verschillende pontjes in Gelderland zijn uit de vaart gehaald vanwege lage waterstanden door aanhoudende droogte. Dat meldt Omroep Gelderland.
-      ...
+- [Grote natuurbrand in Noord-Limburg, geen treinen tussen Nijmegen en Venray](https://nos.nl/l/2625377)
+  > In het Limburgse dorp Oostrum, in de gemeente Venray, woedt een natuurbrand. Vanwege de droogte is extra opgeschaald. Er rijden vanwege de...
+- [Iran ontkent dat er nieuwe gesprekken zijn met de Verenigde Staten](https://nos.nl/l/2625375)
+  > Iran voert geen gesprekken met de Verenigde Staten, zegt de woordvoerder van het Iraanse ministerie van Buitenlandse Zaken Baghaei. Daarmee spreekt...
+- [Corné H. krijgt voorwaardelijke celstraf voor gijzeling gevangenispersoneel](https://nos.nl/l/2625374)
+  > Corné H. is veroordeeld tot een jaar voorwaardelijke celstraf voor het gijzelen van medewerkers van de gevangenis in Vught, eind vorig jaar. Hij zat...
+- [Podcast De Dag: werken tussen de bosbranden](https://nos.nl/l/2625371)
+  > Op verschillende plekken in Europa zijn of worden mensen geëvacueerd vanwege grote bosbranden. Maar wat als je voor je werk juist naar die bosbranden...
+- [Weer Oekraïense aanvallen op Russische webwinkel Wildberries](https://nos.nl/l/2625368)
+  > Bij Oekraïense aanvallen op Rusland is een magazijn van Wildberries geraakt, de grootste webwinkel van het land. Daarbij zijn volgens regionale...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Na weken van mysterie: Tourwinnaar Tadej Pogacar rijdt deze maand ook Vuelta](https://www.ad.nl/vuelta/na-weken-van-mysterie-tourwinnaar-tadej-pogacar-rijdt-deze-maand-ook-vuelta~afcd2aa5/)
-  > Tadej Pogacar (27) staat over drie weken voor het eerst sinds 2019 nog eens aan de start van de Ronde van Spanje. Hij was afgelopen weken mysterieus,...
-- [‘U wilt dus dat ik een vergiftiging krijg’, zegt meneer Van Vleugelen beschuldigend tegen dokter Rutger](https://www.ad.nl/gezond/u-wilt-dus-dat-ik-een-vergiftiging-krijg-zegt-meneer-van-vleugelen-beschuldigend-tegen-dokter-rutger~ad323c13/)
-  > Veel mensen willen afvallen. Het liefst zonder eindeloos diëten of aanpassing van hun levensstijl. Afslankmiddelen via de illegale weg zijn dan ook...
-- [De overheid wil meer bioboeren, maar is dat wel realistisch? Dit is wat er moet gebeuren](https://www.ad.nl/binnenland/de-overheid-wil-meer-bioboeren-maar-is-dat-wel-realistisch-dit-is-wat-er-moet-gebeuren~af8fbde3/)
-  > Bij de supermarkt kies jij misschien de goedkopere komkommer. Logisch. Maar precies daar wringt het voor de biologische boer. Want zonder kopers geen...
-- [Dit zijn de mogelijke tegenstanders van NEC, FC Twente en Ajax bij de loting van vanmiddag](https://www.ad.nl/voetbal/dit-zijn-de-mogelijke-tegenstanders-van-nec-fc-twente-en-ajax-bij-de-loting-van-vanmiddag~afd92b04/)
+- [Dit zijn de mogelijke opponenten van NEC, Ajax en FC Twente als ze Europese play-offs bereiken](https://www.ad.nl/voetbal/dit-zijn-de-mogelijke-opponenten-van-nec-ajax-en-fc-twente-als-ze-europese-play-offs-bereiken~afd92b04/)
   > Als NEC, FC Twente en Ajax de derde voorronde in Europa overleven, bereiken ze de play-offs. De mogelijke opponenten daarin zijn sinds maandagochtend...
-- [Italiaans eiland verwacht half miljard aan toeristeninkomsten na succes van film The Odyssey](https://www.ad.nl/buitenland/italiaans-eiland-verwacht-half-miljard-aan-toeristeninkomsten-na-succes-van-film-the-odyssey~a4195717/)
-  > Het megasucces van de bioscoophit The Odyssey legt het Italiaanse eilandje Favignana geen windeieren. Sinds regisseur Christopher Nolan het eiland...
+- [Brussel wil meebetalen aan enorme Rotterdamse AI-fabriek, maar Den Haag niet: ‘Onbegrijpelijk’](https://www.ad.nl/tech/brussel-wil-meebetalen-aan-enorme-rotterdamse-ai-fabriek-maar-den-haag-niet-onbegrijpelijk~af9a56fc/)
+  > Het kabinet zegt van Nederland een ‘digitale koploper’ te willen maken, maar weigert de knip te trekken voor een gigantisch Europees AI-project....
+- [PSV-spits (18) op weg naar Cambuur, Vozinha (40) als held onthaald in Chili](https://www.ad.nl/voetbal/psv-spits-18-op-weg-naar-cambuur-vozinha-40-als-held-onthaald-in-chili~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
+- [Rijkswaterstaat zet stuwen bij Driel voor het eerst open vanwege extreem lage waterstand in Rijn](https://www.ad.nl/binnenland/rijkswaterstaat-zet-stuwen-bij-driel-voor-het-eerst-open-vanwege-extreem-lage-waterstand-in-rijn~ac4d3c42/)
+  > Rijkswaterstaat zet de stuwen in de Nederrijn bij het Gelderse dorp Driel helemaal open. De waterstand aan beide kanten van het stuwcomplex is...
+- [138 miljoen, 135 miljoen... dit zijn de duurste aankopen tot nu toe deze zomer: twee Nederlanders in top 10](https://www.ad.nl/voetbal/138-miljoen-135-miljoen-dit-zijn-de-duurste-aankopen-tot-nu-toe-deze-zomer-twee-nederlanders-in-top-10~a3c4d674/)
+  > De transfermarkt in Europa is nog een maand lang open, maar zeker in de Premier League is er deze zomer al heel veel geld uitgegeven én verdiend. Dit...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [We hebben meer losers nodig](https://fd.nl/opinie/1598109/we-hebben-meer-losers-nodig)
-  > Terwijl AI steeds beter wordt in Stem (Science, Technology, Engineering and Mathematics), stijgt de waarde van precies die menselijke eigenschappen...
-- [Nederlandse productie groeit het hardst in vier jaar tijd](https://fd.nl/economie/1606411/nederlandse-productie-groeit-het-hardst-in-vier-jaar-tijd)
-  > Ruim een kwart van de door beroepsvereniging Nevi ondervraagde bedrijven verhoogde in juni de productie.
-- [Japan bevestigt ingreep met VS in volatiele yenmarkt](https://fd.nl/financiele-markten/1606502/japan-bevestigt-ingreep-met-vs-in-volatiele-yenmarkt)
-  > Volgens minister van financiën Katayama Satsuki is de ingreep in lijn met eerdere afspraken gemaakt met de Amerikanen.
-- [PostNL kondigt nieuwe kostenbesparingen aan](https://fd.nl/bedrijfsleven/1606478/postnl-kondigt-nieuwe-kostenbesparingen-aan)
-  > De omzet van de post- en pakketbezorger bleef in de eerste zes maanden van dit jaar gelijk. Het operationele verlies nam licht af.
-- [Trump zegt dat gesprekken VS met Iran maandag beginnen, olieprijs daalt](https://fd.nl/politiek/1606410/trump-zegt-dat-gesprekken-vs-met-iran-maandag-beginnen-olieprijs-daalt)
-  > De Amerikaanse president suggereerde dat een akkoord over heropening van de Straat van Hormuz nabij is. Vanuit Iraanse zijde is nog geen bevestiging...
+- [Marokko: ‘Desinformatie belangrijkste aanleiding dodelijke bestorming Ceuta’](https://fd.nl/politiek/1606417/marokko-desinformatie-belangrijkste-aanleiding-dodelijke-bestorming-ceuta)
+  > Uit onderzoek van het ministerie van binnenlandse zaken blijkt dat de gebeurtenissen niet ‘toevallig of spontaan’ tot stand kwamen.
+- [Family office Ardys moet vertrokken directeur nog twee maandsalarissen betalen](https://fd.nl/bedrijfsleven/1605887/family-office-ardys-moet-vertrokken-directeur-nog-twee-maandsalarissen-betalen)
+  > In de rechtszaal klonken stevige verwijten. ‘Blunders’ van de directeur zouden tientallen miljoenen hebben gekost. Maar de rechter kijkt vooral naar...
+- [Nederlandse lobby in Brussel draait op volle toeren om pensioenpot te beschermen](https://fd.nl/financiele-markten/1605014/nederlandse-lobby-in-brussel-draait-op-volle-toeren-om-pensioenpot-te-beschermen)
+  > Bij nieuwe richtlijnen voor aanvullend pensioen in Europa geldt Nederland als lichtend voorbeeld. Maar juist uit Nederlandse hoek klinkt kritiek op...
+- [Negatieve reacties op mogelijke fusie van AstraZeneca en Bristol Myers Squibb](https://fd.nl/financiele-markten/1606416/negatieve-reacties-op-mogelijke-fusie-van-astrazeneca-en-bristol-myers-squibb)
+  > De beurskoers van het Britse farmaconcern daalt met ruim 6% op het nieuws. Financiële analisten uitten grote bedenkingen over het samengaan met de...
+- [Italiaanse kabelfabrikant Prysmian doet weer grote Amerikaanse overname](https://fd.nl/bedrijfsleven/1606509/italiaanse-kabelfabrikant-prysmian-doet-weer-grote-amerikaanse-overname)
+  > Prysmian profiteert al enkele jaren van de groeiende vraag naar goede bekabeling voor het faciliteren van de energietransitie.
 
 ### Meest gelezen
 
