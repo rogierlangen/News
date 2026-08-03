@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-08-2026 om 04:32*
+*Laatst bijgewerkt: 03-08-2026 om 08:31*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Trump: 'Vandaag nieuwe gesprekken met Iran', geen reactie uit Teheran](https://nos.nl/l/2625329)
-  > De Amerikaanse president Trump zegt dat nieuwe onderhandelingen met Iran over een staakt-het-vuren in de loop van de dag beginnen. Zaterdag besloot...
-- [Geen treinen tussen Utrecht en Den Haag door kapotte bovenleiding](https://nos.nl/l/2625328)
-  > De problemen op het spoor tussen Utrecht en Den Haag en tussen Utrecht en Rotterdam houden tot en met de ochtendspits aan. De bovenleiding is kapot...
-- [Israëlische aanvallen op Gaza gaan door ondanks Trumps 'historische overeenkomst'](https://nos.nl/l/2625318)
-  > Enkele dagen nadat er door de Amerikaanse president Trump is gesproken over een "historische overeenkomst" in de onderhandelingen tussen Hamas en...
-- [Zelfmoordaanslag op demonstratie bij politiebureau in Pakistan, zeker 14 doden](https://nos.nl/l/2625317)
-  > In het noordwesten van Pakistan zijn zeker veertien doden gevallen door een zelfmoordaanslag. Het vermoedelijke doelwit was een demonstratie bij een...
-- [Wanhopige Marokkanen wachten bij Ceuta op familieleden: 'Hij had hier niet moeten zijn'](https://nos.nl/l/2625315)
-  > Na de ongekende overtocht van migranten vanuit Marokko naar de Spaanse exclave Ceuta lijkt de rust bij de grensovergang teruggekeerd, maar tientallen...
+- [Honderden gebouwen verwoest bij natuurbranden in staat Washington](https://nos.nl/l/2625347)
+  > In de Amerikaanse staat Washington zijn ten minste 600 gebouwen verwoest door natuurbranden. Ook moesten 60.000 mensen hun huis verlaten. Er zijn...
+- [PostNL bezorgt minder, vooral afname van pakketten uit Aziatische webwinkels](https://nos.nl/l/2625346)
+  > PostNL bezorgde in de eerste helft van dit jaar minder pakketten dan in dezelfde periode vorig jaar. Uit de kwartaalcijfers die het postbedrijf...
+- [Japan en VS proberen yen te redden, maar effect op lange termijn onzeker](https://nos.nl/l/2625343)
+  > De Japanse yen was weggezakt tot het laagste niveau in bijna veertig jaar, maar schoot de afgelopen dagen omhoog. Berichten over geheime aankopen en...
+- [Vijf vrouwen in Al-Fayed-misbruikzaak zijn slachtoffer van mensenhandel](https://nos.nl/l/2625340)
+  > Vijf vrouwen die slachtoffer werden in een misbruikschandaal rondom de overleden zakenman Mohamed al-Fayed zijn formeel erkend als slachtoffer van...
+- [Gelderse veerpontjes uit de vaart door lage waterstanden op rivieren](https://nos.nl/l/2625337)
+  > Verschillende pontjes in Gelderland zijn uit de vaart gehaald vanwege lage waterstanden door aanhoudende droogte. Dat meldt Omroep Gelderland.
+      ...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Flitsmarathon: op deze plekken wordt vanaf vandaag intensief gecontroleerd](https://www.ad.nl/auto/flitsmarathon-op-deze-plekken-wordt-vanaf-vandaag-intensief-gecontroleerd~a3cd56e0/)
-  > Automobilisten in Nederland en Europese vakantielanden moeten vanaf vandaag rekening houden met strengere snelheidscontroles. Tot en met 9 augustus...
-- [Honden trotseren de oceaan in Californië tijdens wereldkampioenschap hondensurfen](https://www.ad.nl/buitenland/honden-trotseren-de-oceaan-in-californie-tijdens-wereldkampioenschap-hondensurfen~a914719b/)
-  > Surfplanken, hoge golven en blaffende deelnemers: in het Californische Pacifica vond zaterdag opnieuw het wereldkampioenschap hondensurfen plaats. De...
-- [Maandag wordt het tropisch warm: temperaturen tot 33 graden en benauwde nacht](https://www.ad.nl/binnenland/maandag-wordt-het-tropisch-warm-temperaturen-tot-33-graden-en-benauwde-nacht~a25d83d8/)
-  > De temperaturen lopen maandag flink op. Het KNMI heeft code geel afgegeven vanwege de hitte en volgens Weeronline kunnen in delen van het land ook...
-- [Deze familie vergaarde fortuin in Amerika, maar de naam Kushner stinkt inmiddels een uur in de wind](https://www.ad.nl/buitenland/deze-familie-vergaarde-fortuin-in-amerika-maar-de-naam-kushner-stinkt-inmiddels-een-uur-in-de-wind~a4cc3ddb/)
-  > Dik met president Donald Trump en een neus voor opmerkelijke deals. De Amerikaanse familie Kushner werd groot in het vastgoed en verzamelde macht via...
-- [Tienduizenden mensen in Amerikaanse staat Washington geëvacueerd vanwege natuurbranden](https://www.ad.nl/buitenland/tienduizenden-mensen-in-amerikaanse-staat-washington-geevacueerd-vanwege-natuurbranden~afb8427e/)
-  > Honderden gebouwen zijn onbewoonbaar geraakt en tienduizenden mensen zijn geëvacueerd door verwoestende natuurbranden die de staat Washington, in het...
+- [Na weken van mysterie: Tourwinnaar Tadej Pogacar rijdt deze maand ook Vuelta](https://www.ad.nl/vuelta/na-weken-van-mysterie-tourwinnaar-tadej-pogacar-rijdt-deze-maand-ook-vuelta~afcd2aa5/)
+  > Tadej Pogacar (27) staat over drie weken voor het eerst sinds 2019 nog eens aan de start van de Ronde van Spanje. Hij was afgelopen weken mysterieus,...
+- [‘U wilt dus dat ik een vergiftiging krijg’, zegt meneer Van Vleugelen beschuldigend tegen dokter Rutger](https://www.ad.nl/gezond/u-wilt-dus-dat-ik-een-vergiftiging-krijg-zegt-meneer-van-vleugelen-beschuldigend-tegen-dokter-rutger~ad323c13/)
+  > Veel mensen willen afvallen. Het liefst zonder eindeloos diëten of aanpassing van hun levensstijl. Afslankmiddelen via de illegale weg zijn dan ook...
+- [De overheid wil meer bioboeren, maar is dat wel realistisch? Dit is wat er moet gebeuren](https://www.ad.nl/binnenland/de-overheid-wil-meer-bioboeren-maar-is-dat-wel-realistisch-dit-is-wat-er-moet-gebeuren~af8fbde3/)
+  > Bij de supermarkt kies jij misschien de goedkopere komkommer. Logisch. Maar precies daar wringt het voor de biologische boer. Want zonder kopers geen...
+- [Dit zijn de mogelijke tegenstanders van NEC, FC Twente en Ajax bij de loting van vanmiddag](https://www.ad.nl/voetbal/dit-zijn-de-mogelijke-tegenstanders-van-nec-fc-twente-en-ajax-bij-de-loting-van-vanmiddag~afd92b04/)
+  > Als NEC, FC Twente en Ajax de derde voorronde in Europa overleven, bereiken ze de play-offs. De mogelijke opponenten daarin zijn sinds maandagochtend...
+- [Italiaans eiland verwacht half miljard aan toeristeninkomsten na succes van film The Odyssey](https://www.ad.nl/buitenland/italiaans-eiland-verwacht-half-miljard-aan-toeristeninkomsten-na-succes-van-film-the-odyssey~a4195717/)
+  > Het megasucces van de bioscoophit The Odyssey legt het Italiaanse eilandje Favignana geen windeieren. Sinds regisseur Christopher Nolan het eiland...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Regisseur en schrijver Eric de Vroedt: ‘De mate van waardering is voor mij nooit genoeg’](https://fd.nl/samenleving/1606189/regisseur-en-schrijver-eric-de-vroedt-de-mate-van-waardering-is-voor-mij-nooit-genoeg)
-  > Pas na de dood van zijn moeder kon theatermaker Eric de Vroedt voorstellingen maken over zijn Indische achtergrond.
-- [Oud-rechter Internationaal Strafhof: ‘Wie wil nu nog aanklager worden in Den Haag?’](https://fd.nl/politiek/1606185/oud-rechter-internationaal-strafhof-wie-wil-nu-nog-aanklager-worden-in-den-haag)
-  > De Belgische hoogleraar Chris Van den Wyngaert  ziet het Strafhof niet alleen van buiten onder druk staan. Ook intern is er veel kritiek.
-- [Hoe een beursgang van OpenAI en Anthropic de markten tot rust kan brengen](https://fd.nl/economie/1606377/hoe-een-beursgang-van-openai-en-anthropic-de-markten-tot-rust-kan-brengen)
-  > Vandaag in Dagkoers: een beknopte geschiedenis van AkzoNobel,  onrust op de beurzen door AI en de populariteit van Scandinavië als vakantiebestemming.
-- [Zonnepanelen uit Weert houden Oekraïense operatiekamers draaiende](https://fd.nl/bedrijfsleven/1605421/zonnepanelen-uit-weert-houden-oekraiense-operatiekamers-draaiende)
-  > De zonnepanelen liggen al op vijftien ziekenhuizen en drie scholen in Oekraïne. De komende maanden volgen nog zeven ziekenhuizen en twee scholen.
-- [Zijn we beschaafd?](https://fd.nl/opinie/1606386/zijn-we-beschaafd)
-  > ‘Beschaving’ valt moeilijk te definiëren, maar zowel in historische als morele betekenis is het een sleutelbegrip in de huidige internationale...
+- [We hebben meer losers nodig](https://fd.nl/opinie/1598109/we-hebben-meer-losers-nodig)
+  > Terwijl AI steeds beter wordt in Stem (Science, Technology, Engineering and Mathematics), stijgt de waarde van precies die menselijke eigenschappen...
+- [Nederlandse productie groeit het hardst in vier jaar tijd](https://fd.nl/economie/1606411/nederlandse-productie-groeit-het-hardst-in-vier-jaar-tijd)
+  > Ruim een kwart van de door beroepsvereniging Nevi ondervraagde bedrijven verhoogde in juni de productie.
+- [Japan bevestigt ingreep met VS in volatiele yenmarkt](https://fd.nl/financiele-markten/1606502/japan-bevestigt-ingreep-met-vs-in-volatiele-yenmarkt)
+  > Volgens minister van financiën Katayama Satsuki is de ingreep in lijn met eerdere afspraken gemaakt met de Amerikanen.
+- [PostNL kondigt nieuwe kostenbesparingen aan](https://fd.nl/bedrijfsleven/1606478/postnl-kondigt-nieuwe-kostenbesparingen-aan)
+  > De omzet van de post- en pakketbezorger bleef in de eerste zes maanden van dit jaar gelijk. Het operationele verlies nam licht af.
+- [Trump zegt dat gesprekken VS met Iran maandag beginnen, olieprijs daalt](https://fd.nl/politiek/1606410/trump-zegt-dat-gesprekken-vs-met-iran-maandag-beginnen-olieprijs-daalt)
+  > De Amerikaanse president suggereerde dat een akkoord over heropening van de Straat van Hormuz nabij is. Vanuit Iraanse zijde is nog geen bevestiging...
 
 ### Meest gelezen
 
