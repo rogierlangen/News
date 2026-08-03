@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-08-2026 om 12:28*
+*Laatst bijgewerkt: 03-08-2026 om 15:45*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Grote natuurbrand in Noord-Limburg, geen treinen tussen Nijmegen en Venray](https://nos.nl/l/2625377)
-  > In het Limburgse dorp Oostrum, in de gemeente Venray, woedt een natuurbrand. Vanwege de droogte is extra opgeschaald. Er rijden vanwege de...
-- [Iran ontkent dat er nieuwe gesprekken zijn met de Verenigde Staten](https://nos.nl/l/2625375)
-  > Iran voert geen gesprekken met de Verenigde Staten, zegt de woordvoerder van het Iraanse ministerie van Buitenlandse Zaken Baghaei. Daarmee spreekt...
-- [Corné H. krijgt voorwaardelijke celstraf voor gijzeling gevangenispersoneel](https://nos.nl/l/2625374)
-  > Corné H. is veroordeeld tot een jaar voorwaardelijke celstraf voor het gijzelen van medewerkers van de gevangenis in Vught, eind vorig jaar. Hij zat...
-- [Podcast De Dag: werken tussen de bosbranden](https://nos.nl/l/2625371)
-  > Op verschillende plekken in Europa zijn of worden mensen geëvacueerd vanwege grote bosbranden. Maar wat als je voor je werk juist naar die bosbranden...
-- [Weer Oekraïense aanvallen op Russische webwinkel Wildberries](https://nos.nl/l/2625368)
-  > Bij Oekraïense aanvallen op Rusland is een magazijn van Wildberries geraakt, de grootste webwinkel van het land. Daarbij zijn volgens regionale...
+- [Man (20) uit Bergen op Zoom aangehouden in onderzoek naar terrorisme](https://nos.nl/l/2625393)
+  > Een 20-jarige man uit Bergen op Zoom is donderdagavond aangehouden in een onderzoek naar terrorisme. Het Openbaar Ministerie (OM) verdenkt hem ervan...
+- ['Witte mannen'-uitspraak Sophie Straat niet strafbaar, oordeelt OM](https://nos.nl/l/2625391)
+  > De uitspraken van zangeres Sophie Straat tijdens haar optreden bij Best Kept Secret zijn niet strafbaar, concludeert het Openbaar Ministerie. De twee...
+- [Hoe krijg je geradicaliseerde terreurverdachten van hun ideeën af?](https://nos.nl/l/2625389)
+  > Hoe krijg je jongeren bij wie sprake is van gewelddadige radicalisering, daar weer vanaf? Het is een vraag die je de afgelopen dagen vaker hoort,...
+- ['Opportunistische' ooievaar was ooit bijna uitgestorven, maar broedt er nu op los](https://nos.nl/l/2625387)
+  > De kans is groot dat je ergens deze dagen een groep ooievaars ziet, samen zittend op een gebouw of zwevend op de thermiek. In augustus begint...
+- [Stuw in Rijn bij Driel helemaal open vanwege lage waterstand](https://nos.nl/l/2625386)
+  > Rijkswaterstaat heeft de stuw in de Nederrijn bij Driel helemaal opengezet. Bij hoge waterstanden in de Rijn gebeurt dat vaker, zodat het water...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dit zijn de mogelijke opponenten van NEC, Ajax en FC Twente als ze Europese play-offs bereiken](https://www.ad.nl/voetbal/dit-zijn-de-mogelijke-opponenten-van-nec-ajax-en-fc-twente-als-ze-europese-play-offs-bereiken~afd92b04/)
-  > Als NEC, FC Twente en Ajax de derde voorronde in Europa overleven, bereiken ze de play-offs. De mogelijke opponenten daarin zijn sinds maandagochtend...
-- [Brussel wil meebetalen aan enorme Rotterdamse AI-fabriek, maar Den Haag niet: ‘Onbegrijpelijk’](https://www.ad.nl/tech/brussel-wil-meebetalen-aan-enorme-rotterdamse-ai-fabriek-maar-den-haag-niet-onbegrijpelijk~af9a56fc/)
-  > Het kabinet zegt van Nederland een ‘digitale koploper’ te willen maken, maar weigert de knip te trekken voor een gigantisch Europees AI-project....
-- [PSV-spits (18) op weg naar Cambuur, Vozinha (40) als held onthaald in Chili](https://www.ad.nl/voetbal/psv-spits-18-op-weg-naar-cambuur-vozinha-40-als-held-onthaald-in-chili~acbd43e6/)
-  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
-- [Rijkswaterstaat zet stuwen bij Driel voor het eerst open vanwege extreem lage waterstand in Rijn](https://www.ad.nl/binnenland/rijkswaterstaat-zet-stuwen-bij-driel-voor-het-eerst-open-vanwege-extreem-lage-waterstand-in-rijn~ac4d3c42/)
-  > Rijkswaterstaat zet de stuwen in de Nederrijn bij het Gelderse dorp Driel helemaal open. De waterstand aan beide kanten van het stuwcomplex is...
-- [138 miljoen, 135 miljoen... dit zijn de duurste aankopen tot nu toe deze zomer: twee Nederlanders in top 10](https://www.ad.nl/voetbal/138-miljoen-135-miljoen-dit-zijn-de-duurste-aankopen-tot-nu-toe-deze-zomer-twee-nederlanders-in-top-10~a3c4d674/)
-  > De transfermarkt in Europa is nog een maand lang open, maar zeker in de Premier League is er deze zomer al heel veel geld uitgegeven én verdiend. Dit...
+- [Sigrid Haugset vergroot toch weer voorsprong op Kopecky, groepje met Vollering in achtervolging](https://www.ad.nl/wielrennen/sigrid-haugset-vergroot-toch-weer-voorsprong-op-kopecky-groepje-met-vollering-in-achtervolging~ad75fbdc/)
+  > Het peloton maakt zich op voor de eerste zware etappe van deze Tour de France Femmes. De rensters rijden een rit over 156,6 kilometer van het...
+- [Man (20) uit Bergen op Zoom aangehouden omdat hij zich wilde aansluiten bij afdeling van IS](https://www.ad.nl/bergen-op-zoom/man-20-uit-bergen-op-zoom-aangehouden-omdat-hij-zich-wilde-aansluiten-bij-afdeling-van-is~a4f8a0c5/)
+  > Een 20-jarige man uit Bergen op Zoom is vorige week door de politie opgepakt omdat hij plannen zou hebben om zich aan te sluiten bij een tak van de...
+- [Gevaarlijke kwallen overspoelen Franse westkust: verschillende stranden afgesloten](https://www.ad.nl/buitenland/gevaarlijke-kwallen-overspoelen-franse-westkust-verschillende-stranden-afgesloten~a4195717/)
+  > De Franse autoriteiten slaan alarm na meerdere waarnemingen van Portugese oorlogsschepen (kwallen) aan de Atlantische kust. Met hun giftige tentakels...
+- [Italiaan Jonathan Milan wint openingsrit Ronde van Polen na massasprint](https://www.ad.nl/wielrennen/italiaan-jonathan-milan-wint-openingsrit-ronde-van-polen-na-massasprint~afc2ee7c/)
+  > De Italiaanse wielrenner Jonathan Milan heeft de openingsetappe van de Ronde van Polen op zijn naam geschreven. De renner van Lidl-Trek bleef in een...
+- [Woede in Griekenland om leeggeroofde auto’s van brandweerlieden](https://www.ad.nl/buitenland/woede-in-griekenland-om-leeggeroofde-autos-van-brandweerlieden~ad0a3949/)
+  > Terwijl Griekse brandweerlieden in de natuur branden bestrijden, halen criminelen hun auto’s leeg. De landelijke vakbond van bosbrandbestrijders...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Marokko: ‘Desinformatie belangrijkste aanleiding dodelijke bestorming Ceuta’](https://fd.nl/politiek/1606417/marokko-desinformatie-belangrijkste-aanleiding-dodelijke-bestorming-ceuta)
-  > Uit onderzoek van het ministerie van binnenlandse zaken blijkt dat de gebeurtenissen niet ‘toevallig of spontaan’ tot stand kwamen.
-- [Family office Ardys moet vertrokken directeur nog twee maandsalarissen betalen](https://fd.nl/bedrijfsleven/1605887/family-office-ardys-moet-vertrokken-directeur-nog-twee-maandsalarissen-betalen)
-  > In de rechtszaal klonken stevige verwijten. ‘Blunders’ van de directeur zouden tientallen miljoenen hebben gekost. Maar de rechter kijkt vooral naar...
-- [Nederlandse lobby in Brussel draait op volle toeren om pensioenpot te beschermen](https://fd.nl/financiele-markten/1605014/nederlandse-lobby-in-brussel-draait-op-volle-toeren-om-pensioenpot-te-beschermen)
-  > Bij nieuwe richtlijnen voor aanvullend pensioen in Europa geldt Nederland als lichtend voorbeeld. Maar juist uit Nederlandse hoek klinkt kritiek op...
-- [Negatieve reacties op mogelijke fusie van AstraZeneca en Bristol Myers Squibb](https://fd.nl/financiele-markten/1606416/negatieve-reacties-op-mogelijke-fusie-van-astrazeneca-en-bristol-myers-squibb)
-  > De beurskoers van het Britse farmaconcern daalt met ruim 6% op het nieuws. Financiële analisten uitten grote bedenkingen over het samengaan met de...
-- [Italiaanse kabelfabrikant Prysmian doet weer grote Amerikaanse overname](https://fd.nl/bedrijfsleven/1606509/italiaanse-kabelfabrikant-prysmian-doet-weer-grote-amerikaanse-overname)
-  > Prysmian profiteert al enkele jaren van de groeiende vraag naar goede bekabeling voor het faciliteren van de energietransitie.
+- [Afslankmiddelen hebben effect op arbeidsmarkt: minder verzuim en meer kans op baan](https://fd.nl/samenleving/1606517/de-effecten-van-afslankmiddelen-zijn-ook-op-de-arbeidsmarkt-zichtbaar)
+  > Uit twee onderzoeken blijkt dat GLP-1-medicatie zorgt voor minder langdurig ziekteverzuim en dat werkloze vrouwen die haar gebruiken meer kans hebben...
+- [Van Herk stapt naar rechter vanwege conflict met biotechbedrijf Proqr](https://fd.nl/financiele-markten/1606513/van-herk-stapt-naar-rechter-vanwege-conflict-met-biotechbedrijf-proqr)
+  > De Rotterdamse investeerder eist een onderzoek naar het bestuursbeleid bij de beursgenoteerde onderneming uit Leiden. Proqr verwacht dat het verzoek...
+- [JPMorgan investeert $750 mrd in woningmarkt VS](https://fd.nl/financiele-markten/1606427/jpmorgan-investeert-750-mrd-in-woningmarkt-vs)
+  > JPMorgan wil een miljoen betaalbare woningen bouwen en een grotere rol claimen in het Amerikaanse woningbeleid.
+- [Onrust in cryptowereld na hack Coldcard-hardware](https://fd.nl/financiele-markten/1606423/onrust-in-cryptowereld-na-hack-coldcard-hardware)
+  > Na een hack van Coldcard waarbij beleggers $114 mln kwijtraakten, worden crypto-investeerders steeds nerveuzer.
+- [Mayday, mayday! We are sinking!](https://fd.nl/financiele-markten/1606378/mayday-mayday-we-are-sinking)
+  > Lengers Yachts, sinds 1970 handelaar in luxepleziervaartuigen, is failliet. Het bedrijf lag al langer laag in het water: twee jaar rode cijfers en...
 
 ### Meest gelezen
 
