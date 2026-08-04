@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-08-2026 om 08:43*
+*Laatst bijgewerkt: 04-08-2026 om 11:26*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Nog eens veertien gemeenten onder toezicht vanwege te weinig asielplekken](https://nos.nl/l/2625479)
+  > Het aantal gemeenten dat te weinig asielopvang regelt en daarom onder toezicht van het kabinet staat is opgelopen tot 24. Dat heeft minister Van den...
+- [157 migranten gered van brandend schip in Het Kanaal](https://nos.nl/l/2625478)
+  > Voor de kust van Frankrijk is een schip met migranten in brand gevlogen. 157 mensen aan boord zijn gered, zeggen de Franse autoriteiten. Ze zijn...
+- [Dodental door ebola in Congo in korte tijd snel gestegen naar ruim 1700](https://nos.nl/l/2625476)
+  > Het aantal doden door ebola is in de Democratische Republiek Congo (DRC) in twee weken tijd gestegen van 999 naar ruim 1700. Ook het aantal...
+- [Omgaan met hitte is te leren: 'Tijdje in de warmte kan zelfs gezond zijn'](https://nos.nl/l/2625468)
+  > Het is opnieuw erg warm in Nederland. Ook vandaag worden er weer temperaturen van boven de 30 graden verwacht. Limburg heeft zelfs te maken met de...
 - [35 doden bij aanval op rechtbank in Sudan, 'schending van het humanitair recht'](https://nos.nl/l/2625465)
   > Zeker 35 mensen zijn gedood bij een droneaanval van het Sudanese leger op een rechtbank, waar op dat moment een rechtszitting bezig was. Dat meldt...
-- [Zevenaar wil dat minister ingrijpt na reeks ongelukken bij Duitse grenscontroles](https://nos.nl/l/2625460)
-  > De gemeente Zevenaar wil dat minister Karremans (Infrastructuur) in gesprek gaat met zijn Duitse ambtgenoot over de Duitse grenscontroles. De oproep...
-- [Doden en gewonden bij Oekraïense aanvallen op Moskou en Sint-Petersburg](https://nos.nl/l/2625456)
-  > Bij Oekraïense droneaanvallen op de regio Moskou zijn vannacht vijf mensen om het leven gekomen en raakten zes anderen gewond. Dat schrijft regionaal...
-- [Vanochtend spoedoverleg over Ceuta, sfeer tussen EU-landen lijkt veranderd](https://nos.nl/l/2625453)
-  > Europese ministers van Binnenlandse Zaken voeren vandaag een spoedoverleg over de Spaanse exclave Ceuta. Namens Nederland doet minister Van den Brink...
-- [Wekdienst 4/8: Overleg EU-ministers over Ceuta • NEC begint aan Europees avontuur](https://nos.nl/l/2625448)
-  > Goedemorgen! EU-ministers vergaderen in Brussel over het binnendringen van Ceuta door migranten en NEC speelt het eerste duel in de voorrondes van de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Leipzig haalt keeper terug, gesprekken Vinícius en Real Madrid hervat, Dzeko (40) jaartje langer door bij Schalke](https://www.ad.nl/voetbal/leipzig-haalt-keeper-terug-gesprekken-vinicius-en-real-madrid-hervat-dzeko-40-jaartje-langer-door-bij-schalke~acbd43e6/)
-  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
-- [‘UEFA-baas zint op boycot WK voor clubs’, nog meer landen trekken steun aan Gianni Infantino in](https://www.ad.nl/voetbal/uefa-baas-zint-op-boycot-wk-voor-clubs-nog-meer-landen-trekken-steun-aan-gianni-infantino-in~a2544497/)
-  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
-- [Vergelijk altijd deze zaken als je een makelaar zoekt: zo voorkom je verrassingen](https://www.ad.nl/wonen/vergelijk-altijd-deze-zaken-als-je-een-makelaar-zoekt-zo-voorkom-je-verrassingen~a33e8c30/)
-  > Waar let je op als je een makelaar zoekt om je huis te verkopen? De kosten verschillen enorm, net zoals de pakketten die ze aanbieden. Welke...
-- [Jolanda (66) werd in haar scootmobiel tot bloedens toe bekogeld met eieren: ‘Ze kiezen makkelijk slachtoffer’](https://www.ad.nl/binnenland/jolanda-66-werd-in-haar-scootmobiel-tot-bloedens-toe-bekogeld-met-eieren-ze-kiezen-makkelijk-slachtoffer~a96aac7f/)
-  > „Het voelde alsof ik door een steen geraakt werd”, vertelt Jolanda, die nog steeds last heeft van haar been. Als de 66-jarige afgelopen week onderweg...
-- [37-jarige man opgepakt na bosbranden bij Amerikaanse stad Spokane: tienduizenden mensen geëvacueerd](https://www.ad.nl/buitenland/37-jarige-man-opgepakt-na-bosbranden-bij-amerikaanse-stad-spokane-tienduizenden-mensen-geevacueerd~a43d68d7/)
-  > Drie bosbranden aan de rand van Spokane, in de Amerikaanse staat Washington, hebben sinds zaterdag al minstens 700 huizen verwoest en 64.000 mensen...
+- [Rolf Sanchez bevestigt relatie met nieuwe vriendin Lorena: ‘Ze heeft me een half jaar genegeerd’](https://www.ad.nl/show/rolf-sanchez-bevestigt-relatie-met-nieuwe-vriendin-lorena-ze-heeft-me-een-half-jaar-genegeerd~ab9cd8ff/)
+  > Rolf Sanchez heeft een nieuwe vriendin. „Ze heet Lorena”, vertelde de 35-jarige zanger dinsdag in de ochtendshow van 100% NL met Wietze de Jager en...
+- [Zorgen bij brandweer Limburg over voorspeld onweer: ‘Sterke wind zorgt dat vuur zich sneller verspreidt’](https://www.ad.nl/binnenland/zorgen-bij-brandweer-limburg-over-voorspeld-onweer-sterke-wind-zorgt-dat-vuur-zich-sneller-verspreidt~acd7a0de/)
+  > De brandweer heeft een enorme kluif aan het blussen van het vuur in natuurgebied De Rosmolen vlakbij Oostrum. Er zijn grote zorgen over de naderende...
+- [Twents dorp haalt 6000 euro op voor belaagd Syrisch gezin: ‘Zij horen hier thuis’](https://www.ad.nl/binnenland/twents-dorp-haalt-6000-euro-op-voor-belaagd-syrisch-gezin-zij-horen-hier-thuis~ae429fd1/)
+  > Het Twentse Geesteren is een inzamelingsactie begonnen voor het Syrische gezin in het dorp. Het gezin was meermaals doelwit van vernielingen: drie...
+- [Visma biedt mogelijk reddingsboei aan voormalig topsprinter Fabio Jakobsen: ‘Hij verdient het’](https://www.ad.nl/wielrennen/visma-biedt-mogelijk-reddingsboei-aan-voormalig-topsprinter-fabio-jakobsen-hij-verdient-het~a7bdafd3/)
+  > Fabio Jakobsen bevestigde maandag dat hij in gesprek is met Visma-Lease a Bike. Zou de sprinter, die een paar kwakkeljaren achter de rug heeft, een...
+- [Dit verandert er qua toeslagen als je na je pensioen blijft werken: ‘Langer werken levert altijd meer op’](https://www.ad.nl/geld/dit-verandert-er-qua-toeslagen-als-je-na-je-pensioen-blijft-werken-langer-werken-levert-altijd-meer-op~a6de8e81/)
+  > Doorwerken na je AOW-leeftijd verschijnt steeds vaker in cao-afspraken. Werkgevers kampen met personeelstekorten en willen kennis behouden. Maar wat...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [BP boekt hoogste kwartaalwinst in meer dan vier jaar](https://fd.nl/bedrijfsleven/1606549/bp-boekt-hoogste-kwartaalwinst-in-meer-dan-vier-jaar)
-  > Ook de winst bij het Saoedische staatsoliebedrijf Saudi Aramco schiet omhoog.
-- [Steeds meer Indische kinderboeken](https://fd.nl/samenleving/1606188/steeds-meer-indische-kinderboeken)
-  > Jonge Indische ouders willen hun familiegeschiedenis doorgeven aan hun kinderen. Dit leidt tot een groeiend aanbod van jeugdboeken over de...
-- [Echt duurzame diamant komt uit het lab én de mijn](https://fd.nl/opinie/1606412/echt-duurzame-diamant-komt-uit-het-lab-en-de-mijn)
-  > Een Europese wet moet de diamantindustrie verduurzamen. Dat lukt niet zolang de focus ligt op de herkomst van de diamant in plaats van het soort...
-- [Coalitie van Amerikaanse staten stapt naar rechter vanwege heffingen Trump](https://fd.nl/politiek/1606547/coalitie-van-amerikaanse-staten-stapt-naar-rechter-vanwege-heffingen-trump)
-  > Op producten uit zestig landen geldt sinds vorige maand een heffing van 10% tot 12,5%.
-- [Met €38 mln wil Ore Energy zijn eerste fabriek voor ijzer-luchtbatterijen bouwen](https://fd.nl/bedrijfsleven/1606428/met-38-mln-wil-ore-energy-zijn-eerste-fabriek-voor-ijzer-luchtbatterijen-bouwen)
-  > Investeringsmaatschappijen Plural en HV Capital leiden de financieringsronde in het Nederlandse batterijenbedrijf.
+- [Is ‘wonderkind’ Aschenbrenner gestruikeld door overmoed of roofhandel?](https://fd.nl/financiele-markten/1606554/is-wonderkind-aschenbrenner-gestruikeld-door-overmoed-of-roofhandel)
+  > Marktpartijen hadden de mogelijkheid om de zwakke financiële positie van hedgefonds Situational Awareness uit te buiten, toen AI-aandelen vorige week...
+- [Het Italiaanse Prysmian is uitgegroeid tot een kabelimperium](https://fd.nl/financiele-markten/1602130/het-italiaanse-kabelbedrijf-prysmian-is-uitgegroeid-tot-een-kabelimperium)
+  > De fabrikant, die in 2011 het Nederlandse Draka inlijfde, is nu een van de lievelingen van de beurs in Milaan. De afgelopen jaren zette Prysmian in...
+- [Vesteda boekt meer winst door hogere huren en stijgende woningwaarde](https://fd.nl/bedrijfsleven/1606552/vesteda-boekt-meer-winst-door-hogere-huren-en-stijgende-woningwaarde)
+  > De woningbelegger heeft een roerig eerste halfjaar afgesloten met een nettowinst van €438 mln, tegenover €383 mln in dezelfde periode vorig jaar.
+- [Klarinetliefhebber Maarten van Veen (1935-2026) leidde Hoogovens als een dirigent](https://fd.nl/bedrijfsleven/1606556/klarinetspeler-maarten-van-veen-1935-2026-leidde-hoogovens-als-een-dirigent)
+  > Maarten van Veen was in de jaren negentig bestuursvoorzitter van Hoogovens, het tegenwoordige Tata Steel Nederland. Vorige week overleed hij op...
+- [Novartis verliest rechtszaak over vergoeding medicijn tegen prostaatkanker](https://fd.nl/bedrijfsleven/1606551/novartis-verliest-rechtszaak-over-vergoeding-medicijn-tegen-prostaatkanker)
+  > Het farmabedrijf stelde dat het ministerie van VWS een onredelijke prijsverlaging had geëist. De rechtbank in Den Haag gaat daar niet in mee: de...
 
 ### Meest gelezen
 
