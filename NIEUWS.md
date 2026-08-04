@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-08-2026 om 05:51*
+*Laatst bijgewerkt: 04-08-2026 om 08:43*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Vanochtend spoedoverleg over Ceuta, sfeer tussen EU-landen lijkt omgeslagen](https://nos.nl/l/2625453)
+- [35 doden bij aanval op rechtbank in Sudan, 'schending van het humanitair recht'](https://nos.nl/l/2625465)
+  > Zeker 35 mensen zijn gedood bij een droneaanval van het Sudanese leger op een rechtbank, waar op dat moment een rechtszitting bezig was. Dat meldt...
+- [Zevenaar wil dat minister ingrijpt na reeks ongelukken bij Duitse grenscontroles](https://nos.nl/l/2625460)
+  > De gemeente Zevenaar wil dat minister Karremans (Infrastructuur) in gesprek gaat met zijn Duitse ambtgenoot over de Duitse grenscontroles. De oproep...
+- [Doden en gewonden bij Oekraïense aanvallen op Moskou en Sint-Petersburg](https://nos.nl/l/2625456)
+  > Bij Oekraïense droneaanvallen op de regio Moskou zijn vannacht vijf mensen om het leven gekomen en raakten zes anderen gewond. Dat schrijft regionaal...
+- [Vanochtend spoedoverleg over Ceuta, sfeer tussen EU-landen lijkt veranderd](https://nos.nl/l/2625453)
   > Europese ministers van Binnenlandse Zaken voeren vandaag een spoedoverleg over de Spaanse exclave Ceuta. Namens Nederland doet minister Van den Brink...
 - [Wekdienst 4/8: Overleg EU-ministers over Ceuta • NEC begint aan Europees avontuur](https://nos.nl/l/2625448)
   > Goedemorgen! EU-ministers vergaderen in Brussel over het binnendringen van Ceuta door migranten en NEC speelt het eerste duel in de voorrondes van de...
-- [Zorgen bij politie: meer gas-en alarmpistolen in beslag genomen](https://nos.nl/l/2625447)
-  > In Nederland is het verboden om een wapen aan te schaffen dat niet of nauwelijks van een echt vuurwapen is te onderscheiden, maar vlak over de grens...
-- [Natuurbrand Limburg nog niet onder controle: één vierkante kilometer getroffen](https://nos.nl/l/2625445)
-  > De brand in het natuurgebied bij Oostrum, in Noord-Limburg, is sinds gistermiddag flink uitgebreid. Er is tot nu toe een gebied van zo'n 100 hectare...
-- [Nog een Oekraïens ontslag: Zelensky stuurt ambassadeur in de VS weg](https://nos.nl/l/2625444)
-  > De Oekraïense president Zelensky heeft zijn ambassadeur in de Verenigde Staten, Olha Stefanisjyna, ontslagen. Daarover werd al gespeculeerd sinds...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ariana Grande spreekt fans toe na aangekondigde pauze: ‘Was niet impulsief’](https://www.ad.nl/show/ariana-grande-spreekt-fans-toe-na-aangekondigde-pauze-was-niet-impulsief~af93aeed/)
-  > De beslissing van Ariana Grande (33) om een stap terug te nemen van haar openbare leven is niet over een nacht ijs gegaan. Dat maakt de zangeres haar...
-- [Oorlog om eenvoudig fotohokje in gemeentehuis: stukje service of broodroof?](https://www.ad.nl/halderberge/oorlog-om-eenvoudig-fotohokje-in-gemeentehuis-stukje-service-of-broodroof~aa5cddc8/)
-  > Het lijkt zo’n onschuldig object in de hal van het gemeentehuis van Halderberge: een pasfotohokje. Toch is die cabine het middelpunt van een verbeten...
-- [Feyenoord heeft vlekkeloze voorbereiding, maar transferstress dreigt: dit zijn de plussen en minnen](https://www.ad.nl/voetbal/feyenoord-heeft-vlekkeloze-voorbereiding-maar-transferstress-dreigt-dit-zijn-de-plussen-en-minnen~a27f87ad/)
-  > Feyenoord is volgens trainer Giovanni van Bronckhorst ‘redelijk goed door de voorbereiding’ heen gefietst. De stemming rond de club is positief, maar...
-- [Fabio Jakobsen en Visma werken aan opzienbarende transfer: ‘De gesprekken lopen al best lang’](https://www.ad.nl/wielrennen/fabio-jakobsen-en-visma-werken-aan-opzienbarende-transfer-de-gesprekken-lopen-al-best-lang~a7d6e847/)
-  > Hij is een schim van wie hij ooit was en rijdt al tijden geen platte prijs meer. Toch staat hij voor een overstap naar Visma Lease a Bike, bevestigt...
-- [Oekraïne richt vizier opnieuw op Russische webwinkel Wildberries: al meer dan twintig aanvallen](https://www.ad.nl/buitenland/oekraine-richt-vizier-opnieuw-op-russische-webwinkel-wildberries-al-meer-dan-twintig-aanvallen~adfb97be/)
-  > Bij een Oekraïense droneaanval op de regio rond Moskou zijn vijf mensen om het leven gekomen en zes anderen gewond geraakt. Volgens Russische...
+- [Leipzig haalt keeper terug, gesprekken Vinícius en Real Madrid hervat, Dzeko (40) jaartje langer door bij Schalke](https://www.ad.nl/voetbal/leipzig-haalt-keeper-terug-gesprekken-vinicius-en-real-madrid-hervat-dzeko-40-jaartje-langer-door-bij-schalke~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
+- [‘UEFA-baas zint op boycot WK voor clubs’, nog meer landen trekken steun aan Gianni Infantino in](https://www.ad.nl/voetbal/uefa-baas-zint-op-boycot-wk-voor-clubs-nog-meer-landen-trekken-steun-aan-gianni-infantino-in~a2544497/)
+  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
+- [Vergelijk altijd deze zaken als je een makelaar zoekt: zo voorkom je verrassingen](https://www.ad.nl/wonen/vergelijk-altijd-deze-zaken-als-je-een-makelaar-zoekt-zo-voorkom-je-verrassingen~a33e8c30/)
+  > Waar let je op als je een makelaar zoekt om je huis te verkopen? De kosten verschillen enorm, net zoals de pakketten die ze aanbieden. Welke...
+- [Jolanda (66) werd in haar scootmobiel tot bloedens toe bekogeld met eieren: ‘Ze kiezen makkelijk slachtoffer’](https://www.ad.nl/binnenland/jolanda-66-werd-in-haar-scootmobiel-tot-bloedens-toe-bekogeld-met-eieren-ze-kiezen-makkelijk-slachtoffer~a96aac7f/)
+  > „Het voelde alsof ik door een steen geraakt werd”, vertelt Jolanda, die nog steeds last heeft van haar been. Als de 66-jarige afgelopen week onderweg...
+- [37-jarige man opgepakt na bosbranden bij Amerikaanse stad Spokane: tienduizenden mensen geëvacueerd](https://www.ad.nl/buitenland/37-jarige-man-opgepakt-na-bosbranden-bij-amerikaanse-stad-spokane-tienduizenden-mensen-geevacueerd~a43d68d7/)
+  > Drie bosbranden aan de rand van Spokane, in de Amerikaanse staat Washington, hebben sinds zaterdag al minstens 700 huizen verwoest en 64.000 mensen...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Natuurbrand in Noord-Limburg breidt uit](https://fd.nl/samenleving/1606545/natuurbrand-in-noord-limburg-breidt-uit)
-  > Een gebied van 100 hectare bos staat in brand, zo meldde de veiligheidsregio Noord-Limburg dinsdagochtend. Maandagmiddag besloeg het vuur nog een...
-- [Live: Yen verliest na ‘historische interventie’ weer wat terrein](https://fd.nl/financiele-markten/1606430/live-yen-verliest-na-historische-interventie-weer-wat-terrein)
-  > Beleggers kijken vandaag uit naar de eerste keer sinds de beursgang dat SpaceX, het ruimtevaart- en AI-bedrijf geleid door Elon Musk, de boeken opent.
-- [Ian Buruma: Van wie is het Westen?](https://fd.nl/opinie/1595278/ian-buruma-van-wie-is-het-westen)
-  > Het lot van het ‘verlichte liberale Westen’ ligt niet in de handen van Donald Trump, maar van de keuzes die de Europese democratieën maken, betoogt...
-- [Schrijver Marion Bloem in gesprek met haar zoon: ‘Ik begreep niet waarom ouders van vriendinnen mij wegstuurden’](https://fd.nl/samenleving/1606149/schrijver-marion-bloem-in-gesprek-met-haar-zoon-ik-begreep-niet-waarom-ouders-van-vriendinnen-mij-wegstuurden)
-  > Marion Bloem en haar zoon, Kaja Wolffers over identiteit, kampverhalen en zoeken naar herkenning.
-- [Oekraïense drones slopen ‘het Russische Amazon’](https://fd.nl/economie/1606520/oekraiense-drones-slopen-het-russische-amazon)
-  > Vandaag in Dagkoers: Japan en VS krikken samen de yen op, Oekraïense drones slopen ‘het Russische Amazon’ & de overname door ABN Amro van het Haagse...
+- [BP boekt hoogste kwartaalwinst in meer dan vier jaar](https://fd.nl/bedrijfsleven/1606549/bp-boekt-hoogste-kwartaalwinst-in-meer-dan-vier-jaar)
+  > Ook de winst bij het Saoedische staatsoliebedrijf Saudi Aramco schiet omhoog.
+- [Steeds meer Indische kinderboeken](https://fd.nl/samenleving/1606188/steeds-meer-indische-kinderboeken)
+  > Jonge Indische ouders willen hun familiegeschiedenis doorgeven aan hun kinderen. Dit leidt tot een groeiend aanbod van jeugdboeken over de...
+- [Echt duurzame diamant komt uit het lab én de mijn](https://fd.nl/opinie/1606412/echt-duurzame-diamant-komt-uit-het-lab-en-de-mijn)
+  > Een Europese wet moet de diamantindustrie verduurzamen. Dat lukt niet zolang de focus ligt op de herkomst van de diamant in plaats van het soort...
+- [Coalitie van Amerikaanse staten stapt naar rechter vanwege heffingen Trump](https://fd.nl/politiek/1606547/coalitie-van-amerikaanse-staten-stapt-naar-rechter-vanwege-heffingen-trump)
+  > Op producten uit zestig landen geldt sinds vorige maand een heffing van 10% tot 12,5%.
+- [Met €38 mln wil Ore Energy zijn eerste fabriek voor ijzer-luchtbatterijen bouwen](https://fd.nl/bedrijfsleven/1606428/met-38-mln-wil-ore-energy-zijn-eerste-fabriek-voor-ijzer-luchtbatterijen-bouwen)
+  > Investeringsmaatschappijen Plural en HV Capital leiden de financieringsronde in het Nederlandse batterijenbedrijf.
 
 ### Meest gelezen
 
