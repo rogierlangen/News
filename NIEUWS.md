@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-08-2026 om 20:27*
+*Laatst bijgewerkt: 04-08-2026 om 22:15*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Deze vraag in B&B vol liefde had een opening kunnen zijn voor een mooi gesprek, maar het werd vooral pijnlijk](https://www.ad.nl/show/deze-vraag-in-benb-vol-liefde-had-een-opening-kunnen-zijn-voor-een-mooi-gesprek-maar-het-werd-vooral-pijnlijk~a82e5ac3/)
-  > De date van Paul en Josseline uit B&B vol liefde leek goed te beginnen, maar werd steeds ongemakkelijker om naar te kijken.
-- [Christina Applegate na vier maanden ontslagen uit ziekenhuis](https://www.ad.nl/show/christina-applegate-na-vier-maanden-ontslagen-uit-ziekenhuis~ab648cfb/)
-  > Christina Applegate is na bijna vier maanden ontslagen uit het ziekenhuis. Volgens TMZ gaat het naar omstandigheden goed met de actrice, die multiple...
+- [Schotse politie zoekt vermiste atleten uit Oeganda en Pakistan na Commonwealth Games](https://www.ad.nl/andere-sporten/schotse-politie-zoekt-vermiste-atleten-uit-oeganda-en-pakistan-na-commonwealth-games~aa7caa98/)
+  > De Schotse politie is op zoek naar sporters uit Oeganda en Pakistan die hebben deelgenomen aan de Commonwealth Games. Meerdere boksers zouden na hun...
+- [Salah onderweg naar Trabzon voor gesprekken, AZ verlengt contract van Goes](https://www.ad.nl/voetbal/salah-onderweg-naar-trabzon-voor-gesprekken-az-verlengt-contract-van-goes~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
 - [NEC toont zich waardige tegenstander van Olympiakos en kan met vertrouwen richting return in Nijmegen](https://www.ad.nl/voetbal/nec-toont-zich-waardige-tegenstander-van-olympiakos-en-kan-met-vertrouwen-richting-return-in-nijmegen~a6a0a175/)
   > NEC heeft dinsdagavond een prima heenwedstrijd gespeeld tegen Olympiakos, de recordkampioen van Griekenland. Het werd 0-0 in Piraeus, ondanks een...
-- [Brand en droogte brengen verrassingen uit de Tweede Wereldoorlog naar boven](https://www.ad.nl/buitenland/brand-en-droogte-brengen-verrassingen-uit-de-tweede-wereldoorlog-naar-boven~a94b27d0/)
-  > Europa zucht onder droogte en hitte. Dat levert veel problemen op, maar brengt ook verrassingen uit het verleden. Droogvallende rivieren en...
-- [Hulp EOD ingeschakeld bij natuurbrand uit vrees voor munitie uit Tweede Wereldoorlog](https://www.ad.nl/binnenland/hulp-eod-ingeschakeld-bij-natuurbrand-uit-vrees-voor-munitie-uit-tweede-wereldoorlog~a9c82eac/)
-  > De brandweer heeft bij de natuurbrand in Venray de hulp van de Explosieven Opruimingsdienst Defensie (EOD) ingeschakeld. Dat is vanwege munitie uit...
+- [Duitse politie haalt Nederlandse wegpiraat (23) in Porsche van weg na roekeloos rijgedrag](https://www.ad.nl/auto/duitse-politie-haalt-nederlandse-wegpiraat-23-in-porsche-van-weg-na-roekeloos-rijgedrag~a5f14c5e/)
+  > De Duitse politie heeft dinsdag rond het middaguur een Nederlander aangehouden die op hoge snelheid en roekeloos over de A3 reed. De 23-jarige...
+- [Deze vraag in B&B vol liefde had een opening kunnen zijn voor een mooi gesprek, maar het werd vooral pijnlijk](https://www.ad.nl/show/deze-vraag-in-benb-vol-liefde-had-een-opening-kunnen-zijn-voor-een-mooi-gesprek-maar-het-werd-vooral-pijnlijk~a82e5ac3/)
+  > De date van Paul en Josseline uit B&B vol liefde leek goed te beginnen, maar werd steeds ongemakkelijker om naar te kijken.
 
 ### Meest gelezen
 
