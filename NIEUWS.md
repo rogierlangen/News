@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-08-2026 om 04:13*
+*Laatst bijgewerkt: 05-08-2026 om 07:42*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Roekeloze Nederlander, die 235 kilometer per uur reed, gepakt in Duitsland](https://nos.nl/l/2625569)
-  > De Duitse politie heeft gisteren een 23-jarige Nederlander aangehouden die met zijn Porsche 911 met snelheden tot 235 kilometer over de Duitse...
-- [Brazilië schroeft diplomatieke aanwezigheid in Argentinië terug na opmerkingen Milei](https://nos.nl/l/2625568)
-  > De Braziliaanse regering heeft aangekondigd de diplomatieke aanwezigheid in Argentinië terug te schroeven na herhaaldelijke aanvallen van de...
-- [Washington Post: Trump eist last minute verandering aan heliplatform in aanbouw](https://nos.nl/l/2625567)
-  > Een deel van het werk aan een helikopterplatform in het Witte Huis moet opnieuw gedaan worden. Volgens meerdere regeringsmedewerkers die de...
-- [Koopzegelboekje vullen bij supermarkt AH duurt straks twee keer zo lang](https://nos.nl/l/2625556)
-  > Slecht nieuws voor mensen die koopzegels sparen bij Albert Heijn. Vanaf 7 september gaat het twee keer zo lang duren voordat klanten een...
-- [Veiligheidsregio's: meer grote natuurbranden tegelijkertijd kunnen we niet aan](https://nos.nl/l/2625555)
-  > De veiligheidsregio's in Nederland zeggen dat de hulpdiensten meer natuurbranden tegelijkertijd zoals die nu in Venray niet aankunnen. Daarvoor is...
+- [Wereldwijd wordt er weer iets meer Heineken gedronken](https://nos.nl/l/2625584)
+  > Wereldwijd hebben mensen het afgelopen half jaar meer Heineken gedronken dan een jaar eerder. Het bedrijf heeft zo'n 1,6 procent meer bier verkocht....
+- [Aantal fastfoodzaken in Nederland in twintig jaar bijna verdubbeld](https://nos.nl/l/2625582)
+  > Het aantal fastfoodzaken in Nederland is de afgelopen twintig jaar bijna verdubbeld. Volgens het Centraal Bureau voor de Statistiek (CBS) zijn er op...
+- [Winst aandeel SpaceX verdampt, maar verlies twee maanden na beursgang valt mee](https://nos.nl/l/2625581)
+  > Na een succesvolle beursgang van SpaceX, waarbij het aandeel op een bepaald moment zelfs even de 225 dollar aantikte, is de winst inmiddels weer...
+- [Gewapende man aangehouden op golfcomplex Trump in Los Angeles](https://nos.nl/l/2625580)
+  > Op de Trump National Golf Course bij Los Angeles heeft de politie afgelopen weekend een man aangehouden die gewapend rondliep. Hij werd zondag al...
+- [Zuid-Koreaanse politie doorzoekt hoofdkantoor Starbucks na misplaatste actie](https://nos.nl/l/2625578)
+  > De politie in Zuid-Korea heeft een inval gedaan in het Koreaanse hoofdkantoor van Starbucks in Seoul. Aanleiding is een onderzoek naar een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Altijd al naakt een steak willen eten? Bij dit Amerikaanse restaurant kan dat](https://www.ad.nl/buitenland/altijd-al-naakt-een-steak-willen-eten-bij-dit-amerikaanse-restaurant-kan-dat~aaa00676/)
-  > Het is te hopen dat gasten geen heet frietje op hun schoot laat vallen tijdens het diner van Class Soiree Steakhouse. Het restaurant in de...
-- [Eigen Huis start meldpunt tegen cowboys die thuisbatterij en warmtepomp aansmeren](https://www.ad.nl/economie/eigen-huis-start-meldpunt-tegen-cowboys-die-thuisbatterij-en-warmtepomp-aansmeren~a7b9a42a/)
-  > Volgens Vereniging Eigen Huis (VEH) loopt het de spuigaten uit met cowboys op de verduurzamingsmarkt. Reden voor de belangenclub om een meldpunt te...
-- [AI-modellen van OpenAI en Anthropic tijdens testen opnieuw betrokken bij beveiligingslekken](https://www.ad.nl/tech/ai-modellen-van-openai-en-anthropic-tijdens-testen-opnieuw-betrokken-bij-beveiligingslekken~a3475d11/)
-  > AI-modellen van OpenAI en Anthropic zijn opnieuw betrapt op het creëren van valse online identiteiten om ongeautoriseerde toegang te verkrijgen tot...
-- [Met verf beklad, stukgeslagen of in brand gestoken: Fransen vernielen massaal snelheidscamera’s](https://www.ad.nl/buitenland/met-verf-beklad-stukgeslagen-of-in-brand-gestoken-fransen-vernielen-massaal-snelheidscameras~a605c8be/)
-  > Wie in Frankrijk op vakantie gaat, moet op zijn hoede zijn. Frankrijk is een van de EU-landen met de meeste snelheidscamera’s langs de weg. Maar: een...
-- [LIVE Oorlog Oekraïne | Kyiv op zeker zeven plekken getroffen door Russische raketten, dode en gewonden](https://www.ad.nl/buitenland/live-oorlog-oekraine-kyiv-op-zeker-zeven-plekken-getroffen-door-russische-raketten-dode-en-gewonden~adfb97be/)
-  > De Oekraïense hoofdstad Kyiv is opnieuw aangevallen met ballistische raketten. Journalisten van het Franse persagentschap AFP hoorden een tiental...
+- [Onderdeel SpaceX-raket vermoedelijk neergestort op de maan: krater tot 30 meter verwacht](https://www.ad.nl/buitenland/onderdeel-spacex-raket-vermoedelijk-neergestort-op-de-maan-krater-tot-30-meter-verwacht~af297b72/)
+  > Een onderdeel van een raket van SpaceX zou op de maan zijn neergestort. Het gaat om het bovenste deel van een Falcon 9-raket, dat zo’n 4000 kilo...
+- [Na het avondeten belandt Rotterdamse (25) op de ic: ‘Vriend wilde haar doden met gif’](https://www.ad.nl/rotterdam/na-het-avondeten-belandt-rotterdamse-25-op-de-ic-vriend-wilde-haar-doden-met-gif~a3ed5e0f/)
+  > Een Rotterdamse vrouw (25) belandde dit voorjaar plotseling op de intensive care na het avondeten. Justitie wijst naar haar partner: hij zou haar...
+- [Neymar provoceert Braziliaanse fans, voorzitter van tegenstander haalt uit: ‘Nietsnut, hij gedraagt zich als een clown’](https://www.ad.nl/voetbal/neymar-provoceert-braziliaanse-fans-voorzitter-van-tegenstander-haalt-uit-nietsnut-hij-gedraagt-zich-als-een-clown~a41b9929/)
+  > Neymar heeft zich niet geliefd gemaakt bij een deel van de Braziliaanse voetbalfans. Zijn club Santos boekte een 0-1 zege op Remo in de beker, waarna...
+- [Ook US Open op de tocht? Carlos Alcaraz haakt kort voor Grand Slam af voor belangrijk toernooi](https://www.ad.nl/tennis/ook-us-open-op-de-tocht-carlos-alcaraz-haakt-kort-voor-grand-slam-af-voor-belangrijk-toernooi~a849717c/)
+  > Tennisser Carlos Alcaraz heeft zich vanwege zijn polsblessure teruggetrokken van het masterstoernooi van Cincinnati, dat op 13 augustus begint. Dat...
+- [Miljoenenschade dreigt als telers geen oppervlaktewater mogen oppompen: ‘Je kunt niet zomaar stoppen’](https://www.ad.nl/binnenland/miljoenenschade-dreigt-als-telers-geen-oppervlaktewater-mogen-oppompen-je-kunt-niet-zomaar-stoppen~a2637df7/)
+  > Miljoenen euro’s aan bloemen, groente en fruit dreigen dood te gaan, nu telers als de Nootdorpse Harry Wubben vanaf vandaag geen water uit sloten...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Kipster-pluimveehouder Ruud Zanders: ‘Caroline van der Plas zegt wat boeren willen horen’](https://fd.nl/bedrijfsleven/1606409/kipster-pluimveehouder-ruud-zanders-caroline-van-der-plas-zegt-wat-boeren-willen-horen)
-  > Ruud Zanders richtte Kipster op, een internationaal miljoenenbedrijf dat duizenden kippen houdt. Toch is de Limburger ervan overtuigd dat de wereld...
-- [De vele gezichten van Mei Li Vos](https://fd.nl/samenleving/1606148/de-vele-gezichten-van-mei-li-vos)
-  > Mei Li Vos is de voorzitter van de Eerste Kamer. Maar dat niet alleen. FD Persoonlijk schetst vijf kanten van het zelfbenoemde ‘kleintje’.
-- [Waarom verdient Palantir wél flink aan AI?](https://fd.nl/economie/1606568/waarom-verdient-palantir-wel-flink-aan-ai)
-  > Vandaag in Dagkoers: Palantir lukt het als een van de weinige om dik te verdienen aan AI, bedrijven laten zichzelf steeds harder aanvallen door red...
-- [Campings bereiden zich voor op natuurbranden: ‘Als we moeten evacueren, staat de rugzak al klaar’](https://fd.nl/samenleving/1606569/campings-bereiden-zich-voor-op-natuurbranden-als-we-moeten-evacueren-staat-de-rugzak-al-klaar)
-  > Open vuur is verboden, brandgangen worden aangelegd en gasten houden hun belangrijkste spullen binnen handbereik. Ook Nederlandse campings moeten...
-- [Voorpret biedt het hoogste rendement](https://fd.nl/opinie/1606548/voorpret-biedt-het-hoogste-rendement)
-  > Het zijn misschien wel de mooiste woorden van de Nederlandse taal: zich verheugen. Het actieve werkwoord dat verlangen naar de toekomst beschrijft.
+- [VS trekken visum Braziliaanse ambassadeur in](https://fd.nl/politiek/1606598/vs-trekken-visum-braziliaanse-ambassadeur-in)
+  > De Braziliaanse regering noemt het besluit een Amerikaanse poging om zich met de Braziliaanse presidentsverkiezingen te bemoeien.
+- [Wolters Kluwer presteert in lijn met verwachtingen](https://fd.nl/bedrijfsleven/1606687/wolters-kluwer-presteert-in-lijn-met-verwachtingen)
+  > Het bedrijf verwacht nog steeds dat de juridische divisie, waar beleggers met argusogen naar kijken, dit jaar harder zal groeien dan de 5% autonome...
+- [Lagere winstmarge Ahold Delhaize in de Verenigde Staten](https://fd.nl/bedrijfsleven/1606462/lagere-winstmarge-ahold-delhaize-in-de-verenigde-staten)
+  > Het AEX-bedrijf houdt vast aan zijn verwachtingen voor het hele jaar, mede doordat de winstmarge in Europa wel steeg.
+- [Meer overnachtingen geboekt via sites van Booking](https://fd.nl/bedrijfsleven/1606596/meer-overnachtingen-geboekt-via-sites-van-booking)
+  > Het bedrijf hield rekening met een lagere omzetstijging door de Iran-oorlog. De nettowinst meer dan verdubbelde in het tweede kwartaal.
+- [Opnieuw stuwt alcoholvrijbier verkoopcijfers Heineken](https://fd.nl/bedrijfsleven/1606595/meer-bierverkoop-en-omzet-voor-heineken)
+  > Woensdag stemmen aandeelhouders van Heineken over de benoeming van de nieuwe topman, de Braziliaan Rafael Oliveira.
 
 ### Meest gelezen
 
