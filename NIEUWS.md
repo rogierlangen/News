@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-08-2026 om 17:43*
+*Laatst bijgewerkt: 05-08-2026 om 19:40*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Russische droneproducent zwaargewond door explosie auto bij Jekaterinenburg](https://nos.nl/l/2625653)
-  > De Russische droneproducent Vladimir Tkatsjoek is zwaargewond geraakt door een explosie van zijn auto in Jekaterinenburg. Dat meldt het Russische...
-- [COC wint International Pride Award, 'erkenning voor tachtig jaar werk'](https://nos.nl/l/2625650)
-  > Belangenorganisatie COC Nederland heeft een International Pride Award gewonnen. COC Nederland, opgericht in 1946, is de oudste nog bestaande...
-- [Huisarts in Rhoon moet direct stoppen: 'Zeer risicovolle situatie'](https://nos.nl/l/2625640)
-  > Een huisarts in Rhoon, bij Rotterdam, moet onmiddellijk haar werk neerleggen. Dat heeft de inspectie gezondheidszorg en jeugd besloten.
-        Over...
-- [Weer Mexicaanse influencer doodgeschoten tijdens het livestreamen](https://nos.nl/l/2625638)
-  > Een Mexicaanse influencer is doodgeschoten terwijl hij aan het livestreamen was. De 25-jarige Cesar Gastelum was op het moment van de schietpartij...
-- [Aandeelhouders AkzoNobel en Axalta stemmen bijna unaniem voor fusie tot verfgigant](https://nos.nl/l/2625637)
-  > De fusie tussen AkzoNobel en concurrent Axalta is een gelopen race. De aandeelhouders van zowel het Nederlandse als Amerikaanse concern stemden...
+- [Groot crystal meth-lab opgerold in Spanje, drugs verstopt in vanille-extract](https://nos.nl/l/2625683)
+  > In de Spaanse provincie Barcelona is een van de grootste laboratoria voor de productie van crystal meth in Europa opgerold, meldt de politie. Bij de...
+- [Vier verdachten opgepakt in Emmen na berovingen met nagemaakt politieshirt](https://nos.nl/l/2625682)
+  > De politie heeft vier nepagenten aangehouden in Emmen. Zij worden ervan verdacht tenminste drie oudere mensen te hebben opgelicht in Twente. Mogelijk...
+- [Bol en de Bijenkorf waarschuwen klanten voor mogelijk datalek](https://nos.nl/l/2625681)
+  > Door een cyberaanval op een logistieke partner van Bol en de Bijenkorf zijn mogelijk persoonlijke gegevens van klanten op straat beland. De...
+- [Bedrijf achter fietsmerken Sparta en Batavus vraagt uitstel van betaling aan](https://nos.nl/l/2625671)
+  > Fietsenfabrikant Accell vraagt uitstel van betaling aan. Dat is in veel gevallen een voorstadium van een faillissement. De fabrikant is onder meer...
+- [Afgedankte rakettrap van SpaceX slaat in op de maan, zorgen over meer ruimtepuin](https://nos.nl/l/2625670)
+  > Een afgedankte rakettrap van ruimtevaartbedrijf SpaceX is vanochtend vermoedelijk op de maan ingeslagen. De botsing vormde geen gevaar voor de aarde,...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Cambuur neemt 18-jarige aanvaller over van PSV, vertrekt Couhaib Driouech naar Schotland?](https://www.ad.nl/voetbal/cambuur-neemt-18-jarige-aanvaller-over-van-psv-vertrekt-couhaib-driouech-naar-schotland~acbd43e6/)
+- [Joël Veltman dicht bij stap naar Engelse degradant, Cambuur neemt 18-jarige aanvaller over van PSV](https://www.ad.nl/voetbal/joel-veltman-dicht-bij-stap-naar-engelse-degradant-cambuur-neemt-18-jarige-aanvaller-over-van-psv~acbd43e6/)
   > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
-- [Waarom Nederland nog altijd geen eigen blusvliegtuig heeft: ‘Alles heeft zijn prijs’](https://www.ad.nl/binnenland/waarom-nederland-nog-altijd-geen-eigen-blusvliegtuig-heeft-alles-heeft-zijn-prijs~a6f8818f/)
-  > Helikopters van Defensie vliegen dit jaar af en aan om de helpende hand te bieden bij de bestrijding van natuurbranden. Met het oprukken van het vuur...
-- [Real Madrid-icoon haalt uit naar Infantino, Britse krant: ‘FIFA-baas biedt Marokko WK-finale aan in ruil voor steun’](https://www.ad.nl/voetbal/real-madrid-icoon-haalt-uit-naar-infantino-britse-krant-fifa-baas-biedt-marokko-wk-finale-aan-in-ruil-voor-steun~a2544497/)
-  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
-- [Mag je zelf een parkeerschijf maken?](https://www.ad.nl/auto/mag-je-zelf-een-parkeerschijf-maken~ac3ed204/)
-  > De dochter van Alan Overbeek was zo lief om een parkeerschijf voor hem te maken. Maar mag je die dan ook echt gebruiken, vraagt hij zich af. Onze...
-- [Je moet niet alles geloven wat je denkt, zeker niet als je bestuurder bent](https://www.ad.nl/commentaar/je-moet-niet-alles-geloven-wat-je-denkt-zeker-niet-als-je-bestuurder-bent~aa781a9c/)
-  > Door te gretig reagerende politici blijft het beeld hangen van een door migranten overspoeld en verdeeld Europa, schrijft Hans Nijenhuis in dit...
+- [In één dag meer dan 120 mensen gestoken door kwal met enorme tentakels: Spanje sluit stranden na ‘invasie’](https://www.ad.nl/buitenland/in-een-dag-meer-dan-120-mensen-gestoken-door-kwal-met-enorme-tentakels-spanje-sluit-stranden-na-invasie~a4195717/)
+  > De Spaanse autoriteiten hebben verschillende stranden in het noorden van het land gesloten na een invasie van Portugese oorlogsschepen. Dat zijn...
+- [Lisa zette na 23 jaar een punt achter haar huwelijk: ‘Voor het eerst was ik vrij van welke man dan ook’](https://www.ad.nl/mezza/lisa-zette-na-23-jaar-een-punt-achter-haar-huwelijk-voor-het-eerst-was-ik-vrij-van-welke-man-dan-ook~acb57beaa/)
+  > Lisa (49) had een open-minded huwelijk, maar Willem (52) bracht haar op andere gedachten. ‘Bij hem voel ik me veilig en gezien’, vertelt ze in de...
+- [Holland Acht ontmoet Holland Acht op de Bosbaan: ‘Zij roeien mooier, maar wij zijn fysiek beter’](https://www.ad.nl/andere-sporten/holland-acht-ontmoet-holland-acht-op-de-bosbaan-zij-roeien-mooier-maar-wij-zijn-fysiek-beter~a511cb23/)
+  > Als symbolische aftrap van het WK Roeien, later deze maand in Amsterdam, kwamen woensdag op de Bosbaan de gouden Holland Acht van Atlanta en de...
+- [Demi Vollering breekt topfavoriete Pauline Ferrand-Prévot, maar heeft nog een gele schaduw achter zich](https://www.ad.nl/tour-de-france/demi-vollering-breekt-topfavoriete-pauline-ferrand-prevot-maar-heeft-nog-een-gele-schaduw-achter-zich~a32b8a20/)
+  > Met een perfect uitgevoerd plan heeft Demi Vollering de definitieve knock-out aan titelverdedigster Pauline Ferrand-Prévot gegeven. In de loodzware...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Het is tijd voor een bankenunie](https://fd.nl/opinie/1606690/tijd-voor-bankenunie)
+  > Nu Europese banken gezond zijn en op overnamepad kunnen, is het tijd voor het vervolmaken van de Europese bankenunie – uiteraard onder de juiste...
+- [Disney overtreft winstverwachtingen dankzij sterke groei entertainmentdivisie](https://fd.nl/bedrijfsleven/1606709/disney-overtreft-winstverwachtingen-dankzij-sterke-groei-entertainmentdivisie)
+  > Het bedrijfsresultaat bedroeg $5,56 mrd, waarmee de prognoses van $5,24 mrd zijn overtroffen.
 - [Moederbedrijf Batavus en Sparta vraagt uitstel van betaling aan](https://fd.nl/bedrijfsleven/1606705/moederbedrijf-batavus-en-sparta-vraagt-uitstel-van-betaling-aan)
-  > Fietsenfabrikant Acccell zat al langer in zwaar weer. Met het uitstel van betaling lijkt ook een streep gezet door een mogelijke overname door...
+  > Fietsenfabrikant Accell zat al langer in zwaar weer. Met het uitstel van betaling lijkt ook een streep gezet door een mogelijke overname door Dutech,...
 - [Scheepvaart vreest precedent van Hormuz-heffing](https://fd.nl/bedrijfsleven/1606708/scheepvaart-vreest-precedent-van-hormuz-heffing)
   > Een mogelijke heffing bij de Straat van Hormuz zou ook in andere maritieme flessenhalzen tot een tol kunnen leiden, zeggen rederij-organisaties.
-- [Cyberaanval bij logistiek bedrijf CEVA treft klanten van bol.com](https://fd.nl/bedrijfsleven/1606707/cyberaanval-bij-logistiek-bedrijf-ceva-treft-klanten-van-bol-com)
-  > Er zijn volgens Bol geen aanwijzingen dat betaalgegevens, wachtwoorden of inloggegevens van klanten van Bol betrokken zijn bij het incident.
-- [Aandeelhouders stemmen in met fusie AkzoNobel en Axalta](https://fd.nl/bedrijfsleven/1606613/aandeelhouders-stemmen-in-met-fusie-akzonobel-en-axalta)
-  > Beleggers gaven woensdag tijdens een speciale vergadering wel een stevig signaal af naar het bestuur, uit onvrede over de inperking van...
-- [Mud Jeans vraagt faillissement aan wegens aanhoudende schuldenlast](https://fd.nl/bedrijfsleven/1606615/mud-jeans-vraagt-faillissement-aan-wegens-aanhoudende-schuldenlast)
-  > ‘De afgelopen maanden hebben we er alles aan gedaan om het tij te keren en met volle overtuiging gewerkt aan een herstelplan’, zo is te lezen in een...
+- [Cyberaanval bij logistiek bedrijf CEVA treft klanten van bol.com en de Bijenkorf](https://fd.nl/bedrijfsleven/1606707/cyberaanval-bij-logistiek-bedrijf-ceva-treft-klanten-van-bol-com)
+  > Er zijn volgens Bol geen aanwijzingen dat betaalgegevens, wachtwoorden of inloggegevens van klanten betrokken zijn bij het incident.
 
 ### Meest gelezen
 
