@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-08-2026 om 15:19*
+*Laatst bijgewerkt: 05-08-2026 om 17:43*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Russische droneproducent zwaargewond door explosie auto bij Jekaterinenburg](https://nos.nl/l/2625653)
+  > De Russische droneproducent Vladimir Tkatsjoek is zwaargewond geraakt door een explosie van zijn auto in Jekaterinenburg. Dat meldt het Russische...
+- [COC wint International Pride Award, 'erkenning voor tachtig jaar werk'](https://nos.nl/l/2625650)
+  > Belangenorganisatie COC Nederland heeft een International Pride Award gewonnen. COC Nederland, opgericht in 1946, is de oudste nog bestaande...
+- [Huisarts in Rhoon moet direct stoppen: 'Zeer risicovolle situatie'](https://nos.nl/l/2625640)
+  > Een huisarts in Rhoon, bij Rotterdam, moet onmiddellijk haar werk neerleggen. Dat heeft de inspectie gezondheidszorg en jeugd besloten.
+        Over...
+- [Weer Mexicaanse influencer doodgeschoten tijdens het livestreamen](https://nos.nl/l/2625638)
+  > Een Mexicaanse influencer is doodgeschoten terwijl hij aan het livestreamen was. De 25-jarige Cesar Gastelum was op het moment van de schietpartij...
 - [Aandeelhouders AkzoNobel en Axalta stemmen bijna unaniem voor fusie tot verfgigant](https://nos.nl/l/2625637)
   > De fusie tussen AkzoNobel en concurrent Axalta is een gelopen race. De aandeelhouders van zowel het Nederlandse als Amerikaanse concern stemden...
-- [Twee explosies bij kinderdagverblijf Amsterdam, minderjarigen vast](https://nos.nl/l/2625636)
-  > Bij een kinderdagverblijf in Amsterdam-West is de afgelopen week tot twee keer toe een explosief afgegaan. Niemand raakte gewond. De politie heeft...
-- [Duinbrand woedt bij Wassenaar, NL-alert verstuurd](https://nos.nl/l/2625631)
-  > Niet ver van Wassenaar woedt een duinbrand bij een strandopgang. De brandweer probeert met veel mensen te voorkomen dat het vuur zich uitbreidt. Er...
-- [Waarom de fastfoodbranche uitdijt: 'Ongezond eten is het meest lucratief'](https://nos.nl/l/2625629)
-  > Al decennia eet een groot deel van de Nederlanders te veel. Obesitascijfers stijgen en er is meer fastfood beschikbaar dan ooit, blijkt uit cijfers...
-- [Brandweer geeft sein brand meester voor grote natuurbrand bij Venray](https://nos.nl/l/2625626)
-  > Voor de natuurbrand bij Venray in Limburg is het sein brand meester gegeven. De brand was al sinds vanochtend onder controle en heeft zich sindsdien...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Trump reageert op uitslag Democratische voorverkiezing Michigan: ‘Communistische loser’](https://www.ad.nl/buitenland/trump-reageert-op-uitslag-democratische-voorverkiezing-michigan-communistische-loser~ae67dd9c/)
-  > De Amerikaanse president Donald Trump heeft gereageerd op de voorlopige uitslag van de Democratische voorverkiezing in de staat Michigan. Volgens...
-- [Vollering valt aan op steile beklimming: gele Reusser volgt, titelverdedigster Ferrand-Prévot in problemen](https://www.ad.nl/wielrennen/vollering-valt-aan-op-steile-beklimming-gele-reusser-volgt-titelverdedigster-ferrand-prevot-in-problemen~a9b80bda/)
-  > In de vijfde etappe van de Tour de France Femmes maakt het peloton zich op voor een heuvelrit van 140 kilometer, van Mâcon naar...
-- [Melany (39) moet haar hond uitlaten in ‘mijnenveld’ van grasaren: ‘Finn gilde het uit van de pijn’](https://www.ad.nl/binnenland/melany-39-moet-haar-hond-uitlaten-in-mijnenveld-van-grasaren-finn-gilde-het-uit-van-de-pijn~aee03f22/)
-  > Grasaren. Ze groeien overal en nergens en belanden na een maaibeurt vaak op straat. Maar gedroogd vormen ze een grote bedreiging voor de gezondheid...
-- [Bizar miljoenenbod op voetballer van het vijfde niveau afgewezen: Engelsman treedt in voetsporen Jamie Vardy](https://www.ad.nl/voetbal/bizar-miljoenenbod-op-voetballer-van-het-vijfde-niveau-afgewezen-engelsman-treedt-in-voetsporen-jamie-vardy~aa7a7b38/)
-  > Een van de opmerkelijkste transferverhalen in Engeland speelt zich deze zomer niet af in de Premier League, maar op het vijfde niveau. De 23-jarige...
-- [Meerdere gewonden door steekpartij in centrum Londen](https://www.ad.nl/buitenland/meerdere-gewonden-door-steekpartij-in-centrum-londen~ab618b84/)
-  > Bij een steekpartij in het centrum van Londen zijn meerdere gewonden gevallen. Dat meldt Sky News op gezag van de autoriteiten. Een 47-jarige vrouw...
+- [Cambuur neemt 18-jarige aanvaller over van PSV, vertrekt Couhaib Driouech naar Schotland?](https://www.ad.nl/voetbal/cambuur-neemt-18-jarige-aanvaller-over-van-psv-vertrekt-couhaib-driouech-naar-schotland~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
+- [Waarom Nederland nog altijd geen eigen blusvliegtuig heeft: ‘Alles heeft zijn prijs’](https://www.ad.nl/binnenland/waarom-nederland-nog-altijd-geen-eigen-blusvliegtuig-heeft-alles-heeft-zijn-prijs~a6f8818f/)
+  > Helikopters van Defensie vliegen dit jaar af en aan om de helpende hand te bieden bij de bestrijding van natuurbranden. Met het oprukken van het vuur...
+- [Real Madrid-icoon haalt uit naar Infantino, Britse krant: ‘FIFA-baas biedt Marokko WK-finale aan in ruil voor steun’](https://www.ad.nl/voetbal/real-madrid-icoon-haalt-uit-naar-infantino-britse-krant-fifa-baas-biedt-marokko-wk-finale-aan-in-ruil-voor-steun~a2544497/)
+  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
+- [Mag je zelf een parkeerschijf maken?](https://www.ad.nl/auto/mag-je-zelf-een-parkeerschijf-maken~ac3ed204/)
+  > De dochter van Alan Overbeek was zo lief om een parkeerschijf voor hem te maken. Maar mag je die dan ook echt gebruiken, vraagt hij zich af. Onze...
+- [Je moet niet alles geloven wat je denkt, zeker niet als je bestuurder bent](https://www.ad.nl/commentaar/je-moet-niet-alles-geloven-wat-je-denkt-zeker-niet-als-je-bestuurder-bent~aa781a9c/)
+  > Door te gretig reagerende politici blijft het beeld hangen van een door migranten overspoeld en verdeeld Europa, schrijft Hans Nijenhuis in dit...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Eli Lilly optimistischer door betere verkopen afvalmedicijn](https://fd.nl/bedrijfsleven/1606704/eli-lilly-optimistischer-door-betere-verkopen-afvalmedicijn)
-  > Het Amerikaanse farmabedrijf gaat nu uit van een jaaromzet tussen $85 mrd en $87 mrd.
-- [Revolut-oprichter Storonsky in gesprek over nieuwe megabonus](https://fd.nl/financiele-markten/1606702/revolut-oprichter-storonsky-in-gesprek-over-nieuwe-megabonus)
-  > De ceo van Revolut, Nik Storonsky, voert gesprekken over een nieuwe bonusregeling. Zodra de bank $500 mrd waard is, kan hij zelf tientallen miljarden...
-- [Vier mannen neergestoken in Londense wijk Covent Garden](https://fd.nl/samenleving/1606703/vier-mannen-neergestoken-in-londense-wijk-covent-garden)
-  > Het incident houdt volgens de politie vermoedelijk verband met psychische problemen, op basis van voorlopig onderzoek.
-- [Uitbundige beelden van Hadassah Emmerich](https://fd.nl/samenleving/1606550/uitbundige-beelden-van-hadassah-emmerich)
-  > De veelal grote schilderijen van Hadassah Emmerich barsten van kleur en sensualiteit. Onder die verleidelijkheid schuilt een diepere laag.
-- [Binnenhavens: Haagse coördinatie van lage waterstand is ‘onbestaanbaar’ slecht](https://fd.nl/bedrijfsleven/1606699/binnenhavens-haagse-aanpak-lage-waterstand-is-onbestaanbaar-slecht)
-  > Bedrijven aan binnenhavens maken zich grote zorgen over dreigende nieuwe overheidsmaatregelen om droogte te bestrijden. Het probleem is: het...
+- [Moederbedrijf Batavus en Sparta vraagt uitstel van betaling aan](https://fd.nl/bedrijfsleven/1606705/moederbedrijf-batavus-en-sparta-vraagt-uitstel-van-betaling-aan)
+  > Fietsenfabrikant Acccell zat al langer in zwaar weer. Met het uitstel van betaling lijkt ook een streep gezet door een mogelijke overname door...
+- [Scheepvaart vreest precedent van Hormuz-heffing](https://fd.nl/bedrijfsleven/1606708/scheepvaart-vreest-precedent-van-hormuz-heffing)
+  > Een mogelijke heffing bij de Straat van Hormuz zou ook in andere maritieme flessenhalzen tot een tol kunnen leiden, zeggen rederij-organisaties.
+- [Cyberaanval bij logistiek bedrijf CEVA treft klanten van bol.com](https://fd.nl/bedrijfsleven/1606707/cyberaanval-bij-logistiek-bedrijf-ceva-treft-klanten-van-bol-com)
+  > Er zijn volgens Bol geen aanwijzingen dat betaalgegevens, wachtwoorden of inloggegevens van klanten van Bol betrokken zijn bij het incident.
+- [Aandeelhouders stemmen in met fusie AkzoNobel en Axalta](https://fd.nl/bedrijfsleven/1606613/aandeelhouders-stemmen-in-met-fusie-akzonobel-en-axalta)
+  > Beleggers gaven woensdag tijdens een speciale vergadering wel een stevig signaal af naar het bestuur, uit onvrede over de inperking van...
+- [Mud Jeans vraagt faillissement aan wegens aanhoudende schuldenlast](https://fd.nl/bedrijfsleven/1606615/mud-jeans-vraagt-faillissement-aan-wegens-aanhoudende-schuldenlast)
+  > ‘De afgelopen maanden hebben we er alles aan gedaan om het tij te keren en met volle overtuiging gewerkt aan een herstelplan’, zo is te lezen in een...
 
 ### Meest gelezen
 
