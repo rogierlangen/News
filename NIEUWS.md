@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-08-2026 om 21:15*
+*Laatst bijgewerkt: 05-08-2026 om 23:03*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Groot deel VS klaar met Iran-oorlog: 'Zeggen het één, maar doen iets anders'](https://nos.nl/l/2625697)
+  > Oorlogsmoe was Amerika, na decennia van 'forever wars', de langdurige strijd van het Amerikaanse leger in andere landen, zoals in Vietnam en...
+- [Contouren zichtbaar van deal over Straat van Hormuz, maar veel onduidelijk](https://nos.nl/l/2625695)
+  > Iran zegt dat een akkoord met Oman over de vrije doorvaart in de Straat van Hormuz nabij is. Het Iraanse ministerie van Buitenlandse Zaken stelt dat...
 - [Man (67) verdrinkt na sprong van boot bij Waspik, andere opvarenden ongedeerd](https://nos.nl/l/2625692)
   > Een 67-jarige man uit Oisterwijk is vanmiddag verdronken nadat hij van een boot was gesprongen op de Bergsche Maas bij Waspik. Zijn lichaam werd na...
 - [Ceuta vraagt hulp bij opvang van ruim 1000 achtergebleven minderjarige migranten](https://nos.nl/l/2625689)
@@ -15,10 +19,6 @@
 - [Kind overleden bij aanrijding met bestelbus in Dordrecht, bestuurder opgepakt](https://nos.nl/l/2625686)
   > Een kind is vanavond om het leven gekomen toen het werd aangereden door een bestelbus in het centrum van Dordrecht.
         De bestuurder van de...
-- [Energieprijs ook in Nederland omhoog door problemen met koelwater door droogte](https://nos.nl/l/2625684)
-  > De problemen bij de energiecentrales in het oosten van Europa leiden tot een hogere energieprijs in Nederland. Vooral voor mensen met een dynamisch...
-- [Groot crystal meth-lab opgerold in Spanje, drugs verstopt in vanille-extract](https://nos.nl/l/2625683)
-  > In de Spaanse provincie Barcelona is een van de grootste laboratoria voor de productie van crystal meth in Europa opgerold, meldt de politie. Bij de...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Dode en meerdere gewonden na explosie en grote brand in New York](https://www.ad.nl/buitenland/dode-en-meerdere-gewonden-na-explosie-en-grote-brand-in-new-york~a856a2de/)
+  > Bij een explosie en een daaropvolgende brand in een gebouw in de Bronx is één persoon om het leven gekomen en zijn elf anderen gewond geraakt, zo...
+- [Tallon Griekspoor stunt in Montreal tegen als eerste geplaatste Alexander Zverev](https://www.ad.nl/tennis/tallon-griekspoor-stunt-in-montreal-tegen-als-eerste-geplaatste-alexander-zverev~a739e035/)
+  > Tallon Griekspoor heeft de derde ronde bereikt van het masterstoernooi van Montreal. De 30-jarige Haarlemmer zorgde voor een grote verrassing door in...
+- [‘Als trainer word je eigenlijk gechanteerd in zo’n situatie’](https://www.ad.nl/voetbal/als-trainer-word-je-eigenlijk-gechanteerd-in-zon-situatie~a42af5cd9/)
+  > Kodai Sano wilde niet meer spelen voor NEC in de voorronde van de Champions League, omdat zijn transfer naar PSV rond was. „Ik kots van het gedrag’,...
+- [Gianni Infantino blijft aan als FIFA-voorzitter na spoedoverleg in Marokko](https://www.ad.nl/voetbal/gianni-infantino-blijft-aan-als-fifa-voorzitter-na-spoedoverleg-in-marokko~a20bc0dd/)
+  > Gianni Infantino (56) treedt voorlopig niet af als voorzitter van wereldvoetbalbond FIFA. Dat bleek woensdag na een spoedvergadering van de bond in...
 - [In Het Wiel | ‘Bij FDJ hadden ze al verwacht dat ze hier weer minuten zouden pakken’](https://www.ad.nl/tour-de-france/in-het-wiel-bij-fdj-hadden-ze-al-verwacht-dat-ze-hier-weer-minuten-zouden-pakken~a58111af/)
   > Wat een parel van een etappe in de Tour de France Femmes. Gewonnen door een ijzersterke Demi Vollering, die maar bleef aanvallen. Pauline...
-- [Edwin uit B&B vol liefde wilde geen blauwtje lopen en dus nam hij snel de regie in eigen handen](https://www.ad.nl/show/edwin-uit-benb-vol-liefde-wilde-geen-blauwtje-lopen-en-dus-nam-hij-snel-de-regie-in-eigen-handen~a0ca2627/)
-  > Ik weet het zeker: Edwin uit B&B vol liefde wilde geen blauwtje lopen. En dus probeerde hij zijn hachje te redden door te doen alsof hij Iris niet...
-- [Rob Jetten ontmoette acteur Joe Locke tijdens World Pride 2026](https://www.ad.nl/show/rob-jetten-ontmoette-acteur-joe-locke-tijdens-world-pride-2026~aa91fa04/)
-  > Rob Jetten heeft acteur Joe Locke ontmoet tijdens World Pride 2026. Op Instagram deelt de premier foto’s van hun ontmoeting en bedankt hij de...
-- [Joël Veltman dicht bij stap naar Engelse degradant, Cambuur neemt 18-jarige aanvaller over van PSV](https://www.ad.nl/voetbal/joel-veltman-dicht-bij-stap-naar-engelse-degradant-cambuur-neemt-18-jarige-aanvaller-over-van-psv~acbd43e6/)
-  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
-- [In één dag 120 mensen gestoken door kwal met enorme tentakels: Spanje sluit stranden na ‘invasie’](https://www.ad.nl/buitenland/in-een-dag-120-mensen-gestoken-door-kwal-met-enorme-tentakels-spanje-sluit-stranden-na-invasie~a4195717/)
-  > De Spaanse autoriteiten hebben verschillende stranden in het noorden van het land gesloten na een invasie van Portugese oorlogsschepen. Dat zijn...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [SpaceX en AMD drukken Nasdaq-index in de min](https://fd.nl/financiele-markten/1606711/spacex-en-amd-drukken-nasdaq-index-in-de-min)
-  > De graadmeter van de technologiebeurs sloot als enige lager, de Dow Jones-index vestigde woensdag opnieuw een record met een plus van 0,5%.
-- [Het is tijd voor een bankenunie](https://fd.nl/opinie/1606690/tijd-voor-bankenunie)
-  > Nu Europese banken gezond zijn en op overnamepad kunnen, is het tijd voor het vervolmaken van de Europese bankenunie – uiteraard onder de juiste...
-- [Disney overtreft winstverwachtingen dankzij sterke groei entertainmentdivisie](https://fd.nl/bedrijfsleven/1606709/disney-overtreft-winstverwachtingen-dankzij-sterke-groei-entertainmentdivisie)
-  > Het bedrijfsresultaat bedroeg $5,56 mrd, waarmee de prognoses van $5,24 mrd zijn overtroffen.
-- [Moederbedrijf Batavus en Sparta vraagt uitstel van betaling aan](https://fd.nl/bedrijfsleven/1606705/moederbedrijf-batavus-en-sparta-vraagt-uitstel-van-betaling-aan)
-  > Fietsenfabrikant Accell zat al langer in zwaar weer. Met het uitstel van betaling lijkt ook een streep gezet door een mogelijke overname door Dutech,...
-- [Scheepvaart vreest precedent van Hormuz-heffing](https://fd.nl/bedrijfsleven/1606708/scheepvaart-vreest-precedent-van-hormuz-heffing)
-  > Een mogelijke heffing bij de Straat van Hormuz zou ook in andere maritieme flessenhalzen tot een tol kunnen leiden, zeggen rederij-organisaties.
+- [In zichzelf verstrikt](https://fd.nl/opinie/1606710/in-zichzelf-verstrikt)
+  > Maga wrijft in de handen bij de Democratische voorverkiezingen, ziet FD-columnist Casper Thomas.
+- [Nederlandse staat speelt mogelijk quitte op redding van ABN Amro](https://fd.nl/financiele-markten/1606700/nederlandse-staat-speelt-mogelijk-quitte-op-redding-van-abn-amro)
+  > De beurskoers van ABN Amro is hard opgelopen. Zo hard, dat de overheid, tegen alle verwachtingen in, misschien wel quitte speelt op de miljarden...
+- [Leer kinderen spelen met messen en bijlen](https://fd.nl/opinie/1606560/leer-kinderen-spelen-met-messen-en-bijlen)
+  > ‘Het lijkt alsof we jonge mensen minder goed aanleren hoe zij zelf met tegenslagen kunnen omgaan’, zei het hoofd verzekeringsartsen van het UWV...
+- [In Knokke-Heist kijken huizenkopers niet op een miljoentje meer of minder](https://fd.nl/bedrijfsleven/1605181/in-knokke-heist-kijken-huizenkopers-niet-op-een-miljoentje-meer-of-minder)
+  > Knokke is de meest mondaine kunstplaats aan de Atlantische en Noordzeekust. Het vastgoed is er prijzig, maar gaat als warme broodjes over de toonbank.
+- [Personalia donderdag 6 augustus](https://fd.nl/bedrijfsleven/1606610/personalia-donderdag-6-augustus)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
