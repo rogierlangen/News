@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-08-2026 om 08:42*
+*Laatst bijgewerkt: 06-08-2026 om 11:25*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Drone met explosieven in Leipzig 'nieuw niveau van dreiging'](https://nos.nl/l/2625717)
-  > Het drone-incident op het vliegveld van Leipzig was een poging tot een aanslag. Dat zegt de Duitse minister van Binnenlandse Zaken Dobrindt. In de...
-- [Treinen in Limburg rijden weer, maar noodverordening blijft van kracht](https://nos.nl/l/2625714)
-  > De treinen die door de natuurbranden in Limburg stilstonden, rijden sinds vanochtend weer. Wel zet Arriva minder treinen in dan normaal tussen...
-- [Twee Israëlische militairen gedood in Libanon, gesprekken in Rome afgebroken](https://nos.nl/l/2625708)
-  > Bij gevechten in Zuid-Libanon zijn gisteren twee Israëlische militairen gedood. Dat meldt het Israëlische leger. Vier andere militairen raakten...
-- [Met massaal huwelijksfestival hoopt Rusland op een nieuwe babyboom](https://nos.nl/l/2625704)
-  > Een stoet van stellen loopt het festivalterrein in Moskou op. Vrouwen in witte trouwjurken, boeket in de hand en mannen in een net pak. Door speakers...
-- [Woonbooteigenaren in de problemen door laagwater: 'Scheuren en geuroverlast'](https://nos.nl/l/2625703)
-  > Ramen scheef in de sponning, deuren die klemmen en douchewater dat niet wegloopt: door de droogte liggen veel woonboten al weken scheef op de bodem....
+- [Levenslang voor aanslagpleger die vorig jaar inreed op menigte München](https://nos.nl/l/2625737)
+  > De man die begin vorig jaar een aanslag pleegde door in te rijden op een menigte in München heeft een levenslange gevangenisstraf gekregen. De...
+- [Kleurrijke 'kwal' steekt meer dan 100 mensen op strand in Spanje: 'Kan een plaag worden'](https://nos.nl/l/2625733)
+  > In Spanje en Frankrijk werden de afgelopen dagen verschillende stranden gesloten om dit dier: het Portugees oorlogsschip. De kwalachtige kan...
+- [Drie inbraken bij Amsterdamse brandweerkazernes in week tijd](https://nos.nl/l/2625732)
+  > Bij drie brandweerkazernes in de regio Amsterdam is de afgelopen week ingebroken. Er werd veelal levensreddend gereedschap meegenomen. Afgelopen...
+- [Vertrouwen van ondernemers flink gestegen, ondanks onrust in de wereld](https://nos.nl/l/2625731)
+  > Ondernemers hebben flink meer vertrouwen gekregen in de toekomst. Eerder dit jaar duikelde het vertrouwen nog fors omlaag, maar de zorgen zijn...
+- [BBC: seksueel grensoverschrijdend gedrag bij legerinstituut voor jonge rekruten](https://nos.nl/l/2625730)
+  > Meisjes die een opleiding doen aan het Army Foundation College (AFC) in Harrogate in het Verenigd Koninkrijk hebben te maken met seksuele intimidatie...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zorgmedewerkster komt ’s nachts stiekem langs bij haar vriend, tot collega’s de twee betrappen](https://www.ad.nl/binnenland/zorgmedewerkster-komt-s-nachts-stiekem-langs-bij-haar-vriend-tot-collegas-de-twee-betrappen~afe79f8d/)
-  > Tientallen keren bezoekt een vrouwelijke zorgmedewerker haar collega tijdens nachtdiensten in een verpleeghuis in de Gelderse Vallei. Vanwege die...
-- [Twee Nederlanders zwaargewond bij valpartijen in Oostenrijkse Alpen](https://www.ad.nl/buitenland/twee-nederlanders-zwaargewond-bij-valpartijen-in-oostenrijkse-alpen~a14f6d08/)
-  > Twee Nederlanders zijn woensdag zwaargewond geraakt door valpartijen in de Alpen in Oostenrijk. Met helikopters werden ze naar ziekenhuizen gebracht,...
-- [Etappe 7 Tour de France Femmes: wat wordt het verschil tussen de nummers 1 en 2 op de Mont Ventoux?](https://www.ad.nl/tour-de-france/etappe-7-tour-de-france-femmes-wat-wordt-het-verschil-tussen-de-nummers-1-en-2-op-de-mont-ventoux~a92c88ad/)
-  > Doe mee aan onze Tour de France Femmes-actie. De vraag van de dag: wat wordt het verschil tussen de nummers 1 en 2 op de Mont Ventoux? Laat het...
-- [Nederlandse keeper over zijn tijd bij Ajax-tegenstander Shelbourne: ‘Ze vonden mijn achternaam wel catchy’](https://www.ad.nl/voetbal/nederlandse-keeper-over-zijn-tijd-bij-ajax-tegenstander-shelbourne-ze-vonden-mijn-achternaam-wel-catchy~a6ae8de4a/)
-  > Ajax speelt in de derde voorronde van de Conference League tegen het Ierse Shelbourne FC. Het scheelde niet veel of de Nederlandse doelman Wessel...
-- [Medewerker luchthaven Leipzig twijfelt geen moment en haalt drone neer](https://www.ad.nl/buitenland/medewerker-luchthaven-leipzig-twijfelt-geen-moment-en-haalt-drone-neer~a1a42274/)
-  > Een alerte medewerker op de luchthaven van het Duitse Leipzig heeft ternauwernood een catastrofe voorkomen. Hij vertrouwde een laagvliegende drone...
+- [Ajax aast dit seizoen op historische mijlpaal: wie treedt in voetsporen van Ricardo Kishna?](https://www.ad.nl/voetbal/ajax-aast-dit-seizoen-op-historische-mijlpaal-wie-treedt-in-voetsporen-van-ricardo-kishna~abbec908/)
+  > Ajax staat op het punt om een historische mijlpaal te bereiken. De Amsterdammers hebben nog 57 doelpunten nodig om de magische grens van 6000...
+- [Strijd om WK wielrennen in 2032 gaat tussen Nederland en India: ‘Een van de zwaarste tegenkandidaten’](https://www.ad.nl/wielrennen/strijd-om-wk-wielrennen-in-2032-gaat-tussen-nederland-en-india-een-van-de-zwaarste-tegenkandidaten~ae2b7a85/)
+  > Groningen en Drenthe strijden alleen nog met India om de organisatie van de WK wielrennen in 2032. Dat heeft voorzitter David Lappartient van de...
+- [Zo geef je fruitvliegjes geen kans: twee middeltjes werken perfect en iedereen heeft ze in huis](https://www.ad.nl/wonen/hoe-krijg-je-fruitvliegjes-weg~a2e99033/)
+  > Het is weer volop fruitvliegjesseizoen. De diertjes zijn op warme dagen vaak niet weg te slaan bij de vuilnisbak of rond de fruitschaal. Maar waar...
+- [Temperaturen gaan flink oplopen: mogelijk officiële hittegolf met 35 graden in aantocht](https://www.ad.nl/binnenland/temperaturen-gaan-flink-oplopen-mogelijk-officiele-hittegolf-met-35-graden-in-aantocht~a14612f2/)
+  > De kans bestaat dat volgende week een officiële hittegolf wordt genoteerd. Dat zou de tweede zijn van dit jaar. Halverwege de week lopen de...
+- [West Ham verwelkomt Joël Veltman, Vozinha op spectaculaire wijze gepresenteerd in Chili](https://www.ad.nl/voetbal/west-ham-verwelkomt-joel-veltman-vozinha-op-spectaculaire-wijze-gepresenteerd-in-chili~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Eigenaren kunnen gekraakte villa’s op miljoenenlocatie aan Amstel niet verkopen](https://fd.nl/bedrijfsleven/1606467/eigenaren-kunnen-gekraakte-villas-op-miljoenenlocatie-aan-amstel-niet-verkopen)
-  > Aan de Amstel zijn twee panden op percelen die miljoenen waard zijn ingenomen door krakers. In Amstelveen gebeurt dat zelden. De vermogende eigenaren...
-- [Fifa biedt excuses aan voor WK-plan maar ‘tolereert geen aanvallen op integriteit meer’](https://fd.nl/politiek/1606661/fifa-biedt-excuses-voor-wk-plan-aan-maar-tolereert-geen-aanvallen-op-integriteit-meer)
-  > Voorzitter Infantino, die het vertrouwen van onder meer de Uefa en de KNVB kwijt is, mag aanblijven.
-- [Siemens verhoogt winstverwachting door groei in datacenters en software](https://fd.nl/bedrijfsleven/1606660/siemens-verhoogt-winstverwachting-door-groei-in-datacenters-en-software)
-  > De winstgevendheid van de divisie Digital Industries, die apparatuur voor fabrieksautomatisering en industriële software produceert, steeg met 44%...
-- [Commerzbank boekt recordresultaat, wil overleg met UniCredit](https://fd.nl/bedrijfsleven/1606714/commerzbank-boekt-recordresultaat-wil-overleg-met-unicredit)
-  > De Duitse bank gaat opnieuw eigen aandelen inkopen, ook al is een overname door het Italiaanse UniCredit onafwendbaar. Voor heel 2026 wordt op een...
-- [Iran zegt akkoord met Oman te hebben over Straat van Hormuz, VS positief](https://fd.nl/politiek/1606715/iran-zegt-akkoord-met-oman-te-hebben-over-straat-van-hormuz-vs-positief)
-  > Volgens Iran zal een akkoord worden gesloten ‘als bepaalde derde partijen dit proces niet dwarsbomen’.
+- [Kan een mysterieuze gokker de Israëlische verkiezingsmarkt sturen?](https://fd.nl/politiek/1606669/kan-een-mysterieuze-gokker-de-israelische-verkiezingsmarkt-sturen)
+  > Op Polymarket lijkt een anonieme gokker Netanyahu’s kansen op het premierschap met forse inzetten op te krikken. Het account verdiende eerder al...
+- [Vertrouwen van ondernemers minder negatief](https://fd.nl/economie/1606717/vertrouwen-van-ondernemers-minder-negatief)
+  > Het ondernemersvertrouwen is gestegen in vergelijking met een kwartaal eerder. De stijging komt na een grote daling in het eerste kwartaal van het...
+- [Strategische herziening WPP begint vruchten af te werpen](https://fd.nl/financiele-markten/1606667/strategische-herziening-wpp-begint-vruchten-af-te-werpen)
+  > De koers van het reclamebureau stijgt in Londen zo’n 25% nadat het bedrijf zijn halfjaarcijfers heeft gepresenteerd.
+- [Rheinmetall verlaagt omzetverwachting na verlies Duits fregattencontract](https://fd.nl/bedrijfsleven/1606718/rheinmetall-verlaagt-omzetverwachting-na-verlies-duits-fregattencontract)
+  > De fabrikant van tanks en munitie verwacht nu een omzet van €13,7 mrd, een daling ten opzichte van de eerdere prognose van €14 mrd.
+- [‘De dwaas van de Bodensee’ stond aan de basis van een miljardenconcern](https://fd.nl/bedrijfsleven/1601541/de-dwaas-van-de-bodensee-stond-aan-de-basis-van-een-miljardenconcern)
+  > Luchtvaartpionier Ferdinand von Zeppelin was de grondlegger van het Duitse ZF. Het technologieconcern was decennialang een melkkoe voor de stad...
 
 ### Meest gelezen
 
