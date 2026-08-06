@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-08-2026 om 11:25*
+*Laatst bijgewerkt: 06-08-2026 om 14:21*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Levenslang voor aanslagpleger die vorig jaar inreed op menigte München](https://nos.nl/l/2625737)
-  > De man die begin vorig jaar een aanslag pleegde door in te rijden op een menigte in München heeft een levenslange gevangenisstraf gekregen. De...
-- [Kleurrijke 'kwal' steekt meer dan 100 mensen op strand in Spanje: 'Kan een plaag worden'](https://nos.nl/l/2625733)
-  > In Spanje en Frankrijk werden de afgelopen dagen verschillende stranden gesloten om dit dier: het Portugees oorlogsschip. De kwalachtige kan...
-- [Drie inbraken bij Amsterdamse brandweerkazernes in week tijd](https://nos.nl/l/2625732)
-  > Bij drie brandweerkazernes in de regio Amsterdam is de afgelopen week ingebroken. Er werd veelal levensreddend gereedschap meegenomen. Afgelopen...
-- [Vertrouwen van ondernemers flink gestegen, ondanks onrust in de wereld](https://nos.nl/l/2625731)
-  > Ondernemers hebben flink meer vertrouwen gekregen in de toekomst. Eerder dit jaar duikelde het vertrouwen nog fors omlaag, maar de zorgen zijn...
-- [BBC: seksueel grensoverschrijdend gedrag bij legerinstituut voor jonge rekruten](https://nos.nl/l/2625730)
-  > Meisjes die een opleiding doen aan het Army Foundation College (AFC) in Harrogate in het Verenigd Koninkrijk hebben te maken met seksuele intimidatie...
+- [Huisarts Rhoon moet stoppen wegens alcoholverslaving, wijnflessen lagen in praktijk](https://nos.nl/l/2625761)
+  > De huisarts uit Rhoon, bij Rotterdam, die gisteren onmiddellijk haar werk moest neerleggen, kampt al jaren met een alcoholverslaving. Ook op haar...
+- [Van koopzegels naar app: hoe klantenbinding bij supermarkten verandert](https://nos.nl/l/2625759)
+  > De aankondiging van Albert Heijn om het koopzegel-spaarprogramma aan te passen maakt de tongen los. Waar online de boosheid overheerst, is het voor...
+- [Podcast De Dag: hoe FIFA-baas Infantino vecht voor z'n toekomst](https://nos.nl/l/2625757)
+  > Na crisisoverleg met z'n eigen team en excuses aan alle voetbalbonden is Gianni Infantino nog steeds de voorzitter van wereldvoetbalbond FIFA. 9...
+- [Groningen en Drenthe hebben alleen India nog als concurrent voor WK wielrennen 2032](https://nos.nl/l/2625754)
+  > Van de vijf kandidaten die de WK wielrennen 2032 wilden binnenhalen, zijn alleen Nederland en India over. Dat heeft voorzitter David Lappartient van...
+- [Oekraïens vliegtuig in Leipzig waar drone dichtbij kwam, was beladen met munitie](https://nos.nl/l/2625752)
+  > Het Oekraïense vrachtvliegtuig op het vliegveld van Leipzig, waarbij in de nacht van dinsdag op woensdag een drone met explosieven werd gevonden, was...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ajax aast dit seizoen op historische mijlpaal: wie treedt in voetsporen van Ricardo Kishna?](https://www.ad.nl/voetbal/ajax-aast-dit-seizoen-op-historische-mijlpaal-wie-treedt-in-voetsporen-van-ricardo-kishna~abbec908/)
-  > Ajax staat op het punt om een historische mijlpaal te bereiken. De Amsterdammers hebben nog 57 doelpunten nodig om de magische grens van 6000...
-- [Strijd om WK wielrennen in 2032 gaat tussen Nederland en India: ‘Een van de zwaarste tegenkandidaten’](https://www.ad.nl/wielrennen/strijd-om-wk-wielrennen-in-2032-gaat-tussen-nederland-en-india-een-van-de-zwaarste-tegenkandidaten~ae2b7a85/)
-  > Groningen en Drenthe strijden alleen nog met India om de organisatie van de WK wielrennen in 2032. Dat heeft voorzitter David Lappartient van de...
-- [Zo geef je fruitvliegjes geen kans: twee middeltjes werken perfect en iedereen heeft ze in huis](https://www.ad.nl/wonen/hoe-krijg-je-fruitvliegjes-weg~a2e99033/)
-  > Het is weer volop fruitvliegjesseizoen. De diertjes zijn op warme dagen vaak niet weg te slaan bij de vuilnisbak of rond de fruitschaal. Maar waar...
-- [Temperaturen gaan flink oplopen: mogelijk officiële hittegolf met 35 graden in aantocht](https://www.ad.nl/binnenland/temperaturen-gaan-flink-oplopen-mogelijk-officiele-hittegolf-met-35-graden-in-aantocht~a14612f2/)
-  > De kans bestaat dat volgende week een officiële hittegolf wordt genoteerd. Dat zou de tweede zijn van dit jaar. Halverwege de week lopen de...
-- [West Ham verwelkomt Joël Veltman, Vozinha op spectaculaire wijze gepresenteerd in Chili](https://www.ad.nl/voetbal/west-ham-verwelkomt-joel-veltman-vozinha-op-spectaculaire-wijze-gepresenteerd-in-chili~acbd43e6/)
-  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
+- [Hoe kies je tussen zes aannemers? Met zwartgeverfde balletjes, als het aan deze notaris ligt](https://www.ad.nl/geld/hoe-kies-je-tussen-zes-aannemers-met-zwartgeverfde-balletjes-als-het-aan-deze-notaris-ligt~a1acd978d/)
+  > In zijn dorpsleven doet deze notaris weleens mee aan loterijen, om ze een officiële uitstraling te geven. Soms is dat vooral met oog op de borrel...
+- [Amerikaanse investeringsmaatschappij Apollo koopt easyJet voor 6,6 miljard euro](https://www.ad.nl/economie/amerikaanse-investeringsmaatschappij-apollo-koopt-easyjet-voor-6-6-miljard-euro~ad2dca8c/)
+  > De Amerikaanse investeringsmaatschappij Apollo Global Management heeft donderdag overeenstemming bereikt over de overname van Britse...
+- [Dumpprijzen en terugroepactie bakfietsen: fietsenfabrikant Accell kon niet tegen schuldenberg opfietsen](https://www.ad.nl/economie/dumpprijzen-en-terugroepactie-bakfietsen-fietsenfabrikant-accell-kon-niet-tegen-schuldenberg-opfietsen~a112bf83/)
+  > Fietsenfabrikant Accell, bekend van merken als Batavus en Koga, staat aan de rand van de afgrond. Daardoor dreigt opnieuw een oer-Hollands bedrijf te...
+- [Iedereen wil dezelfde Insta-foto in Dolomieten: discussie over eindeloze wachtrijen](https://www.ad.nl/buitenland/iedereen-wil-dezelfde-insta-foto-in-dolomieten-discussie-over-eindeloze-wachtrijen~a4195717/)
+  > Aanschuiven voor een bergtocht alsof je in de rij staat voor een pretparkattractie. Beelden van honderden wandelaars die in de Italiaanse Dolomieten...
+- [Na tientallen ongelukken door Duitse grenscontroles gaat Nederland ingrijpen](https://www.ad.nl/binnenland/na-tientallen-ongelukken-door-duitse-grenscontroles-gaat-nederland-ingrijpen~a67a0099/)
+  > Nu Duitse grenscontroles tot het ene na het andere ernstige ongeluk aan Nederlandse zijde leiden, wil verkeersminister Vincent Karremans steviger...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Kan een mysterieuze gokker de Israëlische verkiezingsmarkt sturen?](https://fd.nl/politiek/1606669/kan-een-mysterieuze-gokker-de-israelische-verkiezingsmarkt-sturen)
-  > Op Polymarket lijkt een anonieme gokker Netanyahu’s kansen op het premierschap met forse inzetten op te krikken. Het account verdiende eerder al...
-- [Vertrouwen van ondernemers minder negatief](https://fd.nl/economie/1606717/vertrouwen-van-ondernemers-minder-negatief)
-  > Het ondernemersvertrouwen is gestegen in vergelijking met een kwartaal eerder. De stijging komt na een grote daling in het eerste kwartaal van het...
-- [Strategische herziening WPP begint vruchten af te werpen](https://fd.nl/financiele-markten/1606667/strategische-herziening-wpp-begint-vruchten-af-te-werpen)
-  > De koers van het reclamebureau stijgt in Londen zo’n 25% nadat het bedrijf zijn halfjaarcijfers heeft gepresenteerd.
-- [Rheinmetall verlaagt omzetverwachting na verlies Duits fregattencontract](https://fd.nl/bedrijfsleven/1606718/rheinmetall-verlaagt-omzetverwachting-na-verlies-duits-fregattencontract)
-  > De fabrikant van tanks en munitie verwacht nu een omzet van €13,7 mrd, een daling ten opzichte van de eerdere prognose van €14 mrd.
-- [‘De dwaas van de Bodensee’ stond aan de basis van een miljardenconcern](https://fd.nl/bedrijfsleven/1601541/de-dwaas-van-de-bodensee-stond-aan-de-basis-van-een-miljardenconcern)
-  > Luchtvaartpionier Ferdinand von Zeppelin was de grondlegger van het Duitse ZF. Het technologieconcern was decennialang een melkkoe voor de stad...
+- [Groeien met GoVolta](https://fd.nl/financiele-markten/1606557/groeien-met-govolta)
+  > De nieuwe Nederlandse spoorvervoerder belooft reizigers binnenkort voor €19 met de trein naar Parijs te brengen. Is dat een houdbaar verdienmodel?
+- [‘Vliegtuig nabij drone op luchthaven Leipzig was beladen met munitie’](https://fd.nl/politiek/1606674/vliegtuig-nabij-drone-op-luchthaven-leipzig-was-beladen-met-munitie)
+  > Het vrachttoestel dat dinsdagavond mogelijk doelwit was van een aanslag, was beladen met munitie. Het nieuws illustreert hoe groot het risico op een...
+- [Luchtvaartmaatschappijen zien winsten verdampen door hoge kerosineprijs](https://fd.nl/bedrijfsleven/1606672/luchtvaartmaatschappijen-zien-winsten-verdampen-door-hoge-kerosineprijs)
+  > Met een kwartaalverlies van €200 mln is de Hongaarse prijsvechter Wizz Air de hardst geraakte airline tot nu toe.
+- [De Amerikaanse beurswaakhond verliest zijn waakzaamheid en niemand grijpt in](https://fd.nl/financiele-markten/1606662/de-amerikaanse-beurswaakhond-verliest-zijn-waakzaamheid-en-niemand-grijpt-in)
+  > Een president die een verdienmodel bouwt rond koersgevoelige overheidsinformatie moet reden zijn voor onderzoek door de SEC. Waarom laat die het dan...
+- [Slimme slagersdochter moet wetenschap een gezicht geven](https://fd.nl/samenleving/1606664/slimme-slagersdochter-moet-wetenschap-een-gezicht-geven)
+  > De telg uit een familie van slagers en schilders gaat een van de belangrijkste posities van de Amsterdamse Universiteit bekleden.
 
 ### Meest gelezen
 
