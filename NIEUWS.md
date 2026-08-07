@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-08-2026 om 03:51*
+*Laatst bijgewerkt: 07-08-2026 om 05:42*
 
 ---
 
@@ -8,18 +8,17 @@
 
 ### Laatste nieuws
 
-- [Aardbeving op Filipijnen met kracht 5,8, gevoeld in hoofdstad Manilla](https://nos.nl/l/2625828)
-  > Op de Filipijnen heeft een aardbeving plaatsgevonden met een kracht van 5,8. De beving was voelbaar in de hoofdstad Manilla.
-        De aardbeving...
-- [Meta moet ruim half miljard dollar betalen vanwege mentale schade jongeren](https://nos.nl/l/2625827)
-  > Meta, het bedrijf achter Instagram en Facebook, moet 567 miljoen dollar (ongeveer 492 miljoen euro) betalen en zijn platforms veiliger maken voor...
-- [Brand in flat Rotterdam, één persoon overleden](https://nos.nl/l/2625826)
-  > Bij een brand in een flat in Rotterdam is iemand overleden, meldt de politie.
-        De brand ontstond rond elf uur gisteravond op de bovenste...
-- [Oekraïens vliegtuig in Leipzig had waarschijnlijk toch geen munitie aan boord](https://nos.nl/l/2625825)
-  > Waarschijnlijk was er toch geen munitie meer aan boord van het Oekraïense vrachtvliegtuig op de luchthaven van Leipzig, waar gisteren een explosieve...
-- [Dood Libanese journalist lijkt Israëlische oorlogsmisdaad, zeggen mensenrechtenorganisaties](https://nos.nl/l/2625820)
-  > De Israëlische aanval in april op het zuiden van Libanon, waarbij de Libanese journalist Amal Khalil werd gedood, moet worden gezien als een...
+- [Acteur Peter Faber (82) overleden, bekend van Max Havelaar, Soldaat van Oranje en Schatjes](https://nos.nl/l/2625838)
+  > Acteur Peter Faber is op 82-jarige leeftijd overleden. Dat meldt zijn familie aan persbureau ANP.
+        Faber was bekend van vele rollen, zowel op...
+- [Doden en gewonden bij schietpartij op middelbare school bij Bangkok](https://nos.nl/l/2625837)
+  > Op een school in Thailand heeft een leerling zeker zes mensen doodgeschoten. De slachtoffers zijn volgens lokale media drie docenten en drie...
+- [Drenkeling redden zonder ervaring? 'Grote kans dat je zelf in problemen raakt'](https://nos.nl/l/2625836)
+  > Stel je voor: een vriend(in) of familielid dreigt te verdrinken in zee of in een rivier. Wat doe je? Direct erachteraan, zegt je gevoel...
+- [Tabaksgigant Philip Morris krijgt tik op de vingers voor omstreden AI-campagne](https://nos.nl/l/2625835)
+  > Tabaksfabrikant Philip Morris is door de Reclame Code Commissie (RCC) op de vingers getikt vanwege een omstreden campagne met behulp van kunstmatige...
+- [Wekdienst 7/8: Wielrensters beklimmen Mont Ventoux in Tour • Vonnis steekpartij Gouda](https://nos.nl/l/2625830)
+  > Goedemorgen! De vrouwen in de Tour de France Femmes staat een loeizware bergrit naar de Mont Ventoux te wachten. De rechtbank in Den Haag doet...
 
 ### Meest gelezen
 
@@ -29,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Seizoenkaart Eredivisie bijna overal duurder dan vorig seizoen: PSV en Ajax spannen de kroon, ADO Den Haag het goedkoopst](https://www.ad.nl/sport/seizoenkaart-eredivisie-bijna-overal-duurder-dan-vorig-seizoen-psv-en-ajax-spannen-de-kroon-ado-den-haag-het-goedkoopst~a3ed6bf1/)
-  > Bijna alle Eredivisieclubs hebben de prijs van hun goedkoopste seizoenkaart verhoogd. De kaart kost dit seizoen gemiddeld 266 euro, iets meer dan...
-- [Wall Street Journal: VS houden rekening met beperkte Russische aanval op de NAVO](https://www.ad.nl/buitenland/wall-street-journal-vs-houden-rekening-met-beperkte-russische-aanval-op-de-navo~adfb97be/)
-  > De Russische president Vladimir Poetin zou de komende jaren met een beperkte aanval op een Navo-land kunnen proberen de vastberadenheid van het...
-- [Promotieposter film The Mummy is ‘te eng’ voor kinderen in Londen](https://www.ad.nl/show/promotieposter-film-the-mummy-is-te-eng-voor-kinderen-in-londen~af360114/)
-  > Promotieposters van de nieuwe Mummy-film van Lee Cronin mogen niet meer in de Londense metro hangen. Dat heeft de Britse advertentiewaakhond ASA...
-- [Recordaanvallen in Oekraïne en Rusland kunnen juist weg vrijmaken voor onderhandelingen](https://www.ad.nl/buitenland/recordaanvallen-in-oekraine-en-rusland-kunnen-juist-weg-vrijmaken-voor-onderhandelingen~af1c402b/)
-  > Nu de Russen en Oekraïners elkaar dagelijks bestoken met recordaantallen drones en raketten, lijkt het verloop van de oorlog in de lucht te worden...
-- [Meer dan 500 miljoen dollar boete voor Meta vanwege schade aan mentale gezondheid kinderen](https://www.ad.nl/buitenland/meer-dan-500-miljoen-dollar-boete-voor-meta-vanwege-schade-aan-mentale-gezondheid-kinderen~accf827c/)
-  > Meta moet in de Amerikaanse staat New Mexico 567 miljoen dollar (ongeveer 492 miljoen euro) betalen en zijn platformen Facebook en Instagram veiliger...
+- [Van Taylor Swift tot Ariana Grande: hoe bezorgde fans soms veranderen in een hardnekkige nachtmerrie](https://www.ad.nl/show/van-taylor-swift-tot-ariana-grande-hoe-bezorgde-fans-soms-veranderen-in-een-hardnekkige-nachtmerrie~af7176d9/)
+  > Fans van Ariana Grande uiten al jaren hun bezorgdheid over haar fragiele uiterlijk en gezondheid. Maar plat gezegd: waar bemoeien ze zich mee?...
+- [FC Twente haalt uit tegen FC DAC en kan play-offs niet meer missen: ‘Bij de strot gegrepen en niet meer losgelaten’](https://www.ad.nl/voetbal/fc-twente-haalt-uit-tegen-fc-dac-en-kan-play-offs-niet-meer-missen-bij-de-strot-gegrepen-en-niet-meer-losgelaten~a48b8e4f/)
+  > FC Twente heeft een feestavond achter de rug. De ploeg van John van den Brom boekte een 6-0 overwinning op het kansloze FC DAC 1904 uit Slowakije. De...
+- [Acteur Peter Faber (82) overleden, bekend van Soldaat van Oranje en Ciske de Rat](https://www.ad.nl/show/acteur-peter-faber-82-overleden-bekend-van-soldaat-van-oranje-en-ciske-de-rat~a4ebc580b/)
+  > Acteur Peter Faber is overleden. Hij stierf donderdag op 82-jarige leeftijd ‘vredig in het bijzijn van zijn meest dierbaren’, heeft zijn familie...
+- [Reclame Code Commissie tikt tabaksbedrijf achter Marlboro op de vingers om verboden reclame](https://www.ad.nl/binnenland/reclame-code-commissie-tikt-tabaksbedrijf-achter-marlboro-op-de-vingers-om-verboden-reclame~aa2dd7c1/)
+  > De Reclame Code Commissie (RCC) heeft Philip Morris International, een van ’s werelds grootste tabaksbedrijven, op de vingers getikt vanwege de...
+- [Hoe duurste voetballer ooit Neymar steeds verder afglijdt](https://www.ad.nl/voetbal/hoe-duurste-voetballer-ooit-neymar-steeds-verder-afglijdt~a494131d/)
+  > De blessures. De gemiste WK’s. De nachtelijke feestjes, pokertoernooien en de zoveelste rel na een wedstrijd. Ooit was hij bijna zo groot als Lionel...
 
 ### Meest gelezen
 
@@ -48,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Meta moet $567 mln in fonds voor scrollverslaving stoppen](https://fd.nl/bedrijfsleven/1606802/meta-moet-567-mln-in-fonds-voor-scrollverslaving-stoppen)
+  > Eigenaar van Facebook en Instagram deed te weinig tegen verslavingen en draagt bij aan mentale gezondheidscrisis onder jongeren, stelt rechter.
+- [Live: Koperprijs naar recordhoogte](https://fd.nl/financiele-markten/1606783/live-koperprijs-naar-recordhoogte)
+  > De Amerikaanse arbeidscijfers zijn vandaag het belangrijkste item op de agenda. De aandelenindices in Azië staan redelijk vlak, de olieprijs stijgt...
+- [Waarom deze Nijmeegse filosoof Anthropic afwees](https://fd.nl/tech-en-innovatie/1606602/waarom-deze-nijmeegse-filosoof-anthropic-afwees)
+  > De AI-industrie flirt met de geesteswetenschappen, maar stelt de verkeerde vragen, schrijft de in Nijmegen docerende filosoof en theoloog Carmody...
+- [In vastgoedmekka Knokke-Heist kijken huizenkopers niet op een miljoentje](https://fd.nl/bedrijfsleven/1605181/in-vastgoedmekka-knokke-heist-kijken-huizenkopers-niet-op-een-miljoentje)
+  > Knokke is de meest mondaine kunstplaats aan de Atlantische en Noordzeekust. Het vastgoed is er prijzig, maar gaat als warme broodjes over de toonbank.
 - [De Beurswaakhond blaft niet naar Trump](https://fd.nl/economie/1606780/de-beurswaakhond-blaft-niet-naar-trump)
   > Vandaag in de Dagkoers: Advocatenkantoren zien kansen bij private equity; de SEC is onder Trump afgebrokkeld als toezichthouder; en hoe krakers het...
-- [Lenen aan Le Pen](https://fd.nl/opinie/1606782/lenen-aan-le-pen)
-  > Nooit eerder waren de omstandigheden voor uiterst rechts in Frankrijk zo gunstig, ziet columnist Casper Thomas.
-- [Amerikaanse topadvocatenkantoren zoeken de weg naar private equity](https://fd.nl/financiele-markten/1606723/amerikaanse-topadvocatenkantoren-zoeken-de-weg-naar-private-equity)
-  > Advocatenkantoren mogen nu niet (mede) in eigendom zijn van niet-advocaten. Grote kantoren zoeken constructies om die regel te omzeilen en...
-- [We missen er drie miljoen in dit luie land](https://fd.nl/opinie/1606663/we-missen-er-drie-miljoen-in-dit-luie-land)
-  > Strandtenten sluiten vroeg, boekhandels vinden geen opvolger en wasserijen draaien op de laatste enthousiasteling. Misschien omdat te weinig...
-- [Wall Street kleurt rood door verhoogde rente op staatsobligaties](https://fd.nl/bedrijfsleven/1606752/wall-street-kleurt-rood-door-verhoogde-rente-op-staatsobligaties)
-  > Een reeks kwartaalcijfers werd wisselend ontvangen, de prijs voor een vat Brent-olie steeg weer boven de $82.
 
 ### Meest gelezen
 
