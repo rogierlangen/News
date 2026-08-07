@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-08-2026 om 05:42*
+*Laatst bijgewerkt: 07-08-2026 om 07:21*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Acteur Peter Faber (82) overleden, bekend van Max Havelaar, Soldaat van Oranje en Schatjes](https://nos.nl/l/2625838)
-  > Acteur Peter Faber is op 82-jarige leeftijd overleden. Dat meldt zijn familie aan persbureau ANP.
-        Faber was bekend van vele rollen, zowel op...
+- [Trump gaat opnieuw proberen recht op Amerikaans staatsburgerschap te beperken](https://nos.nl/l/2625845)
+  > President Trump doet een nieuwe poging om het geboorterecht op Amerikaans staatsburgerschap in te perken. Hij heeft twee presidentiële decreten...
+- [Twee mannen veroordeeld voor mishandeling in zaak dood Franse livestreamer](https://nos.nl/l/2625844)
+  > De rechtbank in Nice heeft twee mannen veroordeeld voor zware mishandeling en aanzetten tot haat in verband met onderzoek naar de dood van de Franse...
+- [Peter Faber (82) acteerde zoals hij leefde: eigenzinnig, energiek en warm](https://nos.nl/l/2625842)
+  > De bevlogen acteur Peter Faber, die op 82-jarige leeftijd is overleden, had een missie. Hij wilde dat jongeren die net als hij op straat waren...
+- [Acteur Peter Faber overleden, van Max Havelaar, Schatjes! en Soldaat van Oranje](https://nos.nl/l/2625838)
+  > Acteur Peter Faber is op 82-jarige leeftijd overleden. Dat meldt zijn familie aan persbureau ANP. Hij was begin juli opgenomen in het ziekenhuis...
 - [Doden en gewonden bij schietpartij op middelbare school bij Bangkok](https://nos.nl/l/2625837)
-  > Op een school in Thailand heeft een leerling zeker zes mensen doodgeschoten. De slachtoffers zijn volgens lokale media drie docenten en drie...
-- [Drenkeling redden zonder ervaring? 'Grote kans dat je zelf in problemen raakt'](https://nos.nl/l/2625836)
-  > Stel je voor: een vriend(in) of familielid dreigt te verdrinken in zee of in een rivier. Wat doe je? Direct erachteraan, zegt je gevoel...
-- [Tabaksgigant Philip Morris krijgt tik op de vingers voor omstreden AI-campagne](https://nos.nl/l/2625835)
-  > Tabaksfabrikant Philip Morris is door de Reclame Code Commissie (RCC) op de vingers getikt vanwege een omstreden campagne met behulp van kunstmatige...
-- [Wekdienst 7/8: Wielrensters beklimmen Mont Ventoux in Tour • Vonnis steekpartij Gouda](https://nos.nl/l/2625830)
-  > Goedemorgen! De vrouwen in de Tour de France Femmes staat een loeizware bergrit naar de Mont Ventoux te wachten. De rechtbank in Den Haag doet...
+  > Op een school in Thailand heeft een leerling zeker zes mensen en zichzelf doodgeschoten. De slachtoffers zijn volgens lokale media drie docenten en...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van Taylor Swift tot Ariana Grande: hoe bezorgde fans soms veranderen in een hardnekkige nachtmerrie](https://www.ad.nl/show/van-taylor-swift-tot-ariana-grande-hoe-bezorgde-fans-soms-veranderen-in-een-hardnekkige-nachtmerrie~af7176d9/)
-  > Fans van Ariana Grande uiten al jaren hun bezorgdheid over haar fragiele uiterlijk en gezondheid. Maar plat gezegd: waar bemoeien ze zich mee?...
-- [FC Twente haalt uit tegen FC DAC en kan play-offs niet meer missen: ‘Bij de strot gegrepen en niet meer losgelaten’](https://www.ad.nl/voetbal/fc-twente-haalt-uit-tegen-fc-dac-en-kan-play-offs-niet-meer-missen-bij-de-strot-gegrepen-en-niet-meer-losgelaten~a48b8e4f/)
-  > FC Twente heeft een feestavond achter de rug. De ploeg van John van den Brom boekte een 6-0 overwinning op het kansloze FC DAC 1904 uit Slowakije. De...
-- [Acteur Peter Faber (82) overleden, bekend van Soldaat van Oranje en Ciske de Rat](https://www.ad.nl/show/acteur-peter-faber-82-overleden-bekend-van-soldaat-van-oranje-en-ciske-de-rat~a4ebc580b/)
-  > Acteur Peter Faber is overleden. Hij stierf donderdag op 82-jarige leeftijd ‘vredig in het bijzijn van zijn meest dierbaren’, heeft zijn familie...
-- [Reclame Code Commissie tikt tabaksbedrijf achter Marlboro op de vingers om verboden reclame](https://www.ad.nl/binnenland/reclame-code-commissie-tikt-tabaksbedrijf-achter-marlboro-op-de-vingers-om-verboden-reclame~aa2dd7c1/)
-  > De Reclame Code Commissie (RCC) heeft Philip Morris International, een van ’s werelds grootste tabaksbedrijven, op de vingers getikt vanwege de...
-- [Hoe duurste voetballer ooit Neymar steeds verder afglijdt](https://www.ad.nl/voetbal/hoe-duurste-voetballer-ooit-neymar-steeds-verder-afglijdt~a494131d/)
-  > De blessures. De gemiste WK’s. De nachtelijke feestjes, pokertoernooien en de zoveelste rel na een wedstrijd. Ooit was hij bijna zo groot als Lionel...
+- [Historische droogte Frankrijk raakt vakantiegangers: campings grijpen in met douches en een bommetjesverbod](https://www.ad.nl/buitenland/historische-droogte-frankrijk-raakt-vakantiegangers-campings-grijpen-in-met-douches-en-een-bommetjesverbod~aeb35e76/)
+  > In Frankrijk is het kurkdroog en moet water worden bespaard. Tegelijkertijd is het superdruk met toeristen. Hoe verenig je dat? Een rondje langs...
+- [Overleden acteur Peter Faber wilde áltijd door: ‘Zelfs na doorgesneden pees op filmset’](https://www.ad.nl/show/overleden-acteur-peter-faber-wilde-altijd-door-zelfs-na-doorgesneden-pees-op-filmset~a1a40daf/)
+  > De overleden acteur Peter Faber (82) kampte al jaren met hartproblemen, maar dat negeerde hij het liefst vakkundig. Hij wilde leven (‘ik ga liever...
+- [Supercomputer overduidelijk: PSV wordt opnieuw kampioen met gepaste afstand op Feyenoord en Ajax](https://www.ad.nl/voetbal/supercomputer-overduidelijk-psv-wordt-opnieuw-kampioen-met-gepaste-afstand-op-feyenoord-en-ajax~a2a889d7/)
+  > Vlak voor de start van het nieuwe eredivisieseizoen heeft Opta een supercomputer ingezet om uit te rekenen wie de titel pakt, Europees voetbal haalt...
+- [The New York Times noemt Den Haag dé plek om hitte te ontvluchten: ‘Steeds meer Spanjaarden en Italianen’](https://www.ad.nl/binnenland/the-new-york-times-noemt-den-haag-de-plek-om-hitte-te-ontvluchten-steeds-meer-spanjaarden-en-italianen~ac41b6fc/)
+  > Zo, die kan je in je zak steken, Den Haag. Eén van ’s werelds meest prestigieuze kranten, The New York Times, pakt uit met een groot stuk over de...
+- [Na Bol en de Bijenkorf ook brillenketen Ace & Tate geraakt door datalek partnerbedrijf](https://www.ad.nl/economie/na-bol-en-de-bijenkorf-ook-brillenketen-ace-en-tate-geraakt-door-datalek-partnerbedrijf~a5738b0b/)
+  > Ook brillenketen Ace & Tate heeft last van een datalek bij een logistieke partner, meldt het bedrijf in een e-mail aan mogelijk getroffen klanten....
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Snellere groei voor defensieconcern CSG in tweede kwartaal](https://fd.nl/bedrijfsleven/1606805/snellere-groei-voor-defensieconcern-csg-in-tweede-kwartaal)
+  > Ceo Michal Strnad handhaaft de omzet- en winstprognose voor dit jaar.
+- [ASN Bank plukt eerste vruchten van reorganisatie](https://fd.nl/financiele-markten/1606753/asn-bank-toont-eerste-resultaten-van-reorganisatie)
+  > De kosten dalen en de nettowinst is met 26% gestegen, naar €174 mln. ‘We zijn verheugd om te zien dat onze nieuwe strategie al vruchten afwerpt’,...
+- [Wereldwijde AI-vraag houdt Chinese exportmotor draaiende](https://fd.nl/bedrijfsleven/1606804/wereldwijde-ai-vraag-houdt-chinese-exportmotor-draaiende)
+  > De export steeg met 23,9%, hoger dan de verwachting van door Bloomberg gepeilde economen.
+- [Toch geen munitie aan boord van Antonov in Leipzig](https://fd.nl/politiek/1606803/toch-geen-munitie-aan-boord-van-antonov-in-leipzig)
+  > Duits ministerie van binnenlandse zaken: vrachttoestel dat doelwit was van drone met explosief, was leeg.
 - [Meta moet $567 mln in fonds voor scrollverslaving stoppen](https://fd.nl/bedrijfsleven/1606802/meta-moet-567-mln-in-fonds-voor-scrollverslaving-stoppen)
   > Eigenaar van Facebook en Instagram deed te weinig tegen verslavingen en draagt bij aan mentale gezondheidscrisis onder jongeren, stelt rechter.
-- [Live: Koperprijs naar recordhoogte](https://fd.nl/financiele-markten/1606783/live-koperprijs-naar-recordhoogte)
-  > De Amerikaanse arbeidscijfers zijn vandaag het belangrijkste item op de agenda. De aandelenindices in Azië staan redelijk vlak, de olieprijs stijgt...
-- [Waarom deze Nijmeegse filosoof Anthropic afwees](https://fd.nl/tech-en-innovatie/1606602/waarom-deze-nijmeegse-filosoof-anthropic-afwees)
-  > De AI-industrie flirt met de geesteswetenschappen, maar stelt de verkeerde vragen, schrijft de in Nijmegen docerende filosoof en theoloog Carmody...
-- [In vastgoedmekka Knokke-Heist kijken huizenkopers niet op een miljoentje](https://fd.nl/bedrijfsleven/1605181/in-vastgoedmekka-knokke-heist-kijken-huizenkopers-niet-op-een-miljoentje)
-  > Knokke is de meest mondaine kunstplaats aan de Atlantische en Noordzeekust. Het vastgoed is er prijzig, maar gaat als warme broodjes over de toonbank.
-- [De Beurswaakhond blaft niet naar Trump](https://fd.nl/economie/1606780/de-beurswaakhond-blaft-niet-naar-trump)
-  > Vandaag in de Dagkoers: Advocatenkantoren zien kansen bij private equity; de SEC is onder Trump afgebrokkeld als toezichthouder; en hoe krakers het...
 
 ### Meest gelezen
 
