@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-08-2026 om 09:03*
+*Laatst bijgewerkt: 07-08-2026 om 10:55*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Zeldzame zonsverduistering in aantocht, Spaanse accommodaties verhogen prijzen](https://nos.nl/l/2625854)
-  > Wie volgende week woensdag 's avonds met een speciale bril naar de zon kijkt, ziet die voor 90 procent verdwijnen achter de maan. In slechts twee...
-- [Surfer van 58 overleden na aanvaring op Gronings meer](https://nos.nl/l/2625851)
-  > Op het Groningse Schildmeer is gistermiddag een surfer om het leven gekomen bij een ongeluk. De man van 58 uit Delfzijl werd aangevaren door een...
-- [Trump gaat opnieuw proberen recht op Amerikaans staatsburgerschap te beperken](https://nos.nl/l/2625845)
-  > President Trump doet een nieuwe poging om het geboorterecht op Amerikaans staatsburgerschap in te perken. Hij heeft twee presidentiële decreten...
-- [Twee mannen veroordeeld voor mishandeling in zaak dood Franse livestreamer](https://nos.nl/l/2625844)
-  > De rechtbank in Nice heeft twee mannen veroordeeld voor zware mishandeling en aanzetten tot haat in verband met onderzoek naar de dood van de Franse...
-- [Peter Faber (82) acteerde zoals hij leefde: eigenzinnig, energiek en warm](https://nos.nl/l/2625842)
-  > De bevlogen acteur Peter Faber, die op 82-jarige leeftijd is overleden, had een missie. Hij wilde dat jongeren die net als hij op straat waren...
+- [Houthi-aanvallen in Jemen en Saudi-Arabië, zorg over grotere oorlog in Midden-Oosten](https://nos.nl/l/2625869)
+  > Bij Houthi-aanvallen op kampen van het leger van Jemen zijn sinds gisteren 58 militairen om het leven gekomen, meldt het Franse persbureau AFP op...
+- [Wallaby loopt ondanks vangpogingen al zes maanden rond in Veldhoven](https://nos.nl/l/2625868)
+  > Een wallaby die zes maanden geleden ontsnapte uit een Brabantse dierentuin, laat zich maar niet vangen. Inmiddels zijn er zo'n twintig pogingen...
+- [Belgische duiker vindt fles Guinness uit 1864 in scheepswrak bij Dover](https://nos.nl/l/2625862)
+  > Een Belgische duiker heeft een fles bier uit 1864 opgedoken uit een scheepswrak voor de kust van Dover. Dat meldt het Gazet van Antwerpen.
+        De...
+- [Marathon Amersfoort voortaan begin april, 'kans op hoge temperaturen dan kleiner'](https://nos.nl/l/2625859)
+  > De halve marathon van Amersfoort wordt voortaan gehouden in het vroege voorjaar. De komende editie is op 4 april, bijna twee maanden eerder dan de...
+- [Aap die in twee weken achttien mensen verwondde gevangen in Indonesië](https://nos.nl/l/2625858)
+  > Een aap die twee weken onrust zaaide in een stad op het Indonesische eiland Sumatra is gevangen door de autoriteiten. De volwassen langstaartmakaak...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Vriendin Enzo Knol heeft hartritmestoornis: ‘Tijdens het trainen merkte ik dat er iets niet klopte’](https://www.ad.nl/show/vriendin-enzo-knol-heeft-hartritmestoornis-tijdens-het-trainen-merkte-ik-dat-er-iets-niet-klopte~a65258db/)
-  > Influencer Myron Koops heeft een hartritmestoornis. Dat deelt de 29-jarige partner van youtuber Enzo Knol op Instagram. De hartritmestoornis is...
-- [K3 bijt van zich af na sterk verdeelde meningen over optreden op Amsterdam Pride: ‘In welk opzicht zou het niet oké zijn?’](https://www.ad.nl/show/k3-bijt-van-zich-af-na-sterk-verdeelde-meningen-over-optreden-op-amsterdam-pride-in-welk-opzicht-zou-het-niet-oke-zijn~afa07c08/)
-  > Het verrassingsoptreden van K3 op de World Pride in Amsterdam afgelopen weekend werd niet door iedereen op prijs gesteld. Op sociale media kreeg de...
-- [‘Het is wel iets van m’n bucketlist’: vrouwenpeloton verheugt zich én vreest mythische Mont Ventoux](https://www.ad.nl/tour-de-france/het-is-wel-iets-van-mn-bucketlist-vrouwenpeloton-verheugt-zich-en-vreest-mythische-mont-ventoux~adb03eca/)
-  > De Mont Ventoux heeft al decennialang een mythische status, vooral het mannenwielrennen dan. Vrijdag gaat ook het vrouwenpeloton in de Tour voor het...
-- [Drone is een must bij bestrijden natuurbrand: ‘Geeft overzicht en meet grondtemperatuur’](https://www.ad.nl/binnenland/drone-is-een-must-bij-bestrijden-natuurbrand-geeft-overzicht-en-meet-grondtemperatuur~aed1f46f5/)
-  > Een ogenschijnlijk kleine brand in dichtbebost gebied is voor de brandweer reden om massaal uit te rukken en het vuur zo snel mogelijk uit te...
-- [Age (82) woont aan Portugese Zilverkust: ‘Ik heb geen zin om achter de geraniums te zitten’](https://www.ad.nl/wonen/age-82-woont-aan-portugese-zilverkust-ik-heb-geen-zin-om-achter-de-geraniums-te-zitten~a48fe168/)
-  > Age Boersma (82) woont sinds 2023 met zijn vrouw Cocky (ook 82) in Nadadouro, boven Lissabon aan de Portugese Zilverkust (Costa de Prata). Na een...
+- [Mark van Bommel sprak niet met KNVB over mogelijk bondscoachschap: ‘Ben blij dat België is gekomen’](https://www.ad.nl/voetbal/mark-van-bommel-sprak-niet-met-knvb-over-mogelijk-bondscoachschap-ben-blij-dat-belgie-is-gekomen~a1093c06/)
+  > Mark van Bommel beschouwt het als „een eer” dat hij de nieuwe bondscoach van België is. Dat heeft de oud-international van Oranje gezegd bij zijn...
+- [Anna van der Breggen verschijnt niet aan de start van etappe richting mythische Mont Ventoux](https://www.ad.nl/wielrennen/anna-van-der-breggen-verschijnt-niet-aan-de-start-van-etappe-richting-mythische-mont-ventoux~a597cfdf/)
+  > Voor de renster is het een ‘bucketlist dingetje’, maar vandaag staat een loodzware test op het programma. Wie trotseert de Mont Ventoux in deze...
+- [Prijs van benzine en diesel zakt vrijdag verder, keuze voor tankstation kan 25 cent per liter schelen](https://www.ad.nl/economie/prijs-van-benzine-en-diesel-zakt-vrijdag-verder-keuze-voor-tankstation-kan-25-cent-per-liter-schelen~a196e056/)
+  > De prijzen aan de pomp zijn vrijdag verder gedaald, nadat tanken deze week al een aantal centen goedkoper was geworden. De olieprijzen gingen deze...
+- [Clubs strijden om handtekening PSV-speler Driouech, ‘Zirkzee kan op huurbasis naar Juventus’](https://www.ad.nl/voetbal/clubs-strijden-om-handtekening-psv-speler-driouech-zirkzee-kan-op-huurbasis-naar-juventus~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
+- [Praat mee: weer een hittegolf op komst, kun jij van de warmte genieten of maak je je zorgen over de droogte in Nederland?](https://www.ad.nl/praat-mee/praat-mee-weer-een-hittegolf-op-komst-kun-jij-van-de-warmte-genieten-of-maak-je-je-zorgen-over-de-droogte-in-nederland~a36117b7/)
+  > Volgens de weerkaarten krijgen we volgende week te maken met de tweede officiële hittegolf en de vijfde regionale hittegolf van het jaar. De één...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Hoe goed ken jij de Indische gemeenschap?](https://fd.nl/samenleving/1606511/hoe-goed-ken-jij-de-indische-gemeenschap)
+  > Döner, doekoe en doerian. Nederland werd in honderden jaren vele gemeenschappen rijker – waaronder de Nederlands-Indische. Grijp je kans om die beter...
+- [De gasopslagen blijven angstvallig leeg, maar hoe erg is dat eigenlijk?](https://fd.nl/politiek/1605990/de-gasopslagen-blijven-angstvallig-leeg-maar-hoe-erg-is-dat-eigenlijk)
+  > De ondergrondse gasopslag in Europa is angstvallig leeg. Over de zorgelijkheid daarvan verschillen de meningen.
+- [Goede resultaten versterken positie van begeerde Italiaanse bank Monte dei Paschi di Siena](https://fd.nl/bedrijfsleven/1606759/goede-resultaten-versterken-positie-van-begeerde-italiaanse-bank-monte-dei-paschi-di-siena)
+  > In de slepende bankenstrijd is de bank uit Siena klaar voor een nieuw hoofdstuk. Ceo Luigi Lovaglio verzet zich uit alle macht tegen een overname...
 - [Blik op Zuid-Europa? Zeg nooit meer dat Spanje en Italië op elkaar lijken](https://fd.nl/opinie/1603903/blik-op-zuid-europa-zeg-nooit-meer-dat-spanje-en-italie-op-elkaar-lijken)
   > Tijdens de eurocrisis werd het blok Zuid-Europa veelal gezien als aanstichter van alle problemen. Ruim vijftien jaar later is van een blok geen...
 - [De kracht van rotan](https://fd.nl/samenleving/1606562/de-kracht-van-rotan)
   > Rotan is een materiaal dat eigenlijk alleen maar voordelen kent en daarom opnieuw omarmd wordt door designers.
-- [Snellere groei voor defensieconcern CSG in tweede kwartaal](https://fd.nl/bedrijfsleven/1606805/snellere-groei-voor-defensieconcern-csg-in-tweede-kwartaal)
-  > Ceo Michal Strnad handhaaft de omzet- en winstprognose voor dit jaar.
-- [ASN Bank plukt eerste vruchten van reorganisatie](https://fd.nl/financiele-markten/1606753/asn-bank-toont-eerste-resultaten-van-reorganisatie)
-  > De kosten dalen en de nettowinst is met 26% gestegen, naar €174 mln. ‘We zijn verheugd om te zien dat onze nieuwe strategie al vruchten afwerpt’,...
-- [Wereldwijde AI-vraag houdt Chinese exportmotor draaiende](https://fd.nl/bedrijfsleven/1606804/wereldwijde-ai-vraag-houdt-chinese-exportmotor-draaiende)
-  > De export steeg met 23,9%, hoger dan de verwachting van door Bloomberg gepeilde economen.
 
 ### Meest gelezen
 
