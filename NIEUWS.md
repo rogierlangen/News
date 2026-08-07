@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-08-2026 om 11:49*
+*Laatst bijgewerkt: 07-08-2026 om 13:12*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Podcast De Dag: Gediscrimineerd tijdens de Pride, wat gebeurt er met je klacht?](https://nos.nl/l/2625885)
+  > Het aantal meldingen van geweld en discriminatie tegen de queergemeenschap neemt toe en al helemaal rondom de Pride deze week. In een week tijd zijn...
+- [Ook Ajax en brillenketen Ace & Tate getroffen door datalek](https://nos.nl/l/2625880)
+  > Brillenketen Ace & Tate, ING en voetbalclub Ajax zijn getroffen door het datalek bij het logistieke bedrijf CEVA Logistics. Eerder maakten webwinkel...
+- [Schapen mogen niet meer grazen langs Waddenzee: 'Geel in plaats van groen gras'](https://nos.nl/l/2625878)
+  > Vanwege de aanhoudende droogte mogen schapen en koeien voorlopig niet meer grazen op enkele dijken langs de Waddenzee in Noord-Holland. Het...
+- [Spaanse politie rolt een van grootste Europese smokkelnetwerken op, 78 aanhoudingen](https://nos.nl/l/2625877)
+  > In Spanje en Algerije is een van de grootste Europese criminele netwerken opgerold bij een internationale politieactie, onder leiding van de Spaanse...
 - [Houthi-aanvallen in Jemen en Saudi-Arabië, zorg over grotere oorlog in Midden-Oosten](https://nos.nl/l/2625869)
   > Bij Houthi-aanvallen op kampen van het leger van Jemen zijn sinds gisteren 58 militairen om het leven gekomen, meldt het Franse persbureau AFP op...
-- [Wallaby loopt ondanks vangpogingen al zes maanden rond in Veldhoven](https://nos.nl/l/2625868)
-  > Een wallaby die zes maanden geleden ontsnapte uit een Brabantse dierentuin, laat zich maar niet vangen. Inmiddels zijn er zo'n twintig pogingen...
-- [Belgische duiker vindt fles Guinness uit 1864 in scheepswrak bij Dover](https://nos.nl/l/2625862)
-  > Een Belgische duiker heeft een fles bier uit 1864 opgedoken uit een scheepswrak voor de kust van Dover. Dat meldt de Gazet van Antwerpen.
-        De...
-- [Marathon Amersfoort vervroegd naar april om hitteproblemen te voorkomen](https://nos.nl/l/2625859)
-  > De halve marathon van Amersfoort wordt voortaan gehouden in het vroege voorjaar. De komende editie is op 4 april, bijna twee maanden eerder dan de...
-- [Aap die in twee weken achttien mensen verwondde gevangen in Indonesië](https://nos.nl/l/2625858)
-  > Een aap die twee weken onrust zaaide in een stad op het Indonesische eiland Sumatra is gevangen door de autoriteiten. De volwassen langstaartmakaak...
 
 ### Meest gelezen
 
@@ -28,15 +27,15 @@
 
 ### Laatste nieuws
 
-- [Mysterieuze ‘kwal’ jaagt vakantiegangers op Spaanse stranden schrik aan: wat is het Portugees oorlogsschip?](https://www.ad.nl/buitenland/mysterieuze-kwal-jaagt-vakantiegangers-op-spaanse-stranden-schrik-aan-wat-is-het-portugees-oorlogsschip~a42bf1c4/)
-  > Spanje en Frankrijk hebben verschillende stranden gesloten in verband met een gevaarlijke ‘kwal’: het Portugees oorlogsschip. In San Sebastián werden...
-- [Regisseur Jurassic Park 8 stapt op na 'onenigheid' met studio](https://www.ad.nl/show/regisseur-jurassic-park-8-stapt-op-na-onenigheid-met-studio~afccf007/)
-  > Regisseur Gareth Edwards gaat niet de achtste Jurassic Park-film maken. Volgens The Hollywood Reporter had hij ‘creatieve meningsverschillen’ met...
-- [Freek speelt met een slang en Simon eert zijn jubilerende muzikale vriend (en het is niet Nick)](https://www.ad.nl/show/freek-speelt-met-een-slang-en-simon-eert-zijn-jubilerende-muzikale-vriend-en-het-is-niet-nick~a2ddd9d9/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Koelbloedige moord op aartsrivaal van Taghi blijft mysterie: verdachten in Spanje vrijgesproken](https://www.ad.nl/buitenland/koelbloedige-moord-op-aartsrivaal-van-taghi-blijft-mysterie-verdachten-in-spanje-vrijgesproken~a69cea21/)
-  > De twee mannen die werden verdacht van de koelbloedige moord op een Nederlandse drugsdealer in Spanje, zijn definitief vrijgesproken door het...
-- [Rensters onderweg naar gevreesde Mont Vertoux, Anna van der Breggen niet gestart](https://www.ad.nl/wielrennen/rensters-onderweg-naar-gevreesde-mont-vertoux-anna-van-der-breggen-niet-gestart~a597cfdf/)
+- [Gilano H. van wildwest-schietpartij in Zaans ziekenhuis nu opgepakt in Ghana](https://www.ad.nl/buitenland/gilano-h-van-wildwest-schietpartij-in-zaans-ziekenhuis-nu-opgepakt-in-ghana~aa4ec9dc/)
+  > In Ghana is woensdag een Nederlander aangehouden terwijl hij in een havenstad voor 6 miljoen euro aan cocaïne stond te laden. Het zou gaan om Gilano...
+- [Feyenoord mist Tsuyoshi Watanabe tegen Sparta, Gijs Smal terug op trainingsveld](https://www.ad.nl/voetbal/feyenoord-mist-tsuyoshi-watanabe-tegen-sparta-gijs-smal-terug-op-trainingsveld~a9d1a094/)
+  > Feyenoord mist tijdens de eredivisiestart bij Sparta nog Tsuyoshi Watanabe. De centrumverdediger viel afgelopen week uit met een ribblessure en is...
+- [Noorse bond wil dat FIFA-baas opstapt, Argentijnse en Afrikaanse bond willen verder werken onder leiding Infantino](https://www.ad.nl/voetbal/noorse-bond-wil-dat-fifa-baas-opstapt-argentijnse-en-afrikaanse-bond-willen-verder-werken-onder-leiding-infantino~a2544497/)
+  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
+- [Verstappen op bezoek bij Wolff, nieuwe pup voor Hamilton en Bottas naar WK gravel: zo komen F1-coureurs de zomer door](https://www.ad.nl/formule-1/verstappen-op-bezoek-bij-wolff-nieuwe-pup-voor-hamilton-en-bottas-naar-wk-gravel-zo-komen-f1-coureurs-de-zomer-door~ab0c7d49/)
+  > De zomerstop is in volle gang in de Formule 1. De coureurs, teambazen, ingenieurs en monteurs hoeven zich drie weken niet te melden in de fabrieken....
+- [Rensters onderweg naar gevreesde Mont Vertoux, Puck Pieterse pakt flink wat punten voor bergklassement](https://www.ad.nl/wielrennen/rensters-onderweg-naar-gevreesde-mont-vertoux-puck-pieterse-pakt-flink-wat-punten-voor-bergklassement~a597cfdf/)
   > Voor de renster is het een ‘bucketlist dingetje’, maar vandaag staat een loodzware test op het programma. Wie trotseert de Mont Ventoux in deze...
 
 ### Meest gelezen
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Fijne spullen voor in huis en een op Sulawesi geïnspireerde geur](https://fd.nl/samenleving/1606755/fijne-spullen-voor-in-huis-en-een-op-sulawesi-geinspireerde-geur)
-  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
-- [Jane Street en het Streisand-effect](https://fd.nl/financiele-markten/1606828/jane-street-en-het-streisand-effect)
-  > Het Amerikaanse handelshuis zou zijn publieke schuld privaat willen maken. De vraag is of dat zin heeft.
-- [Hoe goed ken jij de Indische gemeenschap?](https://fd.nl/samenleving/1606511/hoe-goed-ken-jij-de-indische-gemeenschap)
-  > Döner, doekoe en doerian. Nederland werd in honderden jaren vele gemeenschappen rijker – waaronder de Nederlands-Indische. Grijp je kans om die beter...
-- [De gasopslagen blijven angstvallig leeg, maar hoe erg is dat eigenlijk?](https://fd.nl/politiek/1605990/de-gasopslagen-blijven-angstvallig-leeg-maar-hoe-erg-is-dat-eigenlijk)
-  > De ondergrondse gasopslag in Europa zit op een historisch laag niveau. Nederland is een van de negatieve uitschieters. ‘Je moet kijken naar wat je...
-- [Goede resultaten versterken positie van begeerde Italiaanse bank Monte dei Paschi di Siena](https://fd.nl/bedrijfsleven/1606759/goede-resultaten-versterken-positie-van-begeerde-italiaanse-bank-monte-dei-paschi-di-siena)
-  > In de slepende bankenstrijd is de bank uit Siena klaar voor een nieuw hoofdstuk. Ceo Luigi Lovaglio verzet zich uit alle macht tegen een overname...
+- [European Sleeper krijgt in conflict over nachttrein met ProRail gelijk van ACM](https://fd.nl/bedrijfsleven/1606766/european-sleeper-krijgt-in-conflict-over-nachttrein-met-prorail-gelijk-van-acm)
+  > De spoorwegmaatschappij diende een capaciteitsaanvraag in voor volgend jaar. Die werd door ProRail als ‘te laat’ bestempeld. Ten onrechte, oordeelt...
+- [Autofabrikanten drijven Duitse industriële productie onverwacht hoger](https://fd.nl/bedrijfsleven/1606763/autofabrikanten-drijven-duitse-industriele-productie-onverwacht-hoger)
+  > De productie van auto’s nam in juni met 3,6% toe vergeleken met de voorgaande maand. De totale industriële productie viel 0,2% hoger uit. De cijfers...
+- [Nederlanders kennen relatief weinig financiële stress](https://fd.nl/samenleving/1606764/nederlanders-kennen-relatief-weinig-financiele-stress)
+  > Uit onderzoek van spaarplatform Raisin blijkt dat Nederlanders internationaal gezien het meeste financiële zelfvertrouwen hebben.
+- [Salaris, strijdplan en eergevoel brengen Dušan Tadić naar NEC](https://fd.nl/bedrijfsleven/1605897/salaris-strijdplan-en-eergevoel-brengen-dusan-tadic-naar-nec)
+  > Bij NEC keert voetballer Dušan Tadić terug op de Nederlandse velden. Zaterdag speelt hij tegen Telstar zijn eerste competitiewedstrijd van het nieuwe...
+- [Wetenschappers creëren voor het eerst nieuwe virussen met AI](https://fd.nl/samenleving/1606831/wetenschappers-maken-voor-het-eerst-nieuwe-virussen-met-ai)
+  > De bacteriofagen hebben de potentie om ziekteverwekkende bacteriën te doden, maar volgens experts moeten overheden zo snel mogelijk met regelgeving...
 
 ### Meest gelezen
 
