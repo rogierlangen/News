@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-08-2026 om 22:39*
+*Laatst bijgewerkt: 07-08-2026 om 23:36*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Ruim 50 ontbindende lichamen ontdekt in uitvaartcentrum Chicago](https://nos.nl/l/2625962)
+  > In een uitvaartcentrum in de Amerikaanse stad Chicago zijn 56 ontbindende lichamen aangetroffen. Die zouden zijn gevonden in een aangebouwde garage,...
 - [Belgisch helikopterbedrijf, ook in Nederland actief, toch niet overgenomen door China](https://nos.nl/l/2625957)
   > Een Belgische screeningscommissie heeft de overname van een helikopterbedrijf door China tegengehouden. Het bedrijf Noordzee Helikopters Vlaanderen...
 - [Geschil loopt op: Spanje voert grenscontroles in voor reizigers uit Italië](https://nos.nl/l/2625956)
@@ -16,8 +18,6 @@
   > Bij een Rotterdams recyclingbedrijf is vanavond een grote brand uitgebroken. De brandweer is druk bezig met blussen. Het is nog niet duidelijk of het...
 - [Rechter verbiedt weer bouw balzaal bij Witte Huis, Trump moet eerst langs Congres](https://nos.nl/l/2625951)
   > De Amerikaanse president heeft weer bot gevangen bij de rechter over de bouw van zijn balzaal bij het Witte Huis. Het hof van beroep heeft hem...
-- [Toenemend aantal scheuren in dijken Zuid-Holland door droogte](https://nos.nl/l/2625949)
-  > Waterschappen in het westen van Nederland treffen steeds meer scheuren aan in dijken. In Zuid-Holland moeten twee waterkeringen versterkt worden,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Liverpool gaat verdediger van Barcelona huren, Cambuur-smaakmaker naar Pisa](https://www.ad.nl/voetbal/liverpool-gaat-verdediger-van-barcelona-huren-cambuur-smaakmaker-naar-pisa~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
+- [Britse muziekwereld rouwt om dood topproducer William Orbit (69), ‘genie en pionier’ achter hits Madonna en U2](https://www.ad.nl/show/britse-muziekwereld-rouwt-om-dood-topproducer-william-orbit-69-genie-en-pionier-achter-hits-madonna-en-u2~abcb6f82/)
+  > De Britse muziekproducent William Orbit is op 69-jarige leeftijd overleden. Dat heeft de familie van de veelvoudig Grammy-winnaar vrijdag...
 - [Tallon Griekspoor en Botic van de Zandschulp blijven indruk maken in Montréal](https://www.ad.nl/tennis/tallon-griekspoor-en-botic-van-de-zandschulp-blijven-indruk-maken-in-montreal~aa2779f0/)
   > Tallon Griekspoor heeft na zijn verrassende overwinning op Alexander Zverev, de Duitse nummer drie van de wereldranglijst, opnieuw gewonnen op het...
 - [Blushelikopter stort neer bij natuurbrand in Utah, toestand van 2 inzittenden onbekend](https://www.ad.nl/buitenland/blushelikopter-stort-neer-bij-natuurbrand-in-utah-toestand-van-2-inzittenden-onbekend~aa931b3c/)
   > Een blushelikopter die hielp bij het bestrijden van een natuurbrand in Utah is vrijdag neergestort, zo meldde de Federal Aviation Administration...
 - [NAC en Heracles winnen op spectaculaire wijze, Vitesse-keeper krijgt rood na elleboog](https://www.ad.nl/voetbal/nac-en-heracles-winnen-op-spectaculaire-wijze-vitesse-keeper-krijgt-rood-na-elleboog~a5c5b2a8f/)
   > De Keuken Kampioen Divisie is vrijdagavond op spectaculaire wijze van start gegaan. De gedegradeerde ploegen NAC Breda en Heracles Almelo wonnen door...
-- [Rampzalige terugkeer SC Cambuur in eredivisie: Excelsior deelt pak slaag uit in openingsduel](https://www.ad.nl/voetbal/rampzalige-terugkeer-sc-cambuur-in-eredivisie-excelsior-deelt-pak-slaag-uit-in-openingsduel~a6294d1f/)
-  > Wat een feestelijke terugkeer had moeten worden, is voor promovendus SC Cambuur in een rampavond geëindigd. In eigen huis zette Excelsior de...
-- [Spanje komt met ‘vergeldingsmaatregel’ en controleert nu reizigers uit Italië](https://www.ad.nl/buitenland/spanje-komt-met-vergeldingsmaatregel-en-controleert-nu-reizigers-uit-italie~aabe0c77/)
-  > Spanje stelt grenscontroles in voor reizigers uit Italië, heeft de Spaanse regering laten weten. Het is een vergelding voor de grenscontroles die...
 
 ### Meest gelezen
 
