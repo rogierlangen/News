@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-08-2026 om 21:41*
+*Laatst bijgewerkt: 07-08-2026 om 22:39*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Tallon Griekspoor en Botic van de Zandschulp blijven indruk maken in Montréal](https://www.ad.nl/tennis/tallon-griekspoor-en-botic-van-de-zandschulp-blijven-indruk-maken-in-montreal~aa2779f0/)
+  > Tallon Griekspoor heeft na zijn verrassende overwinning op Alexander Zverev, de Duitse nummer drie van de wereldranglijst, opnieuw gewonnen op het...
+- [Blushelikopter stort neer bij natuurbrand in Utah, toestand van 2 inzittenden onbekend](https://www.ad.nl/buitenland/blushelikopter-stort-neer-bij-natuurbrand-in-utah-toestand-van-2-inzittenden-onbekend~aa931b3c/)
+  > Een blushelikopter die hielp bij het bestrijden van een natuurbrand in Utah is vrijdag neergestort, zo meldde de Federal Aviation Administration...
 - [NAC en Heracles winnen op spectaculaire wijze, Vitesse-keeper krijgt rood na elleboog](https://www.ad.nl/voetbal/nac-en-heracles-winnen-op-spectaculaire-wijze-vitesse-keeper-krijgt-rood-na-elleboog~a5c5b2a8f/)
   > De Keuken Kampioen Divisie is vrijdagavond op spectaculaire wijze van start gegaan. De gedegradeerde ploegen NAC Breda en Heracles Almelo wonnen door...
 - [Rampzalige terugkeer SC Cambuur in eredivisie: Excelsior deelt pak slaag uit in openingsduel](https://www.ad.nl/voetbal/rampzalige-terugkeer-sc-cambuur-in-eredivisie-excelsior-deelt-pak-slaag-uit-in-openingsduel~a6294d1f/)
   > Wat een feestelijke terugkeer had moeten worden, is voor promovendus SC Cambuur in een rampavond geëindigd. In eigen huis zette Excelsior de...
-- [Spanje komt met 'vergeldingsmaatregel' en controleert nu reizigers uit Italië](https://www.ad.nl/buitenland/spanje-komt-met-vergeldingsmaatregel-en-controleert-nu-reizigers-uit-italie~aabe0c77/)
+- [Spanje komt met ‘vergeldingsmaatregel’ en controleert nu reizigers uit Italië](https://www.ad.nl/buitenland/spanje-komt-met-vergeldingsmaatregel-en-controleert-nu-reizigers-uit-italie~aabe0c77/)
   > Spanje stelt grenscontroles in voor reizigers uit Italië, heeft de Spaanse regering laten weten. Het is een vergelding voor de grenscontroles die...
-- [Overleden acteur Sam Neill te zien in verfilming Legend of Zelda](https://www.ad.nl/show/overleden-acteur-sam-neill-te-zien-in-verfilming-legend-of-zelda~a14c7e9e/)
-  > De Nieuw-Zeelandse acteur Sam Neill werkte voor zijn overlijden mee aan de film The legend of Zelda. Dat schrijft het Amerikaanse vakblad Deadline...
-- [Pijn in Engeland: 16.000 pubs sloten al hun deuren, en daarmee gaat deel van Britten hun ziel verloren](https://www.ad.nl/buitenland/pijn-in-engeland-16-000-pubs-sloten-al-hun-deuren-en-daarmee-gaat-deel-van-britten-hun-ziel-verloren~a7a1346e/)
-  > Premier Andy Burnham wil de Britse pubs van de ondergang redden. Honderden kroegen in het Verenigd Koninkrijk sluiten jaarlijks hun deuren. Met elk...
 
 ### Meest gelezen
 
@@ -46,15 +46,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaanse toezichthouder wijst bankvergunning Bunq voor VS af](https://fd.nl/bedrijfsleven/1606840/amerikaanse-toezichthouder-wijst-bankvergunning-bunq-voor-vs-af)
-  > De onlinebank maakte het besluit van de Office of the Comptroller of the Currency (OCC) vrijdag zelf bekend.
-- [Zwak banenrapport tilt Wall Street uit het dal](https://fd.nl/financiele-markten/1606845/zwak-banenrapport-tilt-wall-street-uit-het-dal)
-  > Slecht nieuws was in dit geval goed nieuws voor Amerikaanse beleggers. Wall Street beleefde al met al de beste week sinds april.
-- [Duitse deelstaten grijpen in na laag water: meer vrachtvervoer over de weg](https://fd.nl/bedrijfsleven/1606880/duitse-deelstaten-grijpen-in-na-laag-water-meer-vrachtvervoer-over-de-weg)
-  > Rijverbod op zondag voor vrachtwagens gaat op de helling bij vracht voor gedupeerde bedrijven.
-- [België blokkeert Chinese overname van helikopterbedrijf](https://fd.nl/politiek/1606878/belgie-blokkeert-chinese-overname-van-helikopterbedrijf)
-- [Spanje komt met tegenmaatregelen omdat Italië niet stopt met grenscontroles](https://fd.nl/politiek/1606844/spanje-dreigt-met-tegenmaatregelen-nu-italie-niet-stopt-met-grenscontroles)
-  > De Italiaanse regering zegt de controles door te zetten die na de Ceuta-crisis werden ingesteld. Daarop kondigde Spanje vrijdag eigen...
+- [Personalia zaterdag 8 augustus](https://fd.nl/bedrijfsleven/1606843/personalia-zaterdag-8-augustus)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Experts na hacks: AI-bedrijven hebben agents onvoldoende onder controle](https://fd.nl/tech-en-innovatie/1606767/experts-na-hacks-ai-bedrijven-hebben-agents-onvoldoende-onder-controle)
+  > AI’s van OpenAI, Anthropic en Meta verrichten in testen onverwachte, schadelijke en strafbare handelingen. Hoe verontrustend is dat?
+- [Iedereen verliest door langdurige droogte – en het einde is nog niet in zicht](https://fd.nl/samenleving/1606722/iedereen-verliest-door-langdurige-droogte-en-het-einde-is-nog-niet-in-zicht)
+  > Gesloten kanalen, slechtere oogsten en scheuren in dijken: de aanhoudende droogte en lage waterstanden zorgen voor grote problemen. Waar zitten de...
+- [De megagrijns van Jürgen Klopp](https://fd.nl/opinie/1606618/de-megagrijns-van-jurgen-klopp)
+  > Voetbalcommunicatie is lastig. Maar plak ‘Alles is mogelijk’ onder de megagrijns van de nieuwe Duitse bondscoach, en de beker lonkt. In de politiek,...
+- [Terug naar Yogyakarta](https://fd.nl/samenleving/1606616/terug-naar-yogyakarta)
+  > Theatermaker Esmay Usmany komt graag in Yogyakarta, de stad van haar voorouders. Vooral de creatieve kant van de plaats voelt als thuiskomen.
 
 ### Meest gelezen
 
