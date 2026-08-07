@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-08-2026 om 13:12*
+*Laatst bijgewerkt: 07-08-2026 om 14:55*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Douane vindt 800 kilo cocaïne in haven Amsterdam](https://nos.nl/l/2625901)
+  > De douane heeft afgelopen zondag tijdens een reguliere controle in de haven van Amsterdam 800 kilo cocaïne gevonden. De partij verdovende middelen...
+- [Thaise schoolschutter (14) ging van lokaal naar lokaal, zeggen overlevenden](https://nos.nl/l/2625897)
+  > Leerlingen van de school in Thailand waar een medescholier vanochtend vijf docenten doodschoot, hebben doodsangsten uitgestaan toen de dader...
+- [Dagje glutenvrij op festival haast onmogelijk: 'Hele dag op een appel en een waterijsje'](https://nos.nl/l/2625888)
+  > Een weekendje naar een festival is voor mensen met coeliakie nauwelijks te doen. Patiënten met die auto-immuunziekte verdragen geen gluten en kunnen...
 - [Podcast De Dag: Gediscrimineerd tijdens de Pride, wat gebeurt er met je klacht?](https://nos.nl/l/2625885)
   > Het aantal meldingen van geweld en discriminatie tegen de queergemeenschap neemt toe en al helemaal rondom de Pride deze week. In een week tijd zijn...
 - [Ook Ajax en brillenketen Ace & Tate getroffen door datalek](https://nos.nl/l/2625880)
   > Brillenketen Ace & Tate, ING en voetbalclub Ajax zijn getroffen door het datalek bij het logistieke bedrijf CEVA Logistics. Eerder maakten webwinkel...
-- [Schapen mogen niet meer grazen langs Waddenzee: 'Geel in plaats van groen gras'](https://nos.nl/l/2625878)
-  > Vanwege de aanhoudende droogte mogen schapen en koeien voorlopig niet meer grazen op enkele dijken langs de Waddenzee in Noord-Holland. Het...
-- [Spaanse politie rolt een van grootste Europese smokkelnetwerken op, 78 aanhoudingen](https://nos.nl/l/2625877)
-  > In Spanje en Algerije is een van de grootste Europese criminele netwerken opgerold bij een internationale politieactie, onder leiding van de Spaanse...
-- [Houthi-aanvallen in Jemen en Saudi-Arabië, zorg over grotere oorlog in Midden-Oosten](https://nos.nl/l/2625869)
-  > Bij Houthi-aanvallen op kampen van het leger van Jemen zijn sinds gisteren 58 militairen om het leven gekomen, meldt het Franse persbureau AFP op...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Gilano H. van wildwest-schietpartij in Zaans ziekenhuis nu opgepakt in Ghana](https://www.ad.nl/buitenland/gilano-h-van-wildwest-schietpartij-in-zaans-ziekenhuis-nu-opgepakt-in-ghana~aa4ec9dc/)
-  > In Ghana is woensdag een Nederlander aangehouden terwijl hij in een havenstad voor 6 miljoen euro aan cocaïne stond te laden. Het zou gaan om Gilano...
-- [Feyenoord mist Tsuyoshi Watanabe tegen Sparta, Gijs Smal terug op trainingsveld](https://www.ad.nl/voetbal/feyenoord-mist-tsuyoshi-watanabe-tegen-sparta-gijs-smal-terug-op-trainingsveld~a9d1a094/)
-  > Feyenoord mist tijdens de eredivisiestart bij Sparta nog Tsuyoshi Watanabe. De centrumverdediger viel afgelopen week uit met een ribblessure en is...
-- [Noorse bond wil dat FIFA-baas opstapt, Argentijnse en Afrikaanse bond willen verder werken onder leiding Infantino](https://www.ad.nl/voetbal/noorse-bond-wil-dat-fifa-baas-opstapt-argentijnse-en-afrikaanse-bond-willen-verder-werken-onder-leiding-infantino~a2544497/)
-  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
-- [Verstappen op bezoek bij Wolff, nieuwe pup voor Hamilton en Bottas naar WK gravel: zo komen F1-coureurs de zomer door](https://www.ad.nl/formule-1/verstappen-op-bezoek-bij-wolff-nieuwe-pup-voor-hamilton-en-bottas-naar-wk-gravel-zo-komen-f1-coureurs-de-zomer-door~ab0c7d49/)
-  > De zomerstop is in volle gang in de Formule 1. De coureurs, teambazen, ingenieurs en monteurs hoeven zich drie weken niet te melden in de fabrieken....
-- [Rensters onderweg naar gevreesde Mont Vertoux, Puck Pieterse pakt flink wat punten voor bergklassement](https://www.ad.nl/wielrennen/rensters-onderweg-naar-gevreesde-mont-vertoux-puck-pieterse-pakt-flink-wat-punten-voor-bergklassement~a597cfdf/)
-  > Voor de renster is het een ‘bucketlist dingetje’, maar vandaag staat een loodzware test op het programma. Wie trotseert de Mont Ventoux in deze...
+- [Ajax-trainer Míchel over topaankoop Marcos Leonardo: ‘Denk dat hij nog een week of drie nodig heeft’](https://www.ad.nl/voetbal/ajax-trainer-michel-over-topaankoop-marcos-leonardo-denk-dat-hij-nog-een-week-of-drie-nodig-heeft~a727b7090/)
+  > De kans dat Julian Brandt en Marc ter Stegen zondag voor Ajax in de basis beginnen tegen PEC Zwolle, is heel klein. „Ze moeten eerst iets vaker...
+- [Grijpt Vollering gele trui op mythische Mont Ventoux? Winnares van vorig jaar moet al vroeg lossen](https://www.ad.nl/wielrennen/grijpt-vollering-gele-trui-op-mythische-mont-ventoux-winnares-van-vorig-jaar-moet-al-vroeg-lossen~a597cfdf/)
+  > Voor de rensters is het een ‘bucketlist dingetje’, maar vandaag staat een loodzware test op het programma. Wie trotseert de Mont Ventoux in deze...
+- [Spaanse politie rolt grote smokkelbende op: 78 arrestaties voor smokkelen van migranten, criminelen en wapens](https://www.ad.nl/buitenland/spaanse-politie-rolt-grote-smokkelbende-op-78-arrestaties-voor-smokkelen-van-migranten-criminelen-en-wapens~adbdc7a3/)
+  > De Spaanse politie heeft een grote smokkelbende opgerold en daarbij zijn 78 mensen opgepakt. Het gaat volgens Europol om een van de grootste...
+- [Van ‘t Schip bondscoach Kazachstan, Barça en City akkoord over Rodri, PSG wil 150 miljoen voor aanvaller](https://www.ad.nl/voetbal/van-t-schip-bondscoach-kazachstan-barca-en-city-akkoord-over-rodri-psg-wil-150-miljoen-voor-aanvaller~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
+- [Matcha is overal, maar is het echt gezonder dan koffie? Diëtist legt het uit](https://www.ad.nl/gezond/matcha-is-overal-maar-is-het-echt-gezonder-dan-koffie-dietist-legt-het-uit~ae6ecc06/)
+  > Niet meer weg te slaan van TikTok en vaste prik op het menu van hippe koffietentjes: matcha. Opvallend vanwege zijn felgroene kleur en volgens fans...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [European Sleeper krijgt in conflict over nachttrein met ProRail gelijk van ACM](https://fd.nl/bedrijfsleven/1606766/european-sleeper-krijgt-in-conflict-over-nachttrein-met-prorail-gelijk-van-acm)
-  > De spoorwegmaatschappij diende een capaciteitsaanvraag in voor volgend jaar. Die werd door ProRail als ‘te laat’ bestempeld. Ten onrechte, oordeelt...
-- [Autofabrikanten drijven Duitse industriële productie onverwacht hoger](https://fd.nl/bedrijfsleven/1606763/autofabrikanten-drijven-duitse-industriele-productie-onverwacht-hoger)
-  > De productie van auto’s nam in juni met 3,6% toe vergeleken met de voorgaande maand. De totale industriële productie viel 0,2% hoger uit. De cijfers...
-- [Nederlanders kennen relatief weinig financiële stress](https://fd.nl/samenleving/1606764/nederlanders-kennen-relatief-weinig-financiele-stress)
-  > Uit onderzoek van spaarplatform Raisin blijkt dat Nederlanders internationaal gezien het meeste financiële zelfvertrouwen hebben.
-- [Salaris, strijdplan en eergevoel brengen Dušan Tadić naar NEC](https://fd.nl/bedrijfsleven/1605897/salaris-strijdplan-en-eergevoel-brengen-dusan-tadic-naar-nec)
-  > Bij NEC keert voetballer Dušan Tadić terug op de Nederlandse velden. Zaterdag speelt hij tegen Telstar zijn eerste competitiewedstrijd van het nieuwe...
-- [Wetenschappers creëren voor het eerst nieuwe virussen met AI](https://fd.nl/samenleving/1606831/wetenschappers-maken-voor-het-eerst-nieuwe-virussen-met-ai)
-  > De bacteriofagen hebben de potentie om ziekteverwekkende bacteriën te doden, maar volgens experts moeten overheden zo snel mogelijk met regelgeving...
+- [Poetin sorteert voor op verkoop van staatsbelang in vliegveld van Moskou](https://fd.nl/bedrijfsleven/1606836/poetin-sorteert-voor-op-verkoop-van-staatsbelang-in-vliegveld-van-moskou)
+  > Rusland kampt met een oplopend begrotingstekort. Daarom wil het Kremlin staatsbezittingen verkopen. Buitenlandse kopers zijn voor het vliegveld...
+- [Geld verdienen met wachten op de ACM](https://fd.nl/financiele-markten/1606607/geld-verdienen-met-wachten-op-de-acm)
+  > HAL moet lang wachten op toestemming om bouwbedrijf VolkerWessels over te nemen. Maar hoe erg is dat?
+- [Prijskaartje voor Trumps marinevloot kan oplopen tot $458 mrd](https://fd.nl/politiek/1606774/prijskaartje-voor-trumps-marinevloot-kan-oplopen-tot-458-mrd)
+  > Het eerste schip van de nieuwe generatie slagschepen van de Trump-klasse zou $23 mrd kosten, aldus de rekenmeesters van het Congres. Democraten zijn...
+- [Kaasmaker A-ware groeit, terwijl de winst daalt](https://fd.nl/bedrijfsleven/1606762/kaasmaker-a-ware-groeit-terwijl-de-winst-daalt)
+  > De zuivelproducent uit Lopik heeft last van prijsdruk en dalende marges, zo blijkt uit het vrijdag verschenen jaarverslag.
+- [RWE krijgt $1,2 mrd van Amerikaanse overheid om offshore windprojecten te staken](https://fd.nl/bedrijfsleven/1606765/rwe-krijgt-1-2-mrd-van-amerikaanse-overheid-om-offshore-windprojecten-te-staken)
+  > Het bedrijf had concessies voor windparken, onder meer voor de kust van Californië en Louisiana, maar in de tweede termijn van president Donald Trump...
 
 ### Meest gelezen
 
