@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-08-2026 om 23:36*
+*Laatst bijgewerkt: 08-08-2026 om 01:52*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Dode bij schietincident in woning in Den Haag](https://nos.nl/l/2625964)
+  > Bij een schietincident in een woning aan de New Yorksingel in Den Haag is een persoon overleden. Dat meldt de politie. Er is nog geen verdachte...
+- [Ultrarechtse Abelardo de la Espriella ingezworen als president van Colombia](https://nos.nl/l/2625963)
+  > In Colombia is de ultrarechtse Abelardo de la Espriella (48) beëdigd als president. De Trump-gezinde leider wil radicaal breken met het beleid van...
 - [Ruim 50 ontbindende lichamen ontdekt in uitvaartcentrum Chicago](https://nos.nl/l/2625962)
   > In een uitvaartcentrum in de Amerikaanse stad Chicago zijn 56 ontbindende lichamen aangetroffen. Die zouden zijn gevonden in een aangebouwde garage,...
 - [Belgisch helikopterbedrijf, ook in Nederland actief, toch niet overgenomen door China](https://nos.nl/l/2625957)
   > Een Belgische screeningscommissie heeft de overname van een helikopterbedrijf door China tegengehouden. Het bedrijf Noordzee Helikopters Vlaanderen...
 - [Geschil loopt op: Spanje voert grenscontroles in voor reizigers uit Italië](https://nos.nl/l/2625956)
   > Spanje stelt grenscontroles in voor reizigers uit Italië. De controles vinden plaats vanaf vannacht, heeft de Spaanse overheid aangekondigd. Het...
-- [Grote brand in afvalberg Rotterdam, Maastunnel afgesloten](https://nos.nl/l/2625952)
-  > Bij een Rotterdams recyclingbedrijf is vanavond een grote brand uitgebroken. De brandweer is druk bezig met blussen. Het is nog niet duidelijk of het...
-- [Rechter verbiedt weer bouw balzaal bij Witte Huis, Trump moet eerst langs Congres](https://nos.nl/l/2625951)
-  > De Amerikaanse president heeft weer bot gevangen bij de rechter over de bouw van zijn balzaal bij het Witte Huis. Het hof van beroep heeft hem...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Hittegolf slaat ook gat in portemonnee: we geven 4 procent minder uit, vooral het platteland blijft thuis](https://www.ad.nl/economie/hittegolf-slaat-ook-gat-in-portemonnee-we-geven-4-procent-minder-uit-vooral-het-platteland-blijft-thuis~aa2eeb90/)
+  > Nederlanders geven tijdens hete dagen 4 procent minder uit dan normaal. Opvallend genoeg gaat de portemonnee vooral dicht op het platteland. Daar...
+- [Nieuwe rechtse Colombiaanse president De la Espriella beëdigd, belooft harde strijd tegen drugshandel](https://www.ad.nl/buitenland/nieuwe-rechtse-colombiaanse-president-de-la-espriella-beedigd-belooft-harde-strijd-tegen-drugshandel~ab0e0bb6/)
+  > De 48-jarige advocaat en miljonair Abelardo de la Espriella is vrijdag in Cali beëdigd als president van Colombia. De door de Verenigde Staten...
 - [Liverpool gaat verdediger van Barcelona huren, Cambuur-smaakmaker naar Pisa](https://www.ad.nl/voetbal/liverpool-gaat-verdediger-van-barcelona-huren-cambuur-smaakmaker-naar-pisa~acbd43e6/)
   > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
 - [Britse muziekwereld rouwt om dood topproducer William Orbit (69), ‘genie en pionier’ achter hits Madonna en U2](https://www.ad.nl/show/britse-muziekwereld-rouwt-om-dood-topproducer-william-orbit-69-genie-en-pionier-achter-hits-madonna-en-u2~abcb6f82/)
   > De Britse muziekproducent William Orbit is op 69-jarige leeftijd overleden. Dat heeft de familie van de veelvoudig Grammy-winnaar vrijdag...
 - [Tallon Griekspoor en Botic van de Zandschulp blijven indruk maken in Montréal](https://www.ad.nl/tennis/tallon-griekspoor-en-botic-van-de-zandschulp-blijven-indruk-maken-in-montreal~aa2779f0/)
   > Tallon Griekspoor heeft na zijn verrassende overwinning op Alexander Zverev, de Duitse nummer drie van de wereldranglijst, opnieuw gewonnen op het...
-- [Blushelikopter stort neer bij natuurbrand in Utah, toestand van 2 inzittenden onbekend](https://www.ad.nl/buitenland/blushelikopter-stort-neer-bij-natuurbrand-in-utah-toestand-van-2-inzittenden-onbekend~aa931b3c/)
-  > Een blushelikopter die hielp bij het bestrijden van een natuurbrand in Utah is vrijdag neergestort, zo meldde de Federal Aviation Administration...
-- [NAC en Heracles winnen op spectaculaire wijze, Vitesse-keeper krijgt rood na elleboog](https://www.ad.nl/voetbal/nac-en-heracles-winnen-op-spectaculaire-wijze-vitesse-keeper-krijgt-rood-na-elleboog~a5c5b2a8f/)
-  > De Keuken Kampioen Divisie is vrijdagavond op spectaculaire wijze van start gegaan. De gedegradeerde ploegen NAC Breda en Heracles Almelo wonnen door...
 
 ### Meest gelezen
 
