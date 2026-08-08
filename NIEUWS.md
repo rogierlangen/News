@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-08-2026 om 09:40*
+*Laatst bijgewerkt: 08-08-2026 om 10:36*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Rook van nasmeulende brand hangt nog steeds in Venray en Oostrum](https://nos.nl/l/2625992)
+  > Bewoners van Venray en Oostrum ervaren nog steeds geur- en stankoverlast van de natuurbrand die tot woensdagavond in de buurt woedde. Op veel plekken...
 - [Orkaan Dolphin treft zuiden van Japan: gewonden en tienduizenden zonder stroom](https://nos.nl/l/2625991)
   > Japan is getroffen door een orkaan. Vooral de zuidelijke eilandregio Okinawa kreeg te maken met zware windstoten. Zes mensen zijn gewond geraakt,...
 - [AI-foto's vinden hun weg op platforms zoals Vinted: 'Kan misleidend zijn'](https://nos.nl/l/2625987)
@@ -16,8 +18,6 @@
   > Een automobilist is gisteren betrapt toen hij met 146 kilometer per uur door de Amsterdamse binnenstad reed, bijna drie keer zo hard als toegestaan....
 - [Droogte raakt vakantieverkeer: vrachtwagens mogen op zondag Duitse wegen op](https://nos.nl/l/2625980)
   > Als gevolg van de droogte is het zondagse rijverbod voor vrachtwagens in een deel van Duitsland opgeschort. Omdat er steeds minder vervoerd kan...
-- [Doden door Russische aanvallen op Kyiv, Oekraïne bestookt Russische raffinaderijen](https://nos.nl/l/2625974)
-  > Bij Russische aanvallen in en rond Kyiv zijn vannacht vier doden gevallen. Volgens de gouverneur van de Oekraïense hoofdstad is één van de doden een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Vrouw vraagt baas hoe hij aan vier ijsjes zou likken, maar doet online alsof ze iets pikants vroeg: 27 miljoen views](https://www.ad.nl/show/vrouw-vraagt-baas-hoe-hij-aan-vier-ijsjes-zou-likken-maar-doet-online-alsof-ze-iets-pikants-vroeg-27-miljoen-views~a152da67/)
+- [Doornloze rozen zijn braaf, maar bramen slaan terug: ‘zelfs het miniemste schrammetje wordt hier een bloedbad’](https://www.ad.nl/wonen/doornloze-rozen-zijn-braaf-maar-bramen-slaan-terug-zelfs-het-miniemste-schrammetje-wordt-hier-een-bloedbad~ad178d50/)
+  > Een braam moet een beetje tegensputteren om echt de moeite waard te zijn: doornloze bramen zijn maar laf. Dat weet ook Romke van de Kaa, daarom plant...
+- [Argentijnse vechtersbaas Paredes terug naar Italië? Liverpool gaat verdediger van Barcelona huren](https://www.ad.nl/voetbal/argentijnse-vechtersbaas-paredes-terug-naar-italie-liverpool-gaat-verdediger-van-barcelona-huren~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
+- [Opinie: ‘Help clubs en buurthuizen de hoge energieprijzen te overleven’](https://www.ad.nl/praat-mee/opinie-help-clubs-en-buurthuizen-de-hoge-energieprijzen-te-overleven~a10b5f65/)
+  > Sportclubs en buurthuizen die zonnepanelen aanschaften, dreigen om te vallen nu de salderingsregeling stopt. Investeer daarom in batterijen voor deze...
+- [Baas loopt vol in de val van medewerker: hij beantwoordt onschuldige vraag, haar ‘pikante’ montage gaat viraal](https://www.ad.nl/show/baas-loopt-vol-in-de-val-van-medewerker-hij-beantwoordt-onschuldige-vraag-haar-pikante-montage-gaat-viraal~a152da67/)
   > Een ijssalon in Florida trekt in korte tijd miljoenen views met een video waarin een werknemer haar baas in de maling neemt. Ze doet mee aan een...
 - [Waarom buren nog steeds bang zijn na vondst kinderporno OM-man: ‘Lijkt oude leventje te hebben opgepakt’](https://www.ad.nl/binnenland/waarom-buren-nog-steeds-bang-zijn-na-vondst-kinderporno-om-man-lijkt-oude-leventje-te-hebben-opgepakt~a0aef32f/)
   > Nota bene een medewerker van het Openbaar Ministerie houdt een keurige wijk in Doetinchem al bijna twee jaar in een wurggreep. Want bij deze buurman...
-- [‘Natte droom’ komt nog niet uit: Levi Rigters en Roy Meyer debuteren in LFL tegen Braziliaan en Paraguayaan](https://www.ad.nl/vechtsport/natte-droom-komt-nog-niet-uit-levi-rigters-en-roy-meyer-debuteren-in-lfl-tegen-braziliaan-en-paraguayaan~a59cb7d5/)
-  > Voormalig kickbokser Levi Rigters en oud-judoka Roy Meyer staan zaterdag 26 september niet meteen tegenover elkaar bij hun MMA-debuut voor Levels...
-- [Robin Peter over terugkeer ADO Den Haag in de eredivisie: ‘We krijgen vast een keer een tik op de neus’](https://www.ad.nl/regiosport-den-haag/robin-peter-over-terugkeer-ado-den-haag-in-de-eredivisie-we-krijgen-vast-een-keer-een-tik-op-de-neus~afd7a6fe/)
-  > Robin Peter (39) staat als hoofdtrainer van ADO Den Haag voor zijn debuut in de eredivisie. Hij houdt vast aan zijn speelstijl en beseft dat kritiek...
-- [Henk Poort herbeleeft donkerste dag van zijn moeder in musical Onze Jordaan: ‘Dit is een hommage aan haar’](https://www.ad.nl/show/henk-poort-herbeleeft-donkerste-dag-van-zijn-moeder-in-musical-onze-jordaan-dit-is-een-hommage-aan-haar~a6db9af7/)
-  > Het bloed kleeft aan haar kleren als de moeder van zanger Henk Poort (70) op 7 mei 1945 in paniek thuiskomt. Ze heeft op de Dam in Amsterdam...
 
 ### Meest gelezen
 
