@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-08-2026 om 03:36*
+*Laatst bijgewerkt: 08-08-2026 om 05:00*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Wekdienst 8/8: Laatste dag WorldPride Amsterdam • Zelensky bezoekt Servië](https://nos.nl/l/2625966)
+  > Goedemorgen! Vandaag is de laatste dag van WorldPride Amsterdam en de Oekraïense president Zelensky bezoekt voor het eerst tijdens zijn...
 - [Ontbossing Braziliaanse Amazone onder Lula opnieuw flink gedaald](https://nos.nl/l/2625965)
   > Het gaat steeds beter met het Amazonegebied in Brazilië. Vorig jaar verdween er 2900 vierkante kilometer bos, zo blijkt uit satellietgegevens van het...
 - [Dode bij schietincident in woning in Den Haag](https://nos.nl/l/2625964)
   > Bij een schietincident in een woning aan de New Yorksingel in Den Haag is een persoon overleden. Dat meldt de politie. Er is nog geen verdachte...
-- [Ultrarechtse Abelardo de la Espriella ingezworen als president van Colombia](https://nos.nl/l/2625963)
+- [Ultrarechtse Abelardo de la Espriella beëdigd als president van Colombia](https://nos.nl/l/2625963)
   > In Colombia is de ultrarechtse Abelardo de la Espriella (48) beëdigd als president. De Trump-gezinde leider wil radicaal breken met het beleid van...
 - [Ruim 50 ontbindende lichamen ontdekt in uitvaartcentrum Chicago](https://nos.nl/l/2625962)
   > In een uitvaartcentrum in de Amerikaanse stad Chicago zijn 56 ontbindende lichamen aangetroffen. Die zouden zijn gevonden in een aangebouwde garage,...
-- [Belgisch helikopterbedrijf, ook in Nederland actief, toch niet overgenomen door China](https://nos.nl/l/2625957)
-  > Een Belgische screeningscommissie heeft de overname van een helikopterbedrijf door China tegengehouden. Het bedrijf Noordzee Helikopters Vlaanderen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Vince is gek op zijn bus: ‘Vooral de kleurstelling vind ik geweldig, dat past echt bij de jaren zeventig’](https://www.ad.nl/auto/vince-is-gek-op-zijn-bus-vooral-de-kleurstelling-vind-ik-geweldig-dat-past-echt-bij-de-jaren-zeventig~aa2586e3/)
-  > ’s Winters staat-ie binnen, maar zodra het lekker weer wordt mag de Dodge Sportsman Royal van Vince Smits (66) naar buiten. De autoliefhebber uit...
-- [Drie doden, explosies en brand bij nieuwe Russische aanval op regio-Kyiv](https://www.ad.nl/buitenland/drie-doden-explosies-en-brand-bij-nieuwe-russische-aanval-op-regio-kyiv~adfb97be/)
-  > Het Franse persbureau AFP en het Britse persbureau Reuters melden meerdere explosies in de Oekraïense hoofdstad Kyiv. De autoriteiten in de stad...
-- [Hittegolf slaat ook gat in portemonnee: we geven 4 procent minder uit, vooral het platteland blijft thuis](https://www.ad.nl/economie/hittegolf-slaat-ook-gat-in-portemonnee-we-geven-4-procent-minder-uit-vooral-het-platteland-blijft-thuis~aa2eeb90/)
-  > Nederlanders geven tijdens hete dagen 4 procent minder uit dan normaal. Opvallend genoeg gaat de portemonnee vooral dicht op het platteland. Daar...
-- [Dode bij schietpartij in woning in Den Haag: politie op zoek naar dader](https://www.ad.nl/den-haag/dode-bij-schietpartij-in-woning-in-den-haag-politie-op-zoek-naar-dader~ab05beb8/)
-  > Bij een schietpartij in een woning aan de New Yorksingel in Den Haag is in de nacht van vrijdag op zaterdag een persoon overleden. De politie is nog...
-- [Nieuwe rechtse Colombiaanse president De la Espriella beëdigd, belooft harde strijd tegen drugshandel](https://www.ad.nl/buitenland/nieuwe-rechtse-colombiaanse-president-de-la-espriella-beedigd-belooft-harde-strijd-tegen-drugshandel~ab0e0bb6/)
-  > De 48-jarige advocaat en miljonair Abelardo de la Espriella is vrijdag in Cali beëdigd als president van Colombia. De door de Verenigde Staten...
+- [Student wil niet dat fatbike-rijder achter hem in metro glipt, wordt daarom in elkaar gerost](https://www.ad.nl/binnenland/student-wil-niet-dat-fatbike-rijder-achter-hem-in-metro-glipt-wordt-daarom-in-elkaar-gerost~ad8a567c/)
+  > Twee studenten zijn in februari op station Lelylaan in Amsterdam ernstig toegetakeld door twee mannen die met hen door de toegangspoortjes wilden...
+- [Teamleider OM die kinderporno downloadde was directeur op twee basisscholen‎](https://www.ad.nl/binnenland/teamleider-om-die-kinderporno-downloadde-was-directeur-op-twee-basisscholen~a92d650c/)
+  > Een teamleider van het Openbaar Ministerie die jarenlang grote hoeveelheden kinderporno downloadde, werkte daarvoor op twee basisscholen in de...
+- [Extra beveiliging bij concert Sophie Straat in België, zangeres zegt in ‘neofascistisch kutland’ te leven](https://www.ad.nl/show/extra-beveiliging-bij-concert-sophie-straat-in-belgie-zangeres-zegt-in-neofascistisch-kutland-te-leven~a37ca9e6/)
+  > Er golden vrijdagavond extra veiligheidsmaatregelen bij het optreden van Sophie Straat in het Belgische Genk, maar dat hield de Nederlandse...
+- [Jongeren met een te sterke auto riskeren in Frankrijk 15.000 euro boete en zelfs gevangenisstraf](https://www.ad.nl/auto/jongeren-met-een-te-sterke-auto-riskeren-in-frankrijk-15-000-euro-boete-en-zelfs-gevangenisstraf~a1754c4f/)
+  > In Frankrijk is een wet aangenomen die beginnende bestuurders verbiedt in een te sterke auto te rijden. Als je dat toch doet, kunnen de consequenties...
+- [Populaire ‘squishy’ ontploft in gezicht jong kind, product blijft te koop in Nederlandse winkels Smyths Toys](https://www.ad.nl/binnenland/populaire-squishy-ontploft-in-gezicht-jong-kind-product-blijft-te-koop-in-nederlandse-winkels-smyths-toys~a7eec528/)
+  > Speelgoedketen Smyths Toys ziet geen reden de populaire squishy ‘Stressball Cool Mix Supergel’ in Nederland uit de schappen te halen. In Frankrijk...
 
 ### Meest gelezen
 
