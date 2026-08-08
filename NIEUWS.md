@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-08-2026 om 20:33*
+*Laatst bijgewerkt: 08-08-2026 om 21:33*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Noodtoestand in westelijke provincie Canada vanwege natuurbrand](https://nos.nl/l/2626084)
+  > In de westelijke provincie Brits-Columbia in Canada is de noodtoestand uitgeroepen vanwege een natuurbrand. Duizenden mensen in de buurt van het...
+- [Deel van Colombiaanse familie komt om bij helikoptercrash in Brazilië](https://nos.nl/l/2626082)
+  > In Brazilië zijn bij een helikopterongeluk vlak bij Rio de Janeiro vier mensen omgekomen, melden Braziliaanse media. Drie van de slachtoffers zouden...
 - [Bestuurder rijdt met gestolen auto in op politiewagen in Uden](https://nos.nl/l/2626068)
   > In Uden is een bestuurder met een gestolen auto ingereden op een politiewagen. Een agent raakte daarbij gewond en is ter controle naar het ziekenhuis...
 - [Rechter die door Orbán werd ontslagen nu voorgedragen als president Hongarije](https://nos.nl/l/2626051)
@@ -15,10 +19,6 @@
 - [Jongen (15) pakt stuur bij onwelwording en 'voorkomt erger' in Oud-Beijerland](https://nos.nl/l/2626026)
   > Een 15-jarige jongen heeft vanmiddag waarschijnlijk een groot ongeluk voorkomen in Oud-Beijerland.
         Toen hij als bijrijder zag dat de...
-- [Drone ontploft nabij gaspijpleiding in Bulgarije, Oekraïense ambassadeur ontboden](https://nos.nl/l/2626025)
-  > Een drone is vanochtend het Bulgaarse luchtruim ingevlogen en ontploft nabij de grens met Roemenië, meldt de Bulgaarse premier Radev. In het gebied...
-- [Dodental na schietpartij op Thaise school stijgt naar negen](https://nos.nl/l/2626020)
-  > Het aantal doden na een schietpartij op een school in Thailand is opgelopen naar negen. Een meisje van 12 is in het ziekenhuis aan haar verwondingen...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Programma, stand en topscorers eredivisie | De uitslagen en het resterende schema voor de eerste speelronde](https://www.ad.nl/voetbal/programma-stand-en-topscorers-eredivisie-de-uitslagen-en-het-resterende-schema-voor-de-eerste-speelronde~a5ebff08/)
+  > SC Cambuur en Excelsior trapten op vrijdag 7 augustus het nieuwe eredivisieseizoen af. Bekijk in dit artikel het complete programma, met daaronder de...
+- [Peter Bosz gepikeerd na valse start met PSV: ‘Ik snap best dat je in discussie wil gaan, maar dat is echt onzin’](https://www.ad.nl/voetbal/peter-bosz-gepikeerd-na-valse-start-met-psv-ik-snap-best-dat-je-in-discussie-wil-gaan-maar-dat-is-echt-onzin~a051a1ee/)
+  > Peter Bosz stond zaterdagavond kribbig voor de camera van ESPN, ruim veertig minuten nadat Fortuna Sittard in de extra tijd nog de 2-2 had gemaakt...
+- [AZ klaart de klus binnen paar minuten: dapper ADO Den Haag verliest bij rentree in eredivisie](https://www.ad.nl/voetbal/az-klaart-de-klus-binnen-paar-minuten-dapper-ado-den-haag-verliest-bij-rentree-in-eredivisie~aa8770c1/)
+  > AZ heeft de overtuigende lijn van de Johan Cruijff Schaal doorgetrokken naar de eredivisie. Het gepromoveerde en dappere ADO Den Haag ging met 2-0...
 - [Ongekend: KO-kanon Gradus Kraus zet Amerikaanse tegenstander heel snel voor schut en wint wéér](https://www.ad.nl/vechtsport/ongekend-ko-kanon-gradus-kraus-zet-amerikaanse-tegenstander-heel-snel-voor-schut-en-wint-weer~a88f7da9/)
   > Gradus Kraus heeft weer naam gemaakt in Engeland. In Leeds vocht de Brabander zijn twaalfde profpartij en hij zorgde met een gigantische wervelwind...
 - [PSV geeft het in laatste minuut nog weg, invaller Michut helpt Fortuna Sittard aan punt in Eindhoven](https://www.ad.nl/voetbal/psv-geeft-het-in-laatste-minuut-nog-weg-invaller-michut-helpt-fortuna-sittard-aan-punt-in-eindhoven~adf2d771/)
   > PSV is het seizoen teleurstellend begonnen met een 2-2 gelijkspel tegen Fortuna Sittard. Door goals van de verdedigers Ryan Flamingo en Noah...
-- [Drie toeristen en piloot omgekomen bij helikoptercrash in Rio de Janeiro](https://www.ad.nl/buitenland/drie-toeristen-en-piloot-omgekomen-bij-helikoptercrash-in-rio-de-janeiro~a8f94604/)
-  > Bij een helikopterongeluk in de buurt van Rio de Janeiro zijn vier mensen omgekomen, melden Braziliaanse media. Drie van de slachtoffers zouden...
-- [LIVE eredivisie | AZ klaart de klus tegen ADO Den Haag binnen paar minuten dankzij Daal en Stengs](https://www.ad.nl/voetbal/live-eredivisie-az-klaart-de-klus-tegen-ado-den-haag-binnen-paar-minuten-dankzij-daal-en-stengs~aa8770c1/)
-  > AZ haalt na een uur de trekker over tegen ADO Den Haag en klaart de klus dankzij treffers van Ro-Zangelo Daal en Calvin Stengs: 2-0. Komt er een...
-- [Turkije wil dat Oekraïne en Rusland stoppen met  aanvallen op schepen op de Zwarte Zee](https://www.ad.nl/buitenland/turkije-wil-dat-oekraine-en-rusland-stoppen-met-aanvallen-op-schepen-op-de-zwarte-zee~adfb97be/)
-  > Turkije wil dat Oekraïne en Rusland stoppen met hun aanvallen op schepen op de Zwarte Zee. Minister van Buitenlandse Zaken Hakan Fidan riep bij...
 
 ### Meest gelezen
 
