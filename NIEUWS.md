@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-08-2026 om 13:48*
+*Laatst bijgewerkt: 08-08-2026 om 14:34*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Dodental na schietpartij op Thaise school stijgt naar negen](https://nos.nl/l/2626020)
+  > Het aantal doden na een schietpartij op een school in Thailand is opgelopen naar negen. Een meisje van 12 is in het ziekenhuis aan haar verwondingen...
+- [Politie beëindigt XR-blokkade A12, demonstrant opgepakt voor mishandelen agent](https://nos.nl/l/2626017)
+  > De politie in Den Haag heeft een blokkade van de snelweg A12 door klimaatactivisten na ruim twee uur beëindigd.
+        Een aantal van de activisten...
 - [Inbraakpoging bij Haagse politie: dieven wilden illegale sigaretten stelen](https://nos.nl/l/2626013)
   > Bij een opslaglocatie van de politie in Den Haag is vannacht ingebroken. Zeker vier verdachten probeerden ervandoor te gaan met een partij...
 - [Na spannende weken stemt Senaat in VS voor Todd Blanche als justitieminister](https://nos.nl/l/2626002)
   > De Amerikaanse Senaat heeft ingestemd met de benoeming van Todd Blanche als nieuwe minister van Justitie. Dat ging niet zonder slag of stoot. Niet...
 - [Man opgepakt voor steekpartijen in Rotterdam met twee gewonden](https://nos.nl/l/2626001)
   > De politie heeft een man van 26 uit Rotterdam opgepakt voor twee steekpartijen en een poging daartoe. Alle drie de aanvallen zouden vanmorgen zijn...
-- [Ruim 200 evacuaties bij Gardameer in Italië vanwege grote bosbrand](https://nos.nl/l/2625999)
-  > Meer dan tweehonderd mensen die verbleven aan het Gardameer in Italië zijn geëvacueerd vanwege een grote natuurband. De brand woedt in de gemeente...
-- [Politie pakt vier verdachten op na inbraak in brandweerkazerne Aalsmeer](https://nos.nl/l/2625994)
-  > De politie heeft vannacht na een achtervolging vier mannen opgepakt die worden verdacht van een inbraak in de brandweerkazerne van Aalsmeer. Het is...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [NEC tussen Europees tweeluik door tegenover Telstar, Dusan Tadic krijgt voorkeur boven Bryan Linssen](https://www.ad.nl/voetbal/nec-tussen-europees-tweeluik-door-tegenover-telstar-dusan-tadic-krijgt-voorkeur-boven-bryan-linssen~ab2966ca/)
+- [Droomstart voor Telstar op bezoek bij NEC: binnen 27 seconden is het raak](https://www.ad.nl/voetbal/droomstart-voor-telstar-op-bezoek-bij-nec-binnen-27-seconden-is-het-raak~ab2966ca/)
   > De twee stuntclubs van afgelopen seizoen begint aan de nieuwe eredivisiecampagne. NEC werd verrassend derde, Telstar handhaafde zich tegen alle...
-- [Oos Kesbeke: ‘Een fijnproever ben ik niet, ik vind het lekker of niet’](https://www.ad.nl/gezond/oos-kesbeke-een-fijnproever-ben-ik-niet-ik-vind-het-lekker-of-niet~ae233041/)
-  > Hij heeft een personal trainer die hij geregeld afbelt, ontspant in zijn moestuintje en baalt van het lichamelijk ouder worden: ‘Mijn hoofd wil...
-- [Argentijnse media: Jorge Messi, vader van Lionel, op 68-jarige leeftijd overleden](https://www.ad.nl/voetbal/argentijnse-media-jorge-messi-vader-van-lionel-op-68-jarige-leeftijd-overleden~aadea62f/)
-  > Jorge Messi, de vader en jarenlange zaakwaarnemer van Lionel Messi, is op 68-jarige leeftijd overleden. Dat meldt de Spaanse sportkrant Marca op...
-- [Veiligheidsraad waarschuwt: ‘Erop vertrouwen dat brandweer er is en altijd kan helpen, zal niet altijd gaan’](https://www.ad.nl/binnenland/veiligheidsraad-waarschuwt-erop-vertrouwen-dat-brandweer-er-is-en-altijd-kan-helpen-zal-niet-altijd-gaan~a86fac53/)
-  > Nederland moet veel beter nadenken over het voorkomen van branden, waarschuwt burgemeester Jack Mikkers van Den Bosch namens het Veiligheidsberaad....
-- [Karatetrap, gespannen sfeer en legendarische quotes: jarige Louis van Gaal (75) blijft de man waar je niet omheen kunt](https://www.ad.nl/voetbal/karatetrap-gespannen-sfeer-en-legendarische-quotes-jarige-louis-van-gaal-75-blijft-de-man-waar-je-niet-omheen-kunt~a4d0af6a/)
-  > Louis van Gaal is vandaag jarig. De meest veelbesproken figuur in het Nederlandse voetbal is 75 jaar. Louis van Gaal is genieten en ook ergeren. Soms...
+- [Voormalig NBA-spelers melden zich aan voor Women’s NBA Draft: ‘Ik identificeer me soms als vrouw’](https://www.ad.nl/andere-sporten/voormalig-nba-spelers-melden-zich-aan-voor-womens-nba-draft-ik-identificeer-me-soms-als-vrouw~ae5fac49/)
+  > Twee voormalige NBA-spelers hebben zich aangemeld voor de Women’s NBA Draft van 2027, de Amerikaanse profcompetitie voor vrouwenbasketbal. Enes...
+- [Drone dringt luchtruim van Bulgarije binnen en ontploft bij gaspijpleiding: ‘Aanzienlijke hoeveelheid explosieven’](https://www.ad.nl/buitenland/drone-dringt-luchtruim-van-bulgarije-binnen-en-ontploft-bij-gaspijpleiding-aanzienlijke-hoeveelheid-explosieven~a1ce757f/)
+  > Een drone is in het grensgebied tussen Bulgarije en Roemenië ontploft, meldt de Bulgaarse minister-president Rumen Radev. In dat gebied loopt ook de...
+- [It’er Chris: ‘Als ik een jaar in dienst ben, krijg ik 40.000 dollar aan aandelen’](https://www.ad.nl/werk/iter-chris-als-ik-een-jaar-in-dienst-ben-krijg-ik-40-000-dollar-aan-aandelen~a5a44b41/)
+  > Chris (57) werkt als it-service engineer. Hij lost voornamelijk it-problemen op van zijn collega’s, van ceo tot magazijnmedewerker. Elke week vertelt...
+- [Matchwinner in WK-finale nadert akkoord met PSG, Argentijnse vechtersbaas Paredes terug naar Italië?](https://www.ad.nl/voetbal/matchwinner-in-wk-finale-nadert-akkoord-met-psg-argentijnse-vechtersbaas-paredes-terug-naar-italie~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
 
 ### Meest gelezen
 
@@ -46,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Berkshire Hathaway laat recordkaspositie slinken met inkoop eigen aandelen](https://fd.nl/bedrijfsleven/1606885/berkshire-hathaway-laat-recordkaspositie-slinken-met-inkoop-eigen-aandelen)
+  > De operationele winst van het investeringsfonds steeg in het tweede kwartaal met 16% ten opzichte van een jaar eerder.
 - [Magyar draagt oud-toprechter Andras Baka voor als nieuwe president van Hongarije](https://fd.nl/politiek/1606884/magyar-draagt-oud-toprechter-andras-baka-voor-als-nieuwe-president-van-hongarije)
   > Baka was rechter bij het Europees Hof voor de Rechten van de Mens en gaf later leiding aan het Hongaarse hooggerechtshof.
 - [Trumps voormalige advocaat Todd Blanche wordt de Amerikaanse minister van justitie](https://fd.nl/politiek/1606883/trumps-voormalige-advocaat-todd-blanche-wordt-de-amerikaanse-minister-van-justitie)
@@ -54,8 +57,6 @@
   > Illegale mijnbouw voor goud verdringt cocaïne als belangrijke inkomstenbron voor drugsbendes en gewapende groepen in de Amazone-regio.
 - [Conservatieve De la Espriella beëdigd in Colombia](https://fd.nl/politiek/1606882/conservatieve-de-la-espriella-beedigd-in-colombia)
   > De regering van de Amerikaanse president Donald Trump heeft De la Espriella $1 mrd toegezegd voor het nemen van veiligheidsmaatregelen.
-- [‘Locatie van MIVD-directeur jarenlang zichtbaar via hardloopapp Strava’](https://fd.nl/politiek/1606983/locatie-van-mivd-directeur-jarenlang-zichtbaar-via-hardloopapp-strava)
-  > Zo blijkt uit onderzoek van de Volkskrant. Na vragen van de krant is het profiel op privé gezet.
 
 ### Meest gelezen
 
