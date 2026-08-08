@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-08-2026 om 11:31*
+*Laatst bijgewerkt: 08-08-2026 om 12:55*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Na spannende weken stemt Senaat in VS voor Todd Blanche als justitieminister](https://nos.nl/l/2626002)
+  > De Amerikaanse Senaat heeft ingestemd met de benoeming van Todd Blanche als nieuwe minister van Justitie. Dat ging niet zonder slag of stoot. Niet...
+- [Man opgepakt voor steekpartijen in Rotterdam met twee gewonden](https://nos.nl/l/2626001)
+  > De politie heeft een man van 26 uit Rotterdam opgepakt voor twee steekpartijen en een poging daartoe. Alle drie de aanvallen zouden vanmorgen zijn...
+- [Ruim 200 evacuaties bij Gardameer in Italië vanwege grote bosbrand](https://nos.nl/l/2625999)
+  > Meer dan tweehonderd mensen die verbleven aan het Gardameer in Italië zijn geëvacueerd vanwege een grote natuurband. De brand woedt in de gemeente...
 - [Politie pakt vier verdachten op na inbraak in brandweerkazerne Aalsmeer](https://nos.nl/l/2625994)
   > De politie heeft vannacht na een achtervolging vier mannen opgepakt die worden verdacht van een inbraak in de brandweerkazerne van Aalsmeer. Het is...
 - [Rook van nasmeulende brand hangt nog steeds in Venray en Oostrum](https://nos.nl/l/2625992)
   > Bewoners van Venray en Oostrum ervaren nog steeds geur- en stankoverlast van de natuurbrand die tot woensdagavond in de buurt woedde. Op veel plekken...
-- [Orkaan Dolphin treft zuiden van Japan: gewonden en tienduizenden zonder stroom](https://nos.nl/l/2625991)
-  > Japan is getroffen door een orkaan. Vooral de zuidelijke eilandregio Okinawa kreeg te maken met zware windstoten. Zes mensen zijn gewond geraakt,...
-- [AI-foto's vinden hun weg op platforms zoals Vinted: 'Kan misleidend zijn'](https://nos.nl/l/2625987)
-  > Misschien is het je als één van de vele Vinted-gebruikers wel eens opgevallen dat sommige advertenties net iets te mooi lijken. Vaak zijn die...
-- [Automobilist raast met 146 km/u door Amsterdam: 'Onverantwoord en gevaarlijk'](https://nos.nl/l/2625985)
-  > Een automobilist is gisteren betrapt toen hij met 146 kilometer per uur door de Amsterdamse binnenstad reed, bijna drie keer zo hard als toegestaan....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Politierapport onthult bedreigingen tegen Lionel Messi tijdens WK: ‘Ik blaas hem op met vier bommen’](https://www.ad.nl/voetbal/politierapport-onthult-bedreigingen-tegen-lionel-messi-tijdens-wk-ik-blaas-hem-op-met-vier-bommen~aebe43b2/)
-  > Volgens een uitgelekt politierapport was Lionel Messi tijdens het afgelopen WK het doelwit van meerdere bedreigingen, waaronder een zelfmoordaanslag....
-- [Gradus Kraus valt ook op in Engelse bokswereld, maar niet alleen door zijn knock-outs: ‘Mensen houden ervan’](https://www.ad.nl/vechtsport/gradus-kraus-valt-ook-op-in-engelse-bokswereld-maar-niet-alleen-door-zijn-knock-outs-mensen-houden-ervan~a198bf7b/)
-  > Nederland raakt steeds meer in de ban van Gradus Kraus. Zijn spectaculaire stijl, knock-outs en dansjes met zijn dochter maken hem populair. Maar in...
-- [Klimaatdemonstranten Extinction Rebellion blokkeren onverwachts A12, verkeer kan Den Haag niet uit](https://www.ad.nl/binnenland/klimaatdemonstranten-extinction-rebellion-blokkeren-onverwachts-a12-verkeer-kan-den-haag-niet-uit~abcf92c2/)
-  > Een groep klimaatdemonstranten van Extinction Rebellion blokkeert zaterdagmiddag de Utrechtsebaan bij de A12 in Den Haag. Verkeer kan op dit moment...
-- [Droomreis door Canada eindigt na Booking-blunder in mineur voor Nederlands gezin: ‘Sta je dan met je koffers’](https://www.ad.nl/buitenland/droomreis-door-canada-eindigt-na-booking-blunder-in-mineur-voor-nederlands-gezin-sta-je-dan-met-je-koffers~a03f5de9/)
-  > Het leek de perfecte afsluiter van een droomreis door Canada. Maar toen Matthieu Volkers met zijn gezin aankwam bij hun via Booking.com gereserveerde...
-- [Doornloze rozen zijn braaf, maar bramen slaan terug: ‘zelfs het miniemste schrammetje wordt hier een bloedbad’](https://www.ad.nl/wonen/doornloze-rozen-zijn-braaf-maar-bramen-slaan-terug-zelfs-het-miniemste-schrammetje-wordt-hier-een-bloedbad~ad178d50/)
-  > Een braam moet een beetje tegensputteren om echt de moeite waard te zijn: doornloze bramen zijn maar laf. Dat weet ook Romke van de Kaa, daarom plant...
+- [Karatetrap, gespannen sfeer en legendarische quotes: jarige Louis van Gaal (75) blijft de man waar je niet omheen kunt](https://www.ad.nl/voetbal/karatetrap-gespannen-sfeer-en-legendarische-quotes-jarige-louis-van-gaal-75-blijft-de-man-waar-je-niet-omheen-kunt~a4d0af6a/)
+  > Louis van Gaal is vandaag jarig. De meest veelbesproken figuur in het Nederlandse voetbal is 75 jaar. Louis van Gaal is genieten en ook ergeren. Soms...
+- [Feyenoord heeft een nieuwe aanvoerder voor dit seizoen: Luciano Valente](https://www.ad.nl/voetbal/feyenoord-heeft-een-nieuwe-aanvoerder-voor-dit-seizoen-luciano-valente~a7418b5d/)
+  > Luciano Valente is de nieuwe aanvoerder van Feyenoord, zo heeft de club een dag voor de start van het nieuwe seizoen bekendgemaakt. Hij is de...
+- [Arsenal legt Guimaraes vast, Argentijnse vechtersbaas Paredes terug naar Italië?](https://www.ad.nl/voetbal/arsenal-legt-guimaraes-vast-argentijnse-vechtersbaas-paredes-terug-naar-italie~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
+- [Rhoon steunt geschorste huisarts massaal:  ‘Ze heeft ontzettend veel voor ons betekend’](https://www.ad.nl/binnenland/rhoon-steunt-geschorste-huisarts-massaal-ze-heeft-ontzettend-veel-voor-ons-betekend~a72e26b3/)
+  > Het nieuws over de wegens alcoholgebruik geschorste huisarts in Rhoon is het gesprek van de dag in het dorp. Inwoners brengen cadeautjes naar de...
+- [Helemaal rond: PSV heeft Kodai Sano voor miljoenen beet en hij vertelt een opvallend detail over Peter Bosz](https://www.ad.nl/voetbal/helemaal-rond-psv-heeft-kodai-sano-voor-miljoenen-beet-en-hij-vertelt-een-opvallend-detail-over-peter-bosz~a657ae58/)
+  > PSV heeft Kodai Sano tot medio 2031 vastgelegd. Alle formaliteiten rond zijn transfer zijn eindelijk afgerond waardoor hij gepresenteerd kan worden....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Magyar draagt oud-toprechter Andras Baka voor als nieuwe president van Hongarije](https://fd.nl/politiek/1606884/magyar-draagt-oud-toprechter-andras-baka-voor-als-nieuwe-president-van-hongarije)
+  > Baka was rechter bij het Europees Hof voor de Rechten van de Mens en gaf later leiding aan het Hongaarse hooggerechtshof.
+- [Trumps voormalige advocaat Todd Blanche wordt de Amerikaanse minister van justitie](https://fd.nl/politiek/1606883/trumps-voormalige-advocaat-todd-blanche-wordt-de-amerikaanse-minister-van-justitie)
+  > Blanche overleefde de stemming met de hakken over de sloot, vanwege twee tegenstemmers uit de Republikeinse partij. Alle democratische senatoren...
 - [Gewelddadige goudkoorts van drugskartels raast door Latijns-Amerika](https://fd.nl/bedrijfsleven/1606142/gewelddadige-goudkoorts-van-drugskartels-raast-door-latijns-amerika)
   > Illegale mijnbouw voor goud verdringt cocaïne als belangrijke inkomstenbron voor drugsbendes en gewapende groepen in de Amazone-regio.
 - [Conservatieve De la Espriella beëdigd in Colombia](https://fd.nl/politiek/1606882/conservatieve-de-la-espriella-beedigd-in-colombia)
   > De regering van de Amerikaanse president Donald Trump heeft De la Espriella $1 mrd toegezegd voor het nemen van veiligheidsmaatregelen.
 - [‘Locatie van MIVD-directeur jarenlang zichtbaar via hardloopapp Strava’](https://fd.nl/politiek/1606983/locatie-van-mivd-directeur-jarenlang-zichtbaar-via-hardloopapp-strava)
   > Zo blijkt uit onderzoek van de Volkskrant. Na vragen van de krant is het profiel op privé gezet.
-- [ABN Amro: Hittegolf met code rood remde de consumptie](https://fd.nl/bedrijfsleven/1606881/abn-amro-hittegolf-met-code-rood-remde-de-consumptie)
-  > Door de extreem warme dagen waren er minder online uitgaven en geldopnames.
-- [FD Summer School: Kan Europa nog concurreren met Amerika en China?](https://fd.nl/economie/1606835/fd-summer-school-kan-europa-nog-concurreren-met-amerika-en-china)
-  > In deze FD Summer School de vraag of Europa kan concurreren met Amerika en China. Hoogleraar internationale economie Harry Garretsen van de...
 
 ### Meest gelezen
 
