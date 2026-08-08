@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-08-2026 om 14:34*
+*Laatst bijgewerkt: 08-08-2026 om 15:33*
 
 ---
 
@@ -8,6 +8,11 @@
 
 ### Laatste nieuws
 
+- [Jongen (15) pakt stuur bij onwelwording en 'voorkomt erger' in Oud-Beijerland](https://nos.nl/l/2626026)
+  > Een 15-jarige jongen heeft vanmiddag waarschijnlijk een groot ongeluk voorkomen in Oud-Beijerland.
+        Toen hij als bijrijder zag dat de...
+- [Drone ontploft nabij gaspijpleiding in grensgebied Bulgarije en Roemenië](https://nos.nl/l/2626025)
+  > Een drone is vanochtend het Bulgaarse luchtruim ingevlogen en ontploft nabij de grens met Roemenië, meldt de Bulgaarse premier Radev. In het gebied...
 - [Dodental na schietpartij op Thaise school stijgt naar negen](https://nos.nl/l/2626020)
   > Het aantal doden na een schietpartij op een school in Thailand is opgelopen naar negen. Een meisje van 12 is in het ziekenhuis aan haar verwondingen...
 - [Politie beëindigt XR-blokkade A12, demonstrant opgepakt voor mishandelen agent](https://nos.nl/l/2626017)
@@ -15,10 +20,6 @@
         Een aantal van de activisten...
 - [Inbraakpoging bij Haagse politie: dieven wilden illegale sigaretten stelen](https://nos.nl/l/2626013)
   > Bij een opslaglocatie van de politie in Den Haag is vannacht ingebroken. Zeker vier verdachten probeerden ervandoor te gaan met een partij...
-- [Na spannende weken stemt Senaat in VS voor Todd Blanche als justitieminister](https://nos.nl/l/2626002)
-  > De Amerikaanse Senaat heeft ingestemd met de benoeming van Todd Blanche als nieuwe minister van Justitie. Dat ging niet zonder slag of stoot. Niet...
-- [Man opgepakt voor steekpartijen in Rotterdam met twee gewonden](https://nos.nl/l/2626001)
-  > De politie heeft een man van 26 uit Rotterdam opgepakt voor twee steekpartijen en een poging daartoe. Alle drie de aanvallen zouden vanmorgen zijn...
 
 ### Meest gelezen
 
@@ -28,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Droomstart voor Telstar op bezoek bij NEC: binnen 27 seconden is het raak](https://www.ad.nl/voetbal/droomstart-voor-telstar-op-bezoek-bij-nec-binnen-27-seconden-is-het-raak~ab2966ca/)
+- [Nederlandse en Française op de vlucht, peloton met favoriet Wiebes komt steeds dichterbij](https://www.ad.nl/wielrennen/nederlandse-en-francaise-op-de-vlucht-peloton-met-favoriet-wiebes-komt-steeds-dichterbij~a094cd69/)
+  > De Tour de France Femmes nadert met twee resterende etappes zijn ontknoping. De rensters wacht een relatief vlak parkoers, met daarin wel zo’n 1900...
+- [Werk aan de winkel in tweede helft voor defensief kwetsbaar NEC: Telstar leidt ruim](https://www.ad.nl/voetbal/werk-aan-de-winkel-in-tweede-helft-voor-defensief-kwetsbaar-nec-telstar-leidt-ruim~ab2966ca/)
   > De twee stuntclubs van afgelopen seizoen begint aan de nieuwe eredivisiecampagne. NEC werd verrassend derde, Telstar handhaafde zich tegen alle...
+- [Doorrijden op de Merwedebrug terwijl dat voor vrachtwagens verboden is? ‘Je rijdt toch ook niet door rood?’](https://www.ad.nl/binnenland/doorrijden-op-de-merwedebrug-terwijl-dat-voor-vrachtwagens-verboden-is-je-rijdt-toch-ook-niet-door-rood~ae391601/)
+  > Hans Ramler, praktijkhoogleraar aan de TU Delft, is duidelijk: wie met een truck de Merwedebrug op gaat, rijdt door rood. Rijkswaterstaat waarschuwt...
+- [Matchwinner in WK-finale nadert akkoord met PSG, Paredes terug naar Italië?](https://www.ad.nl/voetbal/matchwinner-in-wk-finale-nadert-akkoord-met-psg-paredes-terug-naar-italie~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
 - [Voormalig NBA-spelers melden zich aan voor Women’s NBA Draft: ‘Ik identificeer me soms als vrouw’](https://www.ad.nl/andere-sporten/voormalig-nba-spelers-melden-zich-aan-voor-womens-nba-draft-ik-identificeer-me-soms-als-vrouw~ae5fac49/)
   > Twee voormalige NBA-spelers hebben zich aangemeld voor de Women’s NBA Draft van 2027, de Amerikaanse profcompetitie voor vrouwenbasketbal. Enes...
-- [Drone dringt luchtruim van Bulgarije binnen en ontploft bij gaspijpleiding: ‘Aanzienlijke hoeveelheid explosieven’](https://www.ad.nl/buitenland/drone-dringt-luchtruim-van-bulgarije-binnen-en-ontploft-bij-gaspijpleiding-aanzienlijke-hoeveelheid-explosieven~a1ce757f/)
-  > Een drone is in het grensgebied tussen Bulgarije en Roemenië ontploft, meldt de Bulgaarse minister-president Rumen Radev. In dat gebied loopt ook de...
-- [It’er Chris: ‘Als ik een jaar in dienst ben, krijg ik 40.000 dollar aan aandelen’](https://www.ad.nl/werk/iter-chris-als-ik-een-jaar-in-dienst-ben-krijg-ik-40-000-dollar-aan-aandelen~a5a44b41/)
-  > Chris (57) werkt als it-service engineer. Hij lost voornamelijk it-problemen op van zijn collega’s, van ceo tot magazijnmedewerker. Elke week vertelt...
-- [Matchwinner in WK-finale nadert akkoord met PSG, Argentijnse vechtersbaas Paredes terug naar Italië?](https://www.ad.nl/voetbal/matchwinner-in-wk-finale-nadert-akkoord-met-psg-argentijnse-vechtersbaas-paredes-terug-naar-italie~acbd43e6/)
-  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
 
 ### Meest gelezen
 
