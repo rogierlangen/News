@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-08-2026 om 17:34*
+*Laatst bijgewerkt: 08-08-2026 om 18:42*
 
 ---
 
@@ -8,18 +8,18 @@
 
 ### Laatste nieuws
 
+- [Rechter die door Orbán werd ontslagen nu voorgedragen als president Hongarije](https://nos.nl/l/2626051)
+  > In Hongarije heeft de regerende Tisza-partij de voormalige president van het Hongaarse Hooggerechtshof, András Baka, voorgedragen als president van...
 - [Jongen (15) pakt stuur bij onwelwording en 'voorkomt erger' in Oud-Beijerland](https://nos.nl/l/2626026)
   > Een 15-jarige jongen heeft vanmiddag waarschijnlijk een groot ongeluk voorkomen in Oud-Beijerland.
         Toen hij als bijrijder zag dat de...
-- [Drone ontploft nabij gaspijpleiding in grensgebied Bulgarije en Roemenië](https://nos.nl/l/2626025)
+- [Drone ontploft nabij gaspijpleiding in Bulgarije, Oekraïense ambassadeur ontboden](https://nos.nl/l/2626025)
   > Een drone is vanochtend het Bulgaarse luchtruim ingevlogen en ontploft nabij de grens met Roemenië, meldt de Bulgaarse premier Radev. In het gebied...
 - [Dodental na schietpartij op Thaise school stijgt naar negen](https://nos.nl/l/2626020)
   > Het aantal doden na een schietpartij op een school in Thailand is opgelopen naar negen. Een meisje van 12 is in het ziekenhuis aan haar verwondingen...
 - [Politie beëindigt XR-blokkade A12, demonstrant opgepakt voor mishandelen agent](https://nos.nl/l/2626017)
   > De politie in Den Haag heeft een blokkade van de snelweg A12 door klimaatactivisten na ruim twee uur beëindigd.
         Een klein aantal van de...
-- [Inbraakpoging bij Haagse politie: dieven wilden illegale sigaretten stelen](https://nos.nl/l/2626013)
-  > Bij een opslaglocatie van de politie in Den Haag is vannacht ingebroken. Zeker vier verdachten probeerden ervandoor te gaan met een partij...
 
 ### Meest gelezen
 
@@ -29,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Vijf wijzigingen bij PSV na Johan Cruijff Schaal, aanvallend middenveld tegen Fortuna](https://www.ad.nl/voetbal/vijf-wijzigingen-bij-psv-na-johan-cruijff-schaal-aanvallend-middenveld-tegen-fortuna~adf2d771/)
-  > PSV kreeg vorige week een flink pak slaag van AZ in de Johan Cruijff Schaal (0-4). De Eindhovenaren azen op eerherstel in de eerste...
-- [‘Kijk niet door gaatje van een cd’: oogarts over hoe je zonsverduistering veilig bekijkt](https://www.ad.nl/gezond/kijk-niet-door-gaatje-van-een-cd-oogarts-over-hoe-je-zonsverduistering-veilig-bekijkt~a1fcc050/)
-  > Voor het eerst sinds jaren is woensdag een gedeeltelijke zonsverduistering in ons land te bewonderen. Wil je dit bijzondere natuurfenomeen...
-- [Go Ahead komt op gelijke hoogte tegen Willem II: Tengstedt rondt van dichtbij af](https://www.ad.nl/voetbal/go-ahead-komt-op-gelijke-hoogte-tegen-willem-ii-tengstedt-rondt-van-dichtbij-af~a3a349de/)
-  > Willem II is terug in de eredivisie. De Tilburgers starten het nieuwe seizoen met een uitwedstrijd tegen Go Ahead Eagles. Volg het hier vanaf 18.45...
-- [Op pad met de dierenpolitie: ‘Ongedierte, afval tot aan je knieën: we hebben het allemaal gezien’](https://www.ad.nl/binnenland/op-pad-met-de-dierenpolitie-ongedierte-afval-tot-aan-je-knieen-we-hebben-het-allemaal-gezien~af41bc8a/)
-  > Een verwaarloosde cavia, een uitgemergelde kat of een gedumpte hond: meldpunt 144 voor dieren in nood ontving vorig jaar een recordaantal van 155.000...
-- [Superfan Ronald stuurde zieke Jerney Kaagman wekelijks een kaartje om haar op te beuren: ‘Waardeerde ze’](https://www.ad.nl/show/superfan-ronald-stuurde-zieke-jerney-kaagman-wekelijks-een-kaartje-om-haar-op-te-beuren-waardeerde-ze~a1651c90/)
-  > Jarenlang stuurde Ronald Platier bijna wekelijks een kaartje of cadeautje om Jerney Kaagman een hart onder de riem te steken. Platier is de drijvende...
+- [Effectief Go Ahead buigt achterstand om en wint met ruime cijfers van Willem II](https://www.ad.nl/voetbal/effectief-go-ahead-buigt-achterstand-om-en-wint-met-ruime-cijfers-van-willem-ii~a3a349de/)
+  > Go Ahead Eagles heeft zaterdagavond uitgehaald tegen promovendus Willem II. In de Adelaarshorst bleek de ploeg van Joseph Oosting een maatje te groot...
+- [Herman (73) gaf kankergen door aan dochters: ‘Als ik dit had geweten, was ik misschien nooit aan kinderen begonnen’](https://www.ad.nl/gezond/herman-73-gaf-kankergen-door-aan-dochters-als-ik-dit-had-geweten-was-ik-misschien-nooit-aan-kinderen-begonnen~af980a9d/)
+  > Herman Hopman (73) wist lange tijd niet eens van het bestaan van het kankergen BRCA1. Tot artsen zeiden dat juist hij drager was, en de erfelijke...
+- [Niewiadoma klaagt over ‘kinderachtig’ manoeuvre van ploeg Vollering: ‘Ik ben alle respect voor hen kwijt’](https://www.ad.nl/wielrennen/niewiadoma-klaagt-over-kinderachtig-manoeuvre-van-ploeg-vollering-ik-ben-alle-respect-voor-hen-kwijt~af0bcdfb/)
+  > Kasia Niewiadoma verloor zaterdag haar gele leiderstrui in de Tour de France Femmes aan Demi Vollering. Na afloop reageerde de Poolse erg hard over...
+- [Bulgarije ontbiedt ambassadeur van Oekraïne na ontplofte drone met ‘aanzienlijke hoeveelheid explosieven’](https://www.ad.nl/buitenland/bulgarije-ontbiedt-ambassadeur-van-oekraine-na-ontplofte-drone-met-aanzienlijke-hoeveelheid-explosieven~a1ce757f/)
+  > Bulgarije heeft de Oekraïense ambassadeur ontboden naar aanleiding van de inslag van een drone met explosieven in het noordoosten van het land. Het...
+- [Romelu Lukaku op weg naar Fenerbahçe, Paredes terug naar Italië?](https://www.ad.nl/voetbal/romelu-lukaku-op-weg-naar-fenerbahce-paredes-terug-naar-italie~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
 
 ### Meest gelezen
 
