@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-08-2026 om 10:36*
+*Laatst bijgewerkt: 08-08-2026 om 11:31*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Politie pakt vier verdachten op na inbraak in brandweerkazerne Aalsmeer](https://nos.nl/l/2625994)
+  > De politie heeft vannacht na een achtervolging vier mannen opgepakt die worden verdacht van een inbraak in de brandweerkazerne van Aalsmeer. Het is...
 - [Rook van nasmeulende brand hangt nog steeds in Venray en Oostrum](https://nos.nl/l/2625992)
   > Bewoners van Venray en Oostrum ervaren nog steeds geur- en stankoverlast van de natuurbrand die tot woensdagavond in de buurt woedde. Op veel plekken...
 - [Orkaan Dolphin treft zuiden van Japan: gewonden en tienduizenden zonder stroom](https://nos.nl/l/2625991)
@@ -16,8 +18,6 @@
   > Misschien is het je als één van de vele Vinted-gebruikers wel eens opgevallen dat sommige advertenties net iets te mooi lijken. Vaak zijn die...
 - [Automobilist raast met 146 km/u door Amsterdam: 'Onverantwoord en gevaarlijk'](https://nos.nl/l/2625985)
   > Een automobilist is gisteren betrapt toen hij met 146 kilometer per uur door de Amsterdamse binnenstad reed, bijna drie keer zo hard als toegestaan....
-- [Droogte raakt vakantieverkeer: vrachtwagens mogen op zondag Duitse wegen op](https://nos.nl/l/2625980)
-  > Als gevolg van de droogte is het zondagse rijverbod voor vrachtwagens in een deel van Duitsland opgeschort. Omdat er steeds minder vervoerd kan...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Politierapport onthult bedreigingen tegen Lionel Messi tijdens WK: ‘Ik blaas hem op met vier bommen’](https://www.ad.nl/voetbal/politierapport-onthult-bedreigingen-tegen-lionel-messi-tijdens-wk-ik-blaas-hem-op-met-vier-bommen~aebe43b2/)
+  > Volgens een uitgelekt politierapport was Lionel Messi tijdens het afgelopen WK het doelwit van meerdere bedreigingen, waaronder een zelfmoordaanslag....
+- [Gradus Kraus valt ook op in Engelse bokswereld, maar niet alleen door zijn knock-outs: ‘Mensen houden ervan’](https://www.ad.nl/vechtsport/gradus-kraus-valt-ook-op-in-engelse-bokswereld-maar-niet-alleen-door-zijn-knock-outs-mensen-houden-ervan~a198bf7b/)
+  > Nederland raakt steeds meer in de ban van Gradus Kraus. Zijn spectaculaire stijl, knock-outs en dansjes met zijn dochter maken hem populair. Maar in...
+- [Klimaatdemonstranten Extinction Rebellion blokkeren onverwachts A12, verkeer kan Den Haag niet uit](https://www.ad.nl/binnenland/klimaatdemonstranten-extinction-rebellion-blokkeren-onverwachts-a12-verkeer-kan-den-haag-niet-uit~abcf92c2/)
+  > Een groep klimaatdemonstranten van Extinction Rebellion blokkeert zaterdagmiddag de Utrechtsebaan bij de A12 in Den Haag. Verkeer kan op dit moment...
+- [Droomreis door Canada eindigt na Booking-blunder in mineur voor Nederlands gezin: ‘Sta je dan met je koffers’](https://www.ad.nl/buitenland/droomreis-door-canada-eindigt-na-booking-blunder-in-mineur-voor-nederlands-gezin-sta-je-dan-met-je-koffers~a03f5de9/)
+  > Het leek de perfecte afsluiter van een droomreis door Canada. Maar toen Matthieu Volkers met zijn gezin aankwam bij hun via Booking.com gereserveerde...
 - [Doornloze rozen zijn braaf, maar bramen slaan terug: ‘zelfs het miniemste schrammetje wordt hier een bloedbad’](https://www.ad.nl/wonen/doornloze-rozen-zijn-braaf-maar-bramen-slaan-terug-zelfs-het-miniemste-schrammetje-wordt-hier-een-bloedbad~ad178d50/)
   > Een braam moet een beetje tegensputteren om echt de moeite waard te zijn: doornloze bramen zijn maar laf. Dat weet ook Romke van de Kaa, daarom plant...
-- [Argentijnse vechtersbaas Paredes terug naar Italië? Liverpool gaat verdediger van Barcelona huren](https://www.ad.nl/voetbal/argentijnse-vechtersbaas-paredes-terug-naar-italie-liverpool-gaat-verdediger-van-barcelona-huren~acbd43e6/)
-  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
-- [Opinie: ‘Help clubs en buurthuizen de hoge energieprijzen te overleven’](https://www.ad.nl/praat-mee/opinie-help-clubs-en-buurthuizen-de-hoge-energieprijzen-te-overleven~a10b5f65/)
-  > Sportclubs en buurthuizen die zonnepanelen aanschaften, dreigen om te vallen nu de salderingsregeling stopt. Investeer daarom in batterijen voor deze...
-- [Baas loopt vol in de val van medewerker: hij beantwoordt onschuldige vraag, haar ‘pikante’ montage gaat viraal](https://www.ad.nl/show/baas-loopt-vol-in-de-val-van-medewerker-hij-beantwoordt-onschuldige-vraag-haar-pikante-montage-gaat-viraal~a152da67/)
-  > Een ijssalon in Florida trekt in korte tijd miljoenen views met een video waarin een werknemer haar baas in de maling neemt. Ze doet mee aan een...
-- [Waarom buren nog steeds bang zijn na vondst kinderporno OM-man: ‘Lijkt oude leventje te hebben opgepakt’](https://www.ad.nl/binnenland/waarom-buren-nog-steeds-bang-zijn-na-vondst-kinderporno-om-man-lijkt-oude-leventje-te-hebben-opgepakt~a0aef32f/)
-  > Nota bene een medewerker van het Openbaar Ministerie houdt een keurige wijk in Doetinchem al bijna twee jaar in een wurggreep. Want bij deze buurman...
 
 ### Meest gelezen
 
