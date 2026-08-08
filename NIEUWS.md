@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-08-2026 om 16:37*
+*Laatst bijgewerkt: 08-08-2026 om 17:34*
 
 ---
 
@@ -29,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [NEC met kater naar Europese return: Telstar zorgt voor stunt in Nijmegen dankzij vroege goals](https://www.ad.nl/voetbal/nec-met-kater-naar-europese-return-telstar-zorgt-voor-stunt-in-nijmegen-dankzij-vroege-goals~ab2966ca/)
-  > NEC heeft een valse start beleefd in de VriendenLoterij Eredivisie. De ploeg van trainer Dick Schreuder, vorig seizoen de sensatie met een derde...
-- [Demi Vollering grijpt na fraaie versnelling gele trui in voorlaatste etappe naar Nice](https://www.ad.nl/wielrennen/demi-vollering-grijpt-na-fraaie-versnelling-gele-trui-in-voorlaatste-etappe-naar-nice~a094cd69/)
-  > Demi Vollering heeft haar klasse getoond in de voorlaatste etappe van de Tour de France Femmes. Dat deed de 29-jarige renster uit Pijnacker door...
-- [Van Bol tot Ajax: wat je moet weten over het grote datalek bij partner Ceva, die vorig jaar ook al werd getroffen](https://www.ad.nl/tech/van-bol-tot-ajax-wat-je-moet-weten-over-het-grote-datalek-bij-partner-ceva-die-vorig-jaar-ook-al-werd-getroffen~a1a22d4a/)
-  > Klanten bij Bol en de Bijenkorf kregen deze week slecht nieuws: mogelijk zijn hun privégegevens betrokken bij - alweer - een datalek. Een logistieke...
-- [Asiel overspoeld met positivi­teit na opvang verwaar­loos­de katten: ‘Katje met één oog is juist populair’](https://www.ad.nl/binnenland/asiel-overspoeld-met-positiviteit-na-opvang-verwaarloosde-katten-katje-met-een-oog-is-juist-populair~a452bce4/)
-  > Roodgloeiend stond de telefoon van De Dierenstee de afgelopen dagen. Dierenliefhebbers belden massaal over de elf verwaarloosde raskatten die het...
-- [Bosbrand bij het Gardameer: ruim 200 mensen geëvacueerd, onder wie veel toeristen](https://www.ad.nl/buitenland/bosbrand-bij-het-gardameer-ruim-200-mensen-geevacueerd-onder-wie-veel-toeristen~ad0a3949/)
-  > Door een bosbrand bij Tignale aan de westelijke oever van het Gardameer zijn meer dan 200 mensen geëvacueerd. Verschillende vakantiehuizen zijn...
+- [Vijf wijzigingen bij PSV na Johan Cruijff Schaal, aanvallend middenveld tegen Fortuna](https://www.ad.nl/voetbal/vijf-wijzigingen-bij-psv-na-johan-cruijff-schaal-aanvallend-middenveld-tegen-fortuna~adf2d771/)
+  > PSV kreeg vorige week een flink pak slaag van AZ in de Johan Cruijff Schaal (0-4). De Eindhovenaren azen op eerherstel in de eerste...
+- [‘Kijk niet door gaatje van een cd’: oogarts over hoe je zonsverduistering veilig bekijkt](https://www.ad.nl/gezond/kijk-niet-door-gaatje-van-een-cd-oogarts-over-hoe-je-zonsverduistering-veilig-bekijkt~a1fcc050/)
+  > Voor het eerst sinds jaren is woensdag een gedeeltelijke zonsverduistering in ons land te bewonderen. Wil je dit bijzondere natuurfenomeen...
+- [Go Ahead komt op gelijke hoogte tegen Willem II: Tengstedt rondt van dichtbij af](https://www.ad.nl/voetbal/go-ahead-komt-op-gelijke-hoogte-tegen-willem-ii-tengstedt-rondt-van-dichtbij-af~a3a349de/)
+  > Willem II is terug in de eredivisie. De Tilburgers starten het nieuwe seizoen met een uitwedstrijd tegen Go Ahead Eagles. Volg het hier vanaf 18.45...
+- [Op pad met de dierenpolitie: ‘Ongedierte, afval tot aan je knieën: we hebben het allemaal gezien’](https://www.ad.nl/binnenland/op-pad-met-de-dierenpolitie-ongedierte-afval-tot-aan-je-knieen-we-hebben-het-allemaal-gezien~af41bc8a/)
+  > Een verwaarloosde cavia, een uitgemergelde kat of een gedumpte hond: meldpunt 144 voor dieren in nood ontving vorig jaar een recordaantal van 155.000...
+- [Superfan Ronald stuurde zieke Jerney Kaagman wekelijks een kaartje om haar op te beuren: ‘Waardeerde ze’](https://www.ad.nl/show/superfan-ronald-stuurde-zieke-jerney-kaagman-wekelijks-een-kaartje-om-haar-op-te-beuren-waardeerde-ze~a1651c90/)
+  > Jarenlang stuurde Ronald Platier bijna wekelijks een kaartje of cadeautje om Jerney Kaagman een hart onder de riem te steken. Platier is de drijvende...
 
 ### Meest gelezen
 
