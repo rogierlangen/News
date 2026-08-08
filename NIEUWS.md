@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-08-2026 om 19:32*
+*Laatst bijgewerkt: 08-08-2026 om 20:33*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [PSV Vrouwen bereikt laatste voorronde Champions League dankzij doelpunten van Liz Rijsbergen tegen Finse club](https://www.ad.nl/voetbal/psv-vrouwen-bereikt-laatste-voorronde-champions-league-dankzij-doelpunten-van-liz-rijsbergen-tegen-finse-club~afab9c06/)
-  > De voetbalsters van PSV hebben de derde en laatste voorronde van de Champions League bereikt. In Luxemburg versloeg de ploeg van trainer Kasper...
-- [Economische grootmacht Duitsland verliest 15.000 banen per maand: wat betekent dit voor Nederland?](https://www.ad.nl/economie/economische-grootmacht-duitsland-verliest-15-000-banen-per-maand-wat-betekent-dit-voor-nederland~acbdaae9/)
-  > Het gaat opeens hard in Duitsland. Er verdwijnen maandelijks 15.000 banen bij fabrikanten van auto’s, machines en toeleveranciers. Dat blijft niet...
-- [Niet de Ventoux, maar een nietszeggend stukje asfalt lijkt de Tour te beslissen: ‘Dit was precies het plan’](https://www.ad.nl/tour-de-france/niet-de-ventoux-maar-een-nietszeggend-stukje-asfalt-lijkt-de-tour-te-beslissen-dit-was-precies-het-plan~a37720f8/)
-  > Precies op een plek waar niemand het verwachtte, zette Demi Vollering de Tour de France Femmes naar haar hand. Op de Ventoux maakte ze een foutje, op...
-- [Feest AZ gaat niet door: doelpunt Dijkstra tegen ADO Den Haag afgekeurd](https://www.ad.nl/voetbal/feest-az-gaat-niet-door-doelpunt-dijkstra-tegen-ado-den-haag-afgekeurd~aa8770c1/)
-  > AZ en ADO Den Haag zorgen voor vermaak in Alkmaar in de eerste helft. Doelpunten zijn nog niet gevallen. De thuisploeg mag even juichen na een...
-- [PSV met invallers Pléa en Man op jacht naar tweede goal tegen stug Fortuna Sittard](https://www.ad.nl/voetbal/psv-met-invallers-plea-en-man-op-jacht-naar-tweede-goal-tegen-stug-fortuna-sittard~adf2d771/)
-  > PSV kreeg vorige week een flink pak slaag van AZ in de Johan Cruijff Schaal (0-4). De Eindhovenaren azen op eerherstel in de eerste...
+- [Ongekend: KO-kanon Gradus Kraus zet Amerikaanse tegenstander heel snel voor schut en wint wéér](https://www.ad.nl/vechtsport/ongekend-ko-kanon-gradus-kraus-zet-amerikaanse-tegenstander-heel-snel-voor-schut-en-wint-weer~a88f7da9/)
+  > Gradus Kraus heeft weer naam gemaakt in Engeland. In Leeds vocht de Brabander zijn twaalfde profpartij en hij zorgde met een gigantische wervelwind...
+- [PSV geeft het in laatste minuut nog weg, invaller Michut helpt Fortuna Sittard aan punt in Eindhoven](https://www.ad.nl/voetbal/psv-geeft-het-in-laatste-minuut-nog-weg-invaller-michut-helpt-fortuna-sittard-aan-punt-in-eindhoven~adf2d771/)
+  > PSV is het seizoen teleurstellend begonnen met een 2-2 gelijkspel tegen Fortuna Sittard. Door goals van de verdedigers Ryan Flamingo en Noah...
+- [Drie toeristen en piloot omgekomen bij helikoptercrash in Rio de Janeiro](https://www.ad.nl/buitenland/drie-toeristen-en-piloot-omgekomen-bij-helikoptercrash-in-rio-de-janeiro~a8f94604/)
+  > Bij een helikopterongeluk in de buurt van Rio de Janeiro zijn vier mensen omgekomen, melden Braziliaanse media. Drie van de slachtoffers zouden...
+- [LIVE eredivisie | AZ klaart de klus tegen ADO Den Haag binnen paar minuten dankzij Daal en Stengs](https://www.ad.nl/voetbal/live-eredivisie-az-klaart-de-klus-tegen-ado-den-haag-binnen-paar-minuten-dankzij-daal-en-stengs~aa8770c1/)
+  > AZ haalt na een uur de trekker over tegen ADO Den Haag en klaart de klus dankzij treffers van Ro-Zangelo Daal en Calvin Stengs: 2-0. Komt er een...
+- [Turkije wil dat Oekraïne en Rusland stoppen met  aanvallen op schepen op de Zwarte Zee](https://www.ad.nl/buitenland/turkije-wil-dat-oekraine-en-rusland-stoppen-met-aanvallen-op-schepen-op-de-zwarte-zee~adfb97be/)
+  > Turkije wil dat Oekraïne en Rusland stoppen met hun aanvallen op schepen op de Zwarte Zee. Minister van Buitenlandse Zaken Hakan Fidan riep bij...
 
 ### Meest gelezen
 
