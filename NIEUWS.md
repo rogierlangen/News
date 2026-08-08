@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-08-2026 om 18:42*
+*Laatst bijgewerkt: 08-08-2026 om 19:32*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Bestuurder rijdt met gestolen auto in op politiewagen in Uden](https://nos.nl/l/2626068)
+  > In Uden is een bestuurder met een gestolen auto ingereden op een politiewagen. Een agent raakte daarbij gewond en is ter controle naar het ziekenhuis...
 - [Rechter die door Orbán werd ontslagen nu voorgedragen als president Hongarije](https://nos.nl/l/2626051)
   > In Hongarije heeft de regerende Tisza-partij de voormalige president van het Hongaarse Hooggerechtshof, András Baka, voorgedragen als president van...
 - [Jongen (15) pakt stuur bij onwelwording en 'voorkomt erger' in Oud-Beijerland](https://nos.nl/l/2626026)
@@ -17,9 +19,6 @@
   > Een drone is vanochtend het Bulgaarse luchtruim ingevlogen en ontploft nabij de grens met Roemenië, meldt de Bulgaarse premier Radev. In het gebied...
 - [Dodental na schietpartij op Thaise school stijgt naar negen](https://nos.nl/l/2626020)
   > Het aantal doden na een schietpartij op een school in Thailand is opgelopen naar negen. Een meisje van 12 is in het ziekenhuis aan haar verwondingen...
-- [Politie beëindigt XR-blokkade A12, demonstrant opgepakt voor mishandelen agent](https://nos.nl/l/2626017)
-  > De politie in Den Haag heeft een blokkade van de snelweg A12 door klimaatactivisten na ruim twee uur beëindigd.
-        Een klein aantal van de...
 
 ### Meest gelezen
 
@@ -29,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Effectief Go Ahead buigt achterstand om en wint met ruime cijfers van Willem II](https://www.ad.nl/voetbal/effectief-go-ahead-buigt-achterstand-om-en-wint-met-ruime-cijfers-van-willem-ii~a3a349de/)
-  > Go Ahead Eagles heeft zaterdagavond uitgehaald tegen promovendus Willem II. In de Adelaarshorst bleek de ploeg van Joseph Oosting een maatje te groot...
-- [Herman (73) gaf kankergen door aan dochters: ‘Als ik dit had geweten, was ik misschien nooit aan kinderen begonnen’](https://www.ad.nl/gezond/herman-73-gaf-kankergen-door-aan-dochters-als-ik-dit-had-geweten-was-ik-misschien-nooit-aan-kinderen-begonnen~af980a9d/)
-  > Herman Hopman (73) wist lange tijd niet eens van het bestaan van het kankergen BRCA1. Tot artsen zeiden dat juist hij drager was, en de erfelijke...
-- [Niewiadoma klaagt over ‘kinderachtig’ manoeuvre van ploeg Vollering: ‘Ik ben alle respect voor hen kwijt’](https://www.ad.nl/wielrennen/niewiadoma-klaagt-over-kinderachtig-manoeuvre-van-ploeg-vollering-ik-ben-alle-respect-voor-hen-kwijt~af0bcdfb/)
-  > Kasia Niewiadoma verloor zaterdag haar gele leiderstrui in de Tour de France Femmes aan Demi Vollering. Na afloop reageerde de Poolse erg hard over...
-- [Bulgarije ontbiedt ambassadeur van Oekraïne na ontplofte drone met ‘aanzienlijke hoeveelheid explosieven’](https://www.ad.nl/buitenland/bulgarije-ontbiedt-ambassadeur-van-oekraine-na-ontplofte-drone-met-aanzienlijke-hoeveelheid-explosieven~a1ce757f/)
-  > Bulgarije heeft de Oekraïense ambassadeur ontboden naar aanleiding van de inslag van een drone met explosieven in het noordoosten van het land. Het...
-- [Romelu Lukaku op weg naar Fenerbahçe, Paredes terug naar Italië?](https://www.ad.nl/voetbal/romelu-lukaku-op-weg-naar-fenerbahce-paredes-terug-naar-italie~acbd43e6/)
-  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
+- [PSV Vrouwen bereikt laatste voorronde Champions League dankzij doelpunten van Liz Rijsbergen tegen Finse club](https://www.ad.nl/voetbal/psv-vrouwen-bereikt-laatste-voorronde-champions-league-dankzij-doelpunten-van-liz-rijsbergen-tegen-finse-club~afab9c06/)
+  > De voetbalsters van PSV hebben de derde en laatste voorronde van de Champions League bereikt. In Luxemburg versloeg de ploeg van trainer Kasper...
+- [Economische grootmacht Duitsland verliest 15.000 banen per maand: wat betekent dit voor Nederland?](https://www.ad.nl/economie/economische-grootmacht-duitsland-verliest-15-000-banen-per-maand-wat-betekent-dit-voor-nederland~acbdaae9/)
+  > Het gaat opeens hard in Duitsland. Er verdwijnen maandelijks 15.000 banen bij fabrikanten van auto’s, machines en toeleveranciers. Dat blijft niet...
+- [Niet de Ventoux, maar een nietszeggend stukje asfalt lijkt de Tour te beslissen: ‘Dit was precies het plan’](https://www.ad.nl/tour-de-france/niet-de-ventoux-maar-een-nietszeggend-stukje-asfalt-lijkt-de-tour-te-beslissen-dit-was-precies-het-plan~a37720f8/)
+  > Precies op een plek waar niemand het verwachtte, zette Demi Vollering de Tour de France Femmes naar haar hand. Op de Ventoux maakte ze een foutje, op...
+- [Feest AZ gaat niet door: doelpunt Dijkstra tegen ADO Den Haag afgekeurd](https://www.ad.nl/voetbal/feest-az-gaat-niet-door-doelpunt-dijkstra-tegen-ado-den-haag-afgekeurd~aa8770c1/)
+  > AZ en ADO Den Haag zorgen voor vermaak in Alkmaar in de eerste helft. Doelpunten zijn nog niet gevallen. De thuisploeg mag even juichen na een...
+- [PSV met invallers Pléa en Man op jacht naar tweede goal tegen stug Fortuna Sittard](https://www.ad.nl/voetbal/psv-met-invallers-plea-en-man-op-jacht-naar-tweede-goal-tegen-stug-fortuna-sittard~adf2d771/)
+  > PSV kreeg vorige week een flink pak slaag van AZ in de Johan Cruijff Schaal (0-4). De Eindhovenaren azen op eerherstel in de eerste...
 
 ### Meest gelezen
 
