@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-08-2026 om 08:48*
+*Laatst bijgewerkt: 09-08-2026 om 09:43*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Twee verdachten aangehouden voor gewelddadige woningoverval in Helmond](https://nos.nl/l/2626119)
+  > De politie heeft twee verdachten aangehouden voor een gewelddadige overval in Helmond. Het gaat om een 36-jarige man uit Den Haag en een 17-jarige...
 - [Explosie bij woning in Arnhem, gesprongen ramen maar geen gewonden](https://nos.nl/l/2626114)
   > Bij een woning in Arnhem was vannacht een explosie. Daardoor is een aantal ramen gesprongen, meldt de politie.
         De politie kreeg rond 02.00...
@@ -18,8 +20,6 @@
 - [Wekdienst 9/8: Zeppelin meet luchtkwaliteit • Slotetappe Tour de France Femmes](https://nos.nl/l/2626097)
   > Goedemorgen! Boven de Veluwe is vandaag iets bijzonders te zien en de wielrensters van de Tour de Frances Femmes rijden de laatste etappe.
        ...
-- [Ruim tweeduizend jaar oud Romeins scheepswrak gevonden bij Sicilië](https://nos.nl/l/2626096)
-  > Enkele kilometers voor de westkust van Sicilië is op 46 meter diepte een ruim tweeduizend jaar oud Romeins scheepswrak gevonden. Op de zeebodem...
 
 ### Meest gelezen
 
@@ -29,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Nederlanders boeken massaal last minute: zo bespaar je tot 445 euro per persoon op je vakantie](https://www.ad.nl/buitenland/nederlanders-boeken-massaal-last-minute-zo-bespaar-je-tot-445-euro-per-persoon-op-je-vakantie~a4195717/)
-  > Halverwege de zomervakantie boeken we massaal nog een lastminute. Volgens touroperator Sunweb was maar liefst 68 procent van de boekingen in juli...
-- [PSV zit nog steeds gevangen in zomerse problemen (die in april al te voorzien waren)](https://www.ad.nl/voetbal/psv-zit-nog-steeds-gevangen-in-zomerse-problemen-die-in-april-al-te-voorzien-waren~a55892fe/)
-  > Een zwaluw maakt nog geen zomer en een paar keer nachtvorst geen winter. Maar toch. Opnieuw kreeg PSV een dreun te verwerken tegen Fortuna Sittard...
-- [De wraaklust van kopstuk Shurendy Q.: ‘Ready om hele generatie te vermoorden’](https://www.ad.nl/binnenland/de-wraaklust-van-kopstuk-shurendy-q-ready-om-hele-generatie-te-vermoorden~ab3ec316/)
-  > In de EBI in Vught staat maandag de beruchtste crimineel van de Antillen voor de rechter: Shurendy Q. Zijn bende No Limit Soldiers specialiseerde...
-- [Groenland deelt tik uit aan Amerikaans oliebedrijf met Trump-link: ‘Boringen voorbereid zonder toestemming’](https://www.ad.nl/buitenland/groenland-deelt-tik-uit-aan-amerikaans-oliebedrijf-met-trump-link-boringen-voorbereid-zonder-toestemming~aa0c1749/)
-  > Groenland heeft een ‘krachtige waarschuwing’ uitgedeeld aan Greenland Energy. Het Texaanse oliebedrijf, dat nauwe banden heeft met de Amerikaanse...
-- [Meer soa’s in de zomer, met name gonorroe en syfilis maken comeback: hier moet je op letten](https://www.ad.nl/gezond/meer-soas-in-de-zomer-met-name-gonorroe-en-syfilis-maken-comeback-hier-moet-je-op-letten~a597bded/)
-  > Zomer. Dat betekent festivals, vakantieliefdes en spontane ‘ontmoetingen’. En waar nieuwe seksuele contacten zijn, neemt ook het risico op een soa...
+- [‘Kost ons tussen 80 en 120 miljoen’: eredivisie-baas hamert bij clubs op betere prestaties in Europa](https://www.ad.nl/voetbal/kost-ons-tussen-80-en-120-miljoen-eredivisie-baas-hamert-bij-clubs-op-betere-prestaties-in-europa~a1cfdcf95/)
+  > Eredivisie CV-directeur Jan de Jong is niet te spreken de keuzes die sommige Nederlandse clubs de afgelopen seizoenen maakten in Europa. Het...
+- [Iran weigert gesprek met Trump: ‘Praten niet met VS zolang deal geschonden wordt’](https://www.ad.nl/buitenland/iran-weigert-gesprek-met-trump-praten-niet-met-vs-zolang-deal-geschonden-wordt~ac528ac3/)
+  > Iran is niet in gesprek met de Verenigde Staten en is dat ook niet van plan zolang de overeenkomst van juni geschonden wordt, zegt de Iraanse...
+- [Hoge temperaturen op komst, kans op 35 graden en zelfs op een regionale hittegolf](https://www.ad.nl/binnenland/hoge-temperaturen-op-komst-kans-op-35-graden-en-zelfs-op-een-regionale-hittegolf~afc59202/)
+  > De temperaturen lopen komende week vanaf woensdag weer op. Weeronline verwacht dat het donderdag en vrijdag lokaal 30 tot 35 graden wordt. Daardoor...
+- [Villa Jan des Bouvrie nadert vervelend jubileum, wat is er toch mis mee?](https://www.ad.nl/binnenland/villa-jan-des-bouvrie-nadert-vervelend-jubileum-wat-is-er-toch-mis-mee~a5c1d6c5/)
+  > Het schiet maar niet op met de verkoop van de villa van Jan des Bouvrie: bijna vijf jaar staat het pronkstuk van de in 2020 overleden designer te...
+- [Giovanni van Bronckhorst kiest voor drie debutanten bij Feyenoord tegen Sparta](https://www.ad.nl/voetbal/giovanni-van-bronckhorst-kiest-voor-drie-debutanten-bij-feyenoord-tegen-sparta~a1305c3d/)
+  > De eerste zondag van het nieuwe eredivisieseizoen wordt afgetrapt met een derby. Op het Kasteel nemen Sparta en Feyenoord het tegen elkaar op. Volg...
 
 ### Meest gelezen
 
@@ -48,16 +48,16 @@
 
 ### Laatste nieuws
 
+- [Amerikaans ministerie van defensie: defensiebedrijven moeten productie opvoeren](https://fd.nl/bedrijfsleven/1606888/amerikaans-ministerie-van-defensie-defensiebedrijven-moeten-productie-opvoeren)
+  > ‘Ontwikkelingscycli van jaren zijn onaanvaardbaar’, schreef Feinberg in een brief aan grote Amerikaanse defensiebedrijven.
+- [Bouwsector in de knel door aanhoudende droogte](https://fd.nl/bedrijfsleven/1606770/bouwsector-in-de-knel-door-aanhoudende-droogte)
+  > Gesloten sluizen en kanalen bemoeilijken de aanvoer van grondstoffen voor de bouw. Weg- en woningbouwprojecten komen onder druk te staan, waarschuwt...
+- [Elke kleiduifschieter kent de lanceermachines van Laporte](https://fd.nl/bedrijfsleven/1601819/elke-kleiduifschieter-kent-de-lanceermachines-van-laporte)
+  > Al bijna honderd jaar maakt het Franse familiebedrijf lanceermachines voor de kleiduifsport. Niemand in deze nichemarkt kan om Laporte heen, zegt een...
+- [Taiwan wil defensieuitgaven met 16% verhogen](https://fd.nl/politiek/1606887/taiwan-wil-defensieuitgaven-met-16-verhogen)
+  > Al eerder beloofde de Taiwanese regering de defensie te moderniseren, zoals met de ontwikkeling van onderzeeërs.
 - [Iran zegt dat akkoord over Hormuz ‘zeer dicht’ bij is, maar heeft wel eisen](https://fd.nl/politiek/1606886/iran-zegt-dat-akkoord-over-hormuz-zeer-dicht-bij-is-maar-heeft-wel-eisen)
   > De Verenigde Staten hebben nog niet gereageerd of het eindresultaat van het Hormuz-akkoord bevredigend zal zijn voor de VS.
-- [Nederlandse conservatoria bloeien, maar de arbeidspositie verdort](https://fd.nl/opinie/1606605/nederlandse-conservatoria-bloeien-maar-de-arbeidspositie-verdort)
-  > Er wordt volop gestudeerd aan Nederlandse conservatoria, maar niet door Nederlandse studenten. De sector moet eens de hand in eigen boezem steken.
-- [Shell kiest voor fossiel, dat is een doodlopende weg](https://fd.nl/opinie/1606604/shell-kiest-voor-fossiel-dat-is-een-doodlopende-weg)
-  > Shell verkoopt zonne- en windparken en zet in op fossiel. Hiermee negeert het bedrijf zijn maatschappelijke verantwoordelijkheid, schrijft Jan...
-- [Commissaris van de Koning: ‘De druk op lokale bestuurders ontspoort’](https://fd.nl/politiek/1602216/commissaris-van-de-koning-de-druk-op-lokale-bestuurders-ontspoort)
-  > VVD’er Arthur van Dijk is commissaris van de Koning in Noord-Holland. Hij pleit voor naleving van de spreidingswet, ook al is hij geen ‘superfan’.
-- [Luisterverhaal: Beretta bestaat 500 jaar: hoe de vijftiende generatie een wapen­imperium uitbouwt](https://fd.nl/samenleving/1606665/luisterverhaal-beretta-bestaat-500-jaar-hoe-de-vijftiende-generatie-een-wapenimperium-uitbouwt)
-  > Deze week hoor je het verhaal van wapenfabrikant Beretta, een 500 jaar oud Italiaans familiebedrijf.
 
 ### Meest gelezen
 
