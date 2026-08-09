@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-08-2026 om 10:38*
+*Laatst bijgewerkt: 09-08-2026 om 11:32*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Tanker van Russische schaduwvloot gestrand: olieramp voor Omaanse kust](https://nos.nl/l/2626127)
+  > Voor de zuidkust van Oman voltrekt zich een olieramp. Er lekt ruwe aardolie uit een vastgelopen tanker die naar schatting zeker 800.000 vaten...
+- [Jonge Thaise schoolschutter keek online naar gewelddadige content](https://nos.nl/l/2626125)
+  > De jongen van 14 die vrijdag in Thailand acht mensen doodschoot, had online naar gewelddadige content gekeken. Dat blijkt het onderzoek van de...
 - [Zeppelin vol meetapparatuur boven Nederland, onderzoekt luchtkwaliteit](https://nos.nl/l/2626122)
   > Wie de komende dagen in enkele delen van Nederland omhoog kijkt, kan een opmerkelijk luchtvaartuig zien overvliegen. Een zeppelin met een lengte van...
 - [Twee verdachten aangehouden voor gewelddadige woningoverval in Helmond](https://nos.nl/l/2626119)
@@ -15,10 +19,6 @@
 - [Explosie bij woning in Arnhem, gesprongen ramen maar geen gewonden](https://nos.nl/l/2626114)
   > Bij een woning in Arnhem was vannacht een explosie. Daardoor is een aantal ramen gesprongen, meldt de politie.
         De politie kreeg rond 02.00...
-- [Helikopterpiloten omgekomen bij bestrijden bosbrand in Amerikaanse staat Utah](https://nos.nl/l/2626104)
-  > In de Amerikaanse staat Utah zijn twee helikopterpiloten om het leven gekomen tijdens het bestrijden van een bosbrand. Hun blushelikopter stortte...
-- [Unieke aanpak stopt jarenlange overlast in Rotterdamse wijk: 'Rustig vanaf nacht één'](https://nos.nl/l/2626102)
-  > "Ik heb heerlijk geslapen", klinkt het vaak in gesprek met bewoners van de Rotterdamse wijk De Esch. Twee weken geleden werd daar een paardenmiddel...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Nederlandse toeristen jagen op Egyptische dieven in Rimini: boksbeugel en coke gevonden](https://www.ad.nl/buitenland/nederlandse-toeristen-jagen-op-egyptische-dieven-in-rimini-boksbeugel-en-coke-gevonden~a4195717/)
-  > Twee Nederlandse toeristen zijn zaterdagochtend in de Italiaanse badplaats Rimini bestolen, maar lieten dat er niet bij zitten. Toen de politie...
-- [Feyenoord dringt aan, maar heeft opening nog niet gevonden in derby tegen Sparta](https://www.ad.nl/voetbal/feyenoord-dringt-aan-maar-heeft-opening-nog-niet-gevonden-in-derby-tegen-sparta~a1305c3d/)
-  > De eerste zondag van het nieuwe eredivisieseizoen wordt afgetrapt met een derby. Op het Kasteel nemen Sparta en Feyenoord het tegen elkaar op. Volg...
-- [Jessica Schilder en coach Gert Damkat (61) verklaren elkaar ‘eeuwige liefde’: ‘Als hij weg wil, bind ik hem vast’](https://www.ad.nl/andere-sporten/jessica-schilder-en-coach-gert-damkat-61-verklaren-elkaar-eeuwige-liefde-als-hij-weg-wil-bind-ik-hem-vast~a820578e/)
-  > Bijna elke kogel die Jessica Schilder (27) aanraakt, lijkt in goud te veranderen. In Birmingham jaagt de regerend wereldkampioene komende week op...
-- [Harry Potter-ster Jessie Cave verdient meer met OnlyFans dan met acteren, zonder pikante content te delen](https://www.ad.nl/show/harry-potter-ster-jessie-cave-verdient-meer-met-onlyfans-dan-met-acteren-zonder-pikante-content-te-delen~a16555f4/)
-  > Jessie Cave, de actrice die Lavender Brown speelt in de Harry Potter-films, heeft meer verdiend met OnlyFans dan met haar acteercarrière. De...
-- [Valente nieuwe captain Feyenoord: ‘Denk dat dit hem gaat helpen een volgende stap te maken’](https://www.ad.nl/voetbal/valente-nieuwe-captain-feyenoord-denk-dat-dit-hem-gaat-helpen-een-volgende-stap-te-maken~a7418b5d/)
-  > Feyenoord-trainer Giovanni van Bronckhorst heeft Luciano Valente benoemd tot aanvoerder van zijn elftal. Dat heeft de club een dag voor de start van...
+- [Ierse topcrimineel, die jaren in Nederland woonde, vanuit Dubai teruggebracht naar Ierland](https://www.ad.nl/buitenland/ierse-topcrimineel-die-jaren-in-nederland-woonde-vanuit-dubai-teruggebracht-naar-ierland~af098265/)
+  > De Ierse topcrimineel Daniel Kinahan (49) wordt zondag vanuit de Verenigde Arabische Emiraten teruggebracht naar Ierland, meldt onder meer de Ierse...
+- [Doelman Ter Stegen debuteert voor Ajax tegen PEC, ook Henrique start](https://www.ad.nl/voetbal/doelman-ter-stegen-debuteert-voor-ajax-tegen-pec-ook-henrique-start~a10c2b64/)
+  > Tussen de Europese verplichtingen door start het eredivisieseizoen ook voor Ajax. De Amsterdammers starten het jaar met een uitwedstrijd bij PEC...
+- [Door Fenerbahçe begeerde Ueda geeft voorkeur aan Engeland, Araujo op weg naar Liverpool](https://www.ad.nl/voetbal/door-fenerbahce-begeerde-ueda-geeft-voorkeur-aan-engeland-araujo-op-weg-naar-liverpool~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
+- [Voor ze het wist, was Monique (47) 1000 euro kwijt: ‘De deuren sloten en de metro reed weg’](https://www.ad.nl/geld/voor-ze-het-wist-was-monique-47-1000-euro-kwijt-de-deuren-sloten-en-de-metro-reed-weg~adc99161/)
+  > Monique (47) raakte 1000 euro kwijt doordat ze in de Parijse metro werd gerold en haar tas met werkelijk alles erin werd gestolen. Iedereen maakt...
+- [Feyenoord mist in openingsfase tweede helft talloze kansen tegen tam Sparta](https://www.ad.nl/voetbal/feyenoord-mist-in-openingsfase-tweede-helft-talloze-kansen-tegen-tam-sparta~a1305c3d/)
+  > De eerste zondag van het nieuwe eredivisieseizoen wordt afgetrapt met een derby. Op het Kasteel staat Feyenoord halverwege op een verdiende...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Triodos Bank: ‘Extreme hitte kan economische groei EU tenietdoen’](https://fd.nl/economie/1606890/triodos-bank-extreme-hitte-kan-economische-groei-eu-tenietdoen)
+  > Een lagere arbeidsproductiviteit zorgt voor de grootste schade, gevolgd door de impact op de landbouw, het transport en de energieproductie.
+- [Met Iraans Hormuz-akkoord gaat Oman in tegen bondgenoot VS](https://fd.nl/politiek/1606876/met-iraans-hormuz-akkoord-gaat-oman-in-tegen-bondgenoot-vs)
+  > Washington is fel tegen afspraken die Iran zeggenschap geven over de Straat van Hormuz, maar Oman kan daarvan profiteren.
+- [TKH moet haperende kabelfabriek aan praat krijgen in aanloop naar afsplitsing](https://fd.nl/bedrijfsleven/1606826/tkh-moet-haperende-kabelfabriek-aan-praat-krijgen-in-aanloop-naar-afsplitsing)
+  > TKH bereidt een zelfstandige toekomst voor zijn elektrificatiedivisie voor. Dat kan via een eigen beursnotering of een verkoop aan branchegenoot of...
 - [Prostaatkanker uitgezaaid bij Joe Biden, zegt zijn zoon](https://fd.nl/politiek/1606889/prostaatkanker-uitgezaaid-bij-joe-biden-zegt-zijn-zoon)
   > ‘Het is erg pijnlijk’ en ‘erg slopend’, zegt zoon Hunter Biden in een interview met de BBC.
 - [Hoe Bending Spoons een miljardenimperium opbouwde met noodlijdende merken](https://fd.nl/bedrijfsleven/1603439/hoe-bending-spoons-een-miljardenimperium-opbouwde-met-noodlijdende-merken)
   > Het Italiaanse Bending Spoons ging in juli naar de beurs. Het koopt ondernemingen en reorganiseert die met harde hand, met eigen personeel. Inmiddels...
-- [Amerikaans ministerie van defensie: defensiebedrijven moeten productie opvoeren](https://fd.nl/bedrijfsleven/1606888/amerikaans-ministerie-van-defensie-defensiebedrijven-moeten-productie-opvoeren)
-  > ‘Ontwikkelingscycli van jaren zijn onaanvaardbaar’, schreef Feinberg in een brief aan grote Amerikaanse defensiebedrijven.
-- [Bouwsector in de knel door aanhoudende droogte](https://fd.nl/bedrijfsleven/1606770/bouwsector-in-de-knel-door-aanhoudende-droogte)
-  > Gesloten sluizen en kanalen bemoeilijken de aanvoer van grondstoffen voor de bouw. Weg- en woningbouwprojecten komen onder druk te staan, waarschuwt...
-- [Elke kleiduifschieter kent de lanceermachines van Laporte](https://fd.nl/bedrijfsleven/1601819/elke-kleiduifschieter-kent-de-lanceermachines-van-laporte)
-  > Al bijna honderd jaar maakt het Franse familiebedrijf lanceermachines voor de kleiduifsport. Niemand in deze nichemarkt kan om Laporte heen, zegt een...
 
 ### Meest gelezen
 
