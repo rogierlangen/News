@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-08-2026 om 23:32*
+*Laatst bijgewerkt: 09-08-2026 om 02:00*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Oma, dochter, kleindochter en piloot omgekomen bij helikoptercrash in Rio de Janeiro](https://www.ad.nl/buitenland/oma-dochter-kleindochter-en-piloot-omgekomen-bij-helikoptercrash-in-rio-de-janeiro~a8f94604/)
+  > Bij een helikopterongeluk in Rio de Janeiro zijn zaterdag vier mensen om het leven gekomen, melden de autoriteiten in de Braziliaanse stad. Drie van...
+- [Over een jaar moet de eerste asielzoeker komen, maar Engelen is al maanden verscheurd: ‘Te triest voor woorden’](https://www.ad.nl/binnenland/over-een-jaar-moet-de-eerste-asielzoeker-komen-maar-engelen-is-al-maanden-verscheurd-te-triest-voor-woorden~a0872b2f/)
+  > Het lieflijke Brabantse dorp Engelen is tot op het bot verdeeld over de geplande komst van vijftig jonge asielzoekers. Dat zorgt voor een giftige...
+- [Noodtoestand in West-Canadese provincie vanwege natuurbranden: ‘Een bom die ontplofte’](https://www.ad.nl/buitenland/noodtoestand-in-west-canadese-provincie-vanwege-natuurbranden-een-bom-die-ontplofte~aeee5a3c/)
+  > In de West-Canadese provincie British Columbia is de noodtoestand uitgeroepen vanwege de natuurbranden die er woeden. Meer dan 20.000 mensen in de...
+- [Iran: Straat van Hormuz pas open als VS zich terugtrekken en schade vergoeden](https://www.ad.nl/buitenland/iran-straat-van-hormuz-pas-open-als-vs-zich-terugtrekken-en-schade-vergoeden~ac528ac3/)
+  > Iran zal de Straat van Hormuz pas heropenen, als het Amerikaanse leger zijn troepen terugtrekt en de Verenigde Staten de schade vergoeden die ze in...
 - [Kanker bij Amerikaanse oud-president Joe Biden is uitgezaaid, zegt zijn zoon Hunter: ‘Het gaat niet goed’](https://www.ad.nl/buitenland/kanker-bij-amerikaanse-oud-president-joe-biden-is-uitgezaaid-zegt-zijn-zoon-hunter-het-gaat-niet-goed~a8e68231/)
   > De prostaatkanker bij de voormalige Amerikaanse president Joe Biden is uitgezaaid naar andere delen van zijn lichaam en zijn botten. Dat heeft zijn...
-- [FIFA veroordeelt pogingen Infantino te ondermijnen met ‘aantoonbaar valse beschuldigingen’](https://www.ad.nl/voetbal/fifa-veroordeelt-pogingen-infantino-te-ondermijnen-met-aantoonbaar-valse-beschuldigingen~a2544497/)
-  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
-- [Programma, stand en topscorers eredivisie | De uitslagen en het resterende schema voor de eerste speelronde](https://www.ad.nl/voetbal/programma-stand-en-topscorers-eredivisie-de-uitslagen-en-het-resterende-schema-voor-de-eerste-speelronde~a5ebff08/)
-  > SC Cambuur en Excelsior trapten op vrijdag 7 augustus het nieuwe eredivisieseizoen af. Bekijk in dit artikel het complete programma, met daaronder de...
-- [Peter Bosz gepikeerd na valse start met PSV: ‘Ik snap best dat je in discussie wil gaan, maar dat is echt onzin’](https://www.ad.nl/voetbal/peter-bosz-gepikeerd-na-valse-start-met-psv-ik-snap-best-dat-je-in-discussie-wil-gaan-maar-dat-is-echt-onzin~a051a1ee/)
-  > Peter Bosz stond zaterdagavond kribbig voor de camera van ESPN, ruim veertig minuten nadat Fortuna Sittard in de extra tijd nog de 2-2 had gemaakt...
-- [AZ klaart de klus binnen paar minuten: dapper ADO Den Haag verliest bij rentree in eredivisie](https://www.ad.nl/voetbal/az-klaart-de-klus-binnen-paar-minuten-dapper-ado-den-haag-verliest-bij-rentree-in-eredivisie~aa8770c1/)
-  > AZ heeft de overtuigende lijn van de Johan Cruijff Schaal doorgetrokken naar de eredivisie. Het gepromoveerde en dappere ADO Den Haag ging met 2-0...
 
 ### Meest gelezen
 
