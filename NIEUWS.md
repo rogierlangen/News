@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-08-2026 om 09:43*
+*Laatst bijgewerkt: 09-08-2026 om 10:38*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Zeppelin vol meetapparatuur boven Nederland, onderzoekt luchtkwaliteit](https://nos.nl/l/2626122)
+  > Wie de komende dagen in enkele delen van Nederland omhoog kijkt, kan een opmerkelijk luchtvaartuig zien overvliegen. Een zeppelin met een lengte van...
 - [Twee verdachten aangehouden voor gewelddadige woningoverval in Helmond](https://nos.nl/l/2626119)
   > De politie heeft twee verdachten aangehouden voor een gewelddadige overval in Helmond. Het gaat om een 36-jarige man uit Den Haag en een 17-jarige...
 - [Explosie bij woning in Arnhem, gesprongen ramen maar geen gewonden](https://nos.nl/l/2626114)
@@ -17,9 +19,6 @@
   > In de Amerikaanse staat Utah zijn twee helikopterpiloten om het leven gekomen tijdens het bestrijden van een bosbrand. Hun blushelikopter stortte...
 - [Unieke aanpak stopt jarenlange overlast in Rotterdamse wijk: 'Rustig vanaf nacht één'](https://nos.nl/l/2626102)
   > "Ik heb heerlijk geslapen", klinkt het vaak in gesprek met bewoners van de Rotterdamse wijk De Esch. Twee weken geleden werd daar een paardenmiddel...
-- [Wekdienst 9/8: Zeppelin meet luchtkwaliteit • Slotetappe Tour de France Femmes](https://nos.nl/l/2626097)
-  > Goedemorgen! Boven de Veluwe is vandaag iets bijzonders te zien en de wielrensters van de Tour de Frances Femmes rijden de laatste etappe.
-       ...
 
 ### Meest gelezen
 
@@ -29,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [‘Kost ons tussen 80 en 120 miljoen’: eredivisie-baas hamert bij clubs op betere prestaties in Europa](https://www.ad.nl/voetbal/kost-ons-tussen-80-en-120-miljoen-eredivisie-baas-hamert-bij-clubs-op-betere-prestaties-in-europa~a1cfdcf95/)
-  > Eredivisie CV-directeur Jan de Jong is niet te spreken de keuzes die sommige Nederlandse clubs de afgelopen seizoenen maakten in Europa. Het...
-- [Iran weigert gesprek met Trump: ‘Praten niet met VS zolang deal geschonden wordt’](https://www.ad.nl/buitenland/iran-weigert-gesprek-met-trump-praten-niet-met-vs-zolang-deal-geschonden-wordt~ac528ac3/)
-  > Iran is niet in gesprek met de Verenigde Staten en is dat ook niet van plan zolang de overeenkomst van juni geschonden wordt, zegt de Iraanse...
-- [Hoge temperaturen op komst, kans op 35 graden en zelfs op een regionale hittegolf](https://www.ad.nl/binnenland/hoge-temperaturen-op-komst-kans-op-35-graden-en-zelfs-op-een-regionale-hittegolf~afc59202/)
-  > De temperaturen lopen komende week vanaf woensdag weer op. Weeronline verwacht dat het donderdag en vrijdag lokaal 30 tot 35 graden wordt. Daardoor...
-- [Villa Jan des Bouvrie nadert vervelend jubileum, wat is er toch mis mee?](https://www.ad.nl/binnenland/villa-jan-des-bouvrie-nadert-vervelend-jubileum-wat-is-er-toch-mis-mee~a5c1d6c5/)
-  > Het schiet maar niet op met de verkoop van de villa van Jan des Bouvrie: bijna vijf jaar staat het pronkstuk van de in 2020 overleden designer te...
-- [Giovanni van Bronckhorst kiest voor drie debutanten bij Feyenoord tegen Sparta](https://www.ad.nl/voetbal/giovanni-van-bronckhorst-kiest-voor-drie-debutanten-bij-feyenoord-tegen-sparta~a1305c3d/)
+- [Nederlandse toeristen jagen op Egyptische dieven in Rimini: boksbeugel en coke gevonden](https://www.ad.nl/buitenland/nederlandse-toeristen-jagen-op-egyptische-dieven-in-rimini-boksbeugel-en-coke-gevonden~a4195717/)
+  > Twee Nederlandse toeristen zijn zaterdagochtend in de Italiaanse badplaats Rimini bestolen, maar lieten dat er niet bij zitten. Toen de politie...
+- [Feyenoord dringt aan, maar heeft opening nog niet gevonden in derby tegen Sparta](https://www.ad.nl/voetbal/feyenoord-dringt-aan-maar-heeft-opening-nog-niet-gevonden-in-derby-tegen-sparta~a1305c3d/)
   > De eerste zondag van het nieuwe eredivisieseizoen wordt afgetrapt met een derby. Op het Kasteel nemen Sparta en Feyenoord het tegen elkaar op. Volg...
+- [Jessica Schilder en coach Gert Damkat (61) verklaren elkaar ‘eeuwige liefde’: ‘Als hij weg wil, bind ik hem vast’](https://www.ad.nl/andere-sporten/jessica-schilder-en-coach-gert-damkat-61-verklaren-elkaar-eeuwige-liefde-als-hij-weg-wil-bind-ik-hem-vast~a820578e/)
+  > Bijna elke kogel die Jessica Schilder (27) aanraakt, lijkt in goud te veranderen. In Birmingham jaagt de regerend wereldkampioene komende week op...
+- [Harry Potter-ster Jessie Cave verdient meer met OnlyFans dan met acteren, zonder pikante content te delen](https://www.ad.nl/show/harry-potter-ster-jessie-cave-verdient-meer-met-onlyfans-dan-met-acteren-zonder-pikante-content-te-delen~a16555f4/)
+  > Jessie Cave, de actrice die Lavender Brown speelt in de Harry Potter-films, heeft meer verdiend met OnlyFans dan met haar acteercarrière. De...
+- [Valente nieuwe captain Feyenoord: ‘Denk dat dit hem gaat helpen een volgende stap te maken’](https://www.ad.nl/voetbal/valente-nieuwe-captain-feyenoord-denk-dat-dit-hem-gaat-helpen-een-volgende-stap-te-maken~a7418b5d/)
+  > Feyenoord-trainer Giovanni van Bronckhorst heeft Luciano Valente benoemd tot aanvoerder van zijn elftal. Dat heeft de club een dag voor de start van...
 
 ### Meest gelezen
 
@@ -48,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Prostaatkanker uitgezaaid bij Joe Biden, zegt zijn zoon](https://fd.nl/politiek/1606889/prostaatkanker-uitgezaaid-bij-joe-biden-zegt-zijn-zoon)
+  > ‘Het is erg pijnlijk’ en ‘erg slopend’, zegt zoon Hunter Biden in een interview met de BBC.
+- [Hoe Bending Spoons een miljardenimperium opbouwde met noodlijdende merken](https://fd.nl/bedrijfsleven/1603439/hoe-bending-spoons-een-miljardenimperium-opbouwde-met-noodlijdende-merken)
+  > Het Italiaanse Bending Spoons ging in juli naar de beurs. Het koopt ondernemingen en reorganiseert die met harde hand, met eigen personeel. Inmiddels...
 - [Amerikaans ministerie van defensie: defensiebedrijven moeten productie opvoeren](https://fd.nl/bedrijfsleven/1606888/amerikaans-ministerie-van-defensie-defensiebedrijven-moeten-productie-opvoeren)
   > ‘Ontwikkelingscycli van jaren zijn onaanvaardbaar’, schreef Feinberg in een brief aan grote Amerikaanse defensiebedrijven.
 - [Bouwsector in de knel door aanhoudende droogte](https://fd.nl/bedrijfsleven/1606770/bouwsector-in-de-knel-door-aanhoudende-droogte)
   > Gesloten sluizen en kanalen bemoeilijken de aanvoer van grondstoffen voor de bouw. Weg- en woningbouwprojecten komen onder druk te staan, waarschuwt...
 - [Elke kleiduifschieter kent de lanceermachines van Laporte](https://fd.nl/bedrijfsleven/1601819/elke-kleiduifschieter-kent-de-lanceermachines-van-laporte)
   > Al bijna honderd jaar maakt het Franse familiebedrijf lanceermachines voor de kleiduifsport. Niemand in deze nichemarkt kan om Laporte heen, zegt een...
-- [Taiwan wil defensieuitgaven met 16% verhogen](https://fd.nl/politiek/1606887/taiwan-wil-defensieuitgaven-met-16-verhogen)
-  > Al eerder beloofde de Taiwanese regering de defensie te moderniseren, zoals met de ontwikkeling van onderzeeërs.
-- [Iran zegt dat akkoord over Hormuz ‘zeer dicht’ bij is, maar heeft wel eisen](https://fd.nl/politiek/1606886/iran-zegt-dat-akkoord-over-hormuz-zeer-dicht-bij-is-maar-heeft-wel-eisen)
-  > De Verenigde Staten hebben nog niet gereageerd of het eindresultaat van het Hormuz-akkoord bevredigend zal zijn voor de VS.
 
 ### Meest gelezen
 
