@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-08-2026 om 20:36*
+*Laatst bijgewerkt: 09-08-2026 om 21:35*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [In Het Wiel | ‘Demi Vollering lijkt meer in balans dan we ooit hebben gezien’](https://www.ad.nl/tour-de-france/in-het-wiel-demi-vollering-lijkt-meer-in-balans-dan-we-ooit-hebben-gezien~a58111af/)
+  > Demi Vollering laat er geen twijfel over bestaan wie deze week de beste was. De Europees kampioene wint de slotrit in Nice en geeft daarmee nog wat...
+- [NBA-speler en succestrainer Don Nelson (86) overleden](https://www.ad.nl/andere-sporten/nba-speler-en-succestrainer-don-nelson-86-overleden~a0e5467a/)
+  > Voormalig basketballer en NBA-coach Don Nelson is op 86-jarige leeftijd overleden. De familie van de basketballer, die tussen 1966 en 1976 vijf keer...
+- [Teun Koopmeiners mogelijk betrokken in ruildeal, PSG haalt Frans international en Ueda geeft voorkeur aan Engeland](https://www.ad.nl/voetbal/teun-koopmeiners-mogelijk-betrokken-in-ruildeal-psg-haalt-frans-international-en-ueda-geeft-voorkeur-aan-engeland~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
 - [PSV maakt zelfde fout als Feyenoord en Tadic heeft alleen Berghuis voor zich: start eredivisie in cijfers](https://www.ad.nl/voetbal/psv-maakt-zelfde-fout-als-feyenoord-en-tadic-heeft-alleen-berghuis-voor-zich-start-eredivisie-in-cijfers~a4daad45/)
   > De eredivisie is weer begonnen! PSV morste punten tegen Fortuna, Feyenoord ontsnapte aan een gelijkspel bij Sparta en Ajax won moeizaam van PEC...
 - [Hoe een stroopwafel uit Nederland gewoon in de grootste Russische winkel kan belanden](https://www.ad.nl/economie/hoe-een-stroopwafel-uit-nederland-gewoon-in-de-grootste-russische-winkel-kan-belanden~a7f88242/)
   > Wat hebben Franse huismerken, Italiaanse aardappels en stroopwafels uit Oss met elkaar gemeen? Dat ze dankzij een connectie in Dubai moeiteloos te...
-- [PSG haalt Franse international, door Turkse topclub begeerde Ueda geeft voorkeur aan Engeland](https://www.ad.nl/voetbal/psg-haalt-franse-international-door-turkse-topclub-begeerde-ueda-geeft-voorkeur-aan-engeland~acbd43e6/)
-  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
-- [Tourzege vertelt groter verhaal dan alleen het geel: Vollering maakt van gezondheid haar grootste wapen](https://www.ad.nl/tour-de-france/tourzege-vertelt-groter-verhaal-dan-alleen-het-geel-vollering-maakt-van-gezondheid-haar-grootste-wapen~aa3bb6da/)
-  > In het sterkste deelnemersveld en op het zwaarste parkoers ooit heeft Demi Vollering haar tweede Tour de France Femmes gewonnen. De prestaties van de...
-- [Niet alleen in Marokko is het uitzichtloos](https://www.ad.nl/binnenland/niet-alleen-in-marokko-is-het-uitzichtloos~a713227f/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 
 ### Meest gelezen
 
