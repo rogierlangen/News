@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-08-2026 om 21:35*
+*Laatst bijgewerkt: 09-08-2026 om 22:34*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Zes doden en tientallen gewonden bij Oekraïense droneaanval op Russisch logistiek knooppunt Belgorod](https://www.ad.nl/buitenland/zes-doden-en-tientallen-gewonden-bij-oekraiense-droneaanval-op-russisch-logistiek-knooppunt-belgorod~adfb97be/)
+  > Bij een Oekraïense droneaanval op de Russische grensstad Belgorod zijn zondag minstens zes mensen omgekomen en 27 gewonden gevallen, zo meldden de...
+- [Voetbalpodcast | ‘Van de drie topclubs haalde Feyenoord het hoogste niveau dit weekend’](https://www.ad.nl/voetbal/voetbalpodcast-van-de-drie-topclubs-haalde-feyenoord-het-hoogste-niveau-dit-weekend~a42af5cd9/)
+  > De eerste speelronde in de Eredivisie zit erop. Wie zijn de winnaars van het weekend en wie niet? In de AD Voetbalpodcast nemen Etienne Verhoeff en...
 - [In Het Wiel | ‘Demi Vollering lijkt meer in balans dan we ooit hebben gezien’](https://www.ad.nl/tour-de-france/in-het-wiel-demi-vollering-lijkt-meer-in-balans-dan-we-ooit-hebben-gezien~a58111af/)
   > Demi Vollering laat er geen twijfel over bestaan wie deze week de beste was. De Europees kampioene wint de slotrit in Nice en geeft daarmee nog wat...
 - [NBA-speler en succestrainer Don Nelson (86) overleden](https://www.ad.nl/andere-sporten/nba-speler-en-succestrainer-don-nelson-86-overleden~a0e5467a/)
   > Voormalig basketballer en NBA-coach Don Nelson is op 86-jarige leeftijd overleden. De familie van de basketballer, die tussen 1966 en 1976 vijf keer...
 - [Teun Koopmeiners mogelijk betrokken in ruildeal, PSG haalt Frans international en Ueda geeft voorkeur aan Engeland](https://www.ad.nl/voetbal/teun-koopmeiners-mogelijk-betrokken-in-ruildeal-psg-haalt-frans-international-en-ueda-geeft-voorkeur-aan-engeland~acbd43e6/)
   > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
-- [PSV maakt zelfde fout als Feyenoord en Tadic heeft alleen Berghuis voor zich: start eredivisie in cijfers](https://www.ad.nl/voetbal/psv-maakt-zelfde-fout-als-feyenoord-en-tadic-heeft-alleen-berghuis-voor-zich-start-eredivisie-in-cijfers~a4daad45/)
-  > De eredivisie is weer begonnen! PSV morste punten tegen Fortuna, Feyenoord ontsnapte aan een gelijkspel bij Sparta en Ajax won moeizaam van PEC...
-- [Hoe een stroopwafel uit Nederland gewoon in de grootste Russische winkel kan belanden](https://www.ad.nl/economie/hoe-een-stroopwafel-uit-nederland-gewoon-in-de-grootste-russische-winkel-kan-belanden~a7f88242/)
-  > Wat hebben Franse huismerken, Italiaanse aardappels en stroopwafels uit Oss met elkaar gemeen? Dat ze dankzij een connectie in Dubai moeiteloos te...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Belangrijke Duitse order voor elektrische bussen van Ebusco geschrapt](https://fd.nl/bedrijfsleven/1606894/duitse-order-voor-elektrische-bussen-van-ebusco-geschrapt)
-  > Ebusco bestudeert wat de financiële gevolgen zijn van de annulering en mogelijke Duitse claims, aldus het noodlijdende bedrijf.
-- [Strijd tegen droogte vereist overstijgende blik](https://fd.nl/opinie/1606760/strijd-tegen-droogte-vereist-overstijgende-blik)
-  > De relatie tussen Nederland en water verandert. Niet enkel te veel, ook te weinig water bedreigt huishoudens, bedrijven en infrastructuur.
-- [Twee drones gesignaleerd bij Duitse vliegbasis bij Bonn](https://fd.nl/samenleving/1606986/twee-drones-gesignaleerd-bij-duitse-vliegbasis-bij-bonn)
-  > Het Duitse leger heeft dit weekend bekendgemaakt dat er vorige week twee drones zijn gezien bij een militaire basis in de buurt van Bonn.
-- [Streaming 2.0 helpt Universal nog niet vooruit](https://fd.nl/financiele-markten/1606675/streaming-2-0-helpt-universal-nog-niet-vooruit)
-  > Universal Music Group ziet de omzet uit streamingdiensten niet meer zo hard groeien. Is dat een probleem voor de gehele muziekindustrie?
-- [Bol haalt eclipsbrillen van twintig aanbieders offline omdat ze niet voldoen aan de eisen](https://fd.nl/samenleving/1606841/bol-com-haalt-twintigtal-aanbieders-eclipsbrillen-offline)
-  > Het gaat om brillen die mogelijk onvoldoende bescherming bieden, aldus de webwinkel. Artsen raden aan om een goede eclipsbril te dragen tijdens de...
+- [Kakkerlakken, verenigt u](https://fd.nl/opinie/1606893/kakkerlakken-verenigt-u)
+  > De klacht dat samenlevingen jongeren te weinig toekomstperspectief bieden, leeft volgens columnist Casper Thomas wereldwijd.
+- [Bedrijfsleven kent flinke winstgroei en stijgende beurskoersen, ondanks oorlog](https://fd.nl/economie/1606781/bedrijfsleven-kent-flinke-winstgroei-en-stijgende-beurskoersen-ondanks-oorlog)
+  > De winstgroei van Europese bedrijven bedroeg in het tweede kwartaal van dit jaar 22%. Beloning volgde op de beurs met flink hogere koersen.
+- [General Motors piekt op de beurs nu de SUV weer mag](https://fd.nl/bedrijfsleven/1606772/general-motors-piekt-op-de-beurs-nu-de-suv-weer-mag)
+  > De Amerikaanse autofabrikant heeft minder last van het zigzagbeleid in de VS dan de concurrentie. GM ging al nooit voorop in de elektrificatie.
+- [Geen nieuwbouw, veel verkoop: de private huurmarkt in kleinere steden dreigt te verdwijnen](https://fd.nl/samenleving/1606420/geen-nieuwbouw-veel-verkoop-de-private-huurmarkt-in-kleinere-steden-dreigt-te-verdwijnen)
+  > Niet alleen in de Randstad, ook in gemeenten als Venray, Gouda en Krimpen aan den IJssel verkopen vastgoedbeleggers massaal hun huurhuizen. De...
+- [Korter werken? Waar een wil is, is een weg](https://fd.nl/opinie/1605158/wat-heeft-waarde)
+  > Minder werken en toch meer verdienen? Volgens econoom Thomas Piketty is dat zeker mogelijk – met een andere mindset.
 
 ### Meest gelezen
 
