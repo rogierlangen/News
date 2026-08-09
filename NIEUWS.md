@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-08-2026 om 22:34*
+*Laatst bijgewerkt: 09-08-2026 om 23:34*
 
 ---
 
@@ -28,6 +28,8 @@
 
 ### Laatste nieuws
 
+- [Tunnel in grootste goudmijn van Egypte stort in: één dode, vijf gewonden](https://www.ad.nl/buitenland/tunnel-in-grootste-goudmijn-van-egypte-stort-in-een-dode-vijf-gewonden~a48500b0/)
+  > Bij de instorting van een deel van een goudmijn in het oosten van Egypte is een van de mijnwerkers om het leven gekomen. Dat melden de plaatselijke...
 - [Zes doden en tientallen gewonden bij Oekraïense droneaanval op Russisch logistiek knooppunt Belgorod](https://www.ad.nl/buitenland/zes-doden-en-tientallen-gewonden-bij-oekraiense-droneaanval-op-russisch-logistiek-knooppunt-belgorod~adfb97be/)
   > Bij een Oekraïense droneaanval op de Russische grensstad Belgorod zijn zondag minstens zes mensen omgekomen en 27 gewonden gevallen, zo meldden de...
 - [Voetbalpodcast | ‘Van de drie topclubs haalde Feyenoord het hoogste niveau dit weekend’](https://www.ad.nl/voetbal/voetbalpodcast-van-de-drie-topclubs-haalde-feyenoord-het-hoogste-niveau-dit-weekend~a42af5cd9/)
@@ -36,8 +38,6 @@
   > Demi Vollering laat er geen twijfel over bestaan wie deze week de beste was. De Europees kampioene wint de slotrit in Nice en geeft daarmee nog wat...
 - [NBA-speler en succestrainer Don Nelson (86) overleden](https://www.ad.nl/andere-sporten/nba-speler-en-succestrainer-don-nelson-86-overleden~a0e5467a/)
   > Voormalig basketballer en NBA-coach Don Nelson is op 86-jarige leeftijd overleden. De familie van de basketballer, die tussen 1966 en 1976 vijf keer...
-- [Teun Koopmeiners mogelijk betrokken in ruildeal, PSG haalt Frans international en Ueda geeft voorkeur aan Engeland](https://www.ad.nl/voetbal/teun-koopmeiners-mogelijk-betrokken-in-ruildeal-psg-haalt-frans-international-en-ueda-geeft-voorkeur-aan-engeland~acbd43e6/)
-  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
 
 ### Meest gelezen
 
