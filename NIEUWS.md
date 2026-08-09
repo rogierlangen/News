@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-08-2026 om 16:39*
+*Laatst bijgewerkt: 09-08-2026 om 17:34*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Frankrijk kondigt onderzoek aan naar ontplofte squishy waarbij 8-jarig jongetje brandwonden opliep](https://www.ad.nl/buitenland/frankrijk-kondigt-onderzoek-aan-naar-ontplofte-squishy-waarbij-8-jarig-jongetje-brandwonden-opliep~a0522e90/)
-  > In Frankrijk is een onderzoek geopend naar een incident met een ontplofte squishy, een populair speelgoed onder kinderen. Dat meldt het parket van...
-- [Zit de VS straks zonder wapens? Wereldwijd klinkt bezorgdheid over een tekort aan raketten](https://www.ad.nl/buitenland/zit-de-vs-straks-zonder-wapens-wereldwijd-klinkt-bezorgdheid-over-een-tekort-aan-raketten~a8c1aa0a/)
-  > De al vijf maanden durende oorlog in Iran put de Amerikaanse raketvoorraden alarmerend snel uit. Dat is een probleem voor Oekraïne en leidt ook tot...
-- [Eindelijk water uit de hemel, maar lang duurt het niet](https://www.ad.nl/binnenland/eindelijk-water-uit-de-hemel-maar-lang-duurt-het-niet~ae0303d7/)
-  > Wie druk is met een barbecue of de tuin vol heeft staan met spullen, moet opletten, want er komt regen aan. Vanaf 18.30 uur trekt een buienfront...
-- [Vollering oogt sterk en gaat in gele trui vlot mee met concurrente Niewiadoma, pakt Nederlandse de eindzege?](https://www.ad.nl/wielrennen/vollering-oogt-sterk-en-gaat-in-gele-trui-vlot-mee-met-concurrente-niewiadoma-pakt-nederlandse-de-eindzege~aef531d8/)
-  > De Tour de France Femmes beleeft vanmiddag de ontknoping. Demi Vollering verdedigt in de laatste etappe in Nice de gele trui. Wint ze voor de tweede...
-- ['Derde spits' Sam Lammers moet FC Twente redden: Heerenveen op weg naar zege](https://www.ad.nl/voetbal/derde-spits-sam-lammers-moet-fc-twente-redden-heerenveen-op-weg-naar-zege~add9a0e2/)
-  > Het seizoen is niet vlekkeloos begonnen voor FC Twente. Voor de ploeg uit Enschede staat meteen een moeilijke uitwedstrijd op het programma. FC...
+- [Bruiswater uit deze machine blijft 24 uur lang bruisen, maar werkt alleen met een cilinder van eigen merk](https://www.ad.nl/tech/bruiswater-uit-deze-machine-blijft-24-uur-lang-bruisen-maar-werkt-alleen-met-een-cilinder-van-eigen-merk~aafc30dc/)
+  > Wil je thuis je eigen bruiswater maken? Het voordeel: je hoeft niet meer met flessen uit de supermarkt te sjouwen. Dat is niet alleen beter voor je...
+- [Excelsior koploper na eerste speelronde, PSV morst eerste punten: dit is de ranglijst](https://www.ad.nl/voetbal/excelsior-koploper-na-eerste-speelronde-psv-morst-eerste-punten-dit-is-de-ranglijst~a5ebff08/)
+  > SC Cambuur en Excelsior trapten op vrijdag 7 augustus het nieuwe eredivisieseizoen af. Bekijk in dit artikel het complete programma, met daaronder de...
+- [Doodleuk inbreken op politieterrein wekt verbazing: ‘Zelfs reguliere agenten hebben geen toegang’](https://www.ad.nl/den-haag/doodleuk-inbreken-op-politieterrein-wekt-verbazing-zelfs-reguliere-agenten-hebben-geen-toegang~a1feaaa4/)
+  > Experts kijken er met verbazing naar: vijf dieven die dit weekend doodleuk een streng beveiligd politieterrein inklommen om hun slag te slaan. In Den...
+- [Opgelichte vakantiegangers verdienen meer bescherming van boekingsites](https://www.ad.nl/commentaar/opgelichte-vakantiegangers-verdienen-meer-bescherming-van-boekingsites~a72070ff/)
+  > Wie via platforms als Booking of Airbnb een accommodatie boekt, mag op zijn minst verwachten dat het gekozen verblijf bestaat. De bedrijven maken...
+- [Klassementen Tour de France Femmes | Drie Nederlanders winnen een trui, dit zijn alle verschillen](https://www.ad.nl/wielrennen/klassementen-tour-de-france-femmes-drie-nederlanders-winnen-een-trui-dit-zijn-alle-verschillen~a7bae757/)
+  > Demi Vollering heeft voor de tweede keer in haar carrière de Tour de France Femmes gewonnen. De Nederlandse van FDJ United-SUEZ was over negen ritten...
 
 ### Meest gelezen
 
