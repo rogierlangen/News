@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-08-2026 om 18:46*
+*Laatst bijgewerkt: 09-08-2026 om 19:36*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Frankrijk start onderzoek nadat 'squishy' ontploft in gezicht van kind](https://nos.nl/l/2626210)
+  > De Franse autoriteiten zijn een onderzoek gestart naar een speelgoedstressbal, nadat deze ontplofte in het gezicht van een jongetje. Hij liep...
 - [Houthi-aanval doodt zeven mensen in Jemen, ook Saudische raffinaderij geraakt](https://nos.nl/l/2626207)
   > Bij een aanval van Houthi's op de Jemenitische havenstad Mokka zijn zeker zeven doden gevallen. Het gaat om vier militairen en drie burgers, melden...
 - [Het blijft droog en warm, goed nieuws voor zonsverduistering van woensdag](https://nos.nl/l/2626203)
@@ -17,8 +19,6 @@
   > Cocaïne ter waarde van honderden miljoenen dollars gaat in Liberia in vlammen op. Een duidelijk signaal van de Liberiaanse autoriteiten: drugskartels...
 - [Natuurbrand in Andalusië dreigt op te rukken richting Sevilla](https://nos.nl/l/2626198)
   > Bij de Zuid-Spaanse plaats Niebla in Andalusië woedt een natuurbrand die de brandweer maar moeilijk onder controle krijgt. Het vuur heeft zich over...
-- [Rusland en Syrië sluiten akkoord over toekomst Russische bases](https://nos.nl/l/2626178)
-  > Rusland en Syrië zijn tot een overeenkomst gekomen over de toekomst van de Russische militaire bases in Syrië. Dat meldt het Syrische...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Hoe een stroopwafel uit Nederland gewoon in de grootste Russische winkel kan belanden](https://www.ad.nl/economie/hoe-een-stroopwafel-uit-nederland-gewoon-in-de-grootste-russische-winkel-kan-belanden~a7f88242/)
+  > Wat hebben Franse huismerken, Italiaanse aardappels en stroopwafels uit Oss met elkaar gemeen? Dat ze dankzij een connectie in Dubai moeiteloos te...
+- [PSG haalt Franse international, door Turkse topclub begeerde Ueda geeft voorkeur aan Engeland](https://www.ad.nl/voetbal/psg-haalt-franse-international-door-turkse-topclub-begeerde-ueda-geeft-voorkeur-aan-engeland~acbd43e6/)
+  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
+- [Tourzege vertelt groter verhaal dan alleen het geel: Vollering maakt van gezondheid haar grootste wapen](https://www.ad.nl/tour-de-france/tourzege-vertelt-groter-verhaal-dan-alleen-het-geel-vollering-maakt-van-gezondheid-haar-grootste-wapen~aa3bb6da/)
+  > In het sterkste deelnemersveld en op het zwaarste parkoers ooit heeft Demi Vollering haar tweede Tour de France Femmes gewonnen. De prestaties van de...
+- [Niet alleen in Marokko is het uitzichtloos](https://www.ad.nl/binnenland/niet-alleen-in-marokko-is-het-uitzichtloos~a713227f/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 - [Waar Riet gaat, is Truus ook: beroemde modetweeling is onafscheidelijk: ‘Zij begrijpt meteen wat ik bedoel’](https://www.ad.nl/mode/waar-riet-gaat-is-truus-ook-beroemde-modetweeling-is-onafscheidelijk-zij-begrijpt-meteen-wat-ik-bedoel~a0d26e4c/)
   > Ze maken elkaars zinnen af, slaan tijdens een wandeling hetzelfde zijpad in en maken tijdens een gesprek op precies hetzelfde moment dezelfde...
-- [Trump wil economische druk op Iran laten oplopen: ‘We houden Iran in de gaten’](https://www.ad.nl/buitenland/trump-wil-economische-druk-op-iran-laten-oplopen-we-houden-iran-in-de-gaten~ac528ac3/)
-  > De Amerikaanse president Donald Trump wil de economische druk op Iran laten oplopen. Vorige week dreigde Trump nog met een hervatting van de...
-- [Tallon Griekspoor kan knappe zeges geen vervolg geven en wordt in Montréal uitgeschakeld door Spanjaard](https://www.ad.nl/tennis/tallon-griekspoor-kan-knappe-zeges-geen-vervolg-geven-en-wordt-in-montreal-uitgeschakeld-door-spanjaard~a0ccab28/)
-  > Tallon Griekspoor is er niet in geslaagd de kwartfinales van het masterstoernooi van Montréal te bereiken. De 30-jarige Haarlemmer verloor in twee...
-- [40 machines waarmee je bruiswater maakt getest, dit is de beste](https://www.ad.nl/tech/40-machines-waarmee-je-bruiswater-maakt-getest-dit-is-de-beste~aafc30dc/)
-  > Wil je thuis je eigen bruiswater maken? Het voordeel: je hoeft niet meer met flessen uit de supermarkt te sjouwen. Dat is niet alleen beter voor je...
-- [Excelsior koploper na eerste speelronde, PSV morst eerste punten: dit is de ranglijst](https://www.ad.nl/voetbal/excelsior-koploper-na-eerste-speelronde-psv-morst-eerste-punten-dit-is-de-ranglijst~a5ebff08/)
-  > SC Cambuur en Excelsior trapten op vrijdag 7 augustus het nieuwe eredivisieseizoen af. Bekijk in dit artikel het complete programma, met daaronder de...
 
 ### Meest gelezen
 
@@ -47,8 +47,8 @@
 
 ### Laatste nieuws
 
-- [Duitse order voor elektrische bussen van Ebusco geschrapt](https://fd.nl/bedrijfsleven/1606894/duitse-order-voor-elektrische-bussen-van-ebusco-geschrapt)
-  > Ebusco bestudeert wat de financiële gevolgen zijn van de annulering en mogelijke Duitse claims, aldus het bedrijf.
+- [Belangrijke Duitse order voor elektrische bussen van Ebusco geschrapt](https://fd.nl/bedrijfsleven/1606894/duitse-order-voor-elektrische-bussen-van-ebusco-geschrapt)
+  > Ebusco bestudeert wat de financiële gevolgen zijn van de annulering en mogelijke Duitse claims, aldus het noodlijdende bedrijf.
 - [Strijd tegen droogte vereist overstijgende blik](https://fd.nl/opinie/1606760/strijd-tegen-droogte-vereist-overstijgende-blik)
   > De relatie tussen Nederland en water verandert. Niet enkel te veel, ook te weinig water bedreigt huishoudens, bedrijven en infrastructuur.
 - [Twee drones gesignaleerd bij Duitse vliegbasis bij Bonn](https://fd.nl/samenleving/1606986/twee-drones-gesignaleerd-bij-duitse-vliegbasis-bij-bonn)
