@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-08-2026 om 19:36*
+*Laatst bijgewerkt: 09-08-2026 om 20:36*
 
 ---
 
@@ -28,6 +28,8 @@
 
 ### Laatste nieuws
 
+- [PSV maakt zelfde fout als Feyenoord en Tadic heeft alleen Berghuis voor zich: start eredivisie in cijfers](https://www.ad.nl/voetbal/psv-maakt-zelfde-fout-als-feyenoord-en-tadic-heeft-alleen-berghuis-voor-zich-start-eredivisie-in-cijfers~a4daad45/)
+  > De eredivisie is weer begonnen! PSV morste punten tegen Fortuna, Feyenoord ontsnapte aan een gelijkspel bij Sparta en Ajax won moeizaam van PEC...
 - [Hoe een stroopwafel uit Nederland gewoon in de grootste Russische winkel kan belanden](https://www.ad.nl/economie/hoe-een-stroopwafel-uit-nederland-gewoon-in-de-grootste-russische-winkel-kan-belanden~a7f88242/)
   > Wat hebben Franse huismerken, Italiaanse aardappels en stroopwafels uit Oss met elkaar gemeen? Dat ze dankzij een connectie in Dubai moeiteloos te...
 - [PSG haalt Franse international, door Turkse topclub begeerde Ueda geeft voorkeur aan Engeland](https://www.ad.nl/voetbal/psg-haalt-franse-international-door-turkse-topclub-begeerde-ueda-geeft-voorkeur-aan-engeland~acbd43e6/)
@@ -36,8 +38,6 @@
   > In het sterkste deelnemersveld en op het zwaarste parkoers ooit heeft Demi Vollering haar tweede Tour de France Femmes gewonnen. De prestaties van de...
 - [Niet alleen in Marokko is het uitzichtloos](https://www.ad.nl/binnenland/niet-alleen-in-marokko-is-het-uitzichtloos~a713227f/)
   > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [Waar Riet gaat, is Truus ook: beroemde modetweeling is onafscheidelijk: ‘Zij begrijpt meteen wat ik bedoel’](https://www.ad.nl/mode/waar-riet-gaat-is-truus-ook-beroemde-modetweeling-is-onafscheidelijk-zij-begrijpt-meteen-wat-ik-bedoel~a0d26e4c/)
-  > Ze maken elkaars zinnen af, slaan tijdens een wandeling hetzelfde zijpad in en maken tijdens een gesprek op precies hetzelfde moment dezelfde...
 
 ### Meest gelezen
 
