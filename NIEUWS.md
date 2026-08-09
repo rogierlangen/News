@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-08-2026 om 14:37*
+*Laatst bijgewerkt: 09-08-2026 om 15:35*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ajax krijgt tiental PEC in laatste kwartier op de knieën en begint met moeizame zege](https://www.ad.nl/voetbal/ajax-krijgt-tiental-pec-in-laatste-kwartier-op-de-knieen-en-begint-met-moeizame-zege~a10c2b64/)
-  > Ajax is het eredivisieseizoen 2026/2027 begonnen met een moeizame zege. De ploeg van trainer Míchel Sánchez speelde een uur lang weinig klaar, maar...
-- [Highlander-acteur Christopher Lambert zakt in elkaar tijdens fanconventie, maar maakt het weer goed](https://www.ad.nl/show/highlander-acteur-christopher-lambert-zakt-in-elkaar-tijdens-fanconventie-maar-maakt-het-weer-goed~a4f93089/)
-  > Christopher Lambert is tijdens de Steel City Comic-Con in Pittsburgh in elkaar gezakt. Dat melden Amerikaanse media. De 69-jarige Frans-Amerikaanse...
-- [Dit gebeurt er met je lichaam als je op vakantie even niet sport](https://www.ad.nl/gezond/dit-gebeurt-er-met-je-lichaam-als-je-op-vakantie-even-niet-sport~afdc5cc6/)
-  > Het buffet lonkt voor een tweede ronde, aan de waterrand laat je je nog eens bijschenken door de ober. Voor hardlopen is het te warm, dus haal je een...
-- [Demi Vollering met nipte voorsprong op Kasia Niewiadoma van start in laatste etappe, wie pakt eindzege?](https://www.ad.nl/wielrennen/demi-vollering-met-nipte-voorsprong-op-kasia-niewiadoma-van-start-in-laatste-etappe-wie-pakt-eindzege~aef531d8/)
+- [Read baalt van gemiste kansen Feyenoord, Ajax-coach ziet nieuwe spits het verschil maken](https://www.ad.nl/voetbal/read-baalt-van-gemiste-kansen-feyenoord-ajax-coach-ziet-nieuwe-spits-het-verschil-maken~a378dc98/)
+  > Het nieuwe eredivisieseizoen is van start gegaan. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we...
+- [Vuurwerkshow in het Spaanse Altea eindigt in drama: 27 gewonden, van wie 11 ernstig verbrand](https://www.ad.nl/buitenland/vuurwerkshow-in-het-spaanse-altea-eindigt-in-drama-27-gewonden-van-wie-11-ernstig-verbrand~af505547/)
+  > Het is flink misgegaan tijdens de 40ste editie van de jaarlijkse vuurwerkshow in het Spaanse Altea. Een vuurpijl ging de verkeerde kant op en kwam in...
+- [Zinderende apotheose nadert: ploeg Niewiadoma zet gele Vollering onder druk, Wiebes zeker van groen](https://www.ad.nl/wielrennen/zinderende-apotheose-nadert-ploeg-niewiadoma-zet-gele-vollering-onder-druk-wiebes-zeker-van-groen~aef531d8/)
   > De Tour de France Femmes beleeft vanmiddag de ontknoping. Demi Vollering verdedigt in de laatste etappe in Nice de gele trui. Wint ze voor de tweede...
-- [Luciano Valente krijgt kippenvel van zijn aanvoerdersband: ‘Dit is heel speciaal’](https://www.ad.nl/voetbal/luciano-valente-krijgt-kippenvel-van-zijn-aanvoerdersband-dit-is-heel-speciaal~ad48ce40/)
-  > Luciano Valente omschreef het kort en krachtig. Het moment waarop Giovanni van Bronckhorst en Sipke Hulshoff hem in een gesprek vertelden dat hij de...
+- [Enschede zegt dat er geen competitie was met Amsterdam, maar appjes over fatbikeverbod laten iets anders zien](https://www.ad.nl/binnenland/enschede-zegt-dat-er-geen-competitie-was-met-amsterdam-maar-appjes-over-fatbikeverbod-laten-iets-anders-zien~af2106c5/)
+  > In juli 2025 besloot Enschede als eerste stad in Nederland om de fatbike in het centrum te verbieden, ondanks alle afkeurende juridische adviezen en...
+- [Feyenoord-middenveld stort laatste halfuur in elkaar: 'Het werd een soort casino'](https://www.ad.nl/voetbal/feyenoord-middenveld-stort-laatste-halfuur-in-elkaar-het-werd-een-soort-casino~a01f6539/)
+  > Giovanni van Bronckhorst wil zijn middenveld zien swingen en met Luciano Valente en Gjivai Zechiël heeft hij daar geknipte spelers voor. Maar na een...
 
 ### Meest gelezen
 
