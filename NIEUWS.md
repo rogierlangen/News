@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-08-2026 om 15:35*
+*Laatst bijgewerkt: 09-08-2026 om 16:39*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Rusland en Syrië sluiten akkoord over toekomst Russische basissen](https://nos.nl/l/2626178)
+  > Rusland en Syrië zijn tot een overeenkomst gekomen over de toekomst van de Russische militaire bases in Syrië. Dat meldt het Syrische...
+- [Politie vermoedt brandstichting bij kleine natuurbrand in Wijchen](https://nos.nl/l/2626176)
+  > De politie is op zoek naar getuigen vanwege een natuurbrand in Wijchen, in Gelderland, vanmiddag. De politie vermoedt dat deze is aangestoken. "Alles...
 - [Netanyahu keurt plan van Trumps 'Vredesraad' voor Gaza af](https://nos.nl/l/2626158)
   > De Israëlische premier Netanyahu heeft het vredesplan voor Gaza van president Trumps Vredesraad officieel afgewezen. De Israëlische premier herhaalde...
 - [Emiraten dragen topcrimineel uit Kinahan-kartel over aan Ierland](https://nos.nl/l/2626152)
   > De Verenigde Arabische Emiraten (VAE) hebben de veronderstelde topcrimineel Daniel Kinahan uitgeleverd aan Ierland. De Ier Kinahan was in april...
 - [Verdachte steekincidenten Rotterdam vertoonde 'onbegrepen gedrag' en krijgt zorg](https://nos.nl/l/2626144)
   > De 26-jarige man die gisteren werd aangehouden voor twee willekeurige steekpartijen in Rotterdam vertoonde verward gedrag en krijgt passende zorg....
-- [Vrouw en baby komen om bij kapseizen van boot bij Vrijheidsbeeld in New York](https://nos.nl/l/2626130)
-  > Een 27-jarige vrouw en een baby van vijf maanden oud zijn om het leven gekomen bij een bootramp in New York. Volgens Amerikaanse media kapseisde...
-- [Olieramp voor Omaanse kust: tanker van Russische schaduwvloot al weken gestrand](https://nos.nl/l/2626127)
-  > Voor de zuidkust van Oman voltrekt zich een olieramp. Er lekt ruwe aardolie uit een vastgelopen tanker die naar schatting zeker 800.000 vaten...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Read baalt van gemiste kansen Feyenoord, Ajax-coach ziet nieuwe spits het verschil maken](https://www.ad.nl/voetbal/read-baalt-van-gemiste-kansen-feyenoord-ajax-coach-ziet-nieuwe-spits-het-verschil-maken~a378dc98/)
-  > Het nieuwe eredivisieseizoen is van start gegaan. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we...
-- [Vuurwerkshow in het Spaanse Altea eindigt in drama: 27 gewonden, van wie 11 ernstig verbrand](https://www.ad.nl/buitenland/vuurwerkshow-in-het-spaanse-altea-eindigt-in-drama-27-gewonden-van-wie-11-ernstig-verbrand~af505547/)
-  > Het is flink misgegaan tijdens de 40ste editie van de jaarlijkse vuurwerkshow in het Spaanse Altea. Een vuurpijl ging de verkeerde kant op en kwam in...
-- [Zinderende apotheose nadert: ploeg Niewiadoma zet gele Vollering onder druk, Wiebes zeker van groen](https://www.ad.nl/wielrennen/zinderende-apotheose-nadert-ploeg-niewiadoma-zet-gele-vollering-onder-druk-wiebes-zeker-van-groen~aef531d8/)
+- [Frankrijk kondigt onderzoek aan naar ontplofte squishy waarbij 8-jarig jongetje brandwonden opliep](https://www.ad.nl/buitenland/frankrijk-kondigt-onderzoek-aan-naar-ontplofte-squishy-waarbij-8-jarig-jongetje-brandwonden-opliep~a0522e90/)
+  > In Frankrijk is een onderzoek geopend naar een incident met een ontplofte squishy, een populair speelgoed onder kinderen. Dat meldt het parket van...
+- [Zit de VS straks zonder wapens? Wereldwijd klinkt bezorgdheid over een tekort aan raketten](https://www.ad.nl/buitenland/zit-de-vs-straks-zonder-wapens-wereldwijd-klinkt-bezorgdheid-over-een-tekort-aan-raketten~a8c1aa0a/)
+  > De al vijf maanden durende oorlog in Iran put de Amerikaanse raketvoorraden alarmerend snel uit. Dat is een probleem voor Oekraïne en leidt ook tot...
+- [Eindelijk water uit de hemel, maar lang duurt het niet](https://www.ad.nl/binnenland/eindelijk-water-uit-de-hemel-maar-lang-duurt-het-niet~ae0303d7/)
+  > Wie druk is met een barbecue of de tuin vol heeft staan met spullen, moet opletten, want er komt regen aan. Vanaf 18.30 uur trekt een buienfront...
+- [Vollering oogt sterk en gaat in gele trui vlot mee met concurrente Niewiadoma, pakt Nederlandse de eindzege?](https://www.ad.nl/wielrennen/vollering-oogt-sterk-en-gaat-in-gele-trui-vlot-mee-met-concurrente-niewiadoma-pakt-nederlandse-de-eindzege~aef531d8/)
   > De Tour de France Femmes beleeft vanmiddag de ontknoping. Demi Vollering verdedigt in de laatste etappe in Nice de gele trui. Wint ze voor de tweede...
-- [Enschede zegt dat er geen competitie was met Amsterdam, maar appjes over fatbikeverbod laten iets anders zien](https://www.ad.nl/binnenland/enschede-zegt-dat-er-geen-competitie-was-met-amsterdam-maar-appjes-over-fatbikeverbod-laten-iets-anders-zien~af2106c5/)
-  > In juli 2025 besloot Enschede als eerste stad in Nederland om de fatbike in het centrum te verbieden, ondanks alle afkeurende juridische adviezen en...
-- [Feyenoord-middenveld stort laatste halfuur in elkaar: 'Het werd een soort casino'](https://www.ad.nl/voetbal/feyenoord-middenveld-stort-laatste-halfuur-in-elkaar-het-werd-een-soort-casino~a01f6539/)
-  > Giovanni van Bronckhorst wil zijn middenveld zien swingen en met Luciano Valente en Gjivai Zechiël heeft hij daar geknipte spelers voor. Maar na een...
+- ['Derde spits' Sam Lammers moet FC Twente redden: Heerenveen op weg naar zege](https://www.ad.nl/voetbal/derde-spits-sam-lammers-moet-fc-twente-redden-heerenveen-op-weg-naar-zege~add9a0e2/)
+  > Het seizoen is niet vlekkeloos begonnen voor FC Twente. Voor de ploeg uit Enschede staat meteen een moeilijke uitwedstrijd op het programma. FC...
 
 ### Meest gelezen
 
