@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-08-2026 om 04:40*
+*Laatst bijgewerkt: 10-08-2026 om 06:12*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Drie medewerkers begraafplaats Den Haag werkten mogelijk samen aan grafroof](https://nos.nl/l/2626233)
+  > De grafdelver (60) die verdacht wordt van het stelen van kostbaarheden uit graven van de Algemene Begraafplaats in Den Haag, handelde mogelijk niet...
+- [Record uit 1947 gesneuveld: niet eerder zo weinig water door de Rijn](https://nos.nl/l/2626232)
+  > Niet eerder stroomde er bij Lobith zo weinig water door de Rijn als nu. De gemiddelde waterafvoer in het afgelopen etmaal was 614 kubieke meter per...
+- [Wekdienst 10/8: Rechtszaak over moord 2Pac • EK atletiek van start in Birmingham](https://nos.nl/l/2626228)
+  > Goedemorgen! In Birmingham start het EK atletiek. De NOS doet live verslag. En in Las Vegas moet de verdachte van de moord op rapper Tupac Shakur,...
 - [Bosbrand West-Canada groter en heviger, vrouw omgekomen](https://nos.nl/l/2626225)
   > De grote natuurbrand in het westen van Canada is nog lang niet onder controle. De brand wordt groter en heviger, zeggen de autoriteiten van de...
 - [Volgende grote onderhoudsklus van start: Algerabrug vier weken dicht](https://nos.nl/l/2626223)
   > De Algerabrug tussen Krimpen aan den IJssel en Capelle aan den IJssel is sinds vannacht dicht voor groot onderhoud. De komende vier weken moeten...
-- [Warme en droge juni en juli samen heetste ooit gemeten in West-Europa](https://nos.nl/l/2626222)
-  > De afgelopen juni- en julimaand waren in West-Europa gecombineerd de heetste juni en juli ooit gemeten. Dat valt op te maken uit gegevens van het...
-- [Duizenden inwoners van Ceuta de straat op: 'Genoeg is genoeg'](https://nos.nl/l/2626221)
-  > In de Spaanse exclave Ceuta hebben enkele duizenden mensen gedemonstreerd voor eenheid en strengere grenscontroles na de stormloop door migranten,...
-- [Frankrijk start onderzoek nadat 'squishy' ontploft in gezicht van kind](https://nos.nl/l/2626210)
-  > De Franse autoriteiten zijn een onderzoek gestart naar een speelgoedstressbal, nadat deze ontplofte in het gezicht van een jongetje. Hij liep...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Buitenlandse media vol lof over Demi Vollering: ‘Is zij de Pogacar van de vrouwenkoers?’](https://www.ad.nl/tour-de-france/buitenlandse-media-vol-lof-over-demi-vollering-is-zij-de-pogacar-van-de-vrouwenkoers~a768f484/)
+  > Buitenlandse media zijn diep onder de indruk van Demi Vollering, die zich na twee mislukte deelnames revancheerde en de gele trui van de Tour de...
+- [Van Femke Bol en Lieke Klaver tot Menno Vloon: dit is het programma in Birmingham](https://www.ad.nl/andere-sporten/van-femke-bol-en-lieke-klaver-tot-menno-vloon-dit-is-het-programma-in-birmingham~a931e786/)
+  > De EK atletiek worden dit jaar georganiseerd in het Engelse Birmingham. Wat kan Femke Bol op de 800 meter en hoeveel medailles gaat Nederland pakken?...
+- [Er is geen enkel argument te verzinnen om Michael Reiziger nu bondscoach te maken](https://www.ad.nl/voetbal/er-is-geen-enkel-argument-te-verzinnen-om-michael-reiziger-nu-bondscoach-te-maken~a5c38be8/)
+  > Columnist Willem van Hanegem is na de eerste speelronde nog niet onder de indruk van de topclubs. Ook schrijft hij over het bondscoachschap van...
+- [Een op de drie automobilisten negeert terugroepactie, RDW wil dat hun auto’s worden afgekeurd](https://www.ad.nl/binnenland/een-op-de-drie-automobilisten-negeert-terugroepactie-rdw-wil-dat-hun-autos-worden-afgekeurd~a96404ef/)
+  > De RDW wil dat auto’s met openstaande terugroepacties allemaal worden gerepareerd. Gebeurt dat niet, dan moeten die wagens niet meer door de apk...
 - [Hacker achter spraakmakend Ajax-lek doet zijn verhaal: ‘Ik ben geen crimineel’](https://www.ad.nl/binnenland/hacker-achter-spraakmakend-ajax-lek-doet-zijn-verhaal-ik-ben-geen-crimineel~a05b0a91/)
   > Een recente hack bij Ajax, waarbij gegevens van honderdduizenden supporters in te zien waren, zorgde landelijk voor veel ophef. Achter de zaak zit...
-- [Record: deze betaalbare hybride reed bijna 2000 kilometer op een volle tank](https://www.ad.nl/auto/record-deze-betaalbare-hybride-reed-bijna-2000-kilometer-op-een-volle-tank~a96373b3/)
-  > Een Nissan Qashqai e-Power heeft 1980 kilometer gereden op één tank benzine. Indrukwekkend, maar de recordrit die in het Guinness Book of Records...
-- [LIVE Keuken Kampioen Divisie | Degradant FC Volendam gaat op bezoek bij Jong PSV](https://www.ad.nl/voetbal/live-keuken-kampioen-divisie-degradant-fc-volendam-gaat-op-bezoek-bij-jong-psv~aa7a21fa/)
-  > Twee duels vanavond in de Keuken Kampioen Divisie. Degradant FC Volendam gaat op bezoek bij Jong PSV, FC Eindhoven speelt uit tegen Jong AZ. Volg het...
-- [Een emotioneel afscheid in Wales: zeldzame zeeschildpad Rhossi begint aan reis van 8000 kilometer naar huis](https://www.ad.nl/buitenland/een-emotioneel-afscheid-in-wales-zeldzame-zeeschildpad-rhossi-begint-aan-reis-van-8000-kilometer-naar-huis~a0a0c920/)
-  > De zeldzame Kemps zeeschildpad Rhossi spoelde in 2023 zwaar onderkoeld aan op een strand in Wales, zo’n 8000 kilometer van zijn leefgebied in de Golf...
-- [Temperatuur gaat alle kanten op: eerst koelt het flink af, daarna opnieuw tropische hitte](https://www.ad.nl/binnenland/temperatuur-gaat-alle-kanten-op-eerst-koelt-het-flink-af-daarna-opnieuw-tropische-hitte~a36ac20f3/)
-  > Nederland krijgt de komende dagen te maken met flinke temperatuurwisselingen. Waar het de komende dagen eerst even afkoelt, krijgen we later in de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Producentenvertrouwen industrie stijgt naar hoogste niveau in vier jaar](https://fd.nl/economie/1607020/producentenvertrouwen-industrie-stijgt-naar-hoogste-niveau-in-vier-jaar)
+  > Vooral hun orderportefeuilles stemden de producenten minder negatief.
+- [In De Boedelshop van Qredits doet sportkleding het goed, maar de hamsterkooi staat er al een tijdje](https://fd.nl/bedrijfsleven/1605346/in-de-boedelshop-van-qredits-doet-sportkleding-het-goed-maar-de-hamsterkooi-staat-er-al-een-tijdje)
+  > Een kredietverlener die zelf een winkel runt? In De Boedelshop in Almelo verkoopt mkb-financier Qredits spullen van ondernemers die in het nauw...
+- [Live: Rustige start van nieuwsluwe beursweek](https://fd.nl/financiele-markten/1607019/live-rustige-start-van-nieuwsluwe-beursweek)
+  > Licht hogere koersen in Azië, de prijs van ruwe olie (Noordzee) stijgt met bijna 1% tot net geen $85 per vat.
 - [Erdal Balci: ‘Ik denk dat veel mensen een hekel hebben aan vrijheid’](https://fd.nl/samenleving/1606806/erdal-balci-ik-denk-dat-veel-mensen-een-hekel-hebben-aan-vrijheid)
   > Leven en werk van de Turks-Nederlandse schrijver Erdal Balci staan in het teken van individuele vrijheid in een seculiere samenleving. Zelf...
-- [De box-3 belegger verdwijnt ook uit de kleine steden](https://fd.nl/economie/1606837/de-box-3-belegger-verdwijnt-ook-uit-de-kleine-steden)
+- [De box 3-belegger verdwijnt ook uit de kleine steden](https://fd.nl/economie/1606837/de-box-3-belegger-verdwijnt-ook-uit-de-kleine-steden)
   > Vandaag in Dagkoers: Het Europese bedrijfleven doet het verrassend goed, de private huurmarkt in kleiner steden dreigt te verdwijnen & de Japanse...
-- [Kakkerlakken, verenigt u](https://fd.nl/opinie/1606893/kakkerlakken-verenigt-u)
-  > De klacht dat samenlevingen jongeren te weinig toekomstperspectief bieden, leeft volgens columnist Casper Thomas wereldwijd.
-- [Bedrijfsleven kent flinke winstgroei en stijgende beurskoersen, ondanks oorlog](https://fd.nl/economie/1606781/bedrijfsleven-kent-flinke-winstgroei-en-stijgende-beurskoersen-ondanks-oorlog)
-  > De winstgroei van Europese bedrijven bedroeg in het tweede kwartaal van dit jaar 22%. Beloning volgde op de beurs met flink hogere koersen.
-- [General Motors piekt op de beurs nu de SUV weer mag](https://fd.nl/bedrijfsleven/1606772/general-motors-piekt-op-de-beurs-nu-de-suv-weer-mag)
-  > De Amerikaanse autofabrikant heeft minder last van het zigzagbeleid in de VS dan de concurrentie. GM ging al nooit voorop in de elektrificatie.
 
 ### Meest gelezen
 
