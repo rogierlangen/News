@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-08-2026 om 23:34*
+*Laatst bijgewerkt: 10-08-2026 om 02:04*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Warme en droge juni en juli samen heetste ooit gemeten in West-Europa](https://nos.nl/l/2626222)
+  > De afgelopen juni- en julimaand waren in West-Europa gecombineerd de heetste juni en juli ooit gemeten. Dat valt op te maken uit gegevens van het...
+- [Duizenden inwoners van Ceuta de straat op: 'Genoeg is genoeg'](https://nos.nl/l/2626221)
+  > In de Spaanse exclave Ceuta hebben enkele duizenden mensen gedemonstreerd voor eenheid en strengere grenscontroles na de stormloop door migranten,...
 - [Frankrijk start onderzoek nadat 'squishy' ontploft in gezicht van kind](https://nos.nl/l/2626210)
   > De Franse autoriteiten zijn een onderzoek gestart naar een speelgoedstressbal, nadat deze ontplofte in het gezicht van een jongetje. Hij liep...
 - [Houthi-aanval doodt zeven mensen in Jemen, ook Saudische raffinaderij geraakt](https://nos.nl/l/2626207)
@@ -15,10 +19,6 @@
 - [Het blijft droog en warm, goed nieuws voor zonsverduistering van woensdag](https://nos.nl/l/2626203)
   > In de loop van de week wordt het opnieuw een stuk warmer, met grote kans op een regionale hittegolf. Dat zou dan alweer de vijfde van dit jaar zijn.
 ...
-- [Cocaïnehandel zet Liberia onder druk, corruptie hindert aanpak](https://nos.nl/l/2626199)
-  > Cocaïne ter waarde van honderden miljoenen dollars gaat in Liberia in vlammen op. Een duidelijk signaal van de Liberiaanse autoriteiten: drugskartels...
-- [Natuurbrand in Andalusië dreigt op te rukken richting Sevilla](https://nos.nl/l/2626198)
-  > Bij de Zuid-Spaanse plaats Niebla in Andalusië woedt een natuurbrand die de brandweer maar moeilijk onder controle krijgt. Het vuur heeft zich over...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Regionale neerslagtekorten breken records: ‘Dit wordt het nieuwe normaal’](https://www.ad.nl/binnenland/regionale-neerslagtekorten-breken-records-dit-wordt-het-nieuwe-normaal~aacc3061/)
+  > Het is inmiddels zo droog dat er regionale records worden gebroken. In Noord-Holland en Zuid-Holland waren de neerslagtekorten begin augustus niet...
+- [Amerikaanse F-16’s onderscheppen vliegtuigen boven golfclub Trump](https://www.ad.nl/buitenland/amerikaanse-f-16s-onderscheppen-vliegtuigen-boven-golfclub-trump~a957a00a/)
+  > F-16 gevechtsvliegtuigen van de Amerikaanse luchtmacht hebben zondag verschillende vliegtuigen onderschept die het luchtruim boven de golfclub van...
 - [Tunnel in grootste goudmijn van Egypte stort in: één dode, vijf gewonden](https://www.ad.nl/buitenland/tunnel-in-grootste-goudmijn-van-egypte-stort-in-een-dode-vijf-gewonden~a48500b0/)
   > Bij de instorting van een deel van een goudmijn in het oosten van Egypte is een van de mijnwerkers om het leven gekomen. Dat melden de plaatselijke...
 - [Zes doden en tientallen gewonden bij Oekraïense droneaanval op Russisch logistiek knooppunt Belgorod](https://www.ad.nl/buitenland/zes-doden-en-tientallen-gewonden-bij-oekraiense-droneaanval-op-russisch-logistiek-knooppunt-belgorod~adfb97be/)
   > Bij een Oekraïense droneaanval op de Russische grensstad Belgorod zijn zondag minstens zes mensen omgekomen en 27 gewonden gevallen, zo meldden de...
 - [Voetbalpodcast | ‘Van de drie topclubs haalde Feyenoord het hoogste niveau dit weekend’](https://www.ad.nl/voetbal/voetbalpodcast-van-de-drie-topclubs-haalde-feyenoord-het-hoogste-niveau-dit-weekend~a42af5cd9/)
   > De eerste speelronde in de Eredivisie zit erop. Wie zijn de winnaars van het weekend en wie niet? In de AD Voetbalpodcast nemen Etienne Verhoeff en...
-- [In Het Wiel | ‘Demi Vollering lijkt meer in balans dan we ooit hebben gezien’](https://www.ad.nl/tour-de-france/in-het-wiel-demi-vollering-lijkt-meer-in-balans-dan-we-ooit-hebben-gezien~a58111af/)
-  > Demi Vollering laat er geen twijfel over bestaan wie deze week de beste was. De Europees kampioene wint de slotrit in Nice en geeft daarmee nog wat...
-- [NBA-speler en succestrainer Don Nelson (86) overleden](https://www.ad.nl/andere-sporten/nba-speler-en-succestrainer-don-nelson-86-overleden~a0e5467a/)
-  > Voormalig basketballer en NBA-coach Don Nelson is op 86-jarige leeftijd overleden. De familie van de basketballer, die tussen 1966 en 1976 vijf keer...
 
 ### Meest gelezen
 
