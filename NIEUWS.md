@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-08-2026 om 06:12*
+*Laatst bijgewerkt: 10-08-2026 om 08:41*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [108 aanvallen op journalisten op bezette Westoever, meldt de Palestijnse journalistenvakbond](https://nos.nl/l/2626242)
+  > Palestijnse journalisten werden in de maand juli zeker 108 keer aangevallen of gehinderd in hun werk op de bezette Westelijke Jordaanoever. Dat meldt...
+- [Pilatesstudio in Zevenaar voor derde keer in korte tijd doelwit van explosie](https://nos.nl/l/2626240)
+  > Voor de derde keer deze zomer is een explosief afgegaan bij een pilatesstudio in Zevenaar. Afgelopen nacht ging rond 02.45 uur een baksteen door de...
 - [Drie medewerkers begraafplaats Den Haag werkten mogelijk samen aan grafroof](https://nos.nl/l/2626233)
   > De grafdelver (60) die verdacht wordt van het stelen van kostbaarheden uit graven van de Algemene Begraafplaats in Den Haag, handelde mogelijk niet...
 - [Record uit 1947 gesneuveld: niet eerder zo weinig water door de Rijn](https://nos.nl/l/2626232)
   > Niet eerder stroomde er bij Lobith zo weinig water door de Rijn als nu. De gemiddelde waterafvoer in het afgelopen etmaal was 614 kubieke meter per...
 - [Wekdienst 10/8: Rechtszaak over moord 2Pac • EK atletiek van start in Birmingham](https://nos.nl/l/2626228)
   > Goedemorgen! In Birmingham start het EK atletiek. De NOS doet live verslag. En in Las Vegas moet de verdachte van de moord op rapper Tupac Shakur,...
-- [Bosbrand West-Canada groter en heviger, vrouw omgekomen](https://nos.nl/l/2626225)
-  > De grote natuurbrand in het westen van Canada is nog lang niet onder controle. De brand wordt groter en heviger, zeggen de autoriteiten van de...
-- [Volgende grote onderhoudsklus van start: Algerabrug vier weken dicht](https://nos.nl/l/2626223)
-  > De Algerabrug tussen Krimpen aan den IJssel en Capelle aan den IJssel is sinds vannacht dicht voor groot onderhoud. De komende vier weken moeten...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Buitenlandse media vol lof over Demi Vollering: ‘Is zij de Pogacar van de vrouwenkoers?’](https://www.ad.nl/tour-de-france/buitenlandse-media-vol-lof-over-demi-vollering-is-zij-de-pogacar-van-de-vrouwenkoers~a768f484/)
-  > Buitenlandse media zijn diep onder de indruk van Demi Vollering, die zich na twee mislukte deelnames revancheerde en de gele trui van de Tour de...
-- [Van Femke Bol en Lieke Klaver tot Menno Vloon: dit is het programma in Birmingham](https://www.ad.nl/andere-sporten/van-femke-bol-en-lieke-klaver-tot-menno-vloon-dit-is-het-programma-in-birmingham~a931e786/)
-  > De EK atletiek worden dit jaar georganiseerd in het Engelse Birmingham. Wat kan Femke Bol op de 800 meter en hoeveel medailles gaat Nederland pakken?...
-- [Er is geen enkel argument te verzinnen om Michael Reiziger nu bondscoach te maken](https://www.ad.nl/voetbal/er-is-geen-enkel-argument-te-verzinnen-om-michael-reiziger-nu-bondscoach-te-maken~a5c38be8/)
-  > Columnist Willem van Hanegem is na de eerste speelronde nog niet onder de indruk van de topclubs. Ook schrijft hij over het bondscoachschap van...
-- [Een op de drie automobilisten negeert terugroepactie, RDW wil dat hun auto’s worden afgekeurd](https://www.ad.nl/binnenland/een-op-de-drie-automobilisten-negeert-terugroepactie-rdw-wil-dat-hun-autos-worden-afgekeurd~a96404ef/)
-  > De RDW wil dat auto’s met openstaande terugroepacties allemaal worden gerepareerd. Gebeurt dat niet, dan moeten die wagens niet meer door de apk...
-- [Hacker achter spraakmakend Ajax-lek doet zijn verhaal: ‘Ik ben geen crimineel’](https://www.ad.nl/binnenland/hacker-achter-spraakmakend-ajax-lek-doet-zijn-verhaal-ik-ben-geen-crimineel~a05b0a91/)
-  > Een recente hack bij Ajax, waarbij gegevens van honderdduizenden supporters in te zien waren, zorgde landelijk voor veel ophef. Achter de zaak zit...
+- [‘Dobby’s graf’ gered nadat Harry Potter-fans stroomkabel weten te verleggen](https://www.ad.nl/buitenland/dobbys-graf-gered-nadat-harry-potter-fans-stroomkabel-weten-te-verleggen~aaad41a3/)
+  > Fans van de magische Harry Potter-serie hebben de aanleg van een stroomkabel tussen Ierland en het Verenigd Koninkrijk weten te verplaatsen. Daarmee...
+- [30 jaar na moord op Tupac start proces tegen enige verdachte: levenslange celstraf dreigt](https://www.ad.nl/show/30-jaar-na-moord-op-tupac-start-proces-tegen-enige-verdachte-levenslange-celstraf-dreigt~a43f2b652/)
+  > 30 jaar na de moord op Tupac Shakur gaat maandag in Las Vegas het proces van start tegen Duane ‘Keffe D’ Davis (63). Hij is de enige die ooit werd...
+- [‘Af en toe zette meneer Michielsen een glimlach op. Nu twijfel ik aan de echtheid daarvan’](https://www.ad.nl/gezond/af-en-toe-zette-meneer-michielsen-een-glimlach-op-nu-twijfel-ik-aan-de-echtheid-daarvan~abb492c6/)
+  > Sommige dagen in de huisartsenpraktijk zijn moeilijker dan andere. Het bericht dat dokter Rutger op een maandagochtend in zijn postvak vindt over...
+- [Jongetje (4) kritiek na zwembaddrama in San Marino: Nederlanders grepen direct in](https://www.ad.nl/binnenland/jongetje-4-kritiek-na-zwembaddrama-in-san-marino-nederlanders-grepen-direct-in~a77a6ef5/)
+  > Twee Nederlandse vakantiegangers hebben zondagochtend een 4-jarig Italiaans jongetje van de verdrinkingsdood gered. Het kind lag bewusteloos in het...
+- [Hoe het ‘nieuwe Ajax’ van Míchel in Zwolle vorm kreeg, met dank aan een luxe reservebank](https://www.ad.nl/voetbal/hoe-het-nieuwe-ajax-van-michel-in-zwolle-vorm-kreeg-met-dank-aan-een-luxe-reservebank~ac28a9c4/)
+  > Ajax opende het eredivisieseizoen met een 0-2 zege op PEC Zwolle. Met dank aan debutant Marc ter Stegen en een luxe reservebank. Hoe zij, en de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Producentenvertrouwen industrie stijgt naar hoogste niveau in vier jaar](https://fd.nl/economie/1607020/producentenvertrouwen-industrie-stijgt-naar-hoogste-niveau-in-vier-jaar)
-  > Vooral hun orderportefeuilles stemden de producenten minder negatief.
-- [In De Boedelshop van Qredits doet sportkleding het goed, maar de hamsterkooi staat er al een tijdje](https://fd.nl/bedrijfsleven/1605346/in-de-boedelshop-van-qredits-doet-sportkleding-het-goed-maar-de-hamsterkooi-staat-er-al-een-tijdje)
-  > Een kredietverlener die zelf een winkel runt? In De Boedelshop in Almelo verkoopt mkb-financier Qredits spullen van ondernemers die in het nauw...
-- [Live: Rustige start van nieuwsluwe beursweek](https://fd.nl/financiele-markten/1607019/live-rustige-start-van-nieuwsluwe-beursweek)
-  > Licht hogere koersen in Azië, de prijs van ruwe olie (Noordzee) stijgt met bijna 1% tot net geen $85 per vat.
-- [Erdal Balci: ‘Ik denk dat veel mensen een hekel hebben aan vrijheid’](https://fd.nl/samenleving/1606806/erdal-balci-ik-denk-dat-veel-mensen-een-hekel-hebben-aan-vrijheid)
-  > Leven en werk van de Turks-Nederlandse schrijver Erdal Balci staan in het teken van individuele vrijheid in een seculiere samenleving. Zelf...
-- [De box 3-belegger verdwijnt ook uit de kleine steden](https://fd.nl/economie/1606837/de-box-3-belegger-verdwijnt-ook-uit-de-kleine-steden)
-  > Vandaag in Dagkoers: Het Europese bedrijfleven doet het verrassend goed, de private huurmarkt in kleiner steden dreigt te verdwijnen & de Japanse...
+- [Een economie van waardigheid](https://fd.nl/samenleving/1606897/een-economie-van-waardigheid)
+  > De moeder van Keklik Yücel onderhandelde als manier om een band te smeden met de ander, om elkaars waarde te zien.
+- [‘Sony en TSMC investeren miljarden in nieuwe fabriek voor beeldsensoren’](https://fd.nl/bedrijfsleven/1607023/sony-en-tsmc-investeren-miljarden-in-nieuwe-fabriek-voor-beeldsensoren)
+  > De investering van omgerekend €5,5 mrd moet inspelen op groeiende vraag naar sensoren voor robots en zelfrijdende auto’s.
+- [Tweede Europese bankvergunning voor Revolut](https://fd.nl/financiele-markten/1606896/tweede-europese-bankvergunning-voor-revolut)
+  > De Britse onlinebank had in de EU al een vergunning in Litouwen. Met een Franse bankvergunning wil Revolut zijn groeiende mkb-tak beter bedienen.
+- [Iran vervangt hoogste veiligheidsfunctionaris](https://fd.nl/politiek/1607022/iran-vervangt-hoogste-veiligheidsfunctionaris)
+  > Het is onduidelijk wat de veranderingen betekenen voor de gesprekken met de Verenigde Staten over een einde aan de oorlog.
+- [Omzet Taiwanese chipfabrikant TSMC groeit met 45% in juli](https://fd.nl/bedrijfsleven/1607021/omzet-taiwanese-chipfabrikant-tsmc-groeit-met-45-in-juli)
+  > De Taiwanese chipfabrikant profiteert van de grote investeringen in AI-infrastructuur.
 
 ### Meest gelezen
 
