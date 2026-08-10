@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-08-2026 om 17:54*
+*Laatst bijgewerkt: 10-08-2026 om 19:01*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [DNA-sporen aangetroffen op explosieve drone bij Oekraïens vliegtuig in Duitsland](https://nos.nl/l/2626316)
+  > Op de drone die dinsdag werd ontdekt bij de luchthaven van Leipzig zijn DNA-sporen aangetroffen, schrijven Duitse media. Volgens Bild zou het...
+- [Nog drie verdachten aangehouden voor Haagse drugsvondst van honderden kilo's](https://nos.nl/l/2626314)
+  > Bij een grote politie-inval zijn donderdag in Den Haag 586 kilo drugs gevonden. Dat laat de politie vandaag weten. Eerder werden zes mensen...
+- [Oceanen zijn extreem warm en dat kan ook later grote gevolgen hebben](https://nos.nl/l/2626313)
+  > De oceanen wereldwijd zijn buitengewoon warm. Buiten het poolgebied was de gemiddelde temperatuur van de bovenste laag van het zeewater ongeveer 21...
 - [Enige Russische oppositiepartij uitgesloten van parlementsverkiezingen](https://nos.nl/l/2626309)
   > De Russische liberale oppositiepartij Jabloko mag toch niet meedoen aan de parlementsverkiezingen volgende maand. Dat oordeelt het Russische...
-- [Hitte doet zeppelin die smog moest meten de das om](https://nos.nl/l/2626303)
+- [Zeppelin die boven Nederland vloog stopte eerder wegens hitte](https://nos.nl/l/2626303)
   > De zeppelin die dit weekend over Nederland vloog, heeft zijn geplande tocht niet afgemaakt. Het luchtvaartuig zou de luchtvervuiling meten, maar de...
-- [Surinaamse acteur Borger Breeveld (82) overleden, bekend van Wan Pipel](https://nos.nl/l/2626296)
-  > De Surinaamse acteur Borger Breeveld is op 82-jarige leeftijd overleden, meldt zijn familie. In Nederland, maar vooral in Suriname, was Breeveld...
-- ['Britse radiozender die dood koning Charles meldde overtrad mediaregels'](https://nos.nl/l/2626293)
-  > Het Britse radiostation dat op 19 mei per abuis meldde dat de Britse koning Charles was overleden, overtrad daarmee twee belangrijke mediaregels. Dat...
-- [Zware aardbeving treft Colombia, tientallen doden in diverse steden](https://nos.nl/l/2626289)
-  > Colombia is getroffen door een zware aardbeving. De beving had een kracht van 7,4 en was in het grootste deel van het land te voelen. Gebouwen zijn...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zware aardbeving treft Colombia: dodental loopt op naar 77, regering roept nationale noodtoestand uit](https://www.ad.nl/buitenland/zware-aardbeving-treft-colombia-dodental-loopt-op-naar-77-regering-roept-nationale-noodtoestand-uit~va3786c4a/)
-  > Colombia en een deel van Ecuador zijn maandag getroffen door een aardbeving met een kracht van 6,8 op de schaal van Richter. Er zijn volgens lokale...
-- [Oekraïense grappenmaker zet videovergadering van Russisch ministerie van Defensie op stelten](https://www.ad.nl/buitenland/oekraiense-grappenmaker-zet-videovergadering-van-russisch-ministerie-van-defensie-op-stelten~af60272e/)
-  > Een Oekraïense grappenmaker heeft vorige week ingebroken bij een besloten videovergadering van het Russische ministerie van Defensie. Als hij zich...
-- [Erben Wennemars onderging hartoperatie na herseninfarct: ‘Mijn leven stond even stil’](https://www.ad.nl/schaatsen/erben-wennemars-onderging-hartoperatie-na-herseninfarct-mijn-leven-stond-even-stil~af9e4b7e/)
-  > Erben Wennemars is geopereerd aan zijn hart. Dat schrijft de oud-schaatser en voormalig analist maandag in een bericht op sociale media. In mei werd...
-- [Michael (40) legt blauwe enveloppen weg in de hoop dat problemen verdwijnen: ‘Ik weet dat het niet slim is’](https://www.ad.nl/geld/michael-40-legt-blauwe-enveloppen-weg-in-de-hoop-dat-problemen-verdwijnen-ik-weet-dat-het-niet-slim-is~a1af0e50/)
-  > Elke blauwe envelop die op de mat valt, zorgt bij Michael (40) voor nóg meer stress. Hij voelde zich als oudste thuis ook al als kind...
-- [Christina geeft lichaamsupdate na bevalling en Roxy heeft groot nieuws](https://www.ad.nl/show/christina-geeft-lichaamsupdate-na-bevalling-en-roxy-heeft-groot-nieuws~acd03c0c/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Waarom we soms meteen na de vakantie alweer toe zijn aan een volgende vakantie](https://www.ad.nl/binnenland/waarom-we-soms-meteen-na-de-vakantie-alweer-toe-zijn-aan-een-volgende-vakantie~acdb221b/)
+  > Nét terug van vakantie en meteen weer moe? Bedrijvenexpert Patrick Nijhoff legt uit hoe dat komt en wat je vóór, tijdens en na je vakantie moet doen...
+- [Zware aardbeving treft Colombia: dodental loopt op tot boven de honderd, tientallen gebouwen ingestort](https://www.ad.nl/buitenland/zware-aardbeving-treft-colombia-dodental-loopt-op-tot-boven-de-honderd-tientallen-gebouwen-ingestort~va3786c4a/)
+  > Colombia en een deel van Ecuador zijn maandag getroffen door een aardbeving met een kracht van 7,4 op de schaal van Richter. Er zijn zeker 111 mensen...
+- [Blijf wakker na de eclips, want die nacht volgt nóg een bijzonder schouwspel aan de hemel](https://www.ad.nl/binnenland/blijf-wakker-na-de-eclips-want-die-nacht-volgt-nog-een-bijzonder-schouwspel-aan-de-hemel~a4f2902a/)
+  > In de nacht van woensdag 12 op donderdag 13 augustus bereikt de bekende meteorenzwerm Perseïden zijn absolute hoogtepunt. Dat is goed voor tot wel 65...
+- [Carla is matchmaker voor de elite: ‘Hij reed haar achterna naar een vriendenweekend, toen werd ik kwaad’](https://www.ad.nl/binnenland/carla-is-matchmaker-voor-de-elite-hij-reed-haar-achterna-naar-een-vriendenweekend-toen-werd-ik-kwaad~a675b14c/)
+  > Een man afwijzen omdat hij zijn spaghetti snijdt. Met veel bravoure betalen en vervolgens tóch een tikkie sturen. Elite-matchmaker Carla de Ruijter...
+- [Jessica Schilder aan de leiding in finale kogelstoten, pr voor Jorinde van klinken](https://www.ad.nl/andere-sporten/jessica-schilder-aan-de-leiding-in-finale-kogelstoten-pr-voor-jorinde-van-klinken~a931e786/)
+  > De EK atletiek worden dit jaar georganiseerd in het Engelse Birmingham. Wat kan Femke Broeders-Bol op de 800 meter en hoeveel medailles gaat...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [‘Investeringsmaatschappijen willen met Nvidia $500 mrd investeren in AI-infrastructuur’](https://fd.nl/bedrijfsleven/1607056/investeringsmaatschappijen-willen-met-nvidia-500-mrd-investeren-in-ai-infrastructuur)
+  > Onder meer Apollo, Blackstone, BlackRock, Brookfield Asset Management, Goldman Sachs en KKR zouden samen $500 mrd willen verzamelen voor de bouw van...
+- [Kritische blik op gasvoorraden gewenst](https://fd.nl/opinie/1607027/kritische-blik-op-gasvoorraden-gewenst)
+  > Een goede kosten-batenanalyse voor de gasopslag is meer dan welkom.
+- [Zware aardbeving in Colombia](https://fd.nl/samenleving/1606915/zware-aardbeving-in-colombia)
+  > De beving heeft tot meer dan honderd dodelijke slachtoffers geleid. Ook de materiële schade is groot.
 - [Vier vragen over de eclipsbrillen van Bol: ‘Eigenlijk is de webwinkel een soort curator’](https://fd.nl/bedrijfsleven/1606911/vier-vragen-over-de-eclipsbrillen-van-bol-eigenlijk-is-de-webwinkel-een-soort-curator)
   > De webwinkel haalde eclipsbrillen van twintig aanbieders offline wegens twijfels over de veiligheid. Vier vragen en antwoorden over dat besluit.
 - [Imperial Brands schrapt duizenden banen in VS en Europa](https://fd.nl/bedrijfsleven/1607055/imperial-brands-schrapt-duizenden-banen-in-vs-en-europa)
   > Het bedrijf kampt, net als andere tabaksfabrikanten, met een afname van het aantal rokers en strengere regelgeving.
-- [Ebusco wankelt na annulering grote Duitse order](https://fd.nl/bedrijfsleven/1607051/ebusco-wankelt-na-annulering-grote-duitse-order)
-  > Het Duitse gemeentelijke vervoersbedrijf ViP annuleert een bestelling van 23 bussen, ongeveer een vijfde van het totaal aantal bestellingen dat...
-- [Hongarije zet turbines van kerncentrale weer aan na sluiting door droogte](https://fd.nl/bedrijfsleven/1606913/hongarije-zet-turbines-van-kerncentrale-weer-aan-na-sluiting-door-droogte)
-  > Eerder werd de kerncentrale bijna helemaal stilgelegd door het lage waterpeil van de Donau.
-- [Algerabrug wekenlang gesloten: bedrijven moeten improviseren](https://fd.nl/bedrijfsleven/1606907/algerabrug-wekenlang-gesloten-bedrijven-moeten-improviseren)
-  > Door de sluiting van de intensief gebruikte Algerabrug tussen Capelle en Krimpen aan den IJssel moeten automobilisten omrijden. De extra reistijd...
 
 ### Meest gelezen
 
