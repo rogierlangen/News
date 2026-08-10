@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-08-2026 om 20:47*
+*Laatst bijgewerkt: 10-08-2026 om 21:44*
 
 ---
 
@@ -8,7 +8,9 @@
 
 ### Laatste nieuws
 
-- [Het Turkse parlement stemt in met amnestie voor PKK-leden](https://nos.nl/l/2626331)
+- [Grote groep wandelaars met baby's en kinderwagens gered uit Oostenrijkse Alpen](https://nos.nl/l/2626334)
+  > Reddingswerkers hebben in de Oostenrijkse Alpen een groep met drie gezinnen moeten redden die de weg kwijt waren geraakt tijdens een wandeling in de...
+- [Turks parlement stemt in met amnestie voor PKK-leden](https://nos.nl/l/2626331)
   > Het Turkse parlement heeft een wetsvoorstel aangenomen waardoor PKK-gevangenen mogelijk vervroegd vrijkomen. Het voorstel werd met 468 stemmen...
 - [Dodental zware aardbeving Colombia opgelopen tot 111](https://nos.nl/l/2626322)
   > Het dodental van de zware aardbeving in Colombia is opgelopen tot zeker 111. Dat heeft president De La Espriella bekendgemaakt. Er zijn minstens 87...
@@ -16,8 +18,6 @@
   > Het Openbaar Ministerie op Curaçao houdt Shurandy 'Tyson' Q. verantwoordelijk voor acht moorden en meerdere moordpogingen, vaak met wraak als motief....
 - [DNA-sporen aangetroffen op explosieve drone bij Oekraïens vliegtuig in Duitsland](https://nos.nl/l/2626316)
   > Op de drone die dinsdag werd ontdekt bij de luchthaven van Leipzig zijn DNA-sporen aangetroffen, schrijven Duitse media. Volgens Bild zou het...
-- [Nog drie verdachten aangehouden voor Haagse drugsvondst van honderden kilo's](https://nos.nl/l/2626314)
-  > Bij een grote politie-inval zijn donderdag in Den Haag 586 kilo drugs gevonden. Dat laat de politie vandaag weten. Eerder werden zes mensen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Nieuwe Turkse wet moet einde maken aan decennialange strijd met de PKK](https://www.ad.nl/buitenland/nieuwe-turkse-wet-moet-einde-maken-aan-decennialange-strijd-met-de-pkk~ab3c0760/)
+  > Het Turkse parlement heeft een wet aangenomen die een einde moet maken aan de decennialange strijd met de Koerdische Arbeiderspartij (PKK). De wet...
+- [Hij roert zich dan toch in de sportwereld: ‘Amazon-oprichter Jeff Bezos koopt zich in bij Liverpool’](https://www.ad.nl/voetbal/hij-roert-zich-dan-toch-in-de-sportwereld-amazon-oprichter-jeff-bezos-koopt-zich-in-bij-liverpool~a3369cb3/)
+  > Jeff Bezos (62), de oprichter van Amazon met een geschat vermogen van 245 miljard euro, staat op het punt om mede-eigenaar van Liverpool te worden....
+- [Nederland doet met tientallen mariniers mee aan Groenland-missie, exacte inzet blijft geheim](https://www.ad.nl/binnenland/nederland-doet-met-tientallen-mariniers-mee-aan-groenland-missie-exacte-inzet-blijft-geheim~ab245cd1/)
+  > Nederland stuurt tientallen mariniers naar Groenland om in Navo-verband te oefenen, zei minister van Defensie Dilan Yeşilgöz in het...
+- [Brons voor estafetteploeg: Lieke Klaver en Terrence Agard zien 'gouden' positie uit handen glippen](https://www.ad.nl/andere-sporten/brons-voor-estafetteploeg-lieke-klaver-en-terrence-agard-zien-gouden-positie-uit-handen-glippen~a931e786/)
+  > De EK atletiek worden dit jaar georganiseerd in het Engelse Birmingham. Wat kan Femke Broeders-Bol op de 800 meter en hoeveel medailles gaat...
 - [Jessica Schilder door de ogen van de concurrentie: ‘Wij jagen niet op Jessica, maar op die 21 meter’](https://www.ad.nl/andere-sporten/jessica-schilder-door-de-ogen-van-de-concurrentie-wij-jagen-niet-op-jessica-maar-op-die-21-meter~a343f762/)
   > Dat is drie! Jessica Schilder werd met overmacht en een stoot van 20.52 voor de derde keer Europees kampioen. Na haar eerste titel in 2022 groeide ze...
-- [Ik heb vier keer teruggespoeld toen Fred uit B&B vol liefde deze vraag stelde](https://www.ad.nl/show/ik-heb-vier-keer-teruggespoeld-toen-fred-uit-benb-vol-liefde-deze-vraag-stelde~aa8857d0/)
-  > Plassen in de zee, het ‘onbereikbare van de horizon’: de krankzinnige opmerkingen in B&B vol liefde vliegen me om de oren. Inmiddels zitten we in...
-- [Micky van de Ven verlengt contract bij Spurs, Liverpool presenteert verdediger Araújo](https://www.ad.nl/voetbal/micky-van-de-ven-verlengt-contract-bij-spurs-liverpool-presenteert-verdediger-araujo~acbd43e6/)
-  > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
-- [Lieke Klaver en haar vriend strijden om eremetaal in finale 4x400 meter, Ali verrassend sterk op 5km](https://www.ad.nl/andere-sporten/lieke-klaver-en-haar-vriend-strijden-om-eremetaal-in-finale-4x400-meter-ali-verrassend-sterk-op-5km~a931e786/)
-  > De EK atletiek worden dit jaar georganiseerd in het Engelse Birmingham. Wat kan Femke Broeders-Bol op de 800 meter en hoeveel medailles gaat...
-- [Jong PSV wint door late goals van FC Volendam, Theo Lucius wint met FC Eindhoven](https://www.ad.nl/voetbal/jong-psv-wint-door-late-goals-van-fc-volendam-theo-lucius-wint-met-fc-eindhoven~aa7a21fa/)
-  > FC Volendam is met een nederlaag aan het nieuwe seizoen in de Keuken Kampioen Divisie begonnen. De uit de eredivisie gedegradeerde club verspeelde in...
 
 ### Meest gelezen
 
