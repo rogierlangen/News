@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-08-2026 om 15:01*
+*Laatst bijgewerkt: 10-08-2026 om 16:56*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Verwoestingen en zeker twintig doden door zware aardbeving in Colombia](https://nos.nl/l/2626289)
-  > Colombia is getroffen door een zware aardbeving. De beving had een kracht van 7,4 en was in grote delen van het land te voelen. Een onbekend aantal...
+- [Surinaamse acteur Borger Breeveld (82) overleden, bekend van Wan Pipel](https://nos.nl/l/2626296)
+  > De Surinaamse acteur Borger Breeveld is op 82-jarige leeftijd overleden, meldt zijn familie. In Nederland, maar vooral in Suriname, was Breeveld...
+- ['Britse radiozender die dood koning Charles meldde overtrad mediaregels'](https://nos.nl/l/2626293)
+  > Het Britse radiostation dat op 19 mei per abuis meldde dat de Britse koning Charles was overleden, overtrad daarmee twee belangrijke mediaregels. Dat...
+- [Zware aardbeving treft Colombia, tientallen doden in diverse steden](https://nos.nl/l/2626289)
+  > Colombia is getroffen door een zware aardbeving. De beving had een kracht van 7,4 en was in het grootste deel van het land te voelen. Vele tientallen...
 - [Inbrekers verstoppen zich in bosje maar zien wespennest over het hoofd](https://nos.nl/l/2626286)
   > Een inbraakpoging van twee mannen uit Den Helder liep vannacht anders af dan ze hadden gehoopt. Ze werden betrapt door de politie en in een...
 - [Ruim 500 meldingen van discriminatie tijdens WorldPride](https://nos.nl/l/2626285)
   > Meldpunt RITA (Report It Always) heeft tijdens de WorldPride meer dan 520 meldingen gekregen van discriminatie. Dat meldt RITA, het platform voor de...
-- [Dukes of Hazzard-acteur en politicus Ben Jones overleden](https://nos.nl/l/2626274)
-  > De Amerikaanse acteur en politicus Ben Jones (84) is overleden. In Nederland was hij vooral bekend door zijn rol in The Dukes of Hazzard, een zeer...
-- [Podcast De Dag: de zon, een profiel](https://nos.nl/l/2626273)
-  > De zon domineert deze dagen op allerlei manieren het nieuws: vanwege de aanhoudende warmte, droogte en bosbranden, maar ook omdat er nieuwe...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Gjivai Zechiël zag in zichzelf een leider van Feyenoord en laat dat nu ook zien: ‘Hij is een fantastische speler’](https://www.ad.nl/voetbal/gjivai-zechiel-zag-in-zichzelf-een-leider-van-feyenoord-en-laat-dat-nu-ook-zien-hij-is-een-fantastische-speler~a1d807af/)
-  > Gjivai Zechiël deed tijdens de opening van het seizoen waar hij al zo lang van droomde: Feyenoord bij de hand nemen. Aanvoerder Luciano Valente denkt...
-- [Zanger Henk Wijngaard (80) opgenomen in ziekenhuis: ‘Hartoperatie is noodzakelijk’](https://www.ad.nl/show/zanger-henk-wijngaard-80-opgenomen-in-ziekenhuis-hartoperatie-is-noodzakelijk~af44fe91/)
-  > Zanger Henk Wijngaard is sinds vorige week woensdag opgenomen in het ziekenhuis door hartproblemen. Dat laat zijn management maandag weten in een...
-- [Excelsior haalt transfervrije Alireza Jahanbakhsh binnen: ‘Rotterdam heeft een speciale plek in mijn hart’](https://www.ad.nl/voetbal/excelsior-haalt-transfervrije-alireza-jahanbakhsh-binnen-rotterdam-heeft-een-speciale-plek-in-mijn-hart~a694bbce/)
-  > Excelsior Rotterdam heeft zich versterkt met Alireza Jahanbakhsh. De rechtsbuiten, die dinsdag 33 jaar wordt, was transfervrij en tekent op...
-- [Zware aardbeving treft Colombia: zeker achttien doden](https://www.ad.nl/buitenland/zware-aardbeving-treft-colombia-zeker-achttien-doden~a3786c4a/)
-  > Colombia en een deel van Ecuador zijn maandag getroffen door een aardbeving met een kracht van 6,8 op de schaal van Richter. Er zijn minstens...
-- [ADO Den Haag huurt rechtsback van Cagliari, Como haalt Engels international](https://www.ad.nl/voetbal/ado-den-haag-huurt-rechtsback-van-cagliari-como-haalt-engels-international~acbd43e6/)
+- [Luxeprobleem voor Ajax: kiest Míchel voor Blind én Baas of Blind óf Baas?](https://www.ad.nl/voetbal/luxeprobleem-voor-ajax-kiest-michel-voor-blind-en-baas-of-blind-of-baas~aac7b23f/)
+  > Youri Baas, lichtpunt en steunpilaar de voorbije jaren bij Ajax, begon tegen PEC Zwolle na weken als reserve weer eens in de basis. Tijdens de...
+- [ADO verlengt contract doelman Nikiema, Bayern haalt jonge middenvelder uit Senegal](https://www.ad.nl/voetbal/ado-verlengt-contract-doelman-nikiema-bayern-haalt-jonge-middenvelder-uit-senegal~acbd43e6/)
   > Het nieuwe seizoen staat voor de deur, en dus gaan clubs massaal de markt op om zich te versterken. Welke spelers maken een overstap? Hier blijf je...
+- [Actrice Anne Hathaway laat babybuik zien in ‘meest gewaagde zwangerschapslook tot nu toe’](https://www.ad.nl/show/actrice-anne-hathaway-laat-babybuik-zien-in-meest-gewaagde-zwangerschapslook-tot-nu-toe~a707c225/)
+  > Anne Hathaway (43) stal de show tijdens de première van haar nieuwste film The end of Oak Street. De zwangere actrice toonde stralend haar blote...
+- [‘Ze zien eruit als gewone gummies’: waarom experts zich zorgen maken over THC-snoepjes](https://www.ad.nl/binnenland/ze-zien-eruit-als-gewone-gummies-waarom-experts-zich-zorgen-maken-over-thc-snoepjes~ad185753/)
+  > Ze lijken op een zakje snoep uit de supermarkt, maar bevatten THC. Terwijl jongeren de kleurrijke gummies steeds beter weten te vinden via onder meer...
+- [Duitse media: ‘Drone met semtex raakte daadwerkelijk toestel op vliegveld Leipzig’](https://www.ad.nl/buitenland/duitse-media-drone-met-semtex-raakte-daadwerkelijk-toestel-op-vliegveld-leipzig~aaa7dce4/)
+  > De drone met explosieven die vorige week dinsdag is gevonden op het vliegveld van Leipzig heeft even voordien een Oekraïens vrachtvliegtuig geraakt....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Voedselprijzen op hoogste niveau in drie jaar tijd, terwijl oorlog en hittegolven aanhouden](https://fd.nl/economie/1606906/voedselprijzen-op-hoogste-niveau-in-drie-jaar-tijd-terwijl-oorlog-en-hittegolven-aanhouden)
-  > ‘De komende maanden zijn van enorm belang’, schrijft FAO-hoofdeconoom Máximo Torero. Landen moeten volgens hem voorkomen dat prijsschokken escaleren.
-- [Biotechbedrijf Mimetas uit Leiden verkocht aan Bruker](https://fd.nl/bedrijfsleven/1606908/biotechbedrijf-mimetas-uit-leiden-verkocht-aan-bruker)
-  > Orgaan-op-een-chip-technologie kan een alternatief vormen voor sommige dierproeven.
-- [Berkshire Hathaway stapt in de markt terwijl die op zijn top staat](https://fd.nl/financiele-markten/1607029/berkshire-hathaway-stapt-in-de-markt-terwijl-die-op-zijn-top-staat)
-  > Stijlbreuk of instapmoment? Berkshire Hathaway leek aandelen veertien kwartalen te duur te vinden, maar koopt juist nu indices op recordhoogte staan...
-- [KLM stapt over op betaalde catering bij Europese vluchten](https://fd.nl/bedrijfsleven/1607043/klm-stapt-over-op-betaalde-catering-bij-europese-vluchten)
-  > Met het ‘nieuwe serviceconcept’ aan boord krijgt de reiziger ‘meer keuze in eten en drinken’, maar een gratis biertje is er niet meer bij.
-- [Ontwikkelaar BPD gaat vreemd](https://fd.nl/financiele-markten/1607024/ontwikkelaar-bpd-gaat-vreemd)
-  > BPD richtte eind 2019, samen met moederbedrijf Rabobank, een speciaal woningfonds op voor de middenhuur. Doel: 16.500 nieuwe huurhuizen in 2034....
+- [Vier vragen over de eclipsbrillen van Bol: ‘Eigenlijk is de webwinkel een soort curator’](https://fd.nl/bedrijfsleven/1606911/vier-vragen-over-de-eclipsbrillen-van-bol-eigenlijk-is-de-webwinkel-een-soort-curator)
+  > De webwinkel haalde eclipsbrillen van twintig aanbieders offline wegens twijfels over de veiligheid. Vier vragen en antwoorden over dat besluit.
+- [Imperial Brands schrapt duizenden banen in VS en Europa](https://fd.nl/bedrijfsleven/1607055/imperial-brands-schrapt-duizenden-banen-in-vs-en-europa)
+  > Het bedrijf kampt, net als andere tabaksfabrikanten, met een afname van het aantal rokers en strengere regelgeving.
+- [Ebusco wankelt na annulering grote Duitse order](https://fd.nl/bedrijfsleven/1607051/ebusco-wankelt-na-annulering-grote-duitse-order)
+  > Het Duitse gemeentelijke vervoersbedrijf ViP annuleert een bestelling van 23 bussen, ongeveer een vijfde van het totaal aantal bestellingen dat...
+- [Hongarije zet turbines van kerncentrale weer aan na sluiting door droogte](https://fd.nl/bedrijfsleven/1606913/hongarije-zet-turbines-van-kerncentrale-weer-aan-na-sluiting-door-droogte)
+  > Eerder werd de kerncentrale bijna helemaal stilgelegd door het lage waterpeil van de Donau.
+- [Algerabrug wekenlang gesloten: bedrijven moeten improviseren](https://fd.nl/bedrijfsleven/1606907/algerabrug-wekenlang-gesloten-bedrijven-moeten-improviseren)
+  > Door de sluiting van de intensief gebruikte Algerabrug tussen Capelle en Krimpen aan den IJssel moeten automobilisten omrijden. De extra reistijd...
 
 ### Meest gelezen
 
