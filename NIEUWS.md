@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-08-2026 om 22:40*
+*Laatst bijgewerkt: 10-08-2026 om 23:37*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Een jaar Nationale Garde in Washington: 'Duur en op de verkeerde plek'](https://nos.nl/l/2626343)
+  > President Trump riep de soldaten van de Nationale Garde vorige zomer naar Washington D.C. vanwege een noodtoestand. Zij moesten de hoofdstad...
 - ['Taghi van Curaçao' berecht in EBI: justitie zet opnieuw in op PGP-bewijs](https://nos.nl/l/2626342)
   > Shurandy 'Tyson' Q. staat sinds maandag terecht in een Curaçaos strafproces op Nederlandse bodem dat waarschijnlijk nog tot diep in volgend jaar zal...
 - [Grote groep wandelaars met baby's en kinderwagens gered uit Oostenrijkse Alpen](https://nos.nl/l/2626334)
@@ -16,8 +18,6 @@
   > Het Turkse parlement heeft een wetsvoorstel aangenomen waardoor PKK-gevangenen mogelijk vervroegd vrijkomen. Het voorstel werd met 468 stemmen...
 - [Dodental zware aardbeving Colombia opgelopen tot 111](https://nos.nl/l/2626322)
   > Het dodental van de zware aardbeving in Colombia is opgelopen tot zeker 111. Dat heeft president De La Espriella bekendgemaakt. Er zijn minstens 87...
-- [Curaçaose bendeleider Shurendy Q. vervolgd voor reeks wraakmoorden](https://nos.nl/l/2626321)
-  > Het Openbaar Ministerie op Curaçao houdt Shurandy 'Tyson' Q. verantwoordelijk voor acht moorden en meerdere moordpogingen, vaak met wraak als motief....
 
 ### Meest gelezen
 
@@ -27,7 +27,7 @@
 
 ### Laatste nieuws
 
-- [LIVE Oorlog Oekraïne | Oekraïens leger raakt Russische olieraffinaderij in Siberië, op zo’n 2.500 kilometer van Kyiv](https://www.ad.nl/buitenland/live-oorlog-oekraine-oekraiens-leger-raakt-russische-olieraffinaderij-in-siberie-op-zon-2-500-kilometer-van-kyiv~adfb97be/)
+- [Oekraïens leger raakt Russische olieraffinaderij in Siberië, op zo’n 2.500 kilometer van Kyiv](https://www.ad.nl/buitenland/oekraiens-leger-raakt-russische-olieraffinaderij-in-siberie-op-zon-2-500-kilometer-van-kyiv~adfb97be/)
   > Het Oekraïense leger heeft een luchtaanval uitgevoerd op de Russische plaats Tobolsk in het westen van Siberië. Dat heeft de Oekraïense president...
 - [Voetbalpodcast | ‘Ruud van Nistelrooij is veel logischere naam voor Oranje dan Michael Reiziger’](https://www.ad.nl/voetbal/voetbalpodcast-ruud-van-nistelrooij-is-veel-logischere-naam-voor-oranje-dan-michael-reiziger~a42af5cd9/)
   > Mag NEC blijven dromen van de Champions League of is die droom vanavond voorbij? Wie wil er bondscoach worden? Of wie krijgt de voorkeur van de KNVB?...
