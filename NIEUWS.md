@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-08-2026 om 09:01*
+*Laatst bijgewerkt: 11-08-2026 om 10:52*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Wethouder A'dam wist voor verkiezingen van explosieve stijging kosten IJ-brug](https://nos.nl/l/2626385)
+  > De Amsterdamse wethouder Melanie van der Horst (D66) wist voor de gemeenteraadsverkiezingen af van de veel hogere kosten voor de geplande Oostbrug...
+- [Syrische oud-dictator Bashar al-Asssad bij verstek ter dood veroordeeld](https://nos.nl/l/2626384)
+  > De Syrische oud-dictator Bashar al-Assad is in zijn thuisland bij verstek ter dood veroordeeld. De rechtbank acht hem schuldig aan oorlogsmisdaden en...
+- [Veertien illegale mijnwerkers omgekomen in Zuid-Afrika, tientallen gewonden](https://nos.nl/l/2626383)
+  > Veertien illegale mijnwerkers zijn in Zuid-Afrika in een verlaten mijnschacht in Nkaneng in het noorden van het land omgekomen. Ook werden tientallen...
+- [Ebola grijpt in Congo sneller om zich heen dan ooit, nu 2000 doden](https://nos.nl/l/2626375)
+  > Volgens de laatste cijfers zijn er bij de ebola-uitbraak in het oosten van Congo zeker 2000 mensen overleden. De ziekte verspreidt zich in het land...
 - [Nederland stuurt tientallen militairen op oefening in Groenland](https://nos.nl/l/2626371)
   > Nederland stuurt tientallen mariniers naar Groenland om mee te doen aan een NAVO-oefening. Dat heeft Defensieminister Yesilgöz in het tv-programma...
-- [Twee aanhoudingen voor anti-azc-bekladdingen en vernielingen Engelen](https://nos.nl/l/2626364)
-  > Een 52-jarige man en een 18-jarige vrouw uit de gemeente 's-Hertogenbosch zijn vanochtend aangehouden voor vernielingen en bekladdingen in Engelen en...
-- ['Trump stapte na NAVO-top verstopt in cateringwagentje over op ander vliegtuig'](https://nos.nl/l/2626363)
-  > Toen de Amerikaanse president Trump vorige maand plotseling van vliegtuig wisselde na de NAVO-top in Turkije, werd hij heimelijk vervoerd in een...
-- [Veel zwarte rook bij brand palletbedrijf Lelystad](https://nos.nl/l/2626360)
-  > Op een industrieterrein in Lelystad woedt een grote brand. Volgens Omroep Flevoland brak het vuur rond 08.45 uur uit bij een palletbedrijf.
-       ...
-- [Magneetvisser haalt enorme ijzeren vis uit vijver, blijkt gestolen kunstwerk](https://nos.nl/l/2626357)
-  > Een magneetvisser heeft afgelopen weekend in Werkendam een meterslang kunstwerk van een vis gevonden dat een maand geleden werd gestolen uit een dorp...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Afgezette Syrische dictator Bashar al-Assad in Syrië bij verstek ter dood veroordeeld](https://www.ad.nl/buitenland/afgezette-syrische-dictator-bashar-al-assad-in-syrie-bij-verstek-ter-dood-veroordeeld~acfcea29/)
-  > De Syrische dictator Bashar al-Assad is in zijn thuisland bij verstek ter dood veroordeeld, dat meldt persbureau AFP. Hij werd in 2024 afgezet en...
-- [Gian van Veen is aan de andere kant van de wereld, maar zonder pijlen: ‘Ik zit in de livechat met Qatar Airways’](https://www.ad.nl/darts/gian-van-veen-is-aan-de-andere-kant-van-de-wereld-maar-zonder-pijlen-ik-zit-in-de-livechat-met-qatar-airways~aeaf5ed2/)
-  > Darten in Nieuw-Zeeland en Australië: het is deze én volgende week een droom die uitkomt voor Gian van Veen. Maar met welke pijlen en in welke kleren...
-- [Eclipsbril vrijwel overal uitverkocht: hoe kijk je tóch veilig naar de zonsverduistering?](https://www.ad.nl/gezond/eclipsbril-vrijwel-overal-uitverkocht-hoe-kijk-je-toch-veilig-naar-de-zonsverduistering~a8d8c596/)
-  > Voor het eerst in jaren is er komende woensdag weer een grote zonsverduistering te zien. Maar wie het spektakel wil bekijken en nog geen eclipsbril...
-- [Man (52) en vrouw (18) aangehouden voor vernielingen en bekladdingen in Engelen en Bokhoven](https://www.ad.nl/den-bosch/man-52-en-vrouw-18-aangehouden-voor-vernielingen-en-bekladdingen-in-engelen-en-bokhoven~a7c84ccd/)
-  > De politie heeft twee mensen aangehouden voor de bekladdingen en vernielingen vorige maand in de Brabantse dorpen Engelen en Bokhoven. Het gaat om...
-- [Yvon bezoekt pasgeboren Boer zoekt vrouw-baby en Maxime heeft kuiken op haar hoofd](https://www.ad.nl/show/yvon-bezoekt-pasgeboren-boer-zoekt-vrouw-baby-en-maxime-heeft-kuiken-op-haar-hoofd~acd03c0c/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Bestellen bij webshop de Bijenkorf nauwelijks nog mogelijk](https://www.ad.nl/economie/bestellen-bij-webshop-de-bijenkorf-nauwelijks-nog-mogelijk~a62fe485/)
+  > Het bestellen van artikelen via de website van de Bijenkorf is momenteel nauwelijks mogelijk. Alleen producten die in de winkels op voorraad zijn,...
+- [‘Automobilist kan buiten zijn schuld de dupe worden van plan RDW’](https://www.ad.nl/auto/automobilist-kan-buiten-zijn-schuld-de-dupe-worden-van-plan-rdw~a41f139d/)
+  > De Nederlandse automobilistenclub KNAC bekritiseert het voorstel van de RDW om voertuigen met een openstaande terugroepactie in de toekomst mogelijk...
+- [Minder in het water, meer in de gym: daardoor is Marrit Steenbergen nu de snelste zwemster ter wereld](https://www.ad.nl/andere-sporten/minder-in-het-water-meer-in-de-gym-daardoor-is-marrit-steenbergen-nu-de-snelste-zwemster-ter-wereld~ad485838/)
+  > Op de Europese kampioenschappen in Parijs hoopt Marrit Steenbergen (26) vanavond in de finale opnieuw een wereldrecord op de 100 meter vrij te...
+- [NEC vanavond in actie, Ajax naar Dublin en Twente naar Slowakije: zo laat spelen Nederlandse clubs in Europa](https://www.ad.nl/voetbal/nec-vanavond-in-actie-ajax-naar-dublin-en-twente-naar-slowakije-zo-laat-spelen-nederlandse-clubs-in-europa~a7b27c04/)
+  > De Nederlandse clubs spelen deze week hun returns in de voorrondes in Europa. Ajax en FC Twente strijden voor een plek in de Conference League,...
+- [FC Twente haalt jonge vleugelaanvaller uit Noorwegen, Koopmeiners langer bij AZ](https://www.ad.nl/voetbal/fc-twente-haalt-jonge-vleugelaanvaller-uit-noorwegen-koopmeiners-langer-bij-az~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Gaat gen Z nog een keer aan het werk?!](https://fd.nl/financiele-markten/1607082/gaat-gen-z-nog-een-keer-aan-het-werk)
-  > Sommigen zien gen Z als lui, anderen als verfrissend mondig. FD-columnist Milou Brand ziet het anders: gen Z heeft een overschot aan opties. En dus...
-- [Poetin doet beroep op hardliners om onvrede te beteugelen](https://fd.nl/samenleving/1607052/poetin-doet-beroep-op-hardliners-om-onvrede-te-beteugelen)
-  > De Russische president Vladimir Poetin geeft de veiligheidsdienst FSB de vrije hand voor repressie, nu de onrust onder de bevolking toeneemt.
-- [Nationale investeringsbank is ook kwestie van nationale zelfstandigheid](https://fd.nl/opinie/1606895/nationale-investeringsbank-is-ook-kwestie-van-nationale-zelfstandigheid)
-  > Nederland staat voor grote investeringen. Voor deze projecten zijn we nu nog te veel afhankelijk van buitenlandse kapitaalverstrekkers. Een nationale...
-- [‘Ik spreek wel Nederlands, hoorrr’](https://fd.nl/samenleving/1606830/ik-spreek-wel-nederlands-hoorrr)
-  > Zolang je wordt gezien als vertegenwoordiger van een groep, blijf je impliciet verantwoordelijk voor de woorden en daden van leden van die groep,...
-- [De overheid onderschat het risico op dataroof](https://fd.nl/opinie/1607025/de-overheid-onderschat-het-risico-op-dataroof)
-  > Wie ondernemers verplicht hun gevoelige gegevens in één database op te geven, moet de effectiviteit aantonen. Bij het UBO-register gebeurt dat niet.
+- [Exor geeft Philips weer teken van vertrouwen en helpt zichzelf](https://fd.nl/financiele-markten/1607087/exor-geeft-philips-weer-teken-van-vertrouwen-en-helpt-zichzelf)
+  > Italiaanse investeringsmaatschappij mag volgens nieuwe afspraken haar belang in Philips uitbreiden naar 22%. En er zit misschien nog meer in het vat....
+- [Supermarktsector VS onder druk, Ahold moet prijzen laag houden](https://fd.nl/bedrijfsleven/1606947/supermarktsector-vs-onder-druk-ahold-moet-prijzen-laag-houden)
+  > Amerikanen zijn zuiniger nu veel producten in het land duurder zijn geworden. Supermarktketens zoals Ahold Delhaize hebben daar last van en zijn voor...
+- [Waarom de scheepsmotoren van Wärtsilä opeens in datacenters liggen](https://fd.nl/financiele-markten/1602080/waarom-de-scheepsmotoren-van-wartsila-opeens-in-datacenters-liggen)
+  > In veel zeeschepen ligt een motor van Wärtsilä. Maar de groei van de Finse multinational wordt in een heel andere hoek verwacht: datacenters voor...
+- [Investeerders steken geld in manipulatie van weer en klimaat, wetenschap hoopt op verbod](https://fd.nl/bedrijfsleven/1607026/investeerders-sleutelen-aan-weer-en-klimaat-wetenschap-hoopt-op-verbod)
+  > Steeds meer start-ups storten zich de afgelopen jaren op klimaatmodificatie – en investeerders volgen. Wetenschappers waarschuwen voor de gevolgen.
+- [Meer meldingen van schade aan huizen door droogte: ‘In september gaat het stormlopen’](https://fd.nl/samenleving/1606945/meer-meldingen-van-schade-aan-huizen-door-droogte-in-september-gaat-het-stormlopen)
+  > Door veroudering, klimaatverandering en bodemdaling krijgen meer woningen last van verzakking, scheuren in muren en vochtvorming. Ook in gebieden...
 
 ### Meest gelezen
 
