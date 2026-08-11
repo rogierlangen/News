@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-08-2026 om 03:51*
+*Laatst bijgewerkt: 11-08-2026 om 05:12*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Dertig jaar concurrentie op het spoor: het kan, maar blijft 'niet eenvoudig'](https://nos.nl/l/2626349)
+  > Vandaag dertig jaar geleden reed 's ochtends een opvallende trein perron 2B van Amsterdam Centraal binnen: een gele diesellocomotief met twee...
+- [Wekdienst 11/8: Reddingsacties in Colombia • Broeders-Bol maakt EK-debuut 800 meter](https://nos.nl/l/2626347)
+  > Goedemorgen! Vanmiddag maakt Femke Broeders-Bol haar EK-debuut op de 800 meter tijdens de EK atletiek in Birmingham. En in Colombia wordt nog steeds...
 - [Rusland valt Kyiv en Zaporizja aan: opnieuw doden, gewonden en branden](https://nos.nl/l/2626345)
   > Rusland heeft vannacht nieuwe luchtaanvallen op Oekraïense steden uitgevoerd. Zo kreeg Zaporizja het zwaar te verduren. Daar zette Rusland...
 - [Nieuwe sproeiverboden en zorgen bij voetbalclubs om dorre velden](https://nos.nl/l/2626344)
   > Door de aanhoudende droogte zijn er nieuwe verboden op het oppompen van water om te sproeien bijgekomen. Boeren en andere gebruikers mogen voorlopig...
 - [Een jaar Nationale Garde in Washington: 'Duur en op de verkeerde plek'](https://nos.nl/l/2626343)
   > President Trump riep de soldaten van de Nationale Garde vorige zomer naar Washington D.C. vanwege een noodtoestand. Zij moesten de hoofdstad...
-- ['Taghi van Curaçao' berecht in EBI: justitie zet opnieuw in op PGP-bewijs](https://nos.nl/l/2626342)
-  > Shurandy 'Tyson' Q. staat sinds maandag terecht in een Curaçaos strafproces op Nederlandse bodem dat waarschijnlijk nog tot diep in volgend jaar zal...
-- [Grote groep wandelaars met baby's en kinderwagens gered uit Oostenrijkse Alpen](https://nos.nl/l/2626334)
-  > Reddingswerkers hebben in de Oostenrijkse Alpen een groep met drie gezinnen moeten redden die de weg kwijt waren geraakt tijdens een wandeling in de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Creditcardgegevens buitgemaakt bij datalek drukkerijbedrijf Simian](https://www.ad.nl/binnenland/creditcardgegevens-buitgemaakt-bij-datalek-drukkerijbedrijf-simian~a0bde8ba/)
-  > Bij een datalek bij drukkerijbedrijf Simian zijn mogelijk gegevens van Nederlandse en Belgische klanten buitgemaakt. Bij een kleine groep klanten...
-- [Washington Post: ‘Trump nam na Navo-top in Turkije geheime vlucht vanwege Iraanse aanslagdreiging’](https://www.ad.nl/buitenland/washington-post-trump-nam-na-navo-top-in-turkije-geheime-vlucht-vanwege-iraanse-aanslagdreiging~a9cc2a2c/)
-  > De Amerikaanse president Donald Trump is vorige maand na de Navo-top in Turkije in het geheim met een militair vliegtuig vertrokken in plaats van met...
-- [Deze weken spant het erom: welke wegen, bruggen en spoorlijnen kunnen wél vervangen worden?](https://www.ad.nl/politiek/deze-weken-spant-het-erom-welke-wegen-bruggen-en-spoorlijnen-kunnen-wel-vervangen-worden~a69434da/)
-  > Het spant erom voor tal van verkeersplannen de komende weken. Door miljardentekorten broedt minister Vincent Karremans (VVD) op een lijst met...
-- [Trump wil minder vaccinaties voor kinderen: zeven inentingen van aanbevolen lijst](https://www.ad.nl/buitenland/trump-wil-minder-vaccinaties-voor-kinderen-zeven-inentingen-van-aanbevolen-lijst~ae67dd9c/)
-  > Donald Trump heeft maandag een decreet getekend dat oproept om minder vaccinaties te geven aan kinderen. Ook wil de Amerikaanse president dat de nu...
-- [Oekraïens leger raakt Russische olieraffinaderij in Siberië, op zo’n 2.500 kilometer van Kyiv](https://www.ad.nl/buitenland/oekraiens-leger-raakt-russische-olieraffinaderij-in-siberie-op-zon-2-500-kilometer-van-kyiv~adfb97be/)
-  > Het Oekraïense leger heeft een luchtaanval uitgevoerd op de Russische plaats Tobolsk in het westen van Siberië. Dat heeft de Oekraïense president...
+- [Dagelijks leven weer 3,2 procent duurder in juli door hoge brandstof- en energieprijzen](https://www.ad.nl/economie/dagelijks-leven-weer-3-2-procent-duurder-in-juli-door-hoge-brandstof-en-energieprijzen~ad40ebc0/)
+  > De inflatie in juli ligt op 3,2 procent, meldt het Centraal Bureau voor de Statistiek (CBS) op basis van definitieve cijfers. Dat maakt het...
+- [Trump neemt het op voor Infantino: ‘Als hij weg is bij de FIFA, wordt het WK nooit meer zo succesvol of winstgevend!’](https://www.ad.nl/voetbal/trump-neemt-het-op-voor-infantino-als-hij-weg-is-bij-de-fifa-wordt-het-wk-nooit-meer-zo-succesvol-of-winstgevend~a2544497/)
+  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
+- [Zomertijd biedt weer ruimte voor een tweestrijd in de bios](https://www.ad.nl/show/zomertijd-biedt-weer-ruimte-voor-een-tweestrijd-in-de-bios~aaed8808/)
+  > De komkommertijd is voor filmmaatschappijen en bioscoopexploitanten steeds meer een gunstig seizoen om grote titels tegen elkaar op te laten boksen....
+- [1 miljoen euro voor een laatste kans: ouders van Muk (5) vechten tegen de klok](https://www.ad.nl/binnenland/1-miljoen-euro-voor-een-laatste-kans-ouders-van-muk-5-vechten-tegen-de-klok~acee9bc9/)
+  > Het liefst denkt Nadine niet na over de toekomst van haar dochter Muk (5). Hoe goedlachs en vol ritmegevoel het meisje nu is, zo anders zullen de...
+- [Bijna 40 wandelaars, onder wie mensen met kinderwagens, gered uit Oostenrijkse Alpen](https://www.ad.nl/buitenland/bijna-40-wandelaars-onder-wie-mensen-met-kinderwagens-gered-uit-oostenrijkse-alpen~aa1cc56b/)
+  > Een groep van 36 wandelaars moest zondagmiddag worden gered uit de Oostenrijkse Alpen, toen de groep van het pad afraakte. Onder de geredde...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Live: Vlakke handel op de beurzen](https://fd.nl/financiele-markten/1606942/live-vlakke-handel-op-de-beurzen)
+  > Beleggers zien aanhoudende inflatiedruk. Daardoor steeg de Amerikaanse kapitaalmarktrente gisteren naar 4,71%. De Europese aandelenmarkten gaan...
+- [Groene obligaties zijn weer in trek, maar niet dankzij Amerikaanse hyperscalers](https://fd.nl/financiele-markten/1607032/groene-obligaties-zijn-weer-in-trek-maar-niet-dankzij-amerikaanse-hyperscalers)
+  > Techbedrijven als Meta, Amazon en Alphabet domineren de obligatiemarkten, maar zijn mede vanwege het politieke klimaat in de VS terughoudend met...
+- [Schrijver en actrice Nazmiye Oral en haar jongere broer: ‘Mijn gezin heeft geen thuis meer. Al heel lang niet meer’](https://fd.nl/samenleving/1606756/schrijver-en-actrice-nazmiye-oral-en-haar-jongere-broer-mijn-gezin-heeft-geen-thuis-meer-al-heel-lang-niet-meer)
+  > Nazmiye Oral en haar veertien jaar jongere broer, fabrieksvoorman Mehmet Oral, over hun jeugd, anders behandeld worden en terugverhuizen naar Turkije.
 - [Cryptomiljardair blijkt stiekem de rijkste Nederlander ooit](https://fd.nl/economie/1607044/cryptomiljardair-blijkt-stiekem-de-rijkste-nederlander-ooit)
   > Vandaag in Dagkoers: er blijkt een nieuwe rijkste Nederlander en hoe kijk je veilig naar een zonsverduistering? En het omstreden geo-engineering is...
 - [Trumps ‘Groundhog Day’](https://fd.nl/opinie/1606899/trumps-groundhog-day)
   > Al vijf maanden herhaalt zich hetzelfde patroon: Trump dreigt met oorlog, krabbelt terug en voorspelt vervolgens opnieuw dat de Straat van Hormuz...
-- [Andy snapt het](https://fd.nl/opinie/1607039/andy-snapt-het)
-  > Niemand minder dan Andy Burnham liet zich uit over consumentenklachten in een ingezonden bijdrage aan The Guardian.
-- [Scott Bessent doet hard zijn best de lange rente in de VS te drukken](https://fd.nl/financiele-markten/1607037/scott-bessent-doet-hard-zijn-best-de-lange-rente-in-de-vs-te-drukken)
-  > Door de steun aan Japan en een verschuiving naar kortlopend papier probeert de Amerikaanse minister van financiën de druk op de Amerikaanse lange...
-- [Econoom die Curaçao financiële rust bracht gaat accountants controleren](https://fd.nl/financiele-markten/1606238/econoom-die-curacao-financiele-rust-bracht-gaat-accountants-controleren)
-  > Als monetair econoom Richard Doornbosch in 2020 overstapt naar de centrale bank in Willemstad treft hij daar een instituut in crisis.
 
 ### Meest gelezen
 
