@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-08-2026 om 07:13*
+*Laatst bijgewerkt: 11-08-2026 om 09:01*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Nederland stuurt tientallen militairen op oefening in Groenland](https://nos.nl/l/2626371)
+  > Nederland stuurt tientallen mariniers naar Groenland om mee te doen aan een NAVO-oefening. Dat heeft Defensieminister Yesilgöz in het tv-programma...
+- [Twee aanhoudingen voor anti-azc-bekladdingen en vernielingen Engelen](https://nos.nl/l/2626364)
+  > Een 52-jarige man en een 18-jarige vrouw uit de gemeente 's-Hertogenbosch zijn vanochtend aangehouden voor vernielingen en bekladdingen in Engelen en...
+- ['Trump stapte na NAVO-top verstopt in cateringwagentje over op ander vliegtuig'](https://nos.nl/l/2626363)
+  > Toen de Amerikaanse president Trump vorige maand plotseling van vliegtuig wisselde na de NAVO-top in Turkije, werd hij heimelijk vervoerd in een...
+- [Veel zwarte rook bij brand palletbedrijf Lelystad](https://nos.nl/l/2626360)
+  > Op een industrieterrein in Lelystad woedt een grote brand. Volgens Omroep Flevoland brak het vuur rond 08.45 uur uit bij een palletbedrijf.
+       ...
 - [Magneetvisser haalt enorme ijzeren vis uit vijver, blijkt gestolen kunstwerk](https://nos.nl/l/2626357)
   > Een magneetvisser heeft afgelopen weekend in Werkendam een meterslang kunstwerk van een vis gevonden dat een maand geleden werd gestolen uit een dorp...
-- [Dertig jaar concurrentie op het spoor: het kan, maar blijft 'niet eenvoudig'](https://nos.nl/l/2626349)
-  > Vandaag dertig jaar geleden reed 's ochtends een opvallende trein perron 2B van Amsterdam Centraal binnen: een gele diesellocomotief met twee...
-- [Wekdienst 11/8: Reddingsacties in Colombia • Broeders-Bol maakt EK-debuut 800 meter](https://nos.nl/l/2626347)
-  > Goedemorgen! Vanmiddag maakt Femke Broeders-Bol haar EK-debuut op de 800 meter tijdens de EK atletiek in Birmingham. En in Colombia wordt nog steeds...
-- [Rusland valt Kyiv en Zaporizja aan: opnieuw doden, gewonden en branden](https://nos.nl/l/2626345)
-  > Rusland heeft vannacht nieuwe luchtaanvallen op Oekraïense steden uitgevoerd. Zo kreeg Zaporizja het zwaar te verduren. Daar zette Rusland...
-- [Nieuwe sproeiverboden en zorgen bij voetbalclubs om dorre velden](https://nos.nl/l/2626344)
-  > Door de aanhoudende droogte zijn er nieuwe verboden op het oppompen van water om te sproeien bijgekomen. Boeren en andere gebruikers mogen voorlopig...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Via achteringang, met klauwhamer en onder bedreiging: dieven slaan in één week drie keer toe in legowinkel van Erik](https://www.ad.nl/binnenland/via-achteringang-met-klauwhamer-en-onder-bedreiging-dieven-slaan-in-een-week-drie-keer-toe-in-legowinkel-van-erik~aeda849b/)
-  > Een klauwhamer door de pui, bedreiging van het personeel en een man die met handenvol dozen zomaar via de achteruitgang naar buiten wandelt. Drie...
-- [Scheepsverkeer in Straat van Hormuz neemt nog verder af](https://www.ad.nl/buitenland/scheepsverkeer-in-straat-van-hormuz-neemt-nog-verder-af~ac528ac3/)
-  > Het verkeer door de Straat van Hormuz is maandag teruggevallen naar zes schepen. Dat is nog minder dan het gemiddelde van zo’n elf schepen per dag,...
-- [Oplichters versturen valse brieven uit naam van John de Mol: ‘Zeer kwalijk’](https://www.ad.nl/show/oplichters-versturen-valse-brieven-uit-naam-van-john-de-mol-zeer-kwalijk~a569c025/)
-  > Door middel van frauduleuze brieven hebben oplichters zich meermaals voorgedaan als Talpa-baas John de Mol. Dat bevestigt een woordvoerder van Talpa...
-- [Dochter van Tom Cruise, die onlangs achternaam liet schrappen, maakt acteerdebuut](https://www.ad.nl/show/dochter-van-tom-cruise-die-onlangs-achternaam-liet-schrappen-maakt-acteerdebuut~a8d175ec/)
-  > Suri Noelle, de dochter van acteurs Tom Cruise (64) en Katie Holmes (47), heeft haar eerste stappen als actrice gezet. De 20-jarige staat de komende...
-- [Sieraden en gouden vullingen, afkomstig uit graven, werden ‘doorverkocht’ door medewerkers begraafplaats](https://www.ad.nl/binnenland/sieraden-en-gouden-vullingen-afkomstig-uit-graven-werden-doorverkocht-door-medewerkers-begraafplaats~a6169bfd/)
-  > Gouden vullingen en sieraden: gestolen uit graven en daarna doorverkocht. Nadat eerder al een grafdelver werd aangehouden, heeft justitie nóg twee...
+- [Afgezette Syrische dictator Bashar al-Assad in Syrië bij verstek ter dood veroordeeld](https://www.ad.nl/buitenland/afgezette-syrische-dictator-bashar-al-assad-in-syrie-bij-verstek-ter-dood-veroordeeld~acfcea29/)
+  > De Syrische dictator Bashar al-Assad is in zijn thuisland bij verstek ter dood veroordeeld, dat meldt persbureau AFP. Hij werd in 2024 afgezet en...
+- [Gian van Veen is aan de andere kant van de wereld, maar zonder pijlen: ‘Ik zit in de livechat met Qatar Airways’](https://www.ad.nl/darts/gian-van-veen-is-aan-de-andere-kant-van-de-wereld-maar-zonder-pijlen-ik-zit-in-de-livechat-met-qatar-airways~aeaf5ed2/)
+  > Darten in Nieuw-Zeeland en Australië: het is deze én volgende week een droom die uitkomt voor Gian van Veen. Maar met welke pijlen en in welke kleren...
+- [Eclipsbril vrijwel overal uitverkocht: hoe kijk je tóch veilig naar de zonsverduistering?](https://www.ad.nl/gezond/eclipsbril-vrijwel-overal-uitverkocht-hoe-kijk-je-toch-veilig-naar-de-zonsverduistering~a8d8c596/)
+  > Voor het eerst in jaren is er komende woensdag weer een grote zonsverduistering te zien. Maar wie het spektakel wil bekijken en nog geen eclipsbril...
+- [Man (52) en vrouw (18) aangehouden voor vernielingen en bekladdingen in Engelen en Bokhoven](https://www.ad.nl/den-bosch/man-52-en-vrouw-18-aangehouden-voor-vernielingen-en-bekladdingen-in-engelen-en-bokhoven~a7c84ccd/)
+  > De politie heeft twee mensen aangehouden voor de bekladdingen en vernielingen vorige maand in de Brabantse dorpen Engelen en Bokhoven. Het gaat om...
+- [Yvon bezoekt pasgeboren Boer zoekt vrouw-baby en Maxime heeft kuiken op haar hoofd](https://www.ad.nl/show/yvon-bezoekt-pasgeboren-boer-zoekt-vrouw-baby-en-maxime-heeft-kuiken-op-haar-hoofd~acd03c0c/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Exor mag belang in Philips verder uitbreiden](https://fd.nl/bedrijfsleven/1607080/exor-mag-belang-in-philips-verder-uitbreiden)
-  > Exor heeft sinds 2023 een belang in het medische technologiebedrijf. De Italiaanse investeringsmaatschappij mag haar belang in Philips uitbreiden...
-- [ING: Nederlandse horeca groeit nauwelijks in 2026](https://fd.nl/samenleving/1607079/ing-nederlandse-horeca-groeit-nauwelijks-in-2026)
-  > De horecaprijzen stijgen dit jaar gemiddeld met 5% door inflatie en de hogere btw op logies.
-- [Shein jaagt beursgang in Hongkong na met waardering 70% lager dan piek](https://fd.nl/bedrijfsleven/1607078/shein-jaagt-beursgang-in-hongkong-na-met-waardering-70-lager-dan-piek)
-  > De retailer probeerde twee keer eerder voor een beursnotering te gaan, in New York en Londen, maar die pogingen mislukten.
-- [TKH deelt nieuwe doelen voor af te splitsen elektrificatietak](https://fd.nl/bedrijfsleven/1606901/tkh-deelt-nieuwe-doelen-voor-af-te-splitsen-elektrificatietak)
-  > TKH uit Haaksbergen verwacht voor de elektrificatietak op de middellange termijn een autonome omzetgroei van meer dan 9%.
-- [Live: Philips koploper in iets hogere AEX, TKH wint fors](https://fd.nl/financiele-markten/1606942/live-vlakke-handel-op-de-beurzen)
-  > Beleggers zien aanhoudende inflatiedruk en staan daardoor vooral in een afwachtende houding. De olieprijs loopt verder op. Hetzelfde geldt voor de...
+- [Gaat gen Z nog een keer aan het werk?!](https://fd.nl/financiele-markten/1607082/gaat-gen-z-nog-een-keer-aan-het-werk)
+  > Sommigen zien gen Z als lui, anderen als verfrissend mondig. FD-columnist Milou Brand ziet het anders: gen Z heeft een overschot aan opties. En dus...
+- [Poetin doet beroep op hardliners om onvrede te beteugelen](https://fd.nl/samenleving/1607052/poetin-doet-beroep-op-hardliners-om-onvrede-te-beteugelen)
+  > De Russische president Vladimir Poetin geeft de veiligheidsdienst FSB de vrije hand voor repressie, nu de onrust onder de bevolking toeneemt.
+- [Nationale investeringsbank is ook kwestie van nationale zelfstandigheid](https://fd.nl/opinie/1606895/nationale-investeringsbank-is-ook-kwestie-van-nationale-zelfstandigheid)
+  > Nederland staat voor grote investeringen. Voor deze projecten zijn we nu nog te veel afhankelijk van buitenlandse kapitaalverstrekkers. Een nationale...
+- [‘Ik spreek wel Nederlands, hoorrr’](https://fd.nl/samenleving/1606830/ik-spreek-wel-nederlands-hoorrr)
+  > Zolang je wordt gezien als vertegenwoordiger van een groep, blijf je impliciet verantwoordelijk voor de woorden en daden van leden van die groep,...
+- [De overheid onderschat het risico op dataroof](https://fd.nl/opinie/1607025/de-overheid-onderschat-het-risico-op-dataroof)
+  > Wie ondernemers verplicht hun gevoelige gegevens in één database op te geven, moet de effectiviteit aantonen. Bij het UBO-register gebeurt dat niet.
 
 ### Meest gelezen
 
