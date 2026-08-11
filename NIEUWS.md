@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-08-2026 om 22:47*
+*Laatst bijgewerkt: 11-08-2026 om 23:44*
 
 ---
 
@@ -10,7 +10,7 @@
 
 - [Tienduizenden psychiatrische patiënten na behandeling uit zicht hulpverleners](https://nos.nl/l/2626482)
   > De behandeling in ggz-instellingen van zeker 60.000 mensen met een ernstige psychiatrische aandoening is vaak tevergeefs. Daarmee is een kwart van de...
-- [Mensenrechtenclubs klagen regering VS aan om acties tegen Internationaal Strafhof](https://nos.nl/l/2626481)
+- [Mensenrechtenclubs klagen regering VS aan om sancties tegen Internationaal Strafhof](https://nos.nl/l/2626481)
   > Vier mensenrechtenorganisaties hebben de Amerikaanse regering aangeklaagd in New York vanwege de sancties tegen het Internationaal Strafhof (ICC) in...
 - [Resten in Rotterdam vermoorde Oekraïense nationalist overgebracht naar Kyiv](https://nos.nl/l/2626470)
   > Op een begraafplaats in de Rotterdamse wijk Crooswijk zijn de resten opgegraven van de vermoorde Oekraïense nationalist Jevhen Konovalets...
@@ -29,10 +29,10 @@
 
 - [Jonas Phijffers gaat op woensdag strijden voor medaille op 400 meter, ook Lieke Klaver in actie](https://www.ad.nl/andere-sporten/jonas-phijffers-gaat-op-woensdag-strijden-voor-medaille-op-400-meter-ook-lieke-klaver-in-actie~a11aa01c/)
   > 57 Nederlandse atleten doen deze week mee aan de EK atletiek in Birmingham. Wanneer komen Femke Broeders-Bol, Lieke Klaver en de andere Nederlanders...
+- [Leipzig wil door PSV begeerde Geertruida alleen verkopen, Hamer terug bij Coventry City](https://www.ad.nl/voetbal/leipzig-wil-door-psv-begeerde-geertruida-alleen-verkopen-hamer-terug-bij-coventry-city~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
 - [Voetbalpodcast | ‘Het zou prachtig zijn als NEC ook die laatste horde neemt naar de Champions League’](https://www.ad.nl/voetbal/voetbalpodcast-het-zou-prachtig-zijn-als-nec-ook-die-laatste-horde-neemt-naar-de-champions-league~a42af5cd9/)
   > NEC maakt nog altijd kans op deelname aan de competitiefase van de Champions League. Met een overwinning op Olympiakos plaatste de ploeg van...
-- [Leipzig wil door PSV begeerde Geertruida alleen verkopen, Vlahovic op weg naar Besiktas](https://www.ad.nl/voetbal/leipzig-wil-door-psv-begeerde-geertruida-alleen-verkopen-vlahovic-op-weg-naar-besiktas~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
 - [Champions League gloort in Nijmegen: NEC in verlenging langs Olympiakos, Noorse stuntclub wacht in play-offs](https://www.ad.nl/voetbal/champions-league-gloort-in-nijmegen-nec-in-verlenging-langs-olympiakos-noorse-stuntclub-wacht-in-play-offs~af549d37/)
   > NEC heeft dikverdiend de play-offs van de Champions League-voorronde bereikt. De Nijmegenaren leken vlak voor het laatste fluitsignaal de wedstrijd...
 - [Elvis Afrifa komt in laatste meters net tekort voor bronzen medaille op de 100 meter](https://www.ad.nl/andere-sporten/elvis-afrifa-komt-in-laatste-meters-net-tekort-voor-bronzen-medaille-op-de-100-meter~a931e786/)
