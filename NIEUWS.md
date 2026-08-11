@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-08-2026 om 18:01*
+*Laatst bijgewerkt: 11-08-2026 om 20:00*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Korte nacht voor asielzoekers in Surhuisterveen door activisten](https://nos.nl/l/2626438)
-  > Tientallen actievoerders hebben gisteravond in Surhuisterveen geprobeerd een bus met 28 asielzoekers tegen te houden. De inzittenden waren op weg...
-- [Rijkswaterstaat: nog hele jaar problemen met droogte, drinkwatervoorziening op orde](https://nos.nl/l/2626428)
-  > De langdurige droogte in Nederland begint 'historische' vormen aan te nemen, schrijft Rijkswaterstaat in zijn wekelijkse Droogtemonitor.
-        De...
-- [Diefstal uit brandweerkazernes explosief toegenomen, 'levensreddend werk belemmerd'](https://nos.nl/l/2626426)
-  > Maassluis, Aalsmeer, Ten Boer. Plaatsen waar criminelen de afgelopen week brandweerkazernes binnendrongen om redgereedschap te stelen. Dat zijn...
-- [Voormalig rechter officieel gekozen als nieuwe president Hongarije](https://nos.nl/l/2626421)
-  > De voormalige president van het Hongaarse Hooggerechtshof, András Baka, is officieel gekozen als president van Hongarije. De regeringspartij Tisza...
-- [Verdachte aangehouden na crash van auto met explosieven in Amsterdam](https://nos.nl/l/2626419)
-  > De politie heeft vanochtend op Schiphol een 33-jarige man uit Amsterdam opgepakt in het onderzoek naar een crash met een auto vol explosieven in...
+- [Spotify geeft AI-artiesten label en weert hen uit aanbevelingen](https://nos.nl/l/2626458)
+  > Muziekstreamingplatform Spotify introduceert een label om aan te geven of een artiest met kunstmatige intelligentie (AI) is gegenereerd. Ook wil...
+- [Droogte raakt Franse akkers: 'Hier hadden bieten moeten groeien, maar er is niets'](https://nos.nl/l/2626455)
+  > Boeren in Frankrijk slaan alarm over de aanhoudende droogte. Volgens het ministerie van Landbouw is in 67 departementen inmiddels sprake van een...
+- [Kabinet voert volgende week begrotingsgesprekken met oppositie](https://nos.nl/l/2626453)
+  > Het kabinet gaat vanaf volgende week in gesprek met de oppositiepartijen om steun te vinden voor de begrotingsplannen die op Prinsjesdag...
+- [Rusland laat Amerikaanse gevangene vrij, krijgt volgens Trump geen gevangene terug](https://nos.nl/l/2626452)
+  > Rusland heeft de Amerikaanse oud-marinier en docent Engels Robert Gilman vrijgelaten. Gisteren lieten onder meer familieleden van Gilman weten dat...
+- [Grote rookpluim door brand op parkeerplaats nabij vliegveld Parijs](https://nos.nl/l/2626447)
+  > Ten noordwesten van Parijs woedt brand op een parkeerplaats in de buurt van luchthaven Parijs-Charles de Gaulle. De dikke rookpluim is in de wijde...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Chef droogte Rijkswaterstaat heeft dit ook ‘nog nooit meegemaakt’, maar toch is er geen reden voor paniek](https://www.ad.nl/politiek/chef-droogte-rijkswaterstaat-heeft-dit-ook-nog-nooit-meegemaakt-maar-toch-is-er-geen-reden-voor-paniek~a3d80dc9e/)
-  > Zelfs als het nu gaat regenen, voelen we de naweeën van deze droogte nog maandenlang. En toch is het formeel nog niet de hoogste alarmfase rond het...
-- [NEC laat tanden zien in beginfase van onstuimig duel met Olympiakos](https://www.ad.nl/voetbal/nec-laat-tanden-zien-in-beginfase-van-onstuimig-duel-met-olympiakos~af549d37/)
+- [Nadine Visser maakt zich op voor finale 100 meter horden, Elvis Afrifa overleeft halve finale 100 meter](https://www.ad.nl/andere-sporten/nadine-visser-maakt-zich-op-voor-finale-100-meter-horden-elvis-afrifa-overleeft-halve-finale-100-meter~a931e786/)
+  > De EK atletiek worden dit jaar georganiseerd in het Engelse Birmingham. Wat kan Femke Broeders-Bol op de 800 meter en hoeveel medailles gaat...
+- [NEC stevent af op plekje in play-offs, Olympiakos lijkt moegestreden in verlenging](https://www.ad.nl/voetbal/nec-stevent-af-op-plekje-in-play-offs-olympiakos-lijkt-moegestreden-in-verlenging~af549d37/)
   > NEC speelt vanavond de return van de derde voorronde van de Champions League tegen Olympiakos. Vorige week werd het 0-0 in Griekenland. Wat kunnen de...
-- [Inbrekers slaan toe in woning waar vader van Kenzo ligt opgebaard: ‘Zochten naast zijn kist naar waardevolle spullen’](https://www.ad.nl/binnenland/inbrekers-slaan-toe-in-woning-waar-vader-van-kenzo-ligt-opgebaard-zochten-naast-zijn-kist-naar-waardevolle-spullen~abce90d4/)
-  > Wat een waardig afscheid van zijn vader had moeten zijn, veranderde voor Kenzo in een nachtmerrie. Terwijl zijn overleden vader thuis lag opgebaard,...
-- [De zonsverduistering lijkt donker, maar is nog steeds ‘een gruwelijke bak licht’: zo maak je morgen een goede foto](https://www.ad.nl/gezond/de-zonsverduistering-lijkt-donker-maar-is-nog-steeds-een-gruwelijke-bak-licht-zo-maak-je-morgen-een-goede-foto~a7505efa/)
-  > Als je astronomen mag geloven, kun je voor de zonsverduistering van morgen het beste je smartphone thuislaten. Maar ben je toch eigenwijs, dan bieden...
-- [Brad Pitt kampte na breuk Angelina Jolie met mentale problemen](https://www.ad.nl/show/brad-pitt-kampte-na-breuk-angelina-jolie-met-mentale-problemen~ab058581/)
-  > Brad Pitt heeft na zijn breuk met Angelina Jolie een korte periode gedacht aan zelfmoord. Hij zag geen uitweg meer, vertelt hij in een groot...
+- [Cristiano Ronaldo is nu écht getrouwd: Instagram-foto toont trouwringen na bizar weekend](https://www.ad.nl/show/cristiano-ronaldo-is-nu-echt-getrouwd-instagram-foto-toont-trouwringen-na-bizar-weekend~a335322a/)
+  > Na jaren van geruchten en speculatie is het eindelijk zover: Cristiano Ronaldo is getrouwd met zijn grote liefde Georgina Rodriguez. De Portugese...
+- [Memphis Depay en Corinthians alsnog uit elkaar: club kan nieuw contract financieel niet verantwoorden](https://www.ad.nl/voetbal/memphis-depay-en-corinthians-alsnog-uit-elkaar-club-kan-nieuw-contract-financieel-niet-verantwoorden~a1f4b860/)
+  > Het contract van Memphis Depay (32) wordt toch niet verlengd door Corinthians. Enkele weken geleden leken beide partijen elkaar te naderen en leek de...
+- [Katten afschieten is geen oplossing, maar gewoon wreed](https://www.ad.nl/binnenland/katten-afschieten-is-geen-oplossing-maar-gewoon-wreed~af063b31/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 
 ### Meest gelezen
 
