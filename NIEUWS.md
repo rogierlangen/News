@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-08-2026 om 16:59*
+*Laatst bijgewerkt: 11-08-2026 om 18:01*
 
 ---
 
@@ -8,7 +8,9 @@
 
 ### Laatste nieuws
 
-- [Rijkswaterstaat: nog hele jaar problemen met droogte, maar drinkwatervoorziening nog op orde](https://nos.nl/l/2626428)
+- [Korte nacht voor asielzoekers in Surhuisterveen door activisten](https://nos.nl/l/2626438)
+  > Tientallen actievoerders hebben gisteravond in Surhuisterveen geprobeerd een bus met 28 asielzoekers tegen te houden. De inzittenden waren op weg...
+- [Rijkswaterstaat: nog hele jaar problemen met droogte, drinkwatervoorziening op orde](https://nos.nl/l/2626428)
   > De langdurige droogte in Nederland begint 'historische' vormen aan te nemen, schrijft Rijkswaterstaat in zijn wekelijkse Droogtemonitor.
         De...
 - [Diefstal uit brandweerkazernes explosief toegenomen, 'levensreddend werk belemmerd'](https://nos.nl/l/2626426)
@@ -17,8 +19,6 @@
   > De voormalige president van het Hongaarse Hooggerechtshof, András Baka, is officieel gekozen als president van Hongarije. De regeringspartij Tisza...
 - [Verdachte aangehouden na crash van auto met explosieven in Amsterdam](https://nos.nl/l/2626419)
   > De politie heeft vanochtend op Schiphol een 33-jarige man uit Amsterdam opgepakt in het onderzoek naar een crash met een auto vol explosieven in...
-- [Zelensky waarschuwt voor meer Noord-Koreaanse hulp aan Rusland](https://nos.nl/l/2626415)
-  > Bij de Russische aanvallen vannacht op Zaporizja heeft Rusland Noord-Koreaanse ballistische raketten ingezet. Dat zegt de Oekraïense president...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Oppermachtige Marrit Steenbergen grijpt Europese titel op 100 meter vrije slag, Milou van Wijk pakt knap zilver](https://www.ad.nl/andere-sporten/oppermachtige-marrit-steenbergen-grijpt-europese-titel-op-100-meter-vrije-slag-milou-van-wijk-pakt-knap-zilver~aba8d6b4/)
-  > Marrit Steenbergen heeft de Europese titel op de 100 meter vrije slag gepakt. Met 51,90 seconden was zij een stuk sterker dan de concurrentie. Milou...
-- [Sociale media gaan de strijd aan met ‘AI-slop’, want ze worden overspoeld door generieke AI-berichtjes](https://www.ad.nl/tech/sociale-media-gaan-de-strijd-aan-met-ai-slop-want-ze-worden-overspoeld-door-generieke-ai-berichtjes~af37a97b/)
-  > Sociale media worden overladen met AI-gegenereerde teksten, video’s en plaatjes. Daar zitten gebruikers niet op te wachten, dus gaan platforms de...
-- [NEC met ervaren krachten in aanvalslinie tegen Olympiakos, ook Phillipe Sandler keert terug](https://www.ad.nl/voetbal/nec-met-ervaren-krachten-in-aanvalslinie-tegen-olympiakos-ook-phillipe-sandler-keert-terug~af549d37/)
+- [Chef droogte Rijkswaterstaat heeft dit ook ‘nog nooit meegemaakt’, maar toch is er geen reden voor paniek](https://www.ad.nl/politiek/chef-droogte-rijkswaterstaat-heeft-dit-ook-nog-nooit-meegemaakt-maar-toch-is-er-geen-reden-voor-paniek~a3d80dc9e/)
+  > Zelfs als het nu gaat regenen, voelen we de naweeën van deze droogte nog maandenlang. En toch is het formeel nog niet de hoogste alarmfase rond het...
+- [NEC laat tanden zien in beginfase van onstuimig duel met Olympiakos](https://www.ad.nl/voetbal/nec-laat-tanden-zien-in-beginfase-van-onstuimig-duel-met-olympiakos~af549d37/)
   > NEC speelt vanavond de return van de derde voorronde van de Champions League tegen Olympiakos. Vorige week werd het 0-0 in Griekenland. Wat kunnen de...
-- [De échte prinses Amalia zie je tussen de paarden op het WK in Aken: ‘Ik word gewoon echt verliefd op ze’](https://www.ad.nl/show/de-echte-prinses-amalia-zie-je-tussen-de-paarden-op-het-wk-in-aken-ik-word-gewoon-echt-verliefd-op-ze~ae70170e/)
-  > Wie de ware prinses Amalia wil zien, moet haar eigenlijk eens opzoeken tussen de paarden. Dat kon dinsdag tijdens haar bezoek aan de...
-- [Waterschap grijpt in met ‘zeldzaam’ sproeiverbod overdag voor 1,4 miljoen mensen: ‘Situatie verslechtert’](https://www.ad.nl/binnenland/waterschap-grijpt-in-met-zeldzaam-sproeiverbod-overdag-voor-1-4-miljoen-mensen-situatie-verslechtert~a978d523/)
-  > Vanaf vrijdag is het verboden om in het gebied van Waterschap Amstel, Gooi en Vecht tuinen, sportvelden en weilanden te sproeien. Deze ‘zeldzame’...
+- [Inbrekers slaan toe in woning waar vader van Kenzo ligt opgebaard: ‘Zochten naast zijn kist naar waardevolle spullen’](https://www.ad.nl/binnenland/inbrekers-slaan-toe-in-woning-waar-vader-van-kenzo-ligt-opgebaard-zochten-naast-zijn-kist-naar-waardevolle-spullen~abce90d4/)
+  > Wat een waardig afscheid van zijn vader had moeten zijn, veranderde voor Kenzo in een nachtmerrie. Terwijl zijn overleden vader thuis lag opgebaard,...
+- [De zonsverduistering lijkt donker, maar is nog steeds ‘een gruwelijke bak licht’: zo maak je morgen een goede foto](https://www.ad.nl/gezond/de-zonsverduistering-lijkt-donker-maar-is-nog-steeds-een-gruwelijke-bak-licht-zo-maak-je-morgen-een-goede-foto~a7505efa/)
+  > Als je astronomen mag geloven, kun je voor de zonsverduistering van morgen het beste je smartphone thuislaten. Maar ben je toch eigenwijs, dan bieden...
+- [Brad Pitt kampte na breuk Angelina Jolie met mentale problemen](https://www.ad.nl/show/brad-pitt-kampte-na-breuk-angelina-jolie-met-mentale-problemen~ab058581/)
+  > Brad Pitt heeft na zijn breuk met Angelina Jolie een korte periode gedacht aan zelfmoord. Hij zag geen uitweg meer, vertelt hij in een groot...
 
 ### Meest gelezen
 
@@ -47,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Met alleen het afschaffen van de Wet betaalbare huur is de private huursector niet geholpen](https://fd.nl/opinie/1606944/met-alleen-het-afschaffen-van-de-wet-betaalbare-huur-is-de-private-huursector-niet-geholpen)
+  > De private huursector loopt vast. Kreten als ‘schaf de Wet betaalbare huur af’ doen geen recht aan de complexiteit van de problematiek.
 - [Hitte kan groei doen verdampen, maar in modellen is klimaat de grote afwezige](https://fd.nl/economie/1607284/hitte-kan-groei-doen-verdampen-maar-in-modellen-is-klimaat-de-grote-afwezige)
   > De aanhoudende droogte leidt tot een terugval in groei. Maar is die dip tijdelijk? Economen die een prognose willen geven staan voor een uitdaging,...
 - [Hongaars parlement kiest Orbán-criticus András Baka als president](https://fd.nl/politiek/1607287/hongaars-parlement-kiest-orban-criticus-andras-baka-als-president)
@@ -55,8 +57,6 @@
   > Het popicoon ontwikkelde SirDavis samen met het luxemerk, maar is nu volledig eigenaar.
 - [Nvidia hoopt van zijn chips een nieuw beleggingsobject te maken](https://fd.nl/financiele-markten/1607279/nvidia-hoopt-van-zijn-chips-een-nieuw-beleggingsobject-te-maken)
   > De chipfabrikant hoopt nieuw geld aan te trekken voor bedrijven die dure datacenters voor AI willen bouwen, middels leningen met Nvidia-chips als...
-- [Trump wisselde van vliegtuig in een cateringwagen](https://fd.nl/politiek/1607182/trump-wisselde-van-vliegtuig-in-een-cateringwagen)
-  > Verstopt in een cateringwagen stapte Donald Trump over van zijn Air Force One naar een militair toestel, toen hij vorige maand van de Turkse...
 
 ### Meest gelezen
 
