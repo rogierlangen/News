@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-08-2026 om 23:37*
+*Laatst bijgewerkt: 11-08-2026 om 02:00*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Rusland valt Kyiv en Zaporizja aan: opnieuw doden, gewonden en branden](https://nos.nl/l/2626345)
+  > Rusland heeft vannacht nieuwe luchtaanvallen op Oekraïense steden uitgevoerd. Zo kreeg Zaporizja het zwaar te verduren. Daar zette Rusland...
+- [Nieuwe sproeiverboden en zorgen bij voetbalclubs om dorre velden](https://nos.nl/l/2626344)
+  > Door de aanhoudende droogte zijn er nieuwe verboden op het oppompen van water om te sproeien bijgekomen. Boeren en andere gebruikers mogen voorlopig...
 - [Een jaar Nationale Garde in Washington: 'Duur en op de verkeerde plek'](https://nos.nl/l/2626343)
   > President Trump riep de soldaten van de Nationale Garde vorige zomer naar Washington D.C. vanwege een noodtoestand. Zij moesten de hoofdstad...
 - ['Taghi van Curaçao' berecht in EBI: justitie zet opnieuw in op PGP-bewijs](https://nos.nl/l/2626342)
   > Shurandy 'Tyson' Q. staat sinds maandag terecht in een Curaçaos strafproces op Nederlandse bodem dat waarschijnlijk nog tot diep in volgend jaar zal...
 - [Grote groep wandelaars met baby's en kinderwagens gered uit Oostenrijkse Alpen](https://nos.nl/l/2626334)
   > Reddingswerkers hebben in de Oostenrijkse Alpen een groep met drie gezinnen moeten redden die de weg kwijt waren geraakt tijdens een wandeling in de...
-- [Turks parlement stemt in met amnestie voor PKK-leden](https://nos.nl/l/2626331)
-  > Het Turkse parlement heeft een wetsvoorstel aangenomen waardoor PKK-gevangenen mogelijk vervroegd vrijkomen. Het voorstel werd met 468 stemmen...
-- [Dodental zware aardbeving Colombia opgelopen tot 111](https://nos.nl/l/2626322)
-  > Het dodental van de zware aardbeving in Colombia is opgelopen tot zeker 111. Dat heeft president De La Espriella bekendgemaakt. Er zijn minstens 87...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Washington Post: ‘Trump nam na Navo-top in Turkije geheime vlucht terug vanwege dreiging Iran’](https://www.ad.nl/buitenland/washington-post-trump-nam-na-navo-top-in-turkije-geheime-vlucht-terug-vanwege-dreiging-iran~a9cc2a2c/)
+  > De Amerikaanse president Donald Trump is vorige maand na de Navo-top in Turkije in het geheim met een militair vliegtuig vertrokken in plaats van met...
+- [Deze weken spant het erom: welke wegen, bruggen en spoorlijnen kunnen wél vervangen worden?](https://www.ad.nl/politiek/deze-weken-spant-het-erom-welke-wegen-bruggen-en-spoorlijnen-kunnen-wel-vervangen-worden~a69434da/)
+  > Het spant erom voor tal van verkeersplannen de komende weken. Door miljardentekorten broedt minister Vincent Karremans (VVD) op een lijst met...
+- [Trump wil minder vaccinaties voor kinderen: zeven inentingen van aanbevolen lijst](https://www.ad.nl/buitenland/trump-wil-minder-vaccinaties-voor-kinderen-zeven-inentingen-van-aanbevolen-lijst~ae67dd9c/)
+  > Donald Trump heeft maandag een decreet getekend dat oproept om minder vaccinaties te geven aan kinderen. Ook wil de Amerikaanse president dat de nu...
 - [Oekraïens leger raakt Russische olieraffinaderij in Siberië, op zo’n 2.500 kilometer van Kyiv](https://www.ad.nl/buitenland/oekraiens-leger-raakt-russische-olieraffinaderij-in-siberie-op-zon-2-500-kilometer-van-kyiv~adfb97be/)
   > Het Oekraïense leger heeft een luchtaanval uitgevoerd op de Russische plaats Tobolsk in het westen van Siberië. Dat heeft de Oekraïense president...
 - [Voetbalpodcast | ‘Ruud van Nistelrooij is veel logischere naam voor Oranje dan Michael Reiziger’](https://www.ad.nl/voetbal/voetbalpodcast-ruud-van-nistelrooij-is-veel-logischere-naam-voor-oranje-dan-michael-reiziger~a42af5cd9/)
   > Mag NEC blijven dromen van de Champions League of is die droom vanavond voorbij? Wie wil er bondscoach worden? Of wie krijgt de voorkeur van de KNVB?...
-- [Nieuwe Turkse wet moet einde maken aan decennialange strijd met de PKK](https://www.ad.nl/buitenland/nieuwe-turkse-wet-moet-einde-maken-aan-decennialange-strijd-met-de-pkk~ab3c0760/)
-  > Het Turkse parlement heeft een wet aangenomen die een einde moet maken aan de decennialange strijd met de Koerdische Arbeiderspartij (PKK). De wet...
-- [Hij roert zich dan toch in de sportwereld: ‘Amazon-oprichter Jeff Bezos koopt zich in bij Liverpool’](https://www.ad.nl/voetbal/hij-roert-zich-dan-toch-in-de-sportwereld-amazon-oprichter-jeff-bezos-koopt-zich-in-bij-liverpool~a3369cb3/)
-  > Jeff Bezos (62), de oprichter van Amazon met een geschat vermogen van 245 miljard euro, staat op het punt om mede-eigenaar van Liverpool te worden....
-- [Nederland doet met tientallen mariniers mee aan Groenland-missie, exacte inzet blijft geheim](https://www.ad.nl/binnenland/nederland-doet-met-tientallen-mariniers-mee-aan-groenland-missie-exacte-inzet-blijft-geheim~ab245cd1/)
-  > Nederland stuurt tientallen mariniers naar Groenland om in Navo-verband te oefenen, zei minister van Defensie Dilan Yeşilgöz in het...
 
 ### Meest gelezen
 
