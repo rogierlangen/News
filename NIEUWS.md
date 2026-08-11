@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-08-2026 om 02:00*
+*Laatst bijgewerkt: 11-08-2026 om 03:51*
 
 ---
 
@@ -27,7 +27,9 @@
 
 ### Laatste nieuws
 
-- [Washington Post: ‘Trump nam na Navo-top in Turkije geheime vlucht terug vanwege dreiging Iran’](https://www.ad.nl/buitenland/washington-post-trump-nam-na-navo-top-in-turkije-geheime-vlucht-terug-vanwege-dreiging-iran~a9cc2a2c/)
+- [Creditcardgegevens buitgemaakt bij datalek drukkerijbedrijf Simian](https://www.ad.nl/binnenland/creditcardgegevens-buitgemaakt-bij-datalek-drukkerijbedrijf-simian~a0bde8ba/)
+  > Bij een datalek bij drukkerijbedrijf Simian zijn mogelijk gegevens van Nederlandse en Belgische klanten buitgemaakt. Bij een kleine groep klanten...
+- [Washington Post: ‘Trump nam na Navo-top in Turkije geheime vlucht vanwege Iraanse aanslagdreiging’](https://www.ad.nl/buitenland/washington-post-trump-nam-na-navo-top-in-turkije-geheime-vlucht-vanwege-iraanse-aanslagdreiging~a9cc2a2c/)
   > De Amerikaanse president Donald Trump is vorige maand na de Navo-top in Turkije in het geheim met een militair vliegtuig vertrokken in plaats van met...
 - [Deze weken spant het erom: welke wegen, bruggen en spoorlijnen kunnen wél vervangen worden?](https://www.ad.nl/politiek/deze-weken-spant-het-erom-welke-wegen-bruggen-en-spoorlijnen-kunnen-wel-vervangen-worden~a69434da/)
   > Het spant erom voor tal van verkeersplannen de komende weken. Door miljardentekorten broedt minister Vincent Karremans (VVD) op een lijst met...
@@ -35,8 +37,6 @@
   > Donald Trump heeft maandag een decreet getekend dat oproept om minder vaccinaties te geven aan kinderen. Ook wil de Amerikaanse president dat de nu...
 - [Oekraïens leger raakt Russische olieraffinaderij in Siberië, op zo’n 2.500 kilometer van Kyiv](https://www.ad.nl/buitenland/oekraiens-leger-raakt-russische-olieraffinaderij-in-siberie-op-zon-2-500-kilometer-van-kyiv~adfb97be/)
   > Het Oekraïense leger heeft een luchtaanval uitgevoerd op de Russische plaats Tobolsk in het westen van Siberië. Dat heeft de Oekraïense president...
-- [Voetbalpodcast | ‘Ruud van Nistelrooij is veel logischere naam voor Oranje dan Michael Reiziger’](https://www.ad.nl/voetbal/voetbalpodcast-ruud-van-nistelrooij-is-veel-logischere-naam-voor-oranje-dan-michael-reiziger~a42af5cd9/)
-  > Mag NEC blijven dromen van de Champions League of is die droom vanavond voorbij? Wie wil er bondscoach worden? Of wie krijgt de voorkeur van de KNVB?...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Cryptomiljardair blijkt stiekem de rijkste Nederlander ooit](https://fd.nl/economie/1607044/cryptomiljardair-blijkt-stiekem-de-rijkste-nederlander-ooit)
+  > Vandaag in Dagkoers: er blijkt een nieuwe rijkste Nederlander en hoe kijk je veilig naar een zonsverduistering? En het omstreden geo-engineering is...
 - [Trumps ‘Groundhog Day’](https://fd.nl/opinie/1606899/trumps-groundhog-day)
   > Al vijf maanden herhaalt zich hetzelfde patroon: Trump dreigt met oorlog, krabbelt terug en voorspelt vervolgens opnieuw dat de Straat van Hormuz...
 - [Andy snapt het](https://fd.nl/opinie/1607039/andy-snapt-het)
@@ -54,8 +56,6 @@
   > Door de steun aan Japan en een verschuiving naar kortlopend papier probeert de Amerikaanse minister van financiën de druk op de Amerikaanse lange...
 - [Econoom die Curaçao financiële rust bracht gaat accountants controleren](https://fd.nl/financiele-markten/1606238/econoom-die-curacao-financiele-rust-bracht-gaat-accountants-controleren)
   > Als monetair econoom Richard Doornbosch in 2020 overstapt naar de centrale bank in Willemstad treft hij daar een instituut in crisis.
-- [Personalia dinsdag 11 augustus](https://fd.nl/bedrijfsleven/1606903/personalia-dinsdag-11-augustus)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
