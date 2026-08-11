@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-08-2026 om 05:12*
+*Laatst bijgewerkt: 11-08-2026 om 07:13*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Magneetvisser haalt enorme ijzeren vis uit vijver, blijkt gestolen kunstwerk](https://nos.nl/l/2626357)
+  > Een magneetvisser heeft afgelopen weekend in Werkendam een meterslang kunstwerk van een vis gevonden dat een maand geleden werd gestolen uit een dorp...
 - [Dertig jaar concurrentie op het spoor: het kan, maar blijft 'niet eenvoudig'](https://nos.nl/l/2626349)
   > Vandaag dertig jaar geleden reed 's ochtends een opvallende trein perron 2B van Amsterdam Centraal binnen: een gele diesellocomotief met twee...
 - [Wekdienst 11/8: Reddingsacties in Colombia • Broeders-Bol maakt EK-debuut 800 meter](https://nos.nl/l/2626347)
@@ -16,8 +18,6 @@
   > Rusland heeft vannacht nieuwe luchtaanvallen op Oekraïense steden uitgevoerd. Zo kreeg Zaporizja het zwaar te verduren. Daar zette Rusland...
 - [Nieuwe sproeiverboden en zorgen bij voetbalclubs om dorre velden](https://nos.nl/l/2626344)
   > Door de aanhoudende droogte zijn er nieuwe verboden op het oppompen van water om te sproeien bijgekomen. Boeren en andere gebruikers mogen voorlopig...
-- [Een jaar Nationale Garde in Washington: 'Duur en op de verkeerde plek'](https://nos.nl/l/2626343)
-  > President Trump riep de soldaten van de Nationale Garde vorige zomer naar Washington D.C. vanwege een noodtoestand. Zij moesten de hoofdstad...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dagelijks leven weer 3,2 procent duurder in juli door hoge brandstof- en energieprijzen](https://www.ad.nl/economie/dagelijks-leven-weer-3-2-procent-duurder-in-juli-door-hoge-brandstof-en-energieprijzen~ad40ebc0/)
-  > De inflatie in juli ligt op 3,2 procent, meldt het Centraal Bureau voor de Statistiek (CBS) op basis van definitieve cijfers. Dat maakt het...
-- [Trump neemt het op voor Infantino: ‘Als hij weg is bij de FIFA, wordt het WK nooit meer zo succesvol of winstgevend!’](https://www.ad.nl/voetbal/trump-neemt-het-op-voor-infantino-als-hij-weg-is-bij-de-fifa-wordt-het-wk-nooit-meer-zo-succesvol-of-winstgevend~a2544497/)
-  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
-- [Zomertijd biedt weer ruimte voor een tweestrijd in de bios](https://www.ad.nl/show/zomertijd-biedt-weer-ruimte-voor-een-tweestrijd-in-de-bios~aaed8808/)
-  > De komkommertijd is voor filmmaatschappijen en bioscoopexploitanten steeds meer een gunstig seizoen om grote titels tegen elkaar op te laten boksen....
-- [1 miljoen euro voor een laatste kans: ouders van Muk (5) vechten tegen de klok](https://www.ad.nl/binnenland/1-miljoen-euro-voor-een-laatste-kans-ouders-van-muk-5-vechten-tegen-de-klok~acee9bc9/)
-  > Het liefst denkt Nadine niet na over de toekomst van haar dochter Muk (5). Hoe goedlachs en vol ritmegevoel het meisje nu is, zo anders zullen de...
-- [Bijna 40 wandelaars, onder wie mensen met kinderwagens, gered uit Oostenrijkse Alpen](https://www.ad.nl/buitenland/bijna-40-wandelaars-onder-wie-mensen-met-kinderwagens-gered-uit-oostenrijkse-alpen~aa1cc56b/)
-  > Een groep van 36 wandelaars moest zondagmiddag worden gered uit de Oostenrijkse Alpen, toen de groep van het pad afraakte. Onder de geredde...
+- [Via achteringang, met klauwhamer en onder bedreiging: dieven slaan in één week drie keer toe in legowinkel van Erik](https://www.ad.nl/binnenland/via-achteringang-met-klauwhamer-en-onder-bedreiging-dieven-slaan-in-een-week-drie-keer-toe-in-legowinkel-van-erik~aeda849b/)
+  > Een klauwhamer door de pui, bedreiging van het personeel en een man die met handenvol dozen zomaar via de achteruitgang naar buiten wandelt. Drie...
+- [Scheepsverkeer in Straat van Hormuz neemt nog verder af](https://www.ad.nl/buitenland/scheepsverkeer-in-straat-van-hormuz-neemt-nog-verder-af~ac528ac3/)
+  > Het verkeer door de Straat van Hormuz is maandag teruggevallen naar zes schepen. Dat is nog minder dan het gemiddelde van zo’n elf schepen per dag,...
+- [Oplichters versturen valse brieven uit naam van John de Mol: ‘Zeer kwalijk’](https://www.ad.nl/show/oplichters-versturen-valse-brieven-uit-naam-van-john-de-mol-zeer-kwalijk~a569c025/)
+  > Door middel van frauduleuze brieven hebben oplichters zich meermaals voorgedaan als Talpa-baas John de Mol. Dat bevestigt een woordvoerder van Talpa...
+- [Dochter van Tom Cruise, die onlangs achternaam liet schrappen, maakt acteerdebuut](https://www.ad.nl/show/dochter-van-tom-cruise-die-onlangs-achternaam-liet-schrappen-maakt-acteerdebuut~a8d175ec/)
+  > Suri Noelle, de dochter van acteurs Tom Cruise (64) en Katie Holmes (47), heeft haar eerste stappen als actrice gezet. De 20-jarige staat de komende...
+- [Sieraden en gouden vullingen, afkomstig uit graven, werden ‘doorverkocht’ door medewerkers begraafplaats](https://www.ad.nl/binnenland/sieraden-en-gouden-vullingen-afkomstig-uit-graven-werden-doorverkocht-door-medewerkers-begraafplaats~a6169bfd/)
+  > Gouden vullingen en sieraden: gestolen uit graven en daarna doorverkocht. Nadat eerder al een grafdelver werd aangehouden, heeft justitie nóg twee...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Live: Vlakke handel op de beurzen](https://fd.nl/financiele-markten/1606942/live-vlakke-handel-op-de-beurzen)
-  > Beleggers zien aanhoudende inflatiedruk. Daardoor steeg de Amerikaanse kapitaalmarktrente gisteren naar 4,71%. De Europese aandelenmarkten gaan...
-- [Groene obligaties zijn weer in trek, maar niet dankzij Amerikaanse hyperscalers](https://fd.nl/financiele-markten/1607032/groene-obligaties-zijn-weer-in-trek-maar-niet-dankzij-amerikaanse-hyperscalers)
-  > Techbedrijven als Meta, Amazon en Alphabet domineren de obligatiemarkten, maar zijn mede vanwege het politieke klimaat in de VS terughoudend met...
-- [Schrijver en actrice Nazmiye Oral en haar jongere broer: ‘Mijn gezin heeft geen thuis meer. Al heel lang niet meer’](https://fd.nl/samenleving/1606756/schrijver-en-actrice-nazmiye-oral-en-haar-jongere-broer-mijn-gezin-heeft-geen-thuis-meer-al-heel-lang-niet-meer)
-  > Nazmiye Oral en haar veertien jaar jongere broer, fabrieksvoorman Mehmet Oral, over hun jeugd, anders behandeld worden en terugverhuizen naar Turkije.
-- [Cryptomiljardair blijkt stiekem de rijkste Nederlander ooit](https://fd.nl/economie/1607044/cryptomiljardair-blijkt-stiekem-de-rijkste-nederlander-ooit)
-  > Vandaag in Dagkoers: er blijkt een nieuwe rijkste Nederlander en hoe kijk je veilig naar een zonsverduistering? En het omstreden geo-engineering is...
-- [Trumps ‘Groundhog Day’](https://fd.nl/opinie/1606899/trumps-groundhog-day)
-  > Al vijf maanden herhaalt zich hetzelfde patroon: Trump dreigt met oorlog, krabbelt terug en voorspelt vervolgens opnieuw dat de Straat van Hormuz...
+- [Exor mag belang in Philips verder uitbreiden](https://fd.nl/bedrijfsleven/1607080/exor-mag-belang-in-philips-verder-uitbreiden)
+  > Exor heeft sinds 2023 een belang in het medische technologiebedrijf. De Italiaanse investeringsmaatschappij mag haar belang in Philips uitbreiden...
+- [ING: Nederlandse horeca groeit nauwelijks in 2026](https://fd.nl/samenleving/1607079/ing-nederlandse-horeca-groeit-nauwelijks-in-2026)
+  > De horecaprijzen stijgen dit jaar gemiddeld met 5% door inflatie en de hogere btw op logies.
+- [Shein jaagt beursgang in Hongkong na met waardering 70% lager dan piek](https://fd.nl/bedrijfsleven/1607078/shein-jaagt-beursgang-in-hongkong-na-met-waardering-70-lager-dan-piek)
+  > De retailer probeerde twee keer eerder voor een beursnotering te gaan, in New York en Londen, maar die pogingen mislukten.
+- [TKH deelt nieuwe doelen voor af te splitsen elektrificatietak](https://fd.nl/bedrijfsleven/1606901/tkh-deelt-nieuwe-doelen-voor-af-te-splitsen-elektrificatietak)
+  > TKH uit Haaksbergen verwacht voor de elektrificatietak op de middellange termijn een autonome omzetgroei van meer dan 9%.
+- [Live: Philips koploper in iets hogere AEX, TKH wint fors](https://fd.nl/financiele-markten/1606942/live-vlakke-handel-op-de-beurzen)
+  > Beleggers zien aanhoudende inflatiedruk en staan daardoor vooral in een afwachtende houding. De olieprijs loopt verder op. Hetzelfde geldt voor de...
 
 ### Meest gelezen
 
