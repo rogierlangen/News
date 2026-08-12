@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-08-2026 om 21:50*
+*Laatst bijgewerkt: 12-08-2026 om 22:45*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Pensioenfondsen onder nieuw stelsel behalen positieve resultaten op beurs](https://nos.nl/l/2626615)
+  > Pensioenfondsen die al zijn overgestapt naar het nieuwe stelsel hebben op de beurs een positief resultaat behaald, vooral dankzij aandelen in...
 - [Karoline Leavitt (28) stopt als perschef van het Witte Huis](https://nos.nl/l/2626598)
   > Karoline Leavitt, perschef van het Witte Huis, vertrekt. Dat meldt de Amerikaanse president Trump. Ze wil volgens hem meer tijd met haar familie en...
 - [Explosief uit Tweede Wereldoorlog ontploft bij Plopsaland in Ardennen, drie gewonden](https://nos.nl/l/2626594)
@@ -16,8 +18,6 @@
   > Met open mond hebben veel Nederlanders gekeken naar de grootste zonsverduistering van de afgelopen decennia. Mensen waren onder meer massaal naar...
 - [Scheepvaart over Duitse Rijn deels gestremd, miljardenstrop dreigt voor economie](https://nos.nl/l/2626584)
   > Het eerste dat Roberto Spranzi 's ochtends bekijkt, is de waterstand van de Rijn. Met de huidige droogte telt iedere centimeter voor de transporteur...
-- [Duitse inlichtingendiensten krijgen meer bevoegdheden in licht van Russische dreiging](https://nos.nl/l/2626582)
-  > Als het aan de Duitse regering ligt krijgen de inlichtingendiensten in Duitsland meer bevoegdheden. Ze mogen in de toekomst bijvoorbeeld actiever...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Warm onthaal voor Romelu Lukaku in Turkije: ‘Als klein jongetje woonde ik hier al even met mijn vader’](https://www.ad.nl/voetbal/warm-onthaal-voor-romelu-lukaku-in-turkije-als-klein-jongetje-woonde-ik-hier-al-even-met-mijn-vader~ab53f9ea/)
+  > Romelo Lukaku (33) kreeg woensdagavond een warm onthaal op de luchthaven in Istanboel. De nieuwe spits van Fenerbahçe werd daar opgewacht door...
+- [Meijer zesde Nederlander bij Sampdoria, PSV neemt talent van Eintracht Frankfurt over](https://www.ad.nl/voetbal/meijer-zesde-nederlander-bij-sampdoria-psv-neemt-talent-van-eintracht-frankfurt-over~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Voetbalpodcast | ‘KNVB neemt met Xavi Hernández als bondscoach wel een gok’](https://www.ad.nl/voetbal/voetbalpodcast-knvb-neemt-met-xavi-hernandez-als-bondscoach-wel-een-gok~a42af5cd9/)
+  > Er is een nieuwe bondscoach voor het Nederlands elftal: Xavi Hernández. Voormalig middenvelder en coach van FC Barcelona, maar sinds juni 2024 zonder...
 - [Dertiende prijs voor Luis Enrique met PSG, dat Aston Villa verslaat in strijd om Super Cup](https://www.ad.nl/voetbal/dertiende-prijs-voor-luis-enrique-met-psg-dat-aston-villa-verslaat-in-strijd-om-super-cup~a438f99a/)
   > Paris Saint-Germain heeft voor het tweede jaar op rij de UEFA Super Cup gewonnen. De winnaar van de Champions League won in de Red Bull Arena in...
-- [LIVE EK atletiek | Brons en nationaal record Phijffers op 400 meter, meerkamper Jeff Tesselaar tweede na eerste dag](https://www.ad.nl/andere-sporten/live-ek-atletiek-brons-en-nationaal-record-phijffers-op-400-meter-meerkamper-jeff-tesselaar-tweede-na-eerste-dag~a931e786/)
+- [Brons en nationaal record Phijffers op 400 meter, meerkamper Jeff Tesselaar tweede na eerste dag](https://www.ad.nl/andere-sporten/brons-en-nationaal-record-phijffers-op-400-meter-meerkamper-jeff-tesselaar-tweede-na-eerste-dag~a931e786/)
   > De EK atletiek worden dit jaar georganiseerd in het Engelse Birmingham. Wat kan Femke Broeders-Bol op de 800 meter en hoeveel medailles gaat...
-- [Drie keer speelde Xavi met Spanje tegen Oranje, drie keer was het memorabel](https://www.ad.nl/wk-voetbal/drie-keer-speelde-xavi-met-spanje-tegen-oranje-drie-keer-was-het-memorabel~a94f3f5b8/)
-  > Xavi Hernández is de nieuwe bondscoach van het Nederlands elftal en dat leek al een beetje in de sterren geschreven te staan. Wie een blik werpt op...
-- [Nieuwe Audi Q7 blijkt een grote vriendelijke reus](https://www.ad.nl/auto/nieuwe-audi-q7-blijkt-een-grote-vriendelijke-reus~adeacbce/)
-  > Nu de Audi A8 uit het Nederlandse aanbod is geschrapt, neemt de Audi Q7 voor een deel het stokje over. Een flinke taak, die de nieuwe modelgeneratie...
-- [We smullen als Caroline klaagt over de tanden van haar dates, maar dít is waar B&B vol liefde om draait](https://www.ad.nl/show/we-smullen-als-caroline-klaagt-over-de-tanden-van-haar-dates-maar-dit-is-waar-benb-vol-liefde-om-draait~aa70f8b4/)
-  > Ongemakkelijke momenten en pijnlijke dates zijn leuk om naar te kijken, maar deze ontluikende romance is natuurlijk waar het allemaal om draait in...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Techoptimisme en wegebbende rentezorgen stuwen Wall Street](https://fd.nl/financiele-markten/1607589/techoptimisme-en-wegebbende-rentezorgen-stuwen-wall-street)
-  > Een reeks bemoedigende kwartaalcijfers van technologiebedrijven en gematigde inflatiecijfers leidden tot hogere aandelenkoersen op Wall Street
-- [De totale zonsverduistering in Spanje zie je, voel je en levert handel op](https://fd.nl/samenleving/1607347/de-totale-zonsverduistering-in-spanje-zie-je-voel-je-en-levert-handel-op)
-  > In het noorden van Spanje was een totale eclips zichtbaar. Het land verwelkomde om die reden veel toeristen, die in enkele dagen €350 mln uitgaven.
-- [Amerikaanse tienjaarsobligaties leveren hoogste rendement op sinds 2007](https://fd.nl/financiele-markten/1607580/amerikaanse-tienjaarsobligaties-leveren-hoogste-rendement-op-sinds-2007)
-  > Beleggers verlangen steeds meer compensatie voor het financieren van de Amerikaanse overheid. Het rendement bij de veiling van woensdag kwam uit op...
-- [Gesleutel aan weer en klimaat vereist regulering](https://fd.nl/opinie/1607199/gesleutel-aan-weer-en-klimaat-vereist-regulering)
-  > Bedrijven werken aan technologieën om in te grijpen in het klimaatsysteem, doorgaans om opwarming van de aarde tegen te gaan. Er kleven grote...
-- [Weduwe Jaap Blokker dreigt €20 mln te verliezen na faillissement Frank Botman](https://fd.nl/bedrijfsleven/1607376/weduwe-els-blokker-dreigt-20-mln-te-verliezen-na-faillissement-van-botman)
-  > Vermogensbeheerder Botman zocht vooral naar geld bij mensen uit zijn nabije omgeving. Els Blokker is de meest prominente gedupeerde van zijn...
+- [Is de juridische strijd van Brabantse kippenboeren het startschot voor nieuwe protesten?](https://fd.nl/politiek/1607329/is-de-juridische-strijd-van-brabantse-kippenboeren-het-startschot-voor-nieuwe-protesten)
+  > De provincie Noord-Brabant wil de vergunningen van vijf pluimveehouders intrekken op verzoek van milieubewegingen. De trekkers worden verwacht,...
+- [Van het thuiswerken zijn werkgevers niet zomaar af](https://fd.nl/bedrijfsleven/1607206/van-het-thuiswerken-zijn-werkgevers-niet-zomaar-af)
+  > ABN Amro is het laatste voorbeeld van een groot Nederlands bedrijf dat thuiswerken probeert te reguleren. Maar van koffieslurpende keukentafelwerkers...
+- [Iedereen zoekt daglicht](https://fd.nl/opinie/1607197/iedereen-zoekt-daglicht)
+  > Misschien is het stating the obvious, maar als de alarmbellen blijven klinken is het logisch om daar verslag van te doen.
+- [Piketty verleidt zijn publiek met luchtfietserij](https://fd.nl/opinie/1606951/piketty-verleidt-zijn-publiek-met-luchtfietserij)
+  > Wil een intellectueel gezaghebbend zijn, dan zijn vergezichten en idealen alleen onvoldoende. Dan moet de intellectueel ook uitleggen hoe hij die...
+- [Personalia donderdag 13 augustus](https://fd.nl/bedrijfsleven/1607344/personalia-donderdag-13-augustus)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
