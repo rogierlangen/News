@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-08-2026 om 20:00*
+*Laatst bijgewerkt: 12-08-2026 om 21:50*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Karoline Leavitt (28) stopt als perschef van het Witte Huis](https://nos.nl/l/2626598)
+  > Karoline Leavitt, perschef van het Witte Huis, vertrekt. Dat meldt de Amerikaanse president Trump. Ze wil volgens hem meer tijd met haar familie en...
 - [Explosief uit Tweede Wereldoorlog ontploft bij Plopsaland in Ardennen, drie gewonden](https://nos.nl/l/2626594)
   > Vlak bij het pretpark Plopsaland in Coo, in de Belgische Ardennen, is vanmiddag een oud explosief ontploft. Dat meldt de krant Het Laatste Nieuws...
 - [Nederlanders smullen van de eclips: 'Lijkt een maan die licht geeft'](https://nos.nl/l/2626591)
@@ -16,9 +18,6 @@
   > Het eerste dat Roberto Spranzi 's ochtends bekijkt, is de waterstand van de Rijn. Met de huidige droogte telt iedere centimeter voor de transporteur...
 - [Duitse inlichtingendiensten krijgen meer bevoegdheden in licht van Russische dreiging](https://nos.nl/l/2626582)
   > Als het aan de Duitse regering ligt krijgen de inlichtingendiensten in Duitsland meer bevoegdheden. Ze mogen in de toekomst bijvoorbeeld actiever...
-- [Historisch hitterecord uit 1947 verbroken: 31 lokaal tropische dagen in Nederland](https://nos.nl/l/2626576)
-  > In Maastricht liep het kwik vandaag op tot 31,5 graden. Daarmee was het de 31ste dag van het jaar waarop het lokaal tropisch warm was.
-       ...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Witte Huis-woordvoerder Karoline Leavitt vertrekt](https://www.ad.nl/buitenland/witte-huis-woordvoerder-karoline-leavitt-vertrekt~a7df2d9e/)
-  > Witte Huis-woordvoerder Karoline Leavitt vertrekt om meer tijd door te kunnen brengen met haar familie. Dat laat de Amerikaanse president Donald...
-- [Lange zoektocht KNVB leidt naar Xavi Hernández, groot adept van het Nederlandse voetbal](https://www.ad.nl/voetbal/lange-zoektocht-knvb-leidt-naar-xavi-hernandez-groot-adept-van-het-nederlandse-voetbal~a18a861e/)
-  > Het duurde bijna anderhalve maand, de KNVB overwoog de meest uiteenlopende opties, maar woensdagavond was daar eindelijk witte rook: Xavi Hernandez...
-- [Spanje beleeft magie van totale eclips: druk strand bij Barcelona valt halve minuut lang volledig stil](https://www.ad.nl/buitenland/spanje-beleeft-magie-van-totale-eclips-druk-strand-bij-barcelona-valt-halve-minuut-lang-volledig-stil~ae0dda73f/)
-  > Het noorden van Spanje had het privilege een volledige zonsverduistering te beleven. En het was zo magisch als was aangekondigd. Een vrolijk, druk...
-- [Geen eclips voor oranje kwartet, wél goud: ‘We zwommen zo hard dat we de zon verduisterd hebben’](https://www.ad.nl/andere-sporten/geen-eclips-voor-oranje-kwartet-wel-goud-we-zwommen-zo-hard-dat-we-de-zon-verduisterd-hebben~aff33dbc/)
-  > Precies toen het Nederlandse kwartet in bad goud won op de 4x100 vrij, verduisterde lichtstad Parijs. „Als ik niet had hoeven zwemmen, was ik wel...
-- [Witte Huis-woordvoerder Karoline Leavitt vertrekt](https://www.ad.nl/buitenland/witte-huis-woordvoerder-karoline-leavitt-vertrekt~ae67dd9c/)
-  > Witte Huis-woordvoerder Karoline Leavitt vertrekt om meer tijd door te kunnen brengen met haar familie. Dat laat de Amerikaanse president Donald...
+- [Dertiende prijs voor Luis Enrique met PSG, dat Aston Villa verslaat in strijd om Super Cup](https://www.ad.nl/voetbal/dertiende-prijs-voor-luis-enrique-met-psg-dat-aston-villa-verslaat-in-strijd-om-super-cup~a438f99a/)
+  > Paris Saint-Germain heeft voor het tweede jaar op rij de UEFA Super Cup gewonnen. De winnaar van de Champions League won in de Red Bull Arena in...
+- [LIVE EK atletiek | Brons en nationaal record Phijffers op 400 meter, meerkamper Jeff Tesselaar tweede na eerste dag](https://www.ad.nl/andere-sporten/live-ek-atletiek-brons-en-nationaal-record-phijffers-op-400-meter-meerkamper-jeff-tesselaar-tweede-na-eerste-dag~a931e786/)
+  > De EK atletiek worden dit jaar georganiseerd in het Engelse Birmingham. Wat kan Femke Broeders-Bol op de 800 meter en hoeveel medailles gaat...
+- [Drie keer speelde Xavi met Spanje tegen Oranje, drie keer was het memorabel](https://www.ad.nl/wk-voetbal/drie-keer-speelde-xavi-met-spanje-tegen-oranje-drie-keer-was-het-memorabel~a94f3f5b8/)
+  > Xavi Hernández is de nieuwe bondscoach van het Nederlands elftal en dat leek al een beetje in de sterren geschreven te staan. Wie een blik werpt op...
+- [Nieuwe Audi Q7 blijkt een grote vriendelijke reus](https://www.ad.nl/auto/nieuwe-audi-q7-blijkt-een-grote-vriendelijke-reus~adeacbce/)
+  > Nu de Audi A8 uit het Nederlandse aanbod is geschrapt, neemt de Audi Q7 voor een deel het stokje over. Een flinke taak, die de nieuwe modelgeneratie...
+- [We smullen als Caroline klaagt over de tanden van haar dates, maar dít is waar B&B vol liefde om draait](https://www.ad.nl/show/we-smullen-als-caroline-klaagt-over-de-tanden-van-haar-dates-maar-dit-is-waar-benb-vol-liefde-om-draait~aa70f8b4/)
+  > Ongemakkelijke momenten en pijnlijke dates zijn leuk om naar te kijken, maar deze ontluikende romance is natuurlijk waar het allemaal om draait in...
 
 ### Meest gelezen
 
@@ -47,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Techoptimisme en wegebbende rentezorgen stuwen Wall Street](https://fd.nl/financiele-markten/1607589/techoptimisme-en-wegebbende-rentezorgen-stuwen-wall-street)
+  > Een reeks bemoedigende kwartaalcijfers van technologiebedrijven en gematigde inflatiecijfers leidden tot hogere aandelenkoersen op Wall Street
 - [De totale zonsverduistering in Spanje zie je, voel je en levert handel op](https://fd.nl/samenleving/1607347/de-totale-zonsverduistering-in-spanje-zie-je-voel-je-en-levert-handel-op)
   > In het noorden van Spanje was een totale eclips zichtbaar. Het land verwelkomde om die reden veel toeristen, die in enkele dagen €350 mln uitgaven.
 - [Amerikaanse tienjaarsobligaties leveren hoogste rendement op sinds 2007](https://fd.nl/financiele-markten/1607580/amerikaanse-tienjaarsobligaties-leveren-hoogste-rendement-op-sinds-2007)
@@ -55,8 +56,6 @@
   > Bedrijven werken aan technologieën om in te grijpen in het klimaatsysteem, doorgaans om opwarming van de aarde tegen te gaan. Er kleven grote...
 - [Weduwe Jaap Blokker dreigt €20 mln te verliezen na faillissement Frank Botman](https://fd.nl/bedrijfsleven/1607376/weduwe-els-blokker-dreigt-20-mln-te-verliezen-na-faillissement-van-botman)
   > Vermogensbeheerder Botman zocht vooral naar geld bij mensen uit zijn nabije omgeving. Els Blokker is de meest prominente gedupeerde van zijn...
-- [Na twaalf jaar mag Van der Valk eindelijk een hotel bouwen in Doetinchem](https://fd.nl/bedrijfsleven/1607193/na-twaalf-jaar-mag-van-der-valk-eindelijk-een-hotel-bouwen-in-doetinchem)
-  > Boze buren procedeerden tot aan de Raad van State tegen de ontwikkeling van een nieuw hotel-restaurant van Van der Valk, maar halen uiteindelijk...
 
 ### Meest gelezen
 
