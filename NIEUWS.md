@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-08-2026 om 06:16*
+*Laatst bijgewerkt: 12-08-2026 om 08:20*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Trump bevestigt overstap op ander vliegtuig na NAVO-top vanwege dreiging Iran](https://nos.nl/l/2626502)
+  > De Amerikaanse president Trump heeft bevestigd dat hij na de NAVO-top in de Turkse hoofdstad Ankara vorige maand in een ander vliegtuig dan gepland...
+- [Amerikaanse regering erkent: vorig jaar ruim 150 burgerdoden door aanvallen op Jemen](https://nos.nl/l/2626494)
+  > Bij Amerikaanse aanvallen op de Houthi's in Jemen vorig jaar zijn zeker 153 burgers om het leven gekomen en raakten bijna 250 burgers gewond. Dat...
+- [Britse schoonmaker vindt Mars uit 1991: anderhalf keer zo zwaar als huidige reep](https://nos.nl/l/2626492)
+  > Tijdens het leeghalen van een woning is een Britse schoonmaker op een ongeopende Marsreep met een houdbaarheidsdatum tot 1991 gestuit. Opvallend is...
 - [Landelijk stadionverbod 24 NAC-supporters na ongeregeldheden bij degradatieduel](https://nos.nl/l/2626490)
   > De KNVB heeft 24 NAC-supporters een landelijk stadionverbod opgelegd.
         De 24 worden verantwoordelijk geacht voor ongeregeldheden bij de...
 - [De zon verdwijnt vandaag (bijna) volledig achter de maan, dit moet je weten](https://nos.nl/l/2626488)
   > Het wordt vanavond heel vroeg schemerig, maar niet door de zonsondergang. De maan schuift namelijk voor de zon. Het wordt de grootste...
-- [Wekdienst 12/8: Zonsverduistering • Rechtszaak over verkrachting in jeugdinstelling](https://nos.nl/l/2626485)
-  > Goedemorgen! In Den Haag staan twee medewerkers van een jeugdzorginstelling terecht op verdenking van verkrachting. En vanavond kan je eclipsbril op...
-- [Zeker 15 doden na kapseizen veerboot in Zimbabwe, tientallen mensen vermist](https://nos.nl/l/2626484)
-  > Bij een bootongeluk op het Karibameer in Zimbabwe zijn zeker 15 mensen om het leven gekomen. 27 opvarenden zijn vermist nadat de veerboot 'Mbuya...
-- [Trump: overheid vergoedt niet langer geslachtsoperaties minderjarigen](https://nos.nl/l/2626483)
-  > Geslachtsveranderende operaties en hormoonbehandelingen voor Amerikaanse minderjarigen worden straks niet langer vergoed door Medicaid, het...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Hardloopster Demelza (30) ziet man op klaarlichte dag masturberen: ‘Echt misselijkmakend’](https://www.ad.nl/binnenland/hardloopster-demelza-30-ziet-man-op-klaarlichte-dag-masturberen-echt-misselijkmakend~a0c3b693/)
-  > Met zijn broek een beetje naar beneden trekt een man zich op klaarlichte dag af in een natuurgebied bij Pijnacker. Hardloopster Demelza Kragt (30)...
-- [Nadine Visser twijfelde over EK-deelname, nu is ze de hordenkoningin: ‘Supertrots dat het nu wél lukt’](https://www.ad.nl/andere-sporten/nadine-visser-twijfelde-over-ek-deelname-nu-is-ze-de-hordenkoningin-supertrots-dat-het-nu-wel-lukt~a995685d/)
-  > Al jaren staat hordenloopster Nadine Visser (33) aan de wereldtop, maar nog nooit pakte ze een medaille op een groot internationaal toernooi. Tot...
-- [NEC-held Emre Mor stond minutenlang naast het veld door piercing: ‘Wist niet dat afplakken verboden was’](https://www.ad.nl/sport/nec-held-emre-mor-stond-minutenlang-naast-het-veld-door-piercing-wist-niet-dat-afplakken-verboden-was~aeb6837d/)
-  > Een bijzonder moment tijdens de clash tussen NEC en het Griekse Olympiakos. De Nijmegenaren stonden in de cruciale derde voorronde van de Champions...
-- [Tweede seizoen al in de maak: Nicholas Hoult toegevoegd aan cast Harry Potter-serie](https://www.ad.nl/show/tweede-seizoen-al-in-de-maak-nicholas-hoult-toegevoegd-aan-cast-harry-potter-serie~a4103bb9/)
-  > Nicholas Hoult maakt zijn opwachting in het tweede seizoen van de Harry Potter-serie van HBO. De acteur is gecast in de rol van professor Gilderoy...
-- [Warme dag eindigt in heldere avond: perfecte omstandigheden om naar zonsverduistering te kijken](https://www.ad.nl/binnenland/warme-dag-eindigt-in-heldere-avond-perfecte-omstandigheden-om-naar-zonsverduistering-te-kijken~a69498a0/)
-  > Vanavond is het eindelijk zover. Om 19:16 uur schuift de maan geleidelijk voor de zon en zien we in Nederland een zonsverduistering. Rond het...
+- [Raakt de natuur van streek door zonsverduistering? ‘Misschien verstandig om de hond thuis te laten’](https://www.ad.nl/gezond/raakt-de-natuur-van-streek-door-zonsverduistering-misschien-verstandig-om-de-hond-thuis-te-laten~ab39e24f/)
+  > De gedeeltelijke zonsverduistering woensdag zal door veel Nederlanders met nieuwsgierigheid worden bekeken. Maar wat doet zo’n zeldzaam...
+- [Videoland strikt Bankzitters voor drie jaar: ‘We kunnen nu nóg gekkere dingen doen’](https://www.ad.nl/show/videoland-strikt-bankzitters-voor-drie-jaar-we-kunnen-nu-nog-gekkere-dingen-doen~a6967625/)
+  > Videoland heeft opnieuw een slag geslagen: de streamingdienst strikte de mannen van Bankzitters voor een samenwerking van drie jaar. De vijf vrienden...
+- [Verdachte van moord op Cemil Önal werd nog geen week voor de liquidatie opgepakt met auto vol wapens](https://www.ad.nl/rijswijk/verdachte-van-moord-op-cemil-onal-werd-nog-geen-week-voor-de-liquidatie-opgepakt-met-auto-vol-wapens~aa1a2953/)
+  > Een verdachte van de moord op Cemil Önal (41) op een vol Rijswijks terras, werd nog geen week voor de liquidatie met een auto vol wapens aangehouden....
+- [Sproeien mag niet, de velden verdrogen: kan het amateurvoetbalseizoen wel beginnen?](https://www.ad.nl/binnenland/sproeien-mag-niet-de-velden-verdrogen-kan-het-amateurvoetbalseizoen-wel-beginnen~ade792be/)
+  > Nederland zucht onder steeds forsere droogte. Dat heeft gevolgen voor boeren, voor de natuur, maar ook voor het amateurvoetbalseizoen dat bijna weer...
+- [Voorzitter durfde handtekening niet meer te zetten: waarom Memphis Depay vertrekt bij Corinthians](https://www.ad.nl/voetbal/voorzitter-durfde-handtekening-niet-meer-te-zetten-waarom-memphis-depay-vertrekt-bij-corinthians~ab68ad91/)
+  > Alles leek rond, meldden Braziliaanse media zaterdag nog. Na lange en soms moeilijke onderhandelingen lag het contract tussen Memphis Depay en...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Winst ABN Amro neemt met bijna een derde toe en verrast analisten](https://fd.nl/bedrijfsleven/1607290/winst-abn-amro-neemt-bijna-een-derde-toe-en-verrast-analisten)
-  > De nettowinst van ABN Amro is in een jaar tijd gestegen tot €781 mln. Dat is bijna €100 mln boven de analistenverwachting.
-- [Live: Verdeeld beeld op beurzen in Verre Oosten](https://fd.nl/financiele-markten/1607186/live-verdeeld-beeld-op-beurzen-in-verre-oosten)
-  > Wall Street eindigde gisteren in de min. Het beeld in het Verre Oosten is verdeeld. Wat gaat Europa doen? In Amsterdam scherpten de AEX en  Midkap...
-- [De minderheid met de meeste ondernemers: ‘Turken willen vaak van niemand afhankelijk zijn’](https://fd.nl/samenleving/1607050/de-minderheid-met-de-meeste-ondernemers-turken-willen-vaak-van-niemand-afhankelijk-zijn)
-  > Van de tien grootste migrantengroepen hebben Turkse Nederlanders het vaakst een bedrijf. De eerste generatie begon uit noodzaak, voor de volgende is...
-- [Iris van Herpen: ‘Voor inspiratie heb ik geen paddo’s meer nodig’](https://fd.nl/bedrijfsleven/1606480/iris-van-herpen-voor-inspiratie-heb-ik-geen-paddos-meer-nodig)
-  > De unieke ontwerpen van Iris van Herpen maakten haar wereldberoemd en geliefd bij Beyoncé en Koningin Máxima. Van Herpen vermijdt de glamour van de...
-- [Nachtmerrie voor woningbezitters: steeds meer funderingsproblemen door droogte](https://fd.nl/economie/1607285/nachtmerrie-voor-woningbezitters-steeds-meer-funderingsproblemen-door-droogte)
-  > Vandaag in FD Dagkoers: het aantal claims voor funderingsschade gaat door het dak, medewerkers van ABN Amro moeten weer naar kantoor en ambtenaren...
+- [Het onkruid dat crypto heet](https://fd.nl/financiele-markten/1607030/het-onkruid-dat-crypto-heet)
+  > Als een van de weinige Amsterdammers heb ik een tuin, maar dat is heus niet zo fijn als het klinkt. Ieder jaar verbaas ik me over de variëteit aan...
+- [Aantal faillissementen daalt met 11% in juli](https://fd.nl/economie/1607333/aantal-faillissementen-daalt-met-11-in-juli)
+  > In de industrie werden naar verhouding de meeste bedrijven failliet verklaard. De faillissementsgraad in de horeca daalde.
+- [Envipco verkoopt meer statiegeldmachines](https://fd.nl/bedrijfsleven/1607188/envipco-verkoopt-meer-statiegeldmachines)
+  > Ondanks de teruggekeerde omzetgroei kampt Envipco met een negatieve ebitda, onverkochte voorraad en uitgestelde statiegeldprojecten in Europa.
+- [Spotify komt met AI-label voor niet-menselijke artiesten](https://fd.nl/bedrijfsleven/1607332/spotify-komt-met-ai-label-voor-niet-menselijke-artiesten)
+  > De muziek van AI-artiesten zal geweerd worden uit de aanbevelingen die het muziekplatform aan zijn luisteraars doet.
+- [‘Vance vroeg Oekraïne te stoppen met aanvallen op tankers in Zwarte Zee’](https://fd.nl/politiek/1607331/vance-vroeg-oekraine-te-stoppen-met-aanvallen-op-tankers-in-zwarte-zee)
+  > De Oekraïense aanvallen richtten zich op schepen die olie vervoerden die vanuit Kazachstan naar de Russische haven Novorossiysk vloeide.
 
 ### Meest gelezen
 
