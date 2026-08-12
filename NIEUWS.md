@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-08-2026 om 22:45*
+*Laatst bijgewerkt: 12-08-2026 om 23:45*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Drugsbende opgerold in Zuid-Spanje, ook twee Nederlanders opgepakt](https://nos.nl/l/2626618)
+  > In het zuiden van Spanje heeft de Spaanse politie in samenwerking met Nederland een drugsbende opgerold. Vijf verdachten zijn aangehouden, onder wie...
 - [Pensioenfondsen onder nieuw stelsel behalen positieve resultaten op beurs](https://nos.nl/l/2626615)
   > Pensioenfondsen die al zijn overgestapt naar het nieuwe stelsel hebben op de beurs een positief resultaat behaald, vooral dankzij aandelen in...
 - [Karoline Leavitt (28) stopt als perschef van het Witte Huis](https://nos.nl/l/2626598)
@@ -16,8 +18,6 @@
   > Vlak bij het pretpark Plopsaland in Coo, in de Belgische Ardennen, is vanmiddag een oud explosief ontploft. Dat meldt de krant Het Laatste Nieuws...
 - [Nederlanders smullen van de eclips: 'Lijkt een maan die licht geeft'](https://nos.nl/l/2626591)
   > Met open mond hebben veel Nederlanders gekeken naar de grootste zonsverduistering van de afgelopen decennia. Mensen waren onder meer massaal naar...
-- [Scheepvaart over Duitse Rijn deels gestremd, miljardenstrop dreigt voor economie](https://nos.nl/l/2626584)
-  > Het eerste dat Roberto Spranzi 's ochtends bekijkt, is de waterstand van de Rijn. Met de huidige droogte telt iedere centimeter voor de transporteur...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [BBC biedt excuses aan kijkers aan die nieuwe Schotse weervrouw niet verstonden](https://www.ad.nl/buitenland/bbc-biedt-excuses-aan-kijkers-aan-die-nieuwe-schotse-weervrouw-niet-verstonden~a8db66ea1/)
+  > De BBC heeft excuses aangeboden nadat Engelstalige kijkers hadden geklaagd dat ze een Schotse weervrouw niet konden verstaan. Meteorologe Judith...
+- [Spaanse en Nederlandse politie rollen criminele bende op](https://www.ad.nl/buitenland/spaanse-en-nederlandse-politie-rollen-criminele-bende-op~a4ffa6d2/)
+  > De Spaanse politie heeft in een gezamenlijke operatie met Nederland een criminele organisatie opgerold in de Spaanse provincie Málaga. Bij de...
 - [Warm onthaal voor Romelu Lukaku in Turkije: ‘Als klein jongetje woonde ik hier al even met mijn vader’](https://www.ad.nl/voetbal/warm-onthaal-voor-romelu-lukaku-in-turkije-als-klein-jongetje-woonde-ik-hier-al-even-met-mijn-vader~ab53f9ea/)
   > Romelo Lukaku (33) kreeg woensdagavond een warm onthaal op de luchthaven in Istanboel. De nieuwe spits van Fenerbahçe werd daar opgewacht door...
 - [Meijer zesde Nederlander bij Sampdoria, PSV neemt talent van Eintracht Frankfurt over](https://www.ad.nl/voetbal/meijer-zesde-nederlander-bij-sampdoria-psv-neemt-talent-van-eintracht-frankfurt-over~acbd43e6/)
   > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
 - [Voetbalpodcast | ‘KNVB neemt met Xavi Hernández als bondscoach wel een gok’](https://www.ad.nl/voetbal/voetbalpodcast-knvb-neemt-met-xavi-hernandez-als-bondscoach-wel-een-gok~a42af5cd9/)
   > Er is een nieuwe bondscoach voor het Nederlands elftal: Xavi Hernández. Voormalig middenvelder en coach van FC Barcelona, maar sinds juni 2024 zonder...
-- [Dertiende prijs voor Luis Enrique met PSG, dat Aston Villa verslaat in strijd om Super Cup](https://www.ad.nl/voetbal/dertiende-prijs-voor-luis-enrique-met-psg-dat-aston-villa-verslaat-in-strijd-om-super-cup~a438f99a/)
-  > Paris Saint-Germain heeft voor het tweede jaar op rij de UEFA Super Cup gewonnen. De winnaar van de Champions League won in de Red Bull Arena in...
-- [Brons en nationaal record Phijffers op 400 meter, meerkamper Jeff Tesselaar tweede na eerste dag](https://www.ad.nl/andere-sporten/brons-en-nationaal-record-phijffers-op-400-meter-meerkamper-jeff-tesselaar-tweede-na-eerste-dag~a931e786/)
-  > De EK atletiek worden dit jaar georganiseerd in het Engelse Birmingham. Wat kan Femke Broeders-Bol op de 800 meter en hoeveel medailles gaat...
 
 ### Meest gelezen
 
