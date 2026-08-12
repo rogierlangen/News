@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-08-2026 om 02:13*
+*Laatst bijgewerkt: 12-08-2026 om 04:49*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Wekdienst 12/8: Zonsverduistering • Rechtszaak over verkrachting in jeugdinstelling](https://nos.nl/l/2626485)
+  > Goedemorgen! In Den Haag staan twee medewerkers van een jeugdzorginstelling terecht op verdenking van verkrachting. En vanavond kan je eclipsbril op...
 - [Zeker 15 doden na kapseizen veerboot in Zimbabwe, tientallen mensen vermist](https://nos.nl/l/2626484)
   > Bij een bootongeluk op het Karibameer in Zimbabwe zijn zeker 15 mensen om het leven gekomen. 27 opvarenden zijn vermist nadat de veerboot 'Mbuya...
-- [Trump: Medicaid vergoedt niet langer geslachtsoperaties minderjarigen](https://nos.nl/l/2626483)
+- [Trump: overheid vergoedt niet langer geslachtsoperaties minderjarigen](https://nos.nl/l/2626483)
   > Geslachtsveranderende operaties en hormoonbehandelingen voor Amerikaanse minderjarigen worden straks niet langer vergoed door Medicaid, het...
 - [Tienduizenden psychiatrische patiënten na behandeling uit zicht hulpverleners](https://nos.nl/l/2626482)
   > De behandeling in ggz-instellingen van zeker 60.000 mensen met een ernstige psychiatrische aandoening is vaak tevergeefs. Daarmee is een kwart van de...
 - [Mensenrechtenclubs klagen regering VS aan om sancties tegen Internationaal Strafhof](https://nos.nl/l/2626481)
   > Vier mensenrechtenorganisaties hebben de Amerikaanse regering aangeklaagd in New York vanwege de sancties tegen het Internationaal Strafhof (ICC) in...
-- [Resten in Rotterdam vermoorde Oekraïense nationalist overgebracht naar Kyiv](https://nos.nl/l/2626470)
-  > Op een begraafplaats in de Rotterdamse wijk Crooswijk zijn de resten opgegraven van de vermoorde Oekraïense nationalist Jevhen Konovalets...
 
 ### Meest gelezen
 
@@ -29,14 +29,14 @@
 
 - [Jonas Phijffers gaat op woensdag strijden voor medaille op 400 meter, ook Lieke Klaver in actie](https://www.ad.nl/andere-sporten/jonas-phijffers-gaat-op-woensdag-strijden-voor-medaille-op-400-meter-ook-lieke-klaver-in-actie~a11aa01c/)
   > 57 Nederlandse atleten doen deze week mee aan de EK atletiek in Birmingham. Wanneer komen Femke Broeders-Bol, Lieke Klaver en de andere Nederlanders...
-- [Taylor Swift opgenomen in Nashville Songwriters Hall of Fame](https://www.ad.nl/show/taylor-swift-opgenomen-in-nashville-songwriters-hall-of-fame~a486def9/)
-  > Taylor Swift wordt dit jaar toegelaten tot de Nashville Songwriters Hall of Fame. Dinsdag werd bekendgemaakt dat zij het jongste lid van het...
-- [Forum-school gaat maandag open en krijgt ook subsidie, ondanks alle ophef: achttien leerlingen in schoolbanken](https://www.ad.nl/politiek/forum-school-gaat-maandag-open-en-krijgt-ook-subsidie-ondanks-alle-ophef-achttien-leerlingen-in-schoolbanken~af68ec50/)
-  > Ondanks de nodige kritiek gaat deze maand opnieuw een Forum-school van start. Ditmaal met slechts achttien leerlingen én met subsidie van de...
-- [Leipzig wil door PSV begeerde Geertruida alleen verkopen, Hamer terug bij Coventry City](https://www.ad.nl/voetbal/leipzig-wil-door-psv-begeerde-geertruida-alleen-verkopen-hamer-terug-bij-coventry-city~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [Voetbalpodcast | ‘Het zou prachtig zijn als NEC ook die laatste horde neemt naar de Champions League’](https://www.ad.nl/voetbal/voetbalpodcast-het-zou-prachtig-zijn-als-nec-ook-die-laatste-horde-neemt-naar-de-champions-league~a42af5cd9/)
-  > NEC maakt nog altijd kans op deelname aan de competitiefase van de Champions League. Met een overwinning op Olympiakos plaatste de ploeg van...
+- [Minoes opgepoetst te zien in de bioscoop: ‘Het was toen heel goed gemaakt’](https://www.ad.nl/show/minoes-opgepoetst-te-zien-in-de-bioscoop-het-was-toen-heel-goed-gemaakt~ac357934/)
+  > De geliefde familiefilm Minoes keert na 25 jaar terug in de bioscoop, dit keer volledig digitaal gerestaureerd. Annike Kross van Eye Filmmuseum...
+- [Geen richting aangeven niet langer grootste ergernis in het verkeer](https://www.ad.nl/auto/geen-richting-aangeven-niet-langer-grootste-ergernis-in-het-verkeer~a2af7759/)
+  > Nederlanders ergeren zich steeds weer aan dezelfde dingen op de weg. Toch is de ranglijst dit jaar flink veranderd. De verkeersirritatie die vorig...
+- [Vrouw vindt Mars uit de jaren 90 en is verbaasd over het formaat: ‘Hij is zo groot als mijn hand’](https://www.ad.nl/buitenland/vrouw-vindt-mars-uit-de-jaren-90-en-is-verbaasd-over-het-formaat-hij-is-zo-groot-als-mijn-hand~ad311cc0/)
+  > Tijdens het leeghalen van een woning in het Engelse Scunthorpe deed schoonmaker Victoria Gordon een opmerkelijke vondst. Tussen spullen die al...
+- [50.000 euro voor ritje naar Bulgarije: zo lucratief is de geëxplodeerde illegale tabakshandel](https://www.ad.nl/binnenland/50-000-euro-voor-ritje-naar-bulgarije-zo-lucratief-is-de-geexplodeerde-illegale-tabakshandel~a4230cb9/)
+  > Met een Netflix-achtige inbraak op een streng beveiligd politieterrein probeerden dieven afgelopen week een partij eerder gevorderde illegale...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [De minderheid met de meeste ondernemers: ‘Turken willen vaak van niemand afhankelijk zijn’](https://fd.nl/samenleving/1607050/de-minderheid-met-de-meeste-ondernemers-turken-willen-vaak-van-niemand-afhankelijk-zijn)
+  > Van de tien grootste migrantengroepen hebben Turkse Nederlanders het vaakst een bedrijf. De eerste generatie begon uit noodzaak, voor de volgende is...
+- [Iris van Herpen: ‘Voor inspiratie heb ik geen paddo’s meer nodig’](https://fd.nl/bedrijfsleven/1606480/iris-van-herpen-voor-inspiratie-heb-ik-geen-paddos-meer-nodig)
+  > De unieke ontwerpen van Iris van Herpen maakten haar wereldberoemd en geliefd bij Beyoncé en Koningin Máxima. Van Herpen vermijdt de glamour van de...
+- [Nachtmerrie voor woningbezitters: steeds meer funderingsproblemen door droogte](https://fd.nl/economie/1607285/nachtmerrie-voor-woningbezitters-steeds-meer-funderingsproblemen-door-droogte)
+  > Vandaag in FD Dagkoers: het aantal claims voor funderingsschade gaat door het dak, medewerkers van ABN Amro moeten weer naar kantoor en ambtenaren...
 - [ABN Amro wil dat medewerkers weer vaker naar kantoor komen](https://fd.nl/bedrijfsleven/1607178/abn-amro-wil-dat-medewerkers-weer-vaker-naar-kantoor-komen)
   > De bank wil dat medewerkers meer dan de helft van de week op locatie zijn. ‘Jonge medewerkers moeten op Teams zoeken naar iemand aan wie ze vragen...
 - [Het vuurtje aansteken is het moeilijkst](https://fd.nl/opinie/1607083/het-vuurtje-aansteken-is-het-moeilijkst)
   > Sporten vraagt vooral wilskracht als je eenmaal op de bank zit. Wie eenmaal in beweging is, krijgt hulp van het eigen brein.
-- [De laatste ideologie](https://fd.nl/opinie/1606957/de-laatste-ideologie)
-  > Als narratieven hele volksstammen in beweging kunnen brengen, welk narratief geldt dan in het Westen?
-- [Activistische ambtenaren willen dat het kabinet klimaatverandering uitroept tot noodsituatie](https://fd.nl/politiek/1606943/activistische-ambtenaren-willen-dat-het-kabinet-klimaatverandering-uitroept-tot-noodsituatie)
-  > Een groep ambtenaren wil meer aandacht voor het klimaatprobleem. ‘In coronatijd waren er bijna wekelijks persconferenties. Deze crisis is nog groter,...
-- [Meeste jongeren blijven in dezelfde provincie wonen](https://fd.nl/samenleving/1606953/meeste-jongeren-blijven-in-dezelfde-provincie-wonen)
-  > Met name mbo’ers blijven vaak in de gemeente waar zij opgroeiden. Regio’s als Brainport Eindhoven hebben juist nood aan een toestroom van jong talent.
 
 ### Meest gelezen
 
