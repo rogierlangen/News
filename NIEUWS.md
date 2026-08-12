@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-08-2026 om 13:17*
+*Laatst bijgewerkt: 12-08-2026 om 15:00*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Opeenvolgende orkanen trekken over Oost- en Zuidoost-Azië, hevig seizoen verwacht](https://nos.nl/l/2626530)
-  > Terwijl Europa wordt getroffen door extreme droogte, worden Oost- en Zuidoost-Aziatische landen geteisterd door orkanen en hevige moessonregens. Er...
-- [Dodental na omslaan veerboot Zimbabwe loopt op naar 44, noodtoestand uitgeroepen](https://nos.nl/l/2626526)
-  > Het dodental van het ongeluk waarbij een veerboot kapseisde op het Karibameer in Zimbabwe is opgelopen naar 44. Dat zegt de Zimbabwaanse politie. Een...
-- [Andy Green (64) vestigt opnieuw snelheidsrecord, ditmaal in waterstofauto](https://nos.nl/l/2626519)
-  > De 64-jarige Brit Andy Green, de enige mens die op land ooit door de geluidsbarrière reed, heeft opnieuw een snelheidsrecord gevestigd. Op een...
-- [Unesco: onderwijsverbod Taliban treft meer dan 2 miljoen meisjes in Afghanistan](https://nos.nl/l/2626517)
-  > Vijf jaar na de machtsovername door de Taliban in Afghanistan worden 2,4 miljoen meisjes nog altijd uitgesloten van het voortgezet onderwijs. Dat...
-- [Grootste deel bijzondere jeneverbesstruiken verwoest bij brand Venray](https://nos.nl/l/2626515)
-  > Minder dan honderd jeneverbesstruiken hebben de grote brand in het Limburgse natuurgebied Boschhuizerbergen overleefd. Voordat de brand vorige week...
+- [Podcast De Dag: van tomatensaus tot kerncentrales, laagwater raakt Europa](https://nos.nl/l/2626547)
+  > De Rijn in Nederland staat historisch laag. En ook andere rivieren in Europa staan lager dan ooit. En dat levert door heel Europa problemen op. Waar...
+- [Brandweerman overleden die zwaargewond raakte bij duinbrand Ouddorp](https://nos.nl/l/2626546)
+  > Een brandweerman die vorige week zwaargewond raakte bij het bestrijden van een duinbrand in Ouddorp is overleden. Dat meldt de veiligheidsregio. Het...
+- [Ontsnapte wallaby uit Brabantse dierentuin duikt op tussen de kamelen](https://nos.nl/l/2626545)
+  > De wallaby die een half jaar geleden ontsnapte uit Zoo Veldhoven is weer terug. Het dier werd vandaag onverwacht in het verblijf van de kamelen...
+- [Tijd dringt bij zoektocht naar overlevenden na beving Colombia, vrouw gered](https://nos.nl/l/2626541)
+  > Een 32-jarige vrouw is gisteren in Colombia levend onder het puin vandaan gehaald, 36 uur na de zware aardbeving. Dat heeft de brandweer in Bogota...
+- [Mijlpaal voor Chinese luchtvaartindustrie: eerste internationale vlucht voor eigen C919](https://nos.nl/l/2626539)
+  > China's C919-passagiersvliegtuig heeft vandaag zijn eerste geplande internationale vlucht gemaakt. Het toestel vertrok vanuit Peking en landde...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tesselaar sterk begonnen aan tienkamp, Van Klinken naar discusfinale, deze Nederlanders komen vandaag in actie](https://www.ad.nl/andere-sporten/tesselaar-sterk-begonnen-aan-tienkamp-van-klinken-naar-discusfinale-deze-nederlanders-komen-vandaag-in-actie~a931e786/)
-  > De EK atletiek worden dit jaar georganiseerd in het Engelse Birmingham. Wat kan Femke Broeders-Bol op de 800 meter en hoeveel medailles gaat...
-- [Bridget Maasland deelt goed nieuws over haar moeder: ‘De kanker is weg’](https://www.ad.nl/show/bridget-maasland-deelt-goed-nieuws-over-haar-moeder-de-kanker-is-weg~af8e205b/)
-  > De moeder van Bridget Maasland is officieel kankervrij. Dat deelt de 51-jarige presentatrice in een video op Instagram. Moeder Elly heeft gelukkig...
-- [Toch thuisblijven met enkelband: beroep Høiby tegen verlenging voorarrest afgewezen](https://www.ad.nl/show/toch-thuisblijven-met-enkelband-beroep-hoiby-tegen-verlenging-voorarrest-afgewezen~a3b6d731/)
-  > Het beroep van Marius Borg Høiby tegen de beslissing van de rechtbank om zijn voorarrest ongewijzigd te verlengen, is woensdag afgewezen. Dat meldt...
-- [Nederland is massaal op vakantie, toch worden schoolboeken juist nu bezorgd: kan dat niet anders?](https://www.ad.nl/binnenland/nederland-is-massaal-op-vakantie-toch-worden-schoolboeken-juist-nu-bezorgd-kan-dat-niet-anders~ac329498/)
-  > Nederland is massaal op vakantie. Toch worden de schoolboeken juist nu bezorgd. Terwijl veel mensen niet thuis zijn. Waarom? En hoe zorgen de...
-- [Ooit de duurste speler ter wereld, nu wéér een dreun: Paul Pogba op weg naar uitgang AS Monaco](https://www.ad.nl/voetbal/ooit-de-duurste-speler-ter-wereld-nu-weer-een-dreun-paul-pogba-op-weg-naar-uitgang-as-monaco~af363a44/)
-  > Paul Pogba moet opnieuw op zoek naar een andere club. Het contract van de Franse middenvelder, ooit wereldkampioen en duurste voetballer ooit, wordt...
+- [LIVE Zonsverduistering | Tegen alle adviezen in:  ‘1 op 5 Nederlanders kijkt zonsverduistering zonder bescherming’](https://www.ad.nl/binnenland/live-zonsverduistering-tegen-alle-adviezen-in-1-op-5-nederlanders-kijkt-zonsverduistering-zonder-bescherming~aac952b8/)
+  > Vandaag is het zover! De gedeeltelijke zonsverduistering waar we al 27 jaar op wachten. Vanavond om 19.15 uur neemt de maan een hap uit de zon Het...
+- [Strengere regels songfestival: winst geen garantie meer voor organisatie en minimumleeftijd omhoog](https://www.ad.nl/show/strengere-regels-songfestival-winst-geen-garantie-meer-voor-organisatie-en-minimumleeftijd-omhoog~a4a4f4b9/)
+  > De European Broadcasting Union (EBU) voert een reeks ingrijpende veranderingen door voor het Eurovisie Songfestival. Vanaf de editie van 2027, die in...
+- [Houd kinderen extra in de gaten tijdens zonsverduistering: één korte blik kan al blijvende schade veroorzaken](https://www.ad.nl/binnenland/houd-kinderen-extra-in-de-gaten-tijdens-zonsverduistering-een-korte-blik-kan-al-blijvende-schade-veroorzaken~abffddb2/)
+  > Wie woensdagavond zonder goede bescherming rechtstreeks in de zon kijkt, loopt het risico op blijvende oogschade. Hoe gevaarlijk is de eclips voor...
+- [Poetin op verkiezingstournee: ‘spontane’ ontmoetingen en plots lage benzineprijzen (die daarna weer stijgen)](https://www.ad.nl/buitenland/poetin-op-verkiezingstournee-spontane-ontmoetingen-en-plots-lage-benzineprijzen-die-daarna-weer-stijgen~a94545c7/)
+  > De Russische president Vladimir Poetin is op tournee in aanloop naar de parlementsverkiezingen van 20 september. Hij trekt diep Siberië in en mijdt...
+- [Bij de banken stroomt het geld weer binnen, maar daar merkt de klant niet veel van](https://www.ad.nl/economie/bij-de-banken-stroomt-het-geld-weer-binnen-maar-daar-merkt-de-klant-niet-veel-van~afadbb995/)
+  > De grote Nederlandse banken draaien uitstekend. Omzet en winst stijgen en de vooruitzichten zijn goed. Maar de klant merkt daar niet veel van.
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [De Midkap bereikt vrijwel onopgemerkt een recordhoogte](https://fd.nl/financiele-markten/1607345/de-midkap-bereikt-vrijwel-opgemerkt-een-recordhoogte)
-  > De AMX doet het beter dan de AEX, maar is aanzienlijk minder populair dan zijn grote broer. Dat is zonde, vindt Albert Jellema van ProBeleggen. ‘Het...
-- [De harde afvalrace van werkloze ICT’ers in Silicon Valley](https://fd.nl/economie/1605410/de-harde-afvalrace-van-werkloze-icters-in-silicon-valley)
-  > Na jaren van massaontslagen hadden de werknemers in de Californische techsector gehoopt dat de arbeidsmarkt dit jaar weer zou aantrekken. Het wordt...
-- [Ierse investeerder heeft interesse in failliete fietsenfabrikant Accell](https://fd.nl/bedrijfsleven/1607195/ierse-investeerder-heeft-interesse-in-accell)
-  > Quanta Capital uit Dublin heeft contact opgenomen met de fietsenfabrikant die eerder deze week failliet werd verklaard. De Ieren zeggen op te treden...
-- [Stormen we door AI-gewenning op een ramp af?](https://fd.nl/opinie/1607081/stormen-we-door-ai-gewenning-op-een-ramp-af)
-  > De ontwikkelingen op het gebied van AI gaan zo snel dat we onze meetlat voor wat goed is en wat slecht voortdurend aan het bijstellen zijn, ziet...
-- [Topman Baker McKenzie: ‘Invoertarieven staan plots op de agenda van bestuurders’](https://fd.nl/financiele-markten/1605240/topman-baker-mckenzie-invoertarieven-staan-plots-op-de-agenda-van-bestuurders)
-  > Bedrijven en overheden moeten zich wapenen tegen de geopolitieke spanningen, zegt Sunny Mann, de wereldwijde bestuursvoorzitter van Baker McKenzie.
+- [Amsterdams cloudbedrijf Nebius ziet door AI zijn omzet vervijfvoudigen](https://fd.nl/bedrijfsleven/1607351/amsterdams-cloudbedrijf-nebius-ziet-door-ai-zijn-omzet-vervijfvoudigen)
+  > Het aandeel steeg woensdag ruim 20% op de Amerikaanse technologiebeurs Nasdaq.
+- [DAF gaat met Zweedse partij aan zelfrijdende trucks werken](https://fd.nl/bedrijfsleven/1607350/daf-gaat-met-zweedse-partij-aan-zelfrijdende-trucks-werken)
+  > De vrachtwagens worden geschikt gemaakt om op specifieke, vaste routes zonder chauffeur te rijden. Er blijft dan nog wel iemand aan boord voor zaken...
+- [Wintermute gaat $1 mrd investeren in traditionele financiële markten](https://fd.nl/financiele-markten/1607196/wintermute-gaat-1-mrd-investeren-in-traditionele-financiele-markten)
+  > Het zogeheten crypto-native handelshuis wil zich richten op diversificatie nu de cryptomarkt op zijn gat ligt.
+- [Vestas ziet vraag naar turbines weer toenemen na jaren van tegenvallers](https://fd.nl/bedrijfsleven/1607202/vestas-ziet-vraag-naar-turbines-weer-toenemen-na-jaren-van-tegenvallers)
+  > Deense windturbinebouwer rapporteert 50% toename van orders en verhoogt de winstverwachting voor het hele jaar.
+- [Douglas sluit verlieslatende winkels, schuldratio loopt op](https://fd.nl/bedrijfsleven/1607349/douglas-sluit-verlieslatende-winkels-schuldratio-loopt-op)
+  > De grootste parfumerieketen van Europa gaf dit jaar al tweemaal een winstwaarschuwing af. Om de resultaten op te krikken wil het bedrijf zich meer...
 
 ### Meest gelezen
 
