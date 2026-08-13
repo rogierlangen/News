@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-08-2026 om 21:50*
+*Laatst bijgewerkt: 13-08-2026 om 22:47*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Manchester City heeft 120 miljoen over voor Enzo Fernández, Enes Ünal terug bij Getafe](https://www.ad.nl/voetbal/manchester-city-heeft-120-miljoen-over-voor-enzo-fernandez-enes-unal-terug-bij-getafe~acbd43e6/)
+- [Verenigde Arabische Emiraten beschuldigen Iran van aanval op twee olietankers in Straat van Hormuz](https://www.ad.nl/buitenland/verenigde-arabische-emiraten-beschuldigen-iran-van-aanval-op-twee-olietankers-in-straat-van-hormuz~ac528ac3/)
+  > Twee schepen van het staatsoliebedrijf van Abu Dhabi, ADNOC, zijn donderdagavond aangevallen tijdens hun tocht door de Straat van Hormuz. De...
+- [Rodri vliegt met Ryanair terug naar Engeland, Enes Ünal terug bij Getafe](https://www.ad.nl/voetbal/rodri-vliegt-met-ryanair-terug-naar-engeland-enes-unal-terug-bij-getafe~acbd43e6/)
   > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Bioscopen en bouwmarkten ‘winnaars’ van de hitte, andere bedrijven de klos](https://www.ad.nl/binnenland/bioscopen-en-bouwmarkten-winnaars-van-de-hitte-andere-bedrijven-de-klos~aa1ee066/)
+  > Bioscopen en bouwmarkten zijn de ‘winnaars’ van de hitte. Voor veel andere bedrijven betekent onze warme en droge zomer slecht nieuws. Dat blijkt uit...
 - [Dramatisch Ajax speelt in Dublin gelijk tegen nummer 5 van Ierland, nu wachten play-offs tegen FC Sion](https://www.ad.nl/voetbal/dramatisch-ajax-speelt-in-dublin-gelijk-tegen-nummer-5-van-ierland-nu-wachten-play-offs-tegen-fc-sion~a7ab6be7/)
   > Een dramatisch Ajax heeft zich met pijn en moeite gekwalificeerd voor de play-offs van de Conference League. Tegen Shelbourne FC, de huidige nummer...
 - [Bouwvakkers ontdekken goudschat van 9 miljoen euro in Belgische kelder](https://www.ad.nl/buitenland/bouwvakkers-ontdekken-goudschat-van-9-miljoen-euro-in-belgische-kelder~a1348b9c/)
   > Werknemers van een Belgisch bouwbedrijf hebben tijdens renovatiewerkzaamheden aan een gebouw in Sint-Gillis-Dendermonde een spectaculaire ontdekking...
-- [Meerkamper Jeff Tesselaar voelt zich ‘een van de big boys’ na vierde plek, Femke Bol morgen in finale 800 meter](https://www.ad.nl/andere-sporten/meerkamper-jeff-tesselaar-voelt-zich-een-van-de-big-boys-na-vierde-plek-femke-bol-morgen-in-finale-800-meter~a931e786/)
-  > De EK atletiek worden dit jaar georganiseerd in het Engelse Birmingham. Wat kan Femke Broeders-Bol op de 800 meter en hoeveel medailles gaat...
-- [NEC, Ajax en FC Twente naar Europese play-offs: dit is route van de Nederlandse clubs naar hoofdfase](https://www.ad.nl/voetbal/nec-ajax-en-fc-twente-naar-europese-play-offs-dit-is-route-van-de-nederlandse-clubs-naar-hoofdfase~a63bfdb3/)
-  > Nederland wordt in de voorrondes van de Europese competities vertegenwoordigd door drie clubs. NEC, FC Twente en Ajax moeten een weg zien te vinden...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [De vrije ooievaar](https://fd.nl/opinie/1607603/de-vrije-ooievaar)
+  > Overal ter wereld daalt het geboortecijfer, ziet columnist Casper Thomas. Het besluit de ooievaar wat vaker vrijaf te geven is volgens hem de grote...
+- [Ik mis Frits en zijn liberale schrikbewind](https://fd.nl/opinie/1607522/ik-mis-frits-en-zijn-liberale-schrikbewind)
+  > Europa kan wel wat meer Bolkestein gebruiken: minder privileges, meer concurrentie en vooral minder begrip voor wie zijn eigen economische graf...
+- [Rondreizende après-skihut Bierdorf XXL stuit op verzet van Hoornse horeca](https://fd.nl/samenleving/1607517/rondreizende-apres-skihut-bierdorf-xxl-stuit-op-verzet-van-hoornse-horeca)
+  > Kroegbazen in Hoorn zijn niet blij met de komst van een mobiele tirolerbar van een Brabantse ondernemer. Ze vrezen omzetverlies. ‘Je moet een buffer...
+- [Personalia vrijdag 14 augustus 2026](https://fd.nl/bedrijfsleven/1607530/personalia-vrijdag-14-augustus-2026)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [China ontwijkt importheffingen via onder meer de EU, beweren de VS](https://fd.nl/economie/1607631/china-ontwijkt-importheffingen-via-onder-meer-de-eu-beweren-de-vs)
   > Volgens de Amerikaanse overheid wordt productie ter waarde van tientallen tot honderden miljarden via derde landen door China naar de VS geëxporteerd.
-- [Nieuwe records op Wall Street dankzij gerustgestelde beleggers](https://fd.nl/financiele-markten/1607630/nieuwe-records-op-wall-street-dankzij-gerustgestelde-beleggers)
-  > De S&P 500, Dow Jones en Nasdaq maakten bescheiden winsten, na opluchting over meevallende inflatiecijfers.
-- [Amerikanen veilen staatsobligaties tegen hoogste rente in kwarteeuw](https://fd.nl/financiele-markten/1607595/amerikanen-veilen-staatsobligaties-tegen-hoogste-rente-in-kwarteeuw)
-  > De snel oplopende begrotingstekorten en stijgende rentelasten voeden twijfels over de houdbaarheid van de Amerikaanse staatsschuld.
-- [‘Spanje kreeg Cruijff en Van Gaal, Nederland krijgt er Xavi voor terug’](https://fd.nl/samenleving/1607599/spanje-kreeg-cruijff-en-van-gaal-nederland-krijgt-er-xavi-voor-terug)
-  > Spanje kon jarenlang profiteren van de inzet van Nederlandse topvoetbalcoaches, nu krijgt Nederland daar iets voor terug. Spaanse analisten en...
-- [Jetten kijkt met argusogen naar stikstofruzie tussen Noord-Brabant en vijf kippenboeren](https://fd.nl/politiek/1607601/jetten-kijkt-met-argusogen-naar-stikstofruzie-tussen-noord-brabant-en-vijf-kippenboeren)
-  > Vijf Brabantse pluimveehouders dreigen hun vergunning te verliezen. Hoewel het een provinciale aangelegenheid is, loopt de druk op het kabinet en de...
 
 ### Meest gelezen
 
