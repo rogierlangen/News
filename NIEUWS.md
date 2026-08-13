@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-08-2026 om 04:53*
+*Laatst bijgewerkt: 13-08-2026 om 06:19*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Economische noodtoestand in Colombia na aardbeving, dodental naar 265](https://nos.nl/l/2626620)
-  > Vier dagen na de zware aardbeving in het westen van het land heeft de Colombiaanse president De la Espriella een economische noodtoestand...
-- [Drie executies in een dag gepland in VS, voor het eerst in jaren](https://nos.nl/l/2626619)
-  > Voor het eerst in bijna zestien jaar staan drie executies op één dag gepland in de VS. De staten Alabama, Oklahoma en Tennessee willen vandaag de...
-- [Drugsbende opgerold in Zuid-Spanje, ook twee Nederlanders opgepakt](https://nos.nl/l/2626618)
-  > In het zuiden van Spanje heeft de Spaanse politie in samenwerking met Nederland een drugsbende opgerold. Vijf verdachten zijn aangehouden, onder wie...
-- [Pensioenfondsen onder nieuw stelsel behalen positieve resultaten op beurs](https://nos.nl/l/2626615)
-  > Pensioenfondsen die al zijn overgestapt naar het nieuwe stelsel hebben op de beurs een positief resultaat behaald, vooral dankzij aandelen in...
-- [Karoline Leavitt (28) stopt als perschef van het Witte Huis](https://nos.nl/l/2626598)
-  > Karoline Leavitt, perschef van het Witte Huis, vertrekt. Dat meldt de Amerikaanse president Trump. Ze wil volgens hem meer tijd met haar familie en...
+- [Taakstraf voor Amersfoorter om stroom aan racistische en opruiende teksten](https://nos.nl/l/2626628)
+  > Een 50-jarige man uit Amersfoort krijgt 120 uur taakstraf voor een stroom aan racistische, opruiende en bedreigende berichten in een openbare...
+- [Ondanks deal met VK blijven migranten risico's nemen aan de Franse kust](https://nos.nl/l/2626626)
+  > Een jaar na de invoering van de 'One in, One out'-deal tussen Frankrijk en het Verenigd Koninkrijk leven migranten aan de Franse noordkust in...
+- [Na de zonsverduistering volgde een heldere nacht vol vallende sterren](https://nos.nl/l/2626625)
+  > Ze vormden na de zonsverduistering een spectaculair vervolg op het hemelschouwspel: de regen van vallende sterren. Deze Perseïden, een meteorenzwerm...
+- [Door droogte blijft de honingoogst achter: 'Spannende tijden voor imkers'](https://nos.nl/l/2626624)
+  > Door de aanhoudende droogte merken imkers dat de honingproductie deze zomer flink tegenvalt. Bloemen staan minder lang of nauwelijks in bloei,...
+- [Wekdienst 13/8: Rechtszaak over aanslag D66-kantoor • Stille tocht Den Haag](https://nos.nl/l/2626623)
+  > Goedemorgen! In Den Haag dient de rechtszaak tegen een man die wordt verdacht van het plegen van een aanslag op het partijkantoor van D66. In...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE vakantieblog | Dagje quad op Mallorca eindigt in diepe val voor twee jonge Nederlandse vrouwen](https://www.ad.nl/buitenland/live-vakantieblog-dagje-quad-op-mallorca-eindigt-in-diepe-val-voor-twee-jonge-nederlandse-vrouwen~a4195717/)
-  > Een vakantie-uitje op Mallorca is woensdagmiddag uitgelopen op een ongeluk voor twee jonge Nederlandse toeristen. De twintigers vielen met hun quad...
-- [Jonas Phijffers sprint na nachtje plafond staren naar EK-brons: ‘We zijn hier om te rennen, niet om zielig te zijn’](https://www.ad.nl/andere-sporten/jonas-phijffers-sprint-na-nachtje-plafond-staren-naar-ek-brons-we-zijn-hier-om-te-rennen-niet-om-zielig-te-zijn~aea1b1cb/)
-  > Met zijn EK-medaille op de 400 meter heeft Jonas Phijffers, 23 jaar pas, internationaal naam gemaakt. Weer een nieuwe mijlpaal in de razende carrière...
-- [Tim reanimeerde jongetje (4) na zwembaddrama in San Marino: ‘Hij heeft heel veel geluk gehad’](https://www.ad.nl/binnenland/tim-reanimeerde-jongetje-4-na-zwembaddrama-in-san-marino-hij-heeft-heel-veel-geluk-gehad~a108d7d9/)
-  > Tim Delissen twijfelt geen moment en verleent samen met een andere Nederlander cruciale eerste hulp aan een jongetje dat dreigt te verdrinken in een...
-- [Lichamen van twee vermiste Belgische wandelaars na 34 jaar gevonden in Zwitserse Alpen](https://www.ad.nl/buitenland/lichamen-van-twee-vermiste-belgische-wandelaars-na-34-jaar-gevonden-in-zwitserse-alpen~a0f4fca3/)
-  > Er lijkt na 34 jaar eindelijk duidelijkheid te komen over het lot van twee Belgische wandelaars die in september 1992 spoorloos verdwenen in de...
-- [Zo ‘klei’ je jouw auto en dit is waarom meer mensen dat zouden moeten doen](https://www.ad.nl/auto/zo-klei-je-jouw-auto-en-dit-is-waarom-meer-mensen-dat-zouden-moeten-doen~aeffe7f8/)
-  > Na een wasbeurt kan autolak toch nog ruw aanvoelen en blijft vervuiling achter die je met water en shampoo niet weg krijgt. Er is een manier om dat...
+- [Muse-frontman Matt Bellamy en Elle Evans gaan scheiden](https://www.ad.nl/show/muse-frontman-matt-bellamy-en-elle-evans-gaan-scheiden~ac98f5bf/)
+  > Matt Bellamy wil na zeven jaar huwelijk scheiden van zijn vrouw Elle Evans. Volgens People heeft de Muse-frontman de scheiding woensdag aangevraagd...
+- [Femke Broeders-Bol vanmiddag in halve finale 800 meter, ook Lieke Klaver in actie](https://www.ad.nl/andere-sporten/femke-broeders-bol-vanmiddag-in-halve-finale-800-meter-ook-lieke-klaver-in-actie~a931e786/)
+  > De EK atletiek worden dit jaar georganiseerd in het Engelse Birmingham. Wat kan Femke Broeders-Bol op de 800 meter en hoeveel medailles gaat...
+- [Travis Kelce praat voor het eerst over bruiloft met Taylor Swift: ‘Mooiste avond van mijn leven’](https://www.ad.nl/show/travis-kelce-praat-voor-het-eerst-over-bruiloft-met-taylor-swift-mooiste-avond-van-mijn-leven~ab010f34/)
+  > Travis Kelce vond zijn bruiloft met Taylor Swift ‘de mooiste avond’ van zijn leven. De 36-jarige American football-speler sprak volgens Amerikaanse...
+- [Spotify verhoogt tarieven met 2 à 3 euro, zo veel kost een maandabonnement nu](https://www.ad.nl/tech/spotify-verhoogt-tarieven-met-2-a-3-euro-zo-veel-kost-een-maandabonnement-nu~ac41d0dc/)
+  > Spotify verhoogt de prijzen. Een standaardabonnement op Premium kost voortaan 14 euro per maand. Ook de prijzen van Duo- en Family-abonnementen gaan...
+- [Staande ovatie van fans: Lionel Messi maakt rentree na overlijden vader](https://www.ad.nl/voetbal/staande-ovatie-van-fans-lionel-messi-maakt-rentree-na-overlijden-vader~af4b44a5/)
+  > Lionel Messi heeft zijn rentree gemaakt bij Inter Miami. De 39-jarige ster miste de laatste wedstrijd vanwege het overlijden van zijn vader, maar...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Onweer en hagel drukken op het resultaat van Achmea](https://fd.nl/financiele-markten/1607477/onweer-en-hagel-drukken-op-het-resultaat-van-achmea)
+  > Meer dan 12.500 klanten ondervonden schade van het extreme weer in de maand juni.
+- [Adyen schuift investeringen in datacenters naar voren om rekencapaciteit veilig te stellen](https://fd.nl/financiele-markten/1607049/adyen-schuift-investeringen-in-datacenters-naar-voren-om-rekencapaciteit-veilig-te-stellen)
+  > Adyen verrast met hogere omzet, schuift investeringen in datacenters naar voren en mikt op herstel van de winstmarge in de tweede jaarhelft.
+- [Cabka groeit en boekt kleine winst](https://fd.nl/bedrijfsleven/1607591/cabka-groeit-en-boekt-kleine-winst)
+  > De maker van onder meer pallets uit gerecycled plastic handhaaft de verwachting van verdere groei en margeverbetering voor heel 2026.
+- [Live: Weer rally op Zuid-Koreaanse beurs](https://fd.nl/financiele-markten/1607207/live-weer-rally-op-zuid-koreaanse-beurs)
+  > Beleggers denken dat de rente niet snel omhoog zal gaan in de Verenigde Staten. Dat stut de aandelenkoersen, die zich nog altijd dicht bij of op...
 - [De favoriete boeken van Dilan Yesilgöz: ‘Ik dacht: die hoofdpersoon, dat ben ik’](https://fd.nl/samenleving/1607338/de-favoriete-boeken-van-dilan-yesilgoz-ik-dacht-die-hoofdpersoon-dat-ben-ik)
   > Dilan Yesilgöz, minister van Defensie en vicepremier in het kabinet-Jetten, spiegelt zich aan literaire werken en leert van non-fictie.
-- [Gaat Elon Musk chips maken zonder de technologie van ASML?](https://fd.nl/economie/1607476/gaat-elon-musk-chips-maken-zonder-de-technologie-van-asml)
-  > Vandaag in Dagkoers: de plannen voor Elon Musks project Terafab lijken de chipmarkt op te gaan schudden en boeren zijn woest over het intrekken van...
-- [Is de juridische strijd van Brabantse kippenboeren het startschot voor nieuwe protesten?](https://fd.nl/politiek/1607329/is-de-juridische-strijd-van-brabantse-kippenboeren-het-startschot-voor-nieuwe-protesten)
-  > De provincie Noord-Brabant wil de vergunningen van vijf pluimveehouders intrekken op verzoek van milieubewegingen. De trekkers worden verwacht,...
-- [Van het thuiswerken zijn werkgevers niet zomaar af](https://fd.nl/bedrijfsleven/1607206/van-het-thuiswerken-zijn-werkgevers-niet-zomaar-af)
-  > ABN Amro is het laatste voorbeeld van een groot Nederlands bedrijf dat thuiswerken probeert te reguleren. Maar van koffieslurpende keukentafelwerkers...
-- [Iedereen zoekt daglicht](https://fd.nl/opinie/1607197/iedereen-zoekt-daglicht)
-  > Misschien is het stating the obvious, maar als de alarmbellen blijven klinken is het logisch om daar verslag van te doen.
 
 ### Meest gelezen
 
