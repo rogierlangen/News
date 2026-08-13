@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-08-2026 om 13:19*
+*Laatst bijgewerkt: 13-08-2026 om 15:00*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Vier verdachten van voorbereiden terroristische aanslag blijven langer vastzitten](https://nos.nl/l/2626694)
+  > De vier jonge terrorismeverdachten die de afgelopen weken werden opgepakt voor het voorbereiden van een aanslag blijven 30 dagen langer in...
+- [Minister: alles op alles zetten om vergunning Brabantse pluimveehouders te redden](https://nos.nl/l/2626690)
+  > Er moet "alles op alles" worden gezet om te voorkomen dat de vergunning van vijf Brabantse pluimveehouders wordt ingetrokken. Dat schrijft...
+- [Podcast de Dag: is er nog toekomst voor de Nederlandse fiets?](https://nos.nl/l/2626689)
+  > Vrijwel iedereen heeft er een of twee. Een oud barrel, een snelle e-bike of racefiets, of de klassieke omafiets.
+        Toch ging deze week Accell...
+- [Morgen nog één keer extreem heet, daarna wat koeler en kans op een bui](https://nos.nl/l/2626688)
+  > Vrijwel overal in het land was het vandaag meer dan 30 graden; tropisch warm dus. Regionaal werd de vijfde hittegolf van het jaar genoteerd, wat een...
 - [Australische bisschop schuldig aan seksueel misbruik van jonge Aboriginal mannen](https://nos.nl/l/2626681)
   > Een oud-bisschop in Australië is schuldig bevonden aan verkrachting en seksueel misbruik van meerdere jonge, Aboriginal mannen. De 76-jarige...
-- [BNR: illegale gokreclames op platforms Meta gericht op kwetsbare gokkers](https://nos.nl/l/2626675)
-  > Goksites die illegaal zijn in Nederland adverteren op platformen van Meta met reclames die expliciet gericht zijn op mensen met gokproblemen. Dat...
-- [Omstreden bezoek Poetin aan Koerilen-eilanden legt spanning met Japan bloot](https://nos.nl/l/2626667)
-  > De Russische president Poetin heeft voor het eerst een bezoek gebracht aan de Koerilen, een eilandengroep in de Stille Oceaan. De eilanden worden...
-- [Palestijnen al dagen ingesloten door Israëlische kolonisten op Westoever](https://nos.nl/l/2626663)
-  > Israëlische kolonisten hebben al dagen de woningen van twee Palestijnse families op de bezette Westelijke Jordaanoever omsingeld, waardoor bewoners...
-- [Dode en gewonden bij explosie in Rotterdamse haven](https://nos.nl/l/2626662)
-  > Bij een explosie bij een bedrijf in het Rotterdamse havengebied is een dode gevallen. Ook raakte een aantal mensen gewond. De explosie vond rond...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Azarkan aangeboden bij ADO, Telstar laat Tejan naar Maleisië gaan, NEC versterkt zich met verdediger van FC Porto](https://www.ad.nl/voetbal/azarkan-aangeboden-bij-ado-telstar-laat-tejan-naar-maleisie-gaan-nec-versterkt-zich-met-verdediger-van-fc-porto~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [Luuk de Jong over werken onder Xavi bij Barcelona: ‘Bij hem was ik meer dan een pinchhitter’](https://www.ad.nl/wk-voetbal/luuk-de-jong-over-werken-onder-xavi-bij-barcelona-bij-hem-was-ik-meer-dan-een-pinchhitter~a1df49ec/)
-  > Slechts drie Nederlandse spelers weten al hoe het is om te werken onder de trainer Xavi. Eén van hen is Luuk de Jong in zijn tijd bij FC Barcelona....
-- [Betonblokken, hitte en 2500 boeren: Den Bosch maakt zich op voor een zwaar protest](https://www.ad.nl/binnenland/betonblokken-hitte-en-2500-boeren-den-bosch-maakt-zich-op-voor-een-zwaar-protest~a04a8ae5/)
-  > Het belooft een hete vrijdag te worden in Den Bosch, waar boeren bij een temperatuur van 35 graden protesteren tegen wat zij zien als het ‘Brabantse...
-- [Strenge cyberveiligheidswet moet horrorscenario door hackers voorkomen: ‘De dreigingen nemen toe’](https://www.ad.nl/binnenland/strenge-cyberveiligheidswet-moet-horrorscenario-door-hackers-voorkomen-de-dreigingen-nemen-toe~a2975e7e/)
-  > Het is een horrorscenario: ziekenhuizen die door hackers worden aangevallen, hulpdiensten die worden uitgeschakeld of drinkwater dat is aangetast....
-- [20,7 miljoen illegale sigaretten onderschept in twee weken, ruim de helft werd gevonden in Rotterdam](https://www.ad.nl/binnenland/20-7-miljoen-illegale-sigaretten-onderschept-in-twee-weken-ruim-de-helft-werd-gevonden-in-rotterdam~a3d5f762/)
-  > In twee weken tijd zijn ruim 20,7 miljoen illegale sigaretten onderschept. Combiteam SMOKE, een samenwerkingsverband van onder meer de douane en de...
+- [Kijkers geloven ogen niet als Lange Frans zijn nieuwe tuin laat zien, maar nu blijkt: video vertelt niet het hele verhaal](https://www.ad.nl/show/kijkers-geloven-ogen-niet-als-lange-frans-zijn-nieuwe-tuin-laat-zien-maar-nu-blijkt-video-vertelt-niet-het-hele-verhaal~a00e87ed/)
+  > Rapper Lange Frans (45) gaat viraal met een video waarin hij zijn nieuwe tuin laat zien. Die is voer voor grappen, omdat er zoveel tegels in liggen...
+- [Willem II maanden zonder eerste doelman, Mees Hilgers traint na conflict en blessure weer mee bij FC Twente](https://www.ad.nl/voetbal/willem-ii-maanden-zonder-eerste-doelman-mees-hilgers-traint-na-conflict-en-blessure-weer-mee-bij-fc-twente~a378dc98/)
+  > Het nieuwe eredivisieseizoen is van start gegaan. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we...
+- [Grote brand op toeristenboot voor Turkse kust, 115 mensen springen in zee](https://www.ad.nl/buitenland/grote-brand-op-toeristenboot-voor-turkse-kust-115-mensen-springen-in-zee~acf7f34cd/)
+  > Voor de kust van het Turkse vakantieoord Fethiye is donderdagmiddag een toeristenboot in brand gevlogen. Zo’n 115 mensen, onder wie kinderen en...
+- [Man maakt ijsbeer wakker met misthoorn op Spitsbergen en krijgt boete van duizenden euro's](https://www.ad.nl/buitenland/man-maakt-ijsbeer-wakker-met-misthoorn-op-spitsbergen-en-krijgt-boete-van-duizenden-euro-s~a816b340/)
+  > Een man heeft op Spitsbergen een boete gekregen van 50.000 kronen, omgerekend 4550 euro, omdat hij een ijsbeer wakker maakte. Het is op Spitsbergen...
+- [Johanna erfde 400 euro, maar de tonnen van tante Teun gingen naar kroonluchters in de kerk](https://www.ad.nl/geld/johanna-erfde-400-euro-maar-de-tonnen-van-tante-teun-gingen-naar-kroonluchters-in-de-kerk~ab0bc09e/)
+  > Johanna (57) heeft warme, maar ook vervelende herinneringen aan haar tantes die geregeld over de vloer kwamen. Door hun zuinigheid hadden ze veel...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Nederland is Europees kampioen thuiswerken](https://fd.nl/economie/1607593/nederland-is-europees-kampioen-thuiswerken)
-  > Iets meer dan de helft van de werknemers werkt weleens vanuit huis. Dat is ruim het dubbele van het EU-gemiddelde.
-- [De keerzijde van een comfortabel leven is een knagend gevoel](https://fd.nl/opinie/1604340/de-keerzijde-van-een-comfortabel-leven-is-een-knagend-gevoel)
-  > Een iPhone, een Tesla, een flexibele werkweek en vakantie aan de andere kant van de wereld – we hebben alles, maar het onbehagen blijft. Berend...
-- [Niet migratie maar Marokko belaagt Ceuta, met Trumps steun](https://fd.nl/opinie/1607190/niet-migratie-maar-marokko-belaagt-ceuta-met-trumps-steun)
-  > Marokko geeft jongeren ruim baan richting de Spaanse exclaves Ceuta en Melilla, waarmee het zijn territoriale claims kracht bijzet. De Verenigde...
-- [Dode en meerdere gewonden bij explosie in Rotterdamse haven](https://fd.nl/bedrijfsleven/1607524/dode-en-meerdere-gewonden-bij-explosie-in-rotterdamse-haven)
-  > Mogelijk vond de ontploffing plaats bij Gunvor Energy, een raffinaderij die onder meer benzine en kerosine produceert.
-- [Advocatenkantoor Greenberg Traurig stapt naar Hoge Raad in claimzaak dj Tiësto](https://fd.nl/samenleving/1607519/advocatenkantoor-greenberg-traurig-stapt-naar-hoge-raad-in-claimzaak-dj-tiesto)
-  > Amerikaans advocatenkantoor wil niet opdraaien voor $17 mln schade na onjuist belastingadvies van de ‘fiscalist van de sterren’.
+- [Lange Iran-missie drijft bemanning prestigieus vliegdekschip tot wanhoop](https://fd.nl/politiek/1607521/lange-iran-missie-drijft-bemanning-prestigieus-vliegdekschip-tot-wanhoop)
+  > De familieleden van de bemanning hebben alarm geslagen over de situatie op het Amerikaanse schip dat meer dan 260 dagen op zee is. De missie leidt...
+- [Omzet groeit 43% bij Chinees technologiebedrijf Lenovo](https://fd.nl/tech-en-innovatie/1607597/omzet-groeit-43-bij-chinees-technologiebedrijf-lenovo)
+  > De computerfabrikant heeft in het eerste kwartaal van het gebroken boekjaar 2027 een omzet van $26,9 mrd geboekt, een stijging van 43% op jaarbasis.
+- [Vermogensbeheerder Frank Botman dacht groot, tot hij ten onder ging](https://fd.nl/bedrijfsleven/1607204/vermogensbeheerder-frank-botman-dacht-groot-tot-hij-ten-onder-ging)
+  > Frank Botman verdiende goud geld als ‘schatkistbewaarder’ van rijke families. Hij ging risicovolle leningen bij vrienden aan en is nu bankroet.
+- [‘Anthropic mikt op recordwaardering van $2000 mrd bij beursgang’](https://fd.nl/financiele-markten/1607528/anthropic-mikt-op-recordwaardering-van-2000-mrd-bij-beursgang)
+  > De institutionele investeerders achter Anthropic kunnen schatrijk worden bij de beursgang van het Amerikaanse AI-bedrijf. Zij zetten bij een IPO in...
+- [De lachende derde in de chipsector](https://fd.nl/financiele-markten/1607594/de-lachende-derde-in-de-chipsector)
+  > Nieuwe chiptechnologie van Elon Musk bedreigt ASML niet meteen, maar kan concurrenten van het Veldhovense bedrijf wel een zetje geven.
 
 ### Meest gelezen
 
