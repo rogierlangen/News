@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-08-2026 om 15:00*
+*Laatst bijgewerkt: 13-08-2026 om 16:58*
 
 ---
 
@@ -8,17 +8,18 @@
 
 ### Laatste nieuws
 
-- [Vier verdachten van voorbereiden terroristische aanslag blijven langer vastzitten](https://nos.nl/l/2626694)
-  > De vier jonge terrorismeverdachten die de afgelopen weken werden opgepakt voor het voorbereiden van een aanslag blijven 30 dagen langer in...
-- [Minister: alles op alles zetten om vergunning Brabantse pluimveehouders te redden](https://nos.nl/l/2626690)
-  > Er moet "alles op alles" worden gezet om te voorkomen dat de vergunning van vijf Brabantse pluimveehouders wordt ingetrokken. Dat schrijft...
-- [Podcast de Dag: is er nog toekomst voor de Nederlandse fiets?](https://nos.nl/l/2626689)
-  > Vrijwel iedereen heeft er een of twee. Een oud barrel, een snelle e-bike of racefiets, of de klassieke omafiets.
-        Toch ging deze week Accell...
-- [Morgen nog één keer extreem heet, daarna wat koeler en kans op een bui](https://nos.nl/l/2626688)
-  > Vrijwel overal in het land was het vandaag meer dan 30 graden; tropisch warm dus. Regionaal werd de vijfde hittegolf van het jaar genoteerd, wat een...
-- [Australische bisschop schuldig aan seksueel misbruik van jonge Aboriginal mannen](https://nos.nl/l/2626681)
-  > Een oud-bisschop in Australië is schuldig bevonden aan verkrachting en seksueel misbruik van meerdere jonge, Aboriginal mannen. De 76-jarige...
+- [Trein ontspoord in Engeland, wagons op hun kant](https://nos.nl/l/2626719)
+  > Bij de Engelse plaats Lewes, in het zuidoosten van het land, is een trein ontspoord. Op beelden is te zien dat meerdere wagons op zijn kant liggen....
+- [Russische militair omgekomen bij bomaanslag, diende eerder in Oekraïense leger](https://nos.nl/l/2626713)
+  > In Sevastopol op de Krim, het schiereiland dat door Rusland bezet wordt gehouden, is een officier van het Russische leger omgekomen bij een...
+- [Vier medewerkers luchtvracht Schiphol aangehouden voor drugssmokkel](https://nos.nl/l/2626712)
+  > De marechaussee heeft vier mannen aangehouden in een groot onderzoek naar drugssmokkel via Schiphol.
+        De verdachten zijn 34, 38, 46 en 48 jaar...
+- [Russische ransomwaregroep zegt Shell en Philips te hebben gehackt](https://nos.nl/l/2626707)
+  > De Russische hackersgroep Clop claimt Shell en Philips te hebben gehackt. Het is nog onduidelijk wat de impact is.
+        Shell zegt tegen de NOS...
+- [Oud-politicus en ex-burgemeester van Groningen Jacques Wallage (PvdA) overleden](https://nos.nl/l/2626702)
+  > De Groningse oud-burgemeester en PvdA-politicus Jacques Wallage is op 79-jarige leeftijd overleden. Dat heeft de familie van Wallage aan de gemeente...
 
 ### Meest gelezen
 
@@ -28,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Kijkers geloven ogen niet als Lange Frans zijn nieuwe tuin laat zien, maar nu blijkt: video vertelt niet het hele verhaal](https://www.ad.nl/show/kijkers-geloven-ogen-niet-als-lange-frans-zijn-nieuwe-tuin-laat-zien-maar-nu-blijkt-video-vertelt-niet-het-hele-verhaal~a00e87ed/)
-  > Rapper Lange Frans (45) gaat viraal met een video waarin hij zijn nieuwe tuin laat zien. Die is voer voor grappen, omdat er zoveel tegels in liggen...
-- [Willem II maanden zonder eerste doelman, Mees Hilgers traint na conflict en blessure weer mee bij FC Twente](https://www.ad.nl/voetbal/willem-ii-maanden-zonder-eerste-doelman-mees-hilgers-traint-na-conflict-en-blessure-weer-mee-bij-fc-twente~a378dc98/)
-  > Het nieuwe eredivisieseizoen is van start gegaan. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we...
-- [Grote brand op toeristenboot voor Turkse kust, 115 mensen springen in zee](https://www.ad.nl/buitenland/grote-brand-op-toeristenboot-voor-turkse-kust-115-mensen-springen-in-zee~acf7f34cd/)
-  > Voor de kust van het Turkse vakantieoord Fethiye is donderdagmiddag een toeristenboot in brand gevlogen. Zo’n 115 mensen, onder wie kinderen en...
-- [Man maakt ijsbeer wakker met misthoorn op Spitsbergen en krijgt boete van duizenden euro's](https://www.ad.nl/buitenland/man-maakt-ijsbeer-wakker-met-misthoorn-op-spitsbergen-en-krijgt-boete-van-duizenden-euro-s~a816b340/)
-  > Een man heeft op Spitsbergen een boete gekregen van 50.000 kronen, omgerekend 4550 euro, omdat hij een ijsbeer wakker maakte. Het is op Spitsbergen...
-- [Johanna erfde 400 euro, maar de tonnen van tante Teun gingen naar kroonluchters in de kerk](https://www.ad.nl/geld/johanna-erfde-400-euro-maar-de-tonnen-van-tante-teun-gingen-naar-kroonluchters-in-de-kerk~ab0bc09e/)
-  > Johanna (57) heeft warme, maar ook vervelende herinneringen aan haar tantes die geregeld over de vloer kwamen. Door hun zuinigheid hadden ze veel...
+- [Doutzen met zwangere zus Rens naar het strand en Richard stelt nieuwe viervoeter voor](https://www.ad.nl/show/doutzen-met-zwangere-zus-rens-naar-het-strand-en-richard-stelt-nieuwe-viervoeter-voor~acd03c0c/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Marrit Steenbergen mist op één honderdste medaille op 50 meter rugslag](https://www.ad.nl/andere-sporten/marrit-steenbergen-mist-op-een-honderdste-medaille-op-50-meter-rugslag~a8a0d040/)
+  > Marrit Steenbergen heeft nipt bij de EK zwemmen net naast een medaille gegrepen op de 50 meter rugslag. Ze tikte aan na 27,16 seconden en kwam...
+- [Deze dj maakt statement tegen ‘uithollende’ AI-bedrijven: ‘Dit is belangrijker dan mijn carrière’](https://www.ad.nl/show/deze-dj-maakt-statement-tegen-uithollende-ai-bedrijven-dit-is-belangrijker-dan-mijn-carriere~a6d7b998/)
+  > Tijdens zijn studietijd was hij nog klassiek pianist, inmiddels is oud-Alphenaar Reinier Zonneveld een van ’s werelds toonaangevende techno-dj’s....
+- [Ajax in Dublin voor return tegen Shelbourne op knus Tolka Park](https://www.ad.nl/voetbal/ajax-in-dublin-voor-return-tegen-shelbourne-op-knus-tolka-park~a7ab6be7/)
+  > Na de 3-1 zege in Amsterdam reist Ajax af naar het noorden van Dublin. In het sfeervolle Tolka Park jaagt Shelbourne FC op een stunt, maar Ajax heeft...
+- [Drommel onder de lat bij Twente, Vennegoor of Hesselink in de spits in Slowakije](https://www.ad.nl/voetbal/drommel-onder-de-lat-bij-twente-vennegoor-of-hesselink-in-de-spits-in-slowakije~a37f2804/)
+  > Met een riante 6-0 overwinning op zak is FC Twente afgereisd naar Slowakije. De return tegen FC DAC lijkt een formaliteit en plaatsing voor de...
 
 ### Meest gelezen
 
@@ -47,16 +48,16 @@
 
 ### Laatste nieuws
 
+- [Oud-PvdA-politicus Jacques Wallage (79) overleden](https://fd.nl/politiek/1607598/oud-pvda-politicus-jacques-wallage-79-overleden)
+  > Jacques Wallage was vanaf 1998 tot en met 2009 burgemeester van Groningen, de stad waar hij ook studeerde en zijn politieke carrière begon als...
+- [Poolse economie groeit flink door investeringen in defensie, maar zorgen over staatsschuld](https://fd.nl/economie/1607536/poolse-economie-groeit-flink-door-investeringen-in-defensie-maar-zorgen-over-staatsschuld)
+  > De Poolse economie is met 3,8% gegroeid ten opzichte van een jaar geleden. Dat is onder meer te danken aan Europese leningen en subsidies.
+- [BNR: Russische hackers claimen Shell en Philips te hebben gehackt](https://fd.nl/bedrijfsleven/1607534/bnr-russische-hackers-claimen-shell-en-philips-te-hebben-gehackt)
+  > Zowel Shell als Philips bevestigen tegenover BNR dat een incident wordt onderzocht. Onduidelijk is welke data precies in handen zijn gevallen van de...
+- [Schoenenproducent Birkenstock verhoogt omzetverwachting](https://fd.nl/financiele-markten/1607531/schoenenproducent-birkenstock-verhoogt-omzetverwachting)
+  > De Duitse schoenenproducent gaat nu uit van een omzetgroei van 15% voor het lopende, gebroken boekjaar. Dit betekent een maximale jaaromzet van €2,35...
 - [Lange Iran-missie drijft bemanning prestigieus vliegdekschip tot wanhoop](https://fd.nl/politiek/1607521/lange-iran-missie-drijft-bemanning-prestigieus-vliegdekschip-tot-wanhoop)
   > De familieleden van de bemanning hebben alarm geslagen over de situatie op het Amerikaanse schip dat meer dan 260 dagen op zee is. De missie leidt...
-- [Omzet groeit 43% bij Chinees technologiebedrijf Lenovo](https://fd.nl/tech-en-innovatie/1607597/omzet-groeit-43-bij-chinees-technologiebedrijf-lenovo)
-  > De computerfabrikant heeft in het eerste kwartaal van het gebroken boekjaar 2027 een omzet van $26,9 mrd geboekt, een stijging van 43% op jaarbasis.
-- [Vermogensbeheerder Frank Botman dacht groot, tot hij ten onder ging](https://fd.nl/bedrijfsleven/1607204/vermogensbeheerder-frank-botman-dacht-groot-tot-hij-ten-onder-ging)
-  > Frank Botman verdiende goud geld als ‘schatkistbewaarder’ van rijke families. Hij ging risicovolle leningen bij vrienden aan en is nu bankroet.
-- [‘Anthropic mikt op recordwaardering van $2000 mrd bij beursgang’](https://fd.nl/financiele-markten/1607528/anthropic-mikt-op-recordwaardering-van-2000-mrd-bij-beursgang)
-  > De institutionele investeerders achter Anthropic kunnen schatrijk worden bij de beursgang van het Amerikaanse AI-bedrijf. Zij zetten bij een IPO in...
-- [De lachende derde in de chipsector](https://fd.nl/financiele-markten/1607594/de-lachende-derde-in-de-chipsector)
-  > Nieuwe chiptechnologie van Elon Musk bedreigt ASML niet meteen, maar kan concurrenten van het Veldhovense bedrijf wel een zetje geven.
 
 ### Meest gelezen
 
