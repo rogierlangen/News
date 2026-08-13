@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-08-2026 om 20:50*
+*Laatst bijgewerkt: 13-08-2026 om 21:50*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Man krijgt boete voor wakker maken van ijsbeer op Spitsbergen](https://nos.nl/l/2626757)
+  > Wie op Spitsbergen een ijsbeer wakker maakt, kan dat duur komen te staan. Op de Noorse eilandengroep kreeg een man vandaag een boete van 50.000...
+- [Stuk motor sloeg tegen vliegtuigraam waardoor man bijna uit toestel werd gezogen](https://nos.nl/l/2626754)
+  > Amerikaanse onderzoekers hebben meer duidelijkheid gegeven over het incident in een Boeing 737-vliegtuig vorige maand waarbij een man bijna door een...
 - ['Het missende stukje': vriendinnen ontdekken na 30 jaar dat ze zussen zijn](https://nos.nl/l/2626748)
   > Ze ontmoetten elkaar in 1996 als tieners op een bijeenkomst voor geadopteerden. Tussen de Nederlandse Meena Geltink (43) en Minal Tijssen (44) was...
 - [Antisemitisme-aanklacht van regering-Trump tegen Harvard afgewezen](https://nos.nl/l/2626744)
   > Een federale rechter heeft in de VS een antisemitisme-aanklacht van de regering-Trump tegen Harvard van tafel geveegd. De regering kwam in maart met...
 - [Leger Marokko paraat aan de grens met Ceuta om nieuwe bestorming te voorkomen](https://nos.nl/l/2626742)
   > Marokko heeft een grote politie- en legermacht samengetrokken bij de plaats Fnideq aan de grens met de Spaanse exclave Ceuta. Dat moet voorkomen dat...
-- [Gewonden bij botsing tussen tram en lijnbus in Utrecht](https://nos.nl/l/2626739)
-  > Een tram en een lijnbus zijn vanmiddag in Utrecht op elkaar gebotst. Twee mensen moesten met verwondingen naar het ziekenhuis, onder wie de chauffeur...
-- [Bouwvakkers ontdekken goudschat van 9 miljoen euro in Vlaamse kelder](https://nos.nl/l/2626737)
-  > Bouwvakkers in Oost-Vlaanderen zijn tijdens renovatiewerkzaamheden op een grote hoeveelheid goud gestuit. In een kist die was ingemetseld in de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Manchester City heeft 120 miljoen over voor Enzo Fernández, Enes Ünal terug bij Getafe](https://www.ad.nl/voetbal/manchester-city-heeft-120-miljoen-over-voor-enzo-fernandez-enes-unal-terug-bij-getafe~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Dramatisch Ajax speelt in Dublin gelijk tegen nummer 5 van Ierland, nu wachten play-offs tegen FC Sion](https://www.ad.nl/voetbal/dramatisch-ajax-speelt-in-dublin-gelijk-tegen-nummer-5-van-ierland-nu-wachten-play-offs-tegen-fc-sion~a7ab6be7/)
+  > Een dramatisch Ajax heeft zich met pijn en moeite gekwalificeerd voor de play-offs van de Conference League. Tegen Shelbourne FC, de huidige nummer...
+- [Bouwvakkers ontdekken goudschat van 9 miljoen euro in Belgische kelder](https://www.ad.nl/buitenland/bouwvakkers-ontdekken-goudschat-van-9-miljoen-euro-in-belgische-kelder~a1348b9c/)
+  > Werknemers van een Belgisch bouwbedrijf hebben tijdens renovatiewerkzaamheden aan een gebouw in Sint-Gillis-Dendermonde een spectaculaire ontdekking...
+- [Meerkamper Jeff Tesselaar voelt zich ‘een van de big boys’ na vierde plek, Femke Bol morgen in finale 800 meter](https://www.ad.nl/andere-sporten/meerkamper-jeff-tesselaar-voelt-zich-een-van-de-big-boys-na-vierde-plek-femke-bol-morgen-in-finale-800-meter~a931e786/)
+  > De EK atletiek worden dit jaar georganiseerd in het Engelse Birmingham. Wat kan Femke Broeders-Bol op de 800 meter en hoeveel medailles gaat...
 - [NEC, Ajax en FC Twente naar Europese play-offs: dit is route van de Nederlandse clubs naar hoofdfase](https://www.ad.nl/voetbal/nec-ajax-en-fc-twente-naar-europese-play-offs-dit-is-route-van-de-nederlandse-clubs-naar-hoofdfase~a63bfdb3/)
   > Nederland wordt in de voorrondes van de Europese competities vertegenwoordigd door drie clubs. NEC, FC Twente en Ajax moeten een weg zien te vinden...
-- [Ajax speelt gelijk tegen nummer 5 van Ierland, maar gaat wel door naar play-offs tegen FC Sion](https://www.ad.nl/voetbal/ajax-speelt-gelijk-tegen-nummer-5-van-ierland-maar-gaat-wel-door-naar-play-offs-tegen-fc-sion~a7ab6be7/)
-  > Een dramatisch Ajax heeft zich met pijn en moeite gekwalificeerd voor de play-offs van de Conference League. Tegen het Ierse Shelbourne werd na de...
-- [Meerkamper Jeff Tesselaar ondanks sterke 1500 meter naast het podium, Lieke Klaver wil topvorm verzilveren in finale 400 meter](https://www.ad.nl/andere-sporten/meerkamper-jeff-tesselaar-ondanks-sterke-1500-meter-naast-het-podium-lieke-klaver-wil-topvorm-verzilveren-in-finale-400-meter~a931e786/)
-  > De EK atletiek worden dit jaar georganiseerd in het Engelse Birmingham. Wat kan Femke Broeders-Bol op de 800 meter en hoeveel medailles gaat...
-- [Wat er in deze aflevering van B&B vol liefde gebeurde, zag ik echt niet aankomen](https://www.ad.nl/show/wat-er-in-deze-aflevering-van-benb-vol-liefde-gebeurde-zag-ik-echt-niet-aankomen~ae5cb7a5/)
-  > Eh, oké? Wat er donderdagavond in B&B vol liefde gebeurde, zag ik écht niet aankomen. Jiry, die bij Iris in Spanje was, besloot abrupt de stekker...
-- [Slaap niet naakt, en andere tips om hete nachten door te komen](https://www.ad.nl/gezond/slaap-niet-naakt-en-andere-tips-om-hete-nachten-door-te-komen~a06c8d9e/)
-  > Heb je last van korte nachten met deze warmte? Je bent niet de enige. Hoe warmer het wordt, hoe slechter we slapen. Dit kun je volgens...
 
 ### Meest gelezen
 
