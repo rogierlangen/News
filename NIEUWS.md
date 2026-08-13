@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-08-2026 om 11:50*
+*Laatst bijgewerkt: 13-08-2026 om 13:19*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Australische bisschop schuldig aan seksueel misbruik van jonge Aboriginal mannen](https://nos.nl/l/2626681)
+  > Een oud-bisschop in Australië is schuldig bevonden aan verkrachting en seksueel misbruik van meerdere jonge, Aboriginal mannen. De 76-jarige...
+- [BNR: illegale gokreclames op platforms Meta gericht op kwetsbare gokkers](https://nos.nl/l/2626675)
+  > Goksites die illegaal zijn in Nederland adverteren op platformen van Meta met reclames die expliciet gericht zijn op mensen met gokproblemen. Dat...
 - [Omstreden bezoek Poetin aan Koerilen-eilanden legt spanning met Japan bloot](https://nos.nl/l/2626667)
   > De Russische president Poetin heeft voor het eerst een bezoek gebracht aan de Koerilen, een eilandengroep in de Stille Oceaan. De eilanden worden...
 - [Palestijnen al dagen ingesloten door Israëlische kolonisten op Westoever](https://nos.nl/l/2626663)
   > Israëlische kolonisten hebben al dagen de woningen van twee Palestijnse families op de bezette Westelijke Jordaanoever omsingeld, waardoor bewoners...
 - [Dode en gewonden bij explosie in Rotterdamse haven](https://nos.nl/l/2626662)
-  > Bij een explosie bij een bedrijf in het Rotterdamse havengebied is een dode gevallen. Ook raakte een aantal mensen gewond. De explosie vond kort na...
-- [Muizen vreten Friese weilanden kaal, 'we hebben weer een uitbraakjaar'](https://nos.nl/l/2626660)
-  > Duizenden, misschien wel tienduizenden muizen vreten op dit moment de weilanden kaal in het midden van Friesland. De muizen richtten de afgelopen...
-- [Man die aanslag pleegde op D66-kantoor vindt partij veroorzaker van ellende](https://nos.nl/l/2626659)
-  > De man die in mei van dit jaar een vuurwerkbom liet afgaan bij het partijkantoor van D66 in Den Haag blijft langer vastzitten. Tijdens de...
+  > Bij een explosie bij een bedrijf in het Rotterdamse havengebied is een dode gevallen. Ook raakte een aantal mensen gewond. De explosie vond rond...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Femke Broeders-Bol plaatst zich overtuigend voor finale 800 meter, concurrente hard onderuit](https://www.ad.nl/andere-sporten/femke-broeders-bol-plaatst-zich-overtuigend-voor-finale-800-meter-concurrente-hard-onderuit~ac2bcd96/)
-  > Femke Broeders-Bol heeft zich op de EK atletiek geplaatst voor de finale van de 800 meter. De atlete werd tweede in haar halve finale. Concurrente...
-- [Koningspaar en prinses Alexia weer aanwezig bij Formule 1 in Zandvoort](https://www.ad.nl/show/koningspaar-en-prinses-alexia-weer-aanwezig-bij-formule-1-in-zandvoort~ace1ee89/)
-  > Koning Willem-Alexander, koningin Máxima en prinses Alexia bezoeken zondag 23 augustus de Formule 1 Grand Prix van Nederland op Circuit Zandvoort....
-- [Muggenbeet die maar blijft jeuken? Bij deze tekenen moet je je bij arts melden](https://www.ad.nl/gezond/muggenbeet-die-maar-blijft-jeuken-bij-deze-tekenen-moet-je-je-bij-arts-melden~ac448222/)
-  > De ene muggenbeet zie en voel je nauwelijks, terwijl de andere uitgroeit tot een gigantische bult. Hoe komt het dat de reactie van je lichaam zo...
-- [Ajax mengt zich in strijd om ex-Feyenoorder Lutsharel Geertruida](https://www.ad.nl/voetbal/ajax-mengt-zich-in-strijd-om-ex-feyenoorder-lutsharel-geertruida~a0e28526/)
-  > Ajax heeft zich gemengd in de strijd om Lutsharel Geertruida. De club voerde al gesprekken met de oud-Feyenoorder, voor wie PSV al langer...
-- [Waar zijn de miljarden gebleven? Clubs uit Saoedi-Arabië roeren zich een stuk minder op de transfermarkt](https://www.ad.nl/voetbal/waar-zijn-de-miljarden-gebleven-clubs-uit-saoedi-arabie-roeren-zich-een-stuk-minder-op-de-transfermarkt~a32bdb13/)
-  > Je kon er de afgelopen zomers niet omheen. Met een schijnbaar bodemloze put aan oliegeld trokken de clubs uit de Saoedische Pro League de ene na de...
+- [Azarkan aangeboden bij ADO, Telstar laat Tejan naar Maleisië gaan, NEC versterkt zich met verdediger van FC Porto](https://www.ad.nl/voetbal/azarkan-aangeboden-bij-ado-telstar-laat-tejan-naar-maleisie-gaan-nec-versterkt-zich-met-verdediger-van-fc-porto~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Luuk de Jong over werken onder Xavi bij Barcelona: ‘Bij hem was ik meer dan een pinchhitter’](https://www.ad.nl/wk-voetbal/luuk-de-jong-over-werken-onder-xavi-bij-barcelona-bij-hem-was-ik-meer-dan-een-pinchhitter~a1df49ec/)
+  > Slechts drie Nederlandse spelers weten al hoe het is om te werken onder de trainer Xavi. Eén van hen is Luuk de Jong in zijn tijd bij FC Barcelona....
+- [Betonblokken, hitte en 2500 boeren: Den Bosch maakt zich op voor een zwaar protest](https://www.ad.nl/binnenland/betonblokken-hitte-en-2500-boeren-den-bosch-maakt-zich-op-voor-een-zwaar-protest~a04a8ae5/)
+  > Het belooft een hete vrijdag te worden in Den Bosch, waar boeren bij een temperatuur van 35 graden protesteren tegen wat zij zien als het ‘Brabantse...
+- [Strenge cyberveiligheidswet moet horrorscenario door hackers voorkomen: ‘De dreigingen nemen toe’](https://www.ad.nl/binnenland/strenge-cyberveiligheidswet-moet-horrorscenario-door-hackers-voorkomen-de-dreigingen-nemen-toe~a2975e7e/)
+  > Het is een horrorscenario: ziekenhuizen die door hackers worden aangevallen, hulpdiensten die worden uitgeschakeld of drinkwater dat is aangetast....
+- [20,7 miljoen illegale sigaretten onderschept in twee weken, ruim de helft werd gevonden in Rotterdam](https://www.ad.nl/binnenland/20-7-miljoen-illegale-sigaretten-onderschept-in-twee-weken-ruim-de-helft-werd-gevonden-in-rotterdam~a3d5f762/)
+  > In twee weken tijd zijn ruim 20,7 miljoen illegale sigaretten onderschept. Combiteam SMOKE, een samenwerkingsverband van onder meer de douane en de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Nederland is Europees kampioen thuiswerken](https://fd.nl/economie/1607593/nederland-is-europees-kampioen-thuiswerken)
+  > Iets meer dan de helft van de werknemers werkt weleens vanuit huis. Dat is ruim het dubbele van het EU-gemiddelde.
+- [De keerzijde van een comfortabel leven is een knagend gevoel](https://fd.nl/opinie/1604340/de-keerzijde-van-een-comfortabel-leven-is-een-knagend-gevoel)
+  > Een iPhone, een Tesla, een flexibele werkweek en vakantie aan de andere kant van de wereld – we hebben alles, maar het onbehagen blijft. Berend...
+- [Niet migratie maar Marokko belaagt Ceuta, met Trumps steun](https://fd.nl/opinie/1607190/niet-migratie-maar-marokko-belaagt-ceuta-met-trumps-steun)
+  > Marokko geeft jongeren ruim baan richting de Spaanse exclaves Ceuta en Melilla, waarmee het zijn territoriale claims kracht bijzet. De Verenigde...
+- [Dode en meerdere gewonden bij explosie in Rotterdamse haven](https://fd.nl/bedrijfsleven/1607524/dode-en-meerdere-gewonden-bij-explosie-in-rotterdamse-haven)
+  > Mogelijk vond de ontploffing plaats bij Gunvor Energy, een raffinaderij die onder meer benzine en kerosine produceert.
 - [Advocatenkantoor Greenberg Traurig stapt naar Hoge Raad in claimzaak dj Tiësto](https://fd.nl/samenleving/1607519/advocatenkantoor-greenberg-traurig-stapt-naar-hoge-raad-in-claimzaak-dj-tiesto)
   > Amerikaans advocatenkantoor wil niet opdraaien voor $17 mln schade na onjuist belastingadvies van de ‘fiscalist van de sterren’.
-- [Groenland houdt boorplannen Greenland Energy tegen, beleggers dumpen aandeel](https://fd.nl/financiele-markten/1607520/groenland-houdt-boorplannen-greenland-energy-tegen-beleggers-dumpen-aandeel)
-  > Het Amerikaanse bedrijf wil heel graag naar olie boren in Groenland, maar de autoriteiten van dat land werken niet mee. Het aandeel kelderde deze...
-- [Ulkuhanbatuhan maakt mode voor een betere wereld](https://fd.nl/samenleving/1607191/ulkuhanbatuhan-maakt-mode-voor-een-betere-wereld)
-  > Batuhan Demir, Ülkühan Akgül en Kaan Hiçyılmaz vormen samen het label Ulkuhanbatuhan. De drie mannen willen met hun ontwerpen een aangenamere wereld...
-- [Afhankelijkheid van airco’s groeit wereldwijd, maar de stroom­voorziening groeit niet mee](https://fd.nl/samenleving/1607518/afhankelijkheid-van-airco-groeit-wereldwijd-maar-de-stroomvoorziening-groeit-niet-mee)
-  > Op meerdere plekken in de wereld ontstonden deze maand protesten over stroom­onderbrekingen. Inwoners van onder meer Tunesië, Soedan en India konden...
-- [Nederlanders redden in Sheffield het ambacht van scharenmaker](https://fd.nl/bedrijfsleven/1601821/nederlanders-redden-in-sheffield-het-ambacht-van-scharenmaker)
-  > Een bijdrage van £60 op Kickstarter mondde voor Paul Jacobs uit in een missie om Sheffields befaamde scharen- en messenindustrie nieuw leven in te...
 
 ### Meest gelezen
 
