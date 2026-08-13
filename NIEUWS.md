@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-08-2026 om 22:47*
+*Laatst bijgewerkt: 13-08-2026 om 23:45*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Naam Trump keert terug op Kennedy Center](https://nos.nl/l/2626765)
+  > De naam van president Trump keert terug op het Kennedy Center in Washington D.C. Dat is duidelijk geworden na een urenlange vergadering van het...
 - [Man krijgt boete voor wakker maken van ijsbeer op Spitsbergen](https://nos.nl/l/2626757)
   > Wie op Spitsbergen een ijsbeer wakker maakt, kan dat duur komen te staan. Op de Noorse eilandengroep kreeg een man vandaag een boete van 50.000...
 - [Stuk motor sloeg tegen vliegtuigraam waardoor man bijna uit toestel werd gezogen](https://nos.nl/l/2626754)
@@ -16,8 +18,6 @@
   > Ze ontmoetten elkaar in 1996 als tieners op een bijeenkomst voor geadopteerden. Tussen de Nederlandse Meena Geltink (43) en Minal Tijssen (44) was...
 - [Antisemitisme-aanklacht van regering-Trump tegen Harvard afgewezen](https://nos.nl/l/2626744)
   > Een federale rechter heeft in de VS een antisemitisme-aanklacht van de regering-Trump tegen Harvard van tafel geveegd. De regering kwam in maart met...
-- [Leger Marokko paraat aan de grens met Ceuta om nieuwe bestorming te voorkomen](https://nos.nl/l/2626742)
-  > Marokko heeft een grote politie- en legermacht samengetrokken bij de plaats Fnideq aan de grens met de Spaanse exclave Ceuta. Dat moet voorkomen dat...
 
 ### Meest gelezen
 
