@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-08-2026 om 18:01*
+*Laatst bijgewerkt: 13-08-2026 om 19:56*
 
 ---
 
@@ -8,18 +8,16 @@
 
 ### Laatste nieuws
 
+- [Gewonden bij botsing tussen tram en lijnbus in Utrecht](https://nos.nl/l/2626739)
+  > Een tram en een lijnbus zijn vanmiddag in Utrecht op elkaar gebotst. Twee mensen moesten met verwondingen naar het ziekenhuis, onder wie de chauffeur...
+- [Bouwvakkers ontdekken goudschat van 9 miljoen euro in Vlaamse kelder](https://nos.nl/l/2626737)
+  > Bouwvakkers in Oost-Vlaanderen zijn tijdens renovatiewerkzaamheden op een grote hoeveelheid goud gestuit. In een kist die was ingemetseld in de...
+- [Luchthaven Catania langer dicht door onrustige vulkaan Etna](https://nos.nl/l/2626734)
+  > Het vliegverkeer van en naar Sicilië is nog altijd zwaar ontregeld door uitbarstingen van de Etna. De vulkaan begon zich een kleine week geleden...
 - [Geen reisinformatie bij NS door storing](https://nos.nl/l/2626729)
   > De NS kampt met een storing van het reisinformatiesysteem. Op stations zijn de digitale borden met vertrektijden leeg en kan geen informatie worden...
-- [Trein ontspoord in Engeland, wagons op hun kant](https://nos.nl/l/2626719)
+- [Trein ontspoord in Zuidoost-Engeland, 11 gewonden](https://nos.nl/l/2626719)
   > Bij de Engelse plaats Lewes, in het zuidoosten van het land, is een trein ontspoord. Op beelden is te zien dat meerdere wagons op hun kant liggen....
-- [Russische militair omgekomen bij bomaanslag, diende eerder in Oekraïense leger](https://nos.nl/l/2626713)
-  > In Sevastopol op de Krim, het schiereiland dat door Rusland bezet wordt gehouden, is een officier van het Russische leger omgekomen bij een...
-- [Vier medewerkers luchtvracht Schiphol aangehouden voor drugssmokkel](https://nos.nl/l/2626712)
-  > De marechaussee heeft vier mannen aangehouden in een groot onderzoek naar drugssmokkel via Schiphol.
-        De verdachten zijn 34, 38, 46 en 48 jaar...
-- [Russische ransomwaregroep zegt Shell en Philips te hebben gehackt](https://nos.nl/l/2626707)
-  > De Russische hackersgroep Clop claimt Shell en Philips te hebben gehackt. Het is nog onduidelijk wat de impact is.
-        Shell zegt tegen de NOS...
 
 ### Meest gelezen
 
@@ -29,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Na 2,5 jaar valt kerstkaart bij Riek (104) op de mat: ‘Dit zijn wel heel ruime bezorgtijden van PostNL’](https://www.ad.nl/binnenland/na-2-5-jaar-valt-kerstkaart-bij-riek-104-op-de-mat-dit-zijn-wel-heel-ruime-bezorgtijden-van-postnl~a20560bc/)
-  > Terwijl de mussen bijna van de daken vallen door de hitte, valt er bij Riek Voetdijk (104) een kerstkaart uit 2023 op de deurmat. Afkomstig van haar...
-- [Moroccanoil na zes jaar niet langer hoofdsponsor Eurovisie Songfestival](https://www.ad.nl/show/moroccanoil-na-zes-jaar-niet-langer-hoofdsponsor-eurovisie-songfestival~a3f5ed33/)
-  > Moroccanoil is niet meer de hoofdsponsor van het Eurovisie Songfestival. Dat bevestigt songfestivalorganisatie European Broadcasting Union (EBU)...
-- [Marrit Steenbergen pakt zilver op 200 meter vrije slag, Caspar Corbeau grijpt net naast goud op 200 meter school](https://www.ad.nl/andere-sporten/marrit-steenbergen-pakt-zilver-op-200-meter-vrije-slag-caspar-corbeau-grijpt-net-naast-goud-op-200-meter-school~a8a0d040/)
-  > Marrit Steenbergen kan weer een medaille toevoegen aan haar verzameling op de EK langebaanzwemmen in Parijs. De 26-jarige Nederlandse pakte het...
-- [Passagierstrein ontspoord in zuiden van Engeland, wagons liggen op hun kant](https://www.ad.nl/buitenland/passagierstrein-ontspoord-in-zuiden-van-engeland-wagons-liggen-op-hun-kant~a17849db/)
-  > In het zuiden van Engeland is een passagierstrein ontspoord. Er zijn geen doden of zwaargewonden, melden Britse media als de BBC, Sky News en The...
-- [Selena Gomez en haar moeder aangeklaagd voor vermeende oplichting](https://www.ad.nl/show/selena-gomez-en-haar-moeder-aangeklaagd-voor-vermeende-oplichting~abf926a7/)
-  > Actrice Selena Gomez en haar moeder, Mandy Teefey, zijn donderdag aangeklaagd bij een federale rechtbank wegens effectenfraude. Gomez en Teefey...
+- [Feyenoord huurt Spaanse linksback om gemis Jordan Bos op te vangen](https://www.ad.nl/voetbal/feyenoord-huurt-spaanse-linksback-om-gemis-jordan-bos-op-te-vangen~a61fa351/)
+  > Feyenoord heeft met de Spaanse linksback Javi López een extra verdediger aangetrokken. De 24-jarige linkspoot komt op huurbasis over van Real...
+- [Douwe Bob in voorprogramma van bekende Amerikaanse countryband: ‘Het is echt!’](https://www.ad.nl/show/douwe-bob-in-voorprogramma-van-bekende-amerikaanse-countryband-het-is-echt~a521d835/)
+  > Douwe Bob staat in het voorprogramma van een paar optredens van de Amerikaanse countryband Zac Brown Band. Op Instagram vertelt de Nederlandse zanger...
+- [Count Binface met vuilnisbak als hoofd? In Engeland is dat dus gewoon de verkiezingscampagne](https://www.ad.nl/buitenland/count-binface-met-vuilnisbak-als-hoofd-in-engeland-is-dat-dus-gewoon-de-verkiezingscampagne~a862ab3c/)
+  > De deelname van Count Binface, een man met een vuilnisbak als hoofd, aan de tussentijdse verkiezingen van donderdag in Clacton komt voort uit de...
+- [Meerkamper Jeff Tesselaar zakt na speerwerpen een plaats, Lieke Klaver naar finale 400 meter](https://www.ad.nl/andere-sporten/meerkamper-jeff-tesselaar-zakt-na-speerwerpen-een-plaats-lieke-klaver-naar-finale-400-meter~a931e786/)
+  > De EK atletiek worden dit jaar georganiseerd in het Engelse Birmingham. Wat kan Femke Broeders-Bol op de 800 meter en hoeveel medailles gaat...
+- [Ajax weer op voorsprong tegen Shelbourne, Gaaei knalt hard raak in Dublin](https://www.ad.nl/voetbal/ajax-weer-op-voorsprong-tegen-shelbourne-gaaei-knalt-hard-raak-in-dublin~a7ab6be7/)
+  > Na de 3-1 zege in Amsterdam is Ajax afgereisd naar Dublin. Op het sfeervolle Tolka Park jaagt Shelbourne FC op een stunt, maar Ajax heeft de beste...
 
 ### Meest gelezen
 
@@ -48,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Amerikanen veilen staatsobligaties tegen hoogste rente in kwarteeuw](https://fd.nl/financiele-markten/1607595/amerikanen-veilen-staatsobligaties-tegen-hoogste-rente-in-kwarteeuw)
+  > De snel oplopende begrotingstekorten en stijgende rentelasten voeden twijfels over de houdbaarheid van de Amerikaanse staatsschuld.
+- [‘Spanje kreeg Cruijff en Van Gaal, Nederland krijgt er Xavi voor terug’](https://fd.nl/samenleving/1607599/spanje-kreeg-cruijff-en-van-gaal-nederland-krijgt-er-xavi-voor-terug)
+  > Spanje kon jarenlang profiteren van de inzet van Nederlandse topvoetbalcoaches, nu krijgt Nederland daar iets voor terug. Spaanse analisten en...
+- [Jetten kijkt met argusogen naar stikstofruzie tussen Noord-Brabant en vijf kippenboeren](https://fd.nl/politiek/1607601/jetten-kijkt-met-argusogen-naar-stikstofruzie-tussen-noord-brabant-en-vijf-kippenboeren)
+  > Vijf Brabantse pluimveehouders dreigen hun vergunning te verliezen. Hoewel het een provinciale aangelegenheid is, loopt de druk op het kabinet en de...
 - [Samenleving weert zich tegen AI-troep](https://fd.nl/opinie/1607533/samenleving-weert-zich-tegen-ai-troep)
   > AI-troep is overal om ons heen. Maar de samenleving lijkt hier beter tegen bestand dan vlak na de lancering van ChatGPT werd verwacht. De...
 - [Oud-PvdA-politicus Jacques Wallage (79) overleden](https://fd.nl/politiek/1607598/oud-pvda-politicus-jacques-wallage-79-overleden)
   > Jacques Wallage was vanaf 1998 tot en met 2009 burgemeester van Groningen, de stad waar hij ook studeerde en zijn politieke carrière begon als...
-- [Poolse economie groeit flink door investeringen in defensie, maar zorgen over staatsschuld](https://fd.nl/economie/1607536/poolse-economie-groeit-flink-door-investeringen-in-defensie-maar-zorgen-over-staatsschuld)
-  > De Poolse economie is met 3,8% gegroeid ten opzichte van een jaar geleden. Dat is onder meer te danken aan Europese leningen en subsidies.
-- [BNR: Russische hackers claimen Shell en Philips te hebben gehackt](https://fd.nl/bedrijfsleven/1607534/bnr-russische-hackers-claimen-shell-en-philips-te-hebben-gehackt)
-  > Zowel Shell als Philips bevestigen tegenover BNR dat een incident wordt onderzocht. Onduidelijk is welke data precies in handen zijn gevallen van de...
-- [Schoenenproducent Birkenstock verhoogt omzetverwachting](https://fd.nl/financiele-markten/1607531/schoenenproducent-birkenstock-verhoogt-omzetverwachting)
-  > De Duitse schoenenproducent gaat nu uit van een omzetgroei van 15% voor het lopende, gebroken boekjaar. Dit betekent een maximale jaaromzet van €2,35...
 
 ### Meest gelezen
 
