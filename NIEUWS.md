@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-08-2026 om 23:45*
+*Laatst bijgewerkt: 13-08-2026 om 02:19*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Drie executies in een dag gepland in VS, voor het eerst in jaren](https://nos.nl/l/2626619)
+  > Voor het eerst in bijna zestien jaar staan drie executies op één dag gepland in de VS. De staten Alabama, Oklahoma en Tennessee willen vandaag de...
 - [Drugsbende opgerold in Zuid-Spanje, ook twee Nederlanders opgepakt](https://nos.nl/l/2626618)
   > In het zuiden van Spanje heeft de Spaanse politie in samenwerking met Nederland een drugsbende opgerold. Vijf verdachten zijn aangehouden, onder wie...
 - [Pensioenfondsen onder nieuw stelsel behalen positieve resultaten op beurs](https://nos.nl/l/2626615)
@@ -16,8 +18,6 @@
   > Karoline Leavitt, perschef van het Witte Huis, vertrekt. Dat meldt de Amerikaanse president Trump. Ze wil volgens hem meer tijd met haar familie en...
 - [Explosief uit Tweede Wereldoorlog ontploft bij Plopsaland in Ardennen, drie gewonden](https://nos.nl/l/2626594)
   > Vlak bij het pretpark Plopsaland in Coo, in de Belgische Ardennen, is vanmiddag een oud explosief ontploft. Dat meldt de krant Het Laatste Nieuws...
-- [Nederlanders smullen van de eclips: 'Lijkt een maan die licht geeft'](https://nos.nl/l/2626591)
-  > Met open mond hebben veel Nederlanders gekeken naar de grootste zonsverduistering van de afgelopen decennia. Mensen waren onder meer massaal naar...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Boeing moet familie van Amerikaans slachtoffer crash 25 miljoen dollar aan schadevergoeding betalen](https://www.ad.nl/buitenland/boeing-moet-familie-van-amerikaans-slachtoffer-crash-25-miljoen-dollar-aan-schadevergoeding-betalen~a384f495/)
+  > Boeing moet 29 miljoen dollar (25,1 miljoen euro) betalen aan de familie van een van de slachtoffers van de crash met een Boeing 737 MAX in 2019. Dat...
+- [Deskundigen waarschuwen voor fake reviews: ‘Verkopers hebben enorme motivatie om ermee te sjoemelen’](https://www.ad.nl/binnenland/deskundigen-waarschuwen-voor-fake-reviews-verkopers-hebben-enorme-motivatie-om-ermee-te-sjoemelen~a3f030d5/)
+  > De betrouwbaarheid van online reviews wordt verder uitgehold. Door manipulatie, gebrekkige controle én de intrede van AI is er steeds meer reden voor...
 - [BBC biedt excuses aan kijkers aan die nieuwe Schotse weervrouw niet verstonden](https://www.ad.nl/buitenland/bbc-biedt-excuses-aan-kijkers-aan-die-nieuwe-schotse-weervrouw-niet-verstonden~a8db66ea1/)
   > De BBC heeft excuses aangeboden nadat Engelstalige kijkers hadden geklaagd dat ze een Schotse weervrouw niet konden verstaan. Meteorologe Judith...
 - [Spaanse en Nederlandse politie rollen criminele bende op](https://www.ad.nl/buitenland/spaanse-en-nederlandse-politie-rollen-criminele-bende-op~a4ffa6d2/)
   > De Spaanse politie heeft in een gezamenlijke operatie met Nederland een criminele organisatie opgerold in de Spaanse provincie Málaga. Bij de...
 - [Warm onthaal voor Romelu Lukaku in Turkije: ‘Als klein jongetje woonde ik hier al even met mijn vader’](https://www.ad.nl/voetbal/warm-onthaal-voor-romelu-lukaku-in-turkije-als-klein-jongetje-woonde-ik-hier-al-even-met-mijn-vader~ab53f9ea/)
   > Romelo Lukaku (33) kreeg woensdagavond een warm onthaal op de luchthaven in Istanboel. De nieuwe spits van Fenerbahçe werd daar opgewacht door...
-- [Meijer zesde Nederlander bij Sampdoria, PSV neemt talent van Eintracht Frankfurt over](https://www.ad.nl/voetbal/meijer-zesde-nederlander-bij-sampdoria-psv-neemt-talent-van-eintracht-frankfurt-over~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [Voetbalpodcast | ‘KNVB neemt met Xavi Hernández als bondscoach wel een gok’](https://www.ad.nl/voetbal/voetbalpodcast-knvb-neemt-met-xavi-hernandez-als-bondscoach-wel-een-gok~a42af5cd9/)
-  > Er is een nieuwe bondscoach voor het Nederlands elftal: Xavi Hernández. Voormalig middenvelder en coach van FC Barcelona, maar sinds juni 2024 zonder...
 
 ### Meest gelezen
 
