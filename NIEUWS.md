@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-08-2026 om 08:18*
+*Laatst bijgewerkt: 14-08-2026 om 10:06*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Meer dan 2000 mensen geëvacueerd door natuurbrand in Duitse stad Gey](https://nos.nl/l/2626797)
-  > Vanwege een natuurbrand in de Duitse deelstaat Noordrijn-Westfalen zijn meer dan 2000 mensen geëvacueerd uit het dorp Gey. Dat meldt de Duitse...
-- [Zeven mensen in levensgevaar door natuurbrand Kroatië](https://nos.nl/l/2626796)
-  > Door een natuurbrand in Kroatië zijn zeker 36 mensen gewond geraakt. Zeven van hen verkeren in levensgevaar, meldt de Kroatische nieuwssite N1. Ook...
-- [Laatste brandwondenslachtoffer Zwitserse cafébrand ontslagen uit Italiaans ziekenhuis](https://nos.nl/l/2626789)
-  > Het laatste slachtoffer dat in Italië werd behandeld aan haar verwondingen na de brand in de nieuwjaarsnacht in het Zwitserse Crans-Montana, is...
-- [NAVO-gevechtsvliegtuigen in actie boven Letland om drone uit de lucht te halen](https://nos.nl/l/2626787)
-  > NAVO-gevechtsvliegtuigen hebben een drone neergehaald die het Letse luchtruim was binnengedrongen. Dat heeft het leger van de Baltische staat gemeld...
-- [Waterschaarste Rijn wordt komende decennia in de zomers steeds prangender](https://nos.nl/l/2626783)
-  > De uitdaging die het schaarse Rijnwater in droge periodes vormt voor Nederland zal de komende decennia veel groter worden. Dat blijkt uit een recent...
+- [Minister Heinen van Financiën denkt dat opstellen begroting 'spannend' wordt](https://nos.nl/l/2626808)
+  > Minister Heinen van Financiën denkt dat het opstellen van de begroting voor komend jaar een "spannend proces" wordt. Hij wil op Prinsjesdag plannen...
+- [Twaalf migranten uit vrachtwagen in Vlaardingen gehaald](https://nos.nl/l/2626807)
+  > De politie heeft vanochtend twaalf mensen gevonden in de laadruimte van een vrachtwagen in Vlaardingen. De twaalf migranten zijn aangehouden. De...
+- [Vliegverkeer van en naar Sicilië langer ontregeld door activiteit vulkaan Etna](https://nos.nl/l/2626806)
+  > Het vliegverkeer van en naar Sicilië is langer ontregeld vanwege uitbarstingen van de vulkaan Etna. Het vliegveld van Catania aan de oostkant van het...
+- [Eeuwenoude Pekingopera probeert zichzelf opnieuw uit te vinden](https://nos.nl/l/2626805)
+  > De Pekingopera, een van de bekendste Chinese kunstvormen, heeft het zwaar. De opera trekt steeds minder bezoekers. Om nieuw publiek te trekken,...
+- [Twee doden en meerdere gewonden aan staart van file met tractoren op weg naar boerenprotest](https://nos.nl/l/2626800)
+  > Bij een ongeval op de A59 bij Heesch zijn twee mensen omgekomen en een onbekend aantal mensen gewond geraakt.
+        Volgens de politie zijn er vier...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Ronald en zijn vrouw kochten een hotel in Finland: ‘Kostte de helft van een eengezinswoning in de Randstad’](https://www.ad.nl/reizen/ronald-en-zijn-vrouw-kochten-een-hotel-in-finland-kostte-de-helft-van-een-eengezinswoning-in-de-randstad~a27aa058/)
-  > Ronald Eveleens (68) woont sinds 1997 met zijn vrouw Kyoung (71) in Kuusamo, op de grens van Fins Lapland en 50 kilometer van Rusland. Ze namen een...
-- [Jutta neemt ouders mee naar LA en Frans overnacht het liefst in de ijskast](https://www.ad.nl/show/jutta-neemt-ouders-mee-naar-la-en-frans-overnacht-het-liefst-in-de-ijskast~acd03c0c/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Kelly jaagt vanuit de lucht op brandjes die enorme natuurbrand kunnen worden: ‘We nemen geen enkel risico’](https://www.ad.nl/binnenland/kelly-jaagt-vanuit-de-lucht-op-brandjes-die-enorme-natuurbrand-kunnen-worden-we-nemen-geen-enkel-risico~ad268c26/)
-  > Ze zat met de koning aan tafel om over natuurbranden te praten, maar de voornaamste taak van Kelly van Ruler in deze periode is branden te blussen óf...
-- [Spanje zet zich schrap voor nieuwe bestorming van Ceuta dit weekend: ‘Niemand krijgt verblijfstatus’](https://www.ad.nl/buitenland/spanje-zet-zich-schrap-voor-nieuwe-bestorming-van-ceuta-dit-weekend-niemand-krijgt-verblijfstatus~ad65a384/)
-  > Komt er dit weekend een nieuwe bestorming van de Spaanse exclave Ceuta? Spanje en Marokko zetten zich in ieder geval schrap, want zaterdag zullen...
-- [LIVE vakantieblog | ‘Frankrijk staat in brand, president vermaakt zich’: felle kritiek op vakantiefoto’s Macron](https://www.ad.nl/buitenland/live-vakantieblog-frankrijk-staat-in-brand-president-vermaakt-zich-felle-kritiek-op-vakantiefotos-macron~a4195717/)
-  > De Franse president Emmanuel Macron ligt onder vuur na de publicatie van een vakantiefoto in het weekblad Paris Match. Terwijl Frankrijk zucht onder...
+- [Alle Xavi’s verzamelen: Nederlandse Xavi’s trots dat hun naamgenoot bondscoach wordt](https://www.ad.nl/binnenland/alle-xavis-verzamelen-nederlandse-xavis-trots-dat-hun-naamgenoot-bondscoach-wordt~a12a3f9f/)
+  > ‘Nederland heeft 18 miljoen bondscoaches’, zo wordt vaak gezegd als het niet goed gaat met het Nederlands elftal. Van die miljoenen thuiscoaches zijn...
+- [Hans Beijer, B100 uit Bassie en Adriaan, overleden op 78-jarige leeftijd](https://www.ad.nl/show/hans-beijer-b100-uit-bassie-en-adriaan-overleden-op-78-jarige-leeftijd~aba552a1/)
+  > Acteur Hans Beijer is overleden. Dat bevestigt de manager van Bassie en Adriaan aan deze site. Beijer werd vooral bekend als de slechterik B100 in de...
+- [En wéér klapt een uitgaande PSV-transfer: Couhaib Driouech na 48 turbulente uren niet naar Rangers FC](https://www.ad.nl/voetbal/en-weer-klapt-een-uitgaande-psv-transfer-couhaib-driouech-na-48-turbulente-uren-niet-naar-rangers-fc~a0e1588c/)
+  > Alles leek in kannen en kruiken, maar tóch is de transfer van PSV-aanvaller Couhaib Driouech naar Rangers FC vrijdag geklapt. Hij was donderdag al in...
+- [Laatste keer Zandvoort, laatste keer speciaal: Max Verstappen rijdt met opvallend witte helm](https://www.ad.nl/formule-1/laatste-keer-zandvoort-laatste-keer-speciaal-max-verstappen-rijdt-met-opvallend-witte-helm~aee99810/)
+  > Max Verstappen heeft zijn speciale helm voor de laatste Grand Prix van Nederland gepresenteerd. Volgende week rijdt de Nederlandse coureur met een...
+- [Turkse crimineel (23) verstopt zich in Nederland voor Italiaans OM, maar is er nu gloeiend bij](https://www.ad.nl/binnenland/turkse-crimineel-23-verstopt-zich-in-nederland-voor-italiaans-om-maar-is-er-nu-gloeiend-bij~af2c90da/)
+  > Een 23-jarige man die door de Italiaanse justitie wordt gelinkt aan een omvangrijk Turks misdaadnetwerk, is in Nederland opgespoord en inmiddels...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Delicatessenketen bezorgt lokale Italiaanse lekkernijen internationale erkenning](https://fd.nl/bedrijfsleven/1601158/delicattessenketen-bezorgt-lokale-italiaanse-lekkernijen-internationale-erkenning)
+  > Producten van kleine makers, die nooit eerder werden geëxporteerd, liggen dankzij Eataly in winkels buiten Italië. Tot de Verenigde Staten aan toe.
+- [Yale-hoogleraar Geert Rouwenhorst: ‘Iedere dollar minder naar onderzoek schaadt Amerikaanse groei’](https://fd.nl/financiele-markten/1602479/yale-hoogleraar-geert-rouwenhorst-iedere-dollar-minder-naar-onderzoek-schaadt-amerikaanse-groei)
+  > Geert Rouwenhorst viel voor de American dream en is al 27 jaar hoogleraar corporate finance aan het prestigieuze Yale. De universiteit staat tot...
+- [Oost-Europa wordt multicultureel, tegen wil en dank](https://fd.nl/opinie/1604010/oost-europa-wordt-multicultureel-tegen-wil-en-dank)
+  > Oost-Europa wil niet worden zoals West-Europa. Toch krijgt de regio steeds meer het multiculturele straatbeeld waar die juist voor vreest.
+- [Verkeersdoden en gewonden bij ongeluk in staart van file bij boerenprotest](https://fd.nl/politiek/1607637/verkeersdoden-en-gewonden-bij-ongeluk-in-staart-van-file-bij-boerenprotest)
+  > Het ongeluk gebeurde rond half tien. Er waren vier auto’s bij betrokken. De oorzaak van de botsing is nog onbekend, meldt Omroep Brabant. De weg is...
 - [Het geheugen van de Turkse keuken: ‘Een bord moet je vertellen waar je bent’](https://fd.nl/samenleving/1607532/het-geheugen-van-de-turkse-keuken-een-bord-moet-je-vertellen-waar-je-bent)
   > Het nieuwe kookboek van Özlem Warren, restaurant Neolokal, en de Netflix-serie The Museum of Innocence, naar Orhan Pamuks roman: alle tonen ze de...
-- [Nigel Farage wint verkiezing, maar zijn problemen zijn nog niet voorbij](https://fd.nl/politiek/1607553/nigel-farage-wint-zijn-verkiezing-maar-zijn-problemen-zijn-nog-niet-voorbij)
-  > De radicaal-rechtse politicus wint in kustdistrict Clacton met ruime cijfers van een satirische tegenkandidaat. Daarmee kan ook het onderzoek tegen...
-- [Drone neergehaald boven Letland door Navo-gevechtsvliegtuig](https://fd.nl/samenleving/1607632/drone-neergehaald-boven-letland-door-navo-gevechtsvliegtuig)
-  > Maandag schoten Franse gevechtsvliegtuigen die deelnemen aan de Navo-missie ook al een drone neer boven Letland.
-- [Amerikaanse beleggersclaim tegen ASML op losse schroeven](https://fd.nl/financiele-markten/1607550/amerikaanse-beleggersclaim-tegen-asml-op-losse-schroeven)
-  > De claimende partijen stellen dat ASML-bestuurders de beleggers in 2024 verkeerd hebben voorgelicht. Maar een New Yorkse rechter zet vraagtekens bij...
-- [Live: Klimmen de beurzen vandaag verder naar records?](https://fd.nl/financiele-markten/1607551/live-klimmen-de-beurzen-vandaag-verder-naar-nieuwe-records)
-  > In Amsterdam beginnen de aandelenindices de handelsdag na records in het groen. Busfabrikant Ebusco komt vandaag met halfjaarcijfers.
 
 ### Meest gelezen
 
