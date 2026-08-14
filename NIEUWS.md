@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-08-2026 om 11:46*
+*Laatst bijgewerkt: 14-08-2026 om 13:13*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Kabinet tegen boeren na dodelijk ongeluk: demonstreer niet op snelweg, het is 'bloedlink'](https://nos.nl/l/2626830)
+  > Het kabinet roept boeren na het ongeluk op de A59 bij Oss op niet meer op snelwegen te demonstreren. "Het is onacceptabel en onbegrijpelijk dat je op...
+- [Honderden boeren bij protest in Den Bosch tegen intrekken vergunning pluimveehouders](https://nos.nl/l/2626825)
+  > Bij het provinciehuis in Den Bosch hebben vanochtend honderden boeren tegen het intrekken van de vergunningen van vijf pluimveehouders...
 - [Nederlandse economie veerkrachtig, maar de koopkracht gaat volgend jaar wel omlaag](https://nos.nl/l/2626820)
   > Door de oorlog in Iran en de hogere energieprijzen dreigen veel Nederlandse huishoudens in 2027 minder te besteden te krijgen. De koopkracht daalt...
 - [Acteur Hans Beijer, bekend als boef B100 in Bassie en Adriaan, is overleden](https://nos.nl/l/2626817)
   > De acteur Hans Beijer, vooral bekend als pechvogel B100 in 'Bassie en Adriaan', is overleden. Vorige week donderdag is Beijer op 78-jarige leeftijd...
 - [Franse fiscus komt na bijna twee maanden achter een grote hack](https://nos.nl/l/2626812)
   > De Franse belastingdienst is gehackt, waarbij de gegevens van bijna 700.000 belastingbetalers zijn buitgemaakt. De hack vond eind juni plaats, maar...
-- [Minister Heinen van Financiën denkt dat opstellen begroting 'spannend' wordt](https://nos.nl/l/2626808)
-  > Minister Heinen van Financiën denkt dat het opstellen van de begroting voor komend jaar een "spannend proces" wordt. Hij wil op Prinsjesdag plannen...
-- [Twaalf migranten uit vrachtwagen in Vlaardingen gehaald](https://nos.nl/l/2626807)
-  > De politie heeft vanochtend twaalf mensen gevonden in de laadruimte van een vrachtwagen in Vlaardingen. De twaalf migranten zijn aangehouden. De...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [PEC pikt 19-jarige vleugelverdediger op uit Duitsland, Benfica informeert naar Flamingo](https://www.ad.nl/voetbal/pec-pikt-19-jarige-vleugelverdediger-op-uit-duitsland-benfica-informeert-naar-flamingo~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [LIVE vakantieblog | Zwitsers ‘Instagram-dorp’ met 2000 inwoners is massatoerisme zat en wil entree bij populaire waterval](https://www.ad.nl/buitenland/live-vakantieblog-zwitsers-instagram-dorp-met-2000-inwoners-is-massatoerisme-zat-en-wil-entree-bij-populaire-waterval~a4195717/)
-  > Het idyllische Zwitserse bergdorp Lauterbrunnen zucht onder zijn eigen populariteit. Dagelijks trekken zo’n 25.000 toeristen naar de vallei met de...
-- [Presentatrice doet pikante verspreking op live tv en gaat viraal: ‘Ik wilde gewoon verdwijnen’](https://www.ad.nl/show/presentatrice-doet-pikante-verspreking-op-live-tv-en-gaat-viraal-ik-wilde-gewoon-verdwijnen~a0735b50/)
-  > Wat als je een grote fout maakt op live tv? Toni Brattin kon wel door de grond zakken. De Amerikaanse presentatrice gaat viraal nadat ze (per...
-- [PSV mist Alassane Pléa tegen Excelsior, NEC voorlopig zonder geblesseerde Sami Ouiassa en Philippe Sandler](https://www.ad.nl/voetbal/psv-mist-alassane-plea-tegen-excelsior-nec-voorlopig-zonder-geblesseerde-sami-ouiassa-en-philippe-sandler~a378dc98/)
-  > Het nieuwe eredivisieseizoen is van start gegaan. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we...
-- [Warmste 14 augustus ooit gemeten: temperatuur stijgt tot boven de 34 graden](https://www.ad.nl/binnenland/warmste-14-augustus-ooit-gemeten-temperatuur-stijgt-tot-boven-de-34-graden~a53d3b8a/)
-  > Niet eerder werd het in Nederland zo warm op 14 augustus als in 2026, dat meldt Weeronline. In Westdorpe en Gilze-Rijen is vrijdag het record uit...
+- [Kabinet bemoeit zich met Brabantse boerenkwestie: ‘Ons historische pakket moet meegewogen worden’](https://www.ad.nl/politiek/kabinet-bemoeit-zich-met-brabantse-boerenkwestie-ons-historische-pakket-moet-meegewogen-worden~a74389da/)
+  > Het kabinet zit zwaar in de maag met de opgelaaide boerenprotesten. Acute aanleiding voor het verzet is een besluit van de provincie Noord-Brabant om...
+- [Agent staat meteen aan als vrouw in trein gereanimeerd moet worden: ‘Niet te vergelijken met oefenen op pop’](https://www.ad.nl/binnenland/agent-staat-meteen-aan-als-vrouw-in-trein-gereanimeerd-moet-worden-niet-te-vergelijken-met-oefenen-op-pop~ade654fb/)
+  > In een trein is een passagier onwel geworden. Medereizigers zijn al begonnen met reanimeren. Zodra de trein het station binnenrijdt, nemen wij het...
+- [Gian van Veen wint eerste ronde in Nieuw-Zeeland, na dagen vol spanning over achtergebleven koffer met dartpijlen](https://www.ad.nl/darts/gian-van-veen-wint-eerste-ronde-in-nieuw-zeeland-na-dagen-vol-spanning-over-achtergebleven-koffer-met-dartpijlen~a1b62a47/)
+  > Gian van Veen is aan de andere kant van de wereld goed begonnen. Tijdens de New Zealand Darts Masters won de darter uit Andel in de eerste ronde...
+- [Voortvluchtige Eindhovense pillenboer Gerrit van R. gepakt op rode slippers in Turkije](https://www.ad.nl/binnenland/voortvluchtige-eindhovense-pillenboer-gerrit-van-r-gepakt-op-rode-slippers-in-turkije~acce8d4b/)
+  > De voortvluchtige pillenboer Gerrit van R. (36) is opgepakt in Turkije. De Eindhovenaar werd als kopstuk van een Brabantse bende eerder veroordeeld...
+- [Jetten noemt snelwegprotest ‘volstrekt onacceptabel’, gedoogsituatie ‘is geen goed signaal’](https://www.ad.nl/politiek/jetten-noemt-snelwegprotest-volstrekt-onacceptabel-gedoogsituatie-is-geen-goed-signaal~a491b1605/)
+  > Premier Rob Jetten noemt snelwegprotesten ‘volstrekt onacceptabel’. Dat de politie en het OM vooraf hadden aangegeven dat ze boerenprotesten vandaag...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Kan Katsu Curry de waardering van de yen beter inschatten dan de Big Mac?](https://fd.nl/financiele-markten/1607523/kan-katsu-curry-de-waardering-van-de-yen-beter-inschatten-dan-de-big-mac-index)
+  > Iedereen vindt de Japanse munt ondergewaardeerd, maar over de vraag hoeveel precies is men het niet eens. Een Japanse restaurantketen moet houvast...
+- [Gedupeerden ‘wonderbelegger’ Corina de J. schieten weinig op met vonnis](https://fd.nl/financiele-markten/1606912/gedupeerden-wonderbelegger-corina-de-j-schieten-weinig-op-met-vonnis)
+  > De bedrijven van fraudeverdachte De J. moeten miljoenen terugbetalen aan gedupeerden, maar veel vorderingen zijn afgewezen. ‘Dit komt over als...
+- [Russische aanvallen dwingen Oekraïne alternatieve routes te zoeken voor graanexport](https://fd.nl/economie/1607635/russische-aanvallen-dwingen-oekraine-alternatieve-routes-te-zoeken-voor-graanexport)
+  > Boeren vrezen dat hun opslag vol raakt voordat de volledige oogst binnen is. Om dat te voorkomen, heeft Kyiv Moskou een voorstel gedaan voor een...
 - [Cashbetalingen weer vaker mogelijk in landen van de eurozone](https://fd.nl/economie/1607557/cashbetalingen-weer-vaker-mogelijk-in-landen-van-de-eurozone)
   > Slechts 78% van horecaondernemingen in Nederland accepteert contant geld. Dat is het laagste percentage van alle eurolanden.
-- [CPB ziet blijvende groei ondanks duurdere energie](https://fd.nl/economie/1607656/cpb-ziet-blijvende-groei-ondanks-duurdere-energie)
-  > De aanhoudend hoge energieprijzen krijgen geen vat op de Nederlandse economie, aldus de nieuwste ramingen van het CPB. Wel is er een minnetje bij de...
-- [Een geur van een Turks parfumhuis en een culihotel op Terschelling](https://fd.nl/samenleving/1607346/een-geur-van-een-turks-parfumhuis-en-een-culihotel-op-terschelling)
-  > Inspiratie voor een fijn weekend door de redactie van FD Persoonlijk.
-- [Delicatessenketen bezorgt lokale Italiaanse lekkernijen internationale erkenning](https://fd.nl/bedrijfsleven/1601158/delicattessenketen-bezorgt-lokale-italiaanse-lekkernijen-internationale-erkenning)
-  > Producten van kleine makers, die nooit eerder werden geëxporteerd, liggen dankzij Eataly in winkels buiten Italië. Tot de Verenigde Staten aan toe.
-- [Yale-hoogleraar Geert Rouwenhorst: ‘Iedere dollar minder naar onderzoek schaadt Amerikaanse groei’](https://fd.nl/financiele-markten/1602479/yale-hoogleraar-geert-rouwenhorst-iedere-dollar-minder-naar-onderzoek-schaadt-amerikaanse-groei)
-  > Geert Rouwenhorst viel voor de American dream en is al 27 jaar hoogleraar corporate finance aan het prestigieuze Yale. De universiteit staat tot...
+- [Economie blijft groeien ondanks duurdere energie, denkt CPB](https://fd.nl/economie/1607656/cpb-ziet-blijvende-groei-ondanks-duurdere-energie)
+  > De aanhoudend hoge energieprijzen krijgen geen vat op de Nederlandse economie, aldus de nieuwste ramingen van het Centraal Planbureau. Wel is er een...
 
 ### Meest gelezen
 
