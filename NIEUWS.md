@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-08-2026 om 06:16*
+*Laatst bijgewerkt: 14-08-2026 om 08:18*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Britse politicus Farage verslaat prullenbak en wint tussentijdse verkiezingen](https://nos.nl/l/2626781)
-  > De radicaal-rechtse politicus Nigel Farage keert terug in het Britse parlement. Hij won de door hem afgedwongen tussentijdse verkiezingen in het...
-- [Wekdienst 14/8: Boerenprotest verwacht bij provinciehuis Brabant • CPB komt met prognose 2027](https://nos.nl/l/2626776)
-  > Goedemorgen! De Provinciale Staten van Brabant debatteren over het intrekken van de vergunningen van vijf pluimveehouders en het Centraal Planbureau...
-- [Aantal plaknachten verschilt per regio: 'nachthitte onderbelicht onderdeel hittegolven'](https://nos.nl/l/2626775)
-  > Na een hete dag snakken de meeste mensen naar verkoeling in huis, maar dat wordt lastig als het 's nachts nauwelijks afkoelt en het een 'plaknacht'...
-- [Vier doden door zware regenval Japan, meer dan 100.000 mensen geëvacueerd](https://nos.nl/l/2626768)
-  > In het oosten van Japan zijn zeker vier doden gevallen als gevolg van de zware regenval. Ook wordt er nog iemand vermist. In de prefectuur Chiba viel...
-- [Protest en onderbroken vakanties politici om intrekken vergunningen boeren](https://nos.nl/l/2626767)
-  > De Brabantse Provinciale Staten komen vandaag terug van reces voor een debat over het intrekken van de vergunningen van vijf pluimveehouders vanwege...
+- [Meer dan 2000 mensen geëvacueerd door natuurbrand in Duitse stad Gey](https://nos.nl/l/2626797)
+  > Vanwege een natuurbrand in de Duitse deelstaat Noordrijn-Westfalen zijn meer dan 2000 mensen geëvacueerd uit het dorp Gey. Dat meldt de Duitse...
+- [Zeven mensen in levensgevaar door natuurbrand Kroatië](https://nos.nl/l/2626796)
+  > Door een natuurbrand in Kroatië zijn zeker 36 mensen gewond geraakt. Zeven van hen verkeren in levensgevaar, meldt de Kroatische nieuwssite N1. Ook...
+- [Laatste brandwondenslachtoffer Zwitserse cafébrand ontslagen uit Italiaans ziekenhuis](https://nos.nl/l/2626789)
+  > Het laatste slachtoffer dat in Italië werd behandeld aan haar verwondingen na de brand in de nieuwjaarsnacht in het Zwitserse Crans-Montana, is...
+- [NAVO-gevechtsvliegtuigen in actie boven Letland om drone uit de lucht te halen](https://nos.nl/l/2626787)
+  > NAVO-gevechtsvliegtuigen hebben een drone neergehaald die het Letse luchtruim was binnengedrongen. Dat heeft het leger van de Baltische staat gemeld...
+- [Waterschaarste Rijn wordt komende decennia in de zomers steeds prangender](https://nos.nl/l/2626783)
+  > De uitdaging die het schaarse Rijnwater in droge periodes vormt voor Nederland zal de komende decennia veel groter worden. Dat blijkt uit een recent...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tientallen tractoren op A59 richting Den Bosch, grote demonstratie tegen kabinet bij provinciehuis](https://www.ad.nl/binnenland/tientallen-tractoren-op-a59-richting-den-bosch-grote-demonstratie-tegen-kabinet-bij-provinciehuis~a1b54bf3/)
-  > Bij het provinciehuis in Den Bosch zijn vrijdagochtend rond 07.40 uur de eerste boeren met trekkers gearriveerd. Ze protesteren tegen het plan van de...
-- [Zo laat rijdt Max Verstappen volgende week de allerlaatste Dutch GP](https://www.ad.nl/formule-1/zo-laat-rijdt-max-verstappen-volgende-week-de-allerlaatste-dutch-gp~ac6e82c8/)
-  > De coureurs mogen na de Grand Prix van Hongarije genieten van een korte zomerstop. Het Formule 1-seizoen wordt daarna hervat met een bijzondere race:...
-- [Robbie Williams onthult dat hij autisme heeft: ‘Daar ben ik eigenlijk verdomd blij mee’](https://www.ad.nl/show/robbie-williams-onthult-dat-hij-autisme-heeft-daar-ben-ik-eigenlijk-verdomd-blij-mee~a4bbeeeb/)
-  > Robbie Williams (52) heeft naar eigen zeggen te horen gekregen dat hij autisme heeft. De Britse zanger, die eerder al openlijk sprak over zijn adhd...
-- [Het tempoprobleem van Oranje wordt Xavi’s eerste taak als bondscoach](https://www.ad.nl/wk-voetbal/het-tempoprobleem-van-oranje-wordt-xavis-eerste-taak-als-bondscoach~a2c26e45/)
-  > Nederland loopt het minst van allemaal. Zowel op het EK als het WK eindigde Oranje in het kilometerklassement stijf onderaan. Aan Xavi Hernández de...
-- [Farage wint verkiezingen, keert terug in Brits parlement](https://www.ad.nl/buitenland/farage-wint-verkiezingen-keert-terug-in-brits-parlement~ae58eca9/)
-  > Reform UK-leider Nigel Farage heeft zoals verwacht de tussentijdse parlementsverkiezingen in zijn kiesdistrict Clacton gewonnen en krijgt daarmee...
+- [Ronald en zijn vrouw kochten een hotel in Finland: ‘Kostte de helft van een eengezinswoning in de Randstad’](https://www.ad.nl/reizen/ronald-en-zijn-vrouw-kochten-een-hotel-in-finland-kostte-de-helft-van-een-eengezinswoning-in-de-randstad~a27aa058/)
+  > Ronald Eveleens (68) woont sinds 1997 met zijn vrouw Kyoung (71) in Kuusamo, op de grens van Fins Lapland en 50 kilometer van Rusland. Ze namen een...
+- [Jutta neemt ouders mee naar LA en Frans overnacht het liefst in de ijskast](https://www.ad.nl/show/jutta-neemt-ouders-mee-naar-la-en-frans-overnacht-het-liefst-in-de-ijskast~acd03c0c/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Kelly jaagt vanuit de lucht op brandjes die enorme natuurbrand kunnen worden: ‘We nemen geen enkel risico’](https://www.ad.nl/binnenland/kelly-jaagt-vanuit-de-lucht-op-brandjes-die-enorme-natuurbrand-kunnen-worden-we-nemen-geen-enkel-risico~ad268c26/)
+  > Ze zat met de koning aan tafel om over natuurbranden te praten, maar de voornaamste taak van Kelly van Ruler in deze periode is branden te blussen óf...
+- [Spanje zet zich schrap voor nieuwe bestorming van Ceuta dit weekend: ‘Niemand krijgt verblijfstatus’](https://www.ad.nl/buitenland/spanje-zet-zich-schrap-voor-nieuwe-bestorming-van-ceuta-dit-weekend-niemand-krijgt-verblijfstatus~ad65a384/)
+  > Komt er dit weekend een nieuwe bestorming van de Spaanse exclave Ceuta? Spanje en Marokko zetten zich in ieder geval schrap, want zaterdag zullen...
+- [LIVE vakantieblog | ‘Frankrijk staat in brand, president vermaakt zich’: felle kritiek op vakantiefoto’s Macron](https://www.ad.nl/buitenland/live-vakantieblog-frankrijk-staat-in-brand-president-vermaakt-zich-felle-kritiek-op-vakantiefotos-macron~a4195717/)
+  > De Franse president Emmanuel Macron ligt onder vuur na de publicatie van een vakantiefoto in het weekblad Paris Match. Terwijl Frankrijk zucht onder...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Het geheugen van de Turkse keuken: ‘Een bord moet je vertellen waar je bent’](https://fd.nl/samenleving/1607532/het-geheugen-van-de-turkse-keuken-een-bord-moet-je-vertellen-waar-je-bent)
+  > Het nieuwe kookboek van Özlem Warren, restaurant Neolokal, en de Netflix-serie The Museum of Innocence, naar Orhan Pamuks roman: alle tonen ze de...
+- [Nigel Farage wint verkiezing, maar zijn problemen zijn nog niet voorbij](https://fd.nl/politiek/1607553/nigel-farage-wint-zijn-verkiezing-maar-zijn-problemen-zijn-nog-niet-voorbij)
+  > De radicaal-rechtse politicus wint in kustdistrict Clacton met ruime cijfers van een satirische tegenkandidaat. Daarmee kan ook het onderzoek tegen...
 - [Drone neergehaald boven Letland door Navo-gevechtsvliegtuig](https://fd.nl/samenleving/1607632/drone-neergehaald-boven-letland-door-navo-gevechtsvliegtuig)
   > Maandag schoten Franse gevechtsvliegtuigen die deelnemen aan de Navo-missie ook al een drone neer boven Letland.
-- [Nigel Farage keert terug in Brits parlement na overwinning op ‘vuilnisemmer’ in kustdistrict](https://fd.nl/politiek/1607552/nigel-farage-keert-terug-in-brits-parlement-na-overwinning-op-vuilnisemmer-in-kustdistrict)
-  > De leider van Reform UK heeft verkiezingen in zijn kustdistrict Clacton-on-Sea gewonnen. Eerder raakte hij in opspraak vanwege verschillende...
 - [Amerikaanse beleggersclaim tegen ASML op losse schroeven](https://fd.nl/financiele-markten/1607550/amerikaanse-beleggersclaim-tegen-asml-op-losse-schroeven)
   > De claimende partijen stellen dat ASML-bestuurders de beleggers in 2024 verkeerd hebben voorgelicht. Maar een New Yorkse rechter zet vraagtekens bij...
 - [Live: Klimmen de beurzen vandaag verder naar records?](https://fd.nl/financiele-markten/1607551/live-klimmen-de-beurzen-vandaag-verder-naar-nieuwe-records)
-  > De Nikkei en Kospi noteren op de laatste dag van de handelsweek hoger. Dichter bij huis komt busfabrikant Ebusco vandaag met halfjaarcijfers.
-- [Tien toeristen op elke inwoner: verzet tegen ‘langzame kolonisatie’ Domburg groeit](https://fd.nl/bedrijfsleven/1603929/tien-toeristen-op-elke-inwoner-verzet-tegen-langzame-kolonisatie-domburg-groeit)
-  > Het schilderachtige Domburg is al meer dan honderd jaar een geliefde badplaats. Maar de grote populariteit van het dorp voedt het verzet tegen het...
+  > In Amsterdam beginnen de aandelenindices de handelsdag na records in het groen. Busfabrikant Ebusco komt vandaag met halfjaarcijfers.
 
 ### Meest gelezen
 
