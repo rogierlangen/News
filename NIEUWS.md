@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-08-2026 om 23:45*
+*Laatst bijgewerkt: 14-08-2026 om 02:13*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Franse tiener vast om dood brandweermannen](https://nos.nl/l/2626766)
+  > In Frankrijk is een jongen van 15 aangehouden in verband met de dood van twee brandweermannen vorige maand. In de buurt van het vliegveld van...
 - [Naam Trump keert terug op Kennedy Center](https://nos.nl/l/2626765)
   > De naam van president Trump keert terug op het Kennedy Center in Washington D.C. Dat is duidelijk geworden na een urenlange vergadering van het...
 - [Man krijgt boete voor wakker maken van ijsbeer op Spitsbergen](https://nos.nl/l/2626757)
@@ -16,8 +18,6 @@
   > Amerikaanse onderzoekers hebben meer duidelijkheid gegeven over het incident in een Boeing 737-vliegtuig vorige maand waarbij een man bijna door een...
 - ['Het missende stukje': vriendinnen ontdekken na 30 jaar dat ze zussen zijn](https://nos.nl/l/2626748)
   > Ze ontmoetten elkaar in 1996 als tieners op een bijeenkomst voor geadopteerden. Tussen de Nederlandse Meena Geltink (43) en Minal Tijssen (44) was...
-- [Antisemitisme-aanklacht van regering-Trump tegen Harvard afgewezen](https://nos.nl/l/2626744)
-  > Een federale rechter heeft in de VS een antisemitisme-aanklacht van de regering-Trump tegen Harvard van tafel geveegd. De regering kwam in maart met...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Verenigde Arabische Emiraten beschuldigen Iran van aanval op twee olietankers in Straat van Hormuz](https://www.ad.nl/buitenland/verenigde-arabische-emiraten-beschuldigen-iran-van-aanval-op-twee-olietankers-in-straat-van-hormuz~ac528ac3/)
-  > Twee schepen van het staatsoliebedrijf van Abu Dhabi, ADNOC, zijn donderdagavond aangevallen tijdens hun tocht door de Straat van Hormuz. De...
+- [VS verharden toon en dreigen Iran met economisch isolement ‘zoals de wereld nog nooit heeft gezien’](https://www.ad.nl/buitenland/vs-verharden-toon-en-dreigen-iran-met-economisch-isolement-zoals-de-wereld-nog-nooit-heeft-gezien~ac528ac3/)
+  > De Verenigde Staten dreigen Iran economisch te isoleren ‘zoals de wereld nog nooit heeft gezien’. De Amerikaanse minister van Financiën Scott Bessent...
+- [Trump kondigt importheffing tot 100 procent aan voor drones, Kennedy Center wil naam  president terug op de gevel](https://www.ad.nl/buitenland/trump-kondigt-importheffing-tot-100-procent-aan-voor-drones-kennedy-center-wil-naam-president-terug-op-de-gevel~ae67dd9c/)
+  > Donald Trump heeft donderdag importheffingen tot 100 procent aangekondigd voor specifieke drones en onderdelen van drones. De maatregel moet de...
+- [Natuurbrand in bosgebied tussen Elst en Veenendaal, Franse tiener vast om fatale bosbrand bij Bordeaux](https://www.ad.nl/buitenland/natuurbrand-in-bosgebied-tussen-elst-en-veenendaal-franse-tiener-vast-om-fatale-bosbrand-bij-bordeaux~ad0a3949/)
+  > Bij de Remmerdense Heide, tussen Elst en Veenendaal, woedt een natuurbrand aan beide kanten van de Defensieweg. Dat meldt de veiligheidsregio...
+- [Nicole Kidman gewaarschuwd voor huwelijk met ex-man Tom Cruise: ‘Het maakt me niet uit. Ik ben verliefd’](https://www.ad.nl/show/nicole-kidman-gewaarschuwd-voor-huwelijk-met-ex-man-tom-cruise-het-maakt-me-niet-uit-ik-ben-verliefd~acf4600b/)
+  > Voordat Nicole Kidman op redelijk jonge leeftijd trouwde met de vijf jaar oudere Tom Cruise, werd ze door mensen gewaarschuwd dat het huwelijk met de...
 - [Rodri vliegt met Ryanair terug naar Engeland, Enes Ünal terug bij Getafe](https://www.ad.nl/voetbal/rodri-vliegt-met-ryanair-terug-naar-engeland-enes-unal-terug-bij-getafe~acbd43e6/)
   > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [Bioscopen en bouwmarkten ‘winnaars’ van de hitte, andere bedrijven de klos](https://www.ad.nl/binnenland/bioscopen-en-bouwmarkten-winnaars-van-de-hitte-andere-bedrijven-de-klos~aa1ee066/)
-  > Bioscopen en bouwmarkten zijn de ‘winnaars’ van de hitte. Voor veel andere bedrijven betekent onze warme en droge zomer slecht nieuws. Dat blijkt uit...
-- [Dramatisch Ajax speelt in Dublin gelijk tegen nummer 5 van Ierland, nu wachten play-offs tegen FC Sion](https://www.ad.nl/voetbal/dramatisch-ajax-speelt-in-dublin-gelijk-tegen-nummer-5-van-ierland-nu-wachten-play-offs-tegen-fc-sion~a7ab6be7/)
-  > Een dramatisch Ajax heeft zich met pijn en moeite gekwalificeerd voor de play-offs van de Conference League. Tegen Shelbourne FC, de huidige nummer...
-- [Bouwvakkers ontdekken goudschat van 9 miljoen euro in Belgische kelder](https://www.ad.nl/buitenland/bouwvakkers-ontdekken-goudschat-van-9-miljoen-euro-in-belgische-kelder~a1348b9c/)
-  > Werknemers van een Belgisch bouwbedrijf hebben tijdens renovatiewerkzaamheden aan een gebouw in Sint-Gillis-Dendermonde een spectaculaire ontdekking...
 
 ### Meest gelezen
 
