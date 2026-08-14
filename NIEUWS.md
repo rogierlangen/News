@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-08-2026 om 04:50*
+*Laatst bijgewerkt: 14-08-2026 om 06:16*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Britse politicus Farage verslaat prullenbak en wint tussentijdse verkiezingen](https://nos.nl/l/2626781)
+  > De radicaal-rechtse politicus Nigel Farage keert terug in het Britse parlement. Hij won de door hem afgedwongen tussentijdse verkiezingen in het...
 - [Wekdienst 14/8: Boerenprotest verwacht bij provinciehuis Brabant • CPB komt met prognose 2027](https://nos.nl/l/2626776)
   > Goedemorgen! De Provinciale Staten van Brabant debatteren over het intrekken van de vergunningen van vijf pluimveehouders en het Centraal Planbureau...
 - [Aantal plaknachten verschilt per regio: 'nachthitte onderbelicht onderdeel hittegolven'](https://nos.nl/l/2626775)
@@ -16,8 +18,6 @@
   > In het oosten van Japan zijn zeker vier doden gevallen als gevolg van de zware regenval. Ook wordt er nog iemand vermist. In de prefectuur Chiba viel...
 - [Protest en onderbroken vakanties politici om intrekken vergunningen boeren](https://nos.nl/l/2626767)
   > De Brabantse Provinciale Staten komen vandaag terug van reces voor een debat over het intrekken van de vergunningen van vijf pluimveehouders vanwege...
-- [Franse tiener vast om dood brandweermannen](https://nos.nl/l/2626766)
-  > In Frankrijk is een jongen van 15 aangehouden in verband met de dood van twee brandweermannen vorige maand. In de buurt van het vliegveld van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Radicale ‘soldaten van Jezus’ strijden vanuit dit Nederlandse dorpje: ‘Ons doel is helder: de duivel vernietigen’](https://www.ad.nl/binnenland/radicale-soldaten-van-jezus-strijden-vanuit-dit-nederlandse-dorpje-ons-doel-is-helder-de-duivel-vernietigen~aeeae18c/)
-  > Op hun website vliegt een legerhelikopter over het scherm. Jezus Christus is hun ‘commandant’. Ze omschrijven zich als ‘beweging van radicale...
-- [Ruben (33) parkeert Swapfiets in Amsterdam maar vergeet waar: ‘Heeft me in vier jaar zo’n 1000 euro gekost’](https://www.ad.nl/binnenland/ruben-33-parkeert-swapfiets-in-amsterdam-maar-vergeet-waar-heeft-me-in-vier-jaar-zon-1000-euro-gekost~af0b1c49/)
-  > Een rode Swapfiets stond jarenlang onaangeroerd geparkeerd aan een reling langs het IJ in Amsterdam. De directeur van het fietsverhuurbedrijf ging...
-- [Gezin van Mark en Janine leeft met zeldzame erfelijke ziekte: ‘Eigenlijk is het continu afscheid nemen’](https://www.ad.nl/binnenland/gezin-van-mark-en-janine-leeft-met-zeldzame-erfelijke-ziekte-eigenlijk-is-het-continu-afscheid-nemen~aaca5e53/)
-  > Pas 26 jaar oud is Mark de Kruijf (51) als hij een herseninfarct krijgt. Het is het begin van een leven met Cadasil, een zeldzame, erfelijke ziekte...
-- [LIVE vakantieblog | Duik in Frans meer gaat fout: Britse presentatrice komt slecht neer en loopt klaplong op](https://www.ad.nl/buitenland/live-vakantieblog-duik-in-frans-meer-gaat-fout-britse-presentatrice-komt-slecht-neer-en-loopt-klaplong-op~a4195717/)
-  > De Britse oud-skikampioene en BBC-presentatrice Chemmy Alcott (44) is tijdens haar vakantie in Frankrijk zwaargewond geraakt. Bij een sprong in het...
-- [Overgelopen Oekraïense commandant gedood bij aanslag op Krim: ‘Vrouw toont geen enkel berouw’](https://www.ad.nl/buitenland/overgelopen-oekraiense-commandant-gedood-bij-aanslag-op-krim-vrouw-toont-geen-enkel-berouw~adfb97be/)
-  > De overgelopen Oekraïense marinecommandant Robert Shageev is omgekomen bij een gerichte bomaanslag in Sebastopol, op de door Rusland bezette Krim....
+- [Tientallen tractoren op A59 richting Den Bosch, grote demonstratie tegen kabinet bij provinciehuis](https://www.ad.nl/binnenland/tientallen-tractoren-op-a59-richting-den-bosch-grote-demonstratie-tegen-kabinet-bij-provinciehuis~a1b54bf3/)
+  > Bij het provinciehuis in Den Bosch zijn vrijdagochtend rond 07.40 uur de eerste boeren met trekkers gearriveerd. Ze protesteren tegen het plan van de...
+- [Zo laat rijdt Max Verstappen volgende week de allerlaatste Dutch GP](https://www.ad.nl/formule-1/zo-laat-rijdt-max-verstappen-volgende-week-de-allerlaatste-dutch-gp~ac6e82c8/)
+  > De coureurs mogen na de Grand Prix van Hongarije genieten van een korte zomerstop. Het Formule 1-seizoen wordt daarna hervat met een bijzondere race:...
+- [Robbie Williams onthult dat hij autisme heeft: ‘Daar ben ik eigenlijk verdomd blij mee’](https://www.ad.nl/show/robbie-williams-onthult-dat-hij-autisme-heeft-daar-ben-ik-eigenlijk-verdomd-blij-mee~a4bbeeeb/)
+  > Robbie Williams (52) heeft naar eigen zeggen te horen gekregen dat hij autisme heeft. De Britse zanger, die eerder al openlijk sprak over zijn adhd...
+- [Het tempoprobleem van Oranje wordt Xavi’s eerste taak als bondscoach](https://www.ad.nl/wk-voetbal/het-tempoprobleem-van-oranje-wordt-xavis-eerste-taak-als-bondscoach~a2c26e45/)
+  > Nederland loopt het minst van allemaal. Zowel op het EK als het WK eindigde Oranje in het kilometerklassement stijf onderaan. Aan Xavi Hernández de...
+- [Farage wint verkiezingen, keert terug in Brits parlement](https://www.ad.nl/buitenland/farage-wint-verkiezingen-keert-terug-in-brits-parlement~ae58eca9/)
+  > Reform UK-leider Nigel Farage heeft zoals verwacht de tussentijdse parlementsverkiezingen in zijn kiesdistrict Clacton gewonnen en krijgt daarmee...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Drone neergehaald boven Letland door Navo-gevechtsvliegtuig](https://fd.nl/samenleving/1607632/drone-neergehaald-boven-letland-door-navo-gevechtsvliegtuig)
+  > Maandag schoten Franse gevechtsvliegtuigen die deelnemen aan de Navo-missie ook al een drone neer boven Letland.
+- [Nigel Farage keert terug in Brits parlement na overwinning op ‘vuilnisemmer’ in kustdistrict](https://fd.nl/politiek/1607552/nigel-farage-keert-terug-in-brits-parlement-na-overwinning-op-vuilnisemmer-in-kustdistrict)
+  > De leider van Reform UK heeft verkiezingen in zijn kustdistrict Clacton-on-Sea gewonnen. Eerder raakte hij in opspraak vanwege verschillende...
+- [Amerikaanse beleggersclaim tegen ASML op losse schroeven](https://fd.nl/financiele-markten/1607550/amerikaanse-beleggersclaim-tegen-asml-op-losse-schroeven)
+  > De claimende partijen stellen dat ASML-bestuurders de beleggers in 2024 verkeerd hebben voorgelicht. Maar een New Yorkse rechter zet vraagtekens bij...
+- [Live: Klimmen de beurzen vandaag verder naar records?](https://fd.nl/financiele-markten/1607551/live-klimmen-de-beurzen-vandaag-verder-naar-nieuwe-records)
+  > De Nikkei en Kospi noteren op de laatste dag van de handelsweek hoger. Dichter bij huis komt busfabrikant Ebusco vandaag met halfjaarcijfers.
 - [Tien toeristen op elke inwoner: verzet tegen ‘langzame kolonisatie’ Domburg groeit](https://fd.nl/bedrijfsleven/1603929/tien-toeristen-op-elke-inwoner-verzet-tegen-langzame-kolonisatie-domburg-groeit)
   > Het schilderachtige Domburg is al meer dan honderd jaar een geliefde badplaats. Maar de grote populariteit van het dorp voedt het verzet tegen het...
-- [‘Sportwagenmerk Spyker wordt nu wél profitable!’ bezweert de ceo](https://fd.nl/economie/1607535/sportwagenmerk-spyker-wordt-nu-wel-profitable-bezweert-de-ceo)
-  > Vandaag in Dagkoers: het minderheidskabinet krijgt het moeilijk in de race naar Prinsjesdag; Spykers ceo Victor Muller gelooft heilig in zijn...
-- [De vrije ooievaar](https://fd.nl/opinie/1607603/de-vrije-ooievaar)
-  > Overal ter wereld daalt het geboortecijfer, ziet columnist Casper Thomas. Het besluit de ooievaar wat vaker vrijaf te geven is volgens hem de grote...
-- [Ik mis Frits en zijn liberale schrikbewind](https://fd.nl/opinie/1607522/ik-mis-frits-en-zijn-liberale-schrikbewind)
-  > Europa kan wel wat meer Bolkestein gebruiken: minder privileges, meer concurrentie en vooral minder begrip voor wie zijn eigen economische graf...
-- [Rondreizende après-skihut Bierdorf XXL stuit op verzet van Hoornse horeca](https://fd.nl/samenleving/1607517/rondreizende-apres-skihut-bierdorf-xxl-stuit-op-verzet-van-hoornse-horeca)
-  > Kroegbazen in Hoorn zijn niet blij met de komst van een mobiele tirolerbar van een Brabantse ondernemer. Ze vrezen omzetverlies. ‘Je moet een buffer...
 
 ### Meest gelezen
 
