@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-08-2026 om 21:27*
+*Laatst bijgewerkt: 14-08-2026 om 22:26*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [LIVE VS | BBC wil kinderen en schoonzoon Trump dagvaarden in smaadzaak](https://www.ad.nl/buitenland/live-vs-bbc-wil-kinderen-en-schoonzoon-trump-dagvaarden-in-smaadzaak~ae67dd9c/)
+  > De BBC wil Ivanka Trump, Donald Trump jr. en Jared Kushner dagvaarden in de smaadzaak die Donald Trump tegen de Britse omroep heeft aangespannen. De...
+- [Immobile beëindigt carrière, Tillman mag alweer vertrekken bij Bayer Leverkusen, Dallinga naar Bundesliga?](https://www.ad.nl/voetbal/immobile-beeindigt-carriere-tillman-mag-alweer-vertrekken-bij-bayer-leverkusen-dallinga-naar-bundesliga~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
 - [Femke Broeders-Bol pakt EK-brons op 800 meter en evenaart Nederlands record uit 1992: ‘Echt gaaf!’](https://www.ad.nl/andere-sporten/femke-broeders-bol-pakt-ek-brons-op-800-meter-en-evenaart-nederlands-record-uit-1992-echt-gaaf~acd9b0dee/)
   > Femke Broeders-Bol heeft tijdens de EK atletiek in Birmingham een bronzen medaille veroverd op de 800 meter. Met een tijd van 1:55,54 evenaarde...
 - [Jorinde van Klinken maakt favorietenrol helemaal waar en is Europees kampioene discuswerpen](https://www.ad.nl/andere-sporten/jorinde-van-klinken-maakt-favorietenrol-helemaal-waar-en-is-europees-kampioene-discuswerpen~af3a1cfa/)
   > Jorinde van Klinken heeft op de EK atletiek haar favorietenrol waargemaakt bij het discuswerpen. De 26-jarige Nederlandse was in Birmingham...
-- [Trump tijdens speech: Na verslaan Iran wordt Straat van Hormuz grondgebied VS](https://www.ad.nl/buitenland/trump-tijdens-speech-na-verslaan-iran-wordt-straat-van-hormuz-grondgebied-vs~ac528ac3/)
-  > Nadat de Verenigde Staten Iran hebben verslagen, wordt de Straat van Hormuz uitgeroepen tot Amerikaans grondgebied. Dat heeft president Donald Trump...
-- [Prachtig eerbetoon voor overleden dochtertje Mats Seuntjens: middenvelder barst in tranen uit](https://www.ad.nl/voetbal/prachtig-eerbetoon-voor-overleden-dochtertje-mats-seuntjens-middenvelder-barst-in-tranen-uit~a5143758/)
-  > Voetbal is een bijzaak in het leven, dat bewezen de fans maar weer eens bij NAC Breda. Hun club verloor met 0-2 van VVV-Venlo, maar daar ging het na...
-- [Sparta maakt het zich onnodig moeilijk tegen Telstar, maar is dankzij terechte zege van de ‘nul’ af](https://www.ad.nl/voetbal/sparta-maakt-het-zich-onnodig-moeilijk-tegen-telstar-maar-is-dankzij-terechte-zege-van-de-nul-af~ad504c12/)
-  > Sparta heeft vrijdagavond de eerste overwinning van het seizoen geboekt. Telstar kon – een week na de verrassende zege bij NEC – niet opnieuw pieken...
+- [Mika Godts ondergaat keuring bij PSG: Ajax akkoord over transfersom van 55 miljoen euro](https://www.ad.nl/voetbal/mika-godts-ondergaat-keuring-bij-psg-ajax-akkoord-over-transfersom-van-55-miljoen-euro~ac6fa6a3b/)
+  > Mika Godts gaat zijn droomtransfer naar Paris Saint-Germain maken. Ajax heeft met de Champions League-winnaar overeenstemming bereikt over een...
 
 ### Meest gelezen
 
