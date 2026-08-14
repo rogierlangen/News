@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-08-2026 om 22:26*
+*Laatst bijgewerkt: 14-08-2026 om 23:24*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Trump wil Straat van Hormuz na oorlog tot Amerikaans grondgebied maken](https://nos.nl/l/2626931)
+  > De Amerikaanse president Trump zegt van plan te zijn de Straat van Hormuz na afloop van de oorlog met Iran tot Amerikaans grondgebied uit te roepen....
 - [Extreme droogte leidt tot natuurbranden in meerdere Europese landen](https://nos.nl/l/2626918)
   > Naast Duitsland worden ook andere landen in Europa geteisterd door natuurbranden. Het Europese continent heeft te maken met hoge temperaturen en...
 - [Tractoren op de snelweg zijn verboden, waarom greep de politie niet altijd in?](https://nos.nl/l/2626911)
@@ -16,8 +18,6 @@
   > Een recent opgestapte hoogleraar van de Universiteit van Cambridge, Jason Arday, is volgens Britse media dood aangetroffen. De universiteit deed...
 - [Ebusco nog niet uit de problemen: weer minder bussen verkocht](https://nos.nl/l/2626905)
   > De elektrische bussenbouwer Ebusco heeft het nog steeds zwaar, blijkt uit de zojuist gepubliceerde halfjaarcijfers. Het Brabantse bedrijf leverde de...
-- [Kat stapt aan boord van verkeerde schip en vaart naar Zeeland](https://nos.nl/l/2626899)
-  > Een kat van een schipper is deze week in de haven van Antwerpen aan boord gegaan van het verkeerde binnenvaartschip. Vandaag zijn de kater en zijn...
 
 ### Meest gelezen
 
@@ -27,7 +27,7 @@
 
 ### Laatste nieuws
 
-- [LIVE VS | BBC wil kinderen en schoonzoon Trump dagvaarden in smaadzaak](https://www.ad.nl/buitenland/live-vs-bbc-wil-kinderen-en-schoonzoon-trump-dagvaarden-in-smaadzaak~ae67dd9c/)
+- [BBC wil kinderen en schoonzoon Trump dagvaarden in smaadzaak](https://www.ad.nl/buitenland/bbc-wil-kinderen-en-schoonzoon-trump-dagvaarden-in-smaadzaak~ae67dd9c/)
   > De BBC wil Ivanka Trump, Donald Trump jr. en Jared Kushner dagvaarden in de smaadzaak die Donald Trump tegen de Britse omroep heeft aangespannen. De...
 - [Immobile beëindigt carrière, Tillman mag alweer vertrekken bij Bayer Leverkusen, Dallinga naar Bundesliga?](https://www.ad.nl/voetbal/immobile-beeindigt-carriere-tillman-mag-alweer-vertrekken-bij-bayer-leverkusen-dallinga-naar-bundesliga~acbd43e6/)
   > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Techaandelen trekken Wall Street naar marginaal lager slot](https://fd.nl/financiele-markten/1607781/techaandelen-trekken-wall-street-naar-marginaal-lager-slot)
-  > Nieuwe aanvallen in de Straat van Hormuz en tegenvallende cijfers over de detailhandelsverkopen zetten de aandelen ook onder druk.
-- [Ebusco erkent: er is grote onzekerheid over voortbestaan van het bedrijf](https://fd.nl/bedrijfsleven/1607690/ebusco-erkent-er-is-grote-onzekerheid-over-voortbestaan-van-het-bedrijf)
-  > Het bedrijf geeft aan dat het op twee fronten bezig is extra geld binnen te halen. Lukt dat niet, dan kan Ebusco ‘in de toekomst te maken krijgen met...
-- [Amazon-oprichter Bezos koopt met consortium 30% van Liverpool](https://fd.nl/bedrijfsleven/1607666/amazon-oprichter-bezos-koopt-met-consortium-30-van-liverpool)
-  > Jeff Bezos is de op drie na rijkste man ter wereld. Zijn investering in Liverpool is zijn eerste in een sportclub.
-- [Minder thuiswerken is voor iedereen beter](https://fd.nl/opinie/1607655/minder-thuiswerken-is-voor-iedereen-beter)
-  > Het psychisch welzijn van werknemers neemt af door thuiswerken, blijkt uit onderzoek. Het is dus in ieders belang om geregeld op kantoor te...
-- [Victor Muller in de herkansing met nieuwe sportwagen: ‘Volgend jaar is Spyker gewoon profitable!’](https://fd.nl/bedrijfsleven/1606829/victor-muller-in-de-herkansing-met-nieuwe-sportwagen-volgend-jaar-is-spyker-gewoon-profitable)
-  > Het Nederlandse Spyker is terug met een gloednieuw model. Dit keer wordt het écht een succes, bezweert Victor Muller. Onder zijn hoede zat het merk...
+- [De kleurrijke Turkse badplaats Alaçatı](https://fd.nl/samenleving/1607564/de-kleurrijke-turkse-badplaats-alacat)
+  > Zangeres en pianist Karsu Dönmez vindt rust in het nog niet door toeristen platgelopen Alaçatı, waar men uitgebreid ontbijt en vervolgens toeleeft...
+- [Fotograaf Yasemin Demirözcan: ‘Als er geen foto’s zijn, is het makkelijk om te doen alsof iets er nooit is geweest’](https://fd.nl/samenleving/1607515/fotograaf-yasemin-demirozcan-als-er-geen-fotos-zijn-is-het-makkelijk-om-te-doen-alsof-iets-er-nooit-is-geweest)
+  > Fotograaf Yasemin Demirözcan richt haar camera op onderbelichte en ongeziene gemeenschappen.
+- [Als er een neushoorn in je hoofd zit](https://fd.nl/opinie/1607478/als-er-een-neushoorn-in-je-hoofd-zit)
+  > Hoe een rondreizende witte neushoorn waarschuwt voor kritiekloze volgzaamheid en autoritaire ideeën.
+- [Econometristen uit Utrecht leveren sportbonden over de hele wereld miljoenen extra kijkers op](https://fd.nl/bedrijfsleven/1607201/econometristen-uit-utrecht-leveren-sportbonden-over-de-hele-wereld-miljoenen-extra-kijkers-op)
+  > Het bedrijf Hypercube ontwerpt rankings om competities spannend te houden en ontwerpt de meest complexe speelschema’s, waaronder die van het...
+- [Personalia zaterdag 15 augustus](https://fd.nl/bedrijfsleven/1607566/personalia-zaterdag-15-augustus)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
