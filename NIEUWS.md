@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-08-2026 om 10:25*
+*Laatst bijgewerkt: 15-08-2026 om 11:23*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Grote turfbrand in Belgische Hoge Venen moeilijk te blussen, rook tot in Limburg](https://nos.nl/l/2626958)
-  > De natuurbrand in het Belgische natuurgebied Hoge Venen, op 20 kilometer van de grens bij Limburg, heeft zeker 900 hectare in de as gelegd. De brand...
-- [Verdachte vast na gewelddadige dood man (52) in Werkendam](https://nos.nl/l/2626953)
-  > In Werkendam is een man (41) opgepakt die ervan wordt verdacht betrokken te zijn bij de gewelddadige dood van een andere man (52) vorig weekeinde.
-  ...
-- [Een jaar na Trumps rode loper voor Poetin in Alaska liggen de onderhandelingen stil](https://nos.nl/l/2626949)
-  > Een jaar geleden rolde de Amerikaanse president Trump de rode loper uit voor de Russische president Poetin in Anchorage in Alaska. Sindsdien spreken...
-- [Wekdienst 15/8: Nationale Indië-herdenking in Den Haag • Lieke Klaver jaagt op medaille op EK atletiek](https://nos.nl/l/2626944)
-  > Goedemorgen! Onder meer premier Jetten spreekt vandaag bij de Nationale Indië-herdenking in Den Haag. In Birmingham strijdt Lieke Klaver om een...
-- [Na vijf jaar Taliban blijven vrouwen in Afghanistan vechten voor een toekomst](https://nos.nl/l/2626942)
-  > Zo'n veertig meisjes met roomwitte hoofddoeken boven blauwe jurken zitten gebogen over hun toetsen. Waarschijnlijk is het een van de laatste toetsen...
+- [Roep om verzoening met Japan, 81 jaar na oorlog in Nederlands-Indië](https://nos.nl/l/2626965)
+  > Het is vandaag 81 jaar geleden dat ook in voormalig Nederlands-Indië een einde kwam aan de Tweede Wereldoorlog. De geschiedenis ligt nog steeds...
+- [Kleedjesmarkt Ommen ontruimd vanwege gewapende man op marktplein](https://nos.nl/l/2626964)
+  > De politie heeft vanochtend de Markt in Ommen ontruimd om met zwaarbewapende agenten een man te kunnen oppakken die met een vuurwapen zou hebben...
+- [Veilingvos blijkt 'heilige graal' der opgezette dieren: de uitgestorven Tasmaanse tijger](https://nos.nl/l/2626962)
+  > Een Britse man heeft de "heilige graal" voor natuurhistorische verzamelaars bemachtigd. Bij een veiling in het Verenigd Koninkrijk bleek een...
+- [Negen doden gemeld bij Israëlische luchtaanvallen op Zuid-Libanon](https://nos.nl/l/2626961)
+  > Bij Israëlische luchtaanvallen op Zuid-Libanon zijn negen mensen gedood, onder wie drie kinderen. Ook zijn elf mensen verwond. Dat meldt het Libanese...
+- [Jaar na opening verkeert prestigieus Waddencentrum in financiële nood](https://nos.nl/l/2626960)
+  > Het Werelderfgoedcentrum Waddenzee (WEC) in Lauwersoog verkeert in grote financiële problemen. Het moet een bedrag van 2,8 miljoen euro op tafel...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Kies een kuipplant die je kan laten staan, dat scheelt gesjouw](https://www.ad.nl/wonen/kies-een-kuipplant-die-je-kan-laten-staan-dat-scheelt-gesjouw~a3f04e74/)
-  > De kuipplant is een mooi aanzicht in de tuin, maar zodra het kouder wordt, moet je ’m ergens anders kwijt. Een logeerkamer kan, een kelder liever...
-- [Zandvoortspecial (2): ‘Alles zat mee dat eerste weekend in Zandvoort’](https://www.ad.nl/formule-1/zandvoortspecial-2-alles-zat-mee-dat-eerste-weekend-in-zandvoort~a9a5a1e5/)
-  > De Dutch Grand Prix is bezig aan haar last dance. Het waren zes mooie jaren, dat moet over tien jaar nog mooie verhalen opleveren.
-- [Slipknot kondigt vertrek Sid Wilson aan, maar verwijdert bericht weer](https://www.ad.nl/show/slipknot-kondigt-vertrek-sid-wilson-aan-maar-verwijdert-bericht-weer~a84857c2/)
-  > Slipknot heeft het vertrek van Sid Wilson aangekondigd. De Amerikaanse metalband meldde op sociale media dat de muzikant per direct geen deel meer...
-- [Xan de Waard kreeg een 1 op school, blijft zitten, maar het was het waard: zo werd ze een hockeyicoon](https://www.ad.nl/andere-sporten/xan-de-waard-kreeg-een-1-op-school-blijft-zitten-maar-het-was-het-waard-zo-werd-ze-een-hockeyicoon~a164c994/)
-  > Voor 245-voudig international Xan de Waard gloort deze weken in eigen land een unicum: een vierde wereldtitel. Vandaag begint ze aan haar laatste WK...
-- [Politievakbond wil met lokaal gezag kijken naar boerenacties en hoe dodelijk ongeluk kon gebeuren](https://www.ad.nl/binnenland/politievakbond-wil-met-lokaal-gezag-kijken-naar-boerenacties-en-hoe-dodelijk-ongeluk-kon-gebeuren~aa275202/)
-  > Politievakbond ACP wil dat er met het lokale gezag wordt gereflecteerd over de handhaving rond de boerenacties op snelwegen richting Den Bosch en het...
+- [TransferTalk | Argentijnse WK-ganger naar Atlético voor 40 miljoen, aanvoerdersband Højbjerg afgenomen na weigeren transfer](https://www.ad.nl/voetbal/transfertalk-argentijnse-wk-ganger-naar-atletico-voor-40-miljoen-aanvoerdersband-hojbjerg-afgenomen-na-weigeren-transfer~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Waterpret voor Verstappen, Russell verloofd en Hamilton geniet met Kim Kardashian van nieuwe puppy](https://www.ad.nl/formule-1/waterpret-voor-verstappen-russell-verloofd-en-hamilton-geniet-met-kim-kardashian-van-nieuwe-puppy~ab0c7d49/)
+  > De zomerstop is in volle gang in de Formule 1. De coureurs, teambazen, ingenieurs en monteurs hoeven zich drie weken niet te melden in de fabrieken....
+- [Meerkampsters blijven in de top meedoen: Dokter nog altijd tweede, persoonlijk record voor Oosterwegel bij verspringen](https://www.ad.nl/andere-sporten/meerkampsters-blijven-in-de-top-meedoen-dokter-nog-altijd-tweede-persoonlijk-record-voor-oosterwegel-bij-verspringen~a931e786/)
+  > Het is het slotweekend van de EK atletiek in het Engelse Birmingham. Hoeveel medailles gaat Nederland uiteindelijk pakken? Hier blijf je op de hoogte...
+- [The Beatles als nieuwe Mozart? Superfan Peter Eijgenhuijsen probeert het te bewijzen in nieuw boek](https://www.ad.nl/show/the-beatles-als-nieuwe-mozart-superfan-peter-eijgenhuijsen-probeert-het-te-bewijzen-in-nieuw-boek~ae07390b/)
+  > Over geen muziekband zijn zo veel boeken geschreven als over The Beatles. Het sprookje van vier gewone jongens uit Liverpool die vanaf 1963 de wereld...
+- [Oekraïne valt militair vliegveld aan waar MiG-31-straaljagers staan](https://www.ad.nl/buitenland/oekraine-valt-militair-vliegveld-aan-waar-mig-31-straaljagers-staan~adfb97be/)
+  > Oekraïne heeft een militaire vliegbasis aangevallen waar MiG-31-gevechtsvliegtuigen staan. Volgens president Zelensky gaat het om de...
 
 ### Meest gelezen
 
@@ -47,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Brits verbod op wegwerpbarbecues tegen natuurbranden](https://fd.nl/samenleving/1607878/brits-verbod-op-wegwerpbarbecues-tegen-natuurbranden)
+  > Burgers in Engeland en Wales ontvingen vrijdagavond bericht op hun telefoon dat zij voorzichtig moeten zijn vanwege verhoogd risico op branden.
 - [‘Omzet Anthropic groeit met factor 14 in een jaar tijd’](https://fd.nl/bedrijfsleven/1607877/omzet-anthropic-groeit-met-factor-14-in-een-jaar-tijd)
   > De groei is een essentieel onderdeel van de waarde van de chatbotmaker, die later dit jaar naar de beurs wil.
 - [‘VS dringen er bij Apple op aan om geen Chinese chips te kopen’](https://fd.nl/bedrijfsleven/1607876/vs-dringen-er-bij-apple-op-aan-om-geen-chinese-chips-te-kopen)
@@ -55,8 +56,6 @@
   > Bedrijven als Spotify, LinkedIn en Youtube installeren filters of verwijderen AI-content, in een poging om de stroom aan ‘slop’ terug te dringen.
 - [EU-plan tegen pesticiden in import kan koffie tot drie keer zo duur maken](https://fd.nl/economie/1607563/eu-plan-tegen-pesticiden-in-import-kan-koffie-veel-duurder-maken)
   > Als Europa verboden pesticiden volledig uit de import van landbouwproducten weert, kan de aanvoer van agrarische goederen in het ergste geval met 41%...
-- [Wat is de prijs van een dalend geboortecijfer?](https://fd.nl/samenleving/1607657/wat-is-de-prijs-van-een-dalend-geboortecijfer)
-  > Hoe kan het dat er steeds minder kinderen geboren worden? En wat betekent dat voor de samenleving? Daar gaat deze aflevering van de FD-Summerschool...
 
 ### Meest gelezen
 
