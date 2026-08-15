@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-08-2026 om 22:25*
+*Laatst bijgewerkt: 15-08-2026 om 23:22*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Dodental beving Colombia inmiddels 294, hoop vervliegt voor mensen onder puin](https://nos.nl/l/2627068)
+  > Het dodental door de zware aardbeving in Colombia van maandag is opgelopen tot 294. Ruim 300 mensen worden nog vermist. Reddingswerkers vrezen dat de...
 - [Rio de Janeiro heeft Jezusbeeld, Pools dorpje gigantisch Mariabeeld](https://nos.nl/l/2627056)
   > Het Poolse dorpje Konotopie met minder dan 150 inwoners kan zich voortaan meten met de Braziliaanse miljoenenstad Rio de Janeiro. Op beide plekken...
 - [Duitse natuurbrand onder controle, 2000 evacués terug naar huis](https://nos.nl/l/2627044)
@@ -16,8 +18,6 @@
   > Bij een strandopruimactie langs de Noordzeekust zijn bijna 80.000 sigarettenpeuken gevonden. Dat zijn er ruim de helft meer dan vorig jaar, meldt...
 - [Marokko pakt bijna 300 migranten op bij Ceuta, Spaanse journalisten uitgezet](https://nos.nl/l/2627028)
   > Het Marokkaanse leger heeft honderden mensen verjaagd die vanuit Marokko het Spaanse Ceuta probeerden binnen te komen. Volgens Marokkaanse...
-- [Slachtoffers herdacht bij Nationale Indiëherdenking: 'Verhalen bieden houvast'](https://nos.nl/l/2627023)
-  > Bij het Indisch Monument in Den Haag is stilgestaan bij het einde van de Tweede Wereldoorlog in het voormalig Nederlands-Indië, het huidige...
 
 ### Meest gelezen
 
