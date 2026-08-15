@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-08-2026 om 07:33*
+*Laatst bijgewerkt: 15-08-2026 om 08:32*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Een jaar na Trumps rode loper voor Poetin in Alaska liggen de onderhandelingen stil](https://nos.nl/l/2626949)
+  > Een jaar geleden rolde de Amerikaanse president Trump de rode loper uit voor de Russische president Poetin in Anchorage in Alaska. Sindsdien spreken...
 - [Wekdienst 15/8: Nationale Indië-herdenking in Den Haag • Lieke Klaver jaagt op medaille op EK atletiek](https://nos.nl/l/2626944)
   > Goedemorgen! Onder meer premier Jetten spreekt vandaag bij de Nationale Indië-herdenking in Den Haag. In Birmingham strijdt Lieke Klaver om een...
 - [Na vijf jaar Taliban blijven vrouwen in Afghanistan vechten voor een toekomst](https://nos.nl/l/2626942)
@@ -16,8 +18,6 @@
   > Met voeding, beweging, supplementen, vitamine-infusen, heel veel scans en onderzoeken en zelfs bloedtransfusie of stamceltherapie je leven zo lang...
 - [Zeker twintig doden na aardbeving met kracht van 7,7 voor kust van Indonesië](https://nos.nl/l/2626934)
   > Voor de kust van het Indonesische eiland Flores is een zware aardbeving geweest met een kracht van 7,7. Die heeft aan zeker twintig mensen het leven...
-- [Gestolen schilderijen van Renoir, Cézanne en Matisse weer terecht](https://nos.nl/l/2626933)
-  > De Italiaanse politie heeft drie schilderijen teruggevonden die vijf maanden geleden uit een museum bij Parma waren gestolen. Het gaat om kunstwerken...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Meerkampsters Sofie Dokter en Emma Oosterwegel zetten  jacht op medaille voort, al acht plakken voor Nederland dit EK](https://www.ad.nl/andere-sporten/meerkampsters-sofie-dokter-en-emma-oosterwegel-zetten-jacht-op-medaille-voort-al-acht-plakken-voor-nederland-dit-ek~a931e786/)
-  > Het is het slotweekend van de EK atletiek in het Engelse Birmingham. Hoeveel medailles gaat Nederland uiteindelijk pakken? Hier blijf je op de hoogte...
-- [Femke Broeders-Bol verbaast zichzelf in Birmingham: ‘Mijn benen gaan sneller dan mijn hoofd’](https://www.ad.nl/andere-sporten/femke-broeders-bol-verbaast-zichzelf-in-birmingham-mijn-benen-gaan-sneller-dan-mijn-hoofd~a923c60e/)
-  > In de EK-finale, haar belangrijkste 800-meter tot nu toe, liep Femke Broeders-Bol beter dan ooit. Brons in een Nederlands record. Beter dan ze zelf...
-- [LIVE vakantieblog | Vertrekhallen van grootste vliegveld in Londen overstroomd](https://www.ad.nl/buitenland/live-vakantieblog-vertrekhallen-van-grootste-vliegveld-in-londen-overstroomd~a4195717/)
-  > Door overstromingen in vertrekhallen 2 en 3 op vliegveld Heathrow is het zaterdagochtend niet mogelijk om er met de auto te komen. Dat meldt de...
-- [Wielerwereld rouwt om overleden Britse renner Finlay Tarling (19): ‘Het leven is gewoon niet eerlijk’](https://www.ad.nl/wielrennen/wielerwereld-rouwt-om-overleden-britse-renner-finlay-tarling-19-het-leven-is-gewoon-niet-eerlijk~afea52b1/)
-  > De wielerwereld rouwt om het overlijden van de 19-jarige Britse wielrenner Finlay Tarling. Hij kwam vrijdag tijdens de Ronde van Portugal in botsing...
-- [Perez Hilton na zelfverwonding ook behandeld voor overdosis](https://www.ad.nl/show/perez-hilton-na-zelfverwonding-ook-behandeld-voor-overdosis~ad0ed008/)
-  > Perez Hilton is na het incident waarbij hij zichzelf verwondde ook behandeld voor een overdosis. Dat blijkt volgens People uit een nieuw vrijgegeven...
+- [Diederik en Anouk uit Bondgenoten officieel een koppel: ‘Staan helemaal achter ons gevoel’](https://www.ad.nl/show/diederik-en-anouk-uit-bondgenoten-officieel-een-koppel-staan-helemaal-achter-ons-gevoel~a7cdf18f/)
+  > Diederik en Anouk, die stof deden opwaaien met hun oplaaiende romance in De Bondgenoten, zijn officieel een stelletje. Dat deelden de tortelduifjes...
+- [Wanneer is het financieel interessant om een thuisbatterij aan te schaffen? ‘Begin bij je eigen stroomverbruik’](https://www.ad.nl/wonen/wanneer-is-het-financieel-interessant-om-een-thuisbatterij-aan-te-schaffen-begin-bij-je-eigen-stroomverbruik~a33d86db/)
+  > Een thuisbatterij helpt je meer eigen zonnestroom te gebruiken, maar waar moet je op letten? Nu de salderingsregeling per 1 januari 2027 verdwijnt,...
+- [Nu ze maat M heeft, durft Hanneke in het openbaar eindelijk te eten wat ze wil](https://www.ad.nl/mezza/nu-ze-maat-m-heeft-durft-hanneke-in-het-openbaar-eindelijk-te-eten-wat-ze-wil~a92bc44f/)
+  > Nu Hanneke Mijnster (45) is gehalveerd in omvang, valt haar op hoe vaak anderen zich bemoeiden met wat er op haar bord lag. Lees hier haar verhaal...
+- [Argentijnse WK-ganger naar Atlético voor 40 miljoen, Ciro Immobile beëindigt carrière](https://www.ad.nl/voetbal/argentijnse-wk-ganger-naar-atletico-voor-40-miljoen-ciro-immobile-beeindigt-carriere~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Grote bosbranden in Duitsland en België, verwarring in Wales na noodmelding in lokale taal](https://www.ad.nl/buitenland/grote-bosbranden-in-duitsland-en-belgie-verwarring-in-wales-na-noodmelding-in-lokale-taal~ad0a3949/)
+  > De natuurbrand in de Duitse gemeente Hürtgenwald is de grootste in de geschiedenis van de deelstaat Noordrijn-Westfalen, meldt het lokale bestuur. De...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [‘VS dringen er bij Apple op aan om geen Chinese chips te kopen’](https://fd.nl/bedrijfsleven/1607876/vs-dringen-er-bij-apple-op-aan-om-geen-chinese-chips-te-kopen)
+  > In gesprek met de Wall Street Journal heeft handelsminister Lutnick het technologiebedrijf ‘duidelijk verteld’ dat de Amerikaanse regering het niet...
 - [Digitale platforms intensiveren strijd tegen AI-rotzooi](https://fd.nl/bedrijfsleven/1607634/digitale-platforms-intensiveren-strijd-tegen-ai-rotzooi)
   > Bedrijven als Spotify, LinkedIn en Youtube installeren filters of verwijderen AI-content, in een poging om de stroom aan ‘slop’ terug te dringen.
 - [EU-plan tegen pesticiden in import kan koffie tot drie keer zo duur maken](https://fd.nl/economie/1607563/eu-plan-tegen-pesticiden-in-import-kan-koffie-veel-duurder-maken)
@@ -54,8 +56,6 @@
   > Hoe kan het dat er steeds minder kinderen geboren worden? En wat betekent dat voor de samenleving? Daar gaat deze aflevering van de FD-Summerschool...
 - [De kleurrijke Turkse badplaats Alaçatı](https://fd.nl/samenleving/1607564/de-kleurrijke-turkse-badplaats-alacat)
   > Zangeres en pianist Karsu Dönmez vindt rust in het nog niet door toeristen platgelopen Alaçatı, waar men uitgebreid ontbijt en vervolgens toeleeft...
-- [Fotograaf Yasemin Demirözcan: ‘Als er geen foto’s zijn, is het makkelijk om te doen alsof iets er nooit is geweest’](https://fd.nl/samenleving/1607515/fotograaf-yasemin-demirozcan-als-er-geen-fotos-zijn-is-het-makkelijk-om-te-doen-alsof-iets-er-nooit-is-geweest)
-  > Fotograaf Yasemin Demirözcan richt haar camera op onderbelichte en ongeziene gemeenschappen.
 
 ### Meest gelezen
 
