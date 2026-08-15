@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-08-2026 om 14:26*
+*Laatst bijgewerkt: 15-08-2026 om 15:24*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Gladys beleefde aardbeving op Flores: 'Ik dacht even: dit zou het kunnen zijn'](https://nos.nl/l/2626977)
+- [Siciliaanse luchthaven Catania start langzaam weer op na uitbarsting Etna](https://nos.nl/l/2626992)
+  > Het vliegverkeer bij Catania op het Italiaanse eiland Sicilië wordt weer opgestart. Vluchten waren dagenlang ontregeld door uitbarstingen van de...
+- [Waterpeil IJsselmeer door zomerse ondergrens gezakt, overleg over maatregelen](https://nos.nl/l/2626987)
+  > Het waterpeil in het IJsselmeer is door de ondergrens gezakt die in de zomer wordt gehanteerd. Rijkswaterstaat gebruikt bandbreedtes voor het...
+- [XR blokkeert A12 in Den Haag weer: 'Catastrofale droogte is geen ongeluk'](https://nos.nl/l/2626984)
+  > Klimaatactivisten van Extinction Rebellion (XR) hebben vanmiddag opnieuw de toegangsweg tot de A12 in Den Haag geblokkeerd. Rond 14.00 uur liepen...
+- [Nederlanders beleefden aardbeving op Flores: 'Ik dacht even: dit zou het kunnen zijn'](https://nos.nl/l/2626977)
   > "Ik was echt doodsbang", vertelt Gladys Victoria. De 21-jarige reisinfluencer werd vannacht in Labuan Bajo gewekt doordat gruis van het plafond op...
 - [Japanse regering laat berouw over oorlogsverleden achterwege bij beladen herdenking](https://nos.nl/l/2626974)
   > Op de dag waarop Japan het einde van de Tweede Wereldoorlog herdenkt, kiest het kabinet van premier Takaichi ervoor vooral de eigen slachtoffers te...
-- [Frans gezin dobbert in Thailand 16 uur op zee met half gezonken jetski](https://nos.nl/l/2626972)
-  > Een Franse vader heeft met zijn jonge kinderen meer dan 16 uur vastgezeten op zee. Voor de kust van Thailand was hun gehuurde jetski deels gezonken....
-- [Roep om verzoening met Japan, 81 jaar na oorlog in Nederlands-Indië](https://nos.nl/l/2626965)
-  > Het is vandaag 81 jaar geleden dat ook in voormalig Nederlands-Indië een einde kwam aan de Tweede Wereldoorlog. De geschiedenis ligt nog steeds...
-- [Kleedjesmarkt Ommen ontruimd vanwege gewapende man op marktplein](https://nos.nl/l/2626964)
-  > De politie heeft vanochtend de Markt in Ommen ontruimd om met zwaarbewapende agenten een man te kunnen oppakken die met een vuurwapen zou hebben...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Wil je geen alcohol drinken maar wel meetoasten? Dit zijn dé alcoholvrije drankjes van deze zomer](https://www.ad.nl/gezond/wil-je-geen-alcohol-drinken-maar-wel-meetoasten-dit-zijn-de-alcoholvrije-drankjes-van-deze-zomer~aae37bb1/)
-  > Een zomers drankje op het terras hoeft allang geen alcohol meer te bevatten. Naast alcoholvrij bier groeit een nieuwe markt met volwassen...
-- [Vajèn gaat musicalavontuur aan in Londen: ‘Durf inmiddels te zeggen dat ik hier hard voor heb gewerkt’](https://www.ad.nl/show/vajen-gaat-musicalavontuur-aan-in-londen-durf-inmiddels-te-zeggen-dat-ik-hier-hard-voor-heb-gewerkt~add48c25/)
-  > Ze wist het al sinds juni, maar moest wekenlang haar lippen stijf op elkaar houden. Nu mag de hele wereld het weten: Vajèn van den Bosch (28)...
-- [Vijf jaar zuchten onder talibanbewind: ‘Het voelt alsof ons lot niemand iets kan schelen’](https://www.ad.nl/buitenland/vijf-jaar-zuchten-onder-talibanbewind-het-voelt-alsof-ons-lot-niemand-iets-kan-schelen~a604765b/)
-  > Vijf jaar na de machtsgreep van de taliban beschrijft correspondent Wilma van der Maten hoe ze in haar flat in de Pakistaanse stad Islamabad nieuwe...
-- [Hockeysters beginnen voor eigen publiek aan jacht op nieuwe wereldtitel](https://www.ad.nl/andere-sporten/hockeysters-beginnen-voor-eigen-publiek-aan-jacht-op-nieuwe-wereldtitel~ada82563/)
+- [NEC vindt in laatste seconde voor rust de opening in stroperig duel met Willem II, debutant kopt raak](https://www.ad.nl/voetbal/nec-vindt-in-laatste-seconde-voor-rust-de-opening-in-stroperig-duel-met-willem-ii-debutant-kopt-raak~ae3a362f/)
+  > NEC kende geen al te beste start in de eredivisie, maar het moraal is goed in Nijmegen. De club behaalde namelijk de play-offs van de Champions...
+- [Oud-speler AZ in beeld om bondscoach van Schotland te worden, Argentijnse WK-ganger naar Atlético voor 40 miljoen](https://www.ad.nl/voetbal/oud-speler-az-in-beeld-om-bondscoach-van-schotland-te-worden-argentijnse-wk-ganger-naar-atletico-voor-40-miljoen~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Maarten van der Weijden over zijn tocht: ‘Ik denk dat mijn leven pas iets waard is als ik dit doe’](https://www.ad.nl/mezza/maarten-van-der-weijden-over-zijn-tocht-ik-denk-dat-mijn-leven-pas-iets-waard-is-als-ik-dit-doe~af0408b3/)
+  > In zijn woonplaats Vught begint Maarten van der Weijden aan zijn allerlaatste extreme zwemtocht: 270 kilometer, in zes dagen. In ‘die tunnel van...
+- [Hockeysters koersen af op zege in openingsduel: Yibbi Jansen verdubbelt voorsprong tegen Chili](https://www.ad.nl/andere-sporten/hockeysters-koersen-af-op-zege-in-openingsduel-yibbi-jansen-verdubbelt-voorsprong-tegen-chili~ada82563/)
   > Is de sportzomer voorbij? Nee hoor, de Nederlandse hockeymannen en -vrouwen beginnen vanaf dit weekend aan de jacht op de wereldtitel in eigen land....
-- [LIVE vakantieblog | Luchthaven Catania start vliegverkeer weer op na sluiting om vulkaan Etna](https://www.ad.nl/buitenland/live-vakantieblog-luchthaven-catania-start-vliegverkeer-weer-op-na-sluiting-om-vulkaan-etna~a4195717/)
-  > Er kunnen vanaf zaterdagmiddag weer vluchten vertrekken vanaf de luchthaven van het Italiaanse Catania. Het vliegveld ging eerder deze week dicht...
+- [Inwoners van 22 straten worden geëvacueerd om ‘ergste brand in Belgische geschiedenis’](https://www.ad.nl/buitenland/inwoners-van-22-straten-worden-geevacueerd-om-ergste-brand-in-belgische-geschiedenis~ad0a3949/)
+  > Brandbestrijders proberen in de Belgische gemeente Baelen een grote veenbrand onder controle te krijgen. Er worden onder meer helikopters ingezet,...
 
 ### Meest gelezen
 
