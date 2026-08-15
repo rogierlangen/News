@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-08-2026 om 15:24*
+*Laatst bijgewerkt: 15-08-2026 om 16:28*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Natuurbrand is grootste ooit in België, twee dorpen gedeeltelijk ontruimd](https://nos.nl/l/2626995)
+  > De natuurbrand in het Belgische natuurgebied Hoge Venen is nog niet onder controle. Aan de noordkant is het vuur ingedamd, maar richting het oosten...
 - [Siciliaanse luchthaven Catania start langzaam weer op na uitbarsting Etna](https://nos.nl/l/2626992)
   > Het vliegverkeer bij Catania op het Italiaanse eiland Sicilië wordt weer opgestart. Vluchten waren dagenlang ontregeld door uitbarstingen van de...
 - [Waterpeil IJsselmeer door zomerse ondergrens gezakt, overleg over maatregelen](https://nos.nl/l/2626987)
@@ -16,8 +18,6 @@
   > Klimaatactivisten van Extinction Rebellion (XR) hebben vanmiddag opnieuw de toegangsweg tot de A12 in Den Haag geblokkeerd. Rond 14.00 uur liepen...
 - [Nederlanders beleefden aardbeving op Flores: 'Ik dacht even: dit zou het kunnen zijn'](https://nos.nl/l/2626977)
   > "Ik was echt doodsbang", vertelt Gladys Victoria. De 21-jarige reisinfluencer werd vannacht in Labuan Bajo gewekt doordat gruis van het plafond op...
-- [Japanse regering laat berouw over oorlogsverleden achterwege bij beladen herdenking](https://nos.nl/l/2626974)
-  > Op de dag waarop Japan het einde van de Tweede Wereldoorlog herdenkt, kiest het kabinet van premier Takaichi ervoor vooral de eigen slachtoffers te...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [NEC vindt in laatste seconde voor rust de opening in stroperig duel met Willem II, debutant kopt raak](https://www.ad.nl/voetbal/nec-vindt-in-laatste-seconde-voor-rust-de-opening-in-stroperig-duel-met-willem-ii-debutant-kopt-raak~ae3a362f/)
-  > NEC kende geen al te beste start in de eredivisie, maar het moraal is goed in Nijmegen. De club behaalde namelijk de play-offs van de Champions...
-- [Oud-speler AZ in beeld om bondscoach van Schotland te worden, Argentijnse WK-ganger naar Atlético voor 40 miljoen](https://www.ad.nl/voetbal/oud-speler-az-in-beeld-om-bondscoach-van-schotland-te-worden-argentijnse-wk-ganger-naar-atletico-voor-40-miljoen~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [Maarten van der Weijden over zijn tocht: ‘Ik denk dat mijn leven pas iets waard is als ik dit doe’](https://www.ad.nl/mezza/maarten-van-der-weijden-over-zijn-tocht-ik-denk-dat-mijn-leven-pas-iets-waard-is-als-ik-dit-doe~af0408b3/)
-  > In zijn woonplaats Vught begint Maarten van der Weijden aan zijn allerlaatste extreme zwemtocht: 270 kilometer, in zes dagen. In ‘die tunnel van...
-- [Hockeysters koersen af op zege in openingsduel: Yibbi Jansen verdubbelt voorsprong tegen Chili](https://www.ad.nl/andere-sporten/hockeysters-koersen-af-op-zege-in-openingsduel-yibbi-jansen-verdubbelt-voorsprong-tegen-chili~ada82563/)
-  > Is de sportzomer voorbij? Nee hoor, de Nederlandse hockeymannen en -vrouwen beginnen vanaf dit weekend aan de jacht op de wereldtitel in eigen land....
-- [Inwoners van 22 straten worden geëvacueerd om ‘ergste brand in Belgische geschiedenis’](https://www.ad.nl/buitenland/inwoners-van-22-straten-worden-geevacueerd-om-ergste-brand-in-belgische-geschiedenis~ad0a3949/)
-  > Brandbestrijders proberen in de Belgische gemeente Baelen een grote veenbrand onder controle te krijgen. Er worden onder meer helikopters ingezet,...
+- [NEC kent met ruime zege op Willem II uitstekende generale voor tweeluik in Champions League tegen Bodø/Glimt](https://www.ad.nl/voetbal/nec-kent-met-ruime-zege-op-willem-ii-uitstekende-generale-voor-tweeluik-in-champions-league-tegen-bodo-glimt~ae3a362f/)
+  > NEC heeft een goede generale gedraaid voor het tweeluik in de play-offs van de Champions League. De Nijmegenaren walsden in de tweede helft over...
+- [Jason Derulo annuleert optreden in Rotterdam op laatste moment](https://www.ad.nl/rotterdam/jason-derulo-annuleert-optreden-in-rotterdam-op-laatste-moment~a1f5a145/)
+  > Het optreden van Jason Derulo bij Villa Thalia in Rotterdam gaat zaterdagavond niet door. De Amerikaanse zanger laat via Instagram weten dat hij...
+- [Joris van Overeem speelt niet bij FC Utrecht tegen zijn oude club AZ, spits Stepanov wel](https://www.ad.nl/utrecht/joris-van-overeem-speelt-niet-bij-fc-utrecht-tegen-zijn-oude-club-az-spits-stepanov-wel~a176b4380/)
+  > AZ heeft de Johan Cruijff Schaal en de eerste zege in de Vriendenloterij eredivisie op zak. FC Utrecht verloor vorige week onnodig van FC Groningen...
+- [Qatar houdt Israël verantwoordelijk voor geweld tegen Palestijnen en roept op tot ingrijpen](https://www.ad.nl/buitenland/qatar-houdt-israel-verantwoordelijk-voor-geweld-tegen-palestijnen-en-roept-op-tot-ingrijpen~ac528ac3/)
+  > Qatar houdt Israël verantwoordelijk voor het toegenomen geweld tegen Palestijnen door Joodse kolonisten op de bezette Westelijke Jordaanoever. Het...
+- [Gemiste strafcorners doen hockeysters geen pijn: Oranje begint WK in eigen land met zuinige zege](https://www.ad.nl/andere-sporten/gemiste-strafcorners-doen-hockeysters-geen-pijn-oranje-begint-wk-in-eigen-land-met-zuinige-zege~ada82563/)
+  > De Nederlandse hockeysters zijn het WK in eigen land begonnen met een eenvoudige overwinning. In de groepswedstrijd tegen Chili regende het kansen,...
 
 ### Meest gelezen
 
