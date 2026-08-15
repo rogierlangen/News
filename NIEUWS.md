@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-08-2026 om 11:23*
+*Laatst bijgewerkt: 15-08-2026 om 12:43*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [TransferTalk | Argentijnse WK-ganger naar Atlético voor 40 miljoen, aanvoerdersband Højbjerg afgenomen na weigeren transfer](https://www.ad.nl/voetbal/transfertalk-argentijnse-wk-ganger-naar-atletico-voor-40-miljoen-aanvoerdersband-hojbjerg-afgenomen-na-weigeren-transfer~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [Waterpret voor Verstappen, Russell verloofd en Hamilton geniet met Kim Kardashian van nieuwe puppy](https://www.ad.nl/formule-1/waterpret-voor-verstappen-russell-verloofd-en-hamilton-geniet-met-kim-kardashian-van-nieuwe-puppy~ab0c7d49/)
-  > De zomerstop is in volle gang in de Formule 1. De coureurs, teambazen, ingenieurs en monteurs hoeven zich drie weken niet te melden in de fabrieken....
-- [Meerkampsters blijven in de top meedoen: Dokter nog altijd tweede, persoonlijk record voor Oosterwegel bij verspringen](https://www.ad.nl/andere-sporten/meerkampsters-blijven-in-de-top-meedoen-dokter-nog-altijd-tweede-persoonlijk-record-voor-oosterwegel-bij-verspringen~a931e786/)
+- [Sportscholen schieten uit de grond, zelfs boven de McDonald’s: ‘Kom je calorieën pakken of verbranden?’](https://www.ad.nl/binnenland/sportscholen-schieten-uit-de-grond-zelfs-boven-de-mcdonalds-kom-je-calorieen-pakken-of-verbranden~ab31337f/)
+  > Sportscholen schieten als paddenstoelen uit de Haagse grond. De stad telt er meer dan twee keer zoveel als in 2017. Zorgwekkende cijfers zijn er ook:...
+- [Ahmetcan Kaplan keert toch terug bij NEC: Nijmegenaren bereiken akkoord met Ajax voor 2,5 miljoen euro](https://www.ad.nl/voetbal/ahmetcan-kaplan-keert-toch-terug-bij-nec-nijmegenaren-bereiken-akkoord-met-ajax-voor-2-5-miljoen-euro~a1f27d24/)
+  > Ajax gaat Ahmetcan Kaplan definitief verkopen aan NEC. De clubs hebben een akkoord bereikt over een transfersom van 2,5 miljoen euro. De Turkse...
+- [LIVE EK atletiek | Dokter en Oosterwegel met nog één onderdeel te gaan op medaillekoers, estafettemannen naar finale 4x100 meter](https://www.ad.nl/andere-sporten/live-ek-atletiek-dokter-en-oosterwegel-met-nog-een-onderdeel-te-gaan-op-medaillekoers-estafettemannen-naar-finale-4x100-meter~a931e786/)
   > Het is het slotweekend van de EK atletiek in het Engelse Birmingham. Hoeveel medailles gaat Nederland uiteindelijk pakken? Hier blijf je op de hoogte...
-- [The Beatles als nieuwe Mozart? Superfan Peter Eijgenhuijsen probeert het te bewijzen in nieuw boek](https://www.ad.nl/show/the-beatles-als-nieuwe-mozart-superfan-peter-eijgenhuijsen-probeert-het-te-bewijzen-in-nieuw-boek~ae07390b/)
-  > Over geen muziekband zijn zo veel boeken geschreven als over The Beatles. Het sprookje van vier gewone jongens uit Liverpool die vanaf 1963 de wereld...
-- [Oekraïne valt militair vliegveld aan waar MiG-31-straaljagers staan](https://www.ad.nl/buitenland/oekraine-valt-militair-vliegveld-aan-waar-mig-31-straaljagers-staan~adfb97be/)
-  > Oekraïne heeft een militaire vliegbasis aangevallen waar MiG-31-gevechtsvliegtuigen staan. Volgens president Zelensky gaat het om de...
+- [Extinction Rebellion blokkeert opnieuw A12 in Den Haag](https://www.ad.nl/binnenland/extinction-rebellion-blokkeert-opnieuw-a12-in-den-haag~a7b19814/)
+  > Een groep van veertig klimaatactivisten van Extinction Rebellion (XR) hebben de toegang tot de A12 in Den Haag geblokkeerd. Rond 14.00 uur staan de...
+- [Yolanthe poseert op paradijselijke locatie en Miljuschka hangt de held uit](https://www.ad.nl/show/yolanthe-poseert-op-paradijselijke-locatie-en-miljuschka-hangt-de-held-uit~acd03c0c/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
 
 ### Meest gelezen
 
