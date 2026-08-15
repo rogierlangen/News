@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-08-2026 om 03:41*
+*Laatst bijgewerkt: 15-08-2026 om 04:34*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dit type thuisbatterij haal je in winkel en plaats je zelf, maar er zijn zorgen om veiligheid: ‘Kom ze als bijzettafel tegen’](https://www.ad.nl/economie/dit-type-thuisbatterij-haal-je-in-winkel-en-plaats-je-zelf-maar-er-zijn-zorgen-om-veiligheid-kom-ze-als-bijzettafel-tegen~a60e8114/)
-  > De aanschaf en installatie van een nieuwe generatie krachtige thuisbatterijen wordt even gemakkelijk als het kopen van een pak melk. De...
-- [EasyJet annuleert vluchten in Frankrijk wegens staking cabinepersoneel](https://www.ad.nl/buitenland/easyjet-annuleert-vluchten-in-frankrijk-wegens-staking-cabinepersoneel~a515ba66/)
-  > Een honderdtal vluchten van easyJet is zaterdag en zondag in Frankrijk geannuleerd wegens een aangekondigde staking van cabinepersoneel.
-- [Doden, gewonden en schade na hevige aardbeving met kracht van 7,7 bij Indonesisch eiland Flores](https://www.ad.nl/buitenland/doden-gewonden-en-schade-na-hevige-aardbeving-met-kracht-van-7-7-bij-indonesisch-eiland-flores~abdfb109/)
-  > Bij een aardbeving met een kracht van 7,7 op het Indonesische eiland Flores zijn zaterdagochtend (lokale tijd) zeker vijf doden en vijf gewonden...
-- [Trump ontkent misstanden op vliegdekschip in Midden-Oosten: ‘Niet te lang onderweg’](https://www.ad.nl/buitenland/trump-ontkent-misstanden-op-vliegdekschip-in-midden-oosten-niet-te-lang-onderweg~ae67dd9c/)
-  > De Amerikaanse president Donald Trump heeft vrijdag klachten van familieleden van militairen over de omstandigheden op het vliegdekschip USS Abraham...
-- [Immobile beëindigt carrière, Tillman mag alweer vertrekken bij Bayer Leverkusen, Dallinga naar Bundesliga?](https://www.ad.nl/voetbal/immobile-beeindigt-carriere-tillman-mag-alweer-vertrekken-bij-bayer-leverkusen-dallinga-naar-bundesliga~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Eredivisie-directeur waarschuwt: ‘De Champions League maakt nu de nationale competities kapot’](https://www.ad.nl/voetbal/eredivisie-directeur-waarschuwt-de-champions-league-maakt-nu-de-nationale-competities-kapot~a8bcbf9a/)
+  > De eredivisie bestaat dit seizoen zeventig jaar, de stadions zitten voller dan ooit, maar toch is lang niet alles vrolijkmakend. Het niveau van het...
+- [Vajèn van den Bosch krijgt hoofdrol in Londense musical The greatest showman](https://www.ad.nl/show/vajen-van-den-bosch-krijgt-hoofdrol-in-londense-musical-the-greatest-showman~a57fd89f/)
+  > Actrice Vajèn van den Bosch zal vanaf komend voorjaar te zien zijn op West End in de nieuwe Disney-musical The greatest showman. Dat heeft Disney...
+- [Waarom je moet oppassen als je vandaag een schuimlaag op de weg ziet](https://www.ad.nl/auto/waarom-je-moet-oppassen-als-je-vandaag-een-schuimlaag-op-de-weg-ziet~a2197074f/)
+  > Wie zaterdag de weg op gaat, moet extra alert zijn op zogenoemde zomergladheid. Volgens het KNMI kunnen er vandaag vooral in het noorden en westen...
+- [Rijke Chinese vrouw financiert eigen dramaserie zodat ze 60 keer kan zoenen met favoriete acteur](https://www.ad.nl/buitenland/rijke-chinese-vrouw-financiert-eigen-dramaserie-zodat-ze-60-keer-kan-zoenen-met-favoriete-acteur~ad6d48b2/)
+  > Een rijke Chinese vrouw heeft haar vermogen op een wel heel opmerkelijke manier ingezet. Ze kocht zichzelf in als de romantische hoofdrolspeelster in...
+- [Verlies laat diepe indruk achter: jaar na gewelddadige dood wordt Lisa (17) nog steeds gemist in hecht dorp](https://www.ad.nl/binnenland/verlies-laat-diepe-indruk-achter-jaar-na-gewelddadige-dood-wordt-lisa-17-nog-steeds-gemist-in-hecht-dorp~a36bd4d4/)
+  > „Lisa genoot altijd enorm van de feestweek.” Die boodschap gaf haar familie de organisatoren van Feestweek Abcoude vorig jaar mee. Samen met één...
 
 ### Meest gelezen
 
@@ -46,7 +46,16 @@
 
 ### Laatste nieuws
 
-- Fout bij ophalen: The read operation timed out
+- [Digitale platforms intensiveren strijd tegen AI-rotzooi](https://fd.nl/bedrijfsleven/1607634/digitale-platforms-intensiveren-strijd-tegen-ai-rotzooi)
+  > Bedrijven als Spotify, LinkedIn en Youtube installeren filters of verwijderen AI-content, in een poging om de stroom aan ‘slop’ terug te dringen.
+- [EU-plan tegen pesticiden in import kan koffie véél duurder maken](https://fd.nl/economie/1607563/eu-plan-tegen-pesticiden-in-import-kan-koffie-veel-duurder-maken)
+  > Als Europa verboden pesticiden volledig uit de import van landbouwproducten weert, kan de aanvoer van agrarische goederen in het ergste geval met 41%...
+- [Wat is de prijs van een dalend geboortecijfer?](https://fd.nl/samenleving/1607657/wat-is-de-prijs-van-een-dalend-geboortecijfer)
+  > Hoe kan het dat er steeds minder kinderen geboren worden? En wat betekent dat voor de samenleving? Daar gaat deze aflevering van de FD-Summerschool...
+- [De kleurrijke Turkse badplaats Alaçatı](https://fd.nl/samenleving/1607564/de-kleurrijke-turkse-badplaats-alacat)
+  > Zangeres en pianist Karsu Dönmez vindt rust in het nog niet door toeristen platgelopen Alaçatı, waar men uitgebreid ontbijt en vervolgens toeleeft...
+- [Fotograaf Yasemin Demirözcan: ‘Als er geen foto’s zijn, is het makkelijk om te doen alsof iets er nooit is geweest’](https://fd.nl/samenleving/1607515/fotograaf-yasemin-demirozcan-als-er-geen-fotos-zijn-is-het-makkelijk-om-te-doen-alsof-iets-er-nooit-is-geweest)
+  > Fotograaf Yasemin Demirözcan richt haar camera op onderbelichte en ongeziene gemeenschappen.
 
 ### Meest gelezen
 
