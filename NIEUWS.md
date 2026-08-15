@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-08-2026 om 16:28*
+*Laatst bijgewerkt: 15-08-2026 om 17:23*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Kwetsbare jongeren voor 'kamer met aandacht' op wachtlijst: 'Topje van de ijsberg'](https://nos.nl/l/2627002)
+  > "Je kunt een kamer verhuren en daar veel geld voor vragen of iets meer betekenen en een jongere uit een onveilige situatie halen", zegt Lenie de...
 - [Natuurbrand is grootste ooit in België, twee dorpen gedeeltelijk ontruimd](https://nos.nl/l/2626995)
   > De natuurbrand in het Belgische natuurgebied Hoge Venen is nog niet onder controle. Aan de noordkant is het vuur ingedamd, maar richting het oosten...
 - [Siciliaanse luchthaven Catania start langzaam weer op na uitbarsting Etna](https://nos.nl/l/2626992)
@@ -16,8 +18,6 @@
   > Het waterpeil in het IJsselmeer is door de ondergrens gezakt die in de zomer wordt gehanteerd. Rijkswaterstaat gebruikt bandbreedtes voor het...
 - [XR blokkeert A12 in Den Haag weer: 'Catastrofale droogte is geen ongeluk'](https://nos.nl/l/2626984)
   > Klimaatactivisten van Extinction Rebellion (XR) hebben vanmiddag opnieuw de toegangsweg tot de A12 in Den Haag geblokkeerd. Rond 14.00 uur liepen...
-- [Nederlanders beleefden aardbeving op Flores: 'Ik dacht even: dit zou het kunnen zijn'](https://nos.nl/l/2626977)
-  > "Ik was echt doodsbang", vertelt Gladys Victoria. De 21-jarige reisinfluencer werd vannacht in Labuan Bajo gewekt doordat gruis van het plafond op...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [NEC kent met ruime zege op Willem II uitstekende generale voor tweeluik in Champions League tegen Bodø/Glimt](https://www.ad.nl/voetbal/nec-kent-met-ruime-zege-op-willem-ii-uitstekende-generale-voor-tweeluik-in-champions-league-tegen-bodo-glimt~ae3a362f/)
-  > NEC heeft een goede generale gedraaid voor het tweeluik in de play-offs van de Champions League. De Nijmegenaren walsden in de tweede helft over...
-- [Jason Derulo annuleert optreden in Rotterdam op laatste moment](https://www.ad.nl/rotterdam/jason-derulo-annuleert-optreden-in-rotterdam-op-laatste-moment~a1f5a145/)
-  > Het optreden van Jason Derulo bij Villa Thalia in Rotterdam gaat zaterdagavond niet door. De Amerikaanse zanger laat via Instagram weten dat hij...
-- [Joris van Overeem speelt niet bij FC Utrecht tegen zijn oude club AZ, spits Stepanov wel](https://www.ad.nl/utrecht/joris-van-overeem-speelt-niet-bij-fc-utrecht-tegen-zijn-oude-club-az-spits-stepanov-wel~a176b4380/)
+- [Koen de Groot pakt EK-zilver op 50 meter schoolslag en scherpt Nederlands record aan](https://www.ad.nl/andere-sporten/koen-de-groot-pakt-ek-zilver-op-50-meter-schoolslag-en-scherpt-nederlands-record-aan~a379fff3/)
+  > Zwemmer Koen de Groot heeft bij de EK zwemmen een zilveren medaille veroverd op de 50 meter schoolslag. De 22-jarige Limburger noteerde 26,62...
+- [Opgelet voor vakantiescams deze zomer: 5 trucs van oplichters (en zo trap je er niet in)](https://www.ad.nl/tech/opgelet-voor-vakantiescams-deze-zomer-5-trucs-van-oplichters-en-zo-trap-je-er-niet-in~a417b675/)
+  > De zomer is niet alleen het hoogseizoen voor vakantiegangers, maar ook voor oplichters. Van valse hotelmails tot nepdeals en zelfs misleidende posts...
+- [Sergiño Dest en Joey Veerman keren terug in de basis bij PSV, Excelsior mist Noah Naujoks](https://www.ad.nl/voetbal/sergino-dest-en-joey-veerman-keren-terug-in-de-basis-bij-psv-excelsior-mist-noah-naujoks~ad583e77/)
+  > PSV leek tegen Fortuna Sittard op weg naar een zege, maar de Eindhovenaren speelden uiteindelijk alsnog gelijk (2-2). De ploeg van Peter Bosz moet op...
+- [Eerste kansen FC Utrecht, AZ neemt regie in de Galgenwaard over](https://www.ad.nl/utrecht/eerste-kansen-fc-utrecht-az-neemt-regie-in-de-galgenwaard-over~a176b4380/)
   > AZ heeft de Johan Cruijff Schaal en de eerste zege in de Vriendenloterij eredivisie op zak. FC Utrecht verloor vorige week onnodig van FC Groningen...
-- [Qatar houdt Israël verantwoordelijk voor geweld tegen Palestijnen en roept op tot ingrijpen](https://www.ad.nl/buitenland/qatar-houdt-israel-verantwoordelijk-voor-geweld-tegen-palestijnen-en-roept-op-tot-ingrijpen~ac528ac3/)
-  > Qatar houdt Israël verantwoordelijk voor het toegenomen geweld tegen Palestijnen door Joodse kolonisten op de bezette Westelijke Jordaanoever. Het...
-- [Gemiste strafcorners doen hockeysters geen pijn: Oranje begint WK in eigen land met zuinige zege](https://www.ad.nl/andere-sporten/gemiste-strafcorners-doen-hockeysters-geen-pijn-oranje-begint-wk-in-eigen-land-met-zuinige-zege~ada82563/)
-  > De Nederlandse hockeysters zijn het WK in eigen land begonnen met een eenvoudige overwinning. In de groepswedstrijd tegen Chili regende het kansen,...
+- [Ismael Saibari met knappe assist direct belangrijk bij debuut voor Bayern München](https://www.ad.nl/voetbal/ismael-saibari-met-knappe-assist-direct-belangrijk-bij-debuut-voor-bayern-munchen~a968ee6b/)
+  > Ismael Saibari heeft zijn officieuze debuut gemaakt voor Bayern München. De voormalig PSV-speler speelde slechts twintig minuten mee tegen Leipzig,...
 
 ### Meest gelezen
 
@@ -50,7 +50,7 @@
   > 148 migranten zijn aangehouden voor het illegaal proberen over te steken naar Ceuta.
 - [Oekraïne zegt rakettenfabriek op negenhonderd kilometer in Rusland te hebben geraakt](https://fd.nl/politiek/1607879/oekraine-zegt-rakettenfabriek-op-negenhonderd-kilometer-in-rusland-te-hebben-geraakt)
   > De fabrieken zouden raketten hebben gebouwd waarmee satellieten de ruimte ingeschoten kunnen worden voor een Russische internetdienst die gebruikt...
-- [Natuurbrand is volgens burgemeesters ‘de grootste in de Belgische geschiedenis’](https://fd.nl/samenleving/1607878/brits-verbod-op-wegwerpbarbecues-tegen-natuurbranden)
+- [Belgische natuurbrand is volgens burgemeesters ‘de grootste in de geschiedenis’](https://fd.nl/samenleving/1607878/brits-verbod-op-wegwerpbarbecues-tegen-natuurbranden)
   > Het vuur is nog niet onder controle.
 - [‘Omzet Anthropic groeit met factor 14 in een jaar tijd’](https://fd.nl/bedrijfsleven/1607877/omzet-anthropic-groeit-met-factor-14-in-een-jaar-tijd)
   > De groei is een essentieel onderdeel van de waarde van de chatbotmaker, die later dit jaar naar de beurs wil.
