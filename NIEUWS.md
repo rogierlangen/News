@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-08-2026 om 01:24*
+*Laatst bijgewerkt: 15-08-2026 om 02:54*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Twee doden na aardbeving met kracht van 7,7 voor kust van Indonesië](https://nos.nl/l/2626934)
+  > Voor de kust van het Indonesische eiland Flores is een zware aardbeving geweest met een kracht van 7,7. Daarbij zijn twee mensen overleden, melden de...
 - [Gestolen schilderijen van Renoir, Cézanne en Matisse weer terecht](https://nos.nl/l/2626933)
   > De Italiaanse politie heeft drie schilderijen teruggevonden die vijf maanden geleden uit een museum bij Parma waren gestolen. Het gaat om kunstwerken...
 - [Trump wil Straat van Hormuz na oorlog tot Amerikaans grondgebied maken](https://nos.nl/l/2626931)
@@ -16,8 +18,6 @@
   > Naast Duitsland worden ook andere landen in Europa geteisterd door natuurbranden. Het Europese continent heeft te maken met hoge temperaturen en...
 - [Tractoren op de snelweg zijn verboden, waarom greep de politie niet altijd in?](https://nos.nl/l/2626911)
   > Het mag niet, kan levensgevaarlijke situaties opleveren, maar het gebeurde wel vandaag. Zeker honderd tractoren reden onder het mom van demonstratie...
-- [Na plagiaat-rel opgestapte hoogleraar Cambridge dood aangetroffen](https://nos.nl/l/2626907)
-  > Een recent opgestapte hoogleraar van de Universiteit van Cambridge, Jason Arday, is volgens Britse media dood aangetroffen. De universiteit deed...
 
 ### Meest gelezen
 
@@ -31,8 +31,8 @@
   > De aanschaf en installatie van een nieuwe generatie krachtige thuisbatterijen wordt even gemakkelijk als het kopen van een pak melk. De...
 - [EasyJet annuleert vluchten in Frankrijk wegens staking cabinepersoneel](https://www.ad.nl/buitenland/easyjet-annuleert-vluchten-in-frankrijk-wegens-staking-cabinepersoneel~a515ba66/)
   > Een honderdtal vluchten van easyJet is zaterdag en zondag in Frankrijk geannuleerd wegens een aangekondigde staking van cabinepersoneel.
-- [Schade en tsunami-alarm na krachtige aardbeving met kracht van 7,7 bij Indonesisch eiland Flores](https://www.ad.nl/buitenland/schade-en-tsunami-alarm-na-krachtige-aardbeving-met-kracht-van-7-7-bij-indonesisch-eiland-flores~abdfb109/)
-  > Bij het Indonesische eiland Flores heeft zaterdagochtend (lokale tijd) een aardbeving plaatsgevonden met een kracht van 7.7. Lokale media melden...
+- [Doden, gewonden en schade na hevige aardbeving met kracht van 7,7 bij Indonesisch eiland Flores](https://www.ad.nl/buitenland/doden-gewonden-en-schade-na-hevige-aardbeving-met-kracht-van-7-7-bij-indonesisch-eiland-flores~abdfb109/)
+  > Bij een aardbeving met een kracht van 7,7 op het Indonesische eiland Flores zijn zaterdagochtend (lokale tijd) zeker twee doden en vijf gewonden...
 - [Trump ontkent misstanden op vliegdekschip in Midden-Oosten: ‘Niet te lang onderweg’](https://www.ad.nl/buitenland/trump-ontkent-misstanden-op-vliegdekschip-in-midden-oosten-niet-te-lang-onderweg~ae67dd9c/)
   > De Amerikaanse president Donald Trump heeft vrijdag klachten van familieleden van militairen over de omstandigheden op het vliegdekschip USS Abraham...
 - [Immobile beëindigt carrière, Tillman mag alweer vertrekken bij Bayer Leverkusen, Dallinga naar Bundesliga?](https://www.ad.nl/voetbal/immobile-beeindigt-carriere-tillman-mag-alweer-vertrekken-bij-bayer-leverkusen-dallinga-naar-bundesliga~acbd43e6/)
