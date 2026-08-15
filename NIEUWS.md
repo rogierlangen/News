@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-08-2026 om 19:23*
+*Laatst bijgewerkt: 15-08-2026 om 20:26*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [79.242 peuken gevonden bij strandopruimactie, ruim helft meer dan vorig jaar](https://nos.nl/l/2627037)
+  > Bij een strandopruimactie langs de Noordzeekust zijn bijna 80.000 sigarettenpeuken gevonden. Dat zijn er ruim de helft meer dan vorig jaar, meldt...
 - [Marokko pakt bijna 300 migranten op bij Ceuta, Spaanse journalisten uitgezet](https://nos.nl/l/2627028)
   > Het Marokkaanse leger heeft honderden mensen verjaagd die vanuit Marokko het Spaanse Ceuta probeerden binnen te komen. Volgens Marokkaanse...
 - [Slachtoffers herdacht bij Nationale Indiëherdenking: 'Verhalen bieden houvast'](https://nos.nl/l/2627023)
@@ -16,8 +18,6 @@
   > "We moeten geen tractoren op de snelweg willen, dat is veel te gevaarlijk", zegt bestuurder Patrick Fluyt van politievakbond ACP. "We willen dat het...
 - [In Liechtenstein kan ook een prinses over een paar decennia troonopvolger worden](https://nos.nl/l/2627015)
   > In 2019 sprak hij zich nog uit tegen een vrouwelijke opvolger, maar vandaag heeft erfprins Alois van Liechtenstein bekendgemaakt dat toekomstige...
-- [Kwetsbare jongeren voor 'kamer met aandacht' op wachtlijst: 'Topje van de ijsberg'](https://nos.nl/l/2627002)
-  > "Je kunt een kamer verhuren en daar veel geld voor vragen of iets meer betekenen en een jongere uit een onveilige situatie halen", zegt Lenie de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Na de dood van Jason Arday geeft iedereen elkaar de schuld in het Verenigd Koninkrijk](https://www.ad.nl/buitenland/na-de-dood-van-jason-arday-geeft-iedereen-elkaar-de-schuld-in-het-verenigd-koninkrijk~a1f7515c/)
+- [Historisch besluit in Liechtenstein: vrouwen mogen eindelijk op de troon](https://www.ad.nl/show/historisch-besluit-in-liechtenstein-vrouwen-mogen-eindelijk-op-de-troon~a2e3d8bf/)
+  > Ook vrouwelijke telgen van het Liechtensteinse vorstenhuis kunnen in de toekomst de troon bestijgen. Het hof heeft de regels aangepast: voortaan...
+- [Stefan Nillessen zorgt voor megastunt: Nederlander snelt naar EK-goud op 1500 meter](https://www.ad.nl/andere-sporten/stefan-nillessen-zorgt-voor-megastunt-nederlander-snelt-naar-ek-goud-op-1500-meter~aa7a1dbb/)
+  > Stefan Nillessen heeft op het EK atletiek in Birmingham voor een enorme sensatie gezorgd. De 23-jarige Nederland liep dankzij een machtige eindsprint...
+- [PSG presen­teert Mika Godts: Ajax ontvangt bedrag dat kan oplopen tot 55 miljoen euro](https://www.ad.nl/voetbal/psg-presenteert-mika-godts-ajax-ontvangt-bedrag-dat-kan-oplopen-tot-55-miljoen-euro~ac6fa6a3b/)
+  > Mika Godts maakt een droomtransfer naar Paris Saint-Germain. Ajax heeft met de Champions League-winnaar overeenstemming bereikt over een transfersom...
+- [PSV maakt het zichzelf onnodig lastig bij Excelsior, maar boekt wel eerste zege van het seizoen](https://www.ad.nl/voetbal/psv-maakt-het-zichzelf-onnodig-lastig-bij-excelsior-maar-boekt-wel-eerste-zege-van-het-seizoen~ad583e77/)
+  > PSV heeft de eerste zege van het seizoen binnen. Na het puntverlies tegen Fortuna Sittard (2-2) maakten de Eindhovenaren het zichzelf ook op bezoek...
+- [Waarom de dood van Cambridge-professor Jason Arday zo’n giftige rel veroorzaakt in het VK](https://www.ad.nl/buitenland/waarom-de-dood-van-cambridge-professor-jason-arday-zon-giftige-rel-veroorzaakt-in-het-vk~a1f7515c/)
   > Het overlijden van de voormalige Cambridge-professor Jason Arday (41), kort na zijn ontmaskering als fantast, zorgt voor ongemak in het VK. De vraag...
-- [Rennen, ho maar: eigenwijze corgi’s gaan hun eigen gang tijdens jaarlijkse race in Litouwen](https://www.ad.nl/buitenland/rennen-ho-maar-eigenwijze-corgis-gaan-hun-eigen-gang-tijdens-jaarlijkse-race-in-litouwen~aabcdb36/)
-  > Speelgoed, snoepjes en zelfs een bezem: alles werd zaterdag door corgi-eigenaren gebruikt om hun hondje als eerste over de finishlijn te lokken van...
-- [PSV slaat razendsnel terug na treffer Excelsior: Ricardo Pepi herstelt voorsprong](https://www.ad.nl/voetbal/psv-slaat-razendsnel-terug-na-treffer-excelsior-ricardo-pepi-herstelt-voorsprong~ad583e77/)
-  > PSV leek tegen Fortuna Sittard op weg naar een zege, maar de Eindhovenaren speelden uiteindelijk alsnog gelijk (2-2). De ploeg van Peter Bosz moet op...
-- [Fortuna Sittard snel op voorsprong in eigen huis tegen Cambuur, Ihattaren met assist](https://www.ad.nl/voetbal/fortuna-sittard-snel-op-voorsprong-in-eigen-huis-tegen-cambuur-ihattaren-met-assist~a7d4e762/)
-  > Na een knap gelijkspel tegen PSV (2-2) staat Fortuna Sittard nu een tegenstander te wachten die een knauw heeft gehad. Cambuur komt na een 0-4...
-- [Dubbel Nederlands succes op zevenkamp: Oosterwegel en Dokter pakken zilver en brons](https://www.ad.nl/andere-sporten/dubbel-nederlands-succes-op-zevenkamp-oosterwegel-en-dokter-pakken-zilver-en-brons~a655d063/)
-  > De zevenkamp bij de EK atletiek in Birmingham heeft dubbel Nederlands succes opgeleverd. Emma Oosterwegel veroverde een zilveren medaille, Sofie...
 
 ### Meest gelezen
 
