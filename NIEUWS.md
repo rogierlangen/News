@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-08-2026 om 09:28*
+*Laatst bijgewerkt: 15-08-2026 om 10:25*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Grote turfbrand in Belgische Hoge Venen moeilijk te blussen, rook tot in Limburg](https://nos.nl/l/2626958)
+  > De natuurbrand in het Belgische natuurgebied Hoge Venen, op 20 kilometer van de grens bij Limburg, heeft zeker 900 hectare in de as gelegd. De brand...
 - [Verdachte vast na gewelddadige dood man (52) in Werkendam](https://nos.nl/l/2626953)
   > In Werkendam is een man (41) opgepakt die ervan wordt verdacht betrokken te zijn bij de gewelddadige dood van een andere man (52) vorig weekeinde.
   ...
@@ -17,8 +19,6 @@
   > Goedemorgen! Onder meer premier Jetten spreekt vandaag bij de Nationale Indië-herdenking in Den Haag. In Birmingham strijdt Lieke Klaver om een...
 - [Na vijf jaar Taliban blijven vrouwen in Afghanistan vechten voor een toekomst](https://nos.nl/l/2626942)
   > Zo'n veertig meisjes met roomwitte hoofddoeken boven blauwe jurken zitten gebogen over hun toetsen. Waarschijnlijk is het een van de laatste toetsen...
-- [Podcast De Dag: is de longevity-hype gevaarlijk?](https://nos.nl/l/2626938)
-  > Met voeding, beweging, supplementen, vitamine-infusen, heel veel scans en onderzoeken en zelfs bloedtransfusie of stamceltherapie je leven zo lang...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Bruce Willis aanwezig bij bruiloft van dochter Tallulah, Vogue deelt foto’s: ‘Teder moment’](https://www.ad.nl/show/bruce-willis-aanwezig-bij-bruiloft-van-dochter-tallulah-vogue-deelt-fotos-teder-moment~a4231d3f/)
-  > Bruce Willis, die aan dementie lijdt, was aanwezig bij de festiviteiten rond de bruiloft van zijn dochter Tallulah. Op nieuwe foto’s die Vogue...
-- [Marokkaanse veiligheidstroepen stoppen honderden mensen aan grens met Ceuta](https://www.ad.nl/buitenland/marokkaanse-veiligheidstroepen-stoppen-honderden-mensen-aan-grens-met-ceuta~a5be2225/)
-  > Veiligheidstroepen in de bergen aan de Marokkaanse kant van de Spaanse exclave Ceuta hebben volgens landelijke media enkele honderden mensen ervan...
-- [Wat is 1 jaar na de moord op Lisa gedaan met de 6 miljoen euro van gemeente Amsterdam? ‘Veel maatregelen gericht op de man in de bosjes’](https://www.ad.nl/binnenland/wat-is-1-jaar-na-de-moord-op-lisa-gedaan-met-de-6-miljoen-euro-van-gemeente-amsterdam-veel-maatregelen-gericht-op-de-man-in-de-bosjes~ab5bbadb/)
-  > Een jaar geleden werd de 17-jarige Lisa vermoord op de Holterbergweg in Duivendrecht. De collectieve woede die erop volgde, leidde tot tal van...
-- [Jongeren bestraft voor inbreken bij Spaans dolfinarium, waar ze in het bassin van de dolfijnen sprongen](https://www.ad.nl/buitenland/jongeren-bestraft-voor-inbreken-bij-spaans-dolfinarium-waar-ze-in-het-bassin-van-de-dolfijnen-sprongen~a925c7f9/)
-  > Vier mannen zijn vorige week door de rechter bestraft voor het in het water springen bij een groep dolfijnen in een park in Mallorca. De Spanjaarden...
-- [Diederik en Anouk officieel een stelletje na vertrek Bondgenoten: 'Genieten van onze tijd samen'](https://www.ad.nl/show/diederik-en-anouk-officieel-een-stelletje-na-vertrek-bondgenoten-genieten-van-onze-tijd-samen~a7cdf18f/)
-  > Diederik en Anouk, die stof deden opwaaien met hun oplaaiende romance in De Bondgenoten, zijn officieel een stelletje. Dat deelden de tortelduifjes...
+- [Kies een kuipplant die je kan laten staan, dat scheelt gesjouw](https://www.ad.nl/wonen/kies-een-kuipplant-die-je-kan-laten-staan-dat-scheelt-gesjouw~a3f04e74/)
+  > De kuipplant is een mooi aanzicht in de tuin, maar zodra het kouder wordt, moet je ’m ergens anders kwijt. Een logeerkamer kan, een kelder liever...
+- [Zandvoortspecial (2): ‘Alles zat mee dat eerste weekend in Zandvoort’](https://www.ad.nl/formule-1/zandvoortspecial-2-alles-zat-mee-dat-eerste-weekend-in-zandvoort~a9a5a1e5/)
+  > De Dutch Grand Prix is bezig aan haar last dance. Het waren zes mooie jaren, dat moet over tien jaar nog mooie verhalen opleveren.
+- [Slipknot kondigt vertrek Sid Wilson aan, maar verwijdert bericht weer](https://www.ad.nl/show/slipknot-kondigt-vertrek-sid-wilson-aan-maar-verwijdert-bericht-weer~a84857c2/)
+  > Slipknot heeft het vertrek van Sid Wilson aangekondigd. De Amerikaanse metalband meldde op sociale media dat de muzikant per direct geen deel meer...
+- [Xan de Waard kreeg een 1 op school, blijft zitten, maar het was het waard: zo werd ze een hockeyicoon](https://www.ad.nl/andere-sporten/xan-de-waard-kreeg-een-1-op-school-blijft-zitten-maar-het-was-het-waard-zo-werd-ze-een-hockeyicoon~a164c994/)
+  > Voor 245-voudig international Xan de Waard gloort deze weken in eigen land een unicum: een vierde wereldtitel. Vandaag begint ze aan haar laatste WK...
+- [Politievakbond wil met lokaal gezag kijken naar boerenacties en hoe dodelijk ongeluk kon gebeuren](https://www.ad.nl/binnenland/politievakbond-wil-met-lokaal-gezag-kijken-naar-boerenacties-en-hoe-dodelijk-ongeluk-kon-gebeuren~aa275202/)
+  > Politievakbond ACP wil dat er met het lokale gezag wordt gereflecteerd over de handhaving rond de boerenacties op snelwegen richting Den Bosch en het...
 
 ### Meest gelezen
 
