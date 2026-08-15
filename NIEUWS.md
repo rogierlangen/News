@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-08-2026 om 06:43*
+*Laatst bijgewerkt: 15-08-2026 om 07:33*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Supermarkten waarschuwen voor mogelijk ongare kippendijspiesjes](https://www.ad.nl/binnenland/supermarkten-waarschuwen-voor-mogelijk-ongare-kippendijspiesjes~a0bf7d9e/)
-  > Diverse supermarkten waarschuwen voor kipdijspiesjes. In de verpakking van 100 gram zitten mogelijk onvoldoende gegaarde kipdijspiesjes en deze zijn...
-- [‘Kwartiertje van Tielen’: staatssecretaris roept gezinnen op elke dag te oefenen met taal](https://www.ad.nl/politiek/kwartiertje-van-tielen-staatssecretaris-roept-gezinnen-op-elke-dag-te-oefenen-met-taal~aca9b2b9/)
-  > Nederlandse kinderen lezen en schrijven slechter dan ooit. Het kabinet komt daarom voor het eerst met een landelijke oproep aan ouders en...
-- [Buien én hitte, verkoeling vandaag alleen voor een deel van Nederland](https://www.ad.nl/binnenland/buien-en-hitte-verkoeling-vandaag-alleen-voor-een-deel-van-nederland~ab4f091c/)
-  > Wie na een paar zeer warme dagen straks snakt naar wat verkoeling, kan niet overal in Nederland terecht. De temperatuurverschillen zijn zaterdag...
-- [Baby omgekomen bij droneaanval, raketaanval in Rusland gemeld](https://www.ad.nl/buitenland/baby-omgekomen-bij-droneaanval-raketaanval-in-rusland-gemeld~adfb97be/)
-  > In de stad Marhanets is een baby van drie maanden omgekomen bij een Russische droneaanval afgelopen nacht. Dat meldt het Oekraïense persbureau UNN....
-- [Thomas van Groningen was ‘verklikker’ voor pretparkbezoekers: ‘Zijn ze nog steeds boos over’](https://www.ad.nl/show/thomas-van-groningen-was-verklikker-voor-pretparkbezoekers-zijn-ze-nog-steeds-boos-over~a1f6bde3/)
-  > Tv-presentator Thomas van Groningen (36) houdt er een opmerkelijke hobby op na: pretparken. Hij bezocht er meer dan honderd over de hele wereld....
+- [Meerkampsters Sofie Dokter en Emma Oosterwegel zetten  jacht op medaille voort, al acht plakken voor Nederland dit EK](https://www.ad.nl/andere-sporten/meerkampsters-sofie-dokter-en-emma-oosterwegel-zetten-jacht-op-medaille-voort-al-acht-plakken-voor-nederland-dit-ek~a931e786/)
+  > Het is het slotweekend van de EK atletiek in het Engelse Birmingham. Hoeveel medailles gaat Nederland uiteindelijk pakken? Hier blijf je op de hoogte...
+- [Femke Broeders-Bol verbaast zichzelf in Birmingham: ‘Mijn benen gaan sneller dan mijn hoofd’](https://www.ad.nl/andere-sporten/femke-broeders-bol-verbaast-zichzelf-in-birmingham-mijn-benen-gaan-sneller-dan-mijn-hoofd~a923c60e/)
+  > In de EK-finale, haar belangrijkste 800-meter tot nu toe, liep Femke Broeders-Bol beter dan ooit. Brons in een Nederlands record. Beter dan ze zelf...
+- [LIVE vakantieblog | Vertrekhallen van grootste vliegveld in Londen overstroomd](https://www.ad.nl/buitenland/live-vakantieblog-vertrekhallen-van-grootste-vliegveld-in-londen-overstroomd~a4195717/)
+  > Door overstromingen in vertrekhallen 2 en 3 op vliegveld Heathrow is het zaterdagochtend niet mogelijk om er met de auto te komen. Dat meldt de...
+- [Wielerwereld rouwt om overleden Britse renner Finlay Tarling (19): ‘Het leven is gewoon niet eerlijk’](https://www.ad.nl/wielrennen/wielerwereld-rouwt-om-overleden-britse-renner-finlay-tarling-19-het-leven-is-gewoon-niet-eerlijk~afea52b1/)
+  > De wielerwereld rouwt om het overlijden van de 19-jarige Britse wielrenner Finlay Tarling. Hij kwam vrijdag tijdens de Ronde van Portugal in botsing...
+- [Perez Hilton na zelfverwonding ook behandeld voor overdosis](https://www.ad.nl/show/perez-hilton-na-zelfverwonding-ook-behandeld-voor-overdosis~ad0ed008/)
+  > Perez Hilton is na het incident waarbij hij zichzelf verwondde ook behandeld voor een overdosis. Dat blijkt volgens People uit een nieuw vrijgegeven...
 
 ### Meest gelezen
 
