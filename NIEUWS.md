@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-08-2026 om 23:24*
+*Laatst bijgewerkt: 15-08-2026 om 01:24*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Gestolen schilderijen van Renoir, Cézanne en Matisse weer terecht](https://nos.nl/l/2626933)
+  > De Italiaanse politie heeft drie schilderijen teruggevonden die vijf maanden geleden uit een museum bij Parma waren gestolen. Het gaat om kunstwerken...
 - [Trump wil Straat van Hormuz na oorlog tot Amerikaans grondgebied maken](https://nos.nl/l/2626931)
   > De Amerikaanse president Trump zegt van plan te zijn de Straat van Hormuz na afloop van de oorlog met Iran tot Amerikaans grondgebied uit te roepen....
 - [Extreme droogte leidt tot natuurbranden in meerdere Europese landen](https://nos.nl/l/2626918)
@@ -16,8 +18,6 @@
   > Het mag niet, kan levensgevaarlijke situaties opleveren, maar het gebeurde wel vandaag. Zeker honderd tractoren reden onder het mom van demonstratie...
 - [Na plagiaat-rel opgestapte hoogleraar Cambridge dood aangetroffen](https://nos.nl/l/2626907)
   > Een recent opgestapte hoogleraar van de Universiteit van Cambridge, Jason Arday, is volgens Britse media dood aangetroffen. De universiteit deed...
-- [Ebusco nog niet uit de problemen: weer minder bussen verkocht](https://nos.nl/l/2626905)
-  > De elektrische bussenbouwer Ebusco heeft het nog steeds zwaar, blijkt uit de zojuist gepubliceerde halfjaarcijfers. Het Brabantse bedrijf leverde de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [BBC wil kinderen en schoonzoon Trump dagvaarden in smaadzaak](https://www.ad.nl/buitenland/bbc-wil-kinderen-en-schoonzoon-trump-dagvaarden-in-smaadzaak~ae67dd9c/)
-  > De BBC wil Ivanka Trump, Donald Trump jr. en Jared Kushner dagvaarden in de smaadzaak die Donald Trump tegen de Britse omroep heeft aangespannen. De...
+- [Dit type thuisbatterij haal je in winkel en plaats je zelf, maar er zijn zorgen om veiligheid: ‘Kom ze als bijzettafel tegen’](https://www.ad.nl/economie/dit-type-thuisbatterij-haal-je-in-winkel-en-plaats-je-zelf-maar-er-zijn-zorgen-om-veiligheid-kom-ze-als-bijzettafel-tegen~a60e8114/)
+  > De aanschaf en installatie van een nieuwe generatie krachtige thuisbatterijen wordt even gemakkelijk als het kopen van een pak melk. De...
+- [EasyJet annuleert vluchten in Frankrijk wegens staking cabinepersoneel](https://www.ad.nl/buitenland/easyjet-annuleert-vluchten-in-frankrijk-wegens-staking-cabinepersoneel~a515ba66/)
+  > Een honderdtal vluchten van easyJet is zaterdag en zondag in Frankrijk geannuleerd wegens een aangekondigde staking van cabinepersoneel.
+- [Schade en tsunami-alarm na krachtige aardbeving met kracht van 7,7 bij Indonesisch eiland Flores](https://www.ad.nl/buitenland/schade-en-tsunami-alarm-na-krachtige-aardbeving-met-kracht-van-7-7-bij-indonesisch-eiland-flores~abdfb109/)
+  > Bij het Indonesische eiland Flores heeft zaterdagochtend (lokale tijd) een aardbeving plaatsgevonden met een kracht van 7.7. Lokale media melden...
+- [Trump ontkent misstanden op vliegdekschip in Midden-Oosten: ‘Niet te lang onderweg’](https://www.ad.nl/buitenland/trump-ontkent-misstanden-op-vliegdekschip-in-midden-oosten-niet-te-lang-onderweg~ae67dd9c/)
+  > De Amerikaanse president Donald Trump heeft vrijdag klachten van familieleden van militairen over de omstandigheden op het vliegdekschip USS Abraham...
 - [Immobile beëindigt carrière, Tillman mag alweer vertrekken bij Bayer Leverkusen, Dallinga naar Bundesliga?](https://www.ad.nl/voetbal/immobile-beeindigt-carriere-tillman-mag-alweer-vertrekken-bij-bayer-leverkusen-dallinga-naar-bundesliga~acbd43e6/)
   > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [Femke Broeders-Bol pakt EK-brons op 800 meter en evenaart Nederlands record uit 1992: ‘Echt gaaf!’](https://www.ad.nl/andere-sporten/femke-broeders-bol-pakt-ek-brons-op-800-meter-en-evenaart-nederlands-record-uit-1992-echt-gaaf~acd9b0dee/)
-  > Femke Broeders-Bol heeft tijdens de EK atletiek in Birmingham een bronzen medaille veroverd op de 800 meter. Met een tijd van 1:55,54 evenaarde...
-- [Jorinde van Klinken maakt favorietenrol helemaal waar en is Europees kampioene discuswerpen](https://www.ad.nl/andere-sporten/jorinde-van-klinken-maakt-favorietenrol-helemaal-waar-en-is-europees-kampioene-discuswerpen~af3a1cfa/)
-  > Jorinde van Klinken heeft op de EK atletiek haar favorietenrol waargemaakt bij het discuswerpen. De 26-jarige Nederlandse was in Birmingham...
-- [Mika Godts ondergaat keuring bij PSG: Ajax akkoord over transfersom van 55 miljoen euro](https://www.ad.nl/voetbal/mika-godts-ondergaat-keuring-bij-psg-ajax-akkoord-over-transfersom-van-55-miljoen-euro~ac6fa6a3b/)
-  > Mika Godts gaat zijn droomtransfer naar Paris Saint-Germain maken. Ajax heeft met de Champions League-winnaar overeenstemming bereikt over een...
 
 ### Meest gelezen
 
