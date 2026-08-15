@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-08-2026 om 02:54*
+*Laatst bijgewerkt: 15-08-2026 om 03:41*
 
 ---
 
@@ -32,7 +32,7 @@
 - [EasyJet annuleert vluchten in Frankrijk wegens staking cabinepersoneel](https://www.ad.nl/buitenland/easyjet-annuleert-vluchten-in-frankrijk-wegens-staking-cabinepersoneel~a515ba66/)
   > Een honderdtal vluchten van easyJet is zaterdag en zondag in Frankrijk geannuleerd wegens een aangekondigde staking van cabinepersoneel.
 - [Doden, gewonden en schade na hevige aardbeving met kracht van 7,7 bij Indonesisch eiland Flores](https://www.ad.nl/buitenland/doden-gewonden-en-schade-na-hevige-aardbeving-met-kracht-van-7-7-bij-indonesisch-eiland-flores~abdfb109/)
-  > Bij een aardbeving met een kracht van 7,7 op het Indonesische eiland Flores zijn zaterdagochtend (lokale tijd) zeker twee doden en vijf gewonden...
+  > Bij een aardbeving met een kracht van 7,7 op het Indonesische eiland Flores zijn zaterdagochtend (lokale tijd) zeker vijf doden en vijf gewonden...
 - [Trump ontkent misstanden op vliegdekschip in Midden-Oosten: ‘Niet te lang onderweg’](https://www.ad.nl/buitenland/trump-ontkent-misstanden-op-vliegdekschip-in-midden-oosten-niet-te-lang-onderweg~ae67dd9c/)
   > De Amerikaanse president Donald Trump heeft vrijdag klachten van familieleden van militairen over de omstandigheden op het vliegdekschip USS Abraham...
 - [Immobile beëindigt carrière, Tillman mag alweer vertrekken bij Bayer Leverkusen, Dallinga naar Bundesliga?](https://www.ad.nl/voetbal/immobile-beeindigt-carriere-tillman-mag-alweer-vertrekken-bij-bayer-leverkusen-dallinga-naar-bundesliga~acbd43e6/)
@@ -46,16 +46,7 @@
 
 ### Laatste nieuws
 
-- [De kleurrijke Turkse badplaats Alaçatı](https://fd.nl/samenleving/1607564/de-kleurrijke-turkse-badplaats-alacat)
-  > Zangeres en pianist Karsu Dönmez vindt rust in het nog niet door toeristen platgelopen Alaçatı, waar men uitgebreid ontbijt en vervolgens toeleeft...
-- [Fotograaf Yasemin Demirözcan: ‘Als er geen foto’s zijn, is het makkelijk om te doen alsof iets er nooit is geweest’](https://fd.nl/samenleving/1607515/fotograaf-yasemin-demirozcan-als-er-geen-fotos-zijn-is-het-makkelijk-om-te-doen-alsof-iets-er-nooit-is-geweest)
-  > Fotograaf Yasemin Demirözcan richt haar camera op onderbelichte en ongeziene gemeenschappen.
-- [Als er een neushoorn in je hoofd zit](https://fd.nl/opinie/1607478/als-er-een-neushoorn-in-je-hoofd-zit)
-  > Hoe een rondreizende witte neushoorn waarschuwt voor kritiekloze volgzaamheid en autoritaire ideeën.
-- [Econometristen uit Utrecht leveren sportbonden over de hele wereld miljoenen extra kijkers op](https://fd.nl/bedrijfsleven/1607201/econometristen-uit-utrecht-leveren-sportbonden-over-de-hele-wereld-miljoenen-extra-kijkers-op)
-  > Het bedrijf Hypercube ontwerpt rankings om competities spannend te houden en ontwerpt de meest complexe speelschema’s, waaronder die van het...
-- [Personalia zaterdag 15 augustus](https://fd.nl/bedrijfsleven/1607566/personalia-zaterdag-15-augustus)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- Fout bij ophalen: The read operation timed out
 
 ### Meest gelezen
 
