@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-08-2026 om 17:23*
+*Laatst bijgewerkt: 15-08-2026 om 18:34*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Oorlogsslachtoffers herdacht tijdens Nationale Indiëherdenking in Den Haag](https://nos.nl/l/2627023)
+  > Bij het Indisch Monument in Den Haag is stilgestaan bij het einde Tweede Wereldoorlog in het voormalig Nederlands-Indië, het huidige Indonesië. Het...
+- [Politiebond ACP wil duidelijkheid van OM over handhaving op snelwegen](https://nos.nl/l/2627017)
+  > "We moeten geen tractoren op de snelweg willen, dat is veel te gevaarlijk", zegt bestuurder Patrick Fluyt van politievakbond ACP. "We willen dat het...
+- [In Liechtenstein kan ook een prinses over een paar decennia troonopvolger worden](https://nos.nl/l/2627015)
+  > In 2019 sprak hij zich nog uit tegen een vrouwelijke opvolger, maar vandaag heeft erfprins Alois van Liechtenstein bekendgemaakt dat toekomstige...
 - [Kwetsbare jongeren voor 'kamer met aandacht' op wachtlijst: 'Topje van de ijsberg'](https://nos.nl/l/2627002)
   > "Je kunt een kamer verhuren en daar veel geld voor vragen of iets meer betekenen en een jongere uit een onveilige situatie halen", zegt Lenie de...
 - [Natuurbrand is grootste ooit in België, twee dorpen gedeeltelijk ontruimd](https://nos.nl/l/2626995)
   > De natuurbrand in het Belgische natuurgebied Hoge Venen is nog niet onder controle. Aan de noordkant is het vuur ingedamd, maar richting het oosten...
-- [Siciliaanse luchthaven Catania start langzaam weer op na uitbarsting Etna](https://nos.nl/l/2626992)
-  > Het vliegverkeer bij Catania op het Italiaanse eiland Sicilië wordt weer opgestart. Vluchten waren dagenlang ontregeld door uitbarstingen van de...
-- [Waterpeil IJsselmeer door zomerse ondergrens gezakt, overleg over maatregelen](https://nos.nl/l/2626987)
-  > Het waterpeil in het IJsselmeer is door de ondergrens gezakt die in de zomer wordt gehanteerd. Rijkswaterstaat gebruikt bandbreedtes voor het...
-- [XR blokkeert A12 in Den Haag weer: 'Catastrofale droogte is geen ongeluk'](https://nos.nl/l/2626984)
-  > Klimaatactivisten van Extinction Rebellion (XR) hebben vanmiddag opnieuw de toegangsweg tot de A12 in Den Haag geblokkeerd. Rond 14.00 uur liepen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Koen de Groot pakt EK-zilver op 50 meter schoolslag en scherpt Nederlands record aan](https://www.ad.nl/andere-sporten/koen-de-groot-pakt-ek-zilver-op-50-meter-schoolslag-en-scherpt-nederlands-record-aan~a379fff3/)
-  > Zwemmer Koen de Groot heeft bij de EK zwemmen een zilveren medaille veroverd op de 50 meter schoolslag. De 22-jarige Limburger noteerde 26,62...
-- [Opgelet voor vakantiescams deze zomer: 5 trucs van oplichters (en zo trap je er niet in)](https://www.ad.nl/tech/opgelet-voor-vakantiescams-deze-zomer-5-trucs-van-oplichters-en-zo-trap-je-er-niet-in~a417b675/)
-  > De zomer is niet alleen het hoogseizoen voor vakantiegangers, maar ook voor oplichters. Van valse hotelmails tot nepdeals en zelfs misleidende posts...
-- [Sergiño Dest en Joey Veerman keren terug in de basis bij PSV, Excelsior mist Noah Naujoks](https://www.ad.nl/voetbal/sergino-dest-en-joey-veerman-keren-terug-in-de-basis-bij-psv-excelsior-mist-noah-naujoks~ad583e77/)
+- [LIVE EK atletiek | Meteen medaillekansen voor Nederland op voorlaatste atletiekavond](https://www.ad.nl/andere-sporten/live-ek-atletiek-meteen-medaillekansen-voor-nederland-op-voorlaatste-atletiekavond~a931e786/)
+  > Het is het slotweekend van de EK atletiek in het Engelse Birmingham. Hoeveel medailles gaat Nederland uiteindelijk pakken? Hier blijf je op de hoogte...
+- [AZ zet overwicht om in comfortabele voorsprong, FC Utrecht doet wat terug](https://www.ad.nl/utrecht/az-zet-overwicht-om-in-comfortabele-voorsprong-fc-utrecht-doet-wat-terug~a176b4380/)
+  > AZ heeft de Johan Cruijff Schaal en de eerste zege in de Vriendenloterij eredivisie op zak. Dat goede gevoel wordt doorgetrokken in het duel met FC...
+- [Wallaby ontsnapt in Zeeland: ‘Hij is klein, maar heel sterk en extreem snel’](https://www.ad.nl/binnenland/wallaby-ontsnapt-in-zeeland-hij-is-klein-maar-heel-sterk-en-extreem-snel~af910ca6/)
+  > Een wallaby, een kleine kangoeroesoort, is aan de wandel gegaan in Vrouwenpolder. Het is de vraag of én wanneer hij gevangen wordt. „Hij is klein,...
+- [Ruben van Bommel zet PSV op vroege voorsprong tegen koploper Excelsior](https://www.ad.nl/voetbal/ruben-van-bommel-zet-psv-op-vroege-voorsprong-tegen-koploper-excelsior~ad583e77/)
   > PSV leek tegen Fortuna Sittard op weg naar een zege, maar de Eindhovenaren speelden uiteindelijk alsnog gelijk (2-2). De ploeg van Peter Bosz moet op...
-- [Eerste kansen FC Utrecht, AZ neemt regie in de Galgenwaard over](https://www.ad.nl/utrecht/eerste-kansen-fc-utrecht-az-neemt-regie-in-de-galgenwaard-over~a176b4380/)
-  > AZ heeft de Johan Cruijff Schaal en de eerste zege in de Vriendenloterij eredivisie op zak. FC Utrecht verloor vorige week onnodig van FC Groningen...
-- [Ismael Saibari met knappe assist direct belangrijk bij debuut voor Bayern München](https://www.ad.nl/voetbal/ismael-saibari-met-knappe-assist-direct-belangrijk-bij-debuut-voor-bayern-munchen~a968ee6b/)
-  > Ismael Saibari heeft zijn officieuze debuut gemaakt voor Bayern München. De voormalig PSV-speler speelde slechts twintig minuten mee tegen Leipzig,...
+- [Animo voor adults-only-camping groeit: ‘Op vakantie geen zin in ouders die kinderen niet begrenzen’](https://www.ad.nl/binnenland/animo-voor-adults-only-camping-groeit-op-vakantie-geen-zin-in-ouders-die-kinderen-niet-begrenzen~a55ceca4/)
+  > Geen ontroostbare baby’s, schreeuwende kinderen bij het voetbalveld of angst dat de barbecue wordt omgestoten door een (te) enthousiaste peuter. Wél...
 
 ### Meest gelezen
 
