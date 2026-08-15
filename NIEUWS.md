@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-08-2026 om 20:26*
+*Laatst bijgewerkt: 15-08-2026 om 21:23*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Rio de Janeiro heeft Jezusbeeld, Pools dorpje gigantisch Mariabeeld](https://nos.nl/l/2627056)
+  > Het Poolse dorpje Konotopie met minder dan 150 inwoners kan zich voortaan meten met de Braziliaanse miljoenenstad Rio de Janeiro. Op beide plekken...
+- [Duitse natuurbrand onder controle, 2000 evacués terug naar huis](https://nos.nl/l/2627044)
+  > De 2000 inwoners van het Duitse dorp Gey, waar in de buurt een natuurbrand woedt, mogen terug naar huis. Ze waren vrijdagochtend geëvacueerd omdat...
 - [79.242 peuken gevonden bij strandopruimactie, ruim helft meer dan vorig jaar](https://nos.nl/l/2627037)
   > Bij een strandopruimactie langs de Noordzeekust zijn bijna 80.000 sigarettenpeuken gevonden. Dat zijn er ruim de helft meer dan vorig jaar, meldt...
 - [Marokko pakt bijna 300 migranten op bij Ceuta, Spaanse journalisten uitgezet](https://nos.nl/l/2627028)
   > Het Marokkaanse leger heeft honderden mensen verjaagd die vanuit Marokko het Spaanse Ceuta probeerden binnen te komen. Volgens Marokkaanse...
 - [Slachtoffers herdacht bij Nationale Indiëherdenking: 'Verhalen bieden houvast'](https://nos.nl/l/2627023)
   > Bij het Indisch Monument in Den Haag is stilgestaan bij het einde van de Tweede Wereldoorlog in het voormalig Nederlands-Indië, het huidige...
-- [Politiebond ACP wil duidelijkheid van OM over handhaving op snelwegen](https://nos.nl/l/2627017)
-  > "We moeten geen tractoren op de snelweg willen, dat is veel te gevaarlijk", zegt bestuurder Patrick Fluyt van politievakbond ACP. "We willen dat het...
-- [In Liechtenstein kan ook een prinses over een paar decennia troonopvolger worden](https://nos.nl/l/2627015)
-  > In 2019 sprak hij zich nog uit tegen een vrouwelijke opvolger, maar vandaag heeft erfprins Alois van Liechtenstein bekendgemaakt dat toekomstige...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Fortuna Sittard boekt na punt tegen PSV nipte zege op SC Cambuur](https://www.ad.nl/voetbal/fortuna-sittard-boekt-na-punt-tegen-psv-nipte-zege-op-sc-cambuur~a7d4e762/)
+  > Fortuna Sittard heeft de thuiswedstrijd tegen SC Cambuur (3-1) gewonnen. Philip Brittijn, Lequincio Zeefuik en Shiloh ‘t Zand waren de...
+- [Nederland na prachtige atletiekavond vierde op medaillespiegel met twaalf plakken](https://www.ad.nl/andere-sporten/nederland-na-prachtige-atletiekavond-vierde-op-medaillespiegel-met-twaalf-plakken~a931e786/)
+  > Het is het slotweekend van de EK atletiek in het Engelse Birmingham. Hoeveel medailles gaat Nederland uiteindelijk pakken? Hier blijf je op de hoogte...
+- [Brons met een bijsmaak voor Lieke Klaver in topvorm: ‘Het ging niet zoals ik wilde’](https://www.ad.nl/andere-sporten/brons-met-een-bijsmaak-voor-lieke-klaver-in-topvorm-het-ging-niet-zoals-ik-wilde~a02076af/)
+  > Lieke Klaver wilde zich op dit EK overtreffen, maar dat lukte niet met brons op de 400 meter. Aan alles voelde Klaver dat ze in bloedvorm was. Grote...
+- [Brand in België blijft uitbreiden: al meer dan 2700 hectare verwoest en 600 personen geëvacueerd](https://www.ad.nl/buitenland/brand-in-belgie-blijft-uitbreiden-al-meer-dan-2700-hectare-verwoest-en-600-personen-geevacueerd~ad0a3949/)
+  > Brandbestrijders proberen in de Belgische gemeente Baelen een grote veenbrand onder controle te krijgen. Er worden onder meer helikopters ingezet,...
 - [Historisch besluit in Liechtenstein: vrouwen mogen eindelijk op de troon](https://www.ad.nl/show/historisch-besluit-in-liechtenstein-vrouwen-mogen-eindelijk-op-de-troon~a2e3d8bf/)
   > Ook vrouwelijke telgen van het Liechtensteinse vorstenhuis kunnen in de toekomst de troon bestijgen. Het hof heeft de regels aangepast: voortaan...
-- [Stefan Nillessen zorgt voor megastunt: Nederlander snelt naar EK-goud op 1500 meter](https://www.ad.nl/andere-sporten/stefan-nillessen-zorgt-voor-megastunt-nederlander-snelt-naar-ek-goud-op-1500-meter~aa7a1dbb/)
-  > Stefan Nillessen heeft op het EK atletiek in Birmingham voor een enorme sensatie gezorgd. De 23-jarige Nederland liep dankzij een machtige eindsprint...
-- [PSG presen­teert Mika Godts: Ajax ontvangt bedrag dat kan oplopen tot 55 miljoen euro](https://www.ad.nl/voetbal/psg-presenteert-mika-godts-ajax-ontvangt-bedrag-dat-kan-oplopen-tot-55-miljoen-euro~ac6fa6a3b/)
-  > Mika Godts maakt een droomtransfer naar Paris Saint-Germain. Ajax heeft met de Champions League-winnaar overeenstemming bereikt over een transfersom...
-- [PSV maakt het zichzelf onnodig lastig bij Excelsior, maar boekt wel eerste zege van het seizoen](https://www.ad.nl/voetbal/psv-maakt-het-zichzelf-onnodig-lastig-bij-excelsior-maar-boekt-wel-eerste-zege-van-het-seizoen~ad583e77/)
-  > PSV heeft de eerste zege van het seizoen binnen. Na het puntverlies tegen Fortuna Sittard (2-2) maakten de Eindhovenaren het zichzelf ook op bezoek...
-- [Waarom de dood van Cambridge-professor Jason Arday zo’n giftige rel veroorzaakt in het VK](https://www.ad.nl/buitenland/waarom-de-dood-van-cambridge-professor-jason-arday-zon-giftige-rel-veroorzaakt-in-het-vk~a1f7515c/)
-  > Het overlijden van de voormalige Cambridge-professor Jason Arday (41), kort na zijn ontmaskering als fantast, zorgt voor ongemak in het VK. De vraag...
 
 ### Meest gelezen
 
