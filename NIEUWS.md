@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-08-2026 om 18:33*
+*Laatst bijgewerkt: 16-08-2026 om 19:23*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Steeds meer Israëliërs verlaten het land: ‘Ik wil niet midden in de nacht naar de schuilkelder’](https://www.ad.nl/buitenland/steeds-meer-israeliers-verlaten-het-land-ik-wil-niet-midden-in-de-nacht-naar-de-schuilkelder~a48c94d02/)
+- [Coach maakt zich zorgen over blessures bij Nederlanders, zorgt Femke Broeders-Bol vanavond voor estafettegoud?](https://www.ad.nl/andere-sporten/coach-maakt-zich-zorgen-over-blessures-bij-nederlanders-zorgt-femke-broeders-bol-vanavond-voor-estafettegoud~a931e786/)
+  > Het is de slotdag van de EK atletiek in het Engelse Birmingham, met kansen voor Nederland. Hier blijf je op de hoogte van alle ontwikkelingen. In...
+- [Youri Baas is van mening dat hij te weinig speelt bij Ajax: ‘Dat vind ik jammer’](https://www.ad.nl/voetbal/youri-baas-is-van-mening-dat-hij-te-weinig-speelt-bij-ajax-dat-vind-ik-jammer~a6810780/)
+  > Youri Baas vindt dat hij te weinig speelt bij Ajax. „Ik wil eigenlijk alles spelen”, zei hij na een gelijkspel tegen sc Heerenveen (2-2).
+- [Tsafrir verlaat Israël, net als tienduizenden anderen: ‘Wordt hier steeds minder democratisch’](https://www.ad.nl/buitenland/tsafrir-verlaat-israel-net-als-tienduizenden-anderen-wordt-hier-steeds-minder-democratisch~a48c94d02/)
   > Israël kampt met een historisch hoge emigratiegolf. Sinds 2023 zien veel hoogopgeleide Israëliërs het niet meer zitten in het land. Intussen krijgen...
 - [Cristiano Ronaldo en Georgina Rodríguez kozen voor bruiloft in woonkamer: ‘Wilde iets intiems’](https://www.ad.nl/show/cristiano-ronaldo-en-georgina-rodriguez-kozen-voor-bruiloft-in-woonkamer-wilde-iets-intiems~a81a08a6/)
   > Cristiano Ronaldo en zijn vrouw Georgina Rodríguez hebben bewust gekozen voor een kleine bruiloft in hun eigen woonkamer. Het stel trouwde op 11...
-- [Shirley is als oud-deelneemster kritisch op nieuwe seizoen B&B Vol Liefde door ‘saaie verhaallijnen’](https://www.ad.nl/binnenland/shirley-is-als-oud-deelneemster-kritisch-op-nieuwe-seizoen-benb-vol-liefde-door-saaie-verhaallijnen~af93508b/)
+- [Oud-B&B-deelneemster Shirley: ‘Paul is oersaai om naar te kijken’](https://www.ad.nl/binnenland/oud-benb-deelneemster-shirley-paul-is-oersaai-om-naar-te-kijken~af93508b/)
   > Een koffer, een camera in je gezicht en hopen dat de klik er is: Shirley weet inmiddels hoe vreemd B&B Vol Liefde voelt. De oud-deelnemer blikt terug...
-- [Margreet (56) hielp Evelien (30) ter wereld, nu zijn ze collega’s: ‘Geboortezorg is heel erg veranderd’](https://www.ad.nl/utrecht/margreet-56-hielp-evelien-30-ter-wereld-nu-zijn-ze-collegas-geboortezorg-is-heel-erg-veranderd~abfde1ec/)
-  > „We kunnen wel een boek schrijven”, vat Margreet Saamaan (56) haar werk in het Diakonessenhuis in Utrecht samen. Als obstetrieverpleegkundige...
-- [Voor het eerst ooit weten topclubs eerste thuisduel niet te winnen, record voor Tjaronn Chery en kopkoning Ayase Ueda](https://www.ad.nl/voetbal/voor-het-eerst-ooit-weten-topclubs-eerste-thuisduel-niet-te-winnen-record-voor-tjaronn-chery-en-kopkoning-ayase-ueda~aca0a7e9/)
-  > De tweede speelronde van de VriendenLoterij Eredivisie zit erop. Feyenoord en Ajax morsten punten, terwijl PSV met 1-2 won bij Excelsior Rotterdam....
 
 ### Meest gelezen
 
