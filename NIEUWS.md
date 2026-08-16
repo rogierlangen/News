@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-08-2026 om 03:03*
+*Laatst bijgewerkt: 16-08-2026 om 04:38*
 
 ---
 
@@ -9,8 +9,7 @@
 ### Laatste nieuws
 
 - [Uitslaande brand in appartementencomplex Oosterhout, gebouw ontruimd](https://nos.nl/l/2627070)
-  > In het Noord-Brabantse Oosterhout is vannacht brand uitgebroken in een appartementencomplex.
-        De brand ontstond op de vierde verdieping en het...
+  > In het Noord-Brabantse Oosterhout heeft brand gewoed in een appartementencomplex. Het pand was ontruimd om het vuur te kunnen blussen. De brand werd...
 - [Twee doden door modderstroom in noordwesten van Spanje](https://nos.nl/l/2627069)
   > In de Spaanse provincie Léon zijn twee doden gevallen door een modderstroom. De slachtoffers verbleven in een wijnkelder, die door hevige regen plots...
 - [Dodental beving Colombia inmiddels 294, hoop vervliegt voor mensen onder puin](https://nos.nl/l/2627068)
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Deze ‘vergeten’ manier van autorijden is waarschijnlijk de allergoedkoopste](https://www.ad.nl/auto/deze-vergeten-manier-van-autorijden-is-waarschijnlijk-de-allergoedkoopste~a0613761/)
+  > Wie zo goedkoop mogelijk met de auto wil rijden, kijkt al snel naar elektrisch of hybride. Toch is er een alternatief dat veel minder aandacht...
+- [De villa’s van Christian Dior, Pierre Cardin en Karl Lagerfeld: ‘Dit is nauwelijks bewoonbaar’](https://www.ad.nl/buitenland/de-villas-van-christian-dior-pierre-cardin-en-karl-lagerfeld-dit-is-nauwelijks-bewoonbaar~a56bcca5/)
+  > Aan de Franse Rivièra staan de villa’s van drie van Frankrijks beroemdste modeontwerpers. Een inkijkje in de woningen van Christian Dior, Pierre...
+- [Mopshond Jinny Lu verkozen tot ’s werelds lelijkste hond, dit waren haar concurrenten](https://www.ad.nl/buitenland/mopshond-jinny-lu-verkozen-tot-s-werelds-lelijkste-hond-dit-waren-haar-concurrenten~a6bd8c50/)
+  > Mopshond Jinny Lu is de winnaar van de World’s Ugliest Dog Contest die vrijdag plaatsvond in Santa Rosa, Californië.
+- [Australische deelstaat koopt vuurwapens terug na aanslag Bondi Beach: ‘Niet goedkoop, maar de prijs waard’](https://www.ad.nl/buitenland/australische-deelstaat-koopt-vuurwapens-terug-na-aanslag-bondi-beach-niet-goedkoop-maar-de-prijs-waard~a9608be1/)
+  > New South Wales (NSW) start in november met een terugkoopprogramma voor vuurwapens. NSW is daarmee de eerste Australische deelstaat die geld biedt...
 - [Hoe ‘eliteklasje’ voor hooligans een succesvol kledingmerk opzette en nu geld verdient aan geweld](https://www.ad.nl/binnenland/hoe-eliteklasje-voor-hooligans-een-succesvol-kledingmerk-opzette-en-nu-geld-verdient-aan-geweld~a8351756/)
   > Met geweld en intimidatie werd hooligangroep Rotterdam Radicals op de kaart gezet. Het ‘eliteklasje’ voor relschoppers zette vervolgens een succesvol...
-- [Doden en gewonden door overstroming en aardverschuiving in Spanje](https://www.ad.nl/buitenland/doden-en-gewonden-door-overstroming-en-aardverschuiving-in-spanje~aa83e281/)
-  > Door overstromingen en een aardverschuiving in het noordwesten van Spanje zijn zaterdag twee doden gevallen, melden de hulpdiensten. Daarnaast...
-- [Amerikaanse komiek Nate Bargatze breekt wereldrecord met ticketverkoop](https://www.ad.nl/show/amerikaanse-komiek-nate-bargatze-breekt-wereldrecord-met-ticketverkoop~a4792b0a/)
-  > De Amerikaanse komiek Nate Bargatze heeft een Guinness World Record gevestigd voor de meeste verkochte tickets voor een stand-upcomedytournee. Voor...
-- [President Colombia vraagt VS importheffingen op te schorten](https://www.ad.nl/buitenland/president-colombia-vraagt-vs-importheffingen-op-te-schorten~ae67dd9c/)
-  > De nieuwe Colombiaanse president Abelardo de la Espriella heeft de Amerikaanse president Donald Trump gevraagd om de huidige importheffingen voor het...
-- [Fortuna Sittard boekt na punt tegen PSV nipte zege op SC Cambuur](https://www.ad.nl/voetbal/fortuna-sittard-boekt-na-punt-tegen-psv-nipte-zege-op-sc-cambuur~a7d4e762/)
-  > Fortuna Sittard heeft de thuiswedstrijd tegen SC Cambuur (3-1) gewonnen. Philip Brittijn, Lequincio Zeefuik en Shiloh ‘t Zand waren de...
 
 ### Meest gelezen
 
@@ -47,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [SVB-voorzitter Diana Starmans: ‘Wij belichamen bestaanszekerheid’](https://fd.nl/samenleving/1604343/svb-voorzitter-diana-starmans-wij-belichamen-bestaanszekerheid)
+  > Maatschappelijke veranderingen zetten de dienstverlening van de Sociale Verzekeringsbank onder zware druk. Alleen eenvoudigere regels kunnen het tij...
 - [Luisterverhaal: Zijn ‘geliefde vriend’ Epstein doet miljardair Leon Black de das om](https://fd.nl/samenleving/1607880/luisterverhaal-zijn-geliefde-vriend-epstein-doet-miljardair-leon-black-de-das-om)
   > Deze week hoor je een profiel van Leon Black, de ‘grootste gorilla’ van de Amerikaanse private equity.
 - [Marokko en Spanje zetten duizenden agenten in rondom Ceuta, journalisten opgedragen te vertrekken](https://fd.nl/samenleving/1607976/marokko-en-spanje-zetten-duizenden-agenten-in-rondom-ceuta-journalisten-opgedragen-te-vertrekken)
@@ -55,8 +56,6 @@
   > De fabrieken zouden raketten hebben gebouwd waarmee satellieten de ruimte ingeschoten kunnen worden voor een Russische internetdienst die gebruikt...
 - [Belgische natuurbrand is volgens burgemeesters ‘de grootste in de geschiedenis’](https://fd.nl/samenleving/1607878/brits-verbod-op-wegwerpbarbecues-tegen-natuurbranden)
   > Het vuur is nog niet onder controle.
-- [‘Omzet Anthropic groeit met factor 14 in een jaar tijd’](https://fd.nl/bedrijfsleven/1607877/omzet-anthropic-groeit-met-factor-14-in-een-jaar-tijd)
-  > De groei is een essentieel onderdeel van de waarde van de chatbotmaker, die later dit jaar naar de beurs wil.
 
 ### Meest gelezen
 
