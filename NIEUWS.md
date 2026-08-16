@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-08-2026 om 08:33*
+*Laatst bijgewerkt: 16-08-2026 om 09:29*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Brand Ardennen breidt zich nog steeds uit, 3000 hectare verwoest](https://nos.nl/l/2627088)
+  > De natuurbrand in de Belgische Ardennen breidt zich nog steeds uit. Inmiddels is zeker 3000 hectare van het natuurgebied de Hoge Venen verwoest. Het...
 - [Dodental na aardbeving Indonesië loopt op, reddingswerkers zoeken naar overlevenden](https://nos.nl/l/2627084)
   > Het dodental na de aardbeving voor de kust van het Indonesische eiland Flores is inmiddels opgelopen tot zeker 47, melden Indonesische autoriteiten....
-- [Twaalf mensen omgekomen bij busongeluk in Hongarije](https://nos.nl/l/2627083)
+- [Twaalf Polen omgekomen bij busongeluk in Hongarije, chauffeur aangehouden](https://nos.nl/l/2627083)
   > Bij een busongeluk in het oosten van Hongarije zijn twaalf inzittenden om het leven gekomen. Daarnaast raakte een aantal mensen zwaargewond toen de...
 - [Brand in Kyiv na Russische aanvallen, Moskou meldt honderden Oekraïense drones](https://nos.nl/l/2627082)
   > In de Oekraïense hoofdstad Kyiv zijn vannacht drie mensen gewond geraakt door Russische raketaanvallen. Dat meldt burgemeester Klitsjko. Onder meer...
 - [Kost de economische ontevredenheid de Republikeinse partij de midterm-verkiezingen?](https://nos.nl/l/2627076)
   > President Trump krijgt maar moeilijk grip op inflatie. Hij deed in 2024 de verkiezingsbelofte om "onmiddellijk de slopende inflatiecrisis te...
-- [Wekdienst 16/8: Nederlandse estafettevrouwen in actie • Feyenoord en Ajax in actie](https://nos.nl/l/2627072)
-  > Goedemorgen! Een drukke sportdag vandaag. De estafettevrouwen strijden om hun derde titel op rij op de 4x400 meter en Feyenoord en Ajax spelen hun...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘Liefhebber pur sang’ wees Saoedische miljoenen af, blijft Anis Hadj Moussa bij Feyenoord? ‘Ik heb geen glazen bol’](https://www.ad.nl/voetbal/liefhebber-pur-sang-wees-saoedische-miljoenen-af-blijft-anis-hadj-moussa-bij-feyenoord-ik-heb-geen-glazen-bol~aee341fb5/)
-  > Anis Hadj Moussa wees deze zomer miljoenen uit Saoedi-Arabië af om bij Feyenoord te blijven. Trainer Giovanni van Bronckhorst koestert zijn...
-- [Meer blaasontstekingen in de zomer: zo verklein je het risico](https://www.ad.nl/gezond/meer-blaasontstekingen-in-de-zomer-zo-verklein-je-het-risico~aac7c215d/)
-  > Blaasontstekingen komen in de zomer vaker voor dan in de rest van het jaar. Waarom? Komt het doordat we nu vaker in natte badkleding rondlopen, zoals...
-- [In de winkel van Johan vind je alles van Elvis: ‘Ben er zelf ook aan gehecht’](https://www.ad.nl/show/in-de-winkel-van-johan-vind-je-alles-van-elvis-ben-er-zelf-ook-aan-gehecht~af90c247/)
-  > Wie had dat gedacht? Een onooglijk winkeltje dat zich opent als een betoverende muziekdoos. Wie meent dat je helemaal naar Amerika moet reizen om...
-- [Ernstig ongeluk met toeristenbus in Hongarije: twaalf doden en zeker twintig gewonden](https://www.ad.nl/buitenland/ernstig-ongeluk-met-toeristenbus-in-hongarije-twaalf-doden-en-zeker-twintig-gewonden~af98e130/)
-  > Bij een ongeluk met een Poolse toeristenbus zijn in Hongarije twaalf doden en zeker twintig gewonden gevallen. De bus raakte ruim 100 kilometer ten...
-- [Programma, stand en topscorers eredivisie | AZ foutloos aan kop, degradanten nog met lege handen: dit is de ranglijst](https://www.ad.nl/voetbal/programma-stand-en-topscorers-eredivisie-az-foutloos-aan-kop-degradanten-nog-met-lege-handen-dit-is-de-ranglijst~a5ebff08/)
-  > SC Cambuur en Excelsior trapten op vrijdag 7 augustus het nieuwe eredivisieseizoen af. Bekijk in dit artikel het complete programma, met daaronder de...
+- [EK-record voor Finse atlete op marathon, zorgt Femke Broeders-Bol vanavond voor estafettegoud?](https://www.ad.nl/andere-sporten/ek-record-voor-finse-atlete-op-marathon-zorgt-femke-broeders-bol-vanavond-voor-estafettegoud~a931e786/)
+  > Het is het slotweekend van de EK atletiek in het Engelse Birmingham. Hoeveel medailles gaat Nederland uiteindelijk pakken? Hier blijf je op de hoogte...
+- [Frankie Valli 'heeft het zwaar, maar gaat wel vooruit'](https://www.ad.nl/show/frankie-valli-heeft-het-zwaar-maar-gaat-wel-vooruit~aafd7003/)
+  > Frankie Valli ‘heeft het zwaar, maar gaat wel vooruit’. Dat meldt zijn woordvoerder aan People, nadat de 92-jarige zanger op Instagram stelde dat hij...
+- [Tonnie ruimt met de beste bedoelingen het huis van zijn stervende moeder leeg, dan volgt een rekening van 7000 euro](https://www.ad.nl/binnenland/tonnie-ruimt-met-de-beste-bedoelingen-het-huis-van-zijn-stervende-moeder-leeg-dan-volgt-een-rekening-van-7000-euro~a24b9676/)
+  > Wanneer de Nijmeegse Gonnie Houterman op sterven ligt, haalt haar zoon Tonnie de huurwoning leeg waar zij sinds 1967 woonde. Maar daarmee lijkt hij...
+- [René Hake over toekomst Robin van Persie: 'Hij heeft wel een aantal eigenschappen om enorm te groeien'](https://www.ad.nl/voetbal/rene-hake-over-toekomst-robin-van-persie-hij-heeft-wel-een-aantal-eigenschappen-om-enorm-te-groeien~a91760b5/)
+  > René Hake heeft voor het eerst uitgebreid teruggeblikt op zijn samenwerking met Robin van Persie bij Feyenoord. Hake was de ervaren assistent van Van...
+- [Opnieuw grote aanval op Russische webwinkel Wildberries, beelden tonen enorme vuurzee](https://www.ad.nl/buitenland/opnieuw-grote-aanval-op-russische-webwinkel-wildberries-beelden-tonen-enorme-vuurzee~adfb97be/)
+  > Oekraïense media berichten dat weer een distributiecentrum van de particuliere onderneming Wildberries is aangevallen. Daarbij zou in Koledino,...
 
 ### Meest gelezen
 
