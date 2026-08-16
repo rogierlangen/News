@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-08-2026 om 05:31*
+*Laatst bijgewerkt: 16-08-2026 om 06:44*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Eredivisie Vrouwen van start met 10 clubs in plaats van 12, toch ziet de KNVB vooruitgang: ‘Het begint bij het sportieve’](https://www.ad.nl/voetbal/eredivisie-vrouwen-van-start-met-10-clubs-in-plaats-van-12-toch-ziet-de-knvb-vooruitgang-het-begint-bij-het-sportieve~a10166ca/)
-  > De Eurojackpot Vrouwen Eredivisie begint vandaag niet met 12, maar met 10 clubs. Je zou denken: dan gaat het niet zo goed. Dat beeld rijst ook op als...
-- [Bosz blij met debuut van aanwinst, Godts neemt afscheid van Ajax-fans](https://www.ad.nl/voetbal/bosz-blij-met-debuut-van-aanwinst-godts-neemt-afscheid-van-ajax-fans~a378dc98/)
-  > Het nieuwe eredivisieseizoen is van start gegaan. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we...
-- [Nachtelijke aanval op Kyiv, meerdere explosies gehoord](https://www.ad.nl/buitenland/nachtelijke-aanval-op-kyiv-meerdere-explosies-gehoord~adfb97be/)
-  > De Oekraïense hoofdstad Kyiv is in de nacht van zaterdag op zondag opgeschrikt door verschillende explosies. Eerder op zaterdag hadden de...
-- [De Bulgaren zagen het al aankomen: waarom verrassende Burgas zo’n logische keuze is voor het songfestival](https://www.ad.nl/show/de-bulgaren-zagen-het-al-aankomen-waarom-verrassende-burgas-zon-logische-keuze-is-voor-het-songfestival~af302adf/)
-  > Dat het Eurovisie Songfestival volgend jaar neerstrijkt in de kuststad Burgas en niet in hoofdstad Sofia, kwam voor velen donderdag als een...
-- [Islam Makhachev vecht historisch UFC-record uit de boeken met zwaarbevochten zege in titelpartij](https://www.ad.nl/vechtsport/islam-makhachev-vecht-historisch-ufc-record-uit-de-boeken-met-zwaarbevochten-zege-in-titelpartij~a1838d34/)
-  > Islam Makhachev heeft geschiedenis geschreven in de Ultimate Fighting Championship. De Russische topvechter vocht in de nacht van zaterdag op zondag...
+- [Europees kampioen Stefan Nillessen na gouden eindsprint: ‘Je ruikt bloed en je gaat’](https://www.ad.nl/andere-sporten/europees-kampioen-stefan-nillessen-na-gouden-eindsprint-je-ruikt-bloed-en-je-gaat~af68bb92/)
+  > Tot 200 meter voor de finish had Stefan Nillessen nooit gedacht dat hij Europees kampioen kon worden. Zijn laatste bocht was van de buitencategorie,...
+- [Overnachten onder de sterren in een levende Imax-bioscoop: ‘Zonde om je ogen te sluiten’](https://www.ad.nl/binnenland/overnachten-onder-de-sterren-in-een-levende-imax-bioscoop-zonde-om-je-ogen-te-sluiten~a2b64170/)
+  > In slaap vallen onder de sterrenhemel en wakker worden van tsjilpende koolmeesjes. Overnachten in de Bubbel in Luddeweer voelt bijna alsof je in een...
+- [ManCity moet 100 miljoen betalen voor WK-parel, AZ laat oog vallen op Groninger Resink](https://www.ad.nl/voetbal/mancity-moet-100-miljoen-betalen-voor-wk-parel-az-laat-oog-vallen-op-groninger-resink~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Einde van tropische hitte in Nederland: temperaturen dalen en buien in aantocht](https://www.ad.nl/binnenland/einde-van-tropische-hitte-in-nederland-temperaturen-dalen-en-buien-in-aantocht~a123081b/)
+  > De laatste weken van augustus zijn naar alle waarschijnlijkheid natter dan de eerste weken. Weeronline meldt dat er af en toe buien over het land...
+- ['Vossenkop' die voor 50 pond werd gekocht op antiekmarkt blijkt goudmijn op Britse veiling](https://www.ad.nl/buitenland/vossenkop-die-voor-50-pond-werd-gekocht-op-antiekmarkt-blijkt-goudmijn-op-britse-veiling~af901c3d/)
+  > Een vermeende vossenkop heeft op een veiling in het Britse Bristol een fortuin opgeleverd toen duidelijk werd om welk dier het precies ging. De...
 
 ### Meest gelezen
 
