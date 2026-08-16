@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-08-2026 om 21:23*
+*Laatst bijgewerkt: 16-08-2026 om 22:24*
 
 ---
 
@@ -11,7 +11,7 @@
 - [Demonstratie op strand van Ceuta, Marokko arresteert opnieuw honderden migranten](https://nos.nl/l/2627190)
   > Op het strand van de Spaanse exclave Ceuta zijn vandaag honderden migranten samengekomen om te demonstreren. Ze willen dat de Spaanse overheid hen...
 - [Duitse grensplaatsjes geëvacueerd vanwege brand in natuurgebied Hoge Venen](https://nos.nl/l/2627188)
-  > Twee Duitse gehuchten op de grens met België worden geëvacueerd vanwege de brand in natuurgebied Hoge Venen. Het gaat om de nederzettingen Ruitzhof...
+  > Twee Duitse gehuchten op de grens met België worden geëvacueerd vanwege de brand in natuurgebied Hoge Venen. Het gaat om de buurtschappen Ruitzhof en...
 - [Amerikaanse honkballegende Tommy John (van de elleboog-operatie) overleden](https://nos.nl/l/2627182)
   > De Amerikaanse honkballegende Tommy John, wiens profcarrière in 1974 werd gered door een baanbrekende elleboog-operatie, is op 83-jarige leeftijd...
 - [Geen 'dertigers' meer op de weerkaart, de wisselvalligheid neemt het over](https://nos.nl/l/2627174)
@@ -28,6 +28,8 @@
 
 ### Laatste nieuws
 
+- [Femke Broeders-Bol voorbij Fanny Blankers-Koen op eeuwige medaillelijst, beste EK ooit voor Nederland](https://www.ad.nl/andere-sporten/femke-broeders-bol-voorbij-fanny-blankers-koen-op-eeuwige-medaillelijst-beste-ek-ooit-voor-nederland~a5abb556c/)
+  > Femke Broeders-Bol is ‘Vliegende Huisvrouw’ Fanny Blankers-Koen voorbijgegaan in het eeuwige medailleklassement van Europese kampioenschappen...
 - [Rob Jetten ziet zijn Argentijnse verloofde Nicolás Keenan winnen op WK hockey in Amstelveen](https://www.ad.nl/andere-sporten/rob-jetten-ziet-zijn-argentijnse-verloofde-nicolas-keenan-winnen-op-wk-hockey-in-amstelveen~a49898f8/)
   > De hockeyers van Argentinië, de volgende tegenstander van Nederland in de groepsfase, hebben hun eerste wedstrijd op het WK gewonnen. In het Wagener...
 - [Manchester City en Barcelona akkoord over transfer Rodri, Philipp Max (ex-PSV) zet punt achter loopbaan](https://www.ad.nl/voetbal/manchester-city-en-barcelona-akkoord-over-transfer-rodri-philipp-max-ex-psv-zet-punt-achter-loopbaan~acbd43e6/)
@@ -36,8 +38,6 @@
   > Nederland heeft op de slotdag van de EK atletiek in Birmingham goud gepakt op de 4x400 meter estafette voor vrouwen. Myrte van der Schoot, Lieke...
 - [Steven Berghuis na vroege misstap: ‘Het algehele niveau, met de versterkingen erbij, is echt omhoog gegaan’](https://www.ad.nl/voetbal/steven-berghuis-na-vroege-misstap-het-algehele-niveau-met-de-versterkingen-erbij-is-echt-omhoog-gegaan~afeb467f/)
   > Steven Berghuis (34) is met zijn tiende trainer begonnen aan zijn zesde jaar bij Ajax. Met al zijn ervaring vormt hij een thermometer die aanvoelt...
-- [Cody Gakpo laat zich zien met goal en assist voor Liverpool, Zian Flemming verpest debuut Joël Veltman](https://www.ad.nl/voetbal/cody-gakpo-laat-zich-zien-met-goal-en-assist-voor-liverpool-zian-flemming-verpest-debuut-joel-veltman~abe0f1677/)
-  > Cody Gakpo was zondag de grote man op Anfield, waar Liverpool in de laatste oefenwedstrijd van deze zomer met 2-0 won van Como.
 
 ### Meest gelezen
 
