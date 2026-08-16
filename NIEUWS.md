@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-08-2026 om 22:24*
+*Laatst bijgewerkt: 16-08-2026 om 23:22*
 
 ---
 
@@ -28,7 +28,7 @@
 
 ### Laatste nieuws
 
-- [Femke Broeders-Bol voorbij Fanny Blankers-Koen op eeuwige medaillelijst, beste EK ooit voor Nederland](https://www.ad.nl/andere-sporten/femke-broeders-bol-voorbij-fanny-blankers-koen-op-eeuwige-medaillelijst-beste-ek-ooit-voor-nederland~a5abb556c/)
+- [Femke Broeders-Bol is Fanny Blankers-Koen voorbij, beste EK ooit voor Nederland](https://www.ad.nl/andere-sporten/femke-broeders-bol-is-fanny-blankers-koen-voorbij-beste-ek-ooit-voor-nederland~a5abb556c/)
   > Femke Broeders-Bol is ‘Vliegende Huisvrouw’ Fanny Blankers-Koen voorbijgegaan in het eeuwige medailleklassement van Europese kampioenschappen...
 - [Rob Jetten ziet zijn Argentijnse verloofde Nicolás Keenan winnen op WK hockey in Amstelveen](https://www.ad.nl/andere-sporten/rob-jetten-ziet-zijn-argentijnse-verloofde-nicolas-keenan-winnen-op-wk-hockey-in-amstelveen~a49898f8/)
   > De hockeyers van Argentinië, de volgende tegenstander van Nederland in de groepsfase, hebben hun eerste wedstrijd op het WK gewonnen. In het Wagener...
@@ -47,15 +47,16 @@
 
 ### Laatste nieuws
 
-- [Kies voor investeren, niet consumeren](https://fd.nl/opinie/1607882/kies-voor-investeren-niet-consumeren)
-  > Focus bij de begrotingsonderhandelingen op de versterking van de Nederlandse defensie, op investeren in economie en klimaat. En niet op...
-- [Pro en JA21 langs bij premier Jetten](https://fd.nl/politiek/1607981/pro-en-ja21-langs-bij-premier-jetten)
-- [Trumps kooigevecht: incasseren loont](https://fd.nl/bedrijfsleven/1607046/trumps-kooigevecht-incasseren-loont)
-  > Het ‘vrijheidsgevecht’ in juni bij het Witte Huis leverde organisator UFC een verlies op van $30 mln. Tegelijkertijd was het spotgoedkope marketing.
-- [Hogere energieprijzen stuwen vraag naar groene financiering FMO](https://fd.nl/bedrijfsleven/1607977/hogere-energieprijzen-stuwen-vraag-naar-groene-financiering-fmo)
-  > De Nederlandse ontwikkelingsbank merkt dat klanten inventief omgaan met de hogere energieprijzen. Ze kijken sneller naar de duurzame alternatieven...
-- [Omgekomen Thaise zeeman Kiattisak stuurde vanuit de Straat van Hormuz zijn laatste berichtje](https://fd.nl/economie/1607558/omgekomen-thaise-zeeman-kiattisak-stuurde-vanuit-de-straat-van-hormuz-zijn-laatste-berichtje)
-  > Een Iraanse aanval kostte in maart drie Thaise zeelieden het leven. Overlevenden eisen compensatie van de rederij. ‘Ze kampen met PTSS. Ze zitten...
+- [Nederlandse kolencentrales draaien in 2026 hoogste productie in jaren](https://fd.nl/bedrijfsleven/1607662/nederlandse-kolencentrales-draaien-in-2026-hoogste-productie-in-jaren)
+  > Hoge energieprijzen maken het weer aantrekkelijk om kolencentrales aan te zwengelen. Maar dat schuurt wel met groen beleid.
+- [Mens en vuur](https://fd.nl/opinie/1607571/mens-en-vuur)
+  > Een nieuwe tijd van ongecontroleerd branden heeft zich aangediend.
+- [Fastned werkt aan een herrijzenis op de beurs](https://fd.nl/financiele-markten/1607561/fastned-werkt-aan-een-herrijzenis-op-de-beurs)
+  > Jarenlang was het investeren geblazen voor snellaadbedrijf Fastned. Inmiddels is de onderneming naar eigen zeggen aangekomen op een kantelpunt.
+- [School is geen opvang, maar waarom eigenlijk niet?](https://fd.nl/opinie/1607189/school-is-geen-opvang-maar-waarom-eigenlijk-niet)
+  > Stop met pleisters plakken en neem kinderopvang op in ons onderwijsstelsel, zoals in Zweden en Noorwegen al gebeurt.
+- [Personalia maandag 17 augustus](https://fd.nl/bedrijfsleven/1607983/personalia-maandag-17-augustus)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
