@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-08-2026 om 07:33*
+*Laatst bijgewerkt: 16-08-2026 om 08:33*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Lionel Messi mist derde penalty op rij en kan pijnlijke nederlaag Inter Miami niet voorkomen](https://www.ad.nl/voetbal/lionel-messi-mist-derde-penalty-op-rij-en-kan-pijnlijke-nederlaag-inter-miami-niet-voorkomen~af0866d8/)
-  > Lionel Messi heeft een vervelende avond achter de rug met Inter Miami. De Amerikaanse club verloor de topper tegen koploper Nashville met 4-1. De...
-- [Jarenlang zocht Pepper (26) liefde bij de verkeerde mensen: ‘Toen hij zei dat ik niets waard was, geloofde ik hem’](https://www.ad.nl/rotterdam/jarenlang-zocht-pepper-26-liefde-bij-de-verkeerde-mensen-toen-hij-zei-dat-ik-niets-waard-was-geloofde-ik-hem~a9c6cbe1/)
-  > Vroeger zocht Pepper Maria Wering (26) bevestiging bij mensen die haar klein maakten. Nu debuteert ze met een boek over de liefde, leeft ze nuchter...
-- [Al twaalf medailles voor Nederland, vanavond nog drie kansen op eremetaal](https://www.ad.nl/andere-sporten/al-twaalf-medailles-voor-nederland-vanavond-nog-drie-kansen-op-eremetaal~a931e786/)
-  > Het is het slotweekend van de EK atletiek in het Engelse Birmingham. Hoeveel medailles gaat Nederland uiteindelijk pakken? Hier blijf je op de hoogte...
-- [Europees kampioen Stefan Nillessen na gouden eindsprint: ‘Je ruikt bloed en je gaat’](https://www.ad.nl/andere-sporten/europees-kampioen-stefan-nillessen-na-gouden-eindsprint-je-ruikt-bloed-en-je-gaat~af68bb92/)
-  > Tot 200 meter voor de finish had Stefan Nillessen nooit gedacht dat hij Europees kampioen kon worden. Zijn laatste bocht was van de buitencategorie,...
-- [ManCity moet 100 miljoen betalen voor WK-parel, AZ laat oog vallen op Groninger Resink](https://www.ad.nl/voetbal/mancity-moet-100-miljoen-betalen-voor-wk-parel-az-laat-oog-vallen-op-groninger-resink~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [‘Liefhebber pur sang’ wees Saoedische miljoenen af, blijft Anis Hadj Moussa bij Feyenoord? ‘Ik heb geen glazen bol’](https://www.ad.nl/voetbal/liefhebber-pur-sang-wees-saoedische-miljoenen-af-blijft-anis-hadj-moussa-bij-feyenoord-ik-heb-geen-glazen-bol~aee341fb5/)
+  > Anis Hadj Moussa wees deze zomer miljoenen uit Saoedi-Arabië af om bij Feyenoord te blijven. Trainer Giovanni van Bronckhorst koestert zijn...
+- [Meer blaasontstekingen in de zomer: zo verklein je het risico](https://www.ad.nl/gezond/meer-blaasontstekingen-in-de-zomer-zo-verklein-je-het-risico~aac7c215d/)
+  > Blaasontstekingen komen in de zomer vaker voor dan in de rest van het jaar. Waarom? Komt het doordat we nu vaker in natte badkleding rondlopen, zoals...
+- [In de winkel van Johan vind je alles van Elvis: ‘Ben er zelf ook aan gehecht’](https://www.ad.nl/show/in-de-winkel-van-johan-vind-je-alles-van-elvis-ben-er-zelf-ook-aan-gehecht~af90c247/)
+  > Wie had dat gedacht? Een onooglijk winkeltje dat zich opent als een betoverende muziekdoos. Wie meent dat je helemaal naar Amerika moet reizen om...
+- [Ernstig ongeluk met toeristenbus in Hongarije: twaalf doden en zeker twintig gewonden](https://www.ad.nl/buitenland/ernstig-ongeluk-met-toeristenbus-in-hongarije-twaalf-doden-en-zeker-twintig-gewonden~af98e130/)
+  > Bij een ongeluk met een Poolse toeristenbus zijn in Hongarije twaalf doden en zeker twintig gewonden gevallen. De bus raakte ruim 100 kilometer ten...
+- [Programma, stand en topscorers eredivisie | AZ foutloos aan kop, degradanten nog met lege handen: dit is de ranglijst](https://www.ad.nl/voetbal/programma-stand-en-topscorers-eredivisie-az-foutloos-aan-kop-degradanten-nog-met-lege-handen-dit-is-de-ranglijst~a5ebff08/)
+  > SC Cambuur en Excelsior trapten op vrijdag 7 augustus het nieuwe eredivisieseizoen af. Bekijk in dit artikel het complete programma, met daaronder de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Organon, Adyen en Wolters Kluwer ontvangen tientallen miljoenen belastingkorting uit de Innovatiebox](https://fd.nl/bedrijfsleven/1607194/ook-organon-adyen-en-wolters-kluwer-ontvangen-flinke-belastingkorting-uit-de-innovatiebox)
+  > Tien bedrijven ontvingen vorig jaar een belastingkorting van €2,95 mrd dankzij deze regeling, blijkt uit onderzoek van het FD. De kosten van de...
+- [Machtsstrijd bij Tata Sons kan gevolgen hebben voor de staalfabriek in IJmuiden](https://fd.nl/bedrijfsleven/1607665/machtsstrijd-bij-tata-sons-kan-gevolgen-hebben-voor-de-staalfabriek-in-ijmuiden)
+  > Net nu de deadline nadert voor het besluit over een miljardeninvestering in de vergroening van de Tata-staalfabriek in IJmuiden, is in de top van het...
+- [Het Oekraïne-tribunaal kost Europa geld én geloofwaardigheid](https://fd.nl/opinie/1607339/het-oekraine-tribunaal-kost-europa-geld-en-geloofwaardigheid)
+  > Hoewel de Europese Unie en partnerlanden de handen ineenslaan om Russische oorlogsmisdadigers te berechten, wordt de hoofdrolspeler in het Kremlin...
 - [SVB-voorzitter Diana Starmans: ‘Wij belichamen bestaanszekerheid’](https://fd.nl/samenleving/1604343/svb-voorzitter-diana-starmans-wij-belichamen-bestaanszekerheid)
   > Maatschappelijke veranderingen zetten de dienstverlening van de Sociale Verzekeringsbank onder zware druk. Alleen eenvoudigere regels kunnen het tij...
 - [Luisterverhaal: Zijn ‘geliefde vriend’ Epstein doet miljardair Leon Black de das om](https://fd.nl/samenleving/1607880/luisterverhaal-zijn-geliefde-vriend-epstein-doet-miljardair-leon-black-de-das-om)
   > Deze week hoor je een profiel van Leon Black, de ‘grootste gorilla’ van de Amerikaanse private equity.
-- [Marokko en Spanje zetten duizenden agenten in rondom Ceuta, journalisten opgedragen te vertrekken](https://fd.nl/samenleving/1607976/marokko-en-spanje-zetten-duizenden-agenten-in-rondom-ceuta-journalisten-opgedragen-te-vertrekken)
-  > 148 migranten zijn aangehouden voor het illegaal proberen over te steken naar Ceuta.
-- [Oekraïne zegt rakettenfabriek op negenhonderd kilometer in Rusland te hebben geraakt](https://fd.nl/politiek/1607879/oekraine-zegt-rakettenfabriek-op-negenhonderd-kilometer-in-rusland-te-hebben-geraakt)
-  > De fabrieken zouden raketten hebben gebouwd waarmee satellieten de ruimte ingeschoten kunnen worden voor een Russische internetdienst die gebruikt...
-- [Belgische natuurbrand is volgens burgemeesters ‘de grootste in de geschiedenis’](https://fd.nl/samenleving/1607878/brits-verbod-op-wegwerpbarbecues-tegen-natuurbranden)
-  > Het vuur is nog niet onder controle.
 
 ### Meest gelezen
 
