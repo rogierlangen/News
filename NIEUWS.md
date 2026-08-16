@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-08-2026 om 04:38*
+*Laatst bijgewerkt: 16-08-2026 om 05:31*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Kost de economische ontevredenheid de Republikeinse partij de midterm-verkiezingen?](https://nos.nl/l/2627076)
+  > President Trump krijgt maar moeilijk grip op inflatie. Hij deed in 2024 de verkiezingsbelofte om "onmiddellijk de slopende inflatiecrisis te...
+- [Wekdienst 16/8: Nederlandse estafettevrouwen in actie • Feyenoord en Ajax in actie](https://nos.nl/l/2627072)
+  > Goedemorgen! Een drukke sportdag vandaag. De estafettevrouwen strijden om hun derde titel op rij op de 4x400 meter en Feyenoord en Ajax spelen hun...
 - [Uitslaande brand in appartementencomplex Oosterhout, gebouw ontruimd](https://nos.nl/l/2627070)
   > In het Noord-Brabantse Oosterhout heeft brand gewoed in een appartementencomplex. Het pand was ontruimd om het vuur te kunnen blussen. De brand werd...
-- [Twee doden door modderstroom in noordwesten van Spanje](https://nos.nl/l/2627069)
-  > In de Spaanse provincie Léon zijn twee doden gevallen door een modderstroom. De slachtoffers verbleven in een wijnkelder, die door hevige regen plots...
+- [Twee doden door modderstroom in Spaanse wijnkelder, twee baby's gewond](https://nos.nl/l/2627069)
+  > In de Spaanse provincie Léon zijn twee doden gevallen door een modderstroom. De slachtoffers waren met nog vier anderen in een wijnkelder toen door...
 - [Dodental beving Colombia inmiddels 294, hoop vervliegt voor mensen onder puin](https://nos.nl/l/2627068)
   > Het dodental door de zware aardbeving in Colombia van maandag is opgelopen tot 294. Ruim 300 mensen worden nog vermist. Reddingswerkers vrezen dat de...
-- [Rio de Janeiro heeft Jezusbeeld, Pools dorpje gigantisch Mariabeeld](https://nos.nl/l/2627056)
-  > Het Poolse dorpje Konotopie met minder dan 150 inwoners kan zich voortaan meten met de Braziliaanse miljoenenstad Rio de Janeiro. Op beide plekken...
-- [Duitse natuurbrand onder controle, 2000 evacués terug naar huis](https://nos.nl/l/2627044)
-  > De 2000 inwoners van het Duitse dorp Gey, waar in de buurt een natuurbrand woedt, mogen terug naar huis. Ze waren vrijdagochtend geëvacueerd omdat...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Deze ‘vergeten’ manier van autorijden is waarschijnlijk de allergoedkoopste](https://www.ad.nl/auto/deze-vergeten-manier-van-autorijden-is-waarschijnlijk-de-allergoedkoopste~a0613761/)
-  > Wie zo goedkoop mogelijk met de auto wil rijden, kijkt al snel naar elektrisch of hybride. Toch is er een alternatief dat veel minder aandacht...
-- [De villa’s van Christian Dior, Pierre Cardin en Karl Lagerfeld: ‘Dit is nauwelijks bewoonbaar’](https://www.ad.nl/buitenland/de-villas-van-christian-dior-pierre-cardin-en-karl-lagerfeld-dit-is-nauwelijks-bewoonbaar~a56bcca5/)
-  > Aan de Franse Rivièra staan de villa’s van drie van Frankrijks beroemdste modeontwerpers. Een inkijkje in de woningen van Christian Dior, Pierre...
-- [Mopshond Jinny Lu verkozen tot ’s werelds lelijkste hond, dit waren haar concurrenten](https://www.ad.nl/buitenland/mopshond-jinny-lu-verkozen-tot-s-werelds-lelijkste-hond-dit-waren-haar-concurrenten~a6bd8c50/)
-  > Mopshond Jinny Lu is de winnaar van de World’s Ugliest Dog Contest die vrijdag plaatsvond in Santa Rosa, Californië.
-- [Australische deelstaat koopt vuurwapens terug na aanslag Bondi Beach: ‘Niet goedkoop, maar de prijs waard’](https://www.ad.nl/buitenland/australische-deelstaat-koopt-vuurwapens-terug-na-aanslag-bondi-beach-niet-goedkoop-maar-de-prijs-waard~a9608be1/)
-  > New South Wales (NSW) start in november met een terugkoopprogramma voor vuurwapens. NSW is daarmee de eerste Australische deelstaat die geld biedt...
-- [Hoe ‘eliteklasje’ voor hooligans een succesvol kledingmerk opzette en nu geld verdient aan geweld](https://www.ad.nl/binnenland/hoe-eliteklasje-voor-hooligans-een-succesvol-kledingmerk-opzette-en-nu-geld-verdient-aan-geweld~a8351756/)
-  > Met geweld en intimidatie werd hooligangroep Rotterdam Radicals op de kaart gezet. Het ‘eliteklasje’ voor relschoppers zette vervolgens een succesvol...
+- [Eredivisie Vrouwen van start met 10 clubs in plaats van 12, toch ziet de KNVB vooruitgang: ‘Het begint bij het sportieve’](https://www.ad.nl/voetbal/eredivisie-vrouwen-van-start-met-10-clubs-in-plaats-van-12-toch-ziet-de-knvb-vooruitgang-het-begint-bij-het-sportieve~a10166ca/)
+  > De Eurojackpot Vrouwen Eredivisie begint vandaag niet met 12, maar met 10 clubs. Je zou denken: dan gaat het niet zo goed. Dat beeld rijst ook op als...
+- [Bosz blij met debuut van aanwinst, Godts neemt afscheid van Ajax-fans](https://www.ad.nl/voetbal/bosz-blij-met-debuut-van-aanwinst-godts-neemt-afscheid-van-ajax-fans~a378dc98/)
+  > Het nieuwe eredivisieseizoen is van start gegaan. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we...
+- [Nachtelijke aanval op Kyiv, meerdere explosies gehoord](https://www.ad.nl/buitenland/nachtelijke-aanval-op-kyiv-meerdere-explosies-gehoord~adfb97be/)
+  > De Oekraïense hoofdstad Kyiv is in de nacht van zaterdag op zondag opgeschrikt door verschillende explosies. Eerder op zaterdag hadden de...
+- [De Bulgaren zagen het al aankomen: waarom verrassende Burgas zo’n logische keuze is voor het songfestival](https://www.ad.nl/show/de-bulgaren-zagen-het-al-aankomen-waarom-verrassende-burgas-zon-logische-keuze-is-voor-het-songfestival~af302adf/)
+  > Dat het Eurovisie Songfestival volgend jaar neerstrijkt in de kuststad Burgas en niet in hoofdstad Sofia, kwam voor velen donderdag als een...
+- [Islam Makhachev vecht historisch UFC-record uit de boeken met zwaarbevochten zege in titelpartij](https://www.ad.nl/vechtsport/islam-makhachev-vecht-historisch-ufc-record-uit-de-boeken-met-zwaarbevochten-zege-in-titelpartij~a1838d34/)
+  > Islam Makhachev heeft geschiedenis geschreven in de Ultimate Fighting Championship. De Russische topvechter vocht in de nacht van zaterdag op zondag...
 
 ### Meest gelezen
 
