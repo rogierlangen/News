@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-08-2026 om 23:22*
+*Laatst bijgewerkt: 16-08-2026 om 01:36*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Twee doden door modderstroom in noordwesten van Spanje](https://nos.nl/l/2627069)
+  > In de Spaanse provincie Léon zijn twee doden gevallen door een modderstroom. De slachtoffers verbleven in een wijnkelder, die door hevige regen plots...
 - [Dodental beving Colombia inmiddels 294, hoop vervliegt voor mensen onder puin](https://nos.nl/l/2627068)
   > Het dodental door de zware aardbeving in Colombia van maandag is opgelopen tot 294. Ruim 300 mensen worden nog vermist. Reddingswerkers vrezen dat de...
 - [Rio de Janeiro heeft Jezusbeeld, Pools dorpje gigantisch Mariabeeld](https://nos.nl/l/2627056)
@@ -16,8 +18,6 @@
   > De 2000 inwoners van het Duitse dorp Gey, waar in de buurt een natuurbrand woedt, mogen terug naar huis. Ze waren vrijdagochtend geëvacueerd omdat...
 - [79.242 peuken gevonden bij strandopruimactie, ruim helft meer dan vorig jaar](https://nos.nl/l/2627037)
   > Bij een strandopruimactie langs de Noordzeekust zijn bijna 80.000 sigarettenpeuken gevonden. Dat zijn er ruim de helft meer dan vorig jaar, meldt...
-- [Marokko pakt bijna 300 migranten op bij Ceuta, Spaanse journalisten uitgezet](https://nos.nl/l/2627028)
-  > Het Marokkaanse leger heeft honderden mensen verjaagd die vanuit Marokko het Spaanse Ceuta probeerden binnen te komen. Volgens Marokkaanse...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Doden en gewonden door overstroming en aardverschuiving in Spanje](https://www.ad.nl/buitenland/doden-en-gewonden-door-overstroming-en-aardverschuiving-in-spanje~aa83e281/)
+  > Door overstromingen en een aardverschuiving in het noordwesten van Spanje zijn zaterdag twee doden gevallen, melden de hulpdiensten. Daarnaast...
+- [Amerikaanse komiek Nate Bargatze breekt wereldrecord met ticketverkoop](https://www.ad.nl/show/amerikaanse-komiek-nate-bargatze-breekt-wereldrecord-met-ticketverkoop~a4792b0a/)
+  > De Amerikaanse komiek Nate Bargatze heeft een Guinness World Record gevestigd voor de meeste verkochte tickets voor een stand-upcomedytournee. Voor...
+- [President Colombia vraagt VS importheffingen op te schorten](https://www.ad.nl/buitenland/president-colombia-vraagt-vs-importheffingen-op-te-schorten~ae67dd9c/)
+  > De nieuwe Colombiaanse president Abelardo de la Espriella heeft de Amerikaanse president Donald Trump gevraagd om de huidige importheffingen voor het...
 - [Fortuna Sittard boekt na punt tegen PSV nipte zege op SC Cambuur](https://www.ad.nl/voetbal/fortuna-sittard-boekt-na-punt-tegen-psv-nipte-zege-op-sc-cambuur~a7d4e762/)
   > Fortuna Sittard heeft de thuiswedstrijd tegen SC Cambuur (3-1) gewonnen. Philip Brittijn, Lequincio Zeefuik en Shiloh ‘t Zand waren de...
 - [Nederland na prachtige atletiekavond vierde op medaillespiegel met twaalf plakken](https://www.ad.nl/andere-sporten/nederland-na-prachtige-atletiekavond-vierde-op-medaillespiegel-met-twaalf-plakken~a931e786/)
   > Het is het slotweekend van de EK atletiek in het Engelse Birmingham. Hoeveel medailles gaat Nederland uiteindelijk pakken? Hier blijf je op de hoogte...
-- [Brons met een bijsmaak voor Lieke Klaver in topvorm: ‘Het ging niet zoals ik wilde’](https://www.ad.nl/andere-sporten/brons-met-een-bijsmaak-voor-lieke-klaver-in-topvorm-het-ging-niet-zoals-ik-wilde~a02076af/)
-  > Lieke Klaver wilde zich op dit EK overtreffen, maar dat lukte niet met brons op de 400 meter. Aan alles voelde Klaver dat ze in bloedvorm was. Grote...
-- [Brand in België blijft uitbreiden: al meer dan 2700 hectare verwoest en 600 personen geëvacueerd](https://www.ad.nl/buitenland/brand-in-belgie-blijft-uitbreiden-al-meer-dan-2700-hectare-verwoest-en-600-personen-geevacueerd~ad0a3949/)
-  > Brandbestrijders proberen in de Belgische gemeente Baelen een grote veenbrand onder controle te krijgen. Er worden onder meer helikopters ingezet,...
-- [Historisch besluit in Liechtenstein: vrouwen mogen eindelijk op de troon](https://www.ad.nl/show/historisch-besluit-in-liechtenstein-vrouwen-mogen-eindelijk-op-de-troon~a2e3d8bf/)
-  > Ook vrouwelijke telgen van het Liechtensteinse vorstenhuis kunnen in de toekomst de troon bestijgen. Het hof heeft de regels aangepast: voortaan...
 
 ### Meest gelezen
 
