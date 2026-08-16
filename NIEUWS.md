@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-08-2026 om 09:29*
+*Laatst bijgewerkt: 16-08-2026 om 10:26*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Voor Rick was een Muscle Car zijn jongensdroom, nu probeert hij zijn zoons net zo enthousiast te maken](https://www.ad.nl/auto/voor-rick-was-een-muscle-car-zijn-jongensdroom-nu-probeert-hij-zijn-zoons-net-zo-enthousiast-te-maken~a1bb2a35/)
+  > Al van jongs af aan was een muscle car de droom voor Rick Schoonderbeek (38) uit Leusden. Nu hij er een heeft geeft hij die liefde door aan zijn...
+- [Mike Foppen stapte door ‘duiveltje in zijn hoofd’ uit kansrijke 10.000 meter: ‘Ik voel mij heel laf’](https://www.ad.nl/andere-sporten/mike-foppen-stapte-door-duiveltje-in-zijn-hoofd-uit-kansrijke-10-000-meter-ik-voel-mij-heel-laf~a11e37d63/)
+  > Atleet Mike Foppen stapte zaterdagavond ondanks een kansrijke positie uit op de 10 kilometer. De 29-jarige atleet knakte mentaal tijdens de race. „Ik...
+- [Van Mieghem zorgt voor eerste gevaar ADO Den Haag, zorgen om Vaessen bij FC Groningen](https://www.ad.nl/voetbal/van-mieghem-zorgt-voor-eerste-gevaar-ado-den-haag-zorgen-om-vaessen-bij-fc-groningen~a9b12f12/)
+  > ADO Den Haag verloor vorige week bij de terugkeer in de VriendenLoterij Eredivisie met 2-0 van AZ. Vanmiddag staat voor de promovendus de eerste...
+- [Expert wil betere online bescherming voor jongeren: ‘Influencers worden de opvoeders’](https://www.ad.nl/binnenland/expert-wil-betere-online-bescherming-voor-jongeren-influencers-worden-de-opvoeders~abd86a5b/)
+  > We laten onze jongeren aan hun lot over. Geen wonder dat jonge jongens gaan geloven in de praatjes van Tate-achtige figuren, aldus expert in digitale...
 - [EK-record voor Finse atlete op marathon, zorgt Femke Broeders-Bol vanavond voor estafettegoud?](https://www.ad.nl/andere-sporten/ek-record-voor-finse-atlete-op-marathon-zorgt-femke-broeders-bol-vanavond-voor-estafettegoud~a931e786/)
   > Het is het slotweekend van de EK atletiek in het Engelse Birmingham. Hoeveel medailles gaat Nederland uiteindelijk pakken? Hier blijf je op de hoogte...
-- [Frankie Valli 'heeft het zwaar, maar gaat wel vooruit'](https://www.ad.nl/show/frankie-valli-heeft-het-zwaar-maar-gaat-wel-vooruit~aafd7003/)
-  > Frankie Valli ‘heeft het zwaar, maar gaat wel vooruit’. Dat meldt zijn woordvoerder aan People, nadat de 92-jarige zanger op Instagram stelde dat hij...
-- [Tonnie ruimt met de beste bedoelingen het huis van zijn stervende moeder leeg, dan volgt een rekening van 7000 euro](https://www.ad.nl/binnenland/tonnie-ruimt-met-de-beste-bedoelingen-het-huis-van-zijn-stervende-moeder-leeg-dan-volgt-een-rekening-van-7000-euro~a24b9676/)
-  > Wanneer de Nijmeegse Gonnie Houterman op sterven ligt, haalt haar zoon Tonnie de huurwoning leeg waar zij sinds 1967 woonde. Maar daarmee lijkt hij...
-- [René Hake over toekomst Robin van Persie: 'Hij heeft wel een aantal eigenschappen om enorm te groeien'](https://www.ad.nl/voetbal/rene-hake-over-toekomst-robin-van-persie-hij-heeft-wel-een-aantal-eigenschappen-om-enorm-te-groeien~a91760b5/)
-  > René Hake heeft voor het eerst uitgebreid teruggeblikt op zijn samenwerking met Robin van Persie bij Feyenoord. Hake was de ervaren assistent van Van...
-- [Opnieuw grote aanval op Russische webwinkel Wildberries, beelden tonen enorme vuurzee](https://www.ad.nl/buitenland/opnieuw-grote-aanval-op-russische-webwinkel-wildberries-beelden-tonen-enorme-vuurzee~adfb97be/)
-  > Oekraïense media berichten dat weer een distributiecentrum van de particuliere onderneming Wildberries is aangevallen. Daarbij zou in Koledino,...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Ruslands grootste onlinewinkel opnieuw doelwit droneaanvallen](https://fd.nl/politiek/1607881/ruslands-grootste-onlinewinkel-opnieuw-doelwit-droneaanvallen)
+  > Tegelijkertijd vielen Russische troepen dit weekend Oekraïense steden, waaronder Kyiv en Odesa, aan met raketten en drones.
 - [Organon, Adyen en Wolters Kluwer ontvangen tientallen miljoenen belastingkorting uit de Innovatiebox](https://fd.nl/bedrijfsleven/1607194/ook-organon-adyen-en-wolters-kluwer-ontvangen-flinke-belastingkorting-uit-de-innovatiebox)
   > Tien bedrijven ontvingen vorig jaar een belastingkorting van €2,95 mrd dankzij deze regeling, blijkt uit onderzoek van het FD. De kosten van de...
 - [Machtsstrijd bij Tata Sons kan gevolgen hebben voor de staalfabriek in IJmuiden](https://fd.nl/bedrijfsleven/1607665/machtsstrijd-bij-tata-sons-kan-gevolgen-hebben-voor-de-staalfabriek-in-ijmuiden)
@@ -54,8 +56,6 @@
   > Hoewel de Europese Unie en partnerlanden de handen ineenslaan om Russische oorlogsmisdadigers te berechten, wordt de hoofdrolspeler in het Kremlin...
 - [SVB-voorzitter Diana Starmans: ‘Wij belichamen bestaanszekerheid’](https://fd.nl/samenleving/1604343/svb-voorzitter-diana-starmans-wij-belichamen-bestaanszekerheid)
   > Maatschappelijke veranderingen zetten de dienstverlening van de Sociale Verzekeringsbank onder zware druk. Alleen eenvoudigere regels kunnen het tij...
-- [Luisterverhaal: Zijn ‘geliefde vriend’ Epstein doet miljardair Leon Black de das om](https://fd.nl/samenleving/1607880/luisterverhaal-zijn-geliefde-vriend-epstein-doet-miljardair-leon-black-de-das-om)
-  > Deze week hoor je een profiel van Leon Black, de ‘grootste gorilla’ van de Amerikaanse private equity.
 
 ### Meest gelezen
 
