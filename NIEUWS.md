@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-08-2026 om 18:43*
+*Laatst bijgewerkt: 17-08-2026 om 19:30*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Duizenden mensen bij wake na dood van oud-hoogleraar die van plagiaat werd beschuldigd](https://nos.nl/l/2627304)
+  > Op het Trafalgar-plein in Londen zijn duizenden mensen bijeengekomen voor een wake ten nagedachtenis aan Jason Arday. Hij werd vorige week op...
+- [Het staakt-het-vuren tussen de VS en Iran loopt vandaag af, wat is de situatie nu?](https://nos.nl/l/2627302)
+  > Het staakt-het-vuren van zestig dagen waarbinnen de VS en Iran tot een vredesakkoord moesten komen, loopt vandaag officieel af. De Straat van Hormuz...
 - [Kinderen van buitenschoolse opvang in Vught vinden handgranaat](https://nos.nl/l/2627298)
   > Op het terrein van sportclub Prins Hendrik in Vught is vanmiddag een handgranaat ontdekt. Het explosief uit de Tweede Wereldoorlog werd gevonden door...
 - [Vrouw (31) verdacht van betrokkenheid bij Heerhugowaardse 'vriezermoord'](https://nos.nl/l/2627296)
   > Een 31-jarige vrouw uit Purmerend is medeverdachte in de zaak van de 'Heerhugowaardse vriezermoord'. Ze wordt verdacht van het wegmaken van het...
 - [Na eerste dag begrotingsgesprekken zijn 'verschillen nog levensgroot'](https://nos.nl/l/2627293)
   > Gaat het eigen risico in de zorg volgend jaar omhoog? Hoe gaat de vrijheidsbijdrage eruitzien, en hoe worden de miljarden die het kabinet in defensie...
-- [Twente treedt op bij boerenprotest: tractoren voortaan geweerd van snelweg](https://nos.nl/l/2627292)
-  > In Twente mogen boeren voortaan niet meer met tractoren en andere zware voertuigen op de snelweg demonstreren. Dat is de uitkomst van een overleg...
-- [Rusland stuurt vicevoorzitter oppositiepartij voor 11 jaar naar een strafkamp](https://nos.nl/l/2627291)
-  > Een rechtbank in Rusland heeft vicevoorzitter Lev Shlosberg van oppositiepartij Jabloko tot 11 jaar en 1 maand strafkolonie veroordeeld. Die straf...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Feyenoord versterkt zich met Spaanse linksback](https://www.ad.nl/voetbal/feyenoord-versterkt-zich-met-spaanse-linksback~a7eb423c/)
+- [Italiaanse verdediger voor Cambuur, voormalig KKD-topscorer naar Bundesliga](https://www.ad.nl/voetbal/italiaanse-verdediger-voor-cambuur-voormalig-kkd-topscorer-naar-bundesliga~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Jongen hangt aan spoorboom en dondert lachend naar beneden, ProRail neemt ‘geintje’ ernstig op](https://www.ad.nl/binnenland/jongen-hangt-aan-spoorboom-en-dondert-lachend-naar-beneden-prorail-neemt-geintje-ernstig-op~ab9015d2/)
+  > Spoorbeheerder ProRail onderzoekt een video van een levensgevaarlijke stunt bij een spoorwegovergang. Op de beelden, die op sociale media tot grote...
+- [Nederlandse Brook Lynn (23) bereikt liveshows America’s got talent: ‘Ze weet niet hoe goed ze is’](https://www.ad.nl/show/nederlandse-brook-lynn-23-bereikt-liveshows-americas-got-talent-ze-weet-niet-hoe-goed-ze-is~af1a0864/)
+  > De Nederlandse Brook Lynn staat aan de vooravond van de liveshows van America’s got talent. De 23-jarige zangeres kreeg een staande ovatie voor haar...
+- [Feyenoord huurt Spaanse linksback met optie tot koop: ‘Dit maakt me trots’](https://www.ad.nl/voetbal/feyenoord-huurt-spaanse-linksback-met-optie-tot-koop-dit-maakt-me-trots~a7eb423c/)
   > Feyenoord heeft zich versterkt met Javi López. De 24-jarige linksback wordt tot het einde van het seizoen gehuurd van Real Sociedad. De Rotterdammers...
-- [Programma WK hockey 2026 | Alles wat je moet weten: speelschema, opvallende spelers en nieuwe opzet](https://www.ad.nl/andere-sporten/programma-wk-hockey-2026-alles-wat-je-moet-weten-speelschema-opvallende-spelers-en-nieuwe-opzet~a556c496/)
-  > Voor het eerst in de geschiedenis organiseren Nederland en België samen het WK hockey. Van 15 tot en met 30 augustus strijden mannen- en vrouwenteams...
-- [De Graafschap komt langszij, twee goals in eerste drie minuten bij Jong Ajax-FC Emmen](https://www.ad.nl/voetbal/de-graafschap-komt-langszij-twee-goals-in-eerste-drie-minuten-bij-jong-ajax-fc-emmen~a42c3e0a/)
-  > Drie duels vanavond in de Keuken Kampioen Divisie. De Graafschap speelt thuis tegen Jong AZ, FC Emmen reist af naar Jong Ajax en Vitesse speelt een...
-- [Wie dit soort politiek bedrijft, moet niet raar opkijken als dat wordt afgestraft met even infantiel gedrag](https://www.ad.nl/binnenland/wie-dit-soort-politiek-bedrijft-moet-niet-raar-opkijken-als-dat-wordt-afgestraft-met-even-infantiel-gedrag~ae444bdd/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Ajax versterkt zich met verdediger (19) van FC Barcelona: ‘Een zeer talentvolle speler’](https://www.ad.nl/voetbal/ajax-versterkt-zich-met-verdediger-19-van-fc-barcelona-een-zeer-talentvolle-speler~a6ea8cb1/)
-  > Ajax heeft zich versterkt met Jofre Torrents. De 19-jarige verdediger komt over van FC Barcelona en heeft een contract tot medio 2030 getekend in...
+- [Uitzonderlijke bliksemontlading zorgt voor harde knal in Amersfoort en omgeving](https://www.ad.nl/leusden/uitzonderlijke-bliksemontlading-zorgt-voor-harde-knal-in-amersfoort-en-omgeving~ab9da853/)
+  > Regelmatig zit Mary Lans uit Amersfoort in haar luie stoel voor het raam thee te drinken. Normaal kijkt ze naar de spelende eekhoorntjes in het bosje...
 
 ### Meest gelezen
 
