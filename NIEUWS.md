@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-08-2026 om 16:30*
+*Laatst bijgewerkt: 17-08-2026 om 17:29*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Vrouw aangehouden na dodelijk ongeluk op A59 bij boerenprotest met tractoren](https://nos.nl/l/2627277)
-  > De politie heeft de bestuurder aangehouden van een voertuig dat betrokken was bij het dodelijke ongeval op de A59 afgelopen vrijdag. Twee zeventigers...
-- [Decorstukken van Soldaat van Oranje onder de veilinghamer](https://nos.nl/l/2627275)
-  > Fans van de musical Soldaat van Oranje kunnen hun hart nog één keer ophalen. Vorige maand viel het doek voor de Nederlandse musical, sinds kort...
-- [Zo slecht dat je hem moet zien, Chinese animatiefilm levert miljoenen op](https://nos.nl/l/2627268)
-  > Een Chinese low budget animatiefilm heeft zó'n slecht verhaal en ziet er zó knullig uit, dat hij in een paar dagen tijd tot een cultfilm is...
-- [Weer protest tegen datacenter, maar 'we weten allemaal dat we ze nodig hebben'](https://nos.nl/l/2627266)
-  > Een groep bewoners van Amsterdam-Zuidoost keert zich tegen de komst van een datacenter. Het vergunningentraject van het datacenter van het...
-- [Internationale oliehandel wil Straat van Hormuz omzeilen en komt uit in Syrië](https://nos.nl/l/2627263)
-  > Door de oorlog met Iran is de wereld op zoek naar alternatieve routes om nauwe zeestraten als de Straat van Hormuz en Bab el-Mandeb te omzeilen....
+- [Na eerste dag begrotingsgesprekken zijn 'verschillen nog levensgroot'](https://nos.nl/l/2627293)
+  > Gaat het eigen risico in de zorg volgend jaar omhoog? Hoe gaat de vrijheidsbijdrage eruitzien, en hoe worden de miljarden die het kabinet in defensie...
+- [Twente treedt op bij boerenprotest: tractoren voortaan geweerd van snelweg](https://nos.nl/l/2627292)
+  > In Twente mogen boeren voortaan niet meer met tractoren en andere zware voertuigen op de snelweg demonstreren. Dat is de uitkomst van een overleg...
+- [Rusland stuurt vicevoorzitter oppositiepartij voor 11 jaar naar een strafkamp](https://nos.nl/l/2627291)
+  > Een rechtbank in Rusland heeft vicevoorzitter Lev Shlosberg van oppositiepartij Jabloko tot 11 jaar en 1 maand strafkolonie veroordeeld. Die straf...
+- [Auto rijdt door muur en hangt uit parkeergarage Delft na onwelwording bestuurder](https://nos.nl/l/2627290)
+  > Een auto is aan het einde van de middag door een muur van een parkeergarage in Delft gereden. Dat gebeurde nadat de bestuurder van het voertuig onwel...
+- [Extreemrechtse Israëlische minister Ben-Gvir wil dagelijks tientallen Palestijnen doden](https://nos.nl/l/2627287)
+  > De extreemrechtse Israëlische minister Ben-Gvir heeft opgeroepen om iedere dag 30 tot 40 Palestijnen in Gaza te vermoorden. Hij deed dat dit weekend...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Afhakken vingers van Nederlander (24) komt zes criminelen duur te staan: flinke straffen in Spanje](https://www.ad.nl/buitenland/afhakken-vingers-van-nederlander-24-komt-zes-criminelen-duur-te-staan-flinke-straffen-in-spanje~a8fd18a0/)
-  > Ze amputeerden zijn wijsvingers en maakten met een mes diepe sneeën in zijn voeten. Daarna werd hij bewusteloos achtergelaten in een bos. Zes mannen,...
-- [Ook Schotse voetbalbond trekt steun voor Infantino in: ‘Duidelijk sprake van een tekortkoming in het bestuur’](https://www.ad.nl/voetbal/ook-schotse-voetbalbond-trekt-steun-voor-infantino-in-duidelijk-sprake-van-een-tekortkoming-in-het-bestuur~a2544497/)
-  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
-- [LIVE WK hockey | Yibbi Jansen knalt Oranje op voorsprong, Australië krijgt en mist 7 (!) strafcorners op rij](https://www.ad.nl/andere-sporten/live-wk-hockey-yibbi-jansen-knalt-oranje-op-voorsprong-australie-krijgt-en-mist-7-strafcorners-op-rij~a6f5e595/)
+- [Kan je gewond raken door een airbag?](https://www.ad.nl/auto/kan-je-gewond-raken-door-een-airbag~a3999bc88/)
+  > Het blijft een eng idee: een luchtzak die in je gezicht ontploft. Lezer Willem Veldkamp vraagt zich af of een airbag bijvoorbeeld brildragers zou...
+- [Voormalig KKD-topscorer naar Bundesliga, Busquets als trainer terug bij FC Barcelona](https://www.ad.nl/voetbal/voormalig-kkd-topscorer-naar-bundesliga-busquets-als-trainer-terug-bij-fc-barcelona~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Derde treffer hockeysters afgekeurd, pijn bij Australische, groene kaart voor De Waard](https://www.ad.nl/andere-sporten/derde-treffer-hockeysters-afgekeurd-pijn-bij-australische-groene-kaart-voor-de-waard~a6f5e595/)
   > De Nederlandse hockeysters spelen vandaag de tweede poulewedstrijd van het WK in eigen land. Geven ze de zege op Chili (2-0) een goed vervolg tegen...
-- [Waarom de begrotingsonderhandelingen rond Prinsjesdag nog maanden zouden kunnen duren](https://www.ad.nl/politiek/waarom-de-begrotingsonderhandelingen-rond-prinsjesdag-nog-maanden-zouden-kunnen-duren~a3e960d2c/)
-  > Het minderheidskabinet spreekt de komende twee weken met de oppositie over de begroting voor Prinsjesdag. De deadline lijkt duidelijk. Toch zou het...
-- [Dave Roelvink maakt profdebuut als bokser tegen 39-jarige Let: ‘Hij komt om het feestje te verstoren’](https://www.ad.nl/vechtsport/dave-roelvink-maakt-profdebuut-als-bokser-tegen-39-jarige-let-hij-komt-om-het-feestje-te-verstoren~a25e7787/)
-  > Dave Roelvink maakt zijn profdebuut als bokser tegen Renars Rusins uit Letland. De 32-jarige mediapersoonlijkheid stapt op zaterdag 19 september in...
+- [Volt-leider Laurens Dassen gaat trouwen met zijn vriendin Britte](https://www.ad.nl/binnenland/volt-leider-laurens-dassen-gaat-trouwen-met-zijn-vriendin-britte~a8c80955/)
+  > Volt-fractievoorzitter Laurens Dassen gaat trouwen met zijn vriendin Britte. Dat maakt Dassen maandag bekend op LinkedIn. Het aanzoek deed hij...
+- [Wisselvallig weer rond voorlopig laatste GP van Zandvoort, vooral regen verwacht tijdens sprintrace](https://www.ad.nl/formule-1/wisselvallig-weer-rond-voorlopig-laatste-gp-van-zandvoort-vooral-regen-verwacht-tijdens-sprintrace~a55ac4cd/)
+  > Komend weekend is de laatste Grand Prix van Nederland. Wat kan Max Verstappen in zijn thuisrace? Volg al het nieuws rond de Formule 1-race in...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Britten worstelen met de lessen van Jason Arday-tragedie](https://fd.nl/samenleving/1607914/britten-worstelen-met-de-lessen-van-jason-arday-tragedie)
+  > De overleden jonge zwarte Cambridge-hoogleraar was voor de een het slachtoffer van een racistische heksenjacht, en voor de ander van doorgeslagen...
+- [Reddit stijgt door opname in S&P 500, maar risico van AI-kannibalisatie blijft](https://fd.nl/bedrijfsleven/1607911/reddit-stijgt-door-opname-in-s-p-500-maar-risico-van-ai-kannibalisatie-blijft)
+  > Het aandeel is sinds het nieuws met 13% gestegen, maar experts zijn verdeeld over de vraag of het aandeel zich gaat bewijzen. Het risico bestaat dat...
 - [Nvidia zegt tot $105 mrd toe voor bouw van datacenter](https://fd.nl/tech-en-innovatie/1607917/nvidia-zegt-tot-105-mrd-toe-voor-bouw-van-datacenter)
   > OpenAI wordt de huurder van het complex.
 - [Krakers mogen blijven op landgoed van Zweedse vastgoedmagnaat aan Amstel](https://fd.nl/samenleving/1608037/krakers-mogen-blijven-op-landgoed-van-zweedse-vastgoedmagnaat-aan-amstel)
   > Kraken is verboden. Maar wel gedoogd. Bij langdurige leegstand staat de rechter het innemen van een woning toe. In dit geval een perceel in een van...
 - [Droogte raakt behalve de Rijn ook het Panamakanaal](https://fd.nl/bedrijfsleven/1607901/droogte-raakt-behalve-de-rijn-ook-het-panamakanaal)
   > Door lage waterstanden is het veel duurder geworden om tussen de Atlantische en Stille Oceaan te varen. De tarieven om wachttijden voor de sluizen te...
-- [Koperprijs nadert vers record vanwege angst voor nieuwe heffingen](https://fd.nl/financiele-markten/1607910/koperprijs-nadert-vers-record-vanwege-angst-voor-nieuwe-heffingen)
-  > Het metaal is dit jaar al bijna 15% duurder geworden.
-- [Euro tikt hoogste peil sinds begin juni aan](https://fd.nl/financiele-markten/1608036/euro-tikt-hoogste-peil-sinds-begin-juni-aan)
-  > Maandag tikte de eenheidsmunt een niveau van $1,1614 voor één euro aan.
 
 ### Meest gelezen
 
