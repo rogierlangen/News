@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-08-2026 om 22:27*
+*Laatst bijgewerkt: 17-08-2026 om 23:25*
 
 ---
 
@@ -46,16 +46,15 @@
 
 ### Laatste nieuws
 
-- [Wall Street eindigt lager door zorgen over inflatie en Iran-oorlog](https://fd.nl/financiele-markten/1608076/wall-street-eindigt-lager-door-zorgen-over-inflatie-en-iran-oorlog)
-  > Het effectief rendement op Amerikaanse staatsobligaties met een lange looptijd staat nu op het hoogste niveau sinds 2007.
-- [Met een keuze voor AfD schiet de Duitse kiezer zich in de voet](https://fd.nl/opinie/1607907/met-een-keuze-voor-afd-schiet-de-duitse-kiezer-zich-in-de-voet)
-  > De extreemrechtse partij kan in september een absolute meerderheid halen in de deelstaat Saksen-Anhalt. Het partijprogramma vertolkt sentiment maar...
-- [Pro-leider Klaver: ‘Verschil tussen ons en kabinet nog steeds echt levensgroot’](https://fd.nl/politiek/1607918/pro-leider-klaver-verschil-tussen-ons-en-kabinet-nog-steeds-echt-levensgroot)
-  > Een begrotingsdeal met het kabinet-Jetten is ‘geen stap dichterbij gekomen’, zei Pro-partijleider Jesse Klaver maandagavond na een gesprek met de...
-- [Britten worstelen met de lessen van Jason Arday-tragedie](https://fd.nl/samenleving/1607914/britten-worstelen-met-de-lessen-van-jason-arday-tragedie)
-  > De overleden jonge zwarte Cambridge-hoogleraar was voor de een het slachtoffer van een racistische heksenjacht, en voor de ander van doorgeslagen...
-- [Reddit stijgt door opname in S&P 500, maar risico van AI-kannibalisatie blijft](https://fd.nl/bedrijfsleven/1607911/reddit-stijgt-door-opname-in-s-p-500-maar-risico-van-ai-kannibalisatie-blijft)
-  > Het aandeel is sinds het nieuws met 13% gestegen, maar experts zijn verdeeld over de vraag of het zich gaat bewijzen. Het verdienmodel van het...
+- [Gelegenheidsargument](https://fd.nl/opinie/1608029/gelegenheidsargument)
+- [Media krijgen boete ‘wegens reclame’ in Ozempic-berichten](https://fd.nl/bedrijfsleven/1608019/media-krijgen-boete-wegens-reclame-in-ozempic-berichten)
+  > De inspectie ziet berichtgeving over Ozempic, Wegovy en Mounjaro al snel als reclame. Ook als dat artikelen in de wetenschapsbijlage van een krant...
+- [VS voeren handelsoorlog tegen China op, doorvoerlanden in het vizier van Trump](https://fd.nl/economie/1607905/vs-voeren-handelsoorlog-tegen-china-op-doorvoerlanden-in-het-vizier-van-trump)
+  > Landen die China helpen hoge Amerikaanse importheffingen te omzeilen, kunnen rekenen op hoge straffen, waarschuwt de regering-Trump in een rapport....
+- [Zwijgplicht als politiek wapen](https://fd.nl/opinie/1607895/zwijgplicht-als-politiek-wapen)
+  > De kersverse minister van Justitie Todd Blanche wil de reikwijdte van het presidentiële zwijgrecht fors oprekken. Daarmee dreigt een juridisch schild...
+- [Personalia dinsdag 18 augustus](https://fd.nl/bedrijfsleven/1608025/personalia-dinsdag-18-augustus)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
