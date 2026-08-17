@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-08-2026 om 07:01*
+*Laatst bijgewerkt: 17-08-2026 om 08:47*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Twee minderjarigen opgepakt na explosie Zaandam](https://nos.nl/l/2627225)
+  > De politie heeft twee jongeren aangehouden die verdacht worden van betrokkenheid bij de explosie in Zaandam afgelopen nacht. Bij die ontploffing werd...
+- [Vijf tieners dood na spookrijden op Ierse snelweg in mogelijk gestolen auto](https://nos.nl/l/2627221)
+  > Bij een botsing op de Ierse snelweg M9 in County Kildare zijn vijf tienerjongens omgekomen. De auto waarin zij zaten reed in de nacht van zondag...
+- [Rusland: zes doden bij Oekraïense aanval in Belgorod](https://nos.nl/l/2627220)
+  > Bij Oekraïense aanvallen op de Russische grensstad Belgorod zijn zeker zes mensen omgekomen en vier personen gewond geraakt, zegt de gouverneur van...
+- [Nederlandse kolencentrales draaien weer volop, veel stroom naar het buitenland](https://nos.nl/l/2627219)
+  > Nederlandse kolencentrales wekten dit jaar al meer stroom op dan in heel 2024, dat meldt het FD vandaag op basis van cijfers uit het Nationaal...
 - [Elf gewonden bij botsing tussen boten voor de Zuid-Franse kust](https://nos.nl/l/2627214)
   > Zeker elf mensen zijn gisteravond gewond geraakt bij een botsing tussen twee boten voor de Zuid-Franse kust. Vier van de opvarenden zijn zwaargewond....
-- [Moment van de waarheid voor minderheidskabinet: komt er een begrotingsdeal?](https://nos.nl/l/2627211)
-  > Het moment van de waarheid breekt aan voor het minderheidskabinet-Jetten: over twee weken moet de begroting af zijn, want op 15 september is het...
-- [Nieuw schooljaar met nieuwe kerndoelen, want taal en rekenen moeten beter](https://nos.nl/l/2627209)
-  > Na de zomervakantie gaan de scholen in het noorden van het land als eerste van start. Vanaf dit jaar kunnen ze aan de slag met de nieuwe kerndoelen...
-- [Wekdienst 17/8: Eerste scholen weer open na vakantie • Tweede WK-duel hockeysters](https://nos.nl/l/2627208)
-  > Goedemorgen! De eerste leerlingen gaan weer naar school na de zomervakantie. Ook in politiek Den Haag is het gedaan met de rust. En de hockeyvrouwen...
-- [Admiraal bezoekt vliegdekschip VS met 'uitgeputte' bemanning](https://nos.nl/l/2627207)
-  > De hoogste commandant voor de Amerikaanse troepen in het Midden-Oosten heeft een bezoek gebracht aan het vliegdekschip USS Lincoln. Het schip is...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tika helpt mensen met een beperking aan intimiteit: ‘Ik kom letterlijk en figuurlijk heel dichtbij’](https://www.ad.nl/binnenland/tika-helpt-mensen-met-een-beperking-aan-intimiteit-ik-kom-letterlijk-en-figuurlijk-heel-dichtbij~a0991c5c/)
-  > Ze brengt ze niet alleen tot een hoogtepunt, maar ook verder in het leven. Als erotisch-hulpverlener bevredigt Tika Stardust de behoeften van mensen...
-- [Tijden Grand Prix van Nederland | Zo laat rijdt Max Verstappen dit weekeinde de allerlaatste Dutch GP](https://www.ad.nl/formule-1/tijden-grand-prix-van-nederland-zo-laat-rijdt-max-verstappen-dit-weekeinde-de-allerlaatste-dutch-gp~ac6e82c8/)
-  > Het Formule 1-seizoen wordt na een korte zomerstop hervat met een bijzondere race: de allerlaatste Dutch GP op het circuit van Zandvoort. En deze...
-- [EU-chef Kallas wil sanctiepakket tegen Rusland met een derde uitbreiden, 6 doden door Oekraïense raketaanval](https://www.ad.nl/buitenland/eu-chef-kallas-wil-sanctiepakket-tegen-rusland-met-een-derde-uitbreiden-6-doden-door-oekraiense-raketaanval~adfb97be/)
-  > EU-buitenlandchef Kaja Kallas wil dit najaar de sancties tegen Rusland fors uitbreiden. Ze zegt tegen de Duitse krant Die Welt met de omvangrijkste...
-- [Man die aanslag zou hebben beraamd op Amalia en Alexia voor de rechter](https://www.ad.nl/binnenland/man-die-aanslag-zou-hebben-beraamd-op-amalia-en-alexia-voor-de-rechter~a65febeb/)
-  > Een 33-jarige man, die verdacht wordt van het voorbereiden van een aanslag op Amalia en Alexia, moet maandag weer voor de rechter verschijnen. De...
-- [Voetbalpodcast | ‘Met vijf wisselmogelijkheden kan je niet spreken van vermoeide teams in het laatste halfuur’](https://www.ad.nl/voetbal/voetbalpodcast-met-vijf-wisselmogelijkheden-kan-je-niet-spreken-van-vermoeide-teams-in-het-laatste-halfuur~a42af5cd9/)
-  > FC Groningen en AZ zijn nog zonder puntverlies in de Eredivisie. Want in de tweede speelronde speelden ook de kampioenskandidaten Ajax en Feyenoord...
+- [Kritiek in België over onvoldoende bluscapaciteit, minister bedankt Nederland voor Chinooks](https://www.ad.nl/buitenland/kritiek-in-belgie-over-onvoldoende-bluscapaciteit-minister-bedankt-nederland-voor-chinooks~ad0a3949/)
+  > De Belgische minister van Defensie Theo Francken reageert in een uitgebreid bericht op X op de kritiek dat defensie te laat in actie kwam bij de...
+- [Einde seizoen voor Jonas Vingegaard: val in Tour de France zet definitieve streep door WK en najaarskoersen](https://www.ad.nl/wielrennen/einde-seizoen-voor-jonas-vingegaard-val-in-tour-de-france-zet-definitieve-streep-door-wk-en-najaarskoersen~a07d1506/)
+  > Jonas Vingegaard komt dit seizoen niet meer in actie. Dat meldt zijn ploeg Visma-Lease a Bike. De Deense wielrenner heeft nog te veel last van de...
+- [Sommige patiënten vergen meer onderhoud dan anderen: maar echtpaar Van Tijl spant de kroon](https://www.ad.nl/gezond/sommige-patienten-vergen-meer-onderhoud-dan-anderen-maar-echtpaar-van-tijl-spant-de-kroon~afc11745/)
+  > Dokter Rutger komt soms bij de zieke mensen thuis. Zoals bij echtpaar Van Tijl. Dat is niet altijd een makkie: een opspringende hond, gevaarlijke...
+- [Kritiek vanuit de hele wereld, maar eerste volledig elektrische Ferrari geveild voor recordbedrag](https://www.ad.nl/auto/kritiek-vanuit-de-hele-wereld-maar-eerste-volledig-elektrische-ferrari-geveild-voor-recordbedrag~a69238f7/)
+  > Hij kreeg kritiek vanuit de hele wereld en zorgde er met zijn opvallende design voor dat de aandelenkoers van Ferrari daalde. Toch is de eerste...
+- [LIVE vakantieblog | Elf gewonden bij botsing tussen boten voor de Zuid-Franse kust, marine zoekt met helikopter naar vermist persoon](https://www.ad.nl/buitenland/live-vakantieblog-elf-gewonden-bij-botsing-tussen-boten-voor-de-zuid-franse-kust-marine-zoekt-met-helikopter-naar-vermist-persoon~a4195717/)
+  > Elf mensen zijn zondagavond gewond geraakt bij een botsing tussen twee boten voor de Zuid-Franse kust. Vier van hen raakten zwaargewond en zijn in...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [New York jaagt rijken op de kast met belasting op pied-à-terres](https://fd.nl/politiek/1607979/new-york-jaagt-rijken-op-de-kast-met-belasting-op-pied-a-terres)
+  > Welgestelde New Yorkers zijn niet blij met een extra belasting op tweede huizen die burgemeester Zohran Mamdani invoerde.
+- [Optimist, ondanks alles](https://fd.nl/opinie/1607633/optimist-ondanks-alles)
+  > Thomas van Galen begrijpt het wel als de lezer hem ziet als een raspessimist, zwartkijker of zelfs zuurpruim. Maar misschien is hij ondanks alles...
+- [Marriël van der Most maakt de blauwe enveloppen van de fiscus: ‘Ik vind het heel erg als mensen mij baas noemen’](https://fd.nl/samenleving/1608012/marriel-van-der-most-ik-vind-het-heel-erg-als-mensen-mij-baas-noemen)
+  > Ondernemer Marriël van der Most maakt ruim een miljard enveloppen per jaar, waaronder die van de Belastingdienst. ‘Als ik niets had veranderd, had ik...
 - [Japanse groei blijft achter bij verwachting, consumptie vlak](https://fd.nl/economie/1607893/japanse-groei-blijft-achter-bij-verwachting-consumptie-vlak)
   > Het maakt de puzzel voor de Bank of Japan lastiger. Financiële markten achten de kans op een renteverhoging in december zo’n 79%. De huidige...
 - [Trump schaalt legeroefeningen met Zuid-Korea af vanwege ‘relatie met Kim Jong-un’ en Iran](https://fd.nl/politiek/1607892/trump-schaalt-legeroefeningen-met-zuid-korea-af-vanwege-relatie-met-kim-jong-un-en-iran)
   > De Amerikaanse president schrijft op Truth Social dat de oefeningen duur zijn en een ongepast en vijandig signaal afgeven aan Noord-Korea.
-- [Live: Amsterdamse beurs start de week iets hoger](https://fd.nl/financiele-markten/1607883/live-cijferseizoen-met-bedrijfsresultaten-nadert-het-einde)
-  > Europa beleeft het sterkste winstmomentum in jaren, zo blijkt uit de afgelopen periode. Deze week publiceren nog enkele bedrijven hun resultaten over...
-- [China zet vol in op menselijke robots](https://fd.nl/economie/1607980/china-zet-vol-in-op-menselijke-robots)
-  > Vandaag in Dagkoers: kolencentrales draaien in 2026 harder dan in jaren, China zet vol in op menselijke robots & om de waarde van de Japanse yen te...
-- [Nederlandse kolencentrales draaien in 2026 hoogste productie in jaren](https://fd.nl/bedrijfsleven/1607662/nederlandse-kolencentrales-draaien-in-2026-hoogste-productie-in-jaren)
-  > Hoge energieprijzen maken het weer aantrekkelijk om kolencentrales aan te zwengelen. Maar dat schuurt wel met groen beleid.
 
 ### Meest gelezen
 
