@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-08-2026 om 14:31*
+*Laatst bijgewerkt: 17-08-2026 om 15:28*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Zo slecht dat je hem moet zien, Chinese animatiefilm levert miljoenen op](https://nos.nl/l/2627268)
+  > Een Chinese low budget animatiefilm heeft zó'n slecht verhaal en ziet er zó knullig uit, dat hij in een paar dagen tijd tot een cultfilm is...
+- [Weer protest tegen datacenter, maar 'we weten allemaal dat we ze nodig hebben'](https://nos.nl/l/2627266)
+  > Een groep bewoners van Amsterdam-Zuidoost keert zich tegen de komst van een datacenter. Het vergunningentraject van het datacenter van het...
 - [Internationale oliehandel wil Straat van Hormuz omzeilen en komt uit in Syrië](https://nos.nl/l/2627263)
   > Door de oorlog met Iran is de wereld op zoek naar alternatieve routes om nauwe zeestraten als de Straat van Hormuz en Bab el-Mandeb te omzeilen....
 - [Piloten vijf keer verblind met laserstralen vlak voor landing op Brussels Airport](https://nos.nl/l/2627261)
@@ -15,10 +19,6 @@
 - [Druk bij NS-klantenservice met vragen over factuur kortingsabonnement](https://nos.nl/l/2627260)
   > De klantenservice van NS krijgt veel vragen over het tijdelijke zomerabonnement, waarmee treinreizigers met een grote korting konden reizen.
        ...
-- [Podcast De Dag: onderhandelen met 'IJzeren' Eelco Heinen](https://nos.nl/l/2627257)
-  > Het zijn drukke weken op het ministerie van Financiën van minister Eelco Heinen. De coalitie hoopt voor volgende week vrijdag genoeg steun van de...
-- [Dode vrouw (19) gevonden in woning Heiloo, man (20) opgepakt](https://nos.nl/l/2627252)
-  > In een woning in Heiloo is gisteravond het lichaam gevonden van een 19-jarige vrouw uit Heerhugowaard. De politie kreeg 's avonds rond 22.30 uur een...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Dat fijne vakantiegevoel vasthouden na je vakantie? Dat kan eigenlijk niet](https://www.ad.nl/werk/dat-fijne-vakantiegevoel-vasthouden-na-je-vakantie-dat-kan-eigenlijk-niet~ae203629/)
+- [Sem Steijn knokt, Shaqueel van Persie heeft tijd nodig en nieuwkomer straalt nog niet: dit viel op bij Feyenoord](https://www.ad.nl/voetbal/sem-steijn-knokt-shaqueel-van-persie-heeft-tijd-nodig-en-nieuwkomer-straalt-nog-niet-dit-viel-op-bij-feyenoord~ab4504f6/)
+  > Giovanni van Bronckhorst erkende het na de 2-2 tegen Go Ahead Eagles zelf ook: zijn wissels pakken nog niet goed uit. Het oefenduel met Westerlo (1-2...
+- [Jonathan (12) kan niet meer bij zijn moeder wonen, dus doet hij er alles aan om MS te stoppen](https://www.ad.nl/westland/jonathan-12-kan-niet-meer-bij-zijn-moeder-wonen-dus-doet-hij-er-alles-aan-om-ms-te-stoppen~abc27751/)
+  > Jonathan (12) was pas een baby toen hij verhuisde naar een pleeggezin. Door de ziekte multiple sclerose kon hij niet meer bij zijn biologische moeder...
+- [Twente grijpt in: tractoren voortaan geweerd van snelwegen bij demonstraties](https://www.ad.nl/binnenland/twente-grijpt-in-tractoren-voortaan-geweerd-van-snelwegen-bij-demonstraties~a34efb0ea/)
+  > Boeren mogen in Twente voortaan niet meer met zware voertuigen de snelweg op tijdens protestacties. Burgemeesters, politie en justitie nemen dit...
+- [Actrice Hayden Panettiere werd vlak voor haar dood nog vergeefs gereanimeerd](https://www.ad.nl/show/actrice-hayden-panettiere-werd-vlak-voor-haar-dood-nog-vergeefs-gereanimeerd~a4b46085/)
+  > De Amerikaanse actrice Hayden Panettiere is vlak voor haar overlijden nog gereanimeerd door ambulancemedewerkers. Dat bevestigt de politie, die nog...
+- [Helaas, werk zal nooit hetzelfde voelen als vakantie: zo houd je vol tot volgende verlof](https://www.ad.nl/werk/helaas-werk-zal-nooit-hetzelfde-voelen-als-vakantie-zo-houd-je-vol-tot-volgende-verlof~ae203629/)
   > Als na de vakantie het gewone werkende leven weer lonkt, kan dat even schrikken zijn. Terug naar de sleur en de stress van alledag, moet dat echt?...
-- [Voormalig Ajax-doelman naar Kopenhagen, Busquets als trainer terug bij FC Barcelona](https://www.ad.nl/voetbal/voormalig-ajax-doelman-naar-kopenhagen-busquets-als-trainer-terug-bij-fc-barcelona~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [Ruzie in achtertuin van Roxeanne en familietijd voor Suzan en Freek](https://www.ad.nl/show/ruzie-in-achtertuin-van-roxeanne-en-familietijd-voor-suzan-en-freek~af15a7f4/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Sanquin gaat bloed uit provincie Utrecht en de Gooi- en Vechtstreek controleren op westnijlvirus](https://www.ad.nl/binnenland/sanquin-gaat-bloed-uit-provincie-utrecht-en-de-gooi-en-vechtstreek-controleren-op-westnijlvirus~a0cd1f1a/)
-  > In Nederland is bij een bloeddonor een infectie met het westnijlvirus vastgesteld. Daarom gaat Sanquin donaties van bloed, bloedplaatjes en...
-- [Politie rijdt af en aan met truckers in hun kielzog: 500 euro boete voor negeren vrachtwagenverbod A27](https://www.ad.nl/binnenland/politie-rijdt-af-en-aan-met-truckers-in-hun-kielzog-500-euro-boete-voor-negeren-vrachtwagenverbod-a27~a49ae1e2/)
-  > Een bonnenregen op de Merwedebrug. Naar schatting tientallen buitenlandse chauffeurs werden maandagochtend op heterdaad betrapt toen ze over de...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Buitenlandse bedrijven weten beurs in India te vinden voor aandelenverkoop](https://fd.nl/financiele-markten/1608017/buitenlandse-bedrijven-weten-beurs-in-india-te-vinden-voor-aandelenverkoop)
-  > De trend bij buitenlandse bedrijven om hun Indiase divisie naar de beurs te brengen, lijkt door te zetten. Een positief signaal voor de markt in het...
-- [Winstdoel Douglas binnen handbereik](https://fd.nl/financiele-markten/1607596/winstdoel-douglas-binnen-handbereik)
-  > De parfumerieketen gaf dit jaar tweemaal een winstwaarschuwing af. Nu is het bedrijf voorzichtig. Het moet wel raar lopen, wil het de nieuwe doelen...
-- [Grondhandelaar Vastgoedplan Nederland berispt door rechter](https://fd.nl/samenleving/1607904/grondhandelaar-vastgoedplan-nederland-berispt-door-rechter)
-  > Het bedrijf wilde de advocaat van een gedupeerde particulier ‘monddood maken’, aldus rechtbank Alkmaar
-- [Rechtspraak onder steeds grotere druk door toenemende schaarste](https://fd.nl/financiele-markten/1607898/rechtspraak-onder-steeds-grotere-druk-door-toenemende-schaarste)
-  > De gevolgen van het tekort aan rechters zijn onder meer zichtbaar in de opgelopen wachttijden van rechtszaken. ‘Voor rechters is het werken tegen de...
-- [Een lesje efficiëntie uit Brazilië](https://fd.nl/financiele-markten/1607903/een-lesje-efficientie-uit-brazilie)
-  > Het Braziliaanse NuBank liet deze week aan Europese grootbanken zien wat echte efficiëntie is. De jonge onlinebank heeft niet meer dan een paar...
+- [Koperprijs nadert vers record vanwege angst voor nieuwe heffingen](https://fd.nl/financiele-markten/1607910/koperprijs-nadert-vers-record-vanwege-angst-voor-nieuwe-heffingen)
+  > Het metaal is dit jaar al bijna 15% duurder geworden.
+- [Euro tikt hoogste peil sinds begin juni aan](https://fd.nl/financiele-markten/1608036/euro-tikt-hoogste-peil-sinds-begin-juni-aan)
+  > Maandag tikte de eenheidsmunt een niveau van $1,1614 voor één euro aan.
+- [Duizenden cruciale bedrijven moeten zich nog registreren voor nieuwe cyberwet](https://fd.nl/bedrijfsleven/1608033/duizenden-cruciale-bedrijven-moeten-zich-nog-registreren-voor-nieuwe-cyberwet)
+  > De nieuwe Cyberbeveiligingswet ging zaterdag in en verplicht bedrijven hun cyberweerbaarheid te verbeteren.
+- [Kallas kondigt uitbreiding sancties tegen Rusland aan](https://fd.nl/politiek/1608032/kallas-kondigt-uitbreiding-sancties-tegen-rusland-aan)
+  > De EU-buitenlandchef sprak met de Duitse krant Die Welt over de nieuwe maatregelen.
+- [Franse rente naar hoogste niveau sinds financiële crisis](https://fd.nl/financiele-markten/1608027/franse-rente-naar-hoogste-niveau-sinds-financiele-crisis)
+  > De Franse tienjaarsrente is door de 4%. Het renteverschil met Duitsland nadert het hoogste punt sinds de begrotingscrisis in 2025.
 
 ### Meest gelezen
 
