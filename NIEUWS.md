@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-08-2026 om 12:50*
+*Laatst bijgewerkt: 17-08-2026 om 13:41*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Piloten vijf keer verblind met laserstralen vlak voor landing op Brussels Airport](https://nos.nl/l/2627261)
+  > Op Brussels Airport zijn vrijdagavond en -nacht piloten vijf keer vlak voor de landing gehinderd door laserstralen. Dat bevestigt luchtverkeersleider...
+- [Druk bij NS-klantenservice met vragen over factuur kortingsabonnement](https://nos.nl/l/2627260)
+  > De klantenservice van NS krijgt veel vragen over het tijdelijke zomerabonnement, waarmee treinreizigers met een grote korting konden reizen.
+       ...
+- [Podcast De Dag: onderhandelen met 'IJzeren' Eelco Heinen](https://nos.nl/l/2627257)
+  > Het zijn drukke weken op het ministerie van Financiën van minister Eelco Heinen. De coalitie hoopt voor volgende week vrijdag genoeg steun van de...
 - [Dode vrouw (19) gevonden in woning Heiloo, man (20) opgepakt](https://nos.nl/l/2627252)
   > In een woning in Heiloo is gisteravond het lichaam gevonden van een 19-jarige vrouw uit Heerhugowaard. De politie kreeg 's avonds rond 22.30 uur een...
 - [Veenbrand in de Ardennen nog niet onder controle, koning Filip bezoekt gebied](https://nos.nl/l/2627246)
   > De brand in het Belgische natuurgebied Hoge Venen is nog niet onder controle. Sommige gebieden zijn niet toegankelijk voor hulpdiensten, waardoor het...
-- [Politieactie bij Merwedebrug: boetes voor vrachtwagens die verbod negeerden](https://nos.nl/l/2627245)
-  > Meerdere vrachtwagens zijn vanochtend van de weg gehaald bij de Merwedebrug, bij Gorinchem. Sinds halverwege vorige maand mag er geen vrachtverkeer...
-- [Jaar na dood Lisa (17) uit Abcoude schilderen leeftijdsgenoten groot eerbetoon](https://nos.nl/l/2627243)
-  > Het is deze week een jaar geleden dat de 17-jarige Lisa uit Abcoude werd omgebracht toen zij 's nachts vanuit Amsterdam naar huis fietste. Twee...
-- [Dodental aardbeving Indonesisch eiland Flores loopt op, duizenden ontheemden](https://nos.nl/l/2627241)
-  > Het dodental van de aardbeving op het Indonesische eiland Flores is gestegen naar 68. Hoewel er op dit moment geen berichten zijn van vermisten, zijn...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Man die aanslag zou beramen op prinsessen kreeg ‘opdrachten van zijn geest’](https://www.ad.nl/binnenland/man-die-aanslag-zou-beramen-op-prinsessen-kreeg-opdrachten-van-zijn-geest~a736ef12/)
-  > De man die wordt verdacht van het voorbereiden van een aanslag op de prinsessen Amalia en Alexia, verkeerde in een ernstige psychose. Dat verklaarde...
-- [Massale boycot seizoenkaarten: ruzie tussen Lazio-fans en clubeigenaar bereikt kookpunt](https://www.ad.nl/voetbal/massale-boycot-seizoenkaarten-ruzie-tussen-lazio-fans-en-clubeigenaar-bereikt-kookpunt~a7aa8a5d/)
-  > SS Lazio speelt voorlopig voor nagenoeg lege tribunes. Een boycot door de supporters zorgde voor ruim 90 procent minder verkochte seizoenkaarten. De...
-- [Reacties op monstertocht: ‘Maarten, wat jij presteert voor kinderen met kanker is ongekend’](https://www.ad.nl/lezersbrieven/reacties-op-monstertocht-maarten-wat-jij-presteert-voor-kinderen-met-kanker-is-ongekend~afa5130f/)
-  > Demonstreren op de snelweg: kan de politiek de grens scherper trekken, hoe lastig ook? En: ‘Wat Maarten van der Weijden doet, houdt ons een spiegel...
-- [Topcrimineel Marco Ebben tipte politie over wapen van Berkelse vergismoord](https://www.ad.nl/binnenland/topcrimineel-marco-ebben-tipte-politie-over-wapen-van-berkelse-vergismoord~a127a25a/)
-  > De mysterieuze tip over het moordwapen dat bij de Berkelse vergismoord zou zijn gebruikt, blijkt afkomstig van de overleden topcrimineel Marco Ebben...
-- [Meer ritten, meer rijtuigen en reizigers verleiden: NS zegt klaar te zijn voor septemberdrukte](https://www.ad.nl/binnenland/meer-ritten-meer-rijtuigen-en-reizigers-verleiden-ns-zegt-klaar-te-zijn-voor-septemberdrukte~ad2d898dc/)
-  > De NS gaat komende maand onder meer met 169 extra rijtuigen rijden om de enorme piek aan reizigers in september te kunnen vervoeren. Dat gaat lukken,...
+- [Eurostar krijgt concurrentie: vanaf 2030 met Virgin Trains vanaf Amsterdam naar Londen](https://www.ad.nl/buitenland/eurostar-krijgt-concurrentie-vanaf-2030-met-virgin-trains-vanaf-amsterdam-naar-londen~ae83a575/)
+  > Reizigers naar Londen kunnen over een paar jaar waarschijnlijk kiezen voor een andere trein dan de Eurostar. Spoorwegbedrijf Virgin Trains heeft...
+- [LIVE vakantieblog | Eurostar krijgt concurrentie: vanaf 2030 met Virgin Trains vanaf Amsterdam naar Londen](https://www.ad.nl/buitenland/live-vakantieblog-eurostar-krijgt-concurrentie-vanaf-2030-met-virgin-trains-vanaf-amsterdam-naar-londen~a4195717/)
+  > Reizigers naar Londen kunnen over een paar jaar zeer waarschijnlijk kiezen voor een andere trein dan de Eurostar. Spoorwegbedrijf Virgin Trains heeft...
+- [De school van Forum voor Democratie is begonnen, maar op de eerste dag komen slechts vier kinderen](https://www.ad.nl/binnenland/de-school-van-forum-voor-democratie-is-begonnen-maar-op-de-eerste-dag-komen-slechts-vier-kinderen~ad3330a8/)
+  > De Renaissanceschool in Almere is open. Van een feestelijke opening van het basisonderwijs van Forum voor Democratie was maandag nauwelijks sprake....
+- [Maria en Arie hebben een B&B vlak bij de grens: ‘We kopen het meeste in Duitsland, scheelt wel’](https://www.ad.nl/geld/maria-en-arie-hebben-een-benb-vlak-bij-de-grens-we-kopen-het-meeste-in-duitsland-scheelt-wel~a2f36d4d0/)
+  > Tuinarchitect Piet Oudolf is nog in Millingen aan de Rijn geweest toen Maria en Arie dertig jaar geleden dit kavel kochten. Nu hebben ze er ook een...
+- [Voormalig Ajax-doelman naar Kopenhagen, Manchester City en Barcelona akkoord over transfer Rodri](https://www.ad.nl/voetbal/voormalig-ajax-doelman-naar-kopenhagen-manchester-city-en-barcelona-akkoord-over-transfer-rodri~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Grondhandelaar Vastgoedplan Nederland berispt door rechter](https://fd.nl/samenleving/1607904/grondhandelaar-vastgoedplan-nederland-berispt-door-rechter)
+  > Het bedrijf wilde de advocaat van een gedupeerde particulier ‘monddood maken’, aldus rechtbank Alkmaar
+- [Rechtspraak onder steeds grotere druk door toenemende schaarste](https://fd.nl/financiele-markten/1607898/rechtspraak-onder-steeds-grotere-druk-door-toenemende-schaarste)
+  > De gevolgen van het tekort aan rechters zijn onder meer zichtbaar in de opgelopen wachttijden van rechtszaken. ‘Voor rechters is het werken tegen de...
+- [Een lesje efficiëntie uit Brazilië](https://fd.nl/financiele-markten/1607903/een-lesje-efficientie-uit-brazilie)
+  > Het Braziliaanse NuBank liet deze week aan Europese grootbanken zien wat echte efficiëntie is. De jonge onlinebank heeft niet meer dan een paar...
+- [President Trump dreigt met bombardementen op Oman](https://fd.nl/politiek/1608030/president-trump-dreigt-met-bombardementen-op-oman)
+  > Oman moet de Amerikaanse blokkade van Iraanse havens niet dwarsbomen, zei de president tegen Fox News.
 - [Binance gaf Moskou klantgegevens die werden gebruikt om een ​​Russische burger aan te klagen](https://fd.nl/politiek/1607900/binance-gaf-moskou-klantgegevens-die-werden-gebruikt-om-een-russische-burger-aan-te-klagen)
   > De cryptobeurs werd door een sympathisant van Oekraïne gebruikt als platform voor een donatie aan het Oekraïense leger en zou hierover informatie...
-- [Prijzen betaald voor mkb‑bedrijven stijgen, softwaremaker spekkoper](https://fd.nl/bedrijfsleven/1607902/prijzen-betaald-voor-mkbbedrijven-stijgen-softwaremaker-spekkoper)
-  > Dit jaar wordt voor een gemiddeld mkb-bedrijf vijf keer het ebitdaresultaat betaald. Dat is het hoogste niveau in minstens tien jaar tijd.
-- [Risottorijst, tomaten en olijven lijden in Italië onder extreme droogte](https://fd.nl/economie/1607896/risottorijst-tomaten-en-olijven-lijden-in-italie-onder-extreme-droogte)
-  > In het rijstgebied tussen Milaan en Turijn dreigt de oogst van risottorijst te mislukken. Ook graan voor pasta, tomaten, olijven en wijn hebben het...
-- [Maak bijmengen van biologische melk verplicht](https://fd.nl/opinie/1607529/maak-bijmengen-van-biologische-melk-verplicht)
-  > Nederland moet van het stikstofslot. Biologische veehouderij kan boeren perspectief bieden als de overheid bijmenging van biologische grondstoffen...
-- [De grote balanceeract van werk en moederschap](https://fd.nl/samenleving/1608016/de-grote-balanceeract-van-werk-en-moederschap)
-  > Ja, Femmetje de Wind heeft altijd gewerkt, en nee, ze heeft niet alle carrièrekansen kunnen benutten. Nu vliegt haar oudste uit.
 
 ### Meest gelezen
 
