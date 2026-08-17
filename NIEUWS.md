@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-08-2026 om 23:22*
+*Laatst bijgewerkt: 17-08-2026 om 01:34*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Ebola-uitbraak met 2325 doden dodelijkste ooit in Congo](https://nos.nl/l/2627200)
+  > De Ebola-uitbraak in de Democratische Republiek Congo heeft tot nu toe 2325 levens geëist, blijkt uit cijfers van de Congolese gezondheidsautoriteit....
+- [Trump schaalt legeroefening met Zuid-Korea af, benadrukt 'goede relatie met Kim Jong-un'](https://nos.nl/l/2627199)
+  > De Amerikaanse president Trump heeft aangekondigd dat de VS de gezamenlijke militaire oefeningen met Zuid-Korea "aanzienlijk zullen terugschroeven"....
 - [Demonstratie op strand van Ceuta, Marokko arresteert opnieuw honderden migranten](https://nos.nl/l/2627190)
   > Op het strand van de Spaanse exclave Ceuta zijn vandaag honderden migranten samengekomen om te demonstreren. Ze willen dat de Spaanse overheid hen...
 - [Duitse grensplaatsjes geëvacueerd vanwege brand in natuurgebied Hoge Venen](https://nos.nl/l/2627188)
   > Twee Duitse gehuchten op de grens met België worden geëvacueerd vanwege de brand in natuurgebied Hoge Venen. Het gaat om de buurtschappen Ruitzhof en...
 - [Amerikaanse honkballegende Tommy John (van de elleboog-operatie) overleden](https://nos.nl/l/2627182)
   > De Amerikaanse honkballegende Tommy John, wiens profcarrière in 1974 werd gered door een baanbrekende elleboog-operatie, is op 83-jarige leeftijd...
-- [Geen 'dertigers' meer op de weerkaart, de wisselvalligheid neemt het over](https://nos.nl/l/2627174)
-  > Het RIVM heeft het Nationaal Hitteplan beëindigd. Daarmee vervalt ook code geel van het KNMI voor aanhoudende hitte.
-        Gisteren stond er voor...
-- [Twee doden door natuurbrand op Grieks eiland Salamina bij Athene](https://nos.nl/l/2627166)
-  > Bij natuurbranden op het Griekse eiland Salamina zijn twee mensen om het leven gekomen. De lichamen zijn volgens Griekse media in de tuin van hun...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Zoon Audrey Hepburn enthousiast over casting Lily Collins](https://www.ad.nl/show/zoon-audrey-hepburn-enthousiast-over-casting-lily-collins~a68ea7da/)
+  > Sean Hepburn Ferrer, de oudste zoon van de legendarische Hollywood-actrice Audrey Hepburn, heeft meerdere gesprekken gehad met Lily Collins over de...
+- [Miljoenen rollen Nederland binnen door Trump-heffingen: onverwachte opsteker voor de economie](https://www.ad.nl/economie/miljoenen-rollen-nederland-binnen-door-trump-heffingen-onverwachte-opsteker-voor-de-economie~a49cb3e3/)
+  > De Verenigde Staten strooien met miljoenen aan onterecht geïnde importheffingen. Tientallen Nederlandse bedrijven zien momenteel forse sommen geld op...
+- [Ebola-uitbraak Congo dodelijkste ooit in het land](https://www.ad.nl/buitenland/ebola-uitbraak-congo-dodelijkste-ooit-in-het-land~a50208d2/)
+  > De ebola-uitbraak in Congo heeft inmiddels 2325 mensen het leven gekost. Daarmee is het de dodelijkste uitbraak van het virus ooit in het land,...
 - [Femke Broeders-Bol is Fanny Blankers-Koen voorbij, beste EK ooit voor Nederland](https://www.ad.nl/andere-sporten/femke-broeders-bol-is-fanny-blankers-koen-voorbij-beste-ek-ooit-voor-nederland~a5abb556c/)
   > Femke Broeders-Bol is ‘Vliegende Huisvrouw’ Fanny Blankers-Koen voorbijgegaan in het eeuwige medailleklassement van Europese kampioenschappen...
 - [Rob Jetten ziet zijn Argentijnse verloofde Nicolás Keenan winnen op WK hockey in Amstelveen](https://www.ad.nl/andere-sporten/rob-jetten-ziet-zijn-argentijnse-verloofde-nicolas-keenan-winnen-op-wk-hockey-in-amstelveen~a49898f8/)
   > De hockeyers van Argentinië, de volgende tegenstander van Nederland in de groepsfase, hebben hun eerste wedstrijd op het WK gewonnen. In het Wagener...
-- [Manchester City en Barcelona akkoord over transfer Rodri, Philipp Max (ex-PSV) zet punt achter loopbaan](https://www.ad.nl/voetbal/manchester-city-en-barcelona-akkoord-over-transfer-rodri-philipp-max-ex-psv-zet-punt-achter-loopbaan~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [Nederlandse vrouwen snellen naar goud op 4x400 meter EK atletiek, historisch brons voor mannen na fotofinish](https://www.ad.nl/andere-sporten/nederlandse-vrouwen-snellen-naar-goud-op-4x400-meter-ek-atletiek-historisch-brons-voor-mannen-na-fotofinish~a931e786/)
-  > Nederland heeft op de slotdag van de EK atletiek in Birmingham goud gepakt op de 4x400 meter estafette voor vrouwen. Myrte van der Schoot, Lieke...
-- [Steven Berghuis na vroege misstap: ‘Het algehele niveau, met de versterkingen erbij, is echt omhoog gegaan’](https://www.ad.nl/voetbal/steven-berghuis-na-vroege-misstap-het-algehele-niveau-met-de-versterkingen-erbij-is-echt-omhoog-gegaan~afeb467f/)
-  > Steven Berghuis (34) is met zijn tiende trainer begonnen aan zijn zesde jaar bij Ajax. Met al zijn ervaring vormt hij een thermometer die aanvoelt...
 
 ### Meest gelezen
 
