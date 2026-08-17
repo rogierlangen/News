@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-08-2026 om 21:28*
+*Laatst bijgewerkt: 17-08-2026 om 22:27*
 
 ---
 
@@ -31,7 +31,7 @@
   > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
 - [‘FIFA ontslaat topman die forse kritiek had op Infantino’](https://www.ad.nl/voetbal/fifa-ontslaat-topman-die-forse-kritiek-had-op-infantino~a2544497/)
   > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
-- [LIVE eredivisie | Nieuwe Feyenoorder stelt zich voor, Godts neemt afscheid van ‘droomclub’ Ajax: ‘Voor altijd plekje in mijn hart’](https://www.ad.nl/voetbal/live-eredivisie-nieuwe-feyenoorder-stelt-zich-voor-godts-neemt-afscheid-van-droomclub-ajax-voor-altijd-plekje-in-mijn-hart~a378dc98/)
+- [Nieuwe Feyenoorder stelt zich voor, Godts neemt afscheid van ‘droomclub’ Ajax: ‘Voor altijd plekje in mijn hart’](https://www.ad.nl/voetbal/nieuwe-feyenoorder-stelt-zich-voor-godts-neemt-afscheid-van-droomclub-ajax-voor-altijd-plekje-in-mijn-hart~a378dc98/)
   > Het nieuwe eredivisieseizoen is van start gegaan. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we...
 - [Het was wel héél erg overdreven hoe Wadie uit B&B vol liefde op de gevallen paardenbloem reageerde](https://www.ad.nl/show/het-was-wel-heel-erg-overdreven-hoe-wadie-uit-benb-vol-liefde-op-de-gevallen-paardenbloem-reageerde~a63b3c67/)
   > Nooit gedacht dat een paardenbloem (!) voor drama zou zorgen. Maar het gebeurde maandagavond toch echt in B&B vol liefde.
