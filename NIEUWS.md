@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-08-2026 om 20:30*
+*Laatst bijgewerkt: 17-08-2026 om 21:28*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Poging Kushner om vredesakkoord Gaza dichterbij te brengen levert niets op](https://nos.nl/l/2627309)
+  > Een poging van de Amerikaanse regering om tot een vredesakkoord voor Gaza te komen lijkt weinig concreets te hebben opgeleverd. Kushner, de...
 - ['Lucky' stortte in op straat, 3 jaar later weet politie nog niet wie hij is](https://nos.nl/l/2627308)
   > Het Amsterdamse coldcaseteam is al drie jaar bezig met de zoektocht naar de identiteit van een persoon die vanwege een beroerte niet meer kan...
 - [Goudkoorts breekt uit na gevonden schat in België: 'Was in een vorig leven van mij'](https://nos.nl/l/2627306)
@@ -16,8 +18,6 @@
   > Inwoners van het Belgische dorp Sourbrodt in de Ardennen mogen vanavond weer naar huis. Zij werden eergisteren geëvacueerd wegens de brand die woedt...
 - [Duizenden mensen bij wake na dood van oud-hoogleraar die van plagiaat werd beschuldigd](https://nos.nl/l/2627304)
   > Op het Trafalgar-plein in Londen zijn duizenden mensen bijeengekomen voor een wake ten nagedachtenis aan Jason Arday. Hij werd vorige week op...
-- [Het staakt-het-vuren tussen de VS en Iran loopt vandaag af, wat is de situatie nu?](https://nos.nl/l/2627302)
-  > Het staakt-het-vuren van zestig dagen waarbinnen de VS en Iran tot een vredesakkoord moesten komen, loopt vandaag officieel af. De Straat van Hormuz...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Italiaanse verdediger voor Cambuur, Rodri landt in Barcelona voor toptransfer](https://www.ad.nl/voetbal/italiaanse-verdediger-voor-cambuur-rodri-landt-in-barcelona-voor-toptransfer~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
 - [‘FIFA ontslaat topman die forse kritiek had op Infantino’](https://www.ad.nl/voetbal/fifa-ontslaat-topman-die-forse-kritiek-had-op-infantino~a2544497/)
   > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
 - [LIVE eredivisie | Nieuwe Feyenoorder stelt zich voor, Godts neemt afscheid van ‘droomclub’ Ajax: ‘Voor altijd plekje in mijn hart’](https://www.ad.nl/voetbal/live-eredivisie-nieuwe-feyenoorder-stelt-zich-voor-godts-neemt-afscheid-van-droomclub-ajax-voor-altijd-plekje-in-mijn-hart~a378dc98/)
   > Het nieuwe eredivisieseizoen is van start gegaan. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we...
-- [Wat had Wadie uit B&B vol liefde verwacht? Dat Timothy de paardenbloem zou inlijsten?](https://www.ad.nl/show/wat-had-wadie-uit-benb-vol-liefde-verwacht-dat-timothy-de-paardenbloem-zou-inlijsten~a63b3c67/)
+- [Het was wel héél erg overdreven hoe Wadie uit B&B vol liefde op de gevallen paardenbloem reageerde](https://www.ad.nl/show/het-was-wel-heel-erg-overdreven-hoe-wadie-uit-benb-vol-liefde-op-de-gevallen-paardenbloem-reageerde~a63b3c67/)
   > Nooit gedacht dat een paardenbloem (!) voor drama zou zorgen. Maar het gebeurde maandagavond toch echt in B&B vol liefde.
 - [Trumps populariteit blijft maar dalen: meerderheid van de Amerikanen is ontevreden over president](https://www.ad.nl/buitenland/trumps-populariteit-blijft-maar-dalen-meerderheid-van-de-amerikanen-is-ontevreden-over-president~a097c726/)
   > De populariteitscijfers van de Amerikaanse president Donald Trump zijn gedaald tot het laagste punt van de huidige ambtstermijn. Dat blijkt uit een...
-- [21 goals in drie KKD-duels! Spektakel bij Jong Ajax-Emmen, afgang voor De Graafschap](https://www.ad.nl/voetbal/21-goals-in-drie-kkd-duels-spektakel-bij-jong-ajax-emmen-afgang-voor-de-graafschap~a42c3e0a/)
-  > Een avond vol doelpunten in de Keuken Kampioen Divisie. Op drie velden werden er liefst 21 goals gemaakt. Op Sportpark de Toekomst vielen de meeste...
 
 ### Meest gelezen
 
