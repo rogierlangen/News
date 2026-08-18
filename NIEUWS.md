@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-08-2026 om 05:32*
+*Laatst bijgewerkt: 18-08-2026 om 06:49*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [China pakt racistische AI-video's over buitenlanders nauwelijks aan](https://nos.nl/l/2627326)
+  > Een golf van racistische AI-video's overspoelt Chinese sociale media. Vooral witte en zwarte mannen en Indiërs worden in de video's als boosdoeners...
 - [Wekdienst 18/8: Startsessie kabinet in Catshuis • Tweede WK-duel hockeyers](https://nos.nl/l/2627322)
   > Goedemorgen! Vandaag komen ministers en staatssecretarissen bij elkaar op het Catshuis voor de jaarlijkse startsessie van het kabinet. En de...
 - [Veel ouders lijden aan PTSS-klachten na vroeggeboorte](https://nos.nl/l/2627321)
@@ -16,8 +18,6 @@
   > Na maanden van droogte regent het sinds het weekend weer. Verspreid over het hele land zijn er flinke buien. De verwachting is dat de regen de...
 - [Zeker 8 miljard euro schade door aardbeving Colombia, Shakira belooft steun](https://nos.nl/l/2627315)
   > De economische schade van de aardbeving in Colombia loopt waarschijnlijk op tot ruim 8 miljard euro, zegt de president van het land. Volgens Abelardo...
-- [Aanleg grensbewaking in nationaal park Texas stilgelegd na protest](https://nos.nl/l/2627314)
-  > Een bouwproject voor de grensbewaking in een nationaal park in de Amerikaanse staat Texas is stilgelegd na felle kritiek van zowel Democraten als...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Programma WK hockey 2026 | Alles wat je moet weten: speelschema, opvallende spelers en nieuwe opzet](https://www.ad.nl/andere-sporten/programma-wk-hockey-2026-alles-wat-je-moet-weten-speelschema-opvallende-spelers-en-nieuwe-opzet~a556c496/)
-  > Voor het eerst in de geschiedenis organiseren Nederland en België samen het WK hockey. Van 15 tot en met 30 augustus strijden mannen- en vrouwenteams...
-- [Zandvoort neemt afscheid van Formule 1, maar ziet ook kansen: ‘We zijn niet meer afhankelijk’](https://www.ad.nl/formule-1/zandvoort-neemt-afscheid-van-formule-1-maar-ziet-ook-kansen-we-zijn-niet-meer-afhankelijk~aa79e7a7/)
-  > De Dutch GP gaat er komend weekend met een knal uit, beloven directeuren Robert van Overdijk (Circuit Zandvoort), Imre van Leeuwen (SportVibes) en...
-- [Rusland bedreigt VK na mogelijk gebruik Britse drones door Oekraïne: ‘Londen kiest voor escalatie’](https://www.ad.nl/buitenland/rusland-bedreigt-vk-na-mogelijk-gebruik-britse-drones-door-oekraine-londen-kiest-voor-escalatie~adfb97be/)
-  > Rusland heeft het Verenigd Koninkrijk gewaarschuwd dat het mogelijke gebruik van Britse drones door Oekraïne om doelen in Rusland te raken ‘gevolgen’...
-- [Monteur schrikt zich rot wanneer hij een motor opent die een jaar lang stationair heeft gedraaid](https://www.ad.nl/auto/monteur-schrikt-zich-rot-wanneer-hij-een-motor-opent-die-een-jaar-lang-stationair-heeft-gedraaid~a9ff8a7e/)
-  > Een lage kilometerstand klinkt aantrekkelijk bij een gebruikte auto. Toch zegt die tellerstand lang niet alles over de staat van de motor. Dat blijkt...
-- [Wanhopige singles staan uren in de rij voor fotohokje in New York om ‘soulmate’ te ontmoeten](https://www.ad.nl/buitenland/wanhopige-singles-staan-uren-in-de-rij-voor-fotohokje-in-new-york-om-soulmate-te-ontmoeten~a63159b5/)
-  > Midden in New York staan singles urenlang in de rij voor een fotohokje. En dat is niet alleen voor een leuk kiekje. Nee, dit hokje belooft je te...
+- [Al drie jaar is zijn identiteit onbekend, nu krijgt politie 140 tips binnen over ‘Lucky’](https://www.ad.nl/binnenland/al-drie-jaar-is-zijn-identiteit-onbekend-nu-krijgt-politie-140-tips-binnen-over-lucky~a1b75c17/)
+  > De politie heeft 140 tips binnengekregen in de zoektocht naar de identiteit van ‘Lucky’. ‘Overweldigend’, aldus de politie. Maandag deelde het...
+- [Fred Rutten praat voor het eerst over exit bij Curaçao: ‘Het is heel vervelend geweest’](https://www.ad.nl/wk-voetbal/fred-rutten-praat-voor-het-eerst-over-exit-bij-curacao-het-is-heel-vervelend-geweest~a87882ad/)
+  > Fred Rutten heeft voor het eerst verteld over zijn ervaringen rond zijn plotselinge exit bij Curaçao. De oud-trainer werd aan de kant geschoven als...
+- [Domper voor voetballiefhebbers: wedstrijd Ajax tegen FC Sion achter betaalmuur](https://www.ad.nl/show/domper-voor-voetballiefhebbers-wedstrijd-ajax-tegen-fc-sion-achter-betaalmuur~a12a9f3a/)
+  > De wedstrijd tussen Ajax en het Zwitserse FC Sion in de play-offs van de Conference League is donderdagavond niet te volgen op Ziggo Sport. Het duel...
+- [Zo laat rijdt Max Verstappen dit weekeinde de allerlaatste Dutch GP](https://www.ad.nl/formule-1/zo-laat-rijdt-max-verstappen-dit-weekeinde-de-allerlaatste-dutch-gp~ac6e82c8/)
+  > Het Formule 1-seizoen wordt na een korte zomerstop hervat met een bijzondere race: de allerlaatste Dutch GP op het circuit van Zandvoort. En deze...
+- [Vanavond geen Argentijns shirt voor de premier: Jetten loopt op eieren bij hockeykraker](https://www.ad.nl/politiek/vanavond-geen-argentijns-shirt-voor-de-premier-jetten-loopt-op-eieren-bij-hockeykraker~af0d18cf/)
+  > Premier Rob Jetten en koning Willem-Alexander hebben een ding gemeen: een Argentijnse partner. En dat kan soms ongemakkelijk worden. Bijvoorbeeld...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Thomas Leysen stopt als president-commissaris bij DSM-Firmenich](https://fd.nl/bedrijfsleven/1608085/thomas-leysen-stopt-als-president-commissaris-bij-dsm-firmenich)
+  > De Belg was sinds de fusie in 2023 voorzitter van het Zwitsers-Nederlandse DSM-Firmenich. Hij gaat meer tijd besteden aan andere toezichtsraden,...
 - [Live: Beleggers maken zich zorgen over oplopende rente en stijgende olieprijs](https://fd.nl/financiele-markten/1607915/live-beleggers-maken-zich-zorgen-over-oplopende-rente-en-stijgende-olieprijs)
   > De aandelenmarkten dalen nu rentes voor staatsobligaties pieken. De olieprijs staat ruim boven de $90 per vat door de uitzichtloze strijd die de...
 - [Zijn burgerberaden een oplossing voor een democratischer Nederland?](https://fd.nl/samenleving/1608015/zijn-burgerberaden-een-oplossing-voor-een-democratischer-nederland)
@@ -54,8 +56,6 @@
   > Vandaag in Dagkoers: Kranten zijn volgens de inspectie niet neutraal genoeg geweest over Ozempic, Chinese producenten omzeilen volgens het Witte Huis...
 - [Gelegenheidsargument](https://fd.nl/opinie/1608029/gelegenheidsargument)
   > Het rechts-populisme is een bijzondere politieke stroming omdat de vertegenwoordigers ervan prima weg kunnen komen met het schenden van de basisregel...
-- [Media krijgen boete ‘wegens reclame’ in Ozempic-berichten](https://fd.nl/bedrijfsleven/1608019/media-krijgen-boete-wegens-reclame-in-ozempic-berichten)
-  > De inspectie ziet berichtgeving over Ozempic, Wegovy en Mounjaro al snel als reclame. Ook als dat artikelen in de wetenschapsbijlage van een krant...
 
 ### Meest gelezen
 
