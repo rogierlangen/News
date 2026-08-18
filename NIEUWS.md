@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-08-2026 om 07:40*
+*Laatst bijgewerkt: 18-08-2026 om 08:40*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Tien doden in Petsjenihy na Russische aanvallen, Moskou onderschept Oekraïense drones](https://nos.nl/l/2627337)
+  > Bij Russische aanvallen op het stadje Petsjenihy in de Oekraïense regio Charkiv zijn vannacht tien doden gevallen, meldt de regionale gouverneur. Ook...
 - [Politie Amsterdam krijgt 140 tips over identiteit van 'Lucky'](https://nos.nl/l/2627332)
   > De politie Amsterdam heeft na een kleine dag 140 tips gekregen in de zoektocht naar de identiteit van een man in een verzorgingstehuis.
         De...
 - [Brabants waterschap doet aangifte van bedreiging van controleurs droogteregels](https://nos.nl/l/2627328)
   > Het Waterschap Brabantse Delta doet aangifte omdat toezichthouders zeggen te zijn bedreigd. De medewerkers houden extra controles in het gebied in...
 - [China pakt racistische AI-video's over buitenlanders nauwelijks aan](https://nos.nl/l/2627326)
-  > Een golf van racistische AI-video's overspoelt Chinese sociale media. Vooral witte en zwarte mannen en Indiërs worden in de video's als boosdoeners...
+  > Een golf van racistische AI-video's overspoelt Chinese sociale media. Vooral witte en zwarte mannen en Indiërs worden in de nepvideo's als...
 - [Wekdienst 18/8: Startsessie kabinet in Catshuis • Tweede WK-duel hockeyers](https://nos.nl/l/2627322)
   > Goedemorgen! Vandaag komen ministers en staatssecretarissen bij elkaar op het Catshuis voor de jaarlijkse startsessie van het kabinet. En de...
-- [Veel ouders lijden aan PTSS-klachten na vroeggeboorte](https://nos.nl/l/2627321)
-  > Zeker een derde van de moeders van zeer vroeg geboren baby's lijdt aan zoveel psychische klachten dat er mogelijk sprake is van een posttraumatische...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Oorlog Oekraïne | Russische biologe die bijkluste als escort opgepakt voor moord op overgelopen commandant](https://www.ad.nl/buitenland/live-oorlog-oekraine-russische-biologe-die-bijkluste-als-escort-opgepakt-voor-moord-op-overgelopen-commandant~adfb97be/)
-  > De Russische veiligheidsdienst FSB heeft een 32-jarige biologe opgepakt voor de moord op een overgelopen Oekraïense commandant. Robert Shageev kwam...
-- [Vrouw van militair op Amerikaans ‘helschip’ woest op Trump: ‘Hij denkt niet na voordat hij praat’](https://www.ad.nl/buitenland/vrouw-van-militair-op-amerikaans-helschip-woest-op-trump-hij-denkt-niet-na-voordat-hij-praat~ae67dd9c/)
-  > De echtgenote van een Amerikaanse militair aan boord van het vliegdekschip USS Abraham Lincoln heeft op CNN woedend uitgehaald naar president Donald...
-- [Shakira bezoekt aardbevingsgebied en belooft bouw van tien scholen](https://www.ad.nl/show/shakira-bezoekt-aardbevingsgebied-en-belooft-bouw-van-tien-scholen~aed76c63/)
-  > Shakira heeft scholen bezocht in Colombia die beschadigd zijn geraakt door de zware aardbeving in het land. Ze heeft toegezegd te helpen bij de bouw...
-- [LIVE vakantieblog | Nonnen voeren ‘heilige oorlog’ om hun Italiaanse strand te behouden: ‘Waarom pakt de gemeente dit af?’](https://www.ad.nl/buitenland/live-vakantieblog-nonnen-voeren-heilige-oorlog-om-hun-italiaanse-strand-te-behouden-waarom-pakt-de-gemeente-dit-af~a4195717/)
-  > In het Italiaanse kustplaatsje Spotorno is een heuse ‘heilige oorlog’ uitgebroken. Een groep nonnen vecht er fel tegen de plannen van de gemeente om...
-- [Het regent meldingen van gevonden munitie door laag water in de rivieren](https://www.ad.nl/binnenland/het-regent-meldingen-van-gevonden-munitie-door-laag-water-in-de-rivieren~a8d153ee/)
-  > De politie wordt overspoeld met meldingen van mensen die munitie hebben gevonden langs de grote rivieren. Door de lage waterstand komen veel...
+- [Voor Marijn de perfecte vakantie: zwemmen in ijskoud water, 180 kilometer fietsen én een marathon lopen](https://www.ad.nl/binnenland/voor-marijn-de-perfecte-vakantie-zwemmen-in-ijskoud-water-180-kilometer-fietsen-en-een-marathon-lopen~a4f9f8867/)
+  > Bijna vier kilometer zwemmen in ijskoud Noors water, vervolgens 180 kilometer fietsen op ruw terrein en dan nog een hele marathon van 42 kilometer...
+- [‘Als het eenmaal zomer is, gaat die portemonnee open’: zo stel je weer orde op zaken](https://www.ad.nl/geld/als-het-eenmaal-zomer-is-gaat-die-portemonnee-open-zo-stel-je-weer-orde-op-zaken~a005e0d3/)
+  > Op vakantie voelt een euro soms ineens heel anders. Een ijsje hier, een drankje daar, nog een keer buiten de deur eten: vooruit, je bent er nu toch....
+- [Juist nu kan Borussia Dortmund Joey Veerman heel goed gebruiken: ‘Ze hebben een heel slimme TD’](https://www.ad.nl/voetbal/juist-nu-kan-borussia-dortmund-joey-veerman-heel-goed-gebruiken-ze-hebben-een-heel-slimme-td~aadb93cb/)
+  > Jarenlang droomde Joey Veerman van een mooie buitenlandse transfer. Op het moment dat hij de hoop leek te verliezen, klopte Borussia Dortmund aan in...
+- [Ruben Brinkman speelt Willem-Alexander in hitserie Máxima: ‘Het publiek zal vast even moeten wennen’](https://www.ad.nl/show/ruben-brinkman-speelt-willem-alexander-in-hitserie-maxima-het-publiek-zal-vast-even-moeten-wennen~a8f91bbc/)
+  > Ruben Brinkman (46) neemt in het nieuwe seizoen van de Videoland-hitserie Máxima het stokje over van Martijn Lakemeier als Willem-Alexander. De jonge...
+- [Als 15-jarige het huis uit en maar 1 goal in 105 duels: dit is de nieuwe Feyenoorder](https://www.ad.nl/voetbal/als-15-jarige-het-huis-uit-en-maar-1-goal-in-105-duels-dit-is-de-nieuwe-feyenoorder~a8e3f026/)
+  > Feyenoord haalt met Javier López Carballo (24, Javi López genoemd) een speler in huis die zijn droom waarmaakte: hij verliet als 15-jarige zijn...
 
 ### Meest gelezen
 
@@ -47,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Trump kiest voor harde lijn: geen nieuw bestand met Iran](https://fd.nl/politiek/1608209/trump-kiest-voor-harde-lijn-geen-nieuw-bestand-met-iran)
+  > Een tijdelijk bestand van zestig dagen verliep maandag.
 - [Een verbouwde boerderij in Noordlaren](https://fd.nl/samenleving/1608020/een-verbouwde-boerderij-in-noordlaren)
   > Ondanks de ravage was het liefde op het eerste gezicht. ‘We stonden in de keuken en keken elkaar aan. Ik dacht: Piet, het voelt hier gewoon goed.’
 - [Thomas Leysen stopt als president-commissaris bij DSM-Firmenich](https://fd.nl/bedrijfsleven/1608085/thomas-leysen-stopt-als-president-commissaris-bij-dsm-firmenich)
@@ -55,8 +57,6 @@
   > De aandelenmarkten dalen, nu de rentes voor staatsobligaties pieken. De olieprijs staat ruim boven de $90 per vat door de uitzichtloze strijd die de...
 - [Zijn burgerberaden een oplossing voor een democratischer Nederland?](https://fd.nl/samenleving/1608015/zijn-burgerberaden-een-oplossing-voor-een-democratischer-nederland)
   > Ja, stelt Eva Rovers, oprichter van Bureau Burgerberaad. Hanneke van Eijken, hoogleraar Rechtsstaat en democratie, ziet kansen, maar ook...
-- [Trump wil Chinese sluiproutes, ook via Nederland, aanpakken](https://fd.nl/economie/1607913/trump-wil-chinese-sluiproutes-ook-via-nederland-aanpakken)
-  > Vandaag in Dagkoers: Kranten zijn volgens de inspectie niet neutraal genoeg geweest over Ozempic, Chinese producenten omzeilen volgens het Witte Huis...
 
 ### Meest gelezen
 
