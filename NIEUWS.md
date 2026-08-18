@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-08-2026 om 23:25*
+*Laatst bijgewerkt: 18-08-2026 om 01:24*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Discord zet livestream-functie in Brazilië uit na zelfdoding](https://nos.nl/l/2627313)
+  > Het populaire communicatieplatform Discord heeft in Brazilië de mogelijkheid om te livestreamen uitgezet. Het online platform krijgt in het land...
 - [Poging Kushner om vredesakkoord Gaza dichterbij te brengen levert niets op](https://nos.nl/l/2627309)
   > Een poging van de Amerikaanse regering om tot een vredesakkoord voor Gaza te komen lijkt weinig concreets te hebben opgeleverd. Kushner, de...
 - ['Lucky' stortte in op straat, 3 jaar later weet politie nog niet wie hij is](https://nos.nl/l/2627308)
@@ -16,8 +18,6 @@
   > Een week nadat bouwvakkers in het Vlaamse dorpje Sint-Gillis-Dendermonde tijdens renovatiewerkzaamheden in een kelderwand voor 9 miljoen euro aan...
 - [Geëvacueerde inwoners Belgisch dorp mogen weer naar huis na bosbrand](https://nos.nl/l/2627305)
   > Inwoners van het Belgische dorp Sourbrodt in de Ardennen mogen vanavond weer naar huis. Zij werden eergisteren geëvacueerd wegens de brand die woedt...
-- [Duizenden mensen bij wake na dood van oud-hoogleraar die van plagiaat werd beschuldigd](https://nos.nl/l/2627304)
-  > Op het Trafalgar-plein in Londen zijn duizenden mensen bijeengekomen voor een wake ten nagedachtenis aan Jason Arday. Hij werd vorige week op...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Proces verdachte van moord op verzekeringsbaas voor rechtbank in New York uitgesteld na bekentenis](https://www.ad.nl/buitenland/proces-verdachte-van-moord-op-verzekeringsbaas-voor-rechtbank-in-new-york-uitgesteld-na-bekentenis~a32e0451/)
+  > Het proces tegen Luigi Mangione, die ervan wordt beschuldigd de topman van het Amerikaanse verzekeringsbedrijf UnitedHealthcare te hebben...
+- [Blanke vla raakt uit de gratie: supermarkten halen het toetje massaal uit de schappen](https://www.ad.nl/binnenland/blanke-vla-raakt-uit-de-gratie-supermarkten-halen-het-toetje-massaal-uit-de-schappen~a6081e86/)
+  > Blanke vla verdwijnt stap voor stap uit de supermarkt. Zuivelmerk Melkunie stopt eind augustus met de productie van het toetje, concurrent Campina...
+- [Bouw deel grensmuur met Mexico in nationaal park Texas stilgelegd na breedgedragen felle kritiek](https://www.ad.nl/buitenland/bouw-deel-grensmuur-met-mexico-in-nationaal-park-texas-stilgelegd-na-breedgedragen-felle-kritiek~ae67dd9c/)
+  > De bouw van een groot grensproject in het Big Bend National Park in de Amerikaanse staat Texas is tijdelijk stilgelegd na fel lokaal verzet van zowel...
 - [Italiaanse verdediger voor Cambuur, Rodri landt in Barcelona voor toptransfer](https://www.ad.nl/voetbal/italiaanse-verdediger-voor-cambuur-rodri-landt-in-barcelona-voor-toptransfer~acbd43e6/)
   > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
 - [‘FIFA ontslaat topman die forse kritiek had op Infantino’](https://www.ad.nl/voetbal/fifa-ontslaat-topman-die-forse-kritiek-had-op-infantino~a2544497/)
   > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
-- [Nieuwe Feyenoorder stelt zich voor, Godts neemt afscheid van ‘droomclub’ Ajax: ‘Voor altijd plekje in mijn hart’](https://www.ad.nl/voetbal/nieuwe-feyenoorder-stelt-zich-voor-godts-neemt-afscheid-van-droomclub-ajax-voor-altijd-plekje-in-mijn-hart~a378dc98/)
-  > Het nieuwe eredivisieseizoen is van start gegaan. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we...
-- [Het was wel héél erg overdreven hoe Wadie uit B&B vol liefde op de gevallen paardenbloem reageerde](https://www.ad.nl/show/het-was-wel-heel-erg-overdreven-hoe-wadie-uit-benb-vol-liefde-op-de-gevallen-paardenbloem-reageerde~a63b3c67/)
-  > Nooit gedacht dat een paardenbloem (!) voor drama zou zorgen. Maar het gebeurde maandagavond toch echt in B&B vol liefde.
-- [Trumps populariteit blijft maar dalen: meerderheid van de Amerikanen is ontevreden over president](https://www.ad.nl/buitenland/trumps-populariteit-blijft-maar-dalen-meerderheid-van-de-amerikanen-is-ontevreden-over-president~a097c726/)
-  > De populariteitscijfers van de Amerikaanse president Donald Trump zijn gedaald tot het laagste punt van de huidige ambtstermijn. Dat blijkt uit een...
 
 ### Meest gelezen
 
