@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-08-2026 om 17:30*
+*Laatst bijgewerkt: 18-08-2026 om 18:41*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Hoe minister Ben-Gvir premier Netanyahu steeds verder naar rechts trekt](https://nos.nl/l/2627419)
+  > De extreemrechtse Israëlische minister Itamar Ben-Gvir heeft opnieuw ophef veroorzaakt met uitspraken over Palestijnen. In een podcast zei hij...
 - [Studenten aangeklaagd voor cocaïnehandel VS, 'was onderdeel van ontgroening'](https://nos.nl/l/2627411)
   > In de Amerikaanse staat Pennsylvania zijn veertien mensen aangeklaagd voor grootschalige drugshandel op Penn State University. Onder de verdachten...
 - [Mediaminister Letschert wacht oordeel rechter over boetes voor media af](https://nos.nl/l/2627410)
@@ -16,8 +18,6 @@
   > In het Verenigd Koninkrijk is een persoon overleden na een salmonellabesmetting. Ook werden meer dan 200 mensen ziek, onder wie baby's en...
 - [Twee miljoen euro aan crypto verkocht van failliet Knaken](https://nos.nl/l/2627402)
   > Er is voor ruim 2 miljoen euro aan cryptomunten verkocht van het failliete cryptoplatform Knaken. Dat hebben het Openbaar Ministerie en de curator...
-- [Directeur Drents Museum op non-actief, onderzoek naar de werkcultuur](https://nos.nl/l/2627397)
-  > De directeur van het Drents Museum is voorlopig op non-actief gesteld. Dat bevestigt het museum aan de NOS. Algemeen directeur Robert van Langh is...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Een sociaal vangnet moet ook betaalbaar blijven](https://www.ad.nl/commentaar/een-sociaal-vangnet-moet-ook-betaalbaar-blijven~a4d44fdd/)
-  > Soms helpt het om even over de grens te kijken. Vakantiegangers weten dat als geen ander. Juist door te zien hoe het elders is geregeld, ga je de...
-- [Dit is afasie, een niet-aangeboren hersenletsel: ‘Ontstaat door schade aan taalgebieden in de hersenen’](https://www.ad.nl/gezond/dit-is-afasie-een-niet-aangeboren-hersenletsel-ontstaat-door-schade-aan-taalgebieden-in-de-hersenen~a8ca5509/)
-  > In een verzorgingscentrum in Amsterdam-Zuidoost ligt een man die niet kan aangeven wie hij is of waar hij vandaan komt. Als gevolg van een...
-- [Feyenoord verlengt contract Wessels, Barcelona bevestigt komst WK-uitblinker Rodrí](https://www.ad.nl/voetbal/feyenoord-verlengt-contract-wessels-barcelona-bevestigt-komst-wk-uitblinker-rodri~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [Marco Ebben was een ijskoude drugscrimineel die zich door eigen bodyguards liet doodschieten](https://www.ad.nl/binnenland/marco-ebben-was-een-ijskoude-drugscrimineel-die-zich-door-eigen-bodyguards-liet-doodschieten~afacbbb4/)
-  > Niemand minder dan Marco Ebben (32) blijkt de politie te hebben getipt over het moordwapen uit de geruchtmakende zaak rond de Berkelse vergismoord....
-- [PSV’er Couhaib Driouech aast op revanche na transfersoap: ‘Heb een achtbaan van emoties achter de rug’](https://www.ad.nl/voetbal/psver-couhaib-driouech-aast-op-revanche-na-transfersoap-heb-een-achtbaan-van-emoties-achter-de-rug~af715321/)
-  > Na een hectische week stond Couhaib Driouech dinsdag ‘gewoon’ weer op het trainingsveld bij PSV. Hij had al een paar dagen speler van Rangers FC...
+- [Geertruida reageert op online grap van amateurclub, maar krijgt meteen slecht nieuws: ‘Je begint op de bank’](https://www.ad.nl/voetbal/geertruida-reageert-op-online-grap-van-amateurclub-maar-krijgt-meteen-slecht-nieuws-je-begint-op-de-bank~a9c1b193/)
+  > Lutsharel Geertruida mag dan in de belangstelling staan van Ajax en PSV, bij TOGB 2 begint de 21-voudig international gewoon op de bank. „Hij zal...
+- [Trumps voetsoldaten moeten hun verhaal kwijt](https://www.ad.nl/binnenland/trumps-voetsoldaten-moeten-hun-verhaal-kwijt~a22e1c6d/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Wat er met een familie gebeurt als een dochter zoals Lisa ineens hét symbool van geweld wordt](https://www.ad.nl/binnenland/wat-er-met-een-familie-gebeurt-als-een-dochter-zoals-lisa-ineens-het-symbool-van-geweld-wordt~a9f2f5bb/)
+  > Na haar gewelddadige dood één jaar geleden werd de 17-jarige Lisa uit Abcoude een symbool voor agressie en geweld tegen meisjes en vrouwen. Maar wat...
+- [‘John de Mol heeft het nieuwe Triviant vakkundig om zeep geholpen’](https://www.ad.nl/show/john-de-mol-heeft-het-nieuwe-triviant-vakkundig-om-zeep-geholpen~a0599e7e/)
+  > De AD Media Podcast is terug van vakantie en er is genoeg om te bespreken. In de eerste aflevering komt natuurlijk de zomerreeks B&B vol liefde...
+- [Artsen halen steen van ruim 3 kilo uit blaas van man in Sri Lanka en claimen wereldrecord](https://www.ad.nl/buitenland/artsen-halen-steen-van-ruim-3-kilo-uit-blaas-van-man-in-sri-lanka-en-claimen-wereldrecord~ab18e464/)
+  > Bij een man in Sri Lanka is vorige week een uitzonderlijk grote steen uit zijn blaas gehaald. Het object zou meer dan 3 kilo hebben gewogen en 17...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Onderschat niet het groeiende belang van de Joint Expeditionary Force](https://fd.nl/opinie/1608090/onderschat-niet-het-groeiende-belang-van-de-joint-expeditionary-force)
+  > Het belang van het verbond neemt toe, nu de Russische dreiging alsmaar pregnanter wordt en de Amerikaanse president Donald Trump de Navo ondergraaft.
+- [Sterk groeiende vraag naar batterijen stuwt omzet van Alfen](https://fd.nl/bedrijfsleven/1608583/sterk-groeiende-vraag-naar-batterijen-stuwt-omzet-van-alfen)
+  > De divisie die laadpalen voor elektrische auto’s maakt, zag de omzet in de eerste helft van het jaar dalen.
 - [Ook BBB mag meepraten over begroting](https://fd.nl/politiek/1608482/ook-bbb-mag-meepraten-over-begroting)
   > Het kabinet heeft ook de BBB gevraagd om te onderhandelen over de begroting van 2027. Die partij kan dankzij een grote fractie in de Eerste Kamer van...
 - [Ook talkshow Jinek kreeg boete. Vier vragen over de ‘Ozempic-reclames’](https://fd.nl/samenleving/1608211/ook-talkshow-jinek-kreeg-boete-vier-vragen-over-de-ozempic-reclames)
   > Hoofredacteuren spreken van een beperking van de persvrijheid en willen in gesprek met zorgminister Sophie Hermans. Vier vragen over de...
 - [Plantaardige boodschappen vaak goedkoper dan vlees en zuivel](https://fd.nl/bedrijfsleven/1608582/plantaardige-boodschappen-vaak-goedkoper-dan-vlees-en-zuivel)
   > Het loont om vlees en zuivel te vervangen door plantaardige varianten, blijkt na prijsonderzoek bij negen supermarktketens.
-- [Belastingdienst onderzoekt voordelen voor ‘exclusieve netwerkclub’ van modezaak Ogér](https://fd.nl/bedrijfsleven/1608480/belastingdienst-onderzoekt-voordelen-voor-exclusieve-netwerkclub-van-modezaak-oger)
-  > De Belastingdienst heeft leden van de businessclub van het herenmodebedrijf op de korrel. Kochten ze als clublid maatpakken met ontoelaatbare fiscale...
-- [Schaarste maakt plaats voor overvloed aan schuld, dat drijft ook in Nederland de rente op](https://fd.nl/financiele-markten/1608092/schaarste-maakt-plaats-voor-overvloed-aan-schuld-dat-drijft-ook-in-nederland-de-rente-op)
-  > Wereldwijd lopen de kapitaalmarktrentes op wegens uitdijende staatsschulden. Beleggers eisen een hogere vergoeding vanwege de grotere risico’s. Het...
 
 ### Meest gelezen
 
