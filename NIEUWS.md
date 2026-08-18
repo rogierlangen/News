@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-08-2026 om 20:27*
+*Laatst bijgewerkt: 18-08-2026 om 21:27*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Tonnen nucleair materiaal gevonden in zoektocht naar Assads atoomprogramma](https://nos.nl/l/2627437)
+  > In Syrië zijn meerdere tonnen nucleair materiaal gevonden. Het gaat om restanten van het geheime atoomprogramma van voormalig president Assad. De...
+- [VS legt sancties op aan president Internationaal Strafhof](https://nos.nl/l/2627436)
+  > De VS legt opnieuw sancties op aan twee medewerkers van het Internationaal Strafhof in Den Haag. De ene is de voorzitter, de Japanse rechter Tomoko...
 - [Duitsland verlengt omstreden grenscontroles opnieuw met half jaar](https://nos.nl/l/2627431)
   > De Duitse grenscontroles worden met zes maanden verlengd, tot in ieder geval half maart 2027. Minister Dobrindt van Binnenlandse Zaken heeft dat...
 - [Angélique Kidjo krijgt als eerste zwarte Afrikaan ster op Hollywood Walk of Fame](https://nos.nl/l/2627428)
   > De zangeres Angélique Kidjo (66) heeft als eerste zwarte Afrikaan een ster op de Hollywood Walk of Fame gekregen. Volgens de organisatie is de...
 - [Dodental veerbootramp Zimbabwe fors toegenomen](https://nos.nl/l/2627426)
   > Bij de ramp met een veerboot vorige week in Zimbabwe zijn zeker 94 mensen omgekomen. Dat zijn er veel meer dan de 44 die een dag na het ongeluk...
-- [Kabinet: spijtig dat Kamer te laat hoorde van 'verborgen' toeslagenbestanden](https://nos.nl/l/2627425)
-  > Het kabinet zegt dat de Tweede Kamer eerder geïnformeerd had moeten worden over de 'datakluis' van de Belastingdienst met bestanden over het...
-- [Aanhouding voor mishandeling, mogelijk verband met asielopvang Engelen](https://nos.nl/l/2627422)
-  > Voor de mishandeling van een vrouw in juni in Den Bosch heeft de politie een tweede verdachte aangehouden. De politie vermoedt dat het geweld te...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Arie uit B&B vol liefde wordt door Caroline alleen maar als klusjesman ingezet](https://www.ad.nl/show/arie-uit-benb-vol-liefde-wordt-door-caroline-alleen-maar-als-klusjesman-ingezet~a604092e/)
-  > Hallo?! Waar is Cupido in B&B Vol Liefde? De romantiek is in geen velden of wegen te bekennen en de tijd gaat dringen.
-- [Tevreden Memphis Depay tekent na contractsoap alsnog bij en ziet hoe ‘groot’ Corinthians is](https://www.ad.nl/voetbal/tevreden-memphis-depay-tekent-na-contractsoap-alsnog-bij-en-ziet-hoe-groot-corinthians-is~a1f80a67/)
-  > Memphis Depay is blij met zijn nieuwe contract bij Corinthians. De topscorer aller tijden van het Nederlands elftal heeft een verbintenis getekend...
-- [Jutta en Jake delen gezinsuitbreiding en 538-stagiair neemt wraak op dj Dylan Boet](https://www.ad.nl/show/jutta-en-jake-delen-gezinsuitbreiding-en-538-stagiair-neemt-wraak-op-dj-dylan-boet~af15a7f4/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [PSV bijna akkoord met RB Leipzig over huur van Lutsharel Geertruida](https://www.ad.nl/voetbal/psv-bijna-akkoord-met-rb-leipzig-over-huur-van-lutsharel-geertruida~a2994d30/)
-  > PSV is dicht bij een akkoord met RB Leipzig over de huur van Lutsharel Geertruida (26). Normaal gesproken wordt de verdediger voor een seizoen...
-- [Ajax laat Ko Itakura met flink verlies na een jaar terugkeren naar Gladbach](https://www.ad.nl/voetbal/ajax-laat-ko-itakura-met-flink-verlies-na-een-jaar-terugkeren-naar-gladbach~a934b171/)
-  > Ajax gaat Ko Itakura met dik verlies verkopen. Een jaar nadat de 29-jarige Japanner voor minimaal 10 miljoen werd overgenomen van Borussia...
+- [Ontslagen Oekraïense defensieminister roept op tot verkiezingen](https://www.ad.nl/buitenland/ontslagen-oekraiense-defensieminister-roept-op-tot-verkiezingen~adfb97be/)
+  > De Oekraïense oud-defensieminister Mychajlo Fedorov heeft opgeroepen tot nieuwe verkiezingen in zijn land. Hij werd in juli weggestuurd door...
+- [Ruben Kluivert speelt met Lyon gelijk bij Fenerbahçe van Nathan Aké en Dirk Kuyt](https://www.ad.nl/voetbal/ruben-kluivert-speelt-met-lyon-gelijk-bij-fenerbahce-van-nathan-ake-en-dirk-kuyt~abcbd9a4/)
+  > De eerste wedstrijd tussen Fenerbahçe en Olympique Lyon in de play-offs van de Champions League heeft geen winnaar opgeleverd. Beide ploegen hielden...
+- [Premier Jetten juicht voor Oranje én verloofde: ‘Mooi dat hij dicht bij iemand staat die bij Argentinië speelt’](https://www.ad.nl/andere-sporten/premier-jetten-juicht-voor-oranje-en-verloofde-mooi-dat-hij-dicht-bij-iemand-staat-die-bij-argentinie-speelt~af85fd37/)
+  > Voor premier Rob Jetten kwamen dinsdagavond op het WK hockey twee werelden samen. Hij zat als premier op de tribune om Nederland aan te moedigen,...
+- [Feyenoord verlengt contract Wessels, Barcelona bevestigt komst WK-uitblinker Rodrí](https://www.ad.nl/voetbal/feyenoord-verlengt-contract-wessels-barcelona-bevestigt-komst-wk-uitblinker-rodri~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Verkoeling was meer dan welkom: Minder druk bij de Dierenambulance, een zachtere bodem en betere nachten](https://www.ad.nl/binnenland/verkoeling-was-meer-dan-welkom-minder-druk-bij-de-dierenambulance-een-zachtere-bodem-en-betere-nachten~a281596e/)
+  > Het is voor veel mensen een verlichting: de benauwde hitte maakt deze week plaats voor koelere temperaturen en af en toe een bui. Niet alleen...
 
 ### Meest gelezen
 
