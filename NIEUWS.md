@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-08-2026 om 10:31*
+*Laatst bijgewerkt: 18-08-2026 om 11:28*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Droogte in Indonesië legt voormalig dorp bloot in waterreservoir: 'Hier sliepen we'](https://nos.nl/l/2627353)
+  > Indonesië heeft te maken met een extreem droge periode. Dat is vooral voelbaar door de enorme toename in het aantal bosbranden: dit jaar zijn er al...
+- [Megarechtszaak tegen Meta in de VS begint: maakt het bedrijf jongeren bewust verslaafd?](https://nos.nl/l/2627352)
+  > Vandaag start in Californië een grote rechtszaak van bijna dertig Amerikaanse staten tegen Meta, het moederbedrijf van Facebook en Instagram. Het...
 - [Gigantische blaassteen aangetroffen bij Sri Lankaan](https://nos.nl/l/2627351)
   > Artsen in Sri Lanka hebben vorige week een blaassteen van 3,1 kilo gevonden bij een 55-jarige patiënt. De man was opgenomen in het ziekenhuis na een...
 - [Italiaanse nonnen in verzet om 'eigen stukje' strand, gemeente wil plek vrijgeven](https://nos.nl/l/2627348)
   > In een kustplaats in het noorden van Italië is een strijd losgebarsten tussen een lokale nonnenorde en het gemeentebestuur. Al jaren beheren de...
 - [Podcast De Dag: de rijzende ster van Kim Jong-un](https://nos.nl/l/2627344)
   > De Noord-Koreaanse leider Kim Jong-un eist een steeds prominentere rol op op het wereldtoneel. En zijn land, Noord-Korea, profiteert daarvan. Maar...
-- [Kranten en tijdschrift krijgen boetes voor berichtgeving over afslankmedicijnen](https://nos.nl/l/2627340)
-  > Nederlandse media hebben boetes van tienduizenden euro's gekregen voor berichtgeving over Ozempic, Wegovy en Mounjaro. Dat meldt het FD. De Inspectie...
-- [Tien doden in Petsjenihy na Russische aanvallen, Moskou onderschept Oekraïense drones](https://nos.nl/l/2627337)
-  > Bij Russische aanvallen op het stadje Petsjenihy in de Oekraïense regio Charkiv zijn vannacht tien doden gevallen, meldt de regionale gouverneur. Ook...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Man (33) die verdacht wordt van aanslagplan op prinsessen Amalia en Alexia komt op vrije voeten](https://www.ad.nl/binnenland/man-33-die-verdacht-wordt-van-aanslagplan-op-prinsessen-amalia-en-alexia-komt-op-vrije-voeten~ae0db4be/)
-  > De 33-jarige man die wordt verdacht van het voorbereiden van een aanslag op de prinsessen Amalia en Alexia komt op vrije voeten. Dat heeft de...
-- [‘Hork’ Fred krijgt de volle laag in B&B vol liefde, oud-deelnemers weten hoe hard dat aankomt](https://www.ad.nl/show/hork-fred-krijgt-de-volle-laag-in-benb-vol-liefde-oud-deelnemers-weten-hoe-hard-dat-aankomt~a6c16530/)
-  > Ze doen mee voor de liefde, maar gaan de geschiedenis in als tv-hork. De kritiek op Fred uit B&B vol liefde is niet mals. Hoe ga je daarmee om?...
-- [Praat mee: Máxima en Rob Jetten mogen natuurlijk ook voor Argentinië juichen](https://www.ad.nl/praat-mee/praat-mee-maxima-en-rob-jetten-mogen-natuurlijk-ook-voor-argentinie-juichen~aa0bd51b/)
-  > Dinsdagavond speelt het Nederlandse mannenteam tegen Argentinië bij het WK hockey. Premier Rob Jetten zal geen Argentijns shirt dragen en gewoon voor...
-- [Nepnieuws stookte het vuurtje op bij bestorming Ceuta: ‘Wij zagen dit al weken aankomen’](https://www.ad.nl/buitenland/nepnieuws-stookte-het-vuurtje-op-bij-bestorming-ceuta-wij-zagen-dit-al-weken-aankomen~adbd5791/)
-  > Tienduizenden migranten zwommen eind juli de grens over tussen Marokko en de Spaanse exclave Ceuta. Volgens de EU speelde desinformatie online...
-- [Dode Japanse kever aangetroffen in Nederland, NVWA waarschuwt voor ‘zeer schadelijk’ insect](https://www.ad.nl/binnenland/dode-japanse-kever-aangetroffen-in-nederland-nvwa-waarschuwt-voor-zeer-schadelijk-insect~ac96fbc8b/)
-  > De Nederlandse Voedsel- en Warenautoriteit (NVWA) roept vakantiegangers en de transportsector op alert te zijn op meeliftende Japanse kevers. Eind...
+- [Baas ontploft en scheldt vrouw uit voor alcoholist die moet ophoepelen, rechter oordeelt dat juist zíjn gedrag fout is](https://www.ad.nl/binnenland/baas-ontploft-en-scheldt-vrouw-uit-voor-alcoholist-die-moet-ophoepelen-rechter-oordeelt-dat-juist-zijn-gedrag-fout-is~a80a1217/)
+  > Een vrouw die door haar voormalige leidinggevende is uitgescholden voor alcoholist en al na een halfjaar te horen kreeg dat ze moest vertrekken,...
+- [Belangrijke week voor NEC, Ajax en FC Twente: op deze dagen komen Nederlandse clubs in actie in Europa](https://www.ad.nl/voetbal/belangrijke-week-voor-nec-ajax-en-fc-twente-op-deze-dagen-komen-nederlandse-clubs-in-actie-in-europa~a6173ec4/)
+  > NEC, Ajax en FC Twente staan voor een belangrijke week in Europa. De Nederlandse clubs hopen een grote stap te zetten naar de Europese...
+- [Hoe ouder, hoe zwaarder: waarom afvallen lastiger wordt na je veertigste, en hoe het wel lukt](https://www.ad.nl/gezond/hoe-ouder-hoe-zwaarder-waarom-afvallen-lastiger-wordt-na-je-veertigste-en-hoe-het-wel-lukt~a82a6da0/)
+  > Afvallen vereist van de meeste mensen wel wat wilskracht. En wat je ook doet of laat: als je ouder wordt, lijkt het wel of die zwembandjes en dat...
+- [Nicolás Keenan ligt als verloofde van premier Jetten onder vergrootglas: ‘Rob heeft zijn leven en ik het mijne’](https://www.ad.nl/andere-sporten/nicolas-keenan-ligt-als-verloofde-van-premier-jetten-onder-vergrootglas-rob-heeft-zijn-leven-en-ik-het-mijne~aeaf1928/)
+  > Sinds Rob Jetten premier is, hockeyt Nicolás Keenan niet langer in de luwte. Als verloofde van de minister-president is hij steeds meer publiek bezit...
+- [Geraldine doet een vreugdedansje en Chantal onthult iets opmerkelijks](https://www.ad.nl/show/geraldine-doet-een-vreugdedansje-en-chantal-onthult-iets-opmerkelijks~af15a7f4/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Belastingdienst bestraft vergissen te zwaar](https://fd.nl/opinie/1608013/belastingdienst-bestraft-vergissen-te-zwaar)
+  > Wie per ongeluk geld overboekt naar zijn lijfrenterekening, kan sinds april zwaar worden belast. Een menselijke vergissing mag geen fiscaal risico...
 - [Mijnbouwer BHP schroeft dividend op](https://fd.nl/financiele-markten/1608213/mijnbouwer-bhp-schroeft-dividend-op)
   > De Australische onderneming profiteerde het voorbije boekjaar van stijgende koper- en ijzerertsprijzen. Aandeelhouders kunnen nog eens $5 mrd aan...
 - [Stijgende temperaturen: quinoa en zoete aardappelen vinden hun plek in Nederlandse bodem](https://fd.nl/economie/1606264/bataat-quinoa-en-risottorijst-nieuwe-gewassen-vinden-hun-plek-in-opwarmend-nederland)
@@ -54,8 +56,6 @@
   > Nederland mist een samenhangende luchtvaartstrategie. Terwijl andere landen hun hubs gericht versterken, dreigt ons land zijn strategische positie te...
 - [Moneymaxxing](https://fd.nl/financiele-markten/1608208/moneymaxxing)
   > Op TikTok en YouTube wemelt het opeens van de twintigers die hun eigen bankrekening runnen als ware het een beursfonds. De zoveelste hype? Niet...
-- [Nvidia gaf het Duitse chipbedrijf Aixtron plotseling vleugels](https://fd.nl/financiele-markten/1602233/nvidia-gaf-het-duitse-chipbedrijf-aixtron-plotseling-vleugels)
-  > De Duitse chiptoeleverancier Aixtron, gevestigd vlak over de grens bij Kerkrade, profiteerde mede van orders door het Amerikaanse chipbedrijf...
 
 ### Meest gelezen
 
