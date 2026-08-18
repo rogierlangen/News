@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-08-2026 om 01:24*
+*Laatst bijgewerkt: 18-08-2026 om 02:57*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Zeker 8 miljard euro schade door aardbeving Colombia, Shakira belooft steun](https://nos.nl/l/2627315)
+  > De economische schade van de aardbeving in Colombia loopt waarschijnlijk op tot ruim acht miljard euro, zegt de president van het land. Volgens...
+- [Aanleg grensbewaking in nationaal park Texas stilgelegd na protest](https://nos.nl/l/2627314)
+  > Een bouwproject voor de grensbewaking in een nationaal park in de Amerikaanse staat Texas is stilgelegd na felle kritiek van zowel Democraten als...
 - [Discord zet livestream-functie in Brazilië uit na zelfdoding](https://nos.nl/l/2627313)
   > Het populaire communicatieplatform Discord heeft in Brazilië de mogelijkheid om te livestreamen uitgezet. Het online platform krijgt in het land...
 - [Poging Kushner om vredesakkoord Gaza dichterbij te brengen levert niets op](https://nos.nl/l/2627309)
   > Een poging van de Amerikaanse regering om tot een vredesakkoord voor Gaza te komen lijkt weinig concreets te hebben opgeleverd. Kushner, de...
 - ['Lucky' stortte in op straat, 3 jaar later weet politie nog niet wie hij is](https://nos.nl/l/2627308)
   > Het Amsterdamse coldcaseteam is al drie jaar bezig met de zoektocht naar de identiteit van een persoon die vanwege een beroerte niet meer kan...
-- [Goudkoorts breekt uit na gevonden schat in België: 'Was in een vorig leven van mij'](https://nos.nl/l/2627306)
-  > Een week nadat bouwvakkers in het Vlaamse dorpje Sint-Gillis-Dendermonde tijdens renovatiewerkzaamheden in een kelderwand voor 9 miljoen euro aan...
-- [Geëvacueerde inwoners Belgisch dorp mogen weer naar huis na bosbrand](https://nos.nl/l/2627305)
-  > Inwoners van het Belgische dorp Sourbrodt in de Ardennen mogen vanavond weer naar huis. Zij werden eergisteren geëvacueerd wegens de brand die woedt...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Rusland bedreigt VK na mogelijk gebruik Britse drones door Oekraïne: ‘Londen kiest voor escalatie, dat zal gevolgen hebben’](https://www.ad.nl/buitenland/rusland-bedreigt-vk-na-mogelijk-gebruik-britse-drones-door-oekraine-londen-kiest-voor-escalatie-dat-zal-gevolgen-hebben~adfb97be/)
+  > Rusland heeft het Verenigd Koninkrijk gewaarschuwd dat het mogelijke gebruik van Britse drones door Oekraïne om doelen in Rusland te raken ‘gevolgen’...
+- [Woonalliantie tegen kabinet: draai belemmerende regels woningmarkt terug](https://www.ad.nl/binnenland/woonalliantie-tegen-kabinet-draai-belemmerende-regels-woningmarkt-terug~a103cae1/)
+  > Het kabinet zou belemmerende regels op de woningmarkt moeten terugdraaien om ervoor te zorgen dat beleggers en verhuurders weer gaan investeren. De...
 - [Proces verdachte van moord op verzekeringsbaas voor rechtbank in New York uitgesteld na bekentenis](https://www.ad.nl/buitenland/proces-verdachte-van-moord-op-verzekeringsbaas-voor-rechtbank-in-new-york-uitgesteld-na-bekentenis~a32e0451/)
   > Het proces tegen Luigi Mangione, die ervan wordt beschuldigd de topman van het Amerikaanse verzekeringsbedrijf UnitedHealthcare te hebben...
 - [Blanke vla raakt uit de gratie: supermarkten halen het toetje massaal uit de schappen](https://www.ad.nl/binnenland/blanke-vla-raakt-uit-de-gratie-supermarkten-halen-het-toetje-massaal-uit-de-schappen~a6081e86/)
   > Blanke vla verdwijnt stap voor stap uit de supermarkt. Zuivelmerk Melkunie stopt eind augustus met de productie van het toetje, concurrent Campina...
 - [Bouw deel grensmuur met Mexico in nationaal park Texas stilgelegd na breedgedragen felle kritiek](https://www.ad.nl/buitenland/bouw-deel-grensmuur-met-mexico-in-nationaal-park-texas-stilgelegd-na-breedgedragen-felle-kritiek~ae67dd9c/)
   > De bouw van een groot grensproject in het Big Bend National Park in de Amerikaanse staat Texas is tijdelijk stilgelegd na fel lokaal verzet van zowel...
-- [Italiaanse verdediger voor Cambuur, Rodri landt in Barcelona voor toptransfer](https://www.ad.nl/voetbal/italiaanse-verdediger-voor-cambuur-rodri-landt-in-barcelona-voor-toptransfer~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [‘FIFA ontslaat topman die forse kritiek had op Infantino’](https://www.ad.nl/voetbal/fifa-ontslaat-topman-die-forse-kritiek-had-op-infantino~a2544497/)
-  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
 
 ### Meest gelezen
 
