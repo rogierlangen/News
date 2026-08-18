@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-08-2026 om 13:44*
+*Laatst bijgewerkt: 18-08-2026 om 14:36*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Politie en OM gaan eigen aanpak boerenprotest beoordelen: 'Lessen trekken'](https://nos.nl/l/2627388)
+  > De politie en het Openbaar Ministerie gaan hun eigen optreden evalueren van afgelopen vrijdag, bij de protestactie van boeren in Den Bosch....
+- [NAVO onderschept drones nog altijd met dure vliegtuigen: 'Snellere innovatie nodig'](https://nos.nl/l/2627385)
+  > In toenemende mate zijn er incidenten met drones op NAVO-grondgebied. Afgelopen donderdagnacht en in het weekend haalden gevechtsvliegtuigen...
 - [Israëlische aanvallen op Syrische luchtmachtbasis gemeld, VS roept op tot de-escalatie](https://nos.nl/l/2627379)
   > Een Syrische luchtmachtbasis in Abu Duhur is vanochtend vroeg doelwit geweest van Israëlische aanvallen, meldt de Syrische staatstelevisie. In totaal...
 - [Gevangene gewond bij ongeluk op A2, meerdere rijstroken dicht](https://nos.nl/l/2627373)
@@ -15,10 +19,6 @@
 - [Busschauffeur in Zuid-Limburg zwaar mishandeld, verdachten weigerden te betalen](https://nos.nl/l/2627370)
   > Een buschauffeur in Eijsden is gistermiddag zwaar mishandeld door twee mensen die bij hem instapten, meldt de politie.
         Ze wilden instappen...
-- [Tientallen kinderen mogelijk verwekt door 'verkeerd' zaad in Noord-Cyprus](https://nos.nl/l/2627369)
-  > Vermoedelijk zijn minstens dertig kinderen, voornamelijk Britten, door de verkeerde donors bij vruchtbaarheidsklinieken in Noord-Cyprus verwekt. Dat...
-- [Bedreigde minischildpad, kleiner dan een paperclip, komt ter wereld in Diergaarde Blijdorp](https://nos.nl/l/2627367)
-  > In Diergaarde Blijdorp is begin augustus een Egyptische landschildpad uit het ei gekropen; een piepklein diertje dat in zijn natuurlijke leefgebied...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Zijn Instagram en Facebook veilig voor jongeren? Nee, vinden 30 staten in de VS, die Meta aanklagen: ‘Kansrijke zaak’](https://www.ad.nl/economie/zijn-instagram-en-facebook-veilig-voor-jongeren-nee-vinden-30-staten-in-de-vs-die-meta-aanklagen-kansrijke-zaak~a3267a9b/)
-  > Zijn likes en verdwijnende foto’s schadelijk voor kinderen? Ja, menen dertig Amerikaanse staten. Zij klagen Meta aan vanwege het verslavende karakter...
-- [In twee gevangenissen poging tot ontsnapping, DJI schakelt politie in](https://www.ad.nl/binnenland/in-twee-gevangenissen-poging-tot-ontsnapping-dji-schakelt-politie-in~acc217ab/)
-  > Twee gevangenen die wilden vluchten zijn afgelopen maand betrapt. Zo constateerden cipiers in Middelburg tijdens een celinspectie dat een...
-- [Katja verandert biggetjes-snoep na 33 jaar stilletjes van vorm: ‘Eigentijdser’](https://www.ad.nl/binnenland/katja-verandert-biggetjes-snoep-na-33-jaar-stilletjes-van-vorm-eigentijdser~a66e5095/)
-  > De bekende biggetjes-snoepjes van het merk Katja hebben na 33 jaar ineens een ander uiterlijk gekregen. Dat bevestigt het merk na vragen van deze...
-- [Buschauffeur zwaargewond in Eijsden na mishandeling door passagiers die niet wilden inchecken](https://www.ad.nl/binnenland/buschauffeur-zwaargewond-in-eijsden-na-mishandeling-door-passagiers-die-niet-wilden-inchecken~a6c5528f/)
-  > Een buschauffeur van Arriva is maandagmiddag zwaargewond geraakt bij een mishandeling in het Limburgse Eijsden. De twee verdachten sloegen daarna op...
-- [‘Ik ben gescheiden van de mooiste vrouw op aarde’: Pep Guardiola breekt in nieuwe documentaire voor het oog van zijn spelers](https://www.ad.nl/voetbal/ik-ben-gescheiden-van-de-mooiste-vrouw-op-aarde-pep-guardiola-breekt-in-nieuwe-documentaire-voor-het-oog-van-zijn-spelers~aefe7ed7/)
-  > „Ik hou ongelooflijk veel van haar, maar we zijn de passie kwijtgeraakt.” In de gloednieuwe documentaire ‘A Beautiful Obsession’, over Pep...
+- [Niet alleen blanke vla, maar ook trekdrop, Snor, Pizza Crossa en koeienvla blijven we eeuwig missen](https://www.ad.nl/lezersbrieven/niet-alleen-blanke-vla-maar-ook-trekdrop-snor-pizza-crossa-en-koeienvla-blijven-we-eeuwig-missen~a5cc2cf96/)
+  > Melkunie stopt in het najaar met de productie van blanke vla, het bijna zestig jaar oude familietoetje. De vla blijft als huismerk te koop bij nog...
+- [Hoe ontstaan kalknagels en wat helpt? Medisch pedicure legt uit](https://www.ad.nl/gezond/hoe-ontstaan-kalknagels-en-wat-helpt-medisch-pedicure-legt-uit~a87d5a5b/)
+  > Vrijwel iedereen heeft er twintig, maar hoe verzorg je je nagels eigenlijk goed? En waar moet je op letten om ze gezond te houden? In deze reeks...
+- [Mag de premier voor Argentinië juichen? ‘Hij mag van mij in dat tenue slapen’](https://www.ad.nl/binnenland/mag-de-premier-voor-argentinie-juichen-hij-mag-van-mij-in-dat-tenue-slapen~a3050d8c/)
+  > In de podcast Praat mee met AD wordt elke dag een stelling besproken. Vandaag: Niet moeilijk doen, laat Máxima en Rob Jetten gewoon voor Argentinië...
+- [Ik kan aan niets anders dan koffiedik denken als ik deze outfit van Caroline de Bruijn zie](https://www.ad.nl/show/ik-kan-aan-niets-anders-dan-koffiedik-denken-als-ik-deze-outfit-van-caroline-de-bruijn-zie~ae1e00d1/)
+  > Felrode lippenstift, een scherp gesneden blazer en hakken waar je u tegen zegt. Al meer dan dertig jaar is Caroline de Bruijn de onbetwiste...
+- [Werder Bremen haalt Füllkrug terug, Vieira bondscoach Senegal, AZ legt Resink vast](https://www.ad.nl/voetbal/werder-bremen-haalt-fullkrug-terug-vieira-bondscoach-senegal-az-legt-resink-vast~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Hoog voltage nodig bij kabeldivisie TKH](https://fd.nl/financiele-markten/1608478/hoog-voltage-nodig-bij-kabeldivisie-tkh)
+  > Alexander van der Lof, de beoogd ceo van de af te splitsen kabeldivisie van TKH, heeft ambitieuze doelstellingen voor het onderdeel.
+- [Obscure fiscale wet bezorgt familiebedrijven en ondernemers nachtmerries](https://fd.nl/bedrijfsleven/1606754/obscure-fiscale-wet-bezorgt-familiebedrijven-en-ondernemers-nachtmerries)
+  > De lucratiefbelangregeling is bedoeld om private equity zwaarder te belasten, maar raakt volgens fiscalisten veel meer bedrijven en ondernemers.
+- [American Airlines zet fors in op premiumreiziger](https://fd.nl/samenleving/1608476/american-airlines-zet-fors-in-op-premiumreiziger)
+  > Amerikaanse luchtvaartmaatschappijen concurreren steeds agressiever om inkomsten uit premiumdiensten.
 - [Indiase beurs mikt op waardering van $55 mld](https://fd.nl/financiele-markten/1608280/indiase-beurs-mikt-op-waardering-van-55-mld)
   > India’s grootste effectenbeurs NSE plant zelf een beursgang.  Het debuut wordt verwacht in de tweede helft van september.
 - [Nederlands biotechbedrijf Alesta sluit deal van $275 mln](https://fd.nl/financiele-markten/1608212/nederlands-biotechbedrijf-alesta-sluit-deal-van-275-mln)
   > De verkoop van het eigendomsrecht op een experimenteel medicijn is een van de grootste deals van de afgelopen jaren in de Nederlandse biotechsector.
-- [Klarna gaat dit jaar meer creditcarddiensten ontwikkelen](https://fd.nl/financiele-markten/1608379/klarna-gaat-dit-jaar-meer-creditcarddiensten-ontwikkelen)
-  > De Zweedse kredietverlener verschuift de focus van krediet naar betaaldiensten en lidmaatschappen. Het wil zich positioneren als alternatief voor...
-- [Optiver neemt meerderheidsbelang in energiehandelaar Northpool](https://fd.nl/financiele-markten/1608378/optiver-neemt-meerderheidsbelang-in-energiehandelaar-northpool)
-  > Het handelshuis wil daarmee inspelen op de groeiende vraag naar elektriciteit en duurzame  energie zoals zonne- en windenergie.
-- [Palestijnen hebben het gehad met zowel Hamas als Fatah, toont peiling](https://fd.nl/politiek/1608096/palestijnen-hebben-het-gehad-met-zowel-hamas-als-fatah-toont-peiling)
-  > Het vertrouwen in de gevestigde Palestijnse leiders neemt af, terwijl een voorkeur voor onderhandelingen groeit. Dat blijkt uit het jongste onderzoek...
 
 ### Meest gelezen
 
