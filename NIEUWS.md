@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-08-2026 om 18:41*
+*Laatst bijgewerkt: 18-08-2026 om 19:29*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Aanhouding voor mishandeling, mogelijk verband met asielopvang Engelen](https://nos.nl/l/2627422)
+  > Voor de mishandeling van een vrouw in juni in Den Bosch heeft de politie een tweede verdachte aangehouden. De politie vermoedt dat het geweld te...
 - [Hoe minister Ben-Gvir premier Netanyahu steeds verder naar rechts trekt](https://nos.nl/l/2627419)
   > De extreemrechtse Israëlische minister Itamar Ben-Gvir heeft opnieuw ophef veroorzaakt met uitspraken over Palestijnen. In een podcast zei hij...
 - [Studenten aangeklaagd voor cocaïnehandel VS, 'was onderdeel van ontgroening'](https://nos.nl/l/2627411)
@@ -16,8 +18,6 @@
   > Mediaminister Letschert (D66) heeft begrip voor de zorgen van hoofdredacteuren over de boetes die de Inspectie Gezondheidszorg en Jeugd (IGJ) aan...
 - [Dode en meer dan 200 zieken bij salmonella-uitbraak in Verenigd Koninkrijk](https://nos.nl/l/2627404)
   > In het Verenigd Koninkrijk is een persoon overleden na een salmonellabesmetting. Ook werden meer dan 200 mensen ziek, onder wie baby's en...
-- [Twee miljoen euro aan crypto verkocht van failliet Knaken](https://nos.nl/l/2627402)
-  > Er is voor ruim 2 miljoen euro aan cryptomunten verkocht van het failliete cryptoplatform Knaken. Dat hebben het Openbaar Ministerie en de curator...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Verkiezingsstrijd in Israël verhardt: Ben-Gvir roept op tot dagelijks doodschieten van Palestijnen](https://www.ad.nl/buitenland/verkiezingsstrijd-in-israel-verhardt-ben-gvir-roept-op-tot-dagelijks-doodschieten-van-palestijnen~afc03e11/)
+  > Het is verkiezingstijd in Israël en dus laat ook de ultrarechtse minister Itamar Ben-Gvir zich op het scherpst van de snede horen. Hij riep in een...
+- [Madonna verslaat Taylor Swift en sleept meest nominaties voor MTV Video Music Awards binnen](https://www.ad.nl/show/madonna-verslaat-taylor-swift-en-sleept-meest-nominaties-voor-mtv-video-music-awards-binnen~a708592c/)
+  > Madonna is met elf nominaties de grootste kanshebber bij de MTV Video Music Awards. Dat maakte de zender dinsdag bekend. Daarmee verslaat de...
+- [Jamal Musiala laat van zich horen nadat hij weer onwel wordt tijdens duel Bayern: ‘Snap dat jullie je zorgen maken’](https://www.ad.nl/voetbal/jamal-musiala-laat-van-zich-horen-nadat-hij-weer-onwel-wordt-tijdens-duel-bayern-snap-dat-jullie-je-zorgen-maken~a36ce3fa/)
+  > Jamal Musiala is voor de tweede keer in vier dagen onwel geworden. De international van Duitsland voelde zich dinsdag kort na zijn invalbeurt in een...
 - [Geertruida reageert op online grap van amateurclub, maar krijgt meteen slecht nieuws: ‘Je begint op de bank’](https://www.ad.nl/voetbal/geertruida-reageert-op-online-grap-van-amateurclub-maar-krijgt-meteen-slecht-nieuws-je-begint-op-de-bank~a9c1b193/)
   > Lutsharel Geertruida mag dan in de belangstelling staan van Ajax en PSV, bij TOGB 2 begint de 21-voudig international gewoon op de bank. „Hij zal...
 - [Trumps voetsoldaten moeten hun verhaal kwijt](https://www.ad.nl/binnenland/trumps-voetsoldaten-moeten-hun-verhaal-kwijt~a22e1c6d/)
   > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [Wat er met een familie gebeurt als een dochter zoals Lisa ineens hét symbool van geweld wordt](https://www.ad.nl/binnenland/wat-er-met-een-familie-gebeurt-als-een-dochter-zoals-lisa-ineens-het-symbool-van-geweld-wordt~a9f2f5bb/)
-  > Na haar gewelddadige dood één jaar geleden werd de 17-jarige Lisa uit Abcoude een symbool voor agressie en geweld tegen meisjes en vrouwen. Maar wat...
-- [‘John de Mol heeft het nieuwe Triviant vakkundig om zeep geholpen’](https://www.ad.nl/show/john-de-mol-heeft-het-nieuwe-triviant-vakkundig-om-zeep-geholpen~a0599e7e/)
-  > De AD Media Podcast is terug van vakantie en er is genoeg om te bespreken. In de eerste aflevering komt natuurlijk de zomerreeks B&B vol liefde...
-- [Artsen halen steen van ruim 3 kilo uit blaas van man in Sri Lanka en claimen wereldrecord](https://www.ad.nl/buitenland/artsen-halen-steen-van-ruim-3-kilo-uit-blaas-van-man-in-sri-lanka-en-claimen-wereldrecord~ab18e464/)
-  > Bij een man in Sri Lanka is vorige week een uitzonderlijk grote steen uit zijn blaas gehaald. Het object zou meer dan 3 kilo hebben gewogen en 17...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Meta in het defensief over scrolverslaafde minderjarigen](https://fd.nl/bedrijfsleven/1608584/meta-in-het-defensief-over-scrolverslaafde-minderjarigen)
+  > In wekenlange rechtszaak klagen 29 Amerikaanse staten het moederbedrijf van WhatsApp, Instagram en Facebook aan.
 - [Onderschat niet het groeiende belang van de Joint Expeditionary Force](https://fd.nl/opinie/1608090/onderschat-niet-het-groeiende-belang-van-de-joint-expeditionary-force)
   > Het belang van het verbond neemt toe, nu de Russische dreiging alsmaar pregnanter wordt en de Amerikaanse president Donald Trump de Navo ondergraaft.
 - [Sterk groeiende vraag naar batterijen stuwt omzet van Alfen](https://fd.nl/bedrijfsleven/1608583/sterk-groeiende-vraag-naar-batterijen-stuwt-omzet-van-alfen)
@@ -54,8 +56,6 @@
   > Het kabinet heeft ook de BBB gevraagd om te onderhandelen over de begroting van 2027. Die partij kan dankzij een grote fractie in de Eerste Kamer van...
 - [Ook talkshow Jinek kreeg boete. Vier vragen over de ‘Ozempic-reclames’](https://fd.nl/samenleving/1608211/ook-talkshow-jinek-kreeg-boete-vier-vragen-over-de-ozempic-reclames)
   > Hoofredacteuren spreken van een beperking van de persvrijheid en willen in gesprek met zorgminister Sophie Hermans. Vier vragen over de...
-- [Plantaardige boodschappen vaak goedkoper dan vlees en zuivel](https://fd.nl/bedrijfsleven/1608582/plantaardige-boodschappen-vaak-goedkoper-dan-vlees-en-zuivel)
-  > Het loont om vlees en zuivel te vervangen door plantaardige varianten, blijkt na prijsonderzoek bij negen supermarktketens.
 
 ### Meest gelezen
 
