@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-08-2026 om 02:57*
+*Laatst bijgewerkt: 18-08-2026 om 03:51*
 
 ---
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Samengeknepen billen, maar na zomer zonder aanval gaat het op de Utrechtse Heuvelrug eíndelijk niet meer over de wolf](https://www.ad.nl/binnenland/samengeknepen-billen-maar-na-zomer-zonder-aanval-gaat-het-op-de-utrechtse-heuvelrug-eindelijk-niet-meer-over-de-wolf~a0b994a6/)
+  > Twee zomers lang ging het op de Utrechtse Heuvelrug over niets anders dan de wolf. Maar deze zomer blijft het muisstil. Er zijn geen incidenten...
 - [Rusland bedreigt VK na mogelijk gebruik Britse drones door Oekraïne: ‘Londen kiest voor escalatie, dat zal gevolgen hebben’](https://www.ad.nl/buitenland/rusland-bedreigt-vk-na-mogelijk-gebruik-britse-drones-door-oekraine-londen-kiest-voor-escalatie-dat-zal-gevolgen-hebben~adfb97be/)
   > Rusland heeft het Verenigd Koninkrijk gewaarschuwd dat het mogelijke gebruik van Britse drones door Oekraïne om doelen in Rusland te raken ‘gevolgen’...
 - [Woonalliantie tegen kabinet: draai belemmerende regels woningmarkt terug](https://www.ad.nl/binnenland/woonalliantie-tegen-kabinet-draai-belemmerende-regels-woningmarkt-terug~a103cae1/)
@@ -35,8 +37,6 @@
   > Het proces tegen Luigi Mangione, die ervan wordt beschuldigd de topman van het Amerikaanse verzekeringsbedrijf UnitedHealthcare te hebben...
 - [Blanke vla raakt uit de gratie: supermarkten halen het toetje massaal uit de schappen](https://www.ad.nl/binnenland/blanke-vla-raakt-uit-de-gratie-supermarkten-halen-het-toetje-massaal-uit-de-schappen~a6081e86/)
   > Blanke vla verdwijnt stap voor stap uit de supermarkt. Zuivelmerk Melkunie stopt eind augustus met de productie van het toetje, concurrent Campina...
-- [Bouw deel grensmuur met Mexico in nationaal park Texas stilgelegd na breedgedragen felle kritiek](https://www.ad.nl/buitenland/bouw-deel-grensmuur-met-mexico-in-nationaal-park-texas-stilgelegd-na-breedgedragen-felle-kritiek~ae67dd9c/)
-  > De bouw van een groot grensproject in het Big Bend National Park in de Amerikaanse staat Texas is tijdelijk stilgelegd na fel lokaal verzet van zowel...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Trump wil Chinese sluiproutes, ook via Nederland, aanpakken](https://fd.nl/economie/1607913/trump-wil-chinese-sluiproutes-ook-via-nederland-aanpakken)
+  > Vandaag in Dagkoers: Kranten zijn volgens de inspectie niet neutraal genoeg geweest over Ozempic, Chinese producenten omzeilen volgens het Witte Huis...
 - [Gelegenheidsargument](https://fd.nl/opinie/1608029/gelegenheidsargument)
 - [Media krijgen boete ‘wegens reclame’ in Ozempic-berichten](https://fd.nl/bedrijfsleven/1608019/media-krijgen-boete-wegens-reclame-in-ozempic-berichten)
   > De inspectie ziet berichtgeving over Ozempic, Wegovy en Mounjaro al snel als reclame. Ook als dat artikelen in de wetenschapsbijlage van een krant...
@@ -53,8 +55,6 @@
   > Landen die China helpen hoge Amerikaanse importheffingen te omzeilen, kunnen rekenen op hoge straffen, waarschuwt de regering-Trump in een rapport....
 - [Zwijgplicht als politiek wapen](https://fd.nl/opinie/1607895/zwijgplicht-als-politiek-wapen)
   > De kersverse minister van Justitie Todd Blanche wil de reikwijdte van het presidentiële zwijgrecht fors oprekken. Daarmee dreigt een juridisch schild...
-- [Personalia dinsdag 18 augustus](https://fd.nl/bedrijfsleven/1608025/personalia-dinsdag-18-augustus)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
