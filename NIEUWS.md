@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-08-2026 om 19:29*
+*Laatst bijgewerkt: 18-08-2026 om 20:27*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Duitsland verlengt omstreden grenscontroles opnieuw met half jaar](https://nos.nl/l/2627431)
+  > De Duitse grenscontroles worden met zes maanden verlengd, tot in ieder geval half maart 2027. Minister Dobrindt van Binnenlandse Zaken heeft dat...
+- [Angélique Kidjo krijgt als eerste zwarte Afrikaan ster op Hollywood Walk of Fame](https://nos.nl/l/2627428)
+  > De zangeres Angélique Kidjo (66) heeft als eerste zwarte Afrikaan een ster op de Hollywood Walk of Fame gekregen. Volgens de organisatie is de...
+- [Dodental veerbootramp Zimbabwe fors toegenomen](https://nos.nl/l/2627426)
+  > Bij de ramp met een veerboot vorige week in Zimbabwe zijn zeker 94 mensen omgekomen. Dat zijn er veel meer dan de 44 die een dag na het ongeluk...
+- [Kabinet: spijtig dat Kamer te laat hoorde van 'verborgen' toeslagenbestanden](https://nos.nl/l/2627425)
+  > Het kabinet zegt dat de Tweede Kamer eerder geïnformeerd had moeten worden over de 'datakluis' van de Belastingdienst met bestanden over het...
 - [Aanhouding voor mishandeling, mogelijk verband met asielopvang Engelen](https://nos.nl/l/2627422)
   > Voor de mishandeling van een vrouw in juni in Den Bosch heeft de politie een tweede verdachte aangehouden. De politie vermoedt dat het geweld te...
-- [Hoe minister Ben-Gvir premier Netanyahu steeds verder naar rechts trekt](https://nos.nl/l/2627419)
-  > De extreemrechtse Israëlische minister Itamar Ben-Gvir heeft opnieuw ophef veroorzaakt met uitspraken over Palestijnen. In een podcast zei hij...
-- [Studenten aangeklaagd voor cocaïnehandel VS, 'was onderdeel van ontgroening'](https://nos.nl/l/2627411)
-  > In de Amerikaanse staat Pennsylvania zijn veertien mensen aangeklaagd voor grootschalige drugshandel op Penn State University. Onder de verdachten...
-- [Mediaminister Letschert wacht oordeel rechter over boetes voor media af](https://nos.nl/l/2627410)
-  > Mediaminister Letschert (D66) heeft begrip voor de zorgen van hoofdredacteuren over de boetes die de Inspectie Gezondheidszorg en Jeugd (IGJ) aan...
-- [Dode en meer dan 200 zieken bij salmonella-uitbraak in Verenigd Koninkrijk](https://nos.nl/l/2627404)
-  > In het Verenigd Koninkrijk is een persoon overleden na een salmonellabesmetting. Ook werden meer dan 200 mensen ziek, onder wie baby's en...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Verkiezingsstrijd in Israël verhardt: Ben-Gvir roept op tot dagelijks doodschieten van Palestijnen](https://www.ad.nl/buitenland/verkiezingsstrijd-in-israel-verhardt-ben-gvir-roept-op-tot-dagelijks-doodschieten-van-palestijnen~afc03e11/)
-  > Het is verkiezingstijd in Israël en dus laat ook de ultrarechtse minister Itamar Ben-Gvir zich op het scherpst van de snede horen. Hij riep in een...
-- [Madonna verslaat Taylor Swift en sleept meest nominaties voor MTV Video Music Awards binnen](https://www.ad.nl/show/madonna-verslaat-taylor-swift-en-sleept-meest-nominaties-voor-mtv-video-music-awards-binnen~a708592c/)
-  > Madonna is met elf nominaties de grootste kanshebber bij de MTV Video Music Awards. Dat maakte de zender dinsdag bekend. Daarmee verslaat de...
-- [Jamal Musiala laat van zich horen nadat hij weer onwel wordt tijdens duel Bayern: ‘Snap dat jullie je zorgen maken’](https://www.ad.nl/voetbal/jamal-musiala-laat-van-zich-horen-nadat-hij-weer-onwel-wordt-tijdens-duel-bayern-snap-dat-jullie-je-zorgen-maken~a36ce3fa/)
-  > Jamal Musiala is voor de tweede keer in vier dagen onwel geworden. De international van Duitsland voelde zich dinsdag kort na zijn invalbeurt in een...
-- [Geertruida reageert op online grap van amateurclub, maar krijgt meteen slecht nieuws: ‘Je begint op de bank’](https://www.ad.nl/voetbal/geertruida-reageert-op-online-grap-van-amateurclub-maar-krijgt-meteen-slecht-nieuws-je-begint-op-de-bank~a9c1b193/)
-  > Lutsharel Geertruida mag dan in de belangstelling staan van Ajax en PSV, bij TOGB 2 begint de 21-voudig international gewoon op de bank. „Hij zal...
-- [Trumps voetsoldaten moeten hun verhaal kwijt](https://www.ad.nl/binnenland/trumps-voetsoldaten-moeten-hun-verhaal-kwijt~a22e1c6d/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Arie uit B&B vol liefde wordt door Caroline alleen maar als klusjesman ingezet](https://www.ad.nl/show/arie-uit-benb-vol-liefde-wordt-door-caroline-alleen-maar-als-klusjesman-ingezet~a604092e/)
+  > Hallo?! Waar is Cupido in B&B Vol Liefde? De romantiek is in geen velden of wegen te bekennen en de tijd gaat dringen.
+- [Tevreden Memphis Depay tekent na contractsoap alsnog bij en ziet hoe ‘groot’ Corinthians is](https://www.ad.nl/voetbal/tevreden-memphis-depay-tekent-na-contractsoap-alsnog-bij-en-ziet-hoe-groot-corinthians-is~a1f80a67/)
+  > Memphis Depay is blij met zijn nieuwe contract bij Corinthians. De topscorer aller tijden van het Nederlands elftal heeft een verbintenis getekend...
+- [Jutta en Jake delen gezinsuitbreiding en 538-stagiair neemt wraak op dj Dylan Boet](https://www.ad.nl/show/jutta-en-jake-delen-gezinsuitbreiding-en-538-stagiair-neemt-wraak-op-dj-dylan-boet~af15a7f4/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [PSV bijna akkoord met RB Leipzig over huur van Lutsharel Geertruida](https://www.ad.nl/voetbal/psv-bijna-akkoord-met-rb-leipzig-over-huur-van-lutsharel-geertruida~a2994d30/)
+  > PSV is dicht bij een akkoord met RB Leipzig over de huur van Lutsharel Geertruida (26). Normaal gesproken wordt de verdediger voor een seizoen...
+- [Ajax laat Ko Itakura met flink verlies na een jaar terugkeren naar Gladbach](https://www.ad.nl/voetbal/ajax-laat-ko-itakura-met-flink-verlies-na-een-jaar-terugkeren-naar-gladbach~a934b171/)
+  > Ajax gaat Ko Itakura met dik verlies verkopen. Een jaar nadat de 29-jarige Japanner voor minimaal 10 miljoen werd overgenomen van Borussia...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Techbedrijven trekken de Amerikaanse beurzen omlaag](https://fd.nl/financiele-markten/1608585/techbedrijven-trekken-de-amerikaanse-beurzen-omlaag)
+  > Het aanhoudende conflict in het Midden-Oosten en de uitverkoop van techaandelen drukken Wall Street in de min.
+- [Disney wil ‘wraak’ van Trump voorkomen via de rechter](https://fd.nl/bedrijfsleven/1608484/disney-wil-wraak-van-trump-voorkomen-via-de-rechter)
+  > ABC-zenders, die in handen zijn van Disney, zijn bang dat hun vergunning wordt ingetrokken.
+- [ING verkleint belang in Thaise bank TTB naar 11,6%](https://fd.nl/bedrijfsleven/1608483/ing-verkleint-belang-in-thaise-bank-ttb-naar-11-6)
+  > De transactie levert de bank bruto ongeveer €475 mln op.
 - [Meta in het defensief over scrolverslaafde minderjarigen](https://fd.nl/bedrijfsleven/1608584/meta-in-het-defensief-over-scrolverslaafde-minderjarigen)
   > In wekenlange rechtszaak klagen 29 Amerikaanse staten het moederbedrijf van WhatsApp, Instagram en Facebook aan.
 - [Onderschat niet het groeiende belang van de Joint Expeditionary Force](https://fd.nl/opinie/1608090/onderschat-niet-het-groeiende-belang-van-de-joint-expeditionary-force)
   > Het belang van het verbond neemt toe, nu de Russische dreiging alsmaar pregnanter wordt en de Amerikaanse president Donald Trump de Navo ondergraaft.
-- [Sterk groeiende vraag naar batterijen stuwt omzet van Alfen](https://fd.nl/bedrijfsleven/1608583/sterk-groeiende-vraag-naar-batterijen-stuwt-omzet-van-alfen)
-  > De divisie die laadpalen voor elektrische auto’s maakt, zag de omzet in de eerste helft van het jaar dalen.
-- [Ook BBB mag meepraten over begroting](https://fd.nl/politiek/1608482/ook-bbb-mag-meepraten-over-begroting)
-  > Het kabinet heeft ook de BBB gevraagd om te onderhandelen over de begroting van 2027. Die partij kan dankzij een grote fractie in de Eerste Kamer van...
-- [Ook talkshow Jinek kreeg boete. Vier vragen over de ‘Ozempic-reclames’](https://fd.nl/samenleving/1608211/ook-talkshow-jinek-kreeg-boete-vier-vragen-over-de-ozempic-reclames)
-  > Hoofredacteuren spreken van een beperking van de persvrijheid en willen in gesprek met zorgminister Sophie Hermans. Vier vragen over de...
 
 ### Meest gelezen
 
