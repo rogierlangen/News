@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-08-2026 om 08:40*
+*Laatst bijgewerkt: 18-08-2026 om 09:36*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Kranten en tijdschrift krijgen boetes voor berichtgeving over afslankmedicijnen](https://nos.nl/l/2627340)
+  > Nederlandse media hebben boetes van tienduizenden euro's gekregen voor berichtgeving over Ozempic, Wegovy en Mounjaro. Dat meldt het FD. De Inspectie...
 - [Tien doden in Petsjenihy na Russische aanvallen, Moskou onderschept Oekraïense drones](https://nos.nl/l/2627337)
   > Bij Russische aanvallen op het stadje Petsjenihy in de Oekraïense regio Charkiv zijn vannacht tien doden gevallen, meldt de regionale gouverneur. Ook...
 - [Politie Amsterdam krijgt 140 tips over identiteit van 'Lucky'](https://nos.nl/l/2627332)
@@ -17,8 +19,6 @@
   > Het Waterschap Brabantse Delta doet aangifte omdat toezichthouders zeggen te zijn bedreigd. De medewerkers houden extra controles in het gebied in...
 - [China pakt racistische AI-video's over buitenlanders nauwelijks aan](https://nos.nl/l/2627326)
   > Een golf van racistische AI-video's overspoelt Chinese sociale media. Vooral witte en zwarte mannen en Indiërs worden in de nepvideo's als...
-- [Wekdienst 18/8: Startsessie kabinet in Catshuis • Tweede WK-duel hockeyers](https://nos.nl/l/2627322)
-  > Goedemorgen! Vandaag komen ministers en staatssecretarissen bij elkaar op het Catshuis voor de jaarlijkse startsessie van het kabinet. En de...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Voor Marijn de perfecte vakantie: zwemmen in ijskoud water, 180 kilometer fietsen én een marathon lopen](https://www.ad.nl/binnenland/voor-marijn-de-perfecte-vakantie-zwemmen-in-ijskoud-water-180-kilometer-fietsen-en-een-marathon-lopen~a4f9f8867/)
-  > Bijna vier kilometer zwemmen in ijskoud Noors water, vervolgens 180 kilometer fietsen op ruw terrein en dan nog een hele marathon van 42 kilometer...
-- [‘Als het eenmaal zomer is, gaat die portemonnee open’: zo stel je weer orde op zaken](https://www.ad.nl/geld/als-het-eenmaal-zomer-is-gaat-die-portemonnee-open-zo-stel-je-weer-orde-op-zaken~a005e0d3/)
-  > Op vakantie voelt een euro soms ineens heel anders. Een ijsje hier, een drankje daar, nog een keer buiten de deur eten: vooruit, je bent er nu toch....
-- [Juist nu kan Borussia Dortmund Joey Veerman heel goed gebruiken: ‘Ze hebben een heel slimme TD’](https://www.ad.nl/voetbal/juist-nu-kan-borussia-dortmund-joey-veerman-heel-goed-gebruiken-ze-hebben-een-heel-slimme-td~aadb93cb/)
-  > Jarenlang droomde Joey Veerman van een mooie buitenlandse transfer. Op het moment dat hij de hoop leek te verliezen, klopte Borussia Dortmund aan in...
-- [Ruben Brinkman speelt Willem-Alexander in hitserie Máxima: ‘Het publiek zal vast even moeten wennen’](https://www.ad.nl/show/ruben-brinkman-speelt-willem-alexander-in-hitserie-maxima-het-publiek-zal-vast-even-moeten-wennen~a8f91bbc/)
-  > Ruben Brinkman (46) neemt in het nieuwe seizoen van de Videoland-hitserie Máxima het stokje over van Martijn Lakemeier als Willem-Alexander. De jonge...
-- [Als 15-jarige het huis uit en maar 1 goal in 105 duels: dit is de nieuwe Feyenoorder](https://www.ad.nl/voetbal/als-15-jarige-het-huis-uit-en-maar-1-goal-in-105-duels-dit-is-de-nieuwe-feyenoorder~a8e3f026/)
-  > Feyenoord haalt met Javier López Carballo (24, Javi López genoemd) een speler in huis die zijn droom waarmaakte: hij verliet als 15-jarige zijn...
+- [Praat mee: Máxima en Rob Jetten mogen natuurlijk ook voor Argentinië juichen](https://www.ad.nl/praat-mee/praat-mee-maxima-en-rob-jetten-mogen-natuurlijk-ook-voor-argentinie-juichen~aa0bd51b/)
+  > Dinsdagavond speelt het Nederlandse mannenteam tegen Argentinië bij het WK hockey. Premier Rob Jetten zal geen Argentijns shirt dragen en gewoon voor...
+- [Nepnieuws stookte het vuurtje op bij bestorming Ceuta: ‘Wij zagen dit al weken aankomen’](https://www.ad.nl/buitenland/nepnieuws-stookte-het-vuurtje-op-bij-bestorming-ceuta-wij-zagen-dit-al-weken-aankomen~adbd5791/)
+  > Tienduizenden migranten zwommen eind juli de grens over tussen Marokko en de Spaanse exclave Ceuta. Volgens de EU speelde desinformatie online...
+- [Dode Japanse kever aangetroffen in Nederland, NVWA waarschuwt voor ‘zeer schadelijk’ insect](https://www.ad.nl/binnenland/dode-japanse-kever-aangetroffen-in-nederland-nvwa-waarschuwt-voor-zeer-schadelijk-insect~ac96fbc8b/)
+  > De Nederlandse Voedsel- en Warenautoriteit (NVWA) roept terugkerende vakantiegangers en de logistieke en handelssector op alert te zijn op...
+- [OM eist 80 uur werkstraf tegen Mocro Maffia-acteur Marouane Meftah: ‘Ik reageerde uit stress en angst’](https://www.ad.nl/show/om-eist-80-uur-werkstraf-tegen-mocro-maffia-acteur-marouane-meftah-ik-reageerde-uit-stress-en-angst~aa8f7ea2/)
+  > Het Openbaar Ministerie heeft dinsdag een werkstraf van 80 uur en een voorwaardelijke gevangenisstraf van een maand geëist tegen acteur Marouane...
+- [Nog een neef van Syrische dictator Assad krijgt doodstraf opgelegd](https://www.ad.nl/buitenland/nog-een-neef-van-syrische-dictator-assad-krijgt-doodstraf-opgelegd~af8d8618/)
+  > Wassim al-Assad, een neef van de voormalige Syrische dictator Bashar al-Assad, heeft de doodstraf opgelegd gekregen in Syrië. Een week eerder werd...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Bataat, quinoa en risottorijst: nieuwe gewassen vinden hun plek in opwarmend Nederland](https://fd.nl/economie/1606264/bataat-quinoa-en-risottorijst-nieuwe-gewassen-vinden-hun-plek-in-opwarmend-nederland)
+  > De warmte rukt steeds verder noordwaarts op. Naast allerlei serieuze bedreigingen voor de Nederlandse landbouw, biedt dat ook kansen. Sommige...
+- [Niet elke vlucht is even belangrijk voor Nederland](https://fd.nl/opinie/1607894/niet-elke-vlucht-is-even-belangrijk-voor-nederland)
+  > Nederland mist een samenhangende luchtvaartstrategie. Terwijl andere landen hun hubs gericht versterken, dreigt ons land zijn strategische positie te...
+- [Moneymaxxing](https://fd.nl/financiele-markten/1608208/moneymaxxing)
+  > Op TikTok en YouTube wemelt het opeens van de twintigers die hun eigen bankrekening runnen als ware het een beursfonds. De zoveelste hype? Niet...
+- [Nvidia gaf het Duitse chipbedrijf Aixtron plotseling vleugels](https://fd.nl/financiele-markten/1602233/nvidia-gaf-het-duitse-chipbedrijf-aixtron-plotseling-vleugels)
+  > De Duitse chiptoeleverancier Aixtron, gevestigd vlak over de grens bij Kerkrade, profiteerde mede van orders door het Amerikaanse chipbedrijf...
 - [Trump kiest voor harde lijn: geen nieuw bestand met Iran](https://fd.nl/politiek/1608209/trump-kiest-voor-harde-lijn-geen-nieuw-bestand-met-iran)
-  > Een tijdelijk bestand van zestig dagen verliep maandag.
-- [Een verbouwde boerderij in Noordlaren](https://fd.nl/samenleving/1608020/een-verbouwde-boerderij-in-noordlaren)
-  > Ondanks de ravage was het liefde op het eerste gezicht. ‘We stonden in de keuken en keken elkaar aan. Ik dacht: Piet, het voelt hier gewoon goed.’
-- [Thomas Leysen stopt als president-commissaris bij DSM-Firmenich](https://fd.nl/bedrijfsleven/1608085/thomas-leysen-stopt-als-president-commissaris-bij-dsm-firmenich)
-  > De Belg was sinds de fusie in 2023 voorzitter van het Zwitsers-Nederlandse DSM-Firmenich. Hij gaat meer tijd besteden aan andere toezichtsraden,...
-- [Live: Chipbedrijven duwen AEX omlaag](https://fd.nl/financiele-markten/1607915/live-beleggers-maken-zich-zorgen-over-oplopende-rente-en-stijgende-olieprijs)
-  > De aandelenmarkten dalen, nu de rentes voor staatsobligaties pieken. De olieprijs staat ruim boven de $90 per vat door de uitzichtloze strijd die de...
-- [Zijn burgerberaden een oplossing voor een democratischer Nederland?](https://fd.nl/samenleving/1608015/zijn-burgerberaden-een-oplossing-voor-een-democratischer-nederland)
-  > Ja, stelt Eva Rovers, oprichter van Bureau Burgerberaad. Hanneke van Eijken, hoogleraar Rechtsstaat en democratie, ziet kansen, maar ook...
+  > Een tijdelijk bestand van zestig dagen verliep maandag. De Amerikaanse president Donald Trump is niet uit op verlenging van het in juni...
 
 ### Meest gelezen
 
