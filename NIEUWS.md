@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-08-2026 om 20:31*
+*Laatst bijgewerkt: 19-08-2026 om 21:28*
 
 ---
 
@@ -16,7 +16,7 @@
   > De politie is op zoek naar een man die iets te maken heeft met de dood van een vrouw in Lelystad, meldt Omroep Flevoland. Haar lichaam werd...
 - [Droneoorlog treft steeds vaker Sudanese burgers, mede door buitenlandse steun](https://nos.nl/l/2627535)
   > Waar drones aan het begin van de oorlog in Sudan nog een marginale rol speelden, zijn ze inmiddels een belangrijk wapen voor beide strijdende...
-- [KNMI: Noordzee was niet eerder zo warm](https://nos.nl/l/2627534)
+- [Noordzee in meer dan 40 jaar niet zo warm](https://nos.nl/l/2627534)
   > De Noordzee is sinds de eerste metingen niet zo warm geweest als afgelopen weekend, meldt het KNMI. Bij het platform Goeree, 30 kilometer uit de kust...
 
 ### Meest gelezen
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Trump-regering heeft Internationaal Strafhof in Den Haag in vizier: ‘Ze voeren een oorlog tegen ons land’](https://www.ad.nl/buitenland/trump-regering-heeft-internationaal-strafhof-in-den-haag-in-vizier-ze-voeren-een-oorlog-tegen-ons-land~a7fe3c07c/)
+  > De nieuwe sancties van de VS tegen de voorzitter en een aanklager van het Internationaal Strafhof gaan al lang niet meer alleen over de vervolging...
+- [NEC houdt ondanks ruime nederlaag hoop op hoofdtoernooi CL na late goal tegen Bodø/Glimt](https://www.ad.nl/voetbal/nec-houdt-ondanks-ruime-nederlaag-hoop-op-hoofdtoernooi-cl-na-late-goal-tegen-bodo-glimt~a70bde56/)
+  > NEC heeft een mirakel nodig om de groepsfase van de Champions League te bereiken. De Nijmeegse club kreeg in de eerste wedstrijd tegen Bodø/Glimt in...
 - [Freek en Eva winnen onbewoond Zweeds eiland voor een jaar, maar houden het al na één nacht voor gezien](https://www.ad.nl/buitenland/freek-en-eva-winnen-onbewoond-zweeds-eiland-voor-een-jaar-maar-houden-het-al-na-een-nacht-voor-gezien~afac20d9/)
   > Freek van Heertum en Eva Holleman uit Berlicum en Den Bosch wonnen in mei voor één jaar een Zweeds onbewoond eiland, maar echt lang hebben ze daar...
-- [Frenkie de Jong uitgefloten bij spelerspresentatie, FC Barcelona wint oefenduel van Egyptische club](https://www.ad.nl/voetbal/frenkie-de-jong-uitgefloten-bij-spelerspresentatie-fc-barcelona-wint-oefenduel-van-egyptische-club~a24b392c/)
+- [Geen warm welkom voor Frenkie de Jong: Oranje-international uitgefloten voor oefenduel Barcelona](https://www.ad.nl/voetbal/geen-warm-welkom-voor-frenkie-de-jong-oranje-international-uitgefloten-voor-oefenduel-barcelona~a24b392c/)
   > Bij de traditionele spelerspresentatie van Barcelona, voorafgaand aan de oefenwedstrijd tegen Al Ahly, kreeg Frenkie de Jong woensdagavond geen warm...
 - [Timothy uit B&B vol liefde bewees alle mensen die kritiek op hem hadden het tegendeel met deze actie](https://www.ad.nl/show/timothy-uit-benb-vol-liefde-bewees-alle-mensen-die-kritiek-op-hem-hadden-het-tegendeel-met-deze-actie~a847822f/)
   > Even geen ordinaire grappen en dubbelzinnige opmerkingen: woensdagavond zag ik in B&B vol liefde een kant van Timothy die me verraste.
-- [KNMI: Noordzee was niet eerder zo warm](https://www.ad.nl/binnenland/knmi-noordzee-was-niet-eerder-zo-warm~a6e9894b/)
-  > We hebben een warme periode achter de rug en dat is ook te merken aan de temperatuur van het zeewater. Nooit eerder was de Noordzee zó warm als...
-- [NEC krijgt nieuwe dreun te verwerken tegen Bodø/Glimt: Champions League-ticket ver weg](https://www.ad.nl/voetbal/nec-krijgt-nieuwe-dreun-te-verwerken-tegen-bodo-glimt-champions-league-ticket-ver-weg~a70bde56/)
-  > NEC hoopt de komende week de Champions League-droom werkelijkheid te laten worden. De Nijmeegse club speelt vanavond de heenwedstrijd in de play-offs...
 
 ### Meest gelezen
 
