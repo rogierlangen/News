@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-08-2026 om 09:36*
+*Laatst bijgewerkt: 19-08-2026 om 10:32*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Geen mens verdient het om zo te sterven als deze jongeren](https://www.ad.nl/binnenland/geen-mens-verdient-het-om-zo-te-sterven-als-deze-jongeren~a6519276/)
-  > Suïcidale jongeren kiezen tegenwoordig steeds vaker voor een afschuwelijke manier om dood te gaan, las Angela de Jong. Er is zelfs een naam voor.
-- [Rusland blijkt tóch geen droombestemming voor nieuw boerenleven, Nederlands stel vertrekt weer](https://www.ad.nl/binnenland/rusland-blijkt-toch-geen-droombestemming-voor-nieuw-boerenleven-nederlands-stel-vertrekt-weer~a67eb88b/)
-  > Een wethouder uit Hilversum emigreerde twee jaar geleden plotseling naar Rusland. Haar dochter en schoonzoon gingen mee om er een boerderij te...
-- [Praat mee: B&B vol liefde is meer B&B vol ellende, wat een teleurstelling dit seizoen](https://www.ad.nl/praat-mee/praat-mee-benb-vol-liefde-is-meer-benb-vol-ellende-wat-een-teleurstelling-dit-seizoen~af7999ac/)
-  > Liefde? Romantiek? Er is dit seizoen weinig van te zien in B&B vol liefde. En veel tijd hebben de deelnemers niet meer: op 9 september is de laatste...
-- [Toptennisser Nick Kyrgios test positief op cocaïne en krijgt voorlopige schorsing: ‘Diep teleurgesteld in mezelf’](https://www.ad.nl/tennis/toptennisser-nick-kyrgios-test-positief-op-cocaine-en-krijgt-voorlopige-schorsing-diep-teleurgesteld-in-mezelf~ab18e49d/)
-  > Toptennisser Nick Kyrgios (31) zal voorlopig niet meer op de tennisbaan te zien zijn. De Australiër testte positief op cocaïne tijdens de Mallorca...
-- [Nederlandse beleggers sloegen massaal aandelen in van SpaceX: recordbedrag van 169 miljoen euro](https://www.ad.nl/economie/nederlandse-beleggers-sloegen-massaal-aandelen-in-van-spacex-recordbedrag-van-169-miljoen-euro~aec7d4c1/)
-  > Nederlandse beleggers sloegen massaal aandelen in van beursbedrijven SpaceX, CSG en Magnum. Vooral voor Elon Musks ruimtevaartbedrijf SpaceX is de...
+- [Op belangrijk punt in carrière een transfer naar PSV: Lutsharel Geertruida is bepaald niet de eerste](https://www.ad.nl/voetbal/op-belangrijk-punt-in-carriere-een-transfer-naar-psv-lutsharel-geertruida-is-bepaald-niet-de-eerste~a8b358c8/)
+  > Noa Lang, Jerdy Schouten en Xavi Simons bij PSV. Maar ook Donyell Malen, Luuk de Jong en Guus Til. De aanstaande rentree van Lutsharel Geertruida in...
+- [Nederlandse Lynn (23) schittert in kwartfinale America’s got talent, jury razend enthousiast: ‘Dit was geweldig’](https://www.ad.nl/show/nederlandse-lynn-23-schittert-in-kwartfinale-americas-got-talent-jury-razend-enthousiast-dit-was-geweldig~a744e6b1b/)
+  > Midden in de nacht zet Caroline Buitenhuis in Voorst haar tv aan. Aan de andere kant van de wereld, in Los Angeles, schittert haar dochter Lynn in de...
+- [Vakbonden kondigen werkonderbrekingen beveiliging op Schiphol aan na verlopen ultimatum](https://www.ad.nl/binnenland/vakbonden-kondigen-werkonderbrekingen-beveiliging-op-schiphol-aan-na-verlopen-ultimatum~a66fc9f9/)
+  > Het ultimatum dat de vakbonden vorige week aan Schiphol en de drie beveiligingsbedrijven op de luchthaven stelden, is verlopen. Volgens vakbond CNV...
+- [Van je hockeyfamilie moet je het hebben: ‘In de wieg zag ik al: die heeft talent’](https://www.ad.nl/andere-sporten/van-je-hockeyfamilie-moet-je-het-hebben-in-de-wieg-zag-ik-al-die-heeft-talent~ab5f600e/)
+  > De families Brinkman, De Nooijer en Delmée tonen maar weer eens aan: de appel valt niet ver van de boom. Hoe is het om de zoon of dochter van een...
+- [‘Iran verliest controle over Straat van Hormuz’, schepen hopen op bescherming van Amerikanen](https://www.ad.nl/buitenland/iran-verliest-controle-over-straat-van-hormuz-schepen-hopen-op-bescherming-van-amerikanen~aa50d312/)
+  > Iran verliest langzaam maar zeker de controle over de Straat van Hormuz, aldus CNN. Meer dan 80 procent van de scheepvaart door de cruciale zeestraat...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Het decor van een festival: ‘een artiest maakt de muziek, wij creëren de wereld daaromheen’](https://fd.nl/samenleving/1608277/het-decor-van-een-festival-een-artiest-maakt-de-muziek-wij-creeren-de-wereld-daaromheen)
-  > Bij het stagedesign voor festivals gaat het niet langer om het grootste spektakel, maar om het beste verhaal, zodat de bezoeker zich helemaal kan...
-- [De groene boekhouding mist de vervuilende tegenboeking](https://fd.nl/opinie/1607659/de-groene-boekhouding-mist-de-vervuilende-tegenboeking)
-  > We meten steeds beter hoeveel geld naar duurzame activiteiten gaat, maar nauwelijks hoeveel financiering wordt afgebouwd die schade veroorzaakt....
-- [VS leggen sancties op aan voorzitter en aanklager van het Internationaal Strafhof](https://fd.nl/politiek/1608490/vs-leggen-sancties-op-aan-het-voorzitter-en-aanklager-van-het-internationaal-strafhof)
-  > Het hof is ‘een corrupt en fataal gepolitiseerd supranationaal hof dat opzettelijk misbruik heeft gemaakt van zijn bevoegdheden en zijn mandaat heeft...
-- [Woning minder waard door extreem weer? Inprijzen klimaatrisico’s wordt betwist in de vastgoedsector](https://fd.nl/economie/1606721/woning-minder-waard-door-extreem-weer-inprijzen-klimaatrisicos-wordt-betwist-in-de-vastgoedsector)
-  > Klimaatverandering is niet langer een ver-van-mijn-bedshow voor de Europese vastgoedmarkt. Maar experts verschillen van mening of taxateurs de...
-- [Oliver Green-eigenaar: ‘Ondernemen stopt nooit’](https://fd.nl/samenleving/1608281/oliver-green-eigenaar-ondernemen-stopt-nooit)
-  > Een droombaan die tegenvalt, ondernemen met je liefdespartner: wat maken professionals mee in hun loopbaan? Deze week: Merel Keizers (1987), eigenaar...
+- [Een verzonnen absentiebriefje](https://fd.nl/samenleving/1608377/een-verzonnen-absentiebriefje)
+  > Als puber veroorloofde Frida Boeke zich grote vrijheden, met kleine frauduleuze handelingen, iets wat nu bijna niet meer kan.
+- [Een woestijn in het hart van Europa: vruchtbare Hongaarse landbouwgrond verandert in dorre vlakte](https://fd.nl/samenleving/1608086/een-woestijn-in-het-hart-van-europa-vruchtbare-hongaarse-landbouwgrond-verandert-in-dorre-vlakte)
+  > De ooit vruchtbare laaglanden van Hongarije veranderen langzaam in een woestijn. Terwijl boeren hun oogsten zien mislukken, wil de nieuwe regering...
+- [Weggestuurde Oekraïense defensieminister roept op tot presidentsverkiezingen](https://fd.nl/politiek/1608778/weggestuurde-oekraiense-defensieminister-roept-op-tot-presidentsverkiezingen)
+  > De populaire Fedorov werd vorige maand, na slechts zes maanden in zijn rol als defensieminister, ontslagen door president Volodymyr Zelensky.
+- [Vraagtekens bij overname Duitse magneetspecialist Vacuumschmelze door Amerikaans bedrijf](https://fd.nl/bedrijfsleven/1608380/vraagtekens-bij-overname-duitse-magneetspecialist-vacuumschmelze-door-amerikaans-bedrijf)
+  > Duitsland breekt zich het hoofd over de vraag of een overname van magneetspecialist Vacuumschmelze door het Amerikaanse bedrijf Energy Fuels strijdig...
+- [Nonchalant Nederland](https://fd.nl/financiele-markten/1608777/nonchalant-nederland)
+  > Als het lang goed gaat, is het makkelijk om te vergeten waardoor dat komt. Maar onze luxepositie in de wereldeconomie is niet in steen gebeiteld,...
 
 ### Meest gelezen
 
