@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-08-2026 om 18:39*
+*Laatst bijgewerkt: 19-08-2026 om 19:28*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Droneoorlog treft steeds vaker Sudanese burgers, mede door buitenlandse steun](https://nos.nl/l/2627535)
+  > Waar drones aan het begin van de oorlog in Sudan nog een marginale rol speelden, zijn ze inmiddels een belangrijk wapen voor beide strijdende...
+- [KNMI: Noordzee was niet eerder zo warm](https://nos.nl/l/2627534)
+  > De Noordzee is sinds de eerste metingen niet zo warm geweest als afgelopen weekend, meldt het KNMI. Bij het platform Goeree, 30 kilometer uit de kust...
+- [Familie vermoorde Lisa (17) bedankt Abcoude voor liefde en steun](https://nos.nl/l/2627531)
+  > De familie van de vorig jaar vermoorde Lisa (17) bedankt de dorpsgenoten in Abcoude voor "alle liefde, steun en medeleven die jullie gaven en zijn...
 - [Steeds meer schepen wachten bij Panamakanaal, voorrangslots leveren miljoenen op](https://nos.nl/l/2627528)
   > Een combinatie van geopolitieke spanningen en klimatologische ontwikkelingen zorgt ervoor dat de wachttijden voor het Panamakanaal enorm zijn...
 - [Leger Israël begint strafrechtelijk onderzoek naar dood Hind (5) in Gaza](https://nos.nl/l/2627524)
   > Het Israëlische leger heeft een van zijn eerste strafrechtelijke onderzoeken naar optredens van militairen in de oorlog in Gaza aangekondigd. Deze...
-- [Noord-Korea haalt uit naar VS, Trump wil Kim Jong-un ontmoeten](https://nos.nl/l/2627521)
-  > Noord-Korea zegt niet onder de indruk te zijn van de toenadering van de Amerikaanse president Donald Trump. Gisteren kondigde Trump aan dat de VS de...
-- [Drie Nederlanders omgekomen en vier gewonden bij ongeluk in Amerikaanse staat Ohio](https://nos.nl/l/2627516)
-  > In de Amerikaanse staat Ohio zijn gisteren drie Nederlanders om het leven gekomen bij een verkeersongeluk. Dat bevestigt het ministerie van...
-- [Katholieken onder druk in China: 'Wij wachten tot ons IJzeren Gordijn valt'](https://nos.nl/l/2627515)
-  > China draait de duimschroeven aan bij christenen door heel het land. Geestelijken en gelovigen worden gearresteerd, kerken gesloten en kinderen mogen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Oekraïense duikinstructeur wist wel heel veel over aanslag op Nord Stream en is nu dankzij Hollywoodfilm gepakt](https://www.ad.nl/buitenland/oekraiense-duikinstructeur-wist-wel-heel-veel-over-aanslag-op-nord-stream-en-is-nu-dankzij-hollywoodfilm-gepakt~a9c0f80d/)
-  > Dankzij de opnames van een Hollywoodfilm in Kroatië heeft Duitsland een tweede verdachte van de aanslag op de Nord Stream-gasleidingen opgepakt. De...
-- [Wim vond zijn vermoorde dochter Sanne, nu waarschuwt hij meisjes op Lowlands voor ‘dwingende controle’](https://www.ad.nl/binnenland/wim-vond-zijn-vermoorde-dochter-sanne-nu-waarschuwt-hij-meisjes-op-lowlands-voor-dwingende-controle~a38e9443/)
-  > Niet Wim Hertgers als zestiger, maar zijn dochter Sanne had op Lowlands moeten rondlopen. Bandjes kijken, ontspannen dansen en gezellig met vrienden...
-- [NEC in uitverkocht huis tegen Bodø/Glimt, trainer Dick Schreuder wijzigt elftal op twee posities](https://www.ad.nl/voetbal/nec-in-uitverkocht-huis-tegen-bodo-glimt-trainer-dick-schreuder-wijzigt-elftal-op-twee-posities~a70bde56/)
+- [Tik voor NEC in jacht op CL-ticket: Bodø/Glimt opent de score in de Goffert](https://www.ad.nl/voetbal/tik-voor-nec-in-jacht-op-cl-ticket-bodo-glimt-opent-de-score-in-de-goffert~a70bde56/)
   > NEC hoopt de komende week de Champions League-droom werkelijkheid te laten worden. De Nijmeegse club speelt vanavond de heenwedstrijd in de play-offs...
-- [Oppermachtig Oranje walst over Japan heen, Yibbi Jansen schittert met vier goals](https://www.ad.nl/sport/oppermachtig-oranje-walst-over-japan-heen-yibbi-jansen-schittert-met-vier-goals~a3440bfa/)
-  > De Nederlandse hockeyvrouwen hebben in de laatste groepswedstrijd een monsterzege op Japan geboekt: 9-0. Strafcornerspecialist Yibbi Jansen eiste de...
-- [Luxeleven in Oostenrijk eindigt in cel voor Nederlander: ‘Ja, hij reed in een Bentley, maar dat is nog geen fraude’](https://www.ad.nl/buitenland/luxeleven-in-oostenrijk-eindigt-in-cel-voor-nederlander-ja-hij-reed-in-een-bentley-maar-dat-is-nog-geen-fraude~aa4e616f/)
-  > De 53-jarige Nederlander Danny K. verzet zich tegen zijn veroordeling tot vijf jaar cel wegens miljoenenfraude in Oostenrijk. Zijn advocaat noemt de...
+- [Zara Larsson wil goedkopere tickets regelen voor volgende tournee na kritiek: ‘Maar ik verdien geen fortuin’](https://www.ad.nl/show/zara-larsson-wil-goedkopere-tickets-regelen-voor-volgende-tournee-na-kritiek-maar-ik-verdien-geen-fortuin~a28450eb/)
+  > Zara Larsson gaat maatregelen nemen om voor haar volgende tournee goedkopere ticketprijzen te regelen. Dat vertelt de Zweedse zangeres in een video...
+- [Babs was 19 toen ze trouwde: ‘Ik was bang dat ik anders zou overblijven’](https://www.ad.nl/mezza/babs-was-19-toen-ze-trouwde-ik-was-bang-dat-ik-anders-zou-overblijven~af195010/)
+  > Babs (63) was 17 toen Ruud (65) haar hart brak. Ze trouwde met een andere man, kreeg twee kinderen en zag Ruud bijna veertig jaar niet, vertelt ze in...
+- [Oudste profvoetballer ooit (59) schrijft opnieuw geschiedenis met twee treffers](https://www.ad.nl/voetbal/oudste-profvoetballer-ooit-59-schrijft-opnieuw-geschiedenis-met-twee-treffers~ac655ef1/)
+  > De jaren lijken geen vat te krijgen op Kazuyoshi Miura. Op zijn 59ste blijft de Japanner als oudste voetbalprof ooit records verbreken. Woensdag...
+- [Weer betrokken geraakt bij schandaal: imago van brokkenpiloot kleeft steeds meer aan Zelensky](https://www.ad.nl/buitenland/weer-betrokken-geraakt-bij-schandaal-imago-van-brokkenpiloot-kleeft-steeds-meer-aan-zelensky~ac3309ed/)
+  > De Oekraïense president Volodymyr Zelensky is opnieuw in verlegenheid gebracht door een naaste medewerkster die van corruptie wordt verdacht. Hij...
 
 ### Meest gelezen
 
