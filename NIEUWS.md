@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-08-2026 om 22:27*
+*Laatst bijgewerkt: 19-08-2026 om 23:25*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- ['Prins Harry en Meghan verhuizen deze maand terug naar VK'](https://nos.nl/l/2627549)
+  > Bij het sjouwen van meubels en het verven van kamers hoeft de Britse prins Harry binnenkort waarschijnlijk niet al te veel op zijn familie te...
 - [Steeds meer startersleningen afgesloten](https://nos.nl/l/2627548)
   > In de eerste helft van dit jaar zijn meer startersleningen afgesloten dan in dezelfde periode vorig jaar. Dat meldt het Kadaster.
         Ruim 8...
@@ -17,8 +19,6 @@
   > De Franse veroordeelde kindermisbruiker Joël Le Scouarnec (75) wordt verdacht van nog eens veertig aanrandingen en tien verkrachtingen van...
 - [Politie zoekt man na gewelddadige dood vrouw in Lelystad](https://nos.nl/l/2627536)
   > De politie is op zoek naar een man die iets te maken heeft met de dood van een vrouw in Lelystad, meldt Omroep Flevoland. Haar lichaam werd...
-- [Droneoorlog treft steeds vaker Sudanese burgers, mede door buitenlandse steun](https://nos.nl/l/2627535)
-  > Waar drones aan het begin van de oorlog in Sudan nog een marginale rol speelden, zijn ze inmiddels een belangrijk wapen voor beide strijdende...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Startersleningen meer dan verdubbeld in vijf jaar tijd](https://fd.nl/economie/1608682/startersleningen-meer-dan-verdubbeld-in-vijf-jaar-tijd)
-  > Meer huizenkopers kloppen aan bij gemeenten voor aanvullend krediet. Dit komt mede door de gestegen huizenprijzen en hypotheekrentes, waardoor...
-- [VS kopen meer langlopende staatsobligaties op, Wall Street kleurt groen](https://fd.nl/financiele-markten/1609300/vs-kopen-meer-langlopende-staatsobligaties-op-wall-street-kleurt-groen)
-  > De breed samengestelde S&P 500 steeg met 0,21%. De Dow Jones eindigde 0,22% hoger en de techzware Nasdaq steeg met 0,16%.
-- [Google sluit miljardendeal met chipfabrikant Marvell](https://fd.nl/tech-en-innovatie/1609279/google-sluit-miljardendeal-met-chipfabrikant-marvell)
-  > Google wil de chipmaker voor een lange periode aan zich binden en bedingt het recht om een miljardenbelang te nemen in Marvell Technology.
-- [Ozempic-boetes lastig uit te leggen](https://fd.nl/opinie/1608979/ozempic-boetes-lastig-uit-te-leggen)
-  > Wat precies de criteria zijn voor de boetes die kranten en tijdschriften kregen voor artikelen over middelen als Ozempic en Mounjaro is onduidelijk....
-- [Alibaba populair bij techbeleggers door focus op generatieve AI](https://fd.nl/financiele-markten/1609277/alibaba-populair-bij-techbeleggers-door-focus-op-generatieve-ai)
-  > De aandelenkoers van Alibaba is dit kwartaal in Hongkong met 34% gestegen.
+- [Rabo: goedkope Chinese chemie maakt Nederlandse economie kwetsbaarder](https://fd.nl/economie/1608877/rabo-goedkope-chinese-chemie-maakt-nederlandse-economie-kwetsbaarder)
+  > De Nederlandse chemiesector staat onder grote druk van goedkope Chinese importen. Voordelen zijn er ook, maar uiteindelijk wordt de economie...
+- [Sluiten kolencentrales is ‘onverstandig’ en ‘levert klimaat niets op’](https://fd.nl/bedrijfsleven/1608781/sluiten-kolencentrales-is-onverstandig-en-levert-klimaat-niets-op)
+  > Energie-experts waarschuwen voor de risico’s die gepaard gaan met het sluiten van de Nederlandse kolencentrales. Onder meer omdat gas duur en onzeker...
+- [Troep opruimen](https://fd.nl/opinie/1608779/troep-opruimen)
+  > Het opruimen van onze eigen troep is een noodzakelijke voorwaarde om het leven in de stad te laten voortbestaan, schrijft FD-columnist Casper Thomas.
+- [Keurmerk lost bijlesprobleem niet op](https://fd.nl/opinie/1608091/keurmerk-lost-bijlesprobleem-niet-op)
+  > Het gepraat over de perfide gevolgen van bijles leidt af van de oorzaken ervan. Die liggen toch echt in het dalende onderwijsniveau, schrijft...
+- [Personalia donderdag 20 augustus](https://fd.nl/bedrijfsleven/1609176/personalia-donderdag-20-augustus)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
