@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-08-2026 om 22:30*
+*Laatst bijgewerkt: 20-08-2026 om 23:28*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Geheimzinnigheid om clausules: ‘Formule 1-contracten meest geheime contracten in de sportwereld’](https://www.ad.nl/formule-1/geheimzinnigheid-om-clausules-formule-1-contracten-meest-geheime-contracten-in-de-sportwereld~a55ac4cd/)
+  > Komend weekend is de laatste Grand Prix van Nederland. Wat kan Max Verstappen in zijn thuisrace? Volg al het nieuws rond de Formule 1-race in...
+- [Trump wil in 2030 duizend Amerikaanse ruimtelanceringen per jaar](https://www.ad.nl/buitenland/trump-wil-in-2030-duizend-amerikaanse-ruimtelanceringen-per-jaar~ae67dd9c/)
+  > Donald Trump wil dat er meer Amerikaanse ruimtelanceringen worden uitgevoerd. De Amerikaanse president ondertekende donderdag een memorandum waarin...
+- [Impact Iranoorlog op energierekening is beperkt, ziet ABN Amro](https://www.ad.nl/economie/impact-iranoorlog-op-energierekening-is-beperkt-ziet-abn-amro~a92a6afe/)
+  > De Iranoorlog zorgt voor hogere energieprijzen, maar de impact op de energierekening van Nederlandse huishoudens is ‘vooralsnog beperkt’. Dat...
 - [Jan Modaal klem op de woningmarkt: nog maar duizend huizen betaalbaar](https://www.ad.nl/economie/jan-modaal-klem-op-de-woningmarkt-nog-maar-duizend-huizen-betaalbaar~ad207576/)
   > Wie een huis wil kopen, kan maar beter een partner hebben. Of eigen geld. Als alleenstaande koper zonder spaarpot, erfenis of overwaarde kom je er...
 - [TransferTalk | Sontje Hansen naar Turkije, Geertruida wordt vrijdag gepresenteerd bij PSV](https://www.ad.nl/voetbal/transfertalk-sontje-hansen-naar-turkije-geertruida-wordt-vrijdag-gepresenteerd-bij-psv~acbd43e6/)
   > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [Crysencio Summerville ziet panenka-penalty mislukken bij Al-Hilal](https://www.ad.nl/voetbal/crysencio-summerville-ziet-panenka-penalty-mislukken-bij-al-hilal~a33413ab/)
-  > Crysencio Summerville heeft donderdagavond opnieuw een strafschop gemist. Voor de 24-jarige aanvaller uit Rotterdam ging het deze keer mis met een...
-- [Programma WK hockey 2026 | Op deze dagen komen de hockeyers en hockeysters in actie in tweede groepsfase](https://www.ad.nl/andere-sporten/programma-wk-hockey-2026-op-deze-dagen-komen-de-hockeyers-en-hockeysters-in-actie-in-tweede-groepsfase~a556c496/)
-  > Voor het eerst in de geschiedenis organiseren Nederland en België samen het WK hockey. Van 15 tot en met 30 augustus strijden mannen- en vrouwenteams...
-- [Laurent Mekies spreekt van lichte blessure Isack Hadjar, Lando Norris laat zich zien op padelbaan](https://www.ad.nl/formule-1/laurent-mekies-spreekt-van-lichte-blessure-isack-hadjar-lando-norris-laat-zich-zien-op-padelbaan~a55ac4cd/)
-  > Komend weekend is de laatste Grand Prix van Nederland. Wat kan Max Verstappen in zijn thuisrace? Volg al het nieuws rond de Formule 1-race in...
 
 ### Meest gelezen
 
