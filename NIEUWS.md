@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-08-2026 om 14:39*
+*Laatst bijgewerkt: 20-08-2026 om 15:36*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Afgelopen maanden meer hitte gerelateerde doden in Spanje en Duitsland](https://nos.nl/l/2627607)
-  > In Spanje zijn dit jaar tussen 1 juni en 19 augustus 4458 hittedoden geregistreerd. Dat schat het Spaanse nationale gezondheidsinstituut Carlos III...
-- [Survivalweekendje Oekraïens alternatief voor gedwongen rekrutering](https://nos.nl/l/2627606)
-  > Een groep jongvolwassenen verzamelt zich op een plein in de zuidelijke havenstad Odesa. In dit gezelschap, vooral vrouwen, zitten onder anderen een...
-- [Podcast De Dag: Zes jaar racen in Zandvoort: winst en verlies](https://nos.nl/l/2627602)
-  > Zes jaar lang verzamelde de Formule 1-wereld zich elke zomer in de Nederlandse duinen. Maar komend weekend is de Grand Prix van Zandvoort voor het...
-- [Reddingsmissie NASA-telescoop mislukt, satelliet dreigt te verbranden in atmosfeer](https://nos.nl/l/2627596)
-  > Op papier lijkt het simpel. Om een belangrijke telescoop te redden van de ondergang, lanceer je een andere satelliet. Met grote armen grijp je dan de...
-- [Australisch OM wil dat verdachte van paddenstoelmoorden nooit meer vrijkomt](https://nos.nl/l/2627595)
-  > Australische aanklagers hebben in hoger beroep geëist dat de verdachte in de beruchte paddenstoelenzaak nooit meer vrijkomt. Erin Patterson werd eind...
+- [Oekraïense topambtenaren verdacht van deelname aan criminele organisatie](https://nos.nl/l/2627627)
+  > In Oekraïne hebben anti-corruptiebureaus SAPO en NABOe invallen gedaan bij hoge functionarissen. De diensten spreken in een verklaring van de...
+- [18 meldingen van oogschade na zonsverduistering, ook bij kinderen](https://nos.nl/l/2627626)
+  > Na de zonsverduistering van 12 augustus hebben oogartsen in Nederland bij achttien patiënten schade aan het netvlies geconstateerd. Dat blijkt uit...
+- ['s Nachts spelen? Steeds hogere inzet? AI-model voorspelt wie probleemgokker wordt](https://nos.nl/l/2627623)
+  > De Kansspelautoriteit heeft een hulpje erbij in de strijd tegen gokverslaving: een computermodel dat problematisch gokken voorspelt.
+        Het...
+- [Natuurbrand Belgische Hoge Venen grotendeels onder controle, mede dankzij regen](https://nos.nl/l/2627620)
+  > De natuurbrand die sinds vrijdag woedt in de Hoge Venen in België, is grotendeels onder controle. Dat melden de lokale autoriteiten. Als de...
+- [Jeugddetentie voor jongen die explosief liet afgaan bij kantoor Amsterdamse Zuidas](https://nos.nl/l/2627617)
+  > Een 17-jarige jongen die dit voorjaar een explosief liet afgaan bij een gebouw op de Amsterdamse Zuidas krijgt 165 dagen jeugddetentie, waarvan 122...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Waarom de terugkeer van Harry en Meghan zoveel Britten verrast: ‘Eerst zien, dan geloven’](https://www.ad.nl/show/waarom-de-terugkeer-van-harry-en-meghan-zoveel-britten-verrast-eerst-zien-dan-geloven~a6e3352b/)
-  > Het nieuws sloeg in als een bom in het Verenigd Koninkrijk: prins Harry en zijn vrouw Meghan keren terug naar Engeland. Zelfs de Britse media werden...
-- [Bosbranden, overstromingen, extreme hitte: steeds meer bezorgde mensen kloppen aan bij de klimaatpsycholoog](https://www.ad.nl/binnenland/bosbranden-overstromingen-extreme-hitte-steeds-meer-bezorgde-mensen-kloppen-aan-bij-de-klimaatpsycholoog~afb8cabf/)
-  > Gortdroge tuinen en parken, hitte in huizen, bosbranden in Frankrijk  en Spanje en een Belgisch natuurgebied dat nog altijd smeult. De klimaatcrisis...
-- [Het oudere stel heeft zich gedegen voorbereid met AI, maar die heeft het niet altijd juist](https://www.ad.nl/geld/het-oudere-stel-heeft-zich-gedegen-voorbereid-met-ai-maar-die-heeft-het-niet-altijd-juist~a1844122/)
-  > Het oudere stel heeft zich gedegen voorbereid op het gesprek met de notaris over hun testament. Met hulp van AI hebben ze een overzicht gemaakt van...
-- [LIVE Dutch GP | Esmee Kosterman in Zandvoort net als Max Verstappen met fraaie ‘Nederlandse’ helm](https://www.ad.nl/formule-1/live-dutch-gp-esmee-kosterman-in-zandvoort-net-als-max-verstappen-met-fraaie-nederlandse-helm~a55ac4cd/)
+- [Burgemeester van Italiaanse badplaats wordt aangereden door ‘beest’ en grijpt in: verbod op fietsen in centrum](https://www.ad.nl/buitenland/burgemeester-van-italiaanse-badplaats-wordt-aangereden-door-beest-en-grijpt-in-verbod-op-fietsen-in-centrum~a2799904/)
+  > De burgemeester van Como, Alessandro Rapinese, heeft een controversiële maatregel ingevoerd in de Italiaanse badplaats. Fietsen is vanaf volgende...
+- [Rijkswaterstaat wist in 2020 al dat Merwedebrug verzwakt was, blijkt uit vertrouwelijk document](https://www.ad.nl/binnenland/rijkswaterstaat-wist-in-2020-al-dat-merwedebrug-verzwakt-was-blijkt-uit-vertrouwelijk-document~acc018bf/)
+  > Rijkswaterstaat wist al in 2020 dat de bogen van de Merwedebrug bij Gorinchem niet meer voldeden aan de minimale veiligheidseisen. Toch vond de...
+- [Freek Rikkerink over belangrijkste les sinds diagnose uitgezaaide longkanker: ‘Voor iedereen is het anders’](https://www.ad.nl/show/freek-rikkerink-over-belangrijkste-les-sinds-diagnose-uitgezaaide-longkanker-voor-iedereen-is-het-anders~a32cd9b3/)
+  > Freek Rikkerink (33) voelt zich naar eigen zeggen helemaal niet ongeneeslijk ziek. In Cor Potcast vertelt de zanger openhartig hoe hij fysiek en...
+- [TransferTalk | Voormalig Feyenoord-verdediger voor 8 miljoen naar Strasbourg, Jackie Groenen verlengt bij PSG](https://www.ad.nl/voetbal/transfertalk-voormalig-feyenoord-verdediger-voor-8-miljoen-naar-strasbourg-jackie-groenen-verlengt-bij-psg~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Esmee Kosterman in Zandvoort met fraaie ‘Nederlandse’ helm, Max Verstappen ontvangt gele trui Demi Vollering](https://www.ad.nl/formule-1/esmee-kosterman-in-zandvoort-met-fraaie-nederlandse-helm-max-verstappen-ontvangt-gele-trui-demi-vollering~a55ac4cd/)
   > Komend weekend is de laatste Grand Prix van Nederland. Wat kan Max Verstappen in zijn thuisrace? Volg al het nieuws rond de Formule 1-race in...
-- [Slechts week na overlijden van zijn broer Finlay start Joshua Tarling in Vuelta: ‘Zwaarste dagen van ons leven’](https://www.ad.nl/wielrennen/slechts-week-na-overlijden-van-zijn-broer-finlay-start-joshua-tarling-in-vuelta-zwaarste-dagen-van-ons-leven~a79d547e/)
-  > Joshua Tarling verschijnt deze zaterdag aan start van de Vuelta voor Netcompany INEOS. Zijn deelname bleef even onzeker gezien het overlijden van...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Gas besparen met kolen](https://fd.nl/financiele-markten/1609312/gas-besparen-met-kolen)
+  > De schoorstenen van de kolencentrales roken weer volop. Door meer met kolen te stoken bespaart Nederland gas, maar wat te doen met de uitstoot?
+- [Uitzendkrachten vaak in te lage loonschaal, zegt sectorwaakhond](https://fd.nl/bedrijfsleven/1609577/uitzendkrachten-vaak-in-te-lage-loonschaal-zegt-sectorwaakhond)
+  > ‘Een juiste functie-indeling is geen administratief detail, maar het fundament onder de juiste beloning’, aldus de SNCU.
+- [Schoonmakers voeren actie voor betere cao](https://fd.nl/bedrijfsleven/1609677/schoonmakers-voeren-actie-voor-betere-cao)
+  > Schoonmakers protesteerden bij het hoofdkantoor van NS tegen de verlaging van het ziektegeld in de nieuwe schoonmaak-cao.
+- [Top van scheepsbouwer IHC vertrekt](https://fd.nl/bedrijfsleven/1609578/top-van-scheepsbouwer-ihc-vertrekt)
+  > Zowel de ceo als de cfo verlaten het concern.  Uit een toelichting valt op te maken dat de twee bestuurders de taken waarvoor ze bij IHC kwamen,...
 - [Dancefreak kiest als directeur Lowlands voor meer gitaren](https://fd.nl/bedrijfsleven/1608625/dancefreak-kiest-als-directeur-lowlands-voor-meer-gitaren)
   > Op zijn vijftiende organiseerde Camiel le Rutte al zijn eerste rave. Nu wil hij festivalbezoekers muziek van buiten hun eigen bubbel laten horen.
-- [Bitcoin boven $72.000 na cryptobijeenkomst Trump](https://fd.nl/financiele-markten/1609383/bitcoin-boven-72-000-na-cryptobijeenkomst-trump)
-  > Na maanden van ingezakte handel steeg de cryptomarkt donderdag fors. De bitcoin won ruim 10% tot boven de $72.000, de hoogste koers sinds eind mei.
-- [Schuldenland VS zet zichzelf steeds verder klem](https://fd.nl/financiele-markten/1609377/schuldenland-vs-zet-zichzelf-steeds-verder-klem)
-  > Minister van financiën Scott Bessent maximeert de langlopende rentes. Daarmee vergroot hij zowel de spanning met de Federal Reserve als de druk op de...
-- [Het uurtje-factuurtje wankelt: AI dwingt advocaten tot een nieuw verdienmodel](https://fd.nl/financiele-markten/1609304/het-uurtje-factuurtje-wankelt-ai-dwingt-advocaten-tot-een-nieuw-verdienmodel)
-  > Bedrijven stellen niet alleen meer vragen bij de rekening van de grote kantoren, ze gebruiken ook steeds vaker kunstmatige intelligentie om...
-- [Meer stoppers dan starters](https://fd.nl/samenleving/1608018/meer-stoppers-dan-starters)
-  > Wetenswaardigheden op het gebied van loopbaan en personal finance.
 
 ### Meest gelezen
 
