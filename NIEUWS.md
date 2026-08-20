@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-08-2026 om 19:33*
+*Laatst bijgewerkt: 20-08-2026 om 20:32*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Azc bij het Friese dorp Balk toch langer open, gemeente is 'teleurgesteld'](https://nos.nl/l/2627664)
+  > Het asielzoekerscentrum bij het Friese dorp Balk blijft nog eens drie jaar langer open dan gepland. Dat heeft het ministerie van Justitie en...
+- [Zeker 47 doden door gekapseisde boot in Nigeria, mogelijk te veel mensen aan boord](https://nos.nl/l/2627659)
+  > Op een rivier in het noordwesten van Nigeria is een boot gekapseisd en gezonken. Dat melden lokale functionarissen. Zeker 47 mensen zijn daarbij om...
+- [Belg krijgt 17 jaar voor moordpoging op buurman die zijn stiefzoon zou hebben misbruikt](https://nos.nl/l/2627658)
+  > De Waalse rechtbank heeft vandaag de 49-jarige Grégory Lenoci veroordeeld tot een gevangenisstraf van zeventien jaar voor poging tot moord op zijn...
 - [Grootmachten Israël en Turkije lijnrecht tegenover elkaar in Syrië](https://nos.nl/l/2627652)
   > De toch al gespannen verhouding tussen Israël en Turkije is verder onder druk komen te staan na een Israëlische aanval op een Syrische...
-- [Nederland veroordeelt samen met andere landen Israël om bouwplan op Westoever](https://nos.nl/l/2627650)
+- [Nederland veroordeelt Israël om biedingen op omstreden bouwproject Westoever](https://nos.nl/l/2627650)
   > Nederland heeft samen met een groep landen boos gereageerd op het besluit van Israël om biedingen te openen voor een zeer omstreden bouwproject op de...
-- [Gratis bakfiets voorkomt omrijden bij Maasland: 'We zoeven zo naar het dorp'](https://nos.nl/l/2627648)
-  > Om te voorkomen dat ouders met schoolgaande kinderen veel extra reistijd kwijt zijn door wegwerkzaamheden worden in Midden-Delfland gratis...
-- [Niet de EU maar Rusland helpt Servië bij de bestrijding van een grote natuurbrand](https://nos.nl/l/2627647)
-  > Noodhulp met een grote politieke lading: Servië krijgt bijstand van Rusland bij het bestrijden van een enorme natuurbrand ten oosten van de hoofdstad...
-- ['Hybride oorlogsvoering': Roemeense F-16's blazen vermoedelijk Russische zeedrone op](https://nos.nl/l/2627642)
-  > Roemeense F-16's hebben in de Zwarte Zee een zeedrone uitgeschakeld. De Roemeense president Dan wijst net als voorzitter Von der Leyen van de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Kabinet veroordeelt plan Israel voor uitbreiding Jeruzalem in bezet gebied: ‘De situatie verslechtert verder’](https://www.ad.nl/politiek/kabinet-veroordeelt-plan-israel-voor-uitbreiding-jeruzalem-in-bezet-gebied-de-situatie-verslechtert-verder~a9c1b619/)
-  > Frankrijk, Duitsland, Italië en het Verenigd Koninkrijk veroordelen de aankondiging van Israël om de bouw van een nieuw stadsdeel van Jeruzalem op de...
-- [Opsteker voor Ajax vlak na rust: Julian Brandt pegelt gelijkmaker tegen de touwen](https://www.ad.nl/voetbal/opsteker-voor-ajax-vlak-na-rust-julian-brandt-pegelt-gelijkmaker-tegen-de-touwen~a67b39f3/)
-  > Ajax neemt het in de play-offs van de Conference League op tegen het Zwitserse FC Sion. Na een kansenregen in de eerste helft voor de Amsterdammers...
-- [In Ceuta rondzwervende kinderen terugsturen is het overwegen waard](https://www.ad.nl/binnenland/in-ceuta-rondzwervende-kinderen-terugsturen-is-het-overwegen-waard~aa371ea7/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [Voor deze jurk van Máxima is zelfs een 10 te laag: ‘Ze liet de mooiste versie van zichzelf zien’](https://www.ad.nl/show/voor-deze-jurk-van-maxima-is-zelfs-een-10-te-laag-ze-liet-de-mooiste-versie-van-zichzelf-zien~a0de7374/)
-  > In de eerste helft van de zomervakantie kregen we de royals nog soms te zien, maar nu is het echt komkommertijd. Dat vindt Máxima-kenner Josine...
-- [TransferTalk | Ahmedhodzic weg bij Feyenoord, Parrott meldt zich in Sevilla, PSV rondt keuring Geertruida af](https://www.ad.nl/voetbal/transfertalk-ahmedhodzic-weg-bij-feyenoord-parrott-meldt-zich-in-sevilla-psv-rondt-keuring-geertruida-af~acbd43e6/)
+- [TransferTalk | Ahmedhodzic weg bij Feyenoord, PSV rondt keuring Geertruida af, Sontje Hansen naar Turkije](https://www.ad.nl/voetbal/transfertalk-ahmedhodzic-weg-bij-feyenoord-psv-rondt-keuring-geertruida-af-sontje-hansen-naar-turkije~acbd43e6/)
   > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Fred uit B&B vol liefde is al jaren bezig met zijn eigen, nogal wonderlijke werkelijkheid](https://www.ad.nl/show/fred-uit-benb-vol-liefde-is-al-jaren-bezig-met-zijn-eigen-nogal-wonderlijke-werkelijkheid~a50b9aa3/)
+  > We ergeren ons kapot aan Fred uit B&B vol liefde, maar zijn eigenaardigheid is wél de reden dat we blijven kijken.
+- [Ajax boekt zwaarbevochten zege op bezoek bij Sion en is dicht bij groepsfase Conference League](https://www.ad.nl/voetbal/ajax-boekt-zwaarbevochten-zege-op-bezoek-bij-sion-en-is-dicht-bij-groepsfase-conference-league~a67b39f3/)
+  > Op een avond waarin uitgerekend de nieuwelingen Ajax in een benarde uitgangspositie dreigden te manoeuvreren, zetten de Amsterdammers met dank aan de...
+- [Ajax doet goede zaken, zware klus voor NEC en FC Twente: dit is route van de Nederlandse clubs naar hoofdtoernooi](https://www.ad.nl/voetbal/ajax-doet-goede-zaken-zware-klus-voor-nec-en-fc-twente-dit-is-route-van-de-nederlandse-clubs-naar-hoofdtoernooi~a63bfdb3/)
+  > Nederland wordt in de voorrondes van de Europese competities vertegenwoordigd door drie clubs. NEC, FC Twente en Ajax moeten een weg zien te vinden...
+- [FC Twente wacht zware klus in Azerbeidzjan na nederlaag tegen Qarabag](https://www.ad.nl/voetbal/fc-twente-wacht-zware-klus-in-azerbeidzjan-na-nederlaag-tegen-qarabag~a4a9ac69/)
+  > FC Twente gaat het lastig krijgen om zich te plaatsen voor het hoofdtoernooi van de Conference League. Het team van trainer John van den Brom verloor...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Rode cijfers op Wall Street na Trumps dreigement richting Iran](https://fd.nl/bedrijfsleven/1609585/rode-cijfers-op-wall-street-na-trumps-dreigement-richting-iran)
+  > ‘De meest vernietigende economische operatie ooit tegen welk land dan ook!’ Die woorden deden de olieprijs donderdag stijgen en aandelen dalen.
+- [Radiant World verder geïsoleerd nu ook Singapore onderzoek instelt](https://fd.nl/bedrijfsleven/1609586/radiant-world-verder-geisoleerd-nu-ook-singapore-onderzoek-instelt)
+  > Meer handelaren én banken nemen afstand van Radiant World, dat wordt verdacht van fraude met valse facturen en vrachtbrieven. Justitie in Singapore...
 - [Aantal buitenlandse studenten op Amerikaanse universiteiten daalt](https://fd.nl/samenleving/1609684/aantal-buitenlandse-studenten-op-amerikaanse-universiteiten-daalt)
   > Strengere visumregels onder Trump drukken het aantal buitenlandse aanmeldingen op Amerikaanse universiteiten.
 - [Nu ook de BBB aanschuift, wordt een route over rechts waarschijnlijker](https://fd.nl/politiek/1609576/nu-de-bbb-aanschuift-wordt-een-route-over-rechts-steeds-waarschijnlijker)
   > Na een kleine week begrotingsonderhandelingen zijn de kansen op een akkoord over links met Pro geslonken. Een akkoord met JA21, SGP en BBB is...
 - [Na ‘geknakt vertrouwen’ praten kabinet en boerenorganisaties door](https://fd.nl/politiek/1609683/na-geknakt-vertrouwen-praten-kabinet-en-boerenorganisaties-door)
   > LTO Nederland en NAJK hebben niet geëist dat het kabinet de stikstofbrief van tafel veegt, maar willen wel fundamentele verbeteringen.
-- [Scherp kolenbeleid op tijd aan](https://fd.nl/opinie/1609309/scherp-kolenbeleid-op-tijd-aan)
-  > Het sluiten van de kolencentrales in 2030 komt met risico’s, het kabinet moet daar op inspelen.
-- [Enzymenmaker Novonesis stijgt op beurs door sterke vraag naar eiwitten](https://fd.nl/bedrijfsleven/1609681/enzymenmaker-novonesis-stijgt-op-beurs-door-sterke-vraag-naar-eiwitten)
-  > Het Deense bedrijf is ’s werelds grootste producent van industriële enzymen. Vorig jaar betaalde het bedrijf €1,5 mrd voor de enzymenactiviteiten van...
 
 ### Meest gelezen
 
