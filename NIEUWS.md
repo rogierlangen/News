@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-08-2026 om 16:38*
+*Laatst bijgewerkt: 20-08-2026 om 17:32*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Nieuw medicijn tegen slaapziekte: "We zien eindelijk verbetering"](https://nos.nl/l/2627638)
+- ['Hybride oorlogsvoering': Roemeense F-16's blazen vermoedelijk Russische zeedrone op](https://nos.nl/l/2627642)
+  > Roemeense F-16's hebben in de Zwarte Zee een zeedrone uitgeschakeld. De Roemeense president Dan wijst net als voorzitter Von der Leyen van de...
+- [Goeree-Overflakkee neemt afscheid van overleden brandweerman duinbrand](https://nos.nl/l/2627641)
+  > Meer dan 600 mensen hebben vanmiddag op Goeree-Overflakkee afscheid genomen van omgekomen vrijwillige brandweerman Adrie Vis (56).
+        Vis raakte...
+- [Nieuw medicijn tegen slaapziekte: 'We zien eindelijk verbetering'](https://nos.nl/l/2627638)
   > Er is een nieuw medicijn ontwikkeld voor mensen met narcolepsie. Dit is een ziekte waarbij mensen spontaan in slaap kunnen vallen. Zo'n 8000 mensen...
 - [Boeren: trekkers op snelweg soms juist veiligste optie](https://nos.nl/l/2627636)
   > Actievoerende boeren vinden de richtlijn van het Openbaar Ministerie om voortaan altijd op te treden tegen trekkers op de snelweg onzinnig. Volgens...
 - [Almere verlengt samenscholingsverbod met een jaar, 'centrum is rustiger'](https://nos.nl/l/2627632)
   > Almere verlengt het samenscholingsverbod in het centrum van de stad met een jaar. Dat betekent dat de politie tot augustus 2027 kan ingrijpen als er...
-- [Oekraïense topambtenaren verdacht van deelname aan criminele organisatie](https://nos.nl/l/2627627)
-  > In Oekraïne hebben anti-corruptiebureaus SAPO en NABOe invallen gedaan bij hoge functionarissen. De diensten spreken in een verklaring van de...
-- [18 meldingen van oogschade na zonsverduistering, ook bij kinderen](https://nos.nl/l/2627626)
-  > Na de zonsverduistering van 12 augustus hebben oogartsen in Nederland bij achttien patiënten schade aan het netvlies geconstateerd. Dat blijkt uit...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Loyaliteit is alles voor Max Verstappen, maar echt niet tegen elke prijs](https://www.ad.nl/formule-1/loyaliteit-is-alles-voor-max-verstappen-maar-echt-niet-tegen-elke-prijs~ab4f45f2/)
-  > Het was óf door bij Red Bull óf stoppen voor Max Verstappen, die flirtte met een vertrek én met zijn pensioen, om uiteindelijk alsnog te verlengen....
-- [Hogere rente treft schatkist: uitgaven lopen in 2027 op tot 12 miljard euro](https://www.ad.nl/politiek/hogere-rente-treft-schatkist-uitgaven-lopen-in-2027-op-tot-12-miljard-euro~a15d4f6f/)
-  > De rente-uitgaven van de staat lopen hard op. In 2027 is minister van Financiën Eelco Heinen hier circa 12 miljard euro aan kwijt. Dat valt op te...
-- [Snel antwoord Nederland na vroege tegengoal: Van Dam slaat hockeyers naast Japan](https://www.ad.nl/andere-sporten/snel-antwoord-nederland-na-vroege-tegengoal-van-dam-slaat-hockeyers-naast-japan~a23272bf/)
+- [Van babynieuws Estavana en Rafael tot Nederlander in Amerikaanse talentenjacht: test je showbizzkennis](https://www.ad.nl/quiz/van-babynieuws-estavana-en-rafael-tot-nederlander-in-amerikaanse-talentenjacht-test-je-showbizzkennis~aa697523/)
+  > Deze week kwamen Estavana Polman en Rafael van der Vaart met babynieuws en wist een Nederlandse zangeres het Amerikaanse publiek te ontroeren. Maar...
+- [College zet strenge voorwaarden in plan voor opvang Engelen: om 22.00 uur binnen en nachtelijke beveiliging](https://www.ad.nl/binnenland/college-zet-strenge-voorwaarden-in-plan-voor-opvang-engelen-om-22-00-uur-binnen-en-nachtelijke-beveiliging~ae5170c4/)
+  > Er klinkt een stevige waarschuwing vanuit de gemeente: de opvang kan sluiten bij ernstige overlast en ’s nachts is strenge beveiliging nodig. Met...
+- [Nederland lijkt zege toch uit het vuur te slepen tegen Japan: Jip Janssen benut een strafbal](https://www.ad.nl/andere-sporten/nederland-lijkt-zege-toch-uit-het-vuur-te-slepen-tegen-japan-jip-janssen-benut-een-strafbal~a23272bf/)
   > De Nederlandse hockeymannen hebben op het WK in eigen land nog geen steken laten vallen. Van zowel Nieuw-Zeeland (5-1) als Argentinië (3-1) werd...
-- [Let jij op de prijzen van je boodschappen? We horen het graag](https://www.ad.nl/geld/let-jij-op-de-prijzen-van-je-boodschappen-we-horen-het-graag~aef99d59/)
-  > Na een dure vakantieperiode, is september het moment voor een frisse start en financieel orde op zaken te stellen. Maar lukt dat nog in de...
-- [Cody Gakpo staat op kruispunt in zijn carrière: Tottenham lonkt naar aanvaller, maar Liverpool twijfelt](https://www.ad.nl/voetbal/cody-gakpo-staat-op-kruispunt-in-zijn-carriere-tottenham-lonkt-naar-aanvaller-maar-liverpool-twijfelt~a09417fa/)
-  > Een van de belangrijkste Oranje-internationals van de afgelopen jaren staat op een kruispunt in zijn carrière. Cody Gakpo (27) staat serieus in de...
+- [Weer naar school: dit helpt tegen septemberstress volgens de orthopedagoog](https://www.ad.nl/gezond/weer-naar-school-dit-helpt-tegen-septemberstress-volgens-de-orthopedagoog~a7821ce2/)
+  > Nu het schooljaar is begonnen of binnenkort van start gaat, keert ook het dagelijkse ritme terug. Opvallend genoeg hebben veel ouders daar meer...
+- [Dorp herdenkt Lisa (17), voor het oog van de camera’s: ‘Ik zie veel aangeslagen jongeren’](https://www.ad.nl/binnenland/dorp-herdenkt-lisa-17-voor-het-oog-van-de-cameras-ik-zie-veel-aangeslagen-jongeren~a7cff02a/)
+  > Abcoude heeft donderdag stilgestaan bij de tragische dood van dorpsgenote Lisa (17), exact een jaar geleden. Dat gebeurde voor het oog van de...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Enzymenmaker Novonesis stijgt op beurs door sterke vraag naar eiwitten](https://fd.nl/bedrijfsleven/1609681/enzymenmaker-novonesis-stijgt-op-beurs-door-sterke-vraag-naar-eiwitten)
+  > Het Deense bedrijf is ’s werelds grootste producent van industriële enzymen. Vorig jaar betaalde het bedrijf €1,5 mrd voor de enzymenactiviteiten van...
+- [Walmart boekt laagste omzetgroei in zes jaar tijd](https://fd.nl/bedrijfsleven/1609680/walmart-boekt-laagste-omzetgroei-in-zes-jaar-tijd)
+  > In het tweede kwartaal steeg de omzet van de grootste Amerikaanse retailer in de VS met 2,6%, zo bleek donderdag bij de presentatie van de...
+- [Ook particuliere school Florencius komt in Zweedse handen](https://fd.nl/samenleving/1609583/particuliere-school-florencius-in-zweedse-handen)
+  > Het in Stockholm genoteerde onderwijsbedrijf AcadeMedia zegt meer overnames te willen doen in Nederland. Zowel op de markt voor scholen als voor...
 - [Alibaba-winst keldert met 75% na ophogen investeringen in AI](https://fd.nl/bedrijfsleven/1609582/alibaba-winst-keldert-met-75-na-ophogen-investeringen-in-ai)
   > Alibaba investeert volop in datacenters, chips en andere technologie om zijn positie als meest gebruikte AI-tool te verankeren.
 - [Han Vermeulen, boegbeeld van de effectenbeurs, overleden](https://fd.nl/financiele-markten/1609385/han-vermeulen-boegbeeld-van-de-effectenbeurs-overleden)
-  > De ‘beursman in hart en nieren’ wist via tv-optredens littekens uit het verleden weg te werken. Dinsdag overleed hij op 82-jarige leeftijd, zo laat...
-- [Moderna is met kankervaccin terug op de radar van beleggers](https://fd.nl/bedrijfsleven/1609314/moderna-is-met-kankervaccin-terug-op-de-radar-van-beleggers)
-  > Het aandeel van de Amerikaanse farmaceut schoot woensdag met 177% omhoog, na nieuws over een kankervaccin op basis van mRNA-technologie. ‘Dit wekt...
-- [‘Principekwestie’ zet voorgenomen overnamedeal OCI verder onder druk](https://fd.nl/bedrijfsleven/1609376/principekwestie-zet-voorgenomen-overnamedeal-oci-verder-onder-druk)
-  > Een conflict tussen chemiebedrijf OCI en een aantal minderheidsaandeelhouders over de voorgenomen overname door het Egyptische bouwbedrijf Orascom...
-- [Hebben beleggers Lotus Bakeries te lang in de oven?](https://fd.nl/financiele-markten/1609476/hebben-beleggers-lotus-bakeries-te-lang-in-de-oven)
-  > Analisten zien dat er voor de Belgische koekjesmaker wereldwijd nog groei in het vat zit. Maar is de hoge waardering op de beurs, die eigenlijk...
+  > De ‘beursman in hart en nieren’ wist met tv-optredens littekens uit het verleden weg te werken. Dinsdag overleed hij op 82-jarige leeftijd, zo laat...
 
 ### Meest gelezen
 
