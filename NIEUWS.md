@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-08-2026 om 05:34*
+*Laatst bijgewerkt: 20-08-2026 om 06:51*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Maarten van der Weijden hervat zwemtocht na rustdag vanwege gezondheidsklachten](https://nos.nl/l/2627563)
+  > Maarten van der Weijden heeft zijn 22-stedenzwemtocht weer hervat. De zwemmer staakte zijn tocht gisteren vanwege misselijkheid en buikklachten. Na...
 - [Veiligheid op straat, jaar na Lisa: 'Mannen en vrouwen leven in andere wereld'](https://nos.nl/l/2627558)
   > Vandaag een jaar geleden werd de 17-jarige Lisa uit Abcoude gedood toen ze 's nachts na het uitgaan in Amsterdam terug naar huis fietste. Haar dood...
 - [Wekdienst 20/8: Actie schoonmakers bij NS • Hockeyers spelen tegen Japan](https://nos.nl/l/2627557)
   > Goedemorgen! Honderden schoonmakers staken bij het hoofdkantoor van de NS voor een betere cao en op het WK hockey spelen de Nederlandse mannen tegen...
-- [Russische aanval op Kyiv, meerdere doden en gewonden](https://nos.nl/l/2627552)
-  > Rusland heeft de Oekraïense hoofdstad Kyiv bestookt met ballistische raketten. Hierbij zijn volgens de Oekraïense autoriteiten vijf mensen gedood en...
+- [Oekraïne meldt twaalf doden bij aanval op Kyiv, ook kinderziekenhuis geraakt](https://nos.nl/l/2627552)
+  > Bij Russische luchtaanvallen op de Oekraïense hoofdstad Kyiv zijn de afgelopen nacht zeker twaalf mensen gedood en tientallen gewond geraakt. Dat...
 - [Zeven toeristen omgekomen bij helikoptercrash in Kenia](https://nos.nl/l/2627551)
   > In Kenia is een helikopter met toeristen neergestort. Alle zeven inzittenden zijn hierbij om het leven gekomen, melden Keniaanse autoriteiten. Onder...
-- [FVD vervangt zwangere De Vos door JFVD'er Al Biyati](https://nos.nl/l/2627550)
-  > De oud-voorzitter van de jongerenorganisatie van Forum voor Democratie, Iem al Biyati, zal in de Tweede Kamer fractievoorzitter Lidewij de Vos...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Jongetje (6) deelt ‘boetes’ uit in Belgisch dorp en krijgt bezoekje van de échte politie](https://www.ad.nl/buitenland/jongetje-6-deelt-boetes-uit-in-belgisch-dorp-en-krijgt-bezoekje-van-de-echte-politie~a65dd653/)
-  > Automobilisten in het Belgische Mol keken raar op toen ze de afgelopen dagen een 'politieboete' onder hun ruitenwisser vonden. De dader? De 6-jarige...
-- [Met Lutsharel Geertruida haalt PSV leiderschap, snelheid en defensieve kracht binnen](https://www.ad.nl/voetbal/met-lutsharel-geertruida-haalt-psv-leiderschap-snelheid-en-defensieve-kracht-binnen~aafa34b2/)
-  > PSV houdt nog een slag om de arm, maar het heeft er alle schijn van dat Lutsharel Geertruida snel bij PSV tekent. Wat voegt hij dan toe aan PSV en...
-- [Van der Weijden vervolgt zwemtocht langs 22 steden na dagje rust door ziekte](https://www.ad.nl/binnenland/van-der-weijden-vervolgt-zwemtocht-langs-22-steden-na-dagje-rust-door-ziekte~ae9c28d0/)
-  > Zwemmer Maarten van der Weijden is donderdagochtend weer het water ingegaan voor zijn 22-stedentocht. Woensdag moest hij die onderbreken door...
-- [Zo laat rijdt Max Verstappen dit weekeinde de allerlaatste Dutch GP](https://www.ad.nl/formule-1/zo-laat-rijdt-max-verstappen-dit-weekeinde-de-allerlaatste-dutch-gp~ac6e82c8/)
-  > Het Formule 1-seizoen wordt na een korte zomerstop hervat met een bijzondere race: de allerlaatste Dutch GP op het circuit van Zandvoort. En deze...
-- [Deze ‘zeepok’ met een zuigkracht van 454 kilogram is de vrees van foutparkeerders in de VS](https://www.ad.nl/auto/deze-zeepok-met-een-zuigkracht-van-454-kilogram-is-de-vrees-van-foutparkeerders-in-de-vs~aacf30e5/)
-  > Verschillende steden in de VS maken gebruik van een plaat met zuignappen als wapen tegen foutparkeerders. Deze ‘Barnacle’ oftewel ‘zeepok’ vervangt...
+- [TransferTalk | Engelse club aast op Feyenoor­der Ahmedhod­zic, Liverpool-middenvelder voor 35 miljoen naar Italië](https://www.ad.nl/voetbal/transfertalk-engelse-club-aast-op-feyenoorder-ahmedhodzic-liverpool-middenvelder-voor-35-miljoen-naar-italie~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Zelfs Inter en ManCity lukte het niet: NEC heeft wonder nodig boven de poolcirkel, waar Bodø vrijwel ongenaakbaar is](https://www.ad.nl/voetbal/zelfs-inter-en-mancity-lukte-het-niet-nec-heeft-wonder-nodig-boven-de-poolcirkel-waar-bodo-vrijwel-ongenaakbaar-is~aadaf9cb/)
+  > NEC moet volgende week op bezoek bij Bodø/Glimt een 1-3 achterstand wegpoetsen om alsnog de Champions League te bereiken. Dat lijkt gezien de kracht...
+- [Bewoners durven woning bijna niet uit om hond Max: ‘Hij is de nachtmerrie van de flat’](https://www.ad.nl/binnenland/bewoners-durven-woning-bijna-niet-uit-om-hond-max-hij-is-de-nachtmerrie-van-de-flat~a9b4acde/)
+  > Bijna twee jaar nadat bewoners van de Siriusflat in Dordrecht alarm sloegen over hond Max, overheerst nog steeds de angst. Mensen lopen om,...
+- [Acht doden in Kyiv na aanvallen met ballistische raketten, Russische drone stort neer in Roemenië](https://www.ad.nl/buitenland/acht-doden-in-kyiv-na-aanvallen-met-ballistische-raketten-russische-drone-stort-neer-in-roemenie~adfb97be/)
+  > De Oekraïense hoofdstad Kyiv is in de nacht van woensdag op donderdag bestookt met Russische ballistische raketten, zo liet burgemeester Vitali...
+- [Harry en Meghan gaan terug naar het land waar niemand op ze zit te wachten: ‘Het geld lijkt op te raken’](https://www.ad.nl/buitenland/harry-en-meghan-gaan-terug-naar-het-land-waar-niemand-op-ze-zit-te-wachten-het-geld-lijkt-op-te-raken~a7ee290b/)
+  > Prins Harry en Meghan moeten bergen verzetten na hun terugkeer naar het Verenigd Koninkrijk eind deze maand om wantrouwen en cynisme weg te nemen....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [AFM legt boete op aan Vodafone Financial Services](https://fd.nl/bedrijfsleven/1609206/afm-legt-boete-op-aan-vodafone-financial-services)
+  > De financiële dienstverleningstak van Vodafone Group verleende door een fout in het bestelproces krediet aan klanten waar dat niet verantwoord was.
+- [WSP houdt vast aan overname, legt afwijzing bod Arcadis naast zich neer](https://fd.nl/bedrijfsleven/1609302/wsp-houdt-vast-aan-overname-legt-afwijzing-bod-arcadis-naast-zich-neer)
+  > WSP laat in het midden of er nog een verhoogd, derde bod volgt op twee eerder door Arcadis afgewezen biedingen.
+- [Werkloosheid stijgt licht, meer mensen willen werken](https://fd.nl/economie/1609301/werkloosheid-stijgt-licht-meer-mensen-willen-werken)
+  > 141.000 mensen vonden in juli werk, terwijl 125.000 mensen hun baan verloren. Daarnaast gingen meer mensen werk zoeken.
 - [Aegon boekt hogere winst dan verwacht en breidt aandeleninkoop uit](https://fd.nl/financiele-markten/1609076/aegon-boekt-hogere-winst-dan-verwacht-en-breidt-aandeleninkoop-uit)
   > Het hogere resultaat kwam door verkoop van meer levensverzekeringen in de Verenigde Staten en gunstige financiële markten.
-- [Live: Aziatische beurzen in de plus na ingreep Bessent](https://fd.nl/financiele-markten/1609178/live-aziatische-beurzen-in-de-plus-na-ingreep-bessent)
-  > De aandelenbeurzen lijken wat lucht te hebben gekregen door de poging van de Amerikaanse minister van financiën om de rente te drukken. Maar...
-- [‘Zelfstandig zal mijn zoon nooit zijn’](https://fd.nl/samenleving/1608576/zelfstandig-zal-mijn-zoon-nooit-zijn)
-  > Ondernemer Robert Verwaayen heeft thuis de zorg voor zijn zwaar autistische 18-jarige zoon. ‘We slapen vrijwel elke nacht met een grote jongen in...
-- [Garri Kasparov: ‘Het is goed mogelijk dat Poetin dit jaar de Navo gaat testen met grondtroepen’](https://fd.nl/politiek/1607899/garri-kasparov-het-is-goed-mogelijk-dat-poetin-dit-jaar-de-navo-gaat-testen-met-grondtroepen)
-  > Oud-topschaker Garri Kasparov geldt als een van de belangrijkste tegenstanders van Vladimir Poetin. Het FD sprak hem over Rusland, de oorlog in...
-- [Wat is je huis nog waard met extreem weer?](https://fd.nl/economie/1608981/wat-is-je-huis-nog-waard-met-extreem-weer)
-  > Vandaag in Dagkoers: kolencentrales moeten in 2030 sluiten, maar deskundigen zien dat toch niet als het beste plan, de vastgoedmarkt krijgt steeds...
+- [Live: Europese beurzen gaan vlak openen, Aegon en Arcadis blikvangers](https://fd.nl/financiele-markten/1609178/live-aziatische-beurzen-in-de-plus-na-ingreep-bessent)
+  > De aandelenbeurzen lijken wat lucht te hebben gekregen door de poging van het Amerikaanse ministerie van financiën om de rente te drukken. Maar...
 
 ### Meest gelezen
 
