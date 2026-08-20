@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-08-2026 om 12:55*
+*Laatst bijgewerkt: 20-08-2026 om 13:49*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Podcast De Dag: Zes jaar racen in Zandvoort: winst en verlies](https://nos.nl/l/2627602)
+  > Zes jaar lang verzamelde de Formule 1-wereld zich elke zomer in de Nederlandse duinen. Maar komend weekend is de Grand Prix van Zandvoort voor het...
 - [Reddingsmissie NASA-telescoop mislukt, satelliet dreigt te verbranden in atmosfeer](https://nos.nl/l/2627596)
   > Op papier lijkt het simpel. Om een belangrijke telescoop te redden van de ondergang, lanceer je een andere satelliet. Met grote armen grijp je dan de...
 - [Australisch OM wil dat verdachte van paddenstoelmoorden nooit meer vrijkomt](https://nos.nl/l/2627595)
@@ -16,8 +18,6 @@
   > Het KNMI heeft voor alle kustprovincies code geel afgegeven vanwege onweersbuien die overtrekken. Die kunnen gepaard gaan met veel neerslag in korte...
 - [Nederlandse slachtoffers verkeersongeluk VS waren daar voor trekkertrek-event](https://nos.nl/l/2627590)
   > De groep Nederlanders die dinsdag betrokken waren bij een zwaar verkeersongeluk in de Amerikaanse staat Ohio, was daar voor een trekkertrek-event....
-- [Oprichter van Chinese vastgoedreus Evergrande moet levenslang de cel in](https://nos.nl/l/2627589)
-  > De oprichter van de inmiddels failliete vastgoedgigant Evergrande is in China veroordeeld tot een levenslange gevangenisstraf. Ook worden alle...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Mijlpaal in vrouwenvoetbal: zes Nederlandse clubs tekenen eerste gezamenlijke cao](https://www.ad.nl/voetbal/mijlpaal-in-vrouwenvoetbal-zes-nederlandse-clubs-tekenen-eerste-gezamenlijke-cao~ad36d1d5/)
-  > Zes clubs hebben de eerste gezamenlijke cao in het vrouwenvoetbal gesloten. Kampioen PSV, Ajax, AZ, Feyenoord, FC Twente en het gedegradeerde HERA...
-- [Waterhozen met zware windstoten en onweersbuien op komst: KNMI geeft code geel af](https://www.ad.nl/binnenland/waterhozen-met-zware-windstoten-en-onweersbuien-op-komst-knmi-geeft-code-geel-af~a406e9a9/)
-  > Het KNMI heeft vanwege waterhozen code geel afgekondigd voor de provincies Zeeland, Zuid-Holland, Noord-Holland, Friesland en Groningen. Boven grote...
-- [Danny loopt tv-coryfee (84) tegen het lijf en wat vertelt het gezicht van Shary-An?](https://www.ad.nl/show/danny-loopt-tv-coryfee-84-tegen-het-lijf-en-wat-vertelt-het-gezicht-van-shary-an~af15a7f4/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Het was óf door met Red Bull óf stoppen voor Max Verstappen: ‘Was dichter bij pensioen, dan bij een switch’](https://www.ad.nl/formule-1/het-was-of-door-met-red-bull-of-stoppen-voor-max-verstappen-was-dichter-bij-pensioen-dan-bij-een-switch~adb046e7/)
-  > In Zandvoort legde Max Verstappen vanmiddag uit waarom hij zeker tot 2030 in de Formule 1 blijft, in de vertrouwde kleuren van Red Bull Racing. „Dit...
-- [Teambaas in de wolken met ‘fenomenaal nieuws’ Max Verstappen: ‘Hij is meer dan snelste coureur ter wereld’](https://www.ad.nl/formule-1/teambaas-in-de-wolken-met-fenomenaal-nieuws-max-verstappen-hij-is-meer-dan-snelste-coureur-ter-wereld~a5981a92/)
-  > Teambaas Laurent Mekies is in de wolken met de contractverlenging van Max Verstappen, die nu tot 2030 vastligt bij Red Bull Racing. De Fransman voelt...
+- [Oranje-international wil vader als voetbalmakelaar achterna: ‘Ik denk dat ik tegen deze wereld bestand ben’](https://www.ad.nl/andere-sporten/oranje-international-wil-vader-als-voetbalmakelaar-achterna-ik-denk-dat-ik-tegen-deze-wereld-bestand-ben~a9a32823/)
+  > Met een vader als bekende voetbalmakelaar weet Felice Albers wat het vak inhoudt. De Oranje-international en één van de beste hockeysters ter wereld...
+- [Enige stroomkabel van grootste kerncentrale van Europa opnieuw kapot, drone opgedoken in Roemenië](https://www.ad.nl/buitenland/enige-stroomkabel-van-grootste-kerncentrale-van-europa-opnieuw-kapot-drone-opgedoken-in-roemenie~adfb97be/)
+  > De enige externe stroomkabel naar de bezette kerncentrale Zaporizja in Oekraïne is opnieuw kapot, meldt het Internationaal Atoomenergieagentschap...
+- [Liverpool-middenvelder voor 35 miljoen naar Italië, FC Twente neemt afscheid van linksbuiten](https://www.ad.nl/voetbal/liverpool-middenvelder-voor-35-miljoen-naar-italie-fc-twente-neemt-afscheid-van-linksbuiten~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Franco Colapinto blij dat Max Verstappen in F1 blijft, Carlos Sainz tekent langer contract bij Williams](https://www.ad.nl/formule-1/franco-colapinto-blij-dat-max-verstappen-in-f1-blijft-carlos-sainz-tekent-langer-contract-bij-williams~a55ac4cd/)
+  > Komend weekend is de laatste Grand Prix van Nederland. Wat kan Max Verstappen in zijn thuisrace? Volg al het nieuws rond de Formule 1-race in...
+- [‘De kiezer is enorm bewegelijk, dus er is ruimte op rechts voor Mona Keijzers avonturen’](https://www.ad.nl/binnenland/de-kiezer-is-enorm-bewegelijk-dus-er-is-ruimte-op-rechts-voor-mona-keijzers-avonturen~aea1386f/)
+  > In de podcast Praat mee met AD bespreken we elke dag een stelling. Vandaag: Er is ruimte voor een nieuwe partij op rechts.
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Bierbrouwer Swinkels stapt in de wereld van alcoholvrije wijn](https://fd.nl/bedrijfsleven/1609379/bierbrouwer-swinkels-stapt-in-de-wereld-van-alcoholvrije-wijn)
-  > Brabants familiebedrijf gebruikt zijn kennis van alcoholvrij bier voor de productie van eigen 0.0-wijnen in blik.
-- [Oeps, een dickpic in de app](https://fd.nl/opinie/1608776/oeps-een-dickpic-in-de-app)
-  > Niemand mag meer per ongeluk een fout maken, want dat is bedreigend voor de veiligheid. Maar relativering helpt óók om de wereld veiliger te maken,...
-- [‘Als Tata dit had doorontwikkeld, had het nu niet al die ellende met omwonenden gehad’](https://fd.nl/tech-en-innovatie/1604336/als-tata-dit-had-doorontwikkeld-had-het-nu-niet-al-die-ellende-met-omwonenden-gehad)
-  > Recyclingstart-up DOPS ontwikkelt een methode om restafval om te zetten in waardevolle grondstoffen. De reactor, gebaseerd op een cokesoven, is een...
-- [Grote delen van de wereld krijgen nieuw klimaattype](https://fd.nl/samenleving/1608780/grote-delen-van-de-wereld-krijgen-nieuw-klimaattype)
-  > Heeft Polen over 75 jaar hetzelfde klimaat als Miami? Grote kans. De kleurige klimaatkaart in menig schoolatlas ziet er door klimaatverandering in de...
-- [ING: ‘Adviespraktijk van accountants groeit nog nauwelijks’](https://fd.nl/financiele-markten/1609378/ing-adviespraktijk-van-accountants-groeit-nog-nauwelijks)
-  > Eind juni voorspelde Rabobank nog dat advieswerk juist de kern van accountancy wordt door de opkomst van kunstmatige intelligentie.
+- [Bitcoin boven $72.000 na cryptobijeenkomst Trump](https://fd.nl/financiele-markten/1609383/bitcoin-boven-72-000-na-cryptobijeenkomst-trump)
+  > Na maanden van ingezakte handel steeg de cryptomarkt donderdag fors. De bitcoin won ruim 10% tot boven de $72.000, de hoogste koers sinds eind mei.
+- [Schuldenland VS zet zichzelf steeds verder klem](https://fd.nl/financiele-markten/1609377/schuldenland-vs-zet-zichzelf-steeds-verder-klem)
+  > Minister van financiën Scott Bessent maximeert de langlopende rentes. Daarmee vergroot hij zowel de spanning met de Federal Reserve als de druk op de...
+- [Het uurtje-factuurtje wankelt: AI dwingt advocaten tot een nieuw verdienmodel](https://fd.nl/financiele-markten/1609304/het-uurtje-factuurtje-wankelt-ai-dwingt-advocaten-tot-een-nieuw-verdienmodel)
+  > Bedrijven stellen niet alleen meer vragen bij de rekening van de grote kantoren, ze gebruiken ook steeds vaker kunstmatige intelligentie om...
+- [Meer stoppers dan starters](https://fd.nl/samenleving/1608018/meer-stoppers-dan-starters)
+  > Wetenswaardigheden op het gebied van loopbaan en personal finance.
+- [China is niet collectivistisch genoeg – vindt Peking](https://fd.nl/opinie/1607554/china-is-niet-collectivistisch-genoeg-vindt-peking)
+  > Veel Nederlanders zien China als een collectivistisch land, waar het individu zich schikt naar het grotere geheel. Dat is zeker niet het hele...
 
 ### Meest gelezen
 
