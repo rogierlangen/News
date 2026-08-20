@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-08-2026 om 04:40*
+*Laatst bijgewerkt: 20-08-2026 om 05:34*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Veiligheid op straat, jaar na Lisa: 'Mannen en vrouwen leven in andere wereld'](https://nos.nl/l/2627558)
+  > Vandaag een jaar geleden werd de 17-jarige Lisa uit Abcoude gedood toen ze 's nachts na het uitgaan in Amsterdam terug naar huis fietste. Haar dood...
+- [Wekdienst 20/8: Actie schoonmakers bij NS • Hockeyers spelen tegen Japan](https://nos.nl/l/2627557)
+  > Goedemorgen! Honderden schoonmakers staken bij het hoofdkantoor van de NS voor een betere cao en op het WK hockey spelen de Nederlandse mannen tegen...
 - [Russische aanval op Kyiv, meerdere doden en gewonden](https://nos.nl/l/2627552)
   > Rusland heeft de Oekraïense hoofdstad Kyiv bestookt met ballistische raketten. Hierbij zijn volgens de Oekraïense autoriteiten vijf mensen gedood en...
 - [Zeven toeristen omgekomen bij helikoptercrash in Kenia](https://nos.nl/l/2627551)
   > In Kenia is een helikopter met toeristen neergestort. Alle zeven inzittenden zijn hierbij om het leven gekomen, melden Keniaanse autoriteiten. Onder...
 - [FVD vervangt zwangere De Vos door JFVD'er Al Biyati](https://nos.nl/l/2627550)
   > De oud-voorzitter van de jongerenorganisatie van Forum voor Democratie, Iem al Biyati, zal in de Tweede Kamer fractievoorzitter Lidewij de Vos...
-- ['Prins Harry en Meghan verhuizen deze maand terug naar Verenigd Koninkrijk'](https://nos.nl/l/2627549)
-  > Bij het sjouwen van meubels en het verven van kamers hoeft de Britse prins Harry binnenkort waarschijnlijk niet al te veel op zijn familie te...
-- [Steeds meer startersleningen afgesloten](https://nos.nl/l/2627548)
-  > In de eerste helft van dit jaar zijn meer startersleningen afgesloten dan in dezelfde periode vorig jaar. Dat meldt het Kadaster.
-        Ruim 8...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Droomreis naar tractorevent VS eindigt in tragedie, drie Nederlanders verongelukt: ‘Altijd vriendelijk en kundig’](https://www.ad.nl/buitenland/droomreis-naar-tractorevent-vs-eindigt-in-tragedie-drie-nederlanders-verongelukt-altijd-vriendelijk-en-kundig~ae1f20a42/)
-  > Een droomreis naar hun favoriete tractorevenement in de VS is voor een groep Nederlandse liefhebbers in een tragedie geëindigd. Bij een...
-- [Flinke buien en mogelijk onweer op komst, maar in het weekend laat de zon zich weer zien](https://www.ad.nl/binnenland/flinke-buien-en-mogelijk-onweer-op-komst-maar-in-het-weekend-laat-de-zon-zich-weer-zien~a4a98c87/)
-  > We krijgen de komende dagen weer te maken met flink wisselvallend weer. Vooral donderdag en vrijdag wordt het wat onstuimig, maar gelukkig kunnen we...
-- [USS Lincoln keert terug na logistieke puinhoop in Golf van Oman, maar laat daardoor gat achter in Azië](https://www.ad.nl/buitenland/uss-lincoln-keert-terug-na-logistieke-puinhoop-in-golf-van-oman-maar-laat-daardoor-gat-achter-in-azie~abbee564d/)
-  > Het vliegdekschip USS Lincoln gaat terug naar de Verenigde Staten, vanwege een gebrek aan eten voor de bemanning. Door de oorlog in Iran kan het...
-- [Waarom kun je rechtdoor op deze bijzondere rotonde in Hazerswoude? ‘Dit blijft een raar verhaal’](https://www.ad.nl/auto/waarom-kun-je-rechtdoor-op-deze-bijzondere-rotonde-in-hazerswoude-dit-blijft-een-raar-verhaal~afdccf9e3/)
-  > Al tientallen jaren heeft maar één rotonde in Hazerswoude-Rijndijk ook een rijbaan middenin het verkeersplein, zodat je ook rechtdoor zou kunnen...
-- [Brad Pitt werkt aan documentaire over Zwitserse architect](https://www.ad.nl/buitenland/brad-pitt-werkt-aan-documentaire-over-zwitserse-architect~a90f3983/)
-  > Acteur Brad Pitt heeft zich als uitvoerend producent aangesloten bij de nieuwe documentaire over de Zwitserse architect Peter Zumthor. Dat meldt The...
+- [Jongetje (6) deelt ‘boetes’ uit in Belgisch dorp en krijgt bezoekje van de échte politie](https://www.ad.nl/buitenland/jongetje-6-deelt-boetes-uit-in-belgisch-dorp-en-krijgt-bezoekje-van-de-echte-politie~a65dd653/)
+  > Automobilisten in het Belgische Mol keken raar op toen ze de afgelopen dagen een 'politieboete' onder hun ruitenwisser vonden. De dader? De 6-jarige...
+- [Met Lutsharel Geertruida haalt PSV leiderschap, snelheid en defensieve kracht binnen](https://www.ad.nl/voetbal/met-lutsharel-geertruida-haalt-psv-leiderschap-snelheid-en-defensieve-kracht-binnen~aafa34b2/)
+  > PSV houdt nog een slag om de arm, maar het heeft er alle schijn van dat Lutsharel Geertruida snel bij PSV tekent. Wat voegt hij dan toe aan PSV en...
+- [Van der Weijden vervolgt zwemtocht langs 22 steden na dagje rust door ziekte](https://www.ad.nl/binnenland/van-der-weijden-vervolgt-zwemtocht-langs-22-steden-na-dagje-rust-door-ziekte~ae9c28d0/)
+  > Zwemmer Maarten van der Weijden is donderdagochtend weer het water ingegaan voor zijn 22-stedentocht. Woensdag moest hij die onderbreken door...
+- [Zo laat rijdt Max Verstappen dit weekeinde de allerlaatste Dutch GP](https://www.ad.nl/formule-1/zo-laat-rijdt-max-verstappen-dit-weekeinde-de-allerlaatste-dutch-gp~ac6e82c8/)
+  > Het Formule 1-seizoen wordt na een korte zomerstop hervat met een bijzondere race: de allerlaatste Dutch GP op het circuit van Zandvoort. En deze...
+- [Deze ‘zeepok’ met een zuigkracht van 454 kilogram is de vrees van foutparkeerders in de VS](https://www.ad.nl/auto/deze-zeepok-met-een-zuigkracht-van-454-kilogram-is-de-vrees-van-foutparkeerders-in-de-vs~aacf30e5/)
+  > Verschillende steden in de VS maken gebruik van een plaat met zuignappen als wapen tegen foutparkeerders. Deze ‘Barnacle’ oftewel ‘zeepok’ vervangt...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Aegon boekt hogere winst dan verwacht en breidt aandeleninkoop uit](https://fd.nl/financiele-markten/1609076/aegon-boekt-hogere-winst-dan-verwacht-en-breidt-aandeleninkoop-uit)
+  > Het hogere resultaat kwam door verkoop van meer levensverzekeringen in de Verenigde Staten en gunstige financiële markten.
+- [Live: Aziatische beurzen in de plus na ingreep Bessent](https://fd.nl/financiele-markten/1609178/live-aziatische-beurzen-in-de-plus-na-ingreep-bessent)
+  > De aandelenbeurzen lijken wat lucht te hebben gekregen door de poging van de Amerikaanse minister van financiën om de rente te drukken. Maar...
 - [‘Zelfstandig zal mijn zoon nooit zijn’](https://fd.nl/samenleving/1608576/zelfstandig-zal-mijn-zoon-nooit-zijn)
   > Ondernemer Robert Verwaayen heeft thuis de zorg voor zijn zwaar autistische 18-jarige zoon. ‘We slapen vrijwel elke nacht met een grote jongen in...
 - [Garri Kasparov: ‘Het is goed mogelijk dat Poetin dit jaar de Navo gaat testen met grondtroepen’](https://fd.nl/politiek/1607899/garri-kasparov-het-is-goed-mogelijk-dat-poetin-dit-jaar-de-navo-gaat-testen-met-grondtroepen)
   > Oud-topschaker Garri Kasparov geldt als een van de belangrijkste tegenstanders van Vladimir Poetin. Het FD sprak hem over Rusland, de oorlog in...
 - [Wat is je huis nog waard met extreem weer?](https://fd.nl/economie/1608981/wat-is-je-huis-nog-waard-met-extreem-weer)
   > Vandaag in Dagkoers: kolencentrales moeten in 2030 sluiten, maar deskundigen zien dat toch niet als het beste plan, de vastgoedmarkt krijgt steeds...
-- [Rabo: goedkope Chinese chemie maakt Nederlandse economie kwetsbaarder](https://fd.nl/economie/1608877/rabo-goedkope-chinese-chemie-maakt-nederlandse-economie-kwetsbaarder)
-  > De Nederlandse chemiesector staat onder grote druk van goedkope Chinese importen. Voordelen zijn er ook, maar uiteindelijk wordt de economie...
-- [Sluiten kolencentrales is ‘onverstandig’ en ‘levert klimaat niets op’](https://fd.nl/bedrijfsleven/1608781/sluiten-kolencentrales-is-onverstandig-en-levert-klimaat-niets-op)
-  > Energie-experts waarschuwen voor de risico’s die gepaard gaan met het sluiten van de Nederlandse kolencentrales. Onder meer omdat gas duur en onzeker...
 
 ### Meest gelezen
 
