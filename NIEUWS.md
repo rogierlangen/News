@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-08-2026 om 07:43*
+*Laatst bijgewerkt: 20-08-2026 om 08:42*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Extra druk op huisartsenpost tijdens juni-hittegolf met code rood](https://nos.nl/l/2627572)
+  > Tijdens de hittegolf van juni klopten meer mensen aan bij de huisartsenposten. Dat valt op te maken uit cijfers van onderzoeksinstituut Nivel. Het...
+- [Toezichthouder vraagt TikTok om uitleg na dodelijke crash Ierse tieners](https://nos.nl/l/2627570)
+  > De Ierse mediawaakhond vraagt TikTok om uitleg over video's met gevaarlijk rijgedrag na een dodelijke crash dit weekend. Ook komt er nog dit jaar...
 - [Canadese concurrent zet overnamebod op Nederlandse Arcadis door](https://nos.nl/l/2627567)
   > De jacht op het Nederlandse ingenieursbureau Arcadis gaat een nieuwe fase in. Het Canadese WSP Global gaat tegen de zin van Arcadis een officieel bod...
 - [Verlamde 84-jarige vrouw levend gevonden onder puin in Indonesië: 'Een wonder'](https://nos.nl/l/2627566)
   > Een 84-jarige verlamde vrouw is in Indonesië levend onder het puin vandaan gehaald. Een politiechef noemt het "onwerkelijk" en "bijna een wonder" dat...
 - [Maarten van der Weijden hervat zwemtocht na rustdag vanwege gezondheidsklachten](https://nos.nl/l/2627563)
   > Maarten van der Weijden heeft zijn 22-stedenzwemtocht weer hervat. De zwemmer staakte zijn tocht gisteren vanwege misselijkheid en buikklachten. Na...
-- [Veiligheid op straat, jaar na Lisa: 'Mannen en vrouwen leven in andere wereld'](https://nos.nl/l/2627558)
-  > Vandaag een jaar geleden werd de 17-jarige Lisa uit Abcoude gedood toen ze 's nachts na het uitgaan in Amsterdam terug naar huis fietste. Haar dood...
-- [Wekdienst 20/8: Actie schoonmakers bij NS • Hockeyers spelen tegen Japan](https://nos.nl/l/2627557)
-  > Goedemorgen! Honderden schoonmakers staken bij het hoofdkantoor van de NS voor een betere cao en op het WK hockey spelen de Nederlandse mannen tegen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ebola-epidemie in Congo dreigt de dodelijkste ooit te worden en nepnieuws maakt het nog erger](https://www.ad.nl/buitenland/ebola-epidemie-in-congo-dreigt-de-dodelijkste-ooit-te-worden-en-nepnieuws-maakt-het-nog-erger~adae459b/)
-  > De huidige ebola-epidemie dreigt de ergste ooit te worden. Al meer dan 2300 mensen in de Democratische Republiek Congo zijn aan het virus overleden....
-- [Teambaas jubelt na verlenging Max Verstappen: ‘Fantastisch nieuws voor Red Bull en de hele F1-wereld’](https://www.ad.nl/formule-1/teambaas-jubelt-na-verlenging-max-verstappen-fantastisch-nieuws-voor-red-bull-en-de-hele-f1-wereld~a5981a92/)
-  > Laurent Mekies is blij met de contractverlenging van Max Verstappen, die nu tot 2030 vastligt bij Red Bull Racing. De Fransman hoopt op nieuwe...
-- [LIVE Oorlog Oekraïne | Twaalf doden in Kyiv na aanvallen op woongebouwen, kinderziekenhuis en school](https://www.ad.nl/buitenland/live-oorlog-oekraine-twaalf-doden-in-kyiv-na-aanvallen-op-woongebouwen-kinderziekenhuis-en-school~adfb97be/)
-  > De Oekraïense hoofdstad Kyiv is in de nacht van woensdag op donderdag bestookt met Russische ballistische raketten, zo liet burgemeester Vitali...
-- [Ongeloof om overlijden ‘fantastische’ Ruben (55) bij grote crash in VS: ‘We gaan je heerlijke accent missen’](https://www.ad.nl/duiven/ongeloof-om-overlijden-fantastische-ruben-55-bij-grote-crash-in-vs-we-gaan-je-heerlijke-accent-missen~ab03d81e/)
-  > In Nederland wordt vol verdriet en verslagenheid gereageerd op het overlijden van drie Nederlanders bij een ernstig verkeersongeluk in Amerika. Een...
-- [Max Verstappen verlengt contract bij Red Bull tot 2030: ‘Het team voelt voor mij als een tweede familie’](https://www.ad.nl/formule-1/max-verstappen-verlengt-contract-bij-red-bull-tot-2030-het-team-voelt-voor-mij-als-een-tweede-familie~a80c6b47/)
-  > Groot nieuws bij Red Bull Racing: Max Verstappen heeft zijn contract verlengd. De viervoudig Formule 1-kampioen heeft getekend tot het einde van...
+- [‘Als je mijn vrouw ziet staan... Zo sterk’: Mats Seuntjens over hartverwarmend eerbetoon na verlies kindje](https://www.ad.nl/voetbal/als-je-mijn-vrouw-ziet-staan-zo-sterk-mats-seuntjens-over-hartverwarmend-eerbetoon-na-verlies-kindje~a160fc9b/)
+  > Mats Seuntjens heeft op de clubkanalen van NAC voor het eerst verteld over het verlies van zijn pasgeboren dochtertje Celine en het emotionele...
+- [Nova (13) wilde één euro van iedere Twentenaar, nu komt haar plan écht van de grond](https://www.ad.nl/enschede/nova-13-wilde-een-euro-van-iedere-twentenaar-nu-komt-haar-plan-echt-van-de-grond~a6cb97b2a/)
+  > Het was aandoenlijke kinderlogica: als elke Twentenaar nou één euro geeft voor haar zieke broer, heeft Nova (13) toch zo 700.000 euro bij elkaar? Na...
+- [Voorkom slecht wifi-bereik op zolder: dit zijn de beste wifi-versterkers](https://www.ad.nl/tech/voorkom-slecht-wifi-bereik-op-zolder-dit-zijn-de-beste-wifi-versterkers~a320c03b/)
+  > Een wifi-versterker kopen lijkt simpel, tot je ziet hoeveel soorten er zijn. Mesh of geen mesh, kabelpoorten, bereik, app en stroomverbruik: het telt...
+- [Ajax laat Ko Itakura met flink verlies na een jaar terugkeren naar Gladbach](https://www.ad.nl/voetbal/ajax-laat-ko-itakura-met-flink-verlies-na-een-jaar-terugkeren-naar-gladbach~a934b171/)
+  > Ajax verkoopt Ko Itakura met dik verlies. Een jaar nadat de 29-jarige Japanner voor minimaal 10 miljoen werd overgenomen van Borussia...
+- [Taalcursussen van de Teleac plots weer massaal bekeken: ‘Zelfs zwart-witbeelden uit jaren 60 populair’](https://www.ad.nl/show/taalcursussen-van-de-teleac-plots-weer-massaal-bekeken-zelfs-zwart-witbeelden-uit-jaren-60-populair~a7087d65/)
+  > Een exotische taal leren via Duolingo? Niks ervan! Deze zomer worden oude taalcursussen, die veertig jaar geleden een hit waren op televisie, weer...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Onrust in Midden-Oosten en afwachtende klanten drukken resultaat Boskalis](https://fd.nl/bedrijfsleven/1609212/onrust-in-midden-oosten-en-afwachtende-klanten-drukken-resultaat-boskalis)
+  > In de eerste helft van 2026 behaalde het bedrijf een omzet van €1,9 mrd, een terugloop van zo’n 20%.
+- [Recyclingdoelen behalen is nog geen circulariteit](https://fd.nl/opinie/1608680/recyclingdoelen-behalen-is-nog-geen-circulariteit)
+  > Hoewel Nederland het Europese recyclingdoel ruimschoots behaalt, gaat ons afval vaak maar een paar rondes mee. Circulair werken zou de norm moeten...
 - [Koninklijke Porceleyne Fles boekt flinke omzetgroei dankzij overname](https://fd.nl/bedrijfsleven/1609303/koninklijke-porceleyne-fles-boekt-flinke-omzetgroei-dankzij-overname)
   > De nettowinst kwam uit op een kleine half miljoen.
 - [CK Hutchison eist ruim $1,5 mrd van Panama voor verlies Panamese havens](https://fd.nl/bedrijfsleven/1609207/ck-hutchison-eist-ruim-1-5-mrd-van-panama-voor-verlies-panamese-havens)
   > Het geschil kan niet los worden gezien van de toenemende rivaliteit tussen de Verenigde Staten en China over handel en infrastructuur.
 - [AFM legt boete op aan Vodafone Financial Services](https://fd.nl/bedrijfsleven/1609206/afm-legt-boete-op-aan-vodafone-financial-services)
   > De financiële dienstverleningstak van Vodafone Group verleende door een fout in het bestelproces krediet aan klanten waar dat niet verantwoord was.
-- [WSP houdt vast aan overname, legt afwijzing bod Arcadis naast zich neer](https://fd.nl/bedrijfsleven/1609302/wsp-houdt-vast-aan-overname-legt-afwijzing-bod-arcadis-naast-zich-neer)
-  > WSP laat in het midden of er nog een verhoogd, derde bod volgt op twee eerder door Arcadis afgewezen biedingen.
-- [Werkloosheid stijgt licht, meer mensen willen werken](https://fd.nl/economie/1609301/werkloosheid-stijgt-licht-meer-mensen-willen-werken)
-  > 141.000 mensen vonden in juli werk, terwijl 125.000 mensen hun baan verloren. Daarnaast gingen meer mensen werk zoeken.
 
 ### Meest gelezen
 
