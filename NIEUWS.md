@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-08-2026 om 09:37*
+*Laatst bijgewerkt: 20-08-2026 om 10:34*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Medische drones tussen ziekenhuizen lijkt te werken, proef verlengd](https://nos.nl/l/2627583)
+- [Goudkoorts breekt uit Kenia, zelfs peuters speuren naar goud in illegale mijn](https://nos.nl/l/2627587)
+  > Een bij toeval ontdekte goudader in het westen van Kenia heeft meer dan 10.000 mensen, onder wie veel jonge kinderen, op de been gebracht. Het dorpje...
+- [Man aangehouden in coldcasezaak voor verkrachting in Apeldoorn in 1993](https://nos.nl/l/2627586)
+  > Een 53-jarige man uit de gemeente Apeldoorn is dinsdag opgepakt voor een verkrachting in 1993. De politie kwam hem na ruim dertig jaar op het spoor...
+- [Universiteit Gent pakt onderzoeker aan om uitspraken over zwarte hoogleraar](https://nos.nl/l/2627585)
+  > De Universiteit Gent zegt stappen te zullen ondernemen tegen een medewerker om zijn recente uitspraken over Jason Arday. Die Britse hoogleraar werd...
+- [Regen en vallende bladeren door droogte geven 'herfstvibes'](https://nos.nl/l/2627584)
+  > Wie deze dagen door een bos of park loopt, kan zomaar het gevoel krijgen dat de herfst is begonnen. Dat komt door de combinatie van regen, speciale...
+- [Proef met medische drones lijkt succes, bloedmonsters in 14 minuten afgeleverd](https://nos.nl/l/2627583)
   > Kan je medische zaken, zoals medicijnen, veilig door de lucht vervoeren met een drone? Een proef in Zwolle en Meppel loopt nu bijna een jaar en lijkt...
-- [Uitshirt Fortuna Sittard populair in Peru door band met heilige Sint Rosa](https://nos.nl/l/2627582)
-  > Het nieuwe uitshirt van voetbalclub Fortuna Sittard is tot grote verrassing van de club zelf ook aan de andere kant van de oceaan in trek. Het...
-- [Nieuwe prikronde tegen corona komt eraan, voor 70-plussers en kwetsbaren](https://nos.nl/l/2627576)
-  > Binnenkort vallen ze weer bij een groep Nederlanders op de mat: de uitnodigingen voor het ophalen van de coronaprik. Dit jaar gaan er wel beduidend...
-- [Festivals, poppodia en clubs doen doorverkoop tickets steeds vaker zelf](https://nos.nl/l/2627574)
-  > Vanavond trapt - naast Lowlands - het popfestival Pukkelpop af in het Belgische Hasselt. Het festival met ruim 65.000 bezoekers per dag is sinds...
-- [OM linkt nog eens drie sterfgevallen aan gebruik middelen Funcaps](https://nos.nl/l/2627573)
-  > Het Openbaar Ministerie denkt dat het bij nog drie personen kan bewijzen dat zij zijn overleden door middelen die via de website Funcaps zijn...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Jasper en Melvin boekten groot succes met eigen zeepmerk, maar zoeken nu een ceo: ‘We groeiden te hard’](https://www.ad.nl/binnenland/jasper-en-melvin-boekten-groot-succes-met-eigen-zeepmerk-maar-zoeken-nu-een-ceo-we-groeiden-te-hard~a5f25b75/)
-  > Zeepmerk Seepje zoekt een nieuwe ceo. Niet omdat oprichters Melvin Loggies en Jasper Gabriëlse ermee willen stoppen, maar omdat zij denken dat iemand...
-- [Een paar mooie dagen op het strand blijken een ‘tietenfestijn’ voor sommige mannen](https://www.ad.nl/binnenland/een-paar-mooie-dagen-op-het-strand-blijken-een-tietenfestijn-voor-sommige-mannen~adf70a48/)
-  > Elke nieuwssite en elke nieuwsrubriek heeft deze dagen exact dezelfde reportage rond een vraag die alleen door een man kan zijn bedacht, schrijft...
-- [‘Zachtaardige, gevoelige’ Brooklyn kan niet op tegen de macht van ‘Brand Beckham’](https://www.ad.nl/show/zachtaardige-gevoelige-brooklyn-kan-niet-op-tegen-de-macht-van-brand-beckham~ac8d6fcd/)
-  > De Britse journaliste Alison Boshoff ontvouwt in haar boek De Beckhams de intriges achter de breuk met oudste zoon Brooklyn. „David en Victoria...
-- [Praat mee: er is ruimte voor een nieuwe partij op rechts](https://www.ad.nl/praat-mee/praat-mee-er-is-ruimte-voor-een-nieuwe-partij-op-rechts~af3f888d/)
-  > Mona Keijzer overweegt een nieuwe rechtse partij op te richten. Na de zomer geeft ze daarover uitsluitsel. In De Kwestie leggen we onze lezers...
-- [Op deze datum begint het nieuwe seizoen van Boer zoekt Vrouw, met ‘meer afleveringen dan ooit’](https://www.ad.nl/show/op-deze-datum-begint-het-nieuwe-seizoen-van-boer-zoekt-vrouw-met-meer-afleveringen-dan-ooit~ae9f4cdba/)
-  > Het nieuwe seizoen van het NPO 1-programma Boer zoekt Vrouw begint op maandag 9 november. Dat maakt KRO-NCRV donderdag bekend. De show is dan drie...
+- [‘Buitengewoon meedogenloos’: zo hard gaan Britse tabloids tekeer over Harry en Meghan](https://www.ad.nl/show/buitengewoon-meedogenloos-zo-hard-gaan-britse-tabloids-tekeer-over-harry-en-meghan~a06fe24e/)
+  > De terugkeer van prins Harry en Meghan naar het Verenigd Koninkrijk zorgt voor veel ophef in de Britse pers. Britse tabloids speculeren over de reden...
+- [Patrick Lodiers en Ruben van der Meer te zien in nieuwe improvisatieshow: dit zijn de andere gezichten](https://www.ad.nl/show/patrick-lodiers-en-ruben-van-der-meer-te-zien-in-nieuwe-improvisatieshow-dit-zijn-de-andere-gezichten~a20ef39b/)
+  > Patrick Lodiers (54) gaat een nieuw improvisatieprogramma presenteren voor BNNVara, waarin onder anderen Ruben van der Meer (56) te zien zal zijn....
+- [Nieuwe linksback meteen speelgerechtigd bij Feyenoord, Valente en Targhalline tikken erop los](https://www.ad.nl/voetbal/nieuwe-linksback-meteen-speelgerechtigd-bij-feyenoord-valente-en-targhalline-tikken-erop-los~a378dc98/)
+  > Het nieuwe eredivisieseizoen is van start gegaan. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we...
+- [Tegen Sion staan Cruijffs miljoenen, het podium en de stemming van het publiek op het spel](https://www.ad.nl/voetbal/tegen-sion-staan-cruijffs-miljoenen-het-podium-en-de-stemming-van-het-publiek-op-het-spel~a809babe/)
+  > Ajax is nog één stap verwijderd van de hoofdfase van de Conference League. Het Zwitserse FC Sion mag dan ogen als een niet al te grote horde,...
+- [Yves Berendse vervangt André Hazes bij Concert op de Alblas](https://www.ad.nl/alblasserdam/yves-berendse-vervangt-andre-hazes-bij-concert-op-de-alblas~ab318a0f/)
+  > Yves Berendse neemt tijdens Concert op de Alblas de plek in van André Hazes. Hazes heeft wegens stemproblemen moeten afzeggen. Het Concert op de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Fusion is terug, alleen de naam niet](https://fd.nl/samenleving/1608577/fusion-is-terug-alleen-de-naam-niet)
-  > Spaghetti met pindakaas en limoenblad. Kreeft met beurre blanc van Koreaanse pepers. Fusion is terug bij restaurants die zichzelf serieus nemen, maar...
-- [Iedereen krijgt €90.000](https://fd.nl/financiele-markten/1609210/iedereen-krijgt-90-000)
-  > FD-columnist Corné van Zeijl maakt zich zorgen over de Franse schuldenlast, en komt vervolgens met ‘een belachelijk idee.’
-- [Onrust in Midden-Oosten en afwachtende klanten drukken resultaat Boskalis](https://fd.nl/bedrijfsleven/1609212/onrust-in-midden-oosten-en-afwachtende-klanten-drukken-resultaat-boskalis)
-  > In de eerste helft van 2026 behaalde het bedrijf een omzet van €1,9 mrd, een terugloop van zo’n 20%.
-- [Recyclingdoelen behalen is nog geen circulariteit](https://fd.nl/opinie/1608680/recyclingdoelen-behalen-is-nog-geen-circulariteit)
-  > Hoewel Nederland het Europese recyclingdoel ruimschoots behaalt, gaat ons afval vaak maar een paar rondes mee. Circulair werken zou de norm moeten...
-- [Koninklijke Porceleyne Fles boekt flinke omzetgroei dankzij overname](https://fd.nl/bedrijfsleven/1609303/koninklijke-porceleyne-fles-boekt-flinke-omzetgroei-dankzij-overname)
-  > De nettowinst kwam uit op een kleine half miljoen.
+- [Achter de brave ANWB schuilt een machtig miljardenbedrijf](https://fd.nl/bedrijfsleven/1601822/achter-de-brave-anwb-schuilt-een-machtig-miljardenbedrijf)
+  > De wielrijdersbond ontplooide sinds de oprichting in 1883 steeds meer commerciële activiteiten, maar heeft geen aandeelhouders die de winst opeisen....
+- [Notaris overbelast: wachttijden voor klanten lopen flink op](https://fd.nl/financiele-markten/1609313/notaris-overbelast-wachttijden-voor-klanten-lopen-flink-op)
+  > Wachttijden van zes tot acht weken voor familierecht zijn geen uitzondering. Het werk is ingewikkelender geworden, bijvoorbeeld de afhandeling van...
+- [Verbied wegblokkades met kort geding en bescherm weggebruikers](https://fd.nl/opinie/1608976/verbied-wegblokkades-met-kort-geding-en-bescherm-weggebruikers)
+  > De boeren brengen met de wegblokkades op de snelwegen andere weggebruikers in gevaar. In het verleden zijn in zowel Nederland als in Europees verband...
+- [Het grote, saaie zomaar](https://fd.nl/samenleving/1608578/het-grote-saaie-zomaar)
+  > Nihilisme tentoonspreiden is de beste manier om aan elk interessant gesprek een einde te maken, stelt Joris van Os vast.
+- [In Schiedam leren robots met vallen en opstaan hoe het is om mens te zijn](https://fd.nl/economie/1607897/in-schiedam-leren-robots-met-vallen-en-opstaan-hoe-het-is-om-mens-te-zijn)
+  > Humanoïden zijn in opkomst, ‘menselijke’ robots die worden geprogrammeerd om zwaar, repeterend of vervelend werk uit te voeren. Een Nederlands...
 
 ### Meest gelezen
 
