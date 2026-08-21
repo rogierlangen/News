@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-08-2026 om 13:48*
+*Laatst bijgewerkt: 21-08-2026 om 14:38*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Toch geen twee weken wachten: snoeiwerk langs A50 begint eerder](https://nos.nl/l/2627751)
+  > Rijkswaterstaat begint eerder dan verwacht met het verwijderen van takken die het zicht belemmeren van veiligheidscamera's langs de A50 tussen...
+- [Prins Harry, Elton John en andere eisers moeten Daily Mail miljoenen betalen](https://nos.nl/l/2627750)
+  > Voor 28 augustus 16.00 uur moeten prins Harry en zes andere Britse prominenten, onder wie zanger Elton John en actrice Liz Hurley, de uitgever van...
+- [De dodelijkste ebola-uitbraak ooit in Congo: hoe komt dat?](https://nos.nl/l/2627742)
+  > Contactonderzoek, veilige begrafenissen en isolatieplekken. Geen land heeft zoveel ervaring met ebola als de Democratische Republiek Congo, dat nu...
+- [Meerdere gewonden bij zwaardaanval op Zweedse school, dader neergeschoten](https://nos.nl/l/2627741)
+  > In Zweden zijn meerdere mensen gewond geraakt toen een persoon met een zwaard een middelbare school was binnengedrongen. De dader is door de politie...
 - [Uber schond rechten chauffeurs, AP legt megaboete van 825 miljoen op](https://nos.nl/l/2627738)
   > De Autoriteit Persoonsgegevens (AP) heeft Uber een boete van 825 miljoen euro opgelegd. Dat bevestigt de AP na een bericht van persbureau Reuters....
-- [Opnieuw tunnel ontdekt bij Letse grens met Belarus, 28 migranten tegengehouden](https://nos.nl/l/2627736)
-  > De Letse grenspolitie heeft gisteren 28 migranten ontdekt bij de grens met Belarus. De grenswachten troffen bij inspectie van de grens ook een tunnel...
-- [Zeven mensen aangehouden voor online bedreiging na azc-protesten Apeldoorn](https://nos.nl/l/2627735)
-  > De politie heeft nog zes mensen opgepakt voor het online bedreigen van agenten rond azc-protesten in Apeldoorn. Het zijn zes mannen en een vrouw...
-- [Overgang naar droger weer tijdens het weekend](https://nos.nl/l/2627734)
-  > Na een hete en droge zomer was het misschien even wennen aan het minder warme en regenachtige weer van de afgelopen dagen. Ook dit weekend is niet...
-- [300.000 ondeugdelijke condooms ontdekt in Frankrijk, overheid raadt soa-tests aan](https://nos.nl/l/2627733)
-  > Het Franse ministerie van Gezondheid en Franse inspectiediensten waarschuwen dat in Frankrijk tienduizenden condooms zijn verkocht die niet aan de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Paniek onder Nederlanders in Thailand na politie-invallen: ‘Er is geen uitweg meer voor ons’](https://www.ad.nl/buitenland/paniek-onder-nederlanders-in-thailand-na-politie-invallen-er-is-geen-uitweg-meer-voor-ons~a2d801d1/)
-  > Politie-invallen in Thailand zorgen voor paniek onder Nederlandse gepensioneerden. Wat tientallen jaren gold als dé manier om er een droomhuis te...
-- [Prins Harry en andere eisers moeten Daily Mail ruim 11 miljoen euro betalen](https://www.ad.nl/buitenland/prins-harry-en-andere-eisers-moeten-daily-mail-ruim-11-miljoen-euro-betalen~a4482e02/)
-  > Prins Harry en zes anderen moeten van het Britse gerechtshof 9,54 miljoen pond (11,1 miljoen euro) betalen aan Associated Newspapers Limited, dat...
-- [Zweedse politie schiet persoon met zwaard neer bij school, meerdere gewonden](https://www.ad.nl/buitenland/zweedse-politie-schiet-persoon-met-zwaard-neer-bij-school-meerdere-gewonden~ac276ab1/)
-  > De Zweedse politie heeft een persoon met een zwaard neergeschoten bij een school in Fagersta, melden Zweedse media. Volgens de gemeente, ten...
-- [PRO-bestuur neemt gevoelig standpunt in: partij kiest in Brussel voor rood, en niet voor groen](https://www.ad.nl/politiek/pro-bestuur-neemt-gevoelig-standpunt-in-partij-kiest-in-brussel-voor-rood-en-niet-voor-groen~afa6018e/)
-  > Fusiepartij PRO moet zich in Europa aansluiten bij de sociaaldemocraten, en niet bij de Groenen. Dat eindadvies geeft een commissie die door het...
-- [Uber krijgt megaboete van 825 miljoen euro van de AP voor automatisch stopzetten van accounts van chauffeurs](https://www.ad.nl/economie/uber-krijgt-megaboete-van-825-miljoen-euro-van-de-ap-voor-automatisch-stopzetten-van-accounts-van-chauffeurs~ac60df514/)
-  > De Autoriteit Persoonsgegevens (AP) heeft taxibedrijf Uber een boete van 825 miljoen euro gegeven voor het geautomatiseerd stopzetten van accounts...
+- [FIFA straft Argentinië keihard voor knokpartij na verloren WK-finale: megaschorsing voor Leandro Paredes](https://www.ad.nl/voetbal/fifa-straft-argentinie-keihard-voor-knokpartij-na-verloren-wk-finale-megaschorsing-voor-leandro-paredes~aa7ab61d/)
+  > Leandro Paredes heeft een schorsing van liefst tien wedstrijden gekregen voor zijn negatieve hoofdrol na de verloren WK-finale. De Argentijn ging na...
+- [Bedrijf uit Hoeksche Waard past als een van de eerste in Nederland nieuwe oplossing toe voor overvol stroomnet](https://www.ad.nl/binnenland/bedrijf-uit-hoeksche-waard-past-als-een-van-de-eerste-in-nederland-nieuwe-oplossing-toe-voor-overvol-stroomnet~a1202bd2/)
+  > Is dit dan eindelijk de oplossing voor het overvolle stroomnet? Een bedrijf uit de Hoeksche Waard past als een van de eerste in Nederland een nieuwe...
+- [Kan Max Verstappen verrassen in strijd om poleposition voor sprintrace op Zandvoort?](https://www.ad.nl/formule-1/kan-max-verstappen-verrassen-in-strijd-om-poleposition-voor-sprintrace-op-zandvoort~af3d3f4b/)
+  > Max Verstappen kende een ongelukkige start van het raceweekend in ‘zijn’ Zandvoort. Kan de coureur van Red Bull Racing toch meedoen in de strijd om...
+- [Jannik Sinner meldt zich met knieblessure af voor US Open: ‘Een moeilijke beslissing’](https://www.ad.nl/tennis/jannik-sinner-meldt-zich-met-knieblessure-af-voor-us-open-een-moeilijke-beslissing~abb5e503/)
+  > Jannik Sinner doet niet mee aan de US Open, het laatste grandslamtoernooi van het jaar dat op 30 augustus begint. De 25-jarige Italiaanse nummer 1...
+- [De beste blender heeft een functie die de meeste andere apparaten niet hebben: soep verhitten](https://www.ad.nl/wonen/de-beste-blender-heeft-een-functie-die-de-meeste-andere-apparaten-niet-hebben-soep-verhitten~aa220789/)
+  > De ene blender maakt fluweelzachte smoothies, de andere loopt vast op ijsblokjes of laat klonten in het beslag. De Consumentenbond zette ruim 170...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘Uber krijgt op een na hoogste Europese privacyboete ooit van Nederlandse toezichthouder’](https://fd.nl/bedrijfsleven/1609877/uber-krijgt-op-een-na-hoogste-europese-privacyboete-ooit-van-nederlandse-toezichthouder)
-  > Uber zou met automatische systemen de accounts van Uber-chauffeurs hebben gedeactiveerd, zonder de bestuurder hierover goed te informeren.
-- [En toen nam het zand het Aralmeer over](https://fd.nl/samenleving/1608678/en-toen-nam-het-zand-het-aralmeer-over)
-  > Ooit behoorde het Aralmeer tot de grootste meren ter wereld, met aan alle oevers in Kazachstan en Oezbekistan levendige vissersdorpen. Nu is het ’s...
-- [De Europese Centrale Bank verwacht dat de eurozone last krijgt van correctie AI-aandelen](https://fd.nl/financiele-markten/1609079/ecb-verwacht-dat-eurozone-last-krijgt-van-correctie-ai-aandelen)
-  > De S&P 500 nadert het record van voor het knappen van de internetzeepbel. In de eurozone is het nog niet zover, maar ook hier lopen de waarderingen...
-- [Techniek Nederland: geef techniekonderwijs voorrang in financiering mbo](https://fd.nl/politiek/1609661/techniek-nederland-geef-techniekonderwijs-voorrang-in-financiering-mbo)
-  > Het kabinet wil de manier waarop het geld tussen onderwijsinstellingen wordt verdeeld aanpassen. Technische opleidingen verdienen daarin extra...
-- [Amerikaanse spilzucht drijft de rente op en dat gaat wereldwijd pijn doen](https://fd.nl/economie/1609633/amerikaanse-spilzucht-drijft-de-rente-op-en-dat-gaat-wereldwijd-pijn-doen)
-  > Beleggers eisen wereldwijd meer compensatie voor losbandig begrotingsbeleid en oplopende inflatie. Daar hebben ook degelijker landen als Nederland...
+- [Bond vigilantes laten zich zien, in de VS en Frankrijk](https://fd.nl/financiele-markten/1609697/bond-vigilantes-laten-zich-zien-in-de-vs-en-frankrijk)
+  > De schokken in de wereld lijken alleen maar toe te nemen, maar de Europese economie blijkt veerkrachtig en dat wordt op de beurs weerspiegeld.
+- [Ondanks dreiging van rijkentax blijft Californië een start-upwalhalla](https://fd.nl/samenleving/1609659/ondanks-dreiging-van-rijkentax-blijft-californie-een-start-upwalhalla)
+  > Dit jaar stroomde er al $366 mrd naar start-ups in ‘The Golden State’. Zorgen over een kapitaalvlucht lijken overtrokken, ondanks groeiende steun...
+- [Dutech in gesprek over doorstart van fietsenfabrikant Accell](https://fd.nl/bedrijfsleven/1609702/dutech-in-gesprek-over-doorstart-van-fietsfabrikant-accell)
+  > Het Singaporese Dutech was al kort voor het bankroet van Accell even in beeld om de producent van onder meer Koga en Batavus over te nemen.
+- [Iran verliest poort naar wereldeconomie door handelsstop Emiraten](https://fd.nl/politiek/1609699/iran-verliest-poort-naar-wereldeconomie-door-handelsstop-emiraten)
+  > De Verenigde Arabische Emiraten stoppen alle handel met Iran, kondigden zij dinsdag aan. Via het land omzeilde Iran de afgelopen jaren de...
+- [Hoe sciencefiction het gedachtegoed van techbro’s vormt](https://fd.nl/samenleving/1608581/hoe-sciencefiction-het-gedachtegoed-van-techbros-vormt)
+  > Silicon Valley laat zich graag inspireren door ideeën uit sciencefiction. Journalisten George van Hal en Laurens Verhagen brengen deze extreme...
 
 ### Meest gelezen
 
