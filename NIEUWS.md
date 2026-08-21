@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-08-2026 om 21:27*
+*Laatst bijgewerkt: 21-08-2026 om 22:28*
 
 ---
 
@@ -8,7 +8,7 @@
 
 ### Laatste nieuws
 
-- [Na bangalijst komt studentenvereniging met campagne tegen doorsturen van foto's](https://nos.nl/l/2627809)
+- [Studentenvereniging komt met campagne om bangalijsten te voorkomen](https://nos.nl/l/2627809)
   > De Utrechtsche Vrouwelijke Studentenvereniging (UVSV) wil dat studenten beter nadenken voordat ze video's, foto's of stickers van anderen delen. UVSV...
 - [Drie arrestaties voor vermissing producent Rodney Leysner in Suriname](https://nos.nl/l/2627803)
   > In de zoektocht naar de sinds zaterdag vermiste Nederlandse filmproducent Rodney Leysner heeft de Surinaamse politie drie verdachten aangehouden. Een...
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Landskampioen Arsenal begint seizoen met ruime zege op gepromoveerd Coventry City](https://www.ad.nl/voetbal/landskampioen-arsenal-begint-seizoen-met-ruime-zege-op-gepromoveerd-coventry-city~af67f37e/)
+- [LIVE Oorlog Oekraïne | Dodental na Russische aanval op winkelcentrum loopt op tot 15, ruim 130 gewonden](https://www.ad.nl/buitenland/live-oorlog-oekraine-dodental-na-russische-aanval-op-winkelcentrum-loopt-op-tot-15-ruim-130-gewonden~adfb97be/)
+  > Russische drones hebben een dodelijke aanval uitgevoerd op een winkelcentrum in de Oekraïense stad Kryvy Rih, meldt Oekraïne. Lokale autoriteiten...
+- [Veldbestorming, vuurwerk en vernielingen: politie rukt massaal uit bij ontspoorde derby in Duitsland](https://www.ad.nl/voetbal/veldbestorming-vuurwerk-en-vernielingen-politie-rukt-massaal-uit-bij-ontspoorde-derby-in-duitsland~a5d8f20a/)
+  > Chaotische taferelen vrijdagavond bij de Duitse derby tussen SV Waldhof Mannheim en FC Kaiserslautern. De regiogenoten troffen elkaar in de eerste...
+- [Landskampi­oen Arsenal begint seizoen met ruime zege, pijnlijk welkom voor Milan van Ewijk](https://www.ad.nl/voetbal/landskampioen-arsenal-begint-seizoen-met-ruime-zege-pijnlijk-welkom-voor-milan-van-ewijk~af67f37e/)
   > Arsenal is sterk aan het nieuwe seizoen begonnen. De regerend landskampioen had geen enkel probleem met het gepromoveerde Coventry City, dat met 3-0...
 - [‘Meghan Markle in gesprek over mogelijke rol in tv-serie’](https://www.ad.nl/show/meghan-markle-in-gesprek-over-mogelijke-rol-in-tv-serie~ae1d07d8/)
   > Meghan, de hertogin van Sussex, is volgens Amerikaanse media in gesprek over een mogelijke rol in de tv-serie The Gentlemen. Dat melden vakbladen als...
 - [Groot verdriet bij voetbalclub in klein dorp: vier leden in korte tijd overleden](https://www.ad.nl/binnenland/groot-verdriet-bij-voetbalclub-in-klein-dorp-vier-leden-in-korte-tijd-overleden~a7b66b5a/)
   > Voor veel mensen bij RKVV Meerburg blijft Mark Pels de keeper die in 2012 een heldenrol vervulde bij de beslissende strafschoppenreeks. Woensdag kwam...
-- [Turkije vaardigt arrestatiebevel uit voor Israëlische premier Netanyahu na arrestatie activisten van Flotilla](https://www.ad.nl/buitenland/turkije-vaardigt-arrestatiebevel-uit-voor-israelische-premier-netanyahu-na-arrestatie-activisten-van-flotilla~adfbec78/)
-  > Turkije heeft een nieuw arrestatiebevel uitgevaardigd tegen de Israëlische premier Benjamin Netanyahu, schrijft de Turkse minister van Justitie Akin...
-- [Fajah Lourens wordt voor de tweede keer oma en Herman den Blijker klinkt dubbelzinnig](https://www.ad.nl/show/fajah-lourens-wordt-voor-de-tweede-keer-oma-en-herman-den-blijker-klinkt-dubbelzinnig~af15a7f4/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Personalia zaterdag 22 augustus](https://fd.nl/bedrijfsleven/1609703/personalia-zaterdag-22-augustus)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [Beleggers op Wall Street wegen nieuwe shopgedrag van Bessent](https://fd.nl/financiele-markten/1609802/beleggers-op-wall-street-wegen-nieuwe-shopgedrag-van-bessent)
   > De Amerikaanse minister van financiën Scott Bessent gaat twee keer zoveel langlopende staatsleningen opkopen, bleek eerder deze week.
 - [Uitglijer van Bessent](https://fd.nl/opinie/1609695/uitglijer-van-bessent)
@@ -54,8 +56,6 @@
   > Maandag oordeelde de rechter dat een andere groep krakers in een andere villa verderop in de straat, een van de duurste in Nederland, voorlopig mag...
 - [Premier Jetten: begrotingstekort niet gebruiken voor Prinsjesdagrekening](https://fd.nl/politiek/1609776/premier-jetten-begrotingstekort-niet-gebruiken-voor-prinsjesdagrekening)
   > Onderhandelingen met oppositiepartijen over de miljoenennota mogen er niet toe leiden dat het begrotingstekort oploopt, zei de D66’er. Opgeteld lopen...
-- [Samsung en SK Hynix maken recordbedrag vrij voor beloning aandeelhouders](https://fd.nl/financiele-markten/1609800/samsung-en-sk-hynix-maken-recordbedrag-vrij-voor-beloning-aandeelhouders)
-  > De chipmakers proberen van de ‘Koreaanse korting’ af te komen. De relatief hoge dividendbelasting in Zuid-Korea leidt tot een lagere waardering van...
 
 ### Meest gelezen
 
