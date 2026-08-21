@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-08-2026 om 23:28*
+*Laatst bijgewerkt: 21-08-2026 om 01:35*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Zwitserse toerist krijgt jaar cel voor bespotten hindoe-ritueel op Bali](https://nos.nl/l/2627678)
+  > Een Zwitserse toerist is op het Indonesische eiland Bali veroordeeld tot een jaar celstraf, omdat hij op een religieus belangrijke dag naar buiten...
+- [Aanklagers: bestuurder verongelukte speedboot New York overtrad veel regels](https://nos.nl/l/2627677)
+  > De bestuurder van de speedboot die eerder deze maand kapseisde vlakbij het Vrijheidsbeeld in New York City had te veel mensen op de boot gelaten, zo...
 - [Overhangende takken leiden nog weken tot files op A50: 'Snel snoeien kan niet'](https://nos.nl/l/2627674)
   > Overhangende takken gaan nog weken tot files leiden op de A50 bij Wolfheze.
         Het probleem is dat de veelgebruikte spitsstrook op de snelweg...
@@ -15,10 +19,6 @@
   > Het Amerikaanse vliegdekschip de USS George Washington is in het Midden-Oosten aangekomen vanuit Japan om een ander schip af te lossen. De 5000...
 - [Botresten van andere man gevonden bij zoektocht naar vermiste Marc Jaskulski](https://nos.nl/l/2627670)
   > Bij een zoekactie naar de vermiste Marc Jaskulski heeft de politie menselijke botten gevonden. De 36-jarige wordt sinds april 2024 vermist. Zijn...
-- [Azc bij het Friese dorp Balk toch langer open, gemeente is 'teleurgesteld'](https://nos.nl/l/2627664)
-  > Het asielzoekerscentrum bij het Friese dorp Balk blijft nog eens drie jaar langer open dan gepland. Dat heeft het ministerie van Justitie en...
-- [Zeker 47 doden door gekapseisde boot in Nigeria, mogelijk te veel mensen aan boord](https://nos.nl/l/2627659)
-  > Op een rivier in het noordwesten van Nigeria is een boot gekapseisd en gezonken. Dat melden lokale functionarissen. Zeker 47 mensen zijn daarbij om...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Militairen in VS krijgen vier verlofdagen om GTA 6 te spelen als ze zich opnieuw aanmelden](https://www.ad.nl/games/militairen-in-vs-krijgen-vier-verlofdagen-om-gta-6-te-spelen-als-ze-zich-opnieuw-aanmelden~a5f65b41/)
+  > Amerikaanse militairen in de staat Georgia kunnen vier verlofdagen krijgen als ze zich opnieuw aanmelden voor het leger. De vrije dagen zullen zo...
+- [Zorgen om fietskunsten brugklassers: ‘Ouders moeten ze minder met de auto naar school brengen’](https://www.ad.nl/binnenland/zorgen-om-fietskunsten-brugklassers-ouders-moeten-ze-minder-met-de-auto-naar-school-brengen~a01a3162/)
+  > Leer je kind zo snel mogelijk fietsen: die oproep doet Veilig Verkeer Nederland aan het begin van het nieuwe schooljaar. Niet alle 200.000...
+- [Het wonder van Daniel en José: Mexicaanse vissers overleven vijf dagen in koelbox op zee](https://www.ad.nl/buitenland/het-wonder-van-daniel-en-jose-mexicaanse-vissers-overleven-vijf-dagen-in-koelbox-op-zee~a5a62ffc/)
+  > De Mexicaanse marine heeft twee vissers gered die vijf dagen in een grote koelbox hebben rondgedobberd op zee. Hun boot was in ruw water gezonken....
+- [Droogte door El Niño beperkt scheepvaart in Panamakanaal](https://www.ad.nl/buitenland/droogte-door-el-nino-beperkt-scheepvaart-in-panamakanaal~a9b59009/)
+  > Vanaf volgende maand zal er minder scheepvaart door het Panamakanaal gaan vanwege de droogte die wordt veroorzaakt door het weerfenomeen El Niño. Dat...
 - [Geheimzinnigheid om clausules: ‘Formule 1-contracten meest geheime contracten in de sportwereld’](https://www.ad.nl/formule-1/geheimzinnigheid-om-clausules-formule-1-contracten-meest-geheime-contracten-in-de-sportwereld~a55ac4cd/)
   > Komend weekend is de laatste Grand Prix van Nederland. Wat kan Max Verstappen in zijn thuisrace? Volg al het nieuws rond de Formule 1-race in...
-- [Trump wil in 2030 duizend Amerikaanse ruimtelanceringen per jaar](https://www.ad.nl/buitenland/trump-wil-in-2030-duizend-amerikaanse-ruimtelanceringen-per-jaar~ae67dd9c/)
-  > Donald Trump wil dat er meer Amerikaanse ruimtelanceringen worden uitgevoerd. De Amerikaanse president ondertekende donderdag een memorandum waarin...
-- [Impact Iranoorlog op energierekening is beperkt, ziet ABN Amro](https://www.ad.nl/economie/impact-iranoorlog-op-energierekening-is-beperkt-ziet-abn-amro~a92a6afe/)
-  > De Iranoorlog zorgt voor hogere energieprijzen, maar de impact op de energierekening van Nederlandse huishoudens is ‘vooralsnog beperkt’. Dat...
-- [Jan Modaal klem op de woningmarkt: nog maar duizend huizen betaalbaar](https://www.ad.nl/economie/jan-modaal-klem-op-de-woningmarkt-nog-maar-duizend-huizen-betaalbaar~ad207576/)
-  > Wie een huis wil kopen, kan maar beter een partner hebben. Of eigen geld. Als alleenstaande koper zonder spaarpot, erfenis of overwaarde kom je er...
-- [TransferTalk | Sontje Hansen naar Turkije, Geertruida wordt vrijdag gepresenteerd bij PSV](https://www.ad.nl/voetbal/transfertalk-sontje-hansen-naar-turkije-geertruida-wordt-vrijdag-gepresenteerd-bij-psv~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
 
 ### Meest gelezen
 
