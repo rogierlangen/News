@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-08-2026 om 06:53*
+*Laatst bijgewerkt: 21-08-2026 om 07:46*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Australië pakt man op die in Oekraïne voor Rusland zou hebben gespioneerd](https://nos.nl/l/2627695)
+  > De politie in Australië heef een man aangehouden die informatie over het Oekraïense leger aan Rusland zou hebben willen doorspelen. Volgens de...
+- [Grote politieactie op woonwagenkamp in Waalre](https://nos.nl/l/2627694)
+  > De politie is afgelopen nacht met meerdere eenheden een woonwagenkamp in Waalre binnengevallen. Bij de actie zijn woonwagens doorzocht.
+        Naast...
 - [Fietsers niet meer welkom in centrum Como na aanrijding met burgemeester](https://nos.nl/l/2627692)
   > Fietsen is vanaf september verboden in een groot deel van het ommuurde, historische centrum van de Italiaanse stad Como. De maatregel is genomen...
 - [Aardbeving met kracht van 2,8 bij Zandeweer in Groningen](https://nos.nl/l/2627688)
   > In Groningen is vanochtend vroeg een aardbeving met een kracht van 2,8 geweest. Het epicentrum lag bij het dorp Zandeweer in de gemeente Het...
 - [Overal in Ceuta lopen jonge migranten rond, een groot deel slaapt op straat](https://nos.nl/l/2627686)
   > Wie door de straten van Ceuta rijdt, merkt direct dat de crisis nog niet voorbij is. Er is geen strand of steeg waar de gevolgen van de bestorming...
-- [Wekdienst 21/8: Rechtszaak moord Amsterdam • Actie voor veiligheid op straat](https://nos.nl/l/2627683)
-  > Goedemorgen! In Amsterdam staat een vrouw terecht voor het doodsteken van een man. Op meerdere plekken in het land zijn er fietstochten om aandacht...
-- [Alle acht inzittenden neergestort vliegtuig Alaska omgekomen](https://nos.nl/l/2627680)
-  > In de Amerikaanse staat Alaska is een vliegtuig met acht inzittenden neergestort. Alle inzittenden zijn omgekomen, meldt het Amerikaanse leger.
-     ...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Gerben en Marlies kregen steeds een lekke band, totdat zoon Dani (10) met magneet het mysterie ontrafelt](https://www.ad.nl/binnenland/gerben-en-marlies-kregen-steeds-een-lekke-band-totdat-zoon-dani-10-met-magneet-het-mysterie-ontrafelt~a7c9dd64/)
-  > Gerben van Groningen dacht eerst aan pech. Daarna kreeg hij wéér een lekke band, en zijn vrouw Marlies ook. Na even ‘buitenspelen’ met een vismagneet...
-- [Quiz & Win | Wat weet jij van de Grand Prix van Nederland?](https://www.ad.nl/formule-1/quiz-en-win-wat-weet-jij-van-de-grand-prix-van-nederland~a18b9bed/)
-  > De zomerstop is voorbij en de voorlopig laatste GP van Nederland staat voor de deur. Max Verstappen gaat nog één keer op jacht naar een zege op dit...
-- [Tweevoudig wereldkampioen Julian Alaphilippe stopt na teleurstellende Tour met wielrennen](https://www.ad.nl/wielrennen/tweevoudig-wereldkampioen-julian-alaphilippe-stopt-na-teleurstellende-tour-met-wielrennen~a1c80a91/)
-  > Julian Alaphilippe (34) zet per direct een punt achter zijn wielercarrière en ziet af van zijn laatste contractjaar bij Tudor. Dat meldt de Franse...
-- [Melania Trump lacht om verhalen over haar afwezigheid: ‘Ik hoorde dat jullie me gemist hebben’](https://www.ad.nl/buitenland/melania-trump-lacht-om-verhalen-over-haar-afwezigheid-ik-hoorde-dat-jullie-me-gemist-hebben~ae67dd9c/)
-  > Na een maand van mediastilte heeft Melania Trump weer van zich laten horen. Tijdens een bijeenkomst in de rozentuin van het Witte Huis verscheen ze...
-- [Earth, Wind & Fire-drummer ontwaakt uit coma, moet onder het mes](https://www.ad.nl/show/earth-wind-en-fire-drummer-ontwaakt-uit-coma-moet-onder-het-mes~a9ee3b96/)
-  > John Paris, de drummer van de band Earth, Wind & Fire, is in het ziekenhuis ontwaakt uit zijn kunstmatige coma en moet twee operaties ondergaan. Dat...
+- [The Odyssey verbreekt ook R-ratingrecord van Deadpool & Wolverine](https://www.ad.nl/show/the-odyssey-verbreekt-ook-r-ratingrecord-van-deadpool-en-wolverine~a632ece7/)
+  > The Odyssey heeft opnieuw een record verbroken, meldt studio Universal volgens Amerikaanse media. De film van regisseur Christopher Nolan heeft nu de...
+- [WhatsApp-bericht na vakantieboeking kost Nederlander 4718 euro: ‘Alles leek betrouwbaar’](https://www.ad.nl/binnenland/whatsapp-bericht-na-vakantieboeking-kost-nederlander-4718-euro-alles-leek-betrouwbaar~afae9d37/)
+  > Het moest de perfecte vakantie worden in een exclusieve villa aan de Spaanse kust. In plaats daarvan blijft Pascal achter met een lege bankrekening....
+- [Zo laat rijdt Max Verstappen dit weekeinde de allerlaatste Dutch GP](https://www.ad.nl/formule-1/zo-laat-rijdt-max-verstappen-dit-weekeinde-de-allerlaatste-dutch-gp~ac6e82c8/)
+  > Het Formule 1-seizoen wordt na een korte zomerstop hervat met een bijzondere race: de allerlaatste Dutch GP op het circuit van Zandvoort. En deze...
+- [Politie: toch geen boetes voor trekkers op snelweg A31 in Friesland, onduidelijk wie wat heeft gedaan](https://www.ad.nl/binnenland/politie-toch-geen-boetes-voor-trekkers-op-snelweg-a31-in-friesland-onduidelijk-wie-wat-heeft-gedaan~a759df5f/)
+  > De boeren die maandagavond 10 augustus met een trekker over de snelweg A31 in het noorden van Friesland reden, krijgen toch geen bekeuring. Eerder...
+- [Zwitserse toerist (26) verstoort heilige dag op Bali en moet daarom een jaar de gevangenis in](https://www.ad.nl/buitenland/zwitserse-toerist-26-verstoort-heilige-dag-op-bali-en-moet-daarom-een-jaar-de-gevangenis-in~a84057a8/)
+  > Een 26-jarige toerist uit Zwitserland is op Bali veroordeeld tot een gevangenisstraf van een jaar. Luzian Andrin Zgraggen filmde zichzelf op een leeg...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Italiaanse bank Monte dei Paschi doet overnamebod op twee concurrenten](https://fd.nl/financiele-markten/1609688/italiaanse-bank-monte-dei-paschi-doet-overnamebod-op-twee-concurrenten)
+  > De Toscaanse bank is zelf het doelwit van een vijandig bod en hoopt op deze manier een overname door Intesa Sanpaolo te voorkomen.
+- [Historicus Nicholas Mulder: ‘Dat bezit altijd een zekerheid is, is een illusie’](https://fd.nl/economie/1604339/historicus-nicholas-mulder-dat-bezit-altijd-een-zekerheid-is-is-een-illusie)
+  > Onteigening is impopulair, maar vaak noodzakelijk voor economische vooruitgang, betoogt historicus Nicholas Mulder. ‘Met beleid dat iedereen blij...
 - [Aardbeving in Groningen met kracht van 2,8](https://fd.nl/samenleving/1609687/aardbeving-in-groningen-met-kracht-van-2-8)
   > De beving was de zwaarste sinds maart. Volgens het KNMI is de aardbeving een gevolg van de gaswinning in de provincie.
 - [Consumentenvertrouwen in augustus iets gestegen](https://fd.nl/economie/1609686/consumentenvertrouwen-in-augustus-iets-gestegen)
   > Het vertrouwen in de economie ligt onder nul en is lager dan het gemiddelde van de afgelopen twintig jaar, maar de cijfers zijn in augustus iets...
 - [Verkoopprijs woningen in juli 3,9% gestegen](https://fd.nl/economie/1609685/verkoopprijs-woningen-in-juli-3-9-gestegen)
   > De verkoopprijzen van bestaande koopwoningen stijgen nog steeds. De gemiddelde transactieprijs was in juli €500.988.
-- [Live: Europese beurzen op weg naar vlakke opening](https://fd.nl/financiele-markten/1609676/live-gemengde-beurzen-in-azie-olieprijs-maakt-pas-op-de-plaats)
-  > De Japanse inflatie loopt op. Dat vergroot de kans dat de Japanse centrale bank de rente in september zal verhogen.
-- [Een doorgeefparadijs in Rotterdam](https://fd.nl/samenleving/1608785/een-doorgeefparadijs-in-rotterdam)
-  > Doorgeven en opnieuw in gebruik nemen zijn hard nodig in de weggooimaatschappij. Wat voor moois het kan opleveren, zie je bij De HER, in Rotterdam.
 
 ### Meest gelezen
 
