@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-08-2026 om 07:46*
+*Laatst bijgewerkt: 21-08-2026 om 08:44*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Verdachte van gewelddadige dood vrouw Lelystad dood aangetroffen](https://nos.nl/l/2627707)
+  > De politie in Zeewolde heeft gisteren het lichaam gevonden van een man die werd gezocht in verband met het overlijden van een vrouw in Lelystad. De...
+- [Kabinet mikt nog steeds op 'breed draagvlak' voor Prinsjesdagplannen](https://nos.nl/l/2627705)
+  > Het kabinet denkt nog steeds dat in de Tweede Kamer "breed draagvlak" mogelijk is voor de Prinsjesdagstukken. Het is de bedoeling dat die volgende...
+- [Politie beboet boeren op A31 toch niet, ondanks eerdere aankondiging](https://nos.nl/l/2627701)
+  > Bestuurders die vorige week maandag met hun trekker over de A31 in Friesland reden, krijgen toch geen bekeuring. Eerder liet de politie nog weten de...
+- [Twee organisatoren herdenking Tiananmenprotesten veroordeeld in Hongkong](https://nos.nl/l/2627698)
+  > Twee organisatoren van de herdenkingsbijeenkomst in Hongkong ter nagedachtenis aan het studentenprotest en het bloedbad op het Plein van de Hemelse...
 - [Australië pakt man op die in Oekraïne voor Rusland zou hebben gespioneerd](https://nos.nl/l/2627695)
   > De politie in Australië heef een man aangehouden die informatie over het Oekraïense leger aan Rusland zou hebben willen doorspelen. Volgens de...
-- [Grote politieactie op woonwagenkamp in Waalre](https://nos.nl/l/2627694)
-  > De politie is afgelopen nacht met meerdere eenheden een woonwagenkamp in Waalre binnengevallen. Bij de actie zijn woonwagens doorzocht.
-        Naast...
-- [Fietsers niet meer welkom in centrum Como na aanrijding met burgemeester](https://nos.nl/l/2627692)
-  > Fietsen is vanaf september verboden in een groot deel van het ommuurde, historische centrum van de Italiaanse stad Como. De maatregel is genomen...
-- [Aardbeving met kracht van 2,8 bij Zandeweer in Groningen](https://nos.nl/l/2627688)
-  > In Groningen is vanochtend vroeg een aardbeving met een kracht van 2,8 geweest. Het epicentrum lag bij het dorp Zandeweer in de gemeente Het...
-- [Overal in Ceuta lopen jonge migranten rond, een groot deel slaapt op straat](https://nos.nl/l/2627686)
-  > Wie door de straten van Ceuta rijdt, merkt direct dat de crisis nog niet voorbij is. Er is geen strand of steeg waar de gevolgen van de bestorming...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [The Odyssey verbreekt ook R-ratingrecord van Deadpool & Wolverine](https://www.ad.nl/show/the-odyssey-verbreekt-ook-r-ratingrecord-van-deadpool-en-wolverine~a632ece7/)
-  > The Odyssey heeft opnieuw een record verbroken, meldt studio Universal volgens Amerikaanse media. De film van regisseur Christopher Nolan heeft nu de...
-- [WhatsApp-bericht na vakantieboeking kost Nederlander 4718 euro: ‘Alles leek betrouwbaar’](https://www.ad.nl/binnenland/whatsapp-bericht-na-vakantieboeking-kost-nederlander-4718-euro-alles-leek-betrouwbaar~afae9d37/)
-  > Het moest de perfecte vakantie worden in een exclusieve villa aan de Spaanse kust. In plaats daarvan blijft Pascal achter met een lege bankrekening....
-- [Zo laat rijdt Max Verstappen dit weekeinde de allerlaatste Dutch GP](https://www.ad.nl/formule-1/zo-laat-rijdt-max-verstappen-dit-weekeinde-de-allerlaatste-dutch-gp~ac6e82c8/)
-  > Het Formule 1-seizoen wordt na een korte zomerstop hervat met een bijzondere race: de allerlaatste Dutch GP op het circuit van Zandvoort. En deze...
-- [Politie: toch geen boetes voor trekkers op snelweg A31 in Friesland, onduidelijk wie wat heeft gedaan](https://www.ad.nl/binnenland/politie-toch-geen-boetes-voor-trekkers-op-snelweg-a31-in-friesland-onduidelijk-wie-wat-heeft-gedaan~a759df5f/)
-  > De boeren die maandagavond 10 augustus met een trekker over de snelweg A31 in het noorden van Friesland reden, krijgen toch geen bekeuring. Eerder...
-- [Zwitserse toerist (26) verstoort heilige dag op Bali en moet daarom een jaar de gevangenis in](https://www.ad.nl/buitenland/zwitserse-toerist-26-verstoort-heilige-dag-op-bali-en-moet-daarom-een-jaar-de-gevangenis-in~a84057a8/)
-  > Een 26-jarige toerist uit Zwitserland is op Bali veroordeeld tot een gevangenisstraf van een jaar. Luzian Andrin Zgraggen filmde zichzelf op een leeg...
+- [Leontine romantisch gekiekt met haar vriend en Miljuschka geniet na van droomvakantie](https://www.ad.nl/show/leontine-romantisch-gekiekt-met-haar-vriend-en-miljuschka-geniet-na-van-droomvakantie~af15a7f4/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Marijke Vuik ziet investeringen in mkb teruglopen: ‘Ondernemers snakken naar rust en stabiliteit’](https://www.ad.nl/economie/marijke-vuik-ziet-investeringen-in-mkb-teruglopen-ondernemers-snakken-naar-rust-en-stabiliteit~ab259b9e/)
+  > In coronatijd bezorgde ze biertjes bij de klanten aan huis. Ze ging vloeren schuren en de gevel opknappen. Als nieuwe voorzitter van MKB-Nederland...
+- [Collega’s blij voor Max Verstappen na ‘mooie loonsverhoging’ bij Red Bull: ‘Dat heeft zijn manager goed gedaan’](https://www.ad.nl/formule-1/collegas-blij-voor-max-verstappen-na-mooie-loonsverhoging-bij-red-bull-dat-heeft-zijn-manager-goed-gedaan~ab280134/)
+  > Max Verstappens contractnieuws bij Red Bull Racing is talk of the town in de paddock. Tal van collega-coureurs werden gevraagd naar het langere...
+- [Joran van der Sloot wordt dagelijks ‘psychologisch gemarteld’ en vraagt daarom wéér overplaatsing aan](https://www.ad.nl/buitenland/joran-van-der-sloot-wordt-dagelijks-psychologisch-gemarteld-en-vraagt-daarom-weer-overplaatsing-aan~a46088c8/)
+  > De voor moord en drugssmokkel veroordeelde Joran van der Sloot heeft in Peru gevraagd om een overplaatsing naar een andere gevangenis, melden de...
+- [Jan-Willem (71) woont in Thailand: ‘Ik leef eenvoudig, betaal nog geen 300 euro per maand’](https://www.ad.nl/wonen/jan-willem-71-woont-in-thailand-ik-leef-eenvoudig-betaal-nog-geen-300-euro-per-maand~af5b8456/)
+  > Jan-Willem Paijens (71) begon in Bangkok als journalist en woont er inmiddels 34 jaar met plezier. Nu hij min of meer met pensioen is, bekijkt hij...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [De oorlog in Soedan lijdt aan gebrek aan marketing](https://fd.nl/politiek/1608087/de-oorlog-in-soedan-lijdt-aan-gebrek-aan-marketing)
+  > De grootste oorlog van onze tijd is vrijwel onzichtbaar in de media. Niemand maakt zich er druk om. Behalve dan als de vluchtelingen komen.
+- [‘Geen Joodse werknemers? Dat maken we zelf wel uut’](https://fd.nl/samenleving/1608485/geen-joodse-werknemers-dat-maken-we-zelf-wel-uut)
+  > Hoe kon het dat in Enschede zoveel meer Joden dan in Amsterdam de Holocaust overleefden? In deze podcast duikt Arthur Menko in zijn...
 - [Italiaanse bank Monte dei Paschi doet overnamebod op twee concurrenten](https://fd.nl/financiele-markten/1609688/italiaanse-bank-monte-dei-paschi-doet-overnamebod-op-twee-concurrenten)
   > De Toscaanse bank is zelf het doelwit van een vijandig bod en hoopt op deze manier een overname door Intesa Sanpaolo te voorkomen.
 - [Historicus Nicholas Mulder: ‘Dat bezit altijd een zekerheid is, is een illusie’](https://fd.nl/economie/1604339/historicus-nicholas-mulder-dat-bezit-altijd-een-zekerheid-is-is-een-illusie)
   > Onteigening is impopulair, maar vaak noodzakelijk voor economische vooruitgang, betoogt historicus Nicholas Mulder. ‘Met beleid dat iedereen blij...
 - [Aardbeving in Groningen met kracht van 2,8](https://fd.nl/samenleving/1609687/aardbeving-in-groningen-met-kracht-van-2-8)
   > De beving was de zwaarste sinds maart. Volgens het KNMI is de aardbeving een gevolg van de gaswinning in de provincie.
-- [Consumentenvertrouwen in augustus iets gestegen](https://fd.nl/economie/1609686/consumentenvertrouwen-in-augustus-iets-gestegen)
-  > Het vertrouwen in de economie ligt onder nul en is lager dan het gemiddelde van de afgelopen twintig jaar, maar de cijfers zijn in augustus iets...
-- [Verkoopprijs woningen in juli 3,9% gestegen](https://fd.nl/economie/1609685/verkoopprijs-woningen-in-juli-3-9-gestegen)
-  > De verkoopprijzen van bestaande koopwoningen stijgen nog steeds. De gemiddelde transactieprijs was in juli €500.988.
 
 ### Meest gelezen
 
