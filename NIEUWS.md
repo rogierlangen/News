@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-08-2026 om 03:48*
+*Laatst bijgewerkt: 22-08-2026 om 04:36*
 
 ---
 
@@ -29,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [LIVE VS | Rechter VS verbiedt immigratiebeperkingen voor 75 landen: ‘Rubio overschreed bevoegdheden’](https://www.ad.nl/buitenland/live-vs-rechter-vs-verbiedt-immigratiebeperkingen-voor-75-landen-rubio-overschreed-bevoegdheden~ae67dd9c/)
-  > Een Amerikaanse rechter heeft vrijdag een eind gemaakt aan immigratiebeperkingen die de regering-Trump had opgelegd aan inwoners van 75 landen....
-- [Migrantenboot zinkt voor Tunesische kust: 13 vermisten](https://www.ad.nl/buitenland/migrantenboot-zinkt-voor-tunesische-kust-13-vermisten~ae9af676/)
-  > Zeker dertien Tunesiërs worden vermist nadat hun boot zonk voor de Tunesische kust. Twee opvarenden zijn gered, meldde het Tunesische Observatorium...
-- [Twee doden bij bombardementen op Kyiv, Russische aanval op winkelcentrum eist 15 doden, ruim 130 gewonden](https://www.ad.nl/buitenland/twee-doden-bij-bombardementen-op-kyiv-russische-aanval-op-winkelcentrum-eist-15-doden-ruim-130-gewonden~adfb97be/)
-  > Russische drones hebben een dodelijke aanval uitgevoerd op een winkelcentrum in de Oekraïense stad Kryvy Rih, meldt Oekraïne. Lokale autoriteiten...
-- [Honderden op de fiets door de nacht voor veiligheid vrouwen](https://www.ad.nl/binnenland/honderden-op-de-fiets-door-de-nacht-voor-veiligheid-vrouwen~ac8a6216/)
-  > In meerdere steden zijn in de nacht van vrijdag op zaterdag opnieuw honderden mensen op de fiets gestapt om aandacht te vragen voor de veiligheid van...
-- [Jetten gaat in standje-Rutte: optimistisch blijven terwijl de oppositie ‘narrig’ richting Prinsjesdag gaat](https://www.ad.nl/politiek/jetten-gaat-in-standje-rutte-optimistisch-blijven-terwijl-de-oppositie-narrig-richting-prinsjesdag-gaat~af9658196/)
-  > Nog maar zes dagen en dan moet het kabinet een Prinsjesdag-begroting op papier hebben staan. Volgens oppositiepartijen zit er weinig schot in de...
+- [Het is gelukt! Brand in de Hoge Venen na week lang van enorme inzet geblust](https://www.ad.nl/buitenland/het-is-gelukt-brand-in-de-hoge-venen-na-week-lang-van-enorme-inzet-geblust~ad0a3949/)
+  > Eindelijk! De brand in de Hoge Venen is geblust. Een week lang waren zeker twintig manschappen, ondersteund door blushelikopters uit andere landen,...
+- [Fris en wisselvallig weekend: ‘Aan de koele kant voor tijd van het jaar’](https://www.ad.nl/binnenland/fris-en-wisselvallig-weekend-aan-de-koele-kant-voor-tijd-van-het-jaar~a467eda9/)
+  > Gedurende het weekend blijft het verspreid over Nederland veel regenen. Tussen de buien door schijnt de zon geregeld en wordt vandaag 18 tot 21...
+- [LIVE VS | Canada legt onderhandelingen met VS over importtarieven stil](https://www.ad.nl/buitenland/live-vs-canada-legt-onderhandelingen-met-vs-over-importtarieven-stil~ae67dd9c/)
+  > Canada heeft de onderhandelingen met de Verenigde Staten over de importtarieven opgeschort. Volgens premier Mark Carney is onvoldoende vooruitgang...
+- [Oudste persoon ter wereld viert 117de verjaardag: ‘Zelfs op mijn leeftijd doe ik nog nieuwe dingen’](https://www.ad.nl/buitenland/oudste-persoon-ter-wereld-viert-117de-verjaardag-zelfs-op-mijn-leeftijd-doe-ik-nog-nieuwe-dingen~a2967ad8/)
+  > De Britse Ethel Caterham vierde vrijdag haar 117de verjaardag. Ze is momenteel de oudste persoon ter wereld. De titel van oudste persoon aller tijden...
+- [Steeds minder brugklassers naar vmbo: ‘Ouders denken te vaak aan henzelf en niet aan het kind’](https://www.ad.nl/binnenland/steeds-minder-brugklassers-naar-vmbo-ouders-denken-te-vaak-aan-henzelf-en-niet-aan-het-kind~af5c99b3/)
+  > Heel Nederland staat te springen om mensen die met hun handen kunnen werken. Toch kiezen steeds minder leerlingen voor een vmbo-brugklas. In tien...
 
 ### Meest gelezen
 
