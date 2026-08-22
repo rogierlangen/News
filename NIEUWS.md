@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-08-2026 om 12:45*
+*Laatst bijgewerkt: 22-08-2026 om 13:33*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [‘Politie onderzoekt of dader zwaardaanval Zweedse school in gewelddadige chatgroepen zat’](https://nos.nl/l/2627871)
+  > De politie in Zweden onderzoekt of de man die gisteren met een zwaard leerlingen van een school aanviel in chatgroepen zat waarbinnen geweld op...
 - [Oekraïne valt nu ook distributiecentrum webwinkel Ozon aan in Rusland](https://nos.nl/l/2627860)
   > Oekraïne heeft vannacht een distributiecentrum van webwinkel Ozon, een "industriële faciliteit" en de olieraffinaderij van Novokoejbysjevsk in de...
 - [Spanjaard die twaalf jaar in de bergen tussen de wolven leefde, overleden](https://nos.nl/l/2627858)
@@ -17,8 +19,6 @@
   ...
 - [Vader laat 7-jarige zoon achter bij beklimming Japanse berg Fuji](https://nos.nl/l/2627852)
   > De politie in Japan heeft een klimmer op de berg Fuji opdracht gegeven om terug te keren, omdat hij zijn 7-jarige zoon tijdens de klim had...
-- [Oekraïense luchtverdediger: 'Geef ons jullie Patriots, voor ze waardeloos zijn'](https://nos.nl/l/2627850)
-  > Het overvliegende projectiel klinkt als een kruising tussen een vuurpijl en een vliegtuig. Het is een Russische kruisraket of een nieuw type...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Infantino niet welkom bij jeugdtoernooi, journalist confronteert FIFA-baas: ‘Waarom stap je niet op?’](https://www.ad.nl/voetbal/infantino-niet-welkom-bij-jeugdtoernooi-journalist-confronteert-fifa-baas-waarom-stap-je-niet-op~a2544497/)
-  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
-- [Goed nieuws voor Oranje: Tottenham kan zomaar uitgroeien tot dé verrassing in de Premier League](https://www.ad.nl/voetbal/goed-nieuws-voor-oranje-tottenham-kan-zomaar-uitgroeien-tot-de-verrassing-in-de-premier-league~a1ae1e39b/)
-  > Arsenal begon gisteravond tegen Coventry City (3-0 zege) als favoriet aan de Premier League, maar het Oranje-getinte Tottenham Hotspur trekt de...
-- [Rob viert eerste huwelijksjubileum met Stephanie en Gerard houdt weegschaal voor de gek](https://www.ad.nl/show/rob-viert-eerste-huwelijksjubileum-met-stephanie-en-gerard-houdt-weegschaal-voor-de-gek~af15a7f4/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [900 miljoen actieve gebruikers, maar niemand wil betalen: ‘inferieure’ gratis versie van ChatGPT krijgt advertenties](https://www.ad.nl/tech/900-miljoen-actieve-gebruikers-maar-niemand-wil-betalen-inferieure-gratis-versie-van-chatgpt-krijgt-advertenties~add3fec3/)
-  > ChatGPT krijgt advertenties. Vraag je de chatbot naar tips voor bijvoorbeeld een vakantie naar Rome? Dan kun je daar vanaf volgende week zomaar een...
-- [DNB stopt 500.000 euro in het woonhuis van de rijkste zwarte vrouw van Suriname: ‘Excuses zijn niet voldoende’](https://www.ad.nl/binnenland/dnb-stopt-500-000-euro-in-het-woonhuis-van-de-rijkste-zwarte-vrouw-van-suriname-excuses-zijn-niet-voldoende~aa5b30a1/)
-  > De Nederlandsche Bank betaalde 500.000 euro mee aan een museum over Elisabeth Samson, ooit de rijkste vrouw van Suriname. Achter Samson, en de rol...
+- [Winnifred kon niets meer en zwom toch Het Kanaal over: ‘Ik dacht alleen aan de volgende slag’](https://www.ad.nl/mezza/winnifred-kon-niets-meer-en-zwom-toch-het-kanaal-over-ik-dacht-alleen-aan-de-volgende-slag~adfe7a11/)
+  > Zelfs de vaatwasser uitruimen lukte niet: een dubbele hersenschudding zette het leven van Winnifred Noorlander (32) volledig stil. Vier jaar later...
+- [Manchester United beleeft pijnlijke start en gaat onderuit bij promovendus Hull City](https://www.ad.nl/voetbal/manchester-united-beleeft-pijnlijke-start-en-gaat-onderuit-bij-promovendus-hull-city~acb9a1fc/)
+  > Manchester United beleefde zaterdagmiddag een valse start in de Premier League. De recordkampioen ging op bezoek bij promovendus Hull City met 2-0...
+- [Max Verstappen aast op goede uitgangspositie voor laatste Dutch GP](https://www.ad.nl/formule-1/max-verstappen-aast-op-goede-uitgangspositie-voor-laatste-dutch-gp~abf0542a/)
+  > Max Verstappen hoopt dit weekend het publiek nog één keer op de banken te krijgen bij de laatste editie van de Grand Prix van Nederland. Na een...
+- [Britten willen storm vernoemen naar Shaun het Schaap](https://www.ad.nl/show/britten-willen-storm-vernoemen-naar-shaun-het-schaap~a01122b1/)
+  > In het Verenigd Koninkrijk wordt in de toekomst mogelijk een storm vernoemd naar Shaun het Schaap. Het Britse Met Office had het publiek gevraagd om...
+- [Snoeiharde concurrentie in handel in populaire mysteryboxen: bedreigingen en intimidatie](https://www.ad.nl/den-haag/snoeiharde-concurrentie-in-handel-in-populaire-mysteryboxen-bedreigingen-en-intimidatie~af5ca403/)
+  > Het kopen van mysteryboxen is zó populair dat het aantal aanbieders toeneemt en daarmee ook de onderlinge concurrentie. In Scheveningen liep dit hoog...
 
 ### Meest gelezen
 
