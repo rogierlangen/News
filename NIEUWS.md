@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-08-2026 om 06:45*
+*Laatst bijgewerkt: 22-08-2026 om 07:34*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Amerikaanse tak van TikTok schikt voor 400 miljoen in kinderprivacyzaak](https://nos.nl/l/2627835)
+  > De Amerikaanse tak van TikTok heeft met een schikking een eind gemaakt aan de rechtszaak die het Amerikaanse ministerie van Justitie tegen het...
 - [Onderhandelingen Canada en VS mislukt, importheffingen naar 50 procent](https://nos.nl/l/2627827)
   > De Verenigde Staten en Canada zijn er niet in geslaagd een handelsakkoord te bereiken. Daarop heeft de VS aangekondigd 50 procent importheffingen te...
 - [Podcast De Dag: artsen over hun medische missers](https://nos.nl/l/2627825)
@@ -16,9 +18,6 @@
   > Goedemorgen! Het is vandaag dag twee van het laatste Formule 1-raceweekend in Zandvoort. Op het programma staat de sprintrace. Max Verstappen start...
 - [Tientallen agenten en supporters gewond bij voetbalderby in Duitsland](https://nos.nl/l/2627819)
   > Bij een bekerwedstrijd in Duitsland zijn tientallen agenten en supporters gewond geraakt. Van de 85 gewonden zijn er acht overgebracht naar het...
-- [Twee doden bij crash van klein vliegtuig in Kroatië](https://nos.nl/l/2627818)
-  > Bij de crash van een klein vliegtuig in Kroatië zijn gisteren twee mensen om het leven gekomen. Dat meldt de lokale politie.
-        Het ultralichte...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dolly Parton openhartig over gezondheidsproblemen: ‘Maar ik blijf werken’](https://www.ad.nl/show/dolly-parton-openhartig-over-gezondheidsproblemen-maar-ik-blijf-werken~af76c8e9/)
-  > Dolly Parton heeft haar gezondheid naar eigen zeggen verwaarloosd tijdens het ziekbed van haar overleden echtgenoot Carl Dean. Dat vertelde de...
-- [Waarom Duitsers massaal naar deze Nederlandse stad komen: ‘Volgend jaar weer terug!’](https://www.ad.nl/binnenland/waarom-duitsers-massaal-naar-deze-nederlandse-stad-komen-volgend-jaar-weer-terug~a55a9b85/)
-  > Amersfoort is allang niet meer ‘zomaar een stad in het midden van het land’, maar meer en meer een toeristische trekpleister. Opvallend daarin:...
-- [Zo laat start Max Verstappen vandaag in de sprintrace op Zandvoort en dit is de startopstelling](https://www.ad.nl/formule-1/zo-laat-start-max-verstappen-vandaag-in-de-sprintrace-op-zandvoort-en-dit-is-de-startopstelling~ac6e82c8/)
-  > Het Formule 1-seizoen wordt na een korte zomerstop hervat met een bijzondere race: de allerlaatste Dutch GP op het circuit van Zandvoort. En deze...
-- [Femke Broeders-Bol schrijft geschiedenis met Nederlands record op de 800 meter: ‘Ik ben erg blij en trots’](https://www.ad.nl/andere-sporten/femke-broeders-bol-schrijft-geschiedenis-met-nederlands-record-op-de-800-meter-ik-ben-erg-blij-en-trots~a901dc58/)
-  > Femke Broeders-Bol is de nieuwe Nederlandse recordhouder op de 800 meter. De atlete liep tijdens de Diamond League in het Zwitserse Lausanne een tijd...
-- [Geen Guardiola en Slot, en dus stapt De Jong op vlucht KL1543 naar Malaga: zo werd Xavi bondscoach](https://www.ad.nl/voetbal/geen-guardiola-en-slot-en-dus-stapt-de-jong-op-vlucht-kl1543-naar-malaga-zo-werd-xavi-bondscoach~a80598dc/)
-  > Dinsdagmiddag presenteert de KNVB eindelijk zijn nieuwe Oranje-bondscoach in Zeist: Xavi Hernández. Maar wat ging er allemaal schuil achter de...
+- [Schappen in sommige supermarkten in Kyiv leeg: ‘Dit product is door Rusland vernietigd’](https://www.ad.nl/buitenland/schappen-in-sommige-supermarkten-in-kyiv-leeg-dit-product-is-door-rusland-vernietigd~ae3a1751/)
+  > Rusland beschiet in Oekraïne ook supermarkten en voedselproducenten. Vooral de afgelopen twee weken was het raak. Daardoor is hier en daar een tekort...
+- [Fans van Corinthians pikken het niet: Memphis Depay zet het historische hoofdkwartier in brand in zijn nieuwe clip](https://www.ad.nl/voetbal/fans-van-corinthians-pikken-het-niet-memphis-depay-zet-het-historische-hoofdkwartier-in-brand-in-zijn-nieuwe-clip~a7b314f5/)
+  > Memphis Depay blijft de aandacht trekken. Deze keer in negatieve zin. Daags na zijn droomrentree in de Copa Libertadores tegen het Argentijnse...
+- [Politie sluit uit dat ‘Lucky’ vermiste Canadees is: zoektocht naar identiteit gaat door](https://www.ad.nl/binnenland/politie-sluit-uit-dat-lucky-vermiste-canadees-is-zoektocht-naar-identiteit-gaat-door~ac2643fd/)
+  > De man die bij de politie bekendstaat als ‘Lucky’ is definitief niet de al langere tijd vermiste Canadees John Russell Kenny. Dat meldt de politie...
+- [Laatste Dutch Grand Prix in Zandvoort maakt indruk in het buitenland: ‘Ik hoop dat we hier snel terugkomen’](https://www.ad.nl/formule-1/laatste-dutch-grand-prix-in-zandvoort-maakt-indruk-in-het-buitenland-ik-hoop-dat-we-hier-snel-terugkomen~a63d9b96/)
+  > Dat Max Verstappen en Nederlandse Formule 1-fans de Dutch Grand Prix gaan missen, is duidelijk. Maar wat vinden ze in het buitenland eigenlijk van de...
+- [Na de zonsverduistering krijgen we een maansverduistering: vroeg opstaan voor oranje spektakel](https://www.ad.nl/binnenland/na-de-zonsverduistering-krijgen-we-een-maansverduistering-vroeg-opstaan-voor-oranje-spektakel~abf70cb7/)
+  > We zijn nog amper uitgepraat over de zonsverduistering van vorige week, of de volgende eclips komt er alweer aan. Deze keer heb je alleen geen...
 
 ### Meest gelezen
 
