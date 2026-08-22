@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-08-2026 om 07:34*
+*Laatst bijgewerkt: 22-08-2026 om 08:33*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Volgende week vrijdag gedeeltelijke maansverduistering te zien in Nederland](https://nos.nl/l/2627842)
+  > Ruim twee weken na de zonsverduistering kunnen liefhebbers zich nog eens vergapen aan de verduistering van een hemellichaam. Ditmaal zonder dat er...
+- [Mexicanen komen in actie om Cuba te helpen, nu regering onder druk van de VS een stap terugdoet](https://nos.nl/l/2627838)
+  > Tientallen dozen staan voor een huis in Mexico-Stad. Er zitten vooral medicijnen en medische hulpmiddelen in, zoals dialysezakken voor...
 - [Amerikaanse tak van TikTok schikt voor 400 miljoen in kinderprivacyzaak](https://nos.nl/l/2627835)
   > De Amerikaanse tak van TikTok heeft met een schikking een eind gemaakt aan de rechtszaak die het Amerikaanse ministerie van Justitie tegen het...
 - [Onderhandelingen Canada en VS mislukt, importheffingen naar 50 procent](https://nos.nl/l/2627827)
   > De Verenigde Staten en Canada zijn er niet in geslaagd een handelsakkoord te bereiken. Daarop heeft de VS aangekondigd 50 procent importheffingen te...
 - [Podcast De Dag: artsen over hun medische missers](https://nos.nl/l/2627825)
   > Zo'n 750 keer per jaar gaan er in ziekenhuizen dingen mis, waardoor een patiënt ernstig letsel overhoudt of zelfs overlijdt. Betrokken artsen en...
-- [Wekdienst 22/8: Sprintrace in Zandvoort • Prinsengrachtconcert in hartje Amsterdam](https://nos.nl/l/2627822)
-  > Goedemorgen! Het is vandaag dag twee van het laatste Formule 1-raceweekend in Zandvoort. Op het programma staat de sprintrace. Max Verstappen start...
-- [Tientallen agenten en supporters gewond bij voetbalderby in Duitsland](https://nos.nl/l/2627819)
-  > Bij een bekerwedstrijd in Duitsland zijn tientallen agenten en supporters gewond geraakt. Van de 85 gewonden zijn er acht overgebracht naar het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Schappen in sommige supermarkten in Kyiv leeg: ‘Dit product is door Rusland vernietigd’](https://www.ad.nl/buitenland/schappen-in-sommige-supermarkten-in-kyiv-leeg-dit-product-is-door-rusland-vernietigd~ae3a1751/)
-  > Rusland beschiet in Oekraïne ook supermarkten en voedselproducenten. Vooral de afgelopen twee weken was het raak. Daardoor is hier en daar een tekort...
-- [Fans van Corinthians pikken het niet: Memphis Depay zet het historische hoofdkwartier in brand in zijn nieuwe clip](https://www.ad.nl/voetbal/fans-van-corinthians-pikken-het-niet-memphis-depay-zet-het-historische-hoofdkwartier-in-brand-in-zijn-nieuwe-clip~a7b314f5/)
-  > Memphis Depay blijft de aandacht trekken. Deze keer in negatieve zin. Daags na zijn droomrentree in de Copa Libertadores tegen het Argentijnse...
-- [Politie sluit uit dat ‘Lucky’ vermiste Canadees is: zoektocht naar identiteit gaat door](https://www.ad.nl/binnenland/politie-sluit-uit-dat-lucky-vermiste-canadees-is-zoektocht-naar-identiteit-gaat-door~ac2643fd/)
-  > De man die bij de politie bekendstaat als ‘Lucky’ is definitief niet de al langere tijd vermiste Canadees John Russell Kenny. Dat meldt de politie...
-- [Laatste Dutch Grand Prix in Zandvoort maakt indruk in het buitenland: ‘Ik hoop dat we hier snel terugkomen’](https://www.ad.nl/formule-1/laatste-dutch-grand-prix-in-zandvoort-maakt-indruk-in-het-buitenland-ik-hoop-dat-we-hier-snel-terugkomen~a63d9b96/)
-  > Dat Max Verstappen en Nederlandse Formule 1-fans de Dutch Grand Prix gaan missen, is duidelijk. Maar wat vinden ze in het buitenland eigenlijk van de...
-- [Na de zonsverduistering krijgen we een maansverduistering: vroeg opstaan voor oranje spektakel](https://www.ad.nl/binnenland/na-de-zonsverduistering-krijgen-we-een-maansverduistering-vroeg-opstaan-voor-oranje-spektakel~abf70cb7/)
-  > We zijn nog amper uitgepraat over de zonsverduistering van vorige week, of de volgende eclips komt er alweer aan. Deze keer heb je alleen geen...
+- [TransferTalk | Ex-PSV’er keert terug in eigen land, Feyenoord hengelt naar Nigeriaan, Liverpool-bod van 60 miljoen op Minteh afgewezen](https://www.ad.nl/voetbal/transfertalk-ex-psver-keert-terug-in-eigen-land-feyenoord-hengelt-naar-nigeriaan-liverpool-bod-van-60-miljoen-op-minteh-afgewezen~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Lymfatisch wandelen wordt populairder, maar wat is het en is het echt zo gezond?](https://www.ad.nl/gezond/lymfatisch-wandelen-wordt-populairder-maar-wat-is-het-en-is-het-echt-zo-gezond~a665445e/)
+  > Last van een opgeblazen gevoel? Lymfatisch wandelen is de nieuwste workout tegen vochtophoping in je lichaam. Het is laagdrempelig, maar is het ook...
+- [Elke vijf minuten een trein en toch is het station ramvol: duizenden fans naar Zandvoort voor Formule 1](https://www.ad.nl/binnenland/elke-vijf-minuten-een-trein-en-toch-is-het-station-ramvol-duizenden-fans-naar-zandvoort-voor-formule-1~af8ad690/)
+  > Op zaterdagochtend hebben tussen 07.00 en 09.00 uur al ruim 17.000 racefans de trein naar Zandvoort genomen, meldt NS. Daar vindt dit weekend de...
+- [Lionel Messi krijgt boete van MLS na tik in nek bij opstootjes tegen Philadelphia](https://www.ad.nl/voetbal/lionel-messi-krijgt-boete-van-mls-na-tik-in-nek-bij-opstootjes-tegen-philadelphia~a2d0fc28/)
+  > Lionel Messi heeft een boete gekregen van de Major League Soccer (MLS). De Argentijnse spelmaker van Inter Miami wordt bestraft, omdat hij in de...
+- [Hoe is het nu met...? Tv-omroepster Paula Patricio: ‘Ik ben absoluut geen geraniumtype’](https://www.ad.nl/show/hoe-is-het-nu-met-tv-omroepster-paula-patricio-ik-ben-absoluut-geen-geraniumtype~a0cb5e7f/)
+  > Waar zijn ze gebleven? Een BN’er die de schijnwerpers achter zich heeft gelaten praat je in deze rubriek bij. Vandaag: voormalig tv-omroepster en...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Ben & Jerry’s verliest grootste deel van rechtszaak tegen voormalige moederbedrijf Unilever](https://fd.nl/bedrijfsleven/1609912/ben-jerrys-verliest-grootste-deel-van-rechtszaak-tegen-voormalige-moederbedrijf-unilever)
+  > Het ijsmerk beschuldigde zijn voormalige moederbedrijf ervan de sociale activiteiten van de ijsfabrikant te willen dwarsbomen, de raad van bestuur te...
+- [VS leggen 50% importheffing op Canadese goederen na klappen van handelsgesprekken](https://fd.nl/economie/1609803/vs-leggen-50-impotheffing-op-canadese-goederen-na-klappen-van-handelsgesprekken)
+  > De Canadese premier Mark Carney zei dat hij de gesprekken had opgeschort en dat zijn regering de heffingen ‘dollar voor dollar’ gaat betalen om...
 - [Gaat de stijgende rente pijn doen? En krijgt de consument Trumps heffingen terug?](https://fd.nl/economie/1609704/gaat-de-stijgende-rente-pijn-doen-en-krijgt-de-consument-trumps-heffingen-terug)
   > Bedrijven krijgen miljarden terug van Trumps heffingen, maar ziet de consument daar ooit iets van terug? En terwijl Trump probeert China buitenspel...
 - [Een artistieke wandeling in het park](https://fd.nl/samenleving/1609307/een-artistieke-wandeling-in-het-park)
   > Niet museumzalen, maar een groen, zomers park als expositieruimte. Sonsbeek 2026, in Arnhem, is een van Europa’s oudste kunstmanifestaties.
 - [Aandelen verkopen als de handelsdag voorbij is wint terrein](https://fd.nl/financiele-markten/1609305/aandelen-verkopen-als-de-handelsdag-voorbij-is-wint-terrein)
   > Er wordt meer kapitaal opgehaald via snelle aandelenemissies. Nieuwe regels geven particulieren nadrukkelijker toegang tot deze markt.
-- [Trumps Iran-oorlog legt de zwakte van het ‘sterkste leger ter wereld’ genadeloos bloot](https://fd.nl/politiek/1608094/trumps-iran-oorlog-legt-de-zwakte-van-het-sterkste-leger-ter-wereld-genadeloos-bloot)
-  > Het Amerikaanse leger loopt tegen zijn grenzen aan in Iran. ‘Imperial overstretch’ dreigt. Trumps impulsiviteit en gebrek aan visie breken hem op.
-- [Bono, prikken en de pijnlijke waarheid](https://fd.nl/opinie/1609778/bono-prikken-en-de-pijnlijke-waarheid)
-  > Het is voor artiesten en andere influencers keihard werken om aandacht te krijgen en te houden. Daar zijn verschillende trucjes voor.
 
 ### Meest gelezen
 
