@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-08-2026 om 15:24*
+*Laatst bijgewerkt: 22-08-2026 om 16:27*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Dode dwergvinvis aangespoeld op Vlieland, voor het eerst in 26 jaar](https://nos.nl/l/2627892)
+  > Aan de westkant van Vlieland is een dode dwergvinvis aangespoeld. Het dier is al in vergevorderde staat van ontbinding: de kop en staart ontbreken.
+ ...
+- [Servië wil toch hulp van EU bij blussen natuurbrand](https://nos.nl/l/2627891)
+  > Servië roept toch de hulp in van de Europese Unie bij de bestrijding van een enorme natuurbrand. Eerder deze week sloeg de regering de Europese...
 - [Elf gewonden door extreme regenval aan Spaanse Costa Dorada](https://nos.nl/l/2627887)
   > Afgelopen nacht zijn aan de Costa Dorada in Noordoost-Spanje zeker elf gewonden gevallen na extreme regenbuien. De Spaanse krant El País schrijft dat...
 - [Ruim 200 schademeldingen na aardbeving bij Zandeweer in Groningen](https://nos.nl/l/2627882)
   > Na de aardbeving van gisterochtend bij het Groningse dorp Zandeweer zijn ruim 200 schademeldingen binnengekomen bij het Instituut Mijnbouwschade...
 - [Zeven doden na politieachtervolging in Middlesbrough](https://nos.nl/l/2627879)
   > Bij een ernstig ongeluk in Middlesbrough, in het noordoosten van Engeland, zijn zeven mensen omgekomen. Aan het ongeluk ging een politieachtervolging...
-- [Pentagon ontslaat leiding van militaire krant](https://nos.nl/l/2627877)
-  > Het Amerikaanse ministerie van Defensie heeft de hoofdredacteur, de uitgever en een vooraanstaand verslaggever van de militaire krant Stars and...
-- [De rel rond Trumps 'menselijke printer': wie is Natalie Harp?](https://nos.nl/l/2627875)
-  > Het was maar een zinnetje, ogenschijnlijk achteloos uitgesproken door de Democratische senator Jon Ossoff tijdens een campagnetoespraak voor de...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [S10 staat op Lowlands stil bij overlijden tweelingbroer: ‘Ik heb een zwaar jaar’](https://www.ad.nl/show/s10-staat-op-lowlands-stil-bij-overlijden-tweelingbroer-ik-heb-een-zwaar-jaar~a1e375b6/)
-  > S10 heeft tijdens haar concert op Lowlands zaterdagmiddag stilgestaan bij het overlijden van haar tweelingbroer Emiel. De zangeres, die in het echt...
-- [LIVE WK hockey | Hockeymannen openen in derde kwart de score tegen India via Duco Telgenkamp](https://www.ad.nl/andere-sporten/live-wk-hockey-hockeymannen-openen-in-derde-kwart-de-score-tegen-india-via-duco-telgenkamp~a2d85c4c/)
-  > Waar de Nederlandse hockeyvrouwen met 2-0 wonnen van India, is het nu de taak aan de mannen. Bij een zege zet Oranje een reuzestap richting de halve...
-- [Laatste kunststukje Max Verstappen héél ver weg in Zandvoort, Lando Norris op pole](https://www.ad.nl/formule-1/laatste-kunststukje-max-verstappen-heel-ver-weg-in-zandvoort-lando-norris-op-pole~abf0542a/)
-  > Max Verstappen begint morgen bij de laatste Dutch Grand Prix vanaf een teleurstellende zevende plek. Lando Norris snelde zich, vlak voordat het begon...
-- [Na gemist WK-avontuur: Orgel Joke verzorgt Wilhelmus bij hockeywedstrijd Nederland - India](https://www.ad.nl/show/na-gemist-wk-avontuur-orgel-joke-verzorgt-wilhelmus-bij-hockeywedstrijd-nederland-india~af65bd37/)
-  > Het was een grote teleurstelling toen Orgel Joke te horen kreeg dat haar optreden voor het WK voetbal niet doorging. Gelukkig kreeg ze zaterdagmiddag...
-- [Jarenlang prees ING deze huurbemiddelaar aan als vertrouwde partij: waarom ontbreekt er nu dan zo’n 37.000 euro?](https://www.ad.nl/binnenland/jarenlang-prees-ing-deze-huurbemiddelaar-aan-als-vertrouwde-partij-waarom-ontbreekt-er-nu-dan-zon-37-000-euro~a8f37109/)
-  > Hij werd verwijderd van huurplatform Pararius en verscheen vier keer voor de rechter. Toch mocht hij jarenlang zijn diensten aanprijzen via ING....
+- [Koploper AZ boekt dankzij Jizz Hornkamp zege op tiental Fortuna Sittard](https://www.ad.nl/voetbal/koploper-az-boekt-dankzij-jizz-hornkamp-zege-op-tiental-fortuna-sittard~a2488f74/)
+  > Fortuna Sittard hield AZ lang van scoren af, ondanks dat de thuisploeg vrijwel de hele wedstrijd met tien man speelde. Met twee doelpunten werd Jizz...
+- [Grieperige Max Verstappen duikt in Zandvoort snel zijn bed in: ‘Ik heb me weleens beter gevoeld’](https://www.ad.nl/formule-1/grieperige-max-verstappen-duikt-in-zandvoort-snel-zijn-bed-in-ik-heb-me-weleens-beter-gevoeld~a89915e2/)
+  > Max Verstappen beleeft niet bepaald zijn gedroomde afscheidsweekend van de Dutch Grand Prix. In de sprintrace werd hij zesde, waarna hij in de...
+- [Eerste favoriet van start in openingstijdrit, wie pakt de rode trui in de woonplaats van Tadej Pogacar?](https://www.ad.nl/vuelta/eerste-favoriet-van-start-in-openingstijdrit-wie-pakt-de-rode-trui-in-de-woonplaats-van-tadej-pogacar~a313da085/)
+  > De 81ste Ronde van Spanje gaat vandaag van start met een individuele tijdrit van 9,4 kilometer in Monaco, de woonplaats van Tadej Pogacar. De...
+- [Honderden jaren ervaring versus de jongste beloften: de generatieclash in de eredivisie in cijfers](https://www.ad.nl/voetbal/honderden-jaren-ervaring-versus-de-jongste-beloften-de-generatieclash-in-de-eredivisie-in-cijfers~ae9ece64/)
+  > De leeftijdsverschillen in de eredivisie zijn dit seizoen ongekend groot. Terwijl routiniers als Remko Pasveer en Tjaronn Chery gezamenlijk...
+- [Voor 190 euro slaap je tussen de grafzerken in Fries gehucht: is deze kerk de prijs waard?](https://www.ad.nl/binnenland/voor-190-euro-slaap-je-tussen-de-grafzerken-in-fries-gehucht-is-deze-kerk-de-prijs-waard~aeb2e40d/)
+  > Top of flop? Deze zomer sturen we onze verslaggevers naar curieuze overnachtingsadressen, met één hamvraag: is het de prijs waard? Dit keer: Hanneke...
 
 ### Meest gelezen
 
