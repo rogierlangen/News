@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-08-2026 om 02:56*
+*Laatst bijgewerkt: 22-08-2026 om 03:48*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Tientallen agenten en supporters gewond bij voetbalderby in Duitsland](https://nos.nl/l/2627819)
+  > Bij een bekerwedstrijd in Duitsland zijn tientallen agenten en supporters gewond geraakt. Van de 85 gewonden zijn er acht overgebracht naar het...
 - [Twee doden bij crash van klein vliegtuig in Kroatië](https://nos.nl/l/2627818)
   > Bij de crash van een klein vliegtuig in Kroatië zijn gisteren twee mensen om het leven gekomen. Dat meldt de lokale politie.
         Het ultralichte...
@@ -18,8 +20,6 @@
   > In verschillende steden in het land heeft actiegroep Dolle Mina's fietsend opnieuw aandacht gevraagd voor de veiligheid van vrouwen. Een jaar geleden...
 - [Studentenvereniging komt met campagne om bangalijsten te voorkomen](https://nos.nl/l/2627809)
   > De Utrechtsche Vrouwelijke Studentenvereniging (UVSV) wil dat studenten beter nadenken voordat ze video's, foto's of stickers van anderen delen. UVSV...
-- [Drie arrestaties voor vermissing producent Rodney Leysner in Suriname](https://nos.nl/l/2627803)
-  > In de zoektocht naar de sinds zaterdag vermiste Nederlandse filmproducent Rodney Leysner heeft de Surinaamse politie drie verdachten aangehouden. Een...
 
 ### Meest gelezen
 
@@ -29,6 +29,8 @@
 
 ### Laatste nieuws
 
+- [LIVE VS | Rechter VS verbiedt immigratiebeperkingen voor 75 landen: ‘Rubio overschreed bevoegdheden’](https://www.ad.nl/buitenland/live-vs-rechter-vs-verbiedt-immigratiebeperkingen-voor-75-landen-rubio-overschreed-bevoegdheden~ae67dd9c/)
+  > Een Amerikaanse rechter heeft vrijdag een eind gemaakt aan immigratiebeperkingen die de regering-Trump had opgelegd aan inwoners van 75 landen....
 - [Migrantenboot zinkt voor Tunesische kust: 13 vermisten](https://www.ad.nl/buitenland/migrantenboot-zinkt-voor-tunesische-kust-13-vermisten~ae9af676/)
   > Zeker dertien Tunesiërs worden vermist nadat hun boot zonk voor de Tunesische kust. Twee opvarenden zijn gered, meldde het Tunesische Observatorium...
 - [Twee doden bij bombardementen op Kyiv, Russische aanval op winkelcentrum eist 15 doden, ruim 130 gewonden](https://www.ad.nl/buitenland/twee-doden-bij-bombardementen-op-kyiv-russische-aanval-op-winkelcentrum-eist-15-doden-ruim-130-gewonden~adfb97be/)
@@ -37,8 +39,6 @@
   > In meerdere steden zijn in de nacht van vrijdag op zaterdag opnieuw honderden mensen op de fiets gestapt om aandacht te vragen voor de veiligheid van...
 - [Jetten gaat in standje-Rutte: optimistisch blijven terwijl de oppositie ‘narrig’ richting Prinsjesdag gaat](https://www.ad.nl/politiek/jetten-gaat-in-standje-rutte-optimistisch-blijven-terwijl-de-oppositie-narrig-richting-prinsjesdag-gaat~af9658196/)
   > Nog maar zes dagen en dan moet het kabinet een Prinsjesdag-begroting op papier hebben staan. Volgens oppositiepartijen zit er weinig schot in de...
-- [Canadese tiener met neonazistische ideeën opgepakt die aanslag plande op school in Montreal](https://www.ad.nl/buitenland/canadese-tiener-met-neonazistische-ideeen-opgepakt-die-aanslag-plande-op-school-in-montreal~a1cdda0b/)
-  > De Canadese politie heeft vrijdag een minderjarige jongen met neonazistische sympathieën gearresteerd. Hij wordt verdacht van het voorbereiden van...
 
 ### Meest gelezen
 
@@ -48,6 +48,8 @@
 
 ### Laatste nieuws
 
+- [Gaat de stijgende rente pijn doen? En krijgt de consument Trumps heffingen terug?](https://fd.nl/economie/1609704/gaat-de-stijgende-rente-pijn-doen-en-krijgt-de-consument-trumps-heffingen-terug)
+  > Bedrijven krijgen miljarden terug van Trumps heffingen, maar ziet de consument daar ooit iets van terug? En terwijl Trump probeert China buitenspel...
 - [Een artistieke wandeling in het park](https://fd.nl/samenleving/1609307/een-artistieke-wandeling-in-het-park)
   > Niet museumzalen, maar een groen, zomers park als expositieruimte. Sonsbeek 2026, in Arnhem, is een van Europa’s oudste kunstmanifestaties.
 - [Aandelen verkopen als de handelsdag voorbij is wint terrein](https://fd.nl/financiele-markten/1609305/aandelen-verkopen-als-de-handelsdag-voorbij-is-wint-terrein)
@@ -56,8 +58,6 @@
   > Het Amerikaanse leger loopt tegen zijn grenzen aan in Iran. ‘Imperial overstretch’ dreigt. Trumps impulsiviteit en gebrek aan visie breken hem op.
 - [Bono, prikken en de pijnlijke waarheid](https://fd.nl/opinie/1609778/bono-prikken-en-de-pijnlijke-waarheid)
   > Het is voor artiesten en andere influencers keihard werken om aandacht te krijgen en te houden. Daar zijn verschillende trucjes voor.
-- [De energietransitie is hoe dan ook betaalbaar](https://fd.nl/economie/1609694/de-energietransitie-is-hoe-dan-ook-betaalbaar)
-  > Het idee dat energie te duur wordt door de energietransitie en de benodigde miljardeninvesteringen niet te vinden zijn, is een misverstand.
 
 ### Meest gelezen
 
