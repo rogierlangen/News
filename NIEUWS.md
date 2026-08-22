@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-08-2026 om 17:23*
+*Laatst bijgewerkt: 22-08-2026 om 18:34*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Rotterdam ontslaat twee ambtenaren vanwege corruptie](https://nos.nl/l/2627915)
+  > De gemeente Rotterdam heeft deze zomer twee ambtenaren op staande voet ontslagen die zich zouden hebben laten omkopen bij bouwprojecten. De maatregel...
 - [Madonna's verjaardagsfeest op Grieks eiland veroorzaakt politieke rel](https://nos.nl/l/2627902)
   > Popster Madonna heeft in Griekenland een politieke rel veroorzaakt. Ze vierde afgelopen zondag haar 68e verjaardag op het eiland Corfu, maar een...
 - [Dode dwergvinvis aangespoeld op Vlieland, voor het eerst in 26 jaar](https://nos.nl/l/2627892)
@@ -17,8 +19,6 @@
   > Servië roept toch de hulp in van de Europese Unie bij de bestrijding van een enorme natuurbrand. Eerder deze week sloeg de regering de Europese...
 - [Elf gewonden door extreme regenval aan Spaanse Costa Dorada](https://nos.nl/l/2627887)
   > Afgelopen nacht zijn aan de Costa Dorada in Noordoost-Spanje zeker elf gewonden gevallen na extreme regenbuien. De Spaanse krant El País schrijft dat...
-- [Ruim 200 schademeldingen na aardbeving bij Zandeweer in Groningen](https://nos.nl/l/2627882)
-  > Na de aardbeving van gisterochtend bij het Groningse dorp Zandeweer zijn ruim 200 schademeldingen binnengekomen bij het Instituut Mijnbouwschade...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Ethan Hayter duikt onder de tijd van Joshua Tarling, wat kunnen Van Aert en Pogacar in jacht op rode trui?](https://www.ad.nl/vuelta/ethan-hayter-duikt-onder-de-tijd-van-joshua-tarling-wat-kunnen-van-aert-en-pogacar-in-jacht-op-rode-trui~a313da085/)
-  > De 81ste Ronde van Spanje gaat vandaag van start met een individuele tijdrit van 9,4 kilometer in Monaco, de woonplaats van Tadej Pogacar. De...
-- [Verkoopt je huis echt beter als je dat muurtje nog even verft? ‘Woonblindheid’ is valkuil](https://www.ad.nl/wonen/verkoopt-je-huis-echt-beter-als-je-dat-muurtje-nog-even-verft-woonblindheid-is-valkuil~a4514271/)
-  > Als je jouw huis gaat verkopen, dan wil je natuurlijk dat het er perfect uitziet. Verf je dus een trendgevoelige kleur over, haal je persoonlijke...
-- [Poetin: Oekraïne heeft doos van Pandora geopend met aanvallen](https://www.ad.nl/buitenland/poetin-oekraine-heeft-doos-van-pandora-geopend-met-aanvallen~a88b9656/)
-  > Oekraïne heeft met luchtaanvallen op economische doelen in Rusland een doos van Pandora geopend, volgens president Vladimir Poetin. Rusland...
-- [LIVE eredivisie | Hoekschop levert FC Utrecht de voorsprong op, Sparta moet in de achtervolging](https://www.ad.nl/voetbal/live-eredivisie-hoekschop-levert-fc-utrecht-de-voorsprong-op-sparta-moet-in-de-achtervolging~ad521538/)
+- [Zangeres en songwriter Lakshmi: ‘Op mijn vijfde dacht ik dat ik een alien was’](https://www.ad.nl/gezond/zangeres-en-songwriter-lakshmi-op-mijn-vijfde-dacht-ik-dat-ik-een-alien-was~a7f37567/)
+  > Lakshmi voelde zich als kind al anders, baalt weleens van haar lengte en ook dat ze vaak jonger ingeschat wordt. ‘Hallo, ik ben 33,’ denkt ze dan. In...
+- [Denzel Dumfries gaat officiële debuut maken voor Real Madrid: Oranje-international in de basis tegen Espanyol](https://www.ad.nl/voetbal/denzel-dumfries-gaat-officiele-debuut-maken-voor-real-madrid-oranje-international-in-de-basis-tegen-espanyol~ae2059bf/)
+  > Real Madrid begint vanavond aan het nieuwe seizoen van La Liga. Tegenstander is Espanyol. Denzel Dumfries, die deze zomer de overstap maakte van...
+- [Een ‘low calorie’-biertje waarmee je ‘bewust kiest’? Misleidend, zegt onderzoeker](https://www.ad.nl/binnenland/een-low-calorie-biertje-waarmee-je-bewust-kiest-misleidend-zegt-onderzoeker~a4f2627d/)
+  > Van het nieuwe ‘Grolsch Cal’ (bier met minder calorieën) tot fruitige hard seltzers: de alcoholhoudende drankjes met een ‘gezonde’ uitstraling zijn...
+- [FC Utrecht voor derde keer aan de leiding, wat kan Sparta nog in de spannende slotfase?](https://www.ad.nl/voetbal/fc-utrecht-voor-derde-keer-aan-de-leiding-wat-kan-sparta-nog-in-de-spannende-slotfase~ad521538/)
   > FC Utrecht kent een slecht begin van het eredivisieseizoen. De ploeg van Anthony Correia pakte nog geen punt. Sparta zegevierde vorige week op bezoek...
-- [Invaller Pepijn Reulen kopt NAC in slotfase naar zege op Jong Ajax](https://www.ad.nl/voetbal/invaller-pepijn-reulen-kopt-nac-in-slotfase-naar-zege-op-jong-ajax~a582ec98/)
-  > NAC Breda heeft de thuiswedstrijd tegen Jong Ajax met veel moeite gewonnen. De thuisploeg, afgelopen seizoen actief in de eredivisie, zegevierde met...
+- [Bayern München en Borussia Dortmund op jacht naar eerste prijs van seizoen, Saibari en Veerman op de bank](https://www.ad.nl/voetbal/bayern-munchen-en-borussia-dortmund-op-jacht-naar-eerste-prijs-van-seizoen-saibari-en-veerman-op-de-bank~a0352519/)
+  > Het Duitse voetbal wordt vanavond afgetrapt met de strijd om de Supercup tussen Bayern München en Borussia Dortmund. Maakt Joey Veerman na zijn...
 
 ### Meest gelezen
 
