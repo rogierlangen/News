@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-08-2026 om 18:34*
+*Laatst bijgewerkt: 22-08-2026 om 19:24*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Canada komt met tegenheffingen op Amerikaanse producten](https://nos.nl/l/2627921)
+  > Canada komt met tegenmaatregelen als reactie op de Amerikaanse importheffingen van 50 procent op enkele Canadese producten. Vanaf 8 september zal het...
 - [Rotterdam ontslaat twee ambtenaren vanwege corruptie](https://nos.nl/l/2627915)
   > De gemeente Rotterdam heeft deze zomer twee ambtenaren op staande voet ontslagen die zich zouden hebben laten omkopen bij bouwprojecten. De maatregel...
 - [Madonna's verjaardagsfeest op Grieks eiland veroorzaakt politieke rel](https://nos.nl/l/2627902)
@@ -17,8 +19,6 @@
  ...
 - [Servië wil toch hulp van EU bij blussen natuurbrand](https://nos.nl/l/2627891)
   > Servië roept toch de hulp in van de Europese Unie bij de bestrijding van een enorme natuurbrand. Eerder deze week sloeg de regering de Europese...
-- [Elf gewonden door extreme regenval aan Spaanse Costa Dorada](https://nos.nl/l/2627887)
-  > Afgelopen nacht zijn aan de Costa Dorada in Noordoost-Spanje zeker elf gewonden gevallen na extreme regenbuien. De Spaanse krant El País schrijft dat...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Zangeres en songwriter Lakshmi: ‘Op mijn vijfde dacht ik dat ik een alien was’](https://www.ad.nl/gezond/zangeres-en-songwriter-lakshmi-op-mijn-vijfde-dacht-ik-dat-ik-een-alien-was~a7f37567/)
-  > Lakshmi voelde zich als kind al anders, baalt weleens van haar lengte en ook dat ze vaak jonger ingeschat wordt. ‘Hallo, ik ben 33,’ denkt ze dan. In...
-- [Denzel Dumfries gaat officiële debuut maken voor Real Madrid: Oranje-international in de basis tegen Espanyol](https://www.ad.nl/voetbal/denzel-dumfries-gaat-officiele-debuut-maken-voor-real-madrid-oranje-international-in-de-basis-tegen-espanyol~ae2059bf/)
-  > Real Madrid begint vanavond aan het nieuwe seizoen van La Liga. Tegenstander is Espanyol. Denzel Dumfries, die deze zomer de overstap maakte van...
-- [Een ‘low calorie’-biertje waarmee je ‘bewust kiest’? Misleidend, zegt onderzoeker](https://www.ad.nl/binnenland/een-low-calorie-biertje-waarmee-je-bewust-kiest-misleidend-zegt-onderzoeker~a4f2627d/)
-  > Van het nieuwe ‘Grolsch Cal’ (bier met minder calorieën) tot fruitige hard seltzers: de alcoholhoudende drankjes met een ‘gezonde’ uitstraling zijn...
-- [FC Utrecht voor derde keer aan de leiding, wat kan Sparta nog in de spannende slotfase?](https://www.ad.nl/voetbal/fc-utrecht-voor-derde-keer-aan-de-leiding-wat-kan-sparta-nog-in-de-spannende-slotfase~ad521538/)
-  > FC Utrecht kent een slecht begin van het eredivisieseizoen. De ploeg van Anthony Correia pakte nog geen punt. Sparta zegevierde vorige week op bezoek...
-- [Bayern München en Borussia Dortmund op jacht naar eerste prijs van seizoen, Saibari en Veerman op de bank](https://www.ad.nl/voetbal/bayern-munchen-en-borussia-dortmund-op-jacht-naar-eerste-prijs-van-seizoen-saibari-en-veerman-op-de-bank~a0352519/)
+- [Beslist Bayern duel met Dortmund al voor rust? Olise vergroot marge, Veerman en Saibari op de bank](https://www.ad.nl/voetbal/beslist-bayern-duel-met-dortmund-al-voor-rust-olise-vergroot-marge-veerman-en-saibari-op-de-bank~a0352519/)
   > Het Duitse voetbal wordt vanavond afgetrapt met de strijd om de Supercup tussen Bayern München en Borussia Dortmund. Maakt Joey Veerman na zijn...
+- [Lowlands is niet alleen bier en bandjes: er wordt dit jaar ook onderzoek gedaan naar stress na kanker](https://www.ad.nl/wetenschap/lowlands-is-niet-alleen-bier-en-bandjes-er-wordt-dit-jaar-ook-onderzoek-gedaan-naar-stress-na-kanker~a647bea2/)
+  > Lowlands staat bekend om muziek, bier en feest. Maar op het sciencepark van het festival draait het dit weekend ook om wetenschap. Bij een kleurrijke...
+- [Heerenveen in eigen huis tegen PEC Zwolle op jacht naar plek twee](https://www.ad.nl/voetbal/heerenveen-in-eigen-huis-tegen-pec-zwolle-op-jacht-naar-plek-twee~aee4fb24/)
+  > Heerenveen ontvangt na het gelijkspel tegen Ajax (2-2) in eigen huis PEC Zwolle. De Zwollenaren hebben nog geen punt gepakt en snakken dus naar een...
+- [Portugese voetballer Quevin Castro (25) overleden tijdens wedstrijd](https://www.ad.nl/voetbal/portugese-voetballer-quevin-castro-25-overleden-tijdens-wedstrijd~a80ad494/)
+  > De Portugese voetballer Quevin Castro is op 25-jarige leeftijd overleden tijdens een oefenwedstrijd van zijn club Real Sport Clube, die uitkomt op...
+- [Bekijk hier alle zomertransfers in de eredivisie](https://www.ad.nl/voetbal/bekijk-hier-alle-zomertransfers-in-de-eredivisie~a0d7efae/)
+  > De zomerse transferwindow van de eredivisie en de Keuken Kampioen Divisie is geopend. De Nederlandse transfermarkt sluit op woensdag 2 september om...
 
 ### Meest gelezen
 
