@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-08-2026 om 16:27*
+*Laatst bijgewerkt: 22-08-2026 om 17:23*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Madonna's verjaardagsfeest op Grieks eiland veroorzaakt politieke rel](https://nos.nl/l/2627902)
+  > Popster Madonna heeft in Griekenland een politieke rel veroorzaakt. Ze vierde afgelopen zondag haar 68e verjaardag op het eiland Corfu, maar een...
 - [Dode dwergvinvis aangespoeld op Vlieland, voor het eerst in 26 jaar](https://nos.nl/l/2627892)
   > Aan de westkant van Vlieland is een dode dwergvinvis aangespoeld. Het dier is al in vergevorderde staat van ontbinding: de kop en staart ontbreken.
  ...
@@ -17,8 +19,6 @@
   > Afgelopen nacht zijn aan de Costa Dorada in Noordoost-Spanje zeker elf gewonden gevallen na extreme regenbuien. De Spaanse krant El País schrijft dat...
 - [Ruim 200 schademeldingen na aardbeving bij Zandeweer in Groningen](https://nos.nl/l/2627882)
   > Na de aardbeving van gisterochtend bij het Groningse dorp Zandeweer zijn ruim 200 schademeldingen binnengekomen bij het Instituut Mijnbouwschade...
-- [Zeven doden na politieachtervolging in Middlesbrough](https://nos.nl/l/2627879)
-  > Bij een ernstig ongeluk in Middlesbrough, in het noordoosten van Engeland, zijn zeven mensen omgekomen. Aan het ongeluk ging een politieachtervolging...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Koploper AZ boekt dankzij Jizz Hornkamp zege op tiental Fortuna Sittard](https://www.ad.nl/voetbal/koploper-az-boekt-dankzij-jizz-hornkamp-zege-op-tiental-fortuna-sittard~a2488f74/)
-  > Fortuna Sittard hield AZ lang van scoren af, ondanks dat de thuisploeg vrijwel de hele wedstrijd met tien man speelde. Met twee doelpunten werd Jizz...
-- [Grieperige Max Verstappen duikt in Zandvoort snel zijn bed in: ‘Ik heb me weleens beter gevoeld’](https://www.ad.nl/formule-1/grieperige-max-verstappen-duikt-in-zandvoort-snel-zijn-bed-in-ik-heb-me-weleens-beter-gevoeld~a89915e2/)
-  > Max Verstappen beleeft niet bepaald zijn gedroomde afscheidsweekend van de Dutch Grand Prix. In de sprintrace werd hij zesde, waarna hij in de...
-- [Eerste favoriet van start in openingstijdrit, wie pakt de rode trui in de woonplaats van Tadej Pogacar?](https://www.ad.nl/vuelta/eerste-favoriet-van-start-in-openingstijdrit-wie-pakt-de-rode-trui-in-de-woonplaats-van-tadej-pogacar~a313da085/)
+- [Ethan Hayter duikt onder de tijd van Joshua Tarling, wat kunnen Van Aert en Pogacar in jacht op rode trui?](https://www.ad.nl/vuelta/ethan-hayter-duikt-onder-de-tijd-van-joshua-tarling-wat-kunnen-van-aert-en-pogacar-in-jacht-op-rode-trui~a313da085/)
   > De 81ste Ronde van Spanje gaat vandaag van start met een individuele tijdrit van 9,4 kilometer in Monaco, de woonplaats van Tadej Pogacar. De...
-- [Honderden jaren ervaring versus de jongste beloften: de generatieclash in de eredivisie in cijfers](https://www.ad.nl/voetbal/honderden-jaren-ervaring-versus-de-jongste-beloften-de-generatieclash-in-de-eredivisie-in-cijfers~ae9ece64/)
-  > De leeftijdsverschillen in de eredivisie zijn dit seizoen ongekend groot. Terwijl routiniers als Remko Pasveer en Tjaronn Chery gezamenlijk...
-- [Voor 190 euro slaap je tussen de grafzerken in Fries gehucht: is deze kerk de prijs waard?](https://www.ad.nl/binnenland/voor-190-euro-slaap-je-tussen-de-grafzerken-in-fries-gehucht-is-deze-kerk-de-prijs-waard~aeb2e40d/)
-  > Top of flop? Deze zomer sturen we onze verslaggevers naar curieuze overnachtingsadressen, met één hamvraag: is het de prijs waard? Dit keer: Hanneke...
+- [Verkoopt je huis echt beter als je dat muurtje nog even verft? ‘Woonblindheid’ is valkuil](https://www.ad.nl/wonen/verkoopt-je-huis-echt-beter-als-je-dat-muurtje-nog-even-verft-woonblindheid-is-valkuil~a4514271/)
+  > Als je jouw huis gaat verkopen, dan wil je natuurlijk dat het er perfect uitziet. Verf je dus een trendgevoelige kleur over, haal je persoonlijke...
+- [Poetin: Oekraïne heeft doos van Pandora geopend met aanvallen](https://www.ad.nl/buitenland/poetin-oekraine-heeft-doos-van-pandora-geopend-met-aanvallen~a88b9656/)
+  > Oekraïne heeft met luchtaanvallen op economische doelen in Rusland een doos van Pandora geopend, volgens president Vladimir Poetin. Rusland...
+- [LIVE eredivisie | Hoekschop levert FC Utrecht de voorsprong op, Sparta moet in de achtervolging](https://www.ad.nl/voetbal/live-eredivisie-hoekschop-levert-fc-utrecht-de-voorsprong-op-sparta-moet-in-de-achtervolging~ad521538/)
+  > FC Utrecht kent een slecht begin van het eredivisieseizoen. De ploeg van Anthony Correia pakte nog geen punt. Sparta zegevierde vorige week op bezoek...
+- [Invaller Pepijn Reulen kopt NAC in slotfase naar zege op Jong Ajax](https://www.ad.nl/voetbal/invaller-pepijn-reulen-kopt-nac-in-slotfase-naar-zege-op-jong-ajax~a582ec98/)
+  > NAC Breda heeft de thuiswedstrijd tegen Jong Ajax met veel moeite gewonnen. De thuisploeg, afgelopen seizoen actief in de eredivisie, zegevierde met...
 
 ### Meest gelezen
 
