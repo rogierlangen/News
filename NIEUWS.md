@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-08-2026 om 22:25*
+*Laatst bijgewerkt: 22-08-2026 om 23:23*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Nieuwe Israëlische aanval in Syrië, veroordeling vanuit Damascus](https://nos.nl/l/2627942)
+  > Syrië heeft een nieuwe Israëlische aanval in de buurt van hoofdstad Damascus veroordeeld. Volgens Syrië werd bij de aanval een civiel voertuig...
 - [Japanse ambassadeur voor het eerst bij herdenking Birma-Siam-spoorlijn in Arnhem](https://nos.nl/l/2627926)
   > In Arnhem is de 59e herdenking van de Birma-Siam-spoorweg en de Pakan Baroe-spoorweg gehouden. Dat gebeurde bij het monument op landgoed Bronbeek....
 - [Canada komt met tegenheffingen op Amerikaanse producten](https://nos.nl/l/2627921)
@@ -16,9 +18,6 @@
   > De gemeente Rotterdam heeft deze zomer twee ambtenaren op staande voet ontslagen die zich zouden hebben laten omkopen bij bouwprojecten. De maatregel...
 - [Madonna's verjaardagsfeest op Grieks eiland veroorzaakt politieke rel](https://nos.nl/l/2627902)
   > Popster Madonna heeft in Griekenland een politieke rel veroorzaakt. Ze vierde afgelopen zondag haar 68e verjaardag op het eiland Corfu, maar een...
-- [Dode dwergvinvis aangespoeld op Vlieland, voor het eerst in 26 jaar](https://nos.nl/l/2627892)
-  > Aan de westkant van Vlieland is een dode dwergvinvis aangespoeld. Het dier is al in vergevorderde staat van ontbinding: de kop en staart ontbreken.
- ...
 
 ### Meest gelezen
 
@@ -28,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Trump deed in juni meer dan duizend beurstransacties, ter waarde van 263 miljoen dollar](https://www.ad.nl/buitenland/trump-deed-in-juni-meer-dan-duizend-beurstransacties-ter-waarde-van-263-miljoen-dollar~af9332a6/)
+  > De Amerikaanse president Donald Trump heeft in juni meer dan duizend transacties met aandelen en andere beleggingen gedaan. De transacties hadden...
 - [Real Madrid met schrik vrij bij debuut van Dumfries: invaller kroont zich tot matchwinner in 90ste minuut](https://www.ad.nl/voetbal/real-madrid-met-schrik-vrij-bij-debuut-van-dumfries-invaller-kroont-zich-tot-matchwinner-in-90ste-minuut~ae2059bf/)
   > Denzel Dumfries heeft met een zwaarbevochten zege zijn officiële debuut gemaakt voor Real Madrid. Pas in de 90ste minuut zorgde invaller Carlos Espí...
 - [PEC Zwolle slaat toe na rust en wint verrassend bij Heerenveen](https://www.ad.nl/voetbal/pec-zwolle-slaat-toe-na-rust-en-wint-verrassend-bij-heerenveen~aee4fb24/)
@@ -36,8 +37,6 @@
   > Krijgen we Tadej Pogačar van start tot finish in de rode trui? Het zou zomaar kunnen, want de Sloveen wint de openingstijdrit van de Vuelta. Hij doet...
 - [Bayern München verslaat Dortmund en pakt eerste prijs van seizoen, Joey Veerman en Ismael Saibari vallen in](https://www.ad.nl/voetbal/bayern-munchen-verslaat-dortmund-en-pakt-eerste-prijs-van-seizoen-joey-veerman-en-ismael-saibari-vallen-in~a0352519/)
   > Bayern München heeft met Duitse Supercup de eerste prijs van het seizoen al binnen. De ploeg van trainer Vincent Kompany was in het hol van de leeuw...
-- [Nigel de Jong bevestigt dat Pep Guardiola eerste keus was van KNVB: ‘Arne Slot was de volgende op de lijst’](https://www.ad.nl/voetbal/nigel-de-jong-bevestigt-dat-pep-guardiola-eerste-keus-was-van-knvb-arne-slot-was-de-volgende-op-de-lijst~a295315f/)
-  > Pep Guardiola was de eerste keus van de KNVB voor de functie van bondscoach van het Nederlands elftal, zo heeft directeur topsport Nigel de Jong van...
 
 ### Meest gelezen
 
