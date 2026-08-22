@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-08-2026 om 20:26*
+*Laatst bijgewerkt: 22-08-2026 om 21:25*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [PEC Zwolle slaat toe na rust en wint verrassend bij Heerenveen](https://www.ad.nl/voetbal/pec-zwolle-slaat-toe-na-rust-en-wint-verrassend-bij-heerenveen~aee4fb24/)
+  > Heerenveen was oppermachtig in de eerste helft, maar de lat en PEC Zwolle-keeper Jasper Schendelaar voorkwamen een (ruime) voorsprong. Na rust...
+- [In Het Wiel | ‘Deze tijdrit had alles wat een tijdrit lekker maakt’](https://www.ad.nl/tour-de-france/in-het-wiel-deze-tijdrit-had-alles-wat-een-tijdrit-lekker-maakt~a58111af/)
+  > Krijgen we Tadej Pogačar van start tot finish in de rode trui? Het zou zomaar kunnen, want de Sloveen wint de openingstijdrit van de Vuelta. Hij doet...
+- [Real Madrid incasseert gelijkmaker in Catalonië, Denzel Dumfries krijgt kansjes bij officiële debuut](https://www.ad.nl/voetbal/real-madrid-incasseert-gelijkmaker-in-catalonie-denzel-dumfries-krijgt-kansjes-bij-officiele-debuut~ae2059bf/)
+  > Real Madrid begint vanavond aan het nieuwe seizoen van La Liga. Tegenstander is Espanyol. Denzel Dumfries, die deze zomer de overstap maakte van...
 - [Bayern München verslaat Dortmund en pakt eerste prijs van seizoen, Joey Veerman en Ismael Saibari vallen in](https://www.ad.nl/voetbal/bayern-munchen-verslaat-dortmund-en-pakt-eerste-prijs-van-seizoen-joey-veerman-en-ismael-saibari-vallen-in~a0352519/)
   > Bayern München heeft met Duitse Supercup de eerste prijs van het seizoen al binnen. De ploeg van trainer Vincent Kompany was in het hol van de leeuw...
-- [Viergever en Kostons zetten PEC Zwolle verrassend op comfortabele voorsprong tegen Heerenveen](https://www.ad.nl/voetbal/viergever-en-kostons-zetten-pec-zwolle-verrassend-op-comfortabele-voorsprong-tegen-heerenveen~aee4fb24/)
-  > Heerenveen ontvangt na het gelijkspel tegen Ajax (2-2) in eigen huis PEC Zwolle. De Zwollenaren hebben nog geen punt gepakt en snakken dus naar een...
 - [Nigel de Jong bevestigt dat Pep Guardiola eerste keus was van KNVB: ‘Arne Slot was de volgende op de lijst’](https://www.ad.nl/voetbal/nigel-de-jong-bevestigt-dat-pep-guardiola-eerste-keus-was-van-knvb-arne-slot-was-de-volgende-op-de-lijst~a295315f/)
   > Pep Guardiola was de eerste keus van de KNVB voor de functie van bondscoach van het Nederlands elftal, zo heeft directeur topsport Nigel de Jong van...
-- [Espanyol komt op gelijke hoogte bij officiële debuut van Denzel Dumfries voor Real Madrid](https://www.ad.nl/voetbal/espanyol-komt-op-gelijke-hoogte-bij-officiele-debuut-van-denzel-dumfries-voor-real-madrid~ae2059bf/)
-  > Real Madrid begint vanavond aan het nieuwe seizoen van La Liga. Tegenstander is Espanyol. Denzel Dumfries, die deze zomer de overstap maakte van...
-- [Mexx Meerdink heeft eindelijk het rijk alleen in de spits bij AZ: ‘Het was een moeilijke tijd’](https://www.ad.nl/voetbal/mexx-meerdink-heeft-eindelijk-het-rijk-alleen-in-de-spits-bij-az-het-was-een-moeilijke-tijd~a30528b9/)
-  > De opvolging van de vertrokken Troy Parrott is bij koploper AZ in goede handen. Maar de beoogde opvolger Mexx Meerdink scoorde niet tegen Fortuna...
 
 ### Meest gelezen
 
