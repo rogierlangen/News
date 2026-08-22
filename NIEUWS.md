@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-08-2026 om 10:26*
+*Laatst bijgewerkt: 22-08-2026 om 11:23*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Spanjaard die twaalf jaar in de bergen tussen de wolven leefde, overleden](https://nos.nl/l/2627858)
+  > De Spanjaard Marcos Rodríguez die als kind en jongeman twaalf jaar zonder menselijk contact tussen de wolven leefde, is op 80-jarige leeftijd...
+- [Automobilist slaapt roes uit op snelweg, onder invloed van alcohol en drugs](https://nos.nl/l/2627855)
+  > Een automobilist heeft gisterochtend op de vluchtstrook van de A58 bij Oirschot zijn roes uitgeslapen. Dat heeft de politie vandaag bekendgemaakt.
+  ...
 - [Vader laat 7-jarige zoon achter bij beklimming Japanse berg Fuji](https://nos.nl/l/2627852)
   > De politie in Japan heeft een klimmer op de berg Fuji opdracht gegeven om terug te keren, omdat hij zijn 7-jarige zoon tijdens de klim had...
-- [Oekraïense luchtverdediger: Geef ons jullie Patriots, voor ze waardeloos zijn](https://nos.nl/l/2627850)
+- [Oekraïense luchtverdediger: 'Geef ons jullie Patriots, voor ze waardeloos zijn'](https://nos.nl/l/2627850)
   > Het overvliegende projectiel klinkt als een kruising tussen een vuurpijl en een vliegtuig. Het is een Russische kruisraket of een nieuw type...
 - [14-jarige nepagent aangehouden, slachtoffers krijgen hun sieraden terug](https://nos.nl/l/2627847)
   > De politie heeft woensdag een 14-jarige jongen uit Hendrik-Ido-Ambacht aangehouden die ervan verdacht wordt als nepagent ouderen te hebben bestolen....
-- [Man overleden na zeldzame berenaanval in dorp in VS](https://nos.nl/l/2627845)
-  > Een beer heeft bij een aanval een man gedood in het dorpje Crystal in de Amerikaanse staat New Mexico. Dat heeft het lokale politiedistrict gemeld op...
-- [Volgende week vrijdag gedeeltelijke maansverduistering te zien in Nederland](https://nos.nl/l/2627842)
-  > Ruim twee weken na de zonsverduistering kunnen liefhebbers zich nog eens vergapen aan de verduistering van een hemellichaam. Ditmaal zonder dat er...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Verstappen komt dichter bij Piastri in sprintrace Zandvoort, Russell aan de leiding](https://www.ad.nl/formule-1/verstappen-komt-dichter-bij-piastri-in-sprintrace-zandvoort-russell-aan-de-leiding~abcf548e/)
-  > Max Verstappen speelde vrijdag een bijrol in de sprintkwalificatie en hoopt op een betere zaterdag in Zandvoort. Te beginnen met de sprintrace. De...
-- [De band tussen de Oranjes en de autosport is sterk, en die liefde gaat ver terug](https://www.ad.nl/show/de-band-tussen-de-oranjes-en-de-autosport-is-sterk-en-die-liefde-gaat-ver-terug~aa08c266/)
-  > Het is inmiddels vaste prik: het jaarlijkse bezoek van koning Willem-Alexander en zijn gezin aan de Formule 1 in Zandvoort. Ook dit jaar, nu de...
-- [Zuid-Afrikaanse wereldkampioen boksen doodgeschoten bij zijn huis](https://www.ad.nl/andere-sporten/zuid-afrikaanse-wereldkampioen-boksen-doodgeschoten-bij-zijn-huis~a53aa513/)
-  > Voormalig wereldkampioen boksen Zolani Tete uit Zuid-Afrika is vrijdag doodgeschoten voor zijn huis in Mdantsane in de provincie Oost-Kaap. Dat...
-- [Meerdere doden na botsing tussen politiewagen en personenauto in Engeland](https://www.ad.nl/buitenland/meerdere-doden-na-botsing-tussen-politiewagen-en-personenauto-in-engeland~a08e7922/)
-  > Bij een verkeersongeluk in het noorden van Engeland zijn meerdere doden gevallen. Dat schrijft de BBC. Bij het ongeval bij Middlesbrough was ook een...
-- [Maarten van der Weijden komt zaterdag niet naar Prinses Máxima Centrum om cheque te overhandigen](https://www.ad.nl/utrecht/maarten-van-der-weijden-komt-zaterdag-niet-naar-prinses-maxima-centrum-om-cheque-te-overhandigen~a37c4769/)
-  > Maarten van der Weijden komt zaterdag niet naar het Prinses Máxima Centrum om een cheque te overhandigen. De zwemmer moest zijn 22-stedentocht om...
+- [Deze airfryerfriet wint onze smaaktest: ‘Dat bruine kontje doet het hem’](https://www.ad.nl/gezond/deze-airfryerfriet-wint-onze-smaaktest-dat-bruine-kontje-doet-het-hem~a1e011f1/)
+  > In de zomer hebben we vaak geen zin om lang in die warme keuken te staan. Liever serveren we iets makkelijks. Frietjes bijvoorbeeld zijn altijd...
+- [Max Verstappen treurt niet over uitblijven regen: ‘Die chaos, voor een sprintrace heb ik dat niet over’](https://www.ad.nl/formule-1/max-verstappen-treurt-niet-over-uitblijven-regen-die-chaos-voor-een-sprintrace-heb-ik-dat-niet-over~a55ac4cd/)
+  > Komend weekend is de laatste Grand Prix van Nederland. Wat kan Max Verstappen in zijn thuisrace? Volg al het nieuws rond de Formule 1-race in...
+- [Actrice Raquel Lee beschuldigt Disney van nalatigheid na seksueel misbruik](https://www.ad.nl/show/actrice-raquel-lee-beschuldigt-disney-van-nalatigheid-na-seksueel-misbruik~a272bc8a/)
+  > De Amerikaanse actrice Raquel Lee heeft een rechtszaak aangespannen tegen Disney. De inmiddels 39-jarige actrice zegt dat ze in 2001, tijdens de...
+- [Pensioengolf slaat toe in de verpleging: in vijftien jaar verdwijnen 155.000 ervaren krachten](https://www.ad.nl/binnenland/pensioengolf-slaat-toe-in-de-verpleging-in-vijftien-jaar-verdwijnen-155-000-ervaren-krachten~a8d1a6bf/)
+  > Henriëtte van Esch en Annemieke van Dam werken allebei in woonzorgcentrum Antoniegaarde in Den Bosch. Samen goed voor bijna 100 jaar ervaring....
+- [Tijden GP van Nederland | Zo laat begint Max Verstappen vandaag aan de kwalificatie op Zandvoort](https://www.ad.nl/formule-1/tijden-gp-van-nederland-zo-laat-begint-max-verstappen-vandaag-aan-de-kwalificatie-op-zandvoort~ac6e82c8/)
+  > Het Formule 1-seizoen wordt na een korte zomerstop hervat met een bijzondere race: de allerlaatste Dutch GP op het circuit van Zandvoort. Bekijk...
 
 ### Meest gelezen
 
