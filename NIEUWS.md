@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-08-2026 om 09:30*
+*Laatst bijgewerkt: 22-08-2026 om 10:26*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Vader laat 7-jarige zoon achter bij beklimming Japanse berg Fuji](https://nos.nl/l/2627852)
+  > De politie in Japan heeft een klimmer op de berg Fuji opdracht gegeven om terug te keren, omdat hij zijn 7-jarige zoon tijdens de klim had...
+- [Oekraïense luchtverdediger: Geef ons jullie Patriots, voor ze waardeloos zijn](https://nos.nl/l/2627850)
+  > Het overvliegende projectiel klinkt als een kruising tussen een vuurpijl en een vliegtuig. Het is een Russische kruisraket of een nieuw type...
 - [14-jarige nepagent aangehouden, slachtoffers krijgen hun sieraden terug](https://nos.nl/l/2627847)
   > De politie heeft woensdag een 14-jarige jongen uit Hendrik-Ido-Ambacht aangehouden die ervan verdacht wordt als nepagent ouderen te hebben bestolen....
 - [Man overleden na zeldzame berenaanval in dorp in VS](https://nos.nl/l/2627845)
   > Een beer heeft bij een aanval een man gedood in het dorpje Crystal in de Amerikaanse staat New Mexico. Dat heeft het lokale politiedistrict gemeld op...
 - [Volgende week vrijdag gedeeltelijke maansverduistering te zien in Nederland](https://nos.nl/l/2627842)
   > Ruim twee weken na de zonsverduistering kunnen liefhebbers zich nog eens vergapen aan de verduistering van een hemellichaam. Ditmaal zonder dat er...
-- [Mexicanen komen in actie om Cuba te helpen, nu regering onder druk van de VS een stap terugdoet](https://nos.nl/l/2627838)
-  > Tientallen dozen staan voor een huis in Mexico-Stad. Er zitten vooral medicijnen en medische hulpmiddelen in, zoals dialysezakken voor nierpatiënten....
-- [Amerikaanse tak van TikTok schikt voor 400 miljoen in kinderprivacyzaak](https://nos.nl/l/2627835)
-  > De Amerikaanse tak van TikTok heeft met een schikking een eind gemaakt aan de rechtszaak die het Amerikaanse ministerie van Justitie tegen het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Kan Max Verstappen verrassen tijdens sprintrace in Zandvoort?](https://www.ad.nl/formule-1/kan-max-verstappen-verrassen-tijdens-sprintrace-in-zandvoort~abcf548e/)
+- [Verstappen komt dichter bij Piastri in sprintrace Zandvoort, Russell aan de leiding](https://www.ad.nl/formule-1/verstappen-komt-dichter-bij-piastri-in-sprintrace-zandvoort-russell-aan-de-leiding~abcf548e/)
   > Max Verstappen speelde vrijdag een bijrol in de sprintkwalificatie en hoopt op een betere zaterdag in Zandvoort. Te beginnen met de sprintrace. De...
-- [Voltooiing trilogie en flinke sprong op eeuwige ranglijsten: hoe groot wordt de Grote Tadej Pogacar Show in de Vuelta?](https://www.ad.nl/vuelta/voltooiing-trilogie-en-flinke-sprong-op-eeuwige-ranglijsten-hoe-groot-wordt-de-grote-tadej-pogacar-show-in-de-vuelta~a3997cf1/)
-  > Hij liet zeven jaar geleden op 20-jarige leeftijd in Spanje zien dat hij een heel bijzonder talent was. Nu is Tadej Pogacar voor het eerst terug in...
-- [Cryptofraude groeit sneller dan de politie kan bijhouden](https://www.ad.nl/binnenland/cryptofraude-groeit-sneller-dan-de-politie-kan-bijhouden~a1f9ba55/)
-  > Cryptofraude groeit zo explosief dat de politie grote moeite heeft om alle aangiftes bij te benen. Door een tekort aan agenten met specifieke kennis...
-- [TransferTalk | Ex-PSV’er keert terug in eigen land, Feyenoord hengelt naar Nigeriaan, Liverpool-bod van 60 miljoen op Minteh afgewezen](https://www.ad.nl/voetbal/transfertalk-ex-psver-keert-terug-in-eigen-land-feyenoord-hengelt-naar-nigeriaan-liverpool-bod-van-60-miljoen-op-minteh-afgewezen~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [Politiebureau in België beschoten met zware vuurwapens, daders die met step vluchtten nog niet aangehouden](https://www.ad.nl/buitenland/politiebureau-in-belgie-beschoten-met-zware-vuurwapens-daders-die-met-step-vluchtten-nog-niet-aangehouden~a8c15093/)
-  > In de nacht van vrijdag op zaterdag is het politiebureau in de Belgische gemeente Anderlecht beschoten. Bij het incident werd gebruikgemaakt van...
+- [De band tussen de Oranjes en de autosport is sterk, en die liefde gaat ver terug](https://www.ad.nl/show/de-band-tussen-de-oranjes-en-de-autosport-is-sterk-en-die-liefde-gaat-ver-terug~aa08c266/)
+  > Het is inmiddels vaste prik: het jaarlijkse bezoek van koning Willem-Alexander en zijn gezin aan de Formule 1 in Zandvoort. Ook dit jaar, nu de...
+- [Zuid-Afrikaanse wereldkampioen boksen doodgeschoten bij zijn huis](https://www.ad.nl/andere-sporten/zuid-afrikaanse-wereldkampioen-boksen-doodgeschoten-bij-zijn-huis~a53aa513/)
+  > Voormalig wereldkampioen boksen Zolani Tete uit Zuid-Afrika is vrijdag doodgeschoten voor zijn huis in Mdantsane in de provincie Oost-Kaap. Dat...
+- [Meerdere doden na botsing tussen politiewagen en personenauto in Engeland](https://www.ad.nl/buitenland/meerdere-doden-na-botsing-tussen-politiewagen-en-personenauto-in-engeland~a08e7922/)
+  > Bij een verkeersongeluk in het noorden van Engeland zijn meerdere doden gevallen. Dat schrijft de BBC. Bij het ongeval bij Middlesbrough was ook een...
+- [Maarten van der Weijden komt zaterdag niet naar Prinses Máxima Centrum om cheque te overhandigen](https://www.ad.nl/utrecht/maarten-van-der-weijden-komt-zaterdag-niet-naar-prinses-maxima-centrum-om-cheque-te-overhandigen~a37c4769/)
+  > Maarten van der Weijden komt zaterdag niet naar het Prinses Máxima Centrum om een cheque te overhandigen. De zwemmer moest zijn 22-stedentocht om...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [TikTok schikt voor $400 mln in privacyzaak met Amerikaans ministerie van justitie](https://fd.nl/bedrijfsleven/1609913/tiktok-schikt-voor-400-mln-in-privacyzaak-met-amerikaans-ministerie-van-justitie)
+  > De app werd ervan beschuldigd gegevens over kinderen te verzamelen, wat in strijd is met de Amerikaanse wetgeving rondom online privacy.
 - [Ben & Jerry’s verliest grootste deel van rechtszaak tegen voormalige moederbedrijf Unilever](https://fd.nl/bedrijfsleven/1609912/ben-jerrys-verliest-grootste-deel-van-rechtszaak-tegen-voormalige-moederbedrijf-unilever)
   > Het ijsmerk beschuldigde zijn voormalige moederbedrijf ervan de sociale activiteiten van de ijsfabrikant te willen dwarsbomen, de raad van bestuur te...
 - [VS leggen 50% importheffing op Canadese goederen na klappen van handelsgesprekken](https://fd.nl/economie/1609803/vs-leggen-50-impotheffing-op-canadese-goederen-na-klappen-van-handelsgesprekken)
@@ -54,8 +56,6 @@
   > Bedrijven krijgen miljarden terug van Trumps heffingen, maar ziet de consument daar ooit iets van terug? En terwijl Trump probeert China buitenspel...
 - [Een artistieke wandeling in het park](https://fd.nl/samenleving/1609307/een-artistieke-wandeling-in-het-park)
   > Niet museumzalen, maar een groen, zomers park als expositieruimte. Sonsbeek 2026, in Arnhem, is een van Europa’s oudste kunstmanifestaties.
-- [Aandelen verkopen als de handelsdag voorbij is wint terrein](https://fd.nl/financiele-markten/1609305/aandelen-verkopen-als-de-handelsdag-voorbij-is-wint-terrein)
-  > Er wordt meer kapitaal opgehaald via snelle aandelenemissies. Nieuwe regels geven particulieren nadrukkelijker toegang tot deze markt.
 
 ### Meest gelezen
 
