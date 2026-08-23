@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-08-2026 om 14:26*
+*Laatst bijgewerkt: 23-08-2026 om 15:25*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Doden in Gaza na Israëlische bombardementen, steek- en schietpartij op bezette Westoever](https://nos.nl/l/2628015)
+  > Bij Israëlische luchtaanvallen in Gaza zijn twee mensen gedood, onder wie een 4-jarige jongen. Dat melden melden Palestijnse medische bronnen in...
+- [Spits Haaland laat iconische lokken kortwieken: 'Je ziet eruit als iemand van 10'](https://nos.nl/l/2628012)
+  > Naast het aan de lopende band scoren van doelpunten staat de Noorse voetballer Erwin Braut Haaland bekend om zijn excentrieke uiterlijk. Je kunt hem...
 - [Vier vermisten dood gevonden na brand in Zwitsers restaurant](https://nos.nl/l/2628001)
   > In de gemeente Thusis in het oosten van Zwitserland zijn nog twee lichamen gevonden in het pand waar donderdagavond brand woedde, meldt de politie....
 - [Duitser op luchthaven gestoken door een van giftigste schorpioenen ter wereld](https://nos.nl/l/2627987)
   > Op de luchthaven van Düsseldorf is een Duitse vrouw op pijnlijke wijze verwelkomd. De 52-jarige reiziger werd gestoken door een vijfstreepschorpioen...
 - [Twee fatale klimongelukken in Oostenrijkse bergen in twee dagen tijd](https://nos.nl/l/2627977)
   > In Oostenrijk zijn in twee dagen tijd twee Duitse bergbeklimmers om het leven gekomen. Gisteren bezweek een 64-jarige man aan zijn verwondingen nadat...
-- [Australische zeebeer is eerste dode zoogdier in Australië door vogelgriep](https://nos.nl/l/2627972)
-  > In Australië is voor het eerst vastgesteld dat een zoogdier is gestorven aan de vogelgriep. De dode Australische zeebeer, een soort zeeleeuw, werd...
-- [Grote natuurbrand nabij Amerikaanse gokstad Reno, 4000 hectare in de as gelegd](https://nos.nl/l/2627968)
-  > Bij de Amerikaanse gokstad Reno woedt een grote natuurbrand. Het vuur heeft ruim 4000 hectare in de as gelegd. Aan de rand van de stad wordt een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Visma-Lease a Bike jaagt op kopgroep met Koen Bouwman, Nederlander verovert bergtrui](https://www.ad.nl/vuelta/visma-lease-a-bike-jaagt-op-kopgroep-met-koen-bouwman-nederlander-verovert-bergtrui~aa924fb2/)
-  > De tweede etappe van de Ronde van Spanje is onderweg. De Vuelta begon gisteren met een individuele tijdrit, waarin Tadej Pogacar direct de rode...
-- [Mathieu van der Poel lijkt klaar voor WK mountainbike: alleskunner tweede in wereldbekerwedstrijd](https://www.ad.nl/wielrennen/mathieu-van-der-poel-lijkt-klaar-voor-wk-mountainbike-alleskunner-tweede-in-wereldbekerwedstrijd~ace7c1ce/)
-  > Mathieu van der Poel heeft getoond in vorm te zijn richting het WK mountainbike van volgende week. De 31-jarige Nederlander werd zondag in het Franse...
-- [Hoe gezond is je vagina? Deze factoren zijn volgens onderzoek van invloed](https://www.ad.nl/gezond/hoe-gezond-is-je-vagina-deze-factoren-zijn-volgens-onderzoek-van-invloed~a490a1b1/)
-  > Net als onze darmen heeft ook de vagina een microbioom: een eigen ecosysteem van bacteriën dat de vagina gezond houdt. Onderzoekers hebben voor het...
-- [Van Bronckhorst houdt vast aan dezelfde elf bij Feyenoord, Gonçalo Borges ontbreekt in wedstrijdselectie](https://www.ad.nl/voetbal/van-bronckhorst-houdt-vast-aan-dezelfde-elf-bij-feyenoord-goncalo-borges-ontbreekt-in-wedstrijdselectie~ae46a636/)
+- [Cambuur-Feyenoord ligt stil door vuurwerk, Makkelie: ‘Als hier de rust is wedergekeerd, gaan we verder’](https://www.ad.nl/voetbal/cambuur-feyenoord-ligt-stil-door-vuurwerk-makkelie-als-hier-de-rust-is-wedergekeerd-gaan-we-verder~ae46a636/)
   > Na het gelijke spel in eigen huis tegen Go Ahead Eagles (2-2) staat nu een uitwedstrijd tegen Cambuur op het programma voor Feyenoord. De club uit...
-- [Noordse landen zeggen vertrouwen in Infantino op, journalist confronteert FIFA-baas: ‘Waarom stap je niet op?’](https://www.ad.nl/voetbal/noordse-landen-zeggen-vertrouwen-in-infantino-op-journalist-confronteert-fifa-baas-waarom-stap-je-niet-op~a2544497/)
-  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
+- [Norris maakt indruk met knappe zege in door Verstappen-crash overschaduwde laatste GP Zandvoort](https://www.ad.nl/formule-1/norris-maakt-indruk-met-knappe-zege-in-door-verstappen-crash-overschaduwde-laatste-gp-zandvoort~a37b2d74/)
+  > De laatste Dutch Grand Prix werd er eentje om nooit te vergeten, maar niet om redenen waar Max Verstappen en zijn fans op hoopten. De Nederlander...
+- [‘Ik liet me verrassen, sorry’: ontgoocheling bij Max Verstappen na keiharde crash laatste GP in Zandvoort](https://www.ad.nl/formule-1/ik-liet-me-verrassen-sorry-ontgoocheling-bij-max-verstappen-na-keiharde-crash-laatste-gp-in-zandvoort~a336f1f1/)
+  > De allerlaatste Grand Prix in Zandvoort is voor Max Verstappen uitgelopen op een sportief drama. Bij het uitkomen van de Arie Luyendijkbocht verloor...
+- [Visma heeft zinnen gezet op ritzege, massasprint op komst, Ethan Hayter virtueel in rode trui](https://www.ad.nl/vuelta/visma-heeft-zinnen-gezet-op-ritzege-massasprint-op-komst-ethan-hayter-virtueel-in-rode-trui~aa924fb2/)
+  > De tweede etappe van de Ronde van Spanje is onderweg. De Vuelta begon gisteren met een individuele tijdrit, waarin Tadej Pogacar direct de rode...
+- [PSV wint dankzij uitblinker Van Bommel ruim van FC Groningen, applaus bij invalbeurt Geertruida](https://www.ad.nl/voetbal/psv-wint-dankzij-uitblinker-van-bommel-ruim-van-fc-groningen-applaus-bij-invalbeurt-geertruida~a4ed66bb/)
+  > PSV heeft een overtuigende overwinning geboekt op FC Groningen: 5-1. De bezoekers kwamen nog wel op voorsprong, maar daarna draaide de landskampioen...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Luchtverkeersleiders ontregelen Noors vliegverkeer in conflict om pauzes](https://fd.nl/economie/1609876/luchtverkeersleiders-ontregelen-noors-vliegverkeer-in-conflict-om-pauzes)
+  > Luchtverkeersleiders verdienen in Noorwegen al snel €140.000, maar ‘echte pauze’ is er niet. En daarom staakt de beroepsgroep dit weekend.
+- [Sinopec profiteert van hogere marges in olieraffinage](https://fd.nl/bedrijfsleven/1609811/sinopec-profiteert-van-hogere-marges-in-olieraffinage)
+  > De nettowinst van het Chinese olie- en chemieconcern lag in de eerste zes maanden 12% hoger dan in dezelfde periode vorig jaar.
+- [Rotterdam ontslaat twee ambtenaren wegens corruptie](https://fd.nl/politiek/1609809/rotterdam-ontslaat-twee-ambtenaren-wegens-corruptie)
+  > Het duo zou giften van bedrijven hebben aangenomen in ruil voor bevoordeling bij overheidsopdrachten.
+- [Iran claimt vondst groot aardgasveld](https://fd.nl/economie/1609808/iran-claimt-vondst-groot-aardgasveld)
+  > Volgens staatsmedia zou het gaan om een veld met 212,4 miljard kubieke meter aardgas.
 - [De gepeperde rekening van de Iran-oorlog](https://fd.nl/financiele-markten/1609914/de-gepeperde-rekening-van-de-iran-oorlog)
   > De Amerikaanse overheid kampt niet alleen met de directe kosten van de oorlog, maar ook met een rentestijging. Dat gaat om miljarden, leert een...
-- [Financiën zet na nederlaag bij rechter opnieuw in op spreiden toezichtkosten](https://fd.nl/financiele-markten/1609636/financien-zet-na-nederlaag-bij-rechter-opnieuw-in-op-spreiden-toezichtkosten)
-  > De Nederlandsche Bank en het ministerie willen via een wijziging van de Wet bekostiging financieel toezicht opnieuw alle betaalinstellingen laten...
-- [Damen én de Duitse regering staan er na het fregattenechec slecht op in Wolgast](https://fd.nl/bedrijfsleven/1608207/damen-en-de-duitse-regering-staan-er-na-het-fregattenechec-slecht-op-in-wolgast)
-  > De burgemeester van de Noord-Duitse plaats verzoekt Berlijn om hulp, nu de Peene-werf zonder werk dreigt te komen te zitten.
-- [Trump deed in juni ruim duizend beurstransacties](https://fd.nl/financiele-markten/1609915/trump-deed-in-juni-ruim-duizend-beurstransacties)
-  > De Amerikaanse president deed onder meer grote aankopen in aandelen Berkshire Hathaway en Visa. Het totaal aan transacties lag tussen $78,1 mln en...
-- [Lime domineert de deelfietsenmarkt met keiharde kapitalistische middelen – en subsidie](https://fd.nl/samenleving/1609658/lime-domineert-de-deelfietsenmarkt-dankzij-keihard-kapitalisme-en-subsidie)
-  > Tweeduizend groen-witte e-bikes domineren het straatbeeld van Utrecht. Ook wereldwijd is Lime de grote winnaar van de race naar het marktleiderschap.
 
 ### Meest gelezen
 
