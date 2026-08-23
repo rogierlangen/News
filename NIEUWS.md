@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-08-2026 om 06:46*
+*Laatst bijgewerkt: 23-08-2026 om 07:35*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Richard de Mos en co zetten iconische groen-gele karaokelimousine én partijbussen in de etalage: ‘Ze zijn niet meer nodig’](https://www.ad.nl/den-haag/richard-de-mos-en-co-zetten-iconische-groen-gele-karaokelimousine-en-partijbussen-in-de-etalage-ze-zijn-niet-meer-nodig~a555d7b7/)
+  > De iconische groen-gele limousine van Hart voor Den Haag hebben? De ‘bekendste karaokelimo van Nederland’ staat te koop op Marktplaats. Voor 6500...
+- [24 uur op Lowlands: ‘Dat het hier één groot yuppenfestijn wordt, is soms best een beetje jammer’](https://www.ad.nl/show/24-uur-op-lowlands-dat-het-hier-een-groot-yuppenfestijn-wordt-is-soms-best-een-beetje-jammer~a5eee459/)
+  > Een stretcher die het midden in de nacht begeeft, op slippers door de regen naar de Dixie baggeren en vier dagen niet douchen. Dat is al sinds 1993...
 - [Al vroeg propvolle treinen voor laatste F1-race op Zandvoort, KNMI verwacht droge race](https://www.ad.nl/formule-1/al-vroeg-propvolle-treinen-voor-laatste-f1-race-op-zandvoort-knmi-verwacht-droge-race~a55ac4cd/)
   > Dit weekend is de laatste Grand Prix van Nederland. Wat kan Max Verstappen in zijn thuisrace? Volg al het nieuws rond de Formule 1-race in Zandvoort...
 - [Australië meldt eerste geval van H5-vogelgriep bij een zoogdier](https://www.ad.nl/buitenland/australie-meldt-eerste-geval-van-h5-vogelgriep-bij-een-zoogdier~a4d09648/)
   > Australië heeft zijn eerste bevestigde geval van H5-vogelgriep bij een zoogdier gemeld. Het betreft een langsnuitzeehond die dood werd aangetroffen...
-- [Duizenden naaktfoto’s, maar wie waren de modellen? Monsterklus om alle vrouwen op te sporen](https://www.ad.nl/binnenland/duizenden-naaktfotos-maar-wie-waren-de-modellen-monsterklus-om-alle-vrouwen-op-te-sporen~aa66ff85/)
+- [Dozen en koffertjes met duizenden naaktfoto’s: Ingrid en Elles proberen te achterhalen wie zij waren](https://www.ad.nl/binnenland/dozen-en-koffertjes-met-duizenden-naaktfotos-ingrid-en-elles-proberen-te-achterhalen-wie-zij-waren~aa66ff85/)
   > Duizenden foto’s van honderden modellen. Close-ups van borsten, billen en benen. Het is de nalatenschap van fotograaf Atze Haytsma. Dochter Ingrid en...
-- [Kyle (11) volgt zijn hart en kiest voor praktijkgericht vmbo: ‘Het liefst word ik timmerman’](https://www.ad.nl/binnenland/kyle-11-volgt-zijn-hart-en-kiest-voor-praktijkgericht-vmbo-het-liefst-word-ik-timmerman~acb3f698/)
-  > Als kleuter sliep hij niet met knuffels in zijn bed, maar met een plastic hamer en zaag. De 11-jarige Kyle Ghijsens kiest welbewust voor...
-- [LIVE vakantieblog | Vrouw gestoken door één van giftigste schorpioenen ter wereld op luchthaven Düsseldorf](https://www.ad.nl/buitenland/live-vakantieblog-vrouw-gestoken-door-een-van-giftigste-schorpioenen-ter-wereld-op-luchthaven-dusseldorf~a4195717/)
-  > Op de luchthaven van de Duitse stad Düsseldorf is vrijdag een passagier door een schorpioen gestoken, meldt de lokale brandweer. De geleedpotige zou...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Kabinet: Grijp in, bezuinig en red het Nederlandse huishoudboekje](https://fd.nl/opinie/1609635/kabinet-grijp-in-bezuinig-en-red-het-nederlandse-huishoudboekje)
+  > Hoewel de Europese ogen zijn gericht op het oplopende Franse begrotingstekort, kan ook Nederland niet op zijn lauweren rusten. Het kabinet-Jetten...
 - [Neem inflatiecorrectie mee in box 3-berekening](https://fd.nl/opinie/1609654/los-box-3-impasse-op-met-korting-en-inflatiecorrectie)
   > Een discussiepunt in de begrotingsonderhandelingen in politiek Den Haag is het box 3-dossier. Het kabinet moet daarbij direct maatregelen nemen om...
 - [Schaalmodellenmaker Artitec blijft met DAF-bussen en ‘poep aan de schoen’ groot in zijn niche](https://fd.nl/bedrijfsleven/1609311/schaalmodellenmaker-artitec-blijft-met-daf-bussen-en-poep-aan-de-schoen-groot-in-zijn-niche)
@@ -54,8 +56,6 @@
   > In het bedrijfsleven leerde Jantina Woudstra snel en efficiënt werken. Maar als directeur van de RDW moet vaak de rem erop.
 - [Luisterverhaal: Wonderschone skylines en ruime keukens: misleidende AI-foto’s in opkomst op Funda](https://fd.nl/samenleving/1609777/luisterverhaal-wonderschone-skylines-en-ruime-keukens-misleidende-ai-fotos-in-opkomst-op-funda)
   > Deze week hoor je de special over de opkomst van misleidende AI-foto’s op Funda.
-- [TikTok schikt voor $400 mln in privacyzaak met Amerikaans ministerie van justitie](https://fd.nl/bedrijfsleven/1609913/tiktok-schikt-voor-400-mln-in-privacyzaak-met-amerikaans-ministerie-van-justitie)
-  > De app werd ervan beschuldigd gegevens over kinderen te verzamelen, wat in strijd is met de Amerikaanse wetgeving rondom online privacy.
 
 ### Meest gelezen
 
