@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-08-2026 om 18:33*
+*Laatst bijgewerkt: 23-08-2026 om 19:24*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Na jaren verbazen Hanneke en Karen zich nog over wat ze achter voordeuren aantreffen: ‘Je kunt het niet geloven’](https://www.ad.nl/binnenland/na-jaren-verbazen-hanneke-en-karen-zich-nog-over-wat-ze-achter-voordeuren-aantreffen-je-kunt-het-niet-geloven~aa9310a6/)
-  > Verwarde mensen, verslaafde mensen, mensen die het tempo van de samenleving gewoon niet meer kunnen bijbenen. Het zijn er veel. Soms in het zicht....
-- [Henk Westbroek haalt podcast over Jerney Kaagman offline na sommaties, maar komt met ‘tegenchantage’](https://www.ad.nl/show/henk-westbroek-haalt-podcast-over-jerney-kaagman-offline-na-sommaties-maar-komt-met-tegenchantage~af2c3c96/)
-  > Henk Westbroek gaat maandag een veelbesproken podcast van zijn hand over de laatste levensjaren van de overleden Earth & Fire-zangeres Jerney Kaagman...
-- [LIVE vakantieblog | Jongetje (4) op camping gebeten door giftige zandadder](https://www.ad.nl/buitenland/live-vakantieblog-jongetje-4-op-camping-gebeten-door-giftige-zandadder~a4195717/)
-  > Een jongetje is tijdens het spelen op een Kroatische camping door een giftige zandadder gebeten. Het kind moest naar het ziekenhuis. Volg alle...
-- [Drie starters besloten na hun studie samen te wonen: ‘Gezellig, maar óók praktisch’](https://www.ad.nl/binnenland/drie-starters-besloten-na-hun-studie-samen-te-wonen-gezellig-maar-ook-praktisch~adc9bc00/)
-  > Waar veel leeftijdsgenoten op zoek gaan naar een eigen appartement na de studietijd, besloten studievrienden Thijs (27), Marinde (27) en Thomas (28)...
-- [Lando Norris dolgelukkig na zege in Zandvoort, Kimi Antonelli bezorgd: ‘Mercedes heeft niet meer snelste auto’](https://www.ad.nl/formule-1/lando-norris-dolgelukkig-na-zege-in-zandvoort-kimi-antonelli-bezorgd-mercedes-heeft-niet-meer-snelste-auto~a55ac4cd/)
-  > Dit weekend was de laatste Grand Prix van Nederland. Voor Max Verstappen eindigde het in een deceptie. Door een zware crash was zijn race al na één...
+- [‘Druk’ is al heel lang het antwoord op de simpele vraag hoe het gaat](https://www.ad.nl/binnenland/druk-is-al-heel-lang-het-antwoord-op-de-simpele-vraag-hoe-het-gaat~ab7a050b/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Jan Lammers laat humeur niet bederven door crash Verstappen: ‘Ik vond deze editie de leukste eigenlijk’](https://www.ad.nl/formule-1/jan-lammers-laat-humeur-niet-bederven-door-crash-verstappen-ik-vond-deze-editie-de-leukste-eigenlijk~afc7727f/)
+  > Het zit erop, de laatste editie van de Dutch Grand Prix in Zandvoort. Sportief directeur Jan Lammers liet ‘s ochtends om 07.15 uur al de eerste...
+- [In Het Wiel | ‘Mathieu van der Poel staat er heel anders voor dan vorig jaar’](https://www.ad.nl/tour-de-france/in-het-wiel-mathieu-van-der-poel-staat-er-heel-anders-voor-dan-vorig-jaar~a58111af/)
+  > Genoeg te bespreken in een nieuwe aflevering van In Het Wiel. Niek Goedvolk heeft het met Roxane Knetemann en wielerverslaggever Daniël Dwarswaard...
+- [Veiligheidsmensen rond Feyenoord voelden aan dat er rond minuut twaalf iets te gebeuren stond](https://www.ad.nl/voetbal/veiligheidsmensen-rond-feyenoord-voelden-aan-dat-er-rond-minuut-twaalf-iets-te-gebeuren-stond~a513671fa/)
+  > Feyenoord kan de aanklager van de KNVB op de lijn verwachten. De grootste winst dit seizoen (2-5) werd overschaduwd door rondvliegend vuurwerk uit...
+- [Je caravan even ondersteboven houden? Hoe het kan dat AI-modellen soms ‘hallucineren’](https://www.ad.nl/tech/je-caravan-even-ondersteboven-houden-hoe-het-kan-dat-ai-modellen-soms-hallucineren~a6ca4d6e/)
+  > Als verslaggever Bram Louws de koelkast in zijn caravan niet aan de praat krijgt, biedt ChatGPT de helpende hand. Het advies: ‘Houd de caravan even...
 
 ### Meest gelezen
 
@@ -50,7 +50,7 @@
   > Volgens de krant The Telegraph is het de eerste succesvolle aanval van Iraanse hackers op een Britse centrale.
 - [Arcadis staat voor belangrijkste periode in zijn bestaan](https://fd.nl/opinie/1609382/arcadis-staat-voor-belangrijkste-periode-in-zijn-bestaan)
   > De druk op het ingenieursbedrijf en zijn bestuur blijft hoog, zelfs als belager WSP Global de overnamestrijd zou staken.
-- [Waarom box 3 zo’n grote rol speelt bij deze begrotingsonderhandelingen](https://fd.nl/politiek/1609813/waarom-box-3-zon-grote-rol-speelt-bij-deze-begrotingsonderhandelingen)
+- [Box 3 speelt grote rol bij begrotingsonderhandelingen](https://fd.nl/politiek/1609813/waarom-box-3-zon-grote-rol-speelt-bij-deze-begrotingsonderhandelingen)
   > Alle scenario’s voor de toekomst van box 3 kosten ‘veel, heel veel of onwijs veel geld’, klinkt het in Den Haag. Vier vragen over de belasting op...
 - [Brein achter diefstal bedrijfsgeheimen bij ASML wil naar de beurs in China](https://fd.nl/bedrijfsleven/1609698/brein-achter-diefstal-bedrijfsgeheimen-bij-asml-wil-naar-de-beurs-in-china)
   > Het Chinese techbedrijf Dongfang Jingyuan mikt op een beursnotering in Shanghai. Het bedrijf staat op een Amerikaanse sanctielijst en de ceo was...
