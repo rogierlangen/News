@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-08-2026 om 05:32*
+*Laatst bijgewerkt: 23-08-2026 om 06:46*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [TransferTalk | Ajax haalt jonge middenvelder, Jayden Oosterwolde op weg naar AS Roma](https://www.ad.nl/voetbal/transfertalk-ajax-haalt-jonge-middenvelder-jayden-oosterwolde-op-weg-naar-as-roma~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [Formule 1 gaat het trotse buitenbeentje op de kalender met alle poldernuchterheid nog stevig missen](https://www.ad.nl/formule-1/formule-1-gaat-het-trotse-buitenbeentje-op-de-kalender-met-alle-poldernuchterheid-nog-stevig-missen~ab69206b/)
-  > De Dutch GP was een triomf van omdenkers, van durvers, van doeners. Tussen de ouwe troep en de strandtenten maakten ze het onmogelijke weer mogelijk....
-- [Boer Gert wil het nu wel eens weten: waar is zijn stikstof gebleven?](https://www.ad.nl/binnenland/boer-gert-wil-het-nu-wel-eens-weten-waar-is-zijn-stikstof-gebleven~a1bb484b/)
-  > Boer Gert stopt noodgedwongen met het boerenbedrijf dat al generaties lang in de familie zit. Hij moet zijn weilanden afstaan aan de provincie...
-- [Deze virale croissantcombinatie is de foodhype van de zomer](https://www.ad.nl/binnenland/deze-virale-croissantcombinatie-is-de-foodhype-van-de-zomer~a3ad6ad5/)
-  > Miljoenen views op TikTok, Instagram en YouTube. Na de crompouce van enkele jaren geleden is er dit jaar weer een nieuwe foodtrend op sociale media....
-- [Achter dit onopvallende bordje zit een systeem dat bij een ernstig ongeluk van grote waarde kan zijn](https://www.ad.nl/auto/achter-dit-onopvallende-bordje-zit-een-systeem-dat-bij-een-ernstig-ongeluk-van-grote-waarde-kan-zijn~a57246a1/)
-  > Je ziet het misschien zonder er ooit bij stil te staan: een klein rood bord met de letters CADO langs de snelweg. Toch zit er achter dat onopvallende...
+- [Al vroeg propvolle treinen voor laatste F1-race op Zandvoort, KNMI verwacht droge race](https://www.ad.nl/formule-1/al-vroeg-propvolle-treinen-voor-laatste-f1-race-op-zandvoort-knmi-verwacht-droge-race~a55ac4cd/)
+  > Dit weekend is de laatste Grand Prix van Nederland. Wat kan Max Verstappen in zijn thuisrace? Volg al het nieuws rond de Formule 1-race in Zandvoort...
+- [Australië meldt eerste geval van H5-vogelgriep bij een zoogdier](https://www.ad.nl/buitenland/australie-meldt-eerste-geval-van-h5-vogelgriep-bij-een-zoogdier~a4d09648/)
+  > Australië heeft zijn eerste bevestigde geval van H5-vogelgriep bij een zoogdier gemeld. Het betreft een langsnuitzeehond die dood werd aangetroffen...
+- [Duizenden naaktfoto’s, maar wie waren de modellen? Monsterklus om alle vrouwen op te sporen](https://www.ad.nl/binnenland/duizenden-naaktfotos-maar-wie-waren-de-modellen-monsterklus-om-alle-vrouwen-op-te-sporen~aa66ff85/)
+  > Duizenden foto’s van honderden modellen. Close-ups van borsten, billen en benen. Het is de nalatenschap van fotograaf Atze Haytsma. Dochter Ingrid en...
+- [Kyle (11) volgt zijn hart en kiest voor praktijkgericht vmbo: ‘Het liefst word ik timmerman’](https://www.ad.nl/binnenland/kyle-11-volgt-zijn-hart-en-kiest-voor-praktijkgericht-vmbo-het-liefst-word-ik-timmerman~acb3f698/)
+  > Als kleuter sliep hij niet met knuffels in zijn bed, maar met een plastic hamer en zaag. De 11-jarige Kyle Ghijsens kiest welbewust voor...
+- [LIVE vakantieblog | Vrouw gestoken door één van giftigste schorpioenen ter wereld op luchthaven Düsseldorf](https://www.ad.nl/buitenland/live-vakantieblog-vrouw-gestoken-door-een-van-giftigste-schorpioenen-ter-wereld-op-luchthaven-dusseldorf~a4195717/)
+  > Op de luchthaven van de Duitse stad Düsseldorf is vrijdag een passagier door een schorpioen gestoken, meldt de lokale brandweer. De geleedpotige zou...
 
 ### Meest gelezen
 
