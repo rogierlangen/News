@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-08-2026 om 12:46*
+*Laatst bijgewerkt: 23-08-2026 om 13:34*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dodental na brand in Zwitsers woongebouw met restaurant loopt op naar 4, ‘geen vermisten meer’](https://www.ad.nl/buitenland/dodental-na-brand-in-zwitsers-woongebouw-met-restaurant-loopt-op-naar-4-geen-vermisten-meer~a4be7e170/)
-  > In het Oost-Zwitserse Thusis zijn nog twee lichamen gevonden na een brand die donderdagavond in een restaurant uitbrak, meldt de politie. Daarmee is...
-- [PSV-fans zwaaien man van 50 miljoen Saibari uit, zorgen bij NEC-fans door Noorse luchtvaartstaking](https://www.ad.nl/voetbal/psv-fans-zwaaien-man-van-50-miljoen-saibari-uit-zorgen-bij-nec-fans-door-noorse-luchtvaartstaking~a378dc98/)
-  > Het nieuwe eredivisieseizoen is van start gegaan. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we...
-- [Gestopt met regenen vlak voor start van de race, Verstappen begint vanaf zevende plaats](https://www.ad.nl/formule-1/gestopt-met-regenen-vlak-voor-start-van-de-race-verstappen-begint-vanaf-zevende-plaats~a37b2d74/)
+- [Zeker drie doden, onder wie een 4-jarige jongen, in Gaza door Israëlische luchtaanvallen](https://www.ad.nl/buitenland/zeker-drie-doden-onder-wie-een-4-jarige-jongen-in-gaza-door-israelische-luchtaanvallen~ac528ac3/)
+  > Bij Israëlische luchtaanvallen in de centrale Gazastrook zijn zondag drie mensen gedood, onder wie een een 4-jarige jongen. Dat meldt de...
+- [‘Dat was het, sorry’: ontgoocheling bij Max Verstappen na keiharde crash laatste GP in Zandvoort](https://www.ad.nl/formule-1/dat-was-het-sorry-ontgoocheling-bij-max-verstappen-na-keiharde-crash-laatste-gp-in-zandvoort~a336f1f1/)
+  > De allerlaatste Grand Prix in Zandvoort is voor Max Verstappen uitgelopen op een sportief drama. Bij het uitkomen van de Arie Luyendijkbocht verloor...
+- [Drama in laatste Dutch GP: Verstappen knalt er snoeihard af in Zandvoort](https://www.ad.nl/formule-1/drama-in-laatste-dutch-gp-verstappen-knalt-er-snoeihard-af-in-zandvoort~a37b2d74/)
   > Voor de laatste keer rijden Max Verstappen en zijn collega’s vandaag de Grand Prix van Zandvoort. De Dutch GP verdwijnt van de Formule 1-kalender....
-- [PSV maakt razendsnel gelijk tegen FC Groningen, eigen goal Blokzijl na voorzet Van Bommel](https://www.ad.nl/voetbal/psv-maakt-razendsnel-gelijk-tegen-fc-groningen-eigen-goal-blokzijl-na-voorzet-van-bommel~a4ed66bb/)
-  > PSV speelde twee weken geleden met 2-2 gelijk tegen Fortuna Sittard. Hoe doet de ploeg van Peter Bosz het vanmiddag tegen FC Groningen, dat de eerste...
-- [Opleving ADO Den Haag van korte duur: oerdegelijk Go Ahead Eagles klimt dankzij zege naar tweede plek](https://www.ad.nl/voetbal/opleving-ado-den-haag-van-korte-duur-oerdegelijk-go-ahead-eagles-klimt-dankzij-zege-naar-tweede-plek~ac583c0e/)
-  > ADO Den Haag is na drie speelronden nog altijd puntloos in de eredivisie. De ploeg van Robin Peter toonde veerkracht maar een punt zat er niet in...
+- [PSV herpakt zich na snelle achterstand en scoort drie keer in eerste helft tegen FC Groningen](https://www.ad.nl/voetbal/psv-herpakt-zich-na-snelle-achterstand-en-scoort-drie-keer-in-eerste-helft-tegen-fc-groningen~a4ed66bb/)
+  > PSV kwam tegen FC Groningen snel op achterstand, maar staat bij rust met 3-1 voor. Ruben van Bommel scoorde nog niet, maar is wel de uitblinker bij...
+- [Paradijsje van Cent en Annemiek wacht de sloop: ‘De grond wordt onder ons weggeslagen’](https://www.ad.nl/binnenland/paradijsje-van-cent-en-annemiek-wacht-de-sloop-de-grond-wordt-onder-ons-weggeslagen~a83e72cb/)
+  > Wie de achtertuin van Cent en Annemiek van Rees (beiden 72) binnenloopt, ziet hoeveel hun Sliedrechtse huurwoning voor hen betekent. Cent bouwde zelf...
 
 ### Meest gelezen
 
