@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-08-2026 om 20:27*
+*Laatst bijgewerkt: 23-08-2026 om 21:24*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [LIVE La Liga | Barcelona op weg naar monsterscore in eerste competitieduel: ook Fermín López mikt raak](https://www.ad.nl/voetbal/live-la-liga-barcelona-op-weg-naar-monsterscore-in-eerste-competitieduel-ook-fermin-lopez-mikt-raak~aae6b674/)
+  > Het La Liga-seizoen gaat beginnen voor FC Barcelona. Nog zonder de geblesseerde Frenkie de Jong gaat de kampioen van vorig seizoen op bezoek bij...
+- [Mika Godts maakt eerste minuten voor Paris Saint-Germain, maar andere debutant eist glansrol op](https://www.ad.nl/voetbal/mika-godts-maakt-eerste-minuten-voor-paris-saint-germain-maar-andere-debutant-eist-glansrol-op~a16bd79e/)
+  > Mike Godts heeft zijn officiële debuut gemaakt voor Paris Saint-Germain. De 21-jarige Belg, die deze zomer voor 45 miljoen euro overkwam van Ajax,...
+- [Bareigenaar Crans-Montana opgepakt voor huiselijk geweld tegen zijn vrouw](https://www.ad.nl/buitenland/bareigenaar-crans-montana-opgepakt-voor-huiselijk-geweld-tegen-zijn-vrouw~aea59748c/)
+  > Een van de twee eigenaren van de bar die tijdens nieuwjaarsnacht afbrandde in het Zwitserse Crans-Montana is opgepakt voor huiselijk geweld. Hij zou...
 - [Kaag zegt dat VS haar wilde als secretaris-generaal van de VN: ‘Maar Nederland liet het op zijn beloop’](https://www.ad.nl/buitenland/kaag-zegt-dat-vs-haar-wilde-als-secretaris-generaal-van-de-vn-maar-nederland-liet-het-op-zijn-beloop~a92cd84e/)
   > Sigrid Kaag heeft in Zomergasten gezegd dat de Verenigde Staten Nederland tien jaar geleden hebben gevraagd of Kaag zich beschikbaar wilde stellen...
-- [Barcelona op rozen in eerste competitieduel: aankoop verdubbelt marge](https://www.ad.nl/voetbal/barcelona-op-rozen-in-eerste-competitieduel-aankoop-verdubbelt-marge~aae6b674/)
-  > Het La Liga-seizoen gaat beginnen voor FC Barcelona. Nog zonder de geblesseerde Frenkie de Jong gaat de kampioen van vorig seizoen op bezoek bij...
 - [Ze kan niet roepen of bellen, maar met één handgebaar weet meisje (14) in Rome aan haar aanrander te ontsnappen](https://www.ad.nl/buitenland/ze-kan-niet-roepen-of-bellen-maar-met-een-handgebaar-weet-meisje-14-in-rome-aan-haar-aanrander-te-ontsnappen~a509a9c2b/)
   > Geen luide schreeuw. Geen noodoproep. Een meisje van veertien had aan één handgebaar genoeg om de politie in Rome duidelijk te maken dat ze in gevaar...
-- [Gezondheid Noorse koning Harald (89) verslechterd](https://www.ad.nl/show/gezondheid-noorse-koning-harald-89-verslechterd~a159b220/)
-  > De gezondheidstoestand van de Noorse koning Harald is dit weekend ‘verslechterd’, meldt het Noorse koninklijk paleis zondag. De vorst heeft een...
-- [Formule 1-podcast | ‘Dit was de laatste grand prix van Max Verstappen op Nederlandse bodem’](https://www.ad.nl/formule-1/formule-1-podcast-dit-was-de-laatste-grand-prix-van-max-verstappen-op-nederlandse-bodem~a222de3b/)
-  > Zandvoort ging eruit met een knal. Voor Max Verstappen dan. De Nederlander crashte in de eerste ronde op Zandvoort en daarmee kreeg de Dutch Grand...
 
 ### Meest gelezen
 
