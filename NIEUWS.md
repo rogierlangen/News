@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-08-2026 om 10:27*
+*Laatst bijgewerkt: 23-08-2026 om 11:23*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Duel tussen Go Ahead Eagles en ADO Den Haag begonnen in heerlijke sfeer in Deventer](https://www.ad.nl/voetbal/duel-tussen-go-ahead-eagles-en-ado-den-haag-begonnen-in-heerlijke-sfeer-in-deventer~ac583c0e/)
-  > ADO Den Haag gaat bij Go Ahead Eagles op jacht naar de eerste punten van het seizoen. Bij de ploeg van Robin Peter verschijnt basisdebutant Othniël...
-- [Amerikaanse dancegroep Major Lazer speelt plots Zwoele Zomernachten op Lowlands: ‘Een hele eer’](https://www.ad.nl/show/amerikaanse-dancegroep-major-lazer-speelt-plots-zwoele-zomernachten-op-lowlands-een-hele-eer~aa3dbb02/)
-  > Een onverwacht meezingmoment op Lowlands: tijdens de set van Major Lazer klonk zaterdagavond plots Zwoele Zomernachten. Het publiek ging massaal los,...
-- [Twaalf doden in één week tijd in Engeland en Ierland: jongeren racen tegen het verkeer in voor likes op TikTok](https://www.ad.nl/buitenland/twaalf-doden-in-een-week-tijd-in-engeland-en-ierland-jongeren-racen-tegen-het-verkeer-in-voor-likes-op-tiktok~a386714e/)
-  > Bij twee zware verkeersongelukken in Engeland en Ierland zijn in een week tijd in totaal twaalf doden gevallen. Opvallend: in beide gevallen was de...
-- [Denzel Dumfries debuteert bij Real Madrid als een snelle roofvogel ‘met meer vleugels dan klauwen’](https://www.ad.nl/voetbal/denzel-dumfries-debuteert-bij-real-madrid-als-een-snelle-roofvogel-met-meer-vleugels-dan-klauwen~abb88bfc/)
-  > Niks onwennig, of zenuwen. Op zijn 30ste debuteerde Denzel Dumfries bij Real Madrid zoals hij altijd heeft gespeeld. Hij eigende zich de rechter...
-- [Griekse politici ruziën over extravagant verjaardagsfeest van Madonna (68)](https://www.ad.nl/show/griekse-politici-ruzien-over-extravagant-verjaardagsfeest-van-madonna-68~a333a894/)
-  > Het verjaardagsfeest dat Madonna afgelopen weekend op het eiland Corfu vierde, heeft geleid tot een politieke rel. De aanleiding is een verzoek aan...
+- [Voor de vakantie gekocht, maar na de reis kon ze de spijkerbroek niet meer ruilen](https://www.ad.nl/geld/voor-de-vakantie-gekocht-maar-na-de-reis-kon-ze-de-spijkerbroek-niet-meer-ruilen~ace460aa/)
+  > De 13-jarige dochter van Tanja (47) kocht een spijkerbroek van 40 euro. Pas na de vakantie ontdekte ze dat haar moeder in de winkel het verkeerde...
+- [‘New hair don’t care’: Erling Haaland verrast fans met afgeschoren haren](https://www.ad.nl/voetbal/new-hair-dont-care-erling-haaland-verrast-fans-met-afgeschoren-haren~adb31c32/)
+  > Erling Haaland begint het nieuwe seizoen in de Premier League met een nieuw kapsel. De 26-jarige spits uit Noorwegen scoorde de afgelopen jaren aan...
+- [Propvolle treinen brengen oranje massa naar Zandvoort, directeur Lammers schrijft open brief aan fans](https://www.ad.nl/formule-1/propvolle-treinen-brengen-oranje-massa-naar-zandvoort-directeur-lammers-schrijft-open-brief-aan-fans~a37b2d74/)
+  > Voor de laatste keer rijden Max Verstappen en zijn collega’s vandaag de Grand Prix van Zandvoort. De Dutch GP verdwijnt van de Formule 1-kalender....
+- [Feyenoord vindt oorzaak voor instorten in laatste halfuur: ‘Dan verlies je de grip op een wedstrijd’](https://www.ad.nl/voetbal/feyenoord-vindt-oorzaak-voor-instorten-in-laatste-halfuur-dan-verlies-je-de-grip-op-een-wedstrijd~aca62b58/)
+  > Dat Feyenoord na een uur spelen de grip volledig kwijtraakt, ligt volgens Giovanni van Bronckhorst aan één ding: de tactische discipline verslapt....
+- [Werk aan de winkel voor ADO Den Haag: Go Ahead Eagels leidt bij rust dankzij rake knal Tengstedt](https://www.ad.nl/voetbal/werk-aan-de-winkel-voor-ado-den-haag-go-ahead-eagels-leidt-bij-rust-dankzij-rake-knal-tengstedt~ac583c0e/)
+  > ADO Den Haag moet in de achtervolging op Go Ahead Eagles. Veel kansen krijgt het publiek in Deventer tot dusver niet te zien, maar het eerste...
 
 ### Meest gelezen
 
