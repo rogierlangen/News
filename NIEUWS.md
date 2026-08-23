@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-08-2026 om 23:23*
+*Laatst bijgewerkt: 23-08-2026 om 01:38*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Franse toerist komt door extreme hitte om in Death Valley na autopech](https://nos.nl/l/2627943)
+  > In het Amerikaanse nationaal park Death Valley in Californië is een Franse toerist omgekomen door de hitte. De 68-jarige man kreeg samen met zijn...
 - [Nieuwe Israëlische aanval in Syrië, veroordeling vanuit Damascus](https://nos.nl/l/2627942)
   > Syrië heeft een nieuwe Israëlische aanval in de buurt van hoofdstad Damascus veroordeeld. Volgens Syrië werd bij de aanval een civiel voertuig...
 - [Japanse ambassadeur voor het eerst bij herdenking Birma-Siam-spoorlijn in Arnhem](https://nos.nl/l/2627926)
@@ -16,8 +18,6 @@
   > Canada komt met tegenmaatregelen als reactie op de Amerikaanse importheffingen van 50 procent op enkele Canadese producten. Vanaf 8 september zal het...
 - [Rotterdam ontslaat twee ambtenaren vanwege corruptie](https://nos.nl/l/2627915)
   > De gemeente Rotterdam heeft deze zomer twee ambtenaren op staande voet ontslagen die zich zouden hebben laten omkopen bij bouwprojecten. De maatregel...
-- [Madonna's verjaardagsfeest op Grieks eiland veroorzaakt politieke rel](https://nos.nl/l/2627902)
-  > Popster Madonna heeft in Griekenland een politieke rel veroorzaakt. Ze vierde afgelopen zondag haar 68e verjaardag op het eiland Corfu, maar een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Iraanse hackers leggen kleine Britse energiecentrale vier dagen lang stil: overheid relativeert impact](https://www.ad.nl/buitenland/iraanse-hackers-leggen-kleine-britse-energiecentrale-vier-dagen-lang-stil-overheid-relativeert-impact~aa588061/)
+  > Iraanse hackers zijn er voor het eerst in geslaagd om een Britse energiecentrale plat te leggen. Dat meldt de Britse krant The Telegraph. De impact...
+- [Hongarije moet de puinhoop van 16 jaar Orbán onder ogen zien: ‘Het is veel mensen extreem moeilijk gemaakt’](https://www.ad.nl/buitenland/hongarije-moet-de-puinhoop-van-16-jaar-orban-onder-ogen-zien-het-is-veel-mensen-extreem-moeilijk-gemaakt~a29df816/)
+  > De val van dwarsligger Viktor Orbán werd in veel Europese landen gevierd als belangrijk teken van hoop. Van zijn opvolger Péter Magyar wordt veel...
+- [Franse toerist bezwijkt aan extreme hitte in Death Valley nadat auto vastloopt op afgelegen weg](https://www.ad.nl/buitenland/franse-toerist-bezwijkt-aan-extreme-hitte-in-death-valley-nadat-auto-vastloopt-op-afgelegen-weg~a286783a/)
+  > Een 68-jarige Franse toerist is door de extreme hitte om het leven gekomen in het Amerikaanse nationale park Death Valley in Californië. Dat hebben...
+- [Pentagon ontslaat top militaire krant: ‘Brutale poging om berichtgeving over leger te sturen’](https://www.ad.nl/buitenland/pentagon-ontslaat-top-militaire-krant-brutale-poging-om-berichtgeving-over-leger-te-sturen~a369e058/)
+  > De hoofdredacteur van de Amerikaanse militaire krant Stars and Stripes vreest voor toenemende censuur, zegt hij tegen de Britse omroep BBC. Erik...
 - [Trump deed in juni meer dan duizend beurstransacties, ter waarde van 263 miljoen dollar](https://www.ad.nl/buitenland/trump-deed-in-juni-meer-dan-duizend-beurstransacties-ter-waarde-van-263-miljoen-dollar~af9332a6/)
   > De Amerikaanse president Donald Trump heeft in juni meer dan duizend transacties met aandelen en andere beleggingen gedaan. De transacties hadden...
-- [Real Madrid met schrik vrij bij debuut van Dumfries: invaller kroont zich tot matchwinner in 90ste minuut](https://www.ad.nl/voetbal/real-madrid-met-schrik-vrij-bij-debuut-van-dumfries-invaller-kroont-zich-tot-matchwinner-in-90ste-minuut~ae2059bf/)
-  > Denzel Dumfries heeft met een zwaarbevochten zege zijn officiële debuut gemaakt voor Real Madrid. Pas in de 90ste minuut zorgde invaller Carlos Espí...
-- [PEC Zwolle slaat toe na rust en wint verrassend bij Heerenveen](https://www.ad.nl/voetbal/pec-zwolle-slaat-toe-na-rust-en-wint-verrassend-bij-heerenveen~aee4fb24/)
-  > Heerenveen was oppermachtig in de eerste helft, maar de lat en PEC Zwolle-keeper Jasper Schendelaar voorkwamen een (ruime) voorsprong. Na rust...
-- [In Het Wiel | ‘Deze tijdrit had alles wat een tijdrit lekker maakt’](https://www.ad.nl/tour-de-france/in-het-wiel-deze-tijdrit-had-alles-wat-een-tijdrit-lekker-maakt~a58111af/)
-  > Krijgen we Tadej Pogačar van start tot finish in de rode trui? Het zou zomaar kunnen, want de Sloveen wint de openingstijdrit van de Vuelta. Hij doet...
-- [Bayern München verslaat Dortmund en pakt eerste prijs van seizoen, Joey Veerman en Ismael Saibari vallen in](https://www.ad.nl/voetbal/bayern-munchen-verslaat-dortmund-en-pakt-eerste-prijs-van-seizoen-joey-veerman-en-ismael-saibari-vallen-in~a0352519/)
-  > Bayern München heeft met Duitse Supercup de eerste prijs van het seizoen al binnen. De ploeg van trainer Vincent Kompany was in het hol van de leeuw...
 
 ### Meest gelezen
 
