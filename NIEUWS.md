@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-08-2026 om 07:35*
+*Laatst bijgewerkt: 23-08-2026 om 08:33*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Richard de Mos en co zetten iconische groen-gele karaokelimousine én partijbussen in de etalage: ‘Ze zijn niet meer nodig’](https://www.ad.nl/den-haag/richard-de-mos-en-co-zetten-iconische-groen-gele-karaokelimousine-en-partijbussen-in-de-etalage-ze-zijn-niet-meer-nodig~a555d7b7/)
-  > De iconische groen-gele limousine van Hart voor Den Haag hebben? De ‘bekendste karaokelimo van Nederland’ staat te koop op Marktplaats. Voor 6500...
-- [24 uur op Lowlands: ‘Dat het hier één groot yuppenfestijn wordt, is soms best een beetje jammer’](https://www.ad.nl/show/24-uur-op-lowlands-dat-het-hier-een-groot-yuppenfestijn-wordt-is-soms-best-een-beetje-jammer~a5eee459/)
-  > Een stretcher die het midden in de nacht begeeft, op slippers door de regen naar de Dixie baggeren en vier dagen niet douchen. Dat is al sinds 1993...
-- [Al vroeg propvolle treinen voor laatste F1-race op Zandvoort, KNMI verwacht droge race](https://www.ad.nl/formule-1/al-vroeg-propvolle-treinen-voor-laatste-f1-race-op-zandvoort-knmi-verwacht-droge-race~a55ac4cd/)
-  > Dit weekend is de laatste Grand Prix van Nederland. Wat kan Max Verstappen in zijn thuisrace? Volg al het nieuws rond de Formule 1-race in Zandvoort...
-- [Australië meldt eerste geval van H5-vogelgriep bij een zoogdier](https://www.ad.nl/buitenland/australie-meldt-eerste-geval-van-h5-vogelgriep-bij-een-zoogdier~a4d09648/)
-  > Australië heeft zijn eerste bevestigde geval van H5-vogelgriep bij een zoogdier gemeld. Het betreft een langsnuitzeehond die dood werd aangetroffen...
-- [Dozen en koffertjes met duizenden naaktfoto’s: Ingrid en Elles proberen te achterhalen wie zij waren](https://www.ad.nl/binnenland/dozen-en-koffertjes-met-duizenden-naaktfotos-ingrid-en-elles-proberen-te-achterhalen-wie-zij-waren~aa66ff85/)
-  > Duizenden foto’s van honderden modellen. Close-ups van borsten, billen en benen. Het is de nalatenschap van fotograaf Atze Haytsma. Dochter Ingrid en...
+- [Binnen een paar weken weer groene sprietjes? Dit moet je wel en vooral niet doen met gras nu het regent](https://www.ad.nl/wonen/binnen-een-paar-weken-weer-groene-sprietjes-dit-moet-je-wel-en-vooral-niet-doen-met-gras-nu-het-regent~a1d28bdb/)
+  > In een uitzonderlijk droge zomer keken veel mensen wekenlang uit op een soort steppe. Maar kijk: het regent eindelijk weer. Komt het met je dorre...
+- [PSV laat Couhaib Driouech tóch buiten de selectie: miljoenentransfer naar Spanje aanstaande](https://www.ad.nl/regiosport-eindhoven/psv-laat-couhaib-driouech-toch-buiten-de-selectie-miljoenentransfer-naar-spanje-aanstaande~a758f0fb/)
+  > Voor PSV-aanvaller Couhaib Driouech komt er na zijn afgeblazen overgang naar Rangers FC alsnog een definitieve transfer aan, zo lijkt het. De...
+- [Toto Wolff beseft dat F1-deal met Max Verstappen er niet meer in zit: ‘Dan maar beter de duivel die je kent, hè’](https://www.ad.nl/formule-1/toto-wolff-beseft-dat-f1-deal-met-max-verstappen-er-niet-meer-in-zit-dan-maar-beter-de-duivel-die-je-kent-he~a34672fa/)
+  > Een jaar terug vertelde Toto Wolff in Zandvoort nog dat hij verwachtte dat zijn pad in de Formule 1 wel zou kruisen met Max Verstappen. Na de...
+- [Wordt Mathieu van der Poel nu wél wereldkampioen op zijn lievelingsfiets? ‘Ik wil elke kans grijpen’](https://www.ad.nl/wielrennen/wordt-mathieu-van-der-poel-nu-wel-wereldkampioen-op-zijn-lievelingsfiets-ik-wil-elke-kans-grijpen~af28c790/)
+  > In het Franse Les Gets maakt Mathieu van der Poel zich klaar voor een levensdoel: volgend weekend wereldkampioen mountainbike worden in Val di Sole....
+- [Albert Verlinde was op school al dé gangmaker: ‘Meiden kwamen als vliegen op de stroop op hem af’](https://www.ad.nl/show/albert-verlinde-was-op-school-al-de-gangmaker-meiden-kwamen-als-vliegen-op-de-stroop-op-hem-af~a21557c2/)
+  > Iedereen kent Albert Verlinde (65) als de man die decennialang de vaart in de Nederlandse theater- en televisiewereld hield. Maar de basis voor die...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Alibaba wil nieuw kapitaal ophalen voor investeringen in AI](https://fd.nl/bedrijfsleven/1609805/alibaba-wil-nieuw-kapitaal-ophalen-voor-investeringen-in-ai)
+  > Het Chinese techbedrijf is van plan met uitgifte van aandelen ruim €8 mrd uit de markt te halen.
+- [Bitcoin richting de $80.000, maar is het geen dode kat?](https://fd.nl/financiele-markten/1609701/bitcoin-richting-de-80-000-maar-is-het-geen-dode-kat)
+  > De bitcoinkoers steeg in enkele dagen van zo’n $64.000 richting de $80.000, een winst van bijna 25%. Is dit het begin van een nieuwe cryptohype, of...
 - [Kabinet: Grijp in, bezuinig en red het Nederlandse huishoudboekje](https://fd.nl/opinie/1609635/kabinet-grijp-in-bezuinig-en-red-het-nederlandse-huishoudboekje)
   > Hoewel de Europese ogen zijn gericht op het oplopende Franse begrotingstekort, kan ook Nederland niet op zijn lauweren rusten. Het kabinet-Jetten...
 - [Neem inflatiecorrectie mee in box 3-berekening](https://fd.nl/opinie/1609654/los-box-3-impasse-op-met-korting-en-inflatiecorrectie)
   > Een discussiepunt in de begrotingsonderhandelingen in politiek Den Haag is het box 3-dossier. Het kabinet moet daarbij direct maatregelen nemen om...
 - [Schaalmodellenmaker Artitec blijft met DAF-bussen en ‘poep aan de schoen’ groot in zijn niche](https://fd.nl/bedrijfsleven/1609311/schaalmodellenmaker-artitec-blijft-met-daf-bussen-en-poep-aan-de-schoen-groot-in-zijn-niche)
   > Het bedrijf van de broers Tomesen weet met gedetailleerde bouwpakketten en schaalmodellen de fijnproevers onder hobbyisten en verzamelaars te...
-- [Directeur RDW: Waarom is dit nodig? Dat moeten ambtenaren zich continu afvragen](https://fd.nl/samenleving/1606839/directeur-rdw-waarom-is-dit-nodig-dat-moeten-ambtenaren-zich-continu-afvragen)
-  > In het bedrijfsleven leerde Jantina Woudstra snel en efficiënt werken. Maar als directeur van de RDW moet vaak de rem erop.
-- [Luisterverhaal: Wonderschone skylines en ruime keukens: misleidende AI-foto’s in opkomst op Funda](https://fd.nl/samenleving/1609777/luisterverhaal-wonderschone-skylines-en-ruime-keukens-misleidende-ai-fotos-in-opkomst-op-funda)
-  > Deze week hoor je de special over de opkomst van misleidende AI-foto’s op Funda.
 
 ### Meest gelezen
 
