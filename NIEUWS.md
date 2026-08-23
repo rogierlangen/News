@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-08-2026 om 19:24*
+*Laatst bijgewerkt: 23-08-2026 om 20:27*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Geen Russische ambassadeur meer in VK om Britse steun aan Oekraïne](https://nos.nl/l/2628066)
+  > Rusland heeft vorige maand zijn ambassadeur uit het Verenigd Koninkrijk teruggetrokken. Dat heeft de Russische ambassade in Londen bevestigd aan...
 - [Toestand Noorse koning Harald (89) in ziekenhuis verslechterd](https://nos.nl/l/2628061)
   > De toestand van de 89-jarige Noorse koning Harald is dit weekend in het ziekenhuis verslechterd, meldt het koninklijk paleis in Oslo. De vorst werd...
 - [Vijf Cambuurfans gewond door vuurwerk Feyenoordsupporters](https://nos.nl/l/2628058)
@@ -16,8 +18,6 @@
   > Deelnemers aan de marathon van Sydney krijgen volgende week zondag een wel heel bijzondere medaille na het finishen. Op het eremetaal staan bekende...
 - [Politie vindt drugslab naast plek waar jaar geleden óók al groot lab werd ontdekt](https://nos.nl/l/2628054)
   > De politie heeft bij een inval in Bergen op Zoom een werkend drugslab aangetroffen. Er zouden verschillenden types drugs worden geproduceerd, meldt...
-- [Discussies in Spanje over of het zorgsysteem in Ceuta de migranten aankan](https://nos.nl/l/2628053)
-  > Duizenden migranten zwerven nog op straat in Ceuta. De inwoners van de Spaanse exclave in Noord-Afrika ervaren overlast, voelen zich soms onveilig en...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘Druk’ is al heel lang het antwoord op de simpele vraag hoe het gaat](https://www.ad.nl/binnenland/druk-is-al-heel-lang-het-antwoord-op-de-simpele-vraag-hoe-het-gaat~ab7a050b/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [Jan Lammers laat humeur niet bederven door crash Verstappen: ‘Ik vond deze editie de leukste eigenlijk’](https://www.ad.nl/formule-1/jan-lammers-laat-humeur-niet-bederven-door-crash-verstappen-ik-vond-deze-editie-de-leukste-eigenlijk~afc7727f/)
-  > Het zit erop, de laatste editie van de Dutch Grand Prix in Zandvoort. Sportief directeur Jan Lammers liet ‘s ochtends om 07.15 uur al de eerste...
-- [In Het Wiel | ‘Mathieu van der Poel staat er heel anders voor dan vorig jaar’](https://www.ad.nl/tour-de-france/in-het-wiel-mathieu-van-der-poel-staat-er-heel-anders-voor-dan-vorig-jaar~a58111af/)
-  > Genoeg te bespreken in een nieuwe aflevering van In Het Wiel. Niek Goedvolk heeft het met Roxane Knetemann en wielerverslaggever Daniël Dwarswaard...
-- [Veiligheidsmensen rond Feyenoord voelden aan dat er rond minuut twaalf iets te gebeuren stond](https://www.ad.nl/voetbal/veiligheidsmensen-rond-feyenoord-voelden-aan-dat-er-rond-minuut-twaalf-iets-te-gebeuren-stond~a513671fa/)
-  > Feyenoord kan de aanklager van de KNVB op de lijn verwachten. De grootste winst dit seizoen (2-5) werd overschaduwd door rondvliegend vuurwerk uit...
-- [Je caravan even ondersteboven houden? Hoe het kan dat AI-modellen soms ‘hallucineren’](https://www.ad.nl/tech/je-caravan-even-ondersteboven-houden-hoe-het-kan-dat-ai-modellen-soms-hallucineren~a6ca4d6e/)
-  > Als verslaggever Bram Louws de koelkast in zijn caravan niet aan de praat krijgt, biedt ChatGPT de helpende hand. Het advies: ‘Houd de caravan even...
+- [Kaag zegt dat VS haar wilde als secretaris-generaal van de VN: ‘Maar Nederland liet het op zijn beloop’](https://www.ad.nl/buitenland/kaag-zegt-dat-vs-haar-wilde-als-secretaris-generaal-van-de-vn-maar-nederland-liet-het-op-zijn-beloop~a92cd84e/)
+  > Sigrid Kaag heeft in Zomergasten gezegd dat de Verenigde Staten Nederland tien jaar geleden hebben gevraagd of Kaag zich beschikbaar wilde stellen...
+- [Barcelona op rozen in eerste competitieduel: aankoop verdubbelt marge](https://www.ad.nl/voetbal/barcelona-op-rozen-in-eerste-competitieduel-aankoop-verdubbelt-marge~aae6b674/)
+  > Het La Liga-seizoen gaat beginnen voor FC Barcelona. Nog zonder de geblesseerde Frenkie de Jong gaat de kampioen van vorig seizoen op bezoek bij...
+- [Ze kan niet roepen of bellen, maar met één handgebaar weet meisje (14) in Rome aan haar aanrander te ontsnappen](https://www.ad.nl/buitenland/ze-kan-niet-roepen-of-bellen-maar-met-een-handgebaar-weet-meisje-14-in-rome-aan-haar-aanrander-te-ontsnappen~a509a9c2b/)
+  > Geen luide schreeuw. Geen noodoproep. Een meisje van veertien had aan één handgebaar genoeg om de politie in Rome duidelijk te maken dat ze in gevaar...
+- [Gezondheid Noorse koning Harald (89) verslechterd](https://www.ad.nl/show/gezondheid-noorse-koning-harald-89-verslechterd~a159b220/)
+  > De gezondheidstoestand van de Noorse koning Harald is dit weekend ‘verslechterd’, meldt het Noorse koninklijk paleis zondag. De vorst heeft een...
+- [Formule 1-podcast | ‘Dit was de laatste grand prix van Max Verstappen op Nederlandse bodem’](https://www.ad.nl/formule-1/formule-1-podcast-dit-was-de-laatste-grand-prix-van-max-verstappen-op-nederlandse-bodem~a222de3b/)
+  > Zandvoort ging eruit met een knal. Voor Max Verstappen dan. De Nederlander crashte in de eerste ronde op Zandvoort en daarmee kreeg de Dutch Grand...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Tientallen doden bij instorting vuilnisbelt Guinee](https://fd.nl/samenleving/1609920/tientallen-doden-bij-instorting-vuilnisbelt-guinee)
+  > Dagenlange regenval maakte de afvalberg instabiel, waardoor omliggende huizen bedolven werden.
 - [‘Iraanse cyberaanval legt Britse energiecentrale plat’](https://fd.nl/politiek/1609814/iraanse-cyberaanval-legt-britse-energiecentrale-plat)
   > Volgens de krant The Telegraph is het de eerste succesvolle aanval van Iraanse hackers op een Britse centrale.
 - [Arcadis staat voor belangrijkste periode in zijn bestaan](https://fd.nl/opinie/1609382/arcadis-staat-voor-belangrijkste-periode-in-zijn-bestaan)
@@ -54,8 +56,6 @@
   > Alle scenario’s voor de toekomst van box 3 kosten ‘veel, heel veel of onwijs veel geld’, klinkt het in Den Haag. Vier vragen over de belasting op...
 - [Brein achter diefstal bedrijfsgeheimen bij ASML wil naar de beurs in China](https://fd.nl/bedrijfsleven/1609698/brein-achter-diefstal-bedrijfsgeheimen-bij-asml-wil-naar-de-beurs-in-china)
   > Het Chinese techbedrijf Dongfang Jingyuan mikt op een beursnotering in Shanghai. Het bedrijf staat op een Amerikaanse sanctielijst en de ceo was...
-- [Zelensky: verkiezingen kunnen Oekraïne nu verscheuren](https://fd.nl/politiek/1609812/zelensky-verkiezingen-kunnen-oekraine-nu-verscheuren)
-  > De Oekraïense president wijst een oproep voor stembusgang in oorlogstijd af.
 
 ### Meest gelezen
 
