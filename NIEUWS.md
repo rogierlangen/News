@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-08-2026 om 13:55*
+*Laatst bijgewerkt: 24-08-2026 om 14:46*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Man (26) vast om dood van bewoner woonzorgcentrum Oirschot](https://nos.nl/l/2628146)
+  > De verdachte die gisteren is aangehouden vanwege het overlijden van een bewoner van een woonzorgcentrum in Oirschot, is een 26-jarige man uit de...
+- [Boot met migranten omgeslagen bij Tunesië, protesten om tempo zoekacties](https://nos.nl/l/2628142)
+  > Voor de kust van Tunesië zijn zeker elf mensen om het leven gekomen bij een bootongeluk. Nog drie mensen zijn vermist, één persoon heeft de ramp...
 - [Vrouw stort 6 meter omlaag bij verboden tocht door gangenstelsel onder Parijs](https://nos.nl/l/2628133)
   > De brandweer van Parijs heeft afgelopen weekend een vrouw uit het ondergrondse gangenstelsel van Parijs bevrijd nadat zij 6 meter naar beneden was...
 - [Podcast De Dag: (ondergronds) opereren aan het Oekraïense front](https://nos.nl/l/2628131)
   > Frederiek Roukens is student geneeskunde en hielp deze zomer in een Oekraïens ziekenhuis vlak aan het front. Mark van Berge-Henegouwen is chirurg en...
 - [Brand in ziekenhuis in Maagdenburg, tientallen patiënten geëvacueerd](https://nos.nl/l/2628127)
   > Bij een brand in een patiëntenkamer van een ziekenhuis in de Duitse stad Maagdenburg zijn drie mensen gewond geraakt. Eén slachtoffer is er slecht...
-- [Burgemeester over busongeluk A28: 'Er zaten heel veel engeltjes op schouders'](https://nos.nl/l/2628125)
-  > Het ongeluk van vannacht met een touringcar en bestelbus op de A28 bij Wezep had "veel erger kunnen aflopen", zegt burgemeester Haseloop-Amsing van...
-- [Man (31) om het leven gekomen bij chaletbrand Kortenhoef](https://nos.nl/l/2628122)
-  > Bij een brand in een chalet in Kortenhoef (Noord-Holland) is vanochtend een 31-jarige man om het leven gekomen. Volgens de politie gaat het om de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Bezoekers van Lowlands naar EHBO na gebruik van pepperspray bij hoofdpodium tijdens optreden Major Lazer](https://www.ad.nl/show/bezoekers-van-lowlands-naar-ehbo-na-gebruik-van-pepperspray-bij-hoofdpodium-tijdens-optreden-major-lazer~a6e51d02/)
-  > Tijdens het optreden van Major Lazer op Lowlands is zaterdagavond pepperspray gebruikt in de Alpha-tent. Meerdere bezoekers moesten naar de EHBO. Het...
-- [Ajax dicht bij aantrekken Viktor Tsygankov; Oekraïens international kan meerjarig contract tekenen](https://www.ad.nl/voetbal/ajax-dicht-bij-aantrekken-viktor-tsygankov-oekraiens-international-kan-meerjarig-contract-tekenen~a608617f/)
-  > Ajax is dicht bij de komst van Viktor Tsygankov. De 28-jarige vleugelspits werkte met trainer Míchel Sánchez samen bij Girona. Met de Catalaanse club...
-- [Niets hielp tegen Mascha’s depressie, tot dat ene middel: ‘Na tweede infuus waren mijn suïcidale gedachten weg’](https://www.ad.nl/binnenland/niets-hielp-tegen-maschas-depressie-tot-dat-ene-middel-na-tweede-infuus-waren-mijn-suicidale-gedachten-weg~abfa981f/)
-  > Huisarts Mascha Gesthuizen uit Arnhem probeerde alles om van haar depressie af te komen. Na tien jaar bood ketamine de oplossing, maar ze wist niet...
-- [Dode die langs de Maas werd gevonden is 40-jarige vrouw, politie vermoedt misdrijf](https://www.ad.nl/binnenland/dode-die-langs-de-maas-werd-gevonden-is-40-jarige-vrouw-politie-vermoedt-misdrijf~ac49ec74/)
-  > Het lichaam van een overleden vrouw is zaterdagmiddag langs de Maas in Venlo aangetroffen. De politie meldt maandag dat het om een 40-jarige vrouw...
-- [Oranje-captain over toernooiopzet, concurrentie en WK-kansen: ‘Je moet mee, wil je überhaupt iets bereiken’](https://www.ad.nl/andere-sporten/oranje-captain-over-toernooiopzet-concurrentie-en-wk-kansen-je-moet-mee-wil-je-uberhaupt-iets-bereiken~ae623e45/)
-  > Nederland wacht sinds 1998 op de wereldtitel. De hockeyers kunnen vanavond de halve finales van het WK bereiken. Hoe kijkt aanvoerder Thierry...
+- [Geraldine heeft een opvallende verzameling en Ortál showt haar babybuik bij 37 weken zwanger](https://www.ad.nl/show/geraldine-heeft-een-opvallende-verzameling-en-ortal-showt-haar-babybuik-bij-37-weken-zwanger~a7582192/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Bijna een kwart van de verkochte auto’s is al 16 jaar of ouder: waarom oude occasions zo populair zijn](https://www.ad.nl/auto/bijna-een-kwart-van-de-verkochte-autos-is-al-16-jaar-of-ouder-waarom-oude-occasions-zo-populair-zijn~aa5b2da5/)
+  > Nederlanders kiezen steeds vaker voor een oudere auto. Vorig jaar was bijna een kwart van alle verkochte auto’s zestien jaar of ouder. Niet eerder...
+- [Ajax liet zien hoe het werkt: als Feyenoord zelf harde lijn trekt en ingrijpt, valt de straf mogelijk mee](https://www.ad.nl/voetbal/ajax-liet-zien-hoe-het-werkt-als-feyenoord-zelf-harde-lijn-trekt-en-ingrijpt-valt-de-straf-mogelijk-mee~a692f1b4/)
+  > Dat de aanklager van de KNVB met straffen komt voor Feyenoord vanwege het vuurwerk dat zondag op het veld werd gegooid in het stadion van Cambuur, is...
+- [Michael Reiziger laat van zich horen na mislopen bondscoachschap: ‘Niet leuk wat er voorbij is gekomen’](https://www.ad.nl/voetbal/michael-reiziger-laat-van-zich-horen-na-mislopen-bondscoachschap-niet-leuk-wat-er-voorbij-is-gekomen~ac932afe/)
+  > Michael Reiziger heeft voor het eerst gereageerd op de procedure rondom het bondscoachschap bij Oranje. De trainer van Jong Oranje is niet blij met...
+- [Man (26) opgepakt in onderzoek naar verdacht overlijden in Brabants woonzorgcentrum](https://www.ad.nl/binnenland/man-26-opgepakt-in-onderzoek-naar-verdacht-overlijden-in-brabants-woonzorgcentrum~a4f9c7fe/)
+  > De verdachte die zondagochtend is aangehouden in verband met een verdacht overlijden in een woonzorgcentrum in Oirschot is een 26-jarige man uit...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Werknemers leren AI-robots hoe die straks hun baan kunnen overnemen](https://fd.nl/bedrijfsleven/1609306/werknemers-leren-ai-robots-hoe-die-straks-hun-baan-kunnen-overnemen)
-  > Overal in India worden tienduizenden arbeiders ingezet om vast te leggen hoe mensen hun handen gebruiken. Met die data worden de AI-systemen ‘gevoed’...
-- [Canadese dollar zakt na afbreken onderhandelingen met VS over handelsakkoord](https://fd.nl/financiele-markten/1609833/canadese-dollar-zakt-na-afbreken-onderhandelingen-met-vs-over-handelsakkoord)
-  > De munt gaat 0,5% onderuit tegen Amerikaanse tegenhanger.
-- [Vraag van klanten ontketent jacht op AI-specialisten bij grote consultants](https://fd.nl/financiele-markten/1609824/vraag-van-klanten-ontketent-jacht-op-ai-specialisten-bij-grote-consultants)
-  > De grote advieskantoren zoeken medewerkers die technische kennis van AI combineren met de vaardigheden van een consultant.
-- [Blijf voorlopig aan boord, vraagt Commerzbank aan de staat](https://fd.nl/financiele-markten/1609822/blijf-voorlopig-aan-boord-vraagt-commerzbank-aan-de-staat)
-  > Het lijkt zeker dat de Duitse bank in handen komt van UniCredit. Nu het getouwtrek over de details van de deal begint, komen er ook eisen uit Berlijn...
-- [Noorwegen blijft in het Noordpoolgebied boren, ondanks verzet van de EU](https://fd.nl/politiek/1609827/noorwegen-blijft-in-het-noordpoolgebied-boren-ondanks-verzet-van-de-eu)
-  > De EU steunt een moratorium op nieuwe olie- en gaswinning in het Noordpoolgebied. Noorwegen vindt dat onverstandig. Mocht de EU eraan vasthouden, dan...
+- [Rivaal van Netanyahu op weg naar de macht](https://fd.nl/politiek/1608009/rivaal-van-netanyahu-op-weg-naar-de-macht)
+  > Wie is Gadi Eisenkot, de man die uitgerekend Israëls langstzittende premier zou kunnen verslaan?
+- [Poetin geeft de staat het recht de controle bij belangrijke bedrijven over te nemen](https://fd.nl/politiek/1609834/poetin-geeft-de-staat-het-recht-de-controle-bij-belangrijke-bedrijven-over-te-nemen)
+  > Het gaat onder meer om energiebedrijven en de industrie. Ruslands op een na grootste retailer Ozon werd maandag door Oekraïne aangevallen.
+- [Zweeds pensioenfonds stapt in Arcadis midden in overnamepoging door WSP](https://fd.nl/bedrijfsleven/1609971/zweeds-pensioenfonds-stapt-in-arcadis-midden-in-overnamepoging-door-wsp)
+  > Het Stockholmse fonds Alecta Tjänstepension Ömsesidigt heeft een belang van 3,03% genomen in het Amsterdamse ingenieursadviesbureau, blijkt uit een...
+- [Hoogste inkomens kopen meeste stekkerauto’s](https://fd.nl/economie/1609970/hoogste-inkomens-kopen-meeste-stekkerautos)
+  > De 10% hoogste inkomens zijn verantwoordelijk voor een kwart van de aankopen van nieuwe personenauto’s, blijkt uit een analyse van het CBS.
+- [Problemen stapelen zich op voor imperium Amerikaanse zakenman Mark Walter](https://fd.nl/financiele-markten/1609916/problemen-stapelen-zich-op-voor-imperium-amerikaanse-zakenman-mark-walter)
+  > Beleggers hebben steeds minder vertrouwen in de bedrijven en fondsen van de Amerikaanse miljardair. De waarde van een lening aan een...
 
 ### Meest gelezen
 
