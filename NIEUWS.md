@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-08-2026 om 23:24*
+*Laatst bijgewerkt: 24-08-2026 om 01:36*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Meisje (14) ontsnapt in Rome aan mogelijke verkrachtingspoging dankzij SOS-gebaar](https://nos.nl/l/2628076)
+  > Een 14-jarig meisje is in Rome ontkomen aan een mogelijke verkrachtingspoging doordat zij met haar hand het internationale SOS-gebaar voor hulp...
 - [Eigenaar rampbar Crans-Montana opgepakt na geweld tegen zijn vrouw](https://nos.nl/l/2628074)
   > Een van de eigenaren van het café waar tijdens de nieuwjaarsnacht in het Zwitserse Crans-Montana een verwoestende brand uitbrak, zit in voorlopige...
 - [Geen Russische ambassadeur meer in VK om Britse steun aan Oekraïne](https://nos.nl/l/2628066)
@@ -16,8 +18,6 @@
   > De toestand van de 89-jarige Noorse koning Harald is dit weekend in het ziekenhuis verslechterd, meldt het koninklijk paleis in Oslo. De vorst werd...
 - [Vijf Cambuurfans gewond door vuurwerk Feyenoordsupporters](https://nos.nl/l/2628058)
   > Vijf supporters van SC Cambuur zijn gewond geraakt door vuurwerk dat bezoekende fans van Feyenoord naar hun vak gooiden. Dat gebeurde vanmiddag...
-- ['Ongelukkig foutje': medaille marathon Sydney toont stadion in München](https://nos.nl/l/2628057)
-  > Deelnemers aan de marathon van Sydney krijgen volgende week zondag een wel heel bijzondere medaille na het finishen. Op het eremetaal staan bekende...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Verbouwingen zijn geen oplossing voor woningtekort, zegt Economisch Instituut voor de Bouw](https://www.ad.nl/binnenland/verbouwingen-zijn-geen-oplossing-voor-woningtekort-zegt-economisch-instituut-voor-de-bouw~a1162e4a/)
+  > Het beleid van het kabinet-Jetten om het woningtekort terug te dringen door bestaande gebouwen om te bouwen tot woningen is niet effectief. Dat...
+- [Samenleving nog lang niet rookvrij: jongvolwassenen roken en vapen weer volop](https://www.ad.nl/binnenland/samenleving-nog-lang-niet-rookvrij-jongvolwassenen-roken-en-vapen-weer-volop~a0984a0f/)
+  > De rookvrije generatie is verder weg dan ooit. Uit een nieuwe peiling blijkt dat 40 procent van de jongvolwassenen rookt of vapet. Sociale media...
+- [Memphis Depay valt na tumultueuze week opnieuw in bij Corinthians, maar kan nederlaag niet voorkomen](https://www.ad.nl/sport/memphis-depay-valt-na-tumultueuze-week-opnieuw-in-bij-corinthians-maar-kan-nederlaag-niet-voorkomen~aab03b0ae/)
+  > Memphis Depay heeft zijn droomrentree van donderdag bij Corinthians zondag geen succesvol vervolg kunnen geven. De aanvaller viel in het...
+- [Twaalf lichamen geborgen na zinken migrantenboot voor kust van Tunesië](https://www.ad.nl/buitenland/twaalf-lichamen-geborgen-na-zinken-migrantenboot-voor-kust-van-tunesie~a15128f4/)
+  > De Tunesische kustwacht heeft de lichamen geborgen van twaalf opvarenden van een migrantenboot die vrijdag zonk voor de kust van Tunesië. Naar twee...
 - [Bosbrand uitgebroken in oosten van Turkse hoofdstad Ankara](https://www.ad.nl/buitenland/bosbrand-uitgebroken-in-oosten-van-turkse-hoofdstad-ankara~ad0a3949/)
   > In het oosten van de Turkse hoofdstad Ankara is zondagavond een natuurbrand uitgebroken. De vermoedelijke brandstichter is opgepakt. Dat melden de...
-- [Barcelona haalt genadeloos uit bij seizoenstart: debutant Adeyemi scoort, ook Gordon blinkt uit](https://www.ad.nl/voetbal/barcelona-haalt-genadeloos-uit-bij-seizoenstart-debutant-adeyemi-scoort-ook-gordon-blinkt-uit~aae6b674/)
-  > FC Barcelona is het La Liga-seizoen begonnen met een monsterscore. Op bezoek bij Elche regende het doelpunten: de ploeg won, nog zonder de...
-- [Mika Godts maakt eerste minuten voor Paris Saint-Germain, maar andere debutant eist glansrol op](https://www.ad.nl/voetbal/mika-godts-maakt-eerste-minuten-voor-paris-saint-germain-maar-andere-debutant-eist-glansrol-op~a16bd79e/)
-  > Mike Godts heeft zijn officiële debuut gemaakt voor Paris Saint-Germain. De 21-jarige Belg, die deze zomer voor 45 miljoen euro overkwam van Ajax,...
-- [Bareigenaar Crans-Montana opgepakt voor huiselijk geweld tegen zijn vrouw](https://www.ad.nl/buitenland/bareigenaar-crans-montana-opgepakt-voor-huiselijk-geweld-tegen-zijn-vrouw~aea59748c/)
-  > Een van de twee eigenaren van de bar die tijdens nieuwjaarsnacht afbrandde in het Zwitserse Crans-Montana is opgepakt voor huiselijk geweld. Hij zou...
-- [Kaag zegt dat VS haar wilde als secretaris-generaal van de VN: ‘Maar Nederland liet het op zijn beloop’](https://www.ad.nl/buitenland/kaag-zegt-dat-vs-haar-wilde-als-secretaris-generaal-van-de-vn-maar-nederland-liet-het-op-zijn-beloop~a92cd84e/)
-  > Sigrid Kaag heeft in Zomergasten gezegd dat de Verenigde Staten Nederland tien jaar geleden hebben gevraagd of Kaag zich beschikbaar wilde stellen...
 
 ### Meest gelezen
 
