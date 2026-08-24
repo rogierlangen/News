@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-08-2026 om 19:32*
+*Laatst bijgewerkt: 24-08-2026 om 20:33*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Boetes en werkstraf na dodelijk ongeval van 16-jarige stagiair in Tubbergen](https://nos.nl/l/2628189)
+  > De twee bedrijven die betrokken waren bij een dodelijk arbeidsongeval met de 16-jarige stagiair uit Geesteren krijgen een boete. De stagebegeleider...
 - [Verdriet en woede in Marokko over uitblijven repatriëring van Marokkaanse doden uit Ceuta](https://nos.nl/l/2628187)
   > Said uit het stadje Dar Bouazza, in de buurt van Casablanca, beleeft samen met zijn familie bizarre tijden. Zijn 22-jarige zoon Marouane is op 29...
 - [Ruim 200 boetes voor vrachtwagens in handhavingsweek bij Merwedebrug](https://nos.nl/l/2628186)
@@ -16,8 +18,6 @@
   > De voormalig grootmoefti van Syrië uit de periode van het Assad-regime is veroordeeld tot een levenslange gevangenisstraf. Die krijgt Ahmad Hassoun...
 - [Onbegrip om uitspelen Cambuur-Feyenoord na vuurwerk op gezinstribune](https://nos.nl/l/2628176)
   > Het laten doorspelen van de wedstrijd tussen SC Cambuur en Feyenoord, nadat er vanuit het uitvak vuurwerk naar het familievak werd gegooid, stuit op...
-- ['Taartengooier' Noël Godin (80) overleden, bekogelde beroemdheden met slagroomtaart](https://nos.nl/l/2628174)
-  > Microsoft-oprichter Bill Gates, de Franse oud-president Nicolas Sarkozy en de Franse zanger Patrick Bruel. Allemaal kregen ze een slagroomtaart in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Tornado teistert dorpje in zuiden van Frankrijk: 26 gewonden, zeker 100 huizen getroffen](https://www.ad.nl/buitenland/tornado-teistert-dorpje-in-zuiden-van-frankrijk-26-gewonden-zeker-100-huizen-getroffen~a804b427/)
+  > Een dorp in het zuiden van Frankrijk is getroffen door een tornado. 26 personen raakten gewond, melden de lokale autoriteiten op X. Vijf van hen...
+- [Wat een verfrissing is Kasper uit B&B vol liefde](https://www.ad.nl/show/wat-een-verfrissing-is-kasper-uit-benb-vol-liefde~a4f166c8/)
+  > Twinkelende oogjes en voorzichtig geflirt: bij Mireille in Frankrijk gebeurde er iets dankzij de komst van een nieuwe man.
+- [Heracles dendert over Jong FC Utrecht heen, beloften van PSV net te sterk TOP Oss](https://www.ad.nl/voetbal/heracles-dendert-over-jong-fc-utrecht-heen-beloften-van-psv-net-te-sterk-top-oss~a028ed64/)
+  > Heracles Almelo heeft dankzij een ruime uitoverwinning op Jong FC Utrecht (6-1) de koppositie in de eerste divisie overgenomen van FC Emmen. Na drie...
+- [Burgers Engelen doen dringend beroep op burgemeester in beladen azc-discussie: ‘Kom een keer écht luisteren’](https://www.ad.nl/binnenland/burgers-engelen-doen-dringend-beroep-op-burgemeester-in-beladen-azc-discussie-kom-een-keer-echt-luisteren~a8026a53/)
+  > Een laatste oproep aan burgemeester Jack Mikkers van Den Bosch om naar Engelen te komen en écht te luisteren naar de zorgen over de mogelijke opvang...
 - [Nederlanders overleven eerste series in zonnig Amstelveen](https://www.ad.nl/andere-sporten/nederlanders-overleven-eerste-series-in-zonnig-amstelveen~a189cf63/)
   > Het WK roeien is maandag begonnen met de eerste series. Tussen 24 en 30 augustus wordt in het Amsterdamse Bos gestreden om de verschillende...
-- [VS begint ‘economische aanval’ op Iran: ‘Zal niet ophouden tot het land alleen staat’](https://www.ad.nl/buitenland/vs-begint-economische-aanval-op-iran-zal-niet-ophouden-tot-het-land-alleen-staat~ac528ac3/)
-  > De Verenigde Staten beginnen een ‘economische aanval’ op Iran. Dat zegt de Amerikaanse minister van Financiën Scott Bessent tijdens een...
-- [Niet happy meer met zijn rol bij City, transfersom te hoog voor Europa: Tijjani Reijnders vertelt zijn kant van het verhaal](https://www.ad.nl/voetbal/niet-happy-meer-met-zijn-rol-bij-city-transfersom-te-hoog-voor-europa-tijjani-reijnders-vertelt-zijn-kant-van-het-verhaal~ac76c471/)
-  > Er is veel gezegd en geschreven over de keuze van Tijjani Reijnders om te gaan voetballen in Saoedi-Arabië. Maar welke afwegingen maakten hij en zijn...
-- [Groot boerenprotest met 170 trekkers in Vriezenveen](https://www.ad.nl/twenterand/groot-boerenprotest-met-170-trekkers-in-vriezenveen~aaf74e5c/)
-  > Honderden boeren hebben maandagavond gedemonstreerd in Vriezenveen. Zeker 170 trekkers reden mee in een stoet naar het gemeentehuis van Twenterand....
-- [In Het Wiel | ‘De slechtheid van het weer kwam op als poepen’](https://www.ad.nl/tour-de-france/in-het-wiel-de-slechtheid-van-het-weer-kwam-op-als-poepen~a58111af/)
-  > Onweer, enorme hagelstenen en spekgladde wegen in de derde etappe van de Vuelta. De renners besluiten uiteindelijk zelf te gaan schuilen en niet veel...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Chipbedrijven kleuren Wall Street lichtrood](https://fd.nl/financiele-markten/1610079/chipbedrijven-kleuren-wall-street-lichtrood)
+  > Beleggers maakten zich meer zorgen over Broadcom dan over de dreigende taal van  financiënminister Bessent aan het adres van Iran en diens...
 - [Trump belegt in SpaceX](https://fd.nl/bedrijfsleven/1609979/trump-belegt-in-spacex)
   > De Amerikaanse president investeert in het ruimtevaartbedrijf van zijn voormalig bondgenoot Musk.
 - [VS dreigen met nieuwe Iran-sancties, maar blijven vaag over handelspartner China](https://fd.nl/politiek/1609978/vs-dreigen-met-weer-nieuwe-iran-sancties-maar-blijven-vaag-over-china)
@@ -54,8 +56,6 @@
   > Het handelsconflict tussen de twee buurlanden escaleert in een rap tempo.
 - [Handelsoorlog met Canada schaadt ook de VS](https://fd.nl/economie/1609974/handelsoorlog-met-canada-schaadt-ook-de-vs)
   > Buurland en bondgenoot Canada krijgt forse importheffingen te slikken. Het Trumpiaanse denken is een miskenning van de complexiteit van...
-- [Nvidia-manager aangeklaagd wegens chipsmokkel naar China](https://fd.nl/bedrijfsleven/1609842/nvidia-manager-aangeklaagd-wegens-chipsmokkel-naar-china)
-  > Taiwan heeft een manager van de chipfabrikant en acht andere betrokkenen aangeklaagd wegens het omzeilen van Amerikaanse exportregels voor...
 
 ### Meest gelezen
 
