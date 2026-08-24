@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-08-2026 om 09:51*
+*Laatst bijgewerkt: 24-08-2026 om 10:39*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Vier ton opgehaald voor omgekomen agenten in VK, namen slachtoffers bekendgemaakt](https://nos.nl/l/2628105)
-  > In twee dagen tijd is ruim 400.000 euro ingezameld voor de agenten die zaterdag omkwamen bij een aanrijding tussen een spookrijdende auto en een...
-- [Vossen op Canadees park stelen meer dan honderd schoenen van kampeerders](https://nos.nl/l/2628104)
-  > In een natuurpark in Canada hebben vossen het gemunt op de schoenen van kampeerders. Vijf vossen hebben deze zomer al meer dan honderd schoenen...
-- [AVROTROS ziet opnieuw af van het Songfestival om deelname Israël](https://nos.nl/l/2628098)
-  > AVROTROS doet ook in 2027 niet mee aan het Eurovisie Songfestival. De omroep vindt dat het evenement zijn neutrale karakter heeft verloren, "omdat...
-- ['Syrië en Israël voeren gesprekken gericht op de-escalatie onder bemiddeling VS'](https://nos.nl/l/2628086)
-  > Syrië en Israël zijn onder Amerikaanse bemiddeling met elkaar in Jordanië in gesprek gegaan om de spanning tussen beide landen te verminderen. Dat...
-- [Wekdienst 24/8: Coronaverhoren gaan verder • Regio zuid weer naar school](https://nos.nl/l/2628084)
-  > Goedemorgen! Vandaag gaan de coronaverhoren verder. Deze week zijn er verhoren over de rol van de Tweede Kamer. En de regio Zuid gaat weer naar...
+- [Ruim drie ton aan boetes voor Amsterdamse sportschoolketen Saints & Stars](https://nos.nl/l/2628120)
+  > De Arbeidsinspectie heeft de Amsterdamse sportschoolketen Saints & Stars ruim 300.000 euro aan boetes opgelegd. Het bedrijf overtrad de afgelopen...
+- [Vier arrestaties na dood 18 olifanten in Kenia, dieren vergiftigd](https://nos.nl/l/2628119)
+  > Bijna een maand na de dood van achttien olifanten in het Amboseli-gebied in Kenia zijn er vier verdachten aangehouden. Naar een vijfde verdachte...
+- [Museum in geboortehuis Annie M.G. Schmidt: anonieme geldschieter geeft laatste duwtje](https://nos.nl/l/2628118)
+  > Na maanden onzekerheid is de kogel eindelijk door de kerk; er komt een Annie M.G. Schmidt-museum in het geboortehuis van de schrijfster in het...
+- [Zelensky op onafhankelijkheidsdag: Rusland wil 300.000 extra militairen oproepen](https://nos.nl/l/2628117)
+  > De Oekraïense president Zelensky verwacht dat Rusland na de parlementsverkiezingen in september 300.000 Russen extra zal oproepen voor dienst in het...
+- [Consumentenbond ziet minder krimpflatie, maar nog steeds 'slinkse' praktijken](https://nos.nl/l/2628113)
+  > Krimpflatie, het verkleinen van de inhoud van een verpakking van een product en daar dezelfde of een hogere prijs voor rekenen, komt minder vaak voor...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Peuter loopt het veld op bij voetbalwedstrijd in VS: ‘Wel heel vroeg voor een ​​levenslang stadionverbod’](https://www.ad.nl/voetbal/peuter-loopt-het-veld-op-bij-voetbalwedstrijd-in-vs-wel-heel-vroeg-voor-een-levenslang-stadionverbod~a192c9c6/)
-  > Veldbestormingen in het voetbal zijn een bekend fenomeen en zorgen doorgaans voor veel frustratie en oponthoud. Maar in de Amerikaanse competitie...
-- [Zoekteam dacht dat hij was overleden, maar Dominic (23) is na maanden levend teruggevonden: ‘Een wonder’](https://www.ad.nl/binnenland/zoekteam-dacht-dat-hij-was-overleden-maar-dominic-23-is-na-maanden-levend-teruggevonden-een-wonder~acea75f7/)
-  > De 23-jarige Dominic uit Heelsum, die sinds 27 februari spoorloos was, is in goede gezondheid teruggevonden en herenigd met zijn familie. Dat...
-- [Nieuwe Oranje-bondscoach Xavi meldt zich in Zeist en richt zich met eerste Nederlandse woordje tot camera](https://www.ad.nl/voetbal/nieuwe-oranje-bondscoach-xavi-meldt-zich-in-zeist-en-richt-zich-met-eerste-nederlandse-woordje-tot-camera~ab94d438/)
-  > De nieuwe Oranje-bondscoach Xavi Hernández is gearriveerd op de KNVB Campus in Zeist, waar hij dinsdagmiddag voor het eerst de pers te woord staat....
-- [Praat mee: alleen een verbod op alle producten die nicotine bevatten, helpt om roken uit te bannen](https://www.ad.nl/praat-mee/praat-mee-alleen-een-verbod-op-alle-producten-die-nicotine-bevatten-helpt-om-roken-uit-te-bannen~af46c218/)
-  > 40 procent van de jongvolwassenen rookt of vapet. Daarmee is er nog een lange weg te gaan naar de ‘Rookvrije Generatie’. In De Kwestie leggen we onze...
-- [Waarom staat ‘bommaker’ Masud pas 37 jaar na aanslag op Pan Am-vlucht 103 voor de rechter?](https://www.ad.nl/buitenland/waarom-staat-bommaker-masud-pas-37-jaar-na-aanslag-op-pan-am-vlucht-103-voor-de-rechter~afabc167/)
-  > Net nu in de VS een rechtszaak tegen een van de verdachten van de Lockerbie-aanslag op het punt staat te beginnen, staat de aanslag door een...
+- [Zandvoort door de jaren heen: Max-mania, oranje fans, drie Verstappen-zeges, koninklijk bezoek en pure Nederland-promotie](https://www.ad.nl/formule-1/zandvoort-door-de-jaren-heen-max-mania-oranje-fans-drie-verstappen-zeges-koninklijk-bezoek-en-pure-nederland-promotie~aee30db5/)
+  > Liefst 36 jaar stond Zandvoort niet op de F1-kalender, maar in 2021 keerde de Dutch GP eindelijk weer terug. Zes edities lang keek de wereld naar het...
+- [Fouilleren? Dat is iets voor op vliegvelden](https://www.ad.nl/voetbal/fouilleren-dat-is-iets-voor-op-vliegvelden~a4618d9a/)
+  > Een burgemeester in Zandvoort, ‘23 dozen’ aan vuurwerk en een bizar protocol: columnist Hugo Borst keek met stijgende verbazing naar Cambuur -...
+- [Ook NPO is klaar met Ongehoord Nederland: ‘Geen mogelijkheden voor verdere verbetering samenwerking’](https://www.ad.nl/show/ook-npo-is-klaar-met-ongehoord-nederland-geen-mogelijkheden-voor-verdere-verbetering-samenwerking~a6c376dd/)
+  > De publieke omroeporganisatie NPO ziet geen mogelijkheden meer om de samenwerking met Ongehoord Nederland, het ‘zwarte schaap’ van de publieke...
+- [Politie jaagt op man die explosief liet afgaan bij woning en verspreidt heftige beelden](https://www.ad.nl/binnenland/politie-jaagt-op-man-die-explosief-liet-afgaan-bij-woning-en-verspreidt-heftige-beelden~a04b1e91/)
+  > Op 27 januari vond een explosie plaats bij de voordeur van een woning aan de Barbara van Meertenstraat in Amsterdam. Voordat het explosief afging,...
+- [Poll | Gewonden in voetbalstadion: moeten we stoppen met uitsupporters?](https://www.ad.nl/voetbal/poll-gewonden-in-voetbalstadion-moeten-we-stoppen-met-uitsupporters~a04e0247/)
+  > Bij de wedstrijd SC Cambuur - Feyenoord raakten zondagmiddag in Leeuwarden vijf mensen gewond toen ze werden bestookt met vuurwerk dat vanuit het...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Goud naar hoogste punt in drie maanden](https://fd.nl/financiele-markten/1609961/goud-naar-hoogste-punt-in-drie-maanden)
+  > De Amerikaanse aankondiging staatsobligaties op te kopen wakkert nieuwe zorgen over de houdbaarheid van de staatsschuld aan.
+- [Braziliaan Lula is voor de Argentijnse president Milei de ideale vijand](https://fd.nl/politiek/1607334/lula-is-voor-milei-de-ideale-vijand)
+  > Hoewel Argentinië en Brazilië voor miljarden dollars met elkaar verweven zijn, schuwt de Argentijnse president Javier Milei de frontale aanval op...
+- [Marktconform salaris? Maar hoeveel is dat dan?](https://fd.nl/samenleving/1609962/marktconform-salaris-maar-hoeveel-is-dat-dan)
+  > Meer dan de helft van de werkgevers blijft in vacatureteksten vaag over het salaris. Vanaf begin volgend jaar kan dat niet meer. Nederland volgt dan...
 - [Boete van meer dan drie ton voor sportschool Saints & Stars](https://fd.nl/bedrijfsleven/1609823/boete-van-ruim-drie-ton-voor-sportschool-saints-stars)
   > De luxesportschoolketen krijgt boetes van de Arbeidsinspectie voor overtreding van (onder meer) de Wet arbeid vreemdelingen.
 - [Wilfried de Jong: 'Polaroids hebben iets weemoedigs’](https://fd.nl/samenleving/1609958/wilfried-de-jong-polaroids-hebben-iets-weemoedigs)
   > Schrijver, theatermaker, presentator en contrabassist Wilfried de Jong heeft een nieuw talent in zichzelf aangeboord: fotograaf. Een...
-- [Syrië en Israël hervatten gesprekken over bezette gebieden en aanvalsstop](https://fd.nl/politiek/1609820/syrie-en-israel-hervatten-gesprekken-over-bezette-gebieden-en-aanvalsstop)
-  > De door de VS bemiddelde gesprekken in Jordanië moeten leiden tot een duurzaam veiligheidsakkoord tussen de twee landen.
-- [‘Volop interesse in Amerikaanse chemietak van Shell’](https://fd.nl/bedrijfsleven/1609957/volop-interesse-in-amerikaanse-chemietak-van-shell)
-  > Bronnen zeggen tegen de Financial Times dat er belangstelling is van olieconcern ExxonMobil, chemiebedrijf LyondellBasell, private-equityhuis Apollo...
-- [Chinese webwinkel Shein wil $1,8 mrd ophalen op de beurs in Hongkong](https://fd.nl/bedrijfsleven/1609956/chinese-webwinkel-shein-wil-1-8-mrd-ophalen-op-de-beurs-in-hongkong)
-  > Na mislukte pogingen in New York en Londen kiest Shein nu voor Hongkong. Het bedrijf mikt op een waardering tot ruim $26 mrd.
 
 ### Meest gelezen
 
