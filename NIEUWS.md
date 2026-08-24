@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-08-2026 om 20:33*
+*Laatst bijgewerkt: 24-08-2026 om 21:32*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Tornado richt ravage aan in dorp Zuid-Frankrijk, tientallen gewonden](https://nos.nl/l/2628200)
+  > Door een tornado in het zuiden van Frankrijk zijn aan het eind van de middag 26 mensen gewond geraakt, melden de autoriteiten. Vijf van hen moesten...
+- [Concurrentie voor Disneyland: Saudische miljarden voor drie nieuwe pretparken bij Parijs](https://nos.nl/l/2628196)
+  > Als het aan de Franse president Macron ligt, verrijzen er in de toekomst drie nieuwe pretparken rond Parijs. Daarvoor sloot hij vandaag een...
 - [Boetes en werkstraf na dodelijk ongeval van 16-jarige stagiair in Tubbergen](https://nos.nl/l/2628189)
   > De twee bedrijven die betrokken waren bij een dodelijk arbeidsongeval met de 16-jarige stagiair uit Geesteren krijgen een boete. De stagebegeleider...
 - [Verdriet en woede in Marokko over uitblijven repatriëring van Marokkaanse doden uit Ceuta](https://nos.nl/l/2628187)
   > Said uit het stadje Dar Bouazza, in de buurt van Casablanca, beleeft samen met zijn familie bizarre tijden. Zijn 22-jarige zoon Marouane is op 29...
 - [Ruim 200 boetes voor vrachtwagens in handhavingsweek bij Merwedebrug](https://nos.nl/l/2628186)
   > Rijkswaterstaat heeft vorige week 215 boetes van 500 euro uitgedeeld aan bestuurders van vrachtwagens en touringcars die ondanks een verbod op de...
-- [Assads 'vatbommen-moefti' veroordeeld tot levenslange celstraf](https://nos.nl/l/2628185)
-  > De voormalig grootmoefti van Syrië uit de periode van het Assad-regime is veroordeeld tot een levenslange gevangenisstraf. Die krijgt Ahmad Hassoun...
-- [Onbegrip om uitspelen Cambuur-Feyenoord na vuurwerk op gezinstribune](https://nos.nl/l/2628176)
-  > Het laten doorspelen van de wedstrijd tussen SC Cambuur en Feyenoord, nadat er vanuit het uitvak vuurwerk naar het familievak werd gegooid, stuit op...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Xabi Alonso beleeft sterk debuut met Chelsea dankzij recordaankoop Morgan Rogers en Cole Palmer](https://www.ad.nl/voetbal/xabi-alonso-beleeft-sterk-debuut-met-chelsea-dankzij-recordaankoop-morgan-rogers-en-cole-palmer~aae4ac9e/)
+  > Chelsea heeft in de eerste speelronde van de Premier League gewonnen bij Fulham. In de vermakelijke West-Londense derby in Craven Cottage werd het...
+- [Superstart voor Donyell Malen: Nederlandse spits trapt seizoen af met hattrick voor AS Roma](https://www.ad.nl/voetbal/superstart-voor-donyell-malen-nederlandse-spits-trapt-seizoen-af-met-hattrick-voor-as-roma~aac60d9d/)
+  > Donyell Malen is het seizoen bij AS Roma ijzersterk begonnen. De Nederlandse spits maakte een hattrick in de competitiewedstrijd tegen Fiorentina,...
+- [Programma WK hockey 2026 | Nederland naar halve finales: op deze dagen komen de mannen en vrouwen in actie](https://www.ad.nl/andere-sporten/programma-wk-hockey-2026-nederland-naar-halve-finales-op-deze-dagen-komen-de-mannen-en-vrouwen-in-actie~a556c496/)
+  > Voor het eerst in de geschiedenis organiseren Nederland en België samen het WK hockey. Van 15 tot en met 30 augustus strijden mannen- en vrouwenteams...
 - [Tornado teistert dorpje in zuiden van Frankrijk: 26 gewonden, zeker 100 huizen getroffen](https://www.ad.nl/buitenland/tornado-teistert-dorpje-in-zuiden-van-frankrijk-26-gewonden-zeker-100-huizen-getroffen~a804b427/)
   > Een dorp in het zuiden van Frankrijk is getroffen door een tornado. 26 personen raakten gewond, melden de lokale autoriteiten op X. Vijf van hen...
 - [Wat een verfrissing is Kasper uit B&B vol liefde](https://www.ad.nl/show/wat-een-verfrissing-is-kasper-uit-benb-vol-liefde~a4f166c8/)
   > Twinkelende oogjes en voorzichtig geflirt: bij Mireille in Frankrijk gebeurde er iets dankzij de komst van een nieuwe man.
-- [Heracles dendert over Jong FC Utrecht heen, beloften van PSV net te sterk TOP Oss](https://www.ad.nl/voetbal/heracles-dendert-over-jong-fc-utrecht-heen-beloften-van-psv-net-te-sterk-top-oss~a028ed64/)
-  > Heracles Almelo heeft dankzij een ruime uitoverwinning op Jong FC Utrecht (6-1) de koppositie in de eerste divisie overgenomen van FC Emmen. Na drie...
-- [Burgers Engelen doen dringend beroep op burgemeester in beladen azc-discussie: ‘Kom een keer écht luisteren’](https://www.ad.nl/binnenland/burgers-engelen-doen-dringend-beroep-op-burgemeester-in-beladen-azc-discussie-kom-een-keer-echt-luisteren~a8026a53/)
-  > Een laatste oproep aan burgemeester Jack Mikkers van Den Bosch om naar Engelen te komen en écht te luisteren naar de zorgen over de mogelijke opvang...
-- [Nederlanders overleven eerste series in zonnig Amstelveen](https://www.ad.nl/andere-sporten/nederlanders-overleven-eerste-series-in-zonnig-amstelveen~a189cf63/)
-  > Het WK roeien is maandag begonnen met de eerste series. Tussen 24 en 30 augustus wordt in het Amsterdamse Bos gestreden om de verschillende...
 
 ### Meest gelezen
 
