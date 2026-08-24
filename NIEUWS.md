@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-08-2026 om 05:40*
+*Laatst bijgewerkt: 24-08-2026 om 07:04*
 
 ---
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Frank Lammers miste wereldhit op Rock Werchter na ontbijt met een krat Duvel: ‘Ik werd ná het optreden wakker’](https://www.ad.nl/show/frank-lammers-miste-wereldhit-op-rock-werchter-na-ontbijt-met-een-krat-duvel-ik-werd-na-het-optreden-wakker~a45a4b66/)
-  > Iedereen herinnert zich wel die ene zomerhit van vroeger. Bekende Nederlanders blikken terug op hun favoriete lied van weleer. Vandaag spoelen we...
-- [Gianni Infantino slaat terug naar grote voetballanden: ‘Sommigen willen niet dat anderen groeien’](https://www.ad.nl/voetbal/gianni-infantino-slaat-terug-naar-grote-voetballanden-sommigen-willen-niet-dat-anderen-groeien~a2544497/)
-  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
-- [Emma Kok op een roze wolk: zangeres deelt eerste foto met nieuwe vriend](https://www.ad.nl/show/emma-kok-op-een-roze-wolk-zangeres-deelt-eerste-foto-met-nieuwe-vriend~a82d3555/)
-  > Emma Kok heeft zondag op Instagram een herkenbare foto van haar nieuwe vriend geplaatst. Het gaat om Stilanos Damkalis, de keeper van SV Spakenburg....
-- [Herstart coronaverhoren met Agema en Dijkhoff: kon de Tweede Kamer zijn werk wel doen?](https://www.ad.nl/politiek/herstart-coronaverhoren-met-agema-en-dijkhoff-kon-de-tweede-kamer-zijn-werk-wel-doen~a777ae50/)
-  > De coronaverhoren gaan maandag verder met de ondervraging van toenmalige Tweede Kamerleden. Onder meer Klaas Dijkhoff en Fleur Agema worden verhoord....
-- [Arbeidsinspectie noemt inval bij Chinees restaurant ‘babi pangang met bami’, rechter valt erover](https://www.ad.nl/binnenland/arbeidsinspectie-noemt-inval-bij-chinees-restaurant-babi-pangang-met-bami-rechter-valt-erover~a2c120e2/)
-  > De Arbeidsinspectie pakte vorig jaar flink uit bij een inval in een Chinees restaurant in Wezep. De titel van het draaiboek leidt bij de rechter tot...
+- [Expert over dreigementen Kremlin: ‘Onzin, Poetin opende de doos van Pandora zelf’](https://www.ad.nl/buitenland/expert-over-dreigementen-kremlin-onzin-poetin-opende-de-doos-van-pandora-zelf~adfb97be/)
+  > Oekraïne heeft de ‘doos van Pandora geopend’ door de intensiteit van zijn droneaanvallen diep in Rusland flink op te schroeven. Dat stelt de...
+- [Schiedamse kunstenaar ziet zijn werk misbruikt worden bij metrostation Lissabon: ‘Dit is verschrikkelijk’](https://www.ad.nl/binnenland/schiedamse-kunstenaar-ziet-zijn-werk-misbruikt-worden-bij-metrostation-lissabon-dit-is-verschrikkelijk~aad6465c/)
+  > De Schiedamse kunstenaar Jacques Tange keek er voor de zoveelste keer raar van op. Blijken er opeens in Portugal muurschilderingen te hangen, die...
+- [FC Utrecht-spits heeft alleen Dirk Kuyt voor zich, Feyenoord scoort erop los en PSV moet opnieuw repareren](https://www.ad.nl/voetbal/fc-utrecht-spits-heeft-alleen-dirk-kuyt-voor-zich-feyenoord-scoort-erop-los-en-psv-moet-opnieuw-repareren~ae2bbfca/)
+  > Feyenoord (2-5 bij SC Cambuur) en PSV (5-1 tegen FC Groningen) boekten ruime zeges, Ajax genoot vanwege de Europese play-offs van een weekend vrij....
+- [LIVE VS | Trump haalt uit naar Canada: ‘Ze rekenen onze geweldige boeren enorme tarieven aan, klaar mee!’](https://www.ad.nl/buitenland/live-vs-trump-haalt-uit-naar-canada-ze-rekenen-onze-geweldige-boeren-enorme-tarieven-aan-klaar-mee~ae67dd9c/)
+  > De handelsoorlog tussen de VS en Canada is nu echt begonnen. Nadat onderhandelingen in Washington afgelopen weekend definitief mislukten, hebben de...
+- [LIVE vakantieblog | Toerist beroofd van gouden halsketting in Spanje: agenten gewond en drie arrestaties bij klopjacht](https://www.ad.nl/buitenland/live-vakantieblog-toerist-beroofd-van-gouden-halsketting-in-spanje-agenten-gewond-en-drie-arrestaties-bij-klopjacht~a4195717/)
+  > Een brute beroving van een Belgische toerist aan de Spaanse Costa del Sol is uitgelopen op een spectaculaire politieachtervolging. Drie verdachten...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Live: Lagere koersen op Aziatische aandelenmarkten](https://fd.nl/financiele-markten/1609804/live-lagere-koersen-op-aziatische-aandelenmarkten)
-  > De ijkpunten van maandagochtend: olie is iets goedkoper, de euro-dollarkoers is ongewijzigd en de goudprijs staat hoger. In Japan, China en...
+- [‘Volop interesse in Amerikaanse chemietak van Shell’](https://fd.nl/bedrijfsleven/1609957/volop-interesse-in-amerikaanse-chemietak-van-shell)
+  > Bronnen zeggen tegen de Financial Times dat er belangstelling is van olieconcern ExxonMobil, chemiebedrijf LyondellBasell, private-equityhuis Apollo...
+- [Chinese webwinkel Shein wil $1,8 mrd ophalen op de beurs in Hongkong](https://fd.nl/bedrijfsleven/1609956/chinese-webwinkel-shein-wil-1-8-mrd-ophalen-op-de-beurs-in-hongkong)
+  > Na mislukte pogingen in New York en Londen kiest Shein nu voor Hongkong. Het bedrijf mikt op een waardering tot ruim $26 mrd.
+- [Rusland haalt ambassadeur terug uit Londen wegens Oekraïense steun](https://fd.nl/politiek/1609819/rusland-haalt-ambassadeur-terug-uit-londen-wegens-oekraiense-steun)
+  > De terugtrekking van ambassadeur Andrej Kelin volgt na aanvallen op Rusland met drones van Britse makelij.
+- [Live: AEX-index opent rond het slot van vrijdag (-0,1%)](https://fd.nl/financiele-markten/1609804/live-lagere-koersen-op-aziatische-aandelenmarkten)
+  > De Europese aandelenhandel, is gemeten naar de beursindices, afwachtend aan de laatste handelsweek van augustus begonnen.
 - [Brein achter bedrijfsspionage ASML wil naar de Chinese beurs](https://fd.nl/bedrijfsleven/1609705/brein-achter-bedrijfsspionage-asml-wil-naar-de-chinese-beurs)
   > Vandaag in Dagkoers: Wat is de staat van het Amerikaanse leger? En casht het brein achter bedrijfsspionage  bij ASML in China met gestolen kennis?
-- [Chinese beurskandidaat heeft een omstreden ASML-verleden](https://fd.nl/bedrijfsleven/1609879/chinese-beurskandidaat-heeft-een-omstreden-asml-verleden)
-  > ASML was in 2014 slachtoffer van grootschalige diefstal van bedrijfsgeheimen. Nu wil Dongfang Jingyuan, dat gelieerd is aan die diefstal, in Shanghai...
-- [EIB: de ombouw van kantoren levert steeds minder nieuwe woningen op](https://fd.nl/samenleving/1609806/eib-de-ombouw-van-kantoren-levert-steeds-minder-nieuwe-woningen-op)
-  > Volgens het onderzoeksinstituut rekent de overheid zich te rijk met het creëren van woningen uit bestaande bouw. Voor het structureel oplossen van de...
-- [Corona als waterscheiding](https://fd.nl/opinie/1609801/diep-wantrouwen)
-  > Sinds de pandemie is wantrouwen de maatschappelijke basishouding geworden, schrijft Casper Thomas. De democratie lijdt als gevolg.
 
 ### Meest gelezen
 
