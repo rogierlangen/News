@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-08-2026 om 17:34*
+*Laatst bijgewerkt: 25-08-2026 om 18:43*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Country-icoon Dolly Parton (9 to 5, Jolene) op 80-jarige leeftijd overleden](https://nos.nl/l/2628296)
+  > De Amerikaanse country-artiest Dolly Parton is vandaag op 80-jarige leeftijd overleden. Dat heeft haar familie via haar Facebook- en Instagramaccount...
+- [Ook over Europa razen regelmatig tornado's, maar 'kans op een zware blijft klein'](https://nos.nl/l/2628295)
+  > Als een tornado in het nieuws komt, heeft die vaak ergens in de VS huisgehouden. Maar ook in Europa komen ze regelmatig voor. In de afgelopen tien...
 - [Canada slaat terug in handelsoorlog met VS: importheffing op miljarden aan producten](https://nos.nl/l/2628288)
   > Canada voert invoerheffingen in op zo'n 17 miljard euro aan producten uit de VS. Dat is het antwoord op hogere invoerheffingen die president Trump...
 - [Economen twijfelen aan effecten Amerikaanse sancties op Iran](https://nos.nl/l/2628287)
   > Het plan van de Verenigde Staten om Iran economisch te isoleren lijkt een "wanhoopsdaad", zegt VS-deskundige Philip Marey van Rabobank. Gisteravond...
 - [Amnesty hekelt 'onmenselijk' politiegeweld tegen Indiase Kakkerlak-betogers](https://nos.nl/l/2628283)
   > Traangas, hagel, wapenstokken, stroomstootwapens, rubberen kogels en vuurwapens. De Indiase politie greep eind vorige maand keihard in bij de...
-- [Al meer dan 300 zieken door eieren met salmonella in België](https://nos.nl/l/2628279)
-  > In België zijn al zeker 300 mensen ziek geworden na het eten van eieren die met salmonella waren besmet. De eieren komen van een grote kippenhouderij...
-- [Brand in Belgische Ardennen mogelijk ontstaan door landbouwmachine](https://nos.nl/l/2628278)
-  > Justitie in België heeft aanwijzingen dat de grote natuurbrand in de Hoge Venen is ontstaan door een landbouwmachine. Volgens het parket van Luik...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Frankrijk krijgt mangapretpark omdat Macron van die strips houdt, net als Saoedische kroonprins](https://www.ad.nl/binnenland/frankrijk-krijgt-mangapretpark-omdat-macron-van-die-strips-houdt-net-als-saoedische-kroonprins~ae0fbe3b/)
-  > Zet twee staatshoofden bij elkaar die gek zijn op manga en je krijgt een megamangapretpark vlak bij Parijs. De Saoedische kroonprins Mohammed bin...
-- [Pogacar heeft zichzelf perfecte uitgangspositie voor nooit vertoonde dominantie in een grote ronde verschaft](https://www.ad.nl/vuelta/pogacar-heeft-zichzelf-perfecte-uitgangspositie-voor-nooit-vertoonde-dominantie-in-een-grote-ronde-verschaft~a88d9148/)
-  > Een mooie dag, noemde hij het zelf. Tadej Pogacar heeft de helft van de vierde etappe van de Vuelta a España alleen gereden en daarmee de strijd om...
-- [Minder Den Haag, meer gemeente: zo werkt asielopvang dus wél](https://www.ad.nl/commentaar/minder-den-haag-meer-gemeente-zo-werkt-asielopvang-dus-wel~a275c157/)
-  > De nationale overheid, met uitvoeringsorganisatie COA voorop, werkt vaak als een lap op een rode stier als ergens een asielopvang moet komen. Dat het...
-- [Amerikaanse media: CIA-directeur in Moskou voor gesprekken](https://www.ad.nl/buitenland/amerikaanse-media-cia-directeur-in-moskou-voor-gesprekken~ae67dd9c/)
-  > CIA-directeur John Ratcliffe is dinsdag naar Moskou gevlogen voor gesprekken. Dat melden Amerikaanse media, waaronder CBS News, op basis van bronnen....
-- [ManUnited haalt middenvelder voor 75 miljoen euro, PSV maakt werk van Lammers, Poku verruilt Duitsland voor Turkije](https://www.ad.nl/voetbal/manunited-haalt-middenvelder-voor-75-miljoen-euro-psv-maakt-werk-van-lammers-poku-verruilt-duitsland-voor-turkije~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Wil (73) bloeit helemaal op tussen de vluchtelingen in Overvecht: ‘Thuis zit ik alleen, hier is het gezellig’](https://www.ad.nl/binnenland/wil-73-bloeit-helemaal-op-tussen-de-vluchtelingen-in-overvecht-thuis-zit-ik-alleen-hier-is-het-gezellig~a0418a26/)
+  > Voor Wil van IJzendoorn (73) uit Overvecht voelt asielbuurtcentrum Pahud als een tweede thuis. Ze is er dan ook vrijwel dagelijks te vinden. Voor een...
+- [In Het Wiel | ‘Jarno Widar heeft een beetje wat Richard Carapaz ook heeft’](https://www.ad.nl/tour-de-france/in-het-wiel-jarno-widar-heeft-een-beetje-wat-richard-carapaz-ook-heeft~a58111af/)
+  > Dat Tadej Pogacar dinsdag zou winnen in de Vuelta, stond al vast. De vraag was vooral waar hij zou aanvallen en hoe groot het gat uiteindelijk zou...
+- [Israël zet Nederlandse delegatie uit Gaza-hulpcentrum na reeks ‘anti-Israëlische acties door Nederland’](https://www.ad.nl/buitenland/israel-zet-nederlandse-delegatie-uit-gaza-hulpcentrum-na-reeks-anti-israelische-acties-door-nederland~ad6d2bdf/)
+  > Een Nederlandse delegatie wordt onmiddellijk uit het internationale steuncentrum voor Gaza in Israël gezet, zo heeft de Israëlische minister van...
+- [Dolly Parton was de André van Duin van Amerika: niemand had een hekel aan haar](https://www.ad.nl/show/dolly-parton-was-de-andre-van-duin-van-amerika-niemand-had-een-hekel-aan-haar~abae93970/)
+  > De hele wereld hield van Dolly Parton. Dat had betrekkelijk weinig te maken met Jolene of Coat of many colors. De overleden platinablonde...
+- [‘André van Duin is leuk om naar te kijken, maar het programma Beestenboel niet’](https://www.ad.nl/show/andre-van-duin-is-leuk-om-naar-te-kijken-maar-het-programma-beestenboel-niet~a3d4c8ac/)
+  > Het nieuwe tv-seizoen is echt van start nu Vandaag Inside terug is op de buis. Het panel van de AD Media Podcast bespreekt de discussie over de vaste...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [InvestNL investeert in ‘bliksem in een doos’](https://fd.nl/bedrijfsleven/1610078/investnl-investeert-in-bliksem-in-een-doos)
+  > Het techbedrijf ontwikkelt een duurzaam bestrijdingsmiddel als alternatief voor chemische gewasbeschermers.
+- [OpenAI zegt dat eigen chip beter presteert in tests dan beste Nvidia-chip](https://fd.nl/bedrijfsleven/1610184/openai-zegt-dat-eigen-chip-beter-presteert-in-tests-dan-beste-nvidia-chip)
+  > De ChatGPT-maker wil de nieuwe chips gaan inzetten voor zijn AI-modellen.
+- [Onderzoek naar ongewenst gedrag vereist streng toezicht](https://fd.nl/opinie/1610001/onderzoek-naar-ongewenst-gedrag-vereist-streng-toezicht)
+  > De zelfregulering bij onderzoeksbureaus naar grensoverschrijdend gedrag faalt. De gevolgen daarvan zijn voor alle betrokkenen groot en komen nu...
+- [Canada slaat met gelijke munt terug en belast Amerikaanse producten ter waarde van €17 mrd](https://fd.nl/politiek/1610019/canada-slaat-met-gelijke-munt-terug-en-belast-amerikaanse-producten-met-17-mrd)
+  > Er gaan heffingen van 50% gelden op staal en aluminium.
 - [Bankier bij Deutsche Bank lichtte rijke klanten op voor meer dan zes ton](https://fd.nl/bedrijfsleven/1610017/bankier-bij-deutsche-bank-lichtte-rijke-klanten-op-voor-meer-dan-zes-ton)
   > Sven R. mikte op miljonairs omdat hij gokte dat zij het geld niet zouden missen.
-- [Nederlandse verzekeraars doen het goed op de beurs. Hoe komt dat?](https://fd.nl/financiele-markten/1610093/nederlandse-verzekeraars-doen-het-goed-op-de-beurs-hoe-komt-dat)
-  > Ten opzichte van de AEX-index én ten opzichte van Europese branchegenoten springen de Nederlandse verzekeraars eruit. Waarom zijn ze zo in trek bij...
-- [Gasprijs nadert de €70 per megawattuur](https://fd.nl/economie/1610008/gasprijs-nadert-de-70-per-megawattuur)
-  > De prijs schommelt rond niveaus die sinds 2023 niet meer gezien zijn.
-- [Melrose: fabriek Californië gaat weer volledig draaien, veiligheidsproblemen achter de rug](https://fd.nl/financiele-markten/1610011/melrose-fabriek-californie-gaat-weer-volledig-draaien-ontploffingsgevaar-achter-de-rug)
-  > De koers duikelde in mei na explosiegevaar en evacuaties bij een fabriek. Dinsdag was het Britse luchtvaartbedrijf de grootste stijger in...
-- [NS geeft korting aan randen van de spits](https://fd.nl/bedrijfsleven/1610177/ns-geeft-korting-aan-randen-van-de-spits)
-  > Spoorvervoerder anticipeert op traditioneel drukke septembermaand.
 
 ### Meest gelezen
 
