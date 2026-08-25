@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-08-2026 om 14:49*
+*Laatst bijgewerkt: 25-08-2026 om 15:46*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Onderhandelingen Prinsjesdag moeizaam, kabinet intern verdeeld](https://nos.nl/l/2628272)
+  > De drie coalitiepartijen D66, VVD en CDA zijn het onderling nog niet eens over de begrotingen voor Prinsjesdag. Dat zeggen verschillende bronnen...
+- [Amerikaanse media: CIA-directeur Ratcliffe duikt op in Moskou](https://nos.nl/l/2628270)
+  > Amerikaanse media melden dat de directeur van de inlichtingendienst CIA John Ratcliffe in het geheim naar Moskou is gereisd voor besprekingen met...
 - [Onrust in Den Bosch na protesten tegen terugkeer veroordeelde pleegvaders](https://nos.nl/l/2628265)
   > De gemeente Den Bosch zegt dat er sprake is van groeiende onrust na protestacties in de wijk Maaspoort vanwege de terugkeer van twee veroordeelde...
 - [Ook vermiste vader van dood gevonden Belgische kleuter waarschijnlijk gevonden](https://nos.nl/l/2628263)
   > Het lijkt erop dat in België ook de vermiste vader dood is teruggevonden van de kleuter van wie de politie gisteren waarschijnlijk het lichaam vond....
 - [Chinese kunstenaar krijgt maximale straf voor 'beledigende' beelden van Mao](https://nos.nl/l/2628262)
   > De Chinese kunstenaar Gao Zhen is veroordeeld tot een celstraf van drie jaar vanwege het beledigen van 'Chinese helden'. Gao maakt satirische werken,...
-- [Europees hof eist vrijlating Turkse zakenman Kavala: detentie tekent repressie](https://nos.nl/l/2628261)
-  > Turkije moet zakenman en filantroop Osman Kavala onmiddellijk vrijlaten, oordeelt het Europees Hof voor de Rechten van de Mens (EHRM). Het hof stelt...
-- [Kakkerlak en korte nachten moeten imago 'eenzame' Japanse premier opvijzelen](https://nos.nl/l/2628257)
-  > De Japanse premier Sanae Takaichi leek de afgelopen dagen niet meer te stoppen op platform X: in tien dagen plaatste ze bijna veertig berichten,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Grote mond 538-dj Dylan Boet brengt hem geregeld in de problemen: ‘Ik was doodsbang’](https://www.ad.nl/show/grote-mond-538-dj-dylan-boet-brengt-hem-geregeld-in-de-problemen-ik-was-doodsbang~a51cc2ed/)
-  > De Avondshow van 538 met Bas Menting, Dylan Boet en Eva Vloon staat vol in de spotlights deze zomer. Hun zelfgemaakte filmpjes gaan viraal op sociale...
-- [Seks op Nederlands marineschip live bekeken door groep collega’s](https://www.ad.nl/binnenland/seks-op-nederlands-marineschip-live-bekeken-door-groep-collegas~aa069283/)
-  > Twee matrozen hebben seks in een machinekamer. Als de vrouw ontdekt dat collega’s elders op het marinefregat live meekijken, voelt ze zich ‘niet meer...
-- [Budgetmaatschappij Ryanair haalt hard uit naar Nederlandse regering: ‘Volledig gefaald’](https://www.ad.nl/economie/budgetmaatschappij-ryanair-haalt-hard-uit-naar-nederlandse-regering-volledig-gefaald~a9e70912/)
-  > De Ierse luchtvaartmaatschappij Ryanair haalt fel uit naar het kabinet-Jetten vanwege het ‘volledige falen’ om iets te doen aan de  ‘schadelijke’...
-- [Solano Z. (24) schoot man dood op A1 en noemt dat zelfverdediging: ‘Dreigden vingers en geslachtsdeel af te knippen’](https://www.ad.nl/binnenland/solano-z-24-schoot-man-dood-op-a1-en-noemt-dat-zelfverdediging-dreigden-vingers-en-geslachtsdeel-af-te-knippen~a7edc36b/)
-  > De 24-jarige Solano Z., die eind maart een 37-jarige man in een auto op de A1 bij Muiden doodschoot, zegt uit zelfverdediging te hebben gehandeld,...
-- [Danjuma en Lammers in beeld bij PSV? Kijk hier naar de dagelijkse Transfer Deadlineshow](https://www.ad.nl/voetbal/danjuma-en-lammers-in-beeld-bij-psv-kijk-hier-naar-de-dagelijkse-transfer-deadlineshow~ab120b98/)
-  > Ook dit jaar slaan AD en FC Afkicken de handen ineen rond de Nederlandse deadline op de transfermarkt. We zijn op 2 september van ‘s ochtends vroeg...
+- [Canada slaat terug en voert voor miljarden aan heffingen in op Amerikaanse goederen](https://www.ad.nl/buitenland/canada-slaat-terug-en-voert-voor-miljarden-aan-heffingen-in-op-amerikaanse-goederen~ae67dd9c/)
+  > Canada heeft importheffingen aangekondigd op Amerikaanse goederen met een waarde van omgerekend 27,6 miljard Canadese dollar (17 miljard euro)....
+- [Henk Wijngaard ontslagen uit het ziekenhuis na hartoperatie: ‘Met de vlam in de pijp naar huis gegaan’](https://www.ad.nl/show/henk-wijngaard-ontslagen-uit-het-ziekenhuis-na-hartoperatie-met-de-vlam-in-de-pijp-naar-huis-gegaan~aa529f1c/)
+  > Henk Wijngaard is ruim twee weken na zijn ziekenhuisopname weer thuis. De 80-jarige zanger, die vorige week een hartoperatie onderging, werd maandag...
+- [Tadej Pogacar degradeert de tegenstand en zet Vuelta volledig naar zijn hand met monstersolo](https://www.ad.nl/vuelta/tadej-pogacar-degradeert-de-tegenstand-en-zet-vuelta-volledig-naar-zijn-hand-met-monstersolo~a3fdf2f5/)
+  > Er staat geen maat op Tadej Pogacar in de Vuelta. Dat maakte de 27-jarige rodetruidrager nog maar eens duidelijk in de vierde etappe. Op liefst 50...
+- [PSV maakt werk van Lammers, Poku verruilt Leverkusen voor Besiktas, FC Utrecht maanden zonder Paredes](https://www.ad.nl/voetbal/psv-maakt-werk-van-lammers-poku-verruilt-leverkusen-voor-besiktas-fc-utrecht-maanden-zonder-paredes~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Xavi bij eerste persconferentie als bondscoach: ‘Derde keus na Guardiola en Slot? Toch maar mooi op podium’](https://www.ad.nl/voetbal/xavi-bij-eerste-persconferentie-als-bondscoach-derde-keus-na-guardiola-en-slot-toch-maar-mooi-op-podium~a9407b09/)
+  > Xavi Hernández sprak al met Virgil van Dijk en Frenkie de Jong en hij kent Kees Smit. De nieuwe bondscoach toonde zich open op zijn eerste ontmoeting...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Kleine WinWheelz claimt winst, terwijl grote fietsmerken onderuitgaan](https://fd.nl/bedrijfsleven/1609386/waar-grote-fietsmerken-onderuitgaan-claimt-het-kleine-winwheelz-winst)
-  > Een kleine fietsfabrikant uit Brabant profiteert van de marktcrisis die allerlei bekende merken op de knieën heeft gekregen. Na het bankroet van...
-- [China legt sanctiedreigementen VS naast zich neer en blijft met Iran handelen](https://fd.nl/politiek/1610097/china-legt-sanctiedreigementen-vs-naast-zich-neer-en-blijft-met-iran-handelen)
-  > De Volksrepubliek zegt alle noodzakelijke maatregelen te nemen om zijn eigen belangen veilig te stellen. Het land is met afstand de grootste afnemer...
-- [Handelsgezant haalt schouders op over conflicten die hij voor Witte Huis uitvecht](https://fd.nl/politiek/1609986/handelsgezant-haalt-schouders-op-over-conflicten-die-hij-voor-witte-huis-uitvecht)
-  > Dit weekend klapten de handelsgesprekken tussen de VS en Canada. Spil in de onderhandelingen is de Amerikaanse handelsvertegenwoordiger Jamieson...
-- [Lego boekt hogere winst, wint marktaandeel](https://fd.nl/bedrijfsleven/1610002/lego-boekt-hogere-winst-wint-marktaandeel)
-  > Themasets rondom het WK voetbal en de Formule 1 stuwen de verkopen bij zowel kinderen als volwassenen.
-- [Onzekerheid over tramlijn bedreigt bouw duizenden woningen bij Utrecht](https://fd.nl/politiek/1610098/onzekerheid-over-tramlijn-bedreigt-bouw-duizenden-woningen-bij-utrecht)
-  > Het Rijk heeft geen geld gereserveerd voor een aftakking van de Merwedelijn naar de geplande wijk Rijnenburg. Ontsluiting is een voorwaarde voor...
+- [Ryanair eist schrappen vliegtaks](https://fd.nl/bedrijfsleven/1610009/ryanair-eist-schrappen-vliegtaks)
+  > De prijsvechter zal geen extra capaciteit inzetten op de Nederlandse markt als de vliegbelasting niet wordt afgeschaft.
+- [Druk op ASML in China neemt toe door exportcontroles en Chinese spurt in chiptech](https://fd.nl/bedrijfsleven/1610094/druk-op-asml-in-china-neemt-toe-door-exportcontroles-en-chinese-spurt-in-chiptech)
+  > China is qua omzet een van de belangrijkste markten voor ASML. Tegelijkertijd is het een van de moeilijkste om overeind te blijven. Hoe ziet de...
+- [Saoedi-Arabië investeert €6 mrd in pretparken rondom Parijs](https://fd.nl/economie/1610003/saoedi-arabie-investeert-6-mrd-in-pretparken-rondom-parijs)
+  > De golfstaat wil minder afhankelijk worden van olie- en gasinkomsten en via zogeheten soft power zijn imago veranderen door in andere landen een...
+- [Leg de rekening niet bij de Baltische staten](https://fd.nl/opinie/1609994/leg-de-rekening-niet-bij-de-baltische-staten)
+  > Letland voelt de Russische dreiging in zijn achtertuin en roept de hulp in van de hele EU. Maar niet alle lidstaten staan te springen om de Baltische...
+- [Ondanks vermoeden van bubbel kopen Nederlandse particuliere beleggers aandelen bij](https://fd.nl/financiele-markten/1610090/ondanks-vermoeden-van-bubbel-kopen-nederlandse-particuliere-beleggers-aandelen-bij)
+  > Vrij naar een klassiek geworden uitspraak van Citigroup-baas Chuck Prince: zolang de muziek speelt, blijven sommige beleggers gewoon doordansen.
 
 ### Meest gelezen
 
