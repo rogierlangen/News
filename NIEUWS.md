@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-08-2026 om 20:32*
+*Laatst bijgewerkt: 25-08-2026 om 21:31*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Nigeria opent klopjacht op ontvoerders na socialemediavideo met honderden gijzelaars](https://nos.nl/l/2628318)
+  > De Nigeriaanse president heeft een klopjacht aangekondigd op gewapende mannen die vorige week vrijdag honderden mensen hebben ontvoerd. Dat gebeurde...
 - [Zes aanhoudingen in Limburg op verdenking van online handel in illegale pillen](https://nos.nl/l/2628311)
   > De politie heeft vanmiddag in de omgeving van Heerlen zes personen aangehouden op verdenking van handel in designerdrugs en illegale geneesmiddelen....
 - [Israël zet Nederlanders uit vanwege verbod op import producten Westoever](https://nos.nl/l/2628310)
   > Israël zet twee Nederlandse vertegenwoordigers het land uit. Zij zijn werkzaam bij het civiel-militaire coördinatiecentrum (CMCC) in Israël van...
 - [Storing bij zakelijke Ziggo-klanten, modem moet worden vervangen](https://nos.nl/l/2628308)
   > Een deel van de zakelijke internetklanten van Ziggo heeft last van een storing. Daardoor hebben ze geen internetverbinding meer. Een woordvoerder van...
-- [Kabinet en burgemeesters trekken lijn in snelwegprotest: gevaar is onacceptabel](https://nos.nl/l/2628306)
+- [Kabinet en burgemeesters trekken één lijn in snelwegprotest: gevaar is onacceptabel](https://nos.nl/l/2628306)
   > De snelweg is geen plek voor betogingen. Het is gevaarlijk en strafbaar om de doorstroming te hinderen en in principe zullen betogers daarom altijd...
-- [Queen of country music Dolly Parton had groot zakeninstinct](https://nos.nl/l/2628302)
-  > Queen of country music, zo stond zangeres en zakenvrouw Dolly Parton in de Verenigde Staten bekend. Een terechte bijnaam voor de countryzangeres die...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Karina uit B&B vol liefde kwam niet best uit de verf met haar valse opmerkingen](https://www.ad.nl/show/karina-uit-benb-vol-liefde-kwam-niet-best-uit-de-verf-met-haar-valse-opmerkingen~a40beb81/)
+- [PSV en Feyenoord donderdag de koker in voor CL-loting: dit zijn de mogelijke tegenstanders](https://www.ad.nl/voetbal/psv-en-feyenoord-donderdag-de-koker-in-voor-cl-loting-dit-zijn-de-mogelijke-tegenstanders~a00eee37/)
+  > Komende donderdag (18.00 uur) is de loting voor de League Phase van de Champions League. PSV en Feyenoord krijgen dan te horen wie hun zeven...
+- [Cristiano Ronaldo woest na blunder van doelman en wordt gewisseld, maar ziet tiental Al-Nassr alsnog winnen](https://www.ad.nl/voetbal/cristiano-ronaldo-woest-na-blunder-van-doelman-en-wordt-gewisseld-maar-ziet-tiental-al-nassr-alsnog-winnen~a66891db/)
+  > Cristiano Ronaldo kon zijn frustraties dinsdagavond niet verbergen. Doelman Abdulrahman Al-Otaibi blunderde vlak voor rust, waardoor Al-Nassr met 2-0...
+- [NEC beleeft kansloze avond bij Bodø na vroege rode kaart: Nijmegenaren spelen dit seizoen Europa League](https://www.ad.nl/voetbal/nec-beleeft-kansloze-avond-bij-bodo-na-vroege-rode-kaart-nijmegenaren-spelen-dit-seizoen-europa-league~a90b12c9/)
+  > NEC heeft net boven de poolcirkel geen wonder kunnen verrichten. Alle hoop daarop in de return tegen Bodø/Glimt was al na drie minuten vervlogen...
+- [Hopelijk kijkt Karina uit B&B vol liefde met spijt en schaamte naar deze aflevering](https://www.ad.nl/show/hopelijk-kijkt-karina-uit-benb-vol-liefde-met-spijt-en-schaamte-naar-deze-aflevering~a40beb81/)
   > Ik hoop maar dat Karina dinsdagavond met spijt en schaamte naar B&B vol liefde heeft gekeken. Want als liefdesgast van Paul kwam ze niet best uit de...
-- [CL-droom in duigen voor tiental NEC, Nijmegenaren willen na rust vooral schade beperken rond poolcirkel](https://www.ad.nl/voetbal/cl-droom-in-duigen-voor-tiental-nec-nijmegenaren-willen-na-rust-vooral-schade-beperken-rond-poolcirkel~a90b12c9/)
-  > NEC verloor vorige week in eigen huis met 1-3 van Bodø/Glimt en heeft daarom nu een wonder nodig om de Champions League te bereiken. Zeker nadat de...
 - [Wereldwijd verdriet om Dolly Parton: ‘Ik zal nooit vergeten dat ze haar eigen bed schonk aan twee fans’](https://www.ad.nl/show/wereldwijd-verdriet-om-dolly-parton-ik-zal-nooit-vergeten-dat-ze-haar-eigen-bed-schonk-aan-twee-fans~a583022e/)
   > Wereldwijd wordt gerouwd om het overlijden van countrylegende Dolly Parton. Sterren eren de vrouw die de weg heeft vrijgemaakt voor anderen in de...
-- [Jermaine Wattimena stunt op vloertoernooi: Nederlander stuurt Luke Littler naar huis en pakt titel](https://www.ad.nl/darts/jermaine-wattimena-stunt-op-vloertoernooi-nederlander-stuurt-luke-littler-naar-huis-en-pakt-titel~aaaea50a/)
-  > Jermaine Wattimena heeft voor een grote stunt gezorgd. De Nederlander won dinsdag het Player Championship-toernooi in het Engelse Leicester en...
-- [Verdachte aangehouden in onderzoek dood gevonden vrouw in Venlo](https://www.ad.nl/binnenland/verdachte-aangehouden-in-onderzoek-dood-gevonden-vrouw-in-venlo~acc25648/)
-  > De politie heeft een verdachte aangehouden in het onderzoek naar de dood van een vrouw die zaterdagmiddag vlakbij de Maas in Venlo gevonden werd. De...
 
 ### Meest gelezen
 
