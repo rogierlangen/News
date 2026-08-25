@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-08-2026 om 01:25*
+*Laatst bijgewerkt: 25-08-2026 om 03:01*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Tientallen doden door aanval gewapende bende in Haïti](https://nos.nl/l/2628204)
+  > In Haïti zijn in de nacht van zondag op maandag tientallen mensen om het leven gekomen door bendegeweld. De burgemeester van Kenscoff, waar de...
 - [Lichaam al maanden vermist jongetje (5) uit België waarschijnlijk gevonden](https://nos.nl/l/2628202)
   > In Wallonië is hoogstwaarschijnlijk het lichaam gevonden van een jongetje dat sinds eind juni vermist was. De 5-jarige Tyméo Brigou verdween samen...
 - [Tornado richt ravage aan in dorp Zuid-Frankrijk, tientallen gewonden](https://nos.nl/l/2628200)
@@ -16,8 +18,6 @@
   > Als het aan de Franse president Macron ligt, verrijzen er in de toekomst drie nieuwe pretparken rond Parijs. Daarvoor sloot hij vandaag een...
 - [Boetes en werkstraf na dodelijk ongeval van 16-jarige stagiair in Tubbergen](https://nos.nl/l/2628189)
   > De twee bedrijven die betrokken waren bij een dodelijk arbeidsongeval met de 16-jarige stagiair uit Geesteren krijgen een boete. De stagebegeleider...
-- [Verdriet en woede in Marokko over uitblijven repatriëring van Marokkaanse doden uit Ceuta](https://nos.nl/l/2628187)
-  > Said uit het stadje Dar Bouazza, in de buurt van Casablanca, beleeft samen met zijn familie bizarre tijden. Zijn 22-jarige zoon Marouane is op 29...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [China bestormt Europa nu ook met medische apparaten](https://fd.nl/economie/1609835/china-bestormt-europa-nu-ook-met-medische-apparaten)
+  > In deze Dagkoers hoor je hoe Chinese medische techbedrijven oprukken in Europa en de VS, wat de gevolgen zijn van de advertenties op ChatGPT en...
 - [Van applaus naar luchtalarm](https://fd.nl/opinie/1609878/van-applaus-naar-luchtalarm)
   > De overgang van een feestelijk concert naar een dodelijke luchtaanval maakt de absurditeit van de oorlog voelbaar, schrijft oud-diplomaat Robert...
 - [Kunstmatige klassenstrijd](https://fd.nl/opinie/1609832/kunstmatige-klassenstrijd)
@@ -54,8 +56,6 @@
   > De opmars van Chinese bedrijven in medische technologie beperkt zich niet langer tot eigen land. Met name in Europa liggen er kansen voor Chinese...
 - [Personalia dinsdag 25 augustus 2026](https://fd.nl/bedrijfsleven/1609831/personalia-dinsdag-25-augustus-2026)
   > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [NNEK vergroot beheerd vermogen met €1,5 mrd door overname Index People](https://fd.nl/bedrijfsleven/1609799/nnek-vergroot-beheerd-vermogen-met-1-5-mrd-door-overname-index-people)
-  > Drijvende kracht achter de deal is het Zweedse Söderberg & Partners, dat nu belangen heeft in meer dan dertig Nederlandse vermogensbeheerders en...
 
 ### Meest gelezen
 
