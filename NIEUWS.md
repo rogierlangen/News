@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-08-2026 om 08:47*
+*Laatst bijgewerkt: 25-08-2026 om 09:38*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [25.000 dollar beloning in coldcasezaken inheemse Amerikanen](https://nos.nl/l/2628230)
+  > De FBI loont 25.000 dollar uit voor gouden tips over meer dan vijftig onopgeloste moord- en vermissingszaken van inheemse Amerikanen.
+        Ieder...
+- [Luchtvaartclaimorganisatie EUclaim failliet verklaard](https://nos.nl/l/2628228)
+  > Claimorganisatie EUclaim is failliet. De organisatie, die namens reizigers claims voor vertragingen indient bij luchtvaartmaatschappen, vroeg eerder...
 - [Moeras De Zeezuiper voor eerst in 700 jaar drooggevallen: 'Ongekend'](https://nos.nl/l/2628222)
   > De ernstige droogte van deze zomer laat overal zijn sporen na, ook in het natuurgebied De Zeezuiper ten oosten van Bergen op Zoom. Daar ligt een...
 - [Veel kinderen zien nare berichten op socials, 'ouders moeten meer in gesprek'](https://nos.nl/l/2628221)
   > Ouders moeten meer met hun kinderen in gesprek over wat zij online meemaken, vindt staatssecretaris Aerdts. Uit een peiling van het ministerie van...
 - [Nét buiten de spits reizen? NS biedt goedkopere treinkaartjes aan](https://nos.nl/l/2628220)
   > De NS biedt vanaf vandaag goedkopere treinkaartjes aan voor mensen die nét buiten de spits rijden. De spoorwegvervoerder wil mensen aanmoedigen om...
-- [Scheepvaart door Straat van Hormuz vrijwel stilgevallen, Pakistan spreekt met Iran](https://nos.nl/l/2628215)
-  > Slechts twee schepen met grondstoffen zijn gisteren door de Straat van Hormuz gevaren. Dat is het kleinste aantal sinds begin mei. Dat meldt...
-- [Wekdienst 25/8: Presentatie bondscoach Xavi • Jetten praat met BBB over begroting](https://nos.nl/l/2628206)
-  > Goedemorgen! Vandaag wordt de nieuwe Nederlandse bondscoach Xavi Hernández gepresenteerd in Zeist. Ook komen BBB en de Groep Markuszower langs bij...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Oplichters slaan hun slag bij overgang van iDeal naar Wero: Fraudehelpdesk waarschuwt voor nepmails](https://www.ad.nl/binnenland/oplichters-slaan-hun-slag-bij-overgang-van-ideal-naar-wero-fraudehelpdesk-waarschuwt-voor-nepmails~a3f66c52/)
-  > De Fraudehelpdesk luidt de noodklok over een phishingmail die momenteel de ronde doet. Oplichters doen zich voor als ‘iDeal-WeroNL’ en lokken...
-- [Lichaam van vermoedelijk de Belgische Tyméo (5) gevonden in berm, vader Bryan nog altijd spoorloos](https://www.ad.nl/buitenland/lichaam-van-vermoedelijk-de-belgische-tymeo-5-gevonden-in-berm-vader-bryan-nog-altijd-spoorloos~a3364e3d/)
-  > Bijna twee maanden nadat de 5-jarige Tyméo en zijn vader Bryan Brigou (29) op mysterieuze wijze verdwenen, is in een bosje in België het lichaam van...
-- [Sander en Maartje denken te sparen, maar parkeren hun geld slechts even ergens anders](https://www.ad.nl/geld/sander-en-maartje-denken-te-sparen-maar-parkeren-hun-geld-slechts-even-ergens-anders~a71518a8/)
-  > Sander (43) en Maartje (41) verdienen samen ongeveer 7400 euro netto per maand. Ze hebben drie kinderen, een koophuis en geen schulden en iedere...
-- [TransferTalk | AZ verhuurt verdediger aan Cambuur, Noorse publiekslieveling tekent bij in Enschede](https://www.ad.nl/voetbal/transfertalk-az-verhuurt-verdediger-aan-cambuur-noorse-publiekslieveling-tekent-bij-in-enschede~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [Van brood halen met een bal tot bondscoach: familieman Xavi bleef altijd maar 20 kilometer van huis](https://www.ad.nl/voetbal/van-brood-halen-met-een-bal-tot-bondscoach-familieman-xavi-bleef-altijd-maar-20-kilometer-van-huis~af0d02b5/)
-  > Veertig jaar van zijn leven heeft zich afgespeeld op een streep van slechts 20 kilometer lang, de afstand tussen zijn geboorteplaats Terrassa en...
+- [Praat mee: AvroTros moet over eigen schaduw heen springen en songfestival verzorgen, kijkplezier gaat voor](https://www.ad.nl/praat-mee/praat-mee-avrotros-moet-over-eigen-schaduw-heen-springen-en-songfestival-verzorgen-kijkplezier-gaat-voor~a0af3bd5/)
+  > AvroTros gaat ook dit jaar het Eurovisie Songfestival niet organiseren namens Nederland. De maatregelen die de European Broadcasting Union (EBU)...
+- [PSV en Feyenoord (én mogelijk NEC) donderdag de koker in voor CL-loting: dit zijn de mogelijke tegenstanders](https://www.ad.nl/voetbal/psv-en-feyenoord-en-mogelijk-nec-donderdag-de-koker-in-voor-cl-loting-dit-zijn-de-mogelijke-tegenstanders~a00eee37/)
+  > Komende donderdag (18.00 uur) is de loting voor de League Phase van de Champions League. PSV en Feyenoord krijgen dan te horen wie hun zeven...
+- [Uit de mond van Jesse Klaver klonk het als een dreigement aan ons allemaal](https://www.ad.nl/binnenland/uit-de-mond-van-jesse-klaver-klonk-het-als-een-dreigement-aan-ons-allemaal~a5214344b/)
+  > Het verongelijkte toontje van PRO-leider Jesse Klaver is niet te harden. En toch snapt ze wel waarom hij zich steeds zo opstelt, schrijft Angela de...
+- [Rolf schrikt van eigen transformatie en Timothy uit B&B vol liefde doet mysterieus](https://www.ad.nl/show/rolf-schrikt-van-eigen-transformatie-en-timothy-uit-benb-vol-liefde-doet-mysterieus~a7582192/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Frankrijk likt zijn wonden na historische bosbranden: halflege campings en miljoenenverlies](https://www.ad.nl/buitenland/frankrijk-likt-zijn-wonden-na-historische-bosbranden-halflege-campings-en-miljoenenverlies~a336c206/)
+  > Frankrijk had deze zomer te maken met de ergste bosbranden in de recente geschiedenis. Toeristen bleven weg, huizen brandden af. De regering heeft...
 
 ### Meest gelezen
 
@@ -46,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Warsh’ toespraak in Jackson Hole is ineens een geloofwaardigheidstest](https://fd.nl/financiele-markten/1610083/warsh-toespraak-in-jackson-hole-is-ineens-een-geloofwaardigheidstest)
+  > Vrijdag spreekt de nieuwe voorzitter van de Federal Reserve een symposium van centrale bankiers toe. Tot dusver laat hij iedereen in het duister over...
 - [De natuur slaat terug](https://fd.nl/financiele-markten/1610082/de-natuur-slaat-terug)
   > Een ode van columnist Milou Brand aan de dappere dodo’s en andere vogels die zich niet langer neerlegden bij de menselijke bezetting en in verzet...
 - [Pieter Zandhuis kreeg ALS: ‘De ziekte is ongrijpbaar’](https://fd.nl/samenleving/1609969/pieter-zandhuis-kreeg-als-de-ziekte-is-ongrijpbaar)
@@ -54,8 +57,6 @@
   > 57% van de beleggers denkt dat er rondom AI-aandelen een zeepbel is, terwijl een iets kleinere groep van 49% vermoedt dat er een bubbel om de hele...
 - [Hooggerechtshof geeft Trump voorlopig groen licht voor beperking briefstemmen](https://fd.nl/politiek/1610080/hooggerechtshof-geeft-trump-voorlopig-groen-licht-voor-beperking-briefstemmen)
   > Volgens het Hof heeft de federale rechter te vroeg geoordeeld. De kwestie kan de komende maanden nogmaals bij de rechter aangevochten worden.
-- [Live: AEX omlaag na hogere opening](https://fd.nl/financiele-markten/1609837/live-nvidia-zet-beurzen-onder-druk-bitcoin-boven-80-000)
-  > Beleggers zijn nerveus over de financiële resultaten die chipbedrijf Nvidia woensdagavond gaat presenteren. Maar ASML en ASM staan nog in de plus op...
 
 ### Meest gelezen
 
