@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-08-2026 om 15:46*
+*Laatst bijgewerkt: 25-08-2026 om 16:40*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Amnesty hekelt 'onmenselijk' politiegeweld tegen Indiase Kakkerlak-betogers](https://nos.nl/l/2628283)
+  > Traangas, hagel, wapenstokken, stroomstootwapens, rubberen kogels en vuurwapens. De Indiase politie greep eind vorige maand keihard in bij de...
+- [Al meer dan 300 zieken door eieren met salmonella in België](https://nos.nl/l/2628279)
+  > In België zijn al zeker 300 mensen ziek geworden na het eten van eieren die met salmonella waren besmet. De eieren komen van een grote kippenhouderij...
+- [Brand in Belgische Ardennen mogelijk ontstaan door landbouwmachine](https://nos.nl/l/2628278)
+  > Justitie in België heeft aanwijzingen dat de grote natuurbrand in de Hoge Venen is ontstaan door een landbouwmachine. Volgens het parket van Luik...
+- [Klaas Otto moet Staat bijna 1,6 miljoen euro terugbetalen](https://nos.nl/l/2628276)
+  > Klaas Otto, de oprichter van motorclub No Surrender, moet ruim 1,6 miljoen euro betalen aan de Staat. Dat heeft de rechtbank bepaald. De 58-jarige...
 - [Onderhandelingen Prinsjesdag moeizaam, kabinet intern verdeeld](https://nos.nl/l/2628272)
   > De drie coalitiepartijen D66, VVD en CDA zijn het onderling nog niet eens over de begrotingen voor Prinsjesdag. Dat zeggen verschillende bronnen...
-- [Amerikaanse media: CIA-directeur Ratcliffe duikt op in Moskou](https://nos.nl/l/2628270)
-  > Amerikaanse media melden dat de directeur van de inlichtingendienst CIA John Ratcliffe in het geheim naar Moskou is gereisd voor besprekingen met...
-- [Onrust in Den Bosch na protesten tegen terugkeer veroordeelde pleegvaders](https://nos.nl/l/2628265)
-  > De gemeente Den Bosch zegt dat er sprake is van groeiende onrust na protestacties in de wijk Maaspoort vanwege de terugkeer van twee veroordeelde...
-- [Ook vermiste vader van dood gevonden Belgische kleuter waarschijnlijk gevonden](https://nos.nl/l/2628263)
-  > Het lijkt erop dat in België ook de vermiste vader dood is teruggevonden van de kleuter van wie de politie gisteren waarschijnlijk het lichaam vond....
-- [Chinese kunstenaar krijgt maximale straf voor 'beledigende' beelden van Mao](https://nos.nl/l/2628262)
-  > De Chinese kunstenaar Gao Zhen is veroordeeld tot een celstraf van drie jaar vanwege het beledigen van 'Chinese helden'. Gao maakt satirische werken,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Canada slaat terug en voert voor miljarden aan heffingen in op Amerikaanse goederen](https://www.ad.nl/buitenland/canada-slaat-terug-en-voert-voor-miljarden-aan-heffingen-in-op-amerikaanse-goederen~ae67dd9c/)
-  > Canada heeft importheffingen aangekondigd op Amerikaanse goederen met een waarde van omgerekend 27,6 miljard Canadese dollar (17 miljard euro)....
-- [Henk Wijngaard ontslagen uit het ziekenhuis na hartoperatie: ‘Met de vlam in de pijp naar huis gegaan’](https://www.ad.nl/show/henk-wijngaard-ontslagen-uit-het-ziekenhuis-na-hartoperatie-met-de-vlam-in-de-pijp-naar-huis-gegaan~aa529f1c/)
-  > Henk Wijngaard is ruim twee weken na zijn ziekenhuisopname weer thuis. De 80-jarige zanger, die vorige week een hartoperatie onderging, werd maandag...
-- [Tadej Pogacar degradeert de tegenstand en zet Vuelta volledig naar zijn hand met monstersolo](https://www.ad.nl/vuelta/tadej-pogacar-degradeert-de-tegenstand-en-zet-vuelta-volledig-naar-zijn-hand-met-monstersolo~a3fdf2f5/)
-  > Er staat geen maat op Tadej Pogacar in de Vuelta. Dat maakte de 27-jarige rodetruidrager nog maar eens duidelijk in de vierde etappe. Op liefst 50...
-- [PSV maakt werk van Lammers, Poku verruilt Leverkusen voor Besiktas, FC Utrecht maanden zonder Paredes](https://www.ad.nl/voetbal/psv-maakt-werk-van-lammers-poku-verruilt-leverkusen-voor-besiktas-fc-utrecht-maanden-zonder-paredes~acbd43e6/)
+- [ManUnited haalt middenvelder voor 75 miljoen euro, PSV maakt werk van Lammers, Poku verruilt Duitsland voor Turkije](https://www.ad.nl/voetbal/manunited-haalt-middenvelder-voor-75-miljoen-euro-psv-maakt-werk-van-lammers-poku-verruilt-duitsland-voor-turkije~acbd43e6/)
   > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [Xavi bij eerste persconferentie als bondscoach: ‘Derde keus na Guardiola en Slot? Toch maar mooi op podium’](https://www.ad.nl/voetbal/xavi-bij-eerste-persconferentie-als-bondscoach-derde-keus-na-guardiola-en-slot-toch-maar-mooi-op-podium~a9407b09/)
-  > Xavi Hernández sprak al met Virgil van Dijk en Frenkie de Jong en hij kent Kees Smit. De nieuwe bondscoach toonde zich open op zijn eerste ontmoeting...
+- [Afspraak burgemeesters, OM, politie en minister: bij snelwegblokkades strafrechtelijk optreden](https://www.ad.nl/binnenland/afspraak-burgemeesters-om-politie-en-minister-bij-snelwegblokkades-strafrechtelijk-optreden~a88dd20a/)
+  > Bij een blokkade van snelwegen of het spoor zal in de regel strafrechtelijk worden opgetreden. Dat hebben burgemeesters, het Openbaar Ministerie, de...
+- [In IJsland kost pizza met biertje 45 euro en hypotheekrente is 10 procent: is EU de redding?](https://www.ad.nl/buitenland/in-ijsland-kost-pizza-met-biertje-45-euro-en-hypotheekrente-is-10-procent-is-eu-de-redding~a8ccebd9/)
+  > Wil IJsland bij de EU horen of niet? Daar gaat het zaterdag om, in een extreem spannend referendum. De helft van de IJslanders wil niks met Brussel...
+- [Nederlandse volleybalsters naar achtste finale EK na overtuigende zege op Spanje](https://www.ad.nl/andere-sporten/nederlandse-volleybalsters-naar-achtste-finale-ek-na-overtuigende-zege-op-spanje~a999595d/)
+  > De Nederlandse volleybalsters hebben zich op overtuigende wijze geplaatst voor de achtste finales van het Europees kampioenschap. Bondscoach Felix...
+- [Mogelijk honderd woningen in Frankrijk onbewoonbaar door tornado](https://www.ad.nl/buitenland/mogelijk-honderd-woningen-in-frankrijk-onbewoonbaar-door-tornado~a77b461d/)
+  > Van de circa driehonderd beschadigde woningen in het door een tornado getroffen Zuid-Franse dorp Pomas moet mogelijk een honderdtal als verloren...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Gasprijs nadert de €70 per megawattuur](https://fd.nl/economie/1610008/gasprijs-nadert-de-70-per-megawattuur)
+  > De prijs schommelt rond niveaus die sinds 2023 niet meer gezien zijn.
+- [Melrose: fabriek Californië gaat weer volledig draaien, veiligheidsproblemen achter de rug](https://fd.nl/financiele-markten/1610011/melrose-fabriek-californie-gaat-weer-volledig-draaien-ontploffingsgevaar-achter-de-rug)
+  > De koers duikelde in mei na explosiegevaar en evacuaties bij een fabriek. Dinsdag was het Britse luchtvaartbedrijf de grootste stijger in...
+- [NS geeft korting aan randen van de spits](https://fd.nl/bedrijfsleven/1610177/ns-geeft-korting-aan-randen-van-de-spits)
+  > Spoorvervoerder anticipeert op traditioneel drukke septembermaand.
+- [Aanslag in Slowaakse dronefabriek verijdeld](https://fd.nl/politiek/1610013/aanslag-in-slowaakse-dronefabriek-verijdeld)
+  > Drie buitenlanders zijn opgepakt voor het plannen van een ernstig misdrijf voor een opdrachtgever.
 - [Ryanair eist schrappen vliegtaks](https://fd.nl/bedrijfsleven/1610009/ryanair-eist-schrappen-vliegtaks)
   > De prijsvechter zal geen extra capaciteit inzetten op de Nederlandse markt als de vliegbelasting niet wordt afgeschaft.
-- [Druk op ASML in China neemt toe door exportcontroles en Chinese spurt in chiptech](https://fd.nl/bedrijfsleven/1610094/druk-op-asml-in-china-neemt-toe-door-exportcontroles-en-chinese-spurt-in-chiptech)
-  > China is qua omzet een van de belangrijkste markten voor ASML. Tegelijkertijd is het een van de moeilijkste om overeind te blijven. Hoe ziet de...
-- [Saoedi-Arabië investeert €6 mrd in pretparken rondom Parijs](https://fd.nl/economie/1610003/saoedi-arabie-investeert-6-mrd-in-pretparken-rondom-parijs)
-  > De golfstaat wil minder afhankelijk worden van olie- en gasinkomsten en via zogeheten soft power zijn imago veranderen door in andere landen een...
-- [Leg de rekening niet bij de Baltische staten](https://fd.nl/opinie/1609994/leg-de-rekening-niet-bij-de-baltische-staten)
-  > Letland voelt de Russische dreiging in zijn achtertuin en roept de hulp in van de hele EU. Maar niet alle lidstaten staan te springen om de Baltische...
-- [Ondanks vermoeden van bubbel kopen Nederlandse particuliere beleggers aandelen bij](https://fd.nl/financiele-markten/1610090/ondanks-vermoeden-van-bubbel-kopen-nederlandse-particuliere-beleggers-aandelen-bij)
-  > Vrij naar een klassiek geworden uitspraak van Citigroup-baas Chuck Prince: zolang de muziek speelt, blijven sommige beleggers gewoon doordansen.
 
 ### Meest gelezen
 
