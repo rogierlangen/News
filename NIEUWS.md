@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-08-2026 om 23:24*
+*Laatst bijgewerkt: 25-08-2026 om 01:25*
 
 ---
 
@@ -29,14 +29,14 @@
 
 - [LIVE VS | Hooggerechtshof VS: Trump mag stemmen per post voorlopig beperken](https://www.ad.nl/buitenland/live-vs-hooggerechtshof-vs-trump-mag-stemmen-per-post-voorlopig-beperken~ae67dd9c/)
   > Het Amerikaanse Hooggerechtshof heeft president Donald Trump voorlopig gelijk gegeven in zijn plan om het stemmen per post in de aanloop naar de...
+- [Gemeenten doen asielopvang vaker in eigen beheer: meer draagvlak inwoners én het is goedkoper](https://www.ad.nl/binnenland/gemeenten-doen-asielopvang-vaker-in-eigen-beheer-meer-draagvlak-inwoners-en-het-is-goedkoper~aab4c55c/)
+  > Na alle heisa en demonstraties rond de komst van asielzoekerscentra is er een opvallende ontwikkeling: een groeiend aantal gemeenten runt zelf een...
+- [Zeker 30 doden door bendegeweld nabij hoofdstad Haïti: ‘Een nacht van terreur’](https://www.ad.nl/buitenland/zeker-30-doden-door-bendegeweld-nabij-hoofdstad-haiti-een-nacht-van-terreur~ac68cded/)
+  > Ongeveer veertig mensen zijn in de nacht van zondag op maandag omgekomen door bendegeweld in Kenscoff, nabij de Haïtiaanse hoofdstad Port-au-Prince....
 - [Gevonden lichaam in België is wellicht van vermiste kleuter (5)](https://www.ad.nl/buitenland/gevonden-lichaam-in-belgie-is-wellicht-van-vermiste-kleuter-5~ab1f0ed8/)
   > Maandagmiddag werd in Onhaye, in het Belgische Namen, een lichaam gevonden dat wellicht van de vermiste 5-jarige Tyméo is. Dat melden de lokale...
 - [Espressomachine draait overuren bij Ajax, PSV en Feyenoord: td’s rennen tegen de klok in hectische slotweek](https://www.ad.nl/voetbal/espressomachine-draait-overuren-bij-ajax-psv-en-feyenoord-tds-rennen-tegen-de-klok-in-hectische-slotweek~aac8ee1d/)
   > Telefoons trillen onophoudelijk, privéjets draaien met ronkende motoren warm en zaakwaarnemers ijsberen zich een ongeluk in hotellobby’s. De climax...
-- [Zeker 300 Belgen ziek na salmonella-uitbraak bij kippenbedrijf, ook in andere landen terugroepacties](https://www.ad.nl/buitenland/zeker-300-belgen-ziek-na-salmonella-uitbraak-bij-kippenbedrijf-ook-in-andere-landen-terugroepacties~aabc14f3/)
-  > Door een salmonella-uitbraak bij een kippenbedrijf in het Belgische De Kempen zijn minstens 300 mensen ziek geworden. Dat bevestigt het...
-- [Xabi Alonso beleeft sterk debuut met Chelsea dankzij recordaankoop Morgan Rogers en Cole Palmer](https://www.ad.nl/voetbal/xabi-alonso-beleeft-sterk-debuut-met-chelsea-dankzij-recordaankoop-morgan-rogers-en-cole-palmer~aae4ac9e/)
-  > Chelsea heeft in de eerste speelronde van de Premier League gewonnen bij Fulham. In de vermakelijke West-Londense derby in Craven Cottage werd het...
 
 ### Meest gelezen
 
