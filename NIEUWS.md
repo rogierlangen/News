@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-08-2026 om 09:46*
+*Laatst bijgewerkt: 26-08-2026 om 10:38*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Dode in Utrecht door het westnijlvirus, opgelopen in Nederland](https://nos.nl/l/2628363)
+  > In de provincie Utrecht is iemand overleden aan de gevolgen van het westnijlvirus. Diegene had het virus in Nederland opgelopen en is gestorven in...
 - [Honderd woningen in Apeldoorn ontruimd na vondst mogelijk drugslab](https://nos.nl/l/2628355)
   > In Apeldoorn is een grote flat ontruimd na de vondst van een mogelijk drugslab. De bewoners van zo'n honderd woningen moesten rond 10.00 uur hun...
 - [Zeldzaam werk van Mondriaan binnenkort onder de hamer in Londen](https://nos.nl/l/2628354)
@@ -16,8 +18,6 @@
   > De KNRM is vannacht in actie gekomen voor twee mensen die vastzaten in een lichtmast bij Vlissingen. Het tweetal wilde vanuit de mast foto's maken...
 - [Tweede verdachte aangehouden voor zwaardaanval op Zweedse school](https://nos.nl/l/2628351)
   > In Zweden is een tweede mannelijke verdachte aangehouden voor betrokkenheid bij de dodelijke zwaardaanval op een school. Daarbij kwam vrijdag een...
-- [Amerikaans vliegdekschip met 'uitgeputte bemanning' onderweg naar Thaise haven](https://nos.nl/l/2628350)
-  > Het Amerikaanse vliegdekschip de USS Abraham Lincoln, waarvan de bemanning al ruim 257 dagen onafgebroken op zee zit, is onderweg naar een tussenstop...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ik dacht dat aanstellerige Coco-Colette en Friso-Florian het toppunt waren, maar het kan nog véél erger](https://www.ad.nl/binnenland/ik-dacht-dat-aanstellerige-coco-colette-en-friso-florian-het-toppunt-waren-maar-het-kan-nog-veel-erger~a51f94320/)
-  > Na de kakkineuze dubbele voornaam is nu de aanstellerige dubbele achternaam in opmars. ‘Van ouders die hun kind Floris-Ferdinand Van der Tak...
-- [Politiebond over strengere aanpak snelwegblokkades: ‘Alleen uitvoerbaar met extra personeel’](https://www.ad.nl/binnenland/politiebond-over-strengere-aanpak-snelwegblokkades-alleen-uitvoerbaar-met-extra-personeel~a8ccff20/)
-  > De Nederlandse Politiebond (NPB) steunt de oproep om voortaan strafrechtelijk op te treden bij snelweg- en spoorwegblokkades, maar luidt direct de...
-- [Protestboer Mark verdedigt radicale acties na kritiek: ‘Wij krijgen veel steun’](https://www.ad.nl/binnenland/protestboer-mark-verdedigt-radicale-acties-na-kritiek-wij-krijgen-veel-steun~ad2fa339/)
-  > Doet Mark van den Oever het boerenprotest meer kwaad dan goed met zijn radicale uitspattingen? Terwijl een deel van de Brabantse politiek hem een...
-- [Louis van Gaal spreekt boodschap in voor Oranje-bondscoach Xavi: ‘Wij Nederlanders zijn altijd maar kritisch’](https://www.ad.nl/voetbal/louis-van-gaal-spreekt-boodschap-in-voor-oranje-bondscoach-xavi-wij-nederlanders-zijn-altijd-maar-kritisch~a3279f3c/)
-  > Louis van Gaal heeft het volste vertrouwen in de nieuwe Oranje-bondscoach Xavi Hernández, met wie hij in het verleden al samenwerkte. Van Gaal liet...
-- [Man wordt na 25 jaar dienstverband op staande voet ontslagen voor het stelen van vier hamburgers](https://www.ad.nl/binnenland/man-wordt-na-25-jaar-dienstverband-op-staande-voet-ontslagen-voor-het-stelen-van-vier-hamburgers~ab84317a/)
-  > Een man die al 25 jaar in dienst was van een groothandel in vlees, is begin dit jaar op staande voet ontslagen omdat hij meerdere keren zonder...
+- [Persoon in Utrecht overleden aan infectie westnijlvirus](https://www.ad.nl/binnenland/persoon-in-utrecht-overleden-aan-infectie-westnijlvirus~a1366ddd/)
+  > In de provincie Utrecht is iemand overleden aan westnijlkoorts, dat meldt het Rijksinstituut voor Volksgezondheid en Milieu (RIVM). De persoon liep...
+- [Zet een yucca in de tuin voor die symmetrische flair in de tuin, langs een trap bijvoorbeeld](https://www.ad.nl/wonen/zet-een-yucca-in-de-tuin-voor-die-symmetrische-flair-in-de-tuin-langs-een-trap-bijvoorbeeld~ab410d77/)
+  > Yucca’s lijken met zijn scherpe bladen en grootse stam niet in de Hollandse tuin thuis te horen, terwijl de soort een prima toevoeging kan zijn aan...
+- [Dolly Parton was vrolijk, praatgraag en schaamteloos eerlijk: ‘Natuurlijk playbackte ik’](https://www.ad.nl/show/dolly-parton-was-vrolijk-praatgraag-en-schaamteloos-eerlijk-natuurlijk-playbackte-ik~ab1501a3/)
+  > Dolly Parton ontketende in 2007 een heuse Dollygate in ons land: had ze in Ahoy nou staan playbacken of niet? Journalist Stefan Raatgever vroeg het...
+- [Supporters Cambuur oneens met besluit om Twente-fans te weren: ‘Een compleet absurde maatregel’](https://www.ad.nl/voetbal/supporters-cambuur-oneens-met-besluit-om-twente-fans-te-weren-een-compleet-absurde-maatregel~a4198a2b3/)
+  > Supporters van SC Cambuur snappen niet waarom fans van FC Twente zondag niet welkom zijn in Leeuwarden. Dat werd besloten na de ongeregeldheden die...
+- [Feyenoord neemt komende twee uitduels geen fans mee na vuurwerk bij Cambuur: ‘Volslagen onacceptabel’](https://www.ad.nl/voetbal/feyenoord-neemt-komende-twee-uitduels-geen-fans-mee-na-vuurwerk-bij-cambuur-volslagen-onacceptabel~a8d42696/)
+  > Feyenoord neemt de komende twee uitwedstrijden in de eredivisie geen uitsupporters mee, na de ongeregeldheden tijdens het uitduel met SC Cambuur van...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Thijs Verheul: ‘Ik wil een team zien met minimaal één hustler’](https://fd.nl/samenleving/1610036/thijs-verheul-ik-wil-een-team-zien-met-minimaal-een-hustler)
+  > Eerlijk durven zijn, jezelf opnieuw uitvinden. Wat maken professionals mee in hun loopbaan? Deze week: Thijs Verheul (1992), ondernemer en...
+- [Olieprijs daalt op afnemende spanningen in Iran-oorlog](https://fd.nl/politiek/1610233/olieprijs-daalt-op-afnemende-spanningen-in-iran-oorlog)
+  > Een vat Brent-olie kostte dinsdagmiddag $86, ruim 8,9% minder dan afgelopen vrijdag. Diplomaten zijn hoopvol dat de VS en Iran binnenkort weer om...
+- [Opening Twentekanaal komt voorzichtig in zicht](https://fd.nl/economie/1610239/opening-twentekanaal-komt-voorzichtig-in-zicht)
+  > Rijkswaterstaat gaat vrijdag bij de sluis van Eefde twee proefschuttingen uitvoeren om te kijken wat het effect daarvan is op de waterstand van het...
+- [‘Een dodelijke tango’: publieke omroep in spagaat door algoritmes](https://fd.nl/samenleving/1610030/een-dodelijke-tango-publieke-omroep-in-spagaat-door-algoritmes)
+  > Algoritmes op bijvoorbeeld YouTube ‘dwingen’ makers de inhoud van hun uitzendingen aan te passen, waardoor het lastig is daar de taak van de publieke...
 - [De helende kracht van alleen-zijn](https://fd.nl/samenleving/1610230/de-helende-kracht-van-alleen-zijn)
   > Bijna de helft van de Nederlanders voelt zich weleens eenzaam en dat is zorgwekkend. Toch kan een periode van alleen-zijn ook iets goeds opleveren.
-- [VS pauzeren voorlopig aanvragen voor immigratievisa](https://fd.nl/politiek/1610033/vs-pauzeren-voorlopig-aanvragen-voor-immigratievisa)
-  > Consulaire ambtenaren en medewerkers van ambassades moeten eerst een ‘uitgebreide training’ volgen om te kunnen beoordelen of visa-aanvragers geen...
-- [Bessent mist slagkracht voor ‘whatever it takes’](https://fd.nl/opinie/1610087/bessent-mist-slagkracht-voor-whatever-it-takes)
-  > De Amerikaanse minister van financiën probeert de rente te bedwingen, maar mist de geloofwaardigheid en slagkracht om de markt echt te overtuigen,...
-- [De prijs van het paradijs](https://fd.nl/financiele-markten/1610031/de-prijs-van-het-paradijs)
-  > Wat geen prijs heeft, mogen we nooit verwarren met wat geen waarde heeft, schrijft FD-columnist Valentijn van Nieuwenhuijzen na een reis naar...
-- [Ambitieus, maar met mate](https://fd.nl/samenleving/1610229/ambitieus-maar-met-mate)
-  > Het bedrijf van Femmetje de Wind groeide als kool. Totdat ze dacht: het is wel genoeg zo. Want de weg naar de top heeft ook een prijs.
 
 ### Meest gelezen
 
