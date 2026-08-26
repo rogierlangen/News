@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-08-2026 om 08:48*
+*Laatst bijgewerkt: 26-08-2026 om 09:46*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Nederland krijgt onderzoekscentrum long covid, voor gerichte behandelingen](https://nos.nl/l/2628349)
-  > Er komt een landelijk onderzoeks- en innovatiecentrum voor long covid en andere post-acute infectiesyndromen. Dat heeft de initiatiefnemer voor het...
-- [Lelystad doet proef met thuiskamer voor extra hulp en rust na bevalling](https://nos.nl/l/2628345)
-  > In Lelystad kunnen vrouwen die net zijn bevallen sinds kort terecht in de thuiskamer, een plek waar ouders dag en nacht professionele hulp en meer...
-- [Gasvoorraad deze winter niet volledig gevuld, weinig zorgen over tekort](https://nos.nl/l/2628343)
-  > Nederland kan voor de winter de gasopslag niet meer aanvullen tot het gewenste niveau. Dat bevestigt de Gasunie na berichtgeving van NU.nl. Een...
-- [Oekraïne valt opnieuw magazijn van Russische webwinkel Wildberries aan](https://nos.nl/l/2628338)
-  > Oekraïne heeft afgelopen nacht opnieuw een magazijn van de Russische webwinkel Wildberries aangevallen. Ditmaal werd een magazijn geraakt in de regio...
-- [Vijftien baby's overleden bij brand in Pakistaans ziekenhuis, één gered](https://nos.nl/l/2628334)
-  > Bij een brand in een ziekenhuis in de Pakistaanse hoofdstad Islamabad zijn vijftien baby's overleden. Dat zeggen functionarissen van het Pakistan...
+- [Honderd woningen in Apeldoorn ontruimd na vondst mogelijk drugslab](https://nos.nl/l/2628355)
+  > In Apeldoorn is een grote flat ontruimd na de vondst van een mogelijk drugslab. De bewoners van zo'n honderd woningen moesten rond 10.00 uur hun...
+- [Zeldzaam werk van Mondriaan binnenkort onder de hamer in Londen](https://nos.nl/l/2628354)
+  > Het schilderij was 25 jaar niet te zien voor het publiek, maar binnenkort komt het werk van Piet Mondriaan onder de hamer in Londen. Het schilderij...
+- [Reddingsactie voor fotografen die vastzaten in lichtmast door vloed](https://nos.nl/l/2628352)
+  > De KNRM is vannacht in actie gekomen voor twee mensen die vastzaten in een lichtmast bij Vlissingen. Het tweetal wilde vanuit de mast foto's maken...
+- [Tweede verdachte aangehouden voor zwaardaanval op Zweedse school](https://nos.nl/l/2628351)
+  > In Zweden is een tweede mannelijke verdachte aangehouden voor betrokkenheid bij de dodelijke zwaardaanval op een school. Daarbij kwam vrijdag een...
+- [Amerikaans vliegdekschip met 'uitgeputte bemanning' onderweg naar Thaise haven](https://nos.nl/l/2628350)
+  > Het Amerikaanse vliegdekschip de USS Abraham Lincoln, waarvan de bemanning al ruim 257 dagen onafgebroken op zee zit, is onderweg naar een tussenstop...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nét nadat brandweer buurt om hulp vraagt, slaan criminelen toe: ‘Dit doet veel met ons’](https://www.ad.nl/binnenland/net-nadat-brandweer-buurt-om-hulp-vraagt-slaan-criminelen-toe-dit-doet-veel-met-ons~a699ef44/)
-  > En dat is inbraak nummer 66. Criminelen blijven toeslaan bij brandweerkazernes in Nederland. Dit keer was het raak in Benthuizen. Dat inbrekers juist...
-- [Excelsior wil speler uit de Premier League, Ki-Jana Hoever naar Sparta Praag, Marmoush op weg naar Spurs](https://www.ad.nl/voetbal/excelsior-wil-speler-uit-de-premier-league-ki-jana-hoever-naar-sparta-praag-marmoush-op-weg-naar-spurs~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [Ilse DeLange geschrokken door overlijden Dolly Parton: ‘Ze was een mentor voor mij’](https://www.ad.nl/show/ilse-delange-geschrokken-door-overlijden-dolly-parton-ze-was-een-mentor-voor-mij~afc075d3/)
-  > Ilse DeLange heeft geschrokken gereageerd op het overlijden van Dolly Parton. De zangeres hoorde dinsdagavond na opnames van The Voice dat haar idool...
-- [Wat je per leeftijd moet sparen voor je kind: van zwemles en laptop tot collegegeld](https://www.ad.nl/geld/wat-je-per-leeftijd-moet-sparen-voor-je-kind-van-zwemles-en-laptop-tot-collegegeld~a325a10e/)
-  > Kinderen zijn onbetaalbaar, maar aan het grootbrengen van een kind hangt wel degelijk een prijskaartje. Van de eerste romper tot een studie: elke...
-- [Praat mee: er zijn te weinig artiesten die, net als Dolly Parton, mensen nader tot elkaar kunnen brengen](https://www.ad.nl/praat-mee/praat-mee-er-zijn-te-weinig-artiesten-die-net-als-dolly-parton-mensen-nader-tot-elkaar-kunnen-brengen~a0132f48/)
-  > Het onverwachte overlijden van countryzangeres Dolly Parton (80) zorgt wereldwijd voor verdriet en eerbetoon. Zij was niet alleen geliefd vanwege...
+- [Ik dacht dat aanstellerige Coco-Colette en Friso-Florian het toppunt waren, maar het kan nog véél erger](https://www.ad.nl/binnenland/ik-dacht-dat-aanstellerige-coco-colette-en-friso-florian-het-toppunt-waren-maar-het-kan-nog-veel-erger~a51f94320/)
+  > Na de kakkineuze dubbele voornaam is nu de aanstellerige dubbele achternaam in opmars. ‘Van ouders die hun kind Floris-Ferdinand Van der Tak...
+- [Politiebond over strengere aanpak snelwegblokkades: ‘Alleen uitvoerbaar met extra personeel’](https://www.ad.nl/binnenland/politiebond-over-strengere-aanpak-snelwegblokkades-alleen-uitvoerbaar-met-extra-personeel~a8ccff20/)
+  > De Nederlandse Politiebond (NPB) steunt de oproep om voortaan strafrechtelijk op te treden bij snelweg- en spoorwegblokkades, maar luidt direct de...
+- [Protestboer Mark verdedigt radicale acties na kritiek: ‘Wij krijgen veel steun’](https://www.ad.nl/binnenland/protestboer-mark-verdedigt-radicale-acties-na-kritiek-wij-krijgen-veel-steun~ad2fa339/)
+  > Doet Mark van den Oever het boerenprotest meer kwaad dan goed met zijn radicale uitspattingen? Terwijl een deel van de Brabantse politiek hem een...
+- [Louis van Gaal spreekt boodschap in voor Oranje-bondscoach Xavi: ‘Wij Nederlanders zijn altijd maar kritisch’](https://www.ad.nl/voetbal/louis-van-gaal-spreekt-boodschap-in-voor-oranje-bondscoach-xavi-wij-nederlanders-zijn-altijd-maar-kritisch~a3279f3c/)
+  > Louis van Gaal heeft het volste vertrouwen in de nieuwe Oranje-bondscoach Xavi Hernández, met wie hij in het verleden al samenwerkte. Van Gaal liet...
+- [Man wordt na 25 jaar dienstverband op staande voet ontslagen voor het stelen van vier hamburgers](https://www.ad.nl/binnenland/man-wordt-na-25-jaar-dienstverband-op-staande-voet-ontslagen-voor-het-stelen-van-vier-hamburgers~ab84317a/)
+  > Een man die al 25 jaar in dienst was van een groothandel in vlees, is begin dit jaar op staande voet ontslagen omdat hij meerdere keren zonder...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [De helende kracht van alleen-zijn](https://fd.nl/samenleving/1610230/de-helende-kracht-van-alleen-zijn)
+  > Bijna de helft van de Nederlanders voelt zich weleens eenzaam en dat is zorgwekkend. Toch kan een periode van alleen-zijn ook iets goeds opleveren.
+- [VS pauzeren voorlopig aanvragen voor immigratievisa](https://fd.nl/politiek/1610033/vs-pauzeren-voorlopig-aanvragen-voor-immigratievisa)
+  > Consulaire ambtenaren en medewerkers van ambassades moeten eerst een ‘uitgebreide training’ volgen om te kunnen beoordelen of visa-aanvragers geen...
 - [Bessent mist slagkracht voor ‘whatever it takes’](https://fd.nl/opinie/1610087/bessent-mist-slagkracht-voor-whatever-it-takes)
   > De Amerikaanse minister van financiën probeert de rente te bedwingen, maar mist de geloofwaardigheid en slagkracht om de markt echt te overtuigen,...
 - [De prijs van het paradijs](https://fd.nl/financiele-markten/1610031/de-prijs-van-het-paradijs)
   > Wat geen prijs heeft, mogen we nooit verwarren met wat geen waarde heeft, schrijft FD-columnist Valentijn van Nieuwenhuijzen na een reis naar...
 - [Ambitieus, maar met mate](https://fd.nl/samenleving/1610229/ambitieus-maar-met-mate)
   > Het bedrijf van Femmetje de Wind groeide als kool. Totdat ze dacht: het is wel genoeg zo. Want de weg naar de top heeft ook een prijs.
-- [Winstmarge bij maakbedrijf Kendrion gestegen in eerste halfjaar](https://fd.nl/bedrijfsleven/1610005/winstmarge-bij-maakbedrijf-kendrion-gestegen-in-eerste-halfjaar)
-  > Met een genormaliseerde ebitda-marge van 17,5% over de eerste zes maanden zit de onderneming aan de bovenkant van zijn doelstelling. Vooral in het...
-- [Israël wijst Nederlands ambassadepersoneel de deur na importverbod voor bezette gebieden](https://fd.nl/politiek/1610227/israel-wijst-nederlands-ambassadepersoneel-de-deur-na-importverbod-voor-bezette-gebieden)
-  > De twee uitgezette Nederlanders werken bij het civiel-militaire coördinatiecentrum dat zich bezighoudt met de wederopbouw van Gaza.
 
 ### Meest gelezen
 
