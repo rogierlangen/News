@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-08-2026 om 19:05*
+*Laatst bijgewerkt: 26-08-2026 om 22:54*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Surinaamse justitie deelt signalement van verdachte in vermissingszaak filmproducent](https://nos.nl/l/2628438)
+  > Het Surinaamse Openbaar Ministerie heeft een opsporingsbericht uitgevaardigd voor een verdachte in de vermissingszaak rond de Nederlandse...
+- [Reddingsteams zoeken door in Nepalese nacht, vrees voor veel meer slachtoffers](https://nos.nl/l/2628430)
+  > Nu het nacht is in het grensgebied van Nepal en Tibet blijft voorlopig onduidelijk wat de precieze omvang van de natuurramp is die daar vanochtend...
+- [Rusland zet Duitse journalist op internationale opsporingslijst om vraag aan Zelensky](https://nos.nl/l/2628425)
+  > Rusland heeft de Duitse journalist Michael Martens op een internationale opsporingslijst geplaatst. Dat meldt onder meer de Russische staatsomroep...
+- [Een traktatie, snipperdag en kans op dagje pretpark om spijbelen tegen te gaan](https://nos.nl/l/2628424)
+  > Een middelbare school in Zierikzee probeert spijbelen tegen te gaan door de aanwezigheid van leerlingen te belonen. Het Pieter Zeeman Lyceum haalt...
 - [Palestijnse boer Daoud Nassar strijdt al tientallen jaren voor zijn boerderij bij Bethlehem](https://nos.nl/l/2628419)
   > "We verbouwen hier druiven, olijven, vijgen en amandelen", vertelt boer Daoud Nassar trots terwijl hij een nieuw geplante olijfboom water geeft. De...
-- [Rocky Horror Picture Show-acteur en IT-clown Tim Curry overleden](https://nos.nl/l/2628415)
-  > De Britse acteur Tim Curry is op 80-jarige leeftijd overleden. Hij stierf vandaag in zijn huis in Los Angeles. Een doodsoorzaak is niet...
-- [Regering Trump legt aanvragen visa wereldwijd tijdelijk stil](https://nos.nl/l/2628414)
-  > De Verenigde Staten hebben de behandeling van immigratievisa tijdelijk stilgelegd. De regering-Trump wil eerst nieuwe richtlijnen invoeren en...
-- [Voor het eerst onderzoek naar kindermarteling: 'De signalering wordt sowieso beter'](https://nos.nl/l/2628413)
-  > Voor het eerst gaat in kaart worden gebracht op welke manier kindermarteling in Nederland voorkomt. Meer kennis is nodig naar kindermartelingen en...
-- [OM eist werkstraffen tegen zes klimaatactivisten voor blokkeren A12](https://nos.nl/l/2628410)
-  > Het Openbaar Ministerie eist werkstraffen van 120 uur tegen zes klimaatactivisten van Extinction Rebellion (XR) die op 25 april in Utrecht de snelweg...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE La Liga | Real Madrid met Denzel Dumfries op jacht naar eerste thuiszege tegen Real Sociedad](https://www.ad.nl/voetbal/live-la-liga-real-madrid-met-denzel-dumfries-op-jacht-naar-eerste-thuiszege-tegen-real-sociedad~a6ccb5b2/)
-  > Real Madrid speelt vanavond de eerste thuiswedstrijd van het nieuwe seizoen. De Koninklijke ontvangt Real Sociedad. Wint Denzel Dumfries bij zijn...
-- [Jacqueline over haar relatie met Johannes: ‘Drie nachten bij elkaar vinden we wel de max’](https://www.ad.nl/mezza/jacqueline-over-haar-relatie-met-johannes-drie-nachten-bij-elkaar-vinden-we-wel-de-max~a09687cb/)
-  > Jacqueline (73) en Johannes (77) hebben al bijna zes jaar een relatie zonder verplichtingen. ‘We zien elkaar uitsluitend buiten de deur,’ vertelt ze...
-- [Koning Willem-Alexander en koningin Máxima reageren verslagen op overstroming: ‘In gedachten bij hen’](https://www.ad.nl/buitenland/koning-willem-alexander-en-koningin-maxima-reageren-verslagen-op-overstroming-in-gedachten-bij-hen~a248a934/)
-  > Het dodental als gevolg van de overstromingen in Nepal is opgelopen tot zeker 157. Dat meldt de BBC op gezag van de Nepalese politie, na een update...
-- [Geliefde basisschoollerares Gea werd vermoord door haar man, haar zus strijdt nu tegen femicide](https://www.ad.nl/binnenland/geliefde-basisschoollerares-gea-werd-vermoord-door-haar-man-haar-zus-strijdt-nu-tegen-femicide~a803826c/)
-  > Barbara’s zus werd in 2020 vermoord door haar echtgenoot. Nu is Barbara Godwaldt een van de boegbeelden in de vernieuwde campagne ‘Waar ben je?’....
-- [Winactie Vuelta: herken jij deze twee oud-renners?](https://www.ad.nl/wielrennen/winactie-vuelta-herken-jij-deze-twee-oud-renners~ae7a4f9d/)
-  > Doe mee aan onze Vuelta-actie. De vraag van de dag: herken jij deze twee oud-renners? Laat het hieronder weten en maak kans op Shokz oortjes ter...
+- [PSV en Feyenoord vanavond de koker in voor CL-loting: dit zijn de mogelijke tegenstanders](https://www.ad.nl/voetbal/psv-en-feyenoord-vanavond-de-koker-in-voor-cl-loting-dit-zijn-de-mogelijke-tegenstanders~a00eee37/)
+  > Komende avond (18.00 uur) is de loting voor de League Phase van de Champions League. PSV en Feyenoord krijgen dan te horen wie hun zeven...
+- [Adviesraad slaat groot alarm: we verliezen industrie en duizenden banen aan China en de VS](https://www.ad.nl/binnenland/adviesraad-slaat-groot-alarm-we-verliezen-industrie-en-duizenden-banen-aan-china-en-de-vs~ace168e7/)
+  > Nederland en de rest van Europa dreigen veel industrie en duizenden banen te verliezen aan China en de Verenigde Staten. Tijd om ons te weren met...
+- [Einde aan droomweek Mees Röttgering, Botic van de Zandschulp maakt indruk](https://www.ad.nl/tennis/einde-aan-droomweek-mees-rottgering-botic-van-de-zandschulp-maakt-indruk~abd1307c/)
+  > Mees Röttgering is uitgeschakeld bij het ATP-toernooi in Winston-Salem in de Verenigde Staten. De 19-jarige Nederlander moest in de derde ronde zijn...
+- [LIVE US Open | Anouk Koevermans dicht bij hoofdtoernooi, Arantxa Rus wint Nederlands onderonsje](https://www.ad.nl/tennis/live-us-open-anouk-koevermans-dicht-bij-hoofdtoernooi-arantxa-rus-wint-nederlands-onderonsje~a32e16c8/)
+  > Het laatste grandslamtoernooi van het jaar is losgebarsten. In New York trapt de US Open af met het vernieuwde gemengd dubbelspel. Door de...
+- [Kylian Mbappé schittert met hattrick en bezorgt Denzel Dumfries uitstekend thuisdebuut voor Real Madrid](https://www.ad.nl/voetbal/kylian-mbappe-schittert-met-hattrick-en-bezorgt-denzel-dumfries-uitstekend-thuisdebuut-voor-real-madrid~a6ccb5b2/)
+  > Denzel Dumfries kende een uitstekend thuisdebuut voor Real Madrid. Na een moeilijke eerste helft boekte de Koninklijke aan de hand van de hattrick...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Denk na over een China-strategie](https://fd.nl/opinie/1610241/denk-na-over-een-china-strategie)
-  > Er ontbreekt nu een helder kader dat bepaalt wanneer welke maatregelen nodig zijn. Een strategie kan juist duidelijk maken hoe Nederland China ziet.
-- [Koers farmaceut hoger na goedkeuring FDA van medicijn tegen alvleesklierkanker](https://fd.nl/financiele-markten/1610279/koers-farmaceut-hoger-na-goedkeuring-fda-van-medicijn-tegen-alvleesklierkanker)
-  > Het aandeel van het Amerikaanse bedrijf Revolution Medicines stond woensdag na opening ruim 2% hoger op de Nasdaq.
-- [‘Berlijn ontvangt UniCredit-ceo om te praten over overname Commerzbank’](https://fd.nl/politiek/1610262/berlijn-ontvangt-unicredit-ceo-om-te-praten-over-overname-commerzbank)
-  > De Duitse minister van financiën Lars Klingbeil ontmoet op 14 september UniCredit-ceo Andrea Orcel in Berlijn om te praten over een overname van...
-- [Dolly Parton serveerde haar fans ambitie en bouwde een zakenimperium van $500 mln op](https://fd.nl/samenleving/1610256/dolly-parton-serveerde-haar-fans-ambitie-en-bouwde-een-zakenimperium-van-500-mln-op)
-  > Amerika was dol op de countryzangeres, die woorden wist te geven aan de gevoelens van de gewone man en vrouw. Tenger van stuk, was ze naast zangeres...
-- [Hoe krijgt het kabinet het kapitaal terug in de huurmarkt?](https://fd.nl/politiek/1610246/hoe-krijgt-het-kabinet-het-kapitaal-terug-in-de-huurmarkt)
-  > De missie van woonminister Boekholt-O’Sullivan is duidelijk: de steeds krapper wordende huurmarkt nieuw leven inblazen. Maar hoe?
+- [Minder huurwoningen in studentensteden, minister wil soepele omgang met kamerverhuur](https://fd.nl/bedrijfsleven/1610243/minder-huurwoningen-in-studentensteden-minister-wil-soepele-omgang-met-kamerverhuur)
+  > In het tweede kwartaal verkochten investeerders opnieuw duizenden huurwoningen in universiteitssteden. Daarmee komt het woningaanbod voor studenten...
+- [Mystieke botten](https://fd.nl/opinie/1610044/mystieke-botten)
+  > De symbolische inzet van menselijke relikwieën in de oorlog in Oekraïne laat zien dat moderniteit betrekkelijk is, vindt columnist Casper Thomas.
+- [De rode loper gaat uit voor zwartrijders](https://fd.nl/opinie/1609998/de-rode-loper-gaat-uit-voor-zwartrijders)
+  > Onrust in de hoofdstad. Het GVB overweegt conducteurs van de Amsterdamse tram te halen. Daarmee begaat het bedrijf een historische fout, waarschuwt...
+- [Personalia donderdag 27 augustus](https://fd.nl/bedrijfsleven/1610034/personalia-donderdag-27-augustus)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [‘Scheef spel’ China vergt een brede beschermingswal, vindt WRR](https://fd.nl/economie/1610237/scheef-spel-china-vergt-een-brede-beschermingswal-vindt-wrr)
+  > De Europese Unie moet een ‘brede importheffing’ tegen oneerlijke Chinese concurrentie overwegen, stelt de Wetenschappelijke Raad voor het...
 
 ### Meest gelezen
 
