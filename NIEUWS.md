@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-08-2026 om 23:27*
+*Laatst bijgewerkt: 26-08-2026 om 01:36*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Omgekeerde vlag bijna verdwenen, maar steun voor boer blijft: ‘Lijkt me wél terecht dat ze van snelweg blijven’](https://www.ad.nl/binnenland/omgekeerde-vlag-bijna-verdwenen-maar-steun-voor-boer-blijft-lijkt-me-wel-terecht-dat-ze-van-snelweg-blijven~aca22436/)
+  > Minder vlaggen, kleinere protesten, burgemeesters die trekkers van de snelweg weren. Het lijkt misschien of het boerenprotest is verstomd. Maar wie...
+- [Familie: Dolly Parton leed kort aan kanker, afscheid in besloten kring](https://www.ad.nl/show/familie-dolly-parton-leed-kort-aan-kanker-afscheid-in-besloten-kring~a6337dd4/)
+  > Dolly Parton leed voor haar dood kort aan kanker. Dat heeft de familie van de dinsdag op 80-jarige leeftijd overleden countryzangeres bevestigd. Om...
 - [Voetbalpodcast | ‘Xavi gaat nooit man en paard noemen in gesprekken met de media’](https://www.ad.nl/voetbal/voetbalpodcast-xavi-gaat-nooit-man-en-paard-noemen-in-gesprekken-met-de-media~a42af5cd9/)
   > NEC gaat spelen in de Europa League. De droom van spelen in de Champions League eindigde in Noorwegen na de 3-0 nederlaag tegen Bodø/Glimt. In de AD...
 - [Jongeren kopen in het weekeinde, de oudsten slaan op vrijdag hun slag: zo ziet het betaalritme van Nederland eruit](https://www.ad.nl/economie/jongeren-kopen-in-het-weekeinde-de-oudsten-slaan-op-vrijdag-hun-slag-zo-ziet-het-betaalritme-van-nederland-eruit~a34ed20b/)
   > Nederlanders geven opvallend voorspelbaar hun geld uit. En in ons doordeweekse betaalritme schuilt een duidelijk generatieverschil, blijkt uit een...
 - [PSV en Feyenoord donderdag de koker in voor CL-loting: dit zijn de mogelijke tegenstanders](https://www.ad.nl/voetbal/psv-en-feyenoord-donderdag-de-koker-in-voor-cl-loting-dit-zijn-de-mogelijke-tegenstanders~a00eee37/)
   > Komende donderdag (18.00 uur) is de loting voor de League Phase van de Champions League. PSV en Feyenoord krijgen dan te horen wie hun zeven...
-- [Cristiano Ronaldo woest na blunder van doelman (18) en wordt gewisseld, maar ziet tiental Al-Nassr alsnog winnen](https://www.ad.nl/voetbal/cristiano-ronaldo-woest-na-blunder-van-doelman-18-en-wordt-gewisseld-maar-ziet-tiental-al-nassr-alsnog-winnen~a66891db/)
-  > Cristiano Ronaldo kon zijn frustraties dinsdagavond niet verbergen. Doelman Abdulrahman Al-Otaibi blunderde vlak voor rust, waardoor Al-Nassr met 2-0...
-- [Nijmeegse burgemeester Bruls: geen Feyenoord-supporters bij NEC bij uitblijven aanhoudingen](https://www.ad.nl/nijmegen/nijmeegse-burgemeester-bruls-geen-feyenoord-supporters-bij-nec-bij-uitblijven-aanhoudingen~a687fde4/)
-  > Als er geen verdachten worden aangehouden voor het vuurwerkincident bij SC Cambuur, dan zijn Feyenoord-supporters niet welkom in Nijmegen wanneer de...
 
 ### Meest gelezen
 
