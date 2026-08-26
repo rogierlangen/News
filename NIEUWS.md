@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-08-2026 om 07:49*
+*Laatst bijgewerkt: 26-08-2026 om 08:48*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Nederland krijgt onderzoekscentrum long covid, voor gerichte behandelingen](https://nos.nl/l/2628349)
+  > Er komt een landelijk onderzoeks- en innovatiecentrum voor long covid en andere post-acute infectiesyndromen. Dat heeft de initiatiefnemer voor het...
+- [Lelystad doet proef met thuiskamer voor extra hulp en rust na bevalling](https://nos.nl/l/2628345)
+  > In Lelystad kunnen vrouwen die net zijn bevallen sinds kort terecht in de thuiskamer, een plek waar ouders dag en nacht professionele hulp en meer...
 - [Gasvoorraad deze winter niet volledig gevuld, weinig zorgen over tekort](https://nos.nl/l/2628343)
-  > Nederland gaat voor de winter de gasopslag niet meer kunnen vullen tot het gewenste niveau. Dat bevestigt de Gasunie na berichtgeving van NU.nl. Een...
+  > Nederland kan voor de winter de gasopslag niet meer aanvullen tot het gewenste niveau. Dat bevestigt de Gasunie na berichtgeving van NU.nl. Een...
 - [Oekraïne valt opnieuw magazijn van Russische webwinkel Wildberries aan](https://nos.nl/l/2628338)
   > Oekraïne heeft afgelopen nacht opnieuw een magazijn van de Russische webwinkel Wildberries aangevallen. Ditmaal werd een magazijn geraakt in de regio...
 - [Vijftien baby's overleden bij brand in Pakistaans ziekenhuis, één gered](https://nos.nl/l/2628334)
   > Bij een brand in een ziekenhuis in de Pakistaanse hoofdstad Islamabad zijn vijftien baby's overleden. Dat zeggen functionarissen van het Pakistan...
-- [Zeker twaalf gevallen van kindermarteling in Nederland: 'Het is een blinde vlek'](https://nos.nl/l/2628332)
-  > Soms komt een situatie aan het licht waarbij een kind verschrikkelijk is behandeld. Het pleegmeisje uit Vlaardingen of twee mishandelde kinderen in...
-- [Wekdienst 26/8: Coronaverhoren gaan verder • Karolien Florijn begint aan WK roeien](https://nos.nl/l/2628331)
-  > Goedemorgen! Kamerleden Lisa Westerveld en Fleur Agema worden vandaag verhoord door de parlementaire enquêtecommissie corona en op de WK roeien komt...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nederland haalt vuldoel gasvoorraad voor de winter niet: ‘Onvoldoende voorbereid op de strenge winters’](https://www.ad.nl/binnenland/nederland-haalt-vuldoel-gasvoorraad-voor-de-winter-niet-onvoldoende-voorbereid-op-de-strenge-winters~ad3c3aba/)
-  > Nederland gaat de winter in met een kleinere gasvoorraad dan gewenst, meldt Gasunie. Het vuldoel voor de gasopslagen is niet meer haalbaar. Dat...
-- [Hoe Xavi Oranje in zijn eerste weken gaat bouwen: van Ajax - PSV bekijken tot een nieuwe ‘6’](https://www.ad.nl/voetbal/hoe-xavi-oranje-in-zijn-eerste-weken-gaat-bouwen-van-ajax-psv-bekijken-tot-een-nieuwe-6~ab6fae1a/)
-  > Op 24 september debuteert Xavi Hernández als bondscoach van Oranje, thuis tegen Duitsland. Hoe zien zijn eerste weken eruit? Waarmee gaat – en moet –...
-- [Oekraïne valt opnieuw distributiecentrum van Wildberries aan, twee doden nadat drone op huis stort](https://www.ad.nl/buitenland/oekraine-valt-opnieuw-distributiecentrum-van-wildberries-aan-twee-doden-nadat-drone-op-huis-stort~adfb97be/)
-  > Oekraïne heeft opnieuw een droneaanval uitgevoerd op een distributiecentrum van de Russische onlinewinkel Wildberries. In dezelfde plaats kwamen een...
-- [Varkenssector krijgt publieksprijs voor grootste Liegebeest van 2026: ‘Het lijkt wel satire’](https://www.ad.nl/binnenland/varkenssector-krijgt-publieksprijs-voor-grootste-liegebeest-van-2026-het-lijkt-wel-satire~abbff52ec/)
-  > The Pig Story is verkozen tot het grootste Liegebeest van 2026. Wakker Dier nomineerde dit PR-platform van de Nederlandse varkenssector vanwege veel...
-- [Boer zorgde voor doorbraak in zaak rond vermiste Tyméo (5) en zijn vader: ‘Lichamen lagen tientallen meters van elkaar’](https://www.ad.nl/buitenland/boer-zorgde-voor-doorbraak-in-zaak-rond-vermiste-tymeo-5-en-zijn-vader-lichamen-lagen-tientallen-meters-van-elkaar~a561bd71/)
-  > De tip van een landbouwer dat hij langs de N97 in Onhaye een kinderschoen had zien liggen, zorgde uiteindelijk voor een doorbraak in het mysterie...
+- [Nét nadat brandweer buurt om hulp vraagt, slaan criminelen toe: ‘Dit doet veel met ons’](https://www.ad.nl/binnenland/net-nadat-brandweer-buurt-om-hulp-vraagt-slaan-criminelen-toe-dit-doet-veel-met-ons~a699ef44/)
+  > En dat is inbraak nummer 66. Criminelen blijven toeslaan bij brandweerkazernes in Nederland. Dit keer was het raak in Benthuizen. Dat inbrekers juist...
+- [Excelsior wil speler uit de Premier League, Ki-Jana Hoever naar Sparta Praag, Marmoush op weg naar Spurs](https://www.ad.nl/voetbal/excelsior-wil-speler-uit-de-premier-league-ki-jana-hoever-naar-sparta-praag-marmoush-op-weg-naar-spurs~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Ilse DeLange geschrokken door overlijden Dolly Parton: ‘Ze was een mentor voor mij’](https://www.ad.nl/show/ilse-delange-geschrokken-door-overlijden-dolly-parton-ze-was-een-mentor-voor-mij~afc075d3/)
+  > Ilse DeLange heeft geschrokken gereageerd op het overlijden van Dolly Parton. De zangeres hoorde dinsdagavond na opnames van The Voice dat haar idool...
+- [Wat je per leeftijd moet sparen voor je kind: van zwemles en laptop tot collegegeld](https://www.ad.nl/geld/wat-je-per-leeftijd-moet-sparen-voor-je-kind-van-zwemles-en-laptop-tot-collegegeld~a325a10e/)
+  > Kinderen zijn onbetaalbaar, maar aan het grootbrengen van een kind hangt wel degelijk een prijskaartje. Van de eerste romper tot een studie: elke...
+- [Praat mee: er zijn te weinig artiesten die, net als Dolly Parton, mensen nader tot elkaar kunnen brengen](https://www.ad.nl/praat-mee/praat-mee-er-zijn-te-weinig-artiesten-die-net-als-dolly-parton-mensen-nader-tot-elkaar-kunnen-brengen~a0132f48/)
+  > Het onverwachte overlijden van countryzangeres Dolly Parton (80) zorgt wereldwijd voor verdriet en eerbetoon. Zij was niet alleen geliefd vanwege...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Bessent mist slagkracht voor ‘whatever it takes’](https://fd.nl/opinie/1610087/bessent-mist-slagkracht-voor-whatever-it-takes)
+  > De Amerikaanse minister van financiën probeert de rente te bedwingen, maar mist de geloofwaardigheid en slagkracht om de markt echt te overtuigen,...
+- [De prijs van het paradijs](https://fd.nl/financiele-markten/1610031/de-prijs-van-het-paradijs)
+  > Wat geen prijs heeft, mogen we nooit verwarren met wat geen waarde heeft, schrijft FD-columnist Valentijn van Nieuwenhuijzen na een reis naar...
+- [Ambitieus, maar met mate](https://fd.nl/samenleving/1610229/ambitieus-maar-met-mate)
+  > Het bedrijf van Femmetje de Wind groeide als kool. Totdat ze dacht: het is wel genoeg zo. Want de weg naar de top heeft ook een prijs.
 - [Winstmarge bij maakbedrijf Kendrion gestegen in eerste halfjaar](https://fd.nl/bedrijfsleven/1610005/winstmarge-bij-maakbedrijf-kendrion-gestegen-in-eerste-halfjaar)
   > Met een genormaliseerde ebitda-marge van 17,5% over de eerste zes maanden zit de onderneming aan de bovenkant van zijn doelstelling. Vooral in het...
 - [Israël wijst Nederlands ambassadepersoneel de deur na importverbod voor bezette gebieden](https://fd.nl/politiek/1610227/israel-wijst-nederlands-ambassadepersoneel-de-deur-na-importverbod-voor-bezette-gebieden)
   > De twee uitgezette Nederlanders werken bij het civiel-militaire coördinatiecentrum dat zich bezighoudt met de wederopbouw van Gaza.
-- [Amerikaanse buitenlandminister Rubio: voorlopig geen aanvallen meer op Iran](https://fd.nl/politiek/1610029/amerikaanse-buitenlandminister-rubio-voorlopig-geen-aanvallen-meer-op-iran)
-  > De VS verschuiven de Iran-strategie naar sancties na herwonnen controle over de cruciale olieroute door de Straat van Hormuz.
-- [Live: Shell grootste daler in vlakke AEX](https://fd.nl/financiele-markten/1610028/live-olieprijs-lager-na-toenaderingen-in-iran-conflict)
-  > Vanavond komt ‘s werelds waardevolste bedrijf Nvidia met kwartaalcijfers. Verder daalt de olieprijs als gevolg van afnemende spanningen in het...
-- [Eddy Terstall: ‘Ik betaal nu de rekening voor de keuzes die ik heb gemaakt’](https://fd.nl/samenleving/1609964/eddy-terstall-ik-betaal-nu-de-rekening-voor-de-keuzes-die-ik-heb-gemaakt)
-  > Hij is regisseur én Telegraafcolumnist. Een combinatie die niet automatisch tot subsidies en goede recensies leidt, zegt Eddy Terstall. ‘Vooral in de...
 
 ### Meest gelezen
 
