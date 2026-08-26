@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-08-2026 om 14:54*
+*Laatst bijgewerkt: 26-08-2026 om 16:20*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Boeren verdeeld over stikstofgesprekken minister: 'Spreek met hele sector'](https://nos.nl/l/2628397)
+  > Er is chagrijn bij Agractie en andere boerenorganisaties dat alleen LTO en NAJK met de minister praten over de invulling van zijn stikstofplannen....
 - [Vier jaar cel geëist tegen voormalig bassist Heideroosjes voor kinderporno](https://nos.nl/l/2628393)
   > Het Openbaar Ministerie (OM) heeft vier jaar cel geëist in de kinderpornozaak tegen de 52-jarige Fred H., voormalig bassist van de Limburgse punkband...
 - [Verzekeringsfraude kan staat honderden miljoenen kosten](https://nos.nl/l/2628392)
@@ -16,8 +18,6 @@
   > De rechtbank in Den Haag heeft twee uitzendkrachten van een zorginstelling in Alphen aan den Rijn veroordeeld voor seksueel misbruik in november...
 - [Britse media: prins Harry en Meghan gearriveerd in het Verenigd Koninkrijk](https://nos.nl/l/2628388)
   > Prins Harry en zijn vrouw Meghan zijn geland in het Verenigd Koninkrijk, melden Britse media. Het stel zou met hun twee kinderen met een...
-- [Code geel voor onweersbuien in nacht van donderdag op vrijdag](https://nos.nl/l/2628387)
-  > Het KNMI waarschuwt dat er donderdagavond en in de nacht naar vrijdag stevige onweersbuien kunnen voorkomen. Daarom geldt er code geel, meldt het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Serena en Venus Williams komen dankzij wildcard samen in actie in dubbelspel](https://www.ad.nl/tennis/serena-en-venus-williams-komen-dankzij-wildcard-samen-in-actie-in-dubbelspel~a32e16c8/)
-  > Het laatste grandslamtoernooi van het jaar is losgebarsten. In New York trapt de US Open af met het vernieuwde gemengd dubbelspel. Door de...
-- [Gaan de toppers van Feyenoord nog vertrekken deze zomer? Kijk hier naar de dagelijkse Transfer Deadlineshow](https://www.ad.nl/voetbal/gaan-de-toppers-van-feyenoord-nog-vertrekken-deze-zomer-kijk-hier-naar-de-dagelijkse-transfer-deadlineshow~ab120b98/)
-  > Ook dit jaar slaan AD en FC Afkicken de handen ineen rond de Nederlandse deadline op de transfermarkt. We zijn op 2 september van ‘s ochtends vroeg...
-- [Transavia en Corendon hekelen hogere vliegtaks: ‘Overheid gebruikt reiziger als melkkoe’](https://www.ad.nl/economie/transavia-en-corendon-hekelen-hogere-vliegtaks-overheid-gebruikt-reiziger-als-melkkoe~aa619e9d/)
-  > Ook Corendon en Transavia maken zich grote zorgen over de forse verhoging van de Nederlandse vliegbelasting. „Die ligt straks veel hoger dan in de...
-- [‘Dolly Parton sprak zich uit én hield iedereen te vriend, dat doen artiesten van nu te weinig’](https://www.ad.nl/binnenland/dolly-parton-sprak-zich-uit-en-hield-iedereen-te-vriend-dat-doen-artiesten-van-nu-te-weinig~af7357f1/)
-  > In de podcast Praat mee met AD bespreken we elke dag een kwestie. Vandaag: er zijn te weinig artiesten die, net als Dolly Parton, mensen nader tot...
-- [Nieuwste F1-circuit levert twee weken voor GP al chaos op: maar liefst 19 rode vlaggen tijdens Formule 3-test](https://www.ad.nl/formule-1/nieuwste-f1-circuit-levert-twee-weken-voor-gp-al-chaos-op-maar-liefst-19-rode-vlaggen-tijdens-formule-3-test~a1fe8a74/)
-  > Over ruim twee weken staat de Grand Prix van Spanje op het nieuwste Formule 1-circuit te wachten. De Madring, een stratencircuit in de hoofdstad...
+- [Verdachte van betrokkenheid bij dood vrouw uit Venlo is een 22-jarige man](https://www.ad.nl/binnenland/verdachte-van-betrokkenheid-bij-dood-vrouw-uit-venlo-is-een-22-jarige-man~a74f1070/)
+  > De verdachte van betrokkenheid bij de dood van een 40-jarige vrouw die onlangs in Venlo werd gevonden, is een 22-jarige man uit het nabijgelegen...
+- [Het is je reinste kolder dat we door AI niet meer hoeven te leren lezen of schrijven](https://www.ad.nl/binnenland/het-is-je-reinste-kolder-dat-we-door-ai-niet-meer-hoeven-te-leren-lezen-of-schrijven~ac7f36a8/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [AZ en NEC vrijdag de koker in voor Europa League-loting: dit zijn de mogelijke tegenstanders](https://www.ad.nl/voetbal/az-en-nec-vrijdag-de-koker-in-voor-europa-league-loting-dit-zijn-de-mogelijke-tegenstanders~a620ae7e/)
+  > Komende vrijdag (13.00 uur) is de loting voor de League Phase van de Europa League. AZ en NEC krijgen dan te horen wie hun zeven tegenstanders worden...
+- [Klassementen Vuelta a España 2026 | Tadej Pogacar blijft stevig aan de leiding na etappe 5: dit zijn de verschillen](https://www.ad.nl/wielrennen/klassementen-vuelta-a-espana-2026-tadej-pogacar-blijft-stevig-aan-de-leiding-na-etappe-5-dit-zijn-de-verschillen~a489ecf1/)
+  > De 81ste editie van de Vuelta a España is zaterdag begonnen met een individuele tijdrit in Monaco. De derde en laatste grote ronde van het jaar duurt...
+- [Bang dat je eieren hebt die besmet zijn met salmonella? Kijk dan of deze codes erop staan](https://www.ad.nl/binnenland/bang-dat-je-eieren-hebt-die-besmet-zijn-met-salmonella-kijk-dan-of-deze-codes-erop-staan~a5ebe1f8/)
+  > In Nederland zijn op verschillende plekken Belgische eieren verkocht, die besmet zijn met salmonella. Onze zuiderburen hebben de eieren al...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Lasten op kapitaal in tien jaar gestegen, die op arbeid juist gedaald](https://fd.nl/politiek/1610046/lasten-op-kapitaal-in-tien-jaar-gestegen-die-op-arbeid-juist-gedaald)
-  > Nieuwe CPB-cijfers  laten zien dat de lasten op kapitaal al jaren aan het stijgen zijn. Die informatie komt op een moment waarop in politiek Den Haag...
-- [Lichte omzetstijging offshorebedrijf Deme, orderboek krimpt](https://fd.nl/bedrijfsleven/1610254/lichte-omzetstijging-offshorebedrijf-deme-orderboek-krimpt)
-  > De Belgische maritieme dienstverlener Deme heeft de omzet in de eerste helft van dit jaar licht opgevoerd naar €2,16 mrd, tegen €2,12 mrd in dezelfde...
-- [Vertrekgolf van hoge managers bij OpenAI](https://fd.nl/bedrijfsleven/1610042/vertrekgolf-van-hoge-managers-bij-openai)
-  > OpenAI kampt met opvallend veel personeelswisselingen vlak voor de beoogde beursgang.  Zeker 25 hooggeplaatste leidinggevenden zijn vertrokken sinds...
-- [Internetstoring treft tweeduizend zakelijke klanten Ziggo](https://fd.nl/bedrijfsleven/1610049/internetstoring-treft-tweeduizend-zakelijke-klanten-ziggo)
-  > Van het type modem dat mankementen vertoont, zijn er elfduizend in gebruik. De fout kan niet op afstand opgelost worden.
-- [Boze Oekraïense architect neemt wraak met eigen raket](https://fd.nl/bedrijfsleven/1609955/boze-oekraiense-architect-neemt-wraak-met-eigen-raket)
-  > De pacifistische inslag van toen is verdwenen. Iryna Terekh geeft leiding aan het grootste wapenbedrijf van Oekraïne en maakt furore met...
+- [Dolly Parton serveerde haar fans ambitie en bouwde een zakenimperium van $500 mln op](https://fd.nl/samenleving/1610256/dolly-parton-serveerde-haar-fans-ambitie-en-bouwde-een-zakenimperium-van-500-mln-op)
+  > Amerika was dol op de countryzangeres, die woorden wist te geven aan de gevoelens van de gewone man en vrouw. Tenger van stuk, was ze naast zangeres...
+- [Hoe krijgt het kabinet het kapitaal terug in de huurmarkt?](https://fd.nl/politiek/1610246/hoe-krijgt-het-kabinet-het-kapitaal-terug-in-de-huurmarkt)
+  > De missie van woonminister Boekholt-O’Sullivan is duidelijk: de steeds krapper wordende huurmarkt nieuw leven inblazen. Maar hoe?
+- [Bill Gates waarschuwt dat er geen plan is voor AI: ‘Prikkels zijn zo sterk dat we volle vaart vooruitgaan’](https://fd.nl/tech-en-innovatie/1610277/bill-gates-waarschuwt-dat-er-geen-plan-is-voor-ai-prikkels-zijn-zo-sterk-dat-we-volle-vaart-vooruitgaan)
+  > De Microsoft-oprichter hoopt al zijn hele leven op snellere innovatie, maar twijfelt over AI. Hij ziet grote risico’s op het gebied van...
+- [Chipbedrijf Marvell voegt zich opeens bij AI-sterspelers](https://fd.nl/tech-en-innovatie/1610235/chipbedrijf-marvell-voegt-zich-opeens-bij-ai-sterspelers)
+  > Chipbedrijf Marvell gokte in 2016 op chiptechnologie voor dataopslag. Dit jaar betaalde dat zich uit met een hard oplopende beurskoers. Google sloot...
+- [Tarweprijs stijgt naar hoogste niveau in drie jaar](https://fd.nl/financiele-markten/1610260/tarweprijs-stijgt-naar-hoogste-niveau-in-drie-jaar)
+  > De stijging komt op het moment Rusland en Oekraïne herhaaldelijk aanvallen uitvoeren op schepen en infrastructuur in de Zwarte Zee.
 
 ### Meest gelezen
 
