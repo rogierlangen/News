@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-08-2026 om 16:15*
+*Laatst bijgewerkt: 28-08-2026 om 01:22*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Gletsjer Nepal was 'onopgemerkte tijdbom', mogelijk geholpen door opwarming](https://nos.nl/l/2628534)
-  > De enorme ravage in Nepal en Tibet lijkt het gevolg van een tikkende tijdbom die onopgemerkt is gebleven totdat het te laat was. Dat is de eerste...
-- [Meer flessen en blikjes met statiegeld ingezameld, maar norm nog niet gehaald](https://nos.nl/l/2628529)
-  > Ook dit jaar worden minder statiegeldflessen- en blikjes ingezameld dan wettelijk is vereist. Dat verwacht producentenorganisatie Verpact. Hoewel het...
-- [Man (58) opgepakt voor reeks verkrachtingen tussen 2001 en 2011 rond Breda](https://nos.nl/l/2628528)
-  > De politie heeft eerder deze maand een 58-jarige man uit Breda opgepakt op verdenking van meerdere verkrachtingen tussen 2001 en 2011 rond Breda. De...
-- [Wethouder Oldebroek zegt sorry voor foto met pro-Russische vlag en kalasjnikov](https://nos.nl/l/2628527)
-  > Wethouder Tom de Nooijer (26) van de Gelderse gemeente Oldebroek heeft zijn excuses aangeboden voor een foto die hij deze week deelde. Daarop poseert...
-- [Twee doden op school bij Berlijn, verdachte gearresteerd](https://nos.nl/l/2628526)
-  > Op een school in de buurt van Berlijn zijn twee mensen gedood, melden Duitse media. De slachtoffers zijn volgens de lokale nieuwssite MAZ een...
+- [Congo begint met vaccineren tegen grootste ebola-uitbraak ooit](https://nos.nl/l/2628586)
+  > Congo is begonnen met het vaccineren van mensen tegen ebola. De vaccinatiecampagne is donderdag gestart in Kisangani, in het oosten van het land.
+   ...
+- [Trump hernoemt Lake Ontario naar Lake America: 'Nu nog een oceaan'](https://nos.nl/l/2628585)
+  > De Amerikaanse president Donald Trump heeft Lake Ontario officieel laten omdopen tot 'Lake America'. Hij ondertekende daarvoor een decreet waarmee de...
+- [Dode vrouw gevonden in tuin woning Boxtel, bewoner aangehouden](https://nos.nl/l/2628584)
+  > In de tuin van een woning aan de Eikengaard in Boxtel is donderdagavond rond 20.45 uur een overleden vrouw gevonden. De politie zegt sterk rekening...
+- [Spaanse man glijdt uit van boot na vangen tonijn op zee en wordt al dagen vermist](https://nos.nl/l/2628568)
+  > Een Spaanse man wordt al negen dagen vermist, nadat hij in de Middellandse Zee overboord is gevallen. Zijn vrouw dobberde drie dagen rond op zee...
+- [Demonstranten in Ceuta houden hulpgoederen Rode Kruis tegen](https://nos.nl/l/2628565)
+  > Zo'n tweehonderd demonstranten hebben in de Spaanse exclave Ceuta de weg naar het strand van Trampolín geblokkeerd om een transport van het Rode...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Nederlandse (22) neemt duik in Spaanse zee en keert niet terug, vrienden slaan alarm en enorme operatie volgt](https://www.ad.nl/buitenland/nederlandse-22-neemt-duik-in-spaanse-zee-en-keert-niet-terug-vrienden-slaan-alarm-en-enorme-operatie-volgt~a7597c5b/)
-  > Een nachtelijke duik van een 22-jarige Nederlandse in zee aan de Spaanse kust heeft geleid tot een grootschalige zoekactie die flink in de papieren...
-- [Aftrap Qarabag - Twente kwartiertje uitgesteld vanwege onweer](https://www.ad.nl/voetbal/aftrap-qarabag-twente-kwartiertje-uitgesteld-vanwege-onweer~a65333f6/)
-  > FC Twente verloor vorige week thuis met 0-1 van Qarabag FK en moet dus aan de bak in Azerbeidzjan om de hoofdfase van de Conference League te...
-- [Dringend advies: ‘Belastingdienst moet meer doen om rechtszaken met burgers te voorkomen’](https://www.ad.nl/binnenland/dringend-advies-belastingdienst-moet-meer-doen-om-rechtszaken-met-burgers-te-voorkomen~a8364fe2/)
-  > De Belastingdienst moet bij een beginnend of dreigend conflict met burgers en ondernemers meer doen om rechtszaken te voorkomen. En als er een...
-- [Halve finale onderweg: hockeysters in Amsterdam tegenover mede-gastland België](https://www.ad.nl/andere-sporten/halve-finale-onderweg-hockeysters-in-amsterdam-tegenover-mede-gastland-belgie~a104a971/)
-  > Het WK hockey heeft laatste en spannendste fase bereikt. Het finaleweekend wordt afgetrapt met de halve finale bij de vrouwen tussen Nederland en...
-- [LIVE WK roeien | Eerste medaille is binnen voor Nederland op WK, Mannen en vrouwen in vierzonder naar finale](https://www.ad.nl/andere-sporten/live-wk-roeien-eerste-medaille-is-binnen-voor-nederland-op-wk-mannen-en-vrouwen-in-vierzonder-naar-finale~a189cf63/)
-  > Het WK roeien is maandag begonnen met de eerste series. Tussen 24 en 30 augustus wordt in het Amsterdamse Bos gestreden om de verschillende...
+- [Dagje pretpark of kamp met school steeds minder normaal: ouders kunnen vrijwillige bijdrage vaak niet betalen](https://www.ad.nl/binnenland/dagje-pretpark-of-kamp-met-school-steeds-minder-normaal-ouders-kunnen-vrijwillige-bijdrage-vaak-niet-betalen~a54420ef/)
+  > Steeds meer kinderen dreigen schoolreisjes mis te lopen. Ouders kunnen de vrijwillige bijdrage voor dit soort uitjes niet betalen, waardoor scholen...
+- [Duitsland: Russische marine agressief op Oostzee](https://www.ad.nl/buitenland/duitsland-russische-marine-agressief-op-oostzee~a450480c/)
+  > De Russische dreiging op zee blijft groot, vooral op de Oostzee. Daarvoor waarschuwt de hoogste Duitse marineofficier Jan Christian Kaack. Volgens...
+- [Verkeerstoren vliegveld New York was onderbezet voor dodelijke botsing tussen vliegtuig en brandweerwagen](https://www.ad.nl/buitenland/verkeerstoren-vliegveld-new-york-was-onderbezet-voor-dodelijke-botsing-tussen-vliegtuig-en-brandweerwagen~acb43eb9/)
+  > Twee luchtverkeersleiders op de luchthaven LaGuardia in New York waren ongeveer een uur voor het einde van hun dienst naar huis gegaan, kort voor de...
+- [AZ, NEC, Ajax en FC Twente vanmiddag in de koker voor lotingen: dit zijn de mogelijke Europese tegenstanders](https://www.ad.nl/voetbal/az-nec-ajax-en-fc-twente-vanmiddag-in-de-koker-voor-lotingen-dit-zijn-de-mogelijke-europese-tegenstanders~a620ae7e/)
+  > Vrijdag (13.00 uur) is de loting voor de competitiefase van de Europa League en aansluitend die van de Conference League. AZ en NEC krijgen te horen...
+- [Barcelona wint ook tweede duel in La Liga, Rodri maakt zijn debuut](https://www.ad.nl/voetbal/barcelona-wint-ook-tweede-duel-in-la-liga-rodri-maakt-zijn-debuut~a46e61c6/)
+  > Na de overtuigende 0-5 overwinning op Elche heeft Barcelona ook de tweede competitiewedstrijd van dit seizoen gewonnen. In het eigen Camp Nou werd...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Adyen herschikt bestuur en draagt Chris Vogelzang voor als commissaris](https://fd.nl/bedrijfsleven/1610405/adyen-herschikt-bestuur-draagt-vogelzang-voor-als-commissaris)
-  > Het aantal statutair bestuurders bij het betaalbedrijf wordt gehalveerd. De voordracht van Vogelzang bij Adyen is een bevestiging van de...
-- [Privévlieger Vista uit Emiraten denkt aan Europese beursgang](https://fd.nl/bedrijfsleven/1610404/privevlieger-vista-uit-emiraten-denkt-aan-europese-beursgang)
-  > Bedrijf wil $1 mrd ophalen en kijkt naar notering in Zürich of Milaan
-- [Zakelijke klanten en scholen hebben nog steeds last van storing Ziggo](https://fd.nl/samenleving/1610345/zakelijke-klanten-en-scholen-hebben-nog-steeds-last-van-storing-ziggo)
-  > Ziggo is van plan voor het weekend zo’n 11.000 modems in het hele land te vervangen, maar onder andere scholen zijn nog steeds telefonisch niet...
-- [VEB vraagt uitleg Arcadis over afwijzen biedingen WSP](https://fd.nl/bedrijfsleven/1610402/veb-vraagt-uitleg-arcadis-over-afwijzen-biedingen-wsp)
-  > De beleggersvereniging wil weten hoe het ingenieursbureau heeft berekend dat het laatste bod een ‘fundamentele onderwaardering’ van Arcadis betekent.
-- [Mogelijk 200 schijnzelfstandigen werken aan versterking Gronings aardbevingsgebied](https://fd.nl/politiek/1610341/mogelijk-200-schijnzelfstandigen-werken-aan-versterking-gronings-aardbevingsgebied)
-  > Het is niet uitgesloten dat de versterking van huizen vertraging oploopt.
+- [Een klein beetje beschaving](https://fd.nl/opinie/1610411/een-klein-beetje-beschaving)
+  > De zomer van 2026 toonde de beperkingen van Amerika’s militaire macht. De Iran-oorlog lijkt in alle opzichten - militair, economisch, reputationeel -...
+- [Personalia vrijdag 28 augustus](https://fd.nl/bedrijfsleven/1610409/personalia-vrijdag-28-augustus)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [ING: particuliere belegger ziet het steeds zonniger in](https://fd.nl/financiele-markten/1610403/ing-particuliere-belegger-ziet-het-steeds-zonniger-in)
+  > ‘Beleggers kijken door de dagelijkse onrust heen’, zegt de bank. ‘Ze laten zich niet afleiden van hun langetermijndoelen.’
+- [Daags voor EU-referendum blijft IJsland twijfelen tussen ‘nee’ en ‘misschien’](https://fd.nl/politiek/1610379/daags-voor-eu-referendum-blijft-ijsland-twijfelen-tussen-nee-en-misschien)
+  > IJslanders besluiten zaterdag of hun land moet gaan onderhandelen over EU-lidmaatschap. Vooral in de hoofdstad Reykjavik is er veel steun voor een...
+- [Vullen gasbergingen stuwt omzet EBN, financiële risico’s nemen ook toe](https://fd.nl/politiek/1610378/vullen-gasbergingen-stuwt-omzet-ebn-financiele-risicos-nemen-ook-toe)
+  > Het staatsbedrijf is niet langer een ‘cashcow’ die de staat jaar in, jaar uit miljarden dividend uitkeert’, stelt ceo Jaap Bierman.
 
 ### Meest gelezen
 
