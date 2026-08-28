@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-08-2026 om 14:09*
+*Laatst bijgewerkt: 28-08-2026 om 23:56*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Postuum Prince-album geeft inkijkje in zijn rijke oeuvre: 'Hij was een genre opzich'](https://nos.nl/l/2628657)
-  > Liefhebbers van Prince zijn vandaag getrakteerd op een verzameling van tien niet-uitgebrachte nummers van de muzieklegende. Het album Priceless...
-- [Podcast De Dag: de gletsjer, de vloedgolf, de ramp](https://nos.nl/l/2628654)
-  > Een glacioloog probeert aan de hand van de tot nu toe beschikbare informatie in de podcast te reconstrueren wat er voorafgaand aan de ramp in Nepal...
-- [Trimbos waarschuwt voor 'zeer gevaarlijke' xtc-pillen, met hoofd van Trump](https://nos.nl/l/2628653)
-  > Het Trimbos-instituut komt met een uitzonderlijke waarschuwing voor een bepaald soort xtc-pil. Die pillen met het hoofd van de Amerikaanse president...
-- [Fysiek uitgeschakeld maar belangrijke bron van kennis, lintje voor ME-patiënt Anil van der Zee](https://nos.nl/l/2628647)
-  > Fysiek vrijwel niets meer kunnen door de chronische en extreme uitputtingsziekte ME, maar toch de wereld van vele lotgenoten ten goede veranderen....
-- [Ruiming kindergraven begraafplaats Gouda voorlopig opgeschort na kritiek ouders](https://nos.nl/l/2628643)
-  > Een aangekondigde ruiming van 124 kindergraven op een begraafplaats in Gouda is voorlopig opgeschort. Uitvaartorganisatie DELA, beheerder van de...
+- [Groot bord valt op bezoekers christelijk festival in VK, dode en gewonden](https://nos.nl/l/2628728)
+  > Een 41-jarige man is gisteren om het leven gekomen door een ongeluk tijdens het Big Church Festival in het Engelse West Sussex. Een groot bord viel...
+- [Britten proberen met exportverbod Rembrandt voor eigen land te behouden](https://nos.nl/l/2628727)
+  > De Britse overheid heeft een tijdelijk exportverbod ingesteld voor een schilderij van de beroemde Nederlandse kunstschilder Rembrandt van Rijn. Het...
+- [Oud-president Moreno van Ecuador schuldig bevonden aan corruptie](https://nos.nl/l/2628725)
+  > De voormalige president van Ecuador, Lenín Moreno, is door een jury schuldig bevonden aan corruptie. Die acht bewezen dat Moreno is omgekocht in een...
+- [Verwarde vrouw rijdt naakt met auto door hekwerk Eindhoven Airport](https://nos.nl/l/2628723)
+  > Eindhoven Airport gaat onderzoeken of de beveiliging nog wel voldoet aan de geldende eisen. Aanleiding hiervoor is een incident van gisteren waarbij...
+- [Paus Leo opnieuw op lijst van best geklede mensen](https://nos.nl/l/2628721)
+  > Een modeliefhebber is hij niet, maar toch is paus Leo voor de derde keer terechtgekomen op een toonaangevende lijst van goedgeklede mensen. Het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Horeca-ondernemer belt politie omdat gast steeds contact opneemt: ‘Ik hoor z’n naam en weet genoeg’](https://www.ad.nl/binnenland/horeca-ondernemer-belt-politie-omdat-gast-steeds-contact-opneemt-ik-hoor-zn-naam-en-weet-genoeg~ab0a694e/)
-  > Een horeca-ondernemer spreekt me aan. Een gast heeft bij hem wat gegeten en gedronken en blijft sindsdien contact opnemen. Hij komt steeds langs en...
-- [‘Linksom of rechtsom: maandag ligt er hoe dan ook een begroting’](https://www.ad.nl/binnenland/linksom-of-rechtsom-maandag-ligt-er-hoe-dan-ook-een-begroting~a2ac7a91/)
-  > In de podcast Praat mee met AD bespreken we elke dag een kwestie, vandaag is dat deze: ‘Ik heb vertrouwen dat politici over hun schaduw heen stappen...
-- [Pijnlijke video’s van Viktor zijn zo verslavend dat fans zorgwekkende bijnaam toch omarmen](https://www.ad.nl/show/pijnlijke-videos-van-viktor-zijn-zo-verslavend-dat-fans-zorgwekkende-bijnaam-toch-omarmen~abe51988d/)
-  > Je weet niet wat je precies gegeten hebt, maar wel dat het lekker was. Dat gevoel speelt momenteel bij fans van influencer Viktor. Zijn dans- en...
-- [Wout Weghorst legt z’n ziel op tafel en dankt God: ‘Ik was mezelf kwijtgeraakt’](https://www.ad.nl/voetbal/wout-weghorst-legt-zn-ziel-op-tafel-en-dankt-god-ik-was-mezelf-kwijtgeraakt~a00e5102/)
-  > Wout Weghorst baarde donderdagavond in vele opzichten opzien. Voor het eerst sinds zijn komst naar FC Twente was hij van grote waarde en daar...
-- [Daders in beeld: Feyenoord wil tientallen stadionverboden voor vuurwerk en bivakmutsen](https://www.ad.nl/voetbal/daders-in-beeld-feyenoord-wil-tientallen-stadionverboden-voor-vuurwerk-en-bivakmutsen~a35148f9/)
-  > Feyenoord heeft enkele tientallen mensen in beeld die in aanmerking komen voor een stadionverbod, na de ongeregeldheden van afgelopen weekend tegen...
+- [Radicaalrechtse Britse commentator Milo Yiannopoulos door ICE opgepakt in VS, wordt mogelijk land uitgezet](https://www.ad.nl/buitenland/radicaalrechtse-britse-commentator-milo-yiannopoulos-door-ice-opgepakt-in-vs-wordt-mogelijk-land-uitgezet~ae67dd9c/)
+  > De Amerikaanse immigratiepolitie ICE heeft de Britse radicaalrechtse politiek commentator en influencer Milo Yiannopoulos aangehouden. Dat bleek...
+- [Groot bord valt op festivalgangers in West Sussex: 41-jarige man overleden, zeker zes gewonden](https://www.ad.nl/buitenland/groot-bord-valt-op-festivalgangers-in-west-sussex-41-jarige-man-overleden-zeker-zes-gewonden~ade74856/)
+  > Op het Church Festival in het Engelse West Sussex is een groot bord op festivalgangers gevallen. Door het bord is een 41-jarige man om het leven...
+- [Rafael Leão bevestigt vertrek bij AC Milan, NEC haalt Duitser, Sam Lammers staat open voor PSV](https://www.ad.nl/voetbal/rafael-leao-bevestigt-vertrek-bij-ac-milan-nec-haalt-duitser-sam-lammers-staat-open-voor-psv~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Spanje vraagt EU-grensbewaking om bijstand voor controleren migranten in Ceuta](https://www.ad.nl/buitenland/spanje-vraagt-eu-grensbewaking-om-bijstand-voor-controleren-migranten-in-ceuta~a2b49196/)
+  > Spanje heeft de Europese grens- en kustwacht Frontex om hulp gevraagd vanwege het grote aantal migranten in het Spaanse Afrikaanse territorium Ceuta....
+- [Summerville schittert in Saoedi-Arabië, Saibari geeft assists bij Bayern en Godts helpt PSG bij comeback](https://www.ad.nl/voetbal/summerville-schittert-in-saoedi-arabie-saibari-geeft-assists-bij-bayern-en-godts-helpt-psg-bij-comeback~a84670fe/)
+  > Crysencio Summerville heeft zijn eerste doelpunt in Saoedi-Arabië te pakken. De Oranje-international was trefzeker in de 1-5 zege van Al-Hilal tegen...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘Het cryptoparadijs’ is hét verhaal van deze ongegeneerd inhalige tijd](https://fd.nl/samenleving/1609999/het-cryptoparadijs-is-het-verhaal-van-deze-ongegeneerd-inhalige-tijd)
-  > Financieel journalist Roel Janssen kent de wereld van cryptogauwdieven duidelijk uitstekend: zijn thriller zit vol paaseieren voor kenners.
-- [Franse schulden in de fik](https://fd.nl/financiele-markten/1610391/franse-schulden-in-de-fik)
-  > De oproep om staatsschulden zomaar weg te strepen is een populistische boodschap, en vooral een slecht idee.
-- [In Zweden heeft de basisschool een beursnotering. Wat levert dat op?](https://fd.nl/economie/1610387/in-zweden-heeft-de-basisschool-een-beursnotering-wat-levert-dat-op)
-  > Zweden laat een groot deel van het reguliere onderwijs over aan commerciële bedrijven. Volgens voorstanders zorgt marktwerking voor beter onderwijs,...
-- [Swapfiets boekt minder verlies en winst komt in zicht](https://fd.nl/bedrijfsleven/1610431/swapfiets-boekt-minder-verlies-en-winst-komt-in-zicht)
-  > Een grotere vraag naar elektrische fietsen was een belangrijke motor achter de resultaatsverbetering, aldus ceo Marc de Vries in een toelichting op...
-- [Geen akkoord kabinet en oppositie voor deadline begroting](https://fd.nl/politiek/1610433/kabinet-onderhandelt-komend-weekend-door-over-begroting)
-  > Volgens minister Eelco Heinen van Financiën is het minderheidskabinet ‘heel dichtbij’ een akkoord. Maar ‘de marges zijn heel klein’.
+- [De begrotingschaos komt Nederland duur te staan](https://fd.nl/politiek/1610519/de-begrotingschaos-komt-nederland-duur-te-staan)
+  > Het minderheidskabinet loopt vast op de begroting voor komend jaar. Dat leidt tot ver in het nieuwe jaar voor iedereen tot onzekerheid, schrijft...
+- [Dries Van Noten toont l’art pour l’art](https://fd.nl/samenleving/1610401/dries-van-noten-toont-lart-pour-lart)
+  > Twee jaar na zijn laatste modeshow opende Dries Van Noten dit voorjaar in Venetië een cultureel centrum, Fondazione Dries Van Noten. Daar wordt kunst...
+- [Een spel met houten latten](https://fd.nl/samenleving/1610337/een-spel-met-houten-latten)
+  > Robert van Embricqs ontwerpt zogeheten ‘rising furniture’. Uit vlak plaatmateriaal tovert hij sculpturale meubelstukken tevoorschijn van louter hout.
+- [De Duitsers begrijpen, deel 2](https://fd.nl/opinie/1610232/de-duitsers-begrijpen-deel-2)
+  > Hoe een Heimatkrimi en een AfD-brommercampagne ons laten zien hoe nostalgiepolitiek werkt. Maar was vroeger alles beter?
+- [Personalia zaterdag 29 augustus](https://fd.nl/bedrijfsleven/1610527/personalia-zaterdag-29-augustus)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
