@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-08-2026 om 20:41*
+*Laatst bijgewerkt: 29-08-2026 om 23:07*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Drie doden bij botsing tussen twee auto's op dijk tussen Lelystad en Enkhuizen](https://nos.nl/l/2628868)
+  > Bij een verkeersongeluk op de dijk Lelystad-Enkhuizen zijn gisteravond drie doden gevallen. De politie zegt dat twee auto's op elkaar zijn gebotst,...
 - [Eerste toespraak Noorse koning Haakon: 'Nu is het aan mij'](https://nos.nl/l/2628853)
   > "Er ligt een grote taak voor me." De nieuwe koning Haakon VIII van Noorwegen heeft voor het eerst zijn volk toegesproken. Vanuit het koninklijk...
 - [Na vier dagen wachten inwoners van rampgebied Nepal nog op hulp](https://nos.nl/l/2628848)
@@ -16,8 +18,6 @@
   > In Amsterdam zijn drie mannen naar het ziekenhuis gebracht na een steekpartij. Volgens de politie gaat het om de verdachte en twee neergestoken...
 - [Nepal blijft zoeken naar doden en vermisten, Nederlanders nog niet gevonden](https://nos.nl/l/2628844)
   > Het dodental na de overstromingen in Nepal en Tibet blijft nog altijd oplopen. De Nepalese autoriteiten melden dat er inmiddels 682 lichamen zijn...
-- [Palestijnen gewond bij aanval Israëlische kolonisten op dorp Westoever](https://nos.nl/l/2628835)
-  > Tientallen Israëlische kolonisten hebben vandaag het dorp Qusra op de door Israël bezette Westelijke Jordaanoever aangevallen. Daarbij zijn meerdere...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Russische vrouw gearresteerd in Ecuador met 32 beschermde zeeleguanen in haar koffer](https://www.ad.nl/buitenland/russische-vrouw-gearresteerd-in-ecuador-met-32-beschermde-zeeleguanen-in-haar-koffer~a08faee5/)
+  > Een Russische vrouw die ervan wordt verdacht te hebben geprobeerd minstens 32 zeeleguanen van de Galapagoseilanden Ecuador uit te smokkelen, is...
+- [Perr Schuurs door het dolle heen na droomrentree: ‘Ik wist van alle gekte niet waar ik heen moest rennen’](https://www.ad.nl/voetbal/perr-schuurs-door-het-dolle-heen-na-droomrentree-ik-wist-van-alle-gekte-niet-waar-ik-heen-moest-rennen~a456bfeb/)
+  > Voor Perr Schuurs voelde het zaterdag alsof hij in een droom zat. De 26-jarige verdediger maakte voor NEC in de wedstrijd bij PEC Zwolle zijn rentree...
+- [Zeker drie doden na ernstig ongeluk op dijk tussen Lelystad en Enkhuizen](https://www.ad.nl/binnenland/zeker-drie-doden-na-ernstig-ongeluk-op-dijk-tussen-lelystad-en-enkhuizen~a0d8aa4d/)
+  > Zeker drie mensen zijn zaterdagavond laat om het leven gekomen door een aanrijding tussen twee auto's op de dijk tussen Lelystad en Enkhuizen. De...
+- [Drie doden en vijf gewonden bij ernstig ongeluk op dijk tussen Lelystad en Enkhuizen](https://www.ad.nl/lelystad/drie-doden-en-vijf-gewonden-bij-ernstig-ongeluk-op-dijk-tussen-lelystad-en-enkhuizen~a5ecd715/)
+  > Er zijn drie doden gevallen bij een zwaar ongeluk op de Markerwaarddijk tussen Lelystad en Enkhuizen. Vijf anderen raakten gewond.
 - [Cody Gakpo kiest voor Manchester City: megadeal in de maak](https://www.ad.nl/voetbal/cody-gakpo-kiest-voor-manchester-city-megadeal-in-de-maak~a83af2c8/)
-  > Cody Gakpo heeft zijn keuze gemaakt: de linksbuiten van Oranje wil zijn loopbaan vervolgen bij Manchester City.
-- [NEC ontsnapt wederom: na twee afgekeurde goals mist PEC Zwolle ook een strafschop](https://www.ad.nl/voetbal/nec-ontsnapt-wederom-na-twee-afgekeurde-goals-mist-pec-zwolle-ook-een-strafschop~a456bfeb/)
-  > NEC heeft een verre reis achter de rug richting de poolcirkel. Nu staat de club uit Nijmegen een relatief korte trip te wachten naar het stadion van...
-- [Prachtige uithaal van Jurgen Ekkelenkamp helpt Udinese aan zege op Monza](https://www.ad.nl/voetbal/prachtige-uithaal-van-jurgen-ekkelenkamp-helpt-udinese-aan-zege-op-monza~a26c4036/)
-  > Udinese heeft uit bij Monza de eerste zege van het seizoen geboekt. De ploeg uit Udine won met 3-2. Jurgen Ekkelenkamp zorgde in de extra tijd van de...
-- [NEC begint met Juventus-uit, Ajax ontvangt Hajduk Split: speeldata van alle Europese toernooien bekend](https://www.ad.nl/voetbal/nec-begint-met-juventus-uit-ajax-ontvangt-hajduk-split-speeldata-van-alle-europese-toernooien-bekend~a8e86d97/)
-  > NEC begint op 17 september aan het Europa League-seizoen met een uitwedstrijd bij Juventus. Dat blijkt uit de speelkalender die zaterdagavond door de...
-- [Trump woont herdenking 9/11-aanslagen niet bij op Ground Zero, ‘omdat hij geen toespraak mag houden’](https://www.ad.nl/buitenland/trump-woont-herdenking-9-11-aanslagen-niet-bij-op-ground-zero-omdat-hij-geen-toespraak-mag-houden~ae67dd9c/)
-  > President Trump woont de herdenking van de 9/11-aanslagen dit jaar niet bij op Ground Zero in New York. Volgens verschillende media is dat omdat hij...
+  > Cody Gakpo heeft zijn keuze gemaakt: de 27-jarige linksbuiten van Oranje wil zijn loopbaan vervolgen bij Manchester City.
 
 ### Meest gelezen
 
