@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-08-2026 om 23:07*
+*Laatst bijgewerkt: 30-08-2026 om 04:36*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Vuur in hoogspanningsstation Oost-Groningen lastig te blussen](https://nos.nl/l/2628871)
+  > In Meeden, in Oost-Groningen, woedt brand op het terrein van een hoogspanningsstation. Er komt veel rook vrij.
+        Het station is uit voorzorg...
+- [IJslanders lijken nipt voor hervatting EU-onderhandelingen in referendum](https://nos.nl/l/2628870)
+  > In IJsland staan voorstanders van het hervatten van de onderhandelingen over EU-lidmaatschap bij het referendum daarover nipt voor. Dat blijkt uit de...
 - [Drie doden bij botsing tussen twee auto's op dijk tussen Lelystad en Enkhuizen](https://nos.nl/l/2628868)
-  > Bij een verkeersongeluk op de dijk Lelystad-Enkhuizen zijn gisteravond drie doden gevallen. De politie zegt dat twee auto's op elkaar zijn gebotst,...
+  > Bij een verkeersongeluk op de dijk Lelystad-Enkhuizen zijn gisteravond drie doden gevallen. De politie zegt dat drie auto's betrokken waren en dat...
 - [Eerste toespraak Noorse koning Haakon: 'Nu is het aan mij'](https://nos.nl/l/2628853)
   > "Er ligt een grote taak voor me." De nieuwe koning Haakon VIII van Noorwegen heeft voor het eerst zijn volk toegesproken. Vanuit het koninklijk...
 - [Na vier dagen wachten inwoners van rampgebied Nepal nog op hulp](https://nos.nl/l/2628848)
   > Sari zit voor haar huis langs de Trishuli-rivier. Rode armbanden om en een rode stip op haar voorhoofd. Ze is een hindoe en vereert van jongs af aan...
-- [Vier gewonden, onder wie een verdachte, na steekpartij Amsterdam Centraal](https://nos.nl/l/2628845)
-  > In Amsterdam zijn drie mannen naar het ziekenhuis gebracht na een steekpartij. Volgens de politie gaat het om de verdachte en twee neergestoken...
-- [Nepal blijft zoeken naar doden en vermisten, Nederlanders nog niet gevonden](https://nos.nl/l/2628844)
-  > Het dodental na de overstromingen in Nepal en Tibet blijft nog altijd oplopen. De Nepalese autoriteiten melden dat er inmiddels 682 lichamen zijn...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Russische vrouw gearresteerd in Ecuador met 32 beschermde zeeleguanen in haar koffer](https://www.ad.nl/buitenland/russische-vrouw-gearresteerd-in-ecuador-met-32-beschermde-zeeleguanen-in-haar-koffer~a08faee5/)
-  > Een Russische vrouw die ervan wordt verdacht te hebben geprobeerd minstens 32 zeeleguanen van de Galapagoseilanden Ecuador uit te smokkelen, is...
-- [Perr Schuurs door het dolle heen na droomrentree: ‘Ik wist van alle gekte niet waar ik heen moest rennen’](https://www.ad.nl/voetbal/perr-schuurs-door-het-dolle-heen-na-droomrentree-ik-wist-van-alle-gekte-niet-waar-ik-heen-moest-rennen~a456bfeb/)
-  > Voor Perr Schuurs voelde het zaterdag alsof hij in een droom zat. De 26-jarige verdediger maakte voor NEC in de wedstrijd bij PEC Zwolle zijn rentree...
-- [Zeker drie doden na ernstig ongeluk op dijk tussen Lelystad en Enkhuizen](https://www.ad.nl/binnenland/zeker-drie-doden-na-ernstig-ongeluk-op-dijk-tussen-lelystad-en-enkhuizen~a0d8aa4d/)
-  > Zeker drie mensen zijn zaterdagavond laat om het leven gekomen door een aanrijding tussen twee auto's op de dijk tussen Lelystad en Enkhuizen. De...
-- [Drie doden en vijf gewonden bij ernstig ongeluk op dijk tussen Lelystad en Enkhuizen](https://www.ad.nl/lelystad/drie-doden-en-vijf-gewonden-bij-ernstig-ongeluk-op-dijk-tussen-lelystad-en-enkhuizen~a5ecd715/)
-  > Er zijn drie doden gevallen bij een zwaar ongeluk op de Markerwaarddijk tussen Lelystad en Enkhuizen. Vijf anderen raakten gewond.
-- [Cody Gakpo kiest voor Manchester City: megadeal in de maak](https://www.ad.nl/voetbal/cody-gakpo-kiest-voor-manchester-city-megadeal-in-de-maak~a83af2c8/)
-  > Cody Gakpo heeft zijn keuze gemaakt: de 27-jarige linksbuiten van Oranje wil zijn loopbaan vervolgen bij Manchester City.
+- [Dit betekent de rode stip die je soms op Duitse auto’s ziet](https://www.ad.nl/auto/dit-betekent-de-rode-stip-die-je-soms-op-duitse-autos-ziet~a5d78678/)
+  > Vakantiegangers hebben ze misschien wel gezien deze zomer: een auto met een opvallende rode stip op de voorruit. Het lijkt misschien een onschuldige...
+- [Vrouw trekt 3 miljoen views omdat ze bijzonder geluid kan nadoen met lippen, maar jij kan het vast ook](https://www.ad.nl/show/vrouw-trekt-3-miljoen-views-omdat-ze-bijzonder-geluid-kan-nadoen-met-lippen-maar-jij-kan-het-vast-ook~a9e78d29/)
+  > Een vrouw uit Australië gaat de wereld over met een video waarin ze haar ‘party trick’ laat zien: een talent waar je weinig aan hebt, maar dat wel...
+- [Nazomer laat op zich wachten: komende week wisselen buien en windstoten elkaar af](https://www.ad.nl/binnenland/nazomer-laat-op-zich-wachten-komende-week-wisselen-buien-en-windstoten-elkaar-af~ad0698b0/)
+  > Het weer blijft dit weekend wisselvallig en onstuimig. Stevige buien en harde windstoten wisselen elkaar af en ook volgende week begint nat volgens...
+- [Kim K en Hailey Bieber doen het ook: puistjesstickertjes vliegen over de toonbank](https://www.ad.nl/binnenland/kim-k-en-hailey-bieber-doen-het-ook-puistjesstickertjes-vliegen-over-de-toonbank~a4e53c47/)
+  > Dikke lagen camouflage of foundation op je pukkels? Dat is dus helemaal uit. De trend: je puistjes juist extra benadrukken met vrolijke ‘pimple...
+- [Roger Federer in tranen bij opname in Tennis Hall of Fame: ‘Ik heb tissues en een zonnebril nodig’](https://www.ad.nl/sport/roger-federer-in-tranen-bij-opname-in-tennis-hall-of-fame-ik-heb-tissues-en-een-zonnebril-nodig~ab237f35/)
+  > Tennislegende Roger Federer, op de baan altijd koel en onbewogen, toonde zich zaterdag van een totaal andere kant. De Zwitser was diverse keren tot...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Beleid vormen samen met degenen voor wie we het doen. Daar zijn we goed in.](https://fd.nl/politiek/1607343/beleid-vormen-samen-met-degenen-voor-wie-we-het-doen-daar-zijn-we-goed-in)
+  > De 51-jarige is sinds mei directeur-generaal bij DUO. Regels voor burgers en onderwijsinstellingen kunnen volgens haar eenvoudiger, ook als dat meer...
+- [Hoe groeibriljant Manchester zichzelf opnieuw uitvond](https://fd.nl/economie/1610039/hoe-groeibriljant-manchester-zichzelf-opnieuw-uitvond)
+  > Terwijl de Britse economie het lastig heeft, heeft Manchester een enorme groeispurt doorgemaakt.
+- [Luisterverhaal: Achter de brave ANWB schuilt een machtig miljardenbedrijf](https://fd.nl/samenleving/1610455/luisterverhaal-achter-de-brave-anwb-schuilt-een-machtig-miljardenbedrijf)
+  > Deze week hoor je over de succesformule achter de ‘brave’ ANWB.
 - [Russische droneaanval op magazijn bij Kyiv, zeker 37 doden](https://fd.nl/samenleving/1610589/russische-droneaanval-op-magazijn-bij-kyiv-zeker-37-doden)
   > De Russische luchtaanvallen op de Oekraïense hoofdstad en de omliggende regio duren al drie dagen.
 - [Fitch laat Franse rating ongemoeid, ondanks waarschuwingen over oplopende tekorten](https://fd.nl/economie/1610587/fitch-laat-franse-rating-ongemoeid-ondanks-waarschuwingen-over-oplopende-tekorten)
   > Fitch heeft herhaaldelijk gewaarschuwd dat de oplopende staatsschuld en het begrotingstekort kunnen leiden tot een verlaging.
-- [VS krijgen controle over 65 miljard olievaten in Venezuela](https://fd.nl/politiek/1610533/vs-krijgen-controle-over-65-miljard-olievaten-in-venezuela)
-  > De Amerikaanse overheid krijgt een belang van 55% in een joint venture met een ‘ervaren particuliere exploitant in Venezuela’, aldus een Amerikaanse...
-- [Hebben we ons vergist in China? En worden we beter van een 25-urige werkweek?](https://fd.nl/economie/1610435/hebben-we-ons-vergist-in-china-en-worden-we-beter-van-een-25-urige-werkweek)
-  > China zou al jaren terug instorten, maar dat pakte anders uit: hebben we de Chinese opmars onderschat? En een 25-urige werkweek klinkt goed, maar...
-- [Trustor: hoe een bijna perfecte fraude toch uitkwam](https://fd.nl/bedrijfsleven/1610334/trustor-hoe-een-bijna-perfecte-fraude-toch-uitkwam)
-  > Dertig jaar bleef het meesterbrein achter de grootste Zweedse fraudezaak ooit, het Trustor-schandaal uit 1997, onvindbaar. Nu is er een boeiende...
 
 ### Meest gelezen
 
