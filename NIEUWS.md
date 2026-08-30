@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-08-2026 om 04:36*
+*Laatst bijgewerkt: 30-08-2026 om 10:22*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Vuur in hoogspanningsstation Oost-Groningen lastig te blussen](https://nos.nl/l/2628871)
-  > In Meeden, in Oost-Groningen, woedt brand op het terrein van een hoogspanningsstation. Er komt veel rook vrij.
-        Het station is uit voorzorg...
-- [IJslanders lijken nipt voor hervatting EU-onderhandelingen in referendum](https://nos.nl/l/2628870)
-  > In IJsland staan voorstanders van het hervatten van de onderhandelingen over EU-lidmaatschap bij het referendum daarover nipt voor. Dat blijkt uit de...
-- [Drie doden bij botsing tussen twee auto's op dijk tussen Lelystad en Enkhuizen](https://nos.nl/l/2628868)
-  > Bij een verkeersongeluk op de dijk Lelystad-Enkhuizen zijn gisteravond drie doden gevallen. De politie zegt dat drie auto's betrokken waren en dat...
-- [Eerste toespraak Noorse koning Haakon: 'Nu is het aan mij'](https://nos.nl/l/2628853)
-  > "Er ligt een grote taak voor me." De nieuwe koning Haakon VIII van Noorwegen heeft voor het eerst zijn volk toegesproken. Vanuit het koninklijk...
-- [Na vier dagen wachten inwoners van rampgebied Nepal nog op hulp](https://nos.nl/l/2628848)
-  > Sari zit voor haar huis langs de Trishuli-rivier. Rode armbanden om en een rode stip op haar voorhoofd. Ze is een hindoe en vereert van jongs af aan...
+- [Steekpartij bij station Amsterdam Centraal werd gelivestreamd op sociale media](https://nos.nl/l/2628894)
+  > De steekpartij van gisteravond bij station Amsterdam Centraal waarbij vier mensen gewond raakten werd gelivestreamd op sociale media.
+        Onder...
+- [Waarschuwingen voor nieuwe overstromingen Nepal, dodental gestegen tot 750](https://nos.nl/l/2628893)
+  > In Nepal wordt opnieuw gewaarschuwd voor overstromingen na de verwoestende stortvloed van deze week. Het waterpeil in de buurt van de Bhote...
+- [Brand in binnenstad Deventer onder controle, NL-alert ingetrokken](https://nos.nl/l/2628892)
+  > In een pand midden in de historische binnenstad van Deventer heeft vanochtend brand gewoed. De bewoners werden geëvacueerd. Vanwege de rook werd een...
+- [Fietser (82) doodgereden in Oss, auto uitgebrand teruggevonden](https://nos.nl/l/2628887)
+  > In Oss is vannacht een 82-jarige fietser overleden aan zijn verwondingen nadat hij was aangereden door een automobilist. Dat meldt de politie...
+- [Dode en gewonden door schietpartij bij rave in Zwitserland](https://nos.nl/l/2628883)
+  > In de Zwitserse stad Aarau zijn vannacht bij een rave schoten gelost. Een vrouw van 22 is om het leven gekomen. Er zijn vijf gewonden, vier jonge...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Dit betekent de rode stip die je soms op Duitse auto’s ziet](https://www.ad.nl/auto/dit-betekent-de-rode-stip-die-je-soms-op-duitse-autos-ziet~a5d78678/)
-  > Vakantiegangers hebben ze misschien wel gezien deze zomer: een auto met een opvallende rode stip op de voorruit. Het lijkt misschien een onschuldige...
-- [Vrouw trekt 3 miljoen views omdat ze bijzonder geluid kan nadoen met lippen, maar jij kan het vast ook](https://www.ad.nl/show/vrouw-trekt-3-miljoen-views-omdat-ze-bijzonder-geluid-kan-nadoen-met-lippen-maar-jij-kan-het-vast-ook~a9e78d29/)
-  > Een vrouw uit Australië gaat de wereld over met een video waarin ze haar ‘party trick’ laat zien: een talent waar je weinig aan hebt, maar dat wel...
-- [Nazomer laat op zich wachten: komende week wisselen buien en windstoten elkaar af](https://www.ad.nl/binnenland/nazomer-laat-op-zich-wachten-komende-week-wisselen-buien-en-windstoten-elkaar-af~ad0698b0/)
-  > Het weer blijft dit weekend wisselvallig en onstuimig. Stevige buien en harde windstoten wisselen elkaar af en ook volgende week begint nat volgens...
-- [Kim K en Hailey Bieber doen het ook: puistjesstickertjes vliegen over de toonbank](https://www.ad.nl/binnenland/kim-k-en-hailey-bieber-doen-het-ook-puistjesstickertjes-vliegen-over-de-toonbank~a4e53c47/)
-  > Dikke lagen camouflage of foundation op je pukkels? Dat is dus helemaal uit. De trend: je puistjes juist extra benadrukken met vrolijke ‘pimple...
-- [Roger Federer in tranen bij opname in Tennis Hall of Fame: ‘Ik heb tissues en een zonnebril nodig’](https://www.ad.nl/sport/roger-federer-in-tranen-bij-opname-in-tennis-hall-of-fame-ik-heb-tissues-en-een-zonnebril-nodig~ab237f35/)
-  > Tennislegende Roger Federer, op de baan altijd koel en onbewogen, toonde zich zaterdag van een totaal andere kant. De Zwitser was diverse keren tot...
+- [Koninklijke familie samen bij herdenkingsdienst voor Harald, honderden mensen kunnen kerk niet in](https://www.ad.nl/show/koninklijke-familie-samen-bij-herdenkingsdienst-voor-harald-honderden-mensen-kunnen-kerk-niet-in~a7782bd7/)
+  > Koning Haakon, koningin Sonja, kroonprinses Ingrid Alexandra en prins Sverre Magnus wonen zondag in Asker een herdenkingsdienst bij voor de overleden...
+- [Steekpartij bij Amsterdam Centraal tijdens TikTok-livestream: drie mannen gewond, onder wie verdachte](https://www.ad.nl/binnenland/steekpartij-bij-amsterdam-centraal-tijdens-tiktok-livestream-drie-mannen-gewond-onder-wie-verdachte~a2acd6a9/)
+  > Bij een steekpartij achter Amsterdam Centraal zijn zaterdagavond vier mannen gewond geraakt, onder wie de verdachte. Op sociale media gaan beelden...
+- [PSV begonnen op bezoek bij FC Utrecht, Peter Bosz houdt vast aan vertrouwde namen](https://www.ad.nl/voetbal/psv-begonnen-op-bezoek-bij-fc-utrecht-peter-bosz-houdt-vast-aan-vertrouwde-namen~a4b6a872/)
+  > PSV gaat vandaag op bezoek bij FC Utrecht. De Eindhovenaren hebben zeven punten uit de eerste drie duels, FC Utrecht heeft pas één punt. Volg het...
+- [PSV wil nóg drie spelers, Chelsea haalt topkeeper, Quinten Timber op weg naar Premier League](https://www.ad.nl/voetbal/psv-wil-nog-drie-spelers-chelsea-haalt-topkeeper-quinten-timber-op-weg-naar-premier-league~acbd43e6/)
+  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [Enric Mas verdedigt rode trui in bergrit na opgave Tadej Pogacar, gaat klassement op de schop?](https://www.ad.nl/vuelta/enric-mas-verdedigt-rode-trui-in-bergrit-na-opgave-tadej-pogacar-gaat-klassement-op-de-schop~aefadabf/)
+  > De Ronde van Spanje gaat vandaag verder met de negende etappe. Zonder Tadej Pogacar. De Sloveen kwam gisteren in de rode leiderstrui hard ten val en...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Beleid vormen samen met degenen voor wie we het doen. Daar zijn we goed in.](https://fd.nl/politiek/1607343/beleid-vormen-samen-met-degenen-voor-wie-we-het-doen-daar-zijn-we-goed-in)
-  > De 51-jarige is sinds mei directeur-generaal bij DUO. Regels voor burgers en onderwijsinstellingen kunnen volgens haar eenvoudiger, ook als dat meer...
-- [Hoe groeibriljant Manchester zichzelf opnieuw uitvond](https://fd.nl/economie/1610039/hoe-groeibriljant-manchester-zichzelf-opnieuw-uitvond)
-  > Terwijl de Britse economie het lastig heeft, heeft Manchester een enorme groeispurt doorgemaakt.
-- [Luisterverhaal: Achter de brave ANWB schuilt een machtig miljardenbedrijf](https://fd.nl/samenleving/1610455/luisterverhaal-achter-de-brave-anwb-schuilt-een-machtig-miljardenbedrijf)
-  > Deze week hoor je over de succesformule achter de ‘brave’ ANWB.
-- [Russische droneaanval op magazijn bij Kyiv, zeker 37 doden](https://fd.nl/samenleving/1610589/russische-droneaanval-op-magazijn-bij-kyiv-zeker-37-doden)
-  > De Russische luchtaanvallen op de Oekraïense hoofdstad en de omliggende regio duren al drie dagen.
-- [Fitch laat Franse rating ongemoeid, ondanks waarschuwingen over oplopende tekorten](https://fd.nl/economie/1610587/fitch-laat-franse-rating-ongemoeid-ondanks-waarschuwingen-over-oplopende-tekorten)
-  > Fitch heeft herhaaldelijk gewaarschuwd dat de oplopende staatsschuld en het begrotingstekort kunnen leiden tot een verlaging.
+- [Proeffabriek Münster moet Duitsland helpen achterstand in de batterijrace in te lopen](https://fd.nl/bedrijfsleven/1610018/proeffabriek-munster-moet-duitsland-helpen-achterstand-in-de-batterijrace-in-te-lopen)
+  > In de Duitse stad Münster verrijst een grote testfabriek voor de productie van batterijen voor elektrische auto’s. Die moet de  Duitse achterstand in...
+- [De beurs van Kroatië kent zijn eigen campingrally](https://fd.nl/financiele-markten/1610328/de-beurs-van-kroatie-kent-zijn-eigen-campingrally)
+  > Armlastige, feestende jongeren zijn amper meer te vinden op de parken van Valamar Riviera, hét toerismebedrijf in Kroatië. Beleggers profiteren mee...
+- [IJsland lijkt tegen gesprekken met EU te stemmen](https://fd.nl/politiek/1610590/ijsland-lijkt-nee-te-stemmen-in-referendum-tegen-toenadering-eu)
+  > De uitkomst is nog niet definitief, maar de kans dat het ja-kamp alsnog wint is buitengewoon klein.
+- [Het Europese vetorecht maakt ons kwetsbaar voor verdeel en heers](https://fd.nl/opinie/1610425/het-europese-vetorecht-maakt-ons-kwetsbaar-voor-verdeel-en-heers)
+  > Donderdag riep minister Berendsen van Buitenlandse Zaken op om het EU-vetorecht voor toetredende lidstaten in te perken, gezien het de unie...
+- [De oplossing is niet nóg een vergadering](https://fd.nl/opinie/1610330/de-oplossing-is-niet-nog-een-vergadering)
+  > Waarom schrappen moeilijker is dan toevoegen – en waarom een stoplijst soms meer oplevert dan een to-dolijst, schrijft hoogleraar bestuurs- en...
 
 ### Meest gelezen
 
