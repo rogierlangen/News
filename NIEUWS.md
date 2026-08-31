@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-08-2026 om 08:23*
+*Laatst bijgewerkt: 31-08-2026 om 16:53*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Coalitie onderhandelt door over begroting op de dag van de deadline](https://nos.nl/l/2629036)
-  > Coalitiepartijen D66, VVD en CDA zijn na een korte nacht weer begonnen met onderhandelen over de begroting van volgend jaar. De drie hebben gisteren...
-- [Grote explosie bij restaurant in Utrecht](https://nos.nl/l/2629034)
-  > Bij een restaurant in Utrecht is vannacht een explosief afgegaan. Door de klap raakte een groot deel van de voorkant van het pand beschadigd. Voor...
-- [Canada 'slaat terug' met enorm bord bij Lake Ontario in strijd om naamsverandering](https://nos.nl/l/2629030)
-  > De Amerikaanse president en Canada blijven verwikkeld in een verbale strijd om de naam van het Lake Ontario op de grens van beide landen.
-       ...
-- [Van bijna gratis naar miljarden extra: Nederland betaalt 17 miljard meer rente](https://nos.nl/l/2629029)
-  > Terwijl het kabinet vandaag de begroting voor volgend jaar naar Raad van State moet sturen, is de overheid steeds meer kwijt aan rente. De komende...
-- [Wekdienst 31/8: Coronaverhoren met Schouten en Van der Staaij • Regio Midden weer naar school](https://nos.nl/l/2629025)
-  > Goedemorgen! Vandaag gaan de coronaverhoren verder met oud-minister en huidig burgemeester van Rotterdam Carola Schouten en voormalig SGP-voorman...
+- [EU onderschept schip van de Russische schaduwvloot op Middellandse Zee](https://nos.nl/l/2629153)
+  > De Europese maritieme missie op de Middellandse Zee heeft gisteren een olietanker onderschept die vermoedelijk deel uitmaakt van de Russische...
+- [België waarschuwt voor escalatie na beledigende post van ambassadeur VS](https://nos.nl/l/2629150)
+  > De Belgische minister van Buitenlandse Zaken Prévot wil dat de Amerikaanse ambassadeur in Brussel stopt met het beledigen van Belgische politici. Dat...
+- [Moderne CDA'er Brinkman werd toch niet de premier die Nederland de nieuwe eeuw in loodste](https://nos.nl/l/2629147)
+  > Elco Brinkman, die op 78-jarige leeftijd overleed, gaat de geschiedenis in als de man onder wie het CDA zijn vanzelfsprekende machtspositie verloor....
+- [Minderheidscoalitie op de valreep akkoord over begroting](https://nos.nl/l/2629146)
+  > De drie coalitiepartijen die onderhandelen over de begroting voor volgend jaar hebben op de valreep een akkoord bereikt. Dat zeggen bronnen in Den...
+- [Thaise badplaats treft voorbereidingen voor komst Amerikaanse militairen](https://nos.nl/l/2629143)
+  > De Thaise badplaats Pattaya treft volop maatregelen voordat het Amerikaanse vliegdekschip Abraham Lincoln een tussenstop maakt in een nabijgelegen...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Rechtszaak Weiteveen | Hof voelt zich overvallen door verzoek advocaat Richard K: ‘Dit had aangekondigd kunnen worden’](https://www.ad.nl/binnenland/live-rechtszaak-weiteveen-hof-voelt-zich-overvallen-door-verzoek-advocaat-richard-k-dit-had-aangekondigd-kunnen-worden~afc609bc/)
-  > Het hoger beroep tegen Richard K. is vanochtend met de nodige spanning begonnen. Het gerechtshof in Leeuwarden kreeg een onverwacht verzoek van de...
-- [Het leven valt mevrouw Hoeflaken zwaar, ze mist haar man: dokter Rutger snapt het helemaal](https://www.ad.nl/gezond/het-leven-valt-mevrouw-hoeflaken-zwaar-ze-mist-haar-man-dokter-rutger-snapt-het-helemaal~afa76cf5/)
-  > Niet voor iedereen is het glas halfvol. Als je partner overleden is en je hem of haar verschrikkelijk mist. Dan is het leven soms best...
-- [Prinses Ariane is begonnen aan haar studie: RVD deelt foto’s van eerste dag](https://www.ad.nl/show/prinses-ariane-is-begonnen-aan-haar-studie-rvd-deelt-fotos-van-eerste-dag~a6dc1010/)
-  > Een grote stap voor prinses Ariane (19) op deze maandag. De jongste dochter van koning Willem-Alexander en koningin Máxima is begonnen aan haar...
-- [Eric en Lindsay zijn dolblij met eerste huis, maar dan blijkt dat ze de verkeerde woning hebben gekocht](https://www.ad.nl/binnenland/eric-en-lindsay-zijn-dolblij-met-eerste-huis-maar-dan-blijkt-dat-ze-de-verkeerde-woning-hebben-gekocht~a2640439/)
-  > Meezingend met de radio reden Lindsay Kroon (22) en Eric Versloot (23) naar de notaris. Na zes biedingen hadden ze eindelijk hun eerste koophuis in...
-- [Identificatie slachtoffers Nepal ‘monsterklus’: speuren in modder maakt werk extreem lastig](https://www.ad.nl/buitenland/identificatie-slachtoffers-nepal-monsterklus-speuren-in-modder-maakt-werk-extreem-lastig~a75d78d2d/)
-  > Nepal heeft na de ramp dringend behoefte aan experts die kunnen helpen bij de identificatie van de honderden slachtoffers. Die identificatie kan...
+- [Megadeal Cody Gakpo voorlopig van de baan: Liverpool laat Oranje-aanvaller niet naar Manchester City gaan](https://www.ad.nl/voetbal/megadeal-cody-gakpo-voorlopig-van-de-baan-liverpool-laat-oranje-aanvaller-niet-naar-manchester-city-gaan~ae2b0911/)
+  > Er lag al een akkoord over de financiële voorwaarden, maar de transfer van Cody Gakpo van Liverpool naar Manchester City is vlak voor de deadline -...
+- [India roept Poetin op om oorlog te stoppen, magazijn Oekraïense supermarkt verwoest](https://www.ad.nl/buitenland/india-roept-poetin-op-om-oorlog-te-stoppen-magazijn-oekraiense-supermarkt-verwoest~adfb97be/)
+  > De Indiase premier Modi heeft de Russische president Poetin opgeroepen om een einde te maken aan de oorlog in Oekraïne. Volg alle ontwikkelingen over...
+- [Met Gala-tentoonstelling ter ere van John Galliano gaat niet door na kritiek op antisemitische uitlatingen](https://www.ad.nl/show/met-gala-tentoonstelling-ter-ere-van-john-galliano-gaat-niet-door-na-kritiek-op-antisemitische-uitlatingen~a7a0c142/)
+  > De tentoonstelling van de Britse modeontwerper John Galliano in het Metropolitan Museum of Art (The Met) gaat niet door. De tentoonstelling zou vanaf...
+- [Beroerde timing van pakjesgigant Shein gaat ‘onzichtbare’ eigenaar Xu 15 miljard dollar kosten](https://www.ad.nl/economie/beroerde-timing-van-pakjesgigant-shein-gaat-onzichtbare-eigenaar-xu-15-miljard-dollar-kosten~af356c56/)
+  > Naar de beurs gaan is een kunst, maar timing is alles. Dat bewijst de Chinese webwinkel Shein, die dinsdagmorgen zijn debuut maakt op de beurs van...
+- [Vijftal laat auto achter na ongeluk in beruchte Mario Kart-bocht in Groningen](https://www.ad.nl/binnenland/vijftal-laat-auto-achter-na-ongeluk-in-beruchte-mario-kart-bocht-in-groningen~a863fdb9/)
+  > Vijf inzittenden hebben zondagavond hun auto achtergelaten na een ongeval op de beruchte Mario Kart-bocht in Groningen, waar vaker auto’s uit de...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Netflix gaat Talpa-programma’s streamen](https://fd.nl/bedrijfsleven/1610550/netflix-gaat-talpa-programmas-streamen)
-  > Meer dan 300 afleveringen komen online te staan, van onder andere Chateau Meiland, Mr. Frank Visser Doet Uitspraak en Overtreders.
-- [Bezoek van techmiljardair Peter Thiel stuit op Argentijnse protesten](https://fd.nl/politiek/1610703/argentijnen-protesteren-tegen-komst-amerikaanse-techmiljardair-peter-thiel)
-  > Critici vrezen de invloed van de Amerikaanse techmiljardair en zijn databedrijf Palantir op de regering-Milei en waarschuwen voor groeiende...
-- [Zweedse woningbelegger Heimstaden neemt projecten in Rotterdam over](https://fd.nl/bedrijfsleven/1610706/zweedse-woningbelegger-heimsteden-neemt-projecten-in-rotterdam-over)
-  > Het project omvat drie gebouwen die in ontwikkeling zijn. de oplevering ervan wordt verwacht in het eerste kwartaal van 2030.
-- [CPB: Opbrengsten van internationale studenten gemiddeld hoger dan kosten](https://fd.nl/economie/1610547/cpb-opbrengsten-van-internationale-studenten-gemiddeld-hoger-dan-kosten)
-  > De afgelopen jaren was de instroom van internationale studenten een heikel politiek onderwerp.
-- [Mytheresa-ceo Francis Belin: ‘We geloven in emoties en relaties. Geen technologie gaat daar de plaats van innemen’](https://fd.nl/samenleving/1610428/mytheresa-ceo-francis-belin-we-geloven-in-emoties-en-relaties-geen-technologie-gaat-daar-de-plaats-van-innemen)
-  > Mytheresa, het onlineluxewarenhuis, gaat zwaarder inzetten op het versterken van de persoonlijke band met de klant. Ceo Francis Belin: ‘De menselijke...
+- [ChatGPT, Reddit en Roblox vallen door gebruikersaantal onder strengere regels van Brussel](https://fd.nl/bedrijfsleven/1610574/chatgpt-reddit-en-roblox-vallen-door-gebruikersaantal-onder-strengere-regels-van-brussel)
+  > De zoekmachine en platforms hebben de drempel van minstens 45 miljoen gebruikers per maand bereikt.
+- [Chinese rechtbank bevriest voor $300 mln aan Nexperia-belangen in China](https://fd.nl/bedrijfsleven/1610728/chinese-rechtbank-bevriest-voor-300-mln-aan-nexperia-belangen-in-china)
+  > De bevriezing komt voort uit een aanklacht die Wingtech in mei 2026 indiende tegen Nexperia Holding bv, Nexperia bv, Itec bv en drie bestuurders.
+- [Waarom buitenlandse studenten zo aantrekkelijk zijn voor Nederland](https://fd.nl/economie/1610547/waarom-buitenlandse-studenten-zo-aantrekkelijk-zijn-voor-nederland)
+  > Volgens het Centraal Planbureau betalen buitenlandse studenten die in Nederland blijven wonen ruim €1,5 mln belasting gedurende hun werkende leven....
+- [Coalitie na dagen overleg akkoord over begroting](https://fd.nl/politiek/1610563/kabinet-kruipt-richting-akkoord-over-begroting-na-dagen-overleg)
+  > De drie coalitiepartijen hebben een akkoord bereikt over de begroting voor volgend jaar. Daarmee is een kabinetscrisis van de baan en kunnen de...
+- [Elco Brinkman, de kroonprins die nooit op de troon kwam](https://fd.nl/politiek/1610720/elco-brinkman-de-kroonprins-die-nooit-echt-de-baas-werd)
+  > Elco Brinkman werd begin jaren negentig door het CDA gezien als de nieuwe premier van Nederland. Maar hij verloor de steun van Ruud Lubbers. Maandag...
 
 ### Meest gelezen
 
