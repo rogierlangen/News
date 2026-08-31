@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-08-2026 om 22:32*
+*Laatst bijgewerkt: 31-08-2026 om 01:13*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Coalitie heeft nog geen begrotingsakkoord, onderhandelingen gaan vannacht door](https://nos.nl/l/2629016)
-  > Coalitiepartijen D66, VVD en CDA hebben nog geen akkoord bereikt over de begroting van volgend jaar. De gesprekken tussen de onderhandelaars van de...
-- [Amerikanen vallen voor het eerst in weken weer Iraanse doelen aan](https://nos.nl/l/2629007)
+- [Psychiater betuigde spijt aan ouders van door euthanasie overleden tiener](https://nos.nl/l/2629017)
+  > Psychiater Jim van Os heeft in 2024 zijn excuses aangeboden aan de ouders van de overleden 17-jarige Milou uit Bavel. Dat vertelde hij in het...
+- [Coalitie heeft nog geen begrotingsakkoord, onderhandelingen vanochtend verder](https://nos.nl/l/2629016)
+  > Coalitiepartijen D66, VVD en CDA hebben, na onderhandelingen die tot na middernacht duurden, nog geen akkoord bereikt over de begroting van volgend...
+- [VS valt Iraanse installaties aan, Iran bestookt Amerikaanse bases](https://nos.nl/l/2629007)
   > De Verenigde Staten hebben aanvallen uitgevoerd op het Iraanse eiland Larak, melden internationale persbureaus na berichtgeving van de Amerikaanse...
 - [Brand hoogspanningsstation in Groningen houdt nog dagen aan](https://nos.nl/l/2629003)
   > De brand in het hoogspanningsstation in Meeden in Oost-Groningen zal nog dagen blijven woeden. De brandweer kan het vuur niet blussen en laat het...
 - [NASA lanceert ruimtetelescoop die het donkere heelal moet onderzoeken](https://nos.nl/l/2628999)
   > NASA heeft een nieuwe telescoop gelanceerd die wetenschappers meer inzicht moet geven in donkere materie en donkere energie, en werelden buiten ons...
-- [Bemanning van bij Cyprus gezonken veerboot gearresteerd](https://nos.nl/l/2628996)
-  > De kapitein en overige zeven bemanningsleden van de veerboot die vanmiddag ten noorden van Cyprus kapseisde, zijn opgepakt. Dat heeft de premier van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Terug naar werk en school: waarom het op het spoor véél drukker wordt dan op de snelweg](https://www.ad.nl/binnenland/terug-naar-werk-en-school-waarom-het-op-het-spoor-veel-drukker-wordt-dan-op-de-snelweg~a88e4d2e/)
+  > Nu de zomervakantie overal voorbij is, wordt het vandaag dringen op de treinperrons, fietspaden en wegen. NS probeert van alles om propvolle coupés...
+- [Nog geen deal begroting, coalitieleiders spreken maandag verder](https://www.ad.nl/binnenland/nog-geen-deal-begroting-coalitieleiders-spreken-maandag-verder~a0c39307/)
+  > De leiders van D66, VVD en CDA zijn na ruim vijftien uur onderhandelen over de begroting het nog niet eens geworden over de begroting voor volgend...
+- [Code geel in kustprovincies, kans op zware onweersbuien](https://www.ad.nl/binnenland/code-geel-in-kustprovincies-kans-op-zware-onweersbuien~a6c3ec33/)
+  > Het KNMI heeft code geel afgegeven voor de kustprovincies vanwege kans op zware onweersbuien. Het gaat om de provincies Zeeland, Zuid-Holland,...
+- [Mogelijk meer dan 20 vermisten na overstromingen Grand Canyon](https://www.ad.nl/buitenland/mogelijk-meer-dan-20-vermisten-na-overstromingen-grand-canyon~abd51a153/)
+  > Mogelijk worden meer dan twintig mensen vermist na overstromingen in het nationale park Grand Canyon in de Amerikaanse staat Arizona. Dat heeft de...
 - [PSV-talent (19) voor 4 miljoen naar Celtic, Sam Lammers terug naar PSV](https://www.ad.nl/voetbal/psv-talent-19-voor-4-miljoen-naar-celtic-sam-lammers-terug-naar-psv~acbd43e6/)
   > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
-- [D66, VVD en CDA praten al bijna veertien uur over de begroting en moeten dinsdag een knoop doorhakken](https://www.ad.nl/politiek/d66-vvd-en-cda-praten-al-bijna-veertien-uur-over-de-begroting-en-moeten-dinsdag-een-knoop-doorhakken~ab6b12d8/)
-  > De leiders van D66, VVD en CDA praten zondag al bijna veertien uur op het ministerie van Financiën over de begroting voor volgend jaar. De begroting...
-- [Oranje-talenten Renee van Asten (19) en Lotte Keukelaar (20) schitteren voor Barcelona en Real Madrid](https://www.ad.nl/voetbal/oranje-talenten-renee-van-asten-19-en-lotte-keukelaar-20-schitteren-voor-barcelona-en-real-madrid~aece9c6a/)
-  > Renee van Asten heeft zondagavond gescoord bij haar Officiële debuut voor FC Barcelona Femení. In de thuiswedstrijd tegen Tenerife (5-0) maakte ze...
-- [Belgische Eddy (60) moet gereanimeerd worden na aanval van Aziatische hoornaars: 'Kans is klein dat hij nog wakker wordt'](https://www.ad.nl/buitenland/belgische-eddy-60-moet-gereanimeerd-worden-na-aanval-van-aziatische-hoornaars-kans-is-klein-dat-hij-nog-wakker-wordt~ad55ab37/)
-  > Eddy Van Mulder (60) uit de Vlaamse stad Ninove wilde donderdagavond zijn pony eten geven toen er plots tientallen Aziatische hoornaars uit een nest...
-- [Na 445 duels bij Atalanta verkast Marten de Roon (35) naar AS Roma, waar hij herenigd wordt met Gasperini](https://www.ad.nl/voetbal/na-445-duels-bij-atalanta-verkast-marten-de-roon-35-naar-as-roma-waar-hij-herenigd-wordt-met-gasperini~a66e9e3c/)
-  > AS Roma heeft zondagavond Marten de Roon gepresenteerd. De 35-jarige middenvelder uit Hendrik-Ido-Ambacht komt over van Atalanta, waar hij...
 
 ### Meest gelezen
 
