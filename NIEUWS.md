@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-08-2026 om 01:13*
+*Laatst bijgewerkt: 31-08-2026 om 08:23*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Psychiater betuigde spijt aan ouders van door euthanasie overleden tiener](https://nos.nl/l/2629017)
-  > Psychiater Jim van Os heeft in 2024 zijn excuses aangeboden aan de ouders van de overleden 17-jarige Milou uit Bavel. Dat vertelde hij in het...
-- [Coalitie heeft nog geen begrotingsakkoord, onderhandelingen vanochtend verder](https://nos.nl/l/2629016)
-  > Coalitiepartijen D66, VVD en CDA hebben, na onderhandelingen die tot na middernacht duurden, nog geen akkoord bereikt over de begroting van volgend...
-- [VS valt Iraanse installaties aan, Iran bestookt Amerikaanse bases](https://nos.nl/l/2629007)
-  > De Verenigde Staten hebben aanvallen uitgevoerd op het Iraanse eiland Larak, melden internationale persbureaus na berichtgeving van de Amerikaanse...
-- [Brand hoogspanningsstation in Groningen houdt nog dagen aan](https://nos.nl/l/2629003)
-  > De brand in het hoogspanningsstation in Meeden in Oost-Groningen zal nog dagen blijven woeden. De brandweer kan het vuur niet blussen en laat het...
-- [NASA lanceert ruimtetelescoop die het donkere heelal moet onderzoeken](https://nos.nl/l/2628999)
-  > NASA heeft een nieuwe telescoop gelanceerd die wetenschappers meer inzicht moet geven in donkere materie en donkere energie, en werelden buiten ons...
+- [Coalitie onderhandelt door over begroting op de dag van de deadline](https://nos.nl/l/2629036)
+  > Coalitiepartijen D66, VVD en CDA zijn na een korte nacht weer begonnen met onderhandelen over de begroting van volgend jaar. De drie hebben gisteren...
+- [Grote explosie bij restaurant in Utrecht](https://nos.nl/l/2629034)
+  > Bij een restaurant in Utrecht is vannacht een explosief afgegaan. Door de klap raakte een groot deel van de voorkant van het pand beschadigd. Voor...
+- [Canada 'slaat terug' met enorm bord bij Lake Ontario in strijd om naamsverandering](https://nos.nl/l/2629030)
+  > De Amerikaanse president en Canada blijven verwikkeld in een verbale strijd om de naam van het Lake Ontario op de grens van beide landen.
+       ...
+- [Van bijna gratis naar miljarden extra: Nederland betaalt 17 miljard meer rente](https://nos.nl/l/2629029)
+  > Terwijl het kabinet vandaag de begroting voor volgend jaar naar Raad van State moet sturen, is de overheid steeds meer kwijt aan rente. De komende...
+- [Wekdienst 31/8: Coronaverhoren met Schouten en Van der Staaij • Regio Midden weer naar school](https://nos.nl/l/2629025)
+  > Goedemorgen! Vandaag gaan de coronaverhoren verder met oud-minister en huidig burgemeester van Rotterdam Carola Schouten en voormalig SGP-voorman...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Terug naar werk en school: waarom het op het spoor véél drukker wordt dan op de snelweg](https://www.ad.nl/binnenland/terug-naar-werk-en-school-waarom-het-op-het-spoor-veel-drukker-wordt-dan-op-de-snelweg~a88e4d2e/)
-  > Nu de zomervakantie overal voorbij is, wordt het vandaag dringen op de treinperrons, fietspaden en wegen. NS probeert van alles om propvolle coupés...
-- [Nog geen deal begroting, coalitieleiders spreken maandag verder](https://www.ad.nl/binnenland/nog-geen-deal-begroting-coalitieleiders-spreken-maandag-verder~a0c39307/)
-  > De leiders van D66, VVD en CDA zijn na ruim vijftien uur onderhandelen over de begroting het nog niet eens geworden over de begroting voor volgend...
-- [Code geel in kustprovincies, kans op zware onweersbuien](https://www.ad.nl/binnenland/code-geel-in-kustprovincies-kans-op-zware-onweersbuien~a6c3ec33/)
-  > Het KNMI heeft code geel afgegeven voor de kustprovincies vanwege kans op zware onweersbuien. Het gaat om de provincies Zeeland, Zuid-Holland,...
-- [Mogelijk meer dan 20 vermisten na overstromingen Grand Canyon](https://www.ad.nl/buitenland/mogelijk-meer-dan-20-vermisten-na-overstromingen-grand-canyon~abd51a153/)
-  > Mogelijk worden meer dan twintig mensen vermist na overstromingen in het nationale park Grand Canyon in de Amerikaanse staat Arizona. Dat heeft de...
-- [PSV-talent (19) voor 4 miljoen naar Celtic, Sam Lammers terug naar PSV](https://www.ad.nl/voetbal/psv-talent-19-voor-4-miljoen-naar-celtic-sam-lammers-terug-naar-psv~acbd43e6/)
-  > Het seizoen is al begonnen, maar tot begin september kunnen clubs nog spelers kopen of huren. Hier blijf je op de hoogte van alle geruchten en done...
+- [LIVE Rechtszaak Weiteveen | Hof voelt zich overvallen door verzoek advocaat Richard K: ‘Dit had aangekondigd kunnen worden’](https://www.ad.nl/binnenland/live-rechtszaak-weiteveen-hof-voelt-zich-overvallen-door-verzoek-advocaat-richard-k-dit-had-aangekondigd-kunnen-worden~afc609bc/)
+  > Het hoger beroep tegen Richard K. is vanochtend met de nodige spanning begonnen. Het gerechtshof in Leeuwarden kreeg een onverwacht verzoek van de...
+- [Het leven valt mevrouw Hoeflaken zwaar, ze mist haar man: dokter Rutger snapt het helemaal](https://www.ad.nl/gezond/het-leven-valt-mevrouw-hoeflaken-zwaar-ze-mist-haar-man-dokter-rutger-snapt-het-helemaal~afa76cf5/)
+  > Niet voor iedereen is het glas halfvol. Als je partner overleden is en je hem of haar verschrikkelijk mist. Dan is het leven soms best...
+- [Prinses Ariane is begonnen aan haar studie: RVD deelt foto’s van eerste dag](https://www.ad.nl/show/prinses-ariane-is-begonnen-aan-haar-studie-rvd-deelt-fotos-van-eerste-dag~a6dc1010/)
+  > Een grote stap voor prinses Ariane (19) op deze maandag. De jongste dochter van koning Willem-Alexander en koningin Máxima is begonnen aan haar...
+- [Eric en Lindsay zijn dolblij met eerste huis, maar dan blijkt dat ze de verkeerde woning hebben gekocht](https://www.ad.nl/binnenland/eric-en-lindsay-zijn-dolblij-met-eerste-huis-maar-dan-blijkt-dat-ze-de-verkeerde-woning-hebben-gekocht~a2640439/)
+  > Meezingend met de radio reden Lindsay Kroon (22) en Eric Versloot (23) naar de notaris. Na zes biedingen hadden ze eindelijk hun eerste koophuis in...
+- [Identificatie slachtoffers Nepal ‘monsterklus’: speuren in modder maakt werk extreem lastig](https://www.ad.nl/buitenland/identificatie-slachtoffers-nepal-monsterklus-speuren-in-modder-maakt-werk-extreem-lastig~a75d78d2d/)
+  > Nepal heeft na de ramp dringend behoefte aan experts die kunnen helpen bij de identificatie van de honderden slachtoffers. Die identificatie kan...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Waarom nog Prinsjesdag?](https://fd.nl/opinie/1610535/waarom-nog-prinsjesdag)
-  > Koetsen, grenadiers, een stamelende koning, zwaaien vanaf het balkon en een koffertje vol begrotingen. Leuk, zo’n traditie, vindt columnist Mathijs...
-- [Snelgroeiend techbedrijf verkocht aan Amazon: ‘Geen serieus Europees bod’](https://fd.nl/tech-en-innovatie/1610432/snelgroeiend-techbedrijf-verkocht-aan-amazon-geen-serieuze-europese-biedingen)
-  > Het Amsterdamse DuckLabs is overgenomen door AWS, de clouddienst van Amazon. Er was volgens de ceo wereldwijd belangstelling, maar een serieus bod...
-- [Overnames uit het verleden redden BlackBerry nu van de ondergang](https://fd.nl/financiele-markten/1610426/overnames-uit-het-verleden-redden-blackberry-nu-van-de-ondergang)
-  > Het aandeel van het bedrijf van de fameuze telefoon, bijgenaamd de CrackBerry, steeg fors na bekendmaking van de eerstekwartaalcijfers. Dat is...
-- [Een slimme bril voor engerds](https://fd.nl/opinie/1610423/een-slimme-bril-voor-engerds)
-  > De ‘slimme bril’ van Meta is een geweldig hulpmiddel voor blinde of slechtziende mensen. Maar online circuleren ook al talloze filmpjes van vrouwen...
-- [Hogere hypotheekrente drukt prijsstijgingen op de woningmarkt](https://fd.nl/economie/1610321/hogere-hypotheekrente-drukt-prijsstijgingen-op-de-woningmarkt)
-  > Nu de hypotheekrente oploopt als gevolg van de Iran-oorlog en kopers minder geld kunnen lenen, stijgen ook huizenprijzen minder hard. Een trend die...
+- [Netflix gaat Talpa-programma’s streamen](https://fd.nl/bedrijfsleven/1610550/netflix-gaat-talpa-programmas-streamen)
+  > Meer dan 300 afleveringen komen online te staan, van onder andere Chateau Meiland, Mr. Frank Visser Doet Uitspraak en Overtreders.
+- [Bezoek van techmiljardair Peter Thiel stuit op Argentijnse protesten](https://fd.nl/politiek/1610703/argentijnen-protesteren-tegen-komst-amerikaanse-techmiljardair-peter-thiel)
+  > Critici vrezen de invloed van de Amerikaanse techmiljardair en zijn databedrijf Palantir op de regering-Milei en waarschuwen voor groeiende...
+- [Zweedse woningbelegger Heimstaden neemt projecten in Rotterdam over](https://fd.nl/bedrijfsleven/1610706/zweedse-woningbelegger-heimsteden-neemt-projecten-in-rotterdam-over)
+  > Het project omvat drie gebouwen die in ontwikkeling zijn. de oplevering ervan wordt verwacht in het eerste kwartaal van 2030.
+- [CPB: Opbrengsten van internationale studenten gemiddeld hoger dan kosten](https://fd.nl/economie/1610547/cpb-opbrengsten-van-internationale-studenten-gemiddeld-hoger-dan-kosten)
+  > De afgelopen jaren was de instroom van internationale studenten een heikel politiek onderwerp.
+- [Mytheresa-ceo Francis Belin: ‘We geloven in emoties en relaties. Geen technologie gaat daar de plaats van innemen’](https://fd.nl/samenleving/1610428/mytheresa-ceo-francis-belin-we-geloven-in-emoties-en-relaties-geen-technologie-gaat-daar-de-plaats-van-innemen)
+  > Mytheresa, het onlineluxewarenhuis, gaat zwaarder inzetten op het versterken van de persoonlijke band met de klant. Ceo Francis Belin: ‘De menselijke...
 
 ### Meest gelezen
 
