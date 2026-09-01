@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-09-2026 om 07:30*
+*Laatst bijgewerkt: 01-09-2026 om 13:17*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Onderminister en 'drone guy' Trump stapt op, 'onvrede over koers Hegseth'](https://nos.nl/l/2629221)
-  > De Amerikaanse onderminister van het Leger Dan Driscoll is opgestapt. Een officiële reden is niet gegeven, maar achter de schermen speelt volgens...
-- [Kabinet wil grootschalige woningbouw in vijf gemeenten](https://nos.nl/l/2629218)
-  > Het kabinet wijst vijf nieuwe plekken in Nederland aan waar tot en met 2035 versneld 30.000 woningen moeten komen. Het gaat om grootschalige...
-- [Botresten van onbekende dode Dronten lagen mogelijk al tot zes jaar in bos](https://nos.nl/l/2629214)
-  > De botresten van een man die drie weken geleden werden gevonden in het bos bij het asielzoekerscentrum in Dronten, lagen mogelijk al tussen de...
-- [Dode bij steekincident Times Square, politie schiet dader dood](https://nos.nl/l/2629208)
-  > Op het drukke Times Square in New York is een vrouw doodgestoken. Er raakte ook iemand gewond. De dader is doodgeschoten door de politie.
-       ...
-- [Sabotage, hacks en drones: Europa zoekt antwoord op Russische dreiging](https://nos.nl/l/2629207)
-  > Wat wordt het Europese antwoord op steeds agressievere vormen van 'hybride acties' van Rusland? Over die vraag buigen zich komende dagen de...
+- [Noorse koning Haakon VIII legt in parlement eed af, Mette-Marit laat verstek gaan](https://nos.nl/l/2629267)
+  > De nieuwe Noorse koning heeft voor het parlement de eed afgelegd. Haakon VIII volgt zijn vader op, koning Harald V, die afgelopen vrijdag overleed op...
+- [Bezuinigingen sociale zekerheid grotendeels geschrapt: eerste details Prinsjesdagstukken uitgelekt](https://nos.nl/l/2629262)
+  > Het kabinet draait de voorgenomen bezuinigingen op de sociale zekerheid grotendeels terug en het eigen risico in de zorg gaat een jaar later pas...
+- [Dieven slaan hun slag in Californië met enorme roof bierblikjes](https://nos.nl/l/2629261)
+  > "Aan de dief: we nemen het je niet kwalijk dat je tegenover je vrienden wilt opscheppen over hoeveel van ons bier je hebt, we hadden alleen gehoopt...
+- [Dodental Nepal boven de 1000, 'hoop op redden van mensen eigenlijk opgegeven'](https://nos.nl/l/2629256)
+  > Vijf dagen na de verwoestende stortvloed in Nepal en Tibet wordt de hoop op het vinden van overlevenden steeds kleiner. Het dodental is inmiddels...
+- [Bijzondere gouden munt uit Curaçao van ruim 200 jaar oud geveild voor recordbedrag](https://nos.nl/l/2629253)
+  > In de VS is een zeldzame gouden munt uit Curaçao geveild voor 390.400 dollar, ruim 336.000 euro. Nooit eerder werd er zoveel geld neergelegd voor een...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Wie wil er koffie drinken met Jetten? JA21 en PRO staan niet te springen](https://www.ad.nl/politiek/wie-wil-er-koffie-drinken-met-jetten-ja21-en-pro-staan-niet-te-springen~a126bd2c/)
-  > Premier Rob Jetten nodigde oppositiepartijen meteen uit, na het sluiten van zijn prinsjesdagdeal maandagavond. Maar zowel JA21 als PRO staan nou niet...
-- [Legerminister Driscoll neemt ontslag na spanningen op ministerie, nooit eerder zo weinig generaals](https://www.ad.nl/buitenland/legerminister-driscoll-neemt-ontslag-na-spanningen-op-ministerie-nooit-eerder-zo-weinig-generaals~ae67dd9c/)
-  > Legerminister Dan Driscoll heeft een week voor zijn ontslag nog stevig uitgehaald naar minister van Defensie Pete Hegseth tijdens een overleg met...
-- [Deadline Day: zo laat sluit de transfermarkt in de topcompetities, Nederland heeft een dagje extra](https://www.ad.nl/voetbal/deadline-day-zo-laat-sluit-de-transfermarkt-in-de-topcompetities-nederland-heeft-een-dagje-extra~a5b50be5/)
-  > De laatste dag voor Nederlandse clubs om spelers aan te trekken nadert. In Duitsland is deadlineday zelfs al vandaag. We zetten de belangrijkste...
-- [Rusland voert opnieuw luchtaanval uit op Kyiv: twaalf doden en tientallen gewonden](https://www.ad.nl/buitenland/rusland-voert-opnieuw-luchtaanval-uit-op-kyiv-twaalf-doden-en-tientallen-gewonden~adfb97be/)
-  > Rusland heeft in de nacht van maandag op dinsdagochtend een grote luchtaanval uitgevoerd op en rond de Oekraïense hoofdstad Kyiv. Daarbij vielen...
-- [Expert: ‘Regenboogpad wordt niet door je strot geduwd en je wordt er geen homo van’](https://www.ad.nl/binnenland/expert-regenboogpad-wordt-niet-door-je-strot-geduwd-en-je-wordt-er-geen-homo-van~afa03c7b/)
-  > Het nieuwe regenboogpad in Nijkerk moet het ontgelden sinds de opening. Tegenstanders van de gekleurde stoep - bedoeld om de lhbti-gemeenschap een...
+- [Verslaggever Yelle over ‘bizarre schietpartij’ in Overasselt: ‘Dit lijkt zo uit een Netflix-serie te komen’](https://www.ad.nl/binnenland/verslaggever-yelle-over-bizarre-schietpartij-in-overasselt-dit-lijkt-zo-uit-een-netflix-serie-te-komen~aa58e0dc/)
+  > Nooit eerder zag AD-verslaggever Yelle Tieleman in Nederland een schietpartij als die van dinsdagochtend in Overasselt. Diverse bronnen linken de...
+- [LIVE schietpartij Overasselt | Politie houdt nieuwe verdachten aan, schutters gebruikten automatische vuurwapens](https://www.ad.nl/binnenland/live-schietpartij-overasselt-politie-houdt-nieuwe-verdachten-aan-schutters-gebruikten-automatische-vuurwapens~a34cf39a/)
+  > Bij een schietpartij in Overasselt, bij Nijmegen, is vannacht een beveiliger van een woning overleden. Twee agenten raakten gewond. De politie is een...
+- [Mijn modehart maakt direct een huppeltje van deze luipaardenjurk van Sandra Bullock](https://www.ad.nl/show/mijn-modehart-maakt-direct-een-huppeltje-van-deze-luipaardenjurk-van-sandra-bullock~adafb74a/)
+  > Modejournalist Josine Droogendijk kiest elke week één outfit die haar van haar sokken blaast. Dit keer is dat Sandra Bullock bij de première van...
+- [Voormalig PSV-talent naar Liverpool, topclubs strijden om Tagliafico, Barça haalt spits van Arsenal binnen](https://www.ad.nl/voetbal/voormalig-psv-talent-naar-liverpool-topclubs-strijden-om-tagliafico-barca-haalt-spits-van-arsenal-binnen~a0d161dd/)
+  > De transfermarkt sluit vanavond in de topcompetities: Frankrijk, Duitsland en Italië om 20.00 uur, Engeland en Spanje om 23.59 uur. De Nederlandse...
+- [Streep door megadeal: Cody Gakpo blijft definitief bij Liverpool](https://www.ad.nl/voetbal/streep-door-megadeal-cody-gakpo-blijft-definitief-bij-liverpool~a45f15ae/)
+  > Cody Gakpo blijft definitief bij Liverpool. De international leek de voorbije dagen op weg naar Manchester City, toen zijn huidige club ondanks...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaanse onderminister van defensie vertrekt na ruzie met Hegseth](https://fd.nl/politiek/1610799/amerikaanse-onderminister-van-defensie-vertrekt-na-ruzie-met-hegseth)
-  > Op het Amerikaanse ministerie van defensie wordt een machtsstrijd gevoerd. Dan Driscoll is de volgende hooggeplaatste functionaris die vertrekt.
-- [Modeontwerper Claes Iversen: ‘Ik begon naïef, niet gehinderd door iets’](https://fd.nl/samenleving/1610712/modeontwerper-claes-iversen-ik-begon-naief-niet-gehinderd-door-iets)
-  > Twintig jaar na zijn afstuderen in Den Haag staat het label van Claes Iversen als een huis, ontwerpt hij voor koningin Máxima en maakt hij het...
-- [Inflatie stijgt in augustus naar 3,3%](https://fd.nl/economie/1610798/inflatie-stijgt-in-augustus-naar-3-3)
-  > Energie blijft een voorname aandrijver van inflatie, blijkt uit cijfers van het CBS.
-- [Live: AEX-index opent licht hoger op  1108,15 punten](https://fd.nl/financiele-markten/1610559/live-nederlandse-inflatie-3-3-shein-verliest-bij-introductie)
-  > Ondanks oplopende rendementen op de obligatiemarkten, stijgt de AEX-index bij het begin van de nieuwe maand.
-- [Blijft de wetenschap vrouwen structureel benadelen?](https://fd.nl/samenleving/1610710/blijft-de-wetenschap-vrouwen-structureel-benadelen)
-  > Volgens oud-minister van Onderwijs Jet Bussemaker ‘zijn we er nog niet’. Natuurkundige Margriet van der Heijden ziet fragiele vooruitgang, maar ook...
+- [AKD ziet vier partners met hun team vertrekken](https://fd.nl/financiele-markten/1610813/akd-ziet-vier-partners-met-hun-team-vertrekken)
+  > Vier partners vertrekken bij advocatenkantoor AKD en nemen hun team mee.
+- [Mollie rondt aankoop GoCardless af](https://fd.nl/bedrijfsleven/1610772/mollie-rondt-aankoop-gocardless-af)
+  > Het Amsterdamse bedrijf betaalt €1,1 mrd voor het Britse betaalplatform. Hiermee is het de grootste Nederlandse fintechtransactie ooit.
+- [Europa Essaywedstrijd voor het FD: schrijf en win de Mathieu Segers-essayprijs!](https://fd.nl/opinie/1607337/europa-essaywedstrijd-voor-het-fd-schrijf-en-win-de-mathieu-segers-essayprijs)
+  > Ben je niet ouder dan 28 jaar en vind je het leuk om je mening te geven over Europa? Pak dan je pen op en doe mee met de Europa Essaywedstrijd voor...
+- [Dure benzine bezorgt kwart van autobezitters financiële druk](https://fd.nl/samenleving/1610771/dure-benzine-bezorgt-kwart-van-autobezitters-financiele-druk)
+  > Automobilisten zeggen vanwege de hoge brandstofprijzen te moeten besparen op andere uitgaven.
+- [Kan NX Filtration het vertrouwen waarmaken?](https://fd.nl/financiele-markten/1610764/kan-nx-filtration-het-vertrouwen-waarmaken)
+  > De omzet viel tegen, winst wordt nog niet gemaakt, maar op het hard groeiende orderboek kunnen analisten en beleggers voorlopig even voort.
 
 ### Meest gelezen
 
