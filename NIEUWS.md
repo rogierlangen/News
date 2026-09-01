@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-08-2026 om 21:48*
+*Laatst bijgewerkt: 01-09-2026 om 01:06*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Nachtopvang voor asielzoekers in Pekela stopt, 'geen incidenten geweest'](https://nos.nl/l/2629197)
+  > De gemeente Pekela stopt per 14 september met de nachtopvang van asielzoekers op een bedrijventerrein in Nieuwe Pekela, meldt RTV Noord. De gemeente...
+- [Stormen vernoemd naar Jade Kops, Shaun het Schaap en professor Dano Roelvink](https://nos.nl/l/2629196)
+  > Een van de stormen die de komende maanden over Nederland, het Verenigd Koninkrijk of Ierland heenrazen, zal de naam dragen van de overleden...
+- [91-jarige Amerikaan loopt Appalachian Trail van 3500 kilometer en vestigt record](https://nos.nl/l/2629195)
+  > De 91-jarige Amerikaan Dale Sanders is de oudste wandelaar ter wereld die de Appalachian Trail heeft uitgelopen. Hij begon op 6 september vorig jaar...
 - [Franse oud-premier Édouard Balladur (97) overleden](https://nos.nl/l/2629189)
   > In Parijs is de Franse oud-premier Édouard Balladur overleden. Dat heeft zijn familie laten weten aan persbureau AFP. Hij was 97 jaar.
        ...
 - [Poolse autoriteiten onderzoeken buitenlandse sabotage bij brand dronefabriek](https://nos.nl/l/2629187)
   > Het Poolse Openbaar Ministerie heeft een onderzoek geopend naar de brand die vannacht woedde in een dronefabriek. Het OM zegt te onderzoeken of het...
-- [Met-tentoonstelling over ontwerper John Galliano geschrapt na kritiek](https://nos.nl/l/2629184)
-  > Een veelbesproken overzichtstentoonstelling over het werk van de Britse modeontwerper John Galliano in het Metropolitan Museum of Art in New York...
-- [Voor het eerst in 15 jaar weer een studie Fries aan de RU Groningen](https://nos.nl/l/2629183)
-  > Drie studenten zijn deze week aan de universiteit in Groningen begonnen aan een studie Fries. Het is voor het eerst in vijftien jaar dat er weer een...
-- [Eerste NCRV-omroepster en televisiepioneer Tanja Koen (100) overleden](https://nos.nl/l/2629182)
-  > Vorige week maandag is op 100-jarige leeftijd Tanja Koen overleden, de eerste omroepster van de NCRV. Dat heeft haar familie via KRO-NCRV laten...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Anouk Koevermans bij debuut op US Open meteen onderuit in eerste ronde](https://www.ad.nl/tennis/anouk-koevermans-bij-debuut-op-us-open-meteen-onderuit-in-eerste-ronde~a9b6d4b3/)
-  > Tennisster Anouk Koevermans is er op de US Open niet in geslaagd om haar debuut op een grandslamtoernooi te vieren met een zege. De mondiale nummer...
-- [FC Barcelona lijkt duel te beslissen, Arsenal boekt benauwde zege bij Aston Villa](https://www.ad.nl/voetbal/fc-barcelona-lijkt-duel-te-beslissen-arsenal-boekt-benauwde-zege-bij-aston-villa~a89437ee/)
-  > Arsenal heeft ook de tweede wedstrijd van het Premier League-seizoen gewonnen. De landskampioen boekte op bezoek bij Aston Villa een minimale zege....
-- [Feyenoord informeert bij Rangers naar Noord-Macedonische spits voor vacature Ayase Ueda](https://www.ad.nl/voetbal/feyenoord-informeert-bij-rangers-naar-noord-macedonische-spits-voor-vacature-ayase-ueda~a33cba3c/)
-  > Bojan Miovski is een van de kandidaten om de vacature die Ayase Ueda heeft achtergelaten in de Kuip in te vullen. De 27-jarige Noord-Macedonische...
-- [AZ haalt oud-speler Wesley Hoedt (32) terug naar Alkmaar](https://www.ad.nl/voetbal/az-haalt-oud-speler-wesley-hoedt-32-terug-naar-alkmaar~a180b57c/)
-  > AZ heeft Wesley Hoedt terug naar Alkmaar gehaald. De 32-jarige verdediger tekende een contract tot het einde van het seizoen bij de club waar hij...
-- [Alcaraz boekt simpele zege bij rentree in enkelspel, Venus Williams direct uitgeschakeld](https://www.ad.nl/tennis/alcaraz-boekt-simpele-zege-bij-rentree-in-enkelspel-venus-williams-direct-uitgeschakeld~a32e16c8/)
-  > Het laatste grandslamtoernooi van het jaar is losgebarsten. In New York trapt de US Open af met het vernieuwde gemengd dubbelspel. Door de...
+- [Jury is er snel uit: voormalig bendelid schuldig bevonden aan 30 jaar oude moord op rapper Tupac](https://www.ad.nl/show/jury-is-er-snel-uit-voormalig-bendelid-schuldig-bevonden-aan-30-jaar-oude-moord-op-rapper-tupac~a520b766/)
+  > Dertig jaar na de moord op de Amerikaanse rapper Tupac Shakur is er eindelijk een schuldige aangewezen. Een jury in Las Vegas had slechts drie uur...
+- [Vier gewonden, onder wie twee kinderen, bij nieuwe raketaanval op Kyiv](https://www.ad.nl/buitenland/vier-gewonden-onder-wie-twee-kinderen-bij-nieuwe-raketaanval-op-kyiv~adfb97be/)
+  > De Oekraïense hoofdstad Kyiv is vannacht opnieuw onder vuur genomen. Bij een Russische aanval met ballistische raketten vielen vier gewonden, onder...
+- [Politie schiet vrouw neer na steekpartij op Times Square in New York, twee zwaargewonden overleden](https://www.ad.nl/buitenland/politie-schiet-vrouw-neer-na-steekpartij-op-times-square-in-new-york-twee-zwaargewonden-overleden~aaa506ac/)
+  > De politie van New York heeft een vrouw neergeschoten op Times Square, in het hart van Manhattan. Dat melden diverse Amerikaanse media, waaronder...
+- [Hooggerechtshof staat bouw van Trumps balzaal vooralsnog toch toe](https://www.ad.nl/buitenland/hooggerechtshof-staat-bouw-van-trumps-balzaal-vooralsnog-toch-toe~ae67dd9c/)
+  > De Amerikaanse president Donald Trump mag toch doorgaan met de bouw van zijn balzaal bij het Witte Huis, zolang de rechtszaak daarover nog gaande is....
+- [Voetbalpodcast | ‘Heeft Liverpool Cody Gakpo nu een grote dienst bewezen of niet?’](https://www.ad.nl/voetbal/voetbalpodcast-heeft-liverpool-cody-gakpo-nu-een-grote-dienst-bewezen-of-niet~a42af5cd9/)
+  > Het gaat in deze AD Voetbalpodcast over aanvallers in het nieuws en verdedigers in het nieuws. Bijvoorbeeld hoe Xavi Donyell Malen aan het scoren...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Optimisme over Amerikaanse aandelen getemperd na uitspraken Warsh](https://fd.nl/financiele-markten/1610759/optimisme-over-amerikaanse-aandelen-getemperd-na-uitspraken-warsh)
-  > De Dow Jones-index sloot uiteindelijk 0,70% in het rood, de bredere S&P500 leverde 0,33% in en de Nasdaq sloot 0,12% in de min.
-- [Binnenvaart dreigt met rechtszaak over sluiting Amsterdam-Rijnkanaal](https://fd.nl/economie/1610777/binnenvaart-dreigt-met-rechtszaak-over-sluiting-amsterdam-rijnkanaal)
-  > Vanaf dinsdag gaat het Amsterdam-Rijnkanaal ’s nachts op slot voor grote schepen. ‘Disproportioneel’, vindt de belangenorganisatie van schippers.
-- [Beleggers zochten in augustus heil in opkomende markten](https://fd.nl/financiele-markten/1610733/beleggers-zochten-in-augustus-heil-in-opkomende-markten)
-  > ‘Zorgen over Amerikaanse schulden spekt koersen opkomende markten en goudprijs’
-- [Bontenbal (CDA) in lezing: pak vermogensongelijkheid in Nederland aan](https://fd.nl/politiek/1610776/bontenbal-cda-in-lezing-pak-vermogensongelijkheid-in-nederland-aan)
-  > Het CDA wil ‘een samenleving waarin je kansen meer afhangen van wat je zelf doet, dan van wat je erft’, aldus Bontenbal in de HJ Schoo-lezing.
-- [Bankenmiljarden goed besteden](https://fd.nl/opinie/1610717/bankenmiljarden-goed-besteden)
-  > De banken hebben al beloofd om financiële meevallers aan hun aandeelhouders uit te keren.
+- [‘Studies die technologie en bedrijfskunde combineren populair onder werkgevers’](https://fd.nl/bedrijfsleven/1610732/studies-die-technologie-en-bedrijfskunde-combineren-populair-onder-werkgevers)
+  > De master Strategic Entrepreneurship aan de Erasmus Universiteit Rotterdam is onder werkgevers de populairste studie. Bedrijven en organisaties...
+- [Pijnlijk succes](https://fd.nl/opinie/1610730/pijnlijk-succes)
+  > Innoveren lukt nog aardig in Europa, maar daarna loopt het spaak. Zo’n 70% van het groeikapitaal voor Europese techstartups komt van buiten Europa.
+- [Nederlandse Loterij neemt juridische stappen tegen illegale goksite Skyhills](https://fd.nl/bedrijfsleven/1610722/nederlandse-loterij-neemt-juridische-stappen-tegen-illegale-goksite-skyhills)
+  > Eerder spande de Nederlandse Loterij rechtszaken aan tegen Lalabet en Qbet.
+- [Het gaat weer wat beter met de fysio’s – of is dat gezichtsbedrog?](https://fd.nl/bedrijfsleven/1610718/het-gaat-weer-wat-beter-met-de-fysios-of-is-dat-gezichtsbedrog)
+  > Fysiopraktijken doen het financieel iets beter en investeren weer. De branche waarschuwt dat dit te danken is aan investeringen in nevenactiviteiten...
+- [Twee jaar na mislukte beursexit keert maakbedrijf Hydratec recorddividend uit](https://fd.nl/bedrijfsleven/1610709/twee-jaar-na-mislukte-beursexit-keert-maakbedrijf-hydratec-recorddividend-uit)
+  > De uitkering is een opsteker voor de minderheidsaandeelhouders die twee jaar geleden nog een overnamepoging van de familie Ten Cate blokkeerden.
 
 ### Meest gelezen
 
