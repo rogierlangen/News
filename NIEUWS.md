@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-09-2026 om 13:17*
+*Laatst bijgewerkt: 01-09-2026 om 17:42*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Noorse koning Haakon VIII legt in parlement eed af, Mette-Marit laat verstek gaan](https://nos.nl/l/2629267)
-  > De nieuwe Noorse koning heeft voor het parlement de eed afgelegd. Haakon VIII volgt zijn vader op, koning Harald V, die afgelopen vrijdag overleed op...
-- [Bezuinigingen sociale zekerheid grotendeels geschrapt: eerste details Prinsjesdagstukken uitgelekt](https://nos.nl/l/2629262)
-  > Het kabinet draait de voorgenomen bezuinigingen op de sociale zekerheid grotendeels terug en het eigen risico in de zorg gaat een jaar later pas...
-- [Dieven slaan hun slag in Californië met enorme roof bierblikjes](https://nos.nl/l/2629261)
-  > "Aan de dief: we nemen het je niet kwalijk dat je tegenover je vrienden wilt opscheppen over hoeveel van ons bier je hebt, we hadden alleen gehoopt...
-- [Dodental Nepal boven de 1000, 'hoop op redden van mensen eigenlijk opgegeven'](https://nos.nl/l/2629256)
-  > Vijf dagen na de verwoestende stortvloed in Nepal en Tibet wordt de hoop op het vinden van overlevenden steeds kleiner. Het dodental is inmiddels...
-- [Bijzondere gouden munt uit Curaçao van ruim 200 jaar oud geveild voor recordbedrag](https://nos.nl/l/2629253)
-  > In de VS is een zeldzame gouden munt uit Curaçao geveild voor 390.400 dollar, ruim 336.000 euro. Nooit eerder werd er zoveel geld neergelegd voor een...
+- [Grote aanbieders verhogen de benzineprijs morgen naar nieuwe recordhoogte](https://nos.nl/l/2629307)
+  > De adviesprijs voor een liter benzine bereikt woensdag zeer waarschijnlijk een nieuwe recordhoogte van rond de 2,668 euro. Dat bevestigt...
+- [Man in België hersendood na aanval van Aziatische hoornaars](https://nos.nl/l/2629306)
+  > Een steek van een insect wordt iemand zelden fataal, maar toch is er in België een man hersendood verklaard nadat hij was gestoken door Aziatische...
+- [Onduidelijkheid over box 3 blijft, coalitie wil wetsvoorstel vooruitschuiven](https://nos.nl/l/2629305)
+  > Het blijft nog langer onduidelijk hoe er vanaf 2028 belasting geheven gaat worden op spaargeld, beleggingen en vastgoed. Coalitiepartijen VVD, D66 en...
+- [Heel het dorp weet 'het', maar bewoners Overasselt houden zich op de vlakte](https://nos.nl/l/2629302)
+  > "Ik denk van: wat gebeurt hier nou? Het is eigenlijk altijd een rustig dorpje. Zo'n klein dorpje, daar heb je toch altijd een goed en veilig gevoel...
+- ['Vrouw (39) uit Amstelveen besmet met westnijlvirus'](https://nos.nl/l/2629300)
+  > Bij een 39-jarige vrouw uit Amstelveen is het westnijlvirus vastgesteld, meldt stadsomroep AT5. De GGD bevestigt dat er een besmetting is gemeld "in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Verslaggever Yelle over ‘bizarre schietpartij’ in Overasselt: ‘Dit lijkt zo uit een Netflix-serie te komen’](https://www.ad.nl/binnenland/verslaggever-yelle-over-bizarre-schietpartij-in-overasselt-dit-lijkt-zo-uit-een-netflix-serie-te-komen~aa58e0dc/)
-  > Nooit eerder zag AD-verslaggever Yelle Tieleman in Nederland een schietpartij als die van dinsdagochtend in Overasselt. Diverse bronnen linken de...
-- [LIVE schietpartij Overasselt | Politie houdt nieuwe verdachten aan, schutters gebruikten automatische vuurwapens](https://www.ad.nl/binnenland/live-schietpartij-overasselt-politie-houdt-nieuwe-verdachten-aan-schutters-gebruikten-automatische-vuurwapens~a34cf39a/)
-  > Bij een schietpartij in Overasselt, bij Nijmegen, is vannacht een beveiliger van een woning overleden. Twee agenten raakten gewond. De politie is een...
-- [Mijn modehart maakt direct een huppeltje van deze luipaardenjurk van Sandra Bullock](https://www.ad.nl/show/mijn-modehart-maakt-direct-een-huppeltje-van-deze-luipaardenjurk-van-sandra-bullock~adafb74a/)
-  > Modejournalist Josine Droogendijk kiest elke week één outfit die haar van haar sokken blaast. Dit keer is dat Sandra Bullock bij de première van...
-- [Voormalig PSV-talent naar Liverpool, topclubs strijden om Tagliafico, Barça haalt spits van Arsenal binnen](https://www.ad.nl/voetbal/voormalig-psv-talent-naar-liverpool-topclubs-strijden-om-tagliafico-barca-haalt-spits-van-arsenal-binnen~a0d161dd/)
+- [Fulham wilde Dest nog weghalen bij PSV, Utrecht huurt voormalig Ajax-verdediger](https://www.ad.nl/voetbal/fulham-wilde-dest-nog-weghalen-bij-psv-utrecht-huurt-voormalig-ajax-verdediger~a0d161dd/)
   > De transfermarkt sluit vanavond in de topcompetities: Frankrijk, Duitsland en Italië om 20.00 uur, Engeland en Spanje om 23.59 uur. De Nederlandse...
-- [Streep door megadeal: Cody Gakpo blijft definitief bij Liverpool](https://www.ad.nl/voetbal/streep-door-megadeal-cody-gakpo-blijft-definitief-bij-liverpool~a45f15ae/)
-  > Cody Gakpo blijft definitief bij Liverpool. De international leek de voorbije dagen op weg naar Manchester City, toen zijn huidige club ondanks...
+- [Amerikaanse troepen vallen doelen van Iraanse garde aan, meerdere explosies gehoord](https://www.ad.nl/buitenland/amerikaanse-troepen-vallen-doelen-van-iraanse-garde-aan-meerdere-explosies-gehoord~ac528ac3/)
+  > De Verenigde Staten zijn om 18.00 uur (Nederlandse tijd) begonnen met Iran aan te vallen. Het gaat volgens Centcom, het operationeel commando in het...
+- [Als de zomer verdwijnt, bloeit Nienke (28) op: ‘Dan voel ik me weer wat meer mens’](https://www.ad.nl/binnenland/als-de-zomer-verdwijnt-bloeit-nienke-28-op-dan-voel-ik-me-weer-wat-meer-mens~a556ab78/)
+  > Het weer wordt grauwer, het regent vaker en de dagen worden korter. Veel Nederlanders zien de zomer liever nog niet vertrekken, maar voor de...
+- [Het land is niet gebaat bij alleen maar rechte ruggen](https://www.ad.nl/commentaar/het-land-is-niet-gebaat-bij-alleen-maar-rechte-ruggen~afc1644c/)
+  > Eindelijk kwam het kabinet in beweging en zijn de begrotingsplannen aangepast. Dat de oppositie daar alleen maar ‘nee’ tegen zegt, is te makkelijk,...
+- [LIVE schietpartij Overasselt | Nog steeds sprake van mogelijk gevaar in Overasselt, agenten werden vannacht ‘direct beschoten’](https://www.ad.nl/binnenland/live-schietpartij-overasselt-nog-steeds-sprake-van-mogelijk-gevaar-in-overasselt-agenten-werden-vannacht-direct-beschoten~a34cf39a/)
+  > Er is nog steeds sprake van ‘mogelijk gevaar’ in de omgeving van Overasselt, waar in de nacht van maandag op dinsdag een schietpartij plaatsvond. De...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [AKD ziet vier partners met hun team vertrekken](https://fd.nl/financiele-markten/1610813/akd-ziet-vier-partners-met-hun-team-vertrekken)
-  > Vier partners vertrekken bij advocatenkantoor AKD en nemen hun team mee.
-- [Mollie rondt aankoop GoCardless af](https://fd.nl/bedrijfsleven/1610772/mollie-rondt-aankoop-gocardless-af)
-  > Het Amsterdamse bedrijf betaalt €1,1 mrd voor het Britse betaalplatform. Hiermee is het de grootste Nederlandse fintechtransactie ooit.
-- [Europa Essaywedstrijd voor het FD: schrijf en win de Mathieu Segers-essayprijs!](https://fd.nl/opinie/1607337/europa-essaywedstrijd-voor-het-fd-schrijf-en-win-de-mathieu-segers-essayprijs)
-  > Ben je niet ouder dan 28 jaar en vind je het leuk om je mening te geven over Europa? Pak dan je pen op en doe mee met de Europa Essaywedstrijd voor...
-- [Dure benzine bezorgt kwart van autobezitters financiële druk](https://fd.nl/samenleving/1610771/dure-benzine-bezorgt-kwart-van-autobezitters-financiele-druk)
-  > Automobilisten zeggen vanwege de hoge brandstofprijzen te moeten besparen op andere uitgaven.
-- [Kan NX Filtration het vertrouwen waarmaken?](https://fd.nl/financiele-markten/1610764/kan-nx-filtration-het-vertrouwen-waarmaken)
-  > De omzet viel tegen, winst wordt nog niet gemaakt, maar op het hard groeiende orderboek kunnen analisten en beleggers voorlopig even voort.
+- [Nestlé verkoopt supplementendivisie voor $1 mrd](https://fd.nl/bedrijfsleven/1610894/nestle-verkoopt-supplementendivisie-voor-1-mrd)
+  > Het Zwitserse bedrijf verwacht dat de overname in de eerste helft van 2027 zal zijn afgerond.
+- [Bundesbank-president Nagel bekritiseert Fed om ingrijpen yen](https://fd.nl/financiele-markten/1610824/bundesbank-president-nagel-bekritiseert-fed-om-ingrijpen-yen)
+  > Nagel neemt het zijn Amerikaanse collega’s kwalijk dat zij van tevoren niet met de Europese centrale banken hebben gecommuniceerd.
+- [PwC: Hoogovens hebben geen toekomst in Europa](https://fd.nl/bedrijfsleven/1610886/pwc-hoogovens-hebben-geen-toekomst-in-europa)
+  > Het produceren van staal met een lage emissie van CO₂ kan alleen financieel uit in landen buiten Europa. De Europese staalindustrie kan...
+- [Duitse regering neemt maatregelen tegen Moskou na drone-actie Leipzig](https://fd.nl/politiek/1610588/duitse-regering-neemt-maatregelen-tegen-moskou-na-drone-actie-leipzig)
+  > Berlijn is na onderzoek tot de conclusie gekomen dat Rusland verantwoordelijk is. Duitsland scherpt daarom onder meer de sancties tegen Russen en...
+- [Private equity zet Nederlandse accountantskantoren in de etalage](https://fd.nl/bedrijfsleven/1610814/private-equity-zet-nederlandse-accountantskantoren-in-de-etalage)
+  > De Jong & Laan en Newtone behoren tot de Nederlandse top 10. Beide firma’s zijn onder de vleugels van private equity snel gegroeid. Een verkoop zou...
 
 ### Meest gelezen
 
