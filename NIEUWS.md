@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-09-2026 om 17:42*
+*Laatst bijgewerkt: 01-09-2026 om 20:47*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Grote aanbieders verhogen de benzineprijs morgen naar nieuwe recordhoogte](https://nos.nl/l/2629307)
-  > De adviesprijs voor een liter benzine bereikt woensdag zeer waarschijnlijk een nieuwe recordhoogte van rond de 2,668 euro. Dat bevestigt...
-- [Man in België hersendood na aanval van Aziatische hoornaars](https://nos.nl/l/2629306)
-  > Een steek van een insect wordt iemand zelden fataal, maar toch is er in België een man hersendood verklaard nadat hij was gestoken door Aziatische...
-- [Onduidelijkheid over box 3 blijft, coalitie wil wetsvoorstel vooruitschuiven](https://nos.nl/l/2629305)
-  > Het blijft nog langer onduidelijk hoe er vanaf 2028 belasting geheven gaat worden op spaargeld, beleggingen en vastgoed. Coalitiepartijen VVD, D66 en...
-- [Heel het dorp weet 'het', maar bewoners Overasselt houden zich op de vlakte](https://nos.nl/l/2629302)
-  > "Ik denk van: wat gebeurt hier nou? Het is eigenlijk altijd een rustig dorpje. Zo'n klein dorpje, daar heb je toch altijd een goed en veilig gevoel...
-- ['Vrouw (39) uit Amstelveen besmet met westnijlvirus'](https://nos.nl/l/2629300)
-  > Bij een 39-jarige vrouw uit Amstelveen is het westnijlvirus vastgesteld, meldt stadsomroep AT5. De GGD bevestigt dat er een besmetting is gemeld "in...
+- [Agenten achtervolgen jonge fatbiker die met ruim 80 km/u door Rotterdam rijdt](https://nos.nl/l/2629317)
+  > Agenten in Rotterdam hebben afgelopen weekend een jongen achtervolgd die naar schatting meer dan 80 kilometer per uur op zijn fatbike reed. Volgens...
+- [Wrak van veerbootongeluk bij Cyprus mogelijk gevonden, nog steeds 20 vermisten](https://nos.nl/l/2629314)
+  > Het wrak van de veerboot die zondag ten noorden van Cyprus kapseisde, is mogelijk gevonden. Eerder vandaag hield de Turks-Cypriotische leider Tufan...
+- [VS valt Iraanse doelen aan, Iran dreigt met vergeldingsaanvallen](https://nos.nl/l/2629313)
+  > De Verenigde Staten hebben opnieuw aanvallen uitgevoerd op Iraanse doelen. De aanvallen werden gemeld door het Amerikaanse militaire commando voor...
+- [Zwaar getroffen bergdorp Betrawati in Nepal krijgt eindelijk eerste noodhulp](https://nos.nl/l/2629311)
+  > De klok in de toren van het bankgebouw in Betrawati staat stil op 09.30 uur. Dat is het moment waarop de vloedgolf het punt bereikte waar de rivieren...
+- [Fors minder pakketjes uit China sinds heffing van 3 euro, 'meer bulkinvoer'](https://nos.nl/l/2629310)
+  > De afgelopen twee maanden zijn er fors minder kleine pakjes vanuit China naar Nederland verzonden. Sinds 1 juli moet de consument, de importeur of de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Fulham wilde Dest nog weghalen bij PSV, Utrecht huurt voormalig Ajax-verdediger](https://www.ad.nl/voetbal/fulham-wilde-dest-nog-weghalen-bij-psv-utrecht-huurt-voormalig-ajax-verdediger~a0d161dd/)
-  > De transfermarkt sluit vanavond in de topcompetities: Frankrijk, Duitsland en Italië om 20.00 uur, Engeland en Spanje om 23.59 uur. De Nederlandse...
-- [Amerikaanse troepen vallen doelen van Iraanse garde aan, meerdere explosies gehoord](https://www.ad.nl/buitenland/amerikaanse-troepen-vallen-doelen-van-iraanse-garde-aan-meerdere-explosies-gehoord~ac528ac3/)
-  > De Verenigde Staten zijn om 18.00 uur (Nederlandse tijd) begonnen met Iran aan te vallen. Het gaat volgens Centcom, het operationeel commando in het...
-- [Als de zomer verdwijnt, bloeit Nienke (28) op: ‘Dan voel ik me weer wat meer mens’](https://www.ad.nl/binnenland/als-de-zomer-verdwijnt-bloeit-nienke-28-op-dan-voel-ik-me-weer-wat-meer-mens~a556ab78/)
-  > Het weer wordt grauwer, het regent vaker en de dagen worden korter. Veel Nederlanders zien de zomer liever nog niet vertrekken, maar voor de...
-- [Het land is niet gebaat bij alleen maar rechte ruggen](https://www.ad.nl/commentaar/het-land-is-niet-gebaat-bij-alleen-maar-rechte-ruggen~afc1644c/)
-  > Eindelijk kwam het kabinet in beweging en zijn de begrotingsplannen aangepast. Dat de oppositie daar alleen maar ‘nee’ tegen zegt, is te makkelijk,...
-- [LIVE schietpartij Overasselt | Nog steeds sprake van mogelijk gevaar in Overasselt, agenten werden vannacht ‘direct beschoten’](https://www.ad.nl/binnenland/live-schietpartij-overasselt-nog-steeds-sprake-van-mogelijk-gevaar-in-overasselt-agenten-werden-vannacht-direct-beschoten~a34cf39a/)
-  > Er is nog steeds sprake van ‘mogelijk gevaar’ in de omgeving van Overasselt, waar in de nacht van maandag op dinsdag een schietpartij plaatsvond. De...
+- [Crysencio Summerville doet het weer voor Al-Hilal: Oranje-international scoort ook tegen Aziatische CL-winnaar](https://www.ad.nl/voetbal/crysencio-summerville-doet-het-weer-voor-al-hilal-oranje-international-scoort-ook-tegen-aziatische-cl-winnaar~a2c8793d/)
+  > Crysencio Summerville heeft voor de tweede opeenvolgende wedstrijd gescoord voor Al-Hilal. De Oranje-international was trefzeker in de thuiswedstrijd...
+- [PEC Zwolle huurt Sydney van Hooijdonk, Celtic wil Feyenoord-back Lotomba](https://www.ad.nl/voetbal/pec-zwolle-huurt-sydney-van-hooijdonk-celtic-wil-feyenoord-back-lotomba~a0d161dd/)
+  > De transfermarkt is om 20.00 uur gesloten in Frankrijk, Duitsland en Italië. Clubs uit Engeland en Spanje kunnen nog tot 23.59 uur spelers...
+- [‘Ik maak voortaan kortsluiting als de klant niks heeft’, appt Marcel uit Helmond: wéér 2100 euro verdiend](https://www.ad.nl/binnenland/ik-maak-voortaan-kortsluiting-als-de-klant-niks-heeft-appt-marcel-uit-helmond-weer-2100-euro-verdiend~a75fff6b/)
+  > Het begint allemaal met Berts wanhoop door een storing. De noodelektricien die hij in alle haast via Google vindt, wil maar één ding: geld. Bert komt...
+- [Jan Slagter gooit deur dicht voor songfestival: ‘AvroTros heeft NPO met groot probleem opgezadeld’](https://www.ad.nl/show/jan-slagter-gooit-deur-dicht-voor-songfestival-avrotros-heeft-npo-met-groot-probleem-opgezadeld~abd7916b/)
+  > Jan Slagter gaat met Omroep Max het Eurovisie Songfestival niet overnemen van AvroTros. Dat laat hij weten aan deze site. De omroep was een van de...
+- [Dorp in shock na wildwestgeweld bij ‘Fort Knox’: ‘Afschuwelijk dat een onschuldige man het slachtoffer werd’](https://www.ad.nl/binnenland/dorp-in-shock-na-wildwestgeweld-bij-fort-knox-afschuwelijk-dat-een-onschuldige-man-het-slachtoffer-werd~a1372a46/)
+  > Het dorp Overasselt hapt naar adem na de wildwesttaferelen van vannacht. Een criminele afrekening, een huis dat vaker doelwit was, een dode bewaker,...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Nestlé verkoopt supplementendivisie voor $1 mrd](https://fd.nl/bedrijfsleven/1610894/nestle-verkoopt-supplementendivisie-voor-1-mrd)
-  > Het Zwitserse bedrijf verwacht dat de overname in de eerste helft van 2027 zal zijn afgerond.
-- [Bundesbank-president Nagel bekritiseert Fed om ingrijpen yen](https://fd.nl/financiele-markten/1610824/bundesbank-president-nagel-bekritiseert-fed-om-ingrijpen-yen)
-  > Nagel neemt het zijn Amerikaanse collega’s kwalijk dat zij van tevoren niet met de Europese centrale banken hebben gecommuniceerd.
-- [PwC: Hoogovens hebben geen toekomst in Europa](https://fd.nl/bedrijfsleven/1610886/pwc-hoogovens-hebben-geen-toekomst-in-europa)
-  > Het produceren van staal met een lage emissie van CO₂ kan alleen financieel uit in landen buiten Europa. De Europese staalindustrie kan...
-- [Duitse regering neemt maatregelen tegen Moskou na drone-actie Leipzig](https://fd.nl/politiek/1610588/duitse-regering-neemt-maatregelen-tegen-moskou-na-drone-actie-leipzig)
-  > Berlijn is na onderzoek tot de conclusie gekomen dat Rusland verantwoordelijk is. Duitsland scherpt daarom onder meer de sancties tegen Russen en...
-- [Private equity zet Nederlandse accountantskantoren in de etalage](https://fd.nl/bedrijfsleven/1610814/private-equity-zet-nederlandse-accountantskantoren-in-de-etalage)
-  > De Jong & Laan en Newtone behoren tot de Nederlandse top 10. Beide firma’s zijn onder de vleugels van private equity snel gegroeid. Een verkoop zou...
+- [Wall Street begint september in het rood](https://fd.nl/financiele-markten/1610902/wall-street-begint-september-in-het-rood)
+  > Beleggers maakten zich zorgen over Amerikaanse aanvallen op Iran, stijgende energieprijzen en de kans op een renteverhoging door de Fed.
+- [Voormalig premier Starmer stopt ook als parlementslid](https://fd.nl/politiek/1610898/voormalig-premier-starmer-stopt-ook-als-parlementslid)
+  > Hij wil zich gaan bezighouden met internationale zaken als defensie, handel en technologie.
+- [BYD verkoopt 18% meer auto’s](https://fd.nl/bedrijfsleven/1610895/byd-verkoopt-18-meer-autos)
+  > Ondanks de stijging moeten de verkopen nog verder omhoog als BYD zijn eigen jaardoelstelling wil halen.
+- [Banken: winstbelasting op vermogen in box 3 niet mogelijk per 2028](https://fd.nl/politiek/1610884/banken-vermogenswinstbelasting-in-box-3-niet-mogelijk-per-2028)
+  > De coalitie heeft de deur inmiddels nadrukkelijk opengezet voor een vermogenswinstbelasting, maar banken zeggen dat niet voor 2029 te kunnen. Dat...
+- [Het kabinet moet leren kiezen](https://fd.nl/opinie/1610820/het-kabinet-moet-leren-kiezen)
+  > De begroting zit vol met strooigoed voor de oppositie en koopkrachtreparaties.
 
 ### Meest gelezen
 
