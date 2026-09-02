@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-09-2026 om 23:08*
+*Laatst bijgewerkt: 02-09-2026 om 03:44*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Van Weel: vorm van geweld in Overasselt ongekend en nieuw](https://nos.nl/l/2629328)
+  > Minister Van Weel van Justitie zegt dat het geweld van gisteren in Overasselt iets is wat Nederland niet eerder in deze vorm heeft gezien. "Dat je...
+- [Bemanning USS Abraham Lincoln na 285 dagen weer aan wal](https://nos.nl/l/2629327)
+  > Het Amerikaanse vliegdekschip USS Abraham Lincoln is aangemeerd in Thailand. Daarmee is voor de 5000 opvarenden een einde gekomen aan een tocht van...
+- [Alex Van Halen geridderd in Nijmegen, waar Van Halen-drummer opgroeide](https://nos.nl/l/2629326)
+  > Alex Van Halen, een van de gezichten van de Amerikaanse rockband Van Halen, is in Nijmegen benoemd tot ridder in de Orde van de Nederlandse Leeuw....
 - [Raadsleden Tholen mogen gemeentehuis niet uit door demonstratie](https://nos.nl/l/2629325)
   > Bij het gemeentehuis van Tholen is het dinsdagavond onrustig geweest. Betogers demonstreerden daar tegen plannen voor de tijdelijke opvang van 150...
 - [Oproep om binnen te blijven in Overasselt vervallen na dag met 'on-Nederlands' geweld](https://nos.nl/l/2629323)
   > De oproep aan de inwoners van Overasselt om binnen te blijven, is ingetrokken. De politie zegt dat er geen aanwijzingen zijn dat zich nog verdachten...
-- [Russische webwinkel Ozon laat verkopers goederen opslaan in Kazachstan](https://nos.nl/l/2629320)
-  > De Russische webwinkel Ozon biedt verkopers die hun producten via de webwinkel verkopen de mogelijkheid om hun voorraad voortaan op te slaan in...
-- [Agenten achtervolgen jonge fatbiker die met ruim 80 km/u door Rotterdam rijdt](https://nos.nl/l/2629317)
-  > Agenten in Rotterdam hebben afgelopen weekend een jongen achtervolgd die naar schatting meer dan 80 kilometer per uur op zijn fatbike reed. Volgens...
-- [Wrak van veerbootongeluk bij Cyprus mogelijk gevonden, nog steeds 20 vermisten](https://nos.nl/l/2629314)
-  > Het wrak van de veerboot die zondag ten noorden van Cyprus kapseisde, is mogelijk gevonden. Eerder vandaag hield de Turks-Cypriotische leider Tufan...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Manchester City geeft op Deadline Day nog 220 miljoen euro uit aan Enzo Fernández en Iliman Ndiaye](https://www.ad.nl/voetbal/manchester-city-geeft-op-deadline-day-nog-220-miljoen-euro-uit-aan-enzo-fernandez-en-iliman-ndiaye~a9642fba/)
-  > Na lang speculeren heeft Manchester City de Argentijnse international Enzo Fernández eindelijk binnen. De middenvelder komt over voor een bedrag van...
-- [Zian Flemming naar Ipswich Town, Quinten Timber nog naar Crystal Palace?](https://www.ad.nl/voetbal/zian-flemming-naar-ipswich-town-quinten-timber-nog-naar-crystal-palace~a0d161dd/)
-  > De transferperiode is dinsdagavond afgelopen voor clubs uit Duitsland, Engeland, Frankrijk, Italië en Spanje. Clubs in Nederland kunnen woensdag nog...
-- [Voetbalpodcast | ‘Ik vraag me af of de stootkracht van Saibari in deze PSV-selectie zit’](https://www.ad.nl/voetbal/voetbalpodcast-ik-vraag-me-af-of-de-stootkracht-van-saibari-in-deze-psv-selectie-zit~a42af5cd9/)
-  > PSV lijkt klaar deze zomer met transfers. In de laatste dagen van de markt begroette Peter Bosz nog vier nieuwe gezichten in de selectie en zwaaide...
-- [Elena Rybakina simpel door, Carlos Alcaraz wint bij rentree in enkelspel](https://www.ad.nl/tennis/elena-rybakina-simpel-door-carlos-alcaraz-wint-bij-rentree-in-enkelspel~a32e16c8/)
+- [LIVE US Open | Tennisster Rus onderuit in eerste ronde US Open](https://www.ad.nl/tennis/live-us-open-tennisster-rus-onderuit-in-eerste-ronde-us-open~a32e16c8/)
   > De US Open, laatste grandslamtoernooi van het jaar, is losgebarsten. Door de afwezigheid van de nummer één van de wereld, Jannik Sinner, ligt de...
-- [Crysencio Summerville doet het weer voor Al-Hilal: Oranje-international scoort ook tegen Aziatische CL-winnaar](https://www.ad.nl/voetbal/crysencio-summerville-doet-het-weer-voor-al-hilal-oranje-international-scoort-ook-tegen-aziatische-cl-winnaar~a2c8793d/)
-  > Crysencio Summerville heeft voor de tweede opeenvolgende wedstrijd gescoord voor Al-Hilal. De Oranje-international was trefzeker in de thuiswedstrijd...
+- [Rechtbank Honduras seponeert aanklachten oud-president Hernández](https://www.ad.nl/buitenland/rechtbank-honduras-seponeert-aanklachten-oud-president-hernandez~a5180125/)
+  > Een Hondurese rechtbank heeft de aanklachten wegens fraude en witwassen tegen oud-president Juan Orlando Hernández ingetrokken. Negen maanden geleden...
+- [60-plussers uit elkaar: tot de dood ons scheidt is passé](https://www.ad.nl/binnenland/60-plussers-uit-elkaar-tot-de-dood-ons-scheidt-is-passe~aaa70360/)
+  > Het aantal ouderen dat na een lang huwelijk uit elkaar gaat, neemt opvallend toe. Veel meer stellen dan vroeger scheiden na veertig of vijftig jaar...
+- [Ster van Dolly Parton op Hollywood Boulevard gerepareerd na beschadiging](https://www.ad.nl/show/ster-van-dolly-parton-op-hollywood-boulevard-gerepareerd-na-beschadiging~a3ff49aa/)
+  > De Kamer van Koophandel van Hollywood, die de Hollywood Boulevard onderhoudt, heeft dinsdag de ster van Dolly Parton gerepareerd. Dat melden TMZ en...
+- [Quinten Timber naar Crystal Palace, Myron Boadu naar Watford en Zian Flemming naar Ipswich Town](https://www.ad.nl/voetbal/quinten-timber-naar-crystal-palace-myron-boadu-naar-watford-en-zian-flemming-naar-ipswich-town~a0d161dd/)
+  > De transferperiode is dinsdagavond afgelopen voor clubs uit Duitsland, Engeland, Frankrijk, Italië en Spanje. Clubs in Nederland kunnen woensdag nog...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Minderheidskabinet brandt vingers niet aan box 3](https://fd.nl/economie/1610823/minderheidskabinet-brandt-vingers-niet-aan-box-3)
+  > Vandaag in Dagkoers: de Prinsjesdagstukken zijn gelekt en laten zien dat de coalitie box 3-keuzes doorschuift, terwijl banken druk bezig zijn om de...
 - [Adaptatiesprookje](https://fd.nl/opinie/1610876/adaptatiesprookje)
   > Sinds deze zomer weten we dat adaptatie een vals sprookje is. De aarde wordt niet alleen warmer, maar vooral veel woester.
 - [Leven en laten leven, maar wel met duidelijke grenzen](https://fd.nl/opinie/1610805/leven-en-laten-leven-maar-wel-met-duidelijke-grenzen)
@@ -54,8 +56,6 @@
   > Den Haag blijft discussiëren over box 3. Overstappen naar een vermogenswinstbelasting betekent dat de banken voorbereidingen deels voor niks hebben...
 - [Pensioensector eist harde garanties voordat kabinet miljarden mag inzetten](https://fd.nl/financiele-markten/1610524/pensioensector-eist-harde-garanties-voordat-kabinet-miljarden-mag-inzetten)
   > Het kabinet probeert miljarden euro's aan pensioenvermogen los te weken voor grote investeringen in onder meer defensie. Pensioenfondsen gaan niet...
-- [Personalia woensdag 2 september 2026](https://fd.nl/bedrijfsleven/1610812/personalia-woensdag-2-september-2026)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
