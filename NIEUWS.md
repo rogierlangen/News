@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-09-2026 om 13:25*
+*Laatst bijgewerkt: 02-09-2026 om 17:44*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Von der Leyen: drone-incident Leipzig toont 'nieuwe realiteit' in Europa](https://nos.nl/l/2629373)
-  > De poging tot een droneaanval in de Duitse stad Leipzig is volgens voorzitter Von der Leyen van de Europese Commissie een nieuwe escalatie van...
-- [Podcast De Dag: hoe internationaal drugsgeweld in Overasselt terechtkwam](https://nos.nl/l/2629372)
-  > Een dag nadat een grote groep gewapende mannen midden in de nacht door het Gelderse Overasselt trok, is het politieonderzoek nog in volle gang. De...
-- [Nederland haalt groot deel van de goudvoorraad weg uit de VS en Canada](https://nos.nl/l/2629369)
-  > Zo'n 86 ton van de Nederlandse voorraad goud blijkt tussen maart en augustus van dit jaar vanuit de Verenigde Staten en Canada naar Londen te zijn...
-- [Zelensky waarschuwt luchtvaart voor massale droneaanvallen op Rusland](https://nos.nl/l/2629368)
-  > De Oekraïense president Zelensky waarschuwt alle luchtvaartmaatschappijen dat ze het Russische luchtruim moeten mijden. Volgens hem vliegen daar nu...
-- [Politie onderzoekt dreigvideo aan adres Jan G., bewoner pand Overasselt](https://nos.nl/l/2629364)
-  > De politie onderzoekt een dreigvideo aan het adres van Jan G. junior. Hij is de bewoner van het pand in Overasselt waar gisteren werd geschoten en...
+- [Franse tiener (18) wilde voetballer Mbappé en 25 anderen ontvoeren](https://nos.nl/l/2629408)
+  > In Frankrijk wordt een 18-jarige ervan verdacht het brein te zijn van een criminele bende die overvallen pleegde en vermogende mensen als de...
+- [Nephulpverlener uit Groningen moet per direct stoppen van inspectie](https://nos.nl/l/2629407)
+  > Een Groningse nephulpverlener moet per direct stoppen met zijn diensten vanuit zijn bedrijf en stichting. Dat zegt de Inspectie Gezondheidszorg en...
+- [Verdachte (27) van schietpartij Schoonhoven weet niets van betrokkenheid Iran](https://nos.nl/l/2629403)
+  > Het Openbaar Ministerie (OM) heeft in het onderzoek naar de in maart in Schoonhoven neergeschoten politiemedewerker met een Iraanse achtergrond tot...
+- [Russisch ‘spionagehuis’ in hart van Berlijn moet dicht: ‘We waren te mild'](https://nos.nl/l/2629401)
+  > Na ruim veertig jaar komt er een einde aan het Russische Huis in Berlijn. Volgens Duitse en Franse veiligheidsdiensten zijn er aanwijzingen dat...
+- [Belgische minister wil kentekenplaat op elektrische steps om schietincidenten](https://nos.nl/l/2629390)
+  > De Belgische minister van Binnenlandse Zaken Quintin wil kentekenplaten voor elektrische steps invoeren. Hij zei dat in een commissievergadering van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Heel goedkope kamer in hartje Londen, Booking laat nepadvertentie voor verblijf Downing Street 10 staan](https://www.ad.nl/buitenland/heel-goedkope-kamer-in-hartje-londen-booking-laat-nepadvertentie-voor-verblijf-downing-street-10-staan~ab819aef/)
-  > Een kamer boeken op het bekendste huisnummer van het Verenigd Koninkrijk was een tijdje mogelijk, en Booking.com deed er niks aan. Volgens de Britse...
-- [Ismail Saibari had voor vertrek naar Bayern contact met Abdelhak Nouri: ‘Duidelijk te zien hoe blij voor me was’](https://www.ad.nl/voetbal/ismail-saibari-had-voor-vertrek-naar-bayern-contact-met-abdelhak-nouri-duidelijk-te-zien-hoe-blij-voor-me-was~a175f6b9/)
-  > Ismail Saibari speelt ook bij zijn nieuwe club Bayern München weer met rugnummer 34. Een eerbetoon aan Abdelhak Nouri, die als speler van Ajax in...
-- [Lugubere video circuleert online: gemaskerde mannen bedreigen Jan G.](https://www.ad.nl/binnenland/lugubere-video-circuleert-online-gemaskerde-mannen-bedreigen-jan-g~ac24a239/)
-  > Een lugubere video waarin Jan G. uit Overasselt wordt bedreigd door vier gemaskerde en bewapende mannen, circuleert op internet. Zij eisen daarin dat...
-- [Heldenrol bij Arsenal, veel blessures en mislukte uitleenbeurten: hoe verging het Reiss Nelson na vertrek bij Feyenoord?](https://www.ad.nl/voetbal/heldenrol-bij-arsenal-veel-blessures-en-mislukte-uitleenbeurten-hoe-verging-het-reiss-nelson-na-vertrek-bij-feyenoord~aabe1694/)
-  > Hij maakte vier goals voor Feyenoord en haalde de Conference League-finale. Maar na dat seizoen op huurbasis in Rotterdam (2021-22) raakte Reiss...
-- [George Clooney krijgt Gouden Leeuw, maar blijkt veel meer dan de charmante filmster alleen](https://www.ad.nl/show/george-clooney-krijgt-gouden-leeuw-maar-blijkt-veel-meer-dan-de-charmante-filmster-alleen~ae3194ff0/)
-  > Op het Filmfestival van Venetië krijgt George Clooney woensdagavond een Gouden Leeuw voor zijn oeuvre. Een terechte bekroning want de acteur is een...
+- [Netanyahu wil niets van terugtrekken uit Gaza weten: ‘60 procent is van ons, en er komt nog meer’](https://www.ad.nl/buitenland/netanyahu-wil-niets-van-terugtrekken-uit-gaza-weten-60-procent-is-van-ons-en-er-komt-nog-meer~ac528ac3/)
+  > De Israëlische premier Benjamin Netanyahu heeft een bezoek gebracht aan een legerpost in de Gazastrook, die Israël voor meer dan de helft bezet...
+- [Zelensky waarschuwt: ‘Veilige dagen in Russische luchtruim zijn voorbij’](https://www.ad.nl/buitenland/zelensky-waarschuwt-veilige-dagen-in-russische-luchtruim-zijn-voorbij~adfb97be/)
+  > Oekraïne heeft luchtvaartmaatschappijen gewaarschuwd om het Russische luchtruim te mijden. Het heeft daartoe een officiële waarschuwing ingediend bij...
+- [Max Verstappen slaat eerste training in Monza over en komt nog even terug op crash bij laatste Dutch GP](https://www.ad.nl/formule-1/max-verstappen-slaat-eerste-training-in-monza-over-en-komt-nog-even-terug-op-crash-bij-laatste-dutch-gp~a6920bed/)
+  > Max Verstappen kan niet goed inschatten waar Red Bull staat voor de Grand Prix van Italië. „Na een reset maken we ons op voor Monza en het is lastig...
+- [Katja Schuurman ziet dubbel en Rutger van Barneveld geeft inkijkje in financiën](https://www.ad.nl/show/katja-schuurman-ziet-dubbel-en-rutger-van-barneveld-geeft-inkijkje-in-financien~aacbdc15/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Amerikaanse minister onder vuur na bodyshamen van Canadese tiener: ‘Beneden zijn waardigheid’](https://www.ad.nl/buitenland/amerikaanse-minister-onder-vuur-na-bodyshamen-van-canadese-tiener-beneden-zijn-waardigheid~ae67dd9c/)
+  > De Amerikaanse minister van Defensie, Pete Hegseth, ligt zwaar onder vuur nadat hij op sociale media de spot dreef met het uiterlijk van een jonge...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Herenmodeketen Ogér moet klantdata overdragen aan Belastingdienst](https://fd.nl/bedrijfsleven/1610920/herenmodeketen-oger-moet-klantdata-overdragen-aan-belastingdienst)
-  > De Belastingdienst ontvangt de gevoelige ledengegevens van de businessclub van herenmodeketen Ogér voor nader onderzoek. Mogelijk is er door leden...
-- [Nasleep Ceuta-crisis kan Spaanse landbouw en autosector hard raken](https://fd.nl/economie/1610236/nasleep-ceuta-crisis-kan-spaanse-landbouw-en-autosector-hard-raken)
-  > Een meerderheid van de Spanjaarden wil sancties tegen Marokko vanwege de Ceuta-crisis. Maar is dat wel zo slim? De Spaanse auto- en landbouwsector...
-- [Toezichthouder DNB haalt goud weg uit de Verenigde Staten](https://fd.nl/financiele-markten/1610915/toezichthouder-dnb-haalt-goud-weg-uit-de-verenigde-staten)
-  > Door verkoop en herschikking van meer dan €10 mrd aan goud wijzigt DNB strategisch de geografische spreiding van zijn reserves.
-- [Kunnen aansluiten is belangrijker dan de grootste zijn](https://fd.nl/opinie/1610522/kunnen-aansluiten-is-belangrijker-dan-de-grootste-zijn)
-  > Winnaars van de toekomst zijn niet alleen groot, maar ook groot in hun vermogen om je aan de ander te kunnen koppelen , voorspelt FD-columnist Roland...
-- [Vijandschap tussen Israël en Turkije laait op: ‘Nieuw front kan Netanyahu electoraal voordeel opleveren’](https://fd.nl/politiek/1610980/vijandschap-tussen-israel-en-turkije-laait-op-nieuw-front-kan-netanyahu-electoraal-voordeel-opleveren)
-  > Israël en Turkije waren ooit bondgenoten. Een groeiend vijandbeeld aan beide zijden en de strijd om Syrië zorgen voor een breuk die steeds meer een...
+- [Brusselse wet helpt lidstaten in hun strijd tegen ‘rolkofferterreur’ in steden](https://fd.nl/politiek/1610991/brusselse-wet-helpt-lidstaten-in-hun-strijd-tegen-rolkofferterreur-in-steden)
+  > Een rekenmethode om huisvestingsstress in gebieden met veel toeristenverhuur vast te stellen, is onderdeel van een wetsvoorstel van de Europese...
+- [Nutteloze opschorting van handel in centrale bank België](https://fd.nl/financiele-markten/1610922/nutteloze-opschorting-van-handel-in-centrale-bank-belgie)
+  > Beleggers konden de hele dag niet handelen in de Nationale Bank van België. Reden daarvoor was een rechtszaak over een boete van €300.000.
+- [Wereldwijde opwarming onder 1,5°C houden lukt niet meer, waarschuwt VN](https://fd.nl/samenleving/1611002/wereldwijde-opwarming-onder-1-5c-houden-lukt-niet-meer-waarschuwt-vn)
+  > Zelfs in het meest gunstige scenario wordt de wereld 1,8 °C warmer, zo blijkt uit een nieuw rapport.
+- [Gasterra moet Gasunie ruim €300 mln betalen voor ongebruikt gastransport](https://fd.nl/economie/1610927/gasterra-moet-gasunie-ruim-300-mln-betalen-voor-ongebruikt-gastransport)
+  > Het ooit zo machtige Gasterra heeft na de sluiting van het Groningenveld geen functie meer, eind dit jaar sluit het de deuren.
+- [Macron en Jetten: ‘Beter samenwerken in defensie en technologie’](https://fd.nl/politiek/1611000/macron-en-jetten-beter-samenwerken-in-defensie-en-technologie)
+  > Tijdens hun bezoek aan een voormalig Philips-terrein pleitten de premier en de Franse president voor intensieve Europese samenwerking. ‘De EU moet...
 
 ### Meest gelezen
 
