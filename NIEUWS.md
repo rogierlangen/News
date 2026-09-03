@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-09-2026 om 13:23*
+*Laatst bijgewerkt: 03-09-2026 om 17:40*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Geen droogtecrisis meer, maar problemen zijn nog lang niet voorbij](https://nos.nl/l/2629512)
-  > De grootste problemen door de droogte in ons land zijn voorbij. Dat zegt het crisisteam van de overheid dat bij extreme droogte besluiten voorbereidt...
-- [Spaanse premier: geen hard bewijs geleverd dat Marokko achter stormloop Ceuta zat](https://nos.nl/l/2629511)
-  > De Spaanse premier Sánchez zegt dat er geen "harde bewijzen" zijn dat Marokko verantwoordelijk is voor de dodelijke stormloop van tienduizenden...
-- [Supporters van amateurclubs met elkaar op de vuist na voorronde KNVB-beker](https://nos.nl/l/2629504)
-  > Supporters van amateurclubs TOGB en Katwijk zijn gisteren met elkaar op de vuist gegaan na een wedstrijd in de eerste voorronde van het...
-- [Tieners joyriden in busje en beschadigen auto's bij Drents bedrijf](https://nos.nl/l/2629501)
-  > Twee tieners hebben deze week meerdere auto's beschadigd bij een bedrijf in Hoogeveen. De eigenaar van het getroffen bedrijf vindt de gebeurtenissen...
-- [Toezichthouder na Hitler-video: minister kan ON uit omroepbestel halen](https://nos.nl/l/2629500)
-  > Minister Letschert van Onderwijs, Cultuur en Wetenschap kan de erkenning van omroep Ongehoord Nederland intrekken. Dat schrijft het Commissariaat...
+- [Burgemeester kan niet permanent ingrijpen in Overasselt en heeft camera's bij zijn huis](https://nos.nl/l/2629558)
+  > Het permanent sluiten van het huis in Overasselt waar deze week een beveiliger werd doodgeschoten, is juridisch niet mogelijk. Dat zei burgemeester...
+- [Drie Nederlanders opgepakt bij drugslab in België, ook inval in Valkenswaard](https://nos.nl/l/2629556)
+  > In België zijn drie Nederlanders gearresteerd na de vondst van een drugslab in een woning in Pelt, niet ver van de grens met Nederland. Het gaat om...
+- [Mestdouche voor vrachtwagenchauffeur na noodstop met volle giertank](https://nos.nl/l/2629554)
+  > Een vrachtwagen in Roermond heeft vanochtend een deel van zijn lading mest verloren. Dat gebeurde nadat de chauffeur een noodstop moest maken voor...
+- [OM eist tbs tegen man (20) voor doden van zijn moeder in Haagse woning](https://nos.nl/l/2629548)
+  > Het Openbaar Ministerie eist tbs met dwangverpleging tegen een 20-jarige man die wordt verdacht van het doden van zijn 42-jarige moeder, vorig jaar...
+- [Rekenkamer: grote zorgen over watertekort, overheid moet meer regie pakken](https://nos.nl/l/2629547)
+  > De droogte is een structureel probleem en veel projecten in ons land om watertekorten tegen te gaan lopen te veel vertraging op. Dat zegt de Algemene...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ariana Grande terug bij ex-vriend Ricky Alvarez: ‘Ik probeer hem mijn laatste te maken’](https://www.ad.nl/show/ariana-grande-terug-bij-ex-vriend-ricky-alvarez-ik-probeer-hem-mijn-laatste-te-maken~a60c9400/)
-  > Na een verbroken verloving, scheiding en gestrande relatie met een Wicked-collega is Ariana Grande opnieuw gelukkig in de liefde. De popster is terug...
-- [LIVE VS | Trump is door maas in de wet eerste levende president in 100 jaar met hoofd op officiële munt](https://www.ad.nl/buitenland/live-vs-trump-is-door-maas-in-de-wet-eerste-levende-president-in-100-jaar-met-hoofd-op-officiele-munt~ae67dd9c/)
-  > Donald Trump staat als eerste levende Amerikaanse president in honderd jaar op een officiële munt. De Amerikaanse US Mint, de overheidsinstantie waar...
-- [Lichaam voormalige Bosnisch-Servische opperbevelhebber Mladić donderdag verwacht in Servië](https://www.ad.nl/buitenland/lichaam-voormalige-bosnisch-servische-opperbevelhebber-mladic-donderdag-verwacht-in-servie~a0e0ac44/)
-  > Het lichaam van de voor oorlogsmisdaden veroordeelde oud-generaal Ratko Mladić wordt donderdag in Servië verwacht. Dat zei president Aleksandar Vučić...
-- [PSV gaat langer door met voetbalbaas Earnest Stewart: contract met jaren verlengd](https://www.ad.nl/voetbal/psv-gaat-langer-door-met-voetbalbaas-earnest-stewart-contract-met-jaren-verlengd~a7ae27d8/)
-  > PSV verlengt het contract van directeur voetbalzaken Earnest Stewart (57). De Amerikaanse oud-prof is sinds maart 2023 in dienst bij de Eindhovense...
-- [Duizenden Nederlanders slachtoffer van datalek bij luchthavens VK, onder wie Nederlandse vrouw van Britse premier](https://www.ad.nl/tech/duizenden-nederlanders-slachtoffer-van-datalek-bij-luchthavens-vk-onder-wie-nederlandse-vrouw-van-britse-premier~abcadfc2/)
-  > Op het dark web zijn de gegevens van miljoenen passagiers gepubliceerd die via de luchthavens van de Manchester Airports Group (MAG) hebben gevlogen....
+- [Als je kind uit huis gaat: ‘Accepteer dat je niet meer de belangrijkste persoon in zijn leven bent’](https://www.ad.nl/gezond/als-je-kind-uit-huis-gaat-accepteer-dat-je-niet-meer-de-belangrijkste-persoon-in-zijn-leven-bent~ad78f07f/)
+  > Deze maand verlaten tienduizenden kinderen het ouderlijk huis om op zichzelf te gaan wonen. Het liefst overladen we ze met goede raad en voortdurende...
+- [Martijn Krabbé voelt zich veel energieker: ‘Ik slik bepaalde medicijnen niet meer’](https://www.ad.nl/show/martijn-krabbe-voelt-zich-veel-energieker-ik-slik-bepaalde-medicijnen-niet-meer~ad640564/)
+  > Het gaat goed met Martijn Krabbé (58), vertelt hij donderdagavond in RTL Boulevard. De ongeneeslijk zieke presentator voelt zich energiek en slikt...
+- [Ridvan wurgde zijn moeder op bed, stak het huis vol familie in brand en hield vluchtende zus tegen](https://www.ad.nl/den-haag/ridvan-wurgde-zijn-moeder-op-bed-stak-het-huis-vol-familie-in-brand-en-hield-vluchtende-zus-tegen~a3fab7a6/)
+  > Ze sloeg doodsangsten uit toen haar broertje haar vlucht uit hun brandende huis blokkeerde. De zus van Ridvan B. (20) ontsnapte ternauwernood aan de...
+- [We weten hoe we ons moeten wapenen tegen weersextremen, nu moeten we het ook doen](https://www.ad.nl/commentaar/we-weten-hoe-we-ons-moeten-wapenen-tegen-weersextremen-nu-moeten-we-het-ook-doen~a4aa271c/)
+  > De VN waarschuwt voor een gigantische El Niño, maar nog altijd doen we te weinig om ons te wapenen tegen weersextremen, schrijft onze hoofdredacteur...
+- [Iga Swiatek staat slechts vijf games af, ook Alcaraz en Sabalenka ronde verder](https://www.ad.nl/tennis/iga-swiatek-staat-slechts-vijf-games-af-ook-alcaraz-en-sabalenka-ronde-verder~a32e16c8/)
+  > De US Open, laatste grandslamtoernooi van het jaar, is losgebarsten. Door de afwezigheid van de nummer één van de wereld, Jannik Sinner, ligt de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Beveiliging en kooplimieten: spelletjeswinkels maken zich op voor nieuwe Pokémon-kaarten](https://fd.nl/samenleving/1611045/beveiliging-en-kooplimieten-spelletjeswinkels-maken-zich-op-voor-nieuwe-pokemon-kaarten)
-  > Spellenwinkels moeten steeds meer maatregelen treffen om te zorgen dat echte fans de kaarten in handen krijgen.
-- [Regering-Trump kiest kant OpenAI in zaak over auteursrecht New York Times](https://fd.nl/bedrijfsleven/1611052/regering-trump-kiest-kant-openai-in-zaak-over-auteursrecht-new-york-times)
-  > Het opkomende AI speelt een grote rol in de nationale veiligheid en de Amerikaanse economie, vindt de Amerikaanse regering. Auteursrecht mag die...
-- [Het rentetrio](https://fd.nl/opinie/1610931/het-rentetrio)
-  > De obligatiemarkt laat zich niet verblinden door het financiële gerommel van Amerika’s rentetrio.
-- [Europese landen verplaatsen regelmatig hun goud](https://fd.nl/financiele-markten/1611046/europese-landen-verplaatsen-regelmatig-hun-goud)
-  > Naast Nederland hebben het afgelopen decennium ook Duitsland en Frankrijk goudvoorraden uit de VS teruggehaald naar Europa.
-- [Er groeit een gapend gat tussen Chinese en westerse staatsobligaties](https://fd.nl/financiele-markten/1610970/er-groeit-een-gapend-gat-tussen-chinese-en-westerse-staatsobligaties)
-  > De rente op Chinese staatsobligaties is op weg naar een historisch laag punt. Een totaal ander beeld dan in het Westen.
+- [Kamer mist regie bij uitvoeren rapport Wennink](https://fd.nl/economie/1611059/kamer-mist-regie-bij-uitvoeren-rapport-wennink)
+  > Het beroemde rapport om de economische groei aan te jagen, benoemt veel verschillende thema’s, maar die zijn in politiek Den Haag verdeeld over veel...
+- [Aegon reserveert pot met aandelen voor personeel](https://fd.nl/financiele-markten/1611053/aegon-reserveert-pot-met-aandelen-voor-personeel)
+  > De verzekeraar verhuist naar de VS en wil zich aan de mores van dat land aanpassen. Aegon vraagt zijn aandeelhouders komende maand in te stemmen met...
+- [Hersteloperatie box 3 tot nu toe veel goedkoper voor de staat dan verwacht](https://fd.nl/politiek/1611044/hersteloperatie-box-3-tot-nu-toe-veel-goedkoper-voor-de-staat-dan-verwacht)
+  > Nu een derde van de verwachte aanvragen verwerkt is, heeft de Belastingdienst bijna €1 mrd terugbetaald aan spaarders en beleggers. Voor het herstel...
+- [‘Economische druk VS begint Iran pijn te doen’](https://fd.nl/politiek/1611083/economische-druk-vs-begint-iran-pijn-te-doen)
+  > De economische strafmaatregelen van de Verenigde Staten tegen Iran beginnen effect te hebben. Washington wil de export van Iraanse olie stoppen en...
+- [Outdoormerk Patagonia in verzet tegen Trump](https://fd.nl/politiek/1611082/outdoormerk-patagonia-in-verzet-tegen-trump)
+  > Kledingmerk Patagonia heeft zich aangesloten bij een rechtszaak tegen de beslissing van de Amerikaanse president Donald Trump om twee nationale...
 
 ### Meest gelezen
 
