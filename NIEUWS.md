@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-09-2026 om 08:44*
+*Laatst bijgewerkt: 03-09-2026 om 13:23*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Minstens duizend organisaties ongemerkt uithangbord voor illegale casino's](https://nos.nl/l/2629475)
-  > Zeker duizend websites met namen van bedrijven, zzp'ers en stichtingen staan vol met illegale casinopromotie. Dat blijkt uit onderzoek van BNR....
-- [Tekort aan kamers blijft hoog, meer studenten blijven thuis wonen](https://nos.nl/l/2629471)
-  > Het tekort aan studentenkamers is in een jaar tijd nauwelijks afgenomen. Kenniscentrum Kences, dat jaarlijks de Landelijke Monitor...
-- [Politie en OM zien nieuwe generatie jonge, westerse cybercriminelen opkomen](https://nos.nl/l/2629470)
-  > De politie en het Openbaar Ministerie zien in westerse landen nieuwe hackers opkomen. Ze ontmoeten elkaar online in een los samenhangend netwerk van...
-- [Natuurorganisaties ontevreden over natuurherstelplannen minister Van Essen](https://nos.nl/l/2629469)
-  > De gortdroge zomer heeft laten zien hoe urgent het is om de Nederlandse natuur te herstellen, stelt een groep van negen natuurorganisaties. Zij zijn...
-- [Brandbommen gegooid naar Duits defensiebedrijf](https://nos.nl/l/2629468)
-  > In München is brandgesticht bij het hoofdkantoor van een defensiebedrijf. De politie onderzoekt of het om een politiek gemotiveerde aanslag ging,...
+- [Geen droogtecrisis meer, maar problemen zijn nog lang niet voorbij](https://nos.nl/l/2629512)
+  > De grootste problemen door de droogte in ons land zijn voorbij. Dat zegt het crisisteam van de overheid dat bij extreme droogte besluiten voorbereidt...
+- [Spaanse premier: geen hard bewijs geleverd dat Marokko achter stormloop Ceuta zat](https://nos.nl/l/2629511)
+  > De Spaanse premier Sánchez zegt dat er geen "harde bewijzen" zijn dat Marokko verantwoordelijk is voor de dodelijke stormloop van tienduizenden...
+- [Supporters van amateurclubs met elkaar op de vuist na voorronde KNVB-beker](https://nos.nl/l/2629504)
+  > Supporters van amateurclubs TOGB en Katwijk zijn gisteren met elkaar op de vuist gegaan na een wedstrijd in de eerste voorronde van het...
+- [Tieners joyriden in busje en beschadigen auto's bij Drents bedrijf](https://nos.nl/l/2629501)
+  > Twee tieners hebben deze week meerdere auto's beschadigd bij een bedrijf in Hoogeveen. De eigenaar van het getroffen bedrijf vindt de gebeurtenissen...
+- [Toezichthouder na Hitler-video: minister kan ON uit omroepbestel halen](https://nos.nl/l/2629500)
+  > Minister Letschert van Onderwijs, Cultuur en Wetenschap kan de erkenning van omroep Ongehoord Nederland intrekken. Dat schrijft het Commissariaat...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Aan het front kan navigatie uitvallen, daarom bouwt Nederland drones die zichzelf de weg wijzen](https://www.ad.nl/binnenland/aan-het-front-kan-navigatie-uitvallen-daarom-bouwt-nederland-drones-die-zichzelf-de-weg-wijzen~aca17cd1/)
-  > Oorlogen veranderen, en dat zie je in Oekraïne: drones zijn cruciaal geworden op het slagveld. Maar hoe bestuur je een onbemand vliegtuigje als de...
-- [Box 3 uitgelegd: waarom beleggers straks misschien belasting betalen over winst die er nog niet is](https://www.ad.nl/geld/box-3-uitgelegd-waarom-beleggers-straks-misschien-belasting-betalen-over-winst-die-er-nog-niet-is~a7d53a90/)
-  > De chaos is compleet rond box 3. De tijdelijke wet die de belastingheffing op vermogen moest regelen, wordt opzijgeschoven. Daarvoor in de plaats...
-- [VN slaat alarm om ‘gigantische’ El Niño: wereld zit tot februari 2027 in ‘gevarenzone van extreem weer’](https://www.ad.nl/buitenland/vn-slaat-alarm-om-gigantische-el-nino-wereld-zit-tot-februari-2027-in-gevarenzone-van-extreem-weer~a51e561b/)
-  > De wereld zit in een ‘gevarenzone van extreem weer’. De gevolgen van klimaatfenomeen El Niño, die overal al voelbaar zijn, zullen de komende maanden...
-- [De grote transferquiz: hoeveel weet jij van deze transferzomer?](https://www.ad.nl/voetbal/de-grote-transferquiz-hoeveel-weet-jij-van-deze-transferzomer~a06ac4ca/)
-  > Heb jij al het transfernieuws deze zomer goed gevolgd? Weet jij bijvoorbeeld waar Yan Diomande, Sydney van Hooijdonk en Quinten Timber nu spelen? En...
-- [Opinie: ‘Houd de rug recht tegen de pesticidenlobby’](https://www.ad.nl/opinie/opinie-houd-de-rug-recht-tegen-de-pesticidenlobby~a32f6a94/)
-  > Door nieuwe Europese regels krijgen boeren en artsen nog minder betrouwbare informatie over de gevolgen van pesticidengebruik. Dat schaadt de...
+- [Ariana Grande terug bij ex-vriend Ricky Alvarez: ‘Ik probeer hem mijn laatste te maken’](https://www.ad.nl/show/ariana-grande-terug-bij-ex-vriend-ricky-alvarez-ik-probeer-hem-mijn-laatste-te-maken~a60c9400/)
+  > Na een verbroken verloving, scheiding en gestrande relatie met een Wicked-collega is Ariana Grande opnieuw gelukkig in de liefde. De popster is terug...
+- [LIVE VS | Trump is door maas in de wet eerste levende president in 100 jaar met hoofd op officiële munt](https://www.ad.nl/buitenland/live-vs-trump-is-door-maas-in-de-wet-eerste-levende-president-in-100-jaar-met-hoofd-op-officiele-munt~ae67dd9c/)
+  > Donald Trump staat als eerste levende Amerikaanse president in honderd jaar op een officiële munt. De Amerikaanse US Mint, de overheidsinstantie waar...
+- [Lichaam voormalige Bosnisch-Servische opperbevelhebber Mladić donderdag verwacht in Servië](https://www.ad.nl/buitenland/lichaam-voormalige-bosnisch-servische-opperbevelhebber-mladic-donderdag-verwacht-in-servie~a0e0ac44/)
+  > Het lichaam van de voor oorlogsmisdaden veroordeelde oud-generaal Ratko Mladić wordt donderdag in Servië verwacht. Dat zei president Aleksandar Vučić...
+- [PSV gaat langer door met voetbalbaas Earnest Stewart: contract met jaren verlengd](https://www.ad.nl/voetbal/psv-gaat-langer-door-met-voetbalbaas-earnest-stewart-contract-met-jaren-verlengd~a7ae27d8/)
+  > PSV verlengt het contract van directeur voetbalzaken Earnest Stewart (57). De Amerikaanse oud-prof is sinds maart 2023 in dienst bij de Eindhovense...
+- [Duizenden Nederlanders slachtoffer van datalek bij luchthavens VK, onder wie Nederlandse vrouw van Britse premier](https://www.ad.nl/tech/duizenden-nederlanders-slachtoffer-van-datalek-bij-luchthavens-vk-onder-wie-nederlandse-vrouw-van-britse-premier~abcadfc2/)
+  > Op het dark web zijn de gegevens van miljoenen passagiers gepubliceerd die via de luchthavens van de Manchester Airports Group (MAG) hebben gevlogen....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Ontslagen oprichter kan belang van €23 mln in Green Giraffe niet verzilveren](https://fd.nl/samenleving/1611028/ontslagen-oprichter-kan-belang-van-23-mln-in-green-giraffe-niet-verzilveren)
-  > Niels Jongste wil zijn belang in het adviesbureau verzilveren, maar moet voorlopig ‘gewoon’ aandeelhouder blijven
-- [Maak van kolencentrales aan zee Nederlandse ontziltingshubs](https://fd.nl/opinie/1610880/maak-van-kolencentrales-aan-zee-nederlandse-ontziltingshubs)
-  > Door droogte en rivierafhankelijkheid dreigen over tien jaar drinkwatertekorten. Creatieve oplossingen zijn daarom hard nodig. Bouw de kolencentrales...
-- [CVC-fonds haalt $10 mrd op bij investeerders](https://fd.nl/bedrijfsleven/1611029/cvc-fonds-haalt-10-mrd-op-bij-investeerders)
-  > Het bedrag ligt aanzienlijk hoger dan bij eerdere kapitaalrondes voor dit fonds. In 2023 haalde CVC hiervoor $5,8 mrd op en in 2019 nog $2,7 mrd.
-- [De macht van de ‘front row’ in de modewereld](https://fd.nl/samenleving/1610906/de-macht-van-de-front-row)
-  > Er gaat geen modeweek voorbij zonder dat uitvoerig wordt bericht over de front rows. De aanwezigen lijken soms belangrijker dan de geshowde mode.
-- [Oekraïense veiligheidsdiensten beschieten elkaar in Kyiv, president Zelensky eist onderzoek](https://fd.nl/politiek/1611027/oekraiense-veiligheidsdiensten-beschieten-elkaar-in-kyiv-president-zelensky-eist-onderzoek)
-  > Zelensky sprak zijn veiligheidsdiensten woensdagavond woedend toe.
+- [Beveiliging en kooplimieten: spelletjeswinkels maken zich op voor nieuwe Pokémon-kaarten](https://fd.nl/samenleving/1611045/beveiliging-en-kooplimieten-spelletjeswinkels-maken-zich-op-voor-nieuwe-pokemon-kaarten)
+  > Spellenwinkels moeten steeds meer maatregelen treffen om te zorgen dat echte fans de kaarten in handen krijgen.
+- [Regering-Trump kiest kant OpenAI in zaak over auteursrecht New York Times](https://fd.nl/bedrijfsleven/1611052/regering-trump-kiest-kant-openai-in-zaak-over-auteursrecht-new-york-times)
+  > Het opkomende AI speelt een grote rol in de nationale veiligheid en de Amerikaanse economie, vindt de Amerikaanse regering. Auteursrecht mag die...
+- [Het rentetrio](https://fd.nl/opinie/1610931/het-rentetrio)
+  > De obligatiemarkt laat zich niet verblinden door het financiële gerommel van Amerika’s rentetrio.
+- [Europese landen verplaatsen regelmatig hun goud](https://fd.nl/financiele-markten/1611046/europese-landen-verplaatsen-regelmatig-hun-goud)
+  > Naast Nederland hebben het afgelopen decennium ook Duitsland en Frankrijk goudvoorraden uit de VS teruggehaald naar Europa.
+- [Er groeit een gapend gat tussen Chinese en westerse staatsobligaties](https://fd.nl/financiele-markten/1610970/er-groeit-een-gapend-gat-tussen-chinese-en-westerse-staatsobligaties)
+  > De rente op Chinese staatsobligaties is op weg naar een historisch laag punt. Een totaal ander beeld dan in het Westen.
 
 ### Meest gelezen
 
