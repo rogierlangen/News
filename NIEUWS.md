@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-09-2026 om 17:28*
+*Laatst bijgewerkt: 04-09-2026 om 20:31*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Verdachten Overasselt blijven langer vastzitten, negen huiszoekingen gedaan](https://nos.nl/l/2629689)
-  > Alle 32 verdachten die vandaag zijn voorgeleid aan de rechter-commissaris vanwege het geweld in Overasselt blijven veertien dagen langer vastzitten,...
-- [Tate-broers in Roemenië aangeklaagd voor handel in minderjarigen](https://nos.nl/l/2629688)
-  > Aanklagers in Roemenië hebben de omstreden influencer Andrew Tate officieel aangeklaagd voor mensenhandel in minderjarigen, witwassen, seks met een...
-- [Rusland valt hoofdkwartier Oekraïense veiligheidsdienst aan in hart van Kyiv](https://nos.nl/l/2629678)
-  > Bij een Russische droneaanval op de Oekraïense hoofdstad Kyiv is het hoofdkwartier van de veiligheidsdienst SBU geraakt, meldt president Zelensky.
-  ...
-- [Verdeelde reacties op rapport over stikstofplannen, nieuwe rechtszaken verwacht](https://nos.nl/l/2629677)
-  > Boeren, bouwers en natuurbeschermers reageren wisselend op de analyse die het Planbureau voor de Leefomgeving (PBL) maakte over de stikstofplannen...
-- [Box 3 splijt coalitie: VVD wil snelle invoering winstbelasting op vermogen](https://nos.nl/l/2629672)
-  > De coalitie stevent af op een groot conflict over de belasting op vermogen (box 3). Uit stukken van het ministerie van Financiën, die in handen van...
+- [Door nazi's geroofd schilderij uit Argentijnse woonkamer terug naar erfgenaam](https://nos.nl/l/2629715)
+  > Een door nazi's gestolen schilderij uit de zogenoemde Goudstikker-collectie wordt teruggegeven aan een erfgenaam van de Joodse kunstverzamelaar. Een...
+- [Hof in Missouri fluit Republikeinen terug bij slag om kiesdistricten](https://nos.nl/l/2629714)
+  > Voor president Trump is het "een zwarte dag voor het recht", voor activisten in Missouri zegeviert dat recht juist. Het Hooggerechtshof van Missouri...
+- [Nieuw tijdperk van superintelligente AI aangebroken, zegt OpenAI](https://nos.nl/l/2629704)
+  > Er is een nieuw tijdperk aangebroken in de wereld van kunstmatige intelligentie (AI), zegt topman Greg Brockman van OpenAI, het bedrijf achter...
+- [Moeten we ons in Nederland zorgen maken over het westnijlvirus?](https://nos.nl/l/2629699)
+  > Het afgelopen muggenseizoen zijn er in Nederland zeker negen mensen besmet geraakt met het westnijlvirus. Waarschijnlijk zijn het er veel meer, maar...
+- [VN stemt voor nieuwe wereldkaart met grotere weergave van Afrika](https://nos.nl/l/2629696)
+  > De Algemene Vergadering van de Verenigde Naties heeft voor een nieuwe wereldkaart gestemd die het Afrikaanse continent anders weergeeft. Dat meldt...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Benzinekosten omlaag: zo doe je dat](https://www.ad.nl/auto/benzinekosten-omlaag-zo-doe-je-dat~ad69ae660/)
-  > Benzinekosten drukken steeds zwaarder op de huishoudpotjes van automobilisten. Maar met deze tips houd je ze nog enigszins onder controle.
-- [Na Hadj Moussa heeft Al-Ittihad nu ook Bajraktarevic op radar: miljoenentransfer voor PSV?](https://www.ad.nl/transfernieuws/na-hadj-moussa-heeft-al-ittihad-nu-ook-bajraktarevic-op-radar-miljoenentransfer-voor-psv~a562a2bc/)
-  > PSV kan aanvaller Esmir Bajraktarevic mogelijk nog verkopen. De 21-jarige aanvaller is kandidaat bij het Saoedische Al-Ittihad om daar de selectie te...
-- [Sparta strijdt in eigen huis om kostbare punten tegen PEC Zwolle, debuut voor Brouwer en Hatenboer](https://www.ad.nl/voetbal/sparta-strijdt-in-eigen-huis-om-kostbare-punten-tegen-pec-zwolle-debuut-voor-brouwer-en-hatenboer~a11bd405/)
-  > Sparta en PEC Zwolle staan na vier duels allebei om één overwinning. De clubs gaan in Rotterdam dan ook strijden om kostbare punten. Wie pakt de zege...
-- [Wat we kunnen leren van Giorgia Meloni: stoer doen, maar slim zijn](https://www.ad.nl/commentaar/wat-we-kunnen-leren-van-giorgia-meloni-stoer-doen-maar-slim-zijn~a4fd4195/)
-  > In Rome is het politiek rustiger dan in Londen, Parijs, Berlijn of Den Haag, schrijft Hans Nijenhuis in dit commentaar.
-- [Klassementen Vuelta | Enric Mas stevig in leiderstrui: dit zijn de verschillen in het klassement](https://www.ad.nl/wielrennen/klassementen-vuelta-enric-mas-stevig-in-leiderstrui-dit-zijn-de-verschillen-in-het-klassement~a489ecf1/)
-  > De 81ste editie van de Vuelta a España is in volle gang. De derde en laatste grote ronde van het jaar duurt tot en met 13 september. Topfavoriet...
+- [Veel kiezers ontevreden over kabinet, dieptepunt sinds aantreden Jetten](https://www.ad.nl/politiek/veel-kiezers-ontevreden-over-kabinet-dieptepunt-sinds-aantreden-jetten~a3e31896/)
+  > Kiezers zijn ontevreden over het kabinet-Jetten, in aanloop naar Prinsjesdag over ongeveer anderhalve week. Volgens een enquête van onderzoeksbureau...
+- [Na bewogen week antwoordt Gakpo met twee prachtige assists, Dumfries en Real op jacht naar openingstreffer](https://www.ad.nl/voetbal/na-bewogen-week-antwoordt-gakpo-met-twee-prachtige-assists-dumfries-en-real-op-jacht-naar-openingstreffer~ad7874f1/)
+  > Met de Champions League in aantocht spelen enkele Europese topclubs vanavond hun duels. Zo staan er uitwedstrijden te wachten voor Liverpool en Real...
+- [Jean-Paul N’Djoli blinkt uit bij Heracles met drie doelpunten, acht goals in Emmen en NAC verliest derby](https://www.ad.nl/voetbal/jean-paul-ndjoli-blinkt-uit-bij-heracles-met-drie-doelpunten-acht-goals-in-emmen-en-nac-verliest-derby~a9941852/)
+  > Heracles Almelo blijft ongeslagen in de Keuken Kampioen Divisie. In de vijfde speelronde werd De Graafschap met 5-0 verslagen. Daarnaast won RKC de...
+- [Twee personen overleden na lek van gevaarlijke stof bij bedrijf in Zwaag](https://www.ad.nl/binnenland/twee-personen-overleden-na-lek-van-gevaarlijke-stof-bij-bedrijf-in-zwaag~a3890de4/)
+  > Door een lek van een gevaarlijke stof bij een coatingbedrijf in Zwaag is vrijdagochtend iemand om het leven gekomen. Een ander, een 40-jarige man uit...
+- [PSG verlengt met Enrique én vijf spelers tegelijk, in deze landen is de markt nog open](https://www.ad.nl/voetbal/psg-verlengt-met-enrique-en-vijf-spelers-tegelijk-in-deze-landen-is-de-markt-nog-open~abfbf81f/)
+  > De transfermarkt in Nederland is sinds woensdagavond gesloten. De markt in de buitenlandse topcompetities ging een dag eerder dicht. In sommige...
 
 ### Meest gelezen
 
@@ -47,14 +46,15 @@
 
 ### Laatste nieuws
 
+- [Dalende koersen op Wall Street na meevallende banencijfers](https://fd.nl/financiele-markten/1611145/dalende-koersen-op-wall-street-na-meevallende-banencijfers)
+  > Analisten gaan ervan uit dat de banencijfers de weg vrijmaken voor de Federal Reserve om de rente te verhogen. Dat nieuws deed de koersen op de...
+- [DNB moet zijn woorden op een goudschaaltje wegen](https://fd.nl/financiele-markten/1611187/dnb-moet-zijn-woorden-op-een-goudschaaltje-wegen)
+  > Bij de verhuizing van goud uit de VS naar Europa moest de centrale bank zeer voorzichtig zijn over wat naar buiten te brengen. Maar het glashard...
 - [Achmea-dochter koopt schadeverzekeringen Cypriotisch Gan Direct](https://fd.nl/bedrijfsleven/1611141/achmea-dochter-koopt-cypriotisch-gan-direct)
 - [Eerste terugkeerhub buiten Europa moet volgend jaar feit zijn](https://fd.nl/politiek/1611140/eerste-terugkeerhub-buiten-europa-moet-volgend-jaar-feit-zijn)
   > Samen met vier andere EU-landen wil Nederland vanaf volgend jaar migranten zonder verblijfsrecht onderbrengen in ‘open instellingen’ in landen buiten...
 - [Met de arbeidsmarkt op orde kan de Fed zich helemaal op de inflatie richten](https://fd.nl/financiele-markten/1611244/met-de-arbeidsmarkt-op-orde-kan-de-fed-zich-helemaal-op-de-inflatie-richten)
   > Vrijdag werd duidelijk hoe robuust dit belangrijke onderdeel van de Amerikaanse economie daadwerkelijk is. In augustus kwamen er 162.000 banen bij,...
-- [Nieuwe ronde voor Air France-KLM en Lufthansa in gevecht om TAP](https://fd.nl/bedrijfsleven/1611245/nieuwe-ronde-voor-air-france-klm-en-lufthansa-in-gevecht-om-tap)
-- [Centrale banken eisen hoofdrol op de beurzen](https://fd.nl/financiele-markten/1611223/centrale-banken-eisen-hoofdrol-op-de-beurzen)
-  > Om het weer opdoemende inflatiegevaar te bezweren, stevenen centrale banken af op een renteverhoging. DNB haalde goud weg uit de VS.
 
 ### Meest gelezen
 
