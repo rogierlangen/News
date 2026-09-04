@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-09-2026 om 23:05*
+*Laatst bijgewerkt: 04-09-2026 om 03:44*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Argentijnse president Milei gaat oliebedrijven bij Falklands aanpakken](https://nos.nl/l/2629585)
+  > De Argentijnse president Javier Milei zegt dat zijn land sancties gaat opleggen aan oliebedrijven die actief zijn op en rond de Falkland-eilanden,...
+- [Dodental veerramp bij Cyprus opgelopen tot tien, nog 18 vermisten](https://nos.nl/l/2629584)
+  > Reddingswerkers hebben voor de kust van Cyprus nog een lichaam geborgen van het schip dat afgelopen weekend zonk. Het dodental staat nu op tien, 18...
 - [Verstekelingen betrapt bij veerhaven Vlaardingen naar Engeland](https://nos.nl/l/2629583)
   > Bij een containerterminal in Vlaardingen zijn vanavond mensen aangetroffen die in een vrachtwagen verstopt zaten. Het gaat om 15 mensen, onder wie...
 - [Stikstofplannen halen land niet van het slot, wel grote stap vooruit](https://nos.nl/l/2629576)
   > Nederland gaat niet van het stikstofslot door de maatregelen die dit kabinet wil nemen, maar het kabinet zet wel belangrijke stappen. Dat concludeert...
 - [Akkoord over reorganisatie Volkswagen, 50.000 banen weg, maar fabrieken voorlopig nog open](https://nos.nl/l/2629575)
   > De raad van commissarissen (rvc) van Volkswagen heeft unaniem ingestemd met reorganisatieplannen. Dat betekent dat er 50.000 banen verdwijnen,...
-- [Ontmoetingsplek voor daklozen in Nijmegen sluit na overlast: 'Kan zo niet verder'](https://nos.nl/l/2629574)
-  > De openbare ontmoetingsplek voor dak- en thuislozen in Nijmegen is op last van de gemeente vanwege aanhoudende overlast permanent gesloten. De...
-- [Nederlander wint Ig Nobelprijs voor duizenden begraven onderbroeken](https://nos.nl/l/2629573)
-  > Met zijn onderzoek naar duizenden begraven onderbroeken heeft een Nederlandse wetenschapper een Ig Nobelprijs gewonnen. Het doel was om meer inzicht...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Voetbalpodcast | ‘Feyenoord maakt keuze om te bouwen en de titel wordt niet verwacht van Van Bronckhorst’](https://www.ad.nl/voetbal/voetbalpodcast-feyenoord-maakt-keuze-om-te-bouwen-en-de-titel-wordt-niet-verwacht-van-van-bronckhorst~a42af5cd9/)
-  > De technisch directeuren van Ajax, Feyenoord en PSV gaven tekst en uitleg over de afgelopen maanden. In de AD Voetbalpodcast nemen Etienne Verhoeff...
-- [LTO: generieke krimp veestapel in PBL-stikstofrapport onbespreekbaar](https://www.ad.nl/economie/lto-generieke-krimp-veestapel-in-pbl-stikstofrapport-onbespreekbaar~a353581e/)
-  > Land- en tuinbouworganisatie LTO ziet veel onduidelijkheden in het stikstofrapport van het Planbureau voor de Leefomgeving (PBL). Zo wijst LTO vooral...
-- [Droomdebuut voor Ayase Ueda: spits na vertrek bij Feyenoord meteen matchwinner voor Lille](https://www.ad.nl/voetbal/droomdebuut-voor-ayase-ueda-spits-na-vertrek-bij-feyenoord-meteen-matchwinner-voor-lille~a1b3302f/)
-  > Ayase Ueda heeft donderdagavond een droomdebuut beleefd bij zijn nieuwe club Lille OSC. Drie dagen nadat hij de overstap maakte van Feyenoord, mocht...
-- [Ehizibue verruilt Udinese voor Genoa, AZ laat Sadiq naar VS gaan, in deze landen is de markt nog open](https://www.ad.nl/voetbal/ehizibue-verruilt-udinese-voor-genoa-az-laat-sadiq-naar-vs-gaan-in-deze-landen-is-de-markt-nog-open~abfbf81f/)
-  > De transfermarkt in Nederland is sinds woensdagavond gesloten. De markt in de buitenlandse topcompetities ging een dag eerder dicht. In sommige...
-- [Roxy Dekker staat volgend jaar in de Johan Cruijff Arena: ‘Mijn grootste show ooit’](https://www.ad.nl/show/roxy-dekker-staat-volgend-jaar-in-de-johan-cruijff-arena-mijn-grootste-show-ooit~a59e1eb8/)
-  > Roxy Dekker (21) staat de komende dagen nog met haar uitverkochte shows in de Ziggo Dome, maar heeft haar volgende grote optreden al gepland. De...
+- [Argentijnse president Milei ziet ‘gunstige wind’ om Falklands opnieuw op te eisen](https://www.ad.nl/buitenland/argentijnse-president-milei-ziet-gunstige-wind-om-falklands-opnieuw-op-te-eisen~a84c7e58/)
+  > Er waait een ‘gunstige wind’ om de Falklandeilanden opnieuw op te eisen van het Verenigd Koninkrijk. Dat heeft de Argentijnse president Javier Milei...
+- [Botic van de Zandschulp klopt verrassend Alex de Minaur en bereikt derde ronde US Open, Jesper de Jong uitgeschakeld](https://www.ad.nl/sport/botic-van-de-zandschulp-klopt-verrassend-alex-de-minaur-en-bereikt-derde-ronde-us-open-jesper-de-jong-uitgeschakeld~a6cf915e/)
+  > Botic van de Zandschulp heeft op de US Open voor een grote verrassing gezorgd door de als zesde geplaatste Australiër Alex de Minaur uit te...
+- [Zes maanden premier en bij elk bericht op X wordt Rob Jetten uitgescholden om zijn homoseksualiteit](https://www.ad.nl/politiek/zes-maanden-premier-en-bij-elk-bericht-op-x-wordt-rob-jetten-uitgescholden-om-zijn-homoseksualiteit~a416a4e10/)
+  > De minister-president, vroeger een functie met aanzien. Nu moet ‘onze’ premier met zijn ‘rot smoelwerk’ ‘opflikkeren’, de ‘vieze homo’. Zulke...
+- [Rusland roept Noorse ambassadeur op het matje voor ‘krachtig betoog’ na inbeslagname schip](https://www.ad.nl/buitenland/rusland-roept-noorse-ambassadeur-op-het-matje-voor-krachtig-betoog-na-inbeslagname-schip~adfb97be/)
+  > Rusland heeft de Noorse ambassadeur op het matje geroepen bij het ministerie van Buitenlandse Zaken in Moskou, nadat de Noorse autoriteiten woensdag...
+- [Witte Huis lanceert website met videogames over uitzetten van migranten](https://www.ad.nl/buitenland/witte-huis-lanceert-website-met-videogames-over-uitzetten-van-migranten~ae67dd9c/)
+  > Het Witte Huis heeft een website gelanceerd met klassieke videospellen, waarin spelers onder meer migranten kunnen uitzetten en een grensmuur kunnen...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Waarom de box 3-belegger naar Spanje vlucht](https://fd.nl/economie/1611080/waarom-de-box-3-belegger-naar-spanje-vlucht)
+  > Vandaag in Dagkoers: de kosten van de hersteloperatie van Box 3 vallen mee, Europese plannen om het emissiehandelssysteem te versoepelen leiden tot...
 - [Vloeibaar goud](https://fd.nl/opinie/1611049/vloeibaar-goud)
   > De mooiste Nederlandse goudbaren liggen in Londen, illiquide rommelgoud ging naar Zeist.
 - [Box 3: de zwarte doos van Den Haag](https://fd.nl/opinie/1610971/box-3-de-zwarte-doos-van-den-haag)
@@ -54,8 +56,6 @@
   > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 - [Directeur Eric haalde $4 mln uit de kas, maar stelt dat die verduistering nu wel is verjaard](https://fd.nl/samenleving/1610342/directeur-eric-haalde-4-mln-uit-de-kas-maar-stelt-dat-die-verduistering-nu-wel-is-verjaard)
   > Na een inval door het OM, in 2007, ging First Alliance Trust ten onder. Daarna stal directeur Eric miljoenen uit een andere bv. Dat geld wil die bv...
-- [PBL: Stikstofplannen kabinet bieden ‘geleidelijk’ ruimte voor vergunningen](https://fd.nl/politiek/1611043/pbl-stikstofplannen-kabinet-bieden-geleidelijk-ruimte-voor-vergunningen)
-  > De maatregelen vragen veel van boeren en overheid, aldus het Planbureau voor de Leefomgeving. Om de plannen tot een succes te maken, is een...
 
 ### Meest gelezen
 
