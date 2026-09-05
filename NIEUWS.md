@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-09-2026 om 13:45*
+*Laatst bijgewerkt: 05-09-2026 om 16:39*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Griekse straaljager stort neer tijdens luchtshow, piloten omgekomen](https://nos.nl/l/2629790)
+  > Een straaljager van de Griekse luchtmacht is vanmiddag neergestort tijdens een luchtshow ten noorden van Athene. De twee piloten aan boord van het...
 - [Serval opnieuw ontsnapt in woonwijk Tilburg](https://nos.nl/l/2629785)
-  > In Tilburg is vanochtend een serval ontsnapt. Het is de tweede keer in een paar maanden tijd dat de katachtige uit zijn verblijf wist te komen.
-     ...
+  > In Tilburg is vanochtend een serval ontsnapt. Het is de tweede keer dat de katachtige uit zijn verblijf wist te komen.
+        Het van oorsprong...
 - [Witkoff en Kushner gearriveerd in Moskou, met 'een idee voor vrede'](https://nos.nl/l/2629777)
   > De Amerikaanse gezanten Steve Witkoff en Jared Kushner zijn aangekomen in Moskou. Op foto's van persbureau Reuters is te zien hoe zij op de...
 - [Politieonderzoek Overasselt gaat door, zoekacties bij woning Jan G.](https://nos.nl/l/2629776)
   > Vijf dagen na het geweld in Overasselt doet de politie nog altijd onderzoek in en rondom het Gelderse dorp. De politie laat weten vandaag "zichtbaar...
 - [Kopen van studentenkamer in trek, maar gemeenten vinden het onwenselijk](https://nos.nl/l/2629771)
   > Het nieuwe studiejaar is begonnen, de tijd dat veel nieuwe studenten een woonplek zoeken. Maar met een tekort aan huurwoningen voor studenten zoeken...
-- [Beschonken vrouw rijdt met auto vol terras op in Rotterdam, drie aanhoudingen](https://nos.nl/l/2629769)
-  > In het centrum van Rotterdam zijn vannacht drie mensen aangehouden nadat een 40-jarige vrouw uit Den Haag met haar auto was ingereden op een groep...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Anouk kondigt Ziggo Dome-concerten aan: ‘Dat weet eigenlijk nog niemand’](https://www.ad.nl/show/anouk-kondigt-ziggo-dome-concerten-aan-dat-weet-eigenlijk-nog-niemand~af8104b0/)
-  > Anouk (51) staat volgend jaar opnieuw in de Ziggo Dome. Dat deelt de zangeres vrijdag tijdens een show op Live on the beach in Scheveningen. „Dat...
-- [Kopzorgen om hoge benzineprijs, Nuria betaalt 194 euro voor volle tank: ‘Het wordt te duur’](https://www.ad.nl/binnenland/kopzorgen-om-hoge-benzineprijs-nuria-betaalt-194-euro-voor-volle-tank-het-wordt-te-duur~a6b2527c/)
-  > Benzine wordt steeds duurder. Euro 98 tikt binnenkort mogelijk de 3 euro per liter aan. Dat zet sommige automobilisten aan het denken. Misschien toch...
-- [Kan Max Verstappen verrassen en zich mengen in de strijd om poleposition op Monza?](https://www.ad.nl/formule-1/kan-max-verstappen-verrassen-en-zich-mengen-in-de-strijd-om-poleposition-op-monza~a3f70e39/)
-  > Na een matige vrijdag lijkt Red Bull Racing een goede stap te hebben gezet. Kan Max Verstappen daardoor meedoen in de strijd om poleposition? Volg de...
-- [Transfersoap gaat door: Hadj Moussa niet bij selectie Feyenoord voor pittige uitwedstrijd tegen NEC](https://www.ad.nl/voetbal/transfersoap-gaat-door-hadj-moussa-niet-bij-selectie-feyenoord-voor-pittige-uitwedstrijd-tegen-nec~a6306a72/)
-  > Na het gelijkspel tegen ADO Den Haag in eigen huis (2-2) staat voor Feyenoord een lastige uitwedstrijd bij NEC op het programma. Daarbij zit Anis...
-- [Hij heeft 92 huizen, zes wereldtitels en is gesloten als een oester: Jeffrey Herlings is meer dan wereldkampioen](https://www.ad.nl/andere-sporten/hij-heeft-92-huizen-zes-wereldtitels-en-is-gesloten-als-een-oester-jeffrey-herlings-is-meer-dan-wereldkampioen~a139c7aa/)
-  > Een winnaar. Een keiharde werker. Maar ook: gesloten als een oester. Vraag het aan honderd mensen die Jeffrey Herlings (31) kennen of denken te...
+- [Infantino ontwijkt kritische vragen bij WK vrouwen onder 20: ‘Niet vandaag, niet hier’](https://www.ad.nl/voetbal/infantino-ontwijkt-kritische-vragen-bij-wk-vrouwen-onder-20-niet-vandaag-niet-hier~a2544497/)
+  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
+- [Supermarkten verwachten vanaf 2028 minder drukte bij statiegeldautomaten, maar vrezen viezigheid](https://www.ad.nl/binnenland/supermarkten-verwachten-vanaf-2028-minder-drukte-bij-statiegeldautomaten-maar-vrezen-viezigheid~a795e9c4/)
+  > Supermarkten verwachten vanaf 2028 minder drukte bij de statiegeldautomaten, omdat veel meer winkels verplicht worden om verpakkingen in te nemen....
+- [Wat voor weer wordt het in 2076? Twee scenario’s en één daarvan is doodeng](https://www.ad.nl/klimaat/wat-voor-weer-wordt-het-in-2076-twee-scenarios-en-een-daarvan-is-doodeng~a5f333a1/)
+  > Deze zomer kregen we door hittegolven, bosbranden en een moddervloed in Nepal al een voorproefje van een ander klimaat. Hoe ziet het er over vijftig...
+- [Jerayno Schaken schrijft indrukwekkend Feyenoord-record op zijn naam: ‘Wat een goal, kwaliteit’](https://www.ad.nl/voetbal/jerayno-schaken-schrijft-indrukwekkend-feyenoord-record-op-zijn-naam-wat-een-goal-kwaliteit~acfb2d0b/)
+  > Jerayno Schaken heeft een indrukwekkend record op zijn naam geschreven. De 17-jarige zoon van voormalig Feyenoord-aanvaller Ruben Schaken debuteerde...
+- [Klassementen | Enric Mas loopt verder uit op concurrentie en een nieuwe nummer 2: dit zijn de verschillen](https://www.ad.nl/wielrennen/klassementen-enric-mas-loopt-verder-uit-op-concurrentie-en-een-nieuwe-nummer-2-dit-zijn-de-verschillen~a489ecf1/)
+  > De 81ste editie van de Vuelta a España is in volle gang. De derde en laatste grote ronde van het jaar duurt tot en met 13 september. Topfavoriet...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Twaalf explosieven gevonden bij hoogspanningsleidingen in oosten Duitsland](https://fd.nl/politiek/1611147/twaalf-explosieven-gevonden-bij-hoogspanningsleidingen-in-oosten-duitsland)
+  > Het Duitse elektriciteitsnet was deze week meermaals doelwit van sabotageacties.
+- [Saksen-Anhalt stemt, Duitsland zit op het puntje van de stoel](https://fd.nl/politiek/1611274/saksen-anhalt-stemt-duitsland-zit-op-het-puntje-van-de-stoel)
+  > De Duitse deelstaat Saksen-Anhalt gaat zondag naar de stembus. De extreemrechtse Alternative für Deutschland (AfD) staat op forse winst. Wat staat er...
 - [‘Belangrijkste rollen beursgang Anthropic voor Morgan Stanley en Goldman Sachs’](https://fd.nl/financiele-markten/1611273/belangrijkste-rollen-beursgang-anthropic-voor-morgan-stanley-en-goldman-sachs)
   > Dat schrijft de Britse zakenkrant the Financial Times.
 - [VN stemt voor wereldkaart die Afrika op schaal afbeeldt](https://fd.nl/politiek/1611271/vn-stemt-voor-wereldkaart-die-afrika-op-schaal-afbeeldt)
   > Afrika lijkt op gangbare kaarten kleiner dan het continent is.
 - [Witkoff en Kushner in Moskou voor ontmoeting met Poetin, ‘zondag naar Kyiv’](https://fd.nl/politiek/1611146/witkoff-en-kushner-reizen-naar-moskou-en-kyiv-met-vredesvoorstel)
   > Het zou voor het eerst zijn dat de twee Amerikaanse onderhandelaars naar Oekraïne reizen.
-- [Ontwikkel een Europese managementstijl van wereldklasse](https://fd.nl/opinie/1611189/zorg-naast-keurmerk-made-in-europe-ook-voor-managed-as-in-europa)
-  > Hoewel wij voor managementgoeroes naar de Verenigde Staten kijken, vinden we de ingrediënten voor goede managementpraktijken ook dichter bij huis....
-- [Trump, Warsh of Bessent: wie krijgt de rente omlaag? En moeten banken ons geld blijven maken?](https://fd.nl/economie/1611228/trump-warsh-of-bessent-wie-krijgt-de-rente-omlaag-en-moeten-banken-ons-geld-blijven-maken)
-  > In deze Toegevoegde Waarde bespreken Anna Dijkman en Marijn Jongsma hoe het rentetrio – Trump, Warsh en Bessent – met en tegen elkaar de rente wil...
 
 ### Meest gelezen
 
