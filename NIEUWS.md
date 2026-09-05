@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-09-2026 om 18:53*
+*Laatst bijgewerkt: 05-09-2026 om 21:00*
 
 ---
 
@@ -8,6 +8,9 @@
 
 ### Laatste nieuws
 
+- [President Poetin ontvangt Amerikaanse gezanten Kushner en Witkoff in Kremlin](https://nos.nl/l/2629841)
+  > De ontmoeting in het Kremlin tussen de Russische president Vladimir Poetin en de Amerikaanse gezanten Steve Witkoff en Jared Kushner is begonnen.
+   ...
 - [Kind overleden na aanrijding met veegwagen in Leeuwarden](https://nos.nl/l/2629829)
   > Een jong kind is na een aanrijding met een veegwagen in Leeuwarden overleden.
         Het fatale ongeluk gebeurde rond 17.30 uur aan de...
@@ -15,10 +18,8 @@
   > In Genève hebben 128 landen een belangrijke stap gezet om te voorkomen dat het in de toekomst uit de hand loopt met killerrobots. Het gaat om...
 - [Hoe er een omstreden statiegeldloterij kwam en geen hoger statiegeld](https://nos.nl/l/2629819)
   > De staatssecretaris van Infrastructuur en Waterstaat werkte maandenlang samen met drankenproducenten aan een plan om verhoging van het statiegeld te...
-- [VS: drie Iraanse olietankers uitgeschakeld na aanval Iran op marineschepen](https://nos.nl/l/2629810)
-  > De Verenigde Staten zeggen vandaag drie Iraanse olietankers te hebben uitgeschakeld als reactie op een aanval van de Iraanse Revolutionaire Garde op...
-- [Houthi's beginnen offensief, een van de zwaarste gevechten in Jemen in jaren](https://nos.nl/l/2629798)
-  > In het zuidwesten van Jemen zijn hevige gevechten uitgebroken tussen de Houthi-rebellen en het Jemenitische staatsleger. De Houthi's zijn een...
+- [VS en Iran claimen over en weer vergeldingsaanvallen op tankers](https://nos.nl/l/2629810)
+  > De Verenigde Staten en Iran zeggen vandaag aanvallen over en weer te hebben uitgevoerd op schepen in de regio. De VS kondigde eerst aan drie Iraanse...
 
 ### Meest gelezen
 
@@ -28,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Geertruida zet PSV op slag van rust op voorsprong in heerlijke topper tegen Ajax](https://www.ad.nl/voetbal/geertruida-zet-psv-op-slag-van-rust-op-voorsprong-in-heerlijke-topper-tegen-ajax~a9f21619/)
-  > De eerste echte topper van de eredivisie staat op de planning. In de Johan Cruijff Arena ontvangt Ajax rivaal PSV. Wie wint de prestigestrijd in...
-- [Podiumplek afgepakt, nu de eerste pole voor emotionele Pierre Gasly: ‘Wat ik schreeuwde? Iets totaal onzinnigs’](https://www.ad.nl/formule-1/podiumplek-afgepakt-nu-de-eerste-pole-voor-emotionele-pierre-gasly-wat-ik-schreeuwde-iets-totaal-onzinnigs~a9a2a449/)
-  > Pierre Gasly in een Alpine op pole position. De 30-jarige Fransman moest zelf ook even in zijn ogen wrijven na zijn kwalificatie voor de Grand Prix...
-- [Edsilia Rombley houdt niet van alcohol: ‘Na één slok sangria val ik zowat in slaap’](https://www.ad.nl/gezond/edsilia-rombley-houdt-niet-van-alcohol-na-een-slok-sangria-val-ik-zowat-in-slaap~a0ac79b1/)
-  > Ze vindt sporten vreselijk, maar houdt wel van lekker stevige sportmassages en van leuke dingen organiseren voor haar vrienden en  familie. „Ik laad...
-- [Trump heeft vrede nodig voor midterms in november, Oekraïne trekt mogelijk aan kortste eind](https://www.ad.nl/buitenland/trump-heeft-vrede-nodig-voor-midterms-in-november-oekraine-trekt-mogelijk-aan-kortste-eind~a08ba82b/)
-  > De ‘vredesdiplomaten’ van Donald Trump, Steve Witkoff en Jared Kushner, zijn zaterdag voor het eerst in bijna negen maanden neergestreken in Moskou...
-- [Kans op nog een grote Dick Maas-film is klein: ‘Huub en ik moesten ons eigen geld steken in Amsterdamned II’](https://www.ad.nl/show/kans-op-nog-een-grote-dick-maas-film-is-klein-huub-en-ik-moesten-ons-eigen-geld-steken-in-amsterdamned-ii~acc9bcea/)
-  > Zes films maakten regisseur Dick Maas (75) en acteur Huub Stapel (71) samen. Het zijn iconisch geworden kaskrakers, zoals De Lift, Flodder en...
+- [FC Utrecht-Go Ahead definitief gestaakt door vuurwerk en gooien bekers, dinsdagmiddag hervat zonder fans](https://www.ad.nl/voetbal/fc-utrecht-go-ahead-definitief-gestaakt-door-vuurwerk-en-gooien-bekers-dinsdagmiddag-hervat-zonder-fans~aadf6d7ee/)
+  > De wedstrijd tussen FC Utrecht en Go Ahead Eagles is definitief gestaakt. Tot tweemaal toe maande de scheidsrechter beide ploegen naar binnen: de...
+- [Bayern morst punten tegen promovendus, Quinten Timber wint met Crystal Palace, Inter en Roma ontsnappen in blessuretijd](https://www.ad.nl/voetbal/bayern-morst-punten-tegen-promovendus-quinten-timber-wint-met-crystal-palace-inter-en-roma-ontsnappen-in-blessuretijd~a2b15a04/)
+  > Quinten Timber heeft als basisklant zijn debuut gemaakt bij Crystal Palace. De middenvelder verkaste op Deadline Day van Olympique Marseille naar de...
+- [Topper op rapport: hoogste cijfer voor Julian Brandt, ook PSV’ers blinken uit, vijf onvoldoendes](https://www.ad.nl/voetbal/topper-op-rapport-hoogste-cijfer-voor-julian-brandt-ook-psvers-blinken-uit-vijf-onvoldoendes~ad74a40d/)
+  > In een enerverende topper sloeg PSV de aanval van Ajax af (1-3). In het mooie gevecht ontpopten nieuwelingen op het middenveld van beide ploegen zich...
+- [Belg Alexander Blockx verrast tegen Cobolli, wietlucht zorgt voor ergernis bij Sabalenka](https://www.ad.nl/tennis/belg-alexander-blockx-verrast-tegen-cobolli-wietlucht-zorgt-voor-ergernis-bij-sabalenka~a32e16c8/)
+  > De US Open, laatste grandslamtoernooi van het jaar, is losgebarsten. Door de afwezigheid van de nummer één van de wereld, Jannik Sinner, ligt de...
+- [Tranen bij Yves Berendse in Beste Zangers voordat Desray aan lied begint: ‘Bijzondere betekenis’](https://www.ad.nl/show/tranen-bij-yves-berendse-in-beste-zangers-voordat-desray-aan-lied-begint-bijzondere-betekenis~a7ec5601/)
+  > Zangeres Desray heeft haar collega Yves Berendse zaterdagavond diep geroerd in Beste Zangers. De blondine koos voor een bijzondere ode aan zijn...
 
 ### Meest gelezen
 
