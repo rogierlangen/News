@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-09-2026 om 22:53*
+*Laatst bijgewerkt: 05-09-2026 om 00:44*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Australiër huurt helikopter om vrouw in Nepal te zoeken, nog zeker 5000 vermisten](https://nos.nl/l/2629729)
+  > Een wanhopige Australiër heeft een helikopter gehuurd om zijn vrouw in het rampgebied in Nepal te zoeken. Nog altijd worden zeker 5053 mensen...
 - [Steve Irwin 20 jaar na zijn dood nog steeds inspiratiebron voor dierenliefhebbers](https://nos.nl/l/2629727)
   > Het is twintig jaar geleden dat de Australische dierenexpert en documentairemaker Steve Irwin overleed. Met zijn enthousiasme en liefde voor de...
 - [Jury komt er niet uit: proces tegen vrouw die kinderen wurgde nietig verklaard](https://nos.nl/l/2629724)
@@ -16,8 +18,6 @@
   > Een door nazi's gestolen schilderij uit de zogenoemde Goudstikker-collectie wordt teruggegeven aan een erfgenaam van de Joodse kunstverzamelaar. Een...
 - [Hof in Missouri fluit Republikeinen terug bij slag om kiesdistricten](https://nos.nl/l/2629714)
   > Voor president Trump is het "een zwarte dag voor het recht", voor activisten in Missouri zegeviert dat recht juist. Het Hooggerechtshof van Missouri...
-- [Nieuw tijdperk van superintelligente AI aangebroken, zegt OpenAI](https://nos.nl/l/2629704)
-  > Er is een nieuw tijdperk aangebroken in de wereld van kunstmatige intelligentie (AI), zegt topman Greg Brockman van OpenAI, het bedrijf achter...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [LIVE VS | Trump teruggefloten door rechter Boston, mag strengere regels voor poststemmen niet invoeren](https://www.ad.nl/buitenland/live-vs-trump-teruggefloten-door-rechter-boston-mag-strengere-regels-voor-poststemmen-niet-invoeren~ae67dd9c/)
+  > Een Amerikaanse rechter heeft de regering van president Trump opnieuw verboden strengere regels in te voeren voor stemmen per post. De rechter in...
+- [Opnieuw natuurbrand in zuiden van Frankrijk; met 40 graden nog bijzonder warm](https://www.ad.nl/buitenland/opnieuw-natuurbrand-in-zuiden-van-frankrijk-met-40-graden-nog-bijzonder-warm~a5ec995d/)
+  > In het zuiden van Frankrijk woedt sinds vrijdagnamiddag een brand die inmiddels al zeker 150 hectare natuur heeft ingenomen. Dat zegt de prefect van...
 - [Drie doden bij nieuwe Israëlische aanvallen op Zuid-Libanon om vermeende drone](https://www.ad.nl/buitenland/drie-doden-bij-nieuwe-israelische-aanvallen-op-zuid-libanon-om-vermeende-drone~ac528ac3/)
   > Het Israëlische leger heeft nieuwe aanvallen uitgevoerd op het zuiden van Libanon. Daarbij zijn volgens het Libanese ministerie van Volksgezondheid...
 - [Meer dan 1000 transfers: Nederlandse clubs sluiten drukste transferzomer in jaren af, dit zijn de cijfers](https://www.ad.nl/voetbal/meer-dan-1000-transfers-nederlandse-clubs-sluiten-drukste-transferzomer-in-jaren-af-dit-zijn-de-cijfers~a93f4116/)
   > Het aantal transfers in het Nederlandse betaald voetbal blijft stijgen. De KNVB registreerde afgelopen zomertransferperiode 861 transfers bij de...
 - [Cody Gakpo blinkt uit na transfersoap, heldenrol Troy Parrott (ex-AZ) en Kylian Mbappé de schlemiel](https://www.ad.nl/voetbal/cody-gakpo-blinkt-uit-na-transfersoap-heldenrol-troy-parrott-ex-az-en-kylian-mbappe-de-schlemiel~ad7874f1/)
   > Liverpool heeft de eerste zege van het nieuwe Premier League-seizoen te pakken. Na twee gelijke spelen won de ploeg van Andoni Iraola met 0-2 bij...
-- [Carlos Alcaraz plaatst zich eenvoudig voor vierde ronde, wietlucht zorgt voor ergernis bij Sabalenka](https://www.ad.nl/tennis/carlos-alcaraz-plaatst-zich-eenvoudig-voor-vierde-ronde-wietlucht-zorgt-voor-ergernis-bij-sabalenka~a32e16c8/)
-  > De US Open, laatste grandslamtoernooi van het jaar, is losgebarsten. Door de afwezigheid van de nummer één van de wereld, Jannik Sinner, ligt de...
-- [In Overasselt gewond geraakte agent weer thuis, andere agent van ic af](https://www.ad.nl/binnenland/in-overasselt-gewond-geraakte-agent-weer-thuis-andere-agent-van-ic-af~aab07e7b/)
-  > Een van de twee agenten die eerder deze week gewond raakten bij de schietpartij in Overasselt heeft het ziekenhuis verlaten en herstelt momenteel...
 
 ### Meest gelezen
 
