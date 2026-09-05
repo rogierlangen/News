@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-09-2026 om 00:44*
+*Laatst bijgewerkt: 05-09-2026 om 05:24*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Australiër huurt helikopter om vrouw in Nepal te zoeken, nog zeker 5000 vermisten](https://nos.nl/l/2629729)
-  > Een wanhopige Australiër heeft een helikopter gehuurd om zijn vrouw in het rampgebied in Nepal te zoeken. Nog altijd worden zeker 5053 mensen...
-- [Steve Irwin 20 jaar na zijn dood nog steeds inspiratiebron voor dierenliefhebbers](https://nos.nl/l/2629727)
-  > Het is twintig jaar geleden dat de Australische dierenexpert en documentairemaker Steve Irwin overleed. Met zijn enthousiasme en liefde voor de...
-- [Jury komt er niet uit: proces tegen vrouw die kinderen wurgde nietig verklaard](https://nos.nl/l/2629724)
-  > Een rechter in de Verenigde Staten heeft het geruchtmakende proces tegen Lindsay Clancy nietig verklaard, nadat de jury na dagenlang beraad niet tot...
-- [Door nazi's geroofd schilderij uit Argentijnse woonkamer terug naar erfgenaam](https://nos.nl/l/2629715)
-  > Een door nazi's gestolen schilderij uit de zogenoemde Goudstikker-collectie wordt teruggegeven aan een erfgenaam van de Joodse kunstverzamelaar. Een...
-- [Hof in Missouri fluit Republikeinen terug bij slag om kiesdistricten](https://nos.nl/l/2629714)
-  > Voor president Trump is het "een zwarte dag voor het recht", voor activisten in Missouri zegeviert dat recht juist. Het Hooggerechtshof van Missouri...
+- [Podcast De Dag: als de AfD het voor het zeggen krijgt in Saksen-Anhalt](https://nos.nl/l/2629739)
+  > De rechtsradicale partij stevent af op een forse verkiezingswinst in de Duitse deelstaat en zou daar niet alleen de grootste partij kunnen worden,...
+- [Charismatische parfumverkoper leidt AfD in Saksen-Anhalt mogelijk naar absolute macht](https://nos.nl/l/2629738)
+  > Ulrich Siegmund straalt van oor tot oor. Bij een campagnebijeenkomst wordt de leider van de AfD in Saksen-Anhalt, zoals overal waar hij komt,...
+- [Wekdienst 5/9: Gezanten VS naar Rusland en Oekraïne • Topper Ajax-PSV](https://nos.nl/l/2629737)
+  > Goedemorgen! De Amerikaanse gezanten Steve Witkoff en Jared Kushner gaan naar Moskou en Kyiv. En in Amsterdam wordt de topper tussen Ajax en PSV...
+- [Politiek dwarsboomt eigen toezichthouder statiegeld: 'We zijn minder effectief'](https://nos.nl/l/2629733)
+  > Bewindslieden van het ministerie van Infrastructuur en Waterstaat hebben de eigen toezichthouder herhaaldelijk gedwarsboomd bij het handhaven van de...
+- [Betwiste Florentiner-diamant voor het eerst in honderd jaar weer te zien](https://nos.nl/l/2629732)
+  > De wereldberoemde Florentiner-diamant is na een eeuw weer te zien in een museum. Dit weekend opent een tentoonstelling in de Canadese stad Quebec,...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE VS | Trump teruggefloten door rechter Boston, mag strengere regels voor poststemmen niet invoeren](https://www.ad.nl/buitenland/live-vs-trump-teruggefloten-door-rechter-boston-mag-strengere-regels-voor-poststemmen-niet-invoeren~ae67dd9c/)
-  > Een Amerikaanse rechter heeft de regering van president Trump opnieuw verboden strengere regels in te voeren voor stemmen per post. De rechter in...
-- [Opnieuw natuurbrand in zuiden van Frankrijk; met 40 graden nog bijzonder warm](https://www.ad.nl/buitenland/opnieuw-natuurbrand-in-zuiden-van-frankrijk-met-40-graden-nog-bijzonder-warm~a5ec995d/)
-  > In het zuiden van Frankrijk woedt sinds vrijdagnamiddag een brand die inmiddels al zeker 150 hectare natuur heeft ingenomen. Dat zegt de prefect van...
-- [Drie doden bij nieuwe Israëlische aanvallen op Zuid-Libanon om vermeende drone](https://www.ad.nl/buitenland/drie-doden-bij-nieuwe-israelische-aanvallen-op-zuid-libanon-om-vermeende-drone~ac528ac3/)
-  > Het Israëlische leger heeft nieuwe aanvallen uitgevoerd op het zuiden van Libanon. Daarbij zijn volgens het Libanese ministerie van Volksgezondheid...
-- [Meer dan 1000 transfers: Nederlandse clubs sluiten drukste transferzomer in jaren af, dit zijn de cijfers](https://www.ad.nl/voetbal/meer-dan-1000-transfers-nederlandse-clubs-sluiten-drukste-transferzomer-in-jaren-af-dit-zijn-de-cijfers~a93f4116/)
-  > Het aantal transfers in het Nederlandse betaald voetbal blijft stijgen. De KNVB registreerde afgelopen zomertransferperiode 861 transfers bij de...
-- [Cody Gakpo blinkt uit na transfersoap, heldenrol Troy Parrott (ex-AZ) en Kylian Mbappé de schlemiel](https://www.ad.nl/voetbal/cody-gakpo-blinkt-uit-na-transfersoap-heldenrol-troy-parrott-ex-az-en-kylian-mbappe-de-schlemiel~ad7874f1/)
-  > Liverpool heeft de eerste zege van het nieuwe Premier League-seizoen te pakken. Na twee gelijke spelen won de ploeg van Andoni Iraola met 0-2 bij...
+- [De wondere wereld van Wout Weghorst: ‘Hij is niet van het halve werk, met alles wat hij doet’](https://www.ad.nl/voetbal/de-wondere-wereld-van-wout-weghorst-hij-is-niet-van-het-halve-werk-met-alles-wat-hij-doet~af6d94ed/)
+  > Hij is de meest besproken speler van de eredivisie: Wout Weghorst (34). Hoe ziet zijn wereld eruit? Een profiel van een zelfbewuste spits die steun...
+- [Lokkooi met levende schapen om wolf te vangen, Faunabescherming eist ingrijpen](https://www.ad.nl/binnenland/lokkooi-met-levende-schapen-om-wolf-te-vangen-faunabescherming-eist-ingrijpen~a01528b70/)
+  > Er blijkt al maanden een lokkooi met schapen op de Hoge Veluwe te staan. Daarmee probeert Wageningen Universiteit wolven te vangen om ze vervolgens...
+- [Thuisonderwijs wordt bijna volledig afgeschaft: thuisscholieren sturen boze brieven](https://www.ad.nl/binnenland/thuisonderwijs-wordt-bijna-volledig-afgeschaft-thuisscholieren-sturen-boze-brieven~af9374ef/)
+  > Na dit schooljaar moeten zo’n 2500 Nederlandse kinderen die thuisonderwijs krijgen verplicht naar school. De kinderen zijn in verzet gekomen.
+- [Isaac Babadi is snelst scorende Sparta-debutant ooit: ‘Hoe optimistisch ik ook ben, dit had ik niet bedacht’](https://www.ad.nl/regiosport-rotterdam/isaac-babadi-is-snelst-scorende-sparta-debutant-ooit-hoe-optimistisch-ik-ook-ben-dit-had-ik-niet-bedacht~a833d960/)
+  > Was er een mooier debuut denkbaar voor Isaac Babadi? Absoluut. Als de pijlsnelle treffer na zijn invalbeurt tegen PEC Zwolle ook nog eens de winnende...
+- [Jongen (13) op crossmotor overlijdt na botsing met tractor, verdachte verloor kort daarvoor eigen zoon](https://www.ad.nl/binnenland/jongen-13-op-crossmotor-overlijdt-na-botsing-met-tractor-verdachte-verloor-kort-daarvoor-eigen-zoon~a6b7a720/)
+  > Als kleine jongen had hij al een enorme passie voor alles met een motortje. Op z’n dertiende is crossen zijn lust en zijn leven. En dan, op een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Crisis? De Nederlandse economie en industrie doen het in stilte prima](https://fd.nl/politiek/1611222/crisis-de-nederlandse-economie-en-industrie-doen-het-in-stilte-prima)
-  > Er zijn nu een stuk meer optimisten dan pessimisten onder de Nederlandse industriëlen, al tonen ze dat optimisme niet dagelijks in interviews.
-- [Streetwearlabel Aiche: ‘We hebben veel potentie, maar staren ons niet blind op groei’](https://fd.nl/samenleving/1610963/streetwearlabel-aiche-we-hebben-veel-potentie-maar-staren-ons-niet-blind-op-groei)
-  > Samen met Tim Sluijzer (1998) lanceerde Milki Abadura (1997) in 2019 Aiche, een merk met T-shirts. Onlangs showden ze hun couturecollectie op de...
-- [(On)waarschijnlijke complotten](https://fd.nl/opinie/1610933/on-waarschijnlijke-complotten)
-  > De actualiteit barst van de matig verklaarbare gebeurtenissen. Wie sloopt al die Duitse stroomleidingen? En waar komen al die alpaca's vandaan?
-- [Personalia zaterdag 5 september](https://fd.nl/bedrijfsleven/1611125/personalia-zaterdag-5-september)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Dalende koersen op Wall Street na meevallende banencijfers](https://fd.nl/financiele-markten/1611145/dalende-koersen-op-wall-street-na-meevallende-banencijfers)
-  > Analisten gaan ervan uit dat de banencijfers de weg vrijmaken voor de Federal Reserve om de rente te verhogen. Dat nieuws deed de koersen op de...
+- [Ontwikkel een Europese managementstijl van wereldklasse](https://fd.nl/opinie/1611189/zorg-naast-keurmerk-made-in-europe-ook-voor-managed-as-in-europa)
+  > Hoewel wij voor managementgoeroes naar de Verenigde Staten kijken, vinden we de ingrediënten voor goede managementpraktijken ook dichter bij huis....
+- [Trump, Warsh of Bessent: wie krijgt de rente omlaag? En moeten banken ons geld blijven maken?](https://fd.nl/economie/1611228/trump-warsh-of-bessent-wie-krijgt-de-rente-omlaag-en-moeten-banken-ons-geld-blijven-maken)
+  > In deze Toegevoegde Waarde bespreken Anna Dijkman en Marijn Jongsma hoe het rentetrio – Trump, Warsh en Bessent – met en tegen elkaar de rente wil...
+- [Gezocht: baas die kan coachen, maar ook durft te bazen](https://fd.nl/bedrijfsleven/1610907/gezocht-baas-die-kan-coachen-maar-ook-durft-te-bazen)
+  > Steeds meer werknemers vallen uit met mentale klachten. Hun managers moeten dat zien te voorkomen, maar voelen zich onzeker. ‘Straks zeg ik het...
+- [Na het ‘Satisfyer-effect’ hoopt EasyToys op het ‘Johan Derksen-effect’](https://fd.nl/bedrijfsleven/1610713/na-het-satisfyer-effect-hoopt-easytoys-op-het-johan-derksen-effect)
+  > Als nieuwe ceo van het bedrijf achter EasyToys had Anneke Kamphuis (41) meteen genoeg te doen. Nu wil ze het taboe op seksspeeltjes voor mannen...
+- [Toezicht was jarenlang heilig in Nederland, maar hoelang nog?](https://fd.nl/politiek/1610913/toezicht-was-jarenlang-heilig-in-nederland-maar-hoelang-nog)
+  > De reorganisatie bij DNB na jaren van groei staat niet op zichzelf. Alle toezichthouders zijn enorm uitgebreid, net als de rest van de overheid. En...
 
 ### Meest gelezen
 
