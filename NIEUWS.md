@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-09-2026 om 12:42*
+*Laatst bijgewerkt: 06-09-2026 om 16:02*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Opnieuw explosie in Zaandam, waar 'verschillende conflicten' spelen](https://nos.nl/l/2629912)
-  > In Zaandam heeft vannacht opnieuw een explosie plaatsgevonden. De ontploffing was dit keer bij een woning aan de Rode Zee. De regio Zaandam wordt al...
-- [Bus stort in ravijn in Kaapverdië: minstens 25 doden, onder wie veel scholieren](https://nos.nl/l/2629909)
-  > Bij een busongeluk op het Kaapverdische eiland Fogo zijn gisteravond zeker 25 mensen om het leven gekomen. Ook raakten minstens twaalf inzittenden...
-- [Nieuwe arrestatie in onderzoek naar geweld in Overasselt](https://nos.nl/l/2629906)
-  > De politie heeft een nieuwe verdachte aangehouden in het onderzoek naar het geweld in Overasselt. Het gaat om een 26-jarige man met de Belgische...
-- [Kabinet denkt aan verlagen gasvoorraad, 'maar elke kachel blijft branden'](https://nos.nl/l/2629904)
-  > Het kabinet overweegt het vuldoel van 80 procent van de gasopslagen fors te gaan verlagen. Volgens minister Van Veldhoven kan dat, zonder dat mensen...
-- [Voetbalclubs vormen afgeschermde competities vanwege agressie op de velden](https://nos.nl/l/2629903)
-  > Voetbalverenigingen in de Randstad starten aparte competities voor veteranen uit ergernis over de agressieve sfeer tijdens veel...
+- [Koninklijke familie herdenkt overleden prins Claus, op zijn 100ste geboortedag](https://nos.nl/l/2629953)
+  > Prins Claus is in Duitsland herdacht in het bijzijn van prinses Beatrix, koning Willem-Alexander en prins Constantijn. Claus was de man van Beatrix,...
+- [Gebouw Hogeschool Utrecht weken dicht vanwege grote waterschade](https://nos.nl/l/2629941)
+  > Een gebouw van de Hogeschool Utrecht (HU) aan de Padualaan 97 is voorlopig gesloten vanwege grote waterschade. Tijdens werkzaamheden op de vijfde...
+- [Spugen, schelden en soms klappen, maar veteranen Quick weigeren op te geven](https://nos.nl/l/2629935)
+  > Amateurvoetbal in een stad als Den Haag kan bijzonder ontspannend zijn, maar ook een bron van irritatie, scheldpartijen en zelfs geweld. Sommige...
+- [Ontsnapte serval Tilburg gevangen bij buurvrouw: 'Hij rook mijn kippen al maanden'](https://nos.nl/l/2629930)
+  > De serval die gisteren in een woonwijk in Tilburg ontsnapte, is terecht. De katachtige werd vanochtend in een tuin van een van de buren gevangen.
+   ...
+- [Na bezoek aan Poetin spraken Amerikaanse gezanten met Zelensky: 'Zeer bemoedigend'](https://nos.nl/l/2629926)
+  > Na gisteren volgens Rusland "constructieve gesprekken" te hebben gevoerd met president Poetin, hadden de Amerikaanse gezanten Steve Witkoff en Jared...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Eerste kans direct raak voor AZ: Ro-Zangelo Daal opent op fraaie wijze score tegen Heerenveen](https://www.ad.nl/voetbal/eerste-kans-direct-raak-voor-az-ro-zangelo-daal-opent-op-fraaie-wijze-score-tegen-heerenveen~a56ea5ee/)
-  > AZ kent een droomstart in de Vriendenloterij eredivisie. De Alkmaarders wonnen de eerste vier wedstrijden in de competitie. Vandaag gaat de ploeg op...
-- [Miran (2) was pas 25 weken toen hij geboren werd: ‘Zijn hoofdje was zo klein als een mandarijn’](https://www.ad.nl/binnenland/miran-2-was-pas-25-weken-toen-hij-geboren-werd-zijn-hoofdje-was-zo-klein-als-een-mandarijn~a6a8c463/)
-  > Miran (2) werd geboren na 25 weken zwangerschap en lag 110 dagen op de afdeling neonatologie van het Erasmus MC. De vroeggeboorte laat diepe sporen...
-- [Enric Mas wil goede uitgangspositie behouden in verkorte heuvelrit door hitte, Visma gaat voor vijfde dagzege](https://www.ad.nl/vuelta/enric-mas-wil-goede-uitgangspositie-behouden-in-verkorte-heuvelrit-door-hitte-visma-gaat-voor-vijfde-dagzege~a724d572/)
-  > De spanning stijgt in de Vuelta, maar dat geldt zeker ook voor het kwik in Spanje. Wegens de bloedhitte heeft de organisatie besloten de vijftiende...
-- [FC Twente houdt dankzij Wout Weghorst punt over aan vermakelijk duel met FC Groningen](https://www.ad.nl/voetbal/fc-twente-houdt-dankzij-wout-weghorst-punt-over-aan-vermakelijk-duel-met-fc-groningen~a4b0c7ab/)
-  > Een spectaculaire eerste helft kreeg na rust geen vervolg: FC Groningen en FC Twente hielden elkaar op 2-2. Wout Weghorst was opnieuw trefzeker en...
-- [Kan Max Verstappen ondanks klachten over Red Bull-auto meedoen in strijd om podiumplaatsen?](https://www.ad.nl/formule-1/kan-max-verstappen-ondanks-klachten-over-red-bull-auto-meedoen-in-strijd-om-podiumplaatsen~ac2ffd882/)
-  > Het belooft een enerverende Grand Prix van Italië te worden. Pierre Gasly vertrekt verrassend van pole met titelkandidaat George Russell achter zich,...
+- [Hidde en Bowdy genieten van de vrijheid met hun Mercedes-camper: ‘Als ik ernaast zit ben ik de passenger princess’](https://www.ad.nl/auto/hidde-en-bowdy-genieten-van-de-vrijheid-met-hun-mercedes-camper-als-ik-ernaast-zit-ben-ik-de-passenger-princess~a937d55d/)
+  > Op vakantie met de camper is er bij Bowy Kramers (23) uit Amersfoort met de paplepel ingegoten. Met haar familie was het altijd al de manier van...
+- [LIVE eredivisie | Eduardo brengt de spanning terug: spits ADO Den Haag zorgt voor aansluitingstreffer tegen Fortuna](https://www.ad.nl/voetbal/live-eredivisie-eduardo-brengt-de-spanning-terug-spits-ado-den-haag-zorgt-voor-aansluitingstreffer-tegen-fortuna~a835e7a4/)
+  > ADO Den Haag verkeert in problemen tegen het Fortuna Sittard, dat met 0-2 leidt. Mohamed Ihattaren opent met een gelukstreffer de score en levert...
+- [Klassementen Vuelta | Leider Enric Mas met ruime marge slotweek in: dit zijn de verschillen](https://www.ad.nl/wielrennen/klassementen-vuelta-leider-enric-mas-met-ruime-marge-slotweek-in-dit-zijn-de-verschillen~a489ecf1/)
+  > De 81ste editie van de Vuelta a España is in volle gang. De derde en laatste grote ronde van het jaar duurt tot en met 13 september. Topfavoriet...
+- [Havertz maakt verdiende gelijkmaker namens Arsenal tegen Chelsea](https://www.ad.nl/voetbal/havertz-maakt-verdiende-gelijkmaker-namens-arsenal-tegen-chelsea~a22698ee/)
+  > Koploper Arsenal is feilloos door de seizoensstart gekomen en wordt vandaag voor het eerst écht getest. Na een boeiende transferperiode komt Chelsea...
+- [Kushner en Witkoff praten uren met Poetin en Zelensky, maar een akkoord is nog lang niet in zicht](https://www.ad.nl/buitenland/kushner-en-witkoff-praten-uren-met-poetin-en-zelensky-maar-een-akkoord-is-nog-lang-niet-in-zicht~a7a7e5be/)
+  > De regering-Trump doet een nieuwe poging om de oorlog in Oekraïne te stoppen. Daarvoor reisden vredesgezanten Jared Kushner en Steve Witkoff dit...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Andy Burnham moet kleur bekennen: extra boren in de Noordzee, of niet?](https://fd.nl/politiek/1610974/andy-burnham-moet-kleur-bekennen-extra-boren-in-de-noordzee-of-niet)
-  > De Britse regering moet een besluit nemen over twee nieuwe olie- en gasvelden in de Noordzee. Kiest premier Burnham voor het klimaat of voor de...
-- [Modderstroom ook verwoestend voor de waterkrachtplannen van Nepal](https://fd.nl/samenleving/1610973/modderstroom-ook-verwoestend-voor-de-waterkrachtplannen-van-nepal)
-  > Het hooggebergte leent zich goed voor waterkracht maar smeltende gletsjers brengen veel projecten in aanbouw in gevaar.
-- [Beschietingen over en weer in de Straat van Hormuz](https://fd.nl/politiek/1611275/beschietingen-over-en-weer-in-de-straat-van-hormuz)
-  > Het Amerikaanse leger heeft drie Iraanse olietankers aangevallen in de Straat van Hormuz. Een is inmiddels gezonken.
-- [Na drie jaar procederen lonkt het einde voor het aandeel SnowWorld](https://fd.nl/financiele-markten/1611116/na-drie-jaar-procederen-lonkt-het-einde-voor-het-aandeel-snowworld)
-  > Miljardair Marc Coucke haalde SnowWorld in 2023 van de beurs, maar er loopt nog steeds een rechtszaak over. Een vader en zoon uit Limburg eisen een...
-- [‘Skin in the game’ voor commissarissen](https://fd.nl/financiele-markten/1611224/skin-in-the-game-voor-commissarissen)
-  > Als commissarissen een belang hebben bij goed presteren, zijn ze alerter en dat is goed voor iedereen. Daarvoor pleit Cevian Capital, een van...
+- [Milieudefensie: risico dat steun Tata Steel veel hoger uitkomt dan €2 mrd](https://fd.nl/bedrijfsleven/1611150/milieudefensie-risico-dat-steun-tata-steel-veel-hoger-uitkomt-dan-2-mrd)
+  > Uit berekeningen zou blijken dat de subsidie tot 2045 kan oplopen tot bijna €11 mrd. Tata Steel zegt in een reactie dat er wordt gewerkt met...
+- [Schrale oogst bij beleggen in wijn, maar wie neus heeft voor topwijnen kan nog steeds scoren](https://fd.nl/financiele-markten/1611038/schrale-oogst-bij-beleggen-in-wijn-maar-wie-neus-heeft-voor-topwijnen-kan-nog-steeds-scoren)
+  > De rendementen voor beleggers in wijn waren de afgelopen jaren slecht. Maar wie het slim speelt, kan nog voldoende verdienen, is de ervaring van...
+- [China pompt miljarden in financiële sector](https://fd.nl/economie/1611279/china-pompt-miljarden-in-financiele-sector)
+  > De druk van Peking om meer goedkope kredieten te verlenen, zet de winstgevendheid van banken en verzekeraars onder druk.
+- [Heineken-dochter verwikkeld in grote machtsmisbruikzaak in Oostenrijk](https://fd.nl/bedrijfsleven/1610807/heineken-dochter-verwikkeld-in-grote-machtsmisbruikzaak-in-oostenrijk)
+  > Brau Union zette onafhankelijke drankdistributeurs onder druk om louter merken van deze brouwer te verkopen, stelt de Oostenrijkse...
+- [Een drugslab levert een ongekend rendement op](https://fd.nl/financiele-markten/1611118/een-drugslab-levert-een-ongekend-rendement-op)
+  > Return on investment kan bij de productie van drugs oplopen tot meer dan 600%.
 
 ### Meest gelezen
 
