@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-09-2026 om 23:38*
+*Laatst bijgewerkt: 06-09-2026 om 03:46*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Vluchten Jakarta uitgesteld vanwege uitbarsting vulkaan Anak Krakatau](https://nos.nl/l/2629868)
+  > De Indonesische vulkaan Anak Krakatau is vanochtend uitgebarsten. Omdat vulkanische as over delen van West-Indonesië dreef, werden alle vluchten op...
+- [Kandidaat Griekse Expeditie Robinson klaagt producenten aan na verliezen been](https://nos.nl/l/2629866)
+  > Een Griek die in mei zwaargewond raakte bij Survivor Greece, de Griekse versie van Expeditie Robinson, klaagt de producenten van de serie in de...
 - [Gesprekken Poetin met VS over Oekraïne klaar, Rusland: 'Was constructief gesprek'](https://nos.nl/l/2629865)
   > De Russische president Vladimir Poetin heeft gisteren de Amerikaanse gezanten Steve Witkoff en Jared Kushner gesproken in het Kremlin. Onderwerp van...
 - [Vijf kinderen in Australië gewond door weggewaaide springkussens](https://nos.nl/l/2629864)
@@ -15,11 +19,6 @@
 - [President Poetin ontvangt Amerikaanse gezanten Kushner en Witkoff in Kremlin](https://nos.nl/l/2629841)
   > De ontmoeting in het Kremlin tussen de Russische president Vladimir Poetin en de Amerikaanse gezanten Steve Witkoff en Jared Kushner is begonnen.
    ...
-- [Kind overleden na aanrijding met veegwagen in Leeuwarden](https://nos.nl/l/2629829)
-  > Een jong kind is na een aanrijding met een veegwagen in Leeuwarden overleden.
-        Het fatale ongeluk gebeurde rond 17.30 uur aan de...
-- [Belangrijke internationale afspraken gemaakt over killerrobots](https://nos.nl/l/2629828)
-  > In Genève hebben 128 landen een belangrijke stap gezet om te voorkomen dat het in de toekomst uit de hand loopt met killerrobots. Het gaat om...
 
 ### Meest gelezen
 
@@ -29,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Duitse Isar doet tweede testvlucht met raket vanuit Noorwegen](https://www.ad.nl/buitenland/duitse-isar-doet-tweede-testvlucht-met-raket-vanuit-noorwegen~aed5dbef/)
-  > De Duitse raketstartup Isar Aerospace heeft zaterdag zijn tweede testvlucht met een raket uitgevoerd vanuit het Noorse Andøya. Isar lanceerde zijn...
-- [Amerikaanse gezanten Witkoff en Kushner hadden ‘buitengewoon openhartig’ gesprek met Poetin](https://www.ad.nl/buitenland/amerikaanse-gezanten-witkoff-en-kushner-hadden-buitengewoon-openhartig-gesprek-met-poetin~adfb97be/)
-  > Poetin heeft de Amerikaanse gezanten Steve Witkoff en Jared Kushner ontvangen in Moskou. Volgens het Kremlin duurden de gesprekken zo’n drie uur en...
-- [FC Utrecht-Go Ahead definitief gestaakt door vuurwerk en gooien bekers, dinsdagmiddag hervat zonder fans](https://www.ad.nl/voetbal/fc-utrecht-go-ahead-definitief-gestaakt-door-vuurwerk-en-gooien-bekers-dinsdagmiddag-hervat-zonder-fans~aadf6d7ee/)
-  > De wedstrijd tussen FC Utrecht en Go Ahead Eagles is definitief gestaakt. Tot tweemaal toe maande de scheidsrechter beide ploegen naar binnen: de...
-- [Quinten Timber wint met Crystal Palace, Inter en Roma ontsnappen in blessuretijd](https://www.ad.nl/voetbal/quinten-timber-wint-met-crystal-palace-inter-en-roma-ontsnappen-in-blessuretijd~a2b15a04/)
-  > Quinten Timber heeft als basisklant zijn debuut gemaakt bij Crystal Palace. De middenvelder verkaste op Deadline Day van Olympique Marseille naar de...
-- [Topper op rapport: hoogste cijfer voor Julian Brandt, ook PSV’ers blinken uit, vijf onvoldoendes](https://www.ad.nl/voetbal/topper-op-rapport-hoogste-cijfer-voor-julian-brandt-ook-psvers-blinken-uit-vijf-onvoldoendes~ad74a40d/)
-  > In een enerverende topper sloeg PSV de aanval van Ajax af (1-3). In het mooie gevecht ontpopten nieuwelingen op het middenveld van beide ploegen zich...
+- [Luchthaven van Jakarta schort vluchten op na vulkaanuitbarsting](https://www.ad.nl/buitenland/luchthaven-van-jakarta-schort-vluchten-op-na-vulkaanuitbarsting~a1b3c7c9/)
+  > In de Indonesische hoofdstad Jakarta zijn de activiteiten op de luchthaven van Soekarno-Hatta zondag tijdelijk stilgelegd. Door een uitbarsting van...
+- [LIVE US Open | Van de Zandschulp bereikt vierde ronde US Open na slopende vijfsetter tegen Belg Bergs](https://www.ad.nl/tennis/live-us-open-van-de-zandschulp-bereikt-vierde-ronde-us-open-na-slopende-vijfsetter-tegen-belg-bergs~a21d809b/)
+  > Botic van de Zandschulp is ijzersterk bezig aan de laatste grandslam van het seizoen. Op de US Open bereikte de Nederlander zaterdag de vierde ronde...
+- [LIVE US Open | Mertens niet opgewassen tegen Osaka, Blockx verrast wel tegen Cobolli](https://www.ad.nl/tennis/live-us-open-mertens-niet-opgewassen-tegen-osaka-blockx-verrast-wel-tegen-cobolli~a32e16c8/)
+  > De US Open, laatste grandslamtoernooi van het jaar, is losgebarsten. Door de afwezigheid van de nummer één van de wereld, Jannik Sinner, ligt de...
+- [Vijf kinderen gewond geraakt door wegwaaiende springkussens in Australië](https://www.ad.nl/buitenland/vijf-kinderen-gewond-geraakt-door-wegwaaiende-springkussens-in-australie~ae2a19ab/)
+  > In Australië zijn zaterdag vijf kinderen gewond geraakt bij twee afzonderlijke incidenten met wegwaaiende springkussens, in Victoria en New South...
+- [Seddik Errais zegt onschuldig te zijn aan vergismoord: ‘Mijn tranen zijn op en ikzelf ook, wat heb ik misdaan?’](https://www.ad.nl/buitenland/seddik-errais-zegt-onschuldig-te-zijn-aan-vergismoord-mijn-tranen-zijn-op-en-ikzelf-ook-wat-heb-ik-misdaan~a1e62f61/)
+  > De Marokkaans-Nederlandse Seddik Errais uit Maastricht zit al negen jaar in een van de strengste gevangenissen van Marokko, tussen terroristen en...
 
 ### Meest gelezen
 
@@ -48,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Luisterverhaal: Goedkope kleding uit Azië sloopt de Argentijnse textielindustrie](https://fd.nl/samenleving/1611127/luisterverhaal-goedkope-kleding-uit-azie-sloopt-de-argentijnse-textielindustrie)
+  > Deze week hoor je hoe de Argentijnse president zijn eigen markt bepaald niet voortrekt.
 - [Twaalf explosieven gevonden bij hoogspanningsleidingen in oosten Duitsland](https://fd.nl/politiek/1611147/twaalf-explosieven-gevonden-bij-hoogspanningsleidingen-in-oosten-duitsland)
   > Het Duitse elektriciteitsnet was deze week meermaals doelwit van sabotageacties.
 - [Saksen-Anhalt stemt, Duitsland zit op het puntje van de stoel](https://fd.nl/politiek/1611274/saksen-anhalt-stemt-duitsland-zit-op-het-puntje-van-de-stoel)
@@ -56,8 +57,6 @@
   > Dat schrijft de Britse zakenkrant the Financial Times.
 - [VN stemt voor wereldkaart die Afrika op schaal afbeeldt](https://fd.nl/politiek/1611271/vn-stemt-voor-wereldkaart-die-afrika-op-schaal-afbeeldt)
   > Afrika lijkt op gangbare kaarten kleiner dan het continent is.
-- [Witkoff en Kushner in Moskou voor ontmoeting met Poetin, ‘zondag naar Kyiv’](https://fd.nl/politiek/1611146/witkoff-en-kushner-reizen-naar-moskou-en-kyiv-met-vredesvoorstel)
-  > Het zou voor het eerst zijn dat de twee Amerikaanse onderhandelaars naar Oekraïne reizen.
 
 ### Meest gelezen
 
