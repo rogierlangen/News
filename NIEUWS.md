@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-09-2026 om 21:11*
+*Laatst bijgewerkt: 06-09-2026 om 23:37*
 
 ---
 
@@ -8,6 +8,11 @@
 
 ### Laatste nieuws
 
+- [Tientallen slachtoffers door vuurwerkexplosie bij kerk in Mexico](https://nos.nl/l/2629991)
+  > Een vuurwerkexplosie bij een kerk in Mexico heeft aan zeker tien mensen het leven gekost. Tientallen mensen raakten gewond, onder wie ook kinderen.
+ ...
+- [Recordbedrag opgehaald met City Swim door Amsterdamse grachten](https://nos.nl/l/2629990)
+  > De City Swim door de Amsterdamse grachten heeft vanmiddag een recordbedrag van ruim 3 miljoen euro opgehaald. Dat is flink meer dan het bedrag vorig...
 - [Amazon-vrachtvliegtuig schiet door na landing en raakt auto's bij luchthaven Miami](https://nos.nl/l/2629983)
   > Bij Miami International Airport is een Boeing 767-vrachtvliegtuig van webwinkelgigant Amazon op een nabijgelegen weg terechtgekomen.
         Volgens...
@@ -15,10 +20,6 @@
   > Tienduizenden Russisch-orthodoxe gelovigen hebben vandaag deelgenomen aan een urenlange processie in het centrum van Moskou. Met patriarch Kirill aan...
 - [Morgen voorlopig laatste zomerachtige dag, daarna ander weer](https://nos.nl/l/2629973)
   > "Misschien is dit het laatste weekend met zomers weer." Dat heb je de afgelopen dagen misschien zelf gedacht of in je omgeving gehoord....
-- [Deense koningin Margrethe opgenomen in ziekenhuis na onwelwording](https://nos.nl/l/2629970)
-  > De Deense koningin Margrethe is opgenomen in het Rigshospitalet in Kopenhagen. Ze werd naar het ziekenhuis gebracht nadat ze onwel was geworden. Dat...
-- [Monsterzege AfD in Saksen-Anhalt, nog onzeker of partij alleen kan regeren](https://nos.nl/l/2629958)
-  > De rechts-radicale partij Alternative für Deutschland (AfD) is in de Duitse deelstaat Saksen-Anhalt zoals verwacht de grootste geworden. De partij...
 
 ### Meest gelezen
 
@@ -28,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Michael van Gerwen verliest in halve finale in Praag van Luke Littler, die daarna ook Luke Humphries verslaat](https://www.ad.nl/darts/michael-van-gerwen-verliest-in-halve-finale-in-praag-van-luke-littler-die-daarna-ook-luke-humphries-verslaat~ae194b59/)
-  > Michael van Gerwen is op de Czech Darts Open uitgeschakeld in de halve finales. Mighty Mike kwam tegen wereldkampioen Luke Littler niet in de buurt...
-- [Vliegtuig schiet door na landing bij luchthaven Miami en raakt meerdere auto’s](https://www.ad.nl/buitenland/vliegtuig-schiet-door-na-landing-bij-luchthaven-miami-en-raakt-meerdere-autos~aa605cbc/)
-  > Een vrachtvliegtuig van Amazon Prime Air, een Boeing 767, is zondag aan het einde van een landingsbaan op Miami International Airport doorgeschoten...
-- [Alcaraz en Sabalenka verder in New York, Van de Zandschulp weet wanneer hij speelt voor plek in kwartfinale](https://www.ad.nl/tennis/alcaraz-en-sabalenka-verder-in-new-york-van-de-zandschulp-weet-wanneer-hij-speelt-voor-plek-in-kwartfinale~a32e16c8/)
-  > De US Open, het laatste grandslamtoernooi van het jaar, is losgebarsten. Door de afwezigheid van de nummer één van de wereld, Jannik Sinner, ligt de...
-- [Verslaggever Guy Hoeks: ‘Eerste winst voor extreemrechts in 96 jaar is voor veel Duitsers echt even slikken’](https://www.ad.nl/buitenland/verslaggever-guy-hoeks-eerste-winst-voor-extreemrechts-in-96-jaar-is-voor-veel-duitsers-echt-even-slikken~ac94a65a/)
-  > Het extreemrechtse Alternative für Deutschland (AfD) heeft zoals verwacht een monsterzege behaald in de Oost-Duitse deelstaat Saksen-Anhalt. Wat...
-- [George Russell erkent zijn meerdere in Kimi Antonelli: ‘Het was alsof hij geen straf had’](https://www.ad.nl/formule-1/george-russell-erkent-zijn-meerdere-in-kimi-antonelli-het-was-alsof-hij-geen-straf-had~afd17814/)
-  > De Formule 1 dendert door in deze periode. Er staan maar liefst elf races in de komende veertien weken gepland. Te beginnen bij de Grand Prix van...
+- [Extreemrechtse demonstranten proberen migranten tegen te houden in Britse havenstad Portsmouth](https://www.ad.nl/buitenland/extreemrechtse-demonstranten-proberen-migranten-tegen-te-houden-in-britse-havenstad-portsmouth~acd7641d/)
+  > In de Zuid-Engelse stad Portsmouth heeft een grote groep extreemrechtse demonstranten geprobeerd migranten tegen te houden wier boot zondag werd...
+- [Italië vergeet voor eventjes Ferrari en omarmt Kimi Antonelli: ‘Had al het gevoel dat hij over water kon gaan lopen’](https://www.ad.nl/formule-1/italie-vergeet-voor-eventjes-ferrari-en-omarmt-kimi-antonelli-had-al-het-gevoel-dat-hij-over-water-kon-gaan-lopen~a5c7285f/)
+  > Kimi Antonelli, 20 jaar oud uit Bologna, is de nieuwe Italiaanse superheld. Startend vanaf de negentiende (!) plek trakteerde hij Italianen voor het...
+- [Jamie Vardy nieuwe spits van Burnley, Fabio Grosso na vier duels al ontslagen bij Fiorentina](https://www.ad.nl/voetbal/jamie-vardy-nieuwe-spits-van-burnley-fabio-grosso-na-vier-duels-al-ontslagen-bij-fiorentina~abfbf81f/)
+  > De transfermarkt in Nederland is sinds woensdagavond gesloten. De markt in de buitenlandse topcompetities ging een dag eerder dicht. In sommige...
+- [Tien doden en ruim zestig gewonden bij vuurwerkexplosie dorpsfeest Mexico](https://www.ad.nl/buitenland/tien-doden-en-ruim-zestig-gewonden-bij-vuurwerkexplosie-dorpsfeest-mexico~ae7c84d1/)
+  > Bij een ontploffing van vuurwerk tijdens een dorpsfeest in Mexico zijn minstens tien doden gevallen en meer dan zestig mensen gewond geraakt. Dat...
+- [Georginio Wijnaldum (35) tekent voor een jaar bij Al-Ittihad, de club die naast Anis Hadj Moussa greep](https://www.ad.nl/voetbal/georginio-wijnaldum-35-tekent-voor-een-jaar-bij-al-ittihad-de-club-die-naast-anis-hadj-moussa-greep~a0389c10/)
+  > Al-Ittihad is er op Deadline Day van de Saudi Pro League niet in geslaagd om Anis Hadj Moussa weg te krijgen bij Feyenoord, maar de Saoedische...
 
 ### Meest gelezen
 
@@ -47,16 +48,16 @@
 
 ### Laatste nieuws
 
-- [Hoog tijd dat toezicht kritisch naar zichzelf kijkt](https://fd.nl/opinie/1611276/hoog-tijd-dat-toezicht-kritisch-naar-zichzelf-kijkt)
-  > Het aantal banen bij toezichthouders groeide ruim drie keer zo hard als de ‘gewone’ beroepsbevolking. Wat al die extra functionarissen precies...
-- [Radicaal-rechts in Frankrijk zet zich schrap tegen verhogen belastingen](https://fd.nl/politiek/1611281/radicaal-rechts-in-frankrijk-zet-zich-schrap-tegen-verhogen-belastingen)
-  > Volgens Rassemblement National behoort de belastingdruk in Frankrijk al ‘tot de hoogste van alle ontwikkelde economieën’. De partij wil in oktober...
-- [Monsterzege AfD in Saksen-Anhalt ‘is een keerpunt voor het land’](https://fd.nl/politiek/1611280/eclatante-overwinning-afd-in-saksen-anhalt-zware-klap-voor-cdu)
-  > Volgens prognoses van de zenders ZDF en ARD haalt de extreemrechtse Alternative für Deutschland (AfD) ruim 44% van de stemmen en de CDU 18,5%.
-- [Schrale oogst bij beleggen in wijn, maar wie neus heeft voor topwijnen kan nog steeds scoren](https://fd.nl/financiele-markten/1611038/schrale-oogst-bij-beleggen-in-wijn-maar-wie-neus-heeft-voor-topwijnen-kan-nog-steeds-scoren)
-  > De rendementen voor beleggers in wijn waren de afgelopen jaren slecht. Maar wie het slim speelt, kan nog voldoende verdienen, is de ervaring van...
-- [China pompt miljarden in financiële sector](https://fd.nl/economie/1611279/china-pompt-miljarden-in-financiele-sector)
-  > De druk van Peking om meer goedkope kredieten te verlenen, zet de winstgevendheid van banken en verzekeraars onder druk.
+- [Belast de rijken](https://fd.nl/opinie/1611148/belast-de-rijken)
+  > Mathijs Bouman ging naar de Hiswa om een pakje op te halen, maar kwam terug met een simpele mening over box 3.
+- [Vapes, cigfluencers, en wéér gaat een generatie verloren](https://fd.nl/opinie/1610964/vapes-cigfluencers-en-weer-gaat-een-generatie-verloren)
+  > Maar liefst 40% van de jongvolwassenen rookt of vapet wel eens. Wat ooit bedoeld was als hulpmiddel voor verstokte rokers, is het inmiddels dé instap...
+- [Econoom Marieke Blom: ‘Zweden bewijst dat je Europese spaarders wél kunt overhalen om te beleggen’](https://fd.nl/economie/1611121/econoom-marieke-blom-zweden-bewijst-dat-je-europese-spaarders-wel-kunt-overhalen-om-te-beleggen)
+  > De afgelopen 24 jaar behaalden Europese spaarders een gemiddeld jaarrendement van 1,2%. Als ze belegd hadden in individuele aandelen, was dat 6%...
+- [Franse eigenaar zet De Hypotheker in de etalage](https://fd.nl/bedrijfsleven/1610990/franse-eigenaar-zet-de-hypotheker-in-de-etalage)
+  > Marktkenners verwachten dat een nieuwe eigenaar het productaanbod van de keten uitbreidt naar andere financiële diensten, zoals verzekeringen en...
+- [Vliegende auto kan over achttien maanden gecertificeerd de lucht in, claimt PAL-V](https://fd.nl/bedrijfsleven/1610804/vliegende-auto-kan-over-achttien-maanden-gecertificeerd-de-lucht-in-claimt-pal-v)
+  > PAL-V mag van de EASA vliegende auto’s gaan produceren. Luchtcertificering is daarmee slechts een formaliteit, stelt het Brabantse bedrijf, dat dan...
 
 ### Meest gelezen
 
