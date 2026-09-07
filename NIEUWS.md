@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-09-2026 om 23:37*
+*Laatst bijgewerkt: 07-09-2026 om 03:46*
 
 ---
 
@@ -8,18 +8,17 @@
 
 ### Laatste nieuws
 
+- [Grimeur Tuiten wint Emmy met ziekenhuisserie The Pitt](https://nos.nl/l/2629995)
+  > De Nederlandse grimeur Arjen Tuiten heeft een Emmy gewonnen met zijn werk voor de Amerikaanse ziekenhuisserie The Pitt. Hij laat aan het persbureau...
+- [Scheepvaartverkeer Hormuz valt weer bijna stil na hernieuwde aanvallen over en weer](https://nos.nl/l/2629994)
+  > De scheepvaart in de Straat van Hormuz is dit weekend bijna weer volledig stilgevallen na aanvallen van de VS en Iran over en weer. Zaterdag...
+- [Geen absolute meerderheid, maar AfD-zege laat Duitse politiek op grondvesten trillen](https://nos.nl/l/2629993)
+  > De deelstaatverkiezingen in Saksen-Anhalt zijn uitgelopen op niets minder dan een politieke krimi. Tot diep in de nacht bleef onzeker of de...
+- [Gouverneurskandidaat Ohio belaagd door man met vuurwapen](https://nos.nl/l/2629992)
+  > In de Amerikaanse staat Ohio is een man opgepakt die met een vuurwapen in de buurt van de Democratische gouverneurskandidaat Amy Acton probeerde te...
 - [Tientallen slachtoffers door vuurwerkexplosie bij kerk in Mexico](https://nos.nl/l/2629991)
   > Een vuurwerkexplosie bij een kerk in Mexico heeft aan zeker tien mensen het leven gekost. Tientallen mensen raakten gewond, onder wie ook kinderen.
  ...
-- [Recordbedrag opgehaald met City Swim door Amsterdamse grachten](https://nos.nl/l/2629990)
-  > De City Swim door de Amsterdamse grachten heeft vanmiddag een recordbedrag van ruim 3 miljoen euro opgehaald. Dat is flink meer dan het bedrag vorig...
-- [Amazon-vrachtvliegtuig schiet door na landing en raakt auto's bij luchthaven Miami](https://nos.nl/l/2629983)
-  > Bij Miami International Airport is een Boeing 767-vrachtvliegtuig van webwinkelgigant Amazon op een nabijgelegen weg terechtgekomen.
-        Volgens...
-- [Massale processie in Moskou moet politieke steun van kerk aan Kremlin tonen](https://nos.nl/l/2629981)
-  > Tienduizenden Russisch-orthodoxe gelovigen hebben vandaag deelgenomen aan een urenlange processie in het centrum van Moskou. Met patriarch Kirill aan...
-- [Morgen voorlopig laatste zomerachtige dag, daarna ander weer](https://nos.nl/l/2629973)
-  > "Misschien is dit het laatste weekend met zomers weer." Dat heb je de afgelopen dagen misschien zelf gedacht of in je omgeving gehoord....
 
 ### Meest gelezen
 
@@ -29,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Netanyahu geeft opdracht tot evacuatie van kolonistenposten op Westelijke Jordaanoever](https://www.ad.nl/buitenland/netanyahu-geeft-opdracht-tot-evacuatie-van-kolonistenposten-op-westelijke-jordaanoever~ae6fdffc/)
+  > De Israëlische premier Benjamin Netanyahu heeft opdracht gegeven tot de ontruiming van enkele kolonistenposten op de bezette Westelijke Jordaanoever....
+- [Nederlandse grimeur Arjen Tuiten wint Emmy voor The Pitt](https://www.ad.nl/show/nederlandse-grimeur-arjen-tuiten-wint-emmy-voor-the-pitt~abadad2c/)
+  > De Nederlandse grimeur Arjen Tuiten heeft in de nacht van zondag op maandag een Emmy Award gewonnen voor zijn werk aan een aflevering van de hitserie...
+- [Radicaal-rechtse partij AfD behaalt monsterzege in Duitse deelstaatverkiezing](https://www.ad.nl/buitenland/radicaal-rechtse-partij-afd-behaalt-monsterzege-in-duitse-deelstaatverkiezing~aa81b3d6/)
+  > Alternative für Deutschland (AfD) is de grootste partij geworden bij de verkiezingen in de Duitse deelstaat Saksen-Anhalt. De radicaal-rechtse partij...
+- [Snapchat aangeklaagd in Nederland: platform zou verslavend zijn en niet veilig voor kinderen](https://www.ad.nl/tech/snapchat-aangeklaagd-in-nederland-platform-zou-verslavend-zijn-en-niet-veilig-voor-kinderen~ad4f1d43/)
+  > Voor de tweede keer in korte tijd wordt Snapchat aangeklaagd. Het platform spoort jongeren aan zo vaak mogelijk de app te openen, vindt Stichting...
 - [Extreemrechtse demonstranten proberen migranten tegen te houden in Britse havenstad Portsmouth](https://www.ad.nl/buitenland/extreemrechtse-demonstranten-proberen-migranten-tegen-te-houden-in-britse-havenstad-portsmouth~acd7641d/)
   > In de Zuid-Engelse stad Portsmouth heeft een grote groep extreemrechtse demonstranten geprobeerd migranten tegen te houden wier boot zondag werd...
-- [Italië vergeet voor eventjes Ferrari en omarmt Kimi Antonelli: ‘Had al het gevoel dat hij over water kon gaan lopen’](https://www.ad.nl/formule-1/italie-vergeet-voor-eventjes-ferrari-en-omarmt-kimi-antonelli-had-al-het-gevoel-dat-hij-over-water-kon-gaan-lopen~a5c7285f/)
-  > Kimi Antonelli, 20 jaar oud uit Bologna, is de nieuwe Italiaanse superheld. Startend vanaf de negentiende (!) plek trakteerde hij Italianen voor het...
-- [Jamie Vardy nieuwe spits van Burnley, Fabio Grosso na vier duels al ontslagen bij Fiorentina](https://www.ad.nl/voetbal/jamie-vardy-nieuwe-spits-van-burnley-fabio-grosso-na-vier-duels-al-ontslagen-bij-fiorentina~abfbf81f/)
-  > De transfermarkt in Nederland is sinds woensdagavond gesloten. De markt in de buitenlandse topcompetities ging een dag eerder dicht. In sommige...
-- [Tien doden en ruim zestig gewonden bij vuurwerkexplosie dorpsfeest Mexico](https://www.ad.nl/buitenland/tien-doden-en-ruim-zestig-gewonden-bij-vuurwerkexplosie-dorpsfeest-mexico~ae7c84d1/)
-  > Bij een ontploffing van vuurwerk tijdens een dorpsfeest in Mexico zijn minstens tien doden gevallen en meer dan zestig mensen gewond geraakt. Dat...
-- [Georginio Wijnaldum (35) tekent voor een jaar bij Al-Ittihad, de club die naast Anis Hadj Moussa greep](https://www.ad.nl/voetbal/georginio-wijnaldum-35-tekent-voor-een-jaar-bij-al-ittihad-de-club-die-naast-anis-hadj-moussa-greep~a0389c10/)
-  > Al-Ittihad is er op Deadline Day van de Saudi Pro League niet in geslaagd om Anis Hadj Moussa weg te krijgen bij Feyenoord, maar de Saoedische...
 
 ### Meest gelezen
 
@@ -48,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [‘Nederland moet af van zijn spaarvarkens’](https://fd.nl/economie/1611229/nederland-moet-af-van-zijn-spaarvarkens)
+  > Vandaag in Dagkoers: wij Europeanen sparen te veel en beleggen te weinig, de Hypotheker gaat in de verkoop & toezicht in Nederland lopen uit de...
 - [Belast de rijken](https://fd.nl/opinie/1611148/belast-de-rijken)
   > Mathijs Bouman ging naar de Hiswa om een pakje op te halen, maar kwam terug met een simpele mening over box 3.
 - [Vapes, cigfluencers, en wéér gaat een generatie verloren](https://fd.nl/opinie/1610964/vapes-cigfluencers-en-weer-gaat-een-generatie-verloren)
@@ -56,8 +57,6 @@
   > De afgelopen 24 jaar behaalden Europese spaarders een gemiddeld jaarrendement van 1,2%. Als ze belegd hadden in individuele aandelen, was dat 6%...
 - [Franse eigenaar zet De Hypotheker in de etalage](https://fd.nl/bedrijfsleven/1610990/franse-eigenaar-zet-de-hypotheker-in-de-etalage)
   > Marktkenners verwachten dat een nieuwe eigenaar het productaanbod van de keten uitbreidt naar andere financiële diensten, zoals verzekeringen en...
-- [Vliegende auto kan over achttien maanden gecertificeerd de lucht in, claimt PAL-V](https://fd.nl/bedrijfsleven/1610804/vliegende-auto-kan-over-achttien-maanden-gecertificeerd-de-lucht-in-claimt-pal-v)
-  > PAL-V mag van de EASA vliegende auto’s gaan produceren. Luchtcertificering is daarmee slechts een formaliteit, stelt het Brabantse bedrijf, dat dan...
 
 ### Meest gelezen
 
