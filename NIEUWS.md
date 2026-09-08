@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-09-2026 om 12:43*
+*Laatst bijgewerkt: 08-09-2026 om 17:07*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Groot bevolkingsonderzoek Lifelines zoekt vierde generatie noorderlingen](https://nos.nl/l/2630174)
-  > Een van de grootste bevolkingsonderzoeken van Europa, Lifelines, zoekt voor het eerst in twintig jaar nieuwe deelnemers. Het onderzoek volgt sinds...
-- [Verdachte van saboteren Duitse stroomnet aangehouden in buurt Nederlandse grens](https://nos.nl/l/2630170)
-  > De man die ervan wordt verdacht meerdere sabotagepogingen te hebben gedaan op het Duitse energienet, is opgepakt. Hij werd volgens veiligheidsbronnen...
-- [Gedupeerde toeslagenouders doen aangifte tegen ambtenaren om datakluis](https://nos.nl/l/2630168)
-  > Een groep gedupeerde toeslagenouders heeft vorige maand aangifte gedaan tegen ambtenaren van het ministerie van Financiën, de Belastingdienst en de...
-- [Dieven stelen Renoirs uit Frans museum, laten deel buit achter in tuin](https://nos.nl/l/2630167)
-  > Uit een museum in het zuiden van Frankrijk zijn vanochtend vroeg twee schilderijen van de Franse schilder Renoir gestolen. Twee dieven namen in...
-- [Hulplijn voor zorgen over kind in de criminaliteit, 'ook bij onderbuikgevoel'](https://nos.nl/l/2630165)
-  > Ouders die denken dat hun kind betrokken is bij criminele activiteiten kunnen vanaf vandaag via een speciaal telefoonnummer hulp krijgen. Eerder dit...
+- [Nee, onze bruggen storten niet in, maar er is wel veel achterstallig onderhoud](https://nos.nl/l/2630210)
+  > Files op omliggende wegen en extra kosten voor omrijdende vrachtwagens: de vervroegde afsluiting van de Hardenbergerbrug in de A28 bij Nijkerk heeft...
+- [Tot 30 jaar cel en tbs geëist tegen Woudenbergs stel voor misbruiken oppaskinderen](https://nos.nl/l/2630206)
+  > Het Openbaar Ministerie heeft respectievelijk dertig en twintig jaar cel en tbs met dwangverpleging geëist tegen de 57-jarige Richard van den B. uit...
+- [VK, Frankrijk en Canada komen met importverbod voor goederen uit nederzettingen Westoever](https://nos.nl/l/2630205)
+  > Het Verenigd Koninkrijk, Frankrijk en Canada voeren een importverbod in op goederen uit Israëlische nederzettingen op de bezette Westelijke...
+- [EU-ministers veroordelen eerbetoon Mladic: 'Onverenigbaar met Europese waarden'](https://nos.nl/l/2630201)
+  > Een dag na de begrafenis van Ratko Mladic regent het vanuit Europa veroordelingen over het grote eerbetoon aan de veroordeelde oorlogsmisdadiger...
+- [School verbiedt trainingspak of joggingbroek: 'Iets voor op de bank'](https://nos.nl/l/2630198)
+  > Een trainingspak, joggingbroek of voetbalshirt? Leerlingen mogen dit niet meer aan op middelbare school De Goudse Waarden in Gouda. De vmbo-school...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hardenbergerbrug (A28) blijft zeker nog tot en met morgen dicht](https://www.ad.nl/binnenland/hardenbergerbrug-a28-blijft-zeker-nog-tot-en-met-morgen-dicht~a46af12f/)
-  > De Hardenbergerbrug op de A28 bij Nijkerk blijft zeker tot en met morgen dicht. Dat meldt Rijkswaterstaat. De snelweg is in beide richtingen...
-- [Welke inzichten of lessen heb jij opgedaan dankzij B&B vol liefde? Deel ze met ons](https://www.ad.nl/show/welke-inzichten-of-lessen-heb-jij-opgedaan-dankzij-benb-vol-liefde-deel-ze-met-ons~ae25856f/)
-  > Negen weken lang zagen we liefde in alle soorten en maten voorbijkomen. Van voorzichtige vlinders, liefdesverklaringen tot twijfel, ongemak en...
-- [Opinie: ‘Maak boeken, pen en papier weer de norm in het onderwijs’](https://www.ad.nl/opinie/opinie-maak-boeken-pen-en-papier-weer-de-norm-in-het-onderwijs~a87b8198/)
-  > Wanneer leert de klas het best met boeken en wanneer met de laptop? Tweede Kamerlid Etkin Armut (CDA) pleit er in de Week van lezen en schrijven voor...
-- [Wederopstanding voor lege tribunes: FC Utrecht pakt toch nog wonderbaarlijk punt tegen Go Ahead Eagles](https://www.ad.nl/voetbal/wederopstanding-voor-lege-tribunes-fc-utrecht-pakt-toch-nog-wonderbaarlijk-punt-tegen-go-ahead-eagles~ac521b09/)
-  > FC Utrecht heeft op wonderbaarlijke wijze toch nog een punt uit het vuur gesleept tegen Go Ahead Eagles, nadat het duel zaterdag bij 1-3 werd...
-- [IJsland roept Amerikaanse ambassadeur op het matje na ‘totaal ongepaste’ wereldkaart van Trump](https://www.ad.nl/buitenland/ijsland-roept-amerikaanse-ambassadeur-op-het-matje-na-totaal-ongepaste-wereldkaart-van-trump~ae67dd9c/)
-  > IJsland heeft de Amerikaanse ambassadeur op het matje geroepen nadat president Donald Trump op zijn netwerk Truth Social een kaart had gepubliceerd...
+- [Tom Jones boos na exit bij The Voice UK: ‘Nooit goed moment om 86-jarige te ontslaan die goed is in zijn werk’](https://www.ad.nl/show/tom-jones-boos-na-exit-bij-the-voice-uk-nooit-goed-moment-om-86-jarige-te-ontslaan-die-goed-is-in-zijn-werk~a9ba2637/)
+  > Tom Jones claimt dat hij is weggestuurd als jurylid bij The Voice UK. Volgens de 86-jarige zanger uit Wales wil zender ITV hem alleen in een veel...
+- [Eiffeltoren stuurt vrouwelijk personeel naar huis, op verzoek van hindoe-delegatie](https://www.ad.nl/buitenland/eiffeltoren-stuurt-vrouwelijk-personeel-naar-huis-op-verzoek-van-hindoe-delegatie~acf19448/)
+  > Vrouwelijk personeel van de Eiffeltoren werd dit weekend zonder pardon naar huis gestuurd op verzoek van religieuze hindoes die het monument...
+- [Club Brugge via Vetlesen snel weer naast Aston Villa](https://www.ad.nl/voetbal/club-brugge-via-vetlesen-snel-weer-naast-aston-villa~acee2e02/)
+  > De Champions League begint weer! De League Phase begint vanavond met zes duels (twee om 18.45 uur en vier om 21.00 uur). Volg alle tussenstanden in...
+- [NEC schiet met B-elftal uit de startblokken en komt via Tahaui op voorsprong tegen Excelsior](https://www.ad.nl/voetbal/nec-schiet-met-b-elftal-uit-de-startblokken-en-komt-via-tahaui-op-voorsprong-tegen-excelsior~a4737727/)
+  > Met een B-ploeg is NEC uitstekend aan het inhaalduel met Excelsior begonnen. Na tien minuten zette Adam Tahaui de thuisploeg al op voorsprong. Volg...
+- [58 vluchten op Schiphol geschrapt door Britse storing, mogelijk nog meer annuleringen en vertragingen](https://www.ad.nl/binnenland/58-vluchten-op-schiphol-geschrapt-door-britse-storing-mogelijk-nog-meer-annuleringen-en-vertragingen~a3a781ed/)
+  > Passagiers op Schiphol hebben last van een technisch probleem bij de Britse luchtverkeersleiding. Daardoor zijn 58 vluchten tussen de luchthaven en...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Miljoenenbruiloft in Harare toont wie echt de macht heeft in Zimbabwe](https://fd.nl/politiek/1607053/miljoenenbruiloft-in-harare-toont-wie-echt-de-macht-heeft-in-zimbabwe)
-  > Het grondstofrijke Zimbabwe is een wanbetaler en een internationale paria, waar rijke zakenmensen hun greep op de politiek steeds verder verstevigen....
-- [EU-Hof: Vlaams Belang mocht Ikea-stijl niet gebruiken in migratiecampagne](https://fd.nl/politiek/1611436/eu-hof-vlaams-belang-mocht-ikea-stijl-niet-gebruiken-in-migratiecampagne)
-  > De uiterst rechtse partij ‘parodieerde’ de stijl van de woonwinkel in 2022 om migratieplannen uit te venten. De vrijheid van meningsuiting beschermt...
-- [Flinke terugval in plaatsing van nieuwe zonnepanelen](https://fd.nl/bedrijfsleven/1611361/flinke-terugval-in-plaatsing-van-nieuwe-zonnepanelen)
-  > Vooral huishoudens en kleine bedrijven plaatsen minder zonnepanelen vanwege de onzekerheid over opbrengsten en een overbelast elektriciteitsnet.
-- [Investeer in Nederlandse games als exportproduct van wereldniveau](https://fd.nl/opinie/1611310/investeer-in-nederlandse-games-als-exportproduct-van-wereldniveau)
-  > Hoewel Nederland over uitstekende gamestudio’s en veel talent beschikt, ziet de overheid het nog niet als een strategische sector. We moeten daarom,...
-- [Bedrijf Lucas Wensing vangt bot bij de rechter voor cryptobeursgang](https://fd.nl/financiele-markten/1611362/bedrijf-lucas-wensing-vangt-bot-bij-de-rechter-voor-cryptobeursgang)
-  > Cryptobedrijf AMBTS is ook volgens de rechter een beleggingsinstelling waarmee een beursgang van de baan lijkt.
+- [Vakbonden eensgezind bij protest in stromende regen: ‘Wij laten ons niet met kruimels wegsturen’](https://fd.nl/politiek/1611358/vakbonden-eensgezind-bij-protest-in-stromende-regen-wij-laten-ons-niet-met-kruimels-wegsturen)
+  > Duizenden ambtenaren betoogden dinsdag in Den Haag tegen bezuiningsplannen van het kabinet. Uitgelekte ‘gestes’ aan de vakbonden, wezen zij stellig...
+- [Oekraïne mag deel EU-lening toch gebruiken om gewilde Patriots te kopen](https://fd.nl/politiek/1611482/oekraine-mag-deel-eu-lening-toch-gebruiken-om-gewilde-patriots-te-kopen)
+  > Duitsland en het VK kondigden extra steun aan om het belegerde land voor de winter van meer effectieve Patriot-onderscheppingsraketten te voorzien....
+- [Felle kritiek op minister om sluiting brug A28](https://fd.nl/politiek/1611481/felle-kritiek-op-minister-om-sluiting-brug-a28)
+  > Minister Karremans (Infrastructuur) verwacht dat de brug uiterlijk donderdagavond om 20.00 uur weer open kan.
+- [iDeal baalt van onrust rond opvolger Wero: ‘We zijn nog volop aan het finetunen’](https://fd.nl/financiele-markten/1611441/ideal-baalt-van-onrust-rond-opvolger-wero-we-zijn-nog-volop-aan-het-finetunen)
+  > Retailers vrezen hoge kosten en slepende klachtenprocedures. Het bedrijf achter het betaalsysteem reageerde dinsdag op de ophef met een...
+- [Zakelijke reiziger laat Nederland vaker links liggen](https://fd.nl/bedrijfsleven/1611431/zakelijke-reiziger-laat-nederland-vaker-links-liggen)
+  > Sinds de coronapandemie is het aantal zakelijke overnachtingen in Nederland met een vijfde gedaald, in Amsterdam zelfs met 38%.
 
 ### Meest gelezen
 
