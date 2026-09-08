@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-09-2026 om 20:54*
+*Laatst bijgewerkt: 08-09-2026 om 23:15*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [VS en Iran blijven elkaars schepen bestoken, Iraanse olietankers getroffen](https://nos.nl/l/2630254)
+  > De VS heeft dinsdag opnieuw meerdere Iraanse olietankers aangevallen. Volgens het Amerikaanse leger is het een vergelding voor nieuwe Iraanse...
+- [Alkmaars ziekenhuis 'geschrokken' door van seksueel misbruik verdachte oud-arts](https://nos.nl/l/2630250)
+  > De Noordwest Ziekenhuisgroep heeft vandaag gereageerd op verdenkingen tegen een oud-arts die verbonden was aan de Noord-Hollandse ziekenhuisgroep. De...
 - [25 jaar na de aanslagen van 9/11 zet Trump het mes in terreurbestrijding](https://nos.nl/l/2630244)
   > Sinds 11 september 2001 zijn er geen grootschalige terroristische aanslagen meer geweest in de Verenigde Staten. Maar experts maken zich grote zorgen...
 - [Voor het eerst zicht op vrouwenbrein tijdens puberteit, zwangerschap en menopauze](https://nos.nl/l/2630241)
   > Tijdens de eerste menstruatie, de zwangerschap en de menopauze verandert er veel in het lichaam van vrouwen. Maar hoe de hersenen veranderen tijdens...
 - [Drie Nederlanders opgepakt na schietpartij en achtervolging in Marbella](https://nos.nl/l/2630239)
   > In de Zuid-Spaanse badplaats Marbella zijn drie Nederlanders opgepakt na een schietpartij, melden Spaanse media. Een persoon raakte daarbij gewond...
-- [Storing bij Britse luchtverkeersleiding, tientallen vluchten op Schiphol geschrapt](https://nos.nl/l/2630234)
-  > Door een technische storing in het systeem van de Britse luchtverkeersleiding zijn op luchthavens in het Verenigd Koninkrijk en Ierland ruim 600...
-- [Hongarije zet tien Russische diplomaten uit, wil wel in gesprek blijven](https://nos.nl/l/2630232)
-  > Hongarije zet tien medewerkers van de Russische ambassade in Boedapest het land uit. De Hongaarse minister van Buitenlandse Zaken schrijft, zonder in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Goals van Ayase Ueda en Troy Parrott in Lille, Ethan Mbappé krijgt rood na elleboogstoot](https://www.ad.nl/voetbal/goals-van-ayase-ueda-en-troy-parrott-in-lille-ethan-mbappe-krijgt-rood-na-elleboogstoot~acee2e02/)
-  > De Champions League is weer begonnen. Vanavond twee duels om 18.45 uur en vier om 21.00 uur. Volg alle tussenstanden in ons livewidget en bekijk alle...
-- [Tijjani Reijnders op dreef in Saoedi-Arabië: twee goals tegen ploeg van Marino Pusic](https://www.ad.nl/voetbal/tijjani-reijnders-op-dreef-in-saoedi-arabie-twee-goals-tegen-ploeg-van-marino-pusic~ae62d6b7/)
-  > Tijjani Reijnders was dinsdagavond opnieuw trefzeker voor zijn nieuwe club Al-Qadsiah. De 28-jarige middenvelder uit Zwolle scoorde twee keer tegen...
-- [Lieve, lieve, lieve Devon uit B&B vol liefde: ik gun je de wereld](https://www.ad.nl/show/lieve-lieve-lieve-devon-uit-benb-vol-liefde-ik-gun-je-de-wereld~a1b151af/)
-  > Dit grootse en vooral ontroerende gebaar van Devon uit B&B vol liefde raakte me recht in hart.
-- [Jim Bakkum vervangt Paul de Leeuw als jurylid in Stars on Stage](https://www.ad.nl/show/jim-bakkum-vervangt-paul-de-leeuw-als-jurylid-in-stars-on-stage~add35522/)
-  > Jim Bakkum vormt in het nieuwe seizoen van Stars on Stage samen met Albert Verlinde en een gast de jury. De musicalster is de vervanger van Paul de...
-- [Topman met megasalaris downloadt stiekem bedrijfsdocumenten, maar dat blijkt pijnlijke misser](https://www.ad.nl/binnenland/topman-met-megasalaris-downloadt-stiekem-bedrijfsdocumenten-maar-dat-blijkt-pijnlijke-misser~a51dfe54/)
-  > Een topman van een groot Nederlands bedrijf denkt na zijn schorsing ongestoord honderden vertrouwelijke bedrijfsdocumenten naar zijn privé-Google...
+- [‘Problemen met bloedsomloop’: ploeggenoot van Joey Veerman blijft liggen en wordt afgevoerd naar ziekenhuis](https://www.ad.nl/voetbal/problemen-met-bloedsomloop-ploeggenoot-van-joey-veerman-blijft-liggen-en-wordt-afgevoerd-naar-ziekenhuis~a3b1e99c/)
+  > Zorgen om Kos Karetsas. De jonge Griek van Borussia Dortmund ging in de eerste helft van zijn eerste Champions League-wedstrijd plotseling op de...
+- [Voetbalpodcast | ‘Het is een schande dat de KNVB niets doet met gestaakte wedstrijden’](https://www.ad.nl/voetbal/voetbalpodcast-het-is-een-schande-dat-de-knvb-niets-doet-met-gestaakte-wedstrijden~a42af5cd9/)
+  > FC Utrecht speelde de zaterdag gestaakte wedstrijd met Go Ahead Eagles uit, en met succes. Van 1-3 werd het in 26 minuten nog 3-3. NEC pakte in de...
+- [Dit zijn de wedstrijden die je moet zien in de eerste speelronde van de Champions League](https://www.ad.nl/voetbal/dit-zijn-de-wedstrijden-die-je-moet-zien-in-de-eerste-speelronde-van-de-champions-league~a70bddd8/)
+  > Op dinsdagavond stond er meteen al een topper op het programma. Real Madrid speelde thuis tegen Inter, de club waarmee José Mourinho in 2010 de...
+- [Goals van Ayase Ueda en Troy Parrott in Lille, waar Real Betis wint na elleboogstoot van Ethan Mbappé](https://www.ad.nl/voetbal/goals-van-ayase-ueda-en-troy-parrott-in-lille-waar-real-betis-wint-na-elleboogstoot-van-ethan-mbappe~acee2e02/)
+  > De Champions League is dinsdagavond van start gegaan en er gebeurde op de eerste avond direct genoeg. Het grootste spektakel was er in Lille, waar de...
+- [Dumfries beleeft succesvol CL-debuut bij Real Madrid met zwaarbevochten zege op zijn oude club](https://www.ad.nl/voetbal/dumfries-beleeft-succesvol-cl-debuut-bij-real-madrid-met-zwaarbevochten-zege-op-zijn-oude-club~a36a98e0/)
+  > Denzel Dumfries heeft bij zijn Champions League-debuut voor Real Madrid een zwaarbevochten overwinning geboekt. De Oranje-international werd in de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Oplopende olieprijs drukt koersen Wall Street](https://fd.nl/financiele-markten/1611578/oplopende-olieprijs-drukt-koersen-wall-street)
-  > De Dow Jones leverde 1,2% in op de eerste dag van de handelsweek in Amerika. Vanwege Labor Day waren de beurzen maandag gesloten.
-- [Regering-Trump heeft stevige kritiek op samenwerking Ford met Chinese fabrikanten](https://fd.nl/politiek/1611726/regering-trump-heeft-stevige-kritiek-op-samenwerking-ford-met-chinese-fabrikanten)
-  > Volgens de Amerikaanse regering vormen de contracten een ernstig risico voor de nationale veiligheid.
-- [In opspraak geraakt beleggingsfonds van €293 mln wordt opgedoekt](https://fd.nl/financiele-markten/1611395/in-opspraak-geraakt-beleggingsfonds-van-293-mln-wordt-opgedoekt)
-  > Gelden in het Capiva Plus-fonds zijn afkomstig van klanten van vermogensbeheerders Auréus en SemmieWealth. Na problemen met de fondsbeheerder ging...
-- [Chaos op Britse vliegvelden na softwarestoring](https://fd.nl/bedrijfsleven/1611577/chaos-op-britse-vliegvelden-na-softwarestoring)
-  > Volgens een Britse overheidsfunctionaris is er geen sprake van een cyberaanval.
-- [Toezichthouder moet tanden laten zien aan hoogmoedige AI-bedrijven](https://fd.nl/opinie/1611368/toezichthouder-moet-tanden-laten-zien-aan-hoogmoedige-ai-bedrijven)
-  > In plaats van excuses over een volgend veiligheidsincident, schepte OpenAI op over zijn ‘superintelligente’ modellen.
+- [Strijd voor de vrije zee!](https://fd.nl/opinie/1611677/strijd-voor-de-vrije-zee)
+  > FD-columnist Mathijs Bouman vraagt zich af of Nederland niet op de bres moet voor zijn maritieme familiebedrijven, die wél het internationale...
+- [Burger steunt ontwikkelingssamenwerking – zolang die ook Nederland wat oplevert](https://fd.nl/politiek/1611477/burger-steunt-ontwikkelingssamenwerking-zolang-die-ook-nederland-wat-oplevert)
+  > Hoe concreter een project, hoe groter het enthousiasme, zo blijkt uit onderzoek door Clingendael. Ook onder bijvoorbeeld PVV-stemmers.
+- [Softwarebedrijf voor autosector VWE in handen van investeerder Main Capital](https://fd.nl/tech-en-innovatie/1611364/softwarebedrijf-voor-autosector-vwe-in-handen-van-investeerder-main-capital)
+  > VWE telt 150 werknemers en levert software aan autodealers, leasemaatschappijen en werkplaatsen.
+- [De sociale kracht van verwondering](https://fd.nl/opinie/1611359/de-sociale-kracht-van-verwondering)
+  > Een verwonderd mens voelt zich meer onderdeel van zijn omgeving en wordt aardiger. Dat zijn nastrevenswaardige ervaringen, waar de samenleving als...
+- [Minimumtaks multinationals levert Nederlandse schatkist honderden miljoenen op](https://fd.nl/politiek/1608784/minimumtaks-multinationals-levert-nederlandse-schatkist-honderden-miljoenen-op)
+  > De wereldwijde minimumwinsttaks voor multinationals heeft Nederland in twee jaar zeker €590 mln opgeleverd, blijkt uit een analyse van het FD.
 
 ### Meest gelezen
 
