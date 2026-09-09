@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-09-2026 om 23:15*
+*Laatst bijgewerkt: 09-09-2026 om 03:55*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Nieuw RIVM-gebouw heeft gasgeneratoren nodig, verhuizing opnieuw uitgesteld](https://nos.nl/l/2630259)
+  > Het RIVM kan een gloednieuw gebouw in Utrecht voorlopig nog niet in gebruik nemen. Het pand, dat jaren geleden al klaar had moeten zijn, werd...
+- [Gone in 60 seconds? Zinkgat bedreigt strandvilla van Nicolas Cage](https://nos.nl/l/2630258)
+  > De oprit van een villa van acteur Nicolas Cage in Californië is dinsdagochtend in de grond gezakt. Voor het huis aan het strand in Malibu is een...
+- [Trump verbiedt invoer van Canadese zuivel, alcohol en motorfietsen](https://nos.nl/l/2630256)
+  > De VS gaat de import van zuivelproducten, motorfietsen en de meeste alcoholische dranken uit Canada verbieden. Het is de volgende stap in de...
 - [VS en Iran blijven elkaars schepen bestoken, Iraanse olietankers getroffen](https://nos.nl/l/2630254)
   > De VS heeft dinsdag opnieuw meerdere Iraanse olietankers aangevallen. Volgens het Amerikaanse leger is het een vergelding voor nieuwe Iraanse...
 - [Alkmaars ziekenhuis 'geschrokken' door van seksueel misbruik verdachte oud-arts](https://nos.nl/l/2630250)
   > De Noordwest Ziekenhuisgroep heeft vandaag gereageerd op verdenkingen tegen een oud-arts die verbonden was aan de Noord-Hollandse ziekenhuisgroep. De...
-- [25 jaar na de aanslagen van 9/11 zet Trump het mes in terreurbestrijding](https://nos.nl/l/2630244)
-  > Sinds 11 september 2001 zijn er geen grootschalige terroristische aanslagen meer geweest in de Verenigde Staten. Maar experts maken zich grote zorgen...
-- [Voor het eerst zicht op vrouwenbrein tijdens puberteit, zwangerschap en menopauze](https://nos.nl/l/2630241)
-  > Tijdens de eerste menstruatie, de zwangerschap en de menopauze verandert er veel in het lichaam van vrouwen. Maar hoe de hersenen veranderen tijdens...
-- [Drie Nederlanders opgepakt na schietpartij en achtervolging in Marbella](https://nos.nl/l/2630239)
-  > In de Zuid-Spaanse badplaats Marbella zijn drie Nederlanders opgepakt na een schietpartij, melden Spaanse media. Een persoon raakte daarbij gewond...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [‘Problemen met bloedsomloop’: ploeggenoot van Joey Veerman blijft liggen en wordt afgevoerd naar ziekenhuis](https://www.ad.nl/voetbal/problemen-met-bloedsomloop-ploeggenoot-van-joey-veerman-blijft-liggen-en-wordt-afgevoerd-naar-ziekenhuis~a3b1e99c/)
-  > Zorgen om Kos Karetsas. De jonge Griek van Borussia Dortmund ging in de eerste helft van zijn eerste Champions League-wedstrijd plotseling op de...
-- [Voetbalpodcast | ‘Het is een schande dat de KNVB niets doet met gestaakte wedstrijden’](https://www.ad.nl/voetbal/voetbalpodcast-het-is-een-schande-dat-de-knvb-niets-doet-met-gestaakte-wedstrijden~a42af5cd9/)
-  > FC Utrecht speelde de zaterdag gestaakte wedstrijd met Go Ahead Eagles uit, en met succes. Van 1-3 werd het in 26 minuten nog 3-3. NEC pakte in de...
-- [Dit zijn de wedstrijden die je moet zien in de eerste speelronde van de Champions League](https://www.ad.nl/voetbal/dit-zijn-de-wedstrijden-die-je-moet-zien-in-de-eerste-speelronde-van-de-champions-league~a70bddd8/)
-  > Op dinsdagavond stond er meteen al een topper op het programma. Real Madrid speelde thuis tegen Inter, de club waarmee José Mourinho in 2010 de...
-- [Goals van Ayase Ueda en Troy Parrott in Lille, waar Real Betis wint na elleboogstoot van Ethan Mbappé](https://www.ad.nl/voetbal/goals-van-ayase-ueda-en-troy-parrott-in-lille-waar-real-betis-wint-na-elleboogstoot-van-ethan-mbappe~acee2e02/)
-  > De Champions League is dinsdagavond van start gegaan en er gebeurde op de eerste avond direct genoeg. Het grootste spektakel was er in Lille, waar de...
-- [Dumfries beleeft succesvol CL-debuut bij Real Madrid met zwaarbevochten zege op zijn oude club](https://www.ad.nl/voetbal/dumfries-beleeft-succesvol-cl-debuut-bij-real-madrid-met-zwaarbevochten-zege-op-zijn-oude-club~a36a98e0/)
-  > Denzel Dumfries heeft bij zijn Champions League-debuut voor Real Madrid een zwaarbevochten overwinning geboekt. De Oranje-international werd in de...
+- [Meer dan duizend vluchten geannuleerd in Verenigd Koninkrijk door technisch probleem](https://www.ad.nl/buitenland/meer-dan-duizend-vluchten-geannuleerd-in-verenigd-koninkrijk-door-technisch-probleem~a984ee8d/)
+  > In het Verenigd Koninkrijk zijn dinsdag in totaal 1.300 vertrekkende of inkomende vluchten geannuleerd door een technisch probleem bij de Britse...
+- [Woningen Rijksstraatweg Elst ontruimd vanwege gaslekkage in riool](https://www.ad.nl/utrecht/woningen-rijksstraatweg-elst-ontruimd-vanwege-gaslekkage-in-riool~a82d2ced/)
+  > Door een lek in een gasleiding is er in de nacht van dinsdag op woensdag gas gestroomd in het rioolstelsel onder de Rijksstraatweg ter hoogte van de...
+- [South Park spot met Trump en doopt zichzelf om tot ‘South America’](https://www.ad.nl/show/south-park-spot-met-trump-en-doopt-zichzelf-om-tot-south-america~a7ed7fab/)
+  > De satirische animatiereeks South Park heeft dinsdag de naam van de populaire reeks veranderd in South America. Het programma spot zo met de pogingen...
+- [LIVE Midden-Oosten | Iran: vergeldingsaanval op Amerikaanse basis in Jordanië, Jordanië houdt Iraanse raketten tegen](https://www.ad.nl/buitenland/live-midden-oosten-iran-vergeldingsaanval-op-amerikaanse-basis-in-jordanie-jordanie-houdt-iraanse-raketten-tegen~ac528ac3/)
+  > Iran heeft een Amerikaanse basis in het Jordaanse Al Azraq met ballistische raketten aangevallen. Dat verklaarde de Iraanse Revolutionaire Garde...
+- [Ouderen moeten steeds verhuizen in hun laatste levensfase: ‘Ingrijpend en emotioneel’](https://www.ad.nl/binnenland/ouderen-moeten-steeds-verhuizen-in-hun-laatste-levensfase-ingrijpend-en-emotioneel~a7d23e4f/)
+  > Veel ouderen die in een verpleeghuis terechtkomen, moeten bijna meteen alweer verhuizen. Voor het eerst wordt uit groot, landelijk onderzoek...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Gaat het Nederlandse Quooker Amerika veroveren?](https://fd.nl/economie/1611446/gaat-het-nederlandse-quooker-amerika-veroveren)
+  > Vandaag in Dagkoers: TSMC is toch om en zet in op de nieuwste ASML-machines, bijna 40% van de 15-jarigen leest niet goed genoeg en Quooker gaat naar...
 - [Strijd voor de vrije zee!](https://fd.nl/opinie/1611677/strijd-voor-de-vrije-zee)
   > FD-columnist Mathijs Bouman vraagt zich af of Nederland niet op de bres moet voor zijn maritieme familiebedrijven, die wél het internationale...
 - [Burger steunt ontwikkelingssamenwerking – zolang die ook Nederland wat oplevert](https://fd.nl/politiek/1611477/burger-steunt-ontwikkelingssamenwerking-zolang-die-ook-nederland-wat-oplevert)
@@ -54,8 +56,6 @@
   > VWE telt 150 werknemers en levert software aan autodealers, leasemaatschappijen en werkplaatsen.
 - [De sociale kracht van verwondering](https://fd.nl/opinie/1611359/de-sociale-kracht-van-verwondering)
   > Een verwonderd mens voelt zich meer onderdeel van zijn omgeving en wordt aardiger. Dat zijn nastrevenswaardige ervaringen, waar de samenleving als...
-- [Minimumtaks multinationals levert Nederlandse schatkist honderden miljoenen op](https://fd.nl/politiek/1608784/minimumtaks-multinationals-levert-nederlandse-schatkist-honderden-miljoenen-op)
-  > De wereldwijde minimumwinsttaks voor multinationals heeft Nederland in twee jaar zeker €590 mln opgeleverd, blijkt uit een analyse van het FD.
 
 ### Meest gelezen
 
