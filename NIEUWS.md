@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-09-2026 om 08:50*
+*Laatst bijgewerkt: 09-09-2026 om 13:34*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Vat olie boven de 100 dollar, ook benzineprijs blijft stijgen](https://nos.nl/l/2630295)
-  > Na de nieuwe aanvallen van de Verenigde Staten en Iran zijn de olieprijzen opnieuw gestegen. De prijs van een vat Brent-olie kwam vanochtend boven de...
-- [Man (78) komt om bij woningbrand in Zwaag](https://nos.nl/l/2630292)
-  > In Zwaag (Noord-Holland) heeft vanochtend een grote woningbrand gewoed. Een 78-jarige man is daarbij om het leven gekomen, meldt de...
-- [Niet veel drukkere spits ondanks ov-staking, drukte bij deelautoplatforms](https://nos.nl/l/2630283)
-  > Ondanks de staking in het openbaar vervoer is de ochtendspits niet veel drukker geweest dan gemiddeld op een woensdagochtend. Dat melden de ANWB en...
-- [Man (22) uit Singapore bekent diefstal van 200 miljoen aan cryptomunten](https://nos.nl/l/2630276)
-  > Een 22-jarige man uit Singapore heeft in de Verenigde Staten schuld bekend aan de diefstal van bitcoins ter waarde van 245 miljoen dollar (ruim 200...
-- [Noren nemen afscheid van koning Harald, zoon Haakon wacht moeilijke tijd](https://nos.nl/l/2630264)
-  > Vanuit het hele land komen Noren vandaag naar Oslo om afscheid te nemen van koning Harald, die eind vorige maand op 89-jarige leeftijd overleed als...
+- [Voormalig bassist Heideroosjes veroordeeld voor kinderpornobezit](https://nos.nl/l/2630323)
+  > De voormalig bassist van de Limburgse punkband Heideroosjes is veroordeeld tot anderhalf jaar celstraf voor het bezit van kinderporno. Eén jaar van...
+- [Minister ziet geen kans mogelijke coldcasegegevens langer te bewaren](https://nos.nl/l/2630322)
+  > Minister Van Weel zit in zijn maag met een dringend verzoek van de Tweede Kamer. Die wil dat informatie die kan helpen om cold cases op te lossen,...
+- [Dodental na luchtaanval op Houthi-gevangenis in Jemen loopt op tot 23](https://nos.nl/l/2630314)
+  > Bij een luchtaanval op een gevangenis in het noorden van Jemen zijn zeker 23 mensen om het leven gekomen. Reddingswerkers hebben vandaag vier...
+- [Ouderen in verpleeghuizen moeten vaak kort na aankomst weer verhuizen](https://nos.nl/l/2630313)
+  > Ouderen in verpleeghuizen moeten vaak kort na aankomst weer verhuizen, blijkt uit onderzoek van zes universiteiten. "Zowel voor bewoners als naasten...
+- [Merz valt AfD in Bondsdag hard aan: 'Partij wil etnische zuivering'](https://nos.nl/l/2630307)
+  > De Duitse bondskanselier Merz heeft in het eerste plenaire debat na de verkiezingen in Saksen-Anhalt hard uitgehaald naar de winnaar AfD. De...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Familie van vermeend slachtoffer D4vd eist doodstraf voor zanger](https://www.ad.nl/show/familie-van-vermeend-slachtoffer-d4vd-eist-doodstraf-voor-zanger~a33644d2/)
-  > Zanger D4vd is officieel aangeklaagd door de ouders van Celeste Rivas Hernández voor de moord op hun dochter, schrijft de Los Angeles Times. Het is...
-- [Hoelang gaan mijn zonnepanelen mee?](https://www.ad.nl/wonen/hoelang-gaan-mijn-zonnepanelen-mee~aaa68e3b/)
-  > Doe je er goed aan om oude zonnepanelen te vervangen door nieuwe, moderne exemplaren met een groter vermogen? En waar laat je oude zonnepanelen die...
-- [Marc Overmars stopt vanwege gezondheid bij Antwerp: ‘Mijn energie is vandaag volledig op’](https://www.ad.nl/voetbal/marc-overmars-stopt-vanwege-gezondheid-bij-antwerp-mijn-energie-is-vandaag-volledig-op~a14d47cf/)
-  > Marc Overmars stopt per direct als sportief directeur van Royal Antwerp FC. De voormalig technisch directeur van Ajax kiest daarvoor vanwege...
-- [Opinie: ‘De NPO kan rechtse kiezers nu niet in de steek laten’](https://www.ad.nl/opinie/opinie-de-npo-kan-rechtse-kiezers-nu-niet-in-de-steek-laten~ac2a7934/)
-  > Als Ongehoord Nederland van de buis verdwijnt, heeft de NPO de plicht om een omroepbestel te realiseren dat recht doet aan de verhoudingen van...
-- [Eerste gasten arriveren voor uitvaart koning Harald, Nederlands koningspaar onderweg](https://www.ad.nl/buitenland/eerste-gasten-arriveren-voor-uitvaart-koning-harald-nederlands-koningspaar-onderweg~a285bff1/)
-  > Noorwegen neemt woensdag afscheid van koning Harald, die op 28 augustus op 89-jarige leeftijd overleed. Het wordt de grootste veiligheidsoperatie...
+- [Dick Advocaat gaat door als bondscoach Curaçao na historische WK-deelname: ‘Samen iets speciaals bereikt’](https://www.ad.nl/voetbal/dick-advocaat-gaat-door-als-bondscoach-curacao-na-historische-wk-deelname-samen-iets-speciaals-bereikt~a05d4eb9/)
+  > Dick Advocaat blijft langer aan als bondscoach van Curaçao. De 78-jarige oefenmeester heeft zijn verbintenis verlengd tot medio 2027, meldt de...
+- [Ongekend zware strafeis in vreselijke zedenzaak valt op: ‘Als je het hier niet doet, doe je het nooit’](https://www.ad.nl/binnenland/ongekend-zware-strafeis-in-vreselijke-zedenzaak-valt-op-als-je-het-hier-niet-doet-doe-je-het-nooit~a3827f8a/)
+  > 30 jaar cel en tbs hoorde een van de twee verdachten in de Woudenbergse zedenzaak dinsdag als strafeis. Om meerdere redenen een ongekend hoge eis....
+- [Vrouw die trappende agent filmde, start alsnog procedure ondanks beslissing OM om zaak te laten rusten](https://www.ad.nl/utrecht/vrouw-die-trappende-agent-filmde-start-alsnog-procedure-ondanks-beslissing-om-om-zaak-te-laten-rusten~ae7cfddd/)
+  > Een van de vrouwen die in conflict kwam met een agent onder het Utrechtse Bollendak, gaat alsnog een procedure starten. Eerder besloot het Openbaar...
+- [Yaya Touré eerste Afrikaanse coach in Champions League: ‘We moeten twee of drie keer zo hard werken’](https://www.ad.nl/voetbal/yaya-toure-eerste-afrikaanse-coach-in-champions-league-we-moeten-twee-of-drie-keer-zo-hard-werken~af26f4da/)
+  > Paris Saint-Germain begint de jacht op een derde Champions League-eindzege op rij vanavond tegen Slovan Bratislava, de kampioen van Slowakije. De...
+- [Aftellen naar heerlijk affiche in Camp Nou: dit zijn de vermoedelijke opstellingen van Barcelona en Feyenoord](https://www.ad.nl/voetbal/aftellen-naar-heerlijk-affiche-in-camp-nou-dit-zijn-de-vermoedelijke-opstellingen-van-barcelona-en-feyenoord~abba63ff/)
+  > Feyenoord begint met een geweldig affiche aan de Champions League-campagne: de Rotterdammers gaan op bezoek bij FC Barcelona. Voor Giovanni van...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Trump heeft geen gelijk](https://fd.nl/financiele-markten/1611375/trump-heeft-geen-gelijk)
-  > Een column van Corné van Zeijl over ‘het gelijk van Trump’ zorgde bij medecolumnist Valentijn van Nieuwenhuijzen voor stomme verbazing. Hij klom in...
-- [Joris Schoonis, ceo Microsoft Nederland: ‘Ik zou nog weleens voor mezelf willen beginnen met AI in de zorg’](https://fd.nl/samenleving/1611373/joris-schoonis-ceo-microsoft-nederland-ik-zou-nog-weleens-voor-mezelf-willen-beginnen-met-ai-in-de-zorg)
-  > Zijn baan geeft hem veel energie, maar Joris Schoonis (1978) zou nog weleens een onderneming willen beginnen om te bewerkstelligen dat artsen meer...
-- [Onward Medical verkoopt meer ruggenmergstimulatoren](https://fd.nl/bedrijfsleven/1611583/onward-medical-verkoopt-meer-ruggenmergstimulatoren)
-  > Hoewel het nettoverlies van het medischetechnologiebedrijf toenam, heeft het bedrijf voorlopig voldoende geld in kas om vooruit te kunnen.
-- [AI-onderzoeker verlaat Anthropic uit vrees dat AI-veiligheid wordt opgeofferd](https://fd.nl/bedrijfsleven/1611582/ai-onderzoeker-verlaat-anthropic-uit-vrees-dat-ai-veiligheid-wordt-opgeofferd)
-  > De Britse Jacob Coxon werkte eerder bij concurrent OpenAI, en vertrok ook wegens veiligheidszorgen.
-- [Wat mag migraine de samenleving kosten? ‘De ziekte raakt vooral mensen in de productiefste fase van hun leven’](https://fd.nl/samenleving/1611371/wat-mag-migraine-de-samenleving-kosten-de-ziekte-raakt-vooral-mensen-in-de-productiefste-fase-van-hun-leven)
-  > Migraine kost de Nederlandse samenleving jaarlijks miljarden euro’s. Het grootste deel van die rekening ontstaat op de werkvloer. Toch blijven we...
+- [Niet harder, maar beter. Festivals en clubs investeren in speakers](https://fd.nl/samenleving/1611391/niet-harder-maar-beter-festivals-en-clubs-investeren-in-speakers)
+  > Harder is niet langer het devies voor de geluidssystemen van clubs en festivals. Het draait nu om beter geluid, dat de bezoekers onderdompelt in een...
+- [Politici willen graag een leeftijdscheck voor sociale media, maar is het effectief?](https://fd.nl/samenleving/1611777/politici-willen-graag-een-leeftijdscheck-voor-sociale-media-maar-is-het-effectief)
+  > Leeftijdsgrenzen voor sociale media zijn lastig te handhaven. De eerste resultaten uit Australië waar sociale media voor jongeren onder de 16...
+- [Oud-topman Kees Jan Mourik van aannemer Mourik overleden](https://fd.nl/bedrijfsleven/1611892/oud-topman-kees-jan-mourik-van-aannemer-mourik-overleden)
+  > Als lid van de derde generatie was Kees Jan Mourik dertien jaar voorzitter van de raad van bestuur.
+- [Weerstand tegen datacenters, Amerikaanse staten draaien miljardenkortingen terug](https://fd.nl/bedrijfsleven/1611888/weerstand-tegen-datacenters-amerikaanse-staten-draaien-miljardenkortingen-terug)
+  > De meerderheid van kiezers in de VS is inmiddels tegen de bouw van nieuwe datacenters in hun buurt. Amerikaanse bestuurders trappen in ruim tien...
+- [Dertien glastuinders gaan CO₂ uit de lucht afvangen](https://fd.nl/bedrijfsleven/1611780/dertien-glastuinders-gaan-co-uit-de-lucht-afvangen)
+  > De techniek leek enkele jaren geleden nog enkel toekomstmuziek voor telers, maar de laatste jaren ging het hard.
 
 ### Meest gelezen
 
