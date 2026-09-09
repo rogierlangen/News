@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-09-2026 om 13:34*
+*Laatst bijgewerkt: 09-09-2026 om 17:41*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Voormalig bassist Heideroosjes veroordeeld voor kinderpornobezit](https://nos.nl/l/2630323)
-  > De voormalig bassist van de Limburgse punkband Heideroosjes is veroordeeld tot anderhalf jaar celstraf voor het bezit van kinderporno. Eén jaar van...
-- [Minister ziet geen kans mogelijke coldcasegegevens langer te bewaren](https://nos.nl/l/2630322)
-  > Minister Van Weel zit in zijn maag met een dringend verzoek van de Tweede Kamer. Die wil dat informatie die kan helpen om cold cases op te lossen,...
-- [Dodental na luchtaanval op Houthi-gevangenis in Jemen loopt op tot 23](https://nos.nl/l/2630314)
-  > Bij een luchtaanval op een gevangenis in het noorden van Jemen zijn zeker 23 mensen om het leven gekomen. Reddingswerkers hebben vandaag vier...
-- [Ouderen in verpleeghuizen moeten vaak kort na aankomst weer verhuizen](https://nos.nl/l/2630313)
-  > Ouderen in verpleeghuizen moeten vaak kort na aankomst weer verhuizen, blijkt uit onderzoek van zes universiteiten. "Zowel voor bewoners als naasten...
-- [Merz valt AfD in Bondsdag hard aan: 'Partij wil etnische zuivering'](https://nos.nl/l/2630307)
-  > De Duitse bondskanselier Merz heeft in het eerste plenaire debat na de verkiezingen in Saksen-Anhalt hard uitgehaald naar de winnaar AfD. De...
+- [Amerikaanse hulporganisatie krijgt donatie van 50 miljoen dollar](https://nos.nl/l/2630353)
+  > Americares heeft aangekondigd wereldwijd meer medicijnen te kunnen leveren. De hulporganisatie heeft de grootste donatie in haar 47-jarige bestaan...
+- [UWV gaat meer WIA-uitkeringen controleren en biedt excuses aan](https://nos.nl/l/2630352)
+  > Uitkeringsinstantie UWV ziet zich genoodzaakt om 13.000 WIA-uitkeringen alsnog te controleren op fouten.
+        Eerder werd aan de...
+- [Transportbedrijven in de knel door kapotte bruggen: 'Dit is weer een druppel'](https://nos.nl/l/2630351)
+  > De abrupte afsluiting van de Hardenbergerbrug op de A28 bij Nijkerk leidt tot groeiende irritatie bij transportbedrijven. Ook de belangrijke...
+- [Ergernis bij coalitie over ov-staking: 'Kom aan tafel om problemen op te lossen'](https://nos.nl/l/2630346)
+  > In coalitiekringen werd er vandaag met onbegrip tot ronduit ergernis gereageerd op de door FNV en CNV georganiseerde ov-staking. "Ik vind het ernstig...
+- [EU-landen laten honderden miljarden euro's om van Russisch gas af te komen liggen](https://nos.nl/l/2630344)
+  > Een monsterbedrag bedoeld om de 27 EU-lidstaten minder afhankelijk te maken van Russisch fossiele brandstoffen blijft op de plank liggen. "Vier jaar...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Dick Advocaat gaat door als bondscoach Curaçao na historische WK-deelname: ‘Samen iets speciaals bereikt’](https://www.ad.nl/voetbal/dick-advocaat-gaat-door-als-bondscoach-curacao-na-historische-wk-deelname-samen-iets-speciaals-bereikt~a05d4eb9/)
-  > Dick Advocaat blijft langer aan als bondscoach van Curaçao. De 78-jarige oefenmeester heeft zijn verbintenis verlengd tot medio 2027, meldt de...
-- [Ongekend zware strafeis in vreselijke zedenzaak valt op: ‘Als je het hier niet doet, doe je het nooit’](https://www.ad.nl/binnenland/ongekend-zware-strafeis-in-vreselijke-zedenzaak-valt-op-als-je-het-hier-niet-doet-doe-je-het-nooit~a3827f8a/)
-  > 30 jaar cel en tbs hoorde een van de twee verdachten in de Woudenbergse zedenzaak dinsdag als strafeis. Om meerdere redenen een ongekend hoge eis....
-- [Vrouw die trappende agent filmde, start alsnog procedure ondanks beslissing OM om zaak te laten rusten](https://www.ad.nl/utrecht/vrouw-die-trappende-agent-filmde-start-alsnog-procedure-ondanks-beslissing-om-om-zaak-te-laten-rusten~ae7cfddd/)
-  > Een van de vrouwen die in conflict kwam met een agent onder het Utrechtse Bollendak, gaat alsnog een procedure starten. Eerder besloot het Openbaar...
-- [Yaya Touré eerste Afrikaanse coach in Champions League: ‘We moeten twee of drie keer zo hard werken’](https://www.ad.nl/voetbal/yaya-toure-eerste-afrikaanse-coach-in-champions-league-we-moeten-twee-of-drie-keer-zo-hard-werken~af26f4da/)
-  > Paris Saint-Germain begint de jacht op een derde Champions League-eindzege op rij vanavond tegen Slovan Bratislava, de kampioen van Slowakije. De...
-- [Aftellen naar heerlijk affiche in Camp Nou: dit zijn de vermoedelijke opstellingen van Barcelona en Feyenoord](https://www.ad.nl/voetbal/aftellen-naar-heerlijk-affiche-in-camp-nou-dit-zijn-de-vermoedelijke-opstellingen-van-barcelona-en-feyenoord~abba63ff/)
-  > Feyenoord begint met een geweldig affiche aan de Champions League-campagne: de Rotterdammers gaan op bezoek bij FC Barcelona. Voor Giovanni van...
+- [Ruim 30 jaar verschil, bijna hetzelfde beeld: bijzondere gelijkenis tussen prins George en vader William op Eton College](https://www.ad.nl/show/ruim-30-jaar-verschil-bijna-hetzelfde-beeld-bijzondere-gelijkenis-tussen-prins-george-en-vader-william-op-eton-college~a43245de/)
+  > Prins George (13) is dinsdag aan een nieuw hoofdstuk begonnen. De oudste zoon van prins William (44) en prinses Catherine (44) beleefde zijn eerste...
+- [Adeyemi verdubbelt voorsprong Barcelona tegen Feyenoord, geen penalty voor Hadj Moussa](https://www.ad.nl/voetbal/adeyemi-verdubbelt-voorsprong-barcelona-tegen-feyenoord-geen-penalty-voor-hadj-moussa~abba63ff/)
+  > Feyenoord is de Champions League begonnen met de zware uitwedstrijd bij FC Barcelona. In de stromende regen ging het duel in Camp Nou om 18.45 uur...
+- [FC Twente laat kans op openingstreffer liggen in matig duel met Telstar](https://www.ad.nl/voetbal/fc-twente-laat-kans-op-openingstreffer-liggen-in-matig-duel-met-telstar~a2380504/)
+  > FC Twente en Telstar halen vanavond het duel in dat werd uitgesteld vanwege de Europese verplichtingen van de Enschedeërs. Het duel begint om 18.45...
+- [Hardenbergerbrug bij Nijkerk vannacht weer open: ook A28 dan toegankelijk voor verkeer](https://www.ad.nl/zwolle/hardenbergerbrug-bij-nijkerk-vannacht-weer-open-ook-a28-dan-toegankelijk-voor-verkeer~afbf72b0/)
+  > De Hardenbergerbrug bij Nijkerk wordt rond middernacht weer vrijgegeven. Dat betekent dat het verkeer dan weer gebruik kan maken van de A28 tussen...
+- [Zwembad in achtertuin blijkt bodemloze put: elke week 5000 liter water erbij](https://www.ad.nl/binnenland/zwembad-in-achtertuin-blijkt-bodemloze-put-elke-week-5000-liter-water-erbij~a532c2f2/)
+  > Je laat een zwembad aanleggen in je tuin, maar dat blijkt lek. Elke week moet het worden bijgevuld met 4000 tot 5000 liter water. Het overkwam een...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Niet harder, maar beter. Festivals en clubs investeren in speakers](https://fd.nl/samenleving/1611391/niet-harder-maar-beter-festivals-en-clubs-investeren-in-speakers)
-  > Harder is niet langer het devies voor de geluidssystemen van clubs en festivals. Het draait nu om beter geluid, dat de bezoekers onderdompelt in een...
-- [Politici willen graag een leeftijdscheck voor sociale media, maar is het effectief?](https://fd.nl/samenleving/1611777/politici-willen-graag-een-leeftijdscheck-voor-sociale-media-maar-is-het-effectief)
-  > Leeftijdsgrenzen voor sociale media zijn lastig te handhaven. De eerste resultaten uit Australië waar sociale media voor jongeren onder de 16...
-- [Oud-topman Kees Jan Mourik van aannemer Mourik overleden](https://fd.nl/bedrijfsleven/1611892/oud-topman-kees-jan-mourik-van-aannemer-mourik-overleden)
-  > Als lid van de derde generatie was Kees Jan Mourik dertien jaar voorzitter van de raad van bestuur.
-- [Weerstand tegen datacenters, Amerikaanse staten draaien miljardenkortingen terug](https://fd.nl/bedrijfsleven/1611888/weerstand-tegen-datacenters-amerikaanse-staten-draaien-miljardenkortingen-terug)
-  > De meerderheid van kiezers in de VS is inmiddels tegen de bouw van nieuwe datacenters in hun buurt. Amerikaanse bestuurders trappen in ruim tien...
-- [Dertien glastuinders gaan CO₂ uit de lucht afvangen](https://fd.nl/bedrijfsleven/1611780/dertien-glastuinders-gaan-co-uit-de-lucht-afvangen)
-  > De techniek leek enkele jaren geleden nog enkel toekomstmuziek voor telers, maar de laatste jaren ging het hard.
+- [Suikermarkt geraakt door weersextremen én hoge olieprijzen](https://fd.nl/financiele-markten/1611879/suikermarkt-geraakt-door-weersextremen-en-hoge-olieprijzen)
+  > Weersfenomeen El Niño verlaagt het suikeraanbod in grootste exporteurs Thailand, India en Brazilië.
+- [Stichting Nuon Claim in hoger beroep: ‘Vattenfall misleidde klanten’](https://fd.nl/bedrijfsleven/1611898/stichting-nuon-claim-in-hoger-beroep-vattenfall-misleidde-klanten)
+  > Kleine grootverbruikers zouden jarenlang te veel hebben betaald voor hun energie. Twee jaar geleden oordeelde de rechter dat er geen sprake was van...
+- [VVD’er Brekelmans valt vakbonden aan: ‘Kijk verder dan je protestbord lang is’](https://fd.nl/politiek/1611886/vvder-brekelmans-valt-vakbonden-aan-kijk-verder-dan-je-protestbord-lang-is)
+  > De VVD-fractievoorzitter pleit in zijn Binnenhoflezing voor bezuinigingen op de sociale zekerheid. Precies op de dag dat de vakbonden staken.
+- [Conflict in Golfregio jaagt marktrente op staatsobligaties verder omhoog](https://fd.nl/financiele-markten/1611896/conflict-in-golfregio-jaagt-marktrente-op-staatsobligaties-verder-omhoog)
+  > De hoge olie- en gasprijzen zijn slecht nieuws voor obligatiebeleggers. Met name landen met hoge schulden zien hun leenkosten nu toenemen.
+- [Daling marktaandeel Jumbo voorlopig ten einde](https://fd.nl/bedrijfsleven/1611897/daling-marktaandeel-jumbo-voorlopig-ten-einde)
+  > Het marktaandeel van de Jumbo-supermarkten in Nederland bedroeg in de eerste helft van dit jaar zo’n 20%. Dat is evenveel als eind 2025. Het...
 
 ### Meest gelezen
 
