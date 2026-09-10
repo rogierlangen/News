@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-09-2026 om 03:54*
+*Laatst bijgewerkt: 10-09-2026 om 08:49*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Lichaam van vermiste man (47) in het IJ gevonden na grote zoekactie](https://nos.nl/l/2630392)
-  > Duikers hebben in het IJ in Amsterdam het lichaam gevonden van een 47-jarige man naar wie een grote zoekactie was gestart. De man viel gistermiddag...
-- [Het was dit jaar wereldwijd de warmste augustus ooit gemeten](https://nos.nl/l/2630389)
-  > Vorige maand was wereldwijd niet alleen de warmste augustus sinds het begin van de metingen, samen met juli 2023 was het wereldwijd ook de warmste...
-- [Piloot gecrasht Amazon-vliegtuig waarschuwde collega voor te hoge snelheid](https://nos.nl/l/2630388)
-  > Een piloot van het Amazon-vrachtvliegtuig dat van de landingsbaan schoot in Miami, waarschuwde zijn collega in de cockpit dat het vliegtuig te snel...
-- [Visscherssteeg Utrecht acht maanden na explosie weer open, omwonenden verrast](https://nos.nl/l/2630387)
-  > Bijna acht maanden na de grote explosie in de Visscherssteeg in Utrecht gaat de straat weer helemaal open. Gisteren werd de houten afzetting...
-- [Spaanse geheime dienst waarschuwde eigen regering en Marokko voor bestorming Ceuta](https://nos.nl/l/2630375)
-  > De Spaanse geheime dienst waarschuwde de Marokkaanse en Spaanse autoriteiten voor de massale oversteek van migranten naar Ceuta, de Spaanse exclave...
+- [Vlucht Zelensky bedreigd door drones: 'Realiteit waarmee hij wordt geconfronteerd'](https://nos.nl/l/2630408)
+  > Het vliegtuig van de Oekraïense president Zelensky heeft dinsdag in Moldavië te maken gehad met een dreigende drone-aanval. Volgens Noorse politici,...
+- [Nederland schaft verkenningsvliegtuig aan in strijd tegen spionage, sabotage en drones](https://nos.nl/l/2630407)
+  > In de strijd tegen spionage en sabotage schaft ons land een speciaal verkenningsvliegtuig aan om zelf sneller vijanden waar te nemen. Daartoe is een...
+- [Aantal grote spoorstoringen opnieuw te hoog, ook volgend jaar](https://nos.nl/l/2630405)
+  > Dit jaar worden er opnieuw meer grote storingen op het spoor verwacht dan het plafond van 520 dat ProRail heeft afgesproken. Dat bevestigt het...
+- [Doden en tientallen vermisten na brand op veerboot Filipijnen, zoektocht op zee gaat door](https://nos.nl/l/2630401)
+  > Bij een brand op een veerboot in de Filipijnen zijn zeker vijf mensen om het leven gekomen. Tientallen mensen worden nog vermist. De lokale...
+- [Meer locaties, meer bezoekers en meer leden: bibliotheek zit in de lift](https://nos.nl/l/2630399)
+  > Terwijl de leesvaardigheid van jongeren de laatste jaren is gedaald, is de bibliotheek juist populairder geworden onder jongeren en jongvolwassenen....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [ProRail geeft het op: grens van 520 grote spoorstoringen opnieuw overschreden, ook in 2027](https://www.ad.nl/binnenland/prorail-geeft-het-op-grens-van-520-grote-spoorstoringen-opnieuw-overschreden-ook-in-2027~a1363bf9/)
-  > Slecht nieuws voor miljoenen treinreizigers. ProRail krijgt het fors gestegen aantal grootschalige storingen niet onder controle. Dit jaar gaat de...
-- [LIVE Midden-Oosten | Iraanse media: meerdere explosies gehoord rond Straat van Hormuz](https://www.ad.nl/buitenland/live-midden-oosten-iraanse-media-meerdere-explosies-gehoord-rond-straat-van-hormuz~ac528ac3/)
-  > Op het eiland Qeshm in de Straat van Hormuz is een luide explosie gehoord. Ook werden meerdere explosies gehoord in de stad Sirik en het district...
-- [Voetbalpodcast | ‘Hadj Moussa heeft aanvallend de kwaliteiten om het de backs van Barcelona lastig te maken’](https://www.ad.nl/voetbal/voetbalpodcast-hadj-moussa-heeft-aanvallend-de-kwaliteiten-om-het-de-backs-van-barcelona-lastig-te-maken~a42af5cd9/)
-  > Feyenoord verloor in de Champions League met ruime cijfers van Barcelona, ondanks dat het aardige dingen liet zien in Spanje. In de AD Voetbalpodcast...
-- [Onderzoeker vernoemt nieuwe insectensoorten naar Taylor Swift](https://www.ad.nl/show/onderzoeker-vernoemt-nieuwe-insectensoorten-naar-taylor-swift~a79a5cf4/)
-  > Een onderzoeker van de universiteit UC Riverside in Californië heeft een aantal insecten uit Australië vernoemd naar zangeres Taylor Swift. Woensdag...
-- [LIVE US Open | Van de Zandschulp kan niet stunten tegen Zverev](https://www.ad.nl/tennis/live-us-open-van-de-zandschulp-kan-niet-stunten-tegen-zverev~ace912b0/)
-  > Botic van de Zandschulp hoopte voor het eerst in zijn carrière de halve finales van een grandslamtoernooi te bereiken, maar wist niet te stunten...
+- [Sharon Stone heeft al langere tijd geen seks meer: ‘Zit in fase met weinig geluk in de liefde’](https://www.ad.nl/show/sharon-stone-heeft-al-langere-tijd-geen-seks-meer-zit-in-fase-met-weinig-geluk-in-de-liefde~ad6e4b90a/)
+  > Sharon Stone heeft al ‘vrij lang’ geen seks meer. Dat bekende de Amerikaanse actrice in de podcast Breakdown van actrice Mayim Bialik. De 68-jarige...
+- [Vermoedelijke opstelling PSV voor duel met Shakhtar: noodgedwongen wijziging](https://www.ad.nl/voetbal/vermoedelijke-opstelling-psv-voor-duel-met-shakhtar-noodgedwongen-wijziging~a4e866ea/)
+  > PSV trapt vanavond het Champions League-avontuur af met een thuiswedstrijd tegen Shakhtar Donetsk. Beginnen de Eindhovenaren met een zege op de...
+- [Verdacht pakket aangetroffen op militaire kazerne in Den Helder, kazerne deels ontruimd](https://www.ad.nl/112-nieuws-den-helder/verdacht-pakket-aangetroffen-op-militaire-kazerne-in-den-helder-kazerne-deels-ontruimd~a79b1211/)
+  > Op een militaire kazerne in Den Helder is donderdag een verdacht pakket aangetroffen. Het pakket werd gevonden in de postkamer. Een speciale...
+- [Bijna de helft van de vrouwen drinkt alcohol vlak voor zwangerschap, een op de acht rookt of vapet nog](https://www.ad.nl/binnenland/bijna-de-helft-van-de-vrouwen-drinkt-alcohol-vlak-voor-zwangerschap-een-op-de-acht-rookt-of-vapet-nog~a0390826/)
+  > Een op de acht vrouwen rookt of vapet vlak voor de zwangerschap en bijna de helft van de vrouwen drinkt in die periode alcohol. Volgens het...
+- [‘Ik sta letterlijk in de shit’: Valerie wanhopig na riooloverstromingen in haar keuken](https://www.ad.nl/binnenland/ik-sta-letterlijk-in-de-shit-valerie-wanhopig-na-riooloverstromingen-in-haar-keuken~a1082d1e/)
+  > Een keuken die verandert in een zwembad met rioolwater, terwijl je 18-jarige dochter een ernstige auto-immuunziekte heeft. De Haagse Valerie (53) is...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Krijgen zieke werknemers straks minder doorbetaald?](https://fd.nl/economie/1611787/krijgen-zieke-werknemers-straks-minder-doorbetaald)
-  > Vandaag in Dagkoers: Den Haag wil af van volledige loondoorbetaling bij ziekte; Trump lanceert een babybeleggingsrekening; en hebben Nederlandse...
-- [Spookfondsen](https://fd.nl/opinie/1611903/spookfondsen)
-  > Columnist Anna Dijkman ziet genoeg redenen om een einde te maken aan een verwarrende boekhoudkundige erfenis uit  het verleden.
-- [Aartsen (Werk en Participatie): volledig doorbetalen loon bij ziekte op de helling](https://fd.nl/politiek/1611881/aartsen-werk-en-participatie-volledig-doorbetalen-loon-bij-ziekte-op-de-helling)
-  > VVD-minister Aartsen wil de ‘zware last’ voor werkgevers van loondoorbetaling bij ziekte verlichten. Zijn inventarisatie van de mogelijkheden zet de...
-- [Ongehoord pronken met foute regimes](https://fd.nl/opinie/1611374/ongehoord-pronken-met-foute-regimes)
-  > Eerst zag je het voornamelijk aan linkerzijde: ‘radical chic’ – zoals de neiging heet om te flirten met radicaal gedachtegoed. Maar nu is het ook aan...
-- [Personalia donderdag 10 september](https://fd.nl/bedrijfsleven/1611887/personalia-donderdag-10-september)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Licht defensie-uitgaven beter toe](https://fd.nl/opinie/1611893/licht-defensie-uitgaven-beter-toe)
+  > Defensie-uitgaven worden per gedane betaling gerapporteerd. Dat zegt te weinig over wat die uitgaven opleveren aan bijvoorbeeld operationele...
+- [Zolderkamer­pensioenexperts](https://fd.nl/financiele-markten/1611036/zolderkamerpensioenexperts)
+  > Over de tegenvallende rendementen van pensioenfondsen wordt veel geroeptoeterd, vindt FD-columnist Corné van Zeijl.
+- [Tussen dreigend ontslag en een nieuwe loopbaan: een ode aan het niet-weten](https://fd.nl/samenleving/1611876/tussen-deigend-ontslag-en-een-nieuwe-loopbaan-een-ode-aan-het-niet-weten)
+  > Wat doe je als je op het punt staat je baan te verliezen? Iets anders gaan doen, concludeerde Alice van Essen, maar voor het zover is koestert ze de...
+- [Nederlandse industrie kent grootste productiestijging in vier jaar tijd](https://fd.nl/economie/1611790/nederlandse-industrie-kent-grootste-productiestijging-in-vier-jaar-tijd)
+  > Van de acht grootste branches produceerde vooral de machine-industrie meer dan een jaar eerder.
+- [CBS: Nederlandse export naar de VS daalt met 25%](https://fd.nl/economie/1611946/cbs-nederlandse-export-naar-de-vs-daalt-met-25)
+  > Italië haalt de VS nu in als de vijfde bestemming voor Nederlandse goederen.
 
 ### Meest gelezen
 
