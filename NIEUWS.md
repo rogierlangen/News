@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-09-2026 om 08:49*
+*Laatst bijgewerkt: 10-09-2026 om 13:26*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Vlucht Zelensky bedreigd door drones: 'Realiteit waarmee hij wordt geconfronteerd'](https://nos.nl/l/2630408)
-  > Het vliegtuig van de Oekraïense president Zelensky heeft dinsdag in Moldavië te maken gehad met een dreigende drone-aanval. Volgens Noorse politici,...
-- [Nederland schaft verkenningsvliegtuig aan in strijd tegen spionage, sabotage en drones](https://nos.nl/l/2630407)
-  > In de strijd tegen spionage en sabotage schaft ons land een speciaal verkenningsvliegtuig aan om zelf sneller vijanden waar te nemen. Daartoe is een...
-- [Aantal grote spoorstoringen opnieuw te hoog, ook volgend jaar](https://nos.nl/l/2630405)
-  > Dit jaar worden er opnieuw meer grote storingen op het spoor verwacht dan het plafond van 520 dat ProRail heeft afgesproken. Dat bevestigt het...
-- [Doden en tientallen vermisten na brand op veerboot Filipijnen, zoektocht op zee gaat door](https://nos.nl/l/2630401)
-  > Bij een brand op een veerboot in de Filipijnen zijn zeker vijf mensen om het leven gekomen. Tientallen mensen worden nog vermist. De lokale...
-- [Meer locaties, meer bezoekers en meer leden: bibliotheek zit in de lift](https://nos.nl/l/2630399)
-  > Terwijl de leesvaardigheid van jongeren de laatste jaren is gedaald, is de bibliotheek juist populairder geworden onder jongeren en jongvolwassenen....
+- [ECB verhoogt rente opnieuw om inflatie tegen te gaan, spaarrente is zo ver nog niet](https://nos.nl/l/2630449)
+  > De Europese Centrale Bank (ECB) verhoogt de beleidsrente voor de tweede keer dit jaar, van 2,25 naar 2,5 procent. Daarmee probeert de ECB de...
+- [Kabinet schrapt loonkorting arbeidsmigranten: 'Werkt uitbuiting in de hand'](https://nos.nl/l/2630448)
+  > Het kabinet streeft ernaar dat werkgevers per 1 juli 2028 geen bedrag meer mogen inhouden op het minimumloon van arbeidsmigranten in ruil voor...
+- [Volleyballers beginnen met acht debutanten aan EK: 'Voel de kriebels nu wel komen'](https://nos.nl/l/2630447)
+  > Het begin van een nieuw tijdperk. Zo omschrijven de Nederlandse volleyballers het Europees kampioenschap aan de vooravond van het toernooi in...
+- [Interne documenten bevestigen: gemeente Amsterdam wil 2500 banen schrappen](https://nos.nl/l/2630444)
+  > De gemeente Amsterdam wil 2500 banen schrappen, bevestigen interne documenten die AT5 en Het Parool inzagen. Dat komt overeen met de plannen in het...
+- [Schrikkelseconde moet verdwijnen, klok pas over eeuwen weer bijgesteld](https://nos.nl/l/2630443)
+  > Komende maand valt in Parijs een besluit dat nog lang zal nagalmen: de toekomst van de schrikkelseconde staat op het spel. Ruim een halve eeuw na de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Sharon Stone heeft al langere tijd geen seks meer: ‘Zit in fase met weinig geluk in de liefde’](https://www.ad.nl/show/sharon-stone-heeft-al-langere-tijd-geen-seks-meer-zit-in-fase-met-weinig-geluk-in-de-liefde~ad6e4b90a/)
-  > Sharon Stone heeft al ‘vrij lang’ geen seks meer. Dat bekende de Amerikaanse actrice in de podcast Breakdown van actrice Mayim Bialik. De 68-jarige...
-- [Vermoedelijke opstelling PSV voor duel met Shakhtar: noodgedwongen wijziging](https://www.ad.nl/voetbal/vermoedelijke-opstelling-psv-voor-duel-met-shakhtar-noodgedwongen-wijziging~a4e866ea/)
-  > PSV trapt vanavond het Champions League-avontuur af met een thuiswedstrijd tegen Shakhtar Donetsk. Beginnen de Eindhovenaren met een zege op de...
-- [Verdacht pakket aangetroffen op militaire kazerne in Den Helder, kazerne deels ontruimd](https://www.ad.nl/112-nieuws-den-helder/verdacht-pakket-aangetroffen-op-militaire-kazerne-in-den-helder-kazerne-deels-ontruimd~a79b1211/)
-  > Op een militaire kazerne in Den Helder is donderdag een verdacht pakket aangetroffen. Het pakket werd gevonden in de postkamer. Een speciale...
-- [Bijna de helft van de vrouwen drinkt alcohol vlak voor zwangerschap, een op de acht rookt of vapet nog](https://www.ad.nl/binnenland/bijna-de-helft-van-de-vrouwen-drinkt-alcohol-vlak-voor-zwangerschap-een-op-de-acht-rookt-of-vapet-nog~a0390826/)
-  > Een op de acht vrouwen rookt of vapet vlak voor de zwangerschap en bijna de helft van de vrouwen drinkt in die periode alcohol. Volgens het...
-- [‘Ik sta letterlijk in de shit’: Valerie wanhopig na riooloverstromingen in haar keuken](https://www.ad.nl/binnenland/ik-sta-letterlijk-in-de-shit-valerie-wanhopig-na-riooloverstromingen-in-haar-keuken~a1082d1e/)
-  > Een keuken die verandert in een zwembad met rioolwater, terwijl je 18-jarige dochter een ernstige auto-immuunziekte heeft. De Haagse Valerie (53) is...
+- [Mauricio Pochettino claimt landstitel voor Tottenham Hotspur na straf voor Chelsea](https://www.ad.nl/voetbal/mauricio-pochettino-claimt-landstitel-voor-tottenham-hotspur-na-straf-voor-chelsea~a02fd0dd/)
+  > Mauricio Pochettino vindt dat Chelsea de titel in de Premier League van het seizoen 2016/2017 moet worden afgenomen.Tottenham Hotspur, de nummer twee...
+- [Jimmy Kimmel verplaatst interview met politicus Talarico naar YouTube na dreigementen](https://www.ad.nl/show/jimmy-kimmel-verplaatst-interview-met-politicus-talarico-naar-youtube-na-dreigementen~a8dc9c3e/)
+  > Presentator Jimmy Kimmel verplaatst zijn interview met de Democratische Texaanse politicus James Talarico in Jimmy Kimmel Live! naar YouTube. Volgens...
+- [Waarom dure energie de economie nu nauwelijks raakt en wanneer dat kan veranderen](https://www.ad.nl/economie/waarom-dure-energie-de-economie-nu-nauwelijks-raakt-en-wanneer-dat-kan-veranderen~aabffc7a/)
+  > De dure benzine en hoge gasprijzen leiden dagelijks tot chagrijn, maar de economische gevolgen van de dure energie vallen tot nu toe mee. Wanneer...
+- [Bondscoach laat toppers thuis voor WK in Montreal: ‘Het zou stom zijn als we niet vol voor Demi gaan’](https://www.ad.nl/wielrennen/bondscoach-laat-toppers-thuis-voor-wk-in-montreal-het-zou-stom-zijn-als-we-niet-vol-voor-demi-gaan~aaa6e0ea/)
+  > Demi Vollering is de kopvrouw van de Nederlandse selectie voor de WK wielrennen, die van 20 tot en met 27 september plaatsvinden in het Canadese...
+- [Namen en 06-nummers klanten Bijenkorf in handen van criminelen: ‘Wees alert op verdachte berichten’](https://www.ad.nl/economie/namen-en-06-nummers-klanten-bijenkorf-in-handen-van-criminelen-wees-alert-op-verdachte-berichten~ad14001f/)
+  > Criminelen hebben persoonsgegevens van Bijenkorf-klanten buitgemaakt, waaronder namen, e-mailadressen en telefoonnummers. Dat gebeurde na een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Licht defensie-uitgaven beter toe](https://fd.nl/opinie/1611893/licht-defensie-uitgaven-beter-toe)
-  > Defensie-uitgaven worden per gedane betaling gerapporteerd. Dat zegt te weinig over wat die uitgaven opleveren aan bijvoorbeeld operationele...
-- [Zolderkamer­pensioenexperts](https://fd.nl/financiele-markten/1611036/zolderkamerpensioenexperts)
-  > Over de tegenvallende rendementen van pensioenfondsen wordt veel geroeptoeterd, vindt FD-columnist Corné van Zeijl.
-- [Tussen dreigend ontslag en een nieuwe loopbaan: een ode aan het niet-weten](https://fd.nl/samenleving/1611876/tussen-deigend-ontslag-en-een-nieuwe-loopbaan-een-ode-aan-het-niet-weten)
-  > Wat doe je als je op het punt staat je baan te verliezen? Iets anders gaan doen, concludeerde Alice van Essen, maar voor het zover is koestert ze de...
-- [Nederlandse industrie kent grootste productiestijging in vier jaar tijd](https://fd.nl/economie/1611790/nederlandse-industrie-kent-grootste-productiestijging-in-vier-jaar-tijd)
-  > Van de acht grootste branches produceerde vooral de machine-industrie meer dan een jaar eerder.
-- [CBS: Nederlandse export naar de VS daalt met 25%](https://fd.nl/economie/1611946/cbs-nederlandse-export-naar-de-vs-daalt-met-25)
-  > Italië haalt de VS nu in als de vijfde bestemming voor Nederlandse goederen.
+- [Hoe ‘delulu’ zijn beleggers in Lululemon?](https://fd.nl/financiele-markten/1611951/hoe-delulu-zijn-beleggers-in-lululemon)
+  > Na meerdere blunders en tegenvallende resultaten staat het aandeel van het kledingmerk nu op het laagste niveau in jaren. Toch heeft een enkele...
+- [Saoedisch oliebedrijf Aramco overweegt verkoop rubbermaker Arlanxeo](https://fd.nl/bedrijfsleven/1611962/saoedisch-oliebedrijf-aramco-overweegt-verkoop-rubbermaker-arlanxeo)
+  > Volgens bronnen is Aramco op zoek naar potentiële kopers, maar is het niet zeker dat het ook daadwerkelijk tot een transactie gaat komen.
+- [ECB trekt rente verder op om inflatie in te dammen](https://fd.nl/financiele-markten/1611948/ecb-trekt-rente-verder-op-om-inflatie-in-te-dammen)
+  > De stap komt niet als een verrassing. De grote vraag is vooral of ECB-president Christine Lagarde straks tijdens de persconferentie zinspeelt op meer...
+- [Miljoenen voor Delftse start-up om waardevol materiaal uit staalslakken terug te winnen](https://fd.nl/bedrijfsleven/1611959/miljoenen-voor-delftse-start-up-om-waardevol-materiaal-uit-staalslakken-terug-te-winnen)
+  > Phoenix Metals krijgt €4 mln van ontwikkelingsmaatschappijen en Mossinkhoff Investments om een zogeheten pilotfabriek te bouwen.
+- [Beursgang Carglass-eigenaar stukje waarschijnlijker, grootaandeelhouder ‘bekijkt opties’](https://fd.nl/financiele-markten/1611952/beursgang-carglass-eigenaar-stukje-waarschijnlijker-grootaandeelhouder-bekijkt-opties)
+  > Afgelopen maanden speculeerde de markt al gretig over een introductie van Belron op de beurs. In de media gaat een waardering van dat debuut rond van...
 
 ### Meest gelezen
 
