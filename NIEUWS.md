@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-09-2026 om 17:34*
+*Laatst bijgewerkt: 10-09-2026 om 20:38*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Coronaverhoren na 150 uur voorbij, nu moet de commissie lessen trekken](https://nos.nl/l/2630488)
-  > Nederland bouwt "halfhoge dijken" tegen de volgende pandemie. Dat was het laatste punt van de laatste getuige van de parlementaire commissie corona....
-- [Podcast De Dag: reizen met de nachttrein door Europa](https://nos.nl/l/2630487)
-  > Treinreizigers kunnen vanaf vandaag ook met de nachttrein naar Milaan. Een van de weinige internationale routes die in de nacht worden aangeboden....
-- [Man uit Apeldoorn 30 jaar na verkrachtingen aangehouden](https://nos.nl/l/2630486)
-  > De politie heeft een man (61) uit Apeldoorn opgepakt die verdacht wordt van twee verkrachtingen uit 1995 en 1997. De man kon alsnog worden opgespoord...
-- [Tapijt van Bayeux-mania breekt uit in Londen, duizenden willen het kleed zien](https://nos.nl/l/2630485)
-  > Op de eerste dag dat het Tapijt van Bayeux in het Verenigd Koninkrijk is te zien is er een heuse mania uitgebroken rondom het duizend jaar oude...
-- [FIOD doet invallen vanwege verdenking corruptie door cardiologen](https://nos.nl/l/2630483)
-  > In een onderzoek naar corruptie door cardiologen heeft de FIOD invallen gedaan in acht woningen en bedrijfspanden. Om hoeveel specialisten het gaat,...
+- [Duitse ontwikkelaar ziet af van vier grote windturbines bij Winterswijk](https://nos.nl/l/2630503)
+  > Er komen voorlopig geen grote windturbines bij Ratum, vlak over de Duitse grens bij de Gelderse gemeente Winterswijk. De Duitse ontwikkelaar ziet af...
+- [Klimaatactivist Daniel V. plande ruim 150 sabotageacties, in Duitsland en buurlanden](https://nos.nl/l/2630499)
+  > De Duitse klimaatactivist die dinsdag na een klopjacht werd opgepakt, plande meer dan 150 sabotageacties. Dat blijkt uit onderzoek naar de man, dat...
+- [Amerikaanse talkshowhost Jimmy Kimmel schrapt gesprek 'na druk regering Trump'](https://nos.nl/l/2630497)
+  > Een gesprek met een Democratische politicus mag niet op tv worden uitgezonden in de Amerikaanse show van presentator Jimmy Kimmel. Dat zei de...
+- [Brand in Congo verwoest twee scholen, zeker 24 kinderen omgekomen](https://nos.nl/l/2630496)
+  > Bij een grote brand op twee scholen in de stad Bukavu, in het oosten van de Democratische Republiek Congo, zijn zeker 24 kinderen om het leven...
+- [Doden bij busongeluk met Nederlands reisgezelschap in Zwitserland](https://nos.nl/l/2630492)
+  > Bij een ernstig ongeluk met een Nederlandse bus in Zwitserland zijn doden en gewonden gevallen. Dat meldt de politie van het Zwitserse kanton...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Champions League | PSV komt vlak voor rust op achterstand: goal Sjachtar telt ondanks overtreding op Dest](https://www.ad.nl/voetbal/live-champions-league-psv-komt-vlak-voor-rust-op-achterstand-goal-sjachtar-telt-ondanks-overtreding-op-dest~a4e866ea/)
-  > PSV trapt vanavond het Champions League-avontuur af met een thuiswedstrijd tegen Sjachtar Donetsk. Beginnen de Eindhovenaren met een zege op de...
-- [Monique opent na maanden de usb-stick van Hein: daarop stond zijn laatste grote cadeau voor de kleinkinderen](https://www.ad.nl/binnenland/monique-opent-na-maanden-de-usb-stick-van-hein-daarop-stond-zijn-laatste-grote-cadeau-voor-de-kleinkinderen~ac3ff9a8/)
-  > Wat als je leven ophoudt en je nog zoveel wilt overbrengen en nalaten aan je kleinkinderen? Voor Hein van Grinsven uit Eindhoven was het reden om in...
-- [Hoogleraar arbeidsmarkt Ton Wilthagen neemt het op voor jongeren: ‘Gen Z lui noemen is niet op bewijs gebaseerd’](https://www.ad.nl/economie/hoogleraar-arbeidsmarkt-ton-wilthagen-neemt-het-op-voor-jongeren-gen-z-lui-noemen-is-niet-op-bewijs-gebaseerd~a583e9a3/)
-  > Veel meer jongeren moeten vijf dagen per week gaan werken, vindt VVD’er Ruben Brekelmans. Maar, zegt Ton Wilthagen, hoogleraar arbeidsmarkt, wat...
-- [Nederlandse bendeleider (22) opgepakt in Spanje na vlucht met doorgeknipte enkelband](https://www.ad.nl/buitenland/nederlandse-bendeleider-22-opgepakt-in-spanje-na-vlucht-met-doorgeknipte-enkelband~a7b4bef8/)
-  > De voortvluchtige Nederlander M.H. (22) uit Lelystad is opgepakt in Spanje. Justitie ziet de twintiger als het kopstuk van de beruchte...
-- [AS Roma opent score in Istanboel, assist voor Donyell Malen na goede actie](https://www.ad.nl/voetbal/as-roma-opent-score-in-istanboel-assist-voor-donyell-malen-na-goede-actie~a069e3c5/)
-  > Zes wedstrijden vanavond in de Champions League. Donyell Malen en Devyne Rensch spelen in Turkije tegen het Fenerbahçe van Nathan Aké. Marten de Roon...
+- [Harry Kane verdubbelt marge voor Bayern, United leidt ruim tegen CL-debutant, assist voor Donyell Malen](https://www.ad.nl/voetbal/harry-kane-verdubbelt-marge-voor-bayern-united-leidt-ruim-tegen-cl-debutant-assist-voor-donyell-malen~a069e3c5/)
+  > Zes wedstrijden vanavond in de Champions League. AS Roma speelde, met basisklanten Donyell Malen en Devyne Rensch, gelijk op bezoek bij het...
+- [Fred Ros (67) over zijn botte uitspraken in B&B vol liefde: ‘Ik was heel ongelukkig met mezelf’](https://www.ad.nl/show/fred-ros-67-over-zijn-botte-uitspraken-in-benb-vol-liefde-ik-was-heel-ongelukkig-met-mezelf~aec7ad7f/)
+  > Hij werd de afgelopen weken hét symbool van de botte, onbeschofte, seksistische man. En toch heeft Fred Ros (67) geen enkele spijt van zijn deelname...
+- [‘We zijn erg verliefd’: deze koppels uit B&B vol liefde zijn nog steeds samen](https://www.ad.nl/show/we-zijn-erg-verliefd-deze-koppels-uit-benb-vol-liefde-zijn-nog-steeds-samen~a0c3276d/)
+  > Het zit erop: negen weken B&B vol liefde. Wie zijn er nog samen en wie gooiden de handdoek in de ring? Dat werd donderdagavond duidelijk tijdens de...
+- [Man in Dordrecht aangehouden voor poging bijna 4000 kilo cocaïne in te voeren](https://www.ad.nl/dordrecht/man-in-dordrecht-aangehouden-voor-poging-bijna-4000-kilo-cocaine-in-te-voeren~a53c59f9/)
+  > Een man uit Dordrecht is aangehouden voor mogelijke betrokkenheid bij een poging om bijna 4000 kilo cocaïne in te voeren.
+- [Ruben van Bommel over storm aan kritiek na overtreding tegen Ajax: ‘Mijn eigen schuld, maar wil het nu afsluiten’](https://www.ad.nl/voetbal/ruben-van-bommel-over-storm-aan-kritiek-na-overtreding-tegen-ajax-mijn-eigen-schuld-maar-wil-het-nu-afsluiten~a65bfcd4/)
+  > Ruben van Bommel kreeg de afgelopen dagen veel over zich heen. De middenvelder van PSV was de meest besproken speler na de met 1-3 gewonnen topper...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Gerechtshof tikt Vodafone op de vingers om fiscale truc](https://fd.nl/bedrijfsleven/1611969/gerechtshof-tikt-vodafone-op-de-vingers-om-fiscale-truc)
-  > Het hof oordeelt hard over de fiscale praktijken van de telecomgigant, die ‘op zijn minst lichtvaardig’ belastingaangifte deed.
-- [Europese meldplicht dwingt fabrikanten tot snelle rapportage van digitale lekken](https://fd.nl/bedrijfsleven/1611810/europese-meldplicht-dwingt-fabrikanten-tot-snelle-rapportage-van-digitale-lekken)
-  > Slimme deurbellen of beveiligingscamera’s: vanaf vrijdag moeten fabrikanten ernstige incidenten en ‘misbruikte kwetsbaarheden’ met dit soort...
-- [Nieuwe Zelfstandigenwet moet zzp’er per 2028 eindelijk zekerheid bieden](https://fd.nl/politiek/1611963/nieuwe-zelfstandigenwet-moet-zzper-per-2028-eindelijk-zekerheid-bieden)
-  > Minister Thierry Aartsen belooft zzp’ers een ‘veilige haven’ door aanpassing van de arbeidsmarktwetgeving. Hervatting van de handhaving op...
-- [Werkgevers worstelen met stijgend ziekteverzuim door privéproblemen](https://fd.nl/bedrijfsleven/1611808/werkgevers-worstelen-met-stijgend-ziekteverzuim-door-priveproblemen)
-  > Een relatiedip, een scheiding of de zorg voor jonge kinderen kan leiden tot langdurige afwezigheid op het werk. Ondernemers moeten loon doorbetalen,...
-- [Verschil tussen Amerikaanse en Chinese rente stijgt naar record](https://fd.nl/financiele-markten/1611968/verschil-tussen-amerikaanse-en-chinese-rente-stijgt-naar-record)
-  > Amerikaanse beleggers maken zich zorgen over de alsmaar oplopende staatsschuld. Ook verwachten ze dat de Federal Reserve de beleidsrente gaat...
+- [Meer omzet en winst voor Oracle](https://fd.nl/tech-en-innovatie/1611841/meer-omzet-en-winst-voor-oracle)
+  > De zorgen over de hoge investeringen voor AI-datacenters kunnen weer naar de achtergrond.
+- [Koersdalingen door dure olie en vrees rentestijging](https://fd.nl/financiele-markten/1611840/koersdalingen-door-dure-olie-en-vrees-rentestijging)
+  > De meeste techaandelen gingen in het rood, met Apple als positieve uitzondering.
+- [Nederlandse vakantiegangers omgekomen bij busongeluk Zwitserland](https://fd.nl/samenleving/1612006/nederlandse-vakantiegangers-omgekomen-bij-busongeluk-zwitserland)
+  > Het ongeluk vond plaats rond 18.45 uur, laat een woordvoerder van de ANVR weten.
+- [Salesforce wil nóg een AI-bedrijf overnemen](https://fd.nl/financiele-markten/1611817/salesforce-wil-nog-een-ai-bedrijf-overnemen)
+  > Het zou de vierde AI-gerelateerde overname dit jaar zijn. Listen Labs heeft AI waarmee bedrijven klanten kunnen interviewen.
+- [Aandeelhouders kritisch op salaris van topman Ryanair](https://fd.nl/financiele-markten/1611816/aandeelhouders-kritisch-op-salaris-van-topman-ryanair)
+  > Vier op de tien beleggers in de luchtvaartmaatschappij stemden tegen zijn salaris, dat oploopt tot €150 mln.
 
 ### Meest gelezen
 
