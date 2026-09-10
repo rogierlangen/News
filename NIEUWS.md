@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-09-2026 om 23:03*
+*Laatst bijgewerkt: 10-09-2026 om 03:54*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Lichaam van vermiste man (47) in het IJ gevonden na grote zoekactie](https://nos.nl/l/2630392)
+  > Duikers hebben in het IJ in Amsterdam het lichaam gevonden van een 47-jarige man naar wie een grote zoekactie was gestart. De man viel gistermiddag...
+- [Het was dit jaar wereldwijd de warmste augustus ooit gemeten](https://nos.nl/l/2630389)
+  > Vorige maand was wereldwijd niet alleen de warmste augustus sinds het begin van de metingen, samen met juli 2023 was het wereldwijd ook de warmste...
+- [Piloot gecrasht Amazon-vliegtuig waarschuwde collega voor te hoge snelheid](https://nos.nl/l/2630388)
+  > Een piloot van het Amazon-vrachtvliegtuig dat van de landingsbaan schoot in Miami, waarschuwde zijn collega in de cockpit dat het vliegtuig te snel...
+- [Visscherssteeg Utrecht acht maanden na explosie weer open, omwonenden verrast](https://nos.nl/l/2630387)
+  > Bijna acht maanden na de grote explosie in de Visscherssteeg in Utrecht gaat de straat weer helemaal open. Gisteren werd de houten afzetting...
 - [Spaanse geheime dienst waarschuwde eigen regering en Marokko voor bestorming Ceuta](https://nos.nl/l/2630375)
   > De Spaanse geheime dienst waarschuwde de Marokkaanse en Spaanse autoriteiten voor de massale oversteek van migranten naar Ceuta, de Spaanse exclave...
-- [Brit (31) aangeklaagd om voorbereiden sabotageactie voor Russische geheime dienst](https://nos.nl/l/2630372)
-  > Het Britse Openbaar Ministerie heeft een man aangeklaagd die ervan wordt beschuldigd een sabotageactie te hebben voorbereid voor Rusland. Hij zou...
-- [Oekraïense droneaanval in Russische 'gashoofdstad', op 2800 kilometer van de grens](https://nos.nl/l/2630370)
-  > Oekraïense drones hebben een aanval uitgevoerd diep in Rusland op een belangrijke gasstad in Siberië. Het is volgens Oekraïne de eerste Oekraïense...
-- [Gebrek aan drinkwater aanjager van nieuwe demonstraties in Tunesië](https://nos.nl/l/2630365)
-  > Onder de Tunesische bevolking neemt de onvrede over de staat van het land toe. Sinds het aantreden van president Saied in 2019 is de repressie...
-- [Brug A28 bij Nijkerk weer helemaal open na spoedherstel](https://nos.nl/l/2630361)
-  > De Hardenbergerbrug in de A28 bij Nijkerk is in de beide richtingen weer open, meldt Rijkswaterstaat. Eerder vanavond ging de brug eerst in de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Elena Rybakina nieuwe nummer 1 van de wereld, Botic van de Zandschulp vannacht in kwartfinale](https://www.ad.nl/tennis/elena-rybakina-nieuwe-nummer-1-van-de-wereld-botic-van-de-zandschulp-vannacht-in-kwartfinale~a32e16c8/)
-  > De US Open, het laatste grandslamtoernooi van het jaar, is losgebarsten. Door de afwezigheid van de nummer één van de wereld, Jannik Sinner, ligt de...
-- [Nederlanders van Liverpool boeken kostbare zege op Atlético Madrid in vermakelijk duel](https://www.ad.nl/voetbal/nederlanders-van-liverpool-boeken-kostbare-zege-op-atletico-madrid-in-vermakelijk-duel~a5bce7034/)
-  > Liverpool heeft onder toeziend oog van bondscoach Xavi een zwaarbevochten en belangrijke zege geboekt in de Champions League. De ploeg van trainer...
-- [Verstappen voorspelt moeilijk weekend voor coureurs in Madrid: ‘Potentie voor zware crashes’](https://www.ad.nl/formule-1/verstappen-voorspelt-moeilijk-weekend-voor-coureurs-in-madrid-potentie-voor-zware-crashes~afd17814/)
-  > De Formule 1 dendert door in deze periode. Er staan maar liefst tien races in de komende dertien weken gepland. Komend weekend is de Grand Prix van...
-- [Lichaam aangetroffen na zoekactie op het IJ in Amsterdam: 47-jarige man overleden](https://www.ad.nl/binnenland/lichaam-aangetroffen-na-zoekactie-op-het-ij-in-amsterdam-47-jarige-man-overleden~ad9c139e/)
-  > Een 47-jarige man uit Amsterdam is woensdag overleden nadat hij te water raakte op het IJ. Duikers vonden zijn lichaam na een urenlange zoekactie. De...
-- [Ødegaard helpt Arsenal aan zege bij Napoli, hattrick voor Ferran Torres bij ruime zege PSG](https://www.ad.nl/voetbal/odegaard-helpt-arsenal-aan-zege-bij-napoli-hattrick-voor-ferran-torres-bij-ruime-zege-psg~a0c945500/)
-  > Paris Saint-Germain is uitstekend begonnen aan het nieuwe seizoen in de Champions League. De winnaar van de afgelopen twee seizoenen won in het Parc...
+- [ProRail geeft het op: grens van 520 grote spoorstoringen opnieuw overschreden, ook in 2027](https://www.ad.nl/binnenland/prorail-geeft-het-op-grens-van-520-grote-spoorstoringen-opnieuw-overschreden-ook-in-2027~a1363bf9/)
+  > Slecht nieuws voor miljoenen treinreizigers. ProRail krijgt het fors gestegen aantal grootschalige storingen niet onder controle. Dit jaar gaat de...
+- [LIVE Midden-Oosten | Iraanse media: meerdere explosies gehoord rond Straat van Hormuz](https://www.ad.nl/buitenland/live-midden-oosten-iraanse-media-meerdere-explosies-gehoord-rond-straat-van-hormuz~ac528ac3/)
+  > Op het eiland Qeshm in de Straat van Hormuz is een luide explosie gehoord. Ook werden meerdere explosies gehoord in de stad Sirik en het district...
+- [Voetbalpodcast | ‘Hadj Moussa heeft aanvallend de kwaliteiten om het de backs van Barcelona lastig te maken’](https://www.ad.nl/voetbal/voetbalpodcast-hadj-moussa-heeft-aanvallend-de-kwaliteiten-om-het-de-backs-van-barcelona-lastig-te-maken~a42af5cd9/)
+  > Feyenoord verloor in de Champions League met ruime cijfers van Barcelona, ondanks dat het aardige dingen liet zien in Spanje. In de AD Voetbalpodcast...
+- [Onderzoeker vernoemt nieuwe insectensoorten naar Taylor Swift](https://www.ad.nl/show/onderzoeker-vernoemt-nieuwe-insectensoorten-naar-taylor-swift~a79a5cf4/)
+  > Een onderzoeker van de universiteit UC Riverside in Californië heeft een aantal insecten uit Australië vernoemd naar zangeres Taylor Swift. Woensdag...
+- [LIVE US Open | Van de Zandschulp kan niet stunten tegen Zverev](https://www.ad.nl/tennis/live-us-open-van-de-zandschulp-kan-niet-stunten-tegen-zverev~ace912b0/)
+  > Botic van de Zandschulp hoopte voor het eerst in zijn carrière de halve finales van een grandslamtoernooi te bereiken, maar wist niet te stunten...
 
 ### Meest gelezen
 
@@ -46,6 +46,8 @@
 
 ### Laatste nieuws
 
+- [Krijgen zieke werknemers straks minder doorbetaald?](https://fd.nl/economie/1611787/krijgen-zieke-werknemers-straks-minder-doorbetaald)
+  > Vandaag in Dagkoers: Den Haag wil af van volledige loondoorbetaling bij ziekte; Trump lanceert een babybeleggingsrekening; en hebben Nederlandse...
 - [Spookfondsen](https://fd.nl/opinie/1611903/spookfondsen)
   > Columnist Anna Dijkman ziet genoeg redenen om een einde te maken aan een verwarrende boekhoudkundige erfenis uit  het verleden.
 - [Aartsen (Werk en Participatie): volledig doorbetalen loon bij ziekte op de helling](https://fd.nl/politiek/1611881/aartsen-werk-en-participatie-volledig-doorbetalen-loon-bij-ziekte-op-de-helling)
@@ -54,8 +56,6 @@
   > Eerst zag je het voornamelijk aan linkerzijde: ‘radical chic’ – zoals de neiging heet om te flirten met radicaal gedachtegoed. Maar nu is het ook aan...
 - [Personalia donderdag 10 september](https://fd.nl/bedrijfsleven/1611887/personalia-donderdag-10-september)
   > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [‘Kabinet zet melkveehouders klem met nieuwste stikstofplannen’](https://fd.nl/politiek/1611894/kabinet-zet-melkveehouders-klem-met-nieuwste-stikstofplannen)
-  > Melkveehouders krijgen in de nieuwste stikstofplannen van het kabinet te weinig keuzes voor hoe ze willen vergroenen, stellen experts.
 
 ### Meest gelezen
 
