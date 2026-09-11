@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-09-2026 om 23:00*
+*Laatst bijgewerkt: 11-09-2026 om 00:58*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Drugsgebruik in het pleistoceen: oudste aanwijzing in Indonesië ontdekt](https://nos.nl/l/2630512)
+  > Dat het gebruik van verdovende middelen niet is voorbehouden aan de moderne tijd, is misschien niet zo gek. Maar wetenschappers hebben nu ontdekt dat...
+- [Vijf doden en 67 gewonden bij Russische aanval op winkelcentrum in Oekraïne](https://nos.nl/l/2630511)
+  > Bij een Russische aanval op een winkelcentrum in de Oekraïense stad Pavlohrad zijn vijf mensen omgekomen en 67 mensen gewond geraakt. Onder de...
 - [Douane vindt crack in Surinaamse pinda's: 'Geen lastige zaak om te cracken'](https://nos.nl/l/2630504)
   > Medewerkers van de douane hebben naar eigen zeggen een nieuwe, creatieve manier ontdekt waarop drugs worden gesmokkeld. Bij een controle stuitten ze...
 - [Duitse ontwikkelaar ziet af van vier grote windturbines bij Winterswijk](https://nos.nl/l/2630503)
   > Er komen voorlopig geen grote windturbines bij Ratum, vlak over de Duitse grens bij de Gelderse gemeente Winterswijk. De Duitse ontwikkelaar ziet af...
 - [Klimaatactivist Daniel V. plande ruim 150 sabotageacties, in Duitsland en buurlanden](https://nos.nl/l/2630499)
   > De Duitse klimaatactivist die dinsdag na een klopjacht werd opgepakt, plande meer dan 150 sabotageacties. Dat blijkt uit onderzoek naar de man, dat...
-- [Talkshowhost Jimmy Kimmel schrapt gesprek met Democraat 'na druk regering-Trump'](https://nos.nl/l/2630497)
-  > Een gesprek met een politieke tegenstander van president Trump mag niet op tv worden uitgezonden in de show van de Amerikaanse presentator Jimmy...
-- [Brand in Congo verwoest twee scholen, zeker 24 kinderen omgekomen](https://nos.nl/l/2630496)
-  > Bij een grote brand op twee scholen in de stad Bukavu, in het oosten van de Democratische Republiek Congo, zijn zeker 24 kinderen om het leven...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Elon Musk dreigt met juridische stappen om nieuwe documentaire](https://www.ad.nl/buitenland/elon-musk-dreigt-met-juridische-stappen-om-nieuwe-documentaire~a07404c7/)
+  > Elon Musk wil juridische stappen nemen tegen de makers van de nieuwe documentaire Musk. In een formele kennisgeving aan het productiehuis van...
+- [Broers Jake en Logan Paul ‘vechtcoach’ in eigen competitieserie](https://www.ad.nl/show/broers-jake-en-logan-paul-vechtcoach-in-eigen-competitieserie~aa3d590e/)
+  > Jake Paul en zijn broer Logan Paul krijgen een eigen competitieserie. In de serie, die nog geen titel heeft, coachen de broers twee teams die het in...
 - [Voetbalpodcast | ‘Een ingespeeld PSV in november had deze wedstrijd gewonnen’](https://www.ad.nl/voetbal/voetbalpodcast-een-ingespeeld-psv-in-november-had-deze-wedstrijd-gewonnen~a42af5cd9/)
   > PSV verloor de openingswedstrijd van het nieuwe Champions League seizoen niet. Dat was de winst na de 1-1 tegen Sjachtar Donetsk, maar drie punten...
 - [Coach van Fenerbahçe neemt vlak na CL-duel ontslag nadat hij fles naar hoofd krijgt, voorzitter wil niets van vertrek weten](https://www.ad.nl/voetbal/coach-van-fenerbahce-neemt-vlak-na-cl-duel-ontslag-nadat-hij-fles-naar-hoofd-krijgt-voorzitter-wil-niets-van-vertrek-weten~a05615ea/)
   > Totale chaos, anders kan je het moeilijk omschrijven. Ismail Kartal (65), coach van Fenerbahçe, kondigde op de persconferentie na het 1-1-gelijkspel...
 - [Stand CL | Feyenoord op 33ste plaats, PSV in middenmoot en PSG aan kop: de ranglijst na de eerste speelronde](https://www.ad.nl/voetbal/stand-cl-feyenoord-op-33ste-plaats-psv-in-middenmoot-en-psg-aan-kop-de-ranglijst-na-de-eerste-speelronde~a7ceca5d/)
   > Het hoofdtoernooi van de Champions League is dinsdagavond officieel begonnen. Paris Saint-Germain is de koploper, Feyenoord staat op plek 33 en PSV...
-- [Malen met assist belangrijk voor AS Roma, Zirkzee leidt met fraai hakje goal United in, Bayern scoort 5 keer na rust](https://www.ad.nl/voetbal/malen-met-assist-belangrijk-voor-as-roma-zirkzee-leidt-met-fraai-hakje-goal-united-in-bayern-scoort-5-keer-na-rust~a069e3c5/)
-  > Manchester United heeft de terugkeer in de Champions League opgeluisterd met een ruime zege. Op Old Trafford werd de Azerbeidzjaanse debutant Sabah...
-- [Fred Ros (67) over zijn botte uitspraken in B&B vol liefde: ‘Ik was heel ongelukkig met mezelf’](https://www.ad.nl/show/fred-ros-67-over-zijn-botte-uitspraken-in-benb-vol-liefde-ik-was-heel-ongelukkig-met-mezelf~aec7ad7f/)
-  > Hij werd de afgelopen weken hét symbool van de botte, onbeschofte, seksistische man. En toch heeft Fred Ros (67) geen enkele spijt van zijn deelname...
 
 ### Meest gelezen
 
