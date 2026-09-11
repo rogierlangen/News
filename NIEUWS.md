@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-09-2026 om 14:55*
+*Laatst bijgewerkt: 11-09-2026 om 18:17*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Podcast De Dag: Vast in Guantanamo Bay](https://nos.nl/l/2630602)
-  > Het is 25 jaar na 11 september 2001, de dag waarop de Verenigde Staten getroffen werden door de grootste terroristische aanval uit de geschiedenis....
-- [Koopkrachtcijfers gelekt: minima er licht op vooruit, hoge inkomens iets in de min](https://nos.nl/l/2630601)
-  > De koopkracht van Nederlanders gaat er volgend jaar iets op achteruit. Voor alle huishoudens gemiddeld komt er een koopkrachtvermindering van 0,1...
-- [Noorse prinses Astrid (94) overleden, twee dagen na uitvaart van haar broer](https://nos.nl/l/2630596)
-  > De Noorse prinses Astrid is op 94-jarige leeftijd overleden. Dat maakt het Noorse koningshuis bekend. Astrid is de de zus van koning Harald, die eind...
-- [Hete aardappel Box 3 na nog een week overleg een half jaar doorgeschoven](https://nos.nl/l/2630592)
-  > Coalitiepartijen D66, VVD en CDA hebben voorafgaand aan Prinsjesdag geen akkoord weten te bereiken over de toekomst van Box 3, de vermogensbelasting....
-- [Australische app voor vrouwen mag transgender vrouw definitief niet weren](https://nos.nl/l/2630589)
-  > Een Australische app voor vrouwen had een transgender vrouw niet mogen weren van het platform. Dat is gebleken tijdens een rechtszaak daarover. Een...
+- [Wonden na 25 jaar nog vers: '9/11 is geschiedenis waar we nog middenin zitten'](https://nos.nl/l/2630625)
+  > Na 25 jaar zijn de wonden van nabestaanden, overlevenden en hulpverleners nog altijd vers. De Amerikanen die de aanslagen op 11 september 2001 van...
+- [Oad-directeur over busongeluk in Zwitserland: 'Dit is je ergste nachtmerrie'](https://nos.nl/l/2630621)
+  > Bij reisorganisatie Oad heeft het busongeluk in Zwitserland een enorme schok teweeggebracht. "Dit is je ergste nachtmerrie", zegt Oad-directeur Arjan...
+- [Inspectie waarschuwt: pfas in pesticiden is groeiend gevaar voor drinkwater](https://nos.nl/l/2630617)
+  > Pfas in pesticiden vormen een groeiend gevaar voor drinkwater in Nederland. Daarvoor waarschuwt de Inspectie voor de Leefomgeving en Transport (ILT)...
+- [Agent sjoemelt met verkeersboetes, politie wil bekeuringen intrekken](https://nos.nl/l/2630615)
+  > De politie wil dat zo'n honderd verkeersboetes die zijn uitgeschreven door een sjoemelende politieagent worden ingetrokken. In 4,5 jaar tijd schreef...
+- [Dodental van brand op Filipijnse veerboot loopt op tot 35, nog 54 vermisten](https://nos.nl/l/2630605)
+  > Het dodental na de brand op een veerboot in de Filipijnen is gestegen naar 35. Er worden nog 54 mensen vermist. Gisterochtend werd nog gesproken over...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Vier vroege vluchters strijden om ritzege op slotklim, klassementsrenners houden zich voorlopig koest](https://www.ad.nl/vuelta/vier-vroege-vluchters-strijden-om-ritzege-op-slotklim-klassementsrenners-houden-zich-voorlopig-koest~a72610d34/)
-  > De Ronde van Spanje gaat de beslissende fase in. Vandaag staat de negentiende etappe op het programma. De finish ligt bergop na een slotklim van...
-- [Amsterdamse wijkagent doet aangifte tegen PVV-politica Marjolein Faber wegens smaad](https://www.ad.nl/binnenland/amsterdamse-wijkagent-doet-aangifte-tegen-pvv-politica-marjolein-faber-wegens-smaad~aa625e8c/)
-  > Wijkagent Mahasin Rahmouni uit Amsterdam-Oost heeft aangifte gedaan van smaad en laster tegen Marjolein Faber. De PVV-politica heeft in de Tweede...
-- [Max Verstappen maakt zich na goede start op voor tweede training in de straten van Madrid](https://www.ad.nl/formule-1/max-verstappen-maakt-zich-na-goede-start-op-voor-tweede-training-in-de-straten-van-madrid~ad49ed2d/)
-  > Max Verstappen kende een bemoedigende start van het weekend in Madrid. Kan hij in de tweede vrije training het gat naar de coureurs van Mercedes...
-- [Geen landelijke subsidie voor een thuisbatterij, maar met deze opties kun je de kosten wel drukken](https://www.ad.nl/wonen/geen-landelijke-subsidie-voor-een-thuisbatterij-maar-met-deze-opties-kun-je-de-kosten-wel-drukken~af420102/)
-  > De verkoop van thuisbatterijen groeit enorm. In de eerste acht maanden van dit jaar werden 44.982 batterijen geregistreerd bij netbeheerders. Dat is...
-- [‘Wij dachten dat de derde wereldoorlog was begonnen, maar jongeren zijn er niet meer mee bezig’](https://www.ad.nl/binnenland/wij-dachten-dat-de-derde-wereldoorlog-was-begonnen-maar-jongeren-zijn-er-niet-meer-mee-bezig~a3169479/)
-  > In de podcast Praat mee met AD bespreken we elke dag een kwestie, vandaag is dat deze: 9/11 is de belangrijkste gebeurtenis van deze eeuw.
+- [LIVE Ultimate Championships | Lieke Klaver en Nadine Visser naar finale bij Ultimate Championships, Femke Broeders-Bol bijna in actie](https://www.ad.nl/andere-sporten/live-ultimate-championships-lieke-klaver-en-nadine-visser-naar-finale-bij-ultimate-championships-femke-broeders-bol-bijna-in-actie~ae2657fc/)
+  > Dit weekend staat de Ultimate Championships op het programma. Het toernooi is hét slotstuk van het atletiekseizoen, waar alle wereldtoppers nog één...
+- [Sem Scheperman opent al snel de score voor koploper Heracles, sterk gestart MVV thuis tegen Almere City](https://www.ad.nl/voetbal/sem-scheperman-opent-al-snel-de-score-voor-koploper-heracles-sterk-gestart-mvv-thuis-tegen-almere-city~a8b9f884/)
+  > Acht duels vanavond in de Keuken Kampioen Divisie. Koploper Heracles is na vijf speelrondes nog zonder puntenverlies en speelt thuis tegen Jong AZ....
+- [Podcast In Het Wiel | ‘We hebben Roglic deze Vuelta nooit écht zien aanvallen’](https://www.ad.nl/vuelta/podcast-in-het-wiel-we-hebben-roglic-deze-vuelta-nooit-echt-zien-aanvallen~a5ea502e/)
+  > De favorieten houden zich koest in de voorlaatste bergetappe van deze Vuelta. Op een paar speldenprikjes na gebeurt er weinig en dus komt de top vijf...
+- [Haitam en Paul redden bejaarde vrouw uit brandende auto op snelweg: ‘Ze was volledig in paniek’](https://www.ad.nl/binnenland/haitam-en-paul-redden-bejaarde-vrouw-uit-brandende-auto-op-snelweg-ze-was-volledig-in-paniek~a281c01a/)
+  > Haitam Naouli (26) en Paul Hoogendoorn (22) zien op de snelweg vlammen onder een auto uitslaan. Ze twijfelen geen moment en redden de bejaarde...
+- [LIVE eredivisie | AZ op zoek naar vroege openingstreffer tegen Willem II, Clasie schiet hoog over](https://www.ad.nl/voetbal/live-eredivisie-az-op-zoek-naar-vroege-openingstreffer-tegen-willem-ii-clasie-schiet-hoog-over~ada54eb9/)
+  > AZ is met vijftien punten uit vijf wedstrijden de trotste koploper van de eredivisie. In Tilburg ziet het er wat minder rooskleurig uit met drie...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Kabinet verlaagt doel voor gasopslag flink](https://fd.nl/economie/1612026/kabinet-verlaagt-doel-voor-gasopslag-flink)
-  > Het vullen van de gasbergingen ging al traag. Nu heeft het kabinet besloten dat het niet nodig is ze helemaal te vullen vlak voor de winter.
-- [Prinsjesdaglek: box 3-besluit in voorjaar, koopkrachtmin blijft](https://fd.nl/politiek/1612080/prinsjesdaglek-box-3-besluit-in-voorjaar-koopkrachtmin-blijft)
-  > De afgelopen week is er volgens betrokkenen in de coalitie nog doorgepraat over box 3, zonder dat overeenstemming is bereikt.
-- [‘Stoppen met zeuren, aan de gang!’ klinkt het op de manifestatie voor steun aan Tata Steel](https://fd.nl/bedrijfsleven/1612021/stoppen-met-zeuren-aan-de-gang-klinkt-het-op-de-manifestatie-voor-steun-aan-tata-steel)
-  > Bereiken overheid en Tata een akkoord over een miljardeninvestering in vergroening van de staalproductie? De werknemers zijn er niet gerust op....
-- [Het grootste nut heeft nutteloos onderzoek](https://fd.nl/samenleving/1611435/het-grootste-nut-heeft-nutteloos-onderzoek)
-  > Moet de universiteit nuttig zijn? Historicus Klaas van Berkel pleit voor een plek waar ‘wetenschap om de wetenschap’ kan worden bedreven.
-- [Klein bier of een te grote slok?](https://fd.nl/financiele-markten/1611320/klein-bier-of-een-te-grote-slok)
-  > De kleine brouwers van Nederland vrezen hun korting op de bieraccijns te verliezen. Dat zou hen net de das om kunnen doen. Maar om hoeveel geld gaat...
+- [Meer kwaliteit, minder China](https://fd.nl/opinie/1612010/meer-kwaliteit-minder-china)
+  > Brussel scherpt terecht de aanbestedingsregels aan om Europese politieke en economische doelstellingen beter te bereiken.
+- [Stijgende consumentenprijzen houden ook Amerikaanse rente hoog](https://fd.nl/economie/1612102/stijgende-consumentenprijzen-houden-ook-amerikaanse-rente-hoog)
+  > De inflatie in de Verenigde Staten blijft hoog, onder meer door de benzineprijzen. Daardoor groeit de kans dat de Federal Reserve volgende week de...
+- [Frankrijk laat plan voor verminderen tekort los](https://fd.nl/politiek/1612033/frankrijk-laat-plan-voor-verminderen-tekort-los)
+  > De Franse overheid ziet geen kans meer de doelstelling voor het begrotingstekort voor dit jaar te halen. Dat heeft Roland Lesclure, de minister van...
+- [Oude hoogtepunten komen in zicht op de obligatiemarkt](https://fd.nl/financiele-markten/1612014/oude-hoogtepunten-komen-in-zicht-op-de-obligatiemarkt)
+  > Nu het naast de Straat van Hormuz ook in de Rode Zee steeds spannender wordt, gaan marktrentes nog wat verder omhoog.
+- [VS straffen banken die banden onderhouden met Iran, maar is dat effectief?](https://fd.nl/economie/1612029/vs-straffen-banken-die-banden-onderhouden-met-iran-maar-is-dat-effectief)
+  > Sinds eind augustus is het sanctiebeleid van de VS flink opgevoerd. Minister van financiën Bessent heeft het al op drie buitenlandse banken...
 
 ### Meest gelezen
 
