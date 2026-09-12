@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-09-2026 om 09:06*
+*Laatst bijgewerkt: 12-09-2026 om 13:26*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Storing bij noodkanaal kustwacht, wel telefonisch bereikbaar](https://nos.nl/l/2630677)
-  > Door een storing kan de Nederlandse Kustwacht geen gebruikmaken van de radiosystemen. Daardoor kunnen er geen (nood)berichten ontvangen of verzonden...
-- [16 doden bij brand in verzorgingstehuis Chili](https://nos.nl/l/2630676)
-  > Bij een brand in een verzorgingstehuis in Chili zijn zestien mensen om het leven gekomen. Het vuur brak uit in een wooncomplex voor ouderen in de...
-- [Familie overleden influencer Jade Kops lastiggevallen: 'Volgers accepteren geen nee'](https://nos.nl/l/2630675)
-  > De politie heeft de afgelopen tijd stopgesprekken gevoerd met mensen die de nabestaanden van influencer Jade Kops lastigvallen. Dat schrijft Omroep...
-- [Dokters willen minder vervuilende medicijnen voorschrijven, maar weten niet hoe](https://nos.nl/l/2630673)
-  > De meeste artsen willen graag medicatie voorschrijven die het milieu zo min mogelijk belast, maar ze missen de kennis om dit te doen. Dat blijkt uit...
-- [Eerste Nederlanders weer onderweg naar huis na busongeluk Zwitserland](https://nos.nl/l/2630672)
-  > De repatriëring van Nederlanders die betrokken waren bij het dodelijke busongeval in Zwitserland is vanochtend begonnen. Vanuit Oostenrijk is de...
+- [250 gitaristen brengen in Hilversum ode aan jubilerend bluesalbum John Mayer](https://nos.nl/l/2630696)
+  > 250 gitaristen hebben vanmiddag in Hilversum hun innerlijke Jimi Hendrix de vrije loop gelaten om een ode te brengen aan de Amerikaanse zanger en...
+- [Duizenden mensen bij klimaatmars in Amsterdam: 'Holy moly, stop met olie'](https://nos.nl/l/2630694)
+  > Duizenden mensen zijn vanmiddag op de been in Amsterdam voor een klimaatmars. De deelnemers lopen gezamenlijk van de Dam naar het Museumplein om...
+- ['Het meisje met de zaadjes in het haar' van Nancy Bosmans wint Thea Beckmanprijs](https://nos.nl/l/2630691)
+  > Het meisje met de zaadjes in het haar van auteur Nancy Bosmans en illustrator Lisa van Winsen heeft de Archeon Thea Beckmanprijs gewonnen. Dat is de...
+- [Weer brand in Bulgaarse wapenopslag, eigenaar eerder doelwit van Rusland](https://nos.nl/l/2630684)
+  > Voor de tweede keer in korte tijd is er brand uitgebroken in een opslag van de Bulgaarse wapenfabrikant EMCO. Het vuur ontstond bij een loods bij de...
+- [Defensie werkt door aan opkomstplicht bij onvoldoende militairen](https://nos.nl/l/2630683)
+  > Als de internationale veiligheid verslechtert of als defensie er veel taken bijkrijgt, bijvoorbeeld van de NAVO, dan moet het mogelijk zijn bepaalde...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Henk was de enige collega die niet wilde staken: ‘Sindsdien noemen collega’s me een onderkruiper’](https://www.ad.nl/economie/henk-was-de-enige-collega-die-niet-wilde-staken-sindsdien-noemen-collegas-me-een-onderkruiper~a79efcc7/)
-  > Buschauffeur Henk (61) deed niet mee aan de ov-staking en reed met een gehuurd busje zijn vertrouwde route. Het leverde hem een tas vol cadeautjes op...
-- [Staking dreigt bij ANWB, vakbond stelt ultimatum in loonconflict](https://www.ad.nl/binnenland/staking-dreigt-bij-anwb-vakbond-stelt-ultimatum-in-loonconflict~a66161f4/)
-  > Medewerkers van de ANWB dreigen met een staking als hun werkgever niet met een beter loonbod komt. Na zeven rondes zitten de onderhandelingen in een...
-- [Doden en veel gewonden na Russische aanvallen op Oekraïne, Poetin waarschuwt Europa](https://www.ad.nl/buitenland/doden-en-veel-gewonden-na-russische-aanvallen-op-oekraine-poetin-waarschuwt-europa~adfb97be/)
-  > Bij nieuwe aanvallen van Rusland op Oekraïne zijn in de nacht van vrijdag op zaterdag zeker drie personen om het leven gekomen. En Poetin heeft...
-- [Politie vermoedt sabotage bij ontspoorde trein in Frankrijk: tientallen passagiers gewond](https://www.ad.nl/buitenland/politie-vermoedt-sabotage-bij-ontspoorde-trein-in-frankrijk-tientallen-passagiers-gewond~a0f339d8/)
-  > In het noorden van Frankrijk is vrijdagavond een trein ontspoord met 180 passagiers aan boord. Bij het ongeval zijn 44 mensen gewond geraakt, een...
-- [Maak elke dag kans op 100 euro tijdens de Geldmaand!](https://www.ad.nl/geld/maak-elke-dag-kans-op-100-euro-tijdens-de-geldmaand~a6b02afe/)
-  > September staat bij ons volledig in het teken van jouw portemonnee. Tijdens de Geldmaand duiken we vier weken lang in slimme bespaartips, vaste...
+- [Senna (25) gaat een jaar op reis met bus Tonnie: ‘Altijd al mijn droom geweest’](https://www.ad.nl/auto/senna-25-gaat-een-jaar-op-reis-met-bus-tonnie-altijd-al-mijn-droom-geweest~a9aaa31d/)
+  > Drie jaar geleden stond Senna Brouwer (25) uit Amersfoort in deze rubriek met haar Mercedes Benz 408 G uit 1978, maar inmiddels is de knalrode...
+- [Ze had een burn-out op haar elfde, nu stapt Sanne (14) naar de rechter: ‘Ik wil gewoon een normaal leven’](https://www.ad.nl/binnenland/ze-had-een-burn-out-op-haar-elfde-nu-stapt-sanne-14-naar-de-rechter-ik-wil-gewoon-een-normaal-leven~af8ae6f7/)
+  > Sanne (14) uit ’s-Gravenzande zit al drie jaar thuis. Niet omdat ze niet wil leren, maar omdat het onderwijs volgens haar moeder niet aansluit. „Ze...
+- [Tegenvaller voor Nederlandse ploeg: Mischa Bredewold loopt bekkenbreuk op bij val en moet passen voor WK](https://www.ad.nl/wielrennen/tegenvaller-voor-nederlandse-ploeg-mischa-bredewold-loopt-bekkenbreuk-op-bij-val-en-moet-passen-voor-wk~ab7f258b/)
+  > Mischa Bredewold mist het WK en vreest voor het einde van haar seizoen door een valpartij. Dat heeft haar ploeg SD Worx-Protime zaterdag...
+- [Kylian Mbappé niet blij met dictator-vergelijking: ‘Miljoenen mensen leven zuur maken, dat heb ik nooit gedaan’](https://www.ad.nl/voetbal/kylian-mbappe-niet-blij-met-dictator-vergelijking-miljoenen-mensen-leven-zuur-maken-dat-heb-ik-nooit-gedaan~ae4adb38/)
+  > Tijdens het voorbije WK voetbal doken er op het internet volop memes op, grappige en spottende plaatjes die Kylian Mbappé vergeleken met een...
+- [Grote opkomst bij klimaatmars, organisaties manen kabinet tot actie: ‘Met dit beleid halen we doelen niet’](https://www.ad.nl/binnenland/grote-opkomst-bij-klimaatmars-organisaties-manen-kabinet-tot-actie-met-dit-beleid-halen-we-doelen-niet~ad9b0308/)
+  > De Dam in Amsterdam stroomt zaterdagmiddag vol met mensen die meedoen aan de klimaatmars. Veel deelnemers hebben spandoeken of protestborden bij...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Reform UK ontvangt twee recorddonaties van ieder £36 mln van cryptomiljardairs](https://fd.nl/politiek/1612107/reform-uk-ontvangt-recorddonatie-van-36-mln-van-cryptomiljardair)
+  > In een artikel in The Telegraph van afgelopen vrijdagavond verklaarde donateur Ben Delo dat hij de schenking in één keer overmaakt om eventuele...
+- [Advocatenduo begint ‘Zuidas-kantoor voor normale mensen’: ‘Burgers moeten hun recht kunnen halen’](https://fd.nl/financiele-markten/1611307/advocatenduo-begint-zuidas-kantoor-voor-normale-mensen-burgers-moeten-hun-recht-kunnen-halen)
+  > Suzanne Knottnerus en Jaap Stikkelbroeck willen de advocatuur ook toegankelijk houden voor mensen met een smalle beurs. ‘Uiteindelijk hebben wij...
 - [‘Nvidia investeert mogelijk $10 mrd in beursgang Anthropic’](https://fd.nl/bedrijfsleven/1612106/nvidia-investeert-mogelijk-10-mrd-in-beursgang-anthropic)
   > Zo meldt persbureau Reuters op basis van ingewijden.
 - [Reorganisatie en aandelenuitgifte van $7,5 mrd bij Oracle](https://fd.nl/bedrijfsleven/1612064/reorganisatie-en-aandelenuitgifte-van-7-5-mrd-bij-oracle)
   > Het bedrijf kampt met een liquiditeitstekort door de bouw van grootschalige datacenters voor kunstmatige intelligentie.
 - [Saoedische oliepijpleiding dicht na droneaanval](https://fd.nl/economie/1612105/saoedische-oliepijpleiding-dicht-na-droneaanval)
   > De pijpleiding is een belangrijk olievervoersalternatief voor de Straat van Hormuz.
-- [‘De meeste kiezers profiteren van box 3 – ingrijpen kan dus stemmen kosten’](https://fd.nl/opinie/1612076/de-meeste-kiezers-profiteren-van-box-3-ingrijpen-kan-dus-stemmen-kosten-en-andere-lezersreacties)
-  > FD-lezers reageren op box 3, box 3, box 3 – naar aanleiding van een column van Mathijs Bouman – en de belastingmoraal, een verondersteld vetorecht en...
-- [Wie profiteert er nu écht van vadertje staat?](https://fd.nl/economie/1612018/wie-profiteert-er-nu-echt-van-vadertje-staat)
-  > In deze aflevering van Toegevoegde Waarde: welke Nederlanders hebben het meeste profijt van de overheid? En hoe zien de vooruitzichten van de...
 
 ### Meest gelezen
 
