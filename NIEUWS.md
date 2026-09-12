@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-09-2026 om 16:51*
+*Laatst bijgewerkt: 12-09-2026 om 19:02*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Grondstofwinning in Tibet: 'Het is slecht voor onze gezondheid, maar ze luisteren niet'](https://nos.nl/l/2630739)
+  > Voor China is het Tibetaanse Plateau een strategische regio vol grondstoffen en natuurlijke hulpbronnen. Al 75 jaar is China er de baas. Voor zijn...
 - [Voortvluchtige Nederlandse wapenhandelaar Guus Kouwenhoven (84) overleden](https://nos.nl/l/2630727)
   > De voortvluchtige Nederlandse zakenman Guus Kouwenhoven, die veroordeeld is voor medeplichtigheid aan oorlogsmisdrijven in Liberia, is op 84-jarige...
 - [Kustwacht weer te bereiken met marifoon, storing voorbij](https://nos.nl/l/2630722)
@@ -17,8 +19,6 @@
   > 150 graven op de Amerikaanse begraafplaats in Margraten (Limburg) zijn vandaag binnen de kortste keren geadopteerd. Geïnteresseerden hebben daar lang...
 - [Opnieuw miljoenendonaties voor partij Nigel Farage](https://nos.nl/l/2630705)
   > De Britse anti-immigratiepartij Reform UK heeft binnen twee dagen twee miljoenendonaties toegezegd gekregen. Gisteren kreeg de partij van Nigel...
-- [As strooien in Efteling mag niet, maar 'komt incidenteel voor', zegt pretpark](https://nos.nl/l/2630699)
-  > Nabestaanden die de as van hun naaste willen uitstrooien in De Efteling krijgen daarvoor nooit toestemming van het pretpark, maar toch "komt het...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Amrabat en Kehrer krijgen in Sittard eerste basisplaats bij Ajax, verrassende naam in de aanval](https://www.ad.nl/voetbal/amrabat-en-kehrer-krijgen-in-sittard-eerste-basisplaats-bij-ajax-verrassende-naam-in-de-aanval~a53dd751/)
+- [Er moet ‘minder over elkaar geluld’, die oproep zegt veel over de cultuur in Den Haag](https://www.ad.nl/politiek/er-moet-minder-over-elkaar-geluld-die-oproep-zegt-veel-over-de-cultuur-in-den-haag~a612e2ee/)
+  > Met Prinsjesdag zullen de Haagse politici elkaar weer in de haren vliegen over 0,1 procentje koopkracht meer of minder. Maar de grote vraagstukken...
+- [Hongaarse regering draait adoptieverbod voor homoseksuelen terug](https://www.ad.nl/buitenland/hongaarse-regering-draait-adoptieverbod-voor-homoseksuelen-terug~a70f93c0/)
+  > De Hongaarse regering gaat de wetgeving wijzigen die adoptie door homoseksuelen vrijwel onmogelijk maakte, heeft premier Péter Magyar zaterdag...
+- [Saoedi-Arabië sluit cruciale pijpleiding na droneaanval uit Irak: olieprijs kan verder oplopen](https://www.ad.nl/buitenland/saoedi-arabie-sluit-cruciale-pijpleiding-na-droneaanval-uit-irak-olieprijs-kan-verder-oplopen~ac172495/)
+  > Saudi-Arabië heeft een belangrijke oliepijpleiding gesloten nadat deze werd aangevallen door drones die vanuit Irak waren gelanceerd. Als de leiding...
+- [Go Ahead pakt door enorme misser  in slotfase net niet de volle buit tegen FC Groningen](https://www.ad.nl/voetbal/go-ahead-pakt-door-enorme-misser-in-slotfase-net-niet-de-volle-buit-tegen-fc-groningen~a39f8b9c/)
+  > Go Ahead Eagles en FC Groningen delen de punten na een vermakelijk duel in Deventer: 1-1. De thuisploeg had de gehele wedstrijd het heft in handen,...
+- [Ajax opent de score vlak na grote kans Fortuna: Julian Brandt ramt bal tegen de touwen](https://www.ad.nl/voetbal/ajax-opent-de-score-vlak-na-grote-kans-fortuna-julian-brandt-ramt-bal-tegen-de-touwen~a53dd751/)
   > Ajax wil zich vanavond in Limburg revancheren na de nederlaag van vorige week in de topper tegen PSV. De Amsterdammers spelen uit bij Fortuna, dat...
-- [Zeer zware crash in de Formule 3 met maar liefst zeven auto’s, Hamilton verwacht geen spektakel in race](https://www.ad.nl/formule-1/zeer-zware-crash-in-de-formule-3-met-maar-liefst-zeven-autos-hamilton-verwacht-geen-spektakel-in-race~afd17814/)
-  > De Formule 1 dendert door in deze periode. Er staan maar liefst tien races in de komende dertien weken gepland. Komend weekend is de Grand Prix van...
-- [Sterre (24) kreeg euthanasie, ouders spreken zich uit: ‘Zie eerst je dochter zo lijden en oordeel dan pas’](https://www.ad.nl/binnenland/sterre-24-kreeg-euthanasie-ouders-spreken-zich-uit-zie-eerst-je-dochter-zo-lijden-en-oordeel-dan-pas~a9869df6/)
-  > Bijna een jaar na de euthanasie van Sterre van der Starre (24) spreken haar ouders zich uit over de discussie rond euthanasie bij jonge mensen met...
-- [Aanvalsstorm FC Twente pas laat beloond tegen ADO, strafschop Weghorst helpt Tukkers op weg](https://www.ad.nl/voetbal/aanvalsstorm-fc-twente-pas-laat-beloond-tegen-ado-strafschop-weghorst-helpt-tukkers-op-weg~aaa58d49/)
-  > FC Twente beleefde een makkelijke middag tegen ADO Den Haag en won verdiend met 2-0 op eigen veld. Dat de thuisploeg de tegenstander in leven liet,...
-- [Lieke Klaver vierde op 400 meter bij Ultimate Championships, Femke Broeders-Bol loopt straks de 800 meter](https://www.ad.nl/andere-sporten/lieke-klaver-vierde-op-400-meter-bij-ultimate-championships-femke-broeders-bol-loopt-straks-de-800-meter~ae2657fc/)
-  > Dit weekend staat de Ultimate Championships op het programma. Het toernooi is hét slotstuk van het atletiekseizoen, waar alle wereldtoppers nog één...
 
 ### Meest gelezen
 
