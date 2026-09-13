@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-09-2026 om 00:41*
+*Laatst bijgewerkt: 13-09-2026 om 05:46*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Wekdienst 13/9: Zweden naar de stembus • Slotdag EK 3x3 basketbal](https://nos.nl/l/2630785)
+  > Goedemorgen! Vandaag stemt Zweden in de parlementsverkiezingen en het is de slotdag van de Europese kampioenschappen 3x3 basketbal.
+        Eerst het...
+- [Republikeinen creëren rood schrikbeeld van blauwe Democraten](https://nos.nl/l/2630784)
+  > Voor Amerikanen is er volgens president Trump geen andere keuze bij de tussentijdse verkiezingen in november: een stem op de Republikeinen is de...
+- [Dodental veerbootbrand Filipijnen opgelopen tot 76](https://nos.nl/l/2630780)
+  > Het aantal doden bij de brand op een veerboot op de Filipijnen is opgelopen tot 76. Dertien mensen worden nog vermist. Dat hebben de plaatselijke...
+- [Demonstranten in Turks Üsküdar protesteren tegen arrestatie oppositieburgemeester](https://nos.nl/l/2630779)
+  > In het Turkse district Üsküdar zijn betogers dit weekend massaal de straat opgegaan om te protesteren tegen de arrestatie van burgemeester Sinem...
 - ['Geen aanwijzingen voor aanslag' bij ontsporing Franse trein](https://nos.nl/l/2630778)
-  > Er zijn geen aanwijzingen dat er sprake was van kwade bedoelingen bij de ontsporing van een trein in het noorden van Frankrijk afgelopen vrijdag. Dat...
-- [13 passagiers busongeluk Zwitserland terug in Nederland](https://nos.nl/l/2630776)
-  > Dertien passagiers die in de bus zaten die donderdag verongelukte in Zwitserland zijn teruggekeerd in Nederland. Een deel van hen is opgehaald met...
-- [Overleden influencer Jade 'was van iedereen', maar is dat ook zo?](https://nos.nl/l/2630771)
-  > "Jade was van iedereen", zeiden de ouders van de in april overleden Jade Kops. Jade deelde haar ervaringen met honderdduizenden volgers op sociale...
-- [Man overleden bij aanhouding door politie in Rotterdam](https://nos.nl/l/2630766)
-  > In Rotterdam is zaterdagavond een man overleden bij een aanhouding door de politie. Volgens regionale omroep Rijnmond reed de man op een fatbike. Hij...
-- [Ajax pakt draad op met ruime zege in Sittard, Kehrer scoort en geeft assist](https://nos.nl/l/2630756)
-  > Ajax heeft de uitwedstrijd tegen Fortuna Sittard met 1-5 gewonnen. Bij de Amsterdammers greep verdediger Thilo Kehrer de hoofdrol door bij zijn...
+  > Er zijn geen aanwijzingen voor een aanslag bij de ontsporing van een regionale trein in het noorden van Frankrijk vrijdag. Dat heeft het OM in Rouen...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Houthi’s melden aanval op militaire basis in Saoedi-Arabië](https://www.ad.nl/buitenland/houthis-melden-aanval-op-militaire-basis-in-saoedi-arabie~ac528ac3/)
+- [Zo laat racet Max Verstappen en dit is de startopstelling op het gloednieuwe stratencircuit in Madrid](https://www.ad.nl/formule-1/zo-laat-racet-max-verstappen-en-dit-is-de-startopstelling-op-het-gloednieuwe-stratencircuit-in-madrid~ad5b5c03e/)
+  > De Formule 1 is terug in Madrid en dat op een gloednieuw stratencircuit. Het leverde al wat chaos op dit weekend. Wat gaat er gebeuren in de race?...
+- [Thilo Kehrer na fraaie entree voor Ajax: ‘Ik denk dat mijn stijl heel goed bij de filosofie van Ajax past’](https://www.ad.nl/voetbal/thilo-kehrer-na-fraaie-entree-voor-ajax-ik-denk-dat-mijn-stijl-heel-goed-bij-de-filosofie-van-ajax-past~a2a67292/)
+  > Met een goal en assist beleefde Thilo Kehrer een droomdebuut in de basis bij Ajax. De Duitse verdediger legde na de 1-5 zege op Fortuna Sittard uit...
+- [Als ik in de spiegel kijk, zie ik een ander](https://www.ad.nl/mezza/als-ik-in-de-spiegel-kijk-zie-ik-een-ander~a2e715de8/)
+  > Beau ziet oud worden als een avontuur dat bij het leven hoort, maar het is toch even slikken als het zover lijkt. Lees in zijn column in ons...
+- [Houthi’s melden aanval op militaire basis in Saoedi-Arabië, president Iran strijdbaar: ‘Wij geven ons niet over’](https://www.ad.nl/buitenland/houthis-melden-aanval-op-militaire-basis-in-saoedi-arabie-president-iran-strijdbaar-wij-geven-ons-niet-over~ac528ac3/)
   > De Houthi’s hebben met drones en raketten een militaire basis in het zuiden van Saoedi-Arabië aangevallen. Volgens een militaire woordvoerder van de...
-- [Celine Dion gaat een paar keer de mist in tijdens comebackconcert maar Parijs vergeeft het haar](https://www.ad.nl/show/celine-dion-gaat-een-paar-keer-de-mist-in-tijdens-comebackconcert-maar-parijs-vergeeft-het-haar~aa5d130c/)
-  > Celine Dion had geen betere stad dan Parijs kunnen kiezen voor haar comeback. Frankrijk omarmt haar zaterdagavond groots in La Défense Arena. De...
-- [Nog geen aanwijzing voor opzet bij ontspoorde trein in Frankrijk, jonge vrouw buiten levensgevaar](https://www.ad.nl/buitenland/nog-geen-aanwijzing-voor-opzet-bij-ontspoorde-trein-in-frankrijk-jonge-vrouw-buiten-levensgevaar~a0f339d8/)
-  > Er zijn vooralsnog geen aanwijzingen dat bij het treinongeval in het noordwesten van Frankrijk, waarbij vrijdag zeker 44 gewonden vielen, sprake is...
-- [Nieuwe nummer één Elena Rybakina verslaat titelverdedigster Aryna Sabalenka en wint US Open](https://www.ad.nl/tennis/nieuwe-nummer-een-elena-rybakina-verslaat-titelverdedigster-aryna-sabalenka-en-wint-us-open~a2f76fdf/)
-  > Elena Rybakina heeft voor het eerst in haar carrière de US Open gewonnen. De tennisster uit Kazachstan versloeg titelverdedigster Aryna Sabalenka in...
-- [Dertien betrokkenen busongeluk Zwitserland terug naar Nederland](https://www.ad.nl/buitenland/dertien-betrokkenen-busongeluk-zwitserland-terug-naar-nederland~a577769e/)
-  > Dertien personen die zijn getroffen door het ongeluk met een Nederlandse bus in Zwitserland, zijn teruggekeerd naar Nederland. Dat meldt...
+- [Dronken trucker valt uit vrachtwagen, die nog twee kilometer doordendert](https://www.ad.nl/auto/dronken-trucker-valt-uit-vrachtwagen-die-nog-twee-kilometer-doordendert~abf99714/)
+  > Een vrachtwagenchauffeur die te veel had gedronken, veroorzaakte donderdagavond een opmerkelijk incident op de Duitse A2 bij Hannover. Nadat hij uit...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Zon, zee en… duurzaamheid](https://fd.nl/bedrijfsleven/1611975/zon-zee-en-duurzaamheid)
+  > Op weg naar het congres over duurzaam toerisme op Ameland wordt duidelijk hoe weerbarstig de werkelijkheid is: de veerboot vaart niet meer op...
+- [Duitse bedrijven zuchten onder de ‘perfecte industriële spionage’](https://fd.nl/bedrijfsleven/1610548/duitse-bedrijven-zuchten-onder-de-perfecte-industriele-spionage)
+  > Dit najaar verloopt het moratorium op een strenger Chinees exportregime voor cruciale grondstoffen. Is de EU klaar voor aangescherpte regels? En wat...
+- [Luisterverhaal: In China’s techstad Hangzhou maakt AI een nieuwe generatie rijk](https://fd.nl/samenleving/1612032/luisterverhaal-in-chinas-techstad-hangzhou-maakt-ai-een-nieuwe-generatie-rijk)
+  > Deze week hoor je hoe jonge AI-miljonairs de Chinese huizenmarkt bestormen.
 - [Ook Anthropic-topman wil AI-ontwikkeling afremmen](https://fd.nl/bedrijfsleven/1612108/ook-anthropic-topman-wil-ai-ontwikkeling-afremmen)
   > Vanwege de toenemende zorgen over de risico’s van kunstmatige intelligentie voor de mens.
 - [Reform UK ontvangt twee recorddonaties van ieder £36 mln van cryptomiljardairs](https://fd.nl/politiek/1612107/reform-uk-ontvangt-recorddonatie-van-36-mln-van-cryptomiljardair)
   > In een artikel in The Telegraph van afgelopen vrijdagavond verklaarde donateur Ben Delo dat hij de schenking in één keer overmaakt om eventuele...
-- [Advocatenduo begint ‘Zuidas-kantoor voor normale mensen’: ‘Burgers moeten hun recht kunnen halen’](https://fd.nl/financiele-markten/1611307/advocatenduo-begint-zuidas-kantoor-voor-normale-mensen-burgers-moeten-hun-recht-kunnen-halen)
-  > Suzanne Knottnerus en Jaap Stikkelbroeck willen de advocatuur ook toegankelijk houden voor mensen met een smalle beurs. ‘Uiteindelijk hebben wij...
-- [‘Nvidia investeert mogelijk $10 mrd in beursgang Anthropic’](https://fd.nl/bedrijfsleven/1612106/nvidia-investeert-mogelijk-10-mrd-in-beursgang-anthropic)
-  > Zo meldt persbureau Reuters op basis van ingewijden.
-- [Reorganisatie en aandelenuitgifte van $7,5 mrd bij Oracle](https://fd.nl/bedrijfsleven/1612064/reorganisatie-en-aandelenuitgifte-van-7-5-mrd-bij-oracle)
-  > Het bedrijf kampt met een liquiditeitstekort door de bouw van grootschalige datacenters voor kunstmatige intelligentie.
 
 ### Meest gelezen
 
