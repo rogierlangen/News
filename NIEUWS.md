@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-09-2026 om 18:38*
+*Laatst bijgewerkt: 13-09-2026 om 21:17*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Keja Klaasje Kwestro krijgt toneelprijs Theo d'Or voor F*ck Lolita](https://nos.nl/l/2630904)
+  > Actrice Keja Klaasje Kwestro heeft in Amsterdam de Theo d'Or in ontvangst genomen. Ze kreeg de belangrijkste Nederlandse toneelprijs voor haar...
+- [Centrumlinkse oppositie op winst bij Zweedse parlementsverkiezingen](https://nos.nl/l/2630889)
+  > De centrumlinkse oppositie lijkt bij de parlementsverkiezingen in Zweden op winst af te stevenen. In een eerste exitpoll van de Zweedse publieke...
 - [Kerken vrezen AfD-regering in Saksen-Anhalt: 'Willen ons naar hun hand zetten'](https://nos.nl/l/2630878)
   > Een week na de monsterzege van de AfD in Saksen-Anhalt lijkt een rechts-radicale deelstaatregering mogelijk. De partij, die in de deelstaat door de...
 - [Vrouw (45) opgepakt in onderzoek naar huurmoord via darkweb](https://nos.nl/l/2630875)
   > Een 45-jarige vrouw zonder vaste woon- of verblijfplaats is opgepakt in een onderzoek naar het bestellen van een moord. Dat zou gebeurd zijn via het...
 - ['Pelicot 2.0' in Oostenrijk: man opgepakt die vrouw drogeerde en liet misbruiken](https://nos.nl/l/2630864)
   > De Oostenrijkse politie heeft een man opgepakt die ervan wordt verdacht dat hij zijn vrouw een jaar lang heeft gedrogeerd en laten misbruiken door...
-- [Regenbogen en oranje luchten: waarom het weer nu zo kleurrijk is](https://nos.nl/l/2630855)
-  > Het is buiten goed te merken dat we op weg zijn naar de herfst: de dagen worden snel korter en de lucht is vaak vochtig. De combinatie van kortere...
-- [Zweedse verkiezingen zijn spannende strijd tussen conservatieven, radicaalrechts en links](https://nos.nl/l/2630849)
-  > In Zweden kunnen kiezers vandaag naar de stembus om een keus te maken voor een nieuwe rechtse of linkse regering. De huidige, conservatieve premier...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Een op de negen trekvogelsoorten  met uitsterven bedreigd: ‘Verschrikkelijke cijfers’](https://www.ad.nl/binnenland/een-op-de-negen-trekvogelsoorten-met-uitsterven-bedreigd-verschrikkelijke-cijfers~abe420e5/)
-  > Een alarmerend rapport over trekvogels zou iedereen wakker moeten schudden. Daarvoor waarschuwen internationale onderzoekers. Ook Vogelbescherming...
-- [Celine Dion schittert op podium in designjurken en halsketting van 5 miljoen dollar](https://www.ad.nl/show/celine-dion-schittert-op-podium-in-designjurken-en-halsketting-van-5-miljoen-dollar~a8f5acdc/)
-  > Haute couture, een fonkelende diamant en iconische modehuizen: Celine Dion maakte dit weekend van haar comebackconcert in Parijs een modeshow. De...
-- [Klassementen Vuelta | Enric Mas overtuigende eindwinnaar: bekijk hier de verschillen](https://www.ad.nl/wielrennen/klassementen-vuelta-enric-mas-overtuigende-eindwinnaar-bekijk-hier-de-verschillen~a489ecf1/)
-  > De 81ste editie van de Vuelta a España zit erop. Enric Mas is de winnaar van het eindklassement. Topfavoriet Tadej Pogacar moest in de achtste etappe...
-- [Rushen ziet met eigen ogen fatbiker sterven na arrestatie: ‘Het laat me niet los’](https://www.ad.nl/rotterdam/rushen-ziet-met-eigen-ogen-fatbiker-sterven-na-arrestatie-het-laat-me-niet-los~a9fc1e984/)
-  > Vanaf zijn woonkamer zag ooggetuige Rushen Serviana zaterdagavond de Rotterdamse fatbikebestuurder (51) sterven tijdens zijn aanhouding op het...
-- [Nederlandse estafetteploeg loopt zonder Femke Broeders-Bol naar derde plaats in Boedapest](https://www.ad.nl/andere-sporten/nederlandse-estafetteploeg-loopt-zonder-femke-broeders-bol-naar-derde-plaats-in-boedapest~ad350f92/)
-  > De Nederlandse estafetteploeg is derde geworden op de 4x400 meter tijdens de Ultimate Championship. Jonas Phijffers, Lieke Klaver, Keenan Blake en...
+- [Nog vier Nederlanders terug na Zwitsers busongeluk: ‘Minder dan verwacht’](https://www.ad.nl/buitenland/nog-vier-nederlanders-terug-na-zwitsers-busongeluk-minder-dan-verwacht~aee3a5c7/)
+  > Vier mensen die getroffen zijn door het busongeluk in Zwitserland zijn zondag teruggekeerd naar Nederland, meldt Eurocross. „Dit zijn er minder dan...
+- [Grote reddingsactie voor migrantenboot: 25 vermisten](https://www.ad.nl/buitenland/grote-reddingsactie-voor-migrantenboot-25-vermisten~a7628a7a/)
+  > Ten zuiden van het Griekse eiland Gavdos is een boot met migranten gedeeltelijk gezonken, zo heeft de Griekse kustwacht gemeld. Tot nu toe zijn 51...
+- [3x3-basketbalsters prolongeren Europese titel, mannen verliezen in finale van Letland](https://www.ad.nl/andere-sporten/3x3-basketbalsters-prolongeren-europese-titel-mannen-verliezen-in-finale-van-letland~af0a2ed7/)
+  > De Nederlandse 3x3-basketbalsters hebben hun Europese titel geprolongeerd. In de finale van het EK in Antwerpen werd Spanje met 16-13 verslagen. Het...
+- [Linda de Mol stomverbaasd door geluk van Joey in Miljoenenjacht: ‘Nog nooit meegemaakt’](https://www.ad.nl/show/linda-de-mol-stomverbaasd-door-geluk-van-joey-in-miljoenenjacht-nog-nooit-meegemaakt~a1380cb9/)
+  > Een bijzonder moment in Miljoenenjacht zorgde zondagavond voor grote verbazing bij Linda de Mol. De presentatrice wist niet wat ze zag toen Joey uit...
+- [Het kijken van reels en filmpjes is uit den boze voor de kinderen van Mark Zuckerberg](https://www.ad.nl/binnenland/het-kijken-van-reels-en-filmpjes-is-uit-den-boze-voor-de-kinderen-van-mark-zuckerberg~a1130736/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 
 ### Meest gelezen
 
