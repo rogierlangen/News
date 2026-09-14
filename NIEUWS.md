@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-09-2026 om 23:57*
+*Laatst bijgewerkt: 14-09-2026 om 04:42*
 
 ---
 
@@ -8,17 +8,18 @@
 
 ### Laatste nieuws
 
+- [Behalve stroom wordt ook het stroomnet voor huishoudens volgend jaar duurder](https://nos.nl/l/2630915)
+  > De kosten die elk huishouden betaalt voor onderhoud en beheer van het stroomnet gaan komend jaar flink omhoog. Hetzelfde geldt voor de kosten van...
+- [Overheidsorganisaties werken samen om af te komen van dwangsommen](https://nos.nl/l/2630913)
+  > Verschillende overheidsorganisaties werken samen om af te komen van de dwangsommen die ze aan burgers moeten betalen als procedures te lang duren....
+- [Amazon schort samenwerking met vrachtluchtvaartmaatschappij op na crash](https://nos.nl/l/2630912)
+  > Amazon heeft de samenwerking met de Amerikaanse vrachtluchtvaartmaatschappij 21 Air opgeschort. Een vrachttoestel van de luchtvaartmaatschappij, dat...
+- [Verwarde man twee dagen achter elkaar door Amsterdamse brandweer uit water gehaald](https://nos.nl/l/2630911)
+  > De Amsterdamse brandweer heeft een verwarde man voor de tweede dag op rij uit de Sloterplas moeten halen, meldt stadsomroep AT5.
+        De man werd...
 - [Al bijna ton opgehaald voor Belg die buurman zwaar mishandelde na vermeend misbruik](https://nos.nl/l/2630910)
   > In een inzamelingsactie voor de familie van een voor mishandeling veroordeelde Belg is al bijna 100.000 euro opgehaald.
         De 49-jarige Grégory...
-- [Keja Klaasje Kwestro krijgt toneelprijs Theo d'Or voor F*ck Lolita](https://nos.nl/l/2630904)
-  > Actrice Keja Klaasje Kwestro heeft in Amsterdam de Theo d'Or in ontvangst genomen. Ze kreeg de belangrijkste Nederlandse toneelprijs voor haar...
-- [Nek-aan-nekrace bij Zweedse parlementsverkiezingen: Centrumlinks nipt voor](https://nos.nl/l/2630889)
-  > De centrumlinkse oppositie lijkt bij de parlementsverkiezingen in Zweden op een minieme winst af te stevenen. Met een kleine 90 procent van de...
-- [Kerken vrezen AfD-regering in Saksen-Anhalt: 'Willen ons naar hun hand zetten'](https://nos.nl/l/2630878)
-  > Een week na de monsterzege van de AfD in Saksen-Anhalt lijkt een rechts-radicale deelstaatregering mogelijk. De partij, die in de deelstaat door de...
-- [Vrouw (45) opgepakt in onderzoek naar huurmoord via darkweb](https://nos.nl/l/2630875)
-  > Een 45-jarige vrouw zonder vaste woon- of verblijfplaats is opgepakt in een onderzoek naar het bestellen van een moord. Dat zou gebeurd zijn via het...
 
 ### Meest gelezen
 
@@ -28,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [CDU volgens prognose grootste bij lokale verkiezingen in Nedersaksen, flinke groei AfD](https://www.ad.nl/buitenland/cdu-volgens-prognose-grootste-bij-lokale-verkiezingen-in-nedersaksen-flinke-groei-afd~a046dfb3/)
-  > De Duitse christendemocratische CDU is volgens een prognose de grootste partij geworden bij de lokale verkiezingen in de deelstaat Nedersaksen. De...
-- [Alexander Zverev wint zijn tweede Grand Slam na zege op Ben Shelton in finale US Open](https://www.ad.nl/tennis/alexander-zverev-wint-zijn-tweede-grand-slam-na-zege-op-ben-shelton-in-finale-us-open~ac83aa5b/)
-  > Alexander Zverev heeft zijn tweede Grand Slam te pakken, drie maanden na zijn eerste op Roland Garros. De 29-jarige Duitser was in de finale van de...
-- [Nog vier Nederlanders terug na Zwitsers busongeluk: ‘Minder dan verwacht’](https://www.ad.nl/buitenland/nog-vier-nederlanders-terug-na-zwitsers-busongeluk-minder-dan-verwacht~aee3a5c7/)
-  > Vier mensen die getroffen zijn door het busongeluk in Zwitserland zijn zondag teruggekeerd naar Nederland, meldt Eurocross. „Dit zijn er minder dan...
-- [Grote reddingsactie voor migrantenboot: 25 vermisten](https://www.ad.nl/buitenland/grote-reddingsactie-voor-migrantenboot-25-vermisten~a7628a7a/)
-  > Ten zuiden van het Griekse eiland Gavdos is een boot met migranten gedeeltelijk gezonken, zo heeft de Griekse kustwacht gemeld. Tot nu toe zijn 51...
-- [3x3-basketbalsters prolongeren Europese titel, mannen verliezen in finale van Letland](https://www.ad.nl/andere-sporten/3x3-basketbalsters-prolongeren-europese-titel-mannen-verliezen-in-finale-van-letland~af0a2ed7/)
-  > De Nederlandse 3x3-basketbalsters hebben hun Europese titel geprolongeerd. In de finale van het EK in Antwerpen werd Spanje met 16-13 verslagen. Het...
+- [Man zegt verjaardag te vieren, maar gemeente trapt daar niet in en stopt feest vlak voor aanvang](https://www.ad.nl/binnenland/man-zegt-verjaardag-te-vieren-maar-gemeente-trapt-daar-niet-in-en-stopt-feest-vlak-voor-aanvang~ab6d89b3/)
+  > Een particulier festival dat al vier jaar zonder problemen werd georganiseerd, is zaterdag op het laatste moment afgeblazen. De gemeente verbood het...
+- [Column Willem van Hanegem | Als je scoort in Camp Nou mag je best juichen, bemoei je er niet mee](https://www.ad.nl/voetbal/column-willem-van-hanegem-als-je-scoort-in-camp-nou-mag-je-best-juichen-bemoei-je-er-niet-mee~a47dffde/)
+  > Columnist Willem van Hanegem heeft zich gestoord aan de kritiek op Sem Steijn na zijn juichen in Camp Nou. De Kromme zag een teamprestatie van...
+- [‘Stop, er komt een kruising aan!’, riep iemand achterin busje in VS, maar Nederlander remde te laat](https://www.ad.nl/binnenland/stop-er-komt-een-kruising-aan-riep-iemand-achterin-busje-in-vs-maar-nederlander-remde-te-laat~a2ef28eb/)
+  > De rechtszaak in Amerika tegen de 48-jarige Markeloër dient begin december. O. was als bestuurder van een personenbusje betrokken bij een zwaar...
+- [Iedere ochtend sleepte Maartje haar huilende zoon de klas in, tot hij zei: ‘Misschien is het beter als ik er niet meer ben’](https://www.ad.nl/binnenland/iedere-ochtend-sleepte-maartje-haar-huilende-zoon-de-klas-in-tot-hij-zei-misschien-is-het-beter-als-ik-er-niet-meer-ben~a07939e4/)
+  > Iedere ochtend was het dezelfde strijd. De zoon van Maartje de Vries uit Bennekom wilde niet naar school. Soms moest zijn moeder hem huilend de klas...
+- [Boris Johnson ontsnapt aan Russische aanval op Oekraïens station, Trump haalt uit naar Kyiv](https://www.ad.nl/buitenland/boris-johnson-ontsnapt-aan-russische-aanval-op-oekraiens-station-trump-haalt-uit-naar-kyiv~adfb97be/)
+  > De voormalige Britse premier Boris Johnson is in het westen van Oekraïne ternauwernood ontsnapt aan een Russische luchtaanval. Vijftien minuten nadat...
 
 ### Meest gelezen
 
@@ -47,16 +48,16 @@
 
 ### Laatste nieuws
 
+- [Pauline Barendregt, Hema's designbaas: ‘Humor hield me vroeger ook op de been’](https://fd.nl/samenleving/1612103/pauline-barendregt-hema-s-designbaas-humor-hield-me-vroeger-ook-op-de-been)
+  > Creatief directeur Pauline Barendregt maakte het jeanslabel G-Star en Fatboy tot een succes. Sinds anderhalf jaar is ze Head of Design van Hema. Ze...
+- [Ziekte door privéproblemen frustreert werkgevers](https://fd.nl/economie/1612030/ziekte-door-priveproblemen-frustreert-werkgevers)
+  > Vandaag in Dagkoers: werkgevers worstelen met stijgend ziekteverzuim door privéproblemen, parkeerplekken moeten wijken voor woningbouw & hete zomers...
 - [Dood door AI](https://fd.nl/opinie/1612066/dood-door-ai)
   > Zelfs de AI-miljardairs zijn opeens publiekelijk bang voor met monster dat ze willens en wetens hebben gecreëerd.
 - [$50 mln voor Amsterdamse chip die is beveiligd tegen AI‑aanvallen](https://fd.nl/bedrijfsleven/1612025/50-mln-voor-amsterdamse-chip-die-is-beveiligd-tegen-aiaanvallen)
   > Techbedrijf Fortaegis heeft een chip ontwikkeld die niet te hacken zou zijn. Dat wordt steeds belangrijker naarmate AI zich uitbreidt en...
 - [De dystopische remedie tegen digitale inteelt](https://fd.nl/opinie/1611889/de-dystopische-remedie-tegen-digitale-inteelt)
   > Techbazen zijn naarstig op zoek naar nieuwe manieren om de kwaliteit van hun taalmodellen te verbeteren. Eén oplossing hiervoor vinden ze nu in de...
-- [Personalia maandag 14 september](https://fd.nl/bedrijfsleven/1612067/personalia-maandag-14-september)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Nettarieven huishoudens en bedrijven met 20% omhoog door grote investeringen in stroomnet](https://fd.nl/bedrijfsleven/1611875/nettarieven-huishoudens-en-bedrijven-met-20-omhoog-door-grote-investeringen-in-stroomnet)
-  > De kosten die netbeheerders maken, verdienen ze terug via de energienota. De komende jaren zullen de tarieven blijven stijgen, naar verwachting met...
 
 ### Meest gelezen
 
