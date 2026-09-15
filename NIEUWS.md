@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-09-2026 om 23:45*
+*Laatst bijgewerkt: 15-09-2026 om 04:09*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [NRC: man die in Rotterdam overleed na arrestatie had geen fiets gestolen](https://nos.nl/l/2631015)
-  > De 51-jarige Alfredo Goeloe, die zaterdagavond in Rotterdam overleed kort nadat hij door de politie was aangehouden, reed niet op een gestolen fiets...
-- [Polen zet zich schrap voor verdere escalatie nu Russische drones de grens opzoeken](https://nos.nl/l/2631014)
-  > Vertragingen zijn er een dag na een aanval op een trein bij de grens tussen Polen en Oekraïne nog steeds. Evelina zit met een vriendin op een bankje...
-- [Inzittenden van in Duitsland neergestort vliegtuigje waren drie Nederlanders](https://nos.nl/l/2631013)
-  > De drie inzittenden die om het leven zijn gekomen bij een crash van een vliegtuigje net over de grens bij Roermond waren drie Nederlanders. Dat meldt...
-- [China en VS doen waarschuwing AI-topmannen af als bangmakerij](https://nos.nl/l/2631010)
-  > Zowel de Chinese president Xi als de Amerikaanse president Trump doet de oproep van de topmannen van Amerikaanse AI-bedrijven om de ontwikkeling van...
-- [Modeontwerper en 'glitterguru' Bob Mackie (87) overleden, kleedde Cher en Dolly Parton](https://nos.nl/l/2631009)
-  > De Amerikaanse mode- en kostuumontwerper Bob Mackie is op 87-jarige leeftijd overleden, meldt zijn familie op Instagram. De ontwerper met de bijnamen...
+- [Groot deel schrijvers ziet geen inkomsten uit boeken op luisterplatforms](https://nos.nl/l/2631021)
+  > Nadat vorig jaar schrijver en dichter Lieke Marsman al uit de doeken had gedaan dat ze maar weinig verdiende aan haar luisterboek op...
+- [Roedel wilde honden in Zambia legt 4000 kilometer af in zoektocht naar partner](https://nos.nl/l/2631020)
+  > Een roedel Afrikaanse wilde honden heeft een reis van 4000 kilometer afgelegd. Dat is volgens wetenschappers de grootste afstand die ooit is afgelegd...
+- [Hooggerechtshof VS: regering mag geen strengere regels voor poststemmen invoeren](https://nos.nl/l/2631019)
+  > De regering van de Amerikaanse president Trump mag van het Amerikaanse Hooggerechtshof geen strengere regels invoeren voor stemmen per post. De...
+- [Minderheidskabinet wacht spannende eerste Prinsjesdag](https://nos.nl/l/2631018)
+  > De rijtour van de koning en de koningin met de koets, de Troonrede, de presentatie van het koffertje met de Miljoenennota: traditiegetrouw gaan we...
+- [Actrice Jean Smart schrijft geschiedenis met vijfde Emmy-winst op rij](https://nos.nl/l/2631017)
+  > De Amerikaanse actrice Jean Smart heeft geschiedenis geschreven bij de Emmy Awards die vannacht werden uitgereikt. De 75-jarige actrice is de eerste...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Harry en Meghan wisselen kinderen vanwege veiligheid alweer van school](https://www.ad.nl/show/harry-en-meghan-wisselen-kinderen-vanwege-veiligheid-alweer-van-school~a3e2e73a/)
-  > De Britse prins Harry en zijn vrouw Meghan hebben hun kinderen Archie en Lilibet vlak na het begin van het nieuwe schooljaar alweer van school...
-- [Voetbalpodcast | ‘Yves Bissouma past precies in het rijtje nieuwelingen bij Ajax’](https://www.ad.nl/voetbal/voetbalpodcast-yves-bissouma-past-precies-in-het-rijtje-nieuwelingen-bij-ajax~a42af5cd9/)
-  > Trainers die na vier of vijf duels het veld moeten ruimen bij een club. Ze lijken niet de ruimte te krijgen om ergens aan te bouwen en wat voor zin...
-- [Navo-piloot schiet drone boven Litouwen uit de lucht, meldt Reuters](https://www.ad.nl/buitenland/navo-piloot-schiet-drone-boven-litouwen-uit-de-lucht-meldt-reuters~adfb97be/)
-  > Een Navo-piloot heef maandag een drone boven Litouwen uit de lucht geschoten. Dat meldt persbureau Reuters. Vlak daarvoor werden gevechtsvliegtuigen...
-- [‘Doodgewaande’ senator McConnell keert terug in Senaat na drie maanden van ziekte](https://www.ad.nl/buitenland/doodgewaande-senator-mcconnell-keert-terug-in-senaat-na-drie-maanden-van-ziekte~ae67dd9c/)
-  > De Amerikaanse senator Mitch McConnell (84) is terug in de Senaat na drie maanden afwezigheid vanwege gezondheidsproblemen. Door het gebrek aan...
-- [Israëlisch leger dreigt met stappen tegen makers van kritische film: ‘Een aanval op de staat Israël’](https://www.ad.nl/buitenland/israelisch-leger-dreigt-met-stappen-tegen-makers-van-kritische-film-een-aanval-op-de-staat-israel~ac528ac3/)
-  > De hoogste baas van het Israëlische leger eist een officieel onderzoek naar de documentaire NAZA, die afgelopen week in première ging. In de film...
+- [Mélissa ontdekt dat haar gezicht op lichamen van 20 onbekenden getatoeëerd staat](https://www.ad.nl/buitenland/melissa-ontdekt-dat-haar-gezicht-op-lichamen-van-20-onbekenden-getatoeeerd-staat~a196e786/)
+  > Mélissa is allesbehalve een beroemdheid. Toch kwam de jonge Française er een paar jaar geleden achter dat haar gezicht als tatoeage op de lichamen...
+- [LIVE Prinsjesdag | Nederland maakt zich op voor Prinsjesdag, dit zijn de regeringsplannen die al zijn uitgelekt](https://www.ad.nl/binnenland/live-prinsjesdag-nederland-maakt-zich-op-voor-prinsjesdag-dit-zijn-de-regeringsplannen-die-al-zijn-uitgelekt~a339d926/)
+  > De officiële opening van het nieuwe parlementaire jaar staat voor de deur tijdens Prinsjesdag. Vandaag, op de derde dinsdag van september,...
+- [Honderdduizenden huizen kwetsbaar bij extreme regen: ‘Voetbal in de wc tegen wateroverlast’](https://www.ad.nl/binnenland/honderdduizenden-huizen-kwetsbaar-bij-extreme-regen-voetbal-in-de-wc-tegen-wateroverlast~a44556422/)
+  > Na een kurkdroge zomer maakt Nederland zich op voor een kletsnat najaar. Als het écht hard gaat regenen, hebben de bewoners van bijna 350.000 huizen...
+- [Geniet nog maar even van het mooie weer: na een zomerse dag krijgen we onweer, hagel en wind](https://www.ad.nl/binnenland/geniet-nog-maar-even-van-het-mooie-weer-na-een-zomerse-dag-krijgen-we-onweer-hagel-en-wind~a35883b7/)
+  > Wie nog van zomerse temperaturen wil genieten, kan dat nog één dagje doen. We krijgen nog een zomerse dag cadeau voordat de herfst echt lijkt te...
+- [‘The Pitt’ wint voor tweede jaar op rij Emmy voor beste dramaserie](https://www.ad.nl/show/the-pitt-wint-voor-tweede-jaar-op-rij-emmy-voor-beste-dramaserie~a92bfaed/)
+  > De medische dramaserie The Pitt is maandagavond voor het tweede jaar op rij uitgeroepen tot beste dramaserie bij de Emmy Awards, de belangrijkste...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Het antisemitisme neemt weer toe. Hoe moet het bestreden worden?](https://fd.nl/samenleving/1612120/het-antisemitisme-neemt-weer-toe-hoe-moet-het-bestreden-worden)
+  > Wat te doen nu ook in Nederland het antisemitisme terug is van nooit helemaal weggeweest? VVD-Kamerlid Ulysse Ellian en CDA-Kamerlid Tijs van den...
+- [Waarom zijn de grote AI-bedrijven zo bang voor AI?](https://fd.nl/economie/1612143/waarom-zijn-de-grote-ai-bedrijven-zo-bang-voor-ai)
+  > Vandaag in Dagkoers: FNV eist hogere lonen, een deel van de AI-sector schreeuwt om een pauze maar kan die er komen? En het Nederlandse Euclyd...
 - [De infrarekening](https://fd.nl/opinie/1612145/de-infrarekening)
   > Investeringen in de afbrokkelende infrastructuur zijn hoognodig, maar het vergt durf om er linksom of rechtsom geld voor vrij te maken.
 - [Eindhovens AI-chipbedrijf Euclyd sleept €200 mln binnen bij Samsung en Europese investeerders](https://fd.nl/bedrijfsleven/1612138/eindhovens-ai-chipbedrijf-euclyd-sleept-200-mln-binnen-bij-samsung-en-europese-investeerders)
   > Nederlandse chipontwerpbedrijven breken internationaal door. Na Fortaegis en Axelera AI zien investeerders brood in de start-up die chips bouwt...
 - [Debat na Prinsjesdag stelt Jettens balanceeract op de proef](https://fd.nl/politiek/1612128/debat-na-prinsjesdag-stelt-jettens-balanceeract-op-de-proef)
   > Het marathondebat deze week wordt een lakmoesproef voor de Nederlandse premier. Maar waarschijnlijk leidt dat nog niet tot grote politieke deals.
-- [Dubbele wurggreep roept om diplomatie](https://fd.nl/opinie/1612122/dubbele-wurggreep-roept-om-diplomatie)
-  > Iran en zijn bondgenoten krijgen steeds meer greep op twee cruciale olieroutes. Nu ook de Bab al-Mandeb onder druk staat, stijgt de olieprijs verder...
-- [Personalia dinsdag 15 september](https://fd.nl/bedrijfsleven/1612227/personalia-dinsdag-15-september)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
