@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-09-2026 om 18:46*
+*Laatst bijgewerkt: 15-09-2026 om 21:59*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Na exit Macklemore zit Ed Sheeran nu ook zonder band en supportacts](https://nos.nl/l/2631184)
+  > Ed Sheerans begeleidingsband en drie acts die in zijn voorprogramma zouden spelen, hebben zich teruggetrokken. Ze steunen daarmee de Amerikaanse...
+- [Branden in de berm en tientallen sabotageacties op het spoor: een overzicht van de dag](https://nos.nl/l/2631176)
+  > Het was een onrustige Prinsjesdag op de weg en op het spoor: langs meerdere snelwegen staken boerenactivisten onder meer hooibalen in brand, en op...
+- [Rechter blokkeert naam Trump op Kennedy Center weer, gebouw per direct dicht](https://nos.nl/l/2631169)
+  > Een federale rechtbank in Washington D.C. heeft opnieuw verboden om de naam van president Trump op de gevel van het Kennedy Center te zetten of het...
 - [Spoorsaboteurs kunnen hoge straffen tegemoetzien: 'Ze namen alle risico's voor lief'](https://nos.nl/l/2631159)
   > Er zijn nog geen verdachten opgepakt, maar aanwijzingen dat er protesterende boeren achter de landelijke sabotageacties op het spoor zitten zijn er...
 - [VS bouwde netwerk van militaire bases rond Iran, nu blijken die zelf doelwit](https://nos.nl/l/2631158)
   > De Amerikaanse marine onderzoekt of haar belangrijkste marinebasis in het Midden-Oosten nog wel moet worden hersteld. De schade die Iran heeft...
-- [Anonieme doden op Texel opgegraven in zoektocht naar vermiste vissers](https://nos.nl/l/2631147)
-  > De politie op Texel gaat proberen de identiteit te achterhalen van 38 anonieme doden die in de loop der jaren zijn aangespoeld. Morgen begint de...
-- [AIVD: Iran breekt online in bij dissidenten om gevoelige informatie te stelen](https://nos.nl/l/2631145)
-  > Iran gebruikt spionagesoftware om gevoelige informatie te verzamelen over kritische Iraniërs die in het Westen wonen. Daarvoor waarschuwt de...
-- [Boerenactivisten mogelijk verantwoordelijk voor sabotage op het spoor](https://nos.nl/l/2631141)
-  > Er zijn aanwijzingen dat boerenactivisten achter de sabotage op het spoor zitten. Dat blijkt uit gesprekken die de NOS vandaag heeft gevoerd met...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Mila en Sem wisten hun relatie anderhalf jaar voor haar broer en zijn beste vriend geheim te houden](https://www.ad.nl/mezza/mila-en-sem-wisten-hun-relatie-anderhalf-jaar-voor-haar-broer-en-zijn-beste-vriend-geheim-te-houden~afa405ef/)
-  > Toen Mila (34) verliefd werd op de beste vriend van haar broer, wist ze één ding zeker: daar zouden problemen van komen, vertelt ze in deze rubriek...
-- [Aanvoerder Klaassen zet Ajax op verdiende voorsprong tegen Willem II](https://www.ad.nl/voetbal/aanvoerder-klaassen-zet-ajax-op-verdiende-voorsprong-tegen-willem-ii~aa1ec1e3/)
-  > Ajax speelt vanavond de inhaalwedstrijd tegen Willem II. Dat duel werd begin dit seizoen verplaatst vanwege de Europese verplichtingen van de...
-- [Ed Sheeran: ‘Het is niet mijn besluit om Macklemore van tour te halen’](https://www.ad.nl/show/ed-sheeran-het-is-niet-mijn-besluit-om-macklemore-van-tour-te-halen~a706575b/)
-  > Ed Sheeran benadrukt dat het niet zijn beslissing was om Macklemore van zijn Amerikaanse tournee te halen. De rapper werd geschrapt nadat hij tijdens...
-- [EU heeft behoefte aan antwoorden rond Oekraïne, hoge rente en energieprijs, waar komt de EU-baas morgen mee?](https://www.ad.nl/buitenland/eu-heeft-behoefte-aan-antwoorden-rond-oekraine-hoge-rente-en-energieprijs-waar-komt-de-eu-baas-morgen-mee~a6daaf2d/)
-  > In de schaduw van Prinsjesdag - zo voelt dat in Nederland althans - houdt Ursula von der Leyen woensdag haar traditionele Staat van de Europese Unie....
-- [Staatssecretaris: sabotageacties gingen zwaar over een grens heen](https://www.ad.nl/politiek/staatssecretaris-sabotageacties-gingen-zwaar-over-een-grens-heen~a9fbeeed/)
-  > De sabotageacties in het midden en het oosten van het land waren ‘onacceptabel’ en gingen ‘zwaar’ over een grens heen. Dat schrijft staatssecretaris...
+- [Real Madrid voorkomt in extra tijd blamage tegen hekkensluiter, Denzel Dumfries krijgt paar minuten](https://www.ad.nl/voetbal/real-madrid-voorkomt-in-extra-tijd-blamage-tegen-hekkensluiter-denzel-dumfries-krijgt-paar-minuten~a4513374/)
+  > Real Madrid heeft met veel moeite gewonnen van Elche in La Liga. Op bezoek bij het laag geklasseerde Elche werd een ruime voorsprong uit handen...
+- [Karremans doet aangifte tegen brandstichters langs snelwegen: ‘Ik ben echt pislink op deze mensen’](https://www.ad.nl/binnenland/karremans-doet-aangifte-tegen-brandstichters-langs-snelwegen-ik-ben-echt-pislink-op-deze-mensen~ac6bb95d/)
+  > Minister Vincent Karremans van Infrastructuur en Waterstaat laat aangifte doen tegen de personen die dinsdag brand hebben gesticht langs de...
+- [Alarmlampje knipperde 44 keer, maar hijsen ging door tot doodsmak van bouwvakker](https://www.ad.nl/binnenland/alarmlampje-knipperde-44-keer-maar-hijsen-ging-door-tot-doodsmak-van-bouwvakker~abc3d2a7/)
+  > Kraanmachinist Paul B. geloofde het waarschuwingslampje niet, dat in korte tijd 44 keer knipperde. Te harde wind? Daarvan was vanuit zijn cabine op...
+- [Liverpool duwt Spurs dieper in problemen, Cody Gakpo belangrijk en wereldgoal Dominik Szoboszlai](https://www.ad.nl/voetbal/liverpool-duwt-spurs-dieper-in-problemen-cody-gakpo-belangrijk-en-wereldgoal-dominik-szoboszlai~a9c42999/)
+  > Liverpool heeft ten koste van Tottenham Hotspur de laatste zestien van de League Cup bereikt. Mede door een doelpunt van Cody Gakpo en een...
+- [Buis gevonden op het spoor bij Teuge, ProRail gaat uit van nieuwe sabotageactie](https://www.ad.nl/voorst/buis-gevonden-op-het-spoor-bij-teuge-prorail-gaat-uit-van-nieuwe-sabotageactie~ae19c544/)
+  > Ook bij Teuge is dinsdagavond materiaal op het spoor gevonden. Het gaat om een buis, bevestigt ProRail. Het treinverkeer tussen Amersfoort en...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Wall Street kleurt rood in aanloop naar rentebesluit](https://fd.nl/financiele-markten/1612331/wall-street-kleurt-rood-in-aanloop-naar-rentebesluit)
+  > Verwacht wordt dat het stelsel van centrale banken de beleidsrente woensdag met 25 basispunten verhoogt.
+- [Premier Jetten: ‘Als we de begroting niet hadden aangepast, waren we toondoof genoemd’](https://fd.nl/politiek/1612162/premier-jetten-als-we-de-begroting-niet-hadden-aangepast-waren-we-toondoof-genoemd)
+  > Het kabinet paste de begroting aan om de oppositie tegemoet te komen. Maar de premier verwacht niet dat de partijen in de Kamer elkaar nu ‘in de...
 - [Coalitie legt rekening bij werkenden, hogere inkomens betalen het meest](https://fd.nl/politiek/1612301/coalitie-legt-rekening-bij-werkenden-hogere-inkomens-betalen-het-meest)
   > Terwijl veel bezuinigingen zijn uitgesteld of geschrapt, zet het kabinet de geplande lastenverzwaringen wel door. Het bijgevoegde koopkrachtpakket...
 - [Bever Holding dieper in de rode cijfers](https://fd.nl/bedrijfsleven/1612169/bever-holding-dieper-in-de-rode-cijfers)
   > Het Wassenaarse bedrijf is al jaren verwikkeld in verschillende juridische procedures, die allemaal draaien om zo’n €60 mln aan vastgoedposities in...
 - [Minderheidskabinet lost beloftes niet in](https://fd.nl/opinie/1612308/minderheidskabinet-lost-beloftes-niet-in)
   > Oplopende rentes en investeringsbehoefte vragen om scherpe keuzes in plaats van koopkrachtcadeaus.
-- [Oppositie niet enthousiast over miljoenennota](https://fd.nl/politiek/1612309/oppositie-niet-enthousiast-over-miljoenennota)
-  > De coalitie zegt met miljarden te hebben geschoven om parlementaire steun voor de rijksbegroting te krijgen. Andere politieke partijen zien vooral...
-- [Boze aandeelhouder eist ruim €800.000 van Nxchange-oprichter](https://fd.nl/bedrijfsleven/1612163/boze-aandeelhouder-eist-ruim-800-000-van-nxchange-oprichter)
-  > Nxchange is een beursplatform voor start-ups en mkb-ondernemingen. De grootste minderheidsaandeelhouder is woedend op de medeoprichter van de...
 
 ### Meest gelezen
 
