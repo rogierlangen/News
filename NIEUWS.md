@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-09-2026 om 04:09*
+*Laatst bijgewerkt: 15-09-2026 om 09:50*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Groot deel schrijvers ziet geen inkomsten uit boeken op luisterplatforms](https://nos.nl/l/2631021)
-  > Nadat vorig jaar schrijver en dichter Lieke Marsman al uit de doeken had gedaan dat ze maar weinig verdiende aan haar luisterboek op...
-- [Roedel wilde honden in Zambia legt 4000 kilometer af in zoektocht naar partner](https://nos.nl/l/2631020)
-  > Een roedel Afrikaanse wilde honden heeft een reis van 4000 kilometer afgelegd. Dat is volgens wetenschappers de grootste afstand die ooit is afgelegd...
-- [Hooggerechtshof VS: regering mag geen strengere regels voor poststemmen invoeren](https://nos.nl/l/2631019)
-  > De regering van de Amerikaanse president Trump mag van het Amerikaanse Hooggerechtshof geen strengere regels invoeren voor stemmen per post. De...
-- [Minderheidskabinet wacht spannende eerste Prinsjesdag](https://nos.nl/l/2631018)
-  > De rijtour van de koning en de koningin met de koets, de Troonrede, de presentatie van het koffertje met de Miljoenennota: traditiegetrouw gaan we...
-- [Actrice Jean Smart schrijft geschiedenis met vijfde Emmy-winst op rij](https://nos.nl/l/2631017)
-  > De Amerikaanse actrice Jean Smart heeft geschiedenis geschreven bij de Emmy Awards die vannacht werden uitgereikt. De 75-jarige actrice is de eerste...
+- [Na 44 jaar definitieve straf voor moord op Nederlandse journalisten in El Salvador](https://nos.nl/l/2631062)
+  > Drie militaire kopstukken die zijn veroordeeld voor de moord op vier Nederlandse journalisten in El Salvador krijgen definitief dertig jaar celstraf....
+- [VS onthult ruimtewapen te hebben, maar details blijven geheim](https://nos.nl/l/2631058)
+  > De VS beschikt over ruimtewapens in een baan om de aarde. Die onthulling deed staatsecretaris Troy Meink voor de Luchtmacht op een lucht- en...
+- [Trein bij Steenwijk door sabotageactie 'in aanraking met materiaal op spoor'](https://nos.nl/l/2631053)
+  > ProRail zegt dat ten minste één trein op het sabotagemateriaal is gereden waarmee vanochtend op het spoor een grote storing werd veroorzaakt....
+- [Russisch fregat beschiet Deense legerhelikopter met lichtkogels](https://nos.nl/l/2631041)
+  > Een helikopter van de Deense luchtmacht is gisteren met twee lichtkogels beschoten door een Russisch fregat. Dat meldt het Deense ministerie van...
+- [Oproep van Rijkswaterstaat voor mijden A2 met file weer ingetrokken](https://nos.nl/l/2631036)
+  > Rijkswaterstaat trekt de oproep om de A2 van Den Bosch naar Utrecht te mijden weer in. Vanochtend ontstond forse vertraging door een ongeval in de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Mélissa ontdekt dat haar gezicht op lichamen van 20 onbekenden getatoeëerd staat](https://www.ad.nl/buitenland/melissa-ontdekt-dat-haar-gezicht-op-lichamen-van-20-onbekenden-getatoeeerd-staat~a196e786/)
-  > Mélissa is allesbehalve een beroemdheid. Toch kwam de jonge Française er een paar jaar geleden achter dat haar gezicht als tatoeage op de lichamen...
-- [LIVE Prinsjesdag | Nederland maakt zich op voor Prinsjesdag, dit zijn de regeringsplannen die al zijn uitgelekt](https://www.ad.nl/binnenland/live-prinsjesdag-nederland-maakt-zich-op-voor-prinsjesdag-dit-zijn-de-regeringsplannen-die-al-zijn-uitgelekt~a339d926/)
-  > De officiële opening van het nieuwe parlementaire jaar staat voor de deur tijdens Prinsjesdag. Vandaag, op de derde dinsdag van september,...
-- [Honderdduizenden huizen kwetsbaar bij extreme regen: ‘Voetbal in de wc tegen wateroverlast’](https://www.ad.nl/binnenland/honderdduizenden-huizen-kwetsbaar-bij-extreme-regen-voetbal-in-de-wc-tegen-wateroverlast~a44556422/)
-  > Na een kurkdroge zomer maakt Nederland zich op voor een kletsnat najaar. Als het écht hard gaat regenen, hebben de bewoners van bijna 350.000 huizen...
-- [Geniet nog maar even van het mooie weer: na een zomerse dag krijgen we onweer, hagel en wind](https://www.ad.nl/binnenland/geniet-nog-maar-even-van-het-mooie-weer-na-een-zomerse-dag-krijgen-we-onweer-hagel-en-wind~a35883b7/)
-  > Wie nog van zomerse temperaturen wil genieten, kan dat nog één dagje doen. We krijgen nog een zomerse dag cadeau voordat de herfst echt lijkt te...
-- [‘The Pitt’ wint voor tweede jaar op rij Emmy voor beste dramaserie](https://www.ad.nl/show/the-pitt-wint-voor-tweede-jaar-op-rij-emmy-voor-beste-dramaserie~a92bfaed/)
-  > De medische dramaserie The Pitt is maandagavond voor het tweede jaar op rij uitgeroepen tot beste dramaserie bij de Emmy Awards, de belangrijkste...
+- [Het naakte mevrouwtje Sydney Sweeney heeft precies wat ze graag heeft: ophef en aandacht](https://www.ad.nl/binnenland/het-naakte-mevrouwtje-sydney-sweeney-heeft-precies-wat-ze-graag-heeft-ophef-en-aandacht~ad2dc9b8/)
+  > Er is ophef over een Amerikaanse reclamespotje dat vrouwelijke sporters sexualiseert. En terecht, vindt Angela de Jong. ‘Maar tegelijk móeten we het...
+- [Ex-Feyenoordtalent voetbalt weer na arrestatie, maar hoe staat het met zijn drugszaak?](https://www.ad.nl/binnenland/ex-feyenoordtalent-voetbalt-weer-na-arrestatie-maar-hoe-staat-het-met-zijn-drugszaak~af3a0b5c/)
+  > Voormalig Feyenoordtalent Nigel R. (28) werd in januari van dit jaar opgepakt wegens drugshandel, maar lijkt zijn leven weer op de rit te hebben: hij...
+- [Xavi maakt komende vrijdag zijn selectie bekend: welke spelers moeten volgens jou geselecteerd worden?](https://www.ad.nl/voetbal/xavi-maakt-komende-vrijdag-zijn-selectie-bekend-welke-spelers-moeten-volgens-jou-geselecteerd-worden~ae59dd562/)
+  > Bondscoach Xavi maakt op vrijdag 18 september zijn eerste selectie bekend. Kruip in de huid van de nieuwe bondscoach en help hem zijn ideale...
+- [Duel om Europese Supercup volgend jaar in Nederland: Johan Cruijff Arena krijgt de primeur](https://www.ad.nl/voetbal/duel-om-europese-supercup-volgend-jaar-in-nederland-johan-cruijff-arena-krijgt-de-primeur~a559dbb0/)
+  > De wedstrijd om de Europese Supercup is volgend jaar in de Johan Cruijff ArenA. Dat is besloten tijdens een vergadering van de Europese voetbalbond...
+- [Praat mee: weer een treinstoring, maar tegen sabotage is geen kruid gewassen](https://www.ad.nl/praat-mee/praat-mee-weer-een-treinstoring-maar-tegen-sabotage-is-geen-kruid-gewassen~a1e18964/)
+  > Het was de zoveelste treinstoring van dit jaar, maar deze keer was de oorzaak sabotage, zo meldt ProRail. In De Kwestie leggen we onze lezers...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Het antisemitisme neemt weer toe. Hoe moet het bestreden worden?](https://fd.nl/samenleving/1612120/het-antisemitisme-neemt-weer-toe-hoe-moet-het-bestreden-worden)
-  > Wat te doen nu ook in Nederland het antisemitisme terug is van nooit helemaal weggeweest? VVD-Kamerlid Ulysse Ellian en CDA-Kamerlid Tijs van den...
-- [Waarom zijn de grote AI-bedrijven zo bang voor AI?](https://fd.nl/economie/1612143/waarom-zijn-de-grote-ai-bedrijven-zo-bang-voor-ai)
-  > Vandaag in Dagkoers: FNV eist hogere lonen, een deel van de AI-sector schreeuwt om een pauze maar kan die er komen? En het Nederlandse Euclyd...
-- [De infrarekening](https://fd.nl/opinie/1612145/de-infrarekening)
-  > Investeringen in de afbrokkelende infrastructuur zijn hoognodig, maar het vergt durf om er linksom of rechtsom geld voor vrij te maken.
-- [Eindhovens AI-chipbedrijf Euclyd sleept €200 mln binnen bij Samsung en Europese investeerders](https://fd.nl/bedrijfsleven/1612138/eindhovens-ai-chipbedrijf-euclyd-sleept-200-mln-binnen-bij-samsung-en-europese-investeerders)
-  > Nederlandse chipontwerpbedrijven breken internationaal door. Na Fortaegis en Axelera AI zien investeerders brood in de start-up die chips bouwt...
-- [Debat na Prinsjesdag stelt Jettens balanceeract op de proef](https://fd.nl/politiek/1612128/debat-na-prinsjesdag-stelt-jettens-balanceeract-op-de-proef)
-  > Het marathondebat deze week wordt een lakmoesproef voor de Nederlandse premier. Maar waarschijnlijk leidt dat nog niet tot grote politieke deals.
+- [Singapore trekt steeds meer goud aan en mikt nu ook op centrale banken](https://fd.nl/financiele-markten/1610557/singapore-trekt-steeds-meer-goud-aan-en-mikt-nu-ook-op-centrale-banken)
+  > Vermogenden parkeren steeds vaker goud in Singapore. Nu wil het land ook goudvoorraden van centrale banken lokken. Het FD bezocht een zwaarbeveiligde...
+- [Streef niet naar foutloze AI, maar naar AI die fouten snel blootlegt](https://fd.nl/opinie/1612210/streef-niet-naar-foutloze-ai-maar-naar-ai-die-fouten-snel-blootlegt)
+  > Nu er incidenten plaatsvinden waarbij AI-agents systemen kraken, slaan ook hun makers alarm. Maar streven naar foutloze AI is onbegonnen werk....
+- [Europees Parlement opent kantoor in Canada](https://fd.nl/politiek/1612151/europees-parlement-opent-kantoor-in-canada)
+  > ‘Europa en Canada: oude vrienden die samen aan het volgende hoofdstuk schrijven’, stelt Roberta Metsola, de voorzitter van het Europees Parlement, in...
+- [De ‘lagebaantjesliteratuur’ uit China is razend populair](https://fd.nl/samenleving/1612216/de-lagebaantjesliteratuur-uit-china-is-razend-populair)
+  > Nergens zoveel ondergewaardeerde en onderbetaalde werkkrachten als in China. Het levert interessante literatuur op, stelt Femmetje de Wind vast.
+- [Russisch oorlogsschip beschiet Deense helikopter met lichtkogels](https://fd.nl/economie/1612281/russisch-oorlogsschip-beschiet-deense-helikopter-met-lichtkogels)
+  > De helikopter vloog in de Oostzee over internationale wateren. Volgens het Deense leger miste een van de lichtkogels nipt de helikopter.
 
 ### Meest gelezen
 
