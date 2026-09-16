@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-09-2026 om 11:08*
+*Laatst bijgewerkt: 16-09-2026 om 16:29*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Zeker 19 doden bij instorten van door oorlog beschadigd woongebouw in Gaza](https://nos.nl/l/2631240)
-  > In Gaza-stad zijn zeker negentien mensen omgekomen doordat een beschadigd wooncomplex is ingestort. In het gebouw woonden ontheemde Palestijnen, de...
-- [Veertien verdachten Overasselt blijven negentig dagen langer vastzitten](https://nos.nl/l/2631239)
-  > Veertien verdachten rond het geweld in Overasselt blijven negentig dagen langer vastzitten. Dat heeft de raadkamer van de rechtbank in Arnhem...
-- [Klokkentorens Den Bosch dicht: onveilig volgens Arbeidsinspectie](https://nos.nl/l/2631238)
-  > De klokken van de Sint-Janskathedraal en het Stadhuis in Den Bosch worden voorlopig niet bespeeld. Het is voor de beiaardiers onveilig om hun werk te...
-- [Vijf doden bij droneaanval op Oekraïense bus, energieaanvallen niet gestopt](https://nos.nl/l/2631233)
-  > Bij een Russische droneaanval op een passagiersbus in Oekraïne zijn vijf doden gevallen. Ook raakten zeker zeven mensen gewond.
-        De aanval...
-- [Kosovaarse ex-president Thaci veroordeeld tot 25 jaar cel voor oorlogsmisdaden](https://nos.nl/l/2631232)
-  > Het Kosovotribunaal in Den Haag heeft Hashim Thaci, de voormalig president van Kosovo, veroordeeld tot 25 jaar cel. De internationale rechtbank ziet...
+- [Kritiek op AI-bedrijven die oproepen tot vertraging vanwege gevaar: 'Doe het dan'](https://nos.nl/l/2631270)
+  > De oproep van de topman van AI-bedrijf Anthropic om op een lager tempo nieuwe krachtige AI-modellen uit te brengen, leidt tot kritiek van binnen en...
+- [Suurhoffbrug richting Maasvlakte deels gesloten vanwege scheuren in de constructie](https://nos.nl/l/2631269)
+  > De westelijke Suurhoffbrug in de A15 is door Rijkswaterstaat "omwille van de veiligheid" gedeeltelijk afgesloten nadat bij een inspectie scheuren...
+- [Moet werken meer lonen? Hoe dan en waarom gebeurt het niet?](https://nos.nl/l/2631266)
+  > Een deel van de kritiek op de Prinsjesdagplannen gaat erover dat werkenden meer belasting gaan betalen. En dat terwijl allerlei adviesorganen en...
+- [Bomensnoeier in Vught springt uit hoogwerker vanwege aanval Aziatische hoornaars](https://nos.nl/l/2631265)
+  > Een man die voor de gemeente Vught bomen aan het snoeien was, is zwaargewond geraakt omdat hij vluchtte voor een aanval van Aziatische hoornaars. Dat...
+- [Stefan de Walle geeft zijn staf door en neemt afscheid van 5 december-rol](https://nos.nl/l/2631264)
+  > Stefan de Walle geeft na vijftien jaar zijn staf en mijter door aan een ander, en neemt afscheid van Het Sinterklaasjournaal. Dat meldt de NTR. Het...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De sterren van het WK: met deze namen moet Mathieu van der Poel afrekenen](https://www.ad.nl/wielrennen/de-sterren-van-het-wk-met-deze-namen-moet-mathieu-van-der-poel-afrekenen~a1f817ec/)
-  > Nu de Vuelta is afgelopen, zijn de ogen gericht op het WK wielrennen in Canada. De topfavorieten hebben allen hun eigen route richting de clash van...
-- [Myrthe van Pelt managet onder anderen Welmoed Sijtsma: ‘Vrouwelijke presentatoren krijgen veel shit over zich heen’](https://www.ad.nl/show/myrthe-van-pelt-managet-onder-anderen-welmoed-sijtsma-vrouwelijke-presentatoren-krijgen-veel-shit-over-zich-heen~a6c86997/)
-  > Ze moet een beetje lachen toen iemand haar de ‘Kleine Generaal’ noemde, maar alles wat de BN’ers in haar stal betreft gaat via Myrthe van Pelt. De...
-- [Russische geldschieter van trouwfeest Trump Jr. gelinkt aan ontvoering Oekraïense kinderen, Melania reageert](https://www.ad.nl/buitenland/russische-geldschieter-van-trouwfeest-trump-jr-gelinkt-aan-ontvoering-oekraiense-kinderen-melania-reageert~ae67dd9c/)
-  > De Russische oligarch Oemar Kremljov, die tienduizenden dollars betaalde voor het luxe trouwfeest van Donald Trump Jr., ligt onder vuur. De zakenman...
-- [Oud-president Kosovo door tribunaal in Den Haag schuldig bevonden aan oorlogsmisdaden: 25 jaar cel](https://www.ad.nl/buitenland/oud-president-kosovo-door-tribunaal-in-den-haag-schuldig-bevonden-aan-oorlogsmisdaden-25-jaar-cel~ab0a857a/)
-  > Het Kosovotribunaal in Den Haag heeft Hashim Thaçi schuldig bevonden aan oorlogsmisdaden in de jaren 90. Ook de drie medeverdachten werden daarvoor...
 - [Huis op Funda? Dat is sinds deze maand een stuk duurder, deze keuzes maak je nu](https://www.ad.nl/wonen/huis-op-funda-dat-is-sinds-deze-maand-een-stuk-duurder-deze-keuzes-maak-je-nu~a59d4174/)
-  > Funda is vernieuwd. Wie zijn huis verkoopt, betaalt sinds vandaag soms dubbel zoveel om zijn huis op de huizensite te zien. Funda tipt makelaars om...
+  > Funda is vernieuwd. Wie zijn huis verkoopt, betaalt sinds woensdag soms dubbel zoveel om zijn huis op de huizensite te zien. Funda belooft makelaars...
+- [Elfstedenvoorzitter die de legendarische woorden ‘It giet oan’ sprak, op 87-jarige leeftijd overleden](https://www.ad.nl/schaatsen/elfstedenvoorzitter-die-de-legendarische-woorden-it-giet-oan-sprak-op-87-jarige-leeftijd-overleden~a70beefb/)
+  > Henk Kroes, de voormalige voorzitter van de Vereniging De Friesche Elf Steden, is dinsdag op 87-jarige leeftijd overleden. Dat meldt zijn familie in...
+- [Razinho (28) dacht dat er niet zo’n lange rij zou zijn, maar dat viel tegen: ‘Ik word steeds nerveuzer’](https://www.ad.nl/dordrecht/razinho-28-dacht-dat-er-niet-zon-lange-rij-zou-zijn-maar-dat-viel-tegen-ik-word-steeds-nerveuzer~a7fc33c7/)
+  > Campingstoeltjes om 06.00 uur en een lange rij in de regen: op de vroege woensdagochtend is het druk bij Intertoys in Dordrecht. Ongeveer tachtig...
+- [Tweede Kamer: schapen niet goed beschermd, dan geen geld bij aanval door wolven](https://www.ad.nl/binnenland/tweede-kamer-schapen-niet-goed-beschermd-dan-geen-geld-bij-aanval-door-wolven~a173bd60/)
+  > Schapenhouders krijgen in de toekomst minder of zelfs geen vergoeding meer bij een wolvenaanval als blijkt dat zij niet genoeg hebben gedaan om de...
+- [Verstappen gaat unieke uitdaging aan: F1-coureur moet 100 (amateur)karters inhalen op Silverstone](https://www.ad.nl/formule-1/verstappen-gaat-unieke-uitdaging-aan-f1-coureur-moet-100-amateur-karters-inhalen-op-silverstone~acc32d76/)
+  > Max Verstappen hoeft zich deze week niet voor te bereiden op een Formule 1-race, waardoor de coureur voldoende tijd heeft voor een bijzondere...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Werknemers hebben liever goed pensioen dan prestatiebeloning](https://fd.nl/bedrijfsleven/1612340/werknemers-hebben-liever-goed-pensioen-dan-prestatiebeloning)
-  > Europeanen verkiezen financiële zekerheid op lange termijn boven snelle bonussen. Nederlanders wijken Europees af met het belang dat zij hechten aan...
-- [IJzerertshandelaar claimt miljardenschade bij Glencore](https://fd.nl/financiele-markten/1612398/ijzerertshandelaar-claimt-miljardenschade-bij-glencore)
-  > Glencore beschuldigt zijn voormalige zakenpartner Radiant World van fraude bij de handel in ijzererts. De handelaar uit Singapore slaat nu terug met...
-- [Klaver verwijt coalitie ‘politieke gaslighting’ tijdens eerste debat miljoenennota](https://fd.nl/politiek/1612344/klaver-verwijt-coalitie-politieke-gaslighting-tijdens-eerste-debat-miljoenennota)
-  > Pro-leider Klaver is verontwaardigd dat D66 wil dat hij akkoorden sluit met JA21. De coalitie koos zelf uiteindelijk niet voor een kabinet met die...
-- [Nederlandse farmabaas voorziet ‘gouden decennium’ voor goedkopere medicijnen](https://fd.nl/bedrijfsleven/1612134/nederlandse-farmabaas-voorziet-gouden-decennium-voor-goedkopere-medicijnen)
-  > Financieel directeur Remco Steenbergen van Sandoz verwacht prijsdalingen van wel 70% voor veelgebruikte medicijnen tegen kanker omdat veel patenten...
-- [Maand van de waarheid: kiest Tata Steel voor aansluiting bij de Europese voorhoede?](https://fd.nl/bedrijfsleven/1612335/maand-van-de-waarheid-kiest-tata-steel-voor-aansluiting-bij-de-europese-voorhoede)
-  > Over twee weken is de deadline en de spanning stijgt rond de mogelijke overheidssteun voor Tata Steel. Gaan er in IJmuiden, net als bij concurrenten...
+- [Suurhoffbrug (A15) richting Maasvlakte deels dicht door haarscheuren](https://fd.nl/samenleving/1612361/suurhoffbrug-a15-richting-maasvlakte-deels-dicht-door-haarscheuren)
+  > Verkeer moet tijdelijk via de vluchtstrook rijden en wordt op korte termijn omgeleid via de andere zijde van de brug.
+- [Frasers zet Hugo Boss verder onder druk: topman wordt voorzitter van raad van commissarissen](https://fd.nl/bedrijfsleven/1612358/frasers-zet-hugo-boss-verder-onder-druk-topman-wordt-voorzitter-van-raad-van-commissarissen)
+  > De vorige voorzitter stapte eerder deze week onder druk van Frasers op.
+- [‘SK Hynix wil in Amerikaanse fabriek van Intel chips gaan produceren’](https://fd.nl/bedrijfsleven/1612359/sk-hynix-wil-in-amerikaanse-fabriek-van-intel-chips-gaan-produceren)
+  > De Zuid-Koreaanse chipmaker zegt in een verklaring dat er nog geen definitieve plannen zijn gemaakt ten aanzien van chipproductie in de VS.
+- [Tekort voor onderhoud aan gemalen en dijken loopt verder op naar €12 mrd](https://fd.nl/politiek/1612404/tekort-voor-onderhoud-aan-gemalen-en-dijken-loopt-verder-op-naar-12-mrd)
+  > Het Deltafonds heeft veel te weinig geld om tot 2050 alles te doen wat nodig is om Nederland veilig te houden en te voorzien van zoetwater.
+- [‘Supernerveuze’ Democraten sidderen voor progressieve Senaatskandidaat Abdul El-Sayed](https://fd.nl/politiek/1611804/supernerveuze-democraten-sidderen-voor-progressieve-senaatskandidaat-abdul-el-sayed)
+  > Winst in de staat Michigan is voor de Democraten cruciaal, willen ze de meerderheid in de Senaat heroveren. De vrees is dat de uitgesproken Abdul...
 
 ### Meest gelezen
 
