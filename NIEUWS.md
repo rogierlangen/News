@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-09-2026 om 19:53*
+*Laatst bijgewerkt: 16-09-2026 om 22:45*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Nederland zakt verder weg op wereldwijde ranglijst voor gendergelijkheid](https://nos.nl/l/2631322)
+  > Nederland is opnieuw gedaald op de wereldwijde ranglijst voor gelijkheid tussen mannen en vrouwen. Vorig jaar stonden we nog op plek 43, dit jaar op...
+- [Ook na dag 1 van de Beschouwingen blijft de vraag: hoe krijgen we een meerderheid?](https://nos.nl/l/2631314)
+  > Ook na een lange dag debatteren is nog onduidelijk hoe het minderheidskabinet meerderheden gaat vinden voor de Prinsjesdagplannen. Komt er een...
+- [Britse koning verwerpt aantijging broer Diana: 'Verstand vertroebeld'](https://nos.nl/l/2631313)
+  > De Britse koning Charles heeft gereageerd op een nog uit te komen boek van Charles Spencer. Dat is de broer van koning Charles' eerste vrouw, prinses...
+- [Centrumlinkse oppositie in Zweden nipt groter dan rechts blok](https://nos.nl/l/2631311)
+  > De Zweedse publieke omroep SVT heeft de centrumlinkse oppositiepartijen uitgeroepen tot winnaar van de verkiezingen. Daarmee komt een einde aan een...
 - [Belgische politicus zit dertien uur vast op toilet: 'Nadenken en zen zijn'](https://nos.nl/l/2631307)
   > Een Belgische politicus moest naar het ziekenhuis nadat hij dertien uur op de wc had vastgezeten. Er moest een koevoet aan te pas komen om hem uit...
-- [Italiaanse regering schrapt wegenbelasting in aanloop naar verkiezingen](https://nos.nl/l/2631304)
-  > De Italiaanse regering schrapt voor volgend jaar de wegenbelasting. Dat wordt gepresenteerd als een compensatie voor de hoge benzine- en...
-- [Dertig jaar Pokémon: liefhebbers staan uren in de rij voor speciale kaarten](https://nos.nl/l/2631303)
-  > Door het hele land stonden vanochtend verzamelaars van Pokémonkaarten voor de deuren van speelgoedwinkels. Vanwege het 30-jarig jubileum van de...
-- [Fed verhoogt voor het eerst in drie jaar de rente en negeert wens Trump](https://nos.nl/l/2631301)
-  > De Amerikaanse centrale bank verhoogt de rente van 3,5 tot 3,75 procent naar 3,75 tot 4 procent. Het is voor het eerst in ruim drie jaar tijd dat de...
-- [Vleermuizen nog niet onder de indruk van verleidingspogingen Drentse school](https://nos.nl/l/2631296)
-  > Een basisschool in het Drentse dorp Eext komt maar niet af van vleermuizen in het gebouw. Eerder dit jaar werd al twee ton gestoken in een nieuw dak...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [AZ mag niet klagen met gelijke stand bij rust in Stadium of Light](https://www.ad.nl/voetbal/az-mag-niet-klagen-met-gelijke-stand-bij-rust-in-stadium-of-light~aebc4a9c4/)
-  > Bekerwinnaar AZ begint vanavond aan het Europa League-avontuur in Engeland. De ploeg van Leeroy Echteld gaat op bezoek bij Sunderland. De ploeg van...
-- [Bij Ben Saunders voelden klanten zich altijd op hun gemak: ‘Een tattoo bij hem deed nooit pijn’](https://www.ad.nl/arnhem/bij-ben-saunders-voelden-klanten-zich-altijd-op-hun-gemak-een-tattoo-bij-hem-deed-nooit-pijn~a6c30b21/)
-  > De dinsdag overleden zanger Ben Saunders was niet alleen zanger, maar had ook zijn eigen tattooshop in Arnhem. Twee klanten over hun tattoos bij hem:...
-- [Patty vergeet belangrijke liefdesdatum en Davina moet flinke uithaal oefenen](https://www.ad.nl/show/patty-vergeet-belangrijke-liefdesdatum-en-davina-moet-flinke-uithaal-oefenen~a7bae403/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Wegenbelasting in tien jaar bijna 40 procent duurder](https://www.ad.nl/auto/wegenbelasting-in-tien-jaar-bijna-40-procent-duurder~a5210377/)
-  > Niet alleen de gestegen brandstofprijs maakt autorijden duurder, ook de gestegen wegenbelasting is een grote kostenpost die jarenlang doorwerkt. Toch...
-- [Van zinkende boot tot auditie voor eigen rol: vijf onvergetelijke momenten van De Walle als de Sint](https://www.ad.nl/show/van-zinkende-boot-tot-auditie-voor-eigen-rol-vijf-onvergetelijke-momenten-van-de-walle-als-de-sint~ae8d87e4/)
-  > Jarenlang genoten miljoenen kijkers van Stefan de Walle (61) als Sinterklaas in Het Sinterklaasjournaal. Woensdag nam hij afscheid van zijn rol. De...
+- [Voetbalpodcast | ‘AZ had een punt moeten meenemen uit Sunderland’](https://www.ad.nl/voetbal/voetbalpodcast-az-had-een-punt-moeten-meenemen-uit-sunderland~a42af5cd9/)
+  > AZ speelde in Engeland tegen Sunderland de eerste wedstrijd in de Europa League. De grootste sta in de weg voor de Alkmaarders was een Nederlander:...
+- [Hattrick Raphinha en wereldgoal Cancelo: doelpuntenmachine Barcelona blijft foutloos](https://www.ad.nl/voetbal/hattrick-raphinha-en-wereldgoal-cancelo-doelpuntenmachine-barcelona-blijft-foutloos~adfd6f8e/)
+  > FC Barcelona heeft ook zijn zesde wedstrijd in La Liga met ruime cijfers gewonnen. De ploeg van trainer Hansi Flick was voor eigen publiek met 7-2 te...
+- [Stand Europa League | AZ puntloos na eerste duel, voormalig Feyenoord-trainer Priske bovenaan](https://www.ad.nl/voetbal/stand-europa-league-az-puntloos-na-eerste-duel-voormalig-feyenoord-trainer-priske-bovenaan~a1e478e4/)
+  > De eerste negen wedstrijden in de competitiefase van de Europa League zitten erop. AZ verloor ongelukkig met 1-0 van Sunderland en staat dus nog met...
+- [Pijnlijke avond voor Manchester United: Brighton knikkert ploeg van Carrick uit de League Cup](https://www.ad.nl/voetbal/pijnlijke-avond-voor-manchester-united-brighton-knikkert-ploeg-van-carrick-uit-de-league-cup~a52b06c0/)
+  > Manchester United is in de derde ronde van de League Cup uitgeschakeld door Brighton & Hove Albion. De ploeg van trainer Michael Carrick gaf in eigen...
+- [Benfica wint kraker op bezoek bij AC Milan, Mark Flekken belangrijk bij zege Bayer Leverkusen](https://www.ad.nl/voetbal/benfica-wint-kraker-op-bezoek-bij-ac-milan-mark-flekken-belangrijk-bij-zege-bayer-leverkusen~a9a51cb7/)
+  > Op de avond dat AZ begon aan zijn Europese avontuur op bezoek bij Sunderland (1-0), waren er volop andere wedstrijden in de Europa League. Zo won...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Oliebedrijf van Trump-bondgenoot gaat Venezolaans olieveld exploiteren](https://fd.nl/politiek/1612366/oliebedrijf-van-trump-bondgenoot-gaat-venezolaans-olieveld-exploiteren)
-  > Continental Resources tekende woensdag een intentieverklaring voor de ontwikkeling van een olieveld in het Orinoco-gebied.
-- [Federal Reserve trekt Amerikaanse beleidsrente op richting 4%](https://fd.nl/financiele-markten/1612355/federal-reserve-trekt-amerikaanse-beleidsrente-op-richting-4)
-  > Het rentebesluit komt op een gevoelig politiek moment. Over anderhalve maand gaan de Amerikanen naar de stembus voor de tussentijdse verkiezingen,...
-- [Nederland kan deeptech bouwen, maar zal die ook moeten behouden](https://fd.nl/opinie/1612401/nederland-kan-deeptech-bouwen-maar-zal-die-ook-moeten-behouden)
-  > Honderden miljoenen voor Nederlandse chipbedrijven is hoopgevend, maar de echte uitdaging begint nu pas.
-- [Suurhoffbrug (A15) richting Maasvlakte deels dicht door haarscheuren](https://fd.nl/samenleving/1612361/suurhoffbrug-a15-richting-maasvlakte-deels-dicht-door-haarscheuren)
-  > Verkeer moet tijdelijk via de vluchtstrook rijden en wordt op korte termijn omgeleid via de andere zijde van de brug.
-- [Frasers zet Hugo Boss verder onder druk: topman wordt voorzitter van raad van commissarissen](https://fd.nl/bedrijfsleven/1612358/frasers-zet-hugo-boss-verder-onder-druk-topman-wordt-voorzitter-van-raad-van-commissarissen)
-  > De vorige voorzitter stapte eerder deze week onder druk van Frasers op.
+- [Kleine ondernemers lopen vast in financieringsaanvraag](https://fd.nl/bedrijfsleven/1612396/kleine-ondernemers-lopen-vast-in-financieringsaanvraag)
+  > Veel mkb’ers en zzp’ers raken de weg kwijt in een breed aanbod van financieringsvormen. Ruim een op de drie heeft wel eens afgezien van een...
+- [Onze BFF Canada](https://fd.nl/opinie/1612409/onze-bff-canada)
+  > We delen een oceaan en dezelfde set waarden, dus waarom niet ‘een gezamenlijke toekomst’ met Canada in de EU? Het is vooral symbolisch, denkt...
+- [De accountant is al een eeuw lang een populaire kop van Jut, ziet promovendus Lars in ’t Veld](https://fd.nl/financiele-markten/1612393/de-accountant-is-al-een-eeuw-lang-een-populaire-kop-van-jut-ziet-promovendus-lars-in-t-veld)
+  > Wat verwachten we eigenlijk van accountants? En vragen we niet steeds meer van hen, wat ze eigenlijk niet waar kunnen maken?
+- [Nederland zakt opnieuw op ranglijst emancipatie](https://fd.nl/politiek/1612362/nederland-zakt-opnieuw-op-ranglijst-emancipatie)
+  > Nederland heeft veel moeders die in deeltijd werken, maar amper vaders die minder gaan werken om zorgtaken gelijker te verdelen.
+- [Benepen docenten in het wakkere onderwijs versus de Nederlandse taal](https://fd.nl/opinie/1612290/het-wakkere-onderwijs-versus-de-nederlandse-taal)
+  > Een leescrisis? Ik begrijp de jeugd wel – eerst alleen woordjes mogen turven, en nu zijn allerlei literaire klassiekers ongepast, schrijft columnist...
 
 ### Meest gelezen
 
