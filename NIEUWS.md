@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-09-2026 om 16:29*
+*Laatst bijgewerkt: 16-09-2026 om 19:53*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Kritiek op AI-bedrijven die oproepen tot vertraging vanwege gevaar: 'Doe het dan'](https://nos.nl/l/2631270)
-  > De oproep van de topman van AI-bedrijf Anthropic om op een lager tempo nieuwe krachtige AI-modellen uit te brengen, leidt tot kritiek van binnen en...
-- [Suurhoffbrug richting Maasvlakte deels gesloten vanwege scheuren in de constructie](https://nos.nl/l/2631269)
-  > De westelijke Suurhoffbrug in de A15 is door Rijkswaterstaat "omwille van de veiligheid" gedeeltelijk afgesloten nadat bij een inspectie scheuren...
-- [Moet werken meer lonen? Hoe dan en waarom gebeurt het niet?](https://nos.nl/l/2631266)
-  > Een deel van de kritiek op de Prinsjesdagplannen gaat erover dat werkenden meer belasting gaan betalen. En dat terwijl allerlei adviesorganen en...
-- [Bomensnoeier in Vught springt uit hoogwerker vanwege aanval Aziatische hoornaars](https://nos.nl/l/2631265)
-  > Een man die voor de gemeente Vught bomen aan het snoeien was, is zwaargewond geraakt omdat hij vluchtte voor een aanval van Aziatische hoornaars. Dat...
-- [Stefan de Walle geeft zijn staf door en neemt afscheid van 5 december-rol](https://nos.nl/l/2631264)
-  > Stefan de Walle geeft na vijftien jaar zijn staf en mijter door aan een ander, en neemt afscheid van Het Sinterklaasjournaal. Dat meldt de NTR. Het...
+- [Belgische politicus zit dertien uur vast op toilet: 'Nadenken en zen zijn'](https://nos.nl/l/2631307)
+  > Een Belgische politicus moest naar het ziekenhuis nadat hij dertien uur op de wc had vastgezeten. Er moest een koevoet aan te pas komen om hem uit...
+- [Italiaanse regering schrapt wegenbelasting in aanloop naar verkiezingen](https://nos.nl/l/2631304)
+  > De Italiaanse regering schrapt voor volgend jaar de wegenbelasting. Dat wordt gepresenteerd als een compensatie voor de hoge benzine- en...
+- [Dertig jaar Pokémon: liefhebbers staan uren in de rij voor speciale kaarten](https://nos.nl/l/2631303)
+  > Door het hele land stonden vanochtend verzamelaars van Pokémonkaarten voor de deuren van speelgoedwinkels. Vanwege het 30-jarig jubileum van de...
+- [Fed verhoogt voor het eerst in drie jaar de rente en negeert wens Trump](https://nos.nl/l/2631301)
+  > De Amerikaanse centrale bank verhoogt de rente van 3,5 tot 3,75 procent naar 3,75 tot 4 procent. Het is voor het eerst in ruim drie jaar tijd dat de...
+- [Vleermuizen nog niet onder de indruk van verleidingspogingen Drentse school](https://nos.nl/l/2631296)
+  > Een basisschool in het Drentse dorp Eext komt maar niet af van vleermuizen in het gebouw. Eerder dit jaar werd al twee ton gestoken in een nieuw dak...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Huis op Funda? Dat is sinds deze maand een stuk duurder, deze keuzes maak je nu](https://www.ad.nl/wonen/huis-op-funda-dat-is-sinds-deze-maand-een-stuk-duurder-deze-keuzes-maak-je-nu~a59d4174/)
-  > Funda is vernieuwd. Wie zijn huis verkoopt, betaalt sinds woensdag soms dubbel zoveel om zijn huis op de huizensite te zien. Funda belooft makelaars...
-- [Elfstedenvoorzitter die de legendarische woorden ‘It giet oan’ sprak, op 87-jarige leeftijd overleden](https://www.ad.nl/schaatsen/elfstedenvoorzitter-die-de-legendarische-woorden-it-giet-oan-sprak-op-87-jarige-leeftijd-overleden~a70beefb/)
-  > Henk Kroes, de voormalige voorzitter van de Vereniging De Friesche Elf Steden, is dinsdag op 87-jarige leeftijd overleden. Dat meldt zijn familie in...
-- [Razinho (28) dacht dat er niet zo’n lange rij zou zijn, maar dat viel tegen: ‘Ik word steeds nerveuzer’](https://www.ad.nl/dordrecht/razinho-28-dacht-dat-er-niet-zon-lange-rij-zou-zijn-maar-dat-viel-tegen-ik-word-steeds-nerveuzer~a7fc33c7/)
-  > Campingstoeltjes om 06.00 uur en een lange rij in de regen: op de vroege woensdagochtend is het druk bij Intertoys in Dordrecht. Ongeveer tachtig...
-- [Tweede Kamer: schapen niet goed beschermd, dan geen geld bij aanval door wolven](https://www.ad.nl/binnenland/tweede-kamer-schapen-niet-goed-beschermd-dan-geen-geld-bij-aanval-door-wolven~a173bd60/)
-  > Schapenhouders krijgen in de toekomst minder of zelfs geen vergoeding meer bij een wolvenaanval als blijkt dat zij niet genoeg hebben gedaan om de...
-- [Verstappen gaat unieke uitdaging aan: F1-coureur moet 100 (amateur)karters inhalen op Silverstone](https://www.ad.nl/formule-1/verstappen-gaat-unieke-uitdaging-aan-f1-coureur-moet-100-amateur-karters-inhalen-op-silverstone~acc32d76/)
-  > Max Verstappen hoeft zich deze week niet voor te bereiden op een Formule 1-race, waardoor de coureur voldoende tijd heeft voor een bijzondere...
+- [AZ mag niet klagen met gelijke stand bij rust in Stadium of Light](https://www.ad.nl/voetbal/az-mag-niet-klagen-met-gelijke-stand-bij-rust-in-stadium-of-light~aebc4a9c4/)
+  > Bekerwinnaar AZ begint vanavond aan het Europa League-avontuur in Engeland. De ploeg van Leeroy Echteld gaat op bezoek bij Sunderland. De ploeg van...
+- [Bij Ben Saunders voelden klanten zich altijd op hun gemak: ‘Een tattoo bij hem deed nooit pijn’](https://www.ad.nl/arnhem/bij-ben-saunders-voelden-klanten-zich-altijd-op-hun-gemak-een-tattoo-bij-hem-deed-nooit-pijn~a6c30b21/)
+  > De dinsdag overleden zanger Ben Saunders was niet alleen zanger, maar had ook zijn eigen tattooshop in Arnhem. Twee klanten over hun tattoos bij hem:...
+- [Patty vergeet belangrijke liefdesdatum en Davina moet flinke uithaal oefenen](https://www.ad.nl/show/patty-vergeet-belangrijke-liefdesdatum-en-davina-moet-flinke-uithaal-oefenen~a7bae403/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Wegenbelasting in tien jaar bijna 40 procent duurder](https://www.ad.nl/auto/wegenbelasting-in-tien-jaar-bijna-40-procent-duurder~a5210377/)
+  > Niet alleen de gestegen brandstofprijs maakt autorijden duurder, ook de gestegen wegenbelasting is een grote kostenpost die jarenlang doorwerkt. Toch...
+- [Van zinkende boot tot auditie voor eigen rol: vijf onvergetelijke momenten van De Walle als de Sint](https://www.ad.nl/show/van-zinkende-boot-tot-auditie-voor-eigen-rol-vijf-onvergetelijke-momenten-van-de-walle-als-de-sint~ae8d87e4/)
+  > Jarenlang genoten miljoenen kijkers van Stefan de Walle (61) als Sinterklaas in Het Sinterklaasjournaal. Woensdag nam hij afscheid van zijn rol. De...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Oliebedrijf van Trump-bondgenoot gaat Venezolaans olieveld exploiteren](https://fd.nl/politiek/1612366/oliebedrijf-van-trump-bondgenoot-gaat-venezolaans-olieveld-exploiteren)
+  > Continental Resources tekende woensdag een intentieverklaring voor de ontwikkeling van een olieveld in het Orinoco-gebied.
+- [Federal Reserve trekt Amerikaanse beleidsrente op richting 4%](https://fd.nl/financiele-markten/1612355/federal-reserve-trekt-amerikaanse-beleidsrente-op-richting-4)
+  > Het rentebesluit komt op een gevoelig politiek moment. Over anderhalve maand gaan de Amerikanen naar de stembus voor de tussentijdse verkiezingen,...
+- [Nederland kan deeptech bouwen, maar zal die ook moeten behouden](https://fd.nl/opinie/1612401/nederland-kan-deeptech-bouwen-maar-zal-die-ook-moeten-behouden)
+  > Honderden miljoenen voor Nederlandse chipbedrijven is hoopgevend, maar de echte uitdaging begint nu pas.
 - [Suurhoffbrug (A15) richting Maasvlakte deels dicht door haarscheuren](https://fd.nl/samenleving/1612361/suurhoffbrug-a15-richting-maasvlakte-deels-dicht-door-haarscheuren)
   > Verkeer moet tijdelijk via de vluchtstrook rijden en wordt op korte termijn omgeleid via de andere zijde van de brug.
 - [Frasers zet Hugo Boss verder onder druk: topman wordt voorzitter van raad van commissarissen](https://fd.nl/bedrijfsleven/1612358/frasers-zet-hugo-boss-verder-onder-druk-topman-wordt-voorzitter-van-raad-van-commissarissen)
   > De vorige voorzitter stapte eerder deze week onder druk van Frasers op.
-- [‘SK Hynix wil in Amerikaanse fabriek van Intel chips gaan produceren’](https://fd.nl/bedrijfsleven/1612359/sk-hynix-wil-in-amerikaanse-fabriek-van-intel-chips-gaan-produceren)
-  > De Zuid-Koreaanse chipmaker zegt in een verklaring dat er nog geen definitieve plannen zijn gemaakt ten aanzien van chipproductie in de VS.
-- [Tekort voor onderhoud aan gemalen en dijken loopt verder op naar €12 mrd](https://fd.nl/politiek/1612404/tekort-voor-onderhoud-aan-gemalen-en-dijken-loopt-verder-op-naar-12-mrd)
-  > Het Deltafonds heeft veel te weinig geld om tot 2050 alles te doen wat nodig is om Nederland veilig te houden en te voorzien van zoetwater.
-- [‘Supernerveuze’ Democraten sidderen voor progressieve Senaatskandidaat Abdul El-Sayed](https://fd.nl/politiek/1611804/supernerveuze-democraten-sidderen-voor-progressieve-senaatskandidaat-abdul-el-sayed)
-  > Winst in de staat Michigan is voor de Democraten cruciaal, willen ze de meerderheid in de Senaat heroveren. De vrees is dat de uitgesproken Abdul...
 
 ### Meest gelezen
 
