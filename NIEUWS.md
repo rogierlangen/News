@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-09-2026 om 00:09*
+*Laatst bijgewerkt: 16-09-2026 om 05:46*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Wekdienst 16/9: Algemene Beschouwingen • Rechtszaak explosie Osdorp](https://nos.nl/l/2631193)
+  > Goedemorgen! In politiek Den Haag beginnen de Algemene Beschouwingen en in Amsterdam is een eerste zitting over de explosie in een kelderbox onder...
+- [Na bewogen Prinsjesdag is de vraag of kabinet en Kamer elkaar eindelijk weten te vinden](https://nos.nl/l/2631192)
+  > Na een bewogen Prinsjesdag met brandende hooibalen langs de snelweg, besmeuring van de route van de Glazen Koets en grootschalige sabotageacties op...
+- [Aangetroffen lichaam in recreatieplas bij Arnhem is van zanger Ben Saunders](https://nos.nl/l/2631188)
+  > De familie van Ben Saunders heeft bevestigd dat de zanger is overleden. Bij een recreatieplas ten zuiden van Arnhem werd gisteren het lichaam van een...
+- [Twee Iraanse boten vernietigd na poging Amerikaans vaartuig in beslag te nemen](https://nos.nl/l/2631187)
+  > Het Amerikaanse leger heeft twee Iraanse boten vernietigd die probeerden een onbemand vaartuig van de Amerikaanse marine in beslag te nemen. Dat...
 - [Zevende dode vrouw gevonden bij Johannesburg, politie waarschuwt vrouwen](https://nos.nl/l/2631186)
-  > De Zuid-Afrikaanse politie roept vrouwen op extra voorzichtig te zijn nadat vandaag in het noordoosten van Johannesburg opnieuw een dode vrouw is...
-- [Na exit Macklemore zit Ed Sheeran nu ook zonder band en supportacts](https://nos.nl/l/2631184)
-  > Ed Sheerans begeleidingsband en drie acts die in zijn voorprogramma zouden spelen, hebben zich teruggetrokken. Ze steunen daarmee de Amerikaanse...
-- [Branden in de berm en tientallen sabotageacties op het spoor: een overzicht van de dag](https://nos.nl/l/2631176)
-  > Het was een onrustige Prinsjesdag op de weg en op het spoor: langs meerdere snelwegen staken boerenactivisten onder meer hooibalen in brand, en op...
-- [Rechter blokkeert naam Trump op Kennedy Center weer, gebouw per direct dicht](https://nos.nl/l/2631169)
-  > Een federale rechtbank in Washington D.C. heeft opnieuw verboden om de naam van president Trump op de gevel van het Kennedy Center te zetten of het...
-- [Spoorsaboteurs kunnen hoge straffen tegemoetzien: 'Ze namen alle risico's voor lief'](https://nos.nl/l/2631159)
-  > Er zijn nog geen verdachten opgepakt, maar aanwijzingen dat er protesterende boeren achter de landelijke sabotageacties op het spoor zitten zijn er...
+  > De Zuid-Afrikaanse politie roept vrouwen op extra voorzichtig te zijn, nadat vandaag opnieuw in het noordoosten van Johannesburg een dode vrouw is...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Finneas en andere artiesten stappen uit tour Ed Sheeran uit solidariteit met Macklemore](https://www.ad.nl/show/finneas-en-andere-artiesten-stappen-uit-tour-ed-sheeran-uit-solidariteit-met-macklemore~a9b56175/)
-  > Finneas en meerdere andere artiesten hebben zich teruggetrokken als voorprogramma van de tournee van Ed Sheeran. Ze doen dat uit solidariteit met...
-- [Voetbalpodcast | ‘Doelpuntenregen laat zien dat Nederlandse topclubs eindelijk weer sterk zijn’](https://www.ad.nl/voetbal/voetbalpodcast-doelpuntenregen-laat-zien-dat-nederlandse-topclubs-eindelijk-weer-sterk-zijn~a42af5cd9/)
-  > Ajax won met 5-1 van Willem II in de eredivisie. Wederom is een van de titelkandidaten flink aan het scoren. Na zes duels hebben PSV, Feyenoord, AZ...
-- [Real Madrid voorkomt in extra tijd blamage tegen hekkensluiter, Denzel Dumfries krijgt paar minuten](https://www.ad.nl/voetbal/real-madrid-voorkomt-in-extra-tijd-blamage-tegen-hekkensluiter-denzel-dumfries-krijgt-paar-minuten~a4513374/)
-  > Real Madrid heeft met veel moeite gewonnen van Elche in La Liga. Op bezoek bij het laag geklasseerde Elche werd een ruime voorsprong uit handen...
-- [Karremans doet aangifte tegen brandstichters langs snelwegen: ‘Ik ben echt pislink op deze mensen’](https://www.ad.nl/binnenland/karremans-doet-aangifte-tegen-brandstichters-langs-snelwegen-ik-ben-echt-pislink-op-deze-mensen~ac6bb95d/)
-  > Minister Vincent Karremans van Infrastructuur en Waterstaat laat aangifte doen tegen de personen die dinsdag brand hebben gesticht langs de...
-- [Alarmlampje knipperde 44 keer, maar hijsen ging door tot doodsmak van bouwvakker](https://www.ad.nl/binnenland/alarmlampje-knipperde-44-keer-maar-hijsen-ging-door-tot-doodsmak-van-bouwvakker~abc3d2a7/)
-  > Kraanmachinist Paul B. geloofde het waarschuwingslampje niet, dat in korte tijd 44 keer knipperde. Te harde wind? Daarvan was vanuit zijn cabine op...
+- [‘Neem hun paspoort af’: Oscar-winnende Israëlische filmmakers verketterd nadat Gaza-docu prijs wint](https://www.ad.nl/show/neem-hun-paspoort-af-oscar-winnende-israelische-filmmakers-verketterd-nadat-gaza-docu-prijs-wint~ad9330d8/)
+  > Bij het Filmfestival in Venetië kreeg de Israëlische film Naza een bijna halfuur durende staande ovatie. In de bekroonde docu geven klokkenluiders...
+- [Kasper Dolberg stapt na weken van twijfel uit de etalage bij Ajax: ‘Ik voel me beter in dit team dan vorig jaar’](https://www.ad.nl/voetbal/kasper-dolberg-stapt-na-weken-van-twijfel-uit-de-etalage-bij-ajax-ik-voel-me-beter-in-dit-team-dan-vorig-jaar~ad3af42a/)
+  > Hij leek door de komst van twee spitsen wel dood en begraven bij Ajax. Maar tegen Willem II mocht hij plots in de basis beginnen en gaf Kasper...
+- [Drie doden nadat NBC-nieuwshelikopter neerstort in Los Angeles](https://www.ad.nl/buitenland/drie-doden-nadat-nbc-nieuwshelikopter-neerstort-in-los-angeles~a7d3d20e/)
+  > Een nieuwshelikopter van de Amerikaanse zender NBC is dinsdagavond neergestort in Los Angeles. Drie inzittenden kwamen om het leven, zo meldden de...
+- [Fresia en 99 anderen op Silverstone tegen Max Verstappen: ‘Zet mij in een F1-auto en hij haalt me alsnog in met een kart’](https://www.ad.nl/formule-1/fresia-en-99-anderen-op-silverstone-tegen-max-verstappen-zet-mij-in-een-f1-auto-en-hij-haalt-me-alsnog-in-met-een-kart~afb53740/)
+  > Vandaag is het zover: Max Verstappen neemt het in zijn kart vanaf 17.00 uur op tegen honderd andere karters. Onder wie ook sportjournalist Fresia...
+- [Amerikaans Huis van Afgevaardigden stemt opnieuw voor einde oorlog in Iran](https://www.ad.nl/buitenland/amerikaans-huis-van-afgevaardigden-stemt-opnieuw-voor-einde-oorlog-in-iran~ac528ac3/)
+  > Het Amerikaanse Huis van Afgevaardigden heeft opnieuw een resolutie aangenomen die erop gericht is om de oorlog in Iran te beëindigen. En de IDF...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Spelbreker](https://fd.nl/opinie/1612302/spelbreker)
-  > Columnist Mathijs Bouman voorspelt dat de stijgende rente veel pijn kan gaan doen.
-- [Ai, ai, ai, dit gaat helemaal fout](https://fd.nl/opinie/1612289/ai-ai-ai-dit-gaat-helemaal-fout)
-  > AI maakt ons huiswerk beter, maar onszelf misschien dommer. Terwijl de makers waarschuwen voor superintelligentie, dreigt een veel alledaagser...
-- [Personalia woensdag 16 september](https://fd.nl/bedrijfsleven/1612282/personalia-woensdag-16-september)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Wall Street kleurt rood in aanloop naar rentebesluit](https://fd.nl/financiele-markten/1612331/wall-street-kleurt-rood-in-aanloop-naar-rentebesluit)
-  > Verwacht wordt dat het stelsel van centrale banken de beleidsrente woensdag met 25 basispunten verhoogt.
-- [Premier Jetten: ‘Als we de begroting niet hadden aangepast, waren we toondoof genoemd’](https://fd.nl/politiek/1612162/premier-jetten-als-we-de-begroting-niet-hadden-aangepast-waren-we-toondoof-genoemd)
-  > Het kabinet paste de begroting aan om de oppositie tegemoet te komen. Maar de premier verwacht niet dat de partijen in de Kamer elkaar nu ‘in de...
+- [Brussel wil socialemediaverbod voor kinderen onder 13 jaar](https://fd.nl/politiek/1612332/brussel-wil-socialemediaverbod-voor-kinderen-onder-13-jaar)
+  > De Europese Commissie wil met de EU Kids Act hard optreden tegen techbedrijven die verslavende diensten, zoals social media, videoplatforms en...
+- [Live: Rentes en olieprijs blijven hoog terwijl Fed-besluit nadert](https://fd.nl/financiele-markten/1612333/live-rentes-en-olieprijs-blijven-hoog-terwijl-fed-besluit-nadert)
+  > De Federal Reserve verhoogt vanavond naar verwachting de beleidsrente, voor het eerst in ruim drie jaar tijd. De obligatiemarkt sorteert er alvast op...
+- [Begrijpen kost moeite, nuance kost tijd. Veroordelen is snel, kosteloos en gratis](https://fd.nl/samenleving/1612153/begrijpen-kost-moeite-nuance-kost-tijd-veroordelen-is-snel-kosteloos-en-gratis)
+  > De hedendaagse goede burger toont vooral moed door zich luidkeels te distantiëren van de foute mensen. Maar mag moed niet wat meer inspanning kosten?
+- [Bram Tankink: ‘Impactinvesteren is hardcore downhill mountainbiken’](https://fd.nl/bedrijfsleven/1612118/bram-tankink-impactinvesteren-is-hardcore-downhill-mountainbiken)
+  > Hij is ex-profwielrenner, cultheld en werkt nu voor een vermogensbeheerder. Wegkapitein Bram Tankink, alias ‘De Tank’, ontliep het zwarte gat waar...
+- [Werkenden krijgen ‘het bonnetje’ van de miljoenennota](https://fd.nl/economie/1612303/werkenden-krijgen-het-bonnetje-van-de-miljoenennota)
+  > Vandaag in Dagkoers: extra veel aandacht voor Prinsjesdag en de miljoenennota. Wat zijn de economische gevolgen van de kabinetsplannen en wat doen ze...
 
 ### Meest gelezen
 
