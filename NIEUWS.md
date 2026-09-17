@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-09-2026 om 07:23*
+*Laatst bijgewerkt: 17-09-2026 om 13:12*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Toch bezwaar bij 'geen bezwaar': nieuwe wet levert weinig extra orgaandonaties op](https://nos.nl/l/2631344)
-  > De verandering van de donorwet heeft tot weinig extra orgaandonaties geleid. Dat meldt de Volkskrant op basis van onderzoek van de Nederlandse...
-- [AI-bazen in gesprek met koning Charles over AI en 'welzijn van mensheid'](https://nos.nl/l/2631342)
-  > De Britse koning Charles ontvangt vandaag AI-techbazen op zijn landgoed in Schotland, om te praten over hoe kunstmatige intelligentie kan worden...
-- [Nieuwe grote krater op de maan ontdekt: 'Gebeurt misschien eens in de eeuw'](https://nos.nl/l/2631338)
-  > De NASA heeft op de maan een nieuwe krater gevonden van 221 meter wijd en 41 meter diep. Volgens de ruimtevaartorganisatie ontstaat zo'n krater...
-- [VS dreigt met sancties als EU en Canada nauwer gaan samenwerken](https://nos.nl/l/2631337)
-  > De VS is bereid om handel met de Europese Unie stop te zetten, als de EU en Canada nauwer gaan samenwerken. Dat zegt de Amerikaanse president Trump.
-...
-- [Palestijnse leider Abbas krijgt weer geen Amerikaans visum voor VN-top](https://nos.nl/l/2631333)
-  > De regering-Trump staat voor het tweede jaar op rij niet toe dat de Palestijnse leider Mahmoud Abbas de Algemene Vergadering van de VN bezoekt. Die...
+- [Faillissementen en reorganisaties: Duitse groene-energiebedrijven kwakkelen](https://nos.nl/l/2631389)
+  > Duitse wind- en zonne-energiebedrijven staan er niet goed voor. Na jaren van snelle groei, komen steeds meer bedrijven die zich bezighouden met...
+- [Canadese premier juicht hechtere band met EU toe in Europees Parlement](https://nos.nl/l/2631386)
+  > Canada juicht het idee toe om het eerste buitengewoon lid van de Europese Unie te worden. Dat zei premier Carney in het Europees Parlement. Hij zei...
+- [Duitsland past grenscontroles aan, tot opluchting van burgemeesters](https://nos.nl/l/2631382)
+  > Duitsland gaat op verschillende snelwegen geen grenscontroles meer uitvoeren op een vaste plek. De controles worden anders georganiseerd om overlast...
+- [Vierde dode na besmetting westnijlvirus, patiënt besmet door bloedtransfusie](https://nos.nl/l/2631379)
+  > Het Rijksinstituut voor Volksgezondheid en Milieu (RIVM) meldt dat er in Nederland een vierde dode is gevallen na besmetting met het westnijlvirus....
+- [Tonnen wegende transformatoren dwars door Spijkenisse vervoerd: 'Mijlpaal'](https://nos.nl/l/2631373)
+  > Drie grote transformatoren met ieder een gewicht van zo'n 350 ton zijn vannacht van Spijkenisse naar Simonshaven gebracht. Wegen op de route werden...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Pfas-vervuiling onder Chemours officieel ‘spoedeisend’: miljoenen kuub grondwater verontreinigd](https://www.ad.nl/binnenland/pfas-vervuiling-onder-chemours-officieel-spoedeisend-miljoenen-kuub-grondwater-verontreinigd~a639c9ed/)
-  > Onder en rond het terrein van chemiereus Chemours in Dordrecht is ongeveer 2,7 miljoen kubieke meter grondwater vervuild met pfas. Genoeg om ruim...
-- [NEC’er Perr Schuurs is na zwaarste periode uit zijn leven voor even terug in Turijn: ‘Ik heb een thuisgevoel’](https://www.ad.nl/voetbal/necer-perr-schuurs-is-na-zwaarste-periode-uit-zijn-leven-voor-even-terug-in-turijn-ik-heb-een-thuisgevoel~ae885fb9/)
-  > Perr Schuurs is voor even terug in Turijn. In de stad waar de verdediger de zwaarste periode uit zijn leven kende. Maar dat heeft hij inmiddels een...
-- [Netanyahu dreigt met harde maatregelen tegen regisseurs Gaza-docu: ‘We gaan ze keihard raken’](https://www.ad.nl/buitenland/netanyahu-dreigt-met-harde-maatregelen-tegen-regisseurs-gaza-docu-we-gaan-ze-keihard-raken~ac528ac3/)
-  > De Israëlische premier Benjamin Netanyahu heeft hard uitgehaald naar de regisseurs van de documentaire NAZA. In een video op X herhaalt hij het...
-- [Nieuwe countryzen­der Jolene gaat live: 'Ik voel dat de tijd rijp is'](https://www.ad.nl/show/nieuwe-countryzender-jolene-gaat-live-ik-voel-dat-de-tijd-rijp-is~ad23e59f/)
-  > De naam van het gloednieuwe radiostation Jolene Country Radio was al lang en breed gekozen, maar nu zangeres Dolly Parton is overleden mag de...
-- [FvD-fractievoorzitter Lidewij de Vos bevallen van een dochter](https://www.ad.nl/binnenland/fvd-fractievoorzitter-lidewij-de-vos-bevallen-van-een-dochter~affbd683/)
-  > FvD-fractievoorzitter Lidewij de Vos is bevallen van een dochter. Via Facebook maakt ze bekend dat het goed gaat met haar en haar pasgeboren kind.
+- [Hoe Nederland naar plek 46 zakt op ranglijst gendergelijkheid: ‘We verspillen heel veel talent’](https://www.ad.nl/economie/hoe-nederland-naar-plek-46-zakt-op-ranglijst-gendergelijkheid-we-verspillen-heel-veel-talent~a101e5ce/)
+  > In de nieuwste Global Gender Gap Index van het World Economic Forum keldert Nederland opnieuw. Ooit stonden we steevast in de Europese voorhoede, nu...
+- [Drie militairen gewond na parachutesprong in België](https://www.ad.nl/buitenland/drie-militairen-gewond-na-parachutesprong-in-belgie~a688f2de/)
+  > Drie militairen van de Luchtmobiele Brigade zijn donderdag in België gewond geraakt toen ze na een parachutesprong in een boom terechtkwamen.
+- [Masseur uit Leiden (41) aangehouden op verdenking van verkrachting van twee vrouwen](https://www.ad.nl/leiden/masseur-uit-leiden-41-aangehouden-op-verdenking-van-verkrachting-van-twee-vrouwen~a9ba1316/)
+  > Een 41-jarige man uit Leiden is aangehouden op verdenking van verkrachting van twee vrouwen. De rechtbank heeft zijn voorarrest met 90 dagen verlengd.
+- [Van Lex Schoenmaker tot Dennis Bergkamp: deze voetballers kregen hun eigen standbeeld, en niet elk beeld is raak](https://www.ad.nl/voetbal/van-lex-schoenmaker-tot-dennis-bergkamp-deze-voetballers-kregen-hun-eigen-standbeeld-en-niet-elk-beeld-is-raak~a48c5210/)
+  > Donderdagmiddag (17.30 uur) wordt een standbeeld van ADO Den Haag-icoon Lex Schoenmaker onthuld. Hij wordt op het Haags Kwartier, voor het stadion...
+- [René Froger heeft auto-immuunziekte: ‘Merk dat ik niet kan brengen wat mensen van mij mogen verwachten’](https://www.ad.nl/show/rene-froger-heeft-auto-immuunziekte-merk-dat-ik-niet-kan-brengen-wat-mensen-van-mij-mogen-verwachten~acfed3c8/)
+  > René Froger is gediagnosticeerd met myositis, een auto-immuunziekte waarbij het afweersysteem de spieren aanvalt. Dat maakte de 65-jarige zanger...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Trump noemt nieuwe EU-relatie met Canada ‘lachwekkend’ en dreigt met heffingen](https://fd.nl/politiek/1612415/trump-noemt-nieuwe-eu-relatie-met-canada-lachwekkend-en-dreigt-met-heffingen)
-  > Trumps dreigement volgt op het EU-plan om Canada een associatielidmaatschap aan te bieden.
-- [VS willen hardere sancties aan Rusland opleggen](https://fd.nl/politiek/1612414/vs-willen-hardere-sancties-aan-rusland-opleggen)
-  > Het Amerikaanse Congres is het eens over sancties tegen Rusland en zijn handelspartners. Dat kan ook de EU raken.
-- [OpenAI deelt zes nieuwe ‘zorgwekkende’ veiligheidsincidenten](https://fd.nl/bedrijfsleven/1612412/openai-deelt-zes-nieuwe-zorgwekkende-veiligheidsincidenten)
-  > Het bedrijf wil voortaan transparanter zijn over wangedrag van zijn AI-modellen.
-- [Kendrion mikt in nieuwe strategie op verdere stijging van winstgevendheid](https://fd.nl/bedrijfsleven/1612508/kendrion-mikt-in-nieuwe-strategie-op-verdere-stijging-van-winstgevendheid)
-  > De ebitda-marge moet bij het industriële maakbedrijf in de periode 2027-2030 uitkomen op 17% tot 20%. In de net afgeronde strategie lag dat op 15%...
-- [In de Braziliaanse wildernis, waar tot slaaf gemaakten heen vluchtten](https://fd.nl/samenleving/1612129/in-de-braziliaanse-wildernis-waar-tot-slaaf-gemaakten-heen-vluchtten)
-  > Ooit bood het natuurgebied Chapada dos Veadeiros onderdak aan gevluchte slaven, nu trekt het natuurliefhebbers en reizigers die er spirituele...
+- [Jong geleerd, rijk gedaan: de basis ligt niet in sparen, maar in beleggen](https://fd.nl/opinie/1611961/jong-geleerd-rijk-gedaan-de-basis-ligt-niet-in-sparen-maar-in-beleggen)
+  > Opvoeding, crisiservaringen en nulsomdenken voeden het hardnekkige slechte imago van beleggen. Terwijl beleggen juist kan bijdragen aan financiële...
+- [KLM schetst vier scenario’s en bereidt het personeel voor op drastische veranderingen](https://fd.nl/bedrijfsleven/1612432/klm-schetst-vier-scenarios-en-bereidt-het-personeel-voor-op-drastische-veranderingen)
+  > De luchtvaartmaatschappij heeft intern vier scenario’s gepresenteerd met als doel om de gesprekken over ‘toekomstige beslissingen op gang te...
+- [Mannen zijn de laatste jaren minder uren gaan werken](https://fd.nl/economie/1612426/mannen-zijn-de-laatste-jaren-minder-uren-gaan-werken)
+  > De gemiddelde Nederlandse werkweek is iets korter geworden. Dat komt vooral op het conto van mannen. Vrouwen zijn juist meer uren per week aan de...
+- [Nexperia gaat deel chipproductie onderbrengen bij Tata in India](https://fd.nl/bedrijfsleven/1612521/nexperia-gaat-deel-chipproductie-onderbrengen-bij-tata-in-india)
+  > De Nijmeegse chipmaker gaat strategisch samenwerken met Tata Electronics op het gebied van chipproductie, assemblage en technologische ontwikkeling.
+- [Britse inflatie loopt op, maar Bank of England morrelt nog niet aan de rente](https://fd.nl/financiele-markten/1612427/britse-inflatie-loopt-op-maar-bank-of-england-morrelt-nog-niet-aan-de-rente)
+  > Anders dan de Europese en de Amerikaanse centrale banken, heeft de Britse centrale bank de rente donderdag onveranderd gehouden.
 
 ### Meest gelezen
 
