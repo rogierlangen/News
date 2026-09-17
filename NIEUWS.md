@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-09-2026 om 01:11*
+*Laatst bijgewerkt: 17-09-2026 om 07:23*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Cocktail van oorzaken werkte verwoestende vloedgolf in Nepal in de hand](https://nos.nl/l/2631324)
-  > De rampzalige aardverschuiving en vloedgolf in Nepal had niet één, maar een cocktail van oorzaken. Mogelijk was de bergwand instabiel door een...
-- [Nederland zakt verder weg op wereldwijde ranglijst voor gendergelijkheid](https://nos.nl/l/2631322)
-  > Nederland is opnieuw gedaald op de wereldwijde ranglijst voor gelijkheid tussen mannen en vrouwen. Vorig jaar stonden we nog op plek 43, dit jaar op...
-- [Ook na eerste debatdag blijft de vraag: hoe krijgt kabinet een meerderheid?](https://nos.nl/l/2631314)
-  > Ook na een lange dag debatteren is nog onduidelijk hoe het minderheidskabinet meerderheden gaat vinden voor de Prinsjesdagplannen. Komt er een...
-- [Britse koning verwerpt aantijging broer Diana: 'Verstand vertroebeld'](https://nos.nl/l/2631313)
-  > De Britse koning Charles heeft gereageerd op een nog uit te komen boek van Charles Spencer. Dat is de broer van koning Charles' eerste vrouw, prinses...
-- [Centrumlinkse oppositie in Zweden nipt groter dan rechts blok](https://nos.nl/l/2631311)
-  > De Zweedse publieke omroep SVT heeft de centrumlinkse oppositiepartijen uitgeroepen tot winnaar van de verkiezingen. Daarmee komt een einde aan een...
+- [Toch bezwaar bij 'geen bezwaar': nieuwe wet levert weinig extra orgaandonaties op](https://nos.nl/l/2631344)
+  > De verandering van de donorwet heeft tot weinig extra orgaandonaties geleid. Dat meldt de Volkskrant op basis van onderzoek van de Nederlandse...
+- [AI-bazen in gesprek met koning Charles over AI en 'welzijn van mensheid'](https://nos.nl/l/2631342)
+  > De Britse koning Charles ontvangt vandaag AI-techbazen op zijn landgoed in Schotland, om te praten over hoe kunstmatige intelligentie kan worden...
+- [Nieuwe grote krater op de maan ontdekt: 'Gebeurt misschien eens in de eeuw'](https://nos.nl/l/2631338)
+  > De NASA heeft op de maan een nieuwe krater gevonden van 221 meter wijd en 41 meter diep. Volgens de ruimtevaartorganisatie ontstaat zo'n krater...
+- [VS dreigt met sancties als EU en Canada nauwer gaan samenwerken](https://nos.nl/l/2631337)
+  > De VS is bereid om handel met de Europese Unie stop te zetten, als de EU en Canada nauwer gaan samenwerken. Dat zegt de Amerikaanse president Trump.
+...
+- [Palestijnse leider Abbas krijgt weer geen Amerikaans visum voor VN-top](https://nos.nl/l/2631333)
+  > De regering-Trump staat voor het tweede jaar op rij niet toe dat de Palestijnse leider Mahmoud Abbas de Algemene Vergadering van de VN bezoekt. Die...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [LIVE VS | Trump houdt vertrouwen in Fed-voorzitter ondanks kritiek op renteverhoging](https://www.ad.nl/buitenland/live-vs-trump-houdt-vertrouwen-in-fed-voorzitter-ondanks-kritiek-op-renteverhoging~ae67dd9c/)
-  > De inflatie in de Verenigde Staten is al veel te lang te hoog en daarom heeft de Federal Reserve besloten de rente te verhogen. Dat zei voorzitter...
-- [Vliegveld Valencia gesloten na zware regenval, overstromingsgevaar ligt op de loer](https://www.ad.nl/buitenland/vliegveld-valencia-gesloten-na-zware-regenval-overstromingsgevaar-ligt-op-de-loer~a57ecbb7/)
-  > Inwoners van de Spaanse provincie Valencia hebben woensdagavond even na 22.00 uur een bericht ontvangen waarin zij worden gewaarschuwd voor...
-- [Vaticaanstad stuurt voor het eerst in 97 jaar een film in voor de Oscars](https://www.ad.nl/show/vaticaanstad-stuurt-voor-het-eerst-in-97-jaar-een-film-in-voor-de-oscars~a63a0f8f/)
-  > Vaticaanstad is van plan voor het eerst een film in te sturen voor de Academy Awards, meldt Variety. Volgens het vakblad zou daarmee voor het eerst...
-- [LEES TERUG | Chagrijn druipt van de plinten in belangrijkste debat van het jaar](https://www.ad.nl/politiek/lees-terug-chagrijn-druipt-van-de-plinten-in-belangrijkste-debat-van-het-jaar~a34695a6/)
-  > Er is géén deal met de oppositie, maar wel onenigheid tussen coalitiepartijen. En toch is premier Rob Jetten optimistisch over de kans van slagen van...
-- [Twee vrouwen eisen schadevergoeding van nalatenschap Epstein](https://www.ad.nl/buitenland/twee-vrouwen-eisen-schadevergoeding-van-nalatenschap-epstein~ae07174e/)
-  > Twee vrouwen die als minderjarig meisje te zien waren in pornografisch materiaal dat werd aangetroffen bij Jeffrey Epstein, hebben een rechtszaak...
+- [Pfas-vervuiling onder Chemours officieel ‘spoedeisend’: miljoenen kuub grondwater verontreinigd](https://www.ad.nl/binnenland/pfas-vervuiling-onder-chemours-officieel-spoedeisend-miljoenen-kuub-grondwater-verontreinigd~a639c9ed/)
+  > Onder en rond het terrein van chemiereus Chemours in Dordrecht is ongeveer 2,7 miljoen kubieke meter grondwater vervuild met pfas. Genoeg om ruim...
+- [NEC’er Perr Schuurs is na zwaarste periode uit zijn leven voor even terug in Turijn: ‘Ik heb een thuisgevoel’](https://www.ad.nl/voetbal/necer-perr-schuurs-is-na-zwaarste-periode-uit-zijn-leven-voor-even-terug-in-turijn-ik-heb-een-thuisgevoel~ae885fb9/)
+  > Perr Schuurs is voor even terug in Turijn. In de stad waar de verdediger de zwaarste periode uit zijn leven kende. Maar dat heeft hij inmiddels een...
+- [Netanyahu dreigt met harde maatregelen tegen regisseurs Gaza-docu: ‘We gaan ze keihard raken’](https://www.ad.nl/buitenland/netanyahu-dreigt-met-harde-maatregelen-tegen-regisseurs-gaza-docu-we-gaan-ze-keihard-raken~ac528ac3/)
+  > De Israëlische premier Benjamin Netanyahu heeft hard uitgehaald naar de regisseurs van de documentaire NAZA. In een video op X herhaalt hij het...
+- [Nieuwe countryzen­der Jolene gaat live: 'Ik voel dat de tijd rijp is'](https://www.ad.nl/show/nieuwe-countryzender-jolene-gaat-live-ik-voel-dat-de-tijd-rijp-is~ad23e59f/)
+  > De naam van het gloednieuwe radiostation Jolene Country Radio was al lang en breed gekozen, maar nu zangeres Dolly Parton is overleden mag de...
+- [FvD-fractievoorzitter Lidewij de Vos bevallen van een dochter](https://www.ad.nl/binnenland/fvd-fractievoorzitter-lidewij-de-vos-bevallen-van-een-dochter~affbd683/)
+  > FvD-fractievoorzitter Lidewij de Vos is bevallen van een dochter. Via Facebook maakt ze bekend dat het goed gaat met haar en haar pasgeboren kind.
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Kleine ondernemers lopen vast in financieringsaanvraag](https://fd.nl/bedrijfsleven/1612396/kleine-ondernemers-lopen-vast-in-financieringsaanvraag)
-  > Veel mkb’ers en zzp’ers raken de weg kwijt in een breed aanbod van financieringsvormen. Ruim een op de drie heeft wel eens afgezien van een...
-- [Onze BFF Canada](https://fd.nl/opinie/1612409/onze-bff-canada)
-  > We delen een oceaan en dezelfde set waarden, dus waarom niet ‘een gezamenlijke toekomst’ met Canada in de EU? Het is vooral symbolisch, denkt...
-- [De accountant is al een eeuw lang een populaire kop van Jut, ziet promovendus Lars in ’t Veld](https://fd.nl/financiele-markten/1612393/de-accountant-is-al-een-eeuw-lang-een-populaire-kop-van-jut-ziet-promovendus-lars-in-t-veld)
-  > Wat verwachten we eigenlijk van accountants? En vragen we niet steeds meer van hen, wat ze eigenlijk niet waar kunnen maken?
-- [Nederland zakt opnieuw op ranglijst emancipatie](https://fd.nl/politiek/1612362/nederland-zakt-opnieuw-op-ranglijst-emancipatie)
-  > Nederland heeft veel moeders die in deeltijd werken, maar amper vaders die minder gaan werken om zorgtaken gelijker te verdelen.
-- [Benepen docenten in het wakkere onderwijs versus de Nederlandse taal](https://fd.nl/opinie/1612290/het-wakkere-onderwijs-versus-de-nederlandse-taal)
-  > Een leescrisis? Ik begrijp de jeugd wel – eerst alleen woordjes mogen turven, en nu zijn allerlei literaire klassiekers ongepast, schrijft columnist...
+- [Trump noemt nieuwe EU-relatie met Canada ‘lachwekkend’ en dreigt met heffingen](https://fd.nl/politiek/1612415/trump-noemt-nieuwe-eu-relatie-met-canada-lachwekkend-en-dreigt-met-heffingen)
+  > Trumps dreigement volgt op het EU-plan om Canada een associatielidmaatschap aan te bieden.
+- [VS willen hardere sancties aan Rusland opleggen](https://fd.nl/politiek/1612414/vs-willen-hardere-sancties-aan-rusland-opleggen)
+  > Het Amerikaanse Congres is het eens over sancties tegen Rusland en zijn handelspartners. Dat kan ook de EU raken.
+- [OpenAI deelt zes nieuwe ‘zorgwekkende’ veiligheidsincidenten](https://fd.nl/bedrijfsleven/1612412/openai-deelt-zes-nieuwe-zorgwekkende-veiligheidsincidenten)
+  > Het bedrijf wil voortaan transparanter zijn over wangedrag van zijn AI-modellen.
+- [Kendrion mikt in nieuwe strategie op verdere stijging van winstgevendheid](https://fd.nl/bedrijfsleven/1612508/kendrion-mikt-in-nieuwe-strategie-op-verdere-stijging-van-winstgevendheid)
+  > De ebitda-marge moet bij het industriële maakbedrijf in de periode 2027-2030 uitkomen op 17% tot 20%. In de net afgeronde strategie lag dat op 15%...
+- [In de Braziliaanse wildernis, waar tot slaaf gemaakten heen vluchtten](https://fd.nl/samenleving/1612129/in-de-braziliaanse-wildernis-waar-tot-slaaf-gemaakten-heen-vluchtten)
+  > Ooit bood het natuurgebied Chapada dos Veadeiros onderdak aan gevluchte slaven, nu trekt het natuurliefhebbers en reizigers die er spirituele...
 
 ### Meest gelezen
 
