@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-09-2026 om 13:12*
+*Laatst bijgewerkt: 17-09-2026 om 18:02*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Faillissementen en reorganisaties: Duitse groene-energiebedrijven kwakkelen](https://nos.nl/l/2631389)
-  > Duitse wind- en zonne-energiebedrijven staan er niet goed voor. Na jaren van snelle groei, komen steeds meer bedrijven die zich bezighouden met...
-- [Canadese premier juicht hechtere band met EU toe in Europees Parlement](https://nos.nl/l/2631386)
-  > Canada juicht het idee toe om het eerste buitengewoon lid van de Europese Unie te worden. Dat zei premier Carney in het Europees Parlement. Hij zei...
-- [Duitsland past grenscontroles aan, tot opluchting van burgemeesters](https://nos.nl/l/2631382)
-  > Duitsland gaat op verschillende snelwegen geen grenscontroles meer uitvoeren op een vaste plek. De controles worden anders georganiseerd om overlast...
-- [Vierde dode na besmetting westnijlvirus, patiënt besmet door bloedtransfusie](https://nos.nl/l/2631379)
-  > Het Rijksinstituut voor Volksgezondheid en Milieu (RIVM) meldt dat er in Nederland een vierde dode is gevallen na besmetting met het westnijlvirus....
-- [Tonnen wegende transformatoren dwars door Spijkenisse vervoerd: 'Mijlpaal'](https://nos.nl/l/2631373)
-  > Drie grote transformatoren met ieder een gewicht van zo'n 350 ton zijn vannacht van Spijkenisse naar Simonshaven gebracht. Wegen op de route werden...
+- [Man zit al urenlang in hoogspanningsmast](https://nos.nl/l/2631428)
+  > Een man is vanmiddag in een hoogspanningsmast in het Limburgse Beek geklommen. Daar zit hij nu al uren. De politie probeert hem naar beneden te...
+- [Nabestaanden van Goeloe doen aangifte van doodslag tegen politie](https://nos.nl/l/2631426)
+  > De familie van de man die zaterdag na zijn aanhouding overleed in Rotterdam heeft aangifte gedaan tegen de politie. Dat zegt advocaat Gerald Roethof...
+- [Taxichauffers beginnen eigen taxi-app uit frustratie over commissie aan Uber](https://nos.nl/l/2631424)
+  > Amsterdamse taxichauffeurs zijn ontevreden over de volgens hen te hoge en wisselende commissies van bedrijven als Uber en Bolt. Daarom begonnen ze...
+- [Sanquin gaat weer op westnijlvirus testen na besmetting door gedoneerd bloed](https://nos.nl/l/2631420)
+  > Bloedbank Sanquin test vanaf morgen in negen provincies alle bloeddonaties op besmetting met het westnijlvirus. De aanleiding is dat iemand in...
+- [Europa wil kinderen pas vanaf 13 jaar op sociale media, met veel controle door ouders](https://nos.nl/l/2631418)
+  > De Europese Commissie presenteerde vandaag een plan voor een wet waardoor kinderen maar beperkt toegang krijgen tot sociale media. Daarmee wil...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hoe Nederland naar plek 46 zakt op ranglijst gendergelijkheid: ‘We verspillen heel veel talent’](https://www.ad.nl/economie/hoe-nederland-naar-plek-46-zakt-op-ranglijst-gendergelijkheid-we-verspillen-heel-veel-talent~a101e5ce/)
-  > In de nieuwste Global Gender Gap Index van het World Economic Forum keldert Nederland opnieuw. Ooit stonden we steevast in de Europese voorhoede, nu...
-- [Drie militairen gewond na parachutesprong in België](https://www.ad.nl/buitenland/drie-militairen-gewond-na-parachutesprong-in-belgie~a688f2de/)
-  > Drie militairen van de Luchtmobiele Brigade zijn donderdag in België gewond geraakt toen ze na een parachutesprong in een boom terechtkwamen.
-- [Masseur uit Leiden (41) aangehouden op verdenking van verkrachting van twee vrouwen](https://www.ad.nl/leiden/masseur-uit-leiden-41-aangehouden-op-verdenking-van-verkrachting-van-twee-vrouwen~a9ba1316/)
-  > Een 41-jarige man uit Leiden is aangehouden op verdenking van verkrachting van twee vrouwen. De rechtbank heeft zijn voorarrest met 90 dagen verlengd.
-- [Van Lex Schoenmaker tot Dennis Bergkamp: deze voetballers kregen hun eigen standbeeld, en niet elk beeld is raak](https://www.ad.nl/voetbal/van-lex-schoenmaker-tot-dennis-bergkamp-deze-voetballers-kregen-hun-eigen-standbeeld-en-niet-elk-beeld-is-raak~a48c5210/)
-  > Donderdagmiddag (17.30 uur) wordt een standbeeld van ADO Den Haag-icoon Lex Schoenmaker onthuld. Hij wordt op het Haags Kwartier, voor het stadion...
-- [René Froger heeft auto-immuunziekte: ‘Merk dat ik niet kan brengen wat mensen van mij mogen verwachten’](https://www.ad.nl/show/rene-froger-heeft-auto-immuunziekte-merk-dat-ik-niet-kan-brengen-wat-mensen-van-mij-mogen-verwachten~acfed3c8/)
-  > René Froger is gediagnosticeerd met myositis, een auto-immuunziekte waarbij het afweersysteem de spieren aanvalt. Dat maakte de 65-jarige zanger...
+- [NEC met ervaren voorhoede in Turijn, Teun Koopmeiners op de bank bij Juventus](https://www.ad.nl/voetbal/nec-met-ervaren-voorhoede-in-turijn-teun-koopmeiners-op-de-bank-bij-juventus~a023637a/)
+  > Een mooie, maar loodzware start van het Europa League-avontuur voor NEC: de Nijmegenaren gaan vanavond op bezoek bij de Italiaanse grootmacht...
+- [Voormalig Twente-speler zet OFI Kreta op voorsprong tegen Hoffenheim](https://www.ad.nl/voetbal/voormalig-twente-speler-zet-ofi-kreta-op-voorsprong-tegen-hoffenheim~a2e1e17f/)
+  > Negen wedstrijden vanavond in de Europa League. Oranje-internationals Quinten Timber (Crystal Palace) en Justin Kluivert (Bournemouth) komen in...
+- [Fans in Amsterdam op de banken: Dirk van Duijvenbode wint eerste partij](https://www.ad.nl/darts/fans-in-amsterdam-op-de-banken-dirk-van-duijvenbode-wint-eerste-partij~ae1a5849/)
+  > De beste darters ter wereld zijn dit weekend in Amsterdam. Van donderdag tot en met zondag vindt in AFAS Live de World Series of Darts Finals plaats....
+- [Het was een prima deal, maar nu de saldering stopt gaat woninghuurder geld toeleggen op zonnepanelen](https://www.ad.nl/economie/het-was-een-prima-deal-maar-nu-de-saldering-stopt-gaat-woninghuurder-geld-toeleggen-op-zonnepanelen~a27fca04/)
+  > Tienduizenden huurders van woningen met zonnepanelen gaan over drie maanden netto betalen voor hun zonnestroom. Door het afschaffen van de...
+- [Opmars Van de Zandschulp resultaat van wat slimme investeringen: ‘Eindelijk viel het mijn kant op’](https://www.ad.nl/tennis/opmars-van-de-zandschulp-resultaat-van-wat-slimme-investeringen-eindelijk-viel-het-mijn-kant-op~ac48aef6/)
+  > Twee jaar nadat hij overwoog om te stoppen, stond tennisser Botic van de Zandschulp in New York ineens weer tussen de groten der aarde. Dit weekend...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Jong geleerd, rijk gedaan: de basis ligt niet in sparen, maar in beleggen](https://fd.nl/opinie/1611961/jong-geleerd-rijk-gedaan-de-basis-ligt-niet-in-sparen-maar-in-beleggen)
-  > Opvoeding, crisiservaringen en nulsomdenken voeden het hardnekkige slechte imago van beleggen. Terwijl beleggen juist kan bijdragen aan financiële...
-- [KLM schetst vier scenario’s en bereidt het personeel voor op drastische veranderingen](https://fd.nl/bedrijfsleven/1612432/klm-schetst-vier-scenarios-en-bereidt-het-personeel-voor-op-drastische-veranderingen)
-  > De luchtvaartmaatschappij heeft intern vier scenario’s gepresenteerd met als doel om de gesprekken over ‘toekomstige beslissingen op gang te...
-- [Mannen zijn de laatste jaren minder uren gaan werken](https://fd.nl/economie/1612426/mannen-zijn-de-laatste-jaren-minder-uren-gaan-werken)
-  > De gemiddelde Nederlandse werkweek is iets korter geworden. Dat komt vooral op het conto van mannen. Vrouwen zijn juist meer uren per week aan de...
-- [Nexperia gaat deel chipproductie onderbrengen bij Tata in India](https://fd.nl/bedrijfsleven/1612521/nexperia-gaat-deel-chipproductie-onderbrengen-bij-tata-in-india)
-  > De Nijmeegse chipmaker gaat strategisch samenwerken met Tata Electronics op het gebied van chipproductie, assemblage en technologische ontwikkeling.
-- [Britse inflatie loopt op, maar Bank of England morrelt nog niet aan de rente](https://fd.nl/financiele-markten/1612427/britse-inflatie-loopt-op-maar-bank-of-england-morrelt-nog-niet-aan-de-rente)
-  > Anders dan de Europese en de Amerikaanse centrale banken, heeft de Britse centrale bank de rente donderdag onveranderd gehouden.
+- [Levensgevaarlijke protesten zijn politieke doodsteek voor redelijke boer](https://fd.nl/opinie/1612517/levensgevaarlijke-protesten-zijn-politieke-doodsteek-voor-redelijke-boer)
+  > Boven het hoofd van agrariërs die wel om tafel zitten met de politiek, hangt de donkere wolk van hooibalenrook en de suggestie van spoorsabotage.
+- [India trekt in slechts enkele maanden $12 mrd aan chipinvesteringen naar nieuw fonds](https://fd.nl/economie/1612443/india-trekt-in-slechts-enkele-maanden-12-mrd-aan-chipinvesteringen-naar-nieuw-fonds)
+  > De interesse volgt op de aankondiging in juli van een nieuw halfgeleiderfonds van $13,4 mrd.
+- [Stijgende rente raakt Trump waar het pijn doet](https://fd.nl/economie/1612538/stijgende-rente-raakt-trump-waar-het-pijn-doet)
+  > Trump is niet blij met de hogere rente, en probeert de onafhankelijkheid van Kevin Warsh te ondergraven.
+- [Tata Sons gaat naar de beurs, Tata Trusts verwerpt herbenoeming topman Chandra](https://fd.nl/bedrijfsleven/1612531/tata-sons-gaat-naar-de-beurs-tata-trusts-verwerpt-herbenoeming-topman-chandra)
+  > De beursgang frustreert grootaandeelhouder Tata Trusts, die de verlenging van het voorzitterschap ‘illegaal’ noemt.
+- [Frankrijk wil €54 mrd bezuinigen om tekort onder 6,5% te houden](https://fd.nl/politiek/1612537/frankrijk-wil-54-mrd-bezuinigen-om-tekort-onder-6-5-te-houden)
+  > De regering wil met het pakket onder meer de groei van sociale uitgaven, uitgaven van lokale overheden en de oplopende rentelasten beteugelen.
 
 ### Meest gelezen
 
