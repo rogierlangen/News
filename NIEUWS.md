@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-09-2026 om 21:30*
+*Laatst bijgewerkt: 18-09-2026 om 23:59*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Trump: akkoord over uitbreiding Amerikaanse militaire aanwezigheid in Groenland](https://nos.nl/l/2631589)
+  > President Donald Trump zegt dat hij een akkoord heeft gesloten met Denemarken en Groenland over het versterken van de Amerikaanse militaire...
 - [Twee arrestaties om mensensmokkel en uitbuiting bij Indiase restaurants](https://nos.nl/l/2631581)
   > De Opsporingsdienst van de Nederlandse Arbeidsinspectie heeft vandaag twee eigenaren van een aantal Indiase restaurants aangehouden op verdenking van...
 - [Recordprijzen aan de pomp in heel Europa: Duitse regering grijpt in](https://nos.nl/l/2631580)
@@ -16,8 +18,6 @@
   > De Amerikaanse president Trump heeft drie nieuwsmedia per direct de toegang tot het Witte Huis ontzegd. Het gaat om CNN, MSNOW en Politico. Trump is...
 - [Gehackt laboratorium mag weer bevolkingsonderzoek doen](https://nos.nl/l/2631573)
   > Het laboratorium Clinical Diagnostics, dat vorig jaar werd gehackt, mag weer bevolkingsonderzoek uitvoeren naar baarmoederhalskanker. Volgens...
-- [Laatste themazitting rond rellen Malieveld, 51 relschoppers veroordeeld](https://nos.nl/l/2631566)
-  > In Den Haag heeft vandaag de laatste themazitting rond de rellen op het Malieveld van september 2025 plaatsgevonden. Bij zo'n themazitting behandelt...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Britse topatlete wint in opvallende outfit: ‘Een combinatie van mode, snelheid en wetenschap’](https://www.ad.nl/andere-sporten/britse-topatlete-wint-in-opvallende-outfit-een-combinatie-van-mode-snelheid-en-wetenschap~a3b75a5c/)
+  > Bij het atletiektoernooi Athlos in Londen heeft Keely Hodgkinson de 800 meter gewonnen. De olympisch kampioene uit Engeland deed dat in een...
+- [Trump zegt akkoord te hebben over Amerikaanse controle op veiligheid Groenland](https://www.ad.nl/buitenland/trump-zegt-akkoord-te-hebben-over-amerikaanse-controle-op-veiligheid-groenland~ad5399ab/)
+  > De Amerikaanse president Donald Trump heeft vrijdag verklaard dat hij een permanente overeenkomst heeft gesloten met Denemarken, waardoor de...
+- [Luke Littler hekelt Nederlandse dartsfans na winst op Danny Noppert: ‘Moest ze van repliek dienen’](https://www.ad.nl/darts/luke-littler-hekelt-nederlandse-dartsfans-na-winst-op-danny-noppert-moest-ze-van-repliek-dienen~a92e749b/)
+  > Het is Danny Noppert niet gelukt om te stunten voor eigen publiek in de AFAS Live. De Fries kreeg kansjes om Luke Littler pijn te doen, maar pakte...
 - [Saibari scoort bij monsterzege Bayern München, Chelsea hard onderuit bij Brentford](https://www.ad.nl/voetbal/saibari-scoort-bij-monsterzege-bayern-munchen-chelsea-hard-onderuit-bij-brentford~a6b308d2/)
-  > Chelsea heeft vrijdagavond een pijnlijke nederlaag geleden in de Premier League. Het team van Xabi Alonso ging even verderop in het westen van Londen...
-- [LIVE World Series of Darts Finals | Luke Littler krijgt het aan de stok met Nederlandse fans, maar wint wel van Danny Noppert](https://www.ad.nl/darts/live-world-series-of-darts-finals-luke-littler-krijgt-het-aan-de-stok-met-nederlandse-fans-maar-wint-wel-van-danny-noppert~a92e749b/)
-  > Het is Danny Noppert niet gelukt om te stunten voor eigen publiek in AFAS Live, Amsterdam. De Nederlander kreeg genoeg kansjes om Luke ‘The Nuke’...
+  > Chelsea heeft vrijdagavond een pijnlijke nederlaag geleden in de Premier League. Het team van Xabi Alonso ging op zes kilometer van het eigen...
 - [AI-rapport van Amerikaans leger leidde bijna tot oorlog door fout over Chinees schip](https://www.ad.nl/buitenland/ai-rapport-van-amerikaans-leger-leidde-bijna-tot-oorlog-door-fout-over-chinees-schip~aa24222e/)
   > Een inlichtingenrapport dat dit voorjaar binnen het Amerikaanse leger werd verspreid, leidde bijna tot een nieuwe oorlog. Het rapport, dat met behulp...
-- [Koor zonder stembanden maakt indruk in Got Talent: ‘Jullie hebben mij gigantisch geraakt’](https://www.ad.nl/show/koor-zonder-stembanden-maakt-indruk-in-got-talent-jullie-hebben-mij-gigantisch-geraakt~a5891581/)
-  > Een staande ovatie vrijdagavond voor Different voices shout at cancer in Got Talent. Het koor, dat bestaat uit mensen zonder stembanden, maakte diepe...
-- [Vier Nederlanders aangehouden na vondst groot drugslaboratorium in Belgisch Bree](https://www.ad.nl/buitenland/vier-nederlanders-aangehouden-na-vondst-groot-drugslaboratorium-in-belgisch-bree~aed6e554/)
-  > De Belgische politie heeft vijf verdachten opgepakt na de vondst van een groot drugslaboratorium in het Belgische Bree, dicht bij de Nederlandse...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Duitsland grijpt opnieuw in om benzineprijs te drukken](https://fd.nl/economie/1612694/duitsland-grijpt-opnieuw-in-om-benzineprijs-te-drukken)
-  > Regering-Merz en deelstaten steken €2,5 mrd om automobilisten en transporteurs tegemoet te komen.
-- [Volatiele week op Wall Street eindigt kalm](https://fd.nl/financiele-markten/1612693/volatiele-week-op-wall-street-eindigt-kalm)
-  > Tumultueuze week met slechtste week voor Dow sinds maart komt op slotdag tot rust
-- [Snelle invulling Canadees EU‑lidmaatschap ‘light’ wenselijk](https://fd.nl/opinie/1612589/snelle-invulling-canadees-eulidmaatschap-light-wenselijk)
-  > In een gure, geopolitieke wereld zijn naaste vriendschappen met gelijkgestemden belangrijk. Een nieuw partnerschap met Canada kan bovendien een...
-- [Winstwaarschuwing VW na verlies marktaandeel in China](https://fd.nl/bedrijfsleven/1612639/winstwaarschuwing-vw-na-verlies-marktaandeel-in-china)
-  > De problemen bij de Duitse Volkswagen-groep in China dwingen het bedrijf tot het stevig terugbrengen van de prognoses.
-- [Angst voor AI verbindt Democraten en Republikeinen](https://fd.nl/politiek/1612573/angst-voor-ai-verbindt-democraten-en-republikeinen)
-  > De ontwikkeling van AI, en het wel of niet beteugelen van de technologie, was het belangrijkste onderwerp in Washington deze week. Maar regelgeving...
+- [Met managers kijken naar docu ‘De Manager’: ‘Het systeem moet op de schop? Hoezo?’](https://fd.nl/samenleving/1612526/met-managers-kijken-naar-docu-de-manager-het-systeem-moet-op-de-schop-hoezo)
+  > De documentaire De Manager is een schot in de roos in een land met zoveel managers. Maar moet het inderdaad allemaal anders? In het filmhuis is niet...
+- [Naar het nieuwe Duitsland](https://fd.nl/opinie/1612168/naar-het-nieuwe-duitsland)
+  > De extreemrechtse AfD wil dat het geschiedenisonderwijs en het cultuurbeleid meer Duitse, vroegere grootheid moeten belichten. Passen Goethe of...
+- [Advies: leg voedselvoorraden aan om tekorten bij rampen te voorkomen](https://fd.nl/politiek/1612683/advies-leg-voedselvoorraden-aan-om-tekorten-bij-rampen-te-voorkomen)
+  > Nederland houdt te beperkte voedselvoorraden aan, stelt Instituut Clingendael. Bij grote calamiteiten is er voor één week aan verwerkt voedsel op...
+- [Nederland is een lappendeken van uitblinkers, inhalers en afhakers](https://fd.nl/politiek/1612588/nederland-is-een-lappendeken-van-uitblinkers-inhalers-en-afhakers)
+  > Grote regionale verschillen maken duidelijk dat Nederland nauwelijks als één economie te zien is. Economisch beleid moet daarom vóór alles regionaal...
+- [Hoe synthetische concurrentie de Antwerpse diamantindustrie ruw uit haar slaap wekte](https://fd.nl/bedrijfsleven/1612394/hoe-synthetische-concurrentie-de-antwerpse-diamantindustrie-ruw-uit-haar-slaap-wekte)
+  > Door de opkomst van synthetische diamant is de prijs van natuurlijke diamant in een vrije val beland. Gevolg: crisis in het Antwerpse...
 
 ### Meest gelezen
 
