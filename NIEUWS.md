@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-09-2026 om 00:05*
+*Laatst bijgewerkt: 18-09-2026 om 05:39*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Wekdienst 18/9: Verkiezingen in Rusland • Eerste zitting zaak oudermoord Meerstad](https://nos.nl/l/2631455)
+  > Goedemorgen! In Rusland beginnen de verkiezingen voor de Doema, het lagerhuis van het parlement. Kritische oppositiepartijen zijn uitgesloten van...
+- [Syrische oud-gevangenisdirecteur krijgt in VS 60 jaar cel voor marteling](https://nos.nl/l/2631452)
+  > Een Syriër die onder de afgezette president Assad leiding gaf aan een gevangenis in Damascus is in de Verenigde Staten veroordeeld tot 60 jaar...
+- [Powerbank vat vlam, vliegtuig KLM keert na uren vliegen terug naar Schiphol](https://nos.nl/l/2631451)
+  > Een vliegtuig van KLM naar Curaçao is na uren vliegen omgekeerd nadat er aan boord een powerbank in brand was gevlogen. Het vuur werd geblust door de...
+- [37 verdachten van illegale mijnbouw overleden in cel Nigeria](https://nos.nl/l/2631450)
+  > Zeker 37 verdachten die waren opgepakt voor illegale mijnbouw zijn dood gevonden in een cel in Nigeria. Ze waren vastgezet door een militaire...
 - [Meer dan tien aanhoudingen bij anti-azc-protest in Opheusden, ME ingezet](https://nos.nl/l/2631449)
   > De politie heeft gisteravond in Opheusden meer dan tien mensen aangehouden tijdens een protest tegen de mogelijke komst van een asielzoekerscentrum.
 ...
-- [Biologen ontdekken nieuw soort tijgerkat in Bolivia: de tilcayo](https://nos.nl/l/2631445)
-  > Voor het eerst in een eeuw hebben biologen een nieuwe katachtige ontdekt. Het is een kleine wilde kat die in de Andes leeft. De soort is voor het...
-- [Aanval op Iraanse school vermoedelijk Amerikaanse oorlogsmisdaad, zegt VN](https://nos.nl/l/2631441)
-  > VN-onderzoekers zeggen dat de Verenigde Staten zich met twee aanvallen op Iran waarschijnlijk schuldig hebben gemaakt aan oorlogsmisdaden. Bij een...
-- [Tientallen pro-Palestijnse demonstranten opgepakt bij Israël-manifestatie op Dam](https://nos.nl/l/2631438)
-  > Tientallen pro-Palestijnse demonstranten zijn op de Dam in Amsterdam aangehouden. Ze waren ondanks een verbod op een pro-Israël demonstratie...
-- [Man probeert brand te stichten bij synagoge in Wuppertal](https://nos.nl/l/2631432)
-  > In de Duitse stad Wuppertal heeft een man geprobeerd brand te stichten bij een synagoge. Hij zou aan het begin van de middag een brandbare vloeistof...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Extreemrechtse politieagent opgepakt in Frankrijk: verdacht van plannen aanslag](https://www.ad.nl/buitenland/extreemrechtse-politieagent-opgepakt-in-frankrijk-verdacht-van-plannen-aanslag~a85216f5/)
-  > In Frankrijk is een 35-jarige politieagent opgepakt op verdenking van het voorbereiden van een terroristische aanslag en het printen van 3D-wapens....
-- [F-16 stort neer in buurt van woongebied in VS, piloot gebruikt schietstoel](https://www.ad.nl/buitenland/f-16-stort-neer-in-buurt-van-woongebied-in-vs-piloot-gebruikt-schietstoel~ad03e576/)
-  > In de Amerikaanse staat Michigan is een gevechtsvliegtuig van het type F-16 neergestort in de buurt van een woongebied. Dat melden Amerikaanse media...
-- [Dick Schreuder reageert gepikeerd na kritische vraag: ‘Dan zal het wel aan de speelwijze liggen’](https://www.ad.nl/voetbal/dick-schreuder-reageert-gepikeerd-na-kritische-vraag-dan-zal-het-wel-aan-de-speelwijze-liggen~a9eb23a0/)
-  > NEC-trainer Dick Schreuder heeft opnieuw een flinke nederlaag moeten slikken. Na de 3-0 nederlaag bij SC Cambuur van zaterdag begon NEC...
-- [Bijna zestig aanhoudingen rond tegendemonstratie van Israël-manifestatie op de Dam](https://www.ad.nl/binnenland/bijna-zestig-aanhoudingen-rond-tegendemonstratie-van-israel-manifestatie-op-de-dam~a0743720/)
-  > De politie heeft donderdagavond rond de Israël-manifestatie op de Dam in Amsterdam bijna zestig mensen aangehouden. Dertien mensen werden aangehouden...
-- [Felix Meurders (80) presenteert allerlaatste uitzending Kassa: ‘Cirkel is rond’](https://www.ad.nl/show/felix-meurders-80-presenteert-allerlaatste-uitzending-kassa-cirkel-is-rond~a154db71/)
-  > De allerlaatste uitzending van Kassa wordt in december gepresenteerd door Felix Meurders. Hij neemt de presentatie over van Amber Kortzorg, die dan...
+- [Voetbalpodcast | ‘Wie doet NEC hier nou een plezier met deze speelstijl in Europa?’](https://www.ad.nl/voetbal/voetbalpodcast-wie-doet-nec-hier-nou-een-plezier-met-deze-speelstijl-in-europa~a42af5cd9/)
+  > NEC ging hard onderuit in de Europa League. 5-0 werd het in Italië tegen Juventus. Binnen een half uur was het 3-0 voor de thuisploeg en de wedstrijd...
+- [Millie Bobby Brown bevestigt komst tweede adoptiekind](https://www.ad.nl/show/millie-bobby-brown-bevestigt-komst-tweede-adoptiekind~a070ae49/)
+  > Millie Bobby Brown heeft op Instagram een foto gedeeld van haar tweede kindje. ‘Hoi kleine man!’, schreven de actrice en haar partner Jake Bongiovi...
+- [Dave Roelvink: ‘Of je het nou leuk vindt of niet: ik heb een contract getekend, dus ik bén profbokser’](https://www.ad.nl/vechtsport/dave-roelvink-of-je-het-nou-leuk-vindt-of-niet-ik-heb-een-contract-getekend-dus-ik-ben-profbokser~ab956f2b/)
+  > Met het beëindigen van zijn relatie kwam het privéleven van Dave Roelvink deze week weer eens in de spotlight te staan. Maar hoe moeilijk ook, de...
+- [Criminelen misbruiken naam Cees Geel voor oplichting, familie doet aangifte: ‘Onbeschrijflijk pijnlijk’](https://www.ad.nl/binnenland/criminelen-misbruiken-naam-cees-geel-voor-oplichting-familie-doet-aangifte-onbeschrijflijk-pijnlijk~aa883115/)
+  > De familie van de onlangs overleden acteur Cees Geel heeft aangifte gedaan van identiteitsfraude. Op internet circuleert momenteel een frauduleus...
+- [Mees (24) stapte alleen in het vliegtuig naar China voor zijn bedrijf, maar kon opeens geen kant op](https://www.ad.nl/binnenland/mees-24-stapte-alleen-in-het-vliegtuig-naar-china-voor-zijn-bedrijf-maar-kon-opeens-geen-kant-op~ae9631da/)
+  > „Ik word een van de grootste van Nederland, dus laten we gaan praten”, zei de toen 23-jarige Mees van Dijk tegen heftruckfabrikanten in China. Hoewel...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [De man van 2,9%](https://fd.nl/opinie/1612442/de-man-van-2-9)
-  > IJzeren Hein, de man van staal. Zo ziet de minister van Financiën zichzelf graag. Maar het imago van Eelco Heinen begint tekenen van roest te...
-- [Deloitte slankt af onder invloed van AI en offshoring](https://fd.nl/bedrijfsleven/1612530/deloitte-slankt-af-onder-invloed-van-ai-en-offshoring)
-  > De daling komt naar voren in de jongste jaarcijfers van het accountants- en advieskantoor. Sectoreconoom Katinka Jongkind van ING verwacht dat meer...
-- [Planbureau: ‘Nationale investerings­bank moet jonge bedrijven helpen, geen brugonderhoud financieren’](https://fd.nl/tech-en-innovatie/1612441/planbureau-nationale-investeringsbank-moet-jonge-bedrijven-helpen-geen-brugonderhoud-financieren)
-  > Een beoogde nationale investeringsinstelling heeft zich te beperken tot leningen aan start-ups en scale-ups. Maatschappelijk nuttige projecten horen...
-- [Dictatoriale tips om onze democratie te redden](https://fd.nl/opinie/1612421/dictatoriale-tips-om-onze-democratie-te-redden)
-  > Wie de democratie serieus neemt, snijdt in een staat die de netto-overheidsbestedingen met 4,7% laat exploderen. En zo zijn er nog een paar punten,...
-- [Personalia vrijdag 18 september](https://fd.nl/bedrijfsleven/1612431/personalia-vrijdag-18-september)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Bank of Japan verhoogt de rente naar hoogste niveau in 31 jaar](https://fd.nl/economie/1612581/bank-of-japan-verhoogt-de-rente-naar-hoogste-niveau-in-31-jaar)
+  > Na het rentebesluit daalde de waarde van de yen met 0,7% tot ¥157,25 tegenover de dollar.
+- [Live: Bank of Japan verhoogt de rente, beurzen in Azië op winst](https://fd.nl/financiele-markten/1612580/live-bank-of-japan-verhoogt-de-rente-beurzen-in-azie-op-winst)
+  > De beleidsrente in Japan gaat naar het hoogste niveau in 31 jaar. De yen daalt omdat nog onzeker is hoe ver de Bank of Japan wil gaan. De...
+- [Koopkracht steeg vorig jaar met gemiddeld 1,2%](https://fd.nl/economie/1612534/koopkracht-steeg-vorig-jaar-met-gemiddeld-1-2)
+  > Werknemers gingen er het meest op vooruit, zzp’ers maakten een pas op de plaats.
+- [Boilers, batterijen en lege bankrekeningen: hoe Frank Botman ten val kwam](https://fd.nl/bedrijfsleven/1610400/boilers-batterijen-en-lege-bankrekeningen-hoe-frank-botman-ten-val-kwam)
+  > De Gooise vermogensbeheerder Frank Botman combineerde zijn beleggingswerk voor welgestelde families met een ambitieus ondernemersavontuur in China....
+- [Michael verstuurde spookfacturen voor vlees en haalde ogenblikkelijk geld op bij een factoringmaatschappij](https://fd.nl/bedrijfsleven/1612158/michael-verstuurde-spookfacturen-voor-vlees-en-haalde-ogenblikkelijk-geld-op-bij-een-factoringmaatschappij)
+  > Een vleeshandelaar uit Brabant tuigde een papieren werkelijkheid op. Hij vindt dat hij niets verkeerd heeft gedaan. ‘U heeft mijn bedrijf om zeep...
 
 ### Meest gelezen
 
