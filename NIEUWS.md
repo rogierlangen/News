@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-09-2026 om 20:18*
+*Laatst bijgewerkt: 19-09-2026 om 22:45*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dave Roelvink zit stuk na verlies bij profdebuut: ‘Ik kan stoer doen, maar ik ben kapot van liefdesverdriet’](https://www.ad.nl/vechtsport/dave-roelvink-zit-stuk-na-verlies-bij-profdebuut-ik-kan-stoer-doen-maar-ik-ben-kapot-van-liefdesverdriet~a8454d73/)
-  > Dave Roelvink (32) stond na slapeloze nachten op het punt zijn professionele boksdebuut af te zeggen, maar de Amsterdammer stond ondanks...
-- [Nijman haalt de kwartfinale niet in Amsterdam: Nederlander verliest van James Wade](https://www.ad.nl/darts/nijman-haalt-de-kwartfinale-niet-in-amsterdam-nederlander-verliest-van-james-wade~a198af71/)
-  > De World Series of Darts Finals gaat vanavond verder met de laatste vier wedstrijden in de tweede ronde. Wessel Nijman neemt het op tegen de...
-- [Ajax met flinke kater interlandperiode in: angstgegner Excelsior houdt Amsterdammers in bedwang](https://www.ad.nl/voetbal/ajax-met-flinke-kater-interlandperiode-in-angstgegner-excelsior-houdt-amsterdammers-in-bedwang~acfaba6a/)
-  > Ajax heeft voor de vierde keer in de laatste vijf edities met 2-2 gelijkgespeeld tegen Excelsior. De ploeg van trainer Míchel Sánchez flitste bij...
-- [Verdriet om het overlijden van ‘family guy’ Ben Saunders: ‘Hij was een talentvol en mooi mens’](https://www.ad.nl/show/verdriet-om-het-overlijden-van-family-guy-ben-saunders-hij-was-een-talentvol-en-mooi-mens~aed68b64/)
-  > Zo’n honderd vrienden, bekenden en fans hebben zaterdagavond afscheid genomen van ‘hun’ Ben Saunders. De stoet rouwende trok langs zijn zaak,...
-- [Dave Roelvink komt tekort en wordt verslagen bij debuut als profbokser](https://www.ad.nl/vechtsport/dave-roelvink-komt-tekort-en-wordt-verslagen-bij-debuut-als-profbokser~a0af72d8/)
-  > Dave Roelvink (32) heeft zijn debuut als professioneel bokser niet gewonnen. In vier rondes van drie minuten ging de Amsterdammer helemaal stuk, maar...
+- [13-jarige Duitser opgepakt na wilde rit in auto van vader](https://www.ad.nl/buitenland/13-jarige-duitser-opgepakt-na-wilde-rit-in-auto-van-vader~a24eb643/)
+  > De Duitse politie heeft een 13-jarige jongen opgepakt nadat hij in de auto van zijn vader had gereden. Tijdens zijn rit probeerde hij een...
+- [Geen winnaar in Italiaanse topper: Inter knokt zich terug tegen Roma van Malen en Rensch, Noslin scoort namens Lazio](https://www.ad.nl/voetbal/geen-winnaar-in-italiaanse-topper-inter-knokt-zich-terug-tegen-roma-van-malen-en-rensch-noslin-scoort-namens-lazio~a80b13d14/)
+  > De topper tussen AS Roma en Inter in de Serie A heeft geen winnaar opgeleverd. AS Roma kwam kort voor rust op 2-0 door twee goals van Manu Koné, maar...
+- [Mohamed Salah schittert met hattrick tegen Galatasaray, Raphinha doet hetzelfde bij Barcelona](https://www.ad.nl/voetbal/mohamed-salah-schittert-met-hattrick-tegen-galatasaray-raphinha-doet-hetzelfde-bij-barcelona~ab8007a9/)
+  > Mohamed Salah was na zijn komst naar Trabzonspor direct geliefd bij de fanatieke Turkse fans, maar de 34-jarige aanvaller uit Egypte kan na...
+- [Twee Duitsers aangehouden voor ophangen nepkunstwerken in Louvre](https://www.ad.nl/binnenland/twee-duitsers-aangehouden-voor-ophangen-nepkunstwerken-in-louvre~aa1ec48f/)
+  > Twee Duitsers zijn zaterdag aangehouden in Parijs, omdat ze met plakband twee schilderijen hadden opgehangen in het Louvre, melden bronnen bij de...
+- [Willem II nieuwe hekkensluiter na thuisnederlaag tegen Fortuna Sittard](https://www.ad.nl/voetbal/willem-ii-nieuwe-hekkensluiter-na-thuisnederlaag-tegen-fortuna-sittard~a9607217e/)
+  > Willem II is er ook in de zevende speelronde niet in geslaagd de eerste overwinning van het seizoen te boeken. In Tilburg leek het duel met Fortuna...
 
 ### Meest gelezen
 
