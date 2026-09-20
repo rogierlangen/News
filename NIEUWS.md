@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-09-2026 om 10:57*
+*Laatst bijgewerkt: 20-09-2026 om 14:38*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Alle verdachten van geweld op Malieveld weer vrij](https://nos.nl/l/2631748)
-  > De 24 mensen die gisteren zijn aangehouden bij de extreemrechtse demonstratie op het Malieveld in Den Haag, zijn inmiddels allemaal vrij. Het...
-- [OM gaat 74-jarige man vervolgen voor maken deepfakeporno van BN'ers](https://nos.nl/l/2631746)
-  > Het Openbaar Ministerie gaat een 74-jarige man uit Noord-Holland vervolgen voor het maken van deepfakeporno van tientallen bekende Nederlandse...
-- [Onzekerheid over toekomst Tata Steel IJmuiden lijkt nog niet voorbij](https://nos.nl/l/2631739)
-  > Duizenden werknemers en omwonenden van staalfabriek Tata in IJmuiden moeten waarschijnlijk langer wachten op duidelijkheid over de toekomst van het...
-- [Gemeente Maastricht en Rieu steggelen over kerstversiering](https://nos.nl/l/2631736)
-  > Pierre Rieu, de zoon van André Rieu, mag zijn hotel in Maastricht rond Kerstmis niet net als vorig jaar versieren. De gemeente geeft hem de keuze: of...
-- [Tien leeuwen in Tanzania dood gevonden, mogelijk vergiftigd](https://nos.nl/l/2631731)
-  > In Tanzania zijn tien leeuwen dood aangetroffen die mogelijk waren vergiftigd. Dat meldt de instantie NCAA, die het Ngorongoro-natuurreservaat...
+- [Reuzenhaai zwemt jachthaven in Canada binnen, 'nog nooit zoiets gezien'](https://nos.nl/l/2631775)
+  > Normaal zijn het vooral bootjes die de doorgang naar de jachthaven van het Canadese Halifax weten te vinden, maar deze week lukte het ook een...
+- [Komende week nog geen gesprekken over begroting tussen kabinet en oppositie](https://nos.nl/l/2631761)
+  > Komende week zullen er nog geen gesprekken plaatsvinden tussen het minderheidskabinet en de oppositie over steun voor de Prinsjesdagplannen. Dat...
+- [Identiteit schutters Overasselt achterhaald, 'iedereen op de boerderij moest dood'](https://nos.nl/l/2631760)
+  > De politie heeft de identiteit achterhaald van de twee verdachten van de moord op de beveiliger van drugscrimineel Jan G. uit Overasselt. Dat...
+- [Paul Haenen stopt als Bert in Sesamstraat: 'Waar ben je nou Ernie, ik mis je'](https://nos.nl/l/2631751)
+  > Acteur Paul Haenen stopt na ruim vijftig jaar als de stem van Bert uit Sesamstraat. Dat heeft hij bekendgemaakt in zijn eigen tv-programma Margreet...
+- [Zeepflessen met vloeibare cocaïne onderschept in Antwerpen](https://nos.nl/l/2631750)
+  > De Belgische autoriteiten hebben in de haven van Antwerpen 450 dozen gevonden met cocaïne. De drugs waren vloeibaar gemaakt en zaten verstopt in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Politie identificeert twee schutters van aanslag op boerderij Jan G.: ‘Iedereen moest worden vermoord’](https://www.ad.nl/binnenland/politie-identificeert-twee-schutters-van-aanslag-op-boerderij-jan-g-iedereen-moest-worden-vermoord~a974c2b0/)
-  > Het rechercheteam dat de fatale aanval op de boerderij van drugshandelaar Jan G. onderzoekt, heeft de twee mannen geïdentificeerd die een 51-jarige...
-- [Anis Hadj Moussa helpt flitsend Feyenoord aan derde treffer, FC Utrecht moet verder zonder topscorer](https://www.ad.nl/voetbal/anis-hadj-moussa-helpt-flitsend-feyenoord-aan-derde-treffer-fc-utrecht-moet-verder-zonder-topscorer~afbd2227/)
-  > Na de 7-0 overwinning op bezoek bij PEC Zwolle gaat Feyenoord nu voor de eerste thuiszege van het seizoen. FC Utrecht moet het volgende slachtoffer...
-- [Paul Haenen stopt na 50 jaar als stem van Bert uit Sesamstraat vanwege dood Wim T. Schippers](https://www.ad.nl/show/paul-haenen-stopt-na-50-jaar-als-stem-van-bert-uit-sesamstraat-vanwege-dood-wim-t-schippers~aa90bfa8/)
-  > Paul Haenen (80) stopt na ruim vijftig jaar als de stem van Bert uit Sesamstraat. Ook de stem van Grover zal hij niet langer inspreken, maakt hij...
-- [Borne en landgoed in conflict over opvang Oekraïners: ‘Dit zou over mensen moeten gaan, niet over geld’](https://www.ad.nl/binnenland/borne-en-landgoed-in-conflict-over-opvang-oekrainers-dit-zou-over-mensen-moeten-gaan-niet-over-geld~add10e4e/)
-  > Heeft de gemeente Borne miljoenen overgehouden aan de opvang van Oekraïense ontheemden, terwijl Landgoed de Zwanenhof jarenlang onder de kostprijs...
-- [Sterft de tijdrit uit? Specialisten jagen in Montréal op een regenboogtrui die ze zelden kunnen aantrekken](https://www.ad.nl/wielrennen/sterft-de-tijdrit-uit-specialisten-jagen-in-montreal-op-een-regenboogtrui-die-ze-zelden-kunnen-aantrekken~a5e63ea1/)
-  > De beste tijdrijders ter wereld jagen vandaag op een trui die ze zelden aan mogen trekken. Remco Evenepoel droeg zijn supersnelle regenboogpak dit...
+- [FC Twente draait het in slotfase helemaal om tegen PSV: Weghorst en Weidmann brengen Grolsch Veste in extase](https://www.ad.nl/voetbal/fc-twente-draait-het-in-slotfase-helemaal-om-tegen-psv-weghorst-en-weidmann-brengen-grolsch-veste-in-extase~aab67ef8/)
+  > PSV is er zondagmiddag niet in geslaagd om FC Twente te verslaan. De Tukkers draaiden het spectaculaire duel in de slotfase helemaal om door late...
+- [Telstar komt met uitblinkende Koeman net tekort tegen AZ in emotioneel beladen derby](https://www.ad.nl/voetbal/telstar-komt-met-uitblinkende-koeman-net-tekort-tegen-az-in-emotioneel-beladen-derby~a477317b/)
+  > AZ heeft de wedstrijd tegen Telstar in de Vriendenloterij eredivisie met 1-0 gewonnen. Mexx Meerdink maakte in de eerste helft het enige doelpunt, na...
+- [Brian Brobbey maakt er drie voor Sunderland tegen Manchester City](https://www.ad.nl/voetbal/brian-brobbey-maakt-er-drie-voor-sunderland-tegen-manchester-city~ac0273a0/)
+  > Brian Brobbey zal zich maandag met vertrouwen melden in Zeist. De 24-jarige spits uit Amsterdam scoorde in de eerste helft twee keer namens...
+- [Net terug van vakantie en nu al snel moe en geïrriteerd? Wacht niet te lang met ingrijpen](https://www.ad.nl/gezond/net-terug-van-vakantie-en-nu-al-snel-moe-en-geirriteerd-wacht-niet-te-lang-met-ingrijpen~a3634cc6/)
+  > Het aantal ziekmeldingen zal de komende maanden alleen maar verder oplopen. Dat komt niet alleen door de beruchte ‘r’ in de maand, waarschuwt...
+- [Real Madrid met Dumfries op bezoek bij Atlético voor stadsderby](https://www.ad.nl/voetbal/real-madrid-met-dumfries-op-bezoek-bij-atletico-voor-stadsderby~aa1a4359/)
+  > Real Madrid moet in de achtervolging op het nog foutloze FC Barcelona. De volgende horde? De derby bij stadgenoot Atlético Madrid. Wie wint de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [De lees- en rekenvaardigheid gaat onderuit? Niet in Engeland](https://fd.nl/samenleving/1612034/de-lees-en-rekenvaardigheid-gaat-onderuit-niet-in-engeland)
-  > In bijna alle landen hollen de schoolprestaties van 15-jarigen achteruit, bleek deze maand uit het Pisa-onderzoek. Behalve in Engeland. ‘De...
-- [Elke week komt er wel een burgemeester kijken wat Florianópolis met z’n afval doet](https://fd.nl/economie/1604779/elke-week-komt-er-wel-een-burgemeester-kijken-wat-florianopolis-met-zn-afval-doet)
-  > De Braziliaanse kustplaats is een van de ‘zero-wastesteden’ die het volgens de VN uitzonderlijk goed doen op het gebied van afvalscheiding en...
-- [Sportvelden en golfbanen wapenen zich tegen droogte](https://fd.nl/samenleving/1612560/sportvelden-en-golfbanen-wapenen-zich-tegen-droogte)
-  > Vanwege extreem weer investeren golfclubs en sportverenigingen in de opslag van water, andere grassoorten en waterbesparende beregening.
-- [Tarieven flexbranche stijgen en zetten verdienmodel onder druk](https://fd.nl/bedrijfsleven/1612597/tarieven-flexbranche-stijgen-en-zetten-verdienmodel-onder-druk)
-  > Door nieuwe regels rond arbeidsvoorwaarden en pensioenopbouw hebben uitzenders de kosten voor inhuur moeten verhogen. Opdrachtgevers nemen daardoor...
-- [Missiebewakers Ben & Jerry’s zijn terecht lastig en activistisch](https://fd.nl/opinie/1612436/missiebewakers-ben-jerrys-zijn-terecht-lastig-en-activistisch)
-  > De ceo van Ben & Jerry’s betichtte onafhankelijke bestuurders van bemoeienis met de bedrijfsvoering. Hij benoemde niet dat ze dat recht hebben als...
+- [Scope Ratings verhoogt kredietwaardigheid Griekenland](https://fd.nl/financiele-markten/1612670/scope-ratings-verhoogt-kredietwaardigheid-griekenland)
+  > De Griekse rating gaat bij Scope Ratings van BBB naar BBB+.
+- [Skoda-topman wordt nieuwe ceo Volvo](https://fd.nl/bedrijfsleven/1612671/skoda-topman-wordt-nieuwe-ceo-volvo)
+  > Met het aantreden van Klaus Zellmer wisselt Volvo voor de vierde keer in vier jaar tijd van bestuursvoorzitter.
+- [Kendrions mooiste groeicijfer is het dividend](https://fd.nl/financiele-markten/1612633/kendrions-mooiste-groeicijfer-is-het-dividend)
+  > De nieuwe strategie van Kendrion kan goed uitpakken voor dividendbeleggers.
+- [Consortium heeft bijna 90% van InPost in handen](https://fd.nl/bedrijfsleven/1612700/consortium-heeft-bijna-90-van-inpost-in-handen)
+  > Het Poolse pakketbedrijf staat in de AEX, maar zal na de deal van de beurs verdwijnen.
+- [Legerbaas Eichelsheim denkt dat Europa met minder Amerikaanse troepen afkan: ‘We worden steeds sterker’](https://fd.nl/politiek/1612698/legerbaas-eichelsheim-denkt-dat-europa-met-minder-amerikaanse-troepen-af-kan-we-worden-steeds-sterker)
+  > De Nederlandse legerbaas Eichelsheim ziet het Amerikaanse plan om duizenden militairen uit Europa terug te trekken met vertrouwen tegemoet. ‘Als ze...
 
 ### Meest gelezen
 
