@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-09-2026 om 22:45*
+*Laatst bijgewerkt: 20-09-2026 om 00:49*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Duitsers opgepakt voor ophangen van nepkunst in het Louvre](https://nos.nl/l/2631712)
+  > In Parijs zijn twee Duitsers opgepakt die voor de grap schilderijen hadden opgehangen in het Louvre. Op de werken waren ze zelf te zien. 
+        De...
+- [Influencer zegt dat explosie in Amsterdam op haar was gericht: ‘Laffe daad’](https://nos.nl/l/2631711)
+  > Een explosie in de nacht van donderdag op vrijdag in de wijk Watergraafsmeer in Amsterdam, blijkt te zijn afgegaan voor de woning van een populaire...
+- [Trump wil ontwikkeling van AI versnellen en kondigt ‘AI Force’ aan](https://nos.nl/l/2631710)
+  > De VS wil een speciale eenheid voor kunstmatige intelligentie met de naam "AI Force" en daarmee onder meer ontwikkelingen op dat gebied verder...
 - [Witte Huis weert verslaggevers van CNN, MS NOW en Politico na verbod van Trump](https://nos.nl/l/2631682)
   > Journalisten van de grote Amerikaanse nieuwsorganisaties CNN, MS NOW en Politico hebben vandaag geen toegang gekregen tot het Witte Huis. De...
 - [Problemen Twentekanaal op lange lijst uitdagingen: 'Klanten gaan vertrouwen verliezen'](https://nos.nl/l/2631676)
   > Als alles meezit, kán er in 2033 een nieuw gemaal staan bij Eefde dat beter voorbereid is op extreem droge periodes zoals deze zomer. Dat verwacht...
-- [24 aanhoudingen bij extreemrechtse betoging in Den Haag](https://nos.nl/l/2631670)
-  > Bij de demonstratie van de extreemrechtse organisatie Wij Zijn Het Volk in Den Haag zijn 24 betogers opgepakt, meldt de politie. Ze werden...
-- [NAVO verwelkomt Groenland-deal met VS, Denen benadrukken behoud soevereiniteit](https://nos.nl/l/2631652)
-  > De NAVO heeft positief gereageerd op de Groenland-deal tussen de Verenigde Staten, Denemarken en Groenland. Denemarken en Groenland zelf benadrukken...
-- [Jehovah's Getuigen schrappen verbod op bloedtransfusies](https://nos.nl/l/2631649)
-  > Jehovah's getuigen mogen voortaan een bloedtransfusie ondergaan. De internationale leiding van de streng religieuze geloofsgemeenschap heeft...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Camilla binnenkort te zien in boekendocumentaire BBC](https://www.ad.nl/show/camilla-binnenkort-te-zien-in-boekendocumentaire-bbc~a2f2a0bf/)
+  > De Britse koningin Camilla is binnenkort te zien in The Book That Changed My Life, een documentaire van de BBC over de invloed die boeken op mensen...
+- [Tientallen demonstranten bij concert Ed Sheeran in Philadelphia](https://www.ad.nl/show/tientallen-demonstranten-bij-concert-ed-sheeran-in-philadelphia~ab7996c8/)
+  > In de Amerikaanse stad Philadelphia hebben demonstranten zich verzameld rond het Lincoln Financial Field-stadion in aanloop naar het eerste concert...
 - [13-jarige Duitser opgepakt na wilde rit in auto van vader](https://www.ad.nl/buitenland/13-jarige-duitser-opgepakt-na-wilde-rit-in-auto-van-vader~a24eb643/)
   > De Duitse politie heeft een 13-jarige jongen opgepakt nadat hij in de auto van zijn vader had gereden. Tijdens zijn rit probeerde hij een...
 - [Geen winnaar in Italiaanse topper: Inter knokt zich terug tegen Roma van Malen en Rensch, Noslin scoort namens Lazio](https://www.ad.nl/voetbal/geen-winnaar-in-italiaanse-topper-inter-knokt-zich-terug-tegen-roma-van-malen-en-rensch-noslin-scoort-namens-lazio~a80b13d14/)
   > De topper tussen AS Roma en Inter in de Serie A heeft geen winnaar opgeleverd. AS Roma kwam kort voor rust op 2-0 door twee goals van Manu Koné, maar...
 - [Mohamed Salah schittert met hattrick tegen Galatasaray, Raphinha doet hetzelfde bij Barcelona](https://www.ad.nl/voetbal/mohamed-salah-schittert-met-hattrick-tegen-galatasaray-raphinha-doet-hetzelfde-bij-barcelona~ab8007a9/)
   > Mohamed Salah was na zijn komst naar Trabzonspor direct geliefd bij de fanatieke Turkse fans, maar de 34-jarige aanvaller uit Egypte kan na...
-- [Twee Duitsers aangehouden voor ophangen nepkunstwerken in Louvre](https://www.ad.nl/binnenland/twee-duitsers-aangehouden-voor-ophangen-nepkunstwerken-in-louvre~aa1ec48f/)
-  > Twee Duitsers zijn zaterdag aangehouden in Parijs, omdat ze met plakband twee schilderijen hadden opgehangen in het Louvre, melden bronnen bij de...
-- [Willem II nieuwe hekkensluiter na thuisnederlaag tegen Fortuna Sittard](https://www.ad.nl/voetbal/willem-ii-nieuwe-hekkensluiter-na-thuisnederlaag-tegen-fortuna-sittard~a9607217e/)
-  > Willem II is er ook in de zevende speelronde niet in geslaagd de eerste overwinning van het seizoen te boeken. In Tilburg leek het duel met Fortuna...
 
 ### Meest gelezen
 
