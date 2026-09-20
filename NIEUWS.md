@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-09-2026 om 14:38*
+*Laatst bijgewerkt: 20-09-2026 om 18:07*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Fruitcorso Tiel wordt fruitfestival: stilstaande kunstwerken om kosten te drukken](https://nos.nl/l/2631818)
+  > Voor Tielenaren met een hang naar traditie moet het even wennen zijn: dit jaar reden er geen praalwagens vol fruit door Tiel voor het jaarlijkse...
+- [Verkiezingszeges voor AfD en Die Linke, nieuwe nederlagen voor CDU van Merz](https://nos.nl/l/2631801)
+  > Bij de deelstaatverkiezingen in Mecklenburg-Voor-Pommeren lijkt Alternative für Deutschland (AfD) met 37 procent de grootste partij geworden, blijkt...
+- [Jaar cel voor Belg met rijverbod die toeterde naar 'trage' politieauto](https://nos.nl/l/2631788)
+  > Een man in België heeft een jaar celstraf opgelegd gekregen omdat hij zijn levenslange rijverbod heeft genegeerd. De man liep tegen de lamp nadat hij...
 - [Reuzenhaai zwemt jachthaven in Canada binnen, 'nog nooit zoiets gezien'](https://nos.nl/l/2631775)
   > Normaal zijn het vooral bootjes die de doorgang naar de jachthaven van het Canadese Halifax weten te vinden, maar deze week lukte het ook een...
 - [Komende week nog geen gesprekken over begroting tussen kabinet en oppositie](https://nos.nl/l/2631761)
   > Komende week zullen er nog geen gesprekken plaatsvinden tussen het minderheidskabinet en de oppositie over steun voor de Prinsjesdagplannen. Dat...
-- [Identiteit schutters Overasselt achterhaald, 'iedereen op de boerderij moest dood'](https://nos.nl/l/2631760)
-  > De politie heeft de identiteit achterhaald van de twee verdachten van de moord op de beveiliger van drugscrimineel Jan G. uit Overasselt. Dat...
-- [Paul Haenen stopt als Bert in Sesamstraat: 'Waar ben je nou Ernie, ik mis je'](https://nos.nl/l/2631751)
-  > Acteur Paul Haenen stopt na ruim vijftig jaar als de stem van Bert uit Sesamstraat. Dat heeft hij bekendgemaakt in zijn eigen tv-programma Margreet...
-- [Zeepflessen met vloeibare cocaïne onderschept in Antwerpen](https://nos.nl/l/2631750)
-  > De Belgische autoriteiten hebben in de haven van Antwerpen 450 dozen gevonden met cocaïne. De drugs waren vloeibaar gemaakt en zaten verstopt in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [FC Twente draait het in slotfase helemaal om tegen PSV: Weghorst en Weidmann brengen Grolsch Veste in extase](https://www.ad.nl/voetbal/fc-twente-draait-het-in-slotfase-helemaal-om-tegen-psv-weghorst-en-weidmann-brengen-grolsch-veste-in-extase~aab67ef8/)
-  > PSV is er zondagmiddag niet in geslaagd om FC Twente te verslaan. De Tukkers draaiden het spectaculaire duel in de slotfase helemaal om door late...
-- [Telstar komt met uitblinkende Koeman net tekort tegen AZ in emotioneel beladen derby](https://www.ad.nl/voetbal/telstar-komt-met-uitblinkende-koeman-net-tekort-tegen-az-in-emotioneel-beladen-derby~a477317b/)
-  > AZ heeft de wedstrijd tegen Telstar in de Vriendenloterij eredivisie met 1-0 gewonnen. Mexx Meerdink maakte in de eerste helft het enige doelpunt, na...
-- [Brian Brobbey maakt er drie voor Sunderland tegen Manchester City](https://www.ad.nl/voetbal/brian-brobbey-maakt-er-drie-voor-sunderland-tegen-manchester-city~ac0273a0/)
-  > Brian Brobbey zal zich maandag met vertrouwen melden in Zeist. De 24-jarige spits uit Amsterdam scoorde in de eerste helft twee keer namens...
-- [Net terug van vakantie en nu al snel moe en geïrriteerd? Wacht niet te lang met ingrijpen](https://www.ad.nl/gezond/net-terug-van-vakantie-en-nu-al-snel-moe-en-geirriteerd-wacht-niet-te-lang-met-ingrijpen~a3634cc6/)
-  > Het aantal ziekmeldingen zal de komende maanden alleen maar verder oplopen. Dat komt niet alleen door de beruchte ‘r’ in de maand, waarschuwt...
-- [Real Madrid met Dumfries op bezoek bij Atlético voor stadsderby](https://www.ad.nl/voetbal/real-madrid-met-dumfries-op-bezoek-bij-atletico-voor-stadsderby~aa1a4359/)
-  > Real Madrid moet in de achtervolging op het nog foutloze FC Barcelona. De volgende horde? De derby bij stadgenoot Atlético Madrid. Wie wint de...
+- [Moeder van Jermaine lag dagen dood in verpleeghuis: ‘Niemand wist wanneer ze voor het laatst was gezien’](https://www.ad.nl/binnenland/moeder-van-jermaine-lag-dagen-dood-in-verpleeghuis-niemand-wist-wanneer-ze-voor-het-laatst-was-gezien~ab376488/)
+  > Toen Jermaine Bommel (47) hoorde dat zijn moeder in haar zorgwoning was overleden, kwam vrijwel meteen de volgende klap: ze lag daar mogelijk al...
+- [Bondscoach Ten Dam wil na teleurstellend WK tijdrijden van Nederlandse vrouwen leren van de Zwitsers](https://www.ad.nl/wielrennen/bondscoach-ten-dam-wil-na-teleurstellend-wk-tijdrijden-van-nederlandse-vrouwen-leren-van-de-zwitsers~aeac67b1/)
+  > Achtste en twaalfde werden Demi Vollering en Lieke Nooijen op het WK tijdrijden, maar allebei hadden ze het gevoel dat ze een goede tijdrit hadden...
+- [José Mourinho en Real Madrid halen uit naar arbiter na nederlaag bij Atlético: ‘Hij heeft geen ervaring’](https://www.ad.nl/voetbal/jose-mourinho-en-real-madrid-halen-uit-naar-arbiter-na-nederlaag-bij-atletico-hij-heeft-geen-ervaring~aa1a4359/)
+  > Atlético Madrid heeft de stadsderby tegen Real Madrid met 2-1 gewonnen. De ploeg van Diego Simeone sloeg in de tweede helft toe na een rode kaart...
+- [Solo van 175 kilometer, maar dat was niet het plan van Mathieu van der Poel: ‘Ik heb gewoon mijn tempo gereden’](https://www.ad.nl/wielrennen/solo-van-175-kilometer-maar-dat-was-niet-het-plan-van-mathieu-van-der-poel-ik-heb-gewoon-mijn-tempo-gereden~abc44f95/)
+  > Dan denk je alles gezien te hebben met Mathieu van der Poel, maar dan rijdt hij na een krankzinnige solo van 175 kilometer (!) naar de zege in de...
+- [Meisje zwaargewond nadat 17-jarige Franse bestuurder op publiek inrijdt tijdens auto-evenement in België](https://www.ad.nl/buitenland/meisje-zwaargewond-nadat-17-jarige-franse-bestuurder-op-publiek-inrijdt-tijdens-auto-evenement-in-belgie~a921723b/)
+  > Een 17-jarige bestuurder is zondag met een auto ingereden op het publiek tijdens een auto-evenement in Avelgem, in de Belgische provincie...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Scope Ratings verhoogt kredietwaardigheid Griekenland](https://fd.nl/financiele-markten/1612670/scope-ratings-verhoogt-kredietwaardigheid-griekenland)
-  > De Griekse rating gaat bij Scope Ratings van BBB naar BBB+.
-- [Skoda-topman wordt nieuwe ceo Volvo](https://fd.nl/bedrijfsleven/1612671/skoda-topman-wordt-nieuwe-ceo-volvo)
-  > Met het aantreden van Klaus Zellmer wisselt Volvo voor de vierde keer in vier jaar tijd van bestuursvoorzitter.
-- [Kendrions mooiste groeicijfer is het dividend](https://fd.nl/financiele-markten/1612633/kendrions-mooiste-groeicijfer-is-het-dividend)
-  > De nieuwe strategie van Kendrion kan goed uitpakken voor dividendbeleggers.
-- [Consortium heeft bijna 90% van InPost in handen](https://fd.nl/bedrijfsleven/1612700/consortium-heeft-bijna-90-van-inpost-in-handen)
-  > Het Poolse pakketbedrijf staat in de AEX, maar zal na de deal van de beurs verdwijnen.
-- [Legerbaas Eichelsheim denkt dat Europa met minder Amerikaanse troepen afkan: ‘We worden steeds sterker’](https://fd.nl/politiek/1612698/legerbaas-eichelsheim-denkt-dat-europa-met-minder-amerikaanse-troepen-af-kan-we-worden-steeds-sterker)
-  > De Nederlandse legerbaas Eichelsheim ziet het Amerikaanse plan om duizenden militairen uit Europa terug te trekken met vertrouwen tegemoet. ‘Als ze...
+- [Beveiliging energiesector moet beter op orde](https://fd.nl/opinie/1612566/beveiliging-energiesector-moet-beter-op-orde)
+  > De fysieke beveiliging van de Nederlandse energie-infrastructuur was lange tijd een ondergeschoven kindje
+- [Merz houdt na nieuw debacle vast aan hervormingskoers](https://fd.nl/politiek/1612665/afd-wint-volgens-exitpolls-ook-in-mecklenburg-voor-pommeren)
+  > Bondskanselier spreekt van ‘ramp’ in Mecklenburg-Voor-Pommeren, maar wil na verlies bij verkiezingen niet van wijken weten.
+- [‘MSC wil meerderheidsbelang in cruiseschepenbouwer Meyer Werft kopen’](https://fd.nl/bedrijfsleven/1612673/msc-wil-meerderheidsbelang-in-cruiseschepenbouwer-meyer-werft-kopen)
+  > Daarmee zou de scheepswerf weer in particuliere handen komen, nadat die in 2024 door de Duitse staat gered werd van een dreigend faillissement.
+- [Deloitte-baas over AI: ‘Er vindt nu een realitycheck plaats’](https://fd.nl/bedrijfsleven/1612567/deloitte-baas-over-ai-er-vindt-nu-een-realitycheck-plaats)
+  > Gaandeweg gaan we steeds beter begrijpen hoe we kunstmatige intelligentie kunnen inzetten, zegt Hans Honig, ceo van Deloitte Nederland.
+- [Trump richt AI-macht op en stelt ‘AI-tsaar’ aan](https://fd.nl/politiek/1612672/trump-richt-ai-macht-op-en-stelt-ai-tsaar-aan)
+  > Zorgen die zijn geuit over kunstmatige intelligentie, doet de Amerikaanse president af als ‘een verzinsel’.
 
 ### Meest gelezen
 
