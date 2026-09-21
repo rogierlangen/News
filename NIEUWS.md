@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-09-2026 om 10:30*
+*Laatst bijgewerkt: 21-09-2026 om 16:52*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Raad van State tegen kabinet: heroverweeg verhoging verkeersboetes](https://nos.nl/l/2631893)
-  > De Raad van State adviseert het kabinet een verhoging van de verkeersboetes te heroverwegen. Volgens de belangrijkste adviseur van het kabinet is het...
-- [ICE schiet man neer in Texas, volgens dienst verbleef hij illegaal in VS](https://nos.nl/l/2631891)
-  > De Amerikaanse immigratiedienst ICE heeft gistermiddag opnieuw iemand neergeschoten. In Austin, in de zuidelijke staat Texas, werd een man in zijn...
-- [Politie gaat stoppen met organiseren van publieke vieringen met religieus karakter](https://nos.nl/l/2631885)
-  > De politie gaat stoppen met het organiseren van vieringen met een religieus karakter, voor en met mensen van buiten de politie. Dat meldt de politie....
-- [Snelfietsroute 'Van Dom tot Dam' tussen Utrecht en Amsterdam stap dichterbij](https://nos.nl/l/2631884)
-  > De aanleg van een nieuwe fietsroute tussen Utrecht en Amsterdam is een stap dichterbij gekomen. De provincie Utrecht, de Vervoerregio Amsterdam en...
-- [Onderzoeksraad: 7000 kinderen in asielnoodopvang structureel verwaarloosd](https://nos.nl/l/2631878)
-  > Minister Van den Brink van Asiel moet binnen een halfjaar de situatie van de kinderen in de asielnoodopvang verbeteren. Dat is de belangrijkste...
+- [Homo-acceptatie daalt sterk: 'Ouders en scholen moeten gesprek aangaan'](https://nos.nl/l/2631939)
+  > Betrokkenen uit het onderwijs en de politiek luiden de noodklok over de dalende homo-acceptatie onder jongeren. Volgens hen moet er actief gezocht...
+- [Bijna 500 arrestaties bij internationale politieactie tegen criminele netwerken](https://nos.nl/l/2631938)
+  > Bij een internationale operatie tegen criminele netwerken zijn 490 verdachten opgepakt. Dat meldt de Belgische federale politie. Aan de actie met de...
+- [Mensen met lage inkomens betalen in nieuw systeem meer voor kinderopvang](https://nos.nl/l/2631931)
+  > Mensen met lage inkomens gaan in het nieuwe kinderopvangstelsel, dat vanaf 2029 moet ingaan, iets meer betalen voor de kinderopvang dan ze nu doen....
+- [Nederlaag in deelstaat zal lang nagalmen, zegt Merz](https://nos.nl/l/2631921)
+  > De Duitse bondskanselier Merz heeft nogmaals gezegd dat hij niet zal aftreden. Dat zei hij gisteravond ook toen duidelijk werd dat zijn CDU een...
+- [Europese inlichtingenchefs: Rusland gaat NAVO testen met mogelijk hybride aanval](https://nos.nl/l/2631916)
+  > Rusland zou "binnen enkele maanden" de NAVO willen testen door kleine, mogelijk hybride aanvallen uit te voeren op NAVO-grondgebied. Daarmee zou de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Echtgenoot Brigitte Bardot kwaad over veiling van haar ondergoed: ‘Belediging voor haar nalatenschap’](https://www.ad.nl/show/echtgenoot-brigitte-bardot-kwaad-over-veiling-van-haar-ondergoed-belediging-voor-haar-nalatenschap~ad191452/)
-  > Bernard d’Ormale (85), de partner van Brigitte Bardot, is niet te spreken over een veiling van de persoonlijke spullen van de actrice. Er zou zelfs...
-- [Politie wil neutraliteit bewaken en organiseert geen religieuze vieringen meer voor buitenstaanders](https://www.ad.nl/binnenland/politie-wil-neutraliteit-bewaken-en-organiseert-geen-religieuze-vieringen-meer-voor-buitenstaanders~a6859f28/)
-  > De Nederlandse politie stopt per 1 januari met het organiseren van religieuze bijeenkomsten voor mensen van buiten de organisatie. De korpsleiding...
-- [Toezichthouder van EU legt Google boete van 403 miljoen euro op voor verwerking van locatiegegevens](https://www.ad.nl/tech/toezichthouder-van-eu-legt-google-boete-van-403-miljoen-euro-op-voor-verwerking-van-locatiegegevens~a3014bd9/)
-  > De Ierse privacytoezichthouder heeft Google een boete van 403 miljoen euro opgelegd vanwege het schenden van de regels voor locatiegegevens van...
-- [VAR bij Ajax-PSV reageert op commotie na beuk Van Bommel: ‘Sneu dat zelfs mijn dochters erop worden aangesproken’](https://www.ad.nl/voetbal/var-bij-ajax-psv-reageert-op-commotie-na-beuk-van-bommel-sneu-dat-zelfs-mijn-dochters-erop-worden-aangesproken~abbbf8a1/)
-  > Pol van Boekel vindt niet dat hij heeft geblunderd bij het meest besproken moment in de topper tussen Ajax en PSV van ruim een week geleden. PSV’er...
-- [Xavi kiest in zijn eerste Oranje-selectie niet voor Memphis Depay en noemt dat zijn lastigste besluit](https://www.ad.nl/voetbal/xavi-kiest-in-zijn-eerste-oranje-selectie-niet-voor-memphis-depay-en-noemt-dat-zijn-lastigste-besluit~a96b329f/)
-  > Xavi vindt dat hij een uitgebalanceerde selectie heeft voor zijn eerste vier interlands als bondscoach van Oranje. Zijn gesprek met Memphis Depay,...
+- [23 jaar cel voor Nederlandse vader wegens moord op zoon Jairon (14) in België](https://www.ad.nl/buitenland/23-jaar-cel-voor-nederlandse-vader-wegens-moord-op-zoon-jairon-14-in-belgie~aaebb58c/)
+  > In Antwerpen is een Nederlandse vader (47) veroordeeld tot een gevangenisstraf van 23 jaar voor de moord op zijn 14-jarige zoon Jairon. In januari...
+- [Minister bevestigt: ziekenhuizen gaan late abortussen uitvoeren](https://www.ad.nl/politiek/minister-bevestigt-ziekenhuizen-gaan-late-abortussen-uitvoeren~a68f76c3/)
+  > Minister Sophie Hermans (Volksgezondheid, VVD) bevestigt dat ‘verschillende ziekenhuizen’ in Nederland komend jaar late abortussen gaan uitvoeren....
+- [Nieuwe religieuze koers van politie roept vragen op: ‘Gaan ze dan ook kerst niet meer vieren?’](https://www.ad.nl/binnenland/nieuwe-religieuze-koers-van-politie-roept-vragen-op-gaan-ze-dan-ook-kerst-niet-meer-vieren~a5d9c901/)
+  > Na kritiek op deelname aan de ramadan en iftars neemt de politie een stevig besluit: het korps organiseert vanaf volgend jaar helemaal geen...
+- [Oekraïne woedend op EU-lidstaten die sancties Russische miljardairs willen schrappen](https://www.ad.nl/buitenland/oekraine-woedend-op-eu-lidstaten-die-sancties-russische-miljardairs-willen-schrappen~adfb97be/)
+  > Het is voor Oekraïne ‘onaanvaardbaar’ als EU-lidstaten de Russisch-Oezbeekse miljardair Alisjer Oesmanov en de Russische miljardair Michaïl Fridman...
+- [Albert Verlinde brengt nieuwe Nederlandse versie Fame in theater](https://www.ad.nl/show/albert-verlinde-brengt-nieuwe-nederlandse-versie-fame-in-theater~ab8a10ef/)
+  > De wereldberoemde musical Fame komt opnieuw naar de Nederlandse theaters. Albert Verlinde brengt de voorstelling vanaf maart 2028 terug op de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Wat moet Europa zonder Macron?](https://fd.nl/politiek/1612731/wat-moet-europa-zonder-macron)
-  > Sterke, luide stemmen zijn er genoeg in Europa. Maar wie neemt het over als de Franse president Emmanuel Macron van het politieke toneel verdwijnt?
-- [Nieuwe regels voor ‘groene’ reclame zijn zorg voor ondernemers](https://fd.nl/bedrijfsleven/1612562/nieuwe-regels-voor-groene-reclame-zijn-zorg-voor-ondernemers)
-  > Een product duurzaam noemen, daarvoor gelden vanaf eind deze maand strenge eisen. Bedrijven passen verpakkingen en websiteteksten aan. ‘De claim...
-- [Het kon wel, het kan nog steeds](https://fd.nl/financiele-markten/1612790/het-kon-wel-het-kan-nog-steeds)
-  > Nederland staat voor grote uitdagingen, zei de koning. Maar de hand blijft op de knip en het land blijft op slot. Het kan ook anders. Kijk naar de...
-- [Nederlandse inflatie onder Europees gemiddelde](https://fd.nl/economie/1612789/nederlandse-inflatie-onder-europees-gemiddelde)
-  > In augustus bedroeg de inflatie in Nederland 2,8%, tegen een gemiddelde van 3,2% in de Europese Unie.
-- [Universiteiten hebben veel aan AI, maar nog lang geen AI-onderzoeksvisie](https://fd.nl/opinie/1612525/universiteiten-hebben-geen-ai-onderzoeksvisie)
-  > Universiteiten schrijven veel over de gevolgen van AI, maar hebben te weinig visie op wat kunstmatige intelligentie betekent voor universitair...
+- [Trafigura brengt deel olietankers naar beurs van Oslo](https://fd.nl/bedrijfsleven/1612819/trafigura-brengt-deel-olietankers-naar-beurs-van-oslo)
+  > De nieuwe onderneming, Volare Shipping, zal uiteindelijk minimaal veertien VLCC-supertankers gaan bezitten.
+- [Volkswagen valt uit Euro Stoxx 50 na koersval](https://fd.nl/bedrijfsleven/1612753/volkswagen-valt-uit-euro-stoxx-50-na-koersval)
+  > Het vertrek van Volkswagen wordt door analisten gezien als signaal dat de economische macht van de auto-industrie afneemt.
+- [Eurofiber huisvest supercomputer voor Groningse AI-fabriek](https://fd.nl/bedrijfsleven/1612818/eurofiber-huisvest-supercomputer-voor-groningse-ai-fabriek)
+  > Groningen krijgt een ‘AI-fabriek’ die kennis en rekenkracht combineert. De supercomputer komt in het datacenter van het Nederlandse bedrijf Eurofiber.
+- [Ook na nieuw woningbouwoffensief van kabinet blijft private huursector een zorgenkindje](https://fd.nl/politiek/1612518/ook-na-nieuw-woningbouwoffensief-van-kabinet-blijft-private-huursector-een-zorgenkindje)
+  > Woonminister Boekholt-O’Sullivan presenteerde maandag een plan om ‘meer, sneller en beter te bouwen’. Maar woningmarktexperts twijfelen of het de...
+- [Smart Photonics en GlobalFoundries gaan samenwerken bij productie fotonica-chips](https://fd.nl/bedrijfsleven/1612810/smart-photonics-en-globalfoundries-gaan-samenwerken-bij-productie-fotonica-chips)
+  > Het Eindhovense fotonicabedrijf verwacht meer business door de samenwerking en rekent erop eind dit jaar een nieuwe financieringsronde af te kunnen...
 
 ### Meest gelezen
 
