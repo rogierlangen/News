@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-09-2026 om 23:58*
+*Laatst bijgewerkt: 21-09-2026 om 04:43*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Wekdienst 21/9: Rechtszaak dodelijke explosie Rotterdam • Oranje traint voor Nations League](https://nos.nl/l/2631856)
+  > Goedemorgen! In Rotterdam begint de rechtszaak tegen Jalal O. die wordt beschuldigd van het veroorzaken van een explosie aan de Schammenkamp in...
+- ['Regering-Trump heeft plannen klaar voor sancties tegen Internationaal Strafhof'](https://nos.nl/l/2631854)
+  > De regering van de Amerikaanse president Trump heeft sancties voorbereid tegen het gehele Internationaal Strafhof en gaat die binnenkort aankondigen,...
+- [Schoenenmerk Converse biedt excuses aan voor online bekritiseerde campagne](https://nos.nl/l/2631853)
+  > Het Amerikaanse schoenenmerk Converse heeft excuses aangeboden voor een online reclamecampagne. Daarin werd een foto gebruikt die volgens online...
 - [Pijnlijk verlies CDU in Duitse deelstaat: voor het eerst kiesdrempel niet gehaald](https://nos.nl/l/2631852)
   > De CDU van de Duitse bondskanselier Merz heeft bij de deelstaatverkiezingen in Mecklenburg-Voor-Pommeren de kiesdrempel niet gehaald. Het is de...
 - [Nazomers weer op komst in week dat astronomische herfst begint](https://nos.nl/l/2631851)
   > Deze week gaat er heel wisselend uitzien. Na een frisse nacht met in het zuidoosten minimumtemperaturen rond 10 graden, komen we vanaf vandaag wat...
-- [Dode bij schietpartij in woonwijk in Roermond](https://nos.nl/l/2631850)
-  > Bij een schietpartij in een woonwijk in Roermond is gisteravond een man om het leven gekomen.
-        De schietpartij was iets voor 22.00 uur op de...
-- [Dode na ruzie om strandbed in Griekenland, man (76) aangehouden](https://nos.nl/l/2631844)
-  > Op een strand in Griekenland is een ruzie om een ligbed fataal afgelopen. Twee oudere mannen kregen het met elkaar aan de stok waarna een 82-jarige...
-- [Protesten in Frankrijk tegen wetsvoorstel dat politiegeweld sneller rechtvaardigt](https://nos.nl/l/2631840)
-  > Op verschillende plekken in Frankrijk is dit weekend gedemonstreerd tegen een wetsvoorstel over het gebruik van geweld door agenten en andere...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [CDU van Merz belandt in Mecklenburg-Voor-Pommeren onder de kiesdrempel, AfD boekt forse winst](https://www.ad.nl/buitenland/cdu-van-merz-belandt-in-mecklenburg-voor-pommeren-onder-de-kiesdrempel-afd-boekt-forse-winst~aca228c5/)
-  > De radicaal-rechtse AfD heeft in Mecklenburg-Voor-Pommeren 38,2 procent van de stemmen behaald, zo maakte de verkiezingscommissie van de Oost-Duitse...
-- [Merz wankelt na nieuwe dreun voor CDU: ‘Heeft hij het nu nog in de hand?’](https://www.ad.nl/buitenland/merz-wankelt-na-nieuwe-dreun-voor-cdu-heeft-hij-het-nu-nog-in-de-hand~a83b7ed0/)
-  > Miljoenen Duitsers gingen zondag naar de stembus. De AfD en Die Linke werden de grote winnaars in deelstaten Mecklenburg-Voor-Pommeren en Berlijn. De...
-- [Peter Bosz ziet 15 spelers vertrekken, maar ook drie internationals bij ADO: deze 55 spelers vliegen uit](https://www.ad.nl/voetbal/peter-bosz-ziet-15-spelers-vertrekken-maar-ook-drie-internationals-bij-ado-deze-55-spelers-vliegen-uit~a24950a9/)
-  > De eredivisie ligt de komende drie weken stil vanwege interlandvoetbal. In de eerste Oranje-selectie van bondscoach Xavi zitten vijf spelers uit de...
-- [Man zwaargewond na te zijn beschoten door ICE-agent in Austin, Texas](https://www.ad.nl/buitenland/man-zwaargewond-na-te-zijn-beschoten-door-ice-agent-in-austin-texas~ae67dd9c/)
-  > In de Amerikaanse staat Texas is een man zwaargewond geraakt nadat die werd beschoten door een agent van de Amerikaanse immigratie- en douanedienst...
-- [Francesco Farioli met FC Porto te sterk voor Benfica, fraaie goal van Hwang In-Beom](https://www.ad.nl/voetbal/francesco-farioli-met-fc-porto-te-sterk-voor-benfica-fraaie-goal-van-hwang-in-beom~aeadc275/)
-  > FC Porto heeft in Portugal de topper tegen Benfica gewonnen. De titelverdediger klopte de recordkampioen in het sfeervolle Estádio do Dragão met 3-1.
+- [Toeslagen afschaffen en zorgpremie omlaag: SER adviseert regering over enorme belastingherziening](https://www.ad.nl/binnenland/toeslagen-afschaffen-en-zorgpremie-omlaag-ser-adviseert-regering-over-enorme-belastingherziening~af3ca70b/)
+  > Een speciale commissie in de Sociaal-Economische Raad is het eens geworden over de uitgangspunten voor de grootste belastingherziening in decennia,...
+- [Column Willem van Hanegem | Excelsior zal vandaag ook wel een telefoontje kunnen verwachten](https://www.ad.nl/voetbal/column-willem-van-hanegem-excelsior-zal-vandaag-ook-wel-een-telefoontje-kunnen-verwachten~ae2605e2/)
+  > Willem van Hanegem zag Feyenoord en AZ zondagmiddag winnen, waarna titelverdediger PSV verloor bij FC Twente. Op zaterdagavond verbaasde hij zich al...
+- [Helft van nieuwe huizen moet prefab worden: kabinet schrapt regels om bouw aan te jagen](https://www.ad.nl/politiek/helft-van-nieuwe-huizen-moet-prefab-worden-kabinet-schrapt-regels-om-bouw-aan-te-jagen~a5f25fa1/)
+  > Binnen vier jaar moet de helft van alle nieuwbouwwoningen uit de fabriek rollen. Het is een van de manieren waarop het kabinet het tempo van de bouw...
+- [Britse Helene (81) vocht drie jaar tegen hek voor haar tuinpoort en wint](https://www.ad.nl/buitenland/britse-helene-81-vocht-drie-jaar-tegen-hek-voor-haar-tuinpoort-en-wint~a52d75bd/)
+  > Na een drie jaar durende en kostbare juridische strijd heeft de 81-jarige Helene Ball een rechtszaak tegen het provinciebestuur van Derbyshire...
+- [Na frisse start met mist en enkele buien volgt zonnige nazomer](https://www.ad.nl/binnenland/na-frisse-start-met-mist-en-enkele-buien-volgt-zonnige-nazomer~a5177bf4/)
+  > De astronomische herfst staat voor de deur, maar aan het weer is dat nog niet te merken. Na een frisse start met lokaal nevel en mist breekt vandaag...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Hoe bouw je met succes een modemerk op? ‘We hadden geen idee wat we aan het doen waren’](https://fd.nl/samenleving/1612587/hoe-bouw-je-met-succes-een-modemerk-op-we-hadden-geen-idee-wat-we-aan-het-doen-waren)
+  > Het begon met een enkele hoodie of onderbroek, inmiddels hebben deze drie ontwerpers hun eigen succesvolle kledinglijn. Het ging met vallen en...
+- [Defensie koopt Chinese 3D-printers en passeert Nederlands alternatief](https://fd.nl/economie/1612680/defensie-koopt-chinese-3d-printers-en-passeert-nederlands-alternatief)
+  > In deze Dagkoers: hoe Defensie een Chinees bedrijf verkoos boven een Nederlands alternatief, waarom het niet de vraag is óf, maar wanneer er een...
 - [Wat kan er misgaan?](https://fd.nl/opinie/1612667/wat-kan-er-misgaan)
   > Volgens Mathijs Bouman kan een zoektocht naar een nieuw medicijn ontaarden in de uitvinding van een dodelijk middeltje.
 - [Vermogensbeheerders zien AI‑bijdrage aan bedrijfswinsten groeien](https://fd.nl/financiele-markten/1612594/vermogensbeheerders-zien-aibijdrage-aan-bedrijfswinsten-groeien)
   > Lange tijd was de vraag of AI zijn imposante beloftes kan waarmaken. Inmiddels draagt de technologie bij aan de winstgevendheid van bedrijven,...
 - [Luie filmpjes van millennialpolitici zetten de jongste generatie heus niet aan het werk](https://fd.nl/opinie/1612516/luie-filmpjes-van-millennialpolitici)
   > Al jaren probeert een leger doorgeslagen consultants met miljoenen subsidie zorgverleners meer te laten werken. Succesvol is het amper – net als de...
-- [Defensie koopt 3D-printers bij Chinese ‘kleine reus’, industrie slaat alarm](https://fd.nl/bedrijfsleven/1612428/defensie-koopt-3d-printers-bij-chinese-kleine-reus-industrie-slaat-alarm)
-  > Het ministerie laat 3D-metaalprinters maken bij een Chinees bedrijf dat de grootste defensieconcerns in het communistische land als klant heeft. De...
-- [Personalia maandag 21 september](https://fd.nl/bedrijfsleven/1612699/personalia-maandag-21-september)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
