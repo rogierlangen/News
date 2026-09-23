@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-09-2026 om 00:09*
+*Laatst bijgewerkt: 23-09-2026 om 05:39*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Advies: maak werk bij immigranten vanaf begin hoofddoel](https://nos.nl/l/2632118)
+  > Om immigranten meer en sneller aan het werk te krijgen, moet arbeid al kort na hun komst centraal komen te staan. Bijvoorbeeld door met een...
+- [Wekdienst 23/9: Verdachte ongeluk Zeeuws schoolkamp voor rechter • Chinese president Xi ontmoet Trump](https://nos.nl/l/2632117)
+  > Goedemorgen! In Breda staat de verdachte van het dodelijke ongeluk met een groep schoolkinderen in het Zeeuwse Vogelwaarde voor de rechter en de...
+- [Straaljager neergestort bij Amerikaanse basis in Duitsland, piloot gebruikte schietstoel](https://nos.nl/l/2632112)
+  > Op een Amerikaanse militaire basis Spangdahlem in de Duitse Eifel is gisteren een F16-straaljager neergestort. Dat bevestigt de luchtmachtbasis aan...
 - [PFAS in rioolwater Dinxperlo na blussen van brand met vervuild water](https://nos.nl/l/2632111)
   > Bij het blussen van de brand in het Gelderse Dinxperlo maandagavond is PFAS in het rioolwater terechtgekomen. Dat meldt de gemeente Aalten, waar...
 - [Canadees ingenieursbureau staakt overnamepoging Arcadis](https://nos.nl/l/2632107)
   > Het Canadese ingenieursbureau WSP Global staakt zijn pogingen om de Nederlandse branchegenoot Arcadis over te nemen. Het lukte niet om met Arcadis in...
-- [Belangrijke oliepijpleiding in Saudi-Arabië weer in gebruik na drone-aanval](https://nos.nl/l/2632104)
-  > De Oost-West-pijpleiding in Saudi-Arabië is weer in gebruik, meldt persbureau Reuters op basis van ingewijden. De pijpleiding werd bijna twee weken...
-- [Opluchting in Groenland en Denemarken over akkoord met VS maar ook twijfels](https://nos.nl/l/2632103)
-  > In Groenland en Denemarken is de opluchting groot dat het conflict met de Verenigde Staten over Groenland is opgelost. President Trump, de Deense...
-- [ShinyHunters zegt gegevens van duizenden FBI-medewerkers in handen te hebben](https://nos.nl/l/2632102)
-  > Hackersgroep ShinyHunters zegt de gegevens van duizenden medewerkers en sollicitanten van de FBI te hebben bemachtigd. Dat melden diverse Amerikaanse...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Voetbalpodcast | ‘Hij is toch een beetje de Barack Obama onder de voetbaltrainers’](https://www.ad.nl/voetbal/voetbalpodcast-hij-is-toch-een-beetje-de-barack-obama-onder-de-voetbaltrainers~a42af5cd9/)
-  > Jürgen Klopp is zijn periode als bondscoach van Duitsland met genoeg verhalen begonnen. De pet met Duitse vlag en ‘Einer von 83 Millionen’, een...
-- [CPB: Inkorten WW-duur zorgt voor 8000 extra banen, effect is ‘beperkt’](https://www.ad.nl/politiek/cpb-inkorten-ww-duur-zorgt-voor-8000-extra-banen-effect-is-beperkt~a5ecdc44/)
-  > Inkorting van de WW zorgt niet voor een grote groei van de werkgelegenheid. Volgens het Centraal Planbureau gaan er achtduizend mensen extra door aan...
-- [SER wil Oekraïners beter begeleiden naar werk dat past bij hun diploma’s: ‘We laten kansen lopen’](https://www.ad.nl/binnenland/ser-wil-oekrainers-beter-begeleiden-naar-werk-dat-past-bij-hun-diplomas-we-laten-kansen-lopen~aff4f7f6/)
-  > Van de 134.000 Oekraïners in Nederland heeft bijna 62 procent een baan, maar zij doen vaak werk onder hun niveau en zonder perspectief. De SER, het...
-- [Erdogan noemt aanvallen tegen handelsschepen in Zwarte Zee ‘onaanvaardbaar’](https://www.ad.nl/buitenland/erdogan-noemt-aanvallen-tegen-handelsschepen-in-zwarte-zee-onaanvaardbaar~ac528ac3/)
-  > De Turkse president Recep Tayyip Erdogan heeft op de Algemene Vergadering van de Verenigde Naties fel uitgehaald naar Israël. Hij noemde Gaza ‘het...
-- [Poetin bereid tot gesprekken over beëindigen oorlog Oekraïne, beweert Trump](https://www.ad.nl/buitenland/poetin-bereid-tot-gesprekken-over-beeindigen-oorlog-oekraine-beweert-trump~adfb97be/)
-  > De Russische president Vladimir Poetin is bereid tot een ontmoeting met de Verenigde Staten om de oorlog in Oekraïne te beëindigen. Dat zegt de...
+- [Bijna vijf meter lang, zeven zitplaatsen en toch verrassend betaalbaar: dit is de nieuwe ruimtekoning van Skoda](https://www.ad.nl/auto/bijna-vijf-meter-lang-zeven-zitplaatsen-en-toch-verrassend-betaalbaar-dit-is-de-nieuwe-ruimtekoning-van-skoda~a66f5472/)
+  > De Skoda Kodiaq krijgt het vanaf volgend jaar fiscaal een stuk lastiger in de zakelijke markt. Precies op dat moment komt Skoda met een elektrisch...
+- [Sean Steur geniet van droomtransfer, maar één ding valt hem zwaar in Newcastle: ‘Ik mis ze enorm’](https://www.ad.nl/voetbal/sean-steur-geniet-van-droomtransfer-maar-een-ding-valt-hem-zwaar-in-newcastle-ik-mis-ze-enorm~a0b91d79/)
+  > Sean Steur trok afgelopen zomer verrassend van Ajax naar Newcastle United. Sindsdien dartelt hij over de Engelse velden, werkt hij in de gym met twee...
+- [Pepijn maakt theater over zwartste periode uit zijn leven: ‘Ben mijn depressie en angststoornis nu dankbaar’](https://www.ad.nl/show/pepijn-maakt-theater-over-zwartste-periode-uit-zijn-leven-ben-mijn-depressie-en-angststoornis-nu-dankbaar~a97d84df/)
+  > Acteur, podcast- en theatermaker Pepijn Schoneveld (41) is gelukkiger dan ooit, maar acht jaar geleden zag zijn leven er compleet anders uit....
+- [Criminelen stelen foto’s van villa’s en maken er rondleidingsvideo’s van, met griezelig doel](https://www.ad.nl/tech/criminelen-stelen-fotos-van-villas-en-maken-er-rondleidingsvideos-van-met-griezelig-doel~a5215fd2/)
+  > Cybercriminelen gebruiken gestolen beelden van makelaars om met behulp van kunstmatige intelligentie levensechte videorondleidingen te maken. Daarmee...
+- [Niet de airco of radio, maar déze knop wordt het meest gebruikt door Dacia- en Renault-rijders](https://www.ad.nl/auto/niet-de-airco-of-radio-maar-deze-knop-wordt-het-meest-gebruikt-door-dacia-en-renault-rijders~a9b9e4e3/)
+  > De populairste knop in een moderne Dacia of Renault is niet die van de airconditioning of radio, maar een knop die veel bestuurders direct weten te...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Ander tankgedrag door torenhoge benzineprijs: minder liters, vaker bij goedkopere pomp](https://fd.nl/economie/1612354/ander-tankgedrag-door-torenhoge-benzineprijs-minder-liters-vaker-bij-goedkopere-pomp)
-  > Het effect van de hoge brandstofprijzen wordt steeds duidelijker gevoeld, blijkt uit transactiedata opgevraagd door het FD.
-- [Productief kabinet](https://fd.nl/opinie/1612988/productief-kabinet)
-  > Ondanks al het politieke gehakketak is dit kabinet nu al productiever dan de twee voorgaande, stelt FD-columnist Mathijs Bouman vast.
-- [De beste werkplek bestaat niet](https://fd.nl/opinie/1612865/de-beste-werkplek-bestaat-niet)
-  > Thuiswerken heeft veel voordelen, maar kantoor ook. Toch willen werkgevers steeds vaker bepalen waar en wanneer werknemers hun werk doen – terwijl...
-- [Chinese president Xi bij Trump in het Witte Huis: wat kunnen we verwachten?](https://fd.nl/politiek/1612859/chinese-president-xi-bij-trump-in-het-witte-huis-wat-kunnen-we-verwachten)
-  > Een geopolitieke strijd rond AI en chips, de Iran-oorlog, een Amerikaanse wapendeal met Taiwan: grote thema’s domineren het staatsbezoek van Xi...
-- [Personalia woensdag 23 september](https://fd.nl/bedrijfsleven/1612877/personalia-woensdag-23-september)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Live: Olieprijs zakt met bijna 5%, Chinese beurzen in de min](https://fd.nl/financiele-markten/1613008/live-olieprijs-zakt-met-5-na-hoop-op-nieuwe-gespreksronde)
+  > Na een dag vol stijgende indices is het de vraag of woensdag het optimisme op de aandelenbeurzen doorzet. De olieprijs doet in ieder geval zijn best...
+- [CPB: halveren WW-duur heeft nauwelijks effect op werkgelegenheid](https://fd.nl/politiek/1612890/cpb-kortere-uitkering-heeft-nauwelijks-effect-op-werkgelegenheid)
+  > Halveren van de duur van een WW-uitkering, zoals het kabinet wil, is een prikkel om eerder werk te accepteren. Dat levert volgens het Centraal...
+- [Een walhalla voor mannen die van klassieke kleding houden](https://fd.nl/samenleving/1612742/een-walhalla-voor-mannen-die-van-klassieke-kleding-houden)
+  > Hoeden, vlinderdassen, klassieke jassen en ruitsjaals. In The English Hatter lijkt het alsof je met een tijdmachine naar een wereld bent...
+- [Job van der Voort: ‘Haalden we weer miljoenen op, woehoe, maar ik voelde het niet’](https://fd.nl/bedrijfsleven/1612337/job-van-der-voort-haalden-we-weer-miljoenen-op-woehoe-maar-ik-voelde-het-niet)
+  > Als tiener had Remote-oprichter Job van der Voort maar één doel: genoeg verdienen om steeds de nieuwste iPhone te kunnen kopen. Nu is hij de rijkste...
+- [Hoe ongemakkelijk wordt de bila tussen Xi en Trump?](https://fd.nl/economie/1612996/hoe-ongemakkelijk-wordt-de-bila-tussen-xi-en-trump)
+  > Vandaag in Dagkoers: de ongemakkelijkheden bij de ontmoeting tussen Xi en Trump, een nieuwe bevoegdheid voor de ACM en benzineprijzen die boven de 3...
 
 ### Meest gelezen
 
