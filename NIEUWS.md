@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-09-2026 om 11:06*
+*Laatst bijgewerkt: 23-09-2026 om 16:27*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Brandweer zoekt oorzaak zware gaslucht Oisterwijk, maar blijkt die zelf te zijn](https://nos.nl/l/2632161)
-  > In een groot deel van het Brabantse dorp Oisterwijk hing vanmorgen een zware gaslucht. De brandweer was de hele ochtend op zoek naar de oorzaak, maar...
-- [Singapore wil af van luide muziek uit telefoons in de bus en dreigt met hoge boetes](https://nos.nl/l/2632160)
-  > Het is een irritatie voor velen: in een afgesloten ruimte zitten terwijl uit de telefoons van anderen hard geluid galmt. In Singapore is de ergernis...
-- [OM: verdachte van dodelijke aanrijding tijdens schoolkamp reed 130 waar hij 80 mocht](https://nos.nl/l/2632156)
-  > De nu 20-jarige man die wordt verdacht van het veroorzaken van een dodelijk ongeval afgelopen juni in het Zeeuwse Vogelwaarde reed kort voor de...
-- [Manager Dolly Parton wil contactverbod voor 'intimiderende' neef en beveiliger](https://nos.nl/l/2632155)
-  > De manager van de overleden Amerikaanse zangeres Dolly Parton beschuldigt haar neef van afpersing en bedreigingen. Dat blijkt uit...
-- [Dode en zeven gewonden bij aanvallen op Oekraïne, ook kapitein vrachtschip gedood](https://nos.nl/l/2632154)
-  > Bij Russische aanvallen vanochtend op verschillende plekken in Oekraïne is minstens een persoon om het leven gekomen en zijn zeven mensen gewond...
+- [Kabinet wil nog geen voedselvoorraad voor acht dagen adviseren](https://nos.nl/l/2632202)
+  > Het kabinet gaat vooralsnog niet mee in de oproep van onderzoekers om voor acht dagen voedsel in huis te hebben, voor als er bijvoorbeeld een ramp of...
+- [Raad van State wijst bezwaren af: Defensie mag radarstation in Herwijnen bouwen](https://nos.nl/l/2632200)
+  > Defensie kan doorgaan met de bouw van een militair radarstation in het Gelderse dorp Herwijnen. De Raad van State heeft bezwaren van omwonenden en de...
+- [Australische illustrator Terry Denton (De waanzinnige boomhut) overleden](https://nos.nl/l/2632199)
+  > De Australische illustrator Terry Denton is op 76-jarige leeftijd overleden. Wereldwijd kennen miljoenen kinderen zijn tekeningen uit de boekenserie...
+- [Italië, Nederland of allebei? Onderzoek naar samenwerking Einstein Telescope](https://nos.nl/l/2632197)
+  > Het grensgebied bij Zuid-Limburg, het Italiaanse eiland Sardinië of het Duitse Saksen. Op een van deze plekken komt de Einstein Telescope te staan,...
+- [Merz lijkt gered: partij steunt kanselier, maar eist verbeteringen](https://nos.nl/l/2632188)
+  > De Duitse bondskanselier Merz kan voorlopig aanblijven. Na een reeks nederlagen stond zijn positie ter discussie, maar na meerdere...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Landelijke uitvoering van tv-spektakel The Passion naar Ootmarsum](https://www.ad.nl/dinkelland/landelijke-uitvoering-van-tv-spektakel-the-passion-naar-ootmarsum~a83ce44b/)
-  > Ootmarsum mag de landelijke uitvoering van The Passion organiseren. De uitvoering is op donderdag 25 maart 2027 en wordt rechtstreeks uitgezonden op...
-- [Max Verstappen wil ‘positief momentum’ meenemen naar Bakoe, toekomst Esteban Ocon ongewis](https://www.ad.nl/formule-1/max-verstappen-wil-positief-momentum-meenemen-naar-bakoe-toekomst-esteban-ocon-ongewis~afd17814/)
-  > De Formule 1 dendert door in deze periode. Er staan maar liefst negen races in de komende twaalf weken gepland. Volg alle ontwikkelingen hier.
-- [Brian Brobbey de man in vorm, Jurriën Timber in de selectie voor duel tegen Duitsland](https://www.ad.nl/voetbal/brian-brobbey-de-man-in-vorm-jurrien-timber-in-de-selectie-voor-duel-tegen-duitsland~a71d1f3a/)
+- [Raymond van Barneveld op het WK darts? Nederlander zet stap in de goede richting](https://www.ad.nl/darts/raymond-van-barneveld-op-het-wk-darts-nederlander-zet-stap-in-de-goede-richting~a7197955/)
+  > Er is nog een lange weg te gaan, maar Raymond van Barneveld heeft voor het eerst in lange tijd een virtueel ticket voor het WK darts op zak. De...
+- [Terwijl Xavi een frisse start wil maken, etaleerde Virgil van Dijk vooral chagrijn en een gevoel van miskenning](https://www.ad.nl/voetbal/terwijl-xavi-een-frisse-start-wil-maken-etaleerde-virgil-van-dijk-vooral-chagrijn-en-een-gevoel-van-miskenning~a66f2d7e/)
+  > Terwijl de nieuwe bondscoach Xavi een frisse start probeert te maken met Oranje, etaleerde Virgil van Dijk woensdag vooral chagrijn, frustratie en...
+- [Xavi werkt training af met complete groep, ook Timber bij selectie voor duel met Duitsland](https://www.ad.nl/voetbal/xavi-werkt-training-af-met-complete-groep-ook-timber-bij-selectie-voor-duel-met-duitsland~a71d1f3a/)
   > Oranje begint donderdag tegen Duitsland aan de eerste van vier Nations Leagueduels. Volg het laatste nieuws over het Nederlands elftal hier.
-- [Zangeres Meau verloofd met haar grote liefde: ‘Nog steeds aan het bijkomen’](https://www.ad.nl/show/zangeres-meau-verloofd-met-haar-grote-liefde-nog-steeds-aan-het-bijkomen~a94cc916/)
-  > Meau gaat trouwen met haar partner en gitarist Vadim. Op Instagram deelt de zangeres het nieuws met een reeks foto’s van het verlovingsfeestje. ‘Wij...
-- [Ze vermomde zich als man en werd bekogeld met stenen, nu wint Afghaanse wielrenster prestigieus zilver](https://www.ad.nl/wielrennen/ze-vermomde-zich-als-man-en-werd-bekogeld-met-stenen-nu-wint-afghaanse-wielrenster-prestigieus-zilver~a5da6aecb/)
-  > De beloning na een enorme strijd. De Afghaanse wielrenster Fariba Hashimi (23) won zilver op de Asian Games. Maar achter die medaille schuilt een...
+- [Tweede kindje op komst voor vlogstel Gio en Lynn: ‘Binnenkort zijn wij met vier’](https://www.ad.nl/show/tweede-kindje-op-komst-voor-vlogstel-gio-en-lynn-binnenkort-zijn-wij-met-vier~af226940/)
+  > Babynieuws voor youtuber Gio (27) en zijn vriendin en influencer Lynn Hermanussen (24): de tortelduifjes verwachten hun tweede kindje. Dat maken ze...
+- [Nederland heeft er een probleem bij in de toch al moeizame relatie met de VS](https://www.ad.nl/politiek/nederland-heeft-er-een-probleem-bij-in-de-toch-al-moeizame-relatie-met-de-vs~a30d7a83/)
+  > De Verenigde Staten voeren de aanval op het Internationaal Strafhof in Den Haag verder op. De instelling dreigt compleet lamgelegd te worden. Wat kan...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Beurs van Istanboel verwijdert aandelen uit indices](https://fd.nl/financiele-markten/1613014/beurs-van-istanboel-verwijdert-aandelen-uit-indices)
-  > De twee geschrapte aandelen staan centraal in het fondsenschandaal waartegen de Turkse autoriteiten deze maand hard optreden.
-- [Centrale Bankiers geven wél thuis](https://fd.nl/financiele-markten/1612945/centrale-bankiers-geven-wel-thuis)
-  > Monetaire beleidsmakers begrijpen dat een onverwacht krachtige wereldeconomie met te veel inflatie aandacht nodig heeft. Politici kunnen nog wat...
-- [Milei temde torenhoge inflatie van 300%, nu het lastige laatste stukje nog](https://fd.nl/economie/1612863/milei-temde-torenhoge-inflatie-van-300-nu-het-lastige-laatste-stukje-nog)
-  > Argentinië wist de jaarinflatie terug te brengen naar 33,5%. Het verder omlaag brengen – naar bijvoorbeeld 3% – wordt een hele klus, die volgens...
-- [De trenchcoat heeft allang zijn militaire bijsmaak verloren en is verworden tot een altijd-goedjas](https://fd.nl/samenleving/1612744/de-trenchcoat-heeft-allang-zijn-militaire-bijsmaak-verloren-en-is-verworden-tot-een-altijd-goedjas)
-  > De trenchcoat was ooit een elitaire vechtjas. In vredestijd werd het een van  de geliefdste en veelzijdigste kledingstukken, met veel karakter. En...
-- [Bagageafhandelaren verliezen kort geding over miljardenaanbesteding Schiphol](https://fd.nl/bedrijfsleven/1612949/bagageafhandelaren-verliezen-kort-geding-over-miljardenaanbesteding-schiphol)
-  > De procedures rond de aanbesteding van onder meer de bagageafhandeling zijn goed doorlopen, luidt het vonnis. De zaak was aangespannen door de...
+- [AI aanjager van sterke toename aantal hacks in cryptosector](https://fd.nl/financiele-markten/1612891/ai-aanjager-van-sterke-toename-aantal-hacks-in-cryptosector)
+  > AI maakt hacken makkelijker en dit treft ook de cryptowereld: nooit eerder vonden daar zoveel digitale aanvallen plaats als in de afgelopen maanden.
+- [Druk op Arcadis om beter te presteren groter na afhaken belager WSP](https://fd.nl/bedrijfsleven/1613017/druk-op-arcadis-om-beter-te-presteren-groter-na-afhaken-belager-wsp)
+  > Het aandeel Arcadis daalde woensdagochtend fors op de Amsterdamse beurs, al maakte het in de loop van de dag een deel van het verlies goed.
+- [McDonald’s zet in op AI en kipburgers na teleurstellende resultaten](https://fd.nl/bedrijfsleven/1612965/mcdonalds-zet-in-op-ai-en-kipburgers-na-teleurstellende-resultaten)
+  > De fastfoodketen presenteerde woensdag een nieuwe bedrijfsstrategie.
+- [Ongedurige griffier Remco Nehmelman gaat koning dienen](https://fd.nl/politiek/1612879/ongedurige-griffier-remco-nehmelman-gaat-koning-dienen)
+  > Remco Nehmelman maakte van de Eerste Kamer een ‘aardbevingsbestendige’ organisatie. Nu stapt hij over naar het Kabinet van de Koning om...
+- [Twee invallen rondom failliet cryptobedrijf Knaken](https://fd.nl/bedrijfsleven/1612963/twee-invallen-rondom-failliet-cryptobedrijf-knaken)
+  > Het Rotterdamse cryptobedrijf, bekend van sponsordeals met voetbalclubs, ging eerder dit jaar op de fles. Het onderzoek van justitie draait om onder...
 
 ### Meest gelezen
 
