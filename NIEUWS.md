@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-09-2026 om 16:27*
+*Laatst bijgewerkt: 23-09-2026 om 20:02*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Kabinet wil nog geen voedselvoorraad voor acht dagen adviseren](https://nos.nl/l/2632202)
-  > Het kabinet gaat vooralsnog niet mee in de oproep van onderzoekers om voor acht dagen voedsel in huis te hebben, voor als er bijvoorbeeld een ramp of...
-- [Raad van State wijst bezwaren af: Defensie mag radarstation in Herwijnen bouwen](https://nos.nl/l/2632200)
-  > Defensie kan doorgaan met de bouw van een militair radarstation in het Gelderse dorp Herwijnen. De Raad van State heeft bezwaren van omwonenden en de...
-- [Australische illustrator Terry Denton (De waanzinnige boomhut) overleden](https://nos.nl/l/2632199)
-  > De Australische illustrator Terry Denton is op 76-jarige leeftijd overleden. Wereldwijd kennen miljoenen kinderen zijn tekeningen uit de boekenserie...
-- [Italië, Nederland of allebei? Onderzoek naar samenwerking Einstein Telescope](https://nos.nl/l/2632197)
-  > Het grensgebied bij Zuid-Limburg, het Italiaanse eiland Sardinië of het Duitse Saksen. Op een van deze plekken komt de Einstein Telescope te staan,...
-- [Merz lijkt gered: partij steunt kanselier, maar eist verbeteringen](https://nos.nl/l/2632188)
-  > De Duitse bondskanselier Merz kan voorlopig aanblijven. Na een reeks nederlagen stond zijn positie ter discussie, maar na meerdere...
+- [Provincie waarschuwt voor olie op Zeeuwse stranden](https://nos.nl/l/2632228)
+  > De provincie Zeeland waarschuwt dat op meerdere stranden olie is aangespoeld. Er is olie gevonden op diverse plekken aan de kust van Walcheren, maar...
+- [Politie zet traangas in bij protest tegen uithuiszetting 87-jarige vrouw in Madrid](https://nos.nl/l/2632223)
+  > De politie heeft in Madrid een 87-jarige vrouw uit het huis gezet waar zij al ruim zeventig jaar woont, omdat ze de huur niet meer kan betalen. Voor...
+- [Veiligheidsmaatregelen in Opheusden, gemeente bang voor nieuwe rellen](https://nos.nl/l/2632222)
+  > De gemeente Neder-Betuwe heeft voor morgen maatregelen aangekondigd om nieuwe ongeregeldheden in Opheusden te voorkomen. Afgelopen donderdag liep een...
+- [Topontmoeting Trump en Xi in VS: wel praten over gevaren AI, maar geen rem erop](https://nos.nl/l/2632220)
+  > Over veel onderwerpen zijn Peking en Washington het oneens. Maar op één thema zijn ze opvallend eensgezind, aan de vooravond van de top tussen de...
+- [Gevallen Hollywood-tycoon Harvey Weinstein opnieuw veroordeeld in zedenzaak](https://nos.nl/l/2632218)
+  > Voormalig Hollywoodproducent Harvey Weinstein is door een rechter in New York opnieuw veroordeeld voor een zedenzaak. Hij kreeg vijftien jaar cel...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Raymond van Barneveld op het WK darts? Nederlander zet stap in de goede richting](https://www.ad.nl/darts/raymond-van-barneveld-op-het-wk-darts-nederlander-zet-stap-in-de-goede-richting~a7197955/)
-  > Er is nog een lange weg te gaan, maar Raymond van Barneveld heeft voor het eerst in lange tijd een virtueel ticket voor het WK darts op zak. De...
-- [Terwijl Xavi een frisse start wil maken, etaleerde Virgil van Dijk vooral chagrijn en een gevoel van miskenning](https://www.ad.nl/voetbal/terwijl-xavi-een-frisse-start-wil-maken-etaleerde-virgil-van-dijk-vooral-chagrijn-en-een-gevoel-van-miskenning~a66f2d7e/)
-  > Terwijl de nieuwe bondscoach Xavi een frisse start probeert te maken met Oranje, etaleerde Virgil van Dijk woensdag vooral chagrijn, frustratie en...
-- [Xavi werkt training af met complete groep, ook Timber bij selectie voor duel met Duitsland](https://www.ad.nl/voetbal/xavi-werkt-training-af-met-complete-groep-ook-timber-bij-selectie-voor-duel-met-duitsland~a71d1f3a/)
-  > Oranje begint donderdag tegen Duitsland aan de eerste van vier Nations Leagueduels. Volg het laatste nieuws over het Nederlands elftal hier.
-- [Tweede kindje op komst voor vlogstel Gio en Lynn: ‘Binnenkort zijn wij met vier’](https://www.ad.nl/show/tweede-kindje-op-komst-voor-vlogstel-gio-en-lynn-binnenkort-zijn-wij-met-vier~af226940/)
-  > Babynieuws voor youtuber Gio (27) en zijn vriendin en influencer Lynn Hermanussen (24): de tortelduifjes verwachten hun tweede kindje. Dat maken ze...
-- [Nederland heeft er een probleem bij in de toch al moeizame relatie met de VS](https://www.ad.nl/politiek/nederland-heeft-er-een-probleem-bij-in-de-toch-al-moeizame-relatie-met-de-vs~a30d7a83/)
-  > De Verenigde Staten voeren de aanval op het Internationaal Strafhof in Den Haag verder op. De instelling dreigt compleet lamgelegd te worden. Wat kan...
+- [Oekraïne stuurt Noord-Koreaanse gevangenen naar Zuid-Korea: ‘Deze jongens zijn moeilijk te pakken’](https://www.ad.nl/buitenland/oekraine-stuurt-noord-koreaanse-gevangenen-naar-zuid-korea-deze-jongens-zijn-moeilijk-te-pakken~adfb97be/)
+  > Oekraïne heeft twee Noord-Koreaanse krijgsgevangenen overgeleverd aan Zuid-Korea, meldde president Zelensky in zijn toespraak bij de Verenigde...
+- [Meisje geraakt, automobilist rijdt door: Michal bedenkt zich geen moment en zet achtervolging in](https://www.ad.nl/binnenland/meisje-geraakt-automobilist-rijdt-door-michal-bedenkt-zich-geen-moment-en-zet-achtervolging-in~ad6c35a6/)
+  > Michal Szymaniak (37) ziet het gebeuren: een fietsend meisje ligt op de weg na een ongeval, de automobilist rijdt gewoon door. In zijn busje gaat hij...
+- [Flitsend Feyenoord vrouwen zet grote stap richting eerste Europese hoofdtoernooi, ook PSV en Ajax winnen](https://www.ad.nl/voetbal/flitsend-feyenoord-vrouwen-zet-grote-stap-richting-eerste-europese-hoofdtoernooi-ook-psv-en-ajax-winnen~a49a0545/)
+  > Feyenoord heeft in eigen huis een grote stap gezet richting de Europa Cup, het tweede Europese toernooi na de Champions League. In eigen huis werd...
+- [Erik ten Hag wil dat voetballandschap op de schop gaat: ‘Het is waanzin dat we dit toestaan’](https://www.ad.nl/voetbal/erik-ten-hag-wil-dat-voetballandschap-op-de-schop-gaat-het-is-waanzin-dat-we-dit-toestaan~a61e6f2a/)
+  > Erik ten Hag vindt het de hoogste tijd dat het Nederlandse voetballandschap op de schop gaat. „Dat Jong Feyenoord niet in de KKD speelt, is...
+- [‘Duizelingwekkende’ doorbraak in onderzoek naar ontstaan van Parijs](https://www.ad.nl/buitenland/duizelingwekkende-doorbraak-in-onderzoek-naar-ontstaan-van-parijs~a5881f7c/)
+  > Midden in Parijs, niet ver van de Notre-Dame, is een oude muur ontdekt die mogelijk iets zegt over het ontstaan van de stad. De Franse...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [AI aanjager van sterke toename aantal hacks in cryptosector](https://fd.nl/financiele-markten/1612891/ai-aanjager-van-sterke-toename-aantal-hacks-in-cryptosector)
-  > AI maakt hacken makkelijker en dit treft ook de cryptowereld: nooit eerder vonden daar zoveel digitale aanvallen plaats als in de afgelopen maanden.
-- [Druk op Arcadis om beter te presteren groter na afhaken belager WSP](https://fd.nl/bedrijfsleven/1613017/druk-op-arcadis-om-beter-te-presteren-groter-na-afhaken-belager-wsp)
-  > Het aandeel Arcadis daalde woensdagochtend fors op de Amsterdamse beurs, al maakte het in de loop van de dag een deel van het verlies goed.
-- [McDonald’s zet in op AI en kipburgers na teleurstellende resultaten](https://fd.nl/bedrijfsleven/1612965/mcdonalds-zet-in-op-ai-en-kipburgers-na-teleurstellende-resultaten)
-  > De fastfoodketen presenteerde woensdag een nieuwe bedrijfsstrategie.
-- [Ongedurige griffier Remco Nehmelman gaat koning dienen](https://fd.nl/politiek/1612879/ongedurige-griffier-remco-nehmelman-gaat-koning-dienen)
-  > Remco Nehmelman maakte van de Eerste Kamer een ‘aardbevingsbestendige’ organisatie. Nu stapt hij over naar het Kabinet van de Koning om...
-- [Twee invallen rondom failliet cryptobedrijf Knaken](https://fd.nl/bedrijfsleven/1612963/twee-invallen-rondom-failliet-cryptobedrijf-knaken)
-  > Het Rotterdamse cryptobedrijf, bekend van sponsordeals met voetbalclubs, ging eerder dit jaar op de fles. Het onderzoek van justitie draait om onder...
+- [Lijst met investeringsdeals Morgan Stanley gelekt](https://fd.nl/financiele-markten/1613030/lijst-met-investeringsdeals-morgan-stanley-gelekt)
+  > Het gelekte document gaf klanten inzicht in meer dan honderd lopende en geplande deals, waaronder beursgangen.
+- [Filmproducent Harvey Weinstein opnieuw veroordeeld](https://fd.nl/samenleving/1613026/filmproducent-harvey-weinstein-opnieuw-veroordeeld)
+  > De gewezen filmproducent Harvey Weinstein vangt opnieuw bot in een beroepszaak over verkrachting.
+- [Amerikaans exportverbod op diesel zal Europa hard raken: ‘300.000 vaten die niemand anders kan leveren’](https://fd.nl/economie/1612962/amerikaans-exportverbod-op-diesel-zal-europa-hard-raken-300-000-vaten-die-niemand-anders-kan-leveren)
+  > President Trump zinspeelt op een verbod op de Amerikaanse export van diesel. Dat is slecht nieuws voor Europa dat voor meer dan een miljoen vaten...
+- [Coulance voor mkb bij bestrijding van greenwashing](https://fd.nl/opinie/1613016/coulance-voor-mkb-bij-bestrijding-van-greenwashing)
+  > Brussel wil de consument met strengere regelgeving beschermen tegen greenwashing. Maar voor mkb’ers, eenpitters en kleine producenten is dat nog niet...
+- [Microsoft reserveert $10 mrd voor investeringen in Golfregio](https://fd.nl/financiele-markten/1612969/microsoft-reserveert-10-mrd-voor-investeringen-in-golfregio)
+  > Het Amerikaanse techbedrijf Microsoft kiest ondanks regionale spanningen voor een uitgebreid investeringsprogramma in vier Golfstaten.
 
 ### Meest gelezen
 
