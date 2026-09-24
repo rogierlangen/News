@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-09-2026 om 09:13*
+*Laatst bijgewerkt: 24-09-2026 om 14:44*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Noord-Koreaanse soldaten door Oekraïne uitgezet naar Zuid-Korea](https://nos.nl/l/2632284)
-  > Oekraïne heeft twee Noord-Koreaanse krijgsgevangenen op het vliegtuig naar Zuid-Korea gezet, heeft president Zelensky gisteravond gezegd in een...
-- [Pakistan voert aanvallen uit op buurland Afghanistan, zeker vier doden](https://nos.nl/l/2632282)
-  > Pakistan heeft drone- en luchtaanvallen uitgevoerd op tien plekken in buurland Afghanistan, bevestigen overheidsfunctionarissen van beide landen....
-- [Meta haalt satirische video Roel Maalderink over camerabril offline](https://nos.nl/l/2632271)
-  > Techgigant Meta heeft een satirische video verwijderd van programmamaker Roel Maalderink en de digitale burgerrechtenorganisatie Bits of Freedom,...
-- [Defensie investeert in lasers om drones uit te schakelen](https://nos.nl/l/2632266)
-  > Geen Patriot-raketten van miljoenen euro's per stuk, maar laserwapens om vijandelijke drones mee uit te schakelen. Dat klinkt futuristisch maar is...
-- [Gelderland voert als eerste provincie 'stikstofstroken' in, BBB-fractie verdeeld](https://nos.nl/l/2632264)
-  > Gelderland gaat de stikstofuitstoot in en rond kwetsbare natuur verminderen met behulp van zogeheten stikstofstroken. Het is de eerste provincie die...
+- [Podcast De Dag: Trump en Xi, vriend en vijand](https://nos.nl/l/2632325)
+  > Voor het eerst in elf jaar is de Chinese president Xi weer in Washington. In 2015 ontmoette hij toenmalig president Obama voor het laatst in het...
+- [Verkiezing vervanger voor afzwaaiende VN-chef Guterres verloopt stroef](https://nos.nl/l/2632322)
+  > Geen witte rook, wel uitgelekte uitslagen. Achter gesloten deuren wordt in New York een opvolger gezocht voor VN-baas António Guterres, die op 1...
+- [Radboud Universiteit weert extreemrechtse studentenvereniging na rapport NCTV en AIVD](https://nos.nl/l/2632315)
+  > De Groot-Nederlandse Studentenvereniging (GNSV) is door coördinator terrorismebestrijding NCTV en inlichtingendienst AIVD aangemerkt als...
+- [Populaire 'squishy dumplings' niet gevaarlijk, zegt toezichthouder](https://nos.nl/l/2632311)
+  > Squishy dumplings zijn niet gevaarlijk voor de gezondheid. De Nederlandse Voedsel- en Warenautoriteit (NVWA) deed onderzoek naar het razend populaire...
+- [Van 'vaag zoet' tot 'raam dicht': Bietenradar voorspelt bietengeur](https://nos.nl/l/2632310)
+  > Het is september en dat betekent dat bieten weer van het land worden gehaald. Die kunnen een flinke geur met zich meebrengen. De een vindt het lekker...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Gianni Infantino: cultuur van dialoog is nodig, KNVB en UEFA nog niet overtuigd door het hervormingsvoorstel](https://www.ad.nl/voetbal/gianni-infantino-cultuur-van-dialoog-is-nodig-knvb-en-uefa-nog-niet-overtuigd-door-het-hervormingsvoorstel~a2544497/)
-  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
-- [Richard schrikt zich kapot: 150 euro extra voor controle cv-ketel omdat huis in centrum Utrecht ‘slecht bereikbaar’ is](https://www.ad.nl/binnenland/richard-schrikt-zich-kapot-150-euro-extra-voor-controle-cv-ketel-omdat-huis-in-centrum-utrecht-slecht-bereikbaar-is~a52ef9c6/)
-  > Utrechter Richard den Hartog schrikt zich kapot als hij erachter komt dat de kosten voor het onderhoud van zijn cv-ketel zijn verdubbeld....
-- [Opinie: ‘Statiegeldsysteem moet geen gokspel worden’](https://www.ad.nl/praat-mee/opinie-statiegeldsysteem-moet-geen-gokspel-worden~a66323bd/)
-  > De statiegeldloterij is een ongewenste prikkel, stellen Judith Noijen, Ruth van Holst en Tony van Rooij. Terwijl je je eigen geld ontvangt voor...
-- [Max Verstappen voelt zich goed in straten Bakoe, motorproblemen voor Isack Hadjar en Kimi Antonelli](https://www.ad.nl/formule-1/max-verstappen-voelt-zich-goed-in-straten-bakoe-motorproblemen-voor-isack-hadjar-en-kimi-antonelli~a452d2c2/)
-  > Het is een donderdag, maar het Formule 1-weekend gaat toch echt van start. In de straten Bakoe gaan de coureurs op zoek naar het vertrouwen tussen de...
-- [Verslaggever Sebastiaan keek uren naar online seksueel misbruik van BN'ers: 'Ze reageerden vol ongeloof'](https://www.ad.nl/tech/verslaggever-sebastiaan-keek-uren-naar-online-seksueel-misbruik-van-bn-ers-ze-reageerden-vol-ongeloof~a30d7fbd/)
-  > Twee jaar nadat verslaggever Sebastiaan Quekel de daders achter een internationaal deepfakepornonetwerk ontmaskerde, slaan vijftien vrouwelijke...
+- [Gevangenen nóg meer dan twee weken strafkorting geven? Staatssecretaris sluit het niet uit](https://www.ad.nl/politiek/gevangenen-nog-meer-dan-twee-weken-strafkorting-geven-staatssecretaris-sluit-het-niet-uit~ab465776/)
+  > Nu al worden veel gevangenen twee weken voor het einde van hun straf vrijgelaten uit de cel, omdat er een cellentekort is. Maar dat zou zomaar méér...
+- [Vrouwelijke coureur Chadwick test auto Williams, Alpine dreigt met boycot na haatberichten richting Gasly](https://www.ad.nl/formule-1/vrouwelijke-coureur-chadwick-test-auto-williams-alpine-dreigt-met-boycot-na-haatberichten-richting-gasly~afd17814/)
+  > De Formule 1 dendert door in deze periode. Er staan maar liefst negen races in de komende twaalf weken gepland. Volg alle ontwikkelingen hier.
+- [Onze lezers willen Veerman op het middenveld en Brobbey in de spits: dit is volgens jullie de ideale opstelling van Xavi](https://www.ad.nl/voetbal/onze-lezers-willen-veerman-op-het-middenveld-en-brobbey-in-de-spits-dit-is-volgens-jullie-de-ideale-opstelling-van-xavi~af572c3e/)
+  > Xavi Hernández debuteert vanavond als bondscoach van het Nederlands elftal tegen Duitsland. Over de opstelling bleef de Spanjaard zelf nog wat...
+- [Werkgevers kijken soms mee op je socials en dat kan je je baan kosten](https://www.ad.nl/werk/werkgevers-kijken-soms-mee-op-je-socials-en-dat-kan-je-je-baan-kosten~a8fc8c9f/)
+  > Als je gaat solliciteren, wordt je profiel op sociale media soms ook bekeken, dus let op wat je erop plaatst: het zou zomaar gevolgen kunnen hebben...
+- [André Hazes koopt samen met oud-voetballers huis in Spanje: ‘Mama, I made it’](https://www.ad.nl/show/andre-hazes-koopt-samen-met-oud-voetballers-huis-in-spanje-mama-i-made-it~a71158ae0/)
+  > André Hazes heeft een huis gekocht in Spanje. Dat vertelt hij in de podcast ADHAZES, waarin ook zus Roxeanne te horen is. De zanger heeft de woning...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [De Rijn stevent alweer af op nieuwe laagwaterrecords](https://fd.nl/bedrijfsleven/1612959/de-rijn-stevent-alweer-af-op-nieuwe-laagwaterrecords)
-  > Het regenwater dat eind augustus voor minimale verlichting zorgde, is weer in de zee verdwenen. De laatste voorspellingen geven aan dat het...
-- [Italiaanse staat wil ook controle over telecomaanbieder TIM](https://fd.nl/bedrijfsleven/1612947/italiaanse-staat-wil-ook-controle-over-telecomaanbieder-tim)
-  > Poste Italiane, voor twee derde in handen van de staat, hoopt deze week de overname van het voormalige Telecom Italia rond te krijgen. Dit moet de...
-- [Merzschmerz](https://fd.nl/financiele-markten/1613076/merzschmerz)
-  > Extreemrechtse partijen zijn over het algemeen economisch links, schrijft FD-columnist Corné van Zeijl. Ze maken keuzes die de kiezer pleziert maar...
-- [‘Groei kost simpelweg veel geld en je vraagt je wel eens af of je het terugverdient’](https://fd.nl/bedrijfsleven/1612425/groei-kost-simpelweg-veel-geld-en-je-vraagt-je-wel-eens-af-of-je-het-terugverdient)
-  > FD Gazellen vertellen over hun sprong vooruit. Het Zaltbommelse Mavro groeit hard met zijn antigraffitimiddelen en schoonmaakproducten. Met fraaie...
-- [Voetbalbaas wint de door Marokkanen massaal genegeerde verkiezingen](https://fd.nl/politiek/1613079/voetbalbaas-wint-de-door-marokkanen-massaal-genegeerde-verkiezingen)
-  > Fouzi Lekjaa is sinds 2021 de Marokkaanse minister van begrotingszaken. Minder dan een kwart van de kiesgerechtigden kwam opdagen bij de stembus.
+- [Meer ontslagen door faillissementen en reorganisaties](https://fd.nl/economie/1613180/meer-ontslagen-door-faillissementen-en-reorganisaties)
+  > In 2025 kwam 8,1% van de ontslagen werknemers op straat te staan om bedrijfseconomische redenen. Dat is anderhalf keer zoveel als drie jaar eerder.
+- [Mogelijk opnieuw datalek rond Revolut](https://fd.nl/financiele-markten/1613096/mogelijk-opnieuw-datalek-rond-revolut)
+  > Via voormalig partner DriveWealth zijn mogelijk klantgegevens van Revolut-gebruikers buitgemaakt. De omvang van het lek is nog onduidelijk.
+- [Er is geen rivier die ons zoveel brengt, maar de Rijn is moe](https://fd.nl/opinie/1612347/er-is-geen-rivier-die-ons-zoveel-brengt-maar-de-rijn-is-moe)
+  > Nog nooit stond het waterpeil van de Rijn zo laag als deze zomer. Terwijl we voor de economie afhankelijk zijn van de rivier. Vragen we die niet te...
+- [Zweedse kroegbazen blij: keuken niet langer verplicht voor alcoholvergunning](https://fd.nl/bedrijfsleven/1612968/zweedse-kroegbazen-blij-keuken-niet-langer-verplicht-voor-alcoholvergunning)
+  > Zweden versoepelt zijn bekende strenge alcoholbeleid: wie alcohol wil verkopen hoeft geen voedsel meer te serveren. Göteborg heeft al een...
+- [Kant in de mannenmode: ‘Er is behoefte aan versiering in het leven’](https://fd.nl/samenleving/1612952/kant-in-de-mannenmode-er-is-behoefte-aan-versiering-in-het-leven)
+  > Blouses en broeken met kant, dat dragen toch alleen vrouwen? Nee, zag auteur Dorothé Duijves toen ze afgelopen zomer meerdere festivals bezocht waar...
 
 ### Meest gelezen
 
