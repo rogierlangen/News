@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-09-2026 om 01:15*
+*Laatst bijgewerkt: 25-09-2026 om 07:22*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Handen af van Internationaal Strafhof, waarschuwt Jetten bij VN](https://nos.nl/l/2632413)
-  > Premier Jetten heeft in een toespraak bij de Verenigde Naties uitgehaald naar de Amerikaanse president Trump en zijn taal over het Internationaal...
-- [Zoekende ouders vinden 1600 melktanden in Mexico, waar steeds meer massagraven worden ontdekt](https://nos.nl/l/2632412)
-  > Zelfs voor Mexico, een land waar alle vormen van geweld dagelijks het nieuws domineren, is het een gruwelijk bericht. Een groep ouders van vermisten,...
-- [Macklemore kondigt concerten aan, opbrengst naar hulporganisaties voor Palestijnen](https://nos.nl/l/2632387)
-  > De Amerikaanse rapper Macklemore begint een concertreeks onder de naam 'Free Palestine'. Vorige week werd hij nog uit de Amerikaanse stadiontournee...
-- [Politie maakt einde aan anti-azc-protest in Kesteren, meerdere aanhoudingen](https://nos.nl/l/2632383)
-  > De politie heeft vanavond in het Gelderse dorp Kesteren een protest beëindigd tegen de mogelijke komst van een asielzoekerscentrum. Daarbij zijn...
-- [Werkgevers worstelen met groeiend verzuim door stress: 'Je moet er op tijd bij zijn'](https://nos.nl/l/2632382)
-  > Slecht slapen, moeilijk concentreren of langdurig hoofdpijn. Het aantal dagen dat werknemers thuiszaten door stress gerelateerde klachten nam in vijf...
+- [Merwedebrug drie dagen dicht, vanmiddag veel hinder verwacht](https://nos.nl/l/2632437)
+  > De Merwedebrug op de A27 is sinds gisteravond dicht voor drie dagen. De verwachting is dat dit vooral vanmiddag tot veel overlast leidt.
+        De...
+- [Man die werd geraakt bij aanslag op Trump in 2024 overleden](https://nos.nl/l/2632436)
+  > Een van de drie mannen die werden geraakt bij de mislukte moordaanslag op de Amerikaanse president Trump in 2024 is overleden. De man, James...
+- [Bijna helft Nederlanders ervaart sociale overlast, vooral door hangjongeren](https://nos.nl/l/2632434)
+  > Bijna de helft van de Nederlanders ervaart sociale overlast in de eigen buurt. Vooral hangjongeren veroorzaken hinder, meldt het CBS op basis van de...
+- [Kraan valt op huis VS bij berging van andere kraan die op huis was gevallen](https://nos.nl/l/2632430)
+  > In de Amerikaanse stad Fort Lauderdale is in korte tijd twee keer een kraan op een huis gevallen. Nadat de eerste kraanwagen was gekanteld en op het...
+- [Italië verbiedt boerka en beperkt aantal buitenlandse kinderen in klaslokalen](https://nos.nl/l/2632428)
+  > De Italiaanse regering heeft een decreet aangenomen dat een maximum stelt aan het aantal leerlingen per klaslokaal met beperkte kennis van de...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Premier Jetten in eerste speech VN: handen af van Internationaal Strafhof](https://www.ad.nl/buitenland/premier-jetten-in-eerste-speech-vn-handen-af-van-internationaal-strafhof~a13c268f/)
-  > Handen af van het Internationaal Strafhof (ICC) en alle andere instituties die de internationale rechtsorde beschermen. Dat was de belangrijkste...
-- [Mathieu van der Poel wil niets weten van favorietenrol op WK: ‘Maar het is ook niet onmogelijk’](https://www.ad.nl/wielrennen/mathieu-van-der-poel-wil-niets-weten-van-favorietenrol-op-wk-maar-het-is-ook-niet-onmogelijk~abc8be37a/)
-  > Mathieu van der Poel ziet het parkoers van de wereldkampioenschappen wielrennen in Montreal als een lastigere versie van de WK in Glasgow, waar hij...
-- [Voetbalpodcast | ‘Wat een geweldige goal van Cody Gakpo en nog mooiere voorzet van Ruben van Bommel’](https://www.ad.nl/voetbal/voetbalpodcast-wat-een-geweldige-goal-van-cody-gakpo-en-nog-mooiere-voorzet-van-ruben-van-bommel~a42af5cd9/)
-  > Een punt. Dat was de opbrengst van de eerste interland van Oranje onder Xavi Hernández. Al voelde het 1-1 gelijkspel tegen Duitsland misschien wel...
-- [Aanvaller van Israël krijgt rode kaart na schietgebaar met cornervlag](https://www.ad.nl/voetbal/aanvaller-van-israel-krijgt-rode-kaart-na-schietgebaar-met-cornervlag~af71f302/)
-  > De Israëlische aanvaller Saied Abu Farchi (20) is donderdagavond van het veld gestuurd nadat hij zijn doelpunt tegen Oostenrijk vierde door met de...
-- [Xavi gaat nieuwe spits oproepen na uitvallen Brian Brobbey: ‘We gaan nu beslissen wie dat moet worden’](https://www.ad.nl/voetbal/xavi-gaat-nieuwe-spits-oproepen-na-uitvallen-brian-brobbey-we-gaan-nu-beslissen-wie-dat-moet-worden~a4100adb/)
-  > Brian Brobbey heeft tegen Duitsland na een halfuur spelen het veld moeten verlaten met een spierblessure. Het lijkt om een hamstringblessure te gaan.
+- [Jong Oranje moet aan de bak: zo kan Nederland het EK Onder 21 alsnog halen](https://www.ad.nl/voetbal/jong-oranje-moet-aan-de-bak-zo-kan-nederland-het-ek-onder-21-alsnog-halen~ab9a8b0f/)
+  > Het EK Onder 21 in Albanië en Servië lijkt voor Jong Oranje voorlopig ver weg, maar de ploeg van Michael Reiziger heeft nog altijd meerdere...
+- [Haar concurrenten hebben ‘alle reden’ om bang te zijn voor dominante Demi Vollering: ‘Ik ga hier lekker op’](https://www.ad.nl/wielrennen/haar-concurrenten-hebben-alle-reden-om-bang-te-zijn-voor-dominante-demi-vollering-ik-ga-hier-lekker-op~adf6401e/)
+  > Demi Vollering is de beste wielrenster ter wereld én ze heeft een betrokken, sfeervolle ploeg om zich heen. Hoe bondscoach Laurens ten Dam en vooral...
+- [Gemiddelde adviesprijs benzine stijgt naar nieuw record](https://www.ad.nl/binnenland/gemiddelde-adviesprijs-benzine-stijgt-naar-nieuw-record~a9bc78b3/)
+  > De gemiddelde adviesprijs van benzine is gestegen naar een nieuw record. Dat meldt consumentenvoordeelplatform UnitedConsumers. De adviesprijs ligt...
+- [Levensgevaarlijke actie: volgwagen vliegt over smal parcours, Spaanse ploegleider uit WK gezet](https://www.ad.nl/wielrennen/levensgevaarlijke-actie-volgwagen-vliegt-over-smal-parcours-spaanse-ploegleider-uit-wk-gezet~a40fa91f/)
+  > Het WK wielrennen in Montréal veranderde even in een rallywedstrijd. Een Spaanse ploegleider scheurde met enorme snelheid over het parcours in de...
+- [Eerste grondvorst sinds de zomer gemeten: temperatuur daalde vannacht tot -0,4 graden](https://www.ad.nl/binnenland/eerste-grondvorst-sinds-de-zomer-gemeten-temperatuur-daalde-vannacht-tot-0-4-graden~a80b086e/)
+  > De nazomer staat voor de deur, maar vanochtend was het nog even bibberen. Voor het eerst dit najaar is grondvorst gemeten: op het meetpunt in Twente...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Zorgt strengere aanpak van ‘amorele’ scheefhuurders voor doorstroming op woningmarkt?](https://fd.nl/politiek/1612971/zorgt-strengere-aanpak-van-amorele-scheefhuurders-voor-doorstroming-op-woningmarkt)
-  > Het kabinet wil scheefhuurders meer laten betalen en mensen met een flinke spaarpot weren uit de sociale huursector. Maar experts en corporaties...
-- [Disruptieve innovatie](https://fd.nl/opinie/1613187/disruptieve-innovatie)
-  > Prachtig hoor, dat Nationaal Agentschap voor Disruptieve Innovatie, vindt columnist Mathijs Bouman. Maar zal het de volgende bezuinigingsronde...
-- [Randstad-topman: ‘Jongeren langs de kant in krappe arbeidsmarkt is onuitlegbaar’](https://fd.nl/economie/1613081/randstad-topman-jongeren-langs-de-kant-in-krappe-arbeidsmarkt-is-onuitlegbaar)
-  > Steeds meer mensen hebben geen baan, terwijl in bepaalde sectoren een groot personeelstekort is. Die tegenstelling is maatschappelijk en economisch...
-- [Stopt de strontargumenten en de trekkerterreur](https://fd.nl/opinie/1612881/stopt-de-strontargumenten-en-de-trekkerterreur)
-  > Sinds de start van het Gemeenschappelijk Landbouwbeleid verdeelden boeren miljarden aan steun. Toch zijn ze altijd boos. Op de politiek, het weer. Of...
-- [Personalia vrijdag 25 september](https://fd.nl/bedrijfsleven/1613090/personalia-vrijdag-25-september)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [De grote groeigok van de VS: hoe AI de rente ook weer kan laten dalen](https://fd.nl/economie/1613097/de-grote-groeigok-van-de-vs-hoe-ai-de-rente-ook-weer-kan-laten-dalen)
+  > Gaat de AI-revolutie de Amerikaanse overheid verlossen van haar torenhoge rentelast? Economen achten het een mogelijk scenario, maar beleidsmatig is...
+- [Juridische druk op bronnen en journalisten dreigt het publieke debat te verstoren](https://fd.nl/opinie/1613083/juridische-druk-op-bronnen-en-journalisten-dreigt-het-publieke-debat-te-verstoren)
+  > De deze week verschenen ongeautoriseerde biografie over Bunq-oprichter Ali Niknam illustreert hoever partijen gaan in het zetten van juridische...
+- [‘Britten willen toegang tot Made in Europe, maar moeten concessies doen’](https://fd.nl/economie/1613278/britten-willen-toegang-tot-made-in-europe-maar-moeten-concessies-doen)
+  > Heffingen tot 45% op Chinese elektrische auto’s zal Londen moeten instellen om mee te kunnen doen aan een Europees voorkeursprogramma voor subsidies...
+- [Van Weel overleeft motie van wantrouwen na verkeerd inlichten Kamer](https://fd.nl/politiek/1613107/van-weel-overleeft-motie-van-wantrouwen-na-verkeerd-inlichten-kamer)
+  > In een debat dat tot na middernacht duurde, bood de minister zijn excuses aan. Hij had het rapport van de Rekenkamer niet willen bagatelliseren, zei...
+- [Nederland wil af van verplicht vullen van dure gasberging](https://fd.nl/politiek/1613181/nederland-wil-af-van-verplicht-vullen-van-dure-gasberging)
+  > Het vullen van de bergingen is duur, vooral voor Nederland, terwijl het voor de leveringszekerheid niet meer nodig is, aldus het kabinet.
 
 ### Meest gelezen
 
