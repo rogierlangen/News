@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-09-2026 om 16:57*
+*Laatst bijgewerkt: 26-09-2026 om 19:40*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Tientallen voetbalsupporters met elkaar op de vuist in Eindhoven](https://nos.nl/l/2632657)
+  > Zo'n zeventig voetbalsupporters zijn met elkaar op de vuist gegaan in Eindhoven. De vechtpartij tussen de supporters van VVV-Venlo en fans van PSV...
+- [Na weer een dag begrotingsgesprekken klinkt optimisme, maar zijn ze ook echt dichterbij?](https://nos.nl/l/2632652)
+  > Voor het eerst in de zoektocht van het kabinet naar steun voor de begroting klinken er vandaag positievere geluiden. Met name Pro, Volt en de...
+- [Nieuw noodweer in Nepal maakt hulpverlening lastig, vrees voor aardverschuivingen](https://nos.nl/l/2632648)
+  > "Soms weet ik niet of dit een droom is of de werkelijkheid", zegt Deki Thokra, terwijl ze dikke stukken yakkaas snijdt. Haar winkel houdt haar op de...
 - [Amerikaanse ambassadeur reageert fel op Jetten: 'ICC moet handen afhouden van VS'](https://nos.nl/l/2632633)
   > "Handen af van het ICC", sprak premier Rob Jetten donderdag tijdens de Algemene Vergadering van de Verenigde Naties in New York. De Amerikaanse...
 - [Opnieuw dode vrouw gevonden bij Johannesburg, nu al tien](https://nos.nl/l/2632629)
   > Opnieuw is bij de Zuid-Afrikaanse stad Johannesburg een dode vrouw gevonden. Dat heeft een lokale politiecommissaris bevestigd, schrijft het lokale...
-- [Burgemeester vindt bezoeken oude echtparen zonde van tijd, raad kritisch](https://nos.nl/l/2632616)
-  > In de gemeente Goeree-Overflakkee is al maandenlang gemor over hoe echtparen die 60 jaar getrouwd zijn in het zonnetje gezet kunnen worden....
-- [Honderdduizenden mensen op de been voor openluchtmis paus Leo in Parijs](https://nos.nl/l/2632614)
-  > In Parijs hebben honderdduizenden mensen zich verzameld voor een openluchtmis van paus Leo. Volgens de organisatie hebben 600.000 mensen zich ervoor...
-- [Nieuwe beelden: verdachte Amsterdam-Noord tierde na fataal schot](https://nos.nl/l/2632599)
-  > Op nieuwe beelden van kort na het dodelijke schietincident op een vol terras gistermiddag op het NDSM-terrein in Amsterdam-Noord, is te zien hoe de...
 
 ### Meest gelezen
 
@@ -27,16 +27,15 @@
 
 ### Laatste nieuws
 
-- [LIVE WK wielrennen | Vollering valt aan! Nederlandse kopvrouw lost iedereen en begint aan lange solo](https://www.ad.nl/wielrennen/live-wk-wielrennen-vollering-valt-aan-nederlandse-kopvrouw-lost-iedereen-en-begint-aan-lange-solo~a017601dc/)
-  > De wegrit voor de vrouwen op de WK wielrennen gaat richting de finale. Demi Vollering is een van de kanshebbers op het heuvelachtige parkoers en zit...
-- [Georgië ontslaat bondscoach, Zwitsers zetten Breel Embolo uit selectie](https://www.ad.nl/voetbal/georgie-ontslaat-bondscoach-zwitsers-zetten-breel-embolo-uit-selectie~a0a4e56d/)
-  > De komende weken staan in het teken van interlandvoetbal. Oranje speelt vier duels in de Nations League, maar naast Xavi debuteren ook Mark van...
-- [Het ‘grootste sportschandaal’ ooit in Engeland: wat hangt Manchester City boven het hoofd na fraude?](https://www.ad.nl/voetbal/het-grootste-sportschandaal-ooit-in-engeland-wat-hangt-manchester-city-boven-het-hoofd-na-fraude~aff380dd/)
-  > Het schandaal rond Manchester City houdt Engeland in zijn greep. In afwachting van de strafmaat strijden leedvermaak en angst voor de toekomst van de...
-- [Jonge (ex-)kankerpatiënten dragen hun ziekte voor altijd bij zich: zij laten hun tattoo zien](https://www.ad.nl/binnenland/jonge-ex-kankerpatienten-dragen-hun-ziekte-voor-altijd-bij-zich-zij-laten-hun-tattoo-zien~a7a014dc/)
-  > Een tatoeage van een scheermes symboliseert voor Jelt van Ede de tijd waarin hij behandeld werd tegen kanker. Hij is niet de enige met zo’n...
-- [Live MMA | Levi Rigters en Roy Meyer maken zich op voor MMA-debuut in Den Bosch, eerste Nederlandse zege een feit](https://www.ad.nl/vechtsport/live-mma-levi-rigters-en-roy-meyer-maken-zich-op-voor-mma-debuut-in-den-bosch-eerste-nederlandse-zege-een-feit~ad9c93f9/)
-  > Een spannende dag voor voormalig kickbokser Levi Rigters en oud-judoka Roy Meyer. Beiden zetten ze vanavond tijdens het Levels Fight League-gala in...
+- [MVV verdubbelt voorsprong, FC Eindhoven brengt spanning terug in Breda](https://www.ad.nl/voetbal/mvv-verdubbelt-voorsprong-fc-eindhoven-brengt-spanning-terug-in-breda~a878f7fa/)
+  > Heracles wint zonder al te veel problemen met 2-0 van Vitesse. De koploper begon de eerste wedstrijd van vandaag om 16.30 uur en stelde daarin de...
+- [LIVE Nations League | Engeland draait vermakelijk duel met wereldkampioen Spanje helemaal om](https://www.ad.nl/voetbal/live-nations-league-engeland-draait-vermakelijk-duel-met-wereldkampioen-spanje-helemaal-om~a5a8b062/)
+  > Een heerlijk affiche vanavond in de Nations League: wereldkampioen Spanje speelt op Wembley tegen Engeland, dat op het WK strandde in de halve...
+- [Zelfs een val is ingewikkeld bij dit minderheidskabinet](https://www.ad.nl/politiek/zelfs-een-val-is-ingewikkeld-bij-dit-minderheidskabinet~aa2e643c/)
+  > Nieuwe verkiezingen konden weleens ver weg zijn. Want wanneer valt eigenlijk een minderheidskabinet? Politieke trauma’s uit het verleden zitten het...
+- [LIVE Oranje | Oranje compleet richting Servië, Xavi rekent op fysieke tegenstander](https://www.ad.nl/voetbal/live-oranje-oranje-compleet-richting-servie-xavi-rekent-op-fysieke-tegenstander~a5f47249d/)
+- [Brandstofprijs bereikt opnieuw een record, hoogste prijs ooit in Nederland](https://www.ad.nl/economie/brandstofprijs-bereikt-opnieuw-een-record-hoogste-prijs-ooit-in-nederland~abc64bc50/)
+  > De gemiddelde prijs voor benzine heeft zaterdag opnieuw een record verbroken. De adviesprijs voor een liter benzine ligt nu op 2,729 euro, meldt...
 
 ### Meest gelezen
 
@@ -48,8 +47,8 @@
 
 - [‘Trump verwacht meer bombardementen na de tussentijdse verkiezingen’](https://fd.nl/politiek/1613327/trump-verwacht-meer-bombardementen-na-de-tussentijdse-verkiezingen)
   > De Amerikaanse president Donald Trump heeft een voorstel van Iran voor een staakt-het-vuren van zeven dagen afgewezen, schrijft de Wall Street...
-- [Oppositiepartijen voor het eerst optimistisch na gesprek met kabinet](https://fd.nl/politiek/1613388/oppositiepartijen-voor-het-eerst-optimistisch-na-gesprek-met-kabinet)
-  > Zowel Pro als ChristenUnie laat voor het eerst positieve geluiden horen over de beweging die het minderheidskabinet maakt.
+- [Linkse partijen positief na gesprek met kabinet, rechts is ‘niet superenthousiast’](https://fd.nl/politiek/1613388/oppositiepartijen-voor-het-eerst-optimistisch-na-gesprek-met-kabinet)
+  > Zowel Pro als ChristenUnie laat voor het eerst positieve geluiden horen over de beweging die het minderheidskabinet maakt. JA21 en SGP zijn...
 - [‘Fraudeurs gebruikten AI om miljoenen van Italiaanse bank te stelen’](https://fd.nl/financiele-markten/1613387/fraudeurs-gebruikten-ai-om-miljoenen-van-italiaanse-bank-te-stelen)
   > Fraudeurs hebben met behulp van kunstmatige intelligentie € 95 mln gestolen van Intesa Sanpaolo, de grootste bank van Italië.
 - [OpenAI-agents publiceren op eigen initiatief afbeeldingen van gebruikers](https://fd.nl/samenleving/1613324/chatgpt-agents-publiceren-op-eigen-initiatief-afbeeldingen-van-gebruikers)
