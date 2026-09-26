@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-09-2026 om 19:40*
+*Laatst bijgewerkt: 26-09-2026 om 22:32*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Twee gewonden bij steekpartij Eindhoven, verdachten op A58 opgepakt](https://nos.nl/l/2632680)
+  > Bij een steekpartij in een woonwijk in Eindhoven zijn twee mensen gewond geraakt. Mogelijk is er bij het incident aan de Remichweg ook geschoten....
+- [Duizenden demonstranten bij protest tegen woningcrisis in Spanje](https://nos.nl/l/2632672)
+  > Duizenden mensen zijn vandaag in de Spaanse hoofdstad Madrid de straat opgegaan om te protesteren tegen de woningcrisis. De demonstranten willen...
+- [Hoe Frankrijk lagere inkomens helpt aan een elektrische auto](https://nos.nl/l/2632671)
+  > Met een steunplan voor tweedehands elektrische auto's wil Nederland elektrisch rijden toegankelijker maken. In Frankrijk bestaat al iets...
 - [Tientallen voetbalsupporters met elkaar op de vuist in Eindhoven](https://nos.nl/l/2632657)
   > Zo'n zeventig voetbalsupporters zijn met elkaar op de vuist gegaan in Eindhoven. De vechtpartij tussen de supporters van VVV-Venlo en fans van PSV...
 - [Na weer een dag begrotingsgesprekken klinkt optimisme, maar zijn ze ook echt dichterbij?](https://nos.nl/l/2632652)
   > Voor het eerst in de zoektocht van het kabinet naar steun voor de begroting klinken er vandaag positievere geluiden. Met name Pro, Volt en de...
-- [Nieuw noodweer in Nepal maakt hulpverlening lastig, vrees voor aardverschuivingen](https://nos.nl/l/2632648)
-  > "Soms weet ik niet of dit een droom is of de werkelijkheid", zegt Deki Thokra, terwijl ze dikke stukken yakkaas snijdt. Haar winkel houdt haar op de...
-- [Amerikaanse ambassadeur reageert fel op Jetten: 'ICC moet handen afhouden van VS'](https://nos.nl/l/2632633)
-  > "Handen af van het ICC", sprak premier Rob Jetten donderdag tijdens de Algemene Vergadering van de Verenigde Naties in New York. De Amerikaanse...
-- [Opnieuw dode vrouw gevonden bij Johannesburg, nu al tien](https://nos.nl/l/2632629)
-  > Opnieuw is bij de Zuid-Afrikaanse stad Johannesburg een dode vrouw gevonden. Dat heeft een lokale politiecommissaris bevestigd, schrijft het lokale...
 
 ### Meest gelezen
 
@@ -27,15 +27,16 @@
 
 ### Laatste nieuws
 
-- [MVV verdubbelt voorsprong, FC Eindhoven brengt spanning terug in Breda](https://www.ad.nl/voetbal/mvv-verdubbelt-voorsprong-fc-eindhoven-brengt-spanning-terug-in-breda~a878f7fa/)
-  > Heracles wint zonder al te veel problemen met 2-0 van Vitesse. De koploper begon de eerste wedstrijd van vandaag om 16.30 uur en stelde daarin de...
-- [LIVE Nations League | Engeland draait vermakelijk duel met wereldkampioen Spanje helemaal om](https://www.ad.nl/voetbal/live-nations-league-engeland-draait-vermakelijk-duel-met-wereldkampioen-spanje-helemaal-om~a5a8b062/)
-  > Een heerlijk affiche vanavond in de Nations League: wereldkampioen Spanje speelt op Wembley tegen Engeland, dat op het WK strandde in de halve...
-- [Zelfs een val is ingewikkeld bij dit minderheidskabinet](https://www.ad.nl/politiek/zelfs-een-val-is-ingewikkeld-bij-dit-minderheidskabinet~aa2e643c/)
-  > Nieuwe verkiezingen konden weleens ver weg zijn. Want wanneer valt eigenlijk een minderheidskabinet? Politieke trauma’s uit het verleden zitten het...
-- [LIVE Oranje | Oranje compleet richting Servië, Xavi rekent op fysieke tegenstander](https://www.ad.nl/voetbal/live-oranje-oranje-compleet-richting-servie-xavi-rekent-op-fysieke-tegenstander~a5f47249d/)
-- [Brandstofprijs bereikt opnieuw een record, hoogste prijs ooit in Nederland](https://www.ad.nl/economie/brandstofprijs-bereikt-opnieuw-een-record-hoogste-prijs-ooit-in-nederland~abc64bc50/)
-  > De gemiddelde prijs voor benzine heeft zaterdag opnieuw een record verbroken. De adviesprijs voor een liter benzine ligt nu op 2,729 euro, meldt...
+- [Perisic belangrijk voor Kroatië, John van ‘t Schip debuteert met gelijkspel als bondscoach van Kazachstan](https://www.ad.nl/voetbal/perisic-belangrijk-voor-kroatie-john-van-t-schip-debuteert-met-gelijkspel-als-bondscoach-van-kazachstan~aaea338c/)
+  > Naast de topper tussen Engeland en Spanje werd er nog volop gevoetbald in de Nations League. John Van ‘t Schip debuteerde onder meer als bondscoach...
+- [Levi Rigters en Roy Meyer hebben nog geen minuut nodig voor overwinningen bij MMA-debuut in Den Bosch](https://www.ad.nl/vechtsport/levi-rigters-en-roy-meyer-hebben-nog-geen-minuut-nodig-voor-overwinningen-bij-mma-debuut-in-den-bosch~ad9c93f9/)
+  > Voormalig Glory-zwaargewicht Levi Rigters en oud-judoka Roy Meyer hebben hun MMA-debuut bekroond met dominante zeges. Beiden hadden bij de de Levels...
+- [Acht gewonden door steekvlam tijdens buurtbarbecue in Gronings Dorp](https://www.ad.nl/binnenland/acht-gewonden-door-steekvlam-tijdens-buurtbarbecue-in-gronings-dorp~a9e4edc30/)
+  > Tijdens een buurtbarbecue in De Wilp zijn zaterdagavond meerdere mensen zwaargewond geraakt door een plotselinge steekvlam. Meerdere aanwezigen...
+- [Wereldkampioen Spanje verslaat Engeland in heerlijk voetbalfeestje op Wembley](https://www.ad.nl/voetbal/wereldkampioen-spanje-verslaat-engeland-in-heerlijk-voetbalfeestje-op-wembley~a5a8b062/)
+  > Spanje is de winning mood van het WK nog niet verloren. De wereldkampioen versloeg Engeland zaterdagavond in een vermakelijk Nations League-duel op...
+- [‘Bedoel je dat écht?’ Bondscoach Ten Dam moest ploeg overtuigen van riskante tactiek, Vollering deed de rest](https://www.ad.nl/wielrennen/bedoel-je-dat-echt-bondscoach-ten-dam-moest-ploeg-overtuigen-van-riskante-tactiek-vollering-deed-de-rest~af97fda1/)
+  > Aan de prachtige, zwaarbevochten wereldtitel van Demi Vollering gaat een sterke ontwikkeling van haarzelf vooraf, maar ook een goed plan. Hoe de...
 
 ### Meest gelezen
 
