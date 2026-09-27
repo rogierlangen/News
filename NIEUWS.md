@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-09-2026 om 01:12*
+*Laatst bijgewerkt: 27-09-2026 om 07:49*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Duizenden bezoekers voor open dag azc's: 'Benieuwd wat er achter die deuren zit'](https://nos.nl/l/2632683)
-  > De open dag van asielzoekerscentra in het hele land is gisteren bezocht door 23.000 mensen. Het Centraal Orgaan opvang Asielzoekers (COA) spreekt van...
-- [Merwedebrug weer open na werkzaamheden, sneller dan verwacht](https://nos.nl/l/2632682)
-  > De Merwedebrug in de A27 bij Gorinchem is weer open. De brug was sinds donderdagavond dicht vanwege werkzaamheden en zou tot maandagochtend 5 uur...
-- [Meerdere gewonden door steekvlam op buurtfeest in De Wilp](https://nos.nl/l/2632681)
-  > Bij een buurtfeest in het Groningse dorp De Wilp zijn meerdere mensen gewond geraakt door een steekvlam. Volgens journalisten ter plaatse had iemand...
-- [Twee gewonden bij steekpartij Eindhoven, verdachten op A58 opgepakt](https://nos.nl/l/2632680)
-  > Bij een steekpartij in een woonwijk in Eindhoven zijn twee mensen gewond geraakt. Mogelijk is er bij het incident aan de Remichweg ook geschoten....
-- [Duizenden demonstranten bij protest tegen woningcrisis in Spanje](https://nos.nl/l/2632672)
-  > Duizenden mensen zijn vandaag in de Spaanse hoofdstad Madrid de straat opgegaan om te protesteren tegen de woningcrisis. De demonstranten willen...
+- [OpenAI pauzeert training modellen na aanval op overheidswebsites](https://nos.nl/l/2632698)
+  > Het Amerikaanse bedrijf OpenAI heeft de training van zijn AI-modellen tijdelijk stopgezet. Aanleiding zijn de aanvallen van Open AI-agents afgelopen...
+- [17 doden bij schietpartij met AK-47's in café Johannesburg, ook bij Kaapstad 10 doden](https://nos.nl/l/2632697)
+  > In en voor een café in het Zuid-Afrikaanse dorpje Wedela, ten zuidwesten van Johannesburg, hebben acht schutters met AK-47's en andere vuurwapens...
+- [Voor Libië belangrijke oliepijpleiding heropend na sluiting door gewapende groepering](https://nos.nl/l/2632696)
+  > De voor Libië uiterst belangrijke oliepijpleiding die eerder deze week door een gewapende groep werd dichtgedraaid, is weer open. Pijpleiding 7, die...
+- [EU stelt 710 miljoen euro extra beschikbaar voor vluchtelingen en noodhulp wereldwijd](https://nos.nl/l/2632693)
+  > De Europese Commissie stelt bijna 710 miljoen euro beschikbaar voor vluchtelingen en noodhulp wereldwijd. Het grootste deel van het geld gaat naar...
+- [Universiteit was te laks in beveiliging Charlie Kirk](https://nos.nl/l/2632692)
+  > De Utah Valley University heeft steken laten vallen bij de beveiliging van het evenement waar vorig jaar de omstreden politiek activist Charlie Kirk...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Vier doden bij helikoptercrash in Canada, in de buurt van WK wielrennen](https://www.ad.nl/buitenland/vier-doden-bij-helikoptercrash-in-canada-in-de-buurt-van-wk-wielrennen~ab50c866/)
-  > In de Canadese provincie Québec zijn zaterdag vier mensen om het leven gekomen bij een helikoptercrash. De plek van het ongeluk ligt op slechts een...
-- [EU trekt noodhulppakket van ruim 700 miljoen euro uit voor crises wereldwijd](https://www.ad.nl/buitenland/eu-trekt-noodhulppakket-van-ruim-700-miljoen-euro-uit-voor-crises-wereldwijd~a6c4b0694/)
-  > De Europese Unie heeft een hulppakket van ruim 700 miljoen euro vrijgemaakt om crises over de hele wereld aan te pakken. Dat heeft Europees...
-- [Meerdere gewonden door steekvlam bij buurtbarbecue De Wilp](https://www.ad.nl/binnenland/meerdere-gewonden-door-steekvlam-bij-buurtbarbecue-de-wilp~a50ea888/)
-  > Bij een buurtbarbecue in het Groningse De Wilp zijn zaterdagavond meerdere mensen gewond geraakt door een steekvlam. Volgens omstanders die met...
-- [Merwedebrug sneller open dan verwacht na werkzaamheden](https://www.ad.nl/binnenland/merwedebrug-sneller-open-dan-verwacht-na-werkzaamheden~af631d43/)
-  > De Merwedebrug is sinds zaterdagavond  weer open. Dat meldt Rijkswaterstaat. Oorspronkelijk zou de brug bij Gorinchem nog tot maandagochtend gesloten...
-- [Perisic belangrijk voor Kroatië, John van ‘t Schip debuteert met gelijkspel als bondscoach van Kazachstan](https://www.ad.nl/voetbal/perisic-belangrijk-voor-kroatie-john-van-t-schip-debuteert-met-gelijkspel-als-bondscoach-van-kazachstan~aaea338c/)
-  > Naast de topper tussen Engeland en Spanje werd er nog volop gevoetbald in de Nations League. John Van ‘t Schip debuteerde onder meer als bondscoach...
+- [Help bondscoach Xavi: wie stel jij op tegen Servië?](https://www.ad.nl/voetbal/help-bondscoach-xavi-wie-stel-jij-op-tegen-servie~ae196cd9/)
+  > Kruip in de huid van bondscoach Xavi Hernández en stel hieronder jouw ideale elftal samen voor de wedstrijd tegen Servië zondagavond.
+- [Dreadlocks tot aan de enkels: voetballer wordt aan extreem lange haren naar de grond getrokken](https://www.ad.nl/voetbal/dreadlocks-tot-aan-de-enkels-voetballer-wordt-aan-extreem-lange-haren-naar-de-grond-getrokken~a914c15e/)
+  > De interlandperiode is er niet alleen voor de toplanden en miljonairsvoetballers. Aedan Scipio, international van Anguilla, is misschien wel een van...
+- [Ingetogen Rigters en showman Meyer winnen MMA-debuut binnen een minuut: ‘Ik ben een man on a mission’](https://www.ad.nl/vechtsport/ingetogen-rigters-en-showman-meyer-winnen-mma-debuut-binnen-een-minuut-ik-ben-een-man-on-a-mission~a8c31569/)
+  > Kickbokser Levi Rigters (31) en voormalig judoka Roy Meyer (35) wonnen allebei snel en overtuigend bij hun debuut in de MMA. Allebei op hun eigen...
+- [Ron onderzoekt mysterieuze sterfgevallen: ‘Na een lange dag chill ik op de begraafplaats’](https://www.ad.nl/binnenland/ron-onderzoekt-mysterieuze-sterfgevallen-na-een-lange-dag-chill-ik-op-de-begraafplaats~aaaecf41/)
+  > De mysterieuze overlijdens mag híj ophelderen. Als forensisch arts onderzocht Ron Remmerswaal (44) al meer dan duizend doden. Het AD kreeg een...
+- [Merwedebrug ruim dag eerder open dan gepland, voorlopig nog wel snelheidsbeperking van 70 km per uur](https://www.ad.nl/binnenland/merwedebrug-ruim-dag-eerder-open-dan-gepland-voorlopig-nog-wel-snelheidsbeperking-van-70-km-per-uur~a3f96219/)
+  > De Merwedebrug in de A27 bij Gorinchem is sinds zaterdagavond laat weer open voor verkeer. De werkzaamheden verliepen volgens Rijkswaterstaat...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘Trump verwacht meer bombardementen na de tussentijdse verkiezingen’](https://fd.nl/politiek/1613327/trump-verwacht-meer-bombardementen-na-de-tussentijdse-verkiezingen)
-  > De Amerikaanse president Donald Trump heeft een voorstel van Iran voor een staakt-het-vuren van zeven dagen afgewezen, schrijft de Wall Street...
-- [Linkse partijen positief na gesprek met kabinet, rechts is ‘niet superenthousiast’](https://fd.nl/politiek/1613388/oppositiepartijen-voor-het-eerst-optimistisch-na-gesprek-met-kabinet)
-  > Zowel Pro als ChristenUnie laat voor het eerst positieve geluiden horen over de beweging die het minderheidskabinet maakt. JA21 en SGP zijn...
-- [‘Fraudeurs gebruikten AI om miljoenen van Italiaanse bank te stelen’](https://fd.nl/financiele-markten/1613387/fraudeurs-gebruikten-ai-om-miljoenen-van-italiaanse-bank-te-stelen)
-  > Fraudeurs hebben met behulp van kunstmatige intelligentie € 95 mln gestolen van Intesa Sanpaolo, de grootste bank van Italië.
-- [OpenAI-agents publiceren op eigen initiatief afbeeldingen van gebruikers](https://fd.nl/samenleving/1613324/chatgpt-agents-publiceren-op-eigen-initiatief-afbeeldingen-van-gebruikers)
-  > Twee incidenten, het publiceren van afbeeldingen van gebruikers en het hacken van overheidsinstanties, vergroten de zorgen over de risico’s van...
-- [‘Neobank Nu overweegt miljardenbod op Britse branchegenoot Monzo’](https://fd.nl/financiele-markten/1613326/neobank-nu-brengt-miljardenbod-uit-op-britse-branchegenoot-monzo)
-  > De Britse neobank Monzo wordt mogelijk overgenomen door de Braziliaanse Nu Bank. Met een eventuele deal zou een bedrag van ten minste £8 mrd gemoeid...
+- [De lancering van een Nationale Investeringsinstelling lost een niet-bestaand probleem op](https://fd.nl/opinie/1612946/de-nationale-investeringsinstelling-lost-een-niet-bestaand-probleem-op)
+  > Het lijkt er niet op dat Nederlandse start- en scale-ups verlegen zitten om de Nationale Investeringsinstelling die het kabinet-Jetten vrijdag in het...
+- [Onduidelijke overheidsregelingen eisen hun tol en leiden tot verlies van vertrouwen](https://fd.nl/opinie/1612867/onduidelijke-overheidsregelingen-eisen-hun-tol)
+  > Burgers worden door onlogische regelingen op een dwaalspoor gezet. De overheid zou zich in hen moeten verplaatsen en duidelijk met hen moeten...
+- [Kantoortijgers die dromen van het onderwijs](https://fd.nl/bedrijfsleven/1613136/kantoortijgers-die-dromen-van-het-onderwijs)
+  > De carrièreswitch vergt een fase van keihard werken en weinig inkomsten, maar de zijinstromers zijn enthousiast.
+- [‘Geen fraaie bevalling’: Wenninks zoektocht naar €100 mrd innovatiegeld](https://fd.nl/tech-en-innovatie/1613277/geen-fraaie-bevalling-wenninks-zoektocht-naar-100-mrd-innovatiegeld)
+  > De oud-ceo van ASML voelde zich soms een roepende in de woestijn tijdens zijn lobby voor een investeringsbank die innovatie in Nederland moet...
+- [Luisterverhaal: Hoe synthetische concurrentie de Antwerpse diamantindustrie ruw uit haar slaap wekte](https://fd.nl/samenleving/1613157/luisterverhaal-hoe-synthetische-concurrentie-de-antwerpse-diamantindustrie-ruw-uit-haar-slaap-wekte)
+  > Deze week hoor je over het uur van de waarheid voor de diamantindustrie
 
 ### Meest gelezen
 
