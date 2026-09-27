@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-09-2026 om 13:41*
+*Laatst bijgewerkt: 27-09-2026 om 18:09*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Zwitsers verwerpen voorstel om striktere vorm van neutraliteit in grondwet op te nemen](https://nos.nl/l/2632738)
-  > De meerderheid van de Zwitserse kiezers heeft tegen een voorstel gestemd om een strengere definitie van neutraliteit in de grondwet op te nemen....
-- [Student in Maastricht geschorst na claim over deelname aan Hamas-aanslagen](https://nos.nl/l/2632736)
-  > De Universiteit Maastricht (UM) heeft een student voorlopig geschorst naar aanleiding van een inmiddels verwijderde videopost op sociale media....
-- [Tientallen doden door zwaar noodweer in India en Nepal](https://nos.nl/l/2632727)
-  > In India en Nepal zijn de afgelopen 48 uur zeker zeventig mensen om het leven gekomen door de enorme hoeveelheid regen die daar is gevallen. Rivieren...
-- [Tieners van de weg gereden en neergestoken in Eindhoven, vijf mannen vast](https://nos.nl/l/2632724)
-  > Twee tieners van 18 en 14 uit Eindhoven zijn gisteravond in hun woonplaats door een grote groep mensen aangevallen. Ze waren kort daarvoor in hun...
-- [Automobilist geeft valse ID-kaart en blijkt nog 6 jaar de cel in te moeten](https://nos.nl/l/2632719)
-  > De politie heeft in Tilburg een automobilist aangehouden die nog zes jaar celstraf in Frankrijk moet uitzitten. Bij het controleren van de ID-kaart...
+- [Was je op school een echte pestkop? Dan kun je de universiteit wel vergeten in Zuid-Korea](https://nos.nl/l/2632783)
+  > Wie zich in Zuid-Korea flink schuldig heeft gemaakt aan pesten, wordt steeds vaker van universiteiten geweerd. Al jaren kampt het land met een...
+- [Vulkaan Etna ontregelt vliegverkeer op Sicilië opnieuw](https://nos.nl/l/2632775)
+  > De vulkanische activiteit van de Etna leidt tot vertragingen en annuleringen in het vliegverkeer van en naar Sicilië. Door de grote hoeveelheid as in...
+- [Paar duizend demonstranten bij protest 'Stop de oorlogskoorts'](https://nos.nl/l/2632764)
+  > In Amsterdam waren vanmiddag enkele duizenden mensen bij het Nationaal Vredesprotest, dat georganiseerd werd door De Nieuwe Vredesbeweging, FNV Young...
+- [Jetten vol optimisme op jubileumcongres D66: 'wij bereiken meer dan schreeuwers'](https://nos.nl/l/2632761)
+  > D66-leider en premier Jetten is vol optimisme dat het minderheidskabinet met zijn partij er in gaat slagen veel voor elkaar te krijgen. In zijn...
+- [Vijf mannen aangehouden voor voorbereiden terroristische aanslag bij RAF-basis in VK](https://nos.nl/l/2632749)
+  > De Britse politie heeft vannacht vijf mannen opgepakt op verdenking van het voorbereiden van een terroristische aanslag. Dat heeft de politie...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Grote kopgroep met bekende namen krijgt ruimte, Nederland en België aan het werk in peloton](https://www.ad.nl/wielrennen/grote-kopgroep-met-bekende-namen-krijgt-ruimte-nederland-en-belgie-aan-het-werk-in-peloton~afb6e2bb/)
+- [Mexx Meerdink zorgt met twee goals tegen Servië voor eerste zege Oranje onder bondscoach Xavi](https://www.ad.nl/voetbal/mexx-meerdink-zorgt-met-twee-goals-tegen-servie-voor-eerste-zege-oranje-onder-bondscoach-xavi~a320a544/)
+  > Servië - Nederland werd zondagavond de wedstrijd van Mexx Meerdink, de AZ-spits die een jaar geleden nog zo tragisch geblesseerd raakte bij Oranje....
+- [Van der Poel maakt indruk en rijdt samen met Roglic en twee anderen weg bij Van Aert en co](https://www.ad.nl/wielrennen/van-der-poel-maakt-indruk-en-rijdt-samen-met-roglic-en-twee-anderen-weg-bij-van-aert-en-co~afb6e2bb/)
   > De WK wielrennen eindigt vandaag met de wegrit voor mannen. Mathieu van der Poel hoopt zich - na 2023 - voor een tweede keer tot wereldkampioen op de...
-- [Familie doodgeschoten Marcel (61) reageert op zijn overlijden: ‘Gezellige vrijdagmiddag eindigde in drama’](https://www.ad.nl/binnenland/familie-doodgeschoten-marcel-61-reageert-op-zijn-overlijden-gezellige-vrijdagmiddag-eindigde-in-drama~a7f1fd54/)
-  > De familie van de vrijdag doodgeschoten Marcel (61) zegt dat zijn dood hen ‘ongelooflijk veel pijn en verdriet doet’. Het had volgens hen ‘nooit...
-- [Pro-Palestina demonstranten verstoren D66-congres: premier Jetten door beveiliging van podium gehaald](https://www.ad.nl/politiek/pro-palestina-demonstranten-verstoren-d66-congres-premier-jetten-door-beveiliging-van-podium-gehaald~adc484ef/)
-  > Premier Rob Jetten is tijdens zijn toespraak op een D66-congres door de beveiliging van het podium gehaald. In de zaal verstoorden pro-Palestijnse...
-- [Iraanse leider Mojtaba Khamenei ontkwam niet één, maar twee keer aan de dood, volgens belangrijke geestelijke](https://www.ad.nl/buitenland/iraanse-leider-mojtaba-khamenei-ontkwam-niet-een-maar-twee-keer-aan-de-dood-volgens-belangrijke-geestelijke~a6f818b8/)
-  > De Iraanse opperste leider Mojtaba Khamenei zou niet één, maar twee keer bijna zijn gedood door de Verenigde Staten, toen die begin dit jaar met...
-- [Soy Kroon belandt bij fysio na val tijdens repetities musical Voor Haar](https://www.ad.nl/show/soy-kroon-belandt-bij-fysio-na-val-tijdens-repetities-musical-voor-haar~a1696fa7/)
-  > Soy Kroon (31) loopt bij de fysiotherapeut na een val bij de repetities van de musical Voor Haar, die over twee weken in première gaat. Kroon speelt...
+- [Als de relatie tussen Heinen en Jetten niet goed is, wordt het lastig voor het kabinet](https://www.ad.nl/politiek/als-de-relatie-tussen-heinen-en-jetten-niet-goed-is-wordt-het-lastig-voor-het-kabinet~a733eecd2/)
+  > De samenwerking tussen premier Rob Jetten (D66) en minister van Financiën Eelco Heinen (VVD) loopt niet altijd even soepel. En dat terwijl de premier...
+- [Je brein bepaalt onbewust je uitgavepatroon, wat voor geldtype ben jij?](https://www.ad.nl/geld/je-brein-bepaalt-onbewust-je-uitgavepatroon-wat-voor-geldtype-ben-jij~ab532626/)
+  > Ben jij een big spender of juist extreem zuinig? Staat jouw rekening regelmatig in het rood of kies je juist voor zekerheid en heb jij altijd wel een...
+- [Hoe drie bestelwagens de Britten op scherp zetten bij belangrijke luchtmachtbasis](https://www.ad.nl/buitenland/hoe-drie-bestelwagens-de-britten-op-scherp-zetten-bij-belangrijke-luchtmachtbasis~ad0fc58d/)
+  > Is Iran betrokken bij de voorbereiding van een terroristische aanslag op een van de belangrijkste luchtmachtbases van Europa? Die vraag houdt de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Italiaanse oliemaatschappij ENI stelt maximumprijs voor diesel en benzine in](https://fd.nl/bedrijfsleven/1613330/italiaanse-oliemaatschappij-eni-stelt-maximumprijs-voor-diesel-en-benzine-in)
-  > De maatregel, die het bedrijf volgens een eerste schatting ongeveer €100 mln kost, wordt ‘afhankelijk van trends in de markt en het aanbod’ verlengd...
-- [Amerikaanse batterijstart-up investeert miljoenen in eigen Groningse fabriek](https://fd.nl/bedrijfsleven/1613109/amerikaanse-batterijstart-up-investeert-miljoenen-in-eigen-groningse-fabriek)
-  > Silicium maakt batterijen sterker en sneller oplaadbaar dan het nu gangbare grafiet. Het Amerikaanse GDI gaat er onder de rook van Delfzijl...
-- [Ondernemers worstelen met groene labels: ‘Aantonen dat je iets goed doet voor de wereld is heel duur’](https://fd.nl/bedrijfsleven/1613143/ondernemers-worstelen-met-groene-labels-aantonen-dat-je-iets-goed-doet-voor-de-wereld-is-heel-duur)
-  > Om certificeringen als het EU-Ecolabel te krijgen, moeten bedrijven al gauw duizenden euro’s per jaar investeren. Voor kleine ondernemers kan dit een...
-- [Nederlandse wijnmaker in Argentinië verkoopt minder flessen door Milei’s hervormingen](https://fd.nl/bedrijfsleven/1612509/nederlandse-wijnmaker-in-argentinie-verkoopt-minder-flessen-door-mileis-hervormingen)
-  > Het Nederlands-Argentijnse Salentein is blij met de veranderingen in het Zuid-Amerikaanse land na jaren van financiële chaos, ook al verkopen ze er...
-- [OpenAI pauzeert training AI-modellen na nieuwe incidenten](https://fd.nl/bedrijfsleven/1613329/duizenden-incidenten-dwingen-ai-bedrijven-trainingen-stop-te-zetten)
-  > Keer op keer weten AI-modellen uit hun testomgeving te breken of verder te gaan dan een opdracht, zonder dat de ontwikkelaars het door lijken te...
+- [Lidstaten vergeten voor wie EU Inc bedoeld is](https://fd.nl/opinie/1613148/lidstaten-vergeten-voor-wie-eu-inc-bedoeld-is)
+  > Terwijl de bedrijfsvorm EU Inc start-ups juist moet helpen om over landsgrenzen heen te groeien, halen EU-lidstaten de kern uit het voorstel uit...
+- [Vijf arrestaties bij Britse luchtmachtbasis voor terrorismeplan](https://fd.nl/samenleving/1613332/vijf-arrestaties-bij-britse-luchtmachtbasis-voor-terrorismeplan)
+  > De Amerikaanse luchtmacht heeft de basis gebruikt om aanvallen op doelen in Iran uit te voeren.
+- [D66 verwijst naar oprichter Hans van Mierlo: geen keuze links of rechts](https://fd.nl/politiek/1613393/d66-verwijst-naar-oprichter-hans-van-mierlo-geen-keuze-links-of-rechts)
+  > Premier Rob Jetten weigert te kiezen tussen links en rechts. De pragmatische aanpak is de kern van D66, zo betoogde hij op een partijcongres.
+- [‘Apax wil medeaandeelhouder uitkopen bij Odido’](https://fd.nl/bedrijfsleven/1613391/apax-wil-medeaandeelhouder-uitkopen-bij-odido)
+  > Het Nederlandse telecombedrijf zou lang een notering krijgen aan de Amsterdamse beurs, maar dat is niet gelukt.
+- [Toekomstvrees bij Nyrstar voedt kritiek van sector op tempo overheidssteun](https://fd.nl/bedrijfsleven/1613291/toekomstvrees-bij-nyrstar-voedt-kritiek-van-sector-op-tempo-overheidssteun)
+  > De zinkproducent is niet het enige bedrijf met twijfels, zeggen industrieclubs. Acute steun zou daarom nodig zijn. Het kabinet ziet meer in een...
 
 ### Meest gelezen
 
