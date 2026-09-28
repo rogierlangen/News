@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-09-2026 om 06:29*
+*Laatst bijgewerkt: 28-09-2026 om 15:07*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Kabinet vindt uitzetten van Nederlandse diplomaten door Israël 'onnodig'](https://nos.nl/l/2632843)
-  > Nederland betreurt het intrekken van de status van de Nederlandse diplomaten in Ramallah door Israël "ten zeerste". Dat laat minister van...
-- [Brand bij asielzoekerscentrum in Eindhoven, bewoners buiten opgevangen](https://nos.nl/l/2632842)
-  > Bij een asielzoekerscentrum in Eindhoven woedt vanochtend brand. Die brak uit in een tent op het terrein van het azc, schrijft Omroep Brabant.
-      ...
-- [Stress bij consumenten door computergestuurde prijzen, ziet toezichthouder](https://nos.nl/l/2632841)
-  > Het is voor veel consumenten te onduidelijk hoe computergestuurde prijzen van veel producten en diensten tot stand komen. Dat concludeert de...
-- [Wekdienst 28/9: Begrotingsgesprekken gaan verder • Valpreventieweek van start](https://nos.nl/l/2632836)
-  > Goedemorgen! Vandaag gaat het kabinet verder met de zoektocht naar steun voor de begroting en deze week is er extra aandacht voor valpreventie onder...
-- [Oppositiepartij Pro wil abortus uit Wetboek van Strafrecht halen](https://nos.nl/l/2632835)
-  > Abortus moet uit het Wetboek van Strafrecht, vindt Progressief Nederland (Pro). Kamerlid Lisa Vliegenthart van de grootste oppositiepartij dient...
+- [Megaraket SpaceX Starship voor het eerst in baan om de aarde](https://nos.nl/l/2632902)
+  > Voor het eerst is Starship, de nieuwe megaraket van SpaceX, in een baan om de aarde gebracht. Het is een belangrijke test voor het Amerikaanse...
+- [Rotterdammer (19) krijgt acht maanden cel voor doodrijden zwangere vrouw](https://nos.nl/l/2632899)
+  > Een 19-jarige Rotterdammer krijgt acht maanden gevangenisstraf voor zijn roekeloze rijgedrag dat een 33-jarige zwangere vrouw het leven kostte. Ook...
+- [Doden en gewonden bij Russische aanvallen op Oekraïense steden Kyiv en Dnipro](https://nos.nl/l/2632895)
+  > Bij Russische aanvallen op de Oekraïense stad Dnipro in het oosten van het land en de hoofdstad Kyiv zijn zeker vier mensen gedood. De autoriteiten...
+- [Noodweer in India en Nepal, dodental loopt op tot boven de honderd](https://nos.nl/l/2632892)
+  > In het grensgebied van India en Nepal zijn meer dan honderd mensen om het leven gekomen door hevig noodweer. Dat melden de autoriteiten van de twee...
+- [Verdachten RAF-basis op borgtocht vrijgelaten, mannen komen uit Londen](https://nos.nl/l/2632891)
+  > De vijf mannen die gisteren zijn aangehouden bij een Britse luchtmachtbasis op verdenking van het voorbereiden van een terroristische aanslag, zijn...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Dick Advocaat wint met Curaçao voor eigen publiek ruim van Nicaragua](https://www.ad.nl/voetbal/dick-advocaat-wint-met-curacao-voor-eigen-publiek-ruim-van-nicaragua~ac9d2bb2/)
-  > Na de wonderbaarlijke ontsnapping tegen Costa Rica op vrijdag (3-4) heeft Curaçao het zichzelf in de tweede wedstrijd van de Nations League een stuk...
-- [Blote buiken domineren MTV VMA’s en Taylor Swift showt korter kapsel: bekijk de opvallendste looks](https://www.ad.nl/show/blote-buiken-domineren-mtv-vmas-en-taylor-swift-showt-korter-kapsel-bekijk-de-opvallendste-looks~ade4204b/)
-  > De blote buik is weer helemaal in. Althans, als het aan de grootste sterren op de loper van de MTV Video Music Awards ligt. Artiesten als Tyla,...
-- [Nederlanders geven 9 procent meer geld uit in buitenlandse supermarkt](https://www.ad.nl/economie/nederlanders-geven-9-procent-meer-geld-uit-in-buitenlandse-supermarkt~afc44735/)
-  > Boodschappen afrekenen over de grens gebeurde in de eerste helft van dit jaar aanzienlijk vaker. Nederlanders pinden voor zo’n 117 miljoen euro meer...
-- [Bijna 1600 mensen in Europa besmet met westnijlvirus in Europa, Italië koploper](https://www.ad.nl/buitenland/bijna-1600-mensen-in-europa-besmet-met-westnijlvirus-in-europa-italie-koploper~a5eadc3d/)
-  > Sinds het voorjaar zijn er in Europa bijna 1600 gevallen van het westnijlvirus vastgesteld waarbij mensen in eigen land besmet zijn geraakt. Het...
-- [Lionel Messi zit twee Brazilianen op de hielen: vrije trappen-record in zijn laatste interland?](https://www.ad.nl/voetbal/lionel-messi-zit-twee-brazilianen-op-de-hielen-vrije-trappen-record-in-zijn-laatste-interland~ad3c9f55/)
-  > Lionel Messi gaat volgende week zijn laatste interland voor Argentinië spelen, maar in de nacht van zondag op maandag schitterde de 39-jarige...
+- [Spaanse media: ‘Frenkie de Jong keert volgende week terug op trainingsveld FC Barcelona’](https://www.ad.nl/voetbal/spaanse-media-frenkie-de-jong-keert-volgende-week-terug-op-trainingsveld-fc-barcelona~ad5fe6ee/)
+  > Frenkie de Jong keert op maandag 5 oktober terug op het trainingsveld van FC Barcelona. Dat meldt de Spaanse sportkrant AS. De Oranje-international...
+- [Beursschandaal Turkije treft honderdduizenden beleggers, vooral mensen die het niet breed hebben de dupe](https://www.ad.nl/economie/beursschandaal-turkije-treft-honderdduizenden-beleggers-vooral-mensen-die-het-niet-breed-hebben-de-dupe~a24104e6/)
+  > Honderdduizenden Turkse beleggers zagen afgelopen week hun aandelenkapitaal verdampen. Wat een succesvolle belegging leek, bleek gewoon oplichterij...
+- [Vijf verdachten van het voorbereiden van aanslag op RAF-basis Fairford worden op borgtocht vrijgelaten](https://www.ad.nl/buitenland/vijf-verdachten-van-het-voorbereiden-van-aanslag-op-raf-basis-fairford-worden-op-borgtocht-vrijgelaten~ae9beba8/)
+  > De vijf Britse mannen die werden opgepakt op verdenking van het beramen van een aanslag op de RAF-luchtmachtbasis nabij Fairford worden maandagmiddag...
+- [Zelfs koning Charles krijgt geen contact: Britten in ban van verdwenen ontdekkingsreiziger (82)](https://www.ad.nl/show/zelfs-koning-charles-krijgt-geen-contact-britten-in-ban-van-verdwenen-ontdekkingsreiziger-82~afefcbfb/)
+  > Waar verblijft Ranulph Fiennes (82), en hoe gaat het met hem? Het zijn vragen die heel wat Britten beroeren. De beroemde ontdekkingsreiziger is al...
+- [Liverpool onderzoekt enkelblessure Oranje-international Cody Gakpo](https://www.ad.nl/voetbal/liverpool-onderzoekt-enkelblessure-oranje-international-cody-gakpo~a6881732/)
+  > Liverpool gaat de blessure die vleugelaanvaller Cody Gakpo zondag opliep in de uitwedstrijd van het Nederlands elftal tegen Servië in de Nations...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Israël zet Nederlandse diplomaten uit wegens importverbod Westelijke Jordaanoever](https://fd.nl/politiek/1613477/israel-zet-nederlandse-diplomaten-uit-wegens-importverbod-westelijke-jordaanoever)
-  > Met het intrekken van de diplomatieke status van de Nederlanders reageert Israël op het Nederlandse importverbod voor producten uit illegale...
-- [Avantium maakt eerste batch tussenproduct voor duurzaam bioplastic](https://fd.nl/bedrijfsleven/1613347/avantium-maakt-eerste-batch-fdca-voor-duurzaam-bioplastic-in-delfzijl)
-  > Het biotechbedrijf noemt de start van de productie een belangrijke mijlpaal. Avantium bereidt de commerciële verkoop al voor en wil binnen twee jaar...
-- [VS en China verlagen invoerheffingen op $60 mrd aan goederen](https://fd.nl/economie/1613346/vs-en-china-verlagen-invoerheffingen-op-60-mrd-aan-goederen)
-  > Het akkoord richt zich op niet-gevoelige producten, zoals Amerikaans rundvlees, zuivel en medische apparatuur. De verlaging volgt op een bezoek van...
-- [Live: Olieprijs stijgt met 2,5% op nieuwe oorlogsretoriek](https://fd.nl/financiele-markten/1613392/live-olieprijs-stijgt-met-2-5-op-nieuwe-oorlogsretoriek)
-  > Met nog drie hele handelsdagen te gaan, is Shell dit kwartaal de grote winnaar onder de AEX-aandelen. De aandelen van de chipmachinefabrikanten...
-- [‘De euro moet de strijd aan met de dollar’](https://fd.nl/economie/1613320/de-euro-moet-de-strijd-aan-met-de-dollar)
-  > Vandaag in Dagkoers: de Nederlandse Staat financiert ASML-leverancier KMWE; de euro moet volgens Europese denktanks een grotere rol gaan spelen; en...
+- [Evonik wijst avances Basf af](https://fd.nl/bedrijfsleven/1613504/evonik-wijst-avances-basf-af)
+  > Chemisch bedrijf uit Essen vindt dat grote branchegenoot uit Ludwigshafen te weinig geld op tafel legt.
+- [Rusland voert de hybride aanvallen op aan de oostflank van Europa](https://fd.nl/politiek/1613359/rusland-voert-de-hybride-aanvallen-op-aan-de-oostflank-van-europa)
+  > Defensieanalisten pleiten voor een stevige reactie op de Russische hybride aanvallen. ‘De boodschap moet zijn: don't mess with us.’
+- [Saoedi-Arabië heropent belangrijke oliepijpleiding na droneaanvallen](https://fd.nl/economie/1613361/saoedi-arabie-heropent-belangrijke-oliepijpleiding-na-droneaanvallen)
+  > De oost-westpijpleiding is gerepareerd na droneaanvallen eerder deze maand. Ook de overzeese olietransporten vanuit de havenstad Yanbu zijn weer...
+- [Lucratieve lock-up](https://fd.nl/financiele-markten/1613485/lucratieve-lock-up)
+  > De verplichte periode van drie jaar waarin bouwfamilie Van Wanrooij moest vasthouden aan haar aandelen Heijmans, heeft de aannemer geen windeieren...
+- [Nvidia koopt voor recordbedrag van $150 mrd eigen aandelen in](https://fd.nl/financiele-markten/1613502/nvidia-koopt-voor-recordbedrag-van-150-mrd-eigen-aandelen-in)
+  > Totale waarde van inkoopprogramma stijgt tot $235 mrd.
 
 ### Meest gelezen
 
