@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 28-09-2026 om 15:07*
+*Laatst bijgewerkt: 28-09-2026 om 21:41*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Megaraket SpaceX Starship voor het eerst in baan om de aarde](https://nos.nl/l/2632902)
-  > Voor het eerst is Starship, de nieuwe megaraket van SpaceX, in een baan om de aarde gebracht. Het is een belangrijke test voor het Amerikaanse...
-- [Rotterdammer (19) krijgt acht maanden cel voor doodrijden zwangere vrouw](https://nos.nl/l/2632899)
-  > Een 19-jarige Rotterdammer krijgt acht maanden gevangenisstraf voor zijn roekeloze rijgedrag dat een 33-jarige zwangere vrouw het leven kostte. Ook...
-- [Doden en gewonden bij Russische aanvallen op Oekraïense steden Kyiv en Dnipro](https://nos.nl/l/2632895)
-  > Bij Russische aanvallen op de Oekraïense stad Dnipro in het oosten van het land en de hoofdstad Kyiv zijn zeker vier mensen gedood. De autoriteiten...
-- [Noodweer in India en Nepal, dodental loopt op tot boven de honderd](https://nos.nl/l/2632892)
-  > In het grensgebied van India en Nepal zijn meer dan honderd mensen om het leven gekomen door hevig noodweer. Dat melden de autoriteiten van de twee...
-- [Verdachten RAF-basis op borgtocht vrijgelaten, mannen komen uit Londen](https://nos.nl/l/2632891)
-  > De vijf mannen die gisteren zijn aangehouden bij een Britse luchtmachtbasis op verdenking van het voorbereiden van een terroristische aanslag, zijn...
+- [332 asielzoekers vinden betaald werk bij Amsterdamse proef, 'doel bereikt'](https://nos.nl/l/2632942)
+  > Van de 1017 asielzoekers die meededen met een proef van de gemeente Amsterdam om asielzoekers aan werk te helpen, hebben 332 een betaalde baan...
+- [Laptops, telefoons en tablets verboden bij UvA-opleiding interdisciplinaire sociale wetenschap](https://nos.nl/l/2632936)
+  > Studenten van de opleiding interdisciplinaire sociale wetenschap van de Universiteit van Amsterdam (UvA) mogen geen laptops, telefoons en tablets...
+- [Partijleider Rassemblement National in het nauw door onthulling antisemitische chats](https://nos.nl/l/2632935)
+  > In Frankrijk is commotie ontstaan over Jordan Bardella, de partijleider van de radicaal-rechtse partij Rassemblement National. Onderzoeksplatform...
+- [Brits schaakwonder (11) behaalt als jongste ooit titel vrouwelijke grootmeester](https://nos.nl/l/2632933)
+  > Het 11-jarige Britse schaakwonder Bodhana Sivanandan heeft als jongste ooit de titel vrouwelijke grootmeester behaald. Ze stelde de titel veilig...
+- [Duitser rijdt zijn vrouw dood tijdens inparkeren en veroorzaakt ton schade](https://nos.nl/l/2632932)
+  > Een fout bij het inparkeren heeft in Duitsland het leven gekost aan een 80-jarige vrouw en tienduizenden euro's schade veroorzaakt. Een 84-jarige...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Spaanse media: ‘Frenkie de Jong keert volgende week terug op trainingsveld FC Barcelona’](https://www.ad.nl/voetbal/spaanse-media-frenkie-de-jong-keert-volgende-week-terug-op-trainingsveld-fc-barcelona~ad5fe6ee/)
-  > Frenkie de Jong keert op maandag 5 oktober terug op het trainingsveld van FC Barcelona. Dat meldt de Spaanse sportkrant AS. De Oranje-international...
-- [Beursschandaal Turkije treft honderdduizenden beleggers, vooral mensen die het niet breed hebben de dupe](https://www.ad.nl/economie/beursschandaal-turkije-treft-honderdduizenden-beleggers-vooral-mensen-die-het-niet-breed-hebben-de-dupe~a24104e6/)
-  > Honderdduizenden Turkse beleggers zagen afgelopen week hun aandelenkapitaal verdampen. Wat een succesvolle belegging leek, bleek gewoon oplichterij...
-- [Vijf verdachten van het voorbereiden van aanslag op RAF-basis Fairford worden op borgtocht vrijgelaten](https://www.ad.nl/buitenland/vijf-verdachten-van-het-voorbereiden-van-aanslag-op-raf-basis-fairford-worden-op-borgtocht-vrijgelaten~ae9beba8/)
-  > De vijf Britse mannen die werden opgepakt op verdenking van het beramen van een aanslag op de RAF-luchtmachtbasis nabij Fairford worden maandagmiddag...
-- [Zelfs koning Charles krijgt geen contact: Britten in ban van verdwenen ontdekkingsreiziger (82)](https://www.ad.nl/show/zelfs-koning-charles-krijgt-geen-contact-britten-in-ban-van-verdwenen-ontdekkingsreiziger-82~afefcbfb/)
-  > Waar verblijft Ranulph Fiennes (82), en hoe gaat het met hem? Het zijn vragen die heel wat Britten beroeren. De beroemde ontdekkingsreiziger is al...
-- [Liverpool onderzoekt enkelblessure Oranje-international Cody Gakpo](https://www.ad.nl/voetbal/liverpool-onderzoekt-enkelblessure-oranje-international-cody-gakpo~a6881732/)
-  > Liverpool gaat de blessure die vleugelaanvaller Cody Gakpo zondag opliep in de uitwedstrijd van het Nederlands elftal tegen Servië in de Nations...
+- [Michael van Gerwen pijnlijk onderuit in eerste ronde World Grand Prix](https://www.ad.nl/darts/michael-van-gerwen-pijnlijk-onderuit-in-eerste-ronde-world-grand-prix~a82997e8/)
+  > De beste darters van de wereld strijken deze week neer in Leicester voor de volgende major van het jaar: de World Grand Prix. Het toernooi kent een...
+- [Mark van Bommel gaat met België pas laat opzij voor Frankrijk door prachtige solo Michael Olise](https://www.ad.nl/voetbal/mark-van-bommel-gaat-met-belgie-pas-laat-opzij-voor-frankrijk-door-prachtige-solo-michael-olise~aeae55b2/)
+  > Als spelers stonden Mark van Bommel en Zinedine Zidane eenmaal tegenover elkaar. El Clásico tussen Barcelona en Real Madrid eindigde twintig jaar...
+- [Welkome opsteker voor Italië: Turkije dankzij flitsende start met ruime cijfers verslagen](https://www.ad.nl/voetbal/welkome-opsteker-voor-italie-turkije-dankzij-flitsende-start-met-ruime-cijfers-verslagen~a7fc7b1e/)
+  > Italië heeft vertrouwen getankt door in de Nations League met 1-4 te winnen van Turkije. De basis werd gelegd in de eerste helft, waarin de Italianen...
+- [VW Tiguan wordt ID. Tiguan: nu volledig elektrisch](https://www.ad.nl/auto/vw-tiguan-wordt-id-tiguan-nu-volledig-elektrisch~afa2a0ff/)
+  > Volkswagen heeft zijn meestverkochte model, de Tiguan, volledig elektrisch gemaakt. AutoWeek kon al testrijden met een prototype.
+- [Rechtse Jordan Bardella schreef dat Joden willen ‘overheersen, bestelen en verpletteren’](https://www.ad.nl/buitenland/rechtse-jordan-bardella-schreef-dat-joden-willen-overheersen-bestelen-en-verpletteren~a39b2572/)
+  > Jordan Bardella, een van de populairste politici in Frankrijk, heeft in het verleden tal van antisemitische uitlatingen gedaan. Dat blijkt uit...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Evonik wijst avances Basf af](https://fd.nl/bedrijfsleven/1613504/evonik-wijst-avances-basf-af)
-  > Chemisch bedrijf uit Essen vindt dat grote branchegenoot uit Ludwigshafen te weinig geld op tafel legt.
-- [Rusland voert de hybride aanvallen op aan de oostflank van Europa](https://fd.nl/politiek/1613359/rusland-voert-de-hybride-aanvallen-op-aan-de-oostflank-van-europa)
-  > Defensieanalisten pleiten voor een stevige reactie op de Russische hybride aanvallen. ‘De boodschap moet zijn: don't mess with us.’
-- [Saoedi-Arabië heropent belangrijke oliepijpleiding na droneaanvallen](https://fd.nl/economie/1613361/saoedi-arabie-heropent-belangrijke-oliepijpleiding-na-droneaanvallen)
-  > De oost-westpijpleiding is gerepareerd na droneaanvallen eerder deze maand. Ook de overzeese olietransporten vanuit de havenstad Yanbu zijn weer...
-- [Lucratieve lock-up](https://fd.nl/financiele-markten/1613485/lucratieve-lock-up)
-  > De verplichte periode van drie jaar waarin bouwfamilie Van Wanrooij moest vasthouden aan haar aandelen Heijmans, heeft de aannemer geen windeieren...
-- [Nvidia koopt voor recordbedrag van $150 mrd eigen aandelen in](https://fd.nl/financiele-markten/1613502/nvidia-koopt-voor-recordbedrag-van-150-mrd-eigen-aandelen-in)
-  > Totale waarde van inkoopprogramma stijgt tot $235 mrd.
+- [Politie houdt 24-jarige man aan in onderzoek naar ShinyHunters](https://fd.nl/samenleving/1613611/politie-houdt-24-jarige-man-aan-in-onderzoek-naar-shinyhunters)
+  > De man verschijnt dinsdag voor de rechtbank Rotterdam.
+- [Beleggers op Wall Street weten nog niet hoe ze Trumps woorden moeten wegen](https://fd.nl/financiele-markten/1613518/beleggers-op-wall-street-weten-nog-niet-hoe-ze-trumps-woorden-moeten-wegen)
+  > Beleggers vrezen dat de Iran-oorlog de inflatie verder aanwakkert en renteverhogingen door de Amerikaanse centrale bank uitlokt.
+- [Winst van chemiebedrijf OCI daalt flink naar $1 mln](https://fd.nl/bedrijfsleven/1613371/winst-van-chemiebedrijf-oci-daalt-flink-naar-1-mln)
+  > Het bedrijf haalde het afgelopen jaar vaker het nieuws vanwege omstreden fusieplannen en een Egyptisch overnamebod.
+- [Strengere aanpak scheefhuur heeft hoog symbolisch gehalte](https://fd.nl/opinie/1613481/strengere-aanpak-scheefhuur-heeft-hoog-symbolisch-gehalte)
+  > Het kabinet zal er óók voor moeten zorgen dat het voor beleggers weer interessant is te investeren in middenhuur.
+- [Spaans woonprotest zwelt aan, regering moet iets verzinnen tegen ‘aasgieren’](https://fd.nl/samenleving/1613497/spaans-woonprotest-zwelt-aan-regering-moet-iets-verzinnen-tegen-aasgieren)
+  > Demonstranten hebben een groot tentenkamp opgezet in Madrid en eisen uiterlijk dinsdag plannen van de regering-Sánchez om iets te doen aan de...
 
 ### Meest gelezen
 
