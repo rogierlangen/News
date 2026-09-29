@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-09-2026 om 15:31*
+*Laatst bijgewerkt: 29-09-2026 om 20:33*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Regering Ethiopië boekt eerste overwinning in opgelaaide oorlog](https://nos.nl/l/2633022)
-  > Na een week van gevechten in Ethiopië hebben regeringstroepen de belangrijke stad Alamata ingenomen. Op beelden is te zien dat tanks en pantserwagens...
-- [Padellers lopen risico op oogletsel: 'Mijn lens lag in twaalf stukjes'](https://nos.nl/l/2633017)
-  > Het aantal mensen dat door padellen oogletsel oploopt, neemt de laatste maanden flink toe. Daarover trekken artsen van het Nederlands Oogheelkundig...
-- [Eigen risico volgend jaar omhoog, Kamer stilzwijgend akkoord](https://nos.nl/l/2633016)
-  > De Tweede Kamer gaat de verhoging van het eigen risico niet tegenhouden. Het kabinet wil het verplichte eigen risico komend jaar laten stijgen met 15...
-- [Na dagenlang protest neemt Spaanse regering maatregelen tegen woningcrisis](https://nos.nl/l/2633014)
-  > De Spaanse regering heeft ingestemd met een pakket van nieuwe maatregelen om de woningcrisis in het land aan te pakken. Minister voor Gezondheidszorg...
-- [Rusland zat achter brandstichting bij defensiebedrijf, zegt Estland](https://nos.nl/l/2633013)
-  > Rusland zat volgens de veiligheidsdiensten van Estland achter de brandstichting bij een defensiebedrijf dat wapens levert aan Oekraïne. Vorige maand...
+- [Voormalig pro-Russische presidentskandidaat Roemenië opgepakt in fraudezaak](https://nos.nl/l/2633064)
+  > De voormalige pro-Russische presidentskandidaat van Roemenië, Calin Georgescu, is vandaag aangehouden in zijn woning nabij Boekarest. Hij wordt...
+- [Twee vrachtwagenchauffeurs overleden bij ongeluk N48, weg tot de ochtend dicht](https://nos.nl/l/2633060)
+  > Bij een ongeval met meerdere voertuigen op de N48 ter hoogte van Zuidwolde zijn vanmiddag twee vrachtwagenchauffeurs overleden. De weg zal tot...
+- [Burgemeester Halsema vroeg rapper Ye in brief direct na concert te vertrekken](https://nos.nl/l/2633059)
+  > De Amsterdamse burgemeester Halsema stuurde in juni een persoonlijke brief aan de Amerikaanse rapper Ye met daarin het verzoek om na zijn laatste...
+- [Wegsturen vrouwelijk personeel kost directeur Eiffeltoren zijn baan](https://nos.nl/l/2633058)
+  > Directeur Patrick Ruivo van de Eiffeltoren in Parijs stapt eind van dit jaar op. Zijn positie is onhoudbaar geworden door het wegsturen van zijn...
+- [Coalitie denkt aan bezuinigen op onderwijs als sociale zekerheid niets oplevert](https://nos.nl/l/2633057)
+  > Als de gesprekken over de sociale zekerheid te weinig opleveren, wil het kabinet in het uiterste geval 1,2 miljard bezuinigen op de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van gebroken kaak tot ‘pestkop’-gedrag: 10 spraakmakende fragmenten van jubilerende serie Boos](https://www.ad.nl/show/van-gebroken-kaak-tot-pestkop-gedrag-10-spraakmakende-fragmenten-van-jubilerende-serie-boos~a659d276/)
-  > De documentaire over de misstanden bij The Voice zal Tim Hofman met Boos waarschijnlijk nooit meer overtreffen. Maar de veelbekeken en prijswinnende...
-- [Matthew Perry gaf rond de zes miljoen euro uit om af te kicken](https://www.ad.nl/show/matthew-perry-gaf-rond-de-zes-miljoen-euro-uit-om-af-te-kicken~acab0b53/)
-  > De overleden Friends-acteur Matthew Perry heeft volgens zijn zus Mia Perry Bowick 7 miljoen dollar (ongeveer 6 miljoen euro) uitgegeven aan pogingen...
-- [Mossou schrijft: ‘Doodskoppen, adelaars en strijdkreten: meer intimiderend kan een stadion haast niet zijn’](https://www.ad.nl/sport/mossou-schrijft-doodskoppen-adelaars-en-strijdkreten-meer-intimiderend-kan-een-stadion-haast-niet-zijn~af592adb/)
-  > Sjoerd Mossou is in Thessaloniki in het spoor van Oranje en ging alvast kijken bij naar het beruchte Toumba-stadion. In dit dagelijkse blog laat de...
-- [‘Als ik eerlijk ben, had ik op andere dingen gehoopt’: waarom een ervaren dertiger lastig een nieuwe club vindt](https://www.ad.nl/voetbal/als-ik-eerlijk-ben-had-ik-op-andere-dingen-gehoopt-waarom-een-ervaren-dertiger-lastig-een-nieuwe-club-vindt~a63605b9/)
-  > Jasper Cillessen, Hans Hateboer en Bart Schenkeveld. Ervaren spelers met een behoorlijke staat van dienst zitten na de transferperiode nog zonder...
-- [Vindt 16 procent het slaan van vrouwen echt normaal? Nee, dat niet, maar hoe zit het dan wel?](https://www.ad.nl/binnenland/vindt-16-procent-het-slaan-van-vrouwen-echt-normaal-nee-dat-niet-maar-hoe-zit-het-dan-wel~a1acfef7/)
-  > Het was een ‘schrikbarend’ nieuwsbericht: meer Nederlanders dan vier jaar geleden hebben begrip voor een man die zijn vrouw slaat. Dat blijkt uit...
+- [Spoorvakbond eist actie: ‘Collega’s worden mishandeld en gebeten terwijl ze gewoon hun werk uitvoeren’](https://www.ad.nl/binnenland/spoorvakbond-eist-actie-collegas-worden-mishandeld-en-gebeten-terwijl-ze-gewoon-hun-werk-uitvoeren~af7c889b/)
+  > De vakbond voor spoorwegpersoneel VVMC slaat alarm om het groeiende aantal geweldsincidenten op het spoor en heeft een brandbrief naar de politiek...
+- [LIVE Nations League | Harry Kane verdubbelt voorsprong tegen Tsjechië, volg hier alle tussenstanden](https://www.ad.nl/voetbal/live-nations-league-harry-kane-verdubbelt-voorsprong-tegen-tsjechie-volg-hier-alle-tussenstanden~a5a577c4/)
+  > Engeland begon de Nations League met een thuisnederlaag (2-3) tegen wereldkampioen Spanje. Geen schande, maar daardoor is het wel extra belangrijk om...
+- [Loes Haverkort had wakkere operatie aan hersentumor: ‘Heel bizar’](https://www.ad.nl/show/loes-haverkort-had-wakkere-operatie-aan-hersentumor-heel-bizar~ab89d68e/)
+  > Loes Haverkort heeft bij RTL Boulevard uitgebreid verteld over de operatie die ze onderging aan een laaggradige hersentumor in haar...
+- [Vijfde hond overleden in Schiedam: wandeling door park wordt ook Timmie (5) fataal](https://www.ad.nl/binnenland/vijfde-hond-overleden-in-schiedam-wandeling-door-park-wordt-ook-timmie-5-fataal~afbc6dbe/)
+  > Opnieuw is een hond overleden na een wandeling door een park in Schiedam. Baasjes Rob en Sandra meldden het AD dat ze hun Timmie in het...
+- [Rusland waarschuwt Westen met gemoderniseerd kernwapensysteem: 'Dreiging groter dan ooit'](https://www.ad.nl/buitenland/rusland-waarschuwt-westen-met-gemoderniseerd-kernwapensysteem-dreiging-groter-dan-ooit~a69ad41b/)
+  > Rusland heeft een nucleair commandosysteem, waarmee te allen tijde kan worden toegeslagen, gemoderniseerd en weer volledig in gebruik genomen. Moskou...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Nieuwe prullenbak moet einde maken aan troep op Amsterdamse straten](https://fd.nl/samenleving/1613704/nieuwe-prullenbak-moet-einde-maken-aan-troep-op-amsterdamse-straten)
-  > De nieuwe prullenbakken hebben een vakje voor blikjes en kleine flesjes. Dat moet voorkomen dat statiegeldverzamelaars de bakken openbreken.
-- [Ceo van Arcadis: ‘Geweldig dat we ons eindelijk weer op onszelf kunnen richten’](https://fd.nl/bedrijfsleven/1613689/ceo-van-arcadis-geweldig-dat-we-ons-eindelijk-weer-op-onszelf-kunnen-richten)
-  > Heather Polinsky presenteerde dinsdag de nieuwe strategie van het beursgenoteerde ingenieursbureau. ‘We weten wat we moeten doen. Nu is het een...
-- [Anthropic voorziet ‘existentiële risico’s’ door AI, maar wil nog gewoon naar de beurs](https://fd.nl/bedrijfsleven/1613698/anthropic-voorziet-existentiele-risicos-door-ai-maar-wil-nog-gewoon-naar-de-beurs)
-  > In zijn prospectus besteedt de Amerikaanse AI-ontwikkelaar 80 van de 261 pagina’s aan risico’s van kunstmatige intelligentie.
-- [‘Gezagsgetrouwe’ topambtenaar onderbreekt pensioen voor romance tussen EU en Canada](https://fd.nl/politiek/1613681/gezagsgetrouwe-topambtenaar-onderbreekt-pensioen-voor-romance-tussen-eu-en-canada)
-  > Joost Korte zwaaide begin 2024, na ruim dertig jaar van topfuncties, af bij de Europese Commissie. Nu is hij terug als speciaal gezant voor de...
-- [Estland beschuldigt Rusland van brandstichting bij defensiebedrijf](https://fd.nl/politiek/1613700/estland-beschuldigt-rusland-van-brandstichting-bij-defensiebedrijf)
-  > De Estse premier Kristan Michal noemde het incident in augustus bij Milrem, dat onbemande militaire voertuigen maakt, ‘volstrekt onaanvaardbaar en...
+- [Amerikaanse beurzen sluiten de dag nipt negatief af](https://fd.nl/financiele-markten/1613730/amerikaanse-beurzen-sluiten-de-dag-nipt-negatief-af)
+  > Met Nike gaat het al het hele jaar slecht op de beurs. Dinsdag leverde het sportkledingmerk weer 1,5% in.
+- [Kamer stemt in met maatregel tegen hoge grondprijzen, gemeenten kritisch](https://fd.nl/politiek/1613707/kamer-stemt-in-met-maatregel-tegen-hoge-grondprijzen-gemeenten-kritisch)
+  > Het voorstel moet woningbouw versoepelen. Ook moet het de overheid beter in staat stellen om publieke kosten op projectontwikkelaars te verhalen.
+- [Politiek moet doorzetten met NII](https://fd.nl/opinie/1613685/politiek-moet-doorzetten-met-nii)
+  > Bij de oprichting van de Nationale Investeringsinstelling vraagt de financiële sector van de overheid om het eerste verlies op riskante investeringen...
+- [Eurocommissaris Jørgensen ziet geen acuut risico voor Europese energievoorziening](https://fd.nl/economie/1613709/eurocommissaris-jrgensen-ziet-geen-acuut-risico-voor-europese-energievoorziening)
+  > Dat zegt hij op een informele bijeenkomst met alle energieministers uit de verschillende lidstaten.
+- [Burnham onthult zijn pro-Europese ambities – maar wil wachten tot na de verkiezingen](https://fd.nl/politiek/1613535/burnham-onthult-zijn-pro-europese-ambities-maar-wil-wachten-tot-na-de-verkiezingen)
+  > De Britse premier neemt bovendien een groot politiek risico door te zeggen dat hij de verhoging van de pensioenen wil afremmen. ‘Iemand moet de...
 
 ### Meest gelezen
 
