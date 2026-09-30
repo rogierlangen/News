@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-09-2026 om 00:10*
+*Laatst bijgewerkt: 30-09-2026 om 06:26*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Netanyahu klaagt media aan die berichtten over waarschuwingen voor 7 oktober](https://nos.nl/l/2633076)
-  > De Israëlische premier Netanyahu heeft een smaadzaak aangespannen tegen drie mediabedrijven en zes journalisten in zijn land. Aanleiding is het...
-- [Kamer steunt nieuw luchtvaartbesluit, voor het eerst in 18 jaar nieuwe regels](https://nos.nl/l/2633074)
-  > Een meerderheid in de Tweede Kamer steunt een luchtvaartbesluit waarin het kabinet nieuwe regels voor de grenzen aan geluidshinder en het aantal...
-- [Jonge hacker nu ook verdacht van moordopdrachten: wie is whizzkid Pepijn van der S.?](https://nos.nl/l/2633068)
-  > De 24-jarige Pepijn van der S. uit Amsterdam werd gisteren opgepakt op verdenking van deelname aan ShinyHunters. Dat is het hackerscollectief dat...
-- [Voormalig pro-Russische presidentskandidaat Roemenië opgepakt in fraudezaak](https://nos.nl/l/2633064)
-  > De voormalige pro-Russische presidentskandidaat van Roemenië, Calin Georgescu, is vandaag aangehouden in zijn woning nabij Boekarest. Hij wordt...
-- [Twee vrachtwagenchauffeurs overleden bij ongeluk N48, weg tot de ochtend dicht](https://nos.nl/l/2633060)
-  > Bij een ongeval met meerdere voertuigen op de N48 ter hoogte van Zuidwolde zijn vanmiddag twee vrachtwagenchauffeurs overleden. De weg zal tot...
+- [Britse media: verdachte bomaanslag bij Britse RAF-basis belde zelf de politie](https://nos.nl/l/2633092)
+  > Een van de mannen die zondag werden gearresteerd bij een Britse luchtmachtbasis op verdenking van het voorbereiden van een terroristische aanslag,...
+- [Meeste verjaardagen op 30 september en de dagen ervoor](https://nos.nl/l/2633090)
+  > Vorig jaar waren op 30 september de meeste mensen jarig, zo meldt het Centraal Bureau voor de Statistiek (CBS). Op die dag kon er voor 44.000 mensen...
+- [Vijf vragen over box 3: hoe kon het zo'n probleem worden en wat is nu de oplossing?](https://nos.nl/l/2633087)
+  > Het nieuwe coalitieplan voor de belasting op vermogen (box 3) zal het belangrijkste onderwerp zijn tijdens de Algemene Financiële Beschouwingen, die...
+- [Amerikaanse militairen na 23 jaar weg uit Irak](https://nos.nl/l/2633084)
+  > Vandaag verloopt de deadline die de VS zichzelf had gesteld voor het terugtrekken van militairen uit het land. De regering-Trump geeft er geen...
+- [Wekdienst 30/9: Kamer debatteert over begroting • In VS wordt Christa Pike (50) geëxecuteerd](https://nos.nl/l/2633083)
+  > Goedemorgen! De Tweede Kamer begint aan de Algemene Financiële Beschouwingen en in de VS wordt Christa Pike geëxecuteerd, tenzij het Hooggerechtshof...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Boeing mag voor Amerikaanse marine opvolger van F-18 produceren](https://www.ad.nl/buitenland/boeing-mag-voor-amerikaanse-marine-opvolger-van-f-18-produceren~a6957ecb/)
-  > Boeing heeft Northrop Grumman verslagen bij de aanbesteding voor het volgende gevechtsvliegtuig van de Amerikaanse marine. Dat meldt het Amerikaanse...
-- [AD Voetbalpodcast | ‘Gouden kans voor Ajax en Feyenoord, want in Eindhoven kunnen ze niets doen’](https://www.ad.nl/voetbal/ad-voetbalpodcast-gouden-kans-voor-ajax-en-feyenoord-want-in-eindhoven-kunnen-ze-niets-doen~a42af5cd9/)
-  > Oranje speelt morgen in Griekenland de derde wedstrijd in de Nations League. Niet in Athene, maar in Thessaloniki. En daar is de interesse in het...
-- [Knotsgekke situatie in Gulf Cup: Oman en Irak precies gelijk in poule, loting bepaalt wie naar halve finales mag](https://www.ad.nl/voetbal/knotsgekke-situatie-in-gulf-cup-oman-en-irak-precies-gelijk-in-poule-loting-bepaalt-wie-naar-halve-finales-mag~a20baf16/)
-  > Het is een vaak een bijzinnetje in toernooiregels: als écht alles gelijk staat tussen twee teams in een poule, bepaalt een loting wie door ging. Dat...
-- [Gian van Veen klopt Dirk van Duijvenbode in Nederlands onderonsje, knappe zeges Wattimena en Zonneveld](https://www.ad.nl/darts/gian-van-veen-klopt-dirk-van-duijvenbode-in-nederlands-onderonsje-knappe-zeges-wattimena-en-zonneveld~afcd2931/)
-  > Gian van Veen heeft zich geplaatst voor de tweede ronde van de World Grand Prix. In een Nederlands onderonsje was de nummer drie van de...
-- [Engeland profiteert van rode kaart Tsjechië en boekt zakelijke overwinning](https://www.ad.nl/voetbal/engeland-profiteert-van-rode-kaart-tsjechie-en-boekt-zakelijke-overwinning~a5a577c4/)
-  > Engeland heeft de eerste punten in de Nations League binnen. Na de 2-3-thuisnederlaag tegen wereldkampioen Spanje, won de ploeg van trainer Thomas...
+- [Acda en de Munnik geven hun grootste concert ooit en gaan verrassende samenwerking aan: ‘Apetrots op hem’](https://www.ad.nl/show/acda-en-de-munnik-geven-hun-grootste-concert-ooit-en-gaan-verrassende-samenwerking-aan-apetrots-op-hem~a461564e/)
+  > Acda en de Munnik geven volgend jaar zomer hun grootste concert ooit in het Olympisch Stadion in Amsterdam. Ook brengen ze twee nieuwe albums uit,...
+- [Rapper P. Diddy mogelijk nog eerder uit de gevangenis, vrijlating opnieuw vervroegd](https://www.ad.nl/show/rapper-p-diddy-mogelijk-nog-eerder-uit-de-gevangenis-vrijlating-opnieuw-vervroegd~a29c1bb5/)
+  > Sean Combs, beter bekend als rapper P. Diddy, komt volgens Amerikaanse media mogelijk nog eerder op vrije voeten. Zijn vrijlating is volgens de...
+- [Gezochte ShinyHunters slaat terug na arrestatie ‘leider’ Pepijn van der S.: ‘We vallen niet uit elkaar’](https://www.ad.nl/tech/gezochte-shinyhunters-slaat-terug-na-arrestatie-leider-pepijn-van-der-s-we-vallen-niet-uit-elkaar~ad720e2cc/)
+  > De criminele hackersgroep ShinyHunters slaat terug na de arrestatie van de vermeende Nederlandse leider Pepijn van der S. (24). In een verklaring...
+- [Nederlanders willen vijf keer zo veel betalen voor drinkwater én de wc er niet meer mee doorspoelen](https://www.ad.nl/binnenland/nederlanders-willen-vijf-keer-zo-veel-betalen-voor-drinkwater-en-de-wc-er-niet-meer-mee-doorspoelen~ad4c2835/)
+  > Nederlanders hebben er veel voor over om verzekerd te blijven van voldoende drinkwater. De helft is zelfs bereid om er ruim vijf keer zo veel voor te...
+- [Wat heeft Xavi nog méér in petto? Vijf verrassen­de keuzes die de bondscoach kan maken bij Oranje](https://www.ad.nl/voetbal/wat-heeft-xavi-nog-meer-in-petto-vijf-verrassende-keuzes-die-de-bondscoach-kan-maken-bij-oranje~a61f4679/)
+  > Mexx Meerdink als spits, Cody Gakpo rechtsbuiten, Quinten Timber in een rol als ‘6’ en de rentree van Joey Veerman. Ja, de nieuwe bondscoach Xavi...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Wij zijn de Rijn](https://fd.nl/opinie/1613703/wij-zijn-de-rijn)
-  > De Rijn wordt een onbetrouwbare regenrivier. Schepen lopen vast in deze slagader van onze geschiedenis en economie.
-- [Werkgevers delen nog steeds in minder dan de helft van de vacatures informatie over salaris](https://fd.nl/bedrijfsleven/1613688/werkgevers-delen-nog-steeds-in-minder-dan-de-helft-van-de-vacatures-informatie-over-salaris)
-  > Vanaf volgend jaar gaan waarschijnlijk nieuwe regels gelden, die betekenen dat werkgevers voorafgaand aan het eerste gesprek meer openheid moeten...
-- [Kledingretailers weten zich op de beurs nog niet te herpakken](https://fd.nl/financiele-markten/1613683/kledingretailers-weten-zich-op-de-beurs-nog-niet-te-herpakken)
-  > De aandelen van Europese kledingbedrijven staan al jaren onder druk. Ook het Chinese Shein deelt nu in de malaise.
-- [Vrijwilligerswerk doe je (ook) voor jezelf](https://fd.nl/opinie/1613506/vrijwilligerswerk-doe-je-ook-voor-jezelf)
-  > Wie zijn tijd belangeloos aan anderen geeft, krijgt daar iets opvallends voor terug: een grotere kans op een langer en gezonder leven – maar wel...
-- [Personalia woensdag 30 september](https://fd.nl/bedrijfsleven/1613531/personalia-woensdag-30-september)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [‘Driekwart Nederlandse datacenters houden informatie achter over hun milieubelasting’](https://fd.nl/bedrijfsleven/1613734/driekwart-nederlandse-datacenters-houden-informatie-achter-over-hun-milieubelasting)
+  > Veel Nederlandse datacenters voldoen niet aan de Europese verplichting om hun energie- en stroomverbruik te rapporteren, zo blijkt uit onderzoek van...
+- [OpenAI zoekt €30 mrd bij investeerders na uitstel beursgang](https://fd.nl/bedrijfsleven/1613572/openai-zoekt-30-mrd-bij-investeerders-na-uitstel-beursgang)
+  > De AI-maker wil zonder druk van zijn aandeelhouders de veiligheidszorgen rondom zijn modellen aanpakken.
+- [Peking waarschuwt Brussel met tegenmaatregelen mocht de EU handel met China beperken](https://fd.nl/economie/1613733/peking-waarschuwt-brussel-met-tegenmaatregelen-mocht-de-eu-handel-met-china-beperken)
+  > Frankrijk en Duitsland zouden aan een Europees beleidsvoorstel werken waarmee China in bepaalde omstandigheden ‘binnen 24 uur’ van de Europese markt...
+- [Live: Gemengd beeld op Aziatische beurzen, OpenAI wil nieuwe investeringsronde](https://fd.nl/financiele-markten/1613732/live-gemengd-beeld-op-aziatische-beurzen-openai-wil-nieuwe-investeringsronde)
+  > De beurzen in Azië laten een gemengd beeld zien. De Japanse Nikkei-index staat op winst, terwijl de andere indices er vlak voor staan. Verder zijn de...
+- [Is ‘het goede doen’ een vorm van zelfprofilering geworden?](https://fd.nl/samenleving/1613492/is-het-goede-doen-een-vorm-van-zelfprofilering-geworden)
+  > ‘Het goede doen’ op sociale media lijkt vaak slechts een kwestie van zelfprofilering. Hoe principieel zijn die posts, en voor wie doen we het...
 
 ### Meest gelezen
 
