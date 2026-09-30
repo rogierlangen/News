@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-09-2026 om 13:27*
+*Laatst bijgewerkt: 30-09-2026 om 18:56*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Passagiers op vlucht naar Israël grijpen in na geweld in cockpit: 'We zagen bloed'](https://nos.nl/l/2633135)
-  > Een toestel van Flydubai dat van Dubai onderweg was naar Tel Aviv is mogelijk aan een terroristische aanslag ontkomen. Dat beeld komt naar voren uit...
-- [Woningen rond populaire Amsterdamse frietzaak minder waard door 'Tiktokrijen'](https://nos.nl/l/2633129)
-  > Woningen rond de populaire Amsterdamse frietzaak Fabel Friet worden voor lagere prijzen verkocht dan vergelijkbare huizen twee straten verderop....
-- [Verdwaalde haai weet Zuid-Koreaanse havenstad voor zich te winnen, maar moet weg](https://nos.nl/l/2633128)
-  > In de Zuid-Koreaanse havenstad Busan wagen de autoriteiten een nieuwe poging om een grijze koperhaai terug te brengen naar zee. De haai zwemt al...
-- [Acht personen aangehouden na avond vol geweld in centrum van Arnhem](https://nos.nl/l/2633126)
-  > De politie in Arnhem heeft na een vechtpartij en daaropvolgende incidenten gisteravond in het centrum van de stad acht mensen aangehouden. Een van...
-- [Concurrerend afslankmiddel vroeg inspectie op te treden tegen kranten om 'reclame'](https://nos.nl/l/2633121)
-  > Een distributeur van een afslankmedicijn heeft de Inspectie Gezondheidszorg en Jeugd (IGJ) verzocht om op te treden tegen NRC en de Volkskrant, nadat...
+- [Curaçao weigerde vlucht Venezolaanse oppositieleider na 'verzoek van hogerhand'](https://nos.nl/l/2633188)
+  > De Curaçaose luchtvaartautoriteit CCAA heeft vorige week een privévliegtuig geweigerd waarmee de Venezolaanse oppositieleider María Corina Machado...
+- [Jongens mishandeld in Haags natuurgebied, politie zoekt getuigen](https://nos.nl/l/2633184)
+  > Bij de Bosjes van Pex, een natuurgebied in Den Haag, zijn maandagavond zeker twee jongens mishandeld. Het gaat om een jongen van 13 en een jongen van...
+- [Gaza voor en na: nieuwe satellietbeelden laten de verwoesting zien](https://nos.nl/l/2633182)
+  > Op Google Maps zijn nieuwe satellietbeelden te zien die een indruk geven van de omvang van de Israëlische verwoestingen in Gaza. Waar eerst duidelijk...
+- [Britse supermarkten zetten AI in om stijgend aantal winkeldiefstallen te stoppen](https://nos.nl/l/2633181)
+  > Een sterke stijging in winkeldiefstal maakt dat steeds meer Britse supermarkten en winkels beveiligingscamera's met AI-technologie en...
+- [Gehele redactie van onafhankelijk onderzoeksplatform gearresteerd in Egypte](https://nos.nl/l/2633180)
+  > Zes journalisten van het Egyptische onderzoeksplatform Matsaddash zijn deze week gearresteerd door de lokale autoriteiten. Daarmee zit de voltallige...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van Moulijn tot Schoenmaker: waarom Nederlandse voetballers steeds vaker in brons gegoten worden](https://www.ad.nl/voetbal/van-moulijn-tot-schoenmaker-waarom-nederlandse-voetballers-steeds-vaker-in-brons-gegoten-worden~adb3a998/)
-  > Meer dan dertig voetbalprominenten zijn in Nederland met een eigen standbeeld vereeuwigd. Hoewel vereeuwigd... Waar is het beeld van Martin Jol bij...
-- [Succescoach Pep Guardiola reageert voor het eerst: ‘Ik sta meer dan ooit achter mijn club’](https://www.ad.nl/voetbal/succescoach-pep-guardiola-reageert-voor-het-eerst-ik-sta-meer-dan-ooit-achter-mijn-club~a1cbd85e/)
-  > Manchester City is door de Premier League schuldig bevonden aan 115 aanklachten wegens ernstige overtredingen van financiële regels. De Engelse...
-- [Crisisoverleg na zeldzame reserverol: boze Cristiano Ronaldo sluit (voorlopig) vrede met bondscoach](https://www.ad.nl/voetbal/crisisoverleg-na-zeldzame-reserverol-boze-cristiano-ronaldo-sluit-voorlopig-vrede-met-bondscoach~a6a629e8/)
-  > Cristiano Ronaldo is niet blij met de gang van zaken bij de nationale ploeg van Portugal. De 41-jarige sterspeler bleef zondag tot zijn onvrede...
-- [Jeroen (48) spoorloos verdwenen in Spanje na bezoek aan feest: ‘Kom thuis, ik hou van jou’](https://www.ad.nl/binnenland/jeroen-48-spoorloos-verdwenen-in-spanje-na-bezoek-aan-feest-kom-thuis-ik-hou-van-jou~a9df2b9f/)
-  > Een Nederlandse man is al bijna twee weken spoorloos verdwenen in Spanje. Het gaat om de 48-jarige Jeroen Mertens, bevestigt een Spaanse organisatie...
-- [Rechtszaak over masturberen is een martelgang geworden voor ex-burgemeester Koen Schuiling](https://www.ad.nl/binnenland/rechtszaak-over-masturberen-is-een-martelgang-geworden-voor-ex-burgemeester-koen-schuiling~a0bdcedf/)
-  > De strijd van ex-burgemeester van Groningen Koen Schuiling tegen een boete voor masturberen in de auto, is een martelgang geworden voor hem. Deze...
+- [In het begin van hun relatie was Sarah een spontaan mens: ‘Nu denk ik twee keer na voordat ik ja zeg’](https://www.ad.nl/mezza/in-het-begin-van-hun-relatie-was-sarah-een-spontaan-mens-nu-denk-ik-twee-keer-na-voordat-ik-ja-zeg~aae7567b1/)
+  > Sarah (46) is 20 jaar samen met Jordy (51). Achteraf ziet ze hoe hun wereld steeds kleiner werd, vertelt ze in deze rubriek BV De Liefde uit ons...
+- [Joodse studenten boos op Universiteit Maastricht: ‘Langdurig gefaald om ons te beschermen’](https://www.ad.nl/binnenland/joodse-studenten-boos-op-universiteit-maastricht-langdurig-gefaald-om-ons-te-beschermen~aaa57ff4/)
+  > De Universiteit Maastricht (UM) heeft het incident met de ‘Hamas-student’ zelf in de hand gewerkt door zorgen en signalen te negeren of...
+- [Kogel vliegt rakelings langs hoofd van meisje (10) bij schietpartij: ‘Ze had wel dood kunnen zijn’](https://www.ad.nl/binnenland/kogel-vliegt-rakelings-langs-hoofd-van-meisje-10-bij-schietpartij-ze-had-wel-dood-kunnen-zijn~a5138b78/)
+  > Een 10-jarig meisje is dinsdagavond aan de dood ontsnapt bij een schietpartij in een woning in Spijkenisse. Een man loste vanaf de deur een schot...
+- [Meer tijd voor handtekeningen, minder regeltjes in de eetzaal en een nieuwe opdracht voor de grasmeester](https://www.ad.nl/voetbal/meer-tijd-voor-handtekeningen-minder-regeltjes-in-de-eetzaal-en-een-nieuwe-opdracht-voor-de-grasmeester~a7e4bb0a/)
+  > Tien dagen is Xavi Hernández nu echt aan het werk als nieuwe bondscoach van Oranje. Veel gaat er anders dan voorheen, hoofdzaken én bijzaken, zowel...
+- [Danny Noppert begonnen aan partij tegen Van Gerwen-beul, Wessel Nijman later in actie](https://www.ad.nl/darts/danny-noppert-begonnen-aan-partij-tegen-van-gerwen-beul-wessel-nijman-later-in-actie~a04be5f0/)
+  > De World Grand Prix dendert door zonder Michael van Gerwen en nummer één van de wereld Luke Littler. Desondanks zitten er nog vijf Nederlanders in...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Pels Rijcken krijgt na vijf jaar nieuw bestuur](https://fd.nl/financiele-markten/1613786/pels-rijcken-krijgt-na-zeven-jaar-nieuw-bestuur)
-  > Voorzitter Sandra van Heukelom-Verhage blijft nog twee jaar aan. Nieuwe bestuurders zijn Jelmer Procee en Olivier de Bruijne.
-- [Hoe Gasunie meewerkt aan ‘een middelvinger naar Moskou’](https://fd.nl/bedrijfsleven/1612433/hoe-gasunie-meewerkt-aan-een-middelvinger-naar-moskou)
-  > Gasunie in Duitsland werkt hard aan een waterstofnet. Het oude aardgasnet wordt daarvoor hergebruikt. ‘Het gaat hier om “vrijheidsenergie”.’
-- [Noors staatsfonds had eind juni belangen in bedrijven betrokken bij Turks fraudeonderzoek](https://fd.nl/financiele-markten/1613785/noors-staatsfonds-had-belang-in-bedrijven-betrokken-bij-turks-fraudeonderzoek)
-  > Beleggingsfondsen hebben mogelijk een rol gespeeld in het kunstmatig opdrijven van koersen, door lastig verhandelbare, ook wel ‘illiquide’ genoemde,...
-- [Een gevaarlijke zwerm](https://fd.nl/opinie/1613541/een-gevaarlijke-zwerm)
-  > We zijn gewend dat extremen uiteindelijk door de groep worden verstoten om het collectief te laten voortbestaan. Maar zo werkt het bij AI-agents...
-- [Willem de Kooning: gevierd in Amerika, vergeten in Nederland](https://fd.nl/samenleving/1613499/willem-de-kooning-gevierd-in-amerika-vergeten-in-nederland)
-  > Aan de andere kant van de oceaan maakte Willem de Kooning naam als ‘de Picasso van Amerika’. In Nederland krijgt hij, honderd jaar na zijn vertrek...
+- [Belgische legercommandant: ‘Heel jammer dat fregattenruzie rond Damen de voorbeeldige samenwerking beschadigt’](https://fd.nl/politiek/1613760/belgische-legercommandant-heel-jammer-dat-fregattenruzie-rond-damen-de-voorbeeldige-samenwerking-beschadigt)
+  > De Belgische commandant der strijdkrachten Frederik Vansina zegt dat de Nederlandse en Belgische bewindslieden een ‘heel goed’ gesprek hebben gehad...
+- [Nieuw bankentuchtrecht moet de deur naar buiten openzetten](https://fd.nl/opinie/1613790/nieuw-bankentuchtrecht-moet-de-deur-naar-buiten-openzetten)
+  > Tuchtrecht 2.0 moet echte verandering brengen en niet afhankelijk blijven van de input van de paar grootbanken die Nederland rijk is.
+- [Britse premier Burnham: ‘sterke indicaties dat Iran een rol speelde bij gebeurtenissen bij luchtmachtbasis’](https://fd.nl/politiek/1613762/britse-premier-burnham-sterke-indicaties-dat-iran-een-rol-speelde-bij-gebeurtenissen-bij-luchtmachtbasis)
+  > Het regime in Teheran had gewaarschuwd dat dit soort militaire bases een legitiem doelwit zijn.
+- [Mkb-ondernemers hekelen dekking nieuwe plannen box 3](https://fd.nl/politiek/1613761/mkb-ondernemers-hekelen-dekking-nieuwe-plannen-box-3)
+  > Volgens ondernemersorganisatie ONL zijn eigenaren van kleine bedrijven die sparen en beleggen voor hun oude dag hiervan de dupe.
+- [Netanyahu: copiloot op vlucht Dubai-Tel Aviv wilde vliegtuig doen neerstorten](https://fd.nl/politiek/1613796/netanyahu-copiloot-op-vlucht-dubai-tel-aviv-wilde-vliegtuig-doen-neerstorten)
+  > De copiloot is vastgenomen en zal in Saoedi-Arabië worden ondervraagd.
 
 ### Meest gelezen
 
