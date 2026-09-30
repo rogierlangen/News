@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-09-2026 om 18:56*
+*Laatst bijgewerkt: 30-09-2026 om 22:54*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Curaçao weigerde vlucht Venezolaanse oppositieleider na 'verzoek van hogerhand'](https://nos.nl/l/2633188)
-  > De Curaçaose luchtvaartautoriteit CCAA heeft vorige week een privévliegtuig geweigerd waarmee de Venezolaanse oppositieleider María Corina Machado...
-- [Jongens mishandeld in Haags natuurgebied, politie zoekt getuigen](https://nos.nl/l/2633184)
-  > Bij de Bosjes van Pex, een natuurgebied in Den Haag, zijn maandagavond zeker twee jongens mishandeld. Het gaat om een jongen van 13 en een jongen van...
-- [Gaza voor en na: nieuwe satellietbeelden laten de verwoesting zien](https://nos.nl/l/2633182)
-  > Op Google Maps zijn nieuwe satellietbeelden te zien die een indruk geven van de omvang van de Israëlische verwoestingen in Gaza. Waar eerst duidelijk...
-- [Britse supermarkten zetten AI in om stijgend aantal winkeldiefstallen te stoppen](https://nos.nl/l/2633181)
-  > Een sterke stijging in winkeldiefstal maakt dat steeds meer Britse supermarkten en winkels beveiligingscamera's met AI-technologie en...
-- [Gehele redactie van onafhankelijk onderzoeksplatform gearresteerd in Egypte](https://nos.nl/l/2633180)
-  > Zes journalisten van het Egyptische onderzoeksplatform Matsaddash zijn deze week gearresteerd door de lokale autoriteiten. Daarmee zit de voltallige...
+- [Politieactie bij distributiecentrum van drogisterijketen in Peize](https://nos.nl/l/2633210)
+  > Bij een distributiecentrum van drogisterijketen Die Grenze in Peize heeft afgelopen avond een politieactie plaatsgevonden. De actie vond plaats op...
+- [Moet de AfD verboden worden? Kwestie voor het eerst in parlement Thüringen besproken](https://nos.nl/l/2633209)
+  > Vormt de AfD zo'n groot gevaar voor Duitsland dat de partij verboden moet worden? Die vraag werd tot middernacht besproken in het deelstaatparlement...
+- [RTL: hackers Flink kregen, ondanks ultimatum, nog geen geld van slachtoffers](https://nos.nl/l/2633196)
+  > De cybercriminelen die vorige week inbraken bij boodschappenbezorger Flink, hebben nog niets verdiend met hun hack. De hackers benaderden medewerkers...
+- [Einde aan Fabers grenscontroles, maar bevoegdheden marechaussee worden ruimer](https://nos.nl/l/2633195)
+  > Vanaf morgen stopt de Koninklijke Marechaussee (KMar) met de binnengrenscontroles zoals die waren ingesteld door toenmalig PVV-minister Faber van...
+- [Verdriet om overlijden 'lieve, grappige Paulien': 'Wat zul je gemist worden'](https://nos.nl/l/2633190)
+  > "Dit slaat in als een bom", zegt Volkskrant-hoofdredacteur Pieter Klok over het overlijden van schrijfster, cabaretière, taalkundige en columnist...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [In het begin van hun relatie was Sarah een spontaan mens: ‘Nu denk ik twee keer na voordat ik ja zeg’](https://www.ad.nl/mezza/in-het-begin-van-hun-relatie-was-sarah-een-spontaan-mens-nu-denk-ik-twee-keer-na-voordat-ik-ja-zeg~aae7567b1/)
-  > Sarah (46) is 20 jaar samen met Jordy (51). Achteraf ziet ze hoe hun wereld steeds kleiner werd, vertelt ze in deze rubriek BV De Liefde uit ons...
-- [Joodse studenten boos op Universiteit Maastricht: ‘Langdurig gefaald om ons te beschermen’](https://www.ad.nl/binnenland/joodse-studenten-boos-op-universiteit-maastricht-langdurig-gefaald-om-ons-te-beschermen~aaa57ff4/)
-  > De Universiteit Maastricht (UM) heeft het incident met de ‘Hamas-student’ zelf in de hand gewerkt door zorgen en signalen te negeren of...
-- [Kogel vliegt rakelings langs hoofd van meisje (10) bij schietpartij: ‘Ze had wel dood kunnen zijn’](https://www.ad.nl/binnenland/kogel-vliegt-rakelings-langs-hoofd-van-meisje-10-bij-schietpartij-ze-had-wel-dood-kunnen-zijn~a5138b78/)
-  > Een 10-jarig meisje is dinsdagavond aan de dood ontsnapt bij een schietpartij in een woning in Spijkenisse. Een man loste vanaf de deur een schot...
-- [Meer tijd voor handtekeningen, minder regeltjes in de eetzaal en een nieuwe opdracht voor de grasmeester](https://www.ad.nl/voetbal/meer-tijd-voor-handtekeningen-minder-regeltjes-in-de-eetzaal-en-een-nieuwe-opdracht-voor-de-grasmeester~a7e4bb0a/)
-  > Tien dagen is Xavi Hernández nu echt aan het werk als nieuwe bondscoach van Oranje. Veel gaat er anders dan voorheen, hoofdzaken én bijzaken, zowel...
-- [Danny Noppert begonnen aan partij tegen Van Gerwen-beul, Wessel Nijman later in actie](https://www.ad.nl/darts/danny-noppert-begonnen-aan-partij-tegen-van-gerwen-beul-wessel-nijman-later-in-actie~a04be5f0/)
-  > De World Grand Prix dendert door zonder Michael van Gerwen en nummer één van de wereld Luke Littler. Desondanks zitten er nog vijf Nederlanders in...
+- [AD Voetbalpodcast | ‘Schandaal rond Manchester City heeft enorme impact op de sport en de competitie’](https://www.ad.nl/voetbal/ad-voetbalpodcast-schandaal-rond-manchester-city-heeft-enorme-impact-op-de-sport-en-de-competitie~a42af5cd9/)
+  > Oranje speelt in Griekenland de derde wedstrijd van de Nations League-campagne. Dat moet bondscoach Xavi doen zonder Jan Paul van Hecke. De...
+- [Gekke handsbal komt Arsenal duur te staan in Champions League, trainer Slegers slaat interviews over](https://www.ad.nl/voetbal/gekke-handsbal-komt-arsenal-duur-te-staan-in-champions-league-trainer-slegers-slaat-interviews-over~a5898774/)
+  > Arsenal vrouwen heeft op pijnlijke wijze punten gemorst in de Champions League. Verdedigster Leah Williamson maakte een onhandige bewuste handsbal,...
+- [Door vertraging en hoge kosten van omstreden scheepsbouwer dreigt gezamenlijk fregattencontract met België te sneuvelen](https://www.ad.nl/gorinchem/door-vertraging-en-hoge-kosten-van-omstreden-scheepsbouwer-dreigt-gezamenlijk-fregattencontract-met-belgie-te-sneuvelen~a7f0be78/)
+  > De toekomst van een gezamenlijk Nederlands-Belgisch fregattenproject staat onder druk. België onderzoekt alternatieven nu de bouw van zes nieuwe...
+- [Dat een uiterlijk stoere man, topfit en beresterk, zoiets zou doen, konden weinig fans voorspellen](https://www.ad.nl/binnenland/dat-een-uiterlijk-stoere-man-topfit-en-beresterk-zoiets-zou-doen-konden-weinig-fans-voorspellen~adaa005b/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [Anthropic waarschuwt beleggers dat zijn AI ‘catastrofaal’ voor de mensheid kan zijn](https://www.ad.nl/tech/anthropic-waarschuwt-beleggers-dat-zijn-ai-catastrofaal-voor-de-mensheid-kan-zijn~a42aa5ed3/)
+  > Kort voor je beursgang waarschuwen dat je software tot het uitsterven van de mensheid kan leiden. Het is een zet die we niet eerder zagen. Toch is...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Belgische legercommandant: ‘Heel jammer dat fregattenruzie rond Damen de voorbeeldige samenwerking beschadigt’](https://fd.nl/politiek/1613760/belgische-legercommandant-heel-jammer-dat-fregattenruzie-rond-damen-de-voorbeeldige-samenwerking-beschadigt)
-  > De Belgische commandant der strijdkrachten Frederik Vansina zegt dat de Nederlandse en Belgische bewindslieden een ‘heel goed’ gesprek hebben gehad...
-- [Nieuw bankentuchtrecht moet de deur naar buiten openzetten](https://fd.nl/opinie/1613790/nieuw-bankentuchtrecht-moet-de-deur-naar-buiten-openzetten)
-  > Tuchtrecht 2.0 moet echte verandering brengen en niet afhankelijk blijven van de input van de paar grootbanken die Nederland rijk is.
-- [Britse premier Burnham: ‘sterke indicaties dat Iran een rol speelde bij gebeurtenissen bij luchtmachtbasis’](https://fd.nl/politiek/1613762/britse-premier-burnham-sterke-indicaties-dat-iran-een-rol-speelde-bij-gebeurtenissen-bij-luchtmachtbasis)
-  > Het regime in Teheran had gewaarschuwd dat dit soort militaire bases een legitiem doelwit zijn.
-- [Mkb-ondernemers hekelen dekking nieuwe plannen box 3](https://fd.nl/politiek/1613761/mkb-ondernemers-hekelen-dekking-nieuwe-plannen-box-3)
-  > Volgens ondernemersorganisatie ONL zijn eigenaren van kleine bedrijven die sparen en beleggen voor hun oude dag hiervan de dupe.
-- [Netanyahu: copiloot op vlucht Dubai-Tel Aviv wilde vliegtuig doen neerstorten](https://fd.nl/politiek/1613796/netanyahu-copiloot-op-vlucht-dubai-tel-aviv-wilde-vliegtuig-doen-neerstorten)
-  > De copiloot is vastgenomen en zal in Saoedi-Arabië worden ondervraagd.
+- [Heel normale mensen](https://fd.nl/opinie/1613800/heel-normale-mensen)
+  > De ‘heel normale mensen met spaargeld’ draaien nu op voor het begrotingsgat, wees daar eerlijk over.
+- [Woonminister grijpt in: registerplicht en wettelijke gedragsnormen voor makelaars](https://fd.nl/politiek/1613793/woonminister-grijpt-in-registerplicht-en-wettelijke-gedragsnormen-voor-makelaars)
+  > Zelfregulering heeft niet kunnen voorkomen dat er nog steeds makelaars over de schreef gaan, bijvoorbeeld met onduidelijke biedprocedures....
+- [Cryptowereld uit harde kritiek op nieuwe kabinetsplannen box 3](https://fd.nl/politiek/1613745/cryptowereld-uit-harde-kritiek-op-nieuwe-kabinetsplannen-box-3)
+  > De belasting op ongerealiseerde winst lijkt voor ‘reguliere’ beleggers van tafel, maar voor cryptobeleggers is dat niet het geval. Zij zullen alsnog...
+- [Ongeduldige politici maken van innovatiefondsen vooral een snoeppot](https://fd.nl/opinie/1613526/ongeduldige-politici-maken-van-innovatie-een-snoeppot)
+  > Tegenover het risico van stroperigheid ligt kortademigheid. Zodra ze een fonds oprichten, plunderen ze een ander om accijnzen te verlagen, schrijft...
+- [Personalia donderdag 1 oktober](https://fd.nl/bedrijfsleven/1613748/personalia-donderdag-1-oktober)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
