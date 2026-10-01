@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-10-2026 om 16:09*
+*Laatst bijgewerkt: 01-10-2026 om 21:40*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Podcast De Dag: wat is het Spekman-effect?](https://nos.nl/l/2633278)
-  > Een overwinning voor de linkse partijen en de vakbonden: de bezuinigingen op de sociale zekerheid zijn voorlopig van tafel. Het succes wordt voor een...
-- [Onderzoek naar koloniaal verleden Oranjes: 'Bijna elke onderzoeker ontdekte iets'](https://nos.nl/l/2633277)
-  > Hij had het wel een paar keer benoemd, onderzoeker Gert Oostindie. Dat het hoog tijd werd dat de koning onderzoek zou laten doen naar de rol van de...
-- [EU-ministers willen nog strenger migratiebeleid voor noodsituaties aan grens](https://nos.nl/l/2633276)
-  > De inkt van het EU-migratiepact is amper opgedroogd en toch wordt alweer gewerkt aan nieuwe maatregelen om nog meer grip te krijgen op migratie naar...
-- [Iran en VS onderhandelen verder over bestand, strijd moddert voort](https://nos.nl/l/2633274)
-  > Iran en de VS steggelen over een voorstel tot een staakt-het-vuren. Het is alweer een poging om de oorlog te beëindigen die eind februari begon met...
-- [De koninklijke troon maakt uitstapje naar de plek waar hij ooit gemaakt werd](https://nos.nl/l/2633273)
-  > De troon waar koning Willem-Alexander op zit als hij de troonrede voorleest op Prinsjesdag, staat tijdelijk in Roermond. De koninklijke zetel uit de...
+- [Terdoodveroordeelde Christa Pike na 'marteling' in kritieke toestand, zegt advocaat](https://nos.nl/l/2633325)
+  > De terdoodveroordeelde Christa Pike verkeert in kritieke toestand en krijgt "levensreddende medische zorg", heeft een van haar advocaten, Randy...
+- [Per direct geen meta-brillen meer te koop bij Hans Anders](https://nos.nl/l/2633322)
+  > Hans Anders stopt per direct met de verkoop van camerabrillen van Meta. Dat bevestigt het bedrijf aan persbureau ANP na berichtgeving door het AD.
+  ...
+- [Kabinet zit woensdag weer om tafel met bonden en werkgevers na maanden uitstel](https://nos.nl/l/2633321)
+  > Aanstaande woensdag zitten de vakbonden en werkgevers voor het eerst sinds maanden weer met het kabinet aan tafel om te praten over de toekomst van...
+- [Uitspraken Van Weel over Bolle Jos wekken ergernis in Brussel](https://nos.nl/l/2633319)
+  > Opmerkingen van minister Van Weel over het stopzetten van betalingen aan Sierra Leone leiden tot irritatie binnen de Europese Commissie. De minister...
+- [Scheepsbouwer Damen wil miljarden van Duitse overheid voor schrappen order](https://nos.nl/l/2633317)
+  > Scheepsbouwer Damen eist een schadevergoeding van bijna 4,7 miljard euro van de Duitse regering voor het schrappen van de order voor fregatten. Dat...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [‘Dat zou een schande zijn’: EK dreigt aan Jong Oranje en aanvoerder Givairo Read voorbij te gaan](https://www.ad.nl/voetbal/dat-zou-een-schande-zijn-ek-dreigt-aan-jong-oranje-en-aanvoerder-givairo-read-voorbij-te-gaan~a75fe68b/)
-  > Givairo Read (20) miste een groot deel van de EK-kwalificatie van Jong Oranje door blessures. Prompt vindt de Feyenoorder zich als captain terug op...
-- [Hans Anders verwijdert Meta-bril uit alle winkels, ook ziekenhuizen en defensie grijpen in](https://www.ad.nl/tech/hans-anders-verwijdert-meta-bril-uit-alle-winkels-ook-ziekenhuizen-en-defensie-grijpen-in~adb89092/)
-  > Hans Anders, een van de grootste optiekketens van Nederland, schort per direct de verkoop op van de omstreden AI-bril van Facebook-eigenaar Meta. De...
-- [Kroongetuige Nabil B. bouwt aan een nieuw leven, maar advocaat weet: ‘Hij blijft tot zijn graf een opgejaagd man’](https://www.ad.nl/binnenland/kroongetuige-nabil-b-bouwt-aan-een-nieuw-leven-maar-advocaat-weet-hij-blijft-tot-zijn-graf-een-opgejaagd-man~acdf4af2/)
-  > Met het pleidooi van zijn advocaat Peter Schouten komt het einde van het Marengo-proces voor kroongetuige Nabil B. nu echt in zicht. Iets minder dan...
-- [Suzan & Freek komen met nieuw album: ‘Ontstaan toen ons leven plots andere richting nam’](https://www.ad.nl/show/suzan-en-freek-komen-met-nieuw-album-ontstaan-toen-ons-leven-plots-andere-richting-nam~aaca2276/)
-  > Suzan & Freek brengen op 13 november hun nieuwe album Pijnstiller uit, maakte het duo donderdag bekend. De gelijknamige nieuwe single is inmiddels te...
-- [Ook nadat je je laatste adem hebt uitgeblazen, moet je nog presteren](https://www.ad.nl/binnenland/ook-nadat-je-je-laatste-adem-hebt-uitgeblazen-moet-je-nog-presteren~a71c45c3/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Bondscoach Xavi neemt schuld op zich na zwakke eerste helft Oranje: ‘Dat is mijn fout’](https://www.ad.nl/voetbal/bondscoach-xavi-neemt-schuld-op-zich-na-zwakke-eerste-helft-oranje-dat-is-mijn-fout~a14c7ffc/)
+  > Oranje toonde donderdagavond twee gezichten in Thessaloniki. Na een belabberde eerste helft stond het Nederlands elftal met 2-0 achter, door een goed...
+- [Portugal wint zonder Cristiano Ronaldo van Denemarken, Bruno Fernandes en Gonçalo Ramos schitteren](https://www.ad.nl/voetbal/portugal-wint-zonder-cristiano-ronaldo-van-denemarken-bruno-fernandes-en-goncalo-ramos-schitteren~af7add8d/)
+  > Portugal heeft in de Nations League met 2-4 gewonnen in de uitwedstrijd bij Denemarken. Zonder recordinternational Cristiano Ronaldo, die woensdag...
+- [Oranje op rapport | Invallers Lang en Reijnders krijgen de hoogste cijfers, twee spelers ver onder de maat](https://www.ad.nl/voetbal/oranje-op-rapport-invallers-lang-en-reijnders-krijgen-de-hoogste-cijfers-twee-spelers-ver-onder-de-maat~ac08761d/)
+  > Het Nederlands elftal hield na een zwakke eerste en een heel wat betere tweede helft een punt over aan de uitwedstrijd tegen Griekenland: 2-2. Dat...
+- [Oranje speelt deze interlandperiode nog één duel, dit is het programma en de stand in de Nations League](https://www.ad.nl/voetbal/oranje-speelt-deze-interlandperiode-nog-een-duel-dit-is-het-programma-en-de-stand-in-de-nations-league~a1d10607/)
+  > De eerste drie wedstrijden van het Nederlands elftal onder de nieuwe bondscoach Xavi Hernández zitten erop: 1-1 tegen Duitsland, een nipte uitzege op...
+- [Oranje ontsnapt in Griekenland na zwakke eerste helft aan eerste nederlaag onder Xavi](https://www.ad.nl/voetbal/oranje-ontsnapt-in-griekenland-na-zwakke-eerste-helft-aan-eerste-nederlaag-onder-xavi~abccf828/)
+  > Op een zwoele, zinderende avond in Thessaloniki ontsnapte Xavi Hernández aan zijn eerste nederlaag als bondscoach van Oranje. Het Nederlands elftal...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Wall Street werkt verlies weg na adempauze op obligatiemarkt](https://fd.nl/financiele-markten/1614134/wall-street-werkt-verlies-weg-na-adempauze-op-obligatiemarkt)
+  > De meest opvallende stijger was adviesbureau Accenture met een plus van 16%.
+- [Britten zijn welkom in Europa. Zodra ze er klaar voor zijn](https://fd.nl/opinie/1613784/britten-zijn-welkom-in-europa-zodra-ze-er-klaar-voor-zijn)
+  > Andy Burnham werd deze week de eerste zittende Britse premier die zegt open te staan voor het terugdraaien van de brexit.
+- [Fors bezuinigingspakket moet Frans begrotingstekort terugdringen, maar is dat genoeg?](https://fd.nl/politiek/1614194/bezuinigingspakket-van-54-mrd-moet-frans-begrotingstekort-terugdringen-maar-is-dat-genoeg)
+  > De begroting die de Franse regering donderdag voorstelt, geeft een beetje verlichting, maar is nog onvoldoende om de schuld te stabiliseren, aldus...
 - [Overheden willen meer werken met opensourcesoftware](https://fd.nl/politiek/1614092/overheden-willen-meer-werken-met-opensourcesoftware)
   > Bij open source is de code achter de software voor iedereen te bekijken, te gebruiken en aan te passen.  Daarmee willen overheden en ICT-coöperatie...
 - [‘Accountants van RSM overwegen een beursgang’](https://fd.nl/financiele-markten/1614190/accountants-van-rsm-overwegen-een-beursgang)
   > De beursnotering zou een alternatief kunnen vormen voor een overname door private equity.
-- [Kan regulering voorkomen dat makelaars over de schreef gaan? ‘We moeten terug naar de tijd dat het nog een beschermd beroep was’](https://fd.nl/politiek/1613887/kan-regulering-voorkomen-dat-makelaars-over-de-schreef-gaan-we-moeten-terug-naar-de-tijd-dat-het-nog-een-beschermd-beroep-was)
-  > Gerommel met biedboeken, vriendjespolitiek. Het kabinet wil ingrijpen om misstanden in de makelaardij tegen te gaan. Belangenverenigingen reageren...
-- [Duitse ‘Generaal Tempo’ mag ook de rest van de Navo klaarstomen voor een potentiële oorlog](https://fd.nl/politiek/1613146/duitse-generaal-tempo-mag-ook-de-rest-van-de-navo-klaarstomen-voor-een-potentiele-oorlog)
-  > De Duitse legerbaas Carsten Breuer wil leger en samenleving zo snel mogelijk ‘gevechtsklaar’ hebben. De ‘eerste soldaat van Duitsland’ wordt volgend...
-- [Eindhovense chipontwikkelaar Axelera mikt op beursgang in VS over drie jaar](https://fd.nl/bedrijfsleven/1614187/eindhovense-chipontwikkelaar-axelera-mikt-op-beursgang-in-vs-over-drie-jaar)
-  > Ceo Fabrizio del Maffeo denkt dat over tien jaar een beurswaarde voor de chipontwikkelaar van $100 mrd tot $150 mrd mogelijk moet zijn.
 
 ### Meest gelezen
 
