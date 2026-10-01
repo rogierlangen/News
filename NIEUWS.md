@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-10-2026 om 01:54*
+*Laatst bijgewerkt: 01-10-2026 om 08:34*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [ME ingezet in Rhenen na vernieling met vuurwerk bij gemeentehuis](https://nos.nl/l/2633214)
-  > Twee ruiten van het gemeentehuis van Rhenen zijn afgelopen avond vernield met vuurwerk. Dat gebeurde na een raadsvergadering over de opvang van...
-- [Overheid neemt toezicht op makelaars over van makelaars zelf](https://nos.nl/l/2633213)
-  > Met frisse tegenzin gaat woonminister Boekholt-O'Sullivan (D66) zich bemoeien met de makelaarsbranche. Zij gaat een makelaarsregister introduceren en...
-- [Hoogste Amerikaanse rechter: executie Christa Pike mag doorgaan](https://nos.nl/l/2633212)
-  > De executie van Christa Pike mag toch doorgaan. Het Amerikaanse Hooggerechtshof heeft het besluit van het federaal hof van beroep om de executie uit...
-- [Bloedhete zomer kostte Zwitserse gletsjers vele meters ijs: 'Dit is de toekomst'](https://nos.nl/l/2633211)
-  > De Zwitserse gletsjers hebben extreem zwaar te lijden gehad onder de afgelopen zomer. Niet alleen de aanhoudende hitte speelde de gletsjers parten....
-- [Politieactie bij distributiecentrum van drogisterijketen in Peize](https://nos.nl/l/2633210)
-  > Bij een distributiecentrum van drogisterijketen Die Grenze in Peize heeft afgelopen avond een politieactie plaatsgevonden. De actie vond plaats op...
+- [Getuigen beschrijven mislukte executie Christa Pike: 'Ze hebben het verkloot'](https://nos.nl/l/2633246)
+  > "Ik zal deze wereld verlaten op de manier waarop ik grotendeels mijn tijd er heb doorgebracht: vol liefde." Met die woorden nam Christa Pike (50)...
+- [Opnieuw doden en gewonden in Afghanistan na Pakistaanse luchtaanvallen](https://nos.nl/l/2633239)
+  > Bij Pakistaanse luchtaanvallen op buurland Afghanistan zijn zeker negen mensen gedood, onder wie vrouwen en kinderen, melden de Taliban. Bij de...
+- [Europa stopt betalingen aan Sierra Leone vanwege Bolle Jos](https://nos.nl/l/2633232)
+  > De Europese Commissie heeft per direct betalingen aan Sierra Leone stopgezet omdat het land niet meewerkt aan de uitlevering van drugscrimineel Bolle...
+- [52.000 zieken kregen misschien de verkeerde uitkering, hersteloperatie van start](https://nos.nl/l/2633229)
+  > Af en toe krijgt Maaike Keesen een brief van het UWV. "Mogelijk hebben we een fout gemaakt in de berekening van uw WIA-uitkering", staat in een brief...
+- [Netanyahu: te vroeg voor conclusie dat Iran bij aanval in vliegtuig betrokken was](https://nos.nl/l/2633227)
+  > De Israëlische premier Netanyahu vindt het nog te vroeg om te concluderen dat Iran betrokken was bij de gewelddadige aanval in het vliegtuig van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hooggerechtshof VS: executie Christa Pike mag toch doorgaan](https://www.ad.nl/buitenland/hooggerechtshof-vs-executie-christa-pike-mag-toch-doorgaan~a48bc333/)
-  > Het Amerikaanse Hooggerechtshof heeft woensdag een uitspraak van een lagere rechtbank vernietigd en bepaald dat Tennessee door kan gaan met de...
-- [Rapper Lil Wayne verloofd met 21 jaar jongere influencer](https://www.ad.nl/show/rapper-lil-wayne-verloofd-met-21-jaar-jongere-influencer~af9b0f1a/)
-  > De Amerikaanse rapper Lil Wayne gaat zijn jawoord geven aan zijn 21 jaar jongere verloofde Madi Cannon. Dat deelde de artiest in een video op...
-- [Rechter maakt weg vrij voor overname Warner Bros. door Paramount](https://www.ad.nl/buitenland/rechter-maakt-weg-vrij-voor-overname-warner-bros-door-paramount~aa771b23/)
-  > Een rechtbank in de Amerikaanse stad Oakland heeft de weg vrijgemaakt voor de overname van mediaconcern Warner Bros. Discovery door branchegenoot...
-- [Google beperkt voorlopig toegang van nieuwe versie AI-model Gemini](https://www.ad.nl/buitenland/google-beperkt-voorlopig-toegang-van-nieuwe-versie-ai-model-gemini~ab2d6307/)
-  > Google heeft woensdag een nieuw AI-model uitgebracht. Het gaat om het langverwachte Gemini 4 Argon dat nog niet voor het grote publiek beschikbaar is.
-- [Zeer grote brand in loods Amsterdam, geen treinen tussen Sloterdijk en Schiphol](https://www.ad.nl/amsterdam/zeer-grote-brand-in-loods-amsterdam-geen-treinen-tussen-sloterdijk-en-schiphol~af4014a7/)
-  > Op de Johan Huizingalaan in het westen van Amsterdam is een zeer grote brand uitgebroken. Volgens de veiligheidsregio staat er een loods in brand. De...
+- [Schoonmaker wordt ontslagen vanwege autisme: dat komt werkgever duur te staan](https://www.ad.nl/binnenland/schoonmaker-wordt-ontslagen-vanwege-autisme-dat-komt-werkgever-duur-te-staan~a2699529/)
+  > Als zijn jaarcontract afloopt, krijgt een schoonmaker uit Hellevoetsluis te horen dat het schoonmaakbedrijf niet met hem verder wil. In de...
+- [De leugen van de industrie: ‘Automaat nooit levenslang onderhoudsvrij’](https://www.ad.nl/auto/de-leugen-van-de-industrie-automaat-nooit-levenslang-onderhoudsvrij~a5e5d011/)
+  > Veel automobilisten denken dat een automaat geen onderhoud nodig heeft. Monteurs waarschuwen echter dat transmissieolie wel degelijk veroudert en een...
+- [Vrouwen in Nederland bespioneerd: winkels, clubs en sauna’s in actie: ‘Wij staken verkoop Meta-bril’](https://www.ad.nl/tech/vrouwen-in-nederland-bespioneerd-winkels-clubs-en-saunas-in-actie-wij-staken-verkoop-meta-bril~a7372e73/)
+  > Honderden, mogelijk duizenden Nederlandse vrouwen en minderjarigen zijn de afgelopen maanden stiekem gefilmd met een slimme camerabril. Foto’s en...
+- [Medewerkers op straat gezet die geld voor toeslagenouders overmaakten naar bedrijven van zichzelf en familie](https://www.ad.nl/dordrecht/medewerkers-op-straat-gezet-die-geld-voor-toeslagenouders-overmaakten-naar-bedrijven-van-zichzelf-en-familie~a50bcf922/)
+  > De Sociale Dienst Drechtsteden (SDD) heeft twee medewerkers weggestuurd die geld overmaakten naar eigen bedrijven, van een familielid en rechtstreeks...
+- [Waarom de zwarte doos uit de BMW goud waard is voor het onderzoek naar schoolkampdrama](https://www.ad.nl/binnenland/waarom-de-zwarte-doos-uit-de-bmw-goud-waard-is-voor-het-onderzoek-naar-schoolkampdrama~ab555384/)
+  > De 20-jarige verdachte van het schoolkampdrama bij Vogelwaarde, waarbij drie leerlingen en de directrice van een basisschool werden doodgereden, mag...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Heel normale mensen](https://fd.nl/opinie/1613800/heel-normale-mensen)
-  > De ‘heel normale mensen met spaargeld’ draaien nu op voor het begrotingsgat, wees daar eerlijk over.
-- [Woonminister grijpt in: registerplicht en wettelijke gedragsnormen voor makelaars](https://fd.nl/politiek/1613793/woonminister-grijpt-in-registerplicht-en-wettelijke-gedragsnormen-voor-makelaars)
-  > Zelfregulering heeft niet kunnen voorkomen dat er nog steeds makelaars over de schreef gaan, bijvoorbeeld met onduidelijke biedprocedures....
-- [Cryptowereld uit harde kritiek op nieuwe kabinetsplannen box 3](https://fd.nl/politiek/1613745/cryptowereld-uit-harde-kritiek-op-nieuwe-kabinetsplannen-box-3)
-  > De belasting op ongerealiseerde winst lijkt voor ‘reguliere’ beleggers van tafel, maar voor cryptobeleggers is dat niet het geval. Zij zullen alsnog...
-- [Ongeduldige politici maken van innovatiefondsen vooral een snoeppot](https://fd.nl/opinie/1613526/ongeduldige-politici-maken-van-innovatie-een-snoeppot)
-  > Tegenover het risico van stroperigheid ligt kortademigheid. Zodra ze een fonds oprichten, plunderen ze een ander om accijnzen te verlagen, schrijft...
-- [Personalia donderdag 1 oktober](https://fd.nl/bedrijfsleven/1613748/personalia-donderdag-1-oktober)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Van Lanschot Kempen neemt beheer pensioenportefeuille van €26 mrd over van Aegon](https://fd.nl/bedrijfsleven/1613885/van-lanschot-kempen-neemt-beheer-pensioenportefeuille-van-26-mrd-over-van-aegon)
+  > Met deze stap groeit het fiduciair beheerd vermogen van de Amsterdamse vermogensbank naar €124 mrd. De grootste klanten Pensioenfonds KPN en Algemeen...
+- [Nederlands modemerk Omoda breidt uit in België](https://fd.nl/bedrijfsleven/1613980/nederlands-modemerk-omoda-breidt-uit-in-belgie)
+  > Met de overname van Mertens Schoenen uit Leuven opent Omoda uit Zierikzee zijn tweede winkel bij de Zuiderburen.
+- [CBS: Cao-lonen stijgen met 4% in derde kwartaal](https://fd.nl/samenleving/1613978/cbs-cao-lonen-stijgen-met-4-in-derde-kwartaal)
+  > Lonen het meest gestegen in de bouw en specialistische zakelijke diensten.
+- [Winkels zetten 3,5% meer om in augustus](https://fd.nl/bedrijfsleven/1613977/winkels-zetten-3-5-meer-om-in-augustus)
+  > De non-food groeide sterker dan voedingsmiddelen.
+- [Liefhebbers weten precies waarom vinyl in de lift zit](https://fd.nl/samenleving/1613529/liefhebbers-weten-precies-waarom-vinyl-in-de-lift-zit)
+  > Vinyl heeft iets onweerstaanbaars. Wat maakt de langspeelplaat in het streamingtijdperk toch zo aantrekkelijk? Vijf liefhebbers vertellen wat platen...
 
 ### Meest gelezen
 
