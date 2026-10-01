@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-09-2026 om 22:54*
+*Laatst bijgewerkt: 01-10-2026 om 01:54*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [ME ingezet in Rhenen na vernieling met vuurwerk bij gemeentehuis](https://nos.nl/l/2633214)
+  > Twee ruiten van het gemeentehuis van Rhenen zijn afgelopen avond vernield met vuurwerk. Dat gebeurde na een raadsvergadering over de opvang van...
+- [Overheid neemt toezicht op makelaars over van makelaars zelf](https://nos.nl/l/2633213)
+  > Met frisse tegenzin gaat woonminister Boekholt-O'Sullivan (D66) zich bemoeien met de makelaarsbranche. Zij gaat een makelaarsregister introduceren en...
+- [Hoogste Amerikaanse rechter: executie Christa Pike mag doorgaan](https://nos.nl/l/2633212)
+  > De executie van Christa Pike mag toch doorgaan. Het Amerikaanse Hooggerechtshof heeft het besluit van het federaal hof van beroep om de executie uit...
+- [Bloedhete zomer kostte Zwitserse gletsjers vele meters ijs: 'Dit is de toekomst'](https://nos.nl/l/2633211)
+  > De Zwitserse gletsjers hebben extreem zwaar te lijden gehad onder de afgelopen zomer. Niet alleen de aanhoudende hitte speelde de gletsjers parten....
 - [Politieactie bij distributiecentrum van drogisterijketen in Peize](https://nos.nl/l/2633210)
   > Bij een distributiecentrum van drogisterijketen Die Grenze in Peize heeft afgelopen avond een politieactie plaatsgevonden. De actie vond plaats op...
-- [Moet de AfD verboden worden? Kwestie voor het eerst in parlement Thüringen besproken](https://nos.nl/l/2633209)
-  > Vormt de AfD zo'n groot gevaar voor Duitsland dat de partij verboden moet worden? Die vraag werd tot middernacht besproken in het deelstaatparlement...
-- [RTL: hackers Flink kregen, ondanks ultimatum, nog geen geld van slachtoffers](https://nos.nl/l/2633196)
-  > De cybercriminelen die vorige week inbraken bij boodschappenbezorger Flink, hebben nog niets verdiend met hun hack. De hackers benaderden medewerkers...
-- [Einde aan Fabers grenscontroles, maar bevoegdheden marechaussee worden ruimer](https://nos.nl/l/2633195)
-  > Vanaf morgen stopt de Koninklijke Marechaussee (KMar) met de binnengrenscontroles zoals die waren ingesteld door toenmalig PVV-minister Faber van...
-- [Verdriet om overlijden 'lieve, grappige Paulien': 'Wat zul je gemist worden'](https://nos.nl/l/2633190)
-  > "Dit slaat in als een bom", zegt Volkskrant-hoofdredacteur Pieter Klok over het overlijden van schrijfster, cabaretière, taalkundige en columnist...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [AD Voetbalpodcast | ‘Schandaal rond Manchester City heeft enorme impact op de sport en de competitie’](https://www.ad.nl/voetbal/ad-voetbalpodcast-schandaal-rond-manchester-city-heeft-enorme-impact-op-de-sport-en-de-competitie~a42af5cd9/)
-  > Oranje speelt in Griekenland de derde wedstrijd van de Nations League-campagne. Dat moet bondscoach Xavi doen zonder Jan Paul van Hecke. De...
-- [Gekke handsbal komt Arsenal duur te staan in Champions League, trainer Slegers slaat interviews over](https://www.ad.nl/voetbal/gekke-handsbal-komt-arsenal-duur-te-staan-in-champions-league-trainer-slegers-slaat-interviews-over~a5898774/)
-  > Arsenal vrouwen heeft op pijnlijke wijze punten gemorst in de Champions League. Verdedigster Leah Williamson maakte een onhandige bewuste handsbal,...
-- [Door vertraging en hoge kosten van omstreden scheepsbouwer dreigt gezamenlijk fregattencontract met België te sneuvelen](https://www.ad.nl/gorinchem/door-vertraging-en-hoge-kosten-van-omstreden-scheepsbouwer-dreigt-gezamenlijk-fregattencontract-met-belgie-te-sneuvelen~a7f0be78/)
-  > De toekomst van een gezamenlijk Nederlands-Belgisch fregattenproject staat onder druk. België onderzoekt alternatieven nu de bouw van zes nieuwe...
-- [Dat een uiterlijk stoere man, topfit en beresterk, zoiets zou doen, konden weinig fans voorspellen](https://www.ad.nl/binnenland/dat-een-uiterlijk-stoere-man-topfit-en-beresterk-zoiets-zou-doen-konden-weinig-fans-voorspellen~adaa005b/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Anthropic waarschuwt beleggers dat zijn AI ‘catastrofaal’ voor de mensheid kan zijn](https://www.ad.nl/tech/anthropic-waarschuwt-beleggers-dat-zijn-ai-catastrofaal-voor-de-mensheid-kan-zijn~a42aa5ed3/)
-  > Kort voor je beursgang waarschuwen dat je software tot het uitsterven van de mensheid kan leiden. Het is een zet die we niet eerder zagen. Toch is...
+- [Hooggerechtshof VS: executie Christa Pike mag toch doorgaan](https://www.ad.nl/buitenland/hooggerechtshof-vs-executie-christa-pike-mag-toch-doorgaan~a48bc333/)
+  > Het Amerikaanse Hooggerechtshof heeft woensdag een uitspraak van een lagere rechtbank vernietigd en bepaald dat Tennessee door kan gaan met de...
+- [Rapper Lil Wayne verloofd met 21 jaar jongere influencer](https://www.ad.nl/show/rapper-lil-wayne-verloofd-met-21-jaar-jongere-influencer~af9b0f1a/)
+  > De Amerikaanse rapper Lil Wayne gaat zijn jawoord geven aan zijn 21 jaar jongere verloofde Madi Cannon. Dat deelde de artiest in een video op...
+- [Rechter maakt weg vrij voor overname Warner Bros. door Paramount](https://www.ad.nl/buitenland/rechter-maakt-weg-vrij-voor-overname-warner-bros-door-paramount~aa771b23/)
+  > Een rechtbank in de Amerikaanse stad Oakland heeft de weg vrijgemaakt voor de overname van mediaconcern Warner Bros. Discovery door branchegenoot...
+- [Google beperkt voorlopig toegang van nieuwe versie AI-model Gemini](https://www.ad.nl/buitenland/google-beperkt-voorlopig-toegang-van-nieuwe-versie-ai-model-gemini~ab2d6307/)
+  > Google heeft woensdag een nieuw AI-model uitgebracht. Het gaat om het langverwachte Gemini 4 Argon dat nog niet voor het grote publiek beschikbaar is.
+- [Zeer grote brand in loods Amsterdam, geen treinen tussen Sloterdijk en Schiphol](https://www.ad.nl/amsterdam/zeer-grote-brand-in-loods-amsterdam-geen-treinen-tussen-sloterdijk-en-schiphol~af4014a7/)
+  > Op de Johan Huizingalaan in het westen van Amsterdam is een zeer grote brand uitgebroken. Volgens de veiligheidsregio staat er een loods in brand. De...
 
 ### Meest gelezen
 
