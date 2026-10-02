@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-10-2026 om 01:25*
+*Laatst bijgewerkt: 02-10-2026 om 08:10*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Hulpverlener met ebola aangekomen in Leids ziekenhuis](https://nos.nl/l/2633355)
-  > De medewerker van hulporganisatie Artsen zonder Grenzen die besmet is geraakt met ebola, is aangekomen in het Leids Universitair Medisch Centrum...
-- [Katwijk stemt in met komst miljardenfabriek Amerikaanse farmaceut Eli Lilly](https://nos.nl/l/2633354)
-  > Het Amerikaanse farmaciebedrijf Eli Lilly kan voor 3 miljard dollar een medicijnfabriek gaan bouwen in Katwijk. De gemeenteraad heeft ingestemd met...
-- [Terdoodveroordeelde Christa Pike na 'marteling' in kritieke toestand, zegt advocaat](https://nos.nl/l/2633325)
-  > De terdoodveroordeelde Christa Pike verkeert in kritieke toestand en krijgt "levensreddende medische zorg", heeft een van haar advocaten, Randy...
-- [Per direct geen meta-brillen meer te koop bij Hans Anders](https://nos.nl/l/2633322)
-  > Hans Anders stopt per direct met de verkoop van camerabrillen van Meta. Dat bevestigt het bedrijf aan persbureau ANP na berichtgeving door het AD.
-  ...
-- [Kabinet zit woensdag weer om tafel met bonden en werkgevers na maanden uitstel](https://nos.nl/l/2633321)
-  > Aanstaande woensdag zitten de vakbonden en werkgevers voor het eerst sinds maanden weer met het kabinet aan tafel om te praten over de toekomst van...
+- [Peuter (3) trekt geladen pistool van moeder in kinderopvang in VS, ouders aangeklaagd](https://nos.nl/l/2633376)
+  > In een buitenwijk van de Amerikaanse stad Detroit heeft afgelopen maandag een driejarig jongetje in een kinderopvang een geladen pistool getrokken en...
+- [Vonnis VS vernietigd om AI-video waarin gedood slachtoffer verhaal vertelde](https://nos.nl/l/2633375)
+  > In een Amerikaanse rechtszaak waarin een AI-avatar van het doodgeschoten slachtoffer een verklaring aflegde, moet de straf voor de dader opnieuw...
+- [Vertoning Gaza-documentaire NAZA verstoord door slachtoffer 7 oktober](https://nos.nl/l/2633374)
+  > Tijdens een vertoning van de documentaire NAZA is gistermiddag in Delft onrust ontstaan. Tijdens de film over het grote aantal burgerdoden in Gaza...
+- [Nieuwe lichting astronauten naar ISS in Amerikaanse recordtijd](https://nos.nl/l/2633369)
+  > De nieuwste lichting astronauten is in een Amerikaanse recordtijd aangekomen bij het internationale ruimtestation ISS. De reis duurde slechts acht...
+- [Inflatie weer iets hoger in september](https://nos.nl/l/2633364)
+  > Door de opgelopen brandstofprijzen is de inflatie de afgelopen maand weer iets hoger uitgevallen, namelijk 3,4 procent. Dat blijkt uit de eerste...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [OpenAI: medewerkers ontslagen om onzorgvuldige omgang gevoelige informatie](https://www.ad.nl/tech/openai-medewerkers-ontslagen-om-onzorgvuldige-omgang-gevoelige-informatie~a7ca7800/)
-  > OpenAI, de maker van ChatGPT, heeft laten weten drie onderzoekers te hebben ontslagen wegens vermeende onzorgvuldige omgang met ‘gevoelige...
-- [Duitse politie houdt drie mannen aan om terreurverdenking](https://www.ad.nl/buitenland/duitse-politie-houdt-drie-mannen-aan-om-terreurverdenking~af65b779/)
-  > In Duitsland zijn drie mannen opgepakt die ervan worden verdacht een misdrijf tegen de staatsveiligheid te hebben voorbereid. Dat melden diverse...
-- [Katwijk stemt in met komst miljardenfabriek Amerikaanse farmaceut](https://www.ad.nl/binnenland/katwijk-stemt-in-met-komst-miljardenfabriek-amerikaanse-farmaceut~af2f71b8f/)
-  > Het Amerikaanse bedrijf Eli Lilly kan voor 3 miljard dollar een medicijnfabriek gaan bouwen in Katwijk. De gemeenteraad heeft ingestemd met de...
-- [Gian van Veen moeizaam naar kwartfinales World Grand Prix, Niels Zonneveld stunt tegen oud-wereldkampioen](https://www.ad.nl/darts/gian-van-veen-moeizaam-naar-kwartfinales-world-grand-prix-niels-zonneveld-stunt-tegen-oud-wereldkampioen~a0f51165/)
-  > Gian van Veen heeft de kwartfinales van de World Grand Prix bereikt. De Nederlandse darter, derde op de wereldranglijst, won na een spannende partij...
-- [Portugal maakt er vier zonder Cristiano Ronaldo, nieuwe aanvoerder Bruno Fernandes schittert](https://www.ad.nl/voetbal/portugal-maakt-er-vier-zonder-cristiano-ronaldo-nieuwe-aanvoerder-bruno-fernandes-schittert~af7add8d/)
-  > Portugal heeft donderdagavond in de Nations League de uitwedstrijd bij Denemarken gewonnen. Het werd 2-4 in Parken in Kopenhagen. Zonder...
+- [Joop van den Ende (84): ‘Ik kom uit een generatie met goede genen, maar weet dat het binnenkort afgelopen kan zijn’](https://www.ad.nl/show/joop-van-den-ende-84-ik-kom-uit-een-generatie-met-goede-genen-maar-weet-dat-het-binnenkort-afgelopen-kan-zijn~ab034da9/)
+  > Hij is nu 84 jaar, maar theatermaker Joop van den Ende denkt er niet aan stil te zitten. „Ik ben een workaholic.” Binnenkort start de kaartverkoop...
+- [Max Verstappen begonnen aan tweede training in Maleisië, grote kans op regen](https://www.ad.nl/formule-1/max-verstappen-begonnen-aan-tweede-training-in-maleisie-grote-kans-op-regen~abeefb1d/)
+  > Na een loodzware start in Maleisië is het tijd voor de tweede vrije training. Max Verstappen begon uitstekend aan het raceweekend met de snelste tijd...
+- [Griekse media: ‘Erkenning van fout leidde tot uitstekende coaching van Xavi in de tweede helft’](https://www.ad.nl/voetbal/griekse-media-erkenning-van-fout-leidde-tot-uitstekende-coaching-van-xavi-in-de-tweede-helft~ada8f681/)
+  > Ondanks het weggeven van een 2-0 voorsprong overheerst in Griekenland een gevoel van trots na de 2-2 tegen Oranje. ‘Ook tegen Nederland werd...
+- [Vier naakte veldbestormers doen dansje tijdens hockeywedstrijd: ‘Ze zijn gek, joh!’](https://www.ad.nl/andere-sporten/vier-naakte-veldbestormers-doen-dansje-tijdens-hockeywedstrijd-ze-zijn-gek-joh~a84905ef/)
+  > Opmerkelijke taferelen in het hockey, donderdagavond in Wassenaar. Bij de Gold Cup-wedstrijd tussen HGC en Ring Pass bestormden vier streakers het...
+- [Veldbestorming en tennisballen: duel Ierland stilgelegd na pro-Palestijnse protesten](https://www.ad.nl/voetbal/veldbestorming-en-tennisballen-duel-ierland-stilgelegd-na-pro-palestijnse-protesten~a14799f2/)
+  > Opnieuw hommeles in een Nations League-wedstrijd van Ierland. De wedstrijd tegen Oostenrijk moest tot twee keer toe stilgelegd worden door...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Kleine spaarders](https://fd.nl/opinie/1614078/kleine-spaarders)
-  > De Kamer, altijd op zoek naar zielige mensen om te redden, springt in de bres voor de kleine spaarder. Columnist Mathijs Bouman vraagt zich af hoe...
-- [Wat dit land nodig heeft …](https://fd.nl/opinie/1613789/wat-dit-land-nodig-heeft)
-  > Net als in de tijd van ‘soepele Fons’ zegt de minister van Financiën al het goede – maar hij doet het omgekeerde. En dus lopen de rente-uitgaven op,...
-- [Oegandese miljardair eist €200 mln in zaak tegen Rabo-dochter en andere investeerders](https://fd.nl/bedrijfsleven/1613534/oegandese-miljardair-eist-200-mln-in-zaak-tegen-rabo-dochter-en-andere-investeerders)
-  > Sudhir Ruparelia claimt dat zijn bank tien jaar geleden ver onder marktwaarde is verkocht, en dat Rabobank en andere partijen hiervan hebben...
-- [Personalia vrijdag 2 oktober](https://fd.nl/bedrijfsleven/1614076/personalia-vrijdag-2-oktober)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Wall Street werkt verlies weg na adempauze op obligatiemarkt](https://fd.nl/financiele-markten/1614134/wall-street-werkt-verlies-weg-na-adempauze-op-obligatiemarkt)
-  > De meest opvallende stijger was adviesbureau Accenture met een plus van 16%.
+- [Het rubberfiasco van Henry Ford in het hart van de Amazone](https://fd.nl/samenleving/1613682/het-rubberfiasco-van-henry-ford-in-het-hart-van-de-amazone)
+  > De Amerikaanse autopionier droomde van een industrieel Utopia in Brazilië. De podcast 99% Invisible reconstrueert hoe het misging.
+- [‘BAE geïnteresseerd in overname van Robin Radar’](https://fd.nl/bedrijfsleven/1614137/bae-geinteresseerd-in-overname-van-robin-radar)
+  > Het bedrijf, dat in handen is van de Nederlandse private-equityfirma Parcom, kan volgens bronnen tegen Reuters een waardering van circa €2 mrd...
+- [Spelen en plezier zijn serieuze zaken voor de veerkracht van bedrijven](https://fd.nl/opinie/1613749/spelen-is-een-serieuze-zaak-voor-de-veerkracht-van-bedrijven)
+  > Plezier in het bedrijfsleven is bepaald geen lachertje – het kan strategische voordelen opleveren. Bovendien stimuleert het innovatie, en dat is goed...
+- [Poetin probeert Oekraïne met luchtaanvallen knock-out te slaan](https://fd.nl/politiek/1613746/poetin-probeert-oekraine-met-luchtaanvallen-knock-out-te-slaan)
+  > Vladimir Poetin probeert het moreel van de Oekraïense bevolking met steeds zwaardere luchtaanvallen te breken. De Russen vallen Kyiv dag en nacht aan.
+- [‘Amazon bekijkt verplaatsen Nvidia-chips naar financieringsvehikel’](https://fd.nl/bedrijfsleven/1614197/amazon-bekijkt-verplaatsen-nvidia-chips-naar-financieringsvehikel)
+  > De afgelopen weken heeft Amazon gesprekken gevoerd met beleggers om de belangstelling te peilen voor de deal.
 
 ### Meest gelezen
 
