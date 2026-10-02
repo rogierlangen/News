@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-10-2026 om 08:10*
+*Laatst bijgewerkt: 02-10-2026 om 15:33*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Peuter (3) trekt geladen pistool van moeder in kinderopvang in VS, ouders aangeklaagd](https://nos.nl/l/2633376)
-  > In een buitenwijk van de Amerikaanse stad Detroit heeft afgelopen maandag een driejarig jongetje in een kinderopvang een geladen pistool getrokken en...
-- [Vonnis VS vernietigd om AI-video waarin gedood slachtoffer verhaal vertelde](https://nos.nl/l/2633375)
-  > In een Amerikaanse rechtszaak waarin een AI-avatar van het doodgeschoten slachtoffer een verklaring aflegde, moet de straf voor de dader opnieuw...
-- [Vertoning Gaza-documentaire NAZA verstoord door slachtoffer 7 oktober](https://nos.nl/l/2633374)
-  > Tijdens een vertoning van de documentaire NAZA is gistermiddag in Delft onrust ontstaan. Tijdens de film over het grote aantal burgerdoden in Gaza...
-- [Nieuwe lichting astronauten naar ISS in Amerikaanse recordtijd](https://nos.nl/l/2633369)
-  > De nieuwste lichting astronauten is in een Amerikaanse recordtijd aangekomen bij het internationale ruimtestation ISS. De reis duurde slechts acht...
-- [Inflatie weer iets hoger in september](https://nos.nl/l/2633364)
-  > Door de opgelopen brandstofprijzen is de inflatie de afgelopen maand weer iets hoger uitgevallen, namelijk 3,4 procent. Dat blijkt uit de eerste...
+- [Keniaanse herders boos over lokaal CO2-project van Netflix en Meta](https://nos.nl/l/2633421)
+  > In Kenia spannen herders een rechtszaak aan tegen een project van grote westerse bedrijven. Lokale gemeenschappen in het Afrikaanse land zeggen dat...
+- [G7 geeft tot 100 miljoen diesel- en olievaten vrij na druk uit VS](https://nos.nl/l/2633419)
+  > De G7-landen gaan de komende vier maanden tot 100 miljoen vaten uit hun noodvoorraad van diesel en ruwe olie vrijgeven. Dat hebben de landen...
+- [Podcast De Stemming: Hyperfocus, financiële charlatans en de Tweelco's](https://nos.nl/l/2633416)
+  > Premier Jetten en minister Heinen spraken vorig weekend en maandag met verschillende oppositiepartijen over steun aan de begroting. En dat leverde...
+- [Wilhelmina heerste als koloniaal vorst, vanaf Juliana werd het anders](https://nos.nl/l/2633415)
+  > Juist in de nadagen van de Nederlandse koloniën was het koningshuis bezig met het welbewust ontwikkelen van een imperialistische cultuur. Koningin...
+- [Podcast De Dag: de jacht van David van Weel op Bolle Jos](https://nos.nl/l/2633412)
+  > Sierra Leone krijgt miljoenen minder dit jaar van Europa. Justitieminister Van Weel zei gisteren dat dat is besloten omdat het land Bolle Jos niet...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Joop van den Ende (84): ‘Ik kom uit een generatie met goede genen, maar weet dat het binnenkort afgelopen kan zijn’](https://www.ad.nl/show/joop-van-den-ende-84-ik-kom-uit-een-generatie-met-goede-genen-maar-weet-dat-het-binnenkort-afgelopen-kan-zijn~ab034da9/)
-  > Hij is nu 84 jaar, maar theatermaker Joop van den Ende denkt er niet aan stil te zitten. „Ik ben een workaholic.” Binnenkort start de kaartverkoop...
-- [Max Verstappen begonnen aan tweede training in Maleisië, grote kans op regen](https://www.ad.nl/formule-1/max-verstappen-begonnen-aan-tweede-training-in-maleisie-grote-kans-op-regen~abeefb1d/)
-  > Na een loodzware start in Maleisië is het tijd voor de tweede vrije training. Max Verstappen begon uitstekend aan het raceweekend met de snelste tijd...
-- [Griekse media: ‘Erkenning van fout leidde tot uitstekende coaching van Xavi in de tweede helft’](https://www.ad.nl/voetbal/griekse-media-erkenning-van-fout-leidde-tot-uitstekende-coaching-van-xavi-in-de-tweede-helft~ada8f681/)
-  > Ondanks het weggeven van een 2-0 voorsprong overheerst in Griekenland een gevoel van trots na de 2-2 tegen Oranje. ‘Ook tegen Nederland werd...
-- [Vier naakte veldbestormers doen dansje tijdens hockeywedstrijd: ‘Ze zijn gek, joh!’](https://www.ad.nl/andere-sporten/vier-naakte-veldbestormers-doen-dansje-tijdens-hockeywedstrijd-ze-zijn-gek-joh~a84905ef/)
-  > Opmerkelijke taferelen in het hockey, donderdagavond in Wassenaar. Bij de Gold Cup-wedstrijd tussen HGC en Ring Pass bestormden vier streakers het...
-- [Veldbestorming en tennisballen: duel Ierland stilgelegd na pro-Palestijnse protesten](https://www.ad.nl/voetbal/veldbestorming-en-tennisballen-duel-ierland-stilgelegd-na-pro-palestijnse-protesten~a14799f2/)
-  > Opnieuw hommeles in een Nations League-wedstrijd van Ierland. De wedstrijd tegen Oostenrijk moest tot twee keer toe stilgelegd worden door...
+- [Het woord ‘herstel’ valt nu al na rapport koloniaal verleden Oranjes, dat gaat me te ver](https://www.ad.nl/binnenland/het-woord-herstel-valt-nu-al-na-rapport-koloniaal-verleden-oranjes-dat-gaat-me-te-ver~a2d408d2/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [Arts die al twee keer blunderde bij executies is dol op Trump en verdedigde ooit moordenaars](https://www.ad.nl/buitenland/arts-die-al-twee-keer-blunderde-bij-executies-is-dol-op-trump-en-verdedigde-ooit-moordenaars~a234b0b3/)
+  > Hij heeft inmiddels minstens twee gruwelijk mislukte executies op zijn naam staan. Mark Fowler is de uiterst rechtse arts die faalde bij het ter dood...
+- [Kees Smit vanaf linksbuiten bij Jong Oranje in Slovenië](https://www.ad.nl/voetbal/kees-smit-vanaf-linksbuiten-bij-jong-oranje-in-slovenie~ae2ccce9/)
+  > Jong Oranje heeft kwalificatie voor het EK Onder 21 niet meer in eigen hand. De ploeg van Michael Reiziger moet in ieder geval zelf winnen van Jong...
+- [PSV-spits Pléa veel langer uit de running dan verwacht, Ajax deelt video van eerste training na week vrij](https://www.ad.nl/voetbal/psv-spits-plea-veel-langer-uit-de-running-dan-verwacht-ajax-deelt-video-van-eerste-training-na-week-vrij~a378dc98/)
+  > Het nieuwe eredivisieseizoen is in volle gang. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we je...
+- [Hoe ‘Chubby Joe’ deze minister wéér in de problemen brengt](https://www.ad.nl/politiek/hoe-chubby-joe-deze-minister-weer-in-de-problemen-brengt~a0f6686d/)
+  > Even leek het op een doorbraak. Er was een akkoord over de aanpassing van de begroting. Ging het minderheidskabinet dan toch steun krijgen van de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Het rubberfiasco van Henry Ford in het hart van de Amazone](https://fd.nl/samenleving/1613682/het-rubberfiasco-van-henry-ford-in-het-hart-van-de-amazone)
-  > De Amerikaanse autopionier droomde van een industrieel Utopia in Brazilië. De podcast 99% Invisible reconstrueert hoe het misging.
-- [‘BAE geïnteresseerd in overname van Robin Radar’](https://fd.nl/bedrijfsleven/1614137/bae-geinteresseerd-in-overname-van-robin-radar)
-  > Het bedrijf, dat in handen is van de Nederlandse private-equityfirma Parcom, kan volgens bronnen tegen Reuters een waardering van circa €2 mrd...
-- [Spelen en plezier zijn serieuze zaken voor de veerkracht van bedrijven](https://fd.nl/opinie/1613749/spelen-is-een-serieuze-zaak-voor-de-veerkracht-van-bedrijven)
-  > Plezier in het bedrijfsleven is bepaald geen lachertje – het kan strategische voordelen opleveren. Bovendien stimuleert het innovatie, en dat is goed...
-- [Poetin probeert Oekraïne met luchtaanvallen knock-out te slaan](https://fd.nl/politiek/1613746/poetin-probeert-oekraine-met-luchtaanvallen-knock-out-te-slaan)
-  > Vladimir Poetin probeert het moreel van de Oekraïense bevolking met steeds zwaardere luchtaanvallen te breken. De Russen vallen Kyiv dag en nacht aan.
-- [‘Amazon bekijkt verplaatsen Nvidia-chips naar financieringsvehikel’](https://fd.nl/bedrijfsleven/1614197/amazon-bekijkt-verplaatsen-nvidia-chips-naar-financieringsvehikel)
-  > De afgelopen weken heeft Amazon gesprekken gevoerd met beleggers om de belangstelling te peilen voor de deal.
+- [Kabinet wil accijns invoeren op vapes](https://fd.nl/politiek/1614497/kabinet-wil-accijns-invoeren-op-vapes)
+  > Als het aan staatssecretaris van Financiën Eerenberg ligt komt er een nationale belasting op e-sigaretten om het gebruik ervan te ontmoedigen.
+- [Wie is ‘de kleine spaarder’?](https://fd.nl/financiele-markten/1614201/wie-is-de-kleine-spaarder)
+  > De ‘kleine spaarder’ werd door links en rechts beschermd in de Tweede Kamer. Hoeveel geld heeft die spaarder eigenlijk op de bank?
+- [Witte Huis vraagt Musk weer om advies, nu over de oorlog van de toekomst](https://fd.nl/politiek/1614138/witte-huis-vraagt-musk-weer-om-advies-nu-over-de-oorlog-van-de-toekomst)
+  > De leiding van het nieuwe project komt deels in handen van SpaceX-topman Elon Musk, die eerder voortijdig vertrok bij overheidssaneerder Doge.
+- [Belegger heeft nog weinig vertrouwen in herstelplannen Volvo Cars](https://fd.nl/financiele-markten/1614220/belegger-heeft-nog-weinig-vertrouwen-in-herstelplannen-volvo-cars)
+  > Volvo Cars schrapt vanwege de lastige marktomstandigheden zijn prognoses voor het verkoopvolume en de cashflow. Het aandeel zakte naar het laagste...
+- [Help! De democratie verzuipt](https://fd.nl/samenleving/1613353/help-de-democratie-verzuipt)
+  > De Belgische politicoloog Patrick Vander Weyden sombert over het democratisch verval dat zich mondiaal voltrekt. Gelukkig komt hij ook met een lijst...
 
 ### Meest gelezen
 
