@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-10-2026 om 15:33*
+*Laatst bijgewerkt: 02-10-2026 om 20:30*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Keniaanse herders boos over lokaal CO2-project van Netflix en Meta](https://nos.nl/l/2633421)
-  > In Kenia spannen herders een rechtszaak aan tegen een project van grote westerse bedrijven. Lokale gemeenschappen in het Afrikaanse land zeggen dat...
-- [G7 geeft tot 100 miljoen diesel- en olievaten vrij na druk uit VS](https://nos.nl/l/2633419)
-  > De G7-landen gaan de komende vier maanden tot 100 miljoen vaten uit hun noodvoorraad van diesel en ruwe olie vrijgeven. Dat hebben de landen...
-- [Podcast De Stemming: Hyperfocus, financiële charlatans en de Tweelco's](https://nos.nl/l/2633416)
-  > Premier Jetten en minister Heinen spraken vorig weekend en maandag met verschillende oppositiepartijen over steun aan de begroting. En dat leverde...
-- [Wilhelmina heerste als koloniaal vorst, vanaf Juliana werd het anders](https://nos.nl/l/2633415)
-  > Juist in de nadagen van de Nederlandse koloniën was het koningshuis bezig met het welbewust ontwikkelen van een imperialistische cultuur. Koningin...
-- [Podcast De Dag: de jacht van David van Weel op Bolle Jos](https://nos.nl/l/2633412)
-  > Sierra Leone krijgt miljoenen minder dit jaar van Europa. Justitieminister Van Weel zei gisteren dat dat is besloten omdat het land Bolle Jos niet...
+- [Crisis in Spaanse politiek: parlement verwerpt maatregelen tegen woningcrisis](https://nos.nl/l/2633457)
+  > In Spanje hebben twee voorstellen van de regering om de woningcrisis aan te pakken geen meerderheid behaald in het parlement. Daarmee bestaat de kans...
+- [Enorme volksverhuizing Stille Oceaan: 'Deze strijd tegen het water gaat iedereen aan'](https://nos.nl/l/2633456)
+  > In de Stille Oceaan voltrekt zich een gigantische volksverhuizing. Steeds meer mensen moeten hun huizen verlaten, op de vlucht voor het water.
+      ...
+- [Hof draait besluit terug om Arabische partijen te weren bij verkiezingen Israël](https://nos.nl/l/2633455)
+  > Het hooggerechtshof in Israël heeft het besluit van het kiescomité om Arabische politieke partijen te weren bij de verkiezingen van eind oktober...
+- ['Gemaskerde mannen Overasselt in appgroepen geronseld voor aanslag'](https://nos.nl/l/2633454)
+  > De gemaskerde mannen die begin deze maand in Overasselt werden opgepakt, zijn voor een deel via sociale media geronseld. Ze kregen instructies voor...
+- [VVD-leider Yesilgöz heel rooskleurig over sfeer binnen partij: toch opzegging leden](https://nos.nl/l/2633453)
+  > VVD-leider Yesilgöz heeft de reactie van haar achterban op de aangepaste kabinetsplannen wel heel rooskleurig voorgesteld. Ze meldde dat er nieuwe...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Het woord ‘herstel’ valt nu al na rapport koloniaal verleden Oranjes, dat gaat me te ver](https://www.ad.nl/binnenland/het-woord-herstel-valt-nu-al-na-rapport-koloniaal-verleden-oranjes-dat-gaat-me-te-ver~a2d408d2/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Arts die al twee keer blunderde bij executies is dol op Trump en verdedigde ooit moordenaars](https://www.ad.nl/buitenland/arts-die-al-twee-keer-blunderde-bij-executies-is-dol-op-trump-en-verdedigde-ooit-moordenaars~a234b0b3/)
-  > Hij heeft inmiddels minstens twee gruwelijk mislukte executies op zijn naam staan. Mark Fowler is de uiterst rechtse arts die faalde bij het ter dood...
-- [Kees Smit vanaf linksbuiten bij Jong Oranje in Slovenië](https://www.ad.nl/voetbal/kees-smit-vanaf-linksbuiten-bij-jong-oranje-in-slovenie~ae2ccce9/)
-  > Jong Oranje heeft kwalificatie voor het EK Onder 21 niet meer in eigen hand. De ploeg van Michael Reiziger moet in ieder geval zelf winnen van Jong...
-- [PSV-spits Pléa veel langer uit de running dan verwacht, Ajax deelt video van eerste training na week vrij](https://www.ad.nl/voetbal/psv-spits-plea-veel-langer-uit-de-running-dan-verwacht-ajax-deelt-video-van-eerste-training-na-week-vrij~a378dc98/)
-  > Het nieuwe eredivisieseizoen is in volle gang. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we je...
-- [Hoe ‘Chubby Joe’ deze minister wéér in de problemen brengt](https://www.ad.nl/politiek/hoe-chubby-joe-deze-minister-weer-in-de-problemen-brengt~a0f6686d/)
-  > Even leek het op een doorbraak. Er was een akkoord over de aanpassing van de begroting. Ging het minderheidskabinet dan toch steun krijgen van de...
+- [Heracles moet aan de bak voor periodetitel: Helmond Sport op gelijke hoogte na eigen goal](https://www.ad.nl/voetbal/heracles-moet-aan-de-bak-voor-periodetitel-helmond-sport-op-gelijke-hoogte-na-eigen-goal~a21c1c93/)
+  > Heracles kan vanavond de eerste periodetitel veroveren. De ploeg van Vincent Heilmann heeft op bezoek bij Helmond Sport aan een zege genoeg. Volg het...
+- [Dramafilm Truly Naked, over invloed van porno op tienerlevens, grote winnaar Gouden Kalveren](https://www.ad.nl/show/dramafilm-truly-naked-over-invloed-van-porno-op-tienerlevens-grote-winnaar-gouden-kalveren~a9dbce63/)
+  > Truly Naked, de debuutfilm van de Nederlandse filmmaker Muriel d’Ansembourg over de invloed van porno op tienerlevens, is de grote winnaar van de...
+- [Frankrijk geeft voorsprong na fenomenale vrije trap Olise weg, Italië vanuit het niets terug in de wedstrijd](https://www.ad.nl/voetbal/frankrijk-geeft-voorsprong-na-fenomenale-vrije-trap-olise-weg-italie-vanuit-het-niets-terug-in-de-wedstrijd~afa832e3/)
+  > Een mooi affiche in de Nations League: Frankrijk neemt het in eigen huis op tegen Italië, een herhaling van de WK-finale van 2006. Volg de kraker...
+- [België van Mark van Bommel op weg naar ruime zege op Turkije, invaller Lukaku scoort ook nog](https://www.ad.nl/voetbal/belgie-van-mark-van-bommel-op-weg-naar-ruime-zege-op-turkije-invaller-lukaku-scoort-ook-nog~af8b7530/)
+  > Mark van Bommel neemt het in zijn derde wedstrijd als bondscoach van België op tegen Turkije. Boekt zijn team in het sfeervolle Stade Sclessin in...
+- [Zelfs de ouders van Daan (26) komen pas tien jaar later achter zijn trauma: zijn naaktfoto’s werden verspreid op school](https://www.ad.nl/binnenland/zelfs-de-ouders-van-daan-26-komen-pas-tien-jaar-later-achter-zijn-trauma-zijn-naaktfotos-werden-verspreid-op-school~aac25848/)
+  > Daan Schoenmakers (26) uit Bergeijk belandt in een regelrechte nachtmerrie als op 14-jarige leeftijd zijn naaktfoto’s het hele internet overgaan. Hij...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Kabinet wil accijns invoeren op vapes](https://fd.nl/politiek/1614497/kabinet-wil-accijns-invoeren-op-vapes)
-  > Als het aan staatssecretaris van Financiën Eerenberg ligt komt er een nationale belasting op e-sigaretten om het gebruik ervan te ontmoedigen.
-- [Wie is ‘de kleine spaarder’?](https://fd.nl/financiele-markten/1614201/wie-is-de-kleine-spaarder)
-  > De ‘kleine spaarder’ werd door links en rechts beschermd in de Tweede Kamer. Hoeveel geld heeft die spaarder eigenlijk op de bank?
-- [Witte Huis vraagt Musk weer om advies, nu over de oorlog van de toekomst](https://fd.nl/politiek/1614138/witte-huis-vraagt-musk-weer-om-advies-nu-over-de-oorlog-van-de-toekomst)
-  > De leiding van het nieuwe project komt deels in handen van SpaceX-topman Elon Musk, die eerder voortijdig vertrok bij overheidssaneerder Doge.
-- [Belegger heeft nog weinig vertrouwen in herstelplannen Volvo Cars](https://fd.nl/financiele-markten/1614220/belegger-heeft-nog-weinig-vertrouwen-in-herstelplannen-volvo-cars)
-  > Volvo Cars schrapt vanwege de lastige marktomstandigheden zijn prognoses voor het verkoopvolume en de cashflow. Het aandeel zakte naar het laagste...
-- [Help! De democratie verzuipt](https://fd.nl/samenleving/1613353/help-de-democratie-verzuipt)
-  > De Belgische politicoloog Patrick Vander Weyden sombert over het democratisch verval dat zich mondiaal voltrekt. Gelukkig komt hij ook met een lijst...
+- [Oplichter fopte Kansspelautoriteit met loterijaanvraag voor voetbalclub](https://fd.nl/samenleving/1614377/oplichter-fopte-kansspelautoriteit-met-loterijaanvraag-voor-voetbalclub)
+  > Persoonsgegevens van het bestuur van Quick Boys uit Katwijk zijn misbruikt door een oplichter, die daarmee een vergunning wist te bemachtigen voor...
+- [Gepruts en armoe](https://fd.nl/opinie/1614140/gepruts-en-armoe)
+  > De chaos rond box 3 leek niet groter te kunnen worden, maar het minderheidskabinet-Jetten is daar deze week toch in geslaagd.
+- [Onder ceo Solomon werden doelen niet bereikt, maar steeg de beurskoers van Goldman Sachs wel](https://fd.nl/financiele-markten/1614229/onder-ceo-solomon-werden-doelen-niet-bereikt-maar-steeg-de-beurskoers-van-goldman-sachs-wel)
+  > David Solomon lijkt niet heel lang meer aan het roer te staan bij zakenbank Goldman Sachs. Van zijn strategische plannen kwam maar weinig terecht.
+- [Als obligatiemarkten de voorpagina’s halen, is dat nooit goed nieuws](https://fd.nl/financiele-markten/1614226/als-obligatiemarkten-de-voorpaginas-halen-is-dat-nooit-goed-nieuws)
+  > De rentes liepen snel op deze week, veel sneller dan iedereen had voorzien.
+- [Gratis bier bestaat niet, maar wie in Den Haag wil dat horen?](https://fd.nl/politiek/1614177/gratis-bier-bestaat-niet-maar-wie-in-den-haag-wil-dat-horen)
+  > Wie betaalt de rekening van de kabinetsplannen? Dat was de vraag in het grote financiële debat van het jaar. Ook de liefhebbers van tabellen kwamen...
 
 ### Meest gelezen
 
