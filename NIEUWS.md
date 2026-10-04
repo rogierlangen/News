@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 04-10-2026 om 05:05*
+*Laatst bijgewerkt: 04-10-2026 om 12:01*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Pro-Europese premier wint verkiezingen Letland ruimer dan verwacht](https://nos.nl/l/2633577)
-  > De pro-Europese premier van Letland heeft de verkiezingen van gisteren gewonnen met een ruimere marge dan verwacht. De middenpartij van Andris...
-- [Natuurbrand bij toegangsroute Machu Picchu: 1 dode en 2 gewonden](https://nos.nl/l/2633576)
-  > Bij een brand in de buurt van de beroemde ruïnestad Machu Picchu zijn een dode en twee gewonden gevallen. De brand woedt nabij een van de...
-- [Rector Cornell belooft beterschap na aanklacht groepsverkrachting door studenten](https://nos.nl/l/2633575)
-  > De rector van de Amerikaanse universiteit Cornell zegt diep verontrust te zijn door beschuldigingen van een groepsverkrachting door studenten daar....
-- [Massaal welkom voor resten Bulgaarse tsaar na terugkeer uit Griekenland](https://nos.nl/l/2633574)
-  > In een basiliek in de Bulgaarse hoofdstad Sofia zijn afgelopen dag onder grote belangstelling de resten bijgezet van de middeleeuwse machthebber...
-- [Russische laborant dood door pest, tientallen in quarantaine](https://nos.nl/l/2633573)
-  > In Rusland is een 28-jarige laboratoriummedewerker overleden aan de pest nadat ze een reageerbuisje had gebroken. Zo'n 200 mensen die met haar in...
+- [Vader en zoon doodgeschoten in bos Noorwegen, hoorden bij groep jagers](https://nos.nl/l/2633611)
+  > In een bos in het zuidoosten van Noorwegen zijn vanochtend vroeg twee mannen doodgeschoten. Een derde man raakte zwaargewond. De schutter is...
+- [Drie schepen botsen op elkaar voor Noorse kust, ook Nederlands schip betrokken](https://nos.nl/l/2633609)
+  > Afgelopen nacht is voor de kust van Noorwegen een schip van de Nederlandse rederij Royal Wagenborg betrokken geraakt bij een botsing met twee andere...
+- [Brailleplaatjes op afvalcontainers Haarlemmermeer: 'Wil niet steeds hulp vragen'](https://nos.nl/l/2633602)
+  > Het scheiden van afval wordt voor mensen met een visuele beperking een stukje makkelijker in de gemeente Haarlemmermeer. Wie het nodig heeft, kan een...
+- [Staatssecretaris voor verbod op onverdoofd slachten: 'Taboe eraf'](https://nos.nl/l/2633601)
+  > Staatssecretaris Erkens van Landbouw vindt dat er, net als in België, een verbod moet komen op het onverdoofd slachten van dieren. Hij grijpt...
+- [Gewonden bij brand op camping Gardameer, vakantiegangers helpen brandweer](https://nos.nl/l/2633600)
+  > Bij een brand op een grote camping aan het Gardameer zijn zeker twintig mensen gewond geraakt. Ze zijn naar het ziekenhuis gebracht.
+        Een van...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Code geel voor dichte mist op meerdere plaatsen in het land: ‘Minder dan 100 meter zicht’](https://www.ad.nl/binnenland/code-geel-voor-dichte-mist-op-meerdere-plaatsen-in-het-land-minder-dan-100-meter-zicht~ad355f80/)
-  > Het KNMI heeft code geel afgegeven voor zeven provincies voor dichte mist. In het oosten, midden en zuidwesten van het land is het mistig....
-- [Deze twee topjudoka’s lagen letterlijk samen in de wieg en gaan nu naar het WK: ‘Hij at al mijn eten op!’](https://www.ad.nl/vechtsport/deze-twee-topjudokas-lagen-letterlijk-samen-in-de-wieg-en-gaan-nu-naar-het-wk-hij-at-al-mijn-eten-op~a69019de/)
-  > De Nederlandse selectie voor het WK kent twee 29-jarige judoka’s uit Tilburg, maar zet ze naast elkaar en het zijn qua uiterlijk de grootste...
-- [Duitse bondskanselier Merz in Kiev: ‘Oekraïne heeft de komende weken al onze steun nodig’](https://www.ad.nl/buitenland/duitse-bondskanselier-merz-in-kiev-oekraine-heeft-de-komende-weken-al-onze-steun-nodig~adfb97be/)
-  > De Duitse bondskanselier Merz is zondagochtend in Kiev aangekomen om zijn steun te betuigen aan president Volodymyr Zelensky. Het bezoek valt samen...
-- [Recordregen en overstromingen treffen Barcelona en omstreken, inwoners opgeroepen thuis te blijven](https://www.ad.nl/buitenland/recordregen-en-overstromingen-treffen-barcelona-en-omstreken-inwoners-opgeroepen-thuis-te-blijven~a59c0a7e/)
-  > Zwaar noodweer heeft in de Spaanse regio Catalonië in de nacht van zaterdag op zondag tot overstromingen en grote verkeersproblemen geleid. Straten...
-- [Automobilist scheurt met bijna 300 kilometer per uur over Autobahn maar krijgt dan klapband](https://www.ad.nl/auto/automobilist-scheurt-met-bijna-300-kilometer-per-uur-over-autobahn-maar-krijgt-dan-klapband~a735fcc0/)
-  > Een Tesla Model S Plaid raakte total loss doordat de bestuurder een klapband kreeg. Hij reed vlak voordat hij een paar keer over de kop sloeg met een...
+- [Luka Modric (41) geniet nog te veel van het voetbal om te stoppen: ‘Leeftijd is slechts een nummer’](https://www.ad.nl/voetbal/luka-modric-41-geniet-nog-te-veel-van-het-voetbal-om-te-stoppen-leeftijd-is-slechts-een-nummer~a9f293ec/)
+  > Luca Modric schaamde zich kapot, maar verstopte zich niet, zaterdag na de 7-0 thuisnederlaag tegen Engeland. De aanvoerder van Kroatië, 41 jaar, 205...
+- [Foodinflucencer Veggilaine: ‘Vooral mannen reageren met biefstuk-emoji’s onder mijn posts’](https://www.ad.nl/mezza/foodinflucencer-veggilaine-vooral-mannen-reageren-met-biefstuk-emojis-onder-mijn-posts~aa9118e2/)
+  > Op kinderfeestjes werd ze raar aangekeken als ze vertelde dat ze vegetarisch at, nu is ‘Veggilaine’ een van de grootste foodinfluencers van het land....
+- [Turquoise taxi’s uit Vietnam moeten het Uber en Bolt lastig maken in Nederland](https://www.ad.nl/economie/turquoise-taxis-uit-vietnam-moeten-het-uber-en-bolt-lastig-maken-in-nederland~a5fedd9e/)
+  > Green SM, een Vietnamees taxibedrijf, wil de Nederlandse taximarkt veroveren met louter auto’s van het eigen Vietnamese automerk VinFast. Om te...
+- [Spaanse politie begint met ontruiming groot migratenkamp Ceuta](https://www.ad.nl/buitenland/spaanse-politie-begint-met-ontruiming-groot-migratenkamp-ceuta~ac3f9570/)
+  > De Spaanse politie is zondag een grote operatie begonnen om een groot migrantenkamp op een strand in de Noord-Afrikaanse enclave Ceuta te ontruimen.
+- [1400 mensen overleden, 5000 worden er nog vermist: hoe gaat het een maand na de vloedgolf in Nepal?](https://www.ad.nl/buitenland/1400-mensen-overleden-5000-worden-er-nog-vermist-hoe-gaat-het-een-maand-na-de-vloedgolf-in-nepal~a33de311/)
+  > Eind augustus werd Nepal getroffen door een dodelijke overstroming. Hoe is de situatie daar na ruim een maand? Een overzicht in beeld.
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Als alle verstandige keuzes van bedrijven tezamen hen juist kwetsbaar maken](https://fd.nl/opinie/1613694/als-verstandige-keuzes-tezamen-kwetsbaar-maken)
-  > Als bedrijven allemaal hun eigen risico’s verkleinen, kunnen ze samen nieuwe afhankelijkheden creëren. Soms moeten ze daarom ook samen investeren in...
-- [Als boze schrijvers scanderen, houdt Meta de deur dicht](https://fd.nl/tech-en-innovatie/1614222/als-boze-schrijvers-scanderen-houdt-meta-de-deur-dicht)
-  > Ze willen de zeggenschap over hun werk terug, maar schrijvers merken dat daar met Meta niet over te praten valt. Dus volgt actie.
-- [Verkopen, opknippen of toch sluiten: wat gebeurt er met Shell Moerdijk?](https://fd.nl/bedrijfsleven/1612758/verkopen-opknippen-of-toch-sluiten-wat-gebeurt-er-met-shell-moerdijk)
-  > Volgens bronnen binnen de sector zou Shell het liefst zijn Europese chemietak in één keer overdoen aan een nieuwe eigenaar, maar dat is makkelijker...
-- [Luisterverhaal: Dubai lokt toeristen terug: ‘Geen bommetje kon me tegenhouden’](https://fd.nl/samenleving/1614139/luisterverhaal-dubai-lokt-toeristen-terug-geen-bommetje-kon-me-tegenhouden)
-  > Deze week hoor je wat de oorlog in Iran betekent voor Dubai.
-- [Recordzomer maakt bioscopen ook voor beleggers interessant](https://fd.nl/financiele-markten/1613747/recordzomer-maakt-bioscopen-ook-voor-beleggers-interessant)
-  > Dankzij publiekstrekkers als The Odyssey en Spider-Man: Brand New Day hebben bioscopen een uitstekende zomer achter de rug. Dat is ook beleggers...
+- [Iran: Straat van Hormuz blijft dicht zonder toezeggingen Verenigde Staten](https://fd.nl/politiek/1614505/iran-straat-van-hormuz-blijft-dicht-zonder-toezeggingen-verenigde-staten)
+  > Amerikaanse kabinetsdelegatie bespreekt het conflict in het Midden-Oosten, waar onderhandelingen nog altijd muurvast zitten.
+- [Nike verliest dominantie in de sportwereld en betaalt prijs op de beurs](https://fd.nl/bedrijfsleven/1613744/nike-verliest-dominantie-in-de-sportwereld-en-betaalt-prijs-op-de-beurs)
+  > Verloren marathons, slechte verkopen in China en topsporters die hun sponsorcontracten opzeggen. Nike heeft het zwaar en de koers keldert.
+- [Hoofd inlichtingendienst moet rapport over AI-beleid VS maken](https://fd.nl/politiek/1614412/hoofd-inlichtingendienst-moet-rapport-over-ai-beleid-vs-maken)
+  > Jay Clayton is door president Donald Trump als ‘AI-tsaar’ benoemd.
+- [Intesa zal bod op Monte dei Paschi intrekken bij overnames](https://fd.nl/bedrijfsleven/1614411/intesa-zal-bod-op-monte-dei-paschi-intrekken-bij-overnames)
+  > Oudste bank ter wereld wil zich verdedigen tegen bod door zelf banken over te nemen.
+- [Pro-Europese premier grote winnaar bij Letse verkiezingen](https://fd.nl/politiek/1614409/pro-europese-premier-boekt-verkiezingsoverwinning-letland)
+  > De pro-Kremlin partijen, die stemmen probeerden te halen bij de Russischtalige minderheid, zijn kleiner dan verwacht.
 
 ### Meest gelezen
 
