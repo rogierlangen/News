@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-10-2026 om 06:39*
+*Laatst bijgewerkt: 05-10-2026 om 15:41*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Australië onderzoekt of Flydubai-copiloot radicaliseerde tijdens studie daar](https://nos.nl/l/2633709)
-  > De Australische autoriteiten zijn een onderzoek begonnen naar de copiloot die vorige week aan boord van de vlucht tussen Dubai en Tel Aviv zijn...
-- [Chauffeur touringcar na fataal ongeluk Zwitserland: 'Heeft veel met ons gedaan'](https://nos.nl/l/2633707)
-  > De Gelderse chauffeur van de touringcar waarmee vorige maand een zeer ernstig ongeluk gebeurde met Nederlanders in Zwitserland, heeft voor het eerst...
-- [Wekdienst 5/10: Uitreiking Michelinsterren • Eerste winnaar Nobelprijs bekendgemaakt](https://nos.nl/l/2633705)
-  > Goedemorgen! In Maastricht worden de jaarlijkse Michelinsterren uitgereikt en de raadkamer in Amsterdam buigt zich over de terrasmoord op de...
-- [Totale studieschuld voor het eerst afgenomen, wel steeds meer hoge schulden](https://nos.nl/l/2633704)
-  > De totale studieschuld van studenten en oud-studenten is voor het eerst gedaald. Begin dit jaar was die schuld 28 miljard euro, 800 miljoen minder...
-- [Waarschuwing voor machtige uitgevers: schoolboeken te duur en slecht herbruikbaar](https://nos.nl/l/2633703)
-  > Uitgevers van schoolboeken moeten scholen niet langer verplichten om een papieren en digitale versies samen af te nemen. Ook moeten ze duidelijker...
+- [Tegenvallende resultaten Nike, 'verhaal achter schoenen ontbreekt'](https://nos.nl/l/2633780)
+  > Het loopt niet lekker bij Nike. Het sportmerk besloot voor de derde keer dit jaar werknemers te ontslaan omdat de verkoopcijfers behoorlijk...
+- [Twee doden door brand op vrachtschip Zwarte Zee, Oekraïne wijst naar Rusland](https://nos.nl/l/2633775)
+  > Twee mensen zijn omgekomen bij een brand aan boord van een vrachtschip op de Zwarte Zee, meldt Roemenië. Het schip is gezonken, elf bemanningsleden...
+- [Vliegtuig maakt buiklanding in Tanzania na botsing met zebra](https://nos.nl/l/2633770)
+  > Een safarivliegtuig heeft gisteren een buiklanding gemaakt nadat het tijdens het opstijgen in botsing was gekomen met een zebra. Het hoefdier kwam...
+- [Nationalisten in Bosnië winnen mogelijk ingewikkeldste verkiezingen ter wereld](https://nos.nl/l/2633769)
+  > Hij stond niet op het stembiljet, maar toch is hij de grote winnaar van de verkiezingen in Bosnië en Herzegovina: Milorad Dodik, nu de onbetwiste...
+- [Wachtlijst stroomnet weer langer, maar netbeheerders zien ook lichtpuntjes](https://nos.nl/l/2633767)
+  > Het aantal bedrijven en organisaties dat wacht op een aansluiting om (meer) stroom te gebruiken is verder toegenomen. Inmiddels gaat het om bijna...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Totale studieschuld in Nederland voor het eerst gedaald, wel meer mensen met torenhoge schulden](https://www.ad.nl/economie/totale-studieschuld-in-nederland-voor-het-eerst-gedaald-wel-meer-mensen-met-torenhoge-schulden~ab98bcd3/)
-  > De totale studieschuld van Nederlandse studenten en oud-studenten is voor het eerst gedaald. Dat meldt het Centraal Bureau voor de Statistiek (CBS)...
-- [Kersverse Oranje-international Gjivai Zechiël: ‘Mijn volgende doel? Winnen van AZ’](https://www.ad.nl/voetbal/kersverse-oranje-international-gjivai-zechiel-mijn-volgende-doel-winnen-van-az~ac8393bd/)
-  > Als tweevoudig international van Oranje keert Gjivai Zechiël vandaag terug bij Feyenoord. Zaterdagavond in de kraker tegen AZ wil hij de...
-- [Dode na Russische aanval op Oekraïense stad, energiecentrale opnieuw doelwit](https://www.ad.nl/buitenland/dode-na-russische-aanval-op-oekraiense-stad-energiecentrale-opnieuw-doelwit~adfb97be/)
-  > Bij een Russische luchtaanval op Kharkiv is zondag één persoon om het leven gekomen en zijn zes anderen gewond geraakt. En in Odesa zijn industriële...
-- [Sinds de eerste besmetting is elk sloom paard verdacht: ‘Het zal toch niet?’](https://www.ad.nl/binnenland/sinds-de-eerste-besmetting-is-elk-sloom-paard-verdacht-het-zal-toch-niet~ada4570e/)
-  > Het eerste besmette paard van het jaar stond in Schipluiden. Sindsdien is het westnijlvirus hét gesprek op stallen in deze omgeving. ‘Hoe groot is de...
-- [Rob werd slachtoffer van een vergismoord](https://www.ad.nl/binnenland/rob-werd-slachtoffer-van-een-vergismoord~ab12a5345/)
-  > Als de 44-jarige Rob Zweekhorst op nieuwjaarsdag in 2014 zijn honden gaat uitlaten, weet niemand dat hij nooit meer thuis zou komen. Maar de kogels...
+- [Aankomende donderdag geen Slimste Mens, eenmalig uitzending op zondag](https://www.ad.nl/show/aankomende-donderdag-geen-slimste-mens-eenmalig-uitzending-op-zondag~ad6f5de1/)
+  > Donderdag is De Slimste Mens niet te zien op NPO 1. Dat komt doordat dan het Gouden Televizier-Ring Gala wordt gehouden. Daardoor schuift de...
+- [Mossou schrijft: ‘Van afwashulp naar honderd keer in Oranje: Virgil bewijst dat het kan’](https://www.ad.nl/sport/mossou-schrijft-van-afwashulp-naar-honderd-keer-in-oranje-virgil-bewijst-dat-het-kan~af592adb/)
+  > Lang voordat Virgil van Dijk honderd interlands voor Oranje speelde, verdiende hij zijn eerste euro’s als afwasser in Breda. AD-columnist en...
+- [Nepal staakt zoektocht naar vermisten na dodelijke overstromingen, twee Nederlanders nog niet gevonden](https://www.ad.nl/buitenland/nepal-staakt-zoektocht-naar-vermisten-na-dodelijke-overstromingen-twee-nederlanders-nog-niet-gevonden~ac665be4/)
+  > De autoriteiten in Nepal hebben eind augustus hun zoektocht gestaakt naar de slachtoffers van de dodelijke overstromingen in het noorden van het...
+- [Telefoonverbod op school kan averechts effect hebben: ‘Jongeren compenseren schermtijd thuis’](https://www.ad.nl/binnenland/telefoonverbod-op-school-kan-averechts-effect-hebben-jongeren-compenseren-schermtijd-thuis~a60bb013/)
+  > Vanaf 1 januari worden mobieltjes ook verboden op het schoolplein en in de pauze. Dat is althans het aangescherpte kabinetsadvies voor basisscholen...
+- [Column Hugo Borst | Hoe zuinig een speler ook op zijn lichaam is, op een dag zijn de benen krakende wielen](https://www.ad.nl/voetbal/column-hugo-borst-hoe-zuinig-een-speler-ook-op-zijn-lichaam-is-op-een-dag-zijn-de-benen-krakende-wielen~a49b96b9/)
+  > Columnist Hugo Borst zag zaterdag hoe het Kroatië van Luka Modric werd vernederd door Engeland. ‘Hij doet er verstandig aan om te stoppen bij zijn...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [AkzoNobel verkoopt Aziatische decoratieve verftak aan Nippon Paint voor €1,2 mrd](https://fd.nl/bedrijfsleven/1614509/akzonobel-verkoopt-aziatische-decoratieve-verftak-aan-nippon-paint-voor-1-2-mrd)
-  > Het Japanse bedrijf neemt de verfactiviteiten over in onder meer Vietnam, Indonesië en Australië. De gezamenlijke omzet in deze activiteiten lag in...
-- [Bolsonaro leidt Braziliaanse presidentsverkiezingen, tweede ronde nodig](https://fd.nl/politiek/1614450/bolsonaro-leidt-braziliaanse-presidentsverkiezingen-tweede-ronde-nodig)
-  > De zoon van oud-president Jair Bolsonaro haalde zondag zo’n 47% van de stemmen. Lula, de huidige president, blijft steken op 45%.
-- [China verhoogt druk op EU met nieuw antidumpingonderzoek naar Europese chemie](https://fd.nl/economie/1614449/china-verhoogt-druk-op-eu-met-nieuw-antidumpingonderzoek-naar-europese-chemie)
-  > Volgens het Chinese ministerie van handel zijn er klachten over dumping van petrochemische tussenproducten door Europese bedrijven.
-- [Live: Futures wijzen op een vlakke opening](https://fd.nl/financiele-markten/1614448/live-hogere-aandelenindices-in-azie-eurokoers-daalt)
-  > Wereldwijde renteperikelen bepalen de stemming op de aandelenmarkten. Ook de eurokoers staat onder druk. De futures op aandelen geven weinig richting.
-- [Waarom je nog niet bang hoeft te zijn dat AI je baan overneemt](https://fd.nl/opinie/1613530/waarom-ai-je-baan-nog-niet-overneemt)
-  > ‘AI-werk zal door een mens gecontroleerd moeten worden’. Dat merkte ook Klarna, dat de klantenservice aan AI overliet en nu weer mensen moet...
+- [Poging om farmabedrijven buitenspel te zetten bij ontwikkeling dure medicijnen mislukt](https://fd.nl/bedrijfsleven/1614577/poging-om-farmabedrijven-buitenspel-te-zetten-bij-ontwikkeling-dure-medicijnen-mislukt)
+  > De afwijzing van een experimenteel medicijn dat ontwikkeld is door het Nederlands Kankerinstituut is een tegenslag voor academici en niet-commerciële...
+- [Ondanks onrust op de obligatiemarkt durven bedrijven schuldpapier uit te geven](https://fd.nl/financiele-markten/1613488/ondanks-onrust-op-de-obligatiemarkt-durven-bedrijven-schuldpapier-uit-te-geven)
+  > Ondanks oorlog en hogere rentes plaatsen Europese en Amerikaanse bedrijven volop obligaties. Lage risicopremies en veel liquiditeit stuwen de vraag...
+- [Topman Saudi Aramco: ‘Aanvullen olievoorraden gaat nog twee jaar duren’](https://fd.nl/financiele-markten/1614679/topman-saudi-aramco-aanvullen-olievoorraden-gaat-nog-twee-jaar-duren)
+  > Volgens ceo Amin Nasser zijn de wereldwijde olievoorraden gezakt tot onder de 6 miljard vaten en is slechts een fractie daarvan direct inzetbaar.
+- [Damen maakt bezwaar tegen gunning fregattenorder aan TKMS](https://fd.nl/bedrijfsleven/1614523/damen-maakt-bezwaar-tegen-gunning-fregattenorder-aan-tkms)
+  > Volgens de Nederlandse scheepsbouwer had Duitsland een order voor vier fregatten van TKMS niet onderhands mogen gunnen maar Europees moeten...
+- [De stijgende dollar toont ook de zwakte van de euro](https://fd.nl/financiele-markten/1614463/de-stijgende-dollar-toont-ook-de-zwakte-van-de-euro)
+  > De politieke risicopremie in de eurozone is terug van weggeweest. Na matige Amerikaanse banencijfers had de dollar normaal gesproken moeten...
 
 ### Meest gelezen
 
