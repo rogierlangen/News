@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-10-2026 om 15:41*
+*Laatst bijgewerkt: 05-10-2026 om 22:23*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Tegenvallende resultaten Nike, 'verhaal achter schoenen ontbreekt'](https://nos.nl/l/2633780)
-  > Het loopt niet lekker bij Nike. Het sportmerk besloot voor de derde keer dit jaar werknemers te ontslaan omdat de verkoopcijfers behoorlijk...
-- [Twee doden door brand op vrachtschip Zwarte Zee, Oekraïne wijst naar Rusland](https://nos.nl/l/2633775)
-  > Twee mensen zijn omgekomen bij een brand aan boord van een vrachtschip op de Zwarte Zee, meldt Roemenië. Het schip is gezonken, elf bemanningsleden...
-- [Vliegtuig maakt buiklanding in Tanzania na botsing met zebra](https://nos.nl/l/2633770)
-  > Een safarivliegtuig heeft gisteren een buiklanding gemaakt nadat het tijdens het opstijgen in botsing was gekomen met een zebra. Het hoefdier kwam...
-- [Nationalisten in Bosnië winnen mogelijk ingewikkeldste verkiezingen ter wereld](https://nos.nl/l/2633769)
-  > Hij stond niet op het stembiljet, maar toch is hij de grote winnaar van de verkiezingen in Bosnië en Herzegovina: Milorad Dodik, nu de onbetwiste...
-- [Wachtlijst stroomnet weer langer, maar netbeheerders zien ook lichtpuntjes](https://nos.nl/l/2633767)
-  > Het aantal bedrijven en organisaties dat wacht op een aansluiting om (meer) stroom te gebruiken is verder toegenomen. Inmiddels gaat het om bijna...
+- [Militair vliegtuig neergestort in Nigeria, 32 doden](https://nos.nl/l/2633806)
+  > Een Nigeriaans militair vliegtuig dat onderweg was van Benin City naar Lagos is neergestort. 25 passagiers en zeven bemanningsleden kwamen daarbij om...
+- [Lek zeeschip in de Eemshaven gedicht, gevaar zinken afgewend](https://nos.nl/l/2633805)
+  > Het lek in het zeeschip dat in de Eemshaven in Groningen ligt is gedicht. Dat meldt de veiligheidsregio Groningen. Daarmee is het gevaar dat het...
+- [Jef Van gestel en Cheroney Pelupessy winnen Gieskes-Strijbis Podiumprijs 2026](https://nos.nl/l/2633800)
+  > De tiende editie van de Gieskes-Strijbis Podiumprijs, de grootste podiumprijs van Nederland, gaat naar de Belgische theatermaker en kunstenaar Jef...
+- ['Copiloot Flydubai wilde vliegtuig laten crashen op vliegveld Tel Aviv'](https://nos.nl/l/2633799)
+  > De copiloot van Flydubai die woensdag zijn gezagvoerder neerstak, was waarschijnlijk van plan dat toestel te laten crashen op de internationale...
+- [Meer mensen met 50.000 euro studieschuld of meer, 'niemand kiest daarvoor'](https://nos.nl/l/2633798)
+  > Voor oud-student Ilja van Dijk (26) voelt het afbetalen van de studieschuld nog ver weg. Ilja kan maar geen baan vinden, waardoor het bedrag...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Aankomende donderdag geen Slimste Mens, eenmalig uitzending op zondag](https://www.ad.nl/show/aankomende-donderdag-geen-slimste-mens-eenmalig-uitzending-op-zondag~ad6f5de1/)
-  > Donderdag is De Slimste Mens niet te zien op NPO 1. Dat komt doordat dan het Gouden Televizier-Ring Gala wordt gehouden. Daardoor schuift de...
-- [Mossou schrijft: ‘Van afwashulp naar honderd keer in Oranje: Virgil bewijst dat het kan’](https://www.ad.nl/sport/mossou-schrijft-van-afwashulp-naar-honderd-keer-in-oranje-virgil-bewijst-dat-het-kan~af592adb/)
-  > Lang voordat Virgil van Dijk honderd interlands voor Oranje speelde, verdiende hij zijn eerste euro’s als afwasser in Breda. AD-columnist en...
-- [Nepal staakt zoektocht naar vermisten na dodelijke overstromingen, twee Nederlanders nog niet gevonden](https://www.ad.nl/buitenland/nepal-staakt-zoektocht-naar-vermisten-na-dodelijke-overstromingen-twee-nederlanders-nog-niet-gevonden~ac665be4/)
-  > De autoriteiten in Nepal hebben eind augustus hun zoektocht gestaakt naar de slachtoffers van de dodelijke overstromingen in het noorden van het...
-- [Telefoonverbod op school kan averechts effect hebben: ‘Jongeren compenseren schermtijd thuis’](https://www.ad.nl/binnenland/telefoonverbod-op-school-kan-averechts-effect-hebben-jongeren-compenseren-schermtijd-thuis~a60bb013/)
-  > Vanaf 1 januari worden mobieltjes ook verboden op het schoolplein en in de pauze. Dat is althans het aangescherpte kabinetsadvies voor basisscholen...
-- [Column Hugo Borst | Hoe zuinig een speler ook op zijn lichaam is, op een dag zijn de benen krakende wielen](https://www.ad.nl/voetbal/column-hugo-borst-hoe-zuinig-een-speler-ook-op-zijn-lichaam-is-op-een-dag-zijn-de-benen-krakende-wielen~a49b96b9/)
-  > Columnist Hugo Borst zag zaterdag hoe het Kroatië van Luka Modric werd vernederd door Engeland. ‘Hij doet er verstandig aan om te stoppen bij zijn...
+- [Andrew en Tristan Tate zouden vrouwen met geweld hebben gedwongen pornovideo’s te maken](https://www.ad.nl/buitenland/andrew-en-tristan-tate-zouden-vrouwen-met-geweld-hebben-gedwongen-pornovideos-te-maken~a54e46fd/)
+  > Manosphere-influencers Andrew en Tristan Tate opereerden als loverboys, zeggen de Britse autoriteiten. Vrouwen kregen een romantische relatie in het...
+- [Mark van Bommel grijpt in slotfase naast stunt met België: invallers Frankrijk draaien duel om](https://www.ad.nl/voetbal/mark-van-bommel-grijpt-in-slotfase-naast-stunt-met-belgie-invallers-frankrijk-draaien-duel-om~af879dab/)
+  > Mark van Bommel leek met België maandagavond lange tijd op weg naar een stunt tegen Frankrijk. Dodi Lukebakio bracht de Belgen in de eerste helft op...
+- [Trump wil Rusland bijstaan na overlijden van medewerker in onderzoekscentrum voor de pest](https://www.ad.nl/buitenland/trump-wil-rusland-bijstaan-na-overlijden-van-medewerker-in-onderzoekscentrum-voor-de-pest~ae67dd9c/)
+  > De Amerikaanse president Donald Trump heeft maandag in het Witte Huis gezegd dat de Verenigde Staten bereid zijn Rusland te helpen nadat een...
+- [Italië herpakt zich snel na Turkse gelijkmaker en sluit interlandperiode af met zege](https://www.ad.nl/voetbal/italie-herpakt-zich-snel-na-turkse-gelijkmaker-en-sluit-interlandperiode-af-met-zege~a8b6456c/)
+  > Na de 1-4 nederlaag in Bursa van vorige week wilden de Turken zich revancheren tegen Italië. Daar slaagde het land maandagavond niet in. Na een korte...
+- [Spaanse klassementsrenner Angel Arroyo (70) overleden](https://www.ad.nl/wielrennen/spaanse-klassementsrenner-angel-arroyo-70-overleden~abee4489/)
+  > De Spaanse wielerwereld rouwt om Angel Arroyo. De voormalig klassementsrenner is zondag na een kort ziekbed op 70-jarige leeftijd overleden. Met zijn...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Poging om farmabedrijven buitenspel te zetten bij ontwikkeling dure medicijnen mislukt](https://fd.nl/bedrijfsleven/1614577/poging-om-farmabedrijven-buitenspel-te-zetten-bij-ontwikkeling-dure-medicijnen-mislukt)
-  > De afwijzing van een experimenteel medicijn dat ontwikkeld is door het Nederlands Kankerinstituut is een tegenslag voor academici en niet-commerciële...
-- [Ondanks onrust op de obligatiemarkt durven bedrijven schuldpapier uit te geven](https://fd.nl/financiele-markten/1613488/ondanks-onrust-op-de-obligatiemarkt-durven-bedrijven-schuldpapier-uit-te-geven)
-  > Ondanks oorlog en hogere rentes plaatsen Europese en Amerikaanse bedrijven volop obligaties. Lage risicopremies en veel liquiditeit stuwen de vraag...
-- [Topman Saudi Aramco: ‘Aanvullen olievoorraden gaat nog twee jaar duren’](https://fd.nl/financiele-markten/1614679/topman-saudi-aramco-aanvullen-olievoorraden-gaat-nog-twee-jaar-duren)
-  > Volgens ceo Amin Nasser zijn de wereldwijde olievoorraden gezakt tot onder de 6 miljard vaten en is slechts een fractie daarvan direct inzetbaar.
-- [Damen maakt bezwaar tegen gunning fregattenorder aan TKMS](https://fd.nl/bedrijfsleven/1614523/damen-maakt-bezwaar-tegen-gunning-fregattenorder-aan-tkms)
-  > Volgens de Nederlandse scheepsbouwer had Duitsland een order voor vier fregatten van TKMS niet onderhands mogen gunnen maar Europees moeten...
-- [De stijgende dollar toont ook de zwakte van de euro](https://fd.nl/financiele-markten/1614463/de-stijgende-dollar-toont-ook-de-zwakte-van-de-euro)
-  > De politieke risicopremie in de eurozone is terug van weggeweest. Na matige Amerikaanse banencijfers had de dollar normaal gesproken moeten...
+- [Hulpdiensten proberen zinkend schip in Eemshaven te voorkomen](https://fd.nl/bedrijfsleven/1614701/hulpdiensten-proberen-zinkend-schip-in-eemshaven-te-voorkomen)
+  > De Veiligheidsregio Groningen meldt dat hulpdiensten samenwerken bij een reddingsoperatie in de Eemshaven.
+- [Wall Street begint week in de plus dankzij techrally](https://fd.nl/financiele-markten/1614608/wall-street-begint-week-in-de-plus-dankzij-techrally)
+  > Groene koersborden maandag op Wall Street, waar stijgende techaandelen de opmars leiden.
+- [Jemenitisch regeringsleger claimt controle zeestraat Bab al-Mandab na grootschalig tegenoffensief op Houthi’s](https://fd.nl/politiek/1614687/jemenitisch-regeringsleger-claimt-controle-zeestraat-bab-al-mandab-na-grootschalig-tegenoffensief-op-houthis)
+  > De herovering is onderdeel van de militaire operatie ‘Dageraad van Jemen’, waarmee het regeringsleger de Houthi’s willen verdrijven.
+- [Senaat toch bereid om tempo te maken met vermogenswinstbelasting in box 3](https://fd.nl/politiek/1614681/senaat-toch-bereid-om-tempo-te-maken-met-vermogenswinstbelasting-in-box-3)
+  > ‘Voor we onder de kerstboom zitten, moet er een besluit zijn genomen’, waarschuwt staatssecretaris Eerenberg de Eerste Kamer maandagavond.
+- [Duitse inlichtingendiensten: ‘Rusland voert schaduwoorlog tegen Duitsland’](https://fd.nl/politiek/1614686/rusland-voert-schaduwoorlog-tegen-duitsland)
+  > Chefs van inlichtingendiensten waarschuwen dat pogingen tot sabotage kunnen leiden tot escalatie.
 
 ### Meest gelezen
 
