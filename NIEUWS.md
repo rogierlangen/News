@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-10-2026 om 09:54*
+*Laatst bijgewerkt: 06-10-2026 om 16:35*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Droneaanval op schepen voor Bulgaarse kust, premier houdt spoedvergadering](https://nos.nl/l/2633846)
-  > Voor de kust van Bulgarije in de Zwarte Zee is een schip gezonken na een droneaanval. Op een ander schip brak brand uit, bevestigt de Bulgaarse...
-- [Mazelenuitbraak in New York en Pennsylvania grootste sinds jaren 90](https://nos.nl/l/2633844)
-  > De mazelen verspreiden zich snel in de Amerikaanse staten New York en Pennsylvania. In New York is zelfs de noodtoestand uitgeroepen, nadat deze week...
-- [Voormalig chef Duitse inlichtingen opgepakt vanwege spionage](https://nos.nl/l/2633843)
-  > Het voormalige hoofd van de Duitse inlichtingendienst BND August Hanning is aangehouden. Volgens Duitse media wordt Hanning onder meer worden...
-- [Amerikaanse evangelist Jim Bakker overleden, bekend van tv en schandalen](https://nos.nl/l/2633840)
-  > De Amerikaanse tv-evangelist Jim Bakker is overleden op 86-jarige leeftijd. Hij werd bekend in de jaren 70 en 80, toen hij het programma The PTL-Club...
-- [Separatisten in Quebec winnen verkiezingen, dreun voor premier Carney](https://nos.nl/l/2633838)
-  > In de Canadese provincie Quebec heeft de separatistische Parti Quebecois (PQ) nipt de lokale verkiezingen gewonnen. De overwinning van PQ, dat Quebec...
+- [Geen actuele reisinformatie op digitale borden treinstations door storing](https://nos.nl/l/2633901)
+  > Het reisinformatiesysteem van de NS kampt met een storing. Daardoor zijn de actuele vertrektijden op de digitale informatieborden niet te zien, zegt...
+- [Franse premier: komende dagen geen les op Franse scholen, gesprek met elkaar](https://nos.nl/l/2633900)
+  > De komende drie dagen zullen er op alle middelbare scholen in heel Frankrijk geen lessen zijn. Dat heeft de Franse premier Lecornu gezegd. Reden zijn...
+- [EU-uitbreiding weer bespreekbaar, maar wel eerst proefperiode voor nieuwe landen](https://nos.nl/l/2633899)
+  > Jarenlang was het onderwerp onbespreekbaar in Brussel: het toelaten van nieuwe landen tot de Europese Unie. De laatste toetreding, die van Kroatië,...
+- [Actie met gratis ijsjes loopt uit de hand, politie grijpt in](https://nos.nl/l/2633895)
+  > Een actie waarbij een ijssalon gratis ijsjes weggaf in Almere is gisteren uit de hand gelopen. De vele aanwezige jongeren werden zo vervelend dat de...
+- [Ook ChatGPT-teksten krijgen onzichtbaar 'watermerk'](https://nos.nl/l/2633893)
+  > Teksten van ChatGPT-gebruikers worden voorzien van een onzichtbaar 'watermerk'. Hiermee moet duidelijker worden of een tekst authentiek is of...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Belgische ruimteonderzoeker wint Nobelprijs van Natuurkunde](https://www.ad.nl/buitenland/belgische-ruimteonderzoeker-wint-nobelprijs-van-natuurkunde~accdf455/)
-  > De Nobelprijs voor de Natuurkunde is dit jaar uitgereikt aan de Belgische onderzoeker Francis Halzen voor zijn ontdekking van hoogenergetische...
-- [Daniil Medvedev verliest bijna 200.000 euro prijzengeld en hoop ATP-punten na slaan van bal tegen toeschouwer](https://www.ad.nl/tennis/daniil-medvedev-verliest-bijna-200-000-euro-prijzengeld-en-hoop-atp-punten-na-slaan-van-bal-tegen-toeschouwer~aa8d0389b/)
-  > Daniil Medvedev krijgt na zijn diskwalificatie in de halve finales van het tennistoernooi in Peking geen prijzengeld uitgekeerd. Hij verliest ook...
-- [Online kledinggigant Asos mogelijk gehackt: klanten krijgen dreigende melding op hun telefoon](https://www.ad.nl/binnenland/online-kledinggigant-asos-mogelijk-gehackt-klanten-krijgen-dreigende-melding-op-hun-telefoon~adeb3fad/)
-  > Online kledingretailer Asos lijkt te zijn gehackt. Gebruikers van de app kregen dinsdagochtend een dreigend bericht op hun telefoon, waarin wordt...
-- [Mika is een bloedmooie vrouw, maar is zwart en daardoor valt Jurriaan niet op haar, denkt hij](https://www.ad.nl/binnenland/mika-is-een-bloedmooie-vrouw-maar-is-zwart-en-daardoor-valt-jurriaan-niet-op-haar-denkt-hij~ae51a5c6/)
-  > Hij is een racist en zij een domme zwarte vrouw, als je het commentaar op social media moet geloven. Maar samen doen ze iets bijzonders, waar...
-- [Copiloot Flydubai wilde aanslag op collega al eerder plegen, maar toen vloog goede vriend mee](https://www.ad.nl/buitenland/copiloot-flydubai-wilde-aanslag-op-collega-al-eerder-plegen-maar-toen-vloog-goede-vriend-mee~ae6954f3/)
-  > De copiloot van Flydubai die vorige week met een bijl zijn collega aanviel, was vermoedelijk van plan om het toestel te laten neerstorten op de...
+- [Een dode, meerdere opnames en een levertransplantatie: giftige knolamaniet jaagt artsen schrik aan](https://www.ad.nl/nieuws/een-dode-meerdere-opnames-en-een-levertransplantatie-giftige-knolamaniet-jaagt-artsen-schrik-aan~a82c0a24/)
+  > Maag-, darm- en leverartsen slaan alarm om de groene knolamaniet: een paddenstoel die nu veel voorkomt, lijkt op een wilde champignon, maar in...
+- [LIVE Midden-Oosten | Israël waarschuwt voor aanslagen op Israëliërs en Joden in het buitenland op 7 oktober](https://www.ad.nl/buitenland/live-midden-oosten-israel-waarschuwt-voor-aanslagen-op-israeliers-en-joden-in-het-buitenland-op-7-oktober~ac528ac3/)
+  > De Israëlische Nationale Veiligheidsraad (NSC) heeft gewaarschuwd voor aanslagen op Israëliërs en Joden over de hele wereld komende woensdag. Het is...
+- [Curaçaose international Roemeratoe vindt nieuwe club in Roemenië, Carvajal onderweg naar Ajax-opponent](https://www.ad.nl/voetbal/curacaose-international-roemeratoe-vindt-nieuwe-club-in-roemenie-carvajal-onderweg-naar-ajax-opponent~abfbf81f/)
+  > De transfermarkt in Nederland is sinds woensdagavond 2 september gesloten. De markt in de buitenlandse topcompetities ging een dag eerder dicht....
+- [Na dood van laborant en plotselinge quarantaine groeit wantrouwen over pest in Russische stad Irkoetsk](https://www.ad.nl/buitenland/na-dood-van-laborant-en-plotselinge-quarantaine-groeit-wantrouwen-over-pest-in-russische-stad-irkoetsk~af1c6873/)
+  > Het Kremlin probeert de bevolking gerust te stellen over een mogelijk pestgeval in de regio Irkoetsk, maar de Russen zien te veel aanwijzingen dat...
+- [Tegenvaller Jong Oranje: Kees Smit haakt geblesseerd af in warming-up](https://www.ad.nl/voetbal/tegenvaller-jong-oranje-kees-smit-haakt-geblesseerd-af-in-warming-up~ad14f5df/)
+  > Jong Oranje heeft plaatsing voor het EK Onder 21 niet meer in eigen hand. Vanavond móét de ploeg van Michael Reiziger in De Vijverberg in Doetinchem...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Een strafbeschikking van het OM voorkomt extra vertraging door langzame rechtsgang](https://fd.nl/opinie/1614514/strafbeschikking-verlicht-juist-werkdruk-rechter)
-  > De agenda van rechters is overvol. Met strafbeschikkingen kan het Openbaar Ministerie die druk verminderen, maar op de inzet daarvan klinkt nu...
-- [Linksom of rechtsom](https://fd.nl/financiele-markten/1614612/linksom-of-rechtsom)
-  > FD-columnist Milou Brand was graag in gesprek gegaan over de vraag of beleggen nu links of rechts is. ‘Desnoods in debat.’
-- [Een gepeperde rekening van de loodgieter: wat is arbeid waard?](https://fd.nl/samenleving/1614519/een-gepeperde-rekening-van-de-loodgieter-wat-is-arbeid-waard)
-  > In de coronacrisis werd in één keer duidelijk welke beroepen de samenleving overeind houden. Dat vertaalt zich soms wel en soms niet in de beloning,...
-- [Duitse fabrieksorders nemen af in augustus](https://fd.nl/economie/1614707/duitse-fabrieksorders-nemen-af-in-augustus)
-  > Aantal fabrieksorders daalt met ruim 10%, een veel grotere krimp dan economen hadden voorspeld.
-- [Grote Oekraïense aanval op Moskou](https://fd.nl/politiek/1614704/grote-oekraiense-aanval-op-moskou)
-  > 185 van de 650 afgevuurde drones zouden zijn neergehaald.
+- [Koers Asos onderuit na berichten over cyberaanval](https://fd.nl/financiele-markten/1614635/koers-asos-onderuit-na-berichten-over-cyberaanval)
+  > Klanten ontvingen een pushmelding in de app van de webshop.
+- [De nachtbrakende belegger wordt binnenkort op zijn wenken bediend](https://fd.nl/financiele-markten/1614610/de-nachtbrakende-belegger-wordt-binnenkort-op-zijn-wenken-bediend)
+  > 24/7-handel ligt binnen handbereik, nu cryptotechnologie ook grote beurzen bereikt. De New York Stock Exchange wil er op tijd bij zijn en komt, net...
+- [Nederlands RougeTx haalt ruim €51 mln op voor middel tegen chronische bloedneuzen](https://fd.nl/financiele-markten/1614633/nederlands-rougetx-haalt-ruim-51-mln-op-voor-middel-tegen-chronische-bloedneuzen)
+  > Het biotechbedrijf, een spin-off van het LUMC, haalt financiering op om zijn medicijn te testen op patiënten.
+- [ACM: Veel gebruikers hebben een te zware stroomaansluiting](https://fd.nl/samenleving/1614632/acm-veel-gebruikers-hebben-een-te-zware-stroomaansluiting)
+  > Honderdduizenden huishoudens en kleine bedrijven betalen onnodig veel, stelt toezichthouder.
+- [Nieuwe NAM-directeur vindt ontmantelen gasinstallaties eigenlijk ‘vreselijk’](https://fd.nl/bedrijfsleven/1614721/nieuwe-nam-directeur-vindt-ontmantelen-gasinstallaties-eigenlijk-vreselijk)
+  > Martijn Kleverlaan start op 1 november als topman van NAM, het olie- en gasbedrijf dat de afgelopen jaren enorm is gekrompen.
 
 ### Meest gelezen
 
