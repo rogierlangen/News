@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-10-2026 om 02:46*
+*Laatst bijgewerkt: 06-10-2026 om 09:54*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Rechtbankdocumenten: Tate-broers ronselden vrouwen met loverboy-methode](https://nos.nl/l/2633814)
-  > De omstreden influencers Andrew en Tristan Tate gingen als 'loverboys' te werk in het ronselen van vrouwen. Dat blijkt uit een samenvatting van...
-- [Dit schooljaar recordaantal van bijna 12000 boekverboden op scholen in VS](https://nos.nl/l/2633813)
-  > Op openbare scholen in de Verenigde Staten zijn dit schooljaar bijna 12000 boeken verboden. Dat blijkt uit een studie van PEN America, een...
-- [Britse auteur en politicus Jeffrey Archer op 86-jarige leeftijd overleden](https://nos.nl/l/2633812)
-  > De Britse auteur en politicus Jeffrey Archer is op 86-jarige leeftijd overleden. Zijn uitgeverij HarpersCollins meldt dat hij "plotseling en vredig"...
-- [Militair vliegtuig neergestort in Nigeria, 32 doden](https://nos.nl/l/2633806)
-  > Een Nigeriaans militair vliegtuig dat onderweg was van Benin City naar Lagos is neergestort. 25 passagiers en zeven bemanningsleden kwamen daarbij om...
-- [Lek zeeschip in de Eemshaven gedicht, gevaar zinken afgewend](https://nos.nl/l/2633805)
-  > Het lek in het zeeschip dat in de Eemshaven in Groningen ligt is gedicht. Dat meldt de veiligheidsregio Groningen. Daarmee is het gevaar dat het...
+- [Droneaanval op schepen voor Bulgaarse kust, premier houdt spoedvergadering](https://nos.nl/l/2633846)
+  > Voor de kust van Bulgarije in de Zwarte Zee is een schip gezonken na een droneaanval. Op een ander schip brak brand uit, bevestigt de Bulgaarse...
+- [Mazelenuitbraak in New York en Pennsylvania grootste sinds jaren 90](https://nos.nl/l/2633844)
+  > De mazelen verspreiden zich snel in de Amerikaanse staten New York en Pennsylvania. In New York is zelfs de noodtoestand uitgeroepen, nadat deze week...
+- [Voormalig chef Duitse inlichtingen opgepakt vanwege spionage](https://nos.nl/l/2633843)
+  > Het voormalige hoofd van de Duitse inlichtingendienst BND August Hanning is aangehouden. Volgens Duitse media wordt Hanning onder meer worden...
+- [Amerikaanse evangelist Jim Bakker overleden, bekend van tv en schandalen](https://nos.nl/l/2633840)
+  > De Amerikaanse tv-evangelist Jim Bakker is overleden op 86-jarige leeftijd. Hij werd bekend in de jaren 70 en 80, toen hij het programma The PTL-Club...
+- [Separatisten in Quebec winnen verkiezingen, dreun voor premier Carney](https://nos.nl/l/2633838)
+  > In de Canadese provincie Quebec heeft de separatistische Parti Quebecois (PQ) nipt de lokale verkiezingen gewonnen. De overwinning van PQ, dat Quebec...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Iedereen mag van Trump voortaan belastingvrije diesel tanken in de VS: ‘Het schijnt heel goed te zijn’](https://www.ad.nl/buitenland/iedereen-mag-van-trump-voortaan-belastingvrije-diesel-tanken-in-de-vs-het-schijnt-heel-goed-te-zijn~a608c683/)
-  > De Amerikaanse president Donald Trump heeft maandag een decreet uitgevaardigd dat het voor iedereen in de Verenigde Staten mogelijk maakt om...
-- [Oud American Idol-deelnemer (40) veroordeeld tot levenslang voor moord op echtgenote](https://www.ad.nl/buitenland/oud-american-idol-deelnemer-40-veroordeeld-tot-levenslang-voor-moord-op-echtgenote~a8bf8ff1/)
-  > Caleb Flynn is veroordeeld tot een levenslange gevangenisstraf zonder kans op vervroegde vrijlating voor de moord op zijn echtgenote. De voormalige...
-- [Schutter Fort Hood mag van Trump voor vuurpeloton Amerikaans leger worden gebracht, eerste keer in 65 jaar](https://www.ad.nl/buitenland/schutter-fort-hood-mag-van-trump-voor-vuurpeloton-amerikaans-leger-worden-gebracht-eerste-keer-in-65-jaar~ae67dd9c/)
-  > Nidal Hasan, een psychiater van het Amerikaanse leger die in 2009 op de legerbasis Fort Hood in Texas dertien militairen doodschoot, zal ter dood...
-- [Staat New York roept noodtoestand uit vanwege snelle stijging  mazelengevallen](https://www.ad.nl/buitenland/staat-new-york-roept-noodtoestand-uit-vanwege-snelle-stijging-mazelengevallen~ab77c66f/)
-  > De gouverneur van de Amerikaanse staat New York, Kathy Hochul, heeft de noodtoestand uitgeroepen vanwege het stijgende aantal mazelengevallen in haar...
-- [Andrew en Tristan Tate zouden vrouwen met geweld hebben gedwongen pornovideo’s te maken](https://www.ad.nl/buitenland/andrew-en-tristan-tate-zouden-vrouwen-met-geweld-hebben-gedwongen-pornovideos-te-maken~a54e46fd/)
-  > Manosphere-influencers Andrew en Tristan Tate opereerden als loverboys, zeggen de Britse autoriteiten. Vrouwen kregen een romantische relatie in het...
+- [Belgische ruimteonderzoeker wint Nobelprijs van Natuurkunde](https://www.ad.nl/buitenland/belgische-ruimteonderzoeker-wint-nobelprijs-van-natuurkunde~accdf455/)
+  > De Nobelprijs voor de Natuurkunde is dit jaar uitgereikt aan de Belgische onderzoeker Francis Halzen voor zijn ontdekking van hoogenergetische...
+- [Daniil Medvedev verliest bijna 200.000 euro prijzengeld en hoop ATP-punten na slaan van bal tegen toeschouwer](https://www.ad.nl/tennis/daniil-medvedev-verliest-bijna-200-000-euro-prijzengeld-en-hoop-atp-punten-na-slaan-van-bal-tegen-toeschouwer~aa8d0389b/)
+  > Daniil Medvedev krijgt na zijn diskwalificatie in de halve finales van het tennistoernooi in Peking geen prijzengeld uitgekeerd. Hij verliest ook...
+- [Online kledinggigant Asos mogelijk gehackt: klanten krijgen dreigende melding op hun telefoon](https://www.ad.nl/binnenland/online-kledinggigant-asos-mogelijk-gehackt-klanten-krijgen-dreigende-melding-op-hun-telefoon~adeb3fad/)
+  > Online kledingretailer Asos lijkt te zijn gehackt. Gebruikers van de app kregen dinsdagochtend een dreigend bericht op hun telefoon, waarin wordt...
+- [Mika is een bloedmooie vrouw, maar is zwart en daardoor valt Jurriaan niet op haar, denkt hij](https://www.ad.nl/binnenland/mika-is-een-bloedmooie-vrouw-maar-is-zwart-en-daardoor-valt-jurriaan-niet-op-haar-denkt-hij~ae51a5c6/)
+  > Hij is een racist en zij een domme zwarte vrouw, als je het commentaar op social media moet geloven. Maar samen doen ze iets bijzonders, waar...
+- [Copiloot Flydubai wilde aanslag op collega al eerder plegen, maar toen vloog goede vriend mee](https://www.ad.nl/buitenland/copiloot-flydubai-wilde-aanslag-op-collega-al-eerder-plegen-maar-toen-vloog-goede-vriend-mee~ae6954f3/)
+  > De copiloot van Flydubai die vorige week met een bijl zijn collega aanviel, was vermoedelijk van plan om het toestel te laten neerstorten op de...
 
 ### Meest gelezen
 
@@ -46,15 +46,16 @@
 
 ### Laatste nieuws
 
-- [Booking.com en ondernemingsraad naar de rechter vanwege thuiswerken](https://fd.nl/bedrijfsleven/1614676/booking-com-en-ondernemingsraad-naar-de-rechter-vanwege-thuiswerken)
-- [Grote investering in cybersecurity: Hadrian haalt $40 mln op](https://fd.nl/tech-en-innovatie/1614521/grote-investering-in-cybersecurity-hadrian-haalt-40-mln-op)
-  > Het is de tweede grote investering dit jaar in een Nederlands cybersecuritybedrijf. Toch blijken investeringen wereldwijd in dit soort start-ups en...
-- [Meer geld voor start-ups bij universiteiten, maar aanwas van nieuwe bedrijven stokt](https://fd.nl/tech-en-innovatie/1614461/meer-geld-voor-start-ups-bij-universiteiten-maar-aanwas-van-nieuwe-bedrijven-stokt)
-  > Graduate Ventures, dat geld steekt in start-ups die afkomstig zijn van universiteiten, trekt met een nieuw fonds meer belangstelling dan verwacht....
-- [Netanyahu zoekt winst in bijna-vliegramp](https://fd.nl/opinie/1614457/netanyahu-zoekt-winst-in-bijna-vliegramp)
-  > Een bijna-ramp met een radicale copiloot kan Benjamin Netanyahu helpen in de aanloop naar de verkiezingen. Maar dezelfde vlucht kan ook blootleggen...
-- [Ozempic met een o](https://fd.nl/opinie/1614200/ozempic-met-een-o)
-  > De merknaam van het middel evolueert tot soortnaam, stelt FD-columnist Anna Dijkman vast. De volksmond laat zich niet snoeren.
+- [Een strafbeschikking van het OM voorkomt extra vertraging door langzame rechtsgang](https://fd.nl/opinie/1614514/strafbeschikking-verlicht-juist-werkdruk-rechter)
+  > De agenda van rechters is overvol. Met strafbeschikkingen kan het Openbaar Ministerie die druk verminderen, maar op de inzet daarvan klinkt nu...
+- [Linksom of rechtsom](https://fd.nl/financiele-markten/1614612/linksom-of-rechtsom)
+  > FD-columnist Milou Brand was graag in gesprek gegaan over de vraag of beleggen nu links of rechts is. ‘Desnoods in debat.’
+- [Een gepeperde rekening van de loodgieter: wat is arbeid waard?](https://fd.nl/samenleving/1614519/een-gepeperde-rekening-van-de-loodgieter-wat-is-arbeid-waard)
+  > In de coronacrisis werd in één keer duidelijk welke beroepen de samenleving overeind houden. Dat vertaalt zich soms wel en soms niet in de beloning,...
+- [Duitse fabrieksorders nemen af in augustus](https://fd.nl/economie/1614707/duitse-fabrieksorders-nemen-af-in-augustus)
+  > Aantal fabrieksorders daalt met ruim 10%, een veel grotere krimp dan economen hadden voorspeld.
+- [Grote Oekraïense aanval op Moskou](https://fd.nl/politiek/1614704/grote-oekraiense-aanval-op-moskou)
+  > 185 van de 650 afgevuurde drones zouden zijn neergehaald.
 
 ### Meest gelezen
 
