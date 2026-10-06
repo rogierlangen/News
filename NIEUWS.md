@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-10-2026 om 22:23*
+*Laatst bijgewerkt: 06-10-2026 om 02:46*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Rechtbankdocumenten: Tate-broers ronselden vrouwen met loverboy-methode](https://nos.nl/l/2633814)
+  > De omstreden influencers Andrew en Tristan Tate gingen als 'loverboys' te werk in het ronselen van vrouwen. Dat blijkt uit een samenvatting van...
+- [Dit schooljaar recordaantal van bijna 12000 boekverboden op scholen in VS](https://nos.nl/l/2633813)
+  > Op openbare scholen in de Verenigde Staten zijn dit schooljaar bijna 12000 boeken verboden. Dat blijkt uit een studie van PEN America, een...
+- [Britse auteur en politicus Jeffrey Archer op 86-jarige leeftijd overleden](https://nos.nl/l/2633812)
+  > De Britse auteur en politicus Jeffrey Archer is op 86-jarige leeftijd overleden. Zijn uitgeverij HarpersCollins meldt dat hij "plotseling en vredig"...
 - [Militair vliegtuig neergestort in Nigeria, 32 doden](https://nos.nl/l/2633806)
   > Een Nigeriaans militair vliegtuig dat onderweg was van Benin City naar Lagos is neergestort. 25 passagiers en zeven bemanningsleden kwamen daarbij om...
 - [Lek zeeschip in de Eemshaven gedicht, gevaar zinken afgewend](https://nos.nl/l/2633805)
   > Het lek in het zeeschip dat in de Eemshaven in Groningen ligt is gedicht. Dat meldt de veiligheidsregio Groningen. Daarmee is het gevaar dat het...
-- [Jef Van gestel en Cheroney Pelupessy winnen Gieskes-Strijbis Podiumprijs 2026](https://nos.nl/l/2633800)
-  > De tiende editie van de Gieskes-Strijbis Podiumprijs, de grootste podiumprijs van Nederland, gaat naar de Belgische theatermaker en kunstenaar Jef...
-- ['Copiloot Flydubai wilde vliegtuig laten crashen op vliegveld Tel Aviv'](https://nos.nl/l/2633799)
-  > De copiloot van Flydubai die woensdag zijn gezagvoerder neerstak, was waarschijnlijk van plan dat toestel te laten crashen op de internationale...
-- [Meer mensen met 50.000 euro studieschuld of meer, 'niemand kiest daarvoor'](https://nos.nl/l/2633798)
-  > Voor oud-student Ilja van Dijk (26) voelt het afbetalen van de studieschuld nog ver weg. Ilja kan maar geen baan vinden, waardoor het bedrag...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Iedereen mag van Trump voortaan belastingvrije diesel tanken in de VS: ‘Het schijnt heel goed te zijn’](https://www.ad.nl/buitenland/iedereen-mag-van-trump-voortaan-belastingvrije-diesel-tanken-in-de-vs-het-schijnt-heel-goed-te-zijn~a608c683/)
+  > De Amerikaanse president Donald Trump heeft maandag een decreet uitgevaardigd dat het voor iedereen in de Verenigde Staten mogelijk maakt om...
+- [Oud American Idol-deelnemer (40) veroordeeld tot levenslang voor moord op echtgenote](https://www.ad.nl/buitenland/oud-american-idol-deelnemer-40-veroordeeld-tot-levenslang-voor-moord-op-echtgenote~a8bf8ff1/)
+  > Caleb Flynn is veroordeeld tot een levenslange gevangenisstraf zonder kans op vervroegde vrijlating voor de moord op zijn echtgenote. De voormalige...
+- [Schutter Fort Hood mag van Trump voor vuurpeloton Amerikaans leger worden gebracht, eerste keer in 65 jaar](https://www.ad.nl/buitenland/schutter-fort-hood-mag-van-trump-voor-vuurpeloton-amerikaans-leger-worden-gebracht-eerste-keer-in-65-jaar~ae67dd9c/)
+  > Nidal Hasan, een psychiater van het Amerikaanse leger die in 2009 op de legerbasis Fort Hood in Texas dertien militairen doodschoot, zal ter dood...
+- [Staat New York roept noodtoestand uit vanwege snelle stijging  mazelengevallen](https://www.ad.nl/buitenland/staat-new-york-roept-noodtoestand-uit-vanwege-snelle-stijging-mazelengevallen~ab77c66f/)
+  > De gouverneur van de Amerikaanse staat New York, Kathy Hochul, heeft de noodtoestand uitgeroepen vanwege het stijgende aantal mazelengevallen in haar...
 - [Andrew en Tristan Tate zouden vrouwen met geweld hebben gedwongen pornovideo’s te maken](https://www.ad.nl/buitenland/andrew-en-tristan-tate-zouden-vrouwen-met-geweld-hebben-gedwongen-pornovideos-te-maken~a54e46fd/)
   > Manosphere-influencers Andrew en Tristan Tate opereerden als loverboys, zeggen de Britse autoriteiten. Vrouwen kregen een romantische relatie in het...
-- [Mark van Bommel grijpt in slotfase naast stunt met België: invallers Frankrijk draaien duel om](https://www.ad.nl/voetbal/mark-van-bommel-grijpt-in-slotfase-naast-stunt-met-belgie-invallers-frankrijk-draaien-duel-om~af879dab/)
-  > Mark van Bommel leek met België maandagavond lange tijd op weg naar een stunt tegen Frankrijk. Dodi Lukebakio bracht de Belgen in de eerste helft op...
-- [Trump wil Rusland bijstaan na overlijden van medewerker in onderzoekscentrum voor de pest](https://www.ad.nl/buitenland/trump-wil-rusland-bijstaan-na-overlijden-van-medewerker-in-onderzoekscentrum-voor-de-pest~ae67dd9c/)
-  > De Amerikaanse president Donald Trump heeft maandag in het Witte Huis gezegd dat de Verenigde Staten bereid zijn Rusland te helpen nadat een...
-- [Italië herpakt zich snel na Turkse gelijkmaker en sluit interlandperiode af met zege](https://www.ad.nl/voetbal/italie-herpakt-zich-snel-na-turkse-gelijkmaker-en-sluit-interlandperiode-af-met-zege~a8b6456c/)
-  > Na de 1-4 nederlaag in Bursa van vorige week wilden de Turken zich revancheren tegen Italië. Daar slaagde het land maandagavond niet in. Na een korte...
-- [Spaanse klassementsrenner Angel Arroyo (70) overleden](https://www.ad.nl/wielrennen/spaanse-klassementsrenner-angel-arroyo-70-overleden~abee4489/)
-  > De Spaanse wielerwereld rouwt om Angel Arroyo. De voormalig klassementsrenner is zondag na een kort ziekbed op 70-jarige leeftijd overleden. Met zijn...
 
 ### Meest gelezen
 
@@ -46,16 +46,15 @@
 
 ### Laatste nieuws
 
-- [Hulpdiensten proberen zinkend schip in Eemshaven te voorkomen](https://fd.nl/bedrijfsleven/1614701/hulpdiensten-proberen-zinkend-schip-in-eemshaven-te-voorkomen)
-  > De Veiligheidsregio Groningen meldt dat hulpdiensten samenwerken bij een reddingsoperatie in de Eemshaven.
-- [Wall Street begint week in de plus dankzij techrally](https://fd.nl/financiele-markten/1614608/wall-street-begint-week-in-de-plus-dankzij-techrally)
-  > Groene koersborden maandag op Wall Street, waar stijgende techaandelen de opmars leiden.
-- [Jemenitisch regeringsleger claimt controle zeestraat Bab al-Mandab na grootschalig tegenoffensief op Houthi’s](https://fd.nl/politiek/1614687/jemenitisch-regeringsleger-claimt-controle-zeestraat-bab-al-mandab-na-grootschalig-tegenoffensief-op-houthis)
-  > De herovering is onderdeel van de militaire operatie ‘Dageraad van Jemen’, waarmee het regeringsleger de Houthi’s willen verdrijven.
-- [Senaat toch bereid om tempo te maken met vermogenswinstbelasting in box 3](https://fd.nl/politiek/1614681/senaat-toch-bereid-om-tempo-te-maken-met-vermogenswinstbelasting-in-box-3)
-  > ‘Voor we onder de kerstboom zitten, moet er een besluit zijn genomen’, waarschuwt staatssecretaris Eerenberg de Eerste Kamer maandagavond.
-- [Duitse inlichtingendiensten: ‘Rusland voert schaduwoorlog tegen Duitsland’](https://fd.nl/politiek/1614686/rusland-voert-schaduwoorlog-tegen-duitsland)
-  > Chefs van inlichtingendiensten waarschuwen dat pogingen tot sabotage kunnen leiden tot escalatie.
+- [Booking.com en ondernemingsraad naar de rechter vanwege thuiswerken](https://fd.nl/bedrijfsleven/1614676/booking-com-en-ondernemingsraad-naar-de-rechter-vanwege-thuiswerken)
+- [Grote investering in cybersecurity: Hadrian haalt $40 mln op](https://fd.nl/tech-en-innovatie/1614521/grote-investering-in-cybersecurity-hadrian-haalt-40-mln-op)
+  > Het is de tweede grote investering dit jaar in een Nederlands cybersecuritybedrijf. Toch blijken investeringen wereldwijd in dit soort start-ups en...
+- [Meer geld voor start-ups bij universiteiten, maar aanwas van nieuwe bedrijven stokt](https://fd.nl/tech-en-innovatie/1614461/meer-geld-voor-start-ups-bij-universiteiten-maar-aanwas-van-nieuwe-bedrijven-stokt)
+  > Graduate Ventures, dat geld steekt in start-ups die afkomstig zijn van universiteiten, trekt met een nieuw fonds meer belangstelling dan verwacht....
+- [Netanyahu zoekt winst in bijna-vliegramp](https://fd.nl/opinie/1614457/netanyahu-zoekt-winst-in-bijna-vliegramp)
+  > Een bijna-ramp met een radicale copiloot kan Benjamin Netanyahu helpen in de aanloop naar de verkiezingen. Maar dezelfde vlucht kan ook blootleggen...
+- [Ozempic met een o](https://fd.nl/opinie/1614200/ozempic-met-een-o)
+  > De merknaam van het middel evolueert tot soortnaam, stelt FD-columnist Anna Dijkman vast. De volksmond laat zich niet snoeren.
 
 ### Meest gelezen
 
