@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-10-2026 om 16:35*
+*Laatst bijgewerkt: 06-10-2026 om 21:29*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Geen actuele reisinformatie op digitale borden treinstations door storing](https://nos.nl/l/2633901)
-  > Het reisinformatiesysteem van de NS kampt met een storing. Daardoor zijn de actuele vertrektijden op de digitale informatieborden niet te zien, zegt...
-- [Franse premier: komende dagen geen les op Franse scholen, gesprek met elkaar](https://nos.nl/l/2633900)
-  > De komende drie dagen zullen er op alle middelbare scholen in heel Frankrijk geen lessen zijn. Dat heeft de Franse premier Lecornu gezegd. Reden zijn...
-- [EU-uitbreiding weer bespreekbaar, maar wel eerst proefperiode voor nieuwe landen](https://nos.nl/l/2633899)
-  > Jarenlang was het onderwerp onbespreekbaar in Brussel: het toelaten van nieuwe landen tot de Europese Unie. De laatste toetreding, die van Kroatië,...
-- [Actie met gratis ijsjes loopt uit de hand, politie grijpt in](https://nos.nl/l/2633895)
-  > Een actie waarbij een ijssalon gratis ijsjes weggaf in Almere is gisteren uit de hand gelopen. De vele aanwezige jongeren werden zo vervelend dat de...
-- [Ook ChatGPT-teksten krijgen onzichtbaar 'watermerk'](https://nos.nl/l/2633893)
-  > Teksten van ChatGPT-gebruikers worden voorzien van een onzichtbaar 'watermerk'. Hiermee moet duidelijker worden of een tekst authentiek is of...
+- [Christa Pike bij bewustzijn en aanspreekbaar na mislukte executie](https://nos.nl/l/2633944)
+  > De gevangene uit de Amerikaanse staat Tennessee die vorige week een mislukte executie onderging, is bij bewustzijn en aanspreekbaar. Dat hebben haar...
+- [Al dagen onrustig in Hoogeveen, opnieuw jongeren aangehouden](https://nos.nl/l/2633941)
+  > De politie heeft vanavond in Hoogeveen zes mensen aangehouden, onder wie enkele minderjarigen. Het is al dagen onrustig in het centrum: ook gisteren...
+- [Britse forensisch student vermoordt vrouw in 'Dexter'-kamer](https://nos.nl/l/2633934)
+  > In Engeland heeft een student forensische wetenschap bekend een 24-jarige vrouw te hebben vermoord, nadat hij haar naar een 'moordkamer' in een...
+- [Kamer hoopt 130.000 burgers te kunnen inzetten bij crises](https://nos.nl/l/2633930)
+  > De Tweede Kamer is gecharmeerd van het initiatief om burgers op te leiden om bij rampen of crises de hulpdiensten te kunnen ondersteunen. Een...
+- [Spionagezaak schaadt reputatie Duitse inlichtingendienst](https://nos.nl/l/2633928)
+  > "Een absoluut nachtmerriescenario", noemt inlichtingenexpert Kenneth Lasoen het nieuws dat het voormalig hoofd van de Duitse buitenlandse...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Een dode, meerdere opnames en een levertransplantatie: giftige knolamaniet jaagt artsen schrik aan](https://www.ad.nl/nieuws/een-dode-meerdere-opnames-en-een-levertransplantatie-giftige-knolamaniet-jaagt-artsen-schrik-aan~a82c0a24/)
-  > Maag-, darm- en leverartsen slaan alarm om de groene knolamaniet: een paddenstoel die nu veel voorkomt, lijkt op een wilde champignon, maar in...
-- [LIVE Midden-Oosten | Israël waarschuwt voor aanslagen op Israëliërs en Joden in het buitenland op 7 oktober](https://www.ad.nl/buitenland/live-midden-oosten-israel-waarschuwt-voor-aanslagen-op-israeliers-en-joden-in-het-buitenland-op-7-oktober~ac528ac3/)
-  > De Israëlische Nationale Veiligheidsraad (NSC) heeft gewaarschuwd voor aanslagen op Israëliërs en Joden over de hele wereld komende woensdag. Het is...
-- [Curaçaose international Roemeratoe vindt nieuwe club in Roemenië, Carvajal onderweg naar Ajax-opponent](https://www.ad.nl/voetbal/curacaose-international-roemeratoe-vindt-nieuwe-club-in-roemenie-carvajal-onderweg-naar-ajax-opponent~abfbf81f/)
-  > De transfermarkt in Nederland is sinds woensdagavond 2 september gesloten. De markt in de buitenlandse topcompetities ging een dag eerder dicht....
-- [Na dood van laborant en plotselinge quarantaine groeit wantrouwen over pest in Russische stad Irkoetsk](https://www.ad.nl/buitenland/na-dood-van-laborant-en-plotselinge-quarantaine-groeit-wantrouwen-over-pest-in-russische-stad-irkoetsk~af1c6873/)
-  > Het Kremlin probeert de bevolking gerust te stellen over een mogelijk pestgeval in de regio Irkoetsk, maar de Russen zien te veel aanwijzingen dat...
-- [Tegenvaller Jong Oranje: Kees Smit haakt geblesseerd af in warming-up](https://www.ad.nl/voetbal/tegenvaller-jong-oranje-kees-smit-haakt-geblesseerd-af-in-warming-up~ad14f5df/)
-  > Jong Oranje heeft plaatsing voor het EK Onder 21 niet meer in eigen hand. Vanavond móét de ploeg van Michael Reiziger in De Vijverberg in Doetinchem...
+- [Lionel Messi bedankt Argentijnen kort voor laatste interland, al tienduizenden fans in stadion](https://www.ad.nl/voetbal/lionel-messi-bedankt-argentijnen-kort-voor-laatste-interland-al-tienduizenden-fans-in-stadion~a130cf11/)
+  > Lionel Messi speelt tegen Benin (aftrap om 01.00 uur) zijn 208ste en laatste interland voor Argentinië. Het belooft een groots spektakel te gaan...
+- [Gewapende man neergeschoten bij koninklijk paleis in Stockholm](https://www.ad.nl/buitenland/gewapende-man-neergeschoten-bij-koninklijk-paleis-in-stockholm~aec6aa15/)
+  > De Zweedse politie heeft dinsdagavond een gewapende man neergeschoten bij het koninklijk paleis in Stockholm. De Zweedse omroep SVT meldt dat de man...
+- [Christa Pike bij bewustzijn en aanspreekbaar na mislukte executie](https://www.ad.nl/buitenland/christa-pike-bij-bewustzijn-en-aanspreekbaar-na-mislukte-executie~a9e31ae1/)
+  > De ter dood veroordeelde Christa Pike is bij bewustzijn en aanspreekbaar nadat haar executie vorige week was mislukt. Dat laten haar advocaten weten...
+- [PSV’er Ivan Perisic van held naar schlemiel met doelpunt en rode kaart in verliespartij tegen Spanje](https://www.ad.nl/voetbal/psver-ivan-perisic-van-held-naar-schlemiel-met-doelpunt-en-rode-kaart-in-verliespartij-tegen-spanje~ab10936e/)
+  > Geen eerherstel voor Kroatië in Split. Heel lang leken de Kroaten te kunnen hopen op een gelijkspel tegen Spanje, maar in de slotfase deed Mikel...
+- [Feestavond voor Harry Kane: aanvoerder van Engeland scoort twee keer in jubileumwedstrijd](https://www.ad.nl/voetbal/feestavond-voor-harry-kane-aanvoerder-van-engeland-scoort-twee-keer-in-jubileumwedstrijd~a8e74190/)
+  > Harry Kane heeft zijn 125ste interland voor Engeland opgeluisterd met twee doelpunten. De spits had op Wembley een belangrijk aandeel in de ruime...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Koers Asos onderuit na berichten over cyberaanval](https://fd.nl/financiele-markten/1614635/koers-asos-onderuit-na-berichten-over-cyberaanval)
-  > Klanten ontvingen een pushmelding in de app van de webshop.
-- [De nachtbrakende belegger wordt binnenkort op zijn wenken bediend](https://fd.nl/financiele-markten/1614610/de-nachtbrakende-belegger-wordt-binnenkort-op-zijn-wenken-bediend)
-  > 24/7-handel ligt binnen handbereik, nu cryptotechnologie ook grote beurzen bereikt. De New York Stock Exchange wil er op tijd bij zijn en komt, net...
-- [Nederlands RougeTx haalt ruim €51 mln op voor middel tegen chronische bloedneuzen](https://fd.nl/financiele-markten/1614633/nederlands-rougetx-haalt-ruim-51-mln-op-voor-middel-tegen-chronische-bloedneuzen)
-  > Het biotechbedrijf, een spin-off van het LUMC, haalt financiering op om zijn medicijn te testen op patiënten.
-- [ACM: Veel gebruikers hebben een te zware stroomaansluiting](https://fd.nl/samenleving/1614632/acm-veel-gebruikers-hebben-een-te-zware-stroomaansluiting)
-  > Honderdduizenden huishoudens en kleine bedrijven betalen onnodig veel, stelt toezichthouder.
-- [Nieuwe NAM-directeur vindt ontmantelen gasinstallaties eigenlijk ‘vreselijk’](https://fd.nl/bedrijfsleven/1614721/nieuwe-nam-directeur-vindt-ontmantelen-gasinstallaties-eigenlijk-vreselijk)
-  > Martijn Kleverlaan start op 1 november als topman van NAM, het olie- en gasbedrijf dat de afgelopen jaren enorm is gekrompen.
+- [Optimisme op Wall Street ondanks groeiend Amerikaans handelstekort](https://fd.nl/financiele-markten/1614775/optimisme-op-wall-street-ondanks-groeiend-amerikaans-handelstekort)
+  > AI-bedrijven noteerden plussen, de aanvoer van olie uit het Midden-Oosten groeit en de olieprijs daalde vroeg op de Amerikaanse handelsdag.
+- [Rechter lijkt Booking te steunen in twist over thuiswerken met or](https://fd.nl/bedrijfsleven/1614728/rechter-lijkt-booking-te-steunen-in-twist-over-thuiswerken-met-or)
+  > Is het redelijk om je personeel te verplichten twee dagen per week op kantoor te werken? De rechter leek geneigd op dit punt met Booking mee te gaan.
+- [Minderheidskabinet wacht flinke klus in de senaat](https://fd.nl/politiek/1614718/minderheidskabinet-wacht-flinke-klus-in-de-senaat)
+  > De oppositie in de Eerste Kamer – links en rechts – is kritisch over de financiële plannen van het kabinet. De rechtse partijen probeerden de VVD...
+- [Mislukking van kankermedicijn vereist grondige evaluatie](https://fd.nl/opinie/1614620/mislukking-van-kankermedicijn-vereist-grondige-evaluatie)
+  > Was het wel verstandig om miljoenen euro’s steun te geven aan de poging een niet-commercieel medicijn te introduceren?
+- [Amerikaanse woningkopers, bouwers en kantoorbeleggers in het nauw door hoge rente](https://fd.nl/economie/1614731/amerikaanse-woningkopers-bouwers-en-kantoorbeleggers-in-het-nauw-door-hoge-rente)
+  > Anders dan een paar jaar geleden, toen de Amerikaanse rente weer snel daalde, lijkt dat nu niet in het verschiet te zitten. Op de vastgoedmarkt...
 
 ### Meest gelezen
 
