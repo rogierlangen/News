@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-10-2026 om 16:11*
+*Laatst bijgewerkt: 07-10-2026 om 21:48*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Tweede Kamer voor alcoholmeter bij veroordeelden](https://nos.nl/l/2634039)
-  > Een meerderheid van de Tweede Kamer steunt de invoering van de alcoholmeter. Dat is een enkelband voor mensen die veroordeeld zijn wegens een...
-- [200.000 Jemenieten op de vlucht door opgelaaide gevechten](https://nos.nl/l/2634035)
-  > De VN-organisatie voor migratie en hulp aan vluchtelingen (IOM) slaat alarm over de situatie in Jemen. Sinds het weer oplaaien van de strijd tussen...
-- [Omvangrijke hypotheekfraude door criminelen, rapport ligt al maanden in la](https://nos.nl/l/2634033)
-  > De afgelopen jaren zijn in Nederland tussen de 6000 en 11.000 woningen gekocht met vervalste papieren. Door te frauderen bij de aanvraag van de...
-- [Tien gewonden bij steekpartij op school in Polen, verdachte (19) gearresteerd](https://nos.nl/l/2634029)
-  > Bij een steekpartij bij een school voor beroepsonderwijs in het noorden van Polen zijn tien gewonden gevallen. Een 19-jarige student van de school...
-- [Verdachte moord Herkenbosch nu ook verdacht van moord op eigen moeder](https://nos.nl/l/2634026)
-  > Daniel B., de Duitse man die verdacht wordt van de moord op Paul Vossen uit het Limburgse Herkenbosch, wordt nu ook verdacht van moord op zijn...
+- [Klimaatverandering oorzaak van snelle teruggang stormbandpinguïn op Brits eiland](https://nos.nl/l/2634068)
+  > Britse wetenschappers hebben vastgesteld dat de populatie stormbandpinguïns op een Brits eiland in de zuidelijke Atlantische Oceaan dramatisch is...
+- [Boegbeeld van Spaanse woningprotesten Maricarmen Abascal (87) overleden](https://nos.nl/l/2634066)
+  > Maricarmen Abascal, de 87-jarige vrouw die het gezicht en de naamgever werd van de woningprotesten in Spanje, is overleden. Dat heeft de Spaanse...
+- [Zes arrestaties voor roof van schilderijen Renoir in Zuid-Frankrijk](https://nos.nl/l/2634064)
+  > Een maand na de schilderijenroof uit het Renoir-museum in Zuid-Frankrijk heeft de Franse politie zes verdachten aangehouden. Onder hen zijn de twee...
+- [Pro-Palestijns protest met Hamas-steunbetuigingen in Amsterdam ontbonden](https://nos.nl/l/2634063)
+  > Een pro-Palestijns protest op de Dam in Amsterdam is ontbonden door burgemeester Halsema. Bij de betoging werden leuzen geroepen als 'long live the...
+- [Tijdelijke bescherming of asiel? Oekraïners weten niet goed waar ze aan toe zijn](https://nos.nl/l/2634061)
+  > Gemengde gevoelens bij Oekraïners nadat bekend werd dat hun asielaanvragen bekeken moeten worden. "Aan de ene kant klinkt er lichte hoop dat er een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De ‘alcoholenkelband’ komt er nu écht voor daders van geweld na drankgebruik of rijden onder invloed](https://www.ad.nl/politiek/de-alcoholenkelband-komt-er-nu-echt-voor-daders-van-geweld-na-drankgebruik-of-rijden-onder-invloed~add92c41/)
-  > Een speciale enkelband gaat controleren of mensen die van de rechter een alcoholverbod hebben gekregen zich daar ook aan houden. Deze alcoholmeter...
-- [Denk-Kamerlid Ergin doet aangifte tegen Johan Derksen vanwege uitspraak over ‘strot doorsnijden’](https://www.ad.nl/show/denk-kamerlid-ergin-doet-aangifte-tegen-johan-derksen-vanwege-uitspraak-over-strot-doorsnijden~a9273d32/)
+- [LIVE | Pep Guardiola steekt zijn oude club hart onder de riem en woont topper bij](https://www.ad.nl/voetbal/live-pep-guardiola-steekt-zijn-oude-club-hart-onder-de-riem-en-woont-topper-bij~a1cbd85e/)
+  > Manchester City is door de Premier League schuldig bevonden aan 115 aanklachten wegens ernstige overtredingen van financiële regels. De Engelse...
+- [Ronde van Lombardije | Op zoek naar een opvolger van Tadej Pogacar en het afscheid van Nederlands wielericoon](https://www.ad.nl/wielrennen/ronde-van-lombardije-op-zoek-naar-een-opvolger-van-tadej-pogacar-en-het-afscheid-van-nederlands-wielericoon~a64ab956/)
+  > Het wielerseizoen sluit zaterdag traditioneel af met de Ronde van Lombardije. Voor de 120ste editie koerst het peloton van Bergamo naar Como, dat na...
+- [Minister Rubio in toespraak: Westerse beschaving staat op keerpunt](https://www.ad.nl/buitenland/minister-rubio-in-toespraak-westerse-beschaving-staat-op-keerpunt~ae67dd9c/)
+  > De Amerikaanse minister van Buitenlandse Zaken Marco Rubio heeft Europa tijdens een toespraak in Athene opgeroepen om uit zijn ‘lange sluimerstand’...
+- [Johan Derksen noemt Denk-aangifte vanwege uitspraak over ‘strot doorsnijden’ kinderachtig](https://www.ad.nl/show/johan-derksen-noemt-denk-aangifte-vanwege-uitspraak-over-strot-doorsnijden-kinderachtig~a9273d32/)
   > Kamerlid Doğukan Ergin (Denk) doet aangifte tegen Johan Derksen om diens uitspraken dinsdagavond in het programma Vandaag Inside. In een item over...
-- [Mossou schrijft: ‘Bij het afscheid van Lionel Messi zag ik de slechtst getimede reclame ooit’](https://www.ad.nl/sport/mossou-schrijft-bij-het-afscheid-van-lionel-messi-zag-ik-de-slechtst-getimede-reclame-ooit~af592adb/)
-  > Toen Lionel na zijn afscheidswedstrijd naar de lucht staarde, volgde een bijzonder ongepast tafereeltje. AD-columnist en -journalist Sjoerd Mossou...
-- [Prachtig moment voor Primoz Roglic: Sloveen (36) wordt in eigen land Europees kampioen tijdrijden](https://www.ad.nl/wielrennen/prachtig-moment-voor-primoz-roglic-sloveen-36-wordt-in-eigen-land-europees-kampioen-tijdrijden~a0d596fc/)
-  > Primoz Roglic heeft in de late herfst van zijn carrière een prachtige overwinning geboekt. De 36-jarige Sloveen kroonde zich voor eigen publiek tot...
-- [Nadat iemand een filmpje maakt, is de conclusie dat er een poema rondloopt bij München: 'Pas op je kinderen'](https://www.ad.nl/buitenland/nadat-iemand-een-filmpje-maakt-is-de-conclusie-dat-er-een-poema-rondloopt-bij-munchen-pas-op-je-kinderen~a7b0bcf8/)
-  > In Duitsland is een grote zoekactie opgezet na de mogelijke waarneming van een poema. De politie zet in de buurt van München patrouillewagens, een...
+- [Nederland heeft tijdrittalent, maar hoe word je een wereldtopper in die schaarse discipline?](https://www.ad.nl/wielrennen/nederland-heeft-tijdrittalent-maar-hoe-word-je-een-wereldtopper-in-die-schaarse-discipline~a1e74c2c/)
+  > De afgelopen tijdritkampioenschappen tonen enige potentie bij Nederlands wielertalent. Maar wat komt er bij kijken als je een wereldtopper wil worden...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Installatie (hybride) warmtepomp vanaf 2029 verplicht bij vervanging cv-ketel](https://fd.nl/politiek/1614668/installatie-hybride-warmtepomp-vanaf-2029-verplicht-bij-vervanging-cv-ketel)
-  > Minister Boekholt-O’Sullivan van Volkshuisvesting en Ruimtelijke Ordening schrijft over de nieuwe norm in een Kamerbrief.
-- [Minister wil opheldering van Shell en ExxonMobil over miljardendividend NAM](https://fd.nl/bedrijfsleven/1614797/minister-wil-opheldering-van-shell-en-exxonmobil-over-miljardendividend-nam)
-  > Minister Heerma (BZK) heeft zorgen of de NAM op de lange termijn aan de miljarden aan aardbevingskosten in Groningen kan voldoen.
-- [Presidentskandidaat Le Pen profileert zichzelf als bewaker van de Franse portemonnee](https://fd.nl/politiek/1614664/presidentskandidaat-le-pen-profileert-zichzelf-als-bewaker-van-de-franse-portemonnee)
-  > De Franse oppositieleider presenteert zich met haar alternatieve begroting als een oplossingsgerichte president in spe. Maar economen vinden haar...
-- [Bosnisch-Servische nationalist Dodik bewondert zowel Poetin als Trump](https://fd.nl/politiek/1614641/bosnisch-servische-nationalist-dodik-bewondert-zowel-poetin-als-trump)
-  > De Bosnisch-Servische politicus Milorad Dodik werd gesteund door het Westen, maar werd steeds pro-Russischer. Hij vormt volgens critici een risico...
-- [Wankel evenwicht op de markten: ‘We zitten in een bizarre omgeving’](https://fd.nl/financiele-markten/1614663/wankel-evenwicht-op-de-markten-we-zitten-in-een-bizarre-omgeving)
-  > Aandelenmarkten tikken records aan op AI-optimisme, terwijl de obligatiemarkt wijst op economische zorgen. Een van de markten zal uiteindelijk...
+- [Wall Street sluit in mineur](https://fd.nl/financiele-markten/1614878/wall-street-sluit-in-mineur)
+  > De rendementen op staatsobligaties lopen weer op, net als de olieprijs. De Dow Jones-index eindigde de handelsdag 0,7% lager, de S&P 500 moest 0,2%...
+- [‘Criminelen pleegden bij zesduizend tot elfduizend huisaankopen fraude’](https://fd.nl/politiek/1614877/criminelen-pleegden-bij-zesduizend-tot-elfduizend-huisaankopen-fraude)
+  > In de aangekochte woningen werden drugs opgeslagen, doken criminelen onder en werden arbeidsmigranten gehuisvest.
+- [Geen onderzoek naar beleid chemiebedrijf OCI rond overname](https://fd.nl/bedrijfsleven/1614802/geen-onderzoek-naar-beleid-chemiebedrijf-oci-rond-overname)
+  > In het huidige voorstel is genoeg rekening gehouden met de minderheidsaandeelhouders, oordeelt de Ondernemingskamer.
+- [Klacht Damen over aanbesteding wekt woede ceo Thyssenkrupp Marine Systems](https://fd.nl/bedrijfsleven/1614800/klacht-damen-over-aanbesteding-wekt-woede-ceo-thyssenkrupp-marine-systems)
+  > Ceo Oliver Burkhard van TKMS haalde op socialemediaplatform X hard uit naar Damen: 'Ze hebben alles zelf verpest.’
+- [Thuiswerken is uit de bocht gevlogen](https://fd.nl/opinie/1614653/thuiswerken-is-uit-de-bocht-gevlogen)
+  > De kantonrechter maakte deze week terecht korte metten met het argument dat een kantoorwerkverplichting de autonomie van de medewerkers van...
 
 ### Meest gelezen
 
