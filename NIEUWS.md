@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-10-2026 om 08:20*
+*Laatst bijgewerkt: 07-10-2026 om 16:11*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Flink meer kankerdiagnoses verwacht, 'maar gezonde leefstijl kan helpen'](https://nos.nl/l/2633978)
-  > Het aantal mensen dat in Nederland kanker krijgt blijft de komende twintig jaar toenemen. Volgens nieuwe berekeningen van het Integraal Kankercentrum...
-- [Vleermuizen eindelijk weg bij Drentse basisschool, sloop kan beginnen](https://nos.nl/l/2633973)
-  > De vleermuizen die al maanden een oude basisschool in het Drentse dorp Eext teisteren, zijn eindelijk weg. De school gaf minstens 2 ton uit aan...
-- [Rotterdam opent permanente winteropvang, niet alleen bij vrieskou](https://nos.nl/l/2633972)
-  > Rotterdam gaat deze hele winter opvang bieden aan dak- en thuislozen. De gemeente noemt het "een grote stap" in de aanpak van dakloosheid. Normaal is...
-- [ABN Amro weer een beetje minder in handen van Nederlandse Staat](https://nos.nl/l/2633971)
-  > De Nederlandse Staat bouwt het belang in ABN Amro verder af. Op dit moment heeft de Staat nog 20,7 procent van de bank in handen, maar de komende...
-- [Laatste actieve NSC'er vertrekt, wil niet samenwerken met Mona Keijzer](https://nos.nl/l/2633970)
-  > Europarlementariër Dirk Gotink zegt zijn lidmaatschap van Nieuw Sociaal Contract (NSC) op. Daarmee verliest de door Pieter Omtzigt opgerichte partij...
+- [Tweede Kamer voor alcoholmeter bij veroordeelden](https://nos.nl/l/2634039)
+  > Een meerderheid van de Tweede Kamer steunt de invoering van de alcoholmeter. Dat is een enkelband voor mensen die veroordeeld zijn wegens een...
+- [200.000 Jemenieten op de vlucht door opgelaaide gevechten](https://nos.nl/l/2634035)
+  > De VN-organisatie voor migratie en hulp aan vluchtelingen (IOM) slaat alarm over de situatie in Jemen. Sinds het weer oplaaien van de strijd tussen...
+- [Omvangrijke hypotheekfraude door criminelen, rapport ligt al maanden in la](https://nos.nl/l/2634033)
+  > De afgelopen jaren zijn in Nederland tussen de 6000 en 11.000 woningen gekocht met vervalste papieren. Door te frauderen bij de aanvraag van de...
+- [Tien gewonden bij steekpartij op school in Polen, verdachte (19) gearresteerd](https://nos.nl/l/2634029)
+  > Bij een steekpartij bij een school voor beroepsonderwijs in het noorden van Polen zijn tien gewonden gevallen. Een 19-jarige student van de school...
+- [Verdachte moord Herkenbosch nu ook verdacht van moord op eigen moeder](https://nos.nl/l/2634026)
+  > Daniel B., de Duitse man die verdacht wordt van de moord op Paul Vossen uit het Limburgse Herkenbosch, wordt nu ook verdacht van moord op zijn...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Rente op studieschuld stijgt weer flink, hoogste percentage in jaren](https://www.ad.nl/binnenland/rente-op-studieschuld-stijgt-weer-flink-hoogste-percentage-in-jaren~a873626f/)
-  > De rentepercentages voor studiefinanciering en studieschulden stijgen in 2027 opnieuw. Waar studenten en oud-studenten die in 35 jaar terugbetalen...
-- [Allesreiniger is niet voor alles bedoeld: pas op met deze materialen](https://www.ad.nl/wonen/allesreiniger-is-niet-voor-alles-bedoeld-pas-op-met-deze-materialen~ab972eed/)
-  > Allesreiniger klinkt als het ultieme schoonmaakmiddel: één fles voor zo ongeveer het hele huis. Maar in de praktijk kun je er lang niet alles veilig...
-- [Opinie: ‘Nieuwe vredesbeweging in Nederland legt de rekening bij Oekraïners’](https://www.ad.nl/opinie/opinie-nieuwe-vredesbeweging-in-nederland-legt-de-rekening-bij-oekrainers~adc95146/)
-  > Onlangs werd gedemonstreerd tegen de uitgaven aan defensie en vóór vredesbesprekingen met Rusland. Maar de vredesbeweging maakt een fout, stelt Thijs...
-- [Meest reislustige doelman keert terug op Nederlandse velden, Curaçaose international Roemeratoe vindt nieuwe club in Roemenië](https://www.ad.nl/voetbal/meest-reislustige-doelman-keert-terug-op-nederlandse-velden-curacaose-international-roemeratoe-vindt-nieuwe-club-in-roemenie~abfbf81f/)
-  > De transfermarkt in Nederland is sinds woensdagavond 2 september gesloten. De markt in de buitenlandse topcompetities ging een dag eerder dicht....
-- [Animo voor Paarse Vrijdag vanuit basisscholen neemt toe, ondanks dalende homo-acceptatie](https://www.ad.nl/binnenland/animo-voor-paarse-vrijdag-vanuit-basisscholen-neemt-toe-ondanks-dalende-homo-acceptatie~a2f3fb4a/)
-  > De belangstelling voor Paarse Vrijdag vanuit basisscholen is onverminderd hoog, ziet het COC. Steeds meer scholen doen mee aan de actiedag. In...
+- [De ‘alcoholenkelband’ komt er nu écht voor daders van geweld na drankgebruik of rijden onder invloed](https://www.ad.nl/politiek/de-alcoholenkelband-komt-er-nu-echt-voor-daders-van-geweld-na-drankgebruik-of-rijden-onder-invloed~add92c41/)
+  > Een speciale enkelband gaat controleren of mensen die van de rechter een alcoholverbod hebben gekregen zich daar ook aan houden. Deze alcoholmeter...
+- [Denk-Kamerlid Ergin doet aangifte tegen Johan Derksen vanwege uitspraak over ‘strot doorsnijden’](https://www.ad.nl/show/denk-kamerlid-ergin-doet-aangifte-tegen-johan-derksen-vanwege-uitspraak-over-strot-doorsnijden~a9273d32/)
+  > Kamerlid Doğukan Ergin (Denk) doet aangifte tegen Johan Derksen om diens uitspraken dinsdagavond in het programma Vandaag Inside. In een item over...
+- [Mossou schrijft: ‘Bij het afscheid van Lionel Messi zag ik de slechtst getimede reclame ooit’](https://www.ad.nl/sport/mossou-schrijft-bij-het-afscheid-van-lionel-messi-zag-ik-de-slechtst-getimede-reclame-ooit~af592adb/)
+  > Toen Lionel na zijn afscheidswedstrijd naar de lucht staarde, volgde een bijzonder ongepast tafereeltje. AD-columnist en -journalist Sjoerd Mossou...
+- [Prachtig moment voor Primoz Roglic: Sloveen (36) wordt in eigen land Europees kampioen tijdrijden](https://www.ad.nl/wielrennen/prachtig-moment-voor-primoz-roglic-sloveen-36-wordt-in-eigen-land-europees-kampioen-tijdrijden~a0d596fc/)
+  > Primoz Roglic heeft in de late herfst van zijn carrière een prachtige overwinning geboekt. De 36-jarige Sloveen kroonde zich voor eigen publiek tot...
+- [Nadat iemand een filmpje maakt, is de conclusie dat er een poema rondloopt bij München: 'Pas op je kinderen'](https://www.ad.nl/buitenland/nadat-iemand-een-filmpje-maakt-is-de-conclusie-dat-er-een-poema-rondloopt-bij-munchen-pas-op-je-kinderen~a7b0bcf8/)
+  > In Duitsland is een grote zoekactie opgezet na de mogelijke waarneming van een poema. De politie zet in de buurt van München patrouillewagens, een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Amsterdam-ombudsman Munish Ramlal: ‘Als je veel gekte ziet, laat je je niet snel gek maken’](https://fd.nl/samenleving/1614630/amsterdam-ombudsman-munish-ramlal-als-je-veel-gekte-ziet-laat-je-je-niet-snel-gek-maken)
-  > Sommige leraren dachten dat het nooit wat met hem kon worden, vertelt Munish Ramlal, Ombudsman Metropool Amsterdam. ‘Ik heb tegenslagen omgezet in...
-- [Maak gebieden het vertrekpunt voor stikstofbeleid](https://fd.nl/opinie/1614512/maak-gebieden-het-vertrekpunt-voor-stikstofbeleid)
-  > Nederland heeft succesvolle ervaringen met Rijkskaders afstemmen op gebiedsplannen. Laat die ervaringen een voorbeeld zijn voor het huidige...
-- [‘Vermogensbeheerders HSBC worden in grote mate vervangen door AI’](https://fd.nl/bedrijfsleven/1614644/vermogensbeheerders-hsbc-worden-in-grote-mate-vervangen-door-ai)
-  > Volgens bronnen zou ongeveer de helft van de managers en bijna 70% van de financieel adviseurs het veld moeten ruimen, schrijft de Financial Times.
-- [Staat halveert belang in ABN Amro naar 10,5%](https://fd.nl/financiele-markten/1614643/staat-bouwt-belang-abn-amro-verder-af)
-  > De aankondiging komt op een moment dat de Europese bankensector aan de vooravond van een consolidatie lijkt te staan. De aandelenkoers van de bank...
-- [CBS: arbeidsproductiviteit steeg in 2025 met 2,5%](https://fd.nl/bedrijfsleven/1614777/cbs-arbeidsproductiviteit-steeg-in-2025-met-2-5)
-  > Deze stijging komt na twee opeenvolgende jaren van arbeidsproductiviteitsdaling.
+- [Installatie (hybride) warmtepomp vanaf 2029 verplicht bij vervanging cv-ketel](https://fd.nl/politiek/1614668/installatie-hybride-warmtepomp-vanaf-2029-verplicht-bij-vervanging-cv-ketel)
+  > Minister Boekholt-O’Sullivan van Volkshuisvesting en Ruimtelijke Ordening schrijft over de nieuwe norm in een Kamerbrief.
+- [Minister wil opheldering van Shell en ExxonMobil over miljardendividend NAM](https://fd.nl/bedrijfsleven/1614797/minister-wil-opheldering-van-shell-en-exxonmobil-over-miljardendividend-nam)
+  > Minister Heerma (BZK) heeft zorgen of de NAM op de lange termijn aan de miljarden aan aardbevingskosten in Groningen kan voldoen.
+- [Presidentskandidaat Le Pen profileert zichzelf als bewaker van de Franse portemonnee](https://fd.nl/politiek/1614664/presidentskandidaat-le-pen-profileert-zichzelf-als-bewaker-van-de-franse-portemonnee)
+  > De Franse oppositieleider presenteert zich met haar alternatieve begroting als een oplossingsgerichte president in spe. Maar economen vinden haar...
+- [Bosnisch-Servische nationalist Dodik bewondert zowel Poetin als Trump](https://fd.nl/politiek/1614641/bosnisch-servische-nationalist-dodik-bewondert-zowel-poetin-als-trump)
+  > De Bosnisch-Servische politicus Milorad Dodik werd gesteund door het Westen, maar werd steeds pro-Russischer. Hij vormt volgens critici een risico...
+- [Wankel evenwicht op de markten: ‘We zitten in een bizarre omgeving’](https://fd.nl/financiele-markten/1614663/wankel-evenwicht-op-de-markten-we-zitten-in-een-bizarre-omgeving)
+  > Aandelenmarkten tikken records aan op AI-optimisme, terwijl de obligatiemarkt wijst op economische zorgen. Een van de markten zal uiteindelijk...
 
 ### Meest gelezen
 
