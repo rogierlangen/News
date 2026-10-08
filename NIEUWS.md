@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-10-2026 om 16:12*
+*Laatst bijgewerkt: 08-10-2026 om 21:52*
 
 ---
 
@@ -8,16 +8,18 @@
 
 ### Laatste nieuws
 
-- [Provincies beëindigen contract met busvervoerder om financiële problemen](https://nos.nl/l/2634172)
-  > De provincies Flevoland, Gelderland en Overijssel gaan het ov-contract met busvervoerder EBS vervoegd ontbinden. Het bedrijf zou tot eind 2035 het...
-- [Klimaattop in Fiji en Tuvalu grotendeels mislukt, landen blijven massaal thuis](https://nos.nl/l/2634168)
-  > De voorbereidende klimaattop in Fiji en Tuvalu, mede georganiseerd door Australië, is grotendeels uitgelopen op een mislukking. Vanaf maandag waren...
-- [Britse marineman verdacht van poging tot spionage voor Russen](https://nos.nl/l/2634163)
-  > In het Verenigd Koninkrijk is dinsdag een lid van de marine opgepakt, omdat hij geheime informatie aan de Russen zou hebben willen doorgeven. Hij is...
-- [KLM schrapt vluchten, vloot heeft onderhoud nodig](https://nos.nl/l/2634162)
-  > Vliegtuigmaatschappij KLM annuleert voor komende maanden verschillende vluchten. Veel toestellen kunnen tijdelijk niet worden gebruikt, omdat deze...
-- [Waterstand Rijn niet meer te peilen: bord uitgezet](https://nos.nl/l/2634159)
-  > Niet ver van het punt waar de Rijn Nederland binnenstroomt is normaal gesproken gemakkelijk te zien hoe hoog het water in de rivier staat. Bij het...
+- [Duizenden aanhangers opgepakt volgens Indiase Kakkerlakken-beweging](https://nos.nl/l/2634207)
+  > De Indiase autoriteiten hebben duizenden aanhangers van de Kakkerlakken-beweging opgepakt, zegt de beweging op sociale media.
+        Het is...
+- [Goed bewaard fossiel vertelt hoe zoogdieren anders gingen eten dan de dino's](https://nos.nl/l/2634205)
+  > Een goed bewaard fossiel van 165 miljoen jaar oud toont wetenschappers hoe zoogdieren ten tijde van de dino's een nieuwe manier van slikken...
+- [Vier astronauten na 237 dagen terug op aarde, record voor Europese vrouw](https://nos.nl/l/2634204)
+  > Vier astronauten zijn na acht maanden teruggekeerd naar aarde vanuit het internationale ruimtestation ISS. SpaceX bracht de bemanning met een...
+- [Gouden Televizier-Ring voor De Bondgenoten, presentator Jan Versteegh wint ook](https://nos.nl/l/2634199)
+  > De Gouden Televizier-Ring 2026 is gewonnen door de SBS6-reality-spelserie De Bondgenoten.
+        De keuze van de Nederlandse kijker werd...
+- [Doorzoeking woningen ex-prins Andrew onwettig, maar onderzoek gaat door](https://nos.nl/l/2634198)
+  > Een klein succesje voor de Britse ex-prins Andrew. Een rechtbank in Londen is het met hem eens dat de politie in februari belangrijke fouten heeft...
 
 ### Meest gelezen
 
@@ -27,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Russische cyberbende Clop publiceert gestolen gegevens van Philips en Shell online](https://www.ad.nl/tech/russische-cyberbende-clop-publiceert-gestolen-gegevens-van-philips-en-shell-online~aa066bd0/)
-  > De Russische hackersgroep Clop heeft gestolen gegevens van Philips en Shell op het dark web geplaatst. Het gaat bij Philips om 13,5 gigabyte (GB) aan...
-- [Marokko en Senegal krijgen van sporttribunaal snel duidelijkheid over uitkomst van tumultueuze finale](https://www.ad.nl/voetbal/marokko-en-senegal-krijgen-van-sporttribunaal-snel-duidelijkheid-over-uitkomst-van-tumultueuze-finale~aae2e9c9/)
-  > Het Internationaal Sporttribunaal (CAS) verwacht binnen enkele dagen met een uitspraak te komen in de zaak rond de Afrika Cup-finale tussen Senegal...
-- [Hoe de doodstraf in de VS ondanks hoge kosten en eindeloze rechtszaken blijft bestaan](https://www.ad.nl/buitenland/hoe-de-doodstraf-in-de-vs-ondanks-hoge-kosten-en-eindeloze-rechtszaken-blijft-bestaan~a2744363/)
-  > Door de mislukte executie van Christa Pike en de terugkeer van het vuurpeloton is de Amerikaanse doodstraf volop in het nieuws. Terwijl de meeste...
-- [Dorp geschokt door tientallen hakenkruizen op 7 oktober: ‘Het is verschrik­ke­lijk onsmake­lijk’](https://www.ad.nl/binnenland/dorp-geschokt-door-tientallen-hakenkruizen-op-7-oktober-het-is-verschrikkelijk-onsmakelijk~a10c4d45/)
-  > In Nieuw-Lekkerland zijn in de nacht van dinsdag op woensdag tientallen hakenkruizen op straat geklad in de vorm en kleur van de Israëlische vlag....
-- [André van Duin leent zijn stem aan avond met Nederlandse liedjes in een ander jasje](https://www.ad.nl/show/andre-van-duin-leent-zijn-stem-aan-avond-met-nederlandse-liedjes-in-een-ander-jasje~a617b4ee/)
-  > André van Duin wordt de verteller van Dutch Classics, een nieuwe voorstelling van Nederlandse liedjes die op een andere wijze worden uitgevoerd. In...
+- [LIVE Formule 1 | Lewis Hamilton mist racen in de regen: ‘Maar jonge coureurs zijn steeds voorzichtiger’](https://www.ad.nl/formule-1/live-formule-1-lewis-hamilton-mist-racen-in-de-regen-maar-jonge-coureurs-zijn-steeds-voorzichtiger~afd17814/)
+  > De Formule 1 dendert door in deze periode. Volg alle ontwikkelingen hier.
+- [‘Gewoon in mijn joggingpakkie naar de supermarkt? Dat zit er niet meer in’: Femke Kok is nu echt BN’er](https://www.ad.nl/schaatsen/gewoon-in-mijn-joggingpakkie-naar-de-supermarkt-dat-zit-er-niet-meer-in-femke-kok-is-nu-echt-bner~ab475ac4/)
+  > Haar leven veranderde, na een winter waarin ze alles won wat ze wilde. Als olympisch kampioen gaat Femke Kok nu een jaartje minder streng zijn voor...
+- [Forse celstraffen geëist tegen medisch team Maradona, lijfarts beschuldigd van ‘doodslag met opzet’](https://www.ad.nl/voetbal/forse-celstraffen-geeist-tegen-medisch-team-maradona-lijfarts-beschuldigd-van-doodslag-met-opzet~a7fcc948/)
+  > Het Openbaar Ministerie heeft straffen tot twaalf jaar cel geëist tegen leden van het medisch team van de Argentijnse voetballegende Diego Maradona....
+- [Meisje (6) in Berlijn overleeft val van 10 meter dankzij heldhaftige buurman die haar in zijn armen opvangt](https://www.ad.nl/buitenland/meisje-6-in-berlijn-overleeft-val-van-10-meter-dankzij-heldhaftige-buurman-die-haar-in-zijn-armen-opvangt~a50ea699/)
+  > Een 6-jarig meisje heeft in Berlijn als bij een wonder een val uit een raam op de derde verdieping overleefd. Het kind stortte zo’n 10 meter naar...
+- [Donkere rook bij grote brand in Olympisch Stadion, brandhaard moeilijk te bereiken](https://www.ad.nl/amsterdam/donkere-rook-bij-grote-brand-in-olympisch-stadion-brandhaard-moeilijk-te-bereiken~addd1c57/)
+  > In de kruipruimte van het Olympisch Stadion in Amsterdam is donderdagavond een grote brand uitgebroken. Wat er precies in brand staat, is nog...
 
 ### Meest gelezen
 
@@ -46,16 +48,16 @@
 
 ### Laatste nieuws
 
-- [Spaanse verkiezingscampagne verhardt na dood vrouw die uit huis was gezet](https://fd.nl/politiek/1615090/spaanse-verkiezingscampagne-verhardt-na-dood-vrouw-die-uit-huis-was-gezet)
-  > Het overlijden van de 87-jarige Maricarmen Abascal legt extra druk op de wooncrisis in Spanje. Zowel linkse als rechtse partijen komen in beweging.
-- [Aandeelhouders Aegon akkoord met verhuizing naar de VS](https://fd.nl/financiele-markten/1614997/aandeelhouders-aegon-akkoord-met-verhuizing-naar-de-vs)
-  > De verzekeraar kreeg ook groen licht voor een nieuw beloningssysteem, dat in lijn ligt met Amerikaanse concurrenten.
-- [Bij één op de zes grotere familiebedrijven kunnen medewerkers mede-eigenaar worden](https://fd.nl/bedrijfsleven/1615089/bij-een-op-de-zes-grotere-familiebedrijven-kunnen-medewerkers-mede-eigenaar-worden)
-  > Dat blijkt uit een onderzoek van Nyenrode, RSM en Van Lanschot Kempen. Veel van de deelnemers aan het onderzoek zijn positief over de...
-- [Overname Warner Bros. door Paramount heeft ook gevolgen voor de Nederlandse markt](https://fd.nl/bedrijfsleven/1614991/overname-warner-bros-door-paramount-heeft-ook-gevolgen-voor-de-nederlandse-markt)
-  > Skydance belooft investeringen in Amerikaanse filmproducties, maar moet tegelijkertijd bezuinigen. Trekken Europese filmmakers en bioscopen aan het...
-- [Gassysteem Europa is klaar voor de winter, waakzaamheid geboden](https://fd.nl/economie/1614995/gassysteem-europa-is-klaar-voor-de-winter-waakzaamheid-geboden)
-  > In een analyse schrijft gastransportkoepel Entsog dat de voorraden historisch laag zijn, en dat verder bijvullen van de opslagen raadzaam is.
+- [Amerikaanse beurzen schrikken van bericht over omzet OpenAI](https://fd.nl/financiele-markten/1615017/wall-street-schrikt-van-bericht-over-omzet-openai)
+  > De koersen van bedrijven die profiteren van de AI-hausse gingen onderuit na nieuws van de Financial Times. Ook over de olieprijs waren zorgen.
+- [Maduro in de VS aangeklaagd voor marteling van Amerikaanse burgers](https://fd.nl/politiek/1615003/maduro-in-de-vs-aangeklaagd-voor-marteling-van-amerikaanse-burgers)
+  > De voormalige Venezolaanse president werd al vervolgd voor internationale drugshandel.
+- [‘Omzet OpenAI dit jaar $20 mrd lager dan beleggers verwachtten’](https://fd.nl/bedrijfsleven/1615002/omzet-openai-dit-jaar-20-mrd-lager-dan-beleggers-verwachtten)
+  > Verschillende media schreven eerder over een verwachte omzet van $70 mrd. Maar volgens de Financial Times klopt dat bedrag niet.
+- [Onzalige onteigening](https://fd.nl/opinie/1615082/onzalige-onteigening)
+  > Onteigening van commerciële verhuurders werkt averechts, want welke ontwikkelaar zal nog willen bouwen?
+- [KLM moet vanwege staat vloot vluchten schrappen](https://fd.nl/bedrijfsleven/1615094/klm-moet-vanwege-staat-vloot-vluchten-schrappen)
+  > Veel vliegtuigen staan voor onderhoud of schadeherstel aan de grond. De maatregel duurt van 26 oktober tot begin maart.
 
 ### Meest gelezen
 
