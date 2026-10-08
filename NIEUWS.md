@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 07-10-2026 om 21:48*
+*Laatst bijgewerkt: 08-10-2026 om 01:37*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Margaret Hamilton (90) softwarepionier eerste maanlanding overleden](https://nos.nl/l/2634077)
+  > Margaret Hamilton, die de software ontwikkelde voor de eerste maanlanding van de Apollo 11 in 1969, is overleden. Door haar baanbrekende werk op het...
+- [Europese Rekenkamer waarschuwt voor snel stijgende EU schuldenlast](https://nos.nl/l/2634076)
+  > De Europese Rekenkamer (ERK) is bezorgd over de groeiende schuldenlast van de Europese Unie. Die schuld is de afgelopen jaren opgelopen naar 740...
+- [WNF: populaties wilde dieren krompen sinds 1970 flink, 'maar natuurherstel mogelijk'](https://nos.nl/l/2634075)
+  > Populaties van vogels, zoogdieren, reptielen en andere gewervelde dieren zijn sinds 1970 gemiddeld met bijna driekwart afgenomen, bevestigt een...
 - [Klimaatverandering oorzaak van snelle teruggang stormbandpinguïn op Brits eiland](https://nos.nl/l/2634068)
   > Britse wetenschappers hebben vastgesteld dat de populatie stormbandpinguïns op een Brits eiland in de zuidelijke Atlantische Oceaan dramatisch is...
 - [Boegbeeld van Spaanse woningprotesten Maricarmen Abascal (87) overleden](https://nos.nl/l/2634066)
   > Maricarmen Abascal, de 87-jarige vrouw die het gezicht en de naamgever werd van de woningprotesten in Spanje, is overleden. Dat heeft de Spaanse...
-- [Zes arrestaties voor roof van schilderijen Renoir in Zuid-Frankrijk](https://nos.nl/l/2634064)
-  > Een maand na de schilderijenroof uit het Renoir-museum in Zuid-Frankrijk heeft de Franse politie zes verdachten aangehouden. Onder hen zijn de twee...
-- [Pro-Palestijns protest met Hamas-steunbetuigingen in Amsterdam ontbonden](https://nos.nl/l/2634063)
-  > Een pro-Palestijns protest op de Dam in Amsterdam is ontbonden door burgemeester Halsema. Bij de betoging werden leuzen geroepen als 'long live the...
-- [Tijdelijke bescherming of asiel? Oekraïners weten niet goed waar ze aan toe zijn](https://nos.nl/l/2634061)
-  > Gemengde gevoelens bij Oekraïners nadat bekend werd dat hun asielaanvragen bekeken moeten worden. "Aan de ene kant klinkt er lichte hoop dat er een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Bemanning door de VS gebombardeerde schepen vrijgesproken in Ecuador](https://www.ad.nl/buitenland/bemanning-door-de-vs-gebombardeerde-schepen-vrijgesproken-in-ecuador~ab421632/)
+  > Een Ecuadoraanse rechtbank heeft 32 zeelieden vrijgesproken van deelname aan een criminele organisatie, omdat er geen bewijs is gevonden voor banden...
+- [Live VS | Democratische Partij klaagt Trump aan om met belastinggeld gemaakte reclames voor de president](https://www.ad.nl/buitenland/live-vs-democratische-partij-klaagt-trump-aan-om-met-belastinggeld-gemaakte-reclames-voor-de-president~ae67dd9c/)
+  > Het hoofdbestuur van de Democratische Partij in de Verenigde Staten heeft een rechtszaak aangespannen tegen de regering-Trump. De partij beschuldigt...
+- [Kwaliteit natuur in slechte staat, toch blijft WWF hoopvol: ‘Ruim 450 otters in Nederland’](https://www.ad.nl/nieuws/kwaliteit-natuur-in-slechte-staat-toch-blijft-wwf-hoopvol-ruim-450-otters-in-nederland~a4d6e3fe/)
+  > Het gaat slecht met de biodiversiteit op aarde. Mede door het opwarmend klimaat hebben veel diersoorten moeite met overleven. Dat stelt het Wereld...
+- [AD Voetbalpodcast | ‘De timing van Ronaldo’s statement vond ik zo flauw’](https://www.ad.nl/voetbal/ad-voetbalpodcast-de-timing-van-ronaldos-statement-vond-ik-zo-flauw~a42af5cd9/)
+  > Krijgt Infantino dan toch concurrentie bij de voorzittersverkiezing van de FIFA? Er heeft zich een Europese kandidaat gemeld. In de AD Voetbalpodcast...
 - [LIVE | Pep Guardiola steekt zijn oude club hart onder de riem en woont topper bij](https://www.ad.nl/voetbal/live-pep-guardiola-steekt-zijn-oude-club-hart-onder-de-riem-en-woont-topper-bij~a1cbd85e/)
   > Manchester City is door de Premier League schuldig bevonden aan 115 aanklachten wegens ernstige overtredingen van financiële regels. De Engelse...
-- [Ronde van Lombardije | Op zoek naar een opvolger van Tadej Pogacar en het afscheid van Nederlands wielericoon](https://www.ad.nl/wielrennen/ronde-van-lombardije-op-zoek-naar-een-opvolger-van-tadej-pogacar-en-het-afscheid-van-nederlands-wielericoon~a64ab956/)
-  > Het wielerseizoen sluit zaterdag traditioneel af met de Ronde van Lombardije. Voor de 120ste editie koerst het peloton van Bergamo naar Como, dat na...
-- [Minister Rubio in toespraak: Westerse beschaving staat op keerpunt](https://www.ad.nl/buitenland/minister-rubio-in-toespraak-westerse-beschaving-staat-op-keerpunt~ae67dd9c/)
-  > De Amerikaanse minister van Buitenlandse Zaken Marco Rubio heeft Europa tijdens een toespraak in Athene opgeroepen om uit zijn ‘lange sluimerstand’...
-- [Johan Derksen noemt Denk-aangifte vanwege uitspraak over ‘strot doorsnijden’ kinderachtig](https://www.ad.nl/show/johan-derksen-noemt-denk-aangifte-vanwege-uitspraak-over-strot-doorsnijden-kinderachtig~a9273d32/)
-  > Kamerlid Doğukan Ergin (Denk) doet aangifte tegen Johan Derksen om diens uitspraken dinsdagavond in het programma Vandaag Inside. In een item over...
-- [Nederland heeft tijdrittalent, maar hoe word je een wereldtopper in die schaarse discipline?](https://www.ad.nl/wielrennen/nederland-heeft-tijdrittalent-maar-hoe-word-je-een-wereldtopper-in-die-schaarse-discipline~a1e74c2c/)
-  > De afgelopen tijdritkampioenschappen tonen enige potentie bij Nederlands wielertalent. Maar wat komt er bij kijken als je een wereldtopper wil worden...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Wall Street sluit in mineur](https://fd.nl/financiele-markten/1614878/wall-street-sluit-in-mineur)
-  > De rendementen op staatsobligaties lopen weer op, net als de olieprijs. De Dow Jones-index eindigde de handelsdag 0,7% lager, de S&P 500 moest 0,2%...
-- [‘Criminelen pleegden bij zesduizend tot elfduizend huisaankopen fraude’](https://fd.nl/politiek/1614877/criminelen-pleegden-bij-zesduizend-tot-elfduizend-huisaankopen-fraude)
-  > In de aangekochte woningen werden drugs opgeslagen, doken criminelen onder en werden arbeidsmigranten gehuisvest.
-- [Geen onderzoek naar beleid chemiebedrijf OCI rond overname](https://fd.nl/bedrijfsleven/1614802/geen-onderzoek-naar-beleid-chemiebedrijf-oci-rond-overname)
-  > In het huidige voorstel is genoeg rekening gehouden met de minderheidsaandeelhouders, oordeelt de Ondernemingskamer.
-- [Klacht Damen over aanbesteding wekt woede ceo Thyssenkrupp Marine Systems](https://fd.nl/bedrijfsleven/1614800/klacht-damen-over-aanbesteding-wekt-woede-ceo-thyssenkrupp-marine-systems)
-  > Ceo Oliver Burkhard van TKMS haalde op socialemediaplatform X hard uit naar Damen: 'Ze hebben alles zelf verpest.’
-- [Thuiswerken is uit de bocht gevlogen](https://fd.nl/opinie/1614653/thuiswerken-is-uit-de-bocht-gevlogen)
-  > De kantonrechter maakte deze week terecht korte metten met het argument dat een kantoorwerkverplichting de autonomie van de medewerkers van...
+- [Op eigen risico](https://fd.nl/opinie/1614801/op-eigen-risico)
+  > In plaats van te winkelen met andermans portemonnee, kan woonminister Boekholt-O’Sullivan beter in de spiegel kijken, vindt columnist Anna Dijkman.
+- [Webwinkels starten gezamenlijk initiatief tegen nepshops en fraude](https://fd.nl/bedrijfsleven/1614667/webwinkels-starten-gezamenlijk-initiatief-tegen-nepshops-en-fraude)
+  > Nederlandse webwinkels binden via een nieuw initiatief de strijd aan met oplichters die via nepwebsites consumenten oplichten. In 2025 nam het aantal...
+- [Oud-president Estland: ‘Als Rusland de oorlog verliest, is Poetin dood’](https://fd.nl/politiek/1614661/oud-president-estland-als-rusland-de-oorlog-verliest-is-poetin-dood)
+  > Oud-president Toomas Hendrik Ilves is niet bang voor een Russische aanval. Als Moskou ‘groene mannetjes’ naar Estland stuurt, loopt het slecht met ze...
+- [Personalia donderdag 8 oktober](https://fd.nl/bedrijfsleven/1614799/personalia-donderdag-8-oktober)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Rekenkamer: nieuwe EU-begroting dreigt fouten van coronafonds te herhalen](https://fd.nl/politiek/1614795/rekenkamer-nieuwe-eu-begroting-dreigt-fouten-van-coronafonds-te-herhalen)
+  > Lidstaten mochten hun herstelplannen 99 keer bijstellen, soms pas achteraf, zodat het geld toch werd uitbetaald. Voorkom dat dit opnieuw kan, stelt...
 
 ### Meest gelezen
 
