@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-10-2026 om 08:36*
+*Laatst bijgewerkt: 08-10-2026 om 16:12*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Meer onderhandelingsruimte voor kopers, maar toch nog krapte op woningmarkt](https://nos.nl/l/2634107)
-  > Hoewel er meer ruimte is voor woningkopers om te onderhandelen, houdt de krapte op de woningmarkt aan. Dat concludeert de makelaarsvereniging NVM.
-  ...
-- [Handelsconfrontatie dreigt: ‘supercruciale’ ontmoeting EU en China](https://nos.nl/l/2634101)
-  > Peking is vandaag en morgen het decor van een ontmoeting tussen de Europese Unie en China. Na maanden van oplopende spanningen over de onderlinge...
-- [Saudi-Arabië: doden en gewonden door aanval Houthi's, lanceerplatform vernietigd](https://nos.nl/l/2634100)
-  > Bij aanvallen van de Houthi's gisteren op vliegvelden in Saudi-Arabië zijn drie doden gevallen, ook raakten 36 mensen gewond. Volgens de Saudische...
-- [Bouwbedrijf BAM koopt voor half miljard specialist transportleidingen en warmtenetten](https://nos.nl/l/2634099)
-  > Bouwbedrijf BAM neemt A.Hak over, een specialist op het gebied van ondergrondse infrastructuur. Het grote Nederlandse bouwbedrijf telt daarvoor 504...
-- [Tropische storm Isaias uitgegroeid tot de eerste orkaan van het Atlantische seizoen](https://nos.nl/l/2634096)
-  > De tropische storm Isaias is in de Golf van Mexico uitgegroeid tot de eerste orkaan van het Atlantische seizoen. De verwachting van het Amerikaanse...
+- [Provincies beëindigen contract met busvervoerder om financiële problemen](https://nos.nl/l/2634172)
+  > De provincies Flevoland, Gelderland en Overijssel gaan het ov-contract met busvervoerder EBS vervoegd ontbinden. Het bedrijf zou tot eind 2035 het...
+- [Klimaattop in Fiji en Tuvalu grotendeels mislukt, landen blijven massaal thuis](https://nos.nl/l/2634168)
+  > De voorbereidende klimaattop in Fiji en Tuvalu, mede georganiseerd door Australië, is grotendeels uitgelopen op een mislukking. Vanaf maandag waren...
+- [Britse marineman verdacht van poging tot spionage voor Russen](https://nos.nl/l/2634163)
+  > In het Verenigd Koninkrijk is dinsdag een lid van de marine opgepakt, omdat hij geheime informatie aan de Russen zou hebben willen doorgeven. Hij is...
+- [KLM schrapt vluchten, vloot heeft onderhoud nodig](https://nos.nl/l/2634162)
+  > Vliegtuigmaatschappij KLM annuleert voor komende maanden verschillende vluchten. Veel toestellen kunnen tijdelijk niet worden gebruikt, omdat deze...
+- [Waterstand Rijn niet meer te peilen: bord uitgezet](https://nos.nl/l/2634159)
+  > Niet ver van het punt waar de Rijn Nederland binnenstroomt is normaal gesproken gemakkelijk te zien hoe hoog het water in de rivier staat. Bij het...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Christa Pike (50) kan weer lopen, iets meer dan een week na haar mislukte executie](https://www.ad.nl/buitenland/christa-pike-50-kan-weer-lopen-iets-meer-dan-een-week-na-haar-mislukte-executie~af3b6f2e/)
-  > Christa Pike (50) kan weer lopen, iets meer dan een week na haar mislukte executie. Dat melden de Amerikaanse media donderdag. Begin deze week werd...
-- [Automobilist rijdt vijf wielrensters aan in Spanje en maakt na 200 meter een U-bocht om ze nogmaals te raken](https://www.ad.nl/auto/automobilist-rijdt-vijf-wielrensters-aan-in-spanje-en-maakt-na-200-meter-een-u-bocht-om-ze-nogmaals-te-raken~a4433d7c/)
-  > In Spanje zijn vijf vrouwelijke fietsers aangereden door een automobilist. De bestuurder reed na de eerste botsing door, maar keerde na een paar...
-- [Paar dagen voor haar dood nam gezicht Spaanse wooncrisis nog boodschap op: ‘Ik vraag jullie om moed’](https://www.ad.nl/buitenland/paar-dagen-voor-haar-dood-nam-gezicht-spaanse-wooncrisis-nog-boodschap-op-ik-vraag-jullie-om-moed~a86f57ec/)
-  > „Ze hebben haar vermoord!” Woede, ongeloof en verdriet heersen onder de jongeren die in hartje Madrid een tentenkamp hebben opgericht om te...
-- [Fors meer huizen te koop, maar zorgen om ‘mismatch’ en ‘krimpflatie’ bij nieuwbouw](https://www.ad.nl/wonen/fors-meer-huizen-te-koop-maar-zorgen-om-mismatch-en-krimpflatie-bij-nieuwbouw~ad6ab228/)
-  > Er valt een stuk meer te kiezen voor mensen die een koophuis zoeken. In het afgelopen kwartaal stonden er bij NVM-makelaars 39.000 bestaande woningen...
-- [Opinie: ‘Zonder infrastructuur geen nieuwe huizen’](https://www.ad.nl/praat-mee/opinie-zonder-infrastructuur-geen-nieuwe-huizen~a4b123b4/)
-  > Investeer in de bereikbaarheid van nieuw te bouwen huizen, anders kunnen we ernaar fluiten. En dat is een pijnlijk concreet probleem, betoogt Robin...
+- [Russische cyberbende Clop publiceert gestolen gegevens van Philips en Shell online](https://www.ad.nl/tech/russische-cyberbende-clop-publiceert-gestolen-gegevens-van-philips-en-shell-online~aa066bd0/)
+  > De Russische hackersgroep Clop heeft gestolen gegevens van Philips en Shell op het dark web geplaatst. Het gaat bij Philips om 13,5 gigabyte (GB) aan...
+- [Marokko en Senegal krijgen van sporttribunaal snel duidelijkheid over uitkomst van tumultueuze finale](https://www.ad.nl/voetbal/marokko-en-senegal-krijgen-van-sporttribunaal-snel-duidelijkheid-over-uitkomst-van-tumultueuze-finale~aae2e9c9/)
+  > Het Internationaal Sporttribunaal (CAS) verwacht binnen enkele dagen met een uitspraak te komen in de zaak rond de Afrika Cup-finale tussen Senegal...
+- [Hoe de doodstraf in de VS ondanks hoge kosten en eindeloze rechtszaken blijft bestaan](https://www.ad.nl/buitenland/hoe-de-doodstraf-in-de-vs-ondanks-hoge-kosten-en-eindeloze-rechtszaken-blijft-bestaan~a2744363/)
+  > Door de mislukte executie van Christa Pike en de terugkeer van het vuurpeloton is de Amerikaanse doodstraf volop in het nieuws. Terwijl de meeste...
+- [Dorp geschokt door tientallen hakenkruizen op 7 oktober: ‘Het is verschrik­ke­lijk onsmake­lijk’](https://www.ad.nl/binnenland/dorp-geschokt-door-tientallen-hakenkruizen-op-7-oktober-het-is-verschrikkelijk-onsmakelijk~a10c4d45/)
+  > In Nieuw-Lekkerland zijn in de nacht van dinsdag op woensdag tientallen hakenkruizen op straat geklad in de vorm en kleur van de Israëlische vlag....
+- [André van Duin leent zijn stem aan avond met Nederlandse liedjes in een ander jasje](https://www.ad.nl/show/andre-van-duin-leent-zijn-stem-aan-avond-met-nederlandse-liedjes-in-een-ander-jasje~a617b4ee/)
+  > André van Duin wordt de verteller van Dutch Classics, een nieuwe voorstelling van Nederlandse liedjes die op een andere wijze worden uitgevoerd. In...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Woningzoekenden hebben meer te kiezen, prijzen stijgen minder hard](https://fd.nl/economie/1614650/woningzoekenden-hebben-meer-te-kiezen-prijzen-stijgen-minder-hard)
-  > Nu het aanbod van koopwoningen stijgt en de vraag gelijk blijft, verandert de huizenmarkt langzaam weer in een kopersmarkt.
-- [Samsung verwacht $80 mrd kwartaalwinst door geheugenchips](https://fd.nl/bedrijfsleven/1614807/samsung-verwacht-80-mrd-kwartaalwinst-door-geheugenchips)
-  > Aan het einde van de maand komt Samsung met definitieve cijfers.
-- [Essent neemt 79 snellaadlocaties over van Catom](https://fd.nl/bedrijfsleven/1614808/essent-neemt-79-snellaadlocaties-over-van-catom)
-  > Het gaat om de laadpunten die horen bij de voormalige benzinestations van BP.
-- [Anne Teresa De Keersmaeker: ‘Ik was bang niet meer geliefd te zijn’](https://fd.nl/samenleving/1614780/anne-teresa-de-keersmaeker-ik-was-bang-niet-meer-geliefd-te-zijn)
-  > De internationaal gelauwerde Vlaamse danseres en choreograaf Anne Teresa De Keersmaeker werd afgelopen zomer 66 en nog steeds blijft ze zich...
-- [Beter natuurbeheer moet vergunningen Rotterdamse haven mogelijk maken](https://fd.nl/bedrijfsleven/1614805/beter-natuurbeheer-moet-vergunningen-rotterdamse-haven-mogelijk-maken)
-  > Overheden en bedrijven hebben samen een plan gemaakt om vier Natura2000-gebieden te herstellen. Daarmee is €50 mln Rijksgeld gemoeid.
+- [Spaanse verkiezingscampagne verhardt na dood vrouw die uit huis was gezet](https://fd.nl/politiek/1615090/spaanse-verkiezingscampagne-verhardt-na-dood-vrouw-die-uit-huis-was-gezet)
+  > Het overlijden van de 87-jarige Maricarmen Abascal legt extra druk op de wooncrisis in Spanje. Zowel linkse als rechtse partijen komen in beweging.
+- [Aandeelhouders Aegon akkoord met verhuizing naar de VS](https://fd.nl/financiele-markten/1614997/aandeelhouders-aegon-akkoord-met-verhuizing-naar-de-vs)
+  > De verzekeraar kreeg ook groen licht voor een nieuw beloningssysteem, dat in lijn ligt met Amerikaanse concurrenten.
+- [Bij één op de zes grotere familiebedrijven kunnen medewerkers mede-eigenaar worden](https://fd.nl/bedrijfsleven/1615089/bij-een-op-de-zes-grotere-familiebedrijven-kunnen-medewerkers-mede-eigenaar-worden)
+  > Dat blijkt uit een onderzoek van Nyenrode, RSM en Van Lanschot Kempen. Veel van de deelnemers aan het onderzoek zijn positief over de...
+- [Overname Warner Bros. door Paramount heeft ook gevolgen voor de Nederlandse markt](https://fd.nl/bedrijfsleven/1614991/overname-warner-bros-door-paramount-heeft-ook-gevolgen-voor-de-nederlandse-markt)
+  > Skydance belooft investeringen in Amerikaanse filmproducties, maar moet tegelijkertijd bezuinigen. Trekken Europese filmmakers en bioscopen aan het...
+- [Gassysteem Europa is klaar voor de winter, waakzaamheid geboden](https://fd.nl/economie/1614995/gassysteem-europa-is-klaar-voor-de-winter-waakzaamheid-geboden)
+  > In een analyse schrijft gastransportkoepel Entsog dat de voorraden historisch laag zijn, en dat verder bijvullen van de opslagen raadzaam is.
 
 ### Meest gelezen
 
