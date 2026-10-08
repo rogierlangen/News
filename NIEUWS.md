@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-10-2026 om 01:37*
+*Laatst bijgewerkt: 08-10-2026 om 08:36*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Margaret Hamilton (90) softwarepionier eerste maanlanding overleden](https://nos.nl/l/2634077)
-  > Margaret Hamilton, die de software ontwikkelde voor de eerste maanlanding van de Apollo 11 in 1969, is overleden. Door haar baanbrekende werk op het...
-- [Europese Rekenkamer waarschuwt voor snel stijgende EU schuldenlast](https://nos.nl/l/2634076)
-  > De Europese Rekenkamer (ERK) is bezorgd over de groeiende schuldenlast van de Europese Unie. Die schuld is de afgelopen jaren opgelopen naar 740...
-- [WNF: populaties wilde dieren krompen sinds 1970 flink, 'maar natuurherstel mogelijk'](https://nos.nl/l/2634075)
-  > Populaties van vogels, zoogdieren, reptielen en andere gewervelde dieren zijn sinds 1970 gemiddeld met bijna driekwart afgenomen, bevestigt een...
-- [Klimaatverandering oorzaak van snelle teruggang stormbandpinguïn op Brits eiland](https://nos.nl/l/2634068)
-  > Britse wetenschappers hebben vastgesteld dat de populatie stormbandpinguïns op een Brits eiland in de zuidelijke Atlantische Oceaan dramatisch is...
-- [Boegbeeld van Spaanse woningprotesten Maricarmen Abascal (87) overleden](https://nos.nl/l/2634066)
-  > Maricarmen Abascal, de 87-jarige vrouw die het gezicht en de naamgever werd van de woningprotesten in Spanje, is overleden. Dat heeft de Spaanse...
+- [Meer onderhandelingsruimte voor kopers, maar toch nog krapte op woningmarkt](https://nos.nl/l/2634107)
+  > Hoewel er meer ruimte is voor woningkopers om te onderhandelen, houdt de krapte op de woningmarkt aan. Dat concludeert de makelaarsvereniging NVM.
+  ...
+- [Handelsconfrontatie dreigt: ‘supercruciale’ ontmoeting EU en China](https://nos.nl/l/2634101)
+  > Peking is vandaag en morgen het decor van een ontmoeting tussen de Europese Unie en China. Na maanden van oplopende spanningen over de onderlinge...
+- [Saudi-Arabië: doden en gewonden door aanval Houthi's, lanceerplatform vernietigd](https://nos.nl/l/2634100)
+  > Bij aanvallen van de Houthi's gisteren op vliegvelden in Saudi-Arabië zijn drie doden gevallen, ook raakten 36 mensen gewond. Volgens de Saudische...
+- [Bouwbedrijf BAM koopt voor half miljard specialist transportleidingen en warmtenetten](https://nos.nl/l/2634099)
+  > Bouwbedrijf BAM neemt A.Hak over, een specialist op het gebied van ondergrondse infrastructuur. Het grote Nederlandse bouwbedrijf telt daarvoor 504...
+- [Tropische storm Isaias uitgegroeid tot de eerste orkaan van het Atlantische seizoen](https://nos.nl/l/2634096)
+  > De tropische storm Isaias is in de Golf van Mexico uitgegroeid tot de eerste orkaan van het Atlantische seizoen. De verwachting van het Amerikaanse...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Bemanning door de VS gebombardeerde schepen vrijgesproken in Ecuador](https://www.ad.nl/buitenland/bemanning-door-de-vs-gebombardeerde-schepen-vrijgesproken-in-ecuador~ab421632/)
-  > Een Ecuadoraanse rechtbank heeft 32 zeelieden vrijgesproken van deelname aan een criminele organisatie, omdat er geen bewijs is gevonden voor banden...
-- [Live VS | Democratische Partij klaagt Trump aan om met belastinggeld gemaakte reclames voor de president](https://www.ad.nl/buitenland/live-vs-democratische-partij-klaagt-trump-aan-om-met-belastinggeld-gemaakte-reclames-voor-de-president~ae67dd9c/)
-  > Het hoofdbestuur van de Democratische Partij in de Verenigde Staten heeft een rechtszaak aangespannen tegen de regering-Trump. De partij beschuldigt...
-- [Kwaliteit natuur in slechte staat, toch blijft WWF hoopvol: ‘Ruim 450 otters in Nederland’](https://www.ad.nl/nieuws/kwaliteit-natuur-in-slechte-staat-toch-blijft-wwf-hoopvol-ruim-450-otters-in-nederland~a4d6e3fe/)
-  > Het gaat slecht met de biodiversiteit op aarde. Mede door het opwarmend klimaat hebben veel diersoorten moeite met overleven. Dat stelt het Wereld...
-- [AD Voetbalpodcast | ‘De timing van Ronaldo’s statement vond ik zo flauw’](https://www.ad.nl/voetbal/ad-voetbalpodcast-de-timing-van-ronaldos-statement-vond-ik-zo-flauw~a42af5cd9/)
-  > Krijgt Infantino dan toch concurrentie bij de voorzittersverkiezing van de FIFA? Er heeft zich een Europese kandidaat gemeld. In de AD Voetbalpodcast...
-- [LIVE | Pep Guardiola steekt zijn oude club hart onder de riem en woont topper bij](https://www.ad.nl/voetbal/live-pep-guardiola-steekt-zijn-oude-club-hart-onder-de-riem-en-woont-topper-bij~a1cbd85e/)
-  > Manchester City is door de Premier League schuldig bevonden aan 115 aanklachten wegens ernstige overtredingen van financiële regels. De Engelse...
+- [Christa Pike (50) kan weer lopen, iets meer dan een week na haar mislukte executie](https://www.ad.nl/buitenland/christa-pike-50-kan-weer-lopen-iets-meer-dan-een-week-na-haar-mislukte-executie~af3b6f2e/)
+  > Christa Pike (50) kan weer lopen, iets meer dan een week na haar mislukte executie. Dat melden de Amerikaanse media donderdag. Begin deze week werd...
+- [Automobilist rijdt vijf wielrensters aan in Spanje en maakt na 200 meter een U-bocht om ze nogmaals te raken](https://www.ad.nl/auto/automobilist-rijdt-vijf-wielrensters-aan-in-spanje-en-maakt-na-200-meter-een-u-bocht-om-ze-nogmaals-te-raken~a4433d7c/)
+  > In Spanje zijn vijf vrouwelijke fietsers aangereden door een automobilist. De bestuurder reed na de eerste botsing door, maar keerde na een paar...
+- [Paar dagen voor haar dood nam gezicht Spaanse wooncrisis nog boodschap op: ‘Ik vraag jullie om moed’](https://www.ad.nl/buitenland/paar-dagen-voor-haar-dood-nam-gezicht-spaanse-wooncrisis-nog-boodschap-op-ik-vraag-jullie-om-moed~a86f57ec/)
+  > „Ze hebben haar vermoord!” Woede, ongeloof en verdriet heersen onder de jongeren die in hartje Madrid een tentenkamp hebben opgericht om te...
+- [Fors meer huizen te koop, maar zorgen om ‘mismatch’ en ‘krimpflatie’ bij nieuwbouw](https://www.ad.nl/wonen/fors-meer-huizen-te-koop-maar-zorgen-om-mismatch-en-krimpflatie-bij-nieuwbouw~ad6ab228/)
+  > Er valt een stuk meer te kiezen voor mensen die een koophuis zoeken. In het afgelopen kwartaal stonden er bij NVM-makelaars 39.000 bestaande woningen...
+- [Opinie: ‘Zonder infrastructuur geen nieuwe huizen’](https://www.ad.nl/praat-mee/opinie-zonder-infrastructuur-geen-nieuwe-huizen~a4b123b4/)
+  > Investeer in de bereikbaarheid van nieuw te bouwen huizen, anders kunnen we ernaar fluiten. En dat is een pijnlijk concreet probleem, betoogt Robin...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Op eigen risico](https://fd.nl/opinie/1614801/op-eigen-risico)
-  > In plaats van te winkelen met andermans portemonnee, kan woonminister Boekholt-O’Sullivan beter in de spiegel kijken, vindt columnist Anna Dijkman.
-- [Webwinkels starten gezamenlijk initiatief tegen nepshops en fraude](https://fd.nl/bedrijfsleven/1614667/webwinkels-starten-gezamenlijk-initiatief-tegen-nepshops-en-fraude)
-  > Nederlandse webwinkels binden via een nieuw initiatief de strijd aan met oplichters die via nepwebsites consumenten oplichten. In 2025 nam het aantal...
-- [Oud-president Estland: ‘Als Rusland de oorlog verliest, is Poetin dood’](https://fd.nl/politiek/1614661/oud-president-estland-als-rusland-de-oorlog-verliest-is-poetin-dood)
-  > Oud-president Toomas Hendrik Ilves is niet bang voor een Russische aanval. Als Moskou ‘groene mannetjes’ naar Estland stuurt, loopt het slecht met ze...
-- [Personalia donderdag 8 oktober](https://fd.nl/bedrijfsleven/1614799/personalia-donderdag-8-oktober)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Rekenkamer: nieuwe EU-begroting dreigt fouten van coronafonds te herhalen](https://fd.nl/politiek/1614795/rekenkamer-nieuwe-eu-begroting-dreigt-fouten-van-coronafonds-te-herhalen)
-  > Lidstaten mochten hun herstelplannen 99 keer bijstellen, soms pas achteraf, zodat het geld toch werd uitbetaald. Voorkom dat dit opnieuw kan, stelt...
+- [Woningzoekenden hebben meer te kiezen, prijzen stijgen minder hard](https://fd.nl/economie/1614650/woningzoekenden-hebben-meer-te-kiezen-prijzen-stijgen-minder-hard)
+  > Nu het aanbod van koopwoningen stijgt en de vraag gelijk blijft, verandert de huizenmarkt langzaam weer in een kopersmarkt.
+- [Samsung verwacht $80 mrd kwartaalwinst door geheugenchips](https://fd.nl/bedrijfsleven/1614807/samsung-verwacht-80-mrd-kwartaalwinst-door-geheugenchips)
+  > Aan het einde van de maand komt Samsung met definitieve cijfers.
+- [Essent neemt 79 snellaadlocaties over van Catom](https://fd.nl/bedrijfsleven/1614808/essent-neemt-79-snellaadlocaties-over-van-catom)
+  > Het gaat om de laadpunten die horen bij de voormalige benzinestations van BP.
+- [Anne Teresa De Keersmaeker: ‘Ik was bang niet meer geliefd te zijn’](https://fd.nl/samenleving/1614780/anne-teresa-de-keersmaeker-ik-was-bang-niet-meer-geliefd-te-zijn)
+  > De internationaal gelauwerde Vlaamse danseres en choreograaf Anne Teresa De Keersmaeker werd afgelopen zomer 66 en nog steeds blijft ze zich...
+- [Beter natuurbeheer moet vergunningen Rotterdamse haven mogelijk maken](https://fd.nl/bedrijfsleven/1614805/beter-natuurbeheer-moet-vergunningen-rotterdamse-haven-mogelijk-maken)
+  > Overheden en bedrijven hebben samen een plan gemaakt om vier Natura2000-gebieden te herstellen. Daarmee is €50 mln Rijksgeld gemoeid.
 
 ### Meest gelezen
 
