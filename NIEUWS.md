@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-10-2026 om 15:57*
+*Laatst bijgewerkt: 09-10-2026 om 20:45*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Fietsmerken Batavus, KOGA en Babboe blijven bestaan, verkocht aan Dutech](https://nos.nl/l/2634305)
-  > De fietsmerken Batavus, KOGA en Babboe maken een doorstart. Dat melden de curatoren van de Nederlandse fietsproducent Accell. De merken zijn verkocht...
-- [Grote schade aan kantoor Topsport Amsterdam na brand Olympisch Stadion](https://nos.nl/l/2634304)
-  > Het hoofdkantoor van Topsport Amsterdam, de organisatie die olympische en nationale topsporters ondersteunt, moet op zoek naar een tijdelijke nieuwe...
-- [VS kondigt sancties aan tegen Internationaal Strafhof in Den Haag, wil hof 'verlammen'](https://nos.nl/l/2634300)
-  > De Amerikaanse regering heeft sancties aangekondigd tegen het Internationaal Strafhof (ICC) in Den Haag. Die gaan in april volgend jaar grotendeels...
-- [Dieven stelen 30.000 flessen wijn bij beroemd Italiaans wijnhuis](https://nos.nl/l/2634297)
-  > Het vooraanstaande Italiaanse wijnhuis Marchesi Antinori is slachtoffer geworden van misschien wel de grootste diefstal van wijn in de geschiedenis...
-- [Excuses kabinet aan Q-koortspatiënten: 'Van het kastje naar de muur gestuurd'](https://nos.nl/l/2634296)
-  > Twintig jaar na het begin van de grootste Q-koortsepidemie in de geschiedenis maakt zorgminister Hermans excuses namens het kabinet. Tienduizenden...
+- [Hitler Mussolini verkozen tot burgemeester in bergdorp Peru](https://nos.nl/l/2634356)
+  > Inwoners van een afgelegen dorp in het Peruaanse Andesgebergte hebben een nieuwe burgemeester. Normaal geen wereldnieuws, maar door zijn naam is het...
+- [110 arrestaties op dag vol geweld in centrum Brussel](https://nos.nl/l/2634349)
+  > In Brussel zijn zeker 110 mensen aangehouden nadat een stakingsdag van vakbonden was uitgelopen op rellen. Pas in de loop van de avond keerde de rust...
+- ['Copiloot die toestel wilde laten neerstorten was geïnspireerd door 9/11'](https://nos.nl/l/2634347)
+  > De copiloot die tijdens een vlucht van Dubai naar Tel Aviv het toestel wilde overnemen en daarbij zijn gezagvoerder neerstak, wilde een aanslag...
+- [Zware aardbeving in Panama, waarschuwing voor tsunami](https://nos.nl/l/2634340)
+  > Panama is getroffen door een aardbeving met een kracht van 7,7. Daarmee zou het een van de zwaarste schokken van het jaar zijn, wereldwijd. Er zijn...
+- [Geen BMW voor AfD'er Tobias Rausch na intrekken leaseaanbod](https://nos.nl/l/2634336)
+  > AfD'er Tobias Rausch moet het voorlopig stellen zonder dienstauto. De rechts-radicale politicus werd dinsdag verkozen tot voorzitter van het...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Als regenboogvlaggen iets bewijzen, dan is het wel dat ze niet werken](https://www.ad.nl/binnenland/als-regenboogvlaggen-iets-bewijzen-dan-is-het-wel-dat-ze-niet-werken~a92c8c87/)
-  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
-- [Van Feyenoord tot Almere City: clubs proberen snusgebruik te remmen, maar lang niet overal lukt dat](https://www.ad.nl/voetbal/van-feyenoord-tot-almere-city-clubs-proberen-snusgebruik-te-remmen-maar-lang-niet-overal-lukt-dat~a24a8033/)
-  > Profvoetballers gebruiken nog altijd tabaks- en nicotinezakjes, blijkt uit onderzoek van deze site. Zorgelijk en onprofessioneel, vinden clubartsen....
-- [Esra de Ruiter over pijnlijke val bij Televizier-Ring Gala: ‘Het heeft een hele nasleep’](https://www.ad.nl/show/esra-de-ruiter-over-pijnlijke-val-bij-televizier-ring-gala-het-heeft-een-hele-nasleep~a0b46afe/)
-  > Esra de Ruiter (32) van PaardenpraatTV is dolenthousiast nadat ze de Televizier-Ring Jeugd heeft gewonnen. De presentatrice heeft alleen niet veel...
-- [Feyenoord schrijft rode cijfers: miljoenenverlies door lagere Europese inkomsten](https://www.ad.nl/voetbal/feyenoord-schrijft-rode-cijfers-miljoenenverlies-door-lagere-europese-inkomsten~a78bcdb2/)
-  > Feyenoord heeft het boekjaar 2025-2026 afgesloten met een nettoverlies van 12,6 miljoen euro. Dat meldt de club op de eigen website. De belangrijkste...
-- [Jongeren worden slachtoffer van online vernedering door AI: ‘Beeld is nep, reacties zijn echt’](https://www.ad.nl/tech/jongeren-worden-slachtoffer-van-online-vernedering-door-ai-beeld-is-nep-reacties-zijn-echt~ae395449/)
-  > Meerdere anti-pestorganisaties trekken aan de bel vanwege het toenemende gebruik van AI om kinderen en jongeren online te pesten. Zo worden er...
+- [Assist Joey Veerman bij Borussia Dortmund, dat het helemaal weggeeft na goal andere Nederlander](https://www.ad.nl/voetbal/assist-joey-veerman-bij-borussia-dortmund-dat-het-helemaal-weggeeft-na-goal-andere-nederlander~a99563a4/)
+  > Borussia Dortmund heeft de winstreeks van voor de interlandperiode geen vervolg kunnen geven. De ploeg van trainer Niko Kovac gaf in eigen huis een...
+- [Heracles verovert eerste periodetitel na ruime thuiszege op RKC](https://www.ad.nl/voetbal/heracles-verovert-eerste-periodetitel-na-ruime-thuiszege-op-rkc~a94eaa09/)
+  > Heracles heeft vrijdagavond met een 3-0 overwinning op RKC de eerste periodetitel binnengesleept. Na een doelpuntloze eerste helft kwam de ploeg van...
+- [Matig PSV komt goed weg tegen Heerenveen en hervat eredivisie met zege](https://www.ad.nl/voetbal/matig-psv-komt-goed-weg-tegen-heerenveen-en-hervat-eredivisie-met-zege~add55c71/)
+  > PSV heeft de competitie hervat met een 2-0 zege op SC Heerenveen. De kampioen van de laatste drie seizoenen gaf flink wat kansen weg en Armando...
+- [Oranje Leeuwinnen beginnen ijzersterk aan play-offs voor WK: monsterscore in Hongarije](https://www.ad.nl/voetbal/oranje-leeuwinnen-beginnen-ijzersterk-aan-play-offs-voor-wk-monsterscore-in-hongarije~a461fc55/)
+  > De Oranje Leeuwinnen hebben een grote stap gezet naar de finale van de play-offs voor het WK. De ploeg van bondscoach Arjan Veurink was in Felcsút...
+- [Excuses komen te laat voor Liesbeth, die haar vader verloor aan Q-koorts: ‘Al die doden, dat had niet gehoeven’](https://www.ad.nl/binnenland/excuses-komen-te-laat-voor-liesbeth-die-haar-vader-verloor-aan-q-koorts-al-die-doden-dat-had-niet-gehoeven~afcab558/)
+  > Nog elke keer als Liesbeth Gielis uit Berghem langs een weide loopt met geiten, bekruipt haar een onbestemd gevoel. Elke keer weer die angst voor...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Singaporese investeerder maakt doorstart met Batavus en Koga](https://fd.nl/bedrijfsleven/1615166/singaporese-investeerder-maakt-doorstart-met-batavus-en-koga)
-  > Dutech heeft een deal gesloten met de curatoren van Accell voor de overname van een aantal merkrechten, een fabriek in Hongarije en een IT-platform.
-- [VS leggen sancties op aan Internationaal Strafhof, beloven ‘schurkenhof’ te ontmantelen](https://fd.nl/politiek/1615040/vs-leggen-sancties-op-aan-internationaal-strafhof-beloven-schurkenhof-te-ontmantelen)
-  > Bedrijven die diensten leveren aan het hof kunnen nu ook worden gestraft. Het Internationaal Strafhof is al langer een doorn in het oog van de...
-- [Werkgevers zien cao-onderhandelingen vastlopen door onzekerheid over kabinetsbeleid](https://fd.nl/economie/1615162/werkgevers-zien-cao-onderhandelingen-vastlopen-door-onzekerheid-over-kabinetsbeleid)
-  > Onduidelijkheid over de effecten van het kabinetsbeleid zorgt voor een afwachtende houding bij cao-onderhandelaars.
-- [Records op Damrak in aanloop naar cijferregen](https://fd.nl/financiele-markten/1615130/records-op-damrak-in-aanloop-naar-cijferregen)
-  > Zullen de resultaten weer net zo goed zijn als in het tweede kwartaal? De cijfers over die periode namen de zorgen over de onrust in de wereld voor...
-- [Zweedse economie weer in de lift, belastingverlaging werpt vruchten af](https://fd.nl/economie/1615157/zweedse-economie-weer-in-de-lift-belastingverlaging-werpt-vruchten-af)
-  > De Zweedse economie kwakkelde, maar heeft de weg omhoog weer gevonden.
+- [Wall Street sluit hoger na dieseldeal tussen Trump en Poetin](https://fd.nl/financiele-markten/1615072/wall-street-sluit-hoger-na-dieseldeal-tussen-trump-en-poetin)
+  > Telecombedrijven verliezen na bericht over mogelijke toetreding van SpaceX tot de telecommarkt.
+- [Trump: Rusland gaat Verenigde Staten diesel leveren](https://fd.nl/bedrijfsleven/1615071/trump-rusland-gaat-deel-dieselvoorraad-op-de-markt-brengen)
+  > Sinds 2022 hebben de VS geen diesel meer geïmporteerd uit Rusland. Zelensky noemt levering ‘investering in oorlog’
+- [Aanscherping corruptiebeleid bij Defensie komt als geroepen](https://fd.nl/opinie/1615084/aanscherping-corruptiebeleid-bij-defensie-komt-als-geroepen)
+  > Wie onder tijdsdruk en vaak in het geheim miljarden uitgeeft, schept ook de ideale omstandigheden voor ondernemers die het niet zo nauw nemen met de...
+- [Opeens is een terugkeer in de EU voor de Britten wél bespreekbaar](https://fd.nl/politiek/1615000/opeens-is-een-terugkeer-in-de-eu-voor-de-britten-wel-bespreekbaar)
+  > Het was lange tijd politiek taboe, maar de nieuwe Britse premier Andy Burnham heeft ‘rejoin’ opeens toch op de agenda gezet. De Britten komen in het...
+- [Meer ondernemers dragen hun bedrijf over aan ‘rentmeesters’, tot vreugde van een oud-premier](https://fd.nl/economie/1615134/meer-ondernemers-dragen-hun-bedrijf-over-aan-rentmeesters-tot-vreugde-van-een-oud-premier)
+  > Op het Steward Ownership Festival Amsterdam stonden donderdag ondernemingen centraal die winst als middel zien, niet als doel. Een groepje...
 
 ### Meest gelezen
 
