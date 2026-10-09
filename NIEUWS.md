@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-10-2026 om 08:41*
+*Laatst bijgewerkt: 09-10-2026 om 15:57*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Amerikanen protesteren tegen seksueel geweld: ‘Klaar met het beschermen van de elite’](https://nos.nl/l/2634244)
-  > In tientallen Amerikaanse steden zijn mensen de straat opgegaan tegen seksueel geweld. Wat begon met woede over de verkrachtingszaak op de...
-- [Rotterdamse (23) zat zelf achter stuur tijdens fataal ongeluk op Aruba, zegt OM](https://nos.nl/l/2634235)
-  > De Rotterdamse vrouw (23) die vorige maand omkwam bij een eenzijdig ongeval op Aruba, zat zelf achter het stuur van de terreinwagen. Dat concludeert...
-- [ICE schiet man neer in auto in New York, met kind van 5 op achterbank](https://nos.nl/l/2634232)
-  > De Amerikaanse immigratiedienst ICE heeft in de stad New York een man neergeschoten in zijn auto. Volgens burgemeester Mamdani zat er ook een 5-jarig...
-- [Twee inspecteurs in Duitsland doodgeschoten bij wapencontrole, 60-jarige man opgepakt](https://nos.nl/l/2634230)
-  > Een routinecontrole op wapens is in de Duitse deelstaat Beieren volledig uit de hand gelopen. Twee lokale inspecteurs, volgens Duitse media een...
-- [Oplopende Franse staatsschuld en rente steeds zorgelijker voor Europa](https://nos.nl/l/2634223)
-  > Onder druk van de aanhoudende demonstraties heeft de Franse regering toegezegd dat er 3000 extra leerkrachten komen. Maar de druk op Frankrijk om de...
+- [Fietsmerken Batavus, KOGA en Babboe blijven bestaan, verkocht aan Dutech](https://nos.nl/l/2634305)
+  > De fietsmerken Batavus, KOGA en Babboe maken een doorstart. Dat melden de curatoren van de Nederlandse fietsproducent Accell. De merken zijn verkocht...
+- [Grote schade aan kantoor Topsport Amsterdam na brand Olympisch Stadion](https://nos.nl/l/2634304)
+  > Het hoofdkantoor van Topsport Amsterdam, de organisatie die olympische en nationale topsporters ondersteunt, moet op zoek naar een tijdelijke nieuwe...
+- [VS kondigt sancties aan tegen Internationaal Strafhof in Den Haag, wil hof 'verlammen'](https://nos.nl/l/2634300)
+  > De Amerikaanse regering heeft sancties aangekondigd tegen het Internationaal Strafhof (ICC) in Den Haag. Die gaan in april volgend jaar grotendeels...
+- [Dieven stelen 30.000 flessen wijn bij beroemd Italiaans wijnhuis](https://nos.nl/l/2634297)
+  > Het vooraanstaande Italiaanse wijnhuis Marchesi Antinori is slachtoffer geworden van misschien wel de grootste diefstal van wijn in de geschiedenis...
+- [Excuses kabinet aan Q-koortspatiënten: 'Van het kastje naar de muur gestuurd'](https://nos.nl/l/2634296)
+  > Twintig jaar na het begin van de grootste Q-koortsepidemie in de geschiedenis maakt zorgminister Hermans excuses namens het kabinet. Tienduizenden...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Muizen vreten weilanden compleet kaal, boeren zetten hun land onder water: ‘Enige remedie’](https://www.ad.nl/binnenland/muizen-vreten-weilanden-compleet-kaal-boeren-zetten-hun-land-onder-water-enige-remedie~a1e92741/)
-  > Percelen vol bruin, kaal grasland. Vanuit de lucht lijkt het op een toendra. Oorzaak: een extreme muizenplaag door de droogte. Boeren zetten...
-- [Max Verstappen begonnen aan enige training op stratencircuit in Singapore](https://www.ad.nl/formule-1/max-verstappen-begonnen-aan-enige-training-op-stratencircuit-in-singapore~ab8ac6c7/)
-  > De Formule 1 is in Singapore voor het laatste sprintraceweekend van het seizoen. Dat betekent dat Max Verstappen en zijn collega’s slechts één vrije...
-- [Netflix komt met nieuwe Bridgerton-spinoff](https://www.ad.nl/show/netflix-komt-met-nieuwe-bridgerton-spinoff~afea3e49/)
-  > Netflix werkt aan een spin-off van Bridgerton over de jonge Violet Bridgerton. Dat heeft de streamingdienst donderdag bekendgemaakt. De aankomende...
-- [Drie doden na raketaanval van Houthi’s op luchthaven in Saoedische hoofdstad, leeg vliegtuig vol geraakt](https://www.ad.nl/buitenland/drie-doden-na-raketaanval-van-houthis-op-luchthaven-in-saoedische-hoofdstad-leeg-vliegtuig-vol-geraakt~ad50e05cb/)
-  > Zeker drie Saoedische burgers zijn om het leven gekomen bij twee aanvallen op de luchthaven van de Saudische hoofdstad Riyad. Dat meldt de...
-- [Kabinet wil dat warmtepomp straks ‘slim’ is: dit houdt het in en hier moet je op letten](https://www.ad.nl/wonen/kabinet-wil-dat-warmtepomp-straks-slim-is-dit-houdt-het-in-en-hier-moet-je-op-letten~afe28003/)
-  > Wie de komende jaren een warmtepomp koopt, krijgt volgens de voorgenomen regels niet alleen met veranderende subsidiebedragen te maken. Het kabinet...
+- [Als regenboogvlaggen iets bewijzen, dan is het wel dat ze niet werken](https://www.ad.nl/binnenland/als-regenboogvlaggen-iets-bewijzen-dan-is-het-wel-dat-ze-niet-werken~a92c8c87/)
+  > Özcan Akyol schrijft drie keer per week over wat hem bezighoudt.
+- [Van Feyenoord tot Almere City: clubs proberen snusgebruik te remmen, maar lang niet overal lukt dat](https://www.ad.nl/voetbal/van-feyenoord-tot-almere-city-clubs-proberen-snusgebruik-te-remmen-maar-lang-niet-overal-lukt-dat~a24a8033/)
+  > Profvoetballers gebruiken nog altijd tabaks- en nicotinezakjes, blijkt uit onderzoek van deze site. Zorgelijk en onprofessioneel, vinden clubartsen....
+- [Esra de Ruiter over pijnlijke val bij Televizier-Ring Gala: ‘Het heeft een hele nasleep’](https://www.ad.nl/show/esra-de-ruiter-over-pijnlijke-val-bij-televizier-ring-gala-het-heeft-een-hele-nasleep~a0b46afe/)
+  > Esra de Ruiter (32) van PaardenpraatTV is dolenthousiast nadat ze de Televizier-Ring Jeugd heeft gewonnen. De presentatrice heeft alleen niet veel...
+- [Feyenoord schrijft rode cijfers: miljoenenverlies door lagere Europese inkomsten](https://www.ad.nl/voetbal/feyenoord-schrijft-rode-cijfers-miljoenenverlies-door-lagere-europese-inkomsten~a78bcdb2/)
+  > Feyenoord heeft het boekjaar 2025-2026 afgesloten met een nettoverlies van 12,6 miljoen euro. Dat meldt de club op de eigen website. De belangrijkste...
+- [Jongeren worden slachtoffer van online vernedering door AI: ‘Beeld is nep, reacties zijn echt’](https://www.ad.nl/tech/jongeren-worden-slachtoffer-van-online-vernedering-door-ai-beeld-is-nep-reacties-zijn-echt~ae395449/)
+  > Meerdere anti-pestorganisaties trekken aan de bel vanwege het toenemende gebruik van AI om kinderen en jongeren online te pesten. Zo worden er...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Zelfs Joden vroegen NSB’er Max Blokzijl om hulp](https://fd.nl/samenleving/1614706/zelfs-joden-vroegen-nsber-max-blokzijl-om-hulp)
-  > ‘Brieven aan Max Blokzijl’ onthult duizenden luisteraarsbrieven aan NSB‑propagandist Blokzijl. Ook Joodse Nederlanders vroegen Blokzijl om hulp,...
-- [Dit pamflet neemt het nu eens op voor de vrije markt](https://fd.nl/economie/1614798/dit-pamflet-neemt-het-nu-eens-op-voor-de-vrije-markt)
-  > Econoom en ondernemer Peter De Keyzer bestrijdt twee soorten ‘groeipessimisten’ in zijn nieuwe boek. Wat de samenleving pas echt onder druk zet,...
-- [Zelfsturende kassen stap dichterbij: softwarebedrijf Source neemt Londense Optimal over](https://fd.nl/bedrijfsleven/1614976/zelfsturende-kassen-stap-dichterbij-softwarebedrijf-source-neemt-londense-optimal-over)
-  > Water en voeding krijgen planten met de software van Source nu al zonder tussenkomst van een teler. Met de acquisitie van het Britse bedrijf wordt...
-- [Trump: geen nieuwe aanvallen op Iran tot tussentijdse verkiezingen](https://fd.nl/politiek/1615127/trump-geen-nieuwe-aanvallen-op-iran-tot-tussentijdse-verkiezingen)
-  > De Amerikaanse president stelt dat er ‘productieve gesprekken’ worden gevoerd met Iran.
-- [Ebusco krijgt opnieuw noodfinanciering van bijna €6 mln](https://fd.nl/bedrijfsleven/1615126/ebusco-krijgt-opnieuw-noodfinanciering-van-bijna-6-mln)
-  > De Brabantse busbouwer heeft extra financiering nodig om de komende weken overeind te blijven. De fabrikant meldt dat de beschikbare liquiditeit...
+- [Singaporese investeerder maakt doorstart met Batavus en Koga](https://fd.nl/bedrijfsleven/1615166/singaporese-investeerder-maakt-doorstart-met-batavus-en-koga)
+  > Dutech heeft een deal gesloten met de curatoren van Accell voor de overname van een aantal merkrechten, een fabriek in Hongarije en een IT-platform.
+- [VS leggen sancties op aan Internationaal Strafhof, beloven ‘schurkenhof’ te ontmantelen](https://fd.nl/politiek/1615040/vs-leggen-sancties-op-aan-internationaal-strafhof-beloven-schurkenhof-te-ontmantelen)
+  > Bedrijven die diensten leveren aan het hof kunnen nu ook worden gestraft. Het Internationaal Strafhof is al langer een doorn in het oog van de...
+- [Werkgevers zien cao-onderhandelingen vastlopen door onzekerheid over kabinetsbeleid](https://fd.nl/economie/1615162/werkgevers-zien-cao-onderhandelingen-vastlopen-door-onzekerheid-over-kabinetsbeleid)
+  > Onduidelijkheid over de effecten van het kabinetsbeleid zorgt voor een afwachtende houding bij cao-onderhandelaars.
+- [Records op Damrak in aanloop naar cijferregen](https://fd.nl/financiele-markten/1615130/records-op-damrak-in-aanloop-naar-cijferregen)
+  > Zullen de resultaten weer net zo goed zijn als in het tweede kwartaal? De cijfers over die periode namen de zorgen over de onrust in de wereld voor...
+- [Zweedse economie weer in de lift, belastingverlaging werpt vruchten af](https://fd.nl/economie/1615157/zweedse-economie-weer-in-de-lift-belastingverlaging-werpt-vruchten-af)
+  > De Zweedse economie kwakkelde, maar heeft de weg omhoog weer gevonden.
 
 ### Meest gelezen
 
