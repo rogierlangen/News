@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-10-2026 om 21:52*
+*Laatst bijgewerkt: 09-10-2026 om 01:50*
 
 ---
 
@@ -8,6 +8,10 @@
 
 ### Laatste nieuws
 
+- [Pentagon wil executie Nidal Hasan door vuurpeloton live uitzenden](https://nos.nl/l/2634213)
+  > Het Amerikaanse ministerie van Defensie wil de executie van een man die in 2009 dertien mensen doodde livestreamen. Het is daarmee waarschijnlijk de...
+- [Eerst wel, toen niet, nu weer wel: regenboogvlag gaat toch bij Tweede Kamer hangen](https://nos.nl/l/2634212)
+  > Een meerderheid van de Tweede Kamer is ervoor dat zondag een regenboogvlag bij het Tweede Kamergebouw wappert op Coming-Outdag. Dat bleek...
 - [Duizenden aanhangers opgepakt volgens Indiase Kakkerlakken-beweging](https://nos.nl/l/2634207)
   > De Indiase autoriteiten hebben duizenden aanhangers van de Kakkerlakken-beweging opgepakt, zegt de beweging op sociale media.
         Het is...
@@ -15,11 +19,6 @@
   > Een goed bewaard fossiel van 165 miljoen jaar oud toont wetenschappers hoe zoogdieren ten tijde van de dino's een nieuwe manier van slikken...
 - [Vier astronauten na 237 dagen terug op aarde, record voor Europese vrouw](https://nos.nl/l/2634204)
   > Vier astronauten zijn na acht maanden teruggekeerd naar aarde vanuit het internationale ruimtestation ISS. SpaceX bracht de bemanning met een...
-- [Gouden Televizier-Ring voor De Bondgenoten, presentator Jan Versteegh wint ook](https://nos.nl/l/2634199)
-  > De Gouden Televizier-Ring 2026 is gewonnen door de SBS6-reality-spelserie De Bondgenoten.
-        De keuze van de Nederlandse kijker werd...
-- [Doorzoeking woningen ex-prins Andrew onwettig, maar onderzoek gaat door](https://nos.nl/l/2634198)
-  > Een klein succesje voor de Britse ex-prins Andrew. Een rechtbank in Londen is het met hem eens dat de politie in februari belangrijke fouten heeft...
 
 ### Meest gelezen
 
@@ -29,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Formule 1 | Lewis Hamilton mist racen in de regen: ‘Maar jonge coureurs zijn steeds voorzichtiger’](https://www.ad.nl/formule-1/live-formule-1-lewis-hamilton-mist-racen-in-de-regen-maar-jonge-coureurs-zijn-steeds-voorzichtiger~afd17814/)
-  > De Formule 1 dendert door in deze periode. Volg alle ontwikkelingen hier.
-- [‘Gewoon in mijn joggingpakkie naar de supermarkt? Dat zit er niet meer in’: Femke Kok is nu echt BN’er](https://www.ad.nl/schaatsen/gewoon-in-mijn-joggingpakkie-naar-de-supermarkt-dat-zit-er-niet-meer-in-femke-kok-is-nu-echt-bner~ab475ac4/)
-  > Haar leven veranderde, na een winter waarin ze alles won wat ze wilde. Als olympisch kampioen gaat Femke Kok nu een jaartje minder streng zijn voor...
-- [Forse celstraffen geëist tegen medisch team Maradona, lijfarts beschuldigd van ‘doodslag met opzet’](https://www.ad.nl/voetbal/forse-celstraffen-geeist-tegen-medisch-team-maradona-lijfarts-beschuldigd-van-doodslag-met-opzet~a7fcc948/)
-  > Het Openbaar Ministerie heeft straffen tot twaalf jaar cel geëist tegen leden van het medisch team van de Argentijnse voetballegende Diego Maradona....
-- [Meisje (6) in Berlijn overleeft val van 10 meter dankzij heldhaftige buurman die haar in zijn armen opvangt](https://www.ad.nl/buitenland/meisje-6-in-berlijn-overleeft-val-van-10-meter-dankzij-heldhaftige-buurman-die-haar-in-zijn-armen-opvangt~a50ea699/)
-  > Een 6-jarig meisje heeft in Berlijn als bij een wonder een val uit een raam op de derde verdieping overleefd. Het kind stortte zo’n 10 meter naar...
-- [Donkere rook bij grote brand in Olympisch Stadion, brandhaard moeilijk te bereiken](https://www.ad.nl/amsterdam/donkere-rook-bij-grote-brand-in-olympisch-stadion-brandhaard-moeilijk-te-bereiken~addd1c57/)
-  > In de kruipruimte van het Olympisch Stadion in Amsterdam is donderdagavond een grote brand uitgebroken. Wat er precies in brand staat, is nog...
+- [Defensie helpt Sint-Maarten opnieuw bij strijd tegen criminaliteit](https://www.ad.nl/buitenland/defensie-helpt-sint-maarten-opnieuw-bij-strijd-tegen-criminaliteit~a8f29e60/)
+  > De Commandant der Zeemacht in het Caribisch gebied heeft donderdagmiddag (lokale tijd) laten weten dat de Nederlandse Defensie het politiekorps van...
+- [Zelensky: VS willen Oekraïne niet helpen tegen Rusland, 33 doden na Russische raket op bus vol burgers in Oekraïne](https://www.ad.nl/buitenland/zelensky-vs-willen-oekraine-niet-helpen-tegen-rusland-33-doden-na-russische-raket-op-bus-vol-burgers-in-oekraine~adfb97be/)
+  > De Oekraïense president Volodymyr Zelensky beschuldigt de VS ervan niet te helpen tegen Rusland. Volgens hem kunnen de Amerikanen niet tegelijk...
+- [Executie Amerikaanse militair door vuurpeloton wordt live uitgezonden](https://www.ad.nl/buitenland/executie-amerikaanse-militair-door-vuurpeloton-wordt-live-uitgezonden~affa2a36/)
+  > De executie door een vuurpeloton van de man die in 2009 op een legerbasis in Texas dertien militairen doodschoot, zal worden gelivestreamd. Dat...
+- [AD Voetbalpodcast | ‘Het duo Til-Mijnans moet elkaar nog zien te vinden bij PSV’](https://www.ad.nl/voetbal/ad-voetbalpodcast-het-duo-til-mijnans-moet-elkaar-nog-zien-te-vinden-bij-psv~a42af5cd9/)
+  > Het was drie weken vrij rustig op de Herdgang. Bij PSV waren nog maar drie selectiespelers over. De rest was op pad met hun land of geblesseerd. Hoe...
+- [Gemeenteraad Terneuzen geeft na lang debat toch groen licht voor azc](https://www.ad.nl/terneuzen/gemeenteraad-terneuzen-geeft-na-lang-debat-toch-groen-licht-voor-azc~a0593ef0/)
+  > Het Centraal orgaan Opvang Asielzoekers (COA) kan alsnog aan de slag met een asielzoekerscentrum in het voormalige Neckermanngebouw in Terneuzen. Een...
 
 ### Meest gelezen
 
@@ -48,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaanse beurzen schrikken van bericht over omzet OpenAI](https://fd.nl/financiele-markten/1615017/wall-street-schrikt-van-bericht-over-omzet-openai)
-  > De koersen van bedrijven die profiteren van de AI-hausse gingen onderuit na nieuws van de Financial Times. Ook over de olieprijs waren zorgen.
-- [Maduro in de VS aangeklaagd voor marteling van Amerikaanse burgers](https://fd.nl/politiek/1615003/maduro-in-de-vs-aangeklaagd-voor-marteling-van-amerikaanse-burgers)
-  > De voormalige Venezolaanse president werd al vervolgd voor internationale drugshandel.
-- [‘Omzet OpenAI dit jaar $20 mrd lager dan beleggers verwachtten’](https://fd.nl/bedrijfsleven/1615002/omzet-openai-dit-jaar-20-mrd-lager-dan-beleggers-verwachtten)
-  > Verschillende media schreven eerder over een verwachte omzet van $70 mrd. Maar volgens de Financial Times klopt dat bedrag niet.
-- [Onzalige onteigening](https://fd.nl/opinie/1615082/onzalige-onteigening)
-  > Onteigening van commerciële verhuurders werkt averechts, want welke ontwikkelaar zal nog willen bouwen?
-- [KLM moet vanwege staat vloot vluchten schrappen](https://fd.nl/bedrijfsleven/1615094/klm-moet-vanwege-staat-vloot-vluchten-schrappen)
-  > Veel vliegtuigen staan voor onderhoud of schadeherstel aan de grond. De maatregel duurt van 26 oktober tot begin maart.
+- [Offshore-icoon Pieter Heerema heeft zijn reddingsboei van €500 mln terug](https://fd.nl/bedrijfsleven/1614810/offshore-icoon-pieter-heerema-heeft-zijn-reddingsboei-van-500-mln-terug)
+  > De $500 mln die Heerema in 2021 in de redding van zijn Heerema Marine Contractors stak, heeft hij ruimschoots terugverdiend. Hij heeft ook de...
+- [Tegenwind voor de dobbermiljonairs](https://fd.nl/opinie/1614723/tegenwind-voor-de-dobbermiljonairs)
+  > Wie de berichten van Financiën bestudeert, ontwaart de ambitie voor een exitheffing op box 3. Dan belagen de blauwe enveloppen je dus zelfs na je...
+- [Main Capital keert bijna €300 mln uit aan aandeelhouders in laatste drie jaar](https://fd.nl/bedrijfsleven/1614677/main-capital-keert-bijna-300-mln-uit-aan-aandeelhouders-in-laatste-drie-jaar)
+  > De Haagse investeerder in softwarebedrijven groeide sterk in de afgelopen jaren. Het profiteert van een snelle stijging van de beheervergoedingen en...
+- [We hoeven niet lang te steggelen over een hoogspanningslijn – de uitvoering kán sneller](https://fd.nl/opinie/1613757/we-hoeven-niet-15-jaar-te-steggelen-over-een-hoogspanningslijn)
+  > In Het Debat pleit Daan Remarque voor het gedragspsychologisch inrichten van projecten. Marcel Stiefelhagen en Rogier Gerritzen zien kansen voor een...
+- [Personalia vrijdag 9 oktober](https://fd.nl/bedrijfsleven/1614984/personalia-vrijdag-9-oktober)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
