@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-10-2026 om 00:35*
+*Laatst bijgewerkt: 10-10-2026 om 06:49*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Rechtse politiek commentator Katie Zacharia nieuwe perschef van het Witte Huis](https://nos.nl/l/2634371)
-  > Donald Trump heeft de rechtse politieke commentator Katie Zacharia aangesteld als nieuwe perschef van het Witte Huis. Ze volgt Karoline Leavitt op,...
-- [Yesilgöz ondanks kritiek: 'Ik ben volgende lijsttrekker van VVD'](https://nos.nl/l/2634363)
-  > VVD-leider Yesilgöz wil bij volgende verkiezingen weer lijsttrekker worden. In een interview met de NOS na een VVD-bijeenkomst in Veghel spreekt ze...
-- [Rusland gaat diesel leveren aan de VS en aan de wereld](https://nos.nl/l/2634362)
-  > Rusland gaat "onmiddellijk" 300.000 ton diesel leveren aan de Amerikaanse markt en de wereldmarkt. Dat schrijft president Trump op zijn platform...
-- [Hitler Mussolini verkozen tot burgemeester in bergdorp Peru](https://nos.nl/l/2634356)
-  > Inwoners van een afgelegen dorp in het Peruaanse Andesgebergte hebben een nieuwe burgemeester. Normaal geen wereldnieuws, maar door zijn naam is het...
-- [110 arrestaties op dag vol geweld in centrum Brussel](https://nos.nl/l/2634349)
-  > In Brussel zijn zeker 110 mensen aangehouden nadat een stakingsdag van vakbonden was uitgelopen op rellen. Pas in de loop van de avond keerde de rust...
+- [Brandstichting bij het spoor, geen treinen tussen Rotterdam en Delft](https://nos.nl/l/2634388)
+  > Bij een spoorbrug bij Rotterdam-Delfshaven is vannacht brand gesticht. Rond 02.30 uur ontstond een storing bij de spoorbrug. Een aannemer die op de...
+- [Voetganger doodgereden op de A58 bij Tilburg](https://nos.nl/l/2634387)
+  > Op de A58 bij Tilburg is vannacht iemand om het leven gekomen. Vermoedelijk wilde het slachtoffer de snelweg oversteken, meldt Omroep Brabant.
+      ...
+- [Kritiek op executie via livestream, Trump zegt dat besluit nog niet vaststaat](https://nos.nl/l/2634386)
+  > De Amerikaanse president Trump zegt dat nog niet definitief is besloten om de executie van een Amerikaanse militair te livestreamen. Op de...
+- [Niet meer verbranden maar recyclen: fabrikanten moeten oude meubels gaan inzamelen](https://nos.nl/l/2634382)
+  > Veel afgedankte banken en andere meubels belanden nu nog in verbrandingsovens. Zonde, vindt het kabinet. Meubels moeten beter worden gerecycled en...
+- [Omstreden Oranjemars verboden na patstelling van 13 dagen: 'Situatie is veranderd'](https://nos.nl/l/2634379)
+  > Dertien dagen nadat grootschalig protest een omstreden Oranjemars in Noord-Ierland onmogelijk maakte, is de parade definitief afgeblazen. De Britse...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [KLM-vlucht op weg naar Panama omgeleid naar Curaçao vanwege aardbeving](https://www.ad.nl/buitenland/klm-vlucht-op-weg-naar-panama-omgeleid-naar-curacao-vanwege-aardbeving~a4bcf1e8/)
-  > Een KLM-vlucht die vanuit Amsterdam onderweg was naar Panama-Stad is vanwege de zware aardbeving voor de kust van het Midden-Amerikaanse land...
-- [Trump: nog geen beslissing over livestream van executie Amerikaanse militair door vuurpeloton](https://www.ad.nl/buitenland/trump-nog-geen-beslissing-over-livestream-van-executie-amerikaanse-militair-door-vuurpeloton~ae67dd9c/)
-  > De Amerikaanse president Donald Trump heeft nog niet bevestigd of er een livestream komt van de omstreden executie door een vuurpeloton van de...
-- [Zelensky kritisch over dieselakkoord VS-Rusland: ‘Cadeautjes aan Poetin brengen geen vrede’](https://www.ad.nl/buitenland/zelensky-kritisch-over-dieselakkoord-vs-rusland-cadeautjes-aan-poetin-brengen-geen-vrede~adfb97be/)
-  > De Oekraïense president Volodymyr Zelensky heeft kritisch gereageerd op het akkoord tussen de Verenigde Staten en Rusland over de levering van...
-- [Doelpunt, slokje drinken en gigantisch spandoek: Cristiano Ronaldo laat voeten spreken na roerige week](https://www.ad.nl/voetbal/doelpunt-slokje-drinken-en-gigantisch-spandoek-cristiano-ronaldo-laat-voeten-spreken-na-roerige-week~a11572fb/)
-  > Cristiano Ronaldo heeft na een week vol commotie zijn voeten laten spreken. De 41-jarige Portugees opende vrijdagavond de score namens Al-Nassr tegen...
-- [Bestuurder probeert politie te ontkomen, maar strandt op N65 bij Udenhout na achtervolging met hoge snelheden](https://www.ad.nl/tilburg/bestuurder-probeert-politie-te-ontkomen-maar-strandt-op-n65-bij-udenhout-na-achtervolging-met-hoge-snelheden~adc01458/)
-  > Een politieachtervolging die begon in de omgeving van Den Bosch is vrijdagavond geëindigd op de N65 ter hoogte van de McDonald’s in Udenhout. Daarbij...
+- [Met voltreffer op Yandex gaat oorlog Oekraïne een nieuwe fase in, kan uitlopen op een ramp voor Russen](https://www.ad.nl/buitenland/met-voltreffer-op-yandex-gaat-oorlog-oekraine-een-nieuwe-fase-in-kan-uitlopen-op-een-ramp-voor-russen~a2e3c69e/)
+  > Oekraïne bestookt nu ook het grootste it-bedrijf van Rusland: Yandex. In de regio Rjazan troffen drones het grootste datacentrum van de...
+- [Mediawaakhond wil ON! opnieuw sanctie opleggen na Hitler-uitzending](https://www.ad.nl/show/mediawaakhond-wil-on-opnieuw-sanctie-opleggen-na-hitler-uitzending~a20c4604/)
+  > Het Commissariaat voor de Media is van plan om Ongehoord Nederland een nieuwe sanctie op te leggen. ON!-directeur Peter Vlemmix zei recent in een...
+- [Hele dag geen treinen tussen Rotterdam en Delft door brandstichting op het spoor](https://www.ad.nl/rotterdam/hele-dag-geen-treinen-tussen-rotterdam-en-delft-door-brandstichting-op-het-spoor~a603fefa/)
+  > Door brand op het spoor rijden er geen treinen tussen Rotterdam en Delft Campus. Dat duurt volgens de NS en Prorail nog de hele zaterdag. Er is brand...
+- [Zo laat begint Max Verstappen vandaag vanaf pole aan sprintrace en dit is de startopstelling](https://www.ad.nl/formule-1/zo-laat-begint-max-verstappen-vandaag-vanaf-pole-aan-sprintrace-en-dit-is-de-startopstelling~a3fda41e/)
+  > Na de in Maleisië verreden Grand Prix van Bahrein zal Max Verstappen met een goed gevoel aanmeren bij de volgende halte: de GP van Singapore. Dat is...
+- [Orkaan Isaias raast over Florida: windstoot van 189 km/uur, waarschuwing voor overstromingen](https://www.ad.nl/buitenland/orkaan-isaias-raast-over-florida-windstoot-van-189-km-uur-waarschuwing-voor-overstromingen~ae8903646/)
+  > Orkaan Isaias is rond 20.30 uur (lokale tijd) aan land gekomen nabij de stad Destin in Florida, meldt de Amerikaanse National Weather Service (NWS)...
 
 ### Meest gelezen
 
@@ -46,6 +47,10 @@
 
 ### Laatste nieuws
 
+- [‘Paleis Soestdijk ontwikkelt zich steeds verder tot commerciële exploitatie van het landgoed’](https://fd.nl/opinie/1615078/paleis-soestdijk-ontwikkelt-zich-steeds-verder-tot-commerciele-exploitatie-van-het-landgoed-en-andere-lezersreacties)
+  > FD-lezers reageren op een ietwat bouwvallig voormalig Oranje-paleis, de spreiding van AI door heel het land, het belasten van vermogen in box 3 en...
+- [Waarom ligt het vliegverkeer nog niet stil? En moeten we bang zijn voor hedgefondsen?](https://fd.nl/economie/1615158/waarom-ligt-het-vliegverkeer-nog-niet-stil-en-moeten-we-bang-zijn-voor-hedgefondsen)
+  > De oorlog in Iran zou onze vliegplannen flink in de war schoppen, maar de kerosine bleef stromen. Ondertussen nemen hedgefondsen steeds grotere...
 - [Niet best: prijswinnende economen werken vaker bij dezelfde universiteiten](https://fd.nl/politiek/1615129/niet-best-prijswinnende-economen-werken-vaker-bij-dezelfde-universiteiten)
   > De top van de economische wetenschap concentreert zich bij een paar universiteiten in de VS. Maar een rijke diversiteit aan ideeën is juist de...
 - [In Finland is het een privilege om
@@ -53,10 +58,6 @@ de grensbewaking van dichtbij te leren kennen](https://fd.nl/samenleving/1614989
   > Het FD schoof een dag aan bij een cursus waar hooggeplaatste Finnen de beveiliging van hun land bespreken. Er is veel belangstelling voor en lang...
 - [Rond het Spaanse Almería bevindt zich een parallelle samenleving](https://fd.nl/samenleving/1614931/rond-het-spaanse-almeria-bevindt-zich-een-parallelle-samenleving)
   > In het Zuid-Spaanse Almería bevindt zich het grootste kassencomplex van Europa. Fotograaf Rob Hornstra legde daar de lokale bevolking en...
-- [Honderdduizend nieuwe woningen per jaar, maar wie koopt ze?](https://fd.nl/economie/1614783/honderdduizend-nieuwe-woningen-per-jaar-maar-wie-koopt-ze)
-  > Het aanbod van nieuwbouwwoningen groeit, maar interesse van kopers ontbreekt. Wat is er aan de hand?
-- [Ballade van het tragische Kamerlid](https://fd.nl/opinie/1614656/ballade-van-het-tragische-kamerlid)
-  > Hoe een volksvertegenwoordiger zich inzet om het land van de ondergang te redden, wat alom tot vertwijfeling leidt.
 
 ### Meest gelezen
 
