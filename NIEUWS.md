@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-10-2026 om 08:30*
+*Laatst bijgewerkt: 11-10-2026 om 15:27*
 
 ---
 
@@ -8,16 +8,18 @@
 
 ### Laatste nieuws
 
-- [14 doden bij 2 gezinsmoorden in Pennsylvania en Georgia](https://nos.nl/l/2634542)
-  > Bij twee gezinsmoorden in de VS zijn dit weekend in totaal veertien doden gevallen. Bij een schietpartij in Pennsylvania kwamen negen mensen om, bij...
-- [Amerikanen nemen vrachtschip onder vuur dat eerder uit Iran zou zijn vertrokken](https://nos.nl/l/2634540)
-  > Een vrachtschip is stuurloos geraakt in de Golf van Oman na een Amerikaanse aanval. Het schip was volgens de Amerikanen daarvoor vertrokken uit Iran...
-- [Brede verontwaardiging over aanval op luchthaven Riyad: 'Gevaarlijke escalatie'](https://nos.nl/l/2634536)
-  > De aanval van Houthi-rebellen op de luchthaven van de Saudische hoofdstad Riyad wordt internationaal breed afgekeurd. Wereldleiders spreken schande...
-- [Leiders Indiase Kakkerlakkenbeweging na een dag vrijgelaten](https://nos.nl/l/2634534)
-  > Oprichter Abhijeet Dipke en twee andere leiders van de Indiase Kakkerlakkenbeweging zijn weer vrij. De advocaat van Dipke bevestigt berichten...
-- [Noorderlicht te zien in delen van Nederland (en alleen met camera)](https://nos.nl/l/2634532)
-  > Tussen de regenbuien door was gisteravond en vannacht het noorderlicht te zien. Althans: door een lens. Het zogeheten fotografisch noorderlicht zie...
+- [Spoedoverleg Poolse veiligheidsdiensten wegens dreigende aanslag op premier Tusk](https://nos.nl/l/2634595)
+  > Poolse veiligheidsdiensten zijn bijeen gekomen voor een spoedoverleg na informatie over een mogelijke aanslag op premier Donald Tusk en minister van...
+- [Marechaussee pakte 24.000 euro casinowinst onterecht af bij slapende man in auto](https://nos.nl/l/2634586)
+  > Een Litouwse man die vorige maand in Venlo slapend met 24.000 euro achter het stuur werd aangetroffen, krijgt zijn geld terug. Zijn bewering dat hij...
+- [Utrecht worstelt met aanpak malafide verhuurders en kijkt naar Rotterdam](https://nos.nl/l/2634576)
+  > Achterstallig onderhoud, discriminatie en veel te hoge servicekosten: verhuurders in Utrecht overtreden regelmatig de regels voor goed...
+- [Retourtje via Noordelijke IJszee primeur voor Zuid-Koreaans containerschip](https://nos.nl/l/2634573)
+  > In vijftig dagen van Zuid-Korea naar Europa en weer terug met een gigantisch containerschip. Dat was lang onmogelijk, maar is nu gelukt.
+        De...
+- [Doden bij busongeluk Turkije](https://nos.nl/l/2634570)
+  > Bij een zwaar busongeluk in Turkije zijn zeker elf mensen om het leven gekomen. Ook raakten 27 mensen gewond.
+        De touringcar verongelukte op...
 
 ### Meest gelezen
 
@@ -27,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Vlekken in je synthetische wasgoed? Dan moet je deze wasmachines hebben volgens de Consumentenbond](https://www.ad.nl/wonen/vlekken-in-je-synthetische-wasgoed-dan-moet-je-deze-wasmachines-hebben-volgens-de-consumentenbond~aa38fc74/)
-  > Heb je een groot gezin, dan krijg je daar gratis een hele berg wasgoed bij. Dan is een wasmachine met een ruime trommel wel zo handig. De...
-- [4,5 ster voor musical Next to Normal: ‘Buitengewoon sterk drama’](https://www.ad.nl/show/4-5-ster-voor-musical-next-to-normal-buitengewoon-sterk-drama~ad63c6e1/)
-  > Een musical over een moeder met een bipolaire stoornis die crasht omdat ze de dood van haar zoontje nooit heeft verwerkt. Het lijkt zware kost, maar...
-- [Robert Maaskant openhartig over de euthanasie van zijn ouders: ‘Dat is in Nederland moeilijk bespreekbaar’](https://www.ad.nl/regiosport-breda/robert-maaskant-openhartig-over-de-euthanasie-van-zijn-ouders-dat-is-in-nederland-moeilijk-bespreekbaar~a07850a9/)
-  > Bij een voltooid leven moeten de regels voor euthanasie soepeler worden, vindt Robert Maaskant (57) na een paar jaar mantelzorg voor zijn onlangs...
-- [Elektrische versie van de ‘Lelijke Eend’ komt eraan: al 70 jaar niet kapot te krijgen](https://www.ad.nl/auto/elektrische-versie-van-de-lelijke-eend-komt-eraan-al-70-jaar-niet-kapot-te-krijgen~a22af101/)
-  > Retro-autootjes zijn niet aan te slepen. Nadat de concurrentie al nieuwe versies van de Mini, Fiat 500 en Renault 5 heeft uitgebracht, komt Citroën...
-- [LIVE eredivisie | Feyenoord verwacht Watanabe terug voor CL-duel, Zerrouki noemt gelijkspel ‘tikkeltje beschamend’](https://www.ad.nl/voetbal/live-eredivisie-feyenoord-verwacht-watanabe-terug-voor-cl-duel-zerrouki-noemt-gelijkspel-tikkeltje-beschamend~a378dc98/)
-  > Het nieuwe eredivisieseizoen is in volle gang. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we je...
+- [Lewis Hamilton stapt ziek uit auto in Singapore, Kimi Antonelli nog niet bezig met wereldtitel](https://www.ad.nl/formule-1/lewis-hamilton-stapt-ziek-uit-auto-in-singapore-kimi-antonelli-nog-niet-bezig-met-wereldtitel~afd17814/)
+  > De Formule 1 dendert door in deze periode. Volg alle ontwikkelingen hier.
+- [Liverpool-fans geven 'valsspelend' Manchester City warm onthaal voor topper op Anfield](https://www.ad.nl/voetbal/liverpool-fans-geven-valsspelend-manchester-city-warm-onthaal-voor-topper-op-anfield~ad2914f5/)
+  > Manchester City gaat door een turbulente periode. De topclub is schuldig bevonden aan ernstige schendingen van de financiële regels van de Premier...
+- [Supervrijwilliger Rinus (78) per brief bedankt bij zijn voetbalclub: ‘Ze komen de sleutels maar halen’](https://www.ad.nl/binnenland/supervrijwilliger-rinus-78-per-brief-bedankt-bij-zijn-voetbalclub-ze-komen-de-sleutels-maar-halen~a38e7b60/)
+  > Scheveninger Rinus Jenezon is al zestig jaar vrijwilliger bij de lokale voetbalclub en wilde hiermee doorgaan tot zijn 80ste. Tot hij na zijn...
+- [Rood voor Malen tegen Feyenoord-opponent Como, Lazio pakt koppositie van Roma af dankzij assists Noslin](https://www.ad.nl/voetbal/rood-voor-malen-tegen-feyenoord-opponent-como-lazio-pakt-koppositie-van-roma-af-dankzij-assists-noslin~aff02507/)
+  > AS Roma-spits Donyell Malen heeft een vervelende middag beleefd. De topscorer van de Serie A kreeg na rust rood op bezoek bij Como, komende woensdag...
+- [LIVE eredivisie | Excelsior kan maar kort van gelijkmaker genieten: doelman gaat de mist in](https://www.ad.nl/voetbal/live-eredivisie-excelsior-kan-maar-kort-van-gelijkmaker-genieten-doelman-gaat-de-mist-in~a87de820/)
+  > Excelsior en FC Groningen hebben een goede competitiestart achter de rug. Beide ploegen haalden uit de eerste zeven wedstrijden elf punten. Volg het...
 
 ### Meest gelezen
 
@@ -46,16 +48,16 @@
 
 ### Laatste nieuws
 
-- [Wethouders grote steden zoeken vastgoedbelegger op: ‘Buitenlands geld nodig om te bouwen’](https://fd.nl/politiek/1615027/wethouders-grote-steden-zoeken-vastgoedbelegger-op-buitenlands-geld-nodig-om-te-bouwen)
-  > ‘We moeten van plannen maken naar concrete woningen, en er is buitenlands geld voor nodig om dat te realiseren’, zegt de Amsterdamse wethouder...
-- [Zeker 12 doden en meer dan 300 gewonden bij aanvallen op Saudische luchthaven](https://fd.nl/samenleving/1615074/zeker-12-doden-en-meer-dan-300-gewonden-bij-aanvallen-op-saudische-luchthaven)
-  > Volgens The New York Times heeft een hoge functionaris van de Houthi-rebellen de aanval opgeëist.
-- [Toekomst van het mkb: één ondernemer met een leger AI-agents](https://fd.nl/opinie/1614579/toekomst-van-het-mkb-een-ondernemer-met-een-leger-ai-agents)
-  > Eén of twee ondernemers, nul werknemers. De AI-revolutie wordt een zegen voor het midden- en kleinbedrijf. Huur je nu nog zzp’ers of werknemers in,...
-- [Voormalige koloniale olievelden moeten Indonesië miljoen olievaten per dag opleveren](https://fd.nl/economie/1614812/voormalige-koloniale-olievelden-moeten-indonesie-miljoen-olievaten-per-dag-opleveren)
-  > Oliebronnen die nog door de Dortsche Petroleum Maatschappij en soortgelijke koloniale bedrijven zijn geslagen spelen een rol in de energiestrategie...
-- [Hoge druk, complex werk en bedreigingen: hoe blijven lokale politici enthousiast?](https://fd.nl/politiek/1614779/hoge-druk-complex-werk-en-bedreigingen-hoe-blijven-lokale-politici-enthousiast)
-  > Wethouders, burgemeesters en raadsleden praten in de Achterhoek over hoe hun werk beloond moet worden. ‘De logica moet niet zijn dat als er een azc...
+- [Waarom reageren beleggers zo lauw op megawinsten geheugenchipmakers? ‘Het is een cyclus’](https://fd.nl/financiele-markten/1615132/waarom-reageren-beleggers-zo-lauw-op-megawinsten-geheugenchipmakers-het-is-een-cyclus)
+  > Lage waarderingen voor de verwachte winsten van Samsung en Micron tonen twijfels over de houdbaarheid van die winsten. ‘Óf de aandelenkoersen zijn te...
+- [Big Four mikken in AI-tijdperk op menselijke vaardigheden](https://fd.nl/financiele-markten/1615131/big-four-mikken-in-ai-tijdperk-op-menselijke-vaardigheden)
+  > Advies- en accountantskantoren verwachten van medewerkers vooral kwaliteiten op het gebied van samenwerking, communicatie en creativiteit, die...
+- [Nieuwe klimaatzaak tegen Shell in Brazilië](https://fd.nl/bedrijfsleven/1615191/nieuwe-klimaatzaak-tegen-shell-in-brazilie)
+  > De Braziliaanse justitie en een ngo vinden dat Shell moet betalen voor zijn aandeel in de wereldwijde uitstoot, die tot klimaatverandering en hevige...
+- [Oekraïne bestookt Russische techgigant Yandex met drones](https://fd.nl/bedrijfsleven/1615278/oekraine-bestookt-russische-techgigant-yandex-met-drones)
+  > In de afgelopen vier dagen zijn drie datacenters van het grootste IT-bedrijf van Rusland geraakt en deels uitgevallen.
+- [NAM en Tenaz, toch geen communicerende vaten](https://fd.nl/financiele-markten/1615161/nam-en-tenaz-toch-geen-communicerende-vaten)
+  > NAM verkocht offshorevelden en dus daalde de sloopvoorzieningen. Maar bij Tenaz stegen de sloopvoorzieningen beduidend minder hard.
 
 ### Meest gelezen
 
