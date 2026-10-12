@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-10-2026 om 07:05*
+*Laatst bijgewerkt: 12-10-2026 om 17:34*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Geen bezorging en verkeerde prijzen in supermarkt na 'IT-incident' bij Albert Heijn](https://nos.nl/l/2634644)
-  > Albert Heijn, Etos en Gall & Gall kampen sinds zondagmiddag met een storing. Dat komt volgens Albert Heijn door "een IT-incident". Websites, apps en...
-- [Litouwen en Polen bereiden zich met oefening voor op vluchtelingencrisis](https://nos.nl/l/2634640)
-  > Litouwen en Polen werken aan plannen voor massale evacuaties voor het geval een oorlog met Rusland uitbreekt. In dat scenario houden de landen er...
-- [Wekdienst 12/10: Winnaar Nobelprijs voor Economie bekend • Zeldzame toespraak NAVO-topmilitair](https://nos.nl/l/2634639)
-  > Goedemorgen! De Amerikaanse opperbevelhebber van de NAVO gaat in een zeldzame toespraak in op de vraag hoe Rusland bij een aanval verslagen kan...
-- [D66 wil drempel omlaag om kind te spreken bij vermoedens kindermishandeling](https://nos.nl/l/2634638)
-  > Regeringspartij D66 wil dat er bij ernstige signalen van kindermishandeling snel wordt gesproken met het kind, waar nodig zonder overleg met de...
-- [Hoe Rusland te verslaan? Topmilitair NAVO geeft antwoord in zeldzame toespraak](https://nos.nl/l/2634636)
-  > Hoe verslaat de NAVO Rusland als dat land het militaire bondgenootschap aanvalt? De militair commandant van de alliantie geeft vanmiddag het antwoord...
+- [EU-landen wachten met harde reactie na sancties VS tegen Strafhof](https://nos.nl/l/2634724)
+  > De Europese Unie kiest voorlopig de diplomatieke weg om het Internationaal Strafhof (ICC) in Den Haag overeind te houden. Harde maatregelen tegen de...
+- [Spoormedewerkers vertellen over suïcide: '1,5 uur op haar in staan praten'](https://nos.nl/l/2634723)
+  > Ga het gesprek aan: dat is de boodschap van een nieuwe campagne voor suïcidepreventie op het spoor. Jaarlijks komen in Nederland zo'n 200 mensen om...
+- [Britse premier: Iraanse Revolutionaire Garde zat achter incident bij vliegbasis](https://nos.nl/l/2634722)
+  > Iran zit "hoogstwaarschijnlijk" achter de verdachte situatie op een luchtmachtbasis in het Verenigd Koninkrijk eind vorige maand, zegt premier...
+- [Hoogste NAVO-militair wil met speech geruststellen, maar twijfel over rol VS niet weg](https://nos.nl/l/2634720)
+  > Uitstralen dat het bondgenootschap klaarstaat in het geval van een Russische aanval, dat wilde de Amerikaanse NAVO-opperbevelhebber Alexus Grynkewich...
+- [Minister Hermans schrapt 13-wekenecho voor zwangeren per 2028](https://nos.nl/l/2634708)
+  > Zwangeren kunnen vanaf 1 januari 2028 geen gebruik meer maken van een 13-wekenecho. Het huidige experiment met de echo om aangeboren afwijkingen op...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De Fabeltjeskrant terug van weggeweest: ‘De dieren zijn tot leven gewekt in zijn animatiestudio’](https://www.ad.nl/show/de-fabeltjeskrant-terug-van-weggeweest-de-dieren-zijn-tot-leven-gewekt-in-zijn-animatiestudio~afd95d0a/)
-  > Het iconische programma De Fabeltjeskrant keert terug op televisie. Niet in een reeks met werkelijke poppen, maar als animatieserie. De makers zijn...
-- [Grotverkenner levend begraven op 10 meter diepte na aardverschuiving op Sardinië](https://www.ad.nl/buitenland/grotverkenner-levend-begraven-op-10-meter-diepte-na-aardverschuiving-op-sardinie~ad7d76e2/)
-  > Een nachtmerrie heeft zich voltrokken op het Italiaanse eiland Sardinië: een grotverkenner is daar zondagavond levend begraven in een grot. Door een...
-- [Hakim had 6 shells, 10 supercobra’s en 19 kilo vuurwerk in huis](https://www.ad.nl/binnenland/hakim-had-6-shells-10-supercobras-en-19-kilo-vuurwerk-in-huis~a418239b/)
-  > Zes shells, tien supercobra’s, een geknutseld Pringles-projectiel en 19 kilo consumentenvuurwerk. Het ligt allemaal in de woning van Hakim als de...
-- [Feyenoorder Nacho Ferri heeft vizier op scherp, slechts twee spelers ouder met goal tegen Ajax](https://www.ad.nl/voetbal/feyenoorder-nacho-ferri-heeft-vizier-op-scherp-slechts-twee-spelers-ouder-met-goal-tegen-ajax~a639f28a/)
-  > PSV (2-0 tegen Heerenveen) en Feyenoord (2-0 tegen AZ) hervatten de eredivisie met een zege, Ajax morste punten tegen NEC (1-1). Wat viel nog meer...
-- [Albert Heijn kampt met grote IT-storing, foute prijzen zichtbaar op kaartjes in de schappen](https://www.ad.nl/binnenland/albert-heijn-kampt-met-grote-it-storing-foute-prijzen-zichtbaar-op-kaartjes-in-de-schappen~aa4cbd47/)
-  > Albert Heijn, Etos en Gall & Gall kampen sinds zondag met een ‘IT-incident’, waardoor een aantal systemen uit voorzorg zijn uitgeschakeld. Hierdoor...
+- [Romee Strijd doet dit jaar niet mee aan Victoria’s Secret Show: ‘Het hele verhaal klopt niet’](https://www.ad.nl/show/romee-strijd-doet-dit-jaar-niet-mee-aan-victorias-secret-show-het-hele-verhaal-klopt-niet~a6654a05/)
+  > Romee Strijd loopt dit jaar niet mee in de modeshow van Victoria’s Secret. Het Nederlandse model vertelt op TikTok dat ze is afgewezen na de casting....
+- [Lezers over of hun kind een smartphone mag: ‘Grenzen stellen is geen straf’](https://www.ad.nl/praat-mee/lezers-over-of-hun-kind-een-smartphone-mag-grenzen-stellen-is-geen-straf~ad3e93f6/)
+  > Columnist Eus is streng: zijn dochter en zoon krijgen tot hun zestiende géén smartphone. Maar hoe haalbaar is dat? We vroegen lezers hoe zij thuis...
+- [Trotse Roxane Knetemann over Eneco Tour: ‘Mannen en vrouwen om en om, dat is echt een nieuw concept’](https://www.ad.nl/wielrennen/trotse-roxane-knetemann-over-eneco-tour-mannen-en-vrouwen-om-en-om-dat-is-echt-een-nieuw-concept~af2a3f16/)
+  > De Eneco Tour heeft dit jaar naast de manneneditie óók een vrouwenkoers. Zij rijden op hetzelfde parkoers. De proloog in Den Haag krijgt dinsdag een...
+- [Bespaar erfbelasting met een papieren schenking](https://www.ad.nl/geld/bespaar-erfbelasting-met-een-papieren-schenking~a59a8524/)
+  > Een meerderheid in de Tweede Kamer wil de hervorming van box 3 gedeeltelijk betalen door papieren schenkingen aan te pakken. Hiermee kunnen mensen...
+- [Dode en 23 gewonden in Israël nadat scholier stuk munitie oppakt tijdens schoolreisje](https://www.ad.nl/buitenland/dode-en-23-gewonden-in-israel-nadat-scholier-stuk-munitie-oppakt-tijdens-schoolreisje~a528f198/)
+  > De ontploffing zou hebben plaatsgevonden vlak bij de grens met Libanon. Uit de eerste onderzoeksresultaten komt naar voren dat een scholier munitie...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘IT-incident’ bij Albert Heijn, geen bezorging van boodschappen](https://fd.nl/bedrijfsleven/1615316/it-incident-bij-albert-heijn-geen-bezorging-van-boodschappen)
-  > De apps, websites en klantenservice van Albert Heijn, Etos en Gall & Gall liggen sinds zondagmiddag plat. De systemen zijn preventief tijdelijk...
-- [Nederlandse export bijna 5% hoger in augustus](https://fd.nl/economie/1615198/nederlandse-export-bijna-5-hoger-in-augustus)
-  > Tussen augustus en nu zijn de omstandigheden voor de export verder verbeterd, schrijft het Centraal Bureau voor de Statistiek.
-- [CBS: meer faillissementen in september](https://fd.nl/economie/1615197/cbs-meer-faillissementen-in-september)
-  > Het gaat om 320 ondernemingen die failliet werden verklaard. Dat zijn er 44 meer dan een jaar eerder.
-- [Opnieuw Houthi-aanval op Saoedisch vliegveld](https://fd.nl/politiek/1615315/opnieuw-houthi-aanval-op-saoedisch-vliegveld)
-  > Bij de aanval werd een ballistische raket van de Houthi’s onderschept, zo melden de Saoedische autoriteiten.
-- [Live: AEX-index opent iets hoger, Ahold daalt ruim 1%](https://fd.nl/financiele-markten/1615189/live-licht-lagere-olieprijs-na-opgelegd-bestand)
-  > Het seizoen met de publicatie van de bedrijfsresultaten begint deze week. Voorafgaand ligt de financiële focus op de renteontwikkelingen en de prijs...
+- [Russen lappen Trumps energiebestand aan hun laars](https://fd.nl/politiek/1615487/russen-lappen-trumps-energiebestand-aan-hun-laars)
+  > Van een door president Trump uitgeroepen staakt-het-vuren is in Oekraïne weinig te merken. De Russische luchtaanvallen gaan gewoon door.
+- [Starbucks wil Chipotle niet overnemen](https://fd.nl/financiele-markten/1615493/starbucks-wil-chipotle-niet-overnemen)
+  > Vorige week meldde de zakenkrant de Financial Times dat de koffieketen een overnamebod op de fastfoodketen aan het voorbereiden was. Starbucks...
+- [Houthi-raketten zetten Saoedische grootmacht te kijk: ‘De grootste bedreiging sinds de oprichting van het land’](https://fd.nl/politiek/1615403/houthi-raketten-zetten-saoedische-grootmacht-te-kijk-de-grootste-bedreiging-sinds-de-oprichting-van-het-land)
+  > Ze mogen dan soms op sandalen rondlopen, de Houthi’s zijn allang geen slechtbewapende rebellenclub meer. Recente aanvallen op luchthavens bij Riyad...
+- [Bezoek van Spaanse koning aan Ceuta zet relatie met Marokko op scherp](https://fd.nl/politiek/1615404/bezoek-van-spaanse-koning-aan-ceuta-zet-relatie-met-marokko-op-scherp)
+  > De Spaanse koning Felipe en zijn vrouw brengen een tweedaags bezoek aan de Spaanse exclaves aan de Noord-Afrikaanse kust. Marokko ziet de reis als...
+- [Geen vier biertjes van Jetten voor studenten](https://fd.nl/samenleving/1615399/geen-vier-biertjes-van-jetten-voor-studenten)
+  > De hogere rente op studieschuld zorgde voor paniek bij studenten. De vraag is of die terecht is en hoeveel het beloofde plafond van het...
 
 ### Meest gelezen
 
