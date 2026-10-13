@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-10-2026 om 07:29*
+*Laatst bijgewerkt: 13-10-2026 om 15:43*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Duitsland pakt twee verdachten op voor Starlink-sabotage in Polen](https://nos.nl/l/2634761)
-  > In Duitsland zijn twee mensen opgepakt die worden verdacht van het saboteren van een Starlink-installatie in Polen. Dat laat de Poolse premier Tusk...
-- [Ook IMF optimistischer over de Nederlandse economie: groei van 1,5 procent](https://nos.nl/l/2634757)
-  > De Nederlandse economie blijft relatief goed draaien, ondanks de economische en politieke onrust in de wereld. Ook het Internationaal Monetair Fonds...
-- [Wekdienst 13/10: Bendelid hoort straf voor moord op rapper 2Pac • Operatie paus Leo](https://nos.nl/l/2634754)
-  > Goedemorgen! In de VS hoort een voormalig bendelid welke straf hij krijgt voor de moord op rapper 2Pac en in Rome ondergaat paus Leo een operatie...
-- [Meldpunt Veilig Thuis alarmeert: 'We kunnen het werk niet meer aan'](https://nos.nl/l/2634752)
-  > Een melding van huiselijk geweld of kindermishandeling belandt vaak op een grote stapel. Al jaren duurt het te lang voordat er actie wordt...
-- [Dode bij achtbaanongeluk in VS, man werd uit kar geslingerd](https://nos.nl/l/2634751)
-  > Bij een ongeluk met een achtbaan in de Amerikaanse staat Georgia is iemand om het leven gekomen en zijn meerdere mensen gewond geraakt. Dat gebeurde...
+- [Zelensky: Rusland houdt zich al dagen niet aan 'energiebestand' Trump](https://nos.nl/l/2634816)
+  > Oekraïne heeft zich de afgelopen twee dagen gehouden aan het "energiebestand" dat de Amerikaanse president Trump zondag op eigen houtje afkondigde,...
+- [China legt sancties op aan Paraguay en Belize om steun aan Taiwan](https://nos.nl/l/2634815)
+  > China heeft sancties opgelegd aan ministers uit Paraguay en Belize omdat deze landen diplomatieke betrekkingen met Taiwan onderhouden. China...
+- [Nederlander op Britse sanctielijst om leveringen aan Russische metaalbedrijven](https://nos.nl/l/2634814)
+  > De Britse overheid heeft sancties opgelegd aan een Nederlander vanwege verboden leveringen aan Rusland. Het gaat om Alexander T., de mede-eigenaar...
+- [Morgen eerste stakingsdag in streekvervoer, ov in grote steden rijdt wel](https://nos.nl/l/2634813)
+  > Morgen is de eerste stakingsdag in het streekvervoer, als onderdeel van een reeks stakingen die tot de kerst doorgaan. In grote delen van het land...
+- [Nederland niet klaar voor groot militair transport in geval van oorlog, zegt Rekenkamer](https://nos.nl/l/2634808)
+  > Onze wegen en ons spoornet zijn niet klaar voor grote militaire transporten tijdens een oorlog op ons continent, terwijl we daar volgens afspraken in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Lege schappen bij AH: versproducten niet geleverd, ook vandaag nog geen thuisbezorging](https://www.ad.nl/binnenland/lege-schappen-bij-ah-versproducten-niet-geleverd-ook-vandaag-nog-geen-thuisbezorging~aaf5c5a6/)
-  > Het is chaos bij Albert Heijn. De supermarktketen werd zondagmiddag getroffen door een cybersecurity-incident. De website ging offline, boodschappen...
-- [Ben Affleck haalt uit naar Warner Bros om vertrek Justice League-regisseur: ‘Walgelijk’](https://www.ad.nl/show/ben-affleck-haalt-uit-naar-warner-bros-om-vertrek-justice-league-regisseur-walgelijk~a992e800/)
-  > Ben Affleck heeft stevige kritiek geuit op de manier waarop filmstudio Warner Bros omging met het vertrek van regisseur Zack Snyder bij de...
-- [Een beetje leuk ouder worden? Stel hier je vraag aan Yvonne Kroonenberg](https://www.ad.nl/mezza/een-beetje-leuk-ouder-worden-stel-hier-je-vraag-aan-yvonne-kroonenberg~a70dd4b1/)
-  > Altijd al een prangende vraag gehad over hoe je een beetje goedgemutst oud kunt worden? Wat doe je bijvoorbeeld met een afnemend libido? Kinderen die...
-- [Gecombineerde proloog in Eneco Tour onder kunstlicht moet voor spektakel zorgen: waar moet je op letten?](https://www.ad.nl/wielrennen/gecombineerde-proloog-in-eneco-tour-onder-kunstlicht-moet-voor-spektakel-zorgen-waar-moet-je-op-letten~a6bfedba/)
-  > Het wielerseizoen eindigt deze week met de Eneco Tour, die vanaf vandaag tot en met zondag gereden wordt. Tijdens de tweede editie van de Nederlandse...
-- [PSV gaat bij RB Leipzig op zoek naar eerste driepunter, vermoedelijk basisplaats voor Filip Kostic](https://www.ad.nl/voetbal/psv-gaat-bij-rb-leipzig-op-zoek-naar-eerste-driepunter-vermoedelijk-basisplaats-voor-filip-kostic~a6ab409e/)
-  > Weer geen perfecte start voor PSV in de Champions League na het gelijke spel in eigen huis tegen Sjachtar Donetsk (1-1). Pakt de ploeg van Peter Bosz...
+- [ANWB komt in actie tegen Belgisch wegenvignet: ‘Dit is een stap terug’](https://www.ad.nl/binnenland/anwb-komt-in-actie-tegen-belgisch-wegenvignet-dit-is-een-stap-terug~a8a9b9ea/)
+  > Ook de ANWB verzet zich tegen de plannen voor een wegenvignet in België. De belangenorganisatie stelt dat zo’n vignet grensoverschrijdend verkeer...
+- [Shell stopt vanaf november met Air Miles](https://www.ad.nl/economie/shell-stopt-vanaf-november-met-air-miles~aaec3001/)
+  > Tank je volgende maand bij Shell? Kijk dan niet gek op als je geen Air Miles meer spaart. Het bedrijf stopt vanaf 1 november met het uitdelen van Air...
+- [Henk Fraser reageert op racisme bij duel Suriname: ‘Er waren ook spelers van Guatemala die er schande van spraken’](https://www.ad.nl/voetbal/henk-fraser-reageert-op-racisme-bij-duel-suriname-er-waren-ook-spelers-van-guatemala-die-er-schande-van-spraken~ac0c1837/)
+  > Suriname wacht nog altijd af of het officiële protest dat de voetbalbond indiende bij de Concacaf iets oplevert. Het racistisch bejegen van de...
+- [FIFA ontkent dat Infantino extra salaris krijgt, Čeferin wil opgaan voor vierde termijn als UEFA-voorzitter](https://www.ad.nl/voetbal/fifa-ontkent-dat-infantino-extra-salaris-krijgt-ceferin-wil-opgaan-voor-vierde-termijn-als-uefa-voorzitter~a2544497/)
+  > De KNVB en de UEFA hebben hun vertrouwen in FIFA-baas Gianni Infantino opgezegd, nadat hij zijn omstreden plan om een deel van de WK-rechten te...
+- [Mossou schrijft: ‘Clubs hebben zichzelf wijsgemaakt dat er staatsgeheimen op het spel staan’](https://www.ad.nl/sport/mossou-schrijft-clubs-hebben-zichzelf-wijsgemaakt-dat-er-staatsgeheimen-op-het-spel-staan~af592adb/)
+  > Bij de meeste clubs komt slechts een handvol mensen kijken, maar besloten trainingen worden steeds meer gemeengoed in Nederland. AD-columnist en...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [De harde groei van het aantal Chinese patenten raakt ook bedrijven in Nederland](https://fd.nl/opinie/1615483/groei-van-chinese-patenten-raakt-ook-bedrijven-hier)
-  > China werkt hard aan een patentenstapel. Dat maakt Nederlandse uitvindingen minder vaak nieuw en kan productie uit China verdrijven.
-- [Oekraïens schip zinkt voor Bulgaarse kust na droneaanval](https://fd.nl/politiek/1615409/oekraiens-schip-zinkt-voor-bulgaarse-kust-na-droneaanval)
-  > Welk land de aanval heeft uitgevoerd, is niet duidelijk. De Bulgaarse premier ontbiedt hoe dan ook de Russische ambassadeur.
-- [Inflatie kwam in september uit op 3,4%](https://fd.nl/economie/1615545/inflatie-kwam-in-september-uit-op-3-4)
-  > Met name brandstof werd duurder.
-- [‘Kort geding tegen Meta om AI-brillen’](https://fd.nl/bedrijfsleven/1615406/kort-geding-tegen-meta-om-ai-brillen)
-  > Nu.nl schrijft dat de Consumentenbond en de stichtingen Offlimits en The Firewall een kort geding tegen Meta starten.
-- [Live: Overwegend groene koersborden in Europa](https://fd.nl/financiele-markten/1615542/live-onzekerheid-over-ai-leeft-op-kospi-levert-6-5-in)
-  > De topman van Broadcom zegt dat de AI-hype beleggers trekt die zich gedragen als gokkers. Techaandelen in Azië en Europa staan onder druk.
+- [Kamer schrikt van eigen plan om personeelskorting te schrappen](https://fd.nl/politiek/1615415/kamer-schrikt-van-eigen-plan-om-personeelskorting-te-schrappen)
+  > Onder meer SGP, VVD en CDA vragen het kabinet naar alternatieven om het populaire belastingvoordeeltje te behouden. Het was nota bene de SGP zelf die...
+- [Lege schappen door cybercrisis laten zien: in kwetsbare Nederlandse keten komt voedsel geen minuut te vroeg](https://fd.nl/bedrijfsleven/1615576/lege-schappen-door-cybercrisis-laten-zien-in-kwetsbare-nederlandse-keten-komt-voedsel-geen-minuut-te-vroeg)
+  > Bedrijven die dagelijks zorgen voor eten op de borden, kijken pas sinds kort naar weerbaarheid. ‘Maar we moeten ook een dagje zonder de supermarkt...
+- [Antirokers verliezen in hoger beroep rechtszaak tegen filtersigaret](https://fd.nl/bedrijfsleven/1615578/antirokers-verliezen-in-hoger-beroep-rechtszaak-tegen-filtersigaret)
+  > Toezichthouder NVWA hoeft geen andere meetmethode te gebruiken om schadelijkheid van filtersigaretten vast te stellen.
+- [‘Nederland niet klaar voor transport militair materieel’](https://fd.nl/samenleving/1615577/nederland-niet-klaar-voor-transport-militair-materieel)
+  > Volgens de Rekenkamer zijn auto- en spoorwegen niet overal geschikt voor zware defensietransporten.
+- [Kabinet wil omstreden massaclaimwet voorlopig niet aanpassen](https://fd.nl/financiele-markten/1615569/kabinet-wil-omstreden-massaclaimwet-voorlopig-niet-aanpassen)
+  > De Wamca blijft voorlopig ongewijzigd. Hoewel collectieve rechtszaken vaak jarenlang voortslepen, ziet het kabinet na een evaluatie nog geen reden om...
 
 ### Meest gelezen
 
