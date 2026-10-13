@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 13-10-2026 om 00:21*
+*Laatst bijgewerkt: 13-10-2026 om 07:29*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Breaking Bad-acteur RJ Mitte op 34-jarige leeftijd overleden](https://nos.nl/l/2634749)
-  > De Amerikaanse acteur RJ Mitte, die vooral bekend werd van de tv-serie Breaking Bad, is op 34-jarige leeftijd overleden. Dat meldt een woordvoerder...
-- [Smulders, Ostermann en Yentl en de Boer winnen cabaretprijs Poelifinario](https://nos.nl/l/2634748)
-  > Ruud Smulders, Lisa Ostermann en het duo Yentl en de Boer hebben een Poelifinario gewonnen, de belangrijkste Nederlandse cabaretprijs. Dat gebeurde...
-- [Storing bij AH zou cyberaanval kunnen zijn: 'Je neemt niet zomaar zulke maatregelen'](https://nos.nl/l/2634740)
-  > Cybersecuritydeskundigen zeggen dat het mogelijk is dat er iemand is binnengedrongen in de systemen van de Albert Heijn. Sinds gistermiddag worstelt...
-- [Zanger Heino krijgt schadevergoeding van AfD om vals stemadvies](https://nos.nl/l/2634737)
-  > De Duitse partij AfD moet een schadevergoeding van 7500 euro betalen aan schlagerzanger Heino (87). Een kandidaat van de radicaal-rechtse partij had...
-- [Einde dreigt voor Zeehondencentrum, dure nieuwbouw en tegenvallers nekslag](https://nos.nl/l/2634733)
-  > Het Zeehondencentrum Pieterburen, dat recent is opgegaan in het Werelderfgoedcentrum Waddenzee, dreigt binnen twee weken failliet te gaan. Het...
+- [Duitsland pakt twee verdachten op voor Starlink-sabotage in Polen](https://nos.nl/l/2634761)
+  > In Duitsland zijn twee mensen opgepakt die worden verdacht van het saboteren van een Starlink-installatie in Polen. Dat laat de Poolse premier Tusk...
+- [Ook IMF optimistischer over de Nederlandse economie: groei van 1,5 procent](https://nos.nl/l/2634757)
+  > De Nederlandse economie blijft relatief goed draaien, ondanks de economische en politieke onrust in de wereld. Ook het Internationaal Monetair Fonds...
+- [Wekdienst 13/10: Bendelid hoort straf voor moord op rapper 2Pac • Operatie paus Leo](https://nos.nl/l/2634754)
+  > Goedemorgen! In de VS hoort een voormalig bendelid welke straf hij krijgt voor de moord op rapper 2Pac en in Rome ondergaat paus Leo een operatie...
+- [Meldpunt Veilig Thuis alarmeert: 'We kunnen het werk niet meer aan'](https://nos.nl/l/2634752)
+  > Een melding van huiselijk geweld of kindermishandeling belandt vaak op een grote stapel. Al jaren duurt het te lang voordat er actie wordt...
+- [Dode bij achtbaanongeluk in VS, man werd uit kar geslingerd](https://nos.nl/l/2634751)
+  > Bij een ongeluk met een achtbaan in de Amerikaanse staat Georgia is iemand om het leven gekomen en zijn meerdere mensen gewond geraakt. Dat gebeurde...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Argentinië sluit kolkende Iguazú-watervallen tijdelijk voor toeristen](https://www.ad.nl/buitenland/argentinie-sluit-kolkende-iguazu-watervallen-tijdelijk-voor-toeristen~a31bdfa1/)
-  > De Iguazú-watervallen in het noorden van Argentinië gaan voorlopig dicht voor toeristen. Dat heeft het gelijknamige nationale park maandag...
-- [Dode en meerdere gewonden bij ongeluk met achtbaan van Six Flags in Verenigde Staten](https://www.ad.nl/buitenland/dode-en-meerdere-gewonden-bij-ongeluk-met-achtbaan-van-six-flags-in-verenigde-staten~acc3ba46/)
-  > Bij een ernstig ongeval met een achtbaan van Six Flags in de Verenigde Staten zijn maandagmiddag één dode en meerdere gewonden gevallen. Dat heeft de...
-- [‘Breaking Bad’-acteur RJ Mitte (34) overleden](https://www.ad.nl/show/breaking-bad-acteur-rj-mitte-34-overleden~a0145d63/)
-  > De Amerikaanse acteur RJ Mitte, bekend van de bekroonde Amerikaanse misdaadserie Breaking Bad, is op 34-jarige leeftijd overleden. Dat meldden...
-- [Sven Botman kan met treffer forse nederlaag Newcastle niet voorkomen](https://www.ad.nl/voetbal/sven-botman-kan-met-treffer-forse-nederlaag-newcastle-niet-voorkomen~adb30a23/)
-  > Sven Botman heeft met een doelpunt niet kunnen voorkomen dat Newcastle United de uitwedstrijd tegen Coventry City ruim verloor. De Nederlandse...
-- [Ronaldo scoort na onrustige avond in Riyad: duel Al-Nassr uur uitgesteld door raketaanval](https://www.ad.nl/voetbal/ronaldo-scoort-na-onrustige-avond-in-riyad-duel-al-nassr-uur-uitgesteld-door-raketaanval~adac6c9e/)
-  > Cristiano Ronaldo was maandagavond weer eens trefzeker voor Al-Nassr. Maar dat er tegen Neftchi Fergana überhaupt gevoetbald kon worden was een stuk...
+- [Lege schappen bij AH: versproducten niet geleverd, ook vandaag nog geen thuisbezorging](https://www.ad.nl/binnenland/lege-schappen-bij-ah-versproducten-niet-geleverd-ook-vandaag-nog-geen-thuisbezorging~aaf5c5a6/)
+  > Het is chaos bij Albert Heijn. De supermarktketen werd zondagmiddag getroffen door een cybersecurity-incident. De website ging offline, boodschappen...
+- [Ben Affleck haalt uit naar Warner Bros om vertrek Justice League-regisseur: ‘Walgelijk’](https://www.ad.nl/show/ben-affleck-haalt-uit-naar-warner-bros-om-vertrek-justice-league-regisseur-walgelijk~a992e800/)
+  > Ben Affleck heeft stevige kritiek geuit op de manier waarop filmstudio Warner Bros omging met het vertrek van regisseur Zack Snyder bij de...
+- [Een beetje leuk ouder worden? Stel hier je vraag aan Yvonne Kroonenberg](https://www.ad.nl/mezza/een-beetje-leuk-ouder-worden-stel-hier-je-vraag-aan-yvonne-kroonenberg~a70dd4b1/)
+  > Altijd al een prangende vraag gehad over hoe je een beetje goedgemutst oud kunt worden? Wat doe je bijvoorbeeld met een afnemend libido? Kinderen die...
+- [Gecombineerde proloog in Eneco Tour onder kunstlicht moet voor spektakel zorgen: waar moet je op letten?](https://www.ad.nl/wielrennen/gecombineerde-proloog-in-eneco-tour-onder-kunstlicht-moet-voor-spektakel-zorgen-waar-moet-je-op-letten~a6bfedba/)
+  > Het wielerseizoen eindigt deze week met de Eneco Tour, die vanaf vandaag tot en met zondag gereden wordt. Tijdens de tweede editie van de Nederlandse...
+- [PSV gaat bij RB Leipzig op zoek naar eerste driepunter, vermoedelijk basisplaats voor Filip Kostic](https://www.ad.nl/voetbal/psv-gaat-bij-rb-leipzig-op-zoek-naar-eerste-driepunter-vermoedelijk-basisplaats-voor-filip-kostic~a6ab409e/)
+  > Weer geen perfecte start voor PSV in de Champions League na het gelijke spel in eigen huis tegen Sjachtar Donetsk (1-1). Pakt de ploeg van Peter Bosz...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Verwachtingen](https://fd.nl/opinie/1615498/verwachtingen)
-  > Na het speculeren over wie de Nobelprijs voor de Economie wint, begint het gissen naar een eventueel achterliggende boodschap van het Zweedse...
-- [Trump ruikt diesel in Moskou](https://fd.nl/opinie/1615480/trump-ruikt-diesel-in-moskou)
-  > Trump keert zijn sanctiebeleid tegen Rusland de rug toe nu de dieselprijs aan de Amerikaanse pomp te ver oploopt. Poetin profiteert, Europa heeft het...
-- [ING draagt voor €5 mrd risico’s over aan pensioenuitvoerder PGGM](https://fd.nl/bedrijfsleven/1615397/ing-draagt-voor-5-mrd-risicos-over-aan-pensioenuitvoerder-pggm)
-  > Financiële instellingen hebben met succes gelobbyd voor versoepeling van de regels voor risicotransacties. Alle lichten staan op groen voor meer...
-- [ABP schuwt Frankrijk bij herbeleggen Amerikaanse obligatiemiljarden](https://fd.nl/financiele-markten/1615151/abp-schuwt-frankrijk-bij-herbeleggen-amerikaanse-obligatiemiljarden)
-  > Het ambtenarenpensioenfonds haalde €29 mrd terug uit de Verenigde Staten. Dat geld is belegd in diverse Europese landen, maar Frankrijk werd...
-- [Personalia dinsdag 13 oktober](https://fd.nl/bedrijfsleven/1615400/personalia-dinsdag-13-oktober)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [De harde groei van het aantal Chinese patenten raakt ook bedrijven in Nederland](https://fd.nl/opinie/1615483/groei-van-chinese-patenten-raakt-ook-bedrijven-hier)
+  > China werkt hard aan een patentenstapel. Dat maakt Nederlandse uitvindingen minder vaak nieuw en kan productie uit China verdrijven.
+- [Oekraïens schip zinkt voor Bulgaarse kust na droneaanval](https://fd.nl/politiek/1615409/oekraiens-schip-zinkt-voor-bulgaarse-kust-na-droneaanval)
+  > Welk land de aanval heeft uitgevoerd, is niet duidelijk. De Bulgaarse premier ontbiedt hoe dan ook de Russische ambassadeur.
+- [Inflatie kwam in september uit op 3,4%](https://fd.nl/economie/1615545/inflatie-kwam-in-september-uit-op-3-4)
+  > Met name brandstof werd duurder.
+- [‘Kort geding tegen Meta om AI-brillen’](https://fd.nl/bedrijfsleven/1615406/kort-geding-tegen-meta-om-ai-brillen)
+  > Nu.nl schrijft dat de Consumentenbond en de stichtingen Offlimits en The Firewall een kort geding tegen Meta starten.
+- [Live: Overwegend groene koersborden in Europa](https://fd.nl/financiele-markten/1615542/live-onzekerheid-over-ai-leeft-op-kospi-levert-6-5-in)
+  > De topman van Broadcom zegt dat de AI-hype beleggers trekt die zich gedragen als gokkers. Techaandelen in Azië en Europa staan onder druk.
 
 ### Meest gelezen
 
