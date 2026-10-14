@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-10-2026 om 17:51*
+*Laatst bijgewerkt: 14-10-2026 om 21:25*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Scheepswrak uit vroege bronstijd gevonden voor Turkse kust](https://nos.nl/l/2634987)
-  > Voor de Turkse kust zijn de resten van een ongeveer 4500 jaar oud schip gevonden. Van het hout is niets meer over, maar meer dan dertig aardewerken...
-- [Ernstig seksueel geweld tegen vrouwen in interneringskampen na WO II](https://nos.nl/l/2634986)
-  > Duizenden Nederlandse vrouwen die na de Tweede Wereldoorlog zijn vastgezet in interneringskampen, werden door hun bewakers verkracht, gemarteld en...
-- [Politie en OM nodigen Ahold uit aangifte te doen van 'cybersecurity-incident'](https://nos.nl/l/2634984)
-  > De politie en het Openbaar Ministerie zeggen moederbedrijf Ahold te hebben uitgenodigd om aangifte te doen van het "cybersecurity-incident" bij...
-- [Leiders Indiase Kakkerlakken-beweging veroordeeld tot vijf dagen celstraf](https://nos.nl/l/2634973)
-  > Twee leiders van de Indiase Kakkerlakken-beweging zijn veroordeeld tot een celstraf van vijf dagen. Het gaat om Ashutosh Ranka en Saurav Das, die...
-- [Paus Leo herstelt goed na kankeroperatie, kan weer eten](https://nos.nl/l/2634970)
-  > Het herstel van paus Leo XIV na zijn operatie verloopt goed, meldt het Vaticaan. Leo heeft gelopen in zijn ziekenhuiskamer en eet weer normaal. Ook...
+- [Ontwerper Christien Meinderstma eerste winnaar van de Paul Deiters Prijs](https://nos.nl/l/2635010)
+  > Ontwerper Christien Meindertsma is de eerste winnaar van een nieuwe driejaarlijke kunstonderscheiding, de Paul Deiters Prijs. Volgens de stichting...
+- [Gevangene (34) bevrijd door gemaskerde mannen tijdens doktersbezoek in Essen](https://nos.nl/l/2635009)
+  > In de Duitse stad Essen is een gevangene ontsnapt tijdens een doktersbezoek. De 34-jarige Duitse gevangene werd bevrijd door twee gemaskerde mannen...
+- [Opnieuw Poolse rechter beëdigd zonder aanwezigheid president, protesten bij hof](https://nos.nl/l/2635007)
+  > Het politieke conflict over de onafhankelijkheid van de Poolse rechtspraak is met de benoeming van Maciej Berek tot rechter van het Constitutioneel...
+- [Twee schepen gezonken in Straat van Hormuz in de afgelopen 24 uur](https://nos.nl/l/2635002)
+  > Een containerschip en een bulkschip zijn het afgelopen etmaal gezonken nadat ze in of bij de Straat van Hormuz door projectielen waren geraakt,...
+- [4,5 jaar cel voor voormalig ouderling die oppasmeisje jarenlang verkrachtte](https://nos.nl/l/2635000)
+  > Een 63-jarige man uit Woudenberg is veroordeeld tot een gevangenisstraf van 4,5 jaar voor het jarenlang verkrachten van de oppas van zijn kinderen....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De bal rolt weer in Oostenrijk, kan Liverpool de voorsprong verder uitbreiden?](https://www.ad.nl/voetbal/de-bal-rolt-weer-in-oostenrijk-kan-liverpool-de-voorsprong-verder-uitbreiden~a3201bbc/)
-  > Na de 2-1 zege op Atlético Madrid neemt Liverpool het vanavond in de Champions League op tegen LASK Linz. De Oostenrijkse club ging in de eerste...
-- [Spanjaarden boos op rijke buitenlanders om wooncrisis, maar volgens tv-makelaar vergeten ze één ding](https://www.ad.nl/wonen/spanjaarden-boos-op-rijke-buitenlanders-om-wooncrisis-maar-volgens-tv-makelaar-vergeten-ze-een-ding~a13f6f6b/)
-  > Maricarmen Abascal (87) werd vorige maand in Madrid op straat gezet omdat ze haar huur niet meer kon betalen. Spanje was woedend. De schuld kwam al...
-- [Gelden de buitenlandse strafpunten op het rijbewijs ook voor Nederlanders?](https://www.ad.nl/auto/gelden-de-buitenlandse-strafpunten-op-het-rijbewijs-ook-voor-nederlanders~a700a72d/)
-  > Sommige Europese landen kennen een puntenrijbewijs. Kan je als Nederlander in de problemen komen als daar jouw verkeersovertredingen worden...
-- [Feyenoord dankzij prachtige uithaal Zechiël naast Como, maar de Rotterdammers azen op meer](https://www.ad.nl/voetbal/feyenoord-dankzij-prachtige-uithaal-zechiel-naast-como-maar-de-rotterdammers-azen-op-meer~ac4946f1/)
-  > Feyenoord speelt vanavond de eerste thuiswedstrijd van dit Champions League-seizoen. De Rotterdammers nemen het in eigen huis op tegen het Italiaanse...
-- [Gastland? Hou toch op! Hierom verdedigen we het Internationaal Strafhof](https://www.ad.nl/commentaar/gastland-hou-toch-op-hierom-verdedigen-we-het-internationaal-strafhof~a3f48d70/)
-  > Leuk dat premier Jetten in New York ‘handen af van ons Strafhof’ riep, maar de argumentatie van het kabinet is nogal slapjes, schrijft Hans Nijenhuis...
+- [Feyenoord klimt naar 23ste plaats na zege, PSV zakt weg, PSG aan kop: dit is de ranglijst](https://www.ad.nl/voetbal/feyenoord-klimt-naar-23ste-plaats-na-zege-psv-zakt-weg-psg-aan-kop-dit-is-de-ranglijst~a7ceca5d/)
+  > PSV is na de nederlaag op RB Leipzig buiten de top 24 gezakt. Feyenoord behaalde wel de eerste driepunter van Nederland in de Champions League door...
+- [Haaland mist kans op kans en kan comeback van Manchester City tegen Paris Saint-Germain niet verzilveren](https://www.ad.nl/voetbal/haaland-mist-kans-op-kans-en-kan-comeback-van-manchester-city-tegen-paris-saint-germain-niet-verzilveren~af37430e/)
+  > Paris Saint-Germain en Manchester City maakten er woensdagavond in de Champions League een voetbalfeest van. Voor rust leek er voor de Fransen geen...
+- [Richard Groenendijk stuit op belangrijke boodschap bij thuiskomst na vakantie, Jan Smit maakt gewaagde sprong](https://www.ad.nl/show/richard-groenendijk-stuit-op-belangrijke-boodschap-bij-thuiskomst-na-vakantie-jan-smit-maakt-gewaagde-sprong~a708587f/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Microsoft rolt ‘webshop’ voor cybercriminelen op waar ook nepsite van Belastingdienst werd verkocht](https://www.ad.nl/tech/microsoft-rolt-webshop-voor-cybercriminelen-op-waar-ook-nepsite-van-belastingdienst-werd-verkocht~a15b4c3a/)
+  > Microsoft heeft samen met Japanse politiediensten een wereldwijd cybercrimenetwerk platgelegd dat verantwoordelijk was voor grootschalige...
+- [Drie Nederlandse goals niet genoeg voor AS Roma: Real Madrid ontsnapt in krankzinnige slotfase](https://www.ad.nl/voetbal/drie-nederlandse-goals-niet-genoeg-voor-as-roma-real-madrid-ontsnapt-in-krankzinnige-slotfase~ad16685c/)
+  > Donyell Malen en Marten de Roon maakten samen drie goals voor AS Roma tegen Real Madrid, maar het bleek niet genoeg voor de overwinning. Gouden...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Cybercrisis kost Ahold Delhaize ‘tientallen miljoenen per dag’](https://fd.nl/bedrijfsleven/1615625/cybercrisis-kost-ahold-delhaize-tientallen-miljoenen-per-dag)
-  > Klanten die weglopen, dure cyberexperts inhuren en verlies op de beurs. De ‘ongekende’ cybercrisis zal zeker op de winst van Ahold Delhaize drukken,...
-- [Stijgende inflatie slecht nieuws voor Trump, drie weken voor de midterms](https://fd.nl/economie/1615642/stijgende-inflatie-slecht-nieuws-voor-trump-drie-weken-voor-de-midterms)
-  > De inflatie is in september gestegen tot 3,7%. De grootste boosdoener is veel duurdere benzine als gevolg van de oorlog in het Midden-Oosten.
-- [Bruna-eigenaar Audax schorst topman Paul Sies](https://fd.nl/bedrijfsleven/1615708/bruna-eigenaar-audax-schorst-topman-paul-sies)
-  > De raad van commissarissen van het moederbedrijf van de Bruna-winkels heeft ceo Paul Sies geschorst. Sies was sinds begin dit jaar bestuurder bij...
-- [MediaMarkt staakt verkoop van cryptowallets van het merk Ledger](https://fd.nl/bedrijfsleven/1615714/mediamarkt-staakt-verkoop-van-cryptowallets-van-het-merk-ledger)
-  > Mediamarkt stopt met de verkoop van Ledger-cryptowallets na berichten over gemanipuleerde kastjes.
-- [Rotterdamse investeerder HAL neemt afscheid van Bermuda-route](https://fd.nl/bedrijfsleven/1615711/rotterdamse-investeerder-hal-neemt-afscheid-van-bermuda-route)
-  > In 2024 verruilde de beursgenoteerde investeringsmaatschappij Curaçao en Monaco al voor Rotterdam.
+- [Zelensky beschuldigt Amerikanen van afsluiten internet](https://fd.nl/politiek/1615670/zelensky-beschuldigt-amerikanen-van-afsluiten-internet)
+  > Volgens Musk gaat niet hij, maar alleen de Amerikaanse overheid over het gebruik van Starshield.
+- [Amerikaanse beurzen kleuren rood na inflatiecijfers en zorgen over financieringslasten AI](https://fd.nl/financiele-markten/1615737/amerikaanse-beurzen-kleuren-rood-na-inflatiecijfers-en-zorgen-over-financieringslasten-ai)
+  > Datacenterbedrijven als Coreweave, Nebius en Oracle kelderden woensdag na vragen over de houdbaarheid van hun hoge schuldenlast.
+- [Nederlandse ceo van cosmeticabedrijf Douglas stapt op](https://fd.nl/bedrijfsleven/1615647/nederlandse-ceo-van-cosmeticabedrijf-douglas-stapt-op)
+  > De 58-jarige Nederlander zegt dat het zijn eigen beslissing is om te stoppen als leider van het bedrijf, na een carrière van 36 jaar in de...
+- [Aandelen datacenterbedrijven kelderen na zorgen om dure schuld Coreweave](https://fd.nl/financiele-markten/1615718/aandelen-datacenterbedrijven-kelderen-na-zorgen-om-dure-schuld-coreweave)
+  > Koersen duiken woensdagavond diep in het rood als gevolg van oplopende financieringslasten van datacenterbedrijf Coreweave.
+- [Fixatie op lage EU-begroting is kortzichtig](https://fd.nl/opinie/1615679/fixatie-op-lage-eu-begroting-is-kortzichtig)
+  > In de strijd om de EU-meerjarenbegroting dreigt Nederland zijn eigen prioriteiten weg te bezuinigen.
 
 ### Meest gelezen
 
