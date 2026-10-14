@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-10-2026 om 12:43*
+*Laatst bijgewerkt: 14-10-2026 om 17:51*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Oud-burgemeester Schuiling opnieuw veroordeeld voor masturberen, krijgt boete](https://nos.nl/l/2634942)
-  > Oud-burgemeester van Groningen Koen Schuiling moet 250 euro betalen voor wat officieel schennispleging heet. Het gerechtshof in Zwolle acht bewezen...
-- [In presidentsrace Brazilië lijkt Bolsonaro op sociale media overal en Lula nergens](https://nos.nl/l/2634941)
-  > Over ruim tien dagen gaat Brazilië opnieuw naar de stembus voor de tweede en beslissende ronde tussen de linkse president Lula da Silva en zijn...
-- [Vier doden bij schietpartij tijdens herdenking in Zuid-Afrika](https://nos.nl/l/2634937)
-  > Bij de herdenking van een overleden lokale politicus in de Zuid-Afrikaanse stad Johannesburg heeft een man gisteravond het vuur geopend. Vier mensen...
-- [100 jaar Winnie de Poeh: 'Zonder de Eerste Wereldoorlog was hij er niet geweest'](https://nos.nl/l/2634936)
-  > Op avontuur in het Honderd Bunderbos en altijd op zoek naar honing. Dat kan er maar één zijn: de wereldberoemde beer Winnie de Poeh. Honderd jaar...
-- [Opnieuw eenrichtingsverkeer voor scheepvaart op IJssel door lage waterstand](https://nos.nl/l/2634929)
-  > De scheepvaart op de IJssel tussen de IJsselkop en Zutphen mag sinds vanochtend opnieuw maar in één richting varen. Rijkswaterstaat heeft de...
+- [Scheepswrak uit vroege bronstijd gevonden voor Turkse kust](https://nos.nl/l/2634987)
+  > Voor de Turkse kust zijn de resten van een ongeveer 4500 jaar oud schip gevonden. Van het hout is niets meer over, maar meer dan dertig aardewerken...
+- [Ernstig seksueel geweld tegen vrouwen in interneringskampen na WO II](https://nos.nl/l/2634986)
+  > Duizenden Nederlandse vrouwen die na de Tweede Wereldoorlog zijn vastgezet in interneringskampen, werden door hun bewakers verkracht, gemarteld en...
+- [Politie en OM nodigen Ahold uit aangifte te doen van 'cybersecurity-incident'](https://nos.nl/l/2634984)
+  > De politie en het Openbaar Ministerie zeggen moederbedrijf Ahold te hebben uitgenodigd om aangifte te doen van het "cybersecurity-incident" bij...
+- [Leiders Indiase Kakkerlakken-beweging veroordeeld tot vijf dagen celstraf](https://nos.nl/l/2634973)
+  > Twee leiders van de Indiase Kakkerlakken-beweging zijn veroordeeld tot een celstraf van vijf dagen. Het gaat om Ashutosh Ranka en Saurav Das, die...
+- [Paus Leo herstelt goed na kankeroperatie, kan weer eten](https://nos.nl/l/2634970)
+  > Het herstel van paus Leo XIV na zijn operatie verloopt goed, meldt het Vaticaan. Leo heeft gelopen in zijn ziekenhuiskamer en eet weer normaal. Ook...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Volledig Nederlandse kopgroep bij mannen, Belgische die bijna olympische schaatsplak pakte wint massasprint Eneco Tour](https://www.ad.nl/wielrennen/volledig-nederlandse-kopgroep-bij-mannen-belgische-die-bijna-olympische-schaatsplak-pakte-wint-massasprint-eneco-tour~a4cf896c/)
-  > De Eneco Tour gaat, na de proloog van gisteren, verder met de eerste etappe in lijn. Bij de vrouwen sprintte de Belgische Sandrine Tas naar de zege....
-- [Ineens zijn er tanks, militairen en agenten: dit is de open wond van Vaassen](https://www.ad.nl/binnenland/ineens-zijn-er-tanks-militairen-en-agenten-dit-is-de-open-wond-van-vaassen~a0ba07df/)
-  > De grond trilt. De paniek slaat toe. Tanks rollen door de straten. Honderden militairen en agenten komen het woonoord binnen. Op zoek naar zware...
-- [Teamsprinters voor zevende keer in acht jaar wereldkampioen, Wiebes geeft succesjaar extra glans met nieuwe scratchtitel](https://www.ad.nl/wielrennen/teamsprinters-voor-zevende-keer-in-acht-jaar-wereldkampioen-wiebes-geeft-succesjaar-extra-glans-met-nieuwe-scratchtitel~a7ee0048/)
-  > De Nederlandse teamsprinters blijven domineren. Op de WK baanwielrennen in Sjanghai snelden Roy van den Berg, Jeffrey Hoogland en Harrie Lavreysen...
-- [Programma | Harrie Lavreysen op jacht naar zijn 22ste wereldtitel, ook de vrouwen hebben kans op medailles](https://www.ad.nl/wielrennen/programma-harrie-lavreysen-op-jacht-naar-zijn-22ste-wereldtitel-ook-de-vrouwen-hebben-kans-op-medailles~af3968a4/)
-  > Vanaf woensdag 14 oktober tot zondag 18 oktober is het WK baanwielrennen in Sjanghai, China. Kunnen de Nederlandse mannen en vrouwen hun titels...
-- [LIVE Youth League | Loon naar werken voor talenten van Feyenoord: invaller scoort met eerste balcontact tegen Como](https://www.ad.nl/voetbal/live-youth-league-loon-naar-werken-voor-talenten-van-feyenoord-invaller-scoort-met-eerste-balcontact-tegen-como~a9407bd0/)
-  > Feyenoord speelt vanavond in de Champions League thuis tegen Como. De talenten van de Rotterdamse club komen vanmiddag in actie in de Youth League....
+- [De bal rolt weer in Oostenrijk, kan Liverpool de voorsprong verder uitbreiden?](https://www.ad.nl/voetbal/de-bal-rolt-weer-in-oostenrijk-kan-liverpool-de-voorsprong-verder-uitbreiden~a3201bbc/)
+  > Na de 2-1 zege op Atlético Madrid neemt Liverpool het vanavond in de Champions League op tegen LASK Linz. De Oostenrijkse club ging in de eerste...
+- [Spanjaarden boos op rijke buitenlanders om wooncrisis, maar volgens tv-makelaar vergeten ze één ding](https://www.ad.nl/wonen/spanjaarden-boos-op-rijke-buitenlanders-om-wooncrisis-maar-volgens-tv-makelaar-vergeten-ze-een-ding~a13f6f6b/)
+  > Maricarmen Abascal (87) werd vorige maand in Madrid op straat gezet omdat ze haar huur niet meer kon betalen. Spanje was woedend. De schuld kwam al...
+- [Gelden de buitenlandse strafpunten op het rijbewijs ook voor Nederlanders?](https://www.ad.nl/auto/gelden-de-buitenlandse-strafpunten-op-het-rijbewijs-ook-voor-nederlanders~a700a72d/)
+  > Sommige Europese landen kennen een puntenrijbewijs. Kan je als Nederlander in de problemen komen als daar jouw verkeersovertredingen worden...
+- [Feyenoord dankzij prachtige uithaal Zechiël naast Como, maar de Rotterdammers azen op meer](https://www.ad.nl/voetbal/feyenoord-dankzij-prachtige-uithaal-zechiel-naast-como-maar-de-rotterdammers-azen-op-meer~ac4946f1/)
+  > Feyenoord speelt vanavond de eerste thuiswedstrijd van dit Champions League-seizoen. De Rotterdammers nemen het in eigen huis op tegen het Italiaanse...
+- [Gastland? Hou toch op! Hierom verdedigen we het Internationaal Strafhof](https://www.ad.nl/commentaar/gastland-hou-toch-op-hierom-verdedigen-we-het-internationaal-strafhof~a3f48d70/)
+  > Leuk dat premier Jetten in New York ‘handen af van ons Strafhof’ riep, maar de argumentatie van het kabinet is nogal slapjes, schrijft Hans Nijenhuis...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Portugese TAP deels naar Lufthansa, Air France-KLM heeft  het nakijken](https://fd.nl/bedrijfsleven/1615618/portugese-tap-deels-naar-lufthansa-air-france-klm-heeft-het-nakijken)
-  > De Portugese overheid kiest voor een bod in cash van Lufthansa voor een belang van maximaal 49,9% in TAP. Air France-KLM bood een combinatie van...
-- [Europese grootbanken slepen vergunning binnen voor stablecoin](https://fd.nl/financiele-markten/1615702/europese-grootbanken-slepen-vergunning-binnen-voor-stablecoin)
-  > Qivalis, een initiatief van Europese banken voor een eurostablecoin, heeft een vergunning van DNB bemachtigd.
-- [China ondanks pijnpunten tevreden over handelsdeal met EU](https://fd.nl/economie/1615627/china-ondanks-pijnpunten-tevreden-over-handelsdeal-met-eu)
-  > De handelsovereenkomst tussen China en de EU lijkt op het eerste gezicht een Brusselse overwinning. Maar Peking zorgde ervoor dat de schade beperkt...
-- [We gaan verdwalen](https://fd.nl/opinie/1615549/we-gaan-verdwalen)
-  > Digitale agents die online de beste deals zoeken, dreigen prijs tot het belangrijkste selectiecriterium te maken, ziet FD-columnist Roland van der...
-- [UWV trekt stekker uit groot ICT-project, schade minstens €55 mln](https://fd.nl/politiek/1615700/uwv-trekt-stekker-uit-groot-ict-project-schade-minstens-55-mln)
-  > De uitkeringsinstantie zegt onvoldoende vertrouwen te hebben dat het systeem ‘binnen een aanvaardbare termijn en tegen verantwoorde kosten’ succesvol...
+- [Cybercrisis kost Ahold Delhaize ‘tientallen miljoenen per dag’](https://fd.nl/bedrijfsleven/1615625/cybercrisis-kost-ahold-delhaize-tientallen-miljoenen-per-dag)
+  > Klanten die weglopen, dure cyberexperts inhuren en verlies op de beurs. De ‘ongekende’ cybercrisis zal zeker op de winst van Ahold Delhaize drukken,...
+- [Stijgende inflatie slecht nieuws voor Trump, drie weken voor de midterms](https://fd.nl/economie/1615642/stijgende-inflatie-slecht-nieuws-voor-trump-drie-weken-voor-de-midterms)
+  > De inflatie is in september gestegen tot 3,7%. De grootste boosdoener is veel duurdere benzine als gevolg van de oorlog in het Midden-Oosten.
+- [Bruna-eigenaar Audax schorst topman Paul Sies](https://fd.nl/bedrijfsleven/1615708/bruna-eigenaar-audax-schorst-topman-paul-sies)
+  > De raad van commissarissen van het moederbedrijf van de Bruna-winkels heeft ceo Paul Sies geschorst. Sies was sinds begin dit jaar bestuurder bij...
+- [MediaMarkt staakt verkoop van cryptowallets van het merk Ledger](https://fd.nl/bedrijfsleven/1615714/mediamarkt-staakt-verkoop-van-cryptowallets-van-het-merk-ledger)
+  > Mediamarkt stopt met de verkoop van Ledger-cryptowallets na berichten over gemanipuleerde kastjes.
+- [Rotterdamse investeerder HAL neemt afscheid van Bermuda-route](https://fd.nl/bedrijfsleven/1615711/rotterdamse-investeerder-hal-neemt-afscheid-van-bermuda-route)
+  > In 2024 verruilde de beursgenoteerde investeringsmaatschappij Curaçao en Monaco al voor Rotterdam.
 
 ### Meest gelezen
 
