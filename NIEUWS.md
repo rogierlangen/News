@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-10-2026 om 06:00*
+*Laatst bijgewerkt: 14-10-2026 om 12:43*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Nog geen plan kabinet over compensatie zorgkosten, onzekerheid bij chronisch zieken](https://nos.nl/l/2634894)
-  > Wat gaat er gebeuren met de compensatie voor mensen met hoge zorgkosten? Vandaag is er in de Tweede Kamer een debat over de zorgbegroting, maar het...
-- [Costa Rica opent in navolging van El Salvador strenge megagevangenis](https://nos.nl/l/2634892)
-  > De Costa Ricaanse president Fernández opent vandaag een nieuwe megagevangenis in haar land. In de gevangenis in Alajuela, op een half uur rijden van...
-- [Proces Nord Stream-aanslag van start: 6 vragen over ‘sabotage van de eeuw’](https://nos.nl/l/2634888)
-  > In Hamburg begint vandaag het strafproces tegen de Oekraïner Serhii K. Hij staat terecht voor het opblazen van de Nord Stream-pijpleidingen tussen...
-- [Wekdienst 14/10: Busstakingen door hele land • Proces Nord Stream-aanslag van start](https://nos.nl/l/2634886)
-  > Goedemorgen! Busreizigers opgelet: door het hele land rijden er vandaag minder bussen door stakingen. En in Duitsland gaat vandaag het proces rondom...
-- [Staking streekvervoer begonnen, gevolgen in regio's](https://nos.nl/l/2634885)
-  > In het streekvervoer wordt vandaag gestaakt. Reizigers moeten rekening houden met vertragingen en uitval van ritten. De precieze impact wordt in de...
+- [Oud-burgemeester Schuiling opnieuw veroordeeld voor masturberen, krijgt boete](https://nos.nl/l/2634942)
+  > Oud-burgemeester van Groningen Koen Schuiling moet 250 euro betalen voor wat officieel schennispleging heet. Het gerechtshof in Zwolle acht bewezen...
+- [In presidentsrace Brazilië lijkt Bolsonaro op sociale media overal en Lula nergens](https://nos.nl/l/2634941)
+  > Over ruim tien dagen gaat Brazilië opnieuw naar de stembus voor de tweede en beslissende ronde tussen de linkse president Lula da Silva en zijn...
+- [Vier doden bij schietpartij tijdens herdenking in Zuid-Afrika](https://nos.nl/l/2634937)
+  > Bij de herdenking van een overleden lokale politicus in de Zuid-Afrikaanse stad Johannesburg heeft een man gisteravond het vuur geopend. Vier mensen...
+- [100 jaar Winnie de Poeh: 'Zonder de Eerste Wereldoorlog was hij er niet geweest'](https://nos.nl/l/2634936)
+  > Op avontuur in het Honderd Bunderbos en altijd op zoek naar honing. Dat kan er maar één zijn: de wereldberoemde beer Winnie de Poeh. Honderd jaar...
+- [Opnieuw eenrichtingsverkeer voor scheepvaart op IJssel door lage waterstand](https://nos.nl/l/2634929)
+  > De scheepvaart op de IJssel tussen de IJsselkop en Zutphen mag sinds vanochtend opnieuw maar in één richting varen. Rijkswaterstaat heeft de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Trump belooft ‘heel snel einde’ aan oorlog met Iran, gewonden bij Houthi-aanvallen](https://www.ad.nl/buitenland/trump-belooft-heel-snel-einde-aan-oorlog-met-iran-gewonden-bij-houthi-aanvallen~ac528ac3/)
-  > Trump heeft kiezers in Alaska beloofd dat de oorlog in Iran ‘heel snel’ zal worden beëindigd en dat daardoor ook de prijzen van bijvoorbeeld olie...
-- [Jade Anna geeft ‘iedereen’ in omgeving opvallende opdracht na breuk met Kenneth Taylor: ‘Sluit me even op’](https://www.ad.nl/show/jade-anna-geeft-iedereen-in-omgeving-opvallende-opdracht-na-breuk-met-kenneth-taylor-sluit-me-even-op~a8c2125f/)
-  > Influencer Jade Anna van Vliet (22) wil voorlopig absoluut geen nieuwe relatie na de breuk met voetballer Kenneth Taylor. Daarom heeft ze ‘iedereen’...
-- [ASML kan grote vraag niet aan: orderstroom stijgt verder na sterk kwartaal](https://www.ad.nl/economie/asml-kan-grote-vraag-niet-aan-orderstroom-stijgt-verder-na-sterk-kwartaal~a6c766de/)
-  > ASML wil na een sterk kwartaal verder opschalen. De vraag van klanten naar nieuwe chipmachines houdt aan tot in 2029 en 2030.
-- [Groot deel Kyiv zonder stroom na Russische luchtaanval op energieinfrastructuur](https://www.ad.nl/buitenland/groot-deel-kyiv-zonder-stroom-na-russische-luchtaanval-op-energieinfrastructuur~adfb97be/)
-  > Russische troepen hebben een grootschalige aanval uitgevoerd op de communicati- en energieinfrastructuur. Kyiv kampt woensdagochtend met...
-- [Veiligheidsdienst wil Russisch leger minder machtig maken, met succes: ‘Meedogenloze interne machtsgreep’](https://www.ad.nl/buitenland/veiligheidsdienst-wil-russisch-leger-minder-machtig-maken-met-succes-meedogenloze-interne-machtsgreep~a7ab3ee3/)
-  > Tussen de Russische veiligheidsdienst FSB en het ministerie van Defensie woedt een stammenstrijd, waarbij eerstgenoemde de overhand lijkt te hebben...
+- [Volledig Nederlandse kopgroep bij mannen, Belgische die bijna olympische schaatsplak pakte wint massasprint Eneco Tour](https://www.ad.nl/wielrennen/volledig-nederlandse-kopgroep-bij-mannen-belgische-die-bijna-olympische-schaatsplak-pakte-wint-massasprint-eneco-tour~a4cf896c/)
+  > De Eneco Tour gaat, na de proloog van gisteren, verder met de eerste etappe in lijn. Bij de vrouwen sprintte de Belgische Sandrine Tas naar de zege....
+- [Ineens zijn er tanks, militairen en agenten: dit is de open wond van Vaassen](https://www.ad.nl/binnenland/ineens-zijn-er-tanks-militairen-en-agenten-dit-is-de-open-wond-van-vaassen~a0ba07df/)
+  > De grond trilt. De paniek slaat toe. Tanks rollen door de straten. Honderden militairen en agenten komen het woonoord binnen. Op zoek naar zware...
+- [Teamsprinters voor zevende keer in acht jaar wereldkampioen, Wiebes geeft succesjaar extra glans met nieuwe scratchtitel](https://www.ad.nl/wielrennen/teamsprinters-voor-zevende-keer-in-acht-jaar-wereldkampioen-wiebes-geeft-succesjaar-extra-glans-met-nieuwe-scratchtitel~a7ee0048/)
+  > De Nederlandse teamsprinters blijven domineren. Op de WK baanwielrennen in Sjanghai snelden Roy van den Berg, Jeffrey Hoogland en Harrie Lavreysen...
+- [Programma | Harrie Lavreysen op jacht naar zijn 22ste wereldtitel, ook de vrouwen hebben kans op medailles](https://www.ad.nl/wielrennen/programma-harrie-lavreysen-op-jacht-naar-zijn-22ste-wereldtitel-ook-de-vrouwen-hebben-kans-op-medailles~af3968a4/)
+  > Vanaf woensdag 14 oktober tot zondag 18 oktober is het WK baanwielrennen in Sjanghai, China. Kunnen de Nederlandse mannen en vrouwen hun titels...
+- [LIVE Youth League | Loon naar werken voor talenten van Feyenoord: invaller scoort met eerste balcontact tegen Como](https://www.ad.nl/voetbal/live-youth-league-loon-naar-werken-voor-talenten-van-feyenoord-invaller-scoort-met-eerste-balcontact-tegen-como~a9407bd0/)
+  > Feyenoord speelt vanavond in de Champions League thuis tegen Como. De talenten van de Rotterdamse club komen vanmiddag in actie in de Youth League....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Landelijke staking in het streekvervoer](https://fd.nl/samenleving/1615617/landelijke-staking-in-het-streekvervoer)
-  > Vakbonden verzetten zich onder meer tegen plannen van regionale vervoerders om werknemers minder inspraak te geven in het rooster.
-- [Albert Heijn waarschuwt klanten voor mogelijke phishing-pogingen](https://fd.nl/bedrijfsleven/1615616/albert-heijn-waarschuwt-klanten-voor-mogelijke-phishing-pogingen)
-  > Zondag werden Albert Heijn, Etos en Gall & Gall getroffen door een cybersecurity-incident.
-- [ASML wil productiecapaciteit verder verhogen om grote vraag te bedienen](https://fd.nl/bedrijfsleven/1615693/asml-wil-productiecapaciteit-verder-verhogen-om-grote-vraag-te-bedienen)
-  > De Veldhovense chipmachinefabrikant kan niet aan de vraag naar zijn machines in 2027 en 2028 voldoen. ASML zag afgelopen kwartaal zijn nettowinst...
-- [Live: AEX weer op recordjacht terwijl ASML de boeken opent](https://fd.nl/financiele-markten/1615615/live-aex-weer-op-recordjacht-terwijl-asml-de-boeken-opent)
-  > Zwaargewicht ASML komt aan het Damrak met kwartaalcijfers. ’s Middags volgen belangrijke Amerikaanse inflatiecijfers.
-- [Kruidvat-ceo Ed van de Weerd redde een leven: ‘Ik dacht fuck it en sprong’](https://fd.nl/bedrijfsleven/1614978/kruidvat-ceo-ed-van-de-weerd-redde-een-leven-ik-dacht-fuck-it-en-sprong)
-  > Ed van de Weerd schopte het tot de top van een miljardenbedrijf, maar vraagt zich inmiddels af waar die bewijsdrang goed voor was. En waarom hij die...
+- [Portugese TAP deels naar Lufthansa, Air France-KLM heeft  het nakijken](https://fd.nl/bedrijfsleven/1615618/portugese-tap-deels-naar-lufthansa-air-france-klm-heeft-het-nakijken)
+  > De Portugese overheid kiest voor een bod in cash van Lufthansa voor een belang van maximaal 49,9% in TAP. Air France-KLM bood een combinatie van...
+- [Europese grootbanken slepen vergunning binnen voor stablecoin](https://fd.nl/financiele-markten/1615702/europese-grootbanken-slepen-vergunning-binnen-voor-stablecoin)
+  > Qivalis, een initiatief van Europese banken voor een eurostablecoin, heeft een vergunning van DNB bemachtigd.
+- [China ondanks pijnpunten tevreden over handelsdeal met EU](https://fd.nl/economie/1615627/china-ondanks-pijnpunten-tevreden-over-handelsdeal-met-eu)
+  > De handelsovereenkomst tussen China en de EU lijkt op het eerste gezicht een Brusselse overwinning. Maar Peking zorgde ervoor dat de schade beperkt...
+- [We gaan verdwalen](https://fd.nl/opinie/1615549/we-gaan-verdwalen)
+  > Digitale agents die online de beste deals zoeken, dreigen prijs tot het belangrijkste selectiecriterium te maken, ziet FD-columnist Roland van der...
+- [UWV trekt stekker uit groot ICT-project, schade minstens €55 mln](https://fd.nl/politiek/1615700/uwv-trekt-stekker-uit-groot-ict-project-schade-minstens-55-mln)
+  > De uitkeringsinstantie zegt onvoldoende vertrouwen te hebben dat het systeem ‘binnen een aanvaardbare termijn en tegen verantwoorde kosten’ succesvol...
 
 ### Meest gelezen
 
