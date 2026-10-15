@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-10-2026 om 05:41*
+*Laatst bijgewerkt: 15-10-2026 om 11:05*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Brug tussen Noord-Korea en China opent na twaalf jaar uitstel](https://nos.nl/l/2635026)
-  > Met twaalf jaar vertraging hebben China en Noord-Korea een brug over een grensrivier tussen beide landen in gebruik genomen. De Nieuwe Yalurivierbrug...
-- [Druk verkiezingsjaar legt extra druk op Europese begrotingsonderhandelingen](https://nos.nl/l/2635021)
-  > De leiders van de EU-landen spreken vandaag in Brussel over een nieuwe Europese begroting, de hoge energieprijzen en nieuwe financiële steun voor...
-- [Wekdienst 15/10: Protest tegen Israëlische voetbalclub • Wetenschappers beslissen over lot schrikkelseconde](https://nos.nl/l/2635020)
-  > Goedemorgen! In Alkmaar wordt geprotesteerd tegen de komst van de Israëlische voetbalclub Hapoel Be'er Sheva en in Parijs beslissen wetenschappers...
-- [Door nazi's geroofde Kandinsky voor bijna 32 miljoen euro geveild](https://nos.nl/l/2635019)
-  > Het werk Das bunte Leben van de beroemde Russisch-Franse expressionist Wassily Kandinsky is op een veiling van Christie's in Londen voor 27 miljoen...
-- [Staten VS vinden ChatGPT schadelijk voor kinderen en spannen rechtszaak aan](https://nos.nl/l/2635018)
-  > Acht Amerikaanse staten spannen een rechtszaak aan tegen technologiebedrijf OpenAI. Onder meer de staten Iowa, Kansas en Arizona beschuldigen het...
+- [Albert Heijn: bevoorrading winkels helemaal hervat, nog geen thuisbezorging](https://nos.nl/l/2635057)
+  > Vier dagen nadat Albert Heijn te maken kreeg met een (poging tot een) hackaanval worden winkels weer als vanouds bevoorraad.
+        "De reguliere...
+- [Twee schepen in brand na mogelijke droneaanvallen bij Roemeense kust](https://nos.nl/l/2635056)
+  > Langs de kust van Roemenië zijn gisteravond en vannacht twee commerciële vrachtschepen in brand gevlogen na mogelijk Russische droneaanvallen. Het...
+- [Politie vindt 50 zware explosieven in kelderbox onder flat in Utrecht](https://nos.nl/l/2635055)
+  > De politie heeft in een kelderbox in de Utrechtse wijk Overvecht vijftig zware vuurwerkbommen gevonden. De eigenaar, een 55-jarige man, is...
+- [Grote brand verwoest loods in Berkel en Rodenrijs, brand mogelijk aangestoken](https://nos.nl/l/2635054)
+  > In Berkel en Rodenrijs is een autobedrijf compleet verwoest door een brand. Er vielen geen gewonden. Een loods waar het bedrijf in was gevestigd, is...
+- [Tech-aandelen dalen door AI-twijfels, ASML fors in de min](https://nos.nl/l/2635053)
+  > Op de beurzen in Europa en Azië staan tech- en AI-aandelen vandaag fors in de min. Op de Amsterdamse beurs stond het aandeel ASML op een gegeven...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Oorlog Oekraïne | Zelensky: Oekraïne hervat aanvallen op Russische raffinaderijen ondanks druk VS](https://www.ad.nl/buitenland/live-oorlog-oekraine-zelensky-oekraine-hervat-aanvallen-op-russische-raffinaderijen-ondanks-druk-vs~adfb97be/)
-  > Oekraïne gaat weer Russische olieraffinaderijen bestoken, ondanks Amerikaanse druk om af te zien van dergelijke aanvallen. Dat zei president...
-- [Lavreysen en Hoogland naar kwartfinale keirin, vol programma op donderdag](https://www.ad.nl/wielrennen/lavreysen-en-hoogland-naar-kwartfinale-keirin-vol-programma-op-donderdag~adea5147/)
+- [Hetty van de Wouw raakt wereldtitel kwijt, Harrie Lavreysen naar finale keirin](https://www.ad.nl/wielrennen/hetty-van-de-wouw-raakt-wereldtitel-kwijt-harrie-lavreysen-naar-finale-keirin~adea5147/)
   > Deze week zijn de WK baanwielrennen in Sjanghai. De Nederlandse mannen en vrouwen hopen hun titels te verdedigen op de baan. Hier blijf je op de...
-- [Live VS | Trump kondigt bouw ‘supercomplex’ voor militaire technologie aan, waakhond sleept gezant Kushner voor rechter](https://www.ad.nl/buitenland/live-vs-trump-kondigt-bouw-supercomplex-voor-militaire-technologie-aan-waakhond-sleept-gezant-kushner-voor-rechter~ae67dd9c/)
-  > De Amerikaanse regering gaat in de staat Montana een ‘supercomplex’ aanleggen om geavanceerde militaire technologie te testen, inclusief autonome...
-- [Berkelse loods twee jaar na lijk in auto opnieuw in lichterlaaie](https://www.ad.nl/lansingerland/berkelse-loods-twee-jaar-na-lijk-in-auto-opnieuw-in-lichterlaaie~a1e71ef6/)
-  > Twee jaar na de verwoestende schuurbrand waarna een verkoold lichaam werd gevonden in een auto, was het in de nacht van woensdag op donderdag rond...
-- [Jörgen Raymann (60) is terug in het theater: ‘Ik hoef niet meer continu die verongelijkte man te zijn’](https://www.ad.nl/show/jorgen-raymann-60-is-terug-in-het-theater-ik-hoef-niet-meer-continu-die-verongelijkte-man-te-zijn~a66bc9e0/)
-  > In 2019 stond Jörgen Raymann (60) voor het laatst op de planken. Nu is hij terug met Bigi Yari: welkom thuis, waar niemand op je zit te wachten. Er...
+- [Banken moeten slachtoffers van phishing binnen één werkdag terugbetalen, ook als klant zelf grove fout maakt](https://www.ad.nl/economie/banken-moeten-slachtoffers-van-phishing-binnen-een-werkdag-terugbetalen-ook-als-klant-zelf-grove-fout-maakt~acab58ab/)
+  > Wie het slachtoffer wordt van phishing, moet zijn gestolen geld onmiddellijk terugkrijgen van de bank. Dat heeft het Europees Hof van Justitie...
+- [Lieke Nooijen geniet volop van haar doorbraakjaar: ‘Plezier is het belangrijkste’](https://www.ad.nl/wielrennen/lieke-nooijen-geniet-volop-van-haar-doorbraakjaar-plezier-is-het-belangrijkste~adcfccf0/)
+  > De leiderstrui in de Eneco Tour die ze donderdag heroverde, is het bewijs van haar ontwikkeling. Lieke Nooijen moest begin 2025 nog revalideren van...
+- [Twee doden in België door westnijlvirus, ook nieuwe besmettingen in Nederland](https://www.ad.nl/buitenland/twee-doden-in-belgie-door-westnijlvirus-ook-nieuwe-besmettingen-in-nederland~ad3169df/)
+  > Twee mensen in België zijn overleden aan het westnijlvirus. Dat maakten de autoriteiten donderdag bekend. In Nederland zijn er vijf nieuwe...
+- [Jetten roept Trump én Musk op om Oekraïne te blijven helpen: ‘Russen vallen aan lopende band aan’](https://www.ad.nl/buitenland/jetten-roept-trump-en-musk-op-om-oekraine-te-blijven-helpen-russen-vallen-aan-lopende-band-aan~ab420013/)
+  > Europese leiders reageren met afgrijzen op de hernieuwde tegenwerking van Oekraïne door Donald Trump. Aan de vooravond van een belangrijke top ziet...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Live: Techaandelen onder zware druk, Zuid-Koreaanse Kospi daalt tot 8%](https://fd.nl/financiele-markten/1615673/live-techaandelen-onder-zware-druk-zuid-koreaanse-kospi-daalt-bijna-8)
-  > De zorgen nemen toe of de sector voldoende verdient om de investeringshausse vol te houden. Chipproducenten zien de koersen dalen. Beleggers kiezen...
-- [Ateliervreugde van productontwerpers: ‘Hier heb ik ruimte om te groeien’](https://fd.nl/samenleving/1615566/ateliervreugde-van-productontwerpers-hier-heb-ik-ruimte-om-te-groeien)
-  > Ze zijn jong, ondernemend en creatief en de wereld ligt aan hun voeten. Maar het liefst zijn deze drie productontwerpers in hun werkplaats.
-- [Paul Scheffer en Dolf van den Brink: ‘Ons zelfvertrouwen dat het Europese model superieur zou zijn, is behoorlijk arrogant’](https://fd.nl/politiek/1615412/paul-scheffer-en-dolf-van-den-brink-ons-zelfvertrouwen-dat-het-europese-model-superieur-zou-zijn-is-behoorlijk-arrogant)
-  > Met de oud-hoogleraar en de ex-Heineken-topman in gesprek over het worstelende Europa. ‘De keuzes die we nu maken, gaan echt echoën in de komende...
-- [ASML groeit, maar kan de vraag niet aan](https://fd.nl/economie/1615643/asml-groeit-maar-kan-de-vraag-niet-aan)
-  > Vandaag in Dagkoers: het UWV trekt de stekker uit een ICT-project dat minstens €55 mln kostte; ASML ziet de winst verdubbelen maar kan de vraag naar...
-- [The art of the dieseldeal](https://fd.nl/opinie/1615646/the-art-of-the-dieseldeal)
-  > Zou Trump nog weleens terugdenken aan begin 2026, toen het er nog best zonnig voor hem uitzag? Columnist Anna Dijkman vraagt zich af of hij zich dan...
+- [Wie zo rijk is dat ‘ie overal de privéjet kan pakken, moet ook eens betalen](https://fd.nl/opinie/1615410/wie-de-privejet-pakt-moet-meer-belasting-betalen)
+  > De rijken dragen onevenredig veel bij aan de verwoesting van de planeet. Het is tijd dat ze daarvoor gaan betalen. Dat is eerlijker, en het geeft een...
+- [‘UBS overweegt vertrek van hoofdkantoor uit Zwitserland’](https://fd.nl/financiele-markten/1615781/ubs-overweegt-vertrek-uit-zwitserland)
+  > De Zwitserse grootbank verzet zich tegen strengere kapitaaleisen die de regering van het land wil invoeren.
+- [Amerikaanse staten klagen OpenAI aan om leed bij jonge ChatGPT-gebruikers](https://fd.nl/tech-en-innovatie/1615748/amerikaanse-staten-klagen-openai-aan-om-leed-bij-jonge-chatgpt-gebruikers)
+  > Volgens de openbaar aanklagers heeft de chatbot van OpenAI gebruikers geholpen bij het organiseren van geweld.
+- [Een afgewogen gokje op een belegging in ASML?](https://fd.nl/financiele-markten/1615717/een-afgewogen-gokje-op-een-belegging-in-asml)
+  > Met de uitgifte van een 12,5%-reversed convertible op ASML probeert ING beleggers in de technologiesector te strikken. Het rendement oogt...
+- [Jaguar ruziet met BYD over SUV die kopie zou zijn van Land Rover Defender](https://fd.nl/bedrijfsleven/1615638/jaguar-ruziet-met-byd-over-suv-die-kopie-zou-zijn-van-land-rover-defender)
+  > De twee autofabrikanten stonden deze week in Den Haag voor de rechter. Jaguar heeft in Nederland beslag laten leggen op administratie van BYD en eist...
 
 ### Meest gelezen
 
