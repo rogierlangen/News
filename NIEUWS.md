@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-10-2026 om 11:05*
+*Laatst bijgewerkt: 15-10-2026 om 16:36*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Albert Heijn: bevoorrading winkels helemaal hervat, nog geen thuisbezorging](https://nos.nl/l/2635057)
-  > Vier dagen nadat Albert Heijn te maken kreeg met een (poging tot een) hackaanval worden winkels weer als vanouds bevoorraad.
-        "De reguliere...
-- [Twee schepen in brand na mogelijke droneaanvallen bij Roemeense kust](https://nos.nl/l/2635056)
-  > Langs de kust van Roemenië zijn gisteravond en vannacht twee commerciële vrachtschepen in brand gevlogen na mogelijk Russische droneaanvallen. Het...
-- [Politie vindt 50 zware explosieven in kelderbox onder flat in Utrecht](https://nos.nl/l/2635055)
-  > De politie heeft in een kelderbox in de Utrechtse wijk Overvecht vijftig zware vuurwerkbommen gevonden. De eigenaar, een 55-jarige man, is...
-- [Grote brand verwoest loods in Berkel en Rodenrijs, brand mogelijk aangestoken](https://nos.nl/l/2635054)
-  > In Berkel en Rodenrijs is een autobedrijf compleet verwoest door een brand. Er vielen geen gewonden. Een loods waar het bedrijf in was gevestigd, is...
-- [Tech-aandelen dalen door AI-twijfels, ASML fors in de min](https://nos.nl/l/2635053)
-  > Op de beurzen in Europa en Azië staan tech- en AI-aandelen vandaag fors in de min. Op de Amsterdamse beurs stond het aandeel ASML op een gegeven...
+- [Zangeres Floor Jansen verlaat na 13 jaar Finse metalband Nightwish](https://nos.nl/l/2635111)
+  > De Nederlandse zangeres Floor Jansen verlaat de Finse symfonische metalband Nightwish na dertien jaar. De zangeres wil zich focussen op haar...
+- [Nog geen steun voor zorgbegroting door onzekerheid over compensatie chronisch zieken](https://nos.nl/l/2635107)
+  > In het debat over de zorgbegroting blijft het onduidelijk of er genoeg steun is voor de plannen van het kabinet. Minister Hermans van Volksgezondheid...
+- [Nederlands kennisplatform Raam op zwarte lijst gezet in Rusland](https://nos.nl/l/2635106)
+  > Het Nederlandse kennisplatform Raam, dat informatie deelt over Rusland en Oost-Europa, is in Rusland bestempeld als ongewenste organisatie. Het is...
+- [Omgekomen spookrijder A2 bij Breukelen was onwel geworden](https://nos.nl/l/2635105)
+  > De persoon die afgelopen zaterdag om het leven kwam bij een aanrijding op de A2 bij Breukelen, was onwel geworden tijdens het rijden. Onderzoek heeft...
+- [JA21 en SGP eisen geen dwang bij opvang asielzoekers](https://nos.nl/l/2635102)
+  > JA21 en SGP willen "zwart op wit" een toezegging van het kabinet dat gemeenten niet gedwongen gaan worden asielzoekers op te vangen, wat ze van de...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Hetty van de Wouw raakt wereldtitel kwijt, Harrie Lavreysen naar finale keirin](https://www.ad.nl/wielrennen/hetty-van-de-wouw-raakt-wereldtitel-kwijt-harrie-lavreysen-naar-finale-keirin~adea5147/)
-  > Deze week zijn de WK baanwielrennen in Sjanghai. De Nederlandse mannen en vrouwen hopen hun titels te verdedigen op de baan. Hier blijf je op de...
-- [Banken moeten slachtoffers van phishing binnen één werkdag terugbetalen, ook als klant zelf grove fout maakt](https://www.ad.nl/economie/banken-moeten-slachtoffers-van-phishing-binnen-een-werkdag-terugbetalen-ook-als-klant-zelf-grove-fout-maakt~acab58ab/)
-  > Wie het slachtoffer wordt van phishing, moet zijn gestolen geld onmiddellijk terugkrijgen van de bank. Dat heeft het Europees Hof van Justitie...
-- [Lieke Nooijen geniet volop van haar doorbraakjaar: ‘Plezier is het belangrijkste’](https://www.ad.nl/wielrennen/lieke-nooijen-geniet-volop-van-haar-doorbraakjaar-plezier-is-het-belangrijkste~adcfccf0/)
-  > De leiderstrui in de Eneco Tour die ze donderdag heroverde, is het bewijs van haar ontwikkeling. Lieke Nooijen moest begin 2025 nog revalideren van...
-- [Twee doden in België door westnijlvirus, ook nieuwe besmettingen in Nederland](https://www.ad.nl/buitenland/twee-doden-in-belgie-door-westnijlvirus-ook-nieuwe-besmettingen-in-nederland~ad3169df/)
-  > Twee mensen in België zijn overleden aan het westnijlvirus. Dat maakten de autoriteiten donderdag bekend. In Nederland zijn er vijf nieuwe...
-- [Jetten roept Trump én Musk op om Oekraïne te blijven helpen: ‘Russen vallen aan lopende band aan’](https://www.ad.nl/buitenland/jetten-roept-trump-en-musk-op-om-oekraine-te-blijven-helpen-russen-vallen-aan-lopende-band-aan~ab420013/)
-  > Europese leiders reageren met afgrijzen op de hernieuwde tegenwerking van Oekraïne door Donald Trump. Aan de vooravond van een belangrijke top ziet...
+- [Roxeanne Hazes diepte trouwjurk uit krochten van kofferbak op: ‘Hij was verfomfaaid en rook wat muf’](https://www.ad.nl/show/roxeanne-hazes-diepte-trouwjurk-uit-krochten-van-kofferbak-op-hij-was-verfomfaaid-en-rook-wat-muf~a460f885/)
+  > Het duurde maar liefst negen jaar voordat Roxeanne Hazes (33) en Erik Zwennes elkaar eindelijk het jawoord gaven. Afgelopen juli deed de zangeres dat...
+- [Extreem intelligent en mentor voor vrouwen: deze ceo bezweert de crisis bij Albert Heijn](https://www.ad.nl/economie/extreem-intelligent-en-mentor-voor-vrouwen-deze-ceo-bezweert-de-crisis-bij-albert-heijn~a2e914c0/)
+  > Als één iemand een cybercrisis bij Albert Heijn kan bezweren, dan is het Margaret Versteden-Van Duijn. Voormalig collega’s typeren haar als extreem...
+- [LIVE Europa League | Wesley Hoedt maakt na 11 jaar zijn rentree bij AZ, vijf andere wijzigingen in basiself](https://www.ad.nl/voetbal/live-europa-league-wesley-hoedt-maakt-na-11-jaar-zijn-rentree-bij-az-vijf-andere-wijzigingen-in-basiself~a604532b/)
+  > AZ verloor afgelopen weekend met 2-0 van Feyenoord en hoopt zich vanavond te revancheren in Europa. De Alkmaarders ontvangen Hapoel Beer Sheeva. Volg...
+- [Mogelijk eerste medicijn voor uitgezaaide alvleesklierkanker naar Nederland](https://www.ad.nl/gezond/mogelijk-eerste-medicijn-voor-uitgezaaide-alvleesklierkanker-naar-nederland~a6f0b4d7/)
+  > Er komt mogelijk een medicijn op de Nederlandse markt dat de levensduur van mensen met uitgezaaide alvleesklierkanker kan verlengen, meldt het...
+- [Onder strenge veiligheidsmaatregelen overgebracht: Jan G. weer op Nederlandse bodem](https://www.ad.nl/binnenland/onder-strenge-veiligheidsmaatregelen-overgebracht-jan-g-weer-op-nederlandse-bodem~a0bff465/)
+  > Hij zat bijna een maand vast in een Duitse gevangenis, maar vanaf vandaag zit hij in de Nederlandse cel. Jan G., het doelwit van de gewelddadige...
 
 ### Meest gelezen
 
@@ -47,16 +46,15 @@
 
 ### Laatste nieuws
 
-- [Wie zo rijk is dat ‘ie overal de privéjet kan pakken, moet ook eens betalen](https://fd.nl/opinie/1615410/wie-de-privejet-pakt-moet-meer-belasting-betalen)
-  > De rijken dragen onevenredig veel bij aan de verwoesting van de planeet. Het is tijd dat ze daarvoor gaan betalen. Dat is eerlijker, en het geeft een...
-- [‘UBS overweegt vertrek van hoofdkantoor uit Zwitserland’](https://fd.nl/financiele-markten/1615781/ubs-overweegt-vertrek-uit-zwitserland)
-  > De Zwitserse grootbank verzet zich tegen strengere kapitaaleisen die de regering van het land wil invoeren.
-- [Amerikaanse staten klagen OpenAI aan om leed bij jonge ChatGPT-gebruikers](https://fd.nl/tech-en-innovatie/1615748/amerikaanse-staten-klagen-openai-aan-om-leed-bij-jonge-chatgpt-gebruikers)
-  > Volgens de openbaar aanklagers heeft de chatbot van OpenAI gebruikers geholpen bij het organiseren van geweld.
-- [Een afgewogen gokje op een belegging in ASML?](https://fd.nl/financiele-markten/1615717/een-afgewogen-gokje-op-een-belegging-in-asml)
-  > Met de uitgifte van een 12,5%-reversed convertible op ASML probeert ING beleggers in de technologiesector te strikken. Het rendement oogt...
-- [Jaguar ruziet met BYD over SUV die kopie zou zijn van Land Rover Defender](https://fd.nl/bedrijfsleven/1615638/jaguar-ruziet-met-byd-over-suv-die-kopie-zou-zijn-van-land-rover-defender)
-  > De twee autofabrikanten stonden deze week in Den Haag voor de rechter. Jaguar heeft in Nederland beslag laten leggen op administratie van BYD en eist...
+- [Air France-KLM dreigt op achterstand te raken na misgrijpen bij TAP, zeggen experts](https://fd.nl/bedrijfsleven/1615749/air-france-klm-dreigt-op-achterstand-te-raken-na-misgrijpen-bij-tap-zeggen-experts)
+  > Het Frans-Nederlandse luchtvaartconcern ziet opnieuw een overnamepoging mislukken, terwijl de Europese sector maar verder consolideert. De kansen...
+- [Curatoren Accell verkopen fietsenmerk Sparta aan Tenways](https://fd.nl/bedrijfsleven/1615767/curatoren-accell-verkopen-fietsenmerk-sparta-aan-tenways)
+  > Accell ging in augustus failliet. De curatoren werken ook aan de verkoop van andere delen van het fietsconcern.
+- [EU-leiders botsen over koolstofprijs tijdens discussie over dure energie](https://fd.nl/politiek/1615766/eu-leiders-botsen-over-koolstofprijs-tijdens-discussie-over-dure-energie)
+  > Oostelijke EU-landen, gesteund door Italië, willen het plan voor een CO₂-prijs voor wegtransport en gebouwen opnieuw uitstellen. Onder meer Nederland...
+- [Lagarde kan al op 2 november tot voorzitter van het World Economic Forum gekozen worden](https://fd.nl/economie/1615765/lagarde-kan-al-op-2-november-tot-voorzitter-van-het-world-economic-forum-gekozen-worden)
+- [Chemiebedrijf Covestro snijdt flink in personeel in Antwerpse haven](https://fd.nl/bedrijfsleven/1615798/chemiebedrijf-covestro-snijdt-flink-in-personeel-in-antwerpse-haven)
+  > De activiteiten van Covestro in Antwerpen worden sinds 2022 steeds verliesgevender.
 
 ### Meest gelezen
 
