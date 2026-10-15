@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-10-2026 om 21:25*
+*Laatst bijgewerkt: 15-10-2026 om 00:20*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Boeken Sally Rooney uit de handel in VK vanwege steun aan Palestine Action](https://nos.nl/l/2635017)
+  > De boeken van de Ierse bestsellerauteur Sally Rooney worden in het Verenigd Koninkrijk uit de handel genomen vanwege haar steun aan de Britse...
+- [Onrustig in Amsterdamse wijk Floradorp, drie aanhoudingen](https://nos.nl/l/2635015)
+  > In de Amsterdamse wijk Floradorp is het vanavond onrustig geweest. De mobiele eenheid werd ingezet nadat bewoners brand hadden gesticht en zich tegen...
+- [Gevonden vliegtuigwrak in Dronten blijkt Britse bommenwerper uit WO II](https://nos.nl/l/2635013)
+  > Na uitgebreid onderzoek heeft de gemeente Dronten vastgesteld dat de gevonden vliegtuigresten in een bos van een Britse bommenwerper zijn die tijdens...
 - [Ontwerper Christien Meinderstma eerste winnaar van de Paul Deiters Prijs](https://nos.nl/l/2635010)
   > Ontwerper Christien Meindertsma is de eerste winnaar van een nieuwe driejaarlijke kunstonderscheiding, de Paul Deiters Prijs. Volgens de stichting...
 - [Gevangene (34) bevrijd door gemaskerde mannen tijdens doktersbezoek in Essen](https://nos.nl/l/2635009)
   > In de Duitse stad Essen is een gevangene ontsnapt tijdens een doktersbezoek. De 34-jarige Duitse gevangene werd bevrijd door twee gemaskerde mannen...
-- [Opnieuw Poolse rechter beëdigd zonder aanwezigheid president, protesten bij hof](https://nos.nl/l/2635007)
-  > Het politieke conflict over de onafhankelijkheid van de Poolse rechtspraak is met de benoeming van Maciej Berek tot rechter van het Constitutioneel...
-- [Twee schepen gezonken in Straat van Hormuz in de afgelopen 24 uur](https://nos.nl/l/2635002)
-  > Een containerschip en een bulkschip zijn het afgelopen etmaal gezonken nadat ze in of bij de Straat van Hormuz door projectielen waren geraakt,...
-- [4,5 jaar cel voor voormalig ouderling die oppasmeisje jarenlang verkrachtte](https://nos.nl/l/2635000)
-  > Een 63-jarige man uit Woudenberg is veroordeeld tot een gevangenisstraf van 4,5 jaar voor het jarenlang verkrachten van de oppas van zijn kinderen....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Undercoverdocumentaire toont racisme en seksisme binnen pro-Brexitpartij Reform UK](https://www.ad.nl/buitenland/undercoverdocumentaire-toont-racisme-en-seksisme-binnen-pro-brexitpartij-reform-uk~ad06187a/)
+  > Verschillende leden van de anti-immigratiepartij Reform UK van Nigel Farage zijn te zien in een documentaire terwijl ze opmerkingen van racistische...
+- [AD Voetbalpodcast | ‘Ik denk dat dit voor PSV toch een harde nederlaag is’](https://www.ad.nl/voetbal/ad-voetbalpodcast-ik-denk-dat-dit-voor-psv-toch-een-harde-nederlaag-is~a42af5cd9/)
+  > De goede start in de eredivisie heeft Feyenoord in de Champions League een goed vervolg gegeven. In de Kuip werd met 3-2 gewonnen van Como en daarmee...
 - [Feyenoord klimt naar 23ste plaats na zege, PSV zakt weg, PSG aan kop: dit is de ranglijst](https://www.ad.nl/voetbal/feyenoord-klimt-naar-23ste-plaats-na-zege-psv-zakt-weg-psg-aan-kop-dit-is-de-ranglijst~a7ceca5d/)
   > PSV is na de nederlaag op RB Leipzig buiten de top 24 gezakt. Feyenoord behaalde wel de eerste driepunter van Nederland in de Champions League door...
 - [Haaland mist kans op kans en kan comeback van Manchester City tegen Paris Saint-Germain niet verzilveren](https://www.ad.nl/voetbal/haaland-mist-kans-op-kans-en-kan-comeback-van-manchester-city-tegen-paris-saint-germain-niet-verzilveren~af37430e/)
   > Paris Saint-Germain en Manchester City maakten er woensdagavond in de Champions League een voetbalfeest van. Voor rust leek er voor de Fransen geen...
 - [Richard Groenendijk stuit op belangrijke boodschap bij thuiskomst na vakantie, Jan Smit maakt gewaagde sprong](https://www.ad.nl/show/richard-groenendijk-stuit-op-belangrijke-boodschap-bij-thuiskomst-na-vakantie-jan-smit-maakt-gewaagde-sprong~a708587f/)
   > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Microsoft rolt ‘webshop’ voor cybercriminelen op waar ook nepsite van Belastingdienst werd verkocht](https://www.ad.nl/tech/microsoft-rolt-webshop-voor-cybercriminelen-op-waar-ook-nepsite-van-belastingdienst-werd-verkocht~a15b4c3a/)
-  > Microsoft heeft samen met Japanse politiediensten een wereldwijd cybercrimenetwerk platgelegd dat verantwoordelijk was voor grootschalige...
-- [Drie Nederlandse goals niet genoeg voor AS Roma: Real Madrid ontsnapt in krankzinnige slotfase](https://www.ad.nl/voetbal/drie-nederlandse-goals-niet-genoeg-voor-as-roma-real-madrid-ontsnapt-in-krankzinnige-slotfase~ad16685c/)
-  > Donyell Malen en Marten de Roon maakten samen drie goals voor AS Roma tegen Real Madrid, maar het bleek niet genoeg voor de overwinning. Gouden...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Zelensky beschuldigt Amerikanen van afsluiten internet](https://fd.nl/politiek/1615670/zelensky-beschuldigt-amerikanen-van-afsluiten-internet)
-  > Volgens Musk gaat niet hij, maar alleen de Amerikaanse overheid over het gebruik van Starshield.
-- [Amerikaanse beurzen kleuren rood na inflatiecijfers en zorgen over financieringslasten AI](https://fd.nl/financiele-markten/1615737/amerikaanse-beurzen-kleuren-rood-na-inflatiecijfers-en-zorgen-over-financieringslasten-ai)
-  > Datacenterbedrijven als Coreweave, Nebius en Oracle kelderden woensdag na vragen over de houdbaarheid van hun hoge schuldenlast.
-- [Nederlandse ceo van cosmeticabedrijf Douglas stapt op](https://fd.nl/bedrijfsleven/1615647/nederlandse-ceo-van-cosmeticabedrijf-douglas-stapt-op)
-  > De 58-jarige Nederlander zegt dat het zijn eigen beslissing is om te stoppen als leider van het bedrijf, na een carrière van 36 jaar in de...
-- [Aandelen datacenterbedrijven kelderen na zorgen om dure schuld Coreweave](https://fd.nl/financiele-markten/1615718/aandelen-datacenterbedrijven-kelderen-na-zorgen-om-dure-schuld-coreweave)
-  > Koersen duiken woensdagavond diep in het rood als gevolg van oplopende financieringslasten van datacenterbedrijf Coreweave.
-- [Fixatie op lage EU-begroting is kortzichtig](https://fd.nl/opinie/1615679/fixatie-op-lage-eu-begroting-is-kortzichtig)
-  > In de strijd om de EU-meerjarenbegroting dreigt Nederland zijn eigen prioriteiten weg te bezuinigen.
+- [The art of the dieseldeal](https://fd.nl/opinie/1615646/the-art-of-the-dieseldeal)
+  > Zou Trump nog weleens terugdenken aan begin 2026, toen het er nog best zonnig voor hem uitzag? Columnist Anna Dijkman vraagt zich af of hij zich dan...
+- [Investeringsmaatschappij Intersaction neemt dorpelproducenten over](https://fd.nl/bedrijfsleven/1615641/investeringsmaatschappij-intersaction-neemt-dorpelproducenten-over)
+  > Investeringsmaatschappij Intersaction verkrijgt een meerderheidsbelang in Venster Techniek en ISC, twee bedrijven die dorpels en aanverwante...
+- [Op tv vertellen wat je nog niet weet over een cyberincident is óók transparantie](https://fd.nl/bedrijfsleven/1615636/op-tv-vertellen-wat-je-nog-niet-weet-over-een-cyberincident-is-ook-transparantie)
+  > Albert Heijn-ceo Versteden-van Duijn vertelde bij Eva Jinek vooral hoeveel nog niet bekend was over het cyberincident van deze week. Het illustreert...
+- [Veel kritiek op dieseldeal met Kremlin: ‘Trump heult met de vijand’](https://fd.nl/politiek/1615632/veel-kritiek-op-dieseldeal-met-kremlin-trump-heult-met-de-vijand)
+  > Opnieuw heeft Trump de druk op Oekraïne flink opgevoerd. De kans dat hij voor de midterms gas terugneemt is klein. ‘Zijn sympathie ligt meer bij...
+- [Boek een lastminute naar de Noordzee, en laat de Côte d’Azur links liggen](https://fd.nl/opinie/1615408/boek-een-lastminute-naar-de-noordzee)
+  > De Mediterranée, met haar azuurblauwe aantrekkingskracht, is blingbling. En onze Noordzee? Dat is klotsklots – iets om te zien én horen, schrijft...
 
 ### Meest gelezen
 
