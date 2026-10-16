@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-10-2026 om 20:42*
+*Laatst bijgewerkt: 16-10-2026 om 23:20*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Brand in Arnhemse flat die eerder was ontruimd vanwege krakers](https://nos.nl/l/2635293)
+  > In een flat in Arnhem is vrijdagavond brand uitgebroken. De flat was eerder op de dag ontruimd en dichtgetimmerd. Er woonden krakers. Voor zover...
+- [Chinese man blijft 19 jaar uit handen van politie door identiteit dode broer over te nemen](https://nos.nl/l/2635291)
+  > Een Chinese man die in 2002 betrokken was bij een overval, is 24 jaar later alsnog opgepakt. Hij wist jarenlang uit handen van de politie te blijven...
+- [Belgische Dave De K. schuldig aan doodslag en ontvoering kleuter Dean](https://nos.nl/l/2635290)
+  > In het Belgische Gent is Dave De K. schuldig bevonden aan doodslag en ontvoering van de 4-jarige Dean. Zijn ex-vriendin Romy W. is vrijgesproken van...
+- [Frustratie en teleurstelling na bekendmaking infrastructuurplannen kabinet](https://nos.nl/l/2635287)
+  > Vanuit verschillende hoeken van het land klinken frustratie en teleurstelling na de bekendmaking van de plannen van het kabinet voor onderhoud en...
 - [Duizenden insulinepennen gestolen van Novo Nordisk uit Nederlandse groothandel](https://nos.nl/l/2635282)
   > Duizenden insulinepennen van Novo Nordisk zijn vorige week gestolen uit een Nederlandse groothandel, meldt de Deense medicijnproducent. De...
-- [Vermiste 29-jarige vrouw dood gevonden in Amsterdam, politie gaat uit van misdrijf](https://nos.nl/l/2635281)
-  > Een 29-jarige vrouw is vanochtend dood aangetroffen in het water aan de Amsteldijk in Amsterdam. Ze is door een misdrijf om het leven gekomen, zegt...
-- [Chaos bij VN-klimaatpanel compleet: geen akkoord, geen begroting en geen rapport?](https://nos.nl/l/2635279)
-  > De felle politieke strijd over het invloedrijkste klimaatrapport ter wereld lijkt te zijn beslecht in het voordeel van de olie- en kolenlanden. Na...
-- [Na verwoestende vloedgolf dreigt in Nepal nu het gevaar van kinderhandel](https://nos.nl/l/2635269)
-  > Op de bovenste verdiepingen van een troosteloos gebouw waar zelfs enkele buitenmuren ontbreken, schept een medewerker van een Nepalese...
-- [Amerikaanse media: nieuwe woordvoerder Witte Huis binnen week alweer weg](https://nos.nl/l/2635267)
-  > Vijf dagen na haar aantreden gaat de nieuwe Witte Huis-woordvoerder Katie Zacharia alweer stoppen. Dat schrijven verschillende Amerikaanse media,...
 
 ### Meest gelezen
 
@@ -27,6 +27,8 @@
 
 ### Laatste nieuws
 
+- [Dode en zwaargewonden bij steekpartij in Duits verzorgingshuis](https://www.ad.nl/buitenland/dode-en-zwaargewonden-bij-steekpartij-in-duits-verzorgingshuis~a942edd6/)
+  > Bij een steekpartij in een verzorgingshuis in het westen van Duitsland is een vrouw om het leven gekomen en zijn twee anderen zwaargewond geraakt....
 - [Zoon van Reinout Oerlemans, Thijmen, speelt vriend van Tate McRae in nieuwe videoclip](https://www.ad.nl/show/zoon-van-reinout-oerlemans-thijmen-speelt-vriend-van-tate-mcrae-in-nieuwe-videoclip~abf72d66/)
   > Thijmen Oerlemans, de 25-jarige zoon van Reinout en Daniëlle Oerlemans, heeft een opvallende internationale klus te pakken. De jonge acteur schittert...
 - [Toekomstplan van Porsche: topmodel Mission S](https://www.ad.nl/auto/toekomstplan-van-porsche-topmodel-mission-s~a4f6fdaf/)
@@ -35,8 +37,6 @@
   > VVV Venlo heeft de aansluiting bij de top van de Keuken Kampioen Divisie niet kunnen verdedigen. De Limburgers kwamen twee keer op achterstand in...
 - [Heerenveen maatje te groot voor aanvallend onmachtig Excelsior](https://www.ad.nl/voetbal/heerenveen-maatje-te-groot-voor-aanvallend-onmachtig-excelsior~a13c58b5/)
   > Heerenveen heeft een belangrijke overwinning geboekt in de strijd om een plek in de subtop van de eredivisie. In eigen huis werd Excelsior met 4-0...
-- [‘Musk zette zelf satellietinternet voor Oekraïne uit met toestemming Trump’](https://www.ad.nl/buitenland/musk-zette-zelf-satellietinternet-voor-oekraine-uit-met-toestemming-trump~adfb97be/)
-  > Elon Musk heeft zelf Trump benaderd met het voorstel om satellietinternet te beperken in Oekraïne, wat de luchtafweer van het land ondermijnde. Dat...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaanse beleggers sluiten week af in mineur](https://fd.nl/financiele-markten/1616076/amerikaanse-beleggers-sluiten-week-af-in-mineur)
-  > Ook vrijdag maakten beleggers zich zorgen over de schuldenlast van verschillende AI-bedrijven. Verder hielp de gestaag oplopende olieprijs ook al...
-- [‘Woordvoerder Witte Huis stapt na vijf dagen alweer op’](https://fd.nl/politiek/1616006/woordvoerder-witte-huis-stapt-na-vijf-dagen-alweer-op)
-  > Katie Zacharia lag al direct onder vuur vanwege oude uitspraken over coronavaccins en vanwege een opgepoetst cv.
-- [Europa krijgt van IMF bergen huiswerk mee](https://fd.nl/opinie/1615848/europa-krijgt-van-imf-bergen-huiswerk-mee)
-  > Eurolanden moeten durven hervormen, in plaats van te hopen dat de Europese Centrale Bank ze te hulp schiet met obligatieaankopen.
-- [Consumenten kunnen nog steeds geen boodschappen bestellen bij Albert Heijn](https://fd.nl/bedrijfsleven/1615980/consumenten-kunnen-nog-steeds-geen-boodschappen-bestellen-bij-albert-heijn)
-  > Bezorgingen die al gepland stonden, zijn inmiddels geannuleerd.
-- [Ondanks AI-tegenwind fietst AEX naar record](https://fd.nl/financiele-markten/1615878/ondanks-ai-tegenwind-fietst-aex-naar-record)
-  > Chipaandelen kregen flinke klappen, terwijl defensieaandelen juist opleefden. Op de Amsterdamse beurs waren ontwikkelingen in de wereld voelbaar. De...
+- [Alles gaat mis, maar de economie pruttelt lekker door](https://fd.nl/politiek/1615877/alles-gaat-mis-maar-de-economie-pruttelt-lekker-door)
+  > Een halfjaar na het uitbreken van de oorlog in het Midden-Oosten is het nog steeds wachten op die voorspelde economische neergang. Zijn we met de...
+- [Botox maakt meer kapot dan je lief is](https://fd.nl/opinie/1615844/botox-maakt-meer-kapot-dan-je-lief-is)
+  > Geklaag in de filmwereld, omdat acteurs en actrices door de botox hun gezicht niet meer kunnen bewegen. Ook in de politiek doet het spierontspannende...
+- [Kabinet wil het absolute minimum kwijt zijn aan infrastructuur](https://fd.nl/politiek/1615770/kabinet-wil-het-absolute-minimum-kwijt-zijn-aan-infrastructuur)
+  > Aanvullende eisen voor infrastructuurprojecten komen voortaan voor rekening van gemeenten of provincies zelf, meldt het kabinet.
+- [Zo breng je meer kleur in huis](https://fd.nl/samenleving/1615743/zo-breng-je-meer-kleur-in-huis)
+  > In een chaotische wereld is ergens thuiskomen waar harmonie heerst belangrijk. Kleur is een van de krachtigste middelen om dat doel mee te bereiken....
+- [Bouwen. Vliegen. Bijsturen. Hoe SpaceX werkt aan het grootste ruimteschip ooit](https://fd.nl/tech-en-innovatie/1615676/bouwen-vliegen-bijsturen-hoe-spacex-werkt-aan-het-grootste-ruimteschip-ooit)
+  > SpaceX investeert enorm in de reusachtige Starship-raket, waarmee het Amerikaanse bedrijf de ruimte wil veroveren. Voor de rest van de sector heeft...
 
 ### Meest gelezen
 
