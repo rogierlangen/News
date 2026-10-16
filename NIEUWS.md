@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-10-2026 om 03:51*
+*Laatst bijgewerkt: 16-10-2026 om 08:52*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Meer meldingen van arbeidsuitbuiting en te weinig daders gestraft, zegt rapporteur](https://nos.nl/l/2635154)
-  > Het aantal meldingen van arbeidsuitbuiting is vorig jaar toegenomen, zegt de Nationaal Rapporteur Mensenhandel en Seksueel Geweld tegen Kinderen in...
-- [Jongen (16) schiet lerares en drie kinderen dood in Amerikaanse basisschool](https://nos.nl/l/2635153)
-  > Op een basisschool In de Amerikaanse staat Oregon heeft een jongen van 16 drie kinderen en een lerares doodgeschoten. De dader is door een...
-- [Weer incident bij kapperszaak in Vlaardingen, mogelijk verband met 'kappersoorlog'](https://nos.nl/l/2635152)
-  > In Vlaardingen is opnieuw een incident geweest bij een kapperszaak. Volgens de politie werd er rond 01.00 uur geschoten op een zaak aan het Liesveld....
-- [Opnieuw protest in Albanië tegen corruptie, duur onderwijs en Trump-resort](https://nos.nl/l/2635148)
-  > In Albanië zijn studenten en andere demonstranten voor de derde avond op rij slaags geraakt met de politie. In de hoofdstad Tirana en in andere...
-- [BBC: onderzoeken van Israëlische leger blijven vaak op de plank liggen](https://nos.nl/l/2635145)
-  > Honderden onderzoeken naar dodelijke aanvallen van het Israëlische leger blijven op de plank liggen, blijkt uit onderzoek van de BBC. Ook wordt er...
+- [Belgische tandarts opgepakt om zedendelicten, zou 71-jarige vrouw in kruis hebben betast](https://nos.nl/l/2635182)
+  > Een 46-jarige tandarts uit het Belgische Kasterlee wordt beschuldigd van seksueel grensoverschrijdend gedrag. In totaal liggen er aanklachten van...
+- [Politie Las Vegas identificeert na decennia menselijke resten uit gedumpt vat](https://nos.nl/l/2635175)
+  > De politie van Las Vegas heeft na vier jaar onderzoek menselijke resten geïdentificeerd die in Lake Mead werden gevonden, gedumpt in een vat. Het...
+- [Helga (99) is nu oudste 'wingwalker', 97-jarige wil revanche: 'Wacht maar tot ik 100 ben'](https://nos.nl/l/2635167)
+  > Een Britse vrouw van 99 heeft het record voor oudste 'wingwalker' gebroken. Vastgebonden op de vleugel van een dubbeldekker maakte ze in...
+- [Rechter: Meta moet Braziliaanse presidentskandidaten gelijk behandelen](https://nos.nl/l/2635166)
+  > Techgigant Meta moet er in Brazilië per direct voor zorgen dat de twee overgebleven kandidaten voor de presidentsverkiezingen gelijk worden...
+- [Grote brand in parkeergarage in Amsterdam Nieuw-West, 26-jarige man opgepakt](https://nos.nl/l/2635161)
+  > In een ondergrondse parkeergarage aan de Theodoor van Hoytemastraat in Amsterdam Nieuw-West is rond 02.45 uur een grote brand uitgebroken. Zeker 55...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Parkeren voor (t)rouwauto: deze parkeerplaats gaat viraal door efficiënt bord](https://www.ad.nl/auto/parkeren-voor-t-rouwauto-deze-parkeerplaats-gaat-viraal-door-efficient-bord~a0ef81de/)
-  > Hollandse efficiëntie. Zo omschrijft schrijver-acteur Maarten Hopman het bord bij een parkeerplaats naast de Bonaventurakerk in Woerden. Je kunt er...
-- [Trump haalt uit naar Zelensky na Oekraïense aanvallen op raffinaderijen Rusland](https://www.ad.nl/buitenland/trump-haalt-uit-naar-zelensky-na-oekraiense-aanvallen-op-raffinaderijen-rusland~adfb97be/)
-  > De Amerikaanse president Donald Trump noemt het een schande dat zijn Oekraïense ambtgenoot Volodymyr Zelensky aanvallen op Russische raffinaderijen...
-- [Man neergestoken in Groningen, verdachte aangehouden](https://www.ad.nl/groningen/man-neergestoken-in-groningen-verdachte-aangehouden~af9fe8ac/)
-  > Bij een steekincident in Groningen is in de nacht van donderdag op vrijdag een man gewond geraakt. Dat meldt de politie op X.
-- [Negen ontslagen FBI-agenten die Trump onderzochten dienen klacht in tegen directeur en willen baan terug](https://www.ad.nl/buitenland/negen-ontslagen-fbi-agenten-die-trump-onderzochten-dienen-klacht-in-tegen-directeur-en-willen-baan-terug~ae67dd9c/)
-  > Negen voormalige FBI-agenten hebben donderdag een klacht ingediend tegen de directeur van de Amerikaanse veiligheidsdienst, Kash Patel. De agenten...
-- [Drie kinderen en lerares gedood bij schietpartij op Amerikaanse basisschool, ook schutter (16) doodgeschoten](https://www.ad.nl/buitenland/drie-kinderen-en-lerares-gedood-bij-schietpartij-op-amerikaanse-basisschool-ook-schutter-16-doodgeschoten~a77c700d/)
-  > Bij een schietpartij op een basisschool in de Amerikaanse staat Oregon zijn drie kinderen en een lerares omgekomen. De schutter, een 16-jarige...
+- [Brugklasleerling komt om bij verkeersongeluk, school laat lessen vervallen](https://www.ad.nl/veenendaal/brugklasleerling-komt-om-bij-verkeersongeluk-school-laat-lessen-vervallen~a5401671/)
+  > Bij het ongeluk gistermiddag op de Kerkewijk in Veenendaal, is een jonge jongen om het leven gekomen. De scholier was pas net begonnen in de...
+- [Amper drie weken na hun officiële scheiding: Tobey Maguire leidt huwelijksceremonie van ex-vrouw Jennifer](https://www.ad.nl/show/amper-drie-weken-na-hun-officiele-scheiding-tobey-maguire-leidt-huwelijksceremonie-van-ex-vrouw-jennifer~ae6b625c/)
+  > Een opvallende rol voor Tobey Maguire (51) op het huwelijk van zijn ex-vrouw Jennifer Meyer (49). De Spider-Man-acteur leidde afgelopen weekend de...
+- [Trump sneert opnieuw naar Zelensky en zet verhoudingen verder op scherp: ‘Moeilijker om mee te dealen dan Poetin’](https://www.ad.nl/buitenland/trump-sneert-opnieuw-naar-zelensky-en-zet-verhoudingen-verder-op-scherp-moeilijker-om-mee-te-dealen-dan-poetin~a111a81d3/)
+  > Donald Trump noemt het ‘een schande’ dat zijn Oekraïense ambtgenoot Volodymyr Zelensky aanvallen op Russische raffinaderijen heeft hervat. In een...
+- [Zelf kon mevrouw niet meer naar de notaris, dus regelde de makelaar een videoverbinding](https://www.ad.nl/wonen/zelf-kon-mevrouw-niet-meer-naar-de-notaris-dus-regelde-de-makelaar-een-videoverbinding~a8246b62/)
+  > Het Brabantse vakantiehuisje gaat in de verkoop, maar er is één probleem: mevrouw is bedlegerig en kan dus niet meer naar de notaris. Makelaar Benthe...
+- [Bewoners van zeker 55 appartementen kunnen na grote brand in Nieuw-West het hele weekend niet naar huis, Amsterdammer (26) aangehouden](https://www.ad.nl/amsterdam/bewoners-van-zeker-55-appartementen-kunnen-na-grote-brand-in-nieuw-west-het-hele-weekend-niet-naar-huis-amsterdammer-26-aangehouden~a4700a4e/)
+  > In een parkeergarage van een flat aan de Theodoor van Hoytemastraat in Amsterdam Nieuw-West is donderdagnacht een grote brand uitgebroken. De...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [ABN Amro zit klem door sancties tegen Internationaal Strafhof](https://fd.nl/economie/1615764/abn-amro-zit-klem-door-sancties-tegen-internationaal-strafhof)
-  > Vandaag in Dagkoers: ABN Amro in spagaat door Amerikaanse sancties tegen het Internationaal Strafhof, hoe kunnen ceo’s het beste communiceren over...
-- [Worm in de warmtepomp](https://fd.nl/opinie/1615789/worm-in-de-warmtepomp)
-  > Een domme kookplaat moet voortplantende en onverwijderbare ‘AI-wormen’ tegengaan.
-- [Grimlachen met de sombermannen](https://fd.nl/opinie/1615544/grimlachen-met-de-sombermannen)
-  > Een zaal vol mannen die vrezen voor trumpiaanse chaos en boekhouden à la française. Rechts ingehaald worden; het is even wennen, schrijft columnist...
-- [Personalia vrijdag 16 oktober](https://fd.nl/bedrijfsleven/1615790/personalia-vrijdag-16-oktober)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [ECB akkoord met overname Commerzbank door UniCredit](https://fd.nl/bedrijfsleven/1615843/ecb-akkoord-met-overname-commerzbank-door-unicredit)
-  > Door de toestemming van de bankentoezichthouder in Frankfurt is een belangrijke horde bij de inlijving van de Duitse financiële instelling genomen.
+- [Is omstreden biomassa de toekomst voor Nederlandse kolencentrales?](https://fd.nl/bedrijfsleven/1615386/is-omstreden-biomassa-de-toekomst-voor-nederlandse-kolencentrales)
+  > Nederlandse kolencentrales overwegen over te stappen op biomassa. Het zou de centrales ook na 2030 in bedrijf kunnen houden. Maar het gebruik is...
+- [Een schoolkrant waarover 25 jaar later nog steeds wordt gepraat](https://fd.nl/samenleving/1613788/een-schoolkrant-waarover-25-jaar-later-nog-steeds-wordt-gepraat)
+  > In Adults in the Room reconstrueert oud-scholier en journalist Isolde Raftery hoe een reeks onthullingen over misbruik een hele gemeenschap blijvend...
+- [Cultuur is geen kostenpost, maar een motor voor groei, innovatie en internationale invloed](https://fd.nl/opinie/1615783/cultuur-is-geen-kostenpost-maar-een-motor-voor-groei-innovatie-en-internationale-invloed)
+  > Van K-pop tot Dutch Design Week: cultuur levert economische waarde op én maakt landen aantrekkelijker. Nederland moet die creatieve kracht veel...
+- [Netflix stelt nieuwe creatief directeur aan](https://fd.nl/bedrijfsleven/1615774/netflix-stelt-nieuwe-creatief-directeur-aan)
+  > Peter Rice werkte eerder bij Walt Disney en 21st Century Fox.
+- [Veel meer meldingen van arbeidsuitbuiting in de land- en tuinbouwsector en de horeca](https://fd.nl/samenleving/1615773/veel-meer-meldingen-van-arbeidsuitbuiting-in-de-land-en-tuinbouwsector-en-de-horeca)
+  > Weinig verdachten worden vervolgd en berecht. Seksuele uitbuiting blijft de meest gemelde vorm van mensenhandel in Nederland.
 
 ### Meest gelezen
 
