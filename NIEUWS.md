@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-10-2026 om 03:41*
+*Laatst bijgewerkt: 17-10-2026 om 08:22*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Nieuwe tegenvaller Oekraïne: Trump zet sancties tegen Rusland op pauze](https://nos.nl/l/2635297)
-  > De Amerikaanse president Trump zet een sanctiepakket tegen Rusland voorlopig in de ijskast. Die sancties waren een maand geleden al aangenomen en...
-- [Dode vrouw in woning Beek en Donk, politie gaat uit van misdrijf](https://nos.nl/l/2635296)
-  > In het Brabantse Beek en Donk, bij Helmond, is om 02.00 uur een dode vrouw gevonden in een huis. De politie gaat ervan uit dat ze door een misdrijf...
-- [Britse verpleegster troggelde bewoonster verzorgingshuis 9 ton af](https://nos.nl/l/2635295)
-  > Een verpleegster uit Wales is geschorst omdat ze jarenlang geld heeft gestolen van een hoogbejaarde vrouw in een verzorgingshuis. Het ging om vele...
-- [Rapper Diddy overgeplaatst naar andere gevangenis, 'leefde als VIP in cel'](https://nos.nl/l/2635294)
-  > De veroordeelde Amerikaanse rapper Diddy is overgeplaatst naar een andere gevangenis. Volgens Amerikaanse media zou hij een luxeleven leiden in de...
-- [Brand in Arnhemse flat die eerder was ontruimd vanwege krakers](https://nos.nl/l/2635293)
-  > In een flat in Arnhem is vrijdagavond brand uitgebroken. De flat was eerder op de dag ontruimd en dichtgetimmerd. Er woonden krakers. Voor zover...
+- [Drie Mexicanen krijgen 158 ​​jaar cel voor drievoudige moord op surfers](https://nos.nl/l/2635321)
+  > Een Mexicaanse rechter heeft drie mannen tot elk 158 jaar en negen maanden gevangenisstraf veroordeeld voor de moord op twee Australische broers en...
+- [Acteur en presentator Maarten Spanjer (73) overleden](https://nos.nl/l/2635317)
+  > Acteur en presentator Maarten Spanjer is op 73-jarige leeftijd overleden. Dat meldt De Telegraaf, de krant waarvoor hij columns schreef.
+       ...
+- [Wolf maakt zwijnen en herten op Veluwe alerter: 'Vroeger zat er weinig pit in'](https://nos.nl/l/2635314)
+  > Wilde zwijnen, edelherten en reeën op de Veluwe hebben hun gedrag de afgelopen jaren aangepast aan de aanwezigheid van de wolf. Dat concludeert de...
+- [Van scholieren tot gele hesjes: Frankrijk maakt zich op voor dag van massaprotesten](https://nos.nl/l/2635308)
+  > Demonstraties, snelwegblokkades en acties bij brandstofdepots: in heel Frankrijk zijn vandaag protesten. Scholieren en studenten hebben, zoals in de...
+- [Harry en Meghan terug in VK: vragen over quasi-koninklijk leven en staatsbeveiliging](https://nos.nl/l/2635307)
+  > Het zag er allemaal toch wel erg 'koninklijk' uit, ook al zijn Harry en Meghan officieel geen 'werkende royals' meer. Een juichende menigte ontving...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Trump ziet af van heffingen en sancties op Russische energie: ‘In het nationale belang van de VS’](https://www.ad.nl/buitenland/trump-ziet-af-van-heffingen-en-sancties-op-russische-energie-in-het-nationale-belang-van-de-vs~adfb97be/)
-  > De Amerikaanse president Donald Trump ziet af van enorme importheffingen op Russische energie. Deze waren vorige maand opgelegd in een wet die hij...
-- [De krankzinnige week van AH: ‘We hebben op de bonnefooi dingen gepakt en naar winkels verstuurd’](https://www.ad.nl/binnenland/de-krankzinnige-week-van-ah-we-hebben-op-de-bonnefooi-dingen-gepakt-en-naar-winkels-verstuurd~a7bd5a9f/)
-  > Het was de week van Albert Heijn. De grootste supermarkt van het land kampte met een cyberincident en haalde uit voorzorg veel systemen uit de lucht....
-- [Iraanse Revolutionaire Garde: tanker ontploft na aanvaring met zeemijn in Straat van Hormuz](https://www.ad.nl/buitenland/iraanse-revolutionaire-garde-tanker-ontploft-na-aanvaring-met-zeemijn-in-straat-van-hormuz~ac528ac3/)
-  > De Iraanse Revolutionaire Garde (IRG) heeft gemeld dat een olietanker is ontploft en in brand is gevlogen nadat het schip bij het doorvaren van de...
-- [Overleden vrouw in woning Beek en Donk, politie vermoedt misdrijf](https://www.ad.nl/laarbeek/overleden-vrouw-in-woning-beek-en-donk-politie-vermoedt-misdrijf~a9931e8c/)
-  > In Beek en Donk heeft de politie in de nacht van vrijdag op zaterdag een overleden vrouw in een woning aangetroffen. Er is één persoon aangehouden....
-- [Kandidaten voor VN-leiderschap krijgen veto bij zesde informele stemronde, Costa Ricaanse econoom licht favoriet](https://www.ad.nl/buitenland/kandidaten-voor-vn-leiderschap-krijgen-veto-bij-zesde-informele-stemronde-costa-ricaanse-econoom-licht-favoriet~a29b9e2b/)
-  > Alle zeven kandidaten voor de opvolging van António Guterres als secretaris-generaal van de Verenigde Naties hebben van een permanent lid van de...
+- [De cv-ketel werkt prima, kun je onderhoud dan een keer overslaan?](https://www.ad.nl/wonen/de-cv-ketel-werkt-prima-kun-je-onderhoud-dan-een-keer-overslaan~ab189571/)
+  > De verwarming slaat weer aan, maar is je cv-ketel daar wel klaar voor? Eén op de drie installaties wordt niet vaak genoeg gecontroleerd en dat kan...
+- [Naast lof óók kritiek op infraplannen Karremans: ‘Halve ducttape-oplossing’](https://www.ad.nl/politiek/naast-lof-ook-kritiek-op-infraplannen-karremans-halve-ducttape-oplossing~abc1f320/)
+  > De kabinetsplannen om nieuwe infraprojecten te pauzeren zodat er geld vrijkomt voor broodnodig onderhoud krijgen verdeelde reacties. Waar sommige...
+- [Nurlaila Karim trok als mantelzorger in bij haar moeder (81): ‘Ineens verval je weer in die oude patronen’](https://www.ad.nl/mezza/nurlaila-karim-trok-als-mantelzorger-in-bij-haar-moeder-81-ineens-verval-je-weer-in-die-oude-patronen~ab47946c/)
+  > Niet lang geleden was ze te angstig om in het donker te rijden. De laatste jaren knalt musicalster Nurlaila Karim, nu te zien in Cats, alle beren op...
+- [‘Drijvende Renault-fabriek’ midden in de Seine is nu autovrij kunsteiland](https://www.ad.nl/buitenland/drijvende-renault-fabriek-midden-in-de-seine-is-nu-autovrij-kunsteiland~aae17476/)
+  > Aan de rand van Parijs is – midden in de Seine – een eiland vol kunst verrezen. Jaren rolden er Renaults van de lopende band, inmiddels kun je er...
+- [Harrie Lavreysen naar kwartfinales sprint, Jeffrey Hoogland redt het niet](https://www.ad.nl/wielrennen/harrie-lavreysen-naar-kwartfinales-sprint-jeffrey-hoogland-redt-het-niet~adea5147/)
+  > Deze week zijn de WK baanwielrennen in Sjanghai. De Nederlandse mannen en vrouwen hopen hun titels te verdedigen op de baan. Hier blijf je op de...
 
 ### Meest gelezen
 
@@ -46,16 +47,15 @@
 
 ### Laatste nieuws
 
+- [‘Anthropic dient eigen wetsvoorstel in bij wetgevers over veiligheid AI’](https://fd.nl/bedrijfsleven/1616078/anthropic-dient-eigen-wetsvoorstel-in-bij-wetgevers-over-veiligheid-ai)
+- [Noel Tata jaagt steeds meer mensen tegen zich in het harnas in machtsstrijd](https://fd.nl/bedrijfsleven/1615918/noel-tata-jaagt-steeds-meer-mensen-tegen-zich-in-het-harnas-in-machtsstrijd)
+  > In een conflict binnen het Tata-conglomeraat komt patriarch Noel Tata steeds meer alleen te staan. Zijn opponent Chandra werkt bij de holding door...
+- [Trump schort sancties tegen Rusland op, ‘in nationaal belang van VS’](https://fd.nl/politiek/1616077/trump-schort-sancties-tegen-rusland-op)
+  > Het pakket sancties omvat onder meer heffingen op Russische goederen en straffen voor de aankoop van Russische olie en gas.
 - [Waarom is het IMF bang voor de winter? En wat hebben ‘zoutwatereconomen’ met de Nobelprijs?](https://fd.nl/economie/1615916/waarom-is-het-imf-bang-voor-de-winter-en-wat-hebben-zoutwatereconomen-met-de-nobelprijs)
   > De wereldeconomie blijkt verrassend veerkrachtig, maar steeds meer groei hangt samen met de AI-boom. Wat als die miljardeninvesteringen niet genoeg...
 - [Accountants proberen van stoffig imago af te komen en gaan het circuit op](https://fd.nl/financiele-markten/1615775/accountants-proberen-van-stoffig-imago-af-te-komen-en-gaan-het-circuit-op)
   > Skivakanties en reisjes naar Parijs: accountantskantoren moeten steeds creatievere manieren bedenken om jong talent te werven. Één kantoor bedacht...
-- [Alles gaat mis, maar de economie pruttelt lekker door](https://fd.nl/politiek/1615877/alles-gaat-mis-maar-de-economie-pruttelt-lekker-door)
-  > Een halfjaar na het uitbreken van de oorlog in het Midden-Oosten is het nog steeds wachten op die voorspelde economische neergang. Zijn we met de...
-- [Botox maakt meer kapot dan je lief is](https://fd.nl/opinie/1615844/botox-maakt-meer-kapot-dan-je-lief-is)
-  > Geklaag in de filmwereld, omdat acteurs en actrices door de botox hun gezicht niet meer kunnen bewegen. Ook in de politiek doet het spierontspannende...
-- [Kabinet wil het absolute minimum kwijt zijn aan infrastructuur](https://fd.nl/politiek/1615770/kabinet-wil-het-absolute-minimum-kwijt-zijn-aan-infrastructuur)
-  > Aanvullende eisen voor infrastructuurprojecten komen voortaan voor rekening van gemeenten of provincies zelf, meldt het kabinet.
 
 ### Meest gelezen
 
