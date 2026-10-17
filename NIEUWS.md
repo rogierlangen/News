@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-10-2026 om 12:47*
+*Laatst bijgewerkt: 17-10-2026 om 16:12*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Snelweg bij Luik versperd na ongeluk, man dreigt zijn auto op te blazen](https://nos.nl/l/2635345)
-  > Bij de Belgische gemeente Sprimont, zo'n 25 kilometer ten zuiden van Luik, is een snelweg versperd na een ongeluk. Een van de betrokken chauffeurs...
-- [Man (81) overleden na woningoverval in Schagen, verdachte opgepakt](https://nos.nl/l/2635340)
-  > Een man van 81 uit Schagen (Noord-Holland) is overleden nadat hij in huis was overvallen. De politie heeft een verdachte aangehouden. Het gaat om een...
-- [Leidse laborant verwekte niet 11 maar 16 kinderen met eigen zaad](https://nos.nl/l/2635333)
-  > Een laborant van een Leidse vruchtbaarheidskliniek heeft tussen 1979 en 1984 niet elf maar zestien kinderen verwekt met zijn eigen zaad. Bovendien...
-- [Rellen bij megaprotest in Frankrijk, politie zet traangas en waterkanon in](https://nos.nl/l/2635331)
-  > In verschillende Franse steden zijn protesten tegen de stijgende kosten van het levensonderhoud op rellen uitgelopen. De politie in Parijs heeft...
-- [Gevangene laat kipnuggets, friet en drank per drone afleveren bij Canadese gevangenis](https://nos.nl/l/2635330)
-  > Een Canadese man heeft kipnuggets en frietjes van McDonald's en alcohol via een drone zijn cel in weten te krijgen. Dat heeft de Canadese vakbond...
+- [Onrust Albanië houdt aan: betogers vijf dagen op rij slaags met de politie](https://nos.nl/l/2635379)
+  > Niet alleen in Frankrijk en België is het vandaag onrustig door protesten, ook in Albanië zijn duizenden mensen de straat op gegaan vanwege...
+- [Trouwring na 83 jaar teruggevonden in Brabants dorp: 'Nog in goede staat'](https://nos.nl/l/2635376)
+  > Een man met een metaaldetector heeft in het Brabantse dorp Odiliapeel een trouwring gevonden die al 83 jaar zoek was. De zoon van de inmiddels...
+- [Paus Leo XIV ontslagen uit het ziekenhuis, kan zijn taken volledig hervatten](https://nos.nl/l/2635375)
+  > Paus Leo heeft het ziekenhuis in Rome verlaten, vier dagen na zijn operatie aan longkanker. De 71-jarige paus liep vanmiddag zonder hulp naar de auto...
+- [Alberta naar de stembus: wil de rijkste provincie van Canada onafhankelijk worden?](https://nos.nl/l/2635360)
+  > De Canadese premier Carney richtte zich gisteren tijdens een pro-Canada-campagnebijeenkomst nog één keer tot de kiezers in de provincie Alberta....
+- [Zelensky: nog altijd problemen met Starlink-verbinding, snelheid voor drones beperkt](https://nos.nl/l/2635355)
+  > Het Oekraïense leger ondervindt nog steeds problemen met Starlink, het Amerikaanse satellietnetwerk dat voor Oekraïne essentieel is voor de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Italiaanse verrast klassementsleidster Nooijen en pakt zege op VAM-berg, mannen finishen later](https://www.ad.nl/wielrennen/italiaanse-verrast-klassementsleidster-nooijen-en-pakt-zege-op-vam-berg-mannen-finishen-later~ab9f3900/)
-  > De Eneco Tour gaat vandaag met de voorlaatste etappe. De scherprechter is de VAM-berg, die meerdere keren wordt beklommen. Bij de vrouwen trok...
-- [Hoe rozenkweker Arie van den Berg miljoenen bloemen per dag laat knippen en toch onder druk staat](https://www.ad.nl/binnenland/hoe-rozenkweker-arie-van-den-berg-miljoenen-bloemen-per-dag-laat-knippen-en-toch-onder-druk-staat~a54e66b0/)
-  > Arie van den Berg (54) is dé rozenkoning van Nederland. Bij zijn bedrijf  worden miljoenen bloemen met de hand geknipt. Dat gebeurt thuis in Delfgauw...
-- [Man schiet zichzelf per ongeluk door been bij schietvereniging in Drachten](https://www.ad.nl/112-nieuws-smallingerland/man-schiet-zichzelf-per-ongeluk-door-been-bij-schietvereniging-in-drachten~a9c01c45/)
-  > Een 69-jarige man heeft zichzelf zaterdagmiddag per ongeluk door zijn been geschoten bij een schietvereniging aan de Sportlaan in Drachten. De kogel...
-- [Frenkie de Jong keert terug in historische doelpuntenmachine: slechts 3 teams ooit productiever dan dit FC Barcelona](https://www.ad.nl/voetbal/frenkie-de-jong-keert-terug-in-historische-doelpuntenmachine-slechts-3-teams-ooit-productiever-dan-dit-fc-barcelona~a514d2d0/)
-  > Frenkie de Jong is eindelijk weer inzetbaar voor Barcelona. De Nederlandse middenvelder keert vandaag tegen Real Betis terug in de wedstrijdselectie...
-- [Wessel Nijman naar laatste 16 in Maastricht, Nederlander die scoorde in KNVB-beker wint bij profdebuut als darter](https://www.ad.nl/darts/wessel-nijman-naar-laatste-16-in-maastricht-nederlander-die-scoorde-in-knvb-beker-wint-bij-profdebuut-als-darter~a20b1161/)
-  > De beste darters van Europa zijn dit weekend neergestreken in Maastricht voor de Euro Tour. Vrijdagavond komen de eerste Nederlanders in actie voor...
+- [Nederlandse turners voorlopig tweede op WK, alleen Rusland doet het beter in Rotterdam](https://www.ad.nl/andere-sporten/nederlandse-turners-voorlopig-tweede-op-wk-alleen-rusland-doet-het-beter-in-rotterdam~aa07bdf6/)
+  > De Nederlandse mannen staan voorlopig op de tweede plaats in het landenklassement op het WK turnen in Rotterdam. Alleen Rusland, dat onder de...
+- [Franse politie zet op verschillende plekken traangas en waterkanonnen in](https://www.ad.nl/buitenland/franse-politie-zet-op-verschillende-plekken-traangas-en-waterkanonnen-in~ac3f389f/)
+  > In verschillende Franse en Belgische steden zijn protesten op rellen uitgelopen. Er zijn honderden arrestaties verricht. Vanavond volgt er...
+- [Liverpool pakt zege in jubileumduel Virgil van Dijk, Zian Flemming scoort voor Ipswich tegen City](https://www.ad.nl/voetbal/liverpool-pakt-zege-in-jubileumduel-virgil-van-dijk-zian-flemming-scoort-voor-ipswich-tegen-city~aa0c653a/)
+  > Liverpool heeft een belangrijke overwinning geboekt op Brentford. In de 200ste wedstrijd van Virgil van Dijk als aanvoerder van The Reds won de...
+- [Max Verstappen staat voor debuutrace in GT World Challenge, Valentino Rossi al vroeg van de baan](https://www.ad.nl/formule-1/max-verstappen-staat-voor-debuutrace-in-gt-world-challenge-valentino-rossi-al-vroeg-van-de-baan~a38cda10/)
+  > Max Verstappen rijdt vanavond op het Portugese circuit van Portimão zijn eerste race in de GT World Challenge Europe. Samen met Chris Lulham en Ben...
+- [Na ‘pauzejaar’ is Fem van Empel bij rentree al beter dan verwacht: ‘Hopen dat ik geselecteerd word voor EK’](https://www.ad.nl/wielrennen/na-pauzejaar-is-fem-van-empel-bij-rentree-al-beter-dan-verwacht-hopen-dat-ik-geselecteerd-word-voor-ek~aa99b2ed/)
+  > Begin november 2025 stapte wereldkampioene Fem van Empel op de Koppenberg letterlijk uit het veld. Na een jaar van ‘iets anders doen en weer gezond...
 
 ### Meest gelezen
 
@@ -46,14 +46,15 @@
 
 ### Laatste nieuws
 
+- [Zelensky: Starlink-vertraging op Oekraïens grondgebied is ‘geplande operatie’](https://fd.nl/politiek/1616079/zelensky-starlink-vertraging-op-oekraiens-grondgebied-is-geplande-operatie)
+  > Kyiv meldde eerder deze week dat de toegang tot Starlink-systemen van SpaceX was beperkt.
 - [Politie grijpt in bij grootschalige protesten in Frankrijk](https://fd.nl/samenleving/1616007/politie-grijpt-in-bij-grootschalige-protesten-in-frankrijk)
+  > De Fransen protesteren tegen de stijgende kosten van het levensonderhoud en willen verandering. De regering kan weinig structureel beleid maken: er...
 - [‘Anthropic dient eigen wetsvoorstel in bij wetgevers over veiligheid AI’](https://fd.nl/bedrijfsleven/1616078/anthropic-dient-eigen-wetsvoorstel-in-bij-wetgevers-over-veiligheid-ai)
 - [Noel Tata jaagt steeds meer mensen tegen zich in het harnas in machtsstrijd](https://fd.nl/bedrijfsleven/1615918/noel-tata-jaagt-steeds-meer-mensen-tegen-zich-in-het-harnas-in-machtsstrijd)
   > In een conflict binnen het Tata-conglomeraat komt patriarch Noel Tata steeds meer alleen te staan. Zijn opponent Chandra werkt bij de holding door...
 - [Trump schort sancties tegen Rusland op, ‘in nationaal belang van VS’](https://fd.nl/politiek/1616077/trump-schort-sancties-tegen-rusland-op)
   > Het pakket sancties omvat onder meer heffingen op Russische goederen en straffen voor de aankoop van Russische olie en gas.
-- [Waarom is het IMF bang voor de winter? En wat hebben ‘zoutwatereconomen’ met de Nobelprijs?](https://fd.nl/economie/1615916/waarom-is-het-imf-bang-voor-de-winter-en-wat-hebben-zoutwatereconomen-met-de-nobelprijs)
-  > De wereldeconomie blijkt verrassend veerkrachtig, maar steeds meer groei hangt samen met de AI-boom. Wat als die miljardeninvesteringen niet genoeg...
 
 ### Meest gelezen
 
