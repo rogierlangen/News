@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-10-2026 om 08:22*
+*Laatst bijgewerkt: 17-10-2026 om 12:47*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Drie Mexicanen krijgen 158 ​​jaar cel voor drievoudige moord op surfers](https://nos.nl/l/2635321)
-  > Een Mexicaanse rechter heeft drie mannen tot elk 158 jaar en negen maanden gevangenisstraf veroordeeld voor de moord op twee Australische broers en...
-- [Acteur en presentator Maarten Spanjer (73) overleden](https://nos.nl/l/2635317)
-  > Acteur en presentator Maarten Spanjer is op 73-jarige leeftijd overleden. Dat meldt De Telegraaf, de krant waarvoor hij columns schreef.
-       ...
-- [Wolf maakt zwijnen en herten op Veluwe alerter: 'Vroeger zat er weinig pit in'](https://nos.nl/l/2635314)
-  > Wilde zwijnen, edelherten en reeën op de Veluwe hebben hun gedrag de afgelopen jaren aangepast aan de aanwezigheid van de wolf. Dat concludeert de...
-- [Van scholieren tot gele hesjes: Frankrijk maakt zich op voor dag van massaprotesten](https://nos.nl/l/2635308)
-  > Demonstraties, snelwegblokkades en acties bij brandstofdepots: in heel Frankrijk zijn vandaag protesten. Scholieren en studenten hebben, zoals in de...
-- [Harry en Meghan terug in VK: vragen over quasi-koninklijk leven en staatsbeveiliging](https://nos.nl/l/2635307)
-  > Het zag er allemaal toch wel erg 'koninklijk' uit, ook al zijn Harry en Meghan officieel geen 'werkende royals' meer. Een juichende menigte ontving...
+- [Snelweg bij Luik versperd na ongeluk, man dreigt zijn auto op te blazen](https://nos.nl/l/2635345)
+  > Bij de Belgische gemeente Sprimont, zo'n 25 kilometer ten zuiden van Luik, is een snelweg versperd na een ongeluk. Een van de betrokken chauffeurs...
+- [Man (81) overleden na woningoverval in Schagen, verdachte opgepakt](https://nos.nl/l/2635340)
+  > Een man van 81 uit Schagen (Noord-Holland) is overleden nadat hij in huis was overvallen. De politie heeft een verdachte aangehouden. Het gaat om een...
+- [Leidse laborant verwekte niet 11 maar 16 kinderen met eigen zaad](https://nos.nl/l/2635333)
+  > Een laborant van een Leidse vruchtbaarheidskliniek heeft tussen 1979 en 1984 niet elf maar zestien kinderen verwekt met zijn eigen zaad. Bovendien...
+- [Rellen bij megaprotest in Frankrijk, politie zet traangas en waterkanon in](https://nos.nl/l/2635331)
+  > In verschillende Franse steden zijn protesten tegen de stijgende kosten van het levensonderhoud op rellen uitgelopen. De politie in Parijs heeft...
+- [Gevangene laat kipnuggets, friet en drank per drone afleveren bij Canadese gevangenis](https://nos.nl/l/2635330)
+  > Een Canadese man heeft kipnuggets en frietjes van McDonald's en alcohol via een drone zijn cel in weten te krijgen. Dat heeft de Canadese vakbond...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De cv-ketel werkt prima, kun je onderhoud dan een keer overslaan?](https://www.ad.nl/wonen/de-cv-ketel-werkt-prima-kun-je-onderhoud-dan-een-keer-overslaan~ab189571/)
-  > De verwarming slaat weer aan, maar is je cv-ketel daar wel klaar voor? Eén op de drie installaties wordt niet vaak genoeg gecontroleerd en dat kan...
-- [Naast lof óók kritiek op infraplannen Karremans: ‘Halve ducttape-oplossing’](https://www.ad.nl/politiek/naast-lof-ook-kritiek-op-infraplannen-karremans-halve-ducttape-oplossing~abc1f320/)
-  > De kabinetsplannen om nieuwe infraprojecten te pauzeren zodat er geld vrijkomt voor broodnodig onderhoud krijgen verdeelde reacties. Waar sommige...
-- [Nurlaila Karim trok als mantelzorger in bij haar moeder (81): ‘Ineens verval je weer in die oude patronen’](https://www.ad.nl/mezza/nurlaila-karim-trok-als-mantelzorger-in-bij-haar-moeder-81-ineens-verval-je-weer-in-die-oude-patronen~ab47946c/)
-  > Niet lang geleden was ze te angstig om in het donker te rijden. De laatste jaren knalt musicalster Nurlaila Karim, nu te zien in Cats, alle beren op...
-- [‘Drijvende Renault-fabriek’ midden in de Seine is nu autovrij kunsteiland](https://www.ad.nl/buitenland/drijvende-renault-fabriek-midden-in-de-seine-is-nu-autovrij-kunsteiland~aae17476/)
-  > Aan de rand van Parijs is – midden in de Seine – een eiland vol kunst verrezen. Jaren rolden er Renaults van de lopende band, inmiddels kun je er...
-- [Harrie Lavreysen naar kwartfinales sprint, Jeffrey Hoogland redt het niet](https://www.ad.nl/wielrennen/harrie-lavreysen-naar-kwartfinales-sprint-jeffrey-hoogland-redt-het-niet~adea5147/)
-  > Deze week zijn de WK baanwielrennen in Sjanghai. De Nederlandse mannen en vrouwen hopen hun titels te verdedigen op de baan. Hier blijf je op de...
+- [Italiaanse verrast klassementsleidster Nooijen en pakt zege op VAM-berg, mannen finishen later](https://www.ad.nl/wielrennen/italiaanse-verrast-klassementsleidster-nooijen-en-pakt-zege-op-vam-berg-mannen-finishen-later~ab9f3900/)
+  > De Eneco Tour gaat vandaag met de voorlaatste etappe. De scherprechter is de VAM-berg, die meerdere keren wordt beklommen. Bij de vrouwen trok...
+- [Hoe rozenkweker Arie van den Berg miljoenen bloemen per dag laat knippen en toch onder druk staat](https://www.ad.nl/binnenland/hoe-rozenkweker-arie-van-den-berg-miljoenen-bloemen-per-dag-laat-knippen-en-toch-onder-druk-staat~a54e66b0/)
+  > Arie van den Berg (54) is dé rozenkoning van Nederland. Bij zijn bedrijf  worden miljoenen bloemen met de hand geknipt. Dat gebeurt thuis in Delfgauw...
+- [Man schiet zichzelf per ongeluk door been bij schietvereniging in Drachten](https://www.ad.nl/112-nieuws-smallingerland/man-schiet-zichzelf-per-ongeluk-door-been-bij-schietvereniging-in-drachten~a9c01c45/)
+  > Een 69-jarige man heeft zichzelf zaterdagmiddag per ongeluk door zijn been geschoten bij een schietvereniging aan de Sportlaan in Drachten. De kogel...
+- [Frenkie de Jong keert terug in historische doelpuntenmachine: slechts 3 teams ooit productiever dan dit FC Barcelona](https://www.ad.nl/voetbal/frenkie-de-jong-keert-terug-in-historische-doelpuntenmachine-slechts-3-teams-ooit-productiever-dan-dit-fc-barcelona~a514d2d0/)
+  > Frenkie de Jong is eindelijk weer inzetbaar voor Barcelona. De Nederlandse middenvelder keert vandaag tegen Real Betis terug in de wedstrijdselectie...
+- [Wessel Nijman naar laatste 16 in Maastricht, Nederlander die scoorde in KNVB-beker wint bij profdebuut als darter](https://www.ad.nl/darts/wessel-nijman-naar-laatste-16-in-maastricht-nederlander-die-scoorde-in-knvb-beker-wint-bij-profdebuut-als-darter~a20b1161/)
+  > De beste darters van Europa zijn dit weekend neergestreken in Maastricht voor de Euro Tour. Vrijdagavond komen de eerste Nederlanders in actie voor...
 
 ### Meest gelezen
 
@@ -47,6 +46,7 @@
 
 ### Laatste nieuws
 
+- [Politie grijpt in bij grootschalige protesten in Frankrijk](https://fd.nl/samenleving/1616007/politie-grijpt-in-bij-grootschalige-protesten-in-frankrijk)
 - [‘Anthropic dient eigen wetsvoorstel in bij wetgevers over veiligheid AI’](https://fd.nl/bedrijfsleven/1616078/anthropic-dient-eigen-wetsvoorstel-in-bij-wetgevers-over-veiligheid-ai)
 - [Noel Tata jaagt steeds meer mensen tegen zich in het harnas in machtsstrijd](https://fd.nl/bedrijfsleven/1615918/noel-tata-jaagt-steeds-meer-mensen-tegen-zich-in-het-harnas-in-machtsstrijd)
   > In een conflict binnen het Tata-conglomeraat komt patriarch Noel Tata steeds meer alleen te staan. Zijn opponent Chandra werkt bij de holding door...
@@ -54,8 +54,6 @@
   > Het pakket sancties omvat onder meer heffingen op Russische goederen en straffen voor de aankoop van Russische olie en gas.
 - [Waarom is het IMF bang voor de winter? En wat hebben ‘zoutwatereconomen’ met de Nobelprijs?](https://fd.nl/economie/1615916/waarom-is-het-imf-bang-voor-de-winter-en-wat-hebben-zoutwatereconomen-met-de-nobelprijs)
   > De wereldeconomie blijkt verrassend veerkrachtig, maar steeds meer groei hangt samen met de AI-boom. Wat als die miljardeninvesteringen niet genoeg...
-- [Accountants proberen van stoffig imago af te komen en gaan het circuit op](https://fd.nl/financiele-markten/1615775/accountants-proberen-van-stoffig-imago-af-te-komen-en-gaan-het-circuit-op)
-  > Skivakanties en reisjes naar Parijs: accountantskantoren moeten steeds creatievere manieren bedenken om jong talent te werven. Één kantoor bedacht...
 
 ### Meest gelezen
 
