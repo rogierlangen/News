@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-10-2026 om 19:06*
+*Laatst bijgewerkt: 17-10-2026 om 22:03*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Israëlische kolonisten vallen Europese diplomaten aan op Westelijke Jordaanoever](https://nos.nl/l/2635408)
+  > Israëlische kolonisten hebben Palestijnen en Europese diplomaten aangevallen op de Westelijke Jordaanoever, die Israël bezet houdt. Dat melden...
 - [VS wil 'war on drugs' uitbreiden naar vasteland Latijns-Amerika](https://nos.nl/l/2635392)
   > De Verenigde Staten mengen zich steeds meer in de anti-drugsoorlog in een aantal Latijns-Amerikaanse landen. Het begon in 2025 met aanvallen op...
 - [Franse regering zegt zich niet te laten intimideren door geweld op protestdag](https://nos.nl/l/2635391)
@@ -16,8 +18,6 @@
   > De politie heeft een 27-jarige man uit Vlaardingen aangehouden op verdenking van betrokkenheid bij een explosie bij een kapperszaak. Ook deze week...
 - [Onrust Albanië houdt aan: betogers vijf dagen op rij slaags met de politie](https://nos.nl/l/2635379)
   > Niet alleen in Frankrijk en België is het vandaag onrustig door protesten, ook in Albanië zijn duizenden mensen de straat op gegaan vanwege...
-- [Trouwring na 83 jaar teruggevonden in Brabants dorp: 'Nog in goede staat'](https://nos.nl/l/2635376)
-  > Een man met een metaaldetector heeft in het Brabantse dorp Odiliapeel een trouwring gevonden die al 83 jaar zoek was. De zoon van de inmiddels...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Max Verstappen geeft kleine show weg bij debuut GTWC, straf teamgenoot voorkomt podiumplek](https://www.ad.nl/formule-1/max-verstappen-geeft-kleine-show-weg-bij-debuut-gtwc-straf-teamgenoot-voorkomt-podiumplek~a38cda10/)
-  > Max Verstappen is bij zijn debuut in de GT World Challenge Europe als negende geëindigd. De Nederlander liet zijn spierballen zien, maar tot een...
-- [Elf mensen naar ziekenhuis na proeven van brouwwater tijdens Grolsch-rondleiding](https://www.ad.nl/binnenland/elf-mensen-naar-ziekenhuis-na-proeven-van-brouwwater-tijdens-grolsch-rondleiding~a4cfcdf9/)
-  > Bij een incident in de Grolsch-fabriek zijn zaterdagmiddag elf personen onwel geraakt nadat ze hebben gedronken van brouwwater. Ze zijn overgebracht...
-- [Als Keijzer ‘niet aan de orde’ zegt, moet je opletten](https://www.ad.nl/politiek/als-keijzer-niet-aan-de-orde-zegt-moet-je-opletten~a6315200/)
-  > Zitten kiezers wel te wachten op een zoveelste rechtse partij? Mona Keijzer tast haar kansen af. Oud-minister Rita Verdonk weet wel wat samenwerking...
-- [Van Gerwen begonnen aan partij in Maastricht, Van Veen en Wattimena overtuigend naar laatste 16](https://www.ad.nl/darts/van-gerwen-begonnen-aan-partij-in-maastricht-van-veen-en-wattimena-overtuigend-naar-laatste-16~a20b1161/)
-  > De beste darters van Europa zijn dit weekend neergestreken in Maastricht voor de Euro Tour. Vrijdagavond komen de eerste Nederlanders in actie voor...
-- [Doelpuntenfestijn in Velsen-Zuid: Telstar slaat terug, maar Feyenoord behoudt de leiding](https://www.ad.nl/voetbal/doelpuntenfestijn-in-velsen-zuid-telstar-slaat-terug-maar-feyenoord-behoudt-de-leiding~acc1e2e9/)
-  > Feyenoord is na acht speelronden de trotse koploper van de eredivisie. De Rotterdammers gaan vanavond op bezoek bij laagvlieger Telstar. Volg het...
+- [Sparta weet op feestavond eindelijk weer hoe het voelt om te winnen op Het Kasteel](https://www.ad.nl/voetbal/sparta-weet-op-feestavond-eindelijk-weer-hoe-het-voelt-om-te-winnen-op-het-kasteel~a8b2aa2e/)
+  > Op de feestavond ter ere van het 110-jarig bestaan van Het Kasteel heeft Sparta eindelijk weer in eigen huis weten te winnen. Hekkensluiter Willem II...
+- [Boosheid bij Telstar over discutabele strafschop tegen Feyenoord: ‘Ik moet mezelf echt inhouden’](https://www.ad.nl/voetbal/boosheid-bij-telstar-over-discutabele-strafschop-tegen-feyenoord-ik-moet-mezelf-echt-inhouden~a1765c38/)
+  > Een handsbal die op de beelden vrijwel niet te zien was: Telstar kreeg in de thuiswedstrijd tegen Feyenoord (3-4) een discutabele penalty tegen....
+- [Autoshow in Parijs is strijdtoneel geworden: China verdubbelt en Europa slaat terug](https://www.ad.nl/auto/autoshow-in-parijs-is-strijdtoneel-geworden-china-verdubbelt-en-europa-slaat-terug~a5faa689/)
+  > De autoshow van Parijs, die deze week is begonnen, blijkt vooral een strijdtoneel. In vergelijking met de vorige editie is het aantal Chinese merken...
+- [Honderdduizenden Fransen en Italianen de straat op voor een beter leven, maar dat eindigt in plunderingen en brandstichtingen](https://www.ad.nl/buitenland/honderdduizenden-fransen-en-italianen-de-straat-op-voor-een-beter-leven-maar-dat-eindigt-in-plunderingen-en-brandstichtingen~adca227a/)
+  > Een dag van protest in Frankrijk mondde zaterdag opnieuw uit in grootschalig geweld met plunderingen, vernielingen en  brandstichtingen. Ook in...
+- [Sem Steijn gidst Feyenoord langs Telstar in doelpuntenfestijn, gat met PSV nu vier punten](https://www.ad.nl/voetbal/sem-steijn-gidst-feyenoord-langs-telstar-in-doelpuntenfestijn-gat-met-psv-nu-vier-punten~acc1e2e9/)
+  > Feyenoord heeft een gaatje van vier punten geslagen met concurrent PSV. De winst in Velsen-Zuid was er geen eentje om nog lang trots op terug te...
 
 ### Meest gelezen
 
