@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-10-2026 om 20:19*
+*Laatst bijgewerkt: 18-10-2026 om 22:53*
 
 ---
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Stand | Ajax profiteert van puntenverlies PSV, AZ én Twente, dit is de voorsprong van koploper Feyenoord](https://www.ad.nl/voetbal/stand-ajax-profiteert-van-puntenverlies-psv-az-en-twente-dit-is-de-voorsprong-van-koploper-feyenoord~a5ebff08/)
-  > Feyenoord is de koploper van de eredivisie. at is de voorsprong op de rest en hoe ziet het programma eruit? Bekijk in dit artikel het complete...
-- [FC Utrecht stunt dankzij fraaie goals Alarcón met verrassende zege bij FC Twente](https://www.ad.nl/voetbal/fc-utrecht-stunt-dankzij-fraaie-goals-alarcon-met-verrassende-zege-bij-fc-twente~a480d98f/)
-  > FC Utrecht heeft zondagavond voor een stunt gezorgd: uit bij FC Twente werd het 1-2. Ángel Alarcón legde de ploeg uit Enschede met twee identieke...
-- [Gemiste penalty, maar dan tóch een punt: NEC knokt zich in hectisch slot naast Fortuna](https://www.ad.nl/voetbal/gemiste-penalty-maar-dan-toch-een-punt-nec-knokt-zich-in-hectisch-slot-naast-fortuna~a139b483/)
-  > NEC heeft op de valreep alsnog een punt gepakt in de thuiswedstrijd tegen Fortuna Sittard. Na een gemiste penalty van Mitchel Bakker in minuut 90 was...
-- [Danny Noppert ondanks opleving Gian van Veen naar finale in Maastricht, tegen een landgenoot?](https://www.ad.nl/darts/danny-noppert-ondanks-opleving-gian-van-veen-naar-finale-in-maastricht-tegen-een-landgenoot~a20b1161/)
-  > De beste darters van Europa zijn dit weekend neergestreken in Maastricht voor de Euro Tour. Vrijdagavond komen de eerste Nederlanders in actie voor...
-- [Hoop tranen, ruzies en sneren bij reünie Love is blind, maar dan wordt er een onverwacht stel onthuld](https://www.ad.nl/show/hoop-tranen-ruzies-en-sneren-bij-reunie-love-is-blind-maar-dan-wordt-er-een-onverwacht-stel-onthuld~af9ccdd7/)
-  > De reünie van het eerste seizoen Love is blind Nederland was er een met een hoop emotie. Tranen vloeiden en de deelnemers gingen de confrontatie met...
+- [Vlucht van Tel Aviv naar Wenen maakt noodlanding na bommelding](https://www.ad.nl/buitenland/vlucht-van-tel-aviv-naar-wenen-maakt-noodlanding-na-bommelding~ad8787fa/)
+  > Een vliegtuig dat onderweg was van de Israëlische stad Tel Aviv naar Wenen, heeft een noodlanding gemaakt in Sofia. Volgens het Bulgaarse ministerie...
+- [Vier doden bij grote brand op Canadese legerbasis, zeker 19 gewonden in levensgevaar](https://www.ad.nl/buitenland/vier-doden-bij-grote-brand-op-canadese-legerbasis-zeker-19-gewonden-in-levensgevaar~aca7f8eb/)
+  > Bij de brand op de militaire basis in de Canadese provincie Alberta zijn in de nacht van zaterdag op zondag vier militairen omgekomen. Dat maakte de...
+- [Maarten Spanjer trouwde vijf dagen voor zijn overlijden nog snel in het ziekenhuis](https://www.ad.nl/show/maarten-spanjer-trouwde-vijf-dagen-voor-zijn-overlijden-nog-snel-in-het-ziekenhuis~afc3d004/)
+  > Maarten Spanjer is vijf dagen voor zijn overlijden nog getrouwd. Dat heeft zijn weduwe Monique Waterham verteld aan De Telegraaf. „Ik wil als...
+- [Niels Zonneveld pakt in Maastricht eerste PDC-titel én 41.000 euro: ‘Dit is onbeschrijfelijk’](https://www.ad.nl/darts/niels-zonneveld-pakt-in-maastricht-eerste-pdc-titel-en-41-000-euro-dit-is-onbeschrijfelijk~a20b1161/)
+  > Niels Zonneveld heeft zijn eerste PDC-titel te pakken. Triple Z beleefde een geweldig weekend in Maastricht en klopte landgenoot Danny Noppert in de...
+- [‘Bergkampiaanse’ Kylian Mbappé etaleert Gouden Bal-vorm met sublieme goal en panenka](https://www.ad.nl/voetbal/bergkampiaanse-kylian-mbappe-etaleert-gouden-bal-vorm-met-sublieme-goal-en-panenka~a133a2f2/)
+  > Kylian Mbappé heeft maar weer eens laten zien dat hij tot de topfavorieten voor de Gouden Bal-verkiezing van volgende week maandag behoort. Met twee...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Macron veroordeelt gewelddadige acties bij protesten en kondigt maatregelen aan](https://fd.nl/politiek/1616104/macron-veroordeelt-gewelddadige-acties-bij-protesten-en-kondigt-maatregelen-aan)
-  > De Franse president reageert woedend op de golf van geweld bij de protesten van dit weekend.
-- [VS dreigen met represailles als Brussel toegang tot EU-markt beperkt](https://fd.nl/politiek/1616084/vs-dreigen-met-represailles-als-brussel-toegang-tot-eu-markt-beperkt)
-  > Amerikaanse ambassadeur bij de EU waarschuwt na besluit om Europese bedrijven voorrang te geven bij satellietcommunicatie.
-- [Gewelddadige Franse protesten spelen uiterst rechtse Le Pen in de kaart](https://fd.nl/politiek/1616083/gewelddadige-franse-protesten-spelen-uiterst-rechtse-le-pen-in-de-kaart)
-  > Extreemlinks krijgt de schuld van de ravage die dit weekend in tientallen Franse steden is aangericht. RN, de ultrarechtse partij van...
-- [Het kabinet kan beter zelf lenen](https://fd.nl/opinie/1615853/het-kabinet-kan-beter-zelf-lenen)
-  > Met pensioenfondsen en de EIB zaken doen kan, maar waarom leent het kabinet niet zelf meer? Lenen op de kapitaalmarkt is voor het Rijk een stuk...
-- [Opel-moeder zoekt honderden nieuwe technici](https://fd.nl/bedrijfsleven/1616015/opel-moeder-zoekt-honderden-nieuwe-technici)
-  > Stellantis ziet na een moeilijke periode voor autofabrikanten weer ruimte voor groei.
+- [Trots en laf](https://fd.nl/opinie/1616011/trots-en-laf)
+  > Een redding door de ECB komt met veel voorwaarden waaraan Frankrijk vast niet wil voldoen.
+- [Turkije dreigt hoge rekening te betalen voor beursschandaal](https://fd.nl/financiele-markten/1615849/turkije-dreigt-hoge-rekening-te-betalen-voor-beursschandaal)
+  > Als de regering het toezicht op de beurs niet aanscherpt na een schandaal vorige maand, overweegt indexaanbieder MSCI de status van het land als...
+- [Deel obligatiehouders weigert Vesteda opnieuw extra speelruimte te geven](https://fd.nl/financiele-markten/1615744/deel-obligatiehouders-weigert-vesteda-opnieuw-extra-speelruimte-te-geven)
+  > De woningbelegger wil de voorwaarden aanscherpen waaronder obligatiehouders hun geld kunnen terugeisen als Vesteda flink moet inkrimpen. Dat is...
+- [Ziekenhuisbots zoeken vooral declaraties, geen kwalen](https://fd.nl/opinie/1615038/ziekenhuisbots-zoeken-vooral-declaraties-geen-kwalen)
+  > In de Verenigde Staten luiden zorgverzekeraars de noodklok: AI-gebruik in ziekenhuizen zorgde daar de laatste twee jaar voor maar liefst $1 mrd extra...
+- [Personalia maandag 19 oktober](https://fd.nl/bedrijfsleven/1615792/personalia-maandag-19-oktober)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
