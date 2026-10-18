@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-10-2026 om 00:43*
+*Laatst bijgewerkt: 18-10-2026 om 05:33*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Van onze correspondent... Mustafa Marghadi (Zuidoost-Azië en daarvoor Italië)](https://nos.nl/l/2635427)
+  > Mustafa Marghadi neemt afscheid als correspondent van de NOS. In podcast De Dag blikt hij terug op het correspondentschap en zijn jaren in Italië en...
+- [Doden en gewonden op Canadese legerbasis na 'zeer ernstig incident'](https://nos.nl/l/2635426)
+  > Op een Canadese legerbasis in de provincie Alberta woedt een grote brand, als gevolg van wat de autoriteiten omschrijven als een "zeer ernstig...
+- [Auto rijdt in op voetbalwedstijd in Kansas: 2 doden en 11 gewonden](https://nos.nl/l/2635422)
+  > In de Amerikaanse staat Kansas is een auto ingereden op een groep mensen tijdens een voetbalwedstrijd. Daarbij vielen twee doden: een jongen van 6 en...
 - [Zeker negentien mensen verdrukt bij festival in Indiase stad Kolkata](https://nos.nl/l/2635421)
   > Bij een festival in de Indiase stad Kolkata zijn zeker negentien mensen omgekomen nadat er paniek uitbrak in de menigte. Ook raakten 25 mensen...
 - [Elf mensen onwel na rondleiding in Grolsch-fabriek Enschede](https://nos.nl/l/2635420)
   > Na een rondleiding in de Grolsch-fabriek in Enschede zijn elf mensen onwel geworden. Zij zijn ter controle overgebracht naar het ziekenhuis.
        ...
-- [Stadhuis Limoges in brand gestoken bij Franse protesten, toren ingestort](https://nos.nl/l/2635418)
-  > Bij de grootschalige protesten in Frankrijk is de toren van het stadhuis in Limoges ingestort. Het gebouw werd eerder op de dag in brand gestoken...
-- [Israëlische kolonisten vallen Europese diplomaten aan op Westelijke Jordaanoever](https://nos.nl/l/2635408)
-  > Israëlische kolonisten hebben Palestijnen en Europese diplomaten aangevallen op de Westelijke Jordaanoever, die Israël bezet houdt. Dat melden...
-- [VS wil 'war on drugs' uitbreiden naar vasteland Latijns-Amerika](https://nos.nl/l/2635392)
-  > De Verenigde Staten mengen zich steeds meer in de anti-drugsoorlog in een aantal Latijns-Amerikaanse landen. Het begon in 2025 met aanvallen op...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Visser (71) gedood door 3,5 meter lange alligator bij meer in Florida](https://www.ad.nl/buitenland/visser-71-gedood-door-3-5-meter-lange-alligator-bij-meer-in-florida~a037a5a31/)
-  > Een 71-jarige man die stond te vissen aan de oever van een meer in Florida, is gedood door een alligator van ruim 3,5 meter lang. Het is al de tweede...
-- [Auto rijdt in op voetbalwedstrijd in VS; twee doden, onder wie een kind](https://www.ad.nl/buitenland/auto-rijdt-in-op-voetbalwedstrijd-in-vs-twee-doden-onder-wie-een-kind~a330b274/)
-  > Bij een voetbalwedstrijd in de Amerikaanse staat Kansas zijn twee mensen om het leven gekomen, onder wie een kind, toen een automobilist het veld...
-- [Dochter Emile Ratelband looft 2500 euro uit voor tip die leidt naar vermiste vader](https://www.ad.nl/show/dochter-emile-ratelband-looft-2500-euro-uit-voor-tip-die-leidt-naar-vermiste-vader~ab3105f1/)
-  > De oudste dochter van Emile Ratelband heeft op LinkedIn een oproep gedeeld voor de gouden tip in de zoektocht naar haar vader. ‘Ik mis mijn vader! Al...
-- [LIVE Midden-Oosten | Ambassadeur VS roept Israël op tot vervolging kolonisten om geweld, ook Europese diplomaten aangevallen](https://www.ad.nl/buitenland/live-midden-oosten-ambassadeur-vs-roept-israel-op-tot-vervolging-kolonisten-om-geweld-ook-europese-diplomaten-aangevallen~ac528ac3/)
-  > De Amerikaanse ambassadeur in Israël heeft het land opgeroepen om de kolonisten te vervolgen die verantwoordelijk zijn voor de gewelddadige aanval op...
-- [Sparta weet op feestavond eindelijk weer hoe het voelt om te winnen op Het Kasteel](https://www.ad.nl/voetbal/sparta-weet-op-feestavond-eindelijk-weer-hoe-het-voelt-om-te-winnen-op-het-kasteel~a8b2aa2e/)
-  > Op de feestavond ter ere van het 110-jarig bestaan van Het Kasteel heeft Sparta eindelijk weer in eigen huis weten te winnen. Hekkensluiter Willem II...
+- [Roulerend Feyenoord slaat gat met PSV, maar kwetsbare avond roept nieuwe vragen op](https://www.ad.nl/voetbal/roulerend-feyenoord-slaat-gat-met-psv-maar-kwetsbare-avond-roept-nieuwe-vragen-op~aec3be68/)
+  > Feyenoord heeft een gat geslagen met PSV, maar in Velsen-Zuid bleken de Rotterdammers opeens veel kwetsbaarder dan de laatste weken. Is rouleren dan...
+- [Als Simone (33) van haar eerste kindje bevalt, hoort ze van de kraamzorg: ‘Niemand is beschikbaar, het wordt een e-consult’](https://www.ad.nl/binnenland/als-simone-33-van-haar-eerste-kindje-bevalt-hoort-ze-van-de-kraamzorg-niemand-is-beschikbaar-het-wordt-een-e-consult~a2a53f16/)
+  > Alles was geregeld: kraamzorg, het aantal toegewezen uren én een verzorger voor net na de bevalling. Maar dan krijgt Simone Ritzer (33) vlak na de...
+- [Emile Ratelband bijna 2 jaar spoorloos, zegt dochter Minou: ‘Dit klopt gewoon niet’](https://www.ad.nl/show/emile-ratelband-bijna-2-jaar-spoorloos-zegt-dochter-minou-dit-klopt-gewoon-niet~ab3105f1/)
+  > Waar is Emile Ratelband? De kinderen van de Arnhemse positiviteitsgoeroe zijn wanhopig op zoek naar hun vader die al 1 jaar en 9 maanden spoorloos...
+- [Auto rijdt door voetbalwedstrijd in Kansas: 6-jarig jongetje en 35-jarige man overleden](https://www.ad.nl/buitenland/auto-rijdt-door-voetbalwedstrijd-in-kansas-6-jarig-jongetje-en-35-jarige-man-overleden~a3bcb1b7d/)
+  > In Wichita in de Amerikaanse staat Kansas zijn zaterdag twee personen, onder wie een kind, omgekomen nadat een auto door een voetbalwedstrijd heen...
+- [Van North West tot Stormi Webster: de nieuwe generatie Kardashians komt eraan](https://www.ad.nl/show/van-north-west-tot-stormi-webster-de-nieuwe-generatie-kardashians-komt-eraan~addff953e/)
+  > Van Kim tot Kylie: we kennen ze allemaal. Nu krijgt de wereld echter steeds vaker te maken met de jongste telgen van de Kardashian-dynastie. Wie zijn...
 
 ### Meest gelezen
 
@@ -47,15 +47,16 @@
 
 ### Laatste nieuws
 
+- [Fiscale regels voor scholing remmen een carrièrewissel](https://fd.nl/opinie/1615421/fiscale-regels-voor-scholing-remmen-een-carrierewissel)
+  > Starters en carrièreswitchers missen belastingaftrek als ze een opleiding volgen voor een nieuw bedrijf of andere loopbaan. Dat botst met het beleid...
+- [Hard lachen in het ziekenhuis](https://fd.nl/samenleving/1615768/hard-lachen-in-het-ziekenhuis)
+  > Cabaretier Saman Amini geeft een show en het publiek kan even dijenkletsen over soms pijnlijke onderwerpen.
+- [Poetins dorp op Spitsbergen baart de Noren zorgen](https://fd.nl/politiek/1615698/poetins-dorp-op-spitsbergen-baart-de-noren-zorgen)
+  > Spitsbergen is de achilleshiel van Noorwegen. De Russen zetten er een kleine eeuw geleden voet aan wal en zijn niet van plan te vertrekken van de...
+- [‘Ik was een soort dictator voor mijn werknemers’](https://fd.nl/samenleving/1615915/ik-was-een-soort-dictator-voor-mijn-werknemers)
+  > FD Gazelle Eef Ester moest leren leidinggeven: ‘Ik denk niet dat ik een fijne baas was.’
 - [Israëlische kolonisten vallen westerse diplomaten aan tijdens bezoek Westelijke Jordaanoever](https://fd.nl/politiek/1616008/israelische-kolonisten-vallen-westerse-diplomaten-aan-tijdens-bezoek-westelijke-jordaanoever)
   > Aanval komt een dag na de aanval op een Amerikaanse fotojournalist
-- [Zelensky: Starlink-vertraging op Oekraïens grondgebied is ‘geplande operatie’](https://fd.nl/politiek/1616079/zelensky-starlink-vertraging-op-oekraiens-grondgebied-is-geplande-operatie)
-  > Kyiv meldde eerder deze week dat de toegang tot Starlink-systemen van SpaceX was beperkt.
-- [Politie grijpt in bij grootschalige protesten in Frankrijk](https://fd.nl/samenleving/1616007/politie-grijpt-in-bij-grootschalige-protesten-in-frankrijk)
-  > De Fransen protesteren tegen de stijgende kosten van het levensonderhoud en willen verandering. De regering kan weinig structureel beleid maken: er...
-- [‘Anthropic dient eigen wetsvoorstel in bij wetgevers over veiligheid AI’](https://fd.nl/bedrijfsleven/1616078/anthropic-dient-eigen-wetsvoorstel-in-bij-wetgevers-over-veiligheid-ai)
-- [Noel Tata jaagt steeds meer mensen tegen zich in het harnas in machtsstrijd](https://fd.nl/bedrijfsleven/1615918/noel-tata-jaagt-steeds-meer-mensen-tegen-zich-in-het-harnas-in-machtsstrijd)
-  > In een conflict binnen het Tata-conglomeraat komt patriarch Noel Tata steeds meer alleen te staan. Zijn opponent Chandra werkt bij de holding door...
 
 ### Meest gelezen
 
