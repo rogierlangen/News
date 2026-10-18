@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-10-2026 om 10:39*
+*Laatst bijgewerkt: 18-10-2026 om 14:21*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Frankrijk geschokt na protestdag met 'ongekend geweld' en 1800 arrestaties](https://nos.nl/l/2635459)
+- [Deense schoonmaker zit ruim drie dagen vast in ondergrondse cel](https://nos.nl/l/2635486)
+  > Een Deense schoonmaker heeft vorige maand ruim drie dagen opgesloten gezeten in een ondergrondse cel. Dat meldt de Deense krant Ekstra Bladet.
+      ...
+- [Opstart bezorging door Albert Heijn opnieuw uitgesteld, app en site werken weer](https://nos.nl/l/2635476)
+  > De problemen na de cyberaanval bij Albert Heijn zijn nog altijd niet opgelost, maar langzaam komen onderdelen weer op gang. De app en de site werken...
+- ['Fryslâns oudste communist' en langstzittende raadslid Rinze Visser (87) overleden](https://nos.nl/l/2635469)
+  > De Friese politicus Rinze Visser is op 87-jarige leeftijd overleden, meldt de Communistische Partij van Nederland (CPN). Visser was het...
+- [Zes voortvluchtige verdachten opgepakt voor neerschieten politieagent in België](https://nos.nl/l/2635466)
+  > Politieteams uit meerdere Europese landen hebben zes mannen opgepakt in verband met een schietpartij begin deze week, waarbij een Belgische agent om...
+- [Frankrijk geschokt na protestdag met 'ongekend geweld' en 2000 arrestaties](https://nos.nl/l/2635459)
   > "Opstand", "chaos", "de republiek in brand", kopt de Franse pers vanochtend. Frankrijk wordt wakker in een ravage na een dag met grootschalige...
-- [Na halfjaar Iranoorlog is rust terug in de Golfstaten, maar zekerheid nog niet](https://nos.nl/l/2635454)
-  > Na maanden van strijd in het Midden-Oosten is in de steden aan de Perzische Golf een zekere rust teruggekeerd. In Dubai, Doha en Abu Dhabi draaien...
-- [Dode bij woningbrand Terneuzen, meerdere appartementen onbewoonbaar](https://nos.nl/l/2635451)
-  > Bij een woningbrand in een appartementencomplex in Terneuzen is gisteravond een bewoner omgekomen. Het gaat om een 50-jarige man uit Terneuzen, meldt...
-- [Lange rijen op Schiphol door storing bij elektronische paspoortcontrole](https://nos.nl/l/2635450)
-  > Op Schiphol staan lange rijen in de aankomst- en vertrekhallen vanwege een storing bij de elektronische paspoortcontrole. Alle 78 poortjes voor...
-- [Levenslang voor eigenaar van Chinese kinderopvang om geverfde maaltijden](https://nos.nl/l/2635449)
-  > De eigenaar van een kinderdagverblijf in Tianshui, in het noorden van China, moet levenslang de cel in voor het vergiftigen van kinderen. Dat melden...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Slotrit rond Arnhem, halen Lieke Nooijen en Victor Campenaerts eindzege binnen?](https://www.ad.nl/wielrennen/slotrit-rond-arnhem-halen-lieke-nooijen-en-victor-campenaerts-eindzege-binnen~aab37cf0/)
-  > De Eneco Tour eindigt vandaag met een etappe rond Arnhem: 70 kilometer bij de vrouwen, 149 kilometer bij de mannen. Lieke Nooijen en Victor...
-- [PEC Zwolle met interim-trainers tegen rivaal Go Ahead in IJsselderby, coach Joseph Oosting treft zoon Thijs](https://www.ad.nl/voetbal/pec-zwolle-met-interim-trainers-tegen-rivaal-go-ahead-in-ijsselderby-coach-joseph-oosting-treft-zoon-thijs~a5b82c92/)
-  > De eerste IJsselderby van het seizoen staat op het programma. PEC Zwolle ontvangt in eigen huis aartsrivaal Go Ahead Eagles. Wie pakt de prestigieuze...
-- [Buze Diriba loopt parkoersrecord marathon Amsterdam, ook Ethiopische zege bij mannen](https://www.ad.nl/andere-sporten/buze-diriba-loopt-parkoersrecord-marathon-amsterdam-ook-ethiopische-zege-bij-mannen~a2e2f06b/)
-  > Buze Diriba heeft de marathon van Amsterdam op haar naam geschreven in een parkoersrecord. De Ethiopische snelde naar een tijd van 2.16.11. Daarmee...
-- [De ravage na rellen in beeld: Frankrijk ziet complete straten die ‘systematisch vernield’ zijn](https://www.ad.nl/buitenland/de-ravage-na-rellen-in-beeld-frankrijk-ziet-complete-straten-die-systematisch-vernield-zijn~a02b05dd/)
-  > De ravage in Frankrijk is, nadat protesten zaterdag opnieuw uitmondden in plunderingen en brandstichting, enorm. Op beelden van zondagochtend zijn...
-- [22.000 woningen op losse schroeven door geldgebrek kabinet: ‘We moeten de woningnood ook oplossen‘](https://www.ad.nl/binnenland/22-000-woningen-op-losse-schroeven-door-geldgebrek-kabinet-we-moeten-de-woningnood-ook-oplossen~a00c17d7/)
-  > Zitten grote nieuwbouwplannen op een dood spoor? Het Rijk heeft amper geld voor nieuwe ov-verbindingen, terwijl een goede bereikbaarheid vanaf dag...
+- [LIVE eredivisie | Meerdink schiet raak vanaf elf meter en zet AZ naast tien van Cambuur in slotfase](https://www.ad.nl/voetbal/live-eredivisie-meerdink-schiet-raak-vanaf-elf-meter-en-zet-az-naast-tien-van-cambuur-in-slotfase~a6230003/)
+  > AZ is koploper af in de Vriendenloterij eredivisie na de verliespartij op bezoek bij Feyenoord (2-0). De Alkmaarders zullen dus op zoek gaan naar...
+- [Cats ‘2.0’ ging van ambitieus plan naar première in Carré: ‘Als iemand onze intentie oppikt, ben ik al blij’](https://www.ad.nl/show/cats-2-0-ging-van-ambitieus-plan-naar-premiere-in-carre-als-iemand-onze-intentie-oppikt-ben-ik-al-blij~ad2a0529/)
+  > Zeven maanden geleden stond er slechts een ambitieus plan, maar inmiddels valt het zweet op de planken bij de try-outs van Cats - Het meesterwerk....
+- [Ajax met flink gewijzigde opstelling tegen Groningen: Leonardo krijgt basisplaats](https://www.ad.nl/voetbal/ajax-met-flink-gewijzigde-opstelling-tegen-groningen-leonardo-krijgt-basisplaats~a2733785/)
+  > Ajax is achterop geraakt in de strijd om de titel. Om een grotere achterstand te voorkomen moeten de Amsterdammers winnen op bezoek bij FC Groningen....
+- [Tim Merlier wint slotetappe Eneco Tour, Lieke Nooijen grijpt zege bij vrouwen](https://www.ad.nl/wielrennen/tim-merlier-wint-slotetappe-eneco-tour-lieke-nooijen-grijpt-zege-bij-vrouwen~aab37cf0/)
+  > De Belg Tim Merlier heeft de slotetappe van de Eneco Tour gewonnen. De 33-jarige wielrenner was na 149 kilometer in Arnhem overtuigend de snelste in...
+- [Reddingsactie op zee en strand in Den Haag, meerdere surfers in nood](https://www.ad.nl/binnenland/reddingsactie-op-zee-en-strand-in-den-haag-meerdere-surfers-in-nood~a4836ccc/)
+  > Bij Strand Noord in Den Haag zijn zondagmiddag in korte tijd meerdere surfers in de problemen geraakt. Enkele surfers kwamen vast te zitten tussen de...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Britse regering jaagt superrijken naar Monaco en de Emiraten, mèt hun vermogen van $160 mrd](https://fd.nl/samenleving/1615547/britse-regering-jaagt-superrijken-naar-monaco-en-de-emiraten-met-hun-vermogen-van-160-mrd)
-  > Het is uit tussen het Verenigd Koninkrijk en miljardairs. Een veertiental is al vertrokken naar groenere fiscale weiden.
-- [Lange rijen op Schiphol door problemen met paspoortcontrole](https://fd.nl/economie/1616081/lange-rijen-op-schiphol-door-problemen-met-paspoortcontrole)
-  > Alle paspoorten moeten handmatig gecontroleerd worden na het uitvallen van de poortjes die de identiteit van de reiziger elektronisch checken.
-- [China beperkt export AI, biotech en zonne-energie](https://fd.nl/politiek/1616009/china-beperkt-export-ai-biotech-en-zonne-energie)
-  > Beperking ingegeven door ‘dreigingen op het gebied van nationale veiligheid’
-- [Aandeelhouders willen alleen digitaal vergaderen met de juiste waarborgen](https://fd.nl/opinie/1615712/aandeelhouders-willen-alleen-digitaal-vergaderen-met-de-juiste-waarborgen)
-  > De wet die volledig digitale aandeelhoudersvergaderingen mogelijk maakt, treedt volgend jaar in werking. Aandeelhouders zijn niet onverdeeld...
-- [Fiscale regels voor scholing remmen een carrièrewissel](https://fd.nl/opinie/1615421/fiscale-regels-voor-scholing-remmen-een-carrierewissel)
-  > Starters en carrièreswitchers missen belastingaftrek als ze een opleiding volgen voor een nieuw bedrijf of andere loopbaan. Dat botst met het beleid...
+- [Rekbare deadline voor diversiteit](https://fd.nl/financiele-markten/1615907/rekbare-deadline-voor-diversiteit)
+  > PwC en Deloitte willen dat 30% van hun partners vrouw is. Nu ze hun eigen deadlines niet halen, gunnen ze zichzelf drie jaar extra tijd.
+- [Italië slaat banken voor miljarden aan om gat in begroting te dichten](https://fd.nl/politiek/1616082/italie-slaat-banken-voor-miljarden-aan-om-gat-in-begroting-te-dichten)
+  > De sector kan een verplichte solidariteitsbijdrage met jaarlijks €50 mrd winst gemakkelijk betalen, meent vicepremier Matteo Salvini.
+- [AI als winkelhulpje? ‘Hij bestelde kartoffelsalade, die moet ik echt niet hebben’](https://fd.nl/bedrijfsleven/1615419/ai-als-winkelhulpje-hij-bestelde-kartoffelsalade-die-moet-ik-echt-niet-hebben)
+  > Een kwart van de consumenten gebruikt AI om te winkelen. Retailers moeten daarin mee. Bol, Coolblue en Albert Heijn hebben nu eigen AI-zoekfuncties....
+- [Albert Heijn-app weer live, maar boodschappen bestellen kan nog niet](https://fd.nl/bedrijfsleven/1616012/albert-heijn-app-weer-live-maar-boodschappen-bestellen-kan-nog-niet)
+  > AH herstelt stap voor stap functionaliteiten voor klanten, blijkt zondag uit een update over het ‘cybersecurityincident’.
+- [‘Super-El Niño’ bedreigt productie Indonesische palmolie](https://fd.nl/economie/1615863/super-el-nino-bedreigt-productie-indonesische-palmolie)
+  > Indonesië kampt al sinds juli met de ergste bosbranden in tien jaar tijd. Het weerfenomeen super-El Niño versterkt de droogte en branden in het land.
 
 ### Meest gelezen
 
