@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-10-2026 om 05:33*
+*Laatst bijgewerkt: 18-10-2026 om 10:39*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Van onze correspondent... Mustafa Marghadi (Zuidoost-Azië en daarvoor Italië)](https://nos.nl/l/2635427)
-  > Mustafa Marghadi neemt afscheid als correspondent van de NOS. In podcast De Dag blikt hij terug op het correspondentschap en zijn jaren in Italië en...
-- [Doden en gewonden op Canadese legerbasis na 'zeer ernstig incident'](https://nos.nl/l/2635426)
-  > Op een Canadese legerbasis in de provincie Alberta woedt een grote brand, als gevolg van wat de autoriteiten omschrijven als een "zeer ernstig...
-- [Auto rijdt in op voetbalwedstijd in Kansas: 2 doden en 11 gewonden](https://nos.nl/l/2635422)
-  > In de Amerikaanse staat Kansas is een auto ingereden op een groep mensen tijdens een voetbalwedstrijd. Daarbij vielen twee doden: een jongen van 6 en...
-- [Zeker negentien mensen verdrukt bij festival in Indiase stad Kolkata](https://nos.nl/l/2635421)
-  > Bij een festival in de Indiase stad Kolkata zijn zeker negentien mensen omgekomen nadat er paniek uitbrak in de menigte. Ook raakten 25 mensen...
-- [Elf mensen onwel na rondleiding in Grolsch-fabriek Enschede](https://nos.nl/l/2635420)
-  > Na een rondleiding in de Grolsch-fabriek in Enschede zijn elf mensen onwel geworden. Zij zijn ter controle overgebracht naar het ziekenhuis.
-       ...
+- [Frankrijk geschokt na protestdag met 'ongekend geweld' en 1800 arrestaties](https://nos.nl/l/2635459)
+  > "Opstand", "chaos", "de republiek in brand", kopt de Franse pers vanochtend. Frankrijk wordt wakker in een ravage na een dag met grootschalige...
+- [Na halfjaar Iranoorlog is rust terug in de Golfstaten, maar zekerheid nog niet](https://nos.nl/l/2635454)
+  > Na maanden van strijd in het Midden-Oosten is in de steden aan de Perzische Golf een zekere rust teruggekeerd. In Dubai, Doha en Abu Dhabi draaien...
+- [Dode bij woningbrand Terneuzen, meerdere appartementen onbewoonbaar](https://nos.nl/l/2635451)
+  > Bij een woningbrand in een appartementencomplex in Terneuzen is gisteravond een bewoner omgekomen. Het gaat om een 50-jarige man uit Terneuzen, meldt...
+- [Lange rijen op Schiphol door storing bij elektronische paspoortcontrole](https://nos.nl/l/2635450)
+  > Op Schiphol staan lange rijen in de aankomst- en vertrekhallen vanwege een storing bij de elektronische paspoortcontrole. Alle 78 poortjes voor...
+- [Levenslang voor eigenaar van Chinese kinderopvang om geverfde maaltijden](https://nos.nl/l/2635449)
+  > De eigenaar van een kinderdagverblijf in Tianshui, in het noorden van China, moet levenslang de cel in voor het vergiftigen van kinderen. Dat melden...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Roulerend Feyenoord slaat gat met PSV, maar kwetsbare avond roept nieuwe vragen op](https://www.ad.nl/voetbal/roulerend-feyenoord-slaat-gat-met-psv-maar-kwetsbare-avond-roept-nieuwe-vragen-op~aec3be68/)
-  > Feyenoord heeft een gat geslagen met PSV, maar in Velsen-Zuid bleken de Rotterdammers opeens veel kwetsbaarder dan de laatste weken. Is rouleren dan...
-- [Als Simone (33) van haar eerste kindje bevalt, hoort ze van de kraamzorg: ‘Niemand is beschikbaar, het wordt een e-consult’](https://www.ad.nl/binnenland/als-simone-33-van-haar-eerste-kindje-bevalt-hoort-ze-van-de-kraamzorg-niemand-is-beschikbaar-het-wordt-een-e-consult~a2a53f16/)
-  > Alles was geregeld: kraamzorg, het aantal toegewezen uren én een verzorger voor net na de bevalling. Maar dan krijgt Simone Ritzer (33) vlak na de...
-- [Emile Ratelband bijna 2 jaar spoorloos, zegt dochter Minou: ‘Dit klopt gewoon niet’](https://www.ad.nl/show/emile-ratelband-bijna-2-jaar-spoorloos-zegt-dochter-minou-dit-klopt-gewoon-niet~ab3105f1/)
-  > Waar is Emile Ratelband? De kinderen van de Arnhemse positiviteitsgoeroe zijn wanhopig op zoek naar hun vader die al 1 jaar en 9 maanden spoorloos...
-- [Auto rijdt door voetbalwedstrijd in Kansas: 6-jarig jongetje en 35-jarige man overleden](https://www.ad.nl/buitenland/auto-rijdt-door-voetbalwedstrijd-in-kansas-6-jarig-jongetje-en-35-jarige-man-overleden~a3bcb1b7d/)
-  > In Wichita in de Amerikaanse staat Kansas zijn zaterdag twee personen, onder wie een kind, omgekomen nadat een auto door een voetbalwedstrijd heen...
-- [Van North West tot Stormi Webster: de nieuwe generatie Kardashians komt eraan](https://www.ad.nl/show/van-north-west-tot-stormi-webster-de-nieuwe-generatie-kardashians-komt-eraan~addff953e/)
-  > Van Kim tot Kylie: we kennen ze allemaal. Nu krijgt de wereld echter steeds vaker te maken met de jongste telgen van de Kardashian-dynastie. Wie zijn...
+- [Slotrit rond Arnhem, halen Lieke Nooijen en Victor Campenaerts eindzege binnen?](https://www.ad.nl/wielrennen/slotrit-rond-arnhem-halen-lieke-nooijen-en-victor-campenaerts-eindzege-binnen~aab37cf0/)
+  > De Eneco Tour eindigt vandaag met een etappe rond Arnhem: 70 kilometer bij de vrouwen, 149 kilometer bij de mannen. Lieke Nooijen en Victor...
+- [PEC Zwolle met interim-trainers tegen rivaal Go Ahead in IJsselderby, coach Joseph Oosting treft zoon Thijs](https://www.ad.nl/voetbal/pec-zwolle-met-interim-trainers-tegen-rivaal-go-ahead-in-ijsselderby-coach-joseph-oosting-treft-zoon-thijs~a5b82c92/)
+  > De eerste IJsselderby van het seizoen staat op het programma. PEC Zwolle ontvangt in eigen huis aartsrivaal Go Ahead Eagles. Wie pakt de prestigieuze...
+- [Buze Diriba loopt parkoersrecord marathon Amsterdam, ook Ethiopische zege bij mannen](https://www.ad.nl/andere-sporten/buze-diriba-loopt-parkoersrecord-marathon-amsterdam-ook-ethiopische-zege-bij-mannen~a2e2f06b/)
+  > Buze Diriba heeft de marathon van Amsterdam op haar naam geschreven in een parkoersrecord. De Ethiopische snelde naar een tijd van 2.16.11. Daarmee...
+- [De ravage na rellen in beeld: Frankrijk ziet complete straten die ‘systematisch vernield’ zijn](https://www.ad.nl/buitenland/de-ravage-na-rellen-in-beeld-frankrijk-ziet-complete-straten-die-systematisch-vernield-zijn~a02b05dd/)
+  > De ravage in Frankrijk is, nadat protesten zaterdag opnieuw uitmondden in plunderingen en brandstichting, enorm. Op beelden van zondagochtend zijn...
+- [22.000 woningen op losse schroeven door geldgebrek kabinet: ‘We moeten de woningnood ook oplossen‘](https://www.ad.nl/binnenland/22-000-woningen-op-losse-schroeven-door-geldgebrek-kabinet-we-moeten-de-woningnood-ook-oplossen~a00c17d7/)
+  > Zitten grote nieuwbouwplannen op een dood spoor? Het Rijk heeft amper geld voor nieuwe ov-verbindingen, terwijl een goede bereikbaarheid vanaf dag...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Britse regering jaagt superrijken naar Monaco en de Emiraten, mèt hun vermogen van $160 mrd](https://fd.nl/samenleving/1615547/britse-regering-jaagt-superrijken-naar-monaco-en-de-emiraten-met-hun-vermogen-van-160-mrd)
+  > Het is uit tussen het Verenigd Koninkrijk en miljardairs. Een veertiental is al vertrokken naar groenere fiscale weiden.
+- [Lange rijen op Schiphol door problemen met paspoortcontrole](https://fd.nl/economie/1616081/lange-rijen-op-schiphol-door-problemen-met-paspoortcontrole)
+  > Alle paspoorten moeten handmatig gecontroleerd worden na het uitvallen van de poortjes die de identiteit van de reiziger elektronisch checken.
+- [China beperkt export AI, biotech en zonne-energie](https://fd.nl/politiek/1616009/china-beperkt-export-ai-biotech-en-zonne-energie)
+  > Beperking ingegeven door ‘dreigingen op het gebied van nationale veiligheid’
+- [Aandeelhouders willen alleen digitaal vergaderen met de juiste waarborgen](https://fd.nl/opinie/1615712/aandeelhouders-willen-alleen-digitaal-vergaderen-met-de-juiste-waarborgen)
+  > De wet die volledig digitale aandeelhoudersvergaderingen mogelijk maakt, treedt volgend jaar in werking. Aandeelhouders zijn niet onverdeeld...
 - [Fiscale regels voor scholing remmen een carrièrewissel](https://fd.nl/opinie/1615421/fiscale-regels-voor-scholing-remmen-een-carrierewissel)
   > Starters en carrièreswitchers missen belastingaftrek als ze een opleiding volgen voor een nieuw bedrijf of andere loopbaan. Dat botst met het beleid...
-- [Hard lachen in het ziekenhuis](https://fd.nl/samenleving/1615768/hard-lachen-in-het-ziekenhuis)
-  > Cabaretier Saman Amini geeft een show en het publiek kan even dijenkletsen over soms pijnlijke onderwerpen.
-- [Poetins dorp op Spitsbergen baart de Noren zorgen](https://fd.nl/politiek/1615698/poetins-dorp-op-spitsbergen-baart-de-noren-zorgen)
-  > Spitsbergen is de achilleshiel van Noorwegen. De Russen zetten er een kleine eeuw geleden voet aan wal en zijn niet van plan te vertrekken van de...
-- [‘Ik was een soort dictator voor mijn werknemers’](https://fd.nl/samenleving/1615915/ik-was-een-soort-dictator-voor-mijn-werknemers)
-  > FD Gazelle Eef Ester moest leren leidinggeven: ‘Ik denk niet dat ik een fijne baas was.’
-- [Israëlische kolonisten vallen westerse diplomaten aan tijdens bezoek Westelijke Jordaanoever](https://fd.nl/politiek/1616008/israelische-kolonisten-vallen-westerse-diplomaten-aan-tijdens-bezoek-westelijke-jordaanoever)
-  > Aanval komt een dag na de aanval op een Amerikaanse fotojournalist
 
 ### Meest gelezen
 
