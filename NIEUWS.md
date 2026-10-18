@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-10-2026 om 14:21*
+*Laatst bijgewerkt: 18-10-2026 om 17:54*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
+- [Priester in Ecuador overlijdt tijdens mis door vallend kruisbeeld](https://nos.nl/l/2635522)
+  > In Ecuador is gistermiddag een katholieke priester overleden nadat tijdens de mis het kruisbeeld vol op hem was neergekomen. Het aartsbisdom van de...
+- [Na veel zon en hoge temperaturen, lijkt de herfst komende week op toeren te komen](https://nos.nl/l/2635519)
+  > Echt herfst is het nog niet geweest, met veel zon en relatief hoge temperaturen. De komende week komen depressies echter geleidelijk dichterbij. Dat...
+- [Tien burgerdoden in Oekraïne, dat zelf grote drone-aanval op Rusland uitvoert](https://nos.nl/l/2635507)
+  > Russische aanvallen op Oekraïne hebben in een dag tijd tien burgerlevens geëist, meldt krant The Kyiv Independent op basis van lokale autoriteiten....
+- [Alle mensen die onwel werden na bezoek aan Grolsch-fabriek weer thuis](https://nos.nl/l/2635501)
+  > Elf mensen die gisteren onwel werden na een rondleiding in de Grolsch-fabriek in Enschede, zijn na een controle door hulpverleners weer thuis. Een...
 - [Deense schoonmaker zit ruim drie dagen vast in ondergrondse cel](https://nos.nl/l/2635486)
   > Een Deense schoonmaker heeft vorige maand ruim drie dagen opgesloten gezeten in een ondergrondse cel. Dat meldt de Deense krant Ekstra Bladet.
       ...
-- [Opstart bezorging door Albert Heijn opnieuw uitgesteld, app en site werken weer](https://nos.nl/l/2635476)
-  > De problemen na de cyberaanval bij Albert Heijn zijn nog altijd niet opgelost, maar langzaam komen onderdelen weer op gang. De app en de site werken...
-- ['Fryslâns oudste communist' en langstzittende raadslid Rinze Visser (87) overleden](https://nos.nl/l/2635469)
-  > De Friese politicus Rinze Visser is op 87-jarige leeftijd overleden, meldt de Communistische Partij van Nederland (CPN). Visser was het...
-- [Zes voortvluchtige verdachten opgepakt voor neerschieten politieagent in België](https://nos.nl/l/2635466)
-  > Politieteams uit meerdere Europese landen hebben zes mannen opgepakt in verband met een schietpartij begin deze week, waarbij een Belgische agent om...
-- [Frankrijk geschokt na protestdag met 'ongekend geweld' en 2000 arrestaties](https://nos.nl/l/2635459)
-  > "Opstand", "chaos", "de republiek in brand", kopt de Franse pers vanochtend. Frankrijk wordt wakker in een ravage na een dag met grootschalige...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [LIVE eredivisie | Meerdink schiet raak vanaf elf meter en zet AZ naast tien van Cambuur in slotfase](https://www.ad.nl/voetbal/live-eredivisie-meerdink-schiet-raak-vanaf-elf-meter-en-zet-az-naast-tien-van-cambuur-in-slotfase~a6230003/)
-  > AZ is koploper af in de Vriendenloterij eredivisie na de verliespartij op bezoek bij Feyenoord (2-0). De Alkmaarders zullen dus op zoek gaan naar...
-- [Cats ‘2.0’ ging van ambitieus plan naar première in Carré: ‘Als iemand onze intentie oppikt, ben ik al blij’](https://www.ad.nl/show/cats-2-0-ging-van-ambitieus-plan-naar-premiere-in-carre-als-iemand-onze-intentie-oppikt-ben-ik-al-blij~ad2a0529/)
-  > Zeven maanden geleden stond er slechts een ambitieus plan, maar inmiddels valt het zweet op de planken bij de try-outs van Cats - Het meesterwerk....
-- [Ajax met flink gewijzigde opstelling tegen Groningen: Leonardo krijgt basisplaats](https://www.ad.nl/voetbal/ajax-met-flink-gewijzigde-opstelling-tegen-groningen-leonardo-krijgt-basisplaats~a2733785/)
-  > Ajax is achterop geraakt in de strijd om de titel. Om een grotere achterstand te voorkomen moeten de Amsterdammers winnen op bezoek bij FC Groningen....
-- [Tim Merlier wint slotetappe Eneco Tour, Lieke Nooijen grijpt zege bij vrouwen](https://www.ad.nl/wielrennen/tim-merlier-wint-slotetappe-eneco-tour-lieke-nooijen-grijpt-zege-bij-vrouwen~aab37cf0/)
-  > De Belg Tim Merlier heeft de slotetappe van de Eneco Tour gewonnen. De 33-jarige wielrenner was na 149 kilometer in Arnhem overtuigend de snelste in...
-- [Reddingsactie op zee en strand in Den Haag, meerdere surfers in nood](https://www.ad.nl/binnenland/reddingsactie-op-zee-en-strand-in-den-haag-meerdere-surfers-in-nood~a4836ccc/)
-  > Bij Strand Noord in Den Haag zijn zondagmiddag in korte tijd meerdere surfers in de problemen geraakt. Enkele surfers kwamen vast te zitten tussen de...
+- [Danny Noppert gooit persoonlijk record en bereikt halve finale, zo volgt Nederlands onderonsje](https://www.ad.nl/darts/danny-noppert-gooit-persoonlijk-record-en-bereikt-halve-finale-zo-volgt-nederlands-onderonsje~a20b1161/)
+  > De beste darters van Europa zijn dit weekend neergestreken in Maastricht voor de Euro Tour. Vrijdagavond komen de eerste Nederlanders in actie voor...
+- [LIVE eredivisie | FC Utrecht begint in Enschede met Padt onder de lat, geen verrassingen bij FC Twente](https://www.ad.nl/voetbal/live-eredivisie-fc-utrecht-begint-in-enschede-met-padt-onder-de-lat-geen-verrassingen-bij-fc-twente~a480d98f/)
+  > FC Utrecht heeft na de zege op Willem II vertrouwen getankt. Maar in Enschede tegen FC Twente moet het nóg beter om drie punten mee naar huis te...
+- [Manchester United blijft kwakkelen, Bart Verbruggen derde met Brighton, oud-PSV’er helpt Arsenal aan late zege](https://www.ad.nl/voetbal/manchester-united-blijft-kwakkelen-bart-verbruggen-derde-met-brighton-oud-psver-helpt-arsenal-aan-late-zege~a63ffb12/)
+  > Manchester United heeft zondagmiddag opnieuw niet gewonnen in de Premier League. Op bezoek bij Leeds United kwam de ploeg niet verder dan 1-1 en...
+- [Chemomutsjes geven Wendy, Suzan en Dolores regie terug: ‘Ik heb er zelfs een met glittertjes’](https://www.ad.nl/binnenland/chemomutsjes-geven-wendy-suzan-en-dolores-regie-terug-ik-heb-er-zelfs-een-met-glittertjes~a9e3df0c/)
+  > Chemomutsjes. Dragers haten én houden van ze. Want een hoofd zonder haar is vreselijk, weten ­vrouwen die het is overkomen. Dan geeft dat mutsje, al...
+- [‘Meghan niet meer in gesprek over rol in Netflix-serie’](https://www.ad.nl/show/meghan-niet-meer-in-gesprek-over-rol-in-netflix-serie~ad2dcb9b/)
+  > Meghan is niet langer in gesprek over een rol in de Netflix-serie The Gentlemen. Volgens een bron rond de hertogin van Sussex zou haar naam vooral...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
+- [Opel-moeder zoekt honderden nieuwe technici](https://fd.nl/bedrijfsleven/1616015/opel-moeder-zoekt-honderden-nieuwe-technici)
+  > Stellantis ziet na een moeilijke periode voor autofabrikanten weer ruimte voor groei.
+- [Wie gaat belasting betalen in een wereld waar AI-reuzen domineren?](https://fd.nl/economie/1615862/wie-gaat-belasting-betalen-in-een-wereld-waar-ai-reuzen-domineren)
+  > De AI-revolutie brengt de wereld groei, maar kan ook leiden tot een groot verlies aan belastinginkomsten terwijl staatsschulden wereldwijd al hoog...
+- [Verwachtingen over renteverhoging door Fed schieten alle kanten op](https://fd.nl/financiele-markten/1615917/renteverwachtingen-over-de-federal-reserve-schieten-alle-kanten-op)
+  > De onzekerheid over het beleid van het Amerikaanse stelsel van centrale banken is hoog. Een rentestap in oktober lijkt onwaarschijnlijk, en toch...
+- [‘Accenture wil zijn Chinese activiteiten verkopen’](https://fd.nl/bedrijfsleven/1616013/accenture-wil-zijn-chinese-activiteiten-verkopen)
+  > De verkoop, waarover de Britse zakenkrant FT op zondag berichtte, kan tot $1,5 mrd opleveren.
 - [Rekbare deadline voor diversiteit](https://fd.nl/financiele-markten/1615907/rekbare-deadline-voor-diversiteit)
   > PwC en Deloitte willen dat 30% van hun partners vrouw is. Nu ze hun eigen deadlines niet halen, gunnen ze zichzelf drie jaar extra tijd.
-- [Italië slaat banken voor miljarden aan om gat in begroting te dichten](https://fd.nl/politiek/1616082/italie-slaat-banken-voor-miljarden-aan-om-gat-in-begroting-te-dichten)
-  > De sector kan een verplichte solidariteitsbijdrage met jaarlijks €50 mrd winst gemakkelijk betalen, meent vicepremier Matteo Salvini.
-- [AI als winkelhulpje? ‘Hij bestelde kartoffelsalade, die moet ik echt niet hebben’](https://fd.nl/bedrijfsleven/1615419/ai-als-winkelhulpje-hij-bestelde-kartoffelsalade-die-moet-ik-echt-niet-hebben)
-  > Een kwart van de consumenten gebruikt AI om te winkelen. Retailers moeten daarin mee. Bol, Coolblue en Albert Heijn hebben nu eigen AI-zoekfuncties....
-- [Albert Heijn-app weer live, maar boodschappen bestellen kan nog niet](https://fd.nl/bedrijfsleven/1616012/albert-heijn-app-weer-live-maar-boodschappen-bestellen-kan-nog-niet)
-  > AH herstelt stap voor stap functionaliteiten voor klanten, blijkt zondag uit een update over het ‘cybersecurityincident’.
-- [‘Super-El Niño’ bedreigt productie Indonesische palmolie](https://fd.nl/economie/1615863/super-el-nino-bedreigt-productie-indonesische-palmolie)
-  > Indonesië kampt al sinds juli met de ergste bosbranden in tien jaar tijd. Het weerfenomeen super-El Niño versterkt de droogte en branden in het land.
 
 ### Meest gelezen
 
