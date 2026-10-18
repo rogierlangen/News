@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-10-2026 om 17:54*
+*Laatst bijgewerkt: 18-10-2026 om 20:19*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [VS dreigt met 'verwoestende' tegenmaatregelen als Europa SpaceX niet vrij baan geeft](https://nos.nl/l/2635538)
+  > Europese bedrijven krijgen te maken met "verwoestende" tegenmaatregelen als Brussel plannen doorzet om de toegang tot de Europese markt te beperken...
+- [Macron haalt in tv-toespraak uit naar relschoppers terwijl rellen in Parijs doorgaan](https://nos.nl/l/2635534)
+  > Een dag na de demonstraties die in Parijs en in andere Franse steden volledig uit de hand liepen, heeft de Franse president Macron in een...
+- [Trumps nieuwe stemwet werd in 2014 in Kansas al eens getest en het werd een chaos](https://nos.nl/l/2635523)
+  > De Amerikaanse president Trump wil dat kiezers voor de Congresverkiezingen van begin november een bewijs van staatsburgerschap en hun paspoort...
 - [Priester in Ecuador overlijdt tijdens mis door vallend kruisbeeld](https://nos.nl/l/2635522)
   > In Ecuador is gistermiddag een katholieke priester overleden nadat tijdens de mis het kruisbeeld vol op hem was neergekomen. Het aartsbisdom van de...
 - [Na veel zon en hoge temperaturen, lijkt de herfst komende week op toeren te komen](https://nos.nl/l/2635519)
   > Echt herfst is het nog niet geweest, met veel zon en relatief hoge temperaturen. De komende week komen depressies echter geleidelijk dichterbij. Dat...
-- [Tien burgerdoden in Oekraïne, dat zelf grote drone-aanval op Rusland uitvoert](https://nos.nl/l/2635507)
-  > Russische aanvallen op Oekraïne hebben in een dag tijd tien burgerlevens geëist, meldt krant The Kyiv Independent op basis van lokale autoriteiten....
-- [Alle mensen die onwel werden na bezoek aan Grolsch-fabriek weer thuis](https://nos.nl/l/2635501)
-  > Elf mensen die gisteren onwel werden na een rondleiding in de Grolsch-fabriek in Enschede, zijn na een controle door hulpverleners weer thuis. Een...
-- [Deense schoonmaker zit ruim drie dagen vast in ondergrondse cel](https://nos.nl/l/2635486)
-  > Een Deense schoonmaker heeft vorige maand ruim drie dagen opgesloten gezeten in een ondergrondse cel. Dat meldt de Deense krant Ekstra Bladet.
-      ...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Danny Noppert gooit persoonlijk record en bereikt halve finale, zo volgt Nederlands onderonsje](https://www.ad.nl/darts/danny-noppert-gooit-persoonlijk-record-en-bereikt-halve-finale-zo-volgt-nederlands-onderonsje~a20b1161/)
+- [Stand | Ajax profiteert van puntenverlies PSV, AZ én Twente, dit is de voorsprong van koploper Feyenoord](https://www.ad.nl/voetbal/stand-ajax-profiteert-van-puntenverlies-psv-az-en-twente-dit-is-de-voorsprong-van-koploper-feyenoord~a5ebff08/)
+  > Feyenoord is de koploper van de eredivisie. at is de voorsprong op de rest en hoe ziet het programma eruit? Bekijk in dit artikel het complete...
+- [FC Utrecht stunt dankzij fraaie goals Alarcón met verrassende zege bij FC Twente](https://www.ad.nl/voetbal/fc-utrecht-stunt-dankzij-fraaie-goals-alarcon-met-verrassende-zege-bij-fc-twente~a480d98f/)
+  > FC Utrecht heeft zondagavond voor een stunt gezorgd: uit bij FC Twente werd het 1-2. Ángel Alarcón legde de ploeg uit Enschede met twee identieke...
+- [Gemiste penalty, maar dan tóch een punt: NEC knokt zich in hectisch slot naast Fortuna](https://www.ad.nl/voetbal/gemiste-penalty-maar-dan-toch-een-punt-nec-knokt-zich-in-hectisch-slot-naast-fortuna~a139b483/)
+  > NEC heeft op de valreep alsnog een punt gepakt in de thuiswedstrijd tegen Fortuna Sittard. Na een gemiste penalty van Mitchel Bakker in minuut 90 was...
+- [Danny Noppert ondanks opleving Gian van Veen naar finale in Maastricht, tegen een landgenoot?](https://www.ad.nl/darts/danny-noppert-ondanks-opleving-gian-van-veen-naar-finale-in-maastricht-tegen-een-landgenoot~a20b1161/)
   > De beste darters van Europa zijn dit weekend neergestreken in Maastricht voor de Euro Tour. Vrijdagavond komen de eerste Nederlanders in actie voor...
-- [LIVE eredivisie | FC Utrecht begint in Enschede met Padt onder de lat, geen verrassingen bij FC Twente](https://www.ad.nl/voetbal/live-eredivisie-fc-utrecht-begint-in-enschede-met-padt-onder-de-lat-geen-verrassingen-bij-fc-twente~a480d98f/)
-  > FC Utrecht heeft na de zege op Willem II vertrouwen getankt. Maar in Enschede tegen FC Twente moet het nóg beter om drie punten mee naar huis te...
-- [Manchester United blijft kwakkelen, Bart Verbruggen derde met Brighton, oud-PSV’er helpt Arsenal aan late zege](https://www.ad.nl/voetbal/manchester-united-blijft-kwakkelen-bart-verbruggen-derde-met-brighton-oud-psver-helpt-arsenal-aan-late-zege~a63ffb12/)
-  > Manchester United heeft zondagmiddag opnieuw niet gewonnen in de Premier League. Op bezoek bij Leeds United kwam de ploeg niet verder dan 1-1 en...
-- [Chemomutsjes geven Wendy, Suzan en Dolores regie terug: ‘Ik heb er zelfs een met glittertjes’](https://www.ad.nl/binnenland/chemomutsjes-geven-wendy-suzan-en-dolores-regie-terug-ik-heb-er-zelfs-een-met-glittertjes~a9e3df0c/)
-  > Chemomutsjes. Dragers haten én houden van ze. Want een hoofd zonder haar is vreselijk, weten ­vrouwen die het is overkomen. Dan geeft dat mutsje, al...
-- [‘Meghan niet meer in gesprek over rol in Netflix-serie’](https://www.ad.nl/show/meghan-niet-meer-in-gesprek-over-rol-in-netflix-serie~ad2dcb9b/)
-  > Meghan is niet langer in gesprek over een rol in de Netflix-serie The Gentlemen. Volgens een bron rond de hertogin van Sussex zou haar naam vooral...
+- [Hoop tranen, ruzies en sneren bij reünie Love is blind, maar dan wordt er een onverwacht stel onthuld](https://www.ad.nl/show/hoop-tranen-ruzies-en-sneren-bij-reunie-love-is-blind-maar-dan-wordt-er-een-onverwacht-stel-onthuld~af9ccdd7/)
+  > De reünie van het eerste seizoen Love is blind Nederland was er een met een hoop emotie. Tranen vloeiden en de deelnemers gingen de confrontatie met...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Macron veroordeelt gewelddadige acties bij protesten en kondigt maatregelen aan](https://fd.nl/politiek/1616104/macron-veroordeelt-gewelddadige-acties-bij-protesten-en-kondigt-maatregelen-aan)
+  > De Franse president reageert woedend op de golf van geweld bij de protesten van dit weekend.
+- [VS dreigen met represailles als Brussel toegang tot EU-markt beperkt](https://fd.nl/politiek/1616084/vs-dreigen-met-represailles-als-brussel-toegang-tot-eu-markt-beperkt)
+  > Amerikaanse ambassadeur bij de EU waarschuwt na besluit om Europese bedrijven voorrang te geven bij satellietcommunicatie.
+- [Gewelddadige Franse protesten spelen uiterst rechtse Le Pen in de kaart](https://fd.nl/politiek/1616083/gewelddadige-franse-protesten-spelen-uiterst-rechtse-le-pen-in-de-kaart)
+  > Extreemlinks krijgt de schuld van de ravage die dit weekend in tientallen Franse steden is aangericht. RN, de ultrarechtse partij van...
+- [Het kabinet kan beter zelf lenen](https://fd.nl/opinie/1615853/het-kabinet-kan-beter-zelf-lenen)
+  > Met pensioenfondsen en de EIB zaken doen kan, maar waarom leent het kabinet niet zelf meer? Lenen op de kapitaalmarkt is voor het Rijk een stuk...
 - [Opel-moeder zoekt honderden nieuwe technici](https://fd.nl/bedrijfsleven/1616015/opel-moeder-zoekt-honderden-nieuwe-technici)
   > Stellantis ziet na een moeilijke periode voor autofabrikanten weer ruimte voor groei.
-- [Wie gaat belasting betalen in een wereld waar AI-reuzen domineren?](https://fd.nl/economie/1615862/wie-gaat-belasting-betalen-in-een-wereld-waar-ai-reuzen-domineren)
-  > De AI-revolutie brengt de wereld groei, maar kan ook leiden tot een groot verlies aan belastinginkomsten terwijl staatsschulden wereldwijd al hoog...
-- [Verwachtingen over renteverhoging door Fed schieten alle kanten op](https://fd.nl/financiele-markten/1615917/renteverwachtingen-over-de-federal-reserve-schieten-alle-kanten-op)
-  > De onzekerheid over het beleid van het Amerikaanse stelsel van centrale banken is hoog. Een rentestap in oktober lijkt onwaarschijnlijk, en toch...
-- [‘Accenture wil zijn Chinese activiteiten verkopen’](https://fd.nl/bedrijfsleven/1616013/accenture-wil-zijn-chinese-activiteiten-verkopen)
-  > De verkoop, waarover de Britse zakenkrant FT op zondag berichtte, kan tot $1,5 mrd opleveren.
-- [Rekbare deadline voor diversiteit](https://fd.nl/financiele-markten/1615907/rekbare-deadline-voor-diversiteit)
-  > PwC en Deloitte willen dat 30% van hun partners vrouw is. Nu ze hun eigen deadlines niet halen, gunnen ze zichzelf drie jaar extra tijd.
 
 ### Meest gelezen
 
