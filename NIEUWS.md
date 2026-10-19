@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-10-2026 om 19:09*
+*Laatst bijgewerkt: 19-10-2026 om 23:27*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Politicus Coos Huijsen (87) overleden, eerste openlijk homoseksuele parlementariër](https://nos.nl/l/2635877)
+- [Opnieuw onrustig in Amsterdamse Floradorp: stenen en glas naar politie gegooid](https://nos.nl/l/2635889)
+  > In de wijk Floradorp in Amsterdam-Noord is het vanavond opnieuw onrustig geweest. Daarbij zijn twee mensen aangehouden.
+        Aan het einde van de...
+- [Polen als groeikampioen van Europa: waarom overname van buurtsuper Zabka veel zegt](https://nos.nl/l/2635882)
+  > Ze zijn in Polen niet te missen, want ze zitten overal: Zabka-winkels. Soms tegenover elkaar, of in hetzelfde gebouw. Deze karakteristieke...
+- [Gazprom mag van rechter bij ING blijven bankieren](https://nos.nl/l/2635880)
+  > De rechter verbiedt ING om de bankrekening van Gazprom te sluiten. En dus blijft het Russische energieconcern klant bij de bank totdat het ergens...
+- [Tip Egyptische boer leidt tot vondst metershoge standbeelden Ramses II](https://nos.nl/l/2635879)
+  > Een tip van een Egyptische boer heeft tot de vondst geleid van twee metershoge standbeelden van farao Ramses II (1300 v. Chr. - 1213 v. Chr.). Door...
+- [Eerste openlijk homoseksuele parlementslid, Coos Huijsen (87), overleden](https://nos.nl/l/2635877)
   > Oud-politicus Coos Huijsen is op 87-jarige leeftijd overleden, meldt zijn familie in een persbericht. Huijsen was naar eigen zeggen en volgens zijn...
-- [Keniaanse sekteleider schuldig bevonden aan het uithongeren van 190 kinderen](https://nos.nl/l/2635874)
-  > De Keniaanse sekteleider Paul Mackenzie is door een rechtbank in Kenia schuldig bevonden aan het uithongeren van 190 kinderen en een volwassene. Dat...
-- [Avondklok in meerdere Franse steden, waaronder Parijs en Lille, na weekend vol rellen](https://nos.nl/l/2635867)
-  > In meerdere Franse steden is vanavond een avondklok ingesteld, nadat dit weekend massaal werd gereld en geplunderd. De maatregel geldt voor delen van...
-- [Vier mensen omgekomen bij noodweer op Spaanse oostkust](https://nos.nl/l/2635865)
-  > In het oosten van Spanje zijn vier mensen omgekomen als gevolg van stortregens en overstromingen die gepaard gaan met de storm Adam. Doordat rivieren...
-- [Honderden jongeren aangehouden na rellen in Milaan, veertien agenten gewond](https://nos.nl/l/2635861)
-  > Bij rellen in Milaan zijn gisteren 271 jongeren aangehouden. Gemaskerde relschoppers gingen de confrontatie aan met de politie, gooiden met stenen en...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Europa op ramkoers met VS omdat het minder afhankelijk wil worden van de satellieten van Elon Musk](https://www.ad.nl/buitenland/europa-op-ramkoers-met-vs-omdat-het-minder-afhankelijk-wil-worden-van-de-satellieten-van-elon-musk~a3dfaed7/)
-  > Europa wil een eigen alternatief voor Starlink bouwen en Amerikaanse bedrijven worden bij de ontwikkeling van dat satellietsysteem grotendeels...
-- [Vera van Pol (32) na zwangerschap terug op WK turnen: ‘Mijn dochter is het belangrijkste’](https://www.ad.nl/andere-sporten/vera-van-pol-32-na-zwangerschap-terug-op-wk-turnen-mijn-dochter-is-het-belangrijkste~a636a41c/)
-  > Op 9 augustus 2025 beviel Vera van Pol (32) van haar eerste kindje, Milou Cato. Ruim een jaar later stond ze maandagavond op het WK turnen in Ahoy....
-- [Miley Cyrus reageert fel op kritiek na eerste optreden in vier jaar en twijfelde over tweede optreden](https://www.ad.nl/show/miley-cyrus-reageert-fel-op-kritiek-na-eerste-optreden-in-vier-jaar-en-twijfelde-over-tweede-optreden~a50d8ede/)
-  > Miley Cyrus heeft tijdens haar optreden zondagavond gereageerd op de kritiek die ze kreeg op haar comebackshow in de Hollywood Bowl in Los Angeles...
-- [Rob Jetten is niet de eerste: deze premiers kregen ook een baby tijdens hun regeerperiode](https://www.ad.nl/buitenland/rob-jetten-is-niet-de-eerste-deze-premiers-kregen-ook-een-baby-tijdens-hun-regeerperiode~aa8dcea1/)
-  > Het komt niet vaak voor dat een regeringsleider tijdens de ambtsperiode een kind krijgt. En al helemaal niet een homoseksuele premier die samen met...
-- [Jong Ajax profiteert maar kort van blunder De Graafschap, Jong PSV staat achter](https://www.ad.nl/voetbal/jong-ajax-profiteert-maar-kort-van-blunder-de-graafschap-jong-psv-staat-achter~ab450a467/)
-  > Drie duels vanavond in de Keuken Kampioen Divisie: Jong PSV ontvangt FC Dordrecht, De Graafschap speelt bij Jong Ajax en Roda JC speelt uit tegen...
+- [LIVE Oorlog Oekraïne | VS houden Patriot-raketten voor Oekraïne tegen, zegt Washington Post](https://www.ad.nl/buitenland/live-oorlog-oekraine-vs-houden-patriot-raketten-voor-oekraine-tegen-zegt-washington-post~adfb97be/)
+  > De regering van president Donald Trump heeft volgens The Washington Post de overdracht van Patriot-onderscheppingsraketten aan Oekraïne nog niet...
+- [AD Voetbalpodcast | ‘Porto-PSV is meteen een zespuntenduel in de Champions League’](https://www.ad.nl/voetbal/ad-voetbalpodcast-porto-psv-is-meteen-een-zespuntenduel-in-de-champions-league~a42af5cd9/)
+  > PSV treft vanavond FC Porto in de Champions League. De ploeg van Francesco Farioli heeft nog geen punt gepakt in de Champions League en PSV slechts...
+- [Wie pikt transfervrije Luuk de Jong (36) op na zware knieblessure? ‘Ik voel me goed, ik ben fit’](https://www.ad.nl/voetbal/wie-pikt-transfervrije-luuk-de-jong-36-op-na-zware-knieblessure-ik-voel-me-goed-ik-ben-fit~aeaa52c3/)
+  > Luuk de Jong staat open voor een nieuw avontuur. De spits is hersteld van een knieblessure die hij vorig jaar opliep. Sinds afgelopen zomer is de...
+- [Tottenham Hotspur heeft eindelijk eerste zege van het seizoen te pakken, Zweed maakt na 526 dagen rentree](https://www.ad.nl/voetbal/tottenham-hotspur-heeft-eindelijk-eerste-zege-van-het-seizoen-te-pakken-zweed-maakt-na-526-dagen-rentree~a0b45f97/)
+  > Tottenham Hotspur heeft eindelijk de eerste zege van het nieuwe seizoen te pakken. De dolende topclub rekende in eigen huis af met promovendus...
+- [Jong Ajax wint van blunderend De Graafschap, geen droomdebuut voor PSV-aankoop Sami Ouaissa](https://www.ad.nl/voetbal/jong-ajax-wint-van-blunderend-de-graafschap-geen-droomdebuut-voor-psv-aankoop-sami-ouaissa~ab450a467/)
+  > Jong Ajax heeft na anderhalve maand eindelijk weer een zege geboekt in de Keuken Kampioen Divisie. De ploeg van trainer Carlos Garcia werd wel een...
 
 ### Meest gelezen
 
@@ -46,15 +47,16 @@
 
 ### Laatste nieuws
 
-- [Franse rellen jagen rente op staatsobligaties omhoog](https://fd.nl/economie/1616123/franse-rellen-jagen-rente-op-staatsobligaties-omhoog)
-  > De beurs leverde in, terwijl lenen duurder werd voor de Franse overheid. De kosten die dat met zich meebrengt, komen boven op de schade voor het...
-- [Woede bij personeel Volkswagen over bevriezing lonen](https://fd.nl/bedrijfsleven/1616062/woede-bij-personeel-volkswagen-over-bevriezing-lonen)
-  > De ondernemingsraad trekt aan de bel omdat de Volkswagen-directie bij loonoverleg de komende jaren wil inzetten op de nullijn. Daardoor zou het...
-- [Maak het quotum in Delft mogelijk](https://fd.nl/politiek/1616118/maak-het-quotum-in-delft-mogelijk)
-- [Franse steden mogen avondklok instellen om nieuw geweld tegen te gaan](https://fd.nl/samenleving/1616061/franse-steden-mogen-avondklok-instellen-om-nieuw-geweld-tegen-te-gaan)
-  > Terwijl winkeliers en ondernemers nog de schade opnemen van de rellen en plunderingen van afgelopen weekend, staan er al nieuwe demonstraties op de...
-- [Ook koopadvies Goldman Sachs helpt CoreWeave niet uit de brand](https://fd.nl/financiele-markten/1616116/coreweave-herstelt-van-klap-met-de-hulp-van-goldman-sachs)
-  > Het aandeel is nu koopwaardig, zegt de zakenbank. De financieringskosten vallen wel mee.
+- [AI-cadeautjes](https://fd.nl/opinie/1616125/ai-cadeautjes)
+  > Proberen AI-bedrijven nu met het uitdelen van spiegeltjes en kraaltjes te laten zien dat ze heus aan de rest van de wereld denken?
+- [NautaDutilh zet in op eigen AI-platform](https://fd.nl/financiele-markten/1616117/nautadutilh-zet-in-op-eigen-ai-platform)
+  > Het advocatenkantoor gaat zelf AI-toepassingen ontwikkelen. Experts verwachten dat andere kantoren zullen volgen. Daarmee verandert ook de rol van de...
+- [De Rijksoverheidssite trekt minder bezoekers en dat komt door AI](https://fd.nl/politiek/1616114/de-rijksoverheidssite-trekt-minder-bezoekers-en-dat-komt-door-ai)
+  > Mensen gebruiken AI om informatie te vinden, waardoor het aantal bezoeken aan rijksoverheid.nl terugloopt. Die ontwikkeling roept fundamentele vragen...
+- [Trumps Barbertje heet Volodymyr Zelensky](https://fd.nl/opinie/1616034/trumps-barbertje-heet-volodymyr-zelensky)
+  > Trump maakt Zelensky tot zondebok voor zijn eigen falende beleid en hij gokt erop dat de Maga-kiezer hem gelooft, schrijft columnist Bernard...
+- [Zo profiteert neutraal Oman van de Iran-oorlog](https://fd.nl/economie/1615563/zo-profiteert-neutraal-oman-van-de-iran-oorlog)
+  > De Golfstaat Oman houdt vast aan zijn decennialange credo: vriend van iedereen, vijand van niemand. Maar hoelang blijft die positie van...
 
 ### Meest gelezen
 
