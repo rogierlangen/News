@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-10-2026 om 04:10*
+*Laatst bijgewerkt: 20-10-2026 om 09:52*
 
 ---
 
@@ -8,17 +8,17 @@
 
 ### Laatste nieuws
 
-- [Australische kapper grijpt in na aanrijding parlementslid, premier noemt hem een held](https://nos.nl/l/2635892)
-  > Een kapper in Australië wordt geprezen om zijn snelle optreden nadat een parlementslid voor zijn zaak werd aangereden. Ricky Jefferies, eigenaar van...
-- [Personage Apu keert terug in The Simpsons met Indiaas-Amerikaanse stemacteur](https://nos.nl/l/2635891)
-  > Na acht jaar stilte spreekt Apu weer in de populaire Amerikaanse animatieserie The Simpsons. De geliefde Indiase supermarktmanager had jarenlang geen...
-- [Zeker 14 doden bij aardverschuiving illegale goudmijn in Colombia](https://nos.nl/l/2635890)
-  > Door een aardverschuiving in een illegale goudmijn in een afgelegen gebied in Colombia zijn zeker veertien mensen om het leven gekomen, melden lokale...
-- [Opnieuw onrust in Amsterdamse Floradorp: stenen en glas naar politie gegooid](https://nos.nl/l/2635889)
-  > In de wijk Floradorp in Amsterdam-Noord was het gisteravond opnieuw onrustig. De politie hield twee mensen aan.
-        Aan het einde van de middag...
-- [Polen als groeikampioen van Europa: waarom overname van buurtsuper Zabka veel zegt](https://nos.nl/l/2635882)
-  > Ze zijn in Polen niet te missen, want ze zitten overal: Zabka-winkels. Soms tegenover elkaar, of in hetzelfde gebouw. Deze karakteristieke...
+- [Gasvoorraad voor 64 procent gevuld, minimale doel gehaald](https://nos.nl/l/2635931)
+  > Nederland heeft het minimale doel voor gas behaald om de winter uit te zingen. Staatsbedrijf Energiebeheer Nederland (EBN) meldt dat de gasopslag...
+- [Fietser valt in rioolput op straat in Eindhoven](https://nos.nl/l/2635930)
+  > Een fietser is vanochtend in een betonnen put gevallen op straat in Eindhoven. In de straat wordt aan het riool gewerkt. De weg was daarom afgezet...
+- [Treinkaartjes NS opnieuw stuk duurder, stijging van gemiddeld 4,7 procent](https://nos.nl/l/2635929)
+  > Volgend jaar wordt reizen met de trein opnieuw een stuk duurder. Gemiddeld gaat de prijs van een treinkaartje bij NS met 4,7 procent omhoog. 
+       ...
+- [160 doden door droneaanvallen in Sudan, ook in relatief veilig Khartoem](https://nos.nl/l/2635926)
+  > Bij een golf van droneaanvallen in Sudan zijn de afgelopen dagen volgens medisch personeel en mensenrechtenorganisaties meer dan 160 mensen...
+- [Amsterdamse school hoeft leerling niet over te laten gaan van rechter](https://nos.nl/l/2635920)
+  > Een leerling van het Fons Vitae Lyceum in Amsterdam hoeft niet over te laten gaan naar de tweede klas van de havo. Dat heeft de rechter bepaald in...
 
 ### Meest gelezen
 
@@ -28,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Nederlandse vrouw zet Italiaans dorpje (600 inwoners) op stelten: ‘Ik heb een beer gezien’](https://www.ad.nl/buitenland/nederlandse-vrouw-zet-italiaans-dorpje-600-inwoners-op-stelten-ik-heb-een-beer-gezien~a5cdd8c4/)
-  > Een Nederlandse vrouw heeft een middeleeuws dorpje in Italië op stelten gezet door te beweren dat ze oog in oog heeft gestaan met een grote bruine...
-- [Franse media: rustige nacht met lege straten na invoering avondklok](https://www.ad.nl/buitenland/franse-media-rustige-nacht-met-lege-straten-na-invoering-avondklok~a8244818/)
-  > In Frankrijk is het in de nacht van maandag op dinsdag rustig gebleven, zo meldden diverse Franse media, waaronder Le Parisien en Le Monde. Op...
-- [PostNL wil extra vergoeding voor postbezorging van 80 miljoen euro](https://www.ad.nl/economie/postnl-wil-extra-vergoeding-voor-postbezorging-van-80-miljoen-euro~a26db766/)
-  > PostNL wil voor het komende jaar een vergoeding van de overheid van 80 miljoen euro, vanwege oplopende kosten bij de wettelijk verplichte...
-- [Osteoporose in wervels nog veel te vaak onopgemerkt: ‘Scan wordt te weinig uitgevoerd’](https://www.ad.nl/binnenland/osteoporose-in-wervels-nog-veel-te-vaak-onopgemerkt-scan-wordt-te-weinig-uitgevoerd~ad638098/)
-  > Een hoestbui kan al genoeg zijn om een wervel te breken bij iemand met osteoporose, met onherstelbare schade tot gevolg. Toch wordt nog veel te...
-- [Trump strooit vlak voor midterms met miljarden dollars om boeren tegemoet te komen](https://www.ad.nl/buitenland/trump-strooit-vlak-voor-midterms-met-miljarden-dollars-om-boeren-tegemoet-te-komen~ae67dd9c/)
-  > Donald Trump gaat de Amerikaanse boeren compenseren voor de hoge dieselkosten. De Amerikaanse president maakt 8 miljard dollar (7,13 miljard euro)...
+- [Praat mee: hoog tijd dat draagmoederschap bij wet wordt geregeld](https://www.ad.nl/praat-mee/praat-mee-hoog-tijd-dat-draagmoederschap-bij-wet-wordt-geregeld~ab6a936e/)
+  > Premier Jetten en zijn partner Nicolás Keenan krijgen een kind. Dat nieuws werd maandag bekend. Het stel krijgt hulp van een draagmoeder. In De...
+- [Historicus over toekomst Europa: ‘Ik ben echt nog nooit zo bezorgd geweest als nu’](https://www.ad.nl/buitenland/historicus-over-toekomst-europa-ik-ben-echt-nog-nooit-zo-bezorgd-geweest-als-nu~a40d3f1f/)
+  > Je denkt misschien dat het normaal is: een stedentripje naar Estland, een pizza margherita als lunch en afrekenen in euro’s. „Maar dat is het niet”,...
+- [Nederlander (38) die werd betrapt met 3 kilo drugs moet Duitse cel in: ‘Ik was op weg naar een bruiloft’](https://www.ad.nl/buitenland/nederlander-38-die-werd-betrapt-met-3-kilo-drugs-moet-duitse-cel-in-ik-was-op-weg-naar-een-bruiloft~a1ef1bb8/)
+  > Een 38-jarige Nederlander is in Duitsland veroordeeld tot een celstraf van 2 jaar en 9 maanden, nadat hij betrapt werd met meer dan 3 kilo...
+- [Klaasje Meijer valt opnieuw in bij K3: na Marthe vervangt ze nu zwangere Hanne](https://www.ad.nl/show/klaasje-meijer-valt-opnieuw-in-bij-k3-na-marthe-vervangt-ze-nu-zwangere-hanne~a168cf74/)
+  > De tijdelijke vervangster van K3’tje Hanne Verbruggen (32) is bekend. Tegen alle verwachtingen in is het opnieuw Klaasje Meijer (31) geworden, maakt...
+- [Australische kapper overmeestert man die parlementslid twee keer aanreed, premier noemt hem een held](https://www.ad.nl/buitenland/australische-kapper-overmeestert-man-die-parlementslid-twee-keer-aanreed-premier-noemt-hem-een-held~a5c60ac1/)
+  > Een kapper uit het Australische Wangaratta wordt door de premier als held bejubeld. Hij overmeesterde een man die het onafhankelijke parlementslid...
 
 ### Meest gelezen
 
@@ -47,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Moeten kinderen onder de 16 helemaal worden geweerd van sociale media?](https://fd.nl/samenleving/1616110/moeten-kinderen-onder-de-16-helemaal-worden-geweerd-van-sociale-media)
-  > Een leeftijdsgrens kan kinderen beschermen tegen sociale media, denkt ontwikkelingspsycholoog Steven Pont. Socialemediaonderzoeker Gilles Dutilh...
-- [Hoe rechts Frankrijk profiteert van rellen](https://fd.nl/economie/1616057/hoe-rechts-frankrijk-profiteert-van-rellen)
-  > Vandaag in Dagkoers: Wat betekenen de Franse rellen voor hun verkiezingen en de financiële markten, en door AI bekijken mensen overheidswebsites veel...
-- [AI-cadeautjes](https://fd.nl/opinie/1616125/ai-cadeautjes)
-  > Proberen AI-bedrijven nu met het uitdelen van spiegeltjes en kraaltjes te laten zien dat ze heus aan de rest van de wereld denken?
-- [NautaDutilh zet in op eigen AI-platform](https://fd.nl/financiele-markten/1616117/nautadutilh-zet-in-op-eigen-ai-platform)
-  > Het advocatenkantoor gaat zelf AI-toepassingen ontwikkelen. Experts verwachten dat andere kantoren zullen volgen. Daarmee verandert ook de rol van de...
-- [De Rijksoverheidssite trekt minder bezoekers en dat komt door AI](https://fd.nl/politiek/1616114/de-rijksoverheidssite-trekt-minder-bezoekers-en-dat-komt-door-ai)
-  > Mensen gebruiken AI om informatie te vinden, waardoor het aantal bezoeken aan rijksoverheid.nl terugloopt. Die ontwikkeling roept fundamentele vragen...
+- [De echte onderhoudsachterstand van infra zit in de informatievoorziening](https://fd.nl/opinie/1615619/de-echte-onderhoudsachterstand-van-infra-zit-in-de-informatievoorziening)
+  > Ons land moet een inhaalslag maken in de renovatie van infrastructuur. Veel informatie over bestaande wegen en bruggen ging de laatste decennia...
+- [Financiële voorlichting](https://fd.nl/financiele-markten/1616035/financiele-voorlichting)
+  > Het helpt om samen over geld, en wat je daar zoal mee kan doen, te praten. Zodat we verstandige afwegingen leren maken, schrijft FD-columnist Milou...
+- [Thuisbezorgd en Uber Eats stoppen met verborgen kosten](https://fd.nl/bedrijfsleven/1616072/thuisbezorgd-en-uber-eats-stoppen-met-verborgen-kosten)
+  > De Consumentenbond maakt afspraken met maaltijdbezorgdiensten over extra kosten en nepkortingen
+- [Personeelsbestand bij PwC België krimpt in jaar tijd met 8%](https://fd.nl/bedrijfsleven/1616170/personeelsbestand-bij-pwc-belgie-krimpt-in-jaar-tijd-met-8)
+  > Topman Patrick Boone van de activiteiten in België verbindt in een interview met De Tijd de personeelskrimp aan onder meer AI.
+- [Kan een mens echt het geluk vinden in een belastingparadijs?](https://fd.nl/samenleving/1616045/kan-een-mens-echt-het-geluk-vinden-in-een-belastingparadijs)
+  > Vroeger dacht Femmetje de Wind dat geluk achter het bereikte doel ligt. Voor geld blijkt dat enigszins te gelden, dus is het maar beter financieel...
 
 ### Meest gelezen
 
