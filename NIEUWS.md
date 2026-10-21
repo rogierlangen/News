@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 21-10-2026 om 19:12*
+*Laatst bijgewerkt: 21-10-2026 om 23:05*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Meta krijgt boete van 25 miljard dollar na liegen over gebruikersgegevens](https://nos.nl/l/2636134)
-  > Meta, het moederbedrijf van Facebook, moet 25 miljard dollar betalen omdat het gebruikers misleid heeft over hoe en door wie hun gegevens gebruikt...
-- [Kans op sleutelrol Arabische partijen bij verkiezingen Israël, samenwerking ligt gevoelig](https://nos.nl/l/2636131)
-  > De Arabische partijen in Israël kunnen na de verkiezingen van volgende week een doorslaggevende rol spelen bij de vorming van een regering zonder...
-- [Don't Stop Believin': populaire musicalserie Glee maakt doorstart op Disney+](https://nos.nl/l/2636129)
-  > De musicalserie Glee krijgt definitief een doorstart. Dat bevestigen de Amerikaanse streamingsdiensten Disney+ en Hulu. De serie was tussen 2009 en...
-- [Vrouw bevalt van kind in rijdende trein in stad Groningen](https://nos.nl/l/2636126)
-  > In een trein in de stad Groningen is vanmorgen een vrouw van een kind bevallen. Het Dagblad van het Noorden sprak een getuige die rond 08.00 uur op...
-- [Camera's moeten nieuwe rellen in Amsterdamse wijk Floradorp voorkomen](https://nos.nl/l/2636123)
-  > Om nog meer rellen in de Amsterdamse wijk Floradorp te voorkomen heeft burgemeester Femke Halsema cameratoezicht ingesteld. Sinds de gemeente vorige...
+- [VS haalt deel ambassadepersoneel uit Saudi-Arabië weg na dodelijke Houthi-aanvallen](https://nos.nl/l/2636156)
+  > Het Amerikaanse ministerie van Buitenlandse Zaken heeft een deel van het diplomatieke personeel en hun familieleden opgedragen Saudi-Arabië te...
+- [Nog altijd websites niet bereikbaar na lek, ook internationaal nog problemen](https://nos.nl/l/2636149)
+  > Er zijn nog altijd websites onbereikbaar nadat die uit voorzorg offline zijn gehaald. Dat gebeurde na een lek in de programmeertaal PHP. Zo is de...
+- [Gouverneurskandidaat Ohio zet vervreemde moeder in bij aanval op tegenstander](https://nos.nl/l/2636145)
+  > De strijd tussen de Republikeinen en de Democraten in de Verenigde Staten heeft een nieuw dieptepunt bereikt. De Republikeinse gouverneurskandidaat...
+- [Iconische Apekop-trein rijdt (nu echt) laatste reizigersdienst](https://nos.nl/l/2636139)
+  > Jarenlang stond de Mat '64, ook wel Apekop genoemd, symbool voor de trein in Nederland. Vandaag reed de iconische trein voor het laatst een reguliere...
+- [Noord-Ierse oud-politicus verdacht van verkrachten vrouw in Brits Lagerhuis](https://nos.nl/l/2636138)
+  > De politie in Londen doet onderzoek naar de vermoedelijke verkrachting van een vrouw in de gebouwen van het Britse parlement. De verdachte is een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Champions League | Flinke aderlating voor Arsenal in topper tegen Bayern: Saka moet al vroeg geblesseerd naar de kant](https://www.ad.nl/voetbal/live-champions-league-flinke-aderlating-voor-arsenal-in-topper-tegen-bayern-saka-moet-al-vroeg-geblesseerd-naar-de-kant~a5e601f4/)
-  > Een geweldig affiche vanavond in de Champions League: Bayern München speelt tegen Arsenal. Welke grootmacht pakt de volle buit? Volg het hier live.
-- [Pogingen van Betis-aanvaller Ezzalzouli en Antony, maar Ernst brengt redding namens Feyenoord](https://www.ad.nl/voetbal/pogingen-van-betis-aanvaller-ezzalzouli-en-antony-maar-ernst-brengt-redding-namens-feyenoord~a56017a4/)
-  > Feyenoord won vorige week met 3-2 van Como en hoopt die zege in de Champions League vanavond een goed vervolg te geven in Sevilla tegen Real Betis....
-- [Champions League-avond in volle gang: Real Madrid en Inter begonnen aan hun duels](https://www.ad.nl/voetbal/champions-league-avond-in-volle-gang-real-madrid-en-inter-begonnen-aan-hun-duels~a5160a8b/)
-  > Een volle avond Champions League-voetbal vanavond. Manchester United ging met pijnlijke cijfers onderuit op bezoek bij Como: 4-1. Om 21.00 uur komen...
-- [Crisis compleet bij Manchester United, dat bij rentree Matthijs de Ligt pijnlijke nederlaag lijdt in Como](https://www.ad.nl/voetbal/crisis-compleet-bij-manchester-united-dat-bij-rentree-matthijs-de-ligt-pijnlijke-nederlaag-lijdt-in-como~a6e77929/)
-  > Een onthutsend zwak Manchester United heeft woensdagavond met 4-1 verloren van Como in de Champions League. Matthijs de Ligt maakte na elf maanden...
-- [Amerikaanse influencer in de ban van doodnormaal Nederlands drankje: ‘Nergens anders ter wereld te vinden’](https://www.ad.nl/show/amerikaanse-influencer-in-de-ban-van-doodnormaal-nederlands-drankje-nergens-anders-ter-wereld-te-vinden~ab29aad91/)
-  > Een bekende Amerikaanse influencer met miljoenen volgers blijkt ronduit geobsedeerd te zijn door een Nederlands drankje. Bij ons is het op elke...
+- [AD Voetbalpodcast | ‘Dit was wel een heel ander Feyenoord dan tegen Como’](https://www.ad.nl/voetbal/ad-voetbalpodcast-dit-was-wel-een-heel-ander-feyenoord-dan-tegen-como~a42af5cd9/)
+  > Geen punten voor Feyenoord in Sevilla. Dat is de conclusie na de nederlaag van Feyenoord bij Real Betis.
+- [Stand CL | Feyenoord net onder de streep na nederlaag in Sevilla, PSV in middenmoot en twee clubs foutloos](https://www.ad.nl/voetbal/stand-cl-feyenoord-net-onder-de-streep-na-nederlaag-in-sevilla-psv-in-middenmoot-en-twee-clubs-foutloos~a7ceca5d/)
+  > PSV is dankzij de zege op FC Porto geklommen naar de achttiende plaats op de ranglijst van de Champions League. Feyenoord verloor op bezoek bij Real...
+- [Real Madrid te sterk voor Leipzig, Club Brugge met oud-Ajacied Forbs blijft verrassen](https://www.ad.nl/voetbal/real-madrid-te-sterk-voor-leipzig-club-brugge-met-oud-ajacied-forbs-blijft-verrassen~a5160a8b/)
+  > Real Madrid heeft in de Champions League gedaan wat het moest doen en won in eigen huis met 4-1 van RB Leipzig. Club Brugge blijft ondertussen...
+- [Arsenal is foutloze status kwijt ondanks laat doelpunt in München, Jurriën Timber veroorzaakt strafschop](https://www.ad.nl/voetbal/arsenal-is-foutloze-status-kwijt-ondanks-laat-doelpunt-in-munchen-jurrien-timber-veroorzaakt-strafschop~a5e601f4/)
+  > Bayern München heeft Arsenal het eerste puntenverlies bezorgd in de Champions League. De topper in de Allianz Arena eindigde onbeslist: 2-2.
+- [Handsbal St. Juste breekt Feyenoord op in Sevilla: Real Betis maakt verschil vanaf de stip](https://www.ad.nl/voetbal/handsbal-st-juste-breekt-feyenoord-op-in-sevilla-real-betis-maakt-verschil-vanaf-de-stip~a56017a4/)
+  > Na de tweede nederlaag in de Champions League staat Feyenoord op een plek die na acht wedstrijden het einde betekent van het Europese avontuur. In de...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Meta krijgt boete van $25 mrd in New Mexico](https://fd.nl/bedrijfsleven/1616362/meta-krijgt-boete-van-25-mrd-in-new-mexico)
-  > Een jury oordeelde dat het bedrijf schuldig is aan misleiding van consumenten over hoe er met hun data werd omgegaan.
-- [Randstad boekt betere resultaten dan verwacht, aandeel spuit omhoog](https://fd.nl/bedrijfsleven/1616335/randstad-boekt-betere-resultaten-dan-verwacht-aandeel-spuit-omhoog)
-  > Door slechte resultaten verdween de uitzender begin dit jaar uit de AEX. Nu hengelt het concern met zijn cijfers juist naar promotie.
-- [Inval bij radicaalrechtse Patriots for Europe](https://fd.nl/politiek/1616241/inval-bij-radicaalrechtse-patriots-for-europe)
-  > Opsporingsambtenaren onderzochten de kantoren in Brussel en Straatsburg van de Europese fractie van radicaalrechtse partijen, waarbij onder meer de...
-- [Samensmelting Tesla en SpaceX kan het Elon-imperium compleet maken](https://fd.nl/financiele-markten/1616240/samensmelting-tesla-en-spacex-kan-het-elon-imperium-compleet-maken)
-  > Tegen de huidige beurskoersen zou dat een moloch met een waarde van $3600 mrd (€3210 mrd) moeten opleveren.
-- [Wapen de fiscus tegen een technologieschok](https://fd.nl/economie/1616345/wapen-de-fiscus-tegen-een-technologieschok)
-  > Als AI gaat leiden tot massaal banenverlies, heeft dat gevolgen voor de belastinginkomsten van overheden.
+- [Wie is de baas?](https://fd.nl/opinie/1616361/wie-is-de-baas)
+  > Als het Trump de opdracht gaf om de Oekraïense verbinding met Starlink te vertragen, is het duidelijk dat hij niet terugdeinst om Oekraïne te...
+- [Pools pakketkluizenbedrijf neemt afscheid van de Amsterdamse beurs](https://fd.nl/bedrijfsleven/1616351/pools-pakketkluizenbedrijf-neemt-afscheid-van-de-amsterdamse-beurs)
+  > Na het vertrek van het Damrak op donderdag hoopt InPost sneller zijn netwerk van pakketkluizen te kunnen uitbreiden. In private handen mikt het...
+- [CDU eist inzage in vertrouwelijk rapport over geschrapte fregatten van scheepsbouwer Damen](https://fd.nl/bedrijfsleven/1616231/cdu-eist-inzage-in-vertrouwelijk-rapport-over-geschrapte-fregatten-van-scheepsbouwer-damen)
+  > Een nieuwe stap in het juridische gevecht rond de miljardenvordering van Damen Schelde Naval Shipbuilding op de Duitse staat. De scheepsbouwer en ook...
+- [Europeaan in hart en nieren gaat liever op eigen houtje verder dan NSC te redden](https://fd.nl/politiek/1616195/europeaan-in-hart-en-nieren-gaat-liever-op-eigen-houtje-verder-dan-nsc-te-redden)
+  > Europarlementariër Dirk Gotink was de laatste nog actieve volksvertegenwoordiger namens NSC, maar na de komst van Mona Keijzer naar het recente...
+- [Een democratie hoort geen last te hebben van geheugenverlies](https://fd.nl/opinie/1616183/een-democratie-heeft-geen-last-van-geheugenverlies)
+  > Op verschillende manieren mogen wij onze politici controleren. En niet alleen die van vandaag, maar ook die van gisteren. Als het Nationaal Archief...
 
 ### Meest gelezen
 
