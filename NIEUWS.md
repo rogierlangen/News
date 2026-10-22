@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 22-10-2026 om 09:20*
+*Laatst bijgewerkt: 22-10-2026 om 14:56*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Docent over aanslag school VS: 'Voor ik de deur kon sluiten, was hij er al'](https://nos.nl/l/2636183)
-  > Een lerares die zwaargewond raakte toen een 16-jarige schutter een week geleden het vuur opende op een Amerikaanse basisschool, zegt dat ze totaal...
-- [Airbnb-verhuurders mogen gasten niet meer verplichten de afwas te doen](https://nos.nl/l/2636177)
-  > Verhuurders op de boekingssite Airbnb mogen hun gasten niet meer verplichten de afwas te doen of de bedden af te halen bij het uitchecken. Dat blijkt...
-- [New Mexico spant rechtszaak aan tegen Epsteins advocaat en accountant](https://nos.nl/l/2636176)
-  > De Amerikaanse staat New Mexico spant een rechtszaak aan tegen de advocaat en accountant van zedendelinquent Jeffrey Epstein. Aanklager Raúl Torrez...
-- [Haai die uitgroeide tot attractie in Zuid-Korea weggezwommen én weer teruggekeerd](https://nos.nl/l/2636175)
-  > De haai die sinds vorige maand in een Zuid-Koreaanse stad rondzwom, is gisteren naar open zee begeleid, maar keerde enkele uren later alweer terug in...
-- [Brand in het centrum van Delft onder controle](https://nos.nl/l/2636173)
-  > In de binnenstad van Delft heeft vanochtend een brand gewoed. De brand is inmiddels onder controle. Voor zover bekend zijn er geen gewonden...
+- [Minister: 'Begrenzen van rente op studieleningen risicovol en duur'](https://nos.nl/l/2636221)
+  > Het begrenzen van de rente op studieleningen op maximaal 2,5 procent is risicovol en duur. Dat schrijft minister Letschert van Onderwijs (D66) aan de...
+- [Oekraïners die alles kwijtraakten eisen via Nederland vergoeding van Rusland](https://nos.nl/l/2636215)
+  > "Ik wil helemaal niets van Rusland, maar zij hebben mijn huis verwoest. En daar moeten ze voor betalen." Oleksandr Tereshchenko veegt regelmatig de...
+- [Podcast De Dag: de kwetsbaarheid van PHP, 'de onderbroek' van het internet](https://nos.nl/l/2636214)
+  > Van DigiD tot de Franse overheid, en van RTL Nieuws tot Schiphol. Sites van allerlei instanties gingen gisteren een paar uur offline. Er zaten lekken...
+- [Recordboete van 37 miljoen euro voor illegale gokaanbieder](https://nos.nl/l/2636211)
+  > De Kansspelautoriteit (Ksa) heeft een recordboete van 37 miljoen euro opgelegd aan een gokbedrijf. Het gaat om het illegale gokbedrijf EOD Code SRL,...
+- [Zoon mag Aung San Suu Kyi voor het eerst in vijf jaar spreken](https://nos.nl/l/2636207)
+  > De opgesloten oud-leider van Myanmar Aung San Suu Kyi heeft voor het eerst in vijf jaar haar zoon telefonisch mogen spreken. Kim Aris schrijft op...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Het duurde even, maar ook in het buitenland is het alarmfase 1 door beveiligingslek bij PHP: ‘Al miljoenen hackpogingen’](https://www.ad.nl/buitenland/het-duurde-even-maar-ook-in-het-buitenland-is-het-alarmfase-1-door-beveiligingslek-bij-php-al-miljoenen-hackpogingen~aad89d71/)
-  > De onrust rondom het beveiligingslek in de veelgebruikte programmeertaal PHP leek woensdag vooral in Nederland te spelen, maar inmiddels is het ook...
-- [Praat mee: liever websites uit voorzorg uit de lucht, dan het risico lopen op een hack](https://www.ad.nl/praat-mee/praat-mee-liever-websites-uit-voorzorg-uit-de-lucht-dan-het-risico-lopen-op-een-hack~a289fe4d/)
-  > Websites van tientallen organisaties, zoals DigiD en ziekenhuizen, zijn uit de lucht gegaan nadat bleek dat de beveiliging ervan broos is. In...
-- [Sylvie Meis straalt in prachtige jurk en Richard Groenendijk zwaait Toppers gedag](https://www.ad.nl/show/sylvie-meis-straalt-in-prachtige-jurk-en-richard-groenendijk-zwaait-toppers-gedag~a6c4b20c/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Is de strafschop een té strenge straf? Laat ons weten wat jij passend vindt voor onbewust hands](https://www.ad.nl/voetbal/is-de-strafschop-een-te-strenge-straf-laat-ons-weten-wat-jij-passend-vindt-voor-onbewust-hands~ab7d5142/)
-  > Feyenoord kreeg woensdag in de Champions League een omstreden penalty tegen, na een handsbal van Jeremiah St. Juste. Een te zware straf, vindt onze...
-- [Klaar voor het najaar: deze klusjes in en om huis kun je nu snel nog doen](https://www.ad.nl/wonen/klaar-voor-het-najaar-deze-klusjes-in-en-om-huis-kun-je-nu-snel-nog-doen~aeba32a3/)
-  > Het najaar is hét moment om klusjes aan te pakken die je gemakkelijk voor je uit schuift. Een verstopte dakgoot, een radiator die niet warm wordt of...
+- [Haai met meer dan 1,6 miljoen fans zwemt na een paar uur op open zee alweer terug naar Zuid-Koreaans kanaal](https://www.ad.nl/buitenland/haai-met-meer-dan-1-6-miljoen-fans-zwemt-na-een-paar-uur-op-open-zee-alweer-terug-naar-zuid-koreaans-kanaal~a37ad1c6/)
+  > Haai Bukangi, die een maand lang in een kanaal in het Zuid-Koreaanse Busan verbleef, is woensdag terug naar open zee geleid. De vreugde bleek echter...
+- [Moskou: ‘Europese landen zetten zich actiever in voor vrede in Oekraïne’](https://www.ad.nl/buitenland/moskou-europese-landen-zetten-zich-actiever-in-voor-vrede-in-oekraine~adfb97be/)
+  > Het Kremlin heeft donderdag laten weten dat Europese landen zich actiever zijn gaan inzetten voor een vredesregeling in Oekraïne. Wie Rusland stuurt...
+- [Winkeliers bewapenen vrienden met honkbalknuppels: nemen Fransen dit weekend het recht in eigen handen?](https://www.ad.nl/buitenland/winkeliers-bewapenen-vrienden-met-honkbalknuppels-nemen-fransen-dit-weekend-het-recht-in-eigen-handen~a0c7ad58/)
+  > Frankrijk verandert komend weekend in een versterkte burcht. Meer politie, militairen, speciale interventie-eenheden en pantserwagens moeten...
+- [Abdi A. was geen huurder van antikraakpand in Buitenveldert waar Hajar waarschijnlijk is vermoord](https://www.ad.nl/binnenland/abdi-a-was-geen-huurder-van-antikraakpand-in-buitenveldert-waar-hajar-waarschijnlijk-is-vermoord~a64c00cc/)
+  > De 23-jarige Abdi A. was geen huurder van het antikraakpand in Buitenveldert, in Amsterdam-Zuid, waar Hajar waarschijnlijk is vermoord. Vermoed wordt...
+- [Eén leg winnen van Luke Littler voor 586.000 euro: dit zijn de 24 kandidaten, waaronder Fallon Sherrock](https://www.ad.nl/darts/een-leg-winnen-van-luke-littler-voor-586-000-euro-dit-zijn-de-24-kandidaten-waaronder-fallon-sherrock~a5c0361d/)
+  > Vrijdag 30 oktober is het zover: dan neemt Luke Littler (19) het op tegen 24 amateurdarters in ‘Beat Luke Littler’, een unieke show op Netflix. De ...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [KVK: veel nieuwe zzp’ers, ondanks aanpak schijnzelfstandigheid](https://fd.nl/bedrijfsleven/1616371/kvk-veel-nieuwe-zzpers-ondanks-aanpak-schijnzelfstandigheid)
-  > Het aantal starters is afgelopen kwartaal gestegen met 15% ten opzichte van hetzelfde kwartaal een jaar eerder.
-- [EQT doet bod van bijna €11 mrd op ‘Venlose’ farmabedrijf Qiagen](https://fd.nl/bedrijfsleven/1616370/eqt-doet-bod-van-bijna-11-mrd-op-venlose-farmabedrijf-qiagen)
-  > De activiteiten van de van origine Duitse onderneming zijn ondergebracht in een Nederlandse holding, die statutair is gevestigd in het...
-- [Consument in oktober iets somberder over de staat van de economie](https://fd.nl/economie/1616369/consument-in-oktober-iets-somberder-over-de-staat-van-de-economie)
-  > Consumenten zien hun financiële positie voor de komende twaalf maanden iets verslechteren ten opzichte van een maand eerder.
-- [Op Amsterdam Dance Event draait het  ook om gezondheid: ‘Het is goed door het leven heen te dansen’](https://fd.nl/samenleving/1616178/op-amsterdam-dance-event-draait-het-ook-om-gezondheid-het-is-goed-door-het-leven-heen-te-dansen)
-  > Dit weekend verwacht het Amsterdam Dance Event (ADE) honderdduizenden bezoekers. Die komen ook naar de hoofdstad om te dansen. Wat doet dat met hun...
-- [Fouten maken in een onvergeeflijke tijd](https://fd.nl/samenleving/1616074/fouten-maken-in-een-onvergeeflijke-tijd)
-  > In deze digitale tijd ligt ieder mens onder een vergrootglas. Predikant Joost Röselaers vindt dat de waarheid moet blijven klinken, maar wat meer...
+- [Vechtscheiding bij accountantskantoor Crowe Peak](https://fd.nl/bedrijfsleven/1616412/vechtscheiding-bij-accountantskantoor-crowe-peak)
+  > De overgang van de ene naar de andere netwerkorganisatie gaat gepaard met veel stampij voor het accountantskantoor dat in 2025 werd overgenomen door...
+- [Basf laat het er na het ‘nee’ van Evonik niet bij zitten: ceo stuurt persoonlijke boodschap](https://fd.nl/bedrijfsleven/1616411/basf-laat-het-er-na-het-nee-van-evonik-niet-bij-zitten-ceo-stuurt-persoonlijke-boodschap)
+  > Bestuursvoorzitter Markus Kamieth van het Duitse chemieconcern spreekt de werknemers van Evonik in een video toe en belooft tot 2032 niemand te...
+- [Koers van Hermès zakt na tegenvallende groei](https://fd.nl/financiele-markten/1616409/koers-van-hermes-zakt-na-tegenvallende-groei)
+  > Zet de trend zich door, dan wordt dit het slechtste jaar sinds de beursgang in 1933. Dit jaar zakte het aandeel van het luxemerk al 41% aan de...
+- [TNO: productiviteit verhogen vereist specifieke aanpak per sector](https://fd.nl/economie/1616495/tno-productiviteit-verhogen-vereist-specifieke-aanpak-per-sector)
+  > Waar de ene bedrijfstak gebaat is bij kunstmatige intelligentie aplicaties, is de ander juist meer geholpen met betere ketensamenwerking.
+- [Noord-Brabant moet wachten op landelijke stikstofplannen voor provincie zelf verdergaat](https://fd.nl/politiek/1616487/noord-brabant-moet-wachten-op-landelijke-stikstofplannen-voor-provincie-zelf-verder-gaat)
+  > De stallenplannen van de provincie geven boeren niet genoeg rechtszekerheid. Dat oordeelt de rechter in een kort geding.
 
 ### Meest gelezen
 
