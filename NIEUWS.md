@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 23-10-2026 om 14:45*
+*Laatst bijgewerkt: 23-10-2026 om 18:56*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Frankrijk zet morgen 70.000 agenten in bij aangekondigde nieuwe protesten](https://nos.nl/l/2636345)
-  > De Franse autoriteiten zetten morgen 70.000 agenten in om de orde in het land te bewaren nu er nieuwe demonstraties zijn aangekondigd. De vakbonden...
-- [Nepal krijgt als eerste land miljoenen uit klimaatschadefonds na bergramp](https://nos.nl/l/2636341)
-  > Nepal krijgt als eerste land geld uit een door de Verenigde Naties opgezet fonds voor arme landen met schade door klimaatrampen. Het fonds heeft 20...
-- [Vrachtwagen met pech op A67 blijkt gestolen lading tandenborstels te vervoeren](https://nos.nl/l/2636337)
-  > De Koninklijke Marechaussee heeft vorige week op de A67 bij Venlo in een vrachtwagen een gestolen lading elektrische tandenborstels en...
-- [Eerste lading van Trump en Poetins dieseldeal onderweg naar New York](https://nos.nl/l/2636335)
-  > Een tanker met 40.000 ton Russische diesel is onderweg naar de Verenigde Staten. De onder de vlag van Malta varende tanker Agioi Fanendes vaart nu...
-- [Hajar op eerste dag vermissing gedood, verdachte ook verdacht van poging doden pleegvader](https://nos.nl/l/2636334)
-  > De 29-jarige Hajar is op de eerste dag van haar vermissing om het leven gebracht. Dat meldt het Openbaar Ministerie.
-        Hajar werd voor het...
+- [Aantal studenten aan lerarenopleiding Fries is dit jaar verdubbeld](https://nos.nl/l/2636383)
+  > Het aantal studenten dat dit schooljaar de opleiding tot docent Fries volgt, is meer dan verdubbeld in vergelijking met voorgaande jaren. Volgens de...
+- [Broer Meghan Markle vindt kinderporno bij hun vader, politie start onderzoek](https://nos.nl/l/2636380)
+  > Meghan Markle zegt dat ze "diep bedroefd" is door de beschuldigingen dat haar vader honderden en mogelijk zelfs duizenden beelden van kindermisbruik...
+- [Zijn door het PHP-lek slimme apparaten nog wel veilig te gebruiken?](https://nos.nl/l/2636368)
+  > Het regent vragen over cyberveiligheid sinds de kwetsbaarheden in de programmeertaal PHP bekend werden. Via het PHP-lek zouden servers en websites...
+- [Onstuimig weer leidt tot nu toe vooral tot hinder in het zuiden van het land](https://nos.nl/l/2636367)
+  > Het verwachte herfstweer heeft in Nederland nog maar beperkt tot overlast geleid. In Limburg heeft het weerinstituut KNMI code geel afgegeven vanwege...
+- [Gebouw in aanbouw van meer dan tien verdiepingen ingestort in centrum Nairobi](https://nos.nl/l/2636363)
+  > In de Keniaanse hoofdstad Nairobi is een gebouw van meer dan tien verdiepingen dat in aanbouw was, ingestort. Er is vrijwel niets van over, behalve...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Politie start strafrechtelijk onderzoek naar cyberaanval op moederbedrijf Albert Heijn](https://www.ad.nl/economie/politie-start-strafrechtelijk-onderzoek-naar-cyberaanval-op-moederbedrijf-albert-heijn~ae0a9a54/)
-  > De politie is een strafrechtelijk onderzoek gestart naar de cyberaanval die de afgelopen tijd voor grote problemen zorgde bij Albert Heijn en andere...
-- [Teleurstelling om ‘afwasban’ Airbnb: ‘Van romantiek niet veel over’](https://www.ad.nl/economie/teleurstelling-om-afwasban-airbnb-van-romantiek-niet-veel-over~a9806c19/)
-  > Het is gedaan met Airbnb-verhuurders die gasten voor vertrek nog aan het werk zetten. Zelf de afwas doen, het bed afhalen of het vuilnis naar...
-- [Goede kleuren en goed geluid, deze 65 inch-televisie komt als beste uit de test](https://www.ad.nl/tech/goede-kleuren-en-goed-geluid-deze-65-inch-televisie-komt-als-beste-uit-de-test~a8f7a808/)
-  > Een nieuwe tv koop je niet alleen op formaat. Bij 65 inch telt ook mee hoe zwart zwart is, hoe helder het beeld blijft en hoe makkelijk de bediening...
-- [Wie is songfestival-kandidaat Marnix Emanuel? Het ‘wonderkind’ dat droomt van het grote Europese podium](https://www.ad.nl/show/wie-is-songfestival-kandidaat-marnix-emanuel-het-wonderkind-dat-droomt-van-het-grote-europese-podium~aaa58b98/)
-  > Met een gouden hitsingle, ruim 50 miljoen streams op de teller en talloze radio-optredens timmert de Amsterdamse popartiest Marnix Emanuel, wiens...
-- [‘Mooi en waardig als Harry Kane in de voetsporen van Sir Stanley Matthews treedt’](https://www.ad.nl/voetbal/mooi-en-waardig-als-harry-kane-in-de-voetsporen-van-sir-stanley-matthews-treedt~a52b10b8/)
-  > Op maandag 26 oktober is de verkiezing van de Gouden Bal. De prijs voor wereldvoetballer van het jaar is toe aan de 70ste editie. Daarom is het gala...
+- [Koploper Heracles komt langszij, hattrick Veerman, heerlijke halve omhaal bij Jong Ajax](https://www.ad.nl/voetbal/koploper-heracles-komt-langszij-hattrick-veerman-heerlijke-halve-omhaal-bij-jong-ajax~ae100be1/)
+  > Negen duels in de Keuken Kampioen Divisie vanavond. Koploper Heracles gaat op bezoek bij NAC Breda, Almere City ontvangt Roda JC. Volg het hier vanaf...
+- [Wattimena na zeven gemiste match darts naar tweede ronde, vanavond ook Michael van Gerwen in actie](https://www.ad.nl/darts/wattimena-na-zeven-gemiste-match-darts-naar-tweede-ronde-vanavond-ook-michael-van-gerwen-in-actie~a9b8aaf4/)
+  > Het EK darts is onderweg! In Dortmund strijden de beste darters voor het felbegeerde Europese kampioenschap, vorig jaar gewonnen door Gian van Veen....
+- [Zo laat komt Max Verstappen in actie tijdens tweede vrije training in Texas](https://www.ad.nl/formule-1/zo-laat-komt-max-verstappen-in-actie-tijdens-tweede-vrije-training-in-texas~ad4a9ec0/)
+  > De Formule 1 maakt de reis naar de andere kant van de wereld. Max Verstappen en zijn collega’s gaan voor de tweede keer dit seizoen naar de Verenigde...
+- [Macron: Slachtoffers schietpartij voorstad Parijs doelwit om geloof en huidskleur](https://www.ad.nl/buitenland/macron-slachtoffers-schietpartij-voorstad-parijs-doelwit-om-geloof-en-huidskleur~abc83f0d/)
+  > De Franse president Emmanuel Macron heeft de dodelijke schietpartij bij Trappes, nabij Parijs, vrijdag een ‘daad van terreur’ genoemd. Ook zei hij...
+- [Sterke start voor Max Verstappen met tweede tijd in Austin, alleen Charles Leclerc fractie sneller](https://www.ad.nl/formule-1/sterke-start-voor-max-verstappen-met-tweede-tijd-in-austin-alleen-charles-leclerc-fractie-sneller~a954dbff/)
+  > Max Verstappen is het raceweekend in Austin goed begonnen met een tweede tijd in de eerste vrije training (1.36,136). Alleen Ferrari-coureur Charles...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Koers Kering daalt met 12% na tegenvallende kwartaalcijfers Gucci](https://fd.nl/financiele-markten/1616566/koers-kering-daalt-met-12-na-tegenvallende-kwartaalcijfers-gucci)
-  > De aandelenkoers van Kering daalde in Parijs met 12% na tegenvallende kwartaalcijfers van Gucci in het derde kwartaal.
-- [Beter chips dan tomaten voor Albert Heijn](https://fd.nl/financiele-markten/1616404/beter-chips-dan-tomaten-voor-albert-heijn)
-  > Om de verloren winst door de hack goed te maken moet Albert Heijn elke week ruim €300.000 extra winst maken. Dat lukt beter met chips dan met tomaten.
-- [Slachtoffers verdienen meer dan een minisorry](https://fd.nl/samenleving/1616397/slachtoffers-verdienen-meer-dan-een-minisorry)
-  > Hoe kunnen instituties het leed van slachtoffers beter erkennen? In de bundel ‘Erkenning na onrecht’ doen specialisten uit verschillende disciplines...
-- [‘Natuurlijk Bibi’: Waarom Netanyahu zijn trouwe kiezers niet kwijtraakt](https://fd.nl/politiek/1616499/natuurlijk-bibi-waarom-netanyahu-zijn-trouwe-kiezers-niet-kwijtraakt)
-  > Oorlogen, politieke schandalen en het falen rond de bloedige Hamas-aanval van 7 oktober: de Israëlische premier Benjamin Netanyahu overleeft de ene...
-- [Nvidia-ceo Jensen Huang lijkt niet in staat om beren op de weg te zien](https://fd.nl/bedrijfsleven/1616485/nvidia-ceo-jensen-huang-lijkt-niet-in-staat-om-beren-op-de-weg-te-zien)
-  > In Berlijn vraagt de oprichter van het waardevolste bedrijf ter wereld Europa om mee te bouwen aan de AI-economie. ‘We moeten een toekomst schetsen...
+- [Gratis software heeft een keerzijde](https://fd.nl/opinie/1616537/gratis-software-heeft-een-keerzijde)
+  > Websites wereldwijd, van ziekenhuizen tot die van overheden, waren voor een groot deel afhankelijk van één persoon die wist hoe hij de updates snel...
+- [Nepal krijgt $20 mln uit VN-klimaatfonds](https://fd.nl/politiek/1616572/nepal-krijgt-20-mln-uit-vn-klimaatfonds)
+  > Het is de eerste toezegging uit het fonds dat de gevolgen van klimaatverandering voor arme landen financieel moet opvangen.
+- [Dreigende escalatie rond de Perzische Golf drijft olie- en gasprijs verder op](https://fd.nl/economie/1616472/dreigende-escalatie-rond-de-perzische-golf-drijft-olie-en-gasprijs-verder-op)
+  > Nervositeit op de mondiale energiemarkten over escalatie van de conflicten in het Midden-Oosten heeft de olie- en gasprijs vrijdag verder doen...
+- [EU versoepelt bankenregels voor doorschuiven van kredietrisico’s](https://fd.nl/economie/1616540/eu-versoepelt-bankenregels-voor-doorschuiven-van-kredietrisicos)
+  > Nieuwe regels uit Brussel maken het voor banken aantrekkelijker de veiligste leningen te verpakken om zo risico’s door te schuiven. Maar critici...
+- [Basf verhoogt bod op Evonik](https://fd.nl/bedrijfsleven/1616571/basf-verhoogt-bod-op-evonik)
+  > De nieuwe bieding van het Duitse chemieconcern op kleinere branchegenoot waardeert Evonik op €11 mrd.
 
 ### Meest gelezen
 
