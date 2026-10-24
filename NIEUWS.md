@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-10-2026 om 20:37*
+*Laatst bijgewerkt: 24-10-2026 om 22:59*
 
 ---
 
@@ -8,6 +8,8 @@
 
 ### Laatste nieuws
 
+- [Zomertijd voorbij: vannacht gaat de klok weer een uur terug](https://nos.nl/l/2636525)
+  > Vannacht om 03.00 uur is de zomertijd voorbij. Dat betekent dat de klok een uur achteruit wordt gezet en de meeste mensen een uurtje langer kunnen...
 - [Bijna 1000 arrestaties in Frankrijk, minister tevreden over verloop protesten](https://nos.nl/l/2636520)
   > De Franse politie heeft vandaag bij betogingen in het hele land bijna duizend mensen opgepakt. Dat heeft de Franse minister van Binnenlandse Zaken...
 - [Kabinet nodigt zeven oppositiepartijen uit voor onderhandelingen belastingplan](https://nos.nl/l/2636518)
@@ -16,8 +18,6 @@
   > Duizenden mensen, onder wie vele journalisten, gingen in Turkije vandaag de straat voor persvrijheid. Journalistenverenigingen en de Nieuwe Partij...
 - [Demonstraties in Europese steden: rellen in Tirana, militairen ingezet in Milaan](https://nos.nl/l/2636510)
   > Hoewel de protesten in Frankrijk internationaal de meeste aandacht krijgen, zijn vandaag ook grote demonstraties geweest in verschillende andere...
-- [Bredase is wereldkampioen tepels tatoeëren: 'Het is zo'n waardevol beroep'](https://nos.nl/l/2636498)
-  > Ze zet tatoeages die bijna niemand als een tattoo herkent. Mariska de Jong uit Breda tatoeëert tepels bij mensen die een borstoperatie hebben gehad....
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Max Verstappen gaat strijd aan om poleposition voor Amerikaanse GP](https://www.ad.nl/formule-1/max-verstappen-gaat-strijd-aan-om-poleposition-voor-amerikaanse-gp~ac40cb2b/)
-  > Max Verstappen verkeert richting het einde van het seizoen in topvorm. De afgelopen twee races schreef de viervoudig wereldkampioen op zijn naam én...
-- [Vermaak in Den Haag: invaller Thomas brengt met aansluitingstreffer spanning terug tegen SC Heerenveen](https://www.ad.nl/voetbal/vermaak-in-den-haag-invaller-thomas-brengt-met-aansluitingstreffer-spanning-terug-tegen-sc-heerenveen~a7061780/)
-  > Kan ADO Den Haag een nederlaag voorkomen tegen SC Heerenveen? De Friezen leiden met 2-3 onder barre omstandigheden. Invaller Nigel Thomas brengt de...
-- [LIVE storm | ADE legt festival anderhalf uur eerder stil door storm Boelo, ook zware windstoten langs de kust](https://www.ad.nl/buitenland/live-storm-ade-legt-festival-anderhalf-uur-eerder-stil-door-storm-boelo-ook-zware-windstoten-langs-de-kust~af8f8f71/)
-  > Het KNMI waarschuwt zaterdagavond- en nacht opnieuw voor zware windstoten in de kustgebieden, het westelijk Waddengebied en de Limburgse heuvels....
-- [LIVE Protesten in Europa | Negen arrestaties na demonstraties in acht Italiaanse steden, meer dan 1000 in Frankrijk](https://www.ad.nl/buitenland/live-protesten-in-europa-negen-arrestaties-na-demonstraties-in-acht-italiaanse-steden-meer-dan-1000-in-frankrijk~ad952e8d/)
-  > Zaterdag vinden er opnieuw grote protesten plaats in grote Europese steden. Van Brussel tot Tirana zijn honderdduizenden mensen de straat op gegaan...
-- [Franse politie vindt boek Mein Kampf in huis van verdachte schietpartij voorsteden Parijs](https://www.ad.nl/buitenland/franse-politie-vindt-boek-mein-kampf-in-huis-van-verdachte-schietpartij-voorsteden-parijs~a0f70391/)
-  > De Franse politie heeft in de woning van de schutter in Trappes een exemplaar van Mein Kampf gevonden, het boek waarin Adolf Hitler zijn racistische...
+- [Max Verstappen grijpt naast derde pole op rij, Kimi Antonelli vanaf pole op jacht naar eerste wereldtitel](https://www.ad.nl/formule-1/max-verstappen-grijpt-naast-derde-pole-op-rij-kimi-antonelli-vanaf-pole-op-jacht-naar-eerste-wereldtitel~ac40cb2b/)
+  > Max Verstappen heeft op het Circuit of the Americas naast zijn derde poleposition op rij gegrepen. Het is zondag (21.00 uur Nederlandse tijd)...
+- [UFC 333: Volkanovski domineert ongeslagen opponent, Yan maakt comeback om van te dromen](https://www.ad.nl/vechtsport/ufc-333-volkanovski-domineert-ongeslagen-opponent-yan-maakt-comeback-om-van-te-dromen~ac92fe2f/)
+  > Alexander Volkanovski heeft opnieuw zijn vedergewichttitel verdedigd. De Australische topvechter won in de hoofdpartij van UFC 333 in Abu Dhabi van...
+- [Live VS | President Trump brengt vervroegde stem uit voor midterm-verkiezingen in thuisstaat Florida](https://www.ad.nl/buitenland/live-vs-president-trump-brengt-vervroegde-stem-uit-voor-midterm-verkiezingen-in-thuisstaat-florida~ae67dd9c/)
+  > President Trump heeft zijn stem uitgebracht voor de midterm-verkiezingen. Die vinden pas op 3 november plaats, maar Trump heeft al vervroegd zijn...
+- [ADO trekt onder barre omstandigheden aan kortste eind in vermakelijk duel met Heerenveen](https://www.ad.nl/voetbal/ado-trekt-onder-barre-omstandigheden-aan-kortste-eind-in-vermakelijk-duel-met-heerenveen~a7061780/)
+  > ADO Den Haag en SC Heerenveen zorgden onder barre omstandigheden met harde wind en veel regen voor vermaak in de eredivisie. De Friezen gingen er met...
+- [Israëlische strijdkrachten verdrijven duizenden inwoners uit Palestijnse stad na schietpartij](https://www.ad.nl/buitenland/israelische-strijdkrachten-verdrijven-duizenden-inwoners-uit-palestijnse-stad-na-schietpartij~ac528ac3/)
+  > Israël heeft 2000 Palestijnse burgers verdreven uit de stad Hebron. De Israëlische minister van Defensie zei dat die burgers niet mogen terugkeren...
 
 ### Meest gelezen
 
