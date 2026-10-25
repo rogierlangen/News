@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-10-2026 om 13:03*
+*Laatst bijgewerkt: 25-10-2026 om 17:30*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Gordels in aantal achtbanen VS na dodelijk ongeluk](https://nos.nl/l/2636588)
-  > Pretparkbedrijf Six Flags gaat veiligheidsgordels aanbrengen in drie achtbanen die in attractieparken van het bedrijf staan. Een van die achtbanen is...
-- [Zinkgaten in Rotterdam Crooswijk door ondergrondse lekkage](https://nos.nl/l/2636586)
-  > In de Rotterdamse wijk Crooswijk zijn op meerdere plekken zinkgaten in stoepen en straten ontstaan door een waterlek onder de grond. Volgens de...
-- [Libris Geschiedenis Prijs 2026 naar Maite Karssenberg voor boek Dubbelleven](https://nos.nl/l/2636584)
-  > Schrijver Maite Karssenberg krijgt de Libris Geschiedenis Prijs voor haar biografie Dubbelleven. Geertruida Kapteyn-Muysken en haar rebelse...
-- [Japanse justitie vervolgt Amerikaanse militair voor moord 39-jarige vrouw](https://nos.nl/l/2636583)
-  > Een Amerikaanse militair wordt officieel aangeklaagd voor moord en beroving van een vrouw op Okinawa. De vrouw zou zijn gewurgd met een...
-- [Groepen minderjarigen waren doelbewust uit op onrust en geweld, zegt Walibi](https://nos.nl/l/2636582)
-  > De ongeregeldheden in attractiepark Walibi tijdens de Fright Nights zijn volgens Walibi veroorzaakt door jongeren die bewust als doel hadden om...
+- [Artsen vrezen dat verzorgster Beekse Bergen panteraanval niet zal overleven](https://nos.nl/l/2636641)
+  > De situatie van de verzorgster van safaripark Beekse Bergen, die gisteren ernstig gewond raakte door een panteraanval, is verslechterd. Een...
+- [Stormachtig weer trekt weg, komende week kalm herfstweer](https://nos.nl/l/2636624)
+  > Dit weekend was de herfst in full swing aanwezig. Maar liefst twee stormen die een naam hadden gekregen zorgden voor kletsnat en onstuimig weer....
+- [Oppositieleider María Corina Machado terug in Venezuela](https://nos.nl/l/2636622)
+  > De Venezolaanse oppositieleider María Corina Machado is teruggekeerd in Venezuela. Dat schrijft ze op X.
+        "Ik ben hier. Bij jullie", schrijft...
+- [Gadi Eisenkot: de generaal die politicus werd en daarna Netanyahu's grootste uitdager](https://nos.nl/l/2636617)
+  > Hij zou zomaar eens de nieuwe premier van Israël kunnen worden, Gadi Eisenkot. Ondanks dat zijn partij Yashar pas een jaar oud is, is hij de grote...
+- [Vrouw zwaargewond na mishandeling tijdens feest in Amsterdam](https://nos.nl/l/2636610)
+  > In Amsterdam is gisterochtend vroeg een vrouw zwaar mishandeld bij een ruzie. Dat meldt de politie. De vrouw raakte zwaargewond en is naar het...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Staatssecretaris Derk Boswijk wilde beroepsmilitair worden, maar was niet welkom: ‘Ik was zó boos en teleurgesteld’](https://www.ad.nl/mezza/staatssecretaris-derk-boswijk-wilde-beroepsmilitair-worden-maar-was-niet-welkom-ik-was-zo-boos-en-teleurgesteld~a2686aff/)
-  > Als puber wil hij beroepsmilitair worden. Maar de krijgsmacht prikt die droom door: hij is niet welkom. Nu is CDA’er Derk Boswijk staatssecretaris...
-- [Captain Fernandes na kritiek op coach gepasseerd bij Manchester United](https://www.ad.nl/voetbal/captain-fernandes-na-kritiek-op-coach-gepasseerd-bij-manchester-united~a23c2230/)
-  > Manchester United worstelt ook dit jaar weer. Michael Carrick moet nu al vrezen voor zijn baan. Vandaag ontvangt hij Bournemouth. Tegelijkertijd...
-- [‘Break-up season’ slaat toe bij influencer Julia Koopman, dokter Rossi uit Gooische Vrouwen weet zich geen raad](https://www.ad.nl/show/break-up-season-slaat-toe-bij-influencer-julia-koopman-dokter-rossi-uit-gooische-vrouwen-weet-zich-geen-raad~a5256ed5/)
-  > Influencer Julia Koopman (29) trekt momenteel de aandacht op Instagram met een opvallende video. Terwijl de Nederlandse showbizz gebukt gaat onder...
-- [Camera toont succesvolle aanval wolf op hert, confronterend voor kijkers](https://www.ad.nl/binnenland/camera-toont-succesvolle-aanval-wolf-op-hert-confronterend-voor-kijkers~aeb62375/)
-  > Het is voor veel kijkers even slikken: beelden waarop een wolf een vrouwelijk hert bejaagt en uiteindelijk ook doodt. De aanval is op te zien op...
-- [Boelo is eerste officiële herfststorm van het jaar, Schiphol annuleert vluchten](https://www.ad.nl/binnenland/boelo-is-eerste-officiele-herfststorm-van-het-jaar-schiphol-annuleert-vluchten~af8f8f71/)
-  > Storm Boelo is officieel de eerste herfststorm van dit jaar. Op Vlieland kwam het tussen 11.00 en 12.00 uur tot een gemiddelde windkracht 9. Ook in...
+- [Kan Griekspoor het verschil maken in spannende derde set van finale European Open?](https://www.ad.nl/tennis/kan-griekspoor-het-verschil-maken-in-spannende-derde-set-van-finale-european-open~ac5196e90/)
+  > Tallon Griekspoor hoopt vandaag voor de vierde keer in zijn loopbaan een ATP-titel te winnen. De Nederlander neemt het in de finale van de European...
+- [Alle hens aan dek bij Ajax, Sparta jaagt op late gelijkmaker op Het Kasteel](https://www.ad.nl/voetbal/alle-hens-aan-dek-bij-ajax-sparta-jaagt-op-late-gelijkmaker-op-het-kasteel~a7058a0d/)
+  > Ajax won vorige week met 2-5 van FC Groningen en donderdag rekende de ploeg van trainer Míchel in de Conference League af met Atalanta (2-0). Nu gaan...
+- [Fraaie goal als jubilaris: Jens Toornstra eerste speler sinds 2009 die op 500 wedstrijden in de eredivisie komt](https://www.ad.nl/voetbal/fraaie-goal-als-jubilaris-jens-toornstra-eerste-speler-sinds-2009-die-op-500-wedstrijden-in-de-eredivisie-komt~a4d755ca/)
+  > Jens Toornstra is sinds zondag de elfde speler met 500 wedstrijden in de eredivisie achter zijn naam. De 37-jarige middenvelder uit Ter Aar deed bij...
+- [Van klimaatgrap tot keiharde sneer: waarom de protestleuzen van jongeren zo viraal gaan](https://www.ad.nl/buitenland/van-klimaatgrap-tot-keiharde-sneer-waarom-de-protestleuzen-van-jongeren-zo-viraal-gaan~accd6fc5/)
+  > In verschillende steden in Europa gaan vooral jongeren de straat op om te protesteren tegen woningnood, hoge prijzen en het verval van het onderwijs....
+- [PSV-Feyenoord op rapport | Hoogste cijfer voor Anis Hadj Moussa, twee onvoldoendes na topper](https://www.ad.nl/voetbal/psv-feyenoord-op-rapport-hoogste-cijfer-voor-anis-hadj-moussa-twee-onvoldoendes-na-topper~afdb9a78/)
+  > PSV en Feyenoord speelden in een boeiende topper met 1-1 gelijk. Wie waren de uitblinkers in Eindhoven en welke spelers vielen tegen? Dit zijn de...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Een bijbaantje als rechter is verre van lucratief](https://fd.nl/financiele-markten/1616398/een-bijbaantje-als-rechter-is-verre-van-lucratief)
-  > Het tekort aan rechters houdt aan. De lage vergoeding zou advocaten, oud-rechters en andere juristen ontmoedigen om als plaatsvervanger te hulp te...
-- [Audi bezorgt Trump steuntje in de rug met belofte van miljardeninvestering](https://fd.nl/bedrijfsleven/1616779/audi-bezorgt-trump-steuntje-in-de-rug-met-belofte-van-miljardeninvestering)
-  > Duitse autofabrikant kondigt samen met Amerikaanse president de bouw van nieuwe fabriek in Georgia aan. De Volkswagen Group, moeder van Audi, moet...
-- [AI jaagt bedrijvigheid in de cybersecurity aan](https://fd.nl/tech-en-innovatie/1616468/ai-jaagt-bedrijvigheid-in-de-cybersecurity-aan)
-  > AI vergroot het risico op cybercrises als de recente PHP-lekken. Maar tegelijkertijd is het ook de basis voor vernieuwende start-ups in de...
-- [Noors boorplatform zinkt voor kust Gabon, vijf opvarenden vermist](https://fd.nl/bedrijfsleven/1616602/noors-boorplatform-zinkt-voor-kust-gabon-vijf-opvarenden-vermist)
-  > Het nabijgelegen productieplatform MaBoMo is niet beschadigd door het ongeluk.
-- [Bonnetjesfraude met AI: zo gepleegd maar lastig om te ontdekken](https://fd.nl/bedrijfsleven/1616441/fraude-met-bonnetjes-is-kinderspel-met-hulp-ai-en-moeilijk-te-ontdekken)
-  > Het aanpassen of namaken van declaraties of documenten is met generatieve AI veel makkelijker en bovendien moeilijker om op te sporen.
+- [Oppositieleider Maria Corina Machado terug in Venezuela](https://fd.nl/politiek/1616604/oppositieleider-maria-corina-machado-terug-in-venezuela)
+  > Bijna een jaar geleden vertrok Machado uit het Zuid-Amerikaanse land om gedurende die periode geen stap meer in het land te zetten. Haar terugkeer...
+- [Tanker stuurloos boven Schiermonninkoog](https://fd.nl/samenleving/1616603/tanker-stuurloos-boven-schiermonninkoog)
+  > Aan boord zijn meerdere gewonden. De KNRM zet meerdere reddingsboten in om te helpen.
+- [Politie Portugal stopt woonprotesten in het land met de ergste huizencrisis in de EU](https://fd.nl/samenleving/1616780/politie-portugal-stopt-woonprotesten-in-het-land-met-de-ergste-huizencrisis-in-de-eu)
+  > Volgens cijfers van de Oeso is 19% van de Portugese huizen niet beschikbaar voor woningzoekenden, omdat ze worden gebruikt als tweede woning of voor...
+- [Omvang verlies verrast personeel Volvo Cars in Göteborg: ‘Volgens mij doen we de juiste dingen’](https://fd.nl/bedrijfsleven/1616567/omvang-verlies-verrast-personeel-volvo-cars-reorganisatie-niet)
+  > Opnieuw moet Volvo Cars bezuinigen. Medewerkers zagen vrijdag de beurskoers met een kwart dalen en hebben begrip. ‘Ik denk dat we nog best goed...
+- [Hoe schaduwbanken buiten het zicht van toezichthouders blijven](https://fd.nl/bedrijfsleven/1616475/hoe-schaduwbanken-buiten-het-zicht-van-toezichthouders-blijven)
+  > Schaduwbanken verlenen meer dan de helft van het wereldwijde krediet, maar weten zich buiten veel toezicht te houden. Dat concludeert onderzoeker...
 
 ### Meest gelezen
 
