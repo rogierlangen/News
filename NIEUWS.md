@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-10-2026 om 01:01*
+*Laatst bijgewerkt: 25-10-2026 om 07:25*
 
 ---
 
@@ -8,17 +8,18 @@
 
 ### Laatste nieuws
 
-- [Op verschillende plekken overlast door harde wind](https://nos.nl/l/2636535)
-  > De harde wind heeft gisteravond en vannacht op verschillende plekken geleid tot schade of overlast, vooral door omgevallen bomen.
-        In...
-- [Musk: Oekraïne schond voorwaarden van satellietsysteem Starlink](https://nos.nl/l/2636534)
-  > Elon Musk zegt dat het Oekraïense leger de gebruiksvoorwaarden van Starlink heeft geschonden. Op zijn sociale mediaplatform X schrijft hij dat het...
-- [Zomertijd voorbij: vannacht is de klok weer een uur teruggegaan](https://nos.nl/l/2636525)
-  > Vannacht is de zomertijd ingegaan. Dat betekent dat de klok een uur achteruit is gezet en de meeste mensen een uurtje langer kunnen slapen. In de...
-- [Bijna 1000 arrestaties in Frankrijk, minister tevreden over verloop protesten](https://nos.nl/l/2636520)
-  > De Franse politie heeft vandaag bij betogingen in het hele land bijna duizend mensen opgepakt. Dat heeft de Franse minister van Binnenlandse Zaken...
-- [Kabinet nodigt zeven oppositiepartijen uit voor onderhandelingen belastingplan](https://nos.nl/l/2636518)
-  > Het kabinet heeft afspraken gemaakt over hoe het de oppositie tegemoet wil komen en nodigt komende week zeven partijen uit om verder te onderhandelen...
+- [Auto's van handhavers Waalwijk uitgebrand, politie onderzoekt brandstichting](https://nos.nl/l/2636546)
+  > Bij het gemeentehuis in Waalwijk zijn drie auto's van handhavers uitgebrand. De politie houdt rekening met opzet, schrijft Omroep Brabant.
+        De...
+- [Artsen kritisch op longcovidbeleid minister Hermans: 'Funest voor patiëntvertrouwen'](https://nos.nl/l/2636540)
+  > Huisartsen, medisch specialisten en wetenschappers kraken de plannen van zorgminister Sophie Hermans voor patiënten met long covid en soortgelijke...
+- [Servische studenten dagen Vucic uit bij spannendste parlementsverkiezingen in jaren](https://nos.nl/l/2636539)
+  > Maken studenten in Servië een einde aan twaalf jaar heerschappij van de autocratische leider Aleksandar Vucic? Om die vraag draait het vandaag bij de...
+- [Wekdienst 25/10: Le Pen lanceert presidentscampagne Frankrijk • PSV-Feyenoord in eredivisie](https://nos.nl/l/2636538)
+  > Goedemorgen! Vannacht is de wintertijd ingegaan. De klok ging een uur achteruit en de meeste mensen hebben een uurtje langer kunnen slapen.
+       ...
+- [Duizenden Israëliërs eisen onderzoek naar 7 oktober, daags voor verkiezingen](https://nos.nl/l/2636537)
+  > In de Israëlische stad Tel Aviv hebben duizenden mensen zaterdagavond, drie dagen voor de Israëlische verkiezingen, gedemonstreerd tegen de regering...
 
 ### Meest gelezen
 
@@ -28,16 +29,16 @@
 
 ### Laatste nieuws
 
-- [Musk: Oekraïne hield zich niet aan voorwaarden Starlink, heeft drones gebruikt om mensen te doden’](https://www.ad.nl/buitenland/musk-oekraine-hield-zich-niet-aan-voorwaarden-starlink-heeft-drones-gebruikt-om-mensen-te-doden~adfb97be/)
-  > Oekraïne heeft zich niet aan de voorwaarden gehouden om Starlink te mogen gebruiken en drones gebruikt om mensen te doden. Dat zegt Elon Musk, topman...
-- [Seedorf eindelijk ‘echt’ als trainer op de bank, maar Corinthians verliest opnieuw na knotsgekke slotfase](https://www.ad.nl/sport/seedorf-eindelijk-echt-als-trainer-op-de-bank-maar-corinthians-verliest-opnieuw-na-knotsgekke-slotfase~acb177bc/)
-  > Eindelijk mocht Clarence Seedorf als trainer van Corinthians zaterdagavond voor het eerst officieel in de dug-out zitten en zich langs de lijn...
-- [‘Kangoeroe’ Max Verstappen nodigt circuitbaas uit in zijn auto te rijden: ‘Kan hij daarna niet meer lopen’](https://www.ad.nl/formule-1/kangoeroe-max-verstappen-nodigt-circuitbaas-uit-in-zijn-auto-te-rijden-kan-hij-daarna-niet-meer-lopen~a563b4be/)
-  > Max Verstappen die niet tevreden is met P2. Zo kennen we de viervoudig wereldkampioen weer. Met pijnstilling tegen de hobbels stuiterde de...
-- [Politie grijpt in bij vechtpartijen tijdens Walibi Fright Nights, Mobiele Eenheid ingezet](https://www.ad.nl/binnenland/politie-grijpt-in-bij-vechtpartijen-tijdens-walibi-fright-nights-mobiele-eenheid-ingezet~a5db227d/)
-  > Een flinke politiemacht moest zaterdagavond ingrijpen bij Walibi Fright Night nadat meerdere vechtpartijen waren uitgebroken. De mobiele eenheid (ME)...
-- [Max Verstappen grijpt naast derde pole op rij, Kimi Antonelli vanaf pole op jacht naar eerste wereldtitel](https://www.ad.nl/formule-1/max-verstappen-grijpt-naast-derde-pole-op-rij-kimi-antonelli-vanaf-pole-op-jacht-naar-eerste-wereldtitel~ac40cb2b/)
-  > Max Verstappen heeft op het Circuit of the Americas naast zijn derde poleposition op rij gegrepen. Het is zondag (21.00 uur Nederlandse tijd)...
+- [Rob Kemps kreeg vlak voor droomreis slecht nieuws over moeder: ‘Wisten dat we haar misschien niet meer zouden zien’](https://www.ad.nl/show/rob-kemps-kreeg-vlak-voor-droomreis-slecht-nieuws-over-moeder-wisten-dat-we-haar-misschien-niet-meer-zouden-zien~a5acb65d/)
+  > Rob Kemps (40) reisde ruim 14.000 kilometer om een bezoek te brengen aan het graf van Jacques Brel, terwijl zijn moeder in een hospice lag. In zijn...
+- [Machtige Jens van ‘t Wout grijpt twee keer goud in Vancouver, zilver voor Xandra Velzeboer](https://www.ad.nl/schaatsen/machtige-jens-van-t-wout-grijpt-twee-keer-goud-in-vancouver-zilver-voor-xandra-velzeboer~afffc95e3/)
+  > Jens van ‘t Wout heeft bij de eerste wedstrijd in de World Tour shorttrack in Vancouver zondagnacht twee keer goud gewonnen. De Nederlander was op de...
+- [Max Verstappen was afgelopen jaren heel succesvol in Texas: dit is de startopstelling en zo laat begint de race](https://www.ad.nl/formule-1/max-verstappen-was-afgelopen-jaren-heel-succesvol-in-texas-dit-is-de-startopstelling-en-zo-laat-begint-de-race~ab607a78/)
+  > De Formule 1 is weer teruggekeerd in de Verenigde Staten. Voor de derde keer dit jaar wordt er gereden in Noord-Amerika. Zo laat komt Max Verstappen...
+- [Ik mag niet naar buiten, ik moet leren](https://www.ad.nl/mezza/ik-mag-niet-naar-buiten-ik-moet-leren~a9343986/)
+  > Het stampen wordt er niet makkelijker op, als je vijfenvijftig bent, merkt Beau. Lees in zijn column uit ons weekendmagazine Mezza hoe hij zich...
+- [PSV ligt niet wakker van mogelijkheid dat Feyenoord wegloopt in eredivisie](https://www.ad.nl/voetbal/psv-ligt-niet-wakker-van-mogelijkheid-dat-feyenoord-wegloopt-in-eredivisie~aba3ed3f/)
+  > PSV moet Feyenoord in de kraker kloppen om het gat met de koploper weer nagenoeg te dichten. De Rotterdammers voelen juist dat er een unieke kans...
 
 ### Meest gelezen
 
@@ -47,16 +48,16 @@
 
 ### Laatste nieuws
 
+- [VVD’s claim op stabiliteit maakt kabinet wankel](https://fd.nl/opinie/1616227/vvds-claim-op-stabiliteit-maakt-kabinet-wankel)
+  > VVD-leider Yeşilgöz gebruikt sterke beelden en woorden om volwassen en veilig leiderschap te claimen. Maar wie volwassen politiek predikt, moet ook...
+- [VS richting stemhokje: gaat Texas voor het eerst sinds 1988 naar de Democraten?](https://fd.nl/politiek/1616437/vs-richting-stemhokje-gaat-texas-voor-het-eerst-sinds-1988-naar-de-democraten)
+  > Amerikanen stemmen 3 november over een nieuw Congres. Onder meer in Maine en Ohio wordt het spannend. Een overzicht van de staten en districten waar...
+- [Wie de wereld wil veroveren, maakt snel een foto van de slides](https://fd.nl/bedrijfsleven/1616400/wie-de-wereld-wil-veroveren-maakt-snel-een-foto-van-de-slides)
+  > Ontwikkelaars en architecten op de Dutch Designweek verlangen naar internationaal succes. ‘Die doodskist van mycelium wordt nu overal verkocht.’
+- [‘Toen ik kanker kreeg, móest ik mezelf vervangbaar maken’](https://fd.nl/samenleving/1616492/toen-ik-kanker-kreeg-moest-ik-mezelf-vervangbaar-maken)
+  > Ondernemer Anouk Binkhuysen werd door ziekte gedwongen het roer om te gooien. Zodat, in het ergste geval, het bedrijf zonder haar kon voortbestaan.
 - [Fransen opnieuw de straat op onder massale politieaanwezigheid](https://fd.nl/politiek/1616776/fransen-opnieuw-de-straat-op-onder-massale-politieaanwezigheid)
   > Zo’n 70.000 politieagenten zien toe op het voorkomen van de rellen, plunderingen en vernielingen.
-- [Wat gebeurt er nu bij jou?](https://fd.nl/opinie/1615851/wat-gebeurt-er-nu-bij-jou)
-  > In de docu De manager worden managers gefilmd die functioneringsgesprekken voeren of getraind worden in het leidinggeven. Saillant is dat het vrijwel...
-- [Starlink werkt weer voor Oekraïne, meldt minister van defensie](https://fd.nl/politiek/1616686/starlink-werkt-weer-voor-oekraine-meldt-minister-van-defensie)
-  > De beperkingen beperkten volgens Oekraïense functionarissen het vermogen om Russische aanvalsdrones te onderscheppen. Ook werd de communicatie aan...
-- [‘Anthropic broedt op eigen Europese consultancyfirma’](https://fd.nl/bedrijfsleven/1616579/anthropic-broedt-op-eigen-europese-consultancyfirma)
-  > AI-ontwikkelaars staan onder druk om meer inkomsten te genereren. Ze begeven zich daarom op het terrein van klassieke advieskantoren zoals Accenture,...
-- [Moody’s houdt Franse kredietbeoordeling onveranderd](https://fd.nl/economie/1616685/moodys-houdt-franse-kredietbeoordeling-onveranderd)
-  > Een meevaller voor president Macron, die geplaagd wordt door stijgende rentes, een politieke impasse, een hoog begrotingstekort, een hoge...
 
 ### Meest gelezen
 
