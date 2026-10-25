@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-10-2026 om 20:36*
+*Laatst bijgewerkt: 25-10-2026 om 23:05*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
+- [Sven Kockelmann (56) wint Sonja Barend Award voor interview met oud-premier Schoof](https://nos.nl/l/2636679)
+  > Sven Kockelmann (56) heeft de Sonja Barend Award gewonnen. De journalist wint de prijs voor zijn interview met oud-premier Schoof.
+        BNNVARA,...
+- [Stembureaus Brazilië twee uur langer open na ingrijpen Hooggerechtshof](https://nos.nl/l/2636672)
+  > De stemlokalen in Brazilië blijven vandaag twee uur langer open voor de beslissende ronde van de presidentsverkiezingen, heeft het Hooggerechtshof...
+- [Afgetreden president Vucic erkent nederlaag: studentenbeweging wint verkiezingen Servië](https://nos.nl/l/2636669)
+  > De Studentenlijst in Servië heeft de meeste stemmen behaald in de parlementsverkiezingen. Dat zegt voormalig president Vucic op basis van een...
+- [Pro-Russische presidentskandidaat Bulgarije aan kop na eerste verkiezingsronde](https://nos.nl/l/2636668)
+  > De gematigd pro-Russische president Iliana Jotova van Bulgarije heeft volgens de exitpolls de meeste stemmen gekregen in de eerste ronde van de...
 - [Zoekactie naar watersporter bij Scheveningen stilgelegd vanwege duisternis](https://nos.nl/l/2636664)
   > Rond Scheveningen en Kijkduin is een grote zoekactie geweest naar een vermiste watersporter. Het gaat vermoedelijk om een surfer of kiter. De...
-- [Vrouw dood gevonden in appartement Eindhoven, man aangehouden](https://nos.nl/l/2636663)
-  > In een appartement in Eindhoven is vanmiddag een vrouw onder verdachte omstandigheden dood aangetroffen. Een man die wordt verdacht van betrokkenheid...
-- [Goedkoper en meer controle: bedrijven kijken met interesse naar Chinese AI](https://nos.nl/l/2636658)
-  > Wat als je AI goedkoper kunt gebruiken én je de controle houdt over de informatie die je deelt? Bedrijven en organisaties die werken met...
-- [Stuurloos geraakt vrachtschip in Noordzee vaart weer, reddingsboten keren om](https://nos.nl/l/2636654)
-  > Het zware vrachtschip UHL Freedom, dat vanmiddag vrijwel stuurloos raakte ten noorden van Schiermonnikoog, vaart weer. Dat gebeurt met "beperkt...
-- [Audi bouwt eerste fabriek in Verenigde Staten, kritiek vanuit Duitsland](https://nos.nl/l/2636652)
-  > De Duitse autofabrikant Audi gaat voor 4 miljard dollar (3,6 miljard euro) een nieuwe fabriek bouwen in de staat Georgia en daarmee voor het eerst...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Luke Littler verrassend uitgeschakeld, Ross Smith en Martin Schindler spelen de finale](https://www.ad.nl/darts/luke-littler-verrassend-uitgeschakeld-ross-smith-en-martin-schindler-spelen-de-finale~ab915a3c/)
-  > Het EK darts is begonnen aan de finaledag zonder Nederlanders. Jermaine Wattimena en Kevin Doets werden zaterdag als laatste landgenoten...
-- [Verstappen kiest voor vroege pitstop in Texas, op titel azende Antonelli aan de leiding](https://www.ad.nl/formule-1/verstappen-kiest-voor-vroege-pitstop-in-texas-op-titel-azende-antonelli-aan-de-leiding~a901543f/)
-  > Max Verstappen verkeert richting het einde van het seizoen in supervorm. Na zijn overwinningen in Maleisië en Singapore gaat de Red Bull-coureur in...
-- [LIVE Oorlog Oekraïne | Zelensky verwacht ontmoeting met VS en Rusland in november: ‘Bereid om te praten’](https://www.ad.nl/buitenland/live-oorlog-oekraine-zelensky-verwacht-ontmoeting-met-vs-en-rusland-in-november-bereid-om-te-praten~adfb97be/)
-  > De Oekraïense president Zelensky heeft zondag gezegd dat er in november een ontmoeting zal plaatsvinden tussen Oekraïne, de VS en Rusland, met als...
-- [Barcelona en Real Madrid houden elkaar in evenwicht in intense El Clásico](https://www.ad.nl/voetbal/barcelona-en-real-madrid-houden-elkaar-in-evenwicht-in-intense-el-clasico~af7f14aa/)
-  > Een heerlijk affiche om de zondag mee af te sluiten: het wervelende FC Barcelona speelt in eigen huis tegen aartsrivaal Real Madrid. De thuisclub zet...
-- [Ik wil geen wereld waar straks bijna niemand meer iets weet of kan, is dat zo vreemd?](https://www.ad.nl/binnenland/ik-wil-geen-wereld-waar-straks-bijna-niemand-meer-iets-weet-of-kan-is-dat-zo-vreemd~a94e00dc/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Spanning terug in Spanje: Kylian Mbappé beslist El Clásico bij rentree Frenkie de Jong](https://www.ad.nl/voetbal/spanning-terug-in-spanje-kylian-mbappe-beslist-el-clasico-bij-rentree-frenkie-de-jong~af7f14aa/)
+  > Kylian Mbappé heeft Real Madrid zondagavond aan een zwaarbevochten zege geholpen in El Clásico. De Franse sterspeler zette De Koninklijke voor rust...
+- [Dit moet Kimi Antonelli doen om volgend weekend wereldtitel te pakken in Mexico](https://www.ad.nl/formule-1/dit-moet-kimi-antonelli-doen-om-volgend-weekend-wereldtitel-te-pakken-in-mexico~a8a75660/)
+  > Kimi Antonelli heeft zijn allereerste wereldtitel in de Formule 1 nog niet definitief binnen. De 20-jarige Italiaan won weliswaar de Grand Prix van...
+- [Ross Smith wint finale van Martin Schindler en pakt voor de tweede keer in zijn carrière de EK-titel](https://www.ad.nl/darts/ross-smith-wint-finale-van-martin-schindler-en-pakt-voor-de-tweede-keer-in-zijn-carriere-de-ek-titel~ab915a3c/)
+  > Ross Smith heeft het EK Darts voor de tweede keer in zijn carrière gewonnen. De Engelsman  versloeg de Duitser Martin Schindler in de finale met...
+- [Mopperende Max Verstappen pakt maximale met derde plaats, Antonelli (nog) nét niet kampioen](https://www.ad.nl/formule-1/mopperende-max-verstappen-pakt-maximale-met-derde-plaats-antonelli-nog-net-niet-kampioen~a901543f/)
+  > Kimi Antonelli is nog niet de jongste Formule 1-kampioen ooit. De Italiaan deed zelf wat hij moest doen: de Grand Prix van de Verenigde Staten...
+- [Interview met vertrekkend premier Schoof levert Sven Kockelmann eerste Sonja Barend Award op](https://www.ad.nl/show/interview-met-vertrekkend-premier-schoof-levert-sven-kockelmann-eerste-sonja-barend-award-op~a302399f/)
+  > De Sonja Barend Award, de prijs voor het beste interview van het afgelopen tv-seizoen, is dit jaar gewonnen door Sven Kockelmann. De presentator...
 
 ### Meest gelezen
 
@@ -46,6 +47,8 @@
 
 ### Laatste nieuws
 
+- [Servische leider Vučić geeft verkiezingsnederlaag toe, studenten stevenen af op winst](https://fd.nl/politiek/1616607/servische-leider-vucic-geeft-verkiezingsnederlaag-toe-studenten-stevenen-af-op-winst)
+  > Een nederlaag van Vučić zou betekenen dat een studentenprotestbeweging voor het eerst erin is geslaagd een autoritaire leider via de stembus te...
 - [Verkoop van Robin Radar vergt duidelijkheid uit Den Haag](https://fd.nl/opinie/1616469/verkoop-van-robin-radar-vergt-duidelijkheid-uit-den-haag)
   > Bedrijven die een rol spelen bij de nationale veiligheid, kunnen niet zonder toestemming van de overheid van eigenaar wisselen. Een verstandige...
 - [Oppositieleider Maria Corina Machado terug in Venezuela](https://fd.nl/politiek/1616604/oppositieleider-maria-corina-machado-terug-in-venezuela)
@@ -54,8 +57,6 @@
   > Er vielen drie gewonden. De KNRM zette meerdere reddingsboten in om te helpen.
 - [Politie Portugal beëindigt woonprotesten in het land met de ergste huizencrisis in de EU](https://fd.nl/samenleving/1616780/politie-portugal-stopt-woonprotesten-in-het-land-met-de-ergste-huizencrisis-in-de-eu)
   > Volgens cijfers van de Oeso is 19% van de Portugese huizen niet beschikbaar voor woningzoekenden, omdat ze worden gebruikt als tweede woning of voor...
-- [Omvang verlies verrast personeel Volvo Cars in Göteborg: ‘Volgens mij doen we de juiste dingen’](https://fd.nl/bedrijfsleven/1616567/omvang-verlies-verrast-personeel-volvo-cars-reorganisatie-niet)
-  > Opnieuw moet Volvo Cars bezuinigen. Medewerkers zagen vrijdag de beurskoers met een kwart dalen en hebben begrip. ‘Ik denk dat we nog best goed...
 
 ### Meest gelezen
 
