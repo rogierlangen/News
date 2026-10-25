@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-10-2026 om 17:30*
+*Laatst bijgewerkt: 25-10-2026 om 20:36*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Artsen vrezen dat verzorgster Beekse Bergen panteraanval niet zal overleven](https://nos.nl/l/2636641)
-  > De situatie van de verzorgster van safaripark Beekse Bergen, die gisteren ernstig gewond raakte door een panteraanval, is verslechterd. Een...
-- [Stormachtig weer trekt weg, komende week kalm herfstweer](https://nos.nl/l/2636624)
-  > Dit weekend was de herfst in full swing aanwezig. Maar liefst twee stormen die een naam hadden gekregen zorgden voor kletsnat en onstuimig weer....
-- [Oppositieleider María Corina Machado terug in Venezuela](https://nos.nl/l/2636622)
-  > De Venezolaanse oppositieleider María Corina Machado is teruggekeerd in Venezuela. Dat schrijft ze op X.
-        "Ik ben hier. Bij jullie", schrijft...
-- [Gadi Eisenkot: de generaal die politicus werd en daarna Netanyahu's grootste uitdager](https://nos.nl/l/2636617)
-  > Hij zou zomaar eens de nieuwe premier van Israël kunnen worden, Gadi Eisenkot. Ondanks dat zijn partij Yashar pas een jaar oud is, is hij de grote...
-- [Vrouw zwaargewond na mishandeling tijdens feest in Amsterdam](https://nos.nl/l/2636610)
-  > In Amsterdam is gisterochtend vroeg een vrouw zwaar mishandeld bij een ruzie. Dat meldt de politie. De vrouw raakte zwaargewond en is naar het...
+- [Zoekactie naar watersporter bij Scheveningen stilgelegd vanwege duisternis](https://nos.nl/l/2636664)
+  > Rond Scheveningen en Kijkduin is een grote zoekactie geweest naar een vermiste watersporter. Het gaat vermoedelijk om een surfer of kiter. De...
+- [Vrouw dood gevonden in appartement Eindhoven, man aangehouden](https://nos.nl/l/2636663)
+  > In een appartement in Eindhoven is vanmiddag een vrouw onder verdachte omstandigheden dood aangetroffen. Een man die wordt verdacht van betrokkenheid...
+- [Goedkoper en meer controle: bedrijven kijken met interesse naar Chinese AI](https://nos.nl/l/2636658)
+  > Wat als je AI goedkoper kunt gebruiken én je de controle houdt over de informatie die je deelt? Bedrijven en organisaties die werken met...
+- [Stuurloos geraakt vrachtschip in Noordzee vaart weer, reddingsboten keren om](https://nos.nl/l/2636654)
+  > Het zware vrachtschip UHL Freedom, dat vanmiddag vrijwel stuurloos raakte ten noorden van Schiermonnikoog, vaart weer. Dat gebeurt met "beperkt...
+- [Audi bouwt eerste fabriek in Verenigde Staten, kritiek vanuit Duitsland](https://nos.nl/l/2636652)
+  > De Duitse autofabrikant Audi gaat voor 4 miljard dollar (3,6 miljard euro) een nieuwe fabriek bouwen in de staat Georgia en daarmee voor het eerst...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Kan Griekspoor het verschil maken in spannende derde set van finale European Open?](https://www.ad.nl/tennis/kan-griekspoor-het-verschil-maken-in-spannende-derde-set-van-finale-european-open~ac5196e90/)
-  > Tallon Griekspoor hoopt vandaag voor de vierde keer in zijn loopbaan een ATP-titel te winnen. De Nederlander neemt het in de finale van de European...
-- [Alle hens aan dek bij Ajax, Sparta jaagt op late gelijkmaker op Het Kasteel](https://www.ad.nl/voetbal/alle-hens-aan-dek-bij-ajax-sparta-jaagt-op-late-gelijkmaker-op-het-kasteel~a7058a0d/)
-  > Ajax won vorige week met 2-5 van FC Groningen en donderdag rekende de ploeg van trainer Míchel in de Conference League af met Atalanta (2-0). Nu gaan...
-- [Fraaie goal als jubilaris: Jens Toornstra eerste speler sinds 2009 die op 500 wedstrijden in de eredivisie komt](https://www.ad.nl/voetbal/fraaie-goal-als-jubilaris-jens-toornstra-eerste-speler-sinds-2009-die-op-500-wedstrijden-in-de-eredivisie-komt~a4d755ca/)
-  > Jens Toornstra is sinds zondag de elfde speler met 500 wedstrijden in de eredivisie achter zijn naam. De 37-jarige middenvelder uit Ter Aar deed bij...
-- [Van klimaatgrap tot keiharde sneer: waarom de protestleuzen van jongeren zo viraal gaan](https://www.ad.nl/buitenland/van-klimaatgrap-tot-keiharde-sneer-waarom-de-protestleuzen-van-jongeren-zo-viraal-gaan~accd6fc5/)
-  > In verschillende steden in Europa gaan vooral jongeren de straat op om te protesteren tegen woningnood, hoge prijzen en het verval van het onderwijs....
-- [PSV-Feyenoord op rapport | Hoogste cijfer voor Anis Hadj Moussa, twee onvoldoendes na topper](https://www.ad.nl/voetbal/psv-feyenoord-op-rapport-hoogste-cijfer-voor-anis-hadj-moussa-twee-onvoldoendes-na-topper~afdb9a78/)
-  > PSV en Feyenoord speelden in een boeiende topper met 1-1 gelijk. Wie waren de uitblinkers in Eindhoven en welke spelers vielen tegen? Dit zijn de...
+- [Luke Littler verrassend uitgeschakeld, Ross Smith en Martin Schindler spelen de finale](https://www.ad.nl/darts/luke-littler-verrassend-uitgeschakeld-ross-smith-en-martin-schindler-spelen-de-finale~ab915a3c/)
+  > Het EK darts is begonnen aan de finaledag zonder Nederlanders. Jermaine Wattimena en Kevin Doets werden zaterdag als laatste landgenoten...
+- [Verstappen kiest voor vroege pitstop in Texas, op titel azende Antonelli aan de leiding](https://www.ad.nl/formule-1/verstappen-kiest-voor-vroege-pitstop-in-texas-op-titel-azende-antonelli-aan-de-leiding~a901543f/)
+  > Max Verstappen verkeert richting het einde van het seizoen in supervorm. Na zijn overwinningen in Maleisië en Singapore gaat de Red Bull-coureur in...
+- [LIVE Oorlog Oekraïne | Zelensky verwacht ontmoeting met VS en Rusland in november: ‘Bereid om te praten’](https://www.ad.nl/buitenland/live-oorlog-oekraine-zelensky-verwacht-ontmoeting-met-vs-en-rusland-in-november-bereid-om-te-praten~adfb97be/)
+  > De Oekraïense president Zelensky heeft zondag gezegd dat er in november een ontmoeting zal plaatsvinden tussen Oekraïne, de VS en Rusland, met als...
+- [Barcelona en Real Madrid houden elkaar in evenwicht in intense El Clásico](https://www.ad.nl/voetbal/barcelona-en-real-madrid-houden-elkaar-in-evenwicht-in-intense-el-clasico~af7f14aa/)
+  > Een heerlijk affiche om de zondag mee af te sluiten: het wervelende FC Barcelona speelt in eigen huis tegen aartsrivaal Real Madrid. De thuisclub zet...
+- [Ik wil geen wereld waar straks bijna niemand meer iets weet of kan, is dat zo vreemd?](https://www.ad.nl/binnenland/ik-wil-geen-wereld-waar-straks-bijna-niemand-meer-iets-weet-of-kan-is-dat-zo-vreemd~a94e00dc/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Verkoop van Robin Radar vergt duidelijkheid uit Den Haag](https://fd.nl/opinie/1616469/verkoop-van-robin-radar-vergt-duidelijkheid-uit-den-haag)
+  > Bedrijven die een rol spelen bij de nationale veiligheid, kunnen niet zonder toestemming van de overheid van eigenaar wisselen. Een verstandige...
 - [Oppositieleider Maria Corina Machado terug in Venezuela](https://fd.nl/politiek/1616604/oppositieleider-maria-corina-machado-terug-in-venezuela)
   > Bijna een jaar geleden vertrok Machado uit het Zuid-Amerikaanse land om gedurende die periode geen stap meer in het land te zetten. Haar terugkeer...
-- [Tanker stuurloos boven Schiermonninkoog](https://fd.nl/samenleving/1616603/tanker-stuurloos-boven-schiermonninkoog)
-  > Aan boord zijn meerdere gewonden. De KNRM zet meerdere reddingsboten in om te helpen.
-- [Politie Portugal stopt woonprotesten in het land met de ergste huizencrisis in de EU](https://fd.nl/samenleving/1616780/politie-portugal-stopt-woonprotesten-in-het-land-met-de-ergste-huizencrisis-in-de-eu)
+- [Vrachtschip enkele uren stuurloos ten noorden van Schiermonnikoog](https://fd.nl/samenleving/1616603/tanker-stuurloos-boven-schiermonninkoog)
+  > Er vielen drie gewonden. De KNRM zette meerdere reddingsboten in om te helpen.
+- [Politie Portugal beëindigt woonprotesten in het land met de ergste huizencrisis in de EU](https://fd.nl/samenleving/1616780/politie-portugal-stopt-woonprotesten-in-het-land-met-de-ergste-huizencrisis-in-de-eu)
   > Volgens cijfers van de Oeso is 19% van de Portugese huizen niet beschikbaar voor woningzoekenden, omdat ze worden gebruikt als tweede woning of voor...
 - [Omvang verlies verrast personeel Volvo Cars in Göteborg: ‘Volgens mij doen we de juiste dingen’](https://fd.nl/bedrijfsleven/1616567/omvang-verlies-verrast-personeel-volvo-cars-reorganisatie-niet)
   > Opnieuw moet Volvo Cars bezuinigen. Medewerkers zagen vrijdag de beurskoers met een kwart dalen en hebben begrip. ‘Ik denk dat we nog best goed...
-- [Hoe schaduwbanken buiten het zicht van toezichthouders blijven](https://fd.nl/bedrijfsleven/1616475/hoe-schaduwbanken-buiten-het-zicht-van-toezichthouders-blijven)
-  > Schaduwbanken verlenen meer dan de helft van het wereldwijde krediet, maar weten zich buiten veel toezicht te houden. Dat concludeert onderzoeker...
 
 ### Meest gelezen
 
