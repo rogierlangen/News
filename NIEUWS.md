@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 24-10-2026 om 22:59*
+*Laatst bijgewerkt: 25-10-2026 om 01:01*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Zomertijd voorbij: vannacht gaat de klok weer een uur terug](https://nos.nl/l/2636525)
-  > Vannacht om 03.00 uur is de zomertijd voorbij. Dat betekent dat de klok een uur achteruit wordt gezet en de meeste mensen een uurtje langer kunnen...
+- [Op verschillende plekken overlast door harde wind](https://nos.nl/l/2636535)
+  > De harde wind heeft gisteravond en vannacht op verschillende plekken geleid tot schade of overlast, vooral door omgevallen bomen.
+        In...
+- [Musk: Oekraïne schond voorwaarden van satellietsysteem Starlink](https://nos.nl/l/2636534)
+  > Elon Musk zegt dat het Oekraïense leger de gebruiksvoorwaarden van Starlink heeft geschonden. Op zijn sociale mediaplatform X schrijft hij dat het...
+- [Zomertijd voorbij: vannacht is de klok weer een uur teruggegaan](https://nos.nl/l/2636525)
+  > Vannacht is de zomertijd ingegaan. Dat betekent dat de klok een uur achteruit is gezet en de meeste mensen een uurtje langer kunnen slapen. In de...
 - [Bijna 1000 arrestaties in Frankrijk, minister tevreden over verloop protesten](https://nos.nl/l/2636520)
   > De Franse politie heeft vandaag bij betogingen in het hele land bijna duizend mensen opgepakt. Dat heeft de Franse minister van Binnenlandse Zaken...
 - [Kabinet nodigt zeven oppositiepartijen uit voor onderhandelingen belastingplan](https://nos.nl/l/2636518)
   > Het kabinet heeft afspraken gemaakt over hoe het de oppositie tegemoet wil komen en nodigt komende week zeven partijen uit om verder te onderhandelen...
-- ['Vrije pers kun je niet censureren': duizenden Turken de straat op voor persvrijheid](https://nos.nl/l/2636513)
-  > Duizenden mensen, onder wie vele journalisten, gingen in Turkije vandaag de straat voor persvrijheid. Journalistenverenigingen en de Nieuwe Partij...
-- [Demonstraties in Europese steden: rellen in Tirana, militairen ingezet in Milaan](https://nos.nl/l/2636510)
-  > Hoewel de protesten in Frankrijk internationaal de meeste aandacht krijgen, zijn vandaag ook grote demonstraties geweest in verschillende andere...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
+- [Musk: Oekraïne hield zich niet aan voorwaarden Starlink, heeft drones gebruikt om mensen te doden’](https://www.ad.nl/buitenland/musk-oekraine-hield-zich-niet-aan-voorwaarden-starlink-heeft-drones-gebruikt-om-mensen-te-doden~adfb97be/)
+  > Oekraïne heeft zich niet aan de voorwaarden gehouden om Starlink te mogen gebruiken en drones gebruikt om mensen te doden. Dat zegt Elon Musk, topman...
+- [Seedorf eindelijk ‘echt’ als trainer op de bank, maar Corinthians verliest opnieuw na knotsgekke slotfase](https://www.ad.nl/sport/seedorf-eindelijk-echt-als-trainer-op-de-bank-maar-corinthians-verliest-opnieuw-na-knotsgekke-slotfase~acb177bc/)
+  > Eindelijk mocht Clarence Seedorf als trainer van Corinthians zaterdagavond voor het eerst officieel in de dug-out zitten en zich langs de lijn...
+- [‘Kangoeroe’ Max Verstappen nodigt circuitbaas uit in zijn auto te rijden: ‘Kan hij daarna niet meer lopen’](https://www.ad.nl/formule-1/kangoeroe-max-verstappen-nodigt-circuitbaas-uit-in-zijn-auto-te-rijden-kan-hij-daarna-niet-meer-lopen~a563b4be/)
+  > Max Verstappen die niet tevreden is met P2. Zo kennen we de viervoudig wereldkampioen weer. Met pijnstilling tegen de hobbels stuiterde de...
+- [Politie grijpt in bij vechtpartijen tijdens Walibi Fright Nights, Mobiele Eenheid ingezet](https://www.ad.nl/binnenland/politie-grijpt-in-bij-vechtpartijen-tijdens-walibi-fright-nights-mobiele-eenheid-ingezet~a5db227d/)
+  > Een flinke politiemacht moest zaterdagavond ingrijpen bij Walibi Fright Night nadat meerdere vechtpartijen waren uitgebroken. De mobiele eenheid (ME)...
 - [Max Verstappen grijpt naast derde pole op rij, Kimi Antonelli vanaf pole op jacht naar eerste wereldtitel](https://www.ad.nl/formule-1/max-verstappen-grijpt-naast-derde-pole-op-rij-kimi-antonelli-vanaf-pole-op-jacht-naar-eerste-wereldtitel~ac40cb2b/)
   > Max Verstappen heeft op het Circuit of the Americas naast zijn derde poleposition op rij gegrepen. Het is zondag (21.00 uur Nederlandse tijd)...
-- [UFC 333: Volkanovski domineert ongeslagen opponent, Yan maakt comeback om van te dromen](https://www.ad.nl/vechtsport/ufc-333-volkanovski-domineert-ongeslagen-opponent-yan-maakt-comeback-om-van-te-dromen~ac92fe2f/)
-  > Alexander Volkanovski heeft opnieuw zijn vedergewichttitel verdedigd. De Australische topvechter won in de hoofdpartij van UFC 333 in Abu Dhabi van...
-- [Live VS | President Trump brengt vervroegde stem uit voor midterm-verkiezingen in thuisstaat Florida](https://www.ad.nl/buitenland/live-vs-president-trump-brengt-vervroegde-stem-uit-voor-midterm-verkiezingen-in-thuisstaat-florida~ae67dd9c/)
-  > President Trump heeft zijn stem uitgebracht voor de midterm-verkiezingen. Die vinden pas op 3 november plaats, maar Trump heeft al vervroegd zijn...
-- [ADO trekt onder barre omstandigheden aan kortste eind in vermakelijk duel met Heerenveen](https://www.ad.nl/voetbal/ado-trekt-onder-barre-omstandigheden-aan-kortste-eind-in-vermakelijk-duel-met-heerenveen~a7061780/)
-  > ADO Den Haag en SC Heerenveen zorgden onder barre omstandigheden met harde wind en veel regen voor vermaak in de eredivisie. De Friezen gingen er met...
-- [Israëlische strijdkrachten verdrijven duizenden inwoners uit Palestijnse stad na schietpartij](https://www.ad.nl/buitenland/israelische-strijdkrachten-verdrijven-duizenden-inwoners-uit-palestijnse-stad-na-schietpartij~ac528ac3/)
-  > Israël heeft 2000 Palestijnse burgers verdreven uit de stad Hebron. De Israëlische minister van Defensie zei dat die burgers niet mogen terugkeren...
 
 ### Meest gelezen
 
