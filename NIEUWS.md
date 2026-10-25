@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 25-10-2026 om 07:25*
+*Laatst bijgewerkt: 25-10-2026 om 13:03*
 
 ---
 
@@ -8,18 +8,16 @@
 
 ### Laatste nieuws
 
-- [Auto's van handhavers Waalwijk uitgebrand, politie onderzoekt brandstichting](https://nos.nl/l/2636546)
-  > Bij het gemeentehuis in Waalwijk zijn drie auto's van handhavers uitgebrand. De politie houdt rekening met opzet, schrijft Omroep Brabant.
-        De...
-- [Artsen kritisch op longcovidbeleid minister Hermans: 'Funest voor patiëntvertrouwen'](https://nos.nl/l/2636540)
-  > Huisartsen, medisch specialisten en wetenschappers kraken de plannen van zorgminister Sophie Hermans voor patiënten met long covid en soortgelijke...
-- [Servische studenten dagen Vucic uit bij spannendste parlementsverkiezingen in jaren](https://nos.nl/l/2636539)
-  > Maken studenten in Servië een einde aan twaalf jaar heerschappij van de autocratische leider Aleksandar Vucic? Om die vraag draait het vandaag bij de...
-- [Wekdienst 25/10: Le Pen lanceert presidentscampagne Frankrijk • PSV-Feyenoord in eredivisie](https://nos.nl/l/2636538)
-  > Goedemorgen! Vannacht is de wintertijd ingegaan. De klok ging een uur achteruit en de meeste mensen hebben een uurtje langer kunnen slapen.
-       ...
-- [Duizenden Israëliërs eisen onderzoek naar 7 oktober, daags voor verkiezingen](https://nos.nl/l/2636537)
-  > In de Israëlische stad Tel Aviv hebben duizenden mensen zaterdagavond, drie dagen voor de Israëlische verkiezingen, gedemonstreerd tegen de regering...
+- [Gordels in aantal achtbanen VS na dodelijk ongeluk](https://nos.nl/l/2636588)
+  > Pretparkbedrijf Six Flags gaat veiligheidsgordels aanbrengen in drie achtbanen die in attractieparken van het bedrijf staan. Een van die achtbanen is...
+- [Zinkgaten in Rotterdam Crooswijk door ondergrondse lekkage](https://nos.nl/l/2636586)
+  > In de Rotterdamse wijk Crooswijk zijn op meerdere plekken zinkgaten in stoepen en straten ontstaan door een waterlek onder de grond. Volgens de...
+- [Libris Geschiedenis Prijs 2026 naar Maite Karssenberg voor boek Dubbelleven](https://nos.nl/l/2636584)
+  > Schrijver Maite Karssenberg krijgt de Libris Geschiedenis Prijs voor haar biografie Dubbelleven. Geertruida Kapteyn-Muysken en haar rebelse...
+- [Japanse justitie vervolgt Amerikaanse militair voor moord 39-jarige vrouw](https://nos.nl/l/2636583)
+  > Een Amerikaanse militair wordt officieel aangeklaagd voor moord en beroving van een vrouw op Okinawa. De vrouw zou zijn gewurgd met een...
+- [Groepen minderjarigen waren doelbewust uit op onrust en geweld, zegt Walibi](https://nos.nl/l/2636582)
+  > De ongeregeldheden in attractiepark Walibi tijdens de Fright Nights zijn volgens Walibi veroorzaakt door jongeren die bewust als doel hadden om...
 
 ### Meest gelezen
 
@@ -29,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Rob Kemps kreeg vlak voor droomreis slecht nieuws over moeder: ‘Wisten dat we haar misschien niet meer zouden zien’](https://www.ad.nl/show/rob-kemps-kreeg-vlak-voor-droomreis-slecht-nieuws-over-moeder-wisten-dat-we-haar-misschien-niet-meer-zouden-zien~a5acb65d/)
-  > Rob Kemps (40) reisde ruim 14.000 kilometer om een bezoek te brengen aan het graf van Jacques Brel, terwijl zijn moeder in een hospice lag. In zijn...
-- [Machtige Jens van ‘t Wout grijpt twee keer goud in Vancouver, zilver voor Xandra Velzeboer](https://www.ad.nl/schaatsen/machtige-jens-van-t-wout-grijpt-twee-keer-goud-in-vancouver-zilver-voor-xandra-velzeboer~afffc95e3/)
-  > Jens van ‘t Wout heeft bij de eerste wedstrijd in de World Tour shorttrack in Vancouver zondagnacht twee keer goud gewonnen. De Nederlander was op de...
-- [Max Verstappen was afgelopen jaren heel succesvol in Texas: dit is de startopstelling en zo laat begint de race](https://www.ad.nl/formule-1/max-verstappen-was-afgelopen-jaren-heel-succesvol-in-texas-dit-is-de-startopstelling-en-zo-laat-begint-de-race~ab607a78/)
-  > De Formule 1 is weer teruggekeerd in de Verenigde Staten. Voor de derde keer dit jaar wordt er gereden in Noord-Amerika. Zo laat komt Max Verstappen...
-- [Ik mag niet naar buiten, ik moet leren](https://www.ad.nl/mezza/ik-mag-niet-naar-buiten-ik-moet-leren~a9343986/)
-  > Het stampen wordt er niet makkelijker op, als je vijfenvijftig bent, merkt Beau. Lees in zijn column uit ons weekendmagazine Mezza hoe hij zich...
-- [PSV ligt niet wakker van mogelijkheid dat Feyenoord wegloopt in eredivisie](https://www.ad.nl/voetbal/psv-ligt-niet-wakker-van-mogelijkheid-dat-feyenoord-wegloopt-in-eredivisie~aba3ed3f/)
-  > PSV moet Feyenoord in de kraker kloppen om het gat met de koploper weer nagenoeg te dichten. De Rotterdammers voelen juist dat er een unieke kans...
+- [Staatssecretaris Derk Boswijk wilde beroepsmilitair worden, maar was niet welkom: ‘Ik was zó boos en teleurgesteld’](https://www.ad.nl/mezza/staatssecretaris-derk-boswijk-wilde-beroepsmilitair-worden-maar-was-niet-welkom-ik-was-zo-boos-en-teleurgesteld~a2686aff/)
+  > Als puber wil hij beroepsmilitair worden. Maar de krijgsmacht prikt die droom door: hij is niet welkom. Nu is CDA’er Derk Boswijk staatssecretaris...
+- [Captain Fernandes na kritiek op coach gepasseerd bij Manchester United](https://www.ad.nl/voetbal/captain-fernandes-na-kritiek-op-coach-gepasseerd-bij-manchester-united~a23c2230/)
+  > Manchester United worstelt ook dit jaar weer. Michael Carrick moet nu al vrezen voor zijn baan. Vandaag ontvangt hij Bournemouth. Tegelijkertijd...
+- [‘Break-up season’ slaat toe bij influencer Julia Koopman, dokter Rossi uit Gooische Vrouwen weet zich geen raad](https://www.ad.nl/show/break-up-season-slaat-toe-bij-influencer-julia-koopman-dokter-rossi-uit-gooische-vrouwen-weet-zich-geen-raad~a5256ed5/)
+  > Influencer Julia Koopman (29) trekt momenteel de aandacht op Instagram met een opvallende video. Terwijl de Nederlandse showbizz gebukt gaat onder...
+- [Camera toont succesvolle aanval wolf op hert, confronterend voor kijkers](https://www.ad.nl/binnenland/camera-toont-succesvolle-aanval-wolf-op-hert-confronterend-voor-kijkers~aeb62375/)
+  > Het is voor veel kijkers even slikken: beelden waarop een wolf een vrouwelijk hert bejaagt en uiteindelijk ook doodt. De aanval is op te zien op...
+- [Boelo is eerste officiële herfststorm van het jaar, Schiphol annuleert vluchten](https://www.ad.nl/binnenland/boelo-is-eerste-officiele-herfststorm-van-het-jaar-schiphol-annuleert-vluchten~af8f8f71/)
+  > Storm Boelo is officieel de eerste herfststorm van dit jaar. Op Vlieland kwam het tussen 11.00 en 12.00 uur tot een gemiddelde windkracht 9. Ook in...
 
 ### Meest gelezen
 
@@ -48,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [VVD’s claim op stabiliteit maakt kabinet wankel](https://fd.nl/opinie/1616227/vvds-claim-op-stabiliteit-maakt-kabinet-wankel)
-  > VVD-leider Yeşilgöz gebruikt sterke beelden en woorden om volwassen en veilig leiderschap te claimen. Maar wie volwassen politiek predikt, moet ook...
-- [VS richting stemhokje: gaat Texas voor het eerst sinds 1988 naar de Democraten?](https://fd.nl/politiek/1616437/vs-richting-stemhokje-gaat-texas-voor-het-eerst-sinds-1988-naar-de-democraten)
-  > Amerikanen stemmen 3 november over een nieuw Congres. Onder meer in Maine en Ohio wordt het spannend. Een overzicht van de staten en districten waar...
-- [Wie de wereld wil veroveren, maakt snel een foto van de slides](https://fd.nl/bedrijfsleven/1616400/wie-de-wereld-wil-veroveren-maakt-snel-een-foto-van-de-slides)
-  > Ontwikkelaars en architecten op de Dutch Designweek verlangen naar internationaal succes. ‘Die doodskist van mycelium wordt nu overal verkocht.’
-- [‘Toen ik kanker kreeg, móest ik mezelf vervangbaar maken’](https://fd.nl/samenleving/1616492/toen-ik-kanker-kreeg-moest-ik-mezelf-vervangbaar-maken)
-  > Ondernemer Anouk Binkhuysen werd door ziekte gedwongen het roer om te gooien. Zodat, in het ergste geval, het bedrijf zonder haar kon voortbestaan.
-- [Fransen opnieuw de straat op onder massale politieaanwezigheid](https://fd.nl/politiek/1616776/fransen-opnieuw-de-straat-op-onder-massale-politieaanwezigheid)
-  > Zo’n 70.000 politieagenten zien toe op het voorkomen van de rellen, plunderingen en vernielingen.
+- [Een bijbaantje als rechter is verre van lucratief](https://fd.nl/financiele-markten/1616398/een-bijbaantje-als-rechter-is-verre-van-lucratief)
+  > Het tekort aan rechters houdt aan. De lage vergoeding zou advocaten, oud-rechters en andere juristen ontmoedigen om als plaatsvervanger te hulp te...
+- [Audi bezorgt Trump steuntje in de rug met belofte van miljardeninvestering](https://fd.nl/bedrijfsleven/1616779/audi-bezorgt-trump-steuntje-in-de-rug-met-belofte-van-miljardeninvestering)
+  > Duitse autofabrikant kondigt samen met Amerikaanse president de bouw van nieuwe fabriek in Georgia aan. De Volkswagen Group, moeder van Audi, moet...
+- [AI jaagt bedrijvigheid in de cybersecurity aan](https://fd.nl/tech-en-innovatie/1616468/ai-jaagt-bedrijvigheid-in-de-cybersecurity-aan)
+  > AI vergroot het risico op cybercrises als de recente PHP-lekken. Maar tegelijkertijd is het ook de basis voor vernieuwende start-ups in de...
+- [Noors boorplatform zinkt voor kust Gabon, vijf opvarenden vermist](https://fd.nl/bedrijfsleven/1616602/noors-boorplatform-zinkt-voor-kust-gabon-vijf-opvarenden-vermist)
+  > Het nabijgelegen productieplatform MaBoMo is niet beschadigd door het ongeluk.
+- [Bonnetjesfraude met AI: zo gepleegd maar lastig om te ontdekken](https://fd.nl/bedrijfsleven/1616441/fraude-met-bonnetjes-is-kinderspel-met-hulp-ai-en-moeilijk-te-ontdekken)
+  > Het aanpassen of namaken van declaraties of documenten is met generatieve AI veel makkelijker en bovendien moeilijker om op te sporen.
 
 ### Meest gelezen
 
