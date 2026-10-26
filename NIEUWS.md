@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-10-2026 om 04:00*
+*Laatst bijgewerkt: 26-10-2026 om 10:50*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Lula wint verkiezingen in Brazilië, Bolsonaro erkent zijn verlies niet](https://nos.nl/l/2636684)
-  > De verkiezingen in Brazilië zijn gewonnen door zittend president Lula. Hij kreeg ongeveer 52 procent van de stemmen, heeft de kiesraad bekend...
-- [Sven Kockelmann (56) wint Sonja Barend Award voor interview met oud-premier Schoof](https://nos.nl/l/2636679)
-  > Sven Kockelmann (56) heeft de Sonja Barend Award gewonnen. De journalist wint de prijs voor zijn interview met oud-premier Schoof.
-        BNNVARA,...
-- [Stembureaus Brazilië twee uur langer open na ingrijpen Hooggerechtshof](https://nos.nl/l/2636672)
-  > De stemlokalen in Brazilië blijven vandaag twee uur langer open voor de beslissende ronde van de presidentsverkiezingen, heeft het Hooggerechtshof...
-- [Afgetreden president Vucic erkent nederlaag: studentenbeweging wint verkiezingen Servië](https://nos.nl/l/2636669)
-  > De Studentenlijst in Servië heeft de meeste stemmen behaald in de parlementsverkiezingen. Dat zegt voormalig president Vucic op basis van een...
-- [Pro-Russische presidentskandidaat Bulgarije aan kop na eerste verkiezingsronde](https://nos.nl/l/2636668)
-  > De gematigd pro-Russische president Iliana Jotova van Bulgarije heeft volgens de exitpolls de meeste stemmen gekregen in de eerste ronde van de...
+- [Elfde van de Elfde onzeker in Tilburg: gemeente en horeca botsen over tieners](https://nos.nl/l/2636731)
+  > Zijn minderjarigen altijd welkom tijdens de Elfde van de Elfde, de traditionele opening van het carnavalsseizoen? Over die vraag botsen de gemeente...
+- [Geen roze koeken meer voor het grijpen: bloedbank Sanquin scherpt snackbeleid aan](https://nos.nl/l/2636730)
+  > Wie weleens bloed of bloedplasma doneert, weet dat er na afloop roze koeken op je liggen te wachten. Zo'n gratis snack in een van de donorcafés van...
+- [Kabinet wil 25.000 rijksambtenaren minder, politie en defensie uitgezonderd](https://nos.nl/l/2636722)
+  > De rijksoverheid moet het ook kunnen met zo'n 25.000 ambtenaren minder. Dat staat in de plannen van staatssecretaris Van der Burg voor Slagvaardige...
+- [Personeel klaar met problemen met Friese taxi's: 'Mensen staan uren te wachten'](https://nos.nl/l/2636720)
+  > Personeelsleden van het taxibedrijf Dorenbos hebben moeite met de manier waarop ze hun werk moeten doen. Ouderen staan soms uren te wachten tot ze...
+- [Hulpdiensten zoeken verder naar vermiste watersporter bij Scheveningen](https://nos.nl/l/2636714)
+  > Hulpdiensten zoeken sinds vanmorgen verder aan de Zuid-Hollandse kust naar de watersporter die gistermiddag vermist raakte op zee. Gisteravond werd...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nederlandse shorttrackers rijgen gouden plakken aaneen bij eerste World Tour in Vancouver](https://www.ad.nl/schaatsen/nederlandse-shorttrackers-rijgen-gouden-plakken-aaneen-bij-eerste-world-tour-in-vancouver~a5811970/)
-  > De Nederlandse shorttrackers hebben bij de eerste World Tour in het Canadese Vancouver goud gewonnen op de gemengde aflossing. Selma Poutsma, Xandra...
-- [Verkeerde bandenkeuze, trage pitstop, Verstappen niet in polonaise na tiende podium van 2026: ‘Ging te veel mis’](https://www.ad.nl/formule-1/verkeerde-bandenkeuze-trage-pitstop-verstappen-niet-in-polonaise-na-tiende-podium-van-2026-ging-te-veel-mis~a15c70cd/)
-  > Max Verstappen heeft naar eigen zeggen niet het maximale uit de Grand Prix van de Verenigde Staten gehaald. Nadat hij bij de kwalificatie al baalde...
-- [Historische ommekeer in Brazilië: Lula toch herkozen als president, Flávio Bolsonaro erkent uitslag niet](https://www.ad.nl/buitenland/historische-ommekeer-in-brazilie-lula-toch-herkozen-als-president-flavio-bolsonaro-erkent-uitslag-niet~acc20801/)
-  > Luiz Inácio Lula da Silva is verrassend herkozen als president van Brazilië. De linkse Lula (80) kreeg zondag in een chaotisch verlopen tweede ronde...
-- [Wie verdient de Gouden Bal het meest? ‘Het is niet uit te leggen dat Kylian Mbappé ‘’m nog nooit heeft gewonnen’](https://www.ad.nl/voetbal/wie-verdient-de-gouden-bal-het-meest-het-is-niet-uit-te-leggen-dat-kylian-mbappe-m-nog-nooit-heeft-gewonnen~a39ac6dd/)
-  > Vanavond wordt in Londen de Gouden Bal uitgereikt. Een uitgesproken favoriet is er dit jaar niet, dus wij vroegen onze voetbalverslaggevers: wie...
-- [‘Het Negreira-schandaal rondom Barcelona leeft nog altijd’](https://www.ad.nl/sport/het-negreira-schandaal-rondom-barcelona-leeft-nog-altijd~af592adb/)
-  > Boven FC Barcelona - Real Madrid hangt nog altijd de schaduw van het Negreira-schandaal. AD-columnist en -journalist Sjoerd Mossou laat dagelijks...
+- [Waarom de Clásico voor Frenkie de Jong een opsteker was en voor Denzel Dumfries juist een tik](https://www.ad.nl/voetbal/waarom-de-clasico-voor-frenkie-de-jong-een-opsteker-was-en-voor-denzel-dumfries-juist-een-tik~ae3ec589/)
+  > De Nederlanders hielden gemengde gevoelens over aan Barcelona-Real Madrid (1-2). Frenkie de Jong baalde van de nederlaag, maar was blij met zijn...
+- [Trump haalt paar dagen na ‘geweldig’ diner met presentator Bill Maher naar hem uit: ‘Hij is een totale loser’](https://www.ad.nl/buitenland/trump-haalt-paar-dagen-na-geweldig-diner-met-presentator-bill-maher-naar-hem-uit-hij-is-een-totale-loser~ae67dd9c/)
+  > President Trump heeft op sociale media uitgehaald naar talkshowhost Bill Maher. De twee aten onlangs nog samen in het Witte Huis, waarna Trump sprak...
+- [Praat mee: mantelzorgers moeten meer gaan doen om het zorgstelsel betaalbaar te houden](https://www.ad.nl/praat-mee/praat-mee-mantelzorgers-moeten-meer-gaan-doen-om-het-zorgstelsel-betaalbaar-te-houden~abe53de8/)
+  > Huur voor mensen die zorg nodig hebben niet meteen dure zorgprofessionals in, maar laat buren en familie vaker meehelpen. Dat bepleit Roelof Ettema,...
+- [Grootste ooievaarskolonie van Nederland ontroert én verontrust: ‘Alles wat op de vlucht slaat vreten ze op, ook kuikens’](https://www.ad.nl/binnenland/grootste-ooievaarskolonie-van-nederland-ontroert-en-verontrust-alles-wat-op-de-vlucht-slaat-vreten-ze-op-ook-kuikens~a9a9f795c/)
+  > Een schiereiland midden in safaripark Beekse Bergen is de thuisbasis van de grootste ooievaarskolonie in Nederland. Mooi, zou je denken. Maar het...
+- [Kapotte koplamp: vroeger een tientje, nu al gauw drie mille voor een Kia](https://www.ad.nl/auto/kapotte-koplamp-vroeger-een-tientje-nu-al-gauw-drie-mille-voor-een-kia~a9b21e99/)
+  > Een kapot dimlicht vervangen voor een tientje bij het tankstation? Die tijd is definitief voorbij. Bij moderne auto’s kan één nieuwe koplamp...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Robin Radar staat te koop: politiek en militair gevoelig](https://fd.nl/economie/1616570/robin-radar-staat-te-koop-politiek-en-militair-gevoelig)
-  > Vandaag in Dagkoers: de verkoop van Robin Radar is militair en politiek gevoelig. De gestegen rente is potentieel erg lastig voor pensioenfondsen. En...
-- [Premiepaniek](https://fd.nl/opinie/1616606/premiepaniek)
-  > De grootste premiestijging ooit blijkt een perspectief nog best mee te vallen.
-- [ASML levert steeds grotere bijdrage aan Nederlandse economie](https://fd.nl/bedrijfsleven/1616568/asml-levert-steeds-grotere-bijdrage-aan-nederlandse-economie)
-  > Chipmachinefabrikant ASML neemt dit jaar naar schatting 2,2% van de Nederlandse economie voor zijn rekening. Zo profiteert Nederland steeds meer van...
-- [Oplopende rente kan overgang naar nieuw pensioenstelsel verstoren](https://fd.nl/financiele-markten/1616544/oplopende-rente-kan-overgang-naar-nieuw-pensioenstelsel-verstoren)
-  > Het gevaar bestaat dat de afspraken die pensioenfondsen hebben gemaakt voor het verdelen van het vermogen onder deelnemers niet meer kloppen.
-- [In week vol rentebesluiten wordt op pauze gerekend bij de ECB en de Fed](https://fd.nl/financiele-markten/1616542/in-week-vol-rentebesluiten-wordt-op-pauze-gerekend-bij-de-ecb-en-de-fed)
-  > Het beeld is er niet helderder op geworden. De inflatie is toegenomen. Tegelijk moeten beleidsmakers rekening houden met de opgelopen...
+- [Overheid schrapt komende tien jaar 25.000 banen](https://fd.nl/politiek/1616885/overheid-schrapt-komende-tien-jaar-25-000-banen)
+  > Voor het eerst plakt het kabinet een getal bij de plannen om zwaar te bezuinigen op het ambtenarenapparaat. Een sterke personeelsreductie vereist dat...
+- [Aangenaam, de nieuwe economie](https://fd.nl/financiele-markten/1616815/aangenaam-de-nieuwe-economie)
+  > Niet groeien en nog meer consumeren, maar samenwerken en delen. FD-columnist Brenda Kramer over de nieuwe economie en de beste batterij.
+- [Gen Z eist half meme half mens haar rechten op](https://fd.nl/samenleving/1616878/gen-z-eist-half-meme-half-mens-haar-rechten-op)
+  > Frida Boeke vindt het inspirerend, gen Z’ers die, van India tot Frankrijk, de straat op gaan voor beter onderwijs en betere baankansen.
+- [Tientallen miljoenen voor Nederlands investeringsfonds voor watertechnologie](https://fd.nl/bedrijfsleven/1616498/tientallen-miljoenen-voor-nederlands-investeringsfonds-voor-watertechnologie)
+  > Het Amsterdamse durfkapitaalfonds PureTerra heeft €40 mln binnengehaald van het Europese Investeringsfonds en InvestNL. ‘De beperkende factor is...
+- [Parlement wil methaanwet met drie jaar uitstellen](https://fd.nl/politiek/1616608/parlement-wil-methaanwet-met-drie-jaar-uitstellen)
+  > De nieuwe editie van de Europa-nieuwsbrief van het FD gaat over methaanregels, de nieuwe bedrijfsvorm EU Inc en de lijst met Europees erfgoed.
 
 ### Meest gelezen
 
