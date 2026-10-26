@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-10-2026 om 10:50*
+*Laatst bijgewerkt: 26-10-2026 om 17:10*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Elfde van de Elfde onzeker in Tilburg: gemeente en horeca botsen over tieners](https://nos.nl/l/2636731)
-  > Zijn minderjarigen altijd welkom tijdens de Elfde van de Elfde, de traditionele opening van het carnavalsseizoen? Over die vraag botsen de gemeente...
-- [Geen roze koeken meer voor het grijpen: bloedbank Sanquin scherpt snackbeleid aan](https://nos.nl/l/2636730)
-  > Wie weleens bloed of bloedplasma doneert, weet dat er na afloop roze koeken op je liggen te wachten. Zo'n gratis snack in een van de donorcafés van...
-- [Kabinet wil 25.000 rijksambtenaren minder, politie en defensie uitgezonderd](https://nos.nl/l/2636722)
-  > De rijksoverheid moet het ook kunnen met zo'n 25.000 ambtenaren minder. Dat staat in de plannen van staatssecretaris Van der Burg voor Slagvaardige...
-- [Personeel klaar met problemen met Friese taxi's: 'Mensen staan uren te wachten'](https://nos.nl/l/2636720)
-  > Personeelsleden van het taxibedrijf Dorenbos hebben moeite met de manier waarop ze hun werk moeten doen. Ouderen staan soms uren te wachten tot ze...
-- [Hulpdiensten zoeken verder naar vermiste watersporter bij Scheveningen](https://nos.nl/l/2636714)
-  > Hulpdiensten zoeken sinds vanmorgen verder aan de Zuid-Hollandse kust naar de watersporter die gistermiddag vermist raakte op zee. Gisteravond werd...
+- [Politiemedewerker op non-actief na mogelijk lekken geheime informatie](https://nos.nl/l/2636779)
+  > Het Openbaar Ministerie heeft een strafrechtelijk onderzoek ingesteld naar een medewerker van de politie Oost-Brabant die mogelijk geheime informatie...
+- [Bedrijven in de bres voor behoud personeelskorting voor medewerkers](https://nos.nl/l/2636778)
+  > Een medewerker van een kledingzaak die kleren uit de eigen winkel met korting kan kopen. Of iemand die werkt bij een reisorganisatie en korting...
+- [Rotterdammer verdacht van identiteitsfraude na voetbalkaartjeszwendel](https://nos.nl/l/2636776)
+  > De politie heeft vorige week een 31-jarige man uit Rotterdam aangehouden, omdat hij ervan wordt verdacht de accounts van bijna vijftig...
+- [Haga Lyceum moet van staatssecretaris verbeteren, anders dreigt financiële straf](https://nos.nl/l/2636773)
+  > Het bestuur van het Cornelius Haga Lyceum in Amsterdam moet van staatssecretaris Judith Tielen (Voortgezet Onderwijs) direct verbeteringen...
+- [Serviërs vieren verkiezingswinst Studentenlijst, maar vraag over concrete plannen blijft](https://nos.nl/l/2636771)
+  > "Servië is vrij" en "eindelijk worden we een normaal en vrij land". Met dit soort leuzen vierden Serviërs gisteravond de verkiezingsoverwinning van...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Waarom de Clásico voor Frenkie de Jong een opsteker was en voor Denzel Dumfries juist een tik](https://www.ad.nl/voetbal/waarom-de-clasico-voor-frenkie-de-jong-een-opsteker-was-en-voor-denzel-dumfries-juist-een-tik~ae3ec589/)
-  > De Nederlanders hielden gemengde gevoelens over aan Barcelona-Real Madrid (1-2). Frenkie de Jong baalde van de nederlaag, maar was blij met zijn...
-- [Trump haalt paar dagen na ‘geweldig’ diner met presentator Bill Maher naar hem uit: ‘Hij is een totale loser’](https://www.ad.nl/buitenland/trump-haalt-paar-dagen-na-geweldig-diner-met-presentator-bill-maher-naar-hem-uit-hij-is-een-totale-loser~ae67dd9c/)
-  > President Trump heeft op sociale media uitgehaald naar talkshowhost Bill Maher. De twee aten onlangs nog samen in het Witte Huis, waarna Trump sprak...
-- [Praat mee: mantelzorgers moeten meer gaan doen om het zorgstelsel betaalbaar te houden](https://www.ad.nl/praat-mee/praat-mee-mantelzorgers-moeten-meer-gaan-doen-om-het-zorgstelsel-betaalbaar-te-houden~abe53de8/)
-  > Huur voor mensen die zorg nodig hebben niet meteen dure zorgprofessionals in, maar laat buren en familie vaker meehelpen. Dat bepleit Roelof Ettema,...
-- [Grootste ooievaarskolonie van Nederland ontroert én verontrust: ‘Alles wat op de vlucht slaat vreten ze op, ook kuikens’](https://www.ad.nl/binnenland/grootste-ooievaarskolonie-van-nederland-ontroert-en-verontrust-alles-wat-op-de-vlucht-slaat-vreten-ze-op-ook-kuikens~a9a9f795c/)
-  > Een schiereiland midden in safaripark Beekse Bergen is de thuisbasis van de grootste ooievaarskolonie in Nederland. Mooi, zou je denken. Maar het...
-- [Kapotte koplamp: vroeger een tientje, nu al gauw drie mille voor een Kia](https://www.ad.nl/auto/kapotte-koplamp-vroeger-een-tientje-nu-al-gauw-drie-mille-voor-een-kia~a9b21e99/)
-  > Een kapot dimlicht vervangen voor een tientje bij het tankstation? Die tijd is definitief voorbij. Bij moderne auto’s kan één nieuwe koplamp...
+- [‘Compleet uit je dak gaan tegen je oude club, is uiteindelijk de stoerste en de eerlijkste optie’](https://www.ad.nl/sport/compleet-uit-je-dak-gaan-tegen-je-oude-club-is-uiteindelijk-de-stoerste-en-de-eerlijkste-optie~af592adb/)
+  > Er bestaat geen duidelijke etiquette voor het fenomeen ‘scoren tegen je oude club’. AD-columnist en -journalist Sjoerd Mossou laat dagelijks zijn...
+- [LeBron James (41) pompt jaarlijks 1,5 miljoen dollar in zijn lijf, maar zijn grootste wapen is iets wat iedereen doet](https://www.ad.nl/andere-sporten/lebron-james-41-pompt-jaarlijks-1-5-miljoen-dollar-in-zijn-lijf-maar-zijn-grootste-wapen-is-iets-wat-iedereen-doet~a5e45c81/)
+  > Op je 41ste nog zo dominant zijn in een sport als basketbal, hoe kan dat fysiek gezien? Het geheim van het peperdure lichaam van NBA-legende LeBron...
+- [Ballon d’Or: Nederlandse voetbalsters niet in top 10, zo laat begint de uitreiking](https://www.ad.nl/voetbal/ballon-dor-nederlandse-voetbalsters-niet-in-top-10-zo-laat-begint-de-uitreiking~a52b10b8/)
+  > Het is tijd voor de verkiezing van de Gouden Bal. De prijs voor wereldvoetballer van het jaar is toe aan de 70ste editie. Daarom is het gala voor één...
+- [Waarom illegale streaming zo populair is: voor een paar tientjes per jaar kijk je bijna alles](https://www.ad.nl/show/waarom-illegale-streaming-zo-populair-is-voor-een-paar-tientjes-per-jaar-kijk-je-bijna-alles~ab629e80/)
+  > Waarom je scheel betalen aan streamingdiensten als Videoland, Netflix en HBS als je met één goedkoop abonnement praktisch alles gebundeld op je...
+- [Paus Leo mag na operatie aan longkanker weer reizen: trip naar Zuid-Amerika gaat door](https://www.ad.nl/buitenland/paus-leo-mag-na-operatie-aan-longkanker-weer-reizen-trip-naar-zuid-amerika-gaat-door~ab5e392b/)
+  > Paus Leo vliegt begin november alsnog naar Zuid-Amerika voor zijn geplande trip. Het Vaticaan heeft dat maandag bekendgemaakt, bijna twee weken nadat...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Overheid schrapt komende tien jaar 25.000 banen](https://fd.nl/politiek/1616885/overheid-schrapt-komende-tien-jaar-25-000-banen)
-  > Voor het eerst plakt het kabinet een getal bij de plannen om zwaar te bezuinigen op het ambtenarenapparaat. Een sterke personeelsreductie vereist dat...
-- [Aangenaam, de nieuwe economie](https://fd.nl/financiele-markten/1616815/aangenaam-de-nieuwe-economie)
-  > Niet groeien en nog meer consumeren, maar samenwerken en delen. FD-columnist Brenda Kramer over de nieuwe economie en de beste batterij.
-- [Gen Z eist half meme half mens haar rechten op](https://fd.nl/samenleving/1616878/gen-z-eist-half-meme-half-mens-haar-rechten-op)
-  > Frida Boeke vindt het inspirerend, gen Z’ers die, van India tot Frankrijk, de straat op gaan voor beter onderwijs en betere baankansen.
-- [Tientallen miljoenen voor Nederlands investeringsfonds voor watertechnologie](https://fd.nl/bedrijfsleven/1616498/tientallen-miljoenen-voor-nederlands-investeringsfonds-voor-watertechnologie)
-  > Het Amsterdamse durfkapitaalfonds PureTerra heeft €40 mln binnengehaald van het Europese Investeringsfonds en InvestNL. ‘De beperkende factor is...
-- [Parlement wil methaanwet met drie jaar uitstellen](https://fd.nl/politiek/1616608/parlement-wil-methaanwet-met-drie-jaar-uitstellen)
-  > De nieuwe editie van de Europa-nieuwsbrief van het FD gaat over methaanregels, de nieuwe bedrijfsvorm EU Inc en de lijst met Europees erfgoed.
+- [Voor Genmab springen de seinen plotseling op groen](https://fd.nl/financiele-markten/1616826/voor-genmab-springen-de-seinen-plotseling-op-groen)
+  > Beurskoers van biotechbedrijf halveerde na 2022, maar veert dit jaar weer helemaal op
+- [Kabinet en InvestNL steken geld in ‘medtech’](https://fd.nl/politiek/1616903/kabinet-en-investnl-steken-geld-in-medtech)
+  > De komende jaren komen honderden miljoenen beschikbaar om bedrijven in medische technologie een zetje te geven.
+- [Kabinet trekt tot $500 mln uit voor bescherming van tropische bossen](https://fd.nl/politiek/1616836/kabinet-trekt-tot-500-mln-uit-voor-bescherming-van-tropische-bossen)
+  > Het fonds moet een oppervlakte van tweehonderd keer Nederland beschermen.
+- [Europese kennisinstellingen vragen vaker octrooien aan](https://fd.nl/tech-en-innovatie/1616899/europese-kennisinstellingen-vragen-vaker-octrooien-aan)
+  > TNO staat met 142 octrooiaanvragen in 2025 op de zevende plaats van onderzoeksinstituten in Europa.
+- [Verkiezingswinst Lula jaagt beleggers schrik aan, ‘markt zal pistool tegen zijn hoofd zetten’](https://fd.nl/financiele-markten/1616888/verkiezingswinst-lula-jaagt-beleggers-schrik-aan-markt-zal-pistool-tegen-zijn-hoofd-zetten)
+  > Beleggers reageren geschrokken op de overwinning van Luiz Inácio Lula da Silva, die onverwacht de Braziliaanse presidentsverkiezingen op zijn naam...
 
 ### Meest gelezen
 
