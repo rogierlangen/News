@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-10-2026 om 01:53*
+*Laatst bijgewerkt: 27-10-2026 om 07:31*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Onderzoek: aanzienlijke groep Nederlanders voelt zich achtergesteld](https://nos.nl/l/2636817)
-  > De meeste Nederlanders voelen zich niet achtergesteld. Maar een "aanzienlijke minderheid" heeft wél het gevoel dat mensen zoals zijzelf worden...
-- [Flávio Bolsonaro zegt dat hij Brazilië niet mag verlaten: 'Is intimidatiepoging'](https://nos.nl/l/2636816)
-  > De Braziliaanse senator en oud-presidentskandidaat Flávio Bolsonaro zegt dat de federale politie hem heeft opgedragen om zijn paspoorten in te...
-- [Rekenkamer: Huur blijft in Rotterdam te duur, ondanks aanpak gemeente](https://nos.nl/l/2636815)
-  > Veel particuliere huisbazen in Rotterdam vragen nog altijd een veel te hoge huur, ondanks de inspanning van de gemeente om daar iets aan te doen. Dat...
-- [Man in België verliest been nadat rugzak blijft hangen aan vertrekkende trein](https://nos.nl/l/2636812)
-  > In België heeft een man een been verloren nadat hij onder de trein terechtkwam. Dat gebeurde toen de trein vertrok en zijn rugzak klem kwam te...
-- [Na aanhoudende protesten komt Frankrijk met maatregelen voor beter onderwijs](https://nos.nl/l/2636808)
-  > De Franse regering komt met maatregelen om het onderwijs te verbeteren. Zo wordt 5 miljard euro uitgetrokken voor de renovatie van schoolgebouwen en...
+- [Jay-Z verzorgt halftimeshow Super Bowl volgend jaar: 'Hele reis geweest'](https://nos.nl/l/2636838)
+  > Rapper en muziekmagnaat Jay-Z verzorgt volgend jaar februari het optreden in de rust van de Super Bowl. De zogenoemde halftimeshow is een traditie...
+- [Jordanië voert aanvallen uit in Syrië na aanslag op kerk](https://nos.nl/l/2636834)
+  > Jordanië heeft in reactie op een aanslag op een kerk aanvallen uitgevoerd op doelen in Syrië. Vrijdag kwamen negen mensen om het leven en raakten...
+- [Quote-500 opgeschud door AI-ondernemers en nieuwe rijkste Nederlander](https://nos.nl/l/2636823)
+  > De 500 rijkste Nederlanders zijn afgelopen jaar nog rijker geworden, Nederland telt meer miljardairs en de rijkste Nederlander is dit jaar niet meer...
+- [Auto rijdt in op groep mensen in Duitsland, politie opent vuur](https://nos.nl/l/2636822)
+  > In Duitsland is gisteravond laat een auto ingereden op een groep mensen. De precieze toedracht is nog niet bekend, maar de politie gaat uit van...
+- [Wekdienst 27/10: Israël naar de stembus • Uitspraak over explosie Schammenkamp](https://nos.nl/l/2636821)
+  > Goedemorgen! Israël gaat naar de stembus om een nieuw parlement te kiezen en in Rotterdam doet de rechtbank uitspraak over de explosie in 2024 in een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Midden-Oosten | Acht doden bij Jordaanse vergeldingsaanvallen in Syrië](https://www.ad.nl/buitenland/live-midden-oosten-acht-doden-bij-jordaanse-vergeldingsaanvallen-in-syrie~ac528ac3/)
-  > Egypte kan Saoedi-Arabië helpen verdedigen tegen aanvallen van de Houthi’s in Jemen. Het Egyptische parlement heeft toestemming gegeven voor het...
-- [Voormalig FBI-directeur Comey voor derde keer aangeklaagd door regering-Trump](https://www.ad.nl/buitenland/voormalig-fbi-directeur-comey-voor-derde-keer-aangeklaagd-door-regering-trump~ae67dd9c/)
-  > Voormalig FBI-directeur James Comey wordt alweer voor de derde keer geconfronteerd met een strafzaak die onder druk van de regering van president...
-- [Centraal Beheer: afgelopen tien jaar ruim 200 duizend schadeclaims door extreem weer](https://www.ad.nl/economie/centraal-beheer-afgelopen-tien-jaar-ruim-200-duizend-schadeclaims-door-extreem-weer~af782b88/)
-  > Extreem weer heeft de afgelopen tien jaar gezorgd voor honderdduizenden gevallen van schade aan woningen die zijn verzekerd bij Centraal Beheer. In...
-- [Partij van Flavio Bolsonaro zegt winst Lula bij Braziliaanse verkiezingen te respecteren](https://www.ad.nl/buitenland/partij-van-flavio-bolsonaro-zegt-winst-lula-bij-braziliaanse-verkiezingen-te-respecteren~a2e9a00d/)
-  > De Braziliaanse Liberale Partij van senator Flavio Bolsonaro heeft verklaard de uitslag van de beslissende verkiezingsronde te erkennen. Dit blijkt...
-- [Iedereen even schuldig aan klimaatcrisis? Onzin, stelt Oxfam Novib: ‘Superrijken steken aarde in de fik’](https://www.ad.nl/economie/iedereen-even-schuldig-aan-klimaatcrisis-onzin-stelt-oxfam-novib-superrijken-steken-aarde-in-de-fik~af840c43/)
-  > De allerrijksten van de wereld stoten de meeste CO2 uit, zijn daarmee de grootste veroorzakers van klimaatverandering en profiteren zelfs van die...
+- [Macklemore roept op tot eenheid in eerste Free Palestine-concert: ‘Daarom zijn we hier vanavond’](https://www.ad.nl/show/macklemore-roept-op-tot-eenheid-in-eerste-free-palestine-concert-daarom-zijn-we-hier-vanavond~a842a9fe/)
+  > Macklemore heeft in zijn eerste concert van zijn Free Palestine-optredens benadrukt dat het hem gaat om ‘liefde en bevrijding’, zo schrijft Variety....
+- [Zo laat komen Verstappen en op titel jagende Antonelli komend weekend in actie in Mexico](https://www.ad.nl/formule-1/zo-laat-komen-verstappen-en-op-titel-jagende-antonelli-komend-weekend-in-actie-in-mexico~a617454f/)
+  > Het Formule 1-seizoen nadert zijn einde. Met de Grand Prix van Mexico staat komend weekend de negentiende van in totaal 23 races op het programma. En...
+- [‘Netanyahu wilde nog voor Israëlische verkiezingen Iran aanvallen’](https://www.ad.nl/buitenland/netanyahu-wilde-nog-voor-israelische-verkiezingen-iran-aanvallen~ac528ac3/)
+  > De Israëlische premier Benjamin Netanyahu stelde voor om nog voor verkiezingsdag aanvallen op Iran uit te voeren. Drie hooggeplaatste Israëlische...
+- [Gio en Lynn onthullen geslacht tweede kindje en Monique Smit showt gloednieuwe auto](https://www.ad.nl/show/gio-en-lynn-onthullen-geslacht-tweede-kindje-en-monique-smit-showt-gloednieuwe-auto~a1d81cbe/)
+  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
+- [Meerdere gewonden nadat auto op menigte inrijdt in Duitsland](https://www.ad.nl/buitenland/meerdere-gewonden-nadat-auto-op-menigte-inrijdt-in-duitsland~a1e5288c/)
+  > Meerdere mensen zijn maandagavond gewond geraakt toen een auto inreed op een menigte in Duitsland. De politie nam het voertuig onder vuur, meldt een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Erop of eronder voor Bibi Netanyahu](https://fd.nl/opinie/1616818/erop-of-eronder-voor-bibi-netanyahu)
-  > Israëlische kiezers stemmen vandaag over Netanyahu, al hebben ze weinig in de melk te brokkelen over de geopolitieke koers. Dat terwijl Trump en...
-- [Arme Fransen](https://fd.nl/opinie/1616912/arme-fransen)
-  > ‘De Fransen groeien op met het vereren en naspelen van hun historische opstanden.’
-- [Duitse dronemaker Helsing stapt in luchtafweerraketten om snellere Russische Geran-drone aan te pakken](https://fd.nl/bedrijfsleven/1616906/duitse-dronemaker-helsing-stapt-in-luchtafweerraketten-om-snellere-russische-geran-drone-aan-te-pakken)
-  > Het Duitse dronebedrijf Helsing komt medio 2027 met een nieuw luchtverdedigingssysteem dat een antwoord moet geven op nieuwe, moeilijk te bestrijden...
-- [Angst van kiezers voor Flávio Bolsonaro bezorgt Lula alsnog de zege](https://fd.nl/politiek/1616900/angst-van-kiezers-voor-flavio-bolsonaro-bezorgt-lula-alsnog-de-zege)
-  > Niet eerder won een Braziliaanse presidentskandidaat na een achterstand in de eerste ronde. Terwijl rechts elders in Latijns-Amerika de ene...
-- [Amerikaanse boeren voelen zich in de steek gelaten](https://fd.nl/politiek/1616877/amerikaanse-boeren-voelen-zich-in-de-steek-gelaten)
-  > Republikeinen konden in het verleden rekenen op de steun op het platteland. Maar na invoerheffingen en torenhoge dieselprijzen, kan daar weleens...
+- [Een licht, monumentaal herenhuis in het Brabantse Oosterhout](https://fd.nl/samenleving/1616828/een-licht-monumentaal-herenhuis-in-het-brabantse-oosterhout)
+  > ‘De kinderen die in de zandbak speelden, dat tik-tik-tikgeluid van de hockeystick tegen de bal, de sportteams die hier op zolder hebben geslapen. Het...
+- [Novartis verhoogt winstverwachting voor hele jaar](https://fd.nl/bedrijfsleven/1616921/novartis-verhoogt-winstverwachting-voor-hele-jaar)
+  > Winst per aandeel blijft stabiel of neemt met een ‘laag enkelvoudig percentage’ toe.
+- [CBS: aantal miljonairs groeide vorig jaar met 81.000](https://fd.nl/economie/1616980/cbs-aantal-miljonairs-groeide-vorig-jaar-met-81-000)
+  > Het aantal miljonairs steeg tot 547.000 begin 2025 en maakt daarmee 6,6% uit van alle huishoudens.
+- [Winst Pharming stijgt naar $22,4 mln](https://fd.nl/bedrijfsleven/1616979/winst-pharming-stijgt-naar-22-4-mln)
+  > Eerder deze maand meldde het biotechbedrijf dat zijn omzet met 21% gestegen was.
+- [Nobelprijswinnaar bepleit mondiale klimaatdeal: ‘Kan ook zonder de VS’](https://fd.nl/economie/1616907/nobelprijswinnaar-bepleit-mondiale-klimaatdeal-kan-ook-zonder-de-vs)
+  > Nobelprijswinnaar Esther Duflo heeft een veelomvattend plan om het klimaat te redden: een belasting voor miljardairs, meer geld voor de arme landen....
 
 ### Meest gelezen
 
