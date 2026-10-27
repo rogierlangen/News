@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 26-10-2026 om 22:26*
+*Laatst bijgewerkt: 27-10-2026 om 01:53*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Onderzoek: aanzienlijke groep Nederlanders voelt zich achtergesteld](https://nos.nl/l/2636817)
+  > De meeste Nederlanders voelen zich niet achtergesteld. Maar een "aanzienlijke minderheid" heeft wél het gevoel dat mensen zoals zijzelf worden...
+- [Flávio Bolsonaro zegt dat hij Brazilië niet mag verlaten: 'Is intimidatiepoging'](https://nos.nl/l/2636816)
+  > De Braziliaanse senator en oud-presidentskandidaat Flávio Bolsonaro zegt dat de federale politie hem heeft opgedragen om zijn paspoorten in te...
 - [Rekenkamer: Huur blijft in Rotterdam te duur, ondanks aanpak gemeente](https://nos.nl/l/2636815)
   > Veel particuliere huisbazen in Rotterdam vragen nog altijd een veel te hoge huur, ondanks de inspanning van de gemeente om daar iets aan te doen. Dat...
 - [Man in België verliest been nadat rugzak blijft hangen aan vertrekkende trein](https://nos.nl/l/2636812)
   > In België heeft een man een been verloren nadat hij onder de trein terechtkwam. Dat gebeurde toen de trein vertrok en zijn rugzak klem kwam te...
 - [Na aanhoudende protesten komt Frankrijk met maatregelen voor beter onderwijs](https://nos.nl/l/2636808)
   > De Franse regering komt met maatregelen om het onderwijs te verbeteren. Zo wordt 5 miljard euro uitgetrokken voor de renovatie van schoolgebouwen en...
-- [Schrijver Herman Koch heeft ziekte van Parkinson](https://nos.nl/l/2636807)
-  > Schrijver Herman Koch (73) heeft de ziekte van Parkinson. Dat maakt hij vanavond bekend in talkshow Eva. Sinds 2020 heeft Koch al uitgezaaide...
-- [Roemenië: door Russische geheime dienst aangestuurd sabotagenetwerk ontdekt](https://nos.nl/l/2636805)
-  > De Roemeense inlichtingendienst zegt een door Rusland gecoördineerd sabotagenetwerk te hebben opgespoord. Volgens de dienst heeft de groep in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Ontknoping Ballon d’Or nadert: pakt Kane, Yamal of Mbappé prijs voor beste voetballer?](https://www.ad.nl/voetbal/ontknoping-ballon-dor-nadert-pakt-kane-yamal-of-mbappe-prijs-voor-beste-voetballer~a52b10b8/)
-  > Het is tijd voor de verkiezing van de Gouden Bal. De prijs voor wereldvoetballer van het jaar is toe aan de 70ste editie. Daarom is het gala voor één...
-- [Geen Dembélé, geen probleem: PSG wint zonder voormalig Gouden Bal-winnaar van Lyon](https://www.ad.nl/voetbal/geen-dembele-geen-probleem-psg-wint-zonder-voormalig-gouden-bal-winnaar-van-lyon~a295bb79/)
-  > Paris Saint-Germain heeft gewonnen van Olympique Lyon terwijl het Ballon d’Or-gala bezig was. De Parijzenaren deden dat zonder steraanvaller en...
-- [Nederlander (40) overlijdt plotseling tijdens FC Twente-trip in Gibraltar, in het bijzijn van zijn vrienden](https://www.ad.nl/binnenland/nederlander-40-overlijdt-plotseling-tijdens-fc-twente-trip-in-gibraltar-in-het-bijzijn-van-zijn-vrienden~ae6bb04b/)
-  > Een supportersreis naar Gibraltar is afgelopen vrijdag uitgelopen op een drama. De 40-jarige FC Twente-supporter Ronald Draaisma werd ’s ochtends...
-- [Gigantisch ijsblok van 250.000 ton bedreigt Zwitsers bergdorp: ‘Gevaar elke dag groter’](https://www.ad.nl/buitenland/gigantisch-ijsblok-van-250-000-ton-bedreigt-zwitsers-bergdorp-gevaar-elke-dag-groter~af4f716b/)
-  > Een gigantisch ijsblok van 250.000 ton bedreigt het Zwitserse bergdorp Randa. De ijskolos hangt aan de zijkant van de 4506 meter hoge Weisshorn en...
-- [Politie over vergismoord op Jaison: ‘Dader kleedde zich om en keerde terug naar drukke Tiendplein’](https://www.ad.nl/rotterdam/politie-over-vergismoord-op-jaison-dader-kleedde-zich-om-en-keerde-terug-naar-drukke-tiendplein~ae90f951/)
-  > Vier jaar na de vergismoord op Jaison (30) heeft de politie nieuwe informatie over de schutter. De hoop is dat hierdoor eindelijk een doorbraak komt...
+- [LIVE Midden-Oosten | Acht doden bij Jordaanse vergeldingsaanvallen in Syrië](https://www.ad.nl/buitenland/live-midden-oosten-acht-doden-bij-jordaanse-vergeldingsaanvallen-in-syrie~ac528ac3/)
+  > Egypte kan Saoedi-Arabië helpen verdedigen tegen aanvallen van de Houthi’s in Jemen. Het Egyptische parlement heeft toestemming gegeven voor het...
+- [Voormalig FBI-directeur Comey voor derde keer aangeklaagd door regering-Trump](https://www.ad.nl/buitenland/voormalig-fbi-directeur-comey-voor-derde-keer-aangeklaagd-door-regering-trump~ae67dd9c/)
+  > Voormalig FBI-directeur James Comey wordt alweer voor de derde keer geconfronteerd met een strafzaak die onder druk van de regering van president...
+- [Centraal Beheer: afgelopen tien jaar ruim 200 duizend schadeclaims door extreem weer](https://www.ad.nl/economie/centraal-beheer-afgelopen-tien-jaar-ruim-200-duizend-schadeclaims-door-extreem-weer~af782b88/)
+  > Extreem weer heeft de afgelopen tien jaar gezorgd voor honderdduizenden gevallen van schade aan woningen die zijn verzekerd bij Centraal Beheer. In...
+- [Partij van Flavio Bolsonaro zegt winst Lula bij Braziliaanse verkiezingen te respecteren](https://www.ad.nl/buitenland/partij-van-flavio-bolsonaro-zegt-winst-lula-bij-braziliaanse-verkiezingen-te-respecteren~a2e9a00d/)
+  > De Braziliaanse Liberale Partij van senator Flavio Bolsonaro heeft verklaard de uitslag van de beslissende verkiezingsronde te erkennen. Dit blijkt...
+- [Iedereen even schuldig aan klimaatcrisis? Onzin, stelt Oxfam Novib: ‘Superrijken steken aarde in de fik’](https://www.ad.nl/economie/iedereen-even-schuldig-aan-klimaatcrisis-onzin-stelt-oxfam-novib-superrijken-steken-aarde-in-de-fik~af840c43/)
+  > De allerrijksten van de wereld stoten de meeste CO2 uit, zijn daarmee de grootste veroorzakers van klimaatverandering en profiteren zelfs van die...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Franse regering doet handreiking aan studenten, die doorgaan met protesteren](https://fd.nl/politiek/1616840/franse-regering-doet-handreiking-aan-studenten-die-doorgaan-met-protesteren)
-  > Er komt €4 mrd beschikbaar voor onder meer de renovatie van scholen en universiteiten,
-- [Wall Street in het groen op de dag van het Anthropic-prospectus](https://fd.nl/financiele-markten/1616913/wall-street-in-het-groen-op-de-dag-van-het-anthropic-prospectus)
-  > Het begin van de beursweek stond in het teken van het prospectus van Anthropic.
-- [Bitcoinplatform Bitonic gehackt, drie klanten bestolen](https://fd.nl/bedrijfsleven/1616914/bitcoinplatform-bitonic-gehackt-drie-klanten-bestolen)
-  > De hackers hebben ook inloggegevens van klanten kunnen inzien en kunnen wijzigen.
-- [Kabinet geeft zichzelf nog een week voor akkoord belastingplan en box 3](https://fd.nl/politiek/1616893/kabinet-geeft-zichzelf-nog-een-week-voor-akkoord-belastingplan-en-box-3)
-  > Uiterlijk volgende week maandag moet er duidelijkheid zijn, belooft staatssecretaris Eerenberg de Tweede Kamer. ‘We doen een extreem beroep op uw...
-- [Brussel geeft banken ruimte, nu moeten zij leveren](https://fd.nl/opinie/1616911/brussel-geeft-banken-ruimte-nu-moeten-zij-leveren)
-  > Brussel verlaagt de kapitaalbuffers die banken moeten aanhouden voor het verpakken van de veiligste leningen. Nu moeten zij bewijzen dat dit echt...
+- [Erop of eronder voor Bibi Netanyahu](https://fd.nl/opinie/1616818/erop-of-eronder-voor-bibi-netanyahu)
+  > Israëlische kiezers stemmen vandaag over Netanyahu, al hebben ze weinig in de melk te brokkelen over de geopolitieke koers. Dat terwijl Trump en...
+- [Arme Fransen](https://fd.nl/opinie/1616912/arme-fransen)
+  > ‘De Fransen groeien op met het vereren en naspelen van hun historische opstanden.’
+- [Duitse dronemaker Helsing stapt in luchtafweerraketten om snellere Russische Geran-drone aan te pakken](https://fd.nl/bedrijfsleven/1616906/duitse-dronemaker-helsing-stapt-in-luchtafweerraketten-om-snellere-russische-geran-drone-aan-te-pakken)
+  > Het Duitse dronebedrijf Helsing komt medio 2027 met een nieuw luchtverdedigingssysteem dat een antwoord moet geven op nieuwe, moeilijk te bestrijden...
+- [Angst van kiezers voor Flávio Bolsonaro bezorgt Lula alsnog de zege](https://fd.nl/politiek/1616900/angst-van-kiezers-voor-flavio-bolsonaro-bezorgt-lula-alsnog-de-zege)
+  > Niet eerder won een Braziliaanse presidentskandidaat na een achterstand in de eerste ronde. Terwijl rechts elders in Latijns-Amerika de ene...
+- [Amerikaanse boeren voelen zich in de steek gelaten](https://fd.nl/politiek/1616877/amerikaanse-boeren-voelen-zich-in-de-steek-gelaten)
+  > Republikeinen konden in het verleden rekenen op de steun op het platteland. Maar na invoerheffingen en torenhoge dieselprijzen, kan daar weleens...
 
 ### Meest gelezen
 
