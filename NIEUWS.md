@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 27-10-2026 om 14:11*
+*Laatst bijgewerkt: 27-10-2026 om 19:56*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Europese Commissie wil dat EU-landen zich voorbereiden op 3 graden opwarming](https://nos.nl/l/2636893)
-  > De Europese Commissie wil dat EU-landen zich beter gaan wapenen tegen de gevolgen van klimaatverandering. Landen moeten bij nieuwe plannen rekening...
-- [Podcast De Dag: na Orbán valt Vucic, maar hoe ruim je corruptie op?](https://nos.nl/l/2636888)
-  > De studenten in Servië kunnen het bijna niet geloven: hun beweging heeft een einde gemaakt aan het autoritaire regime van oud-president Vucic. Hun...
-- [Drukte bij boekwinkels vannacht om nieuw boek in Acotar-reeks, 'zo'n hype gebeurt niet vaak'](https://nos.nl/l/2636887)
-  > Boekenwinkels in Nederland hebben vannacht hun deuren geopend voor het nieuwste deel van de Hof van Doorns en Rozen-boekenserie van Sarah J. Maas....
-- [Funderingsproblemen? Dan krijg je mogelijk een minder hoge hypotheek](https://nos.nl/l/2636879)
-  > Toekomstige huiseigenaren van een pand met funderingsproblemen kunnen straks mogelijk een minder hoge hypotheek krijgen als zij die afsluiten met...
-- [Vrijspraak in zaak rond dodelijke explosie flatgebouw Schammenkamp Rotterdam](https://nos.nl/l/2636878)
-  > De man die werd verdacht van betrokkenheid bij de dodelijke explosie aan de Schammenkamp in Rotterdam twee jaar geleden, is vrijgesproken. Dat heeft...
+- [Mysterieuze cryptobaas en handige AI-ontwikkelaar: wie zijn de nieuwkomers in de Quote 500?](https://nos.nl/l/2636937)
+  > De doorgaans vrij voorspelbare lijst van de Quote-500 is dit jaar opgeschud met allerhande tech-ondernemers, zo werd vanmorgen bekend. Opvallende...
+- [Twee Britten aangeklaagd voor 'complot' bij RAF-luchtmachtbasis](https://nos.nl/l/2636935)
+  > In een rechtbank in Londen zijn twee Britten aangeklaagd voor de gebeurtenissen op 27 september bij de RAF-luchtmachtbasis in Fairford.
+        De...
+- [Ebola grijpt verder om zich heen in Congo: ruim 10.000 mensen besmet](https://nos.nl/l/2636934)
+  > In de Democratische Republiek Congo zijn nu meer dan 10.000 gevallen van ebola vastgesteld, zo blijkt uit officiële cijfers van de Congolese...
+- [OM eist hoge straffen tegen medewerkers illegale medicijnensite](https://nos.nl/l/2636928)
+  > Het Openbaar Ministerie eist 10 en 6,5 jaar tegen twee verdachten achter Slaappillen.net. Die webshop verkocht onder andere een namaakversie van de...
+- [Flávio Bolsonaro verlaat Brazilië en is met gezin op weg naar VS na verkiezingsnederlaag](https://nos.nl/l/2636927)
+  > De Braziliaanse senator en oud-presidentskandidaat Flávio Bolsonaro heeft het land verlaten. Hij is met zijn vrouw en twee dochters naar de Verenigde...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Suzan & Freek, Merel Westrik en Connie Palmen in het zonnetje gezet tijdens uitblinkerslunch van koningspaar](https://www.ad.nl/show/suzan-en-freek-merel-westrik-en-connie-palmen-in-het-zonnetje-gezet-tijdens-uitblinkerslunch-van-koningspaar~ae0d8a76/)
-  > Suzan en Freek Rikkerink zijn dinsdag in het zonnetje gezet in Paleis Noordeinde. Het zangduo was door koning Willem-Alexander en koningin Máxima...
-- [NPO-baas over mislukte songfestivalmissie: ‘Het bleek voor omroepen toch een te grote stap’](https://www.ad.nl/show/npo-baas-over-mislukte-songfestivalmissie-het-bleek-voor-omroepen-toch-een-te-grote-stap~a91c136f/)
-  > Er waren wel degelijk omroepen die het beladen Eurovisie Songfestival wilden tackelen, maar het werd hen uiteindelijk toch te heet onder de voeten....
-- [Beleef het Europees voetbal live: maak kans op 2 exclusieve tickets voor jouw favoriete club!](https://www.ad.nl/voetbal/beleef-het-europees-voetbal-live-maak-kans-op-2-exclusieve-tickets-voor-jouw-favoriete-club~a95cb62e/)
-  > Wil jij jouw favoriete club in het stadion vanaf de tribune aanmoedigen tijdens een Europese wedstrijd? Maak gedurende het UEFA Europees...
-- [Na zelfdoding in cel wil weduwe eigen onderzoek en eist ze stukken op over zorg voor haar man](https://www.ad.nl/binnenland/na-zelfdoding-in-cel-wil-weduwe-eigen-onderzoek-en-eist-ze-stukken-op-over-zorg-voor-haar-man~a2a008f5/)
-  > Als Martinus Z. (58) thuis zo wanhopig was geweest dat hij niet meer wist wat hij met zichzelf aan moest, had ze direct aan de bel getrokken. Maar de...
-- [Taylor Swift blikt in Nashville terug op pijnlijke stunt van grote countryster: ‘Maandenlang kon ik niet slapen’](https://www.ad.nl/show/taylor-swift-blikt-in-nashville-terug-op-pijnlijke-stunt-van-grote-countryster-maandenlang-kon-ik-niet-slapen~aac86136/)
-  > Taylor Swift (36) is maandagavond officieel opgenomen in de Nashville Songwriters Hall of Fame. Tijdens haar speech haalde ze herinneringen op over...
+- [Dapper Excelsior’31 houdt stand in verlenging, overwerk voor ADO Den Haag in Rijsse](https://www.ad.nl/voetbal/dapper-excelsior31-houdt-stand-in-verlenging-overwerk-voor-ado-den-haag-in-rijsse~a7b8c833/)
+  > ADO Den Haag krijgt Excelsior’31 in reguliere speeltijd niet op de knieën. Dus gaan beide teams verlengen in de eerste ronde van de Eurojackpot KNVB...
+- [Cambuur met man meer na kopstoot speler Kloetinge, Willem II draait het om in Helmond mede dankzij omhaal](https://www.ad.nl/voetbal/cambuur-met-man-meer-na-kopstoot-speler-kloetinge-willem-ii-draait-het-om-in-helmond-mede-dankzij-omhaal~a00086bc/)
+  > Een vol programma in de Eurojackpot KNVB Beker vanavond. SC Cambuur gaat op bezoek bij Kloetinge, Koninklijke HFC ontvangt Go Ahead Eagles en er is...
+- [Songfestivalfans balen van Nederlandse afmelding: ‘Ging het nog maar over pruikjes en windmachines’](https://www.ad.nl/binnenland/songfestivalfans-balen-van-nederlandse-afmelding-ging-het-nog-maar-over-pruikjes-en-windmachines~a32db02e/)
+  > Voor Eurovisie Songfestival-superfans is het nieuws dat Nederland dit jaar tóch niet meedoet een domper. Mirjam (55) en Patrick (54) reizen sinds...
+- [Tijjani Noslin en Kenneth Taylor scoren erop los voor koploper Lazio in chaotisch duel met Sassuolo](https://www.ad.nl/voetbal/tijjani-noslin-en-kenneth-taylor-scoren-erop-los-voor-koploper-lazio-in-chaotisch-duel-met-sassuolo~a18c1698/)
+  > Kenneth Taylor en Tijjani Noslin hebben SS Lazio naar een nieuwe overwinning geholpen. De Nederlanders waren goed voor drie doelpunten en een assist...
+- [Brazilië onderzoekt buitenlandse financiering campagne Bolsonaro](https://www.ad.nl/buitenland/brazilie-onderzoekt-buitenlandse-financiering-campagne-bolsonaro~adf0b7b4/)
+  > Brazilië stelt een onderzoek in naar mogelijke illegale buitenlandse financiering van de presidentscampagne van senator Flávio Bolsonaro, die zondag...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [DNB: Nederlandse huishoudens hebben €3,2 mrd aan crypto](https://fd.nl/economie/1617185/dnb-nederlandse-huishoudens-hebben-3-2-mrd-aan-crypto)
-  > Volgens De Nederlandsche Bank bezitten Nederlandse huishoudens voor €3,2 mrd aan cryptovaluta bij Nederlandse beurzen.
-- [Bolsonaro vecht uitslag Braziliaanse presidentsverkiezingen toch niet aan](https://fd.nl/politiek/1617179/bolsonaro-vecht-uitslag-braziliaanse-presidentsverkiezingen-toch-niet-aan)
-  > De Liberale Partij van Flávio Bolsonaro ging nog een stap verder en erkende officieel de nederlaag van de presidentskandidaat.
-- [Brussel waarschuwt lidstaten: houd rekening met snellere opwarming](https://fd.nl/politiek/1617181/brussel-waarschuwt-lidstaten-houd-rekening-met-snellere-opwarming)
-  > Stoelriemen vast, waarschuwt Brussel. Europese landen moeten in hun beleidsmaatregelen en investeringen om klimaatschade te beperken rekening houden...
-- [Advocaten vrezen AI om de verkeerde reden: verlies van status](https://fd.nl/opinie/1616880/advocaten-vrezen-ai-om-de-verkeerde-reden-verlies-van-status)
-  > Het is begrijpelijk dat advocaten niet willen inleveren op werkvoldoening en status door de inzet van AI. Maar die houding levert ons een verzwakte...
-- [Een op de vijftien huishoudens bezit een miljoen](https://fd.nl/economie/1617283/een-op-de-vijftien-huishoudens-bezit-een-miljoen)
-  > Sinds de huizenmarkt in de lift zit, is het aantal miljonairs in Nederland ruimschoots verdubbeld. Bloemendaal en Laren hebben het hoogste aandeel...
+- [Route grondbeleid is juiste middenweg](https://fd.nl/opinie/1617297/route-grondbeleid-is-juiste-middenweg)
+  > Het kabinet heeft het plan van de ChristenUnie omarmd om hoge grondprijzen tegen te gaan. Dit moet helpen om de bouw van woningen makkelijker te...
+- [Minimumbelasting multinationals levert in één jaar bijna 0,5 mrd op](https://fd.nl/politiek/1617303/minimumbelasting-multinationals-levert-in-een-jaar-bijna-half-miljard-op)
+  > Iets minder dan een derde van de opbrengst komt van winsten die in Nederland te laag zijn belast.
+- [Mbappé biedt excuses aan na lachen om ‘Chinese dictator-meme’](https://fd.nl/samenleving/1617301/mbappe-biedt-excuses-aan-na-lachen-om-dictator-meme)
+  > Hoewel Mbappé de naam van Mao dus niet noemde, melden media, onder meer uit China, dat het om hem gaat.
+- [India gaat volgend jaar flink meer diesel leveren](https://fd.nl/economie/1617302/india-gaat-volgend-jaar-flink-meer-diesel-leveren)
+  > ‘We komen in de gelukkige positie dat we niet alleen voor onszelf raffineren, maar voor de hele wereld’, zei de Indiase minister van olie dinsdag.
+- [Boerenorganisaties voeren de druk op het kabinet op om stikstofplannen](https://fd.nl/politiek/1617195/boerenorganisaties-voeren-de-druk-op-het-kabinet-op-om-stikstofplannen)
+  > Na een ‘vrij intensief’ en ‘ongemakkelijk’ gesprek volgt donderdag nog een overleg, voordat het kabinet vrijdag een wetsvoorstel naar de Kamer stuurt.
 
 ### Meest gelezen
 
