@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 29-10-2026 om 18:50*
+*Laatst bijgewerkt: 29-10-2026 om 23:07*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Vast, variabel of dynamisch? Huishoudens op zoek naar juiste energiecontract](https://nos.nl/l/2637204)
-  > Al maanden stijgen de prijzen voor olie en gas door de oorlog in het Midden-Oosten. Grote energieconcerns lijden daar niet onder, blijkt vandaag uit...
-- [Na eerdere vrijspraak 11 jaar celstraf voor man die vriendin doodde in 2016](https://nos.nl/l/2637199)
-  > Een 48-jarige man uit Harderwijk is in hoger beroep veroordeeld tot elf jaar celstraf voor het doden van zijn vriendin in 2016. De rechtbank sprak de...
-- [Japan en Duitsland worden ‘premium partners’, maar botsen over bescherming auto’s](https://nos.nl/l/2637198)
-  > Met glimlachen, buigingen en afspraken over nauwere samenwerking ontvangt de Japanse premier Sanae Takaichi de Duitse bondskanselier Friedrich Merz...
-- [Italië laat gepersonaliseerde kentekenplaten toe, plan wordt bespot](https://nos.nl/l/2637192)
-  > TI-104MO (Ti Amo), AM-013RE (Amore) of MA-771EO (Matteo). Vanaf volgend jaar kunnen Italianen de kentekenplaat van hun voertuig personaliseren. De...
-- [Het wordt een droog weekend met weinig wind, maar niet altijd zonnig](https://nos.nl/l/2637191)
-  > Het verschil met vorig weekend kan bijna niet groter. Toen leidden stormen Austen en Boelo tot veel wind en regen. Dit weekend is het soms zelfs...
+- [Zware gevechten in Jemen, Houthi's beschuldigd van veroorzaken hongersnood](https://nos.nl/l/2637233)
+  > Op verschillende plekken in Jemen is sprake van zware gevechten en bombardementen. Alleen al in de belegerde stad Taiz worden dertien doden gemeld,...
+- [In Mali gevonden meteoriet blijkt 4,1 miljard jaar oud](https://nos.nl/l/2637228)
+  > Een marsmeteoriet die in september 2022 in de Sahara-woestijn in Mali werd gevonden door zogenoemde Sahrawi-meteorietenjagers, blijkt na onderzoek...
+- [Doden door instorting rotsformatie in Turkse toeristische regio Cappadocië](https://nos.nl/l/2637227)
+  > In Turkije zijn zeker drie mensen om het leven gekomen doordat een rotsformatie in de historische regio Cappadocië is ingestort. Ook raakten vijf...
+- [Agent tasert pakketbezorger na foutparkeren Amsterdam, omstanders verontwaardigd](https://nos.nl/l/2637226)
+  > Een pakketbezorger in Amsterdam is vanmiddag getaserd bij zijn aanhouding. Volgens de politie blokkeerde de bezorger de weg bij het laden en lossen...
+- [Kabinet wil dat roken verboden wordt op plekken waar veel kinderen zijn](https://nos.nl/l/2637223)
+  > Roken op plekken waar veel kinderen zijn wordt verboden, als het aan het kabinet ligt. Mensen zouden dan niet meer een sigaret mogen opsteken bij...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Emma Kok gaat er even tussenuit met nieuwe vriend en Samantha Steenwijk probeert koe te redden](https://www.ad.nl/show/emma-kok-gaat-er-even-tussenuit-met-nieuwe-vriend-en-samantha-steenwijk-probeert-koe-te-redden~a1d81cbe/)
-  > Korte updates van de sterren op sociale media: wij smullen ervan. In de rubriek Showbytes struint de showredactie het web voor je af voor de gekste,...
-- [Nikolas Panagiotou breekt ban bij slap FC Utrecht](https://www.ad.nl/voetbal/nikolas-panagiotou-breekt-ban-bij-slap-fc-utrecht~a1e4e3e1/)
-  > FC Utrecht had het lange tijd erg lastig met Kozakken Boys in de eerste ronde van de Eurojackpot KNVB Beker. Maar de Griek Nikolas Panagiotou brak...
-- [Netanyahu spreekt van ‘gestolen verkiezingen’ na historische Arabische winst](https://www.ad.nl/buitenland/netanyahu-spreekt-van-gestolen-verkiezingen-na-historische-arabische-winst~ab594b45/)
-  > In Israël gaat het een paar dagen na de verkiezingen niet meer over de zetelverdeling, maar over de vraag of de stembusgang wel eerlijk is verlopen....
-- [Voorkom schaamte, praat op tijd over de menstruatie: ‘We leren dat je alles rond ongesteldheid moet verstoppen’](https://www.ad.nl/gezond/voorkom-schaamte-praat-op-tijd-over-de-menstruatie-we-leren-dat-je-alles-rond-ongesteldheid-moet-verstoppen~a51ab3f2/)
-  > De menstruatie, daar praat je niet over. Maar daardoor leren meisjes dat ze alles rond hun ongesteldheid moeten verbergen, zeggen deskundigen. Met...
-- [Meerdere doden nadat militaire helikopter crasht in Bosnië en Herzegovina](https://www.ad.nl/buitenland/meerdere-doden-nadat-militaire-helikopter-crasht-in-bosnie-en-herzegovina~a0b57993/)
-  > In Bosnië en Herzegovina is een Italiaanse militaire helikopter neergestort. Drie mensen zijn hierbij overleden en twaalf mensen raakten gewond,...
+- [AD Voetbalpodcast | ‘Als Feyenoord Hadj Moussa in de winterstop verkoopt, verkopen ze het kampioenschap’](https://www.ad.nl/voetbal/ad-voetbalpodcast-als-feyenoord-hadj-moussa-in-de-winterstop-verkoopt-verkopen-ze-het-kampioenschap~a42af5cd9/)
+  > De AD Voetbalpodcast gaat dit seizoen elke bekerronde op bezoek bij één wedstrijd van een amateurclub om daar vandaan de podcast te maken. In deze...
+- [Zo laat komen Verstappen en op titel jagende Antonelli dit weekend in actie](https://www.ad.nl/formule-1/zo-laat-komen-verstappen-en-op-titel-jagende-antonelli-dit-weekend-in-actie~a617454f/)
+  > Het Formule 1-seizoen nadert zijn einde. Met de Grand Prix van Mexico staat komend weekend de negentiende van in totaal 23 races op het programma. En...
+- [Max Verstappen leeft mee met zieke Kimi Antonelli: ‘Niet voor niets dat coureurs en andere mensen bij teams nu ziek worden’](https://www.ad.nl/formule-1/max-verstappen-leeft-mee-met-zieke-kimi-antonelli-niet-voor-niets-dat-coureurs-en-andere-mensen-bij-teams-nu-ziek-worden~af71f13f/)
+  > Max Verstappen is niet verbaasd dat enkele Formule 1-coureurs zich donderdag ziek moesten afmelden voor de mediadag van de Grand Prix van Mexico....
+- [Scorende Esmee Brugts draagt bij aan monsterzege FC Barcelona in Champions League](https://www.ad.nl/voetbal/scorende-esmee-brugts-draagt-bij-aan-monsterzege-fc-barcelona-in-champions-league~aba53e71/)
+  > De voetbalsters van FC Barcelona hebben, niet voor het eerst dit seizoen, met ruime cijfers gewonnen in de Champions League. Mede dankzij een...
+- [PSV, Ajax, Feyenoord én tien amateurclubs in de koker: doe hier zelf de loting voor de KNVB-beker](https://www.ad.nl/voetbal/psv-ajax-feyenoord-en-tien-amateurclubs-in-de-koker-doe-hier-zelf-de-loting-voor-de-knvb-beker~a81aab7c/)
+  > 32 clubs gaan vrijdagmiddag in de koker voor de tweede ronde van de Eurojackpot KNVB Beker. De Europese deelnemers stromen vanaf dan ook in. Dit zijn...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [NX Filtration wil €20 mln ophalen via plaatsing aandelen](https://fd.nl/bedrijfsleven/1617559/nx-filtration-wil-20-mln-ophalen-via-plaatsing-aandelen)
-  > De uitgifteprijs en het definitieve aantal nieuwe aandelen worden naar verwachting vrijdag 30 oktober voor opening van de beurs bekendgemaakt.
-- [Oppositie kritisch over schrappen renteplafond op studieschulden](https://fd.nl/politiek/1617558/oppositie-kritisch-over-schrappen-renteplafond-op-studieschulden)
-  > De in het coalitieakkoord beloofde rentebeperking is te risicovol en te duur, stelt de minister van Onderwijs. De oppositie vraagt zich af of de...
-- [Voor Monte dei Paschi di Siena is het einde als oudste zelfstandige bank van Italië nabij](https://fd.nl/bedrijfsleven/1617552/voor-monte-dei-paschi-di-siena-is-het-einde-als-oudste-zelfstandige-bank-van-italie-nabij)
-  > De ceo van de bank heeft niet genoeg steun kunnen vergaren voor zijn plan om het miljardenbod van branchegenoot Intesa Sanpaolo af te wenden.
-- [‘Mr. Luxaflex’ Sonnenberg op 92-jarige leeftijd overleden](https://fd.nl/bedrijfsleven/1617557/mr-luxaflex-sonnenberg-op-92-jarige-leeftijd-overleden)
-  > De oud-topman en eigenaar van raambekledingsbedrijf Hunter Douglas was een van de rijkste Nederlanders met een geschat vermogen van bijna €7 mrd.
-- [Nog meer huurhuizen in de uitverkoop](https://fd.nl/financiele-markten/1617478/nog-meer-huurhuizen-in-de-uitverkoop)
-  > De grootste verkoopgolf onder woningbeleggers mag volgens sommige marktkenners achter ons liggen, in echt rustig vaarwater komen we nog niet.
+- [Bod van €30 mrd op Italiaanse familieholding achter Ray-Ban](https://fd.nl/bedrijfsleven/1617606/bod-van-30-mrd-op-italiaanse-familieholding-achter-ray-ban)
+  > ‘Het levenswerk van mijn vader moet onderdeel blijven van het Italiaanse erfgoed’, reageerde Leonardo Maria Del Vecchio, een van de eigenaren van...
+- [Koers Intel duikt nabeurs hard omlaag na teleurstellende vooruitzichten](https://fd.nl/bedrijfsleven/1617562/koers-intel-duikt-nabeurs-hard-omlaag-na-teleurstellende-vooruitzichten)
+  > De chipmaker heeft last van tegenvallende verkopen van pc’s door gestegen prijzen en lagere vervangingsvraag.
+- [Google trekt technologiesector omlaag](https://fd.nl/financiele-markten/1617561/google-trekt-technologiesector-omlaag)
+  > Torenhoge AI-investeringen en dalende advertentie-inkomsten bij de zoekmachine baren beleggers op Wall Street zorgen.
+- [Grote druk op Spaanse regering na tweede treinramp in korte tijd: ‘Dringen al jaren aan op maatregelen’](https://fd.nl/samenleving/1617442/grote-druk-op-spaanse-regering-na-tweede-treinramp-in-tien-maanden-dringen-al-jaren-aan-op-maatregelen)
+  > Van alle kanten klinkt de roep om onmiddellijke maatregelen die de veiligheid op het spoor verhogen. Deze tweede treinramp in tien maanden tijd heeft...
+- [Venezuela kondigt eerste verkiezingen aan sinds gevangenneming Maduro](https://fd.nl/politiek/1617443/venezuela-kondigt-eerste-verkiezingen-aan-sinds-gevangenneming-maduro)
+  > Delcy Rodríguez is sinds elf maanden aan de macht in Venezuela, nadat de Verenigde Staten president Nicolás Maduro gevangen hadden genomen.
 
 ### Meest gelezen
 
