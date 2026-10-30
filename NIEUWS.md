@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-10-2026 om 12:25*
+*Laatst bijgewerkt: 30-10-2026 om 18:27*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Australische Hyrox-atleet blikt terug op poep-incident: 'Ik ben ook maar een mens'](https://nos.nl/l/2637293)
-  > De Australische atleet, die vorige maand wereldnieuws was nadat ze tijdens een Hyrox-wedstrijd een diarree-aanval had, heeft excuses aangeboden omdat...
-- [Een week na bouwramp in Nairobi gaat zoektocht naar slachtoffers door](https://nos.nl/l/2637292)
-  > Hulpdiensten in Kenia zijn nog steeds op zoek naar slachtoffers van de bouwramp die vorige week in Nairobi plaatsvond. Een gebouw van achttien...
-- [Zeeuws Statenlid opnieuw in opspraak, zou in kamer Hugo de Jonge zijn geweest](https://nos.nl/l/2637291)
-  > Onder leden van de Provinciale Staten heerst ophef over acties van een mede-Statenlid. Volgens commissaris van de Koning Hugo de Jonge heeft Martin...
-- [Politie: getaserde bezorger wilde papieren niet tonen en pakte agent bij pols](https://nos.nl/l/2637290)
-  > De agent die gisteren in het Amsterdamse centrum een pakketbezorger met een taser beschoot, zag volgens de politie op dat moment geen andere manier...
-- [Hulp bereikt bezette Oekraïense stad Olesjky, 'honderden mensen geëvacueerd'](https://nos.nl/l/2637289)
-  > Het humanitair konvooi dat is ingezet om mensen die vastzitten in de Oekraïense stad Olesjky te helpen, is op gang gekomen. Het hulpkonvooi van zo'n...
+- [Advocaat van Overasseltse drugscrimineel Jan G. stopt ermee](https://nos.nl/l/2637348)
+  > De advocaat van Jan G. uit Overasselt heeft de verdediging vandaag neergelegd. Dat bevestigt hij aan de NOS. Over de reden wil hij niets zeggen.
+    ...
+- [DNA-match leidt tot arrestatie 57-jarige man voor zedenzaak uit 1994](https://nos.nl/l/2637347)
+  > Een 57-jarige man uit Helmond is aangehouden op verdenking van het verkrachten van een 15-jarige meisje in 1994. De politie kwam de man na ruim 30...
+- [Mogelijk verwarde man rent op koning af bij werkbezoek in Ursem](https://nos.nl/l/2637344)
+  > Bij een werkbezoek aan het Noord-Hollandse dorp Ursem is koning Willem-Alexander vanmiddag aangesproken door een mogelijk verwarde man. Dat gebeurde...
+- [Frankrijk roept miljoenen condooms terug vanwege fabricagefouten](https://nos.nl/l/2637343)
+  > Frankrijk roept opnieuw onveilige condooms terug. Volgens de Franse instantie voor consumentenbescherming en fraudebestrijding zijn bij vijftien...
+- [Ouwehands neemt afscheid van panda Lang Yue: 'Voor altijd een beetje van ons'](https://nos.nl/l/2637342)
+  > In Ouwehands Dierenpark in Rhenen is vanochtend afscheid genomen van de 2-jarige panda Lang Yue. Het dier vertrekt vandaag naar China. "Maar ze is...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Politie geeft uitleg over agent die taser gebruikte op pakketbezorger: ‘We vragen niet meteen oordeel te vellen’](https://www.ad.nl/binnenland/politie-geeft-uitleg-over-agent-die-taser-gebruikte-op-pakketbezorger-we-vragen-niet-meteen-oordeel-te-vellen~a7e444f0/)
-  > Een pakketbezorger is donderdagmiddag op de Runstraat in Amsterdam getaserd door een politieagent die hem wilde aanhouden. Dat blijkt uit...
-- [Twee jaar cel geëist tegen voetballer Radja Nainggolan voor witwaspraktijken](https://www.ad.nl/voetbal/twee-jaar-cel-geeist-tegen-voetballer-radja-nainggolan-voor-witwaspraktijken~a714130f/)
-  > Het Brusselse parket heeft vrijdag twee jaar cel geëist tegen voetballer Radja Nainggolan. Hij zou 105.500 euro hebben witgewassen voor een criminele...
-- [Zo herken je verschillende soorten hoofdpijn: ‘Spanningshoofdpijn kan knellend voelen’](https://www.ad.nl/gezond/zo-herken-je-verschillende-soorten-hoofdpijn-spanningshoofdpijn-kan-knellend-voelen~a07ed75e/)
-  > Hoofdpijn, wie heeft er niet af en toe last van? Soms zit de oorzaak niet in ons hoofd zelf, maar in de spieren of de gewrichten in de nek die ons...
-- ['Ik lag trillend in mijn bed': Niet alleen Vincent Kompany worstelt met immense werkdruk](https://www.ad.nl/voetbal/ik-lag-trillend-in-mijn-bed-niet-alleen-vincent-kompany-worstelt-met-immense-werkdruk~a97317c4/)
-  > Vincent Kompany moest zijn werk bij Bayern München deze week abrupt staken, nadat hij op het trainingsveld ineen zakte. De Belgische trainer is niet...
-- [Sparta zou zevende staan en Fortuna bijna laatste: zo werken de ‘expected points’](https://www.ad.nl/voetbal/sparta-zou-zevende-staan-en-fortuna-bijna-laatste-zo-werken-de-expected-points~a97a7777/)
-  > Als we de modellen van databureau Opta volgen, zou Fortuna Sittard niet op de zesde, maar op de zeventiende plaats staan. Sparta zou juist zevende...
+- [Bij deze profieldiepte neemt kans op aquaplaning toe, maar automobilist stelt koop nieuwe banden uit](https://www.ad.nl/auto/bij-deze-profieldiepte-neemt-kans-op-aquaplaning-toe-maar-automobilist-stelt-koop-nieuwe-banden-uit~a859694b/)
+  > Een op de vier automobilisten wacht met nieuwe banden kopen tot het echt niet anders meer kan. Vooral jonge bestuurders onderschatten de gevaren,...
+- [Dit moet Kimi Antonelli doen om dit weekend wereldtitel te pakken in Mexico](https://www.ad.nl/formule-1/dit-moet-kimi-antonelli-doen-om-dit-weekend-wereldtitel-te-pakken-in-mexico~a8a75660/)
+  > Kimi Antonelli gaat dit weekend naar alle waarschijnlijkheid zijn eerste wereldtitel binnenslepen. In de Verenigde Staten eindigden Lewis Hamilton en...
+- [Eerste vrije training in Mexico zonder Max Verstappen, maar met tien ‘rookies’](https://www.ad.nl/formule-1/eerste-vrije-training-in-mexico-zonder-max-verstappen-maar-met-tien-rookies~ab6ea14d/)
+  > Geen Max Verstappen tijdens de eerste training in Mexico. De coureur van Red Bull Racing krijgt vrij tijdens de eerste sessie van het weekend en zal...
+- [Op het laatste moment nog een halloweenkostuum nodig? Deze outfits heb je sowieso in huis](https://www.ad.nl/mode/op-het-laatste-moment-nog-een-halloweenkostuum-nodig-deze-outfits-heb-je-sowieso-in-huis~a8efc4e6/)
+  > Dit weekend staat Halloween voor de deur. Voor veel mensen iets waar ze weken naar uitkijken, maar een grote groep Nederlanders vergeet compleet een...
+- [Het is tijd om de Nederlandse voetbalpiramide eindelijk eens open te gooien](https://www.ad.nl/voetbal/het-is-tijd-om-de-nederlandse-voetbalpiramide-eindelijk-eens-open-te-gooien~a2c522ed/)
+  > Columnist Sjoerd Mossou genoot volop van het Nederlandse bekervoetbal, maar zag ook bevestigd dat het tijd is voor verandering. „Bij de grootste...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Beursgang Anthropic geeft beleggers eindelijk een tastbare AI-barometer](https://fd.nl/financiele-markten/1617449/met-beursgang-anthropic-krijgen-beleggers-een-tastbare-ai-barometer)
-  > De AI-hausse zet door nu Anthropic zich opmaakt voor een beursgang, mogelijk de grootste aller tijden. Voor beleggers wordt het ontastbare tastbaar:...
-- [Onafhankelijke krant Novaja Gazeta stopt door druk Russische autoriteiten](https://fd.nl/politiek/1617679/onafhankelijke-krant-novaja-gazeta-stopt-door-druk-russische-autoriteiten)
-  > Met het verdwijnen van Novaja Gazeta verliest Rusland een van zijn allerlaatste kritische media.
-- [Rechts oppositieblok ontevreden na ‘ingewikkeld’ gesprek met kabinet](https://fd.nl/politiek/1617620/rechts-oppositieblok-niet-blij-na-ingewikkeld-gesprek-met-kabinet)
-  > ‘Het gaat nog niet zoals wij willen’, zei JA21-leider Joost Eerdmans na afloop van zijn gesprek.
-- [Bureaucratisch rapport moet bureaucratie verbeteren](https://fd.nl/politiek/1617541/bureaucratisch-rapport-moet-bureaucratie-verbeteren)
-  > Brussel moet zich meer ‘focussen op uitkomsten, niet op processen’, stelt een expertpanel in een rapport. Dat werkstuk is een feest van...
-- [Minister Vincent Karremans: ‘Hinder van Schiphol blijft altijd’](https://fd.nl/economie/1617432/minister-vincent-karremans-hinder-van-schiphol-blijft-altijd)
-  > Vanaf zondag gelden nieuwe geluidsregels rond Schiphol. Daarmee hoopt Karremans de luchthaven juridisch vaste grond onder de voeten te geven. Toch is...
+- [AEX sluit knettergekke beursweek af met lichte winst](https://fd.nl/financiele-markten/1617681/aex-sluit-knettergekke-beursweek-af-met-lichte-winst)
+  > In deze beursweek vlogen de miljarden om de oren van beleggers.
+- [Cao-onderhandeling streekvervoer muurvast: vakbonden verwachten weer stakingen](https://fd.nl/bedrijfsleven/1617653/cao-onderhandeling-streekvervoer-muurvast-vakbonden-verwachten-weer-stakingen)
+  > Vakbond FNV verwacht dat zijn achterban niet akkoord gaat met het eindbod van de werkgevers. De bond gaat uit van nieuwe stakingen in het...
+- [Rechterlijk vonnis bedreigt voortbestaan grootste staalfabriek van Italië](https://fd.nl/bedrijfsleven/1617634/rechterlijk-vonnis-bedreigt-voortbestaan-grootste-staalfabriek-van-italie)
+  > Het hof van cassatie bevestigt een eerdere uitspraak van een lagere rechter. Wegens milieuvervuiling moet de staalfabriek van ADI in Taranto de twee...
+- [Dirk Schoenmaker wordt nieuwe voorzitter WRR](https://fd.nl/samenleving/1617696/dirk-schoenmaker-wordt-nieuwe-voorzitter-wrr)
+  > Hoogleraar Erasmus Universiteit Dirk Schoenmaker begint op 1 februari 2027 als nieuwe voorzitter van de Wetenschappelijke Raad voor het...
+- [Kabinet stelt wetsvoorstel stikstof uit om wensen boerenorganisaties](https://fd.nl/politiek/1617694/kabinet-stelt-stikstofwet-uit-om-wensen-boerenorganisaties)
+  > Na een week van hoogoplopend overleg met boerenorganisaties moet het kabinet nog ‘de laatste puntjes op de i’ zetten, zegt landbouwminister Jaimi van...
 
 ### Meest gelezen
 
