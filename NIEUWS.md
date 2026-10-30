@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-10-2026 om 18:27*
+*Laatst bijgewerkt: 30-10-2026 om 22:50*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Advocaat van Overasseltse drugscrimineel Jan G. stopt ermee](https://nos.nl/l/2637348)
-  > De advocaat van Jan G. uit Overasselt heeft de verdediging vandaag neergelegd. Dat bevestigt hij aan de NOS. Over de reden wil hij niets zeggen.
-    ...
-- [DNA-match leidt tot arrestatie 57-jarige man voor zedenzaak uit 1994](https://nos.nl/l/2637347)
-  > Een 57-jarige man uit Helmond is aangehouden op verdenking van het verkrachten van een 15-jarige meisje in 1994. De politie kwam de man na ruim 30...
-- [Mogelijk verwarde man rent op koning af bij werkbezoek in Ursem](https://nos.nl/l/2637344)
-  > Bij een werkbezoek aan het Noord-Hollandse dorp Ursem is koning Willem-Alexander vanmiddag aangesproken door een mogelijk verwarde man. Dat gebeurde...
-- [Frankrijk roept miljoenen condooms terug vanwege fabricagefouten](https://nos.nl/l/2637343)
-  > Frankrijk roept opnieuw onveilige condooms terug. Volgens de Franse instantie voor consumentenbescherming en fraudebestrijding zijn bij vijftien...
-- [Ouwehands neemt afscheid van panda Lang Yue: 'Voor altijd een beetje van ons'](https://nos.nl/l/2637342)
-  > In Ouwehands Dierenpark in Rhenen is vanochtend afscheid genomen van de 2-jarige panda Lang Yue. Het dier vertrekt vandaag naar China. "Maar ze is...
+- [Groepsfoto op G20-top geschrapt, landen willen niet met Rusland op de foto](https://nos.nl/l/2637392)
+  > De traditionele groepsfoto op de G20-top in de Verenigde Staten is niet doorgegaan vanwege de aanwezigheid van de Russische minister Lavrov van...
+- [Duitse media: arrestatie ex-chef geheime dienst zet samenwerking met VS onder druk](https://nos.nl/l/2637390)
+  > De Amerikaanse inlichtingendiensten hebben de Duitse geheime dienst BND gewaarschuwd dat de samenwerking mogelijk wordt herzien. Dat blijkt uit...
+- [Den Haag zet zich schrap: winkeliers timmeren hun zaken dicht uit angst voor rellen](https://nos.nl/l/2637387)
+  > Uit vrees voor wat morgen mogelijk komen gaat, is een fors aantal Haagse winkeliers vandaag begonnen met het dichttimmeren van hun winkelpuien. Zij...
+- [Na tien jaar meer duisternis in Waddengebied, maar strijd nog niet gestreden](https://nos.nl/l/2637384)
+  > Het is deze week tien jaar geleden dat tientallen organisaties afspraken om de duisternis in het Waddengebied beter te beschermen. In die tijd zijn...
+- [Zeehondencentrum stelt faillissement voorlopig uit na 'overweldigende steun'](https://nos.nl/l/2637380)
+  > Het voormalige Zeehondencentrum Pieterburen vraagt voorlopig geen faillissement aan. Dat heeft het bestuur van het centrum bekendgemaakt. Dankzij...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Bij deze profieldiepte neemt kans op aquaplaning toe, maar automobilist stelt koop nieuwe banden uit](https://www.ad.nl/auto/bij-deze-profieldiepte-neemt-kans-op-aquaplaning-toe-maar-automobilist-stelt-koop-nieuwe-banden-uit~a859694b/)
-  > Een op de vier automobilisten wacht met nieuwe banden kopen tot het echt niet anders meer kan. Vooral jonge bestuurders onderschatten de gevaren,...
-- [Dit moet Kimi Antonelli doen om dit weekend wereldtitel te pakken in Mexico](https://www.ad.nl/formule-1/dit-moet-kimi-antonelli-doen-om-dit-weekend-wereldtitel-te-pakken-in-mexico~a8a75660/)
-  > Kimi Antonelli gaat dit weekend naar alle waarschijnlijkheid zijn eerste wereldtitel binnenslepen. In de Verenigde Staten eindigden Lewis Hamilton en...
-- [Eerste vrije training in Mexico zonder Max Verstappen, maar met tien ‘rookies’](https://www.ad.nl/formule-1/eerste-vrije-training-in-mexico-zonder-max-verstappen-maar-met-tien-rookies~ab6ea14d/)
-  > Geen Max Verstappen tijdens de eerste training in Mexico. De coureur van Red Bull Racing krijgt vrij tijdens de eerste sessie van het weekend en zal...
-- [Op het laatste moment nog een halloweenkostuum nodig? Deze outfits heb je sowieso in huis](https://www.ad.nl/mode/op-het-laatste-moment-nog-een-halloweenkostuum-nodig-deze-outfits-heb-je-sowieso-in-huis~a8efc4e6/)
-  > Dit weekend staat Halloween voor de deur. Voor veel mensen iets waar ze weken naar uitkijken, maar een grote groep Nederlanders vergeet compleet een...
-- [Het is tijd om de Nederlandse voetbalpiramide eindelijk eens open te gooien](https://www.ad.nl/voetbal/het-is-tijd-om-de-nederlandse-voetbalpiramide-eindelijk-eens-open-te-gooien~a2c522ed/)
-  > Columnist Sjoerd Mossou genoot volop van het Nederlandse bekervoetbal, maar zag ook bevestigd dat het tijd is voor verandering. „Bij de grootste...
+- [Opmerkelijk moment in de paddock: teamgenoot Verstappen duwt fan die met hem op de foto wil](https://www.ad.nl/formule-1/opmerkelijk-moment-in-de-paddock-teamgenoot-verstappen-duwt-fan-die-met-hem-op-de-foto-wil~afd17814/)
+  > De Formule 1 dendert door in deze periode. Volg alle ontwikkelingen hier.
+- [Luke Littler sneuvelt tegen ‘Queen of the Palace’ in unieke uitdaging: Fallon Sherrock wint 586.000 euro](https://www.ad.nl/darts/luke-littler-sneuvelt-tegen-queen-of-the-palace-in-unieke-uitdaging-fallon-sherrock-wint-586-000-euro~a286a41d/)
+  > Het is Luke Littler niet gelukt om al zijn tegenstanders te verslaan bij de Beat Luke Littler-challenge op Netflix. Hij versloeg de eerste 14, maar...
+- [Max Verstappen rijdt prima tijd met beschadigde auto, Charles Leclerc wederom de snelste](https://www.ad.nl/formule-1/max-verstappen-rijdt-prima-tijd-met-beschadigde-auto-charles-leclerc-wederom-de-snelste~a65236fe/)
+  > Na een vrij eerste uurtje van het weekend stapt Max Verstappen tijdens de tweede vrije training in Mexico weer achter het stuur. Kan de coureur van...
+- [Carlos Forbs scoort voor Club Brugge in aanloop naar PSV-uit, Mika Godts en Achraf Hakimi schitteren voor PSG](https://www.ad.nl/voetbal/carlos-forbs-scoort-voor-club-brugge-in-aanloop-naar-psv-uit-mika-godts-en-achraf-hakimi-schitteren-voor-psg~a21c9742/)
+  > Club Brugge lijkt helemaal klaar voor de Champions League-wedstrijd tegen PSV, komende woensdag in Eindhoven. De Belgische kampioen won vrijdagavond...
+- [Joy Beune en Jenning de Boo oppermachtig bij start schaatsseizoen, verrassingen op 500 en 5000 meter](https://www.ad.nl/schaatsen/joy-beune-en-jenning-de-boo-oppermachtig-bij-start-schaatsseizoen-verrassingen-op-500-en-5000-meter~a3328e5b/)
+  > Joy Beune heeft een uitstekende start van het nieuwe schaatsseizoen beleefd. De topschaatsster van Team IKO-X2O Badkamers was overtuigend de beste op...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [AEX sluit knettergekke beursweek af met lichte winst](https://fd.nl/financiele-markten/1617681/aex-sluit-knettergekke-beursweek-af-met-lichte-winst)
-  > In deze beursweek vlogen de miljarden om de oren van beleggers.
-- [Cao-onderhandeling streekvervoer muurvast: vakbonden verwachten weer stakingen](https://fd.nl/bedrijfsleven/1617653/cao-onderhandeling-streekvervoer-muurvast-vakbonden-verwachten-weer-stakingen)
-  > Vakbond FNV verwacht dat zijn achterban niet akkoord gaat met het eindbod van de werkgevers. De bond gaat uit van nieuwe stakingen in het...
-- [Rechterlijk vonnis bedreigt voortbestaan grootste staalfabriek van Italië](https://fd.nl/bedrijfsleven/1617634/rechterlijk-vonnis-bedreigt-voortbestaan-grootste-staalfabriek-van-italie)
-  > Het hof van cassatie bevestigt een eerdere uitspraak van een lagere rechter. Wegens milieuvervuiling moet de staalfabriek van ADI in Taranto de twee...
-- [Dirk Schoenmaker wordt nieuwe voorzitter WRR](https://fd.nl/samenleving/1617696/dirk-schoenmaker-wordt-nieuwe-voorzitter-wrr)
-  > Hoogleraar Erasmus Universiteit Dirk Schoenmaker begint op 1 februari 2027 als nieuwe voorzitter van de Wetenschappelijke Raad voor het...
-- [Kabinet stelt wetsvoorstel stikstof uit om wensen boerenorganisaties](https://fd.nl/politiek/1617694/kabinet-stelt-stikstofwet-uit-om-wensen-boerenorganisaties)
-  > Na een week van hoogoplopend overleg met boerenorganisaties moet het kabinet nog ‘de laatste puntjes op de i’ zetten, zegt landbouwminister Jaimi van...
+- [Techaandelen weer hard onderuit op lager Wall Street](https://fd.nl/financiele-markten/1617655/techaandelen-weer-hard-onderuit-op-lager-wall-street)
+  > De uitverkoop van Amerikaanse techaandelen ging onverminderd door. Chipproducent Intel verloor meer dan 30% op één dag. Ook andere techaandelen...
+- [Vastgoedbelegger Wereldhave verkoopt winkelcentrum Purmerend](https://fd.nl/bedrijfsleven/1617697/vastgoedbelegger-wereldhave-verkoopt-winkelcentrum-purmerend)
+  > De opbrengst van €63 mln moet de schuldgraad dempen.
+- [Voor de markten betekenen de midterms niet veel, maar voor bedrijven des te meer](https://fd.nl/financiele-markten/1617689/voor-de-markten-betekenen-de-midterms-niet-veel-voor-bedrijven-wel)
+  > De Democraten lijken volgende week de macht in het Congres in handen te krijgen. Bedrijven die aan Trump doneerden, kunnen de dupe worden.
+- [De ECB weet hoe het Frankrijk kan disciplineren](https://fd.nl/opinie/1617619/de-ecb-weet-hoe-het-frankrijk-kan-disciplineren)
+  > Frankfurt kan een neerwaartse spiraal waarbij landen en banken elkaar kunnen doen omvallen, in de kiem smoren en ondertussen wel de druk op Parijs...
+- [Supermarktketens werken samen aan noodwinkels voor oorlog of stroomuitval](https://fd.nl/economie/1617624/supermarktketens-werken-samen-aan-noodwinkels-voor-oorlog-of-stroomuitval)
+  > Nu de Russische dreiging en de kans op grootschalige hacks en stroomuitval toenemen, moet een beperkt aantal supermarkten ‘weerbaar’ worden gemaakt....
 
 ### Meest gelezen
 
