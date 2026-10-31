@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 30-10-2026 om 22:50*
+*Laatst bijgewerkt: 31-10-2026 om 02:06*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Bedreigde Franse dierentuinaapjes gered na diefstal](https://nos.nl/l/2637397)
+  > In Frankrijk zijn elf aapjes teruggevonden die enkele dagen geleden waren buitgemaakt bij een inbraak in een dierentuin. Twee andere dieren zijn nog...
+- [Evacués Olesjky aangekomen op de Krim: 'Eindelijk vrede, we verhongerden'](https://nos.nl/l/2637396)
+  > Het konvooi dat inwoners van de Oekraïense stad Olesjky in veiligheid moet brengen, is aangekomen op de door Rusland bezette Krim. Op beelden was...
+- [Call of Duty verwijdert echte beelden van Koreaanse ramp uit game](https://nos.nl/l/2637395)
+  > Gamemaker Activision haalt beelden van een Koreaanse ramp uit het spel Call of Duty. Nabestaanden waren geschokt dat er voor het spel echte beelden...
+- [Leo XIV eerste paus die stemt in Amerikaanse verkiezingen](https://nos.nl/l/2637393)
+  > Paus Leo heeft per brief gestemd in de Amerikaanse verkiezingen. Het is voor zover bekend voor het eerst dat een paus een stem uitbrengt bij de...
 - [Groepsfoto op G20-top geschrapt, landen willen niet met Rusland op de foto](https://nos.nl/l/2637392)
   > De traditionele groepsfoto op de G20-top in de Verenigde Staten is niet doorgegaan vanwege de aanwezigheid van de Russische minister Lavrov van...
-- [Duitse media: arrestatie ex-chef geheime dienst zet samenwerking met VS onder druk](https://nos.nl/l/2637390)
-  > De Amerikaanse inlichtingendiensten hebben de Duitse geheime dienst BND gewaarschuwd dat de samenwerking mogelijk wordt herzien. Dat blijkt uit...
-- [Den Haag zet zich schrap: winkeliers timmeren hun zaken dicht uit angst voor rellen](https://nos.nl/l/2637387)
-  > Uit vrees voor wat morgen mogelijk komen gaat, is een fors aantal Haagse winkeliers vandaag begonnen met het dichttimmeren van hun winkelpuien. Zij...
-- [Na tien jaar meer duisternis in Waddengebied, maar strijd nog niet gestreden](https://nos.nl/l/2637384)
-  > Het is deze week tien jaar geleden dat tientallen organisaties afspraken om de duisternis in het Waddengebied beter te beschermen. In die tijd zijn...
-- [Zeehondencentrum stelt faillissement voorlopig uit na 'overweldigende steun'](https://nos.nl/l/2637380)
-  > Het voormalige Zeehondencentrum Pieterburen vraagt voorlopig geen faillissement aan. Dat heeft het bestuur van het centrum bekendgemaakt. Dankzij...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
+- [Clarence Seedorf pakt eerste overwinning met Corinthians in degradatiekraker](https://www.ad.nl/sport/clarence-seedorf-pakt-eerste-overwinning-met-corinthians-in-degradatiekraker~a33fc56d/)
+  > Clarence Seedorf heeft zijn eerste overwinning als trainer van Corinthians binnen. In de derde wedstrijd sinds zijn aanstelling won zijn ploeg in de...
+- [Zo laat komen Verstappen en op titel jagende Antonelli zaterdag in actie tijdens kwalificatie](https://www.ad.nl/formule-1/zo-laat-komen-verstappen-en-op-titel-jagende-antonelli-zaterdag-in-actie-tijdens-kwalificatie~a617454f/)
+  > Het Formule 1-seizoen nadert zijn einde. Met de Grand Prix van Mexico staat komend weekend de negentiende van in totaal 23 races op het programma. En...
+- [Max Verstappen ruziet met oud-teamgenoot in tweede vrije training: ‘Niet heel verstandig in zijn positie’](https://www.ad.nl/formule-1/max-verstappen-ruziet-met-oud-teamgenoot-in-tweede-vrije-training-niet-heel-verstandig-in-zijn-positie~a65236fe/)
+  > Max Verstappen heeft het grootste gedeelte van de tweede vrije training (waarin hij de vijfde tijd noteerde) met een kapotte auto rondgereden. Dat...
+- [Voormalig Ajax-aanvallers Carlos Forbs (22) en Mika Godts (21) schitteren: ‘Twee goals en tussendoor vader geworden, gefeliciteerd’](https://www.ad.nl/voetbal/voormalig-ajax-aanvallers-carlos-forbs-22-en-mika-godts-21-schitteren-twee-goals-en-tussendoor-vader-geworden-gefeliciteerd~a21c9742/)
+  > Club Brugge lijkt helemaal klaar voor de Champions League-wedstrijd tegen PSV, komende woensdag in Eindhoven. De Belgische kampioen won vrijdagavond...
 - [Opmerkelijk moment in de paddock: teamgenoot Verstappen duwt fan die met hem op de foto wil](https://www.ad.nl/formule-1/opmerkelijk-moment-in-de-paddock-teamgenoot-verstappen-duwt-fan-die-met-hem-op-de-foto-wil~afd17814/)
   > De Formule 1 dendert door in deze periode. Volg alle ontwikkelingen hier.
-- [Luke Littler sneuvelt tegen ‘Queen of the Palace’ in unieke uitdaging: Fallon Sherrock wint 586.000 euro](https://www.ad.nl/darts/luke-littler-sneuvelt-tegen-queen-of-the-palace-in-unieke-uitdaging-fallon-sherrock-wint-586-000-euro~a286a41d/)
-  > Het is Luke Littler niet gelukt om al zijn tegenstanders te verslaan bij de Beat Luke Littler-challenge op Netflix. Hij versloeg de eerste 14, maar...
-- [Max Verstappen rijdt prima tijd met beschadigde auto, Charles Leclerc wederom de snelste](https://www.ad.nl/formule-1/max-verstappen-rijdt-prima-tijd-met-beschadigde-auto-charles-leclerc-wederom-de-snelste~a65236fe/)
-  > Na een vrij eerste uurtje van het weekend stapt Max Verstappen tijdens de tweede vrije training in Mexico weer achter het stuur. Kan de coureur van...
-- [Carlos Forbs scoort voor Club Brugge in aanloop naar PSV-uit, Mika Godts en Achraf Hakimi schitteren voor PSG](https://www.ad.nl/voetbal/carlos-forbs-scoort-voor-club-brugge-in-aanloop-naar-psv-uit-mika-godts-en-achraf-hakimi-schitteren-voor-psg~a21c9742/)
-  > Club Brugge lijkt helemaal klaar voor de Champions League-wedstrijd tegen PSV, komende woensdag in Eindhoven. De Belgische kampioen won vrijdagavond...
-- [Joy Beune en Jenning de Boo oppermachtig bij start schaatsseizoen, verrassingen op 500 en 5000 meter](https://www.ad.nl/schaatsen/joy-beune-en-jenning-de-boo-oppermachtig-bij-start-schaatsseizoen-verrassingen-op-500-en-5000-meter~a3328e5b/)
-  > Joy Beune heeft een uitstekende start van het nieuwe schaatsseizoen beleefd. De topschaatsster van Team IKO-X2O Badkamers was overtuigend de beste op...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Techaandelen weer hard onderuit op lager Wall Street](https://fd.nl/financiele-markten/1617655/techaandelen-weer-hard-onderuit-op-lager-wall-street)
-  > De uitverkoop van Amerikaanse techaandelen ging onverminderd door. Chipproducent Intel verloor meer dan 30% op één dag. Ook andere techaandelen...
-- [Vastgoedbelegger Wereldhave verkoopt winkelcentrum Purmerend](https://fd.nl/bedrijfsleven/1617697/vastgoedbelegger-wereldhave-verkoopt-winkelcentrum-purmerend)
-  > De opbrengst van €63 mln moet de schuldgraad dempen.
-- [Voor de markten betekenen de midterms niet veel, maar voor bedrijven des te meer](https://fd.nl/financiele-markten/1617689/voor-de-markten-betekenen-de-midterms-niet-veel-voor-bedrijven-wel)
-  > De Democraten lijken volgende week de macht in het Congres in handen te krijgen. Bedrijven die aan Trump doneerden, kunnen de dupe worden.
-- [De ECB weet hoe het Frankrijk kan disciplineren](https://fd.nl/opinie/1617619/de-ecb-weet-hoe-het-frankrijk-kan-disciplineren)
-  > Frankfurt kan een neerwaartse spiraal waarbij landen en banken elkaar kunnen doen omvallen, in de kiem smoren en ondertussen wel de druk op Parijs...
-- [Supermarktketens werken samen aan noodwinkels voor oorlog of stroomuitval](https://fd.nl/economie/1617624/supermarktketens-werken-samen-aan-noodwinkels-voor-oorlog-of-stroomuitval)
-  > Nu de Russische dreiging en de kans op grootschalige hacks en stroomuitval toenemen, moet een beperkt aantal supermarkten ‘weerbaar’ worden gemaakt....
+- [Superieure intelligentie en Grok](https://fd.nl/opinie/1617616/superieure-intelligentie-en-grok)
+  > Met denkvermogen-uitschakelende dialoogjes schiet niemand wat op. Zouden beleidsblunders zijn te verklaren uit royaal gebruik van de AI-chatbot Grok?
+- [Lagarde stapt op, het gevecht om de opvolging kan beginnen](https://fd.nl/politiek/1617451/lagarde-stapt-op-het-gevecht-om-de-opvolging-kan-beginnen)
+  > Alle eurolanden willen een landgenoot in de directiekamer van de ECB. Is Klaas Knot de grote kanshebber of wordt het toch een Duitser, een Let of een...
+- [Het Zuid-Afrikaanse Howick laat zien ook zonder het ANC te kunnen](https://fd.nl/politiek/1617376/het-zuid-afrikaanse-howick-laat-zien-ook-zonder-het-anc-te-kunnen)
+  > Woensdag zijn er gemeenteraadsverkiezingen in Zuid-Afrika. Het FD nam een kijkje in Howick, waar een heel andere wind is gaan waaien sinds er een...
+- [Dichtbij en toch onkenbaar](https://fd.nl/samenleving/1617293/dichtbij-en-toch-onkenbaar)
+  > Fotograaf en kunstenaar Jip Schalkx onderzoekt de invloed van schermtijd en sociale media op menselijk contact. ‘We zouden minder moeten praten en...
+- [Bij rampenoefeningen blijkt pas goed hoe weinig weerbaar Nederland eigenlijk is](https://fd.nl/samenleving/1616834/bij-rampenoefeningen-blijkt-pas-goed-hoe-weinig-weerbaar-nederland-eigenlijk-is)
+  > Nederland moet zich beter voorbereiden op grootschalige cyberaanvallen, stroomuitval en zelfs oorlog. Steeds meer bedrijven maken...
 
 ### Meest gelezen
 
