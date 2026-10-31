@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 31-10-2026 om 09:24*
+*Laatst bijgewerkt: 31-10-2026 om 15:38*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Rubberboot met tientallen migranten van zee gehaald bij Breskens](https://nos.nl/l/2637412)
-  > Bij Breskens hebben hulpdiensten vanochtend een rubberbootje met 38 mensen van zee gehaald. Het bootje is naar een jachthaven in Cadzand gesleept,...
-- [Impasse over VN-vredesmissie Westelijke Sahara: Rusland en VS vetoën elkaars voorstel](https://nos.nl/l/2637410)
-  > Rusland en de Verenigde Staten hebben een veto uitgesproken over elkaars resolutie over de verlenging van de VN-vredesmissie in de Westelijke Sahara....
-- [Frankrijk zet zich schrap voor 'Halloween'-protesten](https://nos.nl/l/2637409)
-  > In Frankrijk zetten de aanhoudende protesten de toch al diepe kloof tussen radicaal-links en radicaal-rechts verder op scherp. Terwijl het land zich...
-- [Hebron al ruim een week grotendeels afgesloten, duizenden Palestijnen verdreven](https://nos.nl/l/2637408)
-  > De stad Hebron op de bezette Westelijke Jordaanoever is al ruim een week grotendeels afgesloten door het Israëlische leger. Duizenden Palestijnen...
-- [Ongeneeslijk zieke hoogleraar Jan Rotmans laat 'AI-tweeling' van zichzelf maken](https://nos.nl/l/2637407)
-  > Lezingen geven en vragen beantwoorden, ook als hij er zelf niet meer is. Dat moet een digitale versie van hoogleraar Jan Rotmans (65) straks kunnen....
+- [Protestmarsen gaande in Franse steden, deelnemers volop verkleed](https://nos.nl/l/2637459)
+  > In tientallen Franse steden wordt voor het derde weekend op rij gedemonstreerd. Onder meer in Parijs, Lyon en Marseille zijn protestmarsen gaande....
+- [Rotterdam bouwt brug van grote symbolische waarde voor kankerpatiënten](https://nos.nl/l/2637453)
+  > Bij het Erasmus MC in Rotterdam is vandaag een nieuwe voetgangersbrug geplaatst. Het gaat om een markante brug van zo'n honderd meter lang, deels...
+- [Mexico daagt Panamakanaal uit met spoorlijn over smalste stukje Mexico](https://nos.nl/l/2637452)
+  > In Mexico is een nieuwe handelsroute over land bijna af. Een spoorlijn in het zuiden van het land moet als alternatief dienen voor het Panamakanaal,...
+- [Tien aanhoudingen in Den Haag, maar geen grote demonstraties in steden](https://nos.nl/l/2637449)
+  > In Den Haag zijn zeker tien aanhoudingen verricht op en rond het Malieveld. De mensen zijn aangehouden omdat ze gezichtsbedekking droegen of in het...
+- [Porno op gehackte reclameborden langs snelweg in Egypte](https://nos.nl/l/2637435)
+  > Hackers hebben deze week pornografische beelden afgespeeld op digitale reclameborden langs een grote snelweg in de Egyptische stad Gizeh, een...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [De koffiecups van deze supermarkt winnen onze smaaktest: ‘Goede doordrinker voor op kantoor’](https://www.ad.nl/gezond/de-koffiecups-van-deze-supermarkt-winnen-onze-smaaktest-goede-doordrinker-voor-op-kantoor~a17e6e82/)
-  > De slobberkoffie is niet meer. Liever drinken we ’m uit een cuppie, passend bij het moment van de dag en ons gemoed. Dat zorgt voor bomvolle schappen...
-- [Aston Villa noemt woorden van Jamie Carragher ‘onaanvaardbare beledigingen’ en stapt naar de rechter](https://www.ad.nl/voetbal/aston-villa-noemt-woorden-van-jamie-carragher-onaanvaardbare-beledigingen-en-stapt-naar-de-rechter~ad39df2a/)
-  > Aston Villa is van plan om juridische stappen te ondernemen tegen analyticus Jamie Carragher. De voormalige speler van Liverpool deed eerder deze...
-- [Tineke Schouten woont in een seniorencomplex, maar straalt nog steeds op het podium: ‘Ik ben 72, maar voel me 52’](https://www.ad.nl/mezza/tineke-schouten-woont-in-een-seniorencomplex-maar-straalt-nog-steeds-op-het-podium-ik-ben-72-maar-voel-me-52~af80a6ef/)
-  > Met haar achtentwintigste theatershow Femme Vitaal raast Tineke Schouten nog steeds over het podium. Aan de hand van de letters V-I-T-A-A-L bespreekt...
-- [Actrice Evrim Akyigit plakt elke twee dagen oestrogeenpleisters: ‘Slaap weer als een roosje’](https://www.ad.nl/gezond/actrice-evrim-akyigit-plakt-elke-twee-dagen-oestrogeenpleisters-slaap-weer-als-een-roosje~a3ba7eb6/)
-  > ‘De sportschool vind ik niets, ik word ongelukkig van een setting waarin de focus ligt op hoe je eruit ziet. Lever fiets ik écht een stukje. Verder...
-- [Bootje met 30 vluchtelingen voor Nederlandse kust: ‘Dit is uitzonderlijk, we hebben plicht ze op te vangen’](https://www.ad.nl/binnenland/bootje-met-30-vluchtelingen-voor-nederlandse-kust-dit-is-uitzonderlijk-we-hebben-plicht-ze-op-te-vangen~a1ddec39b/)
-  > Een bootje met zo’n 30 vluchtelingen is door de Marechaussee naar de haven van het Zeeuwse Cadzand gesleept. Het bootje lag sinds vanochtend vroeg...
+- [Duizenden Fransen de straat op voor ‘halloweenprotest’](https://www.ad.nl/buitenland/duizenden-fransen-de-straat-op-voor-halloweenprotest~a341612f/)
+  > Duizenden mensen zijn zaterdag de straat opgegaan in Frankrijk om te demonstreren. Volgens het ministerie van Binnenlandse Zaken gaat het tot dusver...
+- [Koploper Feyenoord met één wijziging begonnen tegen eveneens uitstekend presterend Fortuna](https://www.ad.nl/voetbal/koploper-feyenoord-met-een-wijziging-begonnen-tegen-eveneens-uitstekend-presterend-fortuna~ab104b2e/)
+  > Beide teams zijn goed aan het seizoen begonnen. Feyenoord is koploper in de eredivisie, terwijl Fortuna Sittard op een keurige zesde plaats staat. De...
+- [Femke Kok met ‘niet zo’n goede race’ snelste op eerste 500 meter, mannen zijn begonnen aan 1500 meter](https://www.ad.nl/schaatsen/femke-kok-met-niet-zon-goede-race-snelste-op-eerste-500-meter-mannen-zijn-begonnen-aan-1500-meter~ac084358/)
+  > De tweede dag van het WCKT in Thialf is onderweg. De tickets op de 3000 meter bij de vrouwen zijn al verdeeld. Met Kjeld Nuis en Femke Kok komen er...
+- [Ron (65): ‘Zodra mijn vervroegd pensioen was geregeld, heb ik alles verkocht’](https://www.ad.nl/werk/ron-65-zodra-mijn-vervroegd-pensioen-was-geregeld-heb-ik-alles-verkocht~a239d37e/)
+  > Ron (65) werkte ruim 30 jaar als procesoperator in de voedingsindustrie. Vanwege zijn zware beroep kon hij vervroegd met pensioen. Nu woont hij in...
+- [‘Biologisch gezien is het kindje 100 procent van ons’: Sanne (25) strijdt met Willem (27) tegen de kromme regels rond draagmoederschap](https://www.ad.nl/binnenland/biologisch-gezien-is-het-kindje-100-procent-van-ons-sanne-25-strijdt-met-willem-27-tegen-de-kromme-regels-rond-draagmoederschap~a440d0e7/)
+  > Sanne Leferink-Leurink (25) en haar man Willem (27) uit Denekamp hebben een kinderwens. Zelf kinderen krijgen gaat niet, omdat zij geen baarmoeder...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Britse offshore-medewerkers grijpen naar afslankmedicatie door gewichtsregels](https://fd.nl/bedrijfsleven/1617721/britse-offshore-medewerkers-grijpen-naar-afslankmedicatie-door-gewichtsregels)
+  > Vanaf zondag mogen medewerkers van Britse boorplatformen maximaal 124 kilogram wegen.
+- [Chaos bij het Poolse Constitutioneel Hof na schorsing rechter](https://fd.nl/politiek/1617662/chaos-bij-het-poolse-constitutioneel-hof-na-schorsing-rechter)
+  > Vrijdagavond ontstond een chaotische situatie waarbij de politie een rechter van het Constitutioneel Hof de toegang tot het gebouw van het juridisch...
+- [Genoeg uranium in de grond, maar toch dreigen er tekorten](https://fd.nl/economie/1616884/genoeg-uranium-in-de-grond-maar-toch-dreigen-er-tekorten)
+  > Er zit ruim genoeg uranium in de grond om de verwachte groei van het aantal kerncentrales op te vangen. Toch waarschuwen gezaghebbende instanties nu...
 - [VS keuren verkoop Patriot-raketten ter waarde van $2,1 mrd aan Oekraïne goed](https://fd.nl/politiek/1617661/vs-keuren-verkoop-patriot-raketten-ter-waarde-van-2-1-mrd-aan-oekraine-goed)
   > Hoewel de Oekraïense president Volodymyr Zelensky blij is met de deal, waarschuwt hij dat het nog jaren kan duren voordat de levering van start gaat.
 - [OpenAI verlaagt investeringsdoelen met $10 mrd](https://fd.nl/bedrijfsleven/1617720/openai-verlaagt-investeringsdoelen-met-10-mrd)
   > Vorige maand werd bekend dat de maker van ChatGPT in een laatste investeringsronde, voorafgaand aan de beursgang, mikte op een kapitaalinjectie van...
-- [Hoe zinnig is een robotbelasting? En regeert science fiction in Silicon Valley?](https://fd.nl/economie/1617690/hoe-zinnig-is-een-robotbelasting-en-regeert-science-fiction-in-silicon-valley)
-  > In deze Toegevoegde Waarde onderzoeken Anna Dijkman en Marijn Jongsma hoe je AI kunt belasten en bespreken ze het ‘science fiction’-gedachtegoed van...
-- [Superieure intelligentie en Grok](https://fd.nl/opinie/1617616/superieure-intelligentie-en-grok)
-  > Met denkvermogen-uitschakelende dialoogjes schiet niemand wat op. Zouden beleidsblunders zijn te verklaren uit royaal gebruik van de AI-chatbot Grok?
-- [Lagarde stapt op, het gevecht om de opvolging kan beginnen](https://fd.nl/politiek/1617451/lagarde-stapt-op-het-gevecht-om-de-opvolging-kan-beginnen)
-  > Alle eurolanden willen een landgenoot in de directiekamer van de ECB. Is Klaas Knot de grote kanshebber of wordt het toch een Duitser, een Let of een...
 
 ### Meest gelezen
 
