@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-11-2026 om 12:54*
+*Laatst bijgewerkt: 01-11-2026 om 18:18*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Studentencomplex Utrecht alleen te betreden met digitale sleutel, bewoners zijn het zat](https://nos.nl/l/2637577)
-  > Bewoners van een studentencomplex in Utrecht zijn er niet over te spreken dat ze alleen maar via een app op hun telefoon naar binnen kunnen. In...
-- [Oekraïense aanvallen op olielocaties diep in Rusland hervat](https://nos.nl/l/2637570)
-  > Ondanks berichten dat Oekraïne droneaanvallen op olieproductielocaties in Rusland had gestaakt, zijn er de afgelopen dagen toch nieuwe aanvallen...
-- [NASA-vrijwilligers weer thuis na jaar op nagebootste Mars-missie](https://nos.nl/l/2637569)
-  > Ruim een jaar zaten ze opgesloten in een NASA-gebouwtje van maar 160 vierkante meter in het Johnson Space Center in de Texaanse stad Houston en...
-- [Den Haag wil financiële schade winkeliers verhalen bij opruiers](https://nos.nl/l/2637567)
-  > De Haagse wethouder Richard de Mos (Binnenstad en Economie) wil kijken of mensen die deze week opriepen tot geweld in Den Haag kunnen opdraaien voor...
-- [Gewonden bij vecht- en steekpartij in bus in Breda, jongen van 17 opgepakt](https://nos.nl/l/2637566)
-  > In Breda zijn gisteravond laat twee groepen jongeren met elkaar slaags geraakt. Een jongen liep daarbij een steek- of snijwond op, een ander is in...
+- [Piraten kapen Iraans schip bij Somalië, mogelijk met meer aanvallen als doel](https://nos.nl/l/2637625)
+  > Somalische piraten hebben een Iraans vissersschip aangevallen en overmeesterd. Er zijn 23 bemanningsleden aan boord van het schip. Dat meldt de...
+- [Zes opvarenden van rubberboot voor Zeeuwse kust waren minderjarig](https://nos.nl/l/2637611)
+  > Op de rubberboot met migranten die gisteren werd opgepikt voor de Zeeuwse kust zaten onder anderen zes minderjarigen. Ze zijn overgebracht naar het...
+- [Wolf Bram opgezet in Naturalis, niet iedereen is daar blij mee: 'Neem mij, niet hem'](https://nos.nl/l/2637603)
+  > Probleemwolf GW3237m die vorig jaar op de Utrechtse Heuvelrug werd doodgeschoten, is vanaf vandaag te bekijken in museum Naturalis in Leiden....
+- [Wintertijd in Canada, maar in steeds minder provincies wordt de klok verzet](https://nos.nl/l/2637599)
+  > Miljoenen Canadezen zetten vanwege de wintertijd de klok dit weekend een uur terug, maar miljoenen andere Canadezen laten de klok ongemoeid. Steeds...
+- [Israëlische aanvallen kosten zeker acht Palestijnen in Gaza het leven](https://nos.nl/l/2637590)
+  > Door Israëlische aanvallen zijn zeker acht Palestijnen om het leven gekomen. Dat melden ziekenhuismedewerkers aan Al Jazeera. In Gaza-stad kwamen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Krommenhoek en Slendebroek pakken World Cup-tickets op 10.000 meter, Bergsma grijpt mis](https://www.ad.nl/schaatsen/krommenhoek-en-slendebroek-pakken-world-cup-tickets-op-10-000-meter-bergsma-grijpt-mis~a3e98444/)
-  > Ontknoping op het WCKT: vanmiddag worden de laatste World Cup-tickets verdeeld. Eerst de 10.000 meter voor mannen, daarna sprintvuurwerk op de 1.000...
-- [Kabinet en oppositie laten het er op aankomen: chaos dreigt met belastingen](https://www.ad.nl/politiek/kabinet-en-oppositie-laten-het-er-op-aankomen-chaos-dreigt-met-belastingen~a3db70cf/)
-  > Den Haag is nog steeds niet gewend aan werken met een minderheidskabinet. Chaos dreigt bij de Belastingdienst omdat kabinet en parlement het nog...
-- [Saurey Kibet en Doreen Chesang winnen eerste editie van marathon Den Haag](https://www.ad.nl/andere-sporten/saurey-kibet-en-doreen-chesang-winnen-eerste-editie-van-marathon-den-haag~adb83b91/)
-  > De Keniaan Elijah Saurey Kibet en de Oegandese Doreen Chesang hebben zondag de eerste editie van de marathon van Den Haag gewonnen. Kibet kwam na de...
-- [Oud-Europees kampioen op 1500 meter Ciara Mageean (34) enkele weken na haar bruiloft overleden](https://www.ad.nl/andere-sporten/oud-europees-kampioen-op-1500-meter-ciara-mageean-34-enkele-weken-na-haar-bruiloft-overleden~a36160d2e/)
-  > De Ierse oud-atlete Ciara Mageean is zondag op 34-jarige leeftijd overleden aan darmkanker. Dat is bekendgemaakt op het Instagram-account van de...
-- [Koningin van Halloween Heidi Klum overtreft zichzelf weer: verkleed als afgehakte hand](https://www.ad.nl/show/koningin-van-halloween-heidi-klum-overtreft-zichzelf-weer-verkleed-als-afgehakte-hand~a8ed53a4/)
-  > Heidi Klum (53) heeft zichzelf opnieuw overtroffen met een bizarre halloweenoutfit. Het Duitse topmodel, dat bekendstaat als de ‘Queen of Halloween’,...
+- [Beveiligingscamera’s getest: met deze modellen ontgaat je niets van wat er thuis gebeurt](https://www.ad.nl/tech/beveiligingscameras-getest-met-deze-modellen-ontgaat-je-niets-van-wat-er-thuis-gebeurt~a4f20552/)
+  > Overweeg je een beveiligingscamera voor binnen, dan is niet alleen de beeldkwaliteit belangrijk. Let ook op waar de beelden worden opgeslagen en of...
+- [Oog in oog met de beruchte ‘probleemwolf’ Bram: bekendste wolf van Nederland opgezet in Naturalis](https://www.ad.nl/binnenland/oog-in-oog-met-de-beruchte-probleemwolf-bram-bekendste-wolf-van-nederland-opgezet-in-naturalis~a42e782b/)
+  > Jarenlang was ‘ie ongrijpbaar, maar de beroemdste wolf van Nederland is straks door iedereen te bewonderen. Voor een live publiek is probleemwolf...
+- [Ouders ontkomen er niet aan: ze moeten gesprek aan met hun kinderen](https://www.ad.nl/commentaar/ouders-ontkomen-er-niet-aan-ze-moeten-gesprek-aan-met-hun-kinderen~a2d15369/)
+  > De gemeente Den Haag gaat proberen de schade die winkeliers hebben opgelopen door maatregelen om zich te weren tegen aangekondigde rellen, te...
+- [Jenning de Boo en Angel Daleman blinken uit bij strijd om World Cup-tickets, grote valpartij bij massastart](https://www.ad.nl/schaatsen/jenning-de-boo-en-angel-daleman-blinken-uit-bij-strijd-om-world-cup-tickets-grote-valpartij-bij-massastart~a3e98444/)
+  > Zondagmiddag zijn de laatste tickets voor de World Cups verdeeld. Daarbij vielen vooral de ontketende Jenning de Boo en de jonge Angel Daleman op,...
+- [Liverpool jaagt op gelijkmaker tegen Arsenal, dat op weg is naar eerste zege op Anfield sinds 2012](https://www.ad.nl/voetbal/liverpool-jaagt-op-gelijkmaker-tegen-arsenal-dat-op-weg-is-naar-eerste-zege-op-anfield-sinds-2012~ae2d1b09/)
+  > De kampioenen van de afgelopen twee seizoenen staan tegenover elkaar in de Premier League: titelverdediger Arsenal deelt met 21 punten de koppositie...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Nederlandse investerings­maatschappij kiest voor kleinere voetbalclubs](https://fd.nl/bedrijfsleven/1616827/nederlandse-investeringsmaatschappij-kiest-voor-kleinere-voetbalclubs)
-  > Eerst de organisatie, dan de prestatie. Dat is de filosofie van de Nederlandse investeerder Estrella Football Group.
-- [Californische rechter gelast regering-Trump te stoppen met ‘intimidatie’ verkiezingsmedewerkers](https://fd.nl/politiek/1617668/californische-rechter-gelast-regering-trump-te-stoppen-met-intimidatie-verkiezingsmedewerkers)
-  > Al maanden eisen Donald Trump en het justitieministerie dat de stembiljetten van vermeende niet-staatsburgers, opzij worden gelegd. Anders hangt...
-- [In Nigeria zijn zonnepanelen het nieuwe huwelijkscadeau](https://fd.nl/samenleving/1617632/in-nigeria-zijn-zonnepanelen-het-nieuwe-huwelijkscadeau)
-  > Veel Nigerianen wekken noodgedwongen zelf stroom op en gebruiken daarvoor steeds vaker zonnepanelen. Dankzij lage marges winnen Chinese producten...
-- [Bolsonaro mag van Trump in de VS blijven ‘zolang hij wil’](https://fd.nl/politiek/1617667/bolsonaro-mag-van-trump-in-de-vs-blijven-zolang-hij-wil)
-  > De Amerikaanse president noemt de Braziliaanse verkiezingen ‘een schande’. Die stembusgang verloor Flavio Bolsonaro vorig weekend. Er lopen...
-- [Ook in ‘jubileumjaar’ voor vogelgriep worstelen pluimveehouders nog steeds](https://fd.nl/bedrijfsleven/1617627/ook-in-jubileumjaar-voor-vogelgriep-worstelen-pluimveehouders-nog-steeds)
-  > Vorige week woensdag kondigde het kabinet een landelijke ophokplicht af. Nergens in Nederland mogen de dieren van pluimveehouders nog naar buiten.
+- [Russische olieraffinaderijen weer doelwit, Oekraïners zitten uren zonder stroom](https://fd.nl/politiek/1617670/russische-olieraffinaderijen-weer-doelwit-oekrainers-zitten-uren-zonder-stroom)
+  > De officieuze pauze zou naar verwachting duren tot na de Amerikaanse tussentijdse verkiezingen en mogelijk zelfs tot verder in november.
+- [APG steekt half miljard extra in treinen, kabels en water](https://fd.nl/financiele-markten/1617665/apg-steekt-half-miljard-extra-in-treinen-kabels-en-water)
+  > De pensioenbelegger gaat voor langere tijd in zee met Britse infrastructuurbelegger Equitix.
+- [Stamppot kan niet zonder rookworst, vindt ACM](https://fd.nl/bedrijfsleven/1617724/stamppot-kan-niet-zonder-rookworst-vindt-acm)
+  > De rookworst is volgens de toezichthouder zo’n hoeksteen van de voedselvoorziening dat de overname van Unox niet door mag gaan. Bartjens kijkt...
+- [Apps waarschuwen voor ‘gluurbril’ in de buurt](https://fd.nl/tech-en-innovatie/1617688/apps-waarschuwen-voor-gluurbril-in-de-buurt)
+  > De AI-brillen van Meta roepen veel vragen op over privacyschending. De Enschedese appmaker Pawel Szydlowski ontwikkelde een app die waarschuwt voor...
+- [Vuurwerkbranche vreest faillissementen: ‘Eén jaar compensatie is niet genoeg’](https://fd.nl/bedrijfsleven/1617680/vuurwerkbranche-vreest-faillissementen-een-jaar-compensatie-is-niet-genoeg)
+  > Vuurwerkverkopers krijgen een jaar vergoeding voor de gemiste inkomsten. Te weinig om een nieuw verdienmodel op poten te zetten, vinden zij.
 
 ### Meest gelezen
 
