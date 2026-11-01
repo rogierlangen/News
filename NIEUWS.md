@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 01-11-2026 om 05:13*
+*Laatst bijgewerkt: 01-11-2026 om 12:54*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Rechter wijst Trumps miljardenclaim om verjaardagsbrief aan Epstein af](https://nos.nl/l/2637543)
-  > Een Amerikaanse rechter heeft de rechtszaak die president Trump voor 10 miljard dollar had aangespannen tegen The Wall Street Journal en mediamagnaat...
-- ['Schijtland' Noorwegen slaat terug met toilethumor na sneer van Trump](https://nos.nl/l/2637542)
-  > Na publiekelijk te kakken te zijn gezet door president Trump slaat Noorwegen terug met een ludieke campagne rond de mooiste openbare toiletten in het...
-- [FBI: Noord-Korea achter miljardenroof bij cryptoplatform Binance](https://nos.nl/l/2637541)
-  > De FBI houdt Noord-Korea verantwoordelijk voor de roof van meer dan 6 miljard dollar aan cryptovaluta bij handelsplatform Binance. Volgens de...
-- [Premier Abiy van Ethiopië stuurt ministers naar militaire training](https://nos.nl/l/2637522)
-  > Voor de regering van Ethiopië was het vandaag even niet vergaderen maar push-ups doen. Premier Abiy Ahmed had zijn kabinet op militaire training...
-- [Sovjet Ereveld in Leusden opnieuw beklad, leuzen tegen communisten](https://nos.nl/l/2637514)
-  > Het Sovjet Ereveld in Leusden is opnieuw beklad. Het oorlogsmonument en de gedenkmuur zijn met verf besmeurd, laat de Stichting Sovjet Ereveld weten...
+- [Studentencomplex Utrecht alleen te betreden met digitale sleutel, bewoners zijn het zat](https://nos.nl/l/2637577)
+  > Bewoners van een studentencomplex in Utrecht zijn er niet over te spreken dat ze alleen maar via een app op hun telefoon naar binnen kunnen. In...
+- [Oekraïense aanvallen op olielocaties diep in Rusland hervat](https://nos.nl/l/2637570)
+  > Ondanks berichten dat Oekraïne droneaanvallen op olieproductielocaties in Rusland had gestaakt, zijn er de afgelopen dagen toch nieuwe aanvallen...
+- [NASA-vrijwilligers weer thuis na jaar op nagebootste Mars-missie](https://nos.nl/l/2637569)
+  > Ruim een jaar zaten ze opgesloten in een NASA-gebouwtje van maar 160 vierkante meter in het Johnson Space Center in de Texaanse stad Houston en...
+- [Den Haag wil financiële schade winkeliers verhalen bij opruiers](https://nos.nl/l/2637567)
+  > De Haagse wethouder Richard de Mos (Binnenstad en Economie) wil kijken of mensen die deze week opriepen tot geweld in Den Haag kunnen opdraaien voor...
+- [Gewonden bij vecht- en steekpartij in bus in Breda, jongen van 17 opgepakt](https://nos.nl/l/2637566)
+  > In Breda zijn gisteravond laat twee groepen jongeren met elkaar slaags geraakt. Een jongen liep daarbij een steek- of snijwond op, een ander is in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [27 politieagenten gewond bij rellen in Berlijn, ruim 500 arrestaties in Frankrijk](https://www.ad.nl/buitenland/27-politieagenten-gewond-bij-rellen-in-berlijn-ruim-500-arrestaties-in-frankrijk~a2483eff/)
-  > Door een groot deel van Europa trekt een golf van studenten- en scholierenprotesten. Ze worden op meerdere plaatsen gekaapt door relschoppers. Volg...
-- [‘In Italië heeft elk gezin gewoon een voorraadje antibiotica in huis’: expats verbaasd over Nederlandse zorg](https://www.ad.nl/binnenland/in-italie-heeft-elk-gezin-gewoon-een-voorraadje-antibiotica-in-huis-expats-verbaasd-over-nederlandse-zorg~a47e22f8/)
-  > Weggestuurd worden bij de Nederlandse huisarts met een paracetamol, terwijl je voor dezelfde klacht in je eigen land allang door de medische molen...
-- [LIVE eredivisie | Anthony Correia treft met FC Utrecht zijn oude club Telstar](https://www.ad.nl/voetbal/live-eredivisie-anthony-correia-treft-met-fc-utrecht-zijn-oude-club-telstar~aa85c8bd/)
-  > Anthony Correia neemt het met FC Utrecht op tegen zijn oude club Telstar. Met de club uit Velsen-Zuid promoveerde hij en handhaafde hij zich vorig...
-- [Bijzonder statement fietsverhuurbedrijf Lime: ‘Onze fietsen zijn niet bedoeld voor ridderspelen’](https://www.ad.nl/buitenland/bijzonder-statement-fietsverhuurbedrijf-lime-onze-fietsen-zijn-niet-bedoeld-voor-ridderspelen~a7db45e4/)
-  > Een bedrijf dat in Londen deelfietsen verhuurt, heeft zich over een wel heel bijzondere kwestie moeten uitlaten. De elektrische fietsen van Lime...
-- [Douane blij met nieuwe heffing van 2 euro op AliExpress en Temu: ‘Willen geen losse fietslampjes meer controleren’](https://www.ad.nl/binnenland/douane-blij-met-nieuwe-heffing-van-2-euro-op-aliexpress-en-temu-willen-geen-losse-fietslampjes-meer-controleren~a0c64e79/)
-  > Nadat online shoppen bij AliExpress en Temu deze zomer al 3 euro duurder werd, komt daar vanaf deze zondag nóg eens 2 euro bovenop. Met de opbrengst...
+- [Krommenhoek en Slendebroek pakken World Cup-tickets op 10.000 meter, Bergsma grijpt mis](https://www.ad.nl/schaatsen/krommenhoek-en-slendebroek-pakken-world-cup-tickets-op-10-000-meter-bergsma-grijpt-mis~a3e98444/)
+  > Ontknoping op het WCKT: vanmiddag worden de laatste World Cup-tickets verdeeld. Eerst de 10.000 meter voor mannen, daarna sprintvuurwerk op de 1.000...
+- [Kabinet en oppositie laten het er op aankomen: chaos dreigt met belastingen](https://www.ad.nl/politiek/kabinet-en-oppositie-laten-het-er-op-aankomen-chaos-dreigt-met-belastingen~a3db70cf/)
+  > Den Haag is nog steeds niet gewend aan werken met een minderheidskabinet. Chaos dreigt bij de Belastingdienst omdat kabinet en parlement het nog...
+- [Saurey Kibet en Doreen Chesang winnen eerste editie van marathon Den Haag](https://www.ad.nl/andere-sporten/saurey-kibet-en-doreen-chesang-winnen-eerste-editie-van-marathon-den-haag~adb83b91/)
+  > De Keniaan Elijah Saurey Kibet en de Oegandese Doreen Chesang hebben zondag de eerste editie van de marathon van Den Haag gewonnen. Kibet kwam na de...
+- [Oud-Europees kampioen op 1500 meter Ciara Mageean (34) enkele weken na haar bruiloft overleden](https://www.ad.nl/andere-sporten/oud-europees-kampioen-op-1500-meter-ciara-mageean-34-enkele-weken-na-haar-bruiloft-overleden~a36160d2e/)
+  > De Ierse oud-atlete Ciara Mageean is zondag op 34-jarige leeftijd overleden aan darmkanker. Dat is bekendgemaakt op het Instagram-account van de...
+- [Koningin van Halloween Heidi Klum overtreft zichzelf weer: verkleed als afgehakte hand](https://www.ad.nl/show/koningin-van-halloween-heidi-klum-overtreft-zichzelf-weer-verkleed-als-afgehakte-hand~a8ed53a4/)
+  > Heidi Klum (53) heeft zichzelf opnieuw overtroffen met een bizarre halloweenoutfit. Het Duitse topmodel, dat bekendstaat als de ‘Queen of Halloween’,...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Proost! Want dit kantoor wordt een luxe woontoren](https://fd.nl/bedrijfsleven/1617625/proost-want-dit-kantoor-wordt-een-luxe-woontoren)
-  > In de deftige Haagse Archipelbuurt toast een kleine groep mensen op een bouwproject dat wel van de grond komt. ‘Dit is dé manier om de wooncrisis aan...
-- [150 jaar oud Noordzeekanaal is brandpunt van gevecht om ruimte](https://fd.nl/economie/1617440/150-jaar-oud-noordzeekanaal-is-brandpunt-van-gevecht-om-ruimte)
-  > Plannen van waterschappen, bedrijven en politiek met het gebied rond de 21 kilometer lange waterverbinding botsen met elkaar.  ‘Dit is niet een...
-- [‘Mijn compagnon was als een broer, maar hij bleek niet te vertrouwen’](https://fd.nl/samenleving/1617296/mijn-compagnon-was-als-een-broer-maar-hij-bleek-niet-te-vertrouwen)
-  > Ondernemer Eric van Dijk en zijn compagnon waren als broers voor elkaar, totdat hij het vertrouwen van Eric voor altijd verliest.
-- [Nog geen deal belastingplan na nieuwe gespreksronde](https://fd.nl/politiek/1617664/nog-geen-deal-over-belastingplan-na-nieuwe-gespreksronde)
-  > Het kabinet praatte zaterdag opnieuw met de oppositie over het belastingplan. Dat heeft nog altijd niet tot een akkoord geleid.
-- [Britse offshoremedewerkers grijpen naar afslankmedicatie door gewichtsregels](https://fd.nl/bedrijfsleven/1617721/britse-offshore-medewerkers-grijpen-naar-afslankmedicatie-door-gewichtsregels)
-  > Vanaf zondag mogen medewerkers van Britse boorplatformen maximaal 124 kilogram wegen.
+- [Nederlandse investerings­maatschappij kiest voor kleinere voetbalclubs](https://fd.nl/bedrijfsleven/1616827/nederlandse-investeringsmaatschappij-kiest-voor-kleinere-voetbalclubs)
+  > Eerst de organisatie, dan de prestatie. Dat is de filosofie van de Nederlandse investeerder Estrella Football Group.
+- [Californische rechter gelast regering-Trump te stoppen met ‘intimidatie’ verkiezingsmedewerkers](https://fd.nl/politiek/1617668/californische-rechter-gelast-regering-trump-te-stoppen-met-intimidatie-verkiezingsmedewerkers)
+  > Al maanden eisen Donald Trump en het justitieministerie dat de stembiljetten van vermeende niet-staatsburgers, opzij worden gelegd. Anders hangt...
+- [In Nigeria zijn zonnepanelen het nieuwe huwelijkscadeau](https://fd.nl/samenleving/1617632/in-nigeria-zijn-zonnepanelen-het-nieuwe-huwelijkscadeau)
+  > Veel Nigerianen wekken noodgedwongen zelf stroom op en gebruiken daarvoor steeds vaker zonnepanelen. Dankzij lage marges winnen Chinese producten...
+- [Bolsonaro mag van Trump in de VS blijven ‘zolang hij wil’](https://fd.nl/politiek/1617667/bolsonaro-mag-van-trump-in-de-vs-blijven-zolang-hij-wil)
+  > De Amerikaanse president noemt de Braziliaanse verkiezingen ‘een schande’. Die stembusgang verloor Flavio Bolsonaro vorig weekend. Er lopen...
+- [Ook in ‘jubileumjaar’ voor vogelgriep worstelen pluimveehouders nog steeds](https://fd.nl/bedrijfsleven/1617627/ook-in-jubileumjaar-voor-vogelgriep-worstelen-pluimveehouders-nog-steeds)
+  > Vorige week woensdag kondigde het kabinet een landelijke ophokplicht af. Nergens in Nederland mogen de dieren van pluimveehouders nog naar buiten.
 
 ### Meest gelezen
 
