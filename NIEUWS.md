@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-11-2026 om 10:43*
+*Laatst bijgewerkt: 02-11-2026 om 20:39*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Internationale journalistenorganisatie zet Trump op lijst van persvijanden](https://nos.nl/l/2637729)
-  > Reporters Without Borders (RSF) heeft de Amerikaanse president Trump op een lijst gezet van persvijanden. Trump heeft een vermelding 'verdiend'...
-- [Belgische koning neemt ontslag premier De Wever 'in beraad', morgen nieuw overleg](https://nos.nl/l/2637727)
-  > Koning Filip van België heeft het ontslag van premier Bart De Wever "in beraad". De Wever diende eerder vandaag zijn ontslag in, nadat...
-- [Weer aangifte tegen Philip Morris: 'Verhitte tabaksproduct nieuwe golf van misleiding'](https://nos.nl/l/2637721)
-  > De Stichting Rookpreventie Jeugd gaat aangifte doen tegen tabaksproducent Philip Morris wegens misleiding en verboden reclame. Volgens de stichting...
-- [Eigen portrettenmuur vrouwelijke hoogleraren Erasmus: 'Rolmodellen hard nodig'](https://nos.nl/l/2637720)
-  > Op de Erasmus Universiteit in Rotterdam is een portrettengalerij van hoogleraren sinds kort uitgebreid met portretten van vrouwelijke hoogleraren....
-- [Raad van State vernietigend over haast met box 3, overleg begroting verder onder druk](https://nos.nl/l/2637717)
-  > De Raad van State heeft een vernietigend oordeel over het kabinetsplan om een nieuwe vermogenswinstbelasting via box 3 in te voeren. De adviseur van...
+- [Dode en zwaargewonde bij schietpartij in auto in woonwijk Rotterdam-Oost](https://nos.nl/l/2637793)
+  > Bij een schietpartij in auto in een woonwijk in Rotterdam-Oost is vanavond de bestuurder van het het voertuig om het leven gekomen. Een andere man...
+- [Twee aanhoudingen voor gewelddadige beroving 93-jarige vrouw in Amsterdam](https://nos.nl/l/2637792)
+  > De politie heeft een 16-jarige jongen en een 30-jarige man aangehouden op verdenking van de beroving van een hoogbejaarde vrouw in Amsterdam vorige...
+- [Topoverleg coalitie over belastingplan en box 3, 'morgen brief naar de Kamer'](https://nos.nl/l/2637791)
+  > De top van de coalitie overlegt nog steeds over een manier om uit de impasse te komen rond het belastingplan en de vermogenswinstbelasting in box 3....
+- ['2 miljoen voor gouden tip Bolle Jos' gonst het in Sierra Leone, wordt hij verraden?](https://nos.nl/l/2637789)
+  > Hij verdient naar schatting tientallen miljoenen euro's per maand met drugshandel, is in meerdere rechtszaken in Nederland en België veroordeeld tot...
+- [Streep door Bredase kroegentocht op Elfde van de Elfde wegens verwachte drukte](https://nos.nl/l/2637787)
+  > De kroegentocht in Breda tijdens de aftrap van het carnavalsseizoen op 11 november gaat niet door. De gemeente is bang dat het te druk wordt in de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Sportkalender 2026 | Genoeg moois te beleven in de laatste maanden: Europees voetbal en nog veel meer](https://www.ad.nl/sport/sportkalender-2026-genoeg-moois-te-beleven-in-de-laatste-maanden-europees-voetbal-en-nog-veel-meer~a34991bb/)
-  > 2026 is een feest voor de sportliefhebber. Zo waren in februari de Olympische Winterspelen en zitten ook het WK voetbal en de Tour de France erop....
-- [Praat mee: zorgvuldigheid is belangrijker dan snelheid als je belastingregels wilt veranderen](https://www.ad.nl/praat-mee/praat-mee-zorgvuldigheid-is-belangrijker-dan-snelheid-als-je-belastingregels-wilt-veranderen~a3996231/)
-  > Het kabinetsplan om de belasting op vermogen te veranderen rammelt in de ogen van de Raad van State. Haast maken met het plan voor box 3 heeft...
-- [Win kaarten voor U2 in de Johan Cruijff ArenA!](https://www.ad.nl/muziek/win-kaarten-voor-u2-in-de-johan-cruijff-arena~ab63fe64/)
-  > Goed nieuws voor muziekliefhebbers: de iconische Ierse rockband U2 komt terug naar Nederland! Met The Greatest Show On Earth World Tour staan Bono,...
-- [Eiland La Palma volledig zonder stroom terwijl noodweer het eiland teistert: noodplan geactiveerd](https://www.ad.nl/buitenland/eiland-la-palma-volledig-zonder-stroom-terwijl-noodweer-het-eiland-teistert-noodplan-geactiveerd~ae5f4165/)
-  > Het Spaanse eiland La Palma is maandagochtend kort voor 7.00 uur lokale tijd volledig zonder stroom komen te zitten. De algemene stroomstoring trof...
-- [Reünie Volumia! zorgt voor juridische strijd: oud-gitarist sleept Xander de Buisonjé voor de rechter](https://www.ad.nl/show/reunie-volumia-zorgt-voor-juridische-strijd-oud-gitarist-sleept-xander-de-buisonje-voor-de-rechter~ae9c87bf5/)
-  > Er dreigt een donkere wolk boven de mogelijke reünie van de succesvolle popband Volumia! in 2027. Voormalig gitarist en oprichter Hans Paul Nieskens...
+- [Kabinet houdt dinsdagochtend extra ministerraad over belastingplan en box 3](https://www.ad.nl/politiek/kabinet-houdt-dinsdagochtend-extra-ministerraad-over-belastingplan-en-box-3~a5bb07c4/)
+  > Het kabinet komt dinsdagochtend om 09.00 uur bijeen voor een extra ingelaste ministerraad. Daarin wordt besloten hoe het verder moet met het...
+- [Opnieuw klap voor Brad Pitt: ook dochter Vivienne laat zijn achternaam officieel vallen](https://www.ad.nl/show/opnieuw-klap-voor-brad-pitt-ook-dochter-vivienne-laat-zijn-achternaam-officieel-vallen~aeff5117/)
+  > Opnieuw een klap voor Brad Pitt. Dochter Vivienne heeft zijn achternaam officieel laten schrappen, blijkt uit rechtbankdocumenten in handen van onder...
+- [Gen Z heeft het niet veel slechter dan oudere generaties, zegt expert: ‘Generatieverschillen worden verward met levensfaseverschillen’](https://www.ad.nl/binnenland/gen-z-heeft-het-niet-veel-slechter-dan-oudere-generaties-zegt-expert-generatieverschillen-worden-verward-met-levensfaseverschillen~a3551dfc/)
+  > Terwijl de relschoppers overal in Europa de aandacht trekken, protesteert een meerderheid van de jongeren vreedzaam voor hun toekomst. Het...
+- [Dode en zwaargewonde bij schietpartij in Rotterdam-Oost](https://www.ad.nl/rotterdam/dode-en-zwaargewonde-bij-schietpartij-in-rotterdam-oost~aaed4379/)
+  > Bij een schietpartij op de Evenaar in Rotterdam is maandagavond een man om het leven gekomen. Een tweede slachtoffer raakte zwaargewond.
+- [24 doden door luchtaanval op Oekraïens noodhulppunt: ‘Terroristische aanslag’](https://www.ad.nl/buitenland/24-doden-door-luchtaanval-op-oekraiens-noodhulppunt-terroristische-aanslag~adfb97be/)
+  > Bij aanvallen op de Oekraïense plaats Komysjoevacha, niet ver van de stad Zaporizja, zijn zeker achttien mensen om het leven gekomen. Onder meer een...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Raad van State: Trek wetsvoorstel box 3 helemaal in](https://fd.nl/politiek/1617727/raad-van-state-verbouwing-box-3-per-2028-niet-verantwoord)
-  > De raad adviseert om tot 2030 met de tegenbewijsregeling te blijven werken en dan in één keer het box 3-stelsel te vernieuwen.
-- [AI-investeringen vragen om meer transparantie in de jaarrekening](https://fd.nl/opinie/1617430/ai-investeringen-vragen-om-meer-transparantie-in-de-jaarrekening)
-  > Ondoorzichtige financiering en optimistische aannames over AI-investeringen roepen herinneringen op aan eerdere boekhoudschandalen. De financiële...
-- [Hoteliers rapporteren minder winst na btw-verhoging](https://fd.nl/bedrijfsleven/1617792/hoteliers-rapporteren-minder-winst-na-btw-verhoging)
-  > Branchevereniging KHN ziet de winstgevendheid van Nederlandse hotels verslechteren
-- [Er komen twintig miljoen vaten nooddiesel aan](https://fd.nl/politiek/1616534/er-komen-twintig-miljoen-vaten-nooddiesel-aan)
-  > De nieuwste editie van de Europa-nieuwsbrief van het FD gaat over nooddiesel, een onverwachte hereniging en goedkope cacao.
-- [Bestsellerauteur Robert Vuijsje: ‘Cruciale jaren heb ik vergooid aan iets wat er nooit is gekomen’](https://fd.nl/samenleving/1617791/bestsellerauteur-robert-vuijsje-cruciale-jaren-heb-ik-vergooid-aan-iets-wat-er-nooit-is-gekomen)
-  > De hoofdpersoon in de nieuwe roman van Robert Vuijsje verdeelt de mensheid in winnaars en verliezers. Vuijsje behoorde tot beide. ‘De schaamte en...
+- [Na Utrecht gaat ook stroomnet Gelderland deels op slot](https://fd.nl/samenleving/1617820/na-utrecht-gaat-ook-stroomnet-gelderland-deels-op-slot)
+  > Gelderland is na Utrecht de tweede provincie waar het ministerie een aansluitstop voor afkondigt wegens het overvolle elektriciteitsnet.
+- [Rechtvaardigheid tegen elke prijs?](https://fd.nl/opinie/1617769/rechtvaardigheid-tegen-elke-prijs)
+  > Zorgen over het Internationaal Strafhof zijn terecht, maar Nederland moet geen grote risico’s nemen in de relatie met Washington.
+- [Fox News wijt teruglopende kijkcijfers aan ‘moeheid’ van het publiek](https://fd.nl/bedrijfsleven/1617818/fox-news-wijt-teruglopende-kijkcijfers-aan-moeheid-van-het-publiek)
+  > De Amerikaanse nieuwszender Fox News had in oktober bijna een derde minder primetime-kijkers dan vorig jaar.
+- [Beleggers in Israël zijn vooral op zoek naar stabiliteit](https://fd.nl/financiele-markten/1617876/beleggers-in-israel-zijn-vooral-op-zoek-naar-stabiliteit)
+  > De Israëlische verkiezingsuitslag heeft ook beleggers bereikt. Het ontbreken van een afgetekende winnaar en de daaruit voortvloeiende politieke...
+- [Aantal hypotheekaanvragen met bijna een derde omlaag](https://fd.nl/economie/1617759/aantal-hypotheekaanvragen-met-bijna-een-derde-omlaag)
+  > Gestegen hypotheekrentes lijken de kooplust onder woningzoekenden te temperen. In oktober werden 36.653 hypotheekaanvragen ingediend, 30% minder dan...
 
 ### Meest gelezen
 
