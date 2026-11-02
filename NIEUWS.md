@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-11-2026 om 02:11*
+*Laatst bijgewerkt: 02-11-2026 om 10:43*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Vijf personen gered na drie maanden rondzwerven in Stille Oceaan](https://nos.nl/l/2637684)
-  > Vijf personen zijn in de buurt van de eilandenrepubliek Kiribati gered nadat hun boot drie maanden geleden vermist raakte in de Stille Oceaan.
-      ...
-- [App die Oekraïners waarschuwt, verstuurt 'door hack' nepbericht over nucleaire aanval](https://nos.nl/l/2637683)
-  > Een app die Oekraïners waarschuwt voor op handen zijnde Russische luchtaanvallen, heeft gisteravond nepberichten verstuurd waarin werd gewaarschuwd...
-- [Privéjet stort neer in woonwijk in Florida, alle negen inzittenden omgekomen](https://nos.nl/l/2637682)
-  > In de Amerikaanse staat Florida is een privévliegtuig met negen inzittenden neergestort. Alle mensen aan boord zijn daarbij om het leven gekomen,...
-- [Bulgarije krijgt met Jotova pro-Russische president, steun voor premier Radev](https://nos.nl/l/2637672)
-  > Bulgarije krijgt voor het eerst een gekozen vrouwelijke president. De pro-Russische Iliana Jotova heeft volgens de exitpolls 56 tot 58 procent van de...
-- [Na de verkiezingen en een verbijsterende week in Brazilië, hoe nu verder?](https://nos.nl/l/2637669)
-  > Een week na de spannende verkiezingen in Brazilië, die verrassend werden gewonnen door zittend president Lula da Silva, volgen de spectaculaire...
+- [Internationale journalistenorganisatie zet Trump op lijst van persvijanden](https://nos.nl/l/2637729)
+  > Reporters Without Borders (RSF) heeft de Amerikaanse president Trump op een lijst gezet van persvijanden. Trump heeft een vermelding 'verdiend'...
+- [Belgische koning neemt ontslag premier De Wever 'in beraad', morgen nieuw overleg](https://nos.nl/l/2637727)
+  > Koning Filip van België heeft het ontslag van premier Bart De Wever "in beraad". De Wever diende eerder vandaag zijn ontslag in, nadat...
+- [Weer aangifte tegen Philip Morris: 'Verhitte tabaksproduct nieuwe golf van misleiding'](https://nos.nl/l/2637721)
+  > De Stichting Rookpreventie Jeugd gaat aangifte doen tegen tabaksproducent Philip Morris wegens misleiding en verboden reclame. Volgens de stichting...
+- [Eigen portrettenmuur vrouwelijke hoogleraren Erasmus: 'Rolmodellen hard nodig'](https://nos.nl/l/2637720)
+  > Op de Erasmus Universiteit in Rotterdam is een portrettengalerij van hoogleraren sinds kort uitgebreid met portretten van vrouwelijke hoogleraren....
+- [Raad van State vernietigend over haast met box 3, overleg begroting verder onder druk](https://nos.nl/l/2637717)
+  > De Raad van State heeft een vernietigend oordeel over het kabinetsplan om een nieuwe vermogenswinstbelasting via box 3 in te voeren. De adviseur van...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Max Verstappen grapt na zesde zege in Mexico: ‘We kunnen het wel de Grand Prix van Maxico gaan noemen’](https://www.ad.nl/formule-1/max-verstappen-grapt-na-zesde-zege-in-mexico-we-kunnen-het-wel-de-grand-prix-van-maxico-gaan-noemen~aa6a9f29/)
-  > Hoewel wereldkampioen Kimi Antonelli het grootste feestvarken was na de Grand Prix van Mexico, had ook Max Verstappen genoeg reden voor een feestje....
-- [Treinramp Spanje: ook zeker twaalf buitenlanders om het leven gekomen](https://www.ad.nl/buitenland/treinramp-spanje-ook-zeker-twaalf-buitenlanders-om-het-leven-gekomen~a915b76a/)
-  > In Spanje zijn nog eens tien buitenlandse slachtoffers van het treinongeluk van vorige week geïdentificeerd. Vier van hen kwamen uit de Verenigde...
-- [Axios: ‘Trump wil diplomatieke oplossing met Iran, Netanyahu meteen na midterms weer aanvallen’](https://www.ad.nl/buitenland/axios-trump-wil-diplomatieke-oplossing-met-iran-netanyahu-meteen-na-midterms-weer-aanvallen~ac528ac3/)
-  > Donald Trump zou voorrang willen geven aan een diplomatieke oplossing in de oorlog met Iran, terwijl de Israëlische premier Benjamin Netanyahu juist...
-- [Prachtige woorden van Sebastian Vettel voor opvolger Kimi Antonelli: ‘Ga er nu van genieten’](https://www.ad.nl/formule-1/prachtige-woorden-van-sebastian-vettel-voor-opvolger-kimi-antonelli-ga-er-nu-van-genieten~afd17814/)
-  > De Formule 1 dendert door in deze periode. Volg alle ontwikkelingen hier.
-- [Stand Formule 1 | Kimi Antonelli pakt titel, Max Verstappen schiet naar tweede plek in kampioenschap](https://www.ad.nl/formule-1/stand-formule-1-kimi-antonelli-pakt-titel-max-verstappen-schiet-naar-tweede-plek-in-kampioenschap~a8a75660/)
-  > Kimi Antonelli heeft het geflikt. De coureur van Mercedes eindigde op het podium in Mexico en verzekerde zich daarmee van het wereldkampioenschap...
+- [Sportkalender 2026 | Genoeg moois te beleven in de laatste maanden: Europees voetbal en nog veel meer](https://www.ad.nl/sport/sportkalender-2026-genoeg-moois-te-beleven-in-de-laatste-maanden-europees-voetbal-en-nog-veel-meer~a34991bb/)
+  > 2026 is een feest voor de sportliefhebber. Zo waren in februari de Olympische Winterspelen en zitten ook het WK voetbal en de Tour de France erop....
+- [Praat mee: zorgvuldigheid is belangrijker dan snelheid als je belastingregels wilt veranderen](https://www.ad.nl/praat-mee/praat-mee-zorgvuldigheid-is-belangrijker-dan-snelheid-als-je-belastingregels-wilt-veranderen~a3996231/)
+  > Het kabinetsplan om de belasting op vermogen te veranderen rammelt in de ogen van de Raad van State. Haast maken met het plan voor box 3 heeft...
+- [Win kaarten voor U2 in de Johan Cruijff ArenA!](https://www.ad.nl/muziek/win-kaarten-voor-u2-in-de-johan-cruijff-arena~ab63fe64/)
+  > Goed nieuws voor muziekliefhebbers: de iconische Ierse rockband U2 komt terug naar Nederland! Met The Greatest Show On Earth World Tour staan Bono,...
+- [Eiland La Palma volledig zonder stroom terwijl noodweer het eiland teistert: noodplan geactiveerd](https://www.ad.nl/buitenland/eiland-la-palma-volledig-zonder-stroom-terwijl-noodweer-het-eiland-teistert-noodplan-geactiveerd~ae5f4165/)
+  > Het Spaanse eiland La Palma is maandagochtend kort voor 7.00 uur lokale tijd volledig zonder stroom komen te zitten. De algemene stroomstoring trof...
+- [Reünie Volumia! zorgt voor juridische strijd: oud-gitarist sleept Xander de Buisonjé voor de rechter](https://www.ad.nl/show/reunie-volumia-zorgt-voor-juridische-strijd-oud-gitarist-sleept-xander-de-buisonje-voor-de-rechter~ae9c87bf5/)
+  > Er dreigt een donkere wolk boven de mogelijke reünie van de succesvolle popband Volumia! in 2027. Voormalig gitarist en oprichter Hans Paul Nieskens...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Geen zwendel](https://fd.nl/opinie/1617672/geen-zwendel)
-  > Mathijs Bouman vraagt zich af wat het verschil is met een belastingkorting voor bedrijfseigenaren in box 2 en het laten oplopen van het...
-- [AFM berispt pensioenuitvoerders vanwege gebrekkige informatie over nabestaandenpensioen](https://fd.nl/financiele-markten/1617554/afm-berispt-pensioenuitvoerders-vanwege-gebrekkige-informatie-over-nabestaandenpensioen)
-  > Pensioenuitvoerders moeten nabestaanden na een overlijden duidelijk en volledig informeren over het pensioen. Dat gebeurt nu niet genoeg, benadrukt...
-- [AI-bot of Kamerlid: wie vertegenwoordigt de kiezer?](https://fd.nl/opinie/1617383/ai-democratie)
-  > Maar liefst 68 Kamerleden gebruikten dit jaar AI, blijkt uit onderzoek van Investico en De Groene Amsterdammer. Gevaarlijk dat AI nu ook doordringt...
-- [Hoge rente dreigt herstel vastgoedmarkt in de knop te breken](https://fd.nl/economie/1617281/hoge-rente-dreigt-herstel-vastgoedmarkt-in-de-knop-te-breken)
-  > De toch al prille opleving van de vastgoedmarkt lijkt ten einde. Deals worden heronderhandeld of uitgesteld, prijzen dreigen te dalen. ‘Als je nu...
-- [Franse beurs ligt, net als duizenden winkelruiten, in scherven](https://fd.nl/financiele-markten/1616889/franse-beurs-ligt-net-als-duizenden-winkelruiten-in-scherven)
-  > Als een van de weinige beurzen staat de Franse CAC 40 dit jaar op verlies. Beleggers maken zich zorgen over de rellen, staatsschuld en oplopende...
+- [Raad van State: Trek wetsvoorstel box 3 helemaal in](https://fd.nl/politiek/1617727/raad-van-state-verbouwing-box-3-per-2028-niet-verantwoord)
+  > De raad adviseert om tot 2030 met de tegenbewijsregeling te blijven werken en dan in één keer het box 3-stelsel te vernieuwen.
+- [AI-investeringen vragen om meer transparantie in de jaarrekening](https://fd.nl/opinie/1617430/ai-investeringen-vragen-om-meer-transparantie-in-de-jaarrekening)
+  > Ondoorzichtige financiering en optimistische aannames over AI-investeringen roepen herinneringen op aan eerdere boekhoudschandalen. De financiële...
+- [Hoteliers rapporteren minder winst na btw-verhoging](https://fd.nl/bedrijfsleven/1617792/hoteliers-rapporteren-minder-winst-na-btw-verhoging)
+  > Branchevereniging KHN ziet de winstgevendheid van Nederlandse hotels verslechteren
+- [Er komen twintig miljoen vaten nooddiesel aan](https://fd.nl/politiek/1616534/er-komen-twintig-miljoen-vaten-nooddiesel-aan)
+  > De nieuwste editie van de Europa-nieuwsbrief van het FD gaat over nooddiesel, een onverwachte hereniging en goedkope cacao.
+- [Bestsellerauteur Robert Vuijsje: ‘Cruciale jaren heb ik vergooid aan iets wat er nooit is gekomen’](https://fd.nl/samenleving/1617791/bestsellerauteur-robert-vuijsje-cruciale-jaren-heb-ik-vergooid-aan-iets-wat-er-nooit-is-gekomen)
+  > De hoofdpersoon in de nieuwe roman van Robert Vuijsje verdeelt de mensheid in winnaars en verliezers. Vuijsje behoorde tot beide. ‘De schaamte en...
 
 ### Meest gelezen
 
