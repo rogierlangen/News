@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-11-2026 om 18:16*
+*Laatst bijgewerkt: 03-11-2026 om 23:53*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [OM eist 12 jaar cel voor verdachte van 'vriezermoord' op vader](https://nos.nl/l/2637914)
-  > Het Openbaar Ministerie (OM) eist een gevangenisstraf van twaalf jaar tegen een 33-jarige man uit Heerhugowaard. Volgens het OM is bewezen dat hij in...
-- [Polen stuurt extra politie naar de grens met Rusland na 'provocatie'](https://nos.nl/l/2637910)
-  > Polen schroeft de politieaanwezigheid in het grensgebied met Rusland op, zegt de Poolse premier Tusk. Het gaat om het gebied in de buurt van de...
-- [Binance: hackers kwamen binnen via nepsollicitatie](https://nos.nl/l/2637909)
-  > De hackers die vorige week binnendrongen bij cryptoplatform Binance, deden dat via een vervalste sollicitatieprocedure. Het bedrijf heeft op X een...
-- [Verdienmodel nieuwsmedia onder druk door AI-resultaten zoekmachines en chatbots](https://nos.nl/l/2637908)
-  > AI-samenvattingen van Google zijn in sommige gevallen in strijd met het auteursrecht van kranten en nieuwssites. Dat zegt advocaat-generaal Maciej...
-- [Britse zanger Steve Ellis (76) van eeuwige hit 'Everlasting Love' overleden](https://nos.nl/l/2637906)
-  > In twee takes wist hij eind jaren 60 met Everlasting Love een klassieker in te zingen die nog altijd op honderdduizenden streams per maand kan...
+- [Overheid was onbetrouwbaar voor boeren, zegt Nationale ombudsman](https://nos.nl/l/2637945)
+  > De overheid was de afgelopen tien jaar onbetrouwbaar voor boeren. Dat stelt de Nationale ombudsman, onder meer op basis van gesprekken met 32...
+- [NOS-podcast De Dag uitgeroepen tot beste dagelijkse podcast](https://nos.nl/l/2637944)
+  > De NOS-podcast De Dag is verkozen tot beste dagelijkse podcast bij de Dutch Podcast Awards. Volgens de jury zijn in de serie complexe onderwerpen...
+- [Opnieuw duizenden Tsjechen de straat op tegen hervorming publieke omroep](https://nos.nl/l/2637936)
+  > In Tsjechië zijn opnieuw duizenden mensen de straat op gegaan uit solidariteit met de publieke omroep. Radio- en tv-medewerkers staakten vandaag uit...
+- [Drenten willen strengere aanpak wolf: 'Kinderen durven niet meer op de fiets'](https://nos.nl/l/2637932)
+  > Inwoners van Drenthe maken zich grote zorgen over de wolf in de provincie. Burgemeesters van tien gemeenten stuurden daarover een brandbrief naar...
+- [Dodental na aanval in regio Zaporizja loopt op, VN veroordeelt aanval op burgers](https://nos.nl/l/2637930)
+  > Het dodental van de Russische aanval van gisteren op een voormalig schoolgebouw in Oekraïne is opgelopen tot meer dan 30 en er worden zeker 50 mensen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Tandplak is niet alleen slecht voor je gebit, je adem gaat er ook nog van stinken: Zo voorkom je dat](https://www.ad.nl/gezond/tandplak-is-niet-alleen-slecht-voor-je-gebit-je-adem-gaat-er-ook-nog-van-stinken-zo-voorkom-je-dat~a057b4b9/)
-  > Gezond tandvlees, een frisse adem en een sterk gebit beginnen met een goede mondhygiëne. Maar hoe pak je dat aan? In deze reeks helpt mondhygiënist...
-- [Lange sluiting Noordtunnel treft bedrijven hard: ‘Iedereen in het land krijgt hiervan de rekening’](https://www.ad.nl/binnenland/lange-sluiting-noordtunnel-treft-bedrijven-hard-iedereen-in-het-land-krijgt-hiervan-de-rekening~a19941d9/)
-  > De Noordtunnel in de A15 moet worden opgeknapt en dat betekent een langdurig gestremde tunnel. Het treft veel mensen en bedrijven in de regio’s...
-- [Verkiezingen worden gewonnen door die overige 90 procent](https://www.ad.nl/commentaar/verkiezingen-worden-gewonnen-door-die-overige-90-procent~a770c9ee/)
-  > De rijken zijn in de Verenigde Staten de overduidelijke winnaars van Trumps economische beleid. Maar de steun van een rijke bovenlaag is meestal niet...
-- [Rico Verhoeven bokst niet meer in 2026: gevecht op kaart Tyson Fury en Anthony Joshua afgeketst](https://www.ad.nl/vechtsport/rico-verhoeven-bokst-niet-meer-in-2026-gevecht-op-kaart-tyson-fury-en-anthony-joshua-afgeketst~a70d9a93/)
-  > De beoogde bokswedstrijd van Rico Verhoeven op vrijdag 11 december tegen voormalig wereldkampioen zwaargewicht Deontay Wilder gaat niet door. De...
-- [Feyenoord won in 2002 van Inter, clubs speelden vorig jaar ook nog tegen elkaar](https://www.ad.nl/voetbal/feyenoord-won-in-2002-van-inter-clubs-speelden-vorig-jaar-ook-nog-tegen-elkaar~a803dc91/)
-  > Nauwelijks drie dagen na het puntenverlies tegen Fortuna Sittard (1-1) wacht Feyenoord een prachtaffiche in de eigen Kuip. De Italiaanse kampioen...
+- [Kabinet heeft nog geen vijfde van gemiste inkomsten box 3 gedekt, berekent ministerie van Financiën](https://www.ad.nl/politiek/kabinet-heeft-nog-geen-vijfde-van-gemiste-inkomsten-box-3-gedekt-berekent-ministerie-van-financien~a2acddc0/)
+  > Het niet meer belasten van papieren winsten in box 3 per 2028 kost de schatkist tot en met 2040 in totaal 21,8 miljard euro. Daarvan wordt maar een...
+- [Canada laat Russische ijshockeyers niet deelnemen aan toernooi, ondanks uitspraak sporttribunaal](https://www.ad.nl/sport/canada-laat-russische-ijshockeyers-niet-deelnemen-aan-toernooi-ondanks-uitspraak-sporttribunaal~a5df0658/)
+  > Canada is niet van plan om Russische spelers toe te laten tot het wereldkampioenschap ijshockey voor junioren, dat volgende maand in de provincie...
+- [Gat in dak van de Kuip door lichtkogels, ongeloof bij Van Bronckhorst: ‘Vuurwerk van buiten het stadion, wat doe je daar aan?’](https://www.ad.nl/voetbal/gat-in-dak-van-de-kuip-door-lichtkogels-ongeloof-bij-van-bronckhorst-vuurwerk-van-buiten-het-stadion-wat-doe-je-daar-aan~ac2da8b5/)
+  > Tijdens de Champions League-wedstrijd tussen Feyenoord en Internazionale (0-3) is dinsdagavond schade ontstaan aan het dak van de Kuip. Meerdere...
+- [AD Voetbalpodcast | ‘Feyenoord kwam op alle fronten te kort tegen Inter’](https://www.ad.nl/voetbal/ad-voetbalpodcast-feyenoord-kwam-op-alle-fronten-te-kort-tegen-inter~a42af5cd9/)
+  > Feyenoord kende een slechte Europese avond. In de Kuip werd met 0-3 verloren van een gehavend Internazionale. Daarmee blijft de ploeg van Van...
+- [LIVE Midterms VS | Opkomst tot nu toe bijzonder hoog, Trump volgt verkiezingen via tv en laat meteen van zich horen](https://www.ad.nl/buitenland/live-midterms-vs-opkomst-tot-nu-toe-bijzonder-hoog-trump-volgt-verkiezingen-via-tv-en-laat-meteen-van-zich-horen~a6a0f0b2/)
+  > Amerikanen trekken dinsdag naar het stembureau voor de midterms, die de machtsverhoudingen in het Congres flink kunnen veranderen. Het volk stemt...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Vier vragen over de starterslening: voor wie is die lening, en heeft ze zin?](https://fd.nl/samenleving/1617930/vier-vragen-over-de-starterslening-voor-wie-is-het-en-heeft-het-zin)
-  > Gemeenten vormen een lappendeken aan voorwaarden en maximale leenbedragen. Econoom Matthijs Korevaar twijfelt aan het nut van de lening.
-- [Nijmeegse chipmaker Nexperia klaagt Chinese eigenaar Wingtech aan](https://fd.nl/bedrijfsleven/1617859/nijmeegse-chipmaker-nexperia-klaagt-chinese-eigenaar-wingtech-aan)
-  > In een verklaring stelt Wingtech te zijn aangeklaagd met een schadeclaim van $2 mrd. De onderneming zegt de beschuldigingen niet te erkennen.
-- [Miljoenensubsidies van EU voor Nederlandse projecten voor reductie CO₂](https://fd.nl/bedrijfsleven/1617838/miljoenensubsidies-van-eu-voor-nederlandse-projecten-voor-reductie-co)
-  > Voor zeven innovatieve bedrijven ligt zeker €150 mln klaar. Ze moeten nog wel voldoen aan een aantal voorwaarden uit Brussel.
-- [Toeleverancier auto-industrie Schaeffler gaat opnieuw saneren](https://fd.nl/bedrijfsleven/1617919/toeleverancier-auto-industrie-schaeffler-gaat-opnieuw-saneren)
-  > Duitse onderneming komt met nieuwe saneringsronde, waarbij duizenden werknemers moeten vertrekken.
-- [Rijk Zwaan-ceo: ‘Ik zie een hernieuwde waardering voor het Nederlandse bedrijfsleven’](https://fd.nl/bedrijfsleven/1617937/rijk-zwaan-ceo-ik-zie-een-hernieuwde-waardering-voor-het-nederlandse-bedrijfsleven)
-  > Het groente- en fruitveredelingsbedrijf boekt meer omzet en meer winst, blijkt uit de meest recente jaarcijfers. ‘Bij ons staat stabiliteit voorop’,...
+- [Kwart van de werkgevers kampt nog altijd met personeelstekort](https://fd.nl/bedrijfsleven/1617945/kwart-van-de-werkgevers-kampt-nog-altijd-met-personeelstekort)
+  > Het tekort aan personeel is in de laatste twee jaar amper minder geworden, terwijl de krapte op de arbeidsmarkt wel is afgenomen.
+- [Gokken op meer](https://fd.nl/opinie/1617864/gokken-op-meer)
+  > Premier Jetten waagt de ultieme gok. Het belastingplan gaat naar het parlement zonder meerderheid vooraf.
+- [Beat it: talent of discipline?](https://fd.nl/opinie/1617853/beat-it-talent-of-discipline)
+  > Talent geeft je een voorsprong, maar is geen garantie op succes. Wat weegt uiteindelijk zwaarder: een uitzonderlijk brein of jarenlang oefenen,...
+- [Corruptieschandaal Sri Lanka kost Nederlandse staat bijna €30 mln](https://fd.nl/politiek/1616817/corruptieschandaal-sri-lanka-kost-nederlandse-staat-bijna-30-mln)
+  > De staat stond via verzekeraar Atradius garant voor een lening van Rabobank aan de Sri Lankaanse overheid. Die betaalde het laatste deel niet terug.
+- [Personalia woensdag 4 november](https://fd.nl/bedrijfsleven/1617936/personalia-woensdag-4-november)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
