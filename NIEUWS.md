@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 02-11-2026 om 20:39*
+*Laatst bijgewerkt: 03-11-2026 om 02:48*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Hotel in Amsterdam ontruimd na grote brand](https://nos.nl/l/2637811)
+  > Bij een grote brand in een hotel in Amsterdam zijn vannacht 140 gasten geëvacueerd. De brand ontstond mogelijk door een apparaat dat vlam vatte. De...
+- [VS doen nieuwe poging vredesproces tussen Oekraïne en Rusland vlot te trekken](https://nos.nl/l/2637810)
+  > Onder leiding van de Amerikaanse gezanten Steve Witkoff en Jared Kushner wordt op 10 en 11 november in Abu Dhabi gesproken over de beëindiging van de...
+- [Gelderland deels op slot voor nieuwe aansluitingen stroomnet: 'Bittere pil'](https://nos.nl/l/2637801)
+  > Een aantal gemeenten in Gelderland gaat op slot voor nieuwe aansluitingen op het elektriciteitsnet. Dat heeft het ministerie van Economische Zaken en...
+- [In Florida gecrashte privéjet verloor mogelijk in de lucht onderdelen](https://nos.nl/l/2637800)
+  > Het privévliegtuig dat afgelopen nacht nagenoeg loodrecht neerstortte in Florida lijkt al in de lucht onderdelen te hebben verloren. "We hebben...
 - [Dode en zwaargewonde bij schietpartij in auto in woonwijk Rotterdam-Oost](https://nos.nl/l/2637793)
-  > Bij een schietpartij in auto in een woonwijk in Rotterdam-Oost is vanavond de bestuurder van het het voertuig om het leven gekomen. Een andere man...
-- [Twee aanhoudingen voor gewelddadige beroving 93-jarige vrouw in Amsterdam](https://nos.nl/l/2637792)
-  > De politie heeft een 16-jarige jongen en een 30-jarige man aangehouden op verdenking van de beroving van een hoogbejaarde vrouw in Amsterdam vorige...
-- [Topoverleg coalitie over belastingplan en box 3, 'morgen brief naar de Kamer'](https://nos.nl/l/2637791)
-  > De top van de coalitie overlegt nog steeds over een manier om uit de impasse te komen rond het belastingplan en de vermogenswinstbelasting in box 3....
-- ['2 miljoen voor gouden tip Bolle Jos' gonst het in Sierra Leone, wordt hij verraden?](https://nos.nl/l/2637789)
-  > Hij verdient naar schatting tientallen miljoenen euro's per maand met drugshandel, is in meerdere rechtszaken in Nederland en België veroordeeld tot...
-- [Streep door Bredase kroegentocht op Elfde van de Elfde wegens verwachte drukte](https://nos.nl/l/2637787)
-  > De kroegentocht in Breda tijdens de aftrap van het carnavalsseizoen op 11 november gaat niet door. De gemeente is bang dat het te druk wordt in de...
+  > Bij een schietpartij in een auto in een woonwijk in Rotterdam-Oost is vanavond de bestuurder van het voertuig om het leven gekomen. De politie meldt...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Kabinet houdt dinsdagochtend extra ministerraad over belastingplan en box 3](https://www.ad.nl/politiek/kabinet-houdt-dinsdagochtend-extra-ministerraad-over-belastingplan-en-box-3~a5bb07c4/)
-  > Het kabinet komt dinsdagochtend om 09.00 uur bijeen voor een extra ingelaste ministerraad. Daarin wordt besloten hoe het verder moet met het...
-- [Opnieuw klap voor Brad Pitt: ook dochter Vivienne laat zijn achternaam officieel vallen](https://www.ad.nl/show/opnieuw-klap-voor-brad-pitt-ook-dochter-vivienne-laat-zijn-achternaam-officieel-vallen~aeff5117/)
-  > Opnieuw een klap voor Brad Pitt. Dochter Vivienne heeft zijn achternaam officieel laten schrappen, blijkt uit rechtbankdocumenten in handen van onder...
-- [Gen Z heeft het niet veel slechter dan oudere generaties, zegt expert: ‘Generatieverschillen worden verward met levensfaseverschillen’](https://www.ad.nl/binnenland/gen-z-heeft-het-niet-veel-slechter-dan-oudere-generaties-zegt-expert-generatieverschillen-worden-verward-met-levensfaseverschillen~a3551dfc/)
-  > Terwijl de relschoppers overal in Europa de aandacht trekken, protesteert een meerderheid van de jongeren vreedzaam voor hun toekomst. Het...
-- [Dode en zwaargewonde bij schietpartij in Rotterdam-Oost](https://www.ad.nl/rotterdam/dode-en-zwaargewonde-bij-schietpartij-in-rotterdam-oost~aaed4379/)
-  > Bij een schietpartij op de Evenaar in Rotterdam is maandagavond een man om het leven gekomen. Een tweede slachtoffer raakte zwaargewond.
-- [24 doden door luchtaanval op Oekraïens noodhulppunt: ‘Terroristische aanslag’](https://www.ad.nl/buitenland/24-doden-door-luchtaanval-op-oekraiens-noodhulppunt-terroristische-aanslag~adfb97be/)
-  > Bij aanvallen op de Oekraïense plaats Komysjoevacha, niet ver van de stad Zaporizja, zijn zeker achttien mensen om het leven gekomen. Onder meer een...
+- [LIVE Midden-Oosten | VS voeren reeks aanvallen uit op Iraans eiland Qeshm, vijf explosies gehoord](https://www.ad.nl/buitenland/live-midden-oosten-vs-voeren-reeks-aanvallen-uit-op-iraans-eiland-qeshm-vijf-explosies-gehoord~ac528ac3/)
+  > De Verenigde Staten hebben een reeks aanvallen uitgevoerd op het Iraanse eiland Qeshm en omliggende gebieden nabij de Straat van Hormuz. De aanvallen...
+- [Brit die eigen vrouw 20 jaar lang drogeerde en liet verkrachten, had ruim miljoen foto’s op telefoon](https://www.ad.nl/buitenland/brit-die-eigen-vrouw-20-jaar-lang-drogeerde-en-liet-verkrachten-had-ruim-miljoen-fotos-op-telefoon~a6046f44/)
+  > De Britse man die zijn eigen vrouw meer dan twintig jaar lang heeft gedrogeerd en verkracht, en onbekenden uitnodigde om deel te nemen aan het...
+- [Neergestort vliegtuig met negen inzittenden viel mogelijk in de lucht al uit elkaar](https://www.ad.nl/buitenland/neergestort-vliegtuig-met-negen-inzittenden-viel-mogelijk-in-de-lucht-al-uit-elkaar~a5853d38/)
+  > Het privévliegtuig dat zondag neerstortte in een woonwijk in de staat Florida, is mogelijk al in de lucht uit elkaar gevallen voordat het met hoge...
+- [LIVE Oorlog Oekraïne | VS doen nieuwe poging tot vredesbespreking met Oekraïne en Rusland in Abu Dhabi](https://www.ad.nl/buitenland/live-oorlog-oekraine-vs-doen-nieuwe-poging-tot-vredesbespreking-met-oekraine-en-rusland-in-abu-dhabi~adfb97be/)
+  > De Verenigde Staten brengen op 10 en 11 november delegaties uit Oekraïne en Rusland samen in Abu Dhabi. Doel is om te spreken over een einde aan de...
+- [AD Voetbalpodcast | ‘Als je nu al bang bent dat je gaat degraderen, is dat opportunistisch’](https://www.ad.nl/voetbal/ad-voetbalpodcast-als-je-nu-al-bang-bent-dat-je-gaat-degraderen-is-dat-opportunistisch~a42af5cd9/)
+  > Weer is er een trainer vroeg in het seizoen gesneuveld. Robin Peter werd vorig seizoen nog kampioen met ADO Den Haag van de KKD, maar is elf...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Na Utrecht gaat ook stroomnet Gelderland deels op slot](https://fd.nl/samenleving/1617820/na-utrecht-gaat-ook-stroomnet-gelderland-deels-op-slot)
-  > Gelderland is na Utrecht de tweede provincie waar het ministerie een aansluitstop voor afkondigt wegens het overvolle elektriciteitsnet.
-- [Rechtvaardigheid tegen elke prijs?](https://fd.nl/opinie/1617769/rechtvaardigheid-tegen-elke-prijs)
-  > Zorgen over het Internationaal Strafhof zijn terecht, maar Nederland moet geen grote risico’s nemen in de relatie met Washington.
-- [Fox News wijt teruglopende kijkcijfers aan ‘moeheid’ van het publiek](https://fd.nl/bedrijfsleven/1617818/fox-news-wijt-teruglopende-kijkcijfers-aan-moeheid-van-het-publiek)
-  > De Amerikaanse nieuwszender Fox News had in oktober bijna een derde minder primetime-kijkers dan vorig jaar.
-- [Beleggers in Israël zijn vooral op zoek naar stabiliteit](https://fd.nl/financiele-markten/1617876/beleggers-in-israel-zijn-vooral-op-zoek-naar-stabiliteit)
-  > De Israëlische verkiezingsuitslag heeft ook beleggers bereikt. Het ontbreken van een afgetekende winnaar en de daaruit voortvloeiende politieke...
-- [Aantal hypotheekaanvragen met bijna een derde omlaag](https://fd.nl/economie/1617759/aantal-hypotheekaanvragen-met-bijna-een-derde-omlaag)
-  > Gestegen hypotheekrentes lijken de kooplust onder woningzoekenden te temperen. In oktober werden 36.653 hypotheekaanvragen ingediend, 30% minder dan...
+- [Californian dreamin’](https://fd.nl/opinie/1617877/californian-dreamin)
+  > Een paar honderd miljardairs tegen 23 miljoen kiezers. Dat lijkt niet al te moeilijk, maar tax the rich blijkt in de praktijk verdraaid lastig.
+- [Steeds meer mensen met WW-uitkering zijn hogeropgeleid](https://fd.nl/economie/1617801/steeds-meer-mensen-met-ww-uitkering-zijn-hogeropgeleid)
+  > Mede door de opmars van AI biedt het hbo- of wo-diploma geen baanzekerheid meer, zegt UWV-bestuurder Judith Duveen.
+- [De midterms zijn minder spannend dan ze lijken](https://fd.nl/opinie/1617794/de-midterms-zijn-minder-spannend-dan-ze-lijken)
+  > De midterms lijken een politieke aardverschuiving te worden, maar voor Donald Trump valt de schade waarschijnlijk mee. Verlies van de zittende partij...
+- [Democraten ruiken kans bij de midterms in conservatief Texas](https://fd.nl/politiek/1617755/democraten-ruiken-kans-bij-de-midterms-in-conservatief-texas)
+  > Texas is al decennia een Republikeins bolwerk, maar daar kan vandaag bij de verkiezingen verandering in komen.  ‘Onverteerbaar dat ik als Republikein...
+- [Koopstarters grijpen mis door uitgeputte leningpotjes van gemeenten](https://fd.nl/samenleving/1617446/koopstarters-grijpen-mis-door-uitgeputte-leningpotjes-van-gemeenten)
+  > Het aantal aanvragen van startersleningen groeit, mede door de gestegen woningprijzen. Sommige starters komen voor verrassingen te staan en lopen...
 
 ### Meest gelezen
 
