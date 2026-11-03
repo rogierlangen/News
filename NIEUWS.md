@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-11-2026 om 02:48*
+*Laatst bijgewerkt: 03-11-2026 om 10:35*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Hotel in Amsterdam ontruimd na grote brand](https://nos.nl/l/2637811)
-  > Bij een grote brand in een hotel in Amsterdam zijn vannacht 140 gasten geëvacueerd. De brand ontstond mogelijk door een apparaat dat vlam vatte. De...
-- [VS doen nieuwe poging vredesproces tussen Oekraïne en Rusland vlot te trekken](https://nos.nl/l/2637810)
-  > Onder leiding van de Amerikaanse gezanten Steve Witkoff en Jared Kushner wordt op 10 en 11 november in Abu Dhabi gesproken over de beëindiging van de...
-- [Gelderland deels op slot voor nieuwe aansluitingen stroomnet: 'Bittere pil'](https://nos.nl/l/2637801)
-  > Een aantal gemeenten in Gelderland gaat op slot voor nieuwe aansluitingen op het elektriciteitsnet. Dat heeft het ministerie van Economische Zaken en...
-- [In Florida gecrashte privéjet verloor mogelijk in de lucht onderdelen](https://nos.nl/l/2637800)
-  > Het privévliegtuig dat afgelopen nacht nagenoeg loodrecht neerstortte in Florida lijkt al in de lucht onderdelen te hebben verloren. "We hebben...
-- [Dode en zwaargewonde bij schietpartij in auto in woonwijk Rotterdam-Oost](https://nos.nl/l/2637793)
-  > Bij een schietpartij in een auto in een woonwijk in Rotterdam-Oost is vanavond de bestuurder van het voertuig om het leven gekomen. De politie meldt...
+- [Philips schikt apneu-zaak met Amerikaanse justitie, topman enthousiast over AI](https://nos.nl/l/2637844)
+  > Voor Philips komt na vijf jaar een einde in zicht van de grote juridische problemen rond haperende slaapapneu-apparaten. Het concern schikt de zaak...
+- [Vliegtuig uit Londen maakt landing in Polen vanwege mogelijk explosief aan boord](https://nos.nl/l/2637841)
+  > Een passagiersvliegtuig dat onderweg was van Londen naar Warschau heeft een ongeplande landing gemaakt op luchthaven Warschau-Modlin na een melding...
+- [Meer dan honderd gewonden in Oekraïense regio Charkiv, ziekenhuis aangevallen](https://nos.nl/l/2637840)
+  > Bij Russische aanvallen in de regio Charkiv zijn zeker 114 mensen gewond geraakt, melden de Oekraïense autoriteiten. In een voorstad van de stad...
+- [VS voert aanvallen uit op het Iraanse eiland Qeshm](https://nos.nl/l/2637838)
+  > De Verenigde Staten hebben aanvallen uitgevoerd op het Iraanse eiland Qeshm. Dat eiland ligt op een strategische positie in de Straat van Hormuz en...
+- [Kamerleden naar Zierikzee voor officiële vergadering buiten Den Haag](https://nos.nl/l/2637831)
+  > Sinds jaar en dag vergaderen de leden van Tweede Kamer in het Tweede Kamergebouw in Den Haag. BBB en D66 dienden in juni vorig jaar samen een motie...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE Midden-Oosten | VS voeren reeks aanvallen uit op Iraans eiland Qeshm, vijf explosies gehoord](https://www.ad.nl/buitenland/live-midden-oosten-vs-voeren-reeks-aanvallen-uit-op-iraans-eiland-qeshm-vijf-explosies-gehoord~ac528ac3/)
-  > De Verenigde Staten hebben een reeks aanvallen uitgevoerd op het Iraanse eiland Qeshm en omliggende gebieden nabij de Straat van Hormuz. De aanvallen...
-- [Brit die eigen vrouw 20 jaar lang drogeerde en liet verkrachten, had ruim miljoen foto’s op telefoon](https://www.ad.nl/buitenland/brit-die-eigen-vrouw-20-jaar-lang-drogeerde-en-liet-verkrachten-had-ruim-miljoen-fotos-op-telefoon~a6046f44/)
-  > De Britse man die zijn eigen vrouw meer dan twintig jaar lang heeft gedrogeerd en verkracht, en onbekenden uitnodigde om deel te nemen aan het...
-- [Neergestort vliegtuig met negen inzittenden viel mogelijk in de lucht al uit elkaar](https://www.ad.nl/buitenland/neergestort-vliegtuig-met-negen-inzittenden-viel-mogelijk-in-de-lucht-al-uit-elkaar~a5853d38/)
-  > Het privévliegtuig dat zondag neerstortte in een woonwijk in de staat Florida, is mogelijk al in de lucht uit elkaar gevallen voordat het met hoge...
-- [LIVE Oorlog Oekraïne | VS doen nieuwe poging tot vredesbespreking met Oekraïne en Rusland in Abu Dhabi](https://www.ad.nl/buitenland/live-oorlog-oekraine-vs-doen-nieuwe-poging-tot-vredesbespreking-met-oekraine-en-rusland-in-abu-dhabi~adfb97be/)
-  > De Verenigde Staten brengen op 10 en 11 november delegaties uit Oekraïne en Rusland samen in Abu Dhabi. Doel is om te spreken over een einde aan de...
-- [AD Voetbalpodcast | ‘Als je nu al bang bent dat je gaat degraderen, is dat opportunistisch’](https://www.ad.nl/voetbal/ad-voetbalpodcast-als-je-nu-al-bang-bent-dat-je-gaat-degraderen-is-dat-opportunistisch~a42af5cd9/)
-  > Weer is er een trainer vroeg in het seizoen gesneuveld. Robin Peter werd vorig seizoen nog kampioen met ADO Den Haag van de KKD, maar is elf...
+- [Stellantis breidt stop-drive-maatregel uit: rijverbod voor bijna 11.000 Opels](https://www.ad.nl/auto/stellantis-breidt-stop-drive-maatregel-uit-rijverbod-voor-bijna-11-000-opels~abe8dc43/)
+  > Duizenden Nederlandse Opel-rijders moeten hun auto direct aan de kant zetten vanwege mogelijk gevaarlijke Takata-airbags. De maatregel maakt deel uit...
+- [Robèrt van Beckhoven weer gelukkig in de liefde: ‘Ze heeft alles wat ik nodig heb’](https://www.ad.nl/show/robert-van-beckhoven-weer-gelukkig-in-de-liefde-ze-heeft-alles-wat-ik-nodig-heb~a372a4de/)
+  > Robèrt van Beckhoven (65) is opnieuw gelukkig in de liefde. Vorig jaar ging de meesterbakker na ruim twintig jaar uit elkaar met zijn ex, maar...
+- [Ik ging de halve stad door met een ‘gluurbril’ van 75 euro en (bijna) niemand viel het op](https://www.ad.nl/tech/ik-ging-de-halve-stad-door-met-een-gluurbril-van-75-euro-en-bijna-niemand-viel-het-op~ac2135b5/)
+  > Let op, je wordt gefilmd! Door de opkomst van videobrillen, kun je in no time op ieder moment vastgelegd worden. De brillen zijn omstreden, want voor...
+- [Radboudumc ontdekt verrassend effect van spoelworm: bescherming tegen gevaarlijke virussen](https://www.ad.nl/binnenland/radboudumc-ontdekt-verrassend-effect-van-spoelworm-bescherming-tegen-gevaarlijke-virussen~a568123f/)
+  > Een infectie met een spoelworm kan voor mensen mogelijk het verschil maken tussen leven en dood. Bij een eventuele nieuwe pandemie kan die mogelijk...
+- [Praat mee: wat de uitslag in de VS ook is, Trump zorgt er wel voor dat zijn invloed merkbaar blijft](https://www.ad.nl/praat-mee/praat-mee-wat-de-uitslag-in-de-vs-ook-is-trump-zorgt-er-wel-voor-dat-zijn-invloed-merkbaar-blijft~a770ad38/)
+  > Als de Democraten de tussentijdse verkiezingen, de midterms, dinsdag winnen, dan kunnen ze het president Trump lastiger maken. Bijvoorbeeld door via...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Californian dreamin’](https://fd.nl/opinie/1617877/californian-dreamin)
-  > Een paar honderd miljardairs tegen 23 miljoen kiezers. Dat lijkt niet al te moeilijk, maar tax the rich blijkt in de praktijk verdraaid lastig.
-- [Steeds meer mensen met WW-uitkering zijn hogeropgeleid](https://fd.nl/economie/1617801/steeds-meer-mensen-met-ww-uitkering-zijn-hogeropgeleid)
-  > Mede door de opmars van AI biedt het hbo- of wo-diploma geen baanzekerheid meer, zegt UWV-bestuurder Judith Duveen.
-- [De midterms zijn minder spannend dan ze lijken](https://fd.nl/opinie/1617794/de-midterms-zijn-minder-spannend-dan-ze-lijken)
-  > De midterms lijken een politieke aardverschuiving te worden, maar voor Donald Trump valt de schade waarschijnlijk mee. Verlies van de zittende partij...
-- [Democraten ruiken kans bij de midterms in conservatief Texas](https://fd.nl/politiek/1617755/democraten-ruiken-kans-bij-de-midterms-in-conservatief-texas)
-  > Texas is al decennia een Republikeins bolwerk, maar daar kan vandaag bij de verkiezingen verandering in komen.  ‘Onverteerbaar dat ik als Republikein...
-- [Koopstarters grijpen mis door uitgeputte leningpotjes van gemeenten](https://fd.nl/samenleving/1617446/koopstarters-grijpen-mis-door-uitgeputte-leningpotjes-van-gemeenten)
-  > Het aantal aanvragen van startersleningen groeit, mede door de gestegen woningprijzen. Sommige starters komen voor verrassingen te staan en lopen...
+- [Is redding uitgehongerde Oekraïners uit Olesjky opmaat naar vrede?](https://fd.nl/politiek/1617770/is-redding-uitgehongerde-oekrainers-uit-olesjky-opmaat-naar-vrede)
+  > De evacuatie van honderden Oekraïners uit bezet gebied vorige week was een succes. Zelensky hoopt op meer, maar de vraag is of Poetin dat ook wil.
+- [NN-ceo David Knibbe over overstap: ‘Euronext is de kleinste van de grote beurzen. Daar ligt een groeiambitie’](https://fd.nl/financiele-markten/1617796/nn-ceo-david-knibbe-over-overstap-euronext-is-de-kleinste-van-de-grote-beurzen-daar-ligt-een-groeiambitie)
+  > David Knibbe, nu nog verzekeringstopman, wijst erop dat Europese kapitaalmarkten heel belangrijk zijn voor de verdere groei en innovatie van Europa,...
+- [Kabinet stuurt belastingplannen zonder akkoord oppositie naar Kamer](https://fd.nl/politiek/1617924/kabinet-stuurt-belastingplannen-zonder-akkoord-oppositie-naar-kamer)
+  > ‘Er ligt nu een totaalpakket waarvan wij zeggen dat het goed is voor Nederland’, aldus premier Rob Jetten na een ingelaste ministerraad dinsdagmorgen.
+- [Britse permanente verblijfsvergunning wordt veel lastiger te verkrijgen](https://fd.nl/politiek/1617819/britse-permanente-verblijfsvergunning-wordt-veel-lastiger-te-verkrijgen)
+  > De wachttijd gaat voor het overgrote deel van de immigranten van vijf jaar naar tien jaar – of in sommige gevallen zelfs twintig of dertig jaar. Ook...
+- [CBS: weer minder huurwoningen in private sector](https://fd.nl/samenleving/1617918/cbs-weer-minder-huurwoningen-in-private-sector)
+  > Dit komt doordat particulieren 37.000 van dit soort woningen minder in bezit hadden, zo meldt het Centraal Bureau voor de Statistiek (CBS) dinsdag.
 
 ### Meest gelezen
 
