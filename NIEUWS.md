@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 03-11-2026 om 23:53*
+*Laatst bijgewerkt: 04-11-2026 om 05:33*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
+- [Enorme winst Democraten bij midterms, Republikeinen verliezen Huis en Senaat](https://nos.nl/l/2637958)
+  > President Trump is keihard afgestraft bij de tussentijdse verkiezingen in de Verenigde Staten. De Republikeinen verliezen niet alleen hun meerderheid...
+- [Vermoedelijke opdrachtgever van Starlink-sabotage Polen opgepakt](https://nos.nl/l/2637951)
+  > De Duitse politie denkt de opdrachtgever te hebben aangehouden van een brandstichting eind september bij een Starlink-station in Polen. De Turkse man...
+- [Universiteit Maastricht schrapt Joodse bijeenkomst vanwege veiligheid](https://nos.nl/l/2637948)
+  > De Universiteit Maastricht heeft gisteravond een bijeenkomst van een Joodse studentenvereniging afgelast. De onderwijsinstelling zegt dat de...
+- [Lichtkogels van buiten De Kuip in stadion geschoten, twee arrestaties](https://nos.nl/l/2637946)
+  > De politie in Rotterdam heeft twee mensen aangehouden voor het afsteken van vuurwerk buiten het Feyenoord-stadion, zegt de politie tegen persbureau...
 - [Overheid was onbetrouwbaar voor boeren, zegt Nationale ombudsman](https://nos.nl/l/2637945)
   > De overheid was de afgelopen tien jaar onbetrouwbaar voor boeren. Dat stelt de Nationale ombudsman, onder meer op basis van gesprekken met 32...
-- [NOS-podcast De Dag uitgeroepen tot beste dagelijkse podcast](https://nos.nl/l/2637944)
-  > De NOS-podcast De Dag is verkozen tot beste dagelijkse podcast bij de Dutch Podcast Awards. Volgens de jury zijn in de serie complexe onderwerpen...
-- [Opnieuw duizenden Tsjechen de straat op tegen hervorming publieke omroep](https://nos.nl/l/2637936)
-  > In Tsjechië zijn opnieuw duizenden mensen de straat op gegaan uit solidariteit met de publieke omroep. Radio- en tv-medewerkers staakten vandaag uit...
-- [Drenten willen strengere aanpak wolf: 'Kinderen durven niet meer op de fiets'](https://nos.nl/l/2637932)
-  > Inwoners van Drenthe maken zich grote zorgen over de wolf in de provincie. Burgemeesters van tien gemeenten stuurden daarover een brandbrief naar...
-- [Dodental na aanval in regio Zaporizja loopt op, VN veroordeelt aanval op burgers](https://nos.nl/l/2637930)
-  > Het dodental van de Russische aanval van gisteren op een voormalig schoolgebouw in Oekraïne is opgelopen tot meer dan 30 en er worden zeker 50 mensen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Kabinet heeft nog geen vijfde van gemiste inkomsten box 3 gedekt, berekent ministerie van Financiën](https://www.ad.nl/politiek/kabinet-heeft-nog-geen-vijfde-van-gemiste-inkomsten-box-3-gedekt-berekent-ministerie-van-financien~a2acddc0/)
-  > Het niet meer belasten van papieren winsten in box 3 per 2028 kost de schatkist tot en met 2040 in totaal 21,8 miljard euro. Daarvan wordt maar een...
-- [Canada laat Russische ijshockeyers niet deelnemen aan toernooi, ondanks uitspraak sporttribunaal](https://www.ad.nl/sport/canada-laat-russische-ijshockeyers-niet-deelnemen-aan-toernooi-ondanks-uitspraak-sporttribunaal~a5df0658/)
-  > Canada is niet van plan om Russische spelers toe te laten tot het wereldkampioenschap ijshockey voor junioren, dat volgende maand in de provincie...
-- [Gat in dak van de Kuip door lichtkogels, ongeloof bij Van Bronckhorst: ‘Vuurwerk van buiten het stadion, wat doe je daar aan?’](https://www.ad.nl/voetbal/gat-in-dak-van-de-kuip-door-lichtkogels-ongeloof-bij-van-bronckhorst-vuurwerk-van-buiten-het-stadion-wat-doe-je-daar-aan~ac2da8b5/)
-  > Tijdens de Champions League-wedstrijd tussen Feyenoord en Internazionale (0-3) is dinsdagavond schade ontstaan aan het dak van de Kuip. Meerdere...
-- [AD Voetbalpodcast | ‘Feyenoord kwam op alle fronten te kort tegen Inter’](https://www.ad.nl/voetbal/ad-voetbalpodcast-feyenoord-kwam-op-alle-fronten-te-kort-tegen-inter~a42af5cd9/)
-  > Feyenoord kende een slechte Europese avond. In de Kuip werd met 0-3 verloren van een gehavend Internazionale. Daarmee blijft de ploeg van Van...
-- [LIVE Midterms VS | Opkomst tot nu toe bijzonder hoog, Trump volgt verkiezingen via tv en laat meteen van zich horen](https://www.ad.nl/buitenland/live-midterms-vs-opkomst-tot-nu-toe-bijzonder-hoog-trump-volgt-verkiezingen-via-tv-en-laat-meteen-van-zich-horen~a6a0f0b2/)
-  > Amerikanen trekken dinsdag naar het stembureau voor de midterms, die de machtsverhoudingen in het Congres flink kunnen veranderen. Het volk stemt...
+- [LIVE Midterms VS | Democraten pakken meerderheid Senaat en waarschijnlijk ook Huis, zelfs in Texas verliezen Republikeinen](https://www.ad.nl/buitenland/live-midterms-vs-democraten-pakken-meerderheid-senaat-en-waarschijnlijk-ook-huis-zelfs-in-texas-verliezen-republikeinen~a6a0f0b2/)
+  > De Democraten stevenen af op een grote overwinning in de Amerikaanse midterms. In de Senaat is een meerderheid voor de Democraten al zeker: zelfs in...
+- [Influencer betaalt bijna 230 euro voor elf uur parkeren: ‘Ik dacht dat de meter kapot was’](https://www.ad.nl/auto/influencer-betaalt-bijna-230-euro-voor-elf-uur-parkeren-ik-dacht-dat-de-meter-kapot-was~af7e63da/)
+  > Een dagje tennis kreeg voor een bekende Zwitser een bijzonder duur staartje. Voor elf uur parkeren moest influencer Peter Bolliger bijna 230 euro...
+- [Auto-expert Niek Schenk: ‘Autorijden moet betaalbaar en leuk blijven'](https://www.ad.nl/auto/auto-expert-niek-schenk-autorijden-moet-betaalbaar-en-leuk-blijven~a6b7be1e/)
+  > Niek Schenk, de auto-expert van deze site, wil het autorijden betaalbaar én leuk houden. Daarom introduceert hij in samenwerking met AutoWeek een...
+- [Praat mee en stel jouw vragen over de Amerikaanse verkiezingen](https://www.ad.nl/praat-mee/praat-mee-en-stel-jouw-vragen-over-de-amerikaanse-verkiezingen~a778d756/)
+  > Dinsdag waren er tussentijdse verkiezingen in Amerika. De Democraten hebben imiddels de Senaat gewonnen en ook in het Huis van Afgevaardigden lijken...
+- [Democraten boeken grote overwinning met meerderheid in Senaat en waarschijnlijk ook Huis van Afgevaardigden](https://www.ad.nl/buitenland/democraten-boeken-grote-overwinning-met-meerderheid-in-senaat-en-waarschijnlijk-ook-huis-van-afgevaardigden~a94ca25b/)
+  > De Democraten krijgen in navolging van de Senaat waarschijnlijk ook de overhand in het Huis van Afgevaardigden. Dat voorspellen Amerikaanse media na...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Karien van Gennip: ‘Neem iemand met een hoofddoek in dienst, drink koffie met iemand die PVV stemt’](https://fd.nl/bedrijfsleven/1615560/karien-van-gennip-neem-iemand-met-een-hoofddoek-in-dienst-drink-koffie-met-iemand-die-pvv-stemt)
+  > Oud-minister Karien van Gennip maakt zich zorgen over een gebrek aan cohesie in Europa. Te veel mensen hebben het gevoel er niet bij te...
+- [Rechtsaf lijkt enige route voor belastingplan kabinet](https://fd.nl/economie/1617861/rechtsaf-lijkt-enige-route-voor-belastingplan-kabinet)
+  > Vandaag in Dagkoers: het kabinet lijkt rechtse partijen nodig te hebben voor een rond belastingplan, het grootste overnamebedrag dit jaar schommelt...
 - [Kwart van de werkgevers kampt nog altijd met personeelstekort](https://fd.nl/bedrijfsleven/1617945/kwart-van-de-werkgevers-kampt-nog-altijd-met-personeelstekort)
   > Het tekort aan personeel is in de laatste twee jaar amper minder geworden, terwijl de krapte op de arbeidsmarkt wel is afgenomen.
 - [Gokken op meer](https://fd.nl/opinie/1617864/gokken-op-meer)
   > Premier Jetten waagt de ultieme gok. Het belastingplan gaat naar het parlement zonder meerderheid vooraf.
 - [Beat it: talent of discipline?](https://fd.nl/opinie/1617853/beat-it-talent-of-discipline)
   > Talent geeft je een voorsprong, maar is geen garantie op succes. Wat weegt uiteindelijk zwaarder: een uitzonderlijk brein of jarenlang oefenen,...
-- [Corruptieschandaal Sri Lanka kost Nederlandse staat bijna €30 mln](https://fd.nl/politiek/1616817/corruptieschandaal-sri-lanka-kost-nederlandse-staat-bijna-30-mln)
-  > De staat stond via verzekeraar Atradius garant voor een lening van Rabobank aan de Sri Lankaanse overheid. Die betaalde het laatste deel niet terug.
-- [Personalia woensdag 4 november](https://fd.nl/bedrijfsleven/1617936/personalia-woensdag-4-november)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
