@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 05-11-2026 om 17:54*
+*Laatst bijgewerkt: 05-11-2026 om 23:27*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Emotionele verklaringen van Tarwekamp-slachtoffers: 'Zijn verlies raakt mij elke seconde van mijn leven'](https://nos.nl/l/2638187)
-  > "Ik voelde de grond onder mijn voeten wegtrekken", zegt een vrouw toen zij die bewuste zondagochtend las dat er een explosie was geweest aan de...
-- [Paraguayaanse president Peña stapt op, na massale protesten](https://nos.nl/l/2638186)
-  > De president van Paraguay, Santiago Peña, is opgestapt. Dat laat hij weten in een video op X. Zijn vertrek komt niet als een verrassing. Peña ligt...
-- [Britse zender stopt definitief met Married at First Sight na verkrachtingsmeldingen](https://nos.nl/l/2638179)
-  > Het Britse Channel 4 stopt definitief met het uitzenden van het populaire tv-programma Married at First Sight UK. Dat meldt de zender na onderzoek...
-- [Techaandelen krijgen flinke klappen, Amerikaanse Nasdaq zo'n 5 procent omlaag](https://nos.nl/l/2638178)
-  > Techaandelen wereldwijd krijgen flinke klappen. Zo daalde de koers van tech-aandelenbeurs Nasdaq op Wall Street een uur na opening met vijf procent....
-- [Man uit Roermond (26) opgepakt na inrijden op politieauto, agent gewond](https://nos.nl/l/2638176)
-  > Een man (26) uit Roermond is vanmiddag opgepakt na een politieachtervolging vanuit België. De man zou in het Limburgse stadje Echt op een...
+- [Bergbeklimmer (21) laat 17-jarige achter op berg, Oostenrijkse politie doet onderzoek](https://nos.nl/l/2638222)
+  > Op de hoogste berg van Duitsland heeft een man van 21 een meisje van 17 achtergelaten. De twee maakten een nachttocht naar de top van de Zugspitze,...
+- [Baby overleden aan mazelen in VS, eerste sterfgeval in Wisconsin in 36 jaar](https://nos.nl/l/2638221)
+  > In de Amerikaanse staat Wisconsin is een baby overleden aan de mazelen. Het is voor het eerst sinds 1990 dat iemand in de staat aan de besmettelijke...
+- [Gouverneur Californië zet doodstraffen van ruim 500 veroordeelden om in levenslang](https://nos.nl/l/2638217)
+  > De gouverneur van de Amerikaanse staat Californië, Gavin Newsom, gaat de doodstraffen van 548 gevangenen omzetten in levenslange gevangenisstraffen...
+- [Kabinet wil werkende statushouders jaren meer tijd geven voor inburgering](https://nos.nl/l/2638212)
+  > Het kabinet wil een groep statushouders langer de tijd geven voor hun inburgering. Dat schrijft minister Aartsen van Werk en Participatie in een...
+- [Bommelding op KLM-vlucht, wat gebeurt er dan in de lucht en op de grond?](https://nos.nl/l/2638210)
+  > Een reeks Europese vluchten heeft deze week te maken gekregen met een bommelding. Explosieven werden niet gevonden, maar het vliegverkeer werd er wel...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Suzan & Freek kondigen nog drie extra optredens in Ziggo Dome aan: ‘Jullie zijn ongelofelijk’](https://www.ad.nl/show/suzan-en-freek-kondigen-nog-drie-extra-optredens-in-ziggo-dome-aan-jullie-zijn-ongelofelijk~af125a3f/)
-  > Suzan & Freek hebben donderdag nog eens drie extra optredens aangekondigd. Het zangduo staat ook op 9 en 10 april in de Ziggo Dome in Amsterdam en...
-- [‘Marokkaanse Nederlanders zijn altijd ‘Marokkanen’, behalve als ze goed kunnen voetballen, dan moeten het plots Nederlanders zijn’](https://www.ad.nl/sport/marokkaanse-nederlanders-zijn-altijd-marokkanen-behalve-als-ze-goed-kunnen-voetballen-dan-moeten-het-plots-nederlanders-zijn~af592adb/)
-  > Ook AZ-aanvaller Ayoub Oufkir (20) kiest voor de nationale ploeg van Marokko, zoals vrijwel ieder talent dat de laatste jaren doet. AD-columnist en...
-- [D66, VVD en CDA hebben een creatieve list bedacht: los van elkaar onderhandelen met de oppositie](https://www.ad.nl/politiek/d66-vvd-en-cda-hebben-een-creatieve-list-bedacht-los-van-elkaar-onderhandelen-met-de-oppositie~a5040ac9/)
-  > Nu is het aan Bontenbal, Paternotte en Brekelmans. De fractieleiders van D66, VVD en CDA zoeken naar uitwegen om het belastingplan én het kabinet te...
-- [Bal rolt in Nijmegen: pakt NEC ook drie punten tegen de kampioen van Cyprus?](https://www.ad.nl/voetbal/bal-rolt-in-nijmegen-pakt-nec-ook-drie-punten-tegen-de-kampioen-van-cyprus~a2623693/)
-  > NEC boekte op bezoek bij Dinamo Zagreb een historische overwinning (2-4). De Nijmegenaren gaan tegen het Cypriotische Omonia Nicosia op zoek naar de...
-- [Gebroeders Koopmeiners tegenover elkaar, AZ won zes van negen ontmoetingen met Italiaanse clubs](https://www.ad.nl/voetbal/gebroeders-koopmeiners-tegenover-elkaar-az-won-zes-van-negen-ontmoetingen-met-italiaanse-clubs~a563412d/)
-  > Een mooi affiche voor AZ in de Europa League. De Italiaanse recordkampioen Juventus komt op bezoek in het AFAS Stadion in Alkmaar. Dat betekent voor...
+- [FC Twente draait het na rust om tegen Pafos en blijft foutloos in Conference League](https://www.ad.nl/voetbal/fc-twente-draait-het-na-rust-om-tegen-pafos-en-blijft-foutloos-in-conference-league~ac5e84da/)
+  > FC Twente is na drie speelrondes nog altijd zonder puntenverlies in de Conference League. De ploeg van trainer John van den Brom boog tegen het...
+- [FC Twente mede aan kop in Conference League, ook Ajax doet goede zaken, NEC voorbij AZ op ranglijst Europa League](https://www.ad.nl/voetbal/fc-twente-mede-aan-kop-in-conference-league-ook-ajax-doet-goede-zaken-nec-voorbij-az-op-ranglijst-europa-league~a1e478e4/)
+  > Drie Nederlandse clubs wonnen donderdag in Europees verband. AZ liep tegen een nederlaag aan in de Europa League, terwijl FC Twente zonder...
+- [AZ maakt het in slotfase nog spannend tegen Juventus, maar scorende Teun Koopmeiners verslaat broer Peer](https://www.ad.nl/voetbal/az-maakt-het-in-slotfase-nog-spannend-tegen-juventus-maar-scorende-teun-koopmeiners-verslaat-broer-peer~a563412d/)
+  > AZ heeft een derde nederlaag op rij geleden, nadat de club uit Alkmaar in de eredivisie al verloor van FC Twente en Ajax. De ploeg van Leeroy Echteld...
+- [Test Kia PV5: heel veel ruimte en scherp geprijsd](https://www.ad.nl/auto/test-kia-pv5-heel-veel-ruimte-en-scherp-geprijsd~aebeebe1/)
+  > De Kia PV5 trekt veel aandacht. Niet alleen door zijn futuristische design, maar ook door het bijzondere concept. De oorspronkelijke bestelbus blijkt...
+- [Nog twee vluchten krijgen donderdag bommelding, ook KLM-vlucht uit Amsterdam getroffen](https://www.ad.nl/buitenland/nog-twee-vluchten-krijgen-donderdag-bommelding-ook-klm-vlucht-uit-amsterdam-getroffen~a908d94e8/)
+  > Nog twee vluchten zijn donderdag doelwit geweest van een bommelding, waaronder een KLM-vlucht richting Tel Aviv. Dat meldt de Roemeense...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Opnieuw dubbelcijferige omzetgroei voor beursbedrijf Euronext: +25%](https://fd.nl/financiele-markten/1618195/opnieuw-dubbelcijferige-omzetgroei-voor-beursbedrijf-euronext-25)
-  > Euronext kondigde ook een aandeleninkoopprogramma aan met een maximale waarde van €350 mln. Dat komt neer op 2% van het totale uitstaande...
-- [Arnhemse bedrijvengroep daagt Oekraïense belangenbehartiger voor de rechter om ‘lastercampagne’](https://fd.nl/bedrijfsleven/1618181/arnhemse-bedrijvengroep-daagt-oekraiense-belangenbehartiger-voor-de-rechter-om-lastercampagne)
-  > Honorair consul Karel Burger Dirven zoomde op X, LinkedIn en Facebook in op Russische connecties van de Peja Group en riep het bedrijf op om het land...
-- [Heeft Funda-rivaal Homek kans van slagen? ‘De makelaardij is vrij conservatief’](https://fd.nl/bedrijfsleven/1618282/heef-funda-rivaal-homek-kans-van-slagen-de-makelaardij-is-vrij-conservatief)
-  > Jaap.nl, Brixter en Moviq lukte het niet om de marktmacht van Funda te doorbreken. Wat zijn de kansen voor het nieuwe initiatief Homek? Eigen aanbod...
-- [Politieke crisis drukt Poolse munt](https://fd.nl/financiele-markten/1618192/politieke-crisis-drukt-poolse-munt)
-  > De zloty heeft te lijden onder de politieke verdeeldheid in het land, waar regering en oppositie elkaar de tent uitvechten. Heviger schommelingen van...
-- [Nieuwe bezuinigingsronde KLM zet ook druk op cao-onderhandelingen](https://fd.nl/bedrijfsleven/1618279/nieuwe-bezuinigingsronde-klm-zet-ook-druk-op-cao-onderhandelingen)
-  > De luchtvaartmaatschappij wil 15% van de banen schrappen. Van het personeel dat blijft wordt een grote loonmatiging verwacht, terwijl de vorige...
+- [Vrees voor einde AI-hausse duwt Amerikaanse beurzen in het rood](https://fd.nl/financiele-markten/1618297/vrees-voor-einde-ai-hausse-duwt-amerikaanse-beurzen-in-het-rood)
+  > Techbeurs Nasdaq was op het dieptepunt van de handelsdag zelfs 6,4% van de waarde kwijt.
+- [Philips wint FD Henri Sijthoff Prijs 2026 voor ‘transparantie in moeilijke tijden’](https://fd.nl/bedrijfsleven/1618141/philips-wint-fd-henri-sijthoff-prijs-2026-voor-transparantie-in-moeilijke-tijden)
+  > Voor het eerst sinds lange tijd wint het concern de prijs voor beste verslaglegging. De jury prijst de toegenomen openheid van het bedrijf over...
+- [President van Paraguay treedt af te midden van bankencrisis in het land](https://fd.nl/politiek/1618299/president-van-paraguay-treedt-af-te-midden-van-bankencrisis-in-het-land)
+  > In Paraguay gingen mensen massaal de straat op de afgelopen dagen uit onvrede over president Santiago Peña.
+- [Faillissement dreigt voor Verwey-Jonker Instituut](https://fd.nl/bedrijfsleven/1618196/faillissement-dreigt-voor-verwey-jonker-instituut)
+  > Opdrachtgevers bezuinigen op hun onderzoeksbudgetten of gaan zelf met AI aan de slag, waardoor het instituut inkomsten misloopt.
+- [Blijven leren is de enige zekerheid](https://fd.nl/opinie/1618182/blijven-leren-is-de-enige-zekerheid)
+  > De baanzekerheid voor hooggeschoolden brokkelt af door de opmars van AI. De oplossing ligt grotendeels bij de werkenden zelf.
 
 ### Meest gelezen
 
