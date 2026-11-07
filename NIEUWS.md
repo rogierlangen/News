@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 06-11-2026 om 20:22*
+*Laatst bijgewerkt: 07-11-2026 om 00:43*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Rechter: ANWB-staking mag, maar met genoeg wegenwachters op de weg](https://nos.nl/l/2638355)
-  > Tijdens een staking van ANWB-medewerkers komende maandag moet er bij de verkeersorganisatie een minimale bezetting blijven van 12,5 procent. Dat...
-- [Akkoord in Duitse coalitie: Ilse Aigner wordt de volgende bondspresident](https://nos.nl/l/2638352)
-  > De Duitse regeringspartijen dragen Ilse Aigner (CSU) voor als nieuwe bondspresident. De voordracht wordt maandag formeel bekend, maar is via vrijwel...
-- [Zeker 150 demonstranten opgepakt bij protest tegen datacenter in Amsterdam](https://nos.nl/l/2638349)
-  > Bij protest tegen een datacenter van Microsoft in Amsterdam-West zijn vermoedelijk 150 tot 200 verdachten aangehouden. Ze worden verdacht van...
-- [Stafchef Witte Huis weg, Trump kiest hardliner Stephen Miller als opvolger](https://nos.nl/l/2638348)
-  > Stafchef Susie Wiles van het Witte Huis vertrekt. De belangrijke vertrouweling van president Trump wordt opgevolgd door hardliner Stephen Miller.
-   ...
-- [Rookbommen gevonden bij uitvak van stadion FC Dordrecht](https://nos.nl/l/2638346)
-  > Bij het voetbalstadion van FC Dordrecht zijn vanochtend rookbommen gevonden bij het vak waar supporters van de bezoekende club zitten. Medewerkers...
+- [Alliana nieuwe president van Paraguay, Peña officieel afgezet na bankcrisis](https://nos.nl/l/2638382)
+  > Pedro Alliana is beëdigd als de nieuwe president van Paraguay. Hij volgt Santiago Peña op, die kort daarvoor officieel door het parlement was...
+- [Kiest Mississippi een Democraat als senator of net niet? Race blijft spannend](https://nos.nl/l/2638369)
+  > De laatste Democratische senator uit Mississippi werd gekozen in 1947: John C. Stennis, als 'Dixiecrat' fel voorstander van de rassenscheiding. Nu...
+- [Mats Akkerman wint Slimste Mens, ook afscheid van Paulien Cornelisse](https://nos.nl/l/2638368)
+  > WNL-verslaggever Mats Akkerman heeft de finale van het dertigste seizoen van kennisquiz De Slimste Mens gewonnen. Hij won in de finale van...
+- [Man op Schiphol opgepakt voor bommelding op vlucht naar Praag](https://nos.nl/l/2638366)
+  > De Koninklijke Marechaussee heeft een 45-jarige man aangehouden, omdat hij op Schiphol een valse bommelding zou hebben gedaan. De melding werd...
+- [Groen licht voor Trumps triomfboog, maar rechter legt bouw direct stil](https://nos.nl/l/2638361)
+  > Een Amerikaanse rechter heeft de bouw stilgelegd van de triomfboog die president Trump in Washington wil laten plaatsen. Dat gebeurde een uur nadat...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zo laat komt Max Verstappen zaterdag in actie tijdens kwalificatie](https://www.ad.nl/formule-1/zo-laat-komt-max-verstappen-zaterdag-in-actie-tijdens-kwalificatie~a94646f3/)
-  > De einde van het Formule 1-seizoen komt in rap tempo dichterbij. Eerst gaan de coureurs en teams nog langs een van de meest iconische circuits op de...
-- [Verstappen maakt ondanks problemen een lolletje en rijdt naar derde tijd, Antonelli duidelijk de sterkste](https://www.ad.nl/formule-1/verstappen-maakt-ondanks-problemen-een-lolletje-en-rijdt-naar-derde-tijd-antonelli-duidelijk-de-sterkste~aaa90e5d/)
-  > Max Verstappen heeft tijdens de tweede vrije training zijn lolbroek even aangetrokken. Zijn versnellingsbak zorgde weer voor wat irritatie, maar dat...
-- [Jean-Paul N’Djoli slaat wéér toe voor Heracles in kraker tegen Roda JC, VVV staat achter](https://www.ad.nl/voetbal/jean-paul-ndjoli-slaat-weer-toe-voor-heracles-in-kraker-tegen-roda-jc-vvv-staat-achter~a056f823/)
-  > Zeven duels in de Keuken Kampioen Divisie vanavond. Koploper Heracles krijgt bezoek van Roda JC, nummer 2 VVV-Venlo speelt uit bij Jong PSV. Volg het...
-- [Trump grijpt in na verkiezingsnederlaag en benoemt Stephen Miller tot nieuwe stafchef](https://www.ad.nl/buitenland/trump-grijpt-in-na-verkiezingsnederlaag-en-benoemt-stephen-miller-tot-nieuwe-stafchef~ad96ac20/)
-  > Donald Trump heeft een nieuwe stafchef. Susie Wiles vertrekt na de tegenvallende uitslag van de midterms. Zij wordt vervangen door Stephen Miller, de...
-- [Prins Harry en andere bekende Britten in beroep tegen uitspraak in privacyzaak](https://www.ad.nl/show/prins-harry-en-andere-bekende-britten-in-beroep-tegen-uitspraak-in-privacyzaak~aa0801e3/)
-  > Prins Harry gaat in beroep tegen de uitspraak in de privacyzaak die hij had aangespannen tegen Associated Newspapers Limited, de uitgever van onder...
+- [Iraanse media: Amerikaanse drone neergehaald na raketinslagen op eiland Qeshm in Straat van Hormuz](https://www.ad.nl/buitenland/iraanse-media-amerikaanse-drone-neergehaald-na-raketinslagen-op-eiland-qeshm-in-straat-van-hormuz~ac528ac3/)
+  > Het Iraanse leger zegt dat het een Amerikaanse MQ-9 drone heeft neergeschoten boven het eiland Qeshm, in het zuiden van Iran in de Straat van Hormuz....
+- [Kind van getrouwd stel krijgt straks automatisch achternaam van beide ouders, in plaats van alleen de vader](https://www.ad.nl/politiek/kind-van-getrouwd-stel-krijgt-straks-automatisch-achternaam-van-beide-ouders-in-plaats-van-alleen-de-vader~a29b7264/)
+  > Het kabinet wil dat kinderen niet meer automatisch alleen de achternaam van hun vader krijgen, als de ouders het niet eens worden over de naam. Een...
+- [Ontslagen ADO-trainer reageert voor het eerst na vertrek, Ajax-tegenstander stelt nieuwe trainer aan](https://www.ad.nl/voetbal/ontslagen-ado-trainer-reageert-voor-het-eerst-na-vertrek-ajax-tegenstander-stelt-nieuwe-trainer-aan~abfbf81f/)
+  > De transfermarkt in Nederland is sinds woensdagavond 2 september gesloten. De markt in de buitenlandse topcompetities ging een dag eerder dicht....
+- [Deze kandidaat wint De slimste mens in finale met een verdrietig randje: ‘Nooit van durven dromen’](https://www.ad.nl/show/deze-kandidaat-wint-de-slimste-mens-in-finale-met-een-verdrietig-randje-nooit-van-durven-dromen~a98f1292/)
+  > Politiek verslaggever Mats Akkerman (32) is de winnaar van het najaarsseizoen van De slimste mens 2026. In een zenuwslopende ontknoping wist de...
+- [Man aangehouden op Schiphol voor valse bommelding vlucht naar Praag](https://www.ad.nl/binnenland/man-aangehouden-op-schiphol-voor-valse-bommelding-vlucht-naar-praag~a5aa13d6/)
+  > De Koninklijke Marechaussee heeft donderdagavond op Schiphol een 45-jarige man met de Tsjechische nationaliteit aangehouden omdat hij een valse...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Hardliner Stephen Miller nieuwe stafchef Witte Huis](https://fd.nl/politiek/1618258/hardliner-stephen-miller-nieuwe-stafchef-witte-huis)
-  > Trump-vertrouweling Susie Wiles vertrekt en wordt vervangen door Stephen Miller. Hij geldt als de architect van de massadeportaties van migranten...
-- [Bedrijven moeten slecht nieuws niet wegmoffelen](https://fd.nl/opinie/1618239/bedrijven-moeten-slecht-nieuws-niet-wegmoffelen)
-  > De winnaars van en de genomineerden voor de FD Henri Sijthoff Prijs kampen met financiële tegenvallers, maar kregen lof omdat ze er open over waren....
-- [AkzoNobel en Axalta moeten autoreparatielakken verkopen](https://fd.nl/bedrijfsleven/1618257/akzonobel-en-axalta-moeten-autoreparatielakken-verkopen)
-  > Volgens Brussel zorgt het samengaan van het Nederlandse bedrijf en de Amerikaanse branchegenoot voor ‘significant’ minder concurrentie op de markt...
-- [De gekte van deze week kon toch tippen aan die van eind oktober](https://fd.nl/financiele-markten/1618246/de-beursweek-kon-toch-tippen-aan-de-gekte-van-eind-oktober)
-  > Hoewel een groot deel van de markten de week hoopvol begon, kwam daar donderdag bruut een einde aan.
-- [Ajax zoekt nieuwe directeur na vertrek Geelen per 1 april](https://fd.nl/bedrijfsleven/1618365/ajax-zoekt-nieuwe-directeur-na-vertrek-geelen-per-1-april)
-  > De 44-jarige Geelen was sinds 10 mei 2024 algemeen directeur als opvolger van Edwin van der Sar, die in de zomer van 2023 opstapte.
+- [Blijft de sombere consument geld uitgeven? Vraag het aan de ouderen](https://fd.nl/politiek/1618316/blijft-de-sombere-consument-geld-uitgeven-vraag-het-aan-de-ouderen)
+  > Consumenten hebben weinig vertrouwen in de economie, maar blijven toch geld uitgeven. Blijft dat volgend jaar zo, vraagt Mathijs Bouman zich af.
+- [KLM-cfo Bas Brouns: ‘We moeten ook een stapje harder lopen’](https://fd.nl/bedrijfsleven/1618313/klm-cfo-bas-brouns-we-moeten-ook-een-stapje-harder-lopen)
+  > KLM probeer het financiële tij te keren door te snijden in het personeel. ‘Ik kan me goed voorstellen dat de bonden geschrokken zijn van de...
+- [Ontsnappen aan de dagelijkse shitshow](https://fd.nl/opinie/1618296/ontsnappen-aan-de-dagelijkse-shitshow)
+  > Pas als mensen onder zware druk komen te staan, weet je uit welk hout ze zijn gesneden, en of ze bereid zijn vast te houden aan hun...
+- [De klimaattop in Antalya wordt een zoektocht naar bondgenoten, maar geld is een breekpunt](https://fd.nl/politiek/1618139/de-klimaattop-in-antalya-wordt-een-zoektocht-naar-bondgenoten-maar-geld-is-een-breekpunt)
+  > De belangrijkste klimaatafspraken liggen wel op tafel. Op de aanstaande top in Turkije draait het om de vraag: hoe moeten die doelen in de praktijk...
+- [Friese supermarktketen Poiesz is al ruim honderd jaar niet te koop](https://fd.nl/bedrijfsleven/1618004/friese-supermarktketen-poiesz-is-al-ruim-honderd-jaar-niet-te-koop)
+  > Het begon met een bakfiets, gevuld met boontjes en bloemkolen. Nu, ruim honderd jaar later staat de zesde generatie in de startblokken om...
 
 ### Meest gelezen
 
