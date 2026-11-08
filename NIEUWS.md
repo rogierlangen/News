@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 08-11-2026 om 16:36*
+*Laatst bijgewerkt: 08-11-2026 om 20:59*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Vrouw verstopt zich voor politie in een kliko, maar wordt toch gearresteerd](https://nos.nl/l/2638589)
-  > In het Zuid-Hollandse Kwintsheul is een vrouw aangehouden die zich voor de politie in een afvalcontainer had verstopt. Agenten waren naar haar op...
-- [Zeven doden en ruim honderd gewonden bij treinbotsing in Egypte](https://nos.nl/l/2638582)
-  > Bij een treinongeluk in Egypte zijn minstens zeven doden en 112 gewonden gevallen, melden de autoriteiten van het land. Het ongeluk gebeurde nabij Al...
-- [Nederlandse (81) overleden na ongeluk waarbij camper kantelde op snelweg in België](https://nos.nl/l/2638577)
-  > Bij een ongeluk met een camper op de snelweg E313 in België is een Nederlandse vrouw van 81 om het leven gekomen. Belgische media schrijven dat het...
-- [Kaapstad ruziet over plan om 'probleembavianen' op te sluiten](https://nos.nl/l/2638573)
-  > Waar in Nederland de wolf de gemoederen bezighoudt, is dat in Zuid-Afrika de baviaan. Na jaren van pogingen om mens en aap vreedzaam te laten...
-- [Personeel kinderopvang Israëlische nederzetting aangeklaagd voor zware mishandeling](https://nos.nl/l/2638566)
-  > In Israël zijn drie medewerkers van een kinderopvang aangeklaagd voor mishandeling en geweld tegen zeker zeventien baby's en peuters. De jongsten...
+- [Politie rukt groot uit in Kopenhagen vanwege verklede Comic Con-bezoekers](https://nos.nl/l/2638637)
+  > In de Deense hoofdstad Kopenhagen hebben verklede Comic Con-bezoekers paniek veroorzaakt. De politie rukte groot uit na een melding over een...
+- [Plein in Krakau weer geopend na aanslag, slachtoffers herdacht met bloemen en kaarsen](https://nos.nl/l/2638635)
+  > Het plein in de Poolse stad Krakau waar gisteren zes mensen werden doodgeschoten, is weer vrijgegeven. De politie heeft het onderzoek ter plaatse...
+- [Verlies voor het ANC in Zuid-Afrikaanse steden](https://nos.nl/l/2638629)
+  > Het ANC, de partij die Zuid-Afrika ruim dertig jaar geleden bevrijdde van de apartheid, is bij lokale verkiezingen flink afgestraft. Vooral de...
+- [Veel creativiteit en moeilijke politiek keuzes nodig, zegt Israëlische formateur Eisenkot](https://nos.nl/l/2638620)
+  > De Israëlische oppositieleider Eisenkot wil een regering vormen die de eenheid en de verbinding tussen de verschillende groepen in de Israëlische...
+- [Actiegroep hijst Palestijnse vlag voor Rijksdaggebouw, Vlag van Duitse Eenheid op grond gegooid](https://nos.nl/l/2638616)
+  > Voor het Rijksdaggebouw in Berlijn heeft kortstondig de Palestijnse vlag gewapperd. Een 22-jarige man klom vanochtend in de vlaggenmast, gooide de...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Rust in Alkmaar: AZ en FC Groningen houden elkaar voorlopig in evenwicht](https://www.ad.nl/voetbal/rust-in-alkmaar-az-en-fc-groningen-houden-elkaar-voorlopig-in-evenwicht~a2128f35/)
-  > AZ won al vier duels op rij niet in de eredivisie. De ploeg van Leeroy Echteld hoopt daar vandaag tegen FC Groningen verandering in te brengen. Volg...
-- [Dramatische start voor Manchester United: Aston Villa slaat na minuut al toe](https://www.ad.nl/voetbal/dramatische-start-voor-manchester-united-aston-villa-slaat-na-minuut-al-toe~a229bffcf/)
-  > Liverpool heeft in de Premier League een welkome zege geboekt. De ploeg van coach Andoni Iraola won, na twee nederlagen op rij, zondagmiddag met 1-3...
-- [Staking vanwege bekers gooien voorbij: PSV hervat dominant optreden bij Cambuur](https://www.ad.nl/voetbal/staking-vanwege-bekers-gooien-voorbij-psv-hervat-dominant-optreden-bij-cambuur~a6c153ef/)
-  > PSV is hard op weg om de koppositie in de eredivisie te pakken. De ploeg van Peter Bosz staat ruim op voorsprong  Cambuur en kan zo profiteren van...
-- [Nieuwe magische inhaalrace van Max Verstappen op druilerig Interlagos?](https://www.ad.nl/formule-1/nieuwe-magische-inhaalrace-van-max-verstappen-op-druilerig-interlagos~a6719c9a/)
-  > Max Verstappen lukte het al vanaf P17, maar vandaag is de uitdaging nog wat groter voor de coureur van Red Bull Racing. De viervoudig wereldkampioen...
-- [Overdag op kantoor, ‘s nachts gedwongen tot seks: Lotte (54) kwam erbovenop door hulp waarop keihard wordt bezuinigd](https://www.ad.nl/binnenland/overdag-op-kantoor-s-nachts-gedwongen-tot-seks-lotte-54-kwam-erbovenop-door-hulp-waarop-keihard-wordt-bezuinigd~a76ba9e9/)
-  > Lotte (54) had overdag een ‘normale’ kantoorbaan, maar werd door haar man gedwongen tot sekswerk. De ex-partner van Noa (30) gebruikte haar als...
+- [Fermín López maakt net voor rust gelijk namens Barcelona in topper tegen Atlético Madrid](https://www.ad.nl/voetbal/fermin-lopez-maakt-net-voor-rust-gelijk-namens-barcelona-in-topper-tegen-atletico-madrid~a9463a5c/)
+  > FC Barcelona sluit de zondagavond af met de topper tegen Atlético Madrid in het Metropolitano. Barcelona en Real Madrid (dat zaterdagavond met 0-3...
+- [‘Het is natuurlijk niet normaal’: ook Max Verstappen onder de indruk van zijn glansrol](https://www.ad.nl/formule-1/het-is-natuurlijk-niet-normaal-ook-max-verstappen-onder-de-indruk-van-zijn-glansrol~a3c3c3f3/)
+  > Een beetje regen. Een vloeiend circuit waar je in kan halen. En Max Verstappen achteraan de grid. Dan is Formule 1 op zijn mooist, bewees de Grand...
+- [‘Het scheelde niet veel of er was bij Etienne ‘El loco’ Vaessen een dwangbuis aan te pas gekomen’](https://www.ad.nl/sport/het-scheelde-niet-veel-of-er-was-bij-etienne-el-loco-vaessen-een-dwangbuis-aan-te-pas-gekomen~af592adb/)
+  > Er gebeurden wel erg veel aparte dingen op deze voetbalzondag. AD-columnist en -journalist Sjoerd Mossou laat dagelijks zijn licht schijnen over de...
+- [Een tikkie voor de baas, serieus?](https://www.ad.nl/binnenland/een-tikkie-voor-de-baas-serieus~ac78db3c/)
+  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
+- [Trump acht hervatting oorlog tegen Iran ‘onwaarschijnlijk’, Israël zet buitenlanders uit die hielpen met olijvenoogst](https://www.ad.nl/buitenland/trump-acht-hervatting-oorlog-tegen-iran-onwaarschijnlijk-israel-zet-buitenlanders-uit-die-hielpen-met-olijvenoogst~ac528ac3/)
+  > Een hervatting van de oorlog tegen Iran is ‘zeer onwaarschijnlijk’, mits er in de onderhandelingen tussen de VS en Iran vooruitgang wordt geboekt....
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Europa toch bij gesprekken over Oekraïne in Abu Dhabi](https://fd.nl/politiek/1618402/europa-toch-bij-gesprekken-over-oekraine-in-abu-dhabi)
-  > Onder leiding van de VS spreken dinsdag en woensdag delegaties van Oekraïne en Rusland over het beëindigen van de oorlog. Europa was eerder niet...
-- [Aantal investeringen in start-ups daalt, vooral in Europa minder animo](https://fd.nl/tech-en-innovatie/1618005/aantal-investeringen-in-start-ups-daalt-vooral-in-europa-minder-animo)
-  > Steeds minder start-ups en scale-ups in Nederland zien kans om geld op te halen. Het leidt tot bezorgdheid bij investeerders en bedrijven. ‘We moeten...
-- [Wat Anthropic van Musk en Cruijff had kunnen leren: timing](https://fd.nl/financiele-markten/1618263/wat-anthropic-van-musk-en-cruijff-had-kunnen-leren-timing)
-  > Het moment van een beursgang is precair. Het sentiment is belangrijk en je verhaal moet goed zijn. De correctie van de Nasdaq en de twijfels over AI...
-- [Cfo Sif: ‘Die order is een wortel die voor onze neus hangt, maar die we net niet kunnen grijpen’](https://fd.nl/bedrijfsleven/1618343/cfo-sif-die-order-is-een-wortel-die-voor-onze-neus-hangt-maar-die-we-net-niet-kunnen-grijpen)
-  > Het voortbestaan van Sif is volledig afhankelijk van de komst van één enkel windpark. Op de beurs ging het bedrijf vrijdag hard onderuit.
-- [Het autocratische bewind van Vucic in Servië vertoont eerste barsten](https://fd.nl/politiek/1618249/het-autocratische-bewind-van-vucic-in-servie-vertoont-eerste-barsten)
-  > Twee weken na de onverwachte overwinning van de studentenprotestbeweging is er in Servië nog geen nieuwe premierskandidaat aangewezen. Toch zijn de...
+- [Anthropic sluit miljardendeal voor de energievoorziening van datacenters](https://fd.nl/bedrijfsleven/1618409/anthropic-sluit-miljardendeal-voor-de-energievoorziening-van-datacenters)
+  > AI-bedrijf Anthropic heeft een deal gesloten ter waarde van $3,4 mrd (€3,05 mrd) met een Texaans energiebedrijf voor gasgeneratoren voor datacenters
+- [Zuid-Afrikaanse ANC verliest opnieuw zetels bij gemeenteraadsverkiezingen](https://fd.nl/politiek/1618408/zuid-afrikaanse-anc-verliest-opnieuw-zetels-bij-gemeenteraadsverkiezingen)
+  > De partij haalde ruim 30% van de stemmen, waar het bij de vorige verkiezingen vijf jaar geleden nog uitkwam op 45%.
+- [Democraten steunen mogelijke afzettingsprocedure tegen defensieminister Hegseth](https://fd.nl/politiek/1618407/democraten-steunen-mogelijke-afzettingsprocedure-tegen-defensieminister-hegseth)
+  > De Democraten zullen een afzettingsprocedure tegen defensieminister Pete Hegseth steunen, zei Hakeem Jeffries, de leider van de partij in het Huis...
+- [Ontevreden makelaars moeten kiezen](https://fd.nl/opinie/1618237/ontevreden-makelaars-moeten-kiezen)
+  > Met Homek willen makelaars het fundamenteel anders gaan doen dan Funda. De woningzoekende is vooral geïnteresseerd in een groot en aantrekkelijk...
+- [‘200.000 mensen bij Rode Lijn-demonstratie Amsterdam’](https://fd.nl/politiek/1618404/200-000-mensen-bij-rode-lijn-demonstratie-amsterdam)
+  > De demonstranten willen dat de Nederlandse regering harder optreedt tegen Israël, met meer economische maatregelen.
 
 ### Meest gelezen
 
