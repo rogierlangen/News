@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-11-2026 om 07:45*
+*Laatst bijgewerkt: 09-11-2026 om 18:31*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Amerikaanse felicitaties voor 101-jarige Britse na naamsverwarring](https://nos.nl/l/2638676)
-  > Een 101-jarige Britse die honderden kaarten uit haar dorpje kreeg op haar verjaardag, werd ook verrast met felicitaties van 6000 kilometer verderop....
-- [Pensioen een zwart gat voor steeds meer mensen die in buitenland werken](https://nos.nl/l/2638673)
-  > Steeds meer Nederlanders wonen of werken een deel van hun leven in een ander Europees land. Precies zoals ooit de bedoeling was van de Europese Unie:...
-- [Klimaattop van start in Turkije, landen willen groter aandeel (duurzame) stroom](https://nos.nl/l/2638672)
-  > Voor de nieuwste klimaattop zijn de verwachtingen laag. Het lijkt uitgesloten dat landen grote beloften zullen doen in de Turkse stad Antalya, waar...
-- [Schutter die voorbijgangers doodschoot in Krakau overleden in ziekenhuis](https://nos.nl/l/2638668)
-  > De aanslagpleger die zaterdag in de Poolse stad Krakau zes mensen doodschoot, is overleden in het ziekenhuis. Dat meldt de Poolse politie op X.
-     ...
-- [Wekdienst 9/11: Wegenwacht staakt • VN-klimaattop van start](https://nos.nl/l/2638665)
-  > Goedemorgen! Vandaag leggen medewerkers van de ANWB het werk neer en in de Portugese Synagoge in Amsterdam vindt de Nationale Kristallherdenking...
+- [Het aandeel van stroom in energieverbruik vergroten is voor Nederland een flinke klus](https://nos.nl/l/2638770)
+  > Het is dit jaar een van de voornaamste punten op de agenda van de klimaattop: kan de wereld een groter deel van zijn energie gebruiken in de vorm van...
+- [Frankrijk denkt dat Iran achter aanval op koelsystemen in supermarkten zat](https://nos.nl/l/2638769)
+  > Het Franse Openbaar Ministerie is een onderzoek gestart naar het hoofd van een Iraanse groep die in oktober de koelsystemen van ongeveer 700 Franse...
+- [Politieke boodschap bij Kristallnachtherdenking: 'Rode Lijn-protest is anti-Israël'](https://nos.nl/l/2638768)
+  > In Amsterdam is de Kristallnacht herdacht, vandaag 88 jaar geleden. De voorzitter van het Centraal Joods Overleg (CJO), Chanan Hertzberger, koos in...
+- [Sinterklaasjournaal houdt het spannend, opvolger van De Walle nog onduidelijk](https://nos.nl/l/2638762)
+  > In de eerste aflevering van Het Sinterklaasjournaal is nog niet duidelijk geworden wie zich voortaan ontfermt over het Grote Boek. Afgelopen...
+- [VVD-prominenten steunen Weekers, die andere koers wil met de partij](https://nos.nl/l/2638758)
+  > Het is geen aanval op de partij of het leiderschap, helemaal niet. Het is juist een aanbod tot steun, die hij "vanaf de achterbank" wil bieden. Dat...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Iedereen zijn eigen aansluiting op het stroomnetwerk is helemaal niet nodig, zegt Bob: ‘Je moet het slim verdelen, zoals wij’](https://www.ad.nl/binnenland/iedereen-zijn-eigen-aansluiting-op-het-stroomnetwerk-is-helemaal-niet-nodig-zegt-bob-je-moet-het-slim-verdelen-zoals-wij~a4c23964/)
-  > Groot nieuws dat schrik veroorzaakte: de aansluitstop op het Achterhoekse stroomnet. Maar Bob Duindam van energiecoöperatie LochemEnergie staat te...
-- [Nations League-ontknoping: zo staat Oranje ervoor en op deze dagen komt ploeg van Xavi in actie](https://www.ad.nl/voetbal/nations-league-ontknoping-zo-staat-oranje-ervoor-en-op-deze-dagen-komt-ploeg-van-xavi-in-actie~abc21cca/)
-  > De komende week speelt het Nederlands elftal de laatste twee groepswedstrijden in de Nations League. Tegen Griekenland en Duitsland moet Oranje zich...
-- [Voor het eerst sinds februari: Oekraïne, Rusland en VS dinsdag om tafel over einde oorlog](https://www.ad.nl/buitenland/voor-het-eerst-sinds-februari-oekraine-rusland-en-vs-dinsdag-om-tafel-over-einde-oorlog~adfb97be/)
-  > Onderhandelaars uit Rusland, Oekraïne en de Verenigde Staten schuiven dinsdag in Abu Dhabi aan voor een tweedaags overleg over het beëindigen van de...
-- [Griekse kustwacht redt 18 migranten uit boot bij Kreta, 12 doden geborgen](https://www.ad.nl/buitenland/griekse-kustwacht-redt-18-migranten-uit-boot-bij-kreta-12-doden-geborgen~a6af0cca/)
-  > De Griekse kustwacht heeft maandagochtend de lichamen van twaalf overleden migranten geborgen uit een boot voor de kust van Kreta. Het is nog niet...
-- [Richard en Evertje leken lieve oppas voor de kinderen, maar misbruikten de kinderen stelselmatig](https://www.ad.nl/binnenland/richard-en-evertje-leken-lieve-oppas-voor-de-kinderen-maar-misbruikten-de-kinderen-stelselmatig~a70fd56a/)
-  > Richard en Evertje leken een heel fijn stel dat oppaste op de kinderen van haar broer en van een vriendin van haar. Ze leken lief en zorgzaam, tot...
+- [Wie wil shinen met sportfoto’s, betaalt met privacy: hoe gezichtsherkenning wordt ingezet bij hardloopwedstrijden](https://www.ad.nl/binnenland/wie-wil-shinen-met-sportfotos-betaalt-met-privacy-hoe-gezichtsherkenning-wordt-ingezet-bij-hardloopwedstrijden~a12d3d4c/)
+  > Bij grote hardloopevenementen kun je na afloop op de site je eigen actiefoto’s terugvinden. Wie veel foto’s van zichzelf wil vinden, kan het beste...
+- [Een ‘shocker’: topman James Gunn vertrekt plotseling bij filmstudio DC](https://www.ad.nl/show/een-shocker-topman-james-gunn-vertrekt-plotseling-bij-filmstudio-dc~a9c8a210/)
+  > James Gunn en Peter Safran stappen onverwacht op bij filmproducent DC Studios. Vakblad Variety spreekt maandag van een ‘shocker’. Enerzijds omdat...
+- [Marjolein (27) verruilt caravan voor eigen huis in de tuin van haar ouders, en dat mag straks overal](https://www.ad.nl/binnenland/marjolein-27-verruilt-caravan-voor-eigen-huis-in-de-tuin-van-haar-ouders-en-dat-mag-straks-overal~ad52ff12/)
+  > Twee jaar bivakkeerde Marjolein Houwers (27) uit Aalten in een caravan in de tuin van haar ouders. Deze week verhuist ze naar een echt huis. Wéér in...
+- [‘Het is achterin lek en het vertrouwen is broos’: wat zegt rampstart van FC Utrecht over positie van Correia?](https://www.ad.nl/voetbal/het-is-achterin-lek-en-het-vertrouwen-is-broos-wat-zegt-rampstart-van-fc-utrecht-over-positie-van-correia~ae132901/)
+  > Van kroonprins tot crisismanager. Trainer Anthony Correia beleeft een rampstart bij FC Utrecht, waar hij zijn team maar niet aan de praat krijgt....
+- [Langs de snelweg is de benzine peperduur: hier komt dat door](https://www.ad.nl/auto/langs-de-snelweg-is-de-benzine-peperduur-hier-komt-dat-door~a4db93b0/)
+  > Tanken langs de snelweg is veel duurder dan bij andere benzinepompen. Lezer Harrie Strik vraagt zich af waarom dat is. Onze auto-expert Niek Schenk...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Rabobank koopt voor €1 mrd eigen certificaten in](https://fd.nl/bedrijfsleven/1618447/rabobank-koopt-voor-1-mrd-eigen-certificaten-in)
-  > De bank zegt met deze bieding de kapitaalpositie actief te beheren met ‘behoud van een sterke balans’. Ook andere Nederlandse grootbanken kopen eigen...
-- [Live: Rabobank koopt eigen certificaten in](https://fd.nl/financiele-markten/1618446/live-vriendelijke-stemming-bij-start-nieuwe-beursweek-azie)
-  > De futures indiceren afwachtend aan dit begin van de beursweek. De AEX future daalt licht met 0,15%. De Rabobank gaat eigen certificaten inkopen...
-- [Ziek gemeld na een arbeidsconflict: betalen werkgevers te lang door?](https://fd.nl/samenleving/1618253/ziek-gemeld-na-een-arbeidsconflict-betalen-werkgevers-te-lang-door)
-  > De wettelijk verplichte loondoorbetaling frustreert vooral kleinere bedrijven, niet in de laatste plaats doordat werknemers zich soms ziek melden na...
-- [Bij Bruna dreigt de laatste bladzijde](https://fd.nl/economie/1618340/bij-bruna-dreigt-de-laatste-bladzijde)
-  > Vandaag in Dagkoers: De moedermaatschappij van Bruna staat op omvallen. El Niño lijkt de inflatie te gaan aanjagen. En een bijzonder inkijkje bij de...
-- [Pensioenbelegger APG trekt stekker uit actief aandelenbeheer na tegenvallende rendementen](https://fd.nl/financiele-markten/1618179/pensioenbelegger-apg-trekt-stekker-uit-actief-aandelenbeheer-na-tegenvallende-rendementen)
-  > Actief beleggen in aandelen pakte de afgelopen jaren niet goed uit voor APG. Zowel over een periode van vijf jaar als vorig jaar presteerde de...
+- [Nieuw Canadees staatsfonds haalt ceo bij hedgefonds Bridgewater](https://fd.nl/financiele-markten/1618490/nieuw-canadees-staatsfonds-haalt-ceo-bij-hedgefonds-bridgewater)
+  > Het Canada Strong Fund krijgt omgerekend zo’n €15,7 mrd om te investeren in Canadese bedrijven.
+- [Frankrijk: Iran zat achter cyberaanval op koelkasten en vriezers in supermarkten](https://fd.nl/politiek/1618487/frankrijk-iran-zat-achter-cyberaanval-op-koelkasten-en-vriezers-in-supermarkten)
+  > Volgens de Franse buitenlandminister Jean-Noël Barrot is Iran schuldig aan de cyberaanval op supermarktkoelingen van vorige week.
+- [Frankrijk probeert onrust te sussen en verhoogt minimumloon met 1,6%](https://fd.nl/economie/1618486/frankrijk-probeert-onrust-te-sussen-en-verhoogt-minimumloon-met-1-6)
+  > Met de vervroegde verhoging hoopt de regering de groeiende maatschappelijke onvrede te sussen, waarbij honderdduizenden Fransen de straat opgingen.
+- [Broer van Viktor Orbán gearresteerd op verdenking van mensenhandel](https://fd.nl/politiek/1618488/broer-van-viktor-orban-gearresteerd-op-verdenking-van-mensenhandel)
+  > Een bedrijf van het familielid van de oud-premier van Hongarije zou het tegen betaling gemakkelijk hebben gemaakt voor Vietnamese staatsburgers om...
+- [‘Chinese spion’ Alice Huang leidde Megaspeed naar voorkeurspositie bij Nvidia](https://fd.nl/bedrijfsleven/1618467/chinese-spion-alice-huang-leidde-megaspeed-naar-voorkeurspositie-bij-nvidia)
+  > Hoe lang Nvidia-ceo Jensen Huang al een affaire had met Alice Huang is niet bekend, maar volgens de New York Times hebben Amerikaanse...
 
 ### Meest gelezen
 
