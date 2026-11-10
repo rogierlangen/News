@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 10-11-2026 om 09:28*
+*Laatst bijgewerkt: 10-11-2026 om 17:33*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Dichte mist in Nederland levert ook prachtige plaatjes op](https://nos.nl/l/2638829)
-  > De dichte, laaghangende mist van vanochtend leidt tot enige overlast, maar levert ook veel mooie foto's op.
-        Via de mailbox van NOS Ooggetuige...
-- [Kabinet zet in op behoud Moerdijk, voortbestaan dorp nog niet zeker](https://nos.nl/l/2638828)
-  > Als het aan het kabinet ligt, blijft Moerdijk toch bestaan. In een brief aan de Tweede Kamer schrijft staatssecretaris De Bat dat de uitbreiding van...
-- [Gesprekken over oorlog in Oekraïne van start in Abu Dhabi, Europa aan de zijlijn](https://nos.nl/l/2638826)
-  > In Abu Dhabi zijn de gesprekken begonnen over een einde aan de oorlog in Oekraïne. In een eerste ronde sprak Oekraïne vanmorgen de Europese...
-- ['Trump-effect' op universiteiten: meer buitenlandse studenten dan afgesproken](https://nos.nl/l/2638819)
-  > Na jarenlang een daling te hebben gezien van het aantal nieuwe buitenlandse studenten, zijn er dit jaar juist weer iets meer begonnen aan een...
-- [Miljoen Fransen eisen ingrijpen tegen invloedrijke nieuwszender CNews](https://nos.nl/l/2638817)
-  > Een petitie om een van de best bekeken nieuwszenders van Frankrijk van de buis te halen, heeft ruim 1 miljoen handtekeningen opgehaald. CNews is...
+- [Vogelgriep vastgesteld bij bedrijf in Hierden, 70.000 eenden geruimd](https://nos.nl/l/2638902)
+  > Bij een pluimveebedrijf in het Gelderse dorp Hierden is vogelgriep vastgesteld. De circa 70.000 eenden worden onder leiding van de Nederlandse...
+- [Mantelzorg bij dementie is zwaar: 'Je draagt heel veel alleen'](https://nos.nl/l/2638901)
+  > Mensen die vrijwillig zorgen voor iemand met dementie ervaren meer eenzaamheid, psychische problemen en lichamelijke problemen. Dat concludeert...
+- [Oproep om gegevens van Q-koorts- en postcovidpatiënten te bewaren](https://nos.nl/l/2638900)
+  > De overheid moet in actie komen om gegevens van vele duizenden Q-koorts- en postcovidpatiënten te behoeden voor vernietiging. Die oproep doet Jos...
+- [Geëmotioneerde slachtoffers Tarwekamp: 'Explosie duurde seconden, gevolgen een leven lang'](https://nos.nl/l/2638896)
+  > "Een explosie duurt seconden, de gevolgen ervan kunnen een leven lang duren." Een moeder van een gezin dat aan de Tarwekamp woonde, beschreef vandaag...
+- [Klant beloont vertrouwensband met taxichauffeur met huis van een half miljoen](https://nos.nl/l/2638895)
+  > "In al die jaren heb ik duizenden mensen vervoerd. Voor mij maakte het nooit uit wie er instapte, iedereen verdiende dezelfde zorg, aandacht en...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Salaris ingeleverd vanwege mantelzorg? Van deze regelingen kun je gebruikmaken](https://www.ad.nl/geld/salaris-ingeleverd-vanwege-mantelzorg-van-deze-regelingen-kun-je-gebruikmaken~a82558e6/)
-  > Nederland telt drie miljoen mantelzorgers. Veel mantelzorgers combineren het met hun baan, maar vaak moeten ze minder werken om alle zorgtaken uit te...
-- [Nvidia-topman 6,5 miljard armer door affaire met vermeende Chinese spion](https://www.ad.nl/buitenland/nvidia-topman-6-5-miljard-armer-door-affaire-met-vermeende-chinese-spion~aa083157/)
-  > Topman Jensen Huang van chipconcern Nvidia heeft zijn vermogen met 6,5 miljard dollar zien slinken na het naar buiten komen van zijn affaire met een...
-- [Enrique Iglesias treedt op in GelreDome, enige show in Europa](https://www.ad.nl/show/enrique-iglesias-treedt-op-in-gelredome-enige-show-in-europa~a73eb5ff/)
-  > Enrique Iglesias treedt volgend jaar op zaterdag 8 mei op in Nederland. Hij staat die avond in GelreDome en dat is gelijk ook zijn enige show in...
-- [Family recruiter Paul zoekt personeel voor de allerrijksten: discretie is het toverwoord](https://www.ad.nl/binnenland/family-recruiter-paul-zoekt-personeel-voor-de-allerrijksten-discretie-is-het-toverwoord~aab9a083/)
-  > Een opvallende vacature: een rijke man in de regio Den Bosch zoekt een ‘dame van de oude stempel’ die zijn twee jonge kinderen opvangt en de villa...
-- [Opinie: ‘Nu investeren scheelt slachtoffers bij rampen’](https://www.ad.nl/opinie/opinie-nu-investeren-scheelt-slachtoffers-bij-rampen~a1ca84e7/)
-  > Gisteren is in het Turkse Antalya de klimaattop COP31 begonnen. Veel aandacht is er niet voor, stelt Harm Goossens vast. Terwijl we extreme...
+- [Michael Reiziger niet blij met switch van Ayoub Oufkir naar Marokko: ‘Vijf dagen eerder gaf hij ons zijn woord’](https://www.ad.nl/voetbal/michael-reiziger-niet-blij-met-switch-van-ayoub-oufkir-naar-marokko-vijf-dagen-eerder-gaf-hij-ons-zijn-woord~aea4d14f/)
+  > Nog geen week voordat hij voor het eerst werd opgenomen in de Marokkaanse selectie, had Ayoub Oufkir zich geconformeerd aan Jong Oranje. Dat zegt...
+- [Heerenveen en Cambuur floreren na eerste interlandbreak, Excelsior en AZ zakken weg](https://www.ad.nl/voetbal/heerenveen-en-cambuur-floreren-na-eerste-interlandbreak-excelsior-en-az-zakken-weg~a14cf5fc/)
+  > Na de eerste extra lange interlandperiode is het nu tijd voor de tweede onderbreking. De eredivisie ligt opnieuw stil en dus is het een mooi moment...
+- [Maarten Schuurman, algemeen directeur Heineken, overleden op 57-jarige leeftijd](https://www.ad.nl/economie/maarten-schuurman-algemeen-directeur-heineken-overleden-op-57-jarige-leeftijd~ae26980e/)
+  > De algemeen directeur van Heineken Nederland, Maarten Schuurman, is afgelopen vrijdag overleden aan de gevolgen van een hersenbloeding. Schuurman...
+- [Populairder dan Mbappé en nu politicus in spe: judoka Teddy Riner wil president van Frankrijk worden](https://www.ad.nl/andere-sporten/populairder-dan-mbappe-en-nu-politicus-in-spe-judoka-teddy-riner-wil-president-van-frankrijk-worden~ae2cdf4f/)
+  > De populairste sporter in Frankrijk, olympisch judokampioen Teddy Riner, wil president worden. De verkiezingen zijn over vijf maanden. Politieke...
+- [FC Groningen-keeper zoekt professionele hulp na woede-uitbarsting: ‘Het is helaas niet voor het eerst’](https://www.ad.nl/voetbal/fc-groningen-keeper-zoekt-professionele-hulp-na-woede-uitbarsting-het-is-helaas-niet-voor-het-eerst~ad3b3d69/)
+  > Etienne Vaessen heeft veel spijt van zijn gedrag zondag in de wedstrijd tegen AZ. De keeper van FC Groningen kreeg in de slotfase een penalty tegen...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Californië stemt tegen belasting voor miljardairs](https://fd.nl/economie/1618584/californie-stemt-tegen-belasting-voor-miljardairs)
-  > Het vinden van voldoende steun bleek van het begin af aan moeilijk voor de voorstanders. Gouverneur Gavin Newsom was bijvoorbeeld tegen de belasting.
-- [Chinese handelsoverschot loopt op tot ruim €900 mrd](https://fd.nl/economie/1618582/chinese-handelsoverschot-loopt-op-tot-ruim-900-mrd)
-  > De Europese Unie is verantwoordelijk voor een derde van het Chinese handelsoverschot.
-- [Winstgevendheid Kendrion neemt toe, maar omzet groeit nog niet mee](https://fd.nl/bedrijfsleven/1618583/winstgevendheid-kendrion-neemt-toe-maar-omzet-groeit-nog-niet-mee)
-  > Kendrion zegt te profiteren van meer vraag naar robots en automatisering. Het bedrijf maakt onder meer remmen voor windmolens en medische apparatuur.
-- [TKH Group boekt meer omzet en winst in derde kwartaal](https://fd.nl/bedrijfsleven/1618581/tkh-group-boekt-meer-omzet-en-winst-in-derde-kwartaal)
-  > Het bedrijf profiteerde van meer vraag naar camerasystemen en kabels. TKH meldt dinsdag niets nieuws over de beoogde afsplitsing van de...
-- [Live: AEX hoger geopend, Jensen Huang staat voorlopig in de schijnwerpers](https://fd.nl/financiele-markten/1618579/live-herstel-techaandelen-zet-voort-jensen-huang-staat-voorlopig-in-de-schijnwerpers)
-  > Het herstel van de techaandelen zet zich voort. In Amsterdam openen TKH Group en Kendrion de boeken. Ook kijken beleggers naar Nvidia, hoe ontwikkelt...
+- [Met overname Matrans komt opnieuw Rotterdamse containerterminal in buitenlandse handen](https://fd.nl/bedrijfsleven/1618594/met-overname-matrans-komt-opnieuw-rotterdamse-containerterminal-in-buitenlandse-handen)
+  > Het Spaanse Boluda Corporación Marítima neemt de op- en overslagterminal over. Dergelijke overnames liggen gevoelig bij de Tweede Kamer.
+- [Meer kranten sluiten deals met OpenAI: ‘We hebben geen keus’](https://fd.nl/bedrijfsleven/1618677/meer-kranten-sluiten-deals-met-openai-we-hebben-geen-keus)
+  > De ceo van de Franse krant Le Monde zei dinsdag op het congres Web Summit dat deals met AI-bedrijven een belangrijke inkomstenbron vormen. Daarnaast...
+- [Trinseo wil latexproductie in Terneuzen staken](https://fd.nl/bedrijfsleven/1618568/trinseo-wil-latexproductie-in-terneuzen-staken)
+  > Het bedrijf zit al lange tijd in diepe financiële problemen, en saneert zijn Europese activiteiten.
+- [Ondernemingsraad Booking in beroep tegen verplichte aanwezigheid op kantoor](https://fd.nl/bedrijfsleven/1618621/ondernemingsraad-booking-in-beroep-tegen-verplichte-aanwezigheid-op-kantoor)
+  > De or van het reisplatform is ‘teleurgesteld’ over de rechterlijke uitspraak dat het bedrijf medewerkers mag verplichten minstens twee dagen op...
+- [Rechtszaak tegen honorair consul Oekraïne ingetrokken: ‘Doorzichtige intimidatietactiek’](https://fd.nl/bedrijfsleven/1618563/rechtszaak-tegen-honorair-consul-oekraine-ingetrokken-doorzichtige-intimidatietactiek)
+  > Peja Group vond dat Karel Burger Dirven een lastercampagne voerde tegen het bedrijf. Het begon een kort geding en vorderde dwangsommen van €10.000...
 
 ### Meest gelezen
 
