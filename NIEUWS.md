@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 09-11-2026 om 18:31*
+*Laatst bijgewerkt: 10-11-2026 om 01:54*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Het aandeel van stroom in energieverbruik vergroten is voor Nederland een flinke klus](https://nos.nl/l/2638770)
-  > Het is dit jaar een van de voornaamste punten op de agenda van de klimaattop: kan de wereld een groter deel van zijn energie gebruiken in de vorm van...
-- [Frankrijk denkt dat Iran achter aanval op koelsystemen in supermarkten zat](https://nos.nl/l/2638769)
-  > Het Franse Openbaar Ministerie is een onderzoek gestart naar het hoofd van een Iraanse groep die in oktober de koelsystemen van ongeveer 700 Franse...
-- [Politieke boodschap bij Kristallnachtherdenking: 'Rode Lijn-protest is anti-Israël'](https://nos.nl/l/2638768)
-  > In Amsterdam is de Kristallnacht herdacht, vandaag 88 jaar geleden. De voorzitter van het Centraal Joods Overleg (CJO), Chanan Hertzberger, koos in...
-- [Sinterklaasjournaal houdt het spannend, opvolger van De Walle nog onduidelijk](https://nos.nl/l/2638762)
-  > In de eerste aflevering van Het Sinterklaasjournaal is nog niet duidelijk geworden wie zich voortaan ontfermt over het Grote Boek. Afgelopen...
-- [VVD-prominenten steunen Weekers, die andere koers wil met de partij](https://nos.nl/l/2638758)
-  > Het is geen aanval op de partij of het leiderschap, helemaal niet. Het is juist een aanbod tot steun, die hij "vanaf de achterbank" wil bieden. Dat...
+- [Iran-oorlog leidt tot dipje in uitstoot fossiele brandstoffen](https://nos.nl/l/2638804)
+  > Hoge prijzen aan de pomp, zorgen over het lage peil van de gasvoorraden en politieke onrust. De Iran-oorlog veroorzaakte een ongekende verstoring van...
+- [Iran-oorlog buigt verwachte daling om naar nieuw recordjaar steenkool](https://nos.nl/l/2638803)
+  > Steenkool verbranden leidt tot ongezonde luchtvervuiling en het stoot broeikasgassen uit die de aarde opwarmen, nog meer dan olie en aardgas.
+       ...
+- [Republikein dient voorstel in voor afzetten Amerikaanse defensieminister Hegseth](https://nos.nl/l/2638802)
+  > Het Republikeinse congreslid Thomas Massie wil de Amerikaanse minister van Defensie Pete Hegseth afzetten. Hij had al aangekondigd een...
+- [Pensioenen zorg, bouw, metaal en techniek beetje omhoog](https://nos.nl/l/2638801)
+  > Voor gepensioneerden uit de zorg, bouw en de metaal- en technieksector gaat de pensioenuitkering een klein beetje omhoog per 2027. Gepensioneerde...
+- [Vermist meisje (13) uit Berlijn dood gevonden in huis naast zwaargewonde 22-jarige man](https://nos.nl/l/2638794)
+  > Een 13-jarig meisje uit Berlijn dat sinds vorige week dinsdag werd vermist, is gisteren dood gevonden in een leegstaand huis in het dorpje...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Wie wil shinen met sportfoto’s, betaalt met privacy: hoe gezichtsherkenning wordt ingezet bij hardloopwedstrijden](https://www.ad.nl/binnenland/wie-wil-shinen-met-sportfotos-betaalt-met-privacy-hoe-gezichtsherkenning-wordt-ingezet-bij-hardloopwedstrijden~a12d3d4c/)
-  > Bij grote hardloopevenementen kun je na afloop op de site je eigen actiefoto’s terugvinden. Wie veel foto’s van zichzelf wil vinden, kan het beste...
-- [Een ‘shocker’: topman James Gunn vertrekt plotseling bij filmstudio DC](https://www.ad.nl/show/een-shocker-topman-james-gunn-vertrekt-plotseling-bij-filmstudio-dc~a9c8a210/)
-  > James Gunn en Peter Safran stappen onverwacht op bij filmproducent DC Studios. Vakblad Variety spreekt maandag van een ‘shocker’. Enerzijds omdat...
-- [Marjolein (27) verruilt caravan voor eigen huis in de tuin van haar ouders, en dat mag straks overal](https://www.ad.nl/binnenland/marjolein-27-verruilt-caravan-voor-eigen-huis-in-de-tuin-van-haar-ouders-en-dat-mag-straks-overal~ad52ff12/)
-  > Twee jaar bivakkeerde Marjolein Houwers (27) uit Aalten in een caravan in de tuin van haar ouders. Deze week verhuist ze naar een echt huis. Wéér in...
-- [‘Het is achterin lek en het vertrouwen is broos’: wat zegt rampstart van FC Utrecht over positie van Correia?](https://www.ad.nl/voetbal/het-is-achterin-lek-en-het-vertrouwen-is-broos-wat-zegt-rampstart-van-fc-utrecht-over-positie-van-correia~ae132901/)
-  > Van kroonprins tot crisismanager. Trainer Anthony Correia beleeft een rampstart bij FC Utrecht, waar hij zijn team maar niet aan de praat krijgt....
-- [Langs de snelweg is de benzine peperduur: hier komt dat door](https://www.ad.nl/auto/langs-de-snelweg-is-de-benzine-peperduur-hier-komt-dat-door~a4db93b0/)
-  > Tanken langs de snelweg is veel duurder dan bij andere benzinepompen. Lezer Harrie Strik vraagt zich af waarom dat is. Onze auto-expert Niek Schenk...
+- [FBI onderzoekt mogelijke moord aan boord van cruiseschip uit Texas](https://www.ad.nl/buitenland/fbi-onderzoekt-mogelijke-moord-aan-boord-van-cruiseschip-uit-texas~a69fffd2/)
+  > Op een cruiseschip in de Verenigde Staten is mogelijk een moord gepleegd. De FBI liet maandag in een verklaring weten onderzoek te doen naar ‘een...
+- [Nvidia en topman Huang aangeklaagd in verband met spionagezaak, Trump neemt het voor hem op](https://www.ad.nl/buitenland/nvidia-en-topman-huang-aangeklaagd-in-verband-met-spionagezaak-trump-neemt-het-voor-hem-op~aadee4af/)
+  > Het Amerikaanse AI-chipconcern Nvidia en zijn topman Jensen Huang zijn aangeklaagd in een collectieve rechtszaak. Hen wordt verweten aandeelhouders...
+- [Korpschef ziet geen link tussen racisme en fataal politiegeweld: ‘Daar neem ik afstand van’](https://www.ad.nl/binnenland/korpschef-ziet-geen-link-tussen-racisme-en-fataal-politiegeweld-daar-neem-ik-afstand-van~a7d95815/)
+  > Korpschef van de nationale politie Janny Knol ziet geen verband tussen racisme en fataal politiegeweld. „Daar neem ik afstand van”, zei ze...
+- [Britse schrijver M. John Harrison (81) wint prestigieuze Booker Prize, als oudste winnaar ooit](https://www.ad.nl/show/britse-schrijver-m-john-harrison-81-wint-prestigieuze-booker-prize-als-oudste-winnaar-ooit~a9249940/)
+  > De Britse schrijver M. John Harrison is maandag uitgeroepen tot winnaar van de Booker Prize, een prestigieuze Britse literatuurprijs. Het boek  Zijn...
+- [AD Voetbalpodcast | ‘Interessant om centrum zonder Virgil van Dijk te zien bij Oranje’](https://www.ad.nl/voetbal/ad-voetbalpodcast-interessant-om-centrum-zonder-virgil-van-dijk-te-zien-bij-oranje~a42af5cd9/)
+  > De Graafschap heeft forse maatregelen genomen tegen de fans die zondag de selectie tegenhielden. Daardoor ging het duel met Vitesse niet door. Tot...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Nieuw Canadees staatsfonds haalt ceo bij hedgefonds Bridgewater](https://fd.nl/financiele-markten/1618490/nieuw-canadees-staatsfonds-haalt-ceo-bij-hedgefonds-bridgewater)
-  > Het Canada Strong Fund krijgt omgerekend zo’n €15,7 mrd om te investeren in Canadese bedrijven.
-- [Frankrijk: Iran zat achter cyberaanval op koelkasten en vriezers in supermarkten](https://fd.nl/politiek/1618487/frankrijk-iran-zat-achter-cyberaanval-op-koelkasten-en-vriezers-in-supermarkten)
-  > Volgens de Franse buitenlandminister Jean-Noël Barrot is Iran schuldig aan de cyberaanval op supermarktkoelingen van vorige week.
-- [Frankrijk probeert onrust te sussen en verhoogt minimumloon met 1,6%](https://fd.nl/economie/1618486/frankrijk-probeert-onrust-te-sussen-en-verhoogt-minimumloon-met-1-6)
-  > Met de vervroegde verhoging hoopt de regering de groeiende maatschappelijke onvrede te sussen, waarbij honderdduizenden Fransen de straat opgingen.
-- [Broer van Viktor Orbán gearresteerd op verdenking van mensenhandel](https://fd.nl/politiek/1618488/broer-van-viktor-orban-gearresteerd-op-verdenking-van-mensenhandel)
-  > Een bedrijf van het familielid van de oud-premier van Hongarije zou het tegen betaling gemakkelijk hebben gemaakt voor Vietnamese staatsburgers om...
-- [‘Chinese spion’ Alice Huang leidde Megaspeed naar voorkeurspositie bij Nvidia](https://fd.nl/bedrijfsleven/1618467/chinese-spion-alice-huang-leidde-megaspeed-naar-voorkeurspositie-bij-nvidia)
-  > Hoe lang Nvidia-ceo Jensen Huang al een affaire had met Alice Huang is niet bekend, maar volgens de New York Times hebben Amerikaanse...
+- [Trump opnieuw op het oorlogspad](https://fd.nl/opinie/1618482/trump-opnieuw-op-het-oorlogspad)
+  > De Democraten hebben het Congres heroverd, maar Trump trekt zich er weinig van aan. Met decreten en een politiek aangestuurd ministerie van Justitie...
+- [AI-bedrijf Databricks investeert $500 mln in vestiging Amsterdam](https://fd.nl/bedrijfsleven/1618470/ai-bedrijf-databricks-investeert-500-mln-in-vestiging-amsterdam)
+  > Het geld gaat naar de uitbreiding van de Amsterdamse vestiging, waar de grootste ontwikkelafdeling van het bedrijf is gevestigd buiten de VS.
+- [Tropenjaren](https://fd.nl/opinie/1618461/tropenjaren)
+  > Het hoge percentage vrouwen dat na de geboorte van hun eerste kind een WIA-uitkering wijst op een structureel probleem op de werkvloer, schrijft...
+- [Personalia dinsdag 10 november](https://fd.nl/bedrijfsleven/1618455/personalia-dinsdag-10-november)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Pensioenen verplegers, bouwvakkers en metaalwerkers met 0,8% omhoog](https://fd.nl/financiele-markten/1618478/pensioenen-verplegers-bouwvakkers-en-metaalwerkers-met-0-8-omhoog)
+  > De toename steekt mager af bij de verhoging die ze konden uitdelen bij de overgang naar het nieuwe stelsel. Toch zijn de pensioenfondsen tevreden.
 
 ### Meest gelezen
 
