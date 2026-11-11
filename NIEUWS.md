@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-11-2026 om 10:31*
+*Laatst bijgewerkt: 11-11-2026 om 18:28*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Raad van State: minister van Asiel moet veiligheid Syrië opnieuw beoordelen](https://nos.nl/l/2638978)
-  > Asielminister Van den Brink moet de veiligheidssituatie in Syrië opnieuw beoordelen. Dat heeft de Raad van State bepaald, de hoogste bestuursrechter...
-- ['Kabinet toont weinig interesse in beheer van de Nederlandse goudvoorraad'](https://nos.nl/l/2638976)
-  > De minister van Financiën heeft weinig zicht op de Nederlandse goudvoorraad. Dat schrijft de Algemene Rekenkamer in een rapport. Hij mag informatie...
-- [Rusland en Oekraïne bestoken elkaar terwijl in Abu Dhabi wordt onderhandeld](https://nos.nl/l/2638975)
-  > Rusland en Oekraïne hebben afgelopen nacht en vanmorgen luchtaanvallen uitgevoerd op elkaar. Het Russische leger bombardeerde onder meer...
-- [Podcast De Dag: Als je je goedbetaalde baan verruilt voor... iets leukers](https://nos.nl/l/2638974)
-  > Complex en veeleisend werk inruilen voor een baan waar minder specialistische kennis voor nodig is, of waarbij je minder druk ervaart. Oneerbiedig...
-- [Rozendaal, de kleinste gemeente van het Nederlandse vasteland, wil fuseren](https://nos.nl/l/2638964)
-  > Als het aan de gemeenteraad van Rozendaal ligt, voegt de Gelderse gemeente zich binnenkort bij de nabijgelegen gemeenten Rheden en Brummen. Volgens...
+- [El Salvador bestookt vermoedelijk bendehoofdkwartier in Haïti, premier bedankt Bukele](https://nos.nl/l/2639052)
+  > "We hebben onze belofte gehouden". Met die woorden kondigde de Salvadoraanse president Bukele aan het vermoedelijke hoofdkwartier van een van de...
+- [Aardverschuivingen en overstromingen in Portugal door Charles, vluchten geschrapt](https://nos.nl/l/2639051)
+  > In het zuiden van Portugal en in de regio van Lissabon heeft storm Charles tot problemen geleid. Er is sprake van zware regenval en krachtige...
+- [Wereldleiders eenstemmig bezorgd, maar conflicten drukken stempel op klimaattop](https://nos.nl/l/2639050)
+  > Op de klimaattop in Turkije was het een komen en gaan van wereldleiders. Oproepen tot het nakomen van klimaatafspraken, de ramp in Nepal,...
+- [Vrouw (58) overleden na instorten tuinmuur in Vlaardingen](https://nos.nl/l/2639040)
+  > Een 58-jarige vrouw die vanochtend onder een ingestorte muur terechtkwam in Vlaardingen, is overleden. Dat heeft de politie aan de regionale omroep...
+- [Hoogspanning in coalitie over belastingplan: 'dit geeft krassen'](https://nos.nl/l/2639038)
+  > De verhoudingen in de coalitie van D66, VVD en CDA staan onder hoogspanning na de deal van twee van de drie partijen met de linkse oppositiepartijen...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Gered door een ‘waterbed’ op wielen: hoe Oekraïne met snelle onbemande wagentjes levens redt aan het front](https://www.ad.nl/binnenland/gered-door-een-waterbed-op-wielen-hoe-oekraine-met-snelle-onbemande-wagentjes-levens-redt-aan-het-front~aa26aad9/)
-  > Oekraïense dronebouwers veranderen in hoog tempo de manier waarop een moderne oorlog wordt gevoerd. In Marknesse demonstreren ze aan Nederlandse...
-- [LIVE Oorlog Oekraïne | Onderhandelingen tussen Oekraïne en Rusland gaan tweede dag in: ‘VS heeft plan over verdeling Oekraïens grondgebied’](https://www.ad.nl/buitenland/live-oorlog-oekraine-onderhandelingen-tussen-oekraine-en-rusland-gaan-tweede-dag-in-vs-heeft-plan-over-verdeling-oekraiens-grondgebied~adfb97be/)
-  > De onderhandelingen tussen Oekraïne en Rusland zijn in Abu Dhabi de tweede dag ingegaan. De VS zou met een plan zijn gekomen over de verdeling van...
-- [Iraanse dreiging is zó groot dat Amerikaanse minister met gezin moet verhuizen naar zwaar beveiligde legerbasis](https://www.ad.nl/buitenland/iraanse-dreiging-is-zo-groot-dat-amerikaanse-minister-met-gezin-moet-verhuizen-naar-zwaar-beveiligde-legerbasis~a1ce7a5c/)
-  > De Amerikaanse minister van Financiën Scott Bessent heeft zijn woning in Washington moeten verlaten na ernstige bedreigingen vanuit Iran. Hij...
-- [Belastingdienst voldoet niet aan privacyregels, grondrechten burgers zijn in geding](https://www.ad.nl/binnenland/belastingdienst-voldoet-niet-aan-privacyregels-grondrechten-burgers-zijn-in-geding~ae2cc1d4/)
-  > De Belastingdienst doet nog te weinig om de privacy van burgers en ondernemers te beschermen. Dat concludeert de Autoriteit Persoonsgegevens, de...
-- [Praat mee: de VVD moet PRO tegemoetkomen om het belastingplan te redden](https://www.ad.nl/praat-mee/praat-mee-de-vvd-moet-pro-tegemoetkomen-om-het-belastingplan-te-redden~a1c7d143/)
-  > Het kabinet-Jetten, en eigenlijk heel politiek Den Haag, blijft tot aan de deadline met de belastingplannen worstelen. In deze plannen komt te staan...
+- [Zevenvoudig F1-wereldkampioen Lewis Hamilton bezoekt grens met Gaza: ‘Ik wil niet dat we onze ogen sluiten’](https://www.ad.nl/formule-1/zevenvoudig-f1-wereldkampioen-lewis-hamilton-bezoekt-grens-met-gaza-ik-wil-niet-dat-we-onze-ogen-sluiten~a7fe104d/)
+  > Formule 1-coureur Lewis Hamilton heeft dinsdag de Egyptische grensovergang bij Rafah bezocht en daar hulpverleners ontmoet die hulp leveren aan de...
+- [Elodie Verweij: VVD is spoorloos sinds de deal over links, we weten niet waar fractieleider Brekelmans is](https://www.ad.nl/politiek/elodie-verweij-vvd-is-spoorloos-sinds-de-deal-over-links-we-weten-niet-waar-fractieleider-brekelmans-is~a13048f3/)
+  > Verslaggever Elodie Verweij staat in Den Haag en vertelt over de laatste stand van zaken. „Het bizarre is: sinds de deal is de VVD spoorloos. We...
+- [Auto kopen? Zo bereik je de beste deal](https://www.ad.nl/auto/auto-kopen-zo-bereik-je-de-beste-deal~a27717cb/)
+  > Onderhandelen met de verkoper als je een auto wilt kopen: voor menig consument blijft het een lastige opgave. Toch zijn er manieren om je kans op...
+- [Kimi Antonelli verrast Mercedes tijdens titelfeestje met speciale kampioenscoupe: ‘Betalen ze je hiervoor?’](https://www.ad.nl/formule-1/kimi-antonelli-verrast-mercedes-tijdens-titelfeestje-met-speciale-kampioenscoupe-betalen-ze-je-hiervoor~a562e5ee/)
+  > Kimi Antonelli heeft het team van Mercedes op een speciale manier weten te verrassen. Hoewel deze verrassing al aangekondigd was, konden teambaas...
+- [Den Haag kreeg deze week iets belangrijks wél voor elkaar](https://www.ad.nl/commentaar/den-haag-kreeg-deze-week-iets-belangrijks-wel-voor-elkaar~a9d6d675/)
+  > Een keertje stemmen zonder fractiediscipline, zoals deze week, kan dat niet vaker?, schrijft Hans Nijenhuis in dit commentaar.
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Britse waakhond kritisch over koop voedseltak Unilever door McCormick](https://fd.nl/bedrijfsleven/1618784/britse-waakhond-kritisch-over-koop-voedseltak-unilever-door-mccormick)
-  > Het fusiebedrijf krijgt volgens de markttoezichthouder te veel marktmacht in de verkoop van kruiden en sauzen in het VK. De bedrijven hebben een week...
-- [Financiën heeft geen zicht op de 612 ton goud in de kluis van DNB](https://fd.nl/financiele-markten/1618564/financien-heeft-geen-zicht-op-de-612-ton-goud-in-de-kluis-van-dnb)
-  > De Rekenkamer waarschuwt dat Financiën nauwelijks zicht heeft op de Nederlandse goudvoorraad. De schatkistbewaarder bemoeit zich niet met het beheer...
-- [Is Trump onze eigen schuld?](https://fd.nl/samenleving/1618551/is-trump-onze-eigen-schuld)
-  > Links verklaarde de waarheid relatief, en nu de rekening van dit relativisme zich aandient – de feitenvrije politiek – schuift datzelfde links de...
-- [Bankiers mikken op hogere waardering van AI-bedrijf Anthropic bij beursgang](https://fd.nl/bedrijfsleven/1618663/bankiers-mikken-op-hogere-waardering-van-ai-bedrijf-anthropic-bij-beursgang)
-  > Grote vraag naar aandelen van Anthropic zou bankiers aansporen de waardering van Anthropic op te trekken.
-- [CSG onderuit op beurs na waarschuwing over winstgevendheid](https://fd.nl/bedrijfsleven/1618743/csg-onderuit-op-beurs-na-waarschuwing-over-winstgevendheid)
-  > Het Midkap-fonds voorziet voor 2026 nu een ebit-marge, het bedrijfsresultaat als percentage van de omzet, van ongeveer 21%. Eerder mikte CSG op een...
+- [Taaie gesprekken over Oekraïne: geen doorbraak, wel ‘kansen’](https://fd.nl/politiek/1618901/taaie-gesprekken-over-oekraine-geen-doorbraak-wel-kansen)
+  > Gesprekken tussen Russische en Oekraïense onderhandelaars in Abu Dhabi om een eind aan de oorlog te maken hebben weinig concrete resultaten...
+- [Jaguar Land Rover moet in beslag genomen BYD-data vernietigen](https://fd.nl/bedrijfsleven/1618904/jaguar-land-rover-moet-in-beslag-genomen-byd-data-vernietigen)
+  > Jaguar zegt dat zijn Chinese branchegenoot het model van de luxejeep Ti7 heeft afgekeken van de Land Rover Defender.
+- [Analisten halen Nvidia van favorietenlijst](https://fd.nl/bedrijfsleven/1618902/analisten-halen-nvidia-van-favorietenlijst)
+  > Nvidia is door de analisten van Morgan Stanley en Baird van het favoriete beleggingsobjectenlijstje geschrapt.
+- [Rust en duidelijkheid in box 3? Nog even niet](https://fd.nl/politiek/1618539/rust-en-duidelijkheid-in-box-3-nog-even-niet)
+  > Hoe het bij de stemming ook afloopt met het kabinetsplan voor de belasting op sparen en beleggen: het gedoe houdt voorlopig aan. Wat staat spaarders...
+- [Duitse topeconomen: scherp de begrotingsregels weer aan](https://fd.nl/politiek/1618900/duitse-topeconomen-scherp-de-begrotingsregels-weer-aan)
+  > Regeringsadviseurs voorzien dat zonder ingrepen de staatsschuld steeds verder uitdijt, en Duitsland in 2040 met een fors financieringstekort zit.
 
 ### Meest gelezen
 
