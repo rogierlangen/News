@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 11-11-2026 om 02:42*
+*Laatst bijgewerkt: 11-11-2026 om 10:31*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Schietpartij in Amsterdam, kogel komt in rijdende bus terecht](https://nos.nl/l/2638947)
-  > In Amsterdam is bij een schietpartij gisteravond mogelijk een kogel door de ruit van een rijdende bus gevlogen. Voor zover bekend is er niemand...
-- [Voorlopig geen afzettingsprocedure tegen Amerikaanse defensieminister Hegseth](https://nos.nl/l/2638946)
-  > De Amerikaanse minister van Defensie Pete Hegseth blijft voorlopig aan. De Republikeinen in het Huis van Afgevaardigden hebben een poging tot een...
-- [Gegevens sportverenigingen op straat door datalek bij beheersysteem](https://nos.nl/l/2638945)
-  > Er is een datalek geweest bij een systeem dat de gegevens van leden van sportclubs- en bonden beheert. Daarbij zouden persoonsgegevens zijn...
-- [Coalitie en Kamer nog geen steek verder met belastingplan](https://nos.nl/l/2638942)
-  > Na weer een avond debatteren, is nog altijd niet duidelijk hoe het verder moet met het belastingplan. Een deal over meerderheden in de Tweede en...
-- [Oud-president Biden (83) bekogeld bij verrassingsbezoek aan Ierland](https://nos.nl/l/2638940)
-  > Joe Biden, voormalig president van de Verenigde Staten, is tijdens een verrassingsbezoek aan Ierland belaagd en bekogeld. Er zijn zeker twee mensen...
+- [Raad van State: minister van Asiel moet veiligheid Syrië opnieuw beoordelen](https://nos.nl/l/2638978)
+  > Asielminister Van den Brink moet de veiligheidssituatie in Syrië opnieuw beoordelen. Dat heeft de Raad van State bepaald, de hoogste bestuursrechter...
+- ['Kabinet toont weinig interesse in beheer van de Nederlandse goudvoorraad'](https://nos.nl/l/2638976)
+  > De minister van Financiën heeft weinig zicht op de Nederlandse goudvoorraad. Dat schrijft de Algemene Rekenkamer in een rapport. Hij mag informatie...
+- [Rusland en Oekraïne bestoken elkaar terwijl in Abu Dhabi wordt onderhandeld](https://nos.nl/l/2638975)
+  > Rusland en Oekraïne hebben afgelopen nacht en vanmorgen luchtaanvallen uitgevoerd op elkaar. Het Russische leger bombardeerde onder meer...
+- [Podcast De Dag: Als je je goedbetaalde baan verruilt voor... iets leukers](https://nos.nl/l/2638974)
+  > Complex en veeleisend werk inruilen voor een baan waar minder specialistische kennis voor nodig is, of waarbij je minder druk ervaart. Oneerbiedig...
+- [Rozendaal, de kleinste gemeente van het Nederlandse vasteland, wil fuseren](https://nos.nl/l/2638964)
+  > Als het aan de gemeenteraad van Rozendaal ligt, voegt de Gelderse gemeente zich binnenkort bij de nabijgelegen gemeenten Rheden en Brummen. Volgens...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Zelensky blij met nieuwe aanpak vredesonderhandelingen vanuit VS](https://www.ad.nl/buitenland/zelensky-blij-met-nieuwe-aanpak-vredesonderhandelingen-vanuit-vs~adfb97be/)
-  > De vredesgesprekken tussen Rusland, Oekraïne en de VS zijn voor dinsdag afgelopen. Woensdagochtend gaan de delegaties verder met elkaar in gesprek....
-- [Christina Applegate is bang dat borstimplantaten oorzaak zijn van MS-achtige symptomen](https://www.ad.nl/show/christina-applegate-is-bang-dat-borstimplantaten-oorzaak-zijn-van-ms-achtige-symptomen~a62f2472/)
-  > Actrice Christina Applegate denkt dat de aandoening waar ze aan lijdt mogelijk te maken heeft met haar borstimplantaten. In haar wekelijkse podcast...
-- [Canada maakt vier grizzlyberen af die moeder en dochter doodden](https://www.ad.nl/buitenland/canada-maakt-vier-grizzlyberen-af-die-moeder-en-dochter-doodden~a79201d4/)
-  > In Canada zijn vier grizzlyberen afgemaakt die verantwoordelijk waren voor een dodelijke aanval op een moeder en haar dochter eerder deze maand. Dat...
-- [AD Voetbalpodcast | ‘Goed dat jeugdopleiding levensader van Ajax wordt genoemd’](https://www.ad.nl/voetbal/ad-voetbalpodcast-goed-dat-jeugdopleiding-levensader-van-ajax-wordt-genoemd~a42af5cd9/)
-  > Toch nog een nieuw gezicht bij Oranje. Een suggestie die gisteren nog werd genoemd door een luisteraar van de AD Voetbalpodcast is een dag later bij...
-- [Voormalig tennisster Michaëlla Krajicek (37) in verwachting van tweeling](https://www.ad.nl/tennis/voormalig-tennisster-michaella-krajicek-37-in-verwachting-van-tweeling~ac394d39/)
-  > Michaëlla Krajicek, die in 2025 een punt achter haar tenniscarrière zette, en haar partner Jelle Sels verwachten in april een tweeling. Dat maakte...
+- [Gered door een ‘waterbed’ op wielen: hoe Oekraïne met snelle onbemande wagentjes levens redt aan het front](https://www.ad.nl/binnenland/gered-door-een-waterbed-op-wielen-hoe-oekraine-met-snelle-onbemande-wagentjes-levens-redt-aan-het-front~aa26aad9/)
+  > Oekraïense dronebouwers veranderen in hoog tempo de manier waarop een moderne oorlog wordt gevoerd. In Marknesse demonstreren ze aan Nederlandse...
+- [LIVE Oorlog Oekraïne | Onderhandelingen tussen Oekraïne en Rusland gaan tweede dag in: ‘VS heeft plan over verdeling Oekraïens grondgebied’](https://www.ad.nl/buitenland/live-oorlog-oekraine-onderhandelingen-tussen-oekraine-en-rusland-gaan-tweede-dag-in-vs-heeft-plan-over-verdeling-oekraiens-grondgebied~adfb97be/)
+  > De onderhandelingen tussen Oekraïne en Rusland zijn in Abu Dhabi de tweede dag ingegaan. De VS zou met een plan zijn gekomen over de verdeling van...
+- [Iraanse dreiging is zó groot dat Amerikaanse minister met gezin moet verhuizen naar zwaar beveiligde legerbasis](https://www.ad.nl/buitenland/iraanse-dreiging-is-zo-groot-dat-amerikaanse-minister-met-gezin-moet-verhuizen-naar-zwaar-beveiligde-legerbasis~a1ce7a5c/)
+  > De Amerikaanse minister van Financiën Scott Bessent heeft zijn woning in Washington moeten verlaten na ernstige bedreigingen vanuit Iran. Hij...
+- [Belastingdienst voldoet niet aan privacyregels, grondrechten burgers zijn in geding](https://www.ad.nl/binnenland/belastingdienst-voldoet-niet-aan-privacyregels-grondrechten-burgers-zijn-in-geding~ae2cc1d4/)
+  > De Belastingdienst doet nog te weinig om de privacy van burgers en ondernemers te beschermen. Dat concludeert de Autoriteit Persoonsgegevens, de...
+- [Praat mee: de VVD moet PRO tegemoetkomen om het belastingplan te redden](https://www.ad.nl/praat-mee/praat-mee-de-vvd-moet-pro-tegemoetkomen-om-het-belastingplan-te-redden~a1c7d143/)
+  > Het kabinet-Jetten, en eigenlijk heel politiek Den Haag, blijft tot aan de deadline met de belastingplannen worstelen. In deze plannen komt te staan...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [De elfde van de elfde: vrede met symmetrie](https://fd.nl/opinie/1618542/de-elfde-van-de-elfde-vrede-met-symmetrie)
-  > We houden van symmetrie: het geeft rust, houvast en een gevoel van controle. Maar een beetje asymmetrie voelt uiteindelijk toch prettiger, schrijft...
-- [RIVM dreigt laboratoria te moeten sluiten wegens uitbraakgevaar](https://fd.nl/samenleving/1617848/rivm-dreigt-laboratoria-te-moeten-sluiten-wegens-uitbraakgevaar)
-  > De laboratoria, waar wetenschappers onderzoek doen naar zeer besmettelijke ziekteverwekkers, zijn dermate verouderd dat de beheerder van het park het...
-- [Personalia woensdag 11 november](https://fd.nl/bedrijfsleven/1618600/personalia-woensdag-11-november)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Nederland derde in mondiale AI-ranglijst](https://fd.nl/tech-en-innovatie/1618569/nederland-derde-in-mondiale-ai-ranglijst)
-  > De wereldranglijst laat zien: Nederland bevindt zich in een uitstekende uitgangspositie om te profiteren van AI.
-- [CoreWeave sust AI-zorgen met kwartaalcijfers, ondanks schuldenvrees](https://fd.nl/bedrijfsleven/1618738/coreweave-sust-ai-zorgen-met-kwartaalcijfers-ondanks-schuldenvrees)
-  > Nabeurs steeg CoreWeave aan de Nasdaq met 2,9%.
+- [Britse waakhond kritisch over koop voedseltak Unilever door McCormick](https://fd.nl/bedrijfsleven/1618784/britse-waakhond-kritisch-over-koop-voedseltak-unilever-door-mccormick)
+  > Het fusiebedrijf krijgt volgens de markttoezichthouder te veel marktmacht in de verkoop van kruiden en sauzen in het VK. De bedrijven hebben een week...
+- [Financiën heeft geen zicht op de 612 ton goud in de kluis van DNB](https://fd.nl/financiele-markten/1618564/financien-heeft-geen-zicht-op-de-612-ton-goud-in-de-kluis-van-dnb)
+  > De Rekenkamer waarschuwt dat Financiën nauwelijks zicht heeft op de Nederlandse goudvoorraad. De schatkistbewaarder bemoeit zich niet met het beheer...
+- [Is Trump onze eigen schuld?](https://fd.nl/samenleving/1618551/is-trump-onze-eigen-schuld)
+  > Links verklaarde de waarheid relatief, en nu de rekening van dit relativisme zich aandient – de feitenvrije politiek – schuift datzelfde links de...
+- [Bankiers mikken op hogere waardering van AI-bedrijf Anthropic bij beursgang](https://fd.nl/bedrijfsleven/1618663/bankiers-mikken-op-hogere-waardering-van-ai-bedrijf-anthropic-bij-beursgang)
+  > Grote vraag naar aandelen van Anthropic zou bankiers aansporen de waardering van Anthropic op te trekken.
+- [CSG onderuit op beurs na waarschuwing over winstgevendheid](https://fd.nl/bedrijfsleven/1618743/csg-onderuit-op-beurs-na-waarschuwing-over-winstgevendheid)
+  > Het Midkap-fonds voorziet voor 2026 nu een ebit-marge, het bedrijfsresultaat als percentage van de omzet, van ongeveer 21%. Eerder mikte CSG op een...
 
 ### Meest gelezen
 
