@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-11-2026 om 09:30*
+*Laatst bijgewerkt: 12-11-2026 om 17:59*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [DNB: duurdere hypotheek voor bijna miljoen huishoudens](https://nos.nl/l/2639124)
-  > Ongeveer 950.000 huiseigenaren kunnen de komende jaren flink hogere hypotheekkosten verwachten. Dat is het geval voor mensen met een variabele rente...
-- [Russische militair gedood door explosief onder auto in Sint-Petersburg](https://nos.nl/l/2639121)
-  > Een Russische militair is gedood door een explosief dat was afgegaan onder zijn auto. De explosie gebeurde vanochtend vroeg op een weg in het zuiden...
-- [Australische jongen (17) overleeft zes dagen in de bush op chips en water](https://nos.nl/l/2639120)
-  > In Australië heeft een vermist geraakte 17-jarige jongen zes dagen weten te overleven in de wildernis op niet veel meer dan een zak chips en water....
-- [Duitse politie onderschept busje vol illegaal vuurwerk op weg naar Nederland](https://nos.nl/l/2639118)
-  > De Duitse douane heeft een busje met 1260 kilo zwaar vuurwerk onderschept bij een controle op de snelweg bij Dresden, niet ver van de grens met...
-- [Aanlegplaats Grave niet diep genoeg voor stoomboot Sinterklaas, Defensie schiet te hulp](https://nos.nl/l/2639117)
-  > Ze zagen het in Grave al helemaal voor zich: de stoomboot die aanmeert in de vestingstad tijdens de landelijke intocht van Sinterklaas. Maar de...
+- [Belastingplan levert zware coalitiecrisis op: vier vragen en antwoorden](https://nos.nl/l/2639201)
+  > Het jaarlijkse belastingplan leidt dit najaar tot een zware coalitiecrisis. Lange tijd ging het in politiek Den Haag vooral over hoe vermogen in box...
+- [Pas na de stemmingen wordt duidelijk hoe het verder gaat met belastingplan en kabinet](https://nos.nl/l/2639200)
+  > In politiek Den Haag wordt met spanning uitgekeken naar de stemmingen, later vanavond over de belastingplannen voor volgend jaar. Tijdens het debat...
+- [Marktbezoekers over politieke crisis: 'Het is elke keer hetzelfde liedje'](https://nos.nl/l/2639194)
+  > "Het zijn net kleine kinderen die ruziemaken", zegt een vrouw op de markt in Rotterdam Hoogvliet. Voor de politieke crisis in Den Haag heeft ze geen...
+- [Vicepresident Indonesië stapt op na diplomaschandaal en oplopende spanningen](https://nos.nl/l/2639193)
+  > De vicepresident van Indonesië heeft ontslag genomen. De 39-jarige Gibran Rakabuming Raka is verwikkeld in een schandaal over de echtheid van zijn...
+- [Ruim 1800 Italiaanse scholen opnieuw opgeschrikt door bommeldingen](https://nos.nl/l/2639192)
+  > Voor de tweede dag op rij zijn er bommeldingen naar Italiaanse scholen gestuurd. Het gaat om ruim 1800 scholen door het hele land. De politie heeft...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Gebruik van satelliet Starlink door leger Oekraïne opnieuw ‘aanzienlijk’ ingeperkt, meldt Zelensky](https://www.ad.nl/buitenland/gebruik-van-satelliet-starlink-door-leger-oekraine-opnieuw-aanzienlijk-ingeperkt-meldt-zelensky~a135cd7e/)
-  > Oekraïense militairen hebben opnieuw last van ‘aanzienlijke’ snelheidsbeperkingen op het Amerikaanse satellietnetwerk waarvan ze erg afhankelijk...
-- [België ziet toch mogelijke rol Iran bij cyberaanvallen op koelinstallaties supermarkten](https://www.ad.nl/buitenland/belgie-ziet-toch-mogelijke-rol-iran-bij-cyberaanvallen-op-koelinstallaties-supermarkten~a7564df8/)
-  > Na Frankrijk ziet ook België aanwijzingen voor een Iraanse rol bij de cyberaanvallen op koelinstallaties. Dat liet minister van Binnenlandse Zaken en...
-- [Ventileren moet 24 uur per dag: deze veelgemaakte fouten zorgen voor schimmel en vocht in huis](https://www.ad.nl/wonen/ventileren-moet-24-uur-per-dag-deze-veelgemaakte-fouten-zorgen-voor-schimmel-en-vocht-in-huis~aa002035/)
-  > Schimmel en vochtproblemen komen in huurhuizen nog steeds vaak voor. Wat kun je zelf doen om dit te voorkomen, en wanneer is de verhuurder aan zet?...
-- [Nederlandse broers die bejaard echtpaar met geweld overvielen op Europese opsporingslijst](https://www.ad.nl/binnenland/nederlandse-broers-die-bejaard-echtpaar-met-geweld-overvielen-op-europese-opsporingslijst~a0d60a14/)
-  > De Nederlandse broers Samir (43) en Youssef (32) Masoudi zijn toegevoegd aan de Europese opsporingslijst. De twee zijn veroordeeld tot acht jaar cel...
-- [Bij hoger beroep ontstaat direct discussie met Erasmusschutter: ‘Ik zit liever hier’](https://www.ad.nl/rotterdam/bij-hoger-beroep-ontstaat-direct-discussie-met-erasmusschutter-ik-zit-liever-hier~a70d5bfe/)
-  > In de Rotterdamse rechtbank is donderdagochtend het hoger beroep tegen Fouad L., verdacht van het doodschieten van zijn buurmeisje Romy (14),...
+- [Van Bommel en België gaan met voorsprong rusten tegen Turkije na efficiënte aanvallers in eerste helft](https://www.ad.nl/voetbal/van-bommel-en-belgie-gaan-met-voorsprong-rusten-tegen-turkije-na-efficiente-aanvallers-in-eerste-helft~aa385008/)
+  > Mark van Bommel begint vanavond aan zijn tweede interlandbreak als bondscoach van België. De Rode Duivels nemen het in de Nations League op tegen...
+- [Suzan & Freek zijn vanavond niet te zien bij talkshow Eva en Shownieuws vervalt door crisis in Den Haag](https://www.ad.nl/show/suzan-en-freek-zijn-vanavond-niet-te-zien-bij-talkshow-eva-en-shownieuws-vervalt-door-crisis-in-den-haag~aa9cee25/)
+  > De recente ontwikkelingen in politiek Den Haag zorgen donderdagavond voor enkele veranderingen op televisie. Suzan & Freek verplaatsen hun gesprek in...
+- [Indonesische vicepresident Gibran dient ontslag in na ophef over middelbareschooldiploma](https://www.ad.nl/buitenland/indonesische-vicepresident-gibran-dient-ontslag-in-na-ophef-over-middelbareschooldiploma~a9368e91/)
+  > De Indonesische vicepresident Gibran Rakabuming Raka heeft donderdag zijn ontslag ingediend bij het hogerhuis van het parlement. Zijn positie stond...
+- [‘Bono heeft niets met voetbal, dat is bij deze Ierse rockband wel anders’](https://www.ad.nl/sport/bono-heeft-niets-met-voetbal-dat-is-bij-deze-ierse-rockband-wel-anders~af592adb/)
+  > Britse en Ierse rockbands kun je onderverdelen in voetbaljongens en niet-voetbaljongens  AD-columnist en -journalist Sjoerd Mossou laat dagelijks...
+- [De hele AI-sector vreest een tik te krijgen nu Jensen Huang het veld moet ruimen](https://www.ad.nl/economie/de-hele-ai-sector-vreest-een-tik-te-krijgen-nu-jensen-huang-het-veld-moet-ruimen~a7605163/)
+  > Van hero naar zero in één week, de neergang van Nvidia-topman Jensen Huang is fascinerend. Maar het gaat om meer dan spionage of de zoveelste topman...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Bank-verzekeraar KBC boekt kwartaalwinst van €1,1 mrd](https://fd.nl/bedrijfsleven/1619110/bank-verzekeraar-kbc-boekt-kwartaalwinst-van-1-1-mrd)
-  > Per aandeel steeg de winst van €2,44 naar €2,80, waar analisten op €2,82 hadden gerekend.
-- [Live: Tweede Kamer debatteert in crisissfeer over belastingplan](https://fd.nl/politiek/1618980/live-tweede-kamer-debatteert-in-crisissfeer-over-belastingplan)
-  > Het kabinet-Jetten wankelt na de deal tussen D66 en CDA met Pro en Volt over het belastingplan, zonder goedkeuring van de VVD. In dit liveblog volgt...
-- [Action groeit naar 3530 winkels, maar onderliggende omzetgroei vlakt af](https://fd.nl/bedrijfsleven/1618979/action-groeit-naar-3530-winkels-maar-onderliggende-omzetgroei-vlakt-af)
-  > De koopjesketen boekte in de eerste negen maanden van dit jaar een netto-omzet van €12,8 mrd. De grootste aanjager van de groei zat in het openen van...
-- [Zes personen gedood bij Israëlische aanval op ziekenhuis in Gaza](https://fd.nl/politiek/1618978/zes-personen-gedood-bij-israelische-aanval-op-ziekenhuis-in-gaza)
-  > Het Israëlische leger omschreef het ziekenhuis als een ‘operationeel knooppunt’ van Hamas.
-- [Regisseur Char Li Chung: ‘Hard werken voor wat ik wil bereiken zit in mijn bloed’](https://fd.nl/samenleving/1618561/regisseur-char-li-chung-hard-werken-voor-wat-ik-wil-bereiken-zit-in-mijn-bloed)
-  > De Chinees-Italiaans-Nederlandse regisseur Char Li Chung stoft ‘Romeo en Julia’ af: de hoofdpersonen zijn moslim, net als een groot deel van de cast.
+- [Bijeenkomst wereldleiders in Antalya staat bol van geopolitieke spanning](https://fd.nl/politiek/1619318/bijeenkomst-wereldleiders-in-antalya-staat-bol-van-geopolitieke-spanning)
+  > Politici en activisten hekelden de afwezigheid van regeringsleiders op de klimaattop in Turkije.
+- [Jensen Huang was niet de eerste die een bedrijf deed duikelen door zijn affaires](https://fd.nl/financiele-markten/1619307/jensen-huang-was-zeker-niet-de-eerste-die-een-bedrijf-deed-duikelen-door-zijn-affaires)
+  > Meer dan $500 mrd was het verlies voor beleggers in Nvidia donderdagmiddag. Het is niet het eerste bedrijf dat na affaires van een topman een...
+- [Rechter zet Wingtech verder klem in strijd om Nexperia](https://fd.nl/bedrijfsleven/1619317/rechter-zet-wingtech-verder-klem-in-strijd-om-nexperia)
+  > Functionarissen die door de rechter zijn aangesteld, gaan interesse van investeerders peilen voor een meerderheids- of minderheidsbelang in de...
+- [Rente in Servië onverwacht omhoog](https://fd.nl/financiele-markten/1619316/rente-in-servie-onverwacht-omhoog)
+  > De Servische centrale bank reageert op een toename van de inflatie en een dreigende waardedaling van de nationale munt, de dinar.
+- [Vakbonden op ramkoers met Zeeuwse raffinaderij over looneis](https://fd.nl/bedrijfsleven/1619214/vakbonden-op-ramkoers-met-zeeuwse-raffinaderij-over-looneis)
+  > Volgens CNV en FNV zien de medewerkers niets terug van de megawinsten die worden geboekt.
 
 ### Meest gelezen
 
