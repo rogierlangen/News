@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 12-11-2026 om 17:59*
+*Laatst bijgewerkt: 12-11-2026 om 23:29*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Belastingplan levert zware coalitiecrisis op: vier vragen en antwoorden](https://nos.nl/l/2639201)
-  > Het jaarlijkse belastingplan leidt dit najaar tot een zware coalitiecrisis. Lange tijd ging het in politiek Den Haag vooral over hoe vermogen in box...
-- [Pas na de stemmingen wordt duidelijk hoe het verder gaat met belastingplan en kabinet](https://nos.nl/l/2639200)
-  > In politiek Den Haag wordt met spanning uitgekeken naar de stemmingen, later vanavond over de belastingplannen voor volgend jaar. Tijdens het debat...
-- [Marktbezoekers over politieke crisis: 'Het is elke keer hetzelfde liedje'](https://nos.nl/l/2639194)
-  > "Het zijn net kleine kinderen die ruziemaken", zegt een vrouw op de markt in Rotterdam Hoogvliet. Voor de politieke crisis in Den Haag heeft ze geen...
-- [Vicepresident Indonesië stapt op na diplomaschandaal en oplopende spanningen](https://nos.nl/l/2639193)
-  > De vicepresident van Indonesië heeft ontslag genomen. De 39-jarige Gibran Rakabuming Raka is verwikkeld in een schandaal over de echtheid van zijn...
-- [Ruim 1800 Italiaanse scholen opnieuw opgeschrikt door bommeldingen](https://nos.nl/l/2639192)
-  > Voor de tweede dag op rij zijn er bommeldingen naar Italiaanse scholen gestuurd. Het gaat om ruim 1800 scholen door het hele land. De politie heeft...
+- [Belastingplan aangenomen, en nu is de vraag wat de VVD gaat doen](https://nos.nl/l/2639225)
+  > Er is op het allerlaatste moment een meerderheid gevonden voor het belastingplan, maar of de coalitie dit gaat overleven is zeer de vraag. De VVD...
+- [Negen mannen in Rotterdam aangehouden in groot drugsonderzoek](https://nos.nl/l/2639224)
+  > In Rotterdam heeft de politie negen mannen aangehouden die verdacht worden van deelname aan een criminele organisatie. Dat gebeurde toen...
+- [Belgische deelnemer trekt zich terug uit De Slimste Mens ter wereld na aantijgingen](https://nos.nl/l/2639220)
+  > De Belgische kandidaat Mehdi El Hadri, beter bekend als 'Bruine Mehdi', heeft zich teruggetrokken uit de finaleweken van de Belgische kennisquiz De...
+- [Drummer Roger Taylor van popband Duran Duran stopt vanwege oorsuizen](https://nos.nl/l/2639219)
+  > Roger Taylor stopt als drummer van Duran Duran. De 66-jarige Britse muzikant heeft te veel last van tinnitus, oftewel een piep of ruis in het oor, om...
+- [NOS-artikelen over ontvoerde Insiya door Google geblokkeerd in India](https://nos.nl/l/2639209)
+  > NOS-artikelen over het naar India ontvoerde meisje Insiya zullen door Google binnenkort worden geblokkeerd in de zoekresultaten voor gebruikers in...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Van Bommel en België gaan met voorsprong rusten tegen Turkije na efficiënte aanvallers in eerste helft](https://www.ad.nl/voetbal/van-bommel-en-belgie-gaan-met-voorsprong-rusten-tegen-turkije-na-efficiente-aanvallers-in-eerste-helft~aa385008/)
-  > Mark van Bommel begint vanavond aan zijn tweede interlandbreak als bondscoach van België. De Rode Duivels nemen het in de Nations League op tegen...
-- [Suzan & Freek zijn vanavond niet te zien bij talkshow Eva en Shownieuws vervalt door crisis in Den Haag](https://www.ad.nl/show/suzan-en-freek-zijn-vanavond-niet-te-zien-bij-talkshow-eva-en-shownieuws-vervalt-door-crisis-in-den-haag~aa9cee25/)
-  > De recente ontwikkelingen in politiek Den Haag zorgen donderdagavond voor enkele veranderingen op televisie. Suzan & Freek verplaatsen hun gesprek in...
-- [Indonesische vicepresident Gibran dient ontslag in na ophef over middelbareschooldiploma](https://www.ad.nl/buitenland/indonesische-vicepresident-gibran-dient-ontslag-in-na-ophef-over-middelbareschooldiploma~a9368e91/)
-  > De Indonesische vicepresident Gibran Rakabuming Raka heeft donderdag zijn ontslag ingediend bij het hogerhuis van het parlement. Zijn positie stond...
-- [‘Bono heeft niets met voetbal, dat is bij deze Ierse rockband wel anders’](https://www.ad.nl/sport/bono-heeft-niets-met-voetbal-dat-is-bij-deze-ierse-rockband-wel-anders~af592adb/)
-  > Britse en Ierse rockbands kun je onderverdelen in voetbaljongens en niet-voetbaljongens  AD-columnist en -journalist Sjoerd Mossou laat dagelijks...
-- [De hele AI-sector vreest een tik te krijgen nu Jensen Huang het veld moet ruimen](https://www.ad.nl/economie/de-hele-ai-sector-vreest-een-tik-te-krijgen-nu-jensen-huang-het-veld-moet-ruimen~a7605163/)
-  > Van hero naar zero in één week, de neergang van Nvidia-topman Jensen Huang is fascinerend. Maar het gaat om meer dan spionage of de zoveelste topman...
+- [Zelensky: Europa aan tafel bij komende gesprekken met Rusland](https://www.ad.nl/buitenland/zelensky-europa-aan-tafel-bij-komende-gesprekken-met-rusland~a8b9a824f/)
+  > Bij de volgende onderhandelingsronde met Rusland zal ook Europa aansluiten. Dat zegt de Oekraïense president Volodymyr Zelensky na afloop van zijn...
+- [Grote storing bij Microsoft: verschillende diensten onbereikbaar voor duizenden gebruikers](https://www.ad.nl/tech/grote-storing-bij-microsoft-verschillende-diensten-onbereikbaar-voor-duizenden-gebruikers~a9152f74/)
+  > Microsoft 365 heeft last van een storing. Dat bevestigt Microsoft op sociale media. Daardoor kunnen gebruikers mogelijk niet bij Outlook, OneDrive,...
+- [Scorende Kevin De Bruyne kan een lach niet onderdrukken bij vraag over PSV: ‘We zullen zien’](https://www.ad.nl/voetbal/scorende-kevin-de-bruyne-kan-een-lach-niet-onderdrukken-bij-vraag-over-psv-we-zullen-zien~aa385008/)
+  > België heeft een grote stap gezet om zich te kwalificeren voor de kwartfinales van de Nations League. In Izmir stond de einduitslag voor rust al op...
+- [San Siro ontploft van vreugde: Italië bezorgt Zidane eerste nederlaag als bondscoach van Frankrijk](https://www.ad.nl/voetbal/san-siro-ontploft-van-vreugde-italie-bezorgt-zidane-eerste-nederlaag-als-bondscoach-van-frankrijk~a253802c/)
+  > Zinédine Zidane heeft zijn eerste nederlaag als bondscoach van Frankrijk geleden. De Fransen kenden zonder de geblesseerde Kylian Mbappé en Ousmane...
+- [Feestavond voor Harry Kane: recordinternational schiet Engeland naar kwartfinales Nations League](https://www.ad.nl/voetbal/feestavond-voor-harry-kane-recordinternational-schiet-engeland-naar-kwartfinales-nations-league~a34cd08c/)
+  > Harry Kane heeft donderdag een prachtige avond beleefd op Wembley. De winnaar van de Ballon d’Or werd uitgebreid in het zonnetje gezet als de nieuwe...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Bijeenkomst wereldleiders in Antalya staat bol van geopolitieke spanning](https://fd.nl/politiek/1619318/bijeenkomst-wereldleiders-in-antalya-staat-bol-van-geopolitieke-spanning)
-  > Politici en activisten hekelden de afwezigheid van regeringsleiders op de klimaattop in Turkije.
-- [Jensen Huang was niet de eerste die een bedrijf deed duikelen door zijn affaires](https://fd.nl/financiele-markten/1619307/jensen-huang-was-zeker-niet-de-eerste-die-een-bedrijf-deed-duikelen-door-zijn-affaires)
-  > Meer dan $500 mrd was het verlies voor beleggers in Nvidia donderdagmiddag. Het is niet het eerste bedrijf dat na affaires van een topman een...
-- [Rechter zet Wingtech verder klem in strijd om Nexperia](https://fd.nl/bedrijfsleven/1619317/rechter-zet-wingtech-verder-klem-in-strijd-om-nexperia)
-  > Functionarissen die door de rechter zijn aangesteld, gaan interesse van investeerders peilen voor een meerderheids- of minderheidsbelang in de...
-- [Rente in Servië onverwacht omhoog](https://fd.nl/financiele-markten/1619316/rente-in-servie-onverwacht-omhoog)
-  > De Servische centrale bank reageert op een toename van de inflatie en een dreigende waardedaling van de nationale munt, de dinar.
-- [Vakbonden op ramkoers met Zeeuwse raffinaderij over looneis](https://fd.nl/bedrijfsleven/1619214/vakbonden-op-ramkoers-met-zeeuwse-raffinaderij-over-looneis)
-  > Volgens CNV en FNV zien de medewerkers niets terug van de megawinsten die worden geboekt.
+- [Personalia vrijdag 13 november](https://fd.nl/bedrijfsleven/1619012/personalia-vrijdag-13-november)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [CBS verlaagt prognose levensverwachting 65-jarigen](https://fd.nl/samenleving/1619308/cbs-verlaagt-prognose-levensverwachting-65-jarigen)
+  > De levensverwachting is iets gedaald, leert de nieuwste prognose van het CBS. En dus hoeft de AOW-leeftijd voorlopig niet omhoog.
+- [Verliezen voor Wall Street op dag die in het teken staat van Nvidia](https://fd.nl/financiele-markten/1619348/verliezen-voor-wall-street-op-dag-die-in-het-teken-staat-van-nvidia)
+  > Chipbedrijven lijken uit de gratie. De onzekerheid over AI neemt toe na het vertrek van Nvidia-topman Jensen Huang
+- [Mercedes-Benz ziet voorlopig af van investeringen in Duitsland](https://fd.nl/bedrijfsleven/1619222/mercedes-benz-ziet-voorlopig-af-van-investeringen-in-duitsland)
+  > De autofabrikant staakt zijn investeringen in Duitse fabrieken omdat het niet lukt afspraken te maken over besparingen. De sluiting van meerdere...
+- [Crisis in coalitie na steun Kamer voor ‘miljonairstaks’](https://fd.nl/politiek/1619322/crisis-in-coalitie-na-steun-kamer-voor-miljonairstaks)
+  > De Kamer stemt nipt voor het belastingplan met ‘miljonairstaks’, maar de coalitie stemt verdeeld. Daardoor is volgens premier Jetten een ‘heel...
 
 ### Meest gelezen
 
