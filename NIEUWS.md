@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 14-11-2026 om 09:56*
+*Laatst bijgewerkt: 14-11-2026 om 16:29*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Historische poldermolen bij Stiens in Friesland verwoest door brand](https://nos.nl/l/2639444)
-  > De Slagdijkster Molen bij het Noord Friese dorp Stiens is vannacht verwoest door een grote brand. De poldermolen dateerde uit 1864 en was in 2006...
-- [78-jarige verdachte van genocide Rwanda opgepakt in België](https://nos.nl/l/2639441)
-  > In de buurt van het Belgische Leuven is een man opgepakt die wordt verdacht van genocide en misdaden tegen de menselijkheid in Rwanda. In de jaren 90...
-- [Opnieuw vogelgriep in Hierden, 19.000 eenden en kippen gedood](https://nos.nl/l/2639437)
-  > In het dorp Hierden in Gelderland is voor de derde keer deze week bij een bedrijf vogelgriep vastgesteld. Deze keer bij een eenden- en...
-- [Wereldwijde storing Microsoft na anderhalve dag opgelost](https://nos.nl/l/2639435)
-  > Microsoft zegt dat de wereldwijde storing bij diverse 365-apps voorbij is. Sinds donderdagmiddag hadden miljoenen gebruikers onder meer problemen bij...
-- [Wekdienst 14/11: Crisisgesprekken van kabinet gaan verder • Intocht Sint in Grave](https://nos.nl/l/2639431)
-  > Goedemorgen! Premier Jetten en zijn vicepremiers praten verder op landgoed De Zwaluwenberg, na roerige dagen in Den Haag. En in het Brabantse Grave...
+- [Duizenden lopen mee met mars tegen abortus in Den Haag, ook tegendemonstratie](https://nos.nl/l/2639493)
+  > In Den Haag vond vandaag de jaarlijkse Mars voor het Leven plaats. Duizenden deelnemers liepen mee in een stille mars tegen abortus. Er werd ook een...
+- [Kabinet wankelt terwijl Hilversum kiest: 'Misschien wel de midterms voor Den Haag'](https://nos.nl/l/2639490)
+  > Terwijl D66, VVD en CDA op landgoed De Zwaluwenberg praten over de toekomst van hun minderheidskabinet, voeren politieke partijen een paar kilometer...
+- [Moederbedrijf van WhatsApp en Instagram krijgt boete van 805 miljoen in Italië](https://nos.nl/l/2639479)
+  > De Italiaanse autoriteit voor privacy- en databescherming heeft een boete van 805 miljoen euro opgelegd aan Meta, het moederbedrijf van Facebook,...
+- [Miljoenen euro's opgegraven in anti-corruptieonderzoek naar regering-Orbán](https://nos.nl/l/2639467)
+  > De Hongaarse autoriteiten hebben in een anticorruptie-onderzoek naar een minister uit de vorige regering van Viktor Orbán ruim 18 miljoen euro aan...
+- [Grote dampwolk na ontploffing stikstoftank in Oss](https://nos.nl/l/2639460)
+  > Bij de ontploffing van een stikstoftank op een bedrijventerrein in het Brabantse Oss is gisteravond laat een grote dampwolk ontstaan. Een man raakte...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [LIVE schaatsen | Unicum op 500 meter: Daleman verslaat Kok in Peking, Westenbroek knap tweede bij de mannen, zometeen Beune in actie](https://www.ad.nl/schaatsen/live-schaatsen-unicum-op-500-meter-daleman-verslaat-kok-in-peking-westenbroek-knap-tweede-bij-de-mannen-zometeen-beune-in-actie~a06f5558/)
-  > De eerste wereldbeker schaatsen is dit weekend van start gegaan! Gisteren was er met Angel Daleman al Nederlands succes op de 1000 meter en vandaag...
-- [The voice kids opent met 622.000 kijkers, flink minder kijkers dan voorgaande seizoenen](https://www.ad.nl/show/the-voice-kids-opent-met-622-000-kijkers-flink-minder-kijkers-dan-voorgaande-seizoenen~a177fbf9/)
-  > Het langverwachte nieuwe seizoen van The voice kids is vrijdag op RTL 4 begonnen met 622.000 kijkers. Dat is een stuk minder dan voorgaande...
-- [Wat het onverwachte videobelletje betekent voor klopjacht op Bolle Jos: ‘Ongelooflijk verhaal vol belangrijke verklaringen’](https://www.ad.nl/binnenland/wat-het-onverwachte-videobelletje-betekent-voor-klopjacht-op-bolle-jos-ongelooflijk-verhaal-vol-belangrijke-verklaringen~a85e564a/)
-  > Niemand minder dan ‘Bolle Jos’ Leijdekkers zou een paar uur na het bizarre geweld in Overasselt via een videoverbinding tegen een corrupte...
-- [LIVE INTOCHT SINT | Eerste mensen staan langs de route, gemeente roept op ‘om op tijd te komen’](https://www.ad.nl/show/live-intocht-sint-eerste-mensen-staan-langs-de-route-gemeente-roept-op-om-op-tijd-te-komen~a6e36019/)
-  > Het aftellen is begonnen! Sinterklaas zet vandaag rond 12.00 uur voet aan wal in het Noord-Brabantse Grave, waar duizenden kinderen en andere...
-- [Dit merk chocoladekruidnoten ligt dit jaar in de schatkamers van Sinterklaas: ‘Deze winnen goud’](https://www.ad.nl/gezond/dit-merk-chocoladekruidnoten-ligt-dit-jaar-in-de-schatkamers-van-sinterklaas-deze-winnen-goud~ae2b36b17/)
-  > We waren stiekem al een paar maanden begonnen met de kruidnoten, maar nu de Sint weer zijn intocht maakt, mogen we écht los. Chocoladekruidnoten zijn...
+- [Greenpeace dumpte rotsblokken in zee en zit daarmee de bouw van een windmolenpark in de weg](https://www.ad.nl/buitenland/greenpeace-dumpte-rotsblokken-in-zee-en-zit-daarmee-de-bouw-van-een-windmolenpark-in-de-weg~a885719f/)
+  > Activisten van Greenpeace hebben eerder deze maand grote rotsblokken gedumpt voor de kust van Norfolk, om ervoor te zorgen dat vissers daar niet met...
+- [Vivianne Miedema maakt na maanden blessureleed rentree bij Manchester City, maar verliest topper van Chelsea](https://www.ad.nl/voetbal/vivianne-miedema-maakt-na-maanden-blessureleed-rentree-bij-manchester-city-maar-verliest-topper-van-chelsea~a6096794/)
+  > Vivianne Miedema heeft bij Manchester City haar rentree gemaakt na maandenlang blessureleed. De topscorer aller tijden van het Nederlands elftal viel...
+- [Voetbalpensioen bleek niet definitief: Ronaldinho (46) treedt in voetsporen van Pelé, Cruijff en Robben](https://www.ad.nl/voetbal/voetbalpensioen-bleek-niet-definitief-ronaldinho-46-treedt-in-voetsporen-van-pele-cruijff-en-robben~a55d5bd9/)
+  > De ene voetballer neemt afscheid met tranen in de ogen, de andere verdwijnt geruisloos van het toneel. Maar soms blijkt het voetbalhart sterker dan...
+- [Wessel Nijman wint van Amerikaan, Kuivenhoven kansloos onderuit tegen ontketende Nathan Aspinall](https://www.ad.nl/darts/wessel-nijman-wint-van-amerikaan-kuivenhoven-kansloos-onderuit-tegen-ontketende-nathan-aspinall~ab0bd3c99/)
+  > De Grand Slam of Darts is vanmiddag van start gegaan. Jermaine Wattimena en Wessel Nijman wisten hun eerste wedstrijden in de poulefase te winnen,...
+- [Deze spelers doen mee aan de Legends-wedstrijd tussen Ajax en Barcelona in uitverkochte Johan Cruijff Arena](https://www.ad.nl/voetbal/deze-spelers-doen-mee-aan-de-legends-wedstrijd-tussen-ajax-en-barcelona-in-uitverkochte-johan-cruijff-arena~a63e436e/)
+  > Zondagmiddag (14.30 uur) wordt in de Johan Cruijff Arena gespeeld door de Ajax Legends, die het gaan opnemen tegen de FC Barcelona Legends. Dit zijn...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
+- [Meta krijgt €805 mln boete in Italië wegens ongeautoriseerde toegang tot telefoongalerijen](https://fd.nl/politiek/1619539/meta-krijgt-805-mln-boete-in-italie-wegens-ongeautoriseerde-toegang-tot-telefoongalerijen)
+  > Meta kreeg toegang tot telefoongalerijen via een functie in de Facebook-app, die standaard is geïnstalleerd op Android-telefoons.
+- [€16 mln cash aangetroffen in corruptieonderzoek naar Hongaarse ex-minister](https://fd.nl/politiek/1619424/16-mln-cash-aangetroffen-in-corruptieonderzoek-naar-hongaarse-ex-minister)
+  > Seszták wordt ervan beschuldigd steekpenningen te hebben aangenomen.
+- [Amerikaanse gezanten polsen bij Zelensky Navo-lidmaatschap in ruil voor opgeven Donbas](https://fd.nl/politiek/1619538/amerikaanse-gezanten-polsen-bij-zelensky-navo-lidmaatschap-in-ruil-voor-opgeven-donbas)
+  > De uitspraken volgen op een bezoek van Amerikaanse onderhandelaars Steve Witkoff en Jared Kushner aan Moskou.
 - [Vliegverkeer in VS weer op gang, maar nog hele weekend vertragingen verwacht](https://fd.nl/economie/1619537/vliegverkeer-in-vs-weer-op-gang-maar-nog-hele-weekend-vertragingen-verwacht)
   > De Federal Aviation Administration (FAA) legde het vliegverkeer vrijdag stil door een overbelasting van de communicatiesystemen van de...
 - [Microsoft-storing na anderhalve dag verholpen](https://fd.nl/bedrijfsleven/1619423/microsoft-storing-na-anderhalve-dag-verholpen)
   > Anderhalve dag waren de clouddiensten van Microsoft zoals Outlook, Teams en AI-tool Copilot slecht bereikbaar, waardoor een groot deel van de...
-- [Kabinet dreigt zichzelf te verdrinken in een ondiep plasje](https://fd.nl/politiek/1619476/kabinet-dreigt-zichzelf-te-verdrinken-in-een-ondiep-plasje)
-  > Een verschuiving van €1 mrd aan belastingen klinkt misschien als veel, maar het zijn peanuts, schrijft Mathijs Bouman.
-- [Steeds openlijker klinkt de vraag: neemt Jetten wel voldoende de regie?](https://fd.nl/politiek/1619390/steeds-openlijker-klinkt-de-vraag-neemt-jetten-wel-voldoende-de-regie)
-  > De onervaren Jetten worstelt in zijn rol als aanvoerder van een kabinetsploeg, ziet parlementair Den Haag.
-- [Lita Cabellut voert een gesprek met Goya](https://fd.nl/samenleving/1619215/lita-cabellut-voert-een-gesprek-met-goya)
-  > De Spaans-Nederlandse Lita Cabellut schopte het van straatkind tot internationaal vermaarde kunstenaar. In haar werk, dat sterk leunt op Goya, zoekt...
 
 ### Meest gelezen
 
