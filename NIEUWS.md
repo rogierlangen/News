@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 15-11-2026 om 21:31*
+*Laatst bijgewerkt: 16-11-2026 om 01:39*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Na weer een volle dag crisisoverleg nog geen uitkomst, partijen praten morgen verder](https://nos.nl/l/2639644)
-  > D66, VVD en CDA zijn er nog niet uit en gaan morgen om 11.00 uur verder praten op het Catshuis in Den Haag. Dat laat de Rijksvoorlichtingsdienst...
+- [Britse prins Harry steekt revaliderende veteranen een hart onder de riem in Oekraïne](https://nos.nl/l/2639657)
+  > De Britse prins Harry heeft dit weekend een bezoek gebracht aan de west-Oekraïense stad Lviv, onder meer om gewonde veteranen en medici in het land...
+- [Veel te weinig hulpgoederen komen Gaza binnen, geeft nu ook het Israëlische leger toe](https://nos.nl/l/2639648)
+  > Slechts de helft van de afgesproken hoeveelheid hulpgoederen komt in Gaza terecht. Dat schrijft de Israëlische krant Haaretz op basis van opgevraagde...
+- [Weer een volle dag crisisoverleg zonder uitkomst, partijen praten in de ochtend verder](https://nos.nl/l/2639644)
+  > D66, VVD en CDA zijn er nog niet uit en praten vandaag om 11.00 uur verder op het Catshuis in Den Haag. Dat laat de Rijksvoorlichtingsdienst weten....
 - [Estland sluit grensovergangen met Rusland na sabotagepoging bij dronefabriek](https://nos.nl/l/2639635)
   > Estland sluit per 1 december de grensovergangen met Rusland. Aanleiding is een vermoedelijke sabotageactie tegen een Ests defensiebedrijf. Tallinn...
 - [Regeringstroepen Jemen trekken zich terug uit gebied bij belangrijke zeestraat](https://nos.nl/l/2639625)
   > Jemenitische regeringstroepen trekken zich terug uit het gebied rond Bab al-Mandab, de belangrijke zeestraat tussen Jemen en de Hoorn van Afrika in...
-- [Bomaanslag op woning onderzoeksjournalist in Panama: 'Dit verandert de spelregels'](https://nos.nl/l/2639614)
-  > De woning van de Panamese onderzoeksjournalist Rolando Rodríguez is beschadigd geraakt bij een bomaanslag. Dat meldt zijn werkgever, de landelijke...
-- [Ook Duitse overheden tegen kerncentrales in Eemshaven](https://nos.nl/l/2639613)
-  > Duitse overheden keren zich tegen een eventuele komst van twee kerncentrales in de Eemshaven, vlak over de grens in Groningen. Duitse grensgemeenten...
 
 ### Meest gelezen
 
@@ -27,15 +27,16 @@
 
 ### Laatste nieuws
 
-- [België gooit vermakelijk duel in het slot: Van Bommel gaat zich plaatsen voor kwartfinales](https://www.ad.nl/voetbal/belgie-gooit-vermakelijk-duel-in-het-slot-van-bommel-gaat-zich-plaatsen-voor-kwartfinales~ab433aa7/)
-- [Spanje is helemaal terug en heeft nog één goal nodig voor gelijkspel tegen tiental Engeland](https://www.ad.nl/voetbal/spanje-is-helemaal-terug-en-heeft-nog-een-goal-nodig-voor-gelijkspel-tegen-tiental-engeland~a2fcfaac/)
-  > Een aantal interessante wedstrijden vanavond in de Nations League. Zo neemt wereldkampioen Spanje het in het Metropolitano Stadium op tegen Engeland....
-- [Ondanks dat ik er al meer dan vijftien jaar kom, heb ik een haat-liefdeverhouding met dit festival](https://www.ad.nl/binnenland/ondanks-dat-ik-er-al-meer-dan-vijftien-jaar-kom-heb-ik-een-haat-liefdeverhouding-met-dit-festival~aa298035/)
-  > Kitty Herweijer schrijft drie keer per week over wat haar bezighoudt.
-- [Grote westerse landen roepen Israël op hulp toe te laten in Gaza](https://www.ad.nl/buitenland/grote-westerse-landen-roepen-israel-op-hulp-toe-te-laten-in-gaza~ac528ac3/)
-  > Australië, Canada, Italië en het Verenigd Koninkrijk hebben er zondag bij Israël op aangedrongen om ‘snelle en ongehinderde humanitaire toegang’ tot...
-- [Influencer Vera Dijkmans ‘in tranen’ in detentiecentrum ICE, moeder demonstreert voor de deur: ‘Dit is mensonterend’](https://www.ad.nl/buitenland/influencer-vera-dijkmans-in-tranen-in-detentiecentrum-ice-moeder-demonstreert-voor-de-deur-dit-is-mensonterend~abebc889/)
-  > De familie van Vera Dijkmans maakt zich ernstige zorgen nu de 29-jarige influencer al sinds woensdag vastzit in een Amerikaans detentiecentrum van...
+- [Curaçao na verlies tegen Panama (2-0) uitgeschakeld voor de Nations League](https://www.ad.nl/voetbal/curacao-na-verlies-tegen-panama-2-0-uitgeschakeld-voor-de-nations-league~aee1699c/)
+  > Curaçao is er niet in geslaagd zich te plaatsen voor de halve finales van de Nations League van Noord- en Midden-Amerika (Concacaf). De ploeg van...
+- [Mexicaanse drugsbaron Félix ‘baas der bazen’ Gallardo (80) overleden in gevangenschap](https://www.ad.nl/buitenland/mexicaanse-drugsbaron-felix-baas-der-bazen-gallardo-80-overleden-in-gevangenschap~ae83b7805/)
+  > In Mexico is zondag Miguel Ángel Félix Gallardo overleden. Dat hebben de autoriteiten gemeld. Gallardo was een voormalige drugsbaron die bekendstond...
+- [Amazon verliest veertig satellieten bij mislukte raketlancering in Florida](https://www.ad.nl/buitenland/amazon-verliest-veertig-satellieten-bij-mislukte-raketlancering-in-florida~aaefb842/)
+  > Een Vulcan-raket van ruimtevaartbedrijf United Launch Alliance (ULA) is zondag ongeveer tien minuten na de lancering vanuit Florida verloren gegaan....
+- [‘Opgestapte topman Jensen Huang onderzoekt mogelijke comeback bij Nvidia na spionageschandaal’](https://www.ad.nl/buitenland/opgestapte-topman-jensen-huang-onderzoekt-mogelijke-comeback-bij-nvidia-na-spionageschandaal~a5a90056/)
+  > Jensen Huang, de ex-CEO van chipbedrijf Nvidia die eerder deze week opstapte na een vermoedelijk spionageschandaal, bekijkt of hij kan terugkeren als...
+- [Defecte besturing tanker was oorzaak botsing tegen cruiseschip in New Orleans](https://www.ad.nl/buitenland/defecte-besturing-tanker-was-oorzaak-botsing-tegen-cruiseschip-in-new-orleans~a6f72d97/)
+  > Volgens een voorlopige conclusie uit het onderzoek naar de aanvaring van een tanker met een cruiseschip in New Orleans zou het besturingssysteem van...
 
 ### Meest gelezen
 
@@ -45,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [‘Jensen Huang werkt aan comeback bij Nvidia’](https://fd.nl/bedrijfsleven/1619434/jensen-huang-werkt-aan-comeback-bij-nvidia)
-  > Daags na zijn gedwongen aftreden bij chipmaker Nvidia zou Huang alweer werken aan een terugkeer met steun van een groep Silicon Valley-topmannen,...
-- [Kabinetsval onverantwoord](https://fd.nl/opinie/1619545/kabinetsval-onverantwoord)
-  > De drie coalitiepartijen D66, VVD en CDA wilden lastige dossiers oplossen. Nog een kabinetsval is schadelijker voor het vestigingsklimaat dan wat Pro...
-- [Volle containers van China naar Rotterdam, maar veel gaan leeg terug](https://fd.nl/bedrijfsleven/1619425/volle-containers-van-china-naar-rotterdam-maar-veel-gaan-leeg-terug)
-  > Door de sterke export van China naar Europa en de geringere uitvoer van Europa is een grote onbalans ontstaan in de plek waar containers staan.
-- [Estland sluit grens met Rusland na incident bij dronefabrikant](https://fd.nl/politiek/1619547/estland-sluit-grens-met-rusland-na-incident-bij-dronefabrikant)
-  > De Estse regering sluit per 1 december alle grensovergangen met Rusland, dat achter een poging tot brandstichting zou zitten bij een defensiebedrijf.
-- [Schaarste aan obligaties opkomende markten laat prijzen stijgen](https://fd.nl/financiele-markten/1619546/schaarste-aan-obligaties-opkomende-markten-laat-prijzen-stijgen)
-  > Kopers en verkopers wachten tot volatiliteit op oliemarkt bedaart.
+- [Ontluisterend](https://fd.nl/opinie/1619542/ontluisterend)
+  > Had het anders kunnen lopen, vorige week? Wat bijvoorbeeld als D66, VVD en CDA elkaar plechtig hadden beloofd om de oppositie met een open houding...
+- [Door oorlog en de AI-hausse zijn de zorgen over de dollar weer ver weg](https://fd.nl/financiele-markten/1619503/door-oorlog-en-de-ai-hausse-zijn-de-zorgen-over-de-dollar-weer-ver-weg)
+  > De dollar is op het hoogste niveau sinds april 2025. Analisten zien dit vooral als een gevolg van AI, dure energie en politieke risico’s in Europa.
+- [ACM onderzoekt bouwsector op verboden afspraken nu aanbestedingen sterk toenemen](https://fd.nl/bedrijfsleven/1619499/acm-onderzoekt-bouwsector-op-verboden-afspraken-nu-aanbestedingen-sterk-toenemen)
+  > Door de huidige golf van overheidsaanbestedingen, bijvoorbeeld bij de aanleg van wegen en woonwijken, is er meer risico op oneerlijke concurrentie,...
+- [Hengelose ingenieursgroep Engius neemt branchegenoot JVZ over](https://fd.nl/bedrijfsleven/1619389/hengelose-ingenieursgroep-engius-neemt-branchegenoot-jvz-over)
+  > JVZ telt 35 medewerkers in Nijmegen en Deventer. Door de acquisitie groeit Engius uit tot een bedrijf met circa 350 medewerkers en een omzet van €45...
+- [Het ‘girl dad’-excuus brengt gendergelijkheid geen stap dichterbij](https://fd.nl/opinie/1618773/het-girl-dad-excuus)
+  > Mannen worden pas gevoelig voor genderongelijkheid als ze voor het eerst vader worden van een dochter. Dat zie je terug op de werkvloer, schrijft...
 
 ### Meest gelezen
 
