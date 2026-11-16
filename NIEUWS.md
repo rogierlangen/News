@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 16-11-2026 om 01:39*
+*Laatst bijgewerkt: 16-11-2026 om 09:13*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Britse prins Harry steekt revaliderende veteranen een hart onder de riem in Oekraïne](https://nos.nl/l/2639657)
-  > De Britse prins Harry heeft dit weekend een bezoek gebracht aan de west-Oekraïense stad Lviv, onder meer om gewonde veteranen en medici in het land...
-- [Veel te weinig hulpgoederen komen Gaza binnen, geeft nu ook het Israëlische leger toe](https://nos.nl/l/2639648)
-  > Slechts de helft van de afgesproken hoeveelheid hulpgoederen komt in Gaza terecht. Dat schrijft de Israëlische krant Haaretz op basis van opgevraagde...
-- [Weer een volle dag crisisoverleg zonder uitkomst, partijen praten in de ochtend verder](https://nos.nl/l/2639644)
-  > D66, VVD en CDA zijn er nog niet uit en praten vandaag om 11.00 uur verder op het Catshuis in Den Haag. Dat laat de Rijksvoorlichtingsdienst weten....
-- [Estland sluit grensovergangen met Rusland na sabotagepoging bij dronefabriek](https://nos.nl/l/2639635)
-  > Estland sluit per 1 december de grensovergangen met Rusland. Aanleiding is een vermoedelijke sabotageactie tegen een Ests defensiebedrijf. Tallinn...
-- [Regeringstroepen Jemen trekken zich terug uit gebied bij belangrijke zeestraat](https://nos.nl/l/2639625)
-  > Jemenitische regeringstroepen trekken zich terug uit het gebied rond Bab al-Mandab, de belangrijke zeestraat tussen Jemen en de Hoorn van Afrika in...
+- [Steeds minder zeehonden in de Waddenzee, afname grootst in Nederlandse wateren](https://nos.nl/l/2639686)
+  > Er zwemmen steeds minder zeehonden in de Waddenzee, concluderen Nederlandse, Duitse en Deense onderzoekers. De populatie krimpt al jaren, vooral in...
+- [ACM gaat de bouwsector onder de loep nemen](https://nos.nl/l/2639681)
+  > Toezichthouder ACM gaat de komende tijd marktonderzoek doen naar de bouwsector. Volgens de Autoriteit Consument en Markt is er geen directe...
+- [Kladversie 'I have a dream'-speech teruggevonden in bureaula en geveild](https://nos.nl/l/2639677)
+  > Een handgeschreven kladversie van een van de beroemdste toespraken uit de wereldgeschiedenis komt binnenkort onder de hamer. De zeven kantjes van...
+- [Zeker 11 doden na brand bij motorverhuurbedrijf op Thais eiland Phuket](https://nos.nl/l/2639671)
+  > Bij een brand in de Thaise badplaats Patong op het eiland Phuket zijn vannacht elf mensen om het leven gekomen. Volgens de politie raakten zestien...
+- [Nederlandse chirurgen halen tumor van ruim 10 kilo uit buik van man](https://nos.nl/l/2639668)
+  > Chirurgen in het Universitair Medisch Centrum Groningen (UMCG) hebben met succes een tumor van ruim 10 kilo en ter grootte van een basketbal...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Curaçao na verlies tegen Panama (2-0) uitgeschakeld voor de Nations League](https://www.ad.nl/voetbal/curacao-na-verlies-tegen-panama-2-0-uitgeschakeld-voor-de-nations-league~aee1699c/)
-  > Curaçao is er niet in geslaagd zich te plaatsen voor de halve finales van de Nations League van Noord- en Midden-Amerika (Concacaf). De ploeg van...
-- [Mexicaanse drugsbaron Félix ‘baas der bazen’ Gallardo (80) overleden in gevangenschap](https://www.ad.nl/buitenland/mexicaanse-drugsbaron-felix-baas-der-bazen-gallardo-80-overleden-in-gevangenschap~ae83b7805/)
-  > In Mexico is zondag Miguel Ángel Félix Gallardo overleden. Dat hebben de autoriteiten gemeld. Gallardo was een voormalige drugsbaron die bekendstond...
-- [Amazon verliest veertig satellieten bij mislukte raketlancering in Florida](https://www.ad.nl/buitenland/amazon-verliest-veertig-satellieten-bij-mislukte-raketlancering-in-florida~aaefb842/)
-  > Een Vulcan-raket van ruimtevaartbedrijf United Launch Alliance (ULA) is zondag ongeveer tien minuten na de lancering vanuit Florida verloren gegaan....
-- [‘Opgestapte topman Jensen Huang onderzoekt mogelijke comeback bij Nvidia na spionageschandaal’](https://www.ad.nl/buitenland/opgestapte-topman-jensen-huang-onderzoekt-mogelijke-comeback-bij-nvidia-na-spionageschandaal~a5a90056/)
-  > Jensen Huang, de ex-CEO van chipbedrijf Nvidia die eerder deze week opstapte na een vermoedelijk spionageschandaal, bekijkt of hij kan terugkeren als...
-- [Defecte besturing tanker was oorzaak botsing tegen cruiseschip in New Orleans](https://www.ad.nl/buitenland/defecte-besturing-tanker-was-oorzaak-botsing-tegen-cruiseschip-in-new-orleans~a6f72d97/)
-  > Volgens een voorlopige conclusie uit het onderzoek naar de aanvaring van een tanker met een cruiseschip in New Orleans zou het besturingssysteem van...
+- [Beleef het Europees voetbal live: maak kans op 2 exclusieve tickets voor jouw favoriete club!](https://www.ad.nl/voetbal/beleef-het-europees-voetbal-live-maak-kans-op-2-exclusieve-tickets-voor-jouw-favoriete-club~a95cb62e/)
+  > Wil jij jouw favoriete club in het stadion vanaf de tribune aanmoedigen tijdens een Europese wedstrijd? Maak gedurende het UEFA Europees...
+- [Van onbekend naar top tien in 287 dagen: Rafael Jódar is een tenniswonder, maar ook een heethoofd](https://www.ad.nl/tennis/van-onbekend-naar-top-tien-in-287-dagen-rafael-jodar-is-een-tenniswonder-maar-ook-een-heethoofd~a02c4c3c/)
+  > Rafael Jódar (20) stond afgelopen januari nog 165ste van de wereld. Elf maanden later hoort het Spaanse tennistalent bij de mondiale top tien en...
+- [Praat mee: om vliegen veilig te houden, moét de Navo reageren op de Russische gps-sabotage](https://www.ad.nl/praat-mee/praat-mee-om-vliegen-veilig-te-houden-moet-de-navo-reageren-op-de-russische-gps-sabotage~ac51704c/)
+  > Alles wijst erop dat de Russen de navigatiesignalen van vijftig vliegtuigen boven Nederland vorige week opzettelijk hebben verstoord. Gelukkig heeft...
+- [Omdat zijn dochter een beperking heeft, is ze volgens Ruben ‘vogelvrij’: ‘Kan haar hele leven misbruikt worden’](https://www.ad.nl/binnenland/omdat-zijn-dochter-een-beperking-heeft-is-ze-volgens-ruben-vogelvrij-kan-haar-hele-leven-misbruikt-worden~a9391583/)
+  > Je denkt: als het ergste gebeurt met je kind, komt er een team dat precies weet wat te doen. Ruben Jansen uit Arnhem dacht dat ook, tot zijn dove,...
+- [Oranje leeft zorgeloos toe naar kraker in historisch decor, Jürgen Klopp onder druk](https://www.ad.nl/voetbal/oranje-leeft-zorgeloos-toe-naar-kraker-in-historisch-decor-jurgen-klopp-onder-druk~acc990b7/)
+  > De vijftigste interland ooit tussen Duitsland en Nederland belooft vanavond een fascinerend gevecht te worden. De Duitse ploeg van bondscoach Jürgen...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Ontluisterend](https://fd.nl/opinie/1619542/ontluisterend)
-  > Had het anders kunnen lopen, vorige week? Wat bijvoorbeeld als D66, VVD en CDA elkaar plechtig hadden beloofd om de oppositie met een open houding...
-- [Door oorlog en de AI-hausse zijn de zorgen over de dollar weer ver weg](https://fd.nl/financiele-markten/1619503/door-oorlog-en-de-ai-hausse-zijn-de-zorgen-over-de-dollar-weer-ver-weg)
-  > De dollar is op het hoogste niveau sinds april 2025. Analisten zien dit vooral als een gevolg van AI, dure energie en politieke risico’s in Europa.
-- [ACM onderzoekt bouwsector op verboden afspraken nu aanbestedingen sterk toenemen](https://fd.nl/bedrijfsleven/1619499/acm-onderzoekt-bouwsector-op-verboden-afspraken-nu-aanbestedingen-sterk-toenemen)
-  > Door de huidige golf van overheidsaanbestedingen, bijvoorbeeld bij de aanleg van wegen en woonwijken, is er meer risico op oneerlijke concurrentie,...
-- [Hengelose ingenieursgroep Engius neemt branchegenoot JVZ over](https://fd.nl/bedrijfsleven/1619389/hengelose-ingenieursgroep-engius-neemt-branchegenoot-jvz-over)
-  > JVZ telt 35 medewerkers in Nijmegen en Deventer. Door de acquisitie groeit Engius uit tot een bedrijf met circa 350 medewerkers en een omzet van €45...
-- [Het ‘girl dad’-excuus brengt gendergelijkheid geen stap dichterbij](https://fd.nl/opinie/1618773/het-girl-dad-excuus)
-  > Mannen worden pas gevoelig voor genderongelijkheid als ze voor het eerst vader worden van een dochter. Dat zie je terug op de werkvloer, schrijft...
+- [Was Nvidia te afhankelijk van één man? En worden de Afrikaanse megasteden groeimotoren?](https://fd.nl/economie/1619399/was-nvidia-te-afhankelijk-van-een-man-en-worden-de-afrikaanse-megasteden-groeimotoren)
+  > Nvidia-topman Jensen Huang staat volop in de schijnwerpers, maar wat gebeurt er als een techbedrijf zo afhankelijk is van één man? Daarna reizen Anna...
+- [Hoogleraar: pensioenfondsen zijn geen ‘zeurpieten’, maar ook geen patriottische beleggers](https://fd.nl/financiele-markten/1619376/hoogleraar-pensioenfondsen-zijn-geen-zeurpieten-maar-ook-geen-patriottische-beleggers)
+  > De druk op pensioenfondsen om te investeren in de groei van de Nederlandse economie neemt toe, maar die komen alleen over de brug als de businesscase...
+- [Omzet detailhandel stijgt met 3,1% in derde kwartaal](https://fd.nl/bedrijfsleven/1619548/omzet-detailhandel-stijgt-met-3-1-in-derde-kwartaal)
+  > In alle deelbranches steeg de omzet, maar het ondernemersvertrouwen daalde licht ten opzichte van het tweede kwartaal.
+- [‘Nederland opent terugkeerhub in Rwanda met vier Europese landen’](https://fd.nl/politiek/1619473/nederland-opent-terugkeerhub-in-rwanda-met-vier-europese-landen)
+  > Persbureau Reuters schrijft dat de EU-lidstaten de plannen maandag presenteren. De hubs zijn bedoeld voor uitgeprocedeerde asielzoekers.
+- [Live: Amsterdamse beurs opent voorzichtig hoger](https://fd.nl/financiele-markten/1619541/live-nvidia-cijfers-anthropic-debuut-en-azie-overleg-sturen-de-marktstemming)
+  > Beleggers balanceren tussen zorgen over de AI-rally, sterke Europese bedrijfscijfers en oplopende obligatierendementen.
 
 ### Meest gelezen
 
