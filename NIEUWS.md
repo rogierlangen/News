@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 18-11-2026 om 03:26*
+*Laatst bijgewerkt: 18-11-2026 om 12:47*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Oppositie kritisch op inzet Buma: keuze tussen links en rechts opnieuw uitgesteld](https://nos.nl/l/2639951)
-  > De inzet van Sybrand Buma, de vicepresident van de Raad van State, is bij veel oppositiepartijen met weinig enthousiasme ontvangen. Dit bleek...
-- [Inwoners van Hilversum en Wijdemeren naar de stembus](https://nos.nl/l/2639950)
-  > Inwoners van Hilversum en Wijdemeren kiezen vandaag een nieuwe gemeenteraad. De twee gemeenten deden afgelopen maart niet mee met de...
-- [Nvidia verdubbelt omzet na vertrek topman Huang](https://nos.nl/l/2639949)
-  > De Amerikaanse chipfabrikant Nvidia heeft het derde kwartaal de omzet meer dan verdubbeld. Het bedrijf blijft profiteren van de enorme vraag naar...
-- [Ier in VS aangeklaagd voor vernielen militair vliegtuig](https://nos.nl/l/2639944)
-  > Een 48-jarige man uit Ierland is in de VS aangeklaagd voor het vernielen van een Amerikaans militair vliegtuig. De man drong in april het beveiligde...
-- [Woede in Australië na vondst renpaard in afvalcontainer](https://nos.nl/l/2639941)
-  > In Australië is met afschuw gereageerd op de vondst van een dood renpaard in een afvalcontainer bij een stortplaats. Meerdere betrokken partijen...
+- [Rus krijgt mogelijk topfunctie bij Atoomagentschap VN, Oekraïne protesteert](https://nos.nl/l/2640007)
+  > Het hoofd van het Internationaal Atoomenergieagentschap (IAEA) heeft voorgesteld om de Rus Aleksej Ferapontov te benoemen tot een van de...
+- [Russische ambassade reageert op Krimbrugaanval, 'doet Den Haag mee aan conflict?'](https://nos.nl/l/2640005)
+  > De Russische ambassade heeft op X gereageerd op het nieuws dat bij de grote aanval op de Krimbrug raketten en drones zijn gebruikt van een...
+- [Iran valt Amerikaanse doelwitten aan in Golfregio, spanning loopt op](https://nos.nl/l/2640003)
+  > Iran heeft vanochtend opnieuw aanvallen op buurlanden in de Golfregio uitgevoerd. Een Amerikaanse luchtmachtbasis in Koeweit werd aangevallen en ook...
+- [Met loeiende sirenes brengt Haagse politie 5500 cadeaus voor kinderen in armoede](https://nos.nl/l/2639997)
+  > Met loeiende sirenes hebben Haagse politieagenten vanochtend bijna 5500 cadeaus naar de bibliotheek in de stad gebracht voor de actie Sintvoorieder1....
+- [Waymo stopt na incidenten voorlopig met zelfrijdende taxi's op snelwegen VS](https://nos.nl/l/2639996)
+  > Zelfrijdende taxi's van het bedrijf Waymo rijden voorlopig niet meer op snelwegen in de Verenigde Staten. Vorige week besloot Californië na...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Nvidia stopt verkoop AI-chips aan China, ondanks toestemming VS](https://www.ad.nl/tech/nvidia-stopt-verkoop-ai-chips-aan-china-ondanks-toestemming-vs~a87404fc/)
-  > Nvidia levert geen Hopper-chips voor datacenters meer aan China, hoewel het bedrijf vorig jaar nog toestemming van de Amerikaanse overheid kreeg om...
-- [Pakistaan krijgt 27 jaar cel voor beramen moordaanslag op Trump](https://www.ad.nl/buitenland/pakistaan-krijgt-27-jaar-cel-voor-beramen-moordaanslag-op-trump~a18da80f/)
-  > Een Pakistaanse man is dinsdag veroordeeld tot ruim 27 jaar gevangenisstraf wegens het beramen van een moordaanslag op de Amerikaanse president...
-- [Animo voor thuisbatterijen gaat door het dak: eind dit jaar al in 425.000 huizen](https://www.ad.nl/binnenland/animo-voor-thuisbatterijen-gaat-door-het-dak-eind-dit-jaar-al-in-425-000-huizen~a585d9c2/)
-  > Huishoudens met zonnestroom storten zich massaal op de thuisbatterij. De verkoop verdubbelt dit jaar tot 225.000 stuks en blijft maar stijgen.
-- [Filmfestival Cannes roept Iran op om beperkingen regisseur Jafar Panahi te schrappen](https://www.ad.nl/show/filmfestival-cannes-roept-iran-op-om-beperkingen-regisseur-jafar-panahi-te-schrappen~ae49fc3b/)
-  > Het festival van Cannes veroordeelt Iran voor de vervolging van regisseur Jafar Panahi. Het filmevenement roept het land op alle beperkingen die hem...
-- [AD Voetbalpodcast | ‘Oranje zal zich tegen toplanden veel meer moeten gaan aanpassen’](https://www.ad.nl/voetbal/ad-voetbalpodcast-oranje-zal-zich-tegen-toplanden-veel-meer-moeten-gaan-aanpassen~a42af5cd9/)
-  > Er vielen na de verloren interland tegen Duitsland harde woorden bij de spelers. Maar de vraag nu is vooral welke lessen kan Oranje hieruit trekken?...
+- [Roelof de Vries en Klaas van Kruistum aan de slag bij de Top 2000](https://www.ad.nl/show/roelof-de-vries-en-klaas-van-kruistum-aan-de-slag-bij-de-top-2000~ab21290c/)
+  > Jorien Renkema, Roelof de Vries en Klaas van Kruistum debuteren als dj's van de Top 2000 op Radio 2. Morad El Ouakili, die doorgaans tussen 20.00 en...
+- [‘Zou daar nu niet graag werken’: onbegrip over Hengeloos bedrijf dat te koop loopt met rol in aanval op Krimbrug](https://www.ad.nl/binnenland/zou-daar-nu-niet-graag-werken-onbegrip-over-hengeloos-bedrijf-dat-te-koop-loopt-met-rol-in-aanval-op-krimbrug~a9fb789f/)
+  > Is het handig dat het Hengelose Destinus zo te koop loopt met zijn aandeel in de Oekraïense aanval op de Krimbrug? Een omliggend bedrijf is er in elk...
+- [Vrijspraak voor spokenjagers die wilden praten met overleden kinderen: ‘Contact gebeurde op respectvolle manier’](https://www.ad.nl/leusden/vrijspraak-spokenjagers-kindergraven-rusthof~a808027d/)
+  > De spokenjagers die contact probeerden te leggen met overleden kinderen op begraafplaats Rusthof bij Amersfoort hebben zich niet schuldig gemaakt aan...
+- [Ik had gehoopt dat deze kwalijke trend ons huis voorbij ging, maar nee natuurlijk niet](https://www.ad.nl/binnenland/ik-had-gehoopt-dat-deze-kwalijke-trend-ons-huis-voorbij-ging-maar-nee-natuurlijk-niet~aac91e80/)
+  > Er wordt volop gepaft op sociale media, ook door BN’ers, en dan vinden wij het nog gek dat onze kinderen steeds vaker gaan roken, schrijft Angela de...
+- [Een warm ontbijt kan gezond zijn, maar vermijd deze valkuilen](https://www.ad.nl/gezond/een-warm-ontbijt-kan-gezond-zijn-maar-vermijd-deze-valkuilen~aa7b2fdd/)
+  > Een dampende kom havermout, een vers afgebakken broodje of toch gewoon een koude bak kwark uit de koelkast: ontbijt komt in alle temperaturen. Maar...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Twee jaar cel geeist tegen Limburgse vastgoedtycoon Henk D. vanwege steekpenningen in Rusland](https://fd.nl/bedrijfsleven/1619822/twee-jaar-cel-geeist-tegen-limburgse-vastgoedtycoon-henk-d-vanwege-steekpenningen-in-rusland)
-  > De 78-jarige is directeur van machinebouwer Van Aarsen uit Heel. Het Openbaar Ministerie eist een celstraf omdat hij mensen zou hebben omgekocht en...
-- [Vijf hete hangijzers die de top tussen Xi, Poetin en Trump kunnen maken of breken](https://fd.nl/politiek/1619817/vijf-hete-hangijzers-die-de-top-tussen-xi-poetin-en-trump-kunnen-maken-of-breken)
-  > Op de Apec-top zullen de leiders van China, Rusland en de Verenigde Staten voor het eerst met zijn drieën om tafel zitten.
-- [Geld vertroebelt je morele kompas](https://fd.nl/opinie/1619808/geld-vertroebelt-je-morele-kompas)
-  > Wie meer bezit, heeft meer te delen. Toch blijken juist de rijksten minder oog te hebben voor anderen. Geld doet iets met ons morele kompas – en niet...
-- [Navelstaren](https://fd.nl/opinie/1619748/navelstaren)
-  > Terwijl Nederlandse politici bezig zijn met de pluisjes in elkaars navels, is Jetten afwezig op de klimaattop in Antalya en wordt een Spanjaard de...
-- [Personalia woensdag 18 november](https://fd.nl/bedrijfsleven/1619732/personalia-woensdag-18-november)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
+- [Beleggers lopen warm voor beheer tropisch regenwoud, maar er mist nog $1,8 mrd overheidsgeld](https://fd.nl/financiele-markten/1619933/beleggers-lopen-warm-voor-beheer-tropisch-regenwoud-maar-er-mist-nog-1-8-mrd-overheidsgeld)
+  > Met de Tropical Forest Forever Facility kunnen beleggers investeren in obligaties om regenwoud te beschermen. Na een voortvarende start, is er nog...
+- [EU leent €45 mrd extra aan Oekraïne](https://fd.nl/politiek/1619937/eu-leent-45-mrd-extra-aan-oekraine)
+  > De nieuwe lening moet het Oekraïense begrotingsgat volgend jaar voor twee derde dichten. Europa wil het geld ophalen op de kapitaalmarkt.
+- [Schuldeisers cryptobedrijf Knaken dienen voor €26 mln aan claims in](https://fd.nl/bedrijfsleven/1619988/schuldeisers-cryptobedrijf-knaken-dienen-voor-26-mln-aan-claims-in)
+  > De Rotterdamse broker ging eerder dit jaar op zwart nadat de AFM een ‘zeer zorgwekkende situatie’ had geconstateerd. Hierop vroeg het Openbaar...
+- [Rusland-expert: ‘We zien vonkjes van onvrede. Maar Poetin laat ze keihard neerslaan’](https://fd.nl/politiek/1619788/rusland-expert-we-zien-vonkjes-van-onvrede-maar-poetin-laat-ze-keihard-neerslaan)
+  > Ondanks alle doden in de oorlog in Oekraïne en de enorme repressie in Rusland, acht Niels Drost van instituut Clingendael de kans op een opstand...
+- [Internationaal strafrecht heeft al tachtig jaar vaker wind tegen dan wind mee](https://fd.nl/politiek/1616202/internationaal-strafrecht-heeft-al-tachtig-jaar-vaker-wind-tegen-dan-wind-mee)
+  > In 1946 vonnisten rechters voor het eerst ooit over misdaden tegen de menselijkheid en de vrede. Daarmee was het internationaal strafrecht geboren....
 
 ### Meest gelezen
 
