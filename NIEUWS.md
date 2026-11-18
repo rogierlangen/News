@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 17-11-2026 om 21:35*
+*Laatst bijgewerkt: 18-11-2026 om 03:26*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
+- [Oppositie kritisch op inzet Buma: keuze tussen links en rechts opnieuw uitgesteld](https://nos.nl/l/2639951)
+  > De inzet van Sybrand Buma, de vicepresident van de Raad van State, is bij veel oppositiepartijen met weinig enthousiasme ontvangen. Dit bleek...
+- [Inwoners van Hilversum en Wijdemeren naar de stembus](https://nos.nl/l/2639950)
+  > Inwoners van Hilversum en Wijdemeren kiezen vandaag een nieuwe gemeenteraad. De twee gemeenten deden afgelopen maart niet mee met de...
+- [Nvidia verdubbelt omzet na vertrek topman Huang](https://nos.nl/l/2639949)
+  > De Amerikaanse chipfabrikant Nvidia heeft het derde kwartaal de omzet meer dan verdubbeld. Het bedrijf blijft profiteren van de enorme vraag naar...
+- [Ier in VS aangeklaagd voor vernielen militair vliegtuig](https://nos.nl/l/2639944)
+  > Een 48-jarige man uit Ierland is in de VS aangeklaagd voor het vernielen van een Amerikaans militair vliegtuig. De man drong in april het beveiligde...
 - [Woede in Australië na vondst renpaard in afvalcontainer](https://nos.nl/l/2639941)
   > In Australië is met afschuw gereageerd op de vondst van een dood renpaard in een afvalcontainer bij een stortplaats. Meerdere betrokken partijen...
-- [Nederlandse wapenfabrikant laat wereld weten: onze raketten troffen Krimbrug](https://nos.nl/l/2639936)
-  > De in Hengelo gevestigde wapenfabrikant Destinus zegt dat Oekraïne zijn raketten en drones heeft gebruikt bij de grote aanval op de Krimbrug. "We...
-- [Amerikaanse militair die werd gearresteerd in VK overgedragen aan VS](https://nos.nl/l/2639933)
-  > De Amerikaanse militair die vorige week in het Verenigd Koninkrijk werd gearresteerd op verdenking van spionage voor Rusland, is door het Amerikaanse...
-- [Militair transportvliegtuig stort neer in Siberië: alle 19 inzittenden omgekomen](https://nos.nl/l/2639931)
-  > In Rusland zijn alle negentien inzittenden van een militair transportvliegtuig omgekomen nadat het vliegtuig door onbekende oorzaak neerstortte.
-    ...
-- ['Lastig om conclusies te trekken over autopsierapport Epstein'](https://nos.nl/l/2639925)
-  > Is het mogelijk om conclusies te trekken over de doodsoorzaak van iemand op basis van alleen foto's? Dat is erg lastig, zegt deskundige forensische...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Aanvoerder Givairo Read na nerveuze avond met Jong Oranje: ‘We waren de grip wel een beetje kwijt’](https://www.ad.nl/voetbal/aanvoerder-givairo-read-na-nerveuze-avond-met-jong-oranje-we-waren-de-grip-wel-een-beetje-kwijt~a90ab33d/)
-  > Jong Oranje gaat naar het EK na een ontsnapping tegen Denemarken. „We hebben het onnodig spannend gemaakt”, vindt captain Givairo Read, die volgend...
-- [Gian van Veen overtuigend naar laatste zestien, straks ook Michael van Gerwen](https://www.ad.nl/darts/gian-van-veen-overtuigend-naar-laatste-zestien-straks-ook-michael-van-gerwen~ab0bd3c99/)
-  > De groepsfase van de Grand Slam of Darts in Wolverhampton komt vanavond ten einde. Jermaine Wattimena en Kevin Doets zijn al geplaatst voor de...
-- [Portugal met man minder in slotfase tegen Wales, Denemarken leidt tegen Noorwegen en is op weg naar kwartfinales](https://www.ad.nl/voetbal/portugal-met-man-minder-in-slotfase-tegen-wales-denemarken-leidt-tegen-noorwegen-en-is-op-weg-naar-kwartfinales~a8da7a3e/)
-  > Vanavond is de laatste speelronde van de Nations League. Denemarken en Noorwegen maken in een onderling duel uit wie zich als laatste land plaatst...
-- [Russisch superjacht is financiële strop voor Italië: tot 8000 liter diesel per dag nodig om interieur schimmelvrij te houden](https://www.ad.nl/buitenland/russisch-superjacht-is-financiele-strop-voor-italie-tot-8000-liter-diesel-per-dag-nodig-om-interieur-schimmelvrij-te-houden~a664ce13/)
-  > Het moest een sanctie zijn gericht tegen een Russische miljardair, maar ruim vier jaar later krijgt vooral de Italiaanse belastingbetaler de rekening...
-- [‘In sommige nieuwe auto’s hoor je de sirene van een ambulance te laat’](https://www.ad.nl/auto/in-sommige-nieuwe-autos-hoor-je-de-sirene-van-een-ambulance-te-laat~a5ac594f/)
-  > Het maakt veel weggebruikers heel nerveus: er komt een ambulance of andere spoedeisende hulpdienst aan en jij blokkeert de doorgang. Wat moet je...
+- [Nvidia stopt verkoop AI-chips aan China, ondanks toestemming VS](https://www.ad.nl/tech/nvidia-stopt-verkoop-ai-chips-aan-china-ondanks-toestemming-vs~a87404fc/)
+  > Nvidia levert geen Hopper-chips voor datacenters meer aan China, hoewel het bedrijf vorig jaar nog toestemming van de Amerikaanse overheid kreeg om...
+- [Pakistaan krijgt 27 jaar cel voor beramen moordaanslag op Trump](https://www.ad.nl/buitenland/pakistaan-krijgt-27-jaar-cel-voor-beramen-moordaanslag-op-trump~a18da80f/)
+  > Een Pakistaanse man is dinsdag veroordeeld tot ruim 27 jaar gevangenisstraf wegens het beramen van een moordaanslag op de Amerikaanse president...
+- [Animo voor thuisbatterijen gaat door het dak: eind dit jaar al in 425.000 huizen](https://www.ad.nl/binnenland/animo-voor-thuisbatterijen-gaat-door-het-dak-eind-dit-jaar-al-in-425-000-huizen~a585d9c2/)
+  > Huishoudens met zonnestroom storten zich massaal op de thuisbatterij. De verkoop verdubbelt dit jaar tot 225.000 stuks en blijft maar stijgen.
+- [Filmfestival Cannes roept Iran op om beperkingen regisseur Jafar Panahi te schrappen](https://www.ad.nl/show/filmfestival-cannes-roept-iran-op-om-beperkingen-regisseur-jafar-panahi-te-schrappen~ae49fc3b/)
+  > Het festival van Cannes veroordeelt Iran voor de vervolging van regisseur Jafar Panahi. Het filmevenement roept het land op alle beperkingen die hem...
+- [AD Voetbalpodcast | ‘Oranje zal zich tegen toplanden veel meer moeten gaan aanpassen’](https://www.ad.nl/voetbal/ad-voetbalpodcast-oranje-zal-zich-tegen-toplanden-veel-meer-moeten-gaan-aanpassen~a42af5cd9/)
+  > Er vielen na de verloren interland tegen Duitsland harde woorden bij de spelers. Maar de vraag nu is vooral welke lessen kan Oranje hieruit trekken?...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Onzekerheid rond AI trekt Amerikaanse beurzen verder in het rood](https://fd.nl/financiele-markten/1619976/onzekerheid-rond-ai-trekt-amerikaanse-beurzen-verder-in-het-rood)
-  > Beleggers keken uit naar de kwartaalcijfers van Nvidia nabeurs en de beursintroductie van Anthropic aanstaande donderdag.
-- [Ceo onlinesupermarkt Crisp vertrekt na rechtszaak tegen investeerders](https://fd.nl/bedrijfsleven/1619826/ceo-onlinesupermarkt-crisp-vertrekt-na-rechtszaak-tegen-investeerders)
-  > Tom Peeters vertrekt per januari als ceo, maar blijft aandeelhouder. Crisp kampt met financiële tegenslag. De rechter besloot dat het €5 mln moet...
-- [Met vage mkb-belofte houdt Jetten de VVD voor nu aan boord](https://fd.nl/politiek/1619818/met-vage-mkb-belofte-houdt-jetten-de-vvd-aan-boord)
-  > Afgezet tegen de grote woorden van VVD-vicepremier Dilan Yesilgöz net voor het weekend, is het een magere oogst.
-- [Symboolpolitiek over terugkeer](https://fd.nl/opinie/1619815/symboolpolitiek-over-terugkeer)
-  > Een terugkeerhub in Rwanda moet vooral daadkracht uitstralen. Een echte oplossing is het niet.
-- [Marine le Pen wil pensioenleeftijd verlagen, maar Fransen moeten meer gaan werken voor opbouw](https://fd.nl/economie/1619820/marine-le-pen-wil-pensioenleeftijd-verlagen-maar-fransen-moeten-meer-gaan-werken-voor-opbouw)
-  > Om de pensioenhervormingen te betalen, wil Rassemblement National, de radicaal rechtse partij van Le Pen, strenger gaan kijken naar wie er...
+- [Twee jaar cel geeist tegen Limburgse vastgoedtycoon Henk D. vanwege steekpenningen in Rusland](https://fd.nl/bedrijfsleven/1619822/twee-jaar-cel-geeist-tegen-limburgse-vastgoedtycoon-henk-d-vanwege-steekpenningen-in-rusland)
+  > De 78-jarige is directeur van machinebouwer Van Aarsen uit Heel. Het Openbaar Ministerie eist een celstraf omdat hij mensen zou hebben omgekocht en...
+- [Vijf hete hangijzers die de top tussen Xi, Poetin en Trump kunnen maken of breken](https://fd.nl/politiek/1619817/vijf-hete-hangijzers-die-de-top-tussen-xi-poetin-en-trump-kunnen-maken-of-breken)
+  > Op de Apec-top zullen de leiders van China, Rusland en de Verenigde Staten voor het eerst met zijn drieën om tafel zitten.
+- [Geld vertroebelt je morele kompas](https://fd.nl/opinie/1619808/geld-vertroebelt-je-morele-kompas)
+  > Wie meer bezit, heeft meer te delen. Toch blijken juist de rijksten minder oog te hebben voor anderen. Geld doet iets met ons morele kompas – en niet...
+- [Navelstaren](https://fd.nl/opinie/1619748/navelstaren)
+  > Terwijl Nederlandse politici bezig zijn met de pluisjes in elkaars navels, is Jetten afwezig op de klimaattop in Antalya en wordt een Spanjaard de...
+- [Personalia woensdag 18 november](https://fd.nl/bedrijfsleven/1619732/personalia-woensdag-18-november)
+  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
 
 ### Meest gelezen
 
