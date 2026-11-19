@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-11-2026 om 11:27*
+*Laatst bijgewerkt: 19-11-2026 om 20:15*
 
 ---
 
@@ -8,17 +8,16 @@
 
 ### Laatste nieuws
 
-- [Taiwan meldt opnieuw Russische militaire vliegtuigen nabij eiland](https://nos.nl/l/2640137)
-  > Russische militaire vliegtuigen zijn vanochtend vroeg de luchtverdedigingszone van Taiwan binnengevlogen, zo heeft het Taiwanese ministerie van...
-- [Opnieuw boot met migranten omgeslagen bij Senegal, vrees voor tientallen doden](https://nos.nl/l/2640136)
-  > Voor de kust van Senegal is een boot met migranten omgeslagen. Er is zeker een dode gevallen, maar dat kunnen er nog veel meer worden. Aan boord...
-- [Duitser (18) opgepakt die terroristische aanslag op moskee wilde plegen met 3D-geprinte wapens](https://nos.nl/l/2640135)
-  > Een 18-jarige Duitser wordt ervan verdacht dat hij een terroristische aanslag wilde plegen op een moskee in Duitsland. De scholier zou dat hebben...
-- [Europees netwerk moet herinnering aan Holocaust levend houden](https://nos.nl/l/2640133)
-  > Twee Holocaust-herdenkingsplekken in Nederland zijn aangesloten bij een nieuw Europees netwerk. Dat is opgericht zodat verhalen en herinneringen niet...
-- [Trump, Xi en Poetin ronden gesprek in China af, uitkomst nog niet bekend](https://nos.nl/l/2640129)
-  > De Amerikaanse president Trump, de Russische president Poetin en de Chinese president Xi hebben hun gesprek afgerond.
-        Het was de eerste keer...
+- [President Trump belde vanuit Air Force One in bij 'Europese tegentop'](https://nos.nl/l/2640194)
+  > De Amerikaanse president Trump heeft na de APEC-top in China, waar hij sprak met de Chinese president Xi en Russische president Poetin, ingebeld bij...
+- [Nederland roept Russische ambassadeur op het matje voor projectiel bij ambassade](https://nos.nl/l/2640193)
+  > Minister Berendsen van Buitenlandse Zaken laat de Russische ambassadeur ontbieden, omdat een neergekomen projectiel vandaag de Nederlandse ambassade...
+- [Onderzoek geweld Overasselt duurt nog maanden, meer aanhoudingen verwacht](https://nos.nl/l/2640180)
+  > Het onderzoek naar de geweldsuitbarsting in Overasselt is zo omvangrijk dat de politie nog zeker vier maanden nodig heeft om te achterhalen wat zich...
+- ['Onze harten zijn gevuld met hoop', Rohingya reageren op genocide-uitspraak](https://nos.nl/l/2640179)
+  > "Vandaag zijn onze harten gevuld met hoop, vreugde en emotie", reageert een Rohingya-bewoner in het vluchtelingenkamp Cox's Bazar in Bangladesh tegen...
+- [Recordbeursgang voor AI-bedrijf Anthropic, koers stijgt meteen met een derde](https://nos.nl/l/2640176)
+  > Het aandeel van AI-bedrijf Anthropic is de eerste uren na de beursgang flink in waarde gestegen. De openingskoers van het bedrijf achter AI-model...
 
 ### Meest gelezen
 
@@ -28,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Gezellig met je baby op de arm naar kooigevechten waar het blanke ras weerbaar wordt gemaakt](https://www.ad.nl/binnenland/gezellig-met-je-baby-op-de-arm-naar-kooigevechten-waar-het-blanke-ras-weerbaar-wordt-gemaakt~a4fa5f168/)
-  > Skinheads kennen we. Maar het engste van de Zembla-aflevering is de betrokkenheid van ‘gewone’ mensen en kinderen bij extreemrechtse kooigevechten,...
-- [Trump, Poetin en Xi komen met gezamenlijke verklaring: ‘ICC mag rechtsmacht niet misbruiken’](https://www.ad.nl/buitenland/trump-poetin-en-xi-komen-met-gezamenlijke-verklaring-icc-mag-rechtsmacht-niet-misbruiken~a7b3894b8/)
-  > De Russische president Vladimir Poetin, de Chinese president Xi Jinping en de Amerikaanse president Donald Trump gingen deze ochtend met elkaar aan...
-- [Nieuw B&B vol liefde-koppel: Gilbert en Malgosia hebben elkaar gevonden](https://www.ad.nl/show/malgosia-gilbert-bbvolliefde-2026~a88b3a6c/)
-  > Een bijzonder nieuw B&B vol liefde-koppel: Malgosia Lukaszczyk (52) en Gilbert de Wildt (69), allebei oud-kandidaten van het programma, vormen een...
-- [Topactrice Florence Pugh is klaar met bodyshamers en speculaties over lichaam: ‘Zeer verontrustend’](https://www.ad.nl/show/topactrice-florence-pugh-is-klaar-met-bodyshamers-en-speculaties-over-lichaam-zeer-verontrustend~a2b780d6/)
-  > Florence Pugh (30) heeft fel gereageerd op ‘verontrustende’ speculaties over haar uiterlijk. Foto’s van de actrice gingen onlangs viraal, omdat...
-- [Dick Lukkien ontbreekt bij Derby van het Noorden na heupoperatie](https://www.ad.nl/voetbal/dick-lukkien-ontbreekt-bij-derby-van-het-noorden-na-heupoperatie~a378dc98/)
-  > Het nieuwe eredivisieseizoen is in volle gang. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we je...
+- [Aspinall wint van Clemens, zo Gian van Veen in actie, Michael van Gerwen in de laatste partij van de avond](https://www.ad.nl/darts/aspinall-wint-van-clemens-zo-gian-van-veen-in-actie-michael-van-gerwen-in-de-laatste-partij-van-de-avond~a44ced04/)
+  > Het gaat goed met de Nederlanders bij de Grand Slam of Darts, een van de grote toernooien in aanloop naar het WK. Gisteravond stuntte Jermaine...
+- [Deze donkerblauwe jurk van Máxima is in potentie heel mooi, maar helaas kreukt en deukt hij](https://www.ad.nl/show/deze-donkerblauwe-jurk-van-maxima-is-in-potentie-heel-mooi-maar-helaas-kreukt-en-deukt-hij~a86341f9/)
+  > De meest besproken royaltyjurk van 2026? Josine Droogendijk weet nu al welke dat gaat zijn. Verder in deze nieuwe aflevering van Oranje Franje: een...
+- [Feyenoord en PSV allebei op dinsdagavond in de Champions League: dit is waarom](https://www.ad.nl/voetbal/feyenoord-en-psv-allebei-op-dinsdagavond-in-de-champions-league-dit-is-waarom~a94fcef3/)
+  > De Nederlandse clubs spelen normaal gesproken nooit op dezelfde avond in de Champions League, maar komende week is dat anders. Feyenoord en PSV...
+- [De grootste vervuiler van Nederland nu echt in de knel: de strafzaak gaat beginnen](https://www.ad.nl/binnenland/de-grootste-vervuiler-van-nederland-nu-echt-in-de-knel-de-strafzaak-gaat-beginnen~a58624bc/)
+  > Na jaren wachten en stapels rapporten over nare ziektes in de omgeving begint deze vrijdag de strafzaak tegen staalfabriek Tata Steel uit...
+- [Rabobank bekijkt strengere hypotheekgrens opnieuw na zorgen over 50-plussers](https://www.ad.nl/economie/rabobank-bekijkt-strengere-hypotheekgrens-opnieuw-na-zorgen-over-50-plussers~a191bdd6/)
+  > De Rabobank twijfelt over zijn eigen nieuwe hypotheekregel, waarbij de bank al vijftien jaar voor je pensioen rekent met je pensioeninkomen. Daardoor...
 
 ### Meest gelezen
 
@@ -47,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Ziekteverzuim loopt langzaam op door meer stress](https://fd.nl/bedrijfsleven/1620108/ziekteverzuim-loopt-langzaam-op-door-meer-stress)
-  > Stressgerelateerde klachten spelen steeds vaker een rol. Vooral werknemers van 25 tot 44 jaar vallen daardoor uit en dit komt het meest voor bij...
-- [Aschenbrenner plant comeback, tegelijk met Anthropic](https://fd.nl/financiele-markten/1620106/aschenbrenner-plant-comeback-tegelijk-met-anthropic)
-  > Leopold Aschenbrenner laat weten zijn hedgefonds nieuw leven in te willen blazen. Dat meldt de Financial Times op basis van ingewijden.
-- [‘Flexibele realist’ wil dat Europa snel zijn eigen verdediging ter hand neemt](https://fd.nl/politiek/1619553/flexibele-realist-wil-dat-europa-snel-zijn-eigen-verdediging-ter-hand-neemt)
-  > China vormt volgens onderminister van defensie Elbridge Colby een veel groter gevaar voor de VS dan Rusland. Hij wil Amerikaanse troepen uit Europa...
-- [Bedrijven keerden in derde kwartaal opnieuw meer dividend uit](https://fd.nl/financiele-markten/1620032/bedrijven-keerden-in-derde-kwartaal-opnieuw-meer-dividend-uit)
-  > Opkomende markten, waaronder China, keerden in het derde kwartaal $274 mrd aan dividend uit, goed voor 46% van het wereldwijde totaal.
-- [Rots in de personal branding](https://fd.nl/samenleving/1619930/rots-in-de-personal-branding)
-  > Joris van Os begrijpt dat er, in tegenstelling tot zijn glamoureuze cocolumnistes, weinig kijkplezier aan hem te beleven valt.
+- [‘EU wil dat lidstaten olievoorraden aanleggen op basis van verbruik’](https://fd.nl/economie/1620127/eu-wil-dat-lidstaten-olievoorraden-aanleggen-op-basis-van-verbruik)
+  > In de nieuwe regels moeten landen naast ruwe olie minimaal een olieproduct in voorraad houden. Dat kan onder meer benzine, kerosine, diesel of...
+- [Accountant legt vinger op zere plek bij Tata Steel](https://fd.nl/opinie/1620058/accountant-legt-vinger-op-zere-plek-bij-tata-steel)
+  > Zonder een akkoord over overheidssteun komt Tata Steel in IJmuiden in financieel zwaar weer terecht, valt op te maken uit de accountantsverklaring....
+- [Werkgevers krijgen zes maanden extra voor transparantie over beloning](https://fd.nl/politiek/1620116/werkgevers-krijgen-zes-maanden-extra-voor-transparantie-over-beloning)
+  > Werknemers die willen weten of hun beloning gelijkwaardig is aan die van hun collega’s, moeten opnieuw een half jaar langer wachten. De wet...
+- [Bregje de Best, vertrouweling van JPMorganChase-ceo, is een ‘force of nature’](https://fd.nl/financiele-markten/1620036/dimon-vertrouweling-bregje-de-best-is-een-natuurkracht)
+  > De 43-jarige bestormt de ladder bij JPMorganChase en wordt de nieuwe cfo bij de bank. Ze is altijd bezig om beter te worden, zeggen vrienden en...
+- [Wereldleiders bouwen in Shenzhen aan nieuwe rechtsorde, ‘Poetin grote winnaar’](https://fd.nl/politiek/1620126/wereldleiders-bouwen-in-shenzhen-aan-nieuwe-rechtsorde-poetin-grote-winnaar)
+  > De unieke topontmoeting in Shenzhen was vooral symbolisch van grote betekenis. De drie regeringsleiders willen de VN hervormen naar eigen inzicht en...
 
 ### Meest gelezen
 
