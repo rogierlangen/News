@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 19-11-2026 om 02:59*
+*Laatst bijgewerkt: 19-11-2026 om 11:27*
 
 ---
 
@@ -8,16 +8,17 @@
 
 ### Laatste nieuws
 
-- [Van Goghs 'Bloeiende kastanjebomen' geveild voor recordbedrag](https://nos.nl/l/2640092)
-  > In New York is een schilderij van Vincent van Gogh geveild voor omgerekend ruim 173 miljoen euro. Nooit eerder heeft een kunstwerk van de befaamde...
-- [Pro grootste partij bij raadsverkiezingen in Hilversum, opkomst laag](https://nos.nl/l/2640091)
-  > Pro is de grootste partij geworden bij de gemeenteraadsverkiezingen in Hilversum. Met alle stemmen geteld heeft de partij acht zetels behaald....
-- [Trump, Poetin en Xi in China voor historisch treffen met lage verwachtingen](https://nos.nl/l/2640086)
-  > "Historisch" en "een ontmoeting die zijn weerga niet kent" zijn enkele kwalificaties die rondgaan. Vergelijkingen met de beroemde top in Jalta in...
-- [Rekenkamer maant EU meer te doen om burgers tegen pfas te beschermen](https://nos.nl/l/2640084)
-  > De Europese Unie doet te weinig om burgers te beschermen tegen de gevaren van pfas. Dat concludeert de Europese Rekenkamer. Volgens de Rekenkamer...
-- [Man (21) in Eindhoven aangehouden op verdenking van mishandelen NS-medewerker](https://nos.nl/l/2640082)
-  > Op station Eindhoven Centraal is een 21-jarige man aangehouden die ervan wordt verdacht een NS-medewerker te hebben mishandeld. Dat zou zijn gebeurd...
+- [Taiwan meldt opnieuw Russische militaire vliegtuigen nabij eiland](https://nos.nl/l/2640137)
+  > Russische militaire vliegtuigen zijn vanochtend vroeg de luchtverdedigingszone van Taiwan binnengevlogen, zo heeft het Taiwanese ministerie van...
+- [Opnieuw boot met migranten omgeslagen bij Senegal, vrees voor tientallen doden](https://nos.nl/l/2640136)
+  > Voor de kust van Senegal is een boot met migranten omgeslagen. Er is zeker een dode gevallen, maar dat kunnen er nog veel meer worden. Aan boord...
+- [Duitser (18) opgepakt die terroristische aanslag op moskee wilde plegen met 3D-geprinte wapens](https://nos.nl/l/2640135)
+  > Een 18-jarige Duitser wordt ervan verdacht dat hij een terroristische aanslag wilde plegen op een moskee in Duitsland. De scholier zou dat hebben...
+- [Europees netwerk moet herinnering aan Holocaust levend houden](https://nos.nl/l/2640133)
+  > Twee Holocaust-herdenkingsplekken in Nederland zijn aangesloten bij een nieuw Europees netwerk. Dat is opgericht zodat verhalen en herinneringen niet...
+- [Trump, Xi en Poetin ronden gesprek in China af, uitkomst nog niet bekend](https://nos.nl/l/2640129)
+  > De Amerikaanse president Trump, de Russische president Poetin en de Chinese president Xi hebben hun gesprek afgerond.
+        Het was de eerste keer...
 
 ### Meest gelezen
 
@@ -27,16 +28,16 @@
 
 ### Laatste nieuws
 
-- [Nederland aan kop met gebruik van AI op het werk, maar het kan nog veel beter](https://www.ad.nl/economie/nederland-aan-kop-met-gebruik-van-ai-op-het-werk-maar-het-kan-nog-veel-beter~aa538e59/)
-  > Nederland staat internationaal aan de top met het gebruik van AI op het werk. We gebruiken het meer dan de Verenigde Staten, Duitsland, het Verenigd...
-- [Anthropic prijst aandeel op 83 dollar voor grootste beursgang ooit](https://www.ad.nl/economie/anthropic-prijst-aandeel-op-83-dollar-voor-grootste-beursgang-ooit~a00cf077/)
-  > AI-bedrijf Anthropic gaat bij zijn beursgang in New York op donderdag aandelen uitgeven voor een prijs van 83 dollar per stuk. Daarmee wordt dan 81,3...
-- [Bloeiende kastanjebomen is met 190,4 miljoen dollar de duurste Van Gogh ooit](https://www.ad.nl/buitenland/bloeiende-kastanjebomen-is-met-190-4-miljoen-dollar-de-duurste-van-gogh-ooit~ae250f9a/)
-  > Een schilderij van Vincent van Gogh is in New York voor een recordbedrag van 190,4 miljoen dollar (zo’n 173,5 miljoen euro) verkocht. Volgens...
-- [LIVE Lancering GTA 6 | GTA 6 nu uit in Nederland, advocaat waarschuwt voor ontslag bij ziekmelding](https://www.ad.nl/games/live-lancering-gta-6-gta-6-nu-uit-in-nederland-advocaat-waarschuwt-voor-ontslag-bij-ziekmelding~a4971c58/)
-  > GTA 6 is woensdagnacht in Nederland uitgekomen voor de PlayStation 5 en Xbox Series X/S. De normale versie van het spel kost 80 euro, een speciale...
-- [AD Voetbalpodcast | ‘Hopelijk blijft Danny Buijs wel voor de eredivisie behouden, maar topclub is net te hoog gegrepen’](https://www.ad.nl/voetbal/ad-voetbalpodcast-hopelijk-blijft-danny-buijs-wel-voor-de-eredivisie-behouden-maar-topclub-is-net-te-hoog-gegrepen~a42af5cd9/)
-  > Fortuna Sittard moet op zoek naar een nieuwe trainer. Danny Buijs vertrekt na dit seizoen bij de Limburgse club. Welke club zou hem oppikken?
+- [Gezellig met je baby op de arm naar kooigevechten waar het blanke ras weerbaar wordt gemaakt](https://www.ad.nl/binnenland/gezellig-met-je-baby-op-de-arm-naar-kooigevechten-waar-het-blanke-ras-weerbaar-wordt-gemaakt~a4fa5f168/)
+  > Skinheads kennen we. Maar het engste van de Zembla-aflevering is de betrokkenheid van ‘gewone’ mensen en kinderen bij extreemrechtse kooigevechten,...
+- [Trump, Poetin en Xi komen met gezamenlijke verklaring: ‘ICC mag rechtsmacht niet misbruiken’](https://www.ad.nl/buitenland/trump-poetin-en-xi-komen-met-gezamenlijke-verklaring-icc-mag-rechtsmacht-niet-misbruiken~a7b3894b8/)
+  > De Russische president Vladimir Poetin, de Chinese president Xi Jinping en de Amerikaanse president Donald Trump gingen deze ochtend met elkaar aan...
+- [Nieuw B&B vol liefde-koppel: Gilbert en Malgosia hebben elkaar gevonden](https://www.ad.nl/show/malgosia-gilbert-bbvolliefde-2026~a88b3a6c/)
+  > Een bijzonder nieuw B&B vol liefde-koppel: Malgosia Lukaszczyk (52) en Gilbert de Wildt (69), allebei oud-kandidaten van het programma, vormen een...
+- [Topactrice Florence Pugh is klaar met bodyshamers en speculaties over lichaam: ‘Zeer verontrustend’](https://www.ad.nl/show/topactrice-florence-pugh-is-klaar-met-bodyshamers-en-speculaties-over-lichaam-zeer-verontrustend~a2b780d6/)
+  > Florence Pugh (30) heeft fel gereageerd op ‘verontrustende’ speculaties over haar uiterlijk. Foto’s van de actrice gingen onlangs viraal, omdat...
+- [Dick Lukkien ontbreekt bij Derby van het Noorden na heupoperatie](https://www.ad.nl/voetbal/dick-lukkien-ontbreekt-bij-derby-van-het-noorden-na-heupoperatie~a378dc98/)
+  > Het nieuwe eredivisieseizoen is in volle gang. De strijd om de landstitel en de strijd tegen degradatie is losgebarsten. In dit liveblog houden we je...
 
 ### Meest gelezen
 
@@ -46,16 +47,16 @@
 
 ### Laatste nieuws
 
-- [Bouwkosten sociale huurwoningen stijgen fors](https://fd.nl/bedrijfsleven/1619984/bouwkosten-sociale-huurwoningen-stijgen-fors)
-  > Door hogere bouw-, rente- en grondkosten werd een nieuwe sociale huurwoning vorig jaar 14% duurder. Daarmee komen de sociale bouwambities verder...
-- [Op hoop van zegen](https://fd.nl/opinie/1619959/op-hoop-van-zegen)
-  > Wordt de beursgang van Anthropic vandaag de grootste ooit? En is dat dan hét teken dat er een AI-bubbel is?
-- [ASML opnieuw grootste belegging van Nederlandse huishoudens](https://fd.nl/financiele-markten/1619934/asml-opnieuw-grootste-belegging-van-nederlandse-huishoudens)
-  > De grootste belegging van Nederlandse huishoudens was in het derde kwartaal opnieuw ASML. In de ranglijst, gebaseerd op cijfers van De Nederlandsche...
-- [Platform voor psychische hulp OpenUp doet eerste overname](https://fd.nl/bedrijfsleven/1619931/platform-voor-psychische-hulp-openup-doet-eerste-overname)
-  > OpenUp, aanbieder van bedrijfsabonnementen voor mentale hulp, wil werknemers in heel Europa ook helpen met werken met AI.
-- [Weer massaal naar de kantoortuin voor koetjes, kalfjes én koffie](https://fd.nl/opinie/1619810/koetjes-kalfjes-en-koffie)
-  > Te midden van geouwehoer en sterke verhalen bij de koffie ontbotten nieuwe ideeën en werden bestaande inzichten getest. Terug naar kantoor dus,...
+- [Ziekteverzuim loopt langzaam op door meer stress](https://fd.nl/bedrijfsleven/1620108/ziekteverzuim-loopt-langzaam-op-door-meer-stress)
+  > Stressgerelateerde klachten spelen steeds vaker een rol. Vooral werknemers van 25 tot 44 jaar vallen daardoor uit en dit komt het meest voor bij...
+- [Aschenbrenner plant comeback, tegelijk met Anthropic](https://fd.nl/financiele-markten/1620106/aschenbrenner-plant-comeback-tegelijk-met-anthropic)
+  > Leopold Aschenbrenner laat weten zijn hedgefonds nieuw leven in te willen blazen. Dat meldt de Financial Times op basis van ingewijden.
+- [‘Flexibele realist’ wil dat Europa snel zijn eigen verdediging ter hand neemt](https://fd.nl/politiek/1619553/flexibele-realist-wil-dat-europa-snel-zijn-eigen-verdediging-ter-hand-neemt)
+  > China vormt volgens onderminister van defensie Elbridge Colby een veel groter gevaar voor de VS dan Rusland. Hij wil Amerikaanse troepen uit Europa...
+- [Bedrijven keerden in derde kwartaal opnieuw meer dividend uit](https://fd.nl/financiele-markten/1620032/bedrijven-keerden-in-derde-kwartaal-opnieuw-meer-dividend-uit)
+  > Opkomende markten, waaronder China, keerden in het derde kwartaal $274 mrd aan dividend uit, goed voor 46% van het wereldwijde totaal.
+- [Rots in de personal branding](https://fd.nl/samenleving/1619930/rots-in-de-personal-branding)
+  > Joris van Os begrijpt dat er, in tegenstelling tot zijn glamoureuze cocolumnistes, weinig kijkplezier aan hem te beleven valt.
 
 ### Meest gelezen
 
