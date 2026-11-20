@@ -1,6 +1,6 @@
 # Nieuwsoverzicht
 
-*Laatst bijgewerkt: 20-11-2026 om 02:07*
+*Laatst bijgewerkt: 20-11-2026 om 11:05*
 
 ---
 
@@ -8,16 +8,16 @@
 
 ### Laatste nieuws
 
-- [Uitgever stopt verkoop biografie oudste Deen ooit na onthullingen over naziverleden](https://nos.nl/l/2640218)
-  > De oudste vrouw van Denemarken is in opspraak geraakt vanwege onthullingen over haar verleden bij de Deense nazipartij. Een biografie over haar leven...
-- [Town to City verkozen tot beste Nederlandse game](https://nos.nl/l/2640217)
-  > Het bouwspel Town to City is bij de Dutch Game Awards uitgeroepen tot beste Nederlandse game van 2026. Het spel van de Utrechtse studio Galaxy Grove...
-- [Haïtiaanse politie meldt tientallen doden bij grote operatie tegen bendes](https://nos.nl/l/2640215)
-  > De Haïtiaanse politie is een grootschalige operatie begonnen om bendes te verdrijven uit een wijk in de hoofdstad Port-au-Prince. Deze wijk ligt aan...
-- [Wereldberoemd nijlpaard Fiona eet gebreide muts op en overleeft dat niet](https://nos.nl/l/2640213)
-  > In de dierentuin van de Amerikaanse stad Cincinnati is het wereldberoemde nijlpaard Fiona op 9-jarige leeftijd doodgegaan. Elf dagen geleden at ze...
-- [Succesvolle eerste beursdag voor Anthropic, afwachten of optimisme doorzet](https://nos.nl/l/2640208)
-  > De slotkoers van de grootste beursgang ooit is bekend: 97,17 dollar. Daarmee lijkt de eerste beursdag van het Amerikaanse AI-bedrijf Anthropic een...
+- [Myanmar noemt genocide-uitspraak Internationaal Gerechtshof 'oneerlijk'](https://nos.nl/l/2640269)
+  > De Myanmarese autoriteiten noemen de historische uitspraak van het Internationaal Gerechtshof van gisteren "oneerlijk". Het hof oordeelde dat Myanmar...
+- [Dolle Mina's starten protestappgroep tegen 'creepshots' in de Achterhoek](https://nos.nl/l/2640266)
+  > De feministische actiegroep Dolle Mina heeft protestborden geplaatst in de buurt van plekken waar creepshots zijn gemaakt. Ook is er een...
+- [Haïtianen vestigen hoop op president El Salvador, al is onduidelijk wat zijn doelen zijn](https://nos.nl/l/2640265)
+  > "Bukele! Bukele! Bukele!". Een mensenmassa beweegt zich door de Haïtiaanse hoofdstad Port-au-Prince. Er klinkt gejuich, muziek, mensen houden...
+- [Eerste 'bejaardenhuis' voor tbs'ers moet druk op andere instellingen verlichten](https://nos.nl/l/2640263)
+  > De Limburgse geestelijke gezondheidszorginstelling Mondriaan opent komende zomer in Heerlen een speciale afdeling die zich vooral richt op tbs'ers...
+- [Autowrakken uit WOII opgegraven bij vliegbasis Soesterberg: 'Een unicum'](https://nos.nl/l/2640256)
+  > Archeologen hebben twee autowrakken opgegraven op de voormalige vliegbasis Soesterberg. Vermoedelijk zijn de wagens daar in 1940 op de landingsbaan...
 
 ### Meest gelezen
 
@@ -27,16 +27,16 @@
 
 ### Laatste nieuws
 
-- [Voornaamste adviseur Trump over cyberveiligheid vertrekt na reeks incidenten](https://www.ad.nl/buitenland/voornaamste-adviseur-trump-over-cyberveiligheid-vertrekt-na-reeks-incidenten~ae67dd9c/)
-  > De nationale directeur cyberveiligheid van de VS, Sean Cairncross, stapt op. Dat laat een medewerker van het Witte Huis donderdag weten na...
-- [Michael van Gerwen brult als vanouds na zinderende zege, Gian van Veen nieuwe nummer 2 van de wereld](https://www.ad.nl/darts/michael-van-gerwen-brult-als-vanouds-na-zinderende-zege-gian-van-veen-nieuwe-nummer-2-van-de-wereld~a44ced04/)
-  > Met het hoogste gemiddelde van alle spelers in de achtste finales heeft Michael van Gerwen zich dankzij een zinderende zege (10-8) op James Wade...
-- [Israël bombardeert voor het eerst in maanden Bekavallei in oosten van Libanon](https://www.ad.nl/buitenland/israel-bombardeert-voor-het-eerst-in-maanden-bekavallei-in-oosten-van-libanon~ac528ac3/)
-  > Het Israëlische leger heeft een luchtaanval uitgevoerd op de Bekavallei in het oosten van Libanon. Dat meldt het leger donderdag via Telegram....
-- [AD Voetbalpodcast | ‘Feyenoord-Excelsior is wel een moment om Sem Steijn speelminuten te geven’](https://www.ad.nl/voetbal/ad-voetbalpodcast-feyenoord-excelsior-is-wel-een-moment-om-sem-steijn-speelminuten-te-geven~a42af5cd9/)
-  > Het laatste blok eredivisievoetbal van 2026 gaat beginnen. Op het spel staat de wintertitel, in de AD Voetbalpodcast bespreekt Etienne Verhoeff met...
-- [GTA 6 brengt meer op dan succesfilm The Odyssey na één dag](https://www.ad.nl/games/gta-6-brengt-meer-op-dan-succesfilm-the-odyssey-na-een-dag~a4dd0eca/)
-  > De nieuwe videogame GTA 6 heeft in een dag meer opgebracht dan de populaire film The Odyssey. De game passeerde volgens filmsite Collider...
+- [LIVE Oorlog Oekraïne | Drie objecten dringen Pools luchtruim binnen tijdens Russische aanvallen op Oekraïne](https://www.ad.nl/buitenland/live-oorlog-oekraine-nederlandse-ambassade-in-kyiv-beschadigd-na-aanval-russische-drone~adfb97be/)
+  > Het Poolse luchtruim is mogelijk geschonden tijdens een Russische aanvallen op Oekraïne. De Poolse generaal Ireneusz Nowak meldt dat er 11 objecten...
+- [12 flessen met meer dan 6 kilo zand in kofferbak: Franse toerist riskeert boete tot 3000 euro voor diefstal op Sardinië](https://www.ad.nl/buitenland/12-flessen-met-meer-dan-6-kilo-zand-in-kofferbak-franse-toerist-riskeert-boete-tot-3000-euro-voor-diefstal-op-sardinie~aafec5819/)
+  > Een 74-jarige Franse toerist riskeert een boete tot 3.000 euro nadat hij op Sardinië twaalf plastic flessen had gevuld met zand van verschillende...
+- [Welk land treft Oranje in kwartfinales Nations League? Loting in Nyon onderweg](https://www.ad.nl/voetbal/welk-land-treft-oranje-in-kwartfinales-nations-league-loting-in-nyon-onderweg~a84353e6/)
+  > Het Nederlands elftal gaat vanmiddag de koker in voor de loting van de kwartfinales van de Nations League. Tegen wie neemt Oranje het volgend jaar...
+- [Ongewenste gast bij eerste training van Mauricio Pochettino: drone vliegt over trainingscomplex van Manchester United](https://www.ad.nl/voetbal/ongewenste-gast-bij-eerste-training-van-mauricio-pochettino-drone-vliegt-over-trainingscomplex-van-manchester-united~a5610e84/)
+  > Al bij zijn eerste training bij Manchester United kreeg Mauricio Pochettino donderdag nogal ongewenst bezoek. Een drone vloog over het...
+- [Recherche hackte computers Tata Steel om informatie te achterhalen](https://www.ad.nl/binnenland/recherche-hackte-computers-tata-steel-om-informatie-te-achterhalen~a56a362e/)
+  > Het Openbaar Ministerie heeft ingebroken in de computers van Tata Steel om te achterhalen wat zich precies afspeelde op het gigantische terrein in...
 
 ### Meest gelezen
 
@@ -46,16 +46,16 @@
 
 ### Laatste nieuws
 
-- [Minder Markermeer](https://fd.nl/opinie/1620049/minder-markermeer)
-  > Om de zoveel jaar is er weer een ingenieur of politicus die z’n oog op ons unieke binnenmeer laat vallen, schrijft columnist Mathijs Bouman.
-- [7 dingen die niet kunnen maar wél moeten – juist nu](https://fd.nl/opinie/1619013/7-dingen-die-niet-kunnen-maar-wel-moeten-juist-nu)
-  > Zonder goedkoop gas gebeurt er niets, dus stop met duur lng uit de VS en gooi Groningen open. Zo zijn er nog zes projecten die we aan moeten durven,...
-- [Personalia vrijdag 20 november](https://fd.nl/bedrijfsleven/1620046/personalia-vrijdag-20-november)
-  > Nieuwe baan? Mail personalia@fd.nl, met een foto in hoge resolutie en een functieomschrijving in het Nederlands.
-- [Beursgang Anthropic steelt show op flink lagere beurzen](https://fd.nl/financiele-markten/1620155/beursgang-anthropic-steelt-show-op-flink-lagere-beurzen)
-  > Ondanks de koersstijging van het AI-bedrijf blijven beleggers zorgen houden over de houdbaarheid van de AI-sector.
-- [Vertraging CO₂-opslagproject Porthos kan ruim €400 mln gaan kosten](https://fd.nl/politiek/1620129/vertraging-co-opslagproject-porthos-kan-ruim-400-mln-gaan-kosten)
-  > De vertraagde start van Porthos heeft niet alleen een kostenstijging tot gevolg, maar heeft ook gevolgen voor het halen van de klimaatdoelen.
+- [Christendemocraten controleren graag, behalve zichzelf](https://fd.nl/politiek/1620063/christendemocraten-controleren-graag-behalve-zichzelf)
+  > Een jaar lang werden ngo’s doorgelicht, zonder dat er iets werd gevonden. Nog langer blokkeert de Europese Volkspartij een ethiekorgaan dat...
+- [Met nieuwe supersportwagen klimt Lamborghini verder uit het dal](https://fd.nl/bedrijfsleven/1619739/met-nieuwe-supersportwagen-klimt-lamborghini-verder-uit-het-dal)
+  > Het FD ging langs bij de thuisbasis van het Italiaanse automerk, dat zijn nieuwste model presenteert. Het bedrijf heeft een sterke Italiaanse...
+- [Zie wat blinkt daar: de ring van Sinterklaas blijkt een designparel](https://fd.nl/samenleving/1619939/zie-wat-blinkt-daar-de-ring-van-sinterklaas-blijkt-een-designparel)
+  > De geelgouden Tromboni van Bvlgari komt aardig dicht in de buurt van het iconische sieraad van onze goedheiligman.
+- [Aandachtseconomie schaadt kleine belegger](https://fd.nl/opinie/1619554/aandachtseconomie-schaadt-kleine-belegger)
+  > Sociale media sturen onze aandacht en maken ons wereldbeeld vaak radicaler. In de beleggingswereld krijgen speculatieve aandelen hierdoor onevenredig...
+- [Opnieuw Russische raket- en droneaanval op Kyiv](https://fd.nl/politiek/1620180/opnieuw-russische-raket-en-droneaanval-op-kyiv)
+  > Op meerdere plekken ging het luchtalarm af. Lokale journalisten melden dat er gedurende de nacht explosies te horen waren door drones en raketten die...
 
 ### Meest gelezen
 
